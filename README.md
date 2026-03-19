@@ -1,3 +1,11 @@
+**How does Cade Cunningham’s collapsed lung impact the East Conference playoff race?**\
+`Cade Cunningham's injury for the No. 1 seed Pistons could open the door for their Eastern Conference rivals. `\
+https://nytimes.com/athletic/7131229/2026/03/19/pistons-cade-cunningham-lung-injury-playoffs/
+
+**‘Miroirs No. 3’ Review: Kindness and Its Reverse Image**\
+`In the lovely new movie from the acclaimed German director Christian Petzold (“Barbara”), a woman wakes to life after an accident.`\
+https://nytimes.com/2026/03/19/movies/miroirs-no-3-review-christian-petzold.html
+
 **Reports of Sexual Abuse by Cesar Chavez**\
 `Readers react to the Times investigation of the labor leader and civil rights icon. Also: A decision on vaccines; shielding lawyers.`\
 https://nytimes.com/2026/03/19/opinion/cesar-chavez-sexual-abuse.html
@@ -25,12 +33,4 @@ https://nytimes.com/2026/03/19/business/dubai-luxury-shopping-iran-war.html
 **How to watch Cavaliers vs. Bulls: Time, TV, streaming**\
 `Find out how to watch the Cleveland Cavaliers play the Chicago Bulls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7131599/2026/03/19/cavaliers-vs-bulls-stream-how-to-watch-march-19/
-
-**How to watch Suns vs. Spurs: Time, TV, streaming**\
-`Find out how to watch the Phoenix Suns play the San Antonio Spurs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7131597/2026/03/19/suns-vs-spurs-stream-how-to-watch-march-19/
-
-**How to watch Clippers vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Clippers play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7131591/2026/03/19/clippers-vs-pelicans-stream-how-to-watch-march-19/
 
