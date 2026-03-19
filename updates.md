@@ -1,3 +1,23 @@
+**Analysing the Champions League quarter-finals: Star players, top youngsters, trophy favourites**\
+`The Champions League quarter-finals are set, presenting a mouthwatering set of ties. Our experts have their say `\
+https://nytimes.com/athletic/7130652/2026/03/19/champions-league-quarter-finals-analysis-favourites/
+
+**Pistons' Cade Cunningham diagnosed with collapsed lung: Sources**\
+`Cunningham's diagnosis comes as a major blow to a Detroit team already without a key member of its rotation in big man Isaiah Stewart.`\
+https://nytimes.com/athletic/7130859/2026/03/19/cade-cunningham-injury-sidelines-pistons/
+
+**How to watch Hawaii vs. Arkansas men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Hawaii Rainbow Warriors play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7130914/2026/03/19/hawaii-vs-arkansas-stream-how-to-watch-march-19/
+
+**How to watch North Dakota State vs. Michigan State men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the North Dakota State Bison play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7130907/2026/03/19/north-dakota-state-vs-michigan-state-stream-how-to-watch-march-19/
+
+**The Effects of High Oil Prices**\
+`Our chief economics correspondent, Ben Casselman, breaks down how gasoline prices have responded to the oil crisis in the Persian Gulf, and what is in store for inflation if the price of oil remains above $100 per barrel.`\
+https://nytimes.com/video/business/100000010782158/the-unexpected-impacts-of-high-oil-prices.html
+
 **Saudi Official Warns Patience Is Limited as Iranian Attacks Barrage Kingdom**\
 `Prince Faisal bin Farhan, the foreign minister, said Saudi Arabia was prepared to take military action if necessary, after waves of missile and drone attacks.`\
 https://nytimes.com/2026/03/19/world/middleeast/iran-missiles-saudi-arabia-riyadh-yanbu.html

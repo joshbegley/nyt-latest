@@ -1,3 +1,19 @@
+**Analysing the Champions League quarter-finals: Star players, top youngsters, trophy favourites**\
+`The Champions League quarter-finals are set, presenting a mouthwatering set of ties. Our experts have their say `\
+https://nytimes.com/athletic/7130652/2026/03/19/champions-league-quarter-finals-analysis-favourites/
+
+**Pistons' Cade Cunningham diagnosed with collapsed lung: Sources**\
+`Cunningham's diagnosis comes as a major blow to a Detroit team already without a key member of its rotation in big man Isaiah Stewart.`\
+https://nytimes.com/athletic/7130859/2026/03/19/cade-cunningham-injury-sidelines-pistons/
+
+**How to watch Hawaii vs. Arkansas men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Hawaii Rainbow Warriors play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7130914/2026/03/19/hawaii-vs-arkansas-stream-how-to-watch-march-19/
+
+**How to watch North Dakota State vs. Michigan State men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the North Dakota State Bison play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7130907/2026/03/19/north-dakota-state-vs-michigan-state-stream-how-to-watch-march-19/
+
 **Saudi Official Warns Patience Is Limited as Iranian Attacks Barrage Kingdom**\
 `Prince Faisal bin Farhan, the foreign minister, said Saudi Arabia was prepared to take military action if necessary, after waves of missile and drone attacks.`\
 https://nytimes.com/2026/03/19/world/middleeast/iran-missiles-saudi-arabia-riyadh-yanbu.html
@@ -10,7 +26,7 @@ https://nytimes.com/2026/03/19/us/politics/markwayne-mullin-dhs.html
 `Greg Jewett takes a final look at the biggest bullpen value movers in the past week and provides the leverage options for every MLB team.`\
 https://nytimes.com/athletic/7129326/2026/03/19/fantasy-baseball-bullpen-report-stock-up-down-palencia/
 
-**The Unexpected Impacts of High Oil Prices**\
+**The Effects of High Oil Prices**\
 `Our chief economics correspondent, Ben Casselman, breaks down how gasoline prices have responded to the oil crisis in the Persian Gulf, and what is in store for inflation if the price of oil remains above $100 per barrel.`\
 https://nytimes.com/video/business/100000010782158/the-unexpected-impacts-of-high-oil-prices.html
 
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7130530/2026/03/19/alex-scott-womens-champions-leag
 **Madrid's Courtois sidelined for at least six weeks with thigh injury**\
 `On Wednesday, Courtois did not expect the issue to be major before tests on Thursday proved otherwise.`\
 https://nytimes.com/athletic/7126646/2026/03/19/thibaut-courtois-injury-real-madrid-news-2026/
-
-**QB Carson Wentz re-signing with Minnesota Vikings**\
-`Wentz will rejoin a quarterback room that includes Kyler Murray and J.J. McCarthy.`\
-https://nytimes.com/athletic/7130754/2026/03/19/minnesota-vikings-carzon-wentz-qb-signed-stays/
-
-**Timothée Chalamet’s Biggest Fan Takes a Step Back**\
-`After a rocky Oscars campaign, the actor may have lost favor with parts of his fervent fan base, including the popular social media account Club Chalamet.`\
-https://nytimes.com/2026/03/19/style/timothee-chalamet-fans-club.html
-
-**UFC's White House bouts to be sanctioned, regulated by ABC, not D.C. commission**\
-`The UFC worked with the D.C. Combat Sports Commission for its previous two Washington events, which were held at Capital One Arena.`\
-https://nytimes.com/athletic/7129747/2026/03/19/ufc-white-house-dc-commission-regulations-sanctioned/
-
-**Arkansas, St. John’s lead public betting, putting sportsbooks on upset watch**\
-`Who are people betting on to win it all? What are the biggest bets going into the tournament? We got you covered on the betting action.`\
-https://nytimes.com/athletic/7129466/2026/03/19/ncaa-tournament-betting-duke-florida-michigan-arkansas-alabama-high-point/
 
