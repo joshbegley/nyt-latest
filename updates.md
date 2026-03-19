@@ -1,3 +1,31 @@
+**Craig Counsell to Cubs hitting coaches: Don’t mess with Moisés Ballesteros**\
+`Cubs are trying to temper expectations around the prospect Ballesteros, who simply does not stop hitting.`\
+https://nytimes.com/athletic/7132376/2026/03/19/craig-counsell-cubs-moises-ballesteros/
+
+**Is Russian Oil Headed for Cuba, Testing the U.S. Blockade?**\
+`A Russian oil tanker is being closely tracked to see if it will challenge the Trump administration’s blockade on Cuba.`\
+https://nytimes.com/2026/03/19/world/americas/cuba-russia-oil-blockade.html
+
+**He Trolls the Left. What Does He Actually Mean?**\
+`Backlash against Jeremy Carl’s incendiary tweets and language caused him to withdraw his nomination for a State Department post. On “Interesting Times,” Ross Douthat challenges him on his use of phrases like “cultural genocide” and “great replacement.”`\
+https://nytimes.com/video/opinion/100000010775490/he-trolls-the-left-what-does-he-actually-mean.html
+
+**He Thinks Hollywood Has Stigmatized Whiteness**\
+`On “Interesting Times,” Ross Douthat challenges Jeremy Carl on his claim that modern entertainment has stigmatized whiteness.`\
+https://nytimes.com/video/opinion/100000010775488/he-thinks-hollywood-has-stigmatized-whiteness.html
+
+**Patriarch Ilia II, a Spiritual Figure of Stability in Georgia, Dies at 93**\
+`The longest-serving leader in the history of the Georgian Orthodox Church, he helped guide his country in its transition from Soviet repression to modern statehood.`\
+https://nytimes.com/2026/03/19/world/europe/patriarch-ilia-ii-dead.html
+
+**Carrick unsure if Man United's De Ligt will play again this season**\
+`De Ligt's last United appearance was 110 days ago – during the 2-1 win at Crystal Palace in late November.`\
+https://nytimes.com/athletic/7130555/2026/03/19/matthijs-de-ligt-injury-manchester-united-carrick/
+
+**Trump’s Handpicked Arts Commission Approves Gold Coin With His Face on It**\
+`Many of America’s founders were fiercely against taking steps that would make its government officials appear like kings, and that included featuring them on the country’s coins.`\
+https://nytimes.com/2026/03/19/us/politics/trump-gold-coin.html
+
 **NFL Newsletter: Fallers after the first wave of free agency**\
 `The early offseason's fallers, a closer look at Kyler Murray on the Vikings and our latest beat writer mock draft.`\
 https://nytimes.com/athletic/7132365/2026/03/19/nfl-free-agency-fallers-dolphins/
