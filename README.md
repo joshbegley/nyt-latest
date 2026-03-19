@@ -1,6 +1,6 @@
 **Here’s What Happened in the War in the Middle East on Wednesday**\
 `A day of strikes on energy facilities and testimony in Washington to members of Congress.`\
-https://nytimes.com/2026/03/18/world/middleeast/heres-what-happened-in-the-war-in-the-middle-east-on-wednesday.html
+https://nytimes.com/2026/03/18/world/middleeast/iran-war-recap-middle-east.html
 
 **Senate G.O.P. Again Blocks Bid to Stop Iran War Until Trump Wins Authorization**\
 `For the second time since the war began, Senate Democrats tried and failed to win passage of a resolution that would have halted the offensive until President Trump went to Congress for approval.`\
