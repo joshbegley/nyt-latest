@@ -1,3 +1,7 @@
+**2 Men Charged With Spying for Iran on Britain’s Oldest Synagogue**\
+`The men, both Iranian citizens, are accused of conducting surveillance on several Jewish institutions and community buildings in London.`\
+https://nytimes.com/2026/03/19/world/europe/iran-spy-charged-uk-jewish-london.html
+
 **Qatar Blames Iran for Attack on Major Energy Hub**\
 `Qatar blamed Iran for an attack on a major energy hub, a day after Iran vowed retaliation for an airstrike on the South Pars field that it said was carried out by Israel.`\
 https://nytimes.com/video/world/middleeast/100000010789342/qatar-iran-attack-energy-hub.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7130652/2026/03/19/champions-league-quarter-finals-
 **Pistons' Cade Cunningham diagnosed with collapsed lung: Sources**\
 `Cunningham's diagnosis comes as a major blow to a Detroit team already without a key member of its rotation in big man Isaiah Stewart.`\
 https://nytimes.com/athletic/7130859/2026/03/19/cade-cunningham-injury-sidelines-pistons/
-
-**How to watch Hawaii vs. Arkansas men's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Hawaii Rainbow Warriors play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7130914/2026/03/19/hawaii-vs-arkansas-stream-how-to-watch-march-19/
 
