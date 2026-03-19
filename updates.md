@@ -1,3 +1,11 @@
+**Jeff Bezos in Talks to Raise $100 Billion Fund to Transform Companies With A.I.**\
+`The new fund would operate alongside the Amazon founder’s A.I. start-up, Project Prometheus.`\
+https://nytimes.com/2026/03/19/technology/jeff-bezos-ai-fund-project-prometheus.html
+
+**Trump’s Handpicked Arts Commission Approves Gold Coin With His Face on It**\
+`Many of America’s founders were fiercely against taking steps that would make its government officials appear like kings, and that included featuring them on the country’s coins.`\
+https://nytimes.com/2026/03/19/us/politics/arts-commission-trump-coin.html
+
 **Cesar Chavez Avenue May Soon Be Gone. Yet to Be Confronted: His Legacy.**\
 `After the revelations of sex abuse, the public is left to make sense of the labor leader’s work and life.`\
 https://nytimes.com/2026/03/19/us/politics/cesar-chavez-memorials-renaming.html
