@@ -1,4 +1,4 @@
-**‘The Bachelorette’ Season Canceled After Video of Assault Is Released**\
+**‘The Bachelorette’ Season Canceled After Leaked Video of Assault**\
 `Taylor Frankie Paul, who was set to star in the TV show, had pleaded guilty to aggravated assault after an encounter with her partner in 2023.`\
 https://nytimes.com/2026/03/19/arts/television/bachelorette-canceled-taylor-frankie-paul-video.html
 
