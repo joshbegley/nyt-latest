@@ -1,3 +1,7 @@
+**Bears' Caleb Williams pursuing trademark for 'Iceman' moniker**\
+`The trademark request seeks to use the nickname and logos on eyewear, posters, baggage, water bottles, apparel and sporting goods.`\
+https://nytimes.com/athletic/7131801/2026/03/19/caleb-williams-iceman-trademark-bears/
+
 **MLS reveals details of its 2027 sprint season before calendar flips**\
 `MLS is due to align with the European calendar in the summer of 2027. This is how the league will fill the first half of the year`\
 https://nytimes.com/athletic/7129315/2026/03/19/mls-sprint-season-details-2027-schedule/
@@ -25,12 +29,4 @@ https://nytimes.com/athletic/7130675/2026/03/19/fifa-womens-coach-rules/
 **Jerusalem’s Old City sustains some damage after being largely spared in years of fighting.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2026/03/19/world/iran-war-news-trump-oil/jerusalems-old-city-sustains-some-damage-after-being-largely-spared-in-years-of-fighting
-
-**How to watch Arizona State vs. Virginia women's basketball: First Four Time, TV, streaming**\
-`Find out how to watch the Arizona State Sun Devils play the Virginia Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7131704/2026/03/19/arizona-state-vs-virginia-stream-how-to-watch-march-19/
-
-**Trump Jokes About Pearl Harbor in Meeting With Japan’s Leader**\
-`Breaking a taboo, President Trump needled Japan’s prime minister about the World War II attack, as she widened her eyes and appeared to take a deep breath in the Oval Office.`\
-https://nytimes.com/2026/03/19/us/politics/trump-japan-pearl-harbor-oval-office-takaichi.html
 
