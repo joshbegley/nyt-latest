@@ -1,3 +1,7 @@
+**The Arsenal trio facing Man City at Wembley who have come full circle**\
+`Rice, Havertz and Timber made Arsenal debuts against City in 2023 — and all three have gone on to be vital pieces in Arteta's squad`\
+https://nytimes.com/athletic/7114857/2026/03/19/rice-timber-havertz-arsenal-man-city/
+
 **Would losing Enzo Fernandez actually be a problem for Chelsea on the pitch?**\
 `Enzo Fernandez is a keen talent and losing him would require a remodelling of the Chelsea team`\
 https://nytimes.com/athletic/7129333/2026/03/19/enzo-fernandez-chelsea-analysis-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7130084/2026/03/19/connections-sports-edition-hints
 **Porziņģis is finding his way with Warriors as reunion tour of exes continues**\
 `For the first time in a while, the 30-year-old is enjoying basketball again. "I'm feeling good," he said. `\
 https://nytimes.com/athletic/7128755/2026/03/19/kristaps-porzingis-warriors-celtics-nba/
-
-**Ozempic Is About to Go Generic for Billions of People**\
-`In India, China and several other nations, Novo Nordisk is on the verge of losing patent protection for its blockbuster weight loss drug, opening the door for cheaper competing versions.`\
-https://nytimes.com/2026/03/19/health/ozempic-wegovy-generic-india-china-canada.html
 
