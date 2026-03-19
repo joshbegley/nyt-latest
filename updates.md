@@ -1,3 +1,7 @@
+**The Markets Contend With Powell’s Long Goodbye**\
+`The chair of the Federal Reserve said that he might not leave the central bank any time soon, setting up a potential clash with President Trump.`\
+https://nytimes.com/2026/03/19/business/dealbook/jay-powell-fed-chair-markets.html
+
 **The Idiot**\
 ``\
 https://nytimes.com/column/the-idiot

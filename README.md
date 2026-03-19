@@ -1,3 +1,15 @@
+**How to watch High Point vs. Wisconsin men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the High Point Panthers play the Wisconsin Badgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7130626/2026/03/19/high-point-vs-wisconsin-stream-how-to-watch-march-19/
+
+**How to watch McNeese vs. Vanderbilt men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the McNeese Cowboys play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7130624/2026/03/19/mcneese-vs-vanderbilt-stream-how-to-watch-march-19/
+
+**Why Victor Wembanyama is the NBA's MVP — even if he doesn't win the award**\
+`Wembanyama has led the Spurs to the NBA's second-best record. His competitiveness has also breathed life into the league. `\
+https://nytimes.com/athletic/7130414/2026/03/19/victor-wembanyama-mvp-spurs-column/
+
 **The Markets Contend With Powell’s Long Goodbye**\
 `The chair of the Federal Reserve said that he might not leave the central bank any time soon, setting up a potential clash with President Trump.`\
 https://nytimes.com/2026/03/19/business/dealbook/jay-powell-fed-chair-markets.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7130456/2026/03/19/slot-afcon-messi-tafc/
 **Seahawks post-free-agency mailbag: Could John Schneider make a splash trade?**\
 `Readers also had plenty of questions about why Ken Walker III left Seattle and whom the Seahawks might target in the draft.`\
 https://nytimes.com/athletic/7129350/2026/03/19/seahawks-free-agency-nfl-draft-mailbag/
-
-**Siegel: Why the Maple Leafs shouldn't just tear it all down this offseason**\
-`The Maple Leafs are about to enter a daunting offseason and a full roster teardown this summer is far from foolproof.`\
-https://nytimes.com/athletic/7126881/2026/03/19/maple-leafs-nhl-offseason-auston-matthews/
-
-**Once a promising MLB prospect, Alex Kirilloff is all in on real estate and happier for it**\
-`After he stunned the baseball world with an early retirement, the former top prospect is happy he traded his bat for a real estate license.`\
-https://nytimes.com/athletic/7129303/2026/03/19/twins-alex-kirilloff-second-career-real-estate/
-
-**Who are the top WNBA free agents? Get ready for a wild offseason after a new CBA deal**\
-`More money is on the table after a new collective bargaining agreement. With more than 100 free agents, will star players make big moves?`\
-https://nytimes.com/athletic/7130255/2026/03/19/wnba-free-agents-offseason-cba/
 

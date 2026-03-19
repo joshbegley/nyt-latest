@@ -1,3 +1,7 @@
+**The Markets Contend With Powell’s Long Goodbye**\
+`The chair of the Federal Reserve said that he might not leave the central bank any time soon, setting up a potential clash with President Trump.`\
+https://nytimes.com/2026/03/19/business/dealbook/jay-powell-fed-chair-markets.html
+
 **The Idiot**\
 ``\
 https://nytimes.com/column/the-idiot
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7129303/2026/03/19/twins-alex-kirilloff-second-care
 **Who are the top WNBA free agents? Get ready for a wild offseason after a new CBA deal**\
 `More money is on the table after a new collective bargaining agreement. With more than 100 free agents, will star players make big moves?`\
 https://nytimes.com/athletic/7130255/2026/03/19/wnba-free-agents-offseason-cba/
-
-**This Week in Sports Trivia: March 19, 2026**\
-`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
-https://nytimes.com/athletic/7128550/2026/03/19/this-week-in-sports-trivia-march-19-2026/
 
