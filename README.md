@@ -1,3 +1,7 @@
+**Democrats Demand Answers on Jared Kushner’s Mideast Business Dealings**\
+`Two prominent lawmakers wrote to the White House and Mr. Kushner after The New York Times revealed private fund-raising efforts by President Trump’s envoy in the region.`\
+https://nytimes.com/2026/03/19/business/jared-kushner-mideast-private-equity.html
+
 **Student Loan Office Leaves the Education Department**\
 `The office will move to the Treasury Department as the Trump administration slowly dismantles the agency overseeing federal education policy.`\
 https://nytimes.com/2026/03/19/us/politics/student-loan-office-education-department.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7131813/2026/03/19/italy-wbc-espresso-machine-ohtan
 **When could Cade Cunningham return? Explaining collapsed lung recovery**\
 `Detroit’s two-week re-evaluation timeline fits the typical treatment for a collapsed lung, but recovery could take many forms.`\
 https://nytimes.com/athletic/7131740/2026/03/19/cade-cunningham-collapsed-lung-injury-explained/
-
-**With a 3-point sharpshooter's first 2 of the year, 12-seed High Point stuns Wisconsin**\
-`High Point, the Big South Conference champions, came back from as many as 10 down to unseat the Big Ten's Badgers.`\
-https://nytimes.com/athletic/7132133/2026/03/19/high-point-wisconsin-ncaa-tournament/
 
