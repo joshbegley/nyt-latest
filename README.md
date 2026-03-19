@@ -1,3 +1,11 @@
+**Back with Phillies, Bryce Harper is zoned in on better at-bats, 140-walks goal**\
+`For Harper, everything is about his decisions in 0-0 counts. He is focused on being more selective and has set an ambitious walks goal.`\
+https://nytimes.com/athletic/7131978/2026/03/19/bryce-harper-phillies-wbc-walk-goal/
+
+**How to watch Kennesaw State vs. Gonzaga men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Kennesaw State Owls play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7132164/2026/03/19/kennesaw-state-vs-gonzaga-stream-how-to-watch-march-19/
+
 **How to watch Idaho vs. Houston men's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Idaho Vandals play the Houston Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7132151/2026/03/19/idaho-vs-houston-stream-how-to-watch-march-19/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7132061/2026/03/19/sabres-vs-sharks-stream-how-to-w
 **Elizabeth Warren Backs Graham Platner in Maine, Splitting With Chuck Schumer**\
 `The intervention by Ms. Warren is the latest instance of her embracing a candidate at odds with Mr. Schumer, the top Senate Democrat.`\
 https://nytimes.com/2026/03/19/us/politics/elizabeth-warren-graham-platner-maine-schumer-senate.html
-
-**How to watch Lightning vs. Canucks: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Lightning play the Vancouver Canucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7132054/2026/03/19/lightning-vs-canucks-stream-how-to-watch-march-19/
-
-**The Windup: Previewing the AL East**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/7131462/2026/03/19/american-league-east-preview-the-windup/
 
