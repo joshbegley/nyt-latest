@@ -11,7 +11,7 @@ https://nytimes.com/2026/03/19/books/shy-girl-book-ai.html
 https://nytimes.com/2026/03/19/world/middleeast/trump-iran-us-troops.html
 
 **Monopoly? Not a Chance, Says Live Nation’s Chief at Antitrust Trial.**\
-`Michael Rapino, the chief executive of the live entertainment colossus, fought back against accusations his government unfairly dominates the music industry.`\
+`Michael Rapino, the chief executive of the live entertainment colossus, fought back against accusations his company unfairly dominates the music industry.`\
 https://nytimes.com/2026/03/19/arts/music/live-nation-ticketmaster-trial-rapino.html
 
 **Trump Makes Pearl Harbor Joke In Meeting With Japan’s Prime Minister**\
