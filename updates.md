@@ -1,3 +1,15 @@
+**Behind the scenes at Amazon with Seedorf: 'It’s about being fair. Don't be in a space of polemics'**\
+`The Dutch legend talks punditry, connecting with players, and his own coaching ambitions — all while covering a huge Champions League tie`\
+https://nytimes.com/athletic/7128219/2026/03/19/clarence-seedorf-interview-amazon/
+
+**The Alternative Premier League Table: No 31 – How kick-off time impacts your team**\
+`Our weekly top-flight examination looks at how teams and players get on in different time slots  `\
+https://nytimes.com/athletic/7128199/2026/03/19/alternative-premier-league-table-kick-off-times-3pm-manchester-united/
+
+**Lennart Karl, Bayern Munich’s teenage prodigy who is being called up by Germany**\
+`The 18-year-old was excellent in the win against Atalanta and will have his eyes on the World Cup after breaking into the Germany squad`\
+https://nytimes.com/athletic/7129424/2026/03/19/lennart-karl-germany-call-up-bayern/
+
 **The Arsenal trio facing Man City at Wembley who have come full circle**\
 `Rice, Havertz and Timber made Arsenal debuts against City in 2023 — and all three have gone on to be vital pieces in Arteta's squad`\
 https://nytimes.com/athletic/7114857/2026/03/19/rice-timber-havertz-arsenal-man-city/

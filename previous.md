@@ -1,3 +1,15 @@
+**Behind the scenes at Amazon with Seedorf: 'It’s about being fair. Don't be in a space of polemics'**\
+`The Dutch legend talks punditry, connecting with players, and his own coaching ambitions — all while covering a huge Champions League tie`\
+https://nytimes.com/athletic/7128219/2026/03/19/clarence-seedorf-interview-amazon/
+
+**The Alternative Premier League Table: No 31 – How kick-off time impacts your team**\
+`Our weekly top-flight examination looks at how teams and players get on in different time slots  `\
+https://nytimes.com/athletic/7128199/2026/03/19/alternative-premier-league-table-kick-off-times-3pm-manchester-united/
+
+**Lennart Karl, Bayern Munich’s teenage prodigy who is being called up by Germany**\
+`The 18-year-old was excellent in the win against Atalanta and will have his eyes on the World Cup after breaking into the Germany squad`\
+https://nytimes.com/athletic/7129424/2026/03/19/lennart-karl-germany-call-up-bayern/
+
 **The Arsenal trio facing Man City at Wembley who have come full circle**\
 `Rice, Havertz and Timber made Arsenal debuts against City in 2023 — and all three have gone on to be vital pieces in Arteta's squad`\
 https://nytimes.com/athletic/7114857/2026/03/19/rice-timber-havertz-arsenal-man-city/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/19/business/oil-prices-iran-war.html
 **The Iran War’s Economic Threat to Europe and Asia**\
 `Inflation and its consequences for growth is a growing concern for countries where memories of the 2022 energy crisis are fresh.`\
 https://nytimes.com/2026/03/19/business/iran-war-fiscal-spending-debt.html
-
-**In Some Areas of Germany, the Far Right Is Part of the Fabric**\
-`The Alternative for Germany party, or AfD, is shunned in federal politics but is a regional force. This fall, it could win broader power for the first time.`\
-https://nytimes.com/2026/03/19/world/europe/germany-far-right-afd.html
-
-**Connections: Sports Edition Coach: Hints and answers for March 19, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7130084/2026/03/19/connections-sports-edition-hints-answers-march-19-2026/
-
-**Porziņģis is finding his way with Warriors as reunion tour of exes continues**\
-`For the first time in a while, the 30-year-old is enjoying basketball again. "I'm feeling good," he said. `\
-https://nytimes.com/athletic/7128755/2026/03/19/kristaps-porzingis-warriors-celtics-nba/
 
