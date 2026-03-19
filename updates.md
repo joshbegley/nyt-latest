@@ -1,3 +1,23 @@
+**We almost lost college basketball. Then we started paying players**\
+`It wasn't long ago men's college hoops felt doomed. I'm here to tell you it has never been better.`\
+https://nytimes.com/athletic/7126636/2026/03/19/march-madness-college-basketball-nil-popularity/
+
+**Alex Eala returns to the Miami Open, where a dream run launched a tennis phenomenon**\
+`Last year's run to the semifinals propelled Eala up the tennis rankings — and into the sport's wider consciousness.`\
+https://nytimes.com/athletic/7124102/2026/03/19/tennis-alex-eala-philippines-miami-open/
+
+**Getting to know the 13 new Falcons after the first wave of free agency**\
+`The Falcons have added more than a dozen free agents, mostly on short-term deals, in the first 10 days of NFL free agency.`\
+https://nytimes.com/athletic/7129264/2026/03/19/atlanta-falcons-nfl-free-agency-jahan-dotson/
+
+**Patriots NFL Draft big board: 15 players they could pursue in the first three rounds**\
+`We refresh our Patriots big board for the 2026 NFL Draft with five players they could take with each of their first three picks.`\
+https://nytimes.com/athletic/7128923/2026/03/19/patriots-nfl-draft-big-board-tj-parker/
+
+**White Identity Is Galvanizing the Right**\
+`He wrote a book on anti-white bias. The White House noticed.`\
+https://nytimes.com/2026/03/19/opinion/interesting-times-podcast-jeremy-carl.html
+
 **Can Military Excellence Save Us From Trump’s Incompetence?**\
 `It should never have come to this.`\
 https://nytimes.com/2026/03/19/opinion/trump-iran-war.html
