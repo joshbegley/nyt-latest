@@ -1,3 +1,7 @@
+**LeBron James’ path to NBA ownership ‘less likely’ as partners pass on expansion bid: Sources**\
+`LeBron James has repeatedly made it clear that he wants to own an NBA team in Las Vegas. That dream is looking more unlikely now.`\
+https://nytimes.com/athletic/7129770/2026/03/18/lebron-james-nba-expansion-ownership-vegas-seattle-bid/
+
 **Here’s What Happened in the War in the Middle East on Wednesday**\
 `A day of strikes on energy facilities and testimony in Washington to members of Congress.`\
 https://nytimes.com/2026/03/18/world/middleeast/iran-war-recap-middle-east.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/18/world/middleeast/iran-war-us-israel-strikes.html
 **Women in California Politics See Their Own Stories in Chavez Accusations**\
 `“I’ve seen the repercussions when you speak out against a man in power, and you are blamed for the repercussions,” a Los Angeles City Council member said.`\
 https://nytimes.com/2026/03/18/us/women-california-politics-cesar-chavez.html
-
-**FEMA to Relaunch Climate Resiliency Grants, Complying With Court Order**\
-`A judge ruled in December that the agency could not cancel a program that had helped states invest billions of dollars in disaster readiness.`\
-https://nytimes.com/2026/03/18/climate/fema-bric-grants-relaunch.html
 
