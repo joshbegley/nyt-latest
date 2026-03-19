@@ -1,3 +1,7 @@
+**Nebraska is no longer the only men's Power 4 program without a March Madness win**\
+`The win gave Nebraska a school record 27, breaking a tie with the Danny Nee-coached team of 1990-91.`\
+https://nytimes.com/athletic/7131832/2026/03/19/nebraska-troy-ncaa-touranment-first-win/
+
 **The Latest Toy to Jump to the Big Screen: Labubu**\
 `Pop Mart and Sony announced on Thursday that they were developing a feature film about the fuzzy trinkets. “It’s completely ruthless marketing,” one expert said.`\
 https://nytimes.com/2026/03/19/movies/labubu-movie-paul-king.html

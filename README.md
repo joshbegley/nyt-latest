@@ -1,3 +1,7 @@
+**The Planet’s Warning Signs Are Flashing Red**\
+`Climate scientists say many of the effects of climate change are happening faster than they predicted, the latest on the war in Iran and more news.`\
+https://nytimes.com/2026/03/19/climate/the-planets-warning-signs-climate-change.html
+
 **The Latest Toy to Jump to the Big Screen: Labubu**\
 `Pop Mart and Sony announced on Thursday that they were developing a feature film about the fuzzy trinkets. “It’s completely ruthless marketing,” one expert said.`\
 https://nytimes.com/2026/03/19/movies/labubu-movie-paul-king.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7129315/2026/03/19/mls-sprint-season-details-2027-s
 **Trump Administration Surveys Cornell Employees About Antisemitism**\
 `The Equal Employment Opportunity Commission sent a questionnaire to workers asking for detailed information about potential civil rights violations at the Ivy League school.`\
 https://nytimes.com/2026/03/19/us/trump-administration-cornell-employees-antisemitism-eeoc.html
-
-**Who owns Jack Hughes' golden-goal puck and what's it worth? We explain**\
-`Where is the puck, who owns it , how much is it worth and does Hughes still want it back? We answer these questions and more. `\
-https://nytimes.com/athletic/7131673/2026/03/19/jack-hughes-puck-controversy-winter-olympics-nhl/
 
