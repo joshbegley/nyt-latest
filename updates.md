@@ -1,3 +1,7 @@
+**NBA Awards Watch: Hawks are red-hot and have two Most Improved Player contenders**\
+`Awards season could be a family affair, with SGA, Nickeil Alexander-Walker's cousin, possibly on his way to another MVP.`\
+https://nytimes.com/athletic/7121858/2026/03/19/nba-awards-jalen-johnson-nickeil-alexander-walker-hawks/
+
 **We almost lost college basketball. Then we started paying players**\
 `It wasn't long ago men's college hoops felt doomed. I'm here to tell you it has never been better.`\
 https://nytimes.com/athletic/7126636/2026/03/19/march-madness-college-basketball-nil-popularity/
