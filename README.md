@@ -1,3 +1,11 @@
+**Craig Counsell to Cubs hitting coaches: Don’t mess with Moisés Ballesteros**\
+`Cubs are trying to temper expectations around the prospect Ballesteros, who simply does not stop hitting.`\
+https://nytimes.com/athletic/7132376/2026/03/19/craig-counsell-cubs-moises-ballesteros/
+
+**Is Russian Oil Headed for Cuba, Testing the U.S. Blockade?**\
+`A Russian oil tanker is being closely tracked to see if it will challenge the Trump administration’s blockade on Cuba.`\
+https://nytimes.com/2026/03/19/world/americas/cuba-russia-oil-blockade.html
+
 **He Trolls the Left. What Does He Actually Mean?**\
 `Backlash against Jeremy Carl’s incendiary tweets and language caused him to withdraw his nomination for a State Department post. On “Interesting Times,” Ross Douthat challenges him on his use of phrases like “cultural genocide” and “great replacement.”`\
 https://nytimes.com/video/opinion/100000010775490/he-trolls-the-left-what-does-he-actually-mean.html
@@ -24,17 +32,9 @@ https://nytimes.com/2026/03/19/technology/jeff-bezos-ai-fund-project-prometheus.
 
 **Trump’s Handpicked Arts Commission Approves Gold Coin With His Face on It**\
 `Many of America’s founders were fiercely against taking steps that would make its government officials appear like kings, and that included featuring them on the country’s coins.`\
-https://nytimes.com/2026/03/19/us/politics/arts-commission-trump-coin.html
+https://nytimes.com/2026/03/19/us/politics/trump-gold-coin.html
 
 **Cesar Chavez Avenue May Soon Be Gone. Yet to Be Confronted: His Legacy.**\
 `After the revelations of sex abuse, the public is left to make sense of the labor leader’s work and life.`\
 https://nytimes.com/2026/03/19/us/politics/cesar-chavez-memorials-renaming.html
-
-**White House Seeks to Reassure Americans on Rising Costs**\
-`Also, March Madness begins. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2026/03/19/briefing/white-house-oil-prices-cuba-electricity.html
-
-**Giants' Hayden Birdsong to undergo Tommy John surgery**\
-`The 24-year-old righty was already an unlikely candidate to make the major-league roster. Now he will miss the entire 2026 season.`\
-https://nytimes.com/athletic/7132272/2026/03/19/sf-giants-hayden-birdsong-tommy-john-surgery/
 
