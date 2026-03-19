@@ -1,3 +1,11 @@
+**The Downfall of a Food Icon**\
+`We look at how Noma, the restaurant that revolutionized fine dining, became a byword for toxic kitchen culture.`\
+https://nytimes.com/2026/03/19/world/noma-restaurant-iran-oil-ozempic.html
+
+**How injuries to Bennett Sousa and Josh Hader will alter Astros' bullpen plans**\
+`Sousa seemed a lock for both the Opening Day roster until he injured his left oblique in a Grapefruit League game.`\
+https://nytimes.com/athletic/7132096/2026/03/19/astros-bennett-sousa-josh-hader-injuries-bullpen-plans/
+
 **Islanders announce relocation of AHL affiliate from Bridgeport to Hamilton**\
 `The team will play out of the TD Coliseum starting the 2026-27 season and the move still awaits approval from the AHL's Board of Governors.`\
 https://nytimes.com/athletic/7132223/2026/03/19/islanders-bridgeport-hamilton-ahl-affiliate-relocation-team/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7131897/2026/03/19/fifa-israel-west-bank-fifa/
 **‘The Bachelorette’ Season Canceled After Leaked Video of Assault**\
 `Taylor Frankie Paul, who was set to star in the TV show, had pleaded guilty to aggravated assault after an encounter with her partner in 2023.`\
 https://nytimes.com/2026/03/19/arts/television/bachelorette-canceled-taylor-frankie-paul-video.html
-
-**Hecklers Roast My $800 Stroller Wagon. After 650 Miles, I Still Love It.**\
-`After pushing through snow, sand, and mud, my family of four has come to view the luxury stroller wagon as a necessity.`\
-https://nytimes.com/wirecutter/reviews/veer-cruiser-xl-stroller-wagon-review/
-
-**Student Freed From ICE Detention Worries About Those Left Behind**\
-`Dylan Lopez Contreras, the first known New York City public school student to be taken by federal agents last year, said he would “continue fighting” for migrants who remained in detention.`\
-https://nytimes.com/2026/03/19/nyregion/nyc-high-school-student-ice-freed.html
 
