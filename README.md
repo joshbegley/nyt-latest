@@ -30,7 +30,7 @@ https://nytimes.com/athletic/7129422/2026/03/18/robert-parish-book-joe-mazzulla-
 `The Argentina superstar wasted no time in recording another slice of history`\
 https://nytimes.com/athletic/7129755/2026/03/18/lionel-messi-concacaf-champions-cup-inter-miami-900/
 
-**Jim Irsay collection sells for more than $94 million at auction**\
+**Jim Irsay Collection sells for more than $94 million at auction**\
 `From famous guitars to Secretariat's Triple Crown saddle, the Irsay collection featured an incredible variety of historic items. `\
 https://nytimes.com/athletic/7129744/2026/03/18/jim-irsay-collection-auctions-total-94-million-in-sales-set-28-records/
 
