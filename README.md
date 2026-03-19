@@ -22,7 +22,7 @@ https://nytimes.com/athletic/7128059/2026/03/19/chelsea-huddle-pre-match-ritual/
 `The Dutch legend talks punditry, connecting with players, and his own coaching ambitions — all while covering a huge Champions League tie`\
 https://nytimes.com/athletic/7128219/2026/03/19/clarence-seedorf-interview-amazon/
 
-**What happens now to the winners' medals and the trophy? Answering unepected AFCON final questions**\
+**What happens now to the winners' medals and the trophy? Answering unexpected AFCON final questions**\
 `Also: what happens to the land the Senegal players were given by their government? And what about bets placed on the final?`\
 https://nytimes.com/athletic/7128680/2026/03/19/afcon-final-senegal-morocco-questions/
 
