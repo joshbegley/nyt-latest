@@ -1,3 +1,19 @@
+**The Long Farewell to Mark Zuckerberg’s Metaverse**\
+`Meta announced changes that effectively leave Mr. Zuckerberg’s vision of an immersive digital world based in virtual reality only on life support.`\
+https://nytimes.com/2026/03/19/technology/the-long-farewell-to-mark-zuckerbergs-metaverse.html
+
+**How to watch Canadiens vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Montreal Canadiens play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7131223/2026/03/19/canadiens-vs-red-wings-stream-how-to-watch-march-19/
+
+**How to watch Islanders vs. Senators: Time, TV, streaming**\
+`Find out how to watch the New York Islanders play the Ottawa Senators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7131218/2026/03/19/islanders-vs-senators-stream-how-to-watch-march-19/
+
+**How to watch Jets vs. Bruins: Time, TV, streaming**\
+`Find out how to watch the Winnipeg Jets play the Boston Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7131216/2026/03/19/jets-vs-bruins-stream-how-to-watch-march-19/
+
 **Pentagon Seeks $200 Billion to Fund Iran War**\
 `The request, which the White House has not submitted to Congress, is already encountering some resistance.`\
 https://nytimes.com/2026/03/19/world/middleeast/pentagon-200-billion-iran-war-funding-hegseth.html

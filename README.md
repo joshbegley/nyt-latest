@@ -1,3 +1,19 @@
+**Father of a Palestinian woman killed with three others during a missile attack expresses shock.**\
+`The victims are the first Palestinians in the Israeli-occupied West Bank to be killed as a result of the Middle East war.`\
+https://nytimes.com/live/2026/03/19/world/iran-war-news-trump-oil/palestinian-women-killed-salon-missile-strike
+
+**Trey Yesavage's shoulder injury another hit to Blue Jays' rotation**\
+`Yesavage is a long-term piece and one of the few young future building blocks on the the Jays’ current roster.`\
+https://nytimes.com/athletic/7131164/2026/03/19/trey-yesavage-injury-il-blue-jays-season-start/
+
+**How to watch Samford vs. Southern women's basketball: First Four Time, TV, streaming**\
+`Find out how to watch the Samford Bulldogs play the Southern Jaguars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7131248/2026/03/19/samford-vs-southern-stream-how-to-watch-march-19/
+
+**Extended Mideast Conflict Will Drag on Trade and Growth, W.T.O. Warns**\
+`The trade organization said that a slowdown in trade in 2026 could become even more extreme if the war in the Middle East persists.`\
+https://nytimes.com/2026/03/19/business/economy/mideast-conflict-trade-wto.html
+
 **The Long Farewell to Mark Zuckerberg’s Metaverse**\
 `Meta announced changes that effectively leave Mr. Zuckerberg’s vision of an immersive digital world based in virtual reality only on life support.`\
 https://nytimes.com/2026/03/19/technology/the-long-farewell-to-mark-zuckerbergs-metaverse.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/19/world/middleeast/pentagon-200-billion-iran-war-fu
 **Iran War Narrows Fed’s Path to a Rate Cut**\
 `Jerome H. Powell, the Fed chair, wants to keep the central bank’s policy options open as officials stare down another economic shock that threatens to stoke inflation and crimp growth.`\
 https://nytimes.com/2026/03/19/business/fed-rate-cut-iran-war.html
-
-**How to watch Magic vs. Hornets: Time, TV, streaming**\
-`Find out how to watch the Orlando Magic play the Charlotte Hornets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7131152/2026/03/19/magic-vs-hornets-stream-how-to-watch-march-19/
-
-**How to watch Pistons vs. Wizards: Time, TV, streaming**\
-`Find out how to watch the Detroit Pistons play the Washington Wizards, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7131150/2026/03/19/pistons-vs-wizards-stream-how-to-watch-march-19/
-
-**Why Iran’s Attack on an Energy Hub in Qatar Spooked Investors**\
-`Lasting damage to Ras Laffan Industrial City, the world’s largest liquefied natural gas export plant, would have big consequences for the global energy market.`\
-https://nytimes.com/2026/03/19/world/middleeast/qatar-natural-gas-attacks-ras-laffan.html
-
-**Surprising Penguins fueled by Erik Karlsson's brilliance, haunted by Kris Letang's decay**\
-`The two big-name Penguins defensemen are moving in dramatically different directions.`\
-https://nytimes.com/athletic/7130285/2026/03/19/penguins-erik-karlsson-kris-letang-nhl-playoff-race/
 
