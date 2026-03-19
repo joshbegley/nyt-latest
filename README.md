@@ -1,3 +1,7 @@
+**Pentagon Seeks $200 Billion to Fund Iran War**\
+`The request, which the White House has not submitted to Congress, is already encountering some resistance.`\
+https://nytimes.com/2026/03/19/world/middleeast/pentagon-200-billion-iran-war-funding-hegseth.html
+
 **Iran War Narrows Fed’s Path to a Rate Cut**\
 `Jerome H. Powell, the Fed chair, wants to keep the central bank’s policy options open as officials stare down another economic shock that threatens to stoke inflation and crimp growth.`\
 https://nytimes.com/2026/03/19/business/fed-rate-cut-iran-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7130951/2026/03/19/maple-leafs-prospect-brandon-buh
 **Mapping two days of attacks on Gulf energy sites.**\
 `By Lauren Leatherby`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/mapping-two-days-of-attacks-on-gulf-energy-sites
-
-**Dortmund interested in re-signing Sancho**\
-`Sancho, who is currently on-loan at Aston Villa from Manchester United, will be out of contract in June.`\
-https://nytimes.com/athletic/7131044/2026/03/19/jadon-sancho-borussia-dortmund-transfer-interest/
 
