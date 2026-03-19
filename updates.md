@@ -1,3 +1,11 @@
+**MLS reveals details of its 2027 sprint season before calendar flips**\
+`MLS is due to align with the European calendar in the summer of 2027. This is how the league will fill the first half of the year`\
+https://nytimes.com/athletic/7129315/2026/03/19/mls-sprint-season-details-2027-schedule/
+
+**Trump Administration Surveys Cornell Employees About Antisemitism**\
+`The Equal Employment Opportunity Commission sent a questionnaire to workers asking for detailed information about potential civil rights violations at the Ivy League school.`\
+https://nytimes.com/2026/03/19/us/trump-administration-cornell-employees-antisemitism-eeoc.html
+
 **Who owns Jack Hughes' golden-goal puck and what's it worth? We explain**\
 `Where is the puck, who owns it , how much is it worth and does Hughes still want it back? We answer these questions and more. `\
 https://nytimes.com/athletic/7131673/2026/03/19/jack-hughes-puck-controversy-winter-olympics-nhl/
