@@ -1,3 +1,7 @@
+**UFC's White House bouts to be sanctioned, regulated by ABC, not D.C. commission**\
+`The UFC worked with the D.C. Combat Sports Commission for its previous two Washington events, which were held at Capital One Arena.`\
+https://nytimes.com/athletic/7129747/2026/03/19/ufc-white-house-dc-commission-regulations-sanctioned/
+
 **Arkansas, St. John’s lead public betting, putting sportsbooks on upset watch**\
 `Who are people betting on to win it all? What are the biggest bets going into the tournament? We got you covered on the betting action.`\
 https://nytimes.com/athletic/7129466/2026/03/19/ncaa-tournament-betting-duke-florida-michigan-arkansas-alabama-high-point/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7124950/2026/03/19/chelsea-goalkeepers-mike-penders
 **How to watch the 2026 Los Angeles Angels season: TV info for Mike Trout's team**\
 `Here's how to watch Mike Trout and the Halos amid regional sports network changes and national TV updates.`\
 https://nytimes.com/athletic/7126194/2026/03/19/los-angeles-angels-mike-trout-how-to-watch-2026/
-
-**Noahkai Banks deserves the right to decide his own international future**\
-`The 18-year-old is eligible to play for both the U.S. and Germany and faces a tough decision amid a sea of outside noise`\
-https://nytimes.com/athletic/7130238/2026/03/19/usmnt-world-cup-noahkai-banks-germany-pochettino-donovan/
 

@@ -1,3 +1,7 @@
+**Arkansas, St. John’s lead public betting, putting sportsbooks on upset watch**\
+`Who are people betting on to win it all? What are the biggest bets going into the tournament? We got you covered on the betting action.`\
+https://nytimes.com/athletic/7129466/2026/03/19/ncaa-tournament-betting-duke-florida-michigan-arkansas-alabama-high-point/
+
 **Trump and Iran Won’t Leave the Agenda as European Leaders Meet**\
 `A gathering in Brussels was meant to concentrate on jump-starting the E.U. economy. Instead, the fallout of the war in the Middle East is front and center.`\
 https://nytimes.com/2026/03/19/world/europe/eu-leaders-summit-iran-gas.html
