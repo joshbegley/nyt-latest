@@ -1,3 +1,7 @@
+**Iran War Narrows Fed’s Path to a Rate Cut**\
+`Jerome H. Powell, the Fed chair, wants to keep the central bank’s policy options open as officials stare down another economic shock that threatens to stoke inflation and crimp growth.`\
+https://nytimes.com/2026/03/19/business/fed-rate-cut-iran-war.html
+
 **How to watch Magic vs. Hornets: Time, TV, streaming**\
 `Find out how to watch the Orlando Magic play the Charlotte Hornets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7131152/2026/03/19/magic-vs-hornets-stream-how-to-watch-march-19/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/mapping-two-days-
 **Dortmund interested in re-signing Sancho**\
 `Sancho, who is currently on-loan at Aston Villa from Manchester United, will be out of contract in June.`\
 https://nytimes.com/athletic/7131044/2026/03/19/jadon-sancho-borussia-dortmund-transfer-interest/
-
-**Central Banks Brace for Faster Inflation as Energy Prices Surge**\
-`Traders now expect Europe’s central bankers to raise rates this year to address a sharp increase in inflation because of higher energy prices.`\
-https://nytimes.com/2026/03/19/business/economy/boe-ecb-interest-rates-inflation.html
 

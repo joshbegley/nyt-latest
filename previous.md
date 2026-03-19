@@ -10,7 +10,7 @@ https://nytimes.com/athletic/7131150/2026/03/19/pistons-vs-wizards-stream-how-to
 `Lasting damage to Ras Laffan Industrial City, the world’s largest liquefied natural gas export plant, would have big consequences for the global energy market.`\
 https://nytimes.com/2026/03/19/world/middleeast/qatar-natural-gas-attacks-ras-laffan.html
 
-**Surprising Penguins fueled by Erik Karlsson’s brilliance, haunted by Kris Letang's decay**\
+**Surprising Penguins fueled by Erik Karlsson's brilliance, haunted by Kris Letang's decay**\
 `The two big-name Penguins defensemen are moving in dramatically different directions.`\
 https://nytimes.com/athletic/7130285/2026/03/19/penguins-erik-karlsson-kris-letang-nhl-playoff-race/
 

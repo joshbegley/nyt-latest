@@ -1,3 +1,7 @@
+**Surprising Penguins fueled by Erik Karlsson's brilliance, haunted by Kris Letang's decay**\
+`The two big-name Penguins defensemen are moving in dramatically different directions.`\
+https://nytimes.com/athletic/7130285/2026/03/19/penguins-erik-karlsson-kris-letang-nhl-playoff-race/
+
 **How to watch Magic vs. Hornets: Time, TV, streaming**\
 `Find out how to watch the Orlando Magic play the Charlotte Hornets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7131152/2026/03/19/magic-vs-hornets-stream-how-to-watch-march-19/
