@@ -1,3 +1,11 @@
+**Submit your Blackhawks mailbag questions**\
+`What questions do you have about the Blackhawks? Submit them here and Scott Powers and Mark Lazerus may answer them in an upcoming mailbag.`\
+https://nytimes.com/athletic/7131881/2026/03/19/submit-your-blackhawks-mailbag-questions/
+
+**Five New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2026/03/19/books/review/new-recommended-books.html
+
 **Bears' Caleb Williams pursuing trademark for 'Iceman' moniker**\
 `The trademark request seeks to use the nickname and logos on eyewear, posters, baggage, water bottles, apparel and sporting goods.`\
 https://nytimes.com/athletic/7131801/2026/03/19/caleb-williams-iceman-trademark-bears/
@@ -25,8 +33,4 @@ https://nytimes.com/athletic/7131761/2026/03/19/pennsylvania-vs-illinois-stream-
 **Alabama preparing to play without Holloway after arrest, Oats says**\
 `Oats said he does not know if or when Holloway could return later in the NCAA Tournament.`\
 https://nytimes.com/athletic/7131759/2026/03/19/aden-holloway-alabama-arrest-ncaa-tournament-nate-oats/
-
-**FIFA rules women's teams must have a woman as head or assistant coach**\
-`In competitions under the football governing body's remit, each team must have at least two female staff on their bench. `\
-https://nytimes.com/athletic/7130675/2026/03/19/fifa-womens-coach-rules/
 

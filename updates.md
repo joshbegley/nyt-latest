@@ -1,3 +1,11 @@
+**Submit your Blackhawks mailbag questions**\
+`What questions do you have about the Blackhawks? Submit them here and Scott Powers and Mark Lazerus may answer them in an upcoming mailbag.`\
+https://nytimes.com/athletic/7131881/2026/03/19/submit-your-blackhawks-mailbag-questions/
+
+**Five New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2026/03/19/books/review/new-recommended-books.html
+
 **Is it time for Spurs to play Micky van de Ven at left-back like the Netherlands do?**\
 `Defensively, the role plays to his strengths and it would allow Kevin Danso to remain after impressing against Liverpool`\
 https://nytimes.com/athletic/7128108/2026/03/19/van-de-ven-leftback-tottenham-netherlands/
