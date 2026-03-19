@@ -1,8 +1,16 @@
+**High Point's Flynn Clayman after upset of Wisconsin: 'We played somebody now'**\
+`After his Panthers upset the Badgers in the NCAA Tournament, coach Flynn Clayman called out those who question mid-majors like High Point.`\
+https://nytimes.com/athletic/7132212/2026/03/19/high-point-wisconsin-flynn-clayman-upset-ncaa/
+
+**Thomas Gentille, Artist Who Made Wearable Sculpture, Dies at 89**\
+`He was a master jeweler, but his pieces looked more like miniature contemporary artworks than anything you’d find at Cartier.`\
+https://nytimes.com/2026/03/19/arts/design/thomas-gentille-dead.html
+
 **Democrats Demand Answers on Jared Kushner’s Mideast Business Dealings**\
 `Two prominent lawmakers wrote to the White House and Mr. Kushner after The New York Times revealed private fund-raising efforts by President Trump’s envoy in the region.`\
 https://nytimes.com/2026/03/19/business/jared-kushner-mideast-private-equity.html
 
-**Student Loan Office Leaves the Education Department**\
+**Student Loan Office to Leave the Education Department**\
 `The office will move to the Treasury Department as the Trump administration slowly dismantles the agency overseeing federal education policy.`\
 https://nytimes.com/2026/03/19/us/politics/student-loan-office-education-department.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/19/nyregion/nyc-high-school-student-ice-freed.html
 **Five things about Panthers LB Devin Lloyd: He plays one speed — fast**\
 `"You can’t help but be optimistic for the future and what we’re gonna do on Sundays," Lloyd said Thursday.`\
 https://nytimes.com/athletic/7132016/2026/03/19/panthers-devin-lloyd-defense-free-agency/
-
-**Italy's espresso machine, Ohtani jersey, highlight WBC auctions**\
-`Key items from the World Baseball Classic are now available to purchase through MLB auctions. `\
-https://nytimes.com/athletic/7131813/2026/03/19/italy-wbc-espresso-machine-ohtani-jersey-auction/
-
-**When could Cade Cunningham return? Explaining collapsed lung recovery**\
-`Detroit’s two-week re-evaluation timeline fits the typical treatment for a collapsed lung, but recovery could take many forms.`\
-https://nytimes.com/athletic/7131740/2026/03/19/cade-cunningham-collapsed-lung-injury-explained/
 
