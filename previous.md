@@ -1,3 +1,11 @@
+**F.B.I. Investigates Joe Kent for Possible Intelligence Leak**\
+`The F.B.I. has opened an inquiry into Mr. Kent, who was the top U.S. counterterrorism official, according to people familiar with the situation. The investigation is said to predate his resignation this week over the Iran war.`\
+https://nytimes.com/2026/03/18/us/politics/fbi-joe-kent-intelligence-leak.html
+
+**Newsmax Executive Named as Voice of America’s Deputy**\
+`The appointment raised concerns that the Trump administration would try to erode the news group’s independence after picking a deputy who had been at conservative news channels for around 20 years.`\
+https://nytimes.com/2026/03/18/us/politics/voa-deputy-director-wallace.html
+
 **California Sex Abuse Laws Could Put U.F.W. at Financial Risk**\
 `Cesar Chavez’s labor union, United Farm Workers, could still face lawsuits for his sex abuse of girls and women, experts say.`\
 https://nytimes.com/2026/03/18/us/california-sex-abuse-laws-ufw-financial-risk.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7129899/2026/03/18/ncaa-basketball-tournament-expan
 **First Four: Prairie View A&M beats Lehigh for first NCAA Tournament win**\
 `Prairie View A&M trailed by two points at halftime, but clamped down defensively and found a rhythm offensively in the second half.`\
 https://nytimes.com/athletic/7129676/2026/03/18/march-madness-2026-mens-first-four-score-results/
-
-**Bondi Doesn’t Commit to Deposition With House Panel Over Epstein Files**\
-`Under the rules of the oversight committee, Attorney General Pam Bondi received a subpoena requiring her to appear. The panel’s Republican chairman said he sent the summons reluctantly.`\
-https://nytimes.com/2026/03/18/us/politics/pam-bondi-house-oversight-epstein-files.html
-
-**At Arkansas, John Calipari sounds like himself again**\
-`Let Calipari flex. The Razorbacks enter the NCAA Tournament averaging 89.9 points per game and playing a gorgeous brand of basketball.`\
-https://nytimes.com/athletic/7129844/2026/03/18/john-calipari-arkansas-march-madness-ncaa-tournament-rebirth/
 

@@ -1,3 +1,11 @@
+**F.B.I. Investigates Joe Kent for Possible Intelligence Leak**\
+`The F.B.I. has opened an inquiry into Mr. Kent, who was the top U.S. counterterrorism official, according to people familiar with the situation. The investigation is said to predate his resignation this week over the Iran war.`\
+https://nytimes.com/2026/03/18/us/politics/fbi-joe-kent-intelligence-leak.html
+
+**Newsmax Executive Named as Voice of America’s Deputy**\
+`The appointment raised concerns that the Trump administration would try to erode the news group’s independence after picking a deputy who had been at conservative news channels for around 20 years.`\
+https://nytimes.com/2026/03/18/us/politics/voa-deputy-director-wallace.html
+
 **California Sex Abuse Laws Could Put U.F.W. at Financial Risk**\
 `Cesar Chavez’s labor union, United Farm Workers, could still face lawsuits for his sex abuse of girls and women, experts say.`\
 https://nytimes.com/2026/03/18/us/california-sex-abuse-laws-ufw-financial-risk.html
