@@ -1,3 +1,7 @@
+**How to watch Siena vs. Duke men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Siena Saints play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7130637/2026/03/19/siena-vs-duke-stream-how-to-watch-march-19/
+
 **How to watch High Point vs. Wisconsin men's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the High Point Panthers play the Wisconsin Badgers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7130626/2026/03/19/high-point-vs-wisconsin-stream-how-to-watch-march-19/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7130315/2026/03/19/lebron-james-lakers-win-seven-st
 **TAFC: Slot's relief, more AFCON fallout and Messi scores 900th goal**\
 `The Champions League quarter-finals are set, but it is sharing the limelight with big football stories around the world`\
 https://nytimes.com/athletic/7130456/2026/03/19/slot-afcon-messi-tafc/
-
-**Seahawks post-free-agency mailbag: Could John Schneider make a splash trade?**\
-`Readers also had plenty of questions about why Ken Walker III left Seattle and whom the Seahawks might target in the draft.`\
-https://nytimes.com/athletic/7129350/2026/03/19/seahawks-free-agency-nfl-draft-mailbag/
 
