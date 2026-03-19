@@ -1,3 +1,11 @@
+**Auston Matthews undergoes MCL surgery one week after knee-on-knee hit**\
+`After Thursday's surgery, Matthews will face an approximately 12-week recovery time.`\
+https://nytimes.com/athletic/7132319/2026/03/19/auston-matthews-surgery-maple-leafs-injury-recovery/
+
+**Horror Novel ‘Shy Girl’ Canceled Over Suspected A.I. Use**\
+`Its publisher, Hachette, will not release the novel in the United States and will discontinue its U.K. edition, citing its commitment to “original creative expression and storytelling.”`\
+https://nytimes.com/2026/03/19/books/shy-girl-book-ai.html
+
 **Trump Says He Won’t Send Troops to Iran But Leaves Wiggle Room**\
 `The president was cagey about his plans for Iran. He confirmed the Pentagon was seeking $200 billion to support a protracted war effort while also claiming it would be over soon.`\
 https://nytimes.com/2026/03/19/world/middleeast/trump-iran-us-troops.html
