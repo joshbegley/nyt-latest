@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Mideast Looms Over Japanese Leader’s First White House Summit**\
+``\
+https://nytimes.com/live/2026/03/19/us/trump-news
+
 **How to watch Siena vs. Duke men's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Siena Saints play the Duke Blue Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7130637/2026/03/19/siena-vs-duke-stream-how-to-watch-march-19/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7128754/2026/03/19/yankees-opening-day-roster-bullp
 **LeBron James just about perfect in another win for red-hot Lakers**\
 `The 41-year-old went 13-for-14 from the field, his most efficient shooting performance since a 2013 game against the Charlotte Bobcats.`\
 https://nytimes.com/athletic/7130315/2026/03/19/lebron-james-lakers-win-seven-straight/
-
-**TAFC: Slot's relief, more AFCON fallout and Messi scores 900th goal**\
-`The Champions League quarter-finals are set, but it is sharing the limelight with big football stories around the world`\
-https://nytimes.com/athletic/7130456/2026/03/19/slot-afcon-messi-tafc/
 

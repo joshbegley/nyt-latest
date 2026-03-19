@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Mideast Looms Over Japanese Leader’s First White House Summit**\
+``\
+https://nytimes.com/live/2026/03/19/us/trump-news
+
 **How to watch Siena vs. Duke men's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Siena Saints play the Duke Blue Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7130637/2026/03/19/siena-vs-duke-stream-how-to-watch-march-19/
