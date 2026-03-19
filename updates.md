@@ -1,3 +1,19 @@
+**How to navigate FPL’s blank gameweek with only free transfers**\
+`It's more important to own quality over quantity in a blank gameweek. If you have the core template players, that can be enough to carry you`\
+https://nytimes.com/athletic/7127893/2026/03/19/fantasy-premier-leagues-fpl-tips-blank-gameweek-31/
+
+**Newcastle have a sole purpose to their season now. Can they achieve it?**\
+`Newcastle are out of each cup competition and have one goal for the season — securing European football for the next campaign`\
+https://nytimes.com/athletic/7128447/2026/03/19/newcastle-barcelona-analysis-european-qualification-premier-league/
+
+**Chelsea's huddle and pre-match rituals in sport: Psychological weapon or silly gimmick?**\
+`Chelsea's huddle has drawn a lot of debate. So what is the point of it and other pre-match rituals? Sarah Shephard explains`\
+https://nytimes.com/athletic/7128059/2026/03/19/chelsea-huddle-pre-match-ritual/
+
+**What happens now to the winners' medals and the trophy? Answering unepected AFCON final questions**\
+`Also: what happens to the land the Senegal players were given by their government? And what about bets placed on the final?`\
+https://nytimes.com/athletic/7128680/2026/03/19/afcon-final-senegal-morocco-questions/
+
 **Behind the scenes at Amazon with Seedorf: 'It’s about being fair. Don't be in a space of polemics'**\
 `The Dutch legend talks punditry, connecting with players, and his own coaching ambitions — all while covering a huge Champions League tie`\
 https://nytimes.com/athletic/7128219/2026/03/19/clarence-seedorf-interview-amazon/

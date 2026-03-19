@@ -1,6 +1,22 @@
+**How to navigate FPL’s blank gameweek with only free transfers**\
+`It's more important to own quality over quantity in a blank gameweek. If you have the core template players, that can be enough to carry you`\
+https://nytimes.com/athletic/7127893/2026/03/19/fantasy-premier-leagues-fpl-tips-blank-gameweek-31/
+
+**Newcastle have a sole purpose to their season now. Can they achieve it?**\
+`Newcastle are out of each cup competition and have one goal for the season — securing European football for the next campaign`\
+https://nytimes.com/athletic/7128447/2026/03/19/newcastle-barcelona-analysis-european-qualification-premier-league/
+
+**Chelsea's huddle and pre-match rituals in sport: Psychological weapon or silly gimmick?**\
+`Chelsea's huddle has drawn a lot of debate. So what is the point of it and other pre-match rituals? Sarah Shephard explains`\
+https://nytimes.com/athletic/7128059/2026/03/19/chelsea-huddle-pre-match-ritual/
+
 **Behind the scenes at Amazon with Seedorf: 'It’s about being fair. Don't be in a space of polemics'**\
 `The Dutch legend talks punditry, connecting with players, and his own coaching ambitions — all while covering a huge Champions League tie`\
 https://nytimes.com/athletic/7128219/2026/03/19/clarence-seedorf-interview-amazon/
+
+**What happens now to the winners' medals and the trophy? Answering unepected AFCON final questions**\
+`Also: what happens to the land the Senegal players were given by their government? And what about bets placed on the final?`\
+https://nytimes.com/athletic/7128680/2026/03/19/afcon-final-senegal-morocco-questions/
 
 **The Alternative Premier League Table: No 31 – How kick-off time impacts your team**\
 `Our weekly top-flight examination looks at how teams and players get on in different time slots  `\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7129333/2026/03/19/enzo-fernandez-chelsea-analysis-
 **The New York Times in Print for Thursday, March 19, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/19/todays-new-york-times
-
-**Destroying Lebanon Won’t Defeat Hezbollah**\
-`A failure by Israel to engage with the Lebanese government in the fight against Hezbollah will undermine its own interests.`\
-https://nytimes.com/2026/03/19/opinion/israel-lebanon-iran-hezbollah.html
-
-**Afroman Wins Civil Trial Over Use of Police Raid Footage in His Music Videos**\
-`Seven law enforcement officers had accused the rapper, whose name is Joseph E. Foreman, of causing them “humiliation” by using images from their 2022 raid on his Ohio home in two music videos.`\
-https://nytimes.com/2026/03/19/us/afroman-trial-lemon-cake-verdict.html
-
-**Oil Prices Keep Climbing on Heightened Fears Over Energy Supplies**\
-`Attacks on major energy facilities in Iran and Qatar injected new uncertainty into the outlook for oil and gas prices.`\
-https://nytimes.com/2026/03/19/business/oil-prices-iran-war.html
-
-**The Iran War’s Economic Threat to Europe and Asia**\
-`Inflation and its consequences for growth is a growing concern for countries where memories of the 2022 energy crisis are fresh.`\
-https://nytimes.com/2026/03/19/business/iran-war-fiscal-spending-debt.html
 
