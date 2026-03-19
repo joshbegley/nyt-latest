@@ -1,3 +1,11 @@
+**Cuba Is Going Dark**\
+`Cuba is facing a historic electricity crisis. Blackouts have gotten worse, and on some days the entire island is plunged into near total darkness.`\
+https://nytimes.com/interactive/2026/03/19/world/americas/cuba-blackout-electricity.html
+
+**Galatasaray confirm Lang thumb surgery after Anfield hoardings collision**\
+`The Netherlands international was taken off on a stretcher after a deep cut to his thumb during their Champions League loss to Liverpool.`\
+https://nytimes.com/athletic/7130408/2026/03/19/noa-lang-galatasaray-surgery-osimhen-anfield/
+
 **Iran War Live Updates: Qatar Reports More Attacks on Energy Infrastructure as Oil Prices Rise**\
 `Qatar blamed Tehran for strikes on its natural gas facilities, a day after Iran’s largest natural gas source was hit. The price of oil climbed to $114 a barrel as uncertainty over the war’s impacts on energy supplies grew.`\
 https://nytimes.com/live/2026/03/19/world/iran-war-news-trump-oil

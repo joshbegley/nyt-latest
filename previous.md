@@ -1,3 +1,11 @@
+**Cuba Is Going Dark**\
+`Cuba is facing a historic electricity crisis. Blackouts have gotten worse, and on some days the entire island is plunged into near total darkness.`\
+https://nytimes.com/interactive/2026/03/19/world/americas/cuba-blackout-electricity.html
+
+**Galatasaray confirm Lang thumb surgery after Anfield hoardings collision**\
+`The Netherlands international was taken off on a stretcher after a deep cut to his thumb during their Champions League loss to Liverpool.`\
+https://nytimes.com/athletic/7130408/2026/03/19/noa-lang-galatasaray-surgery-osimhen-anfield/
+
 **A Receipt**\
 `What do you think this image is communicating?`\
 https://nytimes.com/2026/03/19/learning/a-receipt.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/03/19/world/iran-war-news-trump-oil
 **Late Night Tells the Tale of the Dueling Senators**\
 `“Also very funny to describe a duel as being between two consenting adults. You know, because if only one person consents, that’s murder,” said Seth Meyers, host of “Late Night.”`\
 https://nytimes.com/2026/03/19/arts/television/late-night-dueling-senators.html
-
-**Barcelona's Champions League spectacular confirmed it: Raphinha is back, right on time**\
-`Barca manager Hansi Flick has often spoken of Raphinha's importance. Wednesday night brought another clear reason why`\
-https://nytimes.com/athletic/7129860/2026/03/19/barcelona-raphinha-champions-league-newcastle-flick/
-
-**Salah shows he still has the swagger of old and remains a match-winner**\
-`The Egyptian has endured a difficult season but he was heavily involved against Galatasaray, recovering well from a missed penalty`\
-https://nytimes.com/athletic/7129576/2026/03/19/mohamed-salah-liverpool-galatasaray/
 
