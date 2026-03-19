@@ -1,3 +1,7 @@
+**Analysing the Champions League quarter-finals: Star players, top youngsters, trophy favourites**\
+`The Champions League quarter-finals are set, presenting a mouthwatering set of ties. Our experts have their say `\
+https://nytimes.com/athletic/7130652/2026/03/19/champions-league-quarter-finals-analysis-favourites/
+
 **Pistons' Cade Cunningham diagnosed with collapsed lung: Sources**\
 `Cunningham's diagnosis comes as a major blow to a Detroit team already without a key member of its rotation in big man Isaiah Stewart.`\
 https://nytimes.com/athletic/7130859/2026/03/19/cade-cunningham-injury-sidelines-pistons/
@@ -22,7 +26,7 @@ https://nytimes.com/2026/03/19/us/politics/markwayne-mullin-dhs.html
 `Greg Jewett takes a final look at the biggest bullpen value movers in the past week and provides the leverage options for every MLB team.`\
 https://nytimes.com/athletic/7129326/2026/03/19/fantasy-baseball-bullpen-report-stock-up-down-palencia/
 
-**The Unexpected Impacts of High Oil Prices**\
+**The Effects of High Oil Prices**\
 `Our chief economics correspondent, Ben Casselman, breaks down how gasoline prices have responded to the oil crisis in the Persian Gulf, and what is in store for inflation if the price of oil remains above $100 per barrel.`\
 https://nytimes.com/video/business/100000010782158/the-unexpected-impacts-of-high-oil-prices.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7130530/2026/03/19/alex-scott-womens-champions-leag
 **Madrid's Courtois sidelined for at least six weeks with thigh injury**\
 `On Wednesday, Courtois did not expect the issue to be major before tests on Thursday proved otherwise.`\
 https://nytimes.com/athletic/7126646/2026/03/19/thibaut-courtois-injury-real-madrid-news-2026/
-
-**QB Carson Wentz re-signing with Minnesota Vikings**\
-`Wentz will rejoin a quarterback room that includes Kyler Murray and J.J. McCarthy.`\
-https://nytimes.com/athletic/7130754/2026/03/19/minnesota-vikings-carzon-wentz-qb-signed-stays/
 
