@@ -1,3 +1,11 @@
+**Qatar Blames Iran for Attack on Major Energy Hub**\
+`Qatar blamed Iran for an attack on a major energy hub, a day after Iran vowed retaliation for an airstrike on the South Pars field that it said was carried out by Israel.`\
+https://nytimes.com/video/world/middleeast/100000010789342/qatar-iran-attack-energy-hub.html
+
+**Congress’s Renewed Clash Over a Major Surveillance Law, Explained**\
+`A warrantless wiretapping law known as Section 702 is set to expire on April 20 unless Congress votes to extend it. Past cycles have been rocky.`\
+https://nytimes.com/article/section-702-surveillance-law.html
+
 **Mending Ceramics and Slowing Time With the Japanese Art of Kintsugi**\
 `Plus: a guide to Honolulu’s Kaimuki neighborhood, a ski-in, ski-out guesthouse in Austria and more recommendations from T Magazine.`\
 https://nytimes.com/2026/03/19/t-magazine/ceramics-kintsugi-classes.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7130859/2026/03/19/cade-cunningham-injury-sidelines
 **How to watch Hawaii vs. Arkansas men's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Hawaii Rainbow Warriors play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7130914/2026/03/19/hawaii-vs-arkansas-stream-how-to-watch-march-19/
-
-**How to watch North Dakota State vs. Michigan State men's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the North Dakota State Bison play the Michigan State Spartans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7130907/2026/03/19/north-dakota-state-vs-michigan-state-stream-how-to-watch-march-19/
-
-**Saudi Official Warns Patience Is Limited as Iranian Attacks Barrage Kingdom**\
-`Prince Faisal bin Farhan, the foreign minister, said Saudi Arabia was prepared to take military action if necessary, after waves of missile and drone attacks.`\
-https://nytimes.com/2026/03/19/world/middleeast/iran-missiles-saudi-arabia-riyadh-yanbu.html
 

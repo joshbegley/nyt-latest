@@ -1,3 +1,7 @@
+**Mending Ceramics and Slowing Time With the Japanese Art of Kintsugi**\
+`Plus: a guide to Honolulu’s Kaimuki neighborhood, a ski-in, ski-out guesthouse in Austria and more recommendations from T Magazine.`\
+https://nytimes.com/2026/03/19/t-magazine/ceramics-kintsugi-classes.html
+
 **Howie Rose, radio voice of the Mets, says he will retire at season's end**\
 `Rose, 72, has had a decorated career as a New York voice, most notably with the Mets, as well as the Rangers and the Islanders.`\
 https://nytimes.com/athletic/7130842/2026/03/19/howie-rose-mets-retire-radio-media/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7130907/2026/03/19/north-dakota-state-vs-michigan-s
 **Saudi Official Warns Patience Is Limited as Iranian Attacks Barrage Kingdom**\
 `Prince Faisal bin Farhan, the foreign minister, said Saudi Arabia was prepared to take military action if necessary, after waves of missile and drone attacks.`\
 https://nytimes.com/2026/03/19/world/middleeast/iran-missiles-saudi-arabia-riyadh-yanbu.html
-
-**Homeland Security Nominee Clears Key Hurdle**\
-`If confirmed, Senator Markwayne Mullin of Oklahoma would be taking over the department at a sensitive moment.`\
-https://nytimes.com/2026/03/19/us/politics/markwayne-mullin-dhs.html
 

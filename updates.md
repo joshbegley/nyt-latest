@@ -1,3 +1,7 @@
+**Mending Ceramics and Slowing Time With the Japanese Art of Kintsugi**\
+`Plus: a guide to Honolulu’s Kaimuki neighborhood, a ski-in, ski-out guesthouse in Austria and more recommendations from T Magazine.`\
+https://nytimes.com/2026/03/19/t-magazine/ceramics-kintsugi-classes.html
+
 **Howie Rose, radio voice of the Mets, says he will retire at season's end**\
 `Rose, 72, has had a decorated career as a New York voice, most notably with the Mets, as well as the Rangers and the Islanders.`\
 https://nytimes.com/athletic/7130842/2026/03/19/howie-rose-mets-retire-radio-media/
