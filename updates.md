@@ -1,3 +1,11 @@
+**Daniel Palencia cements status as Cubs’ closer with WBC championship moment**\
+`Palencia posted five scoreless appearances for Team Venezuela in the World Baseball Classic, including the final out vs. Team USA.`\
+https://nytimes.com/athletic/7129828/2026/03/18/daniel-palencia-cubs-closer-wbc-championship/
+
+**Messi scores 900th goal as Miami suffers shock Concacaf Champions Cup exit**\
+`The Argentina superstar wasted no time in recording another slice of history`\
+https://nytimes.com/athletic/7129755/2026/03/18/lionel-messi-concacaf-champions-cup-inter-miami-900/
+
 **Analyzing Barack Obama's 2026 men's NCAA Tournament bracket picks**\
 `Continuing an annual tradition he began in 2009, the former president made his NCAA Tournament picks, taking Arizona to win it all.`\
 https://nytimes.com/athletic/7129553/2026/03/18/barack-obama-ncaa-tournament-bracket/
