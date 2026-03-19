@@ -1,4 +1,16 @@
-**‘The Bachelorette’ Season Canceled After Video of Assault Is Released**\
+**Student Loan Office Leaves the Education Department**\
+`The office will move to the Treasury Department as the Trump administration slowly dismantles the agency overseeing federal education policy.`\
+https://nytimes.com/2026/03/19/us/politics/student-loan-office-education-department.html
+
+**Trump’s Reaction to Israeli Strike on Gas Field Exposes Divergent Strategies**\
+`President Trump said he complained to Prime Minister Benjamin Netanyahu of Israel about the attack, which sent energy markets reeling. But Israeli officials said the Americans were informed beforehand.`\
+https://nytimes.com/2026/03/19/us/politics/trump-netanyahu-iran-gas-field-attack.html
+
+**FIFA opts against action over Israeli teams playing in West Bank**\
+`It was determined no action would be taken as “the final legal status of the West Bank remains an unresolved and highly complex matter”.`\
+https://nytimes.com/athletic/7131897/2026/03/19/fifa-israel-west-bank-fifa/
+
+**‘The Bachelorette’ Season Canceled After Leaked Video of Assault**\
 `Taylor Frankie Paul, who was set to star in the TV show, had pleaded guilty to aggravated assault after an encounter with her partner in 2023.`\
 https://nytimes.com/2026/03/19/arts/television/bachelorette-canceled-taylor-frankie-paul-video.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7131740/2026/03/19/cade-cunningham-collapsed-lung-i
 **With a 3-point sharpshooter's first 2 of the year, 12-seed High Point stuns Wisconsin**\
 `High Point, the Big South Conference champions, came back from as many as 10 down to unseat the Big Ten's Badgers.`\
 https://nytimes.com/athletic/7132133/2026/03/19/high-point-wisconsin-ncaa-tournament/
-
-**Review: ‘The Wild Party’ Has a Ball at City Center**\
-`Encores! revisits a Jazz Age tale of debauchery, with showstoppers from Jasmine Amy Rogers, Adrienne Warren, Jordan Donica, Tonya Pinkins and others.`\
-https://nytimes.com/2026/03/19/theater/the-wild-party-review-warren-rogers-pinkins-donica.html
-
-**‘Africa Will Write Its Own History.’ Who Was Patrice Lumumba?**\
-`Remembering the African leader after a Brussels court this week ordered a retired Belgian diplomat stand trial for his 1961 assassination.`\
-https://nytimes.com/2026/03/19/world/africa/patrice-lumumba-assassination-congo-belgium.html
-
-**Does the Perfect Margarita Exist and More Reader Questions**\
-`Becky Hughes answers your most pressing, hyperspecific restaurant questions.`\
-https://nytimes.com/2026/03/19/dining/does-the-perfect-margarita-exist-and-more-reader-questions.html
 

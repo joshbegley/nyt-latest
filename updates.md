@@ -1,3 +1,19 @@
+**Student Loan Office Leaves the Education Department**\
+`The office will move to the Treasury Department as the Trump administration slowly dismantles the agency overseeing federal education policy.`\
+https://nytimes.com/2026/03/19/us/politics/student-loan-office-education-department.html
+
+**Trump’s Reaction to Israeli Strike on Gas Field Exposes Divergent Strategies**\
+`President Trump said he complained to Prime Minister Benjamin Netanyahu of Israel about the attack, which sent energy markets reeling. But Israeli officials said the Americans were informed beforehand.`\
+https://nytimes.com/2026/03/19/us/politics/trump-netanyahu-iran-gas-field-attack.html
+
+**FIFA opts against action over Israeli teams playing in West Bank**\
+`It was determined no action would be taken as “the final legal status of the West Bank remains an unresolved and highly complex matter”.`\
+https://nytimes.com/athletic/7131897/2026/03/19/fifa-israel-west-bank-fifa/
+
+**‘The Bachelorette’ Season Canceled After Leaked Video of Assault**\
+`Taylor Frankie Paul, who was set to star in the TV show, had pleaded guilty to aggravated assault after an encounter with her partner in 2023.`\
+https://nytimes.com/2026/03/19/arts/television/bachelorette-canceled-taylor-frankie-paul-video.html
+
 **‘The Bachelorette’ Season Canceled After Video of Assault Is Released**\
 `Taylor Frankie Paul, who was set to star in the TV show, had pleaded guilty to aggravated assault after an encounter with her partner in 2023.`\
 https://nytimes.com/2026/03/19/arts/television/bachelorette-canceled-taylor-frankie-paul-video.html
