@@ -1,3 +1,11 @@
+**'Fly, Eagle Fly': Jonathan Jones flies himself to Philly to sign contract**\
+`Veteran defensive back, who earned his pilot's license in 2023, made the trek from Charlotte, N.C. to Philadelphia.`\
+https://nytimes.com/athletic/7129866/2026/03/18/eagles-cb-jonathan-jones-pilot/
+
+**Family of Minneapolis Boy Detained by ICE Faces Fast-Track Deportation**\
+`The family of 5-year-old Liam Conejos Ramos, who became a symbol of Trump’s immigration crackdown, is appealing their accelerated removal.`\
+https://nytimes.com/2026/03/18/us/family-minneapolis-boy-ice-deportation.html
+
 **Duke assistant Evan Bradds taking Belmont head coaching job: Source**\
 `Make that three years in a row Duke coach Jon Scheyer is losing at least one assistant coach.`\
 https://nytimes.com/athletic/7130046/2026/03/18/evan-bradds-duke-belmont-head-coach-hiring/
@@ -19,7 +27,7 @@ https://nytimes.com/athletic/7129676/2026/03/18/march-madness-2026-mens-first-fo
 https://nytimes.com/2026/03/18/us/politics/pam-bondi-house-oversight-epstein-files.html
 
 **At Arkansas, John Calipari sounds like himself again**\
-`His player-first sermons sound like a refreshing cultural disruption again, not just a sales pitch from a slick recruiter.`\
+`Let Calipari flex. The Razorbacks enter the NCAA Tournament averaging 89.9 points per game and playing a gorgeous brand of basketball.`\
 https://nytimes.com/athletic/7129844/2026/03/18/john-calipari-arkansas-march-madness-ncaa-tournament-rebirth/
 
 **Daniel Palencia cements status as Cubs’ closer with WBC championship moment**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7129828/2026/03/18/daniel-palencia-cubs-closer-wbc-
 **Analyzing Barack Obama's 2026 men's NCAA Tournament bracket picks**\
 `Continuing an annual tradition he began in 2009, the former president made his NCAA Tournament picks, taking Arizona to win it all.`\
 https://nytimes.com/athletic/7129553/2026/03/18/barack-obama-ncaa-tournament-bracket/
-
-**Mullin Faces Questions About War Zone Observations**\
-`The nominee for homeland security secretary suggested that he had observed war firsthand but declined to provide details, which he said were “classified.”`\
-https://nytimes.com/2026/03/18/us/politics/mullin-smell-war.html
-
-**Iranian Missile Attack Leaves 3 Palestinians Dead in West Bank**\
-`Several others were injured in the strike, which hit a caravan being used as a hair salon in the town of Beit Awwa, according to Palestinian officials.`\
-https://nytimes.com/2026/03/18/world/middleeast/iran-west-bank-missile-strike.html
 
