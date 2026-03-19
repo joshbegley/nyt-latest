@@ -1,3 +1,15 @@
+**How to watch TCU vs. Ohio State men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the TCU Horned Frogs play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7130484/2026/03/19/tcu-vs-ohio-state-stream-how-to-watch-march-19/
+
+**How to watch South Florida vs. Louisville men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the South Florida Bulls play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7130481/2026/03/19/south-florida-vs-louisville-stream-how-to-watch-march-19/
+
+**How to watch Troy vs. Nebraska men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Troy Trojans play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7130479/2026/03/19/troy-vs-nebraska-stream-how-to-watch-march-19/
+
 **Iran football team returns home, two players still in Australia**\
 `Seven members of the travelling party had initially decided to claim humanitarian asylum in Australia after safety concerns. `\
 https://nytimes.com/athletic/7130452/2026/03/19/iran-asian-cup-womens-football-latest/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7124750/2026/03/19/mlb-breakout-candidates-2026/
 **'Fins up': How two LIU basketball superfans built a March Madness phenomenon**\
 `Despite never attending LIU, David Pochapin and Cameron Koffman started the "Fins up" movement, which has become a national sensation.`\
 https://nytimes.com/athletic/7129655/2026/03/19/liu-basketball-march-madness-fins-up-ncaa-tournament/
-
-**The New York Times International Edition in Print for Friday, March 20, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/03/19/todays-new-york-times-international-edition
-
-**I pulled off one of March Madness' biggest upsets. The key: Don’t think like an underdog**\
-`Anthony Evans was the head coach at Norfolk State when the 15-seeded Spartans upset second-seeded Missouri in the 2012 NCAA tournament.`\
-https://nytimes.com/athletic/7128609/2026/03/19/march-madness-upset-norfolk-state-underdog/
-
-**NBA Awards Watch: Hawks are red-hot and have two Most Improved Player contenders**\
-`Awards season could be a family affair, with SGA, Nickeil Alexander-Walker's cousin, possibly on his way to another MVP.`\
-https://nytimes.com/athletic/7121858/2026/03/19/nba-awards-jalen-johnson-nickeil-alexander-walker-hawks/
 
