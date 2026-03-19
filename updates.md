@@ -1,3 +1,11 @@
+**Joseph Duggar of ‘19 Kids and Counting’ Faces Child Sex Abuse Charges**\
+`Mr. Duggar, a former star of the TLC reality show, was arrested in Arkansas and was awaiting extradition to Florida, where the authorities said he molested a 9-year-old girl in 2020.`\
+https://nytimes.com/2026/03/18/us/joseph-duggar-arrest-child-sex-abuse.html
+
+**F.B.I. Investigates Joe Kent, Whose Resignation Over Iran War Angered Trump**\
+`Mr. Kent is under investigation for a possible intelligence leak, according to people familiar with the situation. The inquiry is said to predate his resignation this week as the top U.S. counterterrorism official.`\
+https://nytimes.com/2026/03/18/us/politics/fbi-joe-kent-intelligence-leak.html
+
 **F.B.I. Investigates Joe Kent, Whose Resignation Over Iran War Angered Trump**\
 `The F.B.I. has opened an inquiry into Mr. Kent, who was the top U.S. counterterrorism official, according to people familiar with the situation. The investigation is said to predate his resignation this week over the Iran war.`\
 https://nytimes.com/2026/03/18/us/politics/fbi-joe-kent-intelligence-leak.html
