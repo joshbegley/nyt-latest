@@ -1,3 +1,7 @@
+**Europe’s Leaders Gather in Brussels, Their Agenda Derailed by Trump**\
+`The meeting was meant to concentrate on jump-starting the bloc’s economy. Instead, the fallout of the attack on Iran is front and center.`\
+https://nytimes.com/2026/03/19/world/europe/eu-leaders-summit-iran-gas.html
+
 **Events Honoring Cesar Chavez Canceled After Accusations of Abuse**\
 `Events honoring the revered labor rights icon Cesar Chavez were canceled after a New York Times investigation found extensive evidence that he groomed and sexually abused girls.`\
 https://nytimes.com/video/us/100000010789141/cesar-chavez-allegations-sexual-abuse.html
