@@ -1,3 +1,11 @@
+**U.K. Advisers Help U.S. Develop Options to Reopen Strait of Hormuz**\
+`The move comes after President Trump sharply criticized Prime Minister Keir Starmer for not supporting his initial military strikes on Iran.`\
+https://nytimes.com/2026/03/19/world/middleeast/uk-us-strait-of-hormuz-reopening-plans.html
+
+**‘Miroirs No. 3’ Review: Kindness and Its Reverse Image**\
+`In the lovely new movie from the acclaimed German director Christian Petzold (“Barbara”), a woman wakes to life after an accident.`\
+https://nytimes.com/2026/03/19/movies/miroirs-no-3-review-christian-petzold.html
+
 **Haaland invests in new chess tournament with $2.7m prize pot**\
 `Haaland, 25, has co-founded the company Chess Mate which has become a "significant" owner in Norway Chess`\
 https://nytimes.com/athletic/7131232/2026/03/19/erling-haaland-chess-investment/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7131122/2026/03/19/howie-rose-new-york-mets-retirem
 **Uber to Buy Rivian Vehicles for Use as Driverless Taxis**\
 `The deal provides cash to Rivian and is part of Uber’s attempts to stay relevant in a driverless future.`\
 https://nytimes.com/2026/03/19/business/uber-rivian-driverless-taxis.html
-
-**Submit questions for Nate Atkins' Rams mailbag**\
-`Atkins will consider your questions for his upcoming mailbag as the Rams slowly start looking ahead to the 2026 NFL Draft.  `\
-https://nytimes.com/athletic/7131339/2026/03/19/rams-mailbag-2026-nfl-free-agency/
-
-**General Says U.S. Boat Strikes Are Not Answer to Country’s Drug Problem**\
-`Gen. Francis L. Donovan, the head of the military’s Southern Command, said he was working with regional allies on the issue.`\
-https://nytimes.com/2026/03/19/us/politics/boat-strikes-caribbean.html
 

@@ -1,3 +1,15 @@
+**Broncos mailbag: Submit your questions for beat writer Nick Kosmider**\
+`What's next for Denver after its splash acquisition of wide receiver Jaylen Waddle?`\
+https://nytimes.com/athletic/7131485/2026/03/19/broncos-mailbag-request-2026-draft/
+
+**Lawsuit Accuses Justice Dept. Leadership of ‘Political Retribution’**\
+`The suit filed by two fired F.B.I. agents aimed to hold the Trump administration accountable for the purge of personnel who had worked on the investigations of Mr. Trump or his allies.`\
+https://nytimes.com/2026/03/19/us/politics/fbi-retribution-lawsuit.html
+
+**New report proposes 'ground-breaking' solution to English football's financial issues**\
+`Fair Game issued proposals it believes could end the ongoing deadlock regarding how money is distributed through the pyramid.`\
+https://nytimes.com/athletic/7131039/2026/03/19/fair-game-report-english-football-finances/
+
 **U.K. Advisers Help U.S. Develop Options to Reopen Strait of Hormuz**\
 `The move comes after President Trump sharply criticized Prime Minister Keir Starmer for not supporting his initial military strikes on Iran.`\
 https://nytimes.com/2026/03/19/world/middleeast/uk-us-strait-of-hormuz-reopening-plans.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/19/us/elections/aipac-pro-israel-lobby-midterms.html
 **Banking Regulators Prepare to Loosen Post-Crisis Capital Rules**\
 `The changes, long sought by bank lobbyists, will reduce the capital banks must hold in reserve to mitigate risks.`\
 https://nytimes.com/2026/03/19/business/banking-regulation-capital-rules.html
-
-**The Premier League is hooked on man-marking. In the Champions League, they are paying for it**\
-`The tactical trend has been adopted by most of the Premier League — but it leaves teams looking exposed when facing the European elite`\
-https://nytimes.com/athletic/7130750/2026/03/19/premier-league-champions-league-man-marking-analysis/
-
-**Howie Rose, the fans' soundtrack of so many Mets summers, puts it in the books**\
-`The longtime New York Mets radio play-by-play voice announced his retirement on Thursday.`\
-https://nytimes.com/athletic/7131122/2026/03/19/howie-rose-new-york-mets-retirement/
-
-**Uber to Buy Rivian Vehicles for Use as Driverless Taxis**\
-`The deal provides cash to Rivian and is part of Uber’s attempts to stay relevant in a driverless future.`\
-https://nytimes.com/2026/03/19/business/uber-rivian-driverless-taxis.html
 

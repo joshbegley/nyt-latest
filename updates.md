@@ -1,3 +1,11 @@
+**U.K. Advisers Help U.S. Develop Options to Reopen Strait of Hormuz**\
+`The move comes after President Trump sharply criticized Prime Minister Keir Starmer for not supporting his initial military strikes on Iran.`\
+https://nytimes.com/2026/03/19/world/middleeast/uk-us-strait-of-hormuz-reopening-plans.html
+
+**‘Miroirs No. 3’ Review: Kindness and Its Reverse Image**\
+`In the lovely new movie from the acclaimed German director Christian Petzold (“Barbara”), a woman wakes to life after an accident.`\
+https://nytimes.com/2026/03/19/movies/miroirs-no-3-review-christian-petzold.html
+
 **Haaland invests in new chess tournament with $2.7m prize pot**\
 `Haaland, 25, has co-founded the company Chess Mate which has become a "significant" owner in Norway Chess`\
 https://nytimes.com/athletic/7131232/2026/03/19/erling-haaland-chess-investment/
