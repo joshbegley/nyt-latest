@@ -1,40 +1,40 @@
+**Events Honoring Cesar Chavez Canceled After Accusations of Abuse**\
+`Events honoring the revered labor rights icon Cesar Chavez were canceled after a New York Times investigation found extensive evidence that he groomed and sexually abused girls.`\
+https://nytimes.com/video/us/100000010789141/cesar-chavez-allegations-sexual-abuse.html
+
+**Room for Rudy: Wolves need to go to Gobert if they want to go anywhere in playoffs**\
+`Gobert's shaky hands make teammates reluctant to throw him the ball. But they need to learn to live with some mistakes.`\
+https://nytimes.com/athletic/7129879/2026/03/19/rudy-gobert-timberwolves-offense/
+
+**Trio of bills proposed to 'Save the World Cup' from ICE involvement**\
+`The bills propose congressional limitations on ICE activity during the World Cup.`\
+https://nytimes.com/athletic/7130431/2026/03/19/world-cup-2026-ice-bills-congress/
+
+**UEFA to meet European leagues to discuss less intrusive VAR approach**\
+`UEFA is determined to persuade the likes of the Premier League, LaLiga and Serie A to adopt a more light-touch approach to VAR.`\
+https://nytimes.com/athletic/7130415/2026/03/19/uefa-var-european-leagues-meeting/
+
+**Fletcher turned down a first-team role in January. Now he is delivering with the U18s**\
+`He has guided the age-group side to the FA Youth Cup semi-final and they are flying in the league`\
+https://nytimes.com/athletic/7130360/2026/03/19/darren-fletcher-manchester-united-u18s/
+
+**Chelsea's goalkeepers are struggling. Is Mike Penders a risk worth taking?**\
+`Chelsea goalkeeper Mike Penders is currently on loan at Strasbourg. The Athletic analyses his readiness for the Premier League`\
+https://nytimes.com/athletic/7124950/2026/03/19/chelsea-goalkeepers-mike-penders-analysis/
+
+**How to watch the 2026 Los Angeles Angels season: TV info for Mike Trout's team**\
+`Here's how to watch Mike Trout and the Halos amid regional sports network changes and national TV updates.`\
+https://nytimes.com/athletic/7126194/2026/03/19/los-angeles-angels-mike-trout-how-to-watch-2026/
+
+**Noahkai Banks deserves the right to decide his own international future**\
+`The 18-year-old is eligible to play for both the U.S. and Germany and faces a tough decision amid a sea of outside noise`\
+https://nytimes.com/athletic/7130238/2026/03/19/usmnt-world-cup-noahkai-banks-germany-pochettino-donovan/
+
+**Analyzing the Chargers' depth chart after the first wave of free agency**\
+`The Chargers have made a few splashes in free agency, but at receiver, they should stick with Ladd McConkey and let Keenan Allen walk.`\
+https://nytimes.com/athletic/7128955/2026/03/19/chargers-depth-chart-free-agency-2026/
+
 **Trump Administration Live Updates: Mideast Looms Over Japanese Leader’s First White House Summit**\
 ``\
 https://nytimes.com/live/2026/03/19/us/trump-news
-
-**How to watch Siena vs. Duke men's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Siena Saints play the Duke Blue Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7130637/2026/03/19/siena-vs-duke-stream-how-to-watch-march-19/
-
-**How to watch High Point vs. Wisconsin men's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the High Point Panthers play the Wisconsin Badgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7130626/2026/03/19/high-point-vs-wisconsin-stream-how-to-watch-march-19/
-
-**How to watch McNeese vs. Vanderbilt men's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the McNeese Cowboys play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7130624/2026/03/19/mcneese-vs-vanderbilt-stream-how-to-watch-march-19/
-
-**Why Victor Wembanyama is the NBA's MVP — even if he doesn't win the award**\
-`Wembanyama has led the Spurs to the NBA's second-best record. His competitiveness has also breathed life into the league. `\
-https://nytimes.com/athletic/7130414/2026/03/19/victor-wembanyama-mvp-spurs-column/
-
-**The Markets Contend With Powell’s Long Goodbye**\
-`The chair of the Federal Reserve said that he might not leave the central bank any time soon, setting up a potential clash with President Trump.`\
-https://nytimes.com/2026/03/19/business/dealbook/jay-powell-fed-chair-markets.html
-
-**The Idiot**\
-``\
-https://nytimes.com/column/the-idiot
-
-**More Cesar Chavez Fallout Expected After Sex Abuse Accusations**\
-`Some states and cities have canceled their observances of Cesar Chavez Day on March 31. Los Angeles leaders said they planned to change the holiday to “Farm Workers Day” and untether it from Mr. Chavez’s birthday.`\
-https://nytimes.com/2026/03/19/us/cesar-chavez-sex-abuse-fallout.html
-
-**Yankees' Opening Day roster is coming into sharper focus as hints emerge**\
-`We have a clearer idea of who will be with the Yankees to begin the season, but questions remain, particularly on the pitching side. `\
-https://nytimes.com/athletic/7128754/2026/03/19/yankees-opening-day-roster-bullpen/
-
-**LeBron James just about perfect in another win for red-hot Lakers**\
-`The 41-year-old went 13-for-14 from the field, his most efficient shooting performance since a 2013 game against the Charlotte Bobcats.`\
-https://nytimes.com/athletic/7130315/2026/03/19/lebron-james-lakers-win-seven-straight/
 
