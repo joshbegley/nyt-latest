@@ -1,4 +1,4 @@
-**F.B.I. Investigates Joe Kent for Possible Intelligence Leak**\
+**F.B.I. Investigates Joe Kent, Whose Resignation Over Iran War Angered Trump**\
 `The F.B.I. has opened an inquiry into Mr. Kent, who was the top U.S. counterterrorism official, according to people familiar with the situation. The investigation is said to predate his resignation this week over the Iran war.`\
 https://nytimes.com/2026/03/18/us/politics/fbi-joe-kent-intelligence-leak.html
 
