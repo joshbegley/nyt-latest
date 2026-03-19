@@ -1,3 +1,11 @@
+**Iranian Missile Attack Leaves 3 Palestinians Dead in West Bank**\
+`Several others were injured in the strike, which hit a caravan being used as a hair salon in the town of Beit Awwa, according to Palestinian officials.`\
+https://nytimes.com/2026/03/18/world/middleeast/iran-west-bank-missile-strike.html
+
+**A.I. Replica of Val Kilmer to Appear in Film After His Death**\
+`Kilmer’s estate collaborated with the filmmakers to make a digital likeness of the actor, who died of cancer last year.`\
+https://nytimes.com/2026/03/18/movies/val-kilmer-ai-movie.html
+
 **LeBron James’ path to NBA ownership ‘less likely’ as partners pass on expansion bid: Sources**\
 `LeBron James has repeatedly made it clear that he wants to own an NBA team in Las Vegas. That dream is looking more unlikely now.`\
 https://nytimes.com/athletic/7129770/2026/03/18/lebron-james-nba-expansion-ownership-vegas-seattle-bid/
