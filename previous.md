@@ -1,3 +1,15 @@
+**Mapping two days of attacks on Gulf energy sites.**\
+`By Lauren Leatherby`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/mapping-two-days-of-attacks-on-gulf-energy-sites
+
+**Dortmund interested in re-signing Sancho**\
+`Sancho, who is currently on-loan at Aston Villa from Manchester United, will be out of contract in June.`\
+https://nytimes.com/athletic/7131044/2026/03/19/jadon-sancho-borussia-dortmund-transfer-interest/
+
+**Central Banks Brace for Faster Inflation as Energy Prices Surge**\
+`Traders expect Europe’s central bankers to raise rates several times this year to address a sharp increase in inflation because of higher energy prices.`\
+https://nytimes.com/2026/03/19/business/economy/boe-ecb-interest-rates-inflation.html
+
 **Fernandez ‘very happy’ at Chelsea, Chalobah out for six weeks - Rosenior**\
 `Chalobah rolled his right ankle in a tackle from PSG's Achraf Hakimi and said after the game it "should be broken".`\
 https://nytimes.com/athletic/7128270/2026/03/19/enzo-fernandez-trevoh-chalobah-chelsea-transfer-injury-update/
@@ -25,16 +37,4 @@ https://nytimes.com/video/well/100000010781639/what-exactly-is-trauma-bonding.ht
 **2 Men Charged With Spying for Iran on Britain’s Oldest Synagogue**\
 `The men, both Iranian citizens, are accused of conducting surveillance on several Jewish institutions and community buildings in London.`\
 https://nytimes.com/2026/03/19/world/europe/iran-spy-charged-uk-jewish-london.html
-
-**Qatar Blames Iran for Attack on Major Energy Hub**\
-`Qatar blamed Iran for an attack on a major energy hub, a day after Iran vowed retaliation for an airstrike on the South Pars field that it said was carried out by Israel.`\
-https://nytimes.com/video/world/middleeast/100000010789342/qatar-iran-attack-energy-hub.html
-
-**Congress’s Renewed Clash Over a Major Surveillance Law, Explained**\
-`A warrantless wiretapping law known as Section 702 is set to expire on April 20 unless Congress votes to extend it. Past cycles have been rocky.`\
-https://nytimes.com/article/section-702-surveillance-law.html
-
-**Mending Ceramics and Slowing Time With the Japanese Art of Kintsugi**\
-`Plus: a guide to Honolulu’s Kaimuki neighborhood, a ski-in, ski-out guesthouse in Austria and more recommendations from T Magazine.`\
-https://nytimes.com/2026/03/19/t-magazine/ceramics-kintsugi-classes.html
 

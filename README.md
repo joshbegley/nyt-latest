@@ -1,3 +1,7 @@
+**Maple Leafs prospect watch: Could latest NCAA signing be the next Bobby McMann?**\
+`The Maple Leafs signed Union College forward Brandon Buhr to a one-year deal on Wednesday. He'll start on a tryout with the Marlies.`\
+https://nytimes.com/athletic/7130951/2026/03/19/maple-leafs-prospect-brandon-buhr-ncaa/
+
 **Mapping two days of attacks on Gulf energy sites.**\
 `By Lauren Leatherby`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/mapping-two-days-of-attacks-on-gulf-energy-sites
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/7128270/2026/03/19/enzo-fernandez-trevoh-chalobah-c
 `Stach has played twice for Germany, with both appearances coming in 2022 under Hansi Flick.`\
 https://nytimes.com/athletic/7131040/2026/03/19/leeds-anton-stach-germany-recall/
 
-**The Bounce: Choosing a side in Giannis vs. Bucks. Plus, the madness begins!**\
+**The Bounce: Giannis vs. the Bucks — we choose a side**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7130858/2026/03/19/giannis-bucks-dispute-march-madness-prospects-the-bounce/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7130269/2026/03/19/philadelphia-sixers-ncaa-tournam
 **What Exactly Is Trauma Bonding?**\
 `Lately people have adopted the phrase “trauma bond” both online and off. But as a psychological term, the phrase has a long history that describes something different from how it’s commonly used. Christina Caron, a mental health reporter for Well, explains.`\
 https://nytimes.com/video/well/100000010781639/what-exactly-is-trauma-bonding.html
-
-**2 Men Charged With Spying for Iran on Britain’s Oldest Synagogue**\
-`The men, both Iranian citizens, are accused of conducting surveillance on several Jewish institutions and community buildings in London.`\
-https://nytimes.com/2026/03/19/world/europe/iran-spy-charged-uk-jewish-london.html
 

@@ -1,3 +1,15 @@
+**Mapping two days of attacks on Gulf energy sites.**\
+`By Lauren Leatherby`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/mapping-two-days-of-attacks-on-gulf-energy-sites
+
+**Dortmund interested in re-signing Sancho**\
+`Sancho, who is currently on-loan at Aston Villa from Manchester United, will be out of contract in June.`\
+https://nytimes.com/athletic/7131044/2026/03/19/jadon-sancho-borussia-dortmund-transfer-interest/
+
+**Central Banks Brace for Faster Inflation as Energy Prices Surge**\
+`Traders expect Europe’s central bankers to raise rates several times this year to address a sharp increase in inflation because of higher energy prices.`\
+https://nytimes.com/2026/03/19/business/economy/boe-ecb-interest-rates-inflation.html
+
 **Fernandez ‘very happy’ at Chelsea, Chalobah out for six weeks - Rosenior**\
 `Chalobah rolled his right ankle in a tackle from PSG's Achraf Hakimi and said after the game it "should be broken".`\
 https://nytimes.com/athletic/7128270/2026/03/19/enzo-fernandez-trevoh-chalobah-chelsea-transfer-injury-update/
