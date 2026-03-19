@@ -1,3 +1,11 @@
+**Late Night Tells the Tale of the Dueling Senators**\
+`“Also very funny to describe a duel as being between two consenting adults. You know, because if only one person consents, that’s murder,” said Seth Meyers, host of “Late Night.”`\
+https://nytimes.com/2026/03/19/arts/television/late-night-dueling-senators.html
+
+**Barcelona's Champions League spectacular confirmed it: Raphinha is back, right on time**\
+`Barca manager Hansi Flick has often spoken of Raphinha's importance. Wednesday night brought another clear reason why`\
+https://nytimes.com/athletic/7129860/2026/03/19/barcelona-raphinha-champions-league-newcastle-flick/
+
 **Salah shows he still has the swagger of old and remains a match-winner**\
 `The Egyptian has endured a difficult season but he was heavily involved against Galatasaray, recovering well from a missed penalty`\
 https://nytimes.com/athletic/7129576/2026/03/19/mohamed-salah-liverpool-galatasaray/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7128447/2026/03/19/newcastle-barcelona-analysis-eur
 **Chelsea's huddle and pre-match rituals in sport: Psychological weapon or silly gimmick?**\
 `Chelsea's huddle has drawn a lot of debate. So what is the point of it and other pre-match rituals? Sarah Shephard explains`\
 https://nytimes.com/athletic/7128059/2026/03/19/chelsea-huddle-pre-match-ritual/
-
-**Behind the scenes at Amazon with Seedorf: 'It’s about being fair. Don't be in a space of polemics'**\
-`The Dutch legend talks punditry, connecting with players, and his own coaching ambitions — all while covering a huge Champions League tie`\
-https://nytimes.com/athletic/7128219/2026/03/19/clarence-seedorf-interview-amazon/
-
-**What happens now to the winners' medals and the trophy? Answering unexpected AFCON final questions**\
-`Also: what happens to the land the Senegal players were given by their government? And what about bets placed on the final?`\
-https://nytimes.com/athletic/7128680/2026/03/19/afcon-final-senegal-morocco-questions/
 
