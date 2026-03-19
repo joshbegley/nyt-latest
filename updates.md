@@ -1,3 +1,15 @@
+**Fantasy baseball bullpen report featuring rising relievers Daniel Palencia and Paul Sewald**\
+`Greg Jewett take a final look at the biggest bullpen value movers in the past week and provides the leverage options for every MLB team.`\
+https://nytimes.com/athletic/7129326/2026/03/19/fantasy-baseball-bullpen-report-stock-up-down-palencia/
+
+**The Unexpected Impacts of High Oil Prices**\
+`Our chief economics correspondent, Ben Casselman, breaks down how gasoline prices have responded to the oil crisis in the Persian Gulf, and what is in store for inflation if the price of oil remains above $100 per barrel.`\
+https://nytimes.com/video/business/100000010782158/the-unexpected-impacts-of-high-oil-prices.html
+
+**Alex Scott talks Women's Champions League and the Chelsea-Arsenal rivalry on 'Full Time'**\
+`In an interview with The Athletic, the former England defender talks about the London sides' rivalry ahead of their European quarter-final`\
+https://nytimes.com/athletic/7130530/2026/03/19/alex-scott-womens-champions-league-arsenal-chelsea/
+
 **Madrid's Courtois sidelined for at least six weeks with thigh injury**\
 `On Wednesday, Courtois did not expect the issue to be major before tests on Thursday proved otherwise.`\
 https://nytimes.com/athletic/7126646/2026/03/19/thibaut-courtois-injury-real-madrid-news-2026/
