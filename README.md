@@ -1,4 +1,4 @@
-**U.K. Advisers Sent to U.S. to Help Develop Options to Reopen Strait of Hormuz**\
+**U.K. Advisers Help U.S. Develop Options to Reopen Strait of Hormuz**\
 `The move comes after President Trump sharply criticized Prime Minister Keir Starmer for not supporting his initial military strikes on Iran.`\
 https://nytimes.com/2026/03/19/world/middleeast/uk-us-strait-of-hormuz-reopening-plans.html
 
