@@ -1,3 +1,7 @@
+**NFL Newsletter: Fallers after the first wave of free agency**\
+`The early offseason's fallers, a closer look at Kyler Murray on the Vikings and our latest beat writer mock draft.`\
+https://nytimes.com/athletic/7132365/2026/03/19/nfl-free-agency-fallers-dolphins/
+
 **Jeff Bezos in Talks to Raise $100 Billion Fund to Transform Companies With A.I.**\
 `The new fund would operate alongside the Amazon founder’s A.I. start-up, Project Prometheus.`\
 https://nytimes.com/2026/03/19/technology/jeff-bezos-ai-fund-project-prometheus.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/19/books/shy-girl-book-ai.html
 **Trump Says He Won’t Send Troops to Iran But Leaves Wiggle Room**\
 `The president was cagey about his plans for Iran. He confirmed the Pentagon was seeking $200 billion to support a protracted war effort while also claiming it would be over soon.`\
 https://nytimes.com/2026/03/19/world/middleeast/trump-iran-us-troops.html
-
-**Monopoly? Not a Chance, Says Live Nation’s Chief at Antitrust Trial.**\
-`Michael Rapino, the chief executive of the live entertainment colossus, fought back against accusations his company unfairly dominates the music industry.`\
-https://nytimes.com/2026/03/19/arts/music/live-nation-ticketmaster-trial-rapino.html
 

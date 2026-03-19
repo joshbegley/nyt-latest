@@ -1,3 +1,7 @@
+**NFL Newsletter: Fallers after the first wave of free agency**\
+`The early offseason's fallers, a closer look at Kyler Murray on the Vikings and our latest beat writer mock draft.`\
+https://nytimes.com/athletic/7132365/2026/03/19/nfl-free-agency-fallers-dolphins/
+
 **Jeff Bezos in Talks to Raise $100 Billion Fund to Transform Companies With A.I.**\
 `The new fund would operate alongside the Amazon founder’s A.I. start-up, Project Prometheus.`\
 https://nytimes.com/2026/03/19/technology/jeff-bezos-ai-fund-project-prometheus.html
