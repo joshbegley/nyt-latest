@@ -2,6 +2,10 @@
 `The trademark request seeks to use the nickname and logos on eyewear, posters, baggage, water bottles, apparel and sporting goods.`\
 https://nytimes.com/athletic/7131801/2026/03/19/caleb-williams-iceman-trademark-bears/
 
+**Is it time for Spurs to play Micky van de Ven at left-back like the Netherlands do?**\
+`Defensively, the role plays to his strengths and it would allow Kevin Danso to remain after impressing against Liverpool`\
+https://nytimes.com/athletic/7128108/2026/03/19/van-de-ven-leftback-tottenham-netherlands/
+
 **MLS reveals details of its 2027 sprint season before calendar flips**\
 `MLS is due to align with the European calendar in the summer of 2027. This is how the league will fill the first half of the year`\
 https://nytimes.com/athletic/7129315/2026/03/19/mls-sprint-season-details-2027-schedule/
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/7131759/2026/03/19/aden-holloway-alabama-arrest-nca
 **FIFA rules women's teams must have a woman as head or assistant coach**\
 `In competitions under the football governing body's remit, each team must have at least two female staff on their bench. `\
 https://nytimes.com/athletic/7130675/2026/03/19/fifa-womens-coach-rules/
-
-**Jerusalem’s Old City sustains some damage after being largely spared in years of fighting.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2026/03/19/world/iran-war-news-trump-oil/jerusalems-old-city-sustains-some-damage-after-being-largely-spared-in-years-of-fighting
 
