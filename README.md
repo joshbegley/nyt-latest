@@ -1,3 +1,7 @@
+**Iranian Missile Attack Leaves 3 Palestinians Dead in West Bank**\
+`Several others were injured in the strike, which hit a caravan being used as a hair salon in the town of Beit Awwa, according to Palestinian officials.`\
+https://nytimes.com/2026/03/18/world/middleeast/iran-west-bank-missile-strike.html
+
 **A.I. Replica of Val Kilmer to Appear in Film After His Death**\
 `Kilmer’s estate collaborated with the filmmakers to make a digital likeness of the actor, who died of cancer last year.`\
 https://nytimes.com/2026/03/18/movies/val-kilmer-ai-movie.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010788091/dhs-markwayne-mullin-heari
 **Iran Turns Out for Funeral for Those Killed in Strikes**\
 `Some died in Iran, others on a sea far from home. They were honored together Wednesday at a procession in Tehran.`\
 https://nytimes.com/2026/03/18/world/middleeast/iran-funeral-photo.html
-
-**Days of Anger and Fear for Iranians Living With Waves of Airstrikes**\
-`Residents in Tehran and elsewhere say the attacks come at all hours and rock the ground.`\
-https://nytimes.com/2026/03/18/world/middleeast/iran-war-us-israel-strikes.html
 
