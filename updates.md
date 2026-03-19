@@ -1,3 +1,11 @@
+**Pentagon Seeks $200 Billion to Fund Iran War**\
+`The request, which the White House has not submitted to Congress, is already encountering some resistance.`\
+https://nytimes.com/2026/03/19/world/middleeast/pentagon-200-billion-iran-war-funding-hegseth.html
+
+**Iran War Narrows Fed’s Path to a Rate Cut**\
+`Jerome H. Powell, the Fed chair, wants to keep the central bank’s policy options open as officials stare down another economic shock that threatens to stoke inflation and crimp growth.`\
+https://nytimes.com/2026/03/19/business/fed-rate-cut-iran-war.html
+
 **Surprising Penguins fueled by Erik Karlsson's brilliance, haunted by Kris Letang's decay**\
 `The two big-name Penguins defensemen are moving in dramatically different directions.`\
 https://nytimes.com/athletic/7130285/2026/03/19/penguins-erik-karlsson-kris-letang-nhl-playoff-race/
