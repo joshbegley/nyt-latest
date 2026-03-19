@@ -1,3 +1,19 @@
+**Howie Rose, radio voice of the Mets, says he will retire at season's end**\
+`Rose, 72, has had a decorated career as a New York voice, most notably with the Mets, as well as the Rangers and the Islanders.`\
+https://nytimes.com/athletic/7130842/2026/03/19/howie-rose-mets-retire-radio-media/
+
+**Canada's World Cup plans come into focus as Marsch names squad for March camp**\
+`The World Cup co-host will play friendlies against Iceland and Tunisia in Toronto with a 26-man squad and two mainstays as training players`\
+https://nytimes.com/athletic/7129301/2026/03/19/canada-marsch-march-squad-world-cup/
+
+**Summit sign USWNT forward Yazmeen Ryan, midfielder Delanie Sheehan in deal with Dash**\
+`The transfer could total as much as $1.1 million, the two teams announced Thursday.`\
+https://nytimes.com/athletic/7130299/2026/03/19/summit-sign-yazmeen-ryan-delanie-sheehan-dash/
+
+**Attacks on Energy Infrastructure Could Lead to Much Higher Prices**\
+`Attacks on oil and natural gas facilities this week could make it much harder for Persian Gulf countries to rebuild and restart production when the war eventually end.`\
+https://nytimes.com/2026/03/19/business/energy-environment/iran-oil-natural-gas-attacks.html
+
 **Analysing the Champions League quarter-finals: Star players, top youngsters, trophy favourites**\
 `The Champions League quarter-finals are set, presenting a mouthwatering set of ties. Our experts have their say `\
 https://nytimes.com/athletic/7130652/2026/03/19/champions-league-quarter-finals-analysis-favourites/
