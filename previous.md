@@ -1,3 +1,7 @@
+**Heat intend to waive guard Terry Rozier: Sources**\
+`The move is more likely to happen closer to the end of the regular season, so the Heat can fill Rozier's roster spot for the playoffs.`\
+https://nytimes.com/athletic/7132671/2026/03/19/terry-rozier-miami-heat-waive/
+
 **On Joe Rogan, Canada’s Opposition Leader Talks Trump, Tariffs and Bruce Lee**\
 `Floundering in the polls, Pierre Poilievre, the leader of Canada’s Conservatives, sat down with the popular podcaster in hopes of raising his standing at home and abroad.`\
 https://nytimes.com/2026/03/19/world/canada/joe-rogan-pierre-poilievre-canada-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010775488/he-thinks-hollywood-has-stigma
 **Patriarch Ilia II, a Spiritual Figure of Stability in Georgia, Dies at 93**\
 `The longest-serving leader in the history of the Georgian Orthodox Church, he helped guide his country in its transition from Soviet repression to modern statehood.`\
 https://nytimes.com/2026/03/19/world/europe/patriarch-ilia-ii-dead.html
-
-**Carrick unsure if Man United's De Ligt will play again this season**\
-`De Ligt's last United appearance was 110 days ago – during the 2-1 win at Crystal Palace in late November.`\
-https://nytimes.com/athletic/7130555/2026/03/19/matthijs-de-ligt-injury-manchester-united-carrick/
 

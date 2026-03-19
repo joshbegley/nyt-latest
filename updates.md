@@ -1,3 +1,7 @@
+**Heat intend to waive guard Terry Rozier: Sources**\
+`The move is more likely to happen closer to the end of the regular season, so the Heat can fill Rozier's roster spot for the playoffs.`\
+https://nytimes.com/athletic/7132671/2026/03/19/terry-rozier-miami-heat-waive/
+
 **On Joe Rogan, Canada’s Opposition Leader Talks Trump, Tariffs and Bruce Lee**\
 `Floundering in the polls, Pierre Poilievre, the leader of Canada’s Conservatives, sat down with the popular podcaster in hopes of raising his standing at home and abroad.`\
 https://nytimes.com/2026/03/19/world/canada/joe-rogan-pierre-poilievre-canada-trump.html
