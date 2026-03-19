@@ -1,3 +1,7 @@
+**LeBron James’ path to NBA ownership ‘less likely’ as partners pass on expansion bid: Sources**\
+`LeBron James has repeatedly made it clear that he wants to own an NBA team in Las Vegas. That dream is looking more unlikely now.`\
+https://nytimes.com/athletic/7129770/2026/03/18/lebron-james-nba-expansion-ownership-vegas-seattle-bid/
+
 **Here’s What Happened in the War in the Middle East on Wednesday**\
 `A day of strikes on energy facilities and testimony in Washington to members of Congress.`\
 https://nytimes.com/2026/03/18/world/middleeast/iran-war-recap-middle-east.html
