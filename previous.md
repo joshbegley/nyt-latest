@@ -1,3 +1,27 @@
+**Haaland invests in new chess tournament with $2.7m prize pot**\
+`Haaland, 25, has co-founded the company Chess Mate which has become a "significant" owner in Norway Chess`\
+https://nytimes.com/athletic/7131232/2026/03/19/erling-haaland-chess-investment/
+
+**At the 34th Outsider Art Fair, Still Genuine Surprises**\
+`Cosmic explosions, proto-Surrealism and names to remember — like the D.J. Raoul Hardie and Anne Brown, the high point of our critic’s survey.`\
+https://nytimes.com/2026/03/19/arts/design/outsider-art-fair-review.html
+
+**Tom Brady addresses Olympics question before this weekend's flag football event**\
+`Brady didn't completely dismiss the idea Wednesday on "GMA" as he prepared for the round-robin event Saturday in Los Angeles.`\
+https://nytimes.com/athletic/7131256/2026/03/19/tom-brady-flag-football-olympics-2028/
+
+**What One Key Loss in Illinois Signals for Pro-Israel Lobby in Midterms**\
+`The historically bipartisan American Israel Public Affairs Committee faces headwinds among Democrats angered by the country’s current government and war in Gaza.`\
+https://nytimes.com/2026/03/19/us/elections/aipac-pro-israel-lobby-midterms.html
+
+**Banking Regulators Prepare to Loosen Post-Crisis Capital Rules**\
+`The changes, long sought by bank lobbyists, will reduce the capital banks must hold in reserve to mitigate risks.`\
+https://nytimes.com/2026/03/19/business/banking-regulation-capital-rules.html
+
+**The Premier League is hooked on man-marking. In the Champions League, they are paying for it**\
+`The tactical trend has been adopted by most of the Premier League — but it leaves teams looking exposed when facing the European elite`\
+https://nytimes.com/athletic/7130750/2026/03/19/premier-league-champions-league-man-marking-analysis/
+
 **Howie Rose, the fans' soundtrack of so many Mets summers, puts it in the books**\
 `The longtime New York Mets radio play-by-play voice announced his retirement on Thursday.`\
 https://nytimes.com/athletic/7131122/2026/03/19/howie-rose-new-york-mets-retirement/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7131339/2026/03/19/rams-mailbag-2026-nfl-free-agenc
 **General Says U.S. Boat Strikes Are Not Answer to Country’s Drug Problem**\
 `Gen. Francis L. Donovan, the head of the military’s Southern Command, said he was working with regional allies on the issue.`\
 https://nytimes.com/2026/03/19/us/politics/boat-strikes-caribbean.html
-
-**A Gift From Trump to the Supreme Court**\
-`In a caustic critique of the court issued on social media late Sunday night, the president inadvertently buttressed its independence.`\
-https://nytimes.com/2026/03/19/us/the-docket-gift-trump-supreme-court.html
-
-**Mortgage Rates Inch Higher as War Weighs on Housing Market**\
-`Rising energy costs and concerns about inflation have helped lift borrowing costs for a home mortgage for the third consecutive week.`\
-https://nytimes.com/2026/03/19/business/mortgage-rates-iran-war.html
-
-**Contradicting Trump, Israeli Officials Say U.S. Was Told about South Pars Attack**\
-`President Trump said the United States “knew nothing” about an attack on the gas field in Iran, which sent global oil and gas prices soaring.`\
-https://nytimes.com/2026/03/19/world/middleeast/israel-iran-south-pars-gas-field-trump.html
-
-**Arkansas U.S. Senate Election 2026: Latest Polls**\
-`Track the latest polls in the Arkansas U.S. Senate election.`\
-https://nytimes.com/interactive/polls/arkansas-us-senate-election-polls-2026.html
-
-**How to watch Texas A&M vs. Saint Mary's (CA) men's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Texas A&M Aggies play the Saint Mary's Gaels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7131324/2026/03/19/texas-a-m-vs-saint-mary-s-ca-stream-how-to-watch-march-19/
-
-**European leaders seek a de-escalation of attacks.**\
-`By Christopher F. Schuetze`\
-https://nytimes.com/live/2026/03/19/world/iran-war-news-trump-oil/european-leaders-seek-a-de-escalation-of-attacks
 
