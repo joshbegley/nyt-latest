@@ -1,3 +1,7 @@
+**Monopoly? Not a Chance, Says Live Nation’s Chief at Antitrust Trial.**\
+`Michael Rapino, the chief executive of the live entertainment colossus, fought back against accusations his company unfairly dominates the music industry.`\
+https://nytimes.com/2026/03/19/arts/music/live-nation-ticketmaster-trial-rapino.html
+
 **Auston Matthews undergoes MCL surgery one week after knee-on-knee hit**\
 `After Thursday's surgery, Matthews will face an approximately 12-week recovery time.`\
 https://nytimes.com/athletic/7132319/2026/03/19/auston-matthews-surgery-maple-leafs-injury-recovery/
