@@ -1,3 +1,7 @@
+**More Cesar Chavez Fallout Expected After Sex Abuse Accusations**\
+`Some states and cities have canceled their observances of Cesar Chavez Day on March 31. Los Angeles leaders said they planned to change the holiday to “Farm Workers Day” and untether it from Mr. Chavez’s birthday.`\
+https://nytimes.com/2026/03/19/us/cesar-chavez-sex-abuse-fallout.html
+
 **Yankees' Opening Day roster is coming into sharper focus as hints emerge**\
 `We have a clearer idea of who will be with the Yankees to begin the season, but questions remain, particularly on the pitching side. `\
 https://nytimes.com/athletic/7128754/2026/03/19/yankees-opening-day-roster-bullpen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7128550/2026/03/19/this-week-in-sports-trivia-march
 **How to watch Women’s March Madness First Four: Schedule, TV and odds for Day 2**\
 `March Madness continues with Day 2 of the women's First Four, featuring Samford vs. Southern and Arizona State vs. Virginia. `\
 https://nytimes.com/athletic/7129449/2026/03/19/march-madness-first-four-arizona-state-virginia-how-to-watch/
-
-**What I'm seeing at Tigers camp: Casey Mize, Justin Verlander and an odd injury**\
-`As Opening Day nears, two of Detroit's back-end starters — Mize and Verlander — have struggled during spring training.`\
-https://nytimes.com/athletic/7130004/2026/03/19/tigers-camp-casey-mize-justin-verlander/
 
