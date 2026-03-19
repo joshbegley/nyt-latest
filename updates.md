@@ -1,3 +1,11 @@
+**Saudi Official Warns Patience Is Limited as Iranian Attacks Barrage Kingdom**\
+`Prince Faisal bin Farhan, the foreign minister, said Saudi Arabia was prepared to take military action if necessary, after waves of missile and drone attacks.`\
+https://nytimes.com/2026/03/19/world/middleeast/iran-missiles-saudi-arabia-riyadh-yanbu.html
+
+**Homeland Security Nominee Clears Key Hurdle**\
+`If confirmed, Senator Markwayne Mullin of Oklahoma would be taking over the department at a sensitive moment.`\
+https://nytimes.com/2026/03/19/us/politics/markwayne-mullin-dhs.html
+
 **QB Carson Wentz re-signing with Minnesota Vikings**\
 `Wentz will rejoin a quarterback room that includes Kyler Murray and J.J. McCarthy.`\
 https://nytimes.com/athletic/7130754/2026/03/19/minnesota-vikings-carzon-wentz-qb-signed-stays/

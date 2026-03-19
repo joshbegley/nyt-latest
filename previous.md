@@ -1,3 +1,11 @@
+**Saudi Official Warns Patience Is Limited as Iranian Attacks Barrage Kingdom**\
+`Prince Faisal bin Farhan, the foreign minister, said Saudi Arabia was prepared to take military action if necessary, after waves of missile and drone attacks.`\
+https://nytimes.com/2026/03/19/world/middleeast/iran-missiles-saudi-arabia-riyadh-yanbu.html
+
+**Homeland Security Nominee Clears Key Hurdle**\
+`If confirmed, Senator Markwayne Mullin of Oklahoma would be taking over the department at a sensitive moment.`\
+https://nytimes.com/2026/03/19/us/politics/markwayne-mullin-dhs.html
+
 **Fantasy baseball bullpen report featuring rising relievers Daniel Palencia and Paul Sewald**\
 `Greg Jewett takes a final look at the biggest bullpen value movers in the past week and provides the leverage options for every MLB team.`\
 https://nytimes.com/athletic/7129326/2026/03/19/fantasy-baseball-bullpen-report-stock-up-down-palencia/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7129747/2026/03/19/ufc-white-house-dc-commission-re
 **Arkansas, St. John’s lead public betting, putting sportsbooks on upset watch**\
 `Who are people betting on to win it all? What are the biggest bets going into the tournament? We got you covered on the betting action.`\
 https://nytimes.com/athletic/7129466/2026/03/19/ncaa-tournament-betting-duke-florida-michigan-arkansas-alabama-high-point/
-
-**Trump and Iran Won’t Leave the Agenda as European Leaders Meet**\
-`A gathering in Brussels was meant to concentrate on jump-starting the E.U. economy. Instead, the fallout of the war in the Middle East is front and center.`\
-https://nytimes.com/2026/03/19/world/europe/eu-leaders-summit-iran-gas.html
-
-**Events Honoring Cesar Chavez Canceled After Accusations of Abuse**\
-`Events honoring the revered labor rights icon Cesar Chavez were canceled after a New York Times investigation found extensive evidence that he groomed and sexually abused girls.`\
-https://nytimes.com/video/us/100000010789141/cesar-chavez-allegations-sexual-abuse.html
 
