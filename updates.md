@@ -1,3 +1,11 @@
+**The Latest Toy to Jump to the Big Screen: Labubu**\
+`Pop Mart and Sony announced on Thursday that they were developing a feature film about the fuzzy trinkets. “It’s completely ruthless marketing,” one expert said.`\
+https://nytimes.com/2026/03/19/movies/labubu-movie-paul-king.html
+
+**Nebraska dominates Troy, wins first NCAA Tournament game in program history**\
+`The win gave Nebraska a school record 27, breaking a tie with the Danny Nee-coached team of 1990-91.`\
+https://nytimes.com/athletic/7131832/2026/03/19/nebraska-troy-ncaa-touranment-first-win/
+
 **Submit your Blackhawks mailbag questions**\
 `What questions do you have about the Blackhawks? Submit them here and Scott Powers and Mark Lazerus may answer them in an upcoming mailbag.`\
 https://nytimes.com/athletic/7131881/2026/03/19/submit-your-blackhawks-mailbag-questions/

@@ -1,3 +1,11 @@
+**The Latest Toy to Jump to the Big Screen: Labubu**\
+`Pop Mart and Sony announced on Thursday that they were developing a feature film about the fuzzy trinkets. “It’s completely ruthless marketing,” one expert said.`\
+https://nytimes.com/2026/03/19/movies/labubu-movie-paul-king.html
+
+**Nebraska dominates Troy, wins first NCAA Tournament game in program history**\
+`The win gave Nebraska a school record 27, breaking a tie with the Danny Nee-coached team of 1990-91.`\
+https://nytimes.com/athletic/7131832/2026/03/19/nebraska-troy-ncaa-touranment-first-win/
+
 **Submit your Blackhawks mailbag questions**\
 `What questions do you have about the Blackhawks? Submit them here and Scott Powers and Mark Lazerus may answer them in an upcoming mailbag.`\
 https://nytimes.com/athletic/7131881/2026/03/19/submit-your-blackhawks-mailbag-questions/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/03/19/us/trump-administration-cornell-employees-antisem
 **Who owns Jack Hughes' golden-goal puck and what's it worth? We explain**\
 `Where is the puck, who owns it , how much is it worth and does Hughes still want it back? We answer these questions and more. `\
 https://nytimes.com/athletic/7131673/2026/03/19/jack-hughes-puck-controversy-winter-olympics-nhl/
-
-**How to watch Pennsylvania vs. Illinois men's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Pennsylvania Quakers play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7131761/2026/03/19/pennsylvania-vs-illinois-stream-how-to-watch-march-19/
-
-**Alabama preparing to play without Holloway after arrest, Oats says**\
-`Oats said he does not know if or when Holloway could return later in the NCAA Tournament.`\
-https://nytimes.com/athletic/7131759/2026/03/19/aden-holloway-alabama-arrest-ncaa-tournament-nate-oats/
 
