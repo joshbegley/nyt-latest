@@ -1,3 +1,11 @@
+**Remote Part of Australia Braces for ‘Significant’ Tropical System**\
+`Tropical Cyclone Narelle is expected to hit northern Queensland as the equivalent of a Category 4 hurricane.`\
+https://nytimes.com/2026/03/19/weather/tropical-cyclone-narelle-australia.html
+
+**U.S. Encourages Flow of Iranian Oil While It Battles Iran**\
+`Treasury Secretary Scott Bessent said removing sanctions on Iranian oil would lower global prices.`\
+https://nytimes.com/2026/03/19/us/politics/iran-oil-sanctions.html
+
 **She Died After Her Pacemaker Battery Failed. Its Maker Knew of Problems for Years.**\
 `Boston Scientific announced multiple recalls but has said its battery issues were limited. One internal test in 2025 found batteries with an “extremely high failure rate.”`\
 https://nytimes.com/2026/03/19/business/pacemakers-batteries-recall-boston-scientific.html
@@ -29,8 +37,4 @@ https://nytimes.com/2026/03/19/movies/miroirs-no-3-review-christian-petzold.html
 **Reports of Sexual Abuse by Cesar Chavez**\
 `Readers react to the Times investigation of the labor leader and civil rights icon. Also: A decision on vaccines; shielding lawyers.`\
 https://nytimes.com/2026/03/19/opinion/cesar-chavez-sexual-abuse.html
-
-**Patel Says Agents Who Worked Mar-a-Lago Case Were Fired for Ethics Violations**\
-`The assertion by the F.B.I. director to a House committee is likely to be challenged in court.`\
-https://nytimes.com/2026/03/19/us/politics/patel-fbi-mar-a-lago-trump.html
 
