@@ -14,7 +14,7 @@ https://nytimes.com/athletic/7130530/2026/03/19/alex-scott-womens-champions-leag
 `On Wednesday, Courtois did not expect the issue to be major before tests on Thursday proved otherwise.`\
 https://nytimes.com/athletic/7126646/2026/03/19/thibaut-courtois-injury-real-madrid-news-2026/
 
-**QB Carson Wentz re-signing with Minnesota Vikings: Sources**\
+**QB Carson Wentz re-signing with Minnesota Vikings**\
 `Wentz will rejoin a quarterback room that includes Kyler Murray and J.J. McCarthy.`\
 https://nytimes.com/athletic/7130754/2026/03/19/minnesota-vikings-carzon-wentz-qb-signed-stays/
 

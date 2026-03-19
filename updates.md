@@ -1,3 +1,7 @@
+**QB Carson Wentz re-signing with Minnesota Vikings**\
+`Wentz will rejoin a quarterback room that includes Kyler Murray and J.J. McCarthy.`\
+https://nytimes.com/athletic/7130754/2026/03/19/minnesota-vikings-carzon-wentz-qb-signed-stays/
+
 **Fantasy baseball bullpen report featuring rising relievers Daniel Palencia and Paul Sewald**\
 `Greg Jewett takes a final look at the biggest bullpen value movers in the past week and provides the leverage options for every MLB team.`\
 https://nytimes.com/athletic/7129326/2026/03/19/fantasy-baseball-bullpen-report-stock-up-down-palencia/
