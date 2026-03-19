@@ -1,3 +1,7 @@
+**Jim Irsay Collection sells for more than $94 million at auction**\
+`From famous guitars to Secretariat's Triple Crown saddle, the Irsay collection featured an incredible variety of historic items. `\
+https://nytimes.com/athletic/7129744/2026/03/18/jim-irsay-collection-auctions-total-94-million-in-sales-set-28-records/
+
 **Mullin Faces Questions About War Zone Observations**\
 `The nominee for homeland security secretary suggested that he had observed war firsthand but declined to provide details, which he said were “classified.”`\
 https://nytimes.com/2026/03/18/us/politics/mullin-smell-war.html
