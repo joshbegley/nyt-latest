@@ -1,36 +1,40 @@
+**How to watch 76ers vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Philadelphia 76ers play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7131996/2026/03/19/76ers-vs-kings-stream-how-to-watch-march-19/
+
+**U.S. Lifts Fertilizer Sanctions on Belarus as Iran War Causes Price Surge**\
+`The Trump administration made the move in exchange for Belarus’s freeing of 250 political prisoners, part of a rapprochement between the two countries.`\
+https://nytimes.com/2026/03/19/world/europe/belarus-prisoners-fertilizer-potash-sanctions.html
+
+**Trump’s Planned White House Visitor Center Is Too Big, Arts Panel Says**\
+`The Commission of Fine Arts delayed a vote on the facility, a new, 33,000-square-foot security screening center for White House visitors, because of concerns over the design.`\
+https://nytimes.com/2026/03/19/us/politics/trump-white-house-visitor-center.html
+
+**After Period of Instability, BAM Names New President**\
+`Tamara McCaw, a longtime arts leader with experience at the Brooklyn Academy of Music, will lead it with a focus on stability.`\
+https://nytimes.com/2026/03/19/arts/music/bam-brooklyn-president-tamara-mccaw.html
+
+**What’s Going On in This Graph? | March 25, 2026**\
+`How do Americans feel about the affordability of education, housing, health care, having a family and retirement?`\
+https://nytimes.com/2026/03/19/learning/whats-going-on-in-this-graph-march-25-2026.html
+
+**What’s Going On in This Picture? | March 23, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2026/03/19/learning/whats-going-on-in-this-picture-march-23-2026.html
+
+**MLB further embraces sports betting in deal with prediction platform Polymarket**\
+`MLB is currently mired in a betting scandal involving several pitchers. MLB and Polymarket execs say deals like this make the game safer. `\
+https://nytimes.com/athletic/7131682/2026/03/19/mlb-deal-polymarket-prediction-markets/
+
+**The Planet’s Warning Signs Are Flashing Red**\
+`Climate scientists say many of the effects of climate change are happening faster than they predicted, the latest on the war in Iran and more news.`\
+https://nytimes.com/2026/03/19/climate/the-planets-warning-signs-climate-change.html
+
 **The Latest Toy to Jump to the Big Screen: Labubu**\
 `Pop Mart and Sony announced on Thursday that they were developing a feature film about the fuzzy trinkets. “It’s completely ruthless marketing,” one expert said.`\
 https://nytimes.com/2026/03/19/movies/labubu-movie-paul-king.html
 
-**Nebraska is no longer the only men's Power 4 program without a March Madness win**\
-`The win gave Nebraska a school record 27, breaking a tie with the Danny Nee-coached team of 1990-91.`\
+**Nebraska, finally, experiences NCAA Tournament success: 'It’s what I dreamed of'**\
+`Nebraska’s lack of a single win in the NCAA Tournament had come to define the program. That is no longer the case.`\
 https://nytimes.com/athletic/7131832/2026/03/19/nebraska-troy-ncaa-touranment-first-win/
-
-**Submit your Blackhawks mailbag questions**\
-`What questions do you have about the Blackhawks? Submit them here and Scott Powers and Mark Lazerus may answer them in an upcoming mailbag.`\
-https://nytimes.com/athletic/7131881/2026/03/19/submit-your-blackhawks-mailbag-questions/
-
-**Five New Books We Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://nytimes.com/2026/03/19/books/review/new-recommended-books.html
-
-**Bears' Caleb Williams pursuing trademark for 'Iceman' moniker**\
-`The trademark request seeks to use the nickname and logos on eyewear, posters, baggage, water bottles, apparel and sporting goods.`\
-https://nytimes.com/athletic/7131801/2026/03/19/caleb-williams-iceman-trademark-bears/
-
-**Is it time for Spurs to play Micky van de Ven at left-back like the Netherlands do?**\
-`Defensively, the role plays to his strengths and it would allow Kevin Danso to remain after impressing against Liverpool`\
-https://nytimes.com/athletic/7128108/2026/03/19/van-de-ven-leftback-tottenham-netherlands/
-
-**MLS reveals details of its 2027 sprint season before calendar flips**\
-`MLS is due to align with the European calendar in the summer of 2027. This is how the league will fill the first half of the year`\
-https://nytimes.com/athletic/7129315/2026/03/19/mls-sprint-season-details-2027-schedule/
-
-**Trump Administration Surveys Cornell Employees About Antisemitism**\
-`The Equal Employment Opportunity Commission sent a questionnaire to workers asking for detailed information about potential civil rights violations at the Ivy League school.`\
-https://nytimes.com/2026/03/19/us/trump-administration-cornell-employees-antisemitism-eeoc.html
-
-**Who owns Jack Hughes' golden-goal puck and what's it worth? We explain**\
-`Where is the puck, who owns it , how much is it worth and does Hughes still want it back? We answer these questions and more. `\
-https://nytimes.com/athletic/7131673/2026/03/19/jack-hughes-puck-controversy-winter-olympics-nhl/
 
