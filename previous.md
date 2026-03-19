@@ -1,7 +1,3 @@
-**Here’s What Happened in the War in the Middle East on Wednesday**\
-`A day of strikes on energy facilities and testimony in Washington to members of Congress.`\
-https://nytimes.com/2026/03/18/world/middleeast/heres-what-happened-in-the-war-in-the-middle-east-on-wednesday.html
-
 **Senate G.O.P. Again Blocks Bid to Stop Iran War Until Trump Wins Authorization**\
 `For the second time since the war began, Senate Democrats tried and failed to win passage of a resolution that would have halted the offensive until President Trump went to Congress for approval.`\
 https://nytimes.com/2026/03/18/us/politics/senate-republicans-trump-iran-war-authorization.html
@@ -37,4 +33,8 @@ https://nytimes.com/2026/03/18/us/women-california-politics-cesar-chavez.html
 **FEMA to Relaunch Climate Resiliency Grants, Complying With Court Order**\
 `A judge ruled in December that the agency could not cancel a program that had helped states invest billions of dollars in disaster readiness.`\
 https://nytimes.com/2026/03/18/climate/fema-bric-grants-relaunch.html
+
+**Bear That Clawed 2 People in California Is Euthanized, Orphaning Its Cubs**\
+`Officials in Monrovia, Calif., had lobbied state wildlife officers to relocate the bear and her two cubs to the Angeles National Forest instead.`\
+https://nytimes.com/2026/03/18/us/bear-euthanized-california-cubs-orphaned.html
 
