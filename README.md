@@ -1,3 +1,7 @@
+**Trump Administration Surveys Cornell Employees About Antisemitism**\
+`The Equal Employment Opportunity Commission sent a questionnaire to workers asking for detailed information about potential civil rights violations at the Ivy League school.`\
+https://nytimes.com/2026/03/19/us/trump-administration-cornell-employees-antisemitism-eeoc.html
+
 **Who owns Jack Hughes' golden-goal puck and what's it worth? We explain**\
 `Where is the puck, who owns it , how much is it worth and does Hughes still want it back? We answer these questions and more. `\
 https://nytimes.com/athletic/7131673/2026/03/19/jack-hughes-puck-controversy-winter-olympics-nhl/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/19/us/politics/trump-japan-pearl-harbor-oval-office-
 **Browns propose allowing teams to trade draft picks five years into future**\
 `The argument for the Browns' proposal is that it would allow for a more active trade market and more flexibility with roster building.`\
 https://nytimes.com/athletic/7131400/2026/03/19/nfl-rule-change-proposal-trade-draft-picks/
-
-**Remote Part of Australia Braces for ‘Significant’ Tropical System**\
-`Tropical Cyclone Narelle is expected to hit northern Queensland as the equivalent of a Category 4 hurricane.`\
-https://nytimes.com/2026/03/19/weather/tropical-cyclone-narelle-australia.html
 
