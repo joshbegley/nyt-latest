@@ -1,3 +1,11 @@
+**Nashville Reporter Released From ICE Custody**\
+`Estefany Maria Rodriguez Florez, who works for a Spanish-language outlet, was released on bond in a case that has raised concerns about press freedom.`\
+https://nytimes.com/2026/03/19/us/politics/nashville-reporter-released-ice-custody.html
+
+**Iran Combines Real-World Missile Attacks With Online Threats**\
+`Iran launched a missile strike, a disinformation push and a cyberattack targeting Israel all at the same time, analysts say.`\
+https://nytimes.com/2026/03/19/us/politics/iran-israel-information-campaign.html
+
 **Craig Counsell to Cubs hitting coaches: Don’t mess with Moisés Ballesteros**\
 `Cubs are trying to temper expectations around the prospect Ballesteros, who simply does not stop hitting.`\
 https://nytimes.com/athletic/7132376/2026/03/19/craig-counsell-cubs-moises-ballesteros/

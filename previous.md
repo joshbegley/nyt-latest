@@ -1,3 +1,11 @@
+**Nashville Reporter Released From ICE Custody**\
+`Estefany Maria Rodriguez Florez, who works for a Spanish-language outlet, was released on bond in a case that has raised concerns about press freedom.`\
+https://nytimes.com/2026/03/19/us/politics/nashville-reporter-released-ice-custody.html
+
+**Iran Combines Real-World Missile Attacks With Online Threats**\
+`Iran launched a missile strike, a disinformation push and a cyberattack targeting Israel all at the same time, analysts say.`\
+https://nytimes.com/2026/03/19/us/politics/iran-israel-information-campaign.html
+
 **Craig Counsell to Cubs hitting coaches: Don’t mess with Moisés Ballesteros**\
 `Cubs are trying to temper expectations around the prospect Ballesteros, who simply does not stop hitting.`\
 https://nytimes.com/athletic/7132376/2026/03/19/craig-counsell-cubs-moises-ballesteros/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7132365/2026/03/19/nfl-free-agency-fallers-dolphins
 **Jeff Bezos in Talks to Raise $100 Billion Fund to Transform Companies With A.I.**\
 `The new fund would operate alongside the Amazon founder’s A.I. start-up, Project Prometheus.`\
 https://nytimes.com/2026/03/19/technology/jeff-bezos-ai-fund-project-prometheus.html
-
-**Trump’s Handpicked Arts Commission Approves Gold Coin With His Face on It**\
-`Many of America’s founders were fiercely against taking steps that would make its government officials appear like kings, and that included featuring them on the country’s coins.`\
-https://nytimes.com/2026/03/19/us/politics/trump-gold-coin.html
-
-**Cesar Chavez Avenue May Soon Be Gone. Yet to Be Confronted: His Legacy.**\
-`After the revelations of sex abuse, the public is left to make sense of the labor leader’s work and life.`\
-https://nytimes.com/2026/03/19/us/politics/cesar-chavez-memorials-renaming.html
 
