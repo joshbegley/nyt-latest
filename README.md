@@ -1,3 +1,23 @@
+**A Receipt**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2026/03/19/learning/a-receipt.html
+
+**Home Health Care Aides Say It’s Time to End ‘Inhumane’ 24-Hour Shifts**\
+`The aides want the New York City Council to to pass a law that would limit their shifts to 12 hours, except in the case of emergencies.`\
+https://nytimes.com/2026/03/19/nyregion/home-care-aides-working-conditions.html
+
+**The Wealthy House Candidate With a History of Bawdy Facebook Posts**\
+`The social media habits of Peter Chatzky, a tech executive who is running to unseat Representative Mike Lawler in New York, show a penchant for crude jokes.`\
+https://nytimes.com/2026/03/19/nyregion/peter-chatzky-facebook-posts.html
+
+**E.U. Loan for Ukraine Becomes Election Leverage for Orban**\
+`European leaders are pushing Prime Minister Viktor Orban to stop blocking a €90 billion loan to Ukraine. But the issue is a rallying cry in remarkably close elections in Hungary set for April 12.`\
+https://nytimes.com/2026/03/19/world/europe/ukraine-hungary-orban-elections.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/19/crosswords/spelling-bee-forum.html
+
 **Here’s the latest.**\
 `By Francesca Regalado, Ravi Mattu, Rebecca Elliott and River Akira Davis`\
 https://nytimes.com/live/2026/03/19/world/iran-war-news-trump-oil/heres-the-latest
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7129860/2026/03/19/barcelona-raphinha-champions-lea
 **Salah shows he still has the swagger of old and remains a match-winner**\
 `The Egyptian has endured a difficult season but he was heavily involved against Galatasaray, recovering well from a missed penalty`\
 https://nytimes.com/athletic/7129576/2026/03/19/mohamed-salah-liverpool-galatasaray/
-
-**The night Spurs rediscovered their pride**\
-`Tottenham produced their best performance of the season against Atletico, now they need to replicate it against Nottingham Forest on Sunday`\
-https://nytimes.com/athletic/7125020/2026/03/19/tottenham-atletico-champions-league-relegation-battle/
-
-**Word of the Day: immaterial**\
-`This word has appeared in 66 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/03/19/learning/word-of-the-day-immaterial.html
-
-**How fit do you need to be to play first-class cricket? The Athletic found out**\
-`Lancashire County Cricket Club opened their doors as the first-team squad reported back for pre-season testing, from time trials to planks`\
-https://nytimes.com/athletic/7128087/2026/03/19/cricket-fitness-pre-season-lancashire/
-
-**How Manchester United are trying to develop their centre-back 'cat' Leny Yoro**\
-`The 20-year-old says coaches Jonny Evans and Jonathan Woodgate have helped improve his defending`\
-https://nytimes.com/athletic/7110936/2026/03/19/leny-yoro-manchester-united-cat/
-
-**How to navigate FPL’s blank gameweek with only free transfers**\
-`It's more important to own quality over quantity in a blank gameweek. If you have the core template players, that can be enough to carry you`\
-https://nytimes.com/athletic/7127893/2026/03/19/fantasy-premier-leagues-fpl-tips-blank-gameweek-31/
 
