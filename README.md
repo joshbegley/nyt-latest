@@ -1,3 +1,11 @@
+**Auston Matthews undergoes MCL surgery one week after knee-on-knee hit**\
+`After Thursday's surgery, Matthews will face an approximately 12-week recovery time.`\
+https://nytimes.com/athletic/7132319/2026/03/19/auston-matthews-surgery-maple-leafs-injury-recovery/
+
+**Horror Novel ‘Shy Girl’ Canceled Over Suspected A.I. Use**\
+`Its publisher, Hachette, will not release the novel in the United States and will discontinue its U.K. edition, citing its commitment to “original creative expression and storytelling.”`\
+https://nytimes.com/2026/03/19/books/shy-girl-book-ai.html
+
 **Trump Says He Won’t Send Troops to Iran But Leaves Wiggle Room**\
 `The president was cagey about his plans for Iran. He confirmed the Pentagon was seeking $200 billion to support a protracted war effort while also claiming it would be over soon.`\
 https://nytimes.com/2026/03/19/world/middleeast/trump-iran-us-troops.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/19/world/noma-restaurant-iran-oil-ozempic.html
 **How injuries to Bennett Sousa and Josh Hader will alter Astros' bullpen plans**\
 `Sousa seemed a lock for both the Opening Day roster until he injured his left oblique in a Grapefruit League game.`\
 https://nytimes.com/athletic/7132096/2026/03/19/astros-bennett-sousa-josh-hader-injuries-bullpen-plans/
-
-**Islanders announce relocation of AHL affiliate from Bridgeport to Hamilton**\
-`The team will play out of the TD Coliseum starting the 2026-27 season and the move still awaits approval from the AHL's Board of Governors.`\
-https://nytimes.com/athletic/7132223/2026/03/19/islanders-bridgeport-hamilton-ahl-affiliate-relocation-team/
-
-**High Point's Flynn Clayman after upset of Wisconsin: 'We played somebody now'**\
-`After his Panthers upset the Badgers in the NCAA Tournament, coach Flynn Clayman called out those who question mid-majors like High Point.`\
-https://nytimes.com/athletic/7132212/2026/03/19/high-point-wisconsin-flynn-clayman-upset-ncaa/
 
