@@ -1,3 +1,15 @@
+**Broncos mailbag: Submit your questions for beat writer Nick Kosmider**\
+`What's next for Denver after its splash acquisition of wide receiver Jaylen Waddle?`\
+https://nytimes.com/athletic/7131485/2026/03/19/broncos-mailbag-request-2026-draft/
+
+**Lawsuit Accuses Justice Dept. Leadership of ‘Political Retribution’**\
+`The suit filed by two fired F.B.I. agents aimed to hold the Trump administration accountable for the purge of personnel who had worked on the investigations of Mr. Trump or his allies.`\
+https://nytimes.com/2026/03/19/us/politics/fbi-retribution-lawsuit.html
+
+**New report proposes 'ground-breaking' solution to English football's financial issues**\
+`Fair Game issued proposals it believes could end the ongoing deadlock regarding how money is distributed through the pyramid.`\
+https://nytimes.com/athletic/7131039/2026/03/19/fair-game-report-english-football-finances/
+
 **U.K. Advisers Help U.S. Develop Options to Reopen Strait of Hormuz**\
 `The move comes after President Trump sharply criticized Prime Minister Keir Starmer for not supporting his initial military strikes on Iran.`\
 https://nytimes.com/2026/03/19/world/middleeast/uk-us-strait-of-hormuz-reopening-plans.html
