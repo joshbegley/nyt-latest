@@ -1,3 +1,7 @@
+**Islanders announce relocation of AHL affiliate from Bridgeport to Hamilton**\
+`The team will play out of the TD Coliseum starting the 2026-27 season and the move still awaits approval from the AHL's Board of Governors.`\
+https://nytimes.com/athletic/7132223/2026/03/19/islanders-bridgeport-hamilton-ahl-affiliate-relocation-team/
+
 **High Point's Flynn Clayman after upset of Wisconsin: 'We played somebody now'**\
 `After his Panthers upset the Badgers in the NCAA Tournament, coach Flynn Clayman called out those who question mid-majors like High Point.`\
 https://nytimes.com/athletic/7132212/2026/03/19/high-point-wisconsin-flynn-clayman-upset-ncaa/
@@ -33,8 +37,4 @@ https://nytimes.com/wirecutter/reviews/veer-cruiser-xl-stroller-wagon-review/
 **Student Freed From ICE Detention Worries About Those Left Behind**\
 `Dylan Lopez Contreras, the first known New York City public school student to be taken by federal agents last year, said he would “continue fighting” for migrants who remained in detention.`\
 https://nytimes.com/2026/03/19/nyregion/nyc-high-school-student-ice-freed.html
-
-**Five things about Panthers LB Devin Lloyd: He plays one speed — fast**\
-`"You can’t help but be optimistic for the future and what we’re gonna do on Sundays," Lloyd said Thursday.`\
-https://nytimes.com/athletic/7132016/2026/03/19/panthers-devin-lloyd-defense-free-agency/
 
