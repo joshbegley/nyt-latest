@@ -1,3 +1,7 @@
+**Jack Hughes clarifies comments about golden goal puck in HHOF: 'Honored that it's there'**\
+`A Devils spokesperson said that Hughes wasn't previously aware of the IIHF's process regarding pucks from international competitions.`\
+https://nytimes.com/athletic/7130114/2026/03/18/jack-hughes-hhof-golden-goal-puck-devils/
+
 **Joseph Duggar of ‘19 Kids and Counting’ Faces Child Sex Abuse Charges**\
 `Mr. Duggar, a former star of the TLC reality show, was arrested in Arkansas and was awaiting extradition to Florida, where the authorities said he molested a 9-year-old girl in 2020.`\
 https://nytimes.com/2026/03/18/us/joseph-duggar-arrest-child-sex-abuse.html
