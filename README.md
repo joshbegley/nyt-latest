@@ -23,7 +23,7 @@ https://nytimes.com/2026/03/19/crosswords/spelling-bee-forum.html
 https://nytimes.com/live/2026/03/19/world/iran-war-news-trump-oil/heres-the-latest
 
 **Iran War Live Updates: Qatar Reports More Attacks on Energy Infrastructure as Oil Prices Rise**\
-`Qatar blamed Tehran for strikes on its natural gas facilities, a day after Iran’s largest natural gas source was hit. The price of oil climbed to $113 a barrel as uncertainty over the war’s impacts on energy supplies grew.`\
+`Qatar blamed Tehran for strikes on its natural gas facilities, a day after Iran’s largest natural gas source was hit. The price of oil climbed to $114 a barrel as uncertainty over the war’s impacts on energy supplies grew.`\
 https://nytimes.com/live/2026/03/19/world/iran-war-news-trump-oil
 
 **Late Night Tells the Tale of the Dueling Senators**\
