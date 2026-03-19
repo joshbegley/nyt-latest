@@ -1,3 +1,23 @@
+**FIFA rules women's teams must have a woman as head or assistant coach**\
+`In competitions under the football governing body's remit, each team must have at least two female staff on their bench. `\
+https://nytimes.com/athletic/7130675/2026/03/19/fifa-womens-coach-rules/
+
+**Jerusalem’s Old City sustains some damage after being largely spared in years of fighting.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2026/03/19/world/iran-war-news-trump-oil/jerusalems-old-city-sustains-some-damage-after-being-largely-spared-in-years-of-fighting
+
+**How to watch Arizona State vs. Virginia women's basketball: First Four Time, TV, streaming**\
+`Find out how to watch the Arizona State Sun Devils play the Virginia Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7131704/2026/03/19/arizona-state-vs-virginia-stream-how-to-watch-march-19/
+
+**Trump Jokes About Pearl Harbor in Meeting With Japan’s Leader**\
+`Breaking a taboo, President Trump needled Japan’s prime minister about the World War II attack, as she widened her eyes and appeared to take a deep breath in the Oval Office.`\
+https://nytimes.com/2026/03/19/us/politics/trump-japan-pearl-harbor-oval-office-takaichi.html
+
+**Browns propose allowing teams to trade draft picks five years into future**\
+`The argument for the Browns' proposal is that it would allow for a more active trade market and more flexibility with roster building.`\
+https://nytimes.com/athletic/7131400/2026/03/19/nfl-rule-change-proposal-trade-draft-picks/
+
 **Remote Part of Australia Braces for ‘Significant’ Tropical System**\
 `Tropical Cyclone Narelle is expected to hit northern Queensland as the equivalent of a Category 4 hurricane.`\
 https://nytimes.com/2026/03/19/weather/tropical-cyclone-narelle-australia.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7131659/2026/03/19/blackhawks-vs-wild-stream-how-to
 **How to watch Panthers vs. Oilers: Time, TV, streaming**\
 `Find out how to watch the Florida Panthers play the Edmonton Oilers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7131651/2026/03/19/panthers-vs-oilers-stream-how-to-watch-march-19/
-
-**How to watch Kraken vs. Predators: Time, TV, streaming**\
-`Find out how to watch the Seattle Kraken play the Nashville Predators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7131649/2026/03/19/kraken-vs-predators-stream-how-to-watch-march-19/
-
-**WNBA's historic collective bargaining agreement is worth toasting ... for now**\
-`The massive salary gains are rightfully celebrated, but if the league's trajectory continues, the financials may seem outdated soon.`\
-https://nytimes.com/athletic/7131466/2026/03/19/wnba-cba-labor-agreement-history/
-
-**How does Cade Cunningham’s collapsed lung impact the East Conference playoff race?**\
-`Cade Cunningham's injury for the No. 1 seed Pistons could open the door for their Eastern Conference rivals. `\
-https://nytimes.com/athletic/7131229/2026/03/19/pistons-cade-cunningham-lung-injury-playoffs/
-
-**‘Miroirs No. 3’ Review: Kindness and Its Reverse Image**\
-`In the lovely new movie from the acclaimed German director Christian Petzold (“Barbara”), a woman wakes to life after an accident.`\
-https://nytimes.com/2026/03/19/movies/miroirs-no-3-review-christian-petzold.html
-
-**Reports of Sexual Abuse by Cesar Chavez**\
-`Readers react to the Times investigation of the labor leader and civil rights icon. Also: A decision on vaccines; shielding lawyers.`\
-https://nytimes.com/2026/03/19/opinion/cesar-chavez-sexual-abuse.html
 

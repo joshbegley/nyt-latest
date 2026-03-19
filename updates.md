@@ -1,3 +1,11 @@
+**Remote Part of Australia Braces for ‘Significant’ Tropical System**\
+`Tropical Cyclone Narelle is expected to hit northern Queensland as the equivalent of a Category 4 hurricane.`\
+https://nytimes.com/2026/03/19/weather/tropical-cyclone-narelle-australia.html
+
+**U.S. Encourages Flow of Iranian Oil While It Battles Iran**\
+`Treasury Secretary Scott Bessent said removing sanctions on Iranian oil would lower global prices.`\
+https://nytimes.com/2026/03/19/us/politics/iran-oil-sanctions.html
+
 **She Died After Her Pacemaker Battery Failed. Its Maker Knew of Problems for Years.**\
 `Boston Scientific announced multiple recalls but has said its battery issues were limited. One internal test in 2025 found batteries with an “extremely high failure rate.”`\
 https://nytimes.com/2026/03/19/business/pacemakers-batteries-recall-boston-scientific.html
