@@ -1,3 +1,23 @@
+**She Died After Her Pacemaker Battery Failed. Its Maker Knew of Problems for Years.**\
+`Boston Scientific announced multiple recalls but has said its battery issues were limited. One internal test in 2025 found batteries with an “extremely high failure rate.”`\
+https://nytimes.com/2026/03/19/business/pacemakers-batteries-recall-boston-scientific.html
+
+**How to watch Blackhawks vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Chicago Blackhawks play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7131659/2026/03/19/blackhawks-vs-wild-stream-how-to-watch-march-19/
+
+**How to watch Panthers vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7131651/2026/03/19/panthers-vs-oilers-stream-how-to-watch-march-19/
+
+**How to watch Kraken vs. Predators: Time, TV, streaming**\
+`Find out how to watch the Seattle Kraken play the Nashville Predators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7131649/2026/03/19/kraken-vs-predators-stream-how-to-watch-march-19/
+
+**WNBA's historic collective bargaining agreement is worth toasting ... for now**\
+`The massive salary gains are rightfully celebrated, but if the league's trajectory continues, the financials may seem outdated soon.`\
+https://nytimes.com/athletic/7131466/2026/03/19/wnba-cba-labor-agreement-history/
+
 **How does Cade Cunningham’s collapsed lung impact the East Conference playoff race?**\
 `Cade Cunningham's injury for the No. 1 seed Pistons could open the door for their Eastern Conference rivals. `\
 https://nytimes.com/athletic/7131229/2026/03/19/pistons-cade-cunningham-lung-injury-playoffs/
