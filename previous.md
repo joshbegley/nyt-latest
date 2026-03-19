@@ -1,40 +1,40 @@
-**Flyers' Jamie Drysdale opens up about breakthrough season: 'This is who I am'**\
-`After a tough start to his career in Anaheim, the defenseman is finding himself and his game with the Flyers.`\
-https://nytimes.com/athletic/7129998/2026/03/19/flyers-jamie-drysdale-breakthrough-season/
+**Yankees' Opening Day roster is coming into sharper focus as hints emerge**\
+`We have a clearer idea of who will be with the Yankees to begin the season, but questions remain, particularly on the pitching side. `\
+https://nytimes.com/athletic/7128754/2026/03/19/yankees-opening-day-roster-bullpen/
 
-**Reds prospects to watch in Spring Breakout game against the Giants**\
-`Many of the Reds' top prospects will be on the field when MLB's Spring Breakout returns on Thursday.`\
-https://nytimes.com/athletic/7129741/2026/03/19/reds-prospects-to-watch-spring-breakout/
+**LeBron James just about perfect in another win for red-hot Lakers**\
+`The 41-year-old went 13-for-14 from the field, his most efficient shooting performance since a 2013 game against the Charlotte Bobcats.`\
+https://nytimes.com/athletic/7130315/2026/03/19/lebron-james-lakers-win-seven-straight/
 
-**Maple Leafs face biggest offseason question under pall of injury: Will Auston Matthews stay?**\
-`Amid controversy, an unsavory discussion point has gone largely unspoken: the possibility we've seen Auston Matthews' last act in Toronto.`\
-https://nytimes.com/athletic/7129542/2026/03/19/maple-leafs-auston-matthews-future-trade/
+**TAFC: Slot's relief, more AFCON fallout and Messi scores 900th goal**\
+`The Champions League quarter-finals are set, but it is sharing the limelight with big football stories around the world`\
+https://nytimes.com/athletic/7130456/2026/03/19/slot-afcon-messi-tafc/
 
-**7 questions with the Cardinals' Chaim Bloom: Offseason trades, what he learned in Boston and more**\
-`The Cardinals' president of baseball operations talks to The Athletic about his first official offseason on the job.`\
-https://nytimes.com/athletic/7129163/2026/03/19/chaim-bloom-st-louis-cardinals-baseball/
+**Seahawks post-free-agency mailbag: Could John Schneider make a splash trade?**\
+`Readers also had plenty of questions about why Ken Walker III left Seattle and whom the Seahawks might target in the draft.`\
+https://nytimes.com/athletic/7129350/2026/03/19/seahawks-free-agency-nfl-draft-mailbag/
 
-**The Pulse: Wake up, the basketball is here**\
-`Welcome to The Pulse, The Athletic's daily newsletter.`\
-https://nytimes.com/athletic/7129230/2026/03/19/ncaa-tournament-first-round-the-pulse/
+**Siegel: Why the Maple Leafs shouldn't just tear it all down this offseason**\
+`The Maple Leafs are about to enter a daunting offseason and a full roster teardown this summer is far from foolproof.`\
+https://nytimes.com/athletic/7126881/2026/03/19/maple-leafs-nhl-offseason-auston-matthews/
 
-**How the Commanders' free agency moves set them up well for the draft**\
-`After a disappointing season, Washington's focus is back to building a foundation, and its free-agency moves provided plenty of options.`\
-https://nytimes.com/athletic/7118289/2026/03/19/commanders-free-agency-moves-draft/
+**Once a promising MLB prospect, Alex Kirilloff is all in on real estate and happier for it**\
+`After he stunned the baseball world with an early retirement, the former top prospect is happy he traded his bat for a real estate license.`\
+https://nytimes.com/athletic/7129303/2026/03/19/twins-alex-kirilloff-second-career-real-estate/
 
-**Bears' NFL Draft big board: Safety, edge top growing list of needs**\
-`After a flurry of moves to start the 2026 league year, the Bears still have needs all over their defense. Who could they look to draft?`\
-https://nytimes.com/athletic/7129131/2026/03/19/bears-nfl-draft-big-board-safety-edge/
+**Who are the top WNBA free agents? Get ready for a wild offseason after a new CBA deal**\
+`More money is on the table after a new collective bargaining agreement. With more than 100 free agents, will star players make big moves?`\
+https://nytimes.com/athletic/7130255/2026/03/19/wnba-free-agents-offseason-cba/
 
-**Rangers' rivalry woes persist as Jack Hughes continues dominant stretch**\
-`The Rangers have one chance left to avoid posting their first season with no wins against the Devils and Islanders in franchise history.`\
-https://nytimes.com/athletic/7130195/2026/03/19/rangers-rivalry-jack-hughes-devils/
+**This Week in Sports Trivia: March 19, 2026**\
+`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
+https://nytimes.com/athletic/7128550/2026/03/19/this-week-in-sports-trivia-march-19-2026/
 
-**Crosby scores in return, but Penguins drop a wild one in overtime**\
-`The Penguins and Hurricanes played another thriller, this one in Sidney Crosby's return, tying an NHL record in the process.`\
-https://nytimes.com/athletic/7128831/2026/03/19/penguins-crosby-return-karlsson-skinner-overtime-hurricanes/
+**How to watch Women’s March Madness First Four: Schedule, TV and odds for Day 2**\
+`March Madness continues with Day 2 of the women's First Four, featuring Samford vs. Southern and Arizona State vs. Virginia. `\
+https://nytimes.com/athletic/7129449/2026/03/19/march-madness-first-four-arizona-state-virginia-how-to-watch/
 
-**Breaking down Lionel Messi's 900 career goals**\
-`As soccer's greatest-ever player has hit another milestone, Will Jeanes crunches his astonishing numbers`\
-https://nytimes.com/athletic/6842374/2026/03/19/lionel-messi-900-goals-breakdown/
+**What I'm seeing at Tigers camp: Casey Mize, Justin Verlander and an odd injury**\
+`As Opening Day nears, two of Detroit's back-end starters — Mize and Verlander — have struggled during spring training.`\
+https://nytimes.com/athletic/7130004/2026/03/19/tigers-camp-casey-mize-justin-verlander/
 
