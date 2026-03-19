@@ -1,3 +1,7 @@
+**The Idiot**\
+``\
+https://nytimes.com/column/the-idiot
+
 **More Cesar Chavez Fallout Expected After Sex Abuse Accusations**\
 `Some states and cities have canceled their observances of Cesar Chavez Day on March 31. Los Angeles leaders said they planned to change the holiday to “Farm Workers Day” and untether it from Mr. Chavez’s birthday.`\
 https://nytimes.com/2026/03/19/us/cesar-chavez-sex-abuse-fallout.html
