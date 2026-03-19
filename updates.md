@@ -1,3 +1,7 @@
+**Iran War Live Updates: Qatar Reports More Attacks on Energy Infrastructure as Oil Prices Rise**\
+`Qatar blamed Tehran for strikes on its natural gas facilities, a day after Iran’s largest natural gas source was hit. The price of oil climbed to $113 a barrel as uncertainty over the war’s impacts on energy supplies grew.`\
+https://nytimes.com/live/2026/03/19/world/iran-war-news-trump-oil
+
 **A Receipt**\
 `What do you think this image is communicating?`\
 https://nytimes.com/2026/03/19/learning/a-receipt.html
