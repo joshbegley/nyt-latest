@@ -1,3 +1,15 @@
+**‘Africa Will Write Its Own History.’ Who Was Patrice Lumumba?**\
+`Remembering the African leader after a Brussels court this week ordered a retired Belgian diplomat stand trial for his 1961 assassination.`\
+https://nytimes.com/2026/03/19/world/africa/patrice-lumumba-assassination-congo-belgium.html
+
+**Does the Perfect Margarita Exist and More Reader Questions**\
+`Becky Hughes answers your most pressing, hyperspecific restaurant questions.`\
+https://nytimes.com/2026/03/19/dining/does-the-perfect-margarita-exist-and-more-reader-questions.html
+
+**How to watch Saint Louis vs. Georgia men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Saint Louis Billikens play the Georgia Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7132179/2026/03/19/saint-louis-vs-georgia-stream-how-to-watch-march-19/
+
 **Back with Phillies, Bryce Harper is zoned in on better at-bats, 140-walks goal**\
 `For Harper, everything is about his decisions in 0-0 counts. He is focused on being more selective and has set an ambitious walks goal.`\
 https://nytimes.com/athletic/7131978/2026/03/19/bryce-harper-phillies-wbc-walk-goal/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7131971/2026/03/19/tampa-bay-rays-roof-patches/
 **How to watch Flyers vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Flyers play the Los Angeles Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7132075/2026/03/19/flyers-vs-kings-stream-how-to-watch-march-19/
-
-**How to watch Mammoth vs. Golden Knights: Time, TV, streaming**\
-`Find out how to watch the Utah Mammoth play the Vegas Golden Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7132068/2026/03/19/mammoth-vs-golden-knights-stream-how-to-watch-march-19/
-
-**How to watch Sabres vs. Sharks: Time, TV, streaming**\
-`Find out how to watch the Buffalo Sabres play the San Jose Sharks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7132061/2026/03/19/sabres-vs-sharks-stream-how-to-watch-march-19/
-
-**Elizabeth Warren Backs Graham Platner in Maine, Splitting With Chuck Schumer**\
-`The intervention by Ms. Warren is the latest instance of her embracing a candidate at odds with Mr. Schumer, the top Senate Democrat.`\
-https://nytimes.com/2026/03/19/us/politics/elizabeth-warren-graham-platner-maine-schumer-senate.html
 

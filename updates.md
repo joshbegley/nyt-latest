@@ -1,3 +1,15 @@
+**‘Africa Will Write Its Own History.’ Who Was Patrice Lumumba?**\
+`Remembering the African leader after a Brussels court this week ordered a retired Belgian diplomat stand trial for his 1961 assassination.`\
+https://nytimes.com/2026/03/19/world/africa/patrice-lumumba-assassination-congo-belgium.html
+
+**Does the Perfect Margarita Exist and More Reader Questions**\
+`Becky Hughes answers your most pressing, hyperspecific restaurant questions.`\
+https://nytimes.com/2026/03/19/dining/does-the-perfect-margarita-exist-and-more-reader-questions.html
+
+**How to watch Saint Louis vs. Georgia men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Saint Louis Billikens play the Georgia Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7132179/2026/03/19/saint-louis-vs-georgia-stream-how-to-watch-march-19/
+
 **Back with Phillies, Bryce Harper is zoned in on better at-bats, 140-walks goal**\
 `For Harper, everything is about his decisions in 0-0 counts. He is focused on being more selective and has set an ambitious walks goal.`\
 https://nytimes.com/athletic/7131978/2026/03/19/bryce-harper-phillies-wbc-walk-goal/
