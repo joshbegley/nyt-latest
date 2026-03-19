@@ -1,3 +1,11 @@
+**The Pulse: Wake up, the basketball is here**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/7129230/2026/03/19/ncaa-tournament-first-round-the-pulse/
+
+**How the Commanders' free agency moves set them up well for the draft**\
+`After a disappointing season, Washington's focus is back to building a foundation, and its free-agency moves provided plenty of options.`\
+https://nytimes.com/athletic/7118289/2026/03/19/commanders-free-agency-moves-draft/
+
 **Bears' NFL Draft big board: Safety, edge top growing list of needs**\
 `After a flurry of moves to start the 2026 league year, the Bears still have needs all over their defense. Who could they look to draft?`\
 https://nytimes.com/athletic/7129131/2026/03/19/bears-nfl-draft-big-board-safety-edge/
