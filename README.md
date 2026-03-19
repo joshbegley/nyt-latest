@@ -1,3 +1,11 @@
+**The Pulse: Wake up, the basketball is here**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/7129230/2026/03/19/ncaa-tournament-first-round-the-pulse/
+
+**How the Commanders' free agency moves set them up well for the draft**\
+`After a disappointing season, Washington's focus is back to building a foundation, and its free-agency moves provided plenty of options.`\
+https://nytimes.com/athletic/7118289/2026/03/19/commanders-free-agency-moves-draft/
+
 **Bears' NFL Draft big board: Safety, edge top growing list of needs**\
 `After a flurry of moves to start the 2026 league year, the Bears still have needs all over their defense. Who could they look to draft?`\
 https://nytimes.com/athletic/7129131/2026/03/19/bears-nfl-draft-big-board-safety-edge/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7128992/2026/03/19/ncaa-tournament-march-madness-ty
 **Inside women's football transfers: Data, pathways and ‘speed dating’**\
 `The women’s football market is still in its relative infancy. More professionals are looking to connect and build data-driven models`\
 https://nytimes.com/athletic/7125392/2026/03/19/transferroom-womens-marketplace-football-transfer-window-transparency/
-
-**Colton Herta sacrificed IndyCar stability for F2 risk, all to chase an F1 dream**\
-`The 25-year-old has been on the brink of F1 for several seasons. Cadillac's arrival offers his best shot, but via an unusual route in F2`\
-https://nytimes.com/athletic/7128590/2026/03/19/colton-herta-cadillac-f1-indycar/
-
-**Why is Trae Young playing right now? To 'build that chemistry' with Wizards teammates**\
-`The Wizards should use their last 14 games to begin to explore the possibilities of what they could look like with their real roster.`\
-https://nytimes.com/athletic/7125627/2026/03/19/trae-young-washington-wizards/
 
