@@ -1,3 +1,11 @@
+**Fernandez ‘very happy’ at Chelsea, Chalobah out for six weeks - Rosenior**\
+`Chalobah rolled his right ankle in a tackle from PSG's Achraf Hakimi and said after the game it "should be broken".`\
+https://nytimes.com/athletic/7128270/2026/03/19/enzo-fernandez-trevoh-chalobah-chelsea-transfer-injury-update/
+
+**Leeds' Stach earns Germany recall, four years after last appearance**\
+`Stach has played twice for Germany, with both appearances coming in 2022 under Hansi Flick.`\
+https://nytimes.com/athletic/7131040/2026/03/19/leeds-anton-stach-germany-recall/
+
 **The Bounce: Choosing a side in Giannis vs. Bucks. Plus, the madness begins!**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7130858/2026/03/19/giannis-bucks-dispute-march-madness-prospects-the-bounce/

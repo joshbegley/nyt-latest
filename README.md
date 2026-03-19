@@ -1,3 +1,7 @@
+**Central Banks Brace for Faster Inflation as Energy Prices Surge**\
+`Traders expect Europe’s central bankers to raise rates several times this year to address a sharp increase in inflation because of higher energy prices.`\
+https://nytimes.com/2026/03/19/business/economy/boe-ecb-interest-rates-inflation.html
+
 **Fernandez ‘very happy’ at Chelsea, Chalobah out for six weeks - Rosenior**\
 `Chalobah rolled his right ankle in a tackle from PSG's Achraf Hakimi and said after the game it "should be broken".`\
 https://nytimes.com/athletic/7128270/2026/03/19/enzo-fernandez-trevoh-chalobah-chelsea-transfer-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010789342/qatar-iran-attack-ene
 **Congress’s Renewed Clash Over a Major Surveillance Law, Explained**\
 `A warrantless wiretapping law known as Section 702 is set to expire on April 20 unless Congress votes to extend it. Past cycles have been rocky.`\
 https://nytimes.com/article/section-702-surveillance-law.html
-
-**Mending Ceramics and Slowing Time With the Japanese Art of Kintsugi**\
-`Plus: a guide to Honolulu’s Kaimuki neighborhood, a ski-in, ski-out guesthouse in Austria and more recommendations from T Magazine.`\
-https://nytimes.com/2026/03/19/t-magazine/ceramics-kintsugi-classes.html
 
