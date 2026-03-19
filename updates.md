@@ -1,3 +1,7 @@
+**Is it time for Spurs to play Micky van de Ven at left-back like the Netherlands do?**\
+`Defensively, the role plays to his strengths and it would allow Kevin Danso to remain after impressing against Liverpool`\
+https://nytimes.com/athletic/7128108/2026/03/19/van-de-ven-leftback-tottenham-netherlands/
+
 **Bears' Caleb Williams pursuing trademark for 'Iceman' moniker**\
 `The trademark request seeks to use the nickname and logos on eyewear, posters, baggage, water bottles, apparel and sporting goods.`\
 https://nytimes.com/athletic/7131801/2026/03/19/caleb-williams-iceman-trademark-bears/
