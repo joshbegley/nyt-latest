@@ -1,3 +1,19 @@
+**How to watch Siena vs. Duke men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Siena Saints play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7130637/2026/03/19/siena-vs-duke-stream-how-to-watch-march-19/
+
+**How to watch High Point vs. Wisconsin men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the High Point Panthers play the Wisconsin Badgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7130626/2026/03/19/high-point-vs-wisconsin-stream-how-to-watch-march-19/
+
+**How to watch McNeese vs. Vanderbilt men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the McNeese Cowboys play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7130624/2026/03/19/mcneese-vs-vanderbilt-stream-how-to-watch-march-19/
+
+**Why Victor Wembanyama is the NBA's MVP — even if he doesn't win the award**\
+`Wembanyama has led the Spurs to the NBA's second-best record. His competitiveness has also breathed life into the league. `\
+https://nytimes.com/athletic/7130414/2026/03/19/victor-wembanyama-mvp-spurs-column/
+
 **The Markets Contend With Powell’s Long Goodbye**\
 `The chair of the Federal Reserve said that he might not leave the central bank any time soon, setting up a potential clash with President Trump.`\
 https://nytimes.com/2026/03/19/business/dealbook/jay-powell-fed-chair-markets.html
