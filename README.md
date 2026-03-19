@@ -1,10 +1,14 @@
+**Jane Lapotaire, British Actress Who Won a Tony for ‘Piaf,’ Dies at 81**\
+`In a distinguished career in classical and contemporary plays, she drew acclaim on both sides of the Atlantic for her dramatic portrayal of the French singer Édith Piaf.`\
+https://nytimes.com/2026/03/19/theater/jane-lapotaire-dead.html
+
 **Have You Turned to A.I. For Advice on a Romantic Relationship?**\
 `People are using generative A.I. chatbots for help on everything from starting to ending a relationship. Have you? How did it turn out?`\
 https://nytimes.com/2026/03/19/technology/have-you-turned-to-ai-for-advice-on-a-romantic-relationship.html
 
 **Tampa Bay Rays will wear patches stitched with pieces of wrecked Tropicana Field roof**\
 `As the Rays move back into their hurricane-damaged stadium, their new patch with Webull offers a tangible reminder of the long road there.`\
-https://nytimes.com/athletic/7131971/2026/03/19/tampa-bay-rays-will-wear-patches-stitched-with-pieces-of-wrecked-tropicana-field-roof/
+https://nytimes.com/athletic/7131971/2026/03/19/tampa-bay-rays-roof-patches/
 
 **How to watch Flyers vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Flyers play the Los Angeles Kings, with time, TV channel and streaming information.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7131462/2026/03/19/american-league-east-preview-the
 **RT Reporter and Cameraman Injured by Israeli Strike in Lebanon**\
 `A British correspondent for RT, the Russian state broadcaster, and his cameraman were wounded in an Israeli strike near a bridge in southern Lebanon on Thursday, the network said.`\
 https://nytimes.com/video/world/middleeast/100000010789510/lebanon-airstrikes-isreal-iran-war.html
-
-**How to watch 76ers vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Philadelphia 76ers play the Sacramento Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7131996/2026/03/19/76ers-vs-kings-stream-how-to-watch-march-19/
 
