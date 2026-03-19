@@ -1,3 +1,7 @@
+**Heat intend to waive guard Terry Rozier: Source**\
+`The move is more likely to happen closer to the end of the regular season, so the Heat can fill Rozier's roster spot for the playoffs.`\
+https://nytimes.com/athletic/7132671/2026/03/19/terry-rozier-miami-heat-waive/
+
 **The NCAA Tournament upsets to watch for in the second round**\
 `The first double-digit seed is through to the second round of the men's NCAA Tournament. How far can the High Point Panthers go?`\
 https://nytimes.com/athletic/7132351/2026/03/19/ncaa-tournament-second-round-upsets-most-likely/
