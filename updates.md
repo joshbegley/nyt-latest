@@ -1,3 +1,11 @@
+**How fit do you need to be to play first-class cricket? The Athletic found out**\
+`Lancashire County Cricket Club opened their doors as the first-team squad reported back for pre-season testing, from time trials to planks`\
+https://nytimes.com/athletic/7128087/2026/03/19/cricket-fitness-pre-season-lancashire/
+
+**How Manchester United are trying to develop their centre-back 'cat' Leny Yoro**\
+`The 20-year-old says coaches Jonny Evans and Jonathan Woodgate have helped improve his defending`\
+https://nytimes.com/athletic/7110936/2026/03/19/leny-yoro-manchester-united-cat/
+
 **How to navigate FPL’s blank gameweek with only free transfers**\
 `It's more important to own quality over quantity in a blank gameweek. If you have the core template players, that can be enough to carry you`\
 https://nytimes.com/athletic/7127893/2026/03/19/fantasy-premier-leagues-fpl-tips-blank-gameweek-31/
