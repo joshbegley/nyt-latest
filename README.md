@@ -1,3 +1,7 @@
+**RT Reporter and Cameraman Injured by Israeli Strike in Lebanon**\
+`A British correspondent for RT, the Russian state broadcaster, and his cameraman were wounded in an Israeli strike near a bridge in southern Lebanon on Thursday, the network said.`\
+https://nytimes.com/video/world/middleeast/100000010789510/lebanon-airstrikes-isreal-iran-war.html
+
 **How to watch 76ers vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Philadelphia 76ers play the Sacramento Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7131996/2026/03/19/76ers-vs-kings-stream-how-to-watch-march-19/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/19/climate/the-planets-warning-signs-climate-change.
 **The Latest Toy to Jump to the Big Screen: Labubu**\
 `Pop Mart and Sony announced on Thursday that they were developing a feature film about the fuzzy trinkets. “It’s completely ruthless marketing,” one expert said.`\
 https://nytimes.com/2026/03/19/movies/labubu-movie-paul-king.html
-
-**Nebraska, finally, experiences NCAA Tournament success: 'It’s what I dreamed of'**\
-`Nebraska’s lack of a single win in the NCAA Tournament had come to define the program. That is no longer the case.`\
-https://nytimes.com/athletic/7131832/2026/03/19/nebraska-troy-ncaa-touranment-first-win/
 
