@@ -1,3 +1,19 @@
+**The Arsenal trio facing Man City at Wembley who have come full circle**\
+`Rice, Havertz and Timber made Arsenal debuts against City in 2023 — and all three have gone on to be vital pieces in Arteta's squad`\
+https://nytimes.com/athletic/7114857/2026/03/19/rice-timber-havertz-arsenal-man-city/
+
+**Would losing Enzo Fernandez actually be a problem for Chelsea on the pitch?**\
+`Enzo Fernandez is a keen talent and losing him would require a remodelling of the Chelsea team`\
+https://nytimes.com/athletic/7129333/2026/03/19/enzo-fernandez-chelsea-analysis-transfer/
+
+**The New York Times in Print for Thursday, March 19, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/19/todays-new-york-times
+
+**Destroying Lebanon Won’t Defeat Hezbollah**\
+`A failure by Israel to engage with the Lebanese government in the fight against Hezbollah will undermine its own interests.`\
+https://nytimes.com/2026/03/19/opinion/israel-lebanon-iran-hezbollah.html
+
 **Afroman Wins Civil Trial Over Use of Police Raid Footage in His Music Videos**\
 `Seven law enforcement officers had accused the rapper, whose name is Joseph E. Foreman, of causing them “humiliation” by using images from their 2022 raid on his Ohio home in two music videos.`\
 https://nytimes.com/2026/03/19/us/afroman-trial-lemon-cake-verdict.html
