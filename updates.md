@@ -1,3 +1,7 @@
+**LeBron James ties Robert Parish for most games played in NBA history**\
+`James appeared in his 1,611th career game Thursday night, less than 24 hours after he scored 30 points in Houston.`\
+https://nytimes.com/athletic/7132654/2026/03/19/lebron-james-nba-games-record-robert-parish/
+
 **LeBron James ties Robert Parrish for most games played in NBA history**\
 `James appeared in his 1,611th career game Thursday night, less than 24 hours after he scored 30 points in Houston.`\
 https://nytimes.com/athletic/7132654/2026/03/19/lebron-james-nba-games-record-robert-parrish/
