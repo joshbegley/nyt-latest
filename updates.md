@@ -1,3 +1,15 @@
+**How to Trim and Style Your Own Bangs**\
+`Expert advice on maintaining a cut at home.`\
+https://nytimes.com/2026/03/20/t-magazine/styling-trimming-bangs-at-home.html
+
+**How to watch Iowa vs. Clemson men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Iowa Hawkeyes play the Clemson Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134396/2026/03/20/iowa-vs-clemson-stream-how-to-watch-march-20/
+
+**How to watch Northern Iowa vs. St. John's men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Northern Iowa Panthers play the St. John's Red Storm, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134391/2026/03/20/northern-iowa-vs-st-john-s-stream-how-to-watch-march-20/
+
 **How to watch Green Bay vs. Minnesota women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Green Bay Phoenix play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7134364/2026/03/20/green-bay-vs-minnesota-stream-how-to-watch-march-20/
