@@ -1,3 +1,7 @@
+**Chuck Norris, Crowd-Pleasing Star of Action Movies, Dies at 86**\
+`He channeled his martial arts skills into heroic roles in movies like “Walker, Texas Ranger,” “The Delta Force” and the “Missing in Action” series.`\
+https://nytimes.com/2026/03/20/movies/chuck-norris-dead.html
+
 **Calvin Tomkins, Who Profiled Giants of Modern Art, Dies at 100**\
 `Working for The New Yorker, he wrote about Marcel Duchamp, Robert Rauschenberg and many others. His books include “Living Well is the Best Revenge.”`\
 https://nytimes.com/2026/03/20/arts/design/calvin-tomkins-dead.html
@@ -14,7 +18,7 @@ https://nytimes.com/2026/03/20/nyregion/colombia-president-petro-investigation-d
 `For families displaced by Israeli airstrikes, the joy that usually marks the end of Ramadan has been replaced by uncertainty and hardship.`\
 https://nytimes.com/2026/03/20/world/middleeast/muted-eid-in-lebanon.html
 
-**The Bounce: Can Pistons survive without Cade Cunningham? And another LeBron record**\
+**The Bounce: Can Pistons hang on without Cade Cunningham? And another LeBron record**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7133979/2026/03/20/cade-cunningham-lung-lebron-james-record-nbathe-bounce/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7133378/2026/03/20/vancouver-canucks-loss-lightning
 **How to watch Miami (OH) vs. Tennessee men's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Miami (OH) RedHawks play the Tennessee Volunteers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7134010/2026/03/20/miami-oh-vs-tennessee-stream-how-to-watch-march-20/
-
-**How to watch Utah State vs. Villanova men's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Utah State Aggies play the Villanova Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7133998/2026/03/20/utah-state-vs-villanova-stream-how-to-watch-march-20/
 

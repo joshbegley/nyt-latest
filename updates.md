@@ -1,3 +1,11 @@
+**Calvin Tomkins, Who Profiled Giants of Modern Art, Dies at 100**\
+`Working for The New Yorker, he wrote about Marcel Duchamp, Robert Rauschenberg and many others. His books include “Living Well is the Best Revenge.”`\
+https://nytimes.com/2026/03/20/arts/design/calvin-tomkins-dead.html
+
+**Trump Sues Harvard Over Accusations of Antisemitism**\
+`The administration had spent months investigating the Ivy League school. The two sides had been in talks to negotiate a settlement.`\
+https://nytimes.com/2026/03/20/us/trump-harvard-antisemitism-suit.html
+
 **Trump Sues Harvard Over Accusations of Antisemitism**\
 `The Ivy League school had won in court last year. The two sides had been in talks to negotiate a settlement.`\
 https://nytimes.com/2026/03/20/us/trump-harvard-antisemitism-suit.html
