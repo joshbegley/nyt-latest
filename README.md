@@ -1,3 +1,7 @@
+**With 'awful' performance against tanking Jazz, Giannis-less Bucks reap what they sow**\
+`There's strategic losing and then there's this loss to a Jazz team that played just eight players on the second night of a back-to-back.`\
+https://nytimes.com/athletic/7133231/2026/03/20/nba-bucks-loss-tanking-jazz-giannis/
+
 **Tuchel leaves door open for Arsenal's Dowman, 16, to make England World Cup squad**\
 `Dowman was not included in Tuchel's 35-man squad on Thursday but could still make the plane to North America.`\
 https://nytimes.com/athletic/7133796/2026/03/20/max-dowman-tuchel-england-world-cup-squad/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7132536/2026/03/20/kim-le-court-interview-milan-san
 **Lowetide: How a playoff run may dictate future of Oilers' younger players**\
 `The Oilers have been adding younger players in an effort to bring more speed and aggressive checking to the forward group.`\
 https://nytimes.com/athletic/7125601/2026/03/20/edmonton-oilers-stats-standings-playoffs-matt-savoie/
-
-**Milwaukee Brewers watch guide: How to stream the Brew Crew in 2026**\
-`Milwaukee has new homes for regional and national broadcasts in 2026. Here's how to watch every Brewers game this season. `\
-https://nytimes.com/athletic/7132645/2026/03/20/milwaukee-brewers-how-to-watch-2026/
 

@@ -1,4 +1,4 @@
-**Thomas Tuchel leaves door open for Arsenal's Max Dowman, 16, to make England World Cup squad**\
+**Tuchel leaves door open for Arsenal's Dowman, 16, to make England World Cup squad**\
 `Dowman was not included in Tuchel's 35-man squad on Thursday but could still make the plane to North America.`\
 https://nytimes.com/athletic/7133796/2026/03/20/max-dowman-tuchel-england-world-cup-squad/
 
