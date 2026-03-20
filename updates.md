@@ -1,3 +1,19 @@
+**Hatton suffering from CTE at time of death, inquest told**\
+`“I cannot be satisfied that he intended to take his own life,” coroner Alison Mutch told an inquest on Friday.`\
+https://nytimes.com/athletic/7134160/2026/03/20/ricky-hatton-inquest-death-suicide/
+
+**Until Saturday: So far, March is back to Madness**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/7134182/2026/03/20/march-madness-upsets-until-saturday/
+
+**JJ Wetherholt is the newest 'pesky' Card; Cade Horton is a Zero-SP fantasy baseball target**\
+`Andy Behrens gives actionable fantasy baseball draft advice based on the spring performances of JJ Wetherholt, Didier Fuentes and others. `\
+https://nytimes.com/athletic/7133820/2026/03/20/fantasy-baseball-news-wetherholt-cade-horton-zero-sp/
+
+**Trump Friend Asked ICE to Detain the Mother of His Child**\
+`Paolo Zampolli, a former modeling agent and a longtime Trump ally, was in a custody battle over his son. An ICE official agreed to help.`\
+https://nytimes.com/2026/03/20/us/paolo-zampolli-ice-melania-trump-epstein.html
+
 **NHL commissioner Gary Bettman vs. critics: A lightning round on the state of the league**\
 `Plus: How the heck are the Pittsburgh Penguins so good?`\
 https://nytimes.com/athletic/7134097/2026/03/20/nhl-playoff-format-gary-bettman-red-light/
