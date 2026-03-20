@@ -1,3 +1,15 @@
+**Leeds fined £530,000 by Premier League for delaying kick-offs**\
+`Leeds were found to have delayed restarts on nine occasions this season and could face bigger fines for future infringements. `\
+https://nytimes.com/athletic/7134788/2026/03/20/leeds-fine-kick-off-restart-delay/
+
+**Administration Bypasses Congress to Sell Weapons to U.A.E., Kuwait and Jordan**\
+`Some of the proposed sales, valued at more than $23 billion, were under review, while others were never sent to Congress. The Trump administration is pushing them through without congressional approval.`\
+https://nytimes.com/2026/03/20/us/politics/wartime-emergency-congress-weapons.html
+
+**Kentucky tops Santa Clara in OT after one of best March Madness sequences ever**\
+`Kentucky's Otega Oweh hit a desperation 3-pointer at the buzzer to answer a late Santa Clara 3 and force OT, where the Wildcats won 89-84.`\
+https://nytimes.com/athletic/7134763/2026/03/20/kentucky-santa-clara-march-madness-2026-score-results-takeaways/
+
 **Hegseth Invokes Divine Purpose to Justify Military Might**\
 `Defense Secretary Pete Hegseth has imbued U.S. military actions with a Christian moral underpinning that suggests they are divinely sanctioned.`\
 https://nytimes.com/2026/03/20/us/politics/hegseth-christianity-military.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010791921/iran-war-middle-east-
 **What Are Jacket Potatoes, and Why Are the English Waiting Hours for Them?**\
 `The heavily topped tubers, a British classic, are having a culinary comeback thanks to social media.`\
 https://nytimes.com/2026/03/20/dining/jacket-potatoes-uk-food-trend-social-media.html
-
-**NBA champion Oklahoma City Thunder won’t visit White House due to 'timing issue'**\
-`The Thunder and the White House had conversations about a celebration of the team's 2025 title, but "the timing just didn’t work out."`\
-https://nytimes.com/athletic/7133873/2026/03/20/oklahoma-city-thunder-white-house-visit-trump/
-
-**Liverpool goalkeeper Alisson set to miss Brighton trip, replaced in Brazil squad**\
-`The 33-year-old recently missed the Champions League first leg against Galatasaray with a muscle issue.`\
-https://nytimes.com/athletic/7134698/2026/03/20/liverpool-alisson-brazil-injury-update/
-
-**Iran’s New Supreme Leader Issues a Statement but Remains Unseen**\
-`Ayatollah Mojtaba Khamenei has remained out of the public’s sight since assuming the post, amid reports that he was badly wounded.`\
-https://nytimes.com/2026/03/20/world/middleeast/supreme-leader-statement.html
 
