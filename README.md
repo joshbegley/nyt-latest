@@ -1,3 +1,7 @@
+**What to Know About the BTS Comeback Concert**\
+`The K-pop supergroup’s first show in over three years will stream live on Netflix at 7 a.m. Eastern time on Saturday. The New York Times will cover it live from Seoul.`\
+https://nytimes.com/2026/03/20/world/asia/bts-concert-kpop-netflix-seoul.html
+
 **How to watch Virginia Tech vs. Oregon women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Virginia Tech Hokies play the Oregon Ducks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7133509/2026/03/20/virginia-tech-vs-oregon-stream-how-to-watch-march-20/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7081259/2026/03/20/mlb-bold-predictions-2026-eno-sa
 **The New York Times International Edition in Print for Saturday, March 21, 2026**\
 ``\
 https://nytimes.com/issue/todaysinyt/2026/03/20/todays-new-york-times-international-edition
-
-**Welcome to the Cameron Boozer experience: Gen Z slang and Duke domination**\
-`Duke freshman Cameron Boozer is having one of the best one-and-done seasons of all time. But will it end with a national title?`\
-https://nytimes.com/athletic/7130726/2026/03/20/cameron-boozer-duke-basketball-ncaa-tournament/
 
