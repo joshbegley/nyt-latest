@@ -1,3 +1,7 @@
+**NYU's 91-game winning streak ends with loss in DIII Final Four**\
+`NYU's streak included back-to-back national championships and was the second-longest in NCAA history behind UCONN's 111-game run.`\
+https://nytimes.com/athletic/7134296/2026/03/20/nyu-91-game-winning-streak-ends/
+
 **Why England are considering taking a goalkeeper who never plays to the World Cup**\
 `Brighton's Jason Steele hasn't played in a Premier League match since August 2024, but could have a specialist role this summer...`\
 https://nytimes.com/athletic/7133711/2026/03/20/jason-steele-england-squad/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/20/arts/music/lights-drones-purple-pizza-bts-mania-t
 **How to watch Queens vs. Purdue men's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Queens Royals play the Purdue Boilermakers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7134415/2026/03/20/queens-vs-purdue-stream-how-to-watch-march-20/
-
-**How to watch UCF vs. UCLA men's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the UCF Knights play the UCLA Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7134413/2026/03/20/ucf-vs-ucla-stream-how-to-watch-march-20/
 
