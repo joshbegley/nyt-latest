@@ -1,3 +1,15 @@
+**2026 WNBA mock draft: How high will Azzi Fudd, Flau'jae Johnson, Lauren Betts go?**\
+`Our final WNBA mock draft for 2026 sees a few changes throughout. `\
+https://nytimes.com/athletic/7133789/2026/03/20/2026-wnba-mock-draft-azzi-fudd-flaujae-johnson/
+
+**Evacuation Ordered for Parts of Oahu as Heavy Rains Pummel Hawaii**\
+`Days after an intense storm moved through the islands, another is dropping yet more rain on already saturated areas.`\
+https://nytimes.com/2026/03/20/weather/hawaii-flash-flooding-evacuations.html
+
+**NATO Withdraws Its Last Military Trainers From Iraq**\
+`The NATO mission, created in 2018, trained and advised Iraqi forces. Iraq is among the countries facing retaliatory attacks from the U.S.-Israeli war.`\
+https://nytimes.com/2026/03/20/world/middleeast/nato-iraq.html
+
 **Nebraska Second Congressional District 2026: Latest Polls**\
 `Track the latest polls in Nebraska's Second Congressional District.`\
 https://nytimes.com/interactive/polls/nebraska-us-house-2-polls-2026.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7124925/2026/03/20/mainoo-maguire-england-mancheste
 **NYU's 91-game winning streak ends with loss in DIII Final Four**\
 `NYU's streak included back-to-back national championships and was the second-longest in NCAA history behind UCONN's 111-game run.`\
 https://nytimes.com/athletic/7134296/2026/03/20/nyu-91-game-winning-streak-ends/
-
-**Why England are considering taking a goalkeeper who never plays to the World Cup**\
-`Brighton's Jason Steele hasn't played in a Premier League match since August 2024, but could have a specialist role this summer...`\
-https://nytimes.com/athletic/7133711/2026/03/20/jason-steele-england-squad/
-
-**Whittingham wanted to stay at Utah, AD displeased with transition: Documents**\
-`Documents obtained from the University of Utah shed light on Kyle Whittingham's surprising departure and resurfacing at Michigan.`\
-https://nytimes.com/athletic/7134161/2026/03/20/kyle-whittingham-utah-separation-agreement-michigan/
-
-**The Spurs fans determined to transform the atmosphere and do their bit in battle against relegation**\
-`A group of fans have announced an event which is designed to ramp up support for Sunday's crucial fixture at home to Nottingham Forest`\
-https://nytimes.com/athletic/7131583/2026/03/20/spurs-fans-forest-show-up-stay-up/
 
