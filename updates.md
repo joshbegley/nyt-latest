@@ -1,3 +1,15 @@
+**Chuck Norris: A Life in Pictures**\
+`The actor, known for his skills as a martial artist, often played the warrior onscreen.`\
+https://nytimes.com/2026/03/20/movies/chuck-norris-movies-shows-photos.html
+
+**U.S. Attacks Iranian Drones and Vessels to Try to Open Strategic Shipping Lane**\
+`The Israeli military said it had killed the spokesman for Iran’s Islamic Revolutionary Guards Corps, and Iran warned that it could target American and Israeli military personnel.`\
+https://nytimes.com/2026/03/20/world/middleeast/us-iran-strait-hormuz.html
+
+**Chuck Norris Punched This Article Into the Sun**\
+`Norris, best known as the butt-kicking star of action films, became an unwitting if good-natured pioneer of the internet meme.`\
+https://nytimes.com/2026/03/20/movies/chuck-norris-jokes-memes.html
+
 **What I am seeing as Mets camp comes to a close**\
 `Keith Hernandez mentors Jorge Polanco, Carson Benge continues to impress and a hero's welcome for Huascar Brazobán.`\
 https://nytimes.com/athletic/7134964/2026/03/20/mets-jorge-polanco-carson-benge-updates/
