@@ -1,3 +1,7 @@
+**How Geopolitics Threaten K-Pop’s Ambitions in China**\
+`Japanese members of some K-pop bands have been absent from recent concerts in China. Experts say that’s linked to tension between Tokyo and Beijing.`\
+https://nytimes.com/2026/03/20/world/asia/k-pop-china-japan-south-korea.html
+
 **Kobbie Mainoo, Lewis Hall return to England squad**\
 `The squad is Thomas Tuchel's last before he will finalise his selection for this summer's World Cup in the United States, Canada and Mexico.`\
 https://nytimes.com/athletic/7133414/2026/03/20/england-squad-list-march-fixtures/
