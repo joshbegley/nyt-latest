@@ -1,3 +1,7 @@
+**The I.R.S. Is Phasing Out Paper Checks. Here’s How to Speed Your Refund.**\
+`President Trump has directed that most federal payments be issued electronically, including tax refunds. Last year nearly 10 million people got their refund via a paper check.`\
+https://nytimes.com/2026/03/20/your-money/the-irs-is-phasing-out-paper-checks-heres-how-to-speed-your-refund.html
+
 **‘Saturday Night Live’ Arrives in London. Can It Make the Brits Laugh?**\
 `Britain has a storied history of sketch comedy, but its humor has a very different flavor than the American variety.`\
 https://nytimes.com/2026/03/20/arts/television/saturday-night-live-london-uk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7133375/2026/03/20/flyers-win-kings-noah-cates/
 **Enduring Mayhem: Images of the War in Ukraine, After 4 Years**\
 `A photographic chronicle of Russia’s invasion.`\
 https://nytimes.com/2026/03/20/world/europe/ukraine-russia-war-photos.html
-
-**Trump Administration Live Updates: Judge Rules That R.F.K. Jr. Overstepped on Transgender Care**\
-``\
-https://nytimes.com/live/2026/03/20/us/trump-news
 
