@@ -1,3 +1,11 @@
+**Iga Świątek says she is in the 'worst nightmare a tennis player can have' after Miami Open defeat**\
+`The six-time Grand Slam champion's loss to Magda Linette was her first opening-match defeat since 2021.`\
+https://nytimes.com/athletic/7133426/2026/03/20/tennis-iga-swiatek-miami-open-win-streak/
+
+**Bo Bichette embraces New York spotlight, aims to be 'one of the best players in the game'**\
+`Bichette: "I’ve never chased the analytics or anything like that. ... I’ve always just played it my way."`\
+https://nytimes.com/athletic/7133185/2026/03/20/bo-bichette-mets-top-players/
+
 **An Autocrat Jailed Her, but She Wants the World to Talk to Him**\
 `Maria Kalesnikava is campaigning for the West to engage with the regime in Belarus that imprisoned her for more than five years.`\
 https://nytimes.com/2026/03/20/world/europe/maria-kalesnikava-lukashenko-belarus.html
@@ -29,8 +37,4 @@ https://nytimes.com/2026/03/20/opinion/iran-israel-united-states-hamas.html
 **Can You Put Potato Salad in Gumbo?**\
 `A ruling on an unusual garnish.`\
 https://nytimes.com/interactive/2026/03/20/magazine/potato-salad-gumbo-hodgman-quiz.html
-
-**A Diary of War From an Unlikely Author: the Son of Iran’s President**\
-`In an online journal, Yousef Pezeshkian offers readers a mix of personal anecdotes and glimpses behind the scenes as Iranian leaders are picked off one after another.`\
-https://nytimes.com/2026/03/20/world/middleeast/iran-pezeshkian-son-diary.html
 
