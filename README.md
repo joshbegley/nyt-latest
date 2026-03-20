@@ -1,3 +1,15 @@
+**Nebraska Second Congressional District 2026: Latest Polls**\
+`Track the latest polls in Nebraska's Second Congressional District.`\
+https://nytimes.com/interactive/polls/nebraska-us-house-2-polls-2026.html
+
+**N.Y.C. Street Vendors to Get a New Ally in City Government**\
+`Carina Kaufman-Gutierrez, the co-director of the Street Vendor Project, will head a new city office working with street vendors.`\
+https://nytimes.com/2026/03/20/nyregion/nyc-street-vendors.html
+
+**Hochul Moves to Delay and Alter Climate Law, Citing Energy Prices**\
+`The proposal, currently being considered by the Legislature during budget talks, would put off regulations for enforcing the law until 2030.`\
+https://nytimes.com/2026/03/20/nyregion/hochul-new-york-climate-law-delay.html
+
 **Educators, How Will You Teach Cesar Chavez’s Story After Abuse Allegations?**\
 `We want to hear from educators who teach about Mr. Chavez.`\
 https://nytimes.com/2026/03/20/us/cesar-chavez-abuse-allegations-teachers-callout.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7134161/2026/03/20/kyle-whittingham-utah-separation
 **The Spurs fans determined to transform the atmosphere and do their bit in battle against relegation**\
 `A group of fans have announced an event which is designed to ramp up support for Sunday's crucial fixture at home to Nottingham Forest`\
 https://nytimes.com/athletic/7131583/2026/03/20/spurs-fans-forest-show-up-stay-up/
-
-**What now for Thomas Tuchel's forgotten men?**\
-`From Trent Alexander-Arnold to Morgan Gibbs-White, there were some notable omissions even with nine additional selections`\
-https://nytimes.com/athletic/7133914/2026/03/20/england-tuchel-world-cup-trent-watkins-gallagher-out/
-
-**A Meatpacking Strike in Colorado Is Another Stress to Trump’s Economy**\
-`The walkout at the JBS plant in Greeley, Colo., comes as beef prices have soared, cattle supplies have plunged and immigration sweeps have stressed the labor supply.`\
-https://nytimes.com/2026/03/20/us/meatpacking-strike-beef-prices.html
-
-**More! More! More! Tech Workers Max Out Their A.I. Use**\
-`At a number of companies, employees compete on leaderboards to show how much A.I. they’re using. They’re racking up big bills along the way.`\
-https://nytimes.com/2026/03/20/technology/tokenmaxxing-ai-agents.html
 
