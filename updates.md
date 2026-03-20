@@ -1,3 +1,7 @@
+**Pryce Sandfort earns Nebraska Cornhusker legend status with big brother watching**\
+`Sandfort grew up an Iowa State fan, but he played for rival Iowa before transferring to Nebraska. `\
+https://nytimes.com/athletic/7132833/2026/03/19/pryce-sandfort-nebraska-payton-brother/
+
 **World Baseball Classic title game draws record-shattering 10.8 million viewers**\
 `Venezuela's win over the U.S. drew more than double the audience that tuned in for a Japan-U.S. showdown in 2023, according to Fox.`\
 https://nytimes.com/athletic/7132568/2026/03/19/world-baseball-classic-viewership-record-2026/
