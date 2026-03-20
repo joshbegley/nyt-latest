@@ -1,3 +1,11 @@
+**‘Walker Texas Ranger’ Star Chuck Norris Dies at 86**\
+`The family of Chuck Norris announced that the action movie star died on Thursday after he had been hospitalized for a medical emergency earlier that day. Norris was known for his martial arts skills and his role in the CBS television series, “Walker, Texas Ranger.” He was 86.`\
+https://nytimes.com/video/obituaries/100000010792138/walker-texas-ranger-chuck-norris-dead.html
+
+**Yankees send Jasson Domínguez to Triple A to start season: What it means**\
+`The Yankees need Domínguez, 23, to continue his development, and he would not have been able to do that as a bench player in the majors.`\
+https://nytimes.com/athletic/7123886/2026/03/20/jasson-dominguez-yankees-triple-a-2026-season/
+
 **The Loafers You’ll Wear Every Day**\
 `Stylish and practical, these are shoes for all seasons — and all outfits.`\
 https://nytimes.com/2026/03/20/t-magazine/womens-loafers-best.html
