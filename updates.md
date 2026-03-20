@@ -1,3 +1,15 @@
+**Kevin Willard 'jokes' about firing staff after Villanova's defensive struggles in NCAA loss**\
+`Willard was frustrated about his team's inability to guard Utah State's baseline out-of-bounds plays. `\
+https://nytimes.com/athletic/7135377/2026/03/20/kevin-willard-fire-coaches-villanova-utah-state/
+
+**700 Dogs and Cats Are Rescued in Animal Cruelty Raid in Los Angeles County**\
+`Animal control officers responded to a pet-adoption facility in Lake Hughes, Calif., after receiving complaints about neglect and overcrowding. No charges have been filed.`\
+https://nytimes.com/2026/03/20/us/700-dogs-cats-rescued-los-angeles-county.html
+
+**What I'm seeing at Astros camp: Brice Matthews' OF bid, Cam Smith's mindset, more medical changes**\
+`Houston hired a new director of sports medicine and performance, and a new assistant athletic trainer.`\
+https://nytimes.com/athletic/7135301/2026/03/20/astros-brice-matthews-cam-smith-sports-medicine-department/
+
 **A Look at the Escalating Battle for the Strait of Hormuz**\
 `There are several ways the United States could attempt to reopen the waterway, all of which carry substantial risks.`\
 https://nytimes.com/2026/03/20/us/politics/battle-for-strait-of-hormuz.html
