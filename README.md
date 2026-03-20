@@ -1,3 +1,7 @@
+**Alaska Airlines and FedEx Planes Narrowly Avoid Each Other at Newark Airport**\
+`The National Transportation Safety Board said that it was investigating a “close call” that happened as the planes were landing on Tuesday evening.`\
+https://nytimes.com/2026/03/19/us/alaska-airlines-fedex-planes-newark-collision.html
+
 **Rush Order**\
 `Rafael Musa and Rebecca Goldstein open our solving weekend.`\
 https://nytimes.com/2026/03/19/crosswords/daily-puzzle-2026-03-20.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7132833/2026/03/19/pryce-sandfort-nebraska-payton-b
 **World Baseball Classic title game draws record-shattering 10.8 million viewers**\
 `Venezuela's win over the U.S. drew more than double the audience that tuned in for a Japan-U.S. showdown in 2023, according to Fox.`\
 https://nytimes.com/athletic/7132568/2026/03/19/world-baseball-classic-viewership-record-2026/
-
-**Here’s What Happened in the War in the Middle East on Thursday**\
-`Strikes continued in the region as attacks on energy infrastructure rattled global markets.`\
-https://nytimes.com/2026/03/19/world/middleeast/iran-war-middle-east-recap.html
 
