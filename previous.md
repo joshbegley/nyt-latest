@@ -1,13 +1,17 @@
+**WATCH: Signing Mike Evans saves the 49ers' Super Bowl window**\
+`Mike Evans has the potential to give San Francisco a super-charged version of what Jauan Jennings was bringing to the offense.`\
+https://nytimes.com/athletic/7134922/2026/03/20/mike-evans-san-francisco-49ers-nfl-free-agency-super-bowl/
+
 **U.S. Recovers Man From Pacific Boat Strike Area**\
 `A spokesman for the Coast Guard did not directly connect the rescue operation to Thursday’s boat strike in the eastern Pacific Ocean. The vessel sent the man to Costa Rica, and recovered two dead bodies.`\
 https://nytimes.com/2026/03/20/us/politics/pacific-boat-strike-survivor.html
 
 **Santa Clara coach called for timeout before UK buzzer-beater: 'Evidence is clear'**\
-`Before Kentucky's Otega Oweh hit a score-tying 3 to force OT, Santa Clara coach Herb Sendek said he called for timeout to set his defense.`\
+`Before Kentucky's Otega Oweh hit a score-tying 3 to force OT, Santa Clara coach Herb Sendek said he called a timeout to set his defense.`\
 https://nytimes.com/athletic/7134989/2026/03/20/santa-clara-kentucky-refs-timeout/
 
-**Panthers OT Rasheed Walker enters pretrial diversion program after arrest on gun charges in New York**\
-`Walker was arrested at New York’s LaGuardia Airport in January.`\
+**Panthers' Rasheed Walker in pretrial diversion program after gun charges**\
+`Walker was arrested at New York’s LaGuardia Airport in January while trying to travel with a firearm.`\
 https://nytimes.com/athletic/7135020/2026/03/20/rasheed-walker-carolina-panthers-gun-arrest-new-york/
 
 **Former ICJ judge criticises FIFA over failure to further sanction Israel**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010792480/trumps-1-3-million-a-minute-wa
 **How to watch Missouri vs. Miami (FL) men's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Missouri Tigers play the Miami Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7134998/2026/03/20/missouri-vs-miami-fl-stream-how-to-watch-march-20/
-
-**Electrical Blackouts, Suspended Flights: What to Know About Travel to Cuba**\
-`The island is dependent on tourism, but a lack of fuel and extensive power outages are forcing many travelers to cancel. Here’s what visitors might face.`\
-https://nytimes.com/2026/03/20/travel/cuba-flights-travel-advice-power-oil.html
 

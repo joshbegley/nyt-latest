@@ -1,3 +1,11 @@
+**What I am seeing as Mets camp comes to a close**\
+`Keith Hernandez mentors Jorge Polanco, Carson Benge continues to impress and a hero's welcome for Huascar Brazobán.`\
+https://nytimes.com/athletic/7134964/2026/03/20/mets-jorge-polanco-carson-benge-updates/
+
+**Switzerland Blocks Arms Sales to U.S. Over Iran War**\
+`Swiss law prohibits selling war materiel to countries involved in armed conflict, a policy the country has already cited to block sales to Israel and Iran.`\
+https://nytimes.com/2026/03/20/world/middleeast/switzerland-halts-arms-sales-us.html
+
 **WATCH: Signing Mike Evans saves the 49ers' Super Bowl window**\
 `Mike Evans has the potential to give San Francisco a super-charged version of what Jauan Jennings was bringing to the offense.`\
 https://nytimes.com/athletic/7134922/2026/03/20/mike-evans-san-francisco-49ers-nfl-free-agency-super-bowl/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/20/world/middleeast/uk-bases-us-iran.html
 **Energy facilities have been a potent target in the war.**\
 `By Rebecca Elliott, Blacki Migliozzi, Lazaro Gamio, Christiaan Triebert and Emmett Lindner`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/energy-facilities-have-been-a-potent-target-in-the-war
-
-**Trump’s $1.3 Million-a-Minute War**\
-`The war with Iran is costing America. That money, the Opinion columnist Nicholas Kristof argues, could be better spent ending childhood malnutrition, screening for cancer or providing free college tuition.`\
-https://nytimes.com/video/opinion/100000010792480/trumps-1-3-million-a-minute-war.html
-
-**How to watch Missouri vs. Miami (FL) men's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Missouri Tigers play the Miami Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7134998/2026/03/20/missouri-vs-miami-fl-stream-how-to-watch-march-20/
 
