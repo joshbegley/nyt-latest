@@ -1,3 +1,7 @@
+**How to watch Ducks vs. Mammoth: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Utah Mammoth, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134914/2026/03/20/ducks-vs-mammoth-stream-how-to-watch-march-20/
+
 **Women's NCAA Tournament first round takeaways: Can Duke's opponents learn from Charleston's guard?**\
 `Follow along for updates from the first round of the tournament.`\
 https://nytimes.com/athletic/7134805/2026/03/20/womens-ncaa-tournament-first-round-takeaways-duke/

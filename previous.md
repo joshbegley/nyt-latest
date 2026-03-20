@@ -1,3 +1,7 @@
+**How to watch Ducks vs. Mammoth: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Utah Mammoth, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134914/2026/03/20/ducks-vs-mammoth-stream-how-to-watch-march-20/
+
 **Women's NCAA Tournament first round takeaways: Can Duke's opponents learn from Charleston's guard?**\
 `Follow along for updates from the first round of the tournament.`\
 https://nytimes.com/athletic/7134805/2026/03/20/womens-ncaa-tournament-first-round-takeaways-duke/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/20/us/politics/wartime-emergency-congress-weapons.ht
 **Kentucky tops Santa Clara in OT after one of best March Madness sequences ever**\
 `Kentucky's Otega Oweh hit a desperation 3-pointer at the buzzer to answer a late Santa Clara 3 and force OT, where the Wildcats won 89-84.`\
 https://nytimes.com/athletic/7134763/2026/03/20/kentucky-santa-clara-march-madness-2026-score-results-takeaways/
-
-**Hegseth Invokes Divine Purpose to Justify Military Might**\
-`Defense Secretary Pete Hegseth has imbued U.S. military actions with a Christian moral underpinning that suggests they are divinely sanctioned.`\
-https://nytimes.com/2026/03/20/us/politics/hegseth-christianity-military.html
 

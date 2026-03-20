@@ -1,3 +1,11 @@
+**New York City Celebrates Its First Ramadan With a Muslim Mayor**\
+`Many New Yorkers said Ramadan felt especially poignant this year under Mayor Zohran Mamdani, who used his own observance of the holiday to model the diversity of Muslim life in the city.`\
+https://nytimes.com/2026/03/20/nyregion/mamdani-ramadan-eid-nyc.html
+
+**Aid Ship Departs for Cuba as Island Grapples With a Fuel Blockade**\
+`The “Nuestra América” humanitarian convoy plans to deliver more than 20 tons of critical supplies to Cuba. Some Cuban exiles view it with suspicion.`\
+https://nytimes.com/2026/03/20/world/americas/cuba-fuel-blockade-aid-convoy.html
+
 **How to watch Ducks vs. Mammoth: Time, TV, streaming**\
 `Find out how to watch the Anaheim Ducks play the Utah Mammoth, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7134914/2026/03/20/ducks-vs-mammoth-stream-how-to-watch-march-20/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/20/world/asia/shigeaki-mori-dead.html
 **Leeds fined £530,000 by Premier League for delaying kick-offs**\
 `Leeds were found to have delayed restarts on nine occasions this season and could face bigger fines for future infringements. `\
 https://nytimes.com/athletic/7134788/2026/03/20/leeds-fine-kick-off-restart-delay/
-
-**Administration Bypasses Congress to Sell Weapons to U.A.E., Kuwait and Jordan**\
-`Some of the proposed sales, valued at more than $23 billion, were under review, while others were never sent to Congress. The Trump administration is pushing them through without congressional approval.`\
-https://nytimes.com/2026/03/20/us/politics/wartime-emergency-congress-weapons.html
-
-**Kentucky tops Santa Clara in OT after one of best March Madness sequences ever**\
-`Kentucky's Otega Oweh hit a desperation 3-pointer at the buzzer to answer a late Santa Clara 3 and force OT, where the Wildcats won 89-84.`\
-https://nytimes.com/athletic/7134763/2026/03/20/kentucky-santa-clara-march-madness-2026-score-results-takeaways/
 
