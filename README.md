@@ -1,3 +1,7 @@
+**‘The Pitt’ Season 2, Episode 11 Recap: Chilling Effect**\
+`An unwelcome visit by some rough Immigration and Customs Enforcement agents added more complications to an already stressful day.`\
+https://nytimes.com/2026/03/20/arts/television/the-pitt-recap-ice-season-2-episode-11.html
+
 **How to build a champion NWSL roster, as told by Gotham: 'There's always a science to it'**\
 `Things are looking good for Gotham thanks to some savvy recruitment under the league's stringent salary cap rules`\
 https://nytimes.com/athletic/7131381/2026/03/20/nwsl-gotham-roster-building-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7131389/2026/03/20/carolina-hurricanes-playoffs-sta
 **He played in the NBA for 17 years. What is he doing coaching a No. 16 seed?**\
 `A first-round draft pick by the Knicks in 1988, Rod Strickland is now taking advantage of his first head coaching opportunity in Brooklyn.`\
 https://nytimes.com/athletic/7129061/2026/03/20/rod-strickland-liu-basketball-coach-career/
-
-**How to watch NCAA Women's Frozen Four: Top players, schedule and more**\
-`Everything you need to know about the 2026 women's Frozen Four before puck drop on Friday night.`\
-https://nytimes.com/athletic/7132445/2026/03/20/frozen-four-women-2026-how-to-watch-ncaa/
 
