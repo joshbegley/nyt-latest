@@ -1,3 +1,15 @@
+**What is letting Chelsea and Rosenior down? It might be as simple as individual moments**\
+`Chelsea have lost their last three games and were knocked out of the Champions League earlier this week`\
+https://nytimes.com/athletic/7131887/2026/03/20/chelsea-liam-rosenior-tactics-analysis/
+
+**'We let our fans down': Newcastle and the importance of turning up against Sunderland**\
+`Newcastle face Sunderland on Sunday. They cannot afford another game like the previous one against their neighbours and arch-rivals...`\
+https://nytimes.com/athletic/7131076/2026/03/20/newcastle-sunderland-analysis-tyne-wear/
+
+**The New York Times in Print for Friday, March 20, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/20/todays-new-york-times
+
 **In Japan, Trump’s Pearl Harbor Joke Elicits Scorn and Dismay**\
 `Some people criticized President Trump’s decision to invoke a painful chapter of history. Others worried it might harm U.S.-Japan relations.`\
 https://nytimes.com/2026/03/20/world/asia/japan-trump-pearl-harbor.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7133087/2026/03/20/victor-wembanyama-game-winner-sp
 **Using Charm and Restraint, Japan’s Leader Mostly Avoids Trump’s Wrath**\
 `During her first visit to the White House, Prime Minister Sanae Takaichi drew praise from President Trump. But the war in the Middle East will test their relationship.`\
 https://nytimes.com/2026/03/20/world/asia/trump-japan-prime-minister-meeting.html
-
-**Spain Says the Sun Shields It From Rising Gas Costs. Is That True?**\
-`Pedro Sánchez, Spain’s prime minister, said the nation’s renewable energy system has softened the financial fallout from the war in Iran. The story is more complex.`\
-https://nytimes.com/2026/03/20/world/europe/spain-iran-energy-renewables-gas-sun.html
-
-**Reeling From the Iran War’s Oil Shock and ‘Running Out of Ideas’**\
-`Across Southeast Asia, a region heavily dependent on energy exports brought via the Strait of Hormuz, lives are being upended by higher oil and gas prices.`\
-https://nytimes.com/2026/03/20/world/asia/iran-war-oil-thailand-vietnam-philippines.html
-
-**How the Iran War Narrowed Flight Corridors Between Europe and Asia**\
-`One of the few paths left between the two continents threads through Azerbaijan, Georgia and Turkey, as global conflicts complicate aviation logistics.`\
-https://nytimes.com/2026/03/20/world/europe/iran-war-airports-russia-flight-paths.html
 
