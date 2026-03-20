@@ -1,3 +1,19 @@
+**How to watch Akron vs. Texas Tech men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Akron Zips play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7133527/2026/03/20/akron-vs-texas-tech-stream-how-to-watch-march-20/
+
+**How to watch Santa Clara vs. Kentucky men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Santa Clara Broncos play the Kentucky Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7133525/2026/03/20/santa-clara-vs-kentucky-stream-how-to-watch-march-20/
+
+**How to watch LIU vs. Arizona men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Long Island Sharks play the Arizona Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7133523/2026/03/20/liu-vs-arizona-stream-how-to-watch-march-20/
+
+**What to Know About the BTS Comeback Concert**\
+`The K-pop supergroup’s first show in over three years will stream live on Netflix at 7 a.m. Eastern time on Saturday. The New York Times will cover it live from Seoul.`\
+https://nytimes.com/2026/03/20/world/asia/bts-concert-kpop-netflix-seoul.html
+
 **How to watch Virginia Tech vs. Oregon women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Virginia Tech Hokies play the Oregon Ducks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7133509/2026/03/20/virginia-tech-vs-oregon-stream-how-to-watch-march-20/
