@@ -1,3 +1,7 @@
+**Calvin Tomkins, Who Profiled Giants of Modern Art, Dies at 100**\
+`Working for The New Yorker, he wrote about Marcel Duchamp, Robert Rauschenberg and many others. His books include “Living Well is the Best Revenge.”`\
+https://nytimes.com/2026/03/20/arts/design/calvin-tomkins-dead.html
+
 **Trump Sues Harvard Over Accusations of Antisemitism**\
 `The administration had spent months investigating the Ivy League school. The two sides had been in talks to negotiate a settlement.`\
 https://nytimes.com/2026/03/20/us/trump-harvard-antisemitism-suit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7134010/2026/03/20/miami-oh-vs-tennessee-stream-how
 **How to watch Utah State vs. Villanova men's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Utah State Aggies play the Villanova Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7133998/2026/03/20/utah-state-vs-villanova-stream-how-to-watch-march-20/
-
-**Ronaldo out of Portugal squad, set to miss USMNT and Mexico games**\
-`Ronaldo travelled to Spain to undergo treatment for a hamstring injury earlier this month, according to Al Nassr head coach Jorge Jesus.`\
-https://nytimes.com/athletic/7133898/2026/03/20/cristiano-ronaldo-usmnt-mexico-portugal/
 
