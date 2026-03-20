@@ -1,3 +1,23 @@
+**Is it time for Daniel Farke and Leeds to unleash Calvert-Lewin and Nmecha as a front two?**\
+`Leeds have an important game against Brentford on Saturday. Should they tweak their formation before then?`\
+https://nytimes.com/athletic/7132021/2026/03/20/leeds-dominic-calvert-lewin-lukas-nmecha-analysis/
+
+**Callum Doyle looks ready for the Premier League - can he help get Wrexham there?**\
+`The young ball-playing centre-back has impressed in recent months and could well be in the top flight next season, regardless of promotion`\
+https://nytimes.com/athletic/7121967/2026/03/20/callum-doyle-wrexham-analysis/
+
+**Ismaila Sarr now has 15 goals this season. He is keeping Crystal Palace's season alive**\
+`Two goals the Senegal forward put Palace into the quarter finals of the UEFA Conference League, where they will face Fiorentina `\
+https://nytimes.com/athletic/7125067/2026/03/20/ismaila-sarr-has-already-scored-15-goals-he-is-keeping-crystal-palaces-season-alive/
+
+**The nostalgic return of Adidas' trefoil logo creates a warm, comforting glow**\
+`For the first time in 36 years, Adidas' kits at the upcoming World Cup will feature their famous trefoil logo`\
+https://nytimes.com/athletic/7132181/2026/03/20/adidas-trefoil-nostalgia-2026-world-cup/
+
+**'Incompetence of the highest order': What football thinks of Tottenham's tailspin**\
+`Why have Spurs slid into relegation danger? We asked a range of senior football figures for their theories - and who they hold responsible`\
+https://nytimes.com/athletic/7110068/2026/03/20/tottenham-hotspur-what-football-thinks/
+
 **Premier League relegation battle: What the numbers say about Spurs, West Ham and Forest’s chances**\
 `The Athletic's data team's weekly look at the battle at the bottom of the table`\
 https://nytimes.com/athletic/7131042/2026/03/20/premier-league-relegation-battle-spurs-west-ham-nottingham-forest-md31/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7130508/2026/03/20/premier-league-substitutions-goa
 **Breaking down the 15 seconds and Martinez's incredible pass that gave Villa their fireworks**\
 `Emiliano Martinez played an incredible pass to Jadon Sancho during Thursday night's game against Lille`\
 https://nytimes.com/athletic/7132519/2026/03/20/emiliano-martinez-pass-aston-villa-lille-analysis/
-
-**What is letting Chelsea and Rosenior down? It might be as simple as individual moments**\
-`Chelsea have lost their last three games and were knocked out of the Champions League earlier this week`\
-https://nytimes.com/athletic/7131887/2026/03/20/chelsea-liam-rosenior-tactics-analysis/
-
-**'We let our fans down': Newcastle and the importance of turning up against Sunderland**\
-`Newcastle face Sunderland on Sunday. They cannot afford another game like the previous one against their neighbours and arch-rivals...`\
-https://nytimes.com/athletic/7131076/2026/03/20/newcastle-sunderland-analysis-tyne-wear/
-
-**The New York Times in Print for Friday, March 20, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/03/20/todays-new-york-times
-
-**In Japan, Trump’s Pearl Harbor Joke Elicits Scorn and Dismay**\
-`Some people criticized President Trump’s decision to invoke a painful chapter of history. Others worried it might harm U.S.-Japan relations.`\
-https://nytimes.com/2026/03/20/world/asia/japan-trump-pearl-harbor.html
-
-**Fabian Hurzeler thinks Brighton fans can make the difference during taxing run-in**\
-`The Brighton manager says the club's fans helped his side against Arsenal, and can do the same against Liverpool`\
-https://nytimes.com/athletic/7119588/2026/03/20/brighton-amex-atmosphere/
 
