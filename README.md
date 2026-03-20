@@ -1,3 +1,11 @@
+**Connections: Sports Edition Coach: Hints and answers for March 20, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7133206/2026/03/20/connections-sports-edition-hints-answers-march-20-2026/
+
+**Victor Wembanyama's game-winner to beat Suns clinches Spurs' playoff berth**\
+`Wembanyama had his fingerprints all over the final moment of this Spurs win. He also tallied 34 points, 12 rebounds and three steals.`\
+https://nytimes.com/athletic/7133087/2026/03/20/victor-wembanyama-game-winner-spurs-suns-playoff-berth/
+
 **Using Charm and Restraint, Japan’s Leader Mostly Avoids Trump’s Wrath**\
 `During her first visit to the White House, Prime Minister Sanae Takaichi drew praise from President Trump. But the war in the Middle East will test their relationship.`\
 https://nytimes.com/2026/03/20/world/asia/trump-japan-prime-minister-meeting.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/20/style/arianna-davis-jay-santana-wedding.html
 **Scramble for Jet Fuel Shows How Energy Shortages Are Rippling Across Asia**\
 `As China and other major suppliers of refined oil in the region restrict exports, import-dependent countries are desperate to secure fuel supplies.`\
 https://nytimes.com/2026/03/20/business/oil-jetfuel-asia.html
-
-**‘I’m Dead. Don’t Send Me Any More Mail.’**\
-`My relationship with my landlord was among the most reliable of my life. I miss her.`\
-https://nytimes.com/2026/03/20/style/modern-love-im-dead-dont-send-me-any-more-mail.html
-
-**He Cooked Up a Surprise Proposal in Mexico**\
-`In 2021, Noah Michelson and Benji Jones began a relatively old-fashioned courtship with FaceTime, walks and waiting.`\
-https://nytimes.com/2026/03/20/style/noah-michelson-benji-jones-wedding.html
 
