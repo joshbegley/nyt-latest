@@ -1,3 +1,7 @@
+**Is Free Hit the smartest play for FPL Gameweek 31?**\
+`If your FPL team is in good shape, there is no need to panic. But if you are struggling for numbers, the Free Hit offers a powerful lifeline`\
+https://nytimes.com/athletic/7125617/2026/03/20/fantasy-premier-league-fpl-tips-blank-gameweek-31-free-hit/
+
 **Is it time for Daniel Farke and Leeds to unleash Calvert-Lewin and Nmecha as a front two?**\
 `Leeds have an important game against Brentford on Saturday. Should they tweak their formation before then?`\
 https://nytimes.com/athletic/7132021/2026/03/20/leeds-dominic-calvert-lewin-lukas-nmecha-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7128708/2026/03/20/karen-carney-guro-reiten-chelsea
 **Which Premier League clubs are most effective with substitutions?**\
 `Which Premier League sides are changing games with their changes — and who is lacking spark from the bench?`\
 https://nytimes.com/athletic/7130508/2026/03/20/premier-league-substitutions-goals-assists-finishers/
-
-**Breaking down the 15 seconds and Martinez's incredible pass that gave Villa their fireworks**\
-`Emiliano Martinez played an incredible pass to Jadon Sancho during Thursday night's game against Lille`\
-https://nytimes.com/athletic/7132519/2026/03/20/emiliano-martinez-pass-aston-villa-lille-analysis/
 
