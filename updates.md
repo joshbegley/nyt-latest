@@ -1,3 +1,15 @@
+**A Look at the Escalating Battle for the Strait of Hormuz**\
+`There are several ways the United States could attempt to reopen the waterway, all of which carry substantial risks.`\
+https://nytimes.com/2026/03/20/us/politics/battle-for-strait-of-hormuz.html
+
+**‘The Bachelorette’ Took a Risk on Taylor Frankie Paul. It Backfired.**\
+`Ms. Paul’s built-in fan base and viral interpersonal drama presented an opportunity for the long-running reality TV show, until video of a past assault derailed the season.`\
+https://nytimes.com/2026/03/20/arts/television/bachelorette-taylor-frankie-paul-momtok.html
+
+**Aaron Judge addresses Team USA's perceived lack of fun during WBC**\
+`The captain of Team USA said "any chance he gets," he'll wear Team USA’s uniform again. That next opportunity could be the Olympics in 2028.`\
+https://nytimes.com/athletic/7135258/2026/03/20/world-baseball-classic-aaron-judge-team-usa-olympics/
+
 **Twins release Liam Hendriks, Andrew Chafin as starting rotation comes together**\
 `The final rotation spot and depth at several positions remain unsolved as Minnesota nears the end of spring training. `\
 https://nytimes.com/athletic/7135154/2026/03/20/twins-rotation-liam-hendriks-andrew-chafin-released/
