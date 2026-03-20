@@ -1,3 +1,7 @@
+**In Japan, Trump’s Pearl Harbor Joke Elicits Scorn and Dismay**\
+`Some people criticized President Trump’s decision to invoke a painful chapter of history. Others worried it might harm U.S.-Japan relations.`\
+https://nytimes.com/2026/03/20/world/asia/japan-trump-pearl-harbor.html
+
 **Fabian Hurzeler thinks Brighton fans can make the difference during taxing run-in**\
 `The Brighton manager says the club's fans helped his side against Arsenal, and can do the same against Liverpool`\
 https://nytimes.com/athletic/7119588/2026/03/20/brighton-amex-atmosphere/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/20/world/asia/iran-war-oil-thailand-vietnam-philippi
 **How the Iran War Narrowed Flight Corridors Between Europe and Asia**\
 `One of the few paths left between the two continents threads through Azerbaijan, Georgia and Turkey, as global conflicts complicate aviation logistics.`\
 https://nytimes.com/2026/03/20/world/europe/iran-war-airports-russia-flight-paths.html
-
-**Adidas releases away kits ahead of men's World Cup**\
-`The tournament will begin with the all-Adidas clash of Mexico vs. South Africa on June 11.`\
-https://nytimes.com/athletic/7131636/2026/03/20/adidas-away-kits-shirts-world-cup/
 

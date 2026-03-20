@@ -1,3 +1,7 @@
+**In Japan, Trump’s Pearl Harbor Joke Elicits Scorn and Dismay**\
+`Some people criticized President Trump’s decision to invoke a painful chapter of history. Others worried it might harm U.S.-Japan relations.`\
+https://nytimes.com/2026/03/20/world/asia/japan-trump-pearl-harbor.html
+
 **Fabian Hurzeler thinks Brighton fans can make the difference during taxing run-in**\
 `The Brighton manager says the club's fans helped his side against Arsenal, and can do the same against Liverpool`\
 https://nytimes.com/athletic/7119588/2026/03/20/brighton-amex-atmosphere/
