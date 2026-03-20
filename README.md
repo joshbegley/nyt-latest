@@ -1,3 +1,7 @@
+**Kevin Willard 'jokes' about firing staff after Villanova's defensive struggles in NCAA loss**\
+`Willard was frustrated about his team's inability to guard Utah State's baseline out-of-bounds plays. `\
+https://nytimes.com/athletic/7135377/2026/03/20/kevin-willard-fire-coaches-villanova-utah-state/
+
 **700 Dogs and Cats Are Rescued in Animal Cruelty Raid in Los Angeles County**\
 `Animal control officers responded to a pet-adoption facility in Lake Hughes, Calif., after receiving complaints about neglect and overcrowding. No charges have been filed.`\
 https://nytimes.com/2026/03/20/us/700-dogs-cats-rescued-los-angeles-county.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/20/us/fresno-cesar-chavez-street-rename.html
 **No. 6 seed Tennessee ends Miami (Ohio)'s dream season with 22-point rout**\
 `The Vols sprinted out to a 19-point halftime lead and played suffocating defense to hand the RedHawks their second loss of the season.`\
 https://nytimes.com/athletic/7135220/2026/03/20/miami-ohio-tennessee-ncaa-tournament-scores/
-
-**‘Walker Texas Ranger’ Star Chuck Norris Dies at 86**\
-`The family of Chuck Norris announced that the action movie star died on Thursday after he had been hospitalized for a medical emergency earlier that day. Norris was known for his martial arts skills and his role in the CBS television series, “Walker, Texas Ranger.” He was 86.`\
-https://nytimes.com/video/obituaries/100000010792138/walker-texas-ranger-chuck-norris-dead.html
 
