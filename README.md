@@ -15,7 +15,7 @@ https://nytimes.com/2026/03/19/crosswords/daily-puzzle-2026-03-20.html
 https://nytimes.com/athletic/7132969/2026/03/19/vcu-unc-march-madness-2026-result-takeaways/
 
 **F.C.C. Approves Nexstar’s Acquisition of a Local TV Rival**\
-`The $6.2 billion deal with Tegna consolidates 265 stations in 44 states and Washington, D.C.`\
+`The $6.2 billion deal consolidates 265 stations in 44 states and Washington.`\
 https://nytimes.com/2026/03/19/business/fcc-nexstar-tegna-deal-approved.html
 
 **U.S. Says 3 Tied to Silicon Valley Server Maker Broke Export Laws**\
