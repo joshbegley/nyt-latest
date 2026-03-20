@@ -1,3 +1,7 @@
+**Denmark Was Ready to Blow Up Airfields to Stop a U.S. Invasion of Greenland**\
+`The Danes brought blood supplies, explosives and live ammunition to Greenland as part of contingency plans in case President Trump acted on his threats to seize the island.`\
+https://nytimes.com/2026/03/20/world/europe/denmark-blow-up-greenland-runways-us-invasion.html
+
 **What to Know About This Year’s Cherry Blossom Blooms**\
 `Spring, is that you? Where and when to find peak blooms in Washington, D.C., as well as New York, New Jersey, Oregon and Georgia.`\
 https://nytimes.com/2026/03/20/us/cherry-blossoms-washington-dc-new-york.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7134686/2026/03/20/bobby-riggs-grandson-sentenced-s
 **Nationals option Dylan Crews, No. 2 pick in 2023, to Triple A**\
 `Crews, the first position player taken in the 2023 draft, hit only .208 last season and .107 this spring.`\
 https://nytimes.com/athletic/7134791/2026/03/20/nationals-option-dylan-crews/
-
-**Flashback: Your Weekly History Quiz, March 21, 2026**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2026/03/20/upshot/flashback.html
 
