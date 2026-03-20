@@ -1,3 +1,15 @@
+**Cade Cunningham's injury casts pall on MVP voting thanks to 65-game rule**\
+`Cunningham has shown his value to the Pistons, so it's a shame the 65-game rule might rob him of accolades. `\
+https://nytimes.com/athletic/7132911/2026/03/20/pistons-cade-cunningham-collapsed-lung-playoffs/
+
+**Guimaraes transfer rumours are 'nonsense', 'totally disrespectful' – Howe**\
+`Speculation around the club captain has heightened following Newcastle’s elimination from the Champions League in midweek.`\
+https://nytimes.com/athletic/7130517/2026/03/20/bruno-guimaraes-transfer-rumours-newcastle-news-howe/
+
+**After epic meltdown and another first-round exit, UNC must ask: Is this good enough?**\
+`North Carolina blew a 19-point lead Thursday, and will not be playing in the NCAA Tournament second round for the third time in four years.`\
+https://nytimes.com/athletic/7133501/2026/03/20/unc-vcu-ncaa-tournament-comeback-loss-hubert-davis/
+
 **What I'm seeing in Arizona: Guardians arms, Denzer Guzman impress; Ethan Holliday struggles**\
 `Roldy Brito looks like a Rockies prospect to watch, and the Angels' Nelson Rada continues to show a strong hit and run tool but no power.`\
 https://nytimes.com/athletic/7132736/2026/03/20/prospect-notes-cleveland-guardians-los-angeles-angels-colorado-rockies/
