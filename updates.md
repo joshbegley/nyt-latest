@@ -1,3 +1,7 @@
+**How to watch Prairie View A&M vs. Florida men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Prairie View A&M Panthers play the Florida Gators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134728/2026/03/20/prairie-view-a-m-vs-florida-stream-how-to-watch-march-20/
+
 **How to watch Tennessee vs. NC State women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Tennessee Lady Volunteers play the NC State Lady Wolfpack, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7134674/2026/03/20/tennessee-vs-nc-state-stream-how-to-watch-march-20/

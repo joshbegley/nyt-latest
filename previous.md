@@ -1,3 +1,7 @@
+**How to watch Prairie View A&M vs. Florida men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Prairie View A&M Panthers play the Florida Gators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134728/2026/03/20/prairie-view-a-m-vs-florida-stream-how-to-watch-march-20/
+
 **How to watch Tennessee vs. NC State women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Tennessee Lady Volunteers play the NC State Lady Wolfpack, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7134674/2026/03/20/tennessee-vs-nc-state-stream-how-to-watch-march-20/
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/7134530/2026/03/20/nba-pacers-ivica-zubac-season-en
 **Cal State Challenges Trump’s Order on Transgender Student Athletes**\
 `The California State University system joins a short list of universities fighting Trump orders in court. The Education Department has threatened to cut federal funds to San Jose State University.`\
 https://nytimes.com/2026/03/20/us/politics/cal-state-transgender-athletes.html
-
-**Trump executive order aims to protect time slot of Army-Navy Game**\
-`The move to a 12-team College Football Playoff in 2024 created issues for Army-Navy, which takes place after CFP selections are made.`\
-https://nytimes.com/athletic/7134481/2026/03/20/president-trump-issues-executive-order-aimed-at-protecting-army-navy-games-solo-time-slot/
-
-**Alexander Brothers Are Said to Seek Trump Pardons for Sex Trafficking**\
-`People representing the three brothers have reached out to a lobbyist and an influential Jewish group that have supported clemency for others. There are no signs the White House is considering a pardon.`\
-https://nytimes.com/2026/03/20/nyregion/alexander-brothers-pardon-white-house.html
 
