@@ -1,3 +1,7 @@
+**Late Night Pans Trump’s Pearl Harbor Joke**\
+`“Let me tell you: There is no doubt in my mind that everything he knows about Pearl Harbor begins and ends with a movie starring Ben Affleck,” Jimmy Kimmel said.`\
+https://nytimes.com/2026/03/20/arts/television/late-night-trump-pearl-harbor.html
+
 **Word of the Day: luminosity**\
 `This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/20/learning/word-of-the-day-luminosity.html

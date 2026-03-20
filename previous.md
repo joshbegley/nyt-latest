@@ -1,3 +1,7 @@
+**Late Night Pans Trump’s Pearl Harbor Joke**\
+`“Let me tell you: There is no doubt in my mind that everything he knows about Pearl Harbor begins and ends with a movie starring Ben Affleck,” Jimmy Kimmel said.`\
+https://nytimes.com/2026/03/20/arts/television/late-night-trump-pearl-harbor.html
+
 **Word of the Day: luminosity**\
 `This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/20/learning/word-of-the-day-luminosity.html
@@ -18,13 +22,13 @@ https://nytimes.com/athletic/7121967/2026/03/20/callum-doyle-wrexham-analysis/
 `Two goals the Senegal forward put Palace into the quarter finals of the UEFA Conference League, where they will face Fiorentina `\
 https://nytimes.com/athletic/7125067/2026/03/20/ismaila-sarr-has-already-scored-15-goals-he-is-keeping-crystal-palaces-season-alive/
 
-**The nostalgic return of Adidas' trefoil logo creates a warm, comforting glow**\
-`For the first time in 36 years, Adidas' kits at the upcoming World Cup will feature their famous trefoil logo`\
-https://nytimes.com/athletic/7132181/2026/03/20/adidas-trefoil-nostalgia-2026-world-cup/
-
 **'Incompetence of the highest order': What football thinks of Tottenham's tailspin**\
 `Why have Spurs slid into relegation danger? We asked a range of senior football figures for their theories - and who they hold responsible`\
 https://nytimes.com/athletic/7110068/2026/03/20/tottenham-hotspur-what-football-thinks/
+
+**The nostalgic return of Adidas' trefoil logo creates a warm, comforting glow**\
+`For the first time in 36 years, Adidas' kits at the upcoming World Cup will feature their famous trefoil logo`\
+https://nytimes.com/athletic/7132181/2026/03/20/adidas-trefoil-nostalgia-2026-world-cup/
 
 **Premier League relegation battle: What the numbers say about Spurs, West Ham and Forest’s chances**\
 `The Athletic's data team's weekly look at the battle at the bottom of the table`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7131042/2026/03/20/premier-league-relegation-battle
 **Premier League predictions: Tottenham vs Forest, Newcastle vs Sunderland and rest of Matchday 31**\
 `Who's leading after MD30? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 31?`\
 https://nytimes.com/athletic/7130458/2026/03/20/premier-league-predictions-md31/
-
-**Karen Carney: Leaving a club can be hard. You have to take the emotion out of it**\
-`Guro Reiten leaving Chelsea will be hard - I found that too, but it helped when you take the emotion out of the decision`\
-https://nytimes.com/athletic/7128708/2026/03/20/karen-carney-guro-reiten-chelsea-gotham/
 
