@@ -1,3 +1,7 @@
+**Judge Rules Pentagon Restrictions on Press Are Unconstitutional**\
+`A federal judge tossed parts of the Pentagon’s restrictions on news outlets, saying they violated the First Amendment, in a lawsuit brought by The New York Times.`\
+https://nytimes.com/2026/03/20/business/media/pentagon-press-restrictions-new-york-times.html
+
 **Eagles trade safety Sydney Brown to Falcons as part of pick swap: Source**\
 `Brown had a special teams role with the Eagles in 2025.`\
 https://nytimes.com/athletic/7135136/2026/03/20/eagles-trade-safety-sydney-brown-falcons/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/20/books/don-delillo-amazons.html
 **Pochettino, Hayes salaries and bonuses revealed in U.S. Soccer tax filing**\
 `The USMNT coach made more than three times the amount as his USWNT counterpart, according to official documents`\
 https://nytimes.com/athletic/7135081/2026/03/20/pochettino-hayes-usmnt-uswnt-coach-salaries-us-soccer/
-
-**Chuck Norris: A Life in Pictures**\
-`The actor, known for his skills as a martial artist, often played the warrior onscreen.`\
-https://nytimes.com/2026/03/20/movies/chuck-norris-movies-shows-photos.html
 
