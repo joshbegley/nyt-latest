@@ -1,3 +1,7 @@
+**U.S. Says 3 Tied to Silicon Valley Server Maker Broke Export Laws**\
+`Prosecutors said the men, including a co-founder of the company, Super Micro, had diverted servers containing Nvidia A.I. chips to China.`\
+https://nytimes.com/2026/03/19/technology/super-micro-servers-china-indicted.html
+
 **What to Know About the Sexual Abuse Allegations Against Cesar Chavez**\
 `The accusations of assault have rattled communities across the country that have revered the labor icon for decades.`\
 https://nytimes.com/2026/03/19/us/what-to-know-cesar-chavez-sex-abuse.html

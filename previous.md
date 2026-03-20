@@ -1,3 +1,7 @@
+**U.S. Says 3 Tied to Silicon Valley Server Maker Broke Export Laws**\
+`Prosecutors said the men, including a co-founder of the company, Super Micro, had diverted servers containing Nvidia A.I. chips to China.`\
+https://nytimes.com/2026/03/19/technology/super-micro-servers-china-indicted.html
+
 **What to Know About the Sexual Abuse Allegations Against Cesar Chavez**\
 `The accusations of assault have rattled communities across the country that have revered the labor icon for decades.`\
 https://nytimes.com/2026/03/19/us/what-to-know-cesar-chavez-sex-abuse.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7132177/2026/03/19/football-fans-tickets-stadium-cr
 **The NCAA Tournament upsets to watch for in the second round**\
 `The first double-digit seed is through to the second round of the men's NCAA Tournament. How far can the High Point Panthers go?`\
 https://nytimes.com/athletic/7132351/2026/03/19/ncaa-tournament-second-round-upsets-most-likely/
-
-**Heat intend to waive guard Terry Rozier: Source**\
-`The move is more likely to happen closer to the end of the regular season, so the Heat can fill Rozier's roster spot for the playoffs.`\
-https://nytimes.com/athletic/7132671/2026/03/19/terry-rozier-miami-heat-waive/
 
