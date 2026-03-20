@@ -1,3 +1,15 @@
+**Educators, How Will You Teach Cesar Chavez’s Story After Abuse Allegations?**\
+`We want to hear from educators who teach about Mr. Chavez.`\
+https://nytimes.com/2026/03/20/us/cesar-chavez-abuse-allegations-teachers-callout.html
+
+**A Meningitis Outbreak Evokes Covid Memories at a British Campus**\
+`Residents and students in Canterbury, where the outbreak was centered, said measures to contain the disease were both familiar and frightening.`\
+https://nytimes.com/2026/03/20/world/europe/meningitis-outbreak-canterbury-university-of-kent.html
+
+**As Amorim said, things can change quickly - now Mainoo and Maguire must take England chance**\
+`The midfielder and centre-back have become the first Manchester United players (not out on loan) called up by Thomas Tuchel in 15 months`\
+https://nytimes.com/athletic/7124925/2026/03/20/mainoo-maguire-england-manchester-united/
+
 **NYU's 91-game winning streak ends with loss in DIII Final Four**\
 `NYU's streak included back-to-back national championships and was the second-longest in NCAA history behind UCONN's 111-game run.`\
 https://nytimes.com/athletic/7134296/2026/03/20/nyu-91-game-winning-streak-ends/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/20/us/meatpacking-strike-beef-prices.html
 **More! More! More! Tech Workers Max Out Their A.I. Use**\
 `At a number of companies, employees compete on leaderboards to show how much A.I. they’re using. They’re racking up big bills along the way.`\
 https://nytimes.com/2026/03/20/technology/tokenmaxxing-ai-agents.html
-
-**Bernard Rands, Pulitzer-Winning Composer, Dies at 92**\
-`His early successes in the 1960s, writing in the complex vein of high modernism, yielded later in his career to a more accessibly lyrical style.`\
-https://nytimes.com/2026/03/20/arts/music/bernard-rands-dead.html
-
-**Lights, Drones, Purple Pizza: BTS-mania Takes Over Seoul**\
-`The South Korean capital was aglow for the return of the K-pop supergroup.`\
-https://nytimes.com/2026/03/20/arts/music/lights-drones-purple-pizza-bts-mania-takes-over-seoul.html
-
-**How to watch Queens vs. Purdue men's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Queens Royals play the Purdue Boilermakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7134415/2026/03/20/queens-vs-purdue-stream-how-to-watch-march-20/
 
