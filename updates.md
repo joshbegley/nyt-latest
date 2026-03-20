@@ -1,3 +1,7 @@
+**How to watch Panthers vs. Flames: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the Calgary Flames, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134617/2026/03/20/panthers-vs-flames-stream-how-to-watch-march-20/
+
 **Presidents Who Honored Cesar Chavez Have Yet to React to Abuse Allegations**\
 `Bill Clinton gave Mr. Chavez the nation’s highest civilian honor. Barack Obama made Cesar Chavez Day a federal holiday. Joe Biden displayed a bronze bust of Mr. Chavez. So far, all have been quiet.`\
 https://nytimes.com/2026/03/20/us/politics/cesar-chavez-obama-bill-clinton-biden.html
