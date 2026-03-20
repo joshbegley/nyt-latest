@@ -1,3 +1,7 @@
+**An Autocrat Jailed Her, but She Wants the World to Talk to Him**\
+`Maria Kalesnikava is campaigning for the West to engage with the regime in Belarus that imprisoned her for more than five years.`\
+https://nytimes.com/2026/03/20/world/europe/maria-kalesnikava-lukashenko-belarus.html
+
 **Can Jonah Peretti Save BuzzFeed From Extinction?**\
 `Facing financial straits, the founder is betting on a skunkworks for A.I. experiments.`\
 https://nytimes.com/2026/03/20/business/media/buzzfeed-jonah-peretti-ai-future.html
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/2026/03/20/magazine/potato-salad-gumbo-hodgman-q
 **A Diary of War From an Unlikely Author: the Son of Iran’s President**\
 `In an online journal, Yousef Pezeshkian offers readers a mix of personal anecdotes and glimpses behind the scenes as Iranian leaders are picked off one after another.`\
 https://nytimes.com/2026/03/20/world/middleeast/iran-pezeshkian-son-diary.html
-
-**Fewer Children Are Being Held in ICE Detention**\
-`About 50 children were in federal detention in Dilley, Texas this week, down from about 500 in January. It is unclear how many were deported, but some are back at their U.S. schools.`\
-https://nytimes.com/2026/03/20/us/children-ice-detention-decrease.html
 
