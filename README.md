@@ -30,11 +30,11 @@ https://nytimes.com/athletic/7125617/2026/03/20/fantasy-premier-league-fpl-tips-
 `Emiliano Martinez played an incredible pass to Jadon Sancho during Thursday night's game against Lille`\
 https://nytimes.com/athletic/7132519/2026/03/20/emiliano-martinez-pass-aston-villa-lille-analysis/
 
+**Fabian Hurzeler thinks Brighton fans can make the difference during taxing run-in**\
+`The Brighton manager says the club's fans helped his side against Arsenal, and can do the same against Liverpool`\
+https://nytimes.com/athletic/7119588/2026/03/20/brighton-amex-atmosphere/
+
 **Nottingham Forest's Europa League win exceeded expectations. Now it's time to build momentum**\
 `With eight Premier League games remaining, will Thursday's Europa League win help Nottingham Forest in their bid for survival?`\
 https://nytimes.com/athletic/7132582/2026/03/20/nottingham-forests-europa-league-win-exceeded-expectations-now-its-time-to-build-momentum/
-
-**Is it time for Daniel Farke and Leeds to unleash Calvert-Lewin and Nmecha as a front two?**\
-`Leeds have an important game against Brentford on Saturday. Should they tweak their formation before then?`\
-https://nytimes.com/athletic/7132021/2026/03/20/leeds-dominic-calvert-lewin-lukas-nmecha-analysis/
 
