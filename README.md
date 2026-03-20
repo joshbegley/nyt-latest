@@ -1,40 +1,40 @@
-**How to watch Akron vs. Texas Tech men's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Akron Zips play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7133527/2026/03/20/akron-vs-texas-tech-stream-how-to-watch-march-20/
+**How to build a champion NWSL roster, as told by Gotham: 'There's always a science to it'**\
+`Things are looking good for Gotham thanks to some savvy recruitment under the league's stringent salary cap rules`\
+https://nytimes.com/athletic/7131381/2026/03/20/nwsl-gotham-roster-building-analysis/
 
-**How to watch Santa Clara vs. Kentucky men's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Santa Clara Broncos play the Kentucky Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7133525/2026/03/20/santa-clara-vs-kentucky-stream-how-to-watch-march-20/
+**'I was ready to go through a wall': Brady Tkachuk rises to the occasion for Senators**\
+`In a season in which his physical play hasn't been as prominent, Tkachuk knew he "needed to have a big game." He set the tone early.`\
+https://nytimes.com/athletic/7132745/2026/03/20/brady-tkachuk-senators-fight-goal-islanders-playoffs/
 
-**How to watch LIU vs. Arizona men's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Long Island Sharks play the Arizona Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7133523/2026/03/20/liu-vs-arizona-stream-how-to-watch-march-20/
+**In playoff-type game, Red Wings find a way to top Canadiens**\
+`The Red Wings got a much-needed regulation win over Montreal as the heated Eastern Conference playoff race continues. `\
+https://nytimes.com/athletic/7133077/2026/03/20/detroit-red-wings-montreal-canadiens-playoff-atmosphere-alex-debrincat/
 
-**What to Know About the BTS Comeback Concert**\
-`The K-pop supergroup’s first show in over three years will stream live on Netflix at 7 a.m. Eastern time on Saturday. The New York Times will cover it live from Seoul.`\
-https://nytimes.com/2026/03/20/world/asia/bts-concert-kpop-netflix-seoul.html
+**Eagles thoughts: Howie Roseman's start to free agency, newcomer to watch, what's next**\
+`The Eagles still have some needs they'll want to address.`\
+https://nytimes.com/athletic/7131781/2026/03/20/eagles-howie-roseman-free-agency/
 
-**How to watch Virginia Tech vs. Oregon women's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Virginia Tech Hokies play the Oregon Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7133509/2026/03/20/virginia-tech-vs-oregon-stream-how-to-watch-march-20/
+**'To drive Elias and Geeks': Lukas Reichel's speedy debut brings his linemates to life**\
+`The 23-year-old played his first game for the Bruins since arriving at the trade deadline in a 6-1 win against the Jets.`\
+https://nytimes.com/athletic/7133081/2026/03/20/lukas-reichel-bruins-debut-geekie-lindholm-jets/
 
-**One Global Power, One Regional Power, Two Different Goals**\
-`The U.S. is a superpower that views Iran through a prism of global responsibilities and strategic goals. Israel has a more regional approach. After three weeks of war, their paths are diverging.`\
-https://nytimes.com/2026/03/20/world/europe/iran-us-israel-goals.html
+**How Kevin Durant chased his 'inspiration' Michael Jordan to the doorstep of history**\
+`As Durant nears top five on the NBA's scoring list, his prowess and versatility continue to amaze. "There aren’t any real weaknesses."`\
+https://nytimes.com/athletic/7121975/2026/03/20/kevin-durant-views-michael-jordan-as-inspiration-it-has-him-positioned-for-history/
 
-**U.S. Asked to Keep Military Planes in Sri Lanka Before Iran Airstrikes**\
-`Sri Lanka did not agree to the request, officials said, and has tried to remain neutral in the U.S.-Israeli war in Iran.`\
-https://nytimes.com/2026/03/20/world/asia/sri-lanka-iran-war-ships-aircraft.html
+**Nationals roster projection 1.0: Moving pieces will complicate Blake Butera’s job**\
+`The Nationals traded for top catching prospect Harry Ford then sent him down, a sign of the new front office's player development strategy.`\
+https://nytimes.com/athletic/7132989/2026/03/20/washington-nationals-roster-projection/
 
-**How to watch UCSD vs. TCU women's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the UCSD Tritons play the TCU Horned Frogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7133503/2026/03/20/ucsd-vs-tcu-stream-how-to-watch-march-20/
+**LeBrun: After trade deadline 'disappointment,' can this still be the Hurricanes' year?**\
+`Hurricanes general manager Eric Tulsky had an uncharacteristically quiet trade deadline, but he remains confident with his team.`\
+https://nytimes.com/athletic/7131389/2026/03/20/carolina-hurricanes-playoffs-stanley-cup/
 
-**Who will become women's March Madness stars? Watch these standouts become famous**\
-`In the post-Caitlin Clark, post-Paige Bueckers world, women's basketball is hungry for a star to break through. A new star may be born soon.`\
-https://nytimes.com/athletic/7130159/2026/03/20/womens-basketball-march-madness-stars/
+**He played in the NBA for 17 years. What is he doing coaching a No. 16 seed?**\
+`A first-round draft pick by the Knicks in 1988, Rod Strickland is now taking advantage of his first head coaching opportunity in Brooklyn.`\
+https://nytimes.com/athletic/7129061/2026/03/20/rod-strickland-liu-basketball-coach-career/
 
-**For returning WBC players, it's suddenly a spring training sprint to the finish**\
-`“It’s not that fun,” San Diego Padres shortstop Xander Bogaerts admitted. “[but] Spring training, do you need it? Yes, I do need it."`\
-https://nytimes.com/athletic/7132531/2026/03/20/wbc-returning-players-spring-training-rush/
+**How to watch NCAA Women's Frozen Four: Top players, schedule and more**\
+`Everything you need to know about the 2026 women's Frozen Four before puck drop on Friday night.`\
+https://nytimes.com/athletic/7132445/2026/03/20/frozen-four-women-2026-how-to-watch-ncaa/
 
