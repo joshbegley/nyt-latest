@@ -1,3 +1,15 @@
+**Women's March Madness 2026 best bets for first round**\
+`Austin Mock's model shows value in five bets to kick off the women's first round.`\
+https://nytimes.com/athletic/7131503/2026/03/20/womens-march-madness-best-bets-first-round/
+
+**Polymarket Says It Predicts the Truth. Its Social Feeds Are Filled With Falsehoods.**\
+`A review of the betting market’s social media feeds found it has published hundreds of false and misleading posts.`\
+https://nytimes.com/2026/03/20/technology/polymarket-social-feeds-falsehoods.html
+
+**How to watch Devils vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the New Jersey Devils play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134314/2026/03/20/devils-vs-capitals-stream-how-to-watch-march-20/
+
 **Spurs' Vicario to be sidelined for up to a month after hernia surgery**\
 `Vicario will be available for Sunday’s crucial relegation six-pointer against Nottingham Forest.`\
 https://nytimes.com/athletic/7134268/2026/03/20/vicario-tottenham-surgery-hernia-injury/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/20/well/mind/seasonal-depression-spring-march.html
 **Man United close to agreement with Mainoo, Maguire over new contracts**\
 `Negotiations are now at an advanced stage as United look to conclude terms with both players.`\
 https://nytimes.com/athletic/7134214/2026/03/20/manchester-united-mainoo-maguire-contracts-new/
-
-**Georgia Tech gives Troy's Scott Cross a high-major shot as new Jackets coach**\
-`Cross has limited high-major experience, but a Georgia Tech source said the administration likes the way he handled the portal at Troy.`\
-https://nytimes.com/athletic/7134119/2026/03/20/georgia-tech-scott-cross-basketball-coach/
-
-**CBS News Cuts 6% of Staff as Bari Weiss Reshapes the Division**\
-`The layoffs affected several dozen employees at the news division, which is owned by the technology heir David Ellison.`\
-https://nytimes.com/2026/03/20/business/media/cbs-news-bari-weiss-layoffs.html
-
-**Deferring to Trump, G.O.P. Lawmakers Resist a Public Accounting on Iran**\
-`Nearly three weeks into a war that polls show is unpopular, top Republicans have yet to call administration officials to testify about it, arguing that hearings would put divisions on display.`\
-https://nytimes.com/2026/03/20/us/politics/congress-iran-trump.html
 
