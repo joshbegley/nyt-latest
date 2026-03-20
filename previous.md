@@ -1,3 +1,7 @@
+**Oil Falls and Stocks in Asia Hold Steady**\
+`Oil prices had been gyrating this week, after a new round of attacks on major energy facilities in Iran and Qatar raised concerns about energy supplies.`\
+https://nytimes.com/2026/03/20/business/oil-stocks-gas-iran.html
+
 **Connections: Sports Edition Coach: Hints and answers for March 20, 2026**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/7133206/2026/03/20/connections-sports-edition-hints-answers-march-20-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/20/pageoneplus/corrections-march-20-2026.html
 **‘The Alchemist’ Brought Them Together**\
 `But a pandemic breakup became a turning point for Arianna Davis and Jay Santana. He came to appreciate their own love story.`\
 https://nytimes.com/2026/03/20/style/arianna-davis-jay-santana-wedding.html
-
-**Scramble for Jet Fuel Shows How Energy Shortages Are Rippling Across Asia**\
-`As China and other major suppliers of refined oil in the region restrict exports, import-dependent countries are desperate to secure fuel supplies.`\
-https://nytimes.com/2026/03/20/business/oil-jetfuel-asia.html
 

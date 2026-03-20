@@ -1,3 +1,7 @@
+**Oil Falls and Stocks in Asia Hold Steady**\
+`Oil prices had been gyrating this week, after a new round of attacks on major energy facilities in Iran and Qatar raised concerns about energy supplies.`\
+https://nytimes.com/2026/03/20/business/oil-stocks-gas-iran.html
+
 **Connections: Sports Edition Coach: Hints and answers for March 20, 2026**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/7133206/2026/03/20/connections-sports-edition-hints-answers-march-20-2026/
