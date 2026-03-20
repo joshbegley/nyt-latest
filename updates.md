@@ -1,3 +1,11 @@
+**How to watch Virginia Tech vs. Oregon women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Virginia Tech Hokies play the Oregon Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7133509/2026/03/20/virginia-tech-vs-oregon-stream-how-to-watch-march-20/
+
+**One Global Power, One Regional Power, Two Different Goals**\
+`The U.S. is a superpower that views Iran through a prism of global responsibilities and strategic goals. Israel has a more regional approach. After three weeks of war, their paths are diverging.`\
+https://nytimes.com/2026/03/20/world/europe/iran-us-israel-goals.html
+
 **U.S. Asked to Keep Military Planes in Sri Lanka Before Iran Airstrikes**\
 `Sri Lanka did not agree to the request, officials said, and has tried to remain neutral in the U.S.-Israeli war in Iran.`\
 https://nytimes.com/2026/03/20/world/asia/sri-lanka-iran-war-ships-aircraft.html
