@@ -1,3 +1,15 @@
+**Cade Cunningham's injury casts pall on MVP voting thanks to 65-game rule**\
+`Cunningham has shown his value to the Pistons, so it's a shame the 65-game rule might rob him of accolades. `\
+https://nytimes.com/athletic/7132911/2026/03/20/pistons-cade-cunningham-collapsed-lung-playoffs/
+
+**Guimaraes transfer rumours are 'nonsense' and 'totally disrespectful'  - Howe**\
+`Reports have stated that clubs are in talks to sign the 28-year-old midfielder.`\
+https://nytimes.com/athletic/7130517/2026/03/20/bruno-guimaraes-transfer-rumours-newcastle-news-howe/
+
+**After epic meltdown and another first-round exit, UNC must ask: Is this good enough?**\
+`North Carolina blew a 19-point lead Thursday, and will not be playing in the NCAA Tournament second round for the third time in four years.`\
+https://nytimes.com/athletic/7133501/2026/03/20/unc-vcu-ncaa-tournament-comeback-loss-hubert-davis/
+
 **What I'm seeing in Arizona: Guardians arms, Denzer Guzman impress; Ethan Holliday struggles**\
 `Roldy Brito looks like a Rockies prospect to watch, and the Angels' Nelson Rada continues to show a strong hit and run tool but no power.`\
 https://nytimes.com/athletic/7132736/2026/03/20/prospect-notes-cleveland-guardians-los-angeles-angels-colorado-rockies/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7131381/2026/03/20/nwsl-gotham-roster-building-anal
 **'I was ready to go through a wall': Brady Tkachuk rises to the occasion for Senators**\
 `In a season in which his physical play hasn't been as prominent, Tkachuk knew he "needed to have a big game." He set the tone early.`\
 https://nytimes.com/athletic/7132745/2026/03/20/brady-tkachuk-senators-fight-goal-islanders-playoffs/
-
-**In playoff-type game, Red Wings find a way to top Canadiens**\
-`The Red Wings got a much-needed regulation win over Montreal as the heated Eastern Conference playoff race continues. `\
-https://nytimes.com/athletic/7133077/2026/03/20/detroit-red-wings-montreal-canadiens-playoff-atmosphere-alex-debrincat/
-
-**Eagles thoughts: Howie Roseman's start to free agency, newcomer to watch, what's next**\
-`The Eagles still have some needs they'll want to address.`\
-https://nytimes.com/athletic/7131781/2026/03/20/eagles-howie-roseman-free-agency/
-
-**'To drive Elias and Geeks': Lukas Reichel's speedy debut brings his linemates to life**\
-`The 23-year-old played his first game for the Bruins since arriving at the trade deadline in a 6-1 win against the Jets.`\
-https://nytimes.com/athletic/7133081/2026/03/20/lukas-reichel-bruins-debut-geekie-lindholm-jets/
 
