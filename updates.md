@@ -1,3 +1,7 @@
+**An Autocrat Jailed Her, but She Wants the World to Talk to Him**\
+`Maria Kalesnikava is campaigning for the West to engage with the regime in Belarus that imprisoned her for more than five years.`\
+https://nytimes.com/2026/03/20/world/europe/maria-kalesnikava-lukashenko-belarus.html
+
 **Can Jonah Peretti Save BuzzFeed From Extinction?**\
 `Facing financial straits, the founder is betting on a skunkworks for A.I. experiments.`\
 https://nytimes.com/2026/03/20/business/media/buzzfeed-jonah-peretti-ai-future.html
