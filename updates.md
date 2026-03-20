@@ -1,3 +1,7 @@
+**Fabian Hurzeler thinks Brighton fans can make the difference during taxing run-in**\
+`The Brighton manager says the club's fans helped his side against Arsenal, and can do the same against Liverpool`\
+https://nytimes.com/athletic/7119588/2026/03/20/brighton-amex-atmosphere/
+
 **Doctor and Robot**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2026/03/20/learning/doctor-and-robot.html
