@@ -1,3 +1,7 @@
+**Rush Order**\
+`Rafael Musa and Rebecca Goldstein open our solving weekend.`\
+https://nytimes.com/2026/03/19/crosswords/daily-puzzle-2026-03-20.html
+
 **VCU knocks out UNC, completing one of largest comebacks in NCAA Tournament history**\
 `VCU trailed by 19 in the second half before rallying to force overtime.`\
 https://nytimes.com/athletic/7132969/2026/03/19/vcu-unc-march-madness-2026-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7132568/2026/03/19/world-baseball-classic-viewershi
 **Here’s What Happened in the War in the Middle East on Thursday**\
 `Strikes continued in the region as attacks on energy infrastructure rattled global markets.`\
 https://nytimes.com/2026/03/19/world/middleeast/iran-war-middle-east-recap.html
-
-**Manfred likes idea of summer World Baseball Classic but Red Sox manager sees hold-up**\
-`A midseason WBC could help solve one problem the tournament encounters early: readiness.`\
-https://nytimes.com/athletic/7132729/2026/03/19/world-baseball-classic-tournament-idea-mlb/
 
