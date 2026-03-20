@@ -1,3 +1,15 @@
+**Liverpool owner FSG shelves plans to create multi-club group**\
+`American firm had explored several possible deals to add to its portfolio of sports teams`\
+https://nytimes.com/athletic/7131716/2026/03/20/liverpool-fsg-multi-club-plan-off/
+
+**Here’s the latest.**\
+`By Francesca Regalado, Ephrat Livni, Ashley Ahn and David E. Sanger`\
+https://nytimes.com/live/2026/03/20/world/iran-war-oil-trump/heres-the-latest
+
+**Iran War Live Updates: Oil Prices Retreat and More Attacks Are Reported**\
+`The price of oil was easing after the Trump administration sought to calm markets. Israel said it was striking Tehran and several U.S. allies reported incoming attacks.`\
+https://nytimes.com/live/2026/03/20/world/iran-war-oil-trump
+
 **How to watch Charleston (SC) vs. Duke women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Charleston (SC) Cougars play the Duke Blue Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7133407/2026/03/20/charleston-sc-vs-duke-stream-how-to-watch-march-20/
