@@ -1,3 +1,7 @@
+**Thomas Tuchel leaves door open for Arsenal's Max Dowman, 16, to make England World Cup squad**\
+`Dowman was not included in Tuchel's 35-man squad on Thursday but could still make the plane to North America.`\
+https://nytimes.com/athletic/7133796/2026/03/20/max-dowman-tuchel-england-world-cup-squad/
+
 **The Premier League's fifth Champions League place: One draw required to seal additional spot**\
 `A more positive set of results in Europe this week has all but guaranteed the Premier League one of UEFA's bonus spots`\
 https://nytimes.com/athletic/7133568/2026/03/20/premier-league-champions-league-fifth-spot-coefficients/

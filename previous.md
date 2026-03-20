@@ -1,3 +1,7 @@
+**Thomas Tuchel leaves door open for Arsenal's Max Dowman, 16, to make England World Cup squad**\
+`Dowman was not included in Tuchel's 35-man squad on Thursday but could still make the plane to North America.`\
+https://nytimes.com/athletic/7133796/2026/03/20/max-dowman-tuchel-england-world-cup-squad/
+
 **The Premier League's fifth Champions League place: One draw required to seal additional spot**\
 `A more positive set of results in Europe this week has all but guaranteed the Premier League one of UEFA's bonus spots`\
 https://nytimes.com/athletic/7133568/2026/03/20/premier-league-champions-league-fifth-spot-coefficients/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7125601/2026/03/20/edmonton-oilers-stats-standings-
 **Milwaukee Brewers watch guide: How to stream the Brew Crew in 2026**\
 `Milwaukee has new homes for regional and national broadcasts in 2026. Here's how to watch every Brewers game this season. `\
 https://nytimes.com/athletic/7132645/2026/03/20/milwaukee-brewers-how-to-watch-2026/
-
-**The Athletic’s Friday football quiz question #98**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/7132102/2026/03/20/the-athletics-friday-football-quiz-question-98/
 
