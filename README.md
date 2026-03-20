@@ -1,3 +1,7 @@
+**What now for FSG, a frustrated Michael Edwards and Liverpool?**\
+`The process of identifying a second club is effectively complete, but it looks unlikely that FSG will expand their football portfolio`\
+https://nytimes.com/athletic/7125072/2026/03/20/liverpool-fsg-michael-edwards-future/
+
 **Liverpool owner FSG shelves plans to create multi-club group**\
 `American firm had explored several possible deals to add to its portfolio of sports teams`\
 https://nytimes.com/athletic/7131716/2026/03/20/liverpool-fsg-multi-club-plan-off/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/20/insider/kidney-cancer-experience.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/03/20/crosswords/spelling-bee-forum.html
-
-**Late Night Pans Trump’s Pearl Harbor Joke**\
-`“Let me tell you: There is no doubt in my mind that everything he knows about Pearl Harbor begins and ends with a movie starring Ben Affleck,” Jimmy Kimmel said.`\
-https://nytimes.com/2026/03/20/arts/television/late-night-trump-pearl-harbor.html
 
