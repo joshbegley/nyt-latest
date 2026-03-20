@@ -1,3 +1,11 @@
+**Whittingham wanted to stay at Utah, AD displeased with transition: Documents**\
+`Documents obtained from the University of Utah shed light on Kyle Whittingham's surprising departure and resurfacing at Michigan.`\
+https://nytimes.com/athletic/7134161/2026/03/20/kyle-whittingham-utah-separation-agreement-michigan/
+
+**The Spurs fans determined to transform the atmosphere and do their bit in battle against relegation**\
+`A group of fans have announced an event which is designed to ramp up support for Sunday's crucial fixture at home to Nottingham Forest`\
+https://nytimes.com/athletic/7131583/2026/03/20/spurs-fans-forest-show-up-stay-up/
+
 **What now for Thomas Tuchel's forgotten men?**\
 `From Trent Alexander-Arnold to Morgan Gibbs-White, there were some notable omissions even with nine additional selections`\
 https://nytimes.com/athletic/7133914/2026/03/20/england-tuchel-world-cup-trent-watkins-gallagher-out/
