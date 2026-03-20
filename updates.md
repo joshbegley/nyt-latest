@@ -1,3 +1,19 @@
+**Leeds fined £530,000 by Premier League for delaying kick-offs**\
+`Leeds were found to have delayed restarts on nine occasions this season and could face bigger fines for future infringements. `\
+https://nytimes.com/athletic/7134788/2026/03/20/leeds-fine-kick-off-restart-delay/
+
+**Administration Bypasses Congress to Sell Weapons to U.A.E., Kuwait and Jordan**\
+`Some of the proposed sales, valued at more than $23 billion, were under review, while others were never sent to Congress. The Trump administration is pushing them through without congressional approval.`\
+https://nytimes.com/2026/03/20/us/politics/wartime-emergency-congress-weapons.html
+
+**Kentucky tops Santa Clara in OT after one of best March Madness sequences ever**\
+`Kentucky's Otega Oweh hit a desperation 3-pointer at the buzzer to answer a late Santa Clara 3 and force OT, where the Wildcats won 89-84.`\
+https://nytimes.com/athletic/7134763/2026/03/20/kentucky-santa-clara-march-madness-2026-score-results-takeaways/
+
+**Hegseth Invokes Divine Purpose to Justify Military Might**\
+`Defense Secretary Pete Hegseth has imbued U.S. military actions with a Christian moral underpinning that suggests they are divinely sanctioned.`\
+https://nytimes.com/2026/03/20/us/politics/hegseth-christianity-military.html
+
 **Man Shatters Valuable Glass Artwork and Tries to Stab Guard, Police Say**\
 `A man was arrested after being accused of damaging an estimated $240,000 of artwork at the Chihuly Garden and Glass.`\
 https://nytimes.com/2026/03/20/arts/design/dale-chihuly-glass-seattle.html
