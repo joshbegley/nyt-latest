@@ -1,3 +1,7 @@
+**What the Surprisingly Early Heat Wave Means for California’s Summer**\
+`The state is warming up and drying out earlier than usual. Here’s what that means for fire season.`\
+https://nytimes.com/2026/03/20/weather/california-heat-fire-season-snowpack.html
+
 **Fresno Took 30 Years to Name Cesar Chavez Blvd. Undoing It Took a Day.**\
 `The reckoning for the labor leader’s sex abuse was swift in Fresno, Calif., the heart of the Central Valley region where the farmworker movement was born. Towns across the nation face similar debates.`\
 https://nytimes.com/2026/03/20/us/fresno-cesar-chavez-street-rename.html
