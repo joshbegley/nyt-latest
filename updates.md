@@ -1,3 +1,19 @@
+**How to watch Gonzaga vs. Ole Miss women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Gonzaga Bulldogs play the Ole Miss Rebels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7133721/2026/03/20/gonzaga-vs-ole-miss-stream-how-to-watch-march-20/
+
+**How to watch South Dakota State vs. Washington women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the South Dakota State Jackrabbits play the Washington Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7133713/2026/03/20/south-dakota-state-vs-washington-stream-how-to-watch-march-20/
+
+**How to watch Murray State vs. Maryland women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Murray State Racers play the Maryland Terrapins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7133701/2026/03/20/murray-state-vs-maryland-stream-how-to-watch-march-20/
+
+**How to watch Nebraska vs. Baylor women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Nebraska Cornhuskers play the Baylor Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7133693/2026/03/20/nebraska-vs-baylor-stream-how-to-watch-march-20/
+
 **Four Ethiopian athletes to miss World Indoor Championships due to visa issues**\
 `Olympic 800m silver medalist Tsige Duguma and 1,500m runners Saron Berhe, Haregeweyn Kalayu and Mosisa Siyoum will also not compete.`\
 https://nytimes.com/athletic/7130987/2026/03/20/tsige-duguma-among-four-ethiopian-athletes-to-miss-world-indoor-championships-due-to-visa-issues/
