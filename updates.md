@@ -1,3 +1,11 @@
+**In Reversal, Trump Restores Support for House Republican Who Opposed Tariffs**\
+`President Trump reinstated his endorsement of Representative Jeff Hurd of Colorado, just weeks after pulling it back.`\
+https://nytimes.com/2026/03/20/us/politics/trump-jeff-hurd-republican-house-tariffs-endorsement-reversal.html
+
+**White House Unveils A.I. Policy Aimed at Blocking State Laws**\
+`The Trump administration on Friday released new guidelines for federal legislation on the technology, recommending some safeguards for children and consumer protections for energy costs.`\
+https://nytimes.com/2026/03/20/us/politics/white-house-unveils-ai-policy-aimed-at-blocking-state-laws.html
+
 **2026 WNBA mock draft: How high will Azzi Fudd, Flau'jae Johnson, Lauren Betts go?**\
 `Our final WNBA mock draft for 2026 sees a few changes throughout. `\
 https://nytimes.com/athletic/7133789/2026/03/20/2026-wnba-mock-draft-azzi-fudd-flaujae-johnson/
