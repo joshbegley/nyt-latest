@@ -1,3 +1,11 @@
+**Eagles trade safety Sydney Brown to Falcons as part of pick swap: Source**\
+`Brown had a special teams role with the Eagles in 2025.`\
+https://nytimes.com/athletic/7135136/2026/03/20/eagles-trade-safety-sydney-brown-falcons/
+
+**David Botstein, Gene-Mapping Pioneer, Dies at 83**\
+`His method of locating genes in human DNA allowed researchers to find disease-causing genes, and later to map the entire, sprawling human genome.`\
+https://nytimes.com/2026/03/20/science/david-botstein-dead.html
+
 **Why There’s a Chance California Elects a Republican Governor**\
 `The state’s wide-open “jungle primary” has Democrats on edge.`\
 https://nytimes.com/2026/03/20/us/politics/california-primary-gop-governors-race.html
