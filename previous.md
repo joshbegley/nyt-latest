@@ -1,3 +1,27 @@
+**Nebraska Second Congressional District 2026: Latest Polls**\
+`Track the latest polls in Nebraska's Second Congressional District.`\
+https://nytimes.com/interactive/polls/nebraska-us-house-2-polls-2026.html
+
+**N.Y.C. Street Vendors to Get a New Ally in City Government**\
+`Carina Kaufman-Gutierrez, the co-director of the Street Vendor Project, will head a new city office working with street vendors.`\
+https://nytimes.com/2026/03/20/nyregion/nyc-street-vendors.html
+
+**Hochul Moves to Delay and Alter Climate Law, Citing Energy Prices**\
+`The proposal, currently being considered by the Legislature during budget talks, would put off regulations for enforcing the law until 2030.`\
+https://nytimes.com/2026/03/20/nyregion/hochul-new-york-climate-law-delay.html
+
+**Educators, How Will You Teach Cesar Chavez’s Story After Abuse Allegations?**\
+`We want to hear from educators who teach about Mr. Chavez.`\
+https://nytimes.com/2026/03/20/us/cesar-chavez-abuse-allegations-teachers-callout.html
+
+**A Meningitis Outbreak Evokes Covid Memories at a British Campus**\
+`Residents and students in Canterbury, where the outbreak was centered, said measures to contain the disease were both familiar and frightening.`\
+https://nytimes.com/2026/03/20/world/europe/meningitis-outbreak-canterbury-university-of-kent.html
+
+**As Amorim said, things can change quickly - now Mainoo and Maguire must take England chance**\
+`The midfielder and centre-back have become the first Manchester United players (not out on loan) called up by Thomas Tuchel in 15 months`\
+https://nytimes.com/athletic/7124925/2026/03/20/mainoo-maguire-england-manchester-united/
+
 **NYU's 91-game winning streak ends with loss in DIII Final Four**\
 `NYU's streak included back-to-back national championships and was the second-longest in NCAA history behind UCONN's 111-game run.`\
 https://nytimes.com/athletic/7134296/2026/03/20/nyu-91-game-winning-streak-ends/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7134161/2026/03/20/kyle-whittingham-utah-separation
 **The Spurs fans determined to transform the atmosphere and do their bit in battle against relegation**\
 `A group of fans have announced an event which is designed to ramp up support for Sunday's crucial fixture at home to Nottingham Forest`\
 https://nytimes.com/athletic/7131583/2026/03/20/spurs-fans-forest-show-up-stay-up/
-
-**What now for Thomas Tuchel's forgotten men?**\
-`From Trent Alexander-Arnold to Morgan Gibbs-White, there were some notable omissions even with nine additional selections`\
-https://nytimes.com/athletic/7133914/2026/03/20/england-tuchel-world-cup-trent-watkins-gallagher-out/
-
-**A Meatpacking Strike in Colorado Is Another Stress to Trump’s Economy**\
-`The walkout at the JBS plant in Greeley, Colo., comes as beef prices have soared, cattle supplies have plunged and immigration sweeps have stressed the labor supply.`\
-https://nytimes.com/2026/03/20/us/meatpacking-strike-beef-prices.html
-
-**More! More! More! Tech Workers Max Out Their A.I. Use**\
-`At a number of companies, employees compete on leaderboards to show how much A.I. they’re using. They’re racking up big bills along the way.`\
-https://nytimes.com/2026/03/20/technology/tokenmaxxing-ai-agents.html
-
-**Bernard Rands, Pulitzer-Winning Composer, Dies at 92**\
-`His early successes in the 1960s, writing in the complex vein of high modernism, yielded later in his career to a more accessibly lyrical style.`\
-https://nytimes.com/2026/03/20/arts/music/bernard-rands-dead.html
-
-**Lights, Drones, Purple Pizza: BTS-mania Takes Over Seoul**\
-`The South Korean capital was aglow for the return of the K-pop supergroup.`\
-https://nytimes.com/2026/03/20/arts/music/lights-drones-purple-pizza-bts-mania-takes-over-seoul.html
-
-**How to watch Queens vs. Purdue men's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Queens Royals play the Purdue Boilermakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7134415/2026/03/20/queens-vs-purdue-stream-how-to-watch-march-20/
 
