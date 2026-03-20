@@ -1,3 +1,11 @@
+**What to Know About the Sexual Abuse Allegations Against Cesar Chavez**\
+`The accusations of assault have rattled communities across the country that have revered the labor icon for decades.`\
+https://nytimes.com/2026/03/19/us/what-to-know-cesar-chavez-sex-abuse.html
+
+**Judge Rules That R.F.K. Jr. Overstepped on Transgender Care**\
+`The ruling provides temporary relief for 21 states seeking to stop the Trump administration from ending federal funding to hospitals that provide gender-transition care.`\
+https://nytimes.com/2026/03/19/us/rfk-jr-transgender-care-ruling.html
+
 **LeBron James ties Robert Parish for most games played in NBA history**\
 `James appeared in his 1,611th career game Thursday night, less than 24 hours after he scored 30 points in Houston.`\
 https://nytimes.com/athletic/7132654/2026/03/19/lebron-james-nba-games-record-robert-parish/
