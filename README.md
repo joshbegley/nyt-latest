@@ -1,3 +1,7 @@
+**Read the Ruling in The Times’s Lawsuit Against the Pentagon**\
+`A federal judge on Friday threw out parts of the Pentagon’s restrictions on news outlets, ruling that they violated the First Amendment. The decision handed a victory to The New York Times, which had sued over the restrictions.`\
+https://nytimes.com/interactive/2026/03/20/us/new-york-times-v-department-of-defense-opinion.html
+
 **Judge Rules Pentagon Restrictions on Press Are Unconstitutional**\
 `A federal judge tossed parts of the Pentagon’s restrictions on news outlets, saying they violated the First Amendment, in a lawsuit brought by The New York Times.`\
 https://nytimes.com/2026/03/20/business/media/pentagon-press-restrictions-new-york-times.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/20/style/bachelorette-canceled-taylor-frankie-paul-f
 **Don DeLillo’s Ribald Hockey Romp Will Return to Stores**\
 `You’re welcome.`\
 https://nytimes.com/2026/03/20/books/don-delillo-amazons.html
-
-**Pochettino, Hayes salaries and bonuses revealed in U.S. Soccer tax filing**\
-`The USMNT coach made more than three times the amount as his USWNT counterpart, according to official documents`\
-https://nytimes.com/athletic/7135081/2026/03/20/pochettino-hayes-usmnt-uswnt-coach-salaries-us-soccer/
 
