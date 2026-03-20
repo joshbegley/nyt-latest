@@ -1,40 +1,36 @@
-**How Geopolitics Threaten K-Pop’s Ambitions in China**\
-`Japanese members of some K-pop bands have been absent from recent concerts in China. Experts say that’s linked to tension between Tokyo and Beijing.`\
-https://nytimes.com/2026/03/20/world/asia/k-pop-china-japan-south-korea.html
+**Can Jonah Peretti Save BuzzFeed From Extinction?**\
+`Facing financial straits, the founder is betting on a skunkworks for A.I. experiments.`\
+https://nytimes.com/2026/03/20/business/media/buzzfeed-jonah-peretti-ai-future.html
 
-**Kobbie Mainoo, Lewis Hall return to England squad**\
-`The squad is Thomas Tuchel's last before he will finalise his selection for this summer's World Cup in the United States, Canada and Mexico.`\
-https://nytimes.com/athletic/7133414/2026/03/20/england-squad-list-march-fixtures/
+**4 Things Ophthalmologists Wish You Knew About Your Eyes**\
+`For starters: They can get sunburned.`\
+https://nytimes.com/2026/03/20/well/ophthalmologists-eye-health-tips.html
 
-**What now for FSG, a frustrated Michael Edwards and Liverpool?**\
-`The process of identifying a second club is effectively complete, but it looks unlikely that FSG will expand their football portfolio`\
-https://nytimes.com/athletic/7125072/2026/03/20/liverpool-fsg-michael-edwards-future/
+**What the ‘Project Hail Mary’ Directors Learned From a Firing**\
+`Phil Lord and Christopher Miller, best known for animations like the “Spider-Verse” films, took lessons from “Solo: A Star Wars Story,” a project from which they were dismissed.`\
+https://nytimes.com/2026/03/20/movies/project-hail-mary-phil-lord-christopher-miller.html
 
-**Liverpool owner FSG shelves plans to create multi-club group**\
-`American firm had explored several possible deals to add to its portfolio of sports teams`\
-https://nytimes.com/athletic/7131716/2026/03/20/liverpool-fsg-multi-club-plan-off/
+**The New York Times News Quiz, March 20, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2026/03/20/briefing/iran-trump-oscars-joe-kent-news-quiz.html
 
-**Here’s the latest.**\
-`By Francesca Regalado, Ephrat Livni, Ashley Ahn and David E. Sanger`\
-https://nytimes.com/live/2026/03/20/world/iran-war-oil-trump/heres-the-latest
+**5 Places Where the Iran War Could Get Worse**\
+`How the conflict could further destabilize the region.`\
+https://nytimes.com/interactive/2026/03/20/opinion/iran-war-attacks-map.html
 
-**Iran War Live Updates: Oil Prices Retreat and More Attacks Are Reported**\
-`The price of oil was easing after the Trump administration sought to calm markets. Israel said it was striking Tehran and several U.S. allies reported incoming attacks.`\
-https://nytimes.com/live/2026/03/20/world/iran-war-oil-trump
+**The Danger of Declaring ‘Once and for All’ in the Middle East**\
+`Hamas has survived waves of killings of its leaders. More than force will be necessary to overturn the Islamic regime of Iran.`\
+https://nytimes.com/2026/03/20/opinion/iran-israel-united-states-hamas.html
 
-**How to watch Charleston (SC) vs. Duke women's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Charleston (SC) Cougars play the Duke Blue Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7133407/2026/03/20/charleston-sc-vs-duke-stream-how-to-watch-march-20/
+**Can You Put Potato Salad in Gumbo?**\
+`A ruling on an unusual garnish.`\
+https://nytimes.com/interactive/2026/03/20/magazine/potato-salad-gumbo-hodgman-quiz.html
 
-**Gabriel Jesus exclusive: 'We cannot be scared. We cannot lose something we don’t have'**\
-`Gabriel Jesus sits down with The Athletic to discuss trophy ambitions, dealing with pressure, injuries, and playing for Arteta and Guardiola`\
-https://nytimes.com/athletic/7128530/2026/03/20/gabriel-jesus-interview-arsenal-title-arteta-guardiola/
+**A Diary of War From an Unlikely Author: the Son of Iran’s President**\
+`In an online journal, Yousef Pezeshkian offers readers a mix of personal anecdotes and glimpses behind the scenes as Iranian leaders are picked off one after another.`\
+https://nytimes.com/2026/03/20/world/middleeast/iran-pezeshkian-son-diary.html
 
-**Doctor and Robot**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2026/03/20/learning/doctor-and-robot.html
-
-**How Iranian New Yorkers Are Celebrating Persian New Year During the War**\
-`Nowruz, a joyous holiday marking the new year, has given rise to complicated feelings for some who are fearful for their relatives in Iran.`\
-https://nytimes.com/2026/03/20/nyregion/nowruz-persian-new-year.html
+**Fewer Children Are Being Held in ICE Detention**\
+`About 50 children were in federal detention in Dilley, Texas this week, down from about 500 in January. It is unclear how many were deported, but some are back at their U.S. schools.`\
+https://nytimes.com/2026/03/20/us/children-ice-detention-decrease.html
 
