@@ -1,3 +1,11 @@
+**Read the Ruling in The Times’s Lawsuit Against the Pentagon**\
+`A federal judge on Friday threw out parts of the Pentagon’s restrictions on news outlets, ruling that they violated the First Amendment. The decision handed a victory to The New York Times, which had sued over the restrictions.`\
+https://nytimes.com/interactive/2026/03/20/us/new-york-times-v-department-of-defense-opinion.html
+
+**Judge Rules Pentagon Restrictions on Press Are Unconstitutional**\
+`A federal judge tossed parts of the Pentagon’s restrictions on news outlets, saying they violated the First Amendment, in a lawsuit brought by The New York Times.`\
+https://nytimes.com/2026/03/20/business/media/pentagon-press-restrictions-new-york-times.html
+
 **Eagles trade safety Sydney Brown to Falcons as part of pick swap: Source**\
 `Brown had a special teams role with the Eagles in 2025.`\
 https://nytimes.com/athletic/7135136/2026/03/20/eagles-trade-safety-sydney-brown-falcons/
