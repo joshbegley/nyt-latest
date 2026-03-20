@@ -1,3 +1,19 @@
+**Doctor and Robot**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2026/03/20/learning/doctor-and-robot.html
+
+**How Iranian New Yorkers Are Celebrating Persian New Year During the War**\
+`Nowruz, a joyous holiday marking the new year, has given rise to complicated feelings for some who are fearful for their relatives in Iran.`\
+https://nytimes.com/2026/03/20/nyregion/nowruz-persian-new-year.html
+
+**Why I Decided to Share My Cancer Surgery With Times Readers**\
+`An editor on the limits of shyness in the face of serious disease.`\
+https://nytimes.com/2026/03/20/insider/kidney-cancer-experience.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/20/crosswords/spelling-bee-forum.html
+
 **Ismaila Sarr now has 15 goals. He is keeping Crystal Palace's season alive**\
 `Two goals the Senegal forward put Palace into the quarter finals of the UEFA Conference League, where they will face Fiorentina `\
 https://nytimes.com/athletic/7125067/2026/03/20/ismaila-sarr-has-already-scored-15-goals-he-is-keeping-crystal-palaces-season-alive/
