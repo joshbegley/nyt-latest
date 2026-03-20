@@ -1,3 +1,7 @@
+**What to Know About This Year’s Cherry Blossom Blooms**\
+`Spring, is that you? Where and when to find peak blooms in Washington, D.C., as well as New York, New Jersey, Oregon and Georgia.`\
+https://nytimes.com/2026/03/20/us/cherry-blossoms-washington-dc-new-york.html
+
 **Shigeaki Mori, Hiroshima Survivor Photographed With Obama, Dies at 88**\
 `He lived through the first atomic bombing in Japan and then spent decades researching the identities of 12 American P.O.W.s killed in the attack.`\
 https://nytimes.com/2026/03/20/world/asia/shigeaki-mori-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7134791/2026/03/20/nationals-option-dylan-crews/
 **Flashback: Your Weekly History Quiz, March 21, 2026**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2026/03/20/upshot/flashback.html
-
-**War in Middle East Looms Over Eid and Nowruz Celebrations**\
-`The war in the Middle East cast a shadow over celebrations for Eid al-Fitr, a holiday marking the end of the Ramadan fasting month, and Nowruz, the Iranian new year.`\
-https://nytimes.com/video/world/middleeast/100000010791921/iran-war-middle-east-muslims-eid-nowruz.html
 
