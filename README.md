@@ -1,3 +1,19 @@
+**‘The Doppelganger Is at the Wheel’**\
+`Naomi Klein’s book “Doppelganger” is a journey into the world of MAGA and right-wing conspiracies.`\
+https://nytimes.com/video/opinion/100000010732753/the-doppelganger-is-at-the-wheel.html
+
+**Caught in the Fallout From the ‘Bachelorette’ Scandal**\
+`When ABC abruptly pulled a planned season of “The Bachelorette,” some whose livelihoods are wrapped up in the series were thrown for a loop.`\
+https://nytimes.com/2026/03/20/style/bachelorette-canceled-taylor-frankie-paul-fallout.html
+
+**Don DeLillo’s Ribald Hockey Romp Will Return to Stores**\
+`You’re welcome.`\
+https://nytimes.com/2026/03/20/books/don-delillo-amazons.html
+
+**Pochettino, Hayes salaries and bonuses revealed in U.S. Soccer tax filing**\
+`The USMNT coach made more than three times the amount as his USWNT counterpart, according to official documents`\
+https://nytimes.com/athletic/7135081/2026/03/20/pochettino-hayes-usmnt-uswnt-coach-salaries-us-soccer/
+
 **Chuck Norris: A Life in Pictures**\
 `The actor, known for his skills as a martial artist, often played the warrior onscreen.`\
 https://nytimes.com/2026/03/20/movies/chuck-norris-movies-shows-photos.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/20/world/middleeast/switzerland-halts-arms-sales-us.
 **WATCH: Signing Mike Evans saves the 49ers' Super Bowl window**\
 `Mike Evans has the potential to give San Francisco a super-charged version of what Jauan Jennings was bringing to the offense.`\
 https://nytimes.com/athletic/7134922/2026/03/20/mike-evans-san-francisco-49ers-nfl-free-agency-super-bowl/
-
-**U.S. Recovers Man From Pacific Boat Strike Area**\
-`A spokesman for the Coast Guard did not directly connect the rescue operation to Thursday’s boat strike in the eastern Pacific Ocean. The vessel sent the man to Costa Rica, and recovered two dead bodies.`\
-https://nytimes.com/2026/03/20/us/politics/pacific-boat-strike-survivor.html
-
-**Santa Clara coach called for timeout before UK buzzer-beater: 'Evidence is clear'**\
-`Before Kentucky's Otega Oweh hit a score-tying 3 to force OT, Santa Clara coach Herb Sendek said he called a timeout to set his defense.`\
-https://nytimes.com/athletic/7134989/2026/03/20/santa-clara-kentucky-refs-timeout/
-
-**Panthers' Rasheed Walker in pretrial diversion program after gun charges**\
-`Walker was arrested at New York’s LaGuardia Airport in January while trying to travel with a firearm.`\
-https://nytimes.com/athletic/7135020/2026/03/20/rasheed-walker-carolina-panthers-gun-arrest-new-york/
-
-**Former ICJ judge criticises FIFA over failure to further sanction Israel**\
-`The former United Nations special rapporteur said the global soccer governing body is committing "flagrant breaches of international law".`\
-https://nytimes.com/athletic/7134621/2026/03/20/fifa-criticism-israel-sanction/
 
