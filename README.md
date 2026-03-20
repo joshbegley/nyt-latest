@@ -1,3 +1,15 @@
+**Trump Sues Harvard Over Accusations of Antisemitism**\
+`The Ivy League school had won in court last year. The two sides had been in talks to negotiate a settlement.`\
+https://nytimes.com/2026/03/20/us/trump-harvard-antisemitism-suit.html
+
+**U.S. Prosecutors Investigate Colombia’s President, a Onetime Trump Foe**\
+`The Justice Department is examining whether President Gustavo Petro of Colombia has ties to drug traffickers.`\
+https://nytimes.com/2026/03/20/nyregion/colombia-president-petro-investigation-drugs.html
+
+**‘We Are at Zero’: War-Weary Lebanon Marks Eid With Muted Celebration**\
+`For families displaced by Israeli airstrikes, the joy that usually marks the end of Ramadan has been replaced by uncertainty and hardship.`\
+https://nytimes.com/2026/03/20/world/middleeast/muted-eid-in-lebanon.html
+
 **The Bounce: Can Pistons survive without Cade Cunningham? And another LeBron record**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7133979/2026/03/20/cade-cunningham-lung-lebron-james-record-nbathe-bounce/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7133998/2026/03/20/utah-state-vs-villanova-stream-h
 **Ronaldo out of Portugal squad, set to miss USMNT and Mexico games**\
 `Ronaldo travelled to Spain to undergo treatment for a hamstring injury earlier this month, according to Al Nassr head coach Jorge Jesus.`\
 https://nytimes.com/athletic/7133898/2026/03/20/cristiano-ronaldo-usmnt-mexico-portugal/
-
-**The U.S. Economy Is Insulated From High Oil Prices. Americans Aren’t.**\
-`The overall economy has proved resilient in recent years, even as many households have struggled. The war with Iran is following the same pattern.`\
-https://nytimes.com/2026/03/20/business/us-economy-oil-prices-inflation-iran-war-americans.html
-
-**How to watch Missouri State vs. Texas women's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Missouri State Bears play the Texas Longhorns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7133971/2026/03/20/missouri-state-vs-texas-stream-how-to-watch-march-20/
-
-**How to watch Western Illinois vs. North Carolina women's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Western Illinois Leathernecks play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7133967/2026/03/20/western-illinois-vs-north-carolina-stream-how-to-watch-march-20/
 
