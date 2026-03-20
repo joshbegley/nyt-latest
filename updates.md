@@ -1,3 +1,19 @@
+**‘The Doppelganger Is at the Wheel’**\
+`Naomi Klein’s book “Doppelganger” is a journey into the world of MAGA and right-wing conspiracies.`\
+https://nytimes.com/video/opinion/100000010732753/the-doppelganger-is-at-the-wheel.html
+
+**Caught in the Fallout From the ‘Bachelorette’ Scandal**\
+`When ABC abruptly pulled a planned season of “The Bachelorette,” some whose livelihoods are wrapped up in the series were thrown for a loop.`\
+https://nytimes.com/2026/03/20/style/bachelorette-canceled-taylor-frankie-paul-fallout.html
+
+**Don DeLillo’s Ribald Hockey Romp Will Return to Stores**\
+`You’re welcome.`\
+https://nytimes.com/2026/03/20/books/don-delillo-amazons.html
+
+**Pochettino, Hayes salaries and bonuses revealed in U.S. Soccer tax filing**\
+`The USMNT coach made more than three times the amount as his USWNT counterpart, according to official documents`\
+https://nytimes.com/athletic/7135081/2026/03/20/pochettino-hayes-usmnt-uswnt-coach-salaries-us-soccer/
+
 **Chuck Norris: A Life in Pictures**\
 `The actor, known for his skills as a martial artist, often played the warrior onscreen.`\
 https://nytimes.com/2026/03/20/movies/chuck-norris-movies-shows-photos.html
