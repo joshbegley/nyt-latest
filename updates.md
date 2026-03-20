@@ -1,3 +1,15 @@
+**2026 WNBA mock draft: How high will Azzi Fudd, Flau'jae Johnson, Lauren Betts go?**\
+`Our final WNBA mock draft for 2026 sees a few changes throughout. `\
+https://nytimes.com/athletic/7133789/2026/03/20/2026-wnba-mock-draft-azzi-fudd-flaujae-johnson/
+
+**Evacuation Ordered for Parts of Oahu as Heavy Rains Pummel Hawaii**\
+`Days after an intense storm moved through the islands, another is dropping yet more rain on already saturated areas.`\
+https://nytimes.com/2026/03/20/weather/hawaii-flash-flooding-evacuations.html
+
+**NATO Withdraws Its Last Military Trainers From Iraq**\
+`The NATO mission, created in 2018, trained and advised Iraqi forces. Iraq is among the countries facing retaliatory attacks from the U.S.-Israeli war.`\
+https://nytimes.com/2026/03/20/world/middleeast/nato-iraq.html
+
 **Nebraska Second Congressional District 2026: Latest Polls**\
 `Track the latest polls in Nebraska's Second Congressional District.`\
 https://nytimes.com/interactive/polls/nebraska-us-house-2-polls-2026.html
