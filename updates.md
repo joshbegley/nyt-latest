@@ -1,3 +1,11 @@
+**Chuck Norris, Crowd-Pleasing Star of Action Movies, Dies at 86**\
+`He channeled his martial arts skills into heroic roles in movies like “Walker, Texas Ranger,” “The Delta Force” and the “Missing in Action” series.`\
+https://nytimes.com/2026/03/20/movies/chuck-norris-dead.html
+
+**The Bounce: Can Pistons hang on without Cade Cunningham? And another LeBron record**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7133979/2026/03/20/cade-cunningham-lung-lebron-james-record-nbathe-bounce/
+
 **Calvin Tomkins, Who Profiled Giants of Modern Art, Dies at 100**\
 `Working for The New Yorker, he wrote about Marcel Duchamp, Robert Rauschenberg and many others. His books include “Living Well is the Best Revenge.”`\
 https://nytimes.com/2026/03/20/arts/design/calvin-tomkins-dead.html

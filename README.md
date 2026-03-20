@@ -1,5 +1,13 @@
-**Chuck Norris, Crowd-Pleasing Star of Action Movies, Dies at 86**\
-`He channeled his martial arts skills into heroic roles in movies like “Walker, Texas Ranger,” “The Delta Force” and the “Missing in Action” series.`\
+**Fed Official Urges Caution on Rate Cuts as Iran War Drags On**\
+`Christopher J. Waller, a Federal Reserve governor, said he would support rate cuts later this year if the labor market continued to weaken.`\
+https://nytimes.com/2026/03/20/business/economy/fed-waller-interest-rates.html
+
+**Tottenham's Maddison could return from injury this season, says Tudor**\
+`Maddison has not featured at all this campaign after suffering an anterior cruciate ligament (ACL) injury in a pre-season friendly in August`\
+https://nytimes.com/athletic/7134039/2026/03/20/james-maddison-tottenham-injury-latest/
+
+**Chuck Norris, Black-Belt Action Movie Star, Dies at 86**\
+`He channeled his martial arts skills into heroic roles onscreen in “Walker, Texas Ranger,” “The Delta Force,” the “Missing in Action” series and more.`\
 https://nytimes.com/2026/03/20/movies/chuck-norris-dead.html
 
 **Calvin Tomkins, Who Profiled Giants of Modern Art, Dies at 100**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/20/theater/plays-tru-ferguson-the-fever-shawn.html
 **NHL Power Rankings: No. 1 hangs on, Blue Jackets surge and keep an eye on these guys**\
 `We’ve picked one player from each team to watch during the final stretch of the season.`\
 https://nytimes.com/athletic/7133767/2026/03/20/nhl-power-rankings-31/
-
-**Why ugly Canucks losses are a vital reminder that the rebuild must go further**\
-`Thursday's absolute demolition at the hands of the Lightning was still reasonably shocking for how decisive it was.`\
-https://nytimes.com/athletic/7133378/2026/03/20/vancouver-canucks-loss-lightning-standings-stats-rebuild/
-
-**How to watch Miami (OH) vs. Tennessee men's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Miami (OH) RedHawks play the Tennessee Volunteers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7134010/2026/03/20/miami-oh-vs-tennessee-stream-how-to-watch-march-20/
 
