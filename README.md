@@ -1,3 +1,15 @@
+**Cesar Chavez Investigation**\
+``\
+https://nytimes.com/spotlight/cesar-chavez-collection
+
+**Justice Dept. Seeks to Drop Charges Against Officers in Breonna Taylor’s Death**\
+`The civil rights charges against the two Louisville, Ky., police officers stemmed from their involvement in drafting the no-knock search warrant that led to the fatal shooting.`\
+https://nytimes.com/2026/03/20/us/politics/breonna-taylor-officer-charges.html
+
+**Prime Tire: F1 changes faster than wax melts**\
+`Welcome to Prime Tire, The Athletic's F1 newsletter.`\
+https://nytimes.com/athletic/7134916/2026/03/20/mclaren-lando-norris-changes-prime-tire/
+
 **How to watch Idaho vs. Oklahoma women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Idaho Vandals play the Oklahoma Sooners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7134930/2026/03/20/idaho-vs-oklahoma-stream-how-to-watch-march-20/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7134805/2026/03/20/womens-ncaa-tournament-first-rou
 **A Few Ships Are Trickling Through the Strait of Hormuz With Iran’s Approval**\
 `Countries and companies have been negotiating with the Iranian authorities to secure passage. Some patterns are emerging.`\
 https://nytimes.com/2026/03/20/world/middleeast/strait-of-hormuz-iran-approval.html
-
-**‘Dhurandhar the Revenge’ Review: A License to Kill, a Lot**\
-`In this ultraviolent rah-rah sequel, Ranveer Singh returns as an undercover Indian agent who’s part political gangster, part antiterrorist killing machine.`\
-https://nytimes.com/2026/03/20/movies/dhurandhar-the-revenge-review.html
-
-**Denmark Was Ready to Blow Up Airfields to Stop a U.S. Invasion of Greenland**\
-`The Danes brought blood supplies, explosives and live ammunition to Greenland as part of contingency plans in case President Trump acted on his threats to seize the island.`\
-https://nytimes.com/2026/03/20/world/europe/denmark-blow-up-greenland-runways-us-invasion.html
-
-**What to Know About This Year’s Cherry Blossom Blooms**\
-`Spring, is that you? Where and when to find peak blooms in Washington, D.C., as well as New York, New Jersey, Oregon and Georgia.`\
-https://nytimes.com/2026/03/20/us/cherry-blossoms-washington-dc-new-york.html
 
