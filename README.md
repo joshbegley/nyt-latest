@@ -1,3 +1,7 @@
+**How to watch Panthers vs. Flames: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the Calgary Flames, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134617/2026/03/20/panthers-vs-flames-stream-how-to-watch-march-20/
+
 **Presidents Who Honored Cesar Chavez Have Yet to React to Abuse Allegations**\
 `Bill Clinton gave Mr. Chavez the nation’s highest civilian honor. Barack Obama made Cesar Chavez Day a federal holiday. Joe Biden displayed a bronze bust of Mr. Chavez. So far, all have been quiet.`\
 https://nytimes.com/2026/03/20/us/politics/cesar-chavez-obama-bill-clinton-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7134223/2026/03/20/new-york-jets-nfl-free-agency-sw
 **How to watch Raptors vs. Nuggets: Time, TV, streaming**\
 `Find out how to watch the Toronto Raptors play the Denver Nuggets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7134576/2026/03/20/raptors-vs-nuggets-stream-how-to-watch-march-20/
-
-**How to watch Hawks vs. Rockets: Time, TV, streaming**\
-`Find out how to watch the Atlanta Hawks play the Houston Rockets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7134574/2026/03/20/hawks-vs-rockets-stream-how-to-watch-march-20/
 
