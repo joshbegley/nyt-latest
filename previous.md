@@ -1,3 +1,7 @@
+**Word of the Day: luminosity**\
+`This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/20/learning/word-of-the-day-luminosity.html
+
 **Is Free Hit the smartest play for FPL Gameweek 31?**\
 `If your FPL team is in good shape, there is no need to panic. But if you are struggling for numbers, the Free Hit offers a powerful lifeline`\
 https://nytimes.com/athletic/7125617/2026/03/20/fantasy-premier-league-fpl-tips-blank-gameweek-31-free-hit/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7130458/2026/03/20/premier-league-predictions-md31/
 **Karen Carney: Leaving a club can be hard. You have to take the emotion out of it**\
 `Guro Reiten leaving Chelsea will be hard - I found that too, but it helped when you take the emotion out of the decision`\
 https://nytimes.com/athletic/7128708/2026/03/20/karen-carney-guro-reiten-chelsea-gotham/
-
-**Which Premier League clubs are most effective with substitutions?**\
-`Which Premier League sides are changing games with their changes — and who is lacking spark from the bench?`\
-https://nytimes.com/athletic/7130508/2026/03/20/premier-league-substitutions-goals-assists-finishers/
 

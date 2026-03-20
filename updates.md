@@ -1,3 +1,7 @@
+**Word of the Day: luminosity**\
+`This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/20/learning/word-of-the-day-luminosity.html
+
 **Is Free Hit the smartest play for FPL Gameweek 31?**\
 `If your FPL team is in good shape, there is no need to panic. But if you are struggling for numbers, the Free Hit offers a powerful lifeline`\
 https://nytimes.com/athletic/7125617/2026/03/20/fantasy-premier-league-fpl-tips-blank-gameweek-31-free-hit/
