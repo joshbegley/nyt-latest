@@ -1,3 +1,7 @@
+**9 Shows Our Theater Critics Are Talking About**\
+`Daniel Radcliffe in “Every Brilliant Thing,” “The Wild Party” and two Cold War-era comedy-thrillers: These are productions worth knowing about.`\
+https://nytimes.com/2026/03/20/theater/shows-plays-theater-critics-pick.html
+
 **Hatton suffering from CTE at time of death, inquest told**\
 `“I cannot be satisfied that he intended to take his own life,” coroner Alison Mutch told an inquest on Friday.`\
 https://nytimes.com/athletic/7134160/2026/03/20/ricky-hatton-inquest-death-suicide/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/03/20/us/nat-harvard-trump.html
 **Fed Official Urges Caution on Rate Cuts as Iran War Drags On**\
 `Christopher J. Waller, a Federal Reserve governor, said he would support rate cuts later this year if the labor market continued to weaken.`\
 https://nytimes.com/2026/03/20/business/economy/fed-waller-interest-rates.html
-
-**Tottenham's Maddison could return from injury this season, says Tudor**\
-`Maddison has not featured at all this campaign after suffering an anterior cruciate ligament (ACL) injury in a pre-season friendly in August`\
-https://nytimes.com/athletic/7134039/2026/03/20/james-maddison-tottenham-injury-latest/
 

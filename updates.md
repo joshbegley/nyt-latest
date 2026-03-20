@@ -1,3 +1,7 @@
+**9 Shows Our Theater Critics Are Talking About**\
+`Daniel Radcliffe in “Every Brilliant Thing,” “The Wild Party” and two Cold War-era comedy-thrillers: These are productions worth knowing about.`\
+https://nytimes.com/2026/03/20/theater/shows-plays-theater-critics-pick.html
+
 **Hatton suffering from CTE at time of death, inquest told**\
 `“I cannot be satisfied that he intended to take his own life,” coroner Alison Mutch told an inquest on Friday.`\
 https://nytimes.com/athletic/7134160/2026/03/20/ricky-hatton-inquest-death-suicide/
