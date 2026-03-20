@@ -1,3 +1,11 @@
+**Whittingham wanted to stay at Utah, AD displeased with transition: Documents**\
+`Documents obtained from the University of Utah shed light on Kyle Whittingham's surprising departure and resurfacing at Michigan.`\
+https://nytimes.com/athletic/7134161/2026/03/20/kyle-whittingham-utah-separation-agreement-michigan/
+
+**The Spurs fans determined to transform the atmosphere and do their bit in battle against relegation**\
+`A group of fans have announced an event which is designed to ramp up support for Sunday's crucial fixture at home to Nottingham Forest`\
+https://nytimes.com/athletic/7131583/2026/03/20/spurs-fans-forest-show-up-stay-up/
+
 **What now for Thomas Tuchel's forgotten men?**\
 `From Trent Alexander-Arnold to Morgan Gibbs-White, there were some notable omissions even with nine additional selections`\
 https://nytimes.com/athletic/7133914/2026/03/20/england-tuchel-world-cup-trent-watkins-gallagher-out/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7134413/2026/03/20/ucf-vs-ucla-stream-how-to-watch-
 **The Windup: NL West preview, and bold predictions**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/7134375/2026/03/20/national-league-west-preview-2026-the-windup/
-
-**E.P.A. Chief to Headline Event by Group That Says There’s No Climate Crisis**\
-`Lee Zeldin, the agency administrator, will address a Heartland Institute forum in April. The organization says speakers will challenge the climate crisis “narrative.”`\
-https://nytimes.com/2026/03/20/climate/zeldin-epa-heartland-institute.html
-
-**How to Trim and Style Your Own Bangs**\
-`Expert advice on maintaining a cut at home.`\
-https://nytimes.com/2026/03/20/t-magazine/styling-trimming-bangs-at-home.html
 
