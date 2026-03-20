@@ -1,3 +1,27 @@
+**Alexander Brothers Are Said to Seek Trump Pardons for Sex Trafficking**\
+`People representing the three brothers have reached out to a lobbyist and an influential Jewish group that have supported clemency for others. There are no signs the White House is considering a pardon.`\
+https://nytimes.com/2026/03/20/nyregion/alexander-brothers-pardon-white-house.html
+
+**WATCH: How the Jets' three newest additions improve their defense**\
+`All three players fit the mold for head coach Aaron Glenn's defense and, more importantly, are sizable upgrades.`\
+https://nytimes.com/athletic/7134223/2026/03/20/new-york-jets-nfl-free-agency-sweat-ossai-davis/
+
+**How to watch Raptors vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the Toronto Raptors play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134576/2026/03/20/raptors-vs-nuggets-stream-how-to-watch-march-20/
+
+**How to watch Hawks vs. Rockets: Time, TV, streaming**\
+`Find out how to watch the Atlanta Hawks play the Houston Rockets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134574/2026/03/20/hawks-vs-rockets-stream-how-to-watch-march-20/
+
+**How to watch Celtics vs. Grizzlies: Time, TV, streaming**\
+`Find out how to watch the Boston Celtics play the Memphis Grizzlies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134572/2026/03/20/celtics-vs-grizzlies-stream-how-to-watch-march-20/
+
+**How to watch Knicks vs. Nets: Time, TV, streaming**\
+`Find out how to watch the New York Knicks play the Brooklyn Nets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134570/2026/03/20/knicks-vs-nets-stream-how-to-watch-march-20/
+
 **How to watch Trail Blazers vs. Timberwolves: Time, TV, streaming**\
 `Find out how to watch the Portland Trail Blazers play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7134566/2026/03/20/trail-blazers-vs-timberwolves-stream-how-to-watch-march-20/
@@ -14,16 +38,4 @@ https://nytimes.com/athletic/7132086/2026/03/20/eno-sarris-live-chat-march-20/
 **In Reversal, Trump Restores Support for House Republican Who Opposed Tariffs**\
 `President Trump reinstated his endorsement of Representative Jeff Hurd of Colorado, just weeks after pulling it back.`\
 https://nytimes.com/2026/03/20/us/politics/trump-jeff-hurd-republican-house-tariffs-endorsement-reversal.html
-
-**White House Unveils A.I. Policy Aimed at Blocking State Laws**\
-`The Trump administration on Friday released new guidelines for federal legislation on the technology, recommending some safeguards for children and consumer protections for energy costs.`\
-https://nytimes.com/2026/03/20/us/politics/white-house-unveils-ai-policy-aimed-at-blocking-state-laws.html
-
-**2026 WNBA mock draft: How high will Azzi Fudd, Flau'jae Johnson, Lauren Betts go?**\
-`Our final WNBA mock draft for 2026 sees a few changes throughout. `\
-https://nytimes.com/athletic/7133789/2026/03/20/2026-wnba-mock-draft-azzi-fudd-flaujae-johnson/
-
-**Evacuation Ordered for Parts of Oahu as Heavy Rains Pummel Hawaii**\
-`Days after an intense storm moved through the islands, another is dropping yet more rain on already saturated areas.`\
-https://nytimes.com/2026/03/20/weather/hawaii-flash-flooding-evacuations.html
 

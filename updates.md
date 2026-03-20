@@ -1,3 +1,27 @@
+**Alexander Brothers Are Said to Seek Trump Pardons for Sex Trafficking**\
+`People representing the three brothers have reached out to a lobbyist and an influential Jewish group that have supported clemency for others. There are no signs the White House is considering a pardon.`\
+https://nytimes.com/2026/03/20/nyregion/alexander-brothers-pardon-white-house.html
+
+**WATCH: How the Jets' three newest additions improve their defense**\
+`All three players fit the mold for head coach Aaron Glenn's defense and, more importantly, are sizable upgrades.`\
+https://nytimes.com/athletic/7134223/2026/03/20/new-york-jets-nfl-free-agency-sweat-ossai-davis/
+
+**How to watch Raptors vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the Toronto Raptors play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134576/2026/03/20/raptors-vs-nuggets-stream-how-to-watch-march-20/
+
+**How to watch Hawks vs. Rockets: Time, TV, streaming**\
+`Find out how to watch the Atlanta Hawks play the Houston Rockets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134574/2026/03/20/hawks-vs-rockets-stream-how-to-watch-march-20/
+
+**How to watch Celtics vs. Grizzlies: Time, TV, streaming**\
+`Find out how to watch the Boston Celtics play the Memphis Grizzlies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134572/2026/03/20/celtics-vs-grizzlies-stream-how-to-watch-march-20/
+
+**How to watch Knicks vs. Nets: Time, TV, streaming**\
+`Find out how to watch the New York Knicks play the Brooklyn Nets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134570/2026/03/20/knicks-vs-nets-stream-how-to-watch-march-20/
+
 **How to watch Trail Blazers vs. Timberwolves: Time, TV, streaming**\
 `Find out how to watch the Portland Trail Blazers play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7134566/2026/03/20/trail-blazers-vs-timberwolves-stream-how-to-watch-march-20/
