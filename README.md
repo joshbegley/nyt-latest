@@ -1,5 +1,5 @@
 **Trump Sues Harvard Over Accusations of Antisemitism**\
-`The Ivy League school had won in court last year. The two sides had been in talks to negotiate a settlement.`\
+`The administration had spent months investigating the Ivy League school. The two sides had been in talks to negotiate a settlement.`\
 https://nytimes.com/2026/03/20/us/trump-harvard-antisemitism-suit.html
 
 **U.S. Prosecutors Investigate Colombia’s President, a Onetime Trump Foe**\

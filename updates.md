@@ -1,3 +1,15 @@
+**Trump Sues Harvard Over Accusations of Antisemitism**\
+`The Ivy League school had won in court last year. The two sides had been in talks to negotiate a settlement.`\
+https://nytimes.com/2026/03/20/us/trump-harvard-antisemitism-suit.html
+
+**U.S. Prosecutors Investigate Colombia’s President, a Onetime Trump Foe**\
+`The Justice Department is examining whether President Gustavo Petro of Colombia has ties to drug traffickers.`\
+https://nytimes.com/2026/03/20/nyregion/colombia-president-petro-investigation-drugs.html
+
+**‘We Are at Zero’: War-Weary Lebanon Marks Eid With Muted Celebration**\
+`For families displaced by Israeli airstrikes, the joy that usually marks the end of Ramadan has been replaced by uncertainty and hardship.`\
+https://nytimes.com/2026/03/20/world/middleeast/muted-eid-in-lebanon.html
+
 **The Bounce: Can Pistons survive without Cade Cunningham? And another LeBron record**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7133979/2026/03/20/cade-cunningham-lung-lebron-james-record-nbathe-bounce/
