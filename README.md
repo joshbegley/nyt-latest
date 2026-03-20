@@ -1,3 +1,15 @@
+**How to watch Missouri State vs. Texas women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Missouri State Bears play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7133971/2026/03/20/missouri-state-vs-texas-stream-how-to-watch-march-20/
+
+**How to watch Western Illinois vs. North Carolina women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Western Illinois Leathernecks play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7133967/2026/03/20/western-illinois-vs-north-carolina-stream-how-to-watch-march-20/
+
+**How to watch Holy Cross vs. Michigan women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Holy Cross Crusaders play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7133960/2026/03/20/holy-cross-vs-michigan-stream-how-to-watch-march-20/
+
 **Ronnie O’Sullivan's record-high snooker break of 153: How did he do it?**\
 `O’Sullivan’s ability is such that this majestic break is only a footnote in the greatest snooker career in the sport's history`\
 https://nytimes.com/athletic/7133839/2026/03/20/ronnie-o-sullivan-snooker-break-153-maximum-free-ball/
@@ -6,7 +18,7 @@ https://nytimes.com/athletic/7133839/2026/03/20/ronnie-o-sullivan-snooker-break-
 `"These platforms have the power, the technology and the resources to prevent this abuse, yet too often they fail to do so," Liverpool said.`\
 https://nytimes.com/athletic/7133909/2026/03/20/ibrahima-konate-racist-abuse-liverpool-galatasaray/
 
-**Tielemans returns to Villa training after two-month absence with ankle injury**\
+**Tielemans returns to Villa training after two-month injury absence**\
 `The Belgium international has not played since sustaining an ankle injury away at Newcastle United in January.`\
 https://nytimes.com/athletic/7133895/2026/03/20/youri-tielemans-injury-aston-villa-return/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7133886/2026/03/20/real-sociedad-vs-villarreal-stre
 **A former Atletico analyst, an ex-law student, away day runs: Arbeloa's Real Madrid staff**\
 `Arbeloa has turned things around at Madrid after a rocky start to his time in charge. Who are the people helping him?`\
 https://nytimes.com/athletic/7133617/2026/03/20/alvaro-arbeloa-real-madrid-coaching-staff-atletico/
-
-**The I.R.S. Is Phasing Out Paper Checks. Here’s How to Speed Your Refund.**\
-`President Trump has directed that most federal payments be issued electronically, including tax refunds. Last year nearly 10 million people got their refund via a paper check.`\
-https://nytimes.com/2026/03/20/your-money/the-irs-is-phasing-out-paper-checks-heres-how-to-speed-your-refund.html
-
-**‘Saturday Night Live’ Arrives in London. Can It Make the Brits Laugh?**\
-`Britain has a storied history of sketch comedy, but its humor has a very different flavor than the American variety.`\
-https://nytimes.com/2026/03/20/arts/television/saturday-night-live-london-uk.html
-
-**Mets preseason fan survey: What do you expect from the new roster?**\
-`How do you feel about these New York Mets? With Opening Day around the corner, it's time to make your bold predictions.`\
-https://nytimes.com/athletic/7133113/2026/03/20/mets-fan-survey-2026-roster-predictions/
 
