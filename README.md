@@ -1,3 +1,15 @@
+**How to Trim and Style Your Own Bangs**\
+`Expert advice on maintaining a cut at home.`\
+https://nytimes.com/2026/03/20/t-magazine/styling-trimming-bangs-at-home.html
+
+**How to watch Iowa vs. Clemson men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Iowa Hawkeyes play the Clemson Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134396/2026/03/20/iowa-vs-clemson-stream-how-to-watch-march-20/
+
+**How to watch Northern Iowa vs. St. John's men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Northern Iowa Panthers play the St. John's Red Storm, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134391/2026/03/20/northern-iowa-vs-st-john-s-stream-how-to-watch-march-20/
+
 **How to watch Green Bay vs. Minnesota women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Green Bay Phoenix play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7134364/2026/03/20/green-bay-vs-minnesota-stream-how-to-watch-march-20/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/20/technology/polymarket-social-feeds-falsehoods.htm
 **How to watch Devils vs. Capitals: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the Washington Capitals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7134314/2026/03/20/devils-vs-capitals-stream-how-to-watch-march-20/
-
-**Spurs' Vicario to be sidelined for up to a month after hernia surgery**\
-`Vicario will be available for Sunday’s crucial relegation six-pointer against Nottingham Forest.`\
-https://nytimes.com/athletic/7134268/2026/03/20/vicario-tottenham-surgery-hernia-injury/
-
-**Dennis Rodman set to join another Hall of Fame: WWE**\
-`In 1998, a month after battling on the basketball court, Rodman and Karl Malone squared off in the wrestling ring.`\
-https://nytimes.com/athletic/7134154/2026/03/20/dennis-rodman-wwe-hall-of-fame/
-
-**How to watch Hurricanes vs. Maple Leafs: Time, TV, streaming**\
-`Find out how to watch the Carolina Hurricanes play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7134295/2026/03/20/hurricanes-vs-maple-leafs-stream-how-to-watch-march-20/
 

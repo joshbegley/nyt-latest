@@ -1,3 +1,19 @@
+**How to watch Green Bay vs. Minnesota women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Green Bay Phoenix play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134364/2026/03/20/green-bay-vs-minnesota-stream-how-to-watch-march-20/
+
+**How to watch Jacksonville vs. LSU women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Jacksonville Dolphins play the LSU Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134361/2026/03/20/jacksonville-vs-lsu-stream-how-to-watch-march-20/
+
+**How to watch Colorado State vs. Michigan State women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Colorado State Rams play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134355/2026/03/20/colorado-state-vs-michigan-state-stream-how-to-watch-march-20/
+
+**Gustavo Dudamel’s Portrait Emerges From a Season of Introductions**\
+`The New York Philharmonic’s next music leader, slowly revealing facets of his personality, used his latest visit to showcase his political conscience.`\
+https://nytimes.com/2026/03/20/arts/music/gustavo-dudamel-new-york-philharmonic.html
+
 **Women's March Madness 2026 best bets for first round**\
 `Austin Mock's model shows value in five bets to kick off the women's first round.`\
 https://nytimes.com/athletic/7131503/2026/03/20/womens-march-madness-best-bets-first-round/
