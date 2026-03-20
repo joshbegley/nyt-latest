@@ -1,8 +1,12 @@
+**World Baseball Classic title game draws record-shattering 10.8 million viewers**\
+`Venezuela's win over the U.S. drew more than double the audience that tuned in for a Japan-U.S. showdown in 2023, according to Fox.`\
+https://nytimes.com/athletic/7132568/2026/03/19/world-baseball-classic-viewership-record-2026/
+
 **Here’s What Happened in the War in the Middle East on Thursday**\
 `Strikes continued in the region as attacks on energy infrastructure rattled global markets.`\
 https://nytimes.com/2026/03/19/world/middleeast/iran-war-middle-east-recap.html
 
-**Manfred likes idea of summer World Baseball Classic but Sox manager sees hold-up**\
+**Manfred likes idea of summer World Baseball Classic but Red Sox manager sees hold-up**\
 `A midseason WBC could help solve one problem the tournament encounters early: readiness.`\
 https://nytimes.com/athletic/7132729/2026/03/19/world-baseball-classic-tournament-idea-mlb/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/19/us/politics/nashville-reporter-released-ice-custo
 **Iran Combines Real-World Missile Attacks With Online Threats**\
 `Iran launched a missile strike, a disinformation push and a cyberattack targeting Israel all at the same time, analysts say.`\
 https://nytimes.com/2026/03/19/us/politics/iran-israel-information-campaign.html
-
-**Craig Counsell to Cubs hitting coaches: Don’t mess with Moisés Ballesteros**\
-`Cubs are trying to temper expectations around the prospect Ballesteros, who simply does not stop hitting.`\
-https://nytimes.com/athletic/7132376/2026/03/19/craig-counsell-cubs-moises-ballesteros/
 
