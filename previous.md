@@ -1,3 +1,31 @@
+**Georgia Tech gives Troy's Scott Cross a high-major shot as new Jackets coach**\
+`Cross has limited high-major experience, but a Georgia Tech source said the administration likes the way he handled the portal at Troy.`\
+https://nytimes.com/athletic/7134119/2026/03/20/georgia-tech-scott-cross-basketball-coach/
+
+**CBS News Cuts 6% of Staff as Bari Weiss Reshapes the Division**\
+`The layoffs affected several dozen employees at the news division, which is owned by the technology heir David Ellison.`\
+https://nytimes.com/2026/03/20/business/media/cbs-news-bari-weiss-layoffs.html
+
+**Deferring to Trump, G.O.P. Lawmakers Resist a Public Accounting on Iran**\
+`Nearly three weeks into a war that polls show is unpopular, top Republicans have yet to call administration officials to testify about it, arguing that hearings would put divisions on display.`\
+https://nytimes.com/2026/03/20/us/politics/congress-iran-trump.html
+
+**I Spent Two Decades Securing Nuclear Materials. Getting at Iran’s Would Not Be Easy.**\
+`Landing in hostile territory and quickly extracting Iran’s highly enriched uranium would be next to impossible.`\
+https://nytimes.com/2026/03/20/opinion/iran-nuclear-materials-war.html
+
+**Speedy Honey Garlic Shrimp and Lazy Daisy Cake**\
+`And more of our most popular recipes from the week.`\
+https://nytimes.com/2026/03/20/dining/speedy-honey-garlic-shrimp-and-lazy-daisy-cake.html
+
+**‘Monte Cristo’ Review: A Tale of Betrayal, on Two Counts**\
+`An adaptation has a twist that doesn’t track, and songs that benefit from an excellent cast, including Norm Lewis, Sierra Boggess and Adam Jacobs.`\
+https://nytimes.com/2026/03/20/theater/monte-cristo-review-norm-lewis-sierra-boggess.html
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include burned-out paramedics, unlikely superheroes and vengeful women.`\
+https://nytimes.com/2026/03/20/movies/action-movies-streaming.html
+
 **9 Shows Our Theater Critics Are Talking About**\
 `Daniel Radcliffe in “Every Brilliant Thing,” “The Wild Party” and two Cold War-era comedy-thrillers: These are productions worth knowing about.`\
 https://nytimes.com/2026/03/20/theater/shows-plays-theater-critics-pick.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/7134160/2026/03/20/ricky-hatton-inquest-death-suici
 **Until Saturday: So far, March is back to Madness**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/7134182/2026/03/20/march-madness-upsets-until-saturday/
-
-**JJ Wetherholt is the newest 'pesky' Card; Cade Horton is a Zero-SP fantasy baseball target**\
-`Andy Behrens gives actionable fantasy baseball draft advice based on the spring performances of JJ Wetherholt, Didier Fuentes and others. `\
-https://nytimes.com/athletic/7133820/2026/03/20/fantasy-baseball-news-wetherholt-cade-horton-zero-sp/
-
-**Trump Friend Asked ICE to Detain the Mother of His Child**\
-`Paolo Zampolli, a former modeling agent and a longtime Trump ally, was in a custody battle over his son. An ICE official agreed to help.`\
-https://nytimes.com/2026/03/20/us/paolo-zampolli-ice-melania-trump-epstein.html
-
-**NHL commissioner Gary Bettman vs. critics: A lightning round on the state of the league**\
-`Plus: How the heck are the Pittsburgh Penguins so good?`\
-https://nytimes.com/athletic/7134097/2026/03/20/nhl-playoff-format-gary-bettman-red-light/
-
-**Men's March Madness 2026 best bets for the second round**\
-`Austin Mock has his best bets for the men's second round. Stay tuned throughout the day on Friday for more.`\
-https://nytimes.com/athletic/7134019/2026/03/20/mens-march-madness-2026-best-bets-second-round/
-
-**Supreme Court Allows Street Preacher’s Lawsuit**\
-`Gabriel Olivier was arrested after violating an ordinance restricting demonstrations outside an amphitheater in Brandon, Miss.`\
-https://nytimes.com/2026/03/20/us/politics/supreme-court-street-preacher.html
-
-**Read the lawsuit**\
-`The Trump administration is accusing the school of violating the civil rights of Jewish and Israeli people, an escalation of the government’s yearlong clash with the Ivy League university.`\
-https://nytimes.com/interactive/2026/03/20/us/nat-harvard-trump.html
-
-**Fed Official Urges Caution on Rate Cuts as Iran War Drags On**\
-`Christopher J. Waller, a Federal Reserve governor, said he would support rate cuts later this year if the labor market continued to weaken.`\
-https://nytimes.com/2026/03/20/business/economy/fed-waller-interest-rates.html
 
