@@ -1,3 +1,11 @@
+**War in Middle East Looms Over Eid and Nowruz Celebrations**\
+`The war in the Middle East cast a shadow over celebrations for Eid al-Fitr, a holiday marking the end of the Ramadan fasting month, and Nowruz, the Iranian new year.`\
+https://nytimes.com/video/world/middleeast/100000010791921/iran-war-middle-east-muslims-eid-nowruz.html
+
+**What Are Jacket Potatoes, and Why Are the English Waiting Hours for Them?**\
+`The heavily topped tubers, a British classic, are having a culinary comeback thanks to social media.`\
+https://nytimes.com/2026/03/20/dining/jacket-potatoes-uk-food-trend-social-media.html
+
 **NBA champion Oklahoma City Thunder won’t make White House visit due to timing issue**\
 `The Thunder and the White House had conversations about a celebration of the team's 2025 title, but "the timing just didn’t work out."`\
 https://nytimes.com/athletic/7133873/2026/03/20/oklahoma-city-thunder-white-house-visit-trump/
@@ -29,8 +37,4 @@ https://nytimes.com/2026/03/20/world/middleeast/hamas-disarming-plan-board-of-pe
 **U.S. Dispatches Marines and Warships to Middle East**\
 `Officials said 2,500 Marines from 11th Marine Expeditionary Unit in California and the U.S.S. Boxer amphibious ready group will go in April to relieve Marines already deployed in the Persian Gulf.`\
 https://nytimes.com/2026/03/20/world/middleeast/us-marines-persian-gulf-iran-deploy.html
-
-**How to watch Prairie View A&M vs. Florida men's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Prairie View A&M Panthers play the Florida Gators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7134728/2026/03/20/prairie-view-a-m-vs-florida-stream-how-to-watch-march-20/
 
