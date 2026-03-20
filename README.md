@@ -1,3 +1,7 @@
+**Kobbie Mainoo, Lewis Hall return to England squad**\
+`England face Uruguay on March 27 before taking on Japan on March 31.`\
+https://nytimes.com/athletic/7133414/2026/03/20/england-squad-list-march-fixtures/
+
 **What now for FSG, a frustrated Michael Edwards and Liverpool?**\
 `The process of identifying a second club is effectively complete, but it looks unlikely that FSG will expand their football portfolio`\
 https://nytimes.com/athletic/7125072/2026/03/20/liverpool-fsg-michael-edwards-future/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/20/nyregion/nowruz-persian-new-year.html
 **Why I Decided to Share My Cancer Surgery With Times Readers**\
 `An editor on the limits of shyness in the face of serious disease.`\
 https://nytimes.com/2026/03/20/insider/kidney-cancer-experience.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/03/20/crosswords/spelling-bee-forum.html
 
