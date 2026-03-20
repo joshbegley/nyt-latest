@@ -1,3 +1,15 @@
+**Here’s What Happened in the War in the Middle East on Thursday**\
+`Strikes continued in the region as attacks on energy infrastructure rattled global markets.`\
+https://nytimes.com/2026/03/19/world/middleeast/iran-war-middle-east-recap.html
+
+**Manfred likes idea of summer World Baseball Classic but Sox manager sees hold-up**\
+`A midseason WBC could help solve one problem the tournament encounters early: readiness.`\
+https://nytimes.com/athletic/7132729/2026/03/19/world-baseball-classic-tournament-idea-mlb/
+
+**Entering football stadium without ticket to become criminal offence in England and Wales**\
+`Offenders facing a Football Banning Order of up to five years and a maximum fine of £1,000 ($1,343).`\
+https://nytimes.com/athletic/7132177/2026/03/19/football-fans-tickets-stadium-crime-euro-2020/
+
 **The NCAA Tournament upsets to watch for in the second round**\
 `The first double-digit seed is through to the second round of the men's NCAA Tournament. How far can the High Point Panthers go?`\
 https://nytimes.com/athletic/7132351/2026/03/19/ncaa-tournament-second-round-upsets-most-likely/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/19/us/politics/iran-israel-information-campaign.html
 **Craig Counsell to Cubs hitting coaches: Don’t mess with Moisés Ballesteros**\
 `Cubs are trying to temper expectations around the prospect Ballesteros, who simply does not stop hitting.`\
 https://nytimes.com/athletic/7132376/2026/03/19/craig-counsell-cubs-moises-ballesteros/
-
-**Is Russian Oil Headed for Cuba, Testing the U.S. Blockade?**\
-`A Russian oil tanker is being closely tracked to see if it will challenge the Trump administration’s blockade on Cuba.`\
-https://nytimes.com/2026/03/19/world/americas/cuba-russia-oil-blockade.html
-
-**He Trolls the Left. What Does He Actually Mean?**\
-`Backlash against Jeremy Carl’s incendiary tweets and language caused him to withdraw his nomination for a State Department post. On “Interesting Times,” Ross Douthat challenges him on his use of phrases like “cultural genocide” and “great replacement.”`\
-https://nytimes.com/video/opinion/100000010775490/he-trolls-the-left-what-does-he-actually-mean.html
-
-**He Thinks Hollywood Has Stigmatized Whiteness**\
-`On “Interesting Times,” Ross Douthat challenges Jeremy Carl on his claim that modern entertainment has stigmatized whiteness.`\
-https://nytimes.com/video/opinion/100000010775488/he-thinks-hollywood-has-stigmatized-whiteness.html
 

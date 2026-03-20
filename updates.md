@@ -1,3 +1,15 @@
+**Here’s What Happened in the War in the Middle East on Thursday**\
+`Strikes continued in the region as attacks on energy infrastructure rattled global markets.`\
+https://nytimes.com/2026/03/19/world/middleeast/iran-war-middle-east-recap.html
+
+**Manfred likes idea of summer World Baseball Classic but Sox manager sees hold-up**\
+`A midseason WBC could help solve one problem the tournament encounters early: readiness.`\
+https://nytimes.com/athletic/7132729/2026/03/19/world-baseball-classic-tournament-idea-mlb/
+
+**Entering football stadium without ticket to become criminal offence in England and Wales**\
+`Offenders facing a Football Banning Order of up to five years and a maximum fine of £1,000 ($1,343).`\
+https://nytimes.com/athletic/7132177/2026/03/19/football-fans-tickets-stadium-crime-euro-2020/
+
 **The NCAA Tournament upsets to watch for in the second round**\
 `The first double-digit seed is through to the second round of the men's NCAA Tournament. How far can the High Point Panthers go?`\
 https://nytimes.com/athletic/7132351/2026/03/19/ncaa-tournament-second-round-upsets-most-likely/
