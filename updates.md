@@ -1,3 +1,15 @@
+**Nationals option Dylan Crews, No. 2 pick in 2023, to Triple A**\
+`Crews, the first position player taken in the 2023 draft, hit only .208 last season and .107 this spring.`\
+https://nytimes.com/athletic/7134791/2026/03/20/nationals-option-dylan-crews/
+
+**Flashback: Your Weekly History Quiz, March 21, 2026**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2026/03/20/upshot/flashback.html
+
+**NBA champion Oklahoma City Thunder won’t visit White House due to 'timing issue'**\
+`The Thunder and the White House had conversations about a celebration of the team's 2025 title, but "the timing just didn’t work out."`\
+https://nytimes.com/athletic/7133873/2026/03/20/oklahoma-city-thunder-white-house-visit-trump/
+
 **War in Middle East Looms Over Eid and Nowruz Celebrations**\
 `The war in the Middle East cast a shadow over celebrations for Eid al-Fitr, a holiday marking the end of the Ramadan fasting month, and Nowruz, the Iranian new year.`\
 https://nytimes.com/video/world/middleeast/100000010791921/iran-war-middle-east-muslims-eid-nowruz.html

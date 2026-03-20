@@ -1,3 +1,11 @@
+**Man Shatters Valuable Glass Artwork and Tries to Stab Guard, Police Say**\
+`A man was arrested after being accused of damaging an estimated $240,000 of artwork at the Chihuly Garden and Glass.`\
+https://nytimes.com/2026/03/20/arts/design/dale-chihuly-glass-seattle.html
+
+**Bobby Riggs' grandson sentenced for sexually abusing teenage tennis players he coached**\
+`Daniel James Riggs, a 33–year-old Florida resident, was sentenced to 20 years in prison.`\
+https://nytimes.com/athletic/7134686/2026/03/20/bobby-riggs-grandson-sentenced-sex-abuse/
+
 **Nationals option Dylan Crews, No. 2 pick in 2023, to Triple A**\
 `Crews, the first position player taken in the 2023 draft, hit only .208 last season and .107 this spring.`\
 https://nytimes.com/athletic/7134791/2026/03/20/nationals-option-dylan-crews/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/20/world/middleeast/supreme-leader-statement.html
 **Jessie Diggins, in final race weekend, clinches fourth career cross-country World Cup title**\
 `Diggins won her third straight World Cup title and fourth overall. She is retiring after this weekend's season-ending races.`\
 https://nytimes.com/athletic/7129504/2026/03/20/jessie-diggins-world-cup-champion-crystal-globe-retirement/
-
-**Strasbourg fans to join Chelsea supporters in London for April BlueCo protest**\
-`Five groups intend to collaborate before the west London side's home match against Manchester United on April 18, a statement read.`\
-https://nytimes.com/athletic/7134461/2026/03/20/chelsea-strasbourg-blueco-protest/
-
-**Guardians tab Tanner Bibee for first career Opening Day start — again**\
-`It’s the second consecutive year in which the club has chosen Bibee for the honor, but he was a late scratch for last year's opener.`\
-https://nytimes.com/athletic/7117912/2026/03/20/guardians-tanner-bibee-opening-day-starter-2/
 

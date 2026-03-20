@@ -1,3 +1,11 @@
+**Nationals option Dylan Crews, No. 2 pick in 2023, to Triple A**\
+`Crews, the first position player taken in the 2023 draft, hit only .208 last season and .107 this spring.`\
+https://nytimes.com/athletic/7134791/2026/03/20/nationals-option-dylan-crews/
+
+**Flashback: Your Weekly History Quiz, March 21, 2026**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2026/03/20/upshot/flashback.html
+
 **War in Middle East Looms Over Eid and Nowruz Celebrations**\
 `The war in the Middle East cast a shadow over celebrations for Eid al-Fitr, a holiday marking the end of the Ramadan fasting month, and Nowruz, the Iranian new year.`\
 https://nytimes.com/video/world/middleeast/100000010791921/iran-war-middle-east-muslims-eid-nowruz.html
@@ -6,7 +14,7 @@ https://nytimes.com/video/world/middleeast/100000010791921/iran-war-middle-east-
 `The heavily topped tubers, a British classic, are having a culinary comeback thanks to social media.`\
 https://nytimes.com/2026/03/20/dining/jacket-potatoes-uk-food-trend-social-media.html
 
-**NBA champion Oklahoma City Thunder won’t make White House visit due to timing issue**\
+**NBA champion Oklahoma City Thunder won’t visit White House due to 'timing issue'**\
 `The Thunder and the White House had conversations about a celebration of the team's 2025 title, but "the timing just didn’t work out."`\
 https://nytimes.com/athletic/7133873/2026/03/20/oklahoma-city-thunder-white-house-visit-trump/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7134461/2026/03/20/chelsea-strasbourg-blueco-protes
 **Guardians tab Tanner Bibee for first career Opening Day start — again**\
 `It’s the second consecutive year in which the club has chosen Bibee for the honor, but he was a late scratch for last year's opener.`\
 https://nytimes.com/athletic/7117912/2026/03/20/guardians-tanner-bibee-opening-day-starter-2/
-
-**Hamas Considering Disarmament Plan From Trump’s Board of Peace, Officials Say**\
-`The proposal envisions a phased process, in which the militant group would hand over its weapons and Israeli troops would withdraw. Hamas is expected to respond in the coming days.`\
-https://nytimes.com/2026/03/20/world/middleeast/hamas-disarming-plan-board-of-peace-trump.html
-
-**U.S. Dispatches Marines and Warships to Middle East**\
-`Officials said 2,500 Marines from 11th Marine Expeditionary Unit in California and the U.S.S. Boxer amphibious ready group will go in April to relieve Marines already deployed in the Persian Gulf.`\
-https://nytimes.com/2026/03/20/world/middleeast/us-marines-persian-gulf-iran-deploy.html
 
