@@ -1,3 +1,11 @@
+**How to watch Idaho vs. Oklahoma women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Idaho Vandals play the Oklahoma Sooners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134930/2026/03/20/idaho-vs-oklahoma-stream-how-to-watch-march-20/
+
+**Mullin Said to Have Credited the King of Jordan for a Helicopter Rescue**\
+`The homeland security nominee brought up a mysterious trip in mid-2016 at a confirmation hearing. He visited Jordan that August, congressional records show.`\
+https://nytimes.com/2026/03/20/us/politics/markwayne-mullin-dhs-helicopter-rescue.html
+
 **New York City Celebrates Its First Ramadan With a Muslim Mayor**\
 `Many New Yorkers said Ramadan felt especially poignant this year under Mayor Zohran Mamdani, who used his own observance of the holiday to model the diversity of Muslim life in the city.`\
 https://nytimes.com/2026/03/20/nyregion/mamdani-ramadan-eid-nyc.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/20/world/europe/denmark-blow-up-greenland-runways-us
 **What to Know About This Year’s Cherry Blossom Blooms**\
 `Spring, is that you? Where and when to find peak blooms in Washington, D.C., as well as New York, New Jersey, Oregon and Georgia.`\
 https://nytimes.com/2026/03/20/us/cherry-blossoms-washington-dc-new-york.html
-
-**Shigeaki Mori, Hiroshima Survivor Photographed With Obama, Dies at 88**\
-`He lived through the first atomic bombing in Japan and then spent decades researching the identities of 12 American P.O.W.s killed in the attack.`\
-https://nytimes.com/2026/03/20/world/asia/shigeaki-mori-dead.html
-
-**Leeds fined £530,000 by Premier League for delaying kick-offs**\
-`Leeds were found to have delayed restarts on nine occasions this season and could face bigger fines for future infringements. `\
-https://nytimes.com/athletic/7134788/2026/03/20/leeds-fine-kick-off-restart-delay/
 
