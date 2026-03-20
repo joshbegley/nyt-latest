@@ -1,3 +1,15 @@
+**How to watch Utah State vs. Villanova men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Utah State Aggies play the Villanova Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7133998/2026/03/20/utah-state-vs-villanova-stream-how-to-watch-march-20/
+
+**Ronaldo out of Portugal squad, set to miss USMNT and Mexico games**\
+`Ronaldo travelled to Spain to undergo treatment for a hamstring injury earlier this month, according to Al Nassr head coach Jorge Jesus.`\
+https://nytimes.com/athletic/7133898/2026/03/20/cristiano-ronaldo-usmnt-mexico-portugal/
+
+**The U.S. Economy Is Insulated From High Oil Prices. Americans Aren’t.**\
+`The overall economy has proved resilient in recent years, even as many households have struggled. The war with Iran is following the same pattern.`\
+https://nytimes.com/2026/03/20/business/us-economy-oil-prices-inflation-iran-war-americans.html
+
 **How to watch Missouri State vs. Texas women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Missouri State Bears play the Texas Longhorns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7133971/2026/03/20/missouri-state-vs-texas-stream-how-to-watch-march-20/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7133895/2026/03/20/youri-tielemans-injury-aston-vil
 **U.S. Military Ramps Up to Clear Strait of Hormuz**\
 `Warplanes and attack helicopters are “hunting and killing” Iran’s fast-attack watercraft in contested sea lanes, Gen. Dan Caine said.`\
 https://nytimes.com/2026/03/20/us/politics/us-military-strait-hormuz.html
-
-**How a Civil Rights Icon Used His Power to Abuse Girls and Women**\
-`For five years, our reporters Manny Fernandez and Sarah Hurtes followed allegations that the civil rights icon Cesar Chavez had sexually abused girls and women at all levels of the United Farm Workers movement. Manny Fernandez takes us inside their investigation.`\
-https://nytimes.com/video/us/100000010787904/how-a-civil-rights-icon-used-his-power-to-abuse-girls-and-women.html
-
-**How to watch Real Sociedad vs. Villarreal in the U.S.**\
-`Find out how to watch Real Sociedad play Villarreal, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7133886/2026/03/20/real-sociedad-vs-villarreal-stream-how-to-watch-march-20/
-
-**A former Atletico analyst, an ex-law student, away day runs: Arbeloa's Real Madrid staff**\
-`Arbeloa has turned things around at Madrid after a rocky start to his time in charge. Who are the people helping him?`\
-https://nytimes.com/athletic/7133617/2026/03/20/alvaro-arbeloa-real-madrid-coaching-staff-atletico/
 

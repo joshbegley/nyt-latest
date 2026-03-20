@@ -1,3 +1,15 @@
+**How to watch Utah State vs. Villanova men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Utah State Aggies play the Villanova Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7133998/2026/03/20/utah-state-vs-villanova-stream-how-to-watch-march-20/
+
+**Ronaldo out of Portugal squad, set to miss USMNT and Mexico games**\
+`Ronaldo travelled to Spain to undergo treatment for a hamstring injury earlier this month, according to Al Nassr head coach Jorge Jesus.`\
+https://nytimes.com/athletic/7133898/2026/03/20/cristiano-ronaldo-usmnt-mexico-portugal/
+
+**The U.S. Economy Is Insulated From High Oil Prices. Americans Aren’t.**\
+`The overall economy has proved resilient in recent years, even as many households have struggled. The war with Iran is following the same pattern.`\
+https://nytimes.com/2026/03/20/business/us-economy-oil-prices-inflation-iran-war-americans.html
+
 **How to watch Missouri State vs. Texas women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Missouri State Bears play the Texas Longhorns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7133971/2026/03/20/missouri-state-vs-texas-stream-how-to-watch-march-20/
