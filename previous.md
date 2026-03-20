@@ -1,3 +1,15 @@
+**U.S. Recovers Man From Pacific Boat Strike Area**\
+`A spokesman for the Coast Guard did not directly connect the rescue operation to Thursday’s boat strike in the eastern Pacific Ocean. The vessel sent the man to Panama, and recovered two dead bodies.`\
+https://nytimes.com/2026/03/20/us/politics/pacific-boat-strike-survivor.html
+
+**Santa Clara coach called for timeout before UK buzzer-beater: 'Video evidence is clear'**\
+`Before Kentucky's Otega Oweh hit a score-tying 3 to force OT, Santa Clara coach Herb Sendek said he called for timeout to set his defense.`\
+https://nytimes.com/athletic/7134989/2026/03/20/santa-clara-kentucky-refs-timeout/
+
+**Panthers OT Rasheed Walker enters pretrial diversion program after arrest on gun charges in New York**\
+`Walker was arrested at New York’s LaGuardia Airport in January.`\
+https://nytimes.com/athletic/7135020/2026/03/20/rasheed-walker-carolina-panthers-gun-arrest-new-york/
+
 **Former ICJ judge criticises FIFA over failure to further sanction Israel**\
 `The former United Nations special rapporteur said the global soccer governing body is committing "flagrant breaches of international law".`\
 https://nytimes.com/athletic/7134621/2026/03/20/fifa-criticism-israel-sanction/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7134998/2026/03/20/missouri-vs-miami-fl-stream-how-
 **Electrical Blackouts, Suspended Flights: What to Know About Travel to Cuba**\
 `The island is dependent on tourism, but a lack of fuel and extensive power outages are forcing many travelers to cancel. Here’s what visitors might face.`\
 https://nytimes.com/2026/03/20/travel/cuba-flights-travel-advice-power-oil.html
-
-**How to watch Cal Baptist vs. Kansas men's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Cal Baptist Lancers play the Kansas Jayhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7134988/2026/03/20/cal-baptist-vs-kansas-stream-how-to-watch-march-20/
-
-**Stone Fragment Is Found in Wreck of Ship That Carried Parthenon Marbles**\
-`Experts said the fragment, recovered by divers from the Greek culture ministry, matched the style and dimensions of the Parthenon, but that it was too soon to be certain of its provenance.`\
-https://nytimes.com/2026/03/20/world/europe/ship-parthenon-greece-marbles-elgin.html
-
-**How to watch Furman vs. UConn men's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Furman Paladins play the UConn Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7134984/2026/03/20/furman-vs-uconn-stream-how-to-watch-march-20/
 
