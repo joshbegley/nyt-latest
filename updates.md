@@ -1,3 +1,7 @@
+**Alaska Airlines and FedEx Planes Narrowly Avoid Each Other at Newark Airport**\
+`The National Transportation Safety Board said that it was investigating a “close call” that happened as the planes were landing on Tuesday evening.`\
+https://nytimes.com/2026/03/19/us/alaska-airlines-fedex-planes-newark-collision.html
+
 **Rush Order**\
 `Rafael Musa and Rebecca Goldstein open our solving weekend.`\
 https://nytimes.com/2026/03/19/crosswords/daily-puzzle-2026-03-20.html
