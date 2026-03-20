@@ -1,3 +1,15 @@
+**What is letting Chelsea and Rosenior down? It might be as simple as individual moments**\
+`Chelsea have lost their last three games and were knocked out of the Champions League earlier this week`\
+https://nytimes.com/athletic/7131887/2026/03/20/chelsea-liam-rosenior-tactics-analysis/
+
+**'We let our fans down': Newcastle and the importance of turning up against Sunderland**\
+`Newcastle face Sunderland on Sunday. They cannot afford another game like the previous one against their neighbours and arch-rivals...`\
+https://nytimes.com/athletic/7131076/2026/03/20/newcastle-sunderland-analysis-tyne-wear/
+
+**The New York Times in Print for Friday, March 20, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/20/todays-new-york-times
+
 **In Japan, Trump’s Pearl Harbor Joke Elicits Scorn and Dismay**\
 `Some people criticized President Trump’s decision to invoke a painful chapter of history. Others worried it might harm U.S.-Japan relations.`\
 https://nytimes.com/2026/03/20/world/asia/japan-trump-pearl-harbor.html
