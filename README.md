@@ -2,8 +2,8 @@
 `Cunningham has shown his value to the Pistons, so it's a shame the 65-game rule might rob him of accolades. `\
 https://nytimes.com/athletic/7132911/2026/03/20/pistons-cade-cunningham-collapsed-lung-playoffs/
 
-**Guimaraes transfer rumours are 'nonsense' and 'totally disrespectful'  - Howe**\
-`Reports have stated that clubs are in talks to sign the 28-year-old midfielder.`\
+**Guimaraes transfer rumours are 'nonsense', 'totally disrespectful' – Howe**\
+`Speculation around the club captain has heightened following Newcastle’s elimination from the Champions League in midweek.`\
 https://nytimes.com/athletic/7130517/2026/03/20/bruno-guimaraes-transfer-rumours-newcastle-news-howe/
 
 **After epic meltdown and another first-round exit, UNC must ask: Is this good enough?**\
