@@ -16,7 +16,7 @@ https://nytimes.com/athletic/7134998/2026/03/20/missouri-vs-miami-fl-stream-how-
 
 **Electrical Blackouts, Suspended Flights: What to Know About Travel to Cuba**\
 `The island is dependent on tourism, but a lack of fuel and extensive power outages are forcing many travelers to cancel. Here’s what visitors might face.`\
-https://nytimes.com/2026/03/20/travel/cuba-travel-advice-2026-oil-power-flights.html
+https://nytimes.com/2026/03/20/travel/cuba-flights-travel-advice-power-oil.html
 
 **How to watch Cal Baptist vs. Kansas men's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Cal Baptist Lancers play the Kansas Jayhawks, with time, TV channel and streaming information.`\

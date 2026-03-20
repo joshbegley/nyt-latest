@@ -1,8 +1,20 @@
+**U.K. Allows U.S. to Use Bases to Hit Iranian Forces Menacing Strait Traffic**\
+`Prime Minister Keir Starmer has vowed not to be dragged into the war with Iran, but his government described its new position as essentially defensive.`\
+https://nytimes.com/2026/03/20/world/middleeast/uk-bases-us-iran.html
+
+**Energy facilities have been a potent target in the war.**\
+`By Rebecca Elliott, Blacki Migliozzi, Lazaro Gamio, Christiaan Triebert and Emmett Lindner`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/energy-facilities-have-been-a-potent-target-in-the-war
+
+**Trump’s $1.3 Million-a-Minute War**\
+`The war with Iran is costing America. That money, the Opinion columnist Nicholas Kristof argues, could be better spent ending childhood malnutrition, screening for cancer or providing free college tuition.`\
+https://nytimes.com/video/opinion/100000010792480/trumps-1-3-million-a-minute-war.html
+
 **How to watch Missouri vs. Miami (FL) men's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Missouri Tigers play the Miami Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7134998/2026/03/20/missouri-vs-miami-fl-stream-how-to-watch-march-20/
 
-**Electrical Blackouts, Suspended Flights: What To Know About Travel to Cuba**\
+**Electrical Blackouts, Suspended Flights: What to Know About Travel to Cuba**\
 `The island is dependent on tourism, but a lack of fuel and extensive power outages are forcing many travelers to cancel. Here’s what visitors might face.`\
 https://nytimes.com/2026/03/20/travel/cuba-travel-advice-2026-oil-power-flights.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2026/03/20/business/energy-environment/iran-war-
 **Cesar Chavez Investigation**\
 ``\
 https://nytimes.com/spotlight/cesar-chavez-collection
-
-**Justice Dept. Seeks to Drop Charges Against Officers in Breonna Taylor’s Death**\
-`The civil rights charges against the two Louisville, Ky., police officers stemmed from their involvement in drafting the no-knock search warrant that led to the fatal shooting.`\
-https://nytimes.com/2026/03/20/us/politics/breonna-taylor-officer-charges.html
-
-**Prime Tire: F1 changes faster than wax melts**\
-`Welcome to Prime Tire, The Athletic's F1 newsletter.`\
-https://nytimes.com/athletic/7134916/2026/03/20/mclaren-lando-norris-changes-prime-tire/
-
-**How to watch Idaho vs. Oklahoma women's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Idaho Vandals play the Oklahoma Sooners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7134930/2026/03/20/idaho-vs-oklahoma-stream-how-to-watch-march-20/
 
