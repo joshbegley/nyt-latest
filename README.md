@@ -1,3 +1,15 @@
+**Iran Executes 3 Men, Including a Star Teenage Wrestler**\
+`The Iranian authorities accused the men of killing two police officers during anti-government protests in January. Human rights groups had raised concerns about the cases against them.`\
+https://nytimes.com/2026/03/20/world/middleeast/iran-executed-wrestler-mohammadi-hanging-protests.html
+
+**How High Will Oil Prices Go? Global Markets Brace for More Bad News.**\
+`Energy experts forecast more pain for consumers and businesses as the war in the Middle East shows no signs of easing.`\
+https://nytimes.com/2026/03/20/business/dealbook/oil-iran-war-markets.html
+
+**What's in 2026 Topps Heritage Baseball: Odds sheet analysis**\
+`What the odds sheet tells us is different about Topps' annual retro-designed baseball set. `\
+https://nytimes.com/athletic/7133142/2026/03/20/2026-topps-heritage-baseball-cards-odds-print-run/
+
 **Inside the mind of Braden Smith, college basketball's soon-to-be assist king**\
 `Smith is poised to break Bobby Hurley's career assist record Friday in the first round of the NCAA Tournament.`\
 https://nytimes.com/athletic/7133574/2026/03/20/braden-smith-purdue-college-basketball-assist-record-ncaa-tournament/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7133713/2026/03/20/south-dakota-state-vs-washington
 **How to watch Murray State vs. Maryland women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Murray State Racers play the Maryland Terrapins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7133701/2026/03/20/murray-state-vs-maryland-stream-how-to-watch-march-20/
-
-**How to watch Nebraska vs. Baylor women's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Nebraska Cornhuskers play the Baylor Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7133693/2026/03/20/nebraska-vs-baylor-stream-how-to-watch-march-20/
-
-**Four Ethiopian athletes to miss World Indoor Championships due to visa issues**\
-`Olympic 800m silver medalist Tsige Duguma and 1,500m runners Saron Berhe, Haregeweyn Kalayu and Mosisa Siyoum will also not compete.`\
-https://nytimes.com/athletic/7130987/2026/03/20/tsige-duguma-among-four-ethiopian-athletes-to-miss-world-indoor-championships-due-to-visa-issues/
-
-**How a March Madness first-timer found its identity in a $150 dog figurine**\
-`Buddy the Street Dog, a German Shepherd figurine, has become the identity of Queens basketball, a tournament first-timer.`\
-https://nytimes.com/athletic/7129632/2026/03/20/queens-buddy-the-street-dog-ncaa-tournament-2026/
 

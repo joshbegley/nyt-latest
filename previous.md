@@ -1,3 +1,19 @@
+**Inside the mind of Braden Smith, college basketball's soon-to-be assist king**\
+`Smith is poised to break Bobby Hurley's career assist record Friday in the first round of the NCAA Tournament.`\
+https://nytimes.com/athletic/7133574/2026/03/20/braden-smith-purdue-college-basketball-assist-record-ncaa-tournament/
+
+**How to watch Tennessee State vs. Iowa State men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Tennessee State Tigers play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7133749/2026/03/20/tennessee-state-vs-iowa-state-stream-how-to-watch-march-20/
+
+**How to watch Wright State vs. Virginia men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Wright State Raiders play the Virginia Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7133736/2026/03/20/wright-state-vs-virginia-stream-how-to-watch-march-20/
+
+**How to watch Hofstra vs. Alabama men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Hofstra Pride play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7133729/2026/03/20/hofstra-vs-alabama-stream-how-to-watch-march-20/
+
 **How to watch Gonzaga vs. Ole Miss women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Gonzaga Bulldogs play the Ole Miss Rebels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7133721/2026/03/20/gonzaga-vs-ole-miss-stream-how-to-watch-march-20/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7130987/2026/03/20/tsige-duguma-among-four-ethiopia
 **How a March Madness first-timer found its identity in a $150 dog figurine**\
 `Buddy the Street Dog, a German Shepherd figurine, has become the identity of Queens basketball, a tournament first-timer.`\
 https://nytimes.com/athletic/7129632/2026/03/20/queens-buddy-the-street-dog-ncaa-tournament-2026/
-
-**Steve Kerr, Warriors still hope the best for Jonathan Kuminga as Atlanta reunion awaits**\
-`The Warriors face Kuminga Saturday, a first reunion with their former player since he was traded to Atlanta in early February.`\
-https://nytimes.com/athletic/7133310/2026/03/20/warriors-jonathan-kuminga-hawks-steve-kerr/
-
-**Arsenal's Mosquera gets first Spain call-up**\
-`The 21-year-old has featured 25 times for Arsenal this season, having joined from Valencia for around £13m in the summer.`\
-https://nytimes.com/athletic/7133606/2026/03/20/spain-squad-mosquera-arsenal-world-cup/
-
-**BTS Leans Into the K of K-Pop With Comeback Album**\
-`The group’s new album “Arirang” includes a nod to a beloved Korean folk song and other important historical references.`\
-https://nytimes.com/2026/03/20/world/asia/bts-arirang-korean-references.html
-
-**Twins picks to click: 3 key players who will outperform their projections in 2026**\
-`Which of the Twins' unproven young players will break through this season and beat their projected numbers?`\
-https://nytimes.com/athletic/7123818/2026/03/20/twins-player-projections-taj-bradley/
 
