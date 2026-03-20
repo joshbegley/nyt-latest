@@ -1,3 +1,11 @@
+**Man Shatters Valuable Glass Artwork and Tries to Stab Guard, Police Say**\
+`A man was arrested after being accused of damaging an estimated $240,000 of artwork at the Chihuly Garden and Glass.`\
+https://nytimes.com/2026/03/20/arts/design/dale-chihuly-glass-seattle.html
+
+**Bobby Riggs' grandson sentenced for sexually abusing teenage tennis players he coached**\
+`Daniel James Riggs, a 33–year-old Florida resident, was sentenced to 20 years in prison.`\
+https://nytimes.com/athletic/7134686/2026/03/20/bobby-riggs-grandson-sentenced-sex-abuse/
+
 **Nationals option Dylan Crews, No. 2 pick in 2023, to Triple A**\
 `Crews, the first position player taken in the 2023 draft, hit only .208 last season and .107 this spring.`\
 https://nytimes.com/athletic/7134791/2026/03/20/nationals-option-dylan-crews/
