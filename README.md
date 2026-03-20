@@ -1,3 +1,7 @@
+**What I'm seeing in Arizona: Guardians arms, Denzer Guzman impress; Ethan Holliday struggles**\
+`Roldy Brito looks like a Rockies prospect to watch, and the Angels' Nelson Rada continues to show a strong hit and run tool but no power.`\
+https://nytimes.com/athletic/7132736/2026/03/20/prospect-notes-cleveland-guardians-los-angeles-angels-colorado-rockies/
+
 **Premier League underdogs: Three games that could provide a shock this weekend**\
 `The Athletic runs through three Premier League matches with upset potential this weekend`\
 https://nytimes.com/athletic/7133545/2026/03/20/premier-league-underdogs-three-games-that-could-provide-a-shock-this-weekend-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7131781/2026/03/20/eagles-howie-roseman-free-agency
 **'To drive Elias and Geeks': Lukas Reichel's speedy debut brings his linemates to life**\
 `The 23-year-old played his first game for the Bruins since arriving at the trade deadline in a 6-1 win against the Jets.`\
 https://nytimes.com/athletic/7133081/2026/03/20/lukas-reichel-bruins-debut-geekie-lindholm-jets/
-
-**How Kevin Durant chased his 'inspiration' Michael Jordan to the doorstep of history**\
-`As Durant nears top five on the NBA's scoring list, his prowess and versatility continue to amaze. "There aren’t any real weaknesses."`\
-https://nytimes.com/athletic/7121975/2026/03/20/kevin-durant-views-michael-jordan-as-inspiration-it-has-him-positioned-for-history/
 
