@@ -1,3 +1,7 @@
+**How to watch Villanova vs. Texas Tech women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Villanova Wildcats play the Texas Tech Lady Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134655/2026/03/20/villanova-vs-texas-tech-stream-how-to-watch-march-20/
+
 **How to watch Panthers vs. Flames: Time, TV, streaming**\
 `Find out how to watch the Florida Panthers play the Calgary Flames, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7134617/2026/03/20/panthers-vs-flames-stream-how-to-watch-march-20/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/20/nyregion/alexander-brothers-pardon-white-house.ht
 **WATCH: How the Jets' three newest additions improve their defense**\
 `All three players fit the mold for head coach Aaron Glenn's defense and, more importantly, are sizable upgrades.`\
 https://nytimes.com/athletic/7134223/2026/03/20/new-york-jets-nfl-free-agency-sweat-ossai-davis/
-
-**How to watch Raptors vs. Nuggets: Time, TV, streaming**\
-`Find out how to watch the Toronto Raptors play the Denver Nuggets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7134576/2026/03/20/raptors-vs-nuggets-stream-how-to-watch-march-20/
 
