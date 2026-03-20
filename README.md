@@ -1,3 +1,7 @@
+**Four Ethiopian athletes to miss World Indoor Championships due to visa issues**\
+`Olympic 800m silver medalist Tsige Duguma and 1,500m runners Saron Berhe, Haregeweyn Kalayu and Mosisa Siyoum will also not compete.`\
+https://nytimes.com/athletic/7130987/2026/03/20/tsige-duguma-among-four-ethiopian-athletes-to-miss-world-indoor-championships-due-to-visa-issues/
+
 **How a March Madness first-timer found its identity in a $150 dog figurine**\
 `Buddy the Street Dog, a German Shepherd figurine, has become the identity of Queens basketball, a tournament first-timer.`\
 https://nytimes.com/athletic/7129632/2026/03/20/queens-buddy-the-street-dog-ncaa-tournament-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7128902/2026/03/20/red-sox-opening-day-roster-proje
 **Phillies minor-league notes: Gage Wood's spring training, other college pitchers**\
 `The first-rounder is focused on mastering his three core offerings, particularly the hard slider — a pitch he did not throw much in college.`\
 https://nytimes.com/athletic/7132484/2026/03/20/phillies-pitching-prospects-gage-wood/
-
-**A way-too-early Blackhawks 2026-27 roster projection: Forward lines, defense pairings**\
-`With promising prospects coming in and young stars maturing, what could the Blackhawks lineup look like in the fall?`\
-https://nytimes.com/athletic/7132446/2026/03/20/blackhawks-early-2026-27-roster-projection/
 
