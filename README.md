@@ -1,4 +1,4 @@
-**Nationals option Dylan Crew, No. 2 pick in 2023, to Triple A**\
+**Nationals option Dylan Crews, No. 2 pick in 2023, to Triple A**\
 `Crews, the first position player taken in the 2023 draft, hit only .208 last season and .107 this spring.`\
 https://nytimes.com/athletic/7134791/2026/03/20/nationals-option-dylan-crews/
 
