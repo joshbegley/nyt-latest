@@ -1,3 +1,7 @@
+**How to watch Hurricanes vs. Maple Leafs: Time, TV, streaming**\
+`Find out how to watch the Carolina Hurricanes play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134295/2026/03/20/hurricanes-vs-maple-leafs-stream-how-to-watch-march-20/
+
 **How a Stickup Man Became a Sought-After Jailhouse Lawyer**\
 `Obsessed with proving his innocence, Quentin Lewis devoted years in isolation to learning the law. Now he is taking on his captors in prison tribunals.`\
 https://nytimes.com/2026/03/20/nyregion/jailhouse-lawyer-quentin-lewis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/20/opinion/iran-nuclear-materials-war.html
 **Speedy Honey Garlic Shrimp and Lazy Daisy Cake**\
 `And more of our most popular recipes from the week.`\
 https://nytimes.com/2026/03/20/dining/speedy-honey-garlic-shrimp-and-lazy-daisy-cake.html
-
-**‘Monte Cristo’ Review: A Tale of Betrayal, on Two Counts**\
-`An adaptation has a twist that doesn’t track, and songs that benefit from an excellent cast, including Norm Lewis, Sierra Boggess and Adam Jacobs.`\
-https://nytimes.com/2026/03/20/theater/monte-cristo-review-norm-lewis-sierra-boggess.html
 

@@ -1,3 +1,19 @@
+**How a Stickup Man Became a Sought-After Jailhouse Lawyer**\
+`Obsessed with proving his innocence, Quentin Lewis devoted years in isolation to learning the law. Now he is taking on his captors in prison tribunals.`\
+https://nytimes.com/2026/03/20/nyregion/jailhouse-lawyer-quentin-lewis.html
+
+**Preston’s Thompson given three-game ban for kicking bottle that hit a fan**\
+`The 29-year-old denied the FA charge against him but a regulatory commission found that the incident constituted violent conduct.`\
+https://nytimes.com/athletic/7134231/2026/03/20/preston-jordan-thompson-water-bottle-ban/
+
+**Beware the ‘Mehs’ of March**\
+`If you’re struggling to shake off the winter blues, you’re not alone. Experts explain why this month is hard for many people.`\
+https://nytimes.com/2026/03/20/well/mind/seasonal-depression-spring-march.html
+
+**Man United close to agreement with Mainoo, Maguire over new contracts**\
+`Negotiations are now at an advanced stage as United look to conclude terms with both players.`\
+https://nytimes.com/athletic/7134214/2026/03/20/manchester-united-mainoo-maguire-contracts-new/
+
 **Georgia Tech gives Troy's Scott Cross a high-major shot as new Jackets coach**\
 `Cross has limited high-major experience, but a Georgia Tech source said the administration likes the way he handled the portal at Troy.`\
 https://nytimes.com/athletic/7134119/2026/03/20/georgia-tech-scott-cross-basketball-coach/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/20/dining/speedy-honey-garlic-shrimp-and-lazy-daisy-
 **‘Monte Cristo’ Review: A Tale of Betrayal, on Two Counts**\
 `An adaptation has a twist that doesn’t track, and songs that benefit from an excellent cast, including Norm Lewis, Sierra Boggess and Adam Jacobs.`\
 https://nytimes.com/2026/03/20/theater/monte-cristo-review-norm-lewis-sierra-boggess.html
-
-**Five Action Movies to Stream Now**\
-`This month’s picks include burned-out paramedics, unlikely superheroes and vengeful women.`\
-https://nytimes.com/2026/03/20/movies/action-movies-streaming.html
-
-**9 Shows Our Theater Critics Are Talking About**\
-`Daniel Radcliffe in “Every Brilliant Thing,” “The Wild Party” and two Cold War-era comedy-thrillers: These are productions worth knowing about.`\
-https://nytimes.com/2026/03/20/theater/shows-plays-theater-critics-pick.html
-
-**Hatton suffering from CTE at time of death, inquest told**\
-`“I cannot be satisfied that he intended to take his own life,” coroner Alison Mutch told an inquest on Friday.`\
-https://nytimes.com/athletic/7134160/2026/03/20/ricky-hatton-inquest-death-suicide/
-
-**Until Saturday: So far, March is back to Madness**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/7134182/2026/03/20/march-madness-upsets-until-saturday/
 
