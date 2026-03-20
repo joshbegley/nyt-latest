@@ -1,3 +1,7 @@
+**‘Saturday Night Live’ Arrives in London. Can It Make the Brits Laugh?**\
+`Britain has a storied history of sketch comedy, but its humor has a very different flavor than the American variety.`\
+https://nytimes.com/2026/03/20/arts/television/saturday-night-live-london-uk.html
+
 **Mets preseason fan survey: What do you expect from the new roster?**\
 `How do you feel about these New York Mets? With Opening Day around the corner, it's time to make your bold predictions.`\
 https://nytimes.com/athletic/7133113/2026/03/20/mets-fan-survey-2026-roster-predictions/
