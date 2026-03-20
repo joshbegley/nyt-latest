@@ -1,3 +1,16 @@
+**How to watch Trail Blazers vs. Timberwolves: Time, TV, streaming**\
+`Find out how to watch the Portland Trail Blazers play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134566/2026/03/20/trail-blazers-vs-timberwolves-stream-how-to-watch-march-20/
+
+**How to watch Warriors vs. Pistons: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the Detroit Pistons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134564/2026/03/20/warriors-vs-pistons-stream-how-to-watch-march-20/
+
+**Live chat with Eno Sarris at 11am PT on March 20!**\
+`<p>We are officially less than a week until Opening Day. Chat live with Eno Sarris about his predictions for the 2026 season, his starting pitching rankings and more&#8230;</p>
+`\
+https://nytimes.com/athletic/7132086/2026/03/20/eno-sarris-live-chat-march-20/
+
 **In Reversal, Trump Restores Support for House Republican Who Opposed Tariffs**\
 `President Trump reinstated his endorsement of Representative Jeff Hurd of Colorado, just weeks after pulling it back.`\
 https://nytimes.com/2026/03/20/us/politics/trump-jeff-hurd-republican-house-tariffs-endorsement-reversal.html
