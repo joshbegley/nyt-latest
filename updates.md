@@ -1,3 +1,7 @@
+**The I.R.S. Is Phasing Out Paper Checks. Here’s How to Speed Your Refund.**\
+`President Trump has directed that most federal payments be issued electronically, including tax refunds. Last year nearly 10 million people got their refund via a paper check.`\
+https://nytimes.com/2026/03/20/your-money/the-irs-is-phasing-out-paper-checks-heres-how-to-speed-your-refund.html
+
 **‘Saturday Night Live’ Arrives in London. Can It Make the Brits Laugh?**\
 `Britain has a storied history of sketch comedy, but its humor has a very different flavor than the American variety.`\
 https://nytimes.com/2026/03/20/arts/television/saturday-night-live-london-uk.html
