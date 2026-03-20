@@ -1,40 +1,40 @@
-**Cade Cunningham's injury casts pall on MVP voting thanks to 65-game rule**\
-`Cunningham has shown his value to the Pistons, so it's a shame the 65-game rule might rob him of accolades. `\
-https://nytimes.com/athletic/7132911/2026/03/20/pistons-cade-cunningham-collapsed-lung-playoffs/
+**Phillies minor-league notes: Gage Wood's spring training, other college pitchers**\
+`The first-rounder is focused on mastering his three core offerings, particularly the hard slider — a pitch he did not throw much in college.`\
+https://nytimes.com/athletic/7132484/2026/03/20/phillies-pitching-prospects-gage-wood/
 
-**Guimaraes transfer rumours are 'nonsense', 'totally disrespectful' – Howe**\
-`Speculation around the club captain has heightened following Newcastle’s elimination from the Champions League in midweek.`\
-https://nytimes.com/athletic/7130517/2026/03/20/bruno-guimaraes-transfer-rumours-newcastle-news-howe/
+**A way-too-early Blackhawks 2026-27 roster projection: Forward lines, defense pairings**\
+`With promising prospects coming in and young stars maturing, what could the Blackhawks lineup look like in the fall?`\
+https://nytimes.com/athletic/7132446/2026/03/20/blackhawks-early-2026-27-roster-projection/
 
-**After epic meltdown and another first-round exit, UNC must ask: Is this good enough?**\
-`North Carolina blew a 19-point lead Thursday, and will not be playing in the NCAA Tournament second round for the third time in four years.`\
-https://nytimes.com/athletic/7133501/2026/03/20/unc-vcu-ncaa-tournament-comeback-loss-hubert-davis/
+**49ers big board: Edges, wideouts, tackles — and more — who fit the SF profile**\
+`Options in the first round include Omar Cooper Jr., Cashius Howell and Max Iheanachor. But who are fits in the second and fourth rounds?`\
+https://nytimes.com/athletic/7132657/2026/03/20/49ers-big-board-nfl-draft/
 
-**What I'm seeing in Arizona: Guardians arms, Denzer Guzman impress; Ethan Holliday struggles**\
-`Roldy Brito looks like a Rockies prospect to watch, and the Angels' Nelson Rada continues to show a strong hit and run tool but no power.`\
-https://nytimes.com/athletic/7132736/2026/03/20/prospect-notes-cleveland-guardians-los-angeles-angels-colorado-rockies/
+**How slew of Blue Jays’ pitching injuries will impact roster construction**\
+`Trey Yesavage (shoulder) became the third starter heading to the injured list to start the season, joining José Berríos and Shane Bieber.`\
+https://nytimes.com/athletic/7132912/2026/03/20/toronto-blue-jays-injuries-pitching-roster-yesavage/
 
-**Premier League underdogs: Three games that could provide a shock this weekend**\
-`The Athletic runs through three Premier League matches with upset potential this weekend`\
-https://nytimes.com/athletic/7133545/2026/03/20/premier-league-underdogs-three-games-that-could-provide-a-shock-this-weekend-2/
+**Why the Maple Leafs should sign top European free agent Vitaly Pinchuk**\
+`The 24-year-old centre spent a season with the Frontenacs, but the pandemic derailed his development. Now he's a point per game in the KHL.`\
+https://nytimes.com/athletic/7128428/2026/03/20/maple-leafs-vitaly-pinchuk-free-agent-roster/
 
-**The Pulse: March Madness upsets ✅**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7131708/2026/03/20/ncaa-tournament-high-point-vcu-the-pulse/
+**Northern Iowa, a decade after unfathomable collapse, returns to March Madness**\
+`In March 2016, Northern Iowa led Texas A&M by 12 with less than 40 seconds to play. And somehow lost. `\
+https://nytimes.com/athletic/7133194/2026/03/20/northern-iowa-collapse-paul-jesperson-texas-am/
 
-**Are Yankees the 'least analytical' team in AL East? Aaron Boone, other managers weigh in**\
-`The Athletic asked the established AL East managers and key Yankees personnel what they think of Boone's use of analytics.`\
-https://nytimes.com/athletic/6874041/2026/03/20/yankees-manager-aaron-boone-analytics-al-east/
+**Rangers insider: Lafrenière-Sullivan lunch, Fortescue could turn pro soon**\
+`A late-summer lunch gave 24-year-old winger Alexis Lafrenière his first taste of Sullivan’s direct communication style.`\
+https://nytimes.com/athletic/7131500/2026/03/20/rangers-alexis-lafreniere-mike-sullivan-drew-fortescue/
 
-**‘The Pitt’ Season 2, Episode 11 Recap: Chilling Effect**\
-`An unwelcome visit by some rough Immigration and Customs Enforcement agents added more complications to an already stressful day.`\
-https://nytimes.com/2026/03/20/arts/television/the-pitt-recap-ice-season-2-episode-11.html
+**Dodgers rotation stock report as Opening Day nears: Who's up? Who's down?**\
+`This is a group that projects to be even better in 2026.`\
+https://nytimes.com/athletic/7132507/2026/03/20/dodgers-rotation-stock-report-opening-day/
 
-**How to build a champion NWSL roster, as told by Gotham: 'There's always a science to it'**\
-`Things are looking good for Gotham thanks to some savvy recruitment under the league's stringent salary cap rules`\
-https://nytimes.com/athletic/7131381/2026/03/20/nwsl-gotham-roster-building-analysis/
+**How to watch Cleveland Guardians: Broadcast info, viewing guide for 2026 season**\
+`Can Cleveland continue competing in an up-and-coming AL Central? Here's how to watch the Guardians battle for Midwest supremacy in 2026.`\
+https://nytimes.com/athletic/7132366/2026/03/20/cleveland-guardians-tv-streaming-how-to-watch-2026/
 
-**'I was ready to go through a wall': Brady Tkachuk rises to the occasion for Senators**\
-`In a season in which his physical play hasn't been as prominent, Tkachuk knew he "needed to have a big game." He set the tone early.`\
-https://nytimes.com/athletic/7132745/2026/03/20/brady-tkachuk-senators-fight-goal-islanders-playoffs/
+**‘The Headlines’ News Quiz: Mar. 20, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://nytimes.com/2026/03/20/podcasts/the-headlines/the-headlines-news-quiz-mar-20-2026.html
 
