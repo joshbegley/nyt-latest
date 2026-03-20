@@ -1,3 +1,15 @@
+**Premier League underdogs: Three games that could provide a shock this weekend**\
+`The Athletic runs through three Premier League matches with upset potential this weekend`\
+https://nytimes.com/athletic/7133545/2026/03/20/premier-league-underdogs-three-games-that-could-provide-a-shock-this-weekend-2/
+
+**The Pulse: March Madness upsets ✅**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7131708/2026/03/20/ncaa-tournament-high-point-vcu-the-pulse/
+
+**Are Yankees the 'least analytical' team in AL East? Aaron Boone, other managers weigh in**\
+`The Athletic asked the established AL East managers and key Yankees personnel what they think of Boone's use of analytics.`\
+https://nytimes.com/athletic/6874041/2026/03/20/yankees-manager-aaron-boone-analytics-al-east/
+
 **‘The Pitt’ Season 2, Episode 11 Recap: Chilling Effect**\
 `An unwelcome visit by some rough Immigration and Customs Enforcement agents added more complications to an already stressful day.`\
 https://nytimes.com/2026/03/20/arts/television/the-pitt-recap-ice-season-2-episode-11.html

@@ -1,3 +1,15 @@
+**Premier League underdogs: Three games that could provide a shock this weekend**\
+`The Athletic runs through three Premier League matches with upset potential this weekend`\
+https://nytimes.com/athletic/7133545/2026/03/20/premier-league-underdogs-three-games-that-could-provide-a-shock-this-weekend-2/
+
+**The Pulse: March Madness upsets ✅**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7131708/2026/03/20/ncaa-tournament-high-point-vcu-the-pulse/
+
+**Are Yankees the 'least analytical' team in AL East? Aaron Boone, other managers weigh in**\
+`The Athletic asked the established AL East managers and key Yankees personnel what they think of Boone's use of analytics.`\
+https://nytimes.com/athletic/6874041/2026/03/20/yankees-manager-aaron-boone-analytics-al-east/
+
 **‘The Pitt’ Season 2, Episode 11 Recap: Chilling Effect**\
 `An unwelcome visit by some rough Immigration and Customs Enforcement agents added more complications to an already stressful day.`\
 https://nytimes.com/2026/03/20/arts/television/the-pitt-recap-ice-season-2-episode-11.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7133081/2026/03/20/lukas-reichel-bruins-debut-geeki
 **How Kevin Durant chased his 'inspiration' Michael Jordan to the doorstep of history**\
 `As Durant nears top five on the NBA's scoring list, his prowess and versatility continue to amaze. "There aren’t any real weaknesses."`\
 https://nytimes.com/athletic/7121975/2026/03/20/kevin-durant-views-michael-jordan-as-inspiration-it-has-him-positioned-for-history/
-
-**Nationals roster projection 1.0: Moving pieces will complicate Blake Butera’s job**\
-`The Nationals traded for top catching prospect Harry Ford then sent him down, a sign of the new front office's player development strategy.`\
-https://nytimes.com/athletic/7132989/2026/03/20/washington-nationals-roster-projection/
-
-**LeBrun: After trade deadline 'disappointment,' can this still be the Hurricanes' year?**\
-`Hurricanes general manager Eric Tulsky had an uncharacteristically quiet trade deadline, but he remains confident with his team.`\
-https://nytimes.com/athletic/7131389/2026/03/20/carolina-hurricanes-playoffs-stanley-cup/
-
-**He played in the NBA for 17 years. What is he doing coaching a No. 16 seed?**\
-`A first-round draft pick by the Knicks in 1988, Rod Strickland is now taking advantage of his first head coaching opportunity in Brooklyn.`\
-https://nytimes.com/athletic/7129061/2026/03/20/rod-strickland-liu-basketball-coach-career/
 
