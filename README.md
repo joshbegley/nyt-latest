@@ -1,3 +1,27 @@
+**How to watch Missouri vs. Miami (FL) men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Missouri Tigers play the Miami Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134998/2026/03/20/missouri-vs-miami-fl-stream-how-to-watch-march-20/
+
+**Electrical Blackouts, Suspended Flights: What To Know About Travel to Cuba**\
+`The island is dependent on tourism, but a lack of fuel and extensive power outages are forcing many travelers to cancel. Here’s what visitors might face.`\
+https://nytimes.com/2026/03/20/travel/cuba-travel-advice-2026-oil-power-flights.html
+
+**How to watch Cal Baptist vs. Kansas men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Cal Baptist Lancers play the Kansas Jayhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134988/2026/03/20/cal-baptist-vs-kansas-stream-how-to-watch-march-20/
+
+**Stone Fragment Is Found in Wreck of Ship That Carried Parthenon Marbles**\
+`Experts said the fragment, recovered by divers from the Greek culture ministry, matched the style and dimensions of the Parthenon, but that it was too soon to be certain of its provenance.`\
+https://nytimes.com/2026/03/20/world/europe/ship-parthenon-greece-marbles-elgin.html
+
+**How to watch Furman vs. UConn men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Furman Paladins play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134984/2026/03/20/furman-vs-uconn-stream-how-to-watch-march-20/
+
+**Why Energy Is Such a Potent Target in the War With Iran**\
+`More than three dozen oil, natural gas and related sites have been attacked in nine countries. More strikes could keep energy prices higher for longer.`\
+https://nytimes.com/interactive/2026/03/20/business/energy-environment/iran-war-oil-gas-attacks.html
+
 **Cesar Chavez Investigation**\
 ``\
 https://nytimes.com/spotlight/cesar-chavez-collection
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7134916/2026/03/20/mclaren-lando-norris-changes-pri
 **How to watch Idaho vs. Oklahoma women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Idaho Vandals play the Oklahoma Sooners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7134930/2026/03/20/idaho-vs-oklahoma-stream-how-to-watch-march-20/
-
-**Mullin Said to Have Credited the King of Jordan for a Helicopter Rescue**\
-`The homeland security nominee brought up a mysterious trip in mid-2016 at a confirmation hearing. He visited Jordan that August, congressional records show.`\
-https://nytimes.com/2026/03/20/us/politics/markwayne-mullin-dhs-helicopter-rescue.html
-
-**New York City Celebrates Its First Ramadan With a Muslim Mayor**\
-`Many New Yorkers said Ramadan felt especially poignant this year under Mayor Zohran Mamdani, who used his own observance of the holiday to model the diversity of Muslim life in the city.`\
-https://nytimes.com/2026/03/20/nyregion/mamdani-ramadan-eid-nyc.html
-
-**Aid Ship Departs for Cuba as Island Grapples With a Fuel Blockade**\
-`The “Nuestra América” humanitarian convoy plans to deliver more than 20 tons of critical supplies to Cuba. Some Cuban exiles view it with suspicion.`\
-https://nytimes.com/2026/03/20/world/americas/cuba-fuel-blockade-aid-convoy.html
-
-**How to watch Ducks vs. Mammoth: Time, TV, streaming**\
-`Find out how to watch the Anaheim Ducks play the Utah Mammoth, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7134914/2026/03/20/ducks-vs-mammoth-stream-how-to-watch-march-20/
-
-**Women's NCAA Tournament first round takeaways: Can Duke's opponents learn from Charleston's guard?**\
-`Follow along for updates from the first round of the tournament.`\
-https://nytimes.com/athletic/7134805/2026/03/20/womens-ncaa-tournament-first-round-takeaways-duke/
-
-**A Few Ships Are Trickling Through the Strait of Hormuz With Iran’s Approval**\
-`Countries and companies have been negotiating with the Iranian authorities to secure passage. Some patterns are emerging.`\
-https://nytimes.com/2026/03/20/world/middleeast/strait-of-hormuz-iran-approval.html
 
