@@ -1,3 +1,11 @@
+**U.S. Military Ramps Up to Clear Strait of Hormuz**\
+`Warplanes and attack helicopters are “hunting and killing” Iran’s fast-attack watercraft in contested sea lanes, Gen. Dan Caine said.`\
+https://nytimes.com/2026/03/20/us/politics/us-military-strait-hormuz.html
+
+**How a Civil Rights Icon Used His Power to Abuse Girls and Women**\
+`For five years, our reporters Manny Fernandez and Sarah Hurtes followed allegations that the civil rights icon Cesar Chavez had sexually abused girls and women at all levels of the United Farm Workers movement. Manny Fernandez takes us inside their investigation.`\
+https://nytimes.com/video/us/100000010787904/how-a-civil-rights-icon-used-his-power-to-abuse-girls-and-women.html
+
 **How to watch Real Sociedad vs. Villarreal in the U.S.**\
 `Find out how to watch Real Sociedad play Villarreal, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7133886/2026/03/20/real-sociedad-vs-villarreal-stream-how-to-watch-march-20/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7132339/2026/03/20/fantasy-premier-league-live-qa-g
 **With 'awful' performance against tanking Jazz, Giannis-less Bucks reap what they sow**\
 `There's strategic losing and then there's this loss to a Jazz team that played just eight players on the second night of a back-to-back.`\
 https://nytimes.com/athletic/7133231/2026/03/20/nba-bucks-loss-tanking-jazz-giannis/
-
-**Tuchel leaves door open for Arsenal's Dowman, 16, to make England World Cup squad**\
-`Dowman was not included in Tuchel's 35-man squad on Thursday but could still make the plane to North America.`\
-https://nytimes.com/athletic/7133796/2026/03/20/max-dowman-tuchel-england-world-cup-squad/
-
-**The Premier League's fifth Champions League place: One draw required to seal additional spot**\
-`A more positive set of results in Europe this week has all but guaranteed the Premier League one of UEFA's bonus spots`\
-https://nytimes.com/athletic/7133568/2026/03/20/premier-league-champions-league-fifth-spot-coefficients/
 
