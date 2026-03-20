@@ -1,3 +1,7 @@
+**What I'm seeing in Arizona: Guardians arms, Denzer Guzman impress; Ethan Holliday struggles**\
+`Roldy Brito looks like a Rockies prospect to watch, and the Angels' Nelson Rada continues to show a strong hit and run tool but no power.`\
+https://nytimes.com/athletic/7132736/2026/03/20/prospect-notes-cleveland-guardians-los-angeles-angels-colorado-rockies/
+
 **Premier League underdogs: Three games that could provide a shock this weekend**\
 `The Athletic runs through three Premier League matches with upset potential this weekend`\
 https://nytimes.com/athletic/7133545/2026/03/20/premier-league-underdogs-three-games-that-could-provide-a-shock-this-weekend-2/
