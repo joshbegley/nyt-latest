@@ -1,3 +1,7 @@
+**Pryce Sandfort earns Nebraska Cornhusker legend status with big brother watching**\
+`Sandfort grew up an Iowa State fan, but he played for rival Iowa before transferring to Nebraska. `\
+https://nytimes.com/athletic/7132833/2026/03/19/pryce-sandfort-nebraska-payton-brother/
+
 **World Baseball Classic title game draws record-shattering 10.8 million viewers**\
 `Venezuela's win over the U.S. drew more than double the audience that tuned in for a Japan-U.S. showdown in 2023, according to Fox.`\
 https://nytimes.com/athletic/7132568/2026/03/19/world-baseball-classic-viewership-record-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/19/books/ai-fiction-shy-girl.html
 **Nashville Reporter Released From ICE Custody**\
 `Estefany Maria Rodriguez Florez, who works for a Spanish-language outlet, was released on bond in a case that has raised concerns about press freedom.`\
 https://nytimes.com/2026/03/19/us/politics/nashville-reporter-released-ice-custody.html
-
-**Iran Combines Real-World Missile Attacks With Online Threats**\
-`Iran launched a missile strike, a disinformation push and a cyberattack targeting Israel all at the same time, analysts say.`\
-https://nytimes.com/2026/03/19/us/politics/iran-israel-information-campaign.html
 
