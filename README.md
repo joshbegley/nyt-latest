@@ -1,3 +1,7 @@
+**How to watch Gonzaga vs. Ole Miss women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Gonzaga Bulldogs play the Ole Miss Rebels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7133721/2026/03/20/gonzaga-vs-ole-miss-stream-how-to-watch-march-20/
+
 **How to watch South Dakota State vs. Washington women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the South Dakota State Jackrabbits play the Washington Huskies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7133713/2026/03/20/south-dakota-state-vs-washington-stream-how-to-watch-march-20/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/20/world/asia/bts-arirang-korean-references.html
 **Twins picks to click: 3 key players who will outperform their projections in 2026**\
 `Which of the Twins' unproven young players will break through this season and beat their projected numbers?`\
 https://nytimes.com/athletic/7123818/2026/03/20/twins-player-projections-taj-bradley/
-
-**Whose War?**\
-`We look at the diverging goals of the U.S. and Israel in the war on Iran.`\
-https://nytimes.com/2026/03/20/briefing/whose-war.html
 
