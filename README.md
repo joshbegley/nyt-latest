@@ -1,3 +1,15 @@
+**How to watch South Dakota State vs. Washington women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the South Dakota State Jackrabbits play the Washington Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7133713/2026/03/20/south-dakota-state-vs-washington-stream-how-to-watch-march-20/
+
+**How to watch Murray State vs. Maryland women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Murray State Racers play the Maryland Terrapins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7133701/2026/03/20/murray-state-vs-maryland-stream-how-to-watch-march-20/
+
+**How to watch Nebraska vs. Baylor women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Nebraska Cornhuskers play the Baylor Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7133693/2026/03/20/nebraska-vs-baylor-stream-how-to-watch-march-20/
+
 **Four Ethiopian athletes to miss World Indoor Championships due to visa issues**\
 `Olympic 800m silver medalist Tsige Duguma and 1,500m runners Saron Berhe, Haregeweyn Kalayu and Mosisa Siyoum will also not compete.`\
 https://nytimes.com/athletic/7130987/2026/03/20/tsige-duguma-among-four-ethiopian-athletes-to-miss-world-indoor-championships-due-to-visa-issues/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7123818/2026/03/20/twins-player-projections-taj-bra
 **Whose War?**\
 `We look at the diverging goals of the U.S. and Israel in the war on Iran.`\
 https://nytimes.com/2026/03/20/briefing/whose-war.html
-
-**Salah out of Liverpool's visit to Brighton, Gomez a doubt**\
-`The Egyptian asked to be substituted after feeling discomfort in the mid-week win over Galatasaray in the Champions League.`\
-https://nytimes.com/athletic/7133631/2026/03/20/salah-injury-liverpool-team-news-slot/
-
-**Red Sox roster projection 3.0: The final days to determine bench, bullpen**\
-`Plus updates on Boston's rotation, with an ace who'll pitch on five days' rest and a veteran lefty who needs to build up after the WBC.`\
-https://nytimes.com/athletic/7128902/2026/03/20/red-sox-opening-day-roster-projection/
-
-**Phillies minor-league notes: Gage Wood's spring training, other college pitchers**\
-`The first-rounder is focused on mastering his three core offerings, particularly the hard slider — a pitch he did not throw much in college.`\
-https://nytimes.com/athletic/7132484/2026/03/20/phillies-pitching-prospects-gage-wood/
 
