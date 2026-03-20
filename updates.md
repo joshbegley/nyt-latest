@@ -1,3 +1,7 @@
+**NHL commissioner Gary Bettman vs. critics: A lightning round on the state of the league**\
+`Plus: How the heck are the Pittsburgh Penguins so good?`\
+https://nytimes.com/athletic/7134097/2026/03/20/nhl-playoff-format-gary-bettman-red-light/
+
 **Men's March Madness 2026 best bets for the second round**\
 `Austin Mock has his best bets for the men's second round. Stay tuned throughout the day on Friday for more.`\
 https://nytimes.com/athletic/7134019/2026/03/20/mens-march-madness-2026-best-bets-second-round/

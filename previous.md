@@ -1,3 +1,7 @@
+**NHL commissioner Gary Bettman vs. critics: A lightning round on the state of the league**\
+`Plus: How the heck are the Pittsburgh Penguins so good?`\
+https://nytimes.com/athletic/7134097/2026/03/20/nhl-playoff-format-gary-bettman-red-light/
+
 **Men's March Madness 2026 best bets for the second round**\
 `Austin Mock has his best bets for the men's second round. Stay tuned throughout the day on Friday for more.`\
 https://nytimes.com/athletic/7134019/2026/03/20/mens-march-madness-2026-best-bets-second-round/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/20/us/trump-harvard-antisemitism-suit.html
 **U.S. Prosecutors Investigate Colombia’s President, a Onetime Trump Foe**\
 `The Justice Department is examining whether President Gustavo Petro of Colombia has ties to drug traffickers.`\
 https://nytimes.com/2026/03/20/nyregion/colombia-president-petro-investigation-drugs.html
-
-**‘We Are at Zero’: War-Weary Lebanon Marks Eid With Muted Celebration**\
-`For families displaced by Israeli airstrikes, the joy that usually marks the end of Ramadan has been replaced by uncertainty and hardship.`\
-https://nytimes.com/2026/03/20/world/middleeast/muted-eid-in-lebanon.html
 

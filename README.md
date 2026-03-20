@@ -1,3 +1,15 @@
+**Until Saturday: So far, March is back to Madness**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/7134182/2026/03/20/march-madness-upsets-until-saturday/
+
+**JJ Wetherholt is the newest 'pesky' Card; Cade Horton is a Zero-SP fantasy baseball target**\
+`Andy Behrens gives actionable fantasy baseball draft advice based on the spring performances of JJ Wetherholt, Didier Fuentes and others. `\
+https://nytimes.com/athletic/7133820/2026/03/20/fantasy-baseball-news-wetherholt-cade-horton-zero-sp/
+
+**Trump Friend Asked ICE to Detain the Mother of His Child**\
+`Paolo Zampolli, a former modeling agent and a longtime Trump ally, was in a custody battle over his son. An ICE official agreed to help.`\
+https://nytimes.com/2026/03/20/us/paolo-zampolli-ice-melania-trump-epstein.html
+
 **NHL commissioner Gary Bettman vs. critics: A lightning round on the state of the league**\
 `Plus: How the heck are the Pittsburgh Penguins so good?`\
 https://nytimes.com/athletic/7134097/2026/03/20/nhl-playoff-format-gary-bettman-red-light/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7134039/2026/03/20/james-maddison-tottenham-injury-
 **Chuck Norris, Crowd-Pleasing Star of Action Movies and TV, Dies at 86**\
 `He channeled his martial arts skills into heroic roles in films like “The Delta Force” and “Missing in Action” and in the long-running television series “Walker, Texas Ranger.”`\
 https://nytimes.com/2026/03/20/movies/chuck-norris-dead.html
-
-**Calvin Tomkins, Who Profiled Giants of Modern Art, Dies at 100**\
-`Working for The New Yorker, he wrote about Marcel Duchamp, Robert Rauschenberg and many others. His books include “Living Well is the Best Revenge.”`\
-https://nytimes.com/2026/03/20/arts/design/calvin-tomkins-dead.html
-
-**Trump Administration Sues Harvard Over Accusations of Antisemitism**\
-`The administration had spent months investigating the Ivy League school. The two sides had been in talks to negotiate a settlement.`\
-https://nytimes.com/2026/03/20/us/trump-harvard-antisemitism-suit.html
-
-**U.S. Prosecutors Investigate Colombia’s President, a Onetime Trump Foe**\
-`The Justice Department is examining whether President Gustavo Petro of Colombia has ties to drug traffickers.`\
-https://nytimes.com/2026/03/20/nyregion/colombia-president-petro-investigation-drugs.html
 
