@@ -10,6 +10,14 @@ https://nytimes.com/2026/03/20/learning/word-of-the-day-luminosity.html
 `If your FPL team is in good shape, there is no need to panic. But if you are struggling for numbers, the Free Hit offers a powerful lifeline`\
 https://nytimes.com/athletic/7125617/2026/03/20/fantasy-premier-league-fpl-tips-blank-gameweek-31-free-hit/
 
+**Breaking down the 15 seconds and Martinez's incredible pass that gave Villa their fireworks**\
+`Emiliano Martinez played an incredible pass to Jadon Sancho during Thursday night's game against Lille`\
+https://nytimes.com/athletic/7132519/2026/03/20/emiliano-martinez-pass-aston-villa-lille-analysis/
+
+**Nottingham Forest's Europa League win exceeded expectations. Now it's time to build momentum**\
+`With eight Premier League games remaining, will Thursday's Europa League win help Nottingham Forest in their bid for survival?`\
+https://nytimes.com/athletic/7132582/2026/03/20/nottingham-forests-europa-league-win-exceeded-expectations-now-its-time-to-build-momentum/
+
 **Is it time for Daniel Farke and Leeds to unleash Calvert-Lewin and Nmecha as a front two?**\
 `Leeds have an important game against Brentford on Saturday. Should they tweak their formation before then?`\
 https://nytimes.com/athletic/7132021/2026/03/20/leeds-dominic-calvert-lewin-lukas-nmecha-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7110068/2026/03/20/tottenham-hotspur-what-football-
 **The nostalgic return of Adidas' trefoil logo creates a warm, comforting glow**\
 `For the first time in 36 years, Adidas' kits at the upcoming World Cup will feature their famous trefoil logo`\
 https://nytimes.com/athletic/7132181/2026/03/20/adidas-trefoil-nostalgia-2026-world-cup/
-
-**Premier League relegation battle: What the numbers say about Spurs, West Ham and Forest’s chances**\
-`The Athletic's data team's weekly look at the battle at the bottom of the table`\
-https://nytimes.com/athletic/7131042/2026/03/20/premier-league-relegation-battle-spurs-west-ham-nottingham-forest-md31/
-
-**Premier League predictions: Tottenham vs Forest, Newcastle vs Sunderland and rest of Matchday 31**\
-`Who's leading after MD30? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 31?`\
-https://nytimes.com/athletic/7130458/2026/03/20/premier-league-predictions-md31/
 

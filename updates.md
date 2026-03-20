@@ -1,3 +1,11 @@
+**Breaking down the 15 seconds and Martinez's incredible pass that gave Villa their fireworks**\
+`Emiliano Martinez played an incredible pass to Jadon Sancho during Thursday night's game against Lille`\
+https://nytimes.com/athletic/7132519/2026/03/20/emiliano-martinez-pass-aston-villa-lille-analysis/
+
+**Nottingham Forest's Europa League win exceeded expectations. Now it's time to build momentum**\
+`With eight Premier League games remaining, will Thursday's Europa League win help Nottingham Forest in their bid for survival?`\
+https://nytimes.com/athletic/7132582/2026/03/20/nottingham-forests-europa-league-win-exceeded-expectations-now-its-time-to-build-momentum/
+
 **Late Night Pans Trump’s Pearl Harbor Joke**\
 `“Let me tell you: There is no doubt in my mind that everything he knows about Pearl Harbor begins and ends with a movie starring Ben Affleck,” Jimmy Kimmel said.`\
 https://nytimes.com/2026/03/20/arts/television/late-night-trump-pearl-harbor.html
