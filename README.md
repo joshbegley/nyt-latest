@@ -1,3 +1,11 @@
+**Eagles trade safety Sydney Brown to Falcons as part of pick swap: Source**\
+`Brown had a special teams role with the Eagles in 2025.`\
+https://nytimes.com/athletic/7135136/2026/03/20/eagles-trade-safety-sydney-brown-falcons/
+
+**David Botstein, Gene-Mapping Pioneer, Dies at 83**\
+`His method of locating genes in human DNA allowed researchers to find disease-causing genes, and later to map the entire, sprawling human genome.`\
+https://nytimes.com/2026/03/20/science/david-botstein-dead.html
+
 **Why There’s a Chance California Elects a Republican Governor**\
 `The state’s wide-open “jungle primary” has Democrats on edge.`\
 https://nytimes.com/2026/03/20/us/politics/california-primary-gop-governors-race.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7135081/2026/03/20/pochettino-hayes-usmnt-uswnt-coa
 **Chuck Norris: A Life in Pictures**\
 `The actor, known for his skills as a martial artist, often played the warrior onscreen.`\
 https://nytimes.com/2026/03/20/movies/chuck-norris-movies-shows-photos.html
-
-**U.S. Attacks Iranian Drones and Vessels to Try to Open Strategic Shipping Lane**\
-`The Israeli military said it had killed the spokesman for Iran’s Islamic Revolutionary Guards Corps, and Iran warned that it could target American and Israeli military personnel.`\
-https://nytimes.com/2026/03/20/world/middleeast/us-iran-strait-hormuz.html
-
-**Chuck Norris Punched This Article Into the Sun**\
-`Norris, best known as the butt-kicking star of action films, became an unwitting if good-natured pioneer of the internet meme.`\
-https://nytimes.com/2026/03/20/movies/chuck-norris-jokes-memes.html
 
