@@ -1,3 +1,7 @@
+**Mets preseason fan survey: What do you expect from the new roster?**\
+`How do you feel about these New York Mets? With Opening Day around the corner, it's time to make your bold predictions.`\
+https://nytimes.com/athletic/7133113/2026/03/20/mets-fan-survey-2026-roster-predictions/
+
 **Aston Martin, Adrian Newey and Jonathan Wheatley – what we’re hearing**\
 `Reports have emerged linking Audi team principal Jonathan Wheatley with a shock switch to Aston Martin. Here's what we know so far`\
 https://nytimes.com/athletic/7133742/2026/03/20/aston-martin-f1-team-principal-adrian-newey-jonathan-wheatley/

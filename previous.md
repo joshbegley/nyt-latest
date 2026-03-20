@@ -1,3 +1,7 @@
+**Mets preseason fan survey: What do you expect from the new roster?**\
+`How do you feel about these New York Mets? With Opening Day around the corner, it's time to make your bold predictions.`\
+https://nytimes.com/athletic/7133113/2026/03/20/mets-fan-survey-2026-roster-predictions/
+
 **Aston Martin, Adrian Newey and Jonathan Wheatley – what we’re hearing**\
 `Reports have emerged linking Audi team principal Jonathan Wheatley with a shock switch to Aston Martin. Here's what we know so far`\
 https://nytimes.com/athletic/7133742/2026/03/20/aston-martin-f1-team-principal-adrian-newey-jonathan-wheatley/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/20/us/trump-news
 **Winners and losers of WNBA labor agreement: superstar players, expansion teams, Unrivaled**\
 `One loser: Non-billionaire owners will have a harder time existing in this new WNBA landscape.`\
 https://nytimes.com/athletic/7133684/2026/03/20/wnba-cba-winners-losers/
-
-**Giants roster projection 3.0: With Bryce Eldridge optioned to Triple A, who takes his place?**\
-`The Giants made significant moves this week to trim their roster and now there's a clearer picture of what it will look like on Opening Day.`\
-https://nytimes.com/athletic/7133223/2026/03/20/sf-giants-roster-projection-bryce-eldridge-gregory-santos-michael-fulmer/
 
