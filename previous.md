@@ -26,7 +26,7 @@ https://nytimes.com/athletic/7132021/2026/03/20/leeds-dominic-calvert-lewin-luka
 `The young ball-playing centre-back has impressed in recent months and could well be in the top flight next season, regardless of promotion`\
 https://nytimes.com/athletic/7121967/2026/03/20/callum-doyle-wrexham-analysis/
 
-**Ismaila Sarr now has 15 goals this season. He is keeping Crystal Palace's season alive**\
+**Ismaila Sarr now has 15 goals. He is keeping Crystal Palace's season alive**\
 `Two goals the Senegal forward put Palace into the quarter finals of the UEFA Conference League, where they will face Fiorentina `\
 https://nytimes.com/athletic/7125067/2026/03/20/ismaila-sarr-has-already-scored-15-goals-he-is-keeping-crystal-palaces-season-alive/
 

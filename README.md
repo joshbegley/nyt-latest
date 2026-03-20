@@ -1,3 +1,19 @@
+**Doctor and Robot**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2026/03/20/learning/doctor-and-robot.html
+
+**How Iranian New Yorkers Are Celebrating Persian New Year During the War**\
+`Nowruz, a joyous holiday marking the new year, has given rise to complicated feelings for some who are fearful for their relatives in Iran.`\
+https://nytimes.com/2026/03/20/nyregion/nowruz-persian-new-year.html
+
+**Why I Decided to Share My Cancer Surgery With Times Readers**\
+`An editor on the limits of shyness in the face of serious disease.`\
+https://nytimes.com/2026/03/20/insider/kidney-cancer-experience.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/20/crosswords/spelling-bee-forum.html
+
 **Late Night Pans Trump’s Pearl Harbor Joke**\
 `“Let me tell you: There is no doubt in my mind that everything he knows about Pearl Harbor begins and ends with a movie starring Ben Affleck,” Jimmy Kimmel said.`\
 https://nytimes.com/2026/03/20/arts/television/late-night-trump-pearl-harbor.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7132582/2026/03/20/nottingham-forests-europa-league
 **Is it time for Daniel Farke and Leeds to unleash Calvert-Lewin and Nmecha as a front two?**\
 `Leeds have an important game against Brentford on Saturday. Should they tweak their formation before then?`\
 https://nytimes.com/athletic/7132021/2026/03/20/leeds-dominic-calvert-lewin-lukas-nmecha-analysis/
-
-**Callum Doyle looks ready for the Premier League - can he help get Wrexham there?**\
-`The young ball-playing centre-back has impressed in recent months and could well be in the top flight next season, regardless of promotion`\
-https://nytimes.com/athletic/7121967/2026/03/20/callum-doyle-wrexham-analysis/
-
-**Ismaila Sarr now has 15 goals. He is keeping Crystal Palace's season alive**\
-`Two goals the Senegal forward put Palace into the quarter finals of the UEFA Conference League, where they will face Fiorentina `\
-https://nytimes.com/athletic/7125067/2026/03/20/ismaila-sarr-has-already-scored-15-goals-he-is-keeping-crystal-palaces-season-alive/
-
-**'Incompetence of the highest order': What football thinks of Tottenham's tailspin**\
-`Why have Spurs slid into relegation danger? We asked a range of senior football figures for their theories - and who they hold responsible`\
-https://nytimes.com/athletic/7110068/2026/03/20/tottenham-hotspur-what-football-thinks/
-
-**The nostalgic return of Adidas' trefoil logo creates a warm, comforting glow**\
-`For the first time in 36 years, Adidas' kits at the upcoming World Cup will feature their famous trefoil logo`\
-https://nytimes.com/athletic/7132181/2026/03/20/adidas-trefoil-nostalgia-2026-world-cup/
 

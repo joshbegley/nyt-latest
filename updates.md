@@ -1,3 +1,7 @@
+**Ismaila Sarr now has 15 goals. He is keeping Crystal Palace's season alive**\
+`Two goals the Senegal forward put Palace into the quarter finals of the UEFA Conference League, where they will face Fiorentina `\
+https://nytimes.com/athletic/7125067/2026/03/20/ismaila-sarr-has-already-scored-15-goals-he-is-keeping-crystal-palaces-season-alive/
+
 **Breaking down the 15 seconds and Martinez's incredible pass that gave Villa their fireworks**\
 `Emiliano Martinez played an incredible pass to Jadon Sancho during Thursday night's game against Lille`\
 https://nytimes.com/athletic/7132519/2026/03/20/emiliano-martinez-pass-aston-villa-lille-analysis/
