@@ -1,3 +1,11 @@
+**Fabian Hurzeler thinks Brighton fans can make the difference during taxing run-in**\
+`The Brighton manager says the club's fans helped his side against Arsenal, and can do the same against Liverpool`\
+https://nytimes.com/athletic/7119588/2026/03/20/brighton-amex-atmosphere/
+
+**Nottingham Forest's Europa League win exceeded expectations. Now it's time to build momentum**\
+`With eight Premier League games remaining, will Thursday's Europa League win help Nottingham Forest in their bid for survival?`\
+https://nytimes.com/athletic/7132582/2026/03/20/nottingham-forests-europa-league-win-exceeded-expectations-now-its-time-to-build-momentum/
+
 **Oil Falls and Stocks in Asia Hold Steady**\
 `Oil prices had been gyrating this week, after a new round of attacks on major energy facilities in Iran and Qatar raised concerns about energy supplies.`\
 https://nytimes.com/2026/03/20/business/oil-stocks-gas-iran.html

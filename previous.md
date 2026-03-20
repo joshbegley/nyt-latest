@@ -1,3 +1,11 @@
+**Fabian Hurzeler thinks Brighton fans can make the difference during taxing run-in**\
+`The Brighton manager says the club's fans helped his side against Arsenal, and can do the same against Liverpool`\
+https://nytimes.com/athletic/7119588/2026/03/20/brighton-amex-atmosphere/
+
+**Nottingham Forest's Europa League win exceeded expectations. Now it's time to build momentum**\
+`With eight Premier League games remaining, will Thursday's Europa League win help Nottingham Forest in their bid for survival?`\
+https://nytimes.com/athletic/7132582/2026/03/20/nottingham-forests-europa-league-win-exceeded-expectations-now-its-time-to-build-momentum/
+
 **Oil Falls and Stocks in Asia Hold Steady**\
 `Oil prices had been gyrating this week, after a new round of attacks on major energy facilities in Iran and Qatar raised concerns about energy supplies.`\
 https://nytimes.com/2026/03/20/business/oil-stocks-gas-iran.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/20/world/europe/iran-war-airports-russia-flight-path
 **Adidas releases away kits ahead of men's World Cup**\
 `The tournament will begin with the all-Adidas clash of Mexico vs. South Africa on June 11.`\
 https://nytimes.com/athletic/7131636/2026/03/20/adidas-away-kits-shirts-world-cup/
-
-**Corrections: March 20, 2026**\
-`Corrections that appeared in print on Friday, March 20, 2026.`\
-https://nytimes.com/2026/03/20/pageoneplus/corrections-march-20-2026.html
-
-**‘The Alchemist’ Brought Them Together**\
-`But a pandemic breakup became a turning point for Arianna Davis and Jay Santana. He came to appreciate their own love story.`\
-https://nytimes.com/2026/03/20/style/arianna-davis-jay-santana-wedding.html
 
