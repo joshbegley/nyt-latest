@@ -1,3 +1,7 @@
+**Twins release Liam Hendriks, Andrew Chafin as starting rotation comes together**\
+`The final rotation spot and depth at several positions remain unsolved as Minnesota nears the end of spring training. `\
+https://nytimes.com/athletic/7135154/2026/03/20/twins-rotation-liam-hendriks-andrew-chafin-released/
+
 **What the Surprisingly Early Heat Wave Means for California’s Summer**\
 `The state is warming up and drying out earlier than usual. Here’s what that means for fire season.`\
 https://nytimes.com/2026/03/20/weather/california-heat-fire-season-snowpack.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7135117/2026/03/20/ncaa-tournament-high-point-radio
 **U.S sprinter Anthony wins 60m indoor title on world championship debut**\
 `The 21-year-old ran the quickest time this year to collect gold ahead of Jamaica's Kishane Thompson and fellow American Trayvon Bromell.`\
 https://nytimes.com/athletic/7135061/2026/03/20/jordan-anthony-world-athletics-indoor-title-sprint/
-
-**The Briefing: Bournemouth 2 Manchester United 2 - Cunha thrives on left, but Maguire sees red**\
-`Manchester United missed the opportunity to press home their advantage in the race for Champions League qualification`\
-https://nytimes.com/athletic/7125334/2026/03/20/bournemouth-2-manchester-united-2/
 
