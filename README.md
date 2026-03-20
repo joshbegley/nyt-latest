@@ -1,3 +1,23 @@
+**The Bounce: Can Pistons survive without Cade Cunningham? And another LeBron record**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7133979/2026/03/20/cade-cunningham-lung-lebron-james-record-nbathe-bounce/
+
+**‘Tru’ and ‘The Fever’: The Contagion of the Rich**\
+`Two monologue revivals — Jesse Tyler Ferguson as Truman Capote and Wallace Shawn’s solo — reveal how wealth warps our perceptions. Only one pays dividends.`\
+https://nytimes.com/2026/03/20/theater/plays-tru-ferguson-the-fever-shawn.html
+
+**NHL Power Rankings: No. 1 hangs on, Blue Jackets surge and keep an eye on these guys**\
+`We’ve picked one player from each team to watch during the final stretch of the season.`\
+https://nytimes.com/athletic/7133767/2026/03/20/nhl-power-rankings-31/
+
+**Why ugly Canucks losses are a vital reminder that the rebuild must go further**\
+`Thursday's absolute demolition at the hands of the Lightning was still reasonably shocking for how decisive it was.`\
+https://nytimes.com/athletic/7133378/2026/03/20/vancouver-canucks-loss-lightning-standings-stats-rebuild/
+
+**How to watch Miami (OH) vs. Tennessee men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Miami (OH) RedHawks play the Tennessee Volunteers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134010/2026/03/20/miami-oh-vs-tennessee-stream-how-to-watch-march-20/
+
 **How to watch Utah State vs. Villanova men's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Utah State Aggies play the Villanova Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7133998/2026/03/20/utah-state-vs-villanova-stream-how-to-watch-march-20/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7133971/2026/03/20/missouri-state-vs-texas-stream-h
 **How to watch Western Illinois vs. North Carolina women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Western Illinois Leathernecks play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7133967/2026/03/20/western-illinois-vs-north-carolina-stream-how-to-watch-march-20/
-
-**How to watch Holy Cross vs. Michigan women's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Holy Cross Crusaders play the Michigan Wolverines, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7133960/2026/03/20/holy-cross-vs-michigan-stream-how-to-watch-march-20/
-
-**Ronnie O’Sullivan's record-high snooker break of 153: How did he do it?**\
-`O’Sullivan’s ability is such that this majestic break is only a footnote in the greatest snooker career in the sport's history`\
-https://nytimes.com/athletic/7133839/2026/03/20/ronnie-o-sullivan-snooker-break-153-maximum-free-ball/
-
-**Liverpool call out social media companies over racist abuse of Konate**\
-`"These platforms have the power, the technology and the resources to prevent this abuse, yet too often they fail to do so," Liverpool said.`\
-https://nytimes.com/athletic/7133909/2026/03/20/ibrahima-konate-racist-abuse-liverpool-galatasaray/
-
-**Tielemans returns to Villa training after two-month injury absence**\
-`The Belgium international has not played since sustaining an ankle injury away at Newcastle United in January.`\
-https://nytimes.com/athletic/7133895/2026/03/20/youri-tielemans-injury-aston-villa-return/
-
-**U.S. Military Ramps Up to Clear Strait of Hormuz**\
-`Warplanes and attack helicopters are “hunting and killing” Iran’s fast-attack watercraft in contested sea lanes, Gen. Dan Caine said.`\
-https://nytimes.com/2026/03/20/us/politics/us-military-strait-hormuz.html
 
