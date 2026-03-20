@@ -1,4 +1,4 @@
-**Minus Kaprizov and Eriksson Ek, 'frustrating' home skid continues: Takeaways**\
+**Minus Kirill Kaprizov, Joel Eriksson Ek, 'frustrating' home skid continues: Takeaways**\
 `The Wild's 19-game streak of earning at least a point against the Blackhawks came to an end.`\
 https://nytimes.com/athletic/7132352/2026/03/19/wild-injuries-sturm-haight-defense-blackhawks/
 

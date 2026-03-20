@@ -1,3 +1,11 @@
+**Minus Kaprizov and Eriksson Ek, 'frustrating' home skid continues: Takeaways**\
+`The Wild's 19-game streak of earning at least a point against the Blackhawks came to an end.`\
+https://nytimes.com/athletic/7132352/2026/03/19/wild-injuries-sturm-haight-defense-blackhawks/
+
+**Cincy collapse leaves Concacaf Champions Cup with four MLS-Liga MX quarters**\
+`FC Cincinnati couldn't protect a 3-0 first-leg lead, cementing a frustrating round for MLS against Liga MX sides`\
+https://nytimes.com/athletic/7133124/2026/03/19/concacaf-champions-cup-quarterfinals-matchups-cincinnati-tigres/
+
 **NFL owners to vote on Mark Davis' Raiders succession plan: Source**\
 `If Davis chooses to sell a majority stake to minority owner Egon Durban, the deal would require approval from 24 of the league's 32 owners.`\
 https://nytimes.com/athletic/7133005/2026/03/19/raiders-succession-plan-mark-davis-egon-durban/

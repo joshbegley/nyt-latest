@@ -1,3 +1,11 @@
+**Minus Kaprizov and Eriksson Ek, 'frustrating' home skid continues: Takeaways**\
+`The Wild's 19-game streak of earning at least a point against the Blackhawks came to an end.`\
+https://nytimes.com/athletic/7132352/2026/03/19/wild-injuries-sturm-haight-defense-blackhawks/
+
+**Cincy collapse leaves Concacaf Champions Cup with four MLS-Liga MX quarters**\
+`FC Cincinnati couldn't protect a 3-0 first-leg lead, cementing a frustrating round for MLS against Liga MX sides`\
+https://nytimes.com/athletic/7133124/2026/03/19/concacaf-champions-cup-quarterfinals-matchups-cincinnati-tigres/
+
 **NFL owners to vote on Mark Davis' Raiders succession plan: Source**\
 `If Davis chooses to sell a majority stake to minority owner Egon Durban, the deal would require approval from 24 of the league's 32 owners.`\
 https://nytimes.com/athletic/7133005/2026/03/19/raiders-succession-plan-mark-davis-egon-durban/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/19/technology/super-micro-servers-china-indicted.htm
 **What to Know About the Sexual Abuse Allegations Against Cesar Chavez**\
 `The accusations of assault have rattled communities across the country that have revered the labor icon for decades.`\
 https://nytimes.com/2026/03/19/us/what-to-know-cesar-chavez-sex-abuse.html
-
-**Judge Rules That R.F.K. Jr. Overstepped on Transgender Care**\
-`The ruling provides temporary relief for 21 states seeking to stop the Trump administration from ending federal funding to hospitals that provide gender-transition care.`\
-https://nytimes.com/2026/03/19/us/rfk-jr-transgender-care-ruling.html
-
-**LeBron James ties Robert Parish for most games played in NBA history**\
-`James appeared in his 1,611th career game Thursday night, less than 24 hours after he scored 30 points in Houston.`\
-https://nytimes.com/athletic/7132654/2026/03/19/lebron-james-nba-games-record-robert-parish/
 
