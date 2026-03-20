@@ -1,3 +1,23 @@
+**The Premier League's fifth Champions League place: One draw required to seal additional spot**\
+`A more positive set of results in Europe this week has all but guaranteed the Premier League one of UEFA's bonus spots`\
+https://nytimes.com/athletic/7133568/2026/03/20/premier-league-champions-league-fifth-spot-coefficients/
+
+**Led by an improving Noah Cates, Flyers remain hot in win over Kings**\
+`Cates helped to swing the momentum in a 4-3 shootout win over the Kings in Los Angeles on Thursday.`\
+https://nytimes.com/athletic/7133375/2026/03/20/flyers-win-kings-noah-cates/
+
+**Enduring Mayhem: Images of the War in Ukraine, After 4 Years**\
+`A photographic chronicle of Russia’s invasion.`\
+https://nytimes.com/2026/03/20/world/europe/ukraine-russia-war-photos.html
+
+**Trump Administration Live Updates: Judge Rules That R.F.K. Jr. Overstepped on Transgender Care**\
+``\
+https://nytimes.com/live/2026/03/20/us/trump-news
+
+**Winners and losers of WNBA labor agreement: superstar players, expansion teams, Unrivaled**\
+`One loser: Non-billionaire owners will have a harder time existing in this new WNBA landscape.`\
+https://nytimes.com/athletic/7133684/2026/03/20/wnba-cba-winners-losers/
+
 **Giants roster projection 3.0: With Bryce Eldridge optioned to Triple A, who takes his place?**\
 `The Giants made significant moves this week to trim their roster and now there's a clearer picture of what it will look like on Opening Day.`\
 https://nytimes.com/athletic/7133223/2026/03/20/sf-giants-roster-projection-bryce-eldridge-gregory-santos-michael-fulmer/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7132645/2026/03/20/milwaukee-brewers-how-to-watch-2
 **The Athletic’s Friday football quiz question #98**\
 `Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/7132102/2026/03/20/the-athletics-friday-football-quiz-question-98/
-
-**In one-of-a-kind fashion, LeBron has rewritten the NBA's record books for 23 years**\
-`At 41 and with the all-time games-played record in sight, James continues adding feathers to his unique cap.`\
-https://nytimes.com/athletic/7129580/2026/03/20/lebron-james-nba-games-played-record-robert-parish/
-
-**Iran Executes 3 Men, Including a Star Teenage Wrestler**\
-`The Iranian authorities accused the men of killing two police officers during anti-government protests in January. Human rights groups had raised concerns about the cases against them.`\
-https://nytimes.com/2026/03/20/world/middleeast/iran-executed-wrestler-mohammadi-hanging-protests.html
-
-**How High Will Oil Prices Go? Global Markets Brace for More Bad News.**\
-`Energy experts forecast more pain for consumers and businesses as the war in the Middle East shows no signs of easing.`\
-https://nytimes.com/2026/03/20/business/dealbook/oil-iran-war-markets.html
-
-**What's in 2026 Topps Heritage Baseball: Odds sheet analysis**\
-`What the odds sheet tells us is different about Topps' annual retro-designed baseball set. `\
-https://nytimes.com/athletic/7133142/2026/03/20/2026-topps-heritage-baseball-cards-odds-print-run/
-
-**Inside the mind of Braden Smith, college basketball's soon-to-be assist king**\
-`Smith is poised to break Bobby Hurley's career assist record Friday in the first round of the NCAA Tournament.`\
-https://nytimes.com/athletic/7133574/2026/03/20/braden-smith-purdue-college-basketball-assist-record-ncaa-tournament/
 

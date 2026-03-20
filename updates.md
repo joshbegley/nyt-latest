@@ -1,3 +1,23 @@
+**The Premier League's fifth Champions League place: One draw required to seal additional spot**\
+`A more positive set of results in Europe this week has all but guaranteed the Premier League one of UEFA's bonus spots`\
+https://nytimes.com/athletic/7133568/2026/03/20/premier-league-champions-league-fifth-spot-coefficients/
+
+**Led by an improving Noah Cates, Flyers remain hot in win over Kings**\
+`Cates helped to swing the momentum in a 4-3 shootout win over the Kings in Los Angeles on Thursday.`\
+https://nytimes.com/athletic/7133375/2026/03/20/flyers-win-kings-noah-cates/
+
+**Enduring Mayhem: Images of the War in Ukraine, After 4 Years**\
+`A photographic chronicle of Russia’s invasion.`\
+https://nytimes.com/2026/03/20/world/europe/ukraine-russia-war-photos.html
+
+**Trump Administration Live Updates: Judge Rules That R.F.K. Jr. Overstepped on Transgender Care**\
+``\
+https://nytimes.com/live/2026/03/20/us/trump-news
+
+**Winners and losers of WNBA labor agreement: superstar players, expansion teams, Unrivaled**\
+`One loser: Non-billionaire owners will have a harder time existing in this new WNBA landscape.`\
+https://nytimes.com/athletic/7133684/2026/03/20/wnba-cba-winners-losers/
+
 **Giants roster projection 3.0: With Bryce Eldridge optioned to Triple A, who takes his place?**\
 `The Giants made significant moves this week to trim their roster and now there's a clearer picture of what it will look like on Opening Day.`\
 https://nytimes.com/athletic/7133223/2026/03/20/sf-giants-roster-projection-bryce-eldridge-gregory-santos-michael-fulmer/
