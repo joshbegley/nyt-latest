@@ -1,3 +1,7 @@
+**Twins release Liam Hendriks, Andrew Chafin as starting rotation comes together**\
+`The final rotation spot and depth at several positions remain unsolved as Minnesota nears the end of spring training. `\
+https://nytimes.com/athletic/7135154/2026/03/20/twins-rotation-liam-hendriks-andrew-chafin-released/
+
 **What the Surprisingly Early Heat Wave Means for California’s Summer**\
 `The state is warming up and drying out earlier than usual. Here’s what that means for fire season.`\
 https://nytimes.com/2026/03/20/weather/california-heat-fire-season-snowpack.html
