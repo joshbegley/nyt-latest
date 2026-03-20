@@ -1,3 +1,11 @@
+**Why There’s a Chance California Elects a Republican Governor**\
+`The state’s wide-open “jungle primary” has Democrats on edge.`\
+https://nytimes.com/2026/03/20/us/politics/california-primary-gop-governors-race.html
+
+**Naomi Klein on the Fascism of Elite Backlash**\
+`On “The Ezra Klein Show,” the writer Naomi Klein and the Times columnist Ezra Klein discuss how they are thinking about fascism in this political moment — from the elite backlash against movements like #MeToo to the aesthetics and impulsivity of Trumpism.`\
+https://nytimes.com/video/opinion/100000010732750/naomi-klein-on-the-fascism-of-elite-backlash.html
+
 **‘The Doppelganger Is at the Wheel’**\
 `Naomi Klein’s book “Doppelganger” is a journey into the world of MAGA and right-wing conspiracies.`\
 https://nytimes.com/video/opinion/100000010732753/the-doppelganger-is-at-the-wheel.html
