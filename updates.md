@@ -1,3 +1,15 @@
+**Women's March Madness 2026 best bets for first round**\
+`Austin Mock's model shows value in five bets to kick off the women's first round.`\
+https://nytimes.com/athletic/7131503/2026/03/20/womens-march-madness-best-bets-first-round/
+
+**Polymarket Says It Predicts the Truth. Its Social Feeds Are Filled With Falsehoods.**\
+`A review of the betting market’s social media feeds found it has published hundreds of false and misleading posts.`\
+https://nytimes.com/2026/03/20/technology/polymarket-social-feeds-falsehoods.html
+
+**How to watch Devils vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the New Jersey Devils play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134314/2026/03/20/devils-vs-capitals-stream-how-to-watch-march-20/
+
 **Spurs' Vicario to be sidelined for up to a month after hernia surgery**\
 `Vicario will be available for Sunday’s crucial relegation six-pointer against Nottingham Forest.`\
 https://nytimes.com/athletic/7134268/2026/03/20/vicario-tottenham-surgery-hernia-injury/
