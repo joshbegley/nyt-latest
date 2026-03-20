@@ -1,3 +1,7 @@
+**U.S. Lifts Sanctions on Some Iranian Oil to Get More to Market**\
+`Treasury Secretary Scott Bessent estimated that the move would add about 140 million barrels of crude to the oil market.`\
+https://nytimes.com/2026/03/20/world/middleeast/us-sanctions-iran-oil.html
+
 **Kevin Willard 'jokes' about firing staff after Villanova's defensive struggles in NCAA loss**\
 `Willard was frustrated about his team's inability to guard Utah State's baseline out-of-bounds plays. `\
 https://nytimes.com/athletic/7135377/2026/03/20/kevin-willard-fire-coaches-villanova-utah-state/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/20/weather/california-heat-fire-season-snowpack.html
 **Fresno Took 30 Years to Name Cesar Chavez Blvd. Undoing It Took a Day.**\
 `The reckoning for the labor leader’s sex abuse was swift in Fresno, Calif., the heart of the Central Valley region where the farmworker movement was born. Towns across the nation face similar debates.`\
 https://nytimes.com/2026/03/20/us/fresno-cesar-chavez-street-rename.html
-
-**No. 6 seed Tennessee ends Miami (Ohio)'s dream season with 22-point rout**\
-`The Vols sprinted out to a 19-point halftime lead and played suffocating defense to hand the RedHawks their second loss of the season.`\
-https://nytimes.com/athletic/7135220/2026/03/20/miami-ohio-tennessee-ncaa-tournament-scores/
 

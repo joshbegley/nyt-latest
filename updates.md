@@ -1,3 +1,7 @@
+**U.S. Lifts Sanctions on Some Iranian Oil to Get More to Market**\
+`Treasury Secretary Scott Bessent estimated that the move would add about 140 million barrels of crude to the oil market.`\
+https://nytimes.com/2026/03/20/world/middleeast/us-sanctions-iran-oil.html
+
 **Kevin Willard 'jokes' about firing staff after Villanova's defensive struggles in NCAA loss**\
 `Willard was frustrated about his team's inability to guard Utah State's baseline out-of-bounds plays. `\
 https://nytimes.com/athletic/7135377/2026/03/20/kevin-willard-fire-coaches-villanova-utah-state/
