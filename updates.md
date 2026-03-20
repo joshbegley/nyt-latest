@@ -1,3 +1,19 @@
+**How to watch Idaho vs. Oklahoma women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Idaho Vandals play the Oklahoma Sooners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134930/2026/03/20/idaho-vs-oklahoma-stream-how-to-watch-march-20/
+
+**Mullin Said to Have Credited the King of Jordan for a Helicopter Rescue**\
+`The homeland security nominee brought up a mysterious trip in mid-2016 at a confirmation hearing. He visited Jordan that August, congressional records show.`\
+https://nytimes.com/2026/03/20/us/politics/markwayne-mullin-dhs-helicopter-rescue.html
+
+**New York City Celebrates Its First Ramadan With a Muslim Mayor**\
+`Many New Yorkers said Ramadan felt especially poignant this year under Mayor Zohran Mamdani, who used his own observance of the holiday to model the diversity of Muslim life in the city.`\
+https://nytimes.com/2026/03/20/nyregion/mamdani-ramadan-eid-nyc.html
+
+**Aid Ship Departs for Cuba as Island Grapples With a Fuel Blockade**\
+`The “Nuestra América” humanitarian convoy plans to deliver more than 20 tons of critical supplies to Cuba. Some Cuban exiles view it with suspicion.`\
+https://nytimes.com/2026/03/20/world/americas/cuba-fuel-blockade-aid-convoy.html
+
 **How to watch Ducks vs. Mammoth: Time, TV, streaming**\
 `Find out how to watch the Anaheim Ducks play the Utah Mammoth, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7134914/2026/03/20/ducks-vs-mammoth-stream-how-to-watch-march-20/
