@@ -1,3 +1,7 @@
+**Electrical Blackouts, Suspended Flights: What to Know About Travel to Cuba**\
+`The island is dependent on tourism, but a lack of fuel and extensive power outages are forcing many travelers to cancel. Here’s what visitors might face.`\
+https://nytimes.com/2026/03/20/travel/cuba-flights-travel-advice-power-oil.html
+
 **U.K. Allows U.S. to Use Bases to Hit Iranian Forces Menacing Strait Traffic**\
 `Prime Minister Keir Starmer has vowed not to be dragged into the war with Iran, but his government described its new position as essentially defensive.`\
 https://nytimes.com/2026/03/20/world/middleeast/uk-bases-us-iran.html

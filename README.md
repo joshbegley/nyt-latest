@@ -1,3 +1,11 @@
+**Former ICJ judge criticises FIFA over failure to further sanction Israel**\
+`The former United Nations special rapporteur said the global soccer governing body is committing "flagrant breaches of international law".`\
+https://nytimes.com/athletic/7134621/2026/03/20/fifa-criticism-israel-sanction/
+
+**What Tunnel Entrances Reveal About a Key Iranian Nuclear Site**\
+`Satellite images show how Iran has tried to bolster its defenses at parts of the Isfahan nuclear facility.`\
+https://nytimes.com/video/world/middleeast/100000010792563/isfahan-nuclear-site-iran.html
+
 **U.K. Allows U.S. to Use Bases to Hit Iranian Forces Menacing Strait Traffic**\
 `Prime Minister Keir Starmer has vowed not to be dragged into the war with Iran, but his government described its new position as essentially defensive.`\
 https://nytimes.com/2026/03/20/world/middleeast/uk-bases-us-iran.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/20/world/europe/ship-parthenon-greece-marbles-elgin.
 **How to watch Furman vs. UConn men's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Furman Paladins play the UConn Huskies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7134984/2026/03/20/furman-vs-uconn-stream-how-to-watch-march-20/
-
-**Why Energy Is Such a Potent Target in the War With Iran**\
-`More than three dozen oil, natural gas and related sites have been attacked in nine countries. More strikes could keep energy prices higher for longer.`\
-https://nytimes.com/interactive/2026/03/20/business/energy-environment/iran-war-oil-gas-attacks.html
-
-**Cesar Chavez Investigation**\
-``\
-https://nytimes.com/spotlight/cesar-chavez-collection
 
