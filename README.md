@@ -1,5 +1,5 @@
 **Kobbie Mainoo, Lewis Hall return to England squad**\
-`England face Uruguay on March 27 before taking on Japan on March 31.`\
+`The squad is Thomas Tuchel's last before he will finalise his selection for this summer's World Cup in the United States, Canada and Mexico.`\
 https://nytimes.com/athletic/7133414/2026/03/20/england-squad-list-march-fixtures/
 
 **What now for FSG, a frustrated Michael Edwards and Liverpool?**\
