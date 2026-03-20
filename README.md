@@ -1,3 +1,7 @@
+**Hatton suffering from CTE at time of death, inquest told**\
+`“I cannot be satisfied that he intended to take his own life,” coroner Alison Mutch told an inquest on Friday.`\
+https://nytimes.com/athletic/7134160/2026/03/20/ricky-hatton-inquest-death-suicide/
+
 **Until Saturday: So far, March is back to Madness**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/7134182/2026/03/20/march-madness-upsets-until-saturday/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/20/business/economy/fed-waller-interest-rates.html
 **Tottenham's Maddison could return from injury this season, says Tudor**\
 `Maddison has not featured at all this campaign after suffering an anterior cruciate ligament (ACL) injury in a pre-season friendly in August`\
 https://nytimes.com/athletic/7134039/2026/03/20/james-maddison-tottenham-injury-latest/
-
-**Chuck Norris, Crowd-Pleasing Star of Action Movies and TV, Dies at 86**\
-`He channeled his martial arts skills into heroic roles in films like “The Delta Force” and “Missing in Action” and in the long-running television series “Walker, Texas Ranger.”`\
-https://nytimes.com/2026/03/20/movies/chuck-norris-dead.html
 
