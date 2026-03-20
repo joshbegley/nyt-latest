@@ -1,3 +1,23 @@
+**BTS Leans Into the K of K-Pop With Comeback Album**\
+`The group’s new album “Arirang” includes a nod to a beloved Korean folk song and other important historical references.`\
+https://nytimes.com/2026/03/20/world/asia/bts-arirang-korean-references.html
+
+**Twins picks to click: 3 key players who will outperform their projections in 2026**\
+`Which of the Twins' unproven young players will break through this season and beat their projected numbers?`\
+https://nytimes.com/athletic/7123818/2026/03/20/twins-player-projections-taj-bradley/
+
+**Whose War?**\
+`We look at the diverging goals of the U.S. and Israel in the war on Iran.`\
+https://nytimes.com/2026/03/20/briefing/whose-war.html
+
+**Salah out of Liverpool's visit to Brighton, Gomez a doubt**\
+`The Egyptian asked to be substituted after feeling discomfort in the mid-week win over Galatasaray in the Champions League.`\
+https://nytimes.com/athletic/7133631/2026/03/20/salah-injury-liverpool-team-news-slot/
+
+**Red Sox roster projection 3.0: The final days to determine bench, bullpen**\
+`Plus updates on Boston's rotation, with an ace who'll pitch on five days' rest and a veteran lefty who needs to build up after the WBC.`\
+https://nytimes.com/athletic/7128902/2026/03/20/red-sox-opening-day-roster-projection/
+
 **Phillies minor-league notes: Gage Wood's spring training, other college pitchers**\
 `The first-rounder is focused on mastering his three core offerings, particularly the hard slider — a pitch he did not throw much in college.`\
 https://nytimes.com/athletic/7132484/2026/03/20/phillies-pitching-prospects-gage-wood/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7132912/2026/03/20/toronto-blue-jays-injuries-pitch
 **Why the Maple Leafs should sign top European free agent Vitaly Pinchuk**\
 `The 24-year-old centre spent a season with the Frontenacs, but the pandemic derailed his development. Now he's a point per game in the KHL.`\
 https://nytimes.com/athletic/7128428/2026/03/20/maple-leafs-vitaly-pinchuk-free-agent-roster/
-
-**Northern Iowa, a decade after unfathomable collapse, returns to March Madness**\
-`In March 2016, Northern Iowa led Texas A&M by 12 with less than 40 seconds to play. And somehow lost. `\
-https://nytimes.com/athletic/7133194/2026/03/20/northern-iowa-collapse-paul-jesperson-texas-am/
-
-**Rangers insider: Lafrenière-Sullivan lunch, Fortescue could turn pro soon**\
-`A late-summer lunch gave 24-year-old winger Alexis Lafrenière his first taste of Sullivan’s direct communication style.`\
-https://nytimes.com/athletic/7131500/2026/03/20/rangers-alexis-lafreniere-mike-sullivan-drew-fortescue/
-
-**Dodgers rotation stock report as Opening Day nears: Who's up? Who's down?**\
-`This is a group that projects to be even better in 2026.`\
-https://nytimes.com/athletic/7132507/2026/03/20/dodgers-rotation-stock-report-opening-day/
-
-**How to watch Cleveland Guardians: Broadcast info, viewing guide for 2026 season**\
-`Can Cleveland continue competing in an up-and-coming AL Central? Here's how to watch the Guardians battle for Midwest supremacy in 2026.`\
-https://nytimes.com/athletic/7132366/2026/03/20/cleveland-guardians-tv-streaming-how-to-watch-2026/
-
-**‘The Headlines’ News Quiz: Mar. 20, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://nytimes.com/2026/03/20/podcasts/the-headlines/the-headlines-news-quiz-mar-20-2026.html
 
