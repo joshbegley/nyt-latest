@@ -1,3 +1,11 @@
+**How to watch Charleston (SC) vs. Duke women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Charleston (SC) Cougars play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7133407/2026/03/20/charleston-sc-vs-duke-stream-how-to-watch-march-20/
+
+**Gabriel Jesus exclusive: 'We cannot be scared. We cannot lose something we don’t have'**\
+`Gabriel Jesus sits down with The Athletic to discuss trophy ambitions, dealing with pressure, injuries, and playing for Arteta and Guardiola`\
+https://nytimes.com/athletic/7128530/2026/03/20/gabriel-jesus-interview-arsenal-title-arteta-guardiola/
+
 **Fabian Hurzeler thinks Brighton fans can make the difference during taxing run-in**\
 `The Brighton manager says the club's fans helped his side against Arsenal, and can do the same against Liverpool`\
 https://nytimes.com/athletic/7119588/2026/03/20/brighton-amex-atmosphere/

@@ -1,3 +1,11 @@
+**How to watch Charleston (SC) vs. Duke women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Charleston (SC) Cougars play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7133407/2026/03/20/charleston-sc-vs-duke-stream-how-to-watch-march-20/
+
+**Gabriel Jesus exclusive: 'We cannot be scared. We cannot lose something we don’t have'**\
+`Gabriel Jesus sits down with The Athletic to discuss trophy ambitions, dealing with pressure, injuries, and playing for Arteta and Guardiola`\
+https://nytimes.com/athletic/7128530/2026/03/20/gabriel-jesus-interview-arsenal-title-arteta-guardiola/
+
 **Doctor and Robot**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2026/03/20/learning/doctor-and-robot.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7125617/2026/03/20/fantasy-premier-league-fpl-tips-
 **Breaking down the 15 seconds and Martinez's incredible pass that gave Villa their fireworks**\
 `Emiliano Martinez played an incredible pass to Jadon Sancho during Thursday night's game against Lille`\
 https://nytimes.com/athletic/7132519/2026/03/20/emiliano-martinez-pass-aston-villa-lille-analysis/
-
-**Fabian Hurzeler thinks Brighton fans can make the difference during taxing run-in**\
-`The Brighton manager says the club's fans helped his side against Arsenal, and can do the same against Liverpool`\
-https://nytimes.com/athletic/7119588/2026/03/20/brighton-amex-atmosphere/
-
-**Nottingham Forest's Europa League win exceeded expectations. Now it's time to build momentum**\
-`With eight Premier League games remaining, will Thursday's Europa League win help Nottingham Forest in their bid for survival?`\
-https://nytimes.com/athletic/7132582/2026/03/20/nottingham-forests-europa-league-win-exceeded-expectations-now-its-time-to-build-momentum/
 
