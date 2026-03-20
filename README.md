@@ -1,3 +1,7 @@
+**Shigeaki Mori, Hiroshima Survivor Photographed With Obama, Dies at 88**\
+`He lived through the first atomic bombing in Japan and then spent decades researching the identities of 12 American P.O.W.s killed in the attack.`\
+https://nytimes.com/2026/03/20/world/asia/shigeaki-mori-dead.html
+
 **Leeds fined £530,000 by Premier League for delaying kick-offs**\
 `Leeds were found to have delayed restarts on nine occasions this season and could face bigger fines for future infringements. `\
 https://nytimes.com/athletic/7134788/2026/03/20/leeds-fine-kick-off-restart-delay/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/03/20/upshot/flashback.html
 **War in Middle East Looms Over Eid and Nowruz Celebrations**\
 `The war in the Middle East cast a shadow over celebrations for Eid al-Fitr, a holiday marking the end of the Ramadan fasting month, and Nowruz, the Iranian new year.`\
 https://nytimes.com/video/world/middleeast/100000010791921/iran-war-middle-east-muslims-eid-nowruz.html
-
-**What Are Jacket Potatoes, and Why Are the English Waiting Hours for Them?**\
-`The heavily topped tubers, a British classic, are having a culinary comeback thanks to social media.`\
-https://nytimes.com/2026/03/20/dining/jacket-potatoes-uk-food-trend-social-media.html
 
