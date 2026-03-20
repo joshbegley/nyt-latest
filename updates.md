@@ -1,3 +1,11 @@
+**Luka Dončić's recent dominance continues with 60-point night vs. Heat**\
+`Dončić, who once scored 73 points as a member of the Dallas Mavericks, notched his highest point total since last season's trade to LA.`\
+https://nytimes.com/athletic/7133062/2026/03/19/luka-doncic-career-high-lakers-heat-score-results/
+
+**F.C.C. Approves Nexstar’s Acquisition of a Local TV Rival**\
+`The $6.2 billion deal consolidates 265 stations in 44 states and Washington.`\
+https://nytimes.com/2026/03/19/business/fcc-nexstar-tegna-deal-approved.html
+
 **Alaska Airlines and FedEx Planes Narrowly Avoid Each Other at Newark Airport**\
 `The National Transportation Safety Board said that it was investigating a “close call” that happened as the planes were landing on Tuesday evening.`\
 https://nytimes.com/2026/03/19/us/alaska-airlines-fedex-planes-newark-collision.html
