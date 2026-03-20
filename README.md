@@ -1,3 +1,15 @@
+**How to watch Akron vs. Texas Tech men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Akron Zips play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7133527/2026/03/20/akron-vs-texas-tech-stream-how-to-watch-march-20/
+
+**How to watch Santa Clara vs. Kentucky men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Santa Clara Broncos play the Kentucky Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7133525/2026/03/20/santa-clara-vs-kentucky-stream-how-to-watch-march-20/
+
+**How to watch LIU vs. Arizona men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Long Island Sharks play the Arizona Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7133523/2026/03/20/liu-vs-arizona-stream-how-to-watch-march-20/
+
 **What to Know About the BTS Comeback Concert**\
 `The K-pop supergroup’s first show in over three years will stream live on Netflix at 7 a.m. Eastern time on Saturday. The New York Times will cover it live from Seoul.`\
 https://nytimes.com/2026/03/20/world/asia/bts-concert-kpop-netflix-seoul.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7130159/2026/03/20/womens-basketball-march-madness-
 **For returning WBC players, it's suddenly a spring training sprint to the finish**\
 `“It’s not that fun,” San Diego Padres shortstop Xander Bogaerts admitted. “[but] Spring training, do you need it? Yes, I do need it."`\
 https://nytimes.com/athletic/7132531/2026/03/20/wbc-returning-players-spring-training-rush/
-
-**Four months ago, this Rockies prospect couldn't speak. Now, he's back in baseball**\
-`Braylen Wimmer had surgery for a brain tumor in November. With the support of friends and family, he's worked his way back to baseball. `\
-https://nytimes.com/athletic/7128856/2026/03/20/braylen-wimmer-rockies-surgery-brain-tumor/
-
-**Cy Miz? A Roman MVP? 10 bold predictions for the 2026 MLB season**\
-`The Astros' Cam Smith breaks out and the Royals' offense leads them back to the playoffs. These and other bold predictions for 2026.`\
-https://nytimes.com/athletic/7081259/2026/03/20/mlb-bold-predictions-2026-eno-sarris/
-
-**The New York Times International Edition in Print for Saturday, March 21, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/03/20/todays-new-york-times-international-edition
 
