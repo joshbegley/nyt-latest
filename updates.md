@@ -1,3 +1,7 @@
+**Why England are considering taking a goalkeeper who never plays to the World Cup**\
+`Brighton's Jason Steele hasn't played in a Premier League match since August 2024, but could have a specialist role this summer...`\
+https://nytimes.com/athletic/7133711/2026/03/20/jason-steele-england-squad/
+
 **Whittingham wanted to stay at Utah, AD displeased with transition: Documents**\
 `Documents obtained from the University of Utah shed light on Kyle Whittingham's surprising departure and resurfacing at Michigan.`\
 https://nytimes.com/athletic/7134161/2026/03/20/kyle-whittingham-utah-separation-agreement-michigan/

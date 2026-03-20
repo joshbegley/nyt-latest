@@ -1,3 +1,7 @@
+**Why England are considering taking a goalkeeper who never plays to the World Cup**\
+`Brighton's Jason Steele hasn't played in a Premier League match since August 2024, but could have a specialist role this summer...`\
+https://nytimes.com/athletic/7133711/2026/03/20/jason-steele-england-squad/
+
 **Whittingham wanted to stay at Utah, AD displeased with transition: Documents**\
 `Documents obtained from the University of Utah shed light on Kyle Whittingham's surprising departure and resurfacing at Michigan.`\
 https://nytimes.com/athletic/7134161/2026/03/20/kyle-whittingham-utah-separation-agreement-michigan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7134415/2026/03/20/queens-vs-purdue-stream-how-to-w
 **How to watch UCF vs. UCLA men's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the UCF Knights play the UCLA Bruins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7134413/2026/03/20/ucf-vs-ucla-stream-how-to-watch-march-20/
-
-**The Windup: NL West preview, and bold predictions**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/7134375/2026/03/20/national-league-west-preview-2026-the-windup/
 
