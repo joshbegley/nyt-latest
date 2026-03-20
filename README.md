@@ -1,3 +1,7 @@
+**What the Surprisingly Early Heat Wave Means for California’s Summer**\
+`The state is warming up and drying out earlier than usual. Here’s what that means for fire season.`\
+https://nytimes.com/2026/03/20/weather/california-heat-fire-season-snowpack.html
+
 **Fresno Took 30 Years to Name Cesar Chavez Blvd. Undoing It Took a Day.**\
 `The reckoning for the labor leader’s sex abuse was swift in Fresno, Calif., the heart of the Central Valley region where the farmworker movement was born. Towns across the nation face similar debates.`\
 https://nytimes.com/2026/03/20/us/fresno-cesar-chavez-street-rename.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7135061/2026/03/20/jordan-anthony-world-athletics-i
 **The Briefing: Bournemouth 2 Manchester United 2 - Cunha thrives on left, but Maguire sees red**\
 `Manchester United missed the opportunity to press home their advantage in the race for Champions League qualification`\
 https://nytimes.com/athletic/7125334/2026/03/20/bournemouth-2-manchester-united-2/
-
-**Inside the Arrest That Led to Banksy’s Possible Unmasking Decades Later**\
-`In 2000, Banksy was a largely unknown street artist hanging around downtown Manhattan when the police nabbed him for trying to deface a billboard.`\
-https://nytimes.com/2026/03/20/nyregion/banksy-identity-robin-gunningham-arrest.html
 
