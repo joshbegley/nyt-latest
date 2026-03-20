@@ -1,3 +1,11 @@
+**Former ICJ judge criticises FIFA over failure to further sanction Israel**\
+`The former United Nations special rapporteur said the global soccer governing body is committing "flagrant breaches of international law".`\
+https://nytimes.com/athletic/7134621/2026/03/20/fifa-criticism-israel-sanction/
+
+**What Tunnel Entrances Reveal About a Key Iranian Nuclear Site**\
+`Satellite images show how Iran has tried to bolster its defenses at parts of the Isfahan nuclear facility.`\
+https://nytimes.com/video/world/middleeast/100000010792563/isfahan-nuclear-site-iran.html
+
 **Electrical Blackouts, Suspended Flights: What to Know About Travel to Cuba**\
 `The island is dependent on tourism, but a lack of fuel and extensive power outages are forcing many travelers to cancel. Here’s what visitors might face.`\
 https://nytimes.com/2026/03/20/travel/cuba-flights-travel-advice-power-oil.html
