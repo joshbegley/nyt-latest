@@ -1,3 +1,5 @@
+
+
 **What the Surprisingly Early Heat Wave Means for California’s Summer**\
 `The state is warming up and drying out earlier than usual. Here’s what that means for fire season.`\
 https://nytimes.com/2026/03/20/weather/california-heat-fire-season-snowpack.html
