@@ -1,3 +1,7 @@
+**How to watch Tennessee vs. NC State women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Tennessee Lady Volunteers play the NC State Lady Wolfpack, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134674/2026/03/20/tennessee-vs-nc-state-stream-how-to-watch-march-20/
+
 **How to watch Villanova vs. Texas Tech women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Villanova Wildcats play the Texas Tech Lady Raiders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7134655/2026/03/20/villanova-vs-texas-tech-stream-how-to-watch-march-20/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7134481/2026/03/20/president-trump-issues-executive
 **Alexander Brothers Are Said to Seek Trump Pardons for Sex Trafficking**\
 `People representing the three brothers have reached out to a lobbyist and an influential Jewish group that have supported clemency for others. There are no signs the White House is considering a pardon.`\
 https://nytimes.com/2026/03/20/nyregion/alexander-brothers-pardon-white-house.html
-
-**WATCH: How the Jets' three newest additions improve their defense**\
-`All three players fit the mold for head coach Aaron Glenn's defense and, more importantly, are sizable upgrades.`\
-https://nytimes.com/athletic/7134223/2026/03/20/new-york-jets-nfl-free-agency-sweat-ossai-davis/
 
