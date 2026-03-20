@@ -1,3 +1,15 @@
+**Liverpool owner FSG shelves plans to create multi-club group**\
+`American firm had explored several possible deals to add to its portfolio of sports teams`\
+https://nytimes.com/athletic/7131716/2026/03/20/liverpool-fsg-multi-club-plan-off/
+
+**Here’s the latest.**\
+`By Francesca Regalado, Ephrat Livni, Ashley Ahn and David E. Sanger`\
+https://nytimes.com/live/2026/03/20/world/iran-war-oil-trump/heres-the-latest
+
+**Iran War Live Updates: Oil Prices Retreat and More Attacks Are Reported**\
+`The price of oil was easing after the Trump administration sought to calm markets. Israel said it was striking Tehran and several U.S. allies reported incoming attacks.`\
+https://nytimes.com/live/2026/03/20/world/iran-war-oil-trump
+
 **How to watch Charleston (SC) vs. Duke women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Charleston (SC) Cougars play the Duke Blue Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7133407/2026/03/20/charleston-sc-vs-duke-stream-how-to-watch-march-20/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/20/crosswords/spelling-bee-forum.html
 **Late Night Pans Trump’s Pearl Harbor Joke**\
 `“Let me tell you: There is no doubt in my mind that everything he knows about Pearl Harbor begins and ends with a movie starring Ben Affleck,” Jimmy Kimmel said.`\
 https://nytimes.com/2026/03/20/arts/television/late-night-trump-pearl-harbor.html
-
-**Word of the Day: luminosity**\
-`This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/03/20/learning/word-of-the-day-luminosity.html
-
-**Is Free Hit the smartest play for FPL Gameweek 31?**\
-`If your FPL team is in good shape, there is no need to panic. But if you are struggling for numbers, the Free Hit offers a powerful lifeline`\
-https://nytimes.com/athletic/7125617/2026/03/20/fantasy-premier-league-fpl-tips-blank-gameweek-31-free-hit/
-
-**Breaking down the 15 seconds and Martinez's incredible pass that gave Villa their fireworks**\
-`Emiliano Martinez played an incredible pass to Jadon Sancho during Thursday night's game against Lille`\
-https://nytimes.com/athletic/7132519/2026/03/20/emiliano-martinez-pass-aston-villa-lille-analysis/
 
