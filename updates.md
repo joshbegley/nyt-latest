@@ -1,3 +1,15 @@
+**Aston Martin, Adrian Newey and Jonathan Wheatley – what we’re hearing**\
+`Reports have emerged linking Audi team principal Jonathan Wheatley with a shock switch to Aston Martin. Here's what we know so far`\
+https://nytimes.com/athletic/7133742/2026/03/20/aston-martin-f1-team-principal-adrian-newey-jonathan-wheatley/
+
+**Fantasy Premier League live Q&A: Gameweek 31 advice from Ben Dinnery**\
+`To get your FPL side into shape, Ben Dinnery of premierinjuries.com is on hand to offer his advice on the players to target and who to avoid`\
+https://nytimes.com/athletic/7132339/2026/03/20/fantasy-premier-league-live-qa-gameweek-31-advice-fpl-tips/
+
+**With 'awful' performance against tanking Jazz, Giannis-less Bucks reap what they sow**\
+`There's strategic losing and then there's this loss to a Jazz team that played just eight players on the second night of a back-to-back.`\
+https://nytimes.com/athletic/7133231/2026/03/20/nba-bucks-loss-tanking-jazz-giannis/
+
 **Tuchel leaves door open for Arsenal's Dowman, 16, to make England World Cup squad**\
 `Dowman was not included in Tuchel's 35-man squad on Thursday but could still make the plane to North America.`\
 https://nytimes.com/athletic/7133796/2026/03/20/max-dowman-tuchel-england-world-cup-squad/
