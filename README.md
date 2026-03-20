@@ -1,3 +1,11 @@
+**How to watch Green Bay vs. Minnesota women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Green Bay Phoenix play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134364/2026/03/20/green-bay-vs-minnesota-stream-how-to-watch-march-20/
+
+**How to watch Jacksonville vs. LSU women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Jacksonville Dolphins play the LSU Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7134361/2026/03/20/jacksonville-vs-lsu-stream-how-to-watch-march-20/
+
 **How to watch Colorado State vs. Michigan State women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Colorado State Rams play the Michigan State Spartans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7134355/2026/03/20/colorado-state-vs-michigan-state-stream-how-to-watch-march-20/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7134154/2026/03/20/dennis-rodman-wwe-hall-of-fame/
 **How to watch Hurricanes vs. Maple Leafs: Time, TV, streaming**\
 `Find out how to watch the Carolina Hurricanes play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7134295/2026/03/20/hurricanes-vs-maple-leafs-stream-how-to-watch-march-20/
-
-**How a Stickup Man Became a Sought-After Jailhouse Lawyer**\
-`Obsessed with proving his innocence, Quentin Lewis devoted years in isolation to learning the law. Now he is taking on his captors in prison tribunals.`\
-https://nytimes.com/2026/03/20/nyregion/jailhouse-lawyer-quentin-lewis.html
-
-**Preston’s Thompson given three-game ban for kicking bottle that hit a fan**\
-`The 29-year-old denied the FA charge against him but a regulatory commission found that the incident constituted violent conduct.`\
-https://nytimes.com/athletic/7134231/2026/03/20/preston-jordan-thompson-water-bottle-ban/
 
