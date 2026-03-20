@@ -1,3 +1,7 @@
+**NFL owners to vote on Mark Davis' Raiders succession plan: Source**\
+`If Davis chooses to sell a majority stake to minority owner Egon Durban, the deal would require approval from 24 of the league's 32 owners.`\
+https://nytimes.com/athletic/7133005/2026/03/19/raiders-succession-plan-mark-davis-egon-durban/
+
 **Luka Dončić's recent dominance continues with 60-point night vs. Heat**\
 `Dončić, who once scored 73 points as a member of the Dallas Mavericks, notched his highest point total since last season's trade to LA.`\
 https://nytimes.com/athletic/7133062/2026/03/19/luka-doncic-career-high-lakers-heat-score-results/

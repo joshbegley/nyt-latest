@@ -1,3 +1,7 @@
+**NFL owners to vote on Mark Davis' Raiders succession plan: Source**\
+`If Davis chooses to sell a majority stake to minority owner Egon Durban, the deal would require approval from 24 of the league's 32 owners.`\
+https://nytimes.com/athletic/7133005/2026/03/19/raiders-succession-plan-mark-davis-egon-durban/
+
 **Luka Dončić's recent dominance continues with 60-point night vs. Heat**\
 `Dončić, who once scored 73 points as a member of the Dallas Mavericks, notched his highest point total since last season's trade to LA.`\
 https://nytimes.com/athletic/7133062/2026/03/19/luka-doncic-career-high-lakers-heat-score-results/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/19/us/rfk-jr-transgender-care-ruling.html
 **LeBron James ties Robert Parish for most games played in NBA history**\
 `James appeared in his 1,611th career game Thursday night, less than 24 hours after he scored 30 points in Houston.`\
 https://nytimes.com/athletic/7132654/2026/03/19/lebron-james-nba-games-record-robert-parish/
-
-**Pryce Sandfort earns Nebraska Cornhusker legend status with big brother in stands**\
-`Sandfort grew up an Iowa State fan, but he played for rival Iowa before transferring to Nebraska. `\
-https://nytimes.com/athletic/7132833/2026/03/19/pryce-sandfort-nebraska-payton-brother/
 
