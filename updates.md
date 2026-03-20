@@ -1,3 +1,11 @@
+**F.C.C. Approves Nexstar’s Acquisition of a Local TV Rival**\
+`The $6.2 billion deal with Tegna consolidates 265 stations in 44 states and Washington, D.C.`\
+https://nytimes.com/2026/03/19/business/fcc-nexstar-tegna-deal-approved.html
+
+**Pryce Sandfort earns Nebraska Cornhusker legend status with big brother in stands**\
+`Sandfort grew up an Iowa State fan, but he played for rival Iowa before transferring to Nebraska. `\
+https://nytimes.com/athletic/7132833/2026/03/19/pryce-sandfort-nebraska-payton-brother/
+
 **U.S. Says 3 Tied to Silicon Valley Server Maker Broke Export Laws**\
 `Prosecutors said the men, including a co-founder of the company, Super Micro, had diverted servers containing Nvidia A.I. chips to China.`\
 https://nytimes.com/2026/03/19/technology/super-micro-servers-china-indicted.html
