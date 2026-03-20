@@ -1,3 +1,7 @@
+**Hegseth Invokes Divine Purpose to Justify Military Might**\
+`Defense Secretary Pete Hegseth has imbued U.S. military actions with a Christian moral underpinning that suggests they are divinely sanctioned.`\
+https://nytimes.com/2026/03/20/us/politics/hegseth-christianity-military.html
+
 **Man Shatters Valuable Glass Artwork and Tries to Stab Guard, Police Say**\
 `A man was arrested after being accused of damaging an estimated $240,000 of artwork at the Chihuly Garden and Glass.`\
 https://nytimes.com/2026/03/20/arts/design/dale-chihuly-glass-seattle.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7134698/2026/03/20/liverpool-alisson-brazil-injury-
 **Iran’s New Supreme Leader Issues a Statement but Remains Unseen**\
 `Ayatollah Mojtaba Khamenei has remained out of the public’s sight since assuming the post, amid reports that he was badly wounded.`\
 https://nytimes.com/2026/03/20/world/middleeast/supreme-leader-statement.html
-
-**Jessie Diggins, in final race weekend, clinches fourth career cross-country World Cup title**\
-`Diggins won her third straight World Cup title and fourth overall. She is retiring after this weekend's season-ending races.`\
-https://nytimes.com/athletic/7129504/2026/03/20/jessie-diggins-world-cup-champion-crystal-globe-retirement/
 
