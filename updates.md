@@ -1,3 +1,7 @@
+**Rush Order**\
+`Rafael Musa and Rebecca Goldstein open our solving weekend.`\
+https://nytimes.com/2026/03/19/crosswords/daily-puzzle-2026-03-20.html
+
 **VCU knocks out UNC, completing one of largest comebacks in NCAA Tournament history**\
 `VCU trailed by 19 in the second half before rallying to force overtime.`\
 https://nytimes.com/athletic/7132969/2026/03/19/vcu-unc-march-madness-2026-result-takeaways/
