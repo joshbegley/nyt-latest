@@ -1,3 +1,7 @@
+**Leafs' Anthony Stolarz taken to hospital after taking puck to throat during warmups**\
+`Stolarz was taken to the hospital for precautionary imaging after taking a puck up high from William Nylander before a game in Ottawa.`\
+https://nytimes.com/athletic/7137226/2026/03/21/anthony-stolarz-injured-warmups-hospital-maple-leafs/
+
 **Former F.B.I. Director Robert Mueller Dies at 81**\
 `Robert Mueller, who led the Federal Bureau of Investigation for 12 tumultuous years, brought politically explosive indictments as a special counsel examining Russia’s attack on the 2016 presidential election.`\
 https://nytimes.com/video/us/100000010794275/robert-mueller-obituary-fbi.html
