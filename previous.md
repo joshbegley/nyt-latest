@@ -1,3 +1,7 @@
+**How to watch Lightning vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136775/2026/03/21/lightning-vs-oilers-stream-how-to-watch-march-21/
+
 **Kendra Duggar, Wife of ‘19 Kids’ Star, Faces Child Endangerment Charges**\
 `Ms. Duggar was arrested two days after Joseph Duggar, a onetime star of the reality TV series “19 Kids and Counting,” was arrested in a sex abuse case. She appeared in the “Counting On” spinoff.`\
 https://nytimes.com/2026/03/21/us/kendra-joseph-dugger-misdemeanor-arrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7136659/2026/03/21/vanderbilt-vs-nebraska-stream-ho
 **An Aural Companion for Decades, CBS News Radio Crackles to a Close**\
 `A stalwart of the mass media century, the longstanding network that launched the careers of journalists like Edward R. Murrow will air its final broadcast in May.`\
 https://nytimes.com/2026/03/21/business/media/cbs-news-radio-appraisal.html
-
-**How to watch VCU vs. Illinois men's basketball: Second Round Time, TV, streaming**\
-`Find out how to watch the VCU Rams play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136655/2026/03/21/vcu-vs-illinois-stream-how-to-watch-march-21/
 
