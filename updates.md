@@ -1,3 +1,7 @@
+**Wrexham's Hollywood owners' Sky Sports' watchalong criticised by Swansea CEO**\
+`Sky offered an alternative commentary with Wrexhman owners Ryan Reynolds and Rob Mac alongside regular presenter David Prutton.`\
+https://nytimes.com/athletic/7136325/2026/03/21/wrexham-reynolds-mac-sky-swansea-coverage/
+
 **Paul Brainerd Dies at 78; Pioneered Desktop Publishing With PageMaker**\
 `His software brought printing into the digital age, allowing users to stop manually splicing columns of text and graphics and instead create layouts on a virtual pasteboard.`\
 https://nytimes.com/2026/03/21/technology/personaltech/paul-brainerd-dead.html

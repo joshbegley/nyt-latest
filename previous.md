@@ -1,3 +1,7 @@
+**Wrexham's Hollywood owners' Sky Sports' watchalong criticised by Swansea CEO**\
+`Sky offered an alternative commentary with Wrexhman owners Ryan Reynolds and Rob Mac alongside regular presenter David Prutton.`\
+https://nytimes.com/athletic/7136325/2026/03/21/wrexham-reynolds-mac-sky-swansea-coverage/
+
 **Paul Brainerd Dies at 78; Pioneered Desktop Publishing With PageMaker**\
 `His software brought printing into the digital age, allowing users to stop manually splicing columns of text and graphics and instead create layouts on a virtual pasteboard.`\
 https://nytimes.com/2026/03/21/technology/personaltech/paul-brainerd-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7136368/2026/03/21/high-point-vs-vanderbilt-stream-
 **How to watch Blues vs. Canucks: Time, TV, streaming**\
 `Find out how to watch the St. Louis Blues play the Vancouver Canucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136321/2026/03/21/blues-vs-canucks-stream-how-to-watch-march-21/
-
-**How to watch Islanders vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the New York Islanders play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136317/2026/03/21/islanders-vs-canadiens-stream-how-to-watch-march-21/
 
