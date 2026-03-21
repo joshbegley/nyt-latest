@@ -1,3 +1,23 @@
+**The director of the Netflix livestream is a veteran of the Oscars and the Super Bowl.**\
+`Hamish Hamilton, a multiple-time Emmy and BAFTA winner, is directing the Netflix broadcast of BTS’s comeback concert on Saturday.`\
+https://nytimes.com/live/2026/03/21/world/bts-netflix-concert-arirang/bts-hamish-hamilton-director
+
+**Team Venezuela hero Eugenio Suárez ready to chase World Series title with Reds**\
+`After a gallant World Baseball Classic showing, the Reds hope Suárez's "clutch gene" will pay dividends in October. `\
+https://nytimes.com/athletic/7135614/2026/03/21/wbc-venezuela-hero-eugenio-suarez-reds-2026/
+
+**Not All Malls Are Struggling**\
+`A certain type of shopping mall has become a surprising bright spot for real estate investors.`\
+https://nytimes.com/2026/03/21/business/dealbook/shopping-mall-resurgence.html
+
+**Senegal's World Cup shirt to not feature star for AFCON title country was stripped of**\
+`The Senegal Football Federation said new shirts with a second star were "in production" and set to be available in September.`\
+https://nytimes.com/athletic/7135986/2026/03/21/senegal-world-cup-shirt-afcon/
+
+**Behind the scenes of the BTS livestream.**\
+`By Jin Yu Young`\
+https://nytimes.com/live/2026/03/21/world/bts-netflix-concert-arirang/behind-the-scenes-of-the-bts-livestream
+
 **Why BTS Is Promoting Its New Album at Home Before Going on Tour**\
 `The last time BTS released an album, it kicked off with appearances in New York before Seoul. This time it’s the other way around.`\
 https://nytimes.com/2026/03/21/arts/music/bts-arirang-korea-tour-fallon.html

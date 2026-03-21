@@ -1,3 +1,23 @@
+**The director of the Netflix livestream is a veteran of the Oscars and the Super Bowl.**\
+`Hamish Hamilton, a multiple-time Emmy and BAFTA winner, is directing the Netflix broadcast of BTS’s comeback concert on Saturday.`\
+https://nytimes.com/live/2026/03/21/world/bts-netflix-concert-arirang/bts-hamish-hamilton-director
+
+**Team Venezuela hero Eugenio Suárez ready to chase World Series title with Reds**\
+`After a gallant World Baseball Classic showing, the Reds hope Suárez's "clutch gene" will pay dividends in October. `\
+https://nytimes.com/athletic/7135614/2026/03/21/wbc-venezuela-hero-eugenio-suarez-reds-2026/
+
+**Not All Malls Are Struggling**\
+`A certain type of shopping mall has become a surprising bright spot for real estate investors.`\
+https://nytimes.com/2026/03/21/business/dealbook/shopping-mall-resurgence.html
+
+**Senegal's World Cup shirt to not feature star for AFCON title country was stripped of**\
+`The Senegal Football Federation said new shirts with a second star were "in production" and set to be available in September.`\
+https://nytimes.com/athletic/7135986/2026/03/21/senegal-world-cup-shirt-afcon/
+
+**Behind the scenes of the BTS livestream.**\
+`By Jin Yu Young`\
+https://nytimes.com/live/2026/03/21/world/bts-netflix-concert-arirang/behind-the-scenes-of-the-bts-livestream
+
 **Why BTS Is Promoting Its New Album at Home Before Going on Tour**\
 `The last time BTS released an album, it kicked off with appearances in New York before Seoul. This time it’s the other way around.`\
 https://nytimes.com/2026/03/21/arts/music/bts-arirang-korea-tour-fallon.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7136018/2026/03/21/usc-vs-clemson-stream-how-to-wat
 **How to watch JMU vs. Kentucky women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the James Madison Dukes play the Kentucky Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136014/2026/03/21/jmu-vs-kentucky-stream-how-to-watch-march-21/
-
-**How to watch Rhode Island vs. Alabama women's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Rhode Island Rams play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136012/2026/03/21/rhode-island-vs-alabama-stream-how-to-watch-march-21/
-
-**What BTS Is Wearing for Its Comeback Concert and Why**\
-`The band’s looks, by the Korean brand Songzio, represented a bigger story about Korean culture and meaning.`\
-https://nytimes.com/2026/03/21/arts/music/bts-concert-fashion.html
-
-**How to watch UTSA vs. UConn women's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the UTSA Roadrunners play the UConn Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136008/2026/03/21/utsa-vs-uconn-stream-how-to-watch-march-21/
-
-**How to watch Golden Knights vs. Predators: Time, TV, streaming**\
-`Find out how to watch the Vegas Golden Knights play the Nashville Predators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136000/2026/03/21/golden-knights-vs-predators-stream-how-to-watch-march-21/
-
-**The Pulse: Why every tourney rips**\
-`Welcome to The Pulse, The Athletic's daily newsletter. `\
-https://nytimes.com/athletic/7135854/2026/03/21/why-every-tourney-rips-plus-a-miracle-with-a-dash-of-controversy/
 
