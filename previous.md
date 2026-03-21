@@ -1,3 +1,7 @@
+**Kendra Duggar, Wife of ‘19 Kids’ Star, Faces Child Endangerment Charges**\
+`Ms. Duggar was arrested two days after Joseph Duggar, a onetime star of the reality TV series “19 Kids and Counting,” was arrested in a sex abuse case. She appeared in the “Counting On” spinoff.`\
+https://nytimes.com/2026/03/21/us/kendra-joseph-dugger-misdemeanor-arrest.html
+
 **How to watch Bucks vs. Suns: Time, TV, streaming**\
 `Find out how to watch the Milwaukee Bucks play the Phoenix Suns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136744/2026/03/21/bucks-vs-suns-stream-how-to-watch-march-21/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/21/business/media/cbs-news-radio-appraisal.html
 **How to watch VCU vs. Illinois men's basketball: Second Round Time, TV, streaming**\
 `Find out how to watch the VCU Rams play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136655/2026/03/21/vcu-vs-illinois-stream-how-to-watch-march-21/
-
-**How to watch Colorado vs. Illinois women's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Colorado Buffaloes play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136627/2026/03/21/colorado-vs-illinois-stream-how-to-watch-march-21/
 
