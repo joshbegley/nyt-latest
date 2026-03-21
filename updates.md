@@ -1,3 +1,7 @@
+**A Striking One-Pot Chicken and Rice for Your Saturday**\
+`Chicken and saffron rice with pomegranate salsa, to be exact.`\
+https://nytimes.com/2026/03/21/dining/a-striking-one-pot-chicken-and-rice-for-your-saturday.html
+
 **The Briefing: Brighton 2 Liverpool 1 - Champions League hangover? Defensive errors? Ekitike injury?**\
 `Liverpool lost 2-1 to Brighton on Saturday afternoon — The Athletic's Gregg Evans breaks down the game`\
 https://nytimes.com/athletic/7126415/2026/03/21/brighton-liverpool-score-result-report-analysis/
