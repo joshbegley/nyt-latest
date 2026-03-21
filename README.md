@@ -1,5 +1,5 @@
-**Pete Crow-Armstrong talks WBC loss to Venezuela, Cubs teammate Daniel Palencia**\
-`The Cubs star was all-in on playing for Team USA at the 2028 Olympics days after the World Baseball Classic loss to Venezuela.`\
+**Pete Crow-Armstrong talks loss to Venezuela, WBC crowds, 2028 Olympics**\
+`The Cubs star appreciated the atmosphere of the World Baseball Classic crowds. "That’s something I would do 10 times out of 10," he said.`\
 https://nytimes.com/athletic/7135615/2026/03/20/pete-crow-armstrong-wbc-cubs-daniel-palencia/
 
 **Tennessee suffers rare first-round NCAA Tournament loss, caps disappointing season**\
