@@ -1,3 +1,11 @@
+**Striking Down Pentagon Press Limits, Judge Vindicates Independent Journalism**\
+`The ruling cut deeper than left-versus-right politics, declaring that the policy imposed by Defense Secretary Pete Hegseth is unconstitutional.`\
+https://nytimes.com/2026/03/20/us/federal-judge-constitution-press-freedom.html
+
+**U.S. flag football's exhibition vs. NFL players carries big Olympic implications**\
+`Is the U.S. flag football team really better than NFL players at flag? Saturday will give us our first clues toward finding out.`\
+https://nytimes.com/athletic/7135479/2026/03/20/flag-football-nfl-olympics-fanatics-tom-brady-exhibition/
+
 **NCAA sues DraftKings for trademark infringement over use of March Madness, other terms**\
 `The NCAA has pushed hard to limit the types of bets sportsbooks offer on college events.`\
 https://nytimes.com/athletic/7135474/2026/03/20/ncaa-sues-draftkings-trademark-infringement/
