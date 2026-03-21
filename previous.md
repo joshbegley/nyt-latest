@@ -1,3 +1,7 @@
+**How to watch High Point vs. Arkansas men's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the High Point Panthers play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136833/2026/03/21/high-point-vs-arkansas-stream-how-to-watch-march-21/
+
 **How to watch Cal Baptist vs. UCLA women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Cal Baptist Lancers play the UCLA Bruins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136815/2026/03/21/cal-baptist-vs-ucla-stream-how-to-watch-march-21/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7136732/2026/03/21/76ers-vs-jazz-stream-how-to-watc
 **Trump Says He Will Send ICE Agents to Airports on Monday**\
 `The president issued a threat to deploy ICE agents in an apparent attempt to force Democrats to approve a new budget for the Department of Homeland Security.`\
 https://nytimes.com/2026/03/21/us/politics/trump-ice-agents-airports.html
-
-**Charges Dropped Against Woman Mistaken for Protester in Minnesota Church Case**\
-`Federal prosecutors dismissed charges against one of 39 defendants they charged for disrupting a worship service in January to protest the immigration crackdown.`\
-https://nytimes.com/2026/03/21/us/charges-dropped-against-woman-mistaken-for-protester-in-minnesota-church-case.html
 
