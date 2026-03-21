@@ -1,3 +1,7 @@
+**NCAA sues DraftKings for trademark infringement over use of March Madness, other terms**\
+`The NCAA has pushed hard to limit the types of bets sportsbooks offer on college events.`\
+https://nytimes.com/athletic/7135474/2026/03/20/ncaa-sues-draftkings-trademark-infringement/
+
 **Trump Signals Retreat From Goal of Regime Change in Iran**\
 `In the first days of the U.S.-Israeli campaign against Iran, Mr. Trump pressed for a popular uprising against Tehran’s government.`\
 https://nytimes.com/2026/03/20/world/middleeast/trump-winding-down-iran-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/20/us/700-dogs-cats-rescued-los-angeles-county.html
 **What I'm seeing at Astros camp: Brice Matthews' OF bid, Cam Smith's mindset, more**\
 `Houston hired a new director of sports medicine and performance, and a new assistant athletic trainer.`\
 https://nytimes.com/athletic/7135301/2026/03/20/astros-brice-matthews-cam-smith-sports-medicine-department/
-
-**A Look at the Escalating Battle for the Strait of Hormuz**\
-`There are several ways the United States could attempt to reopen the waterway, all of which carry substantial risks.`\
-https://nytimes.com/2026/03/20/us/politics/battle-for-strait-of-hormuz.html
 
