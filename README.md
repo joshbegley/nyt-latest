@@ -1,3 +1,7 @@
+**Gabriel says Arsenal are 'ready' for a 'big battle' in Carabao Cup final vs. Man City**\
+`The 28-year-old has the opportunity to win the first trophy of his Arsenal career on Sunday, where he will once again face Erling Haaland.`\
+https://nytimes.com/athletic/7132548/2026/03/21/arsenal-gabriel-manchester-city-carabao-cup/
+
 **Rangers sign prospect Drew Fortescue to entry-level contract**\
 `The defenseman, a third-round draft pick in 2023, was playing for Boston College, whose season ended Friday.`\
 https://nytimes.com/athletic/7137059/2026/03/21/rangers-drew-fortescue-sign-contract-prospect/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010794212/were-finally-here-bts-retur
 **Efficient in final spring outing, Joe Ryan is ready to 'get rolling'**\
 `Ryan will pitch the Twins’ season opener for the second time after also receiving the honor for the 2022 season.`\
 https://nytimes.com/athletic/7136864/2026/03/21/minnesota-twins-joe-ryan-final-tuneup-ready/
-
-**Trump’s Contested Campus Antisemitism Fight Is Accelerating Again**\
-`While some Jewish students and faculty members have applauded the Trump administration’s renewed push against antisemitism, others believe the government has different motives.`\
-https://nytimes.com/2026/03/21/us/trump-campus-antisemitism-fight-universities.html
 
