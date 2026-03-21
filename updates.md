@@ -1,3 +1,7 @@
+**Iranian Man Arrested After Trying to Enter U.K. Naval Base, Police Say**\
+`The man and a Romanian woman walked up to the gate of the base in Scotland, where nuclear-armed submarines are docked, and asked to be let in, an official said.`\
+https://nytimes.com/2026/03/21/world/europe/iran-scotland-naval-base-clyde.html
+
 **The director of the Netflix livestream is a veteran of the Oscars and the Super Bowl.**\
 `Hamish Hamilton, a multiple-time Emmy and BAFTA winner, is directing the Netflix broadcast of BTS’s comeback concert on Saturday.`\
 https://nytimes.com/live/2026/03/21/world/bts-netflix-concert-arirang/bts-hamish-hamilton-director
