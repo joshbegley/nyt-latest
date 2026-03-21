@@ -1,3 +1,7 @@
+**Oilers’ Leon Draisaitl in Germany receiving treatment for lower-body injury: Reports**\
+`The forward spoke about his injury timeline during a Sky Sports broadcast for German soccer club Bayern Munich's game on Saturday.`\
+https://nytimes.com/athletic/7136860/2026/03/21/oilers-leon-draisaitl-germany-injury/
+
 **‘We’re Finally Here’: BTS Returns With Sold-Out Concert and New Album**\
 `The K-pop supergroup BTS performed their first concert in over three years in Seoul on Saturday following the release of their new album, “Arirang,” on Friday. Thousands of fans came out to hear one of the biggest names in K-pop.`\
 https://nytimes.com/video/world/asia/100000010794212/were-finally-here-bts-returns-with-sold-out-concert-and-new-album.html

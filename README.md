@@ -1,3 +1,7 @@
+**What Was the Mueller Investigation? And What Did It Find?**\
+`The appointment of Robert S. Mueller III as special counsel to conduct an investigation related to a sitting president roiled Washington around the start of President Trump’s first term.`\
+https://nytimes.com/2026/03/21/us/politics/robert-mueller-trump-russia-fbi-investigation.html
+
 **Oilers’ Leon Draisaitl in Germany receiving treatment for lower-body injury: Reports**\
 `The forward spoke about his injury timeline during a Sky Sports broadcast for German soccer club Bayern Munich's game on Saturday.`\
 https://nytimes.com/athletic/7136860/2026/03/21/oilers-leon-draisaitl-germany-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7136859/2026/03/21/unc-basketball-coach-hubert-davi
 **Josh Kerr beats Cole Hocker in sprint finish to regain 3,000m world indoor title**\
 `Kerr's winning time of 7:35.56s was 0.14s quicker than American Cole Hocker.`\
 https://nytimes.com/athletic/7136826/2026/03/21/josh-kerr-cole-hocker-world-indoor-race/
-
-**Man United's Jim Ratcliffe taking legal action against Ben Ainsley over '£180m boat'**\
-`Ratcliffe's company, INEOS, has said it is taking legal action against Ainsley's Athena Racing to force them to return the boat`\
-https://nytimes.com/athletic/7136671/2026/03/21/man-united-jim-ratcliffe-boat-americas-cup-ainsley/
 
