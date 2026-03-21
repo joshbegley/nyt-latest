@@ -1,3 +1,11 @@
+**Why BTS Is Promoting Its New Album at Home Before Going on Tour**\
+`The last time BTS released an album, it kicked off with appearances in New York before Seoul. This time it’s the other way around.`\
+https://nytimes.com/2026/03/21/arts/music/bts-arirang-korea-tour-fallon.html
+
+**How to watch Louisville vs. Michigan State men's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Louisville Cardinals play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136031/2026/03/21/louisville-vs-michigan-state-stream-how-to-watch-march-21/
+
 **How to watch Fairfield vs. Notre Dame women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Fairfield Stags play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136022/2026/03/21/fairfield-vs-notre-dame-stream-how-to-watch-march-21/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7136000/2026/03/21/golden-knights-vs-predators-stre
 **The Pulse: Why every tourney rips**\
 `Welcome to The Pulse, The Athletic's daily newsletter. `\
 https://nytimes.com/athletic/7135854/2026/03/21/why-every-tourney-rips-plus-a-miracle-with-a-dash-of-controversy/
-
-**How to watch Real Oviedo vs. Levante in the U.S.**\
-`Find out how to watch Real Oviedo play Levante, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7135988/2026/03/21/real-oviedo-vs-levante-stream-how-to-watch-march-21/
-
-**Here’s how America met BTS.**\
-`The South Korean band broke into American pop culture by hitting the talk shows, performing on “Saturday Night Live” and appearing at the White House.`\
-https://nytimes.com/live/2026/03/21/world/bts-netflix-concert-arirang/heres-how-america-met-bts
 
