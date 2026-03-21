@@ -1,3 +1,7 @@
+**Nicholas Brendon, a Star in ‘Buffy the Vampire Slayer,’ Is Dead**\
+`He played the part of Xander Harris, one of Buffy’s closest friends, on the hit television show.`\
+https://nytimes.com/2026/03/20/arts/television/nicholas-brendon-dead.html
+
 **Striking Down Pentagon Press Limits, Judge Vindicates Independent Journalism**\
 `The ruling cut deeper than left-versus-right politics, declaring that the policy imposed by Defense Secretary Pete Hegseth is unconstitutional.`\
 https://nytimes.com/2026/03/20/us/federal-judge-constitution-press-freedom.html

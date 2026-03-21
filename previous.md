@@ -1,3 +1,7 @@
+**Nicholas Brendon, a Star in ‘Buffy the Vampire Slayer,’ Is Dead**\
+`He played the part of Xander Harris, one of Buffy’s closest friends, on the hit television show.`\
+https://nytimes.com/2026/03/20/arts/television/nicholas-brendon-dead.html
+
 **Striking Down Pentagon Press Limits, Judge Vindicates Independent Journalism**\
 `The ruling cut deeper than left-versus-right politics, declaring that the policy imposed by Defense Secretary Pete Hegseth is unconstitutional.`\
 https://nytimes.com/2026/03/20/us/federal-judge-constitution-press-freedom.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/20/world/europe/harold-1066-forced-march-ship-hastin
 **U.S. Lifts Sanctions on Some Iranian Oil to Get More to Market**\
 `Treasury Secretary Scott Bessent estimated that the move would add about 140 million barrels of crude to the oil market.`\
 https://nytimes.com/2026/03/20/world/middleeast/us-sanctions-iran-oil.html
-
-**Kevin Willard 'jokes' about firing staff after Villanova's defensive struggles in NCAA loss**\
-`Willard was frustrated about his team's inability to guard Utah State's baseline out-of-bounds plays. `\
-https://nytimes.com/athletic/7135377/2026/03/20/kevin-willard-fire-coaches-villanova-utah-state/
 
