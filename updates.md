@@ -1,3 +1,15 @@
+**How to watch Grizzlies vs. Hornets: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the Charlotte Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136265/2026/03/21/grizzlies-vs-hornets-stream-how-to-watch-march-21/
+
+**How to watch Lakers vs. Magic: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the Orlando Magic, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136263/2026/03/21/lakers-vs-magic-stream-how-to-watch-march-21/
+
+**How to watch Cavaliers vs. Pelicans: Time, TV, streaming**\
+`Find out how to watch the Cleveland Cavaliers play the New Orleans Pelicans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136261/2026/03/21/cavaliers-vs-pelicans-stream-how-to-watch-march-21/
+
 **A Striking One-Pot Chicken and Rice for Your Saturday**\
 `Chicken and saffron rice with pomegranate salsa, to be exact.`\
 https://nytimes.com/2026/03/21/dining/a-striking-one-pot-chicken-and-rice-for-your-saturday.html

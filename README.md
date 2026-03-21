@@ -1,3 +1,7 @@
+**Mets announce starting rotation, shift Sean Manaea to bullpen role**\
+`Manaea is expected to work in a piggyback role behind the Mets' five-man starting rotation.`\
+https://nytimes.com/athletic/7136256/2026/03/21/mets-pitching-starting-rotation-sean-manaea/
+
 **How to watch Grizzlies vs. Hornets: Time, TV, streaming**\
 `Find out how to watch the Memphis Grizzlies play the Charlotte Hornets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136265/2026/03/21/grizzlies-vs-hornets-stream-how-to-watch-march-21/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7135799/2026/03/21/timberwolves-coach-chris-finch-j
 **Bryce Rainer, Cris Rodriguez and more Tigers prospect takeaways**\
 `A look at Bryce Rainer's return to the field, Michael Oliveto's many talents and more.`\
 https://nytimes.com/athletic/7135545/2026/03/21/bryce-rainer-cris-rodriguez-tigers-prospect-takeaways/
-
-**Spring, Is That You?**\
-`Rhubarb upside-down cake and strawberry-cardamom jam bars bring the brightness.`\
-https://nytimes.com/2026/03/21/dining/spring-is-that-you.html
 
