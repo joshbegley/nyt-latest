@@ -1,3 +1,7 @@
+**Trump’s Recklessness Will ‘Haunt Us for a Generation’**\
+`Three Opinion writers on Iran, the SAVE America Act and the president’s folly.`\
+https://nytimes.com/video/opinion/100000010789642/trumps-recklessness-will-haunt-us-for-a-generation.html
+
 **There was extra security as BTS fans arrived at the concert site.**\
 `By Max Kim`\
 https://nytimes.com/live/2026/03/21/world/bts-netflix-concert-arirang/there-was-extra-security-as-bts-fans-arrived-at-the-concert-site
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7135716/2026/03/21/ncaa-tournament-power-rankings-s
 **The Lady Vols lost their edge. The question is, does Tennessee believe they can get it back?**\
 `With hefty contract clauses, including a $4 million buyout, Tennessee had to believe Kim Caldwell was the answer. Or did it? `\
 https://nytimes.com/athletic/7135803/2026/03/21/tennessees-loss-ncaa-tournament-edge/
-
-**Ferrari is surging back. That can only be a good thing for the championship**\
-`Next weekend's Japanese Grand Prix will be the ultimate test in how much Ferrari can challenge Mercedes this season. `\
-https://nytimes.com/athletic/7130719/2026/03/21/ferrari-f1-2026-mercedes-battle/
 
