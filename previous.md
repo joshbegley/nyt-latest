@@ -1,7 +1,3 @@
-**Iowa avoids meltdown in stifling Carver-Hawkeye Arena for NCAA Tournament first-round win**\
-`Temperatures rose into the 80s inside the Hawkeyes' home arena as they escaped a historic upset bid.`\
-https://nytimes.com/athletic/7137168/2026/03/21/iowa-fdu-womens-march-madness-results-takeaways/
-
 **Iranian missile strikes Israeli city near main nuclear research facility.**\
 `By Pranav Baskar`\
 https://nytimes.com/live/2026/03/21/world/iran-war-oil-trump/iranian-missile-strikes-israeli-city-near-main-nuclear-research-facility
@@ -37,4 +33,8 @@ https://nytimes.com/2026/03/21/crosswords/daily-puzzle-2026-03-22.html
 **What Was the Mueller Investigation? And What Did It Find?**\
 `The appointment of Robert S. Mueller III as special counsel to conduct an investigation related to a sitting president roiled Washington around the start of President Trump’s first term.`\
 https://nytimes.com/2026/03/21/us/politics/robert-mueller-trump-russia-fbi-investigation.html
+
+**Oilers' Leon Draisaitl in Germany receiving treatment for lower-body injury: Reports**\
+`Draisaitl will be treated by a doctor who has worked with Auston Matthews, Cristiano Ronaldo, Usain Bolt and others.`\
+https://nytimes.com/athletic/7136860/2026/03/21/oilers-leon-draisaitl-germany-injury/
 
