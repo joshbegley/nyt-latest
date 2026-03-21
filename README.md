@@ -1,3 +1,7 @@
+**Oilers’ Leon Draisaitl in Germany receiving treatment for lower-body injury: Reports**\
+`The forward spoke about his injury timeline during a Sky Sports broadcast for German soccer club Bayern Munich's game on Saturday.`\
+https://nytimes.com/athletic/7136860/2026/03/21/oilers-leon-draisaitl-germany-injury/
+
 **‘We’re Finally Here’: BTS Returns With Sold-Out Concert and New Album**\
 `The K-pop supergroup BTS performed their first concert in over three years in Seoul on Saturday following the release of their new album, “Arirang,” on Friday. Thousands of fans came out to hear one of the biggest names in K-pop.`\
 https://nytimes.com/video/world/asia/100000010794212/were-finally-here-bts-returns-with-sold-out-concert-and-new-album.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7136826/2026/03/21/josh-kerr-cole-hocker-world-indo
 **Man United's Jim Ratcliffe taking legal action against Ben Ainsley over '£180m boat'**\
 `Ratcliffe's company, INEOS, has said it is taking legal action against Ainsley's Athena Racing to force them to return the boat`\
 https://nytimes.com/athletic/7136671/2026/03/21/man-united-jim-ratcliffe-boat-americas-cup-ainsley/
-
-**Ehammer breaks the heptathlon world record in world indoor final**\
-`Ehammer’s total of 6670 points in Torun, Poland, was clinched with a 2:41.04s personal best over 1,000m in the final event.`\
-https://nytimes.com/athletic/7136690/2026/03/21/simon-ehammer-world-record-indoor-championship-heptathlon/
 
