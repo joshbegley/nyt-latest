@@ -1,3 +1,7 @@
+**The Briefing: Brighton 2 Liverpool 1 - Champions League hangover? Defensive errors? Ekitike injury?**\
+`Liverpool lost 2-1 to Brighton on Saturday afternoon — The Athletic's Gregg Evans breaks down the game`\
+https://nytimes.com/athletic/7126415/2026/03/21/brighton-liverpool-score-result-report-analysis/
+
 **Kerr, Bright expected to leave Chelsea as uncertainty grows at WSL giants**\
 `The pair are among six first-team players with contracts expiring this summer, with Guro Reiten and Catarina Macario having already left`\
 https://nytimes.com/athletic/7134507/2026/03/21/sam-kerr-millie-bright-chelsea-transfers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7136145/2026/03/21/manchester-united-bournemouth-pe
 **How to watch Syracuse vs. Iowa State women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Syracuse Orange play the Iowa State Cyclones, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136197/2026/03/21/syracuse-vs-iowa-state-stream-how-to-watch-march-21/
-
-**How to watch Fairleigh Dickinson vs. Iowa women's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Fairleigh Dickinson Knights play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136191/2026/03/21/fairleigh-dickinson-vs-iowa-stream-how-to-watch-march-21/
 

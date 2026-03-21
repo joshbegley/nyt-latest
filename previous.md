@@ -1,3 +1,7 @@
+**Kerr, Bright expected to leave Chelsea as uncertainty grows at WSL giants**\
+`The pair are among six first-team players with contracts expiring this summer, with Guro Reiten and Catarina Macario having already left`\
+https://nytimes.com/athletic/7134507/2026/03/21/sam-kerr-millie-bright-chelsea-transfers/
+
 **What we’re hearing about the Cubs: Moisés Ballesteros makes Opening Day roster**\
 `Daniel Palencia is coming down from his WBC high, Justin Steele's status remains uncertain and Ben Brown wants a reset.`\
 https://nytimes.com/athletic/7135821/2026/03/21/cubs-moises-ballesteros-opening-day-roster/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7136197/2026/03/21/syracuse-vs-iowa-state-stream-ho
 **How to watch Fairleigh Dickinson vs. Iowa women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Fairleigh Dickinson Knights play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136191/2026/03/21/fairleigh-dickinson-vs-iowa-stream-how-to-watch-march-21/
-
-**How to watch Miami (OH) vs. West Virginia women's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Miami (OH) RedHawks play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136189/2026/03/21/miami-oh-vs-west-virginia-stream-how-to-watch-march-21/
 

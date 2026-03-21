@@ -1,3 +1,7 @@
+**Kerr, Bright expected to leave Chelsea as uncertainty grows at WSL giants**\
+`The pair are among six first-team players with contracts expiring this summer, with Guro Reiten and Catarina Macario having already left`\
+https://nytimes.com/athletic/7134507/2026/03/21/sam-kerr-millie-bright-chelsea-transfers/
+
 **What we’re hearing about the Cubs: Moisés Ballesteros makes Opening Day roster**\
 `Daniel Palencia is coming down from his WBC high, Justin Steele's status remains uncertain and Ben Brown wants a reset.`\
 https://nytimes.com/athletic/7135821/2026/03/21/cubs-moises-ballesteros-opening-day-roster/
