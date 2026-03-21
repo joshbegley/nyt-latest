@@ -1,3 +1,7 @@
+**Trump Signals Retreat From Goal of Regime Change in Iran**\
+`In the first days of the U.S.-Israeli campaign against Iran, Mr. Trump pressed for a popular uprising against Tehran’s government.`\
+https://nytimes.com/2026/03/20/world/middleeast/trump-winding-down-iran-war.html
+
 **WNBA salaries set to top $1M: How new CBA transforms player pay**\
 `Salaries will spike to record highs in the new WNBA CBA with an average salary of $583,000 for the 2026 season.`\
 https://nytimes.com/athletic/7135440/2026/03/20/wnba-cba-players-salary-increase-revenue-share/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7135301/2026/03/20/astros-brice-matthews-cam-smith-
 **A Look at the Escalating Battle for the Strait of Hormuz**\
 `There are several ways the United States could attempt to reopen the waterway, all of which carry substantial risks.`\
 https://nytimes.com/2026/03/20/us/politics/battle-for-strait-of-hormuz.html
-
-**‘The Bachelorette’ Took a Risk on Taylor Frankie Paul. It Backfired.**\
-`Ms. Paul’s built-in fan base and viral interpersonal drama presented an opportunity for the long-running reality TV show, until video of a past assault derailed the season.`\
-https://nytimes.com/2026/03/20/arts/television/bachelorette-taylor-frankie-paul-momtok.html
 
