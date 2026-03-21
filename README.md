@@ -1,3 +1,7 @@
+**Striking Down Pentagon Press Limits, Judge Vindicates Independent Journalism**\
+`The ruling cut deeper than left-versus-right politics, declaring that the policy imposed by Defense Secretary Pete Hegseth is unconstitutional.`\
+https://nytimes.com/2026/03/20/us/federal-judge-constitution-press-freedom.html
+
 **U.S. flag football's exhibition vs. NFL players carries big Olympic implications**\
 `Is the U.S. flag football team really better than NFL players at flag? Saturday will give us our first clues toward finding out.`\
 https://nytimes.com/athletic/7135479/2026/03/20/flag-football-nfl-olympics-fanatics-tom-brady-exhibition/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/20/world/middleeast/us-sanctions-iran-oil.html
 **Kevin Willard 'jokes' about firing staff after Villanova's defensive struggles in NCAA loss**\
 `Willard was frustrated about his team's inability to guard Utah State's baseline out-of-bounds plays. `\
 https://nytimes.com/athletic/7135377/2026/03/20/kevin-willard-fire-coaches-villanova-utah-state/
-
-**700 Dogs and Cats Are Rescued in Animal Cruelty Raid in Los Angeles County**\
-`Animal control officers responded to a pet-adoption facility in Lake Hughes, Calif., after receiving complaints about neglect and overcrowding. No charges have been filed.`\
-https://nytimes.com/2026/03/20/us/700-dogs-cats-rescued-los-angeles-county.html
 
