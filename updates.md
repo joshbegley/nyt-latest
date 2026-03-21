@@ -1,3 +1,11 @@
+**​At Least 10 Killed in South Korean Factory Fire**\
+`Survivors jumped from windows to escape the blaze, the deadliest at a factory in South Korea in two years. Four people are still missing.`\
+https://nytimes.com/2026/03/20/world/asia/south-korea-factory-fire-deaths.html
+
+**Do Blackhawks have an André Burakovsky problem? Or do they not have any better options?**\
+`Blackhawks head coach Jeff Blashill's commitment to Burakovsky on the top line has become a sticking point for a frustrated fan base.`\
+https://nytimes.com/athletic/7135682/2026/03/20/blackhawks-andre-burakovsky-avalanche-nhl/
+
 **UCLA's Skyy Clark takes late-night trip to dentist after chipping tooth vs. UCF**\
 `'I had planned to get some dental work anyway,' Clark said. 'So it's all good.'`\
 https://nytimes.com/athletic/7135606/2026/03/20/ucla-skyy-clark-chipped-tooth-ucf/

@@ -1,3 +1,11 @@
+**​At Least 10 Killed in South Korean Factory Fire**\
+`Survivors jumped from windows to escape the blaze, the deadliest at a factory in South Korea in two years. Four people are still missing.`\
+https://nytimes.com/2026/03/20/world/asia/south-korea-factory-fire-deaths.html
+
+**Do Blackhawks have an André Burakovsky problem? Or do they not have any better options?**\
+`Blackhawks head coach Jeff Blashill's commitment to Burakovsky on the top line has become a sticking point for a frustrated fan base.`\
+https://nytimes.com/athletic/7135682/2026/03/20/blackhawks-andre-burakovsky-avalanche-nhl/
+
 **UCLA's Skyy Clark takes late-night trip to dentist after chipping tooth vs. UCF**\
 `'I had planned to get some dental work anyway,' Clark said. 'So it's all good.'`\
 https://nytimes.com/athletic/7135606/2026/03/20/ucla-skyy-clark-chipped-tooth-ucf/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7135543/2026/03/20/smith-njigba-witherspoon-seahawk
 **‘Gadzooks!’**\
 `Boaz Moser presents a lofty, themeless challenge.`\
 https://nytimes.com/2026/03/20/crosswords/daily-puzzle-2026-03-21.html
-
-**Nicholas Brendon, a Star in ‘Buffy the Vampire Slayer,’ Is Dead**\
-`He played the part of Xander Harris, one of Buffy’s closest friends, on the hit television show.`\
-https://nytimes.com/2026/03/20/arts/television/nicholas-brendon-dead.html
-
-**Striking Down Pentagon Press Limits, Judge Vindicates Independent Journalism**\
-`The ruling cut deeper than left-versus-right politics, declaring that the policy imposed by Defense Secretary Pete Hegseth is unconstitutional.`\
-https://nytimes.com/2026/03/20/us/federal-judge-constitution-press-freedom.html
 
