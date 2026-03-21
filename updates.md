@@ -1,3 +1,15 @@
+**Iranian missile strikes Israeli city near main nuclear research facility.**\
+`By Pranav Baskar`\
+https://nytimes.com/live/2026/03/21/world/iran-war-oil-trump/iranian-missile-strikes-israeli-city-near-main-nuclear-research-facility
+
+**Mets shift Sean Manaea to the bullpen: 3 thoughts behind the decision**\
+`Kodai Senga's sizzling spring and Christian Scott's steady progress helped shape the Mets' long-term view of the rotation. `\
+https://nytimes.com/athletic/7137015/2026/03/21/mets-sean-manaea-bullpen-analysis/
+
+**Panthers' A.J. Greer to have phone hearing for boarding**\
+`Players can be suspended for as many as five games after a phone hearing, per the terms of the CBA.`\
+https://nytimes.com/athletic/7137068/2026/03/21/panthers-aj-greer-hearing-suspension-connor-zary/
+
 **Gabriel says Arsenal are 'ready' for a 'big battle' in Carabao Cup final vs. Man City**\
 `The 28-year-old has the opportunity to win the first trophy of his Arsenal career on Sunday, where he will once again face Erling Haaland.`\
 https://nytimes.com/athletic/7132548/2026/03/21/arsenal-gabriel-manchester-city-carabao-cup/
