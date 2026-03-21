@@ -1,3 +1,7 @@
+**Trump Signals Retreat From Goal of Regime Change in Iran**\
+`In the first days of the U.S.-Israeli campaign against Iran, Mr. Trump pressed for a popular uprising against Tehran’s government.`\
+https://nytimes.com/2026/03/20/world/middleeast/trump-winding-down-iran-war.html
+
 **WNBA salaries set to top $1M: How new CBA transforms player pay**\
 `Salaries will spike to record highs in the new WNBA CBA with an average salary of $583,000 for the 2026 season.`\
 https://nytimes.com/athletic/7135440/2026/03/20/wnba-cba-players-salary-increase-revenue-share/
