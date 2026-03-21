@@ -1,3 +1,7 @@
+**Olympic women's hockey MVP Caroline Harvey wins 2026 Patty Kazmaier Award**\
+`Harvey, who won Olympic gold with Team USA last month, has been named the top women's college hockey player in the NCAA.`\
+https://nytimes.com/athletic/7135471/2026/03/21/caroline-harvey-patty-kazmaier-award-2026/
+
 **Iranian Missiles Strike Far-Off Target, but U.S. Remains Out of Range**\
 `Iran’s attempted attack on a military base 2,500 miles away raises questions of the reach of its arsenal.`\
 https://nytimes.com/2026/03/21/us/politics/iran-missiles-military-base.html
