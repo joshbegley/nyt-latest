@@ -1,3 +1,19 @@
+**How to watch Cal Baptist vs. UCLA women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Cal Baptist Lancers play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136815/2026/03/21/cal-baptist-vs-ucla-stream-how-to-watch-march-21/
+
+**Trump Is Finally Eyeing an Exit From Iran. But Will He Take It?**\
+`President Trump says he is considering “winding down” operations in Iran. But many of his original war goals remain unaccomplished.`\
+https://nytimes.com/2026/03/21/us/politics/trump-iran-offramp.html
+
+**The Briefing: Everton 3 Chelsea 0: Defensive disaster, Lavia conundrum, pressure mounts on Rosenior**\
+`Chelsea lost 3-0 to Everton in a huge blow to their Champions League hopes. Here, Simon Johnson breaks down the key moments.`\
+https://nytimes.com/athletic/7128039/2026/03/21/everton-3-chelsea-0-premier-league-result-rosenior/
+
+**With Fire and Song, Kurds in Turkey Hail the Start of Spring**\
+`The Newroz holiday comes at a critical time, as Kurds in Turkey push for peace while their brethren in Syria and Iran fear further conflict.`\
+https://nytimes.com/2026/03/21/world/middleeast/kurds-turkey-newroz-iran.html
+
 **How to watch Lightning vs. Oilers: Time, TV, streaming**\
 `Find out how to watch the Tampa Bay Lightning play the Edmonton Oilers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136775/2026/03/21/lightning-vs-oilers-stream-how-to-watch-march-21/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/21/us/politics/trump-ice-agents-airports.html
 **Charges Dropped Against Woman Mistaken for Protester in Minnesota Church Case**\
 `Federal prosecutors dismissed charges against one of 39 defendants they charged for disrupting a worship service in January to protest the immigration crackdown.`\
 https://nytimes.com/2026/03/21/us/charges-dropped-against-woman-mistaken-for-protester-in-minnesota-church-case.html
-
-**Anton Frondell expected to join Blackhawks after SHL season ends**\
-`Anton Frondell became just the fourth 18-year-old to score 20 goals in the SHL and the first since Daniel Sedin did it in the 1998-99 season`\
-https://nytimes.com/athletic/7136570/2026/03/21/anton-frondell-blackhawks-season/
-
-**Patriarch Filaret, Orthodox Christian Leader Who Defied Russia, Dies at 97**\
-`Filaret led a movement in Ukraine that created a schism among Orthodox believers and, ultimately, a church independent of Moscow.`\
-https://nytimes.com/2026/03/21/world/europe/patriarch-filaret-dead.html
-
-**How to watch Vanderbilt vs. Nebraska men's basketball: Second Round Time, TV, streaming**\
-`Find out how to watch the Vanderbilt Commodores play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136659/2026/03/21/vanderbilt-vs-nebraska-stream-how-to-watch-march-21/
-
-**An Aural Companion for Decades, CBS News Radio Crackles to a Close**\
-`A stalwart of the mass media century, the longstanding network that launched the careers of journalists like Edward R. Murrow will air its final broadcast in May.`\
-https://nytimes.com/2026/03/21/business/media/cbs-news-radio-appraisal.html
 
