@@ -1,3 +1,7 @@
+**Women's NCAA Tournament first round takeaways: Will Zoe Brooks play for NC State?**\
+`How will NC State do if it can't bring back Brooks for the second round? `\
+https://nytimes.com/athletic/7136847/2026/03/21/womens-ncaa-tournament-takeaways-brooks-nc-state/
+
 **Footage of Justin Timberlake’s Drunk-Driving Arrest Is Released**\
 `A glassy-eyed and slurring Mr. Timberlake alternates between disbelief, annoyance and occasional humor during his 2024 arrest in Sag Harbor, N.Y.`\
 https://nytimes.com/2026/03/21/nyregion/justin-timberlake-dwi-drunk-driving-arrest-video.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7136775/2026/03/21/lightning-vs-oilers-stream-how-t
 **Kendra Duggar, Wife of ‘19 Kids’ Star, Faces Child Endangerment Charges**\
 `Ms. Duggar was arrested two days after Joseph Duggar, a onetime star of the reality TV series “19 Kids and Counting,” was arrested in a sex abuse case. She appeared in the “Counting On” spinoff.`\
 https://nytimes.com/2026/03/21/us/kendra-joseph-dugger-misdemeanor-arrest.html
-
-**How to watch Bucks vs. Suns: Time, TV, streaming**\
-`Find out how to watch the Milwaukee Bucks play the Phoenix Suns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136744/2026/03/21/bucks-vs-suns-stream-how-to-watch-march-21/
 
