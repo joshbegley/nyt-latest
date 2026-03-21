@@ -1,3 +1,7 @@
+**Rangers sign prospect Drew Fortescue to entry-level contract**\
+`The defenseman, a third-round draft pick in 2023, was playing for Boston College, whose season ended Friday.`\
+https://nytimes.com/athletic/7137059/2026/03/21/rangers-drew-fortescue-sign-contract-prospect/
+
 **Video of Justin Timberlake’s Traffic Stop in 2024 Released**\
 `Body-camera footage of Justin Timberlake’s traffic stop was released on Friday. The singer pleaded guilty to a low-level charge of driving while impaired in Sag Harbor, N.Y.`\
 https://nytimes.com/video/nyregion/100000010794214/video-of-justin-timberlakes-traffic-stop-in-2024-released.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7136864/2026/03/21/minnesota-twins-joe-ryan-final-t
 **Trump’s Contested Campus Antisemitism Fight Is Accelerating Again**\
 `While some Jewish students and faculty members have applauded the Trump administration’s renewed push against antisemitism, others believe the government has different motives.`\
 https://nytimes.com/2026/03/21/us/trump-campus-antisemitism-fight-universities.html
-
-**Arsenal's Kepa set to start Carabao Cup final vs Man City**\
-`Kepa has started every one of Arsenal's domestic cup matches so far this season.`\
-https://nytimes.com/athletic/7136922/2026/03/21/kepa-carabao-cup-final-arsenal-man-city/
 
