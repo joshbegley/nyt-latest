@@ -1,3 +1,7 @@
+**Carlos Alcaraz stops João Fonseca's Miami party, but Brazilian sensation is in for the long haul**\
+`Alcaraz and Jannik Sinner have shown Fonseca that there are levels to this sport the past 10 days. The Brazilian is ready to climb.`\
+https://nytimes.com/athletic/7135577/2026/03/20/tennis-alcaraz-fonseca-miami-open/
+
 **Pistons' rise continues as they become first East team to clinch playoffs**\
 `Two seasons ago, the Pistons were the worst team in the NBA and lost 28 straight games. They're now at the top of the Eastern Conference.`\
 https://nytimes.com/athletic/7135570/2026/03/20/pistons-clinch-playoff-spot-eastern-conference-nba/
