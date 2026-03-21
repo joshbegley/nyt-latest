@@ -1,3 +1,15 @@
+**Panthers' A.J. Greer to have phone hearing for boarding**\
+`Due to the hearing being conducted by phone on Sunday, Greer faces a maximum suspension of five games, per the terms of the CBA.`\
+https://nytimes.com/athletic/7137068/2026/03/21/panthers-aj-greer-hearing-suspension-connor-zary/
+
+**Leeds 0 Brentford 0 - Where does it leave the relegation battle? Did Farke make his changes too late?**\
+`Analysis of Leeds United's draw with Brentford`\
+https://nytimes.com/athletic/7128040/2026/03/21/leeds-0-brentford-0-highlights/
+
+**Sound It Out**\
+`Alex Eaton-Salners presents a conversational Sunday puzzle.`\
+https://nytimes.com/2026/03/21/crosswords/daily-puzzle-2026-03-22.html
+
 **What Was the Mueller Investigation? And What Did It Find?**\
 `The appointment of Robert S. Mueller III as special counsel to conduct an investigation related to a sitting president roiled Washington around the start of President Trump’s first term.`\
 https://nytimes.com/2026/03/21/us/politics/robert-mueller-trump-russia-fbi-investigation.html

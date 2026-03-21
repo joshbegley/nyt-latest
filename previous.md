@@ -1,3 +1,15 @@
+**Panthers' A.J. Greer to have phone hearing for boarding**\
+`Due to the hearing being conducted by phone on Sunday, Greer faces a maximum suspension of five games, per the terms of the CBA.`\
+https://nytimes.com/athletic/7137068/2026/03/21/panthers-aj-greer-hearing-suspension-connor-zary/
+
+**Leeds 0 Brentford 0 - Where does it leave the relegation battle? Did Farke make his changes too late?**\
+`Analysis of Leeds United's draw with Brentford`\
+https://nytimes.com/athletic/7128040/2026/03/21/leeds-0-brentford-0-highlights/
+
+**Sound It Out**\
+`Alex Eaton-Salners presents a conversational Sunday puzzle.`\
+https://nytimes.com/2026/03/21/crosswords/daily-puzzle-2026-03-22.html
+
 **What Was the Mueller Investigation? And What Did It Find?**\
 `The appointment of Robert S. Mueller III as special counsel to conduct an investigation related to a sitting president roiled Washington around the start of President Trump’s first term.`\
 https://nytimes.com/2026/03/21/us/politics/robert-mueller-trump-russia-fbi-investigation.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7136922/2026/03/21/kepa-carabao-cup-final-arsenal-m
 **How Gotham’s 2025 championship ring reflects past glory and future ambition**\
 `The celebratory rings, like their 2023 model, were designed by The Champions Collective to symbolize the team's on the pitch success`\
 https://nytimes.com/athletic/7132747/2026/03/21/gotham-championship-ring/
-
-**G.O.P. Bid to Target Transgender Athletes Falls Flat in the Senate**\
-`In moving to bar transgender women and girls from women’s and girls’ sports, Republicans sought to put Democrats in an awkward political spot on a sensitive issue ahead of the midterm elections.`\
-https://nytimes.com/2026/03/21/us/politics/gop-transgender-athletes-senate.html
-
-**Hubert Davis' future in doubt at UNC after first-round collapse: Sources**\
-`One major consideration in what UNC does next, sources said, is apprehension by donors about the level of support should Davis be retained.`\
-https://nytimes.com/athletic/7136859/2026/03/21/unc-basketball-coach-hubert-davis-status-news/
-
-**Josh Kerr beats Cole Hocker in sprint finish to regain 3,000m world indoor title**\
-`Kerr's winning time of 7:35.56s was 0.14s quicker than American Cole Hocker.`\
-https://nytimes.com/athletic/7136826/2026/03/21/josh-kerr-cole-hocker-world-indoor-race/
 
