@@ -1,3 +1,11 @@
+**How to watch Kraken vs. Blue Jackets: Time, TV, streaming**\
+`Find out how to watch the Seattle Kraken play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136160/2026/03/21/kraken-vs-blue-jackets-stream-how-to-watch-march-21/
+
+**How to watch Stars vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Dallas Stars play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136158/2026/03/21/stars-vs-wild-stream-how-to-watch-march-21/
+
 **How to watch Flyers vs. Sharks: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Flyers play the San Jose Sharks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136154/2026/03/21/flyers-vs-sharks-stream-how-to-watch-march-21/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/21/world/middleeast/middle-east-war-hamas-iran-qatar
 **Iranian Man Arrested After Trying to Enter U.K. Naval Base, Police Say**\
 `The man and a Romanian woman walked up to the gate of the base in Scotland, where nuclear-armed submarines are docked, and asked to be let in, an official said.`\
 https://nytimes.com/2026/03/21/world/europe/iran-scotland-naval-base-clyde.html
-
-**The director of the Netflix livestream is a veteran of the Oscars and the Super Bowl.**\
-`Hamish Hamilton, a multiple-time Emmy and BAFTA winner, is directing the Netflix broadcast of BTS’s comeback concert on Saturday.`\
-https://nytimes.com/live/2026/03/21/world/bts-netflix-concert-arirang/bts-hamish-hamilton-director
-
-**Team Venezuela hero Eugenio Suárez ready to chase World Series title with Reds**\
-`After a gallant World Baseball Classic showing, the Reds hope Suárez's "clutch gene" will pay dividends in October. `\
-https://nytimes.com/athletic/7135614/2026/03/21/wbc-venezuela-hero-eugenio-suarez-reds-2026/
 
