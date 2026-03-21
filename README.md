@@ -1,3 +1,7 @@
+**K-Pop’s BTS Returns to the Stage**\
+`The group’s first concert in nearly four years — held in the historic center of Seoul — was heavy on songs from its new album. They also played a few old hits.`\
+https://nytimes.com/2026/03/21/world/asia/bts-concert-photos-seoul.html
+
 **How to watch TCU vs. Duke men's basketball: Second Round Time, TV, streaming**\
 `Find out how to watch the TCU Horned Frogs play the Duke Blue Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136205/2026/03/21/tcu-vs-duke-stream-how-to-watch-march-21/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7136154/2026/03/21/flyers-vs-sharks-stream-how-to-w
 **How to watch Sabres vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Buffalo Sabres play the Los Angeles Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136152/2026/03/21/sabres-vs-kings-stream-how-to-watch-march-21/
-
-**Heavy storms in Beirut cap a morning of ongoing Israeli strikes.**\
-`By Abdi Latif Dahir`\
-https://nytimes.com/live/2026/03/21/world/iran-war-oil-trump/heavy-storms-in-beirut-cap-a-morning-of-ongoing-israeli-strikes
 
