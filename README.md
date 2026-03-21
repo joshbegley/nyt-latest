@@ -19,7 +19,7 @@ https://nytimes.com/athletic/7137059/2026/03/21/rangers-drew-fortescue-sign-cont
 https://nytimes.com/video/nyregion/100000010794214/video-of-justin-timberlakes-traffic-stop-in-2024-released.html
 
 **Panthers' A.J. Greer to have phone hearing for boarding**\
-`Due to the hearing being conducted by phone on Sunday, Greer faces a maximum suspension of five games, per the terms of the CBA.`\
+`Players can be suspended for as many as five games after a phone hearing, per the terms of the CBA.`\
 https://nytimes.com/athletic/7137068/2026/03/21/panthers-aj-greer-hearing-suspension-connor-zary/
 
 **Leeds 0 Brentford 0 - Where does it leave the relegation battle? Did Farke make his changes too late?**\
