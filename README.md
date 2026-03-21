@@ -1,3 +1,7 @@
+**Footage of Justin Timberlake’s Drunk-Driving Arrest Is Released**\
+`A glassy-eyed and slurring Mr. Timberlake alternates between disbelief, annoyance and occasional humor during his 2024 arrest in Sag Harbor, N.Y.`\
+https://nytimes.com/2026/03/21/nyregion/justin-timberlake-dwi-drunk-driving-arrest-video.html
+
 **How Corey Lewandowski Wielded Power Inside D.H.S.**\
 `While he was supposed to serve in a limited role as an adviser to Kristi Noem, Mr. Lewandowski had wide influence over contracts, personnel and operations inside the agency over the last year.`\
 https://nytimes.com/2026/03/21/us/politics/corey-lewandowski-noem-dhs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/21/us/kendra-joseph-dugger-misdemeanor-arrest.html
 **How to watch Bucks vs. Suns: Time, TV, streaming**\
 `Find out how to watch the Milwaukee Bucks play the Phoenix Suns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136744/2026/03/21/bucks-vs-suns-stream-how-to-watch-march-21/
-
-**How to watch 76ers vs. Jazz: Time, TV, streaming**\
-`Find out how to watch the Philadelphia 76ers play the Utah Jazz, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136732/2026/03/21/76ers-vs-jazz-stream-how-to-watch-march-21/
 
