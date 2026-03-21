@@ -1,3 +1,19 @@
+**Former F.B.I. Director Robert Mueller Dies at 81**\
+`Robert Mueller, who led the Federal Bureau of Investigation for 12 tumultuous years, brought politically explosive indictments as a special counsel examining Russia’s attack on the 2016 presidential election.`\
+https://nytimes.com/video/us/100000010794275/robert-mueller-obituary-fbi.html
+
+**Here’s What Happened in the War in the Middle East on Saturday**\
+`An Iranian missile wounded dozens in Dimona, a city believed to house Israel’s nuclear weapons program, as Iran showed no signs of backing down.`\
+https://nytimes.com/2026/03/21/world/middleeast/middle-east-war-recap.html
+
+**Four players ejected after Wizards-Thunder fight spills into stands**\
+`After an initial fracas between Thunder forward Jaylin Williams and Wizards guard Justin Champagnie, several other players joined the scrum.`\
+https://nytimes.com/athletic/7137186/2026/03/21/four-players-ejected-after-wizards-thunder-fight-spills-into-stands/
+
+**LeBron James becomes NBA's career leader in games played, passing Robert Parish**\
+`The Los Angeles Lakers star, already the NBA’s career leader in points and minutes, is now the league’s career leader in games played.`\
+https://nytimes.com/athletic/7136679/2026/03/21/lebron-james-nba-most-games-played-record/
+
 **Iowa avoids meltdown in stifling Carver-Hawkeye Arena for NCAA Tournament first-round win**\
 `Temperatures rose into the 80s inside the Hawkeyes' home arena as they escaped a historic upset bid.`\
 https://nytimes.com/athletic/7137168/2026/03/21/iowa-fdu-womens-march-madness-results-takeaways/
