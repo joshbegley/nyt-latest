@@ -1,3 +1,15 @@
+**How to watch Grizzlies vs. Hornets: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the Charlotte Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136265/2026/03/21/grizzlies-vs-hornets-stream-how-to-watch-march-21/
+
+**How to watch Lakers vs. Magic: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the Orlando Magic, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136263/2026/03/21/lakers-vs-magic-stream-how-to-watch-march-21/
+
+**How to watch Cavaliers vs. Pelicans: Time, TV, streaming**\
+`Find out how to watch the Cleveland Cavaliers play the New Orleans Pelicans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136261/2026/03/21/cavaliers-vs-pelicans-stream-how-to-watch-march-21/
+
 **A Striking One-Pot Chicken and Rice for Your Saturday**\
 `Chicken and saffron rice with pomegranate salsa, to be exact.`\
 https://nytimes.com/2026/03/21/dining/a-striking-one-pot-chicken-and-rice-for-your-saturday.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7135545/2026/03/21/bryce-rainer-cris-rodriguez-tige
 **Spring, Is That You?**\
 `Rhubarb upside-down cake and strawberry-cardamom jam bars bring the brightness.`\
 https://nytimes.com/2026/03/21/dining/spring-is-that-you.html
-
-**K-Pop’s BTS Returns to the Stage**\
-`The group’s first concert in nearly four years — held in the historic center of Seoul — was heavy on songs from its new album. They also played a few old hits.`\
-https://nytimes.com/2026/03/21/world/asia/bts-concert-photos-seoul.html
-
-**How to watch TCU vs. Duke men's basketball: Second Round Time, TV, streaming**\
-`Find out how to watch the TCU Horned Frogs play the Duke Blue Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136205/2026/03/21/tcu-vs-duke-stream-how-to-watch-march-21/
-
-**Man Utd to file PGMOL complaint over penalty decision vs. Bournemouth**\
-`United believed they should have been awarded a spot kick when Amad appeared to be brought down by Bournemouth defender Adrien Truffert`\
-https://nytimes.com/athletic/7136145/2026/03/21/manchester-united-bournemouth-penalty-decision-pgmol/
 
