@@ -1,3 +1,7 @@
+**Patriarch Filaret, Orthodox Christian Leader Who Defied Russia, Dies at 97**\
+`Filaret led a movement in Ukraine that created a schism among Orthodox believers and, ultimately, a church independent of Moscow.`\
+https://nytimes.com/2026/03/21/world/europe/patriarch-filaret-dead.html
+
 **How to watch Vanderbilt vs. Nebraska men's basketball: Second Round Time, TV, streaming**\
 `Find out how to watch the Vanderbilt Commodores play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136659/2026/03/21/vanderbilt-vs-nebraska-stream-how-to-watch-march-21/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7136232/2026/03/21/red-sox-marcelo-mayer-second-bas
 **South Carolina, baseball coach Paul Mainieri part ways 23 games into his second season**\
 `South Carolina went 6-24 in the SEC in 2025 and was off to an 0-4 start in 2026. `\
 https://nytimes.com/athletic/7136531/2026/03/21/paul-mainieri-south-carolina-baseball-out/
-
-**In Trump’s Administration, Military Housing Is Becoming a Hot Commodity**\
-`Until President Trump took office for the second time, it was rare for civilian government officials to live on military bases or installations.`\
-https://nytimes.com/2026/03/21/us/politics/trump-aides-military-housing.html
 
