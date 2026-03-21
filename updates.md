@@ -1,3 +1,7 @@
+**Trump Says He Will Send ICE Agents to Airports on Monday**\
+`The president issued a threat to deploy ICE agents in an apparent attempt to force Democrats to approve a new budget for the Department of Homeland Security.`\
+https://nytimes.com/2026/03/21/us/politics/trump-ice-agents-airports.html
+
 **Charges Dropped Against Woman Mistaken for Protester in Minnesota Church Case**\
 `Federal prosecutors dismissed charges against one of 39 defendants they charged for disrupting a worship service in January to protest the immigration crackdown.`\
 https://nytimes.com/2026/03/21/us/charges-dropped-against-woman-mistaken-for-protester-in-minnesota-church-case.html

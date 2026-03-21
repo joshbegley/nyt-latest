@@ -1,3 +1,7 @@
+**How to watch 76ers vs. Jazz: Time, TV, streaming**\
+`Find out how to watch the Philadelphia 76ers play the Utah Jazz, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136732/2026/03/21/76ers-vs-jazz-stream-how-to-watch-march-21/
+
 **Trump Says He Will Send ICE Agents to Airports on Monday**\
 `The president issued a threat to deploy ICE agents in an apparent attempt to force Democrats to approve a new budget for the Department of Homeland Security.`\
 https://nytimes.com/2026/03/21/us/politics/trump-ice-agents-airports.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7136627/2026/03/21/colorado-vs-illinois-stream-how-
 **Robert S. Mueller III, 81, Dies; Rebuilt F.B.I. and Led Trump Inquiry**\
 `After he concluded that Russia had interfered in the 2016 election, he became a target of the president’s anger.`\
 https://nytimes.com/2026/03/21/us/politics/robert-s-mueller-dead.html
-
-**Internet Blackout Keeps Iranians From Reaching Loved Ones During New Year Holiday**\
-`The current restrictions on the internet in Iran are coinciding with Nowruz, the observance of the Persian New Year.`\
-https://nytimes.com/2026/03/21/world/middleeast/iran-war-nowruz-internet-blackout.html
 
