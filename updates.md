@@ -1,3 +1,7 @@
+**There was extra security as BTS fans arrived at the concert site.**\
+`By Max Kim`\
+https://nytimes.com/live/2026/03/21/world/bts-netflix-concert-arirang/there-was-extra-security-as-bts-fans-arrived-at-the-concert-site
+
 **Spring Awakening**\
 `Astronomical spring began yesterday, but the actual change of season is more gradual, a halting and nonlinear progression.`\
 https://nytimes.com/2026/03/21/briefing/spring-awakening.html
