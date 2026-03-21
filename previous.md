@@ -1,40 +1,40 @@
-**Here’s the latest.**\
-`By Francesca Regalado, Alan Rappeport, David E. Sanger and Aaron Boxerman`\
-https://nytimes.com/live/2026/03/21/world/iran-war-oil-trump/heres-the-latest
+**Public References to Cesar Chavez Are Being Removed Across the U.S.**\
+`The removals followed a New York Times investigation that revealed Chavez sexually abused women and girls.`\
+https://nytimes.com/2026/03/21/us/cesar-chavez-statues-murals-removed.html
 
-**Iran War Live Updates: Israel Launches Attacks in Lebanon as Iran Fires on U.S. Allies**\
-`The United States temporarily lifted sanctions on some Iranian oil in an effort to ease surging global oil prices.`\
-https://nytimes.com/live/2026/03/21/world/iran-war-oil-trump
+**Fab 5 Freddy Remembers Hip-Hop’s Global Takeover**\
+`As his new memoir demonstrates, he himself would achieve fame as a visual artist, filmmaker, TV host and formative tastemaker.`\
+https://nytimes.com/2026/03/21/books/review/everybodys-fly-fab-5-freddy-fred-brathwaite.html
 
-**How to watch Howard vs. Ohio State women's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Howard Bison play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7135915/2026/03/21/howard-vs-ohio-state-stream-how-to-watch-march-21/
+**Across the West, Record Heat Is Colliding With a Snow Drought**\
+`Snowpack, a crucial water source for the region, was already scarce after a mild winter. Now, intense heat could make matters worse.`\
+https://nytimes.com/interactive/2026/03/21/climate/west-coast-heat-wave-water-shortage.html
 
-**Amid the chaos, there are reasons for Man Utd to be optimistic**\
-`Manchester United were held to a 2-2 draw by Bournemouth on Friday evening — but Michael Carrick is shaping this team`\
-https://nytimes.com/athletic/7127906/2026/03/21/manchester-united-bournemouth-analysis-michael-carrick/
+**You’ve Lost Your Health Insurance. It Shouldn’t Have Been a Surprise.**\
+`You would think you’d get texts, emails, phone calls and letters if your insurer was about to drop you. But you may be wrong.`\
+https://nytimes.com/2026/03/21/your-money/health-insurance/medicare-health-insurance-lost-coverage.html
 
-**Sanders Will Rally for N.Y. Tax Increase. Mamdani Does Not Plan to Join.**\
-`Senator Bernie Sanders of Vermont will headline a rally in the Bronx next weekend meant to increase pressure on Gov. Kathy Hochul to raise taxes on the rich.`\
-https://nytimes.com/2026/03/21/nyregion/bernie-sanders-tax-the-rich-mamdani.html
+**President Trump’s Ballroom Architect, Roasting in the Hot Seat**\
+`Shalom Baranes, who arrived in the U.S. as a Libyan refugee and went on to renovate the Pentagon, is baffling fellow architects for accepting the job. But he said some of his previous projects have drawn outrage too.`\
+https://nytimes.com/2026/03/21/us/politics/trump-ballroom-architect.html
 
-**The ‘Hunger Games,’ Hamptons-Style: Hiring a Private Chef for Summer**\
-`On New York’s eastern shore, the wealthy are already competing to secure a chef for the season.`\
-https://nytimes.com/2026/03/21/nyregion/hamptons-private-chef-summer.html
+**War’s Gravity**\
+`Many countries want nothing to do with the fighting in Iran. They’re being pulled in anyway.`\
+https://nytimes.com/interactive/2026/03/21/world/middleeast/iran-war-gravity.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/03/21/crosswords/spelling-bee-forum.html
+**High Gas Prices, Driven Up by the Iran War, Loom Over the Midterms**\
+`The war has complicated the Republican message on affordability. Democrats see an opportunity to drive their economic message while tying President Trump to an unpopular overseas conflict.`\
+https://nytimes.com/2026/03/21/us/politics/gas-prices-republicans-affordability.html
 
-**Fearing Chaos of Climate Change, Some Seek Answers in Virtual Classroom**\
-`A monthlong seminar offers lessons in how to anticipate and prepare for the mounting disruptions of global warming`\
-https://nytimes.com/2026/03/21/nyregion/fearing-chaos-of-climate-change-some-seek-answers-in-virtual-classroom.html
+**8 Songs We’re Talking About This Week**\
+`St. Vincent teams with a 60-piece orchestra, and Squarepusher replaces one by playing all the parts himself.`\
+https://nytimes.com/2026/03/21/arts/music/st-vincent-death-cab-new-songs.html
 
-**One Year After Trump’s $400 Million Ultimatum, a Different Columbia**\
-`As they sought to respond to charges of antisemitism and harassment on campus, administrators and trustees made promises. Many have been kept, but not all.`\
-https://nytimes.com/2026/03/21/nyregion/one-year-after-trumps-400-million-ultimatum-a-different-columbia.html
+**What to Know About Electric Cars When Gas Prices Are Surging**\
+`War in Iran has disrupted global oil supplies, which is prompting some car shoppers to look for ways to climb off “the gas-price roller coaster.”`\
+https://nytimes.com/2026/03/21/business/energy-environment/gas-prices-electric-vehicles-iran.html
 
-**Chris Wood’s return to fitness could not be more timely for Nottingham Forest**\
-`After 215 days on the side-lines, the Forest striker returned to action on Friday evening in a B-team game against Newcastle at Loughborough`\
-https://nytimes.com/athletic/7135128/2026/03/21/chris-wood-fitness-injury-return-forest/
+**Zelensky Sends Negotiators to the U.S., Hoping to Revive Peace Talks**\
+`The Ukrainian president has said he has a “very bad feeling” about the effects of the Iran conflict on Ukraine’s own war.`\
+https://nytimes.com/2026/03/21/world/europe/ukraine-russia-peace-talks-iran.html
 
