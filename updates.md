@@ -1,3 +1,11 @@
+**What we’re hearing about the Cubs: Moisés Ballesteros makes Opening Day roster**\
+`Daniel Palencia is coming down from his WBC high, Justin Steele's status remains uncertain and Ben Brown wants a reset.`\
+https://nytimes.com/athletic/7135821/2026/03/21/cubs-moises-ballesteros-opening-day-roster/
+
+**Wolves coach Chris Finch offers rare public criticism of Julius Randle in latest loss**\
+`Playing without Anthony Edwards, the Wolves came out flat against the Blazers. "We feel like we gave the game away," Julius Randle said.`\
+https://nytimes.com/athletic/7135799/2026/03/21/timberwolves-coach-chris-finch-julius-randle/
+
 **Bryce Rainer, Cris Rodriguez and more Tigers prospect takeaways**\
 `A look at Bryce Rainer's return to the field, Michael Oliveto's many talents and more.`\
 https://nytimes.com/athletic/7135545/2026/03/21/bryce-rainer-cris-rodriguez-tigers-prospect-takeaways/
