@@ -1,3 +1,7 @@
+**The NCAA Tournament upsets to watch for in the second round**\
+`The first double-digit seed is through to the second round of the men's NCAA Tournament. How far can the High Point Panthers go?`\
+https://nytimes.com/athletic/7132351/2026/03/21/ncaa-tournament-second-round-upsets-most-likely/
+
 **Down two players, shorthanded Portland Thorns shut out Seattle Reign in Cascadia Rivalry**\
 `With only nine players on the pitch, the Thorns managed to score twice in the first half and keep Seattle's offense quiet. `\
 https://nytimes.com/athletic/7135800/2026/03/21/shorthanded-portland-thorns-beat-seattle-reign-despite-two-red-cards/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/21/world/asia/sri-lanka-public-holiday-oil-war.html
 **Corrections: March 21, 2026**\
 `Corrections that appeared in print on Saturday, March 21, 2026.`\
 https://nytimes.com/2026/03/21/pageoneplus/corrections-march-21-2026.html
-
-**Laid Off in Midlife, China’s Reform Generation Braces for Downward Mobility**\
-`The future once seemed boundless for those who grew up during China’s reform era. Now in middle age, they are pinned between economic stagnation and institutional age discrimination.`\
-https://nytimes.com/2026/03/21/business/laid-off-in-midlife-chinas-reform-generation-braces-for-downward-mobility.html
 

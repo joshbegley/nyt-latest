@@ -1,3 +1,7 @@
+**The NCAA Tournament upsets to watch for in the second round**\
+`The first double-digit seed is through to the second round of the men's NCAA Tournament. How far can the High Point Panthers go?`\
+https://nytimes.com/athletic/7132351/2026/03/21/ncaa-tournament-second-round-upsets-most-likely/
+
 **Down two players, shorthanded Portland Thorns shut out Seattle Reign in Cascadia Rivalry**\
 `With only nine players on the pitch, the Thorns managed to score twice in the first half and keep Seattle's offense quiet. `\
 https://nytimes.com/athletic/7135800/2026/03/21/shorthanded-portland-thorns-beat-seattle-reign-despite-two-red-cards/
