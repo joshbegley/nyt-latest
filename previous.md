@@ -1,3 +1,7 @@
+**Man Utd might have had another chaotic draw, but there are reasons for calm and optimism**\
+`Manchester United were held to a 2-2 draw by Bournemouth on Friday evening — but there are positives to be taken`\
+https://nytimes.com/athletic/7127906/2026/03/21/manchester-united-bournemouth-analysis-michael-carrick/
+
 **Sanders Will Rally for N.Y. Tax Increase. Mamdani Does Not Plan to Join.**\
 `Senator Bernie Sanders of Vermont will headline a rally in the Bronx next weekend meant to increase pressure on Gov. Kathy Hochul to raise taxes on the rich.`\
 https://nytimes.com/2026/03/21/nyregion/bernie-sanders-tax-the-rich-mamdani.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7125014/2026/03/21/west-ham-2007-great-escape/
 **Former Nigeria captain William Troost-Ekong: "It is going to take time to rebuild AFCON's reputation"**\
 `The ex-Nigeria star says Senegal being stripped of their title leaves African football having to rebuild its reputation`\
 https://nytimes.com/athletic/7134410/2026/03/21/william-troost-ekong-afcon-final/
-
-**Thomas Tuchel snubbing Trent Alexander-Arnold will hurt — but it's hardly a surprise**\
-`The right-back's form has improved at Madrid but he's been left out of this 35-man England squad so is now a big doubt for the World Cup`\
-https://nytimes.com/athletic/7129970/2026/03/21/trent-alexander-arnold-england-thomas-tuchel-world-cup/
 

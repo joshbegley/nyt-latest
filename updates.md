@@ -1,3 +1,7 @@
+**Man Utd might have had another chaotic draw, but there are reasons for calm and optimism**\
+`Manchester United were held to a 2-2 draw by Bournemouth on Friday evening — but there are positives to be taken`\
+https://nytimes.com/athletic/7127906/2026/03/21/manchester-united-bournemouth-analysis-michael-carrick/
+
 **Sanders Will Rally for N.Y. Tax Increase. Mamdani Does Not Plan to Join.**\
 `Senator Bernie Sanders of Vermont will headline a rally in the Bronx next weekend meant to increase pressure on Gov. Kathy Hochul to raise taxes on the rich.`\
 https://nytimes.com/2026/03/21/nyregion/bernie-sanders-tax-the-rich-mamdani.html
