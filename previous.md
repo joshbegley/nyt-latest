@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/7135615/2026/03/20/pete-crow-armstrong-wbc-cubs-daniel-palencia/
 
 **Tennessee suffers rare first-round NCAA Tournament loss, caps disappointing season**\
-`Tennessee went without a win in March for the first time in program history, and it lost in the first round of only the third time.`\
+`Tennessee went without a win in March for the first time in program history, and it lost in the NCAA first round for only the third time.`\
 https://nytimes.com/athletic/7135672/2026/03/20/tennessee-loss-first-round-ncaa-tournament-loss-nc-state/
 
 **Carlos Alcaraz stops João Fonseca's Miami party, but Brazilian sensation is in for the long haul**\
