@@ -1,3 +1,7 @@
+**The Briefing: Brighton 2 Liverpool 1 - Champions League hangover? Defensive errors? Ekitike injury?**\
+`Liverpool lost 2-1 to Brighton on Saturday afternoon — The Athletic's Gregg Evans breaks down the game`\
+https://nytimes.com/athletic/7126415/2026/03/21/brighton-liverpool-score-result-report-analysis/
+
 **Kerr, Bright expected to leave Chelsea as uncertainty grows at WSL giants**\
 `The pair are among six first-team players with contracts expiring this summer, with Guro Reiten and Catarina Macario having already left`\
 https://nytimes.com/athletic/7134507/2026/03/21/sam-kerr-millie-bright-chelsea-transfers/
