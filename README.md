@@ -1,3 +1,7 @@
+**South Carolina, baseball coach Paul Mainieri part ways 23 games into his second season**\
+`South Carolina went 6-24 in the SEC in 2025 and was off to an 0-4 start in 2026. `\
+https://nytimes.com/athletic/7136531/2026/03/21/paul-mainieri-south-carolina-baseball-out/
+
 **In Trump’s Administration, Military Housing Is Becoming a Hot Commodity**\
 `Until President Trump took office for the second time, it was rare for civilian government officials to live on military bases or installations.`\
 https://nytimes.com/2026/03/21/us/politics/trump-aides-military-housing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/21/business/media/amazon-mgm-project-hail-mary-ryan-
 **Olympic women's hockey MVP Caroline Harvey wins 2026 Patty Kazmaier Award**\
 `Harvey, who won Olympic gold with Team USA last month, has been named the top women's college hockey player in the NCAA.`\
 https://nytimes.com/athletic/7135471/2026/03/21/caroline-harvey-patty-kazmaier-award-2026/
-
-**Iranian Missiles Strike Far-Off Target, but U.S. Remains Out of Range**\
-`Iran’s attempted attack on a military base 2,500 miles away raises questions of the reach of its arsenal.`\
-https://nytimes.com/2026/03/21/us/politics/iran-missiles-military-base.html
 

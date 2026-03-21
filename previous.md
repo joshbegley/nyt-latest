@@ -1,3 +1,35 @@
+**In Trump’s Administration, Military Housing Is Becoming a Hot Commodity**\
+`Until President Trump took office for the second time, it was rare for civilian government officials to live on military bases or installations.`\
+https://nytimes.com/2026/03/21/us/politics/trump-aides-military-housing.html
+
+**How to watch Warriors vs. Hawks: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the Atlanta Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136565/2026/03/21/warriors-vs-hawks-stream-how-to-watch-march-21/
+
+**Trae Young could miss remainder of Washington Wizards' season**\
+`Wizards officials said their 27-year-old point guard is suffering from a quadriceps contusion and "lower back irritation."`\
+https://nytimes.com/athletic/7136441/2026/03/21/trae-young-wizards-injury-update/
+
+**How to watch Clippers vs. Mavericks: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Clippers play the Dallas Mavericks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136556/2026/03/21/clippers-vs-mavericks-stream-how-to-watch-march-21/
+
+**How to watch Pacers vs. Spurs: Time, TV, streaming**\
+`Find out how to watch the Indiana Pacers play the San Antonio Spurs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136554/2026/03/21/pacers-vs-spurs-stream-how-to-watch-march-21/
+
+**How to watch Heat vs. Rockets: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Houston Rockets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136552/2026/03/21/heat-vs-rockets-stream-how-to-watch-march-21/
+
+**Tadej Pogacar wins epic duel with Tom Pidcock to finally land elusive Milan-Sanremo victory**\
+`Analysis of the first Monument of the 2026 cycling season as the WorldTour races from Milan to Sanremo in northern Italy`\
+https://nytimes.com/athletic/7136406/2026/03/21/milan-sanremo-briefing-pogacar-pidcock-kopecky-van-der-poel/
+
+**Amazon MGM Gets a Much-Needed Hit With ‘Project Hail Mary’**\
+`The movie, which stars Ryan Gosling, is on pace to be the company’s highest-grossing domestic film.`\
+https://nytimes.com/2026/03/21/business/media/amazon-mgm-project-hail-mary-ryan-gosling.html
+
 **Olympic women's hockey MVP Caroline Harvey wins 2026 Patty Kazmaier Award**\
 `Harvey, who won Olympic gold with Team USA last month, has been named the top women's college hockey player in the NCAA.`\
 https://nytimes.com/athletic/7135471/2026/03/21/caroline-harvey-patty-kazmaier-award-2026/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/7135471/2026/03/21/caroline-harvey-patty-kazmaier-a
 **Iranian Missiles Strike Far-Off Target, but U.S. Remains Out of Range**\
 `Iran’s attempted attack on a military base 2,500 miles away raises questions of the reach of its arsenal.`\
 https://nytimes.com/2026/03/21/us/politics/iran-missiles-military-base.html
-
-**Wrexham's Hollywood owners' Sky Sports' watchalong criticised by Swansea CEO**\
-`Sky offered an alternative commentary with Wrexhman owners Ryan Reynolds and Rob Mac alongside regular presenter David Prutton.`\
-https://nytimes.com/athletic/7136325/2026/03/21/wrexham-reynolds-mac-sky-swansea-coverage/
-
-**Paul Brainerd Dies at 78; Pioneered Desktop Publishing With PageMaker**\
-`His software brought printing into the digital age, allowing users to stop manually splicing columns of text and graphics and instead create layouts on a virtual pasteboard.`\
-https://nytimes.com/2026/03/21/technology/personaltech/paul-brainerd-dead.html
-
-**How the Litani River Shapes the Israel-Hezbollah War**\
-`The 90-mile waterway, back in focus amid Israel’s renewed offensive in Lebanon, could define how far the fighting spreads.`\
-https://nytimes.com/2026/03/21/world/middleeast/litani-river-israel-hezbollah-war.html
-
-**Umberto Bossi, Fiery Founder of Italian Separatist Party, Dies at 84**\
-`A charismatic populist, he channeled the anger of a disaffected North, arguing — in inflammatory oratory — for secession and railing against a tide of migrants.`\
-https://nytimes.com/2026/03/21/world/europe/umberto-bossi-dead.html
-
-**How to watch Texas A&M vs. Houston men's basketball: Second Round Time, TV, streaming**\
-`Find out how to watch the Texas A&M Aggies play the Houston Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136394/2026/03/21/texas-a-m-vs-houston-stream-how-to-watch-march-21/
-
-**How to watch Texas vs. Gonzaga men's basketball: Second Round Time, TV, streaming**\
-`Find out how to watch the Texas Longhorns play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136386/2026/03/21/texas-vs-gonzaga-stream-how-to-watch-march-21/
-
-**What Is the Left’s Theory of Power?**\
-`The constitutional strength of a functional Congress.`\
-https://nytimes.com/2026/03/21/opinion/democrats-congress-constitution-power-maga.html
-
-**How to watch Princeton vs. Oklahoma State women's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Princeton Tigers play the Oklahoma State Cowgirls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136370/2026/03/21/princeton-vs-oklahoma-state-stream-how-to-watch-march-21/
 
