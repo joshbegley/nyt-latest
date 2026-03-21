@@ -1,3 +1,11 @@
+**Footage of Justin Timberlake’s Drunk-Driving Arrest Is Released**\
+`A glassy-eyed and slurring Mr. Timberlake alternates between disbelief, annoyance and occasional humor during his 2024 arrest in Sag Harbor, N.Y.`\
+https://nytimes.com/2026/03/21/nyregion/justin-timberlake-dwi-drunk-driving-arrest-video.html
+
+**How Corey Lewandowski Wielded Power Inside D.H.S.**\
+`While he was supposed to serve in a limited role as an adviser to Kristi Noem, Mr. Lewandowski had wide influence over contracts, personnel and operations inside the agency over the last year.`\
+https://nytimes.com/2026/03/21/us/politics/corey-lewandowski-noem-dhs.html
+
 **How to watch High Point vs. Arkansas men's basketball: Second Round Time, TV, streaming**\
 `Find out how to watch the High Point Panthers play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136833/2026/03/21/high-point-vs-arkansas-stream-how-to-watch-march-21/
