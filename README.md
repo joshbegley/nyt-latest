@@ -1,3 +1,7 @@
+**Term sheet outlines key details of new CBA for WNBA players after months-long negotiations**\
+`The league announced key details of the new union contract, including salary caps, housing and awards bonuses. `\
+https://nytimes.com/athletic/7135378/2026/03/20/wnba-wnbpa-new-cba-details-labor-contract-2026/
+
 **Purdue's Braden Smith sets all-time assists record in NCAA Tournament opener**\
 `Smith now has 1,076 assists, breaking Duke great Bobby Hurley’s 33-year old record.`\
 https://nytimes.com/athletic/7135418/2026/03/20/purdue-braden-smith-all-time-assists-record/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/20/arts/television/bachelorette-taylor-frankie-paul-
 **Aaron Judge addresses Team USA's perceived lack of fun during WBC**\
 `The captain of Team USA said "any chance he gets," he'll wear Team USA’s uniform again. That next opportunity could be the Olympics in 2028.`\
 https://nytimes.com/athletic/7135258/2026/03/20/world-baseball-classic-aaron-judge-team-usa-olympics/
-
-**Twins release Liam Hendriks, Andrew Chafin as starting rotation comes together**\
-`The final rotation spot and depth at several positions remain unsolved as Minnesota nears the end of spring training. `\
-https://nytimes.com/athletic/7135154/2026/03/20/twins-rotation-liam-hendriks-andrew-chafin-released/
 

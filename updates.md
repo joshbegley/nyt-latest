@@ -1,3 +1,7 @@
+**Purdue's Braden Smith sets all-time assists record in NCAA Tournament opener**\
+`Smith now has 1,076 assists, breaking Duke great Bobby Hurley’s 33-year old record.`\
+https://nytimes.com/athletic/7135418/2026/03/20/purdue-braden-smith-all-time-assists-record/
+
 **The Road to the Battle of Hastings in 1066? Maybe Not a Road After All.**\
 `New research suggests that a legendary 200-mile march by Harold Godwinson, the last Anglo-Saxon king of England, may have actually involved some ships.`\
 https://nytimes.com/2026/03/20/world/europe/harold-1066-forced-march-ship-hastings.html
