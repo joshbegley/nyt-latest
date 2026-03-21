@@ -1,3 +1,11 @@
+**How to watch Golden Knights vs. Predators: Time, TV, streaming**\
+`Find out how to watch the Vegas Golden Knights play the Nashville Predators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136000/2026/03/21/golden-knights-vs-predators-stream-how-to-watch-march-21/
+
+**The Pulse: Why every tourney rips**\
+`Welcome to The Pulse, The Athletic's daily newsletter. `\
+https://nytimes.com/athletic/7135854/2026/03/21/why-every-tourney-rips-plus-a-miracle-with-a-dash-of-controversy/
+
 **How to watch Real Oviedo vs. Levante in the U.S.**\
 `Find out how to watch Real Oviedo play Levante, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7135988/2026/03/21/real-oviedo-vs-levante-stream-how-to-watch-march-21/

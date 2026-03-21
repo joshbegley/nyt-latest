@@ -1,3 +1,11 @@
+**How to watch Golden Knights vs. Predators: Time, TV, streaming**\
+`Find out how to watch the Vegas Golden Knights play the Nashville Predators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136000/2026/03/21/golden-knights-vs-predators-stream-how-to-watch-march-21/
+
+**The Pulse: Why every tourney rips**\
+`Welcome to The Pulse, The Athletic's daily newsletter. `\
+https://nytimes.com/athletic/7135854/2026/03/21/why-every-tourney-rips-plus-a-miracle-with-a-dash-of-controversy/
+
 **How to watch Real Oviedo vs. Levante in the U.S.**\
 `Find out how to watch Real Oviedo play Levante, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7135988/2026/03/21/real-oviedo-vs-levante-stream-how-to-watch-march-21/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7135622/2026/03/21/blue-jays-spring-training-max-sc
 **Justin Crawford earning the Phillies' trust as his MLB debut draws closer**\
 `Crawford isn't officially on the Opening Day roster yet, but he and the Phillies are ready for his debut.`\
 https://nytimes.com/athletic/7135141/2026/03/21/justin-crawford-phillies-opening-day-roster/
-
-**NHL playoff tiers: Where each team sits and what’s at stake down the stretch this season**\
-`The Athletic asked its NHL staff to put all 32 teams into five playoff tiers and highlight what's at stake for each club in the stretch run.`\
-https://nytimes.com/athletic/7134933/2026/03/21/nhl-playoff-tiers-teams-chances-stakes-season/
-
-**The $1.3-Million-a-Minute War**\
-`We could make college accessible for all Americans, restore health care cuts and pretty much end the worst form of global hunger — and still have billions of dollars left over.`\
-https://nytimes.com/2026/03/21/opinion/iran-war-cost.html
 
