@@ -1,3 +1,7 @@
+**Women's NCAA Tournament first round takeaways: Will Zoe Brooks play for NC State?**\
+`How will NC State do if it can't bring back Brooks for the second round? `\
+https://nytimes.com/athletic/7136847/2026/03/21/womens-ncaa-tournament-takeaways-brooks-nc-state/
+
 **Footage of Justin Timberlake’s Drunk-Driving Arrest Is Released**\
 `A glassy-eyed and slurring Mr. Timberlake alternates between disbelief, annoyance and occasional humor during his 2024 arrest in Sag Harbor, N.Y.`\
 https://nytimes.com/2026/03/21/nyregion/justin-timberlake-dwi-drunk-driving-arrest-video.html
