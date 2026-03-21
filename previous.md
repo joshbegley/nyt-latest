@@ -1,4 +1,8 @@
-**Anton Fröndell expected to join Blackhawks after SHL season ends**\
+**Charges Dropped Against Woman Mistaken for Protester in Minnesota Church Case**\
+`Federal prosecutors dismissed charges against one of 39 defendants they charged for disrupting a worship service in January to protest the immigration crackdown.`\
+https://nytimes.com/2026/03/21/us/charges-dropped-against-woman-mistaken-for-protester-in-minnesota-church-case.html
+
+**Anton Frondell expected to join Blackhawks after SHL season ends**\
 `Anton Frondell became just the fourth 18-year-old to score 20 goals in the SHL and the first since Daniel Sedin did it in the 1998-99 season`\
 https://nytimes.com/athletic/7136570/2026/03/21/anton-frondell-blackhawks-season/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/21/world/middleeast/iran-war-nowruz-internet-blackou
 **How to watch Bruins vs. Red Wings: Time, TV, streaming**\
 `Find out how to watch the Boston Bruins play the Detroit Red Wings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136596/2026/03/21/bruins-vs-red-wings-stream-how-to-watch-march-21/
-
-**Red Sox name Marcelo Mayer second baseman, send Kristian Campbell to minors**\
-`Mayer's rise up the infield depth chart had been apparent for weeks, but manager Alex Cora said the delayed announcement was intentional.`\
-https://nytimes.com/athletic/7136232/2026/03/21/red-sox-marcelo-mayer-second-base/
 
