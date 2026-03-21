@@ -1,3 +1,7 @@
+**The unlikely superpowers of Saint Louis cult sensation Robbie Avila**\
+`Avila, the star of many nicknames such as Cream Abdul-Jabbar, will likely be the most important player on the floor in Saint Louis-Michigan.`\
+https://nytimes.com/athletic/7135590/2026/03/21/robbie-avila-saint-louis-michigan-ncaa-tournament-nicknames/
+
 **How to watch Jets vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the Winnipeg Jets play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7135942/2026/03/21/jets-vs-penguins-stream-how-to-watch-march-21/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/21/us/cesar-chavez-statues-murals-removed.html
 **Fab 5 Freddy Remembers Hip-Hop’s Global Takeover**\
 `As his new memoir demonstrates, he himself would achieve fame as a visual artist, filmmaker, TV host and formative tastemaker.`\
 https://nytimes.com/2026/03/21/books/review/everybodys-fly-fab-5-freddy-fred-brathwaite.html
-
-**Across the West, Record Heat Is Colliding With a Snow Drought**\
-`Snowpack, a crucial water source for the region, was already scarce after a mild winter. Now, intense heat could make matters worse.`\
-https://nytimes.com/interactive/2026/03/21/climate/west-coast-heat-wave-water-shortage.html
 

@@ -1,3 +1,11 @@
+**How to watch Jets vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Winnipeg Jets play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7135942/2026/03/21/jets-vs-penguins-stream-how-to-watch-march-21/
+
+**​Gwanghwamun Square, the venue of the show, has long attracted crowds.**\
+`By Choe Sang-Hun`\
+https://nytimes.com/live/2026/03/21/world/bts-netflix-concert-arirang/gwanghwamun-square-the-venue-of-the-show-has-long-attracted-crowds
+
 **After ‘Baby Reindeer,’ Richard Gadd Confronts Male Sexual Repression**\
 `The writer and actor found unexpected success by sharing his trauma. Now he’s exploring male pain in a new way.`\
 https://nytimes.com/2026/03/21/magazine/richard-gadd-interview.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/21/books/review/everybodys-fly-fab-5-freddy-fred-bra
 **Across the West, Record Heat Is Colliding With a Snow Drought**\
 `Snowpack, a crucial water source for the region, was already scarce after a mild winter. Now, intense heat could make matters worse.`\
 https://nytimes.com/interactive/2026/03/21/climate/west-coast-heat-wave-water-shortage.html
-
-**You’ve Lost Your Health Insurance. It Shouldn’t Have Been a Surprise.**\
-`You would think you’d get texts, emails, phone calls and letters if your insurer was about to drop you. But you may be wrong.`\
-https://nytimes.com/2026/03/21/your-money/health-insurance/medicare-health-insurance-lost-coverage.html
-
-**President Trump’s Ballroom Architect, Roasting in the Hot Seat**\
-`Shalom Baranes, who arrived in the U.S. as a Libyan refugee and went on to renovate the Pentagon, is baffling fellow architects for accepting the job. But he said some of his previous projects have drawn outrage too.`\
-https://nytimes.com/2026/03/21/us/politics/trump-ballroom-architect.html
 
