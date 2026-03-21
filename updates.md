@@ -1,3 +1,7 @@
+**Iowa avoids meltdown in stifling Carver-Hawkeye Arena for NCAA Tournament first-round win**\
+`Temperatures rose into the 80s inside the Hawkeyes' home arena as they escaped a historic upset bid.`\
+https://nytimes.com/athletic/7137168/2026/03/21/iowa-fdu-womens-march-madness-results-takeaways/
+
 **Iranian missile strikes Israeli city near main nuclear research facility.**\
 `By Pranav Baskar`\
 https://nytimes.com/live/2026/03/21/world/iran-war-oil-trump/iranian-missile-strikes-israeli-city-near-main-nuclear-research-facility
