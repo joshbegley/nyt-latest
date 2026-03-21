@@ -1,3 +1,7 @@
+**There was extra security as BTS fans arrived at the concert site.**\
+`By Max Kim`\
+https://nytimes.com/live/2026/03/21/world/bts-netflix-concert-arirang/there-was-extra-security-as-bts-fans-arrived-at-the-concert-site
+
 **Spring Awakening**\
 `Astronomical spring began yesterday, but the actual change of season is more gradual, a halting and nonlinear progression.`\
 https://nytimes.com/2026/03/21/briefing/spring-awakening.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7135803/2026/03/21/tennessees-loss-ncaa-tournament-
 **Ferrari is surging back. That can only be a good thing for the championship**\
 `Next weekend's Japanese Grand Prix will be the ultimate test in how much Ferrari can challenge Mercedes this season. `\
 https://nytimes.com/athletic/7130719/2026/03/21/ferrari-f1-2026-mercedes-battle/
-
-**Nikolaj Ehlers isn't filling a top-line role, but the Hurricanes are better for it**\
-`The player known as "Jet" has brought a scoring boost to Carolina's checking line`\
-https://nytimes.com/athletic/7132039/2026/03/21/nikolaj-ehlers-hurricanes-scoring/
 
