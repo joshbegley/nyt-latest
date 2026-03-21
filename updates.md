@@ -1,3 +1,11 @@
+**What Was the Mueller Investigation? And What Did It Find?**\
+`The appointment of Robert S. Mueller III as special counsel to conduct an investigation related to a sitting president roiled Washington around the start of President Trump’s first term.`\
+https://nytimes.com/2026/03/21/us/politics/robert-mueller-trump-russia-fbi-investigation.html
+
+**Oilers' Leon Draisaitl in Germany receiving treatment for lower-body injury: Reports**\
+`Draisaitl will be treated by a doctor who has worked with Auston Matthews, Cristiano Ronaldo, Usain Bolt and others.`\
+https://nytimes.com/athletic/7136860/2026/03/21/oilers-leon-draisaitl-germany-injury/
+
 **Oilers’ Leon Draisaitl in Germany receiving treatment for lower-body injury: Reports**\
 `The forward spoke about his injury timeline during a Sky Sports broadcast for German soccer club Bayern Munich's game on Saturday.`\
 https://nytimes.com/athletic/7136860/2026/03/21/oilers-leon-draisaitl-germany-injury/
