@@ -1,3 +1,7 @@
+**Term sheet outlines key details of new CBA for WNBA players after monthslong negotiations**\
+`The league announced key details of the new union contract, including salary caps, housing and awards bonuses. `\
+https://nytimes.com/athletic/7135378/2026/03/20/wnba-wnbpa-new-cba-details-labor-contract-2026/
+
 **Purdue's Braden Smith sets all-time assists record in NCAA Tournament opener**\
 `Smith now has 1,076 assists, breaking Duke great Bobby Hurley’s 33-year old record.`\
 https://nytimes.com/athletic/7135418/2026/03/20/purdue-braden-smith-all-time-assists-record/
