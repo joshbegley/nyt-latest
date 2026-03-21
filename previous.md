@@ -1,3 +1,7 @@
+**After ‘Baby Reindeer,’ Richard Gadd Confronts Male Sexual Repression**\
+`The writer and actor found unexpected success by sharing his trauma. Now he’s exploring male pain in a new way.`\
+https://nytimes.com/2026/03/21/magazine/richard-gadd-interview.html
+
 **Here’s the latest.**\
 `By Jin Yu Young`\
 https://nytimes.com/live/2026/03/21/world/bts-netflix-concert-arirang/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/21/your-money/health-insurance/medicare-health-insur
 **President Trump’s Ballroom Architect, Roasting in the Hot Seat**\
 `Shalom Baranes, who arrived in the U.S. as a Libyan refugee and went on to renovate the Pentagon, is baffling fellow architects for accepting the job. But he said some of his previous projects have drawn outrage too.`\
 https://nytimes.com/2026/03/21/us/politics/trump-ballroom-architect.html
-
-**War’s Gravity**\
-`Many countries want nothing to do with the fighting in Iran. They’re being pulled in anyway.`\
-https://nytimes.com/interactive/2026/03/21/world/middleeast/iran-war-gravity.html
 

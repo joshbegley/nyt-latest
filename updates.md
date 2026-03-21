@@ -1,3 +1,7 @@
+**After ‘Baby Reindeer,’ Richard Gadd Confronts Male Sexual Repression**\
+`The writer and actor found unexpected success by sharing his trauma. Now he’s exploring male pain in a new way.`\
+https://nytimes.com/2026/03/21/magazine/richard-gadd-interview.html
+
 **Here’s the latest.**\
 `By Jin Yu Young`\
 https://nytimes.com/live/2026/03/21/world/bts-netflix-concert-arirang/heres-the-latest
