@@ -1,3 +1,7 @@
+**U.S. flag football's exhibition vs. NFL players carries big Olympic implications**\
+`Is the U.S. flag football team really better than NFL players at flag? Saturday will give us our first clues toward finding out.`\
+https://nytimes.com/athletic/7135479/2026/03/20/flag-football-nfl-olympics-fanatics-tom-brady-exhibition/
+
 **NCAA sues DraftKings for trademark infringement over use of March Madness, other terms**\
 `The NCAA has pushed hard to limit the types of bets sportsbooks offer on college events.`\
 https://nytimes.com/athletic/7135474/2026/03/20/ncaa-sues-draftkings-trademark-infringement/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7135377/2026/03/20/kevin-willard-fire-coaches-villa
 **700 Dogs and Cats Are Rescued in Animal Cruelty Raid in Los Angeles County**\
 `Animal control officers responded to a pet-adoption facility in Lake Hughes, Calif., after receiving complaints about neglect and overcrowding. No charges have been filed.`\
 https://nytimes.com/2026/03/20/us/700-dogs-cats-rescued-los-angeles-county.html
-
-**What I'm seeing at Astros camp: Brice Matthews' OF bid, Cam Smith's mindset, more**\
-`Houston hired a new director of sports medicine and performance, and a new assistant athletic trainer.`\
-https://nytimes.com/athletic/7135301/2026/03/20/astros-brice-matthews-cam-smith-sports-medicine-department/
 

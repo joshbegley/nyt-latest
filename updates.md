@@ -1,3 +1,7 @@
+**NCAA sues DraftKings for trademark infringement over use of March Madness, other terms**\
+`The NCAA has pushed hard to limit the types of bets sportsbooks offer on college events.`\
+https://nytimes.com/athletic/7135474/2026/03/20/ncaa-sues-draftkings-trademark-infringement/
+
 **Trump Signals Retreat From Goal of Regime Change in Iran**\
 `In the first days of the U.S.-Israeli campaign against Iran, Mr. Trump pressed for a popular uprising against Tehran’s government.`\
 https://nytimes.com/2026/03/20/world/middleeast/trump-winding-down-iran-war.html
