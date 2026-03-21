@@ -26,9 +26,9 @@ https://nytimes.com/athletic/7136690/2026/03/21/simon-ehammer-world-record-indoo
 `The 19-year-old shortstop is the consensus top prospect in baseball. The last teenager to start on Opening Day was Adrian Beltré in 1999. `\
 https://nytimes.com/athletic/7136473/2026/03/21/konnor-griffin-pirates-teenage-prospect-reassigned/
 
-**Women's NCAA Tournament first round takeaways: Virginia pulls out first upset in OT**\
+**Women's NCAA Tournament first round takeaways: Notre Dame's Hidalgo vs. Ohio State's Cambridge on horizon**\
 `How will NC State do if it can't bring back Brooks for the second round? `\
-https://nytimes.com/athletic/7136847/2026/03/21/womens-ncaa-tournament-takeaways-brooks-nc-state/
+https://nytimes.com/athletic/7136847/2026/03/21/womens-ncaa-tournament-takeaways-notre-dame-ohio-state/
 
 **Footage of Justin Timberlake’s Drunk-Driving Arrest Is Released**\
 `A glassy-eyed and slurring Mr. Timberlake alternates between disbelief, annoyance and occasional humor during his 2024 arrest in Sag Harbor, N.Y.`\

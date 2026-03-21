@@ -1,3 +1,11 @@
+**How Gotham’s 2025 championship ring reflects past glory and future ambition**\
+`The celebratory rings, like their 2023 model, were designed by The Champions Collective to symbolize the team's on the pitch success`\
+https://nytimes.com/athletic/7132747/2026/03/21/gotham-championship-ring/
+
+**G.O.P. Bid to Target Transgender Athletes Falls Flat in the Senate**\
+`In moving to bar transgender women and girls from women’s and girls’ sports, Republicans sought to put Democrats in an awkward political spot on a sensitive issue ahead of the midterm elections.`\
+https://nytimes.com/2026/03/21/us/politics/gop-transgender-athletes-senate.html
+
 **Hubert Davis' future in doubt at UNC after first-round collapse: Sources**\
 `One major consideration in what UNC does next, sources said, is apprehension by donors about the level of support should Davis be retained.`\
 https://nytimes.com/athletic/7136859/2026/03/21/unc-basketball-coach-hubert-davis-status-news/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/21/nyregion/justin-timberlake-dwi-drunk-driving-arre
 **How Corey Lewandowski Wielded Power Inside D.H.S.**\
 `While he was supposed to serve in a limited role as an adviser to Kristi Noem, Mr. Lewandowski had wide influence over contracts, personnel and operations inside the agency over the last year.`\
 https://nytimes.com/2026/03/21/us/politics/corey-lewandowski-noem-dhs.html
-
-**How to watch High Point vs. Arkansas men's basketball: Second Round Time, TV, streaming**\
-`Find out how to watch the High Point Panthers play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136833/2026/03/21/high-point-vs-arkansas-stream-how-to-watch-march-21/
-
-**How to watch Cal Baptist vs. UCLA women's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Cal Baptist Lancers play the UCLA Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136815/2026/03/21/cal-baptist-vs-ucla-stream-how-to-watch-march-21/
 

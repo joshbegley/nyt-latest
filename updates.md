@@ -1,3 +1,11 @@
+**How Gotham’s 2025 championship ring reflects past glory and future ambition**\
+`The celebratory rings, like their 2023 model, were designed by The Champions Collective to symbolize the team's on the pitch success`\
+https://nytimes.com/athletic/7132747/2026/03/21/gotham-championship-ring/
+
+**G.O.P. Bid to Target Transgender Athletes Falls Flat in the Senate**\
+`In moving to bar transgender women and girls from women’s and girls’ sports, Republicans sought to put Democrats in an awkward political spot on a sensitive issue ahead of the midterm elections.`\
+https://nytimes.com/2026/03/21/us/politics/gop-transgender-athletes-senate.html
+
 **Hubert Davis' future in doubt at UNC after first-round collapse: Sources**\
 `One major consideration in what UNC does next, sources said, is apprehension by donors about the level of support should Davis be retained.`\
 https://nytimes.com/athletic/7136859/2026/03/21/unc-basketball-coach-hubert-davis-status-news/
