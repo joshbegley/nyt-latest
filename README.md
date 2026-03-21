@@ -1,3 +1,11 @@
+**Ricky Hatton, CTE and mental health: Does boxing do enough to look after its retired fighters?**\
+`The inquest into Hatton's death thrust the focus on how boxing struggles to care for retired fighters, but there are those battling for them`\
+https://nytimes.com/athletic/7133493/2026/03/21/boxing-hatton-cte-care-bbbofc-charity/
+
+**Wojciech Szczesny was an emergency signing at Barcelona. Now, he's a cult hero**\
+`The 35-year-old former Arsenal and Juventus goalkeeper came out of retirement to join Barca in October 2024`\
+https://nytimes.com/athletic/7133838/2026/03/21/barcelona-szczesny-champions-league-newcastle-cult-hero/
+
 **A unique rivalry that NBA Europe could change: Basketball's El Clásico**\
 `With NBA Europe planned for 2027, Barcelona and Real Madrid's basketball El Clásico possibly faces a different future`\
 https://nytimes.com/athletic/7130860/2026/03/21/basketball-el-clasico-real-madrid-barcelona-nba-europe/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/21/business/laid-off-in-midlife-chinas-reform-genera
 **Copenhagen Grapples With the Abuse Allegations Against Noma’s Chef**\
 `René Redzepi faced swift fallout in the United States following reports of violence. But in Denmark, where he is a major cultural figure, the reaction has been more muted.`\
 https://nytimes.com/2026/03/21/dining/noma-abuse-copenhagen.html
-
-**Quote of the Day: Nonhumans Are Pitching Supplements**\
-`Quotation of the Day for Saturday, March 21, 2026.`\
-https://nytimes.com/2026/03/20/pageoneplus/quote-of-the-day-nonhumans-are-pitching-supplements.html
-
-**Florida's Olivier Rioux, at 7-foot-9, becomes tallest player to appear in NCAA Tournament**\
-`Rioux played the final 1:54, finishing one dunk in Florida's 114-55 win over Prairie View A&M.`\
-https://nytimes.com/athletic/7135766/2026/03/20/olivier-rioux-florida-basketball-ncaa-tournament-tallest/
 
