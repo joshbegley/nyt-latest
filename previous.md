@@ -1,3 +1,7 @@
+**The Road to the Battle of Hastings in 1066? Maybe Not a Road After All.**\
+`New research suggests that a legendary 200-mile march by Harold Godwinson, the last Anglo-Saxon king of England, may have actually involved some ships.`\
+https://nytimes.com/2026/03/20/world/europe/harold-1066-forced-march-ship-hastings.html
+
 **U.S. Lifts Sanctions on Some Iranian Oil to Get More to Market**\
 `Treasury Secretary Scott Bessent estimated that the move would add about 140 million barrels of crude to the oil market.`\
 https://nytimes.com/2026/03/20/world/middleeast/us-sanctions-iran-oil.html
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/7135377/2026/03/20/kevin-willard-fire-coaches-villa
 `Animal control officers responded to a pet-adoption facility in Lake Hughes, Calif., after receiving complaints about neglect and overcrowding. No charges have been filed.`\
 https://nytimes.com/2026/03/20/us/700-dogs-cats-rescued-los-angeles-county.html
 
-**What I'm seeing at Astros camp: Brice Matthews' OF bid, Cam Smith's mindset, more medical changes**\
+**What I'm seeing at Astros camp: Brice Matthews' OF bid, Cam Smith's mindset, more**\
 `Houston hired a new director of sports medicine and performance, and a new assistant athletic trainer.`\
 https://nytimes.com/athletic/7135301/2026/03/20/astros-brice-matthews-cam-smith-sports-medicine-department/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7135154/2026/03/20/twins-rotation-liam-hendriks-and
 **What the Surprisingly Early Heat Wave Means for California’s Summer**\
 `The state is warming up and drying out earlier than usual. Here’s what that means for fire season.`\
 https://nytimes.com/2026/03/20/weather/california-heat-fire-season-snowpack.html
-
-**Fresno Took 30 Years to Name Cesar Chavez Blvd. Undoing It Took a Day.**\
-`The reckoning for the labor leader’s sex abuse was swift in Fresno, Calif., the heart of the Central Valley region where the farmworker movement was born. Towns across the nation face similar debates.`\
-https://nytimes.com/2026/03/20/us/fresno-cesar-chavez-street-rename.html
 

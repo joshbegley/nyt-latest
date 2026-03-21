@@ -1,3 +1,7 @@
+**Purdue's Braden Smith sets all-time assists record in NCAA Tournament opener**\
+`Smith now has 1,076 assists, breaking Duke great Bobby Hurley’s 33-year old record.`\
+https://nytimes.com/athletic/7135418/2026/03/20/purdue-braden-smith-all-time-assists-record/
+
 **The Road to the Battle of Hastings in 1066? Maybe Not a Road After All.**\
 `New research suggests that a legendary 200-mile march by Harold Godwinson, the last Anglo-Saxon king of England, may have actually involved some ships.`\
 https://nytimes.com/2026/03/20/world/europe/harold-1066-forced-march-ship-hastings.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7135258/2026/03/20/world-baseball-classic-aaron-jud
 **Twins release Liam Hendriks, Andrew Chafin as starting rotation comes together**\
 `The final rotation spot and depth at several positions remain unsolved as Minnesota nears the end of spring training. `\
 https://nytimes.com/athletic/7135154/2026/03/20/twins-rotation-liam-hendriks-andrew-chafin-released/
-
-**What the Surprisingly Early Heat Wave Means for California’s Summer**\
-`The state is warming up and drying out earlier than usual. Here’s what that means for fire season.`\
-https://nytimes.com/2026/03/20/weather/california-heat-fire-season-snowpack.html
 

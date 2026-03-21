@@ -1,3 +1,11 @@
+**The Road to the Battle of Hastings in 1066? Maybe Not a Road After All.**\
+`New research suggests that a legendary 200-mile march by Harold Godwinson, the last Anglo-Saxon king of England, may have actually involved some ships.`\
+https://nytimes.com/2026/03/20/world/europe/harold-1066-forced-march-ship-hastings.html
+
+**What I'm seeing at Astros camp: Brice Matthews' OF bid, Cam Smith's mindset, more**\
+`Houston hired a new director of sports medicine and performance, and a new assistant athletic trainer.`\
+https://nytimes.com/athletic/7135301/2026/03/20/astros-brice-matthews-cam-smith-sports-medicine-department/
+
 **U.S. Lifts Sanctions on Some Iranian Oil to Get More to Market**\
 `Treasury Secretary Scott Bessent estimated that the move would add about 140 million barrels of crude to the oil market.`\
 https://nytimes.com/2026/03/20/world/middleeast/us-sanctions-iran-oil.html
