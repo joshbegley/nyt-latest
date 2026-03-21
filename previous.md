@@ -1,3 +1,15 @@
+**How to watch Vanderbilt vs. Nebraska men's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Vanderbilt Commodores play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136659/2026/03/21/vanderbilt-vs-nebraska-stream-how-to-watch-march-21/
+
+**An Aural Companion for Decades, CBS News Radio Crackles to a Close**\
+`A stalwart of the mass media century, the longstanding network that launched the careers of journalists like Edward R. Murrow will air its final broadcast in May.`\
+https://nytimes.com/2026/03/21/business/media/cbs-news-radio-appraisal.html
+
+**How to watch VCU vs. Illinois men's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the VCU Rams play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136655/2026/03/21/vcu-vs-illinois-stream-how-to-watch-march-21/
+
 **How to watch Colorado vs. Illinois women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Colorado Buffaloes play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136627/2026/03/21/colorado-vs-illinois-stream-how-to-watch-march-21/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7136531/2026/03/21/paul-mainieri-south-carolina-bas
 **In Trump’s Administration, Military Housing Is Becoming a Hot Commodity**\
 `Until President Trump took office for the second time, it was rare for civilian government officials to live on military bases or installations.`\
 https://nytimes.com/2026/03/21/us/politics/trump-aides-military-housing.html
-
-**How to watch Warriors vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the Golden State Warriors play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136565/2026/03/21/warriors-vs-hawks-stream-how-to-watch-march-21/
-
-**Trae Young could miss remainder of Washington Wizards' season**\
-`Wizards officials said their 27-year-old point guard is suffering from a quadriceps contusion and "lower back irritation."`\
-https://nytimes.com/athletic/7136441/2026/03/21/trae-young-wizards-injury-update/
-
-**How to watch Clippers vs. Mavericks: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Clippers play the Dallas Mavericks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136556/2026/03/21/clippers-vs-mavericks-stream-how-to-watch-march-21/
 
