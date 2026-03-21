@@ -1,3 +1,15 @@
+**Pistons' rapid rise continues as they become first East team to clinch playoff spot**\
+`Two seasons ago, the Pistons were the worst team in the NBA and lost 28 straight games. They're now at the top of the Eastern Conference.`\
+https://nytimes.com/athletic/7135570/2026/03/20/pistons-clinch-playoff-spot-eastern-conference-nba/
+
+**Seahawks exercise fifth-year options on Smith-Njigba, Devon Witherspoon**\
+`The player options keep Witherspoon, the fifth pick in 2023, and Smith-Njigba, the 20th pick in the same year, under contract for 2027.`\
+https://nytimes.com/athletic/7135543/2026/03/20/smith-njigba-witherspoon-seahawks-fifth-year-player-option-nfl/
+
+**‘Gadzooks!’**\
+`Boaz Moser presents a lofty, themeless challenge.`\
+https://nytimes.com/2026/03/20/crosswords/daily-puzzle-2026-03-21.html
+
 **Nicholas Brendon, a Star in ‘Buffy the Vampire Slayer,’ Is Dead**\
 `He played the part of Xander Harris, one of Buffy’s closest friends, on the hit television show.`\
 https://nytimes.com/2026/03/20/arts/television/nicholas-brendon-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7135440/2026/03/20/wnba-cba-players-salary-increase
 **Term sheet outlines key details of new CBA for WNBA players after monthslong negotiations**\
 `The league announced key details of the new union contract, including salary caps, housing and awards bonuses. `\
 https://nytimes.com/athletic/7135378/2026/03/20/wnba-wnbpa-new-cba-details-labor-contract-2026/
-
-**Purdue's Braden Smith sets all-time assists record in NCAA Tournament opener**\
-`Smith now has 1,076 assists, breaking Duke great Bobby Hurley’s 33-year old record.`\
-https://nytimes.com/athletic/7135418/2026/03/20/purdue-braden-smith-all-time-assists-record/
-
-**The Road to the Battle of Hastings in 1066? Maybe Not a Road After All.**\
-`New research suggests that a legendary 200-mile march by Harold Godwinson, the last Anglo-Saxon king of England, may have actually involved some ships.`\
-https://nytimes.com/2026/03/20/world/europe/harold-1066-forced-march-ship-hastings.html
-
-**U.S. Lifts Sanctions on Some Iranian Oil to Get More to Market**\
-`Treasury Secretary Scott Bessent estimated that the move would add about 140 million barrels of crude to the oil market.`\
-https://nytimes.com/2026/03/20/world/middleeast/us-sanctions-iran-oil.html
 

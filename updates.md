@@ -1,3 +1,15 @@
+**Pistons' rapid rise continues as they become first East team to clinch playoff spot**\
+`Two seasons ago, the Pistons were the worst team in the NBA and lost 28 straight games. They're now at the top of the Eastern Conference.`\
+https://nytimes.com/athletic/7135570/2026/03/20/pistons-clinch-playoff-spot-eastern-conference-nba/
+
+**Seahawks exercise fifth-year options on Smith-Njigba, Devon Witherspoon**\
+`The player options keep Witherspoon, the fifth pick in 2023, and Smith-Njigba, the 20th pick in the same year, under contract for 2027.`\
+https://nytimes.com/athletic/7135543/2026/03/20/smith-njigba-witherspoon-seahawks-fifth-year-player-option-nfl/
+
+**‘Gadzooks!’**\
+`Boaz Moser presents a lofty, themeless challenge.`\
+https://nytimes.com/2026/03/20/crosswords/daily-puzzle-2026-03-21.html
+
 **Nicholas Brendon, a Star in ‘Buffy the Vampire Slayer,’ Is Dead**\
 `He played the part of Xander Harris, one of Buffy’s closest friends, on the hit television show.`\
 https://nytimes.com/2026/03/20/arts/television/nicholas-brendon-dead.html
