@@ -1,3 +1,11 @@
+**What we’re hearing about the Cubs: Moisés Ballesteros makes Opening Day roster**\
+`Daniel Palencia is coming down from his WBC high, Justin Steele's status remains uncertain and Ben Brown wants a reset.`\
+https://nytimes.com/athletic/7135821/2026/03/21/cubs-moises-ballesteros-opening-day-roster/
+
+**Wolves coach Chris Finch offers rare public criticism of Julius Randle in latest loss**\
+`Playing without Anthony Edwards, the Wolves came out flat against the Blazers. "We feel like we gave the game away," Julius Randle said.`\
+https://nytimes.com/athletic/7135799/2026/03/21/timberwolves-coach-chris-finch-julius-randle/
+
 **Bryce Rainer, Cris Rodriguez and more Tigers prospect takeaways**\
 `A look at Bryce Rainer's return to the field, Michael Oliveto's many talents and more.`\
 https://nytimes.com/athletic/7135545/2026/03/21/bryce-rainer-cris-rodriguez-tigers-prospect-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7136191/2026/03/21/fairleigh-dickinson-vs-iowa-stre
 **How to watch Miami (OH) vs. West Virginia women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Miami (OH) RedHawks play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136189/2026/03/21/miami-oh-vs-west-virginia-stream-how-to-watch-march-21/
-
-**How to watch Kraken vs. Blue Jackets: Time, TV, streaming**\
-`Find out how to watch the Seattle Kraken play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136160/2026/03/21/kraken-vs-blue-jackets-stream-how-to-watch-march-21/
-
-**How to watch Stars vs. Wild: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the Minnesota Wild, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136158/2026/03/21/stars-vs-wild-stream-how-to-watch-march-21/
 
