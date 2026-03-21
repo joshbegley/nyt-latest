@@ -1,3 +1,15 @@
+**Chris Wood’s return to fitness could not be more timely for Nottingham Forest**\
+`After 215 days on the side-lines, the Forest striker returned to action on Friday evening in a B team game against Newcastle at Loughborough`\
+https://nytimes.com/athletic/7135128/2026/03/21/chris-wood-fitness-injury-return-forest/
+
+**For Arsenal and Arteta, Sunday's Carabao Cup final is 'showtime'. A win could launch them into a new era**\
+`Sunday's match against Manchester City feels like a moment to unlock this club's potential, to set the fuse on their cannon emblem alight`\
+https://nytimes.com/athletic/7134373/2026/03/21/arsenal-arteta-carabao-cup-final/
+
+**What do West Ham's Great Escapers from 2007 make of the current crop?**\
+`Matthew Etherington, Hayden Mullins and Teddy Sheringham on the 2006-07 season and whether today's team can mirror their heroics`\
+https://nytimes.com/athletic/7125014/2026/03/21/west-ham-2007-great-escape/
+
 **Former Nigeria captain William Troost-Ekong: "It is going to take time to rebuild AFCON's reputation"**\
 `The ex-Nigeria star says Senegal being stripped of their title leaves African football having to rebuild its reputation`\
 https://nytimes.com/athletic/7134410/2026/03/21/william-troost-ekong-afcon-final/

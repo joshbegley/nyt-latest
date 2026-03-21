@@ -1,3 +1,15 @@
+**Chris Wood’s return to fitness could not be more timely for Nottingham Forest**\
+`After 215 days on the side-lines, the Forest striker returned to action on Friday evening in a B team game against Newcastle at Loughborough`\
+https://nytimes.com/athletic/7135128/2026/03/21/chris-wood-fitness-injury-return-forest/
+
+**For Arsenal and Arteta, Sunday's Carabao Cup final is 'showtime'. A win could launch them into a new era**\
+`Sunday's match against Manchester City feels like a moment to unlock this club's potential, to set the fuse on their cannon emblem alight`\
+https://nytimes.com/athletic/7134373/2026/03/21/arsenal-arteta-carabao-cup-final/
+
+**What do West Ham's Great Escapers from 2007 make of the current crop?**\
+`Matthew Etherington, Hayden Mullins and Teddy Sheringham on the 2006-07 season and whether today's team can mirror their heroics`\
+https://nytimes.com/athletic/7125014/2026/03/21/west-ham-2007-great-escape/
+
 **Former Nigeria captain William Troost-Ekong: "It is going to take time to rebuild AFCON's reputation"**\
 `The ex-Nigeria star says Senegal being stripped of their title leaves African football having to rebuild its reputation`\
 https://nytimes.com/athletic/7134410/2026/03/21/william-troost-ekong-afcon-final/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7133466/2026/03/21/premier-league-relegation-big-cl
 **Where does your team 'respect the ball'?**\
 `Breaking down the part of the pitch where each Premier League team dominates the ball`\
 https://nytimes.com/athletic/7125153/2026/03/21/where-does-your-team-respect-the-ball-premier-league/
-
-**The New York Times in Print for Saturday, March 21, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/03/21/todays-new-york-times
-
-**The NCAA Tournament upsets to watch for in the second round**\
-`The first double-digit seed is through to the second round of the men's NCAA Tournament. How far can the High Point Panthers go?`\
-https://nytimes.com/athletic/7132351/2026/03/21/ncaa-tournament-second-round-upsets-most-likely/
-
-**Down two players, shorthanded Portland Thorns shut out Seattle Reign in Cascadia Rivalry**\
-`With only nine players on the pitch, the Thorns managed to score twice in the first half and keep Seattle's offense quiet. `\
-https://nytimes.com/athletic/7135800/2026/03/21/shorthanded-portland-thorns-beat-seattle-reign-despite-two-red-cards/
 
