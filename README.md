@@ -1,3 +1,7 @@
+**In Trump’s Administration, Military Housing Is Becoming a Hot Commodity**\
+`Until President Trump took office for the second time, it was rare for civilian government officials to live on military bases or installations.`\
+https://nytimes.com/2026/03/21/us/politics/trump-aides-military-housing.html
+
 **How to watch Warriors vs. Hawks: Time, TV, streaming**\
 `Find out how to watch the Golden State Warriors play the Atlanta Hawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136565/2026/03/21/warriors-vs-hawks-stream-how-to-watch-march-21/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7135471/2026/03/21/caroline-harvey-patty-kazmaier-a
 **Iranian Missiles Strike Far-Off Target, but U.S. Remains Out of Range**\
 `Iran’s attempted attack on a military base 2,500 miles away raises questions of the reach of its arsenal.`\
 https://nytimes.com/2026/03/21/us/politics/iran-missiles-military-base.html
-
-**Wrexham's Hollywood owners' Sky Sports' watchalong criticised by Swansea CEO**\
-`Sky offered an alternative commentary with Wrexhman owners Ryan Reynolds and Rob Mac alongside regular presenter David Prutton.`\
-https://nytimes.com/athletic/7136325/2026/03/21/wrexham-reynolds-mac-sky-swansea-coverage/
 
