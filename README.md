@@ -1,3 +1,7 @@
+**Carlos Alcaraz stops João Fonseca's Miami party, but Brazilian sensation is in for the long haul**\
+`Alcaraz and Jannik Sinner have shown Fonseca that there are levels to this sport the past 10 days. The Brazilian is ready to climb.`\
+https://nytimes.com/athletic/7135577/2026/03/20/tennis-alcaraz-fonseca-miami-open/
+
 **San Francisco Driver Gets Probation After Killing a Family of 4**\
 `Mary Fong Lau, 80, will perform 200 hours of community service as part of her sentence. Her speeding vehicle crashed into a family as they waited for a bus ride to the zoo in 2024.`\
 https://nytimes.com/2026/03/20/us/san-francisco-crash-sentence.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7135474/2026/03/20/ncaa-sues-draftkings-trademark-i
 **Trump Signals Retreat From Goal of Regime Change in Iran**\
 `In the first days of the U.S.-Israeli campaign against Iran, Mr. Trump pressed for a popular uprising against Tehran’s government.`\
 https://nytimes.com/2026/03/20/world/middleeast/trump-winding-down-iran-war.html
-
-**WNBA salaries set to top $1M: How new CBA transforms player pay**\
-`Salaries will spike to record highs in the new WNBA CBA with an average salary of $583,000 for the 2026 season.`\
-https://nytimes.com/athletic/7135440/2026/03/20/wnba-cba-players-salary-increase-revenue-share/
 
