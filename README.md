@@ -1,3 +1,7 @@
+**Trump Says He Will Send ICE Agents to Airports on Monday**\
+`The president issued a threat to deploy ICE agents in an apparent attempt to force Democrats to approve a new budget for the Department of Homeland Security.`\
+https://nytimes.com/2026/03/21/us/politics/trump-ice-agents-airports.html
+
 **Charges Dropped Against Woman Mistaken for Protester in Minnesota Church Case**\
 `Federal prosecutors dismissed charges against one of 39 defendants they charged for disrupting a worship service in January to protest the immigration crackdown.`\
 https://nytimes.com/2026/03/21/us/charges-dropped-against-woman-mistaken-for-protester-in-minnesota-church-case.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/21/us/politics/robert-s-mueller-dead.html
 **Internet Blackout Keeps Iranians From Reaching Loved Ones During New Year Holiday**\
 `The current restrictions on the internet in Iran are coinciding with Nowruz, the observance of the Persian New Year.`\
 https://nytimes.com/2026/03/21/world/middleeast/iran-war-nowruz-internet-blackout.html
-
-**How to watch Bruins vs. Red Wings: Time, TV, streaming**\
-`Find out how to watch the Boston Bruins play the Detroit Red Wings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136596/2026/03/21/bruins-vs-red-wings-stream-how-to-watch-march-21/
 
