@@ -1,3 +1,7 @@
+**Erik Karlsson continues to carry the imperfect but increasingly special Penguins**\
+`After the Penguins beat the Winnipeg Jets in a shootout on Saturday, Karlsson now has 10 points in his past four games.`\
+https://nytimes.com/athletic/7136901/2026/03/21/penguins-erik-karlsson-jets-goals/
+
 **Leafs' Anthony Stolarz taken to hospital after taking puck to throat during warmups**\
 `Stolarz was taken to the hospital for precautionary imaging after taking a puck up high from William Nylander before a game in Ottawa.`\
 https://nytimes.com/athletic/7137226/2026/03/21/anthony-stolarz-injured-warmups-hospital-maple-leafs/
