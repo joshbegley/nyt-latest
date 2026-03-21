@@ -1,3 +1,7 @@
+**Florida's Olivier Rioux, at 7-foot-9, becomes tallest player to appear in NCAA Tournament**\
+`Rioux played the final 1:54, finishing one dunk in Florida's 114-55 win over Prairie View A&M.`\
+https://nytimes.com/athletic/7135766/2026/03/20/olivier-rioux-florida-basketball-ncaa-tournament-tallest/
+
 **​At Least 10 Killed in South Korean Factory Fire**\
 `Survivors jumped from windows to escape the blaze, the deadliest at a factory in South Korea in two years. Four people are still missing.`\
 https://nytimes.com/2026/03/20/world/asia/south-korea-factory-fire-deaths.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7135570/2026/03/20/pistons-clinch-playoff-spot-east
 **Seahawks exercise fifth-year options on Smith-Njigba, Devon Witherspoon**\
 `The player options keep Witherspoon, the fifth pick in 2023, and Smith-Njigba, the 20th pick in the same year, under contract for 2027.`\
 https://nytimes.com/athletic/7135543/2026/03/20/smith-njigba-witherspoon-seahawks-fifth-year-player-option-nfl/
-
-**‘Gadzooks!’**\
-`Boaz Moser presents a lofty, themeless challenge.`\
-https://nytimes.com/2026/03/20/crosswords/daily-puzzle-2026-03-21.html
 

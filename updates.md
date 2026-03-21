@@ -1,3 +1,7 @@
+**Florida's Olivier Rioux, at 7-foot-9, becomes tallest player to appear in NCAA Tournament**\
+`Rioux played the final 1:54, finishing one dunk in Florida's 114-55 win over Prairie View A&M.`\
+https://nytimes.com/athletic/7135766/2026/03/20/olivier-rioux-florida-basketball-ncaa-tournament-tallest/
+
 **​At Least 10 Killed in South Korean Factory Fire**\
 `Survivors jumped from windows to escape the blaze, the deadliest at a factory in South Korea in two years. Four people are still missing.`\
 https://nytimes.com/2026/03/20/world/asia/south-korea-factory-fire-deaths.html
