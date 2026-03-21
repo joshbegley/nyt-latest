@@ -1,3 +1,7 @@
+**WNBA salaries set to top $1M: How new CBA transforms player pay**\
+`Salaries will spike to record highs in the new WNBA CBA with an average salary of $583,000 for the 2026 season.`\
+https://nytimes.com/athletic/7135440/2026/03/20/wnba-cba-players-salary-increase-revenue-share/
+
 **Term sheet outlines key details of new CBA for WNBA players after monthslong negotiations**\
 `The league announced key details of the new union contract, including salary caps, housing and awards bonuses. `\
 https://nytimes.com/athletic/7135378/2026/03/20/wnba-wnbpa-new-cba-details-labor-contract-2026/
