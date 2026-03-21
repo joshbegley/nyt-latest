@@ -1,3 +1,15 @@
+**Trump’s Contested Campus Antisemitism Fight Is Accelerating Again**\
+`While some Jewish students and faculty members have applauded the Trump administration’s renewed push against antisemitism, others believe the government has different motives.`\
+https://nytimes.com/2026/03/21/us/trump-campus-antisemitism-fight-universities.html
+
+**Arsenal's Kepa set to start Carabao Cup final vs Man City**\
+`Kepa has started every one of Arsenal's domestic cup matches so far this season.`\
+https://nytimes.com/athletic/7136922/2026/03/21/kepa-carabao-cup-final-arsenal-man-city/
+
+**Women's NCAA Tournament first round takeaways: Notre Dame's Hidalgo vs. Ohio State's Cambridge on horizon**\
+`How will NC State do if it can't bring back Brooks for the second round? `\
+https://nytimes.com/athletic/7136847/2026/03/21/womens-ncaa-tournament-takeaways-notre-dame-ohio-state/
+
 **How Gotham’s 2025 championship ring reflects past glory and future ambition**\
 `The celebratory rings, like their 2023 model, were designed by The Champions Collective to symbolize the team's on the pitch success`\
 https://nytimes.com/athletic/7132747/2026/03/21/gotham-championship-ring/

@@ -1,3 +1,11 @@
+**‘We’re Finally Here’: BTS Returns With Sold-Out Concert and New Album**\
+`The K-pop supergroup BTS performed their first concert in over three years in Seoul on Saturday following the release of their new album, “Arirang,” on Friday. Thousands of fans came out to hear one of the biggest names in K-pop.`\
+https://nytimes.com/video/world/asia/100000010794212/were-finally-here-bts-returns-with-sold-out-concert-and-new-album.html
+
+**Efficient in final spring outing, Joe Ryan is ready to 'get rolling'**\
+`Ryan will pitch the Twins’ season opener for the second time after also receiving the honor for the 2022 season.`\
+https://nytimes.com/athletic/7136864/2026/03/21/minnesota-twins-joe-ryan-final-tuneup-ready/
+
 **Trump’s Contested Campus Antisemitism Fight Is Accelerating Again**\
 `While some Jewish students and faculty members have applauded the Trump administration’s renewed push against antisemitism, others believe the government has different motives.`\
 https://nytimes.com/2026/03/21/us/trump-campus-antisemitism-fight-universities.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7136671/2026/03/21/man-united-jim-ratcliffe-boat-am
 **Ehammer breaks the heptathlon world record in world indoor final**\
 `Ehammer’s total of 6670 points in Torun, Poland, was clinched with a 2:41.04s personal best over 1,000m in the final event.`\
 https://nytimes.com/athletic/7136690/2026/03/21/simon-ehammer-world-record-indoor-championship-heptathlon/
-
-**Pirates reassign No. 1 prospect Konnor Griffin to minor-league camp**\
-`The 19-year-old shortstop is the consensus top prospect in baseball. The last teenager to start on Opening Day was Adrian Beltré in 1999. `\
-https://nytimes.com/athletic/7136473/2026/03/21/konnor-griffin-pirates-teenage-prospect-reassigned/
-
-**Women's NCAA Tournament first round takeaways: Notre Dame's Hidalgo vs. Ohio State's Cambridge on horizon**\
-`How will NC State do if it can't bring back Brooks for the second round? `\
-https://nytimes.com/athletic/7136847/2026/03/21/womens-ncaa-tournament-takeaways-notre-dame-ohio-state/
 
