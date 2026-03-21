@@ -1,3 +1,7 @@
+**Anton Fröndell expected to join Blackhawks after SHL season ends**\
+`Anton Frondell became just the fourth 18-year-old to score 20 goals in the SHL and the first since Daniel Sedin did it in the 1998-99 season`\
+https://nytimes.com/athletic/7136570/2026/03/21/anton-frondell-blackhawks-season/
+
 **Patriarch Filaret, Orthodox Christian Leader Who Defied Russia, Dies at 97**\
 `Filaret led a movement in Ukraine that created a schism among Orthodox believers and, ultimately, a church independent of Moscow.`\
 https://nytimes.com/2026/03/21/world/europe/patriarch-filaret-dead.html
