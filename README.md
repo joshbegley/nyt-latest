@@ -1,4 +1,4 @@
-**Term sheet outlines key details of new CBA for WNBA players after months-long negotiations**\
+**Term sheet outlines key details of new CBA for WNBA players after monthslong negotiations**\
 `The league announced key details of the new union contract, including salary caps, housing and awards bonuses. `\
 https://nytimes.com/athletic/7135378/2026/03/20/wnba-wnbpa-new-cba-details-labor-contract-2026/
 
