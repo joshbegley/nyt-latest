@@ -1,3 +1,11 @@
+**Spring Awakening**\
+`Astronomical spring began yesterday, but the actual change of season is more gradual, a halting and nonlinear progression.`\
+https://nytimes.com/2026/03/21/briefing/spring-awakening.html
+
+**One reason BTS went on hiatus? To do military service.**\
+`By Choe Sang-Hun`\
+https://nytimes.com/live/2026/03/21/world/bts-netflix-concert-arirang/bts-why-hiatus
+
 **After 1,611 games, LeBron James is still proving the same thing**\
 `After 23 seasons and 1600-plus games, LeBron James still values what's always mattered most: being available. `\
 https://nytimes.com/athletic/7128986/2026/03/21/lebron-james-robert-parish-record-nba-games/

@@ -1,3 +1,11 @@
+**Spring Awakening**\
+`Astronomical spring began yesterday, but the actual change of season is more gradual, a halting and nonlinear progression.`\
+https://nytimes.com/2026/03/21/briefing/spring-awakening.html
+
+**One reason BTS went on hiatus? To do military service.**\
+`By Choe Sang-Hun`\
+https://nytimes.com/live/2026/03/21/world/bts-netflix-concert-arirang/bts-why-hiatus
+
 **After 1,611 games, LeBron James is still proving the same thing**\
 `After 23 seasons and 1600-plus games, LeBron James still values what's always mattered most: being available. `\
 https://nytimes.com/athletic/7128986/2026/03/21/lebron-james-robert-parish-record-nba-games/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7130719/2026/03/21/ferrari-f1-2026-mercedes-battle/
 **Nikolaj Ehlers isn't filling a top-line role, but the Hurricanes are better for it**\
 `The player known as "Jet" has brought a scoring boost to Carolina's checking line`\
 https://nytimes.com/athletic/7132039/2026/03/21/nikolaj-ehlers-hurricanes-scoring/
-
-**From pro to high school athletes, injury recovery is as much a mental challenge as physical**\
-`Because adolescents face injury rates nearly triple those of adults, the mental side of rehab is especially important.`\
-https://nytimes.com/athletic/7134049/2026/03/21/youth-sports-injury-recovery-rehab-mental-challenge/
-
-**I’m the Family Breadwinner. Do I Have to Fund My Wife’s Bad Habit?**\
-`I have never said no to something she has asked for, and this is creating a division between us.`\
-https://nytimes.com/2026/03/21/magazine/family-breadwinner-bad-habits-ethics.html
 
