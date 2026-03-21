@@ -1,3 +1,7 @@
+**Robert S. Mueller III, 81, Dies; Rebuilt F.B.I. and Led Trump Inquiry**\
+`After he concluded that Russia had interfered in the 2016 election, he became a target of the president’s anger.`\
+https://nytimes.com/2026/03/21/us/politics/robert-s-mueller-dead.html
+
 **Internet Blackout Keeps Iranians From Reaching Loved Ones During New Year Holiday**\
 `The current restrictions on the internet in Iran are coinciding with Nowruz, the observance of the Persian New Year.`\
 https://nytimes.com/2026/03/21/world/middleeast/iran-war-nowruz-internet-blackout.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7136556/2026/03/21/clippers-vs-mavericks-stream-how
 **How to watch Pacers vs. Spurs: Time, TV, streaming**\
 `Find out how to watch the Indiana Pacers play the San Antonio Spurs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136554/2026/03/21/pacers-vs-spurs-stream-how-to-watch-march-21/
-
-**How to watch Heat vs. Rockets: Time, TV, streaming**\
-`Find out how to watch the Miami Heat play the Houston Rockets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136552/2026/03/21/heat-vs-rockets-stream-how-to-watch-march-21/
 
