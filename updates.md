@@ -1,3 +1,7 @@
+**Down two players, shorthanded Portland Thorns shut out Seattle Reign in Cascadia Rivalry**\
+`With only nine players on the pitch, the Thorns managed to score twice in the first half and keep Seattle's offense quiet. `\
+https://nytimes.com/athletic/7135800/2026/03/21/shorthanded-portland-thorns-beat-seattle-reign-despite-two-red-cards/
+
 **Ricky Hatton, CTE and mental health: Does boxing do enough to look after its retired fighters?**\
 `The inquest into Hatton's death thrust the focus on how boxing struggles to care for retired fighters, but there are those battling for them`\
 https://nytimes.com/athletic/7133493/2026/03/21/boxing-hatton-cte-care-bbbofc-charity/
