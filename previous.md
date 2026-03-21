@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Francesca Regalado, Alan Rappeport, David E. Sanger and Aaron Boxerman`\
+https://nytimes.com/live/2026/03/21/world/iran-war-oil-trump/heres-the-latest
+
+**Iran War Live Updates: Israel Launches Attacks in Lebanon as Iran Fires on U.S. Allies**\
+`The United States temporarily lifted sanctions on some Iranian oil in an effort to ease surging global oil prices.`\
+https://nytimes.com/live/2026/03/21/world/iran-war-oil-trump
+
 **How to watch Howard vs. Ohio State women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Howard Bison play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7135915/2026/03/21/howard-vs-ohio-state-stream-how-to-watch-march-21/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/21/nyregion/one-year-after-trumps-400-million-ultima
 **Chris Wood’s return to fitness could not be more timely for Nottingham Forest**\
 `After 215 days on the side-lines, the Forest striker returned to action on Friday evening in a B-team game against Newcastle at Loughborough`\
 https://nytimes.com/athletic/7135128/2026/03/21/chris-wood-fitness-injury-return-forest/
-
-**For Arsenal and Arteta, Sunday's Carabao Cup final is 'showtime'. A win could launch them into a new era**\
-`Sunday's match against Manchester City feels like a moment to unlock this club's potential, to set the fuse on their cannon emblem alight`\
-https://nytimes.com/athletic/7134373/2026/03/21/arsenal-arteta-carabao-cup-final/
-
-**What do West Ham's Great Escapers from 2007 make of the current crop?**\
-`Matthew Etherington, Hayden Mullins and Teddy Sheringham on the 2006-07 season and whether today's team can mirror their heroics`\
-https://nytimes.com/athletic/7125014/2026/03/21/west-ham-2007-great-escape/
 

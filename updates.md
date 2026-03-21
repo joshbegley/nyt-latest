@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Francesca Regalado, Alan Rappeport, David E. Sanger and Aaron Boxerman`\
+https://nytimes.com/live/2026/03/21/world/iran-war-oil-trump/heres-the-latest
+
+**Iran War Live Updates: Israel Launches Attacks in Lebanon as Iran Fires on U.S. Allies**\
+`The United States temporarily lifted sanctions on some Iranian oil in an effort to ease surging global oil prices.`\
+https://nytimes.com/live/2026/03/21/world/iran-war-oil-trump
+
 **How to watch Howard vs. Ohio State women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Howard Bison play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7135915/2026/03/21/howard-vs-ohio-state-stream-how-to-watch-march-21/
