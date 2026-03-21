@@ -1,3 +1,11 @@
+**How to watch Princeton vs. Oklahoma State women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Princeton Tigers play the Oklahoma State Cowgirls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136370/2026/03/21/princeton-vs-oklahoma-state-stream-how-to-watch-march-21/
+
+**How to watch High Point vs. Vanderbilt women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the High Point Panthers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136368/2026/03/21/high-point-vs-vanderbilt-stream-how-to-watch-march-21/
+
 **How to watch Blues vs. Canucks: Time, TV, streaming**\
 `Find out how to watch the St. Louis Blues play the Vancouver Canucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136321/2026/03/21/blues-vs-canucks-stream-how-to-watch-march-21/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7136263/2026/03/21/lakers-vs-magic-stream-how-to-wa
 **How to watch Cavaliers vs. Pelicans: Time, TV, streaming**\
 `Find out how to watch the Cleveland Cavaliers play the New Orleans Pelicans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136261/2026/03/21/cavaliers-vs-pelicans-stream-how-to-watch-march-21/
-
-**A Striking One-Pot Chicken and Rice for Your Saturday**\
-`Chicken and saffron rice with pomegranate salsa, to be exact.`\
-https://nytimes.com/2026/03/21/dining/a-striking-one-pot-chicken-and-rice-for-your-saturday.html
-
-**The Briefing: Brighton 2 Liverpool 1 - Champions League hangover? Defensive errors? Ekitike injury?**\
-`Liverpool lost 2-1 to Brighton on Saturday afternoon — The Athletic's Gregg Evans breaks down the game`\
-https://nytimes.com/athletic/7126415/2026/03/21/brighton-liverpool-score-result-report-analysis/
 
