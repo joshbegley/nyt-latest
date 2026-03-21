@@ -1,3 +1,15 @@
+**How to watch Syracuse vs. Iowa State women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Syracuse Orange play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136197/2026/03/21/syracuse-vs-iowa-state-stream-how-to-watch-march-21/
+
+**How to watch Fairleigh Dickinson vs. Iowa women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Fairleigh Dickinson Knights play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136191/2026/03/21/fairleigh-dickinson-vs-iowa-stream-how-to-watch-march-21/
+
+**How to watch Miami (OH) vs. West Virginia women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Miami (OH) RedHawks play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136189/2026/03/21/miami-oh-vs-west-virginia-stream-how-to-watch-march-21/
+
 **How to watch Kraken vs. Blue Jackets: Time, TV, streaming**\
 `Find out how to watch the Seattle Kraken play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136160/2026/03/21/kraken-vs-blue-jackets-stream-how-to-watch-march-21/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7135832/2026/03/21/denver-nuggets-nikola-jokic-jama
 **How to watch Valencia vs. Sevilla in the U.S.**\
 `Find out how to watch Valencia play Sevilla, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136099/2026/03/21/valencia-vs-sevilla-stream-how-to-watch-march-21/
-
-**How to watch Thunder vs. Wizards: Time, TV, streaming**\
-`Find out how to watch the Oklahoma City Thunder play the Washington Wizards, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136068/2026/03/21/thunder-vs-wizards-stream-how-to-watch-march-21/
-
-**Middle East War Leaves Hamas Balancing Allies on Opposite Sides**\
-`The Palestinian militant group, which has ties to both Iran and Qatar, is “walking on a knife’s edge,” an analyst said.`\
-https://nytimes.com/2026/03/21/world/middleeast/middle-east-war-hamas-iran-qatar.html
-
-**Iranian Man Arrested After Trying to Enter U.K. Naval Base, Police Say**\
-`The man and a Romanian woman walked up to the gate of the base in Scotland, where nuclear-armed submarines are docked, and asked to be let in, an official said.`\
-https://nytimes.com/2026/03/21/world/europe/iran-scotland-naval-base-clyde.html
 

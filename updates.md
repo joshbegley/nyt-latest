@@ -1,3 +1,15 @@
+**How to watch Syracuse vs. Iowa State women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Syracuse Orange play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136197/2026/03/21/syracuse-vs-iowa-state-stream-how-to-watch-march-21/
+
+**How to watch Fairleigh Dickinson vs. Iowa women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Fairleigh Dickinson Knights play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136191/2026/03/21/fairleigh-dickinson-vs-iowa-stream-how-to-watch-march-21/
+
+**How to watch Miami (OH) vs. West Virginia women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Miami (OH) RedHawks play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136189/2026/03/21/miami-oh-vs-west-virginia-stream-how-to-watch-march-21/
+
 **How to watch Kraken vs. Blue Jackets: Time, TV, streaming**\
 `Find out how to watch the Seattle Kraken play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136160/2026/03/21/kraken-vs-blue-jackets-stream-how-to-watch-march-21/
