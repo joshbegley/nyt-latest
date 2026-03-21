@@ -1,3 +1,7 @@
+**San Francisco Driver Gets Probation After Killing a Family of 4**\
+`Mary Fong Lau, 80, will perform 200 hours of community service as part of her sentence. Her speeding vehicle crashed into a family as they waited for a bus ride to the zoo in 2024.`\
+https://nytimes.com/2026/03/20/us/san-francisco-crash-sentence.html
+
 **Pistons' rapid rise continues as they become first East team to clinch playoff spot**\
 `Two seasons ago, the Pistons were the worst team in the NBA and lost 28 straight games. They're now at the top of the Eastern Conference.`\
 https://nytimes.com/athletic/7135570/2026/03/20/pistons-clinch-playoff-spot-eastern-conference-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/20/world/middleeast/trump-winding-down-iran-war.html
 **WNBA salaries set to top $1M: How new CBA transforms player pay**\
 `Salaries will spike to record highs in the new WNBA CBA with an average salary of $583,000 for the 2026 season.`\
 https://nytimes.com/athletic/7135440/2026/03/20/wnba-cba-players-salary-increase-revenue-share/
-
-**Term sheet outlines key details of new CBA for WNBA players after monthslong negotiations**\
-`The league announced key details of the new union contract, including salary caps, housing and awards bonuses. `\
-https://nytimes.com/athletic/7135378/2026/03/20/wnba-wnbpa-new-cba-details-labor-contract-2026/
 

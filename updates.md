@@ -1,3 +1,7 @@
+**San Francisco Driver Gets Probation After Killing a Family of 4**\
+`Mary Fong Lau, 80, will perform 200 hours of community service as part of her sentence. Her speeding vehicle crashed into a family as they waited for a bus ride to the zoo in 2024.`\
+https://nytimes.com/2026/03/20/us/san-francisco-crash-sentence.html
+
 **Pistons' rapid rise continues as they become first East team to clinch playoff spot**\
 `Two seasons ago, the Pistons were the worst team in the NBA and lost 28 straight games. They're now at the top of the Eastern Conference.`\
 https://nytimes.com/athletic/7135570/2026/03/20/pistons-clinch-playoff-spot-eastern-conference-nba/
