@@ -1,3 +1,15 @@
+**Hubert Davis' future in doubt at UNC after first-round collapse: Sources**\
+`One major consideration in what UNC does next, sources said, is apprehension by donors about the level of support should Davis be retained.`\
+https://nytimes.com/athletic/7136859/2026/03/21/unc-basketball-coach-hubert-davis-status-news/
+
+**Josh Kerr beats Cole Hocker in sprint finish to regain 3,000m world indoor title**\
+`Kerr's winning time of 7:35.56s was 0.14s quicker than American Cole Hocker.`\
+https://nytimes.com/athletic/7136826/2026/03/21/josh-kerr-cole-hocker-world-indoor-race/
+
+**Man United's Jim Ratcliffe taking legal action against Ben Ainsley over '£180m boat'**\
+`Ratcliffe's company, INEOS, has said it is taking legal action against Ainsley's Athena Racing to force them to return the boat`\
+https://nytimes.com/athletic/7136671/2026/03/21/man-united-jim-ratcliffe-boat-americas-cup-ainsley/
+
 **Ehammer breaks the heptathlon world record in world indoor final**\
 `Ehammer’s total of 6670 points in Torun, Poland, was clinched with a 2:41.04s personal best over 1,000m in the final event.`\
 https://nytimes.com/athletic/7136690/2026/03/21/simon-ehammer-world-record-indoor-championship-heptathlon/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7136833/2026/03/21/high-point-vs-arkansas-stream-ho
 **How to watch Cal Baptist vs. UCLA women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Cal Baptist Lancers play the UCLA Bruins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136815/2026/03/21/cal-baptist-vs-ucla-stream-how-to-watch-march-21/
-
-**Trump Is Finally Eyeing an Exit From Iran. But Will He Take It?**\
-`President Trump says he is considering “winding down” operations in Iran. But many of his original war goals remain unaccomplished.`\
-https://nytimes.com/2026/03/21/us/politics/trump-iran-offramp.html
-
-**The Briefing: Everton 3 Chelsea 0: Defensive disaster, Lavia conundrum, pressure mounts on Rosenior**\
-`Chelsea lost 3-0 to Everton in a huge blow to their Champions League hopes. Here, Simon Johnson breaks down the key moments.`\
-https://nytimes.com/athletic/7128039/2026/03/21/everton-3-chelsea-0-premier-league-result-rosenior/
-
-**With Fire and Song, Kurds in Turkey Hail the Start of Spring**\
-`The Newroz holiday comes at a critical time, as Kurds in Turkey push for peace while their brethren in Syria and Iran fear further conflict.`\
-https://nytimes.com/2026/03/21/world/middleeast/kurds-turkey-newroz-iran.html
 
