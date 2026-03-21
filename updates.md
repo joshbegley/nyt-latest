@@ -1,3 +1,11 @@
+**How to watch Princeton vs. Oklahoma State women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Princeton Tigers play the Oklahoma State Cowgirls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136370/2026/03/21/princeton-vs-oklahoma-state-stream-how-to-watch-march-21/
+
+**How to watch High Point vs. Vanderbilt women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the High Point Panthers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136368/2026/03/21/high-point-vs-vanderbilt-stream-how-to-watch-march-21/
+
 **How to watch Blues vs. Canucks: Time, TV, streaming**\
 `Find out how to watch the St. Louis Blues play the Vancouver Canucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136321/2026/03/21/blues-vs-canucks-stream-how-to-watch-march-21/

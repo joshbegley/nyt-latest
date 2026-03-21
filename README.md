@@ -1,3 +1,15 @@
+**How to watch Texas A&M vs. Houston men's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Texas A&M Aggies play the Houston Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136394/2026/03/21/texas-a-m-vs-houston-stream-how-to-watch-march-21/
+
+**How to watch Texas vs. Gonzaga men's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Texas Longhorns play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136386/2026/03/21/texas-vs-gonzaga-stream-how-to-watch-march-21/
+
+**What Is the Left’s Theory of Power?**\
+`The constitutional strength of a functional Congress.`\
+https://nytimes.com/2026/03/21/opinion/democrats-congress-constitution-power-maga.html
+
 **How to watch Princeton vs. Oklahoma State women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Princeton Tigers play the Oklahoma State Cowgirls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136370/2026/03/21/princeton-vs-oklahoma-state-stream-how-to-watch-march-21/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7136306/2026/03/21/maple-leafs-vs-senators-stream-h
 **Mets announce starting rotation, shift Sean Manaea to bullpen role**\
 `Manaea is expected to work in a piggyback role behind the Mets' five-man starting rotation.`\
 https://nytimes.com/athletic/7136256/2026/03/21/mets-pitching-starting-rotation-sean-manaea/
-
-**How to watch Grizzlies vs. Hornets: Time, TV, streaming**\
-`Find out how to watch the Memphis Grizzlies play the Charlotte Hornets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136265/2026/03/21/grizzlies-vs-hornets-stream-how-to-watch-march-21/
-
-**How to watch Lakers vs. Magic: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Lakers play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136263/2026/03/21/lakers-vs-magic-stream-how-to-watch-march-21/
-
-**How to watch Cavaliers vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Cleveland Cavaliers play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136261/2026/03/21/cavaliers-vs-pelicans-stream-how-to-watch-march-21/
 
