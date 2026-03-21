@@ -1,3 +1,11 @@
+**How to watch Howard vs. Ohio State women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Howard Bison play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7135915/2026/03/21/howard-vs-ohio-state-stream-how-to-watch-march-21/
+
+**Amid the chaos, there are reasons for Man Utd to be optimistic**\
+`Manchester United were held to a 2-2 draw by Bournemouth on Friday evening — but Michael Carrick is shaping this team`\
+https://nytimes.com/athletic/7127906/2026/03/21/manchester-united-bournemouth-analysis-michael-carrick/
+
 **Chris Wood’s return to fitness could not be more timely for Nottingham Forest**\
 `After 215 days on the side-lines, the Forest striker returned to action on Friday evening in a B-team game against Newcastle at Loughborough`\
 https://nytimes.com/athletic/7135128/2026/03/21/chris-wood-fitness-injury-return-forest/
