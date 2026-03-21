@@ -1,3 +1,11 @@
+**UCLA's Skyy Clark takes late-night trip to dentist after chipping tooth vs. UCF**\
+`'I had planned to get some dental work anyway,' Clark said. 'So it's all good.'`\
+https://nytimes.com/athletic/7135606/2026/03/20/ucla-skyy-clark-chipped-tooth-ucf/
+
+**Pete Crow-Armstrong talks loss to Venezuela, WBC crowds, 2028 Olympics**\
+`The Cubs star appreciated the atmosphere of the World Baseball Classic. "That’s something I would do 10 times out of 10," he said.`\
+https://nytimes.com/athletic/7135615/2026/03/20/pete-crow-armstrong-wbc-cubs-daniel-palencia/
+
 **Tennessee suffers rare first-round NCAA Tournament loss, caps disappointing season**\
 `Tennessee went without a win in March for the first time in program history, and it lost in the NCAA first round for only the third time.`\
 https://nytimes.com/athletic/7135672/2026/03/20/tennessee-loss-first-round-ncaa-tournament-loss-nc-state/

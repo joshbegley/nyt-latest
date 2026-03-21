@@ -1,5 +1,9 @@
-**Pete Crow-Armstrong talks WBC loss to Venezuela, Cubs teammate Daniel Palencia**\
-`The Cubs star was all-in on playing for Team USA at the 2028 Olympics days after the World Baseball Classic loss to Venezuela.`\
+**UCLA's Skyy Clark takes late-night trip to dentist after chipping tooth vs. UCF**\
+`'I had planned to get some dental work anyway,' Clark said. 'So it's all good.'`\
+https://nytimes.com/athletic/7135606/2026/03/20/ucla-skyy-clark-chipped-tooth-ucf/
+
+**Pete Crow-Armstrong talks loss to Venezuela, WBC crowds, 2028 Olympics**\
+`The Cubs star appreciated the atmosphere of the World Baseball Classic. "That’s something I would do 10 times out of 10," he said.`\
 https://nytimes.com/athletic/7135615/2026/03/20/pete-crow-armstrong-wbc-cubs-daniel-palencia/
 
 **Tennessee suffers rare first-round NCAA Tournament loss, caps disappointing season**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/20/arts/television/nicholas-brendon-dead.html
 **Striking Down Pentagon Press Limits, Judge Vindicates Independent Journalism**\
 `The ruling cut deeper than left-versus-right politics, declaring that the policy imposed by Defense Secretary Pete Hegseth is unconstitutional.`\
 https://nytimes.com/2026/03/20/us/federal-judge-constitution-press-freedom.html
-
-**U.S. flag football's exhibition vs. NFL players carries big Olympic implications**\
-`Is the U.S. flag football team really better than NFL players at flag? Saturday will give us our first clues toward finding out.`\
-https://nytimes.com/athletic/7135479/2026/03/20/flag-football-nfl-olympics-fanatics-tom-brady-exhibition/
 
