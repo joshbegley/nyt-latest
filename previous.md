@@ -18,13 +18,13 @@ https://nytimes.com/2026/03/21/world/asia/sri-lanka-public-holiday-oil-war.html
 `Corrections that appeared in print on Saturday, March 21, 2026.`\
 https://nytimes.com/2026/03/21/pageoneplus/corrections-march-21-2026.html
 
-**Copenhagen Grapples With the Abuse Allegations Against Noma’s Chef**\
-`René Redzepi faced swift fallout in the United States following reports of violence. But in Denmark, where he is a major cultural figure, the reaction has been more muted.`\
-https://nytimes.com/2026/03/21/dining/noma-abuse-copenhagen.html
-
 **Laid Off in Midlife, China’s Reform Generation Braces for Downward Mobility**\
 `The future once seemed boundless for those who grew up during China’s reform era. Now in middle age, they are pinned between economic stagnation and institutional age discrimination.`\
 https://nytimes.com/2026/03/21/business/laid-off-in-midlife-chinas-reform-generation-braces-for-downward-mobility.html
+
+**Copenhagen Grapples With the Abuse Allegations Against Noma’s Chef**\
+`René Redzepi faced swift fallout in the United States following reports of violence. But in Denmark, where he is a major cultural figure, the reaction has been more muted.`\
+https://nytimes.com/2026/03/21/dining/noma-abuse-copenhagen.html
 
 **Quote of the Day: Nonhumans Are Pitching Supplements**\
 `Quotation of the Day for Saturday, March 21, 2026.`\
