@@ -1,3 +1,7 @@
+**Chris Wood’s return to fitness could not be more timely for Nottingham Forest**\
+`After 215 days on the side-lines, the Forest striker returned to action on Friday evening in a B-team game against Newcastle at Loughborough`\
+https://nytimes.com/athletic/7135128/2026/03/21/chris-wood-fitness-injury-return-forest/
+
 **Man Utd might have had another chaotic draw, but there are reasons for calm and optimism**\
 `Manchester United were held to a 2-2 draw by Bournemouth on Friday evening — but there are positives to be taken`\
 https://nytimes.com/athletic/7127906/2026/03/21/manchester-united-bournemouth-analysis-michael-carrick/

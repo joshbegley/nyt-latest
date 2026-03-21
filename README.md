@@ -1,5 +1,9 @@
-**Man Utd might have had another chaotic draw, but there are reasons for calm and optimism**\
-`Manchester United were held to a 2-2 draw by Bournemouth on Friday evening — but there are positives to be taken`\
+**How to watch Howard vs. Ohio State women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Howard Bison play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7135915/2026/03/21/howard-vs-ohio-state-stream-how-to-watch-march-21/
+
+**Amid the chaos, there are reasons for Man Utd to be optimistic**\
+`Manchester United were held to a 2-2 draw by Bournemouth on Friday evening — but Michael Carrick is shaping this team`\
 https://nytimes.com/athletic/7127906/2026/03/21/manchester-united-bournemouth-analysis-michael-carrick/
 
 **Sanders Will Rally for N.Y. Tax Increase. Mamdani Does Not Plan to Join.**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7134373/2026/03/21/arsenal-arteta-carabao-cup-final
 **What do West Ham's Great Escapers from 2007 make of the current crop?**\
 `Matthew Etherington, Hayden Mullins and Teddy Sheringham on the 2006-07 season and whether today's team can mirror their heroics`\
 https://nytimes.com/athletic/7125014/2026/03/21/west-ham-2007-great-escape/
-
-**Former Nigeria captain William Troost-Ekong: "It is going to take time to rebuild AFCON's reputation"**\
-`The ex-Nigeria star says Senegal being stripped of their title leaves African football having to rebuild its reputation`\
-https://nytimes.com/athletic/7134410/2026/03/21/william-troost-ekong-afcon-final/
 

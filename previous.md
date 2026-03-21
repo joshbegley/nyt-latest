@@ -23,7 +23,7 @@ https://nytimes.com/2026/03/21/nyregion/fearing-chaos-of-climate-change-some-see
 https://nytimes.com/2026/03/21/nyregion/one-year-after-trumps-400-million-ultimatum-a-different-columbia.html
 
 **Chris Wood’s return to fitness could not be more timely for Nottingham Forest**\
-`After 215 days on the side-lines, the Forest striker returned to action on Friday evening in a B team game against Newcastle at Loughborough`\
+`After 215 days on the side-lines, the Forest striker returned to action on Friday evening in a B-team game against Newcastle at Loughborough`\
 https://nytimes.com/athletic/7135128/2026/03/21/chris-wood-fitness-injury-return-forest/
 
 **For Arsenal and Arteta, Sunday's Carabao Cup final is 'showtime'. A win could launch them into a new era**\
