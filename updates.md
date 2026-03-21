@@ -1,3 +1,11 @@
+**Pete Crow-Armstrong talks WBC loss to Venezuela, Cubs teammate Daniel Palencia**\
+`The Cubs star was all-in on playing for Team USA at the 2028 Olympics days after the World Baseball Classic loss to Venezuela.`\
+https://nytimes.com/athletic/7135615/2026/03/20/pete-crow-armstrong-wbc-cubs-daniel-palencia/
+
+**Tennessee suffers rare first-round NCAA Tournament loss, caps disappointing season**\
+`Tennessee went without a win in March for the first time in program history, and it lost in the first round of only the third time.`\
+https://nytimes.com/athletic/7135672/2026/03/20/tennessee-loss-first-round-ncaa-tournament-loss-nc-state/
+
 **Carlos Alcaraz stops João Fonseca's Miami party, but Brazilian sensation is in for the long haul**\
 `Alcaraz and Jannik Sinner have shown Fonseca that there are levels to this sport the past 10 days. The Brazilian is ready to climb.`\
 https://nytimes.com/athletic/7135577/2026/03/20/tennis-alcaraz-fonseca-miami-open/

@@ -1,3 +1,11 @@
+**Pete Crow-Armstrong talks WBC loss to Venezuela, Cubs teammate Daniel Palencia**\
+`The Cubs star was all-in on playing for Team USA at the 2028 Olympics days after the World Baseball Classic loss to Venezuela.`\
+https://nytimes.com/athletic/7135615/2026/03/20/pete-crow-armstrong-wbc-cubs-daniel-palencia/
+
+**Tennessee suffers rare first-round NCAA Tournament loss, caps disappointing season**\
+`Tennessee went without a win in March for the first time in program history, and it lost in the first round of only the third time.`\
+https://nytimes.com/athletic/7135672/2026/03/20/tennessee-loss-first-round-ncaa-tournament-loss-nc-state/
+
 **Carlos Alcaraz stops João Fonseca's Miami party, but Brazilian sensation is in for the long haul**\
 `Alcaraz and Jannik Sinner have shown Fonseca that there are levels to this sport the past 10 days. The Brazilian is ready to climb.`\
 https://nytimes.com/athletic/7135577/2026/03/20/tennis-alcaraz-fonseca-miami-open/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/20/us/federal-judge-constitution-press-freedom.html
 **U.S. flag football's exhibition vs. NFL players carries big Olympic implications**\
 `Is the U.S. flag football team really better than NFL players at flag? Saturday will give us our first clues toward finding out.`\
 https://nytimes.com/athletic/7135479/2026/03/20/flag-football-nfl-olympics-fanatics-tom-brady-exhibition/
-
-**NCAA sues DraftKings for trademark infringement over use of March Madness, other terms**\
-`The NCAA has pushed hard to limit the types of bets sportsbooks offer on college events.`\
-https://nytimes.com/athletic/7135474/2026/03/20/ncaa-sues-draftkings-trademark-infringement/
-
-**Trump Signals Retreat From Goal of Regime Change in Iran**\
-`In the first days of the U.S.-Israeli campaign against Iran, Mr. Trump pressed for a popular uprising against Tehran’s government.`\
-https://nytimes.com/2026/03/20/world/middleeast/trump-winding-down-iran-war.html
 
