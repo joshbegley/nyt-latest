@@ -1,3 +1,7 @@
+**Patriarch Filaret, Orthodox Christian Leader Who Defied Russia, Dies at 97**\
+`Filaret led a movement in Ukraine that created a schism among Orthodox believers and, ultimately, a church independent of Moscow.`\
+https://nytimes.com/2026/03/21/world/europe/patriarch-filaret-dead.html
+
 **How to watch Vanderbilt vs. Nebraska men's basketball: Second Round Time, TV, streaming**\
 `Find out how to watch the Vanderbilt Commodores play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136659/2026/03/21/vanderbilt-vs-nebraska-stream-how-to-watch-march-21/

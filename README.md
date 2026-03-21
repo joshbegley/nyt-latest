@@ -1,3 +1,7 @@
+**Anton Fröndell expected to join Blackhawks after SHL season ends**\
+`Anton Frondell became just the fourth 18-year-old to score 20 goals in the SHL and the first since Daniel Sedin did it in the 1998-99 season`\
+https://nytimes.com/athletic/7136570/2026/03/21/anton-frondell-blackhawks-season/
+
 **Patriarch Filaret, Orthodox Christian Leader Who Defied Russia, Dies at 97**\
 `Filaret led a movement in Ukraine that created a schism among Orthodox believers and, ultimately, a church independent of Moscow.`\
 https://nytimes.com/2026/03/21/world/europe/patriarch-filaret-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7136596/2026/03/21/bruins-vs-red-wings-stream-how-t
 **Red Sox name Marcelo Mayer second baseman, send Kristian Campbell to minors**\
 `Mayer's rise up the infield depth chart had been apparent for weeks, but manager Alex Cora said the delayed announcement was intentional.`\
 https://nytimes.com/athletic/7136232/2026/03/21/red-sox-marcelo-mayer-second-base/
-
-**South Carolina, baseball coach Paul Mainieri part ways 23 games into his second season**\
-`South Carolina went 6-24 in the SEC in 2025 and was off to an 0-4 start in 2026. `\
-https://nytimes.com/athletic/7136531/2026/03/21/paul-mainieri-south-carolina-baseball-out/
 
