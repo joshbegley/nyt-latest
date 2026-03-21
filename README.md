@@ -1,3 +1,7 @@
+**Down two players, shorthanded Portland Thorns shut out Seattle Reign in Cascadia Rivalry**\
+`With only nine players on the pitch, the Thorns managed to score twice in the first half and keep Seattle's offense quiet. `\
+https://nytimes.com/athletic/7135800/2026/03/21/shorthanded-portland-thorns-beat-seattle-reign-despite-two-red-cards/
+
 **Ricky Hatton, CTE and mental health: Does boxing do enough to look after its retired fighters?**\
 `The inquest into Hatton's death thrust the focus on how boxing struggles to care for retired fighters, but there are those battling for them`\
 https://nytimes.com/athletic/7133493/2026/03/21/boxing-hatton-cte-care-bbbofc-charity/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/21/pageoneplus/corrections-march-21-2026.html
 **Laid Off in Midlife, China’s Reform Generation Braces for Downward Mobility**\
 `The future once seemed boundless for those who grew up during China’s reform era. Now in middle age, they are pinned between economic stagnation and institutional age discrimination.`\
 https://nytimes.com/2026/03/21/business/laid-off-in-midlife-chinas-reform-generation-braces-for-downward-mobility.html
-
-**Copenhagen Grapples With the Abuse Allegations Against Noma’s Chef**\
-`René Redzepi faced swift fallout in the United States following reports of violence. But in Denmark, where he is a major cultural figure, the reaction has been more muted.`\
-https://nytimes.com/2026/03/21/dining/noma-abuse-copenhagen.html
 
