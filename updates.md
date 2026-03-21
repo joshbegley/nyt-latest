@@ -1,3 +1,19 @@
+**How to watch Southern vs. South Carolina women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Southern Jaguars play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7135949/2026/03/21/southern-vs-south-carolina-stream-how-to-watch-march-21/
+
+**How to watch Vermont vs. Louisville women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Vermont Catamounts play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7135947/2026/03/21/vermont-vs-louisville-stream-how-to-watch-march-21/
+
+**How to watch Virginia vs. Georgia women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Virginia Cavaliers play the Georgia Lady Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7135945/2026/03/21/virginia-vs-georgia-stream-how-to-watch-march-21/
+
+**The unlikely superpowers of Saint Louis cult sensation Robbie Avila**\
+`Avila, the star of many nicknames such as Cream Abdul-Jabbar, will likely be the most important player on the floor in Saint Louis-Michigan.`\
+https://nytimes.com/athletic/7135590/2026/03/21/robbie-avila-saint-louis-michigan-ncaa-tournament-nicknames/
+
 **How to watch Jets vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the Winnipeg Jets play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7135942/2026/03/21/jets-vs-penguins-stream-how-to-watch-march-21/
