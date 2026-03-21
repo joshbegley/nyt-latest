@@ -1,3 +1,7 @@
+**Bellingham set for Madrid derby return, Mbappe '100 per cent' fit**\
+`Alvaro Arbeloa confirmed Bellingham's return after seven weeks out with a hamstring injury.`\
+https://nytimes.com/athletic/7135967/2026/03/21/jude-bellingham-real-madrid-injury-return/
+
 **How the Senators are cracking down on rival fans invading home games**\
 `Ottawa has given season ticket holders access to extra seats for rivalry games at Canadian Tire Centre — but there's one catch.`\
 https://nytimes.com/athletic/7108830/2026/03/21/senators-maple-leafs-canadiens-rivalry-tickets-fans/
@@ -5,6 +9,10 @@ https://nytimes.com/athletic/7108830/2026/03/21/senators-maple-leafs-canadiens-r
 **Japan win Women's Asian Cup with victory over Australia**\
 `Maika Hamano's superb first-half strike was the difference between the two sides.`\
 https://nytimes.com/athletic/7135940/2026/03/21/japan-womens-asian-cup-final-australia/
+
+**What I’m seeing at Blue Jays spring training: A healthy Max Scherzer, a bullpen weapon**\
+`Max Scherzer is in regular-season form, and the Blue Jays have plenty of depth in their bullpen to begin their season March 27.`\
+https://nytimes.com/athletic/7135622/2026/03/21/blue-jays-spring-training-max-scherzer-pitching-bullpen/
 
 **Justin Crawford earning the Phillies' trust as his MLB debut draws closer**\
 `Crawford isn't officially on the Opening Day roster yet, but he and the Phillies are ready for his debut.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/21/opinion/jeremy-o-harris-sam-altman.html
 **Americans Deserve the Truth About Iran**\
 `Whatever short-term gain the president thinks he is getting by lying about the war in Iran is far exceeded by the cost, for him, the country and the world.`\
 https://nytimes.com/2026/03/21/opinion/iran-war-trump-lying.html
-
-**Trump’s Recklessness Will ‘Haunt Us for a Generation’**\
-`Three Opinion writers on Iran, the SAVE America Act and the president’s folly.`\
-https://nytimes.com/2026/03/21/opinion/trump-iran-save-act-reckless.html
-
-**What I'm seeing in Arizona: Chase Petty, Luis Hernández shine in Breakout Game**\
-`The Giants were missing several of their top prospects, but Dakota Jordan impressed, while the Reds had several strong performances.`\
-https://nytimes.com/athletic/7135547/2026/03/21/mlb-prospect-scouting-spring-breakout-san-francisco-giants-cincinnati-reds/
 

@@ -1,3 +1,11 @@
+**Bellingham set for Madrid derby return, Mbappe '100 per cent' fit**\
+`Alvaro Arbeloa confirmed Bellingham's return after seven weeks out with a hamstring injury.`\
+https://nytimes.com/athletic/7135967/2026/03/21/jude-bellingham-real-madrid-injury-return/
+
+**What I’m seeing at Blue Jays spring training: A healthy Max Scherzer, a bullpen weapon**\
+`Max Scherzer is in regular-season form, and the Blue Jays have plenty of depth in their bullpen to begin their season March 27.`\
+https://nytimes.com/athletic/7135622/2026/03/21/blue-jays-spring-training-max-scherzer-pitching-bullpen/
+
 **How the Senators are cracking down on rival fans invading home games**\
 `Ottawa has given season ticket holders access to extra seats for rivalry games at Canadian Tire Centre — but there's one catch.`\
 https://nytimes.com/athletic/7108830/2026/03/21/senators-maple-leafs-canadiens-rivalry-tickets-fans/
