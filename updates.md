@@ -1,3 +1,15 @@
+**Ehammer breaks the heptathlon world record in world indoor final**\
+`Ehammer’s total of 6670 points in Torun, Poland, was clinched with a 2:41.04s personal best over 1,000m in the final event.`\
+https://nytimes.com/athletic/7136690/2026/03/21/simon-ehammer-world-record-indoor-championship-heptathlon/
+
+**Pirates reassign No. 1 prospect Konnor Griffin to minor-league camp**\
+`The 19-year-old shortstop is the consensus top prospect in baseball. The last teenager to start on Opening Day was Adrian Beltré in 1999. `\
+https://nytimes.com/athletic/7136473/2026/03/21/konnor-griffin-pirates-teenage-prospect-reassigned/
+
+**Women's NCAA Tournament first round takeaways: Virginia pulls out first upset in OT**\
+`How will NC State do if it can't bring back Brooks for the second round? `\
+https://nytimes.com/athletic/7136847/2026/03/21/womens-ncaa-tournament-takeaways-brooks-nc-state/
+
 **Women's NCAA Tournament first round takeaways: Will Zoe Brooks play for NC State?**\
 `How will NC State do if it can't bring back Brooks for the second round? `\
 https://nytimes.com/athletic/7136847/2026/03/21/womens-ncaa-tournament-takeaways-brooks-nc-state/

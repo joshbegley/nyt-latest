@@ -1,4 +1,12 @@
-**Women's NCAA Tournament first round takeaways: Will Zoe Brooks play for NC State?**\
+**Ehammer breaks the heptathlon world record in world indoor final**\
+`Ehammer’s total of 6670 points in Torun, Poland, was clinched with a 2:41.04s personal best over 1,000m in the final event.`\
+https://nytimes.com/athletic/7136690/2026/03/21/simon-ehammer-world-record-indoor-championship-heptathlon/
+
+**Pirates reassign No. 1 prospect Konnor Griffin to minor-league camp**\
+`The 19-year-old shortstop is the consensus top prospect in baseball. The last teenager to start on Opening Day was Adrian Beltré in 1999. `\
+https://nytimes.com/athletic/7136473/2026/03/21/konnor-griffin-pirates-teenage-prospect-reassigned/
+
+**Women's NCAA Tournament first round takeaways: Virginia pulls out first upset in OT**\
 `How will NC State do if it can't bring back Brooks for the second round? `\
 https://nytimes.com/athletic/7136847/2026/03/21/womens-ncaa-tournament-takeaways-brooks-nc-state/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7128039/2026/03/21/everton-3-chelsea-0-premier-leag
 **With Fire and Song, Kurds in Turkey Hail the Start of Spring**\
 `The Newroz holiday comes at a critical time, as Kurds in Turkey push for peace while their brethren in Syria and Iran fear further conflict.`\
 https://nytimes.com/2026/03/21/world/middleeast/kurds-turkey-newroz-iran.html
-
-**How to watch Lightning vs. Oilers: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Lightning play the Edmonton Oilers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136775/2026/03/21/lightning-vs-oilers-stream-how-to-watch-march-21/
-
-**Kendra Duggar, Wife of ‘19 Kids’ Star, Faces Child Endangerment Charges**\
-`Ms. Duggar was arrested two days after Joseph Duggar, a onetime star of the reality TV series “19 Kids and Counting,” was arrested in a sex abuse case. She appeared in the “Counting On” spinoff.`\
-https://nytimes.com/2026/03/21/us/kendra-joseph-dugger-misdemeanor-arrest.html
 
