@@ -1,3 +1,7 @@
+**Iranian Man Arrested After Trying to Enter U.K. Naval Base, Police Say**\
+`The man and a Romanian woman walked up to the gate of the base in Scotland, where nuclear-armed submarines are docked, and asked to be let in, an official said.`\
+https://nytimes.com/2026/03/21/world/europe/iran-scotland-naval-base-clyde.html
+
 **The director of the Netflix livestream is a veteran of the Oscars and the Super Bowl.**\
 `Hamish Hamilton, a multiple-time Emmy and BAFTA winner, is directing the Netflix broadcast of BTS’s comeback concert on Saturday.`\
 https://nytimes.com/live/2026/03/21/world/bts-netflix-concert-arirang/bts-hamish-hamilton-director
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7136022/2026/03/21/fairfield-vs-notre-dame-stream-h
 **How to watch USC vs. Clemson women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the USC Trojans play the Clemson Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7136018/2026/03/21/usc-vs-clemson-stream-how-to-watch-march-21/
-
-**How to watch JMU vs. Kentucky women's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the James Madison Dukes play the Kentucky Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136014/2026/03/21/jmu-vs-kentucky-stream-how-to-watch-march-21/
 
