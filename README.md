@@ -1,3 +1,7 @@
+**These BTS fans waited 15 hours to see their idols.**\
+`Those without tickets arrived at the venue before the sun rose on Saturday to stake out areas that offered unobstructed views of the stage.`\
+https://nytimes.com/live/2026/03/21/world/bts-netflix-concert-arirang/these-bts-fans-waited-15-hours-to-see-their-idols
+
 **How to watch Saint Louis vs. Michigan men's basketball: Second Round Time, TV, streaming**\
 `Find out how to watch the Saint Louis Billikens play the Michigan Wolverines, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7135962/2026/03/21/saint-louis-vs-michigan-stream-how-to-watch-march-21/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/21/magazine/richard-gadd-interview.html
 **Here’s the latest.**\
 `By Jin Yu Young`\
 https://nytimes.com/live/2026/03/21/world/bts-netflix-concert-arirang/heres-the-latest
-
-**Live Updates: BTS Takes the Stage After Nearly 4 Years**\
-`K-pop’s biggest name will perform live in Seoul at 8 p.m. South Korea time (7 a.m. Eastern). The concert will be livestreamed by Netflix.`\
-https://nytimes.com/live/2026/03/21/world/bts-netflix-concert-arirang
 
