@@ -1,3 +1,7 @@
+**How to watch Saint Louis vs. Michigan men's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Saint Louis Billikens play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7135962/2026/03/21/saint-louis-vs-michigan-stream-how-to-watch-march-21/
+
 **How to watch Southern vs. South Carolina women's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Southern Jaguars play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7135949/2026/03/21/southern-vs-south-carolina-stream-how-to-watch-march-21/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/21/world/bts-netflix-concert-arirang/heres-the-
 **Live Updates: BTS Takes the Stage After Nearly 4 Years**\
 `K-pop’s biggest name will perform live in Seoul at 8 p.m. South Korea time (7 a.m. Eastern). The concert will be livestreamed by Netflix.`\
 https://nytimes.com/live/2026/03/21/world/bts-netflix-concert-arirang
-
-**How to watch Getafe vs. Espanyol in the U.S.**\
-`Find out how to watch Getafe play Espanyol, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7135938/2026/03/21/getafe-vs-espanyol-stream-how-to-watch-march-21/
 
