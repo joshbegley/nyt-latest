@@ -1,3 +1,15 @@
+**How to watch Valencia vs. Sevilla in the U.S.**\
+`Find out how to watch Valencia play Sevilla, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136099/2026/03/21/valencia-vs-sevilla-stream-how-to-watch-march-21/
+
+**How to watch Thunder vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the Oklahoma City Thunder play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136068/2026/03/21/thunder-vs-wizards-stream-how-to-watch-march-21/
+
+**Middle East War Leaves Hamas Balancing Allies on Opposite Sides**\
+`The Palestinian militant group, which has ties to both Iran and Qatar, is “walking on a knife’s edge,” an analyst said.`\
+https://nytimes.com/2026/03/21/world/middleeast/middle-east-war-hamas-iran-qatar.html
+
 **Iranian Man Arrested After Trying to Enter U.K. Naval Base, Police Say**\
 `The man and a Romanian woman walked up to the gate of the base in Scotland, where nuclear-armed submarines are docked, and asked to be let in, an official said.`\
 https://nytimes.com/2026/03/21/world/europe/iran-scotland-naval-base-clyde.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2026/03/21/world/bts-netflix-concert-arirang/behind-the
 **Why BTS Is Promoting Its New Album at Home Before Going on Tour**\
 `The last time BTS released an album, it kicked off with appearances in New York before Seoul. This time it’s the other way around.`\
 https://nytimes.com/2026/03/21/arts/music/bts-arirang-korea-tour-fallon.html
-
-**How to watch Louisville vs. Michigan State men's basketball: Second Round Time, TV, streaming**\
-`Find out how to watch the Louisville Cardinals play the Michigan State Spartans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136031/2026/03/21/louisville-vs-michigan-state-stream-how-to-watch-march-21/
-
-**How to watch Fairfield vs. Notre Dame women's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Fairfield Stags play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136022/2026/03/21/fairfield-vs-notre-dame-stream-how-to-watch-march-21/
-
-**How to watch USC vs. Clemson women's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the USC Trojans play the Clemson Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136018/2026/03/21/usc-vs-clemson-stream-how-to-watch-march-21/
 
