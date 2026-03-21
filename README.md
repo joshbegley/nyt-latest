@@ -1,40 +1,40 @@
-**K-Pop’s BTS Returns to the Stage**\
-`The group’s first concert in nearly four years — held in the historic center of Seoul — was heavy on songs from its new album. They also played a few old hits.`\
-https://nytimes.com/2026/03/21/world/asia/bts-concert-photos-seoul.html
+**There was extra security as BTS fans arrived at the concert site.**\
+`By Max Kim`\
+https://nytimes.com/live/2026/03/21/world/bts-netflix-concert-arirang/there-was-extra-security-as-bts-fans-arrived-at-the-concert-site
 
-**How to watch TCU vs. Duke men's basketball: Second Round Time, TV, streaming**\
-`Find out how to watch the TCU Horned Frogs play the Duke Blue Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136205/2026/03/21/tcu-vs-duke-stream-how-to-watch-march-21/
+**Spring Awakening**\
+`Astronomical spring began yesterday, but the actual change of season is more gradual, a halting and nonlinear progression.`\
+https://nytimes.com/2026/03/21/briefing/spring-awakening.html
 
-**Man Utd to file PGMOL complaint over penalty decision vs. Bournemouth**\
-`United believed they should have been awarded a spot kick when Amad appeared to be brought down by Bournemouth defender Adrien Truffert.`\
-https://nytimes.com/athletic/7136145/2026/03/21/manchester-united-bournemouth-penalty-decision-pgmol/
+**One reason BTS went on hiatus? To do military service.**\
+`By Choe Sang-Hun`\
+https://nytimes.com/live/2026/03/21/world/bts-netflix-concert-arirang/bts-why-hiatus
 
-**How to watch Syracuse vs. Iowa State women's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Syracuse Orange play the Iowa State Cyclones, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136197/2026/03/21/syracuse-vs-iowa-state-stream-how-to-watch-march-21/
+**After 1,611 games, LeBron James is still proving the same thing**\
+`After 23 seasons and 1,600-plus games, LeBron James still values what's always mattered most: being available. `\
+https://nytimes.com/athletic/7128986/2026/03/21/lebron-james-robert-parish-record-nba-games/
 
-**How to watch Fairleigh Dickinson vs. Iowa women's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Fairleigh Dickinson Knights play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136191/2026/03/21/fairleigh-dickinson-vs-iowa-stream-how-to-watch-march-21/
+**Men's March Madness Saturday guide: Schedule, preview and TV info for round of 32**\
+`There are eight second-round games spread across Saturday. Winners go to the Sweet 16; losers fade into the prologue.`\
+https://nytimes.com/athletic/7135327/2026/03/21/march-madness-saturday-tv-duke-houston-michigan-2026/
 
-**How to watch Miami (OH) vs. West Virginia women's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Miami (OH) RedHawks play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136189/2026/03/21/miami-oh-vs-west-virginia-stream-how-to-watch-march-21/
+**2026 NHL prospect pool rankings: No. 20 Winnipeg Jets**\
+`The Jets' pool has a little more than a half-dozen name prospects, but it is still a tricky one to project.`\
+https://nytimes.com/athletic/6974793/2026/03/21/winnipeg-jets-nhl-prospect-rankings-2026/
 
-**How to watch Kraken vs. Blue Jackets: Time, TV, streaming**\
-`Find out how to watch the Seattle Kraken play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136160/2026/03/21/kraken-vs-blue-jackets-stream-how-to-watch-march-21/
+**A spring training staple for one of baseball’s youngest teams? Homework**\
+`“Definitely don’t miss doing homework,” pitcher Brad Lord said. “But this is for our job. So I love it.”`\
+https://nytimes.com/athletic/7135497/2026/03/21/washington-nationals-homework-pitchers-catchers/
 
-**How to watch Stars vs. Wild: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the Minnesota Wild, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136158/2026/03/21/stars-vs-wild-stream-how-to-watch-march-21/
+**Men's NCAA Tournament power rankings: The top 16 teams after Round 1**\
+`Only one team seeded from 12 through 16 won a first-round game, but some top teams got off to scarier starts than others.`\
+https://nytimes.com/athletic/7135716/2026/03/21/ncaa-tournament-power-rankings-second-round-arizona/
 
-**How to watch Flyers vs. Sharks: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Flyers play the San Jose Sharks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136154/2026/03/21/flyers-vs-sharks-stream-how-to-watch-march-21/
+**The Lady Vols lost their edge. The question is, does Tennessee believe they can get it back?**\
+`With hefty contract clauses, including a $4 million buyout, Tennessee had to believe Kim Caldwell was the answer. Or did it? `\
+https://nytimes.com/athletic/7135803/2026/03/21/tennessees-loss-ncaa-tournament-edge/
 
-**How to watch Sabres vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Buffalo Sabres play the Los Angeles Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7136152/2026/03/21/sabres-vs-kings-stream-how-to-watch-march-21/
+**Ferrari is surging back. That can only be a good thing for the championship**\
+`Next weekend's Japanese Grand Prix will be the ultimate test in how much Ferrari can challenge Mercedes this season. `\
+https://nytimes.com/athletic/7130719/2026/03/21/ferrari-f1-2026-mercedes-battle/
 
