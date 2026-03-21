@@ -1,3 +1,19 @@
+**Former F.B.I. Director Robert Mueller Dies at 81**\
+`Robert Mueller, who led the Federal Bureau of Investigation for 12 tumultuous years, brought politically explosive indictments as a special counsel examining Russia’s attack on the 2016 presidential election.`\
+https://nytimes.com/video/us/100000010794275/robert-mueller-obituary-fbi.html
+
+**Here’s What Happened in the War in the Middle East on Saturday**\
+`An Iranian missile wounded dozens in Dimona, a city believed to house Israel’s nuclear weapons program, as Iran showed no signs of backing down.`\
+https://nytimes.com/2026/03/21/world/middleeast/middle-east-war-recap.html
+
+**Four players ejected after Wizards-Thunder fight spills into stands**\
+`After an initial fracas between Thunder forward Jaylin Williams and Wizards guard Justin Champagnie, several other players joined the scrum.`\
+https://nytimes.com/athletic/7137186/2026/03/21/four-players-ejected-after-wizards-thunder-fight-spills-into-stands/
+
+**LeBron James becomes NBA's career leader in games played, passing Robert Parish**\
+`The Los Angeles Lakers star, already the NBA’s career leader in points and minutes, is now the league’s career leader in games played.`\
+https://nytimes.com/athletic/7136679/2026/03/21/lebron-james-nba-most-games-played-record/
+
 **Iowa avoids meltdown in stifling Carver-Hawkeye Arena for NCAA Tournament first-round win**\
 `Temperatures rose into the 80s inside the Hawkeyes' home arena as they escaped a historic upset bid.`\
 https://nytimes.com/athletic/7137168/2026/03/21/iowa-fdu-womens-march-madness-results-takeaways/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7137059/2026/03/21/rangers-drew-fortescue-sign-cont
 **Video of Justin Timberlake’s Traffic Stop in 2024 Released**\
 `Body-camera footage of Justin Timberlake’s traffic stop was released on Friday. The singer pleaded guilty to a low-level charge of driving while impaired in Sag Harbor, N.Y.`\
 https://nytimes.com/video/nyregion/100000010794214/video-of-justin-timberlakes-traffic-stop-in-2024-released.html
-
-**Panthers' A.J. Greer to have phone hearing for boarding**\
-`Players can be suspended for as many as five games after a phone hearing, per the terms of the CBA.`\
-https://nytimes.com/athletic/7137068/2026/03/21/panthers-aj-greer-hearing-suspension-connor-zary/
-
-**Leeds 0 Brentford 0 - Where does it leave the relegation battle? Did Farke make his changes too late?**\
-`Analysis of Leeds United's draw with Brentford`\
-https://nytimes.com/athletic/7128040/2026/03/21/leeds-0-brentford-0-highlights/
-
-**Sound It Out**\
-`Alex Eaton-Salners presents a conversational Sunday puzzle.`\
-https://nytimes.com/2026/03/21/crosswords/daily-puzzle-2026-03-22.html
-
-**What Was the Mueller Investigation? And What Did It Find?**\
-`The appointment of Robert S. Mueller III as special counsel to conduct an investigation related to a sitting president roiled Washington around the start of President Trump’s first term.`\
-https://nytimes.com/2026/03/21/us/politics/robert-mueller-trump-russia-fbi-investigation.html
 

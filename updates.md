@@ -1,3 +1,7 @@
+**Iowa avoids meltdown in stifling Carver-Hawkeye Arena for NCAA Tournament first-round win**\
+`Temperatures rose into the 80s inside the Hawkeyes' home arena as they escaped a historic upset bid.`\
+https://nytimes.com/athletic/7137168/2026/03/21/iowa-fdu-womens-march-madness-results-takeaways/
+
 **Oilers' Leon Draisaitl in Germany receiving treatment for lower-body injury: Reports**\
 `Draisaitl will be treated by a doctor who has worked with Auston Matthews, Cristiano Ronaldo, Usain Bolt and others.`\
 https://nytimes.com/athletic/7136860/2026/03/21/oilers-leon-draisaitl-germany-injury/
