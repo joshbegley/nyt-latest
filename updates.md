@@ -1,3 +1,11 @@
+**How to watch Colorado vs. Illinois women's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Colorado Buffaloes play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7136627/2026/03/21/colorado-vs-illinois-stream-how-to-watch-march-21/
+
+**Robert S. Mueller III, 81, Dies; Rebuilt F.B.I. and Led Trump Inquiry**\
+`After he concluded that Russia had interfered in the 2016 election, he became a target of the president’s anger.`\
+https://nytimes.com/2026/03/21/us/politics/robert-s-mueller-dead.html
+
 **Internet Blackout Keeps Iranians From Reaching Loved Ones During New Year Holiday**\
 `The current restrictions on the internet in Iran are coinciding with Nowruz, the observance of the Persian New Year.`\
 https://nytimes.com/2026/03/21/world/middleeast/iran-war-nowruz-internet-blackout.html
