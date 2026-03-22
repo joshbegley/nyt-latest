@@ -1,4 +1,4 @@
-**More Air-Conditioning is Cranked Up as Heat Wave Wilts Large Part of U.S.**\
+**More Air-Conditioners Crank Up As Heat Wave Wilts Large Part of U.S.**\
 `Across the nation, more homes have added air-conditioning in recent years, something that may come in handy this week as some areas see temperatures 40 degrees above normal.`\
 https://nytimes.com/2026/03/22/us/heat-wave-air-conditioning-california-utah-colorado-oklahoma.html
 
