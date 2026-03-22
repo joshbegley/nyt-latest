@@ -1,3 +1,7 @@
+**The golden age of the March Madness upset feels over. Here's why its not all bad**\
+`The Cinderella era of 2006-23 is over. But it will make upsets more special — as long as conditions allow them to exist sometimes.`\
+https://nytimes.com/athletic/7138717/2026/03/22/ncaa-tournament-upsets-cinderella-future/
+
 **Lutkenhaus, 17, becomes youngest-ever world indoor medalist with 800m gold**\
 `The American teenager won the final in one minute and 44.24 seconds, his second-quickest run of all time. `\
 https://nytimes.com/athletic/7138764/2026/03/22/cooper-lutkenhaus-gold-800m-world-championships-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7138278/2026/03/22/john-terry-chelsea-rupert-lowe-b
 **Christopher Columbus Statue Is Installed on White House Grounds**\
 `The statue of the explorer, a replica of one that protesters toppled in 2020, was placed outside the Eisenhower Executive Office Building.`\
 https://nytimes.com/2026/03/22/arts/design/columbus-statue-trump-white-house.html
-
-**Israel Thought It Could Spur Rebellion Inside Iran. That Hasn’t Happened.**\
-`President Trump’s hopes that an Israeli plan to ignite an internal uprising against Iran’s theocratic government could bring the war to a swift end have so far been dashed.`\
-https://nytimes.com/2026/03/22/us/politics/iran-israel-trump-netanyahu-mossad.html
 
