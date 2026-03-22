@@ -1,3 +1,7 @@
+**Nebraska makes first Sweet 16 after Vanderbilt half-court heave bounces out**\
+`The Cornhuskers picked up their second NCAA Tournament win in three days, surviving a last-second miss from Vanderbilt's Tyler Tanner.`\
+https://nytimes.com/athletic/7137603/2026/03/21/vanderbilt-nebraska-ncaa-tournamant/
+
 **Penn State extends wrestling dynasty with fifth straight NCAA title**\
 `Nittany Lions coach Cael Sanderson claimed his 13th national championship in 17 years, as Penn State set an NCAA points record.`\
 https://nytimes.com/athletic/7137608/2026/03/21/penn-state-wrestling-ncaa-championship-streak/
