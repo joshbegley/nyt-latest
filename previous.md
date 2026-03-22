@@ -1,3 +1,11 @@
+**Women's NCAA Tournament power rankings: Resetting the title contenders for Round 2**\
+`The top four seeds are humming, but No. 2 seed Iowa looks vulnerable. `\
+https://nytimes.com/athletic/7137698/2026/03/22/womens-ncaa-tournament-power-rankings-uconn-south-carolina/
+
+**Devin Booker needs help, but time might be running out for short-handed Suns**\
+`This loss hurt the Suns because they needed a win in the worst way, but also because Booker struggled so mightily in the clutch.`\
+https://nytimes.com/athletic/7137911/2026/03/22/devin-booker-phoenix-suns-bucks-playoffs-play-in/
+
 **Spurs fans respond with pride after video disparaging Hispanic fans goes viral**\
 `After a viral video of a woman at a Spurs game sending disparaging texts about Hispanic fans, the Latino community responded with pride.`\
 https://nytimes.com/athletic/7137744/2026/03/22/spurs-fans-respond-with-pride-after-video-disparaging-hispanic-fans-goes-viral/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/22/books/review/new-romance-books.html
 **How to watch Hurricanes vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the Carolina Hurricanes play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7137974/2026/03/22/hurricanes-vs-penguins-stream-how-to-watch-march-22/
-
-**How to watch Predators vs. Blackhawks: Time, TV, streaming**\
-`Find out how to watch the Nashville Predators play the Chicago Blackhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7137970/2026/03/22/predators-vs-blackhawks-stream-how-to-watch-march-22/
-
-**The Pulse: The WNBA's pay explosion**\
-`Welcome to The Pulse, The Athletic's daily newsletter. `\
-https://nytimes.com/athletic/7137823/2026/03/22/the-wnbas-pay-explosion-plus-more-buzzer-madness/
 

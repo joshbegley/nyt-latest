@@ -1,3 +1,11 @@
+**Women's NCAA Tournament power rankings: Resetting the title contenders for Round 2**\
+`The top four seeds are humming, but No. 2 seed Iowa looks vulnerable. `\
+https://nytimes.com/athletic/7137698/2026/03/22/womens-ncaa-tournament-power-rankings-uconn-south-carolina/
+
+**Devin Booker needs help, but time might be running out for short-handed Suns**\
+`This loss hurt the Suns because they needed a win in the worst way, but also because Booker struggled so mightily in the clutch.`\
+https://nytimes.com/athletic/7137911/2026/03/22/devin-booker-phoenix-suns-bucks-playoffs-play-in/
+
 **Spurs fans respond with pride after video disparaging Hispanic fans goes viral**\
 `After a viral video of a woman at a Spurs game sending disparaging texts about Hispanic fans, the Latino community responded with pride.`\
 https://nytimes.com/athletic/7137744/2026/03/22/spurs-fans-respond-with-pride-after-video-disparaging-hispanic-fans-goes-viral/
