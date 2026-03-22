@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/100000010794213/hawaii-oahu-maui-floods.html
 
 **Real Madrid 3 Atletico Madrid 2 - How good was Molina's goal? Why was Valverde sent off?**\
-`Victory sees Alvaro Arbeloa's side stay within four points of defending champions Barcelona at the top of La Liga`\
+`Victory sees Alvaro Arbeloa's side move back to within four points of defending champions Barcelona at the top of La Liga`\
 https://nytimes.com/athletic/7135953/2026/03/22/real-madrid-atletico-madrid-la-liga-result-analysis/
 
 **Got Older**\

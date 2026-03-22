@@ -1,3 +1,7 @@
+**Real Madrid 3 Atletico Madrid 2 - How good was Molina's goal? Why was Valverde sent off?**\
+`Victory sees Alvaro Arbeloa's side move back to within four points of defending champions Barcelona at the top of La Liga`\
+https://nytimes.com/athletic/7135953/2026/03/22/real-madrid-atletico-madrid-la-liga-result-analysis/
+
 **Oahu Residents Assess Flood Damage as Rain Drenches Maui**\
 `Hawaii has been pounded for over a week by back-to-back storms. Weather officials said that 10 to 14 inches of rain fell on Thursday into Friday on Oahu, unleashing severe flooding. The storm has moved to Maui, where flash flood warnings were issued on Saturday.`\
 https://nytimes.com/video/us/100000010794213/hawaii-oahu-maui-floods.html
