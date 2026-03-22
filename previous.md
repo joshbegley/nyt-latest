@@ -1,3 +1,7 @@
+**Cubs adding Michael Conforto to roster; Seiya Suzuki ruled out for Opening Day**\
+`With Suzuki potentially missing time with his knee injury, Conforto could be the starting right fielder on Opening Day.`\
+https://nytimes.com/athletic/7137417/2026/03/21/cubs-michael-conforto-seiya-suzuki-roster/
+
 **Trump’s Reaction to Mueller’s Death: ‘Good, I’m Glad.’**\
 `The president has consistently celebrated the deaths of political foes. His response to Mr. Mueller’s death drew criticism from Republicans and Democrats.`\
 https://nytimes.com/2026/03/21/us/politics/trump-mueller-death.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7137323/2026/03/21/sharks-ryan-reaves-injury-finger
 **Already Flooded, Oahu Braces for More Rain**\
 `Thousands of residents on Oahu had yet to return home as the Hawaiian island dealt with the aftermath of severe rainfall. The storm was moving south over the island toward Maui.`\
 https://nytimes.com/2026/03/21/us/oahu-flood-hawaii.html
-
-**ABS hot mic: Umpire caught saying 'please be a strike' during pitch challenge**\
-`The entire ballpark got to hear Bill Miller's honest reaction after one of the pitches he called was challenged. `\
-https://nytimes.com/athletic/7137192/2026/03/21/hot-mic-umpire-bill-miller-sf-giants-guardians-abs/
 
