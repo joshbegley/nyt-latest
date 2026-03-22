@@ -1,3 +1,11 @@
+**Gotham captain Tierna Davidson makes first appearance since ACL tear last year**\
+`The defender's return only further strengthens Gotham's back line.`\
+https://nytimes.com/athletic/7137093/2026/03/21/gotham-tierna-davidson-return-acl-tear/
+
+**He's the NCAA Tournament's human highlight reel — but Coen Carr's dunks are just the start**\
+`Carr is living up to his reputation as an elite dunker, but his highlight reel is growing even more well-rounded for Michigan State.`\
+https://nytimes.com/athletic/7137026/2026/03/21/coen-carr-michigan-state-march-madness-dunks/
+
 **Stephen Curry (knee) nearing return to Warriors practice with Play-In push ahead**\
 `Curry rejoined the Warriors on Saturday after leaving the team to be in Charlotte to see his father, Dell, get his Hornets jersey retired.`\
 https://nytimes.com/athletic/7137106/2026/03/21/steph-curry-injury-update-return-timeline-warriors-nba/
