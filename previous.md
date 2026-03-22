@@ -1,3 +1,7 @@
+**Iowa State blows by Kentucky into Sweet 16 despite sidelined star**\
+`Iowa State was missing All-American forward Joshua Jefferson to injury, but the Cyclones still sent Kentucky home during the first weekend.`\
+https://nytimes.com/athletic/7139078/2026/03/22/iowa-state-kentucky-ncaa-tournament-score-takeaways/
+
 **French Local Elections Are Yardstick for Far Right. Initial Results Are Mixed.**\
 `France’s municipal elections ended on Sunday evening. Full results were not expected for hours, but the first projections suggested the far right may not have made major gains.`\
 https://nytimes.com/2026/03/22/world/europe/france-mayor-elections.html
@@ -19,7 +23,7 @@ https://nytimes.com/2026/03/22/world/middleeast/middle-east-war-recap.html
 https://nytimes.com/athletic/7138966/2026/03/22/hodgkinson-hunter-bell-caudery-great-britain-gold-world-championships/
 
 **Let this sting Arsenal. Then don't feel it again**\
-`Arteta and his players need to dust themselves down - they are still in running for three trophies and cannot let Wembley loss affect them`\
+`Arteta and his players need to dust themselves down — they are still in running for three trophies and cannot let Wembley loss affect them`\
 https://nytimes.com/athletic/7138949/2026/03/22/arsenal-league-cup-history/
 
 **Maryland coach Brenda Frese gives intense coaching moment to Oluchi Okananwa**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7138758/2026/03/22/trent-alexander-arnold-real-madr
 **Manchester City are better than everyone thinks they are**\
 `Yes, Pep Guardiola's latest creation are flawed but they are on their way to becoming another great side`\
 https://nytimes.com/athletic/7138972/2026/03/22/manchester-city-carabao-cup-win/
-
-**Cam Skattebo apologizes for 'tasteless joke' about CTE**\
-`Skattebo suggested that the degenerative brain disease known as CTE was not real and called it "an excuse."`\
-https://nytimes.com/athletic/7138885/2026/03/22/cam-skattebo-apologizes-cte-asthma-comments-giants-nfl/
 

@@ -1,3 +1,11 @@
+**Jalen Williams (hamstring) to return for Thunder vs. 76ers after 16-game absence**\
+`Prior to missing this string of games, he played in two roading outings against theLakers and Suns after missing the prior 10 outings.`\
+https://nytimes.com/athletic/7139151/2026/03/22/jalen-williams-injury-update-returns-okc-sixers-nba/
+
+**Israel’s Missile Defense Under Scrutiny After Iranian Attack**\
+`Two missiles landed hours apart, wreaking havoc in two towns near a heavily guarded nuclear site in the Negev Desert.`\
+https://nytimes.com/2026/03/22/world/middleeast/israel-missile-defense-iran.html
+
 **Iowa State blows by Kentucky into Sweet 16 despite sidelined star**\
 `Iowa State was missing All-American forward Joshua Jefferson to injury, but the Cyclones still sent Kentucky home during the first weekend.`\
 https://nytimes.com/athletic/7139078/2026/03/22/iowa-state-kentucky-ncaa-tournament-score-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7138949/2026/03/22/arsenal-league-cup-history/
 **Maryland coach Brenda Frese gives intense coaching moment to Oluchi Okananwa**\
 `Maryland coach Brenda Frese's intense coaching moment with Oluchi Okananwa drew attention.`\
 https://nytimes.com/athletic/7139016/2026/03/22/maryland-brenda-frese-oluchi-okananwa/
-
-**Alexander-Arnold dropped for Real Madrid derby fixture due to lateness**\
-`The 27-year-old started on the bench against Atletico Madrid after not turning up to a training session on time. `\
-https://nytimes.com/athletic/7138758/2026/03/22/trent-alexander-arnold-real-madrid-atletico-lateness/
-
-**Manchester City are better than everyone thinks they are**\
-`Yes, Pep Guardiola's latest creation are flawed but they are on their way to becoming another great side`\
-https://nytimes.com/athletic/7138972/2026/03/22/manchester-city-carabao-cup-win/
 
