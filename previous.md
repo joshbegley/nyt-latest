@@ -7,7 +7,7 @@ https://nytimes.com/2026/03/22/us/politics/ogles-republicans-anti-muslim.html
 https://nytimes.com/athletic/7128643/2026/03/22/newcastle-sunderland-result-score-report-analysis/
 
 **Newcastle vs Sunderland halted after report of racist abuse towards Geertruida**\
-`Play was stopped in the second half of the Tyne-Wear derby after referee Antony Taylor was informed of the alleged abuse`\
+`Play was stopped in the second half of the Tyne-Wear derby after referee Antony Taylor was informed of the alleged abuse.`\
 https://nytimes.com/athletic/7138111/2026/03/22/newcastle-sunderland-racist-abuse-lutsharel-geertruida/
 
 **How to watch St. John's vs. Kansas men's basketball: Second Round Time, TV, streaming**\
