@@ -1,3 +1,7 @@
+**Meteorite Crashes Through Roof of House Near Houston**\
+`No one was injured, but a woman was startled on Saturday when a meteorite pierced the roof of her home, ricocheted off the floor and struck a bedroom ceiling.`\
+https://nytimes.com/2026/03/22/us/meteorite-crash-texas-home.html
+
 **How to watch Washington vs. TCU women's basketball: Second Round Time, TV, streaming**\
 `Find out how to watch the Washington Huskies play the TCU Horned Frogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7138866/2026/03/22/washington-vs-tcu-stream-how-to-watch-march-22/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7138672/2026/03/22/nationals-yankees-trade-jorbit-v
 **The Briefing: Arsenal 0 Man City 2 — Kepa Arrizabalaga error and Cherki showboating in Wembley nightmare for Arsenal**\
 `Our writers break down the action, from errors to showboating, as Man City beat Arsenal for the first silverware of the season`\
 https://nytimes.com/athletic/7135952/2026/03/22/arsenal-manchester-city-carabao-cup-final/
-
-**Syracuse to name former star Gerry McNamara next men's basketball coach: Reports**\
-`Gerry McNamara led Siena to 23 wins and its first NCAA Tournament bid in 16 years this season.`\
-https://nytimes.com/athletic/7138633/2026/03/22/syracuse-gerry-mcnamara-mens-basketball-coach/
 
