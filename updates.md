@@ -1,3 +1,11 @@
+**Fitzpatrick forgets Players heartbreak with Valspar win**\
+`Fitzpatrick's 14-foot birdie putt on the 18th gave him a one-stroke win over David Lipsky.`\
+https://nytimes.com/athletic/7139313/2026/03/22/matt-fitzpatrick-valspar-championship-win-pga-tour-players/
+
+**Messi, Miami complete comeback win at NYCFC after Champions Cup disappointment**\
+`The reigning MLS champ has suffered a devastating defeat midweek but bounced back on Sunday`\
+https://nytimes.com/athletic/7139260/2026/03/22/inter-miami-messi-nycfc-mls/
+
 **Messi and Miami complete comeback win at NYCFC after Champions Cup disappointment**\
 `The reigning MLS champ has suffered a devastating defeat midweek but bounced back on Sunday`\
 https://nytimes.com/athletic/7139260/2026/03/22/inter-miami-messi-nycfc-mls/
