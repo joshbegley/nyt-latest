@@ -1,3 +1,7 @@
+**Ovechkin joins Gretzky as only players with 1,000 regular-season, playoff goals**\
+`The 40-year-old Capitals superstar broke Gretzky’s previous regular-season record of 894 goals on April 6, 2025, against the Islanders.`\
+https://nytimes.com/athletic/7139092/2026/03/22/alex-ovechkin-wayne-gretzky-1000-goals/
+
 **Sebastian Korda takes down top-ranked Carlos Alcaraz at Miami Open**\
 `With a combination of smooth, controlled aggression and flat power, the American upset Alcaraz inside Hard Rock Stadium.`\
 https://nytimes.com/athletic/7139039/2026/03/22/sebastian-korda-carlos-alcaraz-miami-open-upset/
