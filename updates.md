@@ -1,3 +1,7 @@
+**Messi and Miami complete comeback win at NYCFC after Champions Cup disappointment**\
+`The reigning MLS champ has suffered a devastating defeat midweek but bounced back on Sunday`\
+https://nytimes.com/athletic/7139260/2026/03/22/inter-miami-messi-nycfc-mls/
+
 **How the G.O.P. and Democrats Are Talking About the Surge in Gas Prices**\
 `Republicans have largely been on defense against Democratic criticism. Here are five arguments advanced by figures in both parties.`\
 https://nytimes.com/2026/03/22/us/politics/republicans-democrats-gas-prices-comments-midterms.html
