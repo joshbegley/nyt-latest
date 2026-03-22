@@ -1,5 +1,13 @@
+**Luka Dončić facing one-game suspension due to 16th technical foul of season**\
+`Should the technical foul not be rescinded, Dončić would miss the Lakers game Monday night in Detroit against the Pistons.`\
+https://nytimes.com/athletic/7137452/2026/03/21/luka-doncic-1-game-suspension-technical-foul-lakers-nba/
+
+**Wild rally to beat Stars in potential first-round playoff preview: Takeaways**\
+`Bobby Brink and the penalty kill came up huge for Minnesota in a 2-1 overtime victory over Dallas on Saturday. `\
+https://nytimes.com/athletic/7137013/2026/03/21/wild-stars-vladimir-tarasenko-overtime-goal-playoffs/
+
 **Nathaniel Lowe, Sam Moll round out Reds' roster; Rece Hinds to start in AAA**\
-`Rece Hinds will start the year at AAA Louisville despite absolutely crushing Cactus League pitching in spring training.`\
+`Hinds will start the year at AAA Louisville despite absolutely crushing Cactus League pitching in spring training.`\
 https://nytimes.com/athletic/7137314/2026/03/21/reds-nathaniel-lowe-sam-moll-round-out-roster/
 
 **Mullin Explored Bipartisan Deal to Rein in Immigration Crackdown**\
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/7137192/2026/03/21/hot-mic-umpire-bill-miller-sf-gi
 **Gotham captain Tierna Davidson makes first appearance since ACL tear last year**\
 `The defender's return only further strengthens Gotham's back line.`\
 https://nytimes.com/athletic/7137093/2026/03/21/gotham-tierna-davidson-return-acl-tear/
-
-**Stephen Curry (knee) nearing return to Warriors practice with Play-In push ahead**\
-`Curry rejoined the Warriors on Saturday after leaving the team to be in Charlotte to see his father, Dell, get his Hornets jersey retired.`\
-https://nytimes.com/athletic/7137106/2026/03/21/steph-curry-injury-update-return-timeline-warriors-nba/
-
-**He's the NCAA Tournament's human highlight reel — but Coen Carr's dunks are just the start**\
-`Carr is living up to his reputation as an elite dunker, but his highlight reel is growing even more well-rounded for Michigan State.`\
-https://nytimes.com/athletic/7137026/2026/03/21/coen-carr-michigan-state-march-madness-dunks/
 
