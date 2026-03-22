@@ -1,3 +1,11 @@
+**Penn State extends wrestling dynasty with fifth straight NCAA title**\
+`Nittany Lions coach Cael Sanderson claimed his 13th national championship in 17 years, as Penn State set an NCAA points record.`\
+https://nytimes.com/athletic/7137608/2026/03/21/penn-state-wrestling-ncaa-championship-streak/
+
+**Nebraska outlasts Vanderbilt in epic second-round NCAA Tournament showdown**\
+`The Cornhuskers picked up their second NCAA Tournament win in three days, surviving a last-second miss from Vanderbilt's Tyler Tanner.`\
+https://nytimes.com/athletic/7137603/2026/03/21/vanderbilt-nebraska-ncaa-tournamant/
+
 **Kuminga vs. Warriors was a dud, but good vibes remain: 'We always got along well'**\
 `If Kuminga's interactions with his former teammates after the game are any indication, those relationships will continue.`\
 https://nytimes.com/athletic/7137401/2026/03/21/jonathan-kuminga-hawks-warriors-kerr-snyder-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7137417/2026/03/21/cubs-michael-conforto-seiya-suzu
 **Trump’s Reaction to Mueller’s Death: ‘Good, I’m Glad.’**\
 `The president has been known to disparage foes after their deaths. His response to Mr. Mueller’s death drew criticism from Republicans and Democrats.`\
 https://nytimes.com/2026/03/21/us/politics/trump-mueller-death.html
-
-**Luka Dončić facing one-game suspension due to 16th technical foul of season**\
-`Should the technical foul not be rescinded, Dončić would miss the Lakers game Monday night in Detroit against the Pistons.`\
-https://nytimes.com/athletic/7137452/2026/03/21/luka-doncic-1-game-suspension-technical-foul-lakers-nba/
-
-**Wild rally to beat Stars in potential first-round playoff preview: Takeaways**\
-`Bobby Brink and the penalty kill came up huge for Minnesota in a 2-1 overtime victory over Dallas on Saturday. `\
-https://nytimes.com/athletic/7137013/2026/03/21/wild-stars-vladimir-tarasenko-overtime-goal-playoffs/
 
