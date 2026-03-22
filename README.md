@@ -23,7 +23,7 @@ https://nytimes.com/2026/03/22/world/middleeast/middle-east-war-recap.html
 https://nytimes.com/athletic/7138966/2026/03/22/hodgkinson-hunter-bell-caudery-great-britain-gold-world-championships/
 
 **Let this sting Arsenal. Then don't feel it again**\
-`Arteta and his players need to dust themselves down - they are still in running for three trophies and cannot let Wembley loss affect them`\
+`Arteta and his players need to dust themselves down — they are still in running for three trophies and cannot let Wembley loss affect them`\
 https://nytimes.com/athletic/7138949/2026/03/22/arsenal-league-cup-history/
 
 **Maryland coach Brenda Frese gives intense coaching moment to Oluchi Okananwa**\
