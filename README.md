@@ -1,4 +1,4 @@
-**Women's NCAA Tournament power rankings: These 16 teams could win the championship**\
+**Women's NCAA Tournament power rankings: Resetting the title contenders for Round 2**\
 `The top four seeds are humming, but No. 2 seed Iowa looks vulnerable. `\
 https://nytimes.com/athletic/7137698/2026/03/22/womens-ncaa-tournament-power-rankings-uconn-south-carolina/
 
