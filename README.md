@@ -1,3 +1,11 @@
+**How to watch Miami (FL) vs. Purdue men's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Miami Hurricanes play the Purdue Boilermakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7137941/2026/03/22/miami-fl-vs-purdue-stream-how-to-watch-march-22/
+
+**The Misery Index: Bucks, Kings have had it bad. But who's had it worse?**\
+`These five teams likely aren't thinking about winning a title this year. But do they really only have the future to look forward to?`\
+https://nytimes.com/athletic/7104614/2026/03/22/nba-misery-giannis-bucks-kings-bulls/
+
 **How to watch Maryland vs. North Carolina women's basketball: Second Round Time, TV, streaming**\
 `Find out how to watch the Maryland Terrapins play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7137936/2026/03/22/maryland-vs-north-carolina-stream-how-to-watch-march-22/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/22/us/gas-prices-south-southwest.html
 **The Chaotic Downfall of the ‘Bachelor’ Empire**\
 `As competing dating shows flaunt modern norms, the ABC franchise finds itself mired in scandals and stymied by its traditional approach to love.`\
 https://nytimes.com/2026/03/22/arts/taylor-frankie-paul-bachelorette-canceled.html
-
-**They Want to Stop Paying Taxes as a Protest. There Are Consequences.**\
-`Some tax resisters withhold a symbolic amount, but those who willfully refuse to file or pay could face civil or criminal penalties.`\
-https://nytimes.com/2026/03/22/your-money/taxes/federal-tax-protest-resistance.html
-
-**Despite Spiking Oil Prices, There’s No Talk of a Boom in Texas Oil Country**\
-`Even with oil prices climbing, people in West Texas say it doesn’t feel like the start of another boom, at least not yet.`\
-https://nytimes.com/2026/03/22/us/texas-oil-prices-iran-war.html
 

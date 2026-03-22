@@ -1,3 +1,7 @@
+**How to watch Maryland vs. North Carolina women's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Maryland Terrapins play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7137936/2026/03/22/maryland-vs-north-carolina-stream-how-to-watch-march-22/
+
 **How to watch NC State vs. Michigan women's basketball: Second Round Time, TV, streaming**\
 `Find out how to watch the NC State Lady Wolfpack play the Michigan Wolverines, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7137934/2026/03/22/nc-state-vs-michigan-stream-how-to-watch-march-22/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/22/your-money/taxes/federal-tax-protest-resistance.h
 **Despite Spiking Oil Prices, There’s No Talk of a Boom in Texas Oil Country**\
 `Even with oil prices climbing, people in West Texas say it doesn’t feel like the start of another boom, at least not yet.`\
 https://nytimes.com/2026/03/22/us/texas-oil-prices-iran-war.html
-
-**I Think My Employee Has A.D.H.D. Should I Tell Him?**\
-`Plus, my co-workers had an affair and misused company funds. Somehow, I’m the one dealing with the fallout.`\
-https://nytimes.com/2026/03/22/business/office-affair-misuse-of-funds-adhd.html
 
