@@ -1,3 +1,7 @@
+**How the G.O.P. and Democrats Are Talking About the Surge in Gas Prices**\
+`Republicans have largely been on defense against Democratic criticism. Here are five arguments advanced by figures in both parties.`\
+https://nytimes.com/2026/03/22/us/politics/republicans-democrats-gas-prices-comments-midterms.html
+
 **Wisconsin defeats Ohio State to win back-to-back NCAA women’s hockey championships**\
 `It took the high-octane Badgers’ offense just 78 seconds to open the scoring as they defeated the Buckeyes 3-2 on Sunday.`\
 https://nytimes.com/athletic/7139405/2026/03/22/wisconsin-ohio-state-ncaa-hockey-womens-championship/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/22/us/heat-wave-air-conditioning-california-utah-col
 **For ‘Buffy’ Fans, Nicholas Brendon’s Xander Was a Complicated Everyman**\
 `The actor, who died on Friday, was a fan favorite on “Buffy the Vampire Slayer,” even as his character mixed quiet heroism with hostility toward the show’s women.`\
 https://nytimes.com/2026/03/22/arts/television/nicholas-brendon-death-buffy-xander.html
-
-**Luka Dončić avoids one-game suspension after technical foul vs. Magic is rescinded**\
-`The tech was originally given during Saturday's matchup against the Orlando Magic. By having it rescinded, Dončić avoids a one-game ban.`\
-https://nytimes.com/athletic/7139186/2026/03/22/luka-doncic-suspension-rescinded-lakers-nba/
 
