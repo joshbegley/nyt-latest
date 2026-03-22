@@ -1,3 +1,11 @@
+**Terry appears to endorse UK politician's call for nationwide burqa ban**\
+`The former England captain is still involved in football and has been in an academy coaching consultancy role with Chelsea since 2021.`\
+https://nytimes.com/athletic/7138278/2026/03/22/john-terry-chelsea-rupert-lowe-burqa-ban/
+
+**The Briefing: Arsenal 0 Man City 2 — Kepa Arrizabalaga error and Cherki showboating in Wembley nightmare for Arsenal**\
+`Our writers break down the action, from errors to showboating, as Man City beat Arsenal for the first silverware of the season`\
+https://nytimes.com/athletic/7135952/2026/03/22/arsenal-manchester-city-carabao-cup-final/
+
 **Christopher Columbus Statue Is Installed on White House Grounds**\
 `The statue of the explorer, a replica of one that protesters toppled in 2020, was placed outside the Eisenhower Executive Office Building.`\
 https://nytimes.com/2026/03/22/arts/design/columbus-statue-trump-white-house.html

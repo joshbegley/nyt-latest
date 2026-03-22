@@ -1,3 +1,7 @@
+**J. Michael Bishop, Nobel Prize Winner for Cancer Research, Dies at 90**\
+`He helped discover cancer-causing genes. Later, as chancellor of the University of California, San Francisco, he led a major expansion.`\
+https://nytimes.com/2026/03/22/obituaries/j-michael-bishop-dead.html
+
 **Terry appears to endorse UK politician's call for nationwide burqa ban**\
 `The former England captain is still involved in football and has been in an academy coaching consultancy role with Chelsea since 2021.`\
 https://nytimes.com/athletic/7138278/2026/03/22/john-terry-chelsea-rupert-lowe-burqa-ban/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7138568/2026/03/22/dodgers-alex-freeland-hyeseong-k
 **Spurs assistant coach Bruno insists players 'care' about relegation threat**\
 `Bruno was conducting post-match media duties as head coach Igor Tudor was informed of a close family bereavement after the game.`\
 https://nytimes.com/athletic/7138603/2026/03/22/tottenham-forest-relegation-players-care/
-
-**Women's March Madness second-round takeaways: Zoe Brooks out for NC State**\
-`NC State's challenge just got steeper for Sunday's game against No. 2 seed Michigan.`\
-https://nytimes.com/athletic/7138589/2026/03/22/womens-march-madness-second-round-takeaways-zoe-brooks-nc-state/
 
