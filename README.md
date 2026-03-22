@@ -1,3 +1,8 @@
+**The day everything went wrong for Newcastle**\
+`Newcastle talked the talk and then fluffed the walk, hobbling and tripping. There are no excuses and no hiding places, for Howe or anybody.
+`\
+https://nytimes.com/athletic/7138384/2026/03/22/newcastle-sunderland-derby-wrong/
+
 **What will Caitlin Clark, Paige Bueckers and other WNBA stars on rookie contracts now make?**\
 `The new CBA provides big pay boosts and allows players on rookie contacts to increase their earning potential.`\
 https://nytimes.com/athletic/7138313/2026/03/22/caitlin-clark-paige-bueckers-rookie-salary-cba/
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/7138317/2026/03/22/iowa-vs-florida-stream-how-to-wa
 **How to watch Oregon vs. Texas women's basketball: Second Round Time, TV, streaming**\
 `Find out how to watch the Oregon Ducks play the Texas Longhorns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7138307/2026/03/22/oregon-vs-texas-stream-how-to-watch-march-22/
-
-**How to watch Golden Knights vs. Stars: Time, TV, streaming**\
-`Find out how to watch the Vegas Golden Knights play the Dallas Stars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7138271/2026/03/22/golden-knights-vs-stars-stream-how-to-watch-march-22/
 
