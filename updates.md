@@ -1,3 +1,7 @@
+**Iran responds to Trump’s energy threat with defiance and warnings of its own.**\
+`Tehran “will not hesitate in defending its people and its land,” a senior official said, after President Trump threatened to destroy Iranian power plants.`\
+https://nytimes.com/live/2026/03/22/world/iran-war-oil-trump/iran-response-trump-threat-power-plants
+
 **ICE Will Deploy to Airports to Ease Long Lines, Border Czar Confirms**\
 `Tom Homan, President Trump’s chief border official, said plans were being drawn up to send immigration and customs agents to U.S. airports.`\
 https://nytimes.com/2026/03/22/us/politics/ice-airports-homan-trump.html
