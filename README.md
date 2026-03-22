@@ -1,3 +1,11 @@
+**How to watch Sabres vs. Ducks: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the Anaheim Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7138548/2026/03/22/sabres-vs-ducks-stream-how-to-watch-march-22/
+
+**How to watch Kings vs. Mammoth: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Kings play the Utah Mammoth, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7138543/2026/03/22/kings-vs-mammoth-stream-how-to-watch-march-22/
+
 **How to watch Wizards vs. Knicks: Time, TV, streaming**\
 `Find out how to watch the Washington Wizards play the New York Knicks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7138514/2026/03/22/wizards-vs-knicks-stream-how-to-watch-march-22/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/7138384/2026/03/22/newcastle-sunderland-derby-wrong
 **What will Caitlin Clark, Paige Bueckers and other WNBA stars on rookie contracts now make?**\
 `The new CBA provides big pay boosts and allows players on rookie contacts to increase their earning potential.`\
 https://nytimes.com/athletic/7138313/2026/03/22/caitlin-clark-paige-bueckers-rookie-salary-cba/
-
-**Astros send Taylor Trammell to minors, but roster decisions remain before Opening Day**\
-`If the injured Jeremy Peña is ready to go, there would only be two spots open for three players who are all in the outfield mix.`\
-https://nytimes.com/athletic/7138252/2026/03/22/astros-roster-opening-day-taylor-trammell/
-
-**The 3.22.26 Issue**\
-``\
-https://nytimes.com/issue/magazine/2026/03/22/the-32226-issue
 

@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/7138514/2026/03/22/wizards-vs-knicks-stream-how-to-watch-march-22/
 
 **Mets get bad news on Mike Tauchman, tell Craig Kimbrel he won't make roster**\
-`Tauchman will be out "a while" after he gets surgery on a torn left knee, clearing a path for Carson Benge to make the his big-league debut.`\
+`Tauchman will be out "a while" after he gets surgery on a torn left knee, clearing a path for Carson Benge to make his big-league debut.`\
 https://nytimes.com/athletic/7138443/2026/03/22/mets-mike-tauchman-injury-craig-kimbrel-roster/
 
 **How worried are Spurs, Leeds, Forest and West Ham about relegation? Who could go down instead?**\
