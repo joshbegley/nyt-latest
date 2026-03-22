@@ -1,3 +1,11 @@
+**Why the Pirates decided to send MLB's top prospect Konnor Griffin to Triple A**\
+`The question of whether the 19-year-old Griffin should start the season in the majors is more nuanced than it may seem.`\
+https://nytimes.com/athletic/7138517/2026/03/22/konnor-griffin-pittsburgh-pirates-minor-leagues-prospect/
+
+**Newcastle's Barnes to replace injured Eze in England squad**\
+`Eze, 27, was absent from Arsenal’s line-up for the Carabao Cup final defeat to Manchester City on Sunday with a calf injury.`\
+https://nytimes.com/athletic/7138965/2026/03/22/barnes-eze-england-injury-news/
+
 **The golden age of the March Madness upset feels over. Here's why its not all bad**\
 `The Cinderella era of 2006-23 is over. But it will make upsets more special — as long as conditions allow them to exist sometimes.`\
 https://nytimes.com/athletic/7138717/2026/03/22/ncaa-tournament-upsets-cinderella-future/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000010794811/ice-agents-will-be-deployed-to-us-a
 **J. Michael Bishop, Nobel Prize Winner for Cancer Research, Dies at 90**\
 `He helped discover cancer-causing genes. Later, as chancellor of the University of California, San Francisco, he led a major expansion.`\
 https://nytimes.com/2026/03/22/obituaries/j-michael-bishop-dead.html
-
-**Terry appears to endorse UK politician's call for nationwide burqa ban**\
-`The former England captain is still involved in football and has been in an academy coaching consultancy role with Chelsea since 2021.`\
-https://nytimes.com/athletic/7138278/2026/03/22/john-terry-chelsea-rupert-lowe-burqa-ban/
-
-**Christopher Columbus Statue Is Installed on White House Grounds**\
-`The statue of the explorer, a replica of one that protesters toppled in 2020, was placed outside the Eisenhower Executive Office Building.`\
-https://nytimes.com/2026/03/22/arts/design/columbus-statue-trump-white-house.html
 

@@ -1,3 +1,11 @@
+**Why the Pirates decided to send MLB's top prospect Konnor Griffin to Triple A**\
+`The question of whether the 19-year-old Griffin should start the season in the majors is more nuanced than it may seem.`\
+https://nytimes.com/athletic/7138517/2026/03/22/konnor-griffin-pittsburgh-pirates-minor-leagues-prospect/
+
+**Newcastle's Barnes to replace injured Eze in England squad**\
+`Eze, 27, was absent from Arsenal’s line-up for the Carabao Cup final defeat to Manchester City on Sunday with a calf injury.`\
+https://nytimes.com/athletic/7138965/2026/03/22/barnes-eze-england-injury-news/
+
 **The golden age of the March Madness upset feels over. Here's why its not all bad**\
 `The Cinderella era of 2006-23 is over. But it will make upsets more special — as long as conditions allow them to exist sometimes.`\
 https://nytimes.com/athletic/7138717/2026/03/22/ncaa-tournament-upsets-cinderella-future/
