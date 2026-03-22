@@ -1,3 +1,7 @@
+**News Outlets Pressure Pentagon to Restore Access After Court Ruling**\
+`A federal judge ruled on Friday that key parts of the Pentagon’s press policy were unconstitutional.`\
+https://nytimes.com/2026/03/21/business/media/pentagon-press-access.html
+
 **Sharks players get emotional after Ryan Reaves injures finger in fight, stays on bench**\
 `Reaves stayed on the bench for most of the game after appearing to suffer a finger injury in a scrap with the Flyers' Garrett Wilson.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7137226/2026/03/21/anthony-stolarz-injured-warmups-
 **Former F.B.I. Director Robert Mueller Dies at 81**\
 `Robert Mueller, who led the Federal Bureau of Investigation for 12 tumultuous years, brought politically explosive indictments as a special counsel examining Russia’s attack on the 2016 presidential election.`\
 https://nytimes.com/video/us/100000010794275/robert-mueller-obituary-fbi.html
-
-**Here’s What Happened in the War in the Middle East on Saturday**\
-`An Iranian missile wounded dozens in Dimona, a city believed to house Israel’s nuclear weapons program, as Iran showed no signs of backing down.`\
-https://nytimes.com/2026/03/21/world/middleeast/middle-east-war-recap.html
 
