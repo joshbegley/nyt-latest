@@ -1,3 +1,7 @@
+**Spurs assistant coach Bruno insists players 'care' about relegation threat**\
+`Bruno was conducting post-match media duties as head coach Igor Tudor was informed of a close family bereavement after the game.`\
+https://nytimes.com/athletic/7138603/2026/03/22/tottenham-forest-relegation-players-care/
+
 **Women's March Madness second-round takeaways: Zoe Brooks out for NC State**\
 `NC State's challenge just got steeper for Sunday's game against No. 2 seed Michigan.`\
 https://nytimes.com/athletic/7138589/2026/03/22/womens-march-madness-second-round-takeaways-zoe-brooks-nc-state/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7138543/2026/03/22/kings-vs-mammoth-stream-how-to-w
 **How to watch Wizards vs. Knicks: Time, TV, streaming**\
 `Find out how to watch the Washington Wizards play the New York Knicks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7138514/2026/03/22/wizards-vs-knicks-stream-how-to-watch-march-22/
-
-**Mets get bad news on Mike Tauchman, tell Craig Kimbrel he won't make roster**\
-`Tauchman will be out "a while" after he gets surgery on a torn left knee, clearing a path for Carson Benge to make his big-league debut.`\
-https://nytimes.com/athletic/7138443/2026/03/22/mets-mike-tauchman-injury-craig-kimbrel-roster/
 

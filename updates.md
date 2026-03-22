@@ -1,3 +1,7 @@
+**Spurs assistant coach Bruno insists players 'care' about relegation threat**\
+`Bruno was conducting post-match media duties as head coach Igor Tudor was informed of a close family bereavement after the game.`\
+https://nytimes.com/athletic/7138603/2026/03/22/tottenham-forest-relegation-players-care/
+
 **Women's March Madness second-round takeaways: Zoe Brooks out for NC State**\
 `NC State's challenge just got steeper for Sunday's game against No. 2 seed Michigan.`\
 https://nytimes.com/athletic/7138589/2026/03/22/womens-march-madness-second-round-takeaways-zoe-brooks-nc-state/
