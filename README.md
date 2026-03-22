@@ -1,3 +1,15 @@
+**Women's March Madness second-round takeaways: Zoe Brooks out for NC State**\
+`NC State's challenge just got steeper for Sunday's game against No. 2 seed Michigan.`\
+https://nytimes.com/athletic/7138589/2026/03/22/womens-march-madness-second-round-takeaways-zoe-brooks-nc-state/
+
+**How to watch UCLA vs. UConn men's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the UCLA Bruins play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7138620/2026/03/22/ucla-vs-uconn-stream-how-to-watch-march-22/
+
+**How to watch Utah State vs. Arizona men's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Utah State Aggies play the Arizona Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7138615/2026/03/22/utah-state-vs-arizona-stream-how-to-watch-march-22/
+
 **How to watch Michigan State vs. Oklahoma women's basketball: Second Round Time, TV, streaming**\
 `Find out how to watch the Michigan State Spartans play the Oklahoma Sooners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7138587/2026/03/22/michigan-state-vs-oklahoma-stream-how-to-watch-march-22/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7138514/2026/03/22/wizards-vs-knicks-stream-how-to-
 **Mets get bad news on Mike Tauchman, tell Craig Kimbrel he won't make roster**\
 `Tauchman will be out "a while" after he gets surgery on a torn left knee, clearing a path for Carson Benge to make his big-league debut.`\
 https://nytimes.com/athletic/7138443/2026/03/22/mets-mike-tauchman-injury-craig-kimbrel-roster/
-
-**How worried are Spurs, Leeds, Forest and West Ham about relegation? Who could go down instead?**\
-`This weekend always felt like it might define the Premier League's relegation battle. Our writers assess the state of play`\
-https://nytimes.com/athletic/7138332/2026/03/22/tottenham-leeds-forest-west-ham-relegation-analysis/
-
-**How to watch Timberwolves vs. Celtics: Time, TV, streaming**\
-`Find out how to watch the Minnesota Timberwolves play the Boston Celtics, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7138505/2026/03/22/timberwolves-vs-celtics-stream-how-to-watch-march-22/
-
-**Phillies finalize Opening Day roster: A look at their decisions and what's next**\
-`The Phillies filled out their bullpen with four lefties, including Kyle Backhus and Tim Mayza, while veteran Dylan Moore gets a bench job. `\
-https://nytimes.com/athletic/7138413/2026/03/22/phillies-opening-day-roster/
 
