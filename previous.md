@@ -1,3 +1,19 @@
+**Romance Novels Where Even the Non-Sexy Parts Make Your Heart Race**\
+`Our columnist on three sparkling new romances.`\
+https://nytimes.com/2026/03/22/books/review/new-romance-books.html
+
+**How to watch Hurricanes vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Carolina Hurricanes play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7137974/2026/03/22/hurricanes-vs-penguins-stream-how-to-watch-march-22/
+
+**How to watch Predators vs. Blackhawks: Time, TV, streaming**\
+`Find out how to watch the Nashville Predators play the Chicago Blackhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7137970/2026/03/22/predators-vs-blackhawks-stream-how-to-watch-march-22/
+
+**The Pulse: The WNBA's pay explosion**\
+`Welcome to The Pulse, The Athletic's daily newsletter. `\
+https://nytimes.com/athletic/7137823/2026/03/22/the-wnbas-pay-explosion-plus-more-buzzer-madness/
+
 **How to watch Real Betis vs. Athletic Bilbao in the U.S.**\
 `Find out how to watch Real Betis play Athletic Bilbao, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7137960/2026/03/22/real-betis-vs-athletic-bilbao-stream-how-to-watch-march-22/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7137745/2026/03/22/cooper-flagg-kyrie-irving-has-be
 **What I'm seeing in Arizona: Jesús Made, Ryan Sloan among stars in Mariners/Brewers Spring Breakout**\
 `This game featured the No. 1 and No. 3 farm systems in baseball and 12 of MLB's top 100 prospects.`\
 https://nytimes.com/athletic/7137145/2026/03/22/mlb-prospects-scouting-seattle-mariners-milwaukee-brewers-spring-breakout/
-
-**The Courts Cannot Save Us From Trump**\
-`Placing too much faith in the law mistakes litigation for resistance.`\
-https://nytimes.com/2026/03/22/opinion/constitution-trump-courts.html
-
-**Can You Dress Your Way Out of Heartache?**\
-`In Odesa, the older generation continues to dress up, showing people’s determination to carry on despite the blows of history.`\
-https://nytimes.com/2026/03/22/opinion/fashion-odesa-ukraine-war.html
-
-**Blue Jays Prospect Notebook: JoJo Parker’s potential, Brandon Barriera’s comeback and more**\
-`Blue Jays are counting on top prospects to keep their winning window open for a long time.`\
-https://nytimes.com/athletic/7136966/2026/03/22/blue-jays-prospects-jojo-parker-brandon-barrieras/
-
-**Washington Is Flying Blind on China**\
-`Seeing China firsthand can sharpen U.S. policy, reveal Chinese strengths and weaknesses and reduce costly miscalculations.`\
-https://nytimes.com/2026/03/22/opinion/washington-china-officials-visit.html
 

@@ -1,3 +1,7 @@
+**How to watch Texas Tech vs. LSU women's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Texas Tech Lady Raiders play the LSU Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7137981/2026/03/22/texas-tech-vs-lsu-stream-how-to-watch-march-22/
+
 **Romance Novels Where Even the Non-Sexy Parts Make Your Heart Race**\
 `Our columnist on three sparkling new romances.`\
 https://nytimes.com/2026/03/22/books/review/new-romance-books.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7137384/2026/03/22/oziyah-sellers-tre-white-st-john
 **Cooper Flagg has leaned on Kyrie Irving 'a lot' during trying rookie season**\
 `Irving, who remains out with a knee injury, was also asked to lead an NBA team as a teenage rookie, just as Flagg is now.`\
 https://nytimes.com/athletic/7137745/2026/03/22/cooper-flagg-kyrie-irving-has-been-there-a-lot-for-me-mentally-in-trying-rookie-season/
-
-**What I'm seeing in Arizona: Jesús Made, Ryan Sloan among stars in Mariners/Brewers Spring Breakout**\
-`This game featured the No. 1 and No. 3 farm systems in baseball and 12 of MLB's top 100 prospects.`\
-https://nytimes.com/athletic/7137145/2026/03/22/mlb-prospects-scouting-seattle-mariners-milwaukee-brewers-spring-breakout/
 
