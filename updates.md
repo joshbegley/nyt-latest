@@ -1,3 +1,19 @@
+**The New York Times in Print for Sunday, March 22, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/22/todays-new-york-times
+
+**‘Stand by Me’: Dead Body and Leeches but Still a Better Way to Be a Kid**\
+`What a 40-year-old movie told me about childhood today.`\
+https://nytimes.com/2026/03/22/opinion/stand-by-me-stephen-king-rob-reiner-screen-time.html
+
+**Change Your Life. Start a Band.**\
+`We crave connection. We crave community. You should start by recruiting a drummer.`\
+https://nytimes.com/2026/03/22/opinion/band-music-community.html
+
+**Whims. Impulse. Memes. Lies. America Shouldn’t Fight a War Like This.**\
+`America shouldn’t fight a war like this.`\
+https://nytimes.com/2026/03/22/opinion/trump-iran-war-memes.html
+
 **Sean Miller has No. 11 seed Texas in the Sweet 16 and peaking right on time**\
 `Texas becomes the sixth First Four team to make the Sweet 16, thanks to a battle-tested coach who got another chance at the highest level.`\
 https://nytimes.com/athletic/7137480/2026/03/22/sean-miller-texas-sweet-16-ncaa-tounament/
