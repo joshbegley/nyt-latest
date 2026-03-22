@@ -1,3 +1,11 @@
+**Iran War Live Updates: Trump Threatens Iran’s Power Plants if Strait of Hormuz Does Not Open**\
+`President Trump’s ultimatum comes after Iranian missiles struck two cities in southern Israel, including one near the country’s main nuclear research center.`\
+https://nytimes.com/live/2026/03/22/world/iran-war-oil-trump
+
+**Here’s the latest.**\
+`By Pranav Baskar, Aaron Boxerman, Julian E. Barnes, Eric Schmidt and David E. Sanger`\
+https://nytimes.com/live/2026/03/22/world/iran-war-oil-trump/heres-the-latest
+
 **A new night, a new hero: Luke Kennard's dagger lifts Lakers to ninth straight win**\
 `A chat with coach JJ Redick helped Kennard "get out of my head a little bit" and escape a shooter's mini-slump.`\
 https://nytimes.com/athletic/7137741/2026/03/22/lakers-luke-kennard-magic-game-winner/
@@ -19,7 +27,7 @@ https://nytimes.com/athletic/7137087/2026/03/22/manchester-united-referee-compla
 https://nytimes.com/athletic/7131318/2026/03/22/carabao-cup-final-arsenal-manchester-city/
 
 **Where are Chelsea's leaders?**\
-`Everton showed Chelsea what a cohesive unit looked like during their 3-0 win on Saturday.`\
+`Everton showed Chelsea what a cohesive unit looked like during their 3-0 win on Saturday`\
 https://nytimes.com/athletic/7137018/2026/03/22/chelsea-everton-rosenior-fernandez-leaders/
 
 **Yes, Liverpool are being outrun - but being outthought and outfought are bigger problems**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7136714/2026/03/22/liverpool-running-less-opponents
 **How to watch Rayo Vallecano vs. Barcelona in the U.S.**\
 `Find out how to watch Rayo Vallecano play Barcelona, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7137775/2026/03/22/rayo-vallecano-vs-barcelona-stream-how-to-watch-march-22/
-
-**Tottenham vs Forest: Which coach needs it more? Positives to build on? Looming threat of relegation?**\
-`Will Igor Tudor or Vitor Pereira be sacked if their team loses? And how damaging would a drop into the Championship be?`\
-https://nytimes.com/athletic/7130522/2026/03/22/tottenham-nottingham-forest-coach-relegation/
-
-**Did Tuchel make a mistake by not calling up Welbeck for England?**\
-`Perhaps the national-team manager called up the wrong 35-year-old from Brighton`\
-https://nytimes.com/athletic/7136059/2026/03/22/welbeck-england-tuchel-brighton/
 

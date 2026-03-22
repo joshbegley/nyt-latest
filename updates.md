@@ -1,3 +1,15 @@
+**Iran War Live Updates: Trump Threatens Iran’s Power Plants if Strait of Hormuz Does Not Open**\
+`President Trump’s ultimatum comes after Iranian missiles struck two cities in southern Israel, including one near the country’s main nuclear research center.`\
+https://nytimes.com/live/2026/03/22/world/iran-war-oil-trump
+
+**Here’s the latest.**\
+`By Pranav Baskar, Aaron Boxerman, Julian E. Barnes, Eric Schmidt and David E. Sanger`\
+https://nytimes.com/live/2026/03/22/world/iran-war-oil-trump/heres-the-latest
+
+**Where are Chelsea's leaders?**\
+`Everton showed Chelsea what a cohesive unit looked like during their 3-0 win on Saturday`\
+https://nytimes.com/athletic/7137018/2026/03/22/chelsea-everton-rosenior-fernandez-leaders/
+
 **'We all need to pull together' — Lessons from Tottenham's previous relegation scraps**\
 `Spurs got what they needed from previous six-pointers at Oldham and Barnsley — can they do the same this time around?`\
 https://nytimes.com/athletic/7133480/2026/03/22/tottenham-relegation-scrap-1998/
