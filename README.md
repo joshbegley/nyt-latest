@@ -1,40 +1,40 @@
-**How to watch Miami (FL) vs. Purdue men's basketball: Second Round Time, TV, streaming**\
-`Find out how to watch the Miami Hurricanes play the Purdue Boilermakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7137941/2026/03/22/miami-fl-vs-purdue-stream-how-to-watch-march-22/
+**Red Wings can't overcome Jeremy Swayman in 'frustrating' loss: 5 thoughts**\
+`In another high-stakes game in a tight playoff race, the Red Wings ran into a red-hot goalie and lost out on 2 key points to the Bruins.`\
+https://nytimes.com/athletic/7137639/2026/03/22/detroit-red-wings-boston-bruins-jeremy-swayman/
 
-**The Misery Index: Bucks, Kings have had it bad. But who's had it worse?**\
-`These five teams likely aren't thinking about winning a title this year. But do they really only have the future to look forward to?`\
-https://nytimes.com/athletic/7104614/2026/03/22/nba-misery-giannis-bucks-kings-bulls/
+**Who's Minnesota's 'Blanket Lady'? More than a superfan, she was a women's basketball pioneer**\
+`A former barnstorming player, 81-year-old "Peps" Neuman now fuels Minnesota women's basketball fans. `\
+https://nytimes.com/athletic/7137239/2026/03/22/minnesota-gophers-womens-basketball-blanket-lady-march-madness/
 
-**How to watch Maryland vs. North Carolina women's basketball: Second Round Time, TV, streaming**\
-`Find out how to watch the Maryland Terrapins play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7137936/2026/03/22/maryland-vs-north-carolina-stream-how-to-watch-march-22/
+**2026 NHL prospect pool rankings: No. 19 Boston Bruins**\
+`After some retooling, the Bruins' pool is in a much healthier position now than it has been in a long time.`\
+https://nytimes.com/athletic/6988769/2026/03/22/boston-bruins-nhl-prospect-rankings-2026/
 
-**How to watch NC State vs. Michigan women's basketball: Second Round Time, TV, streaming**\
-`Find out how to watch the NC State Lady Wolfpack play the Michigan Wolverines, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7137934/2026/03/22/nc-state-vs-michigan-stream-how-to-watch-march-22/
+**What I'm seeing at Nationals camp: The hidden scoreboard that actually matters**\
+`Baseball’s youngest manager is not afraid to get his uniform dirty, plus a look at the new video and data now available to Nats hitters.`\
+https://nytimes.com/athletic/7136723/2026/03/22/washington-nationals-spring-training/
 
-**The New York Times International Edition in Print for Monday, March 23, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/03/22/todays-new-york-times-international-edition
+**Connections Companion No. 1,016**\
+`Scroll down for hints and conversation about the puzzle for Monday, March 23, 2026`\
+https://nytimes.com/2026/03/22/crosswords/connections-companion-1016.html
 
-**How to watch Jets vs. Rangers: Time, TV, streaming**\
-`Find out how to watch the Winnipeg Jets play the New York Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7137931/2026/03/22/jets-vs-rangers-stream-how-to-watch-march-22/
+**Wordle Review No. 1,738**\
+`Scroll down for hints and conversation about the puzzle for Monday, March 23, 2026.`\
+https://nytimes.com/2026/03/22/crosswords/wordle-review-1738.html
 
-**How to watch Avalanche vs. Capitals: Time, TV, streaming**\
-`Find out how to watch the Colorado Avalanche play the Washington Capitals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7137929/2026/03/22/avalanche-vs-capitals-stream-how-to-watch-march-22/
+**Men's March Madness guide: How to watch every game in Sunday's second round**\
+`The first weekend of the men's NCAA Tournament winds down. By Sunday night, the entire Sweet 16 will be set. `\
+https://nytimes.com/athletic/7137664/2026/03/22/march-madness-sunday-how-to-watch-purdue-kansas-arizona/
 
-**How to watch Deportivo Alaves vs. Celta de Vigo in the U.S.**\
-`Find out how to watch Deportivo Alaves play Celta de Vigo, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7137926/2026/03/22/deportivo-alaves-vs-celta-de-vigo-stream-how-to-watch-march-22/
+**Injections, Bone Hammering and the Pursuit of Peak Male Beauty**\
+`Inside the image-obsessed subculture that is “looksmaxxing.”`\
+https://nytimes.com/2026/03/22/podcasts/the-daily/clavicular-looksmaxxing-men.html
 
-**Gas Prices Have Jumped More Than 30% in Some States in Two Weeks**\
-`Across the South and Southwest, where price hikes have been the most severe, drivers have lamented how the increased costs have cut into their budgets.`\
-https://nytimes.com/2026/03/22/us/gas-prices-south-southwest.html
+**Strands Sidekick No. 750**\
+`Scroll down for hints and conversation about the puzzle for Monday, March 23, 2026.`\
+https://nytimes.com/2026/03/22/crosswords/strands-sidekick-750.html
 
-**The Chaotic Downfall of the ‘Bachelor’ Empire**\
-`As competing dating shows flaunt modern norms, the ABC franchise finds itself mired in scandals and stymied by its traditional approach to love.`\
-https://nytimes.com/2026/03/22/arts/taylor-frankie-paul-bachelorette-canceled.html
+**How Arkansas star Darius Acuff Jr. learned to control the game**\
+`The freshman's evolution from bucket-getter to trusted leader has been quick and eye-popping. On Saturday, he did whatever it took to win.`\
+https://nytimes.com/athletic/7137866/2026/03/22/darius-acuff-arkansas-sweet-16-ncaa-tournament/
 
