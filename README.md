@@ -1,3 +1,7 @@
+**Terry appears to endorse UK politician's call for nationwide burqa ban**\
+`The former England captain is still involved in football and has been in an academy coaching consultancy role with Chelsea since 2021.`\
+https://nytimes.com/athletic/7138278/2026/03/22/john-terry-chelsea-rupert-lowe-burqa-ban/
+
 **Christopher Columbus Statue Is Installed on White House Grounds**\
 `The statue of the explorer, a replica of one that protesters toppled in 2020, was placed outside the Eisenhower Executive Office Building.`\
 https://nytimes.com/2026/03/22/arts/design/columbus-statue-trump-white-house.html
@@ -10,7 +14,7 @@ https://nytimes.com/2026/03/22/us/politics/iran-israel-trump-netanyahu-mossad.ht
 `Washington sent a pitching prospect to New York for Jorbit Vivas, who could see time at second and third base for the Nationals.`\
 https://nytimes.com/athletic/7138672/2026/03/22/nationals-yankees-trade-jorbit-vivas-sean-paul-linan/
 
-**The Briefing: Arsenal 0 Man City 2 - Kepa Arrizabalaga error and Cherki showboating in Wembley nightmare for Arsenal**\
+**The Briefing: Arsenal 0 Man City 2 — Kepa Arrizabalaga error and Cherki showboating in Wembley nightmare for Arsenal**\
 `Our writers break down the action, from errors to showboating, as Man City beat Arsenal for the first silverware of the season`\
 https://nytimes.com/athletic/7135952/2026/03/22/arsenal-manchester-city-carabao-cup-final/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7138603/2026/03/22/tottenham-forest-relegation-play
 **Women's March Madness second-round takeaways: Zoe Brooks out for NC State**\
 `NC State's challenge just got steeper for Sunday's game against No. 2 seed Michigan.`\
 https://nytimes.com/athletic/7138589/2026/03/22/womens-march-madness-second-round-takeaways-zoe-brooks-nc-state/
-
-**How to watch UCLA vs. UConn men's basketball: Second Round Time, TV, streaming**\
-`Find out how to watch the UCLA Bruins play the UConn Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7138620/2026/03/22/ucla-vs-uconn-stream-how-to-watch-march-22/
 
