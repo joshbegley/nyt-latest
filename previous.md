@@ -6,6 +6,10 @@ https://nytimes.com/issue/magazine/2026/03/22/the-32226-issue
 `Analysing the big talking points from Sunday's huge Premier League relegation battle at Tottenham Hotspur Stadium`\
 https://nytimes.com/athletic/7128644/2026/03/22/tottenham-nottingham-forest-premier-league-result-analysis/
 
+**Spurs are in serious trouble: what happens when big clubs are relegated? 'It's embarrassing... a nightmare'**\
+`Some teams are said to be 'too good to go down'. But there are a history of shock relegations from the Premier League. Here's what happened`\
+https://nytimes.com/athletic/7133466/2026/03/22/premier-league-relegation-big-clubs-tottenham-newcastle/
+
 **A Window Into the Lives of New York City Renters**\
 `For Sunday’s issue of The New York Times Magazine, Gail Albert Halaban photographed city dwellers inside their apartments from across the street — with their permission, of course.`\
 https://nytimes.com/2026/03/22/insider/zohran-mamdani-new-york-rent-landlords.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7138269/2026/03/22/blue-jackets-vs-islanders-stream
 **Attack on a Sudan Hospital Kills Dozens, Head of W.H.O. Says**\
 `The group’s director general said 13 children were among those killed in the latest violence in the Darfur region, and he decried the targeting of health care facilities in the civil war.`\
 https://nytimes.com/2026/03/22/world/africa/sudan-hospital-darfur-attack.html
-
-**How to watch Nets vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Brooklyn Nets play the Sacramento Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7138239/2026/03/22/nets-vs-kings-stream-how-to-watch-march-22/
 

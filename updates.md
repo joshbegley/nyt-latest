@@ -1,3 +1,7 @@
+**Spurs are in serious trouble: what happens when big clubs are relegated? 'It's embarrassing... a nightmare'**\
+`Some teams are said to be 'too good to go down'. But there are a history of shock relegations from the Premier League. Here's what happened`\
+https://nytimes.com/athletic/7133466/2026/03/22/premier-league-relegation-big-clubs-tottenham-newcastle/
+
 **The 3.22.26 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2026/03/22/the-32226-issue
