@@ -1,3 +1,11 @@
+**How to watch Miami (FL) vs. Purdue men's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Miami Hurricanes play the Purdue Boilermakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7137941/2026/03/22/miami-fl-vs-purdue-stream-how-to-watch-march-22/
+
+**The Misery Index: Bucks, Kings have had it bad. But who's had it worse?**\
+`These five teams likely aren't thinking about winning a title this year. But do they really only have the future to look forward to?`\
+https://nytimes.com/athletic/7104614/2026/03/22/nba-misery-giannis-bucks-kings-bulls/
+
 **How to watch Maryland vs. North Carolina women's basketball: Second Round Time, TV, streaming**\
 `Find out how to watch the Maryland Terrapins play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7137936/2026/03/22/maryland-vs-north-carolina-stream-how-to-watch-march-22/
