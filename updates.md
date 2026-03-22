@@ -1,3 +1,7 @@
+**J. Michael Bishop, Nobel Prize Winner for Cancer Research, Dies at 90**\
+`He helped discover cancer-causing genes. Later, as chancellor of the University of California, San Francisco, he led a major expansion.`\
+https://nytimes.com/2026/03/22/obituaries/j-michael-bishop-dead.html
+
 **Terry appears to endorse UK politician's call for nationwide burqa ban**\
 `The former England captain is still involved in football and has been in an academy coaching consultancy role with Chelsea since 2021.`\
 https://nytimes.com/athletic/7138278/2026/03/22/john-terry-chelsea-rupert-lowe-burqa-ban/
