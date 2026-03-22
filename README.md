@@ -1,5 +1,5 @@
-**More Air-Conditioners Crank Up As Heat Wave Wilts Large Part of U.S.**\
-`Across the nation, more homes have added air-conditioning in recent years, something that may come in handy this week as some areas see temperatures 40 degrees above normal.`\
+**More Air-Conditioners Crank Up as Heat Wave Wilts Large Part of U.S.**\
+`In recent years, more homes have added air-conditioning, something that may come in handy this week as some areas are expected to see temperatures 40 degrees above normal.`\
 https://nytimes.com/2026/03/22/us/heat-wave-air-conditioning-california-utah-colorado-oklahoma.html
 
 **For ‘Buffy’ Fans, Nicholas Brendon’s Xander Was a Complicated Everyman**\

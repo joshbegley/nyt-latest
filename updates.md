@@ -1,3 +1,11 @@
+**More Air-Conditioners Crank Up As Heat Wave Wilts Large Part of U.S.**\
+`Across the nation, more homes have added air-conditioning in recent years, something that may come in handy this week as some areas see temperatures 40 degrees above normal.`\
+https://nytimes.com/2026/03/22/us/heat-wave-air-conditioning-california-utah-colorado-oklahoma.html
+
+**Ovechkin joins Gretzky as only players with 1K goals across regular-season, playoffs**\
+`The 40-year-old Capitals superstar broke Gretzky’s previous regular-season record of 894 goals on April 6, 2025, against the Islanders.`\
+https://nytimes.com/athletic/7139092/2026/03/22/alex-ovechkin-wayne-gretzky-1000-goals/
+
 **For ‘Buffy’ Fans, Nicholas Brendon’s Xander Was a Complicated Everyman**\
 `The actor, who died on Friday, was a fan favorite on “Buffy the Vampire Slayer,” even as his character mixed quiet heroism with hostility toward the show’s women.`\
 https://nytimes.com/2026/03/22/arts/television/nicholas-brendon-death-buffy-xander.html
