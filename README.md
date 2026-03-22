@@ -1,3 +1,7 @@
+**How to watch Kentucky vs. Iowa State men's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Kentucky Wildcats play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7137991/2026/03/22/kentucky-vs-iowa-state-stream-how-to-watch-march-22/
+
 **Introducing the Robot Umpire**\
 `We explain a technological change that’s about to transform baseball.`\
 https://nytimes.com/2026/03/22/briefing/introducing-the-robot-umpire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7137960/2026/03/22/real-betis-vs-athletic-bilbao-st
 **Maple Leafs after 70: Toronto should be more disgusted by losing than a lack of toughness**\
 `The Maple Leafs need to get "tougher" this offseason, but it can't be at the expense of getting better.`\
 https://nytimes.com/athletic/7135002/2026/03/22/maple-leafs-offseason-nhl-toughness-summer/
-
-**Jets Stanley Cup contender checklist: So far to go, unclear how to get there**\
-`Where are the Jets having success? Where do they need the most help? And how are they supposed to fill their roster holes?`\
-https://nytimes.com/athletic/7134462/2026/03/22/winnipeg-jets-stanley-cup-contender-checklist/
 
