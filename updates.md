@@ -1,3 +1,7 @@
+**Kevin Durant set the tone, but Rockets' future made altering plays in win vs. Heat**\
+`Kevin Durant's play has been consistent, but the Rockets are looking like a threat in the West with the play of their two young guards.`\
+https://nytimes.com/athletic/7137857/2026/03/22/kevin-durant-rockets-amen-thompson-reed-sheppard-nba/
+
 **Israel Orders Military to Intensify Demolitions in Southern Lebanon**\
 `Defense Minister Israel Katz instructed troops to destroy more bridges and buildings in southern Lebanon, stoking worries that Israel could expand a military-controlled buffer zone there.`\
 https://nytimes.com/2026/03/22/world/middleeast/israel-lebanon-fighting-hezbollah.html

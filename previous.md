@@ -1,3 +1,7 @@
+**Kevin Durant set the tone, but Rockets' future made altering plays in win vs. Heat**\
+`Kevin Durant's play has been consistent, but the Rockets are looking like a threat in the West with the play of their two young guards.`\
+https://nytimes.com/athletic/7137857/2026/03/22/kevin-durant-rockets-amen-thompson-reed-sheppard-nba/
+
 **Israel Orders Military to Intensify Demolitions in Southern Lebanon**\
 `Defense Minister Israel Katz instructed troops to destroy more bridges and buildings in southern Lebanon, stoking worries that Israel could expand a military-controlled buffer zone there.`\
 https://nytimes.com/2026/03/22/world/middleeast/israel-lebanon-fighting-hezbollah.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7137698/2026/03/22/womens-ncaa-tournament-power-ran
 **Devin Booker needs help, but time might be running out for short-handed Suns**\
 `This loss hurt the Suns because they needed a win in the worst way, but also because Booker struggled so mightily in the clutch.`\
 https://nytimes.com/athletic/7137911/2026/03/22/devin-booker-phoenix-suns-bucks-playoffs-play-in/
-
-**Spurs fans respond with pride after video disparaging Hispanic fans goes viral**\
-`After a viral video of a woman at a Spurs game sending disparaging texts about Hispanic fans, the Latino community responded with pride.`\
-https://nytimes.com/athletic/7137744/2026/03/22/spurs-fans-respond-with-pride-after-video-disparaging-hispanic-fans-goes-viral/
 
