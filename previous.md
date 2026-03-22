@@ -1,3 +1,7 @@
+**How to watch Real Betis vs. Athletic Bilbao in the U.S.**\
+`Find out how to watch Real Betis play Athletic Bilbao, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7137960/2026/03/22/real-betis-vs-athletic-bilbao-stream-how-to-watch-march-22/
+
 **Maple Leafs after 70: Toronto should be more disgusted by losing than a lack of toughness**\
 `The Maple Leafs need to get "tougher" this offseason, but it can't be at the expense of getting better.`\
 https://nytimes.com/athletic/7135002/2026/03/22/maple-leafs-offseason-nhl-toughness-summer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7136966/2026/03/22/blue-jays-prospects-jojo-parker-
 **Washington Is Flying Blind on China**\
 `Seeing China firsthand can sharpen U.S. policy, reveal Chinese strengths and weaknesses and reduce costly miscalculations.`\
 https://nytimes.com/2026/03/22/opinion/washington-china-officials-visit.html
-
-**Nebraska’s Sweet 16 joy, Vanderbilt’s agony were a centimeter from reversal**\
-`“They were so close to being in our shoes,” Nebraska's Cale Jacobsen said of the Commodores. “My heart goes out to those guys.”`\
-https://nytimes.com/athletic/7137807/2026/03/22/nebraska-vanderbilt-ncaa-tournament-sweet-16/
 

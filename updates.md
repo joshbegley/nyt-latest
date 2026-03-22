@@ -1,3 +1,7 @@
+**How to watch Real Betis vs. Athletic Bilbao in the U.S.**\
+`Find out how to watch Real Betis play Athletic Bilbao, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7137960/2026/03/22/real-betis-vs-athletic-bilbao-stream-how-to-watch-march-22/
+
 **Maple Leafs after 70: Toronto should be more disgusted by losing than a lack of toughness**\
 `The Maple Leafs need to get "tougher" this offseason, but it can't be at the expense of getting better.`\
 https://nytimes.com/athletic/7135002/2026/03/22/maple-leafs-offseason-nhl-toughness-summer/
