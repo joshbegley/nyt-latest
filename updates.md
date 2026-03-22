@@ -1,3 +1,7 @@
+**'We all need to pull together' — Lessons from Tottenham's previous relegation scraps**\
+`Spurs got what they needed from previous six-pointers at Oldham and Barnsley — can they do the same this time around?`\
+https://nytimes.com/athletic/7133480/2026/03/22/tottenham-relegation-scrap-1998/
+
 **A new night, a new hero: Luke Kennard's dagger lifts Lakers to ninth straight win**\
 `A chat with coach JJ Redick helped Kennard "get out of my head a little bit" and escape a shooter's mini-slump.`\
 https://nytimes.com/athletic/7137741/2026/03/22/lakers-luke-kennard-magic-game-winner/
