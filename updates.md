@@ -1,3 +1,8 @@
+**Sharks players get emotional after Ryan Reaves injures finger in fight, stays on bench**\
+`Reaves stayed on the bench for most of the game after appearing to suffer a finger injury in a scrap with the Flyers' Garrett Wilson.
+`\
+https://nytimes.com/athletic/7137323/2026/03/21/sharks-ryan-reaves-injury-finger-fight-flyers/
+
 **'River hockey'? Sabres' win over Kings shows they can win any type of game**\
 `River hockey implies a lack of structure, but it’s clear after the Sabres 4-1 win over Los Angeles that they don't have a problem with that.`\
 https://nytimes.com/athletic/7137409/2026/03/21/sabres-kings-river-hockey-win-streak/
