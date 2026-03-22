@@ -1,3 +1,11 @@
+**The 3.22.26 Issue**\
+``\
+https://nytimes.com/issue/magazine/2026/03/22/the-32226-issue
+
+**Tottenham 0 Nottingham Forest 3: Will Tudor be sacked after crushing defeat?**\
+`Analysing the big talking points from Sunday's huge Premier League relegation battle at Tottenham Hotspur Stadium`\
+https://nytimes.com/athletic/7128644/2026/03/22/tottenham-nottingham-forest-premier-league-result-analysis/
+
 **A Window Into the Lives of New York City Renters**\
 `For Sunday’s issue of The New York Times Magazine, Gail Albert Halaban photographed city dwellers inside their apartments from across the street — with their permission, of course.`\
 https://nytimes.com/2026/03/22/insider/zohran-mamdani-new-york-rent-landlords.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/22/world/africa/sudan-hospital-darfur-attack.html
 **How to watch Nets vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the Sacramento Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7138239/2026/03/22/nets-vs-kings-stream-how-to-watch-march-22/
-
-**Roan apologises after Jorginho says singer's security left daughter in tears**\
-`Chappell Roan said "I’m sorry to the mother and child" after the incident`\
-https://nytimes.com/athletic/7137053/2026/03/22/chappell-roan-jorginho-security-apologises/
-
-**Spring Cooking, Activate!**\
-`Lemon butter salmon, asparagus with furikake and chicken with spring vegetables, you’re up.`\
-https://nytimes.com/2026/03/22/dining/spring-cooking-activate.html
 

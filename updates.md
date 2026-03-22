@@ -1,3 +1,11 @@
+**The 3.22.26 Issue**\
+``\
+https://nytimes.com/issue/magazine/2026/03/22/the-32226-issue
+
+**Tottenham 0 Nottingham Forest 3: Will Tudor be sacked after crushing defeat?**\
+`Analysing the big talking points from Sunday's huge Premier League relegation battle at Tottenham Hotspur Stadium`\
+https://nytimes.com/athletic/7128644/2026/03/22/tottenham-nottingham-forest-premier-league-result-analysis/
+
 **A Window Into the Lives of New York City Renters**\
 `For Sunday’s issue of The New York Times Magazine, Gail Albert Halaban photographed city dwellers inside their apartments from across the street — with their permission, of course.`\
 https://nytimes.com/2026/03/22/insider/zohran-mamdani-new-york-rent-landlords.html
