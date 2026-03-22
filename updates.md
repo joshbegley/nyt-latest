@@ -1,3 +1,7 @@
+**At New York Airports, Long T.S.A. Lines and Frustrated Travelers**\
+`The shortage of checkpoint workers created lines of at least three hours at LaGuardia Airport. Many passengers doubted ICE agents were the solution.`\
+https://nytimes.com/2026/03/22/nyregion/airports-tsa-delays-nyc.html
+
 **Fitzpatrick forgets Players heartbreak with Valspar win**\
 `Fitzpatrick's 14-foot birdie putt on the 18th gave him a one-stroke win over David Lipsky.`\
 https://nytimes.com/athletic/7139313/2026/03/22/matt-fitzpatrick-valspar-championship-win-pga-tour-players/
