@@ -1,3 +1,7 @@
+**How to watch Nets vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Brooklyn Nets play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7138239/2026/03/22/nets-vs-kings-stream-how-to-watch-march-22/
+
 **Roan apologises after Jorginho says singer's security left daughter in tears**\
 `Chappell Roan said "I’m sorry to the mother and child" after the incident`\
 https://nytimes.com/athletic/7137053/2026/03/22/chappell-roan-jorginho-security-apologises/

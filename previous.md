@@ -1,3 +1,7 @@
+**How to watch Nets vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Brooklyn Nets play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7138239/2026/03/22/nets-vs-kings-stream-how-to-watch-march-22/
+
 **Roan apologises after Jorginho says singer's security left daughter in tears**\
 `Chappell Roan said "I’m sorry to the mother and child" after the incident`\
 https://nytimes.com/athletic/7137053/2026/03/22/chappell-roan-jorginho-security-apologises/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7138117/2026/03/22/st-john-s-vs-kansas-stream-how-t
 **Providence hiring USF's Bryan Hodgson as men's basketball coach**\
 `Hodgson led South Florida to its first NCAA Tournament appearance since 2012 this season.`\
 https://nytimes.com/athletic/7138076/2026/03/22/providence-hiring-bryan-hodgson-mens-basketball-coach/
-
-**Lowetide: Is Oilers' goalie of the future flourishing in obscurity this season?**\
-`Goaltender Samuel Jonsson was selected by the Oilers in the fifth round of the 2022 NHL Draft.`\
-https://nytimes.com/athletic/7136285/2026/03/22/edmonton-oilers-goalie-samuel-jonsson-stats-2026/
 
