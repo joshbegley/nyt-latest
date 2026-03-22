@@ -1,3 +1,5 @@
+
+
 **Residents of Arad Are Shaken After Direct Strike by Iranian Missile**\
 `Attacks on Saturday injured dozens in Arad and Dimona, two cities closest to Israel’s main nuclear research facility.`\
 https://nytimes.com/2026/03/22/world/middleeast/arad-dimona-israel-iran-missile-strike.html
