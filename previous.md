@@ -1,3 +1,11 @@
+**The Briefing: Arsenal 0 Man City 2 - Kepa Arrizabalaga error and Cherki showboating in Wembley nightmare for Arsenal**\
+`Our writers break down the action, from errors to showboating, as Man City beat Arsenal for the first silverware of the season.`\
+https://nytimes.com/athletic/7135952/2026/03/22/arsenal-manchester-city-carabao-cup-final/
+
+**Syracuse to name former star Gerry McNamara next men's basketball coach: Reports**\
+`Gerry McNamara led Siena to 23 wins and its first NCAA Tournament bid in 16 years this season.`\
+https://nytimes.com/athletic/7138633/2026/03/22/syracuse-gerry-mcnamara-mens-basketball-coach/
+
 **Two suspended, three fined after Thunder-Wizards fight spilled into stands**\
 `Two players, Ajay Mitchell and Justin Champagnie, were suspended one-game without pay, and three other players received fines.`\
 https://nytimes.com/athletic/7138588/2026/03/22/thunder-wizards-suspensions-fines-ajay-mitchell-justin-champagnie/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7138587/2026/03/22/michigan-state-vs-oklahoma-strea
 **Watkins 'expected' to be dropped from England squad after drop in form**\
 `The Aston Villa forward said his form "hasn't been great" but left the door open for World Cup selection after scoring on Sunday.`\
 https://nytimes.com/athletic/7138530/2026/03/22/ollie-watkins-england-aston-villa-world-cup/
-
-**How to watch Lightning vs. Flames: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Lightning play the Calgary Flames, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7138557/2026/03/22/lightning-vs-flames-stream-how-to-watch-march-22/
-
-**How to watch Sabres vs. Ducks: Time, TV, streaming**\
-`Find out how to watch the Buffalo Sabres play the Anaheim Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7138548/2026/03/22/sabres-vs-ducks-stream-how-to-watch-march-22/
 
