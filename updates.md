@@ -1,3 +1,7 @@
+**Tyler Reddick's historic NASCAR start continues with win at Darlington**\
+`Tyler Reddick, who made history by winning the first three races of the NASCAR season, made it four out of six Sunday at Darlington.`\
+https://nytimes.com/athletic/7139479/2026/03/22/tyler-reddick-nascar-darlington-win-rfk-racing/
+
 **At New York Airports, Long T.S.A. Lines and Frustrated Travelers**\
 `The shortage of checkpoint workers created lines of at least three hours at LaGuardia Airport. Many passengers doubted ICE agents were the solution.`\
 https://nytimes.com/2026/03/22/nyregion/airports-tsa-delays-nyc.html

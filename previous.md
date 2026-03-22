@@ -1,3 +1,7 @@
+**Tyler Reddick's historic NASCAR start continues with win at Darlington**\
+`Tyler Reddick, who made history by winning the first three races of the NASCAR season, made it four out of six Sunday at Darlington.`\
+https://nytimes.com/athletic/7139479/2026/03/22/tyler-reddick-nascar-darlington-win-rfk-racing/
+
 **At New York Airports, Long T.S.A. Lines and Frustrated Travelers**\
 `The shortage of checkpoint workers created lines of at least three hours at LaGuardia Airport. Many passengers doubted ICE agents were the solution.`\
 https://nytimes.com/2026/03/22/nyregion/airports-tsa-delays-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010794213/hawaii-oahu-maui-floods.html
 **Real Madrid 3 Atletico Madrid 2 - How good was Molina's goal? Why was Valverde sent off?**\
 `Victory sees Alvaro Arbeloa's side move back to within four points of defending champions Barcelona at the top of La Liga`\
 https://nytimes.com/athletic/7135953/2026/03/22/real-madrid-atletico-madrid-la-liga-result-analysis/
-
-**Got Older**\
-`For puzzlers of all generations, Matthew Luter hits the sweet spot.`\
-https://nytimes.com/2026/03/22/crosswords/daily-puzzle-2026-03-23.html
 
