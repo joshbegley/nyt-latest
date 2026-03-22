@@ -1,3 +1,11 @@
+**Israel Orders Military to Intensify Demolitions in Southern Lebanon**\
+`Defense Minister Israel Katz instructed troops to destroy more bridges and buildings in southern Lebanon, stoking worries that Israel could expand a military-controlled buffer zone there.`\
+https://nytimes.com/2026/03/22/world/middleeast/israel-lebanon-fighting-hezbollah.html
+
+**Phillies, Cristopher Sánchez agree to new 6-year deal, rewarding lefty for breakout**\
+`The new six-year deal will guarantee Sánchez $107 million, according to a source, and runs through 2032. It includes a 2033 club option.`\
+https://nytimes.com/athletic/7138033/2026/03/22/cristopher-sanchez-phillies-contract-extension/
+
 **Cristopher Sánchez, Phillies agree to new 6-year deal, rewarding lefty for breakout**\
 `The new six-year deal will guarantee Sánchez $107 million, according to a source, and runs through 2032. It includes a 2033 club option.`\
 https://nytimes.com/athletic/7138033/2026/03/22/cristopher-sanchez-phillies-contract-extension/
