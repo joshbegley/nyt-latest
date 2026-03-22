@@ -1,40 +1,40 @@
-**Penn State extends wrestling dynasty with fifth straight NCAA title**\
-`Nittany Lions coach Cael Sanderson claimed his 13th national championship in 17 years, as Penn State set an NCAA points record.`\
-https://nytimes.com/athletic/7137608/2026/03/21/penn-state-wrestling-ncaa-championship-streak/
+**Team USA flag football squad trounces 2 teams of NFL stars**\
+`Team USA won all three games against the pros by a combined 106-44 score.`\
+https://nytimes.com/athletic/7137564/2026/03/22/team-usa-flag-football-trounce-nfl-pros/
 
-**Nebraska makes first Sweet 16 after Vanderbilt half-court heave bounces out**\
-`The Cornhuskers picked up their second NCAA Tournament win in three days, surviving a last-second miss from Vanderbilt's Tyler Tanner.`\
-https://nytimes.com/athletic/7137603/2026/03/21/vanderbilt-nebraska-ncaa-tournamant/
+**The Business of Football: How many players do you need to win a World Cup anyway?**\
+`The English FA and the Premier League are having another row, as the club vs country debate rages on in English football`\
+https://nytimes.com/athletic/7120738/2026/03/22/england-premier-league-efl-fa/
 
-**Kuminga vs. Warriors was a dud, but good vibes remain: 'We always got along well'**\
-`If Kuminga's interactions with his former teammates after the game are any indication, those relationships will continue.`\
-https://nytimes.com/athletic/7137401/2026/03/21/jonathan-kuminga-hawks-warriors-kerr-snyder-nba/
+**Quote of the Day: A Lifeline for Inmates Turns Deadly**\
+`Quotation of the Day for Sunday, March 22, 2026.`\
+https://nytimes.com/2026/03/22/pageoneplus/quote-of-the-day-a-lifeline-for-inmates-turns-deadly.html
 
-**Blue Jackets' Cole Sillinger, Kent Johnson end droughts, key win over Kraken**\
-`The Blue Jackets' surge of offense is coming from all points of the lineup, including all four forward lines. `\
-https://nytimes.com/athletic/7137343/2026/03/21/blue-jackets-win-kraken-cole-sillinger-kent-johnson/
+**Election in Slovenia Will Test Europe’s Political Mood**\
+`The center-left government is being challenged by a right-wing populist accused of launching a smear campaign in the final days of a close race.`\
+https://nytimes.com/2026/03/22/world/europe/election-in-slovenia-will-test-europes-political-mood.html
 
-**What I saw on the Flyers' successful three-game California road sweep**\
-`A rejuvenated Garnet Hathaway was key to a California sweep of the Ducks, Kings and Sharks.`\
-https://nytimes.com/athletic/7137402/2026/03/21/flyers-california-road-trip-sweep-takeaways/
+**A Brussels Community Moves on From Terrorist Attacks, but New Challenges Emerge**\
+`Molenbeek was branded a hotbed of radicalization after the Paris and Brussels terrorist attacks of a decade ago. It is trying to reinvent itself amid new challenges.`\
+https://nytimes.com/2026/03/22/world/europe/brussels-terror-molenbeek.html
 
-**Andy Beshear Delivers a Scathing Attack on JD Vance in Ohio, Stoking 2028 Tensions**\
-`Mr. Beshear, the Democratic governor of Kentucky, sharply criticized Mr. Vance as both angle for potential presidential runs.`\
-https://nytimes.com/2026/03/21/us/politics/beshear-vance-2028-presidential-race.html
+**France Is Voting for Thousands of New Mayors. Here’s Why It Matters.**\
+`The far-right party had first-round successes in several cities, but so did the far left. Sunday’s second round may clarify who has real momentum.`\
+https://nytimes.com/2026/03/22/world/europe/france-mayors-elections-far-right.html
 
-**Kevin Durant passes Michael Jordan to move into fifth on NBA scoring list**\
-`Durant has called Jordan his "inspiration." Now, the 37-year-old Rockets star is above his idol on the NBA's career points leaderboard.`\
-https://nytimes.com/athletic/7135693/2026/03/21/kevin-durant-nba-scoring-list-michael-jordan/
+**The Billionaire Funding France’s Far Right**\
+`Pierre-Édouard Stérin is financing projects to make France less Muslim, more Catholic and more capitalist. He says his program has trained thousands running for municipal office on Sunday.`\
+https://nytimes.com/2026/03/22/pierre-eduoard-sterin-france-far-right.html
 
-**'River hockey'? Sabres' win over Kings shows they can win any type of game**\
-`River hockey implies a lack of structure. It’s clear after the Sabres' 4-1 win over Los Angeles they don't have a problem with that.`\
-https://nytimes.com/athletic/7137409/2026/03/21/sabres-kings-river-hockey-win-streak/
+**She’s a 2,500-Year-Old Rebel With a Cause**\
+`“Antigone” gave us the original “bad girl,” but its themes go beyond that. How do adaptations keep making Sophocles’ ideas about democracy and theater new?`\
+https://nytimes.com/2026/03/22/theater/antigone-theater-art-sophocles-adaptations.html
 
-**Cubs adding Michael Conforto to roster; Seiya Suzuki ruled out for Opening Day**\
-`With Suzuki potentially missing time with his knee injury, Conforto could be the starting right fielder on Opening Day.`\
-https://nytimes.com/athletic/7137417/2026/03/21/cubs-michael-conforto-seiya-suzuki-roster/
+**Why Are We Obsessed With Antigone?**\
+`Antigone, an ancient Greek play, is being adapted in several theaters across New York City. Our critic Helen Shaw explains why Sophocles’s anti-heroine is such a relevant figure today.`\
+https://nytimes.com/video/theater/100000010772863/antigone-tragedy-greek-helen-shaw-theater.html
 
-**Trump’s Reaction to Mueller’s Death: ‘Good, I’m Glad.’**\
-`The president has been known to disparage foes after their deaths. His response to Mr. Mueller’s death drew criticism from Republicans and Democrats.`\
-https://nytimes.com/2026/03/21/us/politics/trump-mueller-death.html
+**Italy’s Leader Wants to Change the Constitution. Italians Don’t Get It.**\
+`Voting starts Sunday on a referendum to overhaul Italy’s judiciary. Many people don’t understand the complex proposal — and it could hurt Prime Minister Giorgia Meloni.`\
+https://nytimes.com/2026/03/22/world/europe/italy-referendum-judiciary-meloni.html
 
