@@ -1,3 +1,19 @@
+**The New York Times in Print for Sunday, March 22, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/22/todays-new-york-times
+
+**‘Stand by Me’: Dead Body and Leeches but Still a Better Way to Be a Kid**\
+`What a 40-year-old movie told me about childhood today.`\
+https://nytimes.com/2026/03/22/opinion/stand-by-me-stephen-king-rob-reiner-screen-time.html
+
+**Change Your Life. Start a Band.**\
+`We crave connection. We crave community. You should start by recruiting a drummer.`\
+https://nytimes.com/2026/03/22/opinion/band-music-community.html
+
+**Whims. Impulse. Memes. Lies. America Shouldn’t Fight a War Like This.**\
+`America shouldn’t fight a war like this.`\
+https://nytimes.com/2026/03/22/opinion/trump-iran-war-memes.html
+
 **Sean Miller has No. 11 seed Texas in the Sweet 16 and peaking right on time**\
 `Texas becomes the sixth First Four team to make the Sweet 16, thanks to a battle-tested coach who got another chance at the highest level.`\
 https://nytimes.com/athletic/7137480/2026/03/22/sean-miller-texas-sweet-16-ncaa-tounament/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/22/pageoneplus/quote-of-the-day-a-lifeline-for-inmat
 **Election in Slovenia Will Test Europe’s Political Mood**\
 `The center-left government is being challenged by a right-wing populist accused of launching a smear campaign in the final days of a close race.`\
 https://nytimes.com/2026/03/22/world/europe/election-in-slovenia-will-test-europes-political-mood.html
-
-**A Brussels Community Moves on From Terrorist Attacks, but New Challenges Emerge**\
-`Molenbeek was branded a hotbed of radicalization after the Paris and Brussels terrorist attacks of a decade ago. It is trying to reinvent itself amid new challenges.`\
-https://nytimes.com/2026/03/22/world/europe/brussels-terror-molenbeek.html
-
-**France Is Voting for Thousands of New Mayors. Here’s Why It Matters.**\
-`The far-right party had first-round successes in several cities, but so did the far left. Sunday’s second round may clarify who has real momentum.`\
-https://nytimes.com/2026/03/22/world/europe/france-mayors-elections-far-right.html
-
-**The Billionaire Funding France’s Far Right**\
-`Pierre-Édouard Stérin is financing projects to make France less Muslim, more Catholic and more capitalist. He says his program has trained thousands running for municipal office on Sunday.`\
-https://nytimes.com/2026/03/22/pierre-eduoard-sterin-france-far-right.html
-
-**She’s a 2,500-Year-Old Rebel With a Cause**\
-`“Antigone” gave us the original “bad girl,” but its themes go beyond that. How do adaptations keep making Sophocles’ ideas about democracy and theater new?`\
-https://nytimes.com/2026/03/22/theater/antigone-theater-art-sophocles-adaptations.html
 

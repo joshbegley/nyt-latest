@@ -1,3 +1,7 @@
+**Sean Miller has No. 11 seed Texas in the Sweet 16 and peaking right on time**\
+`Texas becomes the sixth First Four team to make the Sweet 16, thanks to a battle-tested coach who got another chance at the highest level.`\
+https://nytimes.com/athletic/7137480/2026/03/22/sean-miller-texas-sweet-16-ncaa-tounament/
+
 **How are the middling Kings in the playoff hunt?**\
 `With a .522 points percentage, the Kings would rank among the worst teams to make the Stanley Cup playoffs in the salary cap era.`\
 https://nytimes.com/athletic/7137693/2026/03/22/los-angeles-kings-nhl-playoff-standings/

@@ -1,3 +1,7 @@
+**Sean Miller has No. 11 seed Texas in the Sweet 16 and peaking right on time**\
+`Texas becomes the sixth First Four team to make the Sweet 16, thanks to a battle-tested coach who got another chance at the highest level.`\
+https://nytimes.com/athletic/7137480/2026/03/22/sean-miller-texas-sweet-16-ncaa-tounament/
+
 **How are the middling Kings in the playoff hunt?**\
 `With a .522 points percentage, the Kings would rank among the worst teams to make the Stanley Cup playoffs in the salary cap era.`\
 https://nytimes.com/athletic/7137693/2026/03/22/los-angeles-kings-nhl-playoff-standings/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/22/pierre-eduoard-sterin-france-far-right.html
 **She’s a 2,500-Year-Old Rebel With a Cause**\
 `“Antigone” gave us the original “bad girl,” but its themes go beyond that. How do adaptations keep making Sophocles’ ideas about democracy and theater new?`\
 https://nytimes.com/2026/03/22/theater/antigone-theater-art-sophocles-adaptations.html
-
-**Why Are We Obsessed With Antigone?**\
-`Antigone, an ancient Greek play, is being adapted in several theaters across New York City. Our critic Helen Shaw explains why Sophocles’s anti-heroine is such a relevant figure today.`\
-https://nytimes.com/video/theater/100000010772863/antigone-tragedy-greek-helen-shaw-theater.html
 
