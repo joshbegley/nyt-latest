@@ -1,3 +1,11 @@
+**A new night, a new hero: Luke Kennard's dagger lifts Lakers to ninth straight win**\
+`A chat with coach JJ Redick helped Kennard "get out of my head a little bit" and escape a shooter's mini-slump.`\
+https://nytimes.com/athletic/7137741/2026/03/22/lakers-luke-kennard-magic-game-winner/
+
+**'We all need to pull together' - Lessons from Tottenham's previous relegation scraps**\
+`Spurs got what they needed from previous six-pointers at Oldham and Barnsley - can they do the same this time around?`\
+https://nytimes.com/athletic/7133480/2026/03/22/tottenham-relegation-scrap-1998/
+
 **Do we appreciate the sheer talent of footballers enough?**\
 `A footballer's talent can move people and that should be cherished, always. They can captivate, lift moods and they are the game's heart`\
 https://nytimes.com/athletic/7125930/2026/03/22/footballer-talent-appreciation-column/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7130522/2026/03/22/tottenham-nottingham-forest-coac
 **Did Tuchel make a mistake by not calling up Welbeck for England?**\
 `Perhaps the national-team manager called up the wrong 35-year-old from Brighton`\
 https://nytimes.com/athletic/7136059/2026/03/22/welbeck-england-tuchel-brighton/
-
-**Khadija ‘Bunny’ Shaw is the best women's striker in world football**\
-`The Manchester City forward has been too ruthless too many times to still be considered a revelation. Yet her feats border on the ridiculous`\
-https://nytimes.com/athletic/7136664/2026/03/22/khadija-bunny-shaw-best-women-striker-football/
-
-**Newcastle vs Sunderland: What does this Tyne-Wear derby mean? Will Howe and co get revenge?**\
-`Newcastle have not beaten Sunderland in the top flight at St James’ Park since October 2010, bringing an extra edge to a passionate derby`\
-https://nytimes.com/athletic/7133942/2026/03/22/newcastle-vs-sunderland-tyne-wear-derby-analysis/
 
