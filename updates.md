@@ -1,3 +1,7 @@
+**Two suspended, three fined after Thunder-Wizards fight spilled into stands**\
+`Ajay Mitchell and Justin Champagnie were each suspended for one game without pay, while three other players received fines.`\
+https://nytimes.com/athletic/7138588/2026/03/22/thunder-wizards-suspensions-fines-ajay-mitchell-justin-champagnie/
+
 **Nationals trade with Yankees to potentially round out their infield**\
 `Washington sent a pitching prospect to New York for Jorbit Vivas, who could see time at second and third base for the Nationals.`\
 https://nytimes.com/athletic/7138672/2026/03/22/nationals-yankees-trade-jorbit-vivas-sean-paul-linan/
