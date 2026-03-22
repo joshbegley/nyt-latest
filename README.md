@@ -1,4 +1,4 @@
-**Cristopher Sánchez, Phillies agree to new 6-year deal, rewarding lefty for breakout**\
+**Phillies, Cristopher Sánchez agree to new 6-year deal, rewarding lefty for breakout**\
 `The new six-year deal will guarantee Sánchez $107 million, according to a source, and runs through 2032. It includes a 2033 club option.`\
 https://nytimes.com/athletic/7138033/2026/03/22/cristopher-sanchez-phillies-contract-extension/
 

@@ -1,9 +1,25 @@
+**Cristopher Sánchez, Phillies agree to new 6-year deal, rewarding lefty for breakout**\
+`The new six-year deal will guarantee Sánchez $107 million, according to a source, and runs through 2032. It includes a 2033 club option.`\
+https://nytimes.com/athletic/7138033/2026/03/22/cristopher-sanchez-phillies-contract-extension/
+
+**How to watch Atletico Madrid vs. Real Madrid in the U.S.**\
+`Find out how to watch Atletico Madrid play Real Madrid, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7138046/2026/03/22/atletico-madrid-vs-real-madrid-stream-how-to-watch-march-22/
+
+**How to watch Trail Blazers vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the Portland Trail Blazers play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7138038/2026/03/22/trail-blazers-vs-nuggets-stream-how-to-watch-march-22/
+
+**Bracing for the A.I. Economy to Come**\
+`Readers respond to two guest essays about the changes that artificial intelligence will wreak on the work force. Also: The shoes of the Trump men.`\
+https://nytimes.com/2026/03/22/opinion/ai-economy-jobs.html
+
 **Canadiens' ultimate goal comes into focus: 'This was a week we found ourselves again'**\
 `The Canadiens' top talent gives them the best chance to win, but it was the supporting cast that stepped up against the Islanders.`\
 https://nytimes.com/athletic/7137811/2026/03/22/canadiens-cole-caufield-win-islanders/
 
 **Utah State can't match college basketball's spending or keep a coach. It wins anyway**\
-`In a sport increasingly auctioned off to the highest bidder, Utah State’s footing feels almost out of place.`\
+`In a sport increasingly auctioned off to the highest bidder, Utah State’s solid footing feels almost out of place.`\
 https://nytimes.com/athletic/7137878/2026/03/22/ncaa-tournament-utah-state-march-madness/
 
 **Women's NCAA Tournament power rankings: Resetting the title contenders for Round 2**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7137744/2026/03/22/spurs-fans-respond-with-pride-af
 **The Role of Public Theology in Crisis**\
 `As the war in Iran enters its fourth week, I’m yearning for a more robust conversation about morality — in politics, in our workplaces and online.`\
 https://nytimes.com/2026/03/22/briefing/the-role-of-public-theology-in-crisis.html
-
-**How to watch Kentucky vs. Iowa State men's basketball: Second Round Time, TV, streaming**\
-`Find out how to watch the Kentucky Wildcats play the Iowa State Cyclones, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7137991/2026/03/22/kentucky-vs-iowa-state-stream-how-to-watch-march-22/
-
-**Introducing the Robot Umpire**\
-`We explain a technological change that’s about to transform baseball.`\
-https://nytimes.com/2026/03/22/briefing/introducing-the-robot-umpire.html
-
-**How to watch Ole Miss vs. Minnesota women's basketball: Second Round Time, TV, streaming**\
-`Find out how to watch the Ole Miss Rebels play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7137985/2026/03/22/ole-miss-vs-minnesota-stream-how-to-watch-march-22/
-
-**How to watch Texas Tech vs. LSU women's basketball: Second Round Time, TV, streaming**\
-`Find out how to watch the Texas Tech Lady Raiders play the LSU Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7137981/2026/03/22/texas-tech-vs-lsu-stream-how-to-watch-march-22/
 
