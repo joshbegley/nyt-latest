@@ -1,3 +1,7 @@
+**ICE Will Deploy to Airports to Ease Long Lines, Border Czar Confirms**\
+`Tom Homan, President Trump’s chief border official, said plans were being drawn up to send immigration and customs agents to U.S. airports.`\
+https://nytimes.com/2026/03/22/us/politics/ice-airports-homan-trump.html
+
 **Anti-Muslim Comments by G.O.P. Congressman Reflect a Rising Trend**\
 `On Capitol Hill and in Nashville, comments by Representative Andy Ogles of Tennessee have sown division and underscored a growing tolerance on the right for Islamophobia.`\
 https://nytimes.com/2026/03/22/us/politics/ogles-republicans-anti-muslim.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7137857/2026/03/22/kevin-durant-rockets-amen-thomps
 **Israel Orders Military to Intensify Demolitions in Southern Lebanon**\
 `Defense Minister Israel Katz instructed troops to destroy more bridges and buildings in southern Lebanon, stoking worries that Israel could expand a military-controlled buffer zone there.`\
 https://nytimes.com/2026/03/22/world/middleeast/israel-lebanon-fighting-hezbollah.html
-
-**Phillies, Cristopher Sánchez agree to new 6-year deal, rewarding lefty for breakout**\
-`The new six-year deal will guarantee Sánchez $107 million, according to a source, and runs through 2032. It includes a 2033 club option.`\
-https://nytimes.com/athletic/7138033/2026/03/22/cristopher-sanchez-phillies-contract-extension/
 

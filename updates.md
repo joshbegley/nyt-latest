@@ -1,3 +1,7 @@
+**ICE Will Deploy to Airports to Ease Long Lines, Border Czar Confirms**\
+`Tom Homan, President Trump’s chief border official, said plans were being drawn up to send immigration and customs agents to U.S. airports.`\
+https://nytimes.com/2026/03/22/us/politics/ice-airports-homan-trump.html
+
 **Newcastle vs Sunderland halted after report of racist abuse towards Geertruida**\
 `Play was stopped in the second half of the Tyne-Wear derby after referee Antony Taylor was informed of the alleged abuse.`\
 https://nytimes.com/athletic/7138111/2026/03/22/newcastle-sunderland-racist-abuse-lutsharel-geertruida/

@@ -1,3 +1,7 @@
+**Iran responds to Trump’s energy threat with defiance and warnings of its own.**\
+`Tehran “will not hesitate in defending its people and its land,” a senior official said, after President Trump threatened to destroy Iranian power plants.`\
+https://nytimes.com/live/2026/03/22/world/iran-war-oil-trump/iran-response-trump-threat-power-plants
+
 **ICE Will Deploy to Airports to Ease Long Lines, Border Czar Confirms**\
 `Tom Homan, President Trump’s chief border official, said plans were being drawn up to send immigration and customs agents to U.S. airports.`\
 https://nytimes.com/2026/03/22/us/politics/ice-airports-homan-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7138083/2026/03/22/baylor-vs-duke-stream-how-to-wat
 **Kevin Durant set the tone, but Rockets' future made altering plays in win vs. Heat**\
 `Kevin Durant's play has been consistent, but the Rockets are looking like a threat in the West with the play of their two young guards.`\
 https://nytimes.com/athletic/7137857/2026/03/22/kevin-durant-rockets-amen-thompson-reed-sheppard-nba/
-
-**Israel Orders Military to Intensify Demolitions in Southern Lebanon**\
-`Defense Minister Israel Katz instructed troops to destroy more bridges and buildings in southern Lebanon, stoking worries that Israel could expand a military-controlled buffer zone there.`\
-https://nytimes.com/2026/03/22/world/middleeast/israel-lebanon-fighting-hezbollah.html
 
