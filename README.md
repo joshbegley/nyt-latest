@@ -1,3 +1,7 @@
+**'River hockey'? Sabres' win over Kings shows they can win any type of game**\
+`River hockey implies a lack of structure, but it’s clear after the Sabres 4-1 win over Los Angeles that they don't have a problem with that.`\
+https://nytimes.com/athletic/7137409/2026/03/21/sabres-kings-river-hockey-win-streak/
+
 **Cubs adding Michael Conforto to roster; Seiya Suzuki ruled out for Opening Day**\
 `With Suzuki potentially missing time with his knee injury, Conforto could be the starting right fielder on Opening Day.`\
 https://nytimes.com/athletic/7137417/2026/03/21/cubs-michael-conforto-seiya-suzuki-roster/
@@ -34,8 +38,4 @@ https://nytimes.com/2026/03/21/business/media/pentagon-press-access.html
 `Reaves stayed on the bench for most of the game after appearing to suffer a finger injury in a scrap with the Flyers' Garrett Wilson.
 `\
 https://nytimes.com/athletic/7137323/2026/03/21/sharks-ryan-reaves-injury-finger-fight-flyers/
-
-**Already Flooded, Oahu Braces for More Rain**\
-`Thousands of residents on Oahu had yet to return home as the Hawaiian island dealt with the aftermath of severe rainfall. The storm was moving south over the island toward Maui.`\
-https://nytimes.com/2026/03/21/us/oahu-flood-hawaii.html
 
