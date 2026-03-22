@@ -1,3 +1,16 @@
+**How to watch Sabres vs. Ducks: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the Anaheim Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7138548/2026/03/22/sabres-vs-ducks-stream-how-to-watch-march-22/
+
+**How to watch Kings vs. Mammoth: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Kings play the Utah Mammoth, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7138543/2026/03/22/kings-vs-mammoth-stream-how-to-watch-march-22/
+
+**The day everything went wrong for Newcastle**\
+`Newcastle talked the talk and then fluffed the walk, hobbling and tripping. There are no excuses and no hiding places, for Howe or anybody
+`\
+https://nytimes.com/athletic/7138384/2026/03/22/newcastle-sunderland-derby-wrong/
+
 **Mets get bad news on Mike Tauchman, tell Craig Kimbrel he won't make roster**\
 `Tauchman will be out "a while" after he gets surgery on a torn left knee, clearing a path for Carson Benge to make his big-league debut.`\
 https://nytimes.com/athletic/7138443/2026/03/22/mets-mike-tauchman-injury-craig-kimbrel-roster/

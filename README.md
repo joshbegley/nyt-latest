@@ -1,3 +1,7 @@
+**How to watch Lightning vs. Flames: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the Calgary Flames, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7138557/2026/03/22/lightning-vs-flames-stream-how-to-watch-march-22/
+
 **How to watch Sabres vs. Ducks: Time, TV, streaming**\
 `Find out how to watch the Buffalo Sabres play the Anaheim Ducks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7138548/2026/03/22/sabres-vs-ducks-stream-how-to-watch-march-22/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7138498/2026/03/22/raptors-vs-suns-stream-how-to-wa
 `Newcastle talked the talk and then fluffed the walk, hobbling and tripping. There are no excuses and no hiding places, for Howe or anybody
 `\
 https://nytimes.com/athletic/7138384/2026/03/22/newcastle-sunderland-derby-wrong/
-
-**What will Caitlin Clark, Paige Bueckers and other WNBA stars on rookie contracts now make?**\
-`The new CBA provides big pay boosts and allows players on rookie contacts to increase their earning potential.`\
-https://nytimes.com/athletic/7138313/2026/03/22/caitlin-clark-paige-bueckers-rookie-salary-cba/
 
