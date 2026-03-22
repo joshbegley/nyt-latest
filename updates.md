@@ -1,3 +1,11 @@
+**The Role of Public Theology in Crisis**\
+`As the war in Iran enters its fourth week, I’m yearning for a more robust conversation about morality — in politics, in our workplaces and online.`\
+https://nytimes.com/2026/03/22/briefing/the-role-of-public-theology-in-crisis.html
+
+**How to watch Kentucky vs. Iowa State men's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Kentucky Wildcats play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7137991/2026/03/22/kentucky-vs-iowa-state-stream-how-to-watch-march-22/
+
 **Introducing the Robot Umpire**\
 `We explain a technological change that’s about to transform baseball.`\
 https://nytimes.com/2026/03/22/briefing/introducing-the-robot-umpire.html
