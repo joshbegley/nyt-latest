@@ -1,3 +1,15 @@
+**Christopher Columbus Statue Is Installed on White House Grounds**\
+`The statue of the explorer, a replica of one that protesters toppled in 2020, was placed outside the Eisenhower Executive Office Building.`\
+https://nytimes.com/2026/03/22/arts/design/columbus-statue-trump-white-house.html
+
+**Israel Thought It Could Spur Rebellion Inside Iran. That Hasn’t Happened.**\
+`President Trump’s hopes that an Israeli plan to ignite an internal uprising against Iran’s theocratic government could bring the war to a swift end have so far been dashed.`\
+https://nytimes.com/2026/03/22/us/politics/iran-israel-trump-netanyahu-mossad.html
+
+**The Briefing: Arsenal 0 Man City 2 - Kepa Arrizabalaga error and Cherki showboating in Wembley nightmare for Arsenal**\
+`Our writers break down the action, from errors to showboating, as Man City beat Arsenal for the first silverware of the season`\
+https://nytimes.com/athletic/7135952/2026/03/22/arsenal-manchester-city-carabao-cup-final/
+
 **Two suspended, three fined after Thunder-Wizards fight spilled into stands**\
 `Ajay Mitchell and Justin Champagnie were each suspended for one game without pay, while three other players received fines.`\
 https://nytimes.com/athletic/7138588/2026/03/22/thunder-wizards-suspensions-fines-ajay-mitchell-justin-champagnie/

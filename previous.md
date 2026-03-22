@@ -1,9 +1,17 @@
+**Christopher Columbus Statue Is Installed on White House Grounds**\
+`The statue of the explorer, a replica of one that protesters toppled in 2020, was placed outside the Eisenhower Executive Office Building.`\
+https://nytimes.com/2026/03/22/arts/design/columbus-statue-trump-white-house.html
+
+**Israel Thought It Could Spur Rebellion Inside Iran. That Hasn’t Happened.**\
+`President Trump’s hopes that an Israeli plan to ignite an internal uprising against Iran’s theocratic government could bring the war to a swift end have so far been dashed.`\
+https://nytimes.com/2026/03/22/us/politics/iran-israel-trump-netanyahu-mossad.html
+
 **Nationals trade with Yankees to potentially round out their infield**\
 `Washington sent a pitching prospect to New York for Jorbit Vivas, who could see time at second and third base for the Nationals.`\
 https://nytimes.com/athletic/7138672/2026/03/22/nationals-yankees-trade-jorbit-vivas-sean-paul-linan/
 
 **The Briefing: Arsenal 0 Man City 2 - Kepa Arrizabalaga error and Cherki showboating in Wembley nightmare for Arsenal**\
-`Our writers break down the action, from errors to showboating, as Man City beat Arsenal for the first silverware of the season.`\
+`Our writers break down the action, from errors to showboating, as Man City beat Arsenal for the first silverware of the season`\
 https://nytimes.com/athletic/7135952/2026/03/22/arsenal-manchester-city-carabao-cup-final/
 
 **Syracuse to name former star Gerry McNamara next men's basketball coach: Reports**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7138589/2026/03/22/womens-march-madness-second-roun
 **How to watch UCLA vs. UConn men's basketball: Second Round Time, TV, streaming**\
 `Find out how to watch the UCLA Bruins play the UConn Huskies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7138620/2026/03/22/ucla-vs-uconn-stream-how-to-watch-march-22/
-
-**How to watch Utah State vs. Arizona men's basketball: Second Round Time, TV, streaming**\
-`Find out how to watch the Utah State Aggies play the Arizona Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7138615/2026/03/22/utah-state-vs-arizona-stream-how-to-watch-march-22/
-
-**How to watch Michigan State vs. Oklahoma women's basketball: Second Round Time, TV, streaming**\
-`Find out how to watch the Michigan State Spartans play the Oklahoma Sooners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7138587/2026/03/22/michigan-state-vs-oklahoma-stream-how-to-watch-march-22/
 
