@@ -1,3 +1,7 @@
+**The Briefing: Newcastle 1 Sunderland 2 - How damaging is another derby defeat? Bright future for Sunderland?**\
+`Sunderland made it a Tyne-Wear derby double by beating Newcastle 2-1 on Sunday afternoon`\
+https://nytimes.com/athletic/7128643/2026/03/22/newcastle-sunderland-result-score-report-analysis/
+
 **Newcastle vs Sunderland halted after report of racist abuse towards Geertruida**\
 `Play was stopped in the second half of the Tyne-Wear derby after referee Antony Taylor was informed of the alleged abuse`\
 https://nytimes.com/athletic/7138111/2026/03/22/newcastle-sunderland-racist-abuse-lutsharel-geertruida/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7138033/2026/03/22/cristopher-sanchez-phillies-cont
 **How to watch Atletico Madrid vs. Real Madrid in the U.S.**\
 `Find out how to watch Atletico Madrid play Real Madrid, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7138046/2026/03/22/atletico-madrid-vs-real-madrid-stream-how-to-watch-march-22/
-
-**How to watch Trail Blazers vs. Nuggets: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Denver Nuggets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7138038/2026/03/22/trail-blazers-vs-nuggets-stream-how-to-watch-march-22/
 
