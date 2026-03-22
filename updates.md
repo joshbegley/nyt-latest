@@ -1,3 +1,7 @@
+**ICE Agents Will Be Deployed to U.S. Airports, White House Confirms**\
+`Tom Homan, the White House border czar, confirmed on Sunday that Immigration and Customs Enforcement agents would help security officials ease long lines at airports starting Monday.`\
+https://nytimes.com/video/us/100000010794811/ice-agents-will-be-deployed-to-us-airports-white-house-confirms.html
+
 **J. Michael Bishop, Nobel Prize Winner for Cancer Research, Dies at 90**\
 `He helped discover cancer-causing genes. Later, as chancellor of the University of California, San Francisco, he led a major expansion.`\
 https://nytimes.com/2026/03/22/obituaries/j-michael-bishop-dead.html

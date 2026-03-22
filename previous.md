@@ -1,3 +1,7 @@
+**ICE Agents Will Be Deployed to U.S. Airports, White House Confirms**\
+`Tom Homan, the White House border czar, confirmed on Sunday that Immigration and Customs Enforcement agents would help security officials ease long lines at airports starting Monday.`\
+https://nytimes.com/video/us/100000010794811/ice-agents-will-be-deployed-to-us-airports-white-house-confirms.html
+
 **J. Michael Bishop, Nobel Prize Winner for Cancer Research, Dies at 90**\
 `He helped discover cancer-causing genes. Later, as chancellor of the University of California, San Francisco, he led a major expansion.`\
 https://nytimes.com/2026/03/22/obituaries/j-michael-bishop-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7138588/2026/03/22/thunder-wizards-suspensions-fine
 **Dodgers settle second base battle, opting for rookie Alex Freeland over Hyeseong Kim**\
 `Los Angeles optioned Kim to the minors after he hit .407 during spring training, while Freeland batted .116.`\
 https://nytimes.com/athletic/7138568/2026/03/22/dodgers-alex-freeland-hyeseong-kim-second-base/
-
-**Spurs assistant coach Bruno insists players 'care' about relegation threat**\
-`Bruno was conducting post-match media duties as head coach Igor Tudor was informed of a close family bereavement after the game.`\
-https://nytimes.com/athletic/7138603/2026/03/22/tottenham-forest-relegation-players-care/
 
