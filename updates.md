@@ -1,3 +1,11 @@
+**Wisconsin defeats Ohio State to win back-to-back NCAA women’s hockey championships**\
+`It took the high-octane Badgers’ offense just 78 seconds to open the scoring as they defeated the Buckeyes 3-2 on Sunday.`\
+https://nytimes.com/athletic/7139405/2026/03/22/wisconsin-ohio-state-ncaa-hockey-womens-championship/
+
+**Tessa Dellarose scores first pro goal as Chicago Stars upset Kansas City**\
+`On a day when the wind dictated the style, Chicago proved they could win, even when it's not pretty. `\
+https://nytimes.com/athletic/7139170/2026/03/22/chicago-stars-kansas-city-current-tessa-dellarose-debut-goal-wind/
+
 **Reds' Nick Lodolo leaves Cactus League finale early with a blister**\
 `Lodolo has spent time on the IL each of the past two seasons with blister issues.`\
 https://nytimes.com/athletic/7139383/2026/03/22/reds-nick-lodolo-injury-blister/
