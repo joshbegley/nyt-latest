@@ -1,3 +1,11 @@
+**How to watch Avalanche vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7137929/2026/03/22/avalanche-vs-capitals-stream-how-to-watch-march-22/
+
+**How to watch Deportivo Alaves vs. Celta de Vigo in the U.S.**\
+`Find out how to watch Deportivo Alaves play Celta de Vigo, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7137926/2026/03/22/deportivo-alaves-vs-celta-de-vigo-stream-how-to-watch-march-22/
+
 **Gas Prices Have Jumped More Than 30% in Some States in Two Weeks**\
 `Across the South and Southwest, where price hikes have been the most severe, drivers have lamented how the increased costs have cut into their budgets.`\
 https://nytimes.com/2026/03/22/us/gas-prices-south-southwest.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/22/us/meteor-hunters-ohio-cleveland.html
 **How the Supreme Court Could Change Voting by Mail**\
 `The Supreme Court is ruling on whether ballots received after Election Day should be disqualified. Our national politics reporter Nick Corasaniti explains how a Supreme Court ruling could affect hundreds of thousands of Americans in rural and urban areas.`\
 https://nytimes.com/video/us/elections/100000010785480/how-the-supreme-court-could-change-voting-by-mail.html
-
-**The Supreme Court Could Make It Harder to Vote by Mail in the Midterms**\
-`The Republican National Committee wants to toss ballots arriving after Election Day. Critics say thousands of votes — a majority cast by Democrats — are at stake.`\
-https://nytimes.com/2026/03/22/us/politics/the-supreme-court-could-make-it-harder-to-vote-by-mail-in-the-midterms.html
-
-**Choose Your Netflix Mystery: Agatha Christie or Jo Nesbo**\
-`New international series offer British sleuthing, Nordic noir, anime heartbreak and the ethereal landscapes of China’s west.`\
-https://nytimes.com/2026/03/22/arts/television/choose-your-netflix-mystery-agatha-christie-or-jo-nesbo.html
 
