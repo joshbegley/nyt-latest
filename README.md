@@ -1,3 +1,7 @@
+**Trump’s Reaction to Mueller’s Death: ‘Good, I’m Glad.’**\
+`The president has consistently celebrated the deaths of political foes. His response to Mr. Mueller’s death drew criticism from Republicans and Democrats.`\
+https://nytimes.com/2026/03/21/us/politics/trump-mueller-death.html
+
 **Luka Dončić facing one-game suspension due to 16th technical foul of season**\
 `Should the technical foul not be rescinded, Dončić would miss the Lakers game Monday night in Detroit against the Pistons.`\
 https://nytimes.com/athletic/7137452/2026/03/21/luka-doncic-1-game-suspension-technical-foul-lakers-nba/
@@ -34,8 +38,4 @@ https://nytimes.com/2026/03/21/us/oahu-flood-hawaii.html
 **ABS hot mic: Umpire caught saying 'please be a strike' during pitch challenge**\
 `The entire ballpark got to hear Bill Miller's honest reaction after one of the pitches he called was challenged. `\
 https://nytimes.com/athletic/7137192/2026/03/21/hot-mic-umpire-bill-miller-sf-giants-guardians-abs/
-
-**Gotham captain Tierna Davidson makes first appearance since ACL tear last year**\
-`The defender's return only further strengthens Gotham's back line.`\
-https://nytimes.com/athletic/7137093/2026/03/21/gotham-tierna-davidson-return-acl-tear/
 

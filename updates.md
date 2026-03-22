@@ -1,3 +1,8 @@
+**Sharks players get emotional after Ryan Reaves injures finger in fight, stays on bench**\
+`Reaves stayed on the bench for most of the game after appearing to suffer a finger injury in a scrap with the Flyers' Garrett Wilson.
+`\
+https://nytimes.com/athletic/7137323/2026/03/21/sharks-ryan-reaves-injury-finger-fight-flyers/
+
 **Luka Dončić facing one-game suspension due to 16th technical foul of season**\
 `Should the technical foul not be rescinded, Dončić would miss the Lakers game Monday night in Detroit against the Pistons.`\
 https://nytimes.com/athletic/7137452/2026/03/21/luka-doncic-1-game-suspension-technical-foul-lakers-nba/
