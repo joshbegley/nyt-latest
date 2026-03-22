@@ -1,3 +1,7 @@
+**Dodgers settle second base battle, opting for rookie Alex Freeland over Hyeseong Kim**\
+`Los Angeles optioned Kim to the minors after he hit .407 during spring training, while Freeland batted .116.`\
+https://nytimes.com/athletic/7138568/2026/03/22/dodgers-alex-freeland-hyeseong-kim-second-base/
+
 **Spurs assistant coach Bruno insists players 'care' about relegation threat**\
 `Bruno was conducting post-match media duties as head coach Igor Tudor was informed of a close family bereavement after the game.`\
 https://nytimes.com/athletic/7138603/2026/03/22/tottenham-forest-relegation-players-care/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7138548/2026/03/22/sabres-vs-ducks-stream-how-to-wa
 **How to watch Kings vs. Mammoth: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Kings play the Utah Mammoth, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7138543/2026/03/22/kings-vs-mammoth-stream-how-to-watch-march-22/
-
-**How to watch Wizards vs. Knicks: Time, TV, streaming**\
-`Find out how to watch the Washington Wizards play the New York Knicks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7138514/2026/03/22/wizards-vs-knicks-stream-how-to-watch-march-22/
 
