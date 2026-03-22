@@ -1,6 +1,6 @@
 **Roan apologises after Jorginho says singer's security left daughter in tears**\
 `Chappell Roan said "I’m sorry to the mother and child" after the incident`\
-https://nytimes.com/athletic/7137053/2026/03/22/chappel-roan-jorginho-security-apologises/
+https://nytimes.com/athletic/7137053/2026/03/22/chappell-roan-jorginho-security-apologises/
 
 **Spring Cooking, Activate!**\
 `Lemon butter salmon, asparagus with furikake and chicken with spring vegetables, you’re up.`\

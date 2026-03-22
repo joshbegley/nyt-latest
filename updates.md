@@ -1,3 +1,15 @@
+**Roan apologises after Jorginho says singer's security left daughter in tears**\
+`Chappell Roan said "I’m sorry to the mother and child" after the incident`\
+https://nytimes.com/athletic/7137053/2026/03/22/chappel-roan-jorginho-security-apologises/
+
+**Spring Cooking, Activate!**\
+`Lemon butter salmon, asparagus with furikake and chicken with spring vegetables, you’re up.`\
+https://nytimes.com/2026/03/22/dining/spring-cooking-activate.html
+
+**ICE to Augment Security at Airports Amid Partial Shutdown, Border Czar Says**\
+`Tom Homan, President Trump’s chief border official, said plans were being drawn up to send immigration and customs agents to U.S. airports.`\
+https://nytimes.com/2026/03/22/us/politics/ice-airports-homan-trump.html
+
 **Iran responds to Trump’s energy threat with defiance and warnings of its own.**\
 `Tehran “will not hesitate in defending its people and its land,” a senior official said, after President Trump threatened to destroy Iranian power plants.`\
 https://nytimes.com/live/2026/03/22/world/iran-war-oil-trump/iran-response-trump-threat-power-plants
