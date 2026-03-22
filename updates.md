@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/7137323/2026/03/21/sharks-ryan-reaves-injury-finger-fight-flyers/
 
+**Sharks players get emotional after Ryan Reaves injures finger in fight, stays on bench**\
+`Reaves stayed on the bench for most of the game after appearing to suffer a finger injury in a scrap with the Flyers' Garrett Wilson.
+`\
+https://nytimes.com/athletic/7137323/2026/03/21/sharks-ryan-reaves-injury-finger-fight-flyers/
+
 **Cubs adding Michael Conforto to roster; Seiya Suzuki ruled out for Opening Day**\
 `With Suzuki potentially missing time with his knee injury, Conforto could be the starting right fielder on Opening Day.`\
 https://nytimes.com/athletic/7137417/2026/03/21/cubs-michael-conforto-seiya-suzuki-roster/
