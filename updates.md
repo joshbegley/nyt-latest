@@ -1,3 +1,8 @@
+**The day everything went wrong for Newcastle**\
+`Newcastle talked the talk and then fluffed the walk, hobbling and tripping. There are no excuses and no hiding places, for Howe or anybody
+`\
+https://nytimes.com/athletic/7138384/2026/03/22/newcastle-sunderland-derby-wrong/
+
 **How to watch Wizards vs. Knicks: Time, TV, streaming**\
 `Find out how to watch the Washington Wizards play the New York Knicks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7138514/2026/03/22/wizards-vs-knicks-stream-how-to-watch-march-22/
