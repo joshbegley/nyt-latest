@@ -19,7 +19,7 @@ https://nytimes.com/athletic/7137087/2026/03/22/manchester-united-referee-compla
 https://nytimes.com/athletic/7131318/2026/03/22/carabao-cup-final-arsenal-manchester-city/
 
 **Where are Chelsea's leaders?**\
-`Everton showed Chelsea what a cohesive unit looked like during their 3-0 win on Saturday.`\
+`Everton showed Chelsea what a cohesive unit looked like during their 3-0 win on Saturday`\
 https://nytimes.com/athletic/7137018/2026/03/22/chelsea-everton-rosenior-fernandez-leaders/
 
 **Yes, Liverpool are being outrun - but being outthought and outfought are bigger problems**\
