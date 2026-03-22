@@ -1,3 +1,15 @@
+**Here’s What Happened in the War in the Middle East on Sunday**\
+`The Israeli military said its campaign against Hezbollah in Lebanon would intensify, while Iran threatened to attack civilian infrastructure if President Trump followed through with an ultimatum.`\
+https://nytimes.com/2026/03/22/world/middleeast/middle-east-war-recap.html
+
+**Great Britain wins three gold medals in 45 minutes at world indoors**\
+`Georgia Hunter-Bell (1500 meters), Keely Hodgkinson (800m) and Molly Caudery (pole vault) won world titles on "Super Sunday".`\
+https://nytimes.com/athletic/7138966/2026/03/22/hodgkinson-hunter-bell-caudery-great-britain-gold-world-championships/
+
+**Let this sting Arsenal. Then don't feel it again**\
+`Arteta and his players need to dust themselves down - they are still in running for three trophies and cannot let Wembley loss affect them`\
+https://nytimes.com/athletic/7138949/2026/03/22/arsenal-league-cup-history/
+
 **Arsenal can let defeat sting - this should be a rotten game in isolation and not derail season**\
 `Arteta and his players need to dust themselves down - they are still in running for three trophies and cannot let Wembley loss affect them`\
 https://nytimes.com/athletic/7138949/2026/03/22/arsenal-league-cup-history/
