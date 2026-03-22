@@ -1,3 +1,19 @@
+**Do we appreciate the sheer talent of footballers enough?**\
+`A footballer's talent can move people and that should be cherished, always. They can captivate, lift moods and they are the game's heart`\
+https://nytimes.com/athletic/7125930/2026/03/22/footballer-talent-appreciation-column/
+
+**Football's demand for perfection has created the 'crazy' world where 'identical' fouls get different decisions**\
+`Manchester United are to make an official complaint after two 'identical' incidents were treated differently. It won't help`\
+https://nytimes.com/athletic/7137087/2026/03/22/manchester-united-referee-complaint/
+
+**Carabao Cup final: Does it matter more for Arteta or Guardiola? Will it shape the title race?**\
+`Our Arsenal writer Amy Lawrence and her Manchester City counterpart Sam Lee discuss the key issues around the game`\
+https://nytimes.com/athletic/7131318/2026/03/22/carabao-cup-final-arsenal-manchester-city/
+
+**Where are Chelsea's leaders?**\
+`Everton showed Chelsea what a cohesive unit looked like during their 3-0 win on Saturday.`\
+https://nytimes.com/athletic/7137018/2026/03/22/chelsea-everton-rosenior-fernandez-leaders/
+
 **Yes, Liverpool are being outrun - but being outthought and outfought are bigger problems**\
 `Brighton was the 27th time Liverpool have been outrun in this season's Premier League. How much does it matter?`\
 https://nytimes.com/athletic/7136714/2026/03/22/liverpool-running-less-opponents/
