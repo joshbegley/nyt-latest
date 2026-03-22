@@ -1,3 +1,7 @@
+**Spurs fans respond with pride after video disparaging Hispanic fans goes viral**\
+`After a viral video of a woman at a Spurs game sending disparaging texts about Hispanic fans, the Latino community responded with pride.`\
+https://nytimes.com/athletic/7137744/2026/03/22/spurs-fans-respond-with-pride-after-video-disparaging-hispanic-fans-goes-viral/
+
 **The Role of Public Theology in Crisis**\
 `As the war in Iran enters its fourth week, I’m yearning for a more robust conversation about morality — in politics, in our workplaces and online.`\
 https://nytimes.com/2026/03/22/briefing/the-role-of-public-theology-in-crisis.html
