@@ -1,3 +1,11 @@
+**Lutkenhaus, 17, becomes youngest-ever world indoor medalist with 800m gold**\
+`The American teenager won the final in one minute and 44.24 seconds, his second-quickest run of all time. `\
+https://nytimes.com/athletic/7138764/2026/03/22/cooper-lutkenhaus-gold-800m-world-championships-record/
+
+**How to watch Texas Tech vs. Alabama men's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Texas Tech Red Raiders play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7138904/2026/03/22/texas-tech-vs-alabama-stream-how-to-watch-march-22/
+
 **Meteorite Crashes Through Roof of House Near Houston**\
 `No one was injured, but a woman was startled on Saturday when a meteorite pierced the roof of her home, ricocheted off the floor and struck a bedroom ceiling.`\
 https://nytimes.com/2026/03/22/us/meteorite-crash-texas-home.html
