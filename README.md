@@ -1,3 +1,15 @@
+**Nathaniel Lowe, Sam Moll round out Reds' roster; Rece Hinds to start in AAA**\
+`Rece Hinds will start the year at AAA Louisville despite absolutely crushing Cactus League pitching in spring training.`\
+https://nytimes.com/athletic/7137314/2026/03/21/reds-nathaniel-lowe-sam-moll-round-out-roster/
+
+**Mullin Explored Bipartisan Deal to Rein in Immigration Crackdown**\
+`The G.O.P. senator President Trump chose to lead the Department of Homeland Security privately discussed concessions the White House has repeatedly rejected.`\
+https://nytimes.com/2026/03/21/us/politics/markwayne-mullin-bipartisan-immigration-deal.html
+
+**FDU coach calls for neutral NCAA sites following close call at Iowa**\
+`“On a neutral court, you have a much better chance (of an upset),” FDU coach Stephanie Gaitley said after Saturday's loss at Iowa.`\
+https://nytimes.com/athletic/7137395/2026/03/21/fdu-coach-neutral-ncaa-sites-iowa/
+
 **News Outlets Pressure Pentagon to Restore Access After Court Ruling**\
 `A federal judge ruled on Friday that key parts of the Pentagon’s press policy were unconstitutional.`\
 https://nytimes.com/2026/03/21/business/media/pentagon-press-access.html
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/7137106/2026/03/21/steph-curry-injury-update-return
 **He's the NCAA Tournament's human highlight reel — but Coen Carr's dunks are just the start**\
 `Carr is living up to his reputation as an elite dunker, but his highlight reel is growing even more well-rounded for Michigan State.`\
 https://nytimes.com/athletic/7137026/2026/03/21/coen-carr-michigan-state-march-madness-dunks/
-
-**Erik Karlsson continues to carry the imperfect but increasingly special Penguins**\
-`After the Penguins beat the Winnipeg Jets in a shootout on Saturday, Karlsson now has 10 points in his past four games.`\
-https://nytimes.com/athletic/7136901/2026/03/21/penguins-erik-karlsson-jets-goals/
-
-**Leafs' Anthony Stolarz taken to hospital after taking puck to throat during warmups**\
-`Stolarz was taken to the hospital for precautionary imaging after taking a puck up high from William Nylander before a game in Ottawa.`\
-https://nytimes.com/athletic/7137226/2026/03/21/anthony-stolarz-injured-warmups-hospital-maple-leafs/
-
-**Former F.B.I. Director Robert Mueller Dies at 81**\
-`Robert Mueller, who led the Federal Bureau of Investigation for 12 tumultuous years, brought politically explosive indictments as a special counsel examining Russia’s attack on the 2016 presidential election.`\
-https://nytimes.com/video/us/100000010794275/robert-mueller-obituary-fbi.html
 
