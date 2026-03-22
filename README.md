@@ -1,4 +1,4 @@
-**Lutkenhaus, 17, becomes youngest ever world indoor medalist with 800m gold**\
+**Lutkenhaus, 17, becomes youngest-ever world indoor medalist with 800m gold**\
 `The American teenager won the final in one minute and 44.24 seconds, his second-quickest run of all time. `\
 https://nytimes.com/athletic/7138764/2026/03/22/cooper-lutkenhaus-gold-800m-world-championships-record/
 
