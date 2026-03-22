@@ -1,3 +1,7 @@
+**Providence hiring USF's Bryan Hodgson as men's basketball coach**\
+`Hodgson led South Florida to its first NCAA Tournament appearance since 2012 this season.`\
+https://nytimes.com/athletic/7138076/2026/03/22/providence-hiring-bryan-hodgson-mens-basketball-coach/
+
 **Lowetide: Is Oilers' goalie of the future flourishing in obscurity this season?**\
 `Goaltender Samuel Jonsson was selected by the Oilers in the fifth round of the 2022 NHL Draft.`\
 https://nytimes.com/athletic/7136285/2026/03/22/edmonton-oilers-goalie-samuel-jonsson-stats-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/22/opinion/ai-economy-jobs.html
 **Canadiens' ultimate goal comes into focus: 'This was a week we found ourselves again'**\
 `The Canadiens' top talent gives them the best chance to win, but it was the supporting cast that stepped up against the Islanders.`\
 https://nytimes.com/athletic/7137811/2026/03/22/canadiens-cole-caufield-win-islanders/
-
-**Utah State can't match college basketball's spending or keep a coach. It wins anyway**\
-`In a sport increasingly auctioned off to the highest bidder, Utah State’s solid footing feels almost out of place.`\
-https://nytimes.com/athletic/7137878/2026/03/22/ncaa-tournament-utah-state-march-madness/
 

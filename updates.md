@@ -1,3 +1,7 @@
+**Providence hiring USF's Bryan Hodgson as men's basketball coach**\
+`Hodgson led South Florida to its first NCAA Tournament appearance since 2012 this season.`\
+https://nytimes.com/athletic/7138076/2026/03/22/providence-hiring-bryan-hodgson-mens-basketball-coach/
+
 **Lowetide: Is Oilers' goalie of the future flourishing in obscurity this season?**\
 `Goaltender Samuel Jonsson was selected by the Oilers in the fifth round of the 2022 NHL Draft.`\
 https://nytimes.com/athletic/7136285/2026/03/22/edmonton-oilers-goalie-samuel-jonsson-stats-2026/
