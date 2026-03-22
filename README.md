@@ -1,40 +1,40 @@
-**This was the night it all came together for Everton. Now they can dare to dream**\
-`Everton beat Chelsea 3-0 on Saturday evening — moving to within touching distance of the European places`\
-https://nytimes.com/athletic/7137279/2026/03/22/everton-chelsea-analysis-champions-league/
+**Gas Prices Have Jumped More Than 30% in Some States in Two Weeks**\
+`Across the South and Southwest, where price hikes have been the most severe, drivers have lamented how the increased costs have cut into their budgets.`\
+https://nytimes.com/2026/03/22/us/gas-prices-south-southwest.html
 
-**‘Love Story’ Has People Falling for ’90s New York City Again**\
-`The show, about John F. Kennedy Jr. and Carolyn Bessette, has fans flocking to restaurants and stores the couple visited during their romance.`\
-https://nytimes.com/2026/03/22/nyregion/love-story-jfk-jr-nyc.html
+**The Chaotic Downfall of the ‘Bachelor’ Empire**\
+`As competing dating shows flaunt modern norms, the ABC franchise finds itself mired in scandals and stymied by its traditional approach to love.`\
+https://nytimes.com/2026/03/22/arts/taylor-frankie-paul-bachelorette-canceled.html
 
-**‘I Jumped Out of Bed, Marched Next Door and Began an Irrational Rant’**\
-`Confronting a noisy neighbor, at a Manhattan club after the prom and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2026/03/22/nyregion/metropolitan-diary.html
+**They Want to Stop Paying Taxes as a Protest. There Are Consequences.**\
+`Some tax resisters withhold a symbolic amount, but those who willfully refuse to file or pay could face civil or criminal penalties.`\
+https://nytimes.com/2026/03/22/your-money/taxes/federal-tax-protest-resistance.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/03/22/crosswords/spelling-bee-forum.html
+**Despite Spiking Oil Prices, There’s No Talk of a Boom in Texas Oil Country**\
+`Even with oil prices climbing, people in West Texas say it doesn’t feel like the start of another boom, at least not yet.`\
+https://nytimes.com/2026/03/22/us/texas-oil-prices-iran-war.html
 
-**Iran War Live Updates: Trump Threatens Iran’s Power Plants if Strait of Hormuz Does Not Open**\
-`President Trump’s ultimatum comes after Iranian missiles struck two cities in southern Israel, including one near the country’s main nuclear research center.`\
-https://nytimes.com/live/2026/03/22/world/iran-war-oil-trump
+**I Think My Employee Has A.D.H.D. Should I Tell Him?**\
+`Plus, my co-workers had an affair and misused company funds. Somehow, I’m the one dealing with the fallout.`\
+https://nytimes.com/2026/03/22/business/office-affair-misuse-of-funds-adhd.html
 
-**Here’s the latest.**\
-`By Pranav Baskar, Aaron Boxerman, Julian E. Barnes, Eric Schmidt and David E. Sanger`\
-https://nytimes.com/live/2026/03/22/world/iran-war-oil-trump/heres-the-latest
+**On Beirut’s Waterfront, Loss Meets Life, and Luxury, Amid War**\
+`Thousands displaced by Israeli strikes on Lebanon’s capital now shelter along the promenade hugging the Mediterranean Sea. They share it with joggers, cyclists and dog walkers, alongside dizzying displays of wealth.`\
+https://nytimes.com/2026/03/22/world/middleeast/beirut-israel-war-displaced-corniche.html
 
-**A new night, a new hero: Luke Kennard's dagger lifts Lakers to ninth straight win**\
-`A chat with coach JJ Redick helped Kennard "get out of my head a little bit" and escape a shooter's mini-slump.`\
-https://nytimes.com/athletic/7137741/2026/03/22/lakers-luke-kennard-magic-game-winner/
+**A Meteor Exploded Over Ohio. Then the Chase Began.**\
+`After a seven-ton fireball exploded above the Cleveland area, a group of meteorite hunters descended too, in the name of science — and possibly cash.`\
+https://nytimes.com/2026/03/22/us/meteor-hunters-ohio-cleveland.html
 
-**'We all need to pull together' — Lessons from Tottenham's previous relegation scraps**\
-`Spurs got what they needed from previous six-pointers at Oldham and Barnsley — can they do the same this time around?`\
-https://nytimes.com/athletic/7133480/2026/03/22/tottenham-relegation-scrap-1998/
+**How the Supreme Court Could Change Voting by Mail**\
+`The Supreme Court is ruling on whether ballots received after Election Day should be disqualified. Our national politics reporter Nick Corasaniti explains how a Supreme Court ruling could affect hundreds of thousands of Americans in rural and urban areas.`\
+https://nytimes.com/video/us/elections/100000010785480/how-the-supreme-court-could-change-voting-by-mail.html
 
-**Do we appreciate the sheer talent of footballers enough?**\
-`A footballer's talent can move people and that should be cherished, always. They can captivate, lift moods and they are the game's heart`\
-https://nytimes.com/athletic/7125930/2026/03/22/footballer-talent-appreciation-column/
+**The Supreme Court Could Make It Harder to Vote by Mail in the Midterms**\
+`The Republican National Committee wants to toss ballots arriving after Election Day. Critics say thousands of votes — a majority cast by Democrats — are at stake.`\
+https://nytimes.com/2026/03/22/us/politics/the-supreme-court-could-make-it-harder-to-vote-by-mail-in-the-midterms.html
 
-**Football's demand for perfection has created the 'crazy' world where 'identical' fouls get different decisions**\
-`Manchester United are to make an official complaint after two 'identical' incidents were treated differently. It won't help`\
-https://nytimes.com/athletic/7137087/2026/03/22/manchester-united-referee-complaint/
+**Choose Your Netflix Mystery: Agatha Christie or Jo Nesbo**\
+`New international series offer British sleuthing, Nordic noir, anime heartbreak and the ethereal landscapes of China’s west.`\
+https://nytimes.com/2026/03/22/arts/television/choose-your-netflix-mystery-agatha-christie-or-jo-nesbo.html
 
