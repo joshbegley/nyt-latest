@@ -1,3 +1,7 @@
+**Reds' Nick Lodolo leaves Cactus League finale early with a blister**\
+`Lodolo has spent time on the IL each of the past two seasons with blister issues.`\
+https://nytimes.com/athletic/7139383/2026/03/22/reds-nick-lodolo-injury-blister/
+
 **Oahu Residents Assess Flood Damage as Rain Drenches Maui**\
 `Hawaii has been pounded for over a week by back-to-back storms. Weather officials said that 10 to 14 inches of rain fell on Thursday into Friday on Oahu, unleashing severe flooding. The storm has moved to Maui, where flash flood warnings were issued on Saturday.`\
 https://nytimes.com/video/us/100000010794213/hawaii-oahu-maui-floods.html
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/7139186/2026/03/22/luka-doncic-suspension-rescinded
 `The president’s messages on the war have shifted, but the latest threat might be a sign that he’s moving to a harder stance.`\
 https://nytimes.com/2026/03/22/world/trump-us-iran-oil-france-elections-bts.html
 
-**Ovechkin joins Gretzky as only players with 1,000 regular-season, playoff goals**\
+**Alex Ovechkin joins Wayne Gretzky as only players with 1,000 career goals**\
 `The 40-year-old Capitals superstar broke Gretzky’s previous regular-season record of 894 goals on April 6, 2025, against the Islanders.`\
 https://nytimes.com/athletic/7139092/2026/03/22/alex-ovechkin-wayne-gretzky-1000-goals/
-
-**Jalen Williams (hamstring) to return for Thunder vs. 76ers after 16-game absence**\
-`Prior to missing this string of games, he played in two roading outings against the Lakers and Suns after missing the prior 10 outings.`\
-https://nytimes.com/athletic/7139151/2026/03/22/jalen-williams-injury-update-returns-okc-sixers-nba/
 

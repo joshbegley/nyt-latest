@@ -1,3 +1,11 @@
+**Wisconsin defeats Ohio State to win back-to-back NCAA women’s hockey championships**\
+`It took the high-octane Badgers’ offense just 78 seconds to open the scoring as they defeated the Buckeyes 3-2 on Sunday.`\
+https://nytimes.com/athletic/7139405/2026/03/22/wisconsin-ohio-state-ncaa-hockey-womens-championship/
+
+**Tessa Dellarose scores first pro goal as Chicago Stars upset Kansas City**\
+`On a day when the wind dictated the style, Chicago proved they could win, even when it's not pretty. `\
+https://nytimes.com/athletic/7139170/2026/03/22/chicago-stars-kansas-city-current-tessa-dellarose-debut-goal-wind/
+
 **Reds' Nick Lodolo leaves Cactus League finale early with a blister**\
 `Lodolo has spent time on the IL each of the past two seasons with blister issues.`\
 https://nytimes.com/athletic/7139383/2026/03/22/reds-nick-lodolo-injury-blister/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/22/arts/television/nicholas-brendon-death-buffy-xand
 **Luka Dončić avoids one-game suspension after technical foul vs. Magic is rescinded**\
 `The tech was originally given during Saturday's matchup against the Orlando Magic. By having it rescinded, Dončić avoids a one-game ban.`\
 https://nytimes.com/athletic/7139186/2026/03/22/luka-doncic-suspension-rescinded-lakers-nba/
-
-**Trump’s Ultimatum to Iran**\
-`The president’s messages on the war have shifted, but the latest threat might be a sign that he’s moving to a harder stance.`\
-https://nytimes.com/2026/03/22/world/trump-us-iran-oil-france-elections-bts.html
-
-**Alex Ovechkin joins Wayne Gretzky as only players with 1,000 career goals**\
-`The 40-year-old Capitals superstar broke Gretzky’s previous regular-season record of 894 goals on April 6, 2025, against the Islanders.`\
-https://nytimes.com/athletic/7139092/2026/03/22/alex-ovechkin-wayne-gretzky-1000-goals/
 

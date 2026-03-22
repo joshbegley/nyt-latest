@@ -1,3 +1,11 @@
+**Reds' Nick Lodolo leaves Cactus League finale early with a blister**\
+`Lodolo has spent time on the IL each of the past two seasons with blister issues.`\
+https://nytimes.com/athletic/7139383/2026/03/22/reds-nick-lodolo-injury-blister/
+
+**Alex Ovechkin joins Wayne Gretzky as only players with 1,000 career goals**\
+`The 40-year-old Capitals superstar broke Gretzky’s previous regular-season record of 894 goals on April 6, 2025, against the Islanders.`\
+https://nytimes.com/athletic/7139092/2026/03/22/alex-ovechkin-wayne-gretzky-1000-goals/
+
 **Real Madrid 3 Atletico Madrid 2 - How good was Molina's goal? Why was Valverde sent off?**\
 `Victory sees Alvaro Arbeloa's side move back to within four points of defending champions Barcelona at the top of La Liga`\
 https://nytimes.com/athletic/7135953/2026/03/22/real-madrid-atletico-madrid-la-liga-result-analysis/
