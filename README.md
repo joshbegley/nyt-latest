@@ -1,3 +1,11 @@
+**How to watch Michigan State vs. Oklahoma women's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Michigan State Spartans play the Oklahoma Sooners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7138587/2026/03/22/michigan-state-vs-oklahoma-stream-how-to-watch-march-22/
+
+**Watkins 'expected' to be dropped from England squad after drop in form**\
+`The Aston Villa forward said his form "hasn't been great" but left the door open for World Cup selection after scoring on Sunday.`\
+https://nytimes.com/athletic/7138530/2026/03/22/ollie-watkins-england-aston-villa-world-cup/
+
 **How to watch Lightning vs. Flames: Time, TV, streaming**\
 `Find out how to watch the Tampa Bay Lightning play the Calgary Flames, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7138557/2026/03/22/lightning-vs-flames-stream-how-to-watch-march-22/
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/7138505/2026/03/22/timberwolves-vs-celtics-stream-h
 **Phillies finalize Opening Day roster: A look at their decisions and what's next**\
 `The Phillies filled out their bullpen with four lefties, including Kyle Backhus and Tim Mayza, while veteran Dylan Moore gets a bench job. `\
 https://nytimes.com/athletic/7138413/2026/03/22/phillies-opening-day-roster/
-
-**How to watch Raptors vs. Suns: Time, TV, streaming**\
-`Find out how to watch the Toronto Raptors play the Phoenix Suns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7138498/2026/03/22/raptors-vs-suns-stream-how-to-watch-march-22/
-
-**The day everything went wrong for Newcastle**\
-`Newcastle talked the talk and then fluffed the walk, hobbling and tripping. There are no excuses and no hiding places, for Howe or anybody
-`\
-https://nytimes.com/athletic/7138384/2026/03/22/newcastle-sunderland-derby-wrong/
 
