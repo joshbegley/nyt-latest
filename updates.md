@@ -1,3 +1,16 @@
+**Sharks players get emotional after Ryan Reaves injures finger in fight, stays on bench**\
+`Reaves stayed on the bench for most of the game after appearing to suffer a gruesome finger injury in a scrap with Flyers’ Garrett Wilson.
+`\
+https://nytimes.com/athletic/7137323/2026/03/21/sharks-ryan-reaves-injury-finger-fight-flyers/
+
+**Already Flooded, Oahu Braces for More Rain**\
+`Thousands of residents on Oahu had yet to return home as the Hawaiian island dealt with the aftermath of severe rainfall. The storm was moving south over the island toward Maui.`\
+https://nytimes.com/2026/03/21/us/oahu-flood-hawaii.html
+
+**ABS hot mic: Umpire caught saying 'please be a strike' during pitch challenge**\
+`The entire ballpark got to hear Bill Miller's honest reaction after one of the pitches he called was challenged. `\
+https://nytimes.com/athletic/7137192/2026/03/21/hot-mic-umpire-bill-miller-sf-giants-guardians-abs/
+
 **Gotham captain Tierna Davidson makes first appearance since ACL tear last year**\
 `The defender's return only further strengthens Gotham's back line.`\
 https://nytimes.com/athletic/7137093/2026/03/21/gotham-tierna-davidson-return-acl-tear/
