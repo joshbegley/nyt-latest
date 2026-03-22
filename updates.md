@@ -1,3 +1,8 @@
+**Sharks players get emotional after Ryan Reaves injures finger in fight, stays on bench**\
+`Reaves stayed on the bench for most of the game after appearing to suffer a finger injury in a scrap with the Flyers' Garrett Wilson.
+`\
+https://nytimes.com/athletic/7137323/2026/03/21/sharks-ryan-reaves-injury-finger-fight-flyers/
+
 **Trump’s Reaction to Mueller’s Death: ‘Good, I’m Glad.’**\
 `The president has consistently celebrated the deaths of political foes. His response to Mr. Mueller’s death drew criticism from Republicans and Democrats.`\
 https://nytimes.com/2026/03/21/us/politics/trump-mueller-death.html
