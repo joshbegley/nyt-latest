@@ -1,3 +1,15 @@
+**Real Madrid 3 Atletico Madrid 2 - How good was Molina's goal? Why was Valverde sent off?**\
+`Victory sees Alvaro Arbeloa's side stay within four points of defending champions Barcelona at the top of La Liga`\
+https://nytimes.com/athletic/7135953/2026/03/22/real-madrid-atletico-madrid-la-liga-result-analysis/
+
+**Got Older**\
+`For puzzlers of all generations, Matthew Luter hits the sweet spot.`\
+https://nytimes.com/2026/03/22/crosswords/daily-puzzle-2026-03-23.html
+
+**Jalen Williams (hamstring) to return for Thunder vs. 76ers after 16-game absence**\
+`Prior to missing this string of games, he played in two roading outings against the Lakers and Suns after missing the prior 10 outings.`\
+https://nytimes.com/athletic/7139151/2026/03/22/jalen-williams-injury-update-returns-okc-sixers-nba/
+
 **Ovechkin joins Gretzky as only players with 1,000 regular-season, playoff goals**\
 `The 40-year-old Capitals superstar broke Gretzky’s previous regular-season record of 894 goals on April 6, 2025, against the Islanders.`\
 https://nytimes.com/athletic/7139092/2026/03/22/alex-ovechkin-wayne-gretzky-1000-goals/

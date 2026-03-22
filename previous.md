@@ -1,3 +1,11 @@
+**Real Madrid 3 Atletico Madrid 2 - How good was Molina's goal? Why was Valverde sent off?**\
+`Victory sees Alvaro Arbeloa's side stay within four points of defending champions Barcelona at the top of La Liga`\
+https://nytimes.com/athletic/7135953/2026/03/22/real-madrid-atletico-madrid-la-liga-result-analysis/
+
+**Got Older**\
+`For puzzlers of all generations, Matthew Luter hits the sweet spot.`\
+https://nytimes.com/2026/03/22/crosswords/daily-puzzle-2026-03-23.html
+
 **Sebastian Korda takes down top-ranked Carlos Alcaraz at Miami Open**\
 `With a combination of smooth, controlled aggression and flat power, the American upset Alcaraz inside Hard Rock Stadium.`\
 https://nytimes.com/athletic/7139039/2026/03/22/sebastian-korda-carlos-alcaraz-miami-open-upset/
@@ -23,18 +31,10 @@ https://nytimes.com/2026/03/22/world/trump-us-iran-oil-france-elections-bts.html
 https://nytimes.com/athletic/7139092/2026/03/22/alex-ovechkin-wayne-gretzky-1000-goals/
 
 **Jalen Williams (hamstring) to return for Thunder vs. 76ers after 16-game absence**\
-`Prior to missing this string of games, he played in two roading outings against theLakers and Suns after missing the prior 10 outings.`\
+`Prior to missing this string of games, he played in two roading outings against the Lakers and Suns after missing the prior 10 outings.`\
 https://nytimes.com/athletic/7139151/2026/03/22/jalen-williams-injury-update-returns-okc-sixers-nba/
 
 **Israel’s Missile Defense Under Scrutiny After Iranian Attack**\
 `Two missiles landed hours apart, wreaking havoc in two towns near a heavily guarded nuclear site in the Negev Desert.`\
 https://nytimes.com/2026/03/22/world/middleeast/israel-missile-defense-iran.html
-
-**Iowa State blows by Kentucky into Sweet 16 despite sidelined star**\
-`Iowa State was missing All-American forward Joshua Jefferson to injury, but the Cyclones still sent Kentucky home during the first weekend.`\
-https://nytimes.com/athletic/7139078/2026/03/22/iowa-state-kentucky-ncaa-tournament-score-takeaways/
-
-**French Local Elections Are Yardstick for Far Right. Initial Results Are Mixed.**\
-`France’s municipal elections ended on Sunday evening. Full results were not expected for hours, but the first projections suggested the far right may not have made major gains.`\
-https://nytimes.com/2026/03/22/world/europe/france-mayor-elections.html
 
