@@ -1,3 +1,16 @@
+**Phillies finalize Opening Day roster: A look at their decisions and what's next**\
+`The Phillies filled out their bullpen with four lefties, including Kyle Backhus and Tim Mayza, while veteran Dylan Moore gets a bench job. `\
+https://nytimes.com/athletic/7138413/2026/03/22/phillies-opening-day-roster/
+
+**How to watch Raptors vs. Suns: Time, TV, streaming**\
+`Find out how to watch the Toronto Raptors play the Phoenix Suns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7138498/2026/03/22/raptors-vs-suns-stream-how-to-watch-march-22/
+
+**The day everything went wrong for Newcastle**\
+`Newcastle talked the talk and then fluffed the walk, hobbling and tripping. There are no excuses and no hiding places, for Howe or anybody
+`\
+https://nytimes.com/athletic/7138384/2026/03/22/newcastle-sunderland-derby-wrong/
+
 **The day everything went wrong for Newcastle**\
 `Newcastle talked the talk and then fluffed the walk, hobbling and tripping. There are no excuses and no hiding places, for Howe or anybody
 `\
