@@ -1,3 +1,7 @@
+**He's the NCAA Tournament's human highlight reel — but Coen Carr's dunks are just the start**\
+`Coen Carr is living up to his reputation as an elite dunker, but his highlight reel is growing even more well-rounded for Michigan State.`\
+https://nytimes.com/athletic/7137026/2026/03/21/coen-carr-michigan-state-march-madness-dunks/
+
 **Erik Karlsson continues to carry the imperfect but increasingly special Penguins**\
 `After the Penguins beat the Winnipeg Jets in a shootout on Saturday, Karlsson now has 10 points in his past four games.`\
 https://nytimes.com/athletic/7136901/2026/03/21/penguins-erik-karlsson-jets-goals/
