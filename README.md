@@ -1,3 +1,7 @@
+**Anti-Muslim Comments by G.O.P. Congressman Reflect a Rising Trend**\
+`On Capitol Hill and in Nashville, comments by Representative Andy Ogles of Tennessee have sown division and underscored a growing tolerance on the right for Islamophobia.`\
+https://nytimes.com/2026/03/22/us/politics/ogles-republicans-anti-muslim.html
+
 **The Briefing: Newcastle 1 Sunderland 2 - How damaging is another derby defeat? Bright future for Sunderland?**\
 `Sunderland made it a Tyne-Wear derby double by beating Newcastle 2-1 on Sunday afternoon`\
 https://nytimes.com/athletic/7128643/2026/03/22/newcastle-sunderland-result-score-report-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/22/world/middleeast/israel-lebanon-fighting-hezbolla
 **Phillies, Cristopher Sánchez agree to new 6-year deal, rewarding lefty for breakout**\
 `The new six-year deal will guarantee Sánchez $107 million, according to a source, and runs through 2032. It includes a 2033 club option.`\
 https://nytimes.com/athletic/7138033/2026/03/22/cristopher-sanchez-phillies-contract-extension/
-
-**How to watch Atletico Madrid vs. Real Madrid in the U.S.**\
-`Find out how to watch Atletico Madrid play Real Madrid, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7138046/2026/03/22/atletico-madrid-vs-real-madrid-stream-how-to-watch-march-22/
 
