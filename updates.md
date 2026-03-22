@@ -9,6 +9,11 @@ https://nytimes.com/athletic/7138384/2026/03/22/newcastle-sunderland-derby-wrong
 https://nytimes.com/athletic/7138384/2026/03/22/newcastle-sunderland-derby-wrong/
 
 **The day everything went wrong for Newcastle**\
+`Newcastle talked the talk and then fluffed the walk, hobbling and tripping. There are no excuses and no hiding places, for Howe or anybody
+`\
+https://nytimes.com/athletic/7138384/2026/03/22/newcastle-sunderland-derby-wrong/
+
+**The day everything went wrong for Newcastle**\
 `Newcastle talked the talk and then fluffed the walk, hobbling and tripping. There are no excuses and no hiding places, for Howe or anybody.
 `\
 https://nytimes.com/athletic/7138384/2026/03/22/newcastle-sunderland-derby-wrong/
