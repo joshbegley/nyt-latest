@@ -1,3 +1,11 @@
+**Lutkenhaus, 17, becomes youngest ever world indoor medalist with 800m gold**\
+`The American teenager won the final in one minute and 44.24 seconds, his second-quickest run of all time. `\
+https://nytimes.com/athletic/7138764/2026/03/22/cooper-lutkenhaus-gold-800m-world-championships-record/
+
+**How to watch Texas Tech vs. Alabama men's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Texas Tech Red Raiders play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7138904/2026/03/22/texas-tech-vs-alabama-stream-how-to-watch-march-22/
+
 **Meteorite Crashes Through Roof of House Near Houston**\
 `No one was injured, but a woman was startled on Saturday when a meteorite pierced the roof of her home, ricocheted off the floor and struck a bedroom ceiling.`\
 https://nytimes.com/2026/03/22/us/meteorite-crash-texas-home.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/22/arts/design/columbus-statue-trump-white-house.htm
 **Israel Thought It Could Spur Rebellion Inside Iran. That Hasn’t Happened.**\
 `President Trump’s hopes that an Israeli plan to ignite an internal uprising against Iran’s theocratic government could bring the war to a swift end have so far been dashed.`\
 https://nytimes.com/2026/03/22/us/politics/iran-israel-trump-netanyahu-mossad.html
-
-**Nationals trade with Yankees to potentially round out their infield**\
-`Washington sent a pitching prospect to New York for Jorbit Vivas, who could see time at second and third base for the Nationals.`\
-https://nytimes.com/athletic/7138672/2026/03/22/nationals-yankees-trade-jorbit-vivas-sean-paul-linan/
-
-**The Briefing: Arsenal 0 Man City 2 — Kepa Arrizabalaga error and Cherki showboating in Wembley nightmare for Arsenal**\
-`Our writers break down the action, from errors to showboating, as Man City beat Arsenal for the first silverware of the season`\
-https://nytimes.com/athletic/7135952/2026/03/22/arsenal-manchester-city-carabao-cup-final/
 

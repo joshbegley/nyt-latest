@@ -1,3 +1,7 @@
+**Meteorite Crashes Through Roof of House Near Houston**\
+`No one was injured, but a woman was startled on Saturday when a meteorite pierced the roof of her home, ricocheted off the floor and struck a bedroom ceiling.`\
+https://nytimes.com/2026/03/22/us/meteorite-crash-texas-home.html
+
 **How to watch Washington vs. TCU women's basketball: Second Round Time, TV, streaming**\
 `Find out how to watch the Washington Huskies play the TCU Horned Frogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7138866/2026/03/22/washington-vs-tcu-stream-how-to-watch-march-22/
