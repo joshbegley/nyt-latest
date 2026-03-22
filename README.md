@@ -1,3 +1,15 @@
+**How to watch Atletico Madrid vs. Real Madrid in the U.S.**\
+`Find out how to watch Atletico Madrid play Real Madrid, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7138046/2026/03/22/atletico-madrid-vs-real-madrid-stream-how-to-watch-march-22/
+
+**How to watch Trail Blazers vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the Portland Trail Blazers play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7138038/2026/03/22/trail-blazers-vs-nuggets-stream-how-to-watch-march-22/
+
+**Bracing for the A.I. Economy to Come**\
+`Readers respond to two guest essays about the changes that artificial intelligence will wreak on the work force. Also: The shoes of the Trump men.`\
+https://nytimes.com/2026/03/22/opinion/ai-economy-jobs.html
+
 **Canadiens' ultimate goal comes into focus: 'This was a week we found ourselves again'**\
 `The Canadiens' top talent gives them the best chance to win, but it was the supporting cast that stepped up against the Islanders.`\
 https://nytimes.com/athletic/7137811/2026/03/22/canadiens-cole-caufield-win-islanders/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/22/briefing/the-role-of-public-theology-in-crisis.ht
 **How to watch Kentucky vs. Iowa State men's basketball: Second Round Time, TV, streaming**\
 `Find out how to watch the Kentucky Wildcats play the Iowa State Cyclones, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7137991/2026/03/22/kentucky-vs-iowa-state-stream-how-to-watch-march-22/
-
-**Introducing the Robot Umpire**\
-`We explain a technological change that’s about to transform baseball.`\
-https://nytimes.com/2026/03/22/briefing/introducing-the-robot-umpire.html
-
-**How to watch Ole Miss vs. Minnesota women's basketball: Second Round Time, TV, streaming**\
-`Find out how to watch the Ole Miss Rebels play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7137985/2026/03/22/ole-miss-vs-minnesota-stream-how-to-watch-march-22/
-
-**How to watch Texas Tech vs. LSU women's basketball: Second Round Time, TV, streaming**\
-`Find out how to watch the Texas Tech Lady Raiders play the LSU Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7137981/2026/03/22/texas-tech-vs-lsu-stream-how-to-watch-march-22/
 
