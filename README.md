@@ -1,3 +1,7 @@
+**Yes, Liverpool are being outrun - but being outthought and outfought are bigger problems**\
+`Brighton was the 27th time Liverpool have been outrun in this season's Premier League. How much does it matter?`\
+https://nytimes.com/athletic/7136714/2026/03/22/liverpool-running-less-opponents/
+
 **How to watch Rayo Vallecano vs. Barcelona in the U.S.**\
 `Find out how to watch Rayo Vallecano play Barcelona, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7137775/2026/03/22/rayo-vallecano-vs-barcelona-stream-how-to-watch-march-22/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/22/opinion/stand-by-me-stephen-king-rob-reiner-scree
 **Change Your Life. Start a Band.**\
 `We crave connection. We crave community. You should start by recruiting a drummer.`\
 https://nytimes.com/2026/03/22/opinion/band-music-community.html
-
-**Whims. Impulse. Memes. Lies. America Shouldn’t Fight a War Like This.**\
-`America shouldn’t fight a war like this.`\
-https://nytimes.com/2026/03/22/opinion/trump-iran-war-memes.html
 
