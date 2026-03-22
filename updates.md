@@ -1,3 +1,19 @@
+**Trump’s Ultimatum to Iran**\
+`The president’s messages on the war have shifted, but the latest threat might be a sign that he’s moving to a harder stance.`\
+https://nytimes.com/2026/03/22/world/trump-us-iran-oil-france-elections-bts.html
+
+**Ovechkin joins Gretzky as only players with 1,000 regular season, playoff goals**\
+`The 40-year-old Capitals superstar broke Gretzky’s previous regular-season record of 894 goals on April 6, 2025, against the Islanders.`\
+https://nytimes.com/athletic/7139092/2026/03/22/alex-ovechkin-wayne-gretzky-1000-goals/
+
+**Jalen Williams (hamstring) to return for Thunder vs. 76ers after 16-game absence**\
+`Prior to missing this string of games, he played in two roading outings against theLakers and Suns after missing the prior 10 outings.`\
+https://nytimes.com/athletic/7139151/2026/03/22/jalen-williams-injury-update-returns-okc-sixers-nba/
+
+**Israel’s Missile Defense Under Scrutiny After Iranian Attack**\
+`Two missiles landed hours apart, wreaking havoc in two towns near a heavily guarded nuclear site in the Negev Desert.`\
+https://nytimes.com/2026/03/22/world/middleeast/israel-missile-defense-iran.html
+
 **Iowa State blows by Kentucky into Sweet 16 despite sidelined star**\
 `Iowa State was missing All-American forward Joshua Jefferson to injury, but the Cyclones still sent Kentucky home during the first weekend.`\
 https://nytimes.com/athletic/7139078/2026/03/22/iowa-state-kentucky-ncaa-tournament-score-takeaways/
