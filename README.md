@@ -1,3 +1,7 @@
+**How are the middling Kings in the playoff hunt?**\
+`With a .522 points percentage, the Kings would rank among the worst teams to make the Stanley Cup playoffs in the salary cap era.`\
+https://nytimes.com/athletic/7137693/2026/03/22/los-angeles-kings-nhl-playoff-standings/
+
 **Team USA flag football squad trounces 2 teams of NFL stars**\
 `Team USA won all three games against the pros by a combined 106-44 score.`\
 https://nytimes.com/athletic/7137564/2026/03/22/team-usa-flag-football-trounce-nfl-pros/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/22/theater/antigone-theater-art-sophocles-adaptation
 **Why Are We Obsessed With Antigone?**\
 `Antigone, an ancient Greek play, is being adapted in several theaters across New York City. Our critic Helen Shaw explains why Sophocles’s anti-heroine is such a relevant figure today.`\
 https://nytimes.com/video/theater/100000010772863/antigone-tragedy-greek-helen-shaw-theater.html
-
-**Italy’s Leader Wants to Change the Constitution. Italians Don’t Get It.**\
-`Voting starts Sunday on a referendum to overhaul Italy’s judiciary. Many people don’t understand the complex proposal — and it could hurt Prime Minister Giorgia Meloni.`\
-https://nytimes.com/2026/03/22/world/europe/italy-referendum-judiciary-meloni.html
 
