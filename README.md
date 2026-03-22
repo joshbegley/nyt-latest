@@ -1,9 +1,13 @@
+**Gotham captain Tierna Davidson makes first appearance since ACL tear last year**\
+`The defender's return only further strengthens Gotham's back line.`\
+https://nytimes.com/athletic/7137093/2026/03/21/gotham-tierna-davidson-return-acl-tear/
+
 **Stephen Curry (knee) nearing return to Warriors practice with Play-In push ahead**\
 `Curry rejoined the Warriors on Saturday after leaving the team to be in Charlotte to see his father, Dell, get his Hornets jersey retired.`\
 https://nytimes.com/athletic/7137106/2026/03/21/steph-curry-injury-update-return-timeline-warriors-nba/
 
 **He's the NCAA Tournament's human highlight reel — but Coen Carr's dunks are just the start**\
-`Coen Carr is living up to his reputation as an elite dunker, but his highlight reel is growing even more well-rounded for Michigan State.`\
+`Carr is living up to his reputation as an elite dunker, but his highlight reel is growing even more well-rounded for Michigan State.`\
 https://nytimes.com/athletic/7137026/2026/03/21/coen-carr-michigan-state-march-madness-dunks/
 
 **Erik Karlsson continues to carry the imperfect but increasingly special Penguins**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7136679/2026/03/21/lebron-james-nba-most-games-play
 **Iowa avoids meltdown in stifling Carver-Hawkeye Arena for NCAA Tournament first-round win**\
 `Temperatures rose into the 80s inside the Hawkeyes' home arena as they escaped a historic upset bid.`\
 https://nytimes.com/athletic/7137168/2026/03/21/iowa-fdu-womens-march-madness-results-takeaways/
-
-**Iranian missile strikes Israeli city near main nuclear research facility.**\
-`By Pranav Baskar`\
-https://nytimes.com/live/2026/03/21/world/iran-war-oil-trump/iranian-missile-strikes-israeli-city-near-main-nuclear-research-facility
 

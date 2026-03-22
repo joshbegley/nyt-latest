@@ -1,3 +1,7 @@
+**Stephen Curry (knee) nearing return to Warriors practice with Play-In push ahead**\
+`Curry rejoined the Warriors on Saturday after leaving the team to be in Charlotte to see his father, Dell, get his Hornets jersey retired.`\
+https://nytimes.com/athletic/7137106/2026/03/21/steph-curry-injury-update-return-timeline-warriors-nba/
+
 **He's the NCAA Tournament's human highlight reel — but Coen Carr's dunks are just the start**\
 `Coen Carr is living up to his reputation as an elite dunker, but his highlight reel is growing even more well-rounded for Michigan State.`\
 https://nytimes.com/athletic/7137026/2026/03/21/coen-carr-michigan-state-march-madness-dunks/
