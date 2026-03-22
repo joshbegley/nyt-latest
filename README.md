@@ -1,3 +1,7 @@
+**How to watch Washington vs. TCU women's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Washington Huskies play the TCU Horned Frogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7138866/2026/03/22/washington-vs-tcu-stream-how-to-watch-march-22/
+
 **Randy Arozarena apologizes to Cal Raleigh for WBC comments ahead of Opening Day**\
 `Randy Arozarena and Cal Raleigh are ready to move on from their World Baseball Classic feud.`\
 https://nytimes.com/athletic/7138739/2026/03/22/randy-arozarena-apology-cal-raleigh-wbc-comments/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7135952/2026/03/22/arsenal-manchester-city-carabao-
 **Syracuse to name former star Gerry McNamara next men's basketball coach: Reports**\
 `Gerry McNamara led Siena to 23 wins and its first NCAA Tournament bid in 16 years this season.`\
 https://nytimes.com/athletic/7138633/2026/03/22/syracuse-gerry-mcnamara-mens-basketball-coach/
-
-**Two suspended, three fined after Thunder-Wizards fight spilled into stands**\
-`Ajay Mitchell and Justin Champagnie were each suspended for one game without pay, while three other players received fines.`\
-https://nytimes.com/athletic/7138588/2026/03/22/thunder-wizards-suspensions-fines-ajay-mitchell-justin-champagnie/
 
