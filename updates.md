@@ -1,3 +1,7 @@
+**Anti-Muslim Comments by G.O.P. Congressman Reflect a Rising Trend**\
+`On Capitol Hill and in Nashville, comments by Representative Andy Ogles of Tennessee have sown division and underscored a growing tolerance on the right for Islamophobia.`\
+https://nytimes.com/2026/03/22/us/politics/ogles-republicans-anti-muslim.html
+
 **The Briefing: Newcastle 1 Sunderland 2 - How damaging is another derby defeat? Bright future for Sunderland?**\
 `Sunderland made it a Tyne-Wear derby double by beating Newcastle 2-1 on Sunday afternoon`\
 https://nytimes.com/athletic/7128643/2026/03/22/newcastle-sunderland-result-score-report-analysis/
