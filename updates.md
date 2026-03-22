@@ -1,3 +1,15 @@
+**Alexander-Arnold dropped for Real Madrid derby fixture due to lateness**\
+`The 27-year-old started on the bench against Atletico Madrid after not turning up to a training session on time. `\
+https://nytimes.com/athletic/7138758/2026/03/22/trent-alexander-arnold-real-madrid-atletico-lateness/
+
+**Manchester City are better than everyone thinks they are**\
+`Yes, Pep Guardiola's latest creation are flawed but they are on their way to becoming another great side`\
+https://nytimes.com/athletic/7138972/2026/03/22/manchester-city-carabao-cup-win/
+
+**Cam Skattebo apologizes for 'tasteless joke' about CTE**\
+`Skattebo suggested that the degenerative brain disease known as CTE was not real and called it "an excuse."`\
+https://nytimes.com/athletic/7138885/2026/03/22/cam-skattebo-apologizes-cte-asthma-comments-giants-nfl/
+
 **Why the Pirates decided to send MLB's top prospect Konnor Griffin to Triple A**\
 `The question of whether the 19-year-old Griffin should start the season in the majors is more nuanced than it may seem.`\
 https://nytimes.com/athletic/7138517/2026/03/22/konnor-griffin-pittsburgh-pirates-minor-leagues-prospect/

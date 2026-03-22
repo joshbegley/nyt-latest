@@ -1,3 +1,15 @@
+**Alexander-Arnold dropped for Real Madrid derby fixture due to lateness**\
+`The 27-year-old started on the bench against Atletico Madrid after not turning up to a training session on time. `\
+https://nytimes.com/athletic/7138758/2026/03/22/trent-alexander-arnold-real-madrid-atletico-lateness/
+
+**Manchester City are better than everyone thinks they are**\
+`Yes, Pep Guardiola's latest creation are flawed but they are on their way to becoming another great side`\
+https://nytimes.com/athletic/7138972/2026/03/22/manchester-city-carabao-cup-win/
+
+**Cam Skattebo apologizes for 'tasteless joke' about CTE**\
+`Skattebo suggested that the degenerative brain disease known as CTE was not real and called it "an excuse."`\
+https://nytimes.com/athletic/7138885/2026/03/22/cam-skattebo-apologizes-cte-asthma-comments-giants-nfl/
+
 **Why the Pirates decided to send MLB's top prospect Konnor Griffin to Triple A**\
 `The question of whether the 19-year-old Griffin should start the season in the majors is more nuanced than it may seem.`\
 https://nytimes.com/athletic/7138517/2026/03/22/konnor-griffin-pittsburgh-pirates-minor-leagues-prospect/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/22/us/meteorite-crash-texas-home.html
 **How to watch Washington vs. TCU women's basketball: Second Round Time, TV, streaming**\
 `Find out how to watch the Washington Huskies play the TCU Horned Frogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7138866/2026/03/22/washington-vs-tcu-stream-how-to-watch-march-22/
-
-**Randy Arozarena apologizes to Cal Raleigh for WBC comments ahead of Opening Day**\
-`Randy Arozarena and Cal Raleigh are ready to move on from their World Baseball Classic feud.`\
-https://nytimes.com/athletic/7138739/2026/03/22/randy-arozarena-apology-cal-raleigh-wbc-comments/
-
-**ICE Agents Will Be Deployed to U.S. Airports, White House Confirms**\
-`Tom Homan, the White House border czar, confirmed on Sunday that Immigration and Customs Enforcement agents would help security officials ease long lines at airports starting Monday.`\
-https://nytimes.com/video/us/100000010794811/ice-agents-will-be-deployed-to-us-airports-white-house-confirms.html
-
-**J. Michael Bishop, Nobel Prize Winner for Cancer Research, Dies at 90**\
-`He helped discover cancer-causing genes. Later, as chancellor of the University of California, San Francisco, he led a major expansion.`\
-https://nytimes.com/2026/03/22/obituaries/j-michael-bishop-dead.html
 
