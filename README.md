@@ -1,3 +1,15 @@
+**How to watch NC State vs. Michigan women's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the NC State Lady Wolfpack play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7137934/2026/03/22/nc-state-vs-michigan-stream-how-to-watch-march-22/
+
+**The New York Times International Edition in Print for Monday, March 23, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/03/22/todays-new-york-times-international-edition
+
+**How to watch Jets vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Winnipeg Jets play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7137931/2026/03/22/jets-vs-rangers-stream-how-to-watch-march-22/
+
 **How to watch Avalanche vs. Capitals: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the Washington Capitals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7137929/2026/03/22/avalanche-vs-capitals-stream-how-to-watch-march-22/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/22/us/texas-oil-prices-iran-war.html
 **I Think My Employee Has A.D.H.D. Should I Tell Him?**\
 `Plus, my co-workers had an affair and misused company funds. Somehow, I’m the one dealing with the fallout.`\
 https://nytimes.com/2026/03/22/business/office-affair-misuse-of-funds-adhd.html
-
-**On Beirut’s Waterfront, Loss Meets Life, and Luxury, Amid War**\
-`Thousands displaced by Israeli strikes on Lebanon’s capital now shelter along the promenade hugging the Mediterranean Sea. They share it with joggers, cyclists and dog walkers, alongside dizzying displays of wealth.`\
-https://nytimes.com/2026/03/22/world/middleeast/beirut-israel-war-displaced-corniche.html
-
-**A Meteor Exploded Over Ohio. Then the Chase Began.**\
-`After a seven-ton fireball exploded above the Cleveland area, a group of meteorite hunters descended too, in the name of science — and possibly cash.`\
-https://nytimes.com/2026/03/22/us/meteor-hunters-ohio-cleveland.html
-
-**How the Supreme Court Could Change Voting by Mail**\
-`The Supreme Court is ruling on whether ballots received after Election Day should be disqualified. Our national politics reporter Nick Corasaniti explains how a Supreme Court ruling could affect hundreds of thousands of Americans in rural and urban areas.`\
-https://nytimes.com/video/us/elections/100000010785480/how-the-supreme-court-could-change-voting-by-mail.html
 

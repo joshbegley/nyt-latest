@@ -1,3 +1,11 @@
+**How to watch Avalanche vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7137929/2026/03/22/avalanche-vs-capitals-stream-how-to-watch-march-22/
+
+**How to watch Deportivo Alaves vs. Celta de Vigo in the U.S.**\
+`Find out how to watch Deportivo Alaves play Celta de Vigo, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7137926/2026/03/22/deportivo-alaves-vs-celta-de-vigo-stream-how-to-watch-march-22/
+
 **Gas Prices Have Jumped More Than 30% in Some States in Two Weeks**\
 `Across the South and Southwest, where price hikes have been the most severe, drivers have lamented how the increased costs have cut into their budgets.`\
 https://nytimes.com/2026/03/22/us/gas-prices-south-southwest.html
