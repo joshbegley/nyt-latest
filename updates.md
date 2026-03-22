@@ -1,3 +1,7 @@
+**How to watch Oregon vs. Texas women's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Oregon Ducks play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7138307/2026/03/22/oregon-vs-texas-stream-how-to-watch-march-22/
+
 **How to watch Golden Knights vs. Stars: Time, TV, streaming**\
 `Find out how to watch the Vegas Golden Knights play the Dallas Stars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7138271/2026/03/22/golden-knights-vs-stars-stream-how-to-watch-march-22/

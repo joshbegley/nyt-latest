@@ -1,3 +1,7 @@
+**How to watch Oregon vs. Texas women's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Oregon Ducks play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7138307/2026/03/22/oregon-vs-texas-stream-how-to-watch-march-22/
+
 **How to watch Golden Knights vs. Stars: Time, TV, streaming**\
 `Find out how to watch the Vegas Golden Knights play the Dallas Stars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7138271/2026/03/22/golden-knights-vs-stars-stream-how-to-watch-march-22/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/22/us/politics/ice-airports-homan-trump.html
 **Anti-Muslim Comments by G.O.P. Congressman Reflect a Rising Trend**\
 `On Capitol Hill and in Nashville, comments by Representative Andy Ogles of Tennessee have sown division and underscored a growing tolerance on the right for Islamophobia.`\
 https://nytimes.com/2026/03/22/us/politics/ogles-republicans-anti-muslim.html
-
-**The Briefing: Newcastle 1 Sunderland 2 - How damaging is another derby defeat? Bright future for Sunderland?**\
-`Sunderland made it a Tyne-Wear derby double by beating Newcastle 2-1 on Sunday afternoon`\
-https://nytimes.com/athletic/7128643/2026/03/22/newcastle-sunderland-result-score-report-analysis/
 
