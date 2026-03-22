@@ -1,3 +1,8 @@
+**The day everything went wrong for Newcastle**\
+`Newcastle talked the talk and then fluffed the walk, hobbling and tripping. There are no excuses and no hiding places, for Howe or anybody
+`\
+https://nytimes.com/athletic/7138384/2026/03/22/newcastle-sunderland-derby-wrong/
+
 **How to watch Lightning vs. Flames: Time, TV, streaming**\
 `Find out how to watch the Tampa Bay Lightning play the Calgary Flames, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7138557/2026/03/22/lightning-vs-flames-stream-how-to-watch-march-22/
