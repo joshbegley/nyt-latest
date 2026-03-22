@@ -1,5 +1,5 @@
 **Sharks players get emotional after Ryan Reaves injures finger in fight, stays on bench**\
-`Reaves stayed on the bench for most of the game after appearing to suffer a gruesome finger injury in a scrap with Flyers’ Garrett Wilson.
+`Reaves stayed on the bench for most of the game after appearing to suffer a finger injury in a scrap with the Flyers' Garrett Wilson.
 `\
 https://nytimes.com/athletic/7137323/2026/03/21/sharks-ryan-reaves-injury-finger-fight-flyers/
 
