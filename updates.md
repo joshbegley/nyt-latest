@@ -1,3 +1,15 @@
+**Andy Beshear Delivers a Scathing Attack on JD Vance in Ohio, Stoking 2028 Tensions**\
+`Mr. Beshear, the Democratic governor of Kentucky, sharply criticized Mr. Vance as both angle for potential presidential runs.`\
+https://nytimes.com/2026/03/21/us/politics/beshear-vance-2028-presidential-race.html
+
+**Kevin Durant passes Michael Jordan to move into fifth on NBA scoring list**\
+`Durant has called Jordan his "inspiration." Now, the 37-year-old Rockets star is above his idol on the NBA's career points leaderboard.`\
+https://nytimes.com/athletic/7135693/2026/03/21/kevin-durant-nba-scoring-list-michael-jordan/
+
+**'River hockey'? Sabres' win over Kings shows they can win any type of game**\
+`River hockey implies a lack of structure. It’s clear after the Sabres' 4-1 win over Los Angeles they don't have a problem with that.`\
+https://nytimes.com/athletic/7137409/2026/03/21/sabres-kings-river-hockey-win-streak/
+
 **Sharks players get emotional after Ryan Reaves injures finger in fight, stays on bench**\
 `Reaves stayed on the bench for most of the game after appearing to suffer a finger injury in a scrap with the Flyers' Garrett Wilson.
 `\
