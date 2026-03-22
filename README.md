@@ -1,3 +1,7 @@
+**Kuminga vs. Warriors was a dud, but good vibes remain: 'We always got along well'**\
+`If Kuminga's interactions with his former teammates after the game are any indication, those relationships will continue.`\
+https://nytimes.com/athletic/7137401/2026/03/21/jonathan-kuminga-hawks-warriors-kerr-snyder-nba/
+
 **Blue Jackets' Cole Sillinger, Kent Johnson end droughts, key win over Kraken**\
 `The Blue Jackets' surge of offense is coming from all points of the lineup, including all four forward lines. `\
 https://nytimes.com/athletic/7137343/2026/03/21/blue-jackets-win-kraken-cole-sillinger-kent-johnson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7137452/2026/03/21/luka-doncic-1-game-suspension-te
 **Wild rally to beat Stars in potential first-round playoff preview: Takeaways**\
 `Bobby Brink and the penalty kill came up huge for Minnesota in a 2-1 overtime victory over Dallas on Saturday. `\
 https://nytimes.com/athletic/7137013/2026/03/21/wild-stars-vladimir-tarasenko-overtime-goal-playoffs/
-
-**Nathaniel Lowe, Sam Moll round out Reds' roster; Rece Hinds to start in AAA**\
-`Hinds will start the year at AAA Louisville despite absolutely crushing Cactus League pitching in spring training.`\
-https://nytimes.com/athletic/7137314/2026/03/21/reds-nathaniel-lowe-sam-moll-round-out-roster/
 
