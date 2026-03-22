@@ -11,7 +11,7 @@ https://nytimes.com/athletic/7135952/2026/03/22/arsenal-manchester-city-carabao-
 https://nytimes.com/athletic/7138633/2026/03/22/syracuse-gerry-mcnamara-mens-basketball-coach/
 
 **Two suspended, three fined after Thunder-Wizards fight spilled into stands**\
-`Two players, Ajay Mitchell and Justin Champagnie, were suspended one-game without pay, and three other players received fines.`\
+`Ajay Mitchell and Justin Champagnie were each suspended for one game without pay, while three other players received fines.`\
 https://nytimes.com/athletic/7138588/2026/03/22/thunder-wizards-suspensions-fines-ajay-mitchell-justin-champagnie/
 
 **Dodgers settle second base battle, opting for rookie Alex Freeland over Hyeseong Kim**\

@@ -1,3 +1,7 @@
+**Nationals trade with Yankees to potentially round out their infield**\
+`Washington sent a pitching prospect to New York for Jorbit Vivas, who could see time at second and third base for the Nationals.`\
+https://nytimes.com/athletic/7138672/2026/03/22/nationals-yankees-trade-jorbit-vivas-sean-paul-linan/
+
 **The Briefing: Arsenal 0 Man City 2 - Kepa Arrizabalaga error and Cherki showboating in Wembley nightmare for Arsenal**\
 `Our writers break down the action, from errors to showboating, as Man City beat Arsenal for the first silverware of the season.`\
 https://nytimes.com/athletic/7135952/2026/03/22/arsenal-manchester-city-carabao-cup-final/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7138615/2026/03/22/utah-state-vs-arizona-stream-how
 **How to watch Michigan State vs. Oklahoma women's basketball: Second Round Time, TV, streaming**\
 `Find out how to watch the Michigan State Spartans play the Oklahoma Sooners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7138587/2026/03/22/michigan-state-vs-oklahoma-stream-how-to-watch-march-22/
-
-**Watkins 'expected' to be dropped from England squad after drop in form**\
-`The Aston Villa forward said his form "hasn't been great" but left the door open for World Cup selection after scoring on Sunday.`\
-https://nytimes.com/athletic/7138530/2026/03/22/ollie-watkins-england-aston-villa-world-cup/
 

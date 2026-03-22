@@ -1,3 +1,7 @@
+**Nationals trade with Yankees to potentially round out their infield**\
+`Washington sent a pitching prospect to New York for Jorbit Vivas, who could see time at second and third base for the Nationals.`\
+https://nytimes.com/athletic/7138672/2026/03/22/nationals-yankees-trade-jorbit-vivas-sean-paul-linan/
+
 **The Briefing: Arsenal 0 Man City 2 - Kepa Arrizabalaga error and Cherki showboating in Wembley nightmare for Arsenal**\
 `Our writers break down the action, from errors to showboating, as Man City beat Arsenal for the first silverware of the season.`\
 https://nytimes.com/athletic/7135952/2026/03/22/arsenal-manchester-city-carabao-cup-final/
