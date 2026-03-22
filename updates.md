@@ -1,3 +1,7 @@
+**How are the middling Kings in the playoff hunt?**\
+`With a .522 points percentage, the Kings would rank among the worst teams to make the Stanley Cup playoffs in the salary cap era.`\
+https://nytimes.com/athletic/7137693/2026/03/22/los-angeles-kings-nhl-playoff-standings/
+
 **Team USA flag football squad trounces 2 teams of NFL stars**\
 `Team USA won all three games against the pros by a combined 106-44 score.`\
 https://nytimes.com/athletic/7137564/2026/03/22/team-usa-flag-football-trounce-nfl-pros/
