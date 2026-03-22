@@ -1,3 +1,11 @@
+**Penn State extends wrestling dynasty with fifth straight NCAA title**\
+`Nittany Lions coach Cael Sanderson claimed his 13th national championship in 17 years, as Penn State set an NCAA points record.`\
+https://nytimes.com/athletic/7137608/2026/03/21/penn-state-wrestling-ncaa-championship-streak/
+
+**Nebraska outlasts Vanderbilt in epic second-round NCAA Tournament showdown**\
+`The Cornhuskers picked up their second NCAA Tournament win in three days, surviving a last-second miss from Vanderbilt's Tyler Tanner.`\
+https://nytimes.com/athletic/7137603/2026/03/21/vanderbilt-nebraska-ncaa-tournamant/
+
 **Kuminga vs. Warriors was a dud, but good vibes remain: 'We always got along well'**\
 `If Kuminga's interactions with his former teammates after the game are any indication, those relationships will continue.`\
 https://nytimes.com/athletic/7137401/2026/03/21/jonathan-kuminga-hawks-warriors-kerr-snyder-nba/
