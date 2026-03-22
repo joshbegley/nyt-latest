@@ -1,3 +1,7 @@
+**Here’s What Happened in the War in the Middle East on Sunday**\
+`The Israeli military said its campaign against Hezbollah in Lebanon would intensify, while Iran threatened to attack civilian infrastructure if President Trump followed through with an ultimatum.`\
+https://nytimes.com/2026/03/22/world/middleeast/middle-east-war-recap.html
+
 **Great Britain wins three gold medals in 45 minutes at world indoors**\
 `Georgia Hunter-Bell (1500 meters), Keely Hodgkinson (800m) and Molly Caudery (pole vault) won world titles on "Super Sunday".`\
 https://nytimes.com/athletic/7138966/2026/03/22/hodgkinson-hunter-bell-caudery-great-britain-gold-world-championships/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7138965/2026/03/22/barnes-eze-england-injury-news/
 **The golden age of the March Madness upset feels over. Here's why its not all bad**\
 `The Cinderella era of 2006-23 is over. But it will make upsets more special — as long as conditions allow them to exist sometimes.`\
 https://nytimes.com/athletic/7138717/2026/03/22/ncaa-tournament-upsets-cinderella-future/
-
-**Lutkenhaus, 17, becomes youngest-ever world indoor medalist with 800m gold**\
-`The American teenager won the final in one minute and 44.24 seconds, his second-quickest run of all time. `\
-https://nytimes.com/athletic/7138764/2026/03/22/cooper-lutkenhaus-gold-800m-world-championships-record/
 
