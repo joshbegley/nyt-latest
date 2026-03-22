@@ -1,3 +1,11 @@
+**Blue Jackets' Cole Sillinger, Kent Johnson end droughts, key win over Kraken**\
+`The Blue Jackets' surge of offense is coming from all points of the lineup, including all four forward lines. `\
+https://nytimes.com/athletic/7137343/2026/03/21/blue-jackets-win-kraken-cole-sillinger-kent-johnson/
+
+**What I saw on the Flyers' successful three-game California road sweep**\
+`A rejuvenated Garnet Hathaway was key to a California sweep of the Ducks, Kings and Sharks.`\
+https://nytimes.com/athletic/7137402/2026/03/21/flyers-california-road-trip-sweep-takeaways/
+
 **Andy Beshear Delivers a Scathing Attack on JD Vance in Ohio, Stoking 2028 Tensions**\
 `Mr. Beshear, the Democratic governor of Kentucky, sharply criticized Mr. Vance as both angle for potential presidential runs.`\
 https://nytimes.com/2026/03/21/us/politics/beshear-vance-2028-presidential-race.html
@@ -15,7 +23,7 @@ https://nytimes.com/athletic/7137409/2026/03/21/sabres-kings-river-hockey-win-st
 https://nytimes.com/athletic/7137417/2026/03/21/cubs-michael-conforto-seiya-suzuki-roster/
 
 **Trump’s Reaction to Mueller’s Death: ‘Good, I’m Glad.’**\
-`The president has consistently celebrated the deaths of political foes. His response to Mr. Mueller’s death drew criticism from Republicans and Democrats.`\
+`The president has been known to disparage foes after their deaths. His response to Mr. Mueller’s death drew criticism from Republicans and Democrats.`\
 https://nytimes.com/2026/03/21/us/politics/trump-mueller-death.html
 
 **Luka Dončić facing one-game suspension due to 16th technical foul of season**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7137013/2026/03/21/wild-stars-vladimir-tarasenko-ov
 **Nathaniel Lowe, Sam Moll round out Reds' roster; Rece Hinds to start in AAA**\
 `Hinds will start the year at AAA Louisville despite absolutely crushing Cactus League pitching in spring training.`\
 https://nytimes.com/athletic/7137314/2026/03/21/reds-nathaniel-lowe-sam-moll-round-out-roster/
-
-**Mullin Explored Bipartisan Deal to Rein in Immigration Crackdown**\
-`The G.O.P. senator President Trump chose to lead the Department of Homeland Security privately discussed concessions the White House has repeatedly rejected.`\
-https://nytimes.com/2026/03/21/us/politics/markwayne-mullin-bipartisan-immigration-deal.html
-
-**FDU coach calls for neutral NCAA sites following close call at Iowa**\
-`“On a neutral court, you have a much better chance (of an upset),” FDU coach Stephanie Gaitley said after Saturday's loss at Iowa.`\
-https://nytimes.com/athletic/7137395/2026/03/21/fdu-coach-neutral-ncaa-sites-iowa/
 

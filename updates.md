@@ -1,3 +1,15 @@
+**Blue Jackets' Cole Sillinger, Kent Johnson end droughts, key win over Kraken**\
+`The Blue Jackets' surge of offense is coming from all points of the lineup, including all four forward lines. `\
+https://nytimes.com/athletic/7137343/2026/03/21/blue-jackets-win-kraken-cole-sillinger-kent-johnson/
+
+**What I saw on the Flyers' successful three-game California road sweep**\
+`A rejuvenated Garnet Hathaway was key to a California sweep of the Ducks, Kings and Sharks.`\
+https://nytimes.com/athletic/7137402/2026/03/21/flyers-california-road-trip-sweep-takeaways/
+
+**Trump’s Reaction to Mueller’s Death: ‘Good, I’m Glad.’**\
+`The president has been known to disparage foes after their deaths. His response to Mr. Mueller’s death drew criticism from Republicans and Democrats.`\
+https://nytimes.com/2026/03/21/us/politics/trump-mueller-death.html
+
 **Andy Beshear Delivers a Scathing Attack on JD Vance in Ohio, Stoking 2028 Tensions**\
 `Mr. Beshear, the Democratic governor of Kentucky, sharply criticized Mr. Vance as both angle for potential presidential runs.`\
 https://nytimes.com/2026/03/21/us/politics/beshear-vance-2028-presidential-race.html
