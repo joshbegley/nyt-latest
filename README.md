@@ -1,3 +1,11 @@
+**Trump’s Ultimatum to Iran**\
+`The president’s messages on the war have shifted, but the latest threat might be a sign that he’s moving to a harder stance.`\
+https://nytimes.com/2026/03/22/world/trump-us-iran-oil-france-elections-bts.html
+
+**Ovechkin joins Gretzky as only players with 1,000 regular season, playoff goals**\
+`The 40-year-old Capitals superstar broke Gretzky’s previous regular-season record of 894 goals on April 6, 2025, against the Islanders.`\
+https://nytimes.com/athletic/7139092/2026/03/22/alex-ovechkin-wayne-gretzky-1000-goals/
+
 **Jalen Williams (hamstring) to return for Thunder vs. 76ers after 16-game absence**\
 `Prior to missing this string of games, he played in two roading outings against theLakers and Suns after missing the prior 10 outings.`\
 https://nytimes.com/athletic/7139151/2026/03/22/jalen-williams-injury-update-returns-okc-sixers-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/22/world/middleeast/middle-east-war-recap.html
 **Great Britain wins three gold medals in 45 minutes at world indoors**\
 `Georgia Hunter-Bell (1500 meters), Keely Hodgkinson (800m) and Molly Caudery (pole vault) won world titles on "Super Sunday".`\
 https://nytimes.com/athletic/7138966/2026/03/22/hodgkinson-hunter-bell-caudery-great-britain-gold-world-championships/
-
-**Let this sting Arsenal. Then don't feel it again**\
-`Arteta and his players need to dust themselves down — they are still in running for three trophies and cannot let Wembley loss affect them`\
-https://nytimes.com/athletic/7138949/2026/03/22/arsenal-league-cup-history/
-
-**Maryland coach Brenda Frese gives intense coaching moment to Oluchi Okananwa**\
-`Maryland coach Brenda Frese's intense coaching moment with Oluchi Okananwa drew attention.`\
-https://nytimes.com/athletic/7139016/2026/03/22/maryland-brenda-frese-oluchi-okananwa/
 
