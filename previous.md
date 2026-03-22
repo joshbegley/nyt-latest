@@ -1,3 +1,19 @@
+**This was the night it all came together for Everton. Now they can dare to dream**\
+`Everton beat Chelsea 3-0 on Saturday evening — moving to within touching distance of the European places`\
+https://nytimes.com/athletic/7137279/2026/03/22/everton-chelsea-analysis-champions-league/
+
+**‘Love Story’ Has People Falling for ’90s New York City Again**\
+`The show, about John F. Kennedy Jr. and Carolyn Bessette, has fans flocking to restaurants and stores the couple visited during their romance.`\
+https://nytimes.com/2026/03/22/nyregion/love-story-jfk-jr-nyc.html
+
+**‘I Jumped Out of Bed, Marched Next Door and Began an Irrational Rant’**\
+`Confronting a noisy neighbor, at a Manhattan club after the prom and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2026/03/22/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/22/crosswords/spelling-bee-forum.html
+
 **Iran War Live Updates: Trump Threatens Iran’s Power Plants if Strait of Hormuz Does Not Open**\
 `President Trump’s ultimatum comes after Iranian missiles struck two cities in southern Israel, including one near the country’s main nuclear research center.`\
 https://nytimes.com/live/2026/03/22/world/iran-war-oil-trump
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7125930/2026/03/22/footballer-talent-appreciation-c
 **Football's demand for perfection has created the 'crazy' world where 'identical' fouls get different decisions**\
 `Manchester United are to make an official complaint after two 'identical' incidents were treated differently. It won't help`\
 https://nytimes.com/athletic/7137087/2026/03/22/manchester-united-referee-complaint/
-
-**Carabao Cup final: Does it matter more for Arteta or Guardiola? Will it shape the title race?**\
-`Our Arsenal writer Amy Lawrence and her Manchester City counterpart Sam Lee discuss the key issues around the game`\
-https://nytimes.com/athletic/7131318/2026/03/22/carabao-cup-final-arsenal-manchester-city/
-
-**Where are Chelsea's leaders?**\
-`Everton showed Chelsea what a cohesive unit looked like during their 3-0 win on Saturday`\
-https://nytimes.com/athletic/7137018/2026/03/22/chelsea-everton-rosenior-fernandez-leaders/
-
-**Yes, Liverpool are being outrun - but being outthought and outfought are bigger problems**\
-`Brighton was the 27th time Liverpool have been outrun in this season's Premier League. How much does it matter?`\
-https://nytimes.com/athletic/7136714/2026/03/22/liverpool-running-less-opponents/
-
-**How to watch Rayo Vallecano vs. Barcelona in the U.S.**\
-`Find out how to watch Rayo Vallecano play Barcelona, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7137775/2026/03/22/rayo-vallecano-vs-barcelona-stream-how-to-watch-march-22/
 

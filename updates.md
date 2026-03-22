@@ -1,3 +1,19 @@
+**This was the night it all came together for Everton. Now they can dare to dream**\
+`Everton beat Chelsea 3-0 on Saturday evening — moving to within touching distance of the European places`\
+https://nytimes.com/athletic/7137279/2026/03/22/everton-chelsea-analysis-champions-league/
+
+**‘Love Story’ Has People Falling for ’90s New York City Again**\
+`The show, about John F. Kennedy Jr. and Carolyn Bessette, has fans flocking to restaurants and stores the couple visited during their romance.`\
+https://nytimes.com/2026/03/22/nyregion/love-story-jfk-jr-nyc.html
+
+**‘I Jumped Out of Bed, Marched Next Door and Began an Irrational Rant’**\
+`Confronting a noisy neighbor, at a Manhattan club after the prom and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2026/03/22/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/22/crosswords/spelling-bee-forum.html
+
 **Iran War Live Updates: Trump Threatens Iran’s Power Plants if Strait of Hormuz Does Not Open**\
 `President Trump’s ultimatum comes after Iranian missiles struck two cities in southern Israel, including one near the country’s main nuclear research center.`\
 https://nytimes.com/live/2026/03/22/world/iran-war-oil-trump
