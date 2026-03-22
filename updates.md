@@ -1,3 +1,11 @@
+**Lowetide: Is Oilers' goalie of the future flourishing in obscurity this season?**\
+`Goaltender Samuel Jonsson was selected by the Oilers in the fifth round of the 2022 NHL Draft.`\
+https://nytimes.com/athletic/7136285/2026/03/22/edmonton-oilers-goalie-samuel-jonsson-stats-2026/
+
+**How to watch Baylor vs. Duke women's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Baylor Bears play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7138083/2026/03/22/baylor-vs-duke-stream-how-to-watch-march-22/
+
 **Kevin Durant set the tone, but Rockets' future made altering plays in win vs. Heat**\
 `Kevin Durant's play has been consistent, but the Rockets are looking like a threat in the West with the play of their two young guards.`\
 https://nytimes.com/athletic/7137857/2026/03/22/kevin-durant-rockets-amen-thompson-reed-sheppard-nba/
