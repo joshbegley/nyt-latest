@@ -1,3 +1,7 @@
+**Residents of Arad Are Shaken After Direct Strike by Iranian Missile**\
+`Attacks on Saturday injured dozens in Arad and Dimona, two cities closest to Israel’s main nuclear research facility.`\
+https://nytimes.com/2026/03/22/world/middleeast/arad-dimona-israel-iran-missile-strike.html
+
 **Red Wings can't overcome Jeremy Swayman in 'frustrating' loss: 5 thoughts**\
 `In another high-stakes game in a tight playoff race, the Red Wings ran into a red-hot goalie and lost out on 2 key points to the Bruins.`\
 https://nytimes.com/athletic/7137639/2026/03/22/detroit-red-wings-boston-bruins-jeremy-swayman/

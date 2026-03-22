@@ -1,3 +1,7 @@
+**Residents of Arad Are Shaken After Direct Strike by Iranian Missile**\
+`Attacks on Saturday injured dozens in Arad and Dimona, two cities closest to Israel’s main nuclear research facility.`\
+https://nytimes.com/2026/03/22/world/middleeast/arad-dimona-israel-iran-missile-strike.html
+
 **Red Wings can't overcome Jeremy Swayman in 'frustrating' loss: 5 thoughts**\
 `In another high-stakes game in a tight playoff race, the Red Wings ran into a red-hot goalie and lost out on 2 key points to the Bruins.`\
 https://nytimes.com/athletic/7137639/2026/03/22/detroit-red-wings-boston-bruins-jeremy-swayman/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/22/podcasts/the-daily/clavicular-looksmaxxing-men.ht
 **Strands Sidekick No. 750**\
 `Scroll down for hints and conversation about the puzzle for Monday, March 23, 2026.`\
 https://nytimes.com/2026/03/22/crosswords/strands-sidekick-750.html
-
-**How Arkansas star Darius Acuff Jr. learned to control the game**\
-`The freshman's evolution from bucket-getter to trusted leader has been quick and eye-popping. On Saturday, he did whatever it took to win.`\
-https://nytimes.com/athletic/7137866/2026/03/22/darius-acuff-arkansas-sweet-16-ncaa-tournament/
 
