@@ -1,3 +1,15 @@
+**For ‘Buffy’ Fans, Nicholas Brendon’s Xander Was a Complicated Everyman**\
+`The actor, who died on Friday, was a fan favorite on “Buffy the Vampire Slayer,” even as his character mixed quiet heroism with hostility toward the show’s women.`\
+https://nytimes.com/2026/03/22/arts/television/nicholas-brendon-death-buffy-xander.html
+
+**Luka Dončić avoids one-game suspension after technical foul vs. Magic is rescinded**\
+`The tech was originally given during Saturday's matchup against the Orlando Magic. By having it rescinded, Dončić avoids a one-game ban.`\
+https://nytimes.com/athletic/7139186/2026/03/22/luka-doncic-suspension-rescinded-lakers-nba/
+
+**Ovechkin joins Gretzky as only players with 1,000 regular-season, playoff goals**\
+`The 40-year-old Capitals superstar broke Gretzky’s previous regular-season record of 894 goals on April 6, 2025, against the Islanders.`\
+https://nytimes.com/athletic/7139092/2026/03/22/alex-ovechkin-wayne-gretzky-1000-goals/
+
 **Trump’s Ultimatum to Iran**\
 `The president’s messages on the war have shifted, but the latest threat might be a sign that he’s moving to a harder stance.`\
 https://nytimes.com/2026/03/22/world/trump-us-iran-oil-france-elections-bts.html

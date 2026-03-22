@@ -1,8 +1,16 @@
+**For ‘Buffy’ Fans, Nicholas Brendon’s Xander Was a Complicated Everyman**\
+`The actor, who died on Friday, was a fan favorite on “Buffy the Vampire Slayer,” even as his character mixed quiet heroism with hostility toward the show’s women.`\
+https://nytimes.com/2026/03/22/arts/television/nicholas-brendon-death-buffy-xander.html
+
+**Luka Dončić avoids one-game suspension after technical foul vs. Magic is rescinded**\
+`The tech was originally given during Saturday's matchup against the Orlando Magic. By having it rescinded, Dončić avoids a one-game ban.`\
+https://nytimes.com/athletic/7139186/2026/03/22/luka-doncic-suspension-rescinded-lakers-nba/
+
 **Trump’s Ultimatum to Iran**\
 `The president’s messages on the war have shifted, but the latest threat might be a sign that he’s moving to a harder stance.`\
 https://nytimes.com/2026/03/22/world/trump-us-iran-oil-france-elections-bts.html
 
-**Ovechkin joins Gretzky as only players with 1,000 regular season, playoff goals**\
+**Ovechkin joins Gretzky as only players with 1,000 regular-season, playoff goals**\
 `The 40-year-old Capitals superstar broke Gretzky’s previous regular-season record of 894 goals on April 6, 2025, against the Islanders.`\
 https://nytimes.com/athletic/7139092/2026/03/22/alex-ovechkin-wayne-gretzky-1000-goals/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7138954/2026/03/22/yankees-rotation-luis-gil-roster
 **Amaya Battle sends Minnesota to Sweet 16 with last-second jumper**\
 `The Golden Gophers beat Ole Miss to punch their ticket to the NCAA women's basketball Sweet 16 for the first time in 21 years.`\
 https://nytimes.com/athletic/7139035/2026/03/22/minnesota-ole-miss-amaya-battle-ncaa-tournament/
-
-**Here’s What Happened in the War in the Middle East on Sunday**\
-`The Israeli military said its campaign against Hezbollah in Lebanon would intensify, while Iran threatened to attack civilian infrastructure if President Trump followed through with an ultimatum.`\
-https://nytimes.com/2026/03/22/world/middleeast/middle-east-war-recap.html
-
-**Great Britain wins three gold medals in 45 minutes at world indoors**\
-`Georgia Hunter-Bell (1500 meters), Keely Hodgkinson (800m) and Molly Caudery (pole vault) won world titles on "Super Sunday".`\
-https://nytimes.com/athletic/7138966/2026/03/22/hodgkinson-hunter-bell-caudery-great-britain-gold-world-championships/
 
