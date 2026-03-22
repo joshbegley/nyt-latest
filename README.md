@@ -1,3 +1,7 @@
+**Spurs fans respond with pride after video disparaging Hispanic fans goes viral**\
+`After a viral video of a woman at a Spurs game sending disparaging texts about Hispanic fans, the Latino community responded with pride.`\
+https://nytimes.com/athletic/7137744/2026/03/22/spurs-fans-respond-with-pride-after-video-disparaging-hispanic-fans-goes-viral/
+
 **The Role of Public Theology in Crisis**\
 `As the war in Iran enters its fourth week, I’m yearning for a more robust conversation about morality — in politics, in our workplaces and online.`\
 https://nytimes.com/2026/03/22/briefing/the-role-of-public-theology-in-crisis.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7137970/2026/03/22/predators-vs-blackhawks-stream-h
 **The Pulse: The WNBA's pay explosion**\
 `Welcome to The Pulse, The Athletic's daily newsletter. `\
 https://nytimes.com/athletic/7137823/2026/03/22/the-wnbas-pay-explosion-plus-more-buzzer-madness/
-
-**How to watch Real Betis vs. Athletic Bilbao in the U.S.**\
-`Find out how to watch Real Betis play Athletic Bilbao, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7137960/2026/03/22/real-betis-vs-athletic-bilbao-stream-how-to-watch-march-22/
 
