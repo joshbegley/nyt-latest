@@ -1,3 +1,7 @@
+**Newcastle's Barnes to replace injured Eze in England squad**\
+`Eze, 27, was absent from Arsenal’s line-up for the Carabao Cup final defeat to Manchester City on Sunday with a calf injury.`\
+https://nytimes.com/athletic/7138965/2026/03/22/barnes-eze-england-injury-news/
+
 **The golden age of the March Madness upset feels over. Here's why its not all bad**\
 `The Cinderella era of 2006-23 is over. But it will make upsets more special — as long as conditions allow them to exist sometimes.`\
 https://nytimes.com/athletic/7138717/2026/03/22/ncaa-tournament-upsets-cinderella-future/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/22/obituaries/j-michael-bishop-dead.html
 **Terry appears to endorse UK politician's call for nationwide burqa ban**\
 `The former England captain is still involved in football and has been in an academy coaching consultancy role with Chelsea since 2021.`\
 https://nytimes.com/athletic/7138278/2026/03/22/john-terry-chelsea-rupert-lowe-burqa-ban/
-
-**Christopher Columbus Statue Is Installed on White House Grounds**\
-`The statue of the explorer, a replica of one that protesters toppled in 2020, was placed outside the Eisenhower Executive Office Building.`\
-https://nytimes.com/2026/03/22/arts/design/columbus-statue-trump-white-house.html
 
