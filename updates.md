@@ -1,3 +1,11 @@
+**Arsenal can let defeat sting - this should be a rotten game in isolation and not derail season**\
+`Arteta and his players need to dust themselves down - they are still in running for three trophies and cannot let Wembley loss affect them`\
+https://nytimes.com/athletic/7138949/2026/03/22/arsenal-league-cup-history/
+
+**Maryland coach Brenda Frese gives intense coaching moment to Oluchi Okananwa**\
+`Maryland coach Brenda Frese's intense coaching moment with Oluchi Okananwa drew attention.`\
+https://nytimes.com/athletic/7139016/2026/03/22/maryland-brenda-frese-oluchi-okananwa/
+
 **Alexander-Arnold dropped for Real Madrid derby fixture due to lateness**\
 `The 27-year-old started on the bench against Atletico Madrid after not turning up to a training session on time. `\
 https://nytimes.com/athletic/7138758/2026/03/22/trent-alexander-arnold-real-madrid-atletico-lateness/
