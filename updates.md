@@ -1,3 +1,7 @@
+**How the G.O.P. and Democrats Are Talking About the Surge in Gas Prices**\
+`Republicans have largely been on defense against Democratic criticism. Here are five arguments advanced by figures in both parties.`\
+https://nytimes.com/2026/03/22/us/politics/republicans-democrats-gas-prices-comments-midterms.html
+
 **Wisconsin defeats Ohio State to win back-to-back NCAA women’s hockey championships**\
 `It took the high-octane Badgers’ offense just 78 seconds to open the scoring as they defeated the Buckeyes 3-2 on Sunday.`\
 https://nytimes.com/athletic/7139405/2026/03/22/wisconsin-ohio-state-ncaa-hockey-womens-championship/
