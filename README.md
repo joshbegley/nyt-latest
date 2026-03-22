@@ -1,3 +1,11 @@
+**Canadiens' ultimate goal comes into focus: 'This was a week we found ourselves again'**\
+`The Canadiens' top talent gives them the best chance to win, but it was the supporting cast that stepped up against the Islanders.`\
+https://nytimes.com/athletic/7137811/2026/03/22/canadiens-cole-caufield-win-islanders/
+
+**Utah State can't match college basketball's spending or keep a coach. It wins anyway**\
+`In a sport increasingly auctioned off to the highest bidder, Utah State’s footing feels almost out of place.`\
+https://nytimes.com/athletic/7137878/2026/03/22/ncaa-tournament-utah-state-march-madness/
+
 **Women's NCAA Tournament power rankings: Resetting the title contenders for Round 2**\
 `The top four seeds are humming, but No. 2 seed Iowa looks vulnerable. `\
 https://nytimes.com/athletic/7137698/2026/03/22/womens-ncaa-tournament-power-rankings-uconn-south-carolina/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7137985/2026/03/22/ole-miss-vs-minnesota-stream-how
 **How to watch Texas Tech vs. LSU women's basketball: Second Round Time, TV, streaming**\
 `Find out how to watch the Texas Tech Lady Raiders play the LSU Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7137981/2026/03/22/texas-tech-vs-lsu-stream-how-to-watch-march-22/
-
-**Romance Novels Where Even the Non-Sexy Parts Make Your Heart Race**\
-`Our columnist on three sparkling new romances.`\
-https://nytimes.com/2026/03/22/books/review/new-romance-books.html
-
-**How to watch Hurricanes vs. Penguins: Time, TV, streaming**\
-`Find out how to watch the Carolina Hurricanes play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7137974/2026/03/22/hurricanes-vs-penguins-stream-how-to-watch-march-22/
 
