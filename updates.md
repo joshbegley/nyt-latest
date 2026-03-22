@@ -1,3 +1,16 @@
+**The day everything went wrong for Newcastle**\
+`Newcastle talked the talk and then fluffed the walk, hobbling and tripping. There are no excuses and no hiding places, for Howe or anybody.
+`\
+https://nytimes.com/athletic/7138384/2026/03/22/newcastle-sunderland-derby-wrong/
+
+**What will Caitlin Clark, Paige Bueckers and other WNBA stars on rookie contracts now make?**\
+`The new CBA provides big pay boosts and allows players on rookie contacts to increase their earning potential.`\
+https://nytimes.com/athletic/7138313/2026/03/22/caitlin-clark-paige-bueckers-rookie-salary-cba/
+
+**Astros send Taylor Trammell to minors, but roster decisions remain before Opening Day**\
+`If the injured Jeremy Peña is ready to go, there would only be two spots open for three players who are all in the outfield mix.`\
+https://nytimes.com/athletic/7138252/2026/03/22/astros-roster-opening-day-taylor-trammell/
+
 **Spurs are in serious trouble: what happens when big clubs are relegated? 'It's embarrassing... a nightmare'**\
 `Some teams are said to be 'too good to go down'. But there are a history of shock relegations from the Premier League. Here's what happened`\
 https://nytimes.com/athletic/7133466/2026/03/22/premier-league-relegation-big-clubs-tottenham-newcastle/

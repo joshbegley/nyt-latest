@@ -1,3 +1,16 @@
+**The day everything went wrong for Newcastle**\
+`Newcastle talked the talk and then fluffed the walk, hobbling and tripping. There are no excuses and no hiding places, for Howe or anybody.
+`\
+https://nytimes.com/athletic/7138384/2026/03/22/newcastle-sunderland-derby-wrong/
+
+**What will Caitlin Clark, Paige Bueckers and other WNBA stars on rookie contracts now make?**\
+`The new CBA provides big pay boosts and allows players on rookie contacts to increase their earning potential.`\
+https://nytimes.com/athletic/7138313/2026/03/22/caitlin-clark-paige-bueckers-rookie-salary-cba/
+
+**Astros send Taylor Trammell to minors, but roster decisions remain before Opening Day**\
+`If the injured Jeremy Peña is ready to go, there would only be two spots open for three players who are all in the outfield mix.`\
+https://nytimes.com/athletic/7138252/2026/03/22/astros-roster-opening-day-taylor-trammell/
+
 **The 3.22.26 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2026/03/22/the-32226-issue
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/7138317/2026/03/22/iowa-vs-florida-stream-how-to-wa
 **How to watch Oregon vs. Texas women's basketball: Second Round Time, TV, streaming**\
 `Find out how to watch the Oregon Ducks play the Texas Longhorns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7138307/2026/03/22/oregon-vs-texas-stream-how-to-watch-march-22/
-
-**How to watch Golden Knights vs. Stars: Time, TV, streaming**\
-`Find out how to watch the Vegas Golden Knights play the Dallas Stars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7138271/2026/03/22/golden-knights-vs-stars-stream-how-to-watch-march-22/
-
-**How to watch Blue Jackets vs. Islanders: Time, TV, streaming**\
-`Find out how to watch the Columbus Blue Jackets play the New York Islanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7138269/2026/03/22/blue-jackets-vs-islanders-stream-how-to-watch-march-22/
-
-**Attack on a Sudan Hospital Kills Dozens, Head of W.H.O. Says**\
-`The group’s director general said 13 children were among those killed in the latest violence in the Darfur region, and he decried the targeting of health care facilities in the civil war.`\
-https://nytimes.com/2026/03/22/world/africa/sudan-hospital-darfur-attack.html
 
