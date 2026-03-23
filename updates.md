@@ -1,3 +1,11 @@
+**The Athletic college baseball top 25: Hello Alabama, Nebraska; goodbye Florida, Clemson**\
+`Alabama and Nebraska, two teams that posted big wins in college basketball, jump into the college baseball top 25 this week.`\
+https://nytimes.com/athletic/7140632/2026/03/23/college-baseball-rankings-alabama-nebraska/
+
+**As playoff races heat up, we're still thinking about that 65-game rule**\
+`Who's hot (Thunder, Lakers), who's not (Heat, Magic) and what to watch this week in battles for playoff positioning.`\
+https://nytimes.com/athletic/7128502/2026/03/23/nba-playoff-race-65-game-rule-cade-cunningham/
+
 **The F.A.A. has been working to make U.S. runways safer.**\
 `By Niraj Chokshi`\
 https://nytimes.com/live/2026/03/23/nyregion/laguardia-airport-plane-crash-truck/the-faa-has-been-working-to-make-us-runways-safer
