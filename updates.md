@@ -1,3 +1,19 @@
+**Oklahoma LB sues NCAA for extra year after working out at combine, pro day**\
+`Heinecke participated in the Senior Bowl, NFL combine and Oklahoma's pro day in case his fight for another year didn’t work out.`\
+https://nytimes.com/athletic/7140911/2026/03/23/owen-heinecke-ncaa-lawsuit-nfl-combine-oklahoma/
+
+**How to watch Illinois vs. Vanderbilt women's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Illinois Fighting Illini play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7141025/2026/03/23/illinois-vs-vanderbilt-stream-how-to-watch-march-23/
+
+**How to watch Syracuse vs. UConn women's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Syracuse Orange play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7141023/2026/03/23/syracuse-vs-uconn-stream-how-to-watch-march-23/
+
+**Arsenal's Gabriel, Trossard withdraw from international duty**\
+`The CBF said Gabriel was experiencing knee pain, while Trossard will not travel with Belgium to the United States.`\
+https://nytimes.com/athletic/7140905/2026/03/23/gabriel-leandro-trossard-arsenal-international-withdraw/
+
 **Lilias Folan, Who Brought Yoga to Middle America, Dies at 90**\
 `With her bright leotards and soothing, welcoming tone, she helped to demystify a discipline that many Americans in the 1970s viewed as a counterculture practice.`\
 https://nytimes.com/2026/03/23/us/lilias-folan-dead.html
