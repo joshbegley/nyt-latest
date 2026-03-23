@@ -1,3 +1,15 @@
+**With Anton Frondell on the way, Ryan Greene and Nick Lardis look to keep top-six spots**\
+`Greene has exceeded his own expectations this season, but he might be bound for a less prominent role in the homestretch of the season.`\
+https://nytimes.com/athletic/7139414/2026/03/22/blackhakws-anton-frondell-ryan-greene-nick-lardis/
+
+**St. John's heads to Sweet 16 for first time since 1999 after beating Kansas at the buzzer**\
+`Dylan Darling, who hadn't make a single bucket through 40 minutes, sent St. John's to the Sweet 16 with a driving bucket at the buzzer. `\
+https://nytimes.com/athletic/7139524/2026/03/22/st-johns-kansas-rick-pitino-dylan-darling/
+
+**Jeff Webb, Who Built a Competitive Cheerleading Empire, Dies at 76**\
+`Through Varsity Spirit, the company he established in 1974, he turned cheerleading into a multibillion-dollar juggernaut and exerted control over almost every aspect of it.`\
+https://nytimes.com/2026/03/22/business/jeff-webb-dead-cheerleading.html
+
 **Pro-Palestinian Activists Rally in Support of Freed Columbia Protester**\
 `After speaking alongside city officials in Paterson, N.J., Leqaa Kordia, who was recently released after a year in ICE detention, led a crowd in chants of “globalize the intifada.”`\
 https://nytimes.com/2026/03/22/nyregion/columbia-protester-palestinian-ice-detention-new-jersey.html
