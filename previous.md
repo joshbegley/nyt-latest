@@ -1,3 +1,7 @@
+**TAFC: Keeping it real: A lesson for Arteta? Plus: Griezmann set for Orlando switch**\
+`Today in TAFC: The fallout from Kepa's blunder in the Carabao Cup final — and what happens when a big club is relegated...`\
+https://nytimes.com/athletic/7140187/2026/03/23/arsenal-manchester-city-kepa/
+
 **The Lakers are better off with this version of LeBron James**\
 `James has defied doubters again by finding ways to fit in with Luka Dončić and Austin Reaves, and the Lakers are rolling.`\
 https://nytimes.com/athletic/7140171/2026/03/23/lebron-james-lakers-turnaround-column/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7139817/2026/03/23/ohio-state-women-new-roster-swee
 **Browns coach Todd Monken's strong suit is blunt honesty without the politics**\
 `Monken's authenticity and commitment are strengths, said the Southern Miss AD who hired him for his only other head-coaching job in 2013.`\
 https://nytimes.com/athletic/7132169/2026/03/23/todd-monken-browns-coach-blunt-style/
-
-**Wild insider: Behind Filip Gustavsson’s bizarre in-game vanishing act, plus more**\
-`Brock Faber honors his sister, plus what we're hearing about the Wild's potential college free agent pursuits. `\
-https://nytimes.com/athletic/7138784/2026/03/23/wild-filip-gustavsson-john-hynes-brock-faber/
 

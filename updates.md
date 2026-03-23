@@ -1,3 +1,7 @@
+**TAFC: Keeping it real: A lesson for Arteta? Plus: Griezmann set for Orlando switch**\
+`Today in TAFC: The fallout from Kepa's blunder in the Carabao Cup final — and what happens when a big club is relegated...`\
+https://nytimes.com/athletic/7140187/2026/03/23/arsenal-manchester-city-kepa/
+
 **The Lakers are better off with this version of LeBron James**\
 `James has defied doubters again by finding ways to fit in with Luka Dončić and Austin Reaves, and the Lakers are rolling.`\
 https://nytimes.com/athletic/7140171/2026/03/23/lebron-james-lakers-turnaround-column/
