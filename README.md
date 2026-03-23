@@ -1,3 +1,7 @@
+**As Trump’s Deadline Nears, Iranians Dread the Darkness**\
+`With President Trump threatening to strike Iranian power plants, some war-weary civilians are panicking over a possible new debacle.`\
+https://nytimes.com/2026/03/22/world/middleeast/iran-trump-power-plants.html
+
 **Share Your Thoughts on Our Media Literacy Newsletter**\
 `Are you an educator interested in adding journalism lessons to your curriculum? We want to hear from you.`\
 https://nytimes.com/2026/03/22/learning/media-literacy-newsletter-school-of-new-york-times.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7139480/2026/03/22/isis-sio-knockout-coma-jocelyn-c
 **With Anton Frondell on the way, Ryan Greene and Nick Lardis look to keep top-six spots**\
 `Greene has exceeded his own expectations this season, but he might be bound for a less prominent role in the homestretch of the season.`\
 https://nytimes.com/athletic/7139414/2026/03/22/blackhawks-anton-frondell-ryan-greene-nick-lardis/
-
-**St. John's, futile for so long, heads to Sweet 16 for first time since 1999**\
-`Dylan Darling, who hadn't make a single bucket through 40 minutes, sent St. John's to the Sweet 16 with a driving bucket at the buzzer. `\
-https://nytimes.com/athletic/7139524/2026/03/22/st-johns-kansas-rick-pitino-dylan-darling/
 
