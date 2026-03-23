@@ -1,3 +1,7 @@
+**Iowa knocks out defending champion Florida on Alvaro Folgueiras' game-winning 3**\
+`The ninth-seeded Hawkeyes made their first Sweet 16 since 1999 under first-year coach Ben McCollum.`\
+https://nytimes.com/athletic/7139730/2026/03/22/iowa-florida-score-result-alvaro-folgueiras-winner/
+
 **Kansas' shrewd late-game foul strategy ends up unsuccessful vs. St. John's**\
 `Kansas had several fouls to give in the final moments — and used them all.`\
 https://nytimes.com/athletic/7139621/2026/03/22/kansas-st-johns-fouls-to-give/

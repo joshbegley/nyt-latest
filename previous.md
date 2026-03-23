@@ -1,3 +1,7 @@
+**Iowa knocks out defending champion Florida on Alvaro Folgueiras' game-winning 3**\
+`The ninth-seeded Hawkeyes made their first Sweet 16 since 1999 under first-year coach Ben McCollum.`\
+https://nytimes.com/athletic/7139730/2026/03/22/iowa-florida-score-result-alvaro-folgueiras-winner/
+
 **Kentucky didn't get money's worth from $22M roster. It's on Mark Pope to get more**\
 `The honeymoon is over. And soon Pope will be held to his words that at Kentucky the expectations are to have the best of everything.`\
 https://nytimes.com/athletic/7139599/2026/03/22/kentucky-basketball-ncaa-tournament-money-roster/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7139524/2026/03/22/st-johns-kansas-rick-pitino-dyla
 **Jeff Webb, Who Built a Competitive Cheerleading Empire, Dies at 76**\
 `Through Varsity Spirit, the company he established in 1974, he turned cheerleading into a multibillion-dollar juggernaut and exerted control over almost every aspect of it.`\
 https://nytimes.com/2026/03/22/business/jeff-webb-dead-cheerleading.html
-
-**Pro-Palestinian Activists Rally in Support of Freed Columbia Protester**\
-`After speaking alongside city officials in Paterson, N.J., Leqaa Kordia, who was recently released after a year in ICE detention, led a crowd in chants of “globalize the intifada.”`\
-https://nytimes.com/2026/03/22/nyregion/columbia-protester-palestinian-ice-detention-new-jersey.html
 
