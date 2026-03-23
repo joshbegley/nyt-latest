@@ -1,3 +1,7 @@
+**Padres' Nick Pivetta earns first Opening Day start**\
+`Pivetta, who logged a career-best 2.87 ERA last season, will duel Detroit Tigers ace Tarik Skubal at Petco Park on Thursday.`\
+https://nytimes.com/athletic/7141371/2026/03/23/padres-nick-pivetta-opening-day-starter/
+
 **Pentagon Officials Weigh Deployment of Airborne Troops to Iran**\
 `The combat forces would come from a brigade of about 3,000 soldiers capable of deploying anywhere in the world within 18 hours.`\
 https://nytimes.com/2026/03/23/us/politics/us-airborne-troops-iran.html

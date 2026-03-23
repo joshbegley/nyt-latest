@@ -1,3 +1,7 @@
+**Padres' Nick Pivetta earns first Opening Day start**\
+`Pivetta, who logged a career-best 2.87 ERA last season, will duel Detroit Tigers ace Tarik Skubal at Petco Park on Thursday.`\
+https://nytimes.com/athletic/7141371/2026/03/23/padres-nick-pivetta-opening-day-starter/
+
 **Pentagon Officials Weigh Deployment of Airborne Troops to Iran**\
 `The combat forces would come from a brigade of about 3,000 soldiers capable of deploying anywhere in the world within 18 hours.`\
 https://nytimes.com/2026/03/23/us/politics/us-airborne-troops-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7141322/2026/03/23/usc-vs-south-carolina-stream-how
 **Brian Doherty, 57, Dies; Chronicled Libertarians and Other Outsiders**\
 `Fascinated by the fringes, he wrote a definitive history of libertarianism and books about underground comics and the Burning Man festival.`\
 https://nytimes.com/2026/03/23/us/politics/brian-doherty-dead.html
-
-**Trump Delays Energy Strikes, but Iran’s Infrastructure is Already Battered**\
-`U.S. and Israeli attacks on power plants and other civilian infrastructure risk escalating the conflict across the region, and angering Iranians who oppose the government.`\
-https://nytimes.com/2026/03/23/world/middleeast/trump-iran-battered-infrastructure.html
 
