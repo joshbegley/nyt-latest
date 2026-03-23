@@ -1,3 +1,7 @@
+**Kentucky didn't get money's worth from $22M roster. It's on Mark Pope to get more**\
+`The honeymoon is over. And soon Pope will be held to his words that at Kentucky the expectations are to have the best of everything.`\
+https://nytimes.com/athletic/7139599/2026/03/22/kentucky-basketball-ncaa-tournament-money-roster/
+
 **Kansas' shrewd late game foul strategy ends up unsuccessful**\
 `Kansas had several fouls to give in the final moments — and used them all.`\
 https://nytimes.com/athletic/7139621/2026/03/22/kansas-st-johns-fouls-to-give/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/22/business/jeff-webb-dead-cheerleading.html
 **Pro-Palestinian Activists Rally in Support of Freed Columbia Protester**\
 `After speaking alongside city officials in Paterson, N.J., Leqaa Kordia, who was recently released after a year in ICE detention, led a crowd in chants of “globalize the intifada.”`\
 https://nytimes.com/2026/03/22/nyregion/columbia-protester-palestinian-ice-detention-new-jersey.html
-
-**Jessi Pierce will be remembered for the heart, humor and zest she had for the Wild — and life**\
-`Minnesota and the hockey world were devastated Sunday by the tragic news that Jessi and her three children died in a house fire.`\
-https://nytimes.com/athletic/7139307/2026/03/22/jessi-pierce-wild-media/
 

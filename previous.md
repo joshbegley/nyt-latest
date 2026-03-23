@@ -1,3 +1,7 @@
+**Kansas' shrewd late game foul strategy ends up unsuccessful**\
+`Kansas had several fouls to give in the final moments — and used them all.`\
+https://nytimes.com/athletic/7139621/2026/03/22/kansas-st-johns-fouls-to-give/
+
 **Hurricanes humble sluggish Penguins as defensive issues escalate**\
 `The Penguins endured a rough day against Carolina resulting in a 5-1 loss.`\
 https://nytimes.com/athletic/7139299/2026/03/22/penguins-lose-hurricanes-defensive-issues/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/22/nyregion/columbia-protester-palestinian-ice-deten
 **Jessi Pierce will be remembered for the heart, humor and zest she had for the Wild — and life**\
 `Minnesota and the hockey world were devastated Sunday by the tragic news that Jessi and her three children died in a house fire.`\
 https://nytimes.com/athletic/7139307/2026/03/22/jessi-pierce-wild-media/
-
-**Tyler Reddick's historic NASCAR start continues with win at Darlington**\
-`Reddick, who made history by winning the first three races of the NASCAR season, made it four out of six Sunday at Darlington.`\
-https://nytimes.com/athletic/7139479/2026/03/22/tyler-reddick-nascar-darlington-win-rfk-racing/
 

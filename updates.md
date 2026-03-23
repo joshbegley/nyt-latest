@@ -1,3 +1,7 @@
+**Kansas' shrewd late game foul strategy ends up unsuccessful**\
+`Kansas had several fouls to give in the final moments — and used them all.`\
+https://nytimes.com/athletic/7139621/2026/03/22/kansas-st-johns-fouls-to-give/
+
 **Hurricanes humble sluggish Penguins as defensive issues escalate**\
 `The Penguins endured a rough day against Carolina resulting in a 5-1 loss.`\
 https://nytimes.com/athletic/7139299/2026/03/22/penguins-lose-hurricanes-defensive-issues/
