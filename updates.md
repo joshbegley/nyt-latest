@@ -1,3 +1,7 @@
+**Hurricanes humble sluggish Penguins as defensive issues escalate**\
+`The Penguins endured a rough day against Carolina resulting in a 5-1 loss.`\
+https://nytimes.com/athletic/7139299/2026/03/22/penguins-lose-hurricanes-defensive-issues/
+
 **What we’re hearing about the Cubs: Chicago is still looking to make moves**\
 `The Cubs went into Sunday with 38 players still on their spring roster, a sign of their deliberate, opportunistic approach.`\
 https://nytimes.com/athletic/7139436/2026/03/22/cubs-roster-decisions-seiya-suzuki-jed-hoyer-opening-day/
