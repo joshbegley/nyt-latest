@@ -1,3 +1,11 @@
+**Bundesliga Briefing: Kehl and Kwasniok depart as Kane, Olise and Bayern have history in their sights**\
+`The German top flight has seen change and continuity with some high-profile departures - and its leaders are on course for a special season`\
+https://nytimes.com/athletic/7140358/2026/03/23/bundesliga-briefing-kehl-kwasniok-kane-olise-bayern/
+
+**Lowetide: Why this season is one of the most disappointing in Oilers history**\
+`The Oilers appear to have accepted losing and are in trouble as a playoff hopeful.`\
+https://nytimes.com/athletic/7137760/2026/03/23/edmonton-oilers-connor-mcdavid-quotes-stats-standings-2026/
+
 **Sweet 16 upset odds for Texas Longhorns, Iowa Hawkeyes**\
 `In Texas and Iowa, "Cinderella" has a new look. But she can still slay.`\
 https://nytimes.com/athletic/7140509/2026/03/23/march-madness-upset-odds-texas-iowa-bracket-breakers/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/23/us/elections/mail-ballots-2000-election.html
 **Britain’s ‘Saturday Night Live’ as Seen From Both Sides of the Atlantic**\
 `In a country with little knowledge of the American TV institution, the show landed in a new light. An American and a British critic found plenty to enjoy.`\
 https://nytimes.com/2026/03/23/arts/television/saturday-night-live-uk-review.html
-
-**Jaxon Smith-Njigba, Seahawks agree to 4-year, $168.6M extension: Sources**\
-`The 2025 Offensive Player of the Year is set to have the highest annual salary among NFL receivers.`\
-https://nytimes.com/athletic/7140621/2026/03/23/jaxon-smith-njigba-contract-extension-seahawks-nfl-news/
-
-**Eagles depth chart analysis: Major changes in secondary; more to come on O-line, edge**\
-`The Eagles made several moves to reshape their depth chart, but more activity is expected.`\
-https://nytimes.com/athletic/7138879/2026/03/23/eagles-depth-chart-analysis/
 
