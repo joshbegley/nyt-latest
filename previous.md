@@ -1,3 +1,11 @@
+**A preview of The Athletic’s live coverage this week**\
+`The Athletic's live coverage this week is headlined by March Madness, World Cup qualifying playoffs and the start of the 2026 MLB season.`\
+https://nytimes.com/athletic/7140289/2026/03/23/march-madness-world-cup-playoffs-mlb/
+
+**How to watch Virginia vs. Iowa women's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Virginia Cavaliers play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7140364/2026/03/23/virginia-vs-iowa-stream-how-to-watch-march-23/
+
 **Deadly Plane Collision at LaGuardia Airport: What We Know**\
 `Two pilots were killed and dozens of others were injured when a regional jet collided with a fire truck on the runway.`\
 https://nytimes.com/2026/03/23/nyregion/laguardia-airport-air-canada-plane-crash.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7136381/2026/03/23/college-football-recruiting-neff
 **Can the Twins win in 2026? Expectations plummet along with payroll, fan morale**\
 `It's been a decade since projection systems and odds makers were this low on the Twins, but 2015 and 2017 show the unexpected is possible.`\
 https://nytimes.com/athletic/7130950/2026/03/23/minnesota-twins-expectations-payroll-fan-morale/
-
-**Canadiens weekly notebook: Kaiden Guhle's videos, friendship circle, Nick Suzuki's speed**\
-`Also in this week's edition of the notebook, how Alexandre Carrier is benefitting from how the Canadiens' defence pairs have stabilized.  `\
-https://nytimes.com/athletic/7140015/2026/03/23/canadiens-kaiden-guhle-videos-nick-suzuki-speed/
-
-**Ohio State's new roster posed questions. Now it might be the answer for reaching Sweet 16**\
-`Ohio State will need to beat Notre Dame to advance past the second round for the first time in three seasons.`\
-https://nytimes.com/athletic/7139817/2026/03/23/ohio-state-women-new-roster-sweet-16/
 

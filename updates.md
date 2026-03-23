@@ -1,3 +1,11 @@
+**A preview of The Athletic’s live coverage this week**\
+`The Athletic's live coverage this week is headlined by March Madness, World Cup qualifying playoffs and the start of the 2026 MLB season.`\
+https://nytimes.com/athletic/7140289/2026/03/23/march-madness-world-cup-playoffs-mlb/
+
+**How to watch Virginia vs. Iowa women's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Virginia Cavaliers play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7140364/2026/03/23/virginia-vs-iowa-stream-how-to-watch-march-23/
+
 **Deadly Plane Collision at LaGuardia Airport: What We Know**\
 `Two pilots were killed and dozens of others were injured when a regional jet collided with a fire truck on the runway.`\
 https://nytimes.com/2026/03/23/nyregion/laguardia-airport-air-canada-plane-crash.html
