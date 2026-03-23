@@ -1,3 +1,15 @@
+**Postmarks Are Good Enough for Taxes, Contracts and Court Filings. What About Ballots?**\
+`The appeals court that struck down a Mississippi law on mail-in ballots ruled that voting requires a different approach from other areas of the law.`\
+https://nytimes.com/2026/03/23/us/elections/postmark-court-filings.html
+
+**Florida loss shifts March Madness title odds, but Michigan, Duke still favored**\
+`Title odds are on the move as we enter the Sweet 16. See who the biggest risers and fallers are.`\
+https://nytimes.com/athletic/7140471/2026/03/23/2026-march-madness-title-odds-betting-favorites-michigan-duke-houston-purdue/
+
+**14 States’ Laws on Late-Arriving Mail Ballots Could Be Affected by a Supreme Court Case**\
+`The laws — and ballot grace periods — vary from state to state.`\
+https://nytimes.com/2026/03/23/us/elections/states-mail-ballots.html
+
 **Surprise rotations and clever passes: How Pep Guardiola got the better of Mikel Arteta at Wembley**\
 `At times in recent seasons it feels like Guardiola has strayed from his principles but this match showed what his sides are all about`\
 https://nytimes.com/athletic/7140347/2026/03/23/manchester-city-guardiola-tactics-carabao-cup-final-arsenal-arteta/
