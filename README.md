@@ -11,7 +11,7 @@ https://nytimes.com/live/2026/03/23/us/supreme-court-voting-late-ballots/these-a
 https://nytimes.com/live/2026/03/23/us/supreme-court-voting-late-ballots/heres-the-latest
 
 **Live Updates: Supreme Court to Hear Case on Mail-In Ballots**\
-`The justices’ decision could upend the way states handle ballots that are postmarked by Election Day but arrive later. President Trump has criticized mail-in voting.`\
+`The justices’ decision could upend the way states handle ballots that are postmarked by Election Day but arrive later. President Trump has called for restrictions on mail-in voting.`\
 https://nytimes.com/live/2026/03/23/us/supreme-court-voting-late-ballots
 
 **Man Utd's Mbeumo, Sesko withdraw from international duty**\
