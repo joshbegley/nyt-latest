@@ -1,3 +1,7 @@
+**How to watch Oklahoma State vs. UCLA women's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Oklahoma State Cowgirls play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7141644/2026/03/23/oklahoma-state-vs-ucla-stream-how-to-watch-march-23/
+
 **USMNT’s Pepi proposed Fulham transfer in doubt after talks with PSV break down**\
 `The USMNT forward travelled to London for a medical and negotiations with the Premier League side ahead of a proposed summer transfer.`\
 https://nytimes.com/athletic/7141506/2026/03/23/usmnt-pepi-psv-fulham-transfer-news/
