@@ -1,3 +1,13 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>There&#8217;s quite a bit going on these days. What&#8217;s on your mind?</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/7141519/2026/03/23/submit-a-question-for-stewart-mandels-college-football-mailbag-339/
+
+**Women's NCAA Tournament takeaways: Who's punching their tickets for the Sweet 16?**\
+`Louisville is back in the Sweet 16 for the 13th time under coach Jeff Walz.`\
+https://nytimes.com/athletic/7141496/2026/03/23/womens-ncaa-tournament-takeaways-second-round-sweet-16/
+
 **Mets prospect Carson Benge captures roster spot with eye-opening spring**\
 `Benge, the Mets' 2024 first-round pick, came into the season as MLB's No. 18 prospect. His strong spring landed him on the Mets' roster.`\
 https://nytimes.com/athletic/7141060/2026/03/23/mets-carson-benge-opening-day-roster-prospect/
@@ -19,7 +29,7 @@ https://nytimes.com/athletic/7135884/2026/03/23/nba-draft-prospects-ncaa-tournam
 https://nytimes.com/athletic/7141460/2026/03/23/masters-mailbag-submit-your-questions-for-golf-reporter-gabby-herzig/
 
 **Passenger Jet and Fire Truck Crash at LaGuardia Airport, Leaving 2 Dead**\
-`The two pilots of a Air Canada Express jet were killed after a collision with a Port Authority fire truck on Sunday at LaGuardia Airport in New York. Audio from the tower indicated that an air traffic controller may have been distracted by an earlier incident.`\
+`The two pilots of a Air Canada Express jet were killed after a collision with a Port Authority fire truck on Sunday at LaGuardia Airport in New York.`\
 https://nytimes.com/video/nyregion/100000010795871/laguardia-crash-air-canada-fire-truck.html
 
 **Bipartisan bill introduced to ban sports from prediction markets**\
@@ -29,12 +39,4 @@ https://nytimes.com/athletic/7141190/2026/03/23/bill-ban-sports-betting-predicti
 **Attack on Jewish Ambulance Service Being Investigated as Hate Crime**\
 `On Monday, four ambulances belonging to a Jewish nonprofit were set on fire. The police said that they were assessing a claim of a video claiming responsibility for the attack and were investigating the incident as an antisemitic hate crime.`\
 https://nytimes.com/video/world/europe/100000010796022/london-ambulance-arson-hate-crime.html
-
-**Antoine Griezmann, an Atletico Madrid legend whose MLS move with Orlando makes perfect sense**\
-`The 35-year-old French forward flew out to finalise a summer transfer on Sunday night, following a 3-2 defeat at Real Madrid`\
-https://nytimes.com/athletic/7141161/2026/03/23/griezmann-orlando-mls-transfer-atletico-madrid/
-
-**Padres' Nick Pivetta earns first Opening Day start**\
-`Pivetta, who logged a career-best 2.87 ERA last season, will duel Detroit Tigers ace Tarik Skubal at Petco Park on Thursday.`\
-https://nytimes.com/athletic/7141371/2026/03/23/padres-nick-pivetta-opening-day-starter/
 
