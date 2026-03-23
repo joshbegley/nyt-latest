@@ -1,3 +1,19 @@
+**Mets prospect Carson Benge captures roster spot with eye-opening spring**\
+`Benge, the Mets' 2024 first-round pick, came into the season as MLB's No. 18 prospect. His strong spring landed him on the Mets' roster.`\
+https://nytimes.com/athletic/7141060/2026/03/23/mets-carson-benge-opening-day-roster-prospect/
+
+**Red Wings send Sandin-Pellikka to AHL Grand Rapids**\
+`The Red Wings' 2023 first-round pick hadn't played since the arrival of Justin Faulk at the trade deadline. `\
+https://nytimes.com/athletic/7141357/2026/03/23/red-wings-axel-sandin-pellikka-grand-rapids/
+
+**Bill Cosby Loses Sex Assault Lawsuit and Faces a $19 Million Judgment**\
+`A California jury found that Mr. Cosby had abused Donna Motsinger in 1972 after inviting her to attend one of his comedy shows.`\
+https://nytimes.com/2026/03/23/arts/television/bill-cosby-verdict-lawsuit-donna-motsinger.html
+
+**What have Dybantsa, Peterson and more NBA Draft prospects shown in March Madness?**\
+`The first weekend of the NCAA Tournament has come and gone, and it was a loaded bracket of talent for NBA scouts to check out.`\
+https://nytimes.com/athletic/7135884/2026/03/23/nba-draft-prospects-ncaa-tournament-aj-dybantsa-darryn-peterson/
+
 **Masters mailbag: Submit your questions for golf reporter Gabby Herzig**\
 `<p>We are two weeks away from the sports world descending on Augusta, Georgia, for this year&#8217;s Masters tournament.`\
 https://nytimes.com/athletic/7141460/2026/03/23/masters-mailbag-submit-your-questions-for-golf-reporter-gabby-herzig/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7141161/2026/03/23/griezmann-orlando-mls-transfer-a
 **Padres' Nick Pivetta earns first Opening Day start**\
 `Pivetta, who logged a career-best 2.87 ERA last season, will duel Detroit Tigers ace Tarik Skubal at Petco Park on Thursday.`\
 https://nytimes.com/athletic/7141371/2026/03/23/padres-nick-pivetta-opening-day-starter/
-
-**Pentagon Officials Weigh Deployment of Airborne Troops for Iran War**\
-`The combat forces would come from a brigade of about 3,000 soldiers capable of deploying anywhere in the world within 18 hours.`\
-https://nytimes.com/2026/03/23/us/politics/us-airborne-troops-iran.html
-
-**Trump Delays Deadline for Strikes on Iranian Energy Infrastructure**\
-`President Trump said the U.S. would put off any attacks on Iranian energy infrastructure for five days, citing “very strong” talks with Iran toward ending the war. Iran disputed Mr. Trump’s claim that there had been progress made in negotiations.`\
-https://nytimes.com/video/world/middleeast/100000010796099/trump-iran-energy-strikes-talks.html
-
-**Passengers Braced for a Rough Landing Before Crash at LaGuardia**\
-`A flight attendant was ejected from the airplane, a passenger said, but the people onboard still managed to open an emergency door and evacuate themselves from the plane.`\
-https://nytimes.com/2026/03/23/nyregion/laguardia-plane-crash-victims.html
-
-**Trump Sets Up ‘Pax Silica’ Fund to Reduce Global Dependencies**\
-`Trump officials said on Monday that the war in Iran had emphasized the need to reduce vulnerabilities for energy and technology.`\
-https://nytimes.com/2026/03/23/business/economy/trump-pax-silica-fund.html
 

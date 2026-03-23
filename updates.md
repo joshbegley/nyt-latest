@@ -1,3 +1,19 @@
+**Mets prospect Carson Benge captures roster spot with eye-opening spring**\
+`Benge, the Mets' 2024 first-round pick, came into the season as MLB's No. 18 prospect. His strong spring landed him on the Mets' roster.`\
+https://nytimes.com/athletic/7141060/2026/03/23/mets-carson-benge-opening-day-roster-prospect/
+
+**Red Wings send Sandin-Pellikka to AHL Grand Rapids**\
+`The Red Wings' 2023 first-round pick hadn't played since the arrival of Justin Faulk at the trade deadline. `\
+https://nytimes.com/athletic/7141357/2026/03/23/red-wings-axel-sandin-pellikka-grand-rapids/
+
+**Bill Cosby Loses Sex Assault Lawsuit and Faces a $19 Million Judgment**\
+`A California jury found that Mr. Cosby had abused Donna Motsinger in 1972 after inviting her to attend one of his comedy shows.`\
+https://nytimes.com/2026/03/23/arts/television/bill-cosby-verdict-lawsuit-donna-motsinger.html
+
+**What have Dybantsa, Peterson and more NBA Draft prospects shown in March Madness?**\
+`The first weekend of the NCAA Tournament has come and gone, and it was a loaded bracket of talent for NBA scouts to check out.`\
+https://nytimes.com/athletic/7135884/2026/03/23/nba-draft-prospects-ncaa-tournament-aj-dybantsa-darryn-peterson/
+
 **Masters mailbag: Submit your questions for golf reporter Gabby Herzig**\
 `<p>We are two weeks away from the sports world descending on Augusta, Georgia, for this year&#8217;s Masters tournament.`\
 https://nytimes.com/athletic/7141460/2026/03/23/masters-mailbag-submit-your-questions-for-golf-reporter-gabby-herzig/
