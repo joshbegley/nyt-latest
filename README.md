@@ -1,40 +1,40 @@
-**Death by Paper**\
-`We examine a new innovation in drug smuggling.`\
-https://nytimes.com/2026/03/23/briefing/drug-soaked-paper.html
+**Why the Miami Open's tennis court on Hard Rock Stadium's football field has a rain problem**\
+`The temporary venue is a marvel of sports engineering. It is also vulnerable to weather.`\
+https://nytimes.com/athletic/7137171/2026/03/23/tennis-stadiums-roofs-rain-miami-hard-rock-stadium-nfl-dolphins/
 
-**UConn's ultimate winner is playing with nothing to lose. Look out, Sweet 16**\
-`Alex Karaban, the winningest player in Huskies men’s basketball history, is hell-bent on going for Dan Hurley's third national title.`\
-https://nytimes.com/athletic/7140227/2026/03/23/alex-karaban-uconn-ucla-ncaa-tournament/
+**After ‘Baby Reindeer,’ Richard Gadd Confronts Male Sexual Repression**\
+`The writer and actor Richard Gadd found unexpected success by sharing his trauma. Now he’s exploring male pain in a new way.`\
+https://nytimes.com/video/podcasts/100000010791926/after-baby-reindeer-richard-gadd-confronts-male-sexual-repression.html
 
-**NBA Rookie Rankings: Kon Knueppel, Cooper Flagg are staging an epic duel**\
-`No. 2 pick Dylan Harper looks like a future All-Star, while the Wizards might have found a surprise gem on the perimeter.`\
-https://nytimes.com/athletic/7130293/2026/03/23/nba-rookie-rankings-knueppel-flagg-harper/
+**Steven Kwan too focused on center field to worry about uncertain future with Guardians**\
+`"Kwan's going to become a Gold Glove-caliber center fielder," manager Stephen Vogt said. "We know that."`\
+https://nytimes.com/athletic/7139241/2026/03/23/steven-kwan-center-field-future-guardians/
 
-**What's next for Red Sox's pitching development program: The new 'Big Three'**\
-`Inside what the Red Sox are doing to push three promising 2025 draftees down the same path as Payton Tolle and Connelly Early.`\
-https://nytimes.com/athletic/7138430/2026/03/23/boston-red-sox-pitching-development-big-three-prospects/
+**He's the hottest recruit in the nation — and he's never played a down of football**\
+`Just a few months ago, no college coach knew that Neff Giwa existed. Now, he has offers from Miami, South Carolina, Tennessee and others. `\
+https://nytimes.com/athletic/7136381/2026/03/23/college-football-recruiting-neff-giwa-rugby-ireland/
 
-**Inside Real Madrid: Alexander-Arnold's apology, Bellingham returns, and another big scalp for Arbeloa**\
-`Reaction, analysis and the latest news around the Spanish giants, who beat city rivals Atletico Madrid 3-2 in La Liga on Sunday night`\
-https://nytimes.com/athletic/7140167/2026/03/23/real-madrid-atletico-alexander-arnold-bellingham-arbeloa/
+**Can the Twins win in 2026? Expectations plummet along with payroll, fan morale**\
+`It's been a decade since projection systems and odds makers were this low on the Twins, but 2015 and 2017 show the unexpected is possible.`\
+https://nytimes.com/athletic/7130950/2026/03/23/minnesota-twins-expectations-payroll-fan-morale/
 
-**The Pulse: A No. 1 seed falls**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7138494/2026/03/23/ncaa-sweet-16-the-pulse/
+**Canadiens weekly notebook: Kaiden Guhle's videos, friendship circle, Nick Suzuki's speed**\
+`Also in this week's edition of the notebook, how Alexandre Carrier is benefitting from how the Canadiens' defence pairs have stabilized.  `\
+https://nytimes.com/athletic/7140015/2026/03/23/canadiens-kaiden-guhle-videos-nick-suzuki-speed/
 
-**This Week in Mets: A good start is imperative and the early schedule looks cushy**\
-`Marcus Semien and other fresh arrivals will learn that a new Met’s first month defines the narrative around him for longer than it should.`\
-https://nytimes.com/athletic/7139833/2026/03/23/mets-opening-day-carlos-mendoza-schedule/
+**Ohio State's new roster posed questions. Now it might be the answer for reaching Sweet 16**\
+`Ohio State will need to beat Notre Dame to advance past the second round for the first time in three seasons.`\
+https://nytimes.com/athletic/7139817/2026/03/23/ohio-state-women-new-roster-sweet-16/
 
-**Iranians Respond to Trump’s Threats to Hit Iran’s Power Plants**\
-`Some Iranians expressed anxiety while others remained skeptical after President Trump told Iran to open the Strait of Hormuz or face attacks on its power grid.`\
-https://nytimes.com/video/video/100000010795414/iran-trump-power-plants.html
+**Browns coach Todd Monken's strong suit is blunt honesty without the politics**\
+`Monken's authenticity and commitment are strengths, said the Southern Miss AD who hired him for his only other head-coaching job in 2013.`\
+https://nytimes.com/athletic/7132169/2026/03/23/todd-monken-browns-coach-blunt-style/
 
-**Fantasy baseball 2026: National League preview and predictions**\
-`Dalton Del Don gets out his crystal ball to look into what the future beholds in the National League in 2026.`\
-https://nytimes.com/athletic/7131311/2026/03/23/fantasy-baseball-national-league-nl-preview-predictions/
+**Wild insider: Behind Filip Gustavsson’s bizarre in-game vanishing act, plus more**\
+`Brock Faber honors his sister, plus what we're hearing about the Wild's potential college free agent pursuits. `\
+https://nytimes.com/athletic/7138784/2026/03/23/wild-filip-gustavsson-john-hynes-brock-faber/
 
-**How Kenneth Walker III will help Chiefs offense — from a coach's perspective**\
-`Walker, the Chiefs' new starting running back, showed these strengths — and also one weakness — with his film from Super Bowl LX.`\
-https://nytimes.com/athletic/7128491/2026/03/23/chiefs-kenneth-walker-iii-coach-perspective/
+**The NCAA Tournament has been better, but that doesn’t mean anything else beats it**\
+`Not every result has to be a referendum on the soul of this event now.`\
+https://nytimes.com/athletic/7139776/2026/03/23/ncaa-tournament-upsets-cinderella/
 
