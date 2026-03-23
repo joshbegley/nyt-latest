@@ -1,3 +1,7 @@
+**Supreme Court Seems Poised to Reject Late-Arriving Mail-In Ballots**\
+`Also, audio suggests confusion before deadly LaGuardia crash. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2026/03/23/briefing/supreme-court-mail-in-ballots-laguardia-crash.html
+
 **No. 10 seed Virginia stuns Iowa in double overtime, advances to Sweet 16**\
 `Virginia is the first No. 10 seed to advance to the Sweet 16 in four years.`\
 https://nytimes.com/athletic/7141889/2026/03/23/ncaa-tournament-virginia-iowa-upset/
