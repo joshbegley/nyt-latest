@@ -14,8 +14,8 @@ https://nytimes.com/athletic/7140144/2026/03/23/saliba-france-squad-maxence-lacr
 `Emergency crews swarmed a damaged Air Canada Express plane with a sheared off nose at LaGuardia Airport.`\
 https://nytimes.com/video/us/100000010795471/laguardia-plane-crash-air-canada.html
 
-**Live Updates: LaGuardia Shut Down After Jet Collides With Vehicle**\
-`The airport was closed early Monday as emergency crews swarmed a damaged Air Canada Express plane on a runway. There was no immediate confirmation of deaths or injuries.`\
+**Live Updates: 2 Dead After Jet Collides With Vehicle at LaGuardia Airport**\
+`The airport was closed early Monday as emergency crews swarmed a damaged Air Canada Express plane on a runway. The two pilots of the plane were killed, officials said.`\
 https://nytimes.com/live/2026/03/23/nyregion/laguardia-airport-plane-crash-truck
 
 **Jewish and Muslim People Face a Wave of Hate. Can Schools Turn the Tide?**\

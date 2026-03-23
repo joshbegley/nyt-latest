@@ -1,3 +1,7 @@
+**Live Updates: LaGuardia Shut Down After Jet Collides With Vehicle**\
+`The airport was closed early Monday as emergency crews swarmed a damaged Air Canada Express plane on a runway. There was no immediate confirmation of deaths or injuries.`\
+https://nytimes.com/live/2026/03/23/nyregion/laguardia-airport-plane-crash-truck
+
 **W.N.B.A. Players Getting Paid, N.B.A. Expanding & the Weight of the 1-Seed**\
 `Plus, which Western Conference team is getting shipped East?`\
 https://nytimes.com/2026/03/23/us/wnba-players-pay-nba-expanding-weight-of-the-1-seed.html
