@@ -1,4 +1,8 @@
 **Suspect in Chicago Student’s Killing Was in U.S. Illegally, D.H.S. Says**\
+`Sheridan Gorman, 18, was killed last week near Loyola University Chicago. The Trump administration has sought to highlight crimes committed by undocumented people in its deportation campaign.`\
+https://nytimes.com/2026/03/22/us/loyola-student-death-arrest.html
+
+**Suspect in Chicago Student’s Killing Was in U.S. Illegally, D.H.S. Says**\
 `Sheridan Gorman, 18, was killed last week near Loyola University Chicago. The Trump administration said a man charged with murder in the case was in the country without permission.`\
 https://nytimes.com/2026/03/22/us/loyola-student-death-arrest.html
 
