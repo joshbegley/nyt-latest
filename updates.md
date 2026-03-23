@@ -1,3 +1,11 @@
+**NBA Power Rankings: Lakers, Cavs, Nuggets inch closer to contenders tier**\
+`We're done with trades and two-way contracts. How has your favorite team changed since October?`\
+https://nytimes.com/athletic/7140376/2026/03/23/nba-power-rankings-lakers-nuggets-cavs/
+
+**What’s It Like to Be Back in Print After 20 Years? A Bit Odd.**\
+`Nancy Lemann published her first novel at 28. Then came “the doom.” Now she’s back in the spotlight, and not exactly comfortable with it.`\
+https://nytimes.com/2026/03/23/style/nancy-lemann-lives-of-the-saints-nyrb.html
+
 **The Windup: NL Central preview, you're up**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/7140933/2026/03/23/national-league-central-preview-the-windup/

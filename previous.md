@@ -1,3 +1,11 @@
+**NBA Power Rankings: Lakers, Cavs, Nuggets inch closer to contenders tier**\
+`We're done with trades and two-way contracts. How has your favorite team changed since October?`\
+https://nytimes.com/athletic/7140376/2026/03/23/nba-power-rankings-lakers-nuggets-cavs/
+
+**What’s It Like to Be Back in Print After 20 Years? A Bit Odd.**\
+`Nancy Lemann published her first novel at 28. Then came “the doom.” Now she’s back in the spotlight, and not exactly comfortable with it.`\
+https://nytimes.com/2026/03/23/style/nancy-lemann-lives-of-the-saints-nyrb.html
+
 **The Windup: NL Central preview, you're up**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/7140933/2026/03/23/national-league-central-preview-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7140917/2026/03/23/lakers-vs-pistons-stream-how-to-
 **How to watch Thunder vs. 76ers: Time, TV, streaming**\
 `Find out how to watch the Oklahoma City Thunder play the Philadelphia 76ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7140915/2026/03/23/thunder-vs-76ers-stream-how-to-watch-march-23/
-
-**These Lifelike Patients Bleed and Cry (but Never Die)**\
-`Medical manikns help health care workers learn how to handle fast-changing and complex scenarios.`\
-https://nytimes.com/2026/03/23/well/medical-manikins.html
-
-**Kick Off Your Week With Coconut Curry Noodles**\
-`This gloriously fragrant, saucy meal is built on pantry staples (and that bag of shrimp in your freezer).`\
-https://nytimes.com/2026/03/23/dining/kick-off-your-week-with-coconut-curry-noodles.html
 
