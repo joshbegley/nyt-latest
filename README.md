@@ -1,3 +1,11 @@
+**Trump Says U.S. Is Negotiating End to War, but Iranians Push Back**\
+`“Very, very strong talks,” President Trump claimed. Fake news, replied an Iranian parliamentary leader.`\
+https://nytimes.com/2026/03/23/world/middleeast/iran-war-trump.html
+
+**It’s a Chaotic Moment in America. That’s Not What Republicans Need.**\
+`A national mood of unease and anxiety ahead of major elections is rarely good for the party in power.`\
+https://nytimes.com/2026/03/23/us/politics/republicans-trump-midterms.html
+
 **Iran Negotiations — or Not?**\
 `President Trump’s shifting statements don’t necessarily signal an end in sight to the war, but they do buy him some time.`\
 https://nytimes.com/2026/03/23/world/us-iran-talks-denmark-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/23/travel/ice-agents-tsa-airports.html
 **Did Chappell Roan’s Security Make a Young Girl Cry?**\
 `The singer has denied the allegations of the encounter, which took place in Brazil and had kicked up hot debate online.`\
 https://nytimes.com/2026/03/23/style/chappell-roan-security-guard-brazil-jorginho.html
-
-**Drew Fortescue enjoying comforts of home while beginning his Rangers journey**\
-`Fortescue’s junior season at Boston College ended Friday with a 4-3 overtime loss to UConn in the Hockey East semifinals`\
-https://nytimes.com/athletic/7141389/2026/03/23/rangers-drew-fortescue-pro-debut-close-to-home/
-
-**Tracking Wait Times at Major U.S. Airports**\
-`Travelers are facing long lines at airport security as the partial government shutdown has strained T.S.A. staffing. The New York Times is tracking the latest available wait times across the country.`\
-https://nytimes.com/interactive/2026/us/tsa-wait-times-us-airports.html
 
