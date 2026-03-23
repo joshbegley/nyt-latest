@@ -1,3 +1,7 @@
+**The Lakers are better off with this version of LeBron James**\
+`James has defied doubters again by finding ways to fit in with Luka Dončić and Austin Reaves, and the Lakers are rolling.`\
+https://nytimes.com/athletic/7140171/2026/03/23/lebron-james-lakers-turnaround-column/
+
 **Why the Miami Open's tennis court on Hard Rock Stadium's football field has a rain problem**\
 `The temporary venue is a marvel of sports engineering. It is also vulnerable to weather.`\
 https://nytimes.com/athletic/7137171/2026/03/23/tennis-stadiums-roofs-rain-miami-hard-rock-stadium-nfl-dolphins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7132169/2026/03/23/todd-monken-browns-coach-blunt-s
 **Wild insider: Behind Filip Gustavsson’s bizarre in-game vanishing act, plus more**\
 `Brock Faber honors his sister, plus what we're hearing about the Wild's potential college free agent pursuits. `\
 https://nytimes.com/athletic/7138784/2026/03/23/wild-filip-gustavsson-john-hynes-brock-faber/
-
-**The NCAA Tournament has been better, but that doesn’t mean anything else beats it**\
-`Not every result has to be a referendum on the soul of this event now.`\
-https://nytimes.com/athletic/7139776/2026/03/23/ncaa-tournament-upsets-cinderella/
 
