@@ -1,3 +1,7 @@
+**Live Updates: LaGuardia Shut Down After Plane Collides With Vehicle**\
+`The airport was closed early Monday as emergency crews swarmed a damaged Air Canada Express jet on a runway. It had taken off from Montreal.`\
+https://nytimes.com/live/2026/03/23/nyregion/laguardia-airport-plane-crash-truck
+
 **Jewish and Muslim People Face a Wave of Hate. Can Schools Turn the Tide?**\
 `New York City is rolling out lessons on Jewish and Muslim American history. Too often, some leaders say, what students know comes from TikTok and social media.`\
 https://nytimes.com/2026/03/23/nyregion/nyc-schools-jewish-muslim-history-lessons.html
@@ -26,15 +30,11 @@ https://nytimes.com/2026/03/23/learning/word-of-the-day-acclimate.html
 `The challenge for Arsenal is to ensure their resolve is stiffened rather than undermined by the setback of losing the Carabao Cup final`\
 https://nytimes.com/athletic/7139943/2026/03/23/arsenal-carabao-final/
 
-**Flights Are Halted at LaGuardia as New York Fire Department Responds to Incident**\
+**Here’s the latest.**\
 `A ground stop was in effect early Monday as the Fire Department said it was responding to a runway incident. A New York Times journalist saw an Air Canada plane on the runway with a sheared-off nose.`\
 https://nytimes.com/2026/03/23/nyregion/laguardia-groundstop-flights.html
 
 **Aston Villa and their left-sided scheming**\
 `Emery knew West Ham was an opportunity for Villa to pull clear from their Champions League rivals - this is how they did it`\
 https://nytimes.com/athletic/7138403/2026/03/23/aston-villa-left-side-emery/
-
-**Vitor Pereira has the players and fans on side - it might just keep Nottingham Forest up**\
-`The new manager has fostered a sense of unity and there is now a renewed sense of positivity at the club following two impressive results`\
-https://nytimes.com/athletic/7138632/2026/03/23/nottingham-forest-premier-league-relegation-pereira/
 

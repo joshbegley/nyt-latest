@@ -1,3 +1,11 @@
+**Live Updates: LaGuardia Shut Down After Plane Collides With Vehicle**\
+`The airport was closed early Monday as emergency crews swarmed a damaged Air Canada Express jet on a runway. It had taken off from Montreal.`\
+https://nytimes.com/live/2026/03/23/nyregion/laguardia-airport-plane-crash-truck
+
+**Here’s the latest.**\
+`A ground stop was in effect early Monday as the Fire Department said it was responding to a runway incident. A New York Times journalist saw an Air Canada plane on the runway with a sheared-off nose.`\
+https://nytimes.com/2026/03/23/nyregion/laguardia-groundstop-flights.html
+
 **Jewish and Muslim People Face a Wave of Hate. Can Schools Turn the Tide?**\
 `New York City is rolling out lessons on Jewish and Muslim American history. Too often, some leaders say, what students know comes from TikTok and social media.`\
 https://nytimes.com/2026/03/23/nyregion/nyc-schools-jewish-muslim-history-lessons.html
