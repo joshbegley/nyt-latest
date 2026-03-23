@@ -1,3 +1,15 @@
+**FPL Gameweek 31 review: Own Chelsea or Liverpool players? Keep calm and carry on**\
+`The plan is simple: do nothing. Wait for the outcomes of the FA Cup quarter-finals and attack the schedule with a clear and informed plan`\
+https://nytimes.com/athletic/7138870/2026/03/23/fantasy-premier-league-gameweek-31-review-chelsea-liverpool/
+
+**LaGuardia Airport is a major U.S. travel hub.**\
+`One of three major airports in the New York City area, LaGuardia operates about 900 flights a day, most of them domestic.`\
+https://nytimes.com/live/2026/03/23/nyregion/laguardia-airport-plane-crash-truck/laguardia-airport-is-a-major-us-travel-hub
+
+**Inside Newcastle Q&A: Chris Waugh answers your questions**\
+`Post your questions to our Newcastle writer Chris Waugh, who will endeavour to answer as many as possible`\
+https://nytimes.com/athletic/7140176/2026/03/23/inside-newcastle-qa-howe-derby-defeat/
+
 **Is the Knicks’ bench better equipped for a deep playoff run in 2026?**\
 `How much will the Knicks rely on their bench in the postseason? They have more options this season than they did last season.`\
 https://nytimes.com/athletic/7130834/2026/03/23/knicks-depth-chart-bench-roster-2026-nba-playoffs/

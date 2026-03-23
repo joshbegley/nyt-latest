@@ -1,3 +1,15 @@
+**FPL Gameweek 31 review: Own Chelsea or Liverpool players? Keep calm and carry on**\
+`The plan is simple: do nothing. Wait for the outcomes of the FA Cup quarter-finals and attack the schedule with a clear and informed plan`\
+https://nytimes.com/athletic/7138870/2026/03/23/fantasy-premier-league-gameweek-31-review-chelsea-liverpool/
+
+**LaGuardia Airport is a major U.S. travel hub.**\
+`One of three major airports in the New York City area, LaGuardia operates about 900 flights a day, most of them domestic.`\
+https://nytimes.com/live/2026/03/23/nyregion/laguardia-airport-plane-crash-truck/laguardia-airport-is-a-major-us-travel-hub
+
+**Inside Newcastle Q&A: Chris Waugh answers your questions**\
+`Post your questions to our Newcastle writer Chris Waugh, who will endeavour to answer as many as possible`\
+https://nytimes.com/athletic/7140176/2026/03/23/inside-newcastle-qa-howe-derby-defeat/
+
 **Is the Knicks’ bench better equipped for a deep playoff run in 2026?**\
 `How much will the Knicks rely on their bench in the postseason? They have more options this season than they did last season.`\
 https://nytimes.com/athletic/7130834/2026/03/23/knicks-depth-chart-bench-roster-2026-nba-playoffs/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/23/business/dealbook/trump-iran-energy-attacks.html
 **The often dour Timberwolves needed a injection of fun. Enter Bones Hyland**\
 `"The way Bones is playing right now, it's really important we keep him in this group when Ant comes back," coach Chris Finch said.`\
 https://nytimes.com/athletic/7139768/2026/03/23/bones-hyland-timberwolves-fun-celtics/
-
-**A preview of The Athletic’s live coverage this week**\
-`The Athletic's live coverage this week is headlined by March Madness, World Cup qualifying playoffs and the start of the 2026 MLB season.`\
-https://nytimes.com/athletic/7140289/2026/03/23/march-madness-world-cup-playoffs-mlb/
-
-**How to watch Virginia vs. Iowa women's basketball: Second Round Time, TV, streaming**\
-`Find out how to watch the Virginia Cavaliers play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7140364/2026/03/23/virginia-vs-iowa-stream-how-to-watch-march-23/
-
-**Deadly Plane Collision at LaGuardia Airport: What We Know**\
-`Two pilots were killed and dozens of others were injured when a regional jet collided with a fire truck on the runway.`\
-https://nytimes.com/2026/03/23/nyregion/laguardia-airport-air-canada-plane-crash.html
 

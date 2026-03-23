@@ -1,3 +1,11 @@
+**College baseball week in review: Texas takes series at Auburn, Mainieri out at South Carolina**\
+`Alabama sweeps Florida, highlighted by a no-hitter from Tyler Fay. UCF off to a hot start in Big 12 play. `\
+https://nytimes.com/athletic/7139699/2026/03/23/college-baseball-texas-auburn-paul-mainieri/
+
+**Blue Jays extend manager John Schneider, GM Ross Atkins for at least 2 more seasons each**\
+`Under their leadership, the Blue Jays reached the World Series last season for the first time in 32 years.`\
+https://nytimes.com/athletic/7140467/2026/03/23/blue-jays-john-schneider-ross-atkins-extension/
+
 **FPL Gameweek 31 review: Own Chelsea or Liverpool players? Keep calm and carry on**\
 `The plan is simple: do nothing. Wait for the outcomes of the FA Cup quarter-finals and attack the schedule with a clear and informed plan`\
 https://nytimes.com/athletic/7138870/2026/03/23/fantasy-premier-league-gameweek-31-review-chelsea-liverpool/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7139695/2026/03/23/kansas-city-royals-streaming-how
 **White receives England call-up for first time since 2022 World Cup**\
 `The Arsenal right-back replaces Jarell Quansah, who pulled out of the squad with a left thigh injury. `\
 https://nytimes.com/athletic/7140421/2026/03/23/ben-white-england-arsenal-world-cup/
-
-**Markets Rally as Trump’s Iran Deadline Is Deferred**\
-`Stock futures rose and oil prices fell after President Trump cited “very good and productive” talks with Iran over ending the war.`\
-https://nytimes.com/2026/03/23/business/dealbook/trump-iran-energy-attacks.html
-
-**The often dour Timberwolves needed a injection of fun. Enter Bones Hyland**\
-`"The way Bones is playing right now, it's really important we keep him in this group when Ant comes back," coach Chris Finch said.`\
-https://nytimes.com/athletic/7139768/2026/03/23/bones-hyland-timberwolves-fun-celtics/
 
