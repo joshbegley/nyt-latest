@@ -1,3 +1,15 @@
+**Here’s What Happened in the War in the Middle East on Monday**\
+`Conflicting signals about whether any negotiations to end the fighting were in progress created confusion.`\
+https://nytimes.com/2026/03/23/world/middleeast/middle-east-war-iran-march-23.html
+
+**For Canadians, Another Reason to Avoid Traveling to the U.S.**\
+`The collision between an Air Canada jet and a fire truck in New York brought the shortcomings of U.S. traffic control in focus.`\
+https://nytimes.com/2026/03/23/nyregion/canada-laguardia-crash-travel-reaction.html
+
+**Jason Steele on first England call-up: 'It has come a little later than I would have wanted!'**\
+`Brighton's backup goalkeeper has won a first senior national squad place at age 35 - 13 years after his final appearance for the under-21s`\
+https://nytimes.com/athletic/7140196/2026/03/23/jason-steele-england-brighton-interview/
+
 **Video Testimony of Former DOGE Employees Can Remain Online, Judge Rules**\
 `The viral deposition videos, posted online as part of a lawsuit, had been taken down because complaints that the employees were being harassed.`\
 https://nytimes.com/2026/03/23/nyregion/doge-lawsuit-videos-viral.html
