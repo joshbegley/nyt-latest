@@ -1,3 +1,11 @@
+**A fatal crash at LaGuardia, 34 years ago to the day.**\
+`The last crash at LaGuardia Airport`\
+https://nytimes.com/live/2026/03/23/nyregion/laguardia-airport-plane-crash-truck/laguardia-past-plane-crashes
+
+**ICE Agents Are Now Patrolling U.S. Airports. Here’s What to Know.**\
+`The deployment comes as a battle over Department of Homeland Security funding has led to closed security checkpoints, long lines and missed flights.`\
+https://nytimes.com/2026/03/23/travel/ice-agents-tsa-airports.html
+
 **Did Chappell Roan’s Security Make a Young Girl Cry?**\
 `The singer has denied the allegations of the encounter, which took place in Brazil and had kicked up hot debate online.`\
 https://nytimes.com/2026/03/23/style/chappell-roan-security-guard-brazil-jorginho.html
