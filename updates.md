@@ -1,3 +1,11 @@
+**Iran War Live Updates: Power Outages Are Reported in Tehran as Israel Launches Strikes**\
+`Residents reported widespread power outages across the capital. Israel’s military said it had begun a new wave of airstrikes targeting infrastructure in the city, but did not provide further details.`\
+https://nytimes.com/live/2026/03/23/world/iran-war-oil-trump
+
+**Here’s the latest.**\
+`By Aaron Boxerman, Julian Barnes, Isabel Kershner and Yan Zhuang`\
+https://nytimes.com/live/2026/03/23/world/iran-war-oil-trump/heres-the-latest
+
 **Word of the Day: acclimate**\
 `This word has appeared in 154 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/23/learning/word-of-the-day-acclimate.html

@@ -1,3 +1,11 @@
+**Iran War Live Updates: Power Outages Are Reported in Tehran as Israel Launches Strikes**\
+`Residents reported widespread power outages across the capital. Israel’s military said it had begun a new wave of airstrikes targeting infrastructure in the city, but did not provide further details.`\
+https://nytimes.com/live/2026/03/23/world/iran-war-oil-trump
+
+**Here’s the latest.**\
+`By Aaron Boxerman, Julian Barnes, Isabel Kershner and Yan Zhuang`\
+https://nytimes.com/live/2026/03/23/world/iran-war-oil-trump/heres-the-latest
+
 **Word of the Day: acclimate**\
 `This word has appeared in 154 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/23/learning/word-of-the-day-acclimate.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/23/business/oil-stocks-gas-prices-iran.html
 **Leeds are awful. It needs to change**\
 `The last two league games at Elland Road were among the worst spectacles in years. It’s not entertaining and it’s not producing goals`\
 https://nytimes.com/athletic/7137674/2026/03/23/leeds-brentford-problems-farke/
-
-**The Briefing: Who rules Man City vs Arsenal rivalry after final? Have Spurs fans left it too late? Did clubs sleep on Pickford?**\
-`Welcome to The Briefing, where The Athletic discusses three of the key talking points posed by the weekend’s football`\
-https://nytimes.com/athletic/7138482/2026/03/23/man-city-arsenal-title-race/
-
-**Dropping Kepa would have been brutally pragmatic. It's odd Mikel Arteta didn't do it**\
-`Arsenal manager said starting backup goalkeeper was "right thing to do", but his error was key to cup-final loss and choice looks an odd one`\
-https://nytimes.com/athletic/7139380/2026/03/23/kepa-arteta-decision-drop/
 
