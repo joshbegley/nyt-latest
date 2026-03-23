@@ -1,3 +1,11 @@
+**‘Don’t Make Any Deal’: Trump Tells Republicans to Hold Firm on Shutdown Talks**\
+`The president is using the standoff over funding the Department of Homeland Security as leverage to pass a strict voter ID bill. Critics say the bill would place an undue burden on eligible voters.`\
+https://nytimes.com/2026/03/23/us/politics/trump-shutdown-deal.html
+
+**Full Time: Gotham’s long-term ‘puzzle’**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/7141945/2026/03/23/gotham-fc-roster-nwsl-recap-full-time/
+
 **Boston University Pulls Pride Flags, Raising Free Speech Worries**\
 `The university said the flags broke a rule against hanging signs, a policy embraced by other campuses that cracked down on protests. Professors and others say such rules chill speech.`\
 https://nytimes.com/2026/03/23/us/boston-university-pride-flags-free-speech.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/23/world/us-iran-talks-denmark-election.html
 **Supreme Court Seems Poised to Reject Late-Arriving Mail-In Ballots**\
 `Also, audio suggests confusion before deadly LaGuardia crash. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2026/03/23/briefing/supreme-court-mail-in-ballots-laguardia-crash.html
-
-**No. 10 seed Virginia stuns Iowa in double overtime, advances to Sweet 16**\
-`Virginia is the first No. 10 seed to advance to the Sweet 16 in four years.`\
-https://nytimes.com/athletic/7141889/2026/03/23/ncaa-tournament-virginia-iowa-upset/
-
-**Randy Bennett to become next Arizona State men's basketball coach: Source**\
-`Bennett has spent the last 25 seasons at Saint Mary’s, where he led the Gaels to 12 NCAA Tournaments.`\
-https://nytimes.com/athletic/7141859/2026/03/23/arizona-state-basketball-coach-hire-randy-bennett-st-marys/
 
