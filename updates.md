@@ -1,3 +1,19 @@
+**In Denmark’s Election, How Will the Woman Who Took On Trump Fare?**\
+`Prime Minister Mette Frederiksen is the biggest force this country has seen in decades. The crisis in Greenland has energized her, but are voters itching for change?`\
+https://nytimes.com/2026/03/23/world/asia/denmark-elections-frederiksen-hometown.html
+
+**No Corrections: March 23, 2026**\
+`No corrections appeared in print on Monday, March 23, 2026.`\
+https://nytimes.com/2026/03/23/corrections/no-corrections-march-23-2026.html
+
+**How Obama’s Strategist Discouraged Biden From Running in 2016**\
+`In a new set of oral histories, David Plouffe, President Barack Obama’s political adviser, described how he urged Vice President Joseph R. Biden Jr. not to challenge Hillary Clinton for the nomination.`\
+https://nytimes.com/2026/03/23/us/politics/obama-strategist-biden-2016-election.html
+
+**Quote of the Day: War Descends On Shorefront In Posh Beirut**\
+`Quotation of the Day for Monday, March 23, 2026.`\
+https://nytimes.com/2026/03/23/pageoneplus/quote-of-the-day-war-descends-on-shorefront-in-posh-beirut.html
+
 **Why the Dodgers named Alex Freeland to Opening Day roster over Hyeseong Kim**\
 `Freeland's approach made an impression on the Dodgers. In the rotation, Roki Sasaki's inconsistency prompts a backup plan. `\
 https://nytimes.com/athletic/7139655/2026/03/22/dogers-alex-freeland-hyeseong-kim/

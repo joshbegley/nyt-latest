@@ -1,3 +1,19 @@
+**In Denmark’s Election, How Will the Woman Who Took On Trump Fare?**\
+`Prime Minister Mette Frederiksen is the biggest force this country has seen in decades. The crisis in Greenland has energized her, but are voters itching for change?`\
+https://nytimes.com/2026/03/23/world/asia/denmark-elections-frederiksen-hometown.html
+
+**No Corrections: March 23, 2026**\
+`No corrections appeared in print on Monday, March 23, 2026.`\
+https://nytimes.com/2026/03/23/corrections/no-corrections-march-23-2026.html
+
+**How Obama’s Strategist Discouraged Biden From Running in 2016**\
+`In a new set of oral histories, David Plouffe, President Barack Obama’s political adviser, described how he urged Vice President Joseph R. Biden Jr. not to challenge Hillary Clinton for the nomination.`\
+https://nytimes.com/2026/03/23/us/politics/obama-strategist-biden-2016-election.html
+
+**Quote of the Day: War Descends On Shorefront In Posh Beirut**\
+`Quotation of the Day for Monday, March 23, 2026.`\
+https://nytimes.com/2026/03/23/pageoneplus/quote-of-the-day-war-descends-on-shorefront-in-posh-beirut.html
+
 **Why the Dodgers named Alex Freeland to Opening Day roster over Hyeseong Kim**\
 `Freeland's approach made an impression on the Dodgers. In the rotation, Roki Sasaki's inconsistency prompts a backup plan. `\
 https://nytimes.com/athletic/7139655/2026/03/22/dogers-alex-freeland-hyeseong-kim/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7139805/2026/03/22/darryn-peterson-kansas-nba-draft
 **As Trump’s Deadline Nears, Iranians Dread the Darkness**\
 `With President Trump threatening to strike Iranian power plants, some war-weary civilians are panicking over a possible new debacle.`\
 https://nytimes.com/2026/03/22/world/middleeast/iran-trump-power-plants.html
-
-**Share Your Thoughts on Our Media Literacy Newsletter**\
-`Are you an educator interested in adding journalism lessons to your curriculum? We want to hear from you.`\
-https://nytimes.com/2026/03/22/learning/media-literacy-newsletter-school-of-new-york-times.html
-
-**Iowa knocks out defending champion Florida on Alvaro Folgueiras' game-winning 3**\
-`The ninth-seeded Hawkeyes made their first Sweet 16 since 1999 under first-year coach Ben McCollum.`\
-https://nytimes.com/athletic/7139730/2026/03/22/iowa-florida-score-result-alvaro-folgueiras-winner/
-
-**Kentucky didn't get money's worth from $22M roster. It's on Mark Pope to get more**\
-`The honeymoon is over. And soon Pope will be held to his words that at Kentucky the expectations are to have the best of everything.`\
-https://nytimes.com/athletic/7139599/2026/03/22/kentucky-basketball-ncaa-tournament-money-roster/
-
-**Kansas' shrewd late-game foul strategy ends up unsuccessful vs. St. John's**\
-`Kansas had several fouls to give in the final moments — and used them all.`\
-https://nytimes.com/athletic/7139621/2026/03/22/kansas-st-johns-fouls-to-give/
 
