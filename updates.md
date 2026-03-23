@@ -1,3 +1,7 @@
+**Nationals place Josiah Gray on 60-day IL with right flexor strain**\
+`The 28-year-old was given a clean bill of health coming into camp and had an outside shot at making the starting rotation.`\
+https://nytimes.com/athletic/7142117/2026/03/23/josiah-gray-injured-list-nationals-flexor-strain/
+
 **Here’s What Happened in the War in the Middle East on Monday**\
 `Conflicting signals about whether any negotiations to end the fighting were in progress created confusion.`\
 https://nytimes.com/2026/03/23/world/middleeast/middle-east-war-iran-march-23.html
