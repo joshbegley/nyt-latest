@@ -1,3 +1,15 @@
+**Mail voting began with the armed forces. How will this case affect them?**\
+`By Nick Corasaniti`\
+https://nytimes.com/live/2026/03/23/us/supreme-court-voting-late-ballots/mail-voting-began-with-the-armed-forces-how-will-this-case-affect-them
+
+**Iga Świątek splits with Wim Fissette after 18 months, 1 Wimbledon title and up-and-down changes**\
+`Świątek won her first Wimbledon title with Fissette, but ongoing changes to her game have also produced inconsistent results.`\
+https://nytimes.com/athletic/7140755/2026/03/23/tennis-swiatek-coach-fissette-split/
+
+**Creighton coach Greg McDermott to retire, triggering Alan Huss succession plan**\
+`Huss rejoined the program last year as head coach-in-waiting after going 56-15 in two seasons leading High Point.`\
+https://nytimes.com/athletic/7140818/2026/03/23/creighton-greg-mcdermott-retiring-alan-huss/
+
 **The secret to the Spurs' success this season? It's not (just) Wemby**\
 `Victor Wembanyama is an MVP candidate and the sun the Spurs orbit around. But there's another big reason for their success this season.`\
 https://nytimes.com/athletic/7140637/2026/03/23/spurs-video-deaaron-fox-dylan-harper/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7140358/2026/03/23/bundesliga-briefing-kehl-kwasnio
 **Lowetide: Why this season is one of the most disappointing in Oilers history**\
 `The Oilers appear to have accepted losing and are in trouble as a playoff hopeful.`\
 https://nytimes.com/athletic/7137760/2026/03/23/edmonton-oilers-connor-mcdavid-quotes-stats-standings-2026/
-
-**Sweet 16 upset odds for Texas Longhorns, Iowa Hawkeyes**\
-`In Texas and Iowa, "Cinderella" has a new look. But she can still slay.`\
-https://nytimes.com/athletic/7140509/2026/03/23/march-madness-upset-odds-texas-iowa-bracket-breakers/
-
-**The mail-in ballot rules have divided Republicans in Mississippi.**\
-`By Ann E. Marimow`\
-https://nytimes.com/live/2026/03/23/us/supreme-court-voting-late-ballots/the-mail-in-ballot-rules-have-divided-republicans-in-mississippi
-
-**Here are the lawyers arguing the late ballots case at the Supreme Court.**\
-`By Ann E. Marimow`\
-https://nytimes.com/live/2026/03/23/us/supreme-court-voting-late-ballots/here-are-the-lawyers-arguing-the-late-ballots-case-at-the-supreme-court
 

@@ -1,3 +1,15 @@
+**Mail voting began with the armed forces. How will this case affect them?**\
+`By Nick Corasaniti`\
+https://nytimes.com/live/2026/03/23/us/supreme-court-voting-late-ballots/mail-voting-began-with-the-armed-forces-how-will-this-case-affect-them
+
+**Iga Świątek splits with Wim Fissette after 18 months, 1 Wimbledon title and up-and-down changes**\
+`Świątek won her first Wimbledon title with Fissette, but ongoing changes to her game have also produced inconsistent results.`\
+https://nytimes.com/athletic/7140755/2026/03/23/tennis-swiatek-coach-fissette-split/
+
+**Creighton coach Greg McDermott to retire, triggering Alan Huss succession plan**\
+`Huss rejoined the program last year as head coach-in-waiting after going 56-15 in two seasons leading High Point.`\
+https://nytimes.com/athletic/7140818/2026/03/23/creighton-greg-mcdermott-retiring-alan-huss/
+
 **The secret to the Spurs' success this season? It's not (just) Wemby**\
 `Victor Wembanyama is an MVP candidate and the sun the Spurs orbit around. But there's another big reason for their success this season.`\
 https://nytimes.com/athletic/7140637/2026/03/23/spurs-video-deaaron-fox-dylan-harper/
