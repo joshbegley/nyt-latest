@@ -1,3 +1,7 @@
+**Arsenal are not losers, or chokers. So when will they be winners?**\
+`The challenge for Arsenal is to ensure their resolve is stiffened rather than undermined by the setback of losing the Carabao Cup final`\
+https://nytimes.com/athletic/7139943/2026/03/23/arsenal-carabao-final/
+
 **Flights Are Halted at LaGuardia as New York Fire Department Responds to Incident**\
 `A ground stop was in effect early Monday as the Fire Department said it was responding to a runway incident. A New York Times journalist saw an Air Canada plane on the runway with a sheared-off nose.`\
 https://nytimes.com/2026/03/23/nyregion/laguardia-groundstop-flights.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7139380/2026/03/23/kepa-arteta-decision-drop/
 **Kansas coach Bill Self noncommittal about return after second round exit**\
 `Bill Self did not give a clear indication on whether he would return as the Jayhawks head coach.`\
 https://nytimes.com/athletic/7140000/2026/03/23/kansas-jayhawks-bill-self-ncaa-tournament/
-
-**Howe's future, striker signings, brutal transfer decisions and more ways to fix Newcastle United**\
-`The people running this club need to make big decisions on these eight things to get them back on track`\
-https://nytimes.com/athletic/7138204/2026/03/23/newcastle-premier-league-champions-league-howe/
 

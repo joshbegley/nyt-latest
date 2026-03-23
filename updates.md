@@ -1,4 +1,8 @@
 **Flights Are Halted at LaGuardia as New York Fire Department Responds to Incident**\
+`A ground stop was in effect early Monday as the Fire Department said it was responding to a runway incident. A New York Times journalist saw an Air Canada plane on the runway with a sheared-off nose.`\
+https://nytimes.com/2026/03/23/nyregion/laguardia-groundstop-flights.html
+
+**Flights Are Halted at LaGuardia as New York Fire Department Responds to Incident**\
 `The Federal Aviation Administration ordered the closure early Monday, and the Fire Department said the reported runway incident involved a plane and a vehicle. No other details were immediately available.`\
 https://nytimes.com/2026/03/23/nyregion/laguardia-groundstop-flights.html
 
