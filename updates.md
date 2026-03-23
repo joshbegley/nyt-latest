@@ -1,3 +1,19 @@
+**USMNT’s Pepi proposed Fulham transfer in doubt after talks with PSV break down**\
+`The USMNT forward travelled to London for a medical and negotiations with the Premier League side ahead of a proposed summer transfer.`\
+https://nytimes.com/athletic/7141506/2026/03/23/usmnt-pepi-psv-fulham-transfer-news/
+
+**How to watch Nets vs. Trail Blazers: Time, TV, streaming**\
+`Find out how to watch the Brooklyn Nets play the Portland Trail Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7141570/2026/03/23/nets-vs-trail-blazers-stream-how-to-watch-march-23/
+
+**How to watch Warriors vs. Mavericks: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the Dallas Mavericks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7141565/2026/03/23/warriors-vs-mavericks-stream-how-to-watch-march-23/
+
+**How to watch Bucks vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the Milwaukee Bucks play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7141545/2026/03/23/bucks-vs-clippers-stream-how-to-watch-march-23/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>There&#8217;s quite a bit going on these days. What&#8217;s on your mind?</p>
 <p>Leave your questions here. Please include your city.</p>
