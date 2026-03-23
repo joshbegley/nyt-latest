@@ -1,3 +1,7 @@
+**Colombian Military Plane Crashed in ‘Tragic’ Accident, Officials Say**\
+`A military transport aircraft was involved in an accident as it took off from southern Colombia, according to the authorities. The number of victims was unclear.`\
+https://nytimes.com/2026/03/23/world/americas/colombian-military-crash.html
+
 **Commanders mailbag: Submit your questions for beat reporter Nicki Jhabvala**\
 `The Commanders were active as free agency began, but its latest rebuild is just getting started.`\
 https://nytimes.com/athletic/7141199/2026/03/23/washington-commanders-mailbag-draft-free-agency/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/23/books/review/almost-life-kiran-millwood-hargrave.
 **Israel Says Its Own Artillery Killed a Farmer, Not a Hezbollah Rocket**\
 `Ofer Moskovitz, 60, an avocado farmer in a kibbutz on Israel’s border with Lebanon, was killed Sunday when the car he was riding in was hit.`\
 https://nytimes.com/2026/03/23/world/middleeast/israel-says-its-own-artillery-killed-a-farmer-not-a-hezbollah-rocket.html
-
-**Mueller’s Death, and Trump’s Gloating**\
-`Readers respond to Robert Mueller’s death and to President Trump’s coarse reaction. Also: Telephone history; car talk.`\
-https://nytimes.com/2026/03/23/opinion/robert-mueller-trump.html
 
