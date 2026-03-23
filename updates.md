@@ -1,3 +1,11 @@
+**Randy Bennett to become next Arizona State men's basketball coach: Source**\
+`Bennett has spent the last 25 seasons at Saint Mary’s, where he led the Gaels to 12 NCAA Tournaments.`\
+https://nytimes.com/athletic/7141859/2026/03/23/arizona-state-basketball-coach-hire-randy-bennett-st-marys/
+
+**Catherine T. Nolan, State Assembly Powerhouse From Queens, Dies at 67**\
+`With nearly four decades in Albany, often leading key committees as a Democrat, she was an early supporter of liberal causes such as labor rights and abortion protections.`\
+https://nytimes.com/2026/03/23/nyregion/catherine-t-nolan-dead.html
+
 **A fatal crash at LaGuardia, 34 years ago to the day.**\
 `The last crash at LaGuardia Airport`\
 https://nytimes.com/live/2026/03/23/nyregion/laguardia-airport-plane-crash-truck/laguardia-past-plane-crashes

@@ -1,3 +1,11 @@
+**Randy Bennett to become next Arizona State men's basketball coach: Source**\
+`Bennett has spent the last 25 seasons at Saint Mary’s, where he led the Gaels to 12 NCAA Tournaments.`\
+https://nytimes.com/athletic/7141859/2026/03/23/arizona-state-basketball-coach-hire-randy-bennett-st-marys/
+
+**Catherine T. Nolan, State Assembly Powerhouse From Queens, Dies at 67**\
+`With nearly four decades in Albany, often leading key committees as a Democrat, she was an early supporter of liberal causes such as labor rights and abortion protections.`\
+https://nytimes.com/2026/03/23/nyregion/catherine-t-nolan-dead.html
+
 **A fatal crash at LaGuardia, 34 years ago to the day.**\
 `The last crash at LaGuardia Airport`\
 https://nytimes.com/live/2026/03/23/nyregion/laguardia-airport-plane-crash-truck/laguardia-past-plane-crashes
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7141659/2026/03/23/markelle-fultz-toronto-raptors-c
 **Cincinnati hiring Utah State's Jerrod Calhoun as next head coach: Sources**\
 `Calhoun, who has done more with less at Utah State, will have a chance to lead his alma mater back to prominence.`\
 https://nytimes.com/athletic/7137133/2026/03/23/cincinnati-jerrod-calhoun-head-coach/
-
-**Trader Joe’s Dip Head-to-Head Taste Test**\
-`Save yourself from the vorp! Emmy Cho visited the Wirecutter kitchen to help us crown the best dip from Trader Joe’s. Watch the full YouTube episode before your next TJ’s run for all the dip tips.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010796536/trader-joes-dip-head-to-head-taste-test.html
-
-**Phillies' smooth spring, punctuated by Zack Wheeler, gives reason for optimism**\
-`A good spring doesn't guarantee a thing, but the Phillies felt like their six weeks were a success — especially with their ace on the mend. `\
-https://nytimes.com/athletic/7141666/2026/03/23/phillies-spring-training-zack-wheeler-return/
 

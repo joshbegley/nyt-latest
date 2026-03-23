@@ -1,3 +1,11 @@
+**No. 10 seed Virginia stuns Iowa in double overtime, advances to Sweet 16**\
+`Virginia is the first No. 10 seed to advance to the Sweet 16 in four years.`\
+https://nytimes.com/athletic/7141889/2026/03/23/ncaa-tournament-virginia-iowa-upset/
+
+**Iran Negotiations — or Not?**\
+`President Trump’s shifting statements don’t necessarily signal an end in sight to the war, but they do buy him some time.`\
+https://nytimes.com/2026/03/23/world/us-iran-talks-denmark-election.html
+
 **Randy Bennett to become next Arizona State men's basketball coach: Source**\
 `Bennett has spent the last 25 seasons at Saint Mary’s, where he led the Gaels to 12 NCAA Tournaments.`\
 https://nytimes.com/athletic/7141859/2026/03/23/arizona-state-basketball-coach-hire-randy-bennett-st-marys/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2026/us/tsa-wait-times-us-airports.html
 **Trump Faces Blowback on Easing Iran Oil Sanctions**\
 `President Trump once assailed the Obama administration for making cash payments to Iran. Now he supports sanctions relief that could give the country a $14 billion windfall.`\
 https://nytimes.com/2026/03/23/business/trump-iran-sanctions-relief-oil.html
-
-**Raptors sign former No. 1 pick Markelle Fultz to 10-day contract**\
-`The top pick from 2017 had been playing for the Raptors' affiliate in the G League. `\
-https://nytimes.com/athletic/7141659/2026/03/23/markelle-fultz-toronto-raptors-contract-nba/
-
-**Cincinnati hiring Utah State's Jerrod Calhoun as next head coach: Sources**\
-`Calhoun, who has done more with less at Utah State, will have a chance to lead his alma mater back to prominence.`\
-https://nytimes.com/athletic/7137133/2026/03/23/cincinnati-jerrod-calhoun-head-coach/
 
