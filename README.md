@@ -1,3 +1,19 @@
+**This Sweater Is Trendy and Timeless**\
+`After hunting high and low, style writer Hannah Frye finally found it: a cotton sweater she can wear year-round. Designed in 1988, the J. Crew Rollneck Cotton Sweater has all the vintage-y feels, only new.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010796195/this-sweater-is-trendy-and-timeless.html
+
+**These Teeny Turners Make a Great Gift**\
+`Who knew a screwdriver could be so adorable?`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010795895/these-teeny-turners-make-a-great-gift.html
+
+**Don’t Wipe Eyeglasses On Your Shirt**\
+`Sorry, but that t-shirt hem is not cutting it.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010795866/dont-wipe-eyeglasses-on-your-shirt.html
+
+**‘Everything After This Will Be Harder’: General Stanley McChrystal on Iran**\
+`David French talks with the retired general about the “great seduction” America fell for in Iran.`\
+https://nytimes.com/2026/03/23/opinion/trump-iran-general-mcchrystal.html
+
 **Robby Hoffman Judges Dealbreakers**\
 `Fellas! Do not let Robby Hoffman see you walking around with your ankles out. Robby stopped by to share her dating dealbreakers (for those of you who are not blissfully married to Gabby Windey) and lament modern dishwashers.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010795810/robby-hoffman-judges-dealbreakers.html
@@ -21,22 +37,4 @@ https://nytimes.com/athletic/7141506/2026/03/23/usmnt-pepi-psv-fulham-transfer-n
 **How to watch Nets vs. Trail Blazers: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the Portland Trail Blazers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7141570/2026/03/23/nets-vs-trail-blazers-stream-how-to-watch-march-23/
-
-**How to watch Warriors vs. Mavericks: Time, TV, streaming**\
-`Find out how to watch the Golden State Warriors play the Dallas Mavericks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7141565/2026/03/23/warriors-vs-mavericks-stream-how-to-watch-march-23/
-
-**How to watch Bucks vs. Clippers: Time, TV, streaming**\
-`Find out how to watch the Milwaukee Bucks play the Los Angeles Clippers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7141545/2026/03/23/bucks-vs-clippers-stream-how-to-watch-march-23/
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>There&#8217;s quite a bit going on these days. What&#8217;s on your mind?</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/7141519/2026/03/23/submit-a-question-for-stewart-mandels-college-football-mailbag-339/
-
-**Women's NCAA Tournament takeaways: Who's punching their tickets for the Sweet 16?**\
-`Louisville is back in the Sweet 16 for the 13th time under coach Jeff Walz.`\
-https://nytimes.com/athletic/7141496/2026/03/23/womens-ncaa-tournament-takeaways-second-round-sweet-16/
 
