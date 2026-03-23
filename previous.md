@@ -1,3 +1,7 @@
+**Welcome to Money in Politics in the Age of A.I.**\
+`We can’t let crypto and A.I. buy the policies they want.`\
+https://nytimes.com/2026/03/23/opinion/crypto-ai-politics.html
+
 **How to watch Oklahoma State vs. UCLA women's basketball: Second Round Time, TV, streaming**\
 `Find out how to watch the Oklahoma State Cowgirls play the UCLA Bruins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7141644/2026/03/23/oklahoma-state-vs-ucla-stream-how-to-watch-march-23/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/7141060/2026/03/23/mets-carson-benge-opening-day-ro
 **Red Wings send Sandin-Pellikka to AHL Grand Rapids**\
 `The Red Wings' 2023 first-round pick hadn't played since the arrival of Justin Faulk at the trade deadline. `\
 https://nytimes.com/athletic/7141357/2026/03/23/red-wings-axel-sandin-pellikka-grand-rapids/
-
-**Bill Cosby Loses Sex Assault Lawsuit and Faces a $19 Million Judgment**\
-`A California jury found that Mr. Cosby had abused Donna Motsinger in 1972 after inviting her to attend one of his comedy shows.`\
-https://nytimes.com/2026/03/23/arts/television/bill-cosby-verdict-lawsuit-donna-motsinger.html
 
