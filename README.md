@@ -1,3 +1,7 @@
+**Steve Cooper accused by Bosnia coach of sidelining star due to Wales World Cup play-off**\
+`Sergej Barbarez said Bosnia midfielder Benjamin Tahirovic claimed to be dropped by Brondby due to the "roots and origins" of Cooper.`\
+https://nytimes.com/athletic/7140954/2026/03/23/wales-bosnia-world-cup-playoff-steve-cooper/
+
 **Warren Requests Information From MrBeast About Crypto and Children**\
 `The world’s most popular YouTube celebrity, who markets to children and has bragged about crypto trades, is getting into banking. Senator Elizabeth Warren has concerns.`\
 https://nytimes.com/2026/03/23/business/mrbeast-warren-crypto-children.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7139911/2026/03/23/mlb-prospect-scouting-los-angele
 **Oklahoma LB sues NCAA for extra year after working out at combine, pro day**\
 `Heinecke participated in the Senior Bowl, NFL combine and Oklahoma's pro day in case his fight for another year didn’t work out.`\
 https://nytimes.com/athletic/7140911/2026/03/23/owen-heinecke-ncaa-lawsuit-nfl-combine-oklahoma/
-
-**How to watch Illinois vs. Vanderbilt women's basketball: Second Round Time, TV, streaming**\
-`Find out how to watch the Illinois Fighting Illini play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7141025/2026/03/23/illinois-vs-vanderbilt-stream-how-to-watch-march-23/
 
