@@ -1,3 +1,11 @@
+**Robby Hoffman Judges Dealbreakers**\
+`Fellas! Do not let Robby Hoffman see you walking around with your ankles out. Robby stopped by to share her dating dealbreakers (for those of you who are not blissfully married to Gabby Windey) and lament modern dishwashers.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010795810/robby-hoffman-judges-dealbreakers.html
+
+**Supreme Court Rejects Appeal From Death Row Inmate Seeking DNA Testing**\
+`Rodney Reed’s quest over the last decade to obtain DNA testing to try to prove his innocence has attracted wide attention.`\
+https://nytimes.com/2026/03/23/us/politics/supreme-court-death-row-appeal.html
+
 **Welcome to Money in Politics in the Age of A.I.**\
 `We can’t let crypto and A.I. buy the policies they want.`\
 https://nytimes.com/2026/03/23/opinion/crypto-ai-politics.html

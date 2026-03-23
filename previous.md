@@ -1,3 +1,11 @@
+**Robby Hoffman Judges Dealbreakers**\
+`Fellas! Do not let Robby Hoffman see you walking around with your ankles out. Robby stopped by to share her dating dealbreakers (for those of you who are not blissfully married to Gabby Windey) and lament modern dishwashers.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010795810/robby-hoffman-judges-dealbreakers.html
+
+**Supreme Court Rejects Appeal From Death Row Inmate Seeking DNA Testing**\
+`Rodney Reed’s quest over the last decade to obtain DNA testing to try to prove his innocence has attracted wide attention.`\
+https://nytimes.com/2026/03/23/us/politics/supreme-court-death-row-appeal.html
+
 **Welcome to Money in Politics in the Age of A.I.**\
 `We can’t let crypto and A.I. buy the policies they want.`\
 https://nytimes.com/2026/03/23/opinion/crypto-ai-politics.html
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/7141519/2026/03/23/submit-a-question-for-stewart-ma
 **Women's NCAA Tournament takeaways: Who's punching their tickets for the Sweet 16?**\
 `Louisville is back in the Sweet 16 for the 13th time under coach Jeff Walz.`\
 https://nytimes.com/athletic/7141496/2026/03/23/womens-ncaa-tournament-takeaways-second-round-sweet-16/
-
-**Mets prospect Carson Benge captures roster spot with eye-opening spring**\
-`Benge, the Mets' 2024 first-round pick, came into the season as MLB's No. 18 prospect. His strong spring landed him on the Mets' roster.`\
-https://nytimes.com/athletic/7141060/2026/03/23/mets-carson-benge-opening-day-roster-prospect/
-
-**Red Wings send Sandin-Pellikka to AHL Grand Rapids**\
-`The Red Wings' 2023 first-round pick hadn't played since the arrival of Justin Faulk at the trade deadline. `\
-https://nytimes.com/athletic/7141357/2026/03/23/red-wings-axel-sandin-pellikka-grand-rapids/
 
