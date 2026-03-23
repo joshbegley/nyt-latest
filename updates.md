@@ -1,3 +1,7 @@
+**Steve Cooper accused by Bosnia coach of sidelining star due to Wales World Cup play-off**\
+`Sergej Barbarez said Bosnia midfielder Benjamin Tahirovic claimed to be dropped by Brondby due to the "roots and origins" of Cooper.`\
+https://nytimes.com/athletic/7140954/2026/03/23/wales-bosnia-world-cup-playoff-steve-cooper/
+
 **Warren Requests Information From MrBeast About Crypto and Children**\
 `The world’s most popular YouTube celebrity, who markets to children and has bragged about crypto trades, is getting into banking. Senator Elizabeth Warren has concerns.`\
 https://nytimes.com/2026/03/23/business/mrbeast-warren-crypto-children.html
