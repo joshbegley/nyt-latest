@@ -1,3 +1,7 @@
+**Taiwan Debates Military Spending as Choices Over U.S. and China Loom**\
+`Tensions in the opposition Nationalist Party could surface this week as lawmakers debate defense funding intended to counter Beijing’s growing might.`\
+https://nytimes.com/2026/03/23/world/asia/taiwan-defense-budget-china-us.html
+
 **Arsenal's Saliba out of France's friendlies, Lacroix called up**\
 `The FFF in a statement that Saliba is suffering from "recurring pain his his left ankle", which would require a minimum of 10 days' rest.`\
 https://nytimes.com/athletic/7140144/2026/03/23/saliba-france-squad-maxence-lacroix/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/23/world/iran-war-oil-trump/heres-the-latest
 **Word of the Day: acclimate**\
 `This word has appeared in 154 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/23/learning/word-of-the-day-acclimate.html
-
-**Arsenal are not losers or chokers. So when will they be winners?**\
-`The challenge for Arsenal is to ensure their resolve is stiffened rather than undermined by the setback of losing the Carabao Cup final`\
-https://nytimes.com/athletic/7139943/2026/03/23/arsenal-carabao-final/
 
