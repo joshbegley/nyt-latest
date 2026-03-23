@@ -1,3 +1,11 @@
+**Attack on Jewish Ambulance Service Being Investigated as Hate Crime**\
+`On Monday, four ambulances belonging to a Jewish nonprofit were set on fire. The police said that they were assessing a claim of a video claiming responsibility for the attack and were investigating the incident as an antisemitic hate crime.`\
+https://nytimes.com/video/world/europe/100000010796022/london-ambulance-arson-hate-crime.html
+
+**Pentagon Officials Weigh Deployment of Airborne Troops to Iran War**\
+`The combat forces would come from a brigade of about 3,000 soldiers capable of deploying anywhere in the world within 18 hours.`\
+https://nytimes.com/2026/03/23/us/politics/us-airborne-troops-iran.html
+
 **Antoine Griezmann, an Atletico Madrid legend whose MLS move with Orlando makes perfect sense**\
 `The 35-year-old French forward flew out to finalise a summer transfer on Sunday night, following a 3-2 defeat at Real Madrid`\
 https://nytimes.com/athletic/7141161/2026/03/23/griezmann-orlando-mls-transfer-atletico-madrid/

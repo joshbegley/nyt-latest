@@ -1,3 +1,11 @@
+**Passenger Jet and Fire Truck Crash at LaGuardia Airport, Leaving 2 Dead**\
+`The two pilots of a Air Canada Express jet were killed after a collision with a Port Authority fire truck on Sunday at LaGuardia Airport in New York. Audio from the tower indicated that an air traffic controller may have been distracted by an earlier incident.`\
+https://nytimes.com/video/nyregion/100000010795871/laguardia-crash-air-canada-fire-truck.html
+
+**Bipartisan bill introduced to ban sports from prediction markets**\
+`"It’s time for Congress to step in and eliminate this backdoor," U.S. Senator Adam Schiff said of prediction markets.`\
+https://nytimes.com/athletic/7141190/2026/03/23/bill-ban-sports-betting-prediction-markets/
+
 **Attack on Jewish Ambulance Service Being Investigated as Hate Crime**\
 `On Monday, four ambulances belonging to a Jewish nonprofit were set on fire. The police said that they were assessing a claim of a video claiming responsibility for the attack and were investigating the incident as an antisemitic hate crime.`\
 https://nytimes.com/video/world/europe/100000010796022/london-ambulance-arson-hate-crime.html
@@ -10,7 +18,7 @@ https://nytimes.com/athletic/7141161/2026/03/23/griezmann-orlando-mls-transfer-a
 `Pivetta, who logged a career-best 2.87 ERA last season, will duel Detroit Tigers ace Tarik Skubal at Petco Park on Thursday.`\
 https://nytimes.com/athletic/7141371/2026/03/23/padres-nick-pivetta-opening-day-starter/
 
-**Pentagon Officials Weigh Deployment of Airborne Troops to Iran War**\
+**Pentagon Officials Weigh Deployment of Airborne Troops for Iran War**\
 `The combat forces would come from a brigade of about 3,000 soldiers capable of deploying anywhere in the world within 18 hours.`\
 https://nytimes.com/2026/03/23/us/politics/us-airborne-troops-iran.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/23/business/economy/trump-pax-silica-fund.html
 **WNBA players approve new CBA in unanimous vote**\
 `Next, the WNBA board of governors must sign off on the deal before lawyers from both sides will execute the final agreement.`\
 https://nytimes.com/athletic/7141131/2026/03/23/wnba-players-vote-labor-deal-approved/
-
-**PSG request Lens match postponement due to UCL Liverpool tie**\
-`PSG are due to face second-place Lens in the week between their quarter-final legs in April.  `\
-https://nytimes.com/athletic/7141233/2026/03/23/paris-saint-germain-lens-liverpool-champions-league-postponement/
-
-**New Top Prosecutor Named in Embattled U.S. Attorney’s Office**\
-`Federal judges appointed Robert Frazer to run New Jersey’s U.S. attorney’s office, which has been in disarray over the past year because of uncertainty about who was in charge.`\
-https://nytimes.com/2026/03/23/nyregion/new-attorney-nj-habba.html
 
