@@ -1,3 +1,15 @@
+**The secret to the Spurs' success this season? It's not (just) Wemby**\
+`Victor Wembanyama is an MVP candidate and the sun the Spurs orbit around. But there's another big reason for their success this season.`\
+https://nytimes.com/athletic/7140637/2026/03/23/spurs-video-deaaron-fox-dylan-harper/
+
+**Here’s How the Supreme Court’s Decision on Mail-In Ballots Could Affect Elections**\
+`The court is hearing a case on one state’s law that allow ballots to count if they are postmarked by Election Day but arrive days after. More than a dozen states have similar rules.`\
+https://nytimes.com/2026/03/23/us/elections/courts-decision-mail-voting-outcomes.html
+
+**Iran attempted to attack a far-off military base.**\
+`By Martín González Gómez`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/iran-attempted-to-attack-a-far-off-military-base
+
 **The Bounce: Michael Jordan is no longer top 5 in scoring. Longevity is why**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7140769/2026/03/23/michael-jordan-scoring-record-kevin-durantthe-bounce/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2026/03/23/us/supreme-court-voting-late-ballots/the-mai
 **Here are the lawyers arguing the late ballots case at the Supreme Court.**\
 `By Ann E. Marimow`\
 https://nytimes.com/live/2026/03/23/us/supreme-court-voting-late-ballots/here-are-the-lawyers-arguing-the-late-ballots-case-at-the-supreme-court
-
-**The Athletic college baseball top 25: Hello Alabama, Nebraska; goodbye Florida, Clemson**\
-`Alabama and Nebraska, two teams that posted big wins in college basketball, jump into the college baseball top 25 this week.`\
-https://nytimes.com/athletic/7140632/2026/03/23/college-baseball-rankings-alabama-nebraska/
-
-**As playoff races heat up, we're still thinking about that 65-game rule**\
-`Who's hot (Thunder, Lakers), who's not (Heat, Magic) and what to watch this week in battles for playoff positioning.`\
-https://nytimes.com/athletic/7128502/2026/03/23/nba-playoff-race-65-game-rule-cade-cunningham/
-
-**The F.A.A. has been working to make U.S. runways safer.**\
-`By Niraj Chokshi`\
-https://nytimes.com/live/2026/03/23/nyregion/laguardia-airport-plane-crash-truck/the-faa-has-been-working-to-make-us-runways-safer
 

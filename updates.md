@@ -1,3 +1,11 @@
+**The Bounce: Michael Jordan is no longer top 5 in scoring. Longevity is why**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7140769/2026/03/23/michael-jordan-scoring-record-kevin-durantthe-bounce/
+
+**Polls Predict Close Finish in Italian Referendum Seen as Test of Meloni**\
+`Prime Minister Giorgia Meloni is pushing for an overhaul of the judiciary. After a two-day vote, early projections indicated that her opponents had the edge.`\
+https://nytimes.com/2026/03/23/world/europe/italy-referendum-judiciary-meloni.html
+
 **Bundesliga Briefing: Kehl and Kwasniok depart as Kane, Olise and Bayern have history in their sights**\
 `The German top flight has seen change and continuity with some high-profile departures - and its leaders are on course for a special season`\
 https://nytimes.com/athletic/7140358/2026/03/23/bundesliga-briefing-kehl-kwasniok-kane-olise-bayern/
