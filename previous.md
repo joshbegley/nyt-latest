@@ -1,3 +1,11 @@
+**How John Schneider figured it out, earning his extension to stick with the Blue Jays**\
+`Schneider's 2-year extension comes after he improved his communication: As one player said: "It really resonated with all the guys."`\
+https://nytimes.com/athletic/7140841/2026/03/23/blue-jays-manager-john-schneider-extension/
+
+**Ohtani WBC jersey sells for record $1.5 million at auction**\
+`Ohtani's collectibles market has remained the hottest it's ever been through the MLB offseason.`\
+https://nytimes.com/athletic/7140595/2026/03/23/shohei-ohtani-jersey-auction-world-baseball-classic/
+
 **Mail voting began with the armed forces. How will this case affect them?**\
 `By Nick Corasaniti`\
 https://nytimes.com/live/2026/03/23/us/supreme-court-voting-late-ballots/mail-voting-began-with-the-armed-forces-how-will-this-case-affect-them
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7140769/2026/03/23/michael-jordan-scoring-record-ke
 **Polls Predict Close Finish in Italian Referendum Seen as Test of Meloni**\
 `Prime Minister Giorgia Meloni is pushing for an overhaul of the judiciary. After a two-day vote, early projections indicated that her opponents had the edge.`\
 https://nytimes.com/2026/03/23/world/europe/italy-referendum-judiciary-meloni.html
-
-**Bundesliga Briefing: Kehl and Kwasniok depart as Kane, Olise and Bayern have history in their sights**\
-`The German top flight has seen change and continuity with some high-profile departures - and its leaders are on course for a special season`\
-https://nytimes.com/athletic/7140358/2026/03/23/bundesliga-briefing-kehl-kwasniok-kane-olise-bayern/
-
-**Lowetide: Why this season is one of the most disappointing in Oilers history**\
-`The Oilers appear to have accepted losing and are in trouble as a playoff hopeful.`\
-https://nytimes.com/athletic/7137760/2026/03/23/edmonton-oilers-connor-mcdavid-quotes-stats-standings-2026/
 

@@ -1,3 +1,23 @@
+**How to watch Lakers vs. Pistons: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the Detroit Pistons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7140917/2026/03/23/lakers-vs-pistons-stream-how-to-watch-march-23/
+
+**How to watch Thunder vs. 76ers: Time, TV, streaming**\
+`Find out how to watch the Oklahoma City Thunder play the Philadelphia 76ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7140915/2026/03/23/thunder-vs-76ers-stream-how-to-watch-march-23/
+
+**These Lifelike Patients Bleed and Cry (but Never Die)**\
+`Medical manikns help health care workers learn how to handle fast-changing and complex scenarios.`\
+https://nytimes.com/2026/03/23/well/medical-manikins.html
+
+**Kick Off Your Week With Coconut Curry Noodles**\
+`This gloriously fragrant, saucy meal is built on pantry staples (and that bag of shrimp in your freezer).`\
+https://nytimes.com/2026/03/23/dining/kick-off-your-week-with-coconut-curry-noodles.html
+
+**Page to Screen: Do You Know the Sources of These Quirky TV Shows?**\
+`Try this short quiz on comic-book characters who made the leap to television.`\
+https://nytimes.com/interactive/2026/03/23/books/review/comics-tv-adaptations.html
+
 **How John Schneider figured it out, earning his extension to stick with the Blue Jays**\
 `Schneider's 2-year extension comes after he improved his communication: As one player said: "It really resonated with all the guys."`\
 https://nytimes.com/athletic/7140841/2026/03/23/blue-jays-manager-john-schneider-extension/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7140755/2026/03/23/tennis-swiatek-coach-fissette-sp
 **Creighton coach Greg McDermott to retire, triggering Alan Huss succession plan**\
 `Huss rejoined the program last year as head coach-in-waiting after going 56-15 in two seasons leading High Point.`\
 https://nytimes.com/athletic/7140818/2026/03/23/creighton-greg-mcdermott-retiring-alan-huss/
-
-**The secret to the Spurs' success this season? It's not (just) Wemby**\
-`Victor Wembanyama is an MVP candidate and the sun the Spurs orbit around. But there's another big reason for their success this season.`\
-https://nytimes.com/athletic/7140637/2026/03/23/spurs-video-deaaron-fox-dylan-harper/
-
-**Here’s How the Supreme Court’s Decision on Mail-In Ballots Could Affect Elections**\
-`The court is hearing a case on one state’s law that allow ballots to count if they are postmarked by Election Day but arrive days after. More than a dozen states have similar rules.`\
-https://nytimes.com/2026/03/23/us/elections/courts-decision-mail-voting-outcomes.html
-
-**Iran attempted to attack a far-off military base.**\
-`By Martín González Gómez`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/iran-attempted-to-attack-a-far-off-military-base
-
-**The Bounce: Michael Jordan is no longer top 5 in scoring. Longevity is why**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/7140769/2026/03/23/michael-jordan-scoring-record-kevin-durantthe-bounce/
-
-**Polls Predict Close Finish in Italian Referendum Seen as Test of Meloni**\
-`Prime Minister Giorgia Meloni is pushing for an overhaul of the judiciary. After a two-day vote, early projections indicated that her opponents had the edge.`\
-https://nytimes.com/2026/03/23/world/europe/italy-referendum-judiciary-meloni.html
 

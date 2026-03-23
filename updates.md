@@ -1,3 +1,11 @@
+**How John Schneider figured it out, earning his extension to stick with the Blue Jays**\
+`Schneider's 2-year extension comes after he improved his communication: As one player said: "It really resonated with all the guys."`\
+https://nytimes.com/athletic/7140841/2026/03/23/blue-jays-manager-john-schneider-extension/
+
+**Ohtani WBC jersey sells for record $1.5 million at auction**\
+`Ohtani's collectibles market has remained the hottest it's ever been through the MLB offseason.`\
+https://nytimes.com/athletic/7140595/2026/03/23/shohei-ohtani-jersey-auction-world-baseball-classic/
+
 **Mail voting began with the armed forces. How will this case affect them?**\
 `By Nick Corasaniti`\
 https://nytimes.com/live/2026/03/23/us/supreme-court-voting-late-ballots/mail-voting-began-with-the-armed-forces-how-will-this-case-affect-them
