@@ -1,3 +1,11 @@
+**Share Your Thoughts on Our Media Literacy Newsletter**\
+`Are you an educator interested in adding journalism lessons to your curriculum? We want to hear from you.`\
+https://nytimes.com/2026/03/22/learning/media-literacy-newsletter-school-of-new-york-times.html
+
+**St. John's, futile for so long, heads to Sweet 16 for first time since 1999**\
+`Dylan Darling, who hadn't make a single bucket through 40 minutes, sent St. John's to the Sweet 16 with a driving bucket at the buzzer. `\
+https://nytimes.com/athletic/7139524/2026/03/22/st-johns-kansas-rick-pitino-dylan-darling/
+
 **Iowa knocks out defending champion Florida on Alvaro Folgueiras' game-winning 3**\
 `The ninth-seeded Hawkeyes made their first Sweet 16 since 1999 under first-year coach Ben McCollum.`\
 https://nytimes.com/athletic/7139730/2026/03/22/iowa-florida-score-result-alvaro-folgueiras-winner/
