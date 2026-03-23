@@ -1,40 +1,40 @@
-**Baseball is riding an international boom, but will it ever stick in the Olympics?**\
-`We'll see Olympic baseball in L.A. But with MLB's schedule and future Olympic Games taking place elsewhere, will that continue beyond 2028?`\
-https://nytimes.com/athletic/7139293/2026/03/23/2028-olympics-baseball-los-angeles-future/
+**Iranians Respond to Trump’s Threats to Hit Iran’s Power Plants**\
+`Some Iranians expressed anxiety while others remained skeptical after President Trump told Iran to open the Strait of Hormuz or face attacks on its power grid.`\
+https://nytimes.com/video/video/100000010795414/iran-trump-power-plants.html
 
-**Fantasy baseball 2026: American League preview and predictions**\
-`Dalton Del Don gets out his crystal ball to look into what the future beholds in the American League in 2026.`\
-https://nytimes.com/athletic/7131272/2026/03/23/fantasy-baseball-american-league-al-preview-predictions/
+**Fantasy baseball 2026: National League preview and predictions**\
+`Dalton Del Don gets out his crystal ball to look into what the future beholds in the National League in 2026.`\
+https://nytimes.com/athletic/7131311/2026/03/23/fantasy-baseball-national-league-nl-preview-predictions/
 
-**NHL awards watch: Kucherov and Werenski make strong push against Avalanche's top duo**\
-`While the Calder and Selke look like safe races, the Hart is between two players, and this is the best Norris race in recent memory.`\
-https://nytimes.com/athletic/7138442/2026/03/23/nhl-awards-nikita-kucherov-zach-werenski-avalanche/
+**How Kenneth Walker III will help Chiefs offense — from a coach's perspective**\
+`Walker, the Chiefs' new starting running back, showed these strengths — and also one weakness — with his film from Super Bowl LX.`\
+https://nytimes.com/athletic/7128491/2026/03/23/chiefs-kenneth-walker-iii-coach-perspective/
 
-**A Deadly Collision at LaGuardia Airport, and Trump’s Ultimatum to Iran**\
-`Plus, chasing meteorites for money.`\
-https://nytimes.com/2026/03/23/podcasts/the-headlines/runway-collision-laguardia-airport-and-trumps-ultimatum-iran.html
+**Inside how Aaron Boone makes the Yankees' lineup: Debunking a narrative that won't die**\
+`The Yankees manager shared details of his process with The Athletic and pushed back on "laughable" speculation about front-office influence.`\
+https://nytimes.com/athletic/7058237/2026/03/23/ny-yankees-lineup-process-aaron-boone/
 
-**Bengals depth chart: Linebacker remains glaring need heading toward NFL Draft**\
-`Free agency addressed some needs, but the onus is on the draft for the second straight year to fill critical holes on defense.`\
-https://nytimes.com/athletic/7138103/2026/03/23/bengals-depth-chart-needs-nfl-draft/
+**Mika Zibanejad and the lasting moments of a 1,000-game NHL journey**\
+`As Zibanejad reaches 1,000 NHL games and navigates a shifting landscape on Broadway, he reflects on the moments that got him here.`\
+https://nytimes.com/athletic/7134966/2026/03/23/mika-zibanejad-rangers-nhl-career-games/
 
-**The tankiest efforts we've seen: when Mark Madsen, Ben Uzoh and Daniel Oturu shine**\
-`Even when teams don't care about winning, everyday heroes must chronicle the events. These are their stories.`\
-https://nytimes.com/athletic/7136403/2026/03/23/nba-worst-tanking-teams-wizards-thunder/
+**Auston Matthews' exit would be devastating: Monday Morning Leafs Report**\
+`Matthews' departure could have a domino effect on the rest of the roster, and things could get bleak fast.`\
+https://nytimes.com/athletic/7138256/2026/03/23/maple-leafs-auston-matthews-trade-season/
 
-**2026 NHL prospect pool rankings: No. 18 New York Rangers**\
-`The Rangers have some interesting player types and several prospects who are going to play NHL games, but an imperfect group on the whole.`\
-https://nytimes.com/athletic/6977435/2026/03/23/new-york-rangers-nhl-prospect-rankings-2026/
+**Trump Administration Live Updates: ICE Agents Are Expected to Deploy at U.S. Airports**\
+``\
+https://nytimes.com/live/2026/03/23/us/trump-news
 
-**Did Pete Carroll start a baseball trend? How music became a spring training staple**\
-`An athlete’s relationship to music might seem like a matter of preference. Research has shown that it can also produce a tangible effect.`\
-https://nytimes.com/athletic/7138842/2026/03/23/spring-training-music-baseball-pete-carroll/
+**New Cowboys safety Jalen Thompson likes what he sees: 'We got all the right pieces'**\
+`The Cowboys should again have one of the NFL's best offenses. Their defense must close the gap.`\
+https://nytimes.com/athletic/7138771/2026/03/23/cowboys-defense-free-agency-nfl-draft-improvement/
 
-**Tables turned on Celtics in costly home loss to the Timberwolves**\
-`After losing to the Timberwolves, Boston's lead over New York is down to half a game for second place in the Eastern Conference.`\
-https://nytimes.com/athletic/7140044/2026/03/23/jaylen-brown-celtics-loss-timberwolves/
+**Lions free-agency roster reset: Analyzing which positions are in good shape or need work**\
+`Edge, offensive tackle, linebacker and safety are among the positions the Lions should still be looking to strengthen.`\
+https://nytimes.com/athletic/7129984/2026/03/23/lions-roster-reset-free-agency-analysis/
 
-**Flyers fan survey results: Is the rebuild headed in the right direction?**\
-`What grades did general manager Daniel Briere and coach Rick Tocchet receive?`\
-https://nytimes.com/athletic/7138418/2026/03/23/flyers-opinions-michkov-briere-tocchet/
+**A strong free agency, a division title, high NFLPA marks — things looking up for Panthers**\
+`"I’m really excited to be a part of taking that next step,” free-agent addition Devin Lloyd said of joining the Panthers.`\
+https://nytimes.com/athletic/7138472/2026/03/23/carolina-panthers-free-agency-moves-offseason-2026/
 
