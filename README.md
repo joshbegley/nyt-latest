@@ -1,3 +1,7 @@
+**Darryn Peterson's brilliance undeniable in a season defined by what could have been**\
+`Kansas, in the end, got a season that somehow managed to confirm everything while still leaving something completely ajar.`\
+https://nytimes.com/athletic/7139805/2026/03/22/darryn-peterson-kansas-nba-draft-ncaa-tournament/
+
 **As Trump’s Deadline Nears, Iranians Dread the Darkness**\
 `With President Trump threatening to strike Iranian power plants, some war-weary civilians are panicking over a possible new debacle.`\
 https://nytimes.com/2026/03/22/world/middleeast/iran-trump-power-plants.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7139610/2026/03/22/antoine-griezmann-transfer-atlet
 **Boxer Isis Sio in medically induced coma after first-round knockout**\
 `The 19-year-old fighter was knocked out after taking a series of punches to the head.`\
 https://nytimes.com/athletic/7139480/2026/03/22/isis-sio-knockout-coma-jocelyn-camarillo/
-
-**With Anton Frondell on the way, Ryan Greene and Nick Lardis look to keep top-six spots**\
-`Greene has exceeded his own expectations this season, but he might be bound for a less prominent role in the homestretch of the season.`\
-https://nytimes.com/athletic/7139414/2026/03/22/blackhawks-anton-frondell-ryan-greene-nick-lardis/
 
