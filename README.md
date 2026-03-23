@@ -1,4 +1,4 @@
-**Colombian Military Plane Crashed in ‘Tragic’ Accident, Officials Say**\
+**Colombian Military Plane Crashes in ‘Tragic’ Accident, Officials Say**\
 `A military transport aircraft was involved in an accident as it took off from southern Colombia, according to the authorities. The number of victims was unclear.`\
 https://nytimes.com/2026/03/23/world/americas/colombian-military-crash.html
 

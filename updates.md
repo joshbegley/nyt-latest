@@ -1,3 +1,7 @@
+**Colombian Military Plane Crashed in ‘Tragic’ Accident, Officials Say**\
+`A military transport aircraft was involved in an accident as it took off from southern Colombia, according to the authorities. The number of victims was unclear.`\
+https://nytimes.com/2026/03/23/world/americas/colombian-military-crash.html
+
 **Commanders mailbag: Submit your questions for beat reporter Nicki Jhabvala**\
 `The Commanders were active as free agency began, but its latest rebuild is just getting started.`\
 https://nytimes.com/athletic/7141199/2026/03/23/washington-commanders-mailbag-draft-free-agency/
