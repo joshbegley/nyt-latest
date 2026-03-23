@@ -1,3 +1,19 @@
+**Flights Are Halted at LaGuardia as New York Fire Department Responds to Incident**\
+`The Federal Aviation Administration ordered the closure early Monday, and the Fire Department said the reported runway incident involved a plane and a vehicle. No other details were immediately available.`\
+https://nytimes.com/2026/03/23/nyregion/laguardia-groundstop-flights.html
+
+**Aston Villa and their left-sided scheming**\
+`Emery knew West Ham was an opportunity for Villa to pull clear from their Champions League rivals - this is how they did it`\
+https://nytimes.com/athletic/7138403/2026/03/23/aston-villa-left-side-emery/
+
+**Vitor Pereira has the players and fans on side - it might just keep Nottingham Forest up**\
+`The new manager has fostered a sense of unity and there is now a renewed sense of positivity at the club following two impressive results`\
+https://nytimes.com/athletic/7138632/2026/03/23/nottingham-forest-premier-league-relegation-pereira/
+
+**Nuno doesn’t trust Kilman. He may never play for West Ham again**\
+`The manager's decision to opt for academy graduate Freddie Potts ahead of the English defender after Jean-Clair Todibo's injury was telling`\
+https://nytimes.com/athletic/7138052/2026/03/23/west-ham-premier-league-kilman-nuno/
+
 **Stocks Tumble as Oil Prices Rise**\
 `Investors braced for a fourth week of market turmoil caused by the war in the Middle East`\
 https://nytimes.com/2026/03/23/business/oil-stocks-gas-prices-iran.html
