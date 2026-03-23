@@ -1,3 +1,7 @@
+**Darryn Peterson's brilliance undeniable in a season defined by what could have been**\
+`Kansas, in the end, got a season that somehow managed to confirm everything while still leaving something completely ajar.`\
+https://nytimes.com/athletic/7139805/2026/03/22/darryn-peterson-kansas-nba-draft-ncaa-tournament/
+
 **As Trump’s Deadline Nears, Iranians Dread the Darkness**\
 `With President Trump threatening to strike Iranian power plants, some war-weary civilians are panicking over a possible new debacle.`\
 https://nytimes.com/2026/03/22/world/middleeast/iran-trump-power-plants.html
