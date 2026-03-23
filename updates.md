@@ -1,3 +1,7 @@
+**Deadly Plane Collision at LaGuardia Airport: What We Know**\
+`Two pilots were killed and dozens of others were injured when a regional jet collided with a fire truck on the runway.`\
+https://nytimes.com/2026/03/23/nyregion/laguardia-airport-air-canada-plane-crash.html
+
 **TAFC: Keeping it real: A lesson for Arteta? Plus: Griezmann set for Orlando switch**\
 `Today in TAFC: The fallout from Kepa's blunder in the Carabao Cup final — and what happens when a big club is relegated...`\
 https://nytimes.com/athletic/7140187/2026/03/23/arsenal-manchester-city-kepa/

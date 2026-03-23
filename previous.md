@@ -1,3 +1,7 @@
+**Deadly Plane Collision at LaGuardia Airport: What We Know**\
+`Two pilots were killed and dozens of others were injured when a regional jet collided with a fire truck on the runway.`\
+https://nytimes.com/2026/03/23/nyregion/laguardia-airport-air-canada-plane-crash.html
+
 **TAFC: Keeping it real: A lesson for Arteta? Plus: Griezmann set for Orlando switch**\
 `Today in TAFC: The fallout from Kepa's blunder in the Carabao Cup final — and what happens when a big club is relegated...`\
 https://nytimes.com/athletic/7140187/2026/03/23/arsenal-manchester-city-kepa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7140015/2026/03/23/canadiens-kaiden-guhle-videos-ni
 **Ohio State's new roster posed questions. Now it might be the answer for reaching Sweet 16**\
 `Ohio State will need to beat Notre Dame to advance past the second round for the first time in three seasons.`\
 https://nytimes.com/athletic/7139817/2026/03/23/ohio-state-women-new-roster-sweet-16/
-
-**Browns coach Todd Monken's strong suit is blunt honesty without the politics**\
-`Monken's authenticity and commitment are strengths, said the Southern Miss AD who hired him for his only other head-coaching job in 2013.`\
-https://nytimes.com/athletic/7132169/2026/03/23/todd-monken-browns-coach-blunt-style/
 
