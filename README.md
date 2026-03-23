@@ -1,5 +1,17 @@
+**ICE Agents Fan Out at Airports Across the U.S.**\
+`The agents were sent to help understaffed T.S.A. teams manage long security lines. But early on Monday, it was unclear what impact they were having.`\
+https://nytimes.com/2026/03/23/us/ice-agents-airports.html
+
+**Nuggets' Spencer Jones shares LinkedIn post about defending game winners**\
+`Jones, who has started 36 games for Denver, detailed his account of a couple rough days at the office on the social media platform.`\
+https://nytimes.com/athletic/7140878/2026/03/23/nuggets-spencer-jones-linkedin-post/
+
+**Blue Jackets Monday Gathering: Werenski, Coyle, Bowness could all collect NHL awards**\
+`The Blue Jackets' surge into a playoff position shines a brighter light on their award candidates.`\
+https://nytimes.com/athletic/7138092/2026/03/23/blue-jackets-norris-selke-adams-awards/
+
 **What I'm seeing from MLB prospects: Dodgers, White Sox bring stars but also wildness**\
-`The Spring Breakout Games are a wonderful idea, but there always has to be someone to come in and ruin it for everyone else.`\
+`This Spring Breakout Game featured some top prospects but devolved quickly thanks to 27 walks and 442 pitches thrown.`\
 https://nytimes.com/athletic/7139911/2026/03/23/mlb-prospect-scouting-los-angeles-dodgers-chicago-white-sox/
 
 **Oklahoma LB sues NCAA for extra year after working out at combine, pro day**\
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/23/us/lilias-folan-dead.html
 **There’s a New Place to Store Greenhouse Gases: In Your Beer**\
 `A pub in California is pulling carbon dioxide from the air to carbonate pints. If the business model works, it could give the broader carbon-capture industry a boost.`\
 https://nytimes.com/2026/03/23/climate/beer-carbon-capture.html
-
-**Richard Gadd on Bulking Up for ‘Half Man’ and His Body Insecurity**\
-`Richard Gadd, the creator and star of “Baby Reindeer,” plays an alpha male character in his new show, “Half Man.” On “The Interview,” he talked about his physical transformation for the role and the self-consciousness he feels about his body.`\
-https://nytimes.com/video/podcasts/100000010795663/richard-gadd-on-bulking-up-for-half-man-and-his-body-insecurity.html
-
-**Richard Gadd Felt ‘Disconnected From Life’ After Sexual Abuse**\
-`Richard Gadd, the creator and star of the Netflix hit show “Baby Reindeer,” talks about the aftermath of sexual abuse and how he turned to art to help him find meaning in his life, on “The Interview.”`\
-https://nytimes.com/video/podcasts/100000010795709/richard-gadd-felt-disconnected-from-life-after-sexual-abuse.html
-
-**USMNT Player Tracker: Pulisic clicks, Tillman strikes, and Balogun's bragging rights**\
-`Ahead of the friendly against Belgium, the U.S. contingent in Europe impressed, with Pulisic on song and goals by Tillman and Balogun`\
-https://nytimes.com/athletic/7140596/2026/03/23/usmnt-tracker-pulisic-tillman-balogun-belgium/
 
