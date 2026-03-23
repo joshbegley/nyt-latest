@@ -1,3 +1,11 @@
+**The Pulse: A No. 1 seed falls**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7138494/2026/03/23/ncaa-sweet-16-the-pulse/
+
+**This Week in Mets: A good start is imperative and the early schedule looks cushy**\
+`Marcus Semien and other fresh arrivals will learn that a new Met’s first month defines the narrative around him for longer than it should.`\
+https://nytimes.com/athletic/7139833/2026/03/23/mets-opening-day-carlos-mendoza-schedule/
+
 **Iranians Respond to Trump’s Threats to Hit Iran’s Power Plants**\
 `Some Iranians expressed anxiety while others remained skeptical after President Trump told Iran to open the Strait of Hormuz or face attacks on its power grid.`\
 https://nytimes.com/video/video/100000010795414/iran-trump-power-plants.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/03/23/us/trump-news
 **New Cowboys safety Jalen Thompson likes what he sees: 'We got all the right pieces'**\
 `The Cowboys should again have one of the NFL's best offenses. Their defense must close the gap.`\
 https://nytimes.com/athletic/7138771/2026/03/23/cowboys-defense-free-agency-nfl-draft-improvement/
-
-**Lions free-agency roster reset: Analyzing which positions are in good shape or need work**\
-`Edge, offensive tackle, linebacker and safety are among the positions the Lions should still be looking to strengthen.`\
-https://nytimes.com/athletic/7129984/2026/03/23/lions-roster-reset-free-agency-analysis/
-
-**A strong free agency, a division title, high NFLPA marks — things looking up for Panthers**\
-`"I’m really excited to be a part of taking that next step,” free-agent addition Devin Lloyd said of joining the Panthers.`\
-https://nytimes.com/athletic/7138472/2026/03/23/carolina-panthers-free-agency-moves-offseason-2026/
 

@@ -1,3 +1,11 @@
+**The Pulse: A No. 1 seed falls**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7138494/2026/03/23/ncaa-sweet-16-the-pulse/
+
+**This Week in Mets: A good start is imperative and the early schedule looks cushy**\
+`Marcus Semien and other fresh arrivals will learn that a new Met’s first month defines the narrative around him for longer than it should.`\
+https://nytimes.com/athletic/7139833/2026/03/23/mets-opening-day-carlos-mendoza-schedule/
+
 **Iranians Respond to Trump’s Threats to Hit Iran’s Power Plants**\
 `Some Iranians expressed anxiety while others remained skeptical after President Trump told Iran to open the Strait of Hormuz or face attacks on its power grid.`\
 https://nytimes.com/video/video/100000010795414/iran-trump-power-plants.html

@@ -1,3 +1,7 @@
+**Inside Real Madrid: Alexander-Arnold's apology, Bellingham returns, and another big scalp for Arbeloa**\
+`Reaction, analysis and the latest news around the Spanish giants, who beat city rivals Atletico Madrid 3-2 in La Liga on Sunday night`\
+https://nytimes.com/athletic/7140167/2026/03/23/real-madrid-atletico-alexander-arnold-bellingham-arbeloa/
+
 **The Pulse: A No. 1 seed falls**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7138494/2026/03/23/ncaa-sweet-16-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7138256/2026/03/23/maple-leafs-auston-matthews-trad
 **Trump Administration Live Updates: ICE Agents Are Expected to Deploy at U.S. Airports**\
 ``\
 https://nytimes.com/live/2026/03/23/us/trump-news
-
-**New Cowboys safety Jalen Thompson likes what he sees: 'We got all the right pieces'**\
-`The Cowboys should again have one of the NFL's best offenses. Their defense must close the gap.`\
-https://nytimes.com/athletic/7138771/2026/03/23/cowboys-defense-free-agency-nfl-draft-improvement/
 
