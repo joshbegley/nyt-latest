@@ -1,3 +1,11 @@
+**Judge Hears State Challenge to Trump’s Tech Deal Settlement**\
+`Democratic state attorneys general are fighting the Justice Department’s clearance of a $14 billion deal by Hewlett Packard Enterprise, arguing it was ineffective and corrupt.`\
+https://nytimes.com/2026/03/23/technology/hpe-juniper-hearing-settlement.html
+
+**A Sexy Summer Leads to Decades of Trysts — and Heartbreak**\
+`In Kiran Millwood Hargrave’s novel “Almost Life,” a passionate love affair between two college women gives way to a lifetime of what-ifs.`\
+https://nytimes.com/2026/03/23/books/review/almost-life-kiran-millwood-hargrave.html
+
 **Israel Says Its Own Artillery Killed a Farmer, Not a Hezbollah Rocket**\
 `Ofer Moskovitz, 60, an avocado farmer in a kibbutz on Israel’s border with Lebanon, was killed Sunday when the car he was riding in was hit.`\
 https://nytimes.com/2026/03/23/world/middleeast/israel-says-its-own-artillery-killed-a-farmer-not-a-hezbollah-rocket.html
@@ -25,12 +33,4 @@ https://nytimes.com/2026/03/23/climate/offshore-wind-gas-trump-total.html
 **Two Choreographers, Two Visions of Philadelphia Freedom**\
 `Rennie Harris’s “Losing My Religion” and a Matthew Neenan program from BalletX were signs of health in two of the city’s most important dance institutions.`\
 https://nytimes.com/2026/03/23/arts/dance/rennie-harris-matthew-neenan-choreographers-balletx.html
-
-**Three bold (and reasonable and cynical) predictions for the 2026 Giants**\
-`Baseball prediction season can be a drag, but these three Giants prognostications offer a little hope, a little realism and some cynicism.`\
-https://nytimes.com/athletic/7140056/2026/03/23/sf-giants-2026-predictions/
-
-**Voice of America Journalists Sue, Saying Trump Officials Interfered in Coverage**\
-`The journalists said in the complaint that the administration was trying to force them to be a “mouthpiece” and that one official demanded “loyalty” if reporters wanted to “keep their jobs.”`\
-https://nytimes.com/2026/03/23/us/politics/voice-of-america-lawsuit-trump.html
 

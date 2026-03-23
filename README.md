@@ -1,3 +1,7 @@
+**How to watch Grizzlies vs. Hawks: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the Atlanta Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7141201/2026/03/23/grizzlies-vs-hawks-stream-how-to-watch-march-23/
+
 **Judge Hears State Challenge to Trump’s Tech Deal Settlement**\
 `Democratic state attorneys general are fighting the Justice Department’s clearance of a $14 billion deal by Hewlett Packard Enterprise, arguing it was ineffective and corrupt.`\
 https://nytimes.com/2026/03/23/technology/hpe-juniper-hearing-settlement.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2026/03/23/us/supreme-court-voting-late-ballots/the-jus
 **Trump Administration to Pay $1 Billion to Energy Giant to Cancel Wind Farms**\
 `In exchange, the French company TotalEnergies would invest in oil and natural gas projects in Texas and elsewhere.`\
 https://nytimes.com/2026/03/23/climate/offshore-wind-gas-trump-total.html
-
-**Two Choreographers, Two Visions of Philadelphia Freedom**\
-`Rennie Harris’s “Losing My Religion” and a Matthew Neenan program from BalletX were signs of health in two of the city’s most important dance institutions.`\
-https://nytimes.com/2026/03/23/arts/dance/rennie-harris-matthew-neenan-choreographers-balletx.html
 
