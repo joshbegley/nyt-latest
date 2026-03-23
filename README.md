@@ -1,9 +1,17 @@
+**Israel Says Its Own Artillery Killed a Farmer, Not a Hezbollah Rocket**\
+`Ofer Moskovitz, 60, an avocado farmer in a kibbutz on Israel’s border with Lebanon, was killed Sunday when the car he was riding in was hit.`\
+https://nytimes.com/2026/03/23/world/middleeast/israel-says-its-own-artillery-killed-a-farmer-not-a-hezbollah-rocket.html
+
+**Mueller’s Death, and Trump’s Gloating**\
+`Readers respond to Robert Mueller’s death and to President Trump’s coarse reaction. Also: Telephone history; car talk.`\
+https://nytimes.com/2026/03/23/opinion/robert-mueller-trump.html
+
 **One deeply red state, Alaska, may have the most at stake in a mail-in ballots case.**\
 `The nation’s most remote state relies on boats and planes to administer elections, and balloting is often at the mercy of extreme weather.`\
 https://nytimes.com/live/2026/03/23/us/supreme-court-voting-late-ballots/alaska-mail-ballots
 
 **Newcastle's Botman undergoes surgery on facial fracture**\
-`Botman was substituted as part of a concussion protocol in the 54th minute of Newcastle’s 1-0 loss to Sunderland.`\
+`Botman was substituted as part of a concussion protocol in the 54th minute of Newcastle’s 2-1 defeat to Sunderland on Sunday.`\
 https://nytimes.com/athletic/7141073/2026/03/23/sven-botman-surgery-injury-update/
 
 **The justices are taking on a series of other election disputes this term.**\
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7140056/2026/03/23/sf-giants-2026-predictions/
 **Voice of America Journalists Sue, Saying Trump Officials Interfered in Coverage**\
 `The journalists said in the complaint that the administration was trying to force them to be a “mouthpiece” and that one official demanded “loyalty” if reporters wanted to “keep their jobs.”`\
 https://nytimes.com/2026/03/23/us/politics/voice-of-america-lawsuit-trump.html
-
-**For Western Oil Companies, War in Iran Means Bigger Profits, and Risks**\
-`American and European oil and gas companies are expected to earn a lot more as prices surge but are worried about the future.`\
-https://nytimes.com/2026/03/23/business/energy-environment/iran-warn-western-oil-companies-profits.html
-
-**Richard Gadd on the ‘Whole Messy Complicated Subject’ of Manhood**\
-`Richard Gadd, the creator and star of the 2024 hit show “Baby Reindeer,” has a new series, “Half Man.” On “The Interview,” he discussed how both shows offer unflinching explorations of sexual confusion, tortured masculinity, emotional abuse and the impact of trauma (with some dark laughs thrown in).`\
-https://nytimes.com/video/podcasts/100000010795654/richard-gadd-on-the-whole-messy-complicated-subject-of-manhood.html
 
