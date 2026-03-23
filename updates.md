@@ -1,3 +1,15 @@
+**Passenger Jet and Fire Truck Crash at LaGuardia Airport, Leaving 2 Dead**\
+`The two pilots of a Air Canada Express jet were killed after a collision with a Port Authority fire truck on Sunday at LaGuardia Airport in New York. Audio from the tower indicated that an air traffic controller may have been distracted by an earlier incident.`\
+https://nytimes.com/video/nyregion/100000010795871/laguardia-crash-air-canada-fire-truck.html
+
+**Bipartisan bill introduced to ban sports from prediction markets**\
+`"It’s time for Congress to step in and eliminate this backdoor," U.S. Senator Adam Schiff said of prediction markets.`\
+https://nytimes.com/athletic/7141190/2026/03/23/bill-ban-sports-betting-prediction-markets/
+
+**Pentagon Officials Weigh Deployment of Airborne Troops for Iran War**\
+`The combat forces would come from a brigade of about 3,000 soldiers capable of deploying anywhere in the world within 18 hours.`\
+https://nytimes.com/2026/03/23/us/politics/us-airborne-troops-iran.html
+
 **Attack on Jewish Ambulance Service Being Investigated as Hate Crime**\
 `On Monday, four ambulances belonging to a Jewish nonprofit were set on fire. The police said that they were assessing a claim of a video claiming responsibility for the attack and were investigating the incident as an antisemitic hate crime.`\
 https://nytimes.com/video/world/europe/100000010796022/london-ambulance-arson-hate-crime.html
