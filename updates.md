@@ -1,3 +1,11 @@
+**No. 10 seed Virginia stuns Iowa in double overtime, advances to Sweet 16**\
+`Virginia is the first No. 10 seed to advance to the Sweet 16 in four years.`\
+https://nytimes.com/athletic/7141889/2026/03/23/ncaa-tournament-virginia-iowa-upset/
+
+**Iran Negotiations — or Not?**\
+`President Trump’s shifting statements don’t necessarily signal an end in sight to the war, but they do buy him some time.`\
+https://nytimes.com/2026/03/23/world/us-iran-talks-denmark-election.html
+
 **Randy Bennett to become next Arizona State men's basketball coach: Source**\
 `Bennett has spent the last 25 seasons at Saint Mary’s, where he led the Gaels to 12 NCAA Tournaments.`\
 https://nytimes.com/athletic/7141859/2026/03/23/arizona-state-basketball-coach-hire-randy-bennett-st-marys/
