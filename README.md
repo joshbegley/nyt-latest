@@ -1,3 +1,11 @@
+**Did Chappell Roan’s Security Make a Young Girl Cry?**\
+`The singer has denied the allegations of the encounter, which took place in Brazil and had kicked up hot debate online.`\
+https://nytimes.com/2026/03/23/style/chappell-roan-security-guard-brazil-jorginho.html
+
+**Drew Fortescue enjoying comforts of home while beginning his Rangers journey**\
+`Fortescue’s junior season at Boston College ended Friday with a 4-3 overtime loss to UConn in the Hockey East semifinals`\
+https://nytimes.com/athletic/7141389/2026/03/23/rangers-drew-fortescue-pro-debut-close-to-home/
+
 **Tracking Wait Times at Major U.S. Airports**\
 `Travelers are facing long lines at airport security as the partial government shutdown has strained T.S.A. staffing. The New York Times is tracking the latest available wait times across the country.`\
 https://nytimes.com/interactive/2026/us/tsa-wait-times-us-airports.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010796500/the-best-sar
 **MacBook Neo Is the Best ‘Budget’ Laptop**\
 `Apple released its cheapest MacBook ever. But is it any good? Here’s what our laptop experts found.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010796369/macbook-neo-is-the-best-budget-laptop.html
-
-**This Sweater Is Trendy and Timeless**\
-`After hunting high and low, style writer Hannah Frye finally found it: a cotton sweater she can wear year-round. Designed in 1988, the J. Crew Rollneck Cotton Sweater has all the vintage-y feels, only new.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010796195/this-sweater-is-trendy-and-timeless.html
-
-**These Teeny Turners Make a Great Gift**\
-`Who knew a screwdriver could be so adorable?`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010795895/these-teeny-turners-make-a-great-gift.html
 
