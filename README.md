@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2026/03/23/business/energy-environment/oil-importers-middle-east-iran-war.html
 
 **In California, a Republican Sheriff Seizes Ballots, Prompting Criticism**\
-`Riverside County Sheriff Chad Bianco, a candidate for governor, recently took possession of  more than 650,000 ballots as part of a fraud probe. Election officials say his investigation is baseless.`\
+`Riverside County Sheriff Chad Bianco, a candidate for governor, recently took possession of more than 650,000 ballots as part of a fraud probe. Election officials say his investigation is baseless.`\
 https://nytimes.com/2026/03/23/us/politics/california-ballot-seizure-elections.html
 
 **I Love My Dyslexic Brain**\
