@@ -1,3 +1,15 @@
+**Suspect in Chicago Student’s Killing Was in U.S. Illegally, D.H.S. Says**\
+`Sheridan Gorman, 18, was killed last week near Loyola University Chicago. The Trump administration said a man charged with murder in the case was in the country without permission.`\
+https://nytimes.com/2026/03/22/us/loyola-student-death-arrest.html
+
+**The Balance That Keeps Climate Stable Is Out of Whack, U.N. Report Finds**\
+`The continued burning of fossil fuels is locking heat in Earth’s atmosphere, oceans and land — instead of allowing it to reflect back into space, a new report finds.`\
+https://nytimes.com/2026/03/22/climate/energy-imbalance-un-report.html
+
+**‘The Comeback’ Season 3 Premiere Recap: The Old Razzle-Dazzle**\
+`The HBO comedy returned for a new season on Sunday, more than 11 years after the previous one.`\
+https://nytimes.com/2026/03/22/arts/television/the-comeback-season-3-premiere-recap.html
+
 **Darryn Peterson's brilliance undeniable in a season defined by what could have been**\
 `Kansas, in the end, got a season that somehow managed to confirm everything while still leaving something completely ajar.`\
 https://nytimes.com/athletic/7139805/2026/03/22/darryn-peterson-kansas-nba-draft-ncaa-tournament/
