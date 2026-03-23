@@ -1,3 +1,23 @@
+**Man Utd's Mbeumo, Sesko withdraw from international duty**\
+`United expect both forwards to be available for their next match, at home to Leeds United in the Premier League on April 13.`\
+https://nytimes.com/athletic/7140464/2026/03/23/mbeumo-sesko-manchester-united-injury-news/
+
+**Team-mates told to find new clubs after 'inexcusable' on-pitch altercation**\
+`Bruno Andrade Tyler Winters of Rushden & Diamonds were sent off against Loughborough Students on Saturday. `\
+https://nytimes.com/athletic/7140444/2026/03/23/rushden-and-diamonds-andrade-winters-fight/
+
+**2026 Athletics watch guide: Updates on TV territory, relocation and streaming**\
+`The Athletics no longer have a home city in their title, but they still have a regional sports network in NBC Sports California.`\
+https://nytimes.com/athletic/7135715/2026/03/23/athletics-sacramento-las-vegas-how-to-watch-2026/
+
+**Inside Barcelona: Winning ugly, Lewandowski latest and Bastoni interest**\
+`Our Barcelona correspondents share their latest news and information on the biggest talking points around the Catalan club`\
+https://nytimes.com/athletic/7140309/2026/03/23/barcelona-rayo-transfers-bastoni-lewandowski-alvarez/
+
+**Serie A briefing: Juventus choke against Sassuolo, Italy hopes national team won't do the same**\
+`With some of Italy's top teams — and their stars — stuttering, Gattuso will hope the form does not spread to the World Cup play-offs`\
+https://nytimes.com/athletic/7140246/2026/03/23/serie-a-juventus-sassuolo-italy-world-cup/
+
 **College baseball week in review: Texas takes series at Auburn, Mainieri out at South Carolina**\
 `Alabama sweeps Florida, highlighted by a no-hitter from Tyler Fay. UCF off to a hot start in Big 12 play. `\
 https://nytimes.com/athletic/7139699/2026/03/23/college-baseball-texas-auburn-paul-mainieri/
@@ -17,24 +37,4 @@ https://nytimes.com/live/2026/03/23/nyregion/laguardia-airport-plane-crash-truck
 **Inside Newcastle Q&A: Chris Waugh answers your questions**\
 `Post your questions to our Newcastle writer Chris Waugh, who will endeavour to answer as many as possible`\
 https://nytimes.com/athletic/7140176/2026/03/23/inside-newcastle-qa-howe-derby-defeat/
-
-**Is the Knicks’ bench better equipped for a deep playoff run in 2026?**\
-`How much will the Knicks rely on their bench in the postseason? They have more options this season than they did last season.`\
-https://nytimes.com/athletic/7130834/2026/03/23/knicks-depth-chart-bench-roster-2026-nba-playoffs/
-
-**Crash at LaGuardia Airport Cancels at Least 500 Flights. Here’s What to Know.**\
-`A collision between a plane and a fire truck on the tarmac has disrupted travel to and from the busy New York hub.`\
-https://nytimes.com/2026/03/23/travel/laguardia-airport-crash-flights-canceled-faa.html
-
-**In defence of showboating: Why Cherki's ball-juggling was fun, not infuriating**\
-`Don't get worked up by the Manchester City midfielder's maverick moment — it's part of what makes the game fun`\
-https://nytimes.com/athletic/7140255/2026/03/23/rayan-cherki-showboat-ball-juggling/
-
-**How to watch the 2026 Kansas City Royals: Streaming info for Bobby Witt Jr.'s squad**\
-`In-market Royals fans have a new way to watch their favorite team in 2026. Here's how to catch every Kansas City game this season.`\
-https://nytimes.com/athletic/7139695/2026/03/23/kansas-city-royals-streaming-how-to-watch-2026/
-
-**White receives England call-up for first time since 2022 World Cup**\
-`The Arsenal right-back replaces Jarell Quansah, who pulled out of the squad with a left thigh injury. `\
-https://nytimes.com/athletic/7140421/2026/03/23/ben-white-england-arsenal-world-cup/
 
