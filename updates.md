@@ -1,3 +1,7 @@
+**MacBook Neo Is the Best ‘Budget’ Laptop**\
+`Apple released its cheapest MacBook ever. But is it any good? Here’s what our laptop experts found.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010796369/macbook-neo-is-the-best-budget-laptop.html
+
 **This Sweater Is Trendy and Timeless**\
 `After hunting high and low, style writer Hannah Frye finally found it: a cotton sweater she can wear year-round. Designed in 1988, the J. Crew Rollneck Cotton Sweater has all the vintage-y feels, only new.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010796195/this-sweater-is-trendy-and-timeless.html

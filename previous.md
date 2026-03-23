@@ -1,3 +1,7 @@
+**MacBook Neo Is the Best ‘Budget’ Laptop**\
+`Apple released its cheapest MacBook ever. But is it any good? Here’s what our laptop experts found.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010796369/macbook-neo-is-the-best-budget-laptop.html
+
 **This Sweater Is Trendy and Timeless**\
 `After hunting high and low, style writer Hannah Frye finally found it: a cotton sweater she can wear year-round. Designed in 1988, the J. Crew Rollneck Cotton Sweater has all the vintage-y feels, only new.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010796195/this-sweater-is-trendy-and-timeless.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7141644/2026/03/23/oklahoma-state-vs-ucla-stream-ho
 **USMNT’s Pepi proposed Fulham transfer in doubt after talks with PSV break down**\
 `The USMNT forward travelled to London for a medical and negotiations with the Premier League side ahead of a proposed summer transfer.`\
 https://nytimes.com/athletic/7141506/2026/03/23/usmnt-pepi-psv-fulham-transfer-news/
-
-**How to watch Nets vs. Trail Blazers: Time, TV, streaming**\
-`Find out how to watch the Brooklyn Nets play the Portland Trail Blazers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7141570/2026/03/23/nets-vs-trail-blazers-stream-how-to-watch-march-23/
 
