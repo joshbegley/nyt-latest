@@ -1,3 +1,11 @@
+**Eagles depth chart analysis: Major changes in secondary; more to come on O-line, edge**\
+`The Eagles made several moves to reshape their depth chart, but more activity is expected.`\
+https://nytimes.com/athletic/7138879/2026/03/23/eagles-depth-chart-analysis/
+
+**Postal Service Changes Could Cause Delays for Votes Cast by Mail**\
+`The Supreme Court is hearing a case on ballots that are postmarked by but arrive after Election Day.`\
+https://nytimes.com/2026/03/23/us/elections/postal-service-mail-in-ballots.html
+
 **How to watch Kentucky vs. West Virginia women's basketball: Second Round Time, TV, streaming**\
 `Find out how to watch the Kentucky Wildcats play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7140636/2026/03/23/kentucky-vs-west-virginia-stream-how-to-watch-march-23/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7140085/2026/03/23/twins-opening-day-bullpen-roster
 **Chandler Morris details mental health struggles cited in suit vs. NCAA for seventh season**\
 `The "fire was kind of fizzling out inside of me,” Chandler Morris told The Athletic in a joint interview with his father, Chad Morris.`\
 https://nytimes.com/athletic/7138692/2026/03/23/chandler-morris-ncaa-eligibility-lawsuit-mental-health/
-
-**14 States’ Laws on Late-Arriving Mail Ballots Could Be Affected by a Supreme Court Case**\
-`The laws — and ballot grace periods — vary from state to state.`\
-https://nytimes.com/2026/03/23/us/elections/states-mail-ballots.html
-
-**Here’s the latest.**\
-`By Abbie VanSickle`\
-https://nytimes.com/live/2026/03/23/us/supreme-court-voting-late-ballots/heres-the-latest
 

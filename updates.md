@@ -1,3 +1,11 @@
+**Eagles depth chart analysis: Major changes in secondary; more to come on O-line, edge**\
+`The Eagles made several moves to reshape their depth chart, but more activity is expected.`\
+https://nytimes.com/athletic/7138879/2026/03/23/eagles-depth-chart-analysis/
+
+**Postal Service Changes Could Cause Delays for Votes Cast by Mail**\
+`The Supreme Court is hearing a case on ballots that are postmarked by but arrive after Election Day.`\
+https://nytimes.com/2026/03/23/us/elections/postal-service-mail-in-ballots.html
+
 **How to watch Kentucky vs. West Virginia women's basketball: Second Round Time, TV, streaming**\
 `Find out how to watch the Kentucky Wildcats play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7140636/2026/03/23/kentucky-vs-west-virginia-stream-how-to-watch-march-23/
