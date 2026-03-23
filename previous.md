@@ -1,40 +1,40 @@
-**W.N.B.A. Players Getting Paid, N.B.A. Expanding & the Weight of the 1-Seed**\
-`Plus, which Western Conference team is getting shipped East?`\
-https://nytimes.com/2026/03/23/us/wnba-players-pay-nba-expanding-weight-of-the-1-seed.html
+**Which Countries Depend the Most on Persian Gulf Oil and Gas**\
+`Nations thousands of miles away from war are feeling the pain of their energy supplies suddenly vanishing. Some are feeling the loss more acutely than others.`\
+https://nytimes.com/interactive/2026/03/23/business/energy-environment/oil-importers-middle-east-iran-war.html
 
-**Taiwan Debates Military Spending as Choices Over U.S. and China Loom**\
-`Tensions in the opposition Nationalist Party could surface this week as lawmakers debate defense funding intended to counter Beijing’s growing might.`\
-https://nytimes.com/2026/03/23/world/asia/taiwan-defense-budget-china-us.html
+**In California, a Republican Sheriff Seizes Ballots, Prompting Criticism**\
+`Riverside County Sheriff Chad Bianco, a candidate for governor, recently took possession of  more than 650,000 ballots as part of a fraud probe. Election officials say his investigation is baseless.`\
+https://nytimes.com/2026/03/23/us/politics/california-ballot-seizure-elections.html
 
-**Arsenal's Saliba out of France's friendlies, Lacroix called up**\
-`The FFF in a statement that Saliba is suffering from "recurring pain his his left ankle", which would require a minimum of 10 days' rest.`\
-https://nytimes.com/athletic/7140144/2026/03/23/saliba-france-squad-maxence-lacroix/
+**I Love My Dyslexic Brain**\
+`Donald Trump’s insults alway say more about him than the people he is trying to mock.`\
+https://nytimes.com/2026/03/23/opinion/dyslexia-gavin-newsom-trump-insults.html
 
-**Plane Collides With Vehicle at LaGuardia Airport**\
-`Emergency crews swarmed a damaged Air Canada Express plane with a sheared off nose at LaGuardia Airport.`\
-https://nytimes.com/video/us/100000010795471/laguardia-plane-crash-air-canada.html
+**Should I Stop Dyeing My Gray Hair?**\
+`Going gray is a natural part of growing older, but it’s not always obvious when to let nature take its course. Our critic offers tips for doing it in style.`\
+https://nytimes.com/2026/03/23/fashion/gray-hair-natural-dye.html
 
-**Live Updates: LaGuardia Shut Down After Jet Collides With Vehicle**\
-`The airport was closed early Monday as emergency crews swarmed a damaged Air Canada Express plane on a runway. There was no immediate confirmation of deaths or injuries.`\
-https://nytimes.com/live/2026/03/23/nyregion/laguardia-airport-plane-crash-truck
+**Blackface: A Shameful History as American as Apple Pie**\
+`A new book by Rhae Lynn Barnes examines how minstrelsy once occupied the center of the nation’s cultural life.`\
+https://nytimes.com/2026/03/23/books/review/rhae-lynn-barnes-darkology-blackface.html
 
-**Jewish and Muslim People Face a Wave of Hate. Can Schools Turn the Tide?**\
-`New York City is rolling out lessons on Jewish and Muslim American history. Too often, some leaders say, what students know comes from TikTok and social media.`\
-https://nytimes.com/2026/03/23/nyregion/nyc-schools-jewish-muslim-history-lessons.html
+**War’s Attacks on Energy Could Turn Economic Shock Into Long-Term Damage**\
+`A new phase targeting oil and gas infrastructure in the Persian Gulf threatens to hurt businesses and customers around the world for months or even years.`\
+https://nytimes.com/2026/03/23/business/economy/iran-war-oil-gas-global-economy.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/03/23/crosswords/spelling-bee-forum.html
+**America and Israel United to Fight Iran. Both Will Pay a Price.**\
+`Different tactics and strategies helped the alliance work.`\
+https://nytimes.com/2026/03/23/opinion/america-israel-iran-war.html
 
-**London Jewish Community Ambulance Service Hit by Arson Attack**\
-`The Metropolitan Police said on Monday that it was investigating the episode as an antisemitic hate crime.`\
-https://nytimes.com/2026/03/23/us/jewish-ambulances-fire-london.html
+**Do We Really Need to Wager on the Chances of Nuclear Armageddon?**\
+`Prediction markets teach us to look at the future as gamblers, rather than as citizens.`\
+https://nytimes.com/2026/03/23/opinion/prediction-markets-gambling.html
 
-**Iran War Live Updates: Power Outages Are Reported in Tehran as Israel Launches Strikes**\
-`Residents reported widespread power outages across the capital. Israel’s military said it had begun a new wave of airstrikes targeting infrastructure in the city, but did not provide further details.`\
-https://nytimes.com/live/2026/03/23/world/iran-war-oil-trump
+**As Arctic Threats Rise, Canada May Need to Lean on the United States**\
+`For the past seven decades, Canada has been the junior partner in a military agreement with the United States to protect the Canadian Arctic.`\
+https://nytimes.com/2026/03/23/world/americas/canada-us-arctic-military-norad.html
 
-**Here’s the latest.**\
-`By Aaron Boxerman, Julian Barnes, Isabel Kershner and Yan Zhuang`\
-https://nytimes.com/live/2026/03/23/world/iran-war-oil-trump/heres-the-latest
+**What Is Good in Your Life Lately?**\
+`If you were to make a list of things that have given you joy, inspiration or hope recently, what would be on it?`\
+https://nytimes.com/2026/03/23/learning/what-is-good-in-your-life-lately.html
 
