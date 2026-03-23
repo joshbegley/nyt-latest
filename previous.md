@@ -1,40 +1,40 @@
-**Connections: Sports Edition Coach: Hints and answers for March 23, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7139997/2026/03/23/connections-sports-edition-hints-answers-march-23-2026/
+**Kansas coach Bill Self noncommittal about return**\
+`SAN DIEGO — Kansas coach Bill Self left open the possibility Sunday that the Jayhawks&#8217; season-ending loss to St.`\
+https://nytimes.com/athletic/7140000/2026/03/23/kansas-coach-bill-self-noncommittal-about-return-to-jayhawks/
 
-**Caught Between Two Conflicts, Afghans Flee Iran**\
-`The war in Iran is choking off Afghanistan’s main economic lifeline and has forced at least 70,000 Afghan workers and students there back home to a nation embroiled in another conflict.`\
-https://nytimes.com/2026/03/23/world/asia/iran-afghanistan-border-refugees.html
+**Howe's future, striker signings, brutal transfer decisions and more ways to fix Newcastle United**\
+`The people running this club need to make big decisions on these eight things to get them back on track`\
+https://nytimes.com/athletic/7138204/2026/03/23/newcastle-premier-league-champions-league-howe/
 
-**First look at the men's Sweet 16: Reasons to be excited about each matchup**\
-`The entire Sweet 16 field comes from one of the five power conferences, but 10 of the 16 are chasing their first NCAA Tournament title.`\
-https://nytimes.com/athletic/7139001/2026/03/23/ncaa-tournament-sweet-16-games-schedule-matchups/
+**Tottenham's fans did their bit. Then the football started – and everything went wrong**\
+`There was a huge atmosphere for Nottingham Forest's visit but another defeat makes relegation seem closer than ever`\
+https://nytimes.com/athletic/7130788/2026/03/23/tottenham-hotspur-relegation-threat/
 
-**In Denmark’s Election, How Will the Woman Who Took On Trump Fare?**\
-`Prime Minister Mette Frederiksen is the biggest force this country has seen in decades. The crisis in Greenland has energized her, but are voters itching for change?`\
-https://nytimes.com/2026/03/23/world/asia/denmark-elections-frederiksen-hometown.html
+**The emotional impact for Man Utd fans being moved: 'I have my dad's seat number tattooed on my arm'**\
+`Manchester United are moving more than 500 season ticket holders in the Sir Bobby Charlton stand`\
+https://nytimes.com/athletic/7135926/2026/03/23/man-utd-season-tickets-fans-moved/
 
-**No Corrections: March 23, 2026**\
-`No corrections appeared in print on Monday, March 23, 2026.`\
-https://nytimes.com/2026/03/23/corrections/no-corrections-march-23-2026.html
+**I spent seven hours on the sofa watching football. It was emotional**\
+`A gritty derby with an underdog victor, glory for City, pain for Arsenal, a rousing win for Forest... and just another day for Spurs`\
+https://nytimes.com/athletic/7137944/2026/03/23/premier-league-carabao-tv/
 
-**How Obama’s Strategist Discouraged Biden From Running in 2016**\
-`In a new set of oral histories, David Plouffe, President Barack Obama’s political adviser, described how he urged Vice President Joseph R. Biden Jr. not to challenge Hillary Clinton for the nomination.`\
-https://nytimes.com/2026/03/23/us/politics/obama-strategist-biden-2016-election.html
+**Are Chelsea edging towards a crisis?**\
+`There are clubs queueing up behind them, and it now feels like no European football at all next season is a possibility`\
+https://nytimes.com/athletic/7137953/2026/03/23/chelsea-crisis-liam-rosenior/
 
-**Quote of the Day: War Descends On Shorefront In Posh Beirut**\
-`Quotation of the Day for Monday, March 23, 2026.`\
-https://nytimes.com/2026/03/23/pageoneplus/quote-of-the-day-war-descends-on-shorefront-in-posh-beirut.html
+**Could the Premier League's teenage talents be a fix for dull, stale football?**\
+`Younger players tend to carry out more actions that inject excitement into a game. Could more minutes for them make a difference?`\
+https://nytimes.com/athletic/7137544/2026/03/23/premier-league-teenagers-analysis-josh-king/
 
-**Why the Dodgers named Alex Freeland to Opening Day roster over Hyeseong Kim**\
-`Freeland's approach made an impression on the Dodgers. In the rotation, Roki Sasaki's inconsistency prompts a backup plan. `\
-https://nytimes.com/athletic/7139655/2026/03/22/dogers-alex-freeland-hyeseong-kim/
+**The New York Times in Print for Monday, March 23, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/23/todays-new-york-times
 
-**Suspect in Chicago Student’s Killing Was in U.S. Illegally, D.H.S. Says**\
-`Sheridan Gorman, 18, was killed last week near Loyola University Chicago. The Trump administration has sought to highlight crimes committed by undocumented people in its deportation campaign.`\
-https://nytimes.com/2026/03/22/us/loyola-student-death-arrest.html
+**‘Something Very Bad Is Going to Happen,’ Plus 6 Things to Watch on TV This Week**\
+`A new horror thriller premieres and Miley Cyrus celebrates the 20th anniversary of “Hannah Montana.”`\
+https://nytimes.com/2026/03/23/arts/television/something-very-bad-is-going-to-happen-plus-6-things-to-watch-on-tv-this-week.html
 
-**The Balance That Keeps Climate Stable Is Out of Whack, U.N. Report Finds**\
-`The continued burning of fossil fuels is locking heat in Earth’s atmosphere, oceans and land — instead of allowing it to reflect back into space, a new report finds.`\
-https://nytimes.com/2026/03/22/climate/energy-imbalance-un-report.html
+**She Transformed Denmark, but What Else Does She Stand For?**\
+`Whatever Mette Frederiksen does next, Denmark has fundamentally changed.`\
+https://nytimes.com/2026/03/23/opinion/denmark-mette-frederiksen-election.html
 
