@@ -1,3 +1,15 @@
+**With Anton Frondell on the way, Ryan Greene and Nick Lardis look to keep top-six spots**\
+`Greene has exceeded his own expectations this season, but he might be bound for a less prominent role in the homestretch of the season.`\
+https://nytimes.com/athletic/7139414/2026/03/22/blackhakws-anton-frondell-ryan-greene-nick-lardis/
+
+**St. John's heads to Sweet 16 for first time since 1999 after beating Kansas at the buzzer**\
+`Dylan Darling, who hadn't make a single bucket through 40 minutes, sent St. John's to the Sweet 16 with a driving bucket at the buzzer. `\
+https://nytimes.com/athletic/7139524/2026/03/22/st-johns-kansas-rick-pitino-dylan-darling/
+
+**Jeff Webb, Who Built a Competitive Cheerleading Empire, Dies at 76**\
+`Through Varsity Spirit, the company he established in 1974, he turned cheerleading into a multibillion-dollar juggernaut and exerted control over almost every aspect of it.`\
+https://nytimes.com/2026/03/22/business/jeff-webb-dead-cheerleading.html
+
 **Pro-Palestinian Activists Rally in Support of Freed Columbia Protester**\
 `After speaking alongside city officials in Paterson, N.J., Leqaa Kordia, who was recently released after a year in ICE detention, led a crowd in chants of “globalize the intifada.”`\
 https://nytimes.com/2026/03/22/nyregion/columbia-protester-palestinian-ice-detention-new-jersey.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7139260/2026/03/22/inter-miami-messi-nycfc-mls/
 **How the G.O.P. and Democrats Are Talking About the Surge in Gas Prices**\
 `Republicans have largely been on defense against Democratic criticism. Here are five arguments advanced by figures in both parties.`\
 https://nytimes.com/2026/03/22/us/politics/republicans-democrats-gas-prices-comments-midterms.html
-
-**Wisconsin defeats Ohio State to win back-to-back NCAA women’s hockey championships**\
-`It took the high-octane Badgers’ offense just 78 seconds to open the scoring as they defeated the Buckeyes 3-2 on Sunday.`\
-https://nytimes.com/athletic/7139405/2026/03/22/wisconsin-ohio-state-ncaa-hockey-womens-championship/
-
-**Tessa Dellarose scores first pro goal as Chicago Stars upset Kansas City**\
-`On a day when the wind dictated the style, Chicago proved they could win, even when it's not pretty. `\
-https://nytimes.com/athletic/7139170/2026/03/22/chicago-stars-kansas-city-current-tessa-dellarose-debut-goal-wind/
-
-**Reds' Nick Lodolo leaves Cactus League finale early with a blister**\
-`Lodolo has spent time on the IL each of the past two seasons with blister issues.`\
-https://nytimes.com/athletic/7139383/2026/03/22/reds-nick-lodolo-injury-blister/
 
