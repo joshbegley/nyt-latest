@@ -1,3 +1,15 @@
+**Trader Joe’s Dip Head-to-Head Taste Test**\
+`Save yourself from the vorp! Emmy Cho visited the Wirecutter kitchen to help us crown the best dip from Trader Joe’s. Watch the full YouTube episode before your next TJ’s run for all the dip tips.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010796536/trader-joes-dip-head-to-head-taste-test.html
+
+**Phillies' smooth spring, punctuated by Zack Wheeler, gives reason for optimism**\
+`A good spring doesn't guarantee a thing, but the Phillies felt like their six weeks were a success — especially with their ace on the mend. `\
+https://nytimes.com/athletic/7141666/2026/03/23/phillies-spring-training-zack-wheeler-return/
+
+**The Best Sardines**\
+`Sardine’s PR team has been working overtime recently, but we’ve been long-time fans of the tinned fish.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010796500/the-best-sardines.html
+
 **MacBook Neo Is the Best ‘Budget’ Laptop**\
 `Apple released its cheapest MacBook ever. But is it any good? Here’s what our laptop experts found.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010796369/macbook-neo-is-the-best-budget-laptop.html
@@ -14,7 +26,7 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010795895/these-teeny-
 `Sorry, but that t-shirt hem is not cutting it.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010795866/dont-wipe-eyeglasses-on-your-shirt.html
 
-**‘Everything After This Will Be Harder’: General Stanley McChrystal on Iran**\
+**‘Everything After This Will Be Harder’: Gen. Stanley McChrystal on Iran**\
 `David French talks with the retired general about the “great seduction” America fell for in Iran.`\
 https://nytimes.com/2026/03/23/opinion/trump-iran-general-mcchrystal.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010795810/robby-hoffma
 **Supreme Court Rejects Appeal From Death Row Inmate Seeking DNA Testing**\
 `Rodney Reed’s quest over the last decade to obtain DNA testing to try to prove his innocence has attracted wide attention.`\
 https://nytimes.com/2026/03/23/us/politics/supreme-court-death-row-appeal.html
-
-**Welcome to Money in Politics in the Age of A.I.**\
-`We can’t let crypto and A.I. buy the policies they want.`\
-https://nytimes.com/2026/03/23/opinion/crypto-ai-politics.html
-
-**How to watch Oklahoma State vs. UCLA women's basketball: Second Round Time, TV, streaming**\
-`Find out how to watch the Oklahoma State Cowgirls play the UCLA Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7141644/2026/03/23/oklahoma-state-vs-ucla-stream-how-to-watch-march-23/
-
-**USMNT’s Pepi proposed Fulham transfer in doubt after talks with PSV break down**\
-`The USMNT forward travelled to London for a medical and negotiations with the Premier League side ahead of a proposed summer transfer.`\
-https://nytimes.com/athletic/7141506/2026/03/23/usmnt-pepi-psv-fulham-transfer-news/
 

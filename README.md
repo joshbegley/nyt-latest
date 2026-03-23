@@ -1,3 +1,19 @@
+**Tracking Wait Times at Major U.S. Airports**\
+`Travelers are facing long lines at airport security as the partial government shutdown has strained T.S.A. staffing. The New York Times is tracking the latest available wait times across the country.`\
+https://nytimes.com/interactive/2026/us/tsa-wait-times-us-airports.html
+
+**Trump Faces Blowback on Easing Iran Oil Sanctions**\
+`President Trump once assailed the Obama administration for making cash payments to Iran. Now he supports sanctions relief that could give the country a $14 billion windfall.`\
+https://nytimes.com/2026/03/23/business/trump-iran-sanctions-relief-oil.html
+
+**Raptors sign former No. 1 pick Markelle Fultz to 10-day contract**\
+`The top pick from 2017 had been playing for the Raptors' affiliate in the G League. `\
+https://nytimes.com/athletic/7141659/2026/03/23/markelle-fultz-toronto-raptors-contract-nba/
+
+**Cincinnati hiring Utah State's Jerrod Calhoun as next head coach: Sources**\
+`Calhoun, who has done more with less at Utah State, will have a chance to lead his alma mater back to prominence.`\
+https://nytimes.com/athletic/7137133/2026/03/23/cincinnati-jerrod-calhoun-head-coach/
+
 **Trader Joe’s Dip Head-to-Head Taste Test**\
 `Save yourself from the vorp! Emmy Cho visited the Wirecutter kitchen to help us crown the best dip from Trader Joe’s. Watch the full YouTube episode before your next TJ’s run for all the dip tips.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010796536/trader-joes-dip-head-to-head-taste-test.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010796195/this-sweater
 **These Teeny Turners Make a Great Gift**\
 `Who knew a screwdriver could be so adorable?`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010795895/these-teeny-turners-make-a-great-gift.html
-
-**Don’t Wipe Eyeglasses On Your Shirt**\
-`Sorry, but that t-shirt hem is not cutting it.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010795866/dont-wipe-eyeglasses-on-your-shirt.html
-
-**‘Everything After This Will Be Harder’: Gen. Stanley McChrystal on Iran**\
-`David French talks with the retired general about the “great seduction” America fell for in Iran.`\
-https://nytimes.com/2026/03/23/opinion/trump-iran-general-mcchrystal.html
-
-**Robby Hoffman Judges Dealbreakers**\
-`Fellas! Do not let Robby Hoffman see you walking around with your ankles out. Robby stopped by to share her dating dealbreakers (for those of you who are not blissfully married to Gabby Windey) and lament modern dishwashers.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010795810/robby-hoffman-judges-dealbreakers.html
-
-**Supreme Court Rejects Appeal From Death Row Inmate Seeking DNA Testing**\
-`Rodney Reed’s quest over the last decade to obtain DNA testing to try to prove his innocence has attracted wide attention.`\
-https://nytimes.com/2026/03/23/us/politics/supreme-court-death-row-appeal.html
 
