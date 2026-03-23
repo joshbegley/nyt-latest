@@ -1,3 +1,7 @@
+**Serie A briefing: Juventus choke against Sassuolo, Italy hopes national team won't do the same**\
+`With some of Italy's top teams — and their stars — stuttering, Gattuso will hope the form does not spread to the World Cup play-offs`\
+https://nytimes.com/athletic/7140246/2026/03/23/serie-a-juventus-sassuolo-italy-world-cup/
+
 **College baseball week in review: Texas takes series at Auburn, Mainieri out at South Carolina**\
 `Alabama sweeps Florida, highlighted by a no-hitter from Tyler Fay. UCF off to a hot start in Big 12 play. `\
 https://nytimes.com/athletic/7139699/2026/03/23/college-baseball-texas-auburn-paul-mainieri/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7140255/2026/03/23/rayan-cherki-showboat-ball-juggl
 **How to watch the 2026 Kansas City Royals: Streaming info for Bobby Witt Jr.'s squad**\
 `In-market Royals fans have a new way to watch their favorite team in 2026. Here's how to catch every Kansas City game this season.`\
 https://nytimes.com/athletic/7139695/2026/03/23/kansas-city-royals-streaming-how-to-watch-2026/
-
-**White receives England call-up for first time since 2022 World Cup**\
-`The Arsenal right-back replaces Jarell Quansah, who pulled out of the squad with a left thigh injury. `\
-https://nytimes.com/athletic/7140421/2026/03/23/ben-white-england-arsenal-world-cup/
 
