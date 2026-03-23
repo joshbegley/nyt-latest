@@ -1,3 +1,15 @@
+**How to watch Kentucky vs. West Virginia women's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Kentucky Wildcats play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7140636/2026/03/23/kentucky-vs-west-virginia-stream-how-to-watch-march-23/
+
+**Trump Is Digging Up Washington. Can Lawsuits Stop the Bulldozers?**\
+`As the president develops plans to fundamentally alter the White House, the Kennedy Center and other sites, federal lawsuits are beginning to catch up.`\
+https://nytimes.com/2026/03/23/us/politics/trump-ballroom-kennedy-center-lawsuits.html
+
+**How to watch Notre Dame vs. Ohio State women's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Notre Dame Fighting Irish play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7140628/2026/03/23/notre-dame-vs-ohio-state-stream-how-to-watch-march-23/
+
 **Postmarks Are Good Enough for Taxes, Contracts and Court Filings. What About Ballots?**\
 `The appeals court that struck down a Mississippi law on mail-in ballots ruled that voting requires a different approach from other areas of the law.`\
 https://nytimes.com/2026/03/23/us/elections/postmark-court-filings.html
