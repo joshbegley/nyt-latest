@@ -1,3 +1,11 @@
+**Jewish and Muslim People Face a Wave of Hate. Can Schools Turn the Tide?**\
+`New York City is rolling out lessons on Jewish and Muslim American history. Too often, some leaders say, what students know comes from TikTok and social media.`\
+https://nytimes.com/2026/03/23/nyregion/nyc-schools-jewish-muslim-history-lessons.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/23/crosswords/spelling-bee-forum.html
+
 **London Jewish Community Ambulance Service Hit by Arson Attack**\
 `The Metropolitan Police said on Monday that it was investigating the episode as an antisemitic hate crime.`\
 https://nytimes.com/2026/03/23/us/jewish-ambulances-fire-london.html
