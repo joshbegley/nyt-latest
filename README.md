@@ -1,3 +1,19 @@
+**USMNT’s Pepi proposed Fulham transfer in doubt after talks with PSV break down**\
+`The USMNT forward travelled to London for a medical and negotiations with the Premier League side ahead of a proposed summer transfer.`\
+https://nytimes.com/athletic/7141506/2026/03/23/usmnt-pepi-psv-fulham-transfer-news/
+
+**How to watch Nets vs. Trail Blazers: Time, TV, streaming**\
+`Find out how to watch the Brooklyn Nets play the Portland Trail Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7141570/2026/03/23/nets-vs-trail-blazers-stream-how-to-watch-march-23/
+
+**How to watch Warriors vs. Mavericks: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the Dallas Mavericks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7141565/2026/03/23/warriors-vs-mavericks-stream-how-to-watch-march-23/
+
+**How to watch Bucks vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the Milwaukee Bucks play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7141545/2026/03/23/bucks-vs-clippers-stream-how-to-watch-march-23/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>There&#8217;s quite a bit going on these days. What&#8217;s on your mind?</p>
 <p>Leave your questions here. Please include your city.</p>
@@ -23,20 +39,4 @@ https://nytimes.com/2026/03/23/arts/television/bill-cosby-verdict-lawsuit-donna-
 **What have Dybantsa, Peterson and more NBA Draft prospects shown in March Madness?**\
 `The first weekend of the NCAA Tournament has come and gone, and it was a loaded bracket of talent for NBA scouts to check out.`\
 https://nytimes.com/athletic/7135884/2026/03/23/nba-draft-prospects-ncaa-tournament-aj-dybantsa-darryn-peterson/
-
-**Masters mailbag: Submit your questions for golf reporter Gabby Herzig**\
-`<p>We are two weeks away from the sports world descending on Augusta, Georgia, for this year&#8217;s Masters tournament.`\
-https://nytimes.com/athletic/7141460/2026/03/23/masters-mailbag-submit-your-questions-for-golf-reporter-gabby-herzig/
-
-**Passenger Jet and Fire Truck Crash at LaGuardia Airport, Leaving 2 Dead**\
-`The two pilots of a Air Canada Express jet were killed after a collision with a Port Authority fire truck on Sunday at LaGuardia Airport in New York.`\
-https://nytimes.com/video/nyregion/100000010795871/laguardia-crash-air-canada-fire-truck.html
-
-**Bipartisan bill introduced to ban sports from prediction markets**\
-`"It’s time for Congress to step in and eliminate this backdoor," U.S. Senator Adam Schiff said of prediction markets.`\
-https://nytimes.com/athletic/7141190/2026/03/23/bill-ban-sports-betting-prediction-markets/
-
-**Attack on Jewish Ambulance Service Being Investigated as Hate Crime**\
-`On Monday, four ambulances belonging to a Jewish nonprofit were set on fire. The police said that they were assessing a claim of a video claiming responsibility for the attack and were investigating the incident as an antisemitic hate crime.`\
-https://nytimes.com/video/world/europe/100000010796022/london-ambulance-arson-hate-crime.html
 
