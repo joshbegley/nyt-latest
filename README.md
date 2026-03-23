@@ -1,3 +1,11 @@
+**Death by Paper**\
+`We examine a new innovation in drug smuggling.`\
+https://nytimes.com/2026/03/23/briefing/drug-soaked-paper.html
+
+**UConn's ultimate winner is playing with nothing to lose. Look out, Sweet 16**\
+`Alex Karaban, the winningest player in Huskies men’s basketball history, is hell-bent on going for Dan Hurley's third national title.`\
+https://nytimes.com/athletic/7140227/2026/03/23/alex-karaban-uconn-ucla-ncaa-tournament/
+
 **NBA Rookie Rankings: Kon Knueppel, Cooper Flagg are staging an epic duel**\
 `No. 2 pick Dylan Harper looks like a future All-Star, while the Wizards might have found a surprise gem on the perimeter.`\
 https://nytimes.com/athletic/7130293/2026/03/23/nba-rookie-rankings-knueppel-flagg-harper/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7131311/2026/03/23/fantasy-baseball-national-league
 **How Kenneth Walker III will help Chiefs offense — from a coach's perspective**\
 `Walker, the Chiefs' new starting running back, showed these strengths — and also one weakness — with his film from Super Bowl LX.`\
 https://nytimes.com/athletic/7128491/2026/03/23/chiefs-kenneth-walker-iii-coach-perspective/
-
-**Inside how Aaron Boone makes the Yankees' lineup: Debunking a narrative that won't die**\
-`The Yankees manager shared details of his process with The Athletic and pushed back on "laughable" speculation about front-office influence.`\
-https://nytimes.com/athletic/7058237/2026/03/23/ny-yankees-lineup-process-aaron-boone/
-
-**Mika Zibanejad and the lasting moments of a 1,000-game NHL journey**\
-`As Zibanejad reaches 1,000 NHL games and navigates a shifting landscape on Broadway, he reflects on the moments that got him here.`\
-https://nytimes.com/athletic/7134966/2026/03/23/mika-zibanejad-rangers-nhl-career-games/
 
