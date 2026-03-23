@@ -1,3 +1,7 @@
+**How to watch Senators vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7141267/2026/03/23/senators-vs-rangers-stream-how-to-watch-march-23/
+
 **Colombian Military Plane Crashes in ‘Tragic’ Accident, Officials Say**\
 `A military transport aircraft was involved in an accident as it took off from southern Colombia, according to the authorities. The number of victims was unclear.`\
 https://nytimes.com/2026/03/23/world/americas/colombian-military-crash.html
@@ -25,12 +29,4 @@ https://nytimes.com/athletic/7141201/2026/03/23/grizzlies-vs-hawks-stream-how-to
 **Judge Hears State Challenge to Trump’s Tech Deal Settlement**\
 `Democratic state attorneys general are fighting the Justice Department’s clearance of a $14 billion deal by Hewlett Packard Enterprise, arguing it was ineffective and corrupt.`\
 https://nytimes.com/2026/03/23/technology/hpe-juniper-hearing-settlement.html
-
-**A Sexy Summer Leads to Decades of Trysts — and Heartbreak**\
-`In Kiran Millwood Hargrave’s novel “Almost Life,” a passionate love affair between two college women gives way to a lifetime of what-ifs.`\
-https://nytimes.com/2026/03/23/books/review/almost-life-kiran-millwood-hargrave.html
-
-**Israel Says Its Own Artillery Killed a Farmer, Not a Hezbollah Rocket**\
-`Ofer Moskovitz, 60, an avocado farmer in a kibbutz on Israel’s border with Lebanon, was killed Sunday when the car he was riding in was hit.`\
-https://nytimes.com/2026/03/23/world/middleeast/israel-says-its-own-artillery-killed-a-farmer-not-a-hezbollah-rocket.html
 
