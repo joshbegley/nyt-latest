@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: Iran War, Airport Lines, Perfect Bracket**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2026/03/23/learning/23StudentNewsQuiz.html
+
 **‘Don’t Make Any Deal’: Trump Tells Republicans to Hold Firm on Shutdown Talks**\
 `The president is using the standoff over funding the Department of Homeland Security as leverage to pass a strict voter ID bill. Critics say the bill would place an undue burden on eligible voters.`\
 https://nytimes.com/2026/03/23/us/politics/trump-shutdown-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/23/us/politics/republicans-trump-midterms.html
 **Iran Negotiations — or Not?**\
 `President Trump’s shifting statements don’t necessarily signal an end in sight to the war, but they do buy him some time.`\
 https://nytimes.com/2026/03/23/world/us-iran-talks-denmark-election.html
-
-**Supreme Court Seems Poised to Reject Late-Arriving Mail-In Ballots**\
-`Also, audio suggests confusion before deadly LaGuardia crash. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2026/03/23/briefing/supreme-court-mail-in-ballots-laguardia-crash.html
 

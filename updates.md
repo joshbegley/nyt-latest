@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: Iran War, Airport Lines, Perfect Bracket**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2026/03/23/learning/23StudentNewsQuiz.html
+
 **‘Don’t Make Any Deal’: Trump Tells Republicans to Hold Firm on Shutdown Talks**\
 `The president is using the standoff over funding the Department of Homeland Security as leverage to pass a strict voter ID bill. Critics say the bill would place an undue burden on eligible voters.`\
 https://nytimes.com/2026/03/23/us/politics/trump-shutdown-deal.html

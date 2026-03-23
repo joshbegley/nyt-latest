@@ -1,3 +1,7 @@
+**Video Testimony of Former DOGE Employees Can Remain Online, Judge Rules**\
+`The viral deposition videos, posted online as part of a lawsuit, had been taken down because complaints that the employees were being harassed.`\
+https://nytimes.com/2026/03/23/nyregion/doge-lawsuit-videos-viral.html
+
 **Weekly Student News Quiz: Iran War, Airport Lines, Perfect Bracket**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2026/03/23/learning/23StudentNewsQuiz.html
@@ -29,12 +33,4 @@ https://nytimes.com/2026/03/23/us/politics/harvard-trump-antisemitism.html
 **Trump Says U.S. Is Negotiating End to War, but Iranians Push Back**\
 `“Very, very strong talks,” President Trump claimed. Fake news, replied an Iranian parliamentary leader.`\
 https://nytimes.com/2026/03/23/world/middleeast/iran-war-trump.html
-
-**It’s a Chaotic Moment in America. That’s Not What Republicans Need.**\
-`A national mood of unease and anxiety ahead of major elections is rarely good for the party in power.`\
-https://nytimes.com/2026/03/23/us/politics/republicans-trump-midterms.html
-
-**Iran Negotiations — or Not?**\
-`President Trump’s shifting statements don’t necessarily signal an end in sight to the war, but they do buy him some time.`\
-https://nytimes.com/2026/03/23/world/us-iran-talks-denmark-election.html
 
