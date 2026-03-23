@@ -12,7 +12,7 @@ https://nytimes.com/athletic/7139480/2026/03/22/isis-sio-knockout-coma-jocelyn-c
 
 **With Anton Frondell on the way, Ryan Greene and Nick Lardis look to keep top-six spots**\
 `Greene has exceeded his own expectations this season, but he might be bound for a less prominent role in the homestretch of the season.`\
-https://nytimes.com/athletic/7139414/2026/03/22/blackhakws-anton-frondell-ryan-greene-nick-lardis/
+https://nytimes.com/athletic/7139414/2026/03/22/blackhawks-anton-frondell-ryan-greene-nick-lardis/
 
 **St. John's heads to Sweet 16 for first time since 1999 after beating Kansas at the buzzer**\
 `Dylan Darling, who hadn't make a single bucket through 40 minutes, sent St. John's to the Sweet 16 with a driving bucket at the buzzer. `\
