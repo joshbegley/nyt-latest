@@ -1,3 +1,7 @@
+**Plane Collides With Vehicle at LaGuardia Airport**\
+`Emergency crews swarmed a damaged Air Canada Express plane with a sheared off nose at LaGuardia Airport on Sunday night.`\
+https://nytimes.com/video/us/100000010795471/laguardia-plane-crash-air-canada.html
+
 **Live Updates: LaGuardia Shut Down After Plane Collides With Vehicle**\
 `The airport was closed early Monday as emergency crews swarmed a damaged Air Canada Express jet on a runway. It had taken off from Montreal.`\
 https://nytimes.com/live/2026/03/23/nyregion/laguardia-airport-plane-crash-truck

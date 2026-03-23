@@ -1,3 +1,7 @@
+**Plane Collides With Vehicle at LaGuardia Airport**\
+`Emergency crews swarmed a damaged Air Canada Express plane with a sheared off nose at LaGuardia Airport on Sunday night.`\
+https://nytimes.com/video/us/100000010795471/laguardia-plane-crash-air-canada.html
+
 **Live Updates: LaGuardia Shut Down After Plane Collides With Vehicle**\
 `The airport was closed early Monday as emergency crews swarmed a damaged Air Canada Express jet on a runway. It had taken off from Montreal.`\
 https://nytimes.com/live/2026/03/23/nyregion/laguardia-airport-plane-crash-truck
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7139943/2026/03/23/arsenal-carabao-final/
 **Here’s the latest.**\
 `A ground stop was in effect early Monday as the Fire Department said it was responding to a runway incident. A New York Times journalist saw an Air Canada plane on the runway with a sheared-off nose.`\
 https://nytimes.com/2026/03/23/nyregion/laguardia-groundstop-flights.html
-
-**Aston Villa and their left-sided scheming**\
-`Emery knew West Ham was an opportunity for Villa to pull clear from their Champions League rivals - this is how they did it`\
-https://nytimes.com/athletic/7138403/2026/03/23/aston-villa-left-side-emery/
 
