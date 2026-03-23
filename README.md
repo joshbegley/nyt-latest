@@ -1,6 +1,10 @@
+**Here’s What Happened in the War in the Middle East on Monday**\
+`Conflicting signals about whether any negotiations to end the fighting were in progress created confusion.`\
+https://nytimes.com/2026/03/23/world/middleeast/middle-east-war-iran-march-23.html
+
 **For Canadians, Another Reason to Avoid Traveling to the U.S.**\
 `The collision between an Air Canada jet and a fire truck in New York brought the shortcomings of U.S. traffic control in focus.`\
-https://nytimes.com/2026/03/23/nyregion/for-canadians-another-reason-to-avoid-traveling-to-the-us.html
+https://nytimes.com/2026/03/23/nyregion/canada-laguardia-crash-travel-reaction.html
 
 **Jason Steele on first England call-up: 'It has come a little later than I would have wanted!'**\
 `Brighton's backup goalkeeper has won a first senior national squad place at age 35 - 13 years after his final appearance for the under-21s`\
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/23/us/boston-university-pride-flags-free-speech.html
 **Pentagon Adopts New Limits for Journalists After Court Loss**\
 `The Defense Department said it would close the Pentagon’s work area for journalists, among other changes, after a judge found the existing media policy unconstitutional.`\
 https://nytimes.com/2026/03/23/business/media/pentagon-closes-journalists-work-area.html
-
-**Trump Visits Elvis’s Graceland Estate**\
-`Amid a war with Iran, rising gas prices and a government shutdown, the president detoured on a trip to Memphis to visit the king of rock’s mansion.`\
-https://nytimes.com/2026/03/23/us/politics/trump-memphis-elvis-graceland.html
 
