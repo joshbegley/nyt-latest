@@ -1,3 +1,7 @@
+**Trump Administration to Pay $1 Billion to Energy Giant to Cancel Wind Farms**\
+`In exchange, the French company TotalEnergies would invest in oil and natural gas projects in Texas and elsewhere.`\
+https://nytimes.com/2026/03/23/climate/offshore-wind-gas-trump-total.html
+
 **Two Choreographers, Two Visions of Philadelphia Freedom**\
 `Rennie Harris’s “Losing My Religion” and a Matthew Neenan program from BalletX were signs of health in two of the city’s most important dance institutions.`\
 https://nytimes.com/2026/03/23/arts/dance/rennie-harris-matthew-neenan-choreographers-balletx.html

@@ -1,3 +1,7 @@
+**Trump Administration to Pay $1 Billion to Energy Giant to Cancel Wind Farms**\
+`In exchange, the French company TotalEnergies would invest in oil and natural gas projects in Texas and elsewhere.`\
+https://nytimes.com/2026/03/23/climate/offshore-wind-gas-trump-total.html
+
 **Two Choreographers, Two Visions of Philadelphia Freedom**\
 `Rennie Harris’s “Losing My Religion” and a Matthew Neenan program from BalletX were signs of health in two of the city’s most important dance institutions.`\
 https://nytimes.com/2026/03/23/arts/dance/rennie-harris-matthew-neenan-choreographers-balletx.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/23/nyregion/nyu-professors-strike.html
 **Judges’ partisan affiliations predicted their votes in the case.**\
 `Fifteen members of the federal appeals court in New Orleans participated, splitting exactly as the parties of the presidents who named them would suggest.`\
 https://nytimes.com/live/2026/03/23/us/supreme-court-voting-late-ballots/judges-partisan-affiliations-predicted-their-votes-in-the-case
-
-**Air Traffic Audio Appears to Show Tower Was Dealing With Incident Before Crash**\
-`Several minutes after the collision, a controller told the pilot of a Frontier jet that “we were dealing with an emergency earlier,” according to audio reviewed by The New York Times.`\
-https://nytimes.com/2026/03/23/nyregion/la-guardia-plane-crash-air-traffic-control.html
 
