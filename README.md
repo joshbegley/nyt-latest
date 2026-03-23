@@ -31,7 +31,7 @@ https://nytimes.com/2026/03/22/nyregion/airports-tsa-delays-nyc.html
 https://nytimes.com/athletic/7139313/2026/03/22/matt-fitzpatrick-valspar-championship-win-pga-tour-players/
 
 **Messi, Miami complete comeback win at NYCFC after Champions Cup disappointment**\
-`The reigning MLS champ has suffered a devastating defeat midweek but bounced back on Sunday`\
+`The reigning MLS champ suffered a devastating defeat midweek but bounced back on Sunday at Yankee Stadium.`\
 https://nytimes.com/athletic/7139260/2026/03/22/inter-miami-messi-nycfc-mls/
 
 **How the G.O.P. and Democrats Are Talking About the Surge in Gas Prices**\
