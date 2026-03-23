@@ -1,3 +1,7 @@
+**‘A Mass Disaster Nonstop’: Inside the Turmoil at Robert F. Kennedy Jr.’s C.D.C.**\
+`Forty-three current and former C.D.C. employees on the changes they say are replacing science with ideology — and making Americans more vulnerable.`\
+https://nytimes.com/interactive/2026/03/23/magazine/trump-rfk-jr-cdc-vaccines-maha.html
+
 **Which Countries Depend the Most on Persian Gulf Oil and Gas**\
 `Nations thousands of miles away from war are feeling the pain of their energy supplies suddenly vanishing. Some are feeling the loss more acutely than others.`\
 https://nytimes.com/interactive/2026/03/23/business/energy-environment/oil-importers-middle-east-iran-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/23/opinion/prediction-markets-gambling.html
 **As Arctic Threats Rise, Canada May Need to Lean on the United States**\
 `For the past seven decades, Canada has been the junior partner in a military agreement with the United States to protect the Canadian Arctic.`\
 https://nytimes.com/2026/03/23/world/americas/canada-us-arctic-military-norad.html
-
-**What Is Good in Your Life Lately?**\
-`If you were to make a list of things that have given you joy, inspiration or hope recently, what would be on it?`\
-https://nytimes.com/2026/03/23/learning/what-is-good-in-your-life-lately.html
 
