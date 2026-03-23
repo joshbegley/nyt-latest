@@ -1,3 +1,7 @@
+**Word of the Day: acclimate**\
+`This word has appeared in 154 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/23/learning/word-of-the-day-acclimate.html
+
 **Arsenal are not losers, or chokers. So when will they be winners?**\
 `The challenge for Arsenal is to ensure their resolve is stiffened rather than undermined by the setback of losing the Carabao Cup final`\
 https://nytimes.com/athletic/7139943/2026/03/23/arsenal-carabao-final/

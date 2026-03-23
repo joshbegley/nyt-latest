@@ -1,3 +1,7 @@
+**Word of the Day: acclimate**\
+`This word has appeared in 154 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/23/learning/word-of-the-day-acclimate.html
+
 **Arsenal are not losers, or chokers. So when will they be winners?**\
 `The challenge for Arsenal is to ensure their resolve is stiffened rather than undermined by the setback of losing the Carabao Cup final`\
 https://nytimes.com/athletic/7139943/2026/03/23/arsenal-carabao-final/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7138482/2026/03/23/man-city-arsenal-title-race/
 **Dropping Kepa would have been brutally pragmatic. It's odd Mikel Arteta didn't do it**\
 `Arsenal manager said starting backup goalkeeper was "right thing to do", but his error was key to cup-final loss and choice looks an odd one`\
 https://nytimes.com/athletic/7139380/2026/03/23/kepa-arteta-decision-drop/
-
-**Kansas coach Bill Self noncommittal about return after second round exit**\
-`Bill Self did not give a clear indication on whether he would return as the Jayhawks head coach.`\
-https://nytimes.com/athletic/7140000/2026/03/23/kansas-jayhawks-bill-self-ncaa-tournament/
 
