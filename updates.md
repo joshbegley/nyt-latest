@@ -1,3 +1,23 @@
+**How to watch Lakers vs. Pistons: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the Detroit Pistons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7140917/2026/03/23/lakers-vs-pistons-stream-how-to-watch-march-23/
+
+**How to watch Thunder vs. 76ers: Time, TV, streaming**\
+`Find out how to watch the Oklahoma City Thunder play the Philadelphia 76ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7140915/2026/03/23/thunder-vs-76ers-stream-how-to-watch-march-23/
+
+**These Lifelike Patients Bleed and Cry (but Never Die)**\
+`Medical manikns help health care workers learn how to handle fast-changing and complex scenarios.`\
+https://nytimes.com/2026/03/23/well/medical-manikins.html
+
+**Kick Off Your Week With Coconut Curry Noodles**\
+`This gloriously fragrant, saucy meal is built on pantry staples (and that bag of shrimp in your freezer).`\
+https://nytimes.com/2026/03/23/dining/kick-off-your-week-with-coconut-curry-noodles.html
+
+**Page to Screen: Do You Know the Sources of These Quirky TV Shows?**\
+`Try this short quiz on comic-book characters who made the leap to television.`\
+https://nytimes.com/interactive/2026/03/23/books/review/comics-tv-adaptations.html
+
 **How John Schneider figured it out, earning his extension to stick with the Blue Jays**\
 `Schneider's 2-year extension comes after he improved his communication: As one player said: "It really resonated with all the guys."`\
 https://nytimes.com/athletic/7140841/2026/03/23/blue-jays-manager-john-schneider-extension/
