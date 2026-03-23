@@ -1,3 +1,15 @@
+**How to watch Kentucky vs. West Virginia women's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Kentucky Wildcats play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7140636/2026/03/23/kentucky-vs-west-virginia-stream-how-to-watch-march-23/
+
+**Trump Is Digging Up Washington. Can Lawsuits Stop the Bulldozers?**\
+`As the president develops plans to fundamentally alter the White House, the Kennedy Center and other sites, federal lawsuits are beginning to catch up.`\
+https://nytimes.com/2026/03/23/us/politics/trump-ballroom-kennedy-center-lawsuits.html
+
+**How to watch Notre Dame vs. Ohio State women's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Notre Dame Fighting Irish play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7140628/2026/03/23/notre-dame-vs-ohio-state-stream-how-to-watch-march-23/
+
 **Postmarks Are Good Enough for Taxes, Contracts and Court Filings. What About Ballots?**\
 `The appeals court that struck down a Mississippi law on mail-in ballots ruled that voting requires a different approach from other areas of the law.`\
 https://nytimes.com/2026/03/23/us/elections/postmark-court-filings.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/23/us/elections/states-mail-ballots.html
 **Here’s the latest.**\
 `By Abbie VanSickle`\
 https://nytimes.com/live/2026/03/23/us/supreme-court-voting-late-ballots/heres-the-latest
-
-**Live Updates: Supreme Court to Hear Case on Mail-In Ballots**\
-`The justices’ decision could upend the way states handle ballots that are postmarked by Election Day but arrive later. President Trump has called for restrictions on mail-in voting.`\
-https://nytimes.com/live/2026/03/23/us/supreme-court-voting-late-ballots
-
-**Man Utd's Mbeumo, Sesko withdraw from international duty**\
-`United expect both forwards to be available for their next match, at home to Leeds United in the Premier League on April 13.`\
-https://nytimes.com/athletic/7140464/2026/03/23/mbeumo-sesko-manchester-united-injury-news/
-
-**Team-mates told to find new clubs after 'inexcusable' on-pitch altercation**\
-`Bruno Andrade and Tyler Winters of Rushden & Diamonds were sent off against Loughborough Students on Saturday. `\
-https://nytimes.com/athletic/7140444/2026/03/23/rushden-and-diamonds-andrade-winters-fight/
 
