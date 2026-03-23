@@ -1,3 +1,11 @@
+**Death by Paper**\
+`We examine a new innovation in drug smuggling.`\
+https://nytimes.com/2026/03/23/briefing/drug-soaked-paper.html
+
+**UConn's ultimate winner is playing with nothing to lose. Look out, Sweet 16**\
+`Alex Karaban, the winningest player in Huskies men’s basketball history, is hell-bent on going for Dan Hurley's third national title.`\
+https://nytimes.com/athletic/7140227/2026/03/23/alex-karaban-uconn-ucla-ncaa-tournament/
+
 **NBA Rookie Rankings: Kon Knueppel, Cooper Flagg are staging an epic duel**\
 `No. 2 pick Dylan Harper looks like a future All-Star, while the Wizards might have found a surprise gem on the perimeter.`\
 https://nytimes.com/athletic/7130293/2026/03/23/nba-rookie-rankings-knueppel-flagg-harper/
