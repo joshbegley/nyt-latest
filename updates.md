@@ -1,3 +1,15 @@
+**Pentagon Officials Weigh Deployment of Airborne Troops to Iran**\
+`The combat forces would come from a brigade of about 3,000 soldiers capable of deploying anywhere in the world within 18 hours.`\
+https://nytimes.com/2026/03/23/us/politics/us-airborne-troops-iran.html
+
+**Trump Delays Deadline for Strikes on Iranian Energy Infrastructure**\
+`President Trump said the U.S. would put off any attacks on Iranian energy infrastructure for five days, citing “very strong” talks with Iran toward ending the war. Iran disputed Mr. Trump’s claim that there had been progress made in negotiations.`\
+https://nytimes.com/video/world/middleeast/100000010796099/trump-iran-energy-strikes-talks.html
+
+**Passengers Braced for a Rough Landing Before Crash at LaGuardia**\
+`A flight attendant was ejected from the airplane, a passenger said, but the people onboard still managed to open an emergency door and evacuate themselves from the plane.`\
+https://nytimes.com/2026/03/23/nyregion/laguardia-plane-crash-victims.html
+
 **Trump Sets Up ‘Pax Silica’ Fund to Reduce Global Dependencies**\
 `Trump officials said on Monday that the war in Iran had emphasized the need to reduce vulnerabilities for energy and technology.`\
 https://nytimes.com/2026/03/23/business/economy/trump-pax-silica-fund.html
