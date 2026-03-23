@@ -1,40 +1,40 @@
-**Why the BTS Comeback Concert Was a ‘Disaster’ for Some Businesses**\
-`The turnout for the K-pop titans’ show was much lower than projected by officials, hitting the bottom line of some restaurants. Shares in the group’s management company also fell.`\
-https://nytimes.com/2026/03/23/world/asia/bts-concert-seoul-turnout-hybe-shares.html
+**Baseball is riding an international boom, but will it ever stick in the Olympics?**\
+`We'll see Olympic baseball in L.A. But with MLB's schedule and future Olympic Games taking place elsewhere, will that continue beyond 2028?`\
+https://nytimes.com/athletic/7139293/2026/03/23/2028-olympics-baseball-los-angeles-future/
 
-**The keys to Max Scherzer's recovery: How piano helped solve a lingering thumb injury**\
-`The first time Scherzer gripped a baseball after messing around on the piano, his thumb immediately felt better. So he kept playing.`\
-https://nytimes.com/athletic/7138069/2026/03/23/max-scherzer-blue-jays-piano-thumb-injury/
+**Fantasy baseball 2026: American League preview and predictions**\
+`Dalton Del Don gets out his crystal ball to look into what the future beholds in the American League in 2026.`\
+https://nytimes.com/athletic/7131272/2026/03/23/fantasy-baseball-american-league-al-preview-predictions/
 
-**Sidelined by War With Iran, Gaza Residents Remain in Limbo**\
-`The new war has led to panic buying and a surge in food prices for Gazans as they try to recover from Israel’s two-year offensive against Hamas.`\
-https://nytimes.com/2026/03/23/world/middleeast/gaza-israel-mood.html
+**NHL awards watch: Kucherov and Werenski make strong push against Avalanche's top duo**\
+`While the Calder and Selke look like safe races, the Hart is between two players, and this is the best Norris race in recent memory.`\
+https://nytimes.com/athletic/7138442/2026/03/23/nhl-awards-nikita-kucherov-zach-werenski-avalanche/
 
-**How to watch Alabama vs. Louisville women's basketball: Second Round Time, TV, streaming**\
-`Find out how to watch the Alabama Crimson Tide play the Louisville Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7140212/2026/03/23/alabama-vs-louisville-stream-how-to-watch-march-23/
+**A Deadly Collision at LaGuardia Airport, and Trump’s Ultimatum to Iran**\
+`Plus, chasing meteorites for money.`\
+https://nytimes.com/2026/03/23/podcasts/the-headlines/runway-collision-laguardia-airport-and-trumps-ultimatum-iran.html
 
-**The jet was operated by Jazz Aviation, Canada’s biggest regional airline.**\
-`By Yan Zhuang`\
-https://nytimes.com/live/2026/03/23/nyregion/laguardia-airport-plane-crash-truck/jazz-aviation-canada-airline
+**Bengals depth chart: Linebacker remains glaring need heading toward NFL Draft**\
+`Free agency addressed some needs, but the onus is on the draft for the second straight year to fill critical holes on defense.`\
+https://nytimes.com/athletic/7138103/2026/03/23/bengals-depth-chart-needs-nfl-draft/
 
-**Ranking all 30 MLB lineups ahead of 2026 Opening Day**\
-`From the best (Los Angeles Dodgers) to the worst (Colorado Rockies), how all 30 of the expected everyday lineups stack up.`\
-https://nytimes.com/athletic/7104654/2026/03/23/mlb-lineups-ranked-2026/
+**The tankiest efforts we've seen: when Mark Madsen, Ben Uzoh and Daniel Oturu shine**\
+`Even when teams don't care about winning, everyday heroes must chronicle the events. These are their stories.`\
+https://nytimes.com/athletic/7136403/2026/03/23/nba-worst-tanking-teams-wizards-thunder/
 
-**Sweet 16 Power Rankings: Which teams have what it takes to go all the way?**\
-`The flip side of the lack of upsets was that the weekend brought some phenomenal matchups and epic clashes. Who was left standing?`\
-https://nytimes.com/athletic/7138219/2026/03/23/mens-ncaa-tournament-power-rankings-sweet-16/
+**2026 NHL prospect pool rankings: No. 18 New York Rangers**\
+`The Rangers have some interesting player types and several prospects who are going to play NHL games, but an imperfect group on the whole.`\
+https://nytimes.com/athletic/6977435/2026/03/23/new-york-rangers-nhl-prospect-rankings-2026/
 
-**Fix for the NFL’s diversity problem? Coaches need to join owners in being more intentional**\
-`NFL owners need to do more to increase diversity in the coaching ranks, but coaches can make an effort to better build their networks.`\
-https://nytimes.com/athletic/7131147/2026/03/23/nfl-coaches-diversity-owners-network-pipeline/
+**Did Pete Carroll start a baseball trend? How music became a spring training staple**\
+`An athlete’s relationship to music might seem like a matter of preference. Research has shown that it can also produce a tangible effect.`\
+https://nytimes.com/athletic/7138842/2026/03/23/spring-training-music-baseball-pete-carroll/
 
-**The New York Times International Edition in Print for Tuesday, March 24, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/03/23/todays-new-york-times-international-edition
+**Tables turned on Celtics in costly home loss to the Timberwolves**\
+`After losing to the Timberwolves, Boston's lead over New York is down to half a game for second place in the Eastern Conference.`\
+https://nytimes.com/athletic/7140044/2026/03/23/jaylen-brown-celtics-loss-timberwolves/
 
-**Takeaways From the Times’s Inside Look at the C.D.C.**\
-`Many current and former employees say the actions of Health Secretary Robert F. Kennedy Jr. are undermining the agency’s role in safeguarding public health.`\
-https://nytimes.com/2026/03/23/magazine/takeaways-cdc-oral-history.html
+**Flyers fan survey results: Is the rebuild headed in the right direction?**\
+`What grades did general manager Daniel Briere and coach Rick Tocchet receive?`\
+https://nytimes.com/athletic/7138418/2026/03/23/flyers-opinions-michkov-briere-tocchet/
 
