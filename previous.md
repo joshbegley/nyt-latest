@@ -1,3 +1,7 @@
+**First look at the men's Sweet 16: Reasons to be excited about each matchup**\
+`The entire Sweet 16 field comes from one of the five power conferences, but 10 of the 16 are chasing their first NCAA Tournament title.`\
+https://nytimes.com/athletic/7139001/2026/03/23/ncaa-tournament-sweet-16-games-schedule-matchups/
+
 **In Denmark’s Election, How Will the Woman Who Took On Trump Fare?**\
 `Prime Minister Mette Frederiksen is the biggest force this country has seen in decades. The crisis in Greenland has energized her, but are voters itching for change?`\
 https://nytimes.com/2026/03/23/world/asia/denmark-elections-frederiksen-hometown.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/22/arts/television/the-comeback-season-3-premiere-re
 **Darryn Peterson's brilliance undeniable in a season defined by what could have been**\
 `Kansas, in the end, got a season that somehow managed to confirm everything while still leaving something completely ajar.`\
 https://nytimes.com/athletic/7139805/2026/03/22/darryn-peterson-kansas-nba-draft-ncaa-tournament/
-
-**As Trump’s Deadline Nears, Iranians Dread the Darkness**\
-`With President Trump threatening to strike Iranian power plants, some war-weary civilians are panicking over a possible new debacle.`\
-https://nytimes.com/2026/03/22/world/middleeast/iran-trump-power-plants.html
 

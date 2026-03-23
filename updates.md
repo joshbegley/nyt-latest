@@ -1,3 +1,7 @@
+**First look at the men's Sweet 16: Reasons to be excited about each matchup**\
+`The entire Sweet 16 field comes from one of the five power conferences, but 10 of the 16 are chasing their first NCAA Tournament title.`\
+https://nytimes.com/athletic/7139001/2026/03/23/ncaa-tournament-sweet-16-games-schedule-matchups/
+
 **In Denmark’s Election, How Will the Woman Who Took On Trump Fare?**\
 `Prime Minister Mette Frederiksen is the biggest force this country has seen in decades. The crisis in Greenland has energized her, but are voters itching for change?`\
 https://nytimes.com/2026/03/23/world/asia/denmark-elections-frederiksen-hometown.html
