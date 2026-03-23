@@ -1,3 +1,7 @@
+**Video Testimony of Former DOGE Employees Can Remain Online, Judge Rules**\
+`The viral deposition videos, posted online as part of a lawsuit, had been taken down because complaints that the employees were being harassed.`\
+https://nytimes.com/2026/03/23/nyregion/doge-lawsuit-videos-viral.html
+
 **Weekly Student News Quiz: Iran War, Airport Lines, Perfect Bracket**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2026/03/23/learning/23StudentNewsQuiz.html
