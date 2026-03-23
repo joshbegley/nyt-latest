@@ -1,3 +1,11 @@
+**Trump Delays Energy Strikes, but Iran’s Infrastructure is Already Battered**\
+`U.S. and Israeli attacks on power plants and other civilian infrastructure risk escalating the conflict across the region, and angering Iranians who oppose the government.`\
+https://nytimes.com/2026/03/23/world/middleeast/trump-iran-battered-infrastructure.html
+
+**Energy Crisis Will Not Be Resolved Quickly if War Ends, I.E.A. Chief Warns**\
+`Fatih Birol, the leader of the International Energy Agency, said the Iran war was a bigger crisis that the two oil shocks in the 1970s combined.`\
+https://nytimes.com/2026/03/23/world/middleeast/energy-crisis-iea-warning.html
+
 **How to watch Senators vs. Rangers: Time, TV, streaming**\
 `Find out how to watch the Ottawa Senators play the New York Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7141267/2026/03/23/senators-vs-rangers-stream-how-to-watch-march-23/
