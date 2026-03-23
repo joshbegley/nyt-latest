@@ -1,3 +1,7 @@
+**W.N.B.A. Players Getting Paid, N.B.A. Expanding & the Weight of the 1-Seed**\
+`Plus, which Western Conference team is getting shipped East?`\
+https://nytimes.com/2026/03/23/us/wnba-players-pay-nba-expanding-weight-of-the-1-seed.html
+
 **Taiwan Debates Military Spending as Choices Over U.S. and China Loom**\
 `Tensions in the opposition Nationalist Party could surface this week as lawmakers debate defense funding intended to counter Beijing’s growing might.`\
 https://nytimes.com/2026/03/23/world/asia/taiwan-defense-budget-china-us.html

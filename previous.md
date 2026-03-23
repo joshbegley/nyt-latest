@@ -1,3 +1,7 @@
+**W.N.B.A. Players Getting Paid, N.B.A. Expanding & the Weight of the 1-Seed**\
+`Plus, which Western Conference team is getting shipped East?`\
+https://nytimes.com/2026/03/23/us/wnba-players-pay-nba-expanding-weight-of-the-1-seed.html
+
 **Taiwan Debates Military Spending as Choices Over U.S. and China Loom**\
 `Tensions in the opposition Nationalist Party could surface this week as lawmakers debate defense funding intended to counter Beijing’s growing might.`\
 https://nytimes.com/2026/03/23/world/asia/taiwan-defense-budget-china-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/23/world/iran-war-oil-trump
 **Here’s the latest.**\
 `By Aaron Boxerman, Julian Barnes, Isabel Kershner and Yan Zhuang`\
 https://nytimes.com/live/2026/03/23/world/iran-war-oil-trump/heres-the-latest
-
-**Word of the Day: acclimate**\
-`This word has appeared in 154 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/03/23/learning/word-of-the-day-acclimate.html
 
