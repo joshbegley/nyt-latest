@@ -1,3 +1,15 @@
+**Valerie Perrine, Screen Siren Who Won Critical Acclaim, Dies at 82**\
+`Known early on for skin-baring temptress roles, she later earned rave reviews, a Cannes award and an Oscar nomination for her performance in the Lenny Bruce biopic “Lenny.”`\
+https://nytimes.com/2026/03/23/movies/valerie-perrine-dead.html
+
+**F.A.A. Is Investigating if Another Jet’s Issue Distracted a Controller**\
+`Two controllers were said to be working at LaGuardia Airport’s control center at the time of the crash that killed two pilots, and one had been dealing with an odor on a United Airlines plane.`\
+https://nytimes.com/2026/03/23/nyregion/faa-air-traffic-controller-laguardia-crash.html
+
+**Astros starter Spencer Arrighetti to start season in Triple A**\
+`Houston could’ve carried the righty as a long man in its Opening Day bullpen, but keeping him built up as a starter took precedence.`\
+https://nytimes.com/athletic/7142116/2026/03/23/astros-pitcher-spencer-arrighetti-optioned-triple-a/
+
 **Nationals place Josiah Gray on 60-day IL with right flexor strain**\
 `The 28-year-old was given a clean bill of health coming into camp and had an outside shot at making the starting rotation.`\
 https://nytimes.com/athletic/7142117/2026/03/23/josiah-gray-injured-list-nationals-flexor-strain/
@@ -21,16 +33,4 @@ https://nytimes.com/2026/03/23/nyregion/doge-lawsuit-videos-viral.html
 **Weekly Student News Quiz: Iran War, Airport Lines, Perfect Bracket**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2026/03/23/learning/23StudentNewsQuiz.html
-
-**‘Don’t Make Any Deal’: Trump Tells Republicans to Hold Firm on Shutdown Talks**\
-`The president is using the standoff over funding the Department of Homeland Security as leverage to pass a strict voter ID bill. Critics say the bill would place an undue burden on eligible voters.`\
-https://nytimes.com/2026/03/23/us/politics/trump-shutdown-deal.html
-
-**Full Time: Gotham’s long-term ‘puzzle’**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/7141945/2026/03/23/gotham-fc-roster-nwsl-recap-full-time/
-
-**Boston University Pulls Pride Flags, Raising Free Speech Worries**\
-`The university said the flags broke a rule against hanging signs, a policy embraced by other campuses that cracked down on protests. Professors and others say such rules chill speech.`\
-https://nytimes.com/2026/03/23/us/boston-university-pride-flags-free-speech.html
 

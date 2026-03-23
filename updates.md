@@ -1,3 +1,15 @@
+**Valerie Perrine, Screen Siren Who Won Critical Acclaim, Dies at 82**\
+`Known early on for skin-baring temptress roles, she later earned rave reviews, a Cannes award and an Oscar nomination for her performance in the Lenny Bruce biopic “Lenny.”`\
+https://nytimes.com/2026/03/23/movies/valerie-perrine-dead.html
+
+**F.A.A. Is Investigating if Another Jet’s Issue Distracted a Controller**\
+`Two controllers were said to be working at LaGuardia Airport’s control center at the time of the crash that killed two pilots, and one had been dealing with an odor on a United Airlines plane.`\
+https://nytimes.com/2026/03/23/nyregion/faa-air-traffic-controller-laguardia-crash.html
+
+**Astros starter Spencer Arrighetti to start season in Triple A**\
+`Houston could’ve carried the righty as a long man in its Opening Day bullpen, but keeping him built up as a starter took precedence.`\
+https://nytimes.com/athletic/7142116/2026/03/23/astros-pitcher-spencer-arrighetti-optioned-triple-a/
+
 **Nationals place Josiah Gray on 60-day IL with right flexor strain**\
 `The 28-year-old was given a clean bill of health coming into camp and had an outside shot at making the starting rotation.`\
 https://nytimes.com/athletic/7142117/2026/03/23/josiah-gray-injured-list-nationals-flexor-strain/
