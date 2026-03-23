@@ -1,3 +1,15 @@
+**Suspect in Chicago Student’s Killing Was in U.S. Illegally, D.H.S. Says**\
+`Sheridan Gorman, 18, was killed last week near Loyola University Chicago. The Trump administration said a man charged with murder in the case was in the country without permission.`\
+https://nytimes.com/2026/03/22/us/loyola-student-death-arrest.html
+
+**The Balance That Keeps Climate Stable Is Out of Whack, U.N. Report Finds**\
+`The continued burning of fossil fuels is locking heat in Earth’s atmosphere, oceans and land — instead of allowing it to reflect back into space, a new report finds.`\
+https://nytimes.com/2026/03/22/climate/energy-imbalance-un-report.html
+
+**‘The Comeback’ Season 3 Premiere Recap: The Old Razzle-Dazzle**\
+`The HBO comedy returned for a new season on Sunday, more than 11 years after the previous one.`\
+https://nytimes.com/2026/03/22/arts/television/the-comeback-season-3-premiere-recap.html
+
 **Darryn Peterson's brilliance undeniable in a season defined by what could have been**\
 `Kansas, in the end, got a season that somehow managed to confirm everything while still leaving something completely ajar.`\
 https://nytimes.com/athletic/7139805/2026/03/22/darryn-peterson-kansas-nba-draft-ncaa-tournament/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7139621/2026/03/22/kansas-st-johns-fouls-to-give/
 **Hurricanes humble sluggish Penguins as defensive issues escalate**\
 `The Penguins endured a rough day against Carolina resulting in a 5-1 loss.`\
 https://nytimes.com/athletic/7139299/2026/03/22/penguins-lose-hurricanes-defensive-issues/
-
-**What we’re hearing about the Cubs: Chicago is still looking to make moves**\
-`The Cubs went into Sunday with 38 players still on their spring roster, a sign of their deliberate, opportunistic approach.`\
-https://nytimes.com/athletic/7139436/2026/03/22/cubs-roster-decisions-seiya-suzuki-jed-hoyer-opening-day/
-
-**Sources: Griezmann flying to Orlando to complete summer transfer**\
-`Griezmann is set to become the latest high-profile name to depart Europe for MLS`\
-https://nytimes.com/athletic/7139610/2026/03/22/antoine-griezmann-transfer-atletico-madrid-orlando-city-mls-summer/
-
-**Boxer Isis Sio in medically induced coma after first-round knockout**\
-`The 19-year-old fighter was knocked out after taking a series of punches to the head.`\
-https://nytimes.com/athletic/7139480/2026/03/22/isis-sio-knockout-coma-jocelyn-camarillo/
 
