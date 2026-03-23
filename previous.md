@@ -1,10 +1,18 @@
+**What we’re hearing about the Cubs: Chicago is still looking to make moves**\
+`The Cubs went into Sunday with 38 players still on their spring roster, a sign of their deliberate, opportunistic approach.`\
+https://nytimes.com/athletic/7139436/2026/03/22/cubs-roster-decisions-seiya-suzuki-jed-hoyer-opening-day/
+
+**Sources: Griezmann flying to Orlando to complete summer transfer**\
+`Griezmann is set to become the latest high-profile name to depart Europe for MLS`\
+https://nytimes.com/athletic/7139610/2026/03/22/antoine-griezmann-transfer-atletico-madrid-orlando-city-mls-summer/
+
 **Boxer Isis Sio in medically induced coma after first-round knockout**\
 `The 19-year-old fighter was knocked out after taking a series of punches to the head.`\
 https://nytimes.com/athletic/7139480/2026/03/22/isis-sio-knockout-coma-jocelyn-camarillo/
 
 **With Anton Frondell on the way, Ryan Greene and Nick Lardis look to keep top-six spots**\
 `Greene has exceeded his own expectations this season, but he might be bound for a less prominent role in the homestretch of the season.`\
-https://nytimes.com/athletic/7139414/2026/03/22/blackhakws-anton-frondell-ryan-greene-nick-lardis/
+https://nytimes.com/athletic/7139414/2026/03/22/blackhawks-anton-frondell-ryan-greene-nick-lardis/
 
 **St. John's heads to Sweet 16 for first time since 1999 after beating Kansas at the buzzer**\
 `Dylan Darling, who hadn't make a single bucket through 40 minutes, sent St. John's to the Sweet 16 with a driving bucket at the buzzer. `\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7139479/2026/03/22/tyler-reddick-nascar-darlington-
 **At New York Airports, Long T.S.A. Lines and Frustrated Travelers**\
 `The shortage of checkpoint workers created lines of at least three hours at LaGuardia Airport. Many passengers doubted ICE agents were the solution.`\
 https://nytimes.com/2026/03/22/nyregion/airports-tsa-delays-nyc.html
-
-**Fitzpatrick forgets Players heartbreak with Valspar win**\
-`Fitzpatrick's 14-foot birdie putt on the 18th gave him a one-stroke win over David Lipsky.`\
-https://nytimes.com/athletic/7139313/2026/03/22/matt-fitzpatrick-valspar-championship-win-pga-tour-players/
-
-**Messi, Miami complete comeback win at NYCFC after Champions Cup disappointment**\
-`The reigning MLS champ suffered a devastating defeat midweek but bounced back on Sunday at Yankee Stadium.`\
-https://nytimes.com/athletic/7139260/2026/03/22/inter-miami-messi-nycfc-mls/
 

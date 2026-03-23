@@ -1,3 +1,7 @@
+**Hurricanes humble sluggish Penguins as defensive issues escalate**\
+`The Penguins endured a rough day against Carolina resulting in a 5-1 loss.`\
+https://nytimes.com/athletic/7139299/2026/03/22/penguins-lose-hurricanes-defensive-issues/
+
 **What we’re hearing about the Cubs: Chicago is still looking to make moves**\
 `The Cubs went into Sunday with 38 players still on their spring roster, a sign of their deliberate, opportunistic approach.`\
 https://nytimes.com/athletic/7139436/2026/03/22/cubs-roster-decisions-seiya-suzuki-jed-hoyer-opening-day/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7139307/2026/03/22/jessi-pierce-wild-media/
 **Tyler Reddick's historic NASCAR start continues with win at Darlington**\
 `Reddick, who made history by winning the first three races of the NASCAR season, made it four out of six Sunday at Darlington.`\
 https://nytimes.com/athletic/7139479/2026/03/22/tyler-reddick-nascar-darlington-win-rfk-racing/
-
-**At New York Airports, Long T.S.A. Lines and Frustrated Travelers**\
-`The shortage of checkpoint workers created lines of at least three hours at LaGuardia Airport. Many passengers doubted ICE agents were the solution.`\
-https://nytimes.com/2026/03/22/nyregion/airports-tsa-delays-nyc.html
 

@@ -1,3 +1,15 @@
+**What we’re hearing about the Cubs: Chicago is still looking to make moves**\
+`The Cubs went into Sunday with 38 players still on their spring roster, a sign of their deliberate, opportunistic approach.`\
+https://nytimes.com/athletic/7139436/2026/03/22/cubs-roster-decisions-seiya-suzuki-jed-hoyer-opening-day/
+
+**Sources: Griezmann flying to Orlando to complete summer transfer**\
+`Griezmann is set to become the latest high-profile name to depart Europe for MLS`\
+https://nytimes.com/athletic/7139610/2026/03/22/antoine-griezmann-transfer-atletico-madrid-orlando-city-mls-summer/
+
+**With Anton Frondell on the way, Ryan Greene and Nick Lardis look to keep top-six spots**\
+`Greene has exceeded his own expectations this season, but he might be bound for a less prominent role in the homestretch of the season.`\
+https://nytimes.com/athletic/7139414/2026/03/22/blackhawks-anton-frondell-ryan-greene-nick-lardis/
+
 **Boxer Isis Sio in medically induced coma after first-round knockout**\
 `The 19-year-old fighter was knocked out after taking a series of punches to the head.`\
 https://nytimes.com/athletic/7139480/2026/03/22/isis-sio-knockout-coma-jocelyn-camarillo/
