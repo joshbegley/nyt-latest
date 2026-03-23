@@ -1,3 +1,7 @@
+**As Trump’s Deadline Nears, Iranians Dread the Darkness**\
+`With President Trump threatening to strike Iranian power plants, some war-weary civilians are panicking over a possible new debacle.`\
+https://nytimes.com/2026/03/22/world/middleeast/iran-trump-power-plants.html
+
 **Share Your Thoughts on Our Media Literacy Newsletter**\
 `Are you an educator interested in adding journalism lessons to your curriculum? We want to hear from you.`\
 https://nytimes.com/2026/03/22/learning/media-literacy-newsletter-school-of-new-york-times.html
