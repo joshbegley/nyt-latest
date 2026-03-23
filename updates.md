@@ -1,3 +1,17 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>There&#8217;s quite a bit going on these days. What&#8217;s on your mind?</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/7141519/2026/03/23/submit-a-question-for-stewart-mandels-college-football-mailbag-339/
+
+**Women's NCAA Tournament takeaways: Who's punching their tickets for the Sweet 16?**\
+`Louisville is back in the Sweet 16 for the 13th time under coach Jeff Walz.`\
+https://nytimes.com/athletic/7141496/2026/03/23/womens-ncaa-tournament-takeaways-second-round-sweet-16/
+
+**Passenger Jet and Fire Truck Crash at LaGuardia Airport, Leaving 2 Dead**\
+`The two pilots of a Air Canada Express jet were killed after a collision with a Port Authority fire truck on Sunday at LaGuardia Airport in New York.`\
+https://nytimes.com/video/nyregion/100000010795871/laguardia-crash-air-canada-fire-truck.html
+
 **Mets prospect Carson Benge captures roster spot with eye-opening spring**\
 `Benge, the Mets' 2024 first-round pick, came into the season as MLB's No. 18 prospect. His strong spring landed him on the Mets' roster.`\
 https://nytimes.com/athletic/7141060/2026/03/23/mets-carson-benge-opening-day-roster-prospect/
