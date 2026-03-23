@@ -1,3 +1,7 @@
+**Oklahoma LB sues NCAA for extra year after working out at combine, pro day**\
+`Heinecke participated in the Senior Bowl, NFL combine and Oklahoma's pro day in case his fight for another year didn’t work out.`\
+https://nytimes.com/athletic/7140911/2026/03/23/owen-heinecke-ncaa-lawsuit-nfl-combine-oklahoma/
+
 **How to watch Illinois vs. Vanderbilt women's basketball: Second Round Time, TV, streaming**\
 `Find out how to watch the Illinois Fighting Illini play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7141025/2026/03/23/illinois-vs-vanderbilt-stream-how-to-watch-march-23/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7140596/2026/03/23/usmnt-tracker-pulisic-tillman-ba
 **NBA Power Rankings: Lakers, Cavs, Nuggets inch closer to contenders tier**\
 `We're done with trades and two-way contracts. How has your favorite team changed since October?`\
 https://nytimes.com/athletic/7140376/2026/03/23/nba-power-rankings-lakers-nuggets-cavs/
-
-**What’s It Like to Be Back in Print After 20 Years? A Bit Odd.**\
-`Nancy Lemann published her first novel at 28. Then came “the doom.” Now she’s back in the spotlight, and not exactly comfortable with it.`\
-https://nytimes.com/2026/03/23/style/nancy-lemann-lives-of-the-saints-nyrb.html
 
