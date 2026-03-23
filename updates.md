@@ -1,3 +1,7 @@
+**Connections: Sports Edition Coach: Hints and answers for March 23, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7139997/2026/03/23/connections-sports-edition-hints-answers-march-23-2026/
+
 **Caught Between Two Conflicts, Afghans Flee Iran**\
 `The war in Iran is choking off Afghanistan’s main economic lifeline and has forced at least 70,000 Afghan workers and students there back home to a nation embroiled in another conflict.`\
 https://nytimes.com/2026/03/23/world/asia/iran-afghanistan-border-refugees.html

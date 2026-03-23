@@ -1,3 +1,23 @@
+**Are Chelsea edging towards a crisis?**\
+`There are clubs queueing up behind them, and it now feels like no European football at all next season is a possibility`\
+https://nytimes.com/athletic/7137953/2026/03/23/chelsea-crisis-liam-rosenior/
+
+**Could the Premier League's teenage talents be a fix for dull, stale football?**\
+`Younger players tend to carry out more actions that inject excitement into a game. Could more minutes for them make a difference?`\
+https://nytimes.com/athletic/7137544/2026/03/23/premier-league-teenagers-analysis-josh-king/
+
+**The New York Times in Print for Monday, March 23, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/23/todays-new-york-times
+
+**‘Something Very Bad Is Going to Happen,’ Plus 6 Things to Watch on TV This Week**\
+`A new horror thriller premieres and Miley Cyrus celebrates the 20th anniversary of “Hannah Montana.”`\
+https://nytimes.com/2026/03/23/arts/television/something-very-bad-is-going-to-happen-plus-6-things-to-watch-on-tv-this-week.html
+
+**She Transformed Denmark, but What Else Does She Stand For?**\
+`Whatever Mette Frederiksen does next, Denmark has fundamentally changed.`\
+https://nytimes.com/2026/03/23/opinion/denmark-mette-frederiksen-election.html
+
 **Connections: Sports Edition Coach: Hints and answers for March 23, 2026**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/7139997/2026/03/23/connections-sports-edition-hints-answers-march-23-2026/
@@ -17,24 +37,4 @@ https://nytimes.com/2026/03/23/world/asia/denmark-elections-frederiksen-hometown
 **No Corrections: March 23, 2026**\
 `No corrections appeared in print on Monday, March 23, 2026.`\
 https://nytimes.com/2026/03/23/corrections/no-corrections-march-23-2026.html
-
-**How Obama’s Strategist Discouraged Biden From Running in 2016**\
-`In a new set of oral histories, David Plouffe, President Barack Obama’s political adviser, described how he urged Vice President Joseph R. Biden Jr. not to challenge Hillary Clinton for the nomination.`\
-https://nytimes.com/2026/03/23/us/politics/obama-strategist-biden-2016-election.html
-
-**Quote of the Day: War Descends On Shorefront In Posh Beirut**\
-`Quotation of the Day for Monday, March 23, 2026.`\
-https://nytimes.com/2026/03/23/pageoneplus/quote-of-the-day-war-descends-on-shorefront-in-posh-beirut.html
-
-**Why the Dodgers named Alex Freeland to Opening Day roster over Hyeseong Kim**\
-`Freeland's approach made an impression on the Dodgers. In the rotation, Roki Sasaki's inconsistency prompts a backup plan. `\
-https://nytimes.com/athletic/7139655/2026/03/22/dogers-alex-freeland-hyeseong-kim/
-
-**Suspect in Chicago Student’s Killing Was in U.S. Illegally, D.H.S. Says**\
-`Sheridan Gorman, 18, was killed last week near Loyola University Chicago. The Trump administration has sought to highlight crimes committed by undocumented people in its deportation campaign.`\
-https://nytimes.com/2026/03/22/us/loyola-student-death-arrest.html
-
-**The Balance That Keeps Climate Stable Is Out of Whack, U.N. Report Finds**\
-`The continued burning of fossil fuels is locking heat in Earth’s atmosphere, oceans and land — instead of allowing it to reflect back into space, a new report finds.`\
-https://nytimes.com/2026/03/22/climate/energy-imbalance-un-report.html
 

@@ -1,3 +1,7 @@
+**Connections: Sports Edition Coach: Hints and answers for March 23, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7139997/2026/03/23/connections-sports-edition-hints-answers-march-23-2026/
+
 **Caught Between Two Conflicts, Afghans Flee Iran**\
 `The war in Iran is choking off Afghanistan’s main economic lifeline and has forced at least 70,000 Afghan workers and students there back home to a nation embroiled in another conflict.`\
 https://nytimes.com/2026/03/23/world/asia/iran-afghanistan-border-refugees.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/22/us/loyola-student-death-arrest.html
 **The Balance That Keeps Climate Stable Is Out of Whack, U.N. Report Finds**\
 `The continued burning of fossil fuels is locking heat in Earth’s atmosphere, oceans and land — instead of allowing it to reflect back into space, a new report finds.`\
 https://nytimes.com/2026/03/22/climate/energy-imbalance-un-report.html
-
-**‘The Comeback’ Season 3 Premiere Recap: The Old Razzle-Dazzle**\
-`The HBO comedy returned for a new season on Sunday, more than 11 years after the previous one.`\
-https://nytimes.com/2026/03/22/arts/television/the-comeback-season-3-premiere-recap.html
 
