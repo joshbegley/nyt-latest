@@ -1,3 +1,15 @@
+**N.Y.U. Professors Go on Strike, Seeking Better Pay and Job Protections**\
+`About 950 full-time faculty members who are not on the tenure track walked out. The university told students that classes would continue.`\
+https://nytimes.com/2026/03/23/nyregion/nyu-professors-strike.html
+
+**Judges’ partisan affiliations predicted their votes in the case.**\
+`Fifteen members of the federal appeals court in New Orleans participated, splitting exactly as the parties of the presidents who named them would suggest.`\
+https://nytimes.com/live/2026/03/23/us/supreme-court-voting-late-ballots/judges-partisan-affiliations-predicted-their-votes-in-the-case
+
+**Air Traffic Audio Appears to Show Tower Was Dealing With Incident Before Crash**\
+`Several minutes after the collision, a controller told the pilot of a Frontier jet that “we were dealing with an emergency earlier,” according to audio verified by The New York Times.`\
+https://nytimes.com/2026/03/23/nyregion/la-guardia-plane-crash-air-traffic-control.html
+
 **ICE Agents Fan Out at Airports Across the U.S.**\
 `The agents were sent to help understaffed T.S.A. teams manage long security lines. But early on Monday, it was unclear what impact they were having.`\
 https://nytimes.com/2026/03/23/us/ice-agents-airports.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7141025/2026/03/23/illinois-vs-vanderbilt-stream-ho
 **How to watch Syracuse vs. UConn women's basketball: Second Round Time, TV, streaming**\
 `Find out how to watch the Syracuse Orange play the UConn Huskies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7141023/2026/03/23/syracuse-vs-uconn-stream-how-to-watch-march-23/
-
-**Arsenal's Gabriel, Trossard withdraw from international duty**\
-`The CBF said Gabriel was experiencing knee pain, while Trossard will not travel with Belgium to the United States.`\
-https://nytimes.com/athletic/7140905/2026/03/23/gabriel-leandro-trossard-arsenal-international-withdraw/
-
-**Lilias Folan, Who Brought Yoga to Middle America, Dies at 90**\
-`With her bright leotards and soothing, welcoming tone, she helped to demystify a discipline that many Americans in the 1970s viewed as a counterculture practice.`\
-https://nytimes.com/2026/03/23/us/lilias-folan-dead.html
-
-**There’s a New Place to Store Greenhouse Gases: In Your Beer**\
-`A pub in California is pulling carbon dioxide from the air to carbonate pints. If the business model works, it could give the broader carbon-capture industry a boost.`\
-https://nytimes.com/2026/03/23/climate/beer-carbon-capture.html
 

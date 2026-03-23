@@ -1,3 +1,19 @@
+**ICE Agents Fan Out at Airports Across the U.S.**\
+`The agents were sent to help understaffed T.S.A. teams manage long security lines. But early on Monday, it was unclear what impact they were having.`\
+https://nytimes.com/2026/03/23/us/ice-agents-airports.html
+
+**Nuggets' Spencer Jones shares LinkedIn post about defending game winners**\
+`Jones, who has started 36 games for Denver, detailed his account of a couple rough days at the office on the social media platform.`\
+https://nytimes.com/athletic/7140878/2026/03/23/nuggets-spencer-jones-linkedin-post/
+
+**Blue Jackets Monday Gathering: Werenski, Coyle, Bowness could all collect NHL awards**\
+`The Blue Jackets' surge into a playoff position shines a brighter light on their award candidates.`\
+https://nytimes.com/athletic/7138092/2026/03/23/blue-jackets-norris-selke-adams-awards/
+
+**What I'm seeing from MLB prospects: Dodgers, White Sox bring stars but also wildness**\
+`This Spring Breakout Game featured some top prospects but devolved quickly thanks to 27 walks and 442 pitches thrown.`\
+https://nytimes.com/athletic/7139911/2026/03/23/mlb-prospect-scouting-los-angeles-dodgers-chicago-white-sox/
+
 **Oklahoma LB sues NCAA for extra year after working out at combine, pro day**\
 `Heinecke participated in the Senior Bowl, NFL combine and Oklahoma's pro day in case his fight for another year didn’t work out.`\
 https://nytimes.com/athletic/7140911/2026/03/23/owen-heinecke-ncaa-lawsuit-nfl-combine-oklahoma/
