@@ -1,3 +1,7 @@
+**Masters mailbag: Submit your questions for golf reporter Gabby Herzig**\
+`<p>We are two weeks away from the sports world descending on Augusta, Georgia, for this year&#8217;s Masters tournament.`\
+https://nytimes.com/athletic/7141460/2026/03/23/masters-mailbag-submit-your-questions-for-golf-reporter-gabby-herzig/
+
 **Passenger Jet and Fire Truck Crash at LaGuardia Airport, Leaving 2 Dead**\
 `The two pilots of a Air Canada Express jet were killed after a collision with a Port Authority fire truck on Sunday at LaGuardia Airport in New York. Audio from the tower indicated that an air traffic controller may have been distracted by an earlier incident.`\
 https://nytimes.com/video/nyregion/100000010795871/laguardia-crash-air-canada-fire-truck.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/23/nyregion/laguardia-plane-crash-victims.html
 **Trump Sets Up ‘Pax Silica’ Fund to Reduce Global Dependencies**\
 `Trump officials said on Monday that the war in Iran had emphasized the need to reduce vulnerabilities for energy and technology.`\
 https://nytimes.com/2026/03/23/business/economy/trump-pax-silica-fund.html
-
-**WNBA players approve new CBA in unanimous vote**\
-`Next, the WNBA board of governors must sign off on the deal before lawyers from both sides will execute the final agreement.`\
-https://nytimes.com/athletic/7141131/2026/03/23/wnba-players-vote-labor-deal-approved/
 
