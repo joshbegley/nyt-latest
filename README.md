@@ -1,3 +1,7 @@
+**Caught Between Two Conflicts, Afghans Flee Iran**\
+`The war in Iran is choking off Afghanistan’s main economic lifeline and has forced at least 70,000 Afghan workers and students there back home to a nation embroiled in another conflict.`\
+https://nytimes.com/2026/03/23/world/asia/iran-afghanistan-border-refugees.html
+
 **First look at the men's Sweet 16: Reasons to be excited about each matchup**\
 `The entire Sweet 16 field comes from one of the five power conferences, but 10 of the 16 are chasing their first NCAA Tournament title.`\
 https://nytimes.com/athletic/7139001/2026/03/23/ncaa-tournament-sweet-16-games-schedule-matchups/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/22/climate/energy-imbalance-un-report.html
 **‘The Comeback’ Season 3 Premiere Recap: The Old Razzle-Dazzle**\
 `The HBO comedy returned for a new season on Sunday, more than 11 years after the previous one.`\
 https://nytimes.com/2026/03/22/arts/television/the-comeback-season-3-premiere-recap.html
-
-**Darryn Peterson's brilliance undeniable in a season defined by what could have been**\
-`Kansas, in the end, got a season that somehow managed to confirm everything while still leaving something completely ajar.`\
-https://nytimes.com/athletic/7139805/2026/03/22/darryn-peterson-kansas-nba-draft-ncaa-tournament/
 
