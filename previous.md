@@ -1,3 +1,7 @@
+**Trump Sets Up ‘Pax Silica’ Fund to Reduce Global Dependencies**\
+`Trump officials said on Monday that the war in Iran had emphasized the need to reduce vulnerabilities for energy and technology.`\
+https://nytimes.com/2026/03/23/business/economy/trump-pax-silica-fund.html
+
 **WNBA players approve new CBA in unanimous vote**\
 `Next, the WNBA board of governors must sign off on the deal before lawyers from both sides will execute the final agreement.`\
 https://nytimes.com/athletic/7141131/2026/03/23/wnba-players-vote-labor-deal-approved/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/23/world/middleeast/energy-crisis-iea-warning.html
 **How to watch Senators vs. Rangers: Time, TV, streaming**\
 `Find out how to watch the Ottawa Senators play the New York Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7141267/2026/03/23/senators-vs-rangers-stream-how-to-watch-march-23/
-
-**Colombian Military Plane Crashes in ‘Tragic’ Accident, Officials Say**\
-`A military transport aircraft was involved in an accident as it took off from southern Colombia, according to the authorities. The number of victims was unclear.`\
-https://nytimes.com/2026/03/23/world/americas/colombian-military-crash.html
 
