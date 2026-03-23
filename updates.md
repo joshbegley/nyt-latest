@@ -1,3 +1,11 @@
+**College baseball week in review: Texas takes series at Auburn, Mainieri out at South Carolina**\
+`Alabama sweeps Florida, highlighted by a no-hitter from Tyler Fay. UCF off to a hot start in Big 12 play. `\
+https://nytimes.com/athletic/7139699/2026/03/23/college-baseball-texas-auburn-paul-mainieri/
+
+**Blue Jays extend manager John Schneider, GM Ross Atkins for at least 2 more seasons each**\
+`Under their leadership, the Blue Jays reached the World Series last season for the first time in 32 years.`\
+https://nytimes.com/athletic/7140467/2026/03/23/blue-jays-john-schneider-ross-atkins-extension/
+
 **FPL Gameweek 31 review: Own Chelsea or Liverpool players? Keep calm and carry on**\
 `The plan is simple: do nothing. Wait for the outcomes of the FA Cup quarter-finals and attack the schedule with a clear and informed plan`\
 https://nytimes.com/athletic/7138870/2026/03/23/fantasy-premier-league-gameweek-31-review-chelsea-liverpool/
