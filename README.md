@@ -1,3 +1,7 @@
+**Commanders mailbag: Submit your questions for beat reporter Nicki Jhabvala**\
+`The Commanders were active as free agency began, but its latest rebuild is just getting started.`\
+https://nytimes.com/athletic/7141199/2026/03/23/washington-commanders-mailbag-draft-free-agency/
+
 **Augie Meyers, Pioneer of Tex-Mex Music, Dies at 85**\
 `His carnival-like swirls on the Vox organ helped define the sound of the border with groups like the Sir Douglas Quintet and the Texas Tornados.`\
 https://nytimes.com/2026/03/23/arts/music/augie-meyers-dead.html
@@ -29,12 +33,4 @@ https://nytimes.com/2026/03/23/world/middleeast/israel-says-its-own-artillery-ki
 **Mueller’s Death, and Trump’s Gloating**\
 `Readers respond to Robert Mueller’s death and to President Trump’s coarse reaction. Also: Telephone history; car talk.`\
 https://nytimes.com/2026/03/23/opinion/robert-mueller-trump.html
-
-**One deeply red state, Alaska, may have the most at stake in a mail-in ballots case.**\
-`The nation’s most remote state relies on boats and planes to administer elections, and balloting is often at the mercy of extreme weather.`\
-https://nytimes.com/live/2026/03/23/us/supreme-court-voting-late-ballots/alaska-mail-ballots
-
-**Newcastle's Botman undergoes surgery on facial fracture**\
-`Botman was substituted as part of a concussion protocol in the 54th minute of Newcastle’s 2-1 defeat to Sunderland on Sunday.`\
-https://nytimes.com/athletic/7141073/2026/03/23/sven-botman-surgery-injury-update/
 
