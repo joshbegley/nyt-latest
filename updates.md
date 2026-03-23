@@ -1,3 +1,15 @@
+**NBA Rookie Rankings: Kon Knueppel, Cooper Flagg are staging an epic duel**\
+`No. 2 pick Dylan Harper looks like a future All-Star, while the Wizards might have found a surprise gem on the perimeter.`\
+https://nytimes.com/athletic/7130293/2026/03/23/nba-rookie-rankings-knueppel-flagg-harper/
+
+**What's next for Red Sox's pitching development program: The new 'Big Three'**\
+`Inside what the Red Sox are doing to push three promising 2025 draftees down the same path as Payton Tolle and Connelly Early.`\
+https://nytimes.com/athletic/7138430/2026/03/23/boston-red-sox-pitching-development-big-three-prospects/
+
+**Inside Real Madrid: Alexander-Arnold's apology, Bellingham returns, and another big scalp for Arbeloa**\
+`Reaction, analysis and the latest news around the Spanish giants, who beat city rivals Atletico Madrid 3-2 in La Liga on Sunday night`\
+https://nytimes.com/athletic/7140167/2026/03/23/real-madrid-atletico-alexander-arnold-bellingham-arbeloa/
+
 **The Pulse: A No. 1 seed falls**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7138494/2026/03/23/ncaa-sweet-16-the-pulse/
