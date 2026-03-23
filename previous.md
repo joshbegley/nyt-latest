@@ -1,3 +1,15 @@
+**One deeply red state, Alaska, may have the most at stake in a mail-in ballots case.**\
+`The nation’s most remote state relies on boats and planes to administer elections, and balloting is often at the mercy of extreme weather.`\
+https://nytimes.com/live/2026/03/23/us/supreme-court-voting-late-ballots/alaska-mail-ballots
+
+**Newcastle's Botman undergoes surgery on facial fracture**\
+`Botman was substituted as part of a concussion protocol in the 54th minute of Newcastle’s 1-0 loss to Sunderland.`\
+https://nytimes.com/athletic/7141073/2026/03/23/sven-botman-surgery-injury-update/
+
+**The justices are taking on a series of other election disputes this term.**\
+`The challenge to Mississippi’s mail-in ballot rules is one of several cases involving voting and elections.`\
+https://nytimes.com/live/2026/03/23/us/supreme-court-voting-late-ballots/the-justices-are-taking-on-a-series-of-other-election-disputes-this-term
+
 **Trump Administration to Pay $1 Billion to Energy Giant to Cancel Wind Farms**\
 `In exchange, the French company TotalEnergies would invest in oil and natural gas projects in Texas and elsewhere.`\
 https://nytimes.com/2026/03/23/climate/offshore-wind-gas-trump-total.html
@@ -21,20 +33,4 @@ https://nytimes.com/2026/03/23/business/energy-environment/iran-warn-western-oil
 **Richard Gadd on the ‘Whole Messy Complicated Subject’ of Manhood**\
 `Richard Gadd, the creator and star of the 2024 hit show “Baby Reindeer,” has a new series, “Half Man.” On “The Interview,” he discussed how both shows offer unflinching explorations of sexual confusion, tortured masculinity, emotional abuse and the impact of trauma (with some dark laughs thrown in).`\
 https://nytimes.com/video/podcasts/100000010795654/richard-gadd-on-the-whole-messy-complicated-subject-of-manhood.html
-
-**Steve Cooper accused by Bosnia coach of sidelining star due to Wales World Cup play-off**\
-`Sergej Barbarez said Bosnia midfielder Benjamin Tahirovic claimed to be dropped by Brondby due to the "roots and origins" of Cooper.`\
-https://nytimes.com/athletic/7140954/2026/03/23/wales-bosnia-world-cup-playoff-steve-cooper/
-
-**Warren Requests Information From MrBeast About Crypto and Children**\
-`The world’s most popular YouTube celebrity, who markets to children and has bragged about crypto trades, is getting into banking. Senator Elizabeth Warren has concerns.`\
-https://nytimes.com/2026/03/23/business/mrbeast-warren-crypto-children.html
-
-**N.Y.U. Professors Go on Strike, Seeking Better Pay and Job Protections**\
-`About 950 full-time faculty members who are not on the tenure track walked out. The university told students that classes would continue.`\
-https://nytimes.com/2026/03/23/nyregion/nyu-professors-strike.html
-
-**Judges’ partisan affiliations predicted their votes in the case.**\
-`Fifteen members of the federal appeals court in New Orleans participated, splitting exactly as the parties of the presidents who named them would suggest.`\
-https://nytimes.com/live/2026/03/23/us/supreme-court-voting-late-ballots/judges-partisan-affiliations-predicted-their-votes-in-the-case
 
