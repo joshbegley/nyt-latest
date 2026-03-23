@@ -1,9 +1,13 @@
+**Arsenal's Saliba out of France's friendlies, Lacroix called up**\
+`The FFF in a statement that Saliba is suffering from "recurring pain his his left ankle", which would require a minimum of 10 days' rest.`\
+https://nytimes.com/athletic/7140144/2026/03/23/saliba-france-squad-maxence-lacroix/
+
 **Plane Collides With Vehicle at LaGuardia Airport**\
-`Emergency crews swarmed a damaged Air Canada Express plane with a sheared off nose at LaGuardia Airport on Sunday night.`\
+`Emergency crews swarmed a damaged Air Canada Express plane with a sheared off nose at LaGuardia Airport.`\
 https://nytimes.com/video/us/100000010795471/laguardia-plane-crash-air-canada.html
 
-**Live Updates: LaGuardia Shut Down After Plane Collides With Vehicle**\
-`The airport was closed early Monday as emergency crews swarmed a damaged Air Canada Express jet on a runway. It had taken off from Montreal.`\
+**Live Updates: LaGuardia Shut Down After Jet Collides With Vehicle**\
+`The airport was closed early Monday as emergency crews swarmed a damaged Air Canada Express plane on a runway. There were no immediate reports of deaths or injuries.`\
 https://nytimes.com/live/2026/03/23/nyregion/laguardia-airport-plane-crash-truck
 
 **Jewish and Muslim People Face a Wave of Hate. Can Schools Turn the Tide?**\
@@ -30,11 +34,7 @@ https://nytimes.com/live/2026/03/23/world/iran-war-oil-trump/heres-the-latest
 `This word has appeared in 154 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/23/learning/word-of-the-day-acclimate.html
 
-**Arsenal are not losers, or chokers. So when will they be winners?**\
+**Arsenal are not losers or chokers. So when will they be winners?**\
 `The challenge for Arsenal is to ensure their resolve is stiffened rather than undermined by the setback of losing the Carabao Cup final`\
 https://nytimes.com/athletic/7139943/2026/03/23/arsenal-carabao-final/
-
-**Here’s the latest.**\
-`A ground stop was in effect early Monday as the Fire Department said it was responding to a runway incident. A New York Times journalist saw an Air Canada plane on the runway with a sheared-off nose.`\
-https://nytimes.com/2026/03/23/nyregion/laguardia-groundstop-flights.html
 
