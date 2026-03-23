@@ -1,3 +1,15 @@
+**Augie Meyers, Pioneer of Tex-Mex Music, Dies at 85**\
+`His carnival-like swirls on the Vox organ helped define the sound of the border with groups like the Sir Douglas Quintet and the Texas Tornados.`\
+https://nytimes.com/2026/03/23/arts/music/augie-meyers-dead.html
+
+**How to watch Raptors vs. Jazz: Time, TV, streaming**\
+`Find out how to watch the Toronto Raptors play the Utah Jazz, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7141222/2026/03/23/raptors-vs-jazz-stream-how-to-watch-march-23/
+
+**How to watch Rockets vs. Bulls: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Chicago Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7141214/2026/03/23/rockets-vs-bulls-stream-how-to-watch-march-23/
+
 **How to watch Grizzlies vs. Hawks: Time, TV, streaming**\
 `Find out how to watch the Memphis Grizzlies play the Atlanta Hawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7141201/2026/03/23/grizzlies-vs-hawks-stream-how-to-watch-march-23/
@@ -25,12 +37,4 @@ https://nytimes.com/live/2026/03/23/us/supreme-court-voting-late-ballots/alaska-
 **Newcastle's Botman undergoes surgery on facial fracture**\
 `Botman was substituted as part of a concussion protocol in the 54th minute of Newcastle’s 2-1 defeat to Sunderland on Sunday.`\
 https://nytimes.com/athletic/7141073/2026/03/23/sven-botman-surgery-injury-update/
-
-**The justices are taking on a series of other election disputes this term.**\
-`The challenge to Mississippi’s mail-in ballot rules is one of several cases involving voting and elections.`\
-https://nytimes.com/live/2026/03/23/us/supreme-court-voting-late-ballots/the-justices-are-taking-on-a-series-of-other-election-disputes-this-term
-
-**Trump Administration to Pay $1 Billion to Energy Giant to Cancel Wind Farms**\
-`In exchange, the French company TotalEnergies would invest in oil and natural gas projects in Texas and elsewhere.`\
-https://nytimes.com/2026/03/23/climate/offshore-wind-gas-trump-total.html
 
