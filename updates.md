@@ -1,3 +1,7 @@
+**London Jewish Community Ambulance Service Hit by Arson Attack**\
+`The Metropolitan Police said on Monday that it was investigating the episode as an antisemitic hate crime.`\
+https://nytimes.com/2026/03/23/us/jewish-ambulances-fire-london.html
+
 **Iran War Live Updates: Power Outages Are Reported in Tehran as Israel Launches Strikes**\
 `Residents reported widespread power outages across the capital. Israel’s military said it had begun a new wave of airstrikes targeting infrastructure in the city, but did not provide further details.`\
 https://nytimes.com/live/2026/03/23/world/iran-war-oil-trump

@@ -1,3 +1,7 @@
+**London Jewish Community Ambulance Service Hit by Arson Attack**\
+`The Metropolitan Police said on Monday that it was investigating the episode as an antisemitic hate crime.`\
+https://nytimes.com/2026/03/23/us/jewish-ambulances-fire-london.html
+
 **Iran War Live Updates: Power Outages Are Reported in Tehran as Israel Launches Strikes**\
 `Residents reported widespread power outages across the capital. Israel’s military said it had begun a new wave of airstrikes targeting infrastructure in the city, but did not provide further details.`\
 https://nytimes.com/live/2026/03/23/world/iran-war-oil-trump
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7138052/2026/03/23/west-ham-premier-league-kilman-n
 **Stocks Tumble as Oil Prices Rise**\
 `Investors braced for a fourth week of market turmoil caused by the war in the Middle East`\
 https://nytimes.com/2026/03/23/business/oil-stocks-gas-prices-iran.html
-
-**Leeds are awful. It needs to change**\
-`The last two league games at Elland Road were among the worst spectacles in years. It’s not entertaining and it’s not producing goals`\
-https://nytimes.com/athletic/7137674/2026/03/23/leeds-brentford-problems-farke/
 
