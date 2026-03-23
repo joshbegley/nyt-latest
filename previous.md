@@ -1,3 +1,7 @@
+**Why the Dodgers named Alex Freeland to Opening Day roster over Hyeseong Kim**\
+`Freeland's approach made an impression on the Dodgers. In the rotation, Roki Sasaki's inconsistency prompts a backup plan. `\
+https://nytimes.com/athletic/7139655/2026/03/22/dogers-alex-freeland-hyeseong-kim/
+
 **Suspect in Chicago Student’s Killing Was in U.S. Illegally, D.H.S. Says**\
 `Sheridan Gorman, 18, was killed last week near Loyola University Chicago. The Trump administration has sought to highlight crimes committed by undocumented people in its deportation campaign.`\
 https://nytimes.com/2026/03/22/us/loyola-student-death-arrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7139599/2026/03/22/kentucky-basketball-ncaa-tournam
 **Kansas' shrewd late-game foul strategy ends up unsuccessful vs. St. John's**\
 `Kansas had several fouls to give in the final moments — and used them all.`\
 https://nytimes.com/athletic/7139621/2026/03/22/kansas-st-johns-fouls-to-give/
-
-**Hurricanes humble sluggish Penguins as defensive issues escalate**\
-`The Penguins endured a rough day against Carolina resulting in a 5-1 loss.`\
-https://nytimes.com/athletic/7139299/2026/03/22/penguins-lose-hurricanes-defensive-issues/
 
