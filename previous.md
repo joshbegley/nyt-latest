@@ -1,3 +1,23 @@
+**WNBA players approve new CBA in unanimous vote**\
+`Next, the WNBA board of governors must sign off on the deal before lawyers from both sides will execute the final agreement.`\
+https://nytimes.com/athletic/7141131/2026/03/23/wnba-players-vote-labor-deal-approved/
+
+**PSG request Lens match postponement due to UCL Liverpool tie**\
+`PSG are due to face second-place Lens in the week between their quarter-final legs in April.  `\
+https://nytimes.com/athletic/7141233/2026/03/23/paris-saint-germain-lens-liverpool-champions-league-postponement/
+
+**New Top Prosecutor Named in Embattled U.S. Attorney’s Office**\
+`Federal judges appointed Robert Frazer to run New Jersey’s U.S. attorney’s office, which has been in disarray over the past year because of uncertainty about who was in charge.`\
+https://nytimes.com/2026/03/23/nyregion/new-attorney-nj-habba.html
+
+**How to watch USC vs. South Carolina women's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the USC Trojans play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7141322/2026/03/23/usc-vs-south-carolina-stream-how-to-watch-march-23/
+
+**Brian Doherty, 57, Dies; Chronicled Libertarians and Other Outsiders**\
+`Fascinated by the fringes, he wrote a definitive history of libertarianism and books about underground comics and the Burning Man festival.`\
+https://nytimes.com/2026/03/23/us/politics/brian-doherty-dead.html
+
 **Trump Delays Energy Strikes, but Iran’s Infrastructure is Already Battered**\
 `U.S. and Israeli attacks on power plants and other civilian infrastructure risk escalating the conflict across the region, and angering Iranians who oppose the government.`\
 https://nytimes.com/2026/03/23/world/middleeast/trump-iran-battered-infrastructure.html
@@ -13,20 +33,4 @@ https://nytimes.com/athletic/7141267/2026/03/23/senators-vs-rangers-stream-how-t
 **Colombian Military Plane Crashes in ‘Tragic’ Accident, Officials Say**\
 `A military transport aircraft was involved in an accident as it took off from southern Colombia, according to the authorities. The number of victims was unclear.`\
 https://nytimes.com/2026/03/23/world/americas/colombian-military-crash.html
-
-**Commanders mailbag: Submit your questions for beat reporter Nicki Jhabvala**\
-`The Commanders were active as free agency began, but its latest rebuild is just getting started.`\
-https://nytimes.com/athletic/7141199/2026/03/23/washington-commanders-mailbag-draft-free-agency/
-
-**Augie Meyers, Pioneer of Tex-Mex Music, Dies at 85**\
-`His carnival-like swirls on the Vox organ helped define the sound of the border with groups like the Sir Douglas Quintet and the Texas Tornados.`\
-https://nytimes.com/2026/03/23/arts/music/augie-meyers-dead.html
-
-**How to watch Raptors vs. Jazz: Time, TV, streaming**\
-`Find out how to watch the Toronto Raptors play the Utah Jazz, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7141222/2026/03/23/raptors-vs-jazz-stream-how-to-watch-march-23/
-
-**How to watch Rockets vs. Bulls: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the Chicago Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7141214/2026/03/23/rockets-vs-bulls-stream-how-to-watch-march-23/
 
