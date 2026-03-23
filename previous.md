@@ -1,3 +1,7 @@
+**Boxer Isis Sio in medically induced coma after first-round knockout**\
+`The 19-year-old fighter was knocked out after taking a series of punches to the head.`\
+https://nytimes.com/athletic/7139480/2026/03/22/isis-sio-knockout-coma-jocelyn-camarillo/
+
 **With Anton Frondell on the way, Ryan Greene and Nick Lardis look to keep top-six spots**\
 `Greene has exceeded his own expectations this season, but he might be bound for a less prominent role in the homestretch of the season.`\
 https://nytimes.com/athletic/7139414/2026/03/22/blackhakws-anton-frondell-ryan-greene-nick-lardis/
@@ -19,7 +23,7 @@ https://nytimes.com/2026/03/22/nyregion/columbia-protester-palestinian-ice-deten
 https://nytimes.com/athletic/7139307/2026/03/22/jessi-pierce-wild-media/
 
 **Tyler Reddick's historic NASCAR start continues with win at Darlington**\
-`Tyler Reddick, who made history by winning the first three races of the NASCAR season, made it four out of six Sunday at Darlington.`\
+`Reddick, who made history by winning the first three races of the NASCAR season, made it four out of six Sunday at Darlington.`\
 https://nytimes.com/athletic/7139479/2026/03/22/tyler-reddick-nascar-darlington-win-rfk-racing/
 
 **At New York Airports, Long T.S.A. Lines and Frustrated Travelers**\
@@ -31,10 +35,6 @@ https://nytimes.com/2026/03/22/nyregion/airports-tsa-delays-nyc.html
 https://nytimes.com/athletic/7139313/2026/03/22/matt-fitzpatrick-valspar-championship-win-pga-tour-players/
 
 **Messi, Miami complete comeback win at NYCFC after Champions Cup disappointment**\
-`The reigning MLS champ has suffered a devastating defeat midweek but bounced back on Sunday`\
+`The reigning MLS champ suffered a devastating defeat midweek but bounced back on Sunday at Yankee Stadium.`\
 https://nytimes.com/athletic/7139260/2026/03/22/inter-miami-messi-nycfc-mls/
-
-**How the G.O.P. and Democrats Are Talking About the Surge in Gas Prices**\
-`Republicans have largely been on defense against Democratic criticism. Here are five arguments advanced by figures in both parties.`\
-https://nytimes.com/2026/03/22/us/politics/republicans-democrats-gas-prices-comments-midterms.html
 
