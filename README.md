@@ -1,3 +1,19 @@
+**Flights Are Halted at LaGuardia as New York Fire Department Responds to Incident**\
+`The Federal Aviation Administration ordered the closure early Monday, and the Fire Department said the reported runway incident involved a plane and a vehicle. No other details were immediately available.`\
+https://nytimes.com/2026/03/23/nyregion/laguardia-groundstop-flights.html
+
+**Aston Villa and their left-sided scheming**\
+`Emery knew West Ham was an opportunity for Villa to pull clear from their Champions League rivals - this is how they did it`\
+https://nytimes.com/athletic/7138403/2026/03/23/aston-villa-left-side-emery/
+
+**Vitor Pereira has the players and fans on side - it might just keep Nottingham Forest up**\
+`The new manager has fostered a sense of unity and there is now a renewed sense of positivity at the club following two impressive results`\
+https://nytimes.com/athletic/7138632/2026/03/23/nottingham-forest-premier-league-relegation-pereira/
+
+**Nuno doesn’t trust Kilman. He may never play for West Ham again**\
+`The manager's decision to opt for academy graduate Freddie Potts ahead of the English defender after Jean-Clair Todibo's injury was telling`\
+https://nytimes.com/athletic/7138052/2026/03/23/west-ham-premier-league-kilman-nuno/
+
 **Stocks Tumble as Oil Prices Rise**\
 `Investors braced for a fourth week of market turmoil caused by the war in the Middle East`\
 https://nytimes.com/2026/03/23/business/oil-stocks-gas-prices-iran.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7140000/2026/03/23/kansas-jayhawks-bill-self-ncaa-t
 **Howe's future, striker signings, brutal transfer decisions and more ways to fix Newcastle United**\
 `The people running this club need to make big decisions on these eight things to get them back on track`\
 https://nytimes.com/athletic/7138204/2026/03/23/newcastle-premier-league-champions-league-howe/
-
-**Tottenham's fans did their bit. Then the football started – and everything went wrong**\
-`There was a huge atmosphere for Nottingham Forest's visit but another defeat makes relegation seem closer than ever`\
-https://nytimes.com/athletic/7130788/2026/03/23/tottenham-hotspur-relegation-threat/
-
-**The emotional impact for Man Utd fans being moved: 'I have my dad's seat number tattooed on my arm'**\
-`Manchester United are moving more than 500 season ticket holders in the Sir Bobby Charlton stand`\
-https://nytimes.com/athletic/7135926/2026/03/23/man-utd-season-tickets-fans-moved/
-
-**I spent seven hours on the sofa watching football. It was emotional**\
-`A gritty derby with an underdog victor, glory for City, pain for Arsenal, a rousing win for Forest... and just another day for Spurs`\
-https://nytimes.com/athletic/7137944/2026/03/23/premier-league-carabao-tv/
-
-**Are Chelsea edging towards a crisis?**\
-`There are clubs queueing up behind them, and it now feels like no European football at all next season is a possibility`\
-https://nytimes.com/athletic/7137953/2026/03/23/chelsea-crisis-liam-rosenior/
 
