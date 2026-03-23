@@ -1,3 +1,7 @@
+**How to watch Alabama vs. Louisville women's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Alabama Crimson Tide play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7140212/2026/03/23/alabama-vs-louisville-stream-how-to-watch-march-23/
+
 **The jet was operated by Jazz Aviation, Canada’s biggest regional airline.**\
 `By Yan Zhuang`\
 https://nytimes.com/live/2026/03/23/nyregion/laguardia-airport-plane-crash-truck/jazz-aviation-canada-airline
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/23/world/europe/ukraine-drones-marketplace-military-
 **‘A Mass Disaster Nonstop’: Inside the Turmoil at Robert F. Kennedy Jr.’s C.D.C.**\
 `Forty-three current and former C.D.C. employees on the changes they say are replacing science with ideology — and making Americans more vulnerable.`\
 https://nytimes.com/interactive/2026/03/23/magazine/trump-rfk-jr-cdc-vaccines-maha.html
-
-**Which Countries Depend the Most on Persian Gulf Oil and Gas**\
-`Nations thousands of miles away from war are feeling the pain of their energy supplies suddenly vanishing. Some are feeling the loss more acutely than others.`\
-https://nytimes.com/interactive/2026/03/23/business/energy-environment/oil-importers-middle-east-iran-war.html
 

@@ -1,3 +1,7 @@
+**How to watch Alabama vs. Louisville women's basketball: Second Round Time, TV, streaming**\
+`Find out how to watch the Alabama Crimson Tide play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7140212/2026/03/23/alabama-vs-louisville-stream-how-to-watch-march-23/
+
 **The jet was operated by Jazz Aviation, Canada’s biggest regional airline.**\
 `By Yan Zhuang`\
 https://nytimes.com/live/2026/03/23/nyregion/laguardia-airport-plane-crash-truck/jazz-aviation-canada-airline
