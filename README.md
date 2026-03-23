@@ -1,3 +1,7 @@
+**The often dour Timberwolves needed a injection of fun. Enter Bones Hyland**\
+`"The way Bones is playing right now, it's really important we keep him in this group when Ant comes back," coach Chris Finch said.`\
+https://nytimes.com/athletic/7139768/2026/03/23/bones-hyland-timberwolves-fun-celtics/
+
 **A preview of The Athletic’s live coverage this week**\
 `The Athletic's live coverage this week is headlined by March Madness, World Cup qualifying playoffs and the start of the 2026 MLB season.`\
 https://nytimes.com/athletic/7140289/2026/03/23/march-madness-world-cup-playoffs-mlb/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7139241/2026/03/23/steven-kwan-center-field-future-
 **He's the hottest recruit in the nation — and he's never played a down of football**\
 `Just a few months ago, no college coach knew that Neff Giwa existed. Now, he has offers from Miami, South Carolina, Tennessee and others. `\
 https://nytimes.com/athletic/7136381/2026/03/23/college-football-recruiting-neff-giwa-rugby-ireland/
-
-**Can the Twins win in 2026? Expectations plummet along with payroll, fan morale**\
-`It's been a decade since projection systems and odds makers were this low on the Twins, but 2015 and 2017 show the unexpected is possible.`\
-https://nytimes.com/athletic/7130950/2026/03/23/minnesota-twins-expectations-payroll-fan-morale/
 
