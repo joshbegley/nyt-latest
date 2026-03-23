@@ -1,3 +1,7 @@
+**Masters mailbag: Submit your questions for golf reporter Gabby Herzig**\
+`<p>We are two weeks away from the sports world descending on Augusta, Georgia, for this year&#8217;s Masters tournament.`\
+https://nytimes.com/athletic/7141460/2026/03/23/masters-mailbag-submit-your-questions-for-golf-reporter-gabby-herzig/
+
 **Passenger Jet and Fire Truck Crash at LaGuardia Airport, Leaving 2 Dead**\
 `The two pilots of a Air Canada Express jet were killed after a collision with a Port Authority fire truck on Sunday at LaGuardia Airport in New York. Audio from the tower indicated that an air traffic controller may have been distracted by an earlier incident.`\
 https://nytimes.com/video/nyregion/100000010795871/laguardia-crash-air-canada-fire-truck.html
