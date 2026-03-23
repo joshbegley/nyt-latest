@@ -1,3 +1,11 @@
+**Trump Delays Energy Strikes, but Iran’s Infrastructure is Already Battered**\
+`U.S. and Israeli attacks on power plants and other civilian infrastructure risk escalating the conflict across the region, and angering Iranians who oppose the government.`\
+https://nytimes.com/2026/03/23/world/middleeast/trump-iran-battered-infrastructure.html
+
+**Energy Crisis Will Not Be Resolved Quickly if War Ends, I.E.A. Chief Warns**\
+`Fatih Birol, the leader of the International Energy Agency, said the Iran war was a bigger crisis that the two oil shocks in the 1970s combined.`\
+https://nytimes.com/2026/03/23/world/middleeast/energy-crisis-iea-warning.html
+
 **How to watch Senators vs. Rangers: Time, TV, streaming**\
 `Find out how to watch the Ottawa Senators play the New York Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7141267/2026/03/23/senators-vs-rangers-stream-how-to-watch-march-23/
@@ -21,12 +29,4 @@ https://nytimes.com/athletic/7141222/2026/03/23/raptors-vs-jazz-stream-how-to-wa
 **How to watch Rockets vs. Bulls: Time, TV, streaming**\
 `Find out how to watch the Houston Rockets play the Chicago Bulls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7141214/2026/03/23/rockets-vs-bulls-stream-how-to-watch-march-23/
-
-**How to watch Grizzlies vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the Memphis Grizzlies play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7141201/2026/03/23/grizzlies-vs-hawks-stream-how-to-watch-march-23/
-
-**Judge Hears State Challenge to Trump’s Tech Deal Settlement**\
-`Democratic state attorneys general are fighting the Justice Department’s clearance of a $14 billion deal by Hewlett Packard Enterprise, arguing it was ineffective and corrupt.`\
-https://nytimes.com/2026/03/23/technology/hpe-juniper-hearing-settlement.html
 

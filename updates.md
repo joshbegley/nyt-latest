@@ -1,3 +1,11 @@
+**How to watch Senators vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7141267/2026/03/23/senators-vs-rangers-stream-how-to-watch-march-23/
+
+**Colombian Military Plane Crashes in ‘Tragic’ Accident, Officials Say**\
+`A military transport aircraft was involved in an accident as it took off from southern Colombia, according to the authorities. The number of victims was unclear.`\
+https://nytimes.com/2026/03/23/world/americas/colombian-military-crash.html
+
 **Colombian Military Plane Crashed in ‘Tragic’ Accident, Officials Say**\
 `A military transport aircraft was involved in an accident as it took off from southern Colombia, according to the authorities. The number of victims was unclear.`\
 https://nytimes.com/2026/03/23/world/americas/colombian-military-crash.html
