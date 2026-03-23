@@ -1,3 +1,7 @@
+**Nationals place Josiah Gray on 60-day IL with right flexor strain**\
+`The 28-year-old was given a clean bill of health coming into camp and had an outside shot at making the starting rotation.`\
+https://nytimes.com/athletic/7142117/2026/03/23/josiah-gray-injured-list-nationals-flexor-strain/
+
 **Here’s What Happened in the War in the Middle East on Monday**\
 `Conflicting signals about whether any negotiations to end the fighting were in progress created confusion.`\
 https://nytimes.com/2026/03/23/world/middleeast/middle-east-war-iran-march-23.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7141945/2026/03/23/gotham-fc-roster-nwsl-recap-full
 **Boston University Pulls Pride Flags, Raising Free Speech Worries**\
 `The university said the flags broke a rule against hanging signs, a policy embraced by other campuses that cracked down on protests. Professors and others say such rules chill speech.`\
 https://nytimes.com/2026/03/23/us/boston-university-pride-flags-free-speech.html
-
-**Pentagon Adopts New Limits for Journalists After Court Loss**\
-`The Defense Department said it would close the Pentagon’s work area for journalists, among other changes, after a judge found the existing media policy unconstitutional.`\
-https://nytimes.com/2026/03/23/business/media/pentagon-closes-journalists-work-area.html
 
