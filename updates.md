@@ -1,3 +1,7 @@
+**Antoine Griezmann, an Atletico Madrid legend whose MLS move with Orlando makes perfect sense**\
+`The 35-year-old French forward flew out to finalise a summer transfer on Sunday night, following a 3-2 defeat at Real Madrid`\
+https://nytimes.com/athletic/7141161/2026/03/23/griezmann-orlando-mls-transfer-atletico-madrid/
+
 **Padres' Nick Pivetta earns first Opening Day start**\
 `Pivetta, who logged a career-best 2.87 ERA last season, will duel Detroit Tigers ace Tarik Skubal at Petco Park on Thursday.`\
 https://nytimes.com/athletic/7141371/2026/03/23/padres-nick-pivetta-opening-day-starter/

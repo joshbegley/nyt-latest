@@ -1,3 +1,7 @@
+**Antoine Griezmann, an Atletico Madrid legend whose MLS move with Orlando makes perfect sense**\
+`The 35-year-old French forward flew out to finalise a summer transfer on Sunday night, following a 3-2 defeat at Real Madrid`\
+https://nytimes.com/athletic/7141161/2026/03/23/griezmann-orlando-mls-transfer-atletico-madrid/
+
 **Padres' Nick Pivetta earns first Opening Day start**\
 `Pivetta, who logged a career-best 2.87 ERA last season, will duel Detroit Tigers ace Tarik Skubal at Petco Park on Thursday.`\
 https://nytimes.com/athletic/7141371/2026/03/23/padres-nick-pivetta-opening-day-starter/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/23/nyregion/new-attorney-nj-habba.html
 **How to watch USC vs. South Carolina women's basketball: Second Round Time, TV, streaming**\
 `Find out how to watch the USC Trojans play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7141322/2026/03/23/usc-vs-south-carolina-stream-how-to-watch-march-23/
-
-**Brian Doherty, 57, Dies; Chronicled Libertarians and Other Outsiders**\
-`Fascinated by the fringes, he wrote a definitive history of libertarianism and books about underground comics and the Burning Man festival.`\
-https://nytimes.com/2026/03/23/us/politics/brian-doherty-dead.html
 

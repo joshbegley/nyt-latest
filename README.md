@@ -1,3 +1,7 @@
+**Attack on Jewish Ambulance Service Being Investigated as Hate Crime**\
+`On Monday, four ambulances belonging to a Jewish nonprofit were set on fire. The police said that they were assessing a claim of a video claiming responsibility for the attack and were investigating the incident as an antisemitic hate crime.`\
+https://nytimes.com/video/world/europe/100000010796022/london-ambulance-arson-hate-crime.html
+
 **Antoine Griezmann, an Atletico Madrid legend whose MLS move with Orlando makes perfect sense**\
 `The 35-year-old French forward flew out to finalise a summer transfer on Sunday night, following a 3-2 defeat at Real Madrid`\
 https://nytimes.com/athletic/7141161/2026/03/23/griezmann-orlando-mls-transfer-atletico-madrid/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/7141161/2026/03/23/griezmann-orlando-mls-transfer-a
 `Pivetta, who logged a career-best 2.87 ERA last season, will duel Detroit Tigers ace Tarik Skubal at Petco Park on Thursday.`\
 https://nytimes.com/athletic/7141371/2026/03/23/padres-nick-pivetta-opening-day-starter/
 
-**Pentagon Officials Weigh Deployment of Airborne Troops to Iran**\
+**Pentagon Officials Weigh Deployment of Airborne Troops to Iran War**\
 `The combat forces would come from a brigade of about 3,000 soldiers capable of deploying anywhere in the world within 18 hours.`\
 https://nytimes.com/2026/03/23/us/politics/us-airborne-troops-iran.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7141233/2026/03/23/paris-saint-germain-lens-liverpo
 **New Top Prosecutor Named in Embattled U.S. Attorney’s Office**\
 `Federal judges appointed Robert Frazer to run New Jersey’s U.S. attorney’s office, which has been in disarray over the past year because of uncertainty about who was in charge.`\
 https://nytimes.com/2026/03/23/nyregion/new-attorney-nj-habba.html
-
-**How to watch USC vs. South Carolina women's basketball: Second Round Time, TV, streaming**\
-`Find out how to watch the USC Trojans play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7141322/2026/03/23/usc-vs-south-carolina-stream-how-to-watch-march-23/
 
