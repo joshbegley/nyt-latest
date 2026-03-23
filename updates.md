@@ -1,3 +1,15 @@
+**Israel Says Its Own Artillery Killed a Farmer, Not a Hezbollah Rocket**\
+`Ofer Moskovitz, 60, an avocado farmer in a kibbutz on Israel’s border with Lebanon, was killed Sunday when the car he was riding in was hit.`\
+https://nytimes.com/2026/03/23/world/middleeast/israel-says-its-own-artillery-killed-a-farmer-not-a-hezbollah-rocket.html
+
+**Mueller’s Death, and Trump’s Gloating**\
+`Readers respond to Robert Mueller’s death and to President Trump’s coarse reaction. Also: Telephone history; car talk.`\
+https://nytimes.com/2026/03/23/opinion/robert-mueller-trump.html
+
+**Newcastle's Botman undergoes surgery on facial fracture**\
+`Botman was substituted as part of a concussion protocol in the 54th minute of Newcastle’s 2-1 defeat to Sunderland on Sunday.`\
+https://nytimes.com/athletic/7141073/2026/03/23/sven-botman-surgery-injury-update/
+
 **One deeply red state, Alaska, may have the most at stake in a mail-in ballots case.**\
 `The nation’s most remote state relies on boats and planes to administer elections, and balloting is often at the mercy of extreme weather.`\
 https://nytimes.com/live/2026/03/23/us/supreme-court-voting-late-ballots/alaska-mail-ballots
