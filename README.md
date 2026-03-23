@@ -1,3 +1,11 @@
+**Jewish and Muslim People Face a Wave of Hate. Can Schools Turn the Tide?**\
+`New York City is rolling out lessons on Jewish and Muslim American history. Too often, some leaders say, what students know comes from TikTok and social media.`\
+https://nytimes.com/2026/03/23/nyregion/nyc-schools-jewish-muslim-history-lessons.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/23/crosswords/spelling-bee-forum.html
+
 **London Jewish Community Ambulance Service Hit by Arson Attack**\
 `The Metropolitan Police said on Monday that it was investigating the episode as an antisemitic hate crime.`\
 https://nytimes.com/2026/03/23/us/jewish-ambulances-fire-london.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7138403/2026/03/23/aston-villa-left-side-emery/
 **Vitor Pereira has the players and fans on side - it might just keep Nottingham Forest up**\
 `The new manager has fostered a sense of unity and there is now a renewed sense of positivity at the club following two impressive results`\
 https://nytimes.com/athletic/7138632/2026/03/23/nottingham-forest-premier-league-relegation-pereira/
-
-**Nuno doesn’t trust Kilman. He may never play for West Ham again**\
-`The manager's decision to opt for academy graduate Freddie Potts ahead of the English defender after Jean-Clair Todibo's injury was telling`\
-https://nytimes.com/athletic/7138052/2026/03/23/west-ham-premier-league-kilman-nuno/
-
-**Stocks Tumble as Oil Prices Rise**\
-`Investors braced for a fourth week of market turmoil caused by the war in the Middle East`\
-https://nytimes.com/2026/03/23/business/oil-stocks-gas-prices-iran.html
 
