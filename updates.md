@@ -1,3 +1,7 @@
+**In California, a Republican Sheriff Seizes Ballots, Prompting Criticism**\
+`Riverside County Sheriff Chad Bianco, a candidate for governor, recently took possession of more than 650,000 ballots as part of a fraud probe. Election officials say his investigation is baseless.`\
+https://nytimes.com/2026/03/23/us/politics/california-ballot-seizure-elections.html
+
 **Which Countries Depend the Most on Persian Gulf Oil and Gas**\
 `Nations thousands of miles away from war are feeling the pain of their energy supplies suddenly vanishing. Some are feeling the loss more acutely than others.`\
 https://nytimes.com/interactive/2026/03/23/business/energy-environment/oil-importers-middle-east-iran-war.html
