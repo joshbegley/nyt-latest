@@ -1,3 +1,15 @@
+**Radko Gudas expresses remorse for Auston Matthews' season-ending injury: 'I've got to learn'**\
+`"I feel terrible about the outcome," Gudas said of the knee-to-knee hit on Matthews.`\
+https://nytimes.com/athletic/7145051/2026/03/24/radko-gudas-apology-matthews-suspension/
+
+**LaGuardia Crash Survivors Recount Ordeal**\
+`Survivors of an Air Canada Express flight that crashed into a fire truck at LaGuardia Airport on Sunday evening recalled details of the terrifying incident.`\
+https://nytimes.com/video/nyregion/100000010799283/laguardia-crash-survivors-recount-ordeal.html
+
+**The Aching Power of Abraham Vazquez**\
+`Our critic Jon Caramanica breaks down Abraham Vazquez’s “Se Apagó la Luz,” a startlingly beautiful song about loss that will kick you in the teeth.`\
+https://nytimes.com/video/podcasts/100000010799581/the-aching-power-of-abraham-vazquez.html
+
 **Bills' new stadium: A look inside at progress for building scheduled to open for 2026 season**\
 `The Bills opened the facility for a media tour.`\
 https://nytimes.com/athletic/7143570/2026/03/24/bills-new-stadium-look-inside-progress/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/24/briefing/supreme-court-asylum-laguardia-crash.htm
 **Storm Pounds Maui as Rainfall Totals Add Up Across Hawaii**\
 `Experts agree that the past weeks have been one of the rainiest periods in recent memory across the state.`\
 https://nytimes.com/2026/03/24/weather/hawaii-storms-rain-records.html
-
-**Newsom Says He Regrets Remarks Comparing Israel to ‘Apartheid State’**\
-`The California governor suggested that he had meant to refer to Israel’s potential future direction, not its current policies. “I revere the state of Israel,” he said.`\
-https://nytimes.com/2026/03/24/us/politics/newsom-israel-apartheid-state.html
-
-**Iran Signals Resilience With Volley of Missiles Across Middle East**\
-`The barrage continued as officials said the U.S. had sent Iran a 15-point plan to end the war. But Iranian officials have publicly denied that Washington and Tehran are talking directly.`\
-https://nytimes.com/2026/03/24/world/middleeast/iran-missiles-middle-east-trump-deal.html
-
-**MLB base coaches say new rule to curb pitch tipping has put them in harm’s way**\
-`MLB is standing by its enforcement though one coach told The Athletic, "we’ve all been talking about how you’re constantly in danger."`\
-https://nytimes.com/athletic/7144575/2026/03/24/mlb-base-coaches-harms-way-new-rule-exclusive/
 
