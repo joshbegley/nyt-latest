@@ -1,3 +1,7 @@
+**Florida Middle School Student Is Arrested After Stabbing Attack**\
+`A seventh-grade student was accused of stabbing two other students and a paraprofessional, the authorities said.`\
+https://nytimes.com/2026/03/24/us/florida-walton-middle-school-stabbing.html
+
 **What a bad season would look like for the 2026 Giants**\
 `A bad year for the Giants would be for their season to end with no clear direction or understanding of how to move the team forward.`\
 https://nytimes.com/athletic/7144326/2026/03/24/sf-giants-2026-outlook-bad-season/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/24/business/epic-games-layoffs-fortnite.html
 **How to watch Nuggets vs. Suns: Time, TV, streaming**\
 `Find out how to watch the Denver Nuggets play the Phoenix Suns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7144323/2026/03/24/nuggets-vs-suns-stream-how-to-watch-march-24/
-
-**Costa Rica Agrees to Take Migrants Deported by the Trump Administration**\
-`The agreement is part of President Trump’s efforts to find governments willing to accept people who have been detained in the United States.`\
-https://nytimes.com/2026/03/24/world/americas/costa-rica-us-deportation-deal.html
 
