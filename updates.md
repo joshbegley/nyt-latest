@@ -1,3 +1,7 @@
+**Man arrested in connection with assault in which two Brentford players intervened**\
+`The alleged incident happened in Richmond on Sunday, with the arrest taking place on Tuesday.`\
+https://nytimes.com/athletic/7143317/2026/03/24/brentford-arrest-players-assault/
+
 **Mikaela Shiffrin wins record ninth slalom race of World Cup season, nears overall title**\
 `Mikaela Shiffrin is on the brink of her sixth career overall World Cup title after keeping her red-hot slalom streak going Tuesday.`\
 https://nytimes.com/athletic/7125715/2026/03/24/mikaela-shiffrin-world-cup-slalom-win-nine-overall-title/
