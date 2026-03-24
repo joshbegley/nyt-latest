@@ -1,3 +1,7 @@
+**‘Giant’ Review: As Roald Dahl, John Lithgow Is a Study in Monstrosity**\
+`In Mark Rosenblatt’s play, a powerful portrayal of the beloved children’s book author who almost gleefully exposes his bigotry.`\
+https://nytimes.com/2026/03/23/theater/giant-review-broadway-lithgow-dahl.html
+
 **Firefighter Released From Hospital After LaGuardia Accident**\
 `Two firefighters were injured when an Air Canada plane hit the truck they were in on Sunday. One of them remained in the hospital on Monday.`\
 https://nytimes.com/live/2026/03/23/nyregion/laguardia-airport-plane-crash-truck/laguardia-crash-firefighters-injured
@@ -34,8 +38,4 @@ https://nytimes.com/2026/03/23/nyregion/air-canada-crash-laguardia-nyc.html
 `With Javier Assad getting optioned to Triple A, Chicago's initial 13-man pitching staff is now determined.
 `\
 https://nytimes.com/athletic/7142312/2026/03/23/cubs-roster-projection-seiya-suzuki-ben-brown/
-
-**How to Reduce the Environmental Impact of Collecting Art**\
-`From flying commercial to choosing reusable packing crates, art enthusiasts have many options to consider`\
-https://nytimes.com/2026/03/23/arts/design/environmental-impact-art-collecting.html
 

@@ -1,3 +1,12 @@
+**‘Giant’ Review: As Roald Dahl, John Lithgow Is a Study in Monstrosity**\
+`In Mark Rosenblatt’s play, a powerful portrayal of the beloved children’s book author who almost gleefully exposes his bigotry.`\
+https://nytimes.com/2026/03/23/theater/giant-review-broadway-lithgow-dahl.html
+
+**Cubs roster projection 3.0: Seiya Suzuki out, Ben Brown in for Opening Day**\
+`With Javier Assad getting optioned to Triple A, Chicago's initial 13-man pitching staff is now determined.
+`\
+https://nytimes.com/athletic/7142312/2026/03/23/cubs-roster-projection-seiya-suzuki-ben-brown/
+
 **Cubs roster projection 3.0: Seiya Suzuki out, Ben Brown in for Opening Day**\
 `With Javier Assad getting optioned to Triple A, Chicago's initial 13-man pitching staff is now determined.
 `\
