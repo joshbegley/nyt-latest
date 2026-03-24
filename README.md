@@ -1,3 +1,7 @@
+**Rangers' Carter Baumler learns of Opening Day roster spot mid-outing**\
+`After getting the news from manager Skip Schumaker, Carter Baumler promptly struck out his third hitter of the night.`\
+https://nytimes.com/athletic/7143689/2026/03/24/rangers-opening-day-roster-carter-baumler-mound-visit/
+
 **JC Tretter on why he returned to NFLPA as executive director after tenuous exit**\
 `Eight months after resigning, Tretter is back in the NFLPA's top job. He says he wishes he had done more to defend himself last summer.`\
 https://nytimes.com/athletic/7143346/2026/03/24/jc-tretter-interview-nflpa-executive-director/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7143656/2026/03/24/red-sox-connelly-early-john-ovie
 **Trump’s Threat to Iran Crosses a Line, Rights Experts Say**\
 `Intentionally targeting the country’s energy infrastructure could constitute a war crime under international law.`\
 https://nytimes.com/2026/03/24/us/politics/trump-iran-power-stations.html
-
-**‘I’m Tainted. I’m in the Files.’**\
-`He mastered the world of the “Epstein Class” to build great museums. Now he’s confronting the cost.`\
-https://nytimes.com/2026/03/24/us/david-a-ross-jeffrey-epstein-donations.html
 
