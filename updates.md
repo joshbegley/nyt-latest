@@ -1,3 +1,7 @@
+**Afghanistan Frees American Detainee Amid Mounting U.S. Pressure**\
+`Denis Walter Coyle, a researcher held since last year, was released weeks after the United States declared Afghanistan a “state sponsor of wrongful detention.”`\
+https://nytimes.com/2026/03/24/world/asia/afghanistan-releases-american-detainee.html
+
 **How each of the College Football Playoff bubble teams attacked the offseason**\
 `Will Notre Dame be better in 2026? What did Texas do to improve its offense? Can Vanderbilt compete with the elite once again?`\
 https://nytimes.com/athletic/7131644/2026/03/24/college-football-playoff-bubble-teams-offseason-recruiting-transfer-portal/
