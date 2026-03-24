@@ -23,10 +23,10 @@ https://nytimes.com/2026/03/24/crosswords/spelling-bee-forum.html
 https://nytimes.com/2026/03/24/science/archaeology-egypt-hatshepsut.html
 
 **Here’s the latest.**\
-`By John Yoon`\
+`By John Yoon and Gabby Sobelman`\
 https://nytimes.com/live/2026/03/24/world/iran-war-trump-oil/heres-the-latest
 
-**Iran War Live Updates: Israel Attacks in Lebanon and Reports Missile Launches From Iran**\
+**Iran War Live Updates: Israel Attacks in Lebanon and Reports Missile Damage in Tel Aviv**\
 `President Trump said there had been “very strong talks” with Iran to end the war, though Iranian officials did not confirm that. Israel continued its campaign against Hezbollah in Lebanon.`\
 https://nytimes.com/live/2026/03/24/world/iran-war-trump-oil
 
