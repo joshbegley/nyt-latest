@@ -1,3 +1,7 @@
+**How Haas tamed Godzilla for a special F1 livery at Japanese GP**\
+`“Godzilla is an icon across the whole world, not only in Japan,” Esteban Ocon said. “To have him on the car, it's a big, big thing.”`\
+https://nytimes.com/athletic/7142954/2026/03/24/haas-f1-livery-japanese-grand-prix/
+
 **Oil Prices Rise a Day After 10% Plunge**\
 `President Trump had set off a drastic market reaction on Monday by backing away from a threat to strike Iranian energy infrastructure.`\
 https://nytimes.com/2026/03/24/business/oil-stocks-gas-prices-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/24/world/iran-war-trump-oil/heres-the-latest
 **Iran War Live Updates: Israel Attacks in Lebanon and Reports Missile Damage in Tel Aviv**\
 `President Trump said there had been “very strong talks” with Iran to end the war, though Iranian officials did not confirm that. Israel continued its campaign against Hezbollah in Lebanon.`\
 https://nytimes.com/live/2026/03/24/world/iran-war-trump-oil
-
-**Late Night Doesn’t Feel So Hot About ICE at the Airport**\
-`Jimmy Kimmel said President Trump had “found a way to make the airport even worse.”`\
-https://nytimes.com/2026/03/24/arts/television/late-night-ice-airport.html
 

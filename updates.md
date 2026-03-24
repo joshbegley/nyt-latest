@@ -1,3 +1,7 @@
+**How Haas tamed Godzilla for a special F1 livery at Japanese GP**\
+`“Godzilla is an icon across the whole world, not only in Japan,” Esteban Ocon said. “To have him on the car, it's a big, big thing.”`\
+https://nytimes.com/athletic/7142954/2026/03/24/haas-f1-livery-japanese-grand-prix/
+
 **Oil Prices Rise a Day After 10% Plunge**\
 `President Trump had set off a drastic market reaction on Monday by backing away from a threat to strike Iranian energy infrastructure.`\
 https://nytimes.com/2026/03/24/business/oil-stocks-gas-prices-iran.html
