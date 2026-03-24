@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/7142312/2026/03/23/cubs-roster-projection-seiya-suzuki-ben-brown/
 
+**Cubs roster projection 3.0: Seiya Suzuki out, Ben Brown in for Opening Day**\
+`With Javier Assad getting optioned to Triple A, Chicago's initial 13-man pitching staff is now determined.
+`\
+https://nytimes.com/athletic/7142312/2026/03/23/cubs-roster-projection-seiya-suzuki-ben-brown/
+
 **When Trump Wants Something Done, He Dispatches ICE to Do It**\
 `President Trump has increasingly used Immigration and Customs Enforcement to push personal and political objectives, and on Monday sent agents to airports across the country to help deal with long security lines.`\
 https://nytimes.com/2026/03/23/us/politics/trump-ice-airports.html
