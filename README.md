@@ -1,3 +1,7 @@
+**Red Light: Ranking a busy night of big games. Plus: Who fed the Blue Jackets rocket fuel?**\
+`Good morning to everyone except anyone who wears one of those jerseys where it's two teams sewn together.`\
+https://nytimes.com/athletic/7143334/2026/03/24/ranking-a-busy-night-of-big-games-plus-who-fed-the-blue-jackets-rocket-fuel/
+
 **The Windup: NL East preview**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/7143584/2026/03/24/national-league-east-division-preview-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/24/science/nasa-moon-base-mars-spacecraft.html
 **How Do You Measure Snow From Space? First, Climb a Mountain.**\
 `A new satellite could transform how water is studied worldwide. But to help unlock its capabilities, scientists first needed to take critical measurements on a mountaintop.`\
 https://nytimes.com/2026/03/24/climate/snow-satellite-rockies-research.html
-
-**As War in Iran Disrupts Air Travel, Here’s Where It’s Hitting Hardest**\
-`Some airlines and travelers, especially in the Middle East and elsewhere in Asia, are bearing the brunt of the pain, while others are doing better.`\
-https://nytimes.com/2026/03/24/business/iran-war-airlines-jet-fuel.html
 
