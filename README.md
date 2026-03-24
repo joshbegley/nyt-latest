@@ -1,3 +1,7 @@
+**Trump Claims Victory on Memphis Crime as His Crackdown Draws Protests**\
+`Residents and state officials are divided over whether a crime task force is a welcome fix or an unwanted imposition in a city where crime was already falling.`\
+https://nytimes.com/2026/03/23/us/politics/trump-visit-memphis-protests.html
+
 **Latest on University of Minnesota coaching search as top candidates emerge, including Brett Larson**\
 `Hartford Wolf Pack coach and Gophers alum Grant Potulny is also a potential pick to lead the men's hockey program.`\
 https://nytimes.com/athletic/7142254/2026/03/23/larson-potulny-gophers-hockey/
