@@ -1,3 +1,15 @@
+**How to watch Maple Leafs vs. Bruins: Time, TV, streaming**\
+`Find out how to watch the Toronto Maple Leafs play the Boston Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7143760/2026/03/24/maple-leafs-vs-bruins-stream-how-to-watch-march-24/
+
+**How to watch Blue Jackets vs. Flyers: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the Philadelphia Flyers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7143758/2026/03/24/blue-jackets-vs-flyers-stream-how-to-watch-march-24/
+
+**Women's March Madness 2026 title odds: UConn, UCLA still lead but SEC teams threaten**\
+`The top seeds in the women's tournament dominated. But who could challenge in the Sweet 16?`\
+https://nytimes.com/athletic/7143535/2026/03/24/womens-march-madness-2026-title-odds-uconn-ucla-texas-south-carolina-lsu/
+
 **Covid Relief Loans Are Haunting Small Businesses**\
 `The Small Business Administration lent $378 billion to keep businesses afloat. Getting paid back is proving difficult.`\
 https://nytimes.com/2026/03/24/business/economy/sba-pandemic-loan-defaults.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7143651/2026/03/24/manchester-united-old-trafford-n
 **Can Collagen Really Do All That?**\
 `Companies claiming health benefits are adding the protein to nutrition bars, sparkling water, coffee creamer and more.`\
 https://nytimes.com/2026/03/24/well/collagen-supplements-benefits.html
-
-**Chicken With Black Beans and Tortellini With Peas**\
-`Five quick recipes that pair go-to ingredients to great effect.`\
-https://nytimes.com/2026/03/24/dining/chicken-with-black-beans-and-tortellini-with-peas.html
-
-**Why It’s So Hard to Reopen the Strait of Hormuz**\
-`There may be no country better situated geographically than Iran when it comes to bringing an oil-dependent world to its knees.`\
-https://nytimes.com/interactive/2026/03/24/world/middleeast/strait-of-hormuz-difficulties-iran-trump.html
-
-**Red Light: Ranking a busy night of big games. Plus: Who fed the Blue Jackets rocket fuel?**\
-`Good morning to everyone except anyone who wears one of those jerseys where it's two teams sewn together.`\
-https://nytimes.com/athletic/7143334/2026/03/24/ranking-a-busy-night-of-big-games-plus-who-fed-the-blue-jackets-rocket-fuel/
 
