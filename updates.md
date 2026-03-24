@@ -1,3 +1,19 @@
+**Lebanon Expels Iranian Envoy as Rift With Tehran Deepens**\
+`The decision by Lebanon’s foreign ministry has heightened fears of internal instability. Hezbollah, the Iranian-backed militant group and political party, was quick to condemn the move.`\
+https://nytimes.com/2026/03/24/world/middleeast/lebanon-iran-envoy-expelled.html
+
+**How to watch Ducks vs. Canucks: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Vancouver Canucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7144415/2026/03/24/ducks-vs-canucks-stream-how-to-watch-march-24/
+
+**Brandt Tilis on Bryce Young: Still evaluating, still excited about Panthers QB**\
+`The team's executive VP of football operations said the Panthers are between building and contending in roster construction.`\
+https://nytimes.com/athletic/7144268/2026/03/24/panthers-bryce-young-contract-talks/
+
+**Investigators Seek Answers in Attacks on Jewish Sites in Europe**\
+`Attacks on schools and property in several countries have Jewish communities on edge, amid suspicions that Iran is behind the violence.`\
+https://nytimes.com/2026/03/24/world/europe/attacks-jewish-sites-europe.html
+
 **Investigators Seek Answers in Attacks on Jewish Sites in Europe.**\
 `Attacks on schools and property in several countries have Jewish communities on edge, amid suspicions that Iran is behind the violence.`\
 https://nytimes.com/2026/03/24/world/europe/attacks-jewish-sites-europe.html

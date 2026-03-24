@@ -1,4 +1,16 @@
-**Investigators Seek Answers in Attacks on Jewish Sites in Europe.**\
+**Lebanon Expels Iranian Envoy as Rift With Tehran Deepens**\
+`The decision by Lebanon’s foreign ministry has heightened fears of internal instability. Hezbollah, the Iranian-backed militant group and political party, was quick to condemn the move.`\
+https://nytimes.com/2026/03/24/world/middleeast/lebanon-iran-envoy-expelled.html
+
+**How to watch Ducks vs. Canucks: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Vancouver Canucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7144415/2026/03/24/ducks-vs-canucks-stream-how-to-watch-march-24/
+
+**Brandt Tilis on Bryce Young: Still evaluating, still excited about Panthers QB**\
+`The team's executive VP of football operations said the Panthers are between building and contending in roster construction.`\
+https://nytimes.com/athletic/7144268/2026/03/24/panthers-bryce-young-contract-talks/
+
+**Investigators Seek Answers in Attacks on Jewish Sites in Europe**\
 `Attacks on schools and property in several countries have Jewish communities on edge, amid suspicions that Iran is behind the violence.`\
 https://nytimes.com/2026/03/24/world/europe/attacks-jewish-sites-europe.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/24/opinion/trump-judges-nominees-federal-courts.html
 **Life at $4 a Gallon**\
 `The war in Iran has sent gas prices soaring. Here’s what to know about how higher gas prices can change consumer behavior.`\
 https://nytimes.com/2026/03/24/climate/gas-prices-consumer-behavior.html
-
-**Guardians make final decisions for Opening Day roster: It's the Chase DeLauter show**\
-`"That guy is so good," Guardians pitcher Slade Cecconi said of DeLauter. "It’s insane."`\
-https://nytimes.com/athletic/7130958/2026/03/24/guardians-opening-day-roster-chase-delauter/
-
-**As Antetokounmpo sits, NBPA blasts Bucks, NBA's player participation policy**\
-`Antetokounmpo has gone through hard pregame workouts on the court before each of the Bucks’ last three games.`\
-https://nytimes.com/athletic/7144196/2026/03/24/giannis-antetokounmpo-nbpa-player-participation-policy/
-
-**Salah to leave Liverpool at end of 2025-26 season**\
-`Liverpool confirmed in a club statement on Tuesday the 2025-26 season would be Salah's last at the club.`\
-https://nytimes.com/athletic/7144273/2026/03/24/mohamed-salah-liverpool-leave-transfer/
 
