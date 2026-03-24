@@ -1,3 +1,7 @@
+**Side by side at the Miami Open, Frances Tiafoe and Hailey Baptiste follow tennis' zigs and zags**\
+`Two Americans from the same tennis center learned the hard way that tennis careers usually resemble the zig-zag contours of a heart monitor.`\
+https://nytimes.com/athletic/7142505/2026/03/24/tennis-miami-open-tiafoe-baptiste/
+
 **How each team can make MLB's postseason, no matter the budget**\
 `From the Dodgers to the Rockies and everywhere in between, there's a scenario that allows your team to dream. Here's what history says.`\
 https://nytimes.com/athletic/7142373/2026/03/24/mlb-season-preview-postseason-projections/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/24/nyregion/what-went-wrong-at-laguardia.html
 **Chavez Revelations Force Teachers to Rethink How They Teach His Legacy**\
 `In classrooms across the country, educators are weighing whether to shift focus from Cesar Chavez to the broader labor movement he helped lead.`\
 https://nytimes.com/2026/03/24/us/chavez-sex-abuse-teachers-education.html
-
-**Should You Need to Prove Citizenship to Vote? Ask Kansas.**\
-`A Kansas law required a passport, a birth certificate or other proof of citizenship to register, but it was struck down after a court found that around 31,000 eligible voters had been blocked.`\
-https://nytimes.com/2026/03/24/us/politics/proof-of-citizenship-voter-registration-kansas.html
 

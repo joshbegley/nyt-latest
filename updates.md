@@ -1,3 +1,7 @@
+**Side by side at the Miami Open, Frances Tiafoe and Hailey Baptiste follow tennis' zigs and zags**\
+`Two Americans from the same tennis center learned the hard way that tennis careers usually resemble the zig-zag contours of a heart monitor.`\
+https://nytimes.com/athletic/7142505/2026/03/24/tennis-miami-open-tiafoe-baptiste/
+
 **How each team can make MLB's postseason, no matter the budget**\
 `From the Dodgers to the Rockies and everywhere in between, there's a scenario that allows your team to dream. Here's what history says.`\
 https://nytimes.com/athletic/7142373/2026/03/24/mlb-season-preview-postseason-projections/
