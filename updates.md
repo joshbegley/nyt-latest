@@ -1,3 +1,5 @@
+
+
 **Why President Trump Has a Big Oil Problem**\
 `Our national security correspondent David E. Sanger looks at President Trump’s trouble handling retaliatory attacks by Iran that have largely choked off the Strait of Hormuz.`\
 https://nytimes.com/video/world/middleeast/100000010796844/why-iran-strait-of-hormuz-is-important-trump.html
