@@ -1,3 +1,7 @@
+**Three words: After 6 red cards in 16 NWSL games, ‘You OK, sis'?**\
+`Is the spate of red cards in NWSL an anomaly or a byproduct of the league's competitiveness? `\
+https://nytimes.com/athletic/7141933/2026/03/24/nwsl-red-cards-season-soccer-three-words/
+
 **Reopening the Strait of Hormuz will be difficult without a deal with Iran.**\
 `By Agnes Chang, Adina Renner and Samuel Granados`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/reopening-the-strait-of-hormuz-will-be-difficult-without-a-deal-with-iran
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/24/technology/arm-holdings-sell-chips.html
 **Tua Tagovailoa on Falcons QB battle with Michael Penix: 'I am no stranger to competition'**\
 `Tagovailoa said he's ready to compete with fellow left-hander Penix for the starting role with the Falcons.`\
 https://nytimes.com/athletic/7143533/2026/03/24/tua-tagovailoa-falcons-michael-penix-qb-competition/
-
-**Passengers Wait in Long Security Lines at LaGuardia After Deadly Crash**\
-`The hours-long lines at LaGuardia Airport on Tuesday follow a deadly runway crash and a T.S.A. agent shortage due to the Homeland Security shutdown.`\
-https://nytimes.com/video/us/100000010798144/passengers-wait-in-long-security-lines-at-laguardia-after-deadly-crash.html
 
