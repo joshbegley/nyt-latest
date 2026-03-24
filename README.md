@@ -1,3 +1,11 @@
+**University of Minnesota hiring Brett Larson to coach men's hockey team: Sources**\
+`Larson had a 153-116-23 record as St. Cloud State's head coach and was recently a finalist for the Wisconsin job that went to Mike Hastings.`\
+https://nytimes.com/athletic/7141423/2026/03/24/minnesota-hockey-brett-larson-coach/
+
+**In Oklahoma, Alan Armstrong Will Fill Markwayne Mullin’s Senate Seat**\
+`Gov. Kevin Stitt selected Mr. Armstrong, a fellow Republican and an energy executive, to play a caretaker role in the seat until the next election.`\
+https://nytimes.com/2026/03/24/us/politics/alan-armstrong-senate-mullin-stitt-oklahoma-republicans.html
+
 **Submit your questions for Zack Rosenblatt’s Jets mailbag**\
 `The Jets still have plenty of work to do this offseason.`\
 https://nytimes.com/athletic/7143462/2026/03/24/jets-mailbag-free-agency-draft/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7142292/2026/03/24/minnesota-twins-buxton-netflix-h
 **Distinctive Glasses and an Inviting Sweater**\
 `Cobalt-blue knitwear distinguished an ensemble from others outside a coffee shop in Tokyo.`\
 https://nytimes.com/2026/03/24/style/street-style-look-wearing-blue-and-black.html
-
-**Lucas Pinheiro Braathen gives Brazil its first Alpine skiing World Cup title**\
-`Born in Norway, Braathen now competes for his mother's native Brazil and has been racking up historic Alpine skiing firsts. `\
-https://nytimes.com/athletic/7143306/2026/03/24/lucas-pinheiro-braathen-brazil-first-world-cup-alpine-skiing-title/
-
-**Czech police open criminal investigation after 47 alleged match-fixing cases identified**\
-`The Czech Republic's football association announced a concurrent investigation into clubs, officials and players.`\
-https://nytimes.com/athletic/7143190/2026/03/24/czech-republic-match-fixing-investigation/
 
