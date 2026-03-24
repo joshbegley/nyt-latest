@@ -1,3 +1,7 @@
+**Lions GM Brad Holmes: Says he's in 'total lockstep' with Dan Campbell on offseason talks**\
+`Holmes made it clear that they’re in alignment about their disappointment with how last season ended for the Lions.`\
+https://nytimes.com/athletic/7143953/2026/03/24/lions-gm-brad-holmes-dan-campbell-offseason/
+
 **IPL champions RCB sold to new ownership group in $1.78bn deal**\
 `Founded in 2008 as one of the original eight IPL franchises, RCB are the reigning men’s and women’s champions.`\
 https://nytimes.com/athletic/7144518/2026/03/24/ipl-cricket-champions-franchise-deal-blitzer/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/24/us/politics/oil-gas-prices-iran.html
 **How to watch Oilers vs. Mammoth: Time, TV, streaming**\
 `Find out how to watch the Edmonton Oilers play the Utah Mammoth, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7144426/2026/03/24/oilers-vs-mammoth-stream-how-to-watch-march-24/
-
-**Lebanon Expels Iranian Envoy as Rift With Tehran Deepens**\
-`The decision by Lebanon’s foreign ministry has heightened fears of internal instability. Hezbollah, the Iranian-backed militant group and political party, was quick to condemn the move.`\
-https://nytimes.com/2026/03/24/world/middleeast/lebanon-iran-envoy-expelled.html
 
