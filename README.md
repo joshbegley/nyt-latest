@@ -1,3 +1,7 @@
+**Epic Games Lays Off Over 1,000 Employees, Citing Fortnite Slump**\
+`The cut represents about 20 percent of the video game company’s work force, a spokeswoman said.`\
+https://nytimes.com/2026/03/24/business/epic-games-layoffs-fortnite.html
+
 **How to watch Nuggets vs. Suns: Time, TV, streaming**\
 `Find out how to watch the Denver Nuggets play the Phoenix Suns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7144323/2026/03/24/nuggets-vs-suns-stream-how-to-watch-march-24/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7144273/2026/03/24/mohamed-salah-liverpool-leave-tr
 **Italy’s Leader Once Seemed Unbeatable. A Surprise Defeat Has Dented Her Aura.**\
 `Prime Minister Giorgia Meloni had led one of Italy’s most stable postwar governments. Now she’s under pressure after failing to convince Italians to back a judicial overhaul.`\
 https://nytimes.com/2026/03/24/world/europe/italy-meloni-referendum-defeat.html
-
-**NBPA calls for 'arbitrary' 65-game rule for awards to be 'abolished or reformed'**\
-`The NBA Players Association believes the "arbitrary and overly rigid quota" for awards has "unfairly disqualified" too many players. `\
-https://nytimes.com/athletic/7144229/2026/03/24/nba-65-game-rule-awards-players/
 
