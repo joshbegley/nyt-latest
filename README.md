@@ -1,3 +1,7 @@
+**Late Night Doesn’t Feel So Hot About ICE at the Airport**\
+`Jimmy Kimmel said President Trump had “found a way to make the airport even worse.”`\
+https://nytimes.com/2026/03/24/arts/television/late-night-ice-airport.html
+
 **Word of the Day: pedantic**\
 `This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/24/learning/word-of-the-day-pedantic.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7080607/2026/03/24/violence-amateur-football-specia
 **What should Liverpool do with Arne Slot? We asked six Athletic writers**\
 `The Dutchman has come under huge pressure after a poor season - so what should happen next?`\
 https://nytimes.com/athletic/7140605/2026/03/24/arne-slot-liverpool-manager-job-future/
-
-**Managers on the rise: Francesco Farioli - Italy's gentleman coach flourishing in Portugal**\
-`The innovative 36-year-old Italian coach has made Porto strong favourites for the Portuguese title since he took over last summer`\
-https://nytimes.com/athletic/7134918/2026/03/24/managers-on-the-rise-francesco-farioli/
 
