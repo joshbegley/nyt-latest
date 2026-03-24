@@ -1,3 +1,19 @@
+**A Murder Charge in Georgia Exposes Complexities of the Abortion Debate**\
+`A woman who took medication to induce an abortion, and then delivered the baby, was arrested on a murder charge. But on Monday, a state judge expressed deep skepticism about the case.`\
+https://nytimes.com/2026/03/23/us/georgia-abortion-pill-murder.html
+
+**Trump’s New Political Tool: ICE**\
+`President Trump has increasingly used Immigration and Customs Enforcement to push personal and political objectives, and on Monday sent agents to airports across the country to help deal with long security lines.`\
+https://nytimes.com/2026/03/23/us/politics/trump-ice-airports.html
+
+**Mullin’s Smooth Confirmation Was a Throwback in the Senate**\
+`In choosing Senator Markwayne Mullin, who has warm relationships across the Capitol and the political aisle, President Trump was reverting to a bygone tradition.`\
+https://nytimes.com/2026/03/23/us/politics/mullins-confirmation-throwback-senate.html
+
+**ICE Agents Arrive at U.S. Airports**\
+`Agents with Immigration and Customs Enforcement were sent on Monday to airports contending with long security lines.`\
+https://nytimes.com/video/travel/100000010796915/ice-airports-tsa-security.html
+
 **Markwayne Mullin Confirmed as Homeland Security Secretary**\
 `A Cherokee Nation member who has served as Oklahoma’s junior senator, Mr. Mullin will take charge at a pivotal time.`\
 https://nytimes.com/2026/03/23/us/politics/markwayne-mullin-confirmed-homeland-security-secretary.html

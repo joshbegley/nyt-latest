@@ -1,3 +1,19 @@
+**A Murder Charge in Georgia Exposes Complexities of the Abortion Debate**\
+`A woman who took medication to induce an abortion, and then delivered the baby, was arrested on a murder charge. But on Monday, a state judge expressed deep skepticism about the case.`\
+https://nytimes.com/2026/03/23/us/georgia-abortion-pill-murder.html
+
+**Trump’s New Political Tool: ICE**\
+`President Trump has increasingly used Immigration and Customs Enforcement to push personal and political objectives, and on Monday sent agents to airports across the country to help deal with long security lines.`\
+https://nytimes.com/2026/03/23/us/politics/trump-ice-airports.html
+
+**Mullin’s Smooth Confirmation Was a Throwback in the Senate**\
+`In choosing Senator Markwayne Mullin, who has warm relationships across the Capitol and the political aisle, President Trump was reverting to a bygone tradition.`\
+https://nytimes.com/2026/03/23/us/politics/mullins-confirmation-throwback-senate.html
+
+**ICE Agents Arrive at U.S. Airports**\
+`Agents with Immigration and Customs Enforcement were sent on Monday to airports contending with long security lines.`\
+https://nytimes.com/video/travel/100000010796915/ice-airports-tsa-security.html
+
 **Markwayne Mullin Confirmed as Homeland Security Secretary**\
 `A Cherokee Nation member who has served as Oklahoma’s junior senator, Mr. Mullin will take charge at a pivotal time.`\
 https://nytimes.com/2026/03/23/us/politics/markwayne-mullin-confirmed-homeland-security-secretary.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7142254/2026/03/23/larson-potulny-gophers-hockey/
 **Celebrity Left-Wing Streamer Defends Cuba Mission**\
 `Hasan Piker helped bring attention to a mission delivering humanitarian aid to Cuba. The group was criticized for staying in an upscale hotel as Cubans faced another blackout.`\
 https://nytimes.com/2026/03/23/world/americas/hasan-piker-humanitarian-mission-cuba.html
-
-**Trump’s Ultimatum to Iran Was Almost Up. Then He Found an Offramp.**\
-`President Trump postponed his threat to strike power plants in Iran, citing “productive conversations” with the Iranians. But officials said the talks were in an early stage and not substantive.`\
-https://nytimes.com/2026/03/23/us/politics/trump-iran-gas-oil-strait.html
-
-**Valerie Perrine, Screen Siren Who Won Critical Acclaim, Dies at 82**\
-`Known early on for skin-baring temptress roles, she later earned rave reviews, a Cannes award and an Oscar nomination for her performance in the Lenny Bruce biopic “Lenny.”`\
-https://nytimes.com/2026/03/23/movies/valerie-perrine-dead.html
-
-**F.A.A. Is Investigating if Another Jet’s Issue Distracted a Controller**\
-`Two controllers were said to be working at LaGuardia Airport’s control center at the time of the crash that killed two pilots, and one had been dealing with an odor on a United Airlines plane.`\
-https://nytimes.com/2026/03/23/nyregion/faa-air-traffic-controller-laguardia-crash.html
-
-**Astros starter Spencer Arrighetti to start season in Triple A**\
-`Houston could’ve carried the righty as a long man in its Opening Day bullpen, but keeping him built up as a starter took precedence.`\
-https://nytimes.com/athletic/7142116/2026/03/23/astros-pitcher-spencer-arrighetti-optioned-triple-a/
 
