@@ -1,3 +1,11 @@
+**California Governor’s Debate Canceled After Criticism Over Lack of Diversity**\
+`The debate would have featured six candidates, all white. The inclusion of a low-polling mayor drew scrutiny in particular.`\
+https://nytimes.com/2026/03/24/us/usc-california-governor-debate-canceled.html
+
+**Dear Margo Offers New Yorkers a New Spot to Dip and Nosh**\
+`Cafe Fleuri offers a taste of Vienna, Loong Ramen offers a pan-Asian spread and more restaurant news.`\
+https://nytimes.com/2026/03/24/dining/nyc-restaurant-news.html
+
 **JC Tretter on NFL trying to open early talks for 18th game: ‘The answer is no’**\
 `NFL owners want to begin discussions about increasing the regular season to 18 games. The NFLPA says it won't talk until it's ready.`\
 https://nytimes.com/athletic/7143683/2026/03/24/nfl-18th-game-jc-tretter-executive-director/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7143689/2026/03/24/rangers-opening-day-roster-carte
 **JC Tretter on why he returned to NFLPA as executive director after tenuous exit**\
 `Eight months after resigning, Tretter is back in the NFLPA's top job. He says he wishes he had done more to defend himself last summer.`\
 https://nytimes.com/athletic/7143346/2026/03/24/jc-tretter-interview-nflpa-executive-director/
-
-**Ancient Grapes Reveal Long History of Modern Wines**\
-`Genetic material preserved in ancient grape seeds reveals when, and how, humans meddled with wine grapes.`\
-https://nytimes.com/2026/03/24/science/ancient-grapes-dna-winemaking.html
-
-**FIFA’s World Cup ticket prices subject of fans’ group legal complaint**\
-`In their complaint, FSE and Euroconsumers have identified six specific abuses of European Union competition law.`\
-https://nytimes.com/athletic/7143790/2026/03/24/world-cup-ticket-prices-complaint/
 
