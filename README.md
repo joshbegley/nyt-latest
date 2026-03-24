@@ -1,3 +1,11 @@
+**NASA Adds Moon Base and Nuclear-Powered Mars Spacecraft to Road Map**\
+`The agency announced the more specific plans and timelines after years of suggesting it may build a lunar outpost.`\
+https://nytimes.com/2026/03/24/science/nasa-moon-base-mars-spacecraft.html
+
+**How Do You Measure Snow From Space? First, Climb a Mountain.**\
+`A new satellite could transform how water is studied worldwide. But to help unlock its capabilities, scientists first needed to take critical measurements on a mountaintop.`\
+https://nytimes.com/2026/03/24/climate/snow-satellite-rockies-research.html
+
 **As War in Iran Disrupts Air Travel, Here’s Where It’s Hitting Hardest**\
 `Some airlines and travelers, especially in the Middle East and elsewhere in Asia, are bearing the brunt of the pain, while others are doing better.`\
 https://nytimes.com/2026/03/24/business/iran-war-airlines-jet-fuel.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7142147/2026/03/24/tristan-vukcevic-washington-wiza
 **Saudi Prince Is Said to Push Trump to Continue Iran War in Recent Calls**\
 `Prince Mohammed bin Salman sees a “historic opportunity” to remake the region, according to people briefed by U.S. officials on the conversations.`\
 https://nytimes.com/2026/03/24/us/politics/saudi-prince-iran-trump.html
-
-**World Snooker Championship to remain at Crucible despite Saudi, China fears**\
-`The redevelopment of the Sheffield venue will, though, see the tournament temporarily relocated from 2028.`\
-https://nytimes.com/athletic/7143273/2026/03/24/snooker-world-championship-crucible-redevelopment/
-
-**How to watch Minnesota Twins: 'Field of Dreams' game, TV channels to know in 2026**\
-`The Twins are looking to the future as they begin the 2026 season. Here's how to watch all of their national and regional games this year.`\
-https://nytimes.com/athletic/7142292/2026/03/24/minnesota-twins-buxton-netflix-how-to-watch-2026/
 
