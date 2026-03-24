@@ -1,3 +1,7 @@
+**Trump, Who Calls Mail-in Voting ‘Cheating,’ Just Voted by Mail**\
+`President Trump has long fixated on mail-in-voting to bolster his baseless claims of widespread voter fraud. But he recently used the method in a Florida special election.`\
+https://nytimes.com/2026/03/24/us/politics/trump-mail-in-voting-florida.html
+
 **Ukraine Spent Big to Shield Energy Industry From Drones. Is the Mideast Next?**\
 `With the use of electronic jamming systems and interceptor drones, the Ukrainian national oil and gas company may be a model for others.`\
 https://nytimes.com/2026/03/24/world/europe/ukraine-middle-east-oil-and-gas-drones.html
