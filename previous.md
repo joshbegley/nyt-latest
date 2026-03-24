@@ -1,3 +1,7 @@
+**Investigators Seek Answers in Attacks on Jewish Sites in Europe.**\
+`Attacks on schools and property in several countries have Jewish communities on edge, amid suspicions that Iran is behind the violence.`\
+https://nytimes.com/2026/03/24/world/europe/attacks-jewish-sites-europe.html
+
 **Epic Games Lays Off Over 1,000 Employees, Citing Fortnite Slump**\
 `The cut represents about 20 percent of the video game company’s work force, a spokeswoman said.`\
 https://nytimes.com/2026/03/24/business/epic-games-layoffs-fortnite.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7144196/2026/03/24/giannis-antetokounmpo-nbpa-playe
 **Salah to leave Liverpool at end of 2025-26 season**\
 `Liverpool confirmed in a club statement on Tuesday the 2025-26 season would be Salah's last at the club.`\
 https://nytimes.com/athletic/7144273/2026/03/24/mohamed-salah-liverpool-leave-transfer/
-
-**Italy’s Leader Once Seemed Unbeatable. A Surprise Defeat Has Dented Her Aura.**\
-`Prime Minister Giorgia Meloni had led one of Italy’s most stable postwar governments. Now she’s under pressure after failing to convince Italians to back a judicial overhaul.`\
-https://nytimes.com/2026/03/24/world/europe/italy-meloni-referendum-defeat.html
 
