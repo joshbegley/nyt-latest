@@ -1,3 +1,11 @@
+**World Cup: Questions for final countdown. Plus: A Cooper conspiracy theory**\
+`Today in TAFC: The World Cup questions that will be answered over the next two weeks. Plus: A Steve Cooper conspiracy theory.`\
+https://nytimes.com/athletic/7143028/2026/03/24/world-cup-questions-for-final-countdown-plus-a-cooper-conspiracy-theory/
+
+**The Final, Flying Colors of Matisse’s ‘Second Life’**\
+`A breathtaking Paris show challenges the conventional idea that artists taper off at the end of their lives.`\
+https://nytimes.com/2026/03/24/arts/design/matisse-grand-palais-paris.html
+
 **Danes Vote, With Trump on Their Minds**\
 `President Trump’s threats to take Greenland away from Denmark have lifted Prime Minister Mette Frederiksen, who appeared the front-runner as polls opened.`\
 https://nytimes.com/2026/03/24/world/europe/denmark-election-mette-frederiksen-greenland.html
