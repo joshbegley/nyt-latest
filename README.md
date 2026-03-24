@@ -1,3 +1,7 @@
+**Bears comp pick confusion: Examining what was lost with Ian Cunningham's exit**\
+`How will the Bears' left tackle competition look after the draft? How does drafting near the end of Round 1 affect their approach?`\
+https://nytimes.com/athletic/7134693/2026/03/24/bears-comp-picks-left-tackle/
+
 **Panthers roster reset: What the depth chart shows ahead of NFL Draft**\
 `The Panthers' free-agency additions should allow them to draft the best player available with their first-round pick in April.`\
 https://nytimes.com/athletic/7141502/2026/03/24/panthers-roster-depth-chart-free-agency-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7142866/2026/03/24/victor-wembanyama-mvp-interview/
 **After walking away from the majors, Orioles' Mike Shildt is living his purpose in the minors**\
 `Shildt retired as Padres manager after the 2025 season, returning to the Orioles as their upper-level coordinator of instruction.`\
 https://nytimes.com/athletic/7141224/2026/03/24/mike-shildt-baltimore-orioles-padres-cardinals/
-
-**Curtis Granderson: These are the 3 best leaders I played with in MLB**\
-`Curtis Granderson played 16 seasons in Major League Baseball for seven different teams, including the Tigers,Yankees and Mets.`\
-https://nytimes.com/athletic/7141087/2026/03/24/curtis-granderson-best-leaders-mlb/
 
