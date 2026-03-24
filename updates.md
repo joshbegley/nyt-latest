@@ -1,3 +1,7 @@
+**How to watch Kings vs. Flames: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Kings play the Calgary Flames, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7144077/2026/03/24/kings-vs-flames-stream-how-to-watch-march-24/
+
 **How to watch Devils vs. Stars: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the Dallas Stars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7144071/2026/03/24/devils-vs-stars-stream-how-to-watch-march-24/

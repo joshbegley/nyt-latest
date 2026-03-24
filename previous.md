@@ -1,3 +1,7 @@
+**How to watch Kings vs. Flames: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Kings play the Calgary Flames, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7144077/2026/03/24/kings-vs-flames-stream-how-to-watch-march-24/
+
 **How to watch Devils vs. Stars: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the Dallas Stars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7144071/2026/03/24/devils-vs-stars-stream-how-to-watch-march-24/
@@ -29,8 +33,4 @@ https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/reopening-the-str
 **Bruins’ James Hagens starts his pro path in Providence. How long will he stay?**\
 `Hagens, after signing his amateur tryout contract on Monday, participated in his first Providence practice on Tuesday.`\
 https://nytimes.com/athletic/7143954/2026/03/24/bruins-james-hagens-providence/
-
-**How to watch Magic vs. Cavaliers: Time, TV, streaming**\
-`Find out how to watch the Orlando Magic play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7144006/2026/03/24/magic-vs-cavaliers-stream-how-to-watch-march-24/
 
