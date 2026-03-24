@@ -1,3 +1,7 @@
+**Block Uses A.I. as Excuse for Laying off 40% of the Company**\
+`The financial services company Block recently laid off nearly 40 percent of its employees. On “Hard Fork” from The New York Times, the hosts Casey Newton and Kevin Roose discuss the layoffs`\
+https://nytimes.com/video/podcasts/100000010799029/block-uses-ai-as-excuse-for-laying-off-40-of-the-company.html
+
 **Iranian Missile Attack Damages Residential Buildings in Tel Aviv**\
 `An Iranian missile attack on Tel Aviv damaged residential buildings and injured at least six people, Israel’s national emergency service said.`\
 https://nytimes.com/video/world/middleeast/100000010797996/iran-missile-attack-tel-aviv.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/24/world/middleeast/qatar-us-iran-talks-mediation.ht
 **The U.S. Said It Helped Bomb a Drug Camp. It Was a Dairy Farm.**\
 `The Times visited a village where the United States and Ecuador said they destroyed an armed group’s training camp. Residents said it was actually a dairy farm.`\
 https://nytimes.com/2026/03/24/world/americas/us-ecuador-drug-camp-bombing-dairy-farm.html
-
-**Minnesota Prosecutors Sue for Access to Evidence in Shootings by Agents**\
-`The federal government has refused to provide even basic information about the three shootings during an immigration crackdown in Minneapolis, including two that were fatal.`\
-https://nytimes.com/2026/03/24/us/minnesota-ice-shootings-evidence.html
 
