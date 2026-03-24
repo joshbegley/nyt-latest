@@ -1,3 +1,7 @@
+**Mikaela Shiffrin wins record ninth slalom race of World Cup season, nears overall title**\
+`Mikaela Shiffrin is on the brink of her sixth career overall World Cup title after keeping her red-hot slalom streak going Tuesday.`\
+https://nytimes.com/athletic/7125715/2026/03/24/mikaela-shiffrin-world-cup-slalom-win-nine-overall-title/
+
 **Tristan Vukčević's next trick? Proving he belongs in Wizards' long-term future**\
 `The 23-year-old big man can score and pass. Now, armed with a new contract, he must continue to ascend on defense.`\
 https://nytimes.com/athletic/7142147/2026/03/24/tristan-vukcevic-washington-wizards-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7140647/2026/03/24/f1-new-era-rules-debate-max-vers
 **Take Shorter Showers: South Korea Kicks Off an Energy-Saving Drive**\
 `President Lee Jae Myung called on the public to cooperate, likening the energy supply disruption caused by the Iran war to the Asian financial crisis and the pandemic.`\
 https://nytimes.com/2026/03/24/world/asia/south-korea-energy-savings.html
-
-**Afghanistan Frees American Detainee Amid Mounting U.S. Pressure**\
-`Dennis Walter Coyle, a researcher held since last year, was released weeks after the United States declared Afghanistan a “state sponsor of wrongful detention.”`\
-https://nytimes.com/2026/03/24/world/asia/afghanistan-releases-american-detainee.html
 

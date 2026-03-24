@@ -1,3 +1,7 @@
+**Lucas Pinheiro Braathen gives Brazil its first Alpine skiing World Cup title**\
+`Born in Norway, Braathen now competes for his mother's native Brazil and has been racking up historic Alpine skiing firsts. `\
+https://nytimes.com/athletic/7143306/2026/03/24/lucas-pinheiro-braathen-brazil-first-world-cup-alpine-skiing-title/
+
 **Tristan Vukčević's next trick? Proving he belongs in Wizards' long-term future**\
 `The 23-year-old big man can score and pass. Now, armed with a new contract, he must continue to ascend on defense.`\
 https://nytimes.com/athletic/7142147/2026/03/24/tristan-vukcevic-washington-wizards-future/
