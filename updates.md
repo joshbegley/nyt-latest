@@ -1,3 +1,7 @@
+**Map: 7.5-Magnitude Earthquake Shakes the South Pacific Ocean**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/03/24/world/quake-tracker-south-pacific-ocean-tonga.html
+
 **Word of the Day: pedantic**\
 `This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/24/learning/word-of-the-day-pedantic.html
