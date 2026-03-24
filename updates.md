@@ -1,3 +1,7 @@
+**Trump Sours on British Leader Over Iran War: ‘What If Donald Shouts at Me?’**\
+`President Trump once called Prime Minister Keir Starmer a friend. But Mr. Starmer’s decision not to join the attacks on Iran has led to merciless mocking by the president.`\
+https://nytimes.com/2026/03/24/world/europe/trump-starmer-snl.html
+
 **Trump, Who Calls Mail-in Voting ‘Cheating,’ Just Voted by Mail**\
 `President Trump has long fixated on mail-in-voting to bolster his baseless claims of widespread voter fraud. But he recently used the method in a Florida special election.`\
 https://nytimes.com/2026/03/24/us/politics/trump-mail-in-voting-florida.html

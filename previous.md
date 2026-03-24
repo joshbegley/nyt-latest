@@ -12,7 +12,7 @@ https://nytimes.com/athletic/7142601/2026/03/24/connections-sports-edition-hints
 
 **Trump Sours on British Leader Over Iran War: ‘What If Donald Shouts at Me?’**\
 `President Trump once called Prime Minister Keir Starmer a friend. But Mr. Starmer’s decision not to join the attacks on Iran has led to merciless mocking by the president.`\
-https://nytimes.com/2026/03/24/world/europe/trump-sours-on-british-leader-over-iran-war-what-if-donald-shouts-at-me.html
+https://nytimes.com/2026/03/24/world/europe/trump-starmer-snl.html
 
 **Corrections: March 24, 2026**\
 `Corrections that appeared in print on Tuesday, March 24, 2026.`\
