@@ -1,3 +1,11 @@
+**IPL champions RCB sold to new ownership group in $1.78bn deal**\
+`Founded in 2008 as one of the original eight IPL franchises, RCB are the reigning men’s and women’s champions.`\
+https://nytimes.com/athletic/7144518/2026/03/24/ipl-cricket-champions-franchise-deal-blitzer/
+
+**How Iranian Oil Controls U.S. Foreign Policy**\
+`How far will the United States go to keep gas prices down? On “The Ezra Klein Show,” the energy policy expert Jason Bordoff tells Ezra Klein why the Trump administration is de-sanctioning oil from Russia and Iran even as it pursues military action against them.`\
+https://nytimes.com/video/opinion/100000010797040/how-iranian-oil-controls-us-foreign-policy.html
+
 **Buckle Up, Women. Cars Still Aren’t Built for You.**\
 `In the United States, women are more likely to be injured and die in a car crash than men. Why? After her own crash, the filmmaker Eve Van Dyke dug through the half-century history of auto safety to find out, and uncovered a disturbing reality: Cars were never designed to protect women’s bodies.`\
 https://nytimes.com/video/opinion/100000010785312/buckle-up-women-cars-still-arent-built-for-you.html
