@@ -1,3 +1,7 @@
+**How Kim Jong-un Is Using the Iran War to Justify His Nuclear Arsenal**\
+`He delivered a lengthy speech at his country’s rubber-stamp Parliament, declaring that his nuclear power will shield his country from American hostility.`\
+https://nytimes.com/2026/03/23/world/asia/north-korea-kim-iran-nuclear.html
+
 **Senate Confirms Markwayne Mullin as Homeland Security Secretary**\
 `The Senate confirmed Markwayne Mullin to take over the Homeland Security Department in a 54-to-45 vote on Monday.`\
 https://nytimes.com/video/us/politics/100000010797537/markwayne-mullin-senate-confirmation-dhs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7142472/2026/03/23/ohio-state-womens-basketball-nca
 **Vanderbilt star Mikayla Blakes’ takeover of the world is just a matter of time**\
 `Blakes called game in the third quarter during a three-minute stretch in which she nailed two 3-pointers and a mid-range jumper.`\
 https://nytimes.com/athletic/7142416/2026/03/23/vanderbilt-mikayla-blakes-illinonis-sweet-16/
-
-**Jason Kidd says 'born closer' Kyrie Irving can help solve Mavs' clutch woes next season**\
-`To have any hope of making it to the playoffs, the Mavericks need Irving's offensive production.`\
-https://nytimes.com/athletic/7142474/2026/03/23/mavs-jason-kidd-kyrie-irving-clutch-woes/
 
