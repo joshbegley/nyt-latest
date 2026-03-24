@@ -1,3 +1,15 @@
+**San Francisco Killed 8th-Grade Algebra. Now It’s Set to Come Back.**\
+`The San Francisco school board will vote on a plan to restore algebra as an option at all middle schools, more than a decade after it was removed over equity concerns.`\
+https://nytimes.com/2026/03/24/us/san-francisco-public-schools-algebra.html
+
+**Trump Picks ‘Alpha Male’ Influencer to Be Tourism Envoy**\
+`Nick Adams, known for his crass humor and internet trolling, was previously nominated to be the ambassador to Malaysia. But his nomination was pulled earlier this year.`\
+https://nytimes.com/2026/03/24/us/politics/nick-adams-trump-tourism.html
+
+**What is the Muhammad Ali Boxing Revival Act and how could it change the sport?**\
+`The first change in U.S. federal law on boxing since 2000 could be transformative for the sport. This is why.`\
+https://nytimes.com/athletic/7143056/2026/03/24/muhammad-ali-boxing-revival-act/
+
 **Lions GM Brad Holmes: Says he's in 'total lockstep' with Dan Campbell on offseason talks**\
 `Holmes made it clear that they’re in alignment about their disappointment with how last season ended for the Lions.`\
 https://nytimes.com/athletic/7143953/2026/03/24/lions-gm-brad-holmes-dan-campbell-offseason/
