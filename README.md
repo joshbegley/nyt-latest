@@ -1,7 +1,3 @@
-**With Over 550 Drones, Russia Unleashes Daytime Attack on Ukraine**\
-`The assault, which came after overnight strikes across the country, was one of the largest of the war, the Ukrainian authorities said.`\
-https://nytimes.com/2026/03/24/world/europe/russia-attack-drones-ukraine-lviv.html
-
 **Pakistan Offers to Mediate Between Iran and the United States**\
 `Pakistan, which has cultivated ties with both Washington and Tehran, sees a diplomatic opening to intervene in the war in Iran, its neighbor.`\
 https://nytimes.com/2026/03/24/world/middleeast/pakistan-iran-us-mediation.html
@@ -31,6 +27,10 @@ https://nytimes.com/2026/03/24/us/politics/nick-adams-trump-tourism.html
 https://nytimes.com/athletic/7143056/2026/03/24/muhammad-ali-boxing-revival-act/
 
 **Lions GM Brad Holmes: Says he's in 'total lockstep' with Dan Campbell on offseason talks**\
-`Holmes made it clear that he and Campbell are in alignment about their disappointment with how last season ended for the Lions.`\
+`Holmes made it clear that they’re in alignment about their disappointment with how last season ended for the Lions.`\
 https://nytimes.com/athletic/7143953/2026/03/24/lions-gm-brad-holmes-dan-campbell-offseason/
+
+**IPL champions RCB sold to new ownership group in $1.78bn deal**\
+`Founded in 2008 as one of the original eight IPL franchises, RCB are the reigning men’s and women’s champions.`\
+https://nytimes.com/athletic/7144518/2026/03/24/ipl-cricket-champions-franchise-deal-blitzer/
 
