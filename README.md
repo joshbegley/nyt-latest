@@ -1,3 +1,7 @@
+**Women's March Madness 2026 title odds: UConn, UCLA still lead but SEC teams threaten**\
+`The top seeds in the women's tournament dominated. But who could challenge in the Sweet 16?`\
+https://nytimes.com/athletic/7143535/2026/03/24/womens-march-madness-2026-title-odds-uconn-ucla-texas-south-carolina-lsu/
+
 **Covid Relief Loans Are Haunting Small Businesses**\
 `The Small Business Administration lent $378 billion to keep businesses afloat. Getting paid back is proving difficult.`\
 https://nytimes.com/2026/03/24/business/economy/sba-pandemic-loan-defaults.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/24/dining/chicken-with-black-beans-and-tortellini-wi
 **Why It’s So Hard to Reopen the Strait of Hormuz**\
 `There may be no country better situated geographically than Iran when it comes to bringing an oil-dependent world to its knees.`\
 https://nytimes.com/interactive/2026/03/24/world/middleeast/strait-of-hormuz-difficulties-iran-trump.html
-
-**Red Light: Ranking a busy night of big games. Plus: Who fed the Blue Jackets rocket fuel?**\
-`Good morning to everyone except anyone who wears one of those jerseys where it's two teams sewn together.`\
-https://nytimes.com/athletic/7143334/2026/03/24/ranking-a-busy-night-of-big-games-plus-who-fed-the-blue-jackets-rocket-fuel/
 
