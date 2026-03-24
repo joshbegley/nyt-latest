@@ -1,3 +1,7 @@
+**Trump and R.N.C. Lean Toward Dallas for an Unusual Midterm Convention**\
+`Parties normally hold conventions every four years to nominate presidential candidates, but Republicans hope to hold one this year in the face of midterm headwinds.`\
+https://nytimes.com/2026/03/24/us/politics/trump-republican-convention-dallas-midterm-elections.html
+
 **Qatar Is Not Mediating U.S.-Iran Talks, Foreign Minister Says**\
 `Qatar’s Foreign Ministry warned that the regional security system has been shattered, as the war has destroyed trust between Gulf countries and Iran.`\
 https://nytimes.com/2026/03/24/world/middleeast/qatar-us-iran-talks-mediation.html
