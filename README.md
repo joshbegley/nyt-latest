@@ -1,40 +1,40 @@
-**Ranking all 30 MLB starting rotations ahead of Opening Day**\
-`MLB pitching is better than ever. A look at all 30 rotations, ranking them from best (Dodgers) to worst (Rockies).`\
-https://nytimes.com/athletic/7116070/2026/03/24/mlb-starting-rotation-ranking-2026-opening-day/
+**Panthers roster reset: What the depth chart shows ahead of NFL Draft**\
+`The Panthers' free-agency additions should allow them to draft the best player available with their first-round pick in April.`\
+https://nytimes.com/athletic/7141502/2026/03/24/panthers-roster-depth-chart-free-agency-draft/
 
-**MLB Preseason Power Rankings: Which team starts our 2026 rankings on top?**\
-`Before the first pitch is thrown in the 2026 MLB season, here’s a primer on all 30 teams and their current playoff odds.`\
-https://nytimes.com/athletic/7132139/2026/03/24/mlb-preseason-power-rankings-2026/
+**MLB's robot umps are not perfect. How much should we care?**\
+`MLB is comfortable with the new system's margin of error. But not all players or umpires are quite as comfortable.`\
+https://nytimes.com/athletic/7142476/2026/03/24/mlb-abs-error-margin/
 
-**Tigers praised employees who spoke out about misconduct, then pushed out a whistleblower**\
-`A former employee of Ilitch Sports and Entertainment says the company forced him to resign after he raised concerns about a supervisor.`\
-https://nytimes.com/athletic/7139929/2026/03/24/detroit-tigers-misconduct-transparency-employee-fired/
+**What I'm seeing from MLB prospects: Kade Morris, Breyson Guedez shine in Spring Breakout**\
+`There were several top 100 prospects in the A's/Brewers Spring Breakout game, but the stars were lesser-known prospects.`\
+https://nytimes.com/athletic/7141850/2026/03/24/mlb-prospect-scouting-brewers-athletics-kade-morris/
 
-**Baker Mayfield is due for a new contract, one that could redefine the QB market**\
-`With QB compensation — and the salary cap itself — ballooning, Mayfield’s team-friendly deal is set to expire at a unique moment.`\
-https://nytimes.com/athletic/7142155/2026/03/24/baker-mayfield-qb-contracts/
+**Meet the 3 (or 30) prospects set to break out for the Washington Nationals**\
+`Could the Nationals help Eli Willits gain bat speed and perhaps help him hit his goal of reaching the big leagues at age 20?`\
+https://nytimes.com/athletic/7140543/2026/03/24/washington-nationals-top-prospects-eli-willits/
 
-**Maryland coach Brenda Frese went viral for yelling at Oluchi Okananwa. There’s more to the story**\
-`The relationship between Maryland coach Brenda Frese and Oluchi Okananwa allowed a fiery moment to be positive, not negative.`\
-https://nytimes.com/athletic/7142264/2026/03/24/maryland-coach-player-interaction-march-madness/
+**How is Jayson Tatum's recovery going? Analyzing his early progress with Celtics**\
+`"I wanted to be perfect and first team All-NBA Jayson, but it's going to take time," Tatum says of his return from an Achilles injury.`\
+https://nytimes.com/athletic/7142049/2026/03/24/jayson-tatum-progress-achilles-recovery-celtics/
 
-**How much March Madness has the NCAA Tournament delivered so far?**\
-`Did we just have fun? In March, that answer is often judged against our idealized perception of the opening two rounds of the tournament.`\
-https://nytimes.com/athletic/7142609/2026/03/24/march-madness-upsets-scoring-margin-history/
+**Inside Nikita Kucherov's MVP-caliber, historic season for the Lightning: 'Nobody's playing better'**\
+`Kucherov is scoring at a historic pace and leading the Lightning to another year of contention. Will it lead to a Hart Trophy?`\
+https://nytimes.com/athletic/7140031/2026/03/24/nikita-kucherov-hart-trophy-lighting/
 
-**Shannon Forde's legacy with the Mets lives on, 10 years later**\
-`In the decade since her passing, the Mets have made sure Forde’s legacy carries forward: “She knew how to treat people."`\
-https://nytimes.com/athletic/7134536/2026/03/24/mets-shannon-forde-tribute-anniversary/
+**NFL stadiums must scrub all branding for FIFA's World Cup. One roof got an exemption.**\
+`Of all the major steps World Cup stadium staffers have to take, this is what one VP of operations says is 'keeping me up at night.'`\
+https://nytimes.com/athletic/7141779/2026/03/24/mercedes-benz-stadium-roof-logo-atlanta-fifa-world-cup/
 
-**Sweet 16 power rankings: Who (besides UConn) can go the distance?**\
-`Who's the best No. 2 seed? Vanderbilt, LSU or Michigan? `\
-https://nytimes.com/athletic/7142694/2026/03/24/sweet-16-power-rankings-uconn/
+**Victor Wembanyama says he’s the NBA MVP. I asked him to debate his case**\
+`Lots of basketball fans think the Spurs superstar is the MVP. We asked him what he thinks.`\
+https://nytimes.com/athletic/7142866/2026/03/24/victor-wembanyama-mvp-interview/
 
-**The Vladdy Window: How a 14-year extension supercharged the Blue Jays for the long haul**\
-`The defending AL champs aim to keep their momentum going behind Vladimir Guerrero Jr.: "That’s the face of the franchise."`\
-https://nytimes.com/athletic/7138725/2026/03/24/blue-jays-vladimir-guerrero-extenstion-2026/
+**After walking away from the majors, Orioles' Mike Shildt is living his purpose in the minors**\
+`Shildt retired as Padres manager after the 2025 season, returning to the Orioles as their upper-level coordinator of instruction.`\
+https://nytimes.com/athletic/7141224/2026/03/24/mike-shildt-baltimore-orioles-padres-cardinals/
 
-**First look at women's Sweet 16: Predictions and breakdowns for each matchup**\
-`Can LSU beat Duke for a second time this season? Will South Carolina get back at Oklahoma? `\
-https://nytimes.com/athletic/7142805/2026/03/24/womens-sweet-16-matchups-predictions/
+**Curtis Granderson: These are the 3 best leaders I played with in MLB**\
+`Curtis Granderson played 16 seasons in Major League Baseball for seven different teams, including the Tigers,Yankees and Mets.`\
+https://nytimes.com/athletic/7141087/2026/03/24/curtis-granderson-best-leaders-mlb/
 
