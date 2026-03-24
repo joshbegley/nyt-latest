@@ -1,3 +1,11 @@
+**How each team can make MLB's postseason, no matter the budget**\
+`From the Dodgers to the Rockies and everywhere in between, there's a scenario that allows your team to dream. Here's what history says.`\
+https://nytimes.com/athletic/7142373/2026/03/24/mlb-season-preview-postseason-projections/
+
+**Patriots hoping to avoid becoming the 2026 version of the Commanders**\
+`The Patriots had a wildly successful season in 2025, much like the 2024 Commanders. Can they avoid a Washington-like falloff in 2026?`\
+https://nytimes.com/athletic/7141339/2026/03/24/patriots-commanders-regression-drake-maye-jayden-daniels/
+
 **Why Are So Many Democratic Politicians So Far Out of Touch?**\
 `Candidates in safe districts are under no pressure to moderate in order to win.`\
 https://nytimes.com/2026/03/24/opinion/democrats-midterm-elections.html
