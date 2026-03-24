@@ -1,3 +1,7 @@
+**Bucks waive Cam Thomas less than 2 months after signing guard**\
+`The timing of Thomas' release means he is ineligible to participate in the postseason if another NBA team picks him up.`\
+https://nytimes.com/athletic/7142412/2026/03/23/bucks-waive-cam-thomas-pete-nance-standard-contract/
+
 **A Murder Charge in Georgia Exposes Complexities of the Abortion Debate**\
 `A woman who took medication to induce an abortion, and then delivered the baby, was arrested on a murder charge. But on Monday, a state judge expressed deep skepticism about the case.`\
 https://nytimes.com/2026/03/23/us/georgia-abortion-pill-murder.html
