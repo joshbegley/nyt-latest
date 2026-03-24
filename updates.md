@@ -1,3 +1,15 @@
+**OpenAI Is Shutting Down Sora, Its A.I. Video Generator**\
+`The start-up said it would discontinue Sora just three months after signing a multiyear deal to bring Disney characters to the service.`\
+https://nytimes.com/2026/03/24/technology/openai-shutting-down-sora.html
+
+**New York Times Accuses Pentagon of Defying Court Order**\
+`The company said in a legal filing that the department sought to fashion an “end-run” when it issued revised media rules on Monday.`\
+https://nytimes.com/2026/03/24/business/media/new-york-times-pentagon-court-order.html
+
+**Salah's departure feels right for him and Liverpool**\
+`A pre-announced departure offers Salah the send-off he deserves and allows the club to start planning for life without him`\
+https://nytimes.com/athletic/7145041/2026/03/24/mohamed-salah-departure-liverpool/
+
 **Radko Gudas expresses remorse for Auston Matthews' season-ending injury: 'I've got to learn'**\
 `"I feel terrible about the outcome," Gudas said of the knee-to-knee hit on Matthews.`\
 https://nytimes.com/athletic/7145051/2026/03/24/radko-gudas-apology-matthews-suspension/

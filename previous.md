@@ -1,3 +1,15 @@
+**OpenAI Is Shutting Down Sora, Its A.I. Video Generator**\
+`The start-up said it would discontinue Sora just three months after signing a multiyear deal to bring Disney characters to the service.`\
+https://nytimes.com/2026/03/24/technology/openai-shutting-down-sora.html
+
+**New York Times Accuses Pentagon of Defying Court Order**\
+`The company said in a legal filing that the department sought to fashion an “end-run” when it issued revised media rules on Monday.`\
+https://nytimes.com/2026/03/24/business/media/new-york-times-pentagon-court-order.html
+
+**Salah's departure feels right for him and Liverpool**\
+`A pre-announced departure offers Salah the send-off he deserves and allows the club to start planning for life without him`\
+https://nytimes.com/athletic/7145041/2026/03/24/mohamed-salah-departure-liverpool/
+
 **Radko Gudas expresses remorse for Auston Matthews' season-ending injury: 'I've got to learn'**\
 `"I feel terrible about the outcome," Gudas said of the knee-to-knee hit on Matthews.`\
 https://nytimes.com/athletic/7145051/2026/03/24/radko-gudas-apology-matthews-suspension/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/24/health/robert-malone-vaccines-cdc.html
 **Judge Orders Records Search After Trump Ties Cole Attack to Iran**\
 `The bombing of the ship by Al Qaeda killed 17 U.S. sailors in 2000. President Trump has said Iran was “probably involved.”`\
 https://nytimes.com/2026/03/24/us/politics/trump-cole-bombing-iran.html
-
-**Kermit Gosnell, Imprisoned Abortion Doctor Convicted of Murders, Dies at 85**\
-`Prosecutors in 2013 said that he killed babies who had emerged alive during late-term abortions. The case became a rallying cry for anti-abortion activists.`\
-https://nytimes.com/2026/03/24/us/kermit-gosnell-dead.html
-
-**Justices Seem Open to Allowing Trump to Block Some Asylum Seekers**\
-`Also, officials described overlapping failures before the deadly LaGuardia crash. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2026/03/24/briefing/supreme-court-asylum-laguardia-crash.html
-
-**Storm Pounds Maui as Rainfall Totals Add Up Across Hawaii**\
-`Experts agree that the past weeks have been one of the rainiest periods in recent memory across the state.`\
-https://nytimes.com/2026/03/24/weather/hawaii-storms-rain-records.html
 
