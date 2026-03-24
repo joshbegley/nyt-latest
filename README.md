@@ -1,3 +1,15 @@
+**Who is your country's Max Dowman?**\
+`Each country will have young players they are thinking about including for their World Cup squads. Who is your nation's possible inclusion?`\
+https://nytimes.com/athletic/7135976/2026/03/24/world-cup-players-wonderkids-max-dowman/
+
+**The U.S. Is No Longer the Leader of the Free World**\
+`Pax Americana, meet Lax Americana.`\
+https://nytimes.com/2026/03/24/opinion/trump-iran-world-america-first.html
+
+**The New York Times in Print for Tuesday, March 24, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/24/todays-new-york-times
+
 **Warriors' Moses Moody injures knee in overtime against Mavericks**\
 `Moody was dribbling towards the basket for a breakaway dunk when his left knee appeared to give out. `\
 https://nytimes.com/athletic/7142747/2026/03/24/warriors-moses-moody-knee-injury-mavericks/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/24/pageoneplus/corrections-march-24-2026.html
 **MDMA Therapy in Australia Shows Results, but the Cost Is Limiting Access**\
 `The country’s experiment with psychedelic medicine has led to positive outcomes, psychiatrists say, but also highlights the limitations of the nascent field.`\
 https://nytimes.com/2026/03/24/health/mdma-therapy-ptsd-psychedelic-australia.html
-
-**Pakistan Dials Up Its Information War**\
-`New, friendly media operations and expanded state-run television are pushing Pakistan’s message while independent news outlets face repression.`\
-https://nytimes.com/2026/03/24/world/asia/pakistan-media-news-misinformation.html
-
-**Quote of the Day: West’s Oil Producers Reap Profits Now but Stay Wary**\
-`Quotation of the Day for Tuesday, March 24, 2026.`\
-https://nytimes.com/2026/03/23/pageoneplus/quote-of-the-day-wests-oil-producers-reap-profits-now-but-stay-wary.html
-
-**How Kim Jong-un Is Using the Iran War to Justify His Nuclear Arsenal**\
-`He delivered a lengthy speech at his country’s rubber-stamp Parliament, declaring that his nuclear power will shield his country from American hostility.`\
-https://nytimes.com/2026/03/23/world/asia/north-korea-kim-iran-nuclear.html
 

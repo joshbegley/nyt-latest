@@ -1,3 +1,7 @@
+**Warriors' Moses Moody injures knee in overtime against Mavericks**\
+`Moody was dribbling towards the basket for a breakaway dunk when his left knee appeared to give out. `\
+https://nytimes.com/athletic/7142747/2026/03/24/warriors-moses-moody-knee-injury-mavericks/
+
 **Trump Sours on British Leader Over Iran War: ‘What If Donald Shouts at Me?’**\
 `President Trump once called Prime Minister Keir Starmer a friend. But Mr. Starmer’s decision not to join the attacks on Iran has led to merciless mocking by the president.`\
 https://nytimes.com/2026/03/24/world/europe/trump-starmer-snl.html
