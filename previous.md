@@ -1,3 +1,7 @@
+**Managers on the rise: Francesco Farioli - Italy's gentleman coach flourishing in Portugal**\
+`The innovative 36-year-old Italian coach has made Porto strong favourites for the Portuguese title since he took over last summer`\
+https://nytimes.com/athletic/7134918/2026/03/24/managers-on-the-rise-francesco-farioli/
+
 **Row Z: Romero's 200 per cent effort, saucy Toffees and bees vs flies**\
 `Spurs' captain setting unreachable aims and Everton's ketchup revolution feature in this week's look at football's more unusual stories`\
 https://nytimes.com/athletic/7140220/2026/03/24/romero-tottenham-everton-ketchup/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/24/world/europe/ukraine-middle-east-oil-and-gas-dron
 **Connections: Sports Edition Coach: Hints and answers for March 24, 2026**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/7142601/2026/03/24/connections-sports-edition-hints-answers-march-24-2026/
-
-**Trump Sours on British Leader Over Iran War: ‘What If Donald Shouts at Me?’**\
-`President Trump once called Prime Minister Keir Starmer a friend. But Mr. Starmer’s decision not to join the attacks on Iran has led to merciless mocking by the president.`\
-https://nytimes.com/2026/03/24/world/europe/trump-starmer-snl.html
 
