@@ -1,3 +1,7 @@
+**NBPA calls for 'arbitrary' 65-game rule for awards to be 'abolished or reformed'**\
+`The NBA Players Association believes the "arbitrary and overly rigid quota" for awards has "unfairly disqualified" too many players. `\
+https://nytimes.com/athletic/7144229/2026/03/24/nba-65-game-rule-awards-players/
+
 **Mbappe's knee injury was misdiagnosed after MRI scan on wrong leg**\
 `Mbappe, 27, is currently away with the French national team ahead of friendlies against Brazil and Colombia in the U.S.`\
 https://nytimes.com/athletic/7143865/2026/03/24/kylian-mbappe-wrong-knee-real-madrid/

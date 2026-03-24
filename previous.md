@@ -1,3 +1,7 @@
+**NBPA calls for 'arbitrary' 65-game rule for awards to be 'abolished or reformed'**\
+`The NBA Players Association believes the "arbitrary and overly rigid quota" for awards has "unfairly disqualified" too many players. `\
+https://nytimes.com/athletic/7144229/2026/03/24/nba-65-game-rule-awards-players/
+
 **Mbappe's knee injury was misdiagnosed after MRI scan on wrong leg**\
 `Mbappe, 27, is currently away with the French national team ahead of friendlies against Brazil and Colombia in the U.S.`\
 https://nytimes.com/athletic/7143865/2026/03/24/kylian-mbappe-wrong-knee-real-madrid/
@@ -29,8 +33,4 @@ https://nytimes.com/video/podcasts/100000010799029/block-uses-ai-as-excuse-for-l
 **Iranian Missile Attack Damages Residential Buildings in Tel Aviv**\
 `An Iranian missile attack on Tel Aviv damaged residential buildings and injured several people, Israel’s national emergency service said.`\
 https://nytimes.com/video/world/middleeast/100000010797996/iran-missile-attack-tel-aviv.html
-
-**Lang avoids 'complete thumb amputation' after Anfield hoardings collision**\
-`Lang, 26, underwent surgery in Liverpool after sustaining the injury to his right thumb.`\
-https://nytimes.com/athletic/7144034/2026/03/24/noa-lang-injury-update-liverpool/
 
