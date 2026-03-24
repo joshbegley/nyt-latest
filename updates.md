@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By John Yoon, Gabby Sobelman and Aurelien Breeden`\
+https://nytimes.com/live/2026/03/24/world/iran-war-trump-oil/heres-the-latest
+
 **How Haas tamed Godzilla for a special F1 livery at Japanese GP**\
 `“Godzilla is an icon across the whole world, not only in Japan,” Esteban Ocon said. “To have him on the car, it's a big, big thing.”`\
 https://nytimes.com/athletic/7142954/2026/03/24/haas-f1-livery-japanese-grand-prix/

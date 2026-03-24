@@ -31,7 +31,7 @@ https://nytimes.com/2026/03/24/crosswords/spelling-bee-forum.html
 https://nytimes.com/2026/03/24/science/archaeology-egypt-hatshepsut.html
 
 **Here’s the latest.**\
-`By John Yoon and Gabby Sobelman`\
+`By John Yoon, Gabby Sobelman and Aurelien Breeden`\
 https://nytimes.com/live/2026/03/24/world/iran-war-trump-oil/heres-the-latest
 
 **Iran War Live Updates: Israel Attacks in Lebanon and Reports Missile Damage in Tel Aviv**\
