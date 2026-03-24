@@ -1,3 +1,7 @@
+**Iran’s New Security Chief Is a Hard-Line Former Guards Commander**\
+`Mohammad Bagher Zolghadr replaces Ali Larijani, who was killed last week in an Israeli strike. He has a history of expanding the Guards’ reach into Iran’s politics.`\
+https://nytimes.com/2026/03/24/world/middleeast/iran-security-chief-larijani-zolghadr.html
+
 **Rangers' Carter Baumler learns of Opening Day roster spot mid-outing**\
 `After getting the news from manager Skip Schumaker, Carter Baumler promptly struck out his third hitter of the night.`\
 https://nytimes.com/athletic/7143689/2026/03/24/rangers-opening-day-roster-carter-baumler-mound-visit/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/24/arts/music/robert-white-dead.html
 **Prospect Connelly Early makes Red Sox rotation; Johan Oviedo bumped to bullpen**\
 `The Red Sox's 2023 fifth-round pick has quickly — and somewhat quietly — risen to prospect prominence.`\
 https://nytimes.com/athletic/7143656/2026/03/24/red-sox-connelly-early-john-oviedo-bullpen/
-
-**Trump’s Threat to Iran Crosses a Line, Rights Experts Say**\
-`Intentionally targeting the country’s energy infrastructure could constitute a war crime under international law.`\
-https://nytimes.com/2026/03/24/us/politics/trump-iran-power-stations.html
 
