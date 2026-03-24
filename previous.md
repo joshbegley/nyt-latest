@@ -1,3 +1,7 @@
+**Map: 7.6-Magnitude Earthquake Shakes the South Pacific Ocean**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/03/24/world/quake-tracker-south-pacific-ocean-tonga.html
+
 **Inside Newcastle Q&A: Is Eddie Howe under pressure? Why was Woltemade signed?**\
 `The Athletic's Chris Waugh answers your questions about Newcastle United and the latest from St James' Park`\
 https://nytimes.com/athletic/7140155/2026/03/24/newcastle-eddie-howe-future-nick-woltemade-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7134918/2026/03/24/managers-on-the-rise-francesco-f
 **Row Z: Romero's 200 per cent effort, saucy Toffees and bees vs flies**\
 `Spurs' captain setting unreachable aims and Everton's ketchup revolution feature in this week's look at football's more unusual stories`\
 https://nytimes.com/athletic/7140220/2026/03/24/romero-tottenham-everton-ketchup/
-
-**Liverpool and Chelsea were criticised for being outrun - but focusing on that is unwise**\
-`Using running data as a stick to beat teams with must be met with caution - it is a risky way of interpreting statistics`\
-https://nytimes.com/athletic/7141373/2026/03/24/premier-league-running-analysis-importance/
 

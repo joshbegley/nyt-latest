@@ -1,3 +1,7 @@
+**Map: 7.6-Magnitude Earthquake Shakes the South Pacific Ocean**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/03/24/world/quake-tracker-south-pacific-ocean-tonga.html
+
 **Inside Newcastle Q&A: Is Eddie Howe under pressure? Why was Woltemade signed?**\
 `The Athletic's Chris Waugh answers your questions about Newcastle United and the latest from St James' Park`\
 https://nytimes.com/athletic/7140155/2026/03/24/newcastle-eddie-howe-future-nick-woltemade-analysis/
