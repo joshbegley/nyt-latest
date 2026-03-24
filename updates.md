@@ -1,3 +1,11 @@
+**Why President Trump Has a Big Oil Problem**\
+`Our national security correspondent David E. Sanger looks at President Trump’s trouble handling retaliatory attacks by Iran that have largely choked off the Strait of Hormuz.`\
+https://nytimes.com/video/world/middleeast/100000010796844/why-iran-strait-of-hormuz-is-important-trump.html
+
+**Russian Oil Shipment Puts Focus on Kremlin Spy Outpost in Cuba**\
+`Moscow may be challenging President Trump’s effort to choke Cuba’s economy. China also has suspected listening posts on the island.`\
+https://nytimes.com/2026/03/24/us/politics/cuba-russia-china.html
+
 **California Governor’s Debate Canceled After Criticism Over Lack of Diversity**\
 `The debate would have featured six candidates, all white. The inclusion of a low-polling mayor drew scrutiny in particular.`\
 https://nytimes.com/2026/03/24/us/usc-california-governor-debate-canceled.html

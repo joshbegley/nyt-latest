@@ -1,3 +1,11 @@
+**Why President Trump Has a Big Oil Problem**\
+`Our national security correspondent David E. Sanger looks at President Trump’s trouble handling retaliatory attacks by Iran that have largely choked off the Strait of Hormuz.`\
+https://nytimes.com/video/world/middleeast/100000010796844/why-iran-strait-of-hormuz-is-important-trump.html
+
+**Russian Oil Shipment Puts Focus on Kremlin Spy Outpost in Cuba**\
+`Moscow may be challenging President Trump’s effort to choke Cuba’s economy. China also has suspected listening posts on the island.`\
+https://nytimes.com/2026/03/24/us/politics/cuba-russia-china.html
+
 **California Governor’s Debate Canceled After Criticism Over Lack of Diversity**\
 `The debate would have featured six candidates, all white. The inclusion of a low-polling mayor drew scrutiny in particular.`\
 https://nytimes.com/2026/03/24/us/usc-california-governor-debate-canceled.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/24/opinion/vaccines-history.html
 **Iran’s New Security Chief Is a Hard-Line Former Guards Commander**\
 `Mohammad Bagher Zolghadr replaces Ali Larijani, who was killed last week in an Israeli strike. He has a history of expanding the Guards’ reach into Iran’s politics.`\
 https://nytimes.com/2026/03/24/world/middleeast/iran-security-chief-larijani-zolghadr.html
-
-**Rangers' Carter Baumler learns of Opening Day roster spot mid-outing**\
-`After getting the news from manager Skip Schumaker, Carter Baumler promptly struck out his third hitter of the night.`\
-https://nytimes.com/athletic/7143689/2026/03/24/rangers-opening-day-roster-carter-baumler-mound-visit/
-
-**JC Tretter on why he returned to NFLPA as executive director after tenuous exit**\
-`Eight months after resigning, Tretter is back in the NFLPA's top job. He says he wishes he had done more to defend himself last summer.`\
-https://nytimes.com/athletic/7143346/2026/03/24/jc-tretter-interview-nflpa-executive-director/
 
