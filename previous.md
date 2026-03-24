@@ -35,7 +35,7 @@ https://nytimes.com/athletic/7142412/2026/03/23/bucks-waive-cam-thomas-pete-nanc
 `A woman who took medication to induce an abortion, and then delivered the baby, was arrested on a murder charge. But on Monday, a state judge expressed deep skepticism about the case.`\
 https://nytimes.com/2026/03/23/us/georgia-abortion-pill-murder.html
 
-**Trump’s New Political Tool: ICE**\
+**When Trump Wants Something Done, He Dispatches ICE to Do It**\
 `President Trump has increasingly used Immigration and Customs Enforcement to push personal and political objectives, and on Monday sent agents to airports across the country to help deal with long security lines.`\
 https://nytimes.com/2026/03/23/us/politics/trump-ice-airports.html
 
