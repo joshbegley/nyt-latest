@@ -1,3 +1,11 @@
+**What a bad season would look like for the 2026 Giants**\
+`A bad year for the Giants would be for their season to end with no clear direction or understanding of how to move the team forward.`\
+https://nytimes.com/athletic/7144326/2026/03/24/sf-giants-2026-outlook-bad-season/
+
+**High Oil and Gas Prices Could Outlast Trump’s War With Iran**\
+`While the president has promised rapid relief, Americans could feel the financial sting of the conflict for some time after it ends.`\
+https://nytimes.com/2026/03/24/us/politics/oil-gas-prices-iran.html
+
 **How to watch Oilers vs. Mammoth: Time, TV, streaming**\
 `Find out how to watch the Edmonton Oilers play the Utah Mammoth, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7144426/2026/03/24/oilers-vs-mammoth-stream-how-to-watch-march-24/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7144323/2026/03/24/nuggets-vs-suns-stream-how-to-wa
 **Costa Rica Agrees to Take Migrants Deported by the Trump Administration**\
 `The agreement is part of President Trump’s efforts to find governments willing to accept people who have been detained in the United States.`\
 https://nytimes.com/2026/03/24/world/americas/costa-rica-us-deportation-deal.html
-
-**Senate Democrats Urge Kennedy to Stop Hindering Key Health Panel**\
-`The health secretary has canceled or postponed three meetings of the U.S. Preventive Services Task Force, which shapes health care coverage for Americans.`\
-https://nytimes.com/2026/03/24/well/kennedy-uspstf-health-panel.html
-
-**The One Question Trump’s Judicial Picks Refuse to Answer**\
-`“Who won the 2020 election?” is the question that Trump’s nominees to the federal bench each refuse to answer in the same exact way.`\
-https://nytimes.com/2026/03/24/opinion/trump-judges-nominees-federal-courts.html
 

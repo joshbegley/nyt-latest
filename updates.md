@@ -1,3 +1,11 @@
+**What a bad season would look like for the 2026 Giants**\
+`A bad year for the Giants would be for their season to end with no clear direction or understanding of how to move the team forward.`\
+https://nytimes.com/athletic/7144326/2026/03/24/sf-giants-2026-outlook-bad-season/
+
+**High Oil and Gas Prices Could Outlast Trump’s War With Iran**\
+`While the president has promised rapid relief, Americans could feel the financial sting of the conflict for some time after it ends.`\
+https://nytimes.com/2026/03/24/us/politics/oil-gas-prices-iran.html
+
 **How to watch Oilers vs. Mammoth: Time, TV, streaming**\
 `Find out how to watch the Edmonton Oilers play the Utah Mammoth, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7144426/2026/03/24/oilers-vs-mammoth-stream-how-to-watch-march-24/
