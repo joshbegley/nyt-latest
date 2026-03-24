@@ -1,3 +1,7 @@
+**Senate Republicans Again Block Bid to Halt Iran War Without Authorization**\
+`Senate Democrats failed for the third time to advance a resolution that would force the removal of troops from hostilities in Iran unless Congress approves offensive operations.`\
+https://nytimes.com/2026/03/24/us/politics/senate-iran-war-vote.html
+
 **After Standing Up to Trump Over Greenland, Denmark’s Prime Minister Leads in Election**\
 `Mette Frederiksen’s party fell far short of a majority, but analysts say she is still in the best position to form a new government.`\
 https://nytimes.com/2026/03/24/world/europe/denmark-elections-mette-frederiksen.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/24/us/tsa-airports-houston-atlanta-newark.html
 **NFL's competition committee proposes 5 rule changes, including 3 on kickoffs**\
 `Another proposal would allow league personnel to consult with on-field officials when considering disqualifications.`\
 https://nytimes.com/athletic/7144799/2026/03/24/nfl-competition-committee-proposed-rule-changes/
-
-**Flight 8646 to LaGuardia: From Routine Landing to Disaster in 20 Seconds**\
-`In the early stages of the investigation into the Air Canada Express crash on Sunday night, a hazy timeline has begun to emerge.`\
-https://nytimes.com/2026/03/24/nyregion/air-canada-laguardia-crash-investigation.html
 
