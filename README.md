@@ -1,3 +1,11 @@
+**Judge Orders Records Search After Trump Ties Cole Attack to Iran**\
+`The bombing of the ship by Al Qaeda killed 17 U.S. sailors in 2000. President Trump has said Iran was “probably involved.”`\
+https://nytimes.com/2026/03/24/us/politics/trump-cole-bombing-iran.html
+
+**Kermit Gosnell, Imprisoned Abortion Doctor Convicted of Murders, Dies at 85**\
+`Prosecutors in 2013 said that he killed babies who had emerged alive during late-term abortions. The case became a rallying cry for anti-abortion activists.`\
+https://nytimes.com/2026/03/24/us/kermit-gosnell-dead.html
+
 **Justices Seem Open to Allowing Trump to Block Some Asylum Seekers**\
 `Also, officials described overlapping failures before the deadly LaGuardia crash. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2026/03/24/briefing/supreme-court-asylum-laguardia-crash.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/24/business/delta-congress-travel-services-suspended
 **T.S.A. Union Leaders Blast Trump’s Deployment of ICE Agents in Airports**\
 `The local leaders of the union representing T.S.A. workers characterized the ICE officers in airports as unhelpful and a distraction.`\
 https://nytimes.com/2026/03/24/us/politics/tsa-union-ice-airport-security-trump.html
-
-**Florida Special Election Results**\
-`Get live results from the 2026 Florida State Legislature special elections.`\
-https://nytimes.com/interactive/2026/us/elections/results-florida-special-march-24.html
-
-**Leaders support moving college football's season start date up a week in 2027**\
-`Starting the season earlier would not be directly tied to potentially moving up the start of the College Football Playoff.`\
-https://nytimes.com/athletic/7144341/2026/03/24/college-football-season-start-date-week-0/
 
