@@ -1,3 +1,7 @@
+**Man United transfers: Discussing Fernandes, Anderson, Baleba, Wharton and next season's midfield**\
+`Is Casemiro definitely leaving? Will Bruno Fernandes go too? Can United beat City to Elliot Anderson? What are the alternatives?`\
+https://nytimes.com/athletic/7142948/2026/03/24/manchester-united-transfers-midfielders/
+
 **Here’s the latest.**\
 `By John Yoon, Gabby Sobelman and Aurelien Breeden`\
 https://nytimes.com/live/2026/03/24/world/iran-war-trump-oil/heres-the-latest
