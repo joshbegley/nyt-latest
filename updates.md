@@ -1,3 +1,7 @@
+**How Kim Jong-un Is Using the Iran War to Justify His Nuclear Arsenal**\
+`He delivered a lengthy speech at his country’s rubber-stamp Parliament, declaring that his nuclear power will shield his country from American hostility.`\
+https://nytimes.com/2026/03/23/world/asia/north-korea-kim-iran-nuclear.html
+
 **Senate Confirms Markwayne Mullin as Homeland Security Secretary**\
 `The Senate confirmed Markwayne Mullin to take over the Homeland Security Department in a 54-to-45 vote on Monday.`\
 https://nytimes.com/video/us/politics/100000010797537/markwayne-mullin-senate-confirmation-dhs.html
