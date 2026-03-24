@@ -1,3 +1,7 @@
+**Philippines Declares National Emergency Over High Fuel Prices**\
+`The Southeast Asian country imports 90 percent of its oil from the Middle East, and the government is under intense pressure to deal with the situation.`\
+https://nytimes.com/2026/03/24/world/middleeast/philippines-national-emergency-high-fuel-prices.html
+
 **NASA Adds Moon Base and Nuclear-Powered Mars Spacecraft to Road Map**\
 `The agency announced the more specific plans and timelines after years of suggesting it may build a lunar outpost.`\
 https://nytimes.com/2026/03/24/science/nasa-moon-base-mars-spacecraft.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7125715/2026/03/24/mikaela-shiffrin-world-cup-slalo
 **Tristan Vukčević's next trick? Proving he belongs in Wizards' long-term future**\
 `The 23-year-old big man can score and pass. Now, armed with a new contract, he must continue to ascend on defense.`\
 https://nytimes.com/athletic/7142147/2026/03/24/tristan-vukcevic-washington-wizards-future/
-
-**Saudi Prince Is Said to Push Trump to Continue Iran War in Recent Calls**\
-`Prince Mohammed bin Salman sees a “historic opportunity” to remake the region, according to people briefed by U.S. officials on the conversations.`\
-https://nytimes.com/2026/03/24/us/politics/saudi-prince-iran-trump.html
 

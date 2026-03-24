@@ -1,3 +1,7 @@
+**Philippines Declares National Emergency Over High Fuel Prices**\
+`The Southeast Asian country imports 90 percent of its oil from the Middle East, and the government is under intense pressure to deal with the situation.`\
+https://nytimes.com/2026/03/24/world/middleeast/philippines-national-emergency-high-fuel-prices.html
+
 **NASA Adds Moon Base and Nuclear-Powered Mars Spacecraft to Road Map**\
 `The agency announced the more specific plans and timelines after years of suggesting it may build a lunar outpost.`\
 https://nytimes.com/2026/03/24/science/nasa-moon-base-mars-spacecraft.html
