@@ -1,3 +1,7 @@
+**Mikaela Shiffrin wins record ninth slalom race of World Cup season, nears overall title**\
+`Mikaela Shiffrin is on the brink of her sixth career overall World Cup title after keeping her red-hot slalom streak going Tuesday.`\
+https://nytimes.com/athletic/7125715/2026/03/24/mikaela-shiffrin-world-cup-slalom-win-nine-overall-title/
+
 **Lucas Pinheiro Braathen gives Brazil its first Alpine skiing World Cup title**\
 `Born in Norway, Braathen now competes for his mother's native Brazil and has been racking up historic Alpine skiing firsts. `\
 https://nytimes.com/athletic/7143306/2026/03/24/lucas-pinheiro-braathen-brazil-first-world-cup-alpine-skiing-title/
