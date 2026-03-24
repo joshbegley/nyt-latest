@@ -1,3 +1,15 @@
+**James Hagens signs amateur tryout contract with Bruins**\
+`Hagens, 19, will report to the Bruins' AHL affiliate after completing his career with Boston College Friday night.`\
+https://nytimes.com/athletic/7136163/2026/03/24/james-hagens-signs-entry-level-contract-boston-bruins/
+
+**Three bold Cubs predictions for the 2026 MLB season**\
+`The Cubs enter the season with World Series dreams and a roster to back up the bold assertions being made in their clubhouse.`\
+https://nytimes.com/athletic/7141842/2026/03/24/chicago-cubs-2026-season-bold-predictions/
+
+**34 Former Military Members Were Put on Deportation Track in the Past Year**\
+`The Trump administration has ramped up enforcement against immigrant service members and their families in its wider crackdown.`\
+https://nytimes.com/2026/03/24/us/politics/veterans-deport-immigrants-trump.html
+
 **World Cup: Questions for final countdown. Plus: A Cooper conspiracy theory**\
 `Today in TAFC: The World Cup questions that will be answered over the next two weeks. Plus: A Steve Cooper conspiracy theory.`\
 https://nytimes.com/athletic/7143028/2026/03/24/world-cup-questions-for-final-countdown-plus-a-cooper-conspiracy-theory/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7139922/2026/03/24/egor-chinakhov-pittsburgh-pengui
 **The Sixers are still feeling the Jared McCain trade, but the story isn’t over**\
 `Monday marked McCain’s first game against the Sixers since Philly dealt him to the Thunder at the trade deadline.`\
 https://nytimes.com/athletic/7142548/2026/03/24/jared-mccain-trade-thunder-sixers-nba/
-
-**49ers mailbag: Kyle Shanahan's contract status; is Raheem Morris seeking safties?**\
-`Among this week's questions: What does Shanahan look for in a wide receiver prospect and who fits the bill this year?`\
-https://nytimes.com/athletic/7141903/2026/03/24/49ers-mailbag-kyle-shanahan-contract-safties-need/
-
-**Prospect breakdown: Mustard learning to finish, dominate at college level**\
-`Mustard, now a sophomore at Providence who leads the team in points, was one of three Blackhawks third-round picks in 2024.`\
-https://nytimes.com/athletic/7138639/2026/03/24/john-mustard-chicago-blackhawks-prospect-breakdown-providence/
-
-**Craig Berube is getting more and more vocal about Leafs' performance**\
-`The Maple Leafs haven't played well for some time. Berube's intensity levels are going up accordingly.`\
-https://nytimes.com/athletic/7141581/2026/03/24/craig-berube-maple-leafs-criticism-coach/
 

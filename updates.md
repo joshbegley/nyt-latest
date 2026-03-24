@@ -1,3 +1,15 @@
+**James Hagens signs amateur tryout contract with Bruins**\
+`Hagens, 19, will report to the Bruins' AHL affiliate after completing his career with Boston College Friday night.`\
+https://nytimes.com/athletic/7136163/2026/03/24/james-hagens-signs-entry-level-contract-boston-bruins/
+
+**Three bold Cubs predictions for the 2026 MLB season**\
+`The Cubs enter the season with World Series dreams and a roster to back up the bold assertions being made in their clubhouse.`\
+https://nytimes.com/athletic/7141842/2026/03/24/chicago-cubs-2026-season-bold-predictions/
+
+**34 Former Military Members Were Put on Deportation Track in the Past Year**\
+`The Trump administration has ramped up enforcement against immigrant service members and their families in its wider crackdown.`\
+https://nytimes.com/2026/03/24/us/politics/veterans-deport-immigrants-trump.html
+
 **World Cup: Questions for final countdown. Plus: A Cooper conspiracy theory**\
 `Today in TAFC: The World Cup questions that will be answered over the next two weeks. Plus: A Steve Cooper conspiracy theory.`\
 https://nytimes.com/athletic/7143028/2026/03/24/world-cup-questions-for-final-countdown-plus-a-cooper-conspiracy-theory/
