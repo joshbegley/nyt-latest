@@ -1,3 +1,11 @@
+**T.S.A. Staffing Shortage Delayed Arrival of Some LaGuardia Crash Investigators**\
+`One specialist was caught in a three-hour line for security at a Houston airport, the chairwoman of the National Transportation Safety Board said.`\
+https://nytimes.com/2026/03/23/nyregion/tsa-shortage-laguardia-investigator.html
+
+**Virginia embraces Cinderella role after double-overtime upset in women's NCAA Tournament**\
+`Coach Amaka Agugua-Hamilton and Charlottesville phenom Kymora Johnson aimed to rebuild the struggling Cavaliers together. `\
+https://nytimes.com/athletic/7142334/2026/03/23/virginia-cinderella-iowa-ncaa-tournament-sweet-16/
+
 **Trump Claims Victory on Memphis Crime as His Crackdown Draws Protests**\
 `Residents and state officials are divided over whether a crime task force is a welcome fix or an unwanted imposition in a city where crime was already falling.`\
 https://nytimes.com/2026/03/23/us/politics/trump-visit-memphis-protests.html

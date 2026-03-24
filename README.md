@@ -1,3 +1,7 @@
+**Markwayne Mullin Confirmed as Homeland Security Secretary**\
+`A Cherokee Nation member who has served as Oklahoma’s junior senator, Mr. Mullin will take charge at a pivotal time.`\
+https://nytimes.com/2026/03/23/us/politics/markwayne-mullin-confirmed-homeland-security-secretary.html
+
 **T.S.A. Staffing Shortage Delayed Arrival of Some LaGuardia Crash Investigators**\
 `One specialist was caught in a three-hour line for security at a Houston airport, the chairwoman of the National Transportation Safety Board said.`\
 https://nytimes.com/2026/03/23/nyregion/tsa-shortage-laguardia-investigator.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/23/nyregion/faa-air-traffic-controller-laguardia-cra
 **Astros starter Spencer Arrighetti to start season in Triple A**\
 `Houston could’ve carried the righty as a long man in its Opening Day bullpen, but keeping him built up as a starter took precedence.`\
 https://nytimes.com/athletic/7142116/2026/03/23/astros-pitcher-spencer-arrighetti-optioned-triple-a/
-
-**Nationals place Josiah Gray on 60-day IL with right flexor strain**\
-`The 28-year-old was given a clean bill of health coming into camp and had an outside shot at making the starting rotation.`\
-https://nytimes.com/athletic/7142117/2026/03/23/josiah-gray-injured-list-nationals-flexor-strain/
 
