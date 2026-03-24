@@ -1,3 +1,7 @@
+**Late Night Doesn’t Feel So Hot About ICE at the Airport**\
+`Jimmy Kimmel said President Trump had “found a way to make the airport even worse.”`\
+https://nytimes.com/2026/03/24/arts/television/late-night-ice-airport.html
+
 **Map: 7.5-Magnitude Earthquake Shakes the South Pacific Ocean**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2026/03/24/world/quake-tracker-south-pacific-ocean-tonga.html
