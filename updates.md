@@ -1,3 +1,11 @@
+**Epic Games Lays Off Over 1,000 Employees, Citing Fortnite Slump**\
+`The cut represents about 20 percent of the video game company’s work force, a spokeswoman said.`\
+https://nytimes.com/2026/03/24/business/epic-games-layoffs-fortnite.html
+
+**How to watch Nuggets vs. Suns: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the Phoenix Suns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7144323/2026/03/24/nuggets-vs-suns-stream-how-to-watch-march-24/
+
 **Costa Rica Agrees to Take Migrants Deported by the Trump Administration**\
 `The agreement is part of President Trump’s efforts to find governments willing to accept people who have been detained in the United States.`\
 https://nytimes.com/2026/03/24/world/americas/costa-rica-us-deportation-deal.html
