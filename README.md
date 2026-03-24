@@ -1,3 +1,7 @@
+**Meta Ordered to Pay $375 Million Over Child Safety Violations**\
+`In one of the company’s first major losses, New Mexico jurors found that it had misled consumers about the safety of its platforms, enabling sexual exploitation of young users.`\
+https://nytimes.com/2026/03/24/technology/meta-new-mexico-child-safety-violations.html
+
 **Key Adviser Quits Federal Vaccine Panel**\
 `Dr. Robert Malone, vice chair of the committee, was appointed by Robert F. Kennedy Jr. after a purge of the previous advisers.`\
 https://nytimes.com/2026/03/24/health/robert-malone-vaccines-cdc.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7144575/2026/03/24/mlb-base-coaches-harms-way-new-r
 **Joe Flacco returning to Bengals on 1-year deal: Source**\
 `The 41-year-old quarterback showed he still could put up big numbers in relief of Joe Burrow last season.`\
 https://nytimes.com/athletic/7084834/2026/03/24/joe-flacco-bengals-nfl-free-agency-2026/
-
-**Delta Air Lines Says It Will Suspend Special Services for Congress Members**\
-`Airport escorts and “red coat” assistance for lawmakers will be suspended, the airline said on Tuesday, citing the extended partial government shutdown.`\
-https://nytimes.com/2026/03/24/business/delta-congress-travel-services-suspended.html
 
