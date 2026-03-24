@@ -1,3 +1,7 @@
+**Warriors' Moses Moody injures knee in overtime against Mavericks**\
+`Moody was dribbling towards the basket for a breakaway dunk when his left knee appeared to give out. `\
+https://nytimes.com/athletic/7142747/2026/03/24/warriors-moses-moody-knee-injury-mavericks/
+
 **Trump, Who Calls Mail-in Voting ‘Cheating,’ Just Voted by Mail**\
 `President Trump has long fixated on mail-in-voting to bolster his baseless claims of widespread voter fraud. But he recently used the method in a Florida special election.`\
 https://nytimes.com/2026/03/24/us/politics/trump-mail-in-voting-florida.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/23/pageoneplus/quote-of-the-day-wests-oil-producers-
 **How Kim Jong-un Is Using the Iran War to Justify His Nuclear Arsenal**\
 `He delivered a lengthy speech at his country’s rubber-stamp Parliament, declaring that his nuclear power will shield his country from American hostility.`\
 https://nytimes.com/2026/03/23/world/asia/north-korea-kim-iran-nuclear.html
-
-**Senate Confirms Markwayne Mullin as Homeland Security Secretary**\
-`The Senate confirmed Markwayne Mullin to take over the Homeland Security Department in a 54-to-45 vote on Monday.`\
-https://nytimes.com/video/us/politics/100000010797537/markwayne-mullin-senate-confirmation-dhs.html
 
