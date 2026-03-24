@@ -1,3 +1,7 @@
+**Trump, Who Calls Mail-in Voting ‘Cheating,’ Just Voted by Mail**\
+`President Trump has long fixated on mail-in-voting to bolster his baseless claims of widespread voter fraud. But he recently used the method in a Florida special election.`\
+https://nytimes.com/2026/03/24/us/politics/trump-mail-in-voting-florida.html
+
 **Ukraine Spent Big to Shield Energy Industry From Drones. Is the Mideast Next?**\
 `With the use of electronic jamming systems and interceptor drones, the Ukrainian national oil and gas company may be a model for others.`\
 https://nytimes.com/2026/03/24/world/europe/ukraine-middle-east-oil-and-gas-drones.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/23/world/asia/north-korea-kim-iran-nuclear.html
 **Senate Confirms Markwayne Mullin as Homeland Security Secretary**\
 `The Senate confirmed Markwayne Mullin to take over the Homeland Security Department in a 54-to-45 vote on Monday.`\
 https://nytimes.com/video/us/politics/100000010797537/markwayne-mullin-senate-confirmation-dhs.html
-
-**Cubs, Pete Crow-Armstrong reach agreement on contract extension: Sources**\
-`The center fielder won a Gold Glove and finished ninth in the NL MVP voting last season.`\
-https://nytimes.com/athletic/7079065/2026/03/23/pete-crow-armstrong-cubs-contract-extension/
 
