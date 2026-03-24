@@ -1,3 +1,19 @@
+**World Snooker Championship to remain at Crucible despite Saudi, China fears**\
+`The redevelopment of the Sheffield venue will, though, see the tournament temporarily relocated from 2028.`\
+https://nytimes.com/athletic/7143273/2026/03/24/snooker-world-championship-crucible-redevelopment/
+
+**How to watch Minnesota Twins: 'Field of Dreams' game, TV channels to know in 2026**\
+`The Twins are looking to the future as they begin the 2026 season. Here's how to watch all of their national and regional games this year.`\
+https://nytimes.com/athletic/7142292/2026/03/24/minnesota-twins-buxton-netflix-how-to-watch-2026/
+
+**Distinctive Glasses and an Inviting Sweater**\
+`Cobalt-blue knitwear distinguished an ensemble from others outside a coffee shop in Tokyo.`\
+https://nytimes.com/2026/03/24/style/street-style-look-wearing-blue-and-black.html
+
+**Lucas Pinheiro Braathen gives Brazil its first Alpine skiing World Cup title**\
+`Born in Norway, Lucas Pinheiro Braathen now competes for his mother's native Brazil and has been racking up historic Alpine skiing firsts. `\
+https://nytimes.com/athletic/7143306/2026/03/24/lucas-pinheiro-braathen-brazil-first-world-cup-alpine-skiing-title/
+
 **Czech police open criminal investigation after 47 alleged match-fixing cases identified**\
 `The Czech Republic's football association announced a concurrent investigation into clubs, officials and players.`\
 https://nytimes.com/athletic/7143190/2026/03/24/czech-republic-match-fixing-investigation/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7131644/2026/03/24/college-football-playoff-bubble-
 **As if the Thunder needed more help, now Jalen Williams is back and ready to roll**\
 `Williams had 18 points and six assists in his first game since Feb. 11 on Monday, as the Thunder won their 12th straight.`\
 https://nytimes.com/athletic/7143104/2026/03/24/jalen-williams-thunder-return-injury-win/
-
-**Trump Administration Live Updates: Supreme Court to Hear President’s Request to Block Asylum Seekers**\
-``\
-https://nytimes.com/live/2026/03/24/us/trump-news
-
-**2026 White Sox watch guide: Regional and national TV info for Chicago's South Siders**\
-`Here's how to watch all 162 Chicago White Sox games, from the regional CHSN to the national TV spots.`\
-https://nytimes.com/athletic/7141608/2026/03/24/chicago-white-sox-tv-streaming-how-to-watch-2026/
-
-**Pro Padel League announces $15m investment led by NBA team governor**\
-`The funding uses will include the launch of a new developmental league, PPL II.`\
-https://nytimes.com/athletic/7141487/2026/03/24/pro-padel-league-investment-rick-schnall/
-
-**Giants prospect Bryce Eldridge encouraged after dress rehearsal homer at Oracle Park**\
-`The 21-year-old hit his first home run in a big league ballpark in an exhibition Monday night. He hopes to do it for real soon.`\
-https://nytimes.com/athletic/7142899/2026/03/24/sf-giants-prospects-bryce-eldridge-home-run/
 
