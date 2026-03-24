@@ -1,3 +1,7 @@
+**Florida Middle School Student Is Arrested After Stabbing Attack**\
+`A seventh-grade student was accused of stabbing two other students and a paraprofessional, the authorities said.`\
+https://nytimes.com/2026/03/24/us/florida-walton-middle-school-stabbing.html
+
 **What a bad season would look like for the 2026 Giants**\
 `A bad year for the Giants would be for their season to end with no clear direction or understanding of how to move the team forward.`\
 https://nytimes.com/athletic/7144326/2026/03/24/sf-giants-2026-outlook-bad-season/
