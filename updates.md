@@ -1,3 +1,11 @@
+**Through Bamboo, a Swedish Artist Explores Her Family’s History**\
+`In a homecoming of sorts, Lap-See Lam has brought her multidisciplinary works to Hong Kong for her first solo show in Asia.`\
+https://nytimes.com/2026/03/24/arts/design/hong-kong-lap-see-lam-exhibition.html
+
+**How Data and Innovation Are Paving the Way for Student Success in STEM**\
+`Researchers at CMU are beginning to crack the code on how to use AI enabled technology to help students get through the math gate successfully.`\
+https://nytimes.com/paidpost/carnegie-mellon-university/how-data-and-innovation/are-paving-the-way-for-student-success-in-stem.html
+
 **Florida Middle School Student Is Arrested After Stabbing Attack**\
 `A seventh-grade student was accused of stabbing two other students and a paraprofessional, the authorities said.`\
 https://nytimes.com/2026/03/24/us/florida-walton-middle-school-stabbing.html

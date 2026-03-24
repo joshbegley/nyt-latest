@@ -1,3 +1,11 @@
+**Through Bamboo, a Swedish Artist Explores Her Family’s History**\
+`In a homecoming of sorts, Lap-See Lam has brought her multidisciplinary works to Hong Kong for her first solo show in Asia.`\
+https://nytimes.com/2026/03/24/arts/design/hong-kong-lap-see-lam-exhibition.html
+
+**How Data and Innovation Are Paving the Way for Student Success in STEM**\
+`Researchers at CMU are beginning to crack the code on how to use AI enabled technology to help students get through the math gate successfully.`\
+https://nytimes.com/paidpost/carnegie-mellon-university/how-data-and-innovation/are-paving-the-way-for-student-success-in-stem.html
+
 **Florida Middle School Student Is Arrested After Stabbing Attack**\
 `A seventh-grade student was accused of stabbing two other students and a paraprofessional, the authorities said.`\
 https://nytimes.com/2026/03/24/us/florida-walton-middle-school-stabbing.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7144268/2026/03/24/panthers-bryce-young-contract-ta
 **Investigators Seek Answers in Attacks on Jewish Sites in Europe**\
 `Attacks on schools and property in several countries have Jewish communities on edge, amid suspicions that Iran is behind the violence.`\
 https://nytimes.com/2026/03/24/world/europe/attacks-jewish-sites-europe.html
-
-**Epic Games Lays Off Over 1,000 Employees, Citing Fortnite Slump**\
-`The cut represents about 20 percent of the video game company’s work force, a spokeswoman said.`\
-https://nytimes.com/2026/03/24/business/epic-games-layoffs-fortnite.html
-
-**How to watch Nuggets vs. Suns: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the Phoenix Suns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7144323/2026/03/24/nuggets-vs-suns-stream-how-to-watch-march-24/
 
