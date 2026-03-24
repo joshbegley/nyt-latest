@@ -1,3 +1,7 @@
+**Here’s What Happened in the War in the Middle East on Tuesday**\
+`The U.S. was said to have sent Iran a peace plan via Pakistan on a day that the Iranians fired a torrent of missiles across the region.`\
+https://nytimes.com/2026/03/24/world/middleeast/iran-war-middle-east-recap-tuesday.html
+
 **WNBA term sheet reveals CBA details on schedule, facilities standards, more**\
 `The document also includes further details on developmental roster spots and marketing commitments.`\
 https://nytimes.com/athletic/7145136/2026/03/24/wnba-term-sheet-cba-details/

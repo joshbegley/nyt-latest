@@ -1,3 +1,7 @@
+**WNBA term sheet reveals CBA details on schedule, facilities standards, more**\
+`The document also includes further details on developmental roster spots and marketing commitments.`\
+https://nytimes.com/athletic/7145136/2026/03/24/wnba-term-sheet-cba-details/
+
 **Senate Republicans Again Block Bid to Halt Iran War Without Authorization**\
 `Senate Democrats failed for the third time to advance a resolution that would force the removal of troops from hostilities in Iran unless Congress approves offensive operations.`\
 https://nytimes.com/2026/03/24/us/politics/senate-iran-war-vote.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/24/climate/baltimore-climate-lawsuit.html
 **What It’s Like to Stand in an Airport Security Line for Hours**\
 `Scenes from extra long lines at two airports, and a surprising discovery at a third.`\
 https://nytimes.com/2026/03/24/us/tsa-airports-houston-atlanta-newark.html
-
-**NFL's competition committee proposes 5 rule changes, including 3 on kickoffs**\
-`Another proposal would allow league personnel to consult with on-field officials when considering disqualifications.`\
-https://nytimes.com/athletic/7144799/2026/03/24/nfl-competition-committee-proposed-rule-changes/
 

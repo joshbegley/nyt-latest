@@ -1,3 +1,7 @@
+**WNBA term sheet reveals CBA details on schedule, facilities standards, more**\
+`The document also includes further details on developmental roster spots and marketing commitments.`\
+https://nytimes.com/athletic/7145136/2026/03/24/wnba-term-sheet-cba-details/
+
 **Senate Republicans Again Block Bid to Halt Iran War Without Authorization**\
 `Senate Democrats failed for the third time to advance a resolution that would force the removal of troops from hostilities in Iran unless Congress approves offensive operations.`\
 https://nytimes.com/2026/03/24/us/politics/senate-iran-war-vote.html
