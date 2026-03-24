@@ -1,3 +1,7 @@
+**Salah to leave Liverpool at end of 2025-26 season**\
+`Liverpool confirmed in a club statement on Tuesday the 2025-26 season would be Salah's last at the club.`\
+https://nytimes.com/athletic/7144273/2026/03/24/mohamed-salah-liverpool-leave-transfer/
+
 **Italy’s Leader Once Seemed Unbeatable. A Surprise Defeat Has Dented Her Aura.**\
 `Prime Minister Giorgia Meloni had led one of Italy’s most stable postwar governments. Now she’s under pressure after failing to convince Italians to back a judicial overhaul.`\
 https://nytimes.com/2026/03/24/world/europe/italy-meloni-referendum-defeat.html

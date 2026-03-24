@@ -1,3 +1,11 @@
+**Guardians make final decisions for Opening Day roster: It's the Chase DeLauter show**\
+`"That guy is so good," Guardians pitcher Slade Cecconi said of DeLauter. "It’s insane."`\
+https://nytimes.com/athletic/7130958/2026/03/24/guardians-opening-day-roster-chase-delauter/
+
+**As Antetokounmpo sits, NBPA blasts Bucks, NBA's player participation policy**\
+`Antetokounmpo has gone through hard pregame workouts on the court before each of the Bucks’ last three games.`\
+https://nytimes.com/athletic/7144196/2026/03/24/giannis-antetokounmpo-nbpa-player-participation-policy/
+
 **Salah to leave Liverpool at end of 2025-26 season**\
 `Liverpool confirmed in a club statement on Tuesday the 2025-26 season would be Salah's last at the club.`\
 https://nytimes.com/athletic/7144273/2026/03/24/mohamed-salah-liverpool-leave-transfer/
@@ -25,12 +33,4 @@ https://nytimes.com/video/podcasts/100000010799072/when-a-companys-biggest-expen
 **Tips for Making a Bathroom Cozy**\
 `Interior design expert Ivy Elrod gave us a tour of her guest bathroom, sharing three simple tips for how she took the space from stark white “hospital chic” to cozy.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010796565/tips-for-making-a-bathroom-cozy.html
-
-**Arsenal confirm pre-season friendly against Betis in Dublin**\
-`August will mark Arsenal’s first pre-season visit to the Republic of Ireland since 2018.`\
-https://nytimes.com/athletic/7144170/2026/03/24/arsenal-real-betis-pre-season-dublin-news/
-
-**Miami Corruption Trial Gets a Marquee Witness: Marco Rubio**\
-`To much ado, the secretary of state took the stand against David Rivera, a former congressman accused of secretly lobbying on behalf of the Venezuelan government.`\
-https://nytimes.com/2026/03/24/us/marco-rubio-trial-witness-miami-venezuela.html
 
