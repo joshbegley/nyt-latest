@@ -1,3 +1,7 @@
+**Italy’s Leader Once Seemed Unbeatable. A Surprise Defeat Has Dented Her Aura.**\
+`Prime Minister Giorgia Meloni had led one of Italy’s most stable postwar governments. Now she’s under pressure after failing to convince Italians to back a judicial overhaul.`\
+https://nytimes.com/2026/03/24/world/europe/italy-meloni-referendum-defeat.html
+
 **NBPA calls for 'arbitrary' 65-game rule for awards to be 'abolished or reformed'**\
 `The NBA Players Association believes the "arbitrary and overly rigid quota" for awards has "unfairly disqualified" too many players. `\
 https://nytimes.com/athletic/7144229/2026/03/24/nba-65-game-rule-awards-players/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/24/us/marco-rubio-trial-witness-miami-venezuela.html
 **Block Uses A.I. as Excuse for Laying off 40% of the Company**\
 `The financial services company Block recently laid off nearly 40 percent of its employees. On “Hard Fork” from The New York Times, the hosts Casey Newton and Kevin Roose discuss the layoffs`\
 https://nytimes.com/video/podcasts/100000010799029/block-uses-ai-as-excuse-for-laying-off-40-of-the-company.html
-
-**Iranian Missile Attack Damages Residential Buildings in Tel Aviv**\
-`An Iranian missile attack on Tel Aviv damaged residential buildings and injured several people, Israel’s national emergency service said.`\
-https://nytimes.com/video/world/middleeast/100000010797996/iran-missile-attack-tel-aviv.html
 

@@ -1,3 +1,7 @@
+**Salah to leave Liverpool at end of 2025-26 season**\
+`Liverpool confirmed in a club statement on Tuesday the 2025-26 season would be Salah's last at the club.`\
+https://nytimes.com/athletic/7144273/2026/03/24/mohamed-salah-liverpool-leave-transfer/
+
 **Italy’s Leader Once Seemed Unbeatable. A Surprise Defeat Has Dented Her Aura.**\
 `Prime Minister Giorgia Meloni had led one of Italy’s most stable postwar governments. Now she’s under pressure after failing to convince Italians to back a judicial overhaul.`\
 https://nytimes.com/2026/03/24/world/europe/italy-meloni-referendum-defeat.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7144170/2026/03/24/arsenal-real-betis-pre-season-du
 **Miami Corruption Trial Gets a Marquee Witness: Marco Rubio**\
 `To much ado, the secretary of state took the stand against David Rivera, a former congressman accused of secretly lobbying on behalf of the Venezuelan government.`\
 https://nytimes.com/2026/03/24/us/marco-rubio-trial-witness-miami-venezuela.html
-
-**Block Uses A.I. as Excuse for Laying off 40% of the Company**\
-`The financial services company Block recently laid off nearly 40 percent of its employees. On “Hard Fork” from The New York Times, the hosts Casey Newton and Kevin Roose discuss the layoffs`\
-https://nytimes.com/video/podcasts/100000010799029/block-uses-ai-as-excuse-for-laying-off-40-of-the-company.html
 

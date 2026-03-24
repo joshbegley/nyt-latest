@@ -1,3 +1,7 @@
+**Italy’s Leader Once Seemed Unbeatable. A Surprise Defeat Has Dented Her Aura.**\
+`Prime Minister Giorgia Meloni had led one of Italy’s most stable postwar governments. Now she’s under pressure after failing to convince Italians to back a judicial overhaul.`\
+https://nytimes.com/2026/03/24/world/europe/italy-meloni-referendum-defeat.html
+
 **NBPA calls for 'arbitrary' 65-game rule for awards to be 'abolished or reformed'**\
 `The NBA Players Association believes the "arbitrary and overly rigid quota" for awards has "unfairly disqualified" too many players. `\
 https://nytimes.com/athletic/7144229/2026/03/24/nba-65-game-rule-awards-players/
