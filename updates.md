@@ -1,3 +1,7 @@
+**Markwayne Mullin Confirmed as Homeland Security Secretary**\
+`A Cherokee Nation member who has served as Oklahoma’s junior senator, Mr. Mullin will take charge at a pivotal time.`\
+https://nytimes.com/2026/03/23/us/politics/markwayne-mullin-confirmed-homeland-security-secretary.html
+
 **T.S.A. Staffing Shortage Delayed Arrival of Some LaGuardia Crash Investigators**\
 `One specialist was caught in a three-hour line for security at a Houston airport, the chairwoman of the National Transportation Safety Board said.`\
 https://nytimes.com/2026/03/23/nyregion/tsa-shortage-laguardia-investigator.html
