@@ -1,3 +1,23 @@
+**Joe Flacco returning to Bengals on 1-year deal: Source**\
+`The 41-year-old quarterback showed he still could put up big numbers in relief of Joe Burrow last season.`\
+https://nytimes.com/athletic/7084834/2026/03/24/joe-flacco-bengals-nfl-free-agency-2026/
+
+**Delta Air Lines Says It Will Suspend Special Services for Congress Members**\
+`Airport escorts and “red coat” assistance for lawmakers will be suspended, the airline said on Tuesday, citing the extended partial government shutdown.`\
+https://nytimes.com/2026/03/24/business/delta-congress-travel-services-suspended.html
+
+**T.S.A. Union Leaders Blast Trump’s Deployment of ICE Agents in Airports**\
+`The local leaders of the union representing T.S.A. workers characterized the ICE officers in airports as unhelpful and a distraction.`\
+https://nytimes.com/2026/03/24/us/politics/tsa-union-ice-airport-security-trump.html
+
+**Florida Special Election Results**\
+`Get live results from the 2026 Florida State Legislature special elections.`\
+https://nytimes.com/interactive/2026/us/elections/results-florida-special-march-24.html
+
+**Leaders support moving college football's season start date up a week in 2027**\
+`Starting the season earlier would not be directly tied to potentially moving up the start of the College Football Playoff.`\
+https://nytimes.com/athletic/7144341/2026/03/24/college-football-season-start-date-week-0/
+
 **The Cascading Damage of Rising Oil Prices**\
 `How high do oil prices need to climb before the global economy breaks? On “The Ezra Klein Show,” Jason Bordoff, an energy policy expert, tells Ezra Klein why a prolonged energy shock could force a devastating choice between economic activity and basic survival for the world’s poorest nations.`\
 https://nytimes.com/video/opinion/100000010797045/the-cascading-damage-of-rising-oil-prices.html
