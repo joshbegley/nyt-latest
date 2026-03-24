@@ -1,3 +1,7 @@
+**Buckle Up, Women. Cars Still Aren’t Built for You.**\
+`In the United States, women are more likely to be injured and die in a car crash than men. Why? After her own crash, the filmmaker Eve Van Dyke dug through the half-century history of auto safety to find out, and uncovered a disturbing reality: Cars were never designed to protect women’s bodies.`\
+https://nytimes.com/video/opinion/100000010785312/buckle-up-women-cars-still-arent-built-for-you.html
+
 **Through Bamboo, a Swedish Artist Explores Her Family’s History**\
 `In a homecoming of sorts, Lap-See Lam has brought her multidisciplinary works to Hong Kong for her first solo show in Asia.`\
 https://nytimes.com/2026/03/24/arts/design/hong-kong-lap-see-lam-exhibition.html
