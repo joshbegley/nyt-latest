@@ -1,3 +1,19 @@
+**Maryland’s Supreme Court Strikes Down Baltimore’s Climate Lawsuit**\
+`The decision represents a setback to other local governments around the country that have sued oil companies to recoup the mounting costs of climate change.`\
+https://nytimes.com/2026/03/24/climate/baltimore-climate-lawsuit.html
+
+**What It’s Like to Stand in an Airport Security Line for Hours**\
+`Scenes from extra long lines at two airports, and a surprising discovery at a third.`\
+https://nytimes.com/2026/03/24/us/airport-security-waiting-hours-houston.html
+
+**NFL's competition committee proposes 5 rule changes, including 3 on kickoffs**\
+`Another proposal would allow league personnel to consult with on-field officials when considering disqualifications.`\
+https://nytimes.com/athletic/7144799/2026/03/24/nfl-competition-committee-proposed-rule-changes/
+
+**Flight 8646 to LaGuardia: From Routine Landing to Disaster in 20 Seconds**\
+`In the early stages of the investigation into the Air Canada Express crash on Sunday night, a hazy timeline has begun to emerge.`\
+https://nytimes.com/2026/03/24/nyregion/air-canada-laguardia-crash-investigation.html
+
 **OpenAI Is Shutting Down Sora, Its A.I. Video Generator**\
 `The start-up said it would discontinue Sora just three months after signing a multiyear deal to bring Disney characters to the service.`\
 https://nytimes.com/2026/03/24/technology/openai-shutting-down-sora.html

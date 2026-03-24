@@ -1,3 +1,19 @@
+**Maryland’s Supreme Court Strikes Down Baltimore’s Climate Lawsuit**\
+`The decision represents a setback to other local governments around the country that have sued oil companies to recoup the mounting costs of climate change.`\
+https://nytimes.com/2026/03/24/climate/baltimore-climate-lawsuit.html
+
+**What It’s Like to Stand in an Airport Security Line for Hours**\
+`Scenes from extra long lines at two airports, and a surprising discovery at a third.`\
+https://nytimes.com/2026/03/24/us/airport-security-waiting-hours-houston.html
+
+**NFL's competition committee proposes 5 rule changes, including 3 on kickoffs**\
+`Another proposal would allow league personnel to consult with on-field officials when considering disqualifications.`\
+https://nytimes.com/athletic/7144799/2026/03/24/nfl-competition-committee-proposed-rule-changes/
+
+**Flight 8646 to LaGuardia: From Routine Landing to Disaster in 20 Seconds**\
+`In the early stages of the investigation into the Air Canada Express crash on Sunday night, a hazy timeline has begun to emerge.`\
+https://nytimes.com/2026/03/24/nyregion/air-canada-laguardia-crash-investigation.html
+
 **OpenAI Is Shutting Down Sora, Its A.I. Video Generator**\
 `The start-up said it would discontinue Sora just three months after signing a multiyear deal to bring Disney characters to the service.`\
 https://nytimes.com/2026/03/24/technology/openai-shutting-down-sora.html
@@ -17,24 +33,4 @@ https://nytimes.com/athletic/7145051/2026/03/24/radko-gudas-apology-matthews-sus
 **LaGuardia Crash Survivors Recount Ordeal**\
 `Survivors of an Air Canada Express flight that crashed into a fire truck at LaGuardia Airport on Sunday evening recalled details of the terrifying incident.`\
 https://nytimes.com/video/nyregion/100000010799283/laguardia-crash-survivors-recount-ordeal.html
-
-**The Aching Power of Abraham Vazquez**\
-`Our critic Jon Caramanica breaks down Abraham Vazquez’s “Se Apagó la Luz,” a startlingly beautiful song about loss that will kick you in the teeth.`\
-https://nytimes.com/video/podcasts/100000010799581/the-aching-power-of-abraham-vazquez.html
-
-**Bills' new stadium: A look inside at progress for building scheduled to open for 2026 season**\
-`The Bills opened the facility for a media tour.`\
-https://nytimes.com/athletic/7143570/2026/03/24/bills-new-stadium-look-inside-progress/
-
-**Meta Ordered to Pay $375 Million Over Child Safety Violations**\
-`In one of the company’s first major losses, New Mexico jurors found that it had misled consumers about the safety of its platforms, enabling sexual exploitation of young users.`\
-https://nytimes.com/2026/03/24/technology/meta-new-mexico-child-safety-violations.html
-
-**Key Adviser Quits Federal Vaccine Panel**\
-`Dr. Robert Malone, vice chair of the committee, was appointed by Robert F. Kennedy Jr. after a purge of the previous advisers.`\
-https://nytimes.com/2026/03/24/health/robert-malone-vaccines-cdc.html
-
-**Judge Orders Records Search After Trump Ties Cole Attack to Iran**\
-`The bombing of the ship by Al Qaeda killed 17 U.S. sailors in 2000. President Trump has said Iran was “probably involved.”`\
-https://nytimes.com/2026/03/24/us/politics/trump-cole-bombing-iran.html
 

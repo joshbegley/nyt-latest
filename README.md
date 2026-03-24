@@ -1,3 +1,7 @@
+**What We Know About the Floods in Hawaii**\
+`There were no deaths reported, but hundreds of people were rescued and thousands evacuated as a series of hard-hitting storms inundated the islands over the last two weeks.`\
+https://nytimes.com/2026/03/24/us/hawaii-floods-maui-oahu-evacuation.html
+
 **Maryland’s Supreme Court Strikes Down Baltimore’s Climate Lawsuit**\
 `The decision represents a setback to other local governments around the country that have sued oil companies to recoup the mounting costs of climate change.`\
 https://nytimes.com/2026/03/24/climate/baltimore-climate-lawsuit.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7145041/2026/03/24/mohamed-salah-departure-liverpoo
 **Radko Gudas expresses remorse for Auston Matthews' season-ending injury: 'I've got to learn'**\
 `"I feel terrible about the outcome," Gudas said of the knee-to-knee hit on Matthews.`\
 https://nytimes.com/athletic/7145051/2026/03/24/radko-gudas-apology-matthews-suspension/
-
-**LaGuardia Crash Survivors Recount Ordeal**\
-`Survivors of an Air Canada Express flight that crashed into a fire truck at LaGuardia Airport on Sunday evening recalled details of the terrifying incident.`\
-https://nytimes.com/video/nyregion/100000010799283/laguardia-crash-survivors-recount-ordeal.html
 
