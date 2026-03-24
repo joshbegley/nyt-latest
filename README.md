@@ -1,3 +1,7 @@
+**Oil Prices Rise a Day After 10% Plunge**\
+`President Trump had set off a drastic market reaction on Monday by backing away from a threat to strike Iranian energy infrastructure.`\
+https://nytimes.com/2026/03/24/business/oil-stocks-gas-prices-iran.html
+
 **Europe Clinches Critical Mineral Access With Australian Trade Deal**\
 `The European Union and Australia have shaken hands on a trade deal that would improve access to aluminum, lithium and other critical minerals for the 27-nation bloc.`\
 https://nytimes.com/2026/03/24/world/europe/europe-australian-trade-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/24/world/iran-war-trump-oil
 **Late Night Doesn’t Feel So Hot About ICE at the Airport**\
 `Jimmy Kimmel said President Trump had “found a way to make the airport even worse.”`\
 https://nytimes.com/2026/03/24/arts/television/late-night-ice-airport.html
-
-**Word of the Day: pedantic**\
-`This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/03/24/learning/word-of-the-day-pedantic.html
 
