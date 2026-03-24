@@ -1,3 +1,19 @@
+**Pakistan Offers to Mediate Between Iran and the United States**\
+`Pakistan, which has cultivated ties with both Washington and Tehran, sees a diplomatic opening to intervene in the war in Iran, its neighbor.`\
+https://nytimes.com/2026/03/24/world/middleeast/pakistan-iran-us-mediation.html
+
+**Paul George returns from 25-game suspension with apology: 'I let people down'**\
+`After 25 games away, the Sixers' small forward spoke to the media for the first time Tuesday. `\
+https://nytimes.com/athletic/7144524/2026/03/24/paul-george-suspension-nba-sixers/
+
+**How a County Sheriff Dethroned ‘North Carolina’s King’**\
+`Phil Berger had money, power and an endorsement from President Trump. But his critics had a long list of resentments and, on Tuesday, he lost by a mere 23 votes.`\
+https://nytimes.com/2026/03/24/us/berger-page-north-carolina-senate-gop.html
+
+**United States Said to Have Sent Iran a Plan to End the Middle East War**\
+`The 15-point plan was delivered via Pakistan, whose army chief has emerged as the key interlocutor between the United States and Iran, officials say.`\
+https://nytimes.com/2026/03/24/world/middleeast/us-iran-peace-plan.html
+
 **San Francisco Killed 8th-Grade Algebra. Now It’s Set to Come Back.**\
 `The San Francisco school board will vote on a plan to restore algebra as an option at all middle schools, more than a decade after it was removed over equity concerns.`\
 https://nytimes.com/2026/03/24/us/san-francisco-public-schools-algebra.html
@@ -17,24 +33,4 @@ https://nytimes.com/athletic/7143953/2026/03/24/lions-gm-brad-holmes-dan-campbel
 **IPL champions RCB sold to new ownership group in $1.78bn deal**\
 `Founded in 2008 as one of the original eight IPL franchises, RCB are the reigning men’s and women’s champions.`\
 https://nytimes.com/athletic/7144518/2026/03/24/ipl-cricket-champions-franchise-deal-blitzer/
-
-**How Iranian Oil Controls U.S. Foreign Policy**\
-`How far will the United States go to keep gas prices down? On “The Ezra Klein Show,” the energy policy expert Jason Bordoff tells Ezra Klein why the Trump administration is de-sanctioning oil from Russia and Iran even as it pursues military action against them.`\
-https://nytimes.com/video/opinion/100000010797040/how-iranian-oil-controls-us-foreign-policy.html
-
-**Buckle Up, Women. Cars Still Aren’t Built for You.**\
-`In the United States, women are more likely to be injured and die in a car crash than men. Why? After her own crash, the filmmaker Eve Van Dyke dug through the half-century history of auto safety to find out, and uncovered a disturbing reality: Cars were never designed to protect women’s bodies.`\
-https://nytimes.com/video/opinion/100000010785312/buckle-up-women-cars-still-arent-built-for-you.html
-
-**Through Bamboo, a Swedish Artist Explores Her Family’s History**\
-`In a homecoming of sorts, Lap-See Lam has brought her multidisciplinary works to Hong Kong for her first solo show in Asia.`\
-https://nytimes.com/2026/03/24/arts/design/hong-kong-lap-see-lam-exhibition.html
-
-**How Data and Innovation Are Paving the Way for Student Success in STEM**\
-`Researchers at CMU are beginning to crack the code on how to use AI enabled technology to help students get through the math gate successfully.`\
-https://nytimes.com/paidpost/carnegie-mellon-university/how-data-and-innovation/are-paving-the-way-for-student-success-in-stem.html
-
-**Florida Middle School Student Is Arrested After Stabbing Attack**\
-`A seventh-grade student was accused of stabbing two other students and a paraprofessional, the authorities said.`\
-https://nytimes.com/2026/03/24/us/florida-walton-middle-school-stabbing.html
 
