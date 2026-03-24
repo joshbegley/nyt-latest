@@ -1,3 +1,35 @@
+**Covid Relief Loans Are Haunting Small Businesses**\
+`The Small Business Administration lent $378 billion to keep businesses afloat. Getting paid back is proving difficult.`\
+https://nytimes.com/2026/03/24/business/economy/sba-pandemic-loan-defaults.html
+
+**Mel Schilling, Dating Expert on ‘Married at First Sight,’ Dies at 54**\
+`Ms. Schilling, an Australian psychologist, was diagnosed with colon cancer in 2023. Two weeks ago she said the disease had spread to her brain.`\
+https://nytimes.com/2026/03/24/world/europe/mel-schilling-mafs-dead.html
+
+**Three of the Lives Lost in One Day of Israeli Strikes in Lebanon**\
+`A 4-year-old, a professor and an aid worker are among those killed in separate airstrikes as Israel pummels towns and cities, saying it is targeting Hezbollah operatives.`\
+https://nytimes.com/2026/03/24/world/middleeast/lebanon-iran-war-casualties.html
+
+**Things are about to get real interesting in the middle of the Eastern Conference**\
+`You want maximum chaos this spring? A six-way tie isn't out of the question in the East postseason picture.`\
+https://nytimes.com/athletic/7143450/2026/03/24/nba-playoffs-eastern-conference-sixers-raptors-hornets-hawks/
+
+**How to watch Kings vs. Hornets: Time, TV, streaming**\
+`Find out how to watch the Sacramento Kings play the Charlotte Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7143693/2026/03/24/kings-vs-hornets-stream-how-to-watch-march-24/
+
+**Man Utd making 'lot of progress' with new Old Trafford, says stadium CEO**\
+`"A lot of it has been behind the scenes, so people might not have seen that," Collette Roche said on the club's official podcast.`\
+https://nytimes.com/athletic/7143651/2026/03/24/manchester-united-old-trafford-new-stadium/
+
+**Can Collagen Really Do All That?**\
+`Companies claiming health benefits are adding the protein to nutrition bars, sparkling water, coffee creamer and more.`\
+https://nytimes.com/2026/03/24/well/collagen-supplements-benefits.html
+
+**Chicken With Black Beans and Tortellini With Peas**\
+`Five quick recipes that pair go-to ingredients to great effect.`\
+https://nytimes.com/2026/03/24/dining/chicken-with-black-beans-and-tortellini-with-peas.html
+
 **Why It’s So Hard to Reopen the Strait of Hormuz**\
 `There may be no country better situated geographically than Iran when it comes to bringing an oil-dependent world to its knees.`\
 https://nytimes.com/interactive/2026/03/24/world/middleeast/strait-of-hormuz-difficulties-iran-trump.html
@@ -5,36 +37,4 @@ https://nytimes.com/interactive/2026/03/24/world/middleeast/strait-of-hormuz-dif
 **Red Light: Ranking a busy night of big games. Plus: Who fed the Blue Jackets rocket fuel?**\
 `Good morning to everyone except anyone who wears one of those jerseys where it's two teams sewn together.`\
 https://nytimes.com/athletic/7143334/2026/03/24/ranking-a-busy-night-of-big-games-plus-who-fed-the-blue-jackets-rocket-fuel/
-
-**The Windup: NL East preview**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/7143584/2026/03/24/national-league-east-division-preview-the-windup/
-
-**In N.Y.C. Classes, Teachers Can Use A.I. to Plan but Not to Assign Grades**\
-`The largest school system in the United States released its first guide on how teachers can incorporate artificial intelligence into their work and schools.`\
-https://nytimes.com/2026/03/24/nyregion/ai-nyc-classes-grades.html
-
-**Team Italy's WBC espresso machine sells for $16,510 at auction**\
-`The espresso machine helped raise money for a charity handpicked by the team. `\
-https://nytimes.com/athletic/7143525/2026/03/24/italy-world-baseball-classic-espresso-machine-sold/
-
-**Thomas Massie Thinks Being Hated by Trump Is ‘Worth It.’ Will Voters Agree?**\
-`The Republican congressman from Kentucky is a die-hard libertarian who has centered his campaign on his willingness to buck the president. It has bought him the most expensive primary in the country.`\
-https://nytimes.com/2026/03/24/us/politics/thomas-massie-trump.html
-
-**The Bounce: Should 76ers regret Jared McCain trade? Plus, March Madness takeaways**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/7143448/2026/03/24/jared-mccain-trade-thunder-sixers-the-bounce/
-
-**'The strong ambition spoke to me': Orlando confirm Griezmann transfer**\
-`The 2018 World Cup winner will join from Atletico Madrid on a deal to the end of the 2027-28 season, with an option to extend for a year.`\
-https://nytimes.com/athletic/7143488/2026/03/24/antoine-griezmann-orlando-atletico-transfer-news/
-
-**Philippines Declares National Emergency Over High Fuel Prices**\
-`The Southeast Asian country imports 90 percent of its oil from the Middle East, and the government is under intense pressure to deal with the situation.`\
-https://nytimes.com/2026/03/24/world/middleeast/philippines-national-emergency-high-fuel-prices.html
-
-**NASA Adds Moon Base and Nuclear-Powered Mars Spacecraft to Road Map**\
-`The agency announced the more specific plans and timelines after years of suggesting it may build a lunar outpost.`\
-https://nytimes.com/2026/03/24/science/nasa-moon-base-mars-spacecraft.html
 
