@@ -1,3 +1,11 @@
+**Beyond Art Basel Hong Kong, Cyborgs, Neon Abstractions and More**\
+`The city’s museums and galleries entice with work by boldfaced names like Lee Bul and Mary Weatherford, plus shows on textiles and collective memory.`\
+https://nytimes.com/2026/03/23/arts/design/hong-kong-art-week-shows.html
+
+**Pulling the Threads of Hong Kong’s Textile Heritage**\
+`At the peak, Hong Kong was one of Asia’s largest textile exporters. Now, visitors can see tangible reminders of that history in several neighborhoods.`\
+https://nytimes.com/2026/03/23/arts/design/hong-kong-textiles-history.html
+
 **Bucks waive Cam Thomas less than 2 months after signing guard**\
 `The timing of Thomas' release means he is ineligible to participate in the postseason if another NBA team picks him up.`\
 https://nytimes.com/athletic/7142412/2026/03/23/bucks-waive-cam-thomas-pete-nance-standard-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/23/nyregion/tsa-shortage-laguardia-investigator.html
 **Virginia embraces Cinderella role after double-overtime upset in women's NCAA Tournament**\
 `Coach Amaka Agugua-Hamilton and Charlottesville phenom Kymora Johnson aimed to rebuild the struggling Cavaliers together. `\
 https://nytimes.com/athletic/7142334/2026/03/23/virginia-cinderella-iowa-ncaa-tournament-sweet-16/
-
-**Trump Claims Victory on Memphis Crime as His Crackdown Draws Protests**\
-`Residents and state officials are divided over whether a crime task force is a welcome fix or an unwanted imposition in a city where crime was already falling.`\
-https://nytimes.com/2026/03/23/us/politics/trump-visit-memphis-protests.html
-
-**Latest on University of Minnesota coaching search as top candidates emerge, including Brett Larson**\
-`Hartford Wolf Pack coach and Gophers alum Grant Potulny is also a potential pick to lead the men's hockey program.`\
-https://nytimes.com/athletic/7142254/2026/03/23/larson-potulny-gophers-hockey/
 
