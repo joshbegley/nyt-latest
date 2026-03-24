@@ -1,3 +1,7 @@
+**World Cup: Questions for final countdown. Plus: A Cooper conspiracy theory**\
+`Today in TAFC: The World Cup questions that will be answered over the next two weeks. Plus: A Steve Cooper conspiracy theory.`\
+https://nytimes.com/athletic/7143028/2026/03/24/world-cup-questions-for-final-countdown-plus-a-cooper-conspiracy-theory/
+
 **The Final, Flying Colors of Matisse’s ‘Second Life’**\
 `A breathtaking Paris show challenges the conventional idea that artists taper off at the end of their lives.`\
 https://nytimes.com/2026/03/24/arts/design/matisse-grand-palais-paris.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7138639/2026/03/24/john-mustard-chicago-blackhawks-
 **Craig Berube is getting more and more vocal about Leafs' performance**\
 `The Maple Leafs haven't played well for some time. Berube's intensity levels are going up accordingly.`\
 https://nytimes.com/athletic/7141581/2026/03/24/craig-berube-maple-leafs-criticism-coach/
-
-**Broncos mailbag: Is the J.K. Dobbins-RJ Harvey pairing enough at running back?**\
-`Plus, is there a different role coming for Jahdae Barron during his second season in Denver?`\
-https://nytimes.com/athletic/7141044/2026/03/24/broncos-mailbag-dobbins-harvey-waddle/
 
