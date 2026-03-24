@@ -1,3 +1,7 @@
+**Why It’s So Hard to Reopen the Strait of Hormuz**\
+`There may be no country better situated geographically than Iran when it comes to bringing an oil-dependent world to its knees.`\
+https://nytimes.com/interactive/2026/03/24/world/middleeast/strait-of-hormuz-difficulties-iran-trump.html
+
 **Red Light: Ranking a busy night of big games. Plus: Who fed the Blue Jackets rocket fuel?**\
 `Good morning to everyone except anyone who wears one of those jerseys where it's two teams sewn together.`\
 https://nytimes.com/athletic/7143334/2026/03/24/ranking-a-busy-night-of-big-games-plus-who-fed-the-blue-jackets-rocket-fuel/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/24/world/middleeast/philippines-national-emergency-h
 **NASA Adds Moon Base and Nuclear-Powered Mars Spacecraft to Road Map**\
 `The agency announced the more specific plans and timelines after years of suggesting it may build a lunar outpost.`\
 https://nytimes.com/2026/03/24/science/nasa-moon-base-mars-spacecraft.html
-
-**How Do You Measure Snow From Space? First, Climb a Mountain.**\
-`A new satellite could transform how water is studied worldwide. But to help unlock its capabilities, scientists first needed to take critical measurements on a mountaintop.`\
-https://nytimes.com/2026/03/24/climate/snow-satellite-rockies-research.html
 

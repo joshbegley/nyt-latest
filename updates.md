@@ -1,3 +1,15 @@
+**Red Light: Ranking a busy night of big games. Plus: Who fed the Blue Jackets rocket fuel?**\
+`Good morning to everyone except anyone who wears one of those jerseys where it's two teams sewn together.`\
+https://nytimes.com/athletic/7143334/2026/03/24/ranking-a-busy-night-of-big-games-plus-who-fed-the-blue-jackets-rocket-fuel/
+
+**The Windup: NL East preview**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7143584/2026/03/24/national-league-east-division-preview-the-windup/
+
+**In N.Y.C. Classes, Teachers Can Use A.I. to Plan but Not to Assign Grades**\
+`The largest school system in the United States released its first guide on how teachers can incorporate artificial intelligence into their work and schools.`\
+https://nytimes.com/2026/03/24/nyregion/in-nyc-classes-teachers-can-use-ai-to-plan-but-not-to-assign-grades.html
+
 **Team Italy's WBC espresso machine sells for $16,510 at auction**\
 `The espresso machine helped raise money for a charity handpicked by the team. `\
 https://nytimes.com/athletic/7143525/2026/03/24/italy-world-baseball-classic-espresso-machine-sold/
