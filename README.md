@@ -1,3 +1,7 @@
+**Bucks waive Cam Thomas less than 2 months after signing guard**\
+`The timing of Thomas' release means he is ineligible to participate in the postseason if another NBA team picks him up.`\
+https://nytimes.com/athletic/7142412/2026/03/23/bucks-waive-cam-thomas-pete-nance-standard-contract/
+
 **A Murder Charge in Georgia Exposes Complexities of the Abortion Debate**\
 `A woman who took medication to induce an abortion, and then delivered the baby, was arrested on a murder charge. But on Monday, a state judge expressed deep skepticism about the case.`\
 https://nytimes.com/2026/03/23/us/georgia-abortion-pill-murder.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/23/us/politics/trump-visit-memphis-protests.html
 **Latest on University of Minnesota coaching search as top candidates emerge, including Brett Larson**\
 `Hartford Wolf Pack coach and Gophers alum Grant Potulny is also a potential pick to lead the men's hockey program.`\
 https://nytimes.com/athletic/7142254/2026/03/23/larson-potulny-gophers-hockey/
-
-**Celebrity Left-Wing Streamer Defends Cuba Mission**\
-`Hasan Piker helped bring attention to a mission delivering humanitarian aid to Cuba. The group was criticized for staying in an upscale hotel as Cubans faced another blackout.`\
-https://nytimes.com/2026/03/23/world/americas/hasan-piker-humanitarian-mission-cuba.html
 
