@@ -1,4 +1,12 @@
 **Afghanistan Frees American Detainee Amid Mounting U.S. Pressure**\
+`Dennis Walter Coyle, a researcher held since last year, was released weeks after the United States declared Afghanistan a “state sponsor of wrongful detention.”`\
+https://nytimes.com/2026/03/24/world/asia/afghanistan-releases-american-detainee.html
+
+**Tiger Woods to make return to golf in TGL Finals after 13 months out**\
+`Woods hasn’t competed in a professional event since July 2024 at the Open Championship, where he missed the cut.`\
+https://nytimes.com/athletic/7143137/2026/03/24/tiger-woods-tgl-golf-return/
+
+**Afghanistan Frees American Detainee Amid Mounting U.S. Pressure**\
 `Denis Walter Coyle, a researcher held since last year, was released weeks after the United States declared Afghanistan a “state sponsor of wrongful detention.”`\
 https://nytimes.com/2026/03/24/world/asia/afghanistan-releases-american-detainee.html
 
