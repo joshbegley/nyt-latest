@@ -1,3 +1,23 @@
+**As More People Visit New York City, Foreign Tourists Are Turning Away**\
+`The number of international visitors to New York City decreased by 3 percent last year as President Trump pursued an aggressive foreign policy agenda.`\
+https://nytimes.com/2026/03/24/nyregion/new-york-city-foreign-tourism.html
+
+**Celebrating Eid al-Fitr**\
+`Are you one of the billions of people who honored the end of Ramadan this weekend? If not, are there other holidays you are celebrating this spring?`\
+https://nytimes.com/2026/03/24/learning/celebrating-eid-al-fitr.html
+
+**Tango Therapy: How the Dance of Passion Is Helping Parkinson’s Patients**\
+`Once a week, patients in an Argentine hospital with Parkinson’s disease use the movements of tango to help address issues of balance, stiffness and coordination.`\
+https://nytimes.com/2026/03/24/health/tango-therapy-parkinsons.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/24/crosswords/spelling-bee-forum.html
+
+**Wicked Stepmother No Longer, a Female Pharaoh Gets a Reputational Makeover**\
+`A reassessment of damaged 3,500-year-old statuary adds to evidence that Queen Hatshepsut wasn’t the villain that scholars long took her to be.`\
+https://nytimes.com/2026/03/24/science/archaeology-egypt-hatshepsut.html
+
 **Here’s the latest.**\
 `By John Yoon`\
 https://nytimes.com/live/2026/03/24/world/iran-war-trump-oil/heres-the-latest
@@ -17,24 +37,4 @@ https://nytimes.com/2026/03/24/learning/word-of-the-day-pedantic.html
 **Map: 7.5-Magnitude Earthquake Shakes the South Pacific Ocean**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2026/03/24/world/quake-tracker-south-pacific-ocean-tonga.html
-
-**Inside Newcastle Q&A: Is Eddie Howe under pressure? Why was Woltemade signed?**\
-`The Athletic's Chris Waugh answers your questions about Newcastle United and the latest from St James' Park`\
-https://nytimes.com/athletic/7140155/2026/03/24/newcastle-eddie-howe-future-nick-woltemade-analysis/
-
-**How Fabian Hurzeler and Brighton turned their season around in just 41 days**\
-`A home defeat to rivals Crystal Palace left Hurzeler under pressure and Brighton languishing in 14th. Since then things have improved hugely`\
-https://nytimes.com/athletic/7140319/2026/03/24/hurzeler-brighton-turnaround/
-
-**Arsenal's unusual kick-off style with three 'chasers' and how restarts can set the tone**\
-`The plan didn't come off against City, but has worked before - while City showed a calculated approach is another way to add pressure`\
-https://nytimes.com/athletic/7140243/2026/03/24/arsenal-man-city-kick-offs-carabao-cup/
-
-**Paul Clement idolised Dave, his England footballer father. Then, aged 10, his world changed**\
-`Dave Clement took his own life six years after his international debut. His son Paul, now Brazil's assistant, relives the day he found out`\
-https://nytimes.com/athletic/7141690/2026/03/24/dave-clement-paul-clement-england/
-
-**42 World Cup questions that will be answered during this international window**\
-`From the identity of the final six teams to key selection issues and the co-hosts' preparedness, these are the things we will learn in March`\
-https://nytimes.com/athletic/7130533/2026/03/24/world-cup-questions-answered-march/
 
