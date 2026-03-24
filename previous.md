@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By John Yoon`\
+https://nytimes.com/live/2026/03/24/world/iran-war-trump-oil/heres-the-latest
+
+**Iran War Live Updates: Israel Attacks in Lebanon and Reports Missile Launches From Iran**\
+`President Trump said there had been “very strong talks” with Iran to end the war, though Iranian officials did not confirm that. Israel continued its campaign against Hezbollah in Lebanon.`\
+https://nytimes.com/live/2026/03/24/world/iran-war-trump-oil
+
 **Late Night Doesn’t Feel So Hot About ICE at the Airport**\
 `Jimmy Kimmel said President Trump had “found a way to make the airport even worse.”`\
 https://nytimes.com/2026/03/24/arts/television/late-night-ice-airport.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7141690/2026/03/24/dave-clement-paul-clement-englan
 **42 World Cup questions that will be answered during this international window**\
 `From the identity of the final six teams to key selection issues and the co-hosts' preparedness, these are the things we will learn in March`\
 https://nytimes.com/athletic/7130533/2026/03/24/world-cup-questions-answered-march/
-
-**Special report: Violence in amateur football - 'I can't comprehend why you would do that to someone'**\
-`Physical attacks against players on the pitch - often by opponents - can have serious consequences for the victims`\
-https://nytimes.com/athletic/7080607/2026/03/24/violence-amateur-football-special-report/
-
-**What should Liverpool do with Arne Slot? We asked six Athletic writers**\
-`The Dutchman has come under huge pressure after a poor season - so what should happen next?`\
-https://nytimes.com/athletic/7140605/2026/03/24/arne-slot-liverpool-manager-job-future/
 

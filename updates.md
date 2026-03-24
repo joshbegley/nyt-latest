@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By John Yoon`\
+https://nytimes.com/live/2026/03/24/world/iran-war-trump-oil/heres-the-latest
+
+**Iran War Live Updates: Israel Attacks in Lebanon and Reports Missile Launches From Iran**\
+`President Trump said there had been “very strong talks” with Iran to end the war, though Iranian officials did not confirm that. Israel continued its campaign against Hezbollah in Lebanon.`\
+https://nytimes.com/live/2026/03/24/world/iran-war-trump-oil
+
 **Late Night Doesn’t Feel So Hot About ICE at the Airport**\
 `Jimmy Kimmel said President Trump had “found a way to make the airport even worse.”`\
 https://nytimes.com/2026/03/24/arts/television/late-night-ice-airport.html
