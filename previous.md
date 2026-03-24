@@ -1,3 +1,11 @@
+**Inside the NHL's growing goaltending crisis: 'Everybody’s making bad decisions'**\
+`Goaltending is becoming increasingly volatile and the link between price and performance is broken. Here's why.`\
+https://nytimes.com/athletic/7124168/2026/03/24/nhl-goaltending-crisis-contracts-extensions-defense/
+
+**England selection odds: Who are the favourites to make Tuchel’s World Cup squad?**\
+`The options available to Tuchel could give him a selection headache, but the upcoming friendlies might help the German sort out his thoughts`\
+https://nytimes.com/athletic/7143044/2026/03/24/england-uruguay-japan-thomas-tuchel-world-cup/
+
 **The Pulse: Cinderella isn't dead**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7142244/2026/03/24/cinderellas-ncaa-tournament-questions-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7142049/2026/03/24/jayson-tatum-progress-achilles-r
 **Inside Nikita Kucherov's MVP-caliber, historic season for the Lightning: 'Nobody's playing better'**\
 `Kucherov is scoring at a historic pace and leading the Lightning to another year of contention. Will it lead to a Hart Trophy?`\
 https://nytimes.com/athletic/7140031/2026/03/24/nikita-kucherov-hart-trophy-lighting/
-
-**NFL stadiums must scrub all branding for FIFA's World Cup. One roof got an exemption.**\
-`Of all the major steps World Cup stadium staffers have to take, this is what one VP of operations says is 'keeping me up at night.'`\
-https://nytimes.com/athletic/7141779/2026/03/24/mercedes-benz-stadium-roof-logo-atlanta-fifa-world-cup/
-
-**Victor Wembanyama says he’s the NBA MVP. I asked him to debate his case**\
-`Lots of basketball fans think the Spurs superstar is the MVP. We asked him what he thinks.`\
-https://nytimes.com/athletic/7142866/2026/03/24/victor-wembanyama-mvp-interview/
 
