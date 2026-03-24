@@ -1,3 +1,27 @@
+**Robert White, Tenor Renowned for Irish Ballads, Dies at 89**\
+`A performer from childhood, he became a versatile singer in the mold of the Irish superstar James McCormack, adept at both classical repertoire and traditional songs.`\
+https://nytimes.com/2026/03/24/arts/music/robert-white-dead.html
+
+**Prospect Connelly Early makes Red Sox rotation; Johan Oviedo bumped to bullpen**\
+`The Red Sox's 2023 fifth-round pick has quickly — and somewhat quietly — risen to prospect prominence.`\
+https://nytimes.com/athletic/7143656/2026/03/24/red-sox-connelly-early-john-oviedo-bullpen/
+
+**Trump’s Threat to Iran Crosses a Line, Rights Experts Say**\
+`Intentionally targeting the country’s energy infrastructure could constitute a war crime under international law.`\
+https://nytimes.com/2026/03/24/us/politics/trump-iran-power-stations.html
+
+**‘I’m Tainted. I’m in the Files.’**\
+`He mastered the world of the “Epstein Class” to build great museums. Now he’s confronting the cost.`\
+https://nytimes.com/2026/03/24/us/david-a-ross-jeffrey-epstein-donations.html
+
+**Israel Plans to Control Large Parts of Southern Lebanon, Defense Minister Says**\
+`Israel Katz, the Israeli defense minister, suggested that Israeli troops might remain in parts of Lebanon even after the fighting there winds down.`\
+https://nytimes.com/2026/03/24/world/middleeast/israel-southern-lebanon-defense-minister.html
+
+**How to watch Kraken vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the Seattle Kraken play the Florida Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7143781/2026/03/24/kraken-vs-panthers-stream-how-to-watch-march-24/
+
 **How to watch Blackhawks vs. Islanders: Time, TV, streaming**\
 `Find out how to watch the Chicago Blackhawks play the New York Islanders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7143772/2026/03/24/blackhawks-vs-islanders-stream-how-to-watch-march-24/
@@ -5,32 +29,4 @@ https://nytimes.com/athletic/7143772/2026/03/24/blackhawks-vs-islanders-stream-h
 **How to watch Avalanche vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7143770/2026/03/24/avalanche-vs-penguins-stream-how-to-watch-march-24/
-
-**How to watch Hurricanes vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the Carolina Hurricanes play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7143767/2026/03/24/hurricanes-vs-canadiens-stream-how-to-watch-march-24/
-
-**How to watch Senators vs. Red Wings: Time, TV, streaming**\
-`Find out how to watch the Ottawa Senators play the Detroit Red Wings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7143764/2026/03/24/senators-vs-red-wings-stream-how-to-watch-march-24/
-
-**How to watch Maple Leafs vs. Bruins: Time, TV, streaming**\
-`Find out how to watch the Toronto Maple Leafs play the Boston Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7143760/2026/03/24/maple-leafs-vs-bruins-stream-how-to-watch-march-24/
-
-**How to watch Blue Jackets vs. Flyers: Time, TV, streaming**\
-`Find out how to watch the Columbus Blue Jackets play the Philadelphia Flyers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7143758/2026/03/24/blue-jackets-vs-flyers-stream-how-to-watch-march-24/
-
-**Women's March Madness 2026 title odds: UConn, UCLA still lead but SEC teams threaten**\
-`The top seeds in the women's tournament dominated. But who could challenge in the Sweet 16?`\
-https://nytimes.com/athletic/7143535/2026/03/24/womens-march-madness-2026-title-odds-uconn-ucla-texas-south-carolina-lsu/
-
-**Covid Relief Loans Are Haunting Small Businesses**\
-`The Small Business Administration lent $378 billion to keep businesses afloat. Getting paid back is proving difficult.`\
-https://nytimes.com/2026/03/24/business/economy/sba-pandemic-loan-defaults.html
-
-**Mel Schilling, Dating Expert on ‘Married at First Sight,’ Dies at 54**\
-`Ms. Schilling, an Australian psychologist, was diagnosed with colon cancer in 2023. Two weeks ago she said the disease had spread to her brain.`\
-https://nytimes.com/2026/03/24/world/europe/mel-schilling-mafs-dead.html
 
