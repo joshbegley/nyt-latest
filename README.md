@@ -1,3 +1,11 @@
+**Mbappe's knee injury was misdiagnosed after MRI scan on wrong leg**\
+`Mbappe, 27, is currently away with the French national team ahead of friendlies against Brazil and Colombia in the U.S.`\
+https://nytimes.com/athletic/7143865/2026/03/24/kylian-mbappe-wrong-knee-real-madrid/
+
+**Frank Thomas files lawsuit against White Sox, Nike and Fanatics**\
+`Thomas has had issues with the White Sox in the past, most recently over a social media graphic in February. `\
+https://nytimes.com/athletic/7144149/2026/03/24/frank-thomas-white-sox-nike-fanatics-lawsuit/
+
 **When a Company’s Biggest Expense Is A.I.**\
 `This week on “Hard Fork” from The New York Times, the hosts, Casey Newton and Kevin Roose, discuss the trend of companies’ shifting their spending from human workers to A.I. infrastructure and expenses.`\
 https://nytimes.com/video/podcasts/100000010799072/when-a-companys-biggest-expense-is-ai.html
@@ -19,18 +27,10 @@ https://nytimes.com/2026/03/24/us/marco-rubio-trial-witness-miami-venezuela.html
 https://nytimes.com/video/podcasts/100000010799029/block-uses-ai-as-excuse-for-laying-off-40-of-the-company.html
 
 **Iranian Missile Attack Damages Residential Buildings in Tel Aviv**\
-`An Iranian missile attack on Tel Aviv damaged residential buildings and injured at least six people, Israel’s national emergency service said.`\
+`An Iranian missile attack on Tel Aviv damaged residential buildings and injured several people, Israel’s national emergency service said.`\
 https://nytimes.com/video/world/middleeast/100000010797996/iran-missile-attack-tel-aviv.html
 
 **Lang avoids 'complete thumb amputation' after Anfield hoardings collision**\
 `Lang, 26, underwent surgery in Liverpool after sustaining the injury to his right thumb.`\
 https://nytimes.com/athletic/7144034/2026/03/24/noa-lang-injury-update-liverpool/
-
-**Yankees send Luis Gil to Triple A, finalize Opening Day roster: Breaking down their moves**\
-`Here is what you should know about the Yankees' 26-man roster to begin the season. `\
-https://nytimes.com/athletic/7138365/2026/03/24/yankees-opening-day-roster-2026-season/
-
-**Taurasi pleased Clark is wearing her Team USA number**\
-`Diana Taurasi won six Olympic Gold medals with Team USA. `\
-https://nytimes.com/athletic/7144014/2026/03/24/diana-taurasi-caitlin-clark-team-usa-jersey-number/
 
