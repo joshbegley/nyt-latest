@@ -1,3 +1,15 @@
+**FIFA’s World Cup ticket prices subject of fans’ group legal complaint**\
+`In their complaint, FSE and Euroconsumers have identified six specific abuses of European Union competition law.`\
+https://nytimes.com/athletic/7143790/2026/03/24/world-cup-ticket-prices-complaint/
+
+**Republicans Step Up Efforts to Reach a Homeland Security Funding Deal**\
+`A day after President Trump said he did not want a compromise, Republicans were exploring breaking off ICE funding so the rest of the Department of Homeland Security could reopen.`\
+https://nytimes.com/2026/03/24/us/politics/senate-republicans-homeland-security-shutdown-ice.html
+
+**Got Pelicans questions? Submit to William Guillory for the next mailbag**\
+`Despite another lost season, the New Orleans Pelicans are playing their best basketball over the past month and building optimism about what this group can do next season with better injury luck.`\
+https://nytimes.com/athletic/7143751/2026/03/24/pelicans-questions-mailbag-zion-williamson-trey-murphy/
+
 **Robert White, Tenor Renowned for Irish Ballads, Dies at 89**\
 `A performer from childhood, he became a versatile singer in the mold of the Irish superstar James McCormack, adept at both classical repertoire and traditional songs.`\
 https://nytimes.com/2026/03/24/arts/music/robert-white-dead.html
@@ -21,12 +33,4 @@ https://nytimes.com/2026/03/24/world/middleeast/israel-southern-lebanon-defense-
 **How to watch Kraken vs. Panthers: Time, TV, streaming**\
 `Find out how to watch the Seattle Kraken play the Florida Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7143781/2026/03/24/kraken-vs-panthers-stream-how-to-watch-march-24/
-
-**How to watch Blackhawks vs. Islanders: Time, TV, streaming**\
-`Find out how to watch the Chicago Blackhawks play the New York Islanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7143772/2026/03/24/blackhawks-vs-islanders-stream-how-to-watch-march-24/
-
-**How to watch Avalanche vs. Penguins: Time, TV, streaming**\
-`Find out how to watch the Colorado Avalanche play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7143770/2026/03/24/avalanche-vs-penguins-stream-how-to-watch-march-24/
 
