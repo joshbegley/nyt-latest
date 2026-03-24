@@ -1,40 +1,40 @@
-**Man United transfers: Discussing Fernandes, Anderson, Baleba, Wharton and next season's midfield**\
-`Is Casemiro definitely leaving? Will Bruno Fernandes go too? Can United beat City to Elliot Anderson? What are the alternatives?`\
-https://nytimes.com/athletic/7142948/2026/03/24/manchester-united-transfers-midfielders/
+**Why Are So Many Democratic Politicians So Far Out of Touch?**\
+`Candidates in safe districts are under no pressure to moderate in order to win.`\
+https://nytimes.com/2026/03/24/opinion/democrats-midterm-elections.html
 
-**How Haas tamed Godzilla for a special F1 livery at Japanese GP**\
-`“Godzilla is an icon across the whole world, not only in Japan,” Esteban Ocon said. “To have him on the car, it's a big, big thing.”`\
-https://nytimes.com/athletic/7142954/2026/03/24/haas-f1-livery-japanese-grand-prix/
+**Stephen Miller Asks Why Texas Pays to Teach Undocumented Children**\
+`Citing gridlock in Washington, President Trump’s top immigration adviser encouraged Texas lawmakers to lead on conservative priorities.`\
+https://nytimes.com/2026/03/24/us/politics/stephen-miller-asks-why-texas-pays-to-teach-undocumented-children.html
 
-**Oil Prices Rise a Day After 10% Plunge**\
-`President Trump had set off a drastic market reaction on Monday by backing away from a threat to strike Iranian energy infrastructure.`\
-https://nytimes.com/2026/03/24/business/oil-stocks-gas-prices-iran.html
+**Tell Us Your Story of Travel Chaos**\
+`Has the Homeland Security shutdown disrupted your life? We want to hear about it today.`\
+https://nytimes.com/2026/03/24/briefing/tell-us-your-story-of-travel-chaos.html
 
-**Europe Clinches Critical Mineral Access With Australian Trade Deal**\
-`The European Union and Australia have shaken hands on a trade deal that would improve access to aluminum, lithium and other critical minerals for the 27-nation bloc.`\
-https://nytimes.com/2026/03/24/world/europe/europe-australian-trade-deal.html
+**A Veterans’ Group Jumps in for a Democrat in an Iowa Senate Race**\
+`VoteVets is the first super PAC to intervene in the race for Josh Turek, a state legislator who was born with spina bifida after his father was exposed to Agent Orange in Vietnam.`\
+https://nytimes.com/2026/03/24/us/politics/iowa-senate-democrat-veterans.html
 
-**As More People Visit New York City, Foreign Tourists Are Turning Away**\
-`The number of international visitors to New York City decreased by 3 percent last year as President Trump pursued an aggressive foreign policy agenda.`\
-https://nytimes.com/2026/03/24/nyregion/new-york-city-foreign-tourism.html
+**How Bad Could the Iran Oil Crisis Get?**\
+`The war with Iran could change how the whole world thinks about energy security in the future. The energy policy expert Jason Bordoff explains.`\
+https://nytimes.com/2026/03/24/opinion/ezra-klein-podcast-jason-bordoff.html
 
-**Celebrating Eid al-Fitr**\
-`Are you one of the billions of people who honored the end of Ramadan this weekend? If not, are there other holidays you are celebrating this spring?`\
-https://nytimes.com/2026/03/24/learning/celebrating-eid-al-fitr.html
+**What Went Wrong at LaGuardia?**\
+`The investigation into the crash that killed two pilots will include an examination of the black boxes.`\
+https://nytimes.com/2026/03/24/nyregion/what-went-wrong-at-laguardia.html
 
-**Tango Therapy: How the Dance of Passion Is Helping Parkinson’s Patients**\
-`Once a week, patients in an Argentine hospital with Parkinson’s disease use the movements of tango to help address issues of balance, stiffness and coordination.`\
-https://nytimes.com/2026/03/24/health/tango-therapy-parkinsons.html
+**Chavez Revelations Force Teachers to Rethink How They Teach His Legacy**\
+`In classrooms across the country, educators are weighing whether to shift focus from Cesar Chavez to the broader labor movement he helped lead.`\
+https://nytimes.com/2026/03/24/us/chavez-sex-abuse-teachers-education.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/03/24/crosswords/spelling-bee-forum.html
+**Should You Need to Prove Citizenship to Vote? Ask Kansas.**\
+`A Kansas law required a passport, a birth certificate or other proof of citizenship to register, but it was struck down after a court found that around 31,000 eligible voters had been blocked.`\
+https://nytimes.com/2026/03/24/us/politics/proof-of-citizenship-voter-registration-kansas.html
 
-**Wicked Stepmother No Longer, a Female Pharaoh Gets a Reputational Makeover**\
-`A reassessment of damaged 3,500-year-old statuary adds to evidence that Queen Hatshepsut wasn’t the villain that scholars long took her to be.`\
-https://nytimes.com/2026/03/24/science/archaeology-egypt-hatshepsut.html
+**Florian Lipowitz on finishing third at the Tour, teaming up with Evenepoel and whether cycling is harder than biathlon**\
+`The Red Bull-Bora-Hansgrohe rider speaks to The Athletic about how he plans to build on a stellar 2025 season`\
+https://nytimes.com/athletic/7140758/2026/03/24/florian-lipowitz-red-bull-evenepoel-tour-de-france/
 
-**Here’s the latest.**\
-`By John Yoon, Gabby Sobelman and Aurelien Breeden`\
-https://nytimes.com/live/2026/03/24/world/iran-war-trump-oil/heres-the-latest
+**In San Francisco, a Space for Working, Painting and Nesting**\
+`The interior designer Lauren Geremia has turned her former dining room into a place where she can orchestrate a multifaceted life.`\
+https://nytimes.com/2026/03/24/realestate/in-san-francisco-a-space-for-working-painting-and-nesting.html
 
