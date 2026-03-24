@@ -1,3 +1,11 @@
+**Iranian Missile Attack Damages Residential Buildings in Tel Aviv**\
+`An Iranian missile attack on Tel Aviv damaged residential buildings and injured at least six people, Israel’s national emergency service said.`\
+https://nytimes.com/video/world/middleeast/100000010797996/iran-missile-attack-tel-aviv.html
+
+**Lang avoids 'complete thumb amputation' after Anfield hoardings collision**\
+`Lang, 26, underwent surgery in Liverpool after sustaining the injury to his right thumb.`\
+https://nytimes.com/athletic/7144034/2026/03/24/noa-lang-injury-update-liverpool/
+
 **Yankees send Luis Gil to Triple A, finalize Opening Day roster: Breaking down their moves**\
 `Here is what you should know about the Yankees' 26-man roster to begin the season. `\
 https://nytimes.com/athletic/7138365/2026/03/24/yankees-opening-day-roster-2026-season/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/24/world/americas/us-ecuador-drug-camp-bombing-dairy
 **Minnesota Prosecutors Sue for Access to Evidence in Shootings by Agents**\
 `The federal government has refused to provide even basic information about the three shootings during an immigration crackdown in Minneapolis, including two that were fatal.`\
 https://nytimes.com/2026/03/24/us/minnesota-ice-shootings-evidence.html
-
-**Buccaneers linebacker Lavonte David announces retirement after 14 seasons**\
-`David, 36, spent his entire storied career with the Buccaneers, who drafted him in the second round in 2012.`\
-https://nytimes.com/athletic/7143823/2026/03/24/lavonte-david-retires-buccaneers/
-
-**Prime Tire: Checking in on Cadillac, new kid on the block**\
-`Welcome to Prime Tire, The Athletic's F1 newsletter.`\
-https://nytimes.com/athletic/7144075/2026/03/24/cadillac-japan-gp-prime-tire/
 
