@@ -1,3 +1,7 @@
+**The Pulse: Cinderella isn't dead**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7142244/2026/03/24/cinderellas-ncaa-tournament-questions-the-pulse/
+
 **Bears comp pick confusion: Examining what was lost with Ian Cunningham's exit**\
 `How will the Bears' left tackle competition look after the draft? How does drafting near the end of Round 1 affect their approach?`\
 https://nytimes.com/athletic/7134693/2026/03/24/bears-comp-picks-left-tackle/

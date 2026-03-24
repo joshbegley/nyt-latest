@@ -1,3 +1,7 @@
+**The Pulse: Cinderella isn't dead**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7142244/2026/03/24/cinderellas-ncaa-tournament-questions-the-pulse/
+
 **Bears comp pick confusion: Examining what was lost with Ian Cunningham's exit**\
 `How will the Bears' left tackle competition look after the draft? How does drafting near the end of Round 1 affect their approach?`\
 https://nytimes.com/athletic/7134693/2026/03/24/bears-comp-picks-left-tackle/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7141779/2026/03/24/mercedes-benz-stadium-roof-logo-
 **Victor Wembanyama says he’s the NBA MVP. I asked him to debate his case**\
 `Lots of basketball fans think the Spurs superstar is the MVP. We asked him what he thinks.`\
 https://nytimes.com/athletic/7142866/2026/03/24/victor-wembanyama-mvp-interview/
-
-**After walking away from the majors, Orioles' Mike Shildt is living his purpose in the minors**\
-`Shildt retired as Padres manager after the 2025 season, returning to the Orioles as their upper-level coordinator of instruction.`\
-https://nytimes.com/athletic/7141224/2026/03/24/mike-shildt-baltimore-orioles-padres-cardinals/
 
