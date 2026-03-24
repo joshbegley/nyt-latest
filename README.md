@@ -2,7 +2,7 @@
 `President Trump’s threats to take Greenland away from Denmark have lifted Prime Minister Mette Frederiksen, who appeared the front-runner as polls opened.`\
 https://nytimes.com/2026/03/24/world/europe/denmark-election-mette-frederiksen-greenland.html
 
-**3 bold Phillies predictions for the 2026 season**\
+**Three bold Phillies predictions for the 2026 season**\
 `There are plenty of outlandish predictions to make about a Phillies team that is never not interesting.`\
 https://nytimes.com/athletic/7136846/2026/03/24/phillies-predictions-2026-season/
 
