@@ -1,3 +1,19 @@
+**Team Italy's WBC espresso machine sells for $16,510 at auction**\
+`The espresso machine helped raise money for a charity handpicked by the team. `\
+https://nytimes.com/athletic/7143525/2026/03/24/italy-world-baseball-classic-espresso-machine-sold/
+
+**Thomas Massie Thinks Being Hated by Trump Is ‘Worth It.’ Will Voters Agree?**\
+`The Republican congressman from Kentucky is a die-hard libertarian who has centered his campaign on his willingness to buck the president. It has bought him the most expensive primary in the country.`\
+https://nytimes.com/2026/03/24/us/politics/thomas-massie-trump.html
+
+**The Bounce: Should 76ers regret Jared McCain trade? Plus, March Madness takeaways**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7143448/2026/03/24/jared-mccain-trade-thunder-sixers-the-bounce/
+
+**'The strong ambition spoke to me': Orlando confirm Griezmann transfer**\
+`The 2018 World Cup winner will join from Atletico Madrid on a deal to the end of the 2027-28 season, with an option to extend for a year.`\
+https://nytimes.com/athletic/7143488/2026/03/24/antoine-griezmann-orlando-atletico-transfer-news/
+
 **Philippines Declares National Emergency Over High Fuel Prices**\
 `The Southeast Asian country imports 90 percent of its oil from the Middle East, and the government is under intense pressure to deal with the situation.`\
 https://nytimes.com/2026/03/24/world/middleeast/philippines-national-emergency-high-fuel-prices.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7141423/2026/03/24/minnesota-hockey-brett-larson-co
 **In Oklahoma, Alan Armstrong Will Fill Markwayne Mullin’s Senate Seat**\
 `Gov. Kevin Stitt selected Mr. Armstrong, a fellow Republican and an energy executive, to play a caretaker role in the seat until the next election.`\
 https://nytimes.com/2026/03/24/us/politics/alan-armstrong-senate-mullin-stitt-oklahoma-republicans.html
-
-**Submit your questions for Zack Rosenblatt’s Jets mailbag**\
-`The Jets still have plenty of work to do this offseason.`\
-https://nytimes.com/athletic/7143462/2026/03/24/jets-mailbag-free-agency-draft/
-
-**Man arrested in connection with assault in which two Brentford players intervened**\
-`The alleged incident happened in Richmond on Sunday, with the arrest taking place on Tuesday.`\
-https://nytimes.com/athletic/7143317/2026/03/24/brentford-arrest-players-assault/
-
-**Mikaela Shiffrin wins record ninth slalom race of World Cup season, nears overall title**\
-`Mikaela Shiffrin is on the brink of her sixth career overall World Cup title after keeping her red-hot slalom streak going Tuesday.`\
-https://nytimes.com/athletic/7125715/2026/03/24/mikaela-shiffrin-world-cup-slalom-win-nine-overall-title/
-
-**Tristan Vukčević's next trick? Proving he belongs in Wizards' long-term future**\
-`The 23-year-old big man can score and pass. Now, armed with a new contract, he must continue to ascend on defense.`\
-https://nytimes.com/athletic/7142147/2026/03/24/tristan-vukcevic-washington-wizards-future/
 
