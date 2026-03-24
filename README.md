@@ -14,7 +14,7 @@ https://nytimes.com/2026/03/24/dining/drinks/michel-rolland-dead.html
 `The assault, which came after overnight strikes across the country, was one of the largest of the war, the Ukrainian authorities said.`\
 https://nytimes.com/2026/03/24/world/europe/russia-attack-drones-ukraine-lviv.html
 
-**Pakistan Offers to Mediate Between Iran and the United States**\
+**Pakistan Offers to Host Talks Between Iran and the United States**\
 `Pakistan, which has cultivated ties with both Washington and Tehran, sees a diplomatic opening to intervene in the war in Iran, its neighbor.`\
 https://nytimes.com/2026/03/24/world/middleeast/pakistan-iran-us-mediation.html
 
