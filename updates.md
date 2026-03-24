@@ -1,3 +1,19 @@
+**Yankees send Luis Gil to Triple A, finalize Opening Day roster: Breaking down their moves**\
+`Here is what you should know about the Yankees' 26-man roster to begin the season. `\
+https://nytimes.com/athletic/7138365/2026/03/24/yankees-opening-day-roster-2026-season/
+
+**Taurasi pleased Clark is wearing her Team USA number**\
+`Diana Taurasi won six Olympic Gold medals with Team USA. `\
+https://nytimes.com/athletic/7144014/2026/03/24/diana-taurasi-caitlin-clark-team-usa-jersey-number/
+
+**How Bad Could the Iran Oil Crisis Get?**\
+`The war with Iran could change how the whole world thinks about energy security in the future. The energy policy expert Jason Bordoff explains.`\
+https://nytimes.com/video/opinion/100000010795771/how-bad-could-the-iran-oil-crisis-get.html
+
+**11 Robyn Bangers for the Pop Star’s Long-Awaited Return**\
+`Prepare for her first album since 2018, “Sexistential,” with 49 minutes of up-tempo gems.`\
+https://nytimes.com/2026/03/24/arts/music/amplifier-newsletter-robyn-bangers.html
+
 **Trump and R.N.C. Lean Toward Dallas for an Unusual Midterm Convention**\
 `Parties normally hold conventions every four years to nominate presidential candidates, but Republicans hope to hold one this year in the face of midterm headwinds.`\
 https://nytimes.com/2026/03/24/us/politics/trump-republican-convention-dallas-midterm-elections.html
