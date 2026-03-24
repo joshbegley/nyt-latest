@@ -1,3 +1,11 @@
+**Jason Kidd says 'born closer' Kyrie Irving can help solve Mavs' clutch woes next season**\
+`To have any hope of making it to the playoffs next season, the Mavericks need Irving's offensive production.`\
+https://nytimes.com/athletic/7142474/2026/03/23/mavs-jason-kidd-kyrie-irving-clutch-woes/
+
+**In LaGuardia Crash That Killed 2, Call to ‘Stop!’ Came Too Late**\
+`A collision between an Air Canada Express jet and a fire truck on Sunday night left two pilots dead and dozens injured.`\
+https://nytimes.com/2026/03/23/nyregion/air-canada-crash-laguardia-nyc.html
+
 **Cubs roster projection 3.0: Seiya Suzuki out, Ben Brown in for Opening Day**\
 `With Javier Assad getting optioned to Triple A, Chicago's initial 13-man pitching staff is now determined.
 `\
@@ -30,12 +38,4 @@ https://nytimes.com/2026/03/23/arts/design/hong-kong-textiles-history.html
 **Bucks waive Cam Thomas less than 2 months after signing guard**\
 `The timing of Thomas' release means he is ineligible to participate in the postseason if another NBA team picks him up.`\
 https://nytimes.com/athletic/7142412/2026/03/23/bucks-waive-cam-thomas-pete-nance-standard-contract/
-
-**A Murder Charge in Georgia Exposes Complexities of the Abortion Debate**\
-`A woman who took medication to induce an abortion, and then delivered the baby, was arrested on a murder charge. But on Monday, a state judge expressed deep skepticism about the case.`\
-https://nytimes.com/2026/03/23/us/georgia-abortion-pill-murder.html
-
-**When Trump Wants Something Done, He Dispatches ICE to Do It**\
-`President Trump has increasingly used Immigration and Customs Enforcement to push personal and political objectives, and on Monday sent agents to airports across the country to help deal with long security lines.`\
-https://nytimes.com/2026/03/23/us/politics/trump-ice-airports.html
 
