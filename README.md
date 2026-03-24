@@ -1,5 +1,5 @@
 **Afghanistan Frees American Detainee Amid Mounting U.S. Pressure**\
-`Denis Walter Coyle, a researcher held since last year, was released weeks after the United States declared Afghanistan a “state sponsor of wrongful detention.”`\
+`Dennis Walter Coyle, a researcher held since last year, was released weeks after the United States declared Afghanistan a “state sponsor of wrongful detention.”`\
 https://nytimes.com/2026/03/24/world/asia/afghanistan-releases-american-detainee.html
 
 **How each of the College Football Playoff bubble teams attacked the offseason**\
@@ -34,7 +34,7 @@ https://nytimes.com/athletic/7142115/2026/03/24/chargers-mock-draft-2026-vega-io
 `Even though Detroit didn't have Cade Cunningham, the Lakers liked how they kept they avoided bad habits and fought through fatigue.`\
 https://nytimes.com/athletic/7142831/2026/03/24/lakers-lose-pistons-lebron-james/
 
-**Tiger Woods to make return to golf after 13 months in TGL Finals**\
+**Tiger Woods to make return to golf in TGL Finals after 13 months out**\
 `Woods hasn’t competed in a professional event since July 2024 at the Open Championship, where he missed the cut.`\
 https://nytimes.com/athletic/7143137/2026/03/24/tiger-woods-tgl-golf-return/
 
