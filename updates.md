@@ -1,3 +1,11 @@
+**Judge Orders Records Search After Trump Ties Cole Attack to Iran**\
+`The bombing of the ship by Al Qaeda killed 17 U.S. sailors in 2000. President Trump has said Iran was “probably involved.”`\
+https://nytimes.com/2026/03/24/us/politics/trump-cole-bombing-iran.html
+
+**Kermit Gosnell, Imprisoned Abortion Doctor Convicted of Murders, Dies at 85**\
+`Prosecutors in 2013 said that he killed babies who had emerged alive during late-term abortions. The case became a rallying cry for anti-abortion activists.`\
+https://nytimes.com/2026/03/24/us/kermit-gosnell-dead.html
+
 **Justices Seem Open to Allowing Trump to Block Some Asylum Seekers**\
 `Also, officials described overlapping failures before the deadly LaGuardia crash. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2026/03/24/briefing/supreme-court-asylum-laguardia-crash.html
