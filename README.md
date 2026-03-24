@@ -1,3 +1,7 @@
+**Afghanistan Frees American Detainee Amid Mounting U.S. Pressure**\
+`Denis Walter Coyle, a researcher held since last year, was released weeks after the United States declared Afghanistan a “state sponsor of wrongful detention.”`\
+https://nytimes.com/2026/03/24/world/asia/afghanistan-releases-american-detainee.html
+
 **How each of the College Football Playoff bubble teams attacked the offseason**\
 `Will Notre Dame be better in 2026? What did Texas do to improve its offense? Can Vanderbilt compete with the elite once again?`\
 https://nytimes.com/athletic/7131644/2026/03/24/college-football-playoff-bubble-teams-offseason-recruiting-transfer-portal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7142831/2026/03/24/lakers-lose-pistons-lebron-james
 **Tiger Woods to make return to golf after 13 months in TGL Finals**\
 `Woods hasn’t competed in a professional event since July 2024 at the Open Championship, where he missed the cut.`\
 https://nytimes.com/athletic/7143137/2026/03/24/tiger-woods-tgl-golf-return/
-
-**Investors Question Whether Quick Peace in Iran Is Possible**\
-`Global markets are under pressure again amid doubts that the fighting in the Middle East can end anytime soon.`\
-https://nytimes.com/2026/03/24/business/dealbook/markets-tehran-trump.html
 
