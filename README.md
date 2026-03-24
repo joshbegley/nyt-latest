@@ -1,3 +1,11 @@
+**JC Tretter on why he returned to NFLPA as executive director after tenuous exit**\
+`Eight months after resigning, Tretter is back in the NFLPA's top job. He says he wishes he had done more to defend himself last summer.`\
+https://nytimes.com/athletic/7143346/2026/03/24/jc-tretter-interview-nflpa-executive-director/
+
+**Ancient Grapes Reveal Long History of Modern Wines**\
+`Genetic material preserved in ancient grape seeds reveals when, and how, humans meddled with wine grapes.`\
+https://nytimes.com/2026/03/24/science/ancient-grapes-dna-winemaking.html
+
 **FIFA’s World Cup ticket prices subject of fans’ group legal complaint**\
 `In their complaint, FSE and Euroconsumers have identified six specific abuses of European Union competition law.`\
 https://nytimes.com/athletic/7143790/2026/03/24/world-cup-ticket-prices-complaint/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/03/24/us/politics/trump-iran-power-stations.html
 **‘I’m Tainted. I’m in the Files.’**\
 `He mastered the world of the “Epstein Class” to build great museums. Now he’s confronting the cost.`\
 https://nytimes.com/2026/03/24/us/david-a-ross-jeffrey-epstein-donations.html
-
-**Israel Plans to Control Large Parts of Southern Lebanon, Defense Minister Says**\
-`Israel Katz, the Israeli defense minister, suggested that Israeli troops might remain in parts of Lebanon even after the fighting there winds down.`\
-https://nytimes.com/2026/03/24/world/middleeast/israel-southern-lebanon-defense-minister.html
-
-**How to watch Kraken vs. Panthers: Time, TV, streaming**\
-`Find out how to watch the Seattle Kraken play the Florida Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7143781/2026/03/24/kraken-vs-panthers-stream-how-to-watch-march-24/
 
