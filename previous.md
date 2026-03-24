@@ -1,3 +1,7 @@
+**Justices Seem Open to Allowing Trump to Block Some Asylum Seekers**\
+`Also, officials described overlapping failures before the deadly LaGuardia crash. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2026/03/24/briefing/supreme-court-asylum-laguardia-crash.html
+
 **Storm Pounds Maui as Rainfall Totals Add Up Across Hawaii**\
 `Experts agree that the past weeks have been one of the rainiest periods in recent memory across the state.`\
 https://nytimes.com/2026/03/24/weather/hawaii-storms-rain-records.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/us/elections/results-florida-special-march-
 **Leaders support moving college football's season start date up a week in 2027**\
 `Starting the season earlier would not be directly tied to potentially moving up the start of the College Football Playoff.`\
 https://nytimes.com/athletic/7144341/2026/03/24/college-football-season-start-date-week-0/
-
-**The Cascading Damage of Rising Oil Prices**\
-`How high do oil prices need to climb before the global economy breaks? On “The Ezra Klein Show,” Jason Bordoff, an energy policy expert, tells Ezra Klein why a prolonged energy shock could force a devastating choice between economic activity and basic survival for the world’s poorest nations.`\
-https://nytimes.com/video/opinion/100000010797045/the-cascading-damage-of-rising-oil-prices.html
 

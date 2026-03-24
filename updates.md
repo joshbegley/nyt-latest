@@ -1,3 +1,7 @@
+**Justices Seem Open to Allowing Trump to Block Some Asylum Seekers**\
+`Also, officials described overlapping failures before the deadly LaGuardia crash. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2026/03/24/briefing/supreme-court-asylum-laguardia-crash.html
+
 **Storm Pounds Maui as Rainfall Totals Add Up Across Hawaii**\
 `Experts agree that the past weeks have been one of the rainiest periods in recent memory across the state.`\
 https://nytimes.com/2026/03/24/weather/hawaii-storms-rain-records.html
