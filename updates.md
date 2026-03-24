@@ -1,3 +1,7 @@
+**Senate Republicans Again Block Bid to Halt Iran War Without Authorization**\
+`Senate Democrats failed for the third time to advance a resolution that would force the removal of troops from hostilities in Iran unless Congress approves offensive operations.`\
+https://nytimes.com/2026/03/24/us/politics/senate-iran-war-vote.html
+
 **After Standing Up to Trump Over Greenland, Denmark’s Prime Minister Leads in Election**\
 `Mette Frederiksen’s party fell far short of a majority, but analysts say she is still in the best position to form a new government.`\
 https://nytimes.com/2026/03/24/world/europe/denmark-elections-mette-frederiksen.html
