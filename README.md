@@ -1,3 +1,7 @@
+**Storm Pounds Maui as Rainfall Totals Add Up Across Hawaii**\
+`Experts agree that the past weeks have been one of the rainiest periods in recent memory across the state.`\
+https://nytimes.com/2026/03/24/weather/hawaii-storms-rain-records.html
+
 **Newsom Says He Regrets Remarks Comparing Israel to ‘Apartheid State’**\
 `The California governor suggested that he had meant to refer to Israel’s potential future direction, not its current policies. “I revere the state of Israel,” he said.`\
 https://nytimes.com/2026/03/24/us/politics/newsom-israel-apartheid-state.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7144341/2026/03/24/college-football-season-start-da
 **The Cascading Damage of Rising Oil Prices**\
 `How high do oil prices need to climb before the global economy breaks? On “The Ezra Klein Show,” Jason Bordoff, an energy policy expert, tells Ezra Klein why a prolonged energy shock could force a devastating choice between economic activity and basic survival for the world’s poorest nations.`\
 https://nytimes.com/video/opinion/100000010797045/the-cascading-damage-of-rising-oil-prices.html
-
-**Air Canada Pilots Killed in Crash Were Early in Flying Careers**\
-`The pilots were identified as Antoine Forest, 30, and Mackenzie Gunther. They were the only two fatalities in the plane’s collision with a fire truck at New York’s LaGuardia Airport.`\
-https://nytimes.com/2026/03/24/nyregion/air-canada-pilots-laguardia.html
 

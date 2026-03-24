@@ -1,3 +1,15 @@
+**Newsom Says He Regrets Remarks Comparing Israel to ‘Apartheid State’**\
+`The California governor suggested that he had meant to refer to Israel’s potential future direction, not its current policies. “I revere the state of Israel,” he said.`\
+https://nytimes.com/2026/03/24/us/politics/newsom-israel-apartheid-state.html
+
+**Iran Signals Resilience With Volley of Missiles Across Middle East**\
+`The barrage continued as officials said the U.S. had sent Iran a 15-point plan to end the war. But Iranian officials have publicly denied that Washington and Tehran are talking directly.`\
+https://nytimes.com/2026/03/24/world/middleeast/iran-missiles-middle-east-trump-deal.html
+
+**MLB base coaches say new rule to curb pitch tipping has put them in harm’s way**\
+`MLB is standing by its enforcement though one coach told The Athletic, "we’ve all been talking about how you’re constantly in danger."`\
+https://nytimes.com/athletic/7144575/2026/03/24/mlb-base-coaches-harms-way-new-rule-exclusive/
+
 **Joe Flacco returning to Bengals on 1-year deal: Source**\
 `The 41-year-old quarterback showed he still could put up big numbers in relief of Joe Burrow last season.`\
 https://nytimes.com/athletic/7084834/2026/03/24/joe-flacco-bengals-nfl-free-agency-2026/

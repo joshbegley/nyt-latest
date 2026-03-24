@@ -1,3 +1,15 @@
+**Newsom Says He Regrets Remarks Comparing Israel to ‘Apartheid State’**\
+`The California governor suggested that he had meant to refer to Israel’s potential future direction, not its current policies. “I revere the state of Israel,” he said.`\
+https://nytimes.com/2026/03/24/us/politics/newsom-israel-apartheid-state.html
+
+**Iran Signals Resilience With Volley of Missiles Across Middle East**\
+`The barrage continued as officials said the U.S. had sent Iran a 15-point plan to end the war. But Iranian officials have publicly denied that Washington and Tehran are talking directly.`\
+https://nytimes.com/2026/03/24/world/middleeast/iran-missiles-middle-east-trump-deal.html
+
+**MLB base coaches say new rule to curb pitch tipping has put them in harm’s way**\
+`MLB is standing by its enforcement though one coach told The Athletic, "we’ve all been talking about how you’re constantly in danger."`\
+https://nytimes.com/athletic/7144575/2026/03/24/mlb-base-coaches-harms-way-new-rule-exclusive/
+
 **Joe Flacco returning to Bengals on 1-year deal: Source**\
 `The 41-year-old quarterback showed he still could put up big numbers in relief of Joe Burrow last season.`\
 https://nytimes.com/athletic/7084834/2026/03/24/joe-flacco-bengals-nfl-free-agency-2026/
@@ -25,16 +37,4 @@ https://nytimes.com/video/opinion/100000010797045/the-cascading-damage-of-rising
 **Air Canada Pilots Killed in Crash Were Early in Flying Careers**\
 `The pilots were identified as Antoine Forest, 30, and Mackenzie Gunther. They were the only two fatalities in the plane’s collision with a fire truck at New York’s LaGuardia Airport.`\
 https://nytimes.com/2026/03/24/nyregion/air-canada-pilots-laguardia.html
-
-**Asia’s Energy Crisis Stings**\
-`The energy crisis unleashed by the war in Iran may already be worse than the oil shocks of the 1970s. Here’s how it’s upending lives.`\
-https://nytimes.com/2026/03/24/world/oil-iran-asia-nasa-space.html
-
-**40 Years Later, Wil Wheaton Can’t Shake ‘Stand By Me’**\
-`The actor and narrator stepped back into his breakout role for a new audiobook edition of Stephen King's bittersweet classic. Here, he breaks down some favorite scenes.`\
-https://nytimes.com/interactive/2026/03/24/books/wil-wheaton-the-body-audiobook-stephen-king.html
-
-**New Limits on Investors and a Debt Downgrade Add to Private Credit Woes**\
-`Investors are concerned about the health of the industry, which ballooned over the past decade.`\
-https://nytimes.com/2026/03/24/business/moodys-private-credit-downgrade.html
 
