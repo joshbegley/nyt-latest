@@ -1,3 +1,7 @@
+**Trump and R.N.C. Lean Toward Dallas for an Unusual Midterm Convention**\
+`Parties normally hold conventions every four years to nominate presidential candidates, but Republicans hope to hold one this year in the face of midterm headwinds.`\
+https://nytimes.com/2026/03/24/us/politics/trump-republican-convention-dallas-midterm-elections.html
+
 **Qatar Is Not Mediating U.S.-Iran Talks, Foreign Minister Says**\
 `Qatar’s Foreign Ministry warned that the regional security system has been shattered, as the war has destroyed trust between Gulf countries and Iran.`\
 https://nytimes.com/2026/03/24/world/middleeast/qatar-us-iran-talks-mediation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6681414/2026/03/24/tennis-sebastian-korda-results-i
 **How to watch Devils vs. Stars: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the Dallas Stars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7144071/2026/03/24/devils-vs-stars-stream-how-to-watch-march-24/
-
-**How to watch Golden Knights vs. Jets: Time, TV, streaming**\
-`Find out how to watch the Vegas Golden Knights play the Winnipeg Jets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7144068/2026/03/24/golden-knights-vs-jets-stream-how-to-watch-march-24/
 
