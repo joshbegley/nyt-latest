@@ -1,3 +1,7 @@
+**Man arrested in connection with assault in which two Brentford players intervened**\
+`The alleged incident happened in Richmond on Sunday, with the arrest taking place on Tuesday.`\
+https://nytimes.com/athletic/7143317/2026/03/24/brentford-arrest-players-assault/
+
 **Mikaela Shiffrin wins record ninth slalom race of World Cup season, nears overall title**\
 `Mikaela Shiffrin is on the brink of her sixth career overall World Cup title after keeping her red-hot slalom streak going Tuesday.`\
 https://nytimes.com/athletic/7125715/2026/03/24/mikaela-shiffrin-world-cup-slalom-win-nine-overall-title/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7143190/2026/03/24/czech-republic-match-fixing-inve
 **The debate on the new era and a spotlight on F1's soul: Is Max Verstappen right?**\
 `F1's new era has started with a heavy debate on the new racing spectacle. The Athletic's experts have their say`\
 https://nytimes.com/athletic/7140647/2026/03/24/f1-new-era-rules-debate-max-verstappen/
-
-**Take Shorter Showers: South Korea Kicks Off an Energy-Saving Drive**\
-`President Lee Jae Myung called on the public to cooperate, likening the energy supply disruption caused by the Iran war to the Asian financial crisis and the pandemic.`\
-https://nytimes.com/2026/03/24/world/asia/south-korea-energy-savings.html
 
