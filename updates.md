@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/7142312/2026/03/23/cubs-roster-projection-seiya-suzuki-ben-brown/
 
+**Cubs roster projection 3.0: Seiya Suzuki out, Ben Brown in for Opening Day**\
+`With Javier Assad getting optioned to Triple A, Chicago's initial 13-man pitching staff is now determined.
+`\
+https://nytimes.com/athletic/7142312/2026/03/23/cubs-roster-projection-seiya-suzuki-ben-brown/
+
 **Jason Kidd says 'born closer' Kyrie Irving can help solve Mavs' clutch woes next season**\
 `To have any hope of making it to the playoffs next season, the Mavericks need Irving's offensive production.`\
 https://nytimes.com/athletic/7142474/2026/03/23/mavs-jason-kidd-kyrie-irving-clutch-woes/

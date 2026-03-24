@@ -1,3 +1,7 @@
+**Firefighter Released From Hospital After LaGuardia Accident**\
+`Two firefighters were injured when an Air Canada plane hit the truck they were in on Sunday. One of them remained in the hospital on Monday.`\
+https://nytimes.com/live/2026/03/23/nyregion/laguardia-airport-plane-crash-truck/laguardia-crash-firefighters-injured
+
 **Quadruple amputee cornhole professional jailed on murder charges**\
 `Witnessed told police that Dayton James Webber shot and killed a man during an argument in a car.`\
 https://nytimes.com/athletic/7142152/2026/03/23/cornhole-player-amputee-arrested-murder-dayton-webber/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7142312/2026/03/23/cubs-roster-projection-seiya-suz
 **How to Reduce the Environmental Impact of Collecting Art**\
 `From flying commercial to choosing reusable packing crates, art enthusiasts have many options to consider`\
 https://nytimes.com/2026/03/23/arts/design/environmental-impact-art-collecting.html
-
-**A New Space Built to Replicate an Old-Fashioned Art Salon**\
-`Recalling the era of Picasso and Hemingway, the location in Hong Kong, called Gold, will host art, design and fashion exhibitions, and more.`\
-https://nytimes.com/2026/03/23/arts/design/hong-kong-gold-salon.html
 
