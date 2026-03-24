@@ -1,6 +1,6 @@
 **Qatar Is Not Mediating U.S.-Iran Talks, Foreign Minister Says**\
 `Qatar’s Foreign Ministry warned that the regional security system has been shattered, as the war has destroyed trust between Gulf countries and Iran.`\
-https://nytimes.com/2026/03/24/world/middleeast/qatar-is-not-mediating-us-iran-talks-foreign-minister-says.html
+https://nytimes.com/2026/03/24/world/middleeast/qatar-us-iran-talks-mediation.html
 
 **The U.S. Said It Helped Bomb a Drug Camp. It Was a Dairy Farm.**\
 `The Times visited a village where the United States and Ecuador said they destroyed an armed group’s training camp. Residents said it was actually a dairy farm.`\
@@ -26,6 +26,10 @@ https://nytimes.com/athletic/7143891/2026/03/24/eze-injury-update-arsenal-news/
 `Find out how to watch the Los Angeles Kings play the Calgary Flames, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7144077/2026/03/24/kings-vs-flames-stream-how-to-watch-march-24/
 
+**A halting star and a search for stability: Sebastian Korda climbs the tennis mountain again**\
+`After a series of chastening injuries and frustrated comebacks, Korda is hoping to get his body to where it can let his talent speak freely.`\
+https://nytimes.com/athletic/6681414/2026/03/24/tennis-sebastian-korda-results-injuries/
+
 **How to watch Devils vs. Stars: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the Dallas Stars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7144071/2026/03/24/devils-vs-stars-stream-how-to-watch-march-24/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7144071/2026/03/24/devils-vs-stars-stream-how-to-wa
 **How to watch Golden Knights vs. Jets: Time, TV, streaming**\
 `Find out how to watch the Vegas Golden Knights play the Winnipeg Jets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7144068/2026/03/24/golden-knights-vs-jets-stream-how-to-watch-march-24/
-
-**How to watch Capitals vs. Blues: Time, TV, streaming**\
-`Find out how to watch the Washington Capitals play the St. Louis Blues, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7144066/2026/03/24/capitals-vs-blues-stream-how-to-watch-march-24/
 
