@@ -1,3 +1,8 @@
+**Cubs roster projection 3.0: Seiya Suzuki out, Ben Brown in for Opening Day**\
+`With Javier Assad getting optioned to Triple A, Chicago's initial 13-man pitching staff is now determined.
+`\
+https://nytimes.com/athletic/7142312/2026/03/23/cubs-roster-projection-seiya-suzuki-ben-brown/
+
 **Firefighter Released From Hospital After LaGuardia Accident**\
 `Two firefighters were injured when an Air Canada plane hit the truck they were in on Sunday. One of them remained in the hospital on Monday.`\
 https://nytimes.com/live/2026/03/23/nyregion/laguardia-airport-plane-crash-truck/laguardia-crash-firefighters-injured
