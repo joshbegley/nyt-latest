@@ -1,3 +1,7 @@
+**Robert White, Tenor Renowned for Irish Ballads, Dies at 89**\
+`A performer from childhood, he became a versatile singer in the mold of the Irish superstar James McCormack, adept at both classical repertoire and traditional songs.`\
+https://nytimes.com/2026/03/24/arts/music/robert-white-dead.html
+
 **Prospect Connelly Early makes Red Sox rotation; Johan Oviedo bumped to bullpen**\
 `The Red Sox's 2023 fifth-round pick has quickly — and somewhat quietly — risen to prospect prominence.`\
 https://nytimes.com/athletic/7143656/2026/03/24/red-sox-connelly-early-john-oviedo-bullpen/
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/7143772/2026/03/24/blackhawks-vs-islanders-stream-h
 **How to watch Avalanche vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7143770/2026/03/24/avalanche-vs-penguins-stream-how-to-watch-march-24/
-
-**How to watch Hurricanes vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the Carolina Hurricanes play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7143767/2026/03/24/hurricanes-vs-canadiens-stream-how-to-watch-march-24/
 
