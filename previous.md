@@ -1,3 +1,7 @@
+**Europe Clinches Critical Mineral Access with Australian Trade Deal**\
+`The European Union and Australia have shaken hands on a trade deal that would improve access to aluminum, lithium and other critical minerals for the 27-nation bloc.`\
+https://nytimes.com/2026/03/24/world/europe/europe-australian-trade-deal.html
+
 **As More People Visit New York City, Foreign Tourists Are Turning Away**\
 `The number of international visitors to New York City decreased by 3 percent last year as President Trump pursued an aggressive foreign policy agenda.`\
 https://nytimes.com/2026/03/24/nyregion/new-york-city-foreign-tourism.html
@@ -19,10 +23,10 @@ https://nytimes.com/2026/03/24/crosswords/spelling-bee-forum.html
 https://nytimes.com/2026/03/24/science/archaeology-egypt-hatshepsut.html
 
 **Here’s the latest.**\
-`By John Yoon`\
+`By John Yoon and Gabby Sobelman`\
 https://nytimes.com/live/2026/03/24/world/iran-war-trump-oil/heres-the-latest
 
-**Iran War Live Updates: Israel Attacks in Lebanon and Reports Missile Launches From Iran**\
+**Iran War Live Updates: Israel Attacks in Lebanon and Reports Missile Damage in Tel Aviv**\
 `President Trump said there had been “very strong talks” with Iran to end the war, though Iranian officials did not confirm that. Israel continued its campaign against Hezbollah in Lebanon.`\
 https://nytimes.com/live/2026/03/24/world/iran-war-trump-oil
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/24/arts/television/late-night-ice-airport.html
 **Word of the Day: pedantic**\
 `This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/24/learning/word-of-the-day-pedantic.html
-
-**Map: 7.5-Magnitude Earthquake Shakes the South Pacific Ocean**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2026/03/24/world/quake-tracker-south-pacific-ocean-tonga.html
 

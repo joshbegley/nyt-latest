@@ -1,3 +1,15 @@
+**Europe Clinches Critical Mineral Access with Australian Trade Deal**\
+`The European Union and Australia have shaken hands on a trade deal that would improve access to aluminum, lithium and other critical minerals for the 27-nation bloc.`\
+https://nytimes.com/2026/03/24/world/europe/europe-australian-trade-deal.html
+
+**Here’s the latest.**\
+`By John Yoon and Gabby Sobelman`\
+https://nytimes.com/live/2026/03/24/world/iran-war-trump-oil/heres-the-latest
+
+**Iran War Live Updates: Israel Attacks in Lebanon and Reports Missile Damage in Tel Aviv**\
+`President Trump said there had been “very strong talks” with Iran to end the war, though Iranian officials did not confirm that. Israel continued its campaign against Hezbollah in Lebanon.`\
+https://nytimes.com/live/2026/03/24/world/iran-war-trump-oil
+
 **As More People Visit New York City, Foreign Tourists Are Turning Away**\
 `The number of international visitors to New York City decreased by 3 percent last year as President Trump pursued an aggressive foreign policy agenda.`\
 https://nytimes.com/2026/03/24/nyregion/new-york-city-foreign-tourism.html
