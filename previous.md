@@ -1,3 +1,11 @@
+**Meta Ordered to Pay $375 Million Over Child Safety Violations**\
+`In one of the company’s first major losses, New Mexico jurors found that it had misled consumers about the safety of its platforms, enabling sexual exploitation of young users.`\
+https://nytimes.com/2026/03/24/technology/meta-new-mexico-child-safety-violations.html
+
+**Key Adviser Quits Federal Vaccine Panel**\
+`Dr. Robert Malone, vice chair of the committee, was appointed by Robert F. Kennedy Jr. after a purge of the previous advisers.`\
+https://nytimes.com/2026/03/24/health/robert-malone-vaccines-cdc.html
+
 **Judge Orders Records Search After Trump Ties Cole Attack to Iran**\
 `The bombing of the ship by Al Qaeda killed 17 U.S. sailors in 2000. President Trump has said Iran was “probably involved.”`\
 https://nytimes.com/2026/03/24/us/politics/trump-cole-bombing-iran.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7144575/2026/03/24/mlb-base-coaches-harms-way-new-r
 **Joe Flacco returning to Bengals on 1-year deal: Source**\
 `The 41-year-old quarterback showed he still could put up big numbers in relief of Joe Burrow last season.`\
 https://nytimes.com/athletic/7084834/2026/03/24/joe-flacco-bengals-nfl-free-agency-2026/
-
-**Delta Air Lines Says It Will Suspend Special Services for Congress Members**\
-`Airport escorts and “red coat” assistance for lawmakers will be suspended, the airline said on Tuesday, citing the extended partial government shutdown.`\
-https://nytimes.com/2026/03/24/business/delta-congress-travel-services-suspended.html
-
-**T.S.A. Union Leaders Blast Trump’s Deployment of ICE Agents in Airports**\
-`The local leaders of the union representing T.S.A. workers characterized the ICE officers in airports as unhelpful and a distraction.`\
-https://nytimes.com/2026/03/24/us/politics/tsa-union-ice-airport-security-trump.html
 

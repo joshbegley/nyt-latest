@@ -1,3 +1,11 @@
+**Meta Ordered to Pay $375 Million Over Child Safety Violations**\
+`In one of the company’s first major losses, New Mexico jurors found that it had misled consumers about the safety of its platforms, enabling sexual exploitation of young users.`\
+https://nytimes.com/2026/03/24/technology/meta-new-mexico-child-safety-violations.html
+
+**Key Adviser Quits Federal Vaccine Panel**\
+`Dr. Robert Malone, vice chair of the committee, was appointed by Robert F. Kennedy Jr. after a purge of the previous advisers.`\
+https://nytimes.com/2026/03/24/health/robert-malone-vaccines-cdc.html
+
 **Judge Orders Records Search After Trump Ties Cole Attack to Iran**\
 `The bombing of the ship by Al Qaeda killed 17 U.S. sailors in 2000. President Trump has said Iran was “probably involved.”`\
 https://nytimes.com/2026/03/24/us/politics/trump-cole-bombing-iran.html
