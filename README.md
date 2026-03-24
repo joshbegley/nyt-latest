@@ -1,3 +1,7 @@
+**How to watch Nuggets vs. Suns: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the Phoenix Suns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7144323/2026/03/24/nuggets-vs-suns-stream-how-to-watch-march-24/
+
 **Costa Rica Agrees to Take Migrants Deported by the Trump Administration**\
 `The agreement is part of President Trump’s efforts to find governments willing to accept people who have been detained in the United States.`\
 https://nytimes.com/2026/03/24/world/americas/costa-rica-us-deportation-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/24/world/europe/italy-meloni-referendum-defeat.html
 **NBPA calls for 'arbitrary' 65-game rule for awards to be 'abolished or reformed'**\
 `The NBA Players Association believes the "arbitrary and overly rigid quota" for awards has "unfairly disqualified" too many players. `\
 https://nytimes.com/athletic/7144229/2026/03/24/nba-65-game-rule-awards-players/
-
-**Mbappe's knee injury was misdiagnosed after MRI scan on wrong leg**\
-`Mbappe, 27, is currently away with the French national team ahead of friendlies against Brazil and Colombia in the U.S.`\
-https://nytimes.com/athletic/7143865/2026/03/24/kylian-mbappe-wrong-knee-real-madrid/
 
