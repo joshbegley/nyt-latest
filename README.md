@@ -1,3 +1,11 @@
+**T.S.A. Staffing Shortage Delayed Arrival of Some LaGuardia Crash Investigators**\
+`One specialist was caught in a three-hour line for security at a Houston airport, the chairwoman of the National Transportation Safety Board said.`\
+https://nytimes.com/2026/03/23/nyregion/tsa-shortage-laguardia-investigator.html
+
+**Virginia embraces Cinderella role after double-overtime upset in women's NCAA Tournament**\
+`Coach Amaka Agugua-Hamilton and Charlottesville phenom Kymora Johnson aimed to rebuild the struggling Cavaliers together. `\
+https://nytimes.com/athletic/7142334/2026/03/23/virginia-cinderella-iowa-ncaa-tournament-sweet-16/
+
 **Trump Claims Victory on Memphis Crime as His Crackdown Draws Protests**\
 `Residents and state officials are divided over whether a crime task force is a welcome fix or an unwanted imposition in a city where crime was already falling.`\
 https://nytimes.com/2026/03/23/us/politics/trump-visit-memphis-protests.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7142116/2026/03/23/astros-pitcher-spencer-arrighett
 **Nationals place Josiah Gray on 60-day IL with right flexor strain**\
 `The 28-year-old was given a clean bill of health coming into camp and had an outside shot at making the starting rotation.`\
 https://nytimes.com/athletic/7142117/2026/03/23/josiah-gray-injured-list-nationals-flexor-strain/
-
-**Here’s What Happened in the War in the Middle East on Monday**\
-`Conflicting signals about whether any negotiations to end the fighting were in progress created confusion.`\
-https://nytimes.com/2026/03/23/world/middleeast/middle-east-war-iran-march-23.html
-
-**For Canadians, Another Reason to Avoid Traveling to the U.S.**\
-`The collision between an Air Canada jet and a fire truck in New York brought the shortcomings of U.S. traffic control in focus.`\
-https://nytimes.com/2026/03/23/nyregion/canada-laguardia-crash-travel-reaction.html
 
