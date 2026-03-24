@@ -1,3 +1,7 @@
+**Czech police open criminal investigation after 47 alleged match-fixing cases identified**\
+`The Czech Republic's football association announced a concurrent investigation into clubs, officials and players.`\
+https://nytimes.com/athletic/7143190/2026/03/24/czech-republic-match-fixing-investigation/
+
 **The debate on the new era and a spotlight on F1's soul: Is Max Verstappen right?**\
 `F1's new era has started with a heavy debate on the new racing spectacle. The Athletic's experts have their say`\
 https://nytimes.com/athletic/7140647/2026/03/24/f1-new-era-rules-debate-max-verstappen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7141487/2026/03/24/pro-padel-league-investment-rick
 **Giants prospect Bryce Eldridge encouraged after dress rehearsal homer at Oracle Park**\
 `The 21-year-old hit his first home run in a big league ballpark in an exhibition Monday night. He hopes to do it for real soon.`\
 https://nytimes.com/athletic/7142899/2026/03/24/sf-giants-prospects-bryce-eldridge-home-run/
-
-**Chargers 7-round mock draft: Adding a plug-and-play starting guard at No. 22**\
-`The Chargers offseason has felt incomplete so far but would change drastically if they can land an impact guard in the first round.`\
-https://nytimes.com/athletic/7142115/2026/03/24/chargers-mock-draft-2026-vega-ioane/
 
