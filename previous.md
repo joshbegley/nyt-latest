@@ -1,3 +1,7 @@
+**As War in Iran Disrupts Air Travel, Here’s Where It’s Hitting Hardest**\
+`Some airlines and travelers, especially in the Middle East and elsewhere in Asia, are bearing the brunt of the pain, while others are doing better.`\
+https://nytimes.com/2026/03/24/business/iran-war-airlines-jet-fuel.html
+
 **University of Minnesota hiring Brett Larson to coach men's hockey team: Sources**\
 `Larson had a 153-116-23 record as St. Cloud State's head coach and was recently a finalist for the Wisconsin job that went to Mike Hastings.`\
 https://nytimes.com/athletic/7141423/2026/03/24/minnesota-hockey-brett-larson-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7143273/2026/03/24/snooker-world-championship-cruci
 **How to watch Minnesota Twins: 'Field of Dreams' game, TV channels to know in 2026**\
 `The Twins are looking to the future as they begin the 2026 season. Here's how to watch all of their national and regional games this year.`\
 https://nytimes.com/athletic/7142292/2026/03/24/minnesota-twins-buxton-netflix-how-to-watch-2026/
-
-**Distinctive Glasses and an Inviting Sweater**\
-`Cobalt-blue knitwear distinguished an ensemble from others outside a coffee shop in Tokyo.`\
-https://nytimes.com/2026/03/24/style/street-style-look-wearing-blue-and-black.html
 

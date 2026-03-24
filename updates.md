@@ -1,3 +1,7 @@
+**As War in Iran Disrupts Air Travel, Here’s Where It’s Hitting Hardest**\
+`Some airlines and travelers, especially in the Middle East and elsewhere in Asia, are bearing the brunt of the pain, while others are doing better.`\
+https://nytimes.com/2026/03/24/business/iran-war-airlines-jet-fuel.html
+
 **University of Minnesota hiring Brett Larson to coach men's hockey team: Sources**\
 `Larson had a 153-116-23 record as St. Cloud State's head coach and was recently a finalist for the Wisconsin job that went to Mike Hastings.`\
 https://nytimes.com/athletic/7141423/2026/03/24/minnesota-hockey-brett-larson-coach/
