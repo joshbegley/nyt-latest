@@ -1,3 +1,11 @@
+**Tristan Vukčević's next trick? Proving he belongs in Wizards' long-term future**\
+`The 23-year-old big man can score and pass. Now, armed with a new contract, he must continue to ascend on defense.`\
+https://nytimes.com/athletic/7142147/2026/03/24/tristan-vukcevic-washington-wizards-future/
+
+**Saudi Prince Is Said to Push Trump to Continue Iran War in Recent Calls**\
+`Prince Mohammed bin Salman sees a “historic opportunity” to remake the region, according to people briefed by U.S. officials on the conversations.`\
+https://nytimes.com/2026/03/24/us/politics/saudi-prince-iran-trump.html
+
 **World Snooker Championship to remain at Crucible despite Saudi, China fears**\
 `The redevelopment of the Sheffield venue will, though, see the tournament temporarily relocated from 2028.`\
 https://nytimes.com/athletic/7143273/2026/03/24/snooker-world-championship-crucible-redevelopment/

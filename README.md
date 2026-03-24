@@ -19,7 +19,7 @@ https://nytimes.com/athletic/7142292/2026/03/24/minnesota-twins-buxton-netflix-h
 https://nytimes.com/2026/03/24/style/street-style-look-wearing-blue-and-black.html
 
 **Lucas Pinheiro Braathen gives Brazil its first Alpine skiing World Cup title**\
-`Born in Norway, Lucas Pinheiro Braathen now competes for his mother's native Brazil and has been racking up historic Alpine skiing firsts. `\
+`Born in Norway, Braathen now competes for his mother's native Brazil and has been racking up historic Alpine skiing firsts. `\
 https://nytimes.com/athletic/7143306/2026/03/24/lucas-pinheiro-braathen-brazil-first-world-cup-alpine-skiing-title/
 
 **Czech police open criminal investigation after 47 alleged match-fixing cases identified**\

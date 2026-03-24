@@ -1,3 +1,11 @@
+**Tristan Vukčević's next trick? Proving he belongs in Wizards' long-term future**\
+`The 23-year-old big man can score and pass. Now, armed with a new contract, he must continue to ascend on defense.`\
+https://nytimes.com/athletic/7142147/2026/03/24/tristan-vukcevic-washington-wizards-future/
+
+**Saudi Prince Is Said to Push Trump to Continue Iran War in Recent Calls**\
+`Prince Mohammed bin Salman sees a “historic opportunity” to remake the region, according to people briefed by U.S. officials on the conversations.`\
+https://nytimes.com/2026/03/24/us/politics/saudi-prince-iran-trump.html
+
 **World Snooker Championship to remain at Crucible despite Saudi, China fears**\
 `The redevelopment of the Sheffield venue will, though, see the tournament temporarily relocated from 2028.`\
 https://nytimes.com/athletic/7143273/2026/03/24/snooker-world-championship-crucible-redevelopment/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/24/world/asia/south-korea-energy-savings.html
 **Afghanistan Frees American Detainee Amid Mounting U.S. Pressure**\
 `Dennis Walter Coyle, a researcher held since last year, was released weeks after the United States declared Afghanistan a “state sponsor of wrongful detention.”`\
 https://nytimes.com/2026/03/24/world/asia/afghanistan-releases-american-detainee.html
-
-**How each of the College Football Playoff bubble teams attacked the offseason**\
-`Will Notre Dame be better in 2026? What did Texas do to improve its offense? Can Vanderbilt compete with the elite once again?`\
-https://nytimes.com/athletic/7131644/2026/03/24/college-football-playoff-bubble-teams-offseason-recruiting-transfer-portal/
-
-**As if the Thunder needed more help, now Jalen Williams is back and ready to roll**\
-`Williams had 18 points and six assists in his first game since Feb. 11 on Monday, as the Thunder won their 12th straight.`\
-https://nytimes.com/athletic/7143104/2026/03/24/jalen-williams-thunder-return-injury-win/
 
