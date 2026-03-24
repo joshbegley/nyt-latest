@@ -1,3 +1,23 @@
+**The War Is Going Better Than You Think**\
+`How the fight in Iran compares to past conflicts.`\
+https://nytimes.com/2026/03/24/opinion/iran-war-history.html
+
+**Iran’s ‘Nuclear’ Option**\
+`How U.S. strategy encouraged mutually assured destruction.`\
+https://nytimes.com/2026/03/24/opinion/iran-trump-hormuz.html
+
+**Michel Rolland, Polarizing Wine Consultant, Dies at 78**\
+`With more than 150 clients on five continents, and a preference for ripe, voluptuous wines, he was hugely influential. Supporters said he was a genius; critics called him formulaic.`\
+https://nytimes.com/2026/03/24/dining/drinks/michel-rolland-dead.html
+
+**With Over 550 Drones, Russia Unleashes Daytime Attack on Ukraine**\
+`The assault, which came after overnight strikes across the country, was one of the largest of the war, the Ukrainian authorities said.`\
+https://nytimes.com/2026/03/24/world/europe/russia-attack-drones-ukraine-lviv.html
+
+**Pakistan Offers to Host Talks Between Iran and the United States**\
+`Pakistan, which has cultivated ties with both Washington and Tehran, sees a diplomatic opening to intervene in the war in Iran, its neighbor.`\
+https://nytimes.com/2026/03/24/world/middleeast/pakistan-iran-us-mediation.html
+
 **Pakistan Offers to Mediate Between Iran and the United States**\
 `Pakistan, which has cultivated ties with both Washington and Tehran, sees a diplomatic opening to intervene in the war in Iran, its neighbor.`\
 https://nytimes.com/2026/03/24/world/middleeast/pakistan-iran-us-mediation.html
