@@ -1,3 +1,11 @@
+**The debate on the new era and a spotlight on F1's soul: Is Max Verstappen right?**\
+`F1's new era has started with a heavy debate on the new racing spectacle. The Athletic's experts have their say`\
+https://nytimes.com/athletic/7140647/2026/03/24/f1-new-era-rules-debate-max-verstappen/
+
+**Take Shorter Showers: South Korea Kicks Off an Energy-Saving Drive**\
+`President Lee Jae Myung called on the public to cooperate, likening the energy supply disruption caused by the Iran war to the Asian financial crisis and the pandemic.`\
+https://nytimes.com/2026/03/24/world/asia/south-korea-energy-savings.html
+
 **Afghanistan Frees American Detainee Amid Mounting U.S. Pressure**\
 `Dennis Walter Coyle, a researcher held since last year, was released weeks after the United States declared Afghanistan a “state sponsor of wrongful detention.”`\
 https://nytimes.com/2026/03/24/world/asia/afghanistan-releases-american-detainee.html

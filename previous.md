@@ -1,3 +1,11 @@
+**The debate on the new era and a spotlight on F1's soul: Is Max Verstappen right?**\
+`F1's new era has started with a heavy debate on the new racing spectacle. The Athletic's experts have their say`\
+https://nytimes.com/athletic/7140647/2026/03/24/f1-new-era-rules-debate-max-verstappen/
+
+**Take Shorter Showers: South Korea Kicks Off an Energy-Saving Drive**\
+`President Lee Jae Myung called on the public to cooperate, likening the energy supply disruption caused by the Iran war to the Asian financial crisis and the pandemic.`\
+https://nytimes.com/2026/03/24/world/asia/south-korea-energy-savings.html
+
 **Afghanistan Frees American Detainee Amid Mounting U.S. Pressure**\
 `Dennis Walter Coyle, a researcher held since last year, was released weeks after the United States declared Afghanistan a “state sponsor of wrongful detention.”`\
 https://nytimes.com/2026/03/24/world/asia/afghanistan-releases-american-detainee.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7142899/2026/03/24/sf-giants-prospects-bryce-eldrid
 **Chargers 7-round mock draft: Adding a plug-and-play starting guard at No. 22**\
 `The Chargers offseason has felt incomplete so far but would change drastically if they can land an impact guard in the first round.`\
 https://nytimes.com/athletic/7142115/2026/03/24/chargers-mock-draft-2026-vega-ioane/
-
-**Lakers lose their winning streak, but gain more evidence that they're for real**\
-`Even though Detroit didn't have Cade Cunningham, the Lakers liked how they kept they avoided bad habits and fought through fatigue.`\
-https://nytimes.com/athletic/7142831/2026/03/24/lakers-lose-pistons-lebron-james/
-
-**Tiger Woods to make return to golf in TGL Finals after 13 months out**\
-`Woods hasn’t competed in a professional event since July 2024 at the Open Championship, where he missed the cut.`\
-https://nytimes.com/athletic/7143137/2026/03/24/tiger-woods-tgl-golf-return/
 
