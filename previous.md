@@ -1,3 +1,31 @@
+**Inside Newcastle Q&A: Is Eddie Howe under pressure? Why was Woltemade signed?**\
+`The Athletic's Chris Waugh answers your questions about Newcastle United and the latest from St James' Park`\
+https://nytimes.com/athletic/7140155/2026/03/24/newcastle-eddie-howe-future-nick-woltemade-analysis/
+
+**How Fabian Hurzeler and Brighton turned their season around in just 41 days**\
+`A home defeat to rivals Crystal Palace left Hurzeler under pressure and Brighton languishing in 14th. Since then things have improved hugely`\
+https://nytimes.com/athletic/7140319/2026/03/24/hurzeler-brighton-turnaround/
+
+**Arsenal's unusual kick-off style with three 'chasers' and how restarts can set the tone**\
+`The plan didn't come off against City, but has worked before - while City showed a calculated approach is another way to add pressure`\
+https://nytimes.com/athletic/7140243/2026/03/24/arsenal-man-city-kick-offs-carabao-cup/
+
+**Paul Clement idolised Dave, his England footballer father. Then, aged 10, his world changed**\
+`Dave Clement took his own life six years after his international debut. His son Paul, now Brazil's assistant, relives the day he found out`\
+https://nytimes.com/athletic/7141690/2026/03/24/dave-clement-paul-clement-england/
+
+**42 World Cup questions that will be answered during this international window**\
+`From the identity of the final six teams to key selection issues and the co-hosts' preparedness, these are the things we will learn in March`\
+https://nytimes.com/athletic/7130533/2026/03/24/world-cup-questions-answered-march/
+
+**Special report: Violence in amateur football - 'I can't comprehend why you would do that to someone'**\
+`Physical attacks against players on the pitch - often by opponents - can have serious consequences for the victims`\
+https://nytimes.com/athletic/7080607/2026/03/24/violence-amateur-football-special-report/
+
+**What should Liverpool do with Arne Slot? We asked six Athletic writers**\
+`The Dutchman has come under huge pressure after a poor season - so what should happen next?`\
+https://nytimes.com/athletic/7140605/2026/03/24/arne-slot-liverpool-manager-job-future/
+
 **Managers on the rise: Francesco Farioli - Italy's gentleman coach flourishing in Portugal**\
 `The innovative 36-year-old Italian coach has made Porto strong favourites for the Portuguese title since he took over last summer`\
 https://nytimes.com/athletic/7134918/2026/03/24/managers-on-the-rise-francesco-farioli/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/7140220/2026/03/24/romero-tottenham-everton-ketchup
 **Liverpool and Chelsea were criticised for being outrun - but focusing on that is unwise**\
 `Using running data as a stick to beat teams with must be met with caution - it is a risky way of interpreting statistics`\
 https://nytimes.com/athletic/7141373/2026/03/24/premier-league-running-analysis-importance/
-
-**Who is your country's Max Dowman?**\
-`Each country will have young players they are thinking about including for their World Cup squads. Who is your nation's possible inclusion?`\
-https://nytimes.com/athletic/7135976/2026/03/24/world-cup-players-wonderkids-max-dowman/
-
-**The U.S. Is No Longer the Leader of the Free World**\
-`Pax Americana, meet Lax Americana.`\
-https://nytimes.com/2026/03/24/opinion/trump-iran-world-america-first.html
-
-**The New York Times in Print for Tuesday, March 24, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/03/24/todays-new-york-times
-
-**Warriors' Moses Moody injures knee in overtime against Mavericks**\
-`Moody was dribbling toward the basket for a breakaway dunk when his left knee appeared to give out. `\
-https://nytimes.com/athletic/7142747/2026/03/24/warriors-moses-moody-knee-injury-mavericks/
-
-**Trump, Who Calls Mail-in Voting ‘Cheating,’ Just Voted by Mail**\
-`President Trump has long fixated on mail-in-voting to bolster his baseless claims of widespread voter fraud. But he recently used the method in a Florida special election.`\
-https://nytimes.com/2026/03/24/us/politics/trump-mail-in-voting-florida.html
-
-**Ukraine Spent Big to Shield Energy Industry From Drones. Is the Mideast Next?**\
-`With the use of electronic jamming systems and interceptor drones, the Ukrainian national oil and gas company may be a model for others.`\
-https://nytimes.com/2026/03/24/world/europe/ukraine-middle-east-oil-and-gas-drones.html
-
-**Connections: Sports Edition Coach: Hints and answers for March 24, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7142601/2026/03/24/connections-sports-edition-hints-answers-march-24-2026/
 
