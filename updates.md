@@ -1,3 +1,7 @@
+**Storm Pounds Maui as Rainfall Totals Add Up Across Hawaii**\
+`Experts agree that the past weeks have been one of the rainiest periods in recent memory across the state.`\
+https://nytimes.com/2026/03/24/weather/hawaii-storms-rain-records.html
+
 **Newsom Says He Regrets Remarks Comparing Israel to ‘Apartheid State’**\
 `The California governor suggested that he had meant to refer to Israel’s potential future direction, not its current policies. “I revere the state of Israel,” he said.`\
 https://nytimes.com/2026/03/24/us/politics/newsom-israel-apartheid-state.html
