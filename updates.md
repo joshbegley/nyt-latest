@@ -1,3 +1,15 @@
+**Latest on University of Minnesota coaching search as top candidates emerge, including Brett Larson**\
+`Hartford Wolf Pack coach and Gophers alum Grant Potulny is also a potential pick to lead the men's hockey program.`\
+https://nytimes.com/athletic/7142254/2026/03/23/larson-potulny-gophers-hockey/
+
+**Celebrity Left-Wing Streamer Defends Cuba Mission**\
+`Hasan Piker helped bring attention to a mission delivering humanitarian aid to Cuba. The group was criticized for staying in an upscale hotel as Cubans faced another blackout.`\
+https://nytimes.com/2026/03/23/world/americas/hasan-piker-humanitarian-mission-cuba.html
+
+**Trump’s Ultimatum to Iran Was Almost Up. Then He Found an Offramp.**\
+`President Trump postponed his threat to strike power plants in Iran, citing “productive conversations” with the Iranians. But officials said the talks were in an early stage and not substantive.`\
+https://nytimes.com/2026/03/23/us/politics/trump-iran-gas-oil-strait.html
+
 **Valerie Perrine, Screen Siren Who Won Critical Acclaim, Dies at 82**\
 `Known early on for skin-baring temptress roles, she later earned rave reviews, a Cannes award and an Oscar nomination for her performance in the Lenny Bruce biopic “Lenny.”`\
 https://nytimes.com/2026/03/23/movies/valerie-perrine-dead.html

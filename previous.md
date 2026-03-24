@@ -1,3 +1,15 @@
+**Latest on University of Minnesota coaching search as top candidates emerge, including Brett Larson**\
+`Hartford Wolf Pack coach and Gophers alum Grant Potulny is also a potential pick to lead the men's hockey program.`\
+https://nytimes.com/athletic/7142254/2026/03/23/larson-potulny-gophers-hockey/
+
+**Celebrity Left-Wing Streamer Defends Cuba Mission**\
+`Hasan Piker helped bring attention to a mission delivering humanitarian aid to Cuba. The group was criticized for staying in an upscale hotel as Cubans faced another blackout.`\
+https://nytimes.com/2026/03/23/world/americas/hasan-piker-humanitarian-mission-cuba.html
+
+**Trump’s Ultimatum to Iran Was Almost Up. Then He Found an Offramp.**\
+`President Trump postponed his threat to strike power plants in Iran, citing “productive conversations” with the Iranians. But officials said the talks were in an early stage and not substantive.`\
+https://nytimes.com/2026/03/23/us/politics/trump-iran-gas-oil-strait.html
+
 **Valerie Perrine, Screen Siren Who Won Critical Acclaim, Dies at 82**\
 `Known early on for skin-baring temptress roles, she later earned rave reviews, a Cannes award and an Oscar nomination for her performance in the Lenny Bruce biopic “Lenny.”`\
 https://nytimes.com/2026/03/23/movies/valerie-perrine-dead.html
@@ -21,16 +33,4 @@ https://nytimes.com/2026/03/23/world/middleeast/middle-east-war-iran-march-23.ht
 **For Canadians, Another Reason to Avoid Traveling to the U.S.**\
 `The collision between an Air Canada jet and a fire truck in New York brought the shortcomings of U.S. traffic control in focus.`\
 https://nytimes.com/2026/03/23/nyregion/canada-laguardia-crash-travel-reaction.html
-
-**Jason Steele on first England call-up: 'It has come a little later than I would have wanted!'**\
-`Brighton's backup goalkeeper has won a first senior national squad place at age 35 - 13 years after his final appearance for the under-21s`\
-https://nytimes.com/athletic/7140196/2026/03/23/jason-steele-england-brighton-interview/
-
-**Video Testimony of Former DOGE Employees Can Remain Online, Judge Rules**\
-`The viral deposition videos, posted online as part of a lawsuit, had been taken down because complaints that the employees were being harassed.`\
-https://nytimes.com/2026/03/23/nyregion/doge-lawsuit-videos-viral.html
-
-**Weekly Student News Quiz: Iran War, Airport Lines, Perfect Bracket**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2026/03/23/learning/23StudentNewsQuiz.html
 
