@@ -1,3 +1,15 @@
+**Rangers' Carter Baumler learns of Opening Day roster spot mid-outing**\
+`After getting the news from manager Skip Schumaker, Carter Baumler promptly struck out his third hitter of the night.`\
+https://nytimes.com/athletic/7143689/2026/03/24/rangers-opening-day-roster-carter-baumler-mound-visit/
+
+**JC Tretter on why he returned to NFLPA as executive director after tenuous exit**\
+`Eight months after resigning, Tretter is back in the NFLPA's top job. He says he wishes he had done more to defend himself last summer.`\
+https://nytimes.com/athletic/7143346/2026/03/24/jc-tretter-interview-nflpa-executive-director/
+
+**Ancient Grapes Reveal Long History of Modern Wines**\
+`Genetic material preserved in ancient grape seeds reveals when, and how, humans meddled with wine grapes.`\
+https://nytimes.com/2026/03/24/science/ancient-grapes-dna-winemaking.html
+
 **FIFA’s World Cup ticket prices subject of fans’ group legal complaint**\
 `In their complaint, FSE and Euroconsumers have identified six specific abuses of European Union competition law.`\
 https://nytimes.com/athletic/7143790/2026/03/24/world-cup-ticket-prices-complaint/
