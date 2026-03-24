@@ -1,3 +1,7 @@
+**A Murder Charge in Georgia Exposes Complexities of the Abortion Debate**\
+`A woman who took medication to induce an abortion, and then delivered the baby, was arrested on a murder charge. But on Monday, a state judge expressed deep skepticism about the case.`\
+https://nytimes.com/2026/03/23/us/georgia-abortion-pill-murder.html
+
 **Trump’s New Political Tool: ICE**\
 `President Trump has increasingly used Immigration and Customs Enforcement to push personal and political objectives, and on Monday sent agents to airports across the country to help deal with long security lines.`\
 https://nytimes.com/2026/03/23/us/politics/trump-ice-airports.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7142254/2026/03/23/larson-potulny-gophers-hockey/
 **Celebrity Left-Wing Streamer Defends Cuba Mission**\
 `Hasan Piker helped bring attention to a mission delivering humanitarian aid to Cuba. The group was criticized for staying in an upscale hotel as Cubans faced another blackout.`\
 https://nytimes.com/2026/03/23/world/americas/hasan-piker-humanitarian-mission-cuba.html
-
-**Trump’s Ultimatum to Iran Was Almost Up. Then He Found an Offramp.**\
-`President Trump postponed his threat to strike power plants in Iran, citing “productive conversations” with the Iranians. But officials said the talks were in an early stage and not substantive.`\
-https://nytimes.com/2026/03/23/us/politics/trump-iran-gas-oil-strait.html
 
