@@ -1,3 +1,7 @@
+**The Final, Flying Colors of Matisse’s ‘Second Life’**\
+`A breathtaking Paris show challenges the conventional idea that artists taper off at the end of their lives.`\
+https://nytimes.com/2026/03/24/arts/design/matisse-grand-palais-paris.html
+
 **Danes Vote, With Trump on Their Minds**\
 `President Trump’s threats to take Greenland away from Denmark have lifted Prime Minister Mette Frederiksen, who appeared the front-runner as polls opened.`\
 https://nytimes.com/2026/03/24/world/europe/denmark-election-mette-frederiksen-greenland.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7141581/2026/03/24/craig-berube-maple-leafs-critici
 **Broncos mailbag: Is the J.K. Dobbins-RJ Harvey pairing enough at running back?**\
 `Plus, is there a different role coming for Jahdae Barron during his second season in Denver?`\
 https://nytimes.com/athletic/7141044/2026/03/24/broncos-mailbag-dobbins-harvey-waddle/
-
-**Three bold Tigers predictions for the 2026 MLB season**\
-`The Tigers are not a perfect team, but they should still win their division.`\
-https://nytimes.com/athletic/7141129/2026/03/24/3-bold-tigers-predictions-2026/
 
