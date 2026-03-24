@@ -1,3 +1,31 @@
+**Ukraine Spent Big to Shield Energy Industry From Drones. Is the Mideast Next?**\
+`With the use of electronic jamming systems and interceptor drones, the Ukrainian national oil and gas company may be a model for others.`\
+https://nytimes.com/2026/03/24/world/europe/ukraine-middle-east-oil-and-gas-drones.html
+
+**Connections: Sports Edition Coach: Hints and answers for March 24, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7142601/2026/03/24/connections-sports-edition-hints-answers-march-24-2026/
+
+**Trump Sours on British Leader Over Iran War: ‘What If Donald Shouts at Me?’**\
+`President Trump once called Prime Minister Keir Starmer a friend. But Mr. Starmer’s decision not to join the attacks on Iran has led to merciless mocking by the president.`\
+https://nytimes.com/2026/03/24/world/europe/trump-sours-on-british-leader-over-iran-war-what-if-donald-shouts-at-me.html
+
+**Corrections: March 24, 2026**\
+`Corrections that appeared in print on Tuesday, March 24, 2026.`\
+https://nytimes.com/2026/03/24/pageoneplus/corrections-march-24-2026.html
+
+**MDMA Therapy in Australia Shows Results, but the Cost Is Limiting Access**\
+`The country’s experiment with psychedelic medicine has led to positive outcomes, psychiatrists say, but also highlights the limitations of the nascent field.`\
+https://nytimes.com/2026/03/24/health/mdma-therapy-ptsd-psychedelic-australia.html
+
+**Pakistan Dials Up Its Information War**\
+`New, friendly media operations and expanded state-run television are pushing Pakistan’s message while independent news outlets face repression.`\
+https://nytimes.com/2026/03/24/world/asia/pakistan-media-news-misinformation.html
+
+**Quote of the Day: West’s Oil Producers Reap Profits Now but Stay Wary**\
+`Quotation of the Day for Tuesday, March 24, 2026.`\
+https://nytimes.com/2026/03/23/pageoneplus/quote-of-the-day-wests-oil-producers-reap-profits-now-but-stay-wary.html
+
 **How Kim Jong-un Is Using the Iran War to Justify His Nuclear Arsenal**\
 `He delivered a lengthy speech at his country’s rubber-stamp Parliament, declaring that his nuclear power will shield his country from American hostility.`\
 https://nytimes.com/2026/03/23/world/asia/north-korea-kim-iran-nuclear.html
@@ -9,32 +37,4 @@ https://nytimes.com/video/us/politics/100000010797537/markwayne-mullin-senate-co
 **Cubs, Pete Crow-Armstrong reach agreement on contract extension: Sources**\
 `The center fielder won a Gold Glove and finished ninth in the NL MVP voting last season.`\
 https://nytimes.com/athletic/7079065/2026/03/23/pete-crow-armstrong-cubs-contract-extension/
-
-**‘Giant’ Review: As Roald Dahl, John Lithgow Is a Study in Monstrosity**\
-`In Mark Rosenblatt’s play, a powerful portrayal of the beloved children’s book author who almost gleefully exposes his bigotry.`\
-https://nytimes.com/2026/03/23/theater/giant-review-broadway-lithgow-dahl.html
-
-**Firefighter Released From Hospital After LaGuardia Accident**\
-`Two firefighters were injured when an Air Canada plane hit the truck they were in on Sunday. One of them remained in the hospital on Monday.`\
-https://nytimes.com/live/2026/03/23/nyregion/laguardia-airport-plane-crash-truck/laguardia-crash-firefighters-injured
-
-**Quadruple amputee cornhole professional jailed on murder charges**\
-`Witnessed told police that Dayton James Webber shot and killed a man during an argument in a car.`\
-https://nytimes.com/athletic/7142152/2026/03/23/cornhole-player-amputee-arrested-murder-dayton-webber/
-
-**NFL Newsletter: Flag football fallout**\
-`Takeaways from a surprisingly fun game, the top remaining free agents and history's best past-their-prime signings`\
-https://nytimes.com/athletic/7142566/2026/03/23/flag-football-nfl-tom-brady-free-agents-olympics/
-
-**See How the LaGuardia Plane Crash Unfolded**\
-`Flight data, video of the crash and imagery of the aftermath reveal how an Air Canada jet collided with a fire truck, killing two people and injuring dozens.`\
-https://nytimes.com/interactive/2026/03/23/us/laguardia-plane-crash-timeline.html
-
-**After three straight early NCAA Tournament exits, Ohio State faces tough questions**\
-`Instead of jolting itself into one of the NCAA’s elite programs, Ohio State has taken a step back.`\
-https://nytimes.com/athletic/7142472/2026/03/23/ohio-state-womens-basketball-ncaa-tournament-loss/
-
-**Vanderbilt star Mikayla Blakes’ takeover of the world is just a matter of time**\
-`Blakes called game in the third quarter during a three-minute stretch in which she nailed two 3-pointers and a mid-range jumper.`\
-https://nytimes.com/athletic/7142416/2026/03/23/vanderbilt-mikayla-blakes-illinonis-sweet-16/
 
