@@ -1,5 +1,29 @@
+**Firefighter Released From Hospital After LaGuardia Accident**\
+`Two firefighters were injured when an Air Canada plane hit the truck they were in on Sunday. One of them remained in the hospital on Monday.`\
+https://nytimes.com/live/2026/03/23/nyregion/laguardia-airport-plane-crash-truck/laguardia-crash-firefighters-injured
+
+**Quadruple amputee cornhole professional jailed on murder charges**\
+`Witnessed told police that Dayton James Webber shot and killed a man during an argument in a car.`\
+https://nytimes.com/athletic/7142152/2026/03/23/cornhole-player-amputee-arrested-murder-dayton-webber/
+
+**NFL Newsletter: Flag football fallout**\
+`Takeaways from a surprisingly fun game, the top remaining free agents and history's best past-their-prime signings`\
+https://nytimes.com/athletic/7142566/2026/03/23/flag-football-nfl-tom-brady-free-agents-olympics/
+
+**See How the LaGuardia Plane Crash Unfolded**\
+`Flight data, video of the crash and imagery of the aftermath reveal how an Air Canada jet collided with a fire truck, killing two people and injuring dozens.`\
+https://nytimes.com/interactive/2026/03/23/us/laguardia-plane-crash-timeline.html
+
+**After three straight early NCAA Tournament exits, Ohio State faces tough questions**\
+`Instead of jolting itself into one of the NCAA’s elite programs, Ohio State has taken a step back.`\
+https://nytimes.com/athletic/7142472/2026/03/23/ohio-state-womens-basketball-ncaa-tournament-loss/
+
+**Vanderbilt star Mikayla Blakes’ takeover of the world is just a matter of time**\
+`Blakes called game in the third quarter during a three-minute stretch in which she nailed two 3-pointers and a mid-range jumper.`\
+https://nytimes.com/athletic/7142416/2026/03/23/vanderbilt-mikayla-blakes-illinonis-sweet-16/
+
 **Jason Kidd says 'born closer' Kyrie Irving can help solve Mavs' clutch woes next season**\
-`To have any hope of making it to the playoffs next season, the Mavericks need Irving's offensive production.`\
+`To have any hope of making it to the playoffs, the Mavericks need Irving's offensive production.`\
 https://nytimes.com/athletic/7142474/2026/03/23/mavs-jason-kidd-kyrie-irving-clutch-woes/
 
 **In LaGuardia Crash That Killed 2, Call to ‘Stop!’ Came Too Late**\
@@ -14,28 +38,4 @@ https://nytimes.com/athletic/7142312/2026/03/23/cubs-roster-projection-seiya-suz
 **How to Reduce the Environmental Impact of Collecting Art**\
 `From flying commercial to choosing reusable packing crates, art enthusiasts have many options to consider`\
 https://nytimes.com/2026/03/23/arts/design/environmental-impact-art-collecting.html
-
-**A New Space Built to Replicate an Old-Fashioned Art Salon**\
-`Recalling the era of Picasso and Hemingway, the location in Hong Kong, called Gold, will host art, design and fashion exhibitions, and more.`\
-https://nytimes.com/2026/03/23/arts/design/hong-kong-gold-salon.html
-
-**A Painter Reveals Hong Kong’s Natural Wonders — and Where to See Them**\
-`Growing up, Stephen Wong Chun Hei did not get outside much. Now, he hikes the city’s trails and renders them in wild color. Here are six of his favorites.`\
-https://nytimes.com/2026/03/23/arts/design/hong-kong-painter-hikes.html
-
-**Boundary-pushing**\
-`Killian Olson paints an appetizing picture.`\
-https://nytimes.com/2026/03/23/crosswords/daily-puzzle-2026-03-24.html
-
-**Beyond Art Basel Hong Kong, Cyborgs, Neon Abstractions and More**\
-`The city’s museums and galleries entice with work by boldfaced names like Lee Bul and Mary Weatherford, plus shows on textiles and collective memory.`\
-https://nytimes.com/2026/03/23/arts/design/hong-kong-art-week-shows.html
-
-**Pulling the Threads of Hong Kong’s Textile Heritage**\
-`At the peak, Hong Kong was one of Asia’s largest textile exporters. Now, visitors can see tangible reminders of that history in several neighborhoods.`\
-https://nytimes.com/2026/03/23/arts/design/hong-kong-textiles-history.html
-
-**Bucks waive Cam Thomas less than 2 months after signing guard**\
-`The timing of Thomas' release means he is ineligible to participate in the postseason if another NBA team picks him up.`\
-https://nytimes.com/athletic/7142412/2026/03/23/bucks-waive-cam-thomas-pete-nance-standard-contract/
 
