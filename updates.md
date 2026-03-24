@@ -1,3 +1,11 @@
+**Senate Confirms Markwayne Mullin as Homeland Security Secretary**\
+`The Senate confirmed Markwayne Mullin to take over the Homeland Security Department in a 54-to-45 vote on Monday.`\
+https://nytimes.com/video/us/politics/100000010797537/markwayne-mullin-senate-confirmation-dhs.html
+
+**Cubs, Pete Crow-Armstrong reach agreement on contract extension: Sources**\
+`The center fielder won a Gold Glove and finished ninth in the NL MVP voting last season.`\
+https://nytimes.com/athletic/7079065/2026/03/23/pete-crow-armstrong-cubs-contract-extension/
+
 **Cubs roster projection 3.0: Seiya Suzuki out, Ben Brown in for Opening Day**\
 `With Javier Assad getting optioned to Triple A, Chicago's initial 13-man pitching staff is now determined.
 `\
