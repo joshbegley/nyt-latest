@@ -1,3 +1,19 @@
+**JC Tretter on NFL trying to open early talks for 18th game: ‘The answer is no’**\
+`NFL owners want to begin discussions about increasing the regular season to 18 games. The NFLPA says it won't talk until it's ready.`\
+https://nytimes.com/athletic/7143683/2026/03/24/nfl-18th-game-jc-tretter-executive-director/
+
+**Until Saturday: Nebraska and Indiana traded sports**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/7143900/2026/03/24/nebraska-basketball-indiana-football-until-saturday/
+
+**Mike Vernon, Who Helped Spark the British Blues Boom, Dies at 81**\
+`He produced albums — by John Mayall & the Bluesbreakers, with Eric Clapton, and the early Fleetwood Mac — that defined 1960s blues rock. He also shepherded David Bowie’s debut disk.`\
+https://nytimes.com/2026/03/24/arts/music/mike-vernon-dead.html
+
+**Kevin McGonigle — MLB's No. 2 prospect — makes Tigers' Opening Day roster**\
+`McGonigle, 21, will skip over Triple A to make his major-league debut.`\
+https://nytimes.com/athletic/7141623/2026/03/24/kevin-mcgonigle-tigers-opening-day-roster/
+
 **Vaccine Advances and the Prism of History**\
 `Readers respond to “I Grew Up Unvaccinated. I’m Lucky I Didn’t Get Sick,” a guest essay by Dr. Elisabeth Marnik. Also: A voice from Norway.`\
 https://nytimes.com/2026/03/24/opinion/vaccines-history.html
@@ -21,16 +37,4 @@ https://nytimes.com/2026/03/24/science/ancient-grapes-dna-winemaking.html
 **FIFA’s World Cup ticket prices subject of fans’ group legal complaint**\
 `In their complaint, FSE and Euroconsumers have identified six specific abuses of European Union competition law.`\
 https://nytimes.com/athletic/7143790/2026/03/24/world-cup-ticket-prices-complaint/
-
-**Republicans Step Up Efforts to Reach a Homeland Security Funding Deal**\
-`A day after President Trump said he did not want a compromise, Republicans were exploring breaking off ICE funding so the rest of the Department of Homeland Security could reopen.`\
-https://nytimes.com/2026/03/24/us/politics/senate-republicans-homeland-security-shutdown-ice.html
-
-**Got Pelicans questions? Submit to William Guillory for the next mailbag**\
-`Despite another lost season, the New Orleans Pelicans are playing their best basketball over the past month and building optimism about what this group can do next season with better injury luck.`\
-https://nytimes.com/athletic/7143751/2026/03/24/pelicans-questions-mailbag-zion-williamson-trey-murphy/
-
-**Robert White, Tenor Renowned for Irish Ballads, Dies at 89**\
-`A performer from childhood, he became a versatile singer in the mold of the Irish superstar James McCormack, adept at both classical repertoire and traditional songs.`\
-https://nytimes.com/2026/03/24/arts/music/robert-white-dead.html
 

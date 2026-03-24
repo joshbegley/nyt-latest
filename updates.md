@@ -1,3 +1,7 @@
+**Vaccine Advances and the Prism of History**\
+`Readers respond to “I Grew Up Unvaccinated. I’m Lucky I Didn’t Get Sick,” a guest essay by Dr. Elisabeth Marnik. Also: A voice from Norway.`\
+https://nytimes.com/2026/03/24/opinion/vaccines-history.html
+
 **Iran’s New Security Chief Is a Hard-Line Former Guards Commander**\
 `Mohammad Bagher Zolghadr replaces Ali Larijani, who was killed last week in an Israeli strike. He has a history of expanding the Guards’ reach into Iran’s politics.`\
 https://nytimes.com/2026/03/24/world/middleeast/iran-security-chief-larijani-zolghadr.html

@@ -1,3 +1,7 @@
+**Vaccine Advances and the Prism of History**\
+`Readers respond to “I Grew Up Unvaccinated. I’m Lucky I Didn’t Get Sick,” a guest essay by Dr. Elisabeth Marnik. Also: A voice from Norway.`\
+https://nytimes.com/2026/03/24/opinion/vaccines-history.html
+
 **Iran’s New Security Chief Is a Hard-Line Former Guards Commander**\
 `Mohammad Bagher Zolghadr replaces Ali Larijani, who was killed last week in an Israeli strike. He has a history of expanding the Guards’ reach into Iran’s politics.`\
 https://nytimes.com/2026/03/24/world/middleeast/iran-security-chief-larijani-zolghadr.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7143751/2026/03/24/pelicans-questions-mailbag-zion-
 **Robert White, Tenor Renowned for Irish Ballads, Dies at 89**\
 `A performer from childhood, he became a versatile singer in the mold of the Irish superstar James McCormack, adept at both classical repertoire and traditional songs.`\
 https://nytimes.com/2026/03/24/arts/music/robert-white-dead.html
-
-**Prospect Connelly Early makes Red Sox rotation; Johan Oviedo bumped to bullpen**\
-`The Red Sox's 2023 fifth-round pick has quickly — and somewhat quietly — risen to prospect prominence.`\
-https://nytimes.com/athletic/7143656/2026/03/24/red-sox-connelly-early-john-oviedo-bullpen/
 
