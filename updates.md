@@ -1,3 +1,19 @@
+**Asia’s Energy Crisis Stings**\
+`The energy crisis unleashed by the war in Iran may already be worse than the oil shocks of the 1970s. Here’s how it’s upending lives.`\
+https://nytimes.com/2026/03/24/world/oil-iran-asia-nasa-space.html
+
+**40 Years Later, Wil Wheaton Can’t Shake ‘Stand By Me’**\
+`The actor and narrator stepped back into his breakout role for a new audiobook edition of Stephen King's bittersweet classic. Here, he breaks down some favorite scenes.`\
+https://nytimes.com/interactive/2026/03/24/books/wil-wheaton-the-body-audiobook-stephen-king.html
+
+**New Limits on Investors and a Debt Downgrade Add to Private Credit Woes**\
+`Investors are concerned about the health of the industry, which ballooned over the past decade.`\
+https://nytimes.com/2026/03/24/business/moodys-private-credit-downgrade.html
+
+**Pakistan Offers to Host Talks Between Iran and the United States**\
+`Pakistan, which has cultivated ties with both Washington and Tehran, sees a diplomatic opening to intervene in the war in Iran, its neighbor.`\
+https://nytimes.com/live/2026/03/24/world/iran-war-trump-oil/pakistan-iran-us-mediation
+
 **The War Is Going Better Than You Think**\
 `How the fight in Iran compares to past conflicts.`\
 https://nytimes.com/2026/03/24/opinion/iran-war-history.html

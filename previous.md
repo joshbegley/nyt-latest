@@ -1,3 +1,15 @@
+**Asia’s Energy Crisis Stings**\
+`The energy crisis unleashed by the war in Iran may already be worse than the oil shocks of the 1970s. Here’s how it’s upending lives.`\
+https://nytimes.com/2026/03/24/world/oil-iran-asia-nasa-space.html
+
+**40 Years Later, Wil Wheaton Can’t Shake ‘Stand By Me’**\
+`The actor and narrator stepped back into his breakout role for a new audiobook edition of Stephen King's bittersweet classic. Here, he breaks down some favorite scenes.`\
+https://nytimes.com/interactive/2026/03/24/books/wil-wheaton-the-body-audiobook-stephen-king.html
+
+**New Limits on Investors and a Debt Downgrade Add to Private Credit Woes**\
+`Investors are concerned about the health of the industry, which ballooned over the past decade.`\
+https://nytimes.com/2026/03/24/business/moodys-private-credit-downgrade.html
+
 **The War Is Going Better Than You Think**\
 `How the fight in Iran compares to past conflicts.`\
 https://nytimes.com/2026/03/24/opinion/iran-war-history.html
@@ -16,21 +28,9 @@ https://nytimes.com/2026/03/24/world/europe/russia-attack-drones-ukraine-lviv.ht
 
 **Pakistan Offers to Host Talks Between Iran and the United States**\
 `Pakistan, which has cultivated ties with both Washington and Tehran, sees a diplomatic opening to intervene in the war in Iran, its neighbor.`\
-https://nytimes.com/2026/03/24/world/middleeast/pakistan-iran-us-mediation.html
+https://nytimes.com/live/2026/03/24/world/iran-war-trump-oil/pakistan-iran-us-mediation
 
 **Paul George returns from 25-game suspension with apology: 'I let people down'**\
 `After 25 games away, the Sixers' small forward spoke to the media for the first time Tuesday. `\
 https://nytimes.com/athletic/7144524/2026/03/24/paul-george-suspension-nba-sixers/
-
-**How a County Sheriff Dethroned ‘North Carolina’s King’**\
-`Phil Berger had money, power and an endorsement from President Trump. But his critics had a long list of resentments and, on Tuesday, he lost by a mere 23 votes.`\
-https://nytimes.com/2026/03/24/us/berger-page-north-carolina-senate-gop.html
-
-**United States Said to Have Sent Iran a Plan to End the Middle East War**\
-`The 15-point plan was delivered via Pakistan, whose army chief has emerged as the key interlocutor between the United States and Iran, officials say.`\
-https://nytimes.com/2026/03/24/world/middleeast/us-iran-peace-plan.html
-
-**San Francisco Killed 8th-Grade Algebra. Now It’s Set to Come Back.**\
-`The San Francisco school board will vote on a plan to restore algebra as an option at all middle schools, more than a decade after it was removed over equity concerns.`\
-https://nytimes.com/2026/03/24/us/san-francisco-public-schools-algebra.html
 

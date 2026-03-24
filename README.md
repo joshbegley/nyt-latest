@@ -1,3 +1,11 @@
+**The Cascading Damage of Rising Oil Prices**\
+`How high do oil prices need to climb before the global economy breaks? On “The Ezra Klein Show,” Jason Bordoff, an energy policy expert, tells Ezra Klein why a prolonged energy shock could force a devastating choice between economic activity and basic survival for the world’s poorest nations.`\
+https://nytimes.com/video/opinion/100000010797045/the-cascading-damage-of-rising-oil-prices.html
+
+**Air Canada Pilots Killed in Crash Were Early in Flying Careers**\
+`The pilots were identified as Antoine Forest, 30, and Mackenzie Gunther. They were the only two fatalities in the plane’s collision with a fire truck at New York’s LaGuardia Airport.`\
+https://nytimes.com/2026/03/24/nyregion/air-canada-pilots-laguardia.html
+
 **Asia’s Energy Crisis Stings**\
 `The energy crisis unleashed by the war in Iran may already be worse than the oil shocks of the 1970s. Here’s how it’s upending lives.`\
 https://nytimes.com/2026/03/24/world/oil-iran-asia-nasa-space.html
@@ -29,8 +37,4 @@ https://nytimes.com/2026/03/24/world/europe/russia-attack-drones-ukraine-lviv.ht
 **Pakistan Offers to Host Talks Between Iran and the United States**\
 `Pakistan, which has cultivated ties with both Washington and Tehran, sees a diplomatic opening to intervene in the war in Iran, its neighbor.`\
 https://nytimes.com/live/2026/03/24/world/iran-war-trump-oil/pakistan-iran-us-mediation
-
-**Paul George returns from 25-game suspension with apology: 'I let people down'**\
-`After 25 games away, the Sixers' small forward spoke to the media for the first time Tuesday. `\
-https://nytimes.com/athletic/7144524/2026/03/24/paul-george-suspension-nba-sixers/
 
