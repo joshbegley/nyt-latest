@@ -1,3 +1,7 @@
+**Czech police open criminal investigation after 47 alleged match-fixing cases identified**\
+`The Czech Republic's football association announced a concurrent investigation into clubs, officials and players.`\
+https://nytimes.com/athletic/7143190/2026/03/24/czech-republic-match-fixing-investigation/
+
 **The debate on the new era and a spotlight on F1's soul: Is Max Verstappen right?**\
 `F1's new era has started with a heavy debate on the new racing spectacle. The Athletic's experts have their say`\
 https://nytimes.com/athletic/7140647/2026/03/24/f1-new-era-rules-debate-max-verstappen/
