@@ -1,3 +1,7 @@
+**Health Woes**\
+`We look into the turmoil at the Centers for Disease Control and Prevention.`\
+https://nytimes.com/2026/03/24/briefing/cdc-turmoil.html
+
 **Inside the NHL's growing goaltending crisis: 'Everybody’s making bad decisions'**\
 `Goaltending is becoming increasingly volatile and the link between price and performance is broken. Here's why.`\
 https://nytimes.com/athletic/7124168/2026/03/24/nhl-goaltending-crisis-contracts-extensions-defense/

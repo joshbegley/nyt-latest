@@ -1,3 +1,7 @@
+**Health Woes**\
+`We look into the turmoil at the Centers for Disease Control and Prevention.`\
+https://nytimes.com/2026/03/24/briefing/cdc-turmoil.html
+
 **Inside the NHL's growing goaltending crisis: 'Everybody’s making bad decisions'**\
 `Goaltending is becoming increasingly volatile and the link between price and performance is broken. Here's why.`\
 https://nytimes.com/athletic/7124168/2026/03/24/nhl-goaltending-crisis-contracts-extensions-defense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7140543/2026/03/24/washington-nationals-top-prospec
 **How is Jayson Tatum's recovery going? Analyzing his early progress with Celtics**\
 `"I wanted to be perfect and first team All-NBA Jayson, but it's going to take time," Tatum says of his return from an Achilles injury.`\
 https://nytimes.com/athletic/7142049/2026/03/24/jayson-tatum-progress-achilles-recovery-celtics/
-
-**Inside Nikita Kucherov's MVP-caliber, historic season for the Lightning: 'Nobody's playing better'**\
-`Kucherov is scoring at a historic pace and leading the Lightning to another year of contention. Will it lead to a Hart Trophy?`\
-https://nytimes.com/athletic/7140031/2026/03/24/nikita-kucherov-hart-trophy-lighting/
 
