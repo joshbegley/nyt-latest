@@ -1,3 +1,7 @@
+**Bills' new stadium: A look inside at progress for building scheduled to open for 2026 season**\
+`The Bills opened the facility for a media tour.`\
+https://nytimes.com/athletic/7143570/2026/03/24/bills-new-stadium-look-inside-progress/
+
 **Meta Ordered to Pay $375 Million Over Child Safety Violations**\
 `In one of the company’s first major losses, New Mexico jurors found that it had misled consumers about the safety of its platforms, enabling sexual exploitation of young users.`\
 https://nytimes.com/2026/03/24/technology/meta-new-mexico-child-safety-violations.html
