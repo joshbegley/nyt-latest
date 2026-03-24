@@ -1,3 +1,15 @@
+**San Francisco Killed 8th-Grade Algebra. Now It’s Set to Come Back.**\
+`The San Francisco school board will vote on a plan to restore algebra as an option at all middle schools, more than a decade after it was removed over equity concerns.`\
+https://nytimes.com/2026/03/24/us/san-francisco-public-schools-algebra.html
+
+**Trump Picks ‘Alpha Male’ Influencer to Be Tourism Envoy**\
+`Nick Adams, known for his crass humor and internet trolling, was previously nominated to be the ambassador to Malaysia. But his nomination was pulled earlier this year.`\
+https://nytimes.com/2026/03/24/us/politics/nick-adams-trump-tourism.html
+
+**What is the Muhammad Ali Boxing Revival Act and how could it change the sport?**\
+`The first change in U.S. federal law on boxing since 2000 could be transformative for the sport. This is why.`\
+https://nytimes.com/athletic/7143056/2026/03/24/muhammad-ali-boxing-revival-act/
+
 **Lions GM Brad Holmes: Says he's in 'total lockstep' with Dan Campbell on offseason talks**\
 `Holmes made it clear that they’re in alignment about their disappointment with how last season ended for the Lions.`\
 https://nytimes.com/athletic/7143953/2026/03/24/lions-gm-brad-holmes-dan-campbell-offseason/
@@ -25,16 +37,4 @@ https://nytimes.com/paidpost/carnegie-mellon-university/how-data-and-innovation/
 **Florida Middle School Student Is Arrested After Stabbing Attack**\
 `A seventh-grade student was accused of stabbing two other students and a paraprofessional, the authorities said.`\
 https://nytimes.com/2026/03/24/us/florida-walton-middle-school-stabbing.html
-
-**What a bad season would look like for the 2026 Giants**\
-`A bad year for the Giants would be for their season to end with no clear direction or understanding of how to move the team forward.`\
-https://nytimes.com/athletic/7144326/2026/03/24/sf-giants-2026-outlook-bad-season/
-
-**High Oil and Gas Prices Could Outlast Trump’s War With Iran**\
-`While the president has promised rapid relief, Americans could feel the financial sting of the conflict for some time after it ends.`\
-https://nytimes.com/2026/03/24/us/politics/oil-gas-prices-iran.html
-
-**How to watch Oilers vs. Mammoth: Time, TV, streaming**\
-`Find out how to watch the Edmonton Oilers play the Utah Mammoth, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7144426/2026/03/24/oilers-vs-mammoth-stream-how-to-watch-march-24/
 

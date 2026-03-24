@@ -1,3 +1,7 @@
+**Lions GM Brad Holmes: Says he's in 'total lockstep' with Dan Campbell on offseason talks**\
+`Holmes made it clear that they’re in alignment about their disappointment with how last season ended for the Lions.`\
+https://nytimes.com/athletic/7143953/2026/03/24/lions-gm-brad-holmes-dan-campbell-offseason/
+
 **IPL champions RCB sold to new ownership group in $1.78bn deal**\
 `Founded in 2008 as one of the original eight IPL franchises, RCB are the reigning men’s and women’s champions.`\
 https://nytimes.com/athletic/7144518/2026/03/24/ipl-cricket-champions-franchise-deal-blitzer/
