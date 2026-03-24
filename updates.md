@@ -1,3 +1,7 @@
+**Three words: After 6 red cards in 16 NWSL games, ‘You OK, sis'?**\
+`Is the spate of red cards in NWSL an anomaly or a byproduct of the league's competitiveness? `\
+https://nytimes.com/athletic/7141933/2026/03/24/nwsl-red-cards-season-soccer-three-words/
+
 **Reopening the Strait of Hormuz will be difficult without a deal with Iran.**\
 `By Agnes Chang, Adina Renner and Samuel Granados`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/reopening-the-strait-of-hormuz-will-be-difficult-without-a-deal-with-iran
