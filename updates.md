@@ -1,3 +1,5 @@
+
+
 **Maryland’s Supreme Court Strikes Down Baltimore’s Climate Lawsuit**\
 `The decision represents a setback to other local governments around the country that have sued oil companies to recoup the mounting costs of climate change.`\
 https://nytimes.com/2026/03/24/climate/baltimore-climate-lawsuit.html
