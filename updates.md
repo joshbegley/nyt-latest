@@ -1,3 +1,7 @@
+**How to watch Oilers vs. Mammoth: Time, TV, streaming**\
+`Find out how to watch the Edmonton Oilers play the Utah Mammoth, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7144426/2026/03/24/oilers-vs-mammoth-stream-how-to-watch-march-24/
+
 **Lebanon Expels Iranian Envoy as Rift With Tehran Deepens**\
 `The decision by Lebanon’s foreign ministry has heightened fears of internal instability. Hezbollah, the Iranian-backed militant group and political party, was quick to condemn the move.`\
 https://nytimes.com/2026/03/24/world/middleeast/lebanon-iran-envoy-expelled.html

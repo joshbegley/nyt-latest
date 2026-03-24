@@ -1,3 +1,7 @@
+**How to watch Oilers vs. Mammoth: Time, TV, streaming**\
+`Find out how to watch the Edmonton Oilers play the Utah Mammoth, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7144426/2026/03/24/oilers-vs-mammoth-stream-how-to-watch-march-24/
+
 **Lebanon Expels Iranian Envoy as Rift With Tehran Deepens**\
 `The decision by Lebanon’s foreign ministry has heightened fears of internal instability. Hezbollah, the Iranian-backed militant group and political party, was quick to condemn the move.`\
 https://nytimes.com/2026/03/24/world/middleeast/lebanon-iran-envoy-expelled.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/24/well/kennedy-uspstf-health-panel.html
 **The One Question Trump’s Judicial Picks Refuse to Answer**\
 `“Who won the 2020 election?” is the question that Trump’s nominees to the federal bench each refuse to answer in the same exact way.`\
 https://nytimes.com/2026/03/24/opinion/trump-judges-nominees-federal-courts.html
-
-**Life at $4 a Gallon**\
-`The war in Iran has sent gas prices soaring. Here’s what to know about how higher gas prices can change consumer behavior.`\
-https://nytimes.com/2026/03/24/climate/gas-prices-consumer-behavior.html
 
