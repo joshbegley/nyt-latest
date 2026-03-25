@@ -1,3 +1,7 @@
+**E.P.A. Waives Smog Rules on Summer Gasoline in Bid to Ease Prices**\
+`The moves will allow expanded sales of a higher-ethanol blend known as E15, which is often restricted in the summer.`\
+https://nytimes.com/2026/03/25/climate/epa-waive-smog-gas-ethanol.html
+
 **Tush push staying as NFL has no plans to discuss play at owners meeting**\
 `When NFL owners gather next week, they will deliberate over different rule proposals, but banning the tush push will not rank among them.`\
 https://nytimes.com/athletic/7146981/2026/03/25/tush-push-remains-nfl-league-meetings/

@@ -1,3 +1,7 @@
+**E.P.A. Waives Smog Rules on Summer Gasoline in Bid to Ease Prices**\
+`The moves will allow expanded sales of a higher-ethanol blend known as E15, which is often restricted in the summer.`\
+https://nytimes.com/2026/03/25/climate/epa-waive-smog-gas-ethanol.html
+
 **Tush push staying as NFL has no plans to discuss play at owners meeting**\
 `When NFL owners gather next week, they will deliberate over different rule proposals, but banning the tush push will not rank among them.`\
 https://nytimes.com/athletic/7146981/2026/03/25/tush-push-remains-nfl-league-meetings/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/25/technology/social-media-trial-verdict.html
 **How to watch Rangers vs. Maple Leafs: Time, TV, streaming**\
 `Find out how to watch the New York Rangers play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7146985/2026/03/25/rangers-vs-maple-leafs-stream-how-to-watch-march-25/
-
-**How to watch Bruins vs. Sabres: Time, TV, streaming**\
-`Find out how to watch the Boston Bruins play the Buffalo Sabres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7146983/2026/03/25/bruins-vs-sabres-stream-how-to-watch-march-25/
 
