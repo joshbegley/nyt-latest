@@ -1,3 +1,7 @@
+**Padres pitcher Yu Darvish agrees to go on restricted list**\
+`The move could create enough flexibility for San Diego to pursue Lucas Giolito, the top remaining starter in free agency.`\
+https://nytimes.com/athletic/7147685/2026/03/25/yu-darvish-padres-restricted-list/
+
 **Republicans in Congress Fret Over Iran War as Pentagon Offers Few Answers**\
 `G.O.P. lawmakers who have given the Trump administration wide latitude to wage war with no congressional input are growing frustrated as officials offer little detail about ground troops, cost or timeline.`\
 https://nytimes.com/2026/03/25/world/middleeast/republicans-congress-iran-war-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7147567/2026/03/25/womens-champions-league-quarterf
 **Day Care Worker Stole Millions for Trips and W.W.E. Tickets, U.S. Says**\
 `Murielle Misczak was arrested Wednesday morning and is accused of using the money on wrestling tickets, luxury vacations and food deliveries.`\
 https://nytimes.com/2026/03/25/nyregion/daycare-brooklyn-theft-wwe.html
-
-**A Canadian Supreme Court Case Could Test the Country’s Unity**\
-`Quebec’s ban on religious symbols — and a measure that suspends constitutional rights — are being tested in a case with far-reaching repercussions.`\
-https://nytimes.com/2026/03/25/world/americas/canada-supreme-court-religion-bill-21.html
 

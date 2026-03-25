@@ -1,3 +1,7 @@
+**Republicans in Congress Fret Over Iran War as Pentagon Offers Few Answers**\
+`G.O.P. lawmakers who have given the Trump administration wide latitude to wage war with no congressional input are growing frustrated as officials offer little detail about ground troops, cost or timeline.`\
+https://nytimes.com/2026/03/25/world/middleeast/republicans-congress-iran-war-trump.html
+
 **WNBA sets expansion draft for April 3 as Toronto and Portland begin to build rosters**\
 `Current teams can designate a maximum of five protected players who can't be chosen in the expansion draft.`\
 https://nytimes.com/athletic/7147626/2026/03/25/wnba-sets-expansion-draft-toronto-portland/

@@ -1,3 +1,7 @@
+**Republicans in Congress Fret Over Iran War as Pentagon Offers Few Answers**\
+`G.O.P. lawmakers who have given the Trump administration wide latitude to wage war with no congressional input are growing frustrated as officials offer little detail about ground troops, cost or timeline.`\
+https://nytimes.com/2026/03/25/world/middleeast/republicans-congress-iran-war-trump.html
+
 **WNBA sets expansion draft for April 3 as Toronto and Portland begin to build rosters**\
 `Current teams can designate a maximum of five protected players who can't be chosen in the expansion draft.`\
 https://nytimes.com/athletic/7147626/2026/03/25/wnba-sets-expansion-draft-toronto-portland/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/25/nyregion/daycare-brooklyn-theft-wwe.html
 **A Canadian Supreme Court Case Could Test the Country’s Unity**\
 `Quebec’s ban on religious symbols — and a measure that suspends constitutional rights — are being tested in a case with far-reaching repercussions.`\
 https://nytimes.com/2026/03/25/world/americas/canada-supreme-court-religion-bill-21.html
-
-**Leon Radvinsky, 43, Dies; Built the Adult-Entertainment Giant OnlyFans**\
-`By leveraging social media and the influencer economy, he turned his website into a byword for online pornography in the 21st century.`\
-https://nytimes.com/2026/03/25/business/media/leonid-radvinsky-dead.html
 
