@@ -1,3 +1,11 @@
+**Sweet 16 pressure gauge: Which NCAA Tournament coaches need to win most?**\
+`Let’s apply a pressure gauge to the 16 remaining coaches in the NCAA Tournament, ranked from most pressure to least.`\
+https://nytimes.com/athletic/7145260/2026/03/25/sweet-16-ncaa-tournament-coaches-pressure/
+
+**Can Fred Hoiberg keep it going? That's Nebrasketball's next question **\
+`This is the best story, the closest thing to a Cinderella, remaining in the tournament. That’s because of the program history unfolding.`\
+https://nytimes.com/athletic/7144788/2026/03/25/nebraska-fred-hoiberg-ncaa-tournament-sweet-16/
+
 **Chiefs NFL Draft big board: 5 players who make sense for each early pick**\
 `The Chiefs are most likely to target these two positions with their first pick in the 2026 NFL Draft.`\
 https://nytimes.com/athletic/7143644/2026/03/25/chiefs-nfl-draft-big-board-rueben-bain-jr/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7143398/2026/03/25/mlb-hitters-300-batting-francisc
 **Jason Robertson's next contract and how the Stars can make it fit**\
 `Robertson has leveled up this year with one of his best regular seasons yet. What does it mean for his value this summer as an RFA?`\
 https://nytimes.com/athletic/7144121/2026/03/25/jason-robertson-stars-next-contract/
-
-**How Carter Yakemchuk was prepared for his successful NHL debut, and what could be next**\
-`Ottawa Senators fans finally got to see their 2024 first-round pick, Yakemchuk, play in an NHL game after some development time.`\
-https://nytimes.com/athletic/7145397/2026/03/25/carter-yakemchuk-nhl-debut-senators/
-
-**Jesse Love on why 'everything counts all the time' and being ready for Cup: 12 Questions**\
-`Love, NASCAR's defending second-tier series champion, talks about moving to the Cup Series some day and more.`\
-https://nytimes.com/athletic/7140689/2026/03/25/jesse-love-richard-childress-racing-cup-series-12-questions/
 

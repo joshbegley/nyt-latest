@@ -1,3 +1,19 @@
+**Chiefs NFL Draft big board: 5 players who make sense for each early pick**\
+`The Chiefs are most likely to target these two positions with their first pick in the 2026 NFL Draft.`\
+https://nytimes.com/athletic/7143644/2026/03/25/chiefs-nfl-draft-big-board-rueben-bain-jr/
+
+**Manchester United Women's crucial seven days: How they can shape their future on the biggest stage**\
+`A historic Champions League quarter-final against Bayern Munich and a Manchester Derby at Old Trafford, the team faces its biggest week yet`\
+https://nytimes.com/athletic/7124972/2026/03/25/manchester-united-women-crucial-seven-days-champions-league/
+
+**Flyers squander another opportunity to get back into the playoff race**\
+`Philadelphia fell to the Columbus Blue Jackets — a team it is chasing — for the second time in 11 days at Xfinity Mobile Arena, 3-2.`\
+https://nytimes.com/athletic/7145683/2026/03/25/flyers-lose-blue-jackets-playoff-race/
+
+**Sidney Crosby places blame on himself after Penguins get blown out by Avalanche**\
+`For a second consecutive game, the Penguins were beaten up by a heavyweight, this time falling to the Avalanche. `\
+https://nytimes.com/athletic/7145482/2026/03/25/penguins-sidney-crosby-avalanche-blowout/
+
 **Winnable missed opportunity leaves Red Wings running out of time to rewrite March woes**\
 `A second consecutive regulation home loss has put the Red Wings in a precarious spot in the Eastern Conference playoff race.`\
 https://nytimes.com/athletic/7145585/2026/03/25/detroit-red-wings-ottawa-senators-march-playoffs/

@@ -1,3 +1,19 @@
+**Chiefs NFL Draft big board: 5 players who make sense for each early pick**\
+`The Chiefs are most likely to target these two positions with their first pick in the 2026 NFL Draft.`\
+https://nytimes.com/athletic/7143644/2026/03/25/chiefs-nfl-draft-big-board-rueben-bain-jr/
+
+**Manchester United Women's crucial seven days: How they can shape their future on the biggest stage**\
+`A historic Champions League quarter-final against Bayern Munich and a Manchester Derby at Old Trafford, the team faces its biggest week yet`\
+https://nytimes.com/athletic/7124972/2026/03/25/manchester-united-women-crucial-seven-days-champions-league/
+
+**Flyers squander another opportunity to get back into the playoff race**\
+`Philadelphia fell to the Columbus Blue Jackets — a team it is chasing — for the second time in 11 days at Xfinity Mobile Arena, 3-2.`\
+https://nytimes.com/athletic/7145683/2026/03/25/flyers-lose-blue-jackets-playoff-race/
+
+**Sidney Crosby places blame on himself after Penguins get blown out by Avalanche**\
+`For a second consecutive game, the Penguins were beaten up by a heavyweight, this time falling to the Avalanche. `\
+https://nytimes.com/athletic/7145482/2026/03/25/penguins-sidney-crosby-avalanche-blowout/
+
 **Winnable missed opportunity leaves Red Wings running out of time to rewrite March woes**\
 `A second consecutive regulation home loss has put the Red Wings in a precarious spot in the Eastern Conference playoff race.`\
 https://nytimes.com/athletic/7145585/2026/03/25/detroit-red-wings-ottawa-senators-march-playoffs/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7145397/2026/03/25/carter-yakemchuk-nhl-debut-senat
 **Jesse Love on why 'everything counts all the time' and being ready for Cup: 12 Questions**\
 `Love, NASCAR's defending second-tier series champion, talks about moving to the Cup Series some day and more.`\
 https://nytimes.com/athletic/7140689/2026/03/25/jesse-love-richard-childress-racing-cup-series-12-questions/
-
-**NFL mock draft: Cowboys move up for Jeremiyah Love, Ty Simpson sneaks into first round**\
-`While Fernando Mendoza is the favorite to be picked No. 1 overall, the rest of the draft's first round could feature a few twists and turns.`\
-https://nytimes.com/athletic/7128901/2026/03/25/nfl-mock-draft-betting-odds-2026/
-
-**'Didn't have anything': Bruins get what they deserve in zero-point flop**\
-`The Bruins' power play had three opportunities in the second period and came up empty each time in the 4-2 loss.`\
-https://nytimes.com/athletic/7145652/2026/03/25/bruins-maple-leafs-loss-marco-sturm-nikita-zadorov-jeremy-swayman/
-
-**2026 NHL prospect pool rankings: No. 16 Pittsburgh Penguins**\
-`The Penguins have transformed their pool over the last two seasons and now have a respectable collection of prospects.`\
-https://nytimes.com/athletic/7002561/2026/03/25/pittsburgh-penguins-nhl-prospect-rankings-2026/
-
-**NBA awards voting is unnecessarily complicated for players and voters. Why?**\
-`Voting on the awards makes media members part of the league's history. It also subjects us to avoidable scrutiny.`\
-https://nytimes.com/athletic/7145123/2026/03/25/nba-awards-voting-complications-65-game-rule/
 
