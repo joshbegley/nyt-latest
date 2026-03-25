@@ -1,3 +1,7 @@
+**UNC, basketball coach Hubert Davis split after historic tournament loss**\
+`In three of the past four seasons, North Carolina, the winningest team in tournament history, failed to advance to the round of 32. `\
+https://nytimes.com/athletic/7136043/2026/03/24/hubert-davis-resigns-unc-basketball-coach-north-carolina/
+
 **LeBron James' partner advising Project B league as it seeks to lure NBA players**\
 `Grady Burnett, one of Project B’s co-founders, says he hasn't spoken to LeBron James, 41, about joining the league.`\
 https://nytimes.com/athletic/7145224/2026/03/24/project-b-nba-player-talent-lure-lebron-maverick-carter/
