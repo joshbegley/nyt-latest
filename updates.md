@@ -1,3 +1,7 @@
+**Greaves helps Blue Jackets survive sloppy first period, claim second in Metro**\
+`The Blue Jackets leapfrogged the Penguins to take possession of second in their division, heights they haven't hit in some time.`\
+https://nytimes.com/athletic/7145509/2026/03/24/blue-jackets-greaves-werenski-first-period-flyers/
+
 **Somali Immigrants Have Effectively Been Denied a Fair Hearing, Lawsuit Says**\
 `Two Minnesota-based legal groups accused the Justice Department of unconstitutionally expediting Somalis’ immigration cases.`\
 https://nytimes.com/2026/03/24/us/dhs-fast-track-somali-deportations-lawsuit.html
