@@ -1,3 +1,7 @@
+**Jury Awards Chance the Rapper $35 in Legal Fight With Former Manager**\
+`The former manager, Pat Corcoran, sued in 2020, seeking $3.8 million in unpaid royalties. Chance countersued for $1 million. The legal battle ended last week in what amounted to a draw.`\
+https://nytimes.com/2026/03/25/arts/music/chance-the-rapper-manager-lawsuit.html
+
 **Storms Forecast to Bring Heavy Rain Across the Middle East**\
 `Some places could record a year’s worth of rain this week.`\
 https://nytimes.com/2026/03/25/weather/iran-uae-storm-flooding-rain.html

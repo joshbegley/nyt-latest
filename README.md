@@ -1,3 +1,23 @@
+**Stir-Fried Salt and Pepper Dumplings**\
+`Frozen potstickers get the stir-fry treatment in this speedy, comforting weeknight dinner that comes together in one pan.`\
+https://nytimes.com/video/dining/100000010798059/stir-fried-salt-and-pepper-dumplings.html
+
+**Restaurant Review: Gymkhana in Las Vegas**\
+`Gymkhana, one of the most acclaimed restaurants in England, is now open on the Las Vegas Strip. Tejal Rao, a chief restaurant critic for The New York Times, shares her review.`\
+https://nytimes.com/video/dining/100000010798063/restaurant-review-gymkhana-in-las-vegas.html
+
+**Where to Eat: N.Y.C.**\
+`Luke Fortney is eating at restaurants more than any human ever should. Here’s a week in the life of a food writer, and some of the dishes that stood out around New York City.`\
+https://nytimes.com/video/dining/100000010798070/where-to-eat-nyc.html
+
+**Tomato Lentil Stew With Crispy Potato**\
+`This hearty one-pot stew makes the most out of kitchen staples thanks to some smart cooking strategies. Carrot, celery and onion are familiar vegetables for creating an aromatic base, but here, cutting them slightly larger gives them a more prominent presence and flavor in the stew.`\
+https://nytimes.com/video/dining/100000010798068/tomato-lentil-stew-with-crispy-potato.html
+
+**Kefte Tagine With Jalapeño Yogurt Sauce**\
+`This tagine is a classic Moroccan dish of kefte, or minced meat, simmered in a gently spiced tomato sauce until tender and full of flavor.`\
+https://nytimes.com/video/dining/100000010798066/kefte-tagine-with-jalapeno-yogurt-sauce.html
+
 **Jury Awards Chance the Rapper $35 in Legal Fight With Former Manager**\
 `The former manager, Pat Corcoran, sued in 2020, seeking $3.8 million in unpaid royalties. Chance countersued for $1 million. The legal battle ended last week in what amounted to a draw.`\
 https://nytimes.com/2026/03/25/arts/music/chance-the-rapper-manager-lawsuit.html
@@ -17,24 +37,4 @@ https://nytimes.com/2026/03/25/world/africa/boubacar-ould-messaoud-dead.html
 **MLS Commissioner would 'love to see' Liverpool's Salah in U.S.**\
 `Don Garber said "we would provide him with a great platform" and the Egyptian forward would be "great" in MLS. `\
 https://nytimes.com/athletic/7147226/2026/03/25/mohamed-salah-mls-commissioner-liverpool-transfer-news/
-
-**Super Bowl expected to return to Las Vegas' Allegiant Stadium in 2029: Source**\
-`This would be the second time Las Vegas hosts the NFL's marquee event.`\
-https://nytimes.com/athletic/7147267/2026/03/25/super-bowl-63-las-vegas-allegiant-stadium/
-
-**Pakistan’s Army Chief Uses Relationship With Trump to Foster Talks with Iran**\
-`Syed Asim Munir’s role demonstrates Islamabad’s acute exposure to regional instability and newly found geopolitical relevance.`\
-https://nytimes.com/2026/03/25/world/middleeast/syed-asim-munir-pakistan-who.html
-
-**Inter Miami, LA Galaxy interested in signing Man Utd's Casemiro in summer**\
-`The Brazil international announced in January he would leave the Premier League side at the end of the season. `\
-https://nytimes.com/athletic/6993597/2026/03/25/casemiro-inter-miami-la-galaxy-mls-man-utd-transfer-news/
-
-**The Good List: 8 Things to Add Delight to Your Day**\
-`March Madness madness, better small talk and the morality of sandwiches.`\
-https://nytimes.com/2026/03/25/briefing/the-good-list-march-madness-desert-flowers.html
-
-**Seahawks to open 2026 NFL season on a Wednesday; 49ers-Rams kick off Thursday**\
-`A belated Labor Day prevents the NFL from scheduling a Friday game in Week 1, so the traditional season kickoff game was moved to Wednesday.`\
-https://nytimes.com/athletic/7147182/2026/03/25/nfl-2026-season-opener-seahawks-49ers-rams-australia/
 
