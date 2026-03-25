@@ -1,9 +1,25 @@
+**Heisuke Hironaka, Groundbreaking Mathematician, Is Dead at 94**\
+`A recipient of his profession’s prestigious Fields Medal, he devised an algorithm that helps solve mathematical “singularities.” It now permeates the field.`\
+https://nytimes.com/2026/03/25/science/heisuke-hironaka-dead.html
+
+**Victor Hedman takes temporary leave from Lightning for personal reasons**\
+`Hedman has played in only 33 of the Lightning's 70 games in 2025-26.`\
+https://nytimes.com/athletic/7147422/2026/03/25/victor-hedman-lightning-personal-reasons-leave/
+
+**The Cast of ‘Laguna Beach’ Reunites Onscreen After 20 Years**\
+`The show, which depicted the lives of a group of wealthy high schoolers and helped to pioneer a genre of soap-style reality TV, will return in April with a reunion special.`\
+https://nytimes.com/2026/03/25/style/laguna-beach-reunion-roku-mtv.html
+
+**From Serial Productions: The Idiot**\
+`The New York Times writer M. Gessen always disliked their younger cousin Allen. But then he did something so bad, even M. was surprised – and they realized they didn’t know Allen at all.`\
+https://nytimes.com/2026/03/25/podcasts/serial-the-idiot-mgessen-intro-video.html
+
 **The Good List**\
 ``\
 https://nytimes.com/series/the-good-list
 
 **Four Things to Know About a Democrat’s Win in Trump’s Backyard**\
-`A mother of three and won a statehouse seat that includes Mar-a-Lago, while a union electrician leads in a State Senate race in conservative West Tampa.`\
+`A mother of three won a statehouse seat that includes Mar-a-Lago, while a union electrician leads in a State Senate race in conservative West Tampa.`\
 https://nytimes.com/2026/03/25/us/politics/florida-democrat-races.html
 
 **Are Dynasties Good for Baseball?**\
@@ -21,20 +37,4 @@ https://nytimes.com/video/dining/100000010798059/stir-fried-salt-and-pepper-dump
 **Restaurant Review: Gymkhana in Las Vegas**\
 `Gymkhana, one of the most acclaimed restaurants in England, is now open on the Las Vegas Strip. Tejal Rao, a chief restaurant critic for The New York Times, shares her review.`\
 https://nytimes.com/video/dining/100000010798063/restaurant-review-gymkhana-in-las-vegas.html
-
-**Where to Eat: N.Y.C.**\
-`Luke Fortney is eating at restaurants more than any human ever should. Here’s a week in the life of a food writer, and some of the dishes that stood out around New York City.`\
-https://nytimes.com/video/dining/100000010798070/where-to-eat-nyc.html
-
-**Tomato Lentil Stew With Crispy Potato**\
-`This hearty one-pot stew makes the most out of kitchen staples thanks to some smart cooking strategies. Carrot, celery and onion are familiar vegetables for creating an aromatic base, but here, cutting them slightly larger gives them a more prominent presence and flavor in the stew.`\
-https://nytimes.com/video/dining/100000010798068/tomato-lentil-stew-with-crispy-potato.html
-
-**Kefte Tagine With Jalapeño Yogurt Sauce**\
-`This tagine is a classic Moroccan dish of kefte, or minced meat, simmered in a gently spiced tomato sauce until tender and full of flavor.`\
-https://nytimes.com/video/dining/100000010798066/kefte-tagine-with-jalapeno-yogurt-sauce.html
-
-**Jury Awards Chance the Rapper $35 in Legal Fight With Former Manager**\
-`The former manager, Pat Corcoran, sued in 2020, seeking $3.8 million in unpaid royalties. Chance countersued for $1 million. The legal battle ended last week in what amounted to a draw.`\
-https://nytimes.com/2026/03/25/arts/music/chance-the-rapper-manager-lawsuit.html
 

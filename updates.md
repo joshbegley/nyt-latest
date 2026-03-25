@@ -1,3 +1,23 @@
+**Heisuke Hironaka, Groundbreaking Mathematician, Is Dead at 94**\
+`A recipient of his profession’s prestigious Fields Medal, he devised an algorithm that helps solve mathematical “singularities.” It now permeates the field.`\
+https://nytimes.com/2026/03/25/science/heisuke-hironaka-dead.html
+
+**Victor Hedman takes temporary leave from Lightning for personal reasons**\
+`Hedman has played in only 33 of the Lightning's 70 games in 2025-26.`\
+https://nytimes.com/athletic/7147422/2026/03/25/victor-hedman-lightning-personal-reasons-leave/
+
+**The Cast of ‘Laguna Beach’ Reunites Onscreen After 20 Years**\
+`The show, which depicted the lives of a group of wealthy high schoolers and helped to pioneer a genre of soap-style reality TV, will return in April with a reunion special.`\
+https://nytimes.com/2026/03/25/style/laguna-beach-reunion-roku-mtv.html
+
+**From Serial Productions: The Idiot**\
+`The New York Times writer M. Gessen always disliked their younger cousin Allen. But then he did something so bad, even M. was surprised – and they realized they didn’t know Allen at all.`\
+https://nytimes.com/2026/03/25/podcasts/serial-the-idiot-mgessen-intro-video.html
+
+**Four Things to Know About a Democrat’s Win in Trump’s Backyard**\
+`A mother of three won a statehouse seat that includes Mar-a-Lago, while a union electrician leads in a State Senate race in conservative West Tampa.`\
+https://nytimes.com/2026/03/25/us/politics/florida-democrat-races.html
+
 **The Good List**\
 ``\
 https://nytimes.com/series/the-good-list
