@@ -1,3 +1,7 @@
+**LeBron James' partner advising Project B league as it seeks to lure NBA players**\
+`Grady Burnett, one of Project B’s co-founders, says he hasn't spoken to LeBron James, 41, about joining the league.`\
+https://nytimes.com/athletic/7145224/2026/03/24/project-b-nba-player-talent-lure-lebron-maverick-carter/
+
 **Around 2,000 U.S. Paratroopers to Be Sent to the Middle East**\
 `The order gives President Trump more options militarily as he considers diplomacy with Iran. It is unclear where the soldiers will go in the Middle East.`\
 https://nytimes.com/2026/03/24/us/politics/82nd-airborne-division-iran-troops.html
