@@ -1,3 +1,7 @@
+**The Sweet 16 rivalry renewal no one saw coming**\
+`Iowa-Nebraska is the March meet-up that no one envisioned before Selection Sunday — and no one expected until the matchup was set.`\
+https://nytimes.com/athletic/7145369/2026/03/25/iowa-nebraska-sweet-16-basketball-series/
+
 **Experts don’t believe the Twins can win in 2026. The team doesn’t agree**\
 `“I don't think our guys really give a s---” about projections, said starting pitcher Bailey Ober.`\
 https://nytimes.com/athletic/7144292/2026/03/25/minnesota-twins-season-preview-predictions/
