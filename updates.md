@@ -1,3 +1,19 @@
+**What Happens When We Die? This Poem Has Thoughts.**\
+`A.O. Scott contemplates the great unknown in Wallace Stevens’s “Of Mere Being.”`\
+https://nytimes.com/interactive/2026/03/25/books/wallace-stevens-of-mere-being-poetry.html
+
+**Meta and YouTube Found Negligent in Landmark Social Media Addiction Case**\
+`A jury found the companies negligent in their app designs, harming a young user with design features that were addictive and led to her mental health distress.`\
+https://nytimes.com/2026/03/25/technology/social-media-trial-verdict.html
+
+**How to watch Rangers vs. Maple Leafs: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7146985/2026/03/25/rangers-vs-maple-leafs-stream-how-to-watch-march-25/
+
+**How to watch Bruins vs. Sabres: Time, TV, streaming**\
+`Find out how to watch the Boston Bruins play the Buffalo Sabres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7146983/2026/03/25/bruins-vs-sabres-stream-how-to-watch-march-25/
+
 **How to watch Yankees vs. Giants: Time, TV, streaming for March 25**\
 `Find out how to watch the New York Yankees play the San Francisco Giants, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7146964/2026/03/25/yankees-vs-giants-stream-how-to-watch-march-25/
