@@ -1,3 +1,7 @@
+**Fight night, disallowed goal and unlucky bounce sink Wild vs. Lightning: Takeaways**\
+`The lopsided final score didn't do justice to just how tight the game between two Stanley Cup contenders truly was.`\
+https://nytimes.com/athletic/7145792/2026/03/25/wild-gustavsson-fumble-disallowed-goal-fight-mccarron-foligno-lightning/
+
 **Why a Strong Butt Is Key to Healthy Aging**\
 `The benefits of a strong butt go beyond just aesthetics. A robust body of research shows that strengthening your glutes is important to healthy aging and longevity. Erik Vance, a senior staff editor for Well, explains.`\
 https://nytimes.com/video/well/100000010781737/why-a-strong-butt-is-key-to-healthy-aging.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/03/24/us/laguardia-crash-timeline-air-canad
 **'It still feels like a dream': Anton Frondell makes NHL debut in Blackhawks' win**\
 `Coach Jeff Blashill liked the decision Frondell made with the puck on the play that resulted in his first NHL point.`\
 https://nytimes.com/athletic/7144609/2026/03/24/blackhawks-anton-frondell-nhl-debut-dream/
-
-**Greaves helps Blue Jackets survive sloppy first period, claim second in Metro**\
-`The Blue Jackets leapfrogged the Penguins to take possession of second in their division, heights they haven't hit in some time.`\
-https://nytimes.com/athletic/7145509/2026/03/24/blue-jackets-greaves-werenski-first-period-flyers/
 
