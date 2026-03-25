@@ -18,7 +18,7 @@ https://nytimes.com/interactive/2026/03/25/world/europe/uk-canterbury-archbishop
 `Going out on a limb with a trio of low-probability, high-impact and increasingly bold predictions about the 2026 Minnesota Twins.`\
 https://nytimes.com/athletic/7141638/2026/03/25/twins-predictions-2026-season/
 
-**Real Madrid will transform Bernabéu from grass soccer pitch to clay tennis courts for Madrid Open**\
+**Real Madrid will transform Bernabéu from soccer pitch to tennis courts for Madrid Open**\
 `The stadium will be used as a practice facility for the tournament, which starts April 20.`\
 https://nytimes.com/athletic/7146128/2026/03/25/tennis-madrid-open-bernabeu-practice-courts/
 
