@@ -1,3 +1,11 @@
+**Man United transfers: Debating Shaw, Dalot, Onana and the future of the club's back line**\
+`Ian Irving, Laurie Whitwell, Carl Anka and Andy Mitten run the rule over the club’s defenders and goalkeepers`\
+https://nytimes.com/athletic/7146545/2026/03/25/manchester-united-transfers-shaw-onana-maguire/
+
+**Tracy Kidder, Author of ‘The Soul of a New Machine,’ Dies at 80**\
+`A Pulitzer Prize-winning narrative journalist, he wrote deeply reported books that often focused on heroic goodness in people.`\
+https://nytimes.com/2026/03/25/books/tracy-kidder-dead.html
+
 **New Jersey Bars ICE and Other Law Enforcement Agents From Wearing Masks**\
 `Federal officials said they would “not abide” by the new law, which is likely to lead to a showdown in court.`\
 https://nytimes.com/2026/03/25/nyregion/nj-mask-ban-police-ice.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7145957/2026/03/25/canucks-highlights-zeev-buium-to
 **NBA governors approve vote to explore expansion to Seattle and Las Vegas**\
 `“I am looking forward to welcoming the team when it gets here," Las Vegas mayor Shelley Berkley told The Athletic this week.`\
 https://nytimes.com/athletic/7146445/2026/03/25/nba-expansion-seattle-las-vegas-vote/
-
-**Man avoids prison for racist, sexist social media abuse of Carter**\
-`Nigel Dewale, 59, was given a six-week sentence, suspended for 12 months.`\
-https://nytimes.com/athletic/7146112/2026/03/25/jess-carter-sentencing-abuse/
-
-**How to watch Hawks vs. Pistons: Time, TV, streaming**\
-`Find out how to watch the Atlanta Hawks play the Detroit Pistons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7146645/2026/03/25/hawks-vs-pistons-stream-how-to-watch-march-25/
 
