@@ -1,3 +1,7 @@
+**Chaucer, Murder, Pilgrims: What Do You Know About Canterbury and Its Archbishops?**\
+`As a new archbishop of Canterbury is enthroned, test your knowledge of the cathedral city and its landmark moments.`\
+https://nytimes.com/interactive/2026/03/25/world/europe/uk-canterbury-archbishop-quiz.html
+
 **Three bold Twins predictions for 2026**\
 `Going out on a limb with a trio of low-probability, high-impact and increasingly bold predictions about the 2026 Minnesota Twins.`\
 https://nytimes.com/athletic/7141638/2026/03/25/twins-predictions-2026-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7143468/2026/03/25/mavericks-fans-misery-east-playo
 **Three bold Padres predictions for the 2026 season**\
 `The Padres are approaching a crossroads and much change is expected this season. Here are three predictions on what we might see. `\
 https://nytimes.com/athletic/7141961/2026/03/25/padres-predictions-2026-mlb/
-
-**As Gas Prices Spike, California Is Hit Hardest**\
-`A gallon has climbed to nearly $6 in the state, about $2 above the national average.`\
-https://nytimes.com/2026/03/25/business/energy-environment/iran-california-gas-prices.html
 
