@@ -1,3 +1,11 @@
+**The Good List**\
+``\
+https://nytimes.com/series/the-good-list
+
+**Four Things to Know About a Democrat’s Win in Trump’s Backyard**\
+`A mother of three and won a statehouse seat that includes Mar-a-Lago, while a union electrician leads in a State Senate race in conservative West Tampa.`\
+https://nytimes.com/2026/03/25/us/politics/florida-democrat-races.html
+
 **Are Dynasties Good for Baseball?**\
 `The Los Angeles Dodgers won back-to-back World Series and are the top contender for the title again as the baseball season opens. The Athletic’s M.L.B. writers sound off on whether dynasties are good or bad for the sport.`\
 https://nytimes.com/video/the-athletic/100000010800698/are-dynasties-good-for-baseball.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/dining/100000010798066/kefte-tagine-with-jalapeno-yogu
 **Jury Awards Chance the Rapper $35 in Legal Fight With Former Manager**\
 `The former manager, Pat Corcoran, sued in 2020, seeking $3.8 million in unpaid royalties. Chance countersued for $1 million. The legal battle ended last week in what amounted to a draw.`\
 https://nytimes.com/2026/03/25/arts/music/chance-the-rapper-manager-lawsuit.html
-
-**Storms Forecast to Bring Heavy Rain Across the Middle East**\
-`Some places could record a year’s worth of rain this week.`\
-https://nytimes.com/2026/03/25/weather/iran-uae-storm-flooding-rain.html
-
-**U.S. Circulates Iran Peace Plan While Sending Troops to the Middle East**\
-`The 2,000 paratroopers heading to the region may give President Trump more leverage in negotiations, but they also leave him with the option of doubling down on military force.`\
-https://nytimes.com/2026/03/25/us/politics/iran-peace-plan-talks-trump.html
 
