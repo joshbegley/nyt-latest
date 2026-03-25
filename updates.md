@@ -1,3 +1,7 @@
+**Grizzlies announce Ja Morant to miss rest of season after left elbow injection**\
+`Morant will finish the season with only 20 games played, marking the second-fewest of his seven-year NBA career.`\
+https://nytimes.com/athletic/7145619/2026/03/24/ja-morant-season-over-left-elbow-injection/
+
 **Around 2,000 U.S. Paratroopers to Be Sent to the Middle East**\
 `The order gives President Trump more military options as he considers diplomacy with Iran. It is unclear where the soldiers will go in the Middle East.`\
 https://nytimes.com/2026/03/24/us/politics/82nd-airborne-division-iran-troops.html
