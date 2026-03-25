@@ -1,3 +1,11 @@
+**Trump to Delay Nominating New C.D.C. Director**\
+`The administration has yet to find a candidate who aligns with Health Secretary Robert F. Kennedy Jr.’s agenda while avoiding his unpopular stance on vaccines.`\
+https://nytimes.com/2026/03/25/health/cdc-director-nomination-delay.html
+
+**A Pastor Called for a Democrat to Be ‘Crucified With Christ.’ Was It a Threat?**\
+`James Talarico, the Democratic nominee for Senate in Texas, said, “You may pray for my death, Pastor, but I still love you.” The pastor said he was calling for Mr. Talarico’s religious conversion.`\
+https://nytimes.com/2026/03/25/us/politics/talarico-response-love-pastor-hegseth-crucified-christ.html
+
 **Asia Is Getting Crushed Between Oil Prices and the Dollar**\
 `From India to Southeast Asia to South Korea, currencies are crumbling as governments race to secure fuel that is priced in American money.`\
 https://nytimes.com/2026/03/25/business/iran-war-dollar-rupee-won.html
