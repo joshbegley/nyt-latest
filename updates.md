@@ -1,3 +1,11 @@
+**Maryland’s Supreme Court Strikes Down Baltimore’s Climate Lawsuit**\
+`The decision represents a setback to other local governments around the country that have sued oil companies to recoup the mounting costs of climate change.`\
+https://nytimes.com/2026/03/24/climate/baltimore-climate-lawsuit.html
+
+**What It’s Like to Stand in an Airport Security Line for Hours**\
+`Scenes from extra long lines at two airports, and a surprising discovery at a third.`\
+https://nytimes.com/2026/03/24/us/tsa-airports-houston-atlanta-newark.html
+
 **LaGuardia Crash Tests New Port Authority Leader**\
 `Kathryn Garcia, who began leading the agency in February, consoled two injured firefighters and dealt with delays at the three big airports serving New York City.`\
 https://nytimes.com/2026/03/24/nyregion/port-authority-laguardia-crash-firefighters.html
