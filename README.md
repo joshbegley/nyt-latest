@@ -1,3 +1,15 @@
+**Trump Says He’s Talking With Iran. Iran Says He’s Not. Here’s Why.**\
+`The president has domestic and international political motivations for touting negotiations to end the war. Iran has similar ones to deny discussions.`\
+https://nytimes.com/2026/03/25/world/middleeast/trump-iran-talks-contradiction.html
+
+**Reds place Nick Lodolo, Caleb Ferguson on IL, set Opening Day roster**\
+`Rhett Lowder will replace Lodolo in the Reds' rotation and is scheduled to start Sunday versus the Boston Red Sox.`\
+https://nytimes.com/athletic/7146797/2026/03/25/reds-opening-day-roster-nick-lodolo-caleb-ferguson/
+
+**Former Google Executive Named New Head of the BBC**\
+`Matt Brittin, the former president of Google in Europe, will become the new director general. Among the items on his to-do list: handling a lawsuit from President Trump.`\
+https://nytimes.com/2026/03/25/world/europe/matt-brittin-bbc-director-general.html
+
 **Stephen Colbert Is Writing a New ‘Lord of the Rings’ Movie**\
 `In an announcement video with the director Peter Jackson, the late-night host said he was developing a new film based on early chapters of the trilogy.`\
 https://nytimes.com/2026/03/25/movies/stephen-colbert-lord-of-the-rings.html
@@ -17,20 +29,4 @@ https://nytimes.com/2026/03/25/opinion/billionaires-democracy.html
 **Israel Races to Hit Iran Hard While It Still Can, Leery of Possible Talks, Officials Say**\
 `Prime Minister Benjamin Netanyahu gave the order on Tuesday for the military to accelerate its attacks, with a 48-hour deadline, four people briefed on the matter said.`\
 https://nytimes.com/2026/03/25/world/middleeast/israel-attacks-iran-ceasefire-plan.html
-
-**Fifth-tier Morecambe hit with winding up petition**\
-`The petition was filed on March 16 by KPM Groundworks Ltd., a construction company specialising in sports ground maintenance.`\
-https://nytimes.com/athletic/7146536/2026/03/25/morecambe-national-league-winding-up-petition-financial/
-
-**Iranians Reject Trump’s Offer for Cease-Fire but Signal Openness to Talks**\
-`Iran does not want a momentary pause in the fighting, fearing that Israel and the United States would use that opportunity to beef up their forces before resuming strikes.`\
-https://nytimes.com/2026/03/25/world/middleeast/iran-talks-cease-fire.html
-
-**Some States Already Preparing for Potential Supreme Court Ban on Late Ballots**\
-`The court’s conservatives appear skeptical of laws allowing mail ballots to arrive after Election Day. A decision could come as late as June, potentially scrambling midterm elections.`\
-https://nytimes.com/2026/03/25/us/politics/supreme-court-mail-ballots-states.html
-
-**Israel Keeps Up Strikes in Lebanon as Hezbollah Signals Defiance**\
-`There were few signs that either side was prepared to step back from the fighting. Israel said it struck an area south of Beirut and issued new evacuation warnings.`\
-https://nytimes.com/2026/03/25/world/middleeast/israel-lebanon-hezbollah.html
 
