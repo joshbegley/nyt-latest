@@ -1,3 +1,15 @@
+**Who Is Pakistan’s Syed Asim Munir?**\
+`Pakistan’s army chief is using his close relationship with President Trump to try to foster talks between Iran and the United States.`\
+https://nytimes.com/2026/03/25/world/middleeast/who-is-pakistans-syed-asim-munir.html
+
+**Inter Miami, LA Galaxy interested in signing Man Utd's Casemiro in summer**\
+`The Brazil international announced in January he would leave the Premier League side at the end of the season. `\
+https://nytimes.com/athletic/6993597/2026/03/25/casemiro-inter-miami-la-galaxy-mls-man-utd-transfer-news/
+
+**The Good List: 8 Things to Add Delight to Your Day**\
+`March Madness madness, better small talk and the morality of sandwiches.`\
+https://nytimes.com/2026/03/25/briefing/the-good-list-march-madness-desert-flowers.html
+
 **Seahawks to open 2026 NFL season on a Wednesday; 49ers-Rams kick off Thursday**\
 `A belated Labor Day prevents the NFL from scheduling a Friday game in Week 1, so the traditional season kickoff game was moved to Wednesday.`\
 https://nytimes.com/athletic/7147182/2026/03/25/nfl-2026-season-opener-seahawks-49ers-rams-australia/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7147134/2026/03/25/remco-evenepoel-jonas-vingegaard
 **Meta Lays Off 700 Employees, While Rewarding Top Executives**\
 `The jobs cuts and a new stock program for executives come as Meta continues to shift its focus to artificial intelligence.`\
 https://nytimes.com/2026/03/25/technology/meta-layoffs-ai-executives.html
-
-**As World Cup nears, USMNT's center back corps remains uncertain, unsettled**\
-`The U.S. is blessed with satisfactory depth at most positions, but when it comes to defense, it's a central issue for Mauricio Pochettino`\
-https://nytimes.com/athletic/7146798/2026/03/25/usmnt-world-cup-center-backs-richards-ream-pochettino/
-
-**How to watch Rockets vs. Timberwolves: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7147217/2026/03/25/rockets-vs-timberwolves-stream-how-to-watch-march-25/
-
-**How to watch Nets vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the Brooklyn Nets play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7147214/2026/03/25/nets-vs-warriors-stream-how-to-watch-march-25/
 
