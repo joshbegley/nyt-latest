@@ -1,3 +1,7 @@
+**Put a New Tag On**\
+`Don’t think twice — or do? — about solving Jeff Stillman’s crossword.`\
+https://nytimes.com/2026/03/24/crosswords/daily-puzzle-2026-03-25.html
+
 **Oil Prices Tumble 6% as Trump Shows Eagerness to Talk to Iran**\
 `Investors reacted to signals of possible de-escalation of the war in the Middle East.`\
 https://nytimes.com/2026/03/24/business/oil-stock-gas-prices-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/24/us/politics/82nd-airborne-division-iran-troops.ht
 **Iran Says ‘Non-Hostile’ Ships Can Sail Through the Strait of Hormuz**\
 `Ships with no ties to Israel or the United States would be allowed to pass, the government said, but it was unclear if any vessels would try.`\
 https://nytimes.com/2026/03/24/world/middleeast/iran-strait-of-hormuz-ships.html
-
-**Sports card lawsuit against Fanatics, MLB, NBA and NFL dismissed**\
-`The lawsuit came in the wake of Panini's claims against Fanatics.`\
-https://nytimes.com/athletic/7145186/2026/03/24/fanatics-nba-nfl-mlb-lawsuit/
 
