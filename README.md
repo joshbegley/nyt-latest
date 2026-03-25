@@ -1,3 +1,19 @@
+**'I wouldn't want to walk off the field' - Clyde Best on football's ongoing racism problem**\
+`Former West Ham United striker Best suffered from racism as a player in the 1960s and 70s, but doesn't agree with modern protocols`\
+https://nytimes.com/athletic/7125005/2026/03/25/clyde-best-west-ham-racism/
+
+**Why can't Leeds score goals?**\
+`Leeds have scored one open play goal in their last six games — Beren Cross breaks down the issues`\
+https://nytimes.com/athletic/7144436/2026/03/25/leeds-goals-problems-issues-analysis/
+
+**Crystal Palace and a season of two halves - has it been as stark as it seems?**\
+`Palace's form fell off a cliff after the Conference League win at Shelbourne in mid-December as their toils against low blocks were exposed`\
+https://nytimes.com/athletic/7132533/2026/03/25/crystal-palace-glasner-season-guehi-data/
+
+**The Champions League legend around Real Madrid’s enigmatic backup goalkeeper**\
+`With Thibaut Courtois out injured, his Ukrainian understudy once again has a big chance to shine, with titles on the line`\
+https://nytimes.com/athletic/7143030/2026/03/25/real-madrid-lunin-champions-league-courtois-injury/
+
 **Farewell Mohamed Salah, a player who meant more**\
 `There is no risk in suggesting that Salah will go down as one of Liverpool's — and the Premier League's — all-time greats`\
 https://nytimes.com/athletic/7144985/2026/03/25/mohamed-salah-liverpool-exit-column/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7141743/2026/03/25/world-cup-intercontinental-play-
 **Managers on the rise: Inigo Perez – dynamic, intense and inspired by Andoni Iraola**\
 `The Rayo Vallecano head coach is meticulous and making a name for himself in Spain and beyond at an unheralded club`\
 https://nytimes.com/athletic/7134535/2026/03/25/managers-on-the-rise-inigo-perez/
-
-**The hairdresser who flies transatlantic to cut footballers' hair: 'They want a piece of Argentina'**\
-`Diego del Casale lists Chelsea star Enzo Fernandez and Atletico Madrid's Julian Alvarez among his clients`\
-https://nytimes.com/athletic/7135921/2026/03/25/premier-league-enzo-fernandez-julian-alvarez-hairdresser/
-
-**How 11 Premier League teams can play in Europe next season**\
-`Breaking down the permutations that could see more than half the top-flight compete in Europe during 2026-27`\
-https://nytimes.com/athletic/7143304/2026/03/25/eleven-premier-league-teams-qualify-europe/
-
-**The New York Times in Print for Wednesday, March 25, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/03/25/todays-new-york-times
-
-**Putin Was Under Pressure. Then Came the War in Iran.**\
-`In one swoop, it overturned the conditions for conciliation.`\
-https://nytimes.com/2026/03/25/opinion/russia-putin-iran-war.html
 
