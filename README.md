@@ -1,32 +1,36 @@
+**Salah, the Egyptian idol who trod a seemingly impossible path to Premier League summit**\
+`Mohamed Salah created his own path to the top of the Premier League. His story has had an incredible impact on his homeland.`\
+https://nytimes.com/athletic/7146011/2026/03/25/mohamed-salah-egypt-background-premier-league/
+
+**How to watch Spurs vs. Grizzlies: Time, TV, streaming**\
+`Find out how to watch the San Antonio Spurs play the Memphis Grizzlies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7146941/2026/03/25/spurs-vs-grizzlies-stream-how-to-watch-march-25/
+
+**How to watch Wizards vs. Jazz: Time, TV, streaming**\
+`Find out how to watch the Washington Wizards play the Utah Jazz, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7146937/2026/03/25/wizards-vs-jazz-stream-how-to-watch-march-25/
+
+**Astros Jeremy Peña makes Opening Day roster, reigniting infield surplus questions**\
+`The team had planned for Carlos Correa to play shortstop in Peña’s absence and shift Isaac Paredes back to third base.`\
+https://nytimes.com/athletic/7146870/2026/03/25/astros-jeremy-pena-fracture-opening-day/
+
+**How to watch Thunder vs. Celtics: Time, TV, streaming**\
+`Find out how to watch the Oklahoma City Thunder play the Boston Celtics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7146929/2026/03/25/thunder-vs-celtics-stream-how-to-watch-march-25/
+
+**How to watch Heat vs. Cavaliers: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7146923/2026/03/25/heat-vs-cavaliers-stream-how-to-watch-march-25/
+
+**The 10 most important baseball cards of all time**\
+`The Athletic's writers and editors who collect come together to determine the most impactful baseball cards ever made. `\
+https://nytimes.com/athletic/7145353/2026/03/25/baseball-cards-most-important-mickey-mantle-honus-wagner/
+
+**Bad Boys reboot? How these Pistons are bringing physicality back to the NBA**\
+`Pistons teams of old would be proud of the way this current Detroit mix has surged to the top of the NBA's Eastern Conference. `\
+https://nytimes.com/athletic/7140750/2026/03/25/pistons-bad-boys-video-highlights-defense/
+
 **Trump Says He’s Talking With Iran. Iran Says He’s Not. Here’s Why.**\
 `The president has domestic and international political motivations for touting negotiations to end the war. Iran has similar ones to deny discussions.`\
 https://nytimes.com/2026/03/25/world/middleeast/trump-iran-talks-contradiction.html
-
-**Reds place Nick Lodolo, Caleb Ferguson on IL, set Opening Day roster**\
-`Rhett Lowder will replace Lodolo in the Reds' rotation and is scheduled to start Sunday versus the Boston Red Sox.`\
-https://nytimes.com/athletic/7146797/2026/03/25/reds-opening-day-roster-nick-lodolo-caleb-ferguson/
-
-**Former Google Executive Named New Head of the BBC**\
-`Matt Brittin, the former president of Google in Europe, will become the new director general. Among the items on his to-do list: handling a lawsuit from President Trump.`\
-https://nytimes.com/2026/03/25/world/europe/matt-brittin-bbc-director-general.html
-
-**Stephen Colbert Is Writing a New ‘Lord of the Rings’ Movie**\
-`In an announcement video with the director Peter Jackson, the late-night host said he was developing a new film based on early chapters of the trilogy.`\
-https://nytimes.com/2026/03/25/movies/stephen-colbert-lord-of-the-rings.html
-
-**Rescuers Race to Save Whale Stranded Off German Coast**\
-`Efforts to save a 32-foot humpback, which has been stranded in shallow waters off Germany’s Baltic coast since March 20, continue despite diminishing chances of survival.`\
-https://nytimes.com/video/world/europe/100000010800325/rescue-underway-stranded-humpback-whale-baltic-sea.html
-
-**What a great season would look like for the 2026 Giants**\
-`For the Giants' season to be a success, it needs to include the postseason but the postseason formula has to be one that's repeatable.`\
-https://nytimes.com/athletic/7146001/2026/03/25/sf-giants-good-season-2026/
-
-**Billionaires and the Erosion of Democracy**\
-`Readers discuss the effects of billionaires on U.S. society and politics. Also: Electric cars; President Trump’s personal ICE; an invitation to teenagers.`\
-https://nytimes.com/2026/03/25/opinion/billionaires-democracy.html
-
-**Israel Races to Hit Iran Hard While It Still Can, Leery of Possible Talks, Officials Say**\
-`Prime Minister Benjamin Netanyahu gave the order on Tuesday for the military to accelerate its attacks, with a 48-hour deadline, four people briefed on the matter said.`\
-https://nytimes.com/2026/03/25/world/middleeast/israel-attacks-iran-ceasefire-plan.html
 
