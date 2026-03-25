@@ -1,3 +1,23 @@
+**World Cup fans from five nations facing $15k bonds to enter U.S. – and players may not be exempt**\
+`FIFA is trying to ensure players from Algeria, Cape Verde, Senegal, Tunisia and Ivory Coast do not have to pay bonds to compete in the U.S. `\
+https://nytimes.com/athletic/7138400/2026/03/25/world-cup-fifa-senegal-bonds-algeria-visa/
+
+**Five Cubs prospects who could open eyes in 2026 from Wiggins to Rojas**\
+`Pete Crow-Armstrong was once a prospect and is now the Cubs' star center fielder. What future prospects could join PCA in the big leagues?`\
+https://nytimes.com/athletic/7144516/2026/03/25/chicago-cubs-breakout-prospects-2026/
+
+**Man Utd set for Republic of Ireland training camp**\
+`United are in a 24-day gap between fixtures due to the international break and their early FA Cup exit.`\
+https://nytimes.com/athletic/7146173/2026/03/25/manchester-united-ireland-training-camp/
+
+**Miami Marlins broadcast guide: TV, streaming additions for the 2026 season**\
+`Regional Marlins broadcasts have a new home in 2026, and national games can be confusing to watch. Here's what fans need to know. `\
+https://nytimes.com/athletic/7144776/2026/03/25/miami-marlins-new-streaming-how-to-watch-2026/
+
+**CJ Abrams will start the season with the Nationals. But will he end it there?**\
+`Officials around the league believe the Nationals will keep Abrams past the trade deadline though he could be a sought-after trade chip.`\
+https://nytimes.com/athletic/7145537/2026/03/25/cj-abrams-washington-nationals-trade/
+
 **Why Are Delays at Houston’s Bush Airport Worse Than at Others?**\
 `Lines were long at airports nationwide Tuesday amid T.S.A. staffing shortages, but passengers at Houston’s Bush Intercontinental Airport waited more than four hours to pass through checkpoints.`\
 https://nytimes.com/2026/03/25/us/tsa-airport-delays-houston-bush.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7144429/2026/03/25/minnesota-vikings-nfl-draft-host
 **Projecting the Jets' 2026-27 opening night lineup: How does Winnipeg bounce back?**\
 `Yes, it's much too early, but a down season for the Jets means plenty of opportunity for young players to stand out down the stretch.`\
 https://nytimes.com/athletic/7143875/2026/03/25/winnipeg-jets-opening-night-lineup-salomonsson-draft-offseason/
-
-**A debut to remember: Inside the long journey to New York for Dylan Garand's goalie coach**\
-`Kamloops Blazers goalie coach Dan De Palma made a long and eventful trip to New York for Garand's NHL debut Sunday at Madison Square Garden.`\
-https://nytimes.com/athletic/7144031/2026/03/25/rangers-dylan-garand-nhl-debut-goalie-coach/
-
-**Tampa Bay Rays watch guide: New regional, national homes to know for 2026 season**\
-`The Rays are back at Tropicana Field, but they have a new TV home. Here's how to tune in to every game this season.`\
-https://nytimes.com/athletic/7143223/2026/03/25/tampa-bay-rays-tv-how-to-watch-2026/
-
-**Meet new Gophers coach Brett Larson: Behind his path to the Mariucci bench**\
-`“This is the best opportunity in college hockey,” the new Gophers bench boss said after years with Minnesota programs.`\
-https://nytimes.com/athletic/7145017/2026/03/25/brett-larson-gophers-hockey-coach-minnesota-st-cloud-state/
-
-**Tayden Lorenzen, son of 'The Hefty Lefty,' commits to Miami (Ohio) as a tight end**\
-`Lorenzen's dad, Jared, threw for over 10,000 yards in his four years at Kentucky in the early 2000s. `\
-https://nytimes.com/athletic/7143799/2026/03/25/tayden-lorenzen-jared-kentucky-recruiting-miami-ohio/
-
-**Craig Breslow knows it's crunch time for his job in Boston**\
-`Breslow's predecessors didn't get much more time on the job than he's had in Boston. After an active offseason, can he keep ownership happy?`\
-https://nytimes.com/athletic/7144752/2026/03/25/red-sox-craig-breslow-crunch-time-chief-baseball-officer/
 
