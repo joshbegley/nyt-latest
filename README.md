@@ -1,3 +1,7 @@
+**Late Night Questions the ‘Very Big Present’ Trump Got From Iran**\
+`Josh Johnson was puzzled by what kind of gift the president could have received “from the people you are currently at war with.”`\
+https://nytimes.com/2026/03/25/arts/television/late-night-trump-present-iran.html
+
 **The inevitability of Brighton's open-play crosses**\
 `There's nothing flashy about how Fabian Hurzeler's side use crosses, but they are incredibly effective at doing so`\
 https://nytimes.com/athletic/7143250/2026/03/25/brighton-open-play-crossing-hurzeler-premier-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7142983/2026/03/25/world-cup-fatigue-2026-rice-fifp
 **The 22 teams that can still qualify for the World Cup**\
 `There are still 22 teams, from all over the planet, who can qualify for the World Cup this summer`\
 https://nytimes.com/athletic/7112659/2026/03/25/world-cup-teams-qualifiers-playoffs/
-
-**What to know about UEFA's World Cup play-offs: How they work, favourites and more**\
-`Everything you need to know about the European play-offs, with four World Cup places up for grabs`\
-https://nytimes.com/athletic/7143055/2026/03/25/uefa-world-cup-playoffs-explained/
 
