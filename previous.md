@@ -1,3 +1,15 @@
+**The commute is back**\
+`Plus, delivery truck glut. / Plus, hybrid workers are clogging the roads.`\
+https://nytimes.com/2026/03/25/headway/commute-progress-newsletter.html
+
+**Evenepoel calls Vingegaard's help 'amazing' in tense Volta stage**\
+`The Belgian grew frustrated at the Dane's reluctance to take a turn in the breakaway, before crashing shortly before the finish.`\
+https://nytimes.com/athletic/7147134/2026/03/25/remco-evenepoel-jonas-vingegaard-volta-catalunya-crash/
+
+**Meta Lays Off 700 Employees, While Rewarding Top Executives**\
+`The jobs cuts and a new stock program for executives come as Meta continues to shift its focus to artificial intelligence.`\
+https://nytimes.com/2026/03/25/technology/meta-lays-off-700-employees-while-rewarding-top-executives.html
+
 **As World Cup nears, USMNT's center back corps remains uncertain, unsettled**\
 `The U.S. is blessed with satisfactory depth at most positions, but when it comes to defense, it's a central issue for Mauricio Pochettino`\
 https://nytimes.com/athletic/7146798/2026/03/25/usmnt-world-cup-center-backs-richards-ream-pochettino/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7147200/2026/03/25/mavericks-vs-nuggets-stream-how-
 **Florida Restores Access to Low-Cost H.I.V. Medications After Uproar**\
 `A short-term funding bill enacted this week will ensure that more than 12,000 Floridians do not lose access to a program that helps pay for H.I.V. medications.`\
 https://nytimes.com/2026/03/25/health/florida-hiv-meds-assistance-program.html
-
-**Pat Steir, Painter of Luminous ‘Waterfalls,’ Dies at 87**\
-`Spilling paint onto canvas and letting it streak down as it pleased, she often said that her celebrated works painted themselves.`\
-https://nytimes.com/2026/03/25/arts/design/pat-steir-dead.html
-
-**The Man Leading the Green Party Surge in Britain**\
-`Zach Polanski of Britain’s left-populist party talks austerity, Labour and the establishment crackup.`\
-https://nytimes.com/2026/03/25/opinion/zach-polanski-green-party-britain.html
-
-**With Their Voter Bill Stymied, G.O.P. Leaders Ponder a Plan B**\
-`Republicans are eying a last-ditch procedural maneuver to overcome united Democratic opposition, but the chances for success are slim.`\
-https://nytimes.com/2026/03/25/us/politics/republicans-voter-bill-plan-b.html
 

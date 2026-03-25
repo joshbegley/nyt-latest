@@ -1,3 +1,15 @@
+**The commute is back**\
+`Plus, delivery truck glut. / Plus, hybrid workers are clogging the roads.`\
+https://nytimes.com/2026/03/25/headway/commute-progress-newsletter.html
+
+**Evenepoel calls Vingegaard's help 'amazing' in tense Volta stage**\
+`The Belgian grew frustrated at the Dane's reluctance to take a turn in the breakaway, before crashing shortly before the finish.`\
+https://nytimes.com/athletic/7147134/2026/03/25/remco-evenepoel-jonas-vingegaard-volta-catalunya-crash/
+
+**Meta Lays Off 700 Employees, While Rewarding Top Executives**\
+`The jobs cuts and a new stock program for executives come as Meta continues to shift its focus to artificial intelligence.`\
+https://nytimes.com/2026/03/25/technology/meta-lays-off-700-employees-while-rewarding-top-executives.html
+
 **As World Cup nears, USMNT's center back corps remains uncertain, unsettled**\
 `The U.S. is blessed with satisfactory depth at most positions, but when it comes to defense, it's a central issue for Mauricio Pochettino`\
 https://nytimes.com/athletic/7146798/2026/03/25/usmnt-world-cup-center-backs-richards-ream-pochettino/
