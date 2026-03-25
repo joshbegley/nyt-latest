@@ -1,3 +1,15 @@
+**Farewell Mohamed Salah, a player who meant more**\
+`There is no risk in suggesting that Salah will go down as one of Liverpool's — and the Premier League's — all-time greats`\
+https://nytimes.com/athletic/7144985/2026/03/25/mohamed-salah-liverpool-exit-column/
+
+**'Some players have gone three summers without a rest': Why footballers could be exhausted at the World Cup**\
+`The summer's tournament in the U.S., Mexico and Canada will test players like never before given the cluttered schedule in the build-up`\
+https://nytimes.com/athletic/7142983/2026/03/25/world-cup-fatigue-2026-rice-fifpro/
+
+**The 22 teams that can still qualify for the World Cup**\
+`There are still 22 teams, from all over the planet, who can qualify for the World Cup this summer`\
+https://nytimes.com/athletic/7112659/2026/03/25/world-cup-teams-qualifiers-playoffs/
+
 **What to know about UEFA's World Cup play-offs: How they work, favourites and more**\
 `Everything you need to know about the European play-offs, with four World Cup places up for grabs`\
 https://nytimes.com/athletic/7143055/2026/03/25/uefa-world-cup-playoffs-explained/
@@ -25,16 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/03/25/todays-new-york-times
 **Putin Was Under Pressure. Then Came the War in Iran.**\
 `In one swoop, it overturned the conditions for conciliation.`\
 https://nytimes.com/2026/03/25/opinion/russia-putin-iran-war.html
-
-**Fight night, disallowed goal and unlucky bounce sink Wild vs. Lightning: Takeaways**\
-`The lopsided final score didn't do justice to just how tight the game between two Stanley Cup contenders truly was.`\
-https://nytimes.com/athletic/7145792/2026/03/25/wild-gustavsson-fumble-disallowed-goal-fight-mccarron-foligno-lightning/
-
-**Why a Strong Butt Is Key to Healthy Aging**\
-`The benefits of a strong butt go beyond just aesthetics. A robust body of research shows that strengthening your glutes is important to healthy aging and longevity. Erik Vance, a senior staff editor for Well, explains.`\
-https://nytimes.com/video/well/100000010781737/why-a-strong-butt-is-key-to-healthy-aging.html
-
-**A Missile Fragment in a Schoolyard**\
-`Examining an image of children near a missile fragment, which landed near a school as several families were sheltering inside it.`\
-https://nytimes.com/2026/03/25/world/europe/iran-missile-photograph-israeli-settlement-school.html
 
