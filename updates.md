@@ -1,3 +1,11 @@
+**How to watch Yankees vs. Giants: Time, TV, streaming for March 25**\
+`Find out how to watch the New York Yankees play the San Francisco Giants, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7146964/2026/03/25/yankees-vs-giants-stream-how-to-watch-march-25/
+
+**USATF granted extra world championship spots after runners led off course**\
+`The "one-off" exception comes after three women were led off course at the 2026 U.S. Half Marathon Championships by the lead vehicle.`\
+https://nytimes.com/athletic/7146780/2026/03/25/usa-half-marathon-runners-led-astray-world-championships-eligibility/
+
 **Salah, the Egyptian idol who trod a seemingly impossible path to Premier League summit**\
 `Mohamed Salah created his own path to the top of the Premier League. His story has had an incredible impact on his homeland.`\
 https://nytimes.com/athletic/7146011/2026/03/25/mohamed-salah-egypt-background-premier-league/
