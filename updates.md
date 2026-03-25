@@ -1,3 +1,27 @@
+**As World Cup nears, USMNT's center back corps remains uncertain, unsettled**\
+`The U.S. is blessed with satisfactory depth at most positions, but when it comes to defense, it's a central issue for Mauricio Pochettino`\
+https://nytimes.com/athletic/7146798/2026/03/25/usmnt-world-cup-center-backs-richards-ream-pochettino/
+
+**How to watch Rockets vs. Timberwolves: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7147217/2026/03/25/rockets-vs-timberwolves-stream-how-to-watch-march-25/
+
+**How to watch Nets vs. Warriors: Time, TV, streaming**\
+`Find out how to watch the Brooklyn Nets play the Golden State Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7147214/2026/03/25/nets-vs-warriors-stream-how-to-watch-march-25/
+
+**How to watch Bucks vs. Trail Blazers: Time, TV, streaming**\
+`Find out how to watch the Milwaukee Bucks play the Portland Trail Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7147210/2026/03/25/bucks-vs-trail-blazers-stream-how-to-watch-march-25/
+
+**How to watch Raptors vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the Toronto Raptors play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7147208/2026/03/25/raptors-vs-clippers-stream-how-to-watch-march-25/
+
+**How to watch Mavericks vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the Dallas Mavericks play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7147200/2026/03/25/mavericks-vs-nuggets-stream-how-to-watch-march-25/
+
 **Florida Restores Access to Low-Cost H.I.V. Medications After Uproar**\
 `A short-term funding bill enacted this week will ensure that more than 12,000 Floridians do not lose access to a program that helps pay for H.I.V. medications.`\
 https://nytimes.com/2026/03/25/health/florida-hiv-meds-assistance-program.html
