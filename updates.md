@@ -1,3 +1,7 @@
+**Asia Is Getting Crushed Between Oil Prices and the Dollar**\
+`From India to Southeast Asia to South Korea, currencies are crumbling as governments race to secure fuel that is priced in American money.`\
+https://nytimes.com/2026/03/25/business/iran-war-dollar-rupee-won.html
+
 **Army Raises Enlistment Age Limit to 42 and Eases Marijuana Rules**\
 `The new enlistment requirements were made official years after the Army faced a recruiting crisis, and as the United States is engaged in a war with Iran.`\
 https://nytimes.com/2026/03/25/us/army-recruiting-age-marijuana.html

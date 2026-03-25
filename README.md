@@ -1,3 +1,7 @@
+**Trump to Delay Nominating New C.D.C. Director**\
+`The administration has yet to find a candidate who aligns with Health Secretary Robert F. Kennedy Jr.’s agenda while avoiding his unpopular stance on vaccines.`\
+https://nytimes.com/2026/03/25/health/cdc-director-nomination-delay.html
+
 **Asia Is Getting Crushed Between Oil Prices and the Dollar**\
 `From India to Southeast Asia to South Korea, currencies are crumbling as governments race to secure fuel that is priced in American money.`\
 https://nytimes.com/2026/03/25/business/iran-war-dollar-rupee-won.html
@@ -27,14 +31,10 @@ https://nytimes.com/video/business/economy/100000010796199/how-kharg-island-may-
 https://nytimes.com/2026/03/25/style/one-sided-monogamy-relationships-manosphere-louis-theroux.html
 
 **A Pastor Called for a Democrat to Be ‘Crucified With Christ.’ Was It a Threat?**\
-`James Talarico, the Democratic nominee for Senate in Texas, said, ‘You may pray for my death, Pastor, but I still love you.’ The pastor said he was calling for Mr. Talarico’s religious conversion.`\
+`James Talarico, the Democratic nominee for Senate in Texas, said, “You may pray for my death, Pastor, but I still love you.” The pastor said he was calling for Mr. Talarico’s religious conversion.`\
 https://nytimes.com/2026/03/25/us/politics/talarico-response-love-pastor-hegseth-crucified-christ.html
 
 **Social Media Giants Found Negligent in Landmark Trial**\
 `Also, Iran signals an openness to negotiations. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2026/03/25/briefing/social-media-trial-iran-us-peace-talks.html
-
-**U.S. Rejects Vote to Recognize Slavery as a ‘Crime Against Humanity’**\
-`The United Nations resolution was led by the president of Ghana. Israel and Argentina also voted against it.`\
-https://nytimes.com/2026/03/25/world/africa/un-slave-trade-vote-us-ghana-israel.html
 
