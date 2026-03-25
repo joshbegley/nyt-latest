@@ -1,3 +1,11 @@
+**3 bold Dodgers predictions for the 2026 season, starting with Teoscar Hernández**\
+`Will the Dodgers make a blockbuster trade? How many homers for Freddie Freeman? Our Dodgers beat writer peers into the crystal ball. `\
+https://nytimes.com/athletic/7142396/2026/03/25/dodgers-predictions-2026/
+
+**How will Giants manager Tony Vitello deal with criticism? By focusing on what matters more**\
+`SAN FRANCISCO — Tony Vitello loves to read about sports.`\
+https://nytimes.com/athletic/7145989/2026/03/25/tony-vitello-first-opening-day-sf-giants/
+
 **For Ilia Malinin and Amber Glenn, figure skating worlds bring a fresh start**\
 `After stumbling on the Olympic stage, the U.S. stars are back this week at world championships, both searching for something personal.`\
 https://nytimes.com/athletic/7146029/2026/03/25/ilia-malinin-amber-glenn-figure-skating-world-championships-olympics/
