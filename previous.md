@@ -1,40 +1,40 @@
+**For Australia’s Farmers, Fuel Crisis Comes at ‘Worst Possible Time’**\
+`Their troubles could cascade across Asia because they export a majority of their products.`\
+https://nytimes.com/2026/03/25/world/australia/australia-farm-fuel-oil-prices.html
+
+**When a Narcissist Goes to War**\
+`Trump cannot see that his opposition is real. He cannot see that it can act of its own accord.`\
+https://nytimes.com/2026/03/25/opinion/trump-iran-opposition-solipsism.html
+
+**Bombs Won’t Set Women Free**\
+`A long line of American politicians have seen bombs as a way of shortening Muslim women’s hemlines`\
+https://nytimes.com/2026/03/25/opinion/iranian-women-america-israel-bombing.html
+
+**Ronaldo's eldest son trains with Real Madrid academy with view to joining club**\
+`Ronaldo Jr, 15, plays in the academy of Saudi Pro League team Al Nassr, who his father signed for in December 2022.`\
+https://nytimes.com/athletic/7133589/2026/03/25/cristiano-ronaldo-jr-real-madrid-transfer/
+
+**The Choking of Hormuz**\
+`Trade is trickling through the vital artery connecting the Persian Gulf and the world, creating an economic shock thousands of miles away.`\
+https://nytimes.com/interactive/2026/03/25/business/energy-environment/strait-hormuz-oil-gas.html
+
+**What Happened After a U.S. Warship Hit an Iranian Mine in 1988**\
+`President Trump has suggested providing escorts for stranded tankers. A mine strike on a U.S. frigate in the Persian Gulf shows the perils of doing so.`\
+https://nytimes.com/2026/03/25/business/iran-mines-gulf-hormuz-strike-naval-escort-history-1988.html
+
+**There’s a Reason Air Travel Is Such a Mess**\
+`There's a deeper story behind the turbulence in the airline industry.`\
+https://nytimes.com/2026/03/25/opinion/laguardia-crash-air-travel.html
+
+**Mozart Wouldn’t Be Mozart Without These Three Objects**\
+`Hear the instruments and scores, on view in a new exhibition at the Morgan Library and Museum, that proved foundational for Mozart’s life in music.`\
+https://nytimes.com/2026/03/25/arts/music/mozart-salzburg-morgan-library.html
+
+**The Lines, the Prices, the Anxiety: Can Air Travel Get Any Worse?**\
+`Travelers are waiting hours at security checkpoints, paying top dollar for tickets and worrying about safety after a deadly crash at LaGuardia.`\
+https://nytimes.com/2026/03/25/travel/airports-flights-security-ticket-prices.html
+
 **He’s Gay. She’s Straight. They’re Newlyweds. (Encore)**\
 `Jacob Hoff and Samantha Greenstone call their unlikely love “a soul connection.”`\
 https://nytimes.com/2026/03/25/podcasts/hes-gay-shes-straight-theyre-newlyweds-encore.html
-
-**‘Bait’ Review: Bond. Shahjehan Bond.**\
-`Riz Ahmed imagines the dark side of being a 007 candidate (a position he knows something about) in his Prime Video comedy series.`\
-https://nytimes.com/2026/03/25/arts/television/bait-review-riz-ahmed.html
-
-**Blockade Iran’s Oil**\
-`How the United States can end Iran’s control of the Persian Gulf.`\
-https://nytimes.com/2026/03/25/opinion/iran-oil-persian-gulf-blockade.html
-
-**A Master of Animation Is Back, With a ‘Magnificent’ Story**\
-`The first animated feature in 15 years by the acclaimed French filmmaker Sylvain Chomet, the “Triplets of Belleville” creator, is a biopic of another artist who never lost his ability for wonder and curiosity.`\
-https://nytimes.com/2026/03/25/movies/sylvain-chomet-a-magnificent-life.html
-
-**A Horror Novel Got Canceled. What’s Coming Next Is a Bigger Nightmare.**\
-`As more A.I. generated writing is unleashed on the world, more readers will question who — or what — has penned their favorite works.`\
-https://nytimes.com/2026/03/25/opinion/shy-girl-ai-publishing.html
-
-**The Brigade System Helps Restaurants Succeed. Does It Also Lead to Abuse?**\
-`In the wake of allegations against Noma’s chef, a 19th-century model for organizing kitchen staffs is being blamed for physical and psychic violence.`\
-https://nytimes.com/2026/03/25/dining/noma-brigade-system.html
-
-**More Tourists Are Coming to New York, but Not From Other Countries**\
-`International tourism declined slightly in 2025 from the year before, even as the total number of visitors increased, the city’s tourism agency said.`\
-https://nytimes.com/2026/03/25/nyregion/more-tourists-are-coming-to-new-york-but-not-from-other-countries.html
-
-**The ‘Daredevil: Born Again’ Showrunner Feels Your Pain, Really**\
-`That big death at the start of Season 1 was hard for Dario Scardapane, too. Season 2 might not be any easier.`\
-https://nytimes.com/2026/03/25/arts/television/the-daredevil-born-again-showrunner-feels-your-pain-really.html
-
-**In San Jose, a Reckoning Over Cesar Chavez Is Only Beginning**\
-`Mr. Chavez began organizing in San Jose, Calif., in the 1950s and once lived there. After revelations of sexual abuse by the labor leader, the city and his old neighborhood confront his legacy.`\
-https://nytimes.com/2026/03/25/us/cesar-chavez-san-jose-reckoning.html
-
-**$1 Million Homes in Connecticut, Colorado and Washington**\
-`A contemporary farmhouse in Sharon, a midcentury modern in Wheat Ridge and a bungalow in Vancouver.`\
-https://nytimes.com/2026/03/25/realestate/1-million-homes-in-connecticut-colorado-and-washington.html
 
