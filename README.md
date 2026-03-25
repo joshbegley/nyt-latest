@@ -1,3 +1,23 @@
+**A Missile Fragment in a Schoolyard**\
+`Examining an image of children near a missile fragment, which landed near a school as several families were sheltering inside it.`\
+https://nytimes.com/2026/03/25/world/europe/iran-missile-photograph-israeli-settlement-school.html
+
+**After 1,400 Years, the First Female Archbishop of Canterbury Is About to Be Enthroned**\
+`Sarah Mullally will be installed on Wednesday at Canterbury Cathedral. Her appointment to the role has been both celebrated, and denounced by some factions within the global Anglican Church.`\
+https://nytimes.com/2026/03/25/world/europe/sarah-mullally-archbishop-of-canterbury-church-of-england.html
+
+**Villagers Say This Island Is Cursed. Migrants Saw an Opportunity.**\
+`Thousands of African migrants hoping to reach Europe have flocked to a remote island in Gambia that local villagers say is protected by a curse.`\
+https://nytimes.com/2026/03/25/world/africa/gambia-migrants-cursed-island.html
+
+**Connections: Sports Edition Coach: Hints and answers for March 25, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7145736/2026/03/25/connections-sports-edition-hints-answers-march-25-2026/
+
+**Corrections: March 25, 2026**\
+`Corrections that appeared in print on Wednesday, March 25, 2026.`\
+https://nytimes.com/2026/03/25/pageoneplus/corrections-march-25-2026.html
+
 **Quote of the Day: Hunting for Meteorites in the Name of Science (and Cash)**\
 `Quotation of the Day for Wednesday, March 25, 2026.`\
 https://nytimes.com/2026/03/24/pageoneplus/quote-of-the-day-hunting-for-meteorites-in-the-name-of-science-and-cash.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7145509/2026/03/24/blue-jackets-greaves-werenski-fi
 **Massachusetts Teacher Charged With Raping Two Students**\
 `The students say the former teacher at Miss Hall’s, a boarding school, groomed them and began having sex with them at age 16, which state law considers old enough for consent.`\
 https://nytimes.com/2026/03/24/us/teacher-rape-miss-halls-massachusetts.html
-
-**Somali Immigrants Have Effectively Been Denied a Fair Hearing, Lawsuit Says**\
-`Two Minnesota-based legal groups accused the Justice Department of unconstitutionally expediting Somalis’ immigration cases.`\
-https://nytimes.com/2026/03/24/us/dhs-fast-track-somali-deportations-lawsuit.html
-
-**Grizzlies announce Ja Morant to miss rest of season after left elbow injection**\
-`Morant will finish the season with only 20 games played, marking the second-fewest of his seven-year NBA career.`\
-https://nytimes.com/athletic/7145619/2026/03/24/ja-morant-season-over-left-elbow-injection/
-
-**Heliot Ramos poised to break craziest Opening Day non-streak in Giants history**\
-`For the first time since Barry Bonds played, San Francisco will have a repeat starter in left field on Opening Day.`\
-https://nytimes.com/athletic/7145431/2026/03/24/giants-heliot-ramos-poised-to-break-craziest-opening-day-non-streak-in-team-history/
-
-**Put a New Tag On**\
-`Don’t think twice — or do? — about solving Jeff Stillman’s crossword.`\
-https://nytimes.com/2026/03/24/crosswords/daily-puzzle-2026-03-25.html
-
-**Oil Prices Tumble 6% as Trump Shows Eagerness to Talk to Iran**\
-`Investors reacted to signals of possible de-escalation of the war in the Middle East.`\
-https://nytimes.com/2026/03/24/business/oil-stock-gas-prices-iran.html
 
