@@ -35,6 +35,6 @@ https://nytimes.com/athletic/7145224/2026/03/24/project-b-nba-player-talent-lure
 https://nytimes.com/athletic/7145125/2026/03/24/yankees-aaron-judge-favorite-player-rich-aurilia/
 
 **Around 2,000 U.S. Paratroopers to Be Sent to the Middle East**\
-`The order gives President Trump more options militarily as he considers diplomacy with Iran. It is unclear where the soldiers will go in the Middle East.`\
+`The order gives President Trump more military options as he considers diplomacy with Iran. It is unclear where the soldiers will go in the Middle East.`\
 https://nytimes.com/2026/03/24/us/politics/82nd-airborne-division-iran-troops.html
 
