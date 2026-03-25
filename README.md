@@ -1,3 +1,11 @@
+**Trump Draws Bipartisan Backlash for Easing Oil Sanctions on Russia and Iran**\
+`Republicans and Democrats alike have criticized the Trump administration’s moves, taken to stabilize oil markets rocked by the war with Iran, warning that it is benefiting two U.S. adversaries.`\
+https://nytimes.com/2026/03/25/us/politics/trump-bipartisan-backlash-oil-sanctions-russia-iran.html
+
+**Postal Service Plans to Impose 8% Surcharge on Packages to Offset Rising Transportation Costs**\
+`The temporary price increase, which would take effect on April 26, comes amid a spike in fuel prices tied to the war in Iran.`\
+https://nytimes.com/2026/03/25/us/politics/usps-surcharge-prices-fuel-iran.html
+
 **Buster Posey explains Giants' Opening Day lineup, choosing Jared Oliva over Luis Matos**\
 `"Everybody's behind J.O. and thrilled that he's on the team," said Posey, who went with the speedy outfielder over a former top prospect.`\
 https://nytimes.com/athletic/7147575/2026/03/25/sf-giants-opening-day-lineup-buster-posey-jared-oliva-luis-matos/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/25/us/politics/thomas-massie-trump.html
 **Trump to Delay Nominating New C.D.C. Director**\
 `The administration has yet to find a candidate who aligns with Health Secretary Robert F. Kennedy Jr.’s agenda while avoiding his unpopular stance on vaccines.`\
 https://nytimes.com/2026/03/25/health/cdc-director-nomination-delay.html
-
-**Asia Is Getting Crushed Between Oil Prices and the Dollar**\
-`From India to Southeast Asia to South Korea, currencies are crumbling as governments race to secure fuel that is priced in American money.`\
-https://nytimes.com/2026/03/25/business/iran-war-dollar-rupee-won.html
-
-**Army Raises Enlistment Age Limit to 42 and Eases Marijuana Rules**\
-`The new enlistment requirements were made official years after the Army faced a recruiting crisis, and as the United States is engaged in a war with Iran.`\
-https://nytimes.com/2026/03/25/us/army-recruiting-age-marijuana.html
 
