@@ -1,3 +1,7 @@
+**Put a New Tag On**\
+`Don’t think twice — or do? — about solving Jeff Stillman’s crossword.`\
+https://nytimes.com/2026/03/24/crosswords/daily-puzzle-2026-03-25.html
+
 **Oil Prices Tumble 6% as Trump Shows Eagerness to Talk to Iran**\
 `Investors reacted to signals of possible de-escalation of the war in the Middle East.`\
 https://nytimes.com/2026/03/24/business/oil-stock-gas-prices-iran.html
