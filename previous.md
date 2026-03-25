@@ -1,40 +1,40 @@
-**Four Takeaways From Denmark’s Election**\
-`A desire for change and a fractured political landscape left Prime Minister Mette Frederiksen ahead, but with a tough road to securing a new term.`\
-https://nytimes.com/2026/03/25/world/europe/takeaways-denmark-election-frederiksen.html
+**Winnable missed opportunity leaves Red Wings running out of time to rewrite March woes**\
+`A second consecutive regulation home loss has put the Red Wings in a precarious spot in the Eastern Conference playoff race.`\
+https://nytimes.com/athletic/7145585/2026/03/25/detroit-red-wings-ottawa-senators-march-playoffs/
 
-**In tennis, home advantage is complicated. At the Miami Open, it is no different**\
-`The tournament, in which Americans have had a successful run this year, complicates the idea of hometown advantage.`\
-https://nytimes.com/athletic/7145680/2026/03/25/tennis-home-advantage-miami-open-american/
+**Cowboys NFL Draft big board: 25 possibilities with their 2 first-round picks**\
+`Dallas needs the most help on defense and it's likely the Cowboys draft two defensive players with their picks at No. 12 and No. 20.`\
+https://nytimes.com/athletic/7144361/2026/03/25/dallas-cowboys-nfl-draft-big-board-defense/
 
-**MLB in 2026: The numbers that define baseball, from 2 to 1.5 billion**\
-`The numbers of baseball help us understand the meaning of this game — its history, its moments, its thrills, its chills. So, listen up! `\
-https://nytimes.com/athletic/7143777/2026/03/25/mlb-2026-season-stats-trends/
+**Whatever happened to the .300 hitter? Why the benchmark of batting is going extinct**\
+`In 2016, Francisco Lindor was one of 25 qualified major-league hitters to bat .300 or better. Only seven players did so in 2025.`\
+https://nytimes.com/athletic/7143398/2026/03/25/mlb-hitters-300-batting-francisco-lindor/
 
-**Ukraine Finally Got Battlefield Momentum. Now Comes a Russian Offensive.**\
-`Moscow’s forces are intensifying their attacks in southern Ukraine after Kyiv made rare gains along the front.`\
-https://nytimes.com/2026/03/25/world/europe/ukraine-russia-war-zaporizhzhia.html
+**Jason Robertson's next contract and how the Stars can make it fit**\
+`Robertson has leveled up this year with one of his best regular seasons yet. What does it mean for his value this summer as an RFA?`\
+https://nytimes.com/athletic/7144121/2026/03/25/jason-robertson-stars-next-contract/
 
-**Two Men Arrested in Attack on Jewish Charity Ambulances in London**\
-`The police said the men, aged 45 and 47, are accused of arson with intent to endanger life stemming from the arson attack on Monday in Golders Green.`\
-https://nytimes.com/2026/03/25/world/europe/jewish-ambulances-arson-arrests.html
+**How Carter Yakemchuk was prepared for his successful NHL debut, and what could be next**\
+`Ottawa Senators fans finally got to see their 2024 first-round pick, Yakemchuk, play in an NHL game after some development time.`\
+https://nytimes.com/athletic/7145397/2026/03/25/carter-yakemchuk-nhl-debut-senators/
 
-**Can Shohei Ohtani win the Cy Young award? Managers on the hot seat? We take your questions**\
-`Andy McCullough's MLB mailbag looks at who will win big awards, who will be traded, who will be fired and more as Opening Day arrives. `\
-https://nytimes.com/athletic/7143963/2026/03/25/mlb-mailbag-awards-shohei-ohtani-cy-young-award-questions/
+**Jesse Love on why 'everything counts all the time' and being ready for Cup: 12 Questions**\
+`Love, NASCAR's defending second-tier series champion, talks about moving to the Cup Series some day and more.`\
+https://nytimes.com/athletic/7140689/2026/03/25/jesse-love-richard-childress-racing-cup-series-12-questions/
 
-**Ravens' efforts to extend Zay Flowers impacted by current wide receiver market**\
-`Jaxon Smith-Njigba's record-breaking deal with Seattle is a reminder of what it may cost to keep a Pro Bowl receiver such as Flowers. `\
-https://nytimes.com/athletic/7145081/2026/03/25/ravens-zay-flowers-extension-wide-receiver-market/
+**NFL mock draft: Cowboys move up for Jeremiyah Love, Ty Simpson sneaks into first round**\
+`While Fernando Mendoza is the favorite to be picked No. 1 overall, the rest of the draft's first round could feature a few twists and turns.`\
+https://nytimes.com/athletic/7128901/2026/03/25/nfl-mock-draft-betting-odds-2026/
 
-**The greatest NFL workout ever: Randy Moss, a 28-degree winter day and a sweatsuit**\
-`Before Randy Moss changed the NFL game, he changed NFL Pro Days — and took upstart Marshall even higher.`\
-https://nytimes.com/athletic/7140520/2026/03/25/randy-moss-nfl-pro-day-history/
+**'Didn't have anything': Bruins get what they deserve in zero-point flop**\
+`The Bruins' power play had three opportunities in the second period and came up empty each time in the 4-2 loss.`\
+https://nytimes.com/athletic/7145652/2026/03/25/bruins-maple-leafs-loss-marco-sturm-nikita-zadorov-jeremy-swayman/
 
-**The Aura Shift: Macklin Celebrini and the NHL’s TikTok-bred Gen Z takeover**\
-`From $40M extensions to viral videos, the NHL’s Gen Z takeover is here. A new wave of talent is rewriting the league’s cultural DNA.`\
-https://nytimes.com/athletic/7116482/2026/03/25/celebrini-bedard-gen-z-vibe-shift-tik-tok-nhl/
+**2026 NHL prospect pool rankings: No. 16 Pittsburgh Penguins**\
+`The Penguins have transformed their pool over the last two seasons and now have a respectable collection of prospects.`\
+https://nytimes.com/athletic/7002561/2026/03/25/pittsburgh-penguins-nhl-prospect-rankings-2026/
 
-**Steelers draft big board: Free agency left holes in the offensive line**\
-`With the bulk of free agency in the books, a look at the draft prospects the Steelers could target.`\
-https://nytimes.com/athletic/7143416/2026/03/25/pittsburgh-steelers-draft-big-board-prospects-post-free-agency/
+**NBA awards voting is unnecessarily complicated for players and voters. Why?**\
+`Voting on the awards makes media members part of the league's history. It also subjects us to avoidable scrutiny.`\
+https://nytimes.com/athletic/7145123/2026/03/25/nba-awards-voting-complications-65-game-rule/
 
