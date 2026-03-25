@@ -1,3 +1,7 @@
+**Grizzlies announce Ja Morant to miss rest of season after left elbow injection**\
+`Morant will finish the season with only 20 games played, marking the second-fewest of his seven-year NBA career.`\
+https://nytimes.com/athletic/7145619/2026/03/24/ja-morant-season-over-left-elbow-injection/
+
 **Heliot Ramos poised to break craziest Opening Day non-streak in Giants history**\
 `For the first time since Barry Bonds played, San Francisco will have a repeat starter in left field on Opening Day.`\
 https://nytimes.com/athletic/7145431/2026/03/24/giants-heliot-ramos-poised-to-break-craziest-opening-day-non-streak-in-team-history/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7145224/2026/03/24/project-b-nba-player-talent-lure
 **Aaron Judge is everyone's favorite player. What's it like being Judge's favorite player?**\
 `"It's pretty crazy," said longtime San Francisco Giant Rich Aurilia, who has developed a friendly relationship with the Yankees' captain. `\
 https://nytimes.com/athletic/7145125/2026/03/24/yankees-aaron-judge-favorite-player-rich-aurilia/
-
-**Around 2,000 U.S. Paratroopers to Be Sent to the Middle East**\
-`The order gives President Trump more military options as he considers diplomacy with Iran. It is unclear where the soldiers will go in the Middle East.`\
-https://nytimes.com/2026/03/24/us/politics/82nd-airborne-division-iran-troops.html
 
