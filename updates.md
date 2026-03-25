@@ -1,3 +1,11 @@
+**WNBA sets expansion draft for April 3 as Toronto and Portland begin to build rosters**\
+`Current teams can designate a maximum of five protected players who can't be chosen in the expansion draft.`\
+https://nytimes.com/athletic/7147626/2026/03/25/wnba-sets-expansion-draft-toronto-portland/
+
+**Justice Dept. Settles Flynn’s Wrongful Prosecution Suit for $1.25 Million**\
+`The agreement was an extraordinary example of how the Trump administration has offered legal relief to those aligned with the president.`\
+https://nytimes.com/2026/03/25/us/politics/michael-flynn-doj-settlement-trump.html
+
 **Judge Orders Arrest of Former Kentucky Governor for Contempt**\
 `Seven years after leaving office, Matt Bevin, the combative ex-governor, faces charges for not providing financial records sought by his estranged son.`\
 https://nytimes.com/2026/03/25/us/matt-bevin-kentucky-arrest-contempt.html
