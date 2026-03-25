@@ -1,3 +1,11 @@
+**Experts don’t believe the Twins can win in 2026. The team doesn’t agree**\
+`“I don't think our guys really give a s---” about projections, said starting pitcher Bailey Ober.`\
+https://nytimes.com/athletic/7144292/2026/03/25/minnesota-twins-season-preview-predictions/
+
+**N.Y.U. Professors Reach a Deal on a Contract to End Strike After 2 Days**\
+`A union for about 950 full-time faculty members who are not on the tenure track said that 95 percent of its instructors would earn more than $100,000.`\
+https://nytimes.com/2026/03/25/nyregion/nyu-professor-strike-ends.html
+
 **Why those close to Randy Bennett say the 63-year-old will thrive at Arizona State**\
 `Bennett took over a program coming off a two-win season. Over the next two decades, he turned the school into a mid-major power.`\
 https://nytimes.com/athletic/7146027/2026/03/25/randy-bennett-arizona-state-head-coach-age-energy-introduction/

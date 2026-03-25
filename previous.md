@@ -1,3 +1,11 @@
+**Experts don’t believe the Twins can win in 2026. The team doesn’t agree**\
+`“I don't think our guys really give a s---” about projections, said starting pitcher Bailey Ober.`\
+https://nytimes.com/athletic/7144292/2026/03/25/minnesota-twins-season-preview-predictions/
+
+**N.Y.U. Professors Reach a Deal on a Contract to End Strike After 2 Days**\
+`A union for about 950 full-time faculty members who are not on the tenure track said that 95 percent of its instructors would earn more than $100,000.`\
+https://nytimes.com/2026/03/25/nyregion/nyu-professor-strike-ends.html
+
 **Why those close to Randy Bennett say the 63-year-old will thrive at Arizona State**\
 `Bennett took over a program coming off a two-win season. Over the next two decades, he turned the school into a mid-major power.`\
 https://nytimes.com/athletic/7146027/2026/03/25/randy-bennett-arizona-state-head-coach-age-energy-introduction/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7142815/2026/03/25/commanders-mock-draft-jeremiyah-
 **How to watch Toronto Blue Jays games in 2026: TV updates for reigning AL champs**\
 `Here's how fans in both Canada and the U.S. can watch the full Blue Jays schedule across the 2026 campaign.`\
 https://nytimes.com/athletic/7144227/2026/03/25/toronto-blue-jays-how-to-watch-us-canada-2026/
-
-**The Sweet 16 rivalry renewal no one saw coming**\
-`Iowa-Nebraska is the March meet-up that no one envisioned before Selection Sunday — and no one expected until the matchup was set.`\
-https://nytimes.com/athletic/7145369/2026/03/25/iowa-nebraska-sweet-16-basketball-series/
-
-**Three bold Astros predictions for the 2026 season**\
-`A milestone that surprisingly hasn't happened yet, a Rookie of the Year nod and a trade candidate if things don't go so well.`\
-https://nytimes.com/athletic/7142475/2026/03/25/astros-predictions-yordan-alvarez-jeremy-pena-tatsuya-imai/
 
