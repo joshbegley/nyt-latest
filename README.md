@@ -1,3 +1,7 @@
+**As World Cup nears, USMNT's center back corps remains uncertain, unsettled**\
+`The U.S. is blessed with satisfactory depth at most positions, but when it comes to defense, it's a central issue for Mauricio Pochettino`\
+https://nytimes.com/athletic/7146798/2026/03/25/usmnt-world-cup-center-backs-richards-ream-pochettino/
+
 **How to watch Rockets vs. Timberwolves: Time, TV, streaming**\
 `Find out how to watch the Houston Rockets play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7147217/2026/03/25/rockets-vs-timberwolves-stream-how-to-watch-march-25/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/25/opinion/zach-polanski-green-party-britain.html
 **With Their Voter Bill Stymied, G.O.P. Leaders Ponder a Plan B**\
 `Republicans are eying a last-ditch procedural maneuver to overcome united Democratic opposition, but the chances for success are slim.`\
 https://nytimes.com/2026/03/25/us/politics/republicans-voter-bill-plan-b.html
-
-**Iran’s Attacks Force U.S. Troops to Work Remotely**\
-`Iran has severely damaged several American military bases in the Middle East, officials say.`\
-https://nytimes.com/2026/03/25/us/politics/iran-us-bases.html
 
