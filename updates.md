@@ -1,3 +1,7 @@
+**What to Know About U.S.-Iran Negotiations**\
+`The United States is discussing ways to end hostilities with Iran, even as President Trump continues to threaten attacks and as the Pentagon dispatches more troops.`\
+https://nytimes.com/2026/03/25/world/middleeast/us-iran-war-talks-trump.html
+
 **Two States Sue Cord Blood Bank Over False Advertisements**\
 `The attorneys general of Texas and Arizona contend that Cord Blood Registry, which stores umbilical cord cells, profited from misleading new parents.`\
 https://nytimes.com/2026/03/25/health/cord-blood-registry-false-advertisements.html
