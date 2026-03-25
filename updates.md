@@ -1,3 +1,11 @@
+**Sweet 16 pressure gauge: Which NCAA Tournament coaches need to win most?**\
+`Let’s apply a pressure gauge to the 16 remaining coaches in the NCAA Tournament, ranked from most pressure to least.`\
+https://nytimes.com/athletic/7145260/2026/03/25/sweet-16-ncaa-tournament-coaches-pressure/
+
+**Can Fred Hoiberg keep it going? That's Nebrasketball's next question **\
+`This is the best story, the closest thing to a Cinderella, remaining in the tournament. That’s because of the program history unfolding.`\
+https://nytimes.com/athletic/7144788/2026/03/25/nebraska-fred-hoiberg-ncaa-tournament-sweet-16/
+
 **Chiefs NFL Draft big board: 5 players who make sense for each early pick**\
 `The Chiefs are most likely to target these two positions with their first pick in the 2026 NFL Draft.`\
 https://nytimes.com/athletic/7143644/2026/03/25/chiefs-nfl-draft-big-board-rueben-bain-jr/
