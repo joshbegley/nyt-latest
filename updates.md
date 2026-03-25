@@ -1,3 +1,11 @@
+**Massachusetts Teacher Charged With Raping Two Students**\
+`The students say the former teacher at Miss Hall’s, a boarding school, groomed them and began having sex with them at age 16, which state law considers old enough for consent.`\
+https://nytimes.com/2026/03/24/us/teacher-rape-miss-halls-massachusetts.html
+
+**Somali Immigration Cases Fast-Tracked Under New Policy, Lawsuit Claims**\
+`Two Minnesota-based legal groups accused the Justice Department of unconstitutionally expediting Somalis’ immigration cases, undermining their right to a fair legal process.`\
+https://nytimes.com/2026/03/24/us/dhs-fast-track-somali-deportations-lawsuit.html
+
 **Grizzlies announce Ja Morant to miss rest of season after left elbow injection**\
 `Morant will finish the season with only 20 games played, marking the second-fewest of his seven-year NBA career.`\
 https://nytimes.com/athletic/7145619/2026/03/24/ja-morant-season-over-left-elbow-injection/

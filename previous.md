@@ -1,3 +1,11 @@
+**Massachusetts Teacher Charged With Raping Two Students**\
+`The students say the former teacher at Miss Hall’s, a boarding school, groomed them and began having sex with them at age 16, which state law considers old enough for consent.`\
+https://nytimes.com/2026/03/24/us/teacher-rape-miss-halls-massachusetts.html
+
+**Somali Immigration Cases Fast-Tracked Under New Policy, Lawsuit Claims**\
+`Two Minnesota-based legal groups accused the Justice Department of unconstitutionally expediting Somalis’ immigration cases, undermining their right to a fair legal process.`\
+https://nytimes.com/2026/03/24/us/dhs-fast-track-somali-deportations-lawsuit.html
+
 **Grizzlies announce Ja Morant to miss rest of season after left elbow injection**\
 `Morant will finish the season with only 20 games played, marking the second-fewest of his seven-year NBA career.`\
 https://nytimes.com/athletic/7145619/2026/03/24/ja-morant-season-over-left-elbow-injection/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7138167/2026/03/24/hubert-davis-unc-mens-basketball
 **UNC, basketball coach Hubert Davis split after historic tournament loss**\
 `In three of the past four seasons, North Carolina, the winningest team in tournament history, failed to advance to the round of 32. `\
 https://nytimes.com/athletic/7136043/2026/03/24/hubert-davis-resigns-unc-basketball-coach-north-carolina/
-
-**LeBron James' partner advising Project B league as it seeks to lure NBA players**\
-`Grady Burnett, one of Project B’s co-founders, says he hasn't spoken to LeBron James, 41, about joining the league.`\
-https://nytimes.com/athletic/7145224/2026/03/24/project-b-nba-player-talent-lure-lebron-maverick-carter/
-
-**Aaron Judge is everyone's favorite player. What's it like being Judge's favorite player?**\
-`"It's pretty crazy," said longtime San Francisco Giant Rich Aurilia, who has developed a friendly relationship with the Yankees' captain. `\
-https://nytimes.com/athletic/7145125/2026/03/24/yankees-aaron-judge-favorite-player-rich-aurilia/
 
