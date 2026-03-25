@@ -1,3 +1,19 @@
+**Day Care Worker Stole Millions for Trips and W.W.E. Tickets, U.S. Says**\
+`Murielle Misczak was arrested Wednesday morning and is accused of using the money on wrestling tickets, luxury vacations and food deliveries.`\
+https://nytimes.com/2026/03/25/nyregion/daycare-brooklyn-theft-wwe.html
+
+**A Canadian Supreme Court Case Could Test the Country’s Unity**\
+`Quebec’s ban on religious symbols — and a measure that suspends constitutional rights — are being tested in a case with far-reaching repercussions.`\
+https://nytimes.com/2026/03/25/world/americas/canada-supreme-court-religion-bill-21.html
+
+**Leon Radvinsky, 43, Dies; Built the Adult-Entertainment Giant OnlyFans**\
+`By leveraging social media and the influencer economy, he turned his website into a byword for online pornography in the 21st century.`\
+https://nytimes.com/2026/03/25/business/media/leonid-radvinsky-dead.html
+
+**Here’s What Happened in the War in the Middle East on Wednesday**\
+`The fighting continued while conditions for a possible cease-fire were debated.`\
+https://nytimes.com/2026/03/25/world/middleeast/iran-war-recap-wednesday.html
+
 **Can This Leading Republican Critic of Trump Hang On?**\
 `Can any Republican disagree with Trump and get away with it? Thomas Massie’s primary race in Kentucky is a key test.`\
 https://nytimes.com/2026/03/25/us/politics/thomas-massie-trump.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/25/style/tiny-modern-love-stories-six-years-younger-
 **NBA commissioner Adam Silver noncommittal about WNBA commissioner Cathy Engelbert's future**\
 `Silver said he was pleased with the league's growth, but he said he has not discussed Engelbert's future with the WNBA board.`\
 https://nytimes.com/athletic/7147522/2026/03/25/adam-silver-wnba-cathy-engelbert-future/
-
-**Adam Silver speaks on NBA's 65-game rule: 'I think it is working'**\
-`While Silver said he is sympathetic to Cunningham's plight, he thinks the 65-game rule has helped to fix the problem it was meant to.`\
-https://nytimes.com/athletic/7147362/2026/03/25/adam-silver-nba-65-game-rule/
-
-**How Kharg Island May Change the Trajectory of the Iran War**\
-`Kharg Island exports 90 percent of Iran’s crude oil. It has also become a potential U.S. target. Peter Eavis, our Business reporter, examines how the small island in the Persian Gulf has become a strategic target with significant risks.`\
-https://nytimes.com/video/business/economy/100000010796199/how-kharg-island-may-change-the-trajectory-of-the-iran-war.html
-
-**Is ‘One-Sided Monogamy’ Just Cheating?**\
-`“Inside the Manosphere,” a new Netflix documentary, has fueled discussions about the relationship style.`\
-https://nytimes.com/2026/03/25/style/one-sided-monogamy-relationships-manosphere-louis-theroux.html
-
-**A Pastor Called for a Democrat to Be ‘Crucified With Christ.’ Was It a Threat?**\
-`James Talarico, the Democratic nominee for Senate in Texas, said, “You may pray for my death, Pastor, but I still love you.” The pastor said he was calling for Mr. Talarico’s religious conversion.`\
-https://nytimes.com/2026/03/25/us/politics/talarico-response-love-pastor-hegseth-crucified-christ.html
 
