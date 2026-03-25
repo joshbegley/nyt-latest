@@ -1,3 +1,7 @@
+**Butler hires former Bulldogs star guard Ronald Nored as coach**\
+`Nored helped Butler reach back-to-back national championship games in 2009-10 and 2010-11 as a starting guard.`\
+https://nytimes.com/athletic/7146606/2026/03/25/ronald-nored-butler-basketball-coach-hiring/
+
 **London Marathon exploring expansion to two-day event**\
 `The proposals form part of the organiser's ambitions to enable more people to take part in the event.`\
 https://nytimes.com/athletic/7146517/2026/03/25/london-marathon-expansion-two-days/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7146639/2026/03/25/lakers-vs-pacers-stream-how-to-w
 **The Oil Price Shock Could Make Italian Ice More Expensive**\
 `Higher energy prices caused by the war with Iran could affect more than just prices at the pump for American consumers.`\
 https://nytimes.com/2026/03/25/business/oil-price-italian-ice.html
-
-**‘I’ve Made at Least 500 NYT Recipes. This Is My Favorite One!’**\
-`Readers love my miso-chile asparagus with tofu, a quick and satisfying taste of spring.`\
-https://nytimes.com/2026/03/25/dining/ive-made-at-least-500-nyt-recipes-this-is-my-favorite-one.html
 

@@ -1,3 +1,11 @@
+**London Marathon exploring expansion to two-day event**\
+`The proposals form part of the organiser's ambitions to enable more people to take part in the event.`\
+https://nytimes.com/athletic/7146517/2026/03/25/london-marathon-expansion-two-days/
+
+**Trump Had His Eye on China, Then Plunged Into a New Mideast War**\
+`The Trump administration said the Middle East would “recede” in importance as the China challenge took priority. But the president started the Iran war.`\
+https://nytimes.com/2026/03/25/us/politics/trump-china-mideast.html
+
 **What I'm seeing from Zeev Buium, Tom Willander and Canucks down the stretch**\
 `Let's take a moment to go over some of what we're actually seeing on the ice from the Canucks of late.`\
 https://nytimes.com/athletic/7145957/2026/03/25/canucks-highlights-zeev-buium-tom-willander/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/25/business/oil-price-italian-ice.html
 **‘I’ve Made at Least 500 NYT Recipes. This Is My Favorite One!’**\
 `Readers love my miso-chile asparagus with tofu, a quick and satisfying taste of spring.`\
 https://nytimes.com/2026/03/25/dining/ive-made-at-least-500-nyt-recipes-this-is-my-favorite-one.html
-
-**In This Corner of the Internet, Everyone Looks Better Bald**\
-`A Reddit forum has become a haven for those deciding whether it’s time to shave it all.`\
-https://nytimes.com/2026/03/25/well/bald-reddit.html
-
-**Democrats Spend Big but Face Tough Fight in Virginia Gerrymandering Battle**\
-`Republicans are cautiously optimistic about a statewide referendum now at the center of the country’s gerrymandering war, but Democrats have a huge cash advantage.`\
-https://nytimes.com/2026/03/25/us/politics/virginia-redistricting-referendum-house-seats.html
 

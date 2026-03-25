@@ -1,3 +1,11 @@
+**London Marathon exploring expansion to two-day event**\
+`The proposals form part of the organiser's ambitions to enable more people to take part in the event.`\
+https://nytimes.com/athletic/7146517/2026/03/25/london-marathon-expansion-two-days/
+
+**Trump Had His Eye on China, Then Plunged Into a New Mideast War**\
+`The Trump administration said the Middle East would “recede” in importance as the China challenge took priority. But the president started the Iran war.`\
+https://nytimes.com/2026/03/25/us/politics/trump-china-mideast.html
+
 **What I'm seeing from Zeev Buium, Tom Willander and Canucks down the stretch**\
 `Let's take a moment to go over some of what we're actually seeing on the ice from the Canucks of late.`\
 https://nytimes.com/athletic/7145957/2026/03/25/canucks-highlights-zeev-buium-tom-willander/
