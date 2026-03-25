@@ -1,3 +1,15 @@
+**Social Media Giants Found Negligent in Landmark Trial**\
+`Also, Iran signals an openness to negotiations. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2026/03/25/briefing/social-media-trial-iran-us-peace-talks.html
+
+**U.S. Rejects Vote to Recognize Slavery as a ‘Crime Against Humanity’**\
+`The United Nations resolution was led by the president of Ghana. Israel and Argentina also voted against it.`\
+https://nytimes.com/2026/03/25/world/africa/un-slave-trade-vote-us-ghana-israel.html
+
+**Melania and the Robot**\
+`The first lady, Melania Trump, believes that more children should be educated by ‘humanoid educators.’`\
+https://nytimes.com/2026/03/25/us/politics/melania-trump-robot.html
+
 **Pistons' Tom Gores among bidders for Padres, who could sell for more than $3.5 billion: Sources**\
 `The second and final round of bids for the Padres are expected in early to mid-April and a sale could be agreed to by the end of April.`\
 https://nytimes.com/athletic/7147438/2026/03/25/tom-gores-san-diego-padres-sale-bidder/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/25/podcasts/serial-the-idiot-mgessen-intro-video.htm
 **The Good List**\
 ``\
 https://nytimes.com/series/the-good-list
-
-**Four Things to Know About a Democrat’s Win in Trump’s Backyard**\
-`A mother of three won a statehouse seat that includes Mar-a-Lago, while a union electrician leads in a State Senate race in conservative West Tampa.`\
-https://nytimes.com/2026/03/25/us/politics/florida-democrat-races.html
-
-**Are Dynasties Good for Baseball?**\
-`The Los Angeles Dodgers won back-to-back World Series and are the top contender for the title again as the baseball season opens. The Athletic’s M.L.B. writers sound off on whether dynasties are good or bad for the sport.`\
-https://nytimes.com/video/the-athletic/100000010800698/are-dynasties-good-for-baseball.html
-
-**Adam Silver says NBA will change lottery to curb tanking: 'We are going to fix it'**\
-`Silver said there was "unanimous" support to address the issue of tanking and the league will likely meet in May to decide on specifics. `\
-https://nytimes.com/athletic/7147357/2026/03/25/nba-tanking-lottery-adam-silver-fix/
 
