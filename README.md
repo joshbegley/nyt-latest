@@ -1,3 +1,31 @@
+**How to watch Bulls vs. 76ers: Time, TV, streaming**\
+`Find out how to watch the Chicago Bulls play the Philadelphia 76ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7146642/2026/03/25/bulls-vs-76ers-stream-how-to-watch-march-25/
+
+**How to watch Lakers vs. Pacers: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the Indiana Pacers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7146639/2026/03/25/lakers-vs-pacers-stream-how-to-watch-march-25/
+
+**The Oil Price Shock Could Make Italian Ice More Expensive**\
+`Higher energy prices caused by the war with Iran could affect more than just prices at the pump for American consumers.`\
+https://nytimes.com/2026/03/25/business/oil-price-italian-ice.html
+
+**‘I’ve Made at Least 500 NYT Recipes. This Is My Favorite One!’**\
+`Readers love my miso-chile asparagus with tofu, a quick and satisfying taste of spring.`\
+https://nytimes.com/2026/03/25/dining/ive-made-at-least-500-nyt-recipes-this-is-my-favorite-one.html
+
+**In This Corner of the Internet, Everyone Looks Better Bald**\
+`A Reddit forum has become a haven for those deciding whether it’s time to shave it all.`\
+https://nytimes.com/2026/03/25/well/bald-reddit.html
+
+**Democrats Spend Big but Face Tough Fight in Virginia Gerrymandering Battle**\
+`Republicans are cautiously optimistic about a statewide referendum now at the center of the country’s gerrymandering war, but Democrats have a huge cash advantage.`\
+https://nytimes.com/2026/03/25/us/politics/virginia-redistricting-referendum-house-seats.html
+
+**How MLB's 2026 season-opening game ended up on Netflix: MoneyCall**\
+`This week's free sports-business cheat sheet from The Athletic.`\
+https://nytimes.com/athletic/7146518/2026/03/25/mlb-netflix-yankees-moneycall/
+
 **What to Know About U.S.-Iran Negotiations**\
 `The United States is discussing ways to end hostilities with Iran, even as President Trump continues to threaten attacks and as the Pentagon dispatches more troops.`\
 https://nytimes.com/2026/03/25/world/middleeast/us-iran-war-talks-trump.html
@@ -9,32 +37,4 @@ https://nytimes.com/2026/03/25/health/cord-blood-registry-false-advertisements.h
 **A Critical Political Season Could Decide if Alaska Is a Failed ‘Petrostate’**\
 `A governor who spent two terms cutting services to preserve Alaskans’ oil-funded annual checks is leaving office. Voters must now decide what comes next for the state’s faltering fiscal model.`\
 https://nytimes.com/2026/03/25/us/politics/alaska-oil-midterms.html
-
-**The Windup: What Opening Day means to me**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/7146497/2026/03/25/mlb-opening-day-2026-the-windup/
-
-**Supreme Court Sides With Internet Provider in Copyright Fight Over Pirated Music**\
-`Leading music labels sued Cox Communications for failing to terminate accounts of subscribers flagged for distributing copyrighted music.`\
-https://nytimes.com/2026/03/25/us/politics/supreme-court-cox-music-copyright.html
-
-**Why Travis Kelce's new contract with the Chiefs isn't really a 3-year deal**\
-`Kelce is scheduled to receive a $40 million bonus in 2028 if he remains a part of K.C.’s roster on June 8, 2027. But that will never happen.`\
-https://nytimes.com/athletic/7146414/2026/03/25/chiefs-travis-kelce-new-contract-value-future/
-
-**Saints sign former Jets quarterback Zach Wilson to 1-year deal: Source**\
-`Wilson, drafted second overall by the Jets in 2021, spent last season as a backup with Miami.`\
-https://nytimes.com/athletic/7146411/2026/03/25/zach-wilson-saints-contract-deal-quarterback/
-
-**Salah? Henry? Kane? Our experts name their greatest Premier League attackers**\
-`After Mohamed Salah's exit from Liverpool in the coming summer was confirmed, our writers name their top forward of the Premier League era`\
-https://nytimes.com/athletic/7146300/2026/03/25/mohamed-salah-premier-league-greatest-forward/
-
-**NATO’s ‘Trump Whisperer’ Faces Blowback Over Support for Iran War**\
-`Critics say Mark Rutte, the alliance’s secretary general, has gone beyond his remit by openly supporting a war that does not directly involve Europe’s collective defense.`\
-https://nytimes.com/2026/03/25/world/middleeast/iran-nato-rutte-trump.html
-
-**Chaucer, Murder, Pilgrims: What Do You Know About Canterbury and Its Archbishops?**\
-`As a new archbishop of Canterbury is enthroned, test your knowledge of the cathedral city and its landmark moments.`\
-https://nytimes.com/interactive/2026/03/25/world/europe/uk-canterbury-archbishop-quiz.html
 
