@@ -1,3 +1,7 @@
+**Billionaires and the Erosion of Democracy**\
+`Readers discuss the effects of billionaires on U.S. society and politics. Also: Electric cars; President Trump’s personal ICE; an invitation to teenagers.`\
+https://nytimes.com/2026/03/25/opinion/billionaires-democracy.html
+
 **Israel Races to Hit Iran Hard While It Still Can, Leery of Possible Talks, Officials Say**\
 `Prime Minister Benjamin Netanyahu gave the order on Tuesday for the military to accelerate its attacks, with a 48-hour deadline, four people briefed on the matter said.`\
 https://nytimes.com/2026/03/25/world/middleeast/israel-attacks-iran-ceasefire-plan.html
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/7146536/2026/03/25/morecambe-national-league-windin
 `Iran does not want a momentary pause in the fighting, fearing that Israel and the United States would use that opportunity to beef up their forces before resuming strikes.`\
 https://nytimes.com/2026/03/25/world/middleeast/iran-talks-cease-fire.html
 
-**States Brace for a Potential Supreme Court Ban on Late-Arriving Ballots**\
+**Some States Already Preparing for Potential Supreme Court Ban on Late Ballots**\
 `The court’s conservatives appear skeptical of laws allowing mail ballots to arrive after Election Day. A decision could come as late as June, potentially scrambling midterm elections.`\
 https://nytimes.com/2026/03/25/us/politics/supreme-court-mail-ballots-states.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/25/science/paleontology-humans-dogs-dna.html
 **Daphne Selfe, World’s Oldest Professional Model, Dies at 97**\
 `Starting in 1949, she had an on-and-off career that lasted for 75 years. But her biggest success came late in life, modeling for labels like Dolce & Gabbana.`\
 https://nytimes.com/2026/03/25/style/daphne-selfe-dead.html
-
-**Man United transfers: Debating Shaw, Dalot, Onana and the future of the club's back line**\
-`Ian Irving, Laurie Whitwell, Carl Anka and Andy Mitten run the rule over the club’s defenders and goalkeepers`\
-https://nytimes.com/athletic/7146545/2026/03/25/manchester-united-transfers-shaw-onana-maguire/
 
