@@ -1,3 +1,7 @@
+**Somali Immigrants Have Effectively Been Denied a Fair Hearing, Lawsuit Says**\
+`Two Minnesota-based legal groups accused the Justice Department of unconstitutionally expediting Somalis’ immigration cases.`\
+https://nytimes.com/2026/03/24/us/dhs-fast-track-somali-deportations-lawsuit.html
+
 **Massachusetts Teacher Charged With Raping Two Students**\
 `The students say the former teacher at Miss Hall’s, a boarding school, groomed them and began having sex with them at age 16, which state law considers old enough for consent.`\
 https://nytimes.com/2026/03/24/us/teacher-rape-miss-halls-massachusetts.html

@@ -1,3 +1,7 @@
+**Greaves helps Blue Jackets survive sloppy first period, claim second in Metro**\
+`The Blue Jackets leapfrogged the Penguins to take possession of second in their division, heights they haven't hit in some time.`\
+https://nytimes.com/athletic/7145509/2026/03/24/blue-jackets-greaves-werenski-first-period-flyers/
+
 **Massachusetts Teacher Charged With Raping Two Students**\
 `The students say the former teacher at Miss Hall’s, a boarding school, groomed them and began having sex with them at age 16, which state law considers old enough for consent.`\
 https://nytimes.com/2026/03/24/us/teacher-rape-miss-halls-massachusetts.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7145337/2026/03/24/tyler-reddick-23xi-racing-contra
 **Hubert Davis is out at UNC, opening a premier job. Who could replace him?**\
 `Arizona's Tommy Lloyd and Billy Donovan of the Chicago Bulls are among the big-name candidates on UNC's wish list.`\
 https://nytimes.com/athletic/7138167/2026/03/24/hubert-davis-unc-mens-basketball-coaching-candidates/
-
-**UNC, basketball coach Hubert Davis split after historic tournament loss**\
-`In three of the past four seasons, North Carolina, the winningest team in tournament history, failed to advance to the round of 32. `\
-https://nytimes.com/athletic/7136043/2026/03/24/hubert-davis-resigns-unc-basketball-coach-north-carolina/
 
