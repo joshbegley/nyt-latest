@@ -1,3 +1,15 @@
+**Saints sign former Jets quarterback Zach Wilson to 1-year deal: Source**\
+`Wilson, drafted second overall by the Jets in 2021, spent last season as a backup with Miami.`\
+https://nytimes.com/athletic/7146411/2026/03/25/zach-wilson-saints-contract-deal-quarterback/
+
+**Salah? Henry? Kane? Our experts name their greatest Premier League attackers**\
+`After Mohamed Salah's exit from Liverpool in the coming summer was confirmed, our writers name their top forward of the Premier League era`\
+https://nytimes.com/athletic/7146300/2026/03/25/mohamed-salah-premier-league-greatest-forward/
+
+**NATO’s ‘Trump Whisperer’ Faces Blowback Over Support for Iran War**\
+`Critics say Mark Rutte, the alliance’s secretary general, has gone beyond his remit by openly supporting a war that does not directly involve Europe’s collective defense.`\
+https://nytimes.com/2026/03/25/world/middleeast/iran-nato-rutte-trump.html
+
 **Chaucer, Murder, Pilgrims: What Do You Know About Canterbury and Its Archbishops?**\
 `As a new archbishop of Canterbury is enthroned, test your knowledge of the cathedral city and its landmark moments.`\
 https://nytimes.com/interactive/2026/03/25/world/europe/uk-canterbury-archbishop-quiz.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/25/world/canada/air-canada-ceo-speech-french.html
 **Lowetide: Why Oilers rookie Josh Samanski is thriving on the third line**\
 `Signing Samanski out of Germany's DEL in the offseason was a significant addition for the Oilers.`\
 https://nytimes.com/athletic/7057879/2026/03/25/edmonton-oilers-josh-samanski-stats-lineup/
-
-**Does the Lakers' recent win streak make them a contender? What the numbers say**\
-`Their recent run of play has given the Lakers a chance to run with the West's best, but there's still a lot of work to do in the season.`\
-https://nytimes.com/athletic/7145682/2026/03/25/does-the-lakers-recent-win-streak-make-them-a-contender-what-the-numbers-say/
-
-**The Bounce: Are Mavericks fans still miserable? Plus, the East traffic jam**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/7143468/2026/03/25/mavericks-fans-misery-east-playoffs-the-bounce/
-
-**Three bold Padres predictions for the 2026 season**\
-`The Padres are approaching a crossroads and much change is expected this season. Here are three predictions on what we might see. `\
-https://nytimes.com/athletic/7141961/2026/03/25/padres-predictions-2026-mlb/
 

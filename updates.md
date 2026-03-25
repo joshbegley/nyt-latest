@@ -1,3 +1,15 @@
+**Saints sign former Jets quarterback Zach Wilson to 1-year deal: Source**\
+`Wilson, drafted second overall by the Jets in 2021, spent last season as a backup with Miami.`\
+https://nytimes.com/athletic/7146411/2026/03/25/zach-wilson-saints-contract-deal-quarterback/
+
+**Salah? Henry? Kane? Our experts name their greatest Premier League attackers**\
+`After Mohamed Salah's exit from Liverpool in the coming summer was confirmed, our writers name their top forward of the Premier League era`\
+https://nytimes.com/athletic/7146300/2026/03/25/mohamed-salah-premier-league-greatest-forward/
+
+**NATO’s ‘Trump Whisperer’ Faces Blowback Over Support for Iran War**\
+`Critics say Mark Rutte, the alliance’s secretary general, has gone beyond his remit by openly supporting a war that does not directly involve Europe’s collective defense.`\
+https://nytimes.com/2026/03/25/world/middleeast/iran-nato-rutte-trump.html
+
 **Chaucer, Murder, Pilgrims: What Do You Know About Canterbury and Its Archbishops?**\
 `As a new archbishop of Canterbury is enthroned, test your knowledge of the cathedral city and its landmark moments.`\
 https://nytimes.com/interactive/2026/03/25/world/europe/uk-canterbury-archbishop-quiz.html
