@@ -1,3 +1,15 @@
+**Get Ready for More Ticketmaster Wars**\
+`Music fans, get ready for more Ticketmaster wars. Binyamin Appelbaum, a Times Opinion writer, explains the Trump administration’s role in the Live Nation-Ticketmaster antitrust settlement and argues that it is siding with corporate interests at the expense of the American concert-goer.`\
+https://nytimes.com/video/opinion/100000010797031/get-ready-for-more-ticketmaster-wars.html
+
+**Air Canada C.E.O. Draws Scorn for Delivering Condolences in English**\
+`The lack of French in Michael Rousseau’s speech about the deadly collision at LaGuardia Airport reignited a debate over linguistic inclusivity in Canada.`\
+https://nytimes.com/2026/03/25/world/canada/air-canada-ceo-speech-french.html
+
+**Lowetide: Why Oilers rookie Josh Samanski is thriving on the third line**\
+`Signing Samanski out of Germany's DEL in the offseason was a significant addition for the Oilers.`\
+https://nytimes.com/athletic/7057879/2026/03/25/edmonton-oilers-josh-samanski-stats-lineup/
+
 **Does the Lakers' recent win streak make them a contender? What the numbers say**\
 `Their recent run of play has given the Lakers a chance to run with the West's best, but there's still a lot of work to do in the season.`\
 https://nytimes.com/athletic/7145682/2026/03/25/does-the-lakers-recent-win-streak-make-them-a-contender-what-the-numbers-say/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7145989/2026/03/25/tony-vitello-first-opening-day-s
 **For Ilia Malinin and Amber Glenn, figure skating worlds bring a fresh start**\
 `After stumbling on the Olympic stage, the U.S. stars are back this week at world championships, both searching for something personal.`\
 https://nytimes.com/athletic/7146029/2026/03/25/ilia-malinin-amber-glenn-figure-skating-world-championships-olympics/
-
-**Sexual Misconduct Report Leaves I.C.C.’s Path Ahead Unclear**\
-`In a report obtained by The New York Times, a panel of judges found that evidence of sexual misconduct by the chief prosecutor of the International Criminal Court left room for “reasonable doubt.”`\
-https://nytimes.com/2026/03/25/world/europe/sexual-harassment-international-criminal-court-khan.html
-
-**How will the Mets season go? Beat writer predictions go head-to-head with fan picks**\
-`More than half of our fan survey voters predicted the Mets will win the NL East. They were less optimistic about Marcus Semien's future. `\
-https://nytimes.com/athletic/7145470/2026/03/25/mets-mlb-preview-predictions/
-
-**Colorado Rockies viewers' guide 2026: How to watch games for rebuilding franchise**\
-`The Rockies won't turn into a contender overnight, but they should be more watchable in 2026. Here's how to catch their games.`\
-https://nytimes.com/athletic/7143331/2026/03/25/colorado-rockies-rebuild-how-to-watch-2026/
 
