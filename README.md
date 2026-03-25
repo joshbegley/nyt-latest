@@ -1,3 +1,7 @@
+**Women’s Champions League: 18 goals, OL Lyonnes slump, Barcelona and Arsenal shift into next gear**\
+`The Athletic staff breaks down key moments from the first leg of the Women's Champions League quarter-finals`\
+https://nytimes.com/athletic/7147567/2026/03/25/womens-champions-league-quarterfinal-goals/
+
 **Day Care Worker Stole Millions for Trips and W.W.E. Tickets, U.S. Says**\
 `Murielle Misczak was arrested Wednesday morning and is accused of using the money on wrestling tickets, luxury vacations and food deliveries.`\
 https://nytimes.com/2026/03/25/nyregion/daycare-brooklyn-theft-wwe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/25/us/army-recruiting-age-marijuana.html
 **Tiny Love Stories: ‘Six Years Younger and 30 Pounds Lighter’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2026/03/25/style/tiny-modern-love-stories-six-years-younger-and-30-pounds-lighter.html
-
-**NBA commissioner Adam Silver noncommittal about WNBA commissioner Cathy Engelbert's future**\
-`Silver said he was pleased with the league's growth, but he said he has not discussed Engelbert's future with the WNBA board.`\
-https://nytimes.com/athletic/7147522/2026/03/25/adam-silver-wnba-cathy-engelbert-future/
 
