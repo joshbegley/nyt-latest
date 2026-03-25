@@ -1,3 +1,7 @@
+**Can This Leading Republican Critic of Trump Hang On?**\
+`Can any Republican disagree with Trump and get away with it? Thomas Massie’s primary race in Kentucky is a key test.`\
+https://nytimes.com/2026/03/25/us/politics/thomas-massie-trump.html
+
 **Trump to Delay Nominating New C.D.C. Director**\
 `The administration has yet to find a candidate who aligns with Health Secretary Robert F. Kennedy Jr.’s agenda while avoiding his unpopular stance on vaccines.`\
 https://nytimes.com/2026/03/25/health/cdc-director-nomination-delay.html

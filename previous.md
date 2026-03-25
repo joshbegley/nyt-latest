@@ -1,3 +1,7 @@
+**Can This Leading Republican Critic of Trump Hang On?**\
+`Can any Republican disagree with Trump and get away with it? Thomas Massie’s primary race in Kentucky is a key test.`\
+https://nytimes.com/2026/03/25/us/politics/thomas-massie-trump.html
+
 **Trump to Delay Nominating New C.D.C. Director**\
 `The administration has yet to find a candidate who aligns with Health Secretary Robert F. Kennedy Jr.’s agenda while avoiding his unpopular stance on vaccines.`\
 https://nytimes.com/2026/03/25/health/cdc-director-nomination-delay.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/25/style/one-sided-monogamy-relationships-manosphere
 **A Pastor Called for a Democrat to Be ‘Crucified With Christ.’ Was It a Threat?**\
 `James Talarico, the Democratic nominee for Senate in Texas, said, “You may pray for my death, Pastor, but I still love you.” The pastor said he was calling for Mr. Talarico’s religious conversion.`\
 https://nytimes.com/2026/03/25/us/politics/talarico-response-love-pastor-hegseth-crucified-christ.html
-
-**Social Media Giants Found Negligent in Landmark Trial**\
-`Also, Iran signals an openness to negotiations. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2026/03/25/briefing/social-media-trial-iran-us-peace-talks.html
 
