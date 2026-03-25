@@ -1,3 +1,15 @@
+**Trump Says He’s Talking With Iran. Iran Says He’s Not. Here’s Why.**\
+`The president has domestic and international political motivations for touting negotiations to end the war. Iran has similar ones to deny discussions.`\
+https://nytimes.com/2026/03/25/world/middleeast/trump-iran-talks-contradiction.html
+
+**Reds place Nick Lodolo, Caleb Ferguson on IL, set Opening Day roster**\
+`Rhett Lowder will replace Lodolo in the Reds' rotation and is scheduled to start Sunday versus the Boston Red Sox.`\
+https://nytimes.com/athletic/7146797/2026/03/25/reds-opening-day-roster-nick-lodolo-caleb-ferguson/
+
+**Former Google Executive Named New Head of the BBC**\
+`Matt Brittin, the former president of Google in Europe, will become the new director general. Among the items on his to-do list: handling a lawsuit from President Trump.`\
+https://nytimes.com/2026/03/25/world/europe/matt-brittin-bbc-director-general.html
+
 **Stephen Colbert Is Writing a New ‘Lord of the Rings’ Movie**\
 `In an announcement video with the director Peter Jackson, the late-night host said he was developing a new film based on early chapters of the trilogy.`\
 https://nytimes.com/2026/03/25/movies/stephen-colbert-lord-of-the-rings.html
