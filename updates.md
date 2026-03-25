@@ -1,3 +1,7 @@
+**Florida Democrats Win Special Election in Mar-a-Lago’s District**\
+`Emily Gregory’s victory in Palm Beach brought the Democratic surge to President Trump’s backyard, while a union leader leads in a state senate seat vacated by Florida’s lieutenant governor.`\
+https://nytimes.com/2026/03/24/us/politics/florida-special-election-emily-gregory.html
+
 **UNC, basketball coach Hubert Davis split after historic tournament loss**\
 `In three of the past four seasons, North Carolina, the winningest team in tournament history, failed to advance to the round of 32. `\
 https://nytimes.com/athletic/7136043/2026/03/24/hubert-davis-resigns-unc-basketball-coach-north-carolina/

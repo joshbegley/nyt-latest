@@ -35,6 +35,6 @@ https://nytimes.com/athletic/7145172/2026/03/24/cubs-pete-crow-armstrong-contrac
 https://nytimes.com/2026/03/24/nyregion/port-authority-laguardia-crash-firefighters.html
 
 **Florida Democrats Win Special Election in Mar-a-Lago’s District**\
-`Emily Gregory’s victory brought the Democratic surge to President Trump’s backyard, Palm Beach, just weeks after her party won the mayor’s race in Boca Raton, 30 miles south.`\
+`Emily Gregory’s victory in Palm Beach brought the Democratic surge to President Trump’s backyard, while a union leader leads in a state senate seat vacated by Florida’s lieutenant governor.`\
 https://nytimes.com/2026/03/24/us/politics/florida-special-election-emily-gregory.html
 
