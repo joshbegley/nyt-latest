@@ -1,3 +1,11 @@
+**Oil Prices Tumble 6% as Trump Shows Eagerness to Talk to Iran**\
+`Investors reacted to signals of possible de-escalation of the war in the Middle East.`\
+https://nytimes.com/2026/03/24/business/oil-stock-gas-prices-iran.html
+
+**Plan to Disarm Hamas in Gaza Is Detailed at U.N.**\
+`A Board of Peace member said the most dangerous weapons would be collected first. He linked compliance with disarmament to reconstruction beginning in the enclave.`\
+https://nytimes.com/2026/03/24/world/middleeast/gaza-disarm-hamas-israel-board-of-peace.html
+
 **Tyler Reddick, 23XI Racing close in on contract extension**\
 `Reddick is off to an unprecedented start to the season, and both sides sound confident a deal will be struck.`\
 https://nytimes.com/athletic/7145337/2026/03/24/tyler-reddick-23xi-racing-contract-extension/

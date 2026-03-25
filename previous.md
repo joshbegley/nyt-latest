@@ -1,3 +1,11 @@
+**Oil Prices Tumble 6% as Trump Shows Eagerness to Talk to Iran**\
+`Investors reacted to signals of possible de-escalation of the war in the Middle East.`\
+https://nytimes.com/2026/03/24/business/oil-stock-gas-prices-iran.html
+
+**Plan to Disarm Hamas in Gaza Is Detailed at U.N.**\
+`A Board of Peace member said the most dangerous weapons would be collected first. He linked compliance with disarmament to reconstruction beginning in the enclave.`\
+https://nytimes.com/2026/03/24/world/middleeast/gaza-disarm-hamas-israel-board-of-peace.html
+
 **Tyler Reddick, 23XI Racing close in on contract extension**\
 `Reddick is off to an unprecedented start to the season, and both sides sound confident a deal will be struck.`\
 https://nytimes.com/athletic/7145337/2026/03/24/tyler-reddick-23xi-racing-contract-extension/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/24/world/middleeast/iran-strait-of-hormuz-ships.html
 **Sports card lawsuit against Fanatics, MLB, NBA and NFL dismissed**\
 `The lawsuit came in the wake of Panini's claims against Fanatics.`\
 https://nytimes.com/athletic/7145186/2026/03/24/fanatics-nba-nfl-mlb-lawsuit/
-
-**T.S.A. Tipped Off ICE Agents Before Arrests at San Francisco Airport**\
-`Transportation Security Administration officials told ICE that a mother and daughter under a detention order had planned to fly domestically, federal documents show.`\
-https://nytimes.com/2026/03/24/us/tsa-data-ice-deportation-san-francisco-airport.html
-
-**Cubs will see how good Pete Crow-Armstrong can be as franchise player at Wrigley Field**\
-`The team wouldn't be doing this deal if it didn't project significant surplus value from Crow-Armstrong in the future. `\
-https://nytimes.com/athletic/7145172/2026/03/24/cubs-pete-crow-armstrong-contract-opening-day-mlb/
 
