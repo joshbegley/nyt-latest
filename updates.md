@@ -1,3 +1,11 @@
+**Sorry UNC, but Brad Stevens was never walking through that door**\
+`Stevens has never given any indication he wants to leave Boston. Beyond that, why would he leave now?`\
+https://nytimes.com/athletic/7147119/2026/03/25/brad-stevens-unc-coaching-search-celtics/
+
+**Meta and YouTube Found Negligent in Landmark Social Media Addiction Case**\
+`A jury found the companies harmed a young user with design features that were addictive and led to her mental health distress.`\
+https://nytimes.com/2026/03/25/technology/social-media-trial-verdict.html
+
 **E.P.A. Waives Smog Rules on Summer Gasoline in Bid to Ease Prices**\
 `The moves will allow expanded sales of a higher-ethanol blend known as E15, which is often restricted in the summer.`\
 https://nytimes.com/2026/03/25/climate/epa-waive-smog-gas-ethanol.html
