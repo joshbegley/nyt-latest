@@ -1,3 +1,23 @@
+**Why Carson Benge is ready for New York: 'I've never seen him intimidated'**\
+`Benge is in line to face Paul Skenes on Opening Day, but don't expect him to be daunted: "He has elite confidence."`\
+https://nytimes.com/athletic/7145363/2026/03/25/carson-benge-rookie-prospect-debut/
+
+**On Opening Day, Craig Stammen will become an MLB rarity — a former pitcher-turned-manager**\
+`Being a major-league manager is a tough job for any former player to get, but it's even harder if you spent most of your time on the mound. `\
+https://nytimes.com/athletic/7137234/2026/03/25/craig-stammen-padres-manager-pitchers/
+
+**Inside the Guardians' ownership succession plan, and David Blitzer's path to majority control**\
+`Paul Dolan's time as Guardians owner could be ending as soon as 2027 if Blitzer chooses to exercise his option to take on a majority share.`\
+https://nytimes.com/athletic/7142579/2026/03/25/guardians-ownership-succession-plan-david-blitzer-majority-control/
+
+**Mandel's Mailbag: Should college football be worried about becoming the next NASCAR?**\
+`Eligibility lawsuits, the future of college football, coach-in-waiting drama, impact freshmen and more answers to reader questions.`\
+https://nytimes.com/athletic/7145267/2026/03/25/college-football-eligibility-nfl-draft-tv-ratings/
+
+**The Pulse: How Gen Z has changed the NHL**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7145183/2026/03/25/nhl-gen-z-stars-celebrini-zegras-schaefer-the-pulse/
+
 **Sweet 16 pressure gauge: Which NCAA Tournament coaches need to win most?**\
 `Let’s apply a pressure gauge to the 16 remaining coaches in the NCAA Tournament, ranked from most pressure to least.`\
 https://nytimes.com/athletic/7145260/2026/03/25/sweet-16-ncaa-tournament-coaches-pressure/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7124972/2026/03/25/manchester-united-women-crucial-
 **Flyers squander another opportunity to get back into the playoff race**\
 `Philadelphia fell to the Columbus Blue Jackets — a team it is chasing — for the second time in 11 days at Xfinity Mobile Arena, 3-2.`\
 https://nytimes.com/athletic/7145683/2026/03/25/flyers-lose-blue-jackets-playoff-race/
-
-**Sidney Crosby places blame on himself after Penguins get blown out by Avalanche**\
-`For a second consecutive game, the Penguins were beaten up by a heavyweight, this time falling to the Avalanche. `\
-https://nytimes.com/athletic/7145482/2026/03/25/penguins-sidney-crosby-avalanche-blowout/
-
-**Winnable missed opportunity leaves Red Wings running out of time to rewrite March woes**\
-`A second consecutive regulation home loss has put the Red Wings in a precarious spot in the Eastern Conference playoff race.`\
-https://nytimes.com/athletic/7145585/2026/03/25/detroit-red-wings-ottawa-senators-march-playoffs/
-
-**Cowboys NFL Draft big board: 25 possibilities with their 2 first-round picks**\
-`Dallas needs the most help on defense and it's likely the Cowboys draft two defensive players with their picks at No. 12 and No. 20.`\
-https://nytimes.com/athletic/7144361/2026/03/25/dallas-cowboys-nfl-draft-big-board-defense/
-
-**Whatever happened to the .300 hitter? Why the benchmark of batting is going extinct**\
-`In 2016, Francisco Lindor was one of 25 qualified major-league hitters to bat .300 or better. Only seven players did so in 2025.`\
-https://nytimes.com/athletic/7143398/2026/03/25/mlb-hitters-300-batting-francisco-lindor/
-
-**Jason Robertson's next contract and how the Stars can make it fit**\
-`Robertson has leveled up this year with one of his best regular seasons yet. What does it mean for his value this summer as an RFA?`\
-https://nytimes.com/athletic/7144121/2026/03/25/jason-robertson-stars-next-contract/
 
