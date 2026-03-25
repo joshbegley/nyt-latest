@@ -1,3 +1,11 @@
+**What a great season would look like for the 2026 Giants**\
+`For the Giants' season to be a success, it needs to include the postseason but the postseason formula has to be one that's repeatable.`\
+https://nytimes.com/athletic/7146001/2026/03/25/sf-giants-good-season-2026/
+
+**Iranians Reject Trump’s Offer for Cease-Fire but Signal Openness to Talks**\
+`Iran does not want a momentary pause in the fighting, fearing that Israel and the United States would use that opportunity to beef up their forces before resuming strikes.`\
+https://nytimes.com/2026/03/25/world/middleeast/iran-talks-cease-fire.html
+
 **Billionaires and the Erosion of Democracy**\
 `Readers discuss the effects of billionaires on U.S. society and politics. Also: Electric cars; President Trump’s personal ICE; an invitation to teenagers.`\
 https://nytimes.com/2026/03/25/opinion/billionaires-democracy.html
