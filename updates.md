@@ -1,3 +1,7 @@
+**Six weeks on from sacking Frank and appointing Tudor, Spurs face the same questions**\
+`The situation that Tottenham are in right now is eerily similar to the situation six weeks ago - except they're nearer the drop zone`\
+https://nytimes.com/athletic/7141176/2026/03/25/spurs-tudor-venkatesham-lange/
+
 **Should These Abandoned Tracks Become a Park or a Train Line? Or Both?**\
 `A disused rail line in Queens could help reconnect the borough and add much-needed park space. A new report suggests that a plan to do both is possible, but it faces long odds.`\
 https://nytimes.com/2026/03/25/nyregion/queenslink-subway-mamdani-nyc.html
