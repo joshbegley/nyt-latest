@@ -1,3 +1,11 @@
+**LaGuardia Crash Tests New Port Authority Leader**\
+`Kathryn Garcia, who began leading the agency in February, consoled two injured firefighters and dealt with delays at the three big airports serving New York City.`\
+https://nytimes.com/2026/03/24/nyregion/port-authority-laguardia-crash-firefighters.html
+
+**Florida Democrats Win Special Election in Mar-a-Lago’s District**\
+`Emily Gregory’s victory brought the Democratic surge to President Trump’s backyard, Palm Beach, just weeks after her party won the mayor’s race in Boca Raton, 30 miles south.`\
+https://nytimes.com/2026/03/24/us/politics/florida-special-election-emily-gregory.html
+
 **Here’s What Happened in the War in the Middle East on Tuesday**\
 `The U.S. was said to have sent Iran a peace plan via Pakistan on a day that the Iranians fired a torrent of missiles across the region.`\
 https://nytimes.com/2026/03/24/world/middleeast/iran-war-middle-east-recap-tuesday.html
