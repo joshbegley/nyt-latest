@@ -1,3 +1,11 @@
+**Tyler Reddick, 23XI Racing close in on contract extension**\
+`Reddick is off to an unprecedented start to the season, and both sides sound confident a deal will be struck.`\
+https://nytimes.com/athletic/7145337/2026/03/24/tyler-reddick-23xi-racing-contract-extension/
+
+**Hubert Davis is out at UNC, opening a premier job. Who could replace him?**\
+`Arizona's Tommy Lloyd and Billy Donovan of the Chicago Bulls are among the big-name candidates on UNC's wish list.`\
+https://nytimes.com/athletic/7138167/2026/03/24/hubert-davis-unc-mens-basketball-coaching-candidates/
+
 **UNC, basketball coach Hubert Davis split after historic tournament loss**\
 `In three of the past four seasons, North Carolina, the winningest team in tournament history, failed to advance to the round of 32. `\
 https://nytimes.com/athletic/7136043/2026/03/24/hubert-davis-resigns-unc-basketball-coach-north-carolina/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/24/us/tsa-data-ice-deportation-san-francisco-airport
 **Cubs will see how good Pete Crow-Armstrong can be as franchise player at Wrigley Field**\
 `The team wouldn't be doing this deal if it didn't project significant surplus value from Crow-Armstrong in the future. `\
 https://nytimes.com/athletic/7145172/2026/03/24/cubs-pete-crow-armstrong-contract-opening-day-mlb/
-
-**LaGuardia Crash Tests New Port Authority Leader**\
-`Kathryn Garcia, who began leading the agency in February, consoled two injured firefighters and dealt with delays at the three big airports serving New York City.`\
-https://nytimes.com/2026/03/24/nyregion/port-authority-laguardia-crash-firefighters.html
-
-**Florida Democrats Win Special Election in Mar-a-Lago’s District**\
-`Emily Gregory’s victory in Palm Beach brought the Democratic surge to President Trump’s backyard, while a union leader leads in a race for a state senate seat vacated by Florida’s lieutenant governor.`\
-https://nytimes.com/2026/03/24/us/politics/florida-special-election-emily-gregory.html
 
