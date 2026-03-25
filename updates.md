@@ -1,3 +1,7 @@
+**Buster Posey explains Giants' Opening Day lineup, choosing Jared Oliva over Luis Matos**\
+`"Everybody's behind J.O. and thrilled that he's on the team," said Posey, who went with the speedy outfielder over a former top prospect.`\
+https://nytimes.com/athletic/7147575/2026/03/25/sf-giants-opening-day-lineup-buster-posey-jared-oliva-luis-matos/
+
 **Women’s Champions League: 18 goals, OL Lyonnes slump, Barcelona and Arsenal shift into next gear**\
 `The Athletic staff breaks down key moments from the first leg of the Women's Champions League quarter-finals`\
 https://nytimes.com/athletic/7147567/2026/03/25/womens-champions-league-quarterfinal-goals/

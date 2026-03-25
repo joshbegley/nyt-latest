@@ -1,3 +1,7 @@
+**Buster Posey explains Giants' Opening Day lineup, choosing Jared Oliva over Luis Matos**\
+`"Everybody's behind J.O. and thrilled that he's on the team," said Posey, who went with the speedy outfielder over a former top prospect.`\
+https://nytimes.com/athletic/7147575/2026/03/25/sf-giants-opening-day-lineup-buster-posey-jared-oliva-luis-matos/
+
 **Women’s Champions League: 18 goals, OL Lyonnes slump, Barcelona and Arsenal shift into next gear**\
 `The Athletic staff breaks down key moments from the first leg of the Women's Champions League quarter-finals`\
 https://nytimes.com/athletic/7147567/2026/03/25/womens-champions-league-quarterfinal-goals/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/25/business/iran-war-dollar-rupee-won.html
 **Army Raises Enlistment Age Limit to 42 and Eases Marijuana Rules**\
 `The new enlistment requirements were made official years after the Army faced a recruiting crisis, and as the United States is engaged in a war with Iran.`\
 https://nytimes.com/2026/03/25/us/army-recruiting-age-marijuana.html
-
-**Tiny Love Stories: ‘Six Years Younger and 30 Pounds Lighter’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2026/03/25/style/tiny-modern-love-stories-six-years-younger-and-30-pounds-lighter.html
 
