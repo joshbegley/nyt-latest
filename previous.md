@@ -1,3 +1,7 @@
+**Word of the Day: litigation**\
+`This word has appeared in 1,099 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/25/learning/word-of-the-day-litigation.html
+
 **Late Night Questions the ‘Very Big Present’ Trump Got From Iran**\
 `Josh Johnson was puzzled by what kind of gift the president could have received “from the people you are currently at war with.”`\
 https://nytimes.com/2026/03/25/arts/television/late-night-trump-present-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7144985/2026/03/25/mohamed-salah-liverpool-exit-col
 **'Some players have gone three summers without a rest': Why footballers could be exhausted at the World Cup**\
 `The summer's tournament in the U.S., Mexico and Canada will test players like never before given the cluttered schedule in the build-up`\
 https://nytimes.com/athletic/7142983/2026/03/25/world-cup-fatigue-2026-rice-fifpro/
-
-**The 22 teams that can still qualify for the World Cup**\
-`There are still 22 teams, from all over the planet, who can qualify for the World Cup this summer`\
-https://nytimes.com/athletic/7112659/2026/03/25/world-cup-teams-qualifiers-playoffs/
 

@@ -1,3 +1,7 @@
+**Word of the Day: litigation**\
+`This word has appeared in 1,099 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/25/learning/word-of-the-day-litigation.html
+
 **Late Night Questions the ‘Very Big Present’ Trump Got From Iran**\
 `Josh Johnson was puzzled by what kind of gift the president could have received “from the people you are currently at war with.”`\
 https://nytimes.com/2026/03/25/arts/television/late-night-trump-present-iran.html
