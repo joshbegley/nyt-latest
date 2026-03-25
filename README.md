@@ -1,3 +1,11 @@
+**Is ‘One-Sided Monogamy’ Just Cheating?**\
+`“Inside the Manosphere,” a new Netflix documentary, has fueled discussions about the relationship style.`\
+https://nytimes.com/2026/03/25/style/one-sided-monogamy-relationships-manosphere-louis-theroux.html
+
+**A Pastor Called for a Democrat to Be ‘Crucified With Christ.’ Was It a Threat?**\
+`James Talarico, the Democratic nominee for Senate in Texas, said, ‘You may pray for my death, Pastor, but I still love you.’ The pastor said he was calling for Mr. Talarico’s religious conversion.`\
+https://nytimes.com/2026/03/25/us/politics/talarico-response-love-pastor-hegseth-crucified-christ.html
+
 **Social Media Giants Found Negligent in Landmark Trial**\
 `Also, Iran signals an openness to negotiations. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2026/03/25/briefing/social-media-trial-iran-us-peace-talks.html
@@ -7,7 +15,7 @@ https://nytimes.com/2026/03/25/briefing/social-media-trial-iran-us-peace-talks.h
 https://nytimes.com/2026/03/25/world/africa/un-slave-trade-vote-us-ghana-israel.html
 
 **Melania and the Robot**\
-`The first lady, Melania Trump, believes that more children should be educated by ‘humanoid educators.’`\
+`The first lady, Melania Trump, believes that more children should be educated by “humanoid educators.”`\
 https://nytimes.com/2026/03/25/us/politics/melania-trump-robot.html
 
 **Pistons' Tom Gores among bidders for Padres, who could sell for more than $3.5 billion: Sources**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7147422/2026/03/25/victor-hedman-lightning-personal
 **The Cast of ‘Laguna Beach’ Reunites Onscreen After 20 Years**\
 `The show, which depicted the lives of a group of wealthy high schoolers and helped to pioneer a genre of soap-style reality TV, will return in April with a reunion special.`\
 https://nytimes.com/2026/03/25/style/laguna-beach-reunion-roku-mtv.html
-
-**From Serial Productions: The Idiot**\
-`The New York Times writer M. Gessen always disliked their younger cousin Allen. But then he did something so bad, even M. was surprised – and they realized they didn’t know Allen at all.`\
-https://nytimes.com/2026/03/25/podcasts/serial-the-idiot-mgessen-intro-video.html
-
-**The Good List**\
-``\
-https://nytimes.com/series/the-good-list
 
