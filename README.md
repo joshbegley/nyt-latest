@@ -1,3 +1,7 @@
+**LeBron James' partner advising Project B league as it seeks to lure NBA players**\
+`Grady Burnett, one of Project B’s co-founders, says he hasn't spoken to LeBron James, 41, about joining the league.`\
+https://nytimes.com/athletic/7145224/2026/03/24/project-b-nba-player-talent-lure-lebron-maverick-carter/
+
 **Aaron Judge is everyone's favorite player. What's it like being Judge's favorite player?**\
 `"It's pretty crazy," said longtime San Francisco Giant Rich Aurilia, who has developed a friendly relationship with the Yankees' captain. `\
 https://nytimes.com/athletic/7145125/2026/03/24/yankees-aaron-judge-favorite-player-rich-aurilia/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/24/us/politics/florida-special-election-emily-gregor
 **Here’s What Happened in the War in the Middle East on Tuesday**\
 `The U.S. was said to have sent Iran a peace plan via Pakistan on a day that the Iranians fired a torrent of missiles across the region.`\
 https://nytimes.com/2026/03/24/world/middleeast/iran-war-middle-east-recap-tuesday.html
-
-**WNBA term sheet reveals CBA details on schedule, facilities standards, more**\
-`The document also includes further details on developmental roster spots and marketing commitments.`\
-https://nytimes.com/athletic/7145136/2026/03/24/wnba-term-sheet-cba-details/
 
