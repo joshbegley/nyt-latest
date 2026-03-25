@@ -1,3 +1,11 @@
+**Iraq Summons U.S. Diplomat After Attack on Military Base**\
+`The attack came a day after a separate strike on the same base, which hosts units viewed by the United States as allies of Iran.`\
+https://nytimes.com/2026/03/25/world/middleeast/iraq-summons-us-diplomat-after-attack-on-military-base.html
+
+**Butler hires former Bulldogs star guard Ronald Nored as coach**\
+`Nored helped Butler reach back-to-back national championship games in 2009-10 and 2010-11 as a starting guard.`\
+https://nytimes.com/athletic/7146606/2026/03/25/ronald-nored-butler-basketball-coach-hiring/
+
 **London Marathon exploring expansion to two-day event**\
 `The proposals form part of the organiser's ambitions to enable more people to take part in the event.`\
 https://nytimes.com/athletic/7146517/2026/03/25/london-marathon-expansion-two-days/
