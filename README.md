@@ -1,3 +1,7 @@
+**Iraq Summons U.S. Diplomat After Attack on Military Base**\
+`The attack came a day after a separate strike on the same base, which hosts units viewed by the United States as allies of Iran.`\
+https://nytimes.com/2026/03/25/world/middleeast/iraq-summons-us-diplomat-after-attack-on-military-base.html
+
 **Butler hires former Bulldogs star guard Ronald Nored as coach**\
 `Nored helped Butler reach back-to-back national championship games in 2009-10 and 2010-11 as a starting guard.`\
 https://nytimes.com/athletic/7146606/2026/03/25/ronald-nored-butler-basketball-coach-hiring/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7146642/2026/03/25/bulls-vs-76ers-stream-how-to-wat
 **How to watch Lakers vs. Pacers: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Lakers play the Indiana Pacers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7146639/2026/03/25/lakers-vs-pacers-stream-how-to-watch-march-25/
-
-**The Oil Price Shock Could Make Italian Ice More Expensive**\
-`Higher energy prices caused by the war with Iran could affect more than just prices at the pump for American consumers.`\
-https://nytimes.com/2026/03/25/business/oil-price-italian-ice.html
 
