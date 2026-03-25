@@ -1,3 +1,15 @@
+**Canadiens won’t have a Calder winner, but their rookies are fuelling big wins**\
+`Oliver Kapanen, Ivan Demidov and Jakub Dobeš helped the Canadiens win a game that made them a very likely playoff team.`\
+https://nytimes.com/athletic/7145918/2026/03/25/canadiens-calder-trophy-kapanen-demidov-dobes/
+
+**U.S. distance runner alleges she was dropped by sponsor after pregnancy**\
+`Emma Bates, 33, said she lost her sponsorship deal with fueling company UCan, which denies her version of events.`\
+https://nytimes.com/athletic/7146234/2026/03/25/emma-bates-pregnancy-sponsor-ucan/
+
+**Q&A with Cubs president Jed Hoyer (Part 1): On projections, depth and expectations**\
+`Alex Bregman "provides a real sense of gravitas within the clubhouse," Hoyer said of the Cubs' biggest offseason addition.`\
+https://nytimes.com/athletic/7142685/2026/03/25/cubs-president-jed-hoyer-interview-part-1/
+
 **What Sora’s End Says About OpenAI’s Strategy**\
 `The artificial intelligence start-up has pulled the plug on the video-making tool as it rethinks spending ahead of a possible blockbuster I.P.O.`\
 https://nytimes.com/2026/03/25/business/dealbook/sora-openai-finances-ipo.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7142475/2026/03/25/astros-predictions-yordan-alvare
 **Trump Administration Live Updates: House Committee to Hold Hearing on D.H.S. Shutdown**\
 ``\
 https://nytimes.com/live/2026/03/25/us/trump-news
-
-**‘Dog Day’ Drama: Broadway Playwright Briefly Kept Out of Rehearsals**\
-`A week before opening night, tensions spilled over offstage, with the show’s producing team temporarily prohibiting Stephen Adly Guirgis from entering the theater.`\
-https://nytimes.com/2026/03/25/theater/dog-day-afternoon-broadway-stephen-adly-guirgis.html
-
-**Mikaela Shiffrin clinches Alpine skiing's World Cup overall title for sixth time**\
-`Shiffrin held off Germany's Emma Aicher in the final race of the year, a giant slalom, at the World Cup finals.`\
-https://nytimes.com/athletic/7146206/2026/03/25/mikaela-shiffrin-world-cup-overall-title-lillehammer-olympics/
-
-**Three bold Yankees predictions for the 2026 season**\
-`Here are three bold predictions for how the season could unfold for the Yankees' Ben Rice, Anthony Volpe and Carlos Lagrange. `\
-https://nytimes.com/athletic/7141478/2026/03/25/yankees-predictions-2026-season/
 
