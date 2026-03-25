@@ -1,3 +1,11 @@
+**F-bombs and 'fork!': Why some hoops coaches swear up a storm while others keep it clean**\
+`Coaches like UConn's Dan Hurley say it's second nature. Others like Tennessee's Rick Barnes set a different example. It's all communication.`\
+https://nytimes.com/athletic/7144111/2026/03/25/coaches-cursing-swear-words/
+
+**Kentucky athletics is a big spender with even richer goals: Like an annual budget of $250M**\
+`Kentucky is making a bold move that could signal where the future of college sports is headed.`\
+https://nytimes.com/athletic/7145141/2026/03/25/kentucky-athletics-ncaa-tournament-money-llc/
+
 **What are Mohamed Salah's options now he is leaving Liverpool?**\
 `Where next for the Egyptian? Saudi Arabia? MLS? Europe? We discuss his possible options once he leaves Liverpool.`\
 https://nytimes.com/athletic/7145627/2026/03/25/mohamed-salah-next-club-saudi-mls/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/25/nyregion/alpha-gal-what-to-know.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/03/25/crosswords/spelling-bee-forum.html
-
-**It Begins as a Tick Bite and Can Be Devastating. And It’s Spreading.**\
-`The incidence of alpha-gal syndrome appears to be growing significantly. Patients who are bitten can develop a severe allergy to red meat, and a few have died.`\
-https://nytimes.com/2026/03/25/nyregion/alpha-gal-meat-allergy-deaths.html
-
-**Mamdani Is Quietly Backing Away From a Threat to Raise Property Taxes**\
-`The mayor has left lawmakers with the belief he does not plan to pursue an unpopular property tax increase, as he looks to close a budget gap of $5.4 billion over two years.`\
-https://nytimes.com/2026/03/25/nyregion/mamdani-property-tax-increase.html
 
