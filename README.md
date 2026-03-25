@@ -1,3 +1,7 @@
+**Six weeks on from sacking Frank and appointing Tudor, Spurs face the same questions**\
+`The situation that Tottenham are in right now is eerily similar to the situation six weeks ago - except they're nearer the drop zone`\
+https://nytimes.com/athletic/7141176/2026/03/25/spurs-tudor-venkatesham-lange/
+
 **Should These Abandoned Tracks Become a Park or a Train Line? Or Both?**\
 `A disused rail line in Queens could help reconnect the borough and add much-needed park space. A new report suggests that a plan to do both is possible, but it faces long odds.`\
 https://nytimes.com/2026/03/25/nyregion/queenslink-subway-mamdani-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/25/nyregion/nyc-atm-scam-investigation.html
 **Word of the Day: litigation**\
 `This word has appeared in 1,099 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/25/learning/word-of-the-day-litigation.html
-
-**Late Night Questions the ‘Very Big Present’ Trump Got From Iran**\
-`Josh Johnson was puzzled by what kind of gift the president could have received “from the people you are currently at war with.”`\
-https://nytimes.com/2026/03/25/arts/television/late-night-trump-present-iran.html
 
