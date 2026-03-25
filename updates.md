@@ -1,3 +1,7 @@
+**Why those close to Randy Bennett say the 63-year-old will thrive at Arizona State**\
+`Bennett took over a program coming off a two-win season. Over the next two decades, he turned the school into a mid-major power.`\
+https://nytimes.com/athletic/7146027/2026/03/25/randy-bennett-arizona-state-head-coach-age-energy-introduction/
+
 **Canadiens won’t have a Calder winner, but their rookies are fuelling big wins**\
 `Oliver Kapanen, Ivan Demidov and Jakub Dobeš helped the Canadiens win a game that made them a very likely playoff team.`\
 https://nytimes.com/athletic/7145918/2026/03/25/canadiens-calder-trophy-kapanen-demidov-dobes/
