@@ -1,3 +1,7 @@
+**Sorry UNC, but Brad Stevens was never walking through that door**\
+`Stevens has never given any indication he wants to leave Boston. Beyond that, why would he leave now?`\
+https://nytimes.com/athletic/7147119/2026/03/25/brad-stevens-unc-coaching-search-celtics/
+
 **E.P.A. Waives Smog Rules on Summer Gasoline in Bid to Ease Prices**\
 `The moves will allow expanded sales of a higher-ethanol blend known as E15, which is often restricted in the summer.`\
 https://nytimes.com/2026/03/25/climate/epa-waive-smog-gas-ethanol.html
@@ -27,10 +31,6 @@ https://nytimes.com/2026/03/25/world/europe/denmark-elections-pigs-frederiksen.h
 https://nytimes.com/interactive/2026/03/25/books/wallace-stevens-of-mere-being-poetry.html
 
 **Meta and YouTube Found Negligent in Landmark Social Media Addiction Case**\
-`A jury found the companies negligent in their app designs, harming a young user with design features that were addictive and led to her mental health distress.`\
+`A jury found the companies harmed a young user with design features that were addictive and led to her mental health distress.`\
 https://nytimes.com/2026/03/25/technology/social-media-trial-verdict.html
-
-**How to watch Rangers vs. Maple Leafs: Time, TV, streaming**\
-`Find out how to watch the New York Rangers play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7146985/2026/03/25/rangers-vs-maple-leafs-stream-how-to-watch-march-25/
 
