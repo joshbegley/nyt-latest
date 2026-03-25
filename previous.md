@@ -1,3 +1,35 @@
+**For Ilia Malinin and Amber Glenn, figure skating worlds bring a fresh start**\
+`After stumbling on the Olympic stage, the U.S. stars are back this week at world championships, both searching for something personal.`\
+https://nytimes.com/athletic/7146029/2026/03/25/ilia-malinin-amber-glenn-figure-skating-world-championships-olympics/
+
+**Sexual Misconduct Report Leaves I.C.C.’s Path Ahead Unclear**\
+`In a report obtained by The New York Times, a panel of judges found that evidence of sexual misconduct by the chief prosecutor of the International Criminal Court left room for “reasonable doubt.”`\
+https://nytimes.com/2026/03/25/world/europe/sexual-harassment-international-criminal-court-khan.html
+
+**How will the Mets season go? Beat writer predictions go head-to-head with fan picks**\
+`More than half of our fan survey voters predicted the Mets will win the NL East. They were less optimistic about Marcus Semien's future. `\
+https://nytimes.com/athletic/7145470/2026/03/25/mets-mlb-preview-predictions/
+
+**Colorado Rockies viewers' guide 2026: How to watch games for rebuilding franchise**\
+`The Rockies won't turn into a contender overnight, but they should be more watchable in 2026. Here's how to catch their games.`\
+https://nytimes.com/athletic/7143331/2026/03/25/colorado-rockies-rebuild-how-to-watch-2026/
+
+**Our Youngest Child Has Cut Ties With Our Family. Help!**\
+`A reader is distraught over the rift with her 37-year-old child, who is insisting on having a neutral party present for any potential meeting with the rest of the family.`\
+https://nytimes.com/2026/03/25/style/family-dysfunction-mediator.html
+
+**Carrying on Clayton Kershaw's legacy: How the Dodgers constructed their clubhouse culture**\
+`Dodgers players demand accountability and narcissism is strictly forbidden: "You don't want to be the guy to make things go off the track."`\
+https://nytimes.com/athletic/7143864/2026/03/25/dodgers-mlb-preview-chemistry-leadership/
+
+**Tanks for nothing? Jazz, Raptors offer different philosophies when it comes to rebuilding**\
+`At 24, Scottie Barnes is competing as best he can. At 28, Lauri Markkanen has been put on ice — again.`\
+https://nytimes.com/athletic/7144022/2026/03/25/raptors-jazz-scottie-barnes-lauri-markkanen-tanking-nba/
+
+**Experts don’t believe the Twins can win in 2026. The team doesn’t agree**\
+`“I don't think our guys really give a s---” about projections, said starting pitcher Bailey Ober.`\
+https://nytimes.com/athletic/7144292/2026/03/25/minnesota-twins-season-preview-predictions/
+
 **N.Y.U. Professors Reach a Deal on a Contract to End Strike After 2 Days**\
 `A union for about 950 full-time faculty members who are not on the tenure track said that 95 percent of its instructors would earn more than $100,000.`\
 https://nytimes.com/2026/03/25/nyregion/nyu-professor-strike-ends.html
@@ -5,36 +37,4 @@ https://nytimes.com/2026/03/25/nyregion/nyu-professor-strike-ends.html
 **Why those close to Randy Bennett say the 63-year-old will thrive at Arizona State**\
 `Bennett took over a program coming off a two-win season. Over the next two decades, he turned the school into a mid-major power.`\
 https://nytimes.com/athletic/7146027/2026/03/25/randy-bennett-arizona-state-head-coach-age-energy-introduction/
-
-**Canadiens won’t have a Calder winner, but their rookies are fuelling big wins**\
-`Oliver Kapanen, Ivan Demidov and Jakub Dobeš helped the Canadiens win a game that made them a very likely playoff team.`\
-https://nytimes.com/athletic/7145918/2026/03/25/canadiens-calder-trophy-kapanen-demidov-dobes/
-
-**U.S. distance runner alleges she was dropped by sponsor after pregnancy**\
-`Emma Bates, 33, said she lost her sponsorship deal with fueling company UCan, which denies her version of events.`\
-https://nytimes.com/athletic/7146234/2026/03/25/emma-bates-pregnancy-sponsor-ucan/
-
-**Q&A with Cubs president Jed Hoyer (Part 1): On projections, depth and expectations**\
-`Alex Bregman "provides a real sense of gravitas within the clubhouse," Hoyer said of the Cubs' biggest offseason addition.`\
-https://nytimes.com/athletic/7142685/2026/03/25/cubs-president-jed-hoyer-interview-part-1/
-
-**What Sora’s End Says About OpenAI’s Strategy**\
-`The artificial intelligence start-up has pulled the plug on the video-making tool as it rethinks spending ahead of a possible blockbuster I.P.O.`\
-https://nytimes.com/2026/03/25/business/dealbook/sora-openai-finances-ipo.html
-
-**The numbers that show it's the right time for Liverpool and Mohamed Salah to part ways**\
-`Salah has shown clear signs of slowing down in 2025-26, but only from an extraordinary record-breaking high`\
-https://nytimes.com/athletic/7146152/2026/03/25/mohamed-salah-data-decline-liverpool-departure/
-
-**Commanders 7-round mock draft: Washington lands a top offensive playmaker**\
-`The Commanders need a second weapon in the pass game and a dynamic back. They have a chance to address both needs with one pick.`\
-https://nytimes.com/athletic/7142815/2026/03/25/commanders-mock-draft-jeremiyah-love/
-
-**How to watch Toronto Blue Jays games in 2026: TV updates for reigning AL champs**\
-`Here's how fans in both Canada and the U.S. can watch the full Blue Jays schedule across the 2026 campaign.`\
-https://nytimes.com/athletic/7144227/2026/03/25/toronto-blue-jays-how-to-watch-us-canada-2026/
-
-**The Sweet 16 rivalry renewal no one saw coming**\
-`Iowa-Nebraska is the March meet-up that no one envisioned before Selection Sunday — and no one expected until the matchup was set.`\
-https://nytimes.com/athletic/7145369/2026/03/25/iowa-nebraska-sweet-16-basketball-series/
 
