@@ -1,3 +1,7 @@
+**Around 2,000 U.S. Paratroopers to Be Sent to the Middle East**\
+`The order gives President Trump more military options as he considers diplomacy with Iran. It is unclear where the soldiers will go in the Middle East.`\
+https://nytimes.com/2026/03/24/us/politics/82nd-airborne-division-iran-troops.html
+
 **Heliot Ramos poised to break craziest Opening Day non-streak in Giants history**\
 `For the first time since Barry Bonds played, San Francisco will have a repeat starter in left field on Opening Day.`\
 https://nytimes.com/athletic/7145431/2026/03/24/giants-heliot-ramos-poised-to-break-craziest-opening-day-non-streak-in-team-history/
