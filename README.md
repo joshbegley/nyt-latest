@@ -1,40 +1,40 @@
-**Why the Yankees face more pressure than anyone in 2026**\
-`Though Mets are feeling some heat, that ticking clock on Aaron Judge’s prime – and on this era of Yankee baseball – is louder than ever.`\
-https://nytimes.com/athletic/7145222/2026/03/25/yankees-2026-season-expectations-pressure/
+**He’s Gay. She’s Straight. They’re Newlyweds. (Encore)**\
+`Jacob Hoff and Samantha Greenstone call their unlikely love “a soul connection.”`\
+https://nytimes.com/2026/03/25/podcasts/hes-gay-shes-straight-theyre-newlyweds-encore.html
 
-**The top 12 storylines for the 2026 MLB season: Skubal's three-peat try, a looming lockout threat and more**\
-`As Ken Rosenthal looks ahead to his 40th season covering Major League Baseball, there are plenty of topics to keep him interested. `\
-https://nytimes.com/athletic/7144090/2026/03/25/mlb-season-storylines-opening-day-2026/
+**‘Bait’ Review: Bond. Shahjehan Bond.**\
+`Riz Ahmed imagines the dark side of being a 007 candidate (a position he knows something about) in his Prime Video comedy series.`\
+https://nytimes.com/2026/03/25/arts/television/bait-review-riz-ahmed.html
 
-**F-bombs and 'fork!': Why some hoops coaches swear up a storm while others keep it clean**\
-`Coaches like UConn's Dan Hurley say it's second nature. Others like Tennessee's Rick Barnes set a different example. It's all communication.`\
-https://nytimes.com/athletic/7144111/2026/03/25/coaches-cursing-swear-words/
+**Blockade Iran’s Oil**\
+`How the United States can end Iran’s control of the Persian Gulf.`\
+https://nytimes.com/2026/03/25/opinion/iran-oil-persian-gulf-blockade.html
 
-**Kentucky athletics is a big spender with even richer goals: Like an annual budget of $250M**\
-`Kentucky is making a bold move that could signal where the future of college sports is headed.`\
-https://nytimes.com/athletic/7145141/2026/03/25/kentucky-athletics-ncaa-tournament-money-llc/
+**A Master of Animation Is Back, With a ‘Magnificent’ Story**\
+`The first animated feature in 15 years by the acclaimed French filmmaker Sylvain Chomet, the “Triplets of Belleville” creator, is a biopic of another artist who never lost his ability for wonder and curiosity.`\
+https://nytimes.com/2026/03/25/movies/sylvain-chomet-a-magnificent-life.html
 
-**What are Mohamed Salah's options now he is leaving Liverpool?**\
-`Where next for the Egyptian? Saudi Arabia? MLS? Europe? We discuss his possible options once he leaves Liverpool.`\
-https://nytimes.com/athletic/7145627/2026/03/25/mohamed-salah-next-club-saudi-mls/
+**A Horror Novel Got Canceled. What’s Coming Next Is a Bigger Nightmare.**\
+`As more A.I. generated writing is unleashed on the world, more readers will question who — or what — has penned their favorite works.`\
+https://nytimes.com/2026/03/25/opinion/shy-girl-ai-publishing.html
 
-**Here’s the latest.**\
-`By Francesca Regalado, Eric Schmitt, Elian Peltier and Adam Rasgon`\
-https://nytimes.com/live/2026/03/25/world/iran-war-trump-oil-news/heres-the-latest
+**The Brigade System Helps Restaurants Succeed. Does It Also Lead to Abuse?**\
+`In the wake of allegations against Noma’s chef, a 19th-century model for organizing kitchen staffs is being blamed for physical and psychic violence.`\
+https://nytimes.com/2026/03/25/dining/noma-brigade-system.html
 
-**Iran War Live Updates: Pentagon Orders Troop Deployment as Pakistan Offers to Host Talks**\
-`The Pentagon said it was sending 2,000 airborne troops to the Middle East. President Trump appeared to support Pakistan’s offer to broker negotiations to end the war.`\
-https://nytimes.com/live/2026/03/25/world/iran-war-trump-oil-news
+**More Tourists Are Coming to New York, but Not From Other Countries**\
+`International tourism declined slightly in 2025 from the year before, even as the total number of visitors increased, the city’s tourism agency said.`\
+https://nytimes.com/2026/03/25/nyregion/more-tourists-are-coming-to-new-york-but-not-from-other-countries.html
 
-**Six weeks on from sacking Frank and appointing Tudor, Spurs face the same questions**\
-`The situation Tottenham are in today is eerily similar to the one in February - except they're nearer the drop zone with fewer games left`\
-https://nytimes.com/athletic/7141176/2026/03/25/spurs-tudor-venkatesham-lange/
+**The ‘Daredevil: Born Again’ Showrunner Feels Your Pain, Really**\
+`That big death at the start of Season 1 was hard for Dario Scardapane, too. Season 2 might not be any easier.`\
+https://nytimes.com/2026/03/25/arts/television/the-daredevil-born-again-showrunner-feels-your-pain-really.html
 
-**Should These Abandoned Tracks Become a Park or a Train Line? Or Both?**\
-`A disused rail line in Queens could help reconnect the borough and add much-needed park space. A new report suggests that a plan to do both is possible, but it faces long odds.`\
-https://nytimes.com/2026/03/25/nyregion/queenslink-subway-mamdani-nyc.html
+**In San Jose, a Reckoning Over Cesar Chavez Is Only Beginning**\
+`Mr. Chavez began organizing in San Jose, Calif., in the 1950s and once lived there. After revelations of sexual abuse by the labor leader, the city and his old neighborhood confront his legacy.`\
+https://nytimes.com/2026/03/25/us/cesar-chavez-san-jose-reckoning.html
 
-**BTS’s Comeback**\
-`Are you celebrating the band’s return? What other artists on hiatus would you like to see make a comeback?`\
-https://nytimes.com/2026/03/25/learning/btss-comeback.html
+**$1 Million Homes in Connecticut, Colorado and Washington**\
+`A contemporary farmhouse in Sharon, a midcentury modern in Wheat Ridge and a bungalow in Vancouver.`\
+https://nytimes.com/2026/03/25/realestate/1-million-homes-in-connecticut-colorado-and-washington.html
 

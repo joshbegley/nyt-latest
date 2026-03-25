@@ -2,6 +2,10 @@
 `Though Mets are feeling some heat, that ticking clock on Aaron Judge’s prime – and on this era of Yankee baseball – is louder than ever.`\
 https://nytimes.com/athletic/7145222/2026/03/25/yankees-2026-season-expectations-pressure/
 
+**The top 12 storylines for the 2026 MLB season: Skubal's three-peat try, a looming lockout threat and more**\
+`As Ken Rosenthal looks ahead to his 40th season covering Major League Baseball, there are plenty of topics to keep him interested. `\
+https://nytimes.com/athletic/7144090/2026/03/25/mlb-season-storylines-opening-day-2026/
+
 **F-bombs and 'fork!': Why some hoops coaches swear up a storm while others keep it clean**\
 `Coaches like UConn's Dan Hurley say it's second nature. Others like Tennessee's Rick Barnes set a different example. It's all communication.`\
 https://nytimes.com/athletic/7144111/2026/03/25/coaches-cursing-swear-words/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/25/nyregion/queenslink-subway-mamdani-nyc.html
 **BTS’s Comeback**\
 `Are you celebrating the band’s return? What other artists on hiatus would you like to see make a comeback?`\
 https://nytimes.com/2026/03/25/learning/btss-comeback.html
-
-**What to Know About Alpha-Gal Syndrome, a Meat Allergy Linked to Ticks**\
-`If you’re having an unexplained, intense reaction after eating beef or pork, it’s a good idea to seek a blood test.`\
-https://nytimes.com/2026/03/25/nyregion/alpha-gal-what-to-know.html
 
