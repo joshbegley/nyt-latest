@@ -1,3 +1,7 @@
+**Storms Forecast to Bring Heavy Rain Across the Middle East**\
+`Some places could record a year’s worth of rain this week.`\
+https://nytimes.com/2026/03/25/weather/iran-uae-storm-flooding-rain.html
+
 **U.S. Circulates Iran Peace Plan While Sending Troops to the Middle East**\
 `The 2,000 paratroopers heading to the region may give President Trump more leverage in negotiations, but they also leave him with the option of doubling down on military force.`\
 https://nytimes.com/2026/03/25/us/politics/iran-peace-plan-talks-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7147182/2026/03/25/nfl-2026-season-opener-seahawks-
 **What’s in Our Queue? ‘Marty Supreme’ and More**\
 `Text by Laurel Rosenhall`\
 https://nytimes.com/card/2026/03/25/arts/editors-recommendations-martysupreme
-
-**For 2nd Time, an Appeals Court Backs the Trump Administration’s Detention Policy**\
-`Courts are weighing whether the administration can hold undocumented immigrants without bond, an issue that may be resolved by the Supreme Court.`\
-https://nytimes.com/2026/03/25/us/politics/trump-appeals-court-detention-bond.html
 
