@@ -1,3 +1,7 @@
+**Why a Strong Butt Is Key to Healthy Aging**\
+`The benefits of a strong butt go beyond just aesthetics. A robust body of research shows that strengthening your glutes is important to healthy aging and longevity. Erik Vance, a senior staff editor for Well, explains.`\
+https://nytimes.com/video/well/100000010781737/why-a-strong-butt-is-key-to-healthy-aging.html
+
 **A Missile Fragment in a Schoolyard**\
 `Examining an image of children near a missile fragment, which landed near a school as several families were sheltering inside it.`\
 https://nytimes.com/2026/03/25/world/europe/iran-missile-photograph-israeli-settlement-school.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7144609/2026/03/24/blackhawks-anton-frondell-nhl-de
 **Greaves helps Blue Jackets survive sloppy first period, claim second in Metro**\
 `The Blue Jackets leapfrogged the Penguins to take possession of second in their division, heights they haven't hit in some time.`\
 https://nytimes.com/athletic/7145509/2026/03/24/blue-jackets-greaves-werenski-first-period-flyers/
-
-**Massachusetts Teacher Charged With Raping Two Students**\
-`The students say the former teacher at Miss Hall’s, a boarding school, groomed them and began having sex with them at age 16, which state law considers old enough for consent.`\
-https://nytimes.com/2026/03/24/us/teacher-rape-miss-halls-massachusetts.html
 

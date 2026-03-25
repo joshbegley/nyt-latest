@@ -1,3 +1,7 @@
+**Why a Strong Butt Is Key to Healthy Aging**\
+`The benefits of a strong butt go beyond just aesthetics. A robust body of research shows that strengthening your glutes is important to healthy aging and longevity. Erik Vance, a senior staff editor for Well, explains.`\
+https://nytimes.com/video/well/100000010781737/why-a-strong-butt-is-key-to-healthy-aging.html
+
 **A Missile Fragment in a Schoolyard**\
 `Examining an image of children near a missile fragment, which landed near a school as several families were sheltering inside it.`\
 https://nytimes.com/2026/03/25/world/europe/iran-missile-photograph-israeli-settlement-school.html
