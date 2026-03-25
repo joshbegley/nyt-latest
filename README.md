@@ -1,3 +1,7 @@
+**Judge Orders Arrest of Former Kentucky Governor for Contempt**\
+`Seven years after leaving office, Matt Bevin, the combative ex-governor, faces charges for not providing financial records sought by his estranged son.`\
+https://nytimes.com/2026/03/25/us/matt-bevin-kentucky-arrest-contempt.html
+
 **Trump Draws Bipartisan Backlash for Easing Oil Sanctions on Russia and Iran**\
 `Republicans and Democrats alike have criticized the Trump administration’s moves, taken to stabilize oil markets rocked by the war with Iran, warning that it is benefiting two U.S. adversaries.`\
 https://nytimes.com/2026/03/25/us/politics/trump-bipartisan-backlash-oil-sanctions-russia-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/25/world/middleeast/iran-war-recap-wednesday.html
 **Can This Leading Republican Critic of Trump Hang On?**\
 `Can any Republican disagree with Trump and get away with it? Thomas Massie’s primary race in Kentucky is a key test.`\
 https://nytimes.com/2026/03/25/us/politics/thomas-massie-trump.html
-
-**Trump to Delay Nominating New C.D.C. Director**\
-`The administration has yet to find a candidate who aligns with Health Secretary Robert F. Kennedy Jr.’s agenda while avoiding his unpopular stance on vaccines.`\
-https://nytimes.com/2026/03/25/health/cdc-director-nomination-delay.html
 
