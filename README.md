@@ -1,3 +1,15 @@
+**Quote of the Day: Hunting for Meteorites in the Name of Science (and Cash)**\
+`Quotation of the Day for Wednesday, March 25, 2026.`\
+https://nytimes.com/2026/03/24/pageoneplus/quote-of-the-day-hunting-for-meteorites-in-the-name-of-science-and-cash.html
+
+**Final 3 Minutes: A Breakdown in Communication Before the LaGuardia Crash**\
+`Air traffic audio and a detailed timeline from federal investigators reveal the final moments before a jetliner collided with a fire truck.`\
+https://nytimes.com/interactive/2026/03/24/us/laguardia-crash-timeline-air-canada.html
+
+**'It still feels like a dream': Anton Frondell makes NHL debut in Blackhawks' win**\
+`Coach Jeff Blashill liked the decision Frondell made with the puck on the play that resulted in his first NHL point.`\
+https://nytimes.com/athletic/7144609/2026/03/24/blackhawks-anton-frondell-nhl-debut-dream/
+
 **Greaves helps Blue Jackets survive sloppy first period, claim second in Metro**\
 `The Blue Jackets leapfrogged the Penguins to take possession of second in their division, heights they haven't hit in some time.`\
 https://nytimes.com/athletic/7145509/2026/03/24/blue-jackets-greaves-werenski-first-period-flyers/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/24/crosswords/daily-puzzle-2026-03-25.html
 **Oil Prices Tumble 6% as Trump Shows Eagerness to Talk to Iran**\
 `Investors reacted to signals of possible de-escalation of the war in the Middle East.`\
 https://nytimes.com/2026/03/24/business/oil-stock-gas-prices-iran.html
-
-**Plan to Disarm Hamas in Gaza Is Detailed at U.N.**\
-`A Board of Peace member said the most dangerous weapons would be collected first. He linked compliance with disarmament to reconstruction beginning in the enclave.`\
-https://nytimes.com/2026/03/24/world/middleeast/gaza-disarm-hamas-israel-board-of-peace.html
-
-**Tyler Reddick, 23XI Racing close in on contract extension**\
-`Reddick is off to an unprecedented start to the season, and both sides sound confident a deal will be struck.`\
-https://nytimes.com/athletic/7145337/2026/03/24/tyler-reddick-23xi-racing-contract-extension/
-
-**Hubert Davis is out at UNC, opening a premier job. Who could replace him?**\
-`Arizona's Tommy Lloyd and Billy Donovan of the Chicago Bulls are among the big-name candidates on UNC's wish list.`\
-https://nytimes.com/athletic/7138167/2026/03/24/hubert-davis-unc-mens-basketball-coaching-candidates/
 
