@@ -1,3 +1,7 @@
+**The Windup: What Opening Day means to me**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7146497/2026/03/25/mlb-opening-day-2026-the-windup/
+
 **Supreme Court Sides With Internet Provider in Copyright Fight Over Pirated Music**\
 `Leading music labels sued Cox Communications for failing to terminate accounts of subscribers flagged for distributing copyrighted music.`\
 https://nytimes.com/2026/03/25/us/politics/supreme-court-cox-music-copyright.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7146128/2026/03/25/tennis-madrid-open-bernabeu-prac
 **Russia Launches Large Daytime Attack on Ukraine**\
 `Russia unleashed a wave of drones across Ukraine, damaging apartment buildings, hospitals and a UNESCO World Heritage site, officials said.`\
 https://nytimes.com/video/world/europe/100000010800147/russia-strikes-lviv-ukraine-war-drones.html
-
-**Get Ready for More Ticketmaster Wars**\
-`Music fans, get ready for more Ticketmaster wars. Binyamin Appelbaum, a Times Opinion writer, explains the Trump administration’s role in the Live Nation-Ticketmaster antitrust settlement and argues that it is siding with corporate interests at the expense of the American concert-goer.`\
-https://nytimes.com/video/opinion/100000010797031/get-ready-for-more-ticketmaster-wars.html
 

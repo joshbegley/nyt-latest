@@ -1,3 +1,7 @@
+**The Windup: What Opening Day means to me**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7146497/2026/03/25/mlb-opening-day-2026-the-windup/
+
 **Supreme Court Sides With Internet Provider in Copyright Fight Over Pirated Music**\
 `Leading music labels sued Cox Communications for failing to terminate accounts of subscribers flagged for distributing copyrighted music.`\
 https://nytimes.com/2026/03/25/us/politics/supreme-court-cox-music-copyright.html
