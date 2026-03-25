@@ -1,3 +1,7 @@
+**Four Takeaways From Denmark’s Election**\
+`A desire for change and a fractured political landscape left Prime Minister Mette Frederiksen ahead, but with a tough road to securing a new term.`\
+https://nytimes.com/2026/03/25/world/europe/takeaways-denmark-election-frederiksen.html
+
 **In tennis, home advantage is complicated. At the Miami Open, it is no different**\
 `The tournament, in which Americans have had a successful run this year, complicates the idea of hometown advantage.`\
 https://nytimes.com/athletic/7145680/2026/03/25/tennis-home-advantage-miami-open-american/
