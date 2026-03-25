@@ -1,3 +1,7 @@
+**NFL proposes rule to assist possible replacement officials for 2026 season**\
+`If a new deal is not reached with the NFLRA by season kickoff in September, the NFL would have to resort to hiring replacement officials.`\
+https://nytimes.com/athletic/7147157/2026/03/25/nfl-rule-proposal-replacement-officials/
+
 **The commute is back**\
 `Plus, delivery truck glut. / Plus, hybrid workers are clogging the roads.`\
 https://nytimes.com/2026/03/25/headway/commute-progress-newsletter.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7147208/2026/03/25/raptors-vs-clippers-stream-how-t
 **How to watch Mavericks vs. Nuggets: Time, TV, streaming**\
 `Find out how to watch the Dallas Mavericks play the Denver Nuggets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7147200/2026/03/25/mavericks-vs-nuggets-stream-how-to-watch-march-25/
-
-**Florida Restores Access to Low-Cost H.I.V. Medications After Uproar**\
-`A short-term funding bill enacted this week will ensure that more than 12,000 Floridians do not lose access to a program that helps pay for H.I.V. medications.`\
-https://nytimes.com/2026/03/25/health/florida-hiv-meds-assistance-program.html
 

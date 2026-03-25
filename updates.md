@@ -1,3 +1,7 @@
+**NFL proposes rule to assist possible replacement officials for 2026 season**\
+`If a new deal is not reached with the NFLRA by season kickoff in September, the NFL would have to resort to hiring replacement officials.`\
+https://nytimes.com/athletic/7147157/2026/03/25/nfl-rule-proposal-replacement-officials/
+
 **The commute is back**\
 `Plus, delivery truck glut. / Plus, hybrid workers are clogging the roads.`\
 https://nytimes.com/2026/03/25/headway/commute-progress-newsletter.html
