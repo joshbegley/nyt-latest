@@ -1,3 +1,11 @@
+**In tennis, home advantage is complicated. At the Miami Open, it is no different**\
+`The tournament, in which Americans have had a successful run this year, complicates the idea of hometown advantage.`\
+https://nytimes.com/athletic/7145680/2026/03/25/tennis-home-advantage-miami-open-american/
+
+**MLB in 2026: The numbers that define baseball, from 2 to 1.5 billion**\
+`The numbers of baseball help us understand the meaning of this game — its history, its moments, its thrills, its chills. So, listen up! `\
+https://nytimes.com/athletic/7143777/2026/03/25/mlb-2026-season-stats-trends/
+
 **Ukraine Finally Got Battlefield Momentum. Now Comes a Russian Offensive.**\
 `Moscow’s forces are intensifying their attacks in southern Ukraine after Kyiv made rare gains along the front.`\
 https://nytimes.com/2026/03/25/world/europe/ukraine-russia-war-zaporizhzhia.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7143416/2026/03/25/pittsburgh-steelers-draft-big-bo
 **Analyzing Browns' offensive depth chart: How will the receiver room be filled out?**\
 `Taking an early look at Cleveland's offensive depth chart and the questions that remain as we move closer to the NFL Draft.`\
 https://nytimes.com/athletic/7145052/2026/03/25/browns-offensive-depth-chart-nfl-draft/
-
-**Tarik Skubal to the Mets? A's spending big? 26 predictions for the 2026 MLB season**\
-`A first for the Mariners, big free-agent signings for the Giants and Mets and plenty more predictions for this upcoming MLB season.`\
-https://nytimes.com/athletic/7124299/2026/03/25/2026-mlb-predictions-athletics-mets-tarik-skubal/
-
-**A light touch in the trenches, and what we learned about Giants' roster-building strategy**\
-`A look back on the Giants' first free-agency wave under John Harbaugh.`\
-https://nytimes.com/athletic/7145621/2026/03/25/new-york-giants-free-agency-recap/
 

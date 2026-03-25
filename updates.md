@@ -1,3 +1,11 @@
+**Ukraine Finally Got Battlefield Momentum. Now Comes a Russian Offensive.**\
+`Moscow’s forces are intensifying their attacks in southern Ukraine after Kyiv made rare gains along the front.`\
+https://nytimes.com/2026/03/25/world/europe/ukraine-russia-war-zaporizhzhia.html
+
+**Two Men Arrested in Attack on Jewish Charity Ambulances in London**\
+`The police said the men, aged 45 and 47, are accused of arson with intent to endanger life stemming from the arson attack on Monday in Golders Green.`\
+https://nytimes.com/2026/03/25/world/europe/jewish-ambulances-arson-arrests.html
+
 **Can Shohei Ohtani win the Cy Young award? Managers on the hot seat? We take your questions**\
 `Andy McCullough's MLB mailbag looks at who will win big awards, who will be traded, who will be fired and more as Opening Day arrives. `\
 https://nytimes.com/athletic/7143963/2026/03/25/mlb-mailbag-awards-shohei-ohtani-cy-young-award-questions/
