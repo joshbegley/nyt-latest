@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, March 25, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/25/todays-new-york-times
+
+**Putin Was Under Pressure. Then Came the War in Iran.**\
+`In one swoop, it overturned the conditions for conciliation.`\
+https://nytimes.com/2026/03/25/opinion/russia-putin-iran-war.html
+
 **Fight night, disallowed goal and unlucky bounce sink Wild vs. Lightning: Takeaways**\
 `The lopsided final score didn't do justice to just how tight the game between two Stanley Cup contenders truly was.`\
 https://nytimes.com/athletic/7145792/2026/03/25/wild-gustavsson-fumble-disallowed-goal-fight-mccarron-foligno-lightning/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/25/pageoneplus/corrections-march-25-2026.html
 **Quote of the Day: Hunting for Meteorites in the Name of Science (and Cash)**\
 `Quotation of the Day for Wednesday, March 25, 2026.`\
 https://nytimes.com/2026/03/24/pageoneplus/quote-of-the-day-hunting-for-meteorites-in-the-name-of-science-and-cash.html
-
-**Final 3 Minutes: A Breakdown in Communication Before the LaGuardia Crash**\
-`Air traffic audio and a detailed timeline from federal investigators reveal the final moments before a jetliner collided with a fire truck.`\
-https://nytimes.com/interactive/2026/03/24/us/laguardia-crash-timeline-air-canada.html
-
-**'It still feels like a dream': Anton Frondell makes NHL debut in Blackhawks' win**\
-`Coach Jeff Blashill liked the decision Frondell made with the puck on the play that resulted in his first NHL point.`\
-https://nytimes.com/athletic/7144609/2026/03/24/blackhawks-anton-frondell-nhl-debut-dream/
 
