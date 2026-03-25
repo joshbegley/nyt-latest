@@ -34,7 +34,3 @@ https://nytimes.com/athletic/7146923/2026/03/25/heat-vs-cavaliers-stream-how-to-
 `The Athletic's writers and editors who collect come together to determine the most impactful baseball cards ever made. `\
 https://nytimes.com/athletic/7145353/2026/03/25/baseball-cards-most-important-mickey-mantle-honus-wagner/
 
-**Bad Boys reboot? How these Pistons are bringing physicality back to the NBA**\
-`Pistons teams of old would be proud of the way this current Detroit mix has surged to the top of the NBA's Eastern Conference. `\
-https://nytimes.com/athletic/7140750/2026/03/25/pistons-bad-boys-video-highlights-defense/
-
