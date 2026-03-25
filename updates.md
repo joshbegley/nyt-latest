@@ -1,3 +1,15 @@
+**Cubs will see how good Pete Crow-Armstrong can be as franchise player at Wrigley Field**\
+`The team wouldn't be doing this deal if it didn't project significant surplus value from Crow-Armstrong in the future. `\
+https://nytimes.com/athletic/7145172/2026/03/24/cubs-pete-crow-armstrong-contract-opening-day-mlb/
+
+**LaGuardia Crash Tests New Port Authority Leader**\
+`Kathryn Garcia, who began leading the agency in February, consoled two injured firefighters and dealt with delays at the three big airports serving New York City.`\
+https://nytimes.com/2026/03/24/nyregion/port-authority-laguardia-crash-firefighters.html
+
+**Florida Democrats Win Special Election in Mar-a-Lago’s District**\
+`Emily Gregory’s victory brought the Democratic surge to President Trump’s backyard, Palm Beach, just weeks after her party won the mayor’s race in Boca Raton, 30 miles south.`\
+https://nytimes.com/2026/03/24/us/politics/florida-special-election-emily-gregory.html
+
 **Maryland’s Supreme Court Strikes Down Baltimore’s Climate Lawsuit**\
 `The decision represents a setback to other local governments around the country that have sued oil companies to recoup the mounting costs of climate change.`\
 https://nytimes.com/2026/03/24/climate/baltimore-climate-lawsuit.html

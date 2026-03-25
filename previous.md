@@ -1,3 +1,15 @@
+**Cubs will see how good Pete Crow-Armstrong can be as franchise player at Wrigley Field**\
+`The team wouldn't be doing this deal if it didn't project significant surplus value from Crow-Armstrong in the future. `\
+https://nytimes.com/athletic/7145172/2026/03/24/cubs-pete-crow-armstrong-contract-opening-day-mlb/
+
+**LaGuardia Crash Tests New Port Authority Leader**\
+`Kathryn Garcia, who began leading the agency in February, consoled two injured firefighters and dealt with delays at the three big airports serving New York City.`\
+https://nytimes.com/2026/03/24/nyregion/port-authority-laguardia-crash-firefighters.html
+
+**Florida Democrats Win Special Election in Mar-a-Lago’s District**\
+`Emily Gregory’s victory brought the Democratic surge to President Trump’s backyard, Palm Beach, just weeks after her party won the mayor’s race in Boca Raton, 30 miles south.`\
+https://nytimes.com/2026/03/24/us/politics/florida-special-election-emily-gregory.html
+
 **Here’s What Happened in the War in the Middle East on Tuesday**\
 `The U.S. was said to have sent Iran a peace plan via Pakistan on a day that the Iranians fired a torrent of missiles across the region.`\
 https://nytimes.com/2026/03/24/world/middleeast/iran-war-middle-east-recap-tuesday.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/24/nyregion/grand-central-heart-shaped-balloon-ceili
 **Eagles re-sign offensive tackle Fred Johnson on 1-year deal: Source**\
 `Johnson started eight games for the Eagles in 2025 and played 59 percent of the offensive snaps.`\
 https://nytimes.com/athletic/7115642/2026/03/24/eagles-fred-johnson-resign/
-
-**What We Know About the Floods in Hawaii**\
-`There were no deaths reported, but hundreds of people were rescued and thousands evacuated as a series of hard-hitting storms inundated the islands over the last two weeks.`\
-https://nytimes.com/2026/03/24/us/hawaii-floods-maui-oahu-evacuation.html
-
-**Maryland’s Supreme Court Strikes Down Baltimore’s Climate Lawsuit**\
-`The decision represents a setback to other local governments around the country that have sued oil companies to recoup the mounting costs of climate change.`\
-https://nytimes.com/2026/03/24/climate/baltimore-climate-lawsuit.html
-
-**What It’s Like to Stand in an Airport Security Line for Hours**\
-`Scenes from extra long lines at two airports, and a surprising discovery at a third.`\
-https://nytimes.com/2026/03/24/us/tsa-airports-houston-atlanta-newark.html
 
