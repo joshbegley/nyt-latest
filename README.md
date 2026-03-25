@@ -1,3 +1,7 @@
+**Pistons' Tom Gores among bidders for Padres, who could sell for more than $3.5 billion: Sources**\
+`The second and final round of bids for the Padres are expected in early to mid-April and a sale could be agreed to by the end of April.`\
+https://nytimes.com/athletic/7147438/2026/03/25/tom-gores-san-diego-padres-sale-bidder/
+
 **Airport Chaos**\
 `American airports have become a symbol of government dysfunction, and the spring travel season is just around the corner.`\
 https://nytimes.com/2026/03/25/world/us-airport-chaos-iran-ceasefire-meta-youtube-addiction.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/the-athletic/100000010800698/are-dynasties-good-for-ba
 **Adam Silver says NBA will change lottery to curb tanking: 'We are going to fix it'**\
 `Silver said there was "unanimous" support to address the issue of tanking and the league will likely meet in May to decide on specifics. `\
 https://nytimes.com/athletic/7147357/2026/03/25/nba-tanking-lottery-adam-silver-fix/
-
-**Stir-Fried Salt and Pepper Dumplings**\
-`Frozen potstickers get the stir-fry treatment in this speedy, comforting weeknight dinner that comes together in one pan.`\
-https://nytimes.com/video/dining/100000010798059/stir-fried-salt-and-pepper-dumplings.html
 

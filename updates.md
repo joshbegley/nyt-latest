@@ -1,3 +1,7 @@
+**Airport Chaos**\
+`American airports have become a symbol of government dysfunction, and the spring travel season is just around the corner.`\
+https://nytimes.com/2026/03/25/world/us-airport-chaos-iran-ceasefire-meta-youtube-addiction.html
+
 **Heisuke Hironaka, Groundbreaking Mathematician, Is Dead at 94**\
 `A recipient of his profession’s prestigious Fields Medal, he devised an algorithm that helps solve mathematical “singularities.” It now permeates the field.`\
 https://nytimes.com/2026/03/25/science/heisuke-hironaka-dead.html

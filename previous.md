@@ -1,3 +1,7 @@
+**Airport Chaos**\
+`American airports have become a symbol of government dysfunction, and the spring travel season is just around the corner.`\
+https://nytimes.com/2026/03/25/world/us-airport-chaos-iran-ceasefire-meta-youtube-addiction.html
+
 **Heisuke Hironaka, Groundbreaking Mathematician, Is Dead at 94**\
 `A recipient of his profession’s prestigious Fields Medal, he devised an algorithm that helps solve mathematical “singularities.” It now permeates the field.`\
 https://nytimes.com/2026/03/25/science/heisuke-hironaka-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7147357/2026/03/25/nba-tanking-lottery-adam-silver-
 **Stir-Fried Salt and Pepper Dumplings**\
 `Frozen potstickers get the stir-fry treatment in this speedy, comforting weeknight dinner that comes together in one pan.`\
 https://nytimes.com/video/dining/100000010798059/stir-fried-salt-and-pepper-dumplings.html
-
-**Restaurant Review: Gymkhana in Las Vegas**\
-`Gymkhana, one of the most acclaimed restaurants in England, is now open on the Las Vegas Strip. Tejal Rao, a chief restaurant critic for The New York Times, shares her review.`\
-https://nytimes.com/video/dining/100000010798063/restaurant-review-gymkhana-in-las-vegas.html
 
