@@ -1,3 +1,7 @@
+**Super Bowl expected to return to Las Vegas' Allegiant Stadium in 2029: Source**\
+`This would be the second time Las Vegas hosts the NFL's marquee event.`\
+https://nytimes.com/athletic/7147267/2026/03/25/super-bowl-63-las-vegas-allegiant-stadium/
+
 **Who Is Pakistan’s Syed Asim Munir?**\
 `Pakistan’s army chief is using his close relationship with President Trump to try to foster talks between Iran and the United States.`\
 https://nytimes.com/2026/03/25/world/middleeast/who-is-pakistans-syed-asim-munir.html

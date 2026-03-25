@@ -1,3 +1,7 @@
+**Super Bowl expected to return to Las Vegas' Allegiant Stadium in 2029: Source**\
+`This would be the second time Las Vegas hosts the NFL's marquee event.`\
+https://nytimes.com/athletic/7147267/2026/03/25/super-bowl-63-las-vegas-allegiant-stadium/
+
 **Who Is Pakistan’s Syed Asim Munir?**\
 `Pakistan’s army chief is using his close relationship with President Trump to try to foster talks between Iran and the United States.`\
 https://nytimes.com/2026/03/25/world/middleeast/who-is-pakistans-syed-asim-munir.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/25/headway/commute-progress-newsletter.html
 **Evenepoel calls Vingegaard's help 'amazing' in tense Volta stage**\
 `The Belgian grew frustrated at the Dane's reluctance to take a turn in the breakaway, before crashing shortly before the finish.`\
 https://nytimes.com/athletic/7147134/2026/03/25/remco-evenepoel-jonas-vingegaard-volta-catalunya-crash/
-
-**Meta Lays Off 700 Employees, While Rewarding Top Executives**\
-`The jobs cuts and a new stock program for executives come as Meta continues to shift its focus to artificial intelligence.`\
-https://nytimes.com/2026/03/25/technology/meta-layoffs-ai-executives.html
 

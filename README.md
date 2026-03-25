@@ -1,10 +1,22 @@
+**U.S. Circulates Iran Peace Plan While Sending Troops to the Middle East**\
+`The 2,000 paratroopers heading to the region may give President Trump more leverage in negotiations, but they also leave him with the option of doubling down on military force.`\
+https://nytimes.com/2026/03/25/us/politics/iran-peace-plan-talks-trump.html
+
+**Boubacar Ould Messaoud, 80, Leader in Antislavery Fight in Mauritania**\
+`Despite being imprisoned and harassed, he helped found an organization to combat slavery in his West African nation.`\
+https://nytimes.com/2026/03/25/world/africa/boubacar-ould-messaoud-dead.html
+
+**MLS Commissioner would 'love to see' Liverpool's Salah in U.S.**\
+`Don Garber said "we would provide him with a great platform" and the Egyptian forward would be "great" in MLS. `\
+https://nytimes.com/athletic/7147226/2026/03/25/mohamed-salah-mls-commissioner-liverpool-transfer-news/
+
 **Super Bowl expected to return to Las Vegas' Allegiant Stadium in 2029: Source**\
 `This would be the second time Las Vegas hosts the NFL's marquee event.`\
 https://nytimes.com/athletic/7147267/2026/03/25/super-bowl-63-las-vegas-allegiant-stadium/
 
-**Who Is Pakistan’s Syed Asim Munir?**\
-`Pakistan’s army chief is using his close relationship with President Trump to try to foster talks between Iran and the United States.`\
-https://nytimes.com/2026/03/25/world/middleeast/who-is-pakistans-syed-asim-munir.html
+**Pakistan’s Army Chief Uses Relationship With Trump to Foster Talks with Iran**\
+`Syed Asim Munir’s role demonstrates Islamabad’s acute exposure to regional instability and newly found geopolitical relevance.`\
+https://nytimes.com/2026/03/25/world/middleeast/syed-asim-munir-pakistan-who.html
 
 **Inter Miami, LA Galaxy interested in signing Man Utd's Casemiro in summer**\
 `The Brazil international announced in January he would leave the Premier League side at the end of the season. `\
@@ -25,16 +37,4 @@ https://nytimes.com/card/2026/03/25/arts/editors-recommendations-martysupreme
 **For 2nd Time, an Appeals Court Backs the Trump Administration’s Detention Policy**\
 `Courts are weighing whether the administration can hold undocumented immigrants without bond, an issue that may be resolved by the Supreme Court.`\
 https://nytimes.com/2026/03/25/us/politics/trump-appeals-court-detention-bond.html
-
-**NFL proposes rule to assist possible replacement officials for 2026 season**\
-`If a new deal is not reached with the NFLRA by season kickoff in September, the NFL would have to resort to hiring replacement officials.`\
-https://nytimes.com/athletic/7147157/2026/03/25/nfl-rule-proposal-replacement-officials/
-
-**The commute is back**\
-`Plus, delivery truck glut. / Plus, hybrid workers are clogging the roads.`\
-https://nytimes.com/2026/03/25/headway/commute-progress-newsletter.html
-
-**Evenepoel calls Vingegaard's help 'amazing' in tense Volta stage**\
-`The Belgian grew frustrated at the Dane's reluctance to take a turn in the breakaway, before crashing shortly before the finish.`\
-https://nytimes.com/athletic/7147134/2026/03/25/remco-evenepoel-jonas-vingegaard-volta-catalunya-crash/
 
