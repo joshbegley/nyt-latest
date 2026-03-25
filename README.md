@@ -1,3 +1,11 @@
+**Two States Sue Cord Blood Bank Over False Advertisements**\
+`The attorneys general of Texas and Arizona contend that Cord Blood Registry, which stores umbilical cord cells, profited from misleading new parents.`\
+https://nytimes.com/2026/03/25/health/cord-blood-registry-false-advertisements.html
+
+**A Critical Political Season Could Decide if Alaska Is a Failed ‘Petrostate’**\
+`A governor who spent two terms cutting services to preserve Alaskans’ oil-funded annual checks is leaving office. Voters must now decide what comes next for the state’s faltering fiscal model.`\
+https://nytimes.com/2026/03/25/us/politics/alaska-oil-midterms.html
+
 **The Windup: What Opening Day means to me**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/7146497/2026/03/25/mlb-opening-day-2026-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2026/03/25/world/europe/uk-canterbury-archbishop
 **Three bold Twins predictions for 2026**\
 `Going out on a limb with a trio of low-probability, high-impact and increasingly bold predictions about the 2026 Minnesota Twins.`\
 https://nytimes.com/athletic/7141638/2026/03/25/twins-predictions-2026-season/
-
-**Real Madrid will transform Bernabéu from soccer pitch to tennis courts for Madrid Open**\
-`The stadium will be used as a practice facility for the tournament, which starts April 20.`\
-https://nytimes.com/athletic/7146128/2026/03/25/tennis-madrid-open-bernabeu-practice-courts/
-
-**Russia Launches Large Daytime Attack on Ukraine**\
-`Russia unleashed a wave of drones across Ukraine, damaging apartment buildings, hospitals and a UNESCO World Heritage site, officials said.`\
-https://nytimes.com/video/world/europe/100000010800147/russia-strikes-lviv-ukraine-war-drones.html
 
