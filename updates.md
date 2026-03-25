@@ -1,3 +1,11 @@
+**The Good List**\
+``\
+https://nytimes.com/series/the-good-list
+
+**Four Things to Know About a Democrat’s Win in Trump’s Backyard**\
+`A mother of three and won a statehouse seat that includes Mar-a-Lago, while a union electrician leads in a State Senate race in conservative West Tampa.`\
+https://nytimes.com/2026/03/25/us/politics/florida-democrat-races.html
+
 **Are Dynasties Good for Baseball?**\
 `The Los Angeles Dodgers won back-to-back World Series and are the top contender for the title again as the baseball season opens. The Athletic’s M.L.B. writers sound off on whether dynasties are good or bad for the sport.`\
 https://nytimes.com/video/the-athletic/100000010800698/are-dynasties-good-for-baseball.html
