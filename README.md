@@ -1,3 +1,19 @@
+**What Happens When We Die? This Poem Has Thoughts.**\
+`A.O. Scott contemplates the great unknown in Wallace Stevens’s “Of Mere Being.”`\
+https://nytimes.com/interactive/2026/03/25/books/wallace-stevens-of-mere-being-poetry.html
+
+**Meta and YouTube Found Negligent in Landmark Social Media Addiction Case**\
+`A jury found the companies negligent in their app designs, harming a young user with design features that were addictive and led to her mental health distress.`\
+https://nytimes.com/2026/03/25/technology/social-media-trial-verdict.html
+
+**How to watch Rangers vs. Maple Leafs: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7146985/2026/03/25/rangers-vs-maple-leafs-stream-how-to-watch-march-25/
+
+**How to watch Bruins vs. Sabres: Time, TV, streaming**\
+`Find out how to watch the Boston Bruins play the Buffalo Sabres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7146983/2026/03/25/bruins-vs-sabres-stream-how-to-watch-march-25/
+
 **How to watch Yankees vs. Giants: Time, TV, streaming for March 25**\
 `Find out how to watch the New York Yankees play the San Francisco Giants, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7146964/2026/03/25/yankees-vs-giants-stream-how-to-watch-march-25/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/7146941/2026/03/25/spurs-vs-grizzlies-stream-how-to
 **How to watch Wizards vs. Jazz: Time, TV, streaming**\
 `Find out how to watch the Washington Wizards play the Utah Jazz, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7146937/2026/03/25/wizards-vs-jazz-stream-how-to-watch-march-25/
-
-**Astros Jeremy Peña makes Opening Day roster, reigniting infield surplus questions**\
-`The team had planned for Carlos Correa to play shortstop in Peña’s absence and shift Isaac Paredes back to third base.`\
-https://nytimes.com/athletic/7146870/2026/03/25/astros-jeremy-pena-fracture-opening-day/
-
-**How to watch Thunder vs. Celtics: Time, TV, streaming**\
-`Find out how to watch the Oklahoma City Thunder play the Boston Celtics, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7146929/2026/03/25/thunder-vs-celtics-stream-how-to-watch-march-25/
-
-**How to watch Heat vs. Cavaliers: Time, TV, streaming**\
-`Find out how to watch the Miami Heat play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7146923/2026/03/25/heat-vs-cavaliers-stream-how-to-watch-march-25/
-
-**The 10 most important baseball cards of all time**\
-`The Athletic's writers and editors who collect come together to determine the most impactful baseball cards ever made. `\
-https://nytimes.com/athletic/7145353/2026/03/25/baseball-cards-most-important-mickey-mantle-honus-wagner/
 
