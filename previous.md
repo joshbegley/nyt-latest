@@ -1,3 +1,7 @@
+**ABS is here, so what reason do managers have left to kick dirt on umpires?**\
+`Managers and umpires will forever find ways to go at each other’s throats. But maybe not as colorfully as in days of old.`\
+https://nytimes.com/athletic/7144957/2026/03/25/abs-mlb-managers-umpires-argue/
+
 **For Australia’s Farmers, Fuel Crisis Comes at ‘Worst Possible Time’**\
 `Their troubles could cascade across Asia because they export a majority of their products.`\
 https://nytimes.com/2026/03/25/world/australia/australia-farm-fuel-oil-prices.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/25/arts/music/mozart-salzburg-morgan-library.html
 **The Lines, the Prices, the Anxiety: Can Air Travel Get Any Worse?**\
 `Travelers are waiting hours at security checkpoints, paying top dollar for tickets and worrying about safety after a deadly crash at LaGuardia.`\
 https://nytimes.com/2026/03/25/travel/airports-flights-security-ticket-prices.html
-
-**He’s Gay. She’s Straight. They’re Newlyweds. (Encore)**\
-`Jacob Hoff and Samantha Greenstone call their unlikely love “a soul connection.”`\
-https://nytimes.com/2026/03/25/podcasts/hes-gay-shes-straight-theyre-newlyweds-encore.html
 
