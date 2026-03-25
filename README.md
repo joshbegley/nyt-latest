@@ -1,3 +1,11 @@
+**For Ilia Malinin and Amber Glenn, figure skating worlds bring a fresh start**\
+`After stumbling on the Olympic stage, the U.S. stars are back this week at world championships, both searching for something personal.`\
+https://nytimes.com/athletic/7146029/2026/03/25/ilia-malinin-amber-glenn-figure-skating-world-championships-olympics/
+
+**Sexual Misconduct Report Leaves I.C.C.’s Path Ahead Unclear**\
+`In a report obtained by The New York Times, a panel of judges found that evidence of sexual misconduct by the chief prosecutor of the International Criminal Court left room for “reasonable doubt.”`\
+https://nytimes.com/2026/03/25/world/europe/sexual-harassment-international-criminal-court-khan.html
+
 **How will the Mets season go? Beat writer predictions go head-to-head with fan picks**\
 `More than half of our fan survey voters predicted the Mets will win the NL East. They were less optimistic about Marcus Semien's future. `\
 https://nytimes.com/athletic/7145470/2026/03/25/mets-mlb-preview-predictions/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/25/nyregion/nyu-professor-strike-ends.html
 **Why those close to Randy Bennett say the 63-year-old will thrive at Arizona State**\
 `Bennett took over a program coming off a two-win season. Over the next two decades, he turned the school into a mid-major power.`\
 https://nytimes.com/athletic/7146027/2026/03/25/randy-bennett-arizona-state-head-coach-age-energy-introduction/
-
-**Canadiens won’t have a Calder winner, but their rookies are fuelling big wins**\
-`Oliver Kapanen, Ivan Demidov and Jakub Dobeš helped the Canadiens win a game that made them a very likely playoff team.`\
-https://nytimes.com/athletic/7145918/2026/03/25/canadiens-calder-trophy-kapanen-demidov-dobes/
-
-**U.S. distance runner alleges she was dropped by sponsor after pregnancy**\
-`Emma Bates, 33, said she lost her sponsorship deal with fueling company UCan, which denies her version of events.`\
-https://nytimes.com/athletic/7146234/2026/03/25/emma-bates-pregnancy-sponsor-ucan/
 
