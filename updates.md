@@ -1,3 +1,11 @@
+**Two States Sue Cord Blood Bank Over False Advertisements**\
+`The attorneys general of Texas and Arizona contend that Cord Blood Registry, which stores umbilical cord cells, profited from misleading new parents.`\
+https://nytimes.com/2026/03/25/health/cord-blood-registry-false-advertisements.html
+
+**A Critical Political Season Could Decide if Alaska Is a Failed ‘Petrostate’**\
+`A governor who spent two terms cutting services to preserve Alaskans’ oil-funded annual checks is leaving office. Voters must now decide what comes next for the state’s faltering fiscal model.`\
+https://nytimes.com/2026/03/25/us/politics/alaska-oil-midterms.html
+
 **The Windup: What Opening Day means to me**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/7146497/2026/03/25/mlb-opening-day-2026-the-windup/

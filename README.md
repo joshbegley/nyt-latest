@@ -1,3 +1,7 @@
+**What to Know About U.S.-Iran Negotiations**\
+`The United States is discussing ways to end hostilities with Iran, even as President Trump continues to threaten attacks and as the Pentagon dispatches more troops.`\
+https://nytimes.com/2026/03/25/world/middleeast/us-iran-war-talks-trump.html
+
 **Two States Sue Cord Blood Bank Over False Advertisements**\
 `The attorneys general of Texas and Arizona contend that Cord Blood Registry, which stores umbilical cord cells, profited from misleading new parents.`\
 https://nytimes.com/2026/03/25/health/cord-blood-registry-false-advertisements.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/25/world/middleeast/iran-nato-rutte-trump.html
 **Chaucer, Murder, Pilgrims: What Do You Know About Canterbury and Its Archbishops?**\
 `As a new archbishop of Canterbury is enthroned, test your knowledge of the cathedral city and its landmark moments.`\
 https://nytimes.com/interactive/2026/03/25/world/europe/uk-canterbury-archbishop-quiz.html
-
-**Three bold Twins predictions for 2026**\
-`Going out on a limb with a trio of low-probability, high-impact and increasingly bold predictions about the 2026 Minnesota Twins.`\
-https://nytimes.com/athletic/7141638/2026/03/25/twins-predictions-2026-season/
 
