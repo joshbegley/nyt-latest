@@ -1,3 +1,7 @@
+**Late Night Questions the ‘Very Big Present’ Trump Got From Iran**\
+`Josh Johnson was puzzled by what kind of gift the president could have received “from the people you are currently at war with.”`\
+https://nytimes.com/2026/03/25/arts/television/late-night-trump-present-iran.html
+
 **The inevitability of Brighton's open-play crosses**\
 `There's nothing flashy about how Fabian Hurzeler's side use crosses, but they are incredibly effective at doing so`\
 https://nytimes.com/athletic/7143250/2026/03/25/brighton-open-play-crossing-hurzeler-premier-league/
