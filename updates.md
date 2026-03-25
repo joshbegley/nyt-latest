@@ -1,3 +1,7 @@
+**Judge Orders Arrest of Former Kentucky Governor for Contempt**\
+`Seven years after leaving office, Matt Bevin, the combative ex-governor, faces charges for not providing financial records sought by his estranged son.`\
+https://nytimes.com/2026/03/25/us/matt-bevin-kentucky-arrest-contempt.html
+
 **Trump Draws Bipartisan Backlash for Easing Oil Sanctions on Russia and Iran**\
 `Republicans and Democrats alike have criticized the Trump administration’s moves, taken to stabilize oil markets rocked by the war with Iran, warning that it is benefiting two U.S. adversaries.`\
 https://nytimes.com/2026/03/25/us/politics/trump-bipartisan-backlash-oil-sanctions-russia-iran.html

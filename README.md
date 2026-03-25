@@ -1,3 +1,7 @@
+**Justice Dept. Settles Flynn’s Wrongful Prosecution Suit for $1.25 Million**\
+`The agreement was an extraordinary example of how the Trump administration has offered legal relief to those aligned with the president.`\
+https://nytimes.com/2026/03/25/us/politics/michael-flynn-doj-settlement-trump.html
+
 **Judge Orders Arrest of Former Kentucky Governor for Contempt**\
 `Seven years after leaving office, Matt Bevin, the combative ex-governor, faces charges for not providing financial records sought by his estranged son.`\
 https://nytimes.com/2026/03/25/us/matt-bevin-kentucky-arrest-contempt.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/25/business/media/leonid-radvinsky-dead.html
 **Here’s What Happened in the War in the Middle East on Wednesday**\
 `The fighting continued while conditions for a possible cease-fire were debated.`\
 https://nytimes.com/2026/03/25/world/middleeast/iran-war-recap-wednesday.html
-
-**Can This Leading Republican Critic of Trump Hang On?**\
-`Can any Republican disagree with Trump and get away with it? Thomas Massie’s primary race in Kentucky is a key test.`\
-https://nytimes.com/2026/03/25/us/politics/thomas-massie-trump.html
 
