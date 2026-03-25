@@ -1,3 +1,7 @@
+**Daphne Selfe, World’s Oldest Professional Model, Dies at 97**\
+`Starting in 1949, she had an on-and-off career that lasted for 75 years. But her biggest success came late in life, modeling for labels like Dolce & Gabbana.`\
+https://nytimes.com/2026/03/25/style/daphne-selfe-dead.html
+
 **Man United transfers: Debating Shaw, Dalot, Onana and the future of the club's back line**\
 `Ian Irving, Laurie Whitwell, Carl Anka and Andy Mitten run the rule over the club’s defenders and goalkeepers`\
 https://nytimes.com/athletic/7146545/2026/03/25/manchester-united-transfers-shaw-onana-maguire/
