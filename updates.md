@@ -1,3 +1,11 @@
+**Trump Draws Bipartisan Backlash for Easing Oil Sanctions on Russia and Iran**\
+`Republicans and Democrats alike have criticized the Trump administration’s moves, taken to stabilize oil markets rocked by the war with Iran, warning that it is benefiting two U.S. adversaries.`\
+https://nytimes.com/2026/03/25/us/politics/trump-bipartisan-backlash-oil-sanctions-russia-iran.html
+
+**Postal Service Plans to Impose 8% Surcharge on Packages to Offset Rising Transportation Costs**\
+`The temporary price increase, which would take effect on April 26, comes amid a spike in fuel prices tied to the war in Iran.`\
+https://nytimes.com/2026/03/25/us/politics/usps-surcharge-prices-fuel-iran.html
+
 **Buster Posey explains Giants' Opening Day lineup, choosing Jared Oliva over Luis Matos**\
 `"Everybody's behind J.O. and thrilled that he's on the team," said Posey, who went with the speedy outfielder over a former top prospect.`\
 https://nytimes.com/athletic/7147575/2026/03/25/sf-giants-opening-day-lineup-buster-posey-jared-oliva-luis-matos/
