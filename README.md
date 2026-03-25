@@ -1,3 +1,11 @@
+**Real Madrid will transform Bernabéu from grass soccer pitch to clay tennis courts for Madrid Open**\
+`The stadium will be used as a practice facility for the tournament, which starts April 20.`\
+https://nytimes.com/athletic/7146128/2026/03/25/tennis-madrid-open-bernabeu-practice-courts/
+
+**Russia Launches Large Daytime Attack on Ukraine**\
+`Russia unleashed a wave of drones across Ukraine, damaging apartment buildings, hospitals and a UNESCO World Heritage site, officials said.`\
+https://nytimes.com/video/world/europe/100000010800147/russia-strikes-lviv-ukraine-war-drones.html
+
 **Get Ready for More Ticketmaster Wars**\
 `Music fans, get ready for more Ticketmaster wars. Binyamin Appelbaum, a Times Opinion writer, explains the Trump administration’s role in the Live Nation-Ticketmaster antitrust settlement and argues that it is siding with corporate interests at the expense of the American concert-goer.`\
 https://nytimes.com/video/opinion/100000010797031/get-ready-for-more-ticketmaster-wars.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/25/business/energy-environment/iran-california-gas-p
 **3 bold Dodgers predictions for the 2026 season, starting with Teoscar Hernández**\
 `Will the Dodgers make a blockbuster trade? How many homers for Freddie Freeman? Our Dodgers beat writer peers into the crystal ball. `\
 https://nytimes.com/athletic/7142396/2026/03/25/dodgers-predictions-2026/
-
-**How will Giants manager Tony Vitello deal with criticism? By focusing on what matters more**\
-`SAN FRANCISCO — Tony Vitello loves to read about sports.`\
-https://nytimes.com/athletic/7145989/2026/03/25/tony-vitello-first-opening-day-sf-giants/
-
-**For Ilia Malinin and Amber Glenn, figure skating worlds bring a fresh start**\
-`After stumbling on the Olympic stage, the U.S. stars are back this week at world championships, both searching for something personal.`\
-https://nytimes.com/athletic/7146029/2026/03/25/ilia-malinin-amber-glenn-figure-skating-world-championships-olympics/
 
