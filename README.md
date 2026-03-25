@@ -1,3 +1,7 @@
+**Ukraine Finally Got Battlefield Momentum. Now Comes a Russian Offensive.**\
+`Moscow’s forces are intensifying their attacks in southern Ukraine after Kyiv made rare gains along the front.`\
+https://nytimes.com/2026/03/25/world/europe/ukraine-russia-war-zaporizhzhia.html
+
 **Two Men Arrested in Attack on Jewish Charity Ambulances in London**\
 `The police said the men, aged 45 and 47, are accused of arson with intent to endanger life stemming from the arson attack on Monday in Golders Green.`\
 https://nytimes.com/2026/03/25/world/europe/jewish-ambulances-arson-arrests.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7124299/2026/03/25/2026-mlb-predictions-athletics-m
 **A light touch in the trenches, and what we learned about Giants' roster-building strategy**\
 `A look back on the Giants' first free-agency wave under John Harbaugh.`\
 https://nytimes.com/athletic/7145621/2026/03/25/new-york-giants-free-agency-recap/
-
-**The New York Times International Edition in Print for Thursday, March 26, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/03/25/todays-new-york-times-international-edition
 
