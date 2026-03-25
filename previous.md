@@ -1,3 +1,11 @@
+**Stephen Colbert Is Writing a New ‘Lord of the Rings’ Movie**\
+`In an announcement video with the director Peter Jackson, the late-night host said he was developing a new film based on early chapters of the trilogy.`\
+https://nytimes.com/2026/03/25/movies/stephen-colbert-lord-of-the-rings.html
+
+**Rescuers Race to Save Whale Stranded Off German Coast**\
+`Efforts to save a 32-foot humpback, which has been stranded in shallow waters off Germany’s Baltic coast since March 20, continue despite diminishing chances of survival.`\
+https://nytimes.com/video/world/europe/100000010800325/rescue-underway-stranded-humpback-whale-baltic-sea.html
+
 **What a great season would look like for the 2026 Giants**\
 `For the Giants' season to be a success, it needs to include the postseason but the postseason formula has to be one that's repeatable.`\
 https://nytimes.com/athletic/7146001/2026/03/25/sf-giants-good-season-2026/
@@ -25,16 +33,4 @@ https://nytimes.com/2026/03/25/us/politics/supreme-court-mail-ballots-states.htm
 **Israel Keeps Up Strikes in Lebanon as Hezbollah Signals Defiance**\
 `There were few signs that either side was prepared to step back from the fighting. Israel said it struck an area south of Beirut and issued new evacuation warnings.`\
 https://nytimes.com/2026/03/25/world/middleeast/israel-lebanon-hezbollah.html
-
-**A Free Home for San Francisco Artists, From Dave Eggers and Friends**\
-`The writer, and the artist JD Beltran, have come up with Art + Water, to host exhibitions, give 30 artists studio space, and offer community events.`\
-https://nytimes.com/2026/03/25/arts/design/dave-eggers-jd-beltran-art-water-san-francisco.html
-
-**Is It OK to Cut Ties With a Friend Because of Her Views on Vaccines?**\
-`It really bothers me that she is selfishly choosing to put her children and others at risk.`\
-https://nytimes.com/2026/03/25/magazine/cut-ties-friend-vaccine-ethics.html
-
-**Humans Had Dogs Before They Had Farming, Ancient DNA Confirms**\
-`New research pushes the first genetic evidence of dogs back by 5,000 years and suggests that hunter-gatherer groups may have acquired dogs from one another.`\
-https://nytimes.com/2026/03/25/science/paleontology-humans-dogs-dna.html
 
