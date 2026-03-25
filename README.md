@@ -1,3 +1,7 @@
+**Two Men Arrested in Attack on Jewish Charity Ambulances in London**\
+`The police said the men, aged 45 and 47, are accused of arson with intent to endanger life stemming from the arson attack on Monday in Golders Green.`\
+https://nytimes.com/2026/03/25/world/europe/jewish-ambulances-arson-arrests.html
+
 **Can Shohei Ohtani win the Cy Young award? Managers on the hot seat? We take your questions**\
 `Andy McCullough's MLB mailbag looks at who will win big awards, who will be traded, who will be fired and more as Opening Day arrives. `\
 https://nytimes.com/athletic/7143963/2026/03/25/mlb-mailbag-awards-shohei-ohtani-cy-young-award-questions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7145621/2026/03/25/new-york-giants-free-agency-reca
 **The New York Times International Edition in Print for Thursday, March 26, 2026**\
 ``\
 https://nytimes.com/issue/todaysinyt/2026/03/25/todays-new-york-times-international-edition
-
-**ABS is here, so what reason do managers have left to kick dirt on umpires?**\
-`Managers and umpires will forever find ways to go at each other’s throats. But maybe not as colorfully as in days of old.`\
-https://nytimes.com/athletic/7144957/2026/03/25/abs-mlb-managers-umpires-argue/
 
