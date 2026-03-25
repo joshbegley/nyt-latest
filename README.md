@@ -1,3 +1,7 @@
+**Are Dynasties Good for Baseball?**\
+`The Los Angeles Dodgers won back-to-back World Series and are the top contender for the title again as the baseball season opens. The Athletic’s M.L.B. writers sound off on whether dynasties are good or bad for the sport.`\
+https://nytimes.com/video/the-athletic/100000010800698/are-dynasties-good-for-baseball.html
+
 **Adam Silver says NBA will change lottery to curb tanking: 'We are going to fix it'**\
 `Silver said there was "unanimous" support to address the issue of tanking and the league will likely meet in May to decide on specifics. `\
 https://nytimes.com/athletic/7147357/2026/03/25/nba-tanking-lottery-adam-silver-fix/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/25/weather/iran-uae-storm-flooding-rain.html
 **U.S. Circulates Iran Peace Plan While Sending Troops to the Middle East**\
 `The 2,000 paratroopers heading to the region may give President Trump more leverage in negotiations, but they also leave him with the option of doubling down on military force.`\
 https://nytimes.com/2026/03/25/us/politics/iran-peace-plan-talks-trump.html
-
-**Boubacar Ould Messaoud, 80, Leader in Antislavery Fight in Mauritania**\
-`Despite being imprisoned and harassed, he helped found an organization to combat slavery in his West African nation.`\
-https://nytimes.com/2026/03/25/world/africa/boubacar-ould-messaoud-dead.html
 
