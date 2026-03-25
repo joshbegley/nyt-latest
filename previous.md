@@ -1,3 +1,7 @@
+**It’s All About the Pigs, Stupid**\
+`In Denmark’s election, it was local issues, not Greenland or foreign policy, that counted. That hurt the prime minister, Mette Frederiksen.`\
+https://nytimes.com/2026/03/25/world/europe/denmark-elections-pigs-frederiksen.html
+
 **What Happens When We Die? This Poem Has Thoughts.**\
 `A.O. Scott contemplates the great unknown in Wallace Stevens’s “Of Mere Being.”`\
 https://nytimes.com/interactive/2026/03/25/books/wallace-stevens-of-mere-being-poetry.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7146011/2026/03/25/mohamed-salah-egypt-background-p
 **How to watch Spurs vs. Grizzlies: Time, TV, streaming**\
 `Find out how to watch the San Antonio Spurs play the Memphis Grizzlies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7146941/2026/03/25/spurs-vs-grizzlies-stream-how-to-watch-march-25/
-
-**How to watch Wizards vs. Jazz: Time, TV, streaming**\
-`Find out how to watch the Washington Wizards play the Utah Jazz, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7146937/2026/03/25/wizards-vs-jazz-stream-how-to-watch-march-25/
 

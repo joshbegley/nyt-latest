@@ -1,3 +1,7 @@
+**It’s All About the Pigs, Stupid**\
+`In Denmark’s election, it was local issues, not Greenland or foreign policy, that counted. That hurt the prime minister, Mette Frederiksen.`\
+https://nytimes.com/2026/03/25/world/europe/denmark-elections-pigs-frederiksen.html
+
 **What Happens When We Die? This Poem Has Thoughts.**\
 `A.O. Scott contemplates the great unknown in Wallace Stevens’s “Of Mere Being.”`\
 https://nytimes.com/interactive/2026/03/25/books/wallace-stevens-of-mere-being-poetry.html
