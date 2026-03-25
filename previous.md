@@ -1,3 +1,11 @@
+**New Jersey Bars ICE and Other Law Enforcement Agents From Wearing Masks**\
+`Federal officials said they would “not abide” by the new law, which is likely to lead to a showdown in court.`\
+https://nytimes.com/2026/03/25/nyregion/nj-mask-ban-police-ice.html
+
+**NHL bonus watch: Who's cashing in as the season hits the home stretch?**\
+`A look at which NHL players have already hit their bonuses, which ones have them in sight and which ones may not quite get there.`\
+https://nytimes.com/athletic/7146463/2026/03/25/nhl-performance-bonuses-2025-26/
+
 **Iraq Summons U.S. Diplomat After Attack on Military Base**\
 `The attack came a day after a separate strike on the same base, which hosts units viewed by the United States as allies of Iran.`\
 https://nytimes.com/2026/03/25/world/middleeast/iraq-summons-us-diplomat-after-attack-on-military-base.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7146112/2026/03/25/jess-carter-sentencing-abuse/
 **How to watch Hawks vs. Pistons: Time, TV, streaming**\
 `Find out how to watch the Atlanta Hawks play the Detroit Pistons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7146645/2026/03/25/hawks-vs-pistons-stream-how-to-watch-march-25/
-
-**How to watch Bulls vs. 76ers: Time, TV, streaming**\
-`Find out how to watch the Chicago Bulls play the Philadelphia 76ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7146642/2026/03/25/bulls-vs-76ers-stream-how-to-watch-march-25/
-
-**How to watch Lakers vs. Pacers: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Lakers play the Indiana Pacers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7146639/2026/03/25/lakers-vs-pacers-stream-how-to-watch-march-25/
 

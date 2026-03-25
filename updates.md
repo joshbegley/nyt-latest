@@ -1,3 +1,11 @@
+**New Jersey Bars ICE and Other Law Enforcement Agents From Wearing Masks**\
+`Federal officials said they would “not abide” by the new law, which is likely to lead to a showdown in court.`\
+https://nytimes.com/2026/03/25/nyregion/nj-mask-ban-police-ice.html
+
+**NHL bonus watch: Who's cashing in as the season hits the home stretch?**\
+`A look at which NHL players have already hit their bonuses, which ones have them in sight and which ones may not quite get there.`\
+https://nytimes.com/athletic/7146463/2026/03/25/nhl-performance-bonuses-2025-26/
+
 **Iraq Summons U.S. Diplomat After Attack on Military Base**\
 `The attack came a day after a separate strike on the same base, which hosts units viewed by the United States as allies of Iran.`\
 https://nytimes.com/2026/03/25/world/middleeast/iraq-summons-us-diplomat-after-attack-on-military-base.html
