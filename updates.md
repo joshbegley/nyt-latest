@@ -1,3 +1,11 @@
+**Why Travis Kelce's new contract with the Chiefs isn't really a 3-year deal**\
+`Kelce is scheduled to receive a $40 million bonus in 2028 if he remains a part of K.C.’s roster on June 8, 2027. But that will never happen.`\
+https://nytimes.com/athletic/7146414/2026/03/25/chiefs-travis-kelce-new-contract-value-future/
+
+**Real Madrid will transform Bernabéu from soccer pitch to tennis courts for Madrid Open**\
+`The stadium will be used as a practice facility for the tournament, which starts April 20.`\
+https://nytimes.com/athletic/7146128/2026/03/25/tennis-madrid-open-bernabeu-practice-courts/
+
 **Saints sign former Jets quarterback Zach Wilson to 1-year deal: Source**\
 `Wilson, drafted second overall by the Jets in 2021, spent last season as a backup with Miami.`\
 https://nytimes.com/athletic/7146411/2026/03/25/zach-wilson-saints-contract-deal-quarterback/

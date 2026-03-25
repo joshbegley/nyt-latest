@@ -1,3 +1,7 @@
+**Supreme Court Sides With Internet Provider in Copyright Fight Over Pirated Music**\
+`Leading music labels sued Cox Communications for failing to terminate accounts of subscribers flagged for distributing copyrighted music.`\
+https://nytimes.com/2026/03/25/us/politics/supreme-court-cox-music-copyright.html
+
 **Why Travis Kelce's new contract with the Chiefs isn't really a 3-year deal**\
 `Kelce is scheduled to receive a $40 million bonus in 2028 if he remains a part of K.C.’s roster on June 8, 2027. But that will never happen.`\
 https://nytimes.com/athletic/7146414/2026/03/25/chiefs-travis-kelce-new-contract-value-future/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010800147/russia-strikes-lviv-ukrai
 **Get Ready for More Ticketmaster Wars**\
 `Music fans, get ready for more Ticketmaster wars. Binyamin Appelbaum, a Times Opinion writer, explains the Trump administration’s role in the Live Nation-Ticketmaster antitrust settlement and argues that it is siding with corporate interests at the expense of the American concert-goer.`\
 https://nytimes.com/video/opinion/100000010797031/get-ready-for-more-ticketmaster-wars.html
-
-**Air Canada C.E.O. Draws Scorn for Delivering Condolences in English**\
-`The lack of French in Michael Rousseau’s speech about the deadly collision at LaGuardia Airport reignited a debate over linguistic inclusivity in Canada.`\
-https://nytimes.com/2026/03/25/world/canada/air-canada-ceo-speech-french.html
 

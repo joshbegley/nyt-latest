@@ -1,3 +1,7 @@
+**Why Travis Kelce's new contract with the Chiefs isn't really a 3-year deal**\
+`Kelce is scheduled to receive a $40 million bonus in 2028 if he remains a part of K.C.’s roster on June 8, 2027. But that will never happen.`\
+https://nytimes.com/athletic/7146414/2026/03/25/chiefs-travis-kelce-new-contract-value-future/
+
 **Saints sign former Jets quarterback Zach Wilson to 1-year deal: Source**\
 `Wilson, drafted second overall by the Jets in 2021, spent last season as a backup with Miami.`\
 https://nytimes.com/athletic/7146411/2026/03/25/zach-wilson-saints-contract-deal-quarterback/
@@ -18,7 +22,7 @@ https://nytimes.com/interactive/2026/03/25/world/europe/uk-canterbury-archbishop
 `Going out on a limb with a trio of low-probability, high-impact and increasingly bold predictions about the 2026 Minnesota Twins.`\
 https://nytimes.com/athletic/7141638/2026/03/25/twins-predictions-2026-season/
 
-**Real Madrid will transform Bernabéu from grass soccer pitch to clay tennis courts for Madrid Open**\
+**Real Madrid will transform Bernabéu from soccer pitch to tennis courts for Madrid Open**\
 `The stadium will be used as a practice facility for the tournament, which starts April 20.`\
 https://nytimes.com/athletic/7146128/2026/03/25/tennis-madrid-open-bernabeu-practice-courts/
 
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010797031/get-ready-for-more-ticketmaste
 **Air Canada C.E.O. Draws Scorn for Delivering Condolences in English**\
 `The lack of French in Michael Rousseau’s speech about the deadly collision at LaGuardia Airport reignited a debate over linguistic inclusivity in Canada.`\
 https://nytimes.com/2026/03/25/world/canada/air-canada-ceo-speech-french.html
-
-**Lowetide: Why Oilers rookie Josh Samanski is thriving on the third line**\
-`Signing Samanski out of Germany's DEL in the offseason was a significant addition for the Oilers.`\
-https://nytimes.com/athletic/7057879/2026/03/25/edmonton-oilers-josh-samanski-stats-lineup/
 
