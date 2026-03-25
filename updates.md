@@ -1,3 +1,23 @@
+**Women’s Champions League: 18 goals, OL Lyonnes slump, Barcelona and Arsenal shift into next gear**\
+`The Athletic staff breaks down key moments from the first leg of the Women's Champions League quarter-finals`\
+https://nytimes.com/athletic/7147567/2026/03/25/womens-champions-league-quarterfinal-goals/
+
+**Day Care Worker Stole Millions for Trips and W.W.E. Tickets, U.S. Says**\
+`Murielle Misczak was arrested Wednesday morning and is accused of using the money on wrestling tickets, luxury vacations and food deliveries.`\
+https://nytimes.com/2026/03/25/nyregion/daycare-brooklyn-theft-wwe.html
+
+**A Canadian Supreme Court Case Could Test the Country’s Unity**\
+`Quebec’s ban on religious symbols — and a measure that suspends constitutional rights — are being tested in a case with far-reaching repercussions.`\
+https://nytimes.com/2026/03/25/world/americas/canada-supreme-court-religion-bill-21.html
+
+**Leon Radvinsky, 43, Dies; Built the Adult-Entertainment Giant OnlyFans**\
+`By leveraging social media and the influencer economy, he turned his website into a byword for online pornography in the 21st century.`\
+https://nytimes.com/2026/03/25/business/media/leonid-radvinsky-dead.html
+
+**Here’s What Happened in the War in the Middle East on Wednesday**\
+`The fighting continued while conditions for a possible cease-fire were debated.`\
+https://nytimes.com/2026/03/25/world/middleeast/iran-war-recap-wednesday.html
+
 **Can This Leading Republican Critic of Trump Hang On?**\
 `Can any Republican disagree with Trump and get away with it? Thomas Massie’s primary race in Kentucky is a key test.`\
 https://nytimes.com/2026/03/25/us/politics/thomas-massie-trump.html
