@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, March 25, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/25/todays-new-york-times
+
+**Putin Was Under Pressure. Then Came the War in Iran.**\
+`In one swoop, it overturned the conditions for conciliation.`\
+https://nytimes.com/2026/03/25/opinion/russia-putin-iran-war.html
+
 **Fight night, disallowed goal and unlucky bounce sink Wild vs. Lightning: Takeaways**\
 `The lopsided final score didn't do justice to just how tight the game between two Stanley Cup contenders truly was.`\
 https://nytimes.com/athletic/7145792/2026/03/25/wild-gustavsson-fumble-disallowed-goal-fight-mccarron-foligno-lightning/
