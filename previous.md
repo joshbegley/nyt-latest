@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Francesca Regalado, Eric Schmitt, Elian Peltier and Adam Rasgon`\
+https://nytimes.com/live/2026/03/25/world/iran-war-trump-oil-news/heres-the-latest
+
+**Iran War Live Updates: Pentagon Orders Troop Deployment as Pakistan Offers to Host Talks**\
+`The Pentagon said it was sending 2,000 airborne troops to the Middle East. President Trump appeared to support Pakistan’s offer to broker negotiations to end the war.`\
+https://nytimes.com/live/2026/03/25/world/iran-war-trump-oil-news
+
 **Six weeks on from sacking Frank and appointing Tudor, Spurs face the same questions**\
 `The situation that Tottenham are in right now is eerily similar to the situation six weeks ago - except they're nearer the drop zone`\
 https://nytimes.com/athletic/7141176/2026/03/25/spurs-tudor-venkatesham-lange/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/25/nyregion/mamdani-property-tax-increase.html
 **Write It Up! How Fast Do Our Journalists Type?**\
 `When it comes to breaking news, it’s a race not only to get the story, but to record it. We tracked down some of the speediest fingers in our newsroom.`\
 https://nytimes.com/2026/03/25/insider/how-fast-journalists-type.html
-
-**Youth Program Hit by $17 Million Scam Had Prior Misconduct, Records Show**\
-`New York City officials still have not fully explained how payroll cards from a summer jobs program were used to withdraw large amounts of cash from A.T.M.s last year.`\
-https://nytimes.com/2026/03/25/nyregion/nyc-atm-scam-investigation.html
-
-**Word of the Day: litigation**\
-`This word has appeared in 1,099 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/03/25/learning/word-of-the-day-litigation.html
 

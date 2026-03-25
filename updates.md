@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Francesca Regalado, Eric Schmitt, Elian Peltier and Adam Rasgon`\
+https://nytimes.com/live/2026/03/25/world/iran-war-trump-oil-news/heres-the-latest
+
+**Iran War Live Updates: Pentagon Orders Troop Deployment as Pakistan Offers to Host Talks**\
+`The Pentagon said it was sending 2,000 airborne troops to the Middle East. President Trump appeared to support Pakistan’s offer to broker negotiations to end the war.`\
+https://nytimes.com/live/2026/03/25/world/iran-war-trump-oil-news
+
 **Six weeks on from sacking Frank and appointing Tudor, Spurs face the same questions**\
 `The situation that Tottenham are in right now is eerily similar to the situation six weeks ago - except they're nearer the drop zone`\
 https://nytimes.com/athletic/7141176/2026/03/25/spurs-tudor-venkatesham-lange/
