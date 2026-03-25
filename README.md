@@ -1,3 +1,7 @@
+**Adam Silver says NBA will change lottery to curb tanking: 'We are going to fix it'**\
+`Silver said there was "unanimous" support to address the issue of tanking and the league will likely meet in May to decide on specifics. `\
+https://nytimes.com/athletic/7147357/2026/03/25/nba-tanking-lottery-adam-silver-fix/
+
 **Stir-Fried Salt and Pepper Dumplings**\
 `Frozen potstickers get the stir-fry treatment in this speedy, comforting weeknight dinner that comes together in one pan.`\
 https://nytimes.com/video/dining/100000010798059/stir-fried-salt-and-pepper-dumplings.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/25/us/politics/iran-peace-plan-talks-trump.html
 **Boubacar Ould Messaoud, 80, Leader in Antislavery Fight in Mauritania**\
 `Despite being imprisoned and harassed, he helped found an organization to combat slavery in his West African nation.`\
 https://nytimes.com/2026/03/25/world/africa/boubacar-ould-messaoud-dead.html
-
-**MLS Commissioner would 'love to see' Liverpool's Salah in U.S.**\
-`Don Garber said "we would provide him with a great platform" and the Egyptian forward would be "great" in MLS. `\
-https://nytimes.com/athletic/7147226/2026/03/25/mohamed-salah-mls-commissioner-liverpool-transfer-news/
 
