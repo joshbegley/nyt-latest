@@ -1,3 +1,7 @@
+**Supreme Court Sides With Internet Provider in Copyright Fight Over Pirated Music**\
+`Leading music labels sued Cox Communications for failing to terminate accounts of subscribers flagged for distributing copyrighted music.`\
+https://nytimes.com/2026/03/25/us/politics/supreme-court-cox-music-copyright.html
+
 **Why Travis Kelce's new contract with the Chiefs isn't really a 3-year deal**\
 `Kelce is scheduled to receive a $40 million bonus in 2028 if he remains a part of K.C.’s roster on June 8, 2027. But that will never happen.`\
 https://nytimes.com/athletic/7146414/2026/03/25/chiefs-travis-kelce-new-contract-value-future/
