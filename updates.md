@@ -1,3 +1,11 @@
+**What are Mohamed Salah's options now he is leaving Liverpool?**\
+`Where next for the Egyptian? Saudi Arabia? MLS? Europe? We discuss his possible options once he leaves Liverpool.`\
+https://nytimes.com/athletic/7145627/2026/03/25/mohamed-salah-next-club-saudi-mls/
+
+**Six weeks on from sacking Frank and appointing Tudor, Spurs face the same questions**\
+`The situation Tottenham are in today is eerily similar to the one in February - except they're nearer the drop zone with fewer games left`\
+https://nytimes.com/athletic/7141176/2026/03/25/spurs-tudor-venkatesham-lange/
+
 **Here’s the latest.**\
 `By Francesca Regalado, Eric Schmitt, Elian Peltier and Adam Rasgon`\
 https://nytimes.com/live/2026/03/25/world/iran-war-trump-oil-news/heres-the-latest

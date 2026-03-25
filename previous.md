@@ -1,3 +1,7 @@
+**What are Mohamed Salah's options now he is leaving Liverpool?**\
+`Where next for the Egyptian? Saudi Arabia? MLS? Europe? We discuss his possible options once he leaves Liverpool.`\
+https://nytimes.com/athletic/7145627/2026/03/25/mohamed-salah-next-club-saudi-mls/
+
 **Here’s the latest.**\
 `By Francesca Regalado, Eric Schmitt, Elian Peltier and Adam Rasgon`\
 https://nytimes.com/live/2026/03/25/world/iran-war-trump-oil-news/heres-the-latest
@@ -7,7 +11,7 @@ https://nytimes.com/live/2026/03/25/world/iran-war-trump-oil-news/heres-the-late
 https://nytimes.com/live/2026/03/25/world/iran-war-trump-oil-news
 
 **Six weeks on from sacking Frank and appointing Tudor, Spurs face the same questions**\
-`The situation that Tottenham are in right now is eerily similar to the situation six weeks ago - except they're nearer the drop zone`\
+`The situation Tottenham are in today is eerily similar to the one in February - except they're nearer the drop zone with fewer games left`\
 https://nytimes.com/athletic/7141176/2026/03/25/spurs-tudor-venkatesham-lange/
 
 **Should These Abandoned Tracks Become a Park or a Train Line? Or Both?**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/25/nyregion/alpha-gal-meat-allergy-deaths.html
 **Mamdani Is Quietly Backing Away From a Threat to Raise Property Taxes**\
 `The mayor has left lawmakers with the belief he does not plan to pursue an unpopular property tax increase, as he looks to close a budget gap of $5.4 billion over two years.`\
 https://nytimes.com/2026/03/25/nyregion/mamdani-property-tax-increase.html
-
-**Write It Up! How Fast Do Our Journalists Type?**\
-`When it comes to breaking news, it’s a race not only to get the story, but to record it. We tracked down some of the speediest fingers in our newsroom.`\
-https://nytimes.com/2026/03/25/insider/how-fast-journalists-type.html
 
