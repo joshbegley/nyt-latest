@@ -1,3 +1,7 @@
+**What a great season would look like for the 2026 Giants**\
+`For the Giants' season to be a success, it needs to include the postseason but the postseason formula has to be one that's repeatable.`\
+https://nytimes.com/athletic/7146001/2026/03/25/sf-giants-good-season-2026/
+
 **Billionaires and the Erosion of Democracy**\
 `Readers discuss the effects of billionaires on U.S. society and politics. Also: Electric cars; President Trump’s personal ICE; an invitation to teenagers.`\
 https://nytimes.com/2026/03/25/opinion/billionaires-democracy.html
@@ -10,7 +14,7 @@ https://nytimes.com/2026/03/25/world/middleeast/israel-attacks-iran-ceasefire-pl
 `The petition was filed on March 16 by KPM Groundworks Ltd., a construction company specialising in sports ground maintenance.`\
 https://nytimes.com/athletic/7146536/2026/03/25/morecambe-national-league-winding-up-petition-financial/
 
-**Iranians Reject Trump’s Offer for Cease-Fire but Signal Openness to Talk**\
+**Iranians Reject Trump’s Offer for Cease-Fire but Signal Openness to Talks**\
 `Iran does not want a momentary pause in the fighting, fearing that Israel and the United States would use that opportunity to beef up their forces before resuming strikes.`\
 https://nytimes.com/2026/03/25/world/middleeast/iran-talks-cease-fire.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/25/magazine/cut-ties-friend-vaccine-ethics.html
 **Humans Had Dogs Before They Had Farming, Ancient DNA Confirms**\
 `New research pushes the first genetic evidence of dogs back by 5,000 years and suggests that hunter-gatherer groups may have acquired dogs from one another.`\
 https://nytimes.com/2026/03/25/science/paleontology-humans-dogs-dna.html
-
-**Daphne Selfe, World’s Oldest Professional Model, Dies at 97**\
-`Starting in 1949, she had an on-and-off career that lasted for 75 years. But her biggest success came late in life, modeling for labels like Dolce & Gabbana.`\
-https://nytimes.com/2026/03/25/style/daphne-selfe-dead.html
 

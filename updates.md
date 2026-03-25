@@ -1,3 +1,11 @@
+**Billionaires and the Erosion of Democracy**\
+`Readers discuss the effects of billionaires on U.S. society and politics. Also: Electric cars; President Trump’s personal ICE; an invitation to teenagers.`\
+https://nytimes.com/2026/03/25/opinion/billionaires-democracy.html
+
+**Some States Already Preparing for Potential Supreme Court Ban on Late Ballots**\
+`The court’s conservatives appear skeptical of laws allowing mail ballots to arrive after Election Day. A decision could come as late as June, potentially scrambling midterm elections.`\
+https://nytimes.com/2026/03/25/us/politics/supreme-court-mail-ballots-states.html
+
 **Israel Races to Hit Iran Hard While It Still Can, Leery of Possible Talks, Officials Say**\
 `Prime Minister Benjamin Netanyahu gave the order on Tuesday for the military to accelerate its attacks, with a 48-hour deadline, four people briefed on the matter said.`\
 https://nytimes.com/2026/03/25/world/middleeast/israel-attacks-iran-ceasefire-plan.html
