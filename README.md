@@ -1,3 +1,7 @@
+**Daphne Selfe, World’s Oldest Professional Model, Dies at 97**\
+`Starting in 1949, she had an on-and-off career that lasted for 75 years. But her biggest success came late in life, modeling for labels like Dolce & Gabbana.`\
+https://nytimes.com/2026/03/25/style/daphne-selfe-dead.html
+
 **Man United transfers: Debating Shaw, Dalot, Onana and the future of the club's back line**\
 `Ian Irving, Laurie Whitwell, Carl Anka and Andy Mitten run the rule over the club’s defenders and goalkeepers`\
 https://nytimes.com/athletic/7146545/2026/03/25/manchester-united-transfers-shaw-onana-maguire/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/25/us/politics/trump-china-mideast.html
 **What I'm seeing from Zeev Buium, Tom Willander and Canucks down the stretch**\
 `Let's take a moment to go over some of what we're actually seeing on the ice from the Canucks of late.`\
 https://nytimes.com/athletic/7145957/2026/03/25/canucks-highlights-zeev-buium-tom-willander/
-
-**NBA governors approve vote to explore expansion to Seattle and Las Vegas**\
-`“I am looking forward to welcoming the team when it gets here," Las Vegas mayor Shelley Berkley told The Athletic this week.`\
-https://nytimes.com/athletic/7146445/2026/03/25/nba-expansion-seattle-las-vegas-vote/
 

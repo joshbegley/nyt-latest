@@ -1,3 +1,11 @@
+**Man United transfers: Debating Shaw, Dalot, Onana and the future of the club's back line**\
+`Ian Irving, Laurie Whitwell, Carl Anka and Andy Mitten run the rule over the club’s defenders and goalkeepers`\
+https://nytimes.com/athletic/7146545/2026/03/25/manchester-united-transfers-shaw-onana-maguire/
+
+**Tracy Kidder, Author of ‘The Soul of a New Machine,’ Dies at 80**\
+`A Pulitzer Prize-winning narrative journalist, he wrote deeply reported books that often focused on heroic goodness in people.`\
+https://nytimes.com/2026/03/25/books/tracy-kidder-dead.html
+
 **New Jersey Bars ICE and Other Law Enforcement Agents From Wearing Masks**\
 `Federal officials said they would “not abide” by the new law, which is likely to lead to a showdown in court.`\
 https://nytimes.com/2026/03/25/nyregion/nj-mask-ban-police-ice.html
