@@ -1,3 +1,11 @@
+**Homeland Security Talks Hit Snag as Democrats Demand ICE Restrictions**\
+`A day after Republicans offered to remove money for ICE enforcement from a Department of Homeland Security funding bill, Democrats insisted that the deal must include curbs on federal agents.`\
+https://nytimes.com/2026/03/25/us/politics/homeland-security-shutdown-republicans-congress.html
+
+**Prominent Climate Scientist Resigns From NASA, Citing Trump’s Attack on Science**\
+`Kate Marvel, a well-known author, joins an estimated 95,000 people who have left federal science agencies since President Trump returned to the White House.`\
+https://nytimes.com/2026/03/25/climate/kate-marvel-nasa-resign.html
+
 **Sorry UNC, but Brad Stevens was never walking through that door**\
 `Stevens has never given any indication he wants to leave Boston. Beyond that, why would he leave now?`\
 https://nytimes.com/athletic/7147119/2026/03/25/brad-stevens-unc-coaching-search-celtics/
