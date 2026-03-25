@@ -1,3 +1,11 @@
+**Tush push staying as NFL has no plans to discuss play at owners meeting**\
+`When NFL owners gather next week, they will deliberate over different rule proposals, but banning the tush push will not rank among them.`\
+https://nytimes.com/athletic/7146981/2026/03/25/tush-push-remains-nfl-league-meetings/
+
+**Is There Anything I Can Do to Shorten My T.S.A. Wait Time?**\
+`With lines stretching for hours and passengers missing flights, fliers are desperate to ease the wait at security. There are some steps you can take, but no guarantees.`\
+https://nytimes.com/2026/03/25/travel/tsa-wait-time-airport-advice.html
+
 **Blackjacks? Sharks? Our ideas for naming an NBA team in Las Vegas**\
 `It would be a shock if a Seattle team wasn't called the SuperSonics, but it's a different story for a (potential) team in Vegas.`\
 https://nytimes.com/athletic/7146893/2026/03/25/nba-expansion-las-vegas-team-name/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7146985/2026/03/25/rangers-vs-maple-leafs-stream-ho
 **How to watch Bruins vs. Sabres: Time, TV, streaming**\
 `Find out how to watch the Boston Bruins play the Buffalo Sabres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7146983/2026/03/25/bruins-vs-sabres-stream-how-to-watch-march-25/
-
-**How to watch Yankees vs. Giants: Time, TV, streaming for March 25**\
-`Find out how to watch the New York Yankees play the San Francisco Giants, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7146964/2026/03/25/yankees-vs-giants-stream-how-to-watch-march-25/
-
-**USATF granted extra world championship spots after runners led off course**\
-`The "one-off" exception comes after three women were led off course at the 2026 U.S. Half Marathon Championships by the lead vehicle.`\
-https://nytimes.com/athletic/7146780/2026/03/25/usa-half-marathon-runners-led-astray-world-championships-eligibility/
 

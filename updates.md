@@ -1,3 +1,11 @@
+**Tush push staying as NFL has no plans to discuss play at owners meeting**\
+`When NFL owners gather next week, they will deliberate over different rule proposals, but banning the tush push will not rank among them.`\
+https://nytimes.com/athletic/7146981/2026/03/25/tush-push-remains-nfl-league-meetings/
+
+**Is There Anything I Can Do to Shorten My T.S.A. Wait Time?**\
+`With lines stretching for hours and passengers missing flights, fliers are desperate to ease the wait at security. There are some steps you can take, but no guarantees.`\
+https://nytimes.com/2026/03/25/travel/tsa-wait-time-airport-advice.html
+
 **Blackjacks? Sharks? Our ideas for naming an NBA team in Las Vegas**\
 `It would be a shock if a Seattle team wasn't called the SuperSonics, but it's a different story for a (potential) team in Vegas.`\
 https://nytimes.com/athletic/7146893/2026/03/25/nba-expansion-las-vegas-team-name/
