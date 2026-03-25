@@ -1,3 +1,11 @@
+**Real Madrid will transform Bernabéu from grass soccer pitch to clay tennis courts for Madrid Open**\
+`The stadium will be used as a practice facility for the tournament, which starts April 20.`\
+https://nytimes.com/athletic/7146128/2026/03/25/tennis-madrid-open-bernabeu-practice-courts/
+
+**Russia Launches Large Daytime Attack on Ukraine**\
+`Russia unleashed a wave of drones across Ukraine, damaging apartment buildings, hospitals and a UNESCO World Heritage site, officials said.`\
+https://nytimes.com/video/world/europe/100000010800147/russia-strikes-lviv-ukraine-war-drones.html
+
 **Get Ready for More Ticketmaster Wars**\
 `Music fans, get ready for more Ticketmaster wars. Binyamin Appelbaum, a Times Opinion writer, explains the Trump administration’s role in the Live Nation-Ticketmaster antitrust settlement and argues that it is siding with corporate interests at the expense of the American concert-goer.`\
 https://nytimes.com/video/opinion/100000010797031/get-ready-for-more-ticketmaster-wars.html

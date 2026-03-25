@@ -1,3 +1,7 @@
+**Three bold Twins predictions for 2026**\
+`Going out on a limb with a trio of low-probability, high-impact and increasingly bold predictions about the 2026 Minnesota Twins.`\
+https://nytimes.com/athletic/7141638/2026/03/25/twins-predictions-2026-season/
+
 **Real Madrid will transform Bernabéu from grass soccer pitch to clay tennis courts for Madrid Open**\
 `The stadium will be used as a practice facility for the tournament, which starts April 20.`\
 https://nytimes.com/athletic/7146128/2026/03/25/tennis-madrid-open-bernabeu-practice-courts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7141961/2026/03/25/padres-predictions-2026-mlb/
 **As Gas Prices Spike, California Is Hit Hardest**\
 `A gallon has climbed to nearly $6 in the state, about $2 above the national average.`\
 https://nytimes.com/2026/03/25/business/energy-environment/iran-california-gas-prices.html
-
-**3 bold Dodgers predictions for the 2026 season, starting with Teoscar Hernández**\
-`Will the Dodgers make a blockbuster trade? How many homers for Freddie Freeman? Our Dodgers beat writer peers into the crystal ball. `\
-https://nytimes.com/athletic/7142396/2026/03/25/dodgers-predictions-2026/
 
