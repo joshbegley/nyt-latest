@@ -1,3 +1,7 @@
+**Asia Is Getting Crushed Between Oil Prices and the Dollar**\
+`From India to Southeast Asia to South Korea, currencies are crumbling as governments race to secure fuel that is priced in American money.`\
+https://nytimes.com/2026/03/25/business/iran-war-dollar-rupee-won.html
+
 **Army Raises Enlistment Age Limit to 42 and Eases Marijuana Rules**\
 `The new enlistment requirements were made official years after the Army faced a recruiting crisis, and as the United States is engaged in a war with Iran.`\
 https://nytimes.com/2026/03/25/us/army-recruiting-age-marijuana.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/25/briefing/social-media-trial-iran-us-peace-talks.h
 **U.S. Rejects Vote to Recognize Slavery as a ‘Crime Against Humanity’**\
 `The United Nations resolution was led by the president of Ghana. Israel and Argentina also voted against it.`\
 https://nytimes.com/2026/03/25/world/africa/un-slave-trade-vote-us-ghana-israel.html
-
-**Melania and the Robot**\
-`The first lady, Melania Trump, believes that more children should be educated by “humanoid educators.”`\
-https://nytimes.com/2026/03/25/us/politics/melania-trump-robot.html
 
