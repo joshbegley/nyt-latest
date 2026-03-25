@@ -1,3 +1,7 @@
+**Why the Yankees face more pressure than anyone in 2026**\
+`Though Mets are feeling some heat, that ticking clock on Aaron Judge’s prime – and on this era of Yankee baseball – is louder than ever.`\
+https://nytimes.com/athletic/7145222/2026/03/25/yankees-2026-season-expectations-pressure/
+
 **F-bombs and 'fork!': Why some hoops coaches swear up a storm while others keep it clean**\
 `Coaches like UConn's Dan Hurley say it's second nature. Others like Tennessee's Rick Barnes set a different example. It's all communication.`\
 https://nytimes.com/athletic/7144111/2026/03/25/coaches-cursing-swear-words/
