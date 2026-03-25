@@ -1,3 +1,11 @@
+**Three Cleveland Guardians bold predictions for the 2026 season**\
+`Here are a few bold, fearless, brazen predictions that only the most courageous of Guardians fans would dare try to speak into existence.`\
+https://nytimes.com/athletic/7138666/2026/03/25/cleveland-guardians-bold-predictions-2026/
+
+**Airline Anxiety**\
+`We look at why flying right now is awful.`\
+https://nytimes.com/2026/03/25/briefing/airline-anxiety.html
+
 **Why Carson Benge is ready for New York: 'I've never seen him intimidated'**\
 `Benge is in line to face Paul Skenes on Opening Day, but don't expect him to be daunted: "He has elite confidence."`\
 https://nytimes.com/athletic/7145363/2026/03/25/carson-benge-rookie-prospect-debut/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7144788/2026/03/25/nebraska-fred-hoiberg-ncaa-tourn
 **Chiefs NFL Draft big board: 5 players who make sense for each early pick**\
 `The Chiefs are most likely to target these two positions with their first pick in the 2026 NFL Draft.`\
 https://nytimes.com/athletic/7143644/2026/03/25/chiefs-nfl-draft-big-board-rueben-bain-jr/
-
-**Manchester United Women's crucial seven days: How they can shape their future on the biggest stage**\
-`A historic Champions League quarter-final against Bayern Munich and a Manchester Derby at Old Trafford, the team faces its biggest week yet`\
-https://nytimes.com/athletic/7124972/2026/03/25/manchester-united-women-crucial-seven-days-champions-league/
-
-**Flyers squander another opportunity to get back into the playoff race**\
-`Philadelphia fell to the Columbus Blue Jackets — a team it is chasing — for the second time in 11 days at Xfinity Mobile Arena, 3-2.`\
-https://nytimes.com/athletic/7145683/2026/03/25/flyers-lose-blue-jackets-playoff-race/
 
