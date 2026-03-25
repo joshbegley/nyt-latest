@@ -1,3 +1,11 @@
+**In tennis, home advantage is complicated. At the Miami Open, it is no different**\
+`The tournament, in which Americans have had a successful run this year, complicates the idea of hometown advantage.`\
+https://nytimes.com/athletic/7145680/2026/03/25/tennis-home-advantage-miami-open-american/
+
+**MLB in 2026: The numbers that define baseball, from 2 to 1.5 billion**\
+`The numbers of baseball help us understand the meaning of this game — its history, its moments, its thrills, its chills. So, listen up! `\
+https://nytimes.com/athletic/7143777/2026/03/25/mlb-2026-season-stats-trends/
+
 **Ukraine Finally Got Battlefield Momentum. Now Comes a Russian Offensive.**\
 `Moscow’s forces are intensifying their attacks in southern Ukraine after Kyiv made rare gains along the front.`\
 https://nytimes.com/2026/03/25/world/europe/ukraine-russia-war-zaporizhzhia.html

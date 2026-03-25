@@ -1,3 +1,7 @@
+**Four Takeaways From Denmark’s Election**\
+`A desire for change and a fractured political landscape left Prime Minister Mette Frederiksen ahead, but with a tough road to securing a new term.`\
+https://nytimes.com/2026/03/25/world/europe/takeaways-denmark-election-frederiksen.html
+
 **In tennis, home advantage is complicated. At the Miami Open, it is no different**\
 `The tournament, in which Americans have had a successful run this year, complicates the idea of hometown advantage.`\
 https://nytimes.com/athletic/7145680/2026/03/25/tennis-home-advantage-miami-open-american/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7116482/2026/03/25/celebrini-bedard-gen-z-vibe-shif
 **Steelers draft big board: Free agency left holes in the offensive line**\
 `With the bulk of free agency in the books, a look at the draft prospects the Steelers could target.`\
 https://nytimes.com/athletic/7143416/2026/03/25/pittsburgh-steelers-draft-big-board-prospects-post-free-agency/
-
-**Analyzing Browns' offensive depth chart: How will the receiver room be filled out?**\
-`Taking an early look at Cleveland's offensive depth chart and the questions that remain as we move closer to the NFL Draft.`\
-https://nytimes.com/athletic/7145052/2026/03/25/browns-offensive-depth-chart-nfl-draft/
 
