@@ -1,3 +1,15 @@
+**‘Dog Day’ Drama: Broadway Playwright Briefly Kept Out of Rehearsals**\
+`A week before opening night, tensions spilled over offstage, with the show’s producing team temporarily prohibiting Stephen Adly Guirgis from entering the theater.`\
+https://nytimes.com/2026/03/25/theater/dog-day-afternoon-broadway-stephen-adly-guirgis.html
+
+**Mikaela Shiffrin clinches Alpine skiing's World Cup overall title for sixth time**\
+`Shiffrin held off Germany's Emma Aicher in the final race of the year, a giant slalom, at the World Cup finals.`\
+https://nytimes.com/athletic/7146206/2026/03/25/mikaela-shiffrin-world-cup-overall-title-lillehammer-olympics/
+
+**Three bold Yankees predictions for the 2026 season**\
+`Here are three bold predictions for how the season could unfold for the Yankees' Ben Rice, Anthony Volpe and Carlos Lagrange. `\
+https://nytimes.com/athletic/7141478/2026/03/25/yankees-predictions-2026-season/
+
 **World Cup fans from five nations facing $15k bonds to enter U.S. – and players may not be exempt**\
 `FIFA is trying to ensure players from Algeria, Cape Verde, Senegal, Tunisia and Ivory Coast do not have to pay bonds to compete in the U.S. `\
 https://nytimes.com/athletic/7138400/2026/03/25/world-cup-fifa-senegal-bonds-algeria-visa/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/25/us/tsa-airport-delays-houston-bush.html
 **Lions GM Brad Holmes takeaways: Shaping the O-line and edge-rusher challenges**\
 `Holmes joined Colton Pouncy's "The Lions Collective" podcast Tuesday to discuss what's happened this offseason.`\
 https://nytimes.com/athletic/7144489/2026/03/25/detroit-lions-free-agency-nfl-draft/
-
-**Kenny Atkinson rips Cavaliers' defensive effort**\
-`The coach's actions in distributing playing time in the win against the Magic, though, didn't match his message`\
-https://nytimes.com/athletic/7145861/2026/03/25/kenny-atkinson-cavaliers-defense-magic/
-
-**Vikings submit bid to host 2028 NFL Draft**\
-`The Vikings are bidding to host the 2028 NFL Draft, and the team intends to pursue the event annually until it is held in Minnesota.`\
-https://nytimes.com/athletic/7144429/2026/03/25/minnesota-vikings-nfl-draft-host-2028/
-
-**Projecting the Jets' 2026-27 opening night lineup: How does Winnipeg bounce back?**\
-`Yes, it's much too early, but a down season for the Jets means plenty of opportunity for young players to stand out down the stretch.`\
-https://nytimes.com/athletic/7143875/2026/03/25/winnipeg-jets-opening-night-lineup-salomonsson-draft-offseason/
 

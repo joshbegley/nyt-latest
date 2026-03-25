@@ -1,3 +1,15 @@
+**‘Dog Day’ Drama: Broadway Playwright Briefly Kept Out of Rehearsals**\
+`A week before opening night, tensions spilled over offstage, with the show’s producing team temporarily prohibiting Stephen Adly Guirgis from entering the theater.`\
+https://nytimes.com/2026/03/25/theater/dog-day-afternoon-broadway-stephen-adly-guirgis.html
+
+**Mikaela Shiffrin clinches Alpine skiing's World Cup overall title for sixth time**\
+`Shiffrin held off Germany's Emma Aicher in the final race of the year, a giant slalom, at the World Cup finals.`\
+https://nytimes.com/athletic/7146206/2026/03/25/mikaela-shiffrin-world-cup-overall-title-lillehammer-olympics/
+
+**Three bold Yankees predictions for the 2026 season**\
+`Here are three bold predictions for how the season could unfold for the Yankees' Ben Rice, Anthony Volpe and Carlos Lagrange. `\
+https://nytimes.com/athletic/7141478/2026/03/25/yankees-predictions-2026-season/
+
 **World Cup fans from five nations facing $15k bonds to enter U.S. – and players may not be exempt**\
 `FIFA is trying to ensure players from Algeria, Cape Verde, Senegal, Tunisia and Ivory Coast do not have to pay bonds to compete in the U.S. `\
 https://nytimes.com/athletic/7138400/2026/03/25/world-cup-fifa-senegal-bonds-algeria-visa/
