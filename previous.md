@@ -1,3 +1,31 @@
+**What Sora’s End Says About OpenAI’s Strategy**\
+`The artificial intelligence start-up has pulled the plug on the video-making tool as it rethinks spending ahead of a possible blockbuster I.P.O.`\
+https://nytimes.com/2026/03/25/business/dealbook/sora-openai-finances-ipo.html
+
+**The numbers that show it's the right time for Liverpool and Mohamed Salah to part ways**\
+`Salah has shown clear signs of slowing down in 2025-26, but only from an extraordinary record-breaking high`\
+https://nytimes.com/athletic/7146152/2026/03/25/mohamed-salah-data-decline-liverpool-departure/
+
+**Commanders 7-round mock draft: Washington lands a top offensive playmaker**\
+`The Commanders need a second weapon in the pass game and a dynamic back. They have a chance to address both needs with one pick.`\
+https://nytimes.com/athletic/7142815/2026/03/25/commanders-mock-draft-jeremiyah-love/
+
+**How to watch Toronto Blue Jays games in 2026: TV updates for reigning AL champs**\
+`Here's how fans in both Canada and the U.S. can watch the full Blue Jays schedule across the 2026 campaign.`\
+https://nytimes.com/athletic/7144227/2026/03/25/toronto-blue-jays-how-to-watch-us-canada-2026/
+
+**The Sweet 16 rivalry renewal no one saw coming**\
+`Iowa-Nebraska is the March meet-up that no one envisioned before Selection Sunday — and no one expected until the matchup was set.`\
+https://nytimes.com/athletic/7145369/2026/03/25/iowa-nebraska-sweet-16-basketball-series/
+
+**Three bold Astros predictions for the 2026 season**\
+`A milestone that surprisingly hasn't happened yet, a Rookie of the Year nod and a trade candidate if things don't go so well.`\
+https://nytimes.com/athletic/7142475/2026/03/25/astros-predictions-yordan-alvarez-jeremy-pena-tatsuya-imai/
+
+**Trump Administration Live Updates: House Committee to Hold Hearing on D.H.S. Shutdown**\
+``\
+https://nytimes.com/live/2026/03/25/us/trump-news
+
 **‘Dog Day’ Drama: Broadway Playwright Briefly Kept Out of Rehearsals**\
 `A week before opening night, tensions spilled over offstage, with the show’s producing team temporarily prohibiting Stephen Adly Guirgis from entering the theater.`\
 https://nytimes.com/2026/03/25/theater/dog-day-afternoon-broadway-stephen-adly-guirgis.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/7146206/2026/03/25/mikaela-shiffrin-world-cup-overa
 **Three bold Yankees predictions for the 2026 season**\
 `Here are three bold predictions for how the season could unfold for the Yankees' Ben Rice, Anthony Volpe and Carlos Lagrange. `\
 https://nytimes.com/athletic/7141478/2026/03/25/yankees-predictions-2026-season/
-
-**World Cup fans from five nations facing $15k bonds to enter U.S. – and players may not be exempt**\
-`FIFA is trying to ensure players from Algeria, Cape Verde, Senegal, Tunisia and Ivory Coast do not have to pay bonds to compete in the U.S. `\
-https://nytimes.com/athletic/7138400/2026/03/25/world-cup-fifa-senegal-bonds-algeria-visa/
-
-**Five Cubs prospects who could open eyes in 2026 from Wiggins to Rojas**\
-`Pete Crow-Armstrong was once a prospect and is now the Cubs' star center fielder. What future prospects could join PCA in the big leagues?`\
-https://nytimes.com/athletic/7144516/2026/03/25/chicago-cubs-breakout-prospects-2026/
-
-**Man Utd set for Republic of Ireland training camp**\
-`United are in a 24-day gap between fixtures due to the international break and their early FA Cup exit.`\
-https://nytimes.com/athletic/7146173/2026/03/25/manchester-united-ireland-training-camp/
-
-**Miami Marlins broadcast guide: TV, streaming additions for the 2026 season**\
-`Regional Marlins broadcasts have a new home in 2026, and national games can be confusing to watch. Here's what fans need to know. `\
-https://nytimes.com/athletic/7144776/2026/03/25/miami-marlins-new-streaming-how-to-watch-2026/
-
-**CJ Abrams will start the season with the Nationals. But will he end it there?**\
-`Officials around the league believe the Nationals will keep Abrams past the trade deadline though he could be a sought-after trade chip.`\
-https://nytimes.com/athletic/7145537/2026/03/25/cj-abrams-washington-nationals-trade/
-
-**Why Are Delays at Houston’s Bush Airport Worse Than at Others?**\
-`Lines were long at airports nationwide Tuesday amid T.S.A. staffing shortages, but passengers at Houston’s Bush Intercontinental Airport waited more than four hours to pass through checkpoints.`\
-https://nytimes.com/2026/03/25/us/tsa-airport-delays-houston-bush.html
-
-**Lions GM Brad Holmes takeaways: Shaping the O-line and edge-rusher challenges**\
-`Holmes joined Colton Pouncy's "The Lions Collective" podcast Tuesday to discuss what's happened this offseason.`\
-https://nytimes.com/athletic/7144489/2026/03/25/detroit-lions-free-agency-nfl-draft/
 
