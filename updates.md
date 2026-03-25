@@ -1,3 +1,11 @@
+**Blackjacks? Sharks? Our ideas for naming an NBA team in Las Vegas**\
+`It would be a shock if a Seattle team wasn't called the SuperSonics, but it's a different story for a (potential) team in Vegas.`\
+https://nytimes.com/athletic/7146893/2026/03/25/nba-expansion-las-vegas-team-name/
+
+**Who Is Mohammad Bagher Ghalibaf?**\
+`A brigadier general and speaker of Parliament, Mr. Ghalibaf, one of the leaders of Iran’s war effort, has emerged as a potential contact point in any peace talks.`\
+https://nytimes.com/2026/03/25/world/middleeast/mohammad-bagher-ghalibaf-iran-speaker-parliament.html
+
 **It’s All About the Pigs, Stupid**\
 `In Denmark’s election, it was local issues, not Greenland or foreign policy, that counted. That hurt the prime minister, Mette Frederiksen.`\
 https://nytimes.com/2026/03/25/world/europe/denmark-elections-pigs-frederiksen.html
