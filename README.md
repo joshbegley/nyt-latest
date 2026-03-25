@@ -1,3 +1,7 @@
+**UNC, basketball coach Hubert Davis split after historic tournament loss: Sources**\
+`In three of the past four seasons, North Carolina, the winningest team in tournament history, failed to advance to the round of 32. `\
+https://nytimes.com/athletic/7136043/2026/03/24/hubert-davis-resigns-unc-basketball-coach-north-carolina/
+
 **LeBron James' partner advising Project B league as it seeks to lure NBA players**\
 `Grady Burnett, one of Project B’s co-founders, says he hasn't spoken to LeBron James, 41, about joining the league.`\
 https://nytimes.com/athletic/7145224/2026/03/24/project-b-nba-player-talent-lure-lebron-maverick-carter/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/24/nyregion/port-authority-laguardia-crash-firefight
 **Florida Democrats Win Special Election in Mar-a-Lago’s District**\
 `Emily Gregory’s victory brought the Democratic surge to President Trump’s backyard, Palm Beach, just weeks after her party won the mayor’s race in Boca Raton, 30 miles south.`\
 https://nytimes.com/2026/03/24/us/politics/florida-special-election-emily-gregory.html
-
-**Here’s What Happened in the War in the Middle East on Tuesday**\
-`The U.S. was said to have sent Iran a peace plan via Pakistan on a day that the Iranians fired a torrent of missiles across the region.`\
-https://nytimes.com/2026/03/24/world/middleeast/iran-war-middle-east-recap-tuesday.html
 
