@@ -1,3 +1,15 @@
+**Florida Restores Access to Low-Cost H.I.V. Medications After Uproar**\
+`A short-term funding bill enacted this week will ensure that more than 12,000 Floridians do not lose access to a program that helps pay for H.I.V. medications.`\
+https://nytimes.com/2026/03/25/health/florida-hiv-meds-assistance-program.html
+
+**Pat Steir, Painter of Luminous ‘Waterfalls,’ Dies at 87**\
+`Spilling paint onto canvas and letting it streak down as it pleased, she often said that her celebrated works painted themselves.`\
+https://nytimes.com/2026/03/25/arts/design/pat-steir-dead.html
+
+**The Man Leading the Green Party Surge in Britain**\
+`Zach Polanski of Britain’s left-populist party talks austerity, Labour and the establishment crackup.`\
+https://nytimes.com/2026/03/25/opinion/zach-polanski-green-party-britain.html
+
 **With Their Voter Bill Stymied, G.O.P. Leaders Ponder a Plan B**\
 `Republicans are eying a last-ditch procedural maneuver to overcome united Democratic opposition, but the chances for success are slim.`\
 https://nytimes.com/2026/03/25/us/politics/republicans-voter-bill-plan-b.html
@@ -25,12 +37,4 @@ https://nytimes.com/athletic/7147119/2026/03/25/brad-stevens-unc-coaching-search
 **E.P.A. Waives Smog Rules on Summer Gasoline in Bid to Ease Prices**\
 `The moves will allow expanded sales of a higher-ethanol blend known as E15, which is often restricted in the summer.`\
 https://nytimes.com/2026/03/25/climate/epa-waive-smog-gas-ethanol.html
-
-**Tush push staying as NFL has no plans to discuss play at owners meeting**\
-`When NFL owners gather next week, they will deliberate over different rule proposals, but banning the tush push will not rank among them.`\
-https://nytimes.com/athletic/7146981/2026/03/25/tush-push-remains-nfl-league-meetings/
-
-**Is There Anything I Can Do to Shorten My T.S.A. Wait Time?**\
-`With lines stretching for hours and passengers missing flights, fliers are desperate to ease the wait at security. There are some steps you can take, but no guarantees.`\
-https://nytimes.com/2026/03/25/travel/tsa-wait-time-airport-advice.html
 
