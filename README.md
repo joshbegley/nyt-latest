@@ -1,3 +1,7 @@
+**From Norwich to Barcelona: Ajay Tavares, the England Under-17 winger at La Masia**\
+`It is not exactly a path well travelled, but this move from East Anglia reflects an established youth policy at the Catalan club`\
+https://nytimes.com/athletic/7146817/2026/03/26/ajay-tavares-norwich-barcelona-england-la-masia/
+
 **Rescuers Race to Save a 32-Foot Humpback Whale Stranded Off a German Beach**\
 `The whale had been stuck for days in shallow waters of the Baltic Sea, as rescuers prepared to make another attempt to free it.`\
 https://nytimes.com/2026/03/26/world/europe/stranded-whale-germany-baltic.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/25/pageoneplus/quote-of-the-day-have-a-nice-flight-d
 **Trump Calls for Law Cracking Down on Crime and ‘Rogue Judges’**\
 `Ahead of the midterms, President Trump told a Republican gathering that he wants to go after repeat offenders and “rogue judges that are criminals.”`\
 https://nytimes.com/2026/03/25/us/politics/trump-judges-rogue-law.html
-
-**Chip Taylor, Writer of ‘Wild Thing’ and Other Classic Rock Hits, Dies at 86**\
-`Mr. Taylor, the younger brother of the actor Jon Voight, found success as a songwriter for the likes of Janis Joplin and Juice Newton.`\
-https://nytimes.com/2026/03/25/arts/music/chip-taylor-dead.html
 
