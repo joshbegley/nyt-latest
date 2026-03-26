@@ -1,3 +1,15 @@
+**How much do players get paid? Colleges don't want you to know — but you should**\
+`Out of 70 schools The Athletic requested payrolls and budgets from, only one provided the information.`\
+https://nytimes.com/athletic/7144472/2026/03/26/college-players-athletes-salaries-payments/
+
+**Is hating Duke falling out of style in college basketball?**\
+`Many of the old reasons to hate Duke aren’t as prevalent anymore, from the titles to the coach to the players fans grew to despise.`\
+https://nytimes.com/athletic/7146561/2026/03/26/duke-blue-devils-mens-basketball-hate-villains/
+
+**Here’s to the old Boston Garden scoreboard, as it rests in pieces**\
+`It's unclear what to do, if anything, about the scoreboard that was present for many of Boston's greatest sports moments and so much more.`\
+https://nytimes.com/athletic/7139845/2026/03/26/celtics-bruins-scoreboard-old-boston-garden/
+
 **India Appears Sidelined as Pakistan Tries to Play Peacemaker**\
 `Hours before a call between President Trump and India’s prime minister, American officials urged India to focus on shared goals and ignore differences.`\
 https://nytimes.com/2026/03/26/world/asia/india-pakistan-iran-trump-modi.html
