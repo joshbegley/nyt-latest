@@ -1,40 +1,40 @@
-**Oil Prices Go Higher and Global Stocks Fall**\
-`Investors continued to parse conflicting signals on whether the war in the Middle East was nearing de-escalation.`\
-https://nytimes.com/2026/03/26/business/oil-stock-gas-prices-iran.html
+**What’s Your Star Sign? The Ancients Could Offer You Some Insight.**\
+`Long before horoscope apps, the foundations of today’s multibillion-dollar astrology industry were laid in Babylonia, Egypt and the classical world.`\
+https://nytimes.com/2026/03/26/arts/design/zodiac-origins-exhibition-berlin.html
 
-**How much do players get paid? Colleges don't want you to know — but you should**\
-`Out of 70 schools The Athletic requested payrolls and budgets from, only one provided the information.`\
-https://nytimes.com/athletic/7144472/2026/03/26/college-players-athletes-salaries-payments/
+**Have You Seen the ‘Gen Z Pout’?**\
+`Their lips are pursed. Their eyes gaze into the middle distance. Is this a real thing?`\
+https://nytimes.com/2026/03/26/style/gen-z-pout-millennials.html
 
-**Is hating Duke falling out of style in college basketball?**\
-`Many of the old reasons to hate Duke aren’t as prevalent anymore, from the titles to the coach to the players fans grew to despise.`\
-https://nytimes.com/athletic/7146561/2026/03/26/duke-blue-devils-mens-basketball-hate-villains/
+**‘Lethality’ Used to Be a Pentagon Buzzword. Now It’s a Worldview.**\
+`It’s blunt instead of vague, brash instead of evasive, bold instead of cautious. And yet the word obfuscates as much as old defense jargon.`\
+https://nytimes.com/2026/03/26/magazine/lethality-us-military-pete-hegseth.html
 
-**Here’s to the old Boston Garden scoreboard, as it rests in pieces**\
-`It's unclear what to do, if anything, about the scoreboard that was present for many of Boston's greatest sports moments and so much more.`\
-https://nytimes.com/athletic/7139845/2026/03/26/celtics-bruins-scoreboard-old-boston-garden/
+**How Far Will Trump Go in Iran?**\
+`I asked an Iran hawk what victory looks like now.`\
+https://nytimes.com/2026/03/26/opinion/interesting-times-podcast-mark-dubowitz.html
 
-**India Appears Sidelined as Pakistan Tries to Play Peacemaker**\
-`Hours before a call between President Trump and India’s prime minister, American officials urged India to focus on shared goals and ignore differences.`\
-https://nytimes.com/2026/03/26/world/asia/india-pakistan-iran-trump-modi.html
+**Do You Believe in Magic? This Exhibit Is for You.**\
+`A show at the Library for the Performing Arts examines the golden age of magic in New York City, from the 1870s to just before World War II.`\
+https://nytimes.com/2026/03/26/nyregion/magic-exhibition-library-for-performing-arts.html
 
-**Men's March Madness Thursday guide: Schedule, preview, TV info for Sweet 16 games**\
-`Thursday's Sweet 16 slate offers something for everyone. Here's what to know and how to watch each game.`\
-https://nytimes.com/athletic/7144888/2026/03/26/march-madness-sweet-16-thursday-arizona-arkansas-2026/
+**Saving Hermit Crabs by Breeding Them in the Suburbs**\
+`Often treated as throwaway pets, hermit crabs can live 50 years. Mary Akers, a self-taught expert, wants people to appreciate them as much as she does.`\
+https://nytimes.com/2026/03/26/magazine/saving-hermit-crabs-by-breeding-them-in-the-suburbs.html
 
-**Jury Rules Against Meta and YouTube for Addictive Features**\
-`Meta and YouTube must pay a plaintiff a combined $6 million after a jury found that they knowingly designed features that were addictive and harmful for a young user.`\
-https://nytimes.com/video/us/100000010802350/social-media-trial-meta-youtube.html
+**‘Love Story’ Is Actually a Horror Story**\
+`The nightmare began when she said, “I do.”`\
+https://nytimes.com/2026/03/26/podcasts/love-story-is-actually-a-horror-story.html
 
-**Here’s the latest.**\
-`By Francesca Regalado, Isabel Kershner, Eric Schmitt and Euan Ward`\
-https://nytimes.com/live/2026/03/26/world/iran-war-israel-trump-oil/heres-the-latest
+**Touching the Divine Through a Storied Rockefeller Art Trove**\
+`Our critic offers a guide to 70 years of great devotional sculptures in the Asia Society collection — including some that he once helped install.`\
+https://nytimes.com/2026/03/26/arts/design/asia-society-rockefeller-collection-buddhas.html
 
-**Iran War Live Updates: Israel Launches New Strikes on Iran**\
-`The United States and Iran have struggled to begin negotiations to end the war, after nearly four weeks of fighting. There were more drone and missile attacks on U.S. allies in the Persian Gulf on Thursday.`\
-https://nytimes.com/live/2026/03/26/world/iran-war-israel-trump-oil
+**What Is Carole Radziwill Thinking?**\
+`Her deceased loved ones are characters on a hit TV show, her name is in the Epstein files and she’s returning to “Real Housewives.” What does she make of it all?`\
+https://nytimes.com/2026/03/26/style/carole-radziwill-rhony-love-story-epstein-files.html
 
-**Out the Door**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2026/03/26/learning/out-the-door.html
+**When a Not-So-Dark Knight and His Sidekick Saved a Wacky Gotham**\
+`Joel Schumacher apologized for “Batman & Robin,” his corny 1997 superhero movie, but thanks to its ice puns and bat nipples, it’s since become an accidental parody worth howling at.`\
+https://nytimes.com/2026/03/26/movies/batman-and-robin-clooney-thurman-schumacher.html
 
