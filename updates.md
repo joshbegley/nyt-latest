@@ -1,3 +1,7 @@
+**City's Rodri says he 'could not turn down' potential Real Madrid transfer**\
+`The 29-year-old central midfielder also confirmed that his contract at City would expire in 2027.`\
+https://nytimes.com/athletic/7148545/2026/03/26/rodri-transfer-real-madrid-manchester-city/
+
 **Storms Could Bring Tornadoes, Hail and Heavy Rain to the Midwest on Thursday**\
 `Forecasters were watching an area just south of the Great Lakes, where storms were expected to move through on Thursday afternoon and evening.`\
 https://nytimes.com/2026/03/26/weather/illinois-indiana-ohio-tornado-storm-chicago.html

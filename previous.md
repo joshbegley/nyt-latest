@@ -1,3 +1,7 @@
+**City's Rodri says he 'could not turn down' potential Real Madrid transfer**\
+`The 29-year-old central midfielder also confirmed that his contract at City would expire in 2027.`\
+https://nytimes.com/athletic/7148545/2026/03/26/rodri-transfer-real-madrid-manchester-city/
+
 **Storms Could Bring Tornadoes, Hail and Heavy Rain to the Midwest on Thursday**\
 `Forecasters were watching an area just south of the Great Lakes, where storms were expected to move through on Thursday afternoon and evening.`\
 https://nytimes.com/2026/03/26/weather/illinois-indiana-ohio-tornado-storm-chicago.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7147275/2026/03/26/carolina-panthers-nfl-draft-big-
 **Sabres' blunders, Timmins' solid return and more from OT loss to Bruins: 3 thoughts**\
 `Though Buffalo's special teams had an encouraging night, the Sabres weren't at their best and fumbled a chance at two points in overtime.`\
 https://nytimes.com/athletic/7148229/2026/03/26/sabres-overtime-loss-dahlin-timmins-return-bruins/
-
-**Is the tank still on? How 2 straight wins affect the Leafs' draft lottery odds**\
-`With the destination of their first-round pick in flux, two regulation wins mean the draft lottery becomes more important for the Leafs.`\
-https://nytimes.com/athletic/7147992/2026/03/26/maple-leafs-nhl-draft-lottery-rangers-blues/
 
