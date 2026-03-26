@@ -1,3 +1,23 @@
+**How to watch Illinois vs. Houston men's basketball: Sweet 16 Time, TV, streaming**\
+`Find out how to watch the Illinois Fighting Illini play the Houston Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7149929/2026/03/26/illinois-vs-houston-stream-how-to-watch-march-26/
+
+**How to watch Arkansas vs. Arizona men's basketball: Sweet 16 Time, TV, streaming**\
+`Find out how to watch the Arkansas Razorbacks play the Arizona Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7149922/2026/03/26/arkansas-vs-arizona-stream-how-to-watch-march-26/
+
+**For Sperm Whales, Having a Baby Is a Group Effort**\
+`Researchers filmed a sperm whale giving birth in the wild, an event that is rarely documented. Project CETI, a whale research group, observed 11 sperm whales come together to assist the birth off the coast of Dominica in the Caribbean in July 2023.`\
+https://nytimes.com/video/climate/100000010799533/sperm-whale-birth.html
+
+**7 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2026/03/26/books/review/new-recommended-books.html
+
+**Judge Questions Why U.S. Is Blocking Funding for Maduro’s Lawyers**\
+`The U.S. government has blocked Venezuela from paying for its former leader’s defense lawyers. In a hearing, a judge said repeatedly that the former president’s right to his own defense was “paramount.”`\
+https://nytimes.com/2026/03/26/nyregion/maduro-venezuela-court-manhattan.html
+
 **How to watch Kings vs. Canucks: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Kings play the Vancouver Canucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7149889/2026/03/26/kings-vs-canucks-stream-how-to-watch-march-26/
