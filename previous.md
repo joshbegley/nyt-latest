@@ -1,6 +1,30 @@
+**Sardi’s Sells Its Name and Takes a Brief Intermission**\
+`The longtime owner of the restaurant, a Theater District mainstay, is bowing out, and the Shubert Organization plans to reopen after a renovation, with the celebrity caricatures intact.`\
+https://nytimes.com/2026/03/26/nyregion/sardis-nyc-sold-shubert.html
+
+**High School Athlete Is Shot Dead While Playing With Friends**\
+`A boy, the son of a New York police officer, may have been playing with a gun when it accidentally went off, killing Ka’Mardre Coleman, 16, according to prosecutors and the boy’s lawyer.`\
+https://nytimes.com/2026/03/26/nyregion/teen-shot-killed-nyc.html
+
+**How Young Is Too Young to Get a Smartphone?**\
+`A recent study found that having a smartphone before the age of 12 could carry health risks. Are kids getting the devices when they’re too young?`\
+https://nytimes.com/2026/03/26/learning/how-young-is-too-young-to-get-a-smartphone.html
+
+**Science Practice | A Study on the Health Effects of a Cellphone Before Age 12**\
+`Researchers found higher rates of depression, poor sleep and obesity among tweens who had early access to a cellphone.`\
+https://nytimes.com/2026/03/26/learning/science-practice-a-study-on-the-health-effects-of-a-cellphone-before-age-12.html
+
+**Senators Haggle Over Homeland Security Funding as Airport Lines Grow**\
+`Bipartisan talks continued, but a deal to reopen the department remained elusive ahead of a major spring travel weekend, and as lawmakers looked toward their own two-week break.`\
+https://nytimes.com/2026/03/26/us/politics/congress-senators-homeland-security-funding.html
+
+**The Briefing: Brazil 1 France 2 - Magical Mbappe, Vinicius Junior's response, and hello cooling breaks**\
+`The Athletic's writers analyse Thursday's friendly between two World Cup heavyweights in Boston`\
+https://nytimes.com/athletic/7140938/2026/03/26/brazil-france-friendly-analysis-boston-mbappe/
+
 **Trump’s Signature to Be Added to U.S. Dollars**\
 `President Trump is set to be the first sitting president to have his signature appear on America’s currency.`\
-https://nytimes.com/2026/03/26/us/politics/trumps-signature-to-be-added-to-us-dollars.html
+https://nytimes.com/2026/03/26/us/politics/trump-signature-us-dollars.html
 
 **Wall St. Bonuses Soared to $49.2 Billion. New York Hoped for Even More.**\
 `The city was counting on a 15 percent rise in bonuses to produce tax revenues to fill its budget gap. The actual increase was 9 percent, the state comptroller said.`\
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7150210/2026/03/26/baltimore-orioles-tyler-oneill-o
 **Italy 2 Northern Ireland 0: Sandro Tonali proves he is World Cup worthy, but are his team?**\
 `Analysing the major talking points from Thursday's World Cup playoff semi-final in Bergamo`\
 https://nytimes.com/athletic/7136298/2026/03/26/italy-northern-ireland-world-cup-playoff-analysis/
-
-**G.O.P. Senator Weighs Forcing Congress to Vote to Authorize the Iran War**\
-`Senator Lisa Murkowski of Alaska is drafting a formal authorization for the use of military force in Iran, seeking to put some parameters around the operation as the Trump administration has boxed out Congress.`\
-https://nytimes.com/2026/03/26/us/senator-murkowski-iran-war-vote-congress.html
-
-**USMNT's last potential World Cup group opponent down to Turkey or Kosovo**\
-`It'll be one of two teams that completes the U.S.'s group at the 2026 World Cup.`\
-https://nytimes.com/athletic/7149978/2026/03/26/usmnt-world-cup-group-opponents-playoff-turkey-kosovo/
-
-**Trump Gives Iran More Time to Reopen the Strait of Hormuz**\
-`Also, transgender athletes were barred from women’s Olympic events. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2026/03/26/briefing/trump-strait-of-hormuz-catholic-churches.html
-
-**Iran Acts as Gatekeeper of Hormuz as War Drags On**\
-`Iran has allowed a small number of vessels to pass, but that won’t alleviate pressure or risk for the shipping industry and energy markets any time soon.`\
-https://nytimes.com/2026/03/26/business/iran-war-ships-strait-of-hormuz.html
-
-**Train tickets between Boston and Gillette Stadium to almost quadruple in cost during World Cup**\
-`According to sources familiar with the planning, individuals will be charged around or even more than $75 per-person for a return ticket.`\
-https://nytimes.com/athletic/7150121/2026/03/26/boston-gillette-stadium-train-tickets-world-cup/
-
-**Rubio Says Allies Should Help Secure Strait by Iran for Oil and Gas Ships**\
-`The secretary of state said the United States and Iran were passing messages to each other as he headed to France for a diplomatic meeting of the Group of 7 nations.`\
-https://nytimes.com/2026/03/26/world/middleeast/rubio-strait-of-hormuz-iran-oil.html
 

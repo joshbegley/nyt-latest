@@ -18,7 +18,7 @@ https://nytimes.com/2026/03/26/learning/science-practice-a-study-on-the-health-e
 `Bipartisan talks continued, but a deal to reopen the department remained elusive ahead of a major spring travel weekend, and as lawmakers looked toward their own two-week break.`\
 https://nytimes.com/2026/03/26/us/politics/congress-senators-homeland-security-funding.html
 
-**The Briefing: Brazil 1 France 2 - Magical Mbappe, Vinicius Junior's response, and hello cooling breaks**\
+**The Briefing: Brazil 1 France 2 – Magical Mbappe, Vinicius Junior's response, and hello cooling breaks**\
 `The Athletic's writers analyse Thursday's friendly between two World Cup heavyweights in Boston`\
 https://nytimes.com/athletic/7140938/2026/03/26/brazil-france-friendly-analysis-boston-mbappe/
 
