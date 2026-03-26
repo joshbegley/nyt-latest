@@ -1,3 +1,7 @@
+**Glass Threads Spun From a Volcano’s Bubbly Magma**\
+`A volcanic formation known as Pele’s hair is produced when air-filled magma is stretched, according to a new study by a team of scientists and glass artists.`\
+https://nytimes.com/2026/03/26/science/volcanoes-peles-hair-science.html
+
 **Women’s Olympic events to be limited to biological females, IOC says**\
 `Athletes will have to undergo a one-time screening for the SRY gene, found on the Y chromosome, the IOC said Thursday.`\
 https://nytimes.com/athletic/7148904/2026/03/26/olympics-transgender-ban-women/
@@ -34,8 +38,4 @@ https://nytimes.com/2026/03/26/world/middleeast/iran-missile-strikes-abu-dhabi.h
 **The Kennedy Center Is Giving Bill Maher the Mark Twain Prize**\
 `The annual award that recognizes merit in humor is going to the satirist and talk show host who has been critical of President Trump and political correctness.`\
 https://nytimes.com/2026/03/26/arts/television/bill-maher-mark-twain-prize-kennedy-center.html
-
-**Sidelined from tennis by injury, Arthur Fils put in the work to return a contender**\
-`The 21-year-old had emerged as a force at the top of the sport before a back injury last year. In his time away, he souped himself up.`\
-https://nytimes.com/athletic/7110180/2026/03/26/tennis-arthur-fils-injury-comeback/
 
