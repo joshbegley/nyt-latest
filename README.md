@@ -1,3 +1,7 @@
+**What Teenagers Are Saying About How Pets Have Improved Their Lives**\
+`Students reflect on research that shows pets keep you healthier and share the profound bonds they’ve made with their animal companions.`\
+https://nytimes.com/2026/03/26/learning/what-teenagers-are-saying-about-how-pets-have-improved-their-lives.html
+
 **Hungarian Journalist Faces Spy Charges After Reports on Election Meddling**\
 `The government of Prime Minister Viktor Orban has pursued an intensifying campaign against critics in a tough race before April elections.`\
 https://nytimes.com/2026/03/26/world/europe/hungary-journalist-election-meddling-espionage.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/26/t-magazine/portable-rechargeable-lamps.html
 **Will Wade to LSU creates college sports’ most unlikable trio — but there are levels**\
 `My word, what a trio. They need a nickname. Someone texted Unholy Trinity. Not bad. I threw out Triple Biotic. Let’s work on it.`\
 https://nytimes.com/athletic/7149438/2026/03/26/lsu-coaches-will-wade-kim-mulkey-lane-kiffin/
-
-**How many 2026 World Cup tickets are actually still available? A FIFA release offers clues**\
-`FIFA says it received ‘over 500 million ticket requests’ but only sold ‘over 1 million tickets.’ Huh? Here’s what that likely means`\
-https://nytimes.com/athletic/7149268/2026/03/26/fifa-world-cup-ticket-availability-last-sales-window/
 
