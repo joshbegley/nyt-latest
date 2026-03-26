@@ -1,3 +1,15 @@
+**Seeking a Sounding Board? Beware the Eager-to-Please Chatbot.**\
+`A new study of popular AI models shows that their feedback on social situations is far from impartial.`\
+https://nytimes.com/2026/03/26/well/mind/ai-chatbots-relationships.html
+
+**Scientists Filmed a Whale Birth. The Surprise: Mom Had Many Helpers.**\
+`The episode, involving a group of sperm whales, adds to evidence that humans aren’t the only species that gets some form of assistance during and after delivery.`\
+https://nytimes.com/2026/03/26/climate/sperm-whale-birth-assistance.html
+
+**Oscars Will Move to a Venue Outside of Hollywood**\
+`The event will be held in downtown Los Angeles starting in 2029 as part of a deal between the Academy and AEG, a developer of entertainment venues.`\
+https://nytimes.com/2026/03/26/business/media/academy-awards-moving-downtown-los-angeles.html
+
 **NFL Newsletter: Lavonte David's remarkable run**\
 `Two offseason questions that might be answered soon, plus one of the greatest-ever Buccaneers just retired and we might get replacement refs`\
 https://nytimes.com/athletic/7149599/2026/03/26/lavonte-davids-remarkable-run-plus-questions-for-maxx-crosby-puka-nacua-and-replacement-refs/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/7149252/2026/03/26/tom-brady-nfl-return-inquiry/
 **Trump Administration Begins Investigations Into Three Medical Schools**\
 `The Justice Department’s demands for admissions-related data from Stanford, Ohio State and the University of California, San Diego, represent a flex of federal power.`\
 https://nytimes.com/2026/03/26/us/politics/trump-medical-schools-civil-rights.html
-
-**Why is Max Verstappen allowed to throw F1 reporters out of his media session?**\
-`On Thursday, Verstappen refused to allow his press session to begin until The Guardian’s F1 correspondent left Red Bull’s hospitality unit`\
-https://nytimes.com/athletic/7149452/2026/03/26/f1-media-max-verstappen-reporter-japan/
-
-**Arsenal captain Little signs new one-year contract**\
-`The 35-year-old’s deal was due to expire at the end of the season.`\
-https://nytimes.com/athletic/7149372/2026/03/26/arsenal-kim-little-contract-new/
-
-**How to watch Capitals vs. Mammoth: Time, TV, streaming**\
-`Find out how to watch the Washington Capitals play the Utah Mammoth, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7149614/2026/03/26/capitals-vs-mammoth-stream-how-to-watch-march-26/
 
