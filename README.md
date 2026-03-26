@@ -1,3 +1,27 @@
+**How to watch Twins vs. Orioles: Time, TV, streaming for March 26**\
+`Find out how to watch the Minnesota Twins play the Baltimore Orioles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7148621/2026/03/26/twins-vs-orioles-stream-how-to-watch-march-26/
+
+**How to watch Pirates vs. Mets: Time, TV, streaming for March 26**\
+`Find out how to watch the Pittsburgh Pirates play the New York Mets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7148619/2026/03/26/pirates-vs-mets-stream-how-to-watch-march-26/
+
+**How to watch Nationals vs. Cubs: Time, TV, streaming for March 26**\
+`Find out how to watch the Washington Nationals play the Chicago Cubs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7148617/2026/03/26/nationals-vs-cubs-stream-how-to-watch-march-26/
+
+**How to watch White Sox vs. Brewers: Time, TV, streaming for March 26**\
+`Find out how to watch the Chicago White Sox play the Milwaukee Brewers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7148611/2026/03/26/white-sox-vs-brewers-stream-how-to-watch-march-26/
+
+**Commander Targeted by Israel Led Iran’s Blockade of Strait of Hormuz**\
+`Israel said it killed the naval commander, Alireza Tangsiri, in an airstrike on Thursday morning. Iran has not commented.`\
+https://nytimes.com/2026/03/26/world/middleeast/alireza-tangsiri.html
+
+**‘Love Story’ Is Actually A Horror Story**\
+`Wesley Morris and Sasha Weiss, the culture editor of The New York Times Magazine, on FX’s streaming hit “Love Story: John F. Kennedy Jr. & Carolyn Bessette.”`\
+https://nytimes.com/video/podcasts/100000010799670/love-story-is-actually-a-horror-story.html
+
 **Debate season: Wemby's MVP case, Giannis vs. the Bucks and the 65-game rule**\
 `Our columnist says he was wrong about the 65-game rule, though Adam Silver insists that it is working.`\
 https://nytimes.com/athletic/7148455/2026/03/26/victor-wembanyama-mvp-giannis-bucks-65-game-rule-nba/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7141592/2026/03/26/detroit-lions-big-board-nfl-draf
 **What I’m hearing as the Twins prepare to open the regular season**\
 `Josh Bell avoided playing golf this offseason in a bid to keep his baseball swing dialed in.`\
 https://nytimes.com/athletic/7147601/2026/03/26/twins-opening-day-james-outman-cody-lawyerson/
-
-**CJ Carr ready for bigger role in first spring as Notre Dame's clear-cut starting QB**\
-`CJ Carr wants to use spring practice to test drive new ways to beat defenses.`\
-https://nytimes.com/athletic/7147433/2026/03/26/cj-carr-notre-dame-spring-quarterback/
-
-**Hofer shoulders a run of starts — and keeps rising to the moment**\
-`Since the Olympics, Joel Hofer is 6-0-2 with a league-leading 1.34 goals-against average, .959 save percentage and two shutouts.`\
-https://nytimes.com/athletic/7145618/2026/03/26/joel-hofer-blues-goalie-shutout-starts-montgomery/
-
-**Q&A with Cubs president Jed Hoyer (Part 2): Young stars, stability and 10-year anniversary**\
-`Potential free agents exist but also young players under contract. "We're going to look different next year, but just enjoy it," Hoyer said.`\
-https://nytimes.com/athletic/7143639/2026/03/26/chicago-cubs-president-jed-hoyer-interview-part-2-news/
-
-**No. 1 task for Michigan's new offensive staff? Unlock Bryce Underwood's potential**\
-`At a time when many top programs are signing ready-made quarterbacks from the transfer portal, Michigan is committed to development.`\
-https://nytimes.com/athletic/7147568/2026/03/26/michigan-football-bryce-underwood-jason-beck/
-
-**Draymond Green offers passionate answer to the Victor Wembanyama MVP question**\
-`Green delivered passionate remarks about Wembanyama's MVP case, stressing the importance of defense to the argument.`\
-https://nytimes.com/athletic/7148465/2026/03/26/draymond-green-victor-wembanyama-mvp-question/
-
-**Giants' shortcomings look awfully familiar in season-opening loss to Yankees**\
-`After a positive and productive spring training, the Giants looked more like the team that struggled last season in Wednesday's 7-0 loss.`\
-https://nytimes.com/athletic/7148353/2026/03/26/giants-season-opening-loss-yankees/
 
