@@ -1,3 +1,11 @@
+**‘Love Story’ Is Actually A Horror Story**\
+`Wesley Morris and Sasha Weiss, the culture editor of The New York Times Magazine, on FX’s streaming hit “Love Story: John F. Kennedy Jr. & Carolyn Bessette.”`\
+https://nytimes.com/video/podcasts/100000010799675/love-story-is-actually-a-horror-story.html
+
+**Billy Donovan doesn't deny interest in UNC job but says focus is on Bulls**\
+`Donovan was the architect of the University of Florida dynasty, leading the Gators to consecutive titles in 2006 and 2007.`\
+https://nytimes.com/athletic/7147755/2026/03/25/billy-donovan-unc-basketball-coaching-search-north-carolina/
+
 **Padres pitcher Yu Darvish agrees to go on restricted list**\
 `The move could create enough flexibility for San Diego to pursue Lucas Giolito, the top remaining starter in free agency.`\
 https://nytimes.com/athletic/7147685/2026/03/25/yu-darvish-padres-restricted-list/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/25/us/politics/usps-surcharge-prices-fuel-iran.html
 **Buster Posey explains Giants' Opening Day lineup, choosing Jared Oliva over Luis Matos**\
 `"Everybody's behind J.O. and thrilled that he's on the team," said Posey, who went with the speedy outfielder over a former top prospect.`\
 https://nytimes.com/athletic/7147575/2026/03/25/sf-giants-opening-day-lineup-buster-posey-jared-oliva-luis-matos/
-
-**Women’s Champions League: 18 goals, OL Lyonnes slump, Barcelona and Arsenal shift into next gear**\
-`The Athletic staff breaks down key moments from the first leg of the Women's Champions League quarter-finals`\
-https://nytimes.com/athletic/7147567/2026/03/25/womens-champions-league-quarterfinal-goals/
-
-**Day Care Worker Stole Millions for Trips and W.W.E. Tickets, U.S. Says**\
-`Murielle Misczak was arrested Wednesday morning and is accused of using the money on wrestling tickets, luxury vacations and food deliveries.`\
-https://nytimes.com/2026/03/25/nyregion/daycare-brooklyn-theft-wwe.html
 

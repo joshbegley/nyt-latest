@@ -1,3 +1,11 @@
+**‘Love Story’ Is Actually A Horror Story**\
+`Wesley Morris and Sasha Weiss, the culture editor of The New York Times Magazine, on FX’s streaming hit “Love Story: John F. Kennedy Jr. & Carolyn Bessette.”`\
+https://nytimes.com/video/podcasts/100000010799675/love-story-is-actually-a-horror-story.html
+
+**Billy Donovan doesn't deny interest in UNC job but says focus is on Bulls**\
+`Donovan was the architect of the University of Florida dynasty, leading the Gators to consecutive titles in 2006 and 2007.`\
+https://nytimes.com/athletic/7147755/2026/03/25/billy-donovan-unc-basketball-coaching-search-north-carolina/
+
 **Padres pitcher Yu Darvish agrees to go on restricted list**\
 `The move could create enough flexibility for San Diego to pursue Lucas Giolito, the top remaining starter in free agency.`\
 https://nytimes.com/athletic/7147685/2026/03/25/yu-darvish-padres-restricted-list/
