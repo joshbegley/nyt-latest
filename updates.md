@@ -1,3 +1,11 @@
+**8 Days After Sex Abuse Revelations, California Renames Chavez Holiday**\
+`Gov. Gavin Newsom signed legislation to rename Cesar Chavez Day as “Farmworkers Day,” moving quickly before the March 31 holiday.`\
+https://nytimes.com/2026/03/26/us/california-cesar-chavez-day-rename.html
+
+**FKA twigs Says in Suit That Shia LaBeouf Had Her Sign ‘Illegal’ NDA**\
+`The suit said the nondisclosure agreement that was part of her court settlement with Mr. LaBeouf, her former boyfriend, effectively silenced her. His lawyer disputes that.`\
+https://nytimes.com/2026/03/26/arts/music/fka-twigs-lawsuit-shia-labeouf-nda.html
+
 **Sheriff in California Seizes More Ballots, Ignoring State Attorney General**\
 `Chad Bianco, the Riverside County sheriff and a Republican running for governor, is examining votes from 2025 after unsubstantiated claims of fraud.`\
 https://nytimes.com/2026/03/26/us/politics/california-sheriff-ballots-attorney-general.html
