@@ -1,3 +1,7 @@
+**Under Carney, Canada Finally Hits NATO’s 2% Spending Target**\
+`Trump and other American presidents have criticized Canada for failing to meet the alliance’s military spending minimum of 2 percent of gross domestic product.`\
+https://nytimes.com/2026/03/26/world/canada/carney-canada-nato-spending.html
+
 **‘Public Charge’ Review: The World Is Messy. Being a Force for Good Is, Too.**\
 `A new play at the Public Theater written by Michael J. Chepiga and the former ambassador Julissa Reynoso is a diplomatic memoir of sorts, and a meditation on loving one’s country.`\
 https://nytimes.com/2026/03/26/theater/public-charge-review-julissa-reynoso.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/26/us/south-dakota-voting-proof-of-citizenship.html
 **The Trail of Clues Leading to Iran That Binance Missed**\
 `The world’s largest crypto exchange is under fire after investigators found accounts moving $1.7 billion to Iranian entities. Clues about those accounts were in plain sight for over a year.`\
 https://nytimes.com/2026/03/26/technology/binance-iran-us-sanctions.html
-
-**Local Opposition Is Slowing A.I. Data Centers. Wall Street Has Noticed.**\
-`Tech companies are running into resistance from neighbors and may not be able to build at the pace they promised investors.`\
-https://nytimes.com/2026/03/26/business/economy/ai-data-centers-construction-local-opposition.html
 

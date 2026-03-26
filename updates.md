@@ -1,3 +1,7 @@
+**Under Carney, Canada Finally Hits NATO’s 2% Spending Target**\
+`Trump and other American presidents have criticized Canada for failing to meet the alliance’s military spending minimum of 2 percent of gross domestic product.`\
+https://nytimes.com/2026/03/26/world/canada/carney-canada-nato-spending.html
+
 **‘Public Charge’ Review: The World Is Messy. Being a Force for Good Is, Too.**\
 `A new play at the Public Theater written by Michael J. Chepiga and the former ambassador Julissa Reynoso is a diplomatic memoir of sorts, and a meditation on loving one’s country.`\
 https://nytimes.com/2026/03/26/theater/public-charge-review-julissa-reynoso.html
