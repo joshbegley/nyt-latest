@@ -1,3 +1,7 @@
+**F1 energy rules tweaked for Japanese Grand Prix in bid to improve qualifying**\
+`Drivers and teams pushed back, so the 2026 regs have been tweaked at Suzuka to keep qualifying a flat-out challenge.`\
+https://nytimes.com/athletic/7147979/2026/03/25/f1-rules-change-qualifying-japanese-grand-prix/
+
 **Formal Agreement**\
 `Is Alex Murphy practicing reverse psychology on us?`\
 https://nytimes.com/2026/03/25/crosswords/daily-puzzle-2026-03-26.html
