@@ -1,3 +1,11 @@
+**Chocolate Bunnies With Some Extra Personality**\
+`Plus: a Korean fragrance brand in New York, a wellness retreat on the Portuguese coast and more recommendations from T Magazine.`\
+https://nytimes.com/2026/03/26/t-magazine/chocolate-bunnies-easter.html
+
+**Russian Lawmakers Go to U.S. for First Time Since Invasion of Ukraine**\
+`The State Department had to lift sanctions on Russian lawmakers invited by a Kremlin-friendly member of Congress.`\
+https://nytimes.com/2026/03/26/world/europe/russia-us-talks-ukraine-sanctions.html
+
 **Europe Heads for Another Energy Shock in a Vulnerable State**\
 `The region’s stores of natural gas are running at the lowest level in years, and filling them up is increasingly daunting as the U.S.-led war in Iran pushes up prices.`\
 https://nytimes.com/2026/03/26/business/europe-natural-gas-storage-iran-war.html
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/7148837/2026/03/26/nfl-referees-association-cba-neg
 **Zelensky Says U.S. Is Conditioning Security Guarantees on Surrender of Donbas**\
 `President Volodymyr Zelensky of Ukraine said that President Trump “still chooses a strategy of putting more pressure on the Ukrainian side.”`\
 https://nytimes.com/2026/03/26/world/europe/zelensky-trump-ukraine-war-donbas.html
-
-**The Bounce: 5 burning questions about NBA expansion**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.
-`\
-https://nytimes.com/athletic/7148871/2026/03/26/nba-expansion-seattle-las-vegas-the-bounce-2/
-
-**Suzuka is one of F1’s best tracks. But with new cars, drivers are no longer convinced**\
-`F1 heads to Japan for its third 2026 race. Yet there are fears the Suzuka circuit might not be quite so enchanting for drivers`\
-https://nytimes.com/athletic/7148704/2026/03/26/new-f1-cars-japanese-gp-suzuka/
 

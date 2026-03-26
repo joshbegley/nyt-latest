@@ -1,3 +1,20 @@
+**Europe Heads for Another Energy Shock in a Vulnerable State**\
+`The region’s stores of natural gas are running at the lowest level in years, and filling them up is increasingly daunting as the U.S.-led war in Iran pushes up prices.`\
+https://nytimes.com/2026/03/26/business/europe-natural-gas-storage-iran-war.html
+
+**The head of NATO says Europe needs time to help secure the Strait of Hormuz.**\
+`By Lara Jakes`\
+https://nytimes.com/live/2026/03/26/world/iran-war-israel-trump-oil/nato-rutte-strait-of-hormuz
+
+**Australia Temporarily Blocks Iranians With Visitor Visas From Entry**\
+`Iranian tourists with visas will be barred for six months in case they are ‘unable or unlikely’ to go back because of the war, Australian officials said.`\
+https://nytimes.com/2026/03/26/world/australia/oz-iran-visas.html
+
+**The Bounce: 5 burning questions about NBA expansion**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7148871/2026/03/26/nba-expansion-seattle-las-vegas-the-bounce-2/
+
 **The Bounce: 5 burning questions about NBA expansion**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.
 `\
