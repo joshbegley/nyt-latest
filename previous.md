@@ -1,3 +1,11 @@
+**Transgender Athletes Barred From Women’s Olympic Events**\
+`The International Olympic Committee announced a ban on transgender athletes competing in women’s events. The rule, which will go into effect during the 2028 Olympics, will require athletes to undergo genetic testing.`\
+https://nytimes.com/video/sports/100000010802995/olympics-transgender-athletes-women-ban.html
+
+**Never Waste Dill Again**\
+`The minute you buy this herb, you’re racing to use it up. Anxiety be gone! Try a feta-ranch wedge salad, a dill Dutch baby and these other recipes.`\
+https://nytimes.com/2026/03/26/dining/never-waste-dill-again.html
+
 **Memes and Mixed Messages in the Iran War**\
 `Readers respond to an Opinion guest essay by Phil Klay. Also: Educating undocumented students; energy realities; calling all teenagers.`\
 https://nytimes.com/2026/03/26/opinion/iran-war-messages.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7146892/2026/03/26/ipswich-town-nigel-farage-reform
 **Lawsuit accuses Rams' Puka Nacua of biting women, making antisemitic remark**\
 `Nacua’s attorney has denied the allegations, labeling them part of an effort to blackmail the star wide reciever.`\
 https://nytimes.com/athletic/7149049/2026/03/26/rams-puka-nacua-lawsuit-antisemitic-biting-woman/
-
-**Dash Crofts, of the Soft-Rock Duo That Sang ‘Summer Breeze,’ Dies at 87**\
-`Seals & Crofts had a number of Billboard Top 20 songs in the 1970s before their chart topper brought them global fame.`\
-https://nytimes.com/2026/03/26/arts/music/dash-crofts-dead.html
-
-**Mortgage Rates Jump Again as Iran War Effects Ripple Through Housing Market**\
-`The average rate on a 30-year mortgage in the United States hit 6.38 percent, the fourth increase since the war began.`\
-https://nytimes.com/2026/03/26/business/mortgage-rates-middle-east-war.html
 

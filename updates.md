@@ -1,3 +1,11 @@
+**Transgender Athletes Barred From Women’s Olympic Events**\
+`The International Olympic Committee announced a ban on transgender athletes competing in women’s events. The rule, which will go into effect during the 2028 Olympics, will require athletes to undergo genetic testing.`\
+https://nytimes.com/video/sports/100000010802995/olympics-transgender-athletes-women-ban.html
+
+**Never Waste Dill Again**\
+`The minute you buy this herb, you’re racing to use it up. Anxiety be gone! Try a feta-ranch wedge salad, a dill Dutch baby and these other recipes.`\
+https://nytimes.com/2026/03/26/dining/never-waste-dill-again.html
+
 **Memes and Mixed Messages in the Iran War**\
 `Readers respond to an Opinion guest essay by Phil Klay. Also: Educating undocumented students; energy realities; calling all teenagers.`\
 https://nytimes.com/2026/03/26/opinion/iran-war-messages.html
