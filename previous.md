@@ -1,3 +1,11 @@
+**World Cup fans' $15,000 bonds to enter U.S. Plus: MLS commissioner's Salah hope**\
+`Today in TAFC: The bond payments facing fans of several World Cup countries. Plus: MLS hoping for Salah, and what about Casemiro?`\
+https://nytimes.com/athletic/7148501/2026/03/26/world-cup-fans-15000-bonds-to-enter-u-s-plus-mls-commissioners-salah-hope/
+
+**This is the Julius Randle the Timberwolves have been waiting for all season**\
+`Randle led the charge as Minnesota completed a historic overtime comeback against the Rockets on Wednesday.`\
+https://nytimes.com/athletic/7147764/2026/03/26/julius-randle-timberwolves-rockets-comeback/
+
 **Jamal Murray's All-NBA case 'obvious' after 53-point night, Nuggets coach says**\
 `Denver is still working out some kinks after a spate of injuries, but Murray, who scored 53 points Wednesday night, has never played better.`\
 https://nytimes.com/athletic/7148384/2026/03/26/jamal-murray-all-nba-nuggets-jokic/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7148611/2026/03/26/white-sox-vs-brewers-stream-how-
 **Commander Targeted by Israel Led Iran’s Blockade of Strait of Hormuz**\
 `Israel said it killed the naval commander, Alireza Tangsiri, in an airstrike on Thursday morning. Iran has not commented.`\
 https://nytimes.com/2026/03/26/world/middleeast/alireza-tangsiri.html
-
-**‘Love Story’ Is Actually A Horror Story**\
-`Wesley Morris and Sasha Weiss, the culture editor of The New York Times Magazine, on FX’s streaming hit “Love Story: John F. Kennedy Jr. & Carolyn Bessette.”`\
-https://nytimes.com/video/podcasts/100000010799670/love-story-is-actually-a-horror-story.html
-
-**Debate season: Wemby's MVP case, Giannis vs. the Bucks and the 65-game rule**\
-`Our columnist says he was wrong about the 65-game rule, though Adam Silver insists that it is working.`\
-https://nytimes.com/athletic/7148455/2026/03/26/victor-wembanyama-mvp-giannis-bucks-65-game-rule-nba/
 
