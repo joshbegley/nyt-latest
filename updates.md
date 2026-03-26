@@ -1,3 +1,7 @@
+**Chinese Education Influencer’s Sudden Death Prompts Grief, and Reflection**\
+`The influencer, Zhang Xuefeng, was known for no-nonsense, some said cynical, advice about how to win in China’s educational rat race. He died at 41.`\
+https://nytimes.com/2026/03/26/world/asia/chinese-influencer-zhang-death.html
+
 **From Norwich to Barcelona: Ajay Tavares, the England Under-17 winger at La Masia**\
 `It is not exactly a path well travelled, but this move from East Anglia reflects an established youth policy at the Catalan club`\
 https://nytimes.com/athletic/7146817/2026/03/26/ajay-tavares-norwich-barcelona-england-la-masia/
