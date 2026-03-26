@@ -1,3 +1,15 @@
+**How much do players get paid? Colleges don't want you to know — but you should**\
+`Out of 70 schools The Athletic requested payrolls and budgets from, only one provided the information.`\
+https://nytimes.com/athletic/7144472/2026/03/26/college-players-athletes-salaries-payments/
+
+**Is hating Duke falling out of style in college basketball?**\
+`Many of the old reasons to hate Duke aren’t as prevalent anymore, from the titles to the coach to the players fans grew to despise.`\
+https://nytimes.com/athletic/7146561/2026/03/26/duke-blue-devils-mens-basketball-hate-villains/
+
+**Here’s to the old Boston Garden scoreboard, as it rests in pieces**\
+`It's unclear what to do, if anything, about the scoreboard that was present for many of Boston's greatest sports moments and so much more.`\
+https://nytimes.com/athletic/7139845/2026/03/26/celtics-bruins-scoreboard-old-boston-garden/
+
 **India Appears Sidelined as Pakistan Tries to Play Peacemaker**\
 `Hours before a call between President Trump and India’s prime minister, American officials urged India to focus on shared goals and ignore differences.`\
 https://nytimes.com/2026/03/26/world/asia/india-pakistan-iran-trump-modi.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/26/learning/out-the-door.html
 **Mamdani Promised to Freeze the Rent. Now the Fight Begins.**\
 `Nine board members, six of whom were appointed by Mayor Zohran Mamdani, will meet Thursday to begin weighing whether to enact a rent freeze.`\
 https://nytimes.com/2026/03/26/nyregion/mamdani-freeze-rent-guidelines-board.html
-
-**Why a 100-Foot Protest ‘Buffer Zone’ at Houses of Worship Won’t Happen**\
-`A bill being voted on Thursday is a watered-down version of what the New York City Council speaker vowed to pass after an intense protest outside a synagogue last year.`\
-https://nytimes.com/2026/03/26/nyregion/buffer-zone-synagogues-nyc.html
-
-**Battle Over a Contentious Police Unit Re-emerges in New York City**\
-`A bill will be introduced on Thursday to restrict the Police Department’s Strategic Response Group from being deployed at protests.`\
-https://nytimes.com/2026/03/26/nyregion/mamdani-isis-bomb.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/03/26/crosswords/spelling-bee-forum.html
 
