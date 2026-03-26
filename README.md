@@ -1,40 +1,40 @@
-**City's Rodri says he 'could not turn down' potential Real Madrid transfer**\
-`The 29-year-old central midfielder also confirmed that his contract at City would expire in 2027.`\
-https://nytimes.com/athletic/7148545/2026/03/26/rodri-transfer-real-madrid-manchester-city/
+**Lions NFL Draft big board: O-linemen, edge rushers top needs with DB, LB lurking**\
+`The Lions are in need of offensive line and edge-rushing help, but could safety and linebacker also be in play on Day 1 or 2?`\
+https://nytimes.com/athletic/7141592/2026/03/26/detroit-lions-big-board-nfl-draft/
 
-**Storms Could Bring Tornadoes, Hail and Heavy Rain to the Midwest on Thursday**\
-`Forecasters were watching an area just south of the Great Lakes, where storms were expected to move through on Thursday afternoon and evening.`\
-https://nytimes.com/2026/03/26/weather/illinois-indiana-ohio-tornado-storm-chicago.html
+**What I’m hearing as the Twins prepare to open the regular season**\
+`Josh Bell avoided playing golf this offseason in a bid to keep his baseball swing dialed in.`\
+https://nytimes.com/athletic/7147601/2026/03/26/twins-opening-day-james-outman-cody-lawyerson/
 
-**Inside the offseason that reestablished the Cubs as big-market players**\
-`The Cubs believe they have what it takes to prevent a World Series three-peat by the Dodgers. This is how they got here. `\
-https://nytimes.com/athletic/7148069/2026/03/26/chicago-cubs-offseason-analysis-inside-look/
+**CJ Carr ready for bigger role in first spring as Notre Dame's clear-cut starting QB**\
+`CJ Carr wants to use spring practice to test drive new ways to beat defenses.`\
+https://nytimes.com/athletic/7147433/2026/03/26/cj-carr-notre-dame-spring-quarterback/
 
-**On Opening Day, Yankees show why running back same offense could work**\
-`While there won't be the pregame hoopla and sideshows for all 162 games, the Yanks' offense may be able to provide just as many highlights.`\
-https://nytimes.com/athletic/7148357/2026/03/26/yankees-offense-opening-day/
+**Hofer shoulders a run of starts — and keeps rising to the moment**\
+`Since the Olympics, Joel Hofer is 6-0-2 with a league-leading 1.34 goals-against average, .959 save percentage and two shutouts.`\
+https://nytimes.com/athletic/7145618/2026/03/26/joel-hofer-blues-goalie-shutout-starts-montgomery/
 
-**2026 NBA All-Surprise Team: Jalen Duren, Nickeil Alexander-Walker and other bright spots**\
-`These 10 players have made giant strides in at least one element of their games. Let's recognize them.`\
-https://nytimes.com/athletic/7147351/2026/03/26/nba-surprises-jalen-duren-nickeil-alexander-walker-ryan-rollins/
+**Q&A with Cubs president Jed Hoyer (Part 2): Young stars, stability and 10-year anniversary**\
+`Potential free agents exist but also young players under contract. "We're going to look different next year, but just enjoy it," Hoyer said.`\
+https://nytimes.com/athletic/7143639/2026/03/26/chicago-cubs-president-jed-hoyer-interview-part-2-news/
 
-**The Pulse: The 2026 World Series champs***\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7147089/2026/03/26/mlb-opening-day-2026-the-pulse/
+**No. 1 task for Michigan's new offensive staff? Unlock Bryce Underwood's potential**\
+`At a time when many top programs are signing ready-made quarterbacks from the transfer portal, Michigan is committed to development.`\
+https://nytimes.com/athletic/7147568/2026/03/26/michigan-football-bryce-underwood-jason-beck/
 
-**With no Cinderellas, how do Sweet 16 men's basketball programs compare financially?**\
-`It’s clear you’ve got to spend money to make money — and to make the Sweet 16.`\
-https://nytimes.com/athletic/7147281/2026/03/26/ncaa-tournament-sweet-16-teams-finances/
+**Draymond Green offers passionate answer to the Victor Wembanyama MVP question**\
+`Green delivered passionate remarks about Wembanyama's MVP case, stressing the importance of defense to the argument.`\
+https://nytimes.com/athletic/7148465/2026/03/26/draymond-green-victor-wembanyama-mvp-question/
 
-**What makes Purdue a March Madness outlier? Retention in a world of movement**\
-`Purdue has three starters who have been with the program four-plus years, a rarity in modern college basketball.`\
-https://nytimes.com/athletic/7147870/2026/03/26/purdue-basketball-ncaa-tournament-smith-kaufman-renn-loyer/
+**Giants' shortcomings look awfully familiar in season-opening loss to Yankees**\
+`After a positive and productive spring training, the Giants looked more like the team that struggled last season in Wednesday's 7-0 loss.`\
+https://nytimes.com/athletic/7148353/2026/03/26/giants-season-opening-loss-yankees/
 
-**Panthers NFL Draft big board: 28 prospects who could fit rounds 1-3**\
-`After checking off several boxes in free agency, GM Dan Morgan created flexibility that will allow him to draft the best players available.`\
-https://nytimes.com/athletic/7147275/2026/03/26/carolina-panthers-nfl-draft-big-board-picks/
+**World Cup 2026 stadium guides: Welcome to Los Angeles Stadium, the most expensive sports venue in the world**\
+`SoFi Stadium was primarily funded and developed by LA Rams owner Stan Kroenke. It will host eight games including two USMNT fixtures`\
+https://nytimes.com/athletic/7143097/2026/03/26/world-cup-2026-stadium-guides-los-angeles/
 
-**Sabres' blunders, Timmins' solid return and more from OT loss to Bruins: 3 thoughts**\
-`Though Buffalo's special teams had an encouraging night, the Sabres weren't at their best and fumbled a chance at two points in overtime.`\
-https://nytimes.com/athletic/7148229/2026/03/26/sabres-overtime-loss-dahlin-timmins-return-bruins/
+**NWSL extends media reach with Women's Sports Network partnership through 2027**\
+`The network's focus on player-driven storytelling helps convert fans' discovery into deeper engagement, an executive said.`\
+https://nytimes.com/athletic/7148094/2026/03/26/nwsl-expands-streaming-options-wsn-2/
 
