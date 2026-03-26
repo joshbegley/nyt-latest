@@ -1,3 +1,27 @@
+**The Idiot: Chapter 5**\
+`With Allen set to be released in a few years, M. wonders if he will be able to come back into the family fold.`\
+https://nytimes.com/2026/03/25/podcasts/serial-the-idiot-epilogue-episode-5.html
+
+**The Idiot: Chapter 4**\
+`M. and Allen finally speak. M. develops a theory of the case. Or one of Allen, at least.`\
+https://nytimes.com/2026/03/25/podcasts/serial-the-idiot-episode-4.html
+
+**The Idiot: Chapter 3**\
+`M. attends Allen’s trial in San Francisco, where undercover recordings reveal how Allen’s plan to get Priscilla deported from the U.S. turned into a murder-for-hire plot.`\
+https://nytimes.com/2026/03/25/podcasts/serial-the-idiot-episode-3.html
+
+**The Idiot: Chapter 2**\
+`Allen’s ex-wife, Priscilla, tells M. about the lengths she has had to go to reunite with her son. M. is shocked.`\
+https://nytimes.com/2026/03/25/podcasts/serial-the-idiot-episode-2.html
+
+**The Idiot: Chapter 1**\
+`The New York Times writer M. Gessen always disliked their younger cousin Allen. But then he did something so bad, even M. was surprised – and they realized they didn’t know Allen at all.`\
+https://nytimes.com/2026/03/25/podcasts/serial-the-idiot-prologue-episode-1.html
+
+**N.Y.P.D. Inspector Accused of Groping an Officer Is Stripped of His Gun**\
+`After a policewoman in the Bronx complained that an inspector was sexually harassing and groping her, he remained her supervisor for more than a year, according to her lawsuit.`\
+https://nytimes.com/2026/03/25/nyregion/nypd-inspector-groping-gun.html
+
 **‘Love Story’ Is Actually A Horror Story**\
 `Wesley Morris and Sasha Weiss, the culture editor of The New York Times Magazine, on FX’s streaming hit “Love Story: John F. Kennedy Jr. & Carolyn Bessette.”`\
 https://nytimes.com/video/podcasts/100000010799675/love-story-is-actually-a-horror-story.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7147685/2026/03/25/yu-darvish-padres-restricted-lis
 **Republicans in Congress Fret Over Iran War as Pentagon Offers Few Answers**\
 `G.O.P. lawmakers who have given the Trump administration wide latitude to wage war with no congressional input are growing frustrated as officials offer little detail about ground troops, cost or timeline.`\
 https://nytimes.com/2026/03/25/world/middleeast/republicans-congress-iran-war-trump.html
-
-**WNBA sets expansion draft for April 3 as Toronto and Portland begin to build rosters**\
-`Current teams can designate a maximum of five protected players who can't be chosen in the expansion draft.`\
-https://nytimes.com/athletic/7147626/2026/03/25/wnba-sets-expansion-draft-toronto-portland/
-
-**Justice Dept. Settles Flynn’s Wrongful Prosecution Suit for $1.25 Million**\
-`The agreement was an extraordinary example of how the Trump administration has offered legal relief to those aligned with the president.`\
-https://nytimes.com/2026/03/25/us/politics/michael-flynn-doj-settlement-trump.html
-
-**Judge Orders Arrest of Former Kentucky Governor for Contempt**\
-`Seven years after leaving office, Matt Bevin, the combative ex-governor, faces charges for not providing financial records sought by his estranged son.`\
-https://nytimes.com/2026/03/25/us/matt-bevin-kentucky-arrest-contempt.html
-
-**Trump Draws Bipartisan Backlash for Easing Oil Sanctions on Russia and Iran**\
-`Republicans and Democrats alike have criticized the Trump administration’s moves, taken to stabilize oil markets rocked by the war with Iran, warning that it is benefiting two U.S. adversaries.`\
-https://nytimes.com/2026/03/25/us/politics/trump-bipartisan-backlash-oil-sanctions-russia-iran.html
-
-**Postal Service Plans to Impose 8% Surcharge on Packages to Offset Rising Transportation Costs**\
-`The temporary price increase, which would take effect on April 26, comes amid a spike in fuel prices tied to the war in Iran.`\
-https://nytimes.com/2026/03/25/us/politics/usps-surcharge-prices-fuel-iran.html
-
-**Buster Posey explains Giants' Opening Day lineup, choosing Jared Oliva over Luis Matos**\
-`"Everybody's behind J.O. and thrilled that he's on the team," said Posey, who went with the speedy outfielder over a former top prospect.`\
-https://nytimes.com/athletic/7147575/2026/03/25/sf-giants-opening-day-lineup-buster-posey-jared-oliva-luis-matos/
 
