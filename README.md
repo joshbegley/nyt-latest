@@ -1,3 +1,7 @@
+**Trump Calls for Law Cracking Down on Crime and ‘Rogue Judges’**\
+`Ahead of the midterms, President Trump told a Republican gathering that he wants to go after repeat offenders and “rogue judges that are criminals.”`\
+https://nytimes.com/2026/03/25/us/politics/trump-judges-rogue-law.html
+
 **Chip Taylor, Writer of ‘Wild Thing’ and Other Classic Rock Hits, Dies at 86**\
 `Mr. Taylor, the younger brother of the actor Jon Voight, found success as a songwriter for the likes of Janis Joplin and Juice Newton.`\
 https://nytimes.com/2026/03/25/arts/music/chip-taylor-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010801529/trumps-brute-force-imperialism
 **Kevin McGonigle's major-league moment is here, plus more on the Tigers' roster**\
 `"This roster is pretty darn good with or without Kevin. We just think it's better with him on it," Scott Harris said.`\
 https://nytimes.com/athletic/7147801/2026/03/25/detroit-tigers-roster-kevin-mcgonigle/
-
-**Caitlin Clark can take 3s. Now she's taking photographs**\
-`Wearing a Pacers photographer’s vest, the two-time WNBA All-Star was spotted sitting baseline with other working photographers alongside.`\
-https://nytimes.com/athletic/7147805/2026/03/25/caitlin-clark-photography-pacers-lakers-nba/
 
