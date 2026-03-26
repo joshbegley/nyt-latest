@@ -1,3 +1,11 @@
+**Kennedy’s Vaccine Agenda Hits Roadblocks, Diminishing His Clout**\
+`Health Secretary Robert F. Kennedy Jr.’s vaccine skepticism is posing challenges for the Trump administration. Top health jobs are unfilled, and a court has blocked his vaccine schedule changes.`\
+https://nytimes.com/2026/03/26/us/politics/kennedy-vaccines-trump.html
+
+**Cubs reach six-year extension agreement with Nico Hoerner: Source**\
+`The Cubs will continue to have one of baseball’s best infields anchored by Hoerner, who is a two-time Gold Glove winner. `\
+https://nytimes.com/athletic/7150381/2026/03/26/chicago-cubs-nico-hoerner-extension-source/
+
 **Here’s What Happened in the War in the Middle East on Thursday**\
 `For a second time, President Trump extended the deadline for Iran to fully reopen the Strait of Hormuz.`\
 https://nytimes.com/2026/03/26/world/middleeast/war-iran-us-israel-recap.html
@@ -6,7 +14,7 @@ https://nytimes.com/2026/03/26/world/middleeast/war-iran-us-israel-recap.html
 `Carson Benge's homer and the lineup's patient approach against Paul Skenes made for an ideal tone-setter: "It gives you a lot of optimism."`\
 https://nytimes.com/athletic/7150329/2026/03/26/luis-robert-carson-benge-mets-opening-day/
 
-**Trump Says He Will Sign Order to Pay T.S.A. Agents During Shutdown**\
+**Trump Says He Will Sign Order to Pay T.S.A. Agents as Travel Frustrations Grow**\
 `President Trump said he would sign an emergency order to pay Transportation Security Administration agents, with an intensifying crisis at airports ahead of a busy travel weekend.`\
 https://nytimes.com/2026/03/26/us/politics/trump-tsa-agents-shutdown.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7149592/2026/03/26/world-cup-playoffs-italy-sweden-
 **8 Days After Sex Abuse Revelations, California Renames Chavez Holiday**\
 `Gov. Gavin Newsom signed legislation to rename Cesar Chavez Day as “Farmworkers Day,” moving quickly before the March 31 holiday.`\
 https://nytimes.com/2026/03/26/us/california-cesar-chavez-day-rename.html
-
-**FKA twigs Says in Suit That Shia LaBeouf Had Her Sign ‘Illegal’ NDA**\
-`The suit said the nondisclosure agreement that was part of her court settlement with Mr. LaBeouf, her former boyfriend, effectively silenced her. His lawyer disputes that.`\
-https://nytimes.com/2026/03/26/arts/music/fka-twigs-lawsuit-shia-labeouf-nda.html
-
-**Sheriff in California Seizes More Ballots, Ignoring State Attorney General**\
-`Chad Bianco, the Riverside County sheriff and a Republican running for governor, is examining votes from 2025 after unsubstantiated claims of fraud.`\
-https://nytimes.com/2026/03/26/us/politics/california-sheriff-ballots-attorney-general.html
 

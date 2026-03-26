@@ -1,3 +1,7 @@
+**How Far Will Trump Go in Iran?**\
+`I asked an Iran hawk what victory looks like now.`\
+https://nytimes.com/video/opinion/100000010795916/how-far-will-trump-go-in-iran.html
+
 **Kennedy’s Vaccine Agenda Hits Roadblocks, Diminishing His Clout**\
 `Health Secretary Robert F. Kennedy Jr.’s vaccine skepticism is posing challenges for the Trump administration. Top health jobs are unfilled, and a court has blocked his vaccine schedule changes.`\
 https://nytimes.com/2026/03/26/us/politics/kennedy-vaccines-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010803010/missile-strikes-israe
 **World Cup play-offs: Who went through? What are the match-ups in the finals?**\
 `Both the European and intercontinental play-off finals take place on Tuesday after which all 48 teams will then be confirmed.`\
 https://nytimes.com/athletic/7149592/2026/03/26/world-cup-playoffs-italy-sweden-finals/
-
-**8 Days After Sex Abuse Revelations, California Renames Chavez Holiday**\
-`Gov. Gavin Newsom signed legislation to rename Cesar Chavez Day as “Farmworkers Day,” moving quickly before the March 31 holiday.`\
-https://nytimes.com/2026/03/26/us/california-cesar-chavez-day-rename.html
 
