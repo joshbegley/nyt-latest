@@ -1,3 +1,11 @@
+**Memes and Mixed Messages in the Iran War**\
+`Readers respond to an Opinion guest essay by Phil Klay. Also: Educating undocumented students; energy realities; calling all teenagers.`\
+https://nytimes.com/2026/03/26/opinion/iran-war-messages.html
+
+**At the Reception, Guests Played Cornhole and Toasted Marshmallows**\
+`Camp-style weddings appeal to couples who want to trade formal affairs for gatherings where guests can connect and play.`\
+https://nytimes.com/2026/03/26/fashion/weddings/at-the-reception-guests-played-cornhole-and-toasted-marshmallows.html
+
 **Trump Eyes White House Treaty Room for Latest Renovation Project**\
 `President Trump is making new plans in one of the most significant renovations in the history of the White House.`\
 https://nytimes.com/2026/03/26/us/trump-eyes-white-house-treaty-room-for-latest-renovation-project.html

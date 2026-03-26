@@ -1,3 +1,11 @@
+**Memes and Mixed Messages in the Iran War**\
+`Readers respond to an Opinion guest essay by Phil Klay. Also: Educating undocumented students; energy realities; calling all teenagers.`\
+https://nytimes.com/2026/03/26/opinion/iran-war-messages.html
+
+**At the Reception, Guests Played Cornhole and Toasted Marshmallows**\
+`Camp-style weddings appeal to couples who want to trade formal affairs for gatherings where guests can connect and play.`\
+https://nytimes.com/2026/03/26/fashion/weddings/at-the-reception-guests-played-cornhole-and-toasted-marshmallows.html
+
 **Trump Eyes White House Treaty Room for Latest Renovation Project**\
 `President Trump is making new plans in one of the most significant renovations in the history of the White House.`\
 https://nytimes.com/2026/03/26/us/trump-eyes-white-house-treaty-room-for-latest-renovation-project.html
@@ -25,12 +33,4 @@ https://nytimes.com/2026/03/26/arts/music/dash-crofts-dead.html
 **Mortgage Rates Jump Again as Iran War Effects Ripple Through Housing Market**\
 `The average rate on a 30-year mortgage in the United States hit 6.38 percent, the fourth increase since the war began.`\
 https://nytimes.com/2026/03/26/business/mortgage-rates-middle-east-war.html
-
-**Roman Catholic Churches See a Surge of New Converts**\
-`Bishops are trying to understand what’s behind the wave. People joining the church described their reasons as highly personal.`\
-https://nytimes.com/2026/03/26/us/catholics-converts.html
-
-**Where Trump Has Installed Election Deniers in Government**\
-`His administration is stocked with people who have questioned the legitimacy of elections, including some who have claimed that the 2020 presidential race was stolen.`\
-https://nytimes.com/interactive/2026/03/26/us/politics/trump-2020-election-deniers.html
 
