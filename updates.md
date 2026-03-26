@@ -1,3 +1,7 @@
+**Josh Johnson Ridicules the Army’s Opening to Older Recruits**\
+`“Look, according to People magazine — and apparently the U.S. military — 42 is the new 35,” Johnson said on Tuesday’s “Daily Show.”`\
+https://nytimes.com/2026/03/26/arts/television/late-night-army-enlistment.html
+
 **Arthur Fils saves 4 match points to beat Tommy Paul at Miami Open**\
 `"He was able to close out the match when I wasn't," Paul said.`\
 https://nytimes.com/athletic/7148313/2026/03/26/arthur-fils-4-match-points-beat-tommy-paul-miami-open/
