@@ -1,9 +1,13 @@
+**Ipswich Town and Nigel Farage: A private lunch, free shirts and staff complaints**\
+`The visit by the Reform UK leader, and Ipswich's account of the visit being undermined, has prompted a fan backlash`\
+https://nytimes.com/athletic/7146892/2026/03/26/ipswich-town-nigel-farage-reform-uk/
+
 **Lawsuit accuses Rams' Puka Nacua of biting women, making antisemitic remark**\
 `Nacua’s attorney has denied the allegations, labeling them part of an effort to blackmail the star wide reciever.`\
 https://nytimes.com/athletic/7149049/2026/03/26/rams-puka-nacua-lawsuit-antisemitic-biting-woman/
 
 **Dash Crofts, of the Soft-Rock Duo That Sang ‘Summer Breeze,’ Dies at 87**\
-`The 1970s duo Seals & Crofts had a number of Billboard Top 20 songs before their chart topper brought them global fame.`\
+`Seals & Crofts had a number of Billboard Top 20 songs in the 1970s before their chart topper brought them global fame.`\
 https://nytimes.com/2026/03/26/arts/music/dash-crofts-dead.html
 
 **Mortgage Rates Jump Again as Iran War Effects Ripple Through Housing Market**\
@@ -25,8 +29,4 @@ https://nytimes.com/2026/03/26/us/the-docket-birthright-citizenship-trump.html
 **Under Carney, Canada Finally Hits NATO’s 2% Spending Target**\
 `Trump and other American presidents have criticized Canada for failing to meet the alliance’s military spending minimum of 2 percent of gross domestic product.`\
 https://nytimes.com/2026/03/26/world/canada/carney-canada-nato-spending.html
-
-**‘Public Charge’ Review: The World Is Messy. Being a Force for Good Is, Too.**\
-`A new play at the Public Theater written by Michael J. Chepiga and the former ambassador Julissa Reynoso is a diplomatic memoir of sorts, and a meditation on loving one’s country.`\
-https://nytimes.com/2026/03/26/theater/public-charge-review-julissa-reynoso.html
 
