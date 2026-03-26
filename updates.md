@@ -1,3 +1,7 @@
+**Chip Taylor, Writer of ‘Wild Thing’ and Other Classic Rock Hits, Dies at 86**\
+`Mr. Taylor, the younger brother of the actor Jon Voight, found success as a songwriter for the likes of Janis Joplin and Juice Newton.`\
+https://nytimes.com/2026/03/25/arts/music/chip-taylor-dead.html
+
 **F1 energy rules tweaked for Japanese Grand Prix in bid to improve qualifying**\
 `Drivers and teams pushed back, so the 2026 regs have been tweaked at Suzuka to keep qualifying a flat-out challenge.`\
 https://nytimes.com/athletic/7147979/2026/03/25/f1-rules-change-qualifying-japanese-grand-prix/
