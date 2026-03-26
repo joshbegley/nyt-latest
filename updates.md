@@ -1,3 +1,7 @@
+**From Norwich to Barcelona: Ajay Tavares, the England Under-17 winger at La Masia**\
+`It is not exactly a path well travelled, but this move from East Anglia reflects an established youth policy at the Catalan club`\
+https://nytimes.com/athletic/7146817/2026/03/26/ajay-tavares-norwich-barcelona-england-la-masia/
+
 **Rescuers Race to Save a 32-Foot Humpback Whale Stranded Off a German Beach**\
 `The whale had been stuck for days in shallow waters of the Baltic Sea, as rescuers prepared to make another attempt to free it.`\
 https://nytimes.com/2026/03/26/world/europe/stranded-whale-germany-baltic.html
