@@ -1,3 +1,7 @@
+**Strike call upheld in first ever ABS challenge in Yankees-Giants season opener**\
+`In the first ABS challenge, the robot ump actually proved the human had it right. The Netflix broadcast appeared unprepared for the moment. `\
+https://nytimes.com/athletic/7144370/2026/03/25/first-mlb-abs-challenge-yankees-giants/
+
 **Schumer Says Democrats Will Try to Restore Clean Energy Tax Credits**\
 `Senator Chuck Schumer of New York, the minority leader, said Democrats would pursue an agenda to reduce energy costs if they win back control of Congress.`\
 https://nytimes.com/2026/03/25/climate/schumer-democrats-clean-energy.html

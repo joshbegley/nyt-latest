@@ -1,3 +1,7 @@
+**Strike call upheld in first ever ABS challenge in Yankees-Giants season opener**\
+`In the first ABS challenge, the robot ump actually proved the human had it right. The Netflix broadcast appeared unprepared for the moment. `\
+https://nytimes.com/athletic/7144370/2026/03/25/first-mlb-abs-challenge-yankees-giants/
+
 **Schumer Says Democrats Will Try to Restore Clean Energy Tax Credits**\
 `Senator Chuck Schumer of New York, the minority leader, said Democrats would pursue an agenda to reduce energy costs if they win back control of Congress.`\
 https://nytimes.com/2026/03/25/climate/schumer-democrats-clean-energy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/25/podcasts/serial-the-idiot-epilogue-episode-5.html
 **The Idiot: Chapter 4**\
 `M. and Allen finally speak. M. develops a theory of the case. Or one of Allen, at least.`\
 https://nytimes.com/2026/03/25/podcasts/serial-the-idiot-episode-4.html
-
-**The Idiot: Chapter 3**\
-`M. attends Allen’s trial in San Francisco, where undercover recordings reveal how Allen’s plan to get Priscilla deported from the U.S. turned into a murder-for-hire plot.`\
-https://nytimes.com/2026/03/25/podcasts/serial-the-idiot-episode-3.html
 
