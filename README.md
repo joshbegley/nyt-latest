@@ -1,3 +1,15 @@
+**How to watch Capitals vs. Mammoth: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the Utah Mammoth, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7149614/2026/03/26/capitals-vs-mammoth-stream-how-to-watch-march-26/
+
+**How to watch Sharks vs. Blues: Time, TV, streaming**\
+`Find out how to watch the San Jose Sharks play the St. Louis Blues, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7149597/2026/03/26/sharks-vs-blues-stream-how-to-watch-march-26/
+
+**How to watch Devils vs. Predators: Time, TV, streaming**\
+`Find out how to watch the New Jersey Devils play the Nashville Predators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7149590/2026/03/26/devils-vs-predators-stream-how-to-watch-march-26/
+
 **Bulls' Jaden Ivey and Jalen Smith both shut down for season due to injury**\
 `Smith re-aggravated a calf issue while Ivey has been dealing with a knee injury.`\
 https://nytimes.com/athletic/7149549/2026/03/26/bulls-jaden-ivey-jalen-smith-injury-season/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/26/world/europe/iran-russia-europe-drones.html
 **Transgender Athletes Barred From Women’s Olympic Events**\
 `The International Olympic Committee announced a ban on transgender athletes competing in women’s events. The rule, which will go into effect during the 2028 Olympics, will require athletes to undergo genetic testing.`\
 https://nytimes.com/video/sports/100000010802995/olympics-transgender-athletes-women-ban.html
-
-**Never Waste Dill Again**\
-`The minute you buy this herb, you’re racing to use it up. Anxiety be gone! Try a feta-ranch wedge salad, a dill Dutch baby and these other recipes.`\
-https://nytimes.com/2026/03/26/dining/never-waste-dill-again.html
-
-**Memes and Mixed Messages in the Iran War**\
-`Readers respond to an Opinion guest essay by Phil Klay. Also: Educating undocumented students; energy realities; calling all teenagers.`\
-https://nytimes.com/2026/03/26/opinion/iran-war-messages.html
-
-**At the Reception, Guests Played Cornhole and Toasted Marshmallows**\
-`Camp-style weddings appeal to couples who want to trade formal affairs for gatherings where guests can connect and play.`\
-https://nytimes.com/2026/03/26/fashion/weddings/at-the-reception-guests-played-cornhole-and-toasted-marshmallows.html
 
