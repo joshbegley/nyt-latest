@@ -1,3 +1,16 @@
+**The Bounce: 5 burning questions about NBA expansion**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7148871/2026/03/26/nba-expansion-seattle-las-vegas-the-bounce-2/
+
+**Suzuka is one of F1’s best tracks. But with new cars, drivers are no longer convinced**\
+`F1 heads to Japan for its third 2026 race. Yet there are fears the Suzuka circuit might not be quite so enchanting for drivers`\
+https://nytimes.com/athletic/7148704/2026/03/26/new-f1-cars-japanese-gp-suzuka/
+
+**Sidelined from tennis by injury, Arthur Fils put in the work to return a contender**\
+`The 21-year-old had emerged as a force at the top of the sport before a back injury last year. In his time away, he souped himself up.`\
+https://nytimes.com/athletic/7110180/2026/03/26/tennis-arthur-fils-injury-comeback/
+
 **One Dead After Fire on Top Floor of Bronx Apartment Building**\
 `Firefighters responded to a call at 5:30 a.m. on Thursday and found that a person had died in the apartment where the fire originated.`\
 https://nytimes.com/2026/03/26/nyregion/bronx-fire-apartment-building.html
