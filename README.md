@@ -1,8 +1,12 @@
+**One Dead After Fire on Top Floor of Bronx Apartment Building**\
+`Firefighters responded to a call at 5:30 a.m. on Thursday and found that a person had died in the apartment where the fire originated.`\
+https://nytimes.com/2026/03/26/nyregion/bronx-fire-apartment-building.html
+
 **Two Killed in Abu Dhabi as Gulf States Face Fresh Attacks**\
 `A Pakistani man and an Indian man died when shrapnel fell from an intercepted missile, officials said. Saudi Arabia, Kuwait and Bahrain also reported strikes.`\
 https://nytimes.com/2026/03/26/world/middleeast/iran-missile-strikes-abu-dhabi.html
 
-**The Kennedy Center is Giving Bill Maher the Mark Twain Prize**\
+**The Kennedy Center Is Giving Bill Maher the Mark Twain Prize**\
 `The annual award that recognizes merit in humor is going to the satirist and talk show host who has been critical of President Trump and political correctness.`\
 https://nytimes.com/2026/03/26/arts/television/bill-maher-mark-twain-prize-kennedy-center.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7148855/2026/03/26/red-sox-vs-reds-stream-how-to-wa
 **How to watch Angels vs. Astros: Time, TV, streaming for March 26**\
 `Find out how to watch the Los Angeles Angels play the Houston Astros, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7148853/2026/03/26/angels-vs-astros-stream-how-to-watch-march-26/
-
-**Rockets have failed to close games all season. OT loss to Minnesota was a harsh reminder**\
-`Wednesday's overtime loss was another example of the Rockets' inability to execute late in games to pull out a victory.`\
-https://nytimes.com/athletic/7148461/2026/03/26/rockets-timberwolves-overtime-loss-score-result/
 
