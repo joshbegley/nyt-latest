@@ -1,3 +1,11 @@
+**8 Days After Sex Abuse Revelations, California Renames Chavez Holiday**\
+`Gov. Gavin Newsom signed legislation to rename Cesar Chavez Day as “Farmworkers Day,” moving quickly before the March 31 holiday.`\
+https://nytimes.com/2026/03/26/us/california-cesar-chavez-day-rename.html
+
+**FKA twigs Says in Suit That Shia LaBeouf Had Her Sign ‘Illegal’ NDA**\
+`The suit said the nondisclosure agreement that was part of her court settlement with Mr. LaBeouf, her former boyfriend, effectively silenced her. His lawyer disputes that.`\
+https://nytimes.com/2026/03/26/arts/music/fka-twigs-lawsuit-shia-labeouf-nda.html
+
 **Sheriff in California Seizes More Ballots, Ignoring State Attorney General**\
 `Chad Bianco, the Riverside County sheriff and a Republican running for governor, is examining votes from 2025 after unsubstantiated claims of fraud.`\
 https://nytimes.com/2026/03/26/us/politics/california-sheriff-ballots-attorney-general.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7140938/2026/03/26/brazil-france-friendly-analysis-
 **Trump’s Signature to Be Added to U.S. Dollars**\
 `President Trump is set to be the first sitting president to have his signature appear on America’s currency.`\
 https://nytimes.com/2026/03/26/us/politics/trump-signature-us-dollars.html
-
-**Wall St. Bonuses Soared to $49.2 Billion. New York Hoped for Even More.**\
-`The city was counting on a 15 percent rise in bonuses to produce tax revenues to fill its budget gap. The actual increase was 9 percent, the state comptroller said.`\
-https://nytimes.com/2026/03/26/nyregion/wall-street-bonus.html
-
-**Tyler O'Neill's historic Opening Day home run streak ends**\
-`O’Neill’s streak shattered the previous record, which was held by three catchers: Todd Hundley, Gary Carter and Yogi Berra.`\
-https://nytimes.com/athletic/7150210/2026/03/26/baltimore-orioles-tyler-oneill-opening-day-home-run/
 
