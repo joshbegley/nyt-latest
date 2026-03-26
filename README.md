@@ -1,3 +1,7 @@
+**War Will Push U.S. Inflation Above 4 Percent This Year, O.E.C.D. Says**\
+`Higher energy prices and uncertainty over the war in the Middle East will boost inflation and weigh on economic growth, a new forecast says.`\
+https://nytimes.com/2026/03/26/business/inflation-prices-energy-iran-oecd.html
+
 **The Cubs are serious about a Series run, and they may have enough star power to do it**\
 `Everyone loves a winner. Chicago hungers for one. No one has to tell the Cubs what their goal is this year.`\
 https://nytimes.com/athletic/7145821/2026/03/26/cubs-opening-day-star-power-dodgers-world-series/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/26/world/europe/eu-trade-deal-us-european-parliament
 **Shield AI, a Start-Up Making Military Drones, Raises $2 Billion**\
 `The company, which develops autonomous military technology, also plans to buy a maker of simulation software as interest in next-generation defense soars.`\
 https://nytimes.com/2026/03/26/business/dealbook/shield-ai-drones-aechelon-fund-raising.html
-
-**Is Big Tech Facing a Big Tobacco Moment?**\
-`Back-to-back courtroom losses have put technology giants, including Meta and Google, in uncertain territory as they face lawsuits and bans on teen users.`\
-https://nytimes.com/2026/03/26/business/dealbook/meta-youtube-social-media-tobacco.html
 
