@@ -1,4 +1,12 @@
-**Trump Administration Launches Investigations Into Three Medical Schools**\
+**How many 2026 World Cup tickets are actually still available? A FIFA release offers clues**\
+`FIFA says it received ‘over 500 million ticket requests’ but only sold ‘over 1 million tickets.’ Huh? Here’s what that likely means`\
+https://nytimes.com/athletic/7149268/2026/03/26/fifa-world-cup-ticket-availability-last-sales-window/
+
+**Tom Brady inquired with NFL about return to play: 'They don't like that idea very much'**\
+`Brady, Fox's top NFL analyst and a minority owner of the Las Vegas Raiders, insists he's "very happily retired." `\
+https://nytimes.com/athletic/7149252/2026/03/26/tom-brady-nfl-return-inquiry/
+
+**Trump Administration Begins Investigations Into Three Medical Schools**\
 `The Justice Department’s demands for admissions-related data from Stanford, Ohio State and the University of California, San Diego, represent a flex of federal power.`\
 https://nytimes.com/2026/03/26/us/politics/trump-medical-schools-civil-rights.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7149549/2026/03/26/bulls-jaden-ivey-jalen-smith-inj
 **How to watch Avalanche vs. Jets: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the Winnipeg Jets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7149585/2026/03/26/avalanche-vs-jets-stream-how-to-watch-march-26/
-
-**How to watch Ducks vs. Flames: Time, TV, streaming**\
-`Find out how to watch the Anaheim Ducks play the Calgary Flames, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7149583/2026/03/26/ducks-vs-flames-stream-how-to-watch-march-26/
-
-**What we learned about the 2026 Giants (as they collapsed on a national stage)**\
-`The Giants laid an egg on Opening Night, but there were a few positives to take away from their performance.`\
-https://nytimes.com/athletic/7149435/2026/03/26/sf-giants-opening-night-takeaways/
 
