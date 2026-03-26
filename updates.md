@@ -1,3 +1,19 @@
+**Judge Stays Pentagon’s Labeling of Anthropic as ‘Supply Chain Risk’**\
+`The decision is an early victory for the artificial intelligence company in a rancorous legal battle with the Department of Justice.`\
+https://nytimes.com/2026/03/26/technology/anthropic-pentagon-risk-injunction.html
+
+**Boston College names UConn's Luke Murray head men's basketball coach**\
+`Bill Murray's son has spent the last five seasons as an assistant coach on Dan Hurley's UConn staff.`\
+https://nytimes.com/athletic/7150375/2026/03/26/boston-college-luke-murray-mens-basketball-coach/
+
+**Ireland's Szmodics knocked unconscious in World Cup playoff**\
+`Ireland manager Heimir Hallgrimsson confirmed at full time Szmodics had regained consciousness.`\
+https://nytimes.com/athletic/7150417/2026/03/26/sammie-szmodics-ireland-injury-update/
+
+**How Far Will Trump Go in Iran?**\
+`I asked an Iran hawk what victory looks like now.`\
+https://nytimes.com/video/opinion/100000010795916/how-far-will-trump-go-in-iran.html
+
 **Kennedy’s Vaccine Agenda Hits Roadblocks, Diminishing His Clout**\
 `Health Secretary Robert F. Kennedy Jr.’s vaccine skepticism is posing challenges for the Trump administration. Top health jobs are unfilled, and a court has blocked his vaccine schedule changes.`\
 https://nytimes.com/2026/03/26/us/politics/kennedy-vaccines-trump.html
