@@ -1,3 +1,11 @@
+**U.S. Accuses NewYork-Presbyterian of Reaching Deals That Kept Costs High**\
+`The Justice Department sued the large New York health system, saying it restricted insurance companies from offering patients cheaper options.`\
+https://nytimes.com/2026/03/26/business/federal-lawsuit-newyork-presbyterian.html
+
+**There’s a Lot to Like About This Chile Lime Roast Chicken**\
+`Both bright and a little spicy, the dish capitalizes on all the flavorful drippings by tucking carrots and baby potatoes under the bird.`\
+https://nytimes.com/2026/03/26/dining/theres-a-lot-to-like-about-this-chile-lime-roast-chicken.html
+
 **With early taste of playoffs, Thunder sense their lead atop West tightening**\
 `"I know what the standings are, but wherever the chips fall, they fall," Jalen Williams said as the Thunder prepare for postseason play.`\
 https://nytimes.com/athletic/7148835/2026/03/26/thunder-nba-playoffs-western-conference-lead-sga/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/03/26/business/europe-natural-gas-storage-iran-war.html
 **The head of NATO says Europe needs time to help secure the Strait of Hormuz.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2026/03/26/world/iran-war-israel-trump-oil/nato-rutte-strait-of-hormuz
-
-**Australia Temporarily Blocks Iranians With Visitor Visas From Entry**\
-`Iranian tourists with visas will be barred for six months in case they are ‘unable or unlikely’ to go back because of the war, Australian officials said.`\
-https://nytimes.com/2026/03/26/world/australia/oz-iran-visas.html
-
-**Glass Threads Spun From a Volcano’s Bubbly Magma**\
-`A volcanic formation known as Pele’s hair is produced when air-filled magma is stretched, according to a new study by a team of scientists and glass artists.`\
-https://nytimes.com/2026/03/26/science/volcanoes-peles-hair-science.html
 
