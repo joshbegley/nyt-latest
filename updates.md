@@ -1,3 +1,7 @@
+**Seven candidates to watch as NC State looks for Will Wade's replacement**\
+`NC State’s history of success — as one of just 15 schools with multiple national titles — and fan support make it an attractive opening.`\
+https://nytimes.com/athletic/7149624/2026/03/26/nc-state-basketball-coaching-search-candidates/
+
 **Caleb Williams’ ‘Iceman’ trademark challenged by NBA legend George Gervin**\
 `Gervin has used the "Iceman" nickname since 1973, and mistakenly thought he already held a trademark for the term.`\
 https://nytimes.com/athletic/7149732/2026/03/26/caleb-williams-iceman-trademark-challenged-george-gervin/
