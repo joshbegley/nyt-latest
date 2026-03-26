@@ -1,3 +1,7 @@
+**Here’s What Happened in the War in the Middle East on Thursday**\
+`For a second time, President Trump extended the deadline for Iran to fully reopen the Strait of Hormuz.`\
+https://nytimes.com/2026/03/26/world/middleeast/war-iran-us-israel-recap.html
+
 **Luis Robert and new-look Mets provide strong Opening Day impression**\
 `Carson Benge's homer and the lineup's patient approach against Paul Skenes made for an ideal tone-setter: "It gives you a lot of optimism."`\
 https://nytimes.com/athletic/7150329/2026/03/26/luis-robert-carson-benge-mets-opening-day/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/26/arts/music/fka-twigs-lawsuit-shia-labeouf-nda.htm
 **Sheriff in California Seizes More Ballots, Ignoring State Attorney General**\
 `Chad Bianco, the Riverside County sheriff and a Republican running for governor, is examining votes from 2025 after unsubstantiated claims of fraud.`\
 https://nytimes.com/2026/03/26/us/politics/california-sheriff-ballots-attorney-general.html
-
-**Sardi’s Sells Its Name and Takes a Brief Intermission**\
-`The longtime owner of the restaurant, a Theater District mainstay, is bowing out, and the Shubert Organization plans to reopen after a renovation, with the celebrity caricatures intact.`\
-https://nytimes.com/2026/03/26/nyregion/sardis-nyc-sold-shubert.html
 

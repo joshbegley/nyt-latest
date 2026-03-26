@@ -1,3 +1,19 @@
+**Luis Robert and new-look Mets provide strong Opening Day impression**\
+`Carson Benge's homer and the lineup's patient approach against Paul Skenes made for an ideal tone-setter: "It gives you a lot of optimism."`\
+https://nytimes.com/athletic/7150329/2026/03/26/luis-robert-carson-benge-mets-opening-day/
+
+**Trump Says He Will Sign Order to Pay T.S.A. Agents During Shutdown**\
+`President Trump said he would sign an emergency order to pay Transportation Security Administration agents, with an intensifying crisis at airports ahead of a busy travel weekend.`\
+https://nytimes.com/2026/03/26/us/politics/trump-tsa-agents-shutdown.html
+
+**As Markets Revolt in the Face of War, Trump Extends Iran Deadline**\
+`Just after stocks ended another bruising day, the president took to social media to promote progress in talks with Iran.`\
+https://nytimes.com/2026/03/26/world/middleeast/markets-revolt-trump-iran.html
+
+**World Cup play-offs: Who went through? What are the match-ups in the finals?**\
+`Both the European and intercontinental play-off finals take place on Tuesday after which all 48 teams will then be confirmed.`\
+https://nytimes.com/athletic/7149592/2026/03/26/world-cup-playoffs-italy-sweden-finals/
+
 **As Markets Revolt in the Face of War, Trump Extends Iran Deadline**\
 `Just before stocks ended another bruising day, the president took to social media to promote progress in talks with Iran.`\
 https://nytimes.com/2026/03/26/world/middleeast/markets-revolt-trump-iran.html
