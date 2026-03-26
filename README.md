@@ -1,3 +1,7 @@
+**Seven candidates to watch as NC State looks for Will Wade's replacement**\
+`NC State’s history of success — as one of just 15 schools with multiple national titles — and fan support make it an attractive opening.`\
+https://nytimes.com/athletic/7149624/2026/03/26/nc-state-basketball-coaching-search-candidates/
+
 **Caleb Williams’ ‘Iceman’ trademark challenged by NBA legend George Gervin**\
 `Gervin has used the "Iceman" nickname since 1973, and mistakenly thought he already held a trademark for the term.`\
 https://nytimes.com/athletic/7149732/2026/03/26/caleb-williams-iceman-trademark-challenged-george-gervin/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7149929/2026/03/26/illinois-vs-houston-stream-how-t
 **How to watch Arkansas vs. Arizona men's basketball: Sweet 16 Time, TV, streaming**\
 `Find out how to watch the Arkansas Razorbacks play the Arizona Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7149922/2026/03/26/arkansas-vs-arizona-stream-how-to-watch-march-26/
-
-**For Sperm Whales, Having a Baby Is a Group Effort**\
-`Researchers filmed a sperm whale giving birth in the wild, an event that is rarely documented. Project CETI, a whale research group, observed 11 sperm whales come together to assist the birth off the coast of Dominica in the Caribbean in July 2023.`\
-https://nytimes.com/video/climate/100000010799533/sperm-whale-birth.html
 
