@@ -1,3 +1,19 @@
+**U.S. Accuses NewYork-Presbyterian of Reaching Deals That Kept Costs High**\
+`The Justice Department sued the large New York health system, saying it restricted insurance companies from offering patients cheaper options.`\
+https://nytimes.com/2026/03/26/business/federal-lawsuit-newyork-presbyterian.html
+
+**There’s a Lot to Like About This Chile Lime Roast Chicken**\
+`Both bright and a little spicy, the dish capitalizes on all the flavorful drippings by tucking carrots and baby potatoes under the bird.`\
+https://nytimes.com/2026/03/26/dining/theres-a-lot-to-like-about-this-chile-lime-roast-chicken.html
+
+**With early taste of playoffs, Thunder sense their lead atop West tightening**\
+`"I know what the standings are, but wherever the chips fall, they fall," Jalen Williams said as the Thunder prepare for postseason play.`\
+https://nytimes.com/athletic/7148835/2026/03/26/thunder-nba-playoffs-western-conference-lead-sga/
+
+**Brewers place Jackson Chourio on IL with hand injury**\
+`The move is retroactive to Wednesday, and Milwaukee recalled Blake Perkins from the Triple-A Nashville Sounds to fill the roster spot.`\
+https://nytimes.com/athletic/7149022/2026/03/26/jackson-chourio-injury-brewers-opening-day/
+
 **NBA Awards Watch: Breaking down Wemby's own MVP criteria**\
 `The Spurs' superstar laid out what he thinks is important in the race. How do his fellow contenders stack up?`\
 https://nytimes.com/athletic/7145971/2026/03/26/nba-awards-mvp-victor-wembanyama-sga-jokic/
