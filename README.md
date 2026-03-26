@@ -1,3 +1,7 @@
+**Lawmakers Press to Limit Prediction Bets by Policymakers**\
+`New bills aim to crack down on prediction-market bets by the president and members of Congress.`\
+https://nytimes.com/2026/03/26/us/politics/congress-betting-ban.html
+
 **‘Yes’ Review: From Israel, an Uncomfortable Existential Howl**\
 `Nadav Lapid’s scathing tone and accelerated rhythms lead this movie about a married couple who ingratiate themselves with the country’s power elite.`\
 https://nytimes.com/2026/03/26/movies/yes-review-israel.html
