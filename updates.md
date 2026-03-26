@@ -1,3 +1,19 @@
+**How to watch Kings vs. Canucks: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Kings play the Vancouver Canucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7149889/2026/03/26/kings-vs-canucks-stream-how-to-watch-march-26/
+
+**Paul Skenes makes shortest start of his career as Team USA stars struggle on Opening Day**\
+`Team USA's top starting pitchers during the World Baseball Classic had Opening Day outings they'd like to forget. So did Aaron Judge.`\
+https://nytimes.com/athletic/7149716/2026/03/26/paul-skenes-shortest-start-wbc-stars-opening-day-struggles/
+
+**How to watch Oilers vs. Golden Knights: Time, TV, streaming**\
+`Find out how to watch the Edmonton Oilers play the Vegas Golden Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7149875/2026/03/26/oilers-vs-golden-knights-stream-how-to-watch-march-26/
+
+**How to watch Guardians vs. Mariners: Time, TV, streaming for March 26**\
+`Find out how to watch the Cleveland Guardians play the Seattle Mariners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7149851/2026/03/26/guardians-vs-mariners-stream-how-to-watch-march-26/
+
 **Judge Questions Why U.S. Is Blocking Maduro’s Defense Funding**\
 `The U.S. government has blocked Venezuela from paying for its former leader’s defense lawyers. In a hearing, a judge said repeatedly that the former president’s right to his own defense was “paramount.”`\
 https://nytimes.com/2026/03/26/nyregion/maduro-venezuela-court-manhattan.html
