@@ -1,3 +1,11 @@
+**Mamdani Now Plans $1.3 Billion in Cuts in Programs That He Favored**\
+`Mayor Zohran Mamdani is banking on savings from a delay he is seeking in the state mandate for smaller class sizes. He is also scaling back a commitment to expand a rental assistance program.`\
+https://nytimes.com/2026/03/25/nyregion/mamdani-budget-cuts.html
+
+**Trump’s ‘Brute Force Imperialism’**\
+`From saber rattling over Greenland to war with Iran, the Opinion columnist Jamelle Bouie argues, treating the world like a game of Risk has left America in its weakest position since World War II.`\
+https://nytimes.com/video/opinion/100000010801529/trumps-brute-force-imperialism.html
+
 **Kevin McGonigle's major-league moment is here, plus more on the Tigers' roster**\
 `"This roster is pretty darn good with or without Kevin. We just think it's better with him on it," Scott Harris said.`\
 https://nytimes.com/athletic/7147801/2026/03/25/detroit-tigers-roster-kevin-mcgonigle/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/25/podcasts/serial-the-idiot-episode-2.html
 **The Idiot: Chapter 1**\
 `The New York Times writer M. Gessen always disliked their younger cousin Allen. But then he did something so bad, even M. was surprised – and they realized they didn’t know Allen at all.`\
 https://nytimes.com/2026/03/25/podcasts/serial-the-idiot-prologue-episode-1.html
-
-**N.Y.P.D. Inspector Accused of Groping an Officer Is Stripped of His Gun**\
-`After a policewoman in the Bronx complained that an inspector was sexually harassing and groping her, he remained her supervisor for more than a year, according to her lawsuit.`\
-https://nytimes.com/2026/03/25/nyregion/nypd-inspector-groping-gun.html
-
-**‘Love Story’ Is Actually A Horror Story**\
-`Wesley Morris and Sasha Weiss, the culture editor of The New York Times Magazine, on FX’s streaming hit “Love Story: John F. Kennedy Jr. & Carolyn Bessette.”`\
-https://nytimes.com/video/podcasts/100000010799675/love-story-is-actually-a-horror-story.html
 
