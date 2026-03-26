@@ -1,3 +1,7 @@
+**With Joel Embiid and Paul George back, the Sixers look complete again**\
+`For one night, Philadelphia played almost flawless basketball in its 157-137 defeat of Chicago. `\
+https://nytimes.com/athletic/7147923/2026/03/26/sixers-win-bulls-joel-embiid-paul-george-return/
+
 **Word of the Day: exemplary**\
 `This word has appeared in 180 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/26/learning/word-of-the-day-exemplary.html
