@@ -2,6 +2,10 @@
 `Which Brighton players could be heading to this summer's World Cup, and who could miss out...`\
 https://nytimes.com/athletic/7111078/2026/03/26/brighton-world-cup-2026-players/
 
+**Why have Chelsea stopped scoring goals?**\
+`Chelsea have not stopped creating, but they have eased off the pedal when it comes to the speed of their attacks`\
+https://nytimes.com/athletic/7146668/2026/03/26/chelsea-goal-drought-rosenior-tactics-premier-league/
+
 **World Cup play-off predictions: Gyokeres vs Lewandowski? Italian woe? Guler, Yildiz to star?**\
 `By the end of these playoffs, we will know the full 48-team makeup of this summer's World Cup - but who could go through?`\
 https://nytimes.com/athletic/7107609/2026/03/26/world-cup-playoff-predictions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7143206/2026/03/26/premier-league-players-internati
 **Bukayo Saka, the load of expectation and what's changed this season**\
 `The 24-year-old has Arsenal's leading man since he was 18. This season, there has been a drop-off, but why?`\
 https://nytimes.com/athletic/7146116/2026/03/26/arsenal-bukayo-saka-performance/
-
-**Brentford fans, are you optimistic about the rest of the season?**\
-`The Athletic is bringing back its hope-o-meter for the rest of the season`\
-https://nytimes.com/athletic/7144633/2026/03/26/brentford-fans-hope-o-meter/
 
