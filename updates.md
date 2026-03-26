@@ -1,3 +1,15 @@
+**The Pulse: The 2026 World Series champs***\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7147089/2026/03/26/mlb-opening-day-2026-the-pulse/
+
+**With no Cinderellas, how do Sweet 16 men's basketball programs compare financially?**\
+`It’s clear you’ve got to spend money to make money — and to make the Sweet 16.`\
+https://nytimes.com/athletic/7147281/2026/03/26/ncaa-tournament-sweet-16-teams-finances/
+
+**What makes Purdue a March Madness outlier? Retention in a world of movement**\
+`Purdue has three starters who have been with the program four-plus years, a rarity in modern college basketball.`\
+https://nytimes.com/athletic/7147870/2026/03/26/purdue-basketball-ncaa-tournament-smith-kaufman-renn-loyer/
+
 **Panthers NFL Draft big board: 28 prospects who could fit rounds 1-3**\
 `After checking off several boxes in free agency, GM Dan Morgan created flexibility that will allow him to draft the best players available.`\
 https://nytimes.com/athletic/7147275/2026/03/26/carolina-panthers-nfl-draft-big-board-picks/
