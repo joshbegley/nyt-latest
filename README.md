@@ -1,3 +1,7 @@
+**Caitlin Clark can shoot 3s. Now she's shooting photographs**\
+`Wearing a Pacers photographer’s vest, the two-time WNBA All-Star was spotted sitting baseline with other working photographers alongside.`\
+https://nytimes.com/athletic/7147805/2026/03/25/caitlin-clark-photography-pacers-lakers-nba/
+
 **ICE Agents at Some Airports Begin Checking IDs in Security Lines**\
 `It was unclear whether having agents helping with screening passengers would improve wait times. Some travelers expressed worries.`\
 https://nytimes.com/2026/03/25/us/ice-airports-checking-ids-security.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010799675/love-story-is-actually-a-horr
 **Billy Donovan doesn't deny interest in UNC job but says focus is on Bulls**\
 `Donovan was the architect of the University of Florida dynasty, leading the Gators to consecutive titles in 2006 and 2007.`\
 https://nytimes.com/athletic/7147755/2026/03/25/billy-donovan-unc-basketball-coaching-search-north-carolina/
-
-**Padres pitcher Yu Darvish agrees to go on restricted list**\
-`The move could create enough flexibility for San Diego to pursue Lucas Giolito, the top remaining starter in free agency.`\
-https://nytimes.com/athletic/7147685/2026/03/25/yu-darvish-padres-restricted-list/
 
