@@ -1,3 +1,12 @@
+**Zelensky Says U.S. Is Conditioning Security Guarantees on Surrender of Donbas**\
+`President Volodymyr Zelensky of Ukraine said that President Trump “still chooses a strategy of putting more pressure on the Ukrainian side.”`\
+https://nytimes.com/2026/03/26/world/europe/zelensky-trump-ukraine-war-donbas.html
+
+**The Bounce: 5 burning questions about NBA expansion**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7148871/2026/03/26/nba-expansion-seattle-las-vegas-the-bounce-2/
+
 **The Bounce: 5 burning questions about NBA expansion**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.
 `\
