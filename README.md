@@ -1,3 +1,15 @@
+**Judge Stays Pentagon’s Labeling of Anthropic as ‘Supply Chain Risk’**\
+`The decision is an early victory for the artificial intelligence company in a rancorous legal battle with the Department of Justice.`\
+https://nytimes.com/2026/03/26/technology/anthropic-pentagon-risk-injunction.html
+
+**Boston College names UConn's Luke Murray head men's basketball coach**\
+`Bill Murray's son has spent the last five seasons as an assistant coach on Dan Hurley's UConn staff.`\
+https://nytimes.com/athletic/7150375/2026/03/26/boston-college-luke-murray-mens-basketball-coach/
+
+**Ireland's Szmodics knocked unconscious in World Cup playoff**\
+`Ireland manager Heimir Hallgrimsson confirmed at full time Szmodics had regained consciousness.`\
+https://nytimes.com/athletic/7150417/2026/03/26/sammie-szmodics-ireland-injury-update/
+
 **How Far Will Trump Go in Iran?**\
 `I asked an Iran hawk what victory looks like now.`\
 https://nytimes.com/video/opinion/100000010795916/how-far-will-trump-go-in-iran.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/26/us/politics/trump-tsa-agents-shutdown.html
 **As Markets Revolt in the Face of War, Trump Extends Iran Deadline**\
 `Just after stocks ended another bruising day, the president took to social media to promote progress in talks with Iran.`\
 https://nytimes.com/2026/03/26/world/middleeast/markets-revolt-trump-iran.html
-
-**D.H.S. Funding Lapse Leads to Longest Partial Shutdown in History**\
-`If the shutdown continues after this weekend, it will be longer than any previous shutdown, partial or full.`\
-https://nytimes.com/2026/03/26/us/politics/dhs-shutdown-longest-history.html
-
-**Missile Hits Town in Central Israel**\
-`Video footage shows two people in central Israel barely missing being hit by what the Israeli military said was bomblet from an Iranian cluster bomb.`\
-https://nytimes.com/video/world/middleeast/100000010803010/missile-strikes-israel-iran.html
-
-**World Cup play-offs: Who went through? What are the match-ups in the finals?**\
-`Both the European and intercontinental play-off finals take place on Tuesday after which all 48 teams will then be confirmed.`\
-https://nytimes.com/athletic/7149592/2026/03/26/world-cup-playoffs-italy-sweden-finals/
 
