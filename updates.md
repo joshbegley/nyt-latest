@@ -1,3 +1,7 @@
+**UWCL first-leg defeat to Bayern shows Manchester United must narrow the small margins**\
+`Champions League quarter-finals are all about margins and in them, Bayern were simply more robust, more physical, more savvy, more secure`\
+https://nytimes.com/athletic/7147937/2026/03/26/manchester-united-bayern-uwcl/
+
 **Out the Door**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2026/03/26/learning/out-the-door.html

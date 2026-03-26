@@ -19,7 +19,7 @@ https://nytimes.com/2026/03/26/nyregion/mamdani-isis-bomb.html
 https://nytimes.com/2026/03/26/crosswords/spelling-bee-forum.html
 
 **UWCL first-leg defeat to Bayern shows Manchester United must narrow the small margins**\
-`Champions League quarter-finals are all about margins and in them Bayern were simply more robust, more physical, more savvy, more secure`\
+`Champions League quarter-finals are all about margins and in them, Bayern were simply more robust, more physical, more savvy, more secure`\
 https://nytimes.com/athletic/7147937/2026/03/26/manchester-united-bayern-uwcl/
 
 **With Joel Embiid and Paul George back, the Sixers look complete again**\
