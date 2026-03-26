@@ -1,3 +1,7 @@
+**Robert Fox, Acclaimed Producer in Britain and on Broadway, Dies at 73**\
+`A favorite of actors like Maggie Smith, he produced dozens of plays, including “The Audience,” about Queen Elizabeth II, which was made into the Netflix show “The Crown.”`\
+https://nytimes.com/2026/03/26/theater/robert-fox-dead.html
+
 **Seven candidates to watch as NC State looks for Will Wade's replacement**\
 `NC State’s history of success — as one of just 15 schools with multiple national titles — and fan support make it an attractive opening.`\
 https://nytimes.com/athletic/7149624/2026/03/26/nc-state-basketball-coaching-search-candidates/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/26/us/missouri-truck-tofu-i-44.html
 **How to watch Illinois vs. Houston men's basketball: Sweet 16 Time, TV, streaming**\
 `Find out how to watch the Illinois Fighting Illini play the Houston Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7149929/2026/03/26/illinois-vs-houston-stream-how-to-watch-march-26/
-
-**How to watch Arkansas vs. Arizona men's basketball: Sweet 16 Time, TV, streaming**\
-`Find out how to watch the Arkansas Razorbacks play the Arizona Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7149922/2026/03/26/arkansas-vs-arizona-stream-how-to-watch-march-26/
 

@@ -1,3 +1,7 @@
+**Robert Fox, Acclaimed Producer in Britain and on Broadway, Dies at 73**\
+`A favorite of actors like Maggie Smith, he produced dozens of plays, including “The Audience,” about Queen Elizabeth II, which was made into the Netflix show “The Crown.”`\
+https://nytimes.com/2026/03/26/theater/robert-fox-dead.html
+
 **Seven candidates to watch as NC State looks for Will Wade's replacement**\
 `NC State’s history of success — as one of just 15 schools with multiple national titles — and fan support make it an attractive opening.`\
 https://nytimes.com/athletic/7149624/2026/03/26/nc-state-basketball-coaching-search-candidates/
