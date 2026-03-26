@@ -1,3 +1,19 @@
+**Crossplay Game Review**\
+`Review your recent games.`\
+https://nytimes.com/interactive/2026/upshot/crossplay-game-review-landing.html
+
+**Contemporary Opera Doesn’t Need to ‘Challenge’ Audiences**\
+`With a musical language they can appreciate, Americans could more easily find opera’s appeal.`\
+https://nytimes.com/2026/03/26/opinion/new-american-opera.html
+
+**What’s Going On in This Graph? | April 8, 2026**\
+`How much screen time are students getting at school?`\
+https://nytimes.com/2026/03/26/learning/whats-going-on-in-this-graph-april-8-2026.html
+
+**What’s Going On in This Picture? | March 30, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2026/03/26/learning/whats-going-on-in-this-picture-march-30-2026.html
+
 **The Disgusting Reason a Staten Island Creek Turned Bright Green**\
 `The emerald tint to the Clove Lakes Park stream helped confirm long-held suspicions about what might be leaking from toilets.`\
 https://nytimes.com/2026/03/26/nyregion/nyc-creek-green-park-toilets.html

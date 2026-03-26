@@ -1,3 +1,19 @@
+**Crossplay Game Review**\
+`Review your recent games.`\
+https://nytimes.com/interactive/2026/upshot/crossplay-game-review-landing.html
+
+**Contemporary Opera Doesn’t Need to ‘Challenge’ Audiences**\
+`With a musical language they can appreciate, Americans could more easily find opera’s appeal.`\
+https://nytimes.com/2026/03/26/opinion/new-american-opera.html
+
+**What’s Going On in This Graph? | April 8, 2026**\
+`How much screen time are students getting at school?`\
+https://nytimes.com/2026/03/26/learning/whats-going-on-in-this-graph-april-8-2026.html
+
+**What’s Going On in This Picture? | March 30, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2026/03/26/learning/whats-going-on-in-this-picture-march-30-2026.html
+
 **The Disgusting Reason a Staten Island Creek Turned Bright Green**\
 `The emerald tint to the Clove Lakes Park stream helped confirm long-held suspicions about what might be leaking from toilets.`\
 https://nytimes.com/2026/03/26/nyregion/nyc-creek-green-park-toilets.html
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/7149691/2026/03/26/chelsea-nottingham-forest-punish
 **Past, present tales of the urgency and pressure of USMNT's last pre-World Cup camp**\
 `The aura around the last camp before a World Cup squad is picked is just different, which is what USMNT players are currently experiencing`\
 https://nytimes.com/athletic/7146914/2026/03/26/usmnt-last-world-cup-window-camp-roster/
-
-**Winter Sea Ice in the Arctic Ties a Record Low**\
-`Ice plays a vital role in reflecting away planet-warming sunlight. The Arctic is warming much faster than most other parts of the world.`\
-https://nytimes.com/2026/03/26/climate/arctic-sea-ice-ties-record-low.html
-
-**Safety Experts Considered LaGuardia Challenging but Not an Outlier**\
-`Regulators, pilots and others in aviation have worried about the kind of runway accident that happened at LaGuardia Airport on Sunday.`\
-https://nytimes.com/2026/03/26/business/laguardia-airport-air-canada-safety.html
-
-**‘Because I’m President’: Trump Defends His Use of Mail Voting**\
-`President Trump wants to restrict voting by mail, which he says amounts to “cheating.” But he defended his own use of the practice in a special election this week.`\
-https://nytimes.com/2026/03/26/us/politics/trump-mail-in-voting-florida.html
-
-**These Airports Don’t Use T.S.A. Your Current Wait: Minutes, Not Hours.**\
-`A handful of airports, including San Francisco and Kansas City International, participate in a program that lets them rely on private screeners instead of T.S.A. agents.`\
-https://nytimes.com/2026/03/26/travel/tsa-airports-shutdown-security-sfo-mci.html
 
