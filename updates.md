@@ -1,3 +1,15 @@
+**Verstappen ejects journalist from Japan F1 media session over Abu Dhabi question**\
+`Verstappen interjected at his pre-race weekend media briefing before the first question could be asked.`\
+https://nytimes.com/athletic/7148514/2026/03/26/verstappen-press-conference-journalist-question/
+
+**2026 NFL Draft rankings: Is Jeremiyah Love this year's best prospect?**\
+`The 2026 draft class hasn't generated the same buzz as classes in recent years, but there's still ample high-end talent to be found.`\
+https://nytimes.com/athletic/7141775/2026/03/26/nfl-draft-rankings-2026-jeremiyah-love-best-prospect/
+
+**Bryan Zamble leads the way as a generation of African soccer talent heads for San Diego**\
+`The 18-year-old Right to Dream graduate from Ivory Coast scored on debut for San Diego`\
+https://nytimes.com/athletic/7080483/2026/03/26/bryan-zamble-leads-the-way-as-a-generation-of-african-soccer-talent-heads-for-san-diego/
+
 **Coco Gauff sometimes feels like a tennis impostor, but she knows the ball doesn't lie**\
 `Gauff's latest journey into improving her two most important shots has challenged her sense of her own tennis.`\
 https://nytimes.com/athletic/7147873/2026/03/26/tennis-coco-gauff-impostor-syndrome/
