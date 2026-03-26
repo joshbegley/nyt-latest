@@ -1,3 +1,7 @@
+**Trump Eyes White House Treaty Room for Latest Renovation Project**\
+`President Trump is making new plans in one of the most significant renovations in the history of the White House.`\
+https://nytimes.com/2026/03/26/us/trump-eyes-white-house-treaty-room-for-latest-renovation-project.html
+
 **Lawmakers Press to Limit Prediction Bets by Policymakers**\
 `New bills aim to crack down on prediction-market bets by the president and members of Congress.`\
 https://nytimes.com/2026/03/26/us/politics/congress-betting-ban.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/26/us/catholics-converts.html
 **Where Trump Has Installed Election Deniers in Government**\
 `His administration is stocked with people who have questioned the legitimacy of elections, including some who have claimed that the 2020 presidential race was stolen.`\
 https://nytimes.com/interactive/2026/03/26/us/politics/trump-2020-election-deniers.html
-
-**Four Problems for Trump in Birthright Citizenship Case**\
-`The president must confront a 1952 federal law, the possibility that millions will lose their citizenships, stateless foundlings and a fluid future.`\
-https://nytimes.com/2026/03/26/us/the-docket-birthright-citizenship-trump.html
 
