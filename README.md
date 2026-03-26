@@ -1,3 +1,7 @@
+**Tyler O'Neill's historic Opening Day home run streak ends**\
+`O’Neill’s streak shattered the previous record, which was held by three catchers: Todd Hundley, Gary Carter and Yogi Berra.`\
+https://nytimes.com/athletic/7150210/2026/03/26/baltimore-orioles-tyler-oneill-opening-day-home-run/
+
 **Italy 2 Northern Ireland 0: Sandro Tonali proves he is World Cup worthy - but are his team?**\
 `Analysing the major talking points from Thursday's World Cup playoff semi-final in Bergamo`\
 https://nytimes.com/athletic/7136298/2026/03/26/italy-northern-ireland-world-cup-playoff-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/26/world/middleeast/war-displaced-beirut.html
 **Sam Kieth, Creator of Surreal Comic Book Series The Maxx, Dies at 63**\
 `A cocreator of Neil Gaiman’s Sandman series, he dreamed up a character who is homeless in the real world and a superhero in a subconscious realm. It was adapted for an MTV series.`\
 https://nytimes.com/2026/03/26/arts/sam-kieth-dead.html
-
-**Michigan's Lendeborg 'hurt' Bama didn't recruit him, downplays Kentucky NIL comments**\
-`Lendeborg and Michigan take on Alabama in the Sweet 16 on Friday.`\
-https://nytimes.com/athletic/7150083/2026/03/26/yaxel-lendeborg-michigan-recruitment-alabama-kentucky/
 
