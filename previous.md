@@ -1,3 +1,7 @@
+**‘Yes’ Review: From Israel, an Uncomfortable Existential Howl**\
+`Nadav Lapid’s scathing tone and accelerated rhythms lead this movie about a married couple who ingratiate themselves with the country’s power elite.`\
+https://nytimes.com/2026/03/26/movies/yes-review-israel.html
+
 **Ipswich Town and Nigel Farage: A private lunch, free shirts, and staff complaints**\
 `The visit by the Reform UK leader, and Ipswich's account of the visit being undermined, has prompted a fan backlash`\
 https://nytimes.com/athletic/7146892/2026/03/26/ipswich-town-nigel-farage-reform-uk/
@@ -25,8 +29,4 @@ https://nytimes.com/interactive/2026/03/26/us/politics/trump-2020-election-denie
 **Four Problems for Trump in Birthright Citizenship Case**\
 `The president must confront a 1952 federal law, the possibility that millions will lose their citizenships, stateless foundlings and a fluid future.`\
 https://nytimes.com/2026/03/26/us/the-docket-birthright-citizenship-trump.html
-
-**Under Carney, Canada Finally Hits NATO’s 2% Spending Target**\
-`Trump and other American presidents have criticized Canada for failing to meet the alliance’s military spending minimum of 2 percent of gross domestic product.`\
-https://nytimes.com/2026/03/26/world/canada/carney-canada-nato-spending.html
 

@@ -1,3 +1,7 @@
+**‘Yes’ Review: From Israel, an Uncomfortable Existential Howl**\
+`Nadav Lapid’s scathing tone and accelerated rhythms lead this movie about a married couple who ingratiate themselves with the country’s power elite.`\
+https://nytimes.com/2026/03/26/movies/yes-review-israel.html
+
 **Ipswich Town and Nigel Farage: A private lunch, free shirts, and staff complaints**\
 `The visit by the Reform UK leader, and Ipswich's account of the visit being undermined, has prompted a fan backlash`\
 https://nytimes.com/athletic/7146892/2026/03/26/ipswich-town-nigel-farage-reform-uk/
