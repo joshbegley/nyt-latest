@@ -1,3 +1,7 @@
+**Senegal to present AFCON trophy in Paris despite having title stripped**\
+`At a press conference, a lawyer for Senegal said Morocco had been unsuccessful in attempts to have the medals and prize money given to them.`\
+https://nytimes.com/athletic/7148636/2026/03/26/senegal-afcon-trophy-morocco-paris/
+
 **War Will Push U.S. Inflation Above 4 Percent This Year, O.E.C.D. Says**\
 `Higher energy prices and uncertainty over the war in the Middle East will boost inflation and weigh on economic growth, a new forecast says.`\
 https://nytimes.com/2026/03/26/business/inflation-prices-energy-iran-oecd.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7147973/2026/03/26/canada-world-cup-goalkeeper-stcl
 **After ‘Sausage Making,’ European Lawmakers Approve U.S. Trade Deal**\
 `The trade deal that President Trump struck with the European Union has cleared a major hurdle that delayed it for months.`\
 https://nytimes.com/2026/03/26/world/europe/eu-trade-deal-us-european-parliament.html
-
-**Shield AI, a Start-Up Making Military Drones, Raises $2 Billion**\
-`The company, which develops autonomous military technology, also plans to buy a maker of simulation software as interest in next-generation defense soars.`\
-https://nytimes.com/2026/03/26/business/dealbook/shield-ai-drones-aechelon-fund-raising.html
 

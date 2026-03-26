@@ -35,6 +35,6 @@ https://nytimes.com/athletic/7146782/2026/03/26/packers-depth-chart-draft-free-a
 https://nytimes.com/athletic/7147973/2026/03/26/canada-world-cup-goalkeeper-stclair-crepeau-marsch/
 
 **After ‘Sausage Making,’ European Lawmakers Approve U.S. Trade Deal**\
-`The trade deal that President Trump struck with the European Union has cleared a major hurdle that delayed it for months.`\
+`The agreement that President Trump struck with the European Union has cleared a major hurdle that delayed it for months.`\
 https://nytimes.com/2026/03/26/world/europe/eu-trade-deal-us-european-parliament.html
 

@@ -1,3 +1,7 @@
+**Senegal to present AFCON trophy in Paris despite having title stripped**\
+`At a press conference, a lawyer for Senegal said Morocco had been unsuccessful in attempts to have the medals and prize money given to them.`\
+https://nytimes.com/athletic/7148636/2026/03/26/senegal-afcon-trophy-morocco-paris/
+
 **War Will Push U.S. Inflation Above 4 Percent This Year, O.E.C.D. Says**\
 `Higher energy prices and uncertainty over the war in the Middle East will boost inflation and weigh on economic growth, a new forecast says.`\
 https://nytimes.com/2026/03/26/business/inflation-prices-energy-iran-oecd.html
