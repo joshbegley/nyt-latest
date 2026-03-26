@@ -1,3 +1,11 @@
+**The Disgusting Reason a Staten Island Creek Turned Bright Green**\
+`The emerald tint to the Clove Lakes Park stream helped confirm long-held suspicions about what might be leaking from toilets.`\
+https://nytimes.com/2026/03/26/nyregion/nyc-creek-green-park-toilets.html
+
+**On Trump’s Mind: Iran, Inflation and Sharpies**\
+`President Trump waxed on about the virtues of the pen, calling it more economical and a better instrument than the fancier writing tools preferred by his predecessors.`\
+https://nytimes.com/2026/03/26/us/politics/trump-sharpies-pens-fact-check.html
+
 **Tamika Catchings, Chamique Holdsclaw joining USA Network's WNBA broadcast team**\
 `The Tennessee legends will team up with a crew that already includes Kate Scott as the lead play-by-play announcer.`\
 https://nytimes.com/athletic/7149682/2026/03/26/tamika-catchings-chamique-holdsclaw-usa-network-wnba/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/03/26/us/politics/trump-mail-in-voting-florida.html
 **These Airports Don’t Use T.S.A. Your Current Wait: Minutes, Not Hours.**\
 `A handful of airports, including San Francisco and Kansas City International, participate in a program that lets them rely on private screeners instead of T.S.A. agents.`\
 https://nytimes.com/2026/03/26/travel/tsa-airports-shutdown-security-sfo-mci.html
-
-**Savannah Guthrie Says She Believes Her Mother Was Taken for Ransom**\
-`Savannah Guthrie spoke on the “Today” show in her first interview since her mother, Nancy Guthrie, was abducted from her home near Tuscon, Ariz.`\
-https://nytimes.com/video/us/100000010802716/savannah-nancy-guthrie-today-interview.html
-
-**What Teenagers Are Saying About How Pets Have Improved Their Lives**\
-`Students reflect on research that shows pets keep you healthier and share the profound bonds they’ve made with their animal companions.`\
-https://nytimes.com/2026/03/26/learning/what-teenagers-are-saying-about-how-pets-have-improved-their-lives.html
 
