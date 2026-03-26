@@ -1,3 +1,7 @@
+**Formal Agreement**\
+`Is Alex Murphy practicing reverse psychology on us?`\
+https://nytimes.com/2026/03/25/crosswords/daily-puzzle-2026-03-26.html
+
 **Strike call upheld in MLB's first ABS challenge in Yankees-Giants season opener**\
 `In the first ABS challenge, the robot ump actually proved the human had it right. The Netflix broadcast appeared unprepared for the moment.`\
 https://nytimes.com/athletic/7144370/2026/03/25/first-mlb-abs-challenge-yankees-giants/

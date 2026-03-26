@@ -1,3 +1,7 @@
+**Formal Agreement**\
+`Is Alex Murphy practicing reverse psychology on us?`\
+https://nytimes.com/2026/03/25/crosswords/daily-puzzle-2026-03-26.html
+
 **F1 energy rules tweaked for Japanese Grand Prix in bid to improve qualifying**\
 `Drivers and teams pushed back, so the 2026 regs have been tweaked at Suzuka to keep qualifying a flat-out challenge`\
 https://nytimes.com/athletic/7147979/2026/03/25/f1-rules-change-qualifying-japanese-grand-prix/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7147805/2026/03/25/caitlin-clark-photography-pacers
 **ICE Agents at Some Airports Begin Checking IDs in Security Lines**\
 `It was unclear whether having agents helping with screening passengers would improve wait times. Some travelers expressed worries.`\
 https://nytimes.com/2026/03/25/us/ice-airports-checking-ids-security.html
-
-**The Idiot: Chapter 5**\
-`With Allen set to be released in a few years, M. wonders if he will be able to come back into the family fold.`\
-https://nytimes.com/2026/03/25/podcasts/serial-the-idiot-epilogue-episode-5.html
 
