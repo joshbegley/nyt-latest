@@ -1,3 +1,7 @@
+**PSG successful in request for free weekend between Liverpool Champions League games**\
+`PSG were also granted the weekend off between their two games against Chelsea in the previous round of the competition.`\
+https://nytimes.com/athletic/7148667/2026/03/26/psg-liverpool-champions-league-games/
+
 **U.S. Military Kills 4 People in Boat Strike in Caribbean**\
 `At least 163 people have been killed in the Trump administration’s campaign against suspected drug smuggling.`\
 https://nytimes.com/2026/03/26/us/politics/boat-strikes-caribbean.html

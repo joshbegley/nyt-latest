@@ -1,3 +1,11 @@
+**The Cubs are serious about a Series run, and they may have enough star power to do it**\
+`Everyone loves a winner. Chicago hungers for one. No one has to tell the Cubs what their goal is this year.`\
+https://nytimes.com/athletic/7145821/2026/03/26/cubs-opening-day-star-power-dodgers-world-series/
+
+**Dodgers' Freddie Freeman on winning, aging and being mad about batting average: a Q&A**\
+`Freeman enters his 17th season with wisdom, gratitude and a stubborn reliance on his routine: "I never change."`\
+https://nytimes.com/athletic/7147768/2026/03/26/dodgers-freddie-freeman-preview-interview/
+
 **PSG successful in request for free weekend between Liverpool Champions League games**\
 `PSG were also granted the weekend off between their two games against Chelsea in the previous round of the competition.`\
 https://nytimes.com/athletic/7148667/2026/03/26/psg-liverpool-champions-league-games/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/26/business/dealbook/shield-ai-drones-aechelon-fund-
 **Is Big Tech Facing a Big Tobacco Moment?**\
 `Back-to-back courtroom losses have put technology giants, including Meta and Google, in uncertain territory as they face lawsuits and bans on teen users.`\
 https://nytimes.com/2026/03/26/business/dealbook/meta-youtube-social-media-tobacco.html
-
-**Savannah Guthrie Says Mother’s Abduction Was Probably a Ransom Attempt**\
-`Her interview on the “Today” show came more than 50 days after her mother, Nancy Guthrie, was taken from her home near Tucson, Ariz.`\
-https://nytimes.com/2026/03/26/us/savannah-guthrie-interview.html
-
-**Trump Administration Live Updates: President Is Set to Miss Deadline to Nominate C.D.C. Director**\
-``\
-https://nytimes.com/live/2026/03/26/us/trump-news
 
