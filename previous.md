@@ -1,3 +1,23 @@
+**Iran Acts as Gatekeeper of Hormuz as War Drags On**\
+`Iran has allowed a small number of vessels to pass, but that won’t alleviate pressure or risk for the shipping industry and energy markets any time soon.`\
+https://nytimes.com/2026/03/26/business/iran-war-ships-strait-of-hormuz.html
+
+**Train tickets between Boston and Gillette Stadium to almost quadruple in cost during World Cup**\
+`According to sources familiar with the planning, individuals will be charged around or even more than $75 per-person for a return ticket.`\
+https://nytimes.com/athletic/7150121/2026/03/26/boston-gillette-stadium-train-tickets-world-cup/
+
+**Rubio Says Allies Should Help Secure Strait by Iran for Oil and Gas Ships**\
+`The secretary of state said the United States and Iran were passing messages to each other as he headed to France for a diplomatic meeting of the Group of 7 nations.`\
+https://nytimes.com/2026/03/26/world/middleeast/rubio-strait-of-hormuz-iran-oil.html
+
+**Displaced by War, Many Seek Shelter in Beirut**\
+`Over 100,000 people have fled to temporary shelters as Israel continues strikes on Lebanon.`\
+https://nytimes.com/2026/03/26/world/middleeast/war-displaced-beirut.html
+
+**Sam Kieth, Creator of Surreal Comic Book Series The Maxx, Dies at 63**\
+`A cocreator of Neil Gaiman’s Sandman series, he dreamed up a character who is homeless in the real world and a superhero in a subconscious realm. It was adapted for an MTV series.`\
+https://nytimes.com/2026/03/26/arts/sam-kieth-dead.html
+
 **Michigan's Lendeborg 'hurt' Bama didn't recruit him, downplays Kentucky NIL comments**\
 `Lendeborg and Michigan take on Alabama in the Sweet 16 on Friday.`\
 https://nytimes.com/athletic/7150083/2026/03/26/yaxel-lendeborg-michigan-recruitment-alabama-kentucky/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7149925/2026/03/26/ben-white-england-thomas-tuchel/
 **A Troubling Problem at the Heart of the Met Opera’s Big Hit**\
 `Audiences are packing the theater for a new “Tristan und Isolde.” Everyone can see the same spectacle, but they probably don’t hear the same sound.`\
 https://nytimes.com/2026/03/26/arts/music/tristan-und-isolde-met-opera.html
-
-**Standoff With Iran Raises Fresh Doubts About Trump’s Freestyle Diplomacy**\
-`A jumble of emissaries — a friend, a family member, a dove and a hawk — on the Iran crisis reflects President Trump’s improvisational approach.`\
-https://nytimes.com/2026/03/26/us/politics/trump-iran-talks.html
-
-**A Beachside Feast Where the Secret to a Perfect Steak Was Revealed**\
-`The designer Anita Patrickson gathered friends at her South African summer house for an evening of grilled food and ocean views.`\
-https://nytimes.com/2026/03/26/t-magazine/anita-patrickson-braai.html
-
-**Sabres notes: Metsa sent down, Östlund injury and Greenway's progress**\
-`The last 10 games of the regular season are going to be a test for the Sabres.`\
-https://nytimes.com/athletic/7149954/2026/03/26/sabres-zach-metsa-noah-ostlund-jordan-greenway/
-
-**Men's Sweet 16 Friday watch guide: Duke and St. John's tip off a 4-game slate**\
-`The NCAA Tournament opens a fresh spring weekend with four juicy Sweet 16 matchups. Here's what to know and when to tune in.`\
-https://nytimes.com/athletic/7147218/2026/03/26/sweet-16-duke-st-johns-michigan-alabama-uconn/
-
-**Hello? It’s Pakistan Calling.**\
-`Washington, Tehran, Riyadh, Abu Dhabi, Cairo, Istanbul and Brussels have all received calls as Pakistan plays mediator between the United States and Iran.`\
-https://nytimes.com/2026/03/26/world/asia/pakistan-iran-united-states-talks.html
 
