@@ -1,3 +1,7 @@
+**Denver Summit shuts out defending champion Gotham FC for first NWSL win**\
+`Melissa Kössler scored Denver's first goal, and Natasha Flint scored another goal 15 minutes later.`\
+https://nytimes.com/athletic/7147969/2026/03/26/nwsl-denver-summit-gotham-fc-historic-kossler/
+
 **Chinese Education Influencer’s Sudden Death Prompts Grief, and Reflection**\
 `The influencer, Zhang Xuefeng, was known for no-nonsense, some said cynical, advice about how to win in China’s educational rat race. He died at 41.`\
 https://nytimes.com/2026/03/26/world/asia/chinese-influencer-zhang-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7148189/2026/03/26/connections-sports-edition-hints
 **Corrections: March 26, 2026**\
 `Corrections that appeared in print on Thursday, March 26, 2026.`\
 https://nytimes.com/2026/03/26/pageoneplus/corrections-march-26-2026.html
-
-**Quote of the Day: Have a Nice Flight. Don’t Forget Your Fortitude.**\
-`Quotation of the Day for Thursday, March 26, 2026.`\
-https://nytimes.com/2026/03/25/pageoneplus/quote-of-the-day-have-a-nice-flight-dont-forget-your-fortitude.html
 
