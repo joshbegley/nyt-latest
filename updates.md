@@ -1,3 +1,7 @@
+**Here’s What Happened in the War in the Middle East on Thursday**\
+`For a second time, President Trump extended the deadline for Iran to fully reopen the Strait of Hormuz.`\
+https://nytimes.com/2026/03/26/world/middleeast/war-iran-us-israel-recap.html
+
 **Luis Robert and new-look Mets provide strong Opening Day impression**\
 `Carson Benge's homer and the lineup's patient approach against Paul Skenes made for an ideal tone-setter: "It gives you a lot of optimism."`\
 https://nytimes.com/athletic/7150329/2026/03/26/luis-robert-carson-benge-mets-opening-day/
