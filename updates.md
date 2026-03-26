@@ -1,3 +1,11 @@
+**Kevin McGonigle's major-league moment is here, plus more on the Tigers' roster**\
+`"This roster is pretty darn good with or without Kevin. We just think it's better with him on it," Scott Harris said.`\
+https://nytimes.com/athletic/7147801/2026/03/25/detroit-tigers-roster-kevin-mcgonigle/
+
+**Caitlin Clark can take 3s. Now she's taking photographs**\
+`Wearing a Pacers photographer’s vest, the two-time WNBA All-Star was spotted sitting baseline with other working photographers alongside.`\
+https://nytimes.com/athletic/7147805/2026/03/25/caitlin-clark-photography-pacers-lakers-nba/
+
 **Caitlin Clark can shoot 3s. Now she's shooting photographs**\
 `Wearing a Pacers photographer’s vest, the two-time WNBA All-Star was spotted sitting baseline with other working photographers alongside.`\
 https://nytimes.com/athletic/7147805/2026/03/25/caitlin-clark-photography-pacers-lakers-nba/
