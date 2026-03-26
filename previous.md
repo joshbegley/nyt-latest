@@ -1,3 +1,7 @@
+**F1 energy rules tweaked for Japanese Grand Prix in bid to improve qualifying**\
+`Drivers and teams pushed back, so the 2026 regs have been tweaked at Suzuka to keep qualifying a flat-out challenge`\
+https://nytimes.com/athletic/7147979/2026/03/25/f1-rules-change-qualifying-japanese-grand-prix/
+
 **Strike call upheld in first ever ABS challenge in Yankees-Giants season opener**\
 `In the first ABS challenge, the robot ump actually proved the human had it right. The Netflix broadcast appeared unprepared for the moment. `\
 https://nytimes.com/athletic/7144370/2026/03/25/first-mlb-abs-challenge-yankees-giants/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/25/us/ice-airports-checking-ids-security.html
 **The Idiot: Chapter 5**\
 `With Allen set to be released in a few years, M. wonders if he will be able to come back into the family fold.`\
 https://nytimes.com/2026/03/25/podcasts/serial-the-idiot-epilogue-episode-5.html
-
-**The Idiot: Chapter 4**\
-`M. and Allen finally speak. M. develops a theory of the case. Or one of Allen, at least.`\
-https://nytimes.com/2026/03/25/podcasts/serial-the-idiot-episode-4.html
 
