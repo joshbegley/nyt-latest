@@ -1,3 +1,7 @@
+**Jury Rules Against Meta and YouTube for Addictive Features**\
+`Meta and YouTube must pay a plaintiff a combined $6 million after a jury found that they knowingly designed features that were addictive and harmful for a young user.`\
+https://nytimes.com/video/us/100000010802350/social-media-trial-meta-youtube.html
+
 **Here’s the latest.**\
 `By Francesca Regalado, Isabel Kershner, Eric Schmitt and Euan Ward`\
 https://nytimes.com/live/2026/03/26/world/iran-war-israel-trump-oil/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7147937/2026/03/26/manchester-united-bayern-uwcl/
 **With Joel Embiid and Paul George back, the Sixers look complete again**\
 `For one night, Philadelphia played almost flawless basketball in its 157-137 defeat of Chicago. `\
 https://nytimes.com/athletic/7147923/2026/03/26/sixers-win-bulls-joel-embiid-paul-george-return/
-
-**Word of the Day: exemplary**\
-`This word has appeared in 180 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/03/26/learning/word-of-the-day-exemplary.html
 

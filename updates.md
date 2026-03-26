@@ -1,3 +1,7 @@
+**Jury Rules Against Meta and YouTube for Addictive Features**\
+`Meta and YouTube must pay a plaintiff a combined $6 million after a jury found that they knowingly designed features that were addictive and harmful for a young user.`\
+https://nytimes.com/video/us/100000010802350/social-media-trial-meta-youtube.html
+
 **Here’s the latest.**\
 `By Francesca Regalado, Isabel Kershner, Eric Schmitt and Euan Ward`\
 https://nytimes.com/live/2026/03/26/world/iran-war-israel-trump-oil/heres-the-latest
