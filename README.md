@@ -1,3 +1,7 @@
+**Suzuka is one of F1’s best tracks. But with new cars, drivers are no longer convinced**\
+`F1 heads to Japan for its third 2026 race. Yet there are fears the Suzuka circuit might not be quite so enchanting for drivers`\
+https://nytimes.com/athletic/7148704/2026/03/26/new-f1-cars-japanese-gp-suzuka/
+
 **One Dead After Fire on Top Floor of Bronx Apartment Building**\
 `Firefighters responded to a call at 5:30 a.m. on Thursday and found that a person had died in the apartment where the fire originated.`\
 https://nytimes.com/2026/03/26/nyregion/bronx-fire-apartment-building.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7148857/2026/03/26/tigers-vs-padres-stream-how-to-w
 **How to watch Red Sox vs. Reds: Time, TV, streaming for March 26**\
 `Find out how to watch the Boston Red Sox play the Cincinnati Reds, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7148855/2026/03/26/red-sox-vs-reds-stream-how-to-watch-march-26/
-
-**How to watch Angels vs. Astros: Time, TV, streaming for March 26**\
-`Find out how to watch the Los Angeles Angels play the Houston Astros, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7148853/2026/03/26/angels-vs-astros-stream-how-to-watch-march-26/
 

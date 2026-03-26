@@ -1,3 +1,11 @@
+**One Dead After Fire on Top Floor of Bronx Apartment Building**\
+`Firefighters responded to a call at 5:30 a.m. on Thursday and found that a person had died in the apartment where the fire originated.`\
+https://nytimes.com/2026/03/26/nyregion/bronx-fire-apartment-building.html
+
+**The Kennedy Center Is Giving Bill Maher the Mark Twain Prize**\
+`The annual award that recognizes merit in humor is going to the satirist and talk show host who has been critical of President Trump and political correctness.`\
+https://nytimes.com/2026/03/26/arts/television/bill-maher-mark-twain-prize-kennedy-center.html
+
 **Two Killed in Abu Dhabi as Gulf States Face Fresh Attacks**\
 `A Pakistani man and an Indian man died when shrapnel fell from an intercepted missile, officials said. Saudi Arabia, Kuwait and Bahrain also reported strikes.`\
 https://nytimes.com/2026/03/26/world/middleeast/iran-missile-strikes-abu-dhabi.html
