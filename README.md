@@ -1,3 +1,7 @@
+**With Joel Embiid and Paul George back, the Sixers look complete again**\
+`For one night, Philadelphia played almost flawless basketball in its 157-137 defeat of Chicago. `\
+https://nytimes.com/athletic/7147923/2026/03/26/sixers-win-bulls-joel-embiid-paul-george-return/
+
 **Word of the Day: exemplary**\
 `This word has appeared in 180 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/26/learning/word-of-the-day-exemplary.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7146873/2026/03/26/xherdan-shaqiri-liverpool-bayern
 **Alexandre Pato interview: 'Brazilians just want to win now. If you play bad, just win the game'**\
 `The Brazilian speaks to The Athletic about his injury-hit career, how football has changed, and Brazil's front three for the World Cup`\
 https://nytimes.com/athletic/7146471/2026/03/26/alexandre-pato-interview-brazil-world-cup-milan-ronaldinho/
-
-**Managers on the rise: Kim Hellberg – Swedish innovator with a fondness for maths and 'murderball'**\
-`The 38-year-old's emphasis on possession, fluidity and off-the-ball intensity are driving Middlesbrough's promotion push`\
-https://nytimes.com/athletic/7143143/2026/03/26/kim-hellberg-middlesbrough-manager-profile/
 

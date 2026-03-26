@@ -1,3 +1,7 @@
+**Word of the Day: exemplary**\
+`This word has appeared in 180 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/26/learning/word-of-the-day-exemplary.html
+
 **Josh Johnson Ridicules the Army’s Opening to Older Recruits**\
 `“Look, according to People magazine — and apparently the U.S. military — 42 is the new 35,” Johnson said on Tuesday’s “Daily Show.”`\
 https://nytimes.com/2026/03/26/arts/television/late-night-army-enlistment.html
