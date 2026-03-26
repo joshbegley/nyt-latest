@@ -1,40 +1,40 @@
-**Denver Summit shuts out defending champion Gotham FC for first NWSL win**\
-`Melissa Kössler scored Denver's first goal, and Natasha Flint scored another goal 15 minutes later.`\
-https://nytimes.com/athletic/7147969/2026/03/26/nwsl-denver-summit-gotham-fc-historic-kossler/
+**What are your Premier League club's players up to over the international break?**\
+`How many players are on international duty? Where are they playing? Who is out injured?`\
+https://nytimes.com/athletic/7143206/2026/03/26/premier-league-players-international-break/
 
-**Chinese Education Influencer’s Sudden Death Prompts Grief, and Reflection**\
-`The influencer, Zhang Xuefeng, was known for no-nonsense, some said cynical, advice about how to win in China’s educational rat race. He died at 41.`\
-https://nytimes.com/2026/03/26/world/asia/chinese-influencer-zhang-death.html
+**Bukayo Saka, the load of expectation and what's changed this season**\
+`The 24-year-old has Arsenal's leading man since he was 18. This season, there has been a drop-off, but why?`\
+https://nytimes.com/athletic/7146116/2026/03/26/arsenal-bukayo-saka-performance/
 
-**From Norwich to Barcelona: Ajay Tavares, the England Under-17 winger at La Masia**\
-`It is not exactly a path well travelled, but this move from East Anglia reflects an established youth policy at the Catalan club`\
-https://nytimes.com/athletic/7146817/2026/03/26/ajay-tavares-norwich-barcelona-england-la-masia/
+**Brentford fans, are you optimistic about the rest of the season?**\
+`The Athletic is bringing back its hope-o-meter for the rest of the season`\
+https://nytimes.com/athletic/7144633/2026/03/26/brentford-fans-hope-o-meter/
 
-**Rescuers Race to Save a 32-Foot Humpback Whale Stranded Off a German Beach**\
-`The whale had been stuck for days in shallow waters of the Baltic Sea, as rescuers prepared to make another attempt to free it.`\
-https://nytimes.com/2026/03/26/world/europe/stranded-whale-germany-baltic.html
+**Chelsea fans, are you optimistic about the rest of the season?**\
+`The Athletic is bringing back its hope-o-meter for the rest of the season`\
+https://nytimes.com/athletic/7144683/2026/03/26/chelsea-fans-hope-o-meter/
 
-**Trump’s Threats to Europe Put Its Leaders in a Double Bind Over Iran**\
-`European politicians risk angering their voters if they join America’s war. Yet they could also face domestic upheaval if they take no action to reopen shipping routes that Iran has blocked and ease an energy crisis.`\
-https://nytimes.com/2026/03/26/world/europe/iran-trump-hormuz-europe-dilemma.html
+**Burnley fans, are you optimistic about the rest of the season?**\
+`The Athletic is bringing back its hope-o-meter for the rest of the season`\
+https://nytimes.com/athletic/7144657/2026/03/26/burnley-fans-hope-o-meter/
 
-**New York City’s Population Flat After Drop in Immigration**\
-`Newly released census data shows that from June 2024 to July 2025, the number of new residents who were international immigrants dropped by 70 percent compared to a year before.`\
-https://nytimes.com/2026/03/26/nyregion/nyc-census-population-data.html
+**Aston Villa fans, are you optimistic about the rest of the season?**\
+`The Athletic is bringing back its hope-o-meter for the rest of the season`\
+https://nytimes.com/athletic/7144599/2026/03/26/aston-villa-hope-o-meter/
 
-**Immigration Slowdown Hits Every Metro Area in the U.S., Census Shows**\
-`Large urban counties and the border were the most affected. And in three-quarters of U.S. counties, population growth either slowed or turned negative.`\
-https://nytimes.com/2026/03/26/us/politics/us-census-county-immigration.html
+**Arsenal fans, are you optimistic about the rest of the season?**\
+`The Athletic is bringing back its hope-o-meter for the rest of the season`\
+https://nytimes.com/athletic/7144566/2026/03/26/arsenal-fans-hope-o-meter/
 
-**How U.S.A.I.D. Birth Control Meant for Africa Was Ruined**\
-`The Trump administration had options for offloading contraceptives once destined for Africa, a newly obtained memo shows. Instead, it has let them collect dust and go bad.`\
-https://nytimes.com/2026/03/26/world/europe/usaid-contraception-birth-control-belgium-africa.html
+**Nottingham Forest fans, are you optimistic about the rest of the season?**\
+`The Athletic is bringing back its hope-o-meter for the rest of the season`\
+https://nytimes.com/athletic/7144815/2026/03/26/nottingham-forest-fans-hope-o-meter/
 
-**Connections: Sports Edition Coach: Hints and answers for March 26, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7148189/2026/03/26/connections-sports-edition-hints-answers-march-26-2026/
+**Who will win World Cup 2026? Spain favourites, England hopeful, USMNT dare to dream**\
+`While the qualification process for this summer’s tournament is still ongoing, the countdown is well and truly on`\
+https://nytimes.com/athletic/7146585/2026/03/26/who-will-win-world-cup-2026/
 
-**Corrections: March 26, 2026**\
-`Corrections that appeared in print on Thursday, March 26, 2026.`\
-https://nytimes.com/2026/03/26/pageoneplus/corrections-march-26-2026.html
+**West Ham fans, are you optimistic about the rest of the season?**\
+`The Athletic is bringing back its hope-o-meter for the rest of the season`\
+https://nytimes.com/athletic/7144903/2026/03/26/west-ham-fans-hope-o-meter/
 
