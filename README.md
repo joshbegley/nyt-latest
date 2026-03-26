@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Francesca Regalado, Isabel Kershner, Eric Schmitt and Euan Ward`\
+https://nytimes.com/live/2026/03/26/world/iran-war-israel-trump-oil/heres-the-latest
+
+**Iran War Live Updates: Israel Launches New Strikes on Iran**\
+`The United States and Iran have struggled to begin negotiations to end the war, after nearly four weeks of fighting. There were more drone and missile attacks on U.S. allies in the Persian Gulf on Thursday.`\
+https://nytimes.com/live/2026/03/26/world/iran-war-israel-trump-oil
+
 **Out the Door**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2026/03/26/learning/out-the-door.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7147923/2026/03/26/sixers-win-bulls-joel-embiid-pau
 **Word of the Day: exemplary**\
 `This word has appeared in 180 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/26/learning/word-of-the-day-exemplary.html
-
-**Josh Johnson Ridicules the Army’s Opening to Older Recruits**\
-`“Look, according to People magazine — and apparently the U.S. military — 42 is the new 35,” Johnson said on Tuesday’s “Daily Show.”`\
-https://nytimes.com/2026/03/26/arts/television/late-night-army-enlistment.html
-
-**Arthur Fils saves 4 match points to beat Tommy Paul at Miami Open**\
-`"He was able to close out the match when I wasn't," Paul said.`\
-https://nytimes.com/athletic/7148313/2026/03/26/arthur-fils-4-match-points-beat-tommy-paul-miami-open/
 
