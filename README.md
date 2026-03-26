@@ -1,3 +1,7 @@
+**Safety Experts Considered LaGuardia Challenging but Not an Outlier**\
+`Regulators, pilots and others in aviation have worried about the kind of runway accident that happened at LaGuardia Airport on Sunday.`\
+https://nytimes.com/2026/03/26/business/laguardia-airport-air-canada-safety.html
+
 **‘Because I’m President’: Trump Defends His Use of Mail Voting**\
 `President Trump wants to restrict voting by mail, which he says amounts to “cheating.” But he defended his own use of the practice in a special election this week.`\
 https://nytimes.com/2026/03/26/us/politics/trump-mail-in-voting-florida.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/26/climate/sperm-whale-birth-assistance.html
 **Oscars Will Move to a Venue Outside Hollywood**\
 `The event will be held in downtown Los Angeles starting in 2029 as part of a deal between the academy and AEG, a developer of entertainment venues.`\
 https://nytimes.com/2026/03/26/business/media/academy-awards-moving-downtown-los-angeles.html
-
-**NFL Newsletter: Lavonte David's remarkable run**\
-`Two offseason questions that might be answered soon, plus one of the greatest-ever Buccaneers just retired and we might get replacement refs`\
-https://nytimes.com/athletic/7149599/2026/03/26/lavonte-davids-remarkable-run-plus-questions-for-maxx-crosby-puka-nacua-and-replacement-refs/
 
