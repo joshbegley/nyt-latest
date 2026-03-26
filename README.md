@@ -1,3 +1,7 @@
+**Chip Taylor, Writer of ‘Wild Thing’ and Other Classic Rock Hits, Dies at 86**\
+`Mr. Taylor, the younger brother of the actor Jon Voight, found success as a songwriter for the likes of Janis Joplin and Juice Newton.`\
+https://nytimes.com/2026/03/25/arts/music/chip-taylor-dead.html
+
 **Formal Agreement**\
 `Is Alex Murphy practicing reverse psychology on us?`\
 https://nytimes.com/2026/03/25/crosswords/daily-puzzle-2026-03-26.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7147801/2026/03/25/detroit-tigers-roster-kevin-mcgo
 **Caitlin Clark can take 3s. Now she's taking photographs**\
 `Wearing a Pacers photographer’s vest, the two-time WNBA All-Star was spotted sitting baseline with other working photographers alongside.`\
 https://nytimes.com/athletic/7147805/2026/03/25/caitlin-clark-photography-pacers-lakers-nba/
-
-**ICE Agents at Some Airports Begin Checking IDs in Security Lines**\
-`It was unclear whether having agents helping with screening passengers would improve wait times. Some travelers expressed worries.`\
-https://nytimes.com/2026/03/25/us/ice-airports-checking-ids-security.html
 
