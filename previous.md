@@ -1,3 +1,15 @@
+**NBA Awards Watch: Breaking down Wemby's own MVP criteria**\
+`The Spurs' superstar laid out what he thinks is important in the race. How do his fellow contenders stack up?`\
+https://nytimes.com/athletic/7145971/2026/03/26/nba-awards-mvp-victor-wembanyama-sga-jokic/
+
+**Chocolate Bunnies With Some Extra Personality**\
+`Plus: a Korean fragrance brand in New York, a wellness retreat on the Portuguese coast and more recommendations from T Magazine.`\
+https://nytimes.com/2026/03/26/t-magazine/chocolate-bunnies-easter.html
+
+**Russian Lawmakers Go to U.S. for First Time Since Invasion of Ukraine**\
+`The State Department had to lift sanctions on Russian lawmakers invited by a Kremlin-friendly member of Congress.`\
+https://nytimes.com/2026/03/26/world/europe/russia-us-talks-ukraine-sanctions.html
+
 **Europe Heads for Another Energy Shock in a Vulnerable State**\
 `The region’s stores of natural gas are running at the lowest level in years, and filling them up is increasingly daunting as the U.S.-led war in Iran pushes up prices.`\
 https://nytimes.com/2026/03/26/business/europe-natural-gas-storage-iran-war.html
@@ -21,21 +33,4 @@ https://nytimes.com/athletic/7148904/2026/03/26/olympics-transgender-ban-women/
 **Will Wade expected to leave NC State and return to LSU**\
 `Wade, one of college hoops' most polarizing figures, is poised to head back to LSU.`\
 https://nytimes.com/athletic/7148655/2026/03/26/will-wade-lsu-basketball-head-coach-nc-state/
-
-**NFL Referees Association says league walked out of CBA negotiations**\
-`NFLRA's executive director says no one in NFL delegation was authorized to negotiate beyond the original proposal after rejecting a counter.`\
-https://nytimes.com/athletic/7148837/2026/03/26/nfl-referees-association-cba-negotiations/
-
-**Zelensky Says U.S. Is Conditioning Security Guarantees on Surrender of Donbas**\
-`President Volodymyr Zelensky of Ukraine said that President Trump “still chooses a strategy of putting more pressure on the Ukrainian side.”`\
-https://nytimes.com/2026/03/26/world/europe/zelensky-trump-ukraine-war-donbas.html
-
-**The Bounce: 5 burning questions about NBA expansion**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.
-`\
-https://nytimes.com/athletic/7148871/2026/03/26/nba-expansion-seattle-las-vegas-the-bounce-2/
-
-**Suzuka is one of F1’s best tracks. But with new cars, drivers are no longer convinced**\
-`F1 heads to Japan for its third 2026 race. Yet there are fears the Suzuka circuit might not be quite so enchanting for drivers`\
-https://nytimes.com/athletic/7148704/2026/03/26/new-f1-cars-japanese-gp-suzuka/
 

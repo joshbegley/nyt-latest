@@ -1,3 +1,15 @@
+**NBA Awards Watch: Breaking down Wemby's own MVP criteria**\
+`The Spurs' superstar laid out what he thinks is important in the race. How do his fellow contenders stack up?`\
+https://nytimes.com/athletic/7145971/2026/03/26/nba-awards-mvp-victor-wembanyama-sga-jokic/
+
+**Chocolate Bunnies With Some Extra Personality**\
+`Plus: a Korean fragrance brand in New York, a wellness retreat on the Portuguese coast and more recommendations from T Magazine.`\
+https://nytimes.com/2026/03/26/t-magazine/chocolate-bunnies-easter.html
+
+**Russian Lawmakers Go to U.S. for First Time Since Invasion of Ukraine**\
+`The State Department had to lift sanctions on Russian lawmakers invited by a Kremlin-friendly member of Congress.`\
+https://nytimes.com/2026/03/26/world/europe/russia-us-talks-ukraine-sanctions.html
+
 **The Bounce: 5 burning questions about NBA expansion**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.
 `\
