@@ -1,3 +1,7 @@
+**Trump’s Signature to Be Added to U.S. Dollars**\
+`President Trump is set to be the first sitting president to have his signature appear on America’s currency.`\
+https://nytimes.com/2026/03/26/us/politics/trumps-signature-to-be-added-to-us-dollars.html
+
 **Wall St. Bonuses Soared to $49.2 Billion. New York Hoped for Even More.**\
 `The city was counting on a 15 percent rise in bonuses to produce tax revenues to fill its budget gap. The actual increase was 9 percent, the state comptroller said.`\
 https://nytimes.com/2026/03/26/nyregion/wall-street-bonus.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7150121/2026/03/26/boston-gillette-stadium-train-ti
 **Rubio Says Allies Should Help Secure Strait by Iran for Oil and Gas Ships**\
 `The secretary of state said the United States and Iran were passing messages to each other as he headed to France for a diplomatic meeting of the Group of 7 nations.`\
 https://nytimes.com/2026/03/26/world/middleeast/rubio-strait-of-hormuz-iran-oil.html
-
-**Displaced by War, Many Seek Shelter in Beirut**\
-`Over 100,000 people have fled to temporary shelters as Israel continues strikes on Lebanon.`\
-https://nytimes.com/2026/03/26/world/middleeast/war-displaced-beirut.html
 
