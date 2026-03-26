@@ -1,40 +1,40 @@
+**Two Killed in Abu Dhabi as Gulf States Face Fresh Attacks**\
+`A Pakistani man and an Indian man died when shrapnel fell from an intercepted missile, officials said. Saudi Arabia, Kuwait and Bahrain also reported strikes.`\
+https://nytimes.com/2026/03/26/world/middleeast/iran-missile-strikes-abu-dhabi.html
+
+**The Kennedy Center is Giving Bill Maher the Mark Twain Prize**\
+`The annual award that recognizes merit in humor is going to the satirist and talk show host who has been critical of President Trump and political correctness.`\
+https://nytimes.com/2026/03/26/arts/television/bill-maher-mark-twain-prize-kennedy-center.html
+
+**Olympic Committee Announces a Broad Ban of Transgender Athletes in Women’s Events**\
+`Kirsty Coventry, the first woman to lead the International Olympic Committee, has frequently spoken about what she says is the need to protect women’s competitions at the Olympic Games.`\
+https://nytimes.com/2026/03/26/world/olympics/ioc-transgender-athletes-ban.html
+
+**Spurs' Kulusevski insists his 'knee is great now' following latest surgery**\
+`Two weeks ago, Kulusevski had a minor surgical intervention to clean up the knee that has left him unable to play since May 2025.`\
+https://nytimes.com/athletic/7148830/2026/03/26/dejan-kulusevski-surgery-knee-tottenham-injury/
+
+**How to watch Rays vs. Cardinals: Time, TV, streaming for March 26**\
+`Find out how to watch the Tampa Bay Rays play the St. Louis Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7148862/2026/03/26/rays-vs-cardinals-stream-how-to-watch-march-26/
+
+**How to watch Rangers vs. Phillies: Time, TV, streaming for March 26**\
+`Find out how to watch the Texas Rangers play the Philadelphia Phillies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7148859/2026/03/26/rangers-vs-phillies-stream-how-to-watch-march-26/
+
+**How to watch Tigers vs. Padres: Time, TV, streaming for March 26**\
+`Find out how to watch the Detroit Tigers play the San Diego Padres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7148857/2026/03/26/tigers-vs-padres-stream-how-to-watch-march-26/
+
+**How to watch Red Sox vs. Reds: Time, TV, streaming for March 26**\
+`Find out how to watch the Boston Red Sox play the Cincinnati Reds, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7148855/2026/03/26/red-sox-vs-reds-stream-how-to-watch-march-26/
+
+**How to watch Angels vs. Astros: Time, TV, streaming for March 26**\
+`Find out how to watch the Los Angeles Angels play the Houston Astros, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7148853/2026/03/26/angels-vs-astros-stream-how-to-watch-march-26/
+
 **Rockets have failed to close games all season. OT loss to Minnesota was a harsh reminder**\
 `Wednesday's overtime loss was another example of the Rockets' inability to execute late in games to pull out a victory.`\
 https://nytimes.com/athletic/7148461/2026/03/26/rockets-timberwolves-overtime-loss-score-result/
-
-**Former NFL players Terrence Murphy, Reggie Bush acquire LOVB Salt Lake**\
-`The pair join other notable investors in the fast-growing volleyball ecosystem that is building out its pro franchise lineup.`\
-https://nytimes.com/athletic/7136670/2026/03/26/lovb-salt-lake-city-terrence-murphy-reggie-bush/
-
-**Seahawks NFL Draft big board: How should a team with few needs look to improve?**\
-`Let's look at how the reigning Super Bowl champs can make the most of their four draft picks in 2026.`\
-https://nytimes.com/athletic/7135728/2026/03/26/seahawks-2026-nfl-draft-big-board/
-
-**Five questions the Canucks need answers to before the end of the season**\
-`The answers to these questions might help shape Vancouver's offseason priorities.`\
-https://nytimes.com/athletic/7142923/2026/03/26/canucks-karlsson-buium-tolopilo-rossi-hoglander-questions/
-
-**How to Turn a Chicken Egg Into a Drug Factory**\
-`A biotech start-up is testing a novel way of efficiently producing pharmaceutical drugs.`\
-https://nytimes.com/2026/03/26/science/biotechnology-pharmaceuticals-eggs.html
-
-**How Logan Gilbert became an ace for a Mariners team with World Series aspirations**\
-`Gilbert was a highly regarded prospect when he entered professional baseball, but he's never stopped working to improve himself.`\
-https://nytimes.com/athletic/6714154/2026/03/26/logan-gilbert-seattle-mariners-opening-day/
-
-**Senegal to present AFCON trophy in Paris despite having title stripped**\
-`At a press conference, a lawyer for Senegal said Morocco had been unsuccessful in attempts to have the medals and prize money given to them.`\
-https://nytimes.com/athletic/7148636/2026/03/26/senegal-afcon-trophy-morocco-paris/
-
-**War Will Push U.S. Inflation Above 4 Percent This Year, O.E.C.D. Says**\
-`Higher energy prices and uncertainty over the war in the Middle East will boost inflation and weigh on economic growth, a new forecast says.`\
-https://nytimes.com/2026/03/26/business/inflation-prices-energy-iran-oecd.html
-
-**The Cubs are serious about a Series run, and they may have enough star power to do it**\
-`Everyone loves a winner. Chicago hungers for one. No one has to tell the Cubs what their goal is this year.`\
-https://nytimes.com/athletic/7145821/2026/03/26/cubs-opening-day-star-power-dodgers-world-series/
-
-**Dodgers' Freddie Freeman on winning, aging and being mad about batting average: a Q&A**\
-`Freeman enters his 17th season with wisdom, gratitude and a stubborn reliance on his routine: "I never change."`\
-https://nytimes.com/athletic/7147768/2026/03/26/dodgers-freddie-freeman-preview-interview/
 
