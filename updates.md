@@ -1,3 +1,19 @@
+**Storms Could Bring Tornadoes, Hail and Heavy Rain to the Midwest on Thursday**\
+`Forecasters were watching an area just south of the Great Lakes, where storms were expected to move through on Thursday afternoon and evening.`\
+https://nytimes.com/2026/03/26/weather/illinois-indiana-ohio-tornado-storm-chicago.html
+
+**Inside the offseason that reestablished the Cubs as big-market players**\
+`The Cubs believe they have what it takes to prevent a World Series three-peat by the Dodgers. This is how they got here. `\
+https://nytimes.com/athletic/7148069/2026/03/26/chicago-cubs-offseason-analysis-inside-look/
+
+**On Opening Day, Yankees show why running back same offense could work**\
+`While there won't be the pregame hoopla and sideshows for all 162 games, the Yanks' offense may be able to provide just as many highlights.`\
+https://nytimes.com/athletic/7148357/2026/03/26/yankees-offense-opening-day/
+
+**2026 NBA All-Surprise Team: Jalen Duren, Nickeil Alexander-Walker and other bright spots**\
+`These 10 players have made giant strides in at least one element of their games. Let's recognize them.`\
+https://nytimes.com/athletic/7147351/2026/03/26/nba-surprises-jalen-duren-nickeil-alexander-walker-ryan-rollins/
+
 **The Pulse: The 2026 World Series champs***\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7147089/2026/03/26/mlb-opening-day-2026-the-pulse/
