@@ -1,3 +1,7 @@
+**Doc Rivers on NBPA's criticism of Giannis Antetokounmpo: 'He's not healthy'**\
+`Doc Rivers rejected the National Basketball Players Association’s assertion that the Bucks are holding out a healthy Giannis Antetokounmpo.`\
+https://nytimes.com/athletic/7147640/2026/03/25/doc-rivers-bucks-giannis-nbapa-65-games/
+
 **Mamdani Now Plans $1.3 Billion in Cuts in Programs That He Favored**\
 `Mayor Zohran Mamdani is banking on savings from a delay he is seeking in the state mandate for smaller class sizes. He is also scaling back a commitment to expand a rental assistance program.`\
 https://nytimes.com/2026/03/25/nyregion/mamdani-budget-cuts.html
