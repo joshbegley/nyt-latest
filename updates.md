@@ -1,3 +1,19 @@
+**Betting on Everything**\
+`Prediction market platforms like Polymarket and Kalshi go way beyond sports and politics. We take a closer look.`\
+https://nytimes.com/2026/03/26/world/polymarket-betting-iran-trump-olympic-transgender.html
+
+**Coco Gauff sometimes feels like a tennis impostor, but she knows the ball doesn't lie**\
+`The American's latest journey into improving her two most important shots has challenged her sense of her own tennis.`\
+https://nytimes.com/athletic/7147873/2026/03/26/tennis-coco-gauff-impostor-syndrome/
+
+**White 'clearing the air' with England team-mates over World Cup exit - Tuchel**\
+`Tuchel says Ben White deserves a “second chance” after ending his four-year England absence.`\
+https://nytimes.com/athletic/7149925/2026/03/26/ben-white-england-thomas-tuchel/
+
+**This Arda Guler assist was the kind of magic we want to see at the World Cup**\
+`The World Cup is about moments. Turkey generally, and Guler specifically, are more likely than most to provide ones we’ll all remember`\
+https://nytimes.com/athletic/7149967/2026/03/26/arda-guler-turkey-assist-world-cup/
+
 **A Troubling Problem at the Heart of the Met Opera’s Big Hit**\
 `Audiences are packing the theater for a new “Tristan und Isolde.” Everyone can see the same spectacle, but they probably don’t hear the same sound.`\
 https://nytimes.com/2026/03/26/arts/music/tristan-und-isolde-met-opera.html
