@@ -1,3 +1,7 @@
+**Ipswich Town and Nigel Farage: A private lunch, free shirts, and staff complaints**\
+`The visit by the Reform UK leader, and Ipswich's account of the visit being undermined, has prompted a fan backlash`\
+https://nytimes.com/athletic/7146892/2026/03/26/ipswich-town-nigel-farage-reform-uk/
+
 **Ipswich Town and Nigel Farage: A private lunch, free shirts and staff complaints**\
 `The visit by the Reform UK leader, and Ipswich's account of the visit being undermined, has prompted a fan backlash`\
 https://nytimes.com/athletic/7146892/2026/03/26/ipswich-town-nigel-farage-reform-uk/
