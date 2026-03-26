@@ -1,3 +1,15 @@
+**Betting on Everything**\
+`Prediction market platforms like Polymarket and Kalshi go way beyond sports and politics. We take a closer look.`\
+https://nytimes.com/2026/03/26/world/polymarket-betting-iran-trump-olympic-transgender.html
+
+**Coco Gauff sometimes feels like a tennis impostor, but she knows the ball doesn't lie**\
+`The American's latest journey into improving her two most important shots has challenged her sense of her own tennis.`\
+https://nytimes.com/athletic/7147873/2026/03/26/tennis-coco-gauff-impostor-syndrome/
+
+**White 'clearing the air' with England team-mates over World Cup exit - Tuchel**\
+`Tuchel says Ben White deserves a “second chance” after ending his four-year England absence.`\
+https://nytimes.com/athletic/7149925/2026/03/26/ben-white-england-thomas-tuchel/
+
 **A Troubling Problem at the Heart of the Met Opera’s Big Hit**\
 `Audiences are packing the theater for a new “Tristan und Isolde.” Everyone can see the same spectacle, but they probably don’t hear the same sound.`\
 https://nytimes.com/2026/03/26/arts/music/tristan-und-isolde-met-opera.html
@@ -23,18 +35,6 @@ https://nytimes.com/athletic/7147218/2026/03/26/sweet-16-duke-st-johns-michigan-
 https://nytimes.com/2026/03/26/world/asia/pakistan-iran-united-states-talks.html
 
 **This Arda Guler assist was the kind of magic we want to see at the World Cup**\
-`The World Cup is about moments. Turkey generally, and Guler specifically, are more likely than most to provide ones we’ll all remember.`\
+`The World Cup is about moments. Turkey generally, and Guler specifically, are more likely than most to provide ones we’ll all remember`\
 https://nytimes.com/athletic/7149967/2026/03/26/arda-guler-turkey-assist-world-cup/
-
-**Robert Fox, Acclaimed Producer in Britain and on Broadway, Dies at 73**\
-`A favorite of actors like Maggie Smith, he produced dozens of plays, including “The Audience,” about Queen Elizabeth II, which was made into the Netflix show “The Crown.”`\
-https://nytimes.com/2026/03/26/theater/robert-fox-dead.html
-
-**Seven candidates to watch as NC State looks for Will Wade's replacement**\
-`NC State’s history of success — as one of just 15 schools with multiple national titles — and fan support make it an attractive opening.`\
-https://nytimes.com/athletic/7149624/2026/03/26/nc-state-basketball-coaching-search-candidates/
-
-**Caleb Williams’ ‘Iceman’ trademark challenged by NBA legend George Gervin**\
-`Gervin has used the "Iceman" nickname since 1973, and mistakenly thought he already held a trademark for the term.`\
-https://nytimes.com/athletic/7149732/2026/03/26/caleb-williams-iceman-trademark-challenged-george-gervin/
 
