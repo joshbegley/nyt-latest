@@ -1,3 +1,19 @@
+**A Troubling Problem at the Heart of the Met Opera’s Big Hit**\
+`Audiences are packing the theater for a new “Tristan und Isolde.” Everyone can see the same spectacle, but they probably don’t hear the same sound.`\
+https://nytimes.com/2026/03/26/arts/music/tristan-und-isolde-met-opera.html
+
+**Standoff With Iran Raises Fresh Doubts About Trump’s Freestyle Diplomacy**\
+`A jumble of emissaries — a friend, a family member, a dove and a hawk — on the Iran crisis reflects President Trump’s improvisational approach.`\
+https://nytimes.com/2026/03/26/us/politics/trump-iran-talks.html
+
+**A Beachside Feast Where the Secret to a Perfect Steak Was Revealed**\
+`The designer Anita Patrickson gathered friends at her South African summer house for an evening of grilled food and ocean views.`\
+https://nytimes.com/2026/03/26/t-magazine/anita-patrickson-braai.html
+
+**Sabres notes: Metsa sent down, Östlund injury and Greenway's progress**\
+`The last 10 games of the regular season are going to be a test for the Sabres.`\
+https://nytimes.com/athletic/7149954/2026/03/26/sabres-zach-metsa-noah-ostlund-jordan-greenway/
+
 **Men's Sweet 16 Friday watch guide: Duke and St. John's tip off a 4-game slate**\
 `The NCAA Tournament opens a fresh spring weekend with four juicy Sweet 16 matchups. Here's what to know and when to tune in.`\
 https://nytimes.com/athletic/7147218/2026/03/26/sweet-16-duke-st-johns-michigan-alabama-uconn/
