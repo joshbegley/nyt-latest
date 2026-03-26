@@ -1,3 +1,15 @@
+**Jamal Murray's All-NBA case 'obvious' after 53-point night, Nuggets coach says**\
+`Denver is still working out some kinks after a spate of injuries, but Murray, who scored 53 points Wednesday night, has never played better.`\
+https://nytimes.com/athletic/7148384/2026/03/26/jamal-murray-all-nba-nuggets-jokic/
+
+**Snapchat Investigated in Europe Over Child Safety Policies**\
+`Regulators in Brussels accused the social media platform of maintaining a weak age-verification system, and steering younger users toward inappropriate experiences.`\
+https://nytimes.com/2026/03/26/business/snapchat-europe-child-safety.html
+
+**Good vibes only: How Eugenio Suárez became baseball's most beloved teammate**\
+`The most simple explanation of why Suárez is beloved is that he's consistent. "He's a winner," Skip Schumaker said. "He's a winner."`\
+https://nytimes.com/athletic/7147309/2026/03/26/cincinnati-reds-eugenio-suarez-beloved-teammate/
+
 **How to watch Twins vs. Orioles: Time, TV, streaming for March 26**\
 `Find out how to watch the Minnesota Twins play the Baltimore Orioles, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7148621/2026/03/26/twins-vs-orioles-stream-how-to-watch-march-26/
@@ -25,16 +37,4 @@ https://nytimes.com/video/podcasts/100000010799670/love-story-is-actually-a-horr
 **Debate season: Wemby's MVP case, Giannis vs. the Bucks and the 65-game rule**\
 `Our columnist says he was wrong about the 65-game rule, though Adam Silver insists that it is working.`\
 https://nytimes.com/athletic/7148455/2026/03/26/victor-wembanyama-mvp-giannis-bucks-65-game-rule-nba/
-
-**Melania Trump and A.I.-Powered Robot Arrive at White House Event**\
-`The first lady, Melania Trump, entered a White House summit on educational technology alongside a humanoid robot. It then silently walked away as the meeting began.`\
-https://nytimes.com/video/us/politics/100000010802613/melania-trump-humanoid-ai-robot-white-house.html
-
-**Lions NFL Draft big board: O-linemen, edge rushers top needs with DB, LB lurking**\
-`The Lions are in need of offensive line and edge-rushing help, but could safety and linebacker also be in play on Day 1 or 2?`\
-https://nytimes.com/athletic/7141592/2026/03/26/detroit-lions-big-board-nfl-draft/
-
-**What I’m hearing as the Twins prepare to open the regular season**\
-`Josh Bell avoided playing golf this offseason in a bid to keep his baseball swing dialed in.`\
-https://nytimes.com/athletic/7147601/2026/03/26/twins-opening-day-james-outman-cody-lawyerson/
 
