@@ -8,6 +8,11 @@ https://nytimes.com/athletic/7148871/2026/03/26/nba-expansion-seattle-las-vegas-
 `\
 https://nytimes.com/athletic/7148871/2026/03/26/nba-expansion-seattle-las-vegas-the-bounce-2/
 
+**The Bounce: 5 burning questions about NBA expansion**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7148871/2026/03/26/nba-expansion-seattle-las-vegas-the-bounce-2/
+
 **Glass Threads Spun From a Volcano’s Bubbly Magma**\
 `A volcanic formation known as Pele’s hair is produced when air-filled magma is stretched, according to a new study by a team of scientists and glass artists.`\
 https://nytimes.com/2026/03/26/science/volcanoes-peles-hair-science.html
