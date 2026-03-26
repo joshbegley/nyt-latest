@@ -1,3 +1,19 @@
+**What Teenagers Are Saying About How Pets Have Improved Their Lives**\
+`Students reflect on research that shows pets keep you healthier and share the profound bonds they’ve made with their animal companions.`\
+https://nytimes.com/2026/03/26/learning/what-teenagers-are-saying-about-how-pets-have-improved-their-lives.html
+
+**Hungarian Journalist Faces Spy Charges After Reports on Election Meddling**\
+`The government of Prime Minister Viktor Orban has pursued an intensifying campaign against critics in a tough race before April elections.`\
+https://nytimes.com/2026/03/26/world/europe/hungary-journalist-election-meddling-espionage.html
+
+**Malaysia Says Iran Will Allow Its Ships to Pass Through the Strait of Hormuz**\
+`The reprieve would ease disruptions in Malaysia’s energy supply, but the prime minister has vowed to make preparations for a more volatile future.`\
+https://nytimes.com/2026/03/26/world/asia/iran-malaysia-ships-strait-of-hormuz.html
+
+**Oscars Will Move to a Venue Outside Hollywood**\
+`The event will be held in downtown Los Angeles starting in 2029 as part of a deal between the academy and AEG, a developer of entertainment venues.`\
+https://nytimes.com/2026/03/26/business/media/academy-awards-moving-downtown-los-angeles.html
+
 **Seeking a Sounding Board? Beware the Eager-to-Please Chatbot.**\
 `A new study of popular AI models shows that their feedback on social situations is far from impartial.`\
 https://nytimes.com/2026/03/26/well/mind/ai-chatbots-relationships.html
