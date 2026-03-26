@@ -1,3 +1,19 @@
+**Storms Could Bring Tornadoes, Hail and Heavy Rain to the Midwest on Thursday**\
+`Forecasters were watching an area just south of the Great Lakes, where storms were expected to move through on Thursday afternoon and evening.`\
+https://nytimes.com/2026/03/26/weather/illinois-indiana-ohio-tornado-storm-chicago.html
+
+**Inside the offseason that reestablished the Cubs as big-market players**\
+`The Cubs believe they have what it takes to prevent a World Series three-peat by the Dodgers. This is how they got here. `\
+https://nytimes.com/athletic/7148069/2026/03/26/chicago-cubs-offseason-analysis-inside-look/
+
+**On Opening Day, Yankees show why running back same offense could work**\
+`While there won't be the pregame hoopla and sideshows for all 162 games, the Yanks' offense may be able to provide just as many highlights.`\
+https://nytimes.com/athletic/7148357/2026/03/26/yankees-offense-opening-day/
+
+**2026 NBA All-Surprise Team: Jalen Duren, Nickeil Alexander-Walker and other bright spots**\
+`These 10 players have made giant strides in at least one element of their games. Let's recognize them.`\
+https://nytimes.com/athletic/7147351/2026/03/26/nba-surprises-jalen-duren-nickeil-alexander-walker-ryan-rollins/
+
 **The Pulse: The 2026 World Series champs***\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7147089/2026/03/26/mlb-opening-day-2026-the-pulse/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7148229/2026/03/26/sabres-overtime-loss-dahlin-timm
 **Is the tank still on? How 2 straight wins affect the Leafs' draft lottery odds**\
 `With the destination of their first-round pick in flux, two regulation wins mean the draft lottery becomes more important for the Leafs.`\
 https://nytimes.com/athletic/7147992/2026/03/26/maple-leafs-nhl-draft-lottery-rangers-blues/
-
-**Sýkora's long-awaited debut gives Rangers a feel-good moment: Takeaways**\
-`Plus an improved penalty kill, a rejuvenated first line and Mike Sullivan's ongoing defensive pair headaches after a 4-3 loss to the Leafs.`\
-https://nytimes.com/athletic/7148197/2026/03/26/rangers-sykora-debut-defense-pairs-penalty-kill-maple-leafs/
-
-**Michael Valgren interview: 'I went straight into the fence, and fell maybe 10 metres down the mountain'**\
-`The Danish rider speaks to The Athletic about his recovery from a career-threatening crash in 2022, and why cycling needs more humanity`\
-https://nytimes.com/athletic/7141196/2026/03/26/michael-valgren-interview-tour-de-france-ef-education/
-
-**Three bold Red Sox predictions for the 2026 season**\
-`With solid pitching depth and a lineup that could be more potent than expected, the Red Sox have a chance to make things interesting. `\
-https://nytimes.com/athletic/7142308/2026/03/26/red-sox-2026-season-bold-predictions/
-
-**What's the worst a team can be at five-on-five and still compete for the Stanley Cup?**\
-`There's no perfect path to playoff success, but controlling play at five-on-five sure doesn't hurt. But exactly how necessary is it?`\
-https://nytimes.com/athletic/7148048/2026/03/26/nhl-playoffs-even-strength-stanley-cup-runs-analysis/
 
