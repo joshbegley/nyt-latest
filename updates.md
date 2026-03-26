@@ -1,3 +1,8 @@
+**The Bounce: 5 burning questions about NBA expansion**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7148871/2026/03/26/nba-expansion-seattle-las-vegas-the-bounce-2/
+
 **Europe Heads for Another Energy Shock in a Vulnerable State**\
 `The region’s stores of natural gas are running at the lowest level in years, and filling them up is increasingly daunting as the U.S.-led war in Iran pushes up prices.`\
 https://nytimes.com/2026/03/26/business/europe-natural-gas-storage-iran-war.html
