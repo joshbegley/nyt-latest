@@ -1,3 +1,15 @@
+**‘Public Charge’ Review: The World Is Messy. Being a Force for Good Is, Too.**\
+`A new play at the Public Theater written by Michael J. Chepiga and the former ambassador Julissa Reynoso is a diplomatic memoir of sorts, and a meditation on loving one’s country.`\
+https://nytimes.com/2026/03/26/theater/public-charge-review-julissa-reynoso.html
+
+**How to watch Texas vs. Purdue men's basketball: Sweet 16 Time, TV, streaming**\
+`Find out how to watch the Texas Longhorns play the Purdue Boilermakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7149318/2026/03/26/texas-vs-purdue-stream-how-to-watch-march-26/
+
+**How to watch Iowa vs. Nebraska men's basketball: Sweet 16 Time, TV, streaming**\
+`Find out how to watch the Iowa Hawkeyes play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7149316/2026/03/26/iowa-vs-nebraska-stream-how-to-watch-march-26/
+
 **It's time for Sidney Crosby to throw on his cape and carry the Penguins to the playoffs**\
 `The Penguins' position in the standings is starting to fade, thus, it might be time for Sidney Crosby to rescue them.`\
 https://nytimes.com/athletic/7148087/2026/03/26/sidney-crosby-penguins-playoffs-push/
@@ -21,16 +33,4 @@ https://nytimes.com/2026/03/26/technology/binance-iran-us-sanctions.html
 **Local Opposition Is Slowing A.I. Data Centers. Wall Street Has Noticed.**\
 `Tech companies are running into resistance from neighbors and may not be able to build at the pace they promised investors.`\
 https://nytimes.com/2026/03/26/business/economy/ai-data-centers-construction-local-opposition.html
-
-**How to watch Penguins vs. Senators: Time, TV, streaming**\
-`Find out how to watch the Pittsburgh Penguins play the Ottawa Senators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7149230/2026/03/26/penguins-vs-senators-stream-how-to-watch-march-26/
-
-**How to watch Stars vs. Islanders: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the New York Islanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7149221/2026/03/26/stars-vs-islanders-stream-how-to-watch-march-26/
-
-**How to watch Blue Jackets vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the Columbus Blue Jackets play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7149217/2026/03/26/blue-jackets-vs-canadiens-stream-how-to-watch-march-26/
 
