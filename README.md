@@ -1,3 +1,7 @@
+**Winter Sea Ice in the Arctic Ties a Record Low**\
+`Ice plays a vital role in reflecting away planet-warming sunlight. The Arctic is warming much faster than most other parts of the world.`\
+https://nytimes.com/2026/03/26/climate/arctic-sea-ice-ties-record-low.html
+
 **Safety Experts Considered LaGuardia Challenging but Not an Outlier**\
 `Regulators, pilots and others in aviation have worried about the kind of runway accident that happened at LaGuardia Airport on Sunday.`\
 https://nytimes.com/2026/03/26/business/laguardia-airport-air-canada-safety.html
@@ -29,12 +33,4 @@ https://nytimes.com/2026/03/26/world/asia/iran-malaysia-ships-strait-of-hormuz.h
 **Seeking a Sounding Board? Beware the Eager-to-Please Chatbot.**\
 `A new study of popular AI models shows that their feedback on social situations is far from impartial.`\
 https://nytimes.com/2026/03/26/well/mind/ai-chatbots-relationships.html
-
-**Scientists Filmed a Whale Birth. The Surprise: Mom Had Many Helpers.**\
-`The episode, involving a group of sperm whales, adds to evidence that humans aren’t the only species that gets some form of assistance during and after delivery.`\
-https://nytimes.com/2026/03/26/climate/sperm-whale-birth-assistance.html
-
-**Oscars Will Move to a Venue Outside Hollywood**\
-`The event will be held in downtown Los Angeles starting in 2029 as part of a deal between the academy and AEG, a developer of entertainment venues.`\
-https://nytimes.com/2026/03/26/business/media/academy-awards-moving-downtown-los-angeles.html
 
