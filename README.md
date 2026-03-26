@@ -1,3 +1,8 @@
+**The Bounce: 5 burning questions about NBA expansion**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7148871/2026/03/26/nba-expansion-seattle-las-vegas-the-bounce-2/
+
 **Suzuka is one of F1’s best tracks. But with new cars, drivers are no longer convinced**\
 `F1 heads to Japan for its third 2026 race. Yet there are fears the Suzuka circuit might not be quite so enchanting for drivers`\
 https://nytimes.com/athletic/7148704/2026/03/26/new-f1-cars-japanese-gp-suzuka/
@@ -14,6 +19,10 @@ https://nytimes.com/2026/03/26/world/middleeast/iran-missile-strikes-abu-dhabi.h
 `The annual award that recognizes merit in humor is going to the satirist and talk show host who has been critical of President Trump and political correctness.`\
 https://nytimes.com/2026/03/26/arts/television/bill-maher-mark-twain-prize-kennedy-center.html
 
+**Sidelined from tennis by injury, Arthur Fils put in the work to return a contender**\
+`The 21-year-old had emerged as a force at the top of the sport before a back injury last year. In his time away, he souped himself up.`\
+https://nytimes.com/athletic/7110180/2026/03/26/tennis-arthur-fils-injury-comeback/
+
 **Olympic Committee Announces a Broad Ban of Transgender Athletes in Women’s Events**\
 `Kirsty Coventry, the first woman to lead the International Olympic Committee, has frequently spoken about what she says is the need to protect women’s competitions at the Olympic Games.`\
 https://nytimes.com/2026/03/26/world/olympics/ioc-transgender-athletes-ban.html
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/7148862/2026/03/26/rays-vs-cardinals-stream-how-to-
 **How to watch Rangers vs. Phillies: Time, TV, streaming for March 26**\
 `Find out how to watch the Texas Rangers play the Philadelphia Phillies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7148859/2026/03/26/rangers-vs-phillies-stream-how-to-watch-march-26/
-
-**How to watch Tigers vs. Padres: Time, TV, streaming for March 26**\
-`Find out how to watch the Detroit Tigers play the San Diego Padres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7148857/2026/03/26/tigers-vs-padres-stream-how-to-watch-march-26/
-
-**How to watch Red Sox vs. Reds: Time, TV, streaming for March 26**\
-`Find out how to watch the Boston Red Sox play the Cincinnati Reds, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7148855/2026/03/26/red-sox-vs-reds-stream-how-to-watch-march-26/
 
