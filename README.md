@@ -1,3 +1,7 @@
+**Chinese Education Influencer’s Sudden Death Prompts Grief, and Reflection**\
+`The influencer, Zhang Xuefeng, was known for no-nonsense, some said cynical, advice about how to win in China’s educational rat race. He died at 41.`\
+https://nytimes.com/2026/03/26/world/asia/chinese-influencer-zhang-death.html
+
 **From Norwich to Barcelona: Ajay Tavares, the England Under-17 winger at La Masia**\
 `It is not exactly a path well travelled, but this move from East Anglia reflects an established youth policy at the Catalan club`\
 https://nytimes.com/athletic/7146817/2026/03/26/ajay-tavares-norwich-barcelona-england-la-masia/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/26/pageoneplus/corrections-march-26-2026.html
 **Quote of the Day: Have a Nice Flight. Don’t Forget Your Fortitude.**\
 `Quotation of the Day for Thursday, March 26, 2026.`\
 https://nytimes.com/2026/03/25/pageoneplus/quote-of-the-day-have-a-nice-flight-dont-forget-your-fortitude.html
-
-**Trump Calls for Law Cracking Down on Crime and ‘Rogue Judges’**\
-`Ahead of the midterms, President Trump told a Republican gathering that he wants to go after repeat offenders and “rogue judges that are criminals.”`\
-https://nytimes.com/2026/03/25/us/politics/trump-judges-rogue-law.html
 
