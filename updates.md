@@ -1,3 +1,7 @@
+**Schumer Says Democrats Will Try to Restore Clean Energy Tax Credits**\
+`Senator Chuck Schumer of New York, the minority leader, said Democrats would pursue an agenda to reduce energy costs if they win back control of Congress.`\
+https://nytimes.com/2026/03/25/climate/schumer-democrats-clean-energy.html
+
 **Doc Rivers on NBPA's criticism of Giannis Antetokounmpo: 'He's not healthy'**\
 `Doc Rivers rejected the National Basketball Players Association’s assertion that the Bucks are holding out a healthy Giannis Antetokounmpo.`\
 https://nytimes.com/athletic/7147640/2026/03/25/doc-rivers-bucks-giannis-nbapa-65-games/

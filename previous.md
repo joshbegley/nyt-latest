@@ -1,3 +1,7 @@
+**Schumer Says Democrats Will Try to Restore Clean Energy Tax Credits**\
+`Senator Chuck Schumer of New York, the minority leader, said Democrats would pursue an agenda to reduce energy costs if they win back control of Congress.`\
+https://nytimes.com/2026/03/25/climate/schumer-democrats-clean-energy.html
+
 **Doc Rivers on NBPA's criticism of Giannis Antetokounmpo: 'He's not healthy'**\
 `Doc Rivers rejected the National Basketball Players Association’s assertion that the Bucks are holding out a healthy Giannis Antetokounmpo.`\
 https://nytimes.com/athletic/7147640/2026/03/25/doc-rivers-bucks-giannis-nbapa-65-games/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/25/podcasts/serial-the-idiot-episode-4.html
 **The Idiot: Chapter 3**\
 `M. attends Allen’s trial in San Francisco, where undercover recordings reveal how Allen’s plan to get Priscilla deported from the U.S. turned into a murder-for-hire plot.`\
 https://nytimes.com/2026/03/25/podcasts/serial-the-idiot-episode-3.html
-
-**The Idiot: Chapter 2**\
-`Allen’s ex-wife, Priscilla, tells M. about the lengths she has had to go to reunite with her son. M. is shocked.`\
-https://nytimes.com/2026/03/25/podcasts/serial-the-idiot-episode-2.html
 
