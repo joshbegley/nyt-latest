@@ -1,3 +1,20 @@
+**Women’s Olympic events to be limited to biological females, IOC says**\
+`Athletes will have to undergo a one-time screening for the SRY gene, found on the Y chromosome, the IOC said Thursday.`\
+https://nytimes.com/athletic/7148904/2026/03/26/olympics-transgender-ban-women/
+
+**Will Wade expected to leave NC State and return to LSU**\
+`Wade, one of college hoops' most polarizing figures, is poised to head back to LSU.`\
+https://nytimes.com/athletic/7148655/2026/03/26/will-wade-lsu-basketball-head-coach-nc-state/
+
+**NFL Referees Association says league walked out of CBA negotiations**\
+`NFLRA's executive director says no one in NFL delegation was authorized to negotiate beyond the original proposal after rejecting a counter.`\
+https://nytimes.com/athletic/7148837/2026/03/26/nfl-referees-association-cba-negotiations/
+
+**The Bounce: 5 burning questions about NBA expansion**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7148871/2026/03/26/nba-expansion-seattle-las-vegas-the-bounce-2/
+
 **The Bounce: 5 burning questions about NBA expansion**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.
 `\

@@ -1,3 +1,15 @@
+**Women’s Olympic events to be limited to biological females, IOC says**\
+`Athletes will have to undergo a one-time screening for the SRY gene, found on the Y chromosome, the IOC said Thursday.`\
+https://nytimes.com/athletic/7148904/2026/03/26/olympics-transgender-ban-women/
+
+**Will Wade expected to leave NC State and return to LSU**\
+`Wade, one of college hoops' most polarizing figures, is poised to head back to LSU.`\
+https://nytimes.com/athletic/7148655/2026/03/26/will-wade-lsu-basketball-head-coach-nc-state/
+
+**NFL Referees Association says league walked out of CBA negotiations**\
+`NFLRA's executive director says no one in NFL delegation was authorized to negotiate beyond the original proposal after rejecting a counter.`\
+https://nytimes.com/athletic/7148837/2026/03/26/nfl-referees-association-cba-negotiations/
+
 **Zelensky Says U.S. Is Conditioning Security Guarantees on Surrender of Donbas**\
 `President Volodymyr Zelensky of Ukraine said that President Trump “still chooses a strategy of putting more pressure on the Ukrainian side.”`\
 https://nytimes.com/2026/03/26/world/europe/zelensky-trump-ukraine-war-donbas.html
@@ -26,16 +38,4 @@ https://nytimes.com/2026/03/26/arts/television/bill-maher-mark-twain-prize-kenne
 **Sidelined from tennis by injury, Arthur Fils put in the work to return a contender**\
 `The 21-year-old had emerged as a force at the top of the sport before a back injury last year. In his time away, he souped himself up.`\
 https://nytimes.com/athletic/7110180/2026/03/26/tennis-arthur-fils-injury-comeback/
-
-**Olympic Committee Announces a Broad Ban of Transgender Athletes in Women’s Events**\
-`Kirsty Coventry, the first woman to lead the International Olympic Committee, has frequently spoken about what she says is the need to protect women’s competitions at the Olympic Games.`\
-https://nytimes.com/2026/03/26/world/olympics/ioc-transgender-athletes-ban.html
-
-**Spurs' Kulusevski insists his 'knee is great now' following latest surgery**\
-`Two weeks ago, Kulusevski had a minor surgical intervention to clean up the knee that has left him unable to play since May 2025.`\
-https://nytimes.com/athletic/7148830/2026/03/26/dejan-kulusevski-surgery-knee-tottenham-injury/
-
-**How to watch Rays vs. Cardinals: Time, TV, streaming for March 26**\
-`Find out how to watch the Tampa Bay Rays play the St. Louis Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7148862/2026/03/26/rays-vs-cardinals-stream-how-to-watch-march-26/
 
