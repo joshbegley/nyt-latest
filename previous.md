@@ -1,3 +1,15 @@
+**Men's Sweet 16 Friday watch guide: Duke and St. John's tip off a 4-game slate**\
+`The NCAA Tournament opens a fresh spring weekend with four juicy Sweet 16 matchups. Here's what to know and when to tune in.`\
+https://nytimes.com/athletic/7147218/2026/03/26/sweet-16-duke-st-johns-michigan-alabama-uconn/
+
+**Hello? It’s Pakistan Calling.**\
+`Washington, Tehran, Riyadh, Abu Dhabi, Cairo, Istanbul and Brussels have all received calls as Pakistan plays mediator between the United States and Iran.`\
+https://nytimes.com/2026/03/26/world/asia/pakistan-iran-united-states-talks.html
+
+**This Arda Guler assist was the kind of magic we want to see at the World Cup**\
+`The World Cup is about moments. Turkey generally, and Guler specifically, are more likely than most to provide ones we’ll all remember.`\
+https://nytimes.com/athletic/7149967/2026/03/26/arda-guler-turkey-assist-world-cup/
+
 **Robert Fox, Acclaimed Producer in Britain and on Broadway, Dies at 73**\
 `A favorite of actors like Maggie Smith, he produced dozens of plays, including “The Audience,” about Queen Elizabeth II, which was made into the Netflix show “The Crown.”`\
 https://nytimes.com/2026/03/26/theater/robert-fox-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/26/world/middleeast/trump-iran-naval-commander.html
 **Air Canada Chief Apologizes for English-Language Condolences After Plane Crash**\
 `Michael Rousseau said he was “deeply saddened” that his ​inability to speak French had diverted attention from the families’ grief.`\
 https://nytimes.com/2026/03/26/world/canada/air-canada-ceo-english-apology-crash.html
-
-**Mets' Carson Benge clubs Opening Day homer in MLB debut**\
-`Benge is the first player to make his major-league debut on Opening Day for the Mets since Pete Alonso in 2019.`\
-https://nytimes.com/athletic/7149931/2026/03/26/mets-carson-benge-opening-day-home-run-debut/
-
-**Stench of 20 Tons of Spilled Tofu Hits Missouri Town ‘Like a Brick Wall’**\
-`A truck careened into a ravine in Jerome, Mo., leaving the tofu to stew for weeks. “It was worse than a landfill on a hot July day,” said the general manager of a towing company.`\
-https://nytimes.com/2026/03/26/us/missouri-truck-tofu-i-44.html
-
-**How to watch Illinois vs. Houston men's basketball: Sweet 16 Time, TV, streaming**\
-`Find out how to watch the Illinois Fighting Illini play the Houston Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7149929/2026/03/26/illinois-vs-houston-stream-how-to-watch-march-26/
 

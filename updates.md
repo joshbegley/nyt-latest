@@ -1,3 +1,15 @@
+**Men's Sweet 16 Friday watch guide: Duke and St. John's tip off a 4-game slate**\
+`The NCAA Tournament opens a fresh spring weekend with four juicy Sweet 16 matchups. Here's what to know and when to tune in.`\
+https://nytimes.com/athletic/7147218/2026/03/26/sweet-16-duke-st-johns-michigan-alabama-uconn/
+
+**Hello? It’s Pakistan Calling.**\
+`Washington, Tehran, Riyadh, Abu Dhabi, Cairo, Istanbul and Brussels have all received calls as Pakistan plays mediator between the United States and Iran.`\
+https://nytimes.com/2026/03/26/world/asia/pakistan-iran-united-states-talks.html
+
+**This Arda Guler assist was the kind of magic we want to see at the World Cup**\
+`The World Cup is about moments. Turkey generally, and Guler specifically, are more likely than most to provide ones we’ll all remember.`\
+https://nytimes.com/athletic/7149967/2026/03/26/arda-guler-turkey-assist-world-cup/
+
 **Robert Fox, Acclaimed Producer in Britain and on Broadway, Dies at 73**\
 `A favorite of actors like Maggie Smith, he produced dozens of plays, including “The Audience,” about Queen Elizabeth II, which was made into the Netflix show “The Crown.”`\
 https://nytimes.com/2026/03/26/theater/robert-fox-dead.html
