@@ -1,3 +1,7 @@
+**How does MLB's ABS Challenge System work? An explainer to get you caught up**\
+`If you haven't watched any spring training games, this should familiarize you with the latest innovation in MLB games.`\
+https://nytimes.com/athletic/7143662/2026/03/26/automated-ball-strike-system-explained/
+
 **MLB Season Predictions 1.0: How does our staff think 2026 will play out?**\
 `The 2026 MLB season is here, and The Athletic's MLB staff has some thoughts on how it'll play out. Plus, analysis on the picks.`\
 https://nytimes.com/athletic/7148032/2026/03/26/mlb-2026-season-predictions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7147981/2026/03/26/ty-simpson-nfl-draft-alabama-pro
 **TV review: On ‘Netflix Opening Night,’ fans just wanted to watch ‘The Show’**\
 `For Netflix's MLB debut, it was too many company references and not enough of a focus on the baseball, The Athletic's media columnist says.`\
 https://nytimes.com/athletic/7148046/2026/03/26/mlb-netflix-yankees-giants/
-
-**With MLB's recent gains, the fight for second place among American sports leagues is heating up**\
-`The NFL is king. But baseball's gains of late have changed the terms of its rivalry with the NBA over who is No. 2. `\
-https://nytimes.com/athletic/7147363/2026/03/26/mlb-nba-2nd-place-american-sports-leagues/
 
