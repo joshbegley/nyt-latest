@@ -1,3 +1,11 @@
+**Lawsuit accuses Rams' Puka Nacua of biting women, making antisemitic remark**\
+`Nacua’s attorney has denied the allegations, labeling them part of an effort to blackmail the star wide reciever.`\
+https://nytimes.com/athletic/7149049/2026/03/26/rams-puka-nacua-lawsuit-antisemitic-biting-woman/
+
+**Dash Crofts, of the Soft-Rock Duo That Sang ‘Summer Breeze,’ Dies at 87**\
+`The 1970s duo Seals & Crofts had a number of Billboard Top 20 songs before their chart topper brought them global fame.`\
+https://nytimes.com/2026/03/26/arts/music/dash-crofts-dead.html
+
 **Mortgage Rates Jump Again as Iran War Effects Ripple Through Housing Market**\
 `The average rate on a 30-year mortgage in the United States hit 6.38 percent, the fourth increase since the war began.`\
 https://nytimes.com/2026/03/26/business/mortgage-rates-middle-east-war.html
@@ -21,12 +29,4 @@ https://nytimes.com/2026/03/26/world/canada/carney-canada-nato-spending.html
 **‘Public Charge’ Review: The World Is Messy. Being a Force for Good Is, Too.**\
 `A new play at the Public Theater written by Michael J. Chepiga and the former ambassador Julissa Reynoso is a diplomatic memoir of sorts, and a meditation on loving one’s country.`\
 https://nytimes.com/2026/03/26/theater/public-charge-review-julissa-reynoso.html
-
-**How to watch Texas vs. Purdue men's basketball: Sweet 16 Time, TV, streaming**\
-`Find out how to watch the Texas Longhorns play the Purdue Boilermakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7149318/2026/03/26/texas-vs-purdue-stream-how-to-watch-march-26/
-
-**How to watch Iowa vs. Nebraska men's basketball: Sweet 16 Time, TV, streaming**\
-`Find out how to watch the Iowa Hawkeyes play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7149316/2026/03/26/iowa-vs-nebraska-stream-how-to-watch-march-26/
 
