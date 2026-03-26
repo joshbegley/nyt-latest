@@ -1,3 +1,7 @@
+**This is the Julius Randle the Timberwolves have been waiting for all season**\
+`Randle led the charge as Minnesota completed a historic overtime comeback against the Rockets on Wednesday.`\
+https://nytimes.com/athletic/7147764/2026/03/26/julius-randle-timberwolves-rockets-comeback/
+
 **Jamal Murray's All-NBA case 'obvious' after 53-point night, Nuggets coach says**\
 `Denver is still working out some kinks after a spate of injuries, but Murray, who scored 53 points Wednesday night, has never played better.`\
 https://nytimes.com/athletic/7148384/2026/03/26/jamal-murray-all-nba-nuggets-jokic/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/26/world/middleeast/alireza-tangsiri.html
 **‘Love Story’ Is Actually A Horror Story**\
 `Wesley Morris and Sasha Weiss, the culture editor of The New York Times Magazine, on FX’s streaming hit “Love Story: John F. Kennedy Jr. & Carolyn Bessette.”`\
 https://nytimes.com/video/podcasts/100000010799670/love-story-is-actually-a-horror-story.html
-
-**Debate season: Wemby's MVP case, Giannis vs. the Bucks and the 65-game rule**\
-`Our columnist says he was wrong about the 65-game rule, though Adam Silver insists that it is working.`\
-https://nytimes.com/athletic/7148455/2026/03/26/victor-wembanyama-mvp-giannis-bucks-65-game-rule-nba/
 
