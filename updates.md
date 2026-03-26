@@ -1,3 +1,11 @@
+**Judge Questions Why U.S. Is Blocking Maduro’s Defense Funding**\
+`The U.S. government has blocked Venezuela from paying for its former leader’s defense lawyers. In a hearing, a judge said repeatedly that the former president’s right to his own defense was “paramount.”`\
+https://nytimes.com/2026/03/26/nyregion/maduro-venezuela-court-manhattan.html
+
+**Robert Griffin III reaches next phase to make Team USA flag football roster**\
+`The Olympic roster will be finalized in 2028.`\
+https://nytimes.com/athletic/7149711/2026/03/26/robert-griffin-iii-usa-flag-football-roster/
+
 **Crossplay Game Review**\
 `Review your recent games.`\
 https://nytimes.com/interactive/2026/upshot/crossplay-game-review-landing.html
