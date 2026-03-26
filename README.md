@@ -1,3 +1,7 @@
+**Rockets have failed to close games all season. OT loss to Minnesota was a harsh reminder**\
+`Wednesday's overtime loss was another example of the Rockets' inability to execute late in games to pull out a victory.`\
+https://nytimes.com/athletic/7148461/2026/03/26/rockets-timberwolves-overtime-loss-score-result/
+
 **Former NFL players Terrence Murphy, Reggie Bush acquire LOVB Salt Lake**\
 `The pair join other notable investors in the fast-growing volleyball ecosystem that is building out its pro franchise lineup.`\
 https://nytimes.com/athletic/7136670/2026/03/26/lovb-salt-lake-city-terrence-murphy-reggie-bush/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7145821/2026/03/26/cubs-opening-day-star-power-dodg
 **Dodgers' Freddie Freeman on winning, aging and being mad about batting average: a Q&A**\
 `Freeman enters his 17th season with wisdom, gratitude and a stubborn reliance on his routine: "I never change."`\
 https://nytimes.com/athletic/7147768/2026/03/26/dodgers-freddie-freeman-preview-interview/
-
-**PSG successful in request for free weekend between Liverpool Champions League games**\
-`PSG were also granted the weekend off between their two games against Chelsea in the previous round of the competition.`\
-https://nytimes.com/athletic/7148667/2026/03/26/psg-liverpool-champions-league-games/
 

@@ -1,3 +1,23 @@
+**Former NFL players Terrence Murphy, Reggie Bush acquire LOVB Salt Lake**\
+`The pair join other notable investors in the fast-growing volleyball ecosystem that is building out its pro franchise lineup.`\
+https://nytimes.com/athletic/7136670/2026/03/26/lovb-salt-lake-city-terrence-murphy-reggie-bush/
+
+**Seahawks NFL Draft big board: How should a team with few needs look to improve?**\
+`Let's look at how the reigning Super Bowl champs can make the most of their four draft picks in 2026.`\
+https://nytimes.com/athletic/7135728/2026/03/26/seahawks-2026-nfl-draft-big-board/
+
+**Five questions the Canucks need answers to before the end of the season**\
+`The answers to these questions might help shape Vancouver's offseason priorities.`\
+https://nytimes.com/athletic/7142923/2026/03/26/canucks-karlsson-buium-tolopilo-rossi-hoglander-questions/
+
+**How to Turn a Chicken Egg Into a Drug Factory**\
+`A biotech start-up is testing a novel way of efficiently producing pharmaceutical drugs.`\
+https://nytimes.com/2026/03/26/science/biotechnology-pharmaceuticals-eggs.html
+
+**How Logan Gilbert became an ace for a Mariners team with World Series aspirations**\
+`Gilbert was a highly regarded prospect when he entered professional baseball, but he's never stopped working to improve himself.`\
+https://nytimes.com/athletic/6714154/2026/03/26/logan-gilbert-seattle-mariners-opening-day/
+
 **Senegal to present AFCON trophy in Paris despite having title stripped**\
 `At a press conference, a lawyer for Senegal said Morocco had been unsuccessful in attempts to have the medals and prize money given to them.`\
 https://nytimes.com/athletic/7148636/2026/03/26/senegal-afcon-trophy-morocco-paris/
