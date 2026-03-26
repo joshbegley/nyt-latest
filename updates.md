@@ -1,3 +1,7 @@
+**Michigan's Lendeborg 'hurt' Bama didn't recruit him, downplays Kentucky NIL comments**\
+`Lendeborg and Michigan take on Alabama in the Sweet 16 on Friday.`\
+https://nytimes.com/athletic/7150083/2026/03/26/yaxel-lendeborg-michigan-recruitment-alabama-kentucky/
+
 **Betting on Everything**\
 `Prediction market platforms like Polymarket and Kalshi go way beyond sports and politics. We take a closer look.`\
 https://nytimes.com/2026/03/26/world/polymarket-betting-iran-trump-olympic-transgender.html

@@ -1,3 +1,7 @@
+**Michigan's Lendeborg 'hurt' Bama didn't recruit him, downplays Kentucky NIL comments**\
+`Lendeborg and Michigan take on Alabama in the Sweet 16 on Friday.`\
+https://nytimes.com/athletic/7150083/2026/03/26/yaxel-lendeborg-michigan-recruitment-alabama-kentucky/
+
 **Betting on Everything**\
 `Prediction market platforms like Polymarket and Kalshi go way beyond sports and politics. We take a closer look.`\
 https://nytimes.com/2026/03/26/world/polymarket-betting-iran-trump-olympic-transgender.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7147218/2026/03/26/sweet-16-duke-st-johns-michigan-
 **Hello? It’s Pakistan Calling.**\
 `Washington, Tehran, Riyadh, Abu Dhabi, Cairo, Istanbul and Brussels have all received calls as Pakistan plays mediator between the United States and Iran.`\
 https://nytimes.com/2026/03/26/world/asia/pakistan-iran-united-states-talks.html
-
-**This Arda Guler assist was the kind of magic we want to see at the World Cup**\
-`The World Cup is about moments. Turkey generally, and Guler specifically, are more likely than most to provide ones we’ll all remember`\
-https://nytimes.com/athletic/7149967/2026/03/26/arda-guler-turkey-assist-world-cup/
 
