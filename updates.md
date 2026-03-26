@@ -1,3 +1,7 @@
+**G.O.P. Senator Weighs Forcing Congress to Vote to Authorize the Iran War**\
+`Senator Lisa Murkowski of Alaska is drafting a formal authorization for the use of military force in Iran, seeking to put some parameters around the operation as the Trump administration has boxed out Congress.`\
+https://nytimes.com/2026/03/26/us/senator-murkowski-iran-war-vote-congress.html
+
 **Tyler O'Neill's historic Opening Day home run streak ends**\
 `O’Neill’s streak shattered the previous record, which was held by three catchers: Todd Hundley, Gary Carter and Yogi Berra.`\
 https://nytimes.com/athletic/7150210/2026/03/26/baltimore-orioles-tyler-oneill-opening-day-home-run/
