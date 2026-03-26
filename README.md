@@ -1,40 +1,40 @@
-**What’s Your Star Sign? The Ancients Could Offer You Some Insight.**\
-`Long before horoscope apps, the foundations of today’s multibillion-dollar astrology industry were laid in Babylonia, Egypt and the classical world.`\
-https://nytimes.com/2026/03/26/arts/design/zodiac-origins-exhibition-berlin.html
+**Coco Gauff sometimes feels like a tennis impostor, but she knows the ball doesn't lie**\
+`Gauff's latest journey into improving her two most important shots has challenged her sense of her own tennis.`\
+https://nytimes.com/athletic/7147873/2026/03/26/tennis-coco-gauff-impostor-syndrome/
 
-**Have You Seen the ‘Gen Z Pout’?**\
-`Their lips are pursed. Their eyes gaze into the middle distance. Is this a real thing?`\
-https://nytimes.com/2026/03/26/style/gen-z-pout-millennials.html
+**How Can America Be So Miserable When It’s So Rich?**\
+`The just resentments of a shrinking middle class.`\
+https://nytimes.com/2026/03/26/opinion/economy-attitudes-republicans-democrats.html
 
-**‘Lethality’ Used to Be a Pentagon Buzzword. Now It’s a Worldview.**\
-`It’s blunt instead of vague, brash instead of evasive, bold instead of cautious. And yet the word obfuscates as much as old defense jargon.`\
-https://nytimes.com/2026/03/26/magazine/lethality-us-military-pete-hegseth.html
+**Men of the Trump Administration, 2026**\
+`Are Democrats ugly? Asking for a friend.`\
+https://nytimes.com/2026/03/26/opinion/trump-war-democrats.html
 
-**How Far Will Trump Go in Iran?**\
-`I asked an Iran hawk what victory looks like now.`\
-https://nytimes.com/2026/03/26/opinion/interesting-times-podcast-mark-dubowitz.html
+**Big Tech Should Pay for What It Has Done to Us**\
+`We are beginning an era where the social-media companies are finally held accountable for their harm.`\
+https://nytimes.com/2026/03/26/opinion/big-tech-meta-youtube-lawsuit.html
 
-**Do You Believe in Magic? This Exhibit Is for You.**\
-`A show at the Library for the Performing Arts examines the golden age of magic in New York City, from the 1870s to just before World War II.`\
-https://nytimes.com/2026/03/26/nyregion/magic-exhibition-library-for-performing-arts.html
+**To Afford a House in Los Angeles, They Had to Become Landlords**\
+`For a couple and their toddler, moving from a noisy street in Hollywood to a tranquil home in the San Fernando Valley meant adding extra income — even if they had to build a house in the backyard.`\
+https://nytimes.com/interactive/2026/03/26/realestate/los-angeles-san-fernando-valley-homes-sale.html
 
-**Saving Hermit Crabs by Breeding Them in the Suburbs**\
-`Often treated as throwaway pets, hermit crabs can live 50 years. Mary Akers, a self-taught expert, wants people to appreciate them as much as she does.`\
-https://nytimes.com/2026/03/26/magazine/saving-hermit-crabs-by-breeding-them-in-the-suburbs.html
+**Raphael and the Renaissance of Divine Beauty**\
+`This blockbuster exhibition at the Metropolitan Museum of Art humanizes a lapsed god of painting.`\
+https://nytimes.com/2026/03/26/arts/design/raphael-metropolitan-museum-art-review.html
 
-**‘Love Story’ Is Actually a Horror Story**\
-`The nightmare began when she said, “I do.”`\
-https://nytimes.com/2026/03/26/podcasts/love-story-is-actually-a-horror-story.html
+**A Klee Angel’s American Debut Is Delayed by the Mideast War**\
+`The rarely seen “Angelus Novus” by Paul Klee was supposed to arrive at New York’s Jewish Museum, but remains in Israel instead.`\
+https://nytimes.com/2026/03/26/arts/paul-klee-angelus-novus-israel.html
 
-**Touching the Divine Through a Storied Rockefeller Art Trove**\
-`Our critic offers a guide to 70 years of great devotional sculptures in the Asia Society collection — including some that he once helped install.`\
-https://nytimes.com/2026/03/26/arts/design/asia-society-rockefeller-collection-buddhas.html
+**Rare Books Stolen From a Jesuit Archive in Rome Are Returned to Italy**\
+`The books, about astronomy and other topics, were written in Chinese by Jesuit missionaries who shared information on science as part of their effort to spread Christianity.`\
+https://nytimes.com/2026/03/26/arts/design/rare-books-stolen-from-a-jesuit-archive-in-rome-are-returned-to-italy.html
 
-**What Is Carole Radziwill Thinking?**\
-`Her deceased loved ones are characters on a hit TV show, her name is in the Epstein files and she’s returning to “Real Housewives.” What does she make of it all?`\
-https://nytimes.com/2026/03/26/style/carole-radziwill-rhony-love-story-epstein-files.html
+**Iran Is Using America’s Playbook Against Us**\
+`Iran has blocked the Strait of Hormuz by raising risks for ship operators. In doing so, it has taken lessons from American financial policy.`\
+https://nytimes.com/2026/03/26/opinion/iran-us-war-strait-hormuz.html
 
-**When a Not-So-Dark Knight and His Sidekick Saved a Wacky Gotham**\
-`Joel Schumacher apologized for “Batman & Robin,” his corny 1997 superhero movie, but thanks to its ice puns and bat nipples, it’s since become an accidental parody worth howling at.`\
-https://nytimes.com/2026/03/26/movies/batman-and-robin-clooney-thurman-schumacher.html
+**Juries Take the Lead in the Push for Child Online Safety**\
+`A pair of verdicts held social media companies accountable for harming young users, highlighting a growing backlash as Congress struggles to pass legislation.`\
+https://nytimes.com/2026/03/26/technology/social-media-verdicts-child-safety.html
 
