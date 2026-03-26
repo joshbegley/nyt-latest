@@ -1,3 +1,11 @@
+**Missile Hits Town in Central Israel**\
+`Video footage shows two people in central Israel barely missing being hit by what the Israeli military said was bomblet from an Iranian cluster bomb.`\
+https://nytimes.com/video/world/middleeast/100000010803010/missile-strikes-israel-iran.html
+
+**World Cup play-offs: Who went through? What are the match-ups in the finals?**\
+`Both the European and intercontinental playoff finals take place on Tuesday after which all 48 teams will then be confirmed.`\
+https://nytimes.com/athletic/7149592/2026/03/26/world-cup-playoffs-italy-sweden-finals/
+
 **8 Days After Sex Abuse Revelations, California Renames Chavez Holiday**\
 `Gov. Gavin Newsom signed legislation to rename Cesar Chavez Day as “Farmworkers Day,” moving quickly before the March 31 holiday.`\
 https://nytimes.com/2026/03/26/us/california-cesar-chavez-day-rename.html

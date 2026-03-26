@@ -1,3 +1,11 @@
+**Missile Hits Town in Central Israel**\
+`Video footage shows two people in central Israel barely missing being hit by what the Israeli military said was bomblet from an Iranian cluster bomb.`\
+https://nytimes.com/video/world/middleeast/100000010803010/missile-strikes-israel-iran.html
+
+**World Cup play-offs: Who went through? What are the match-ups in the finals?**\
+`Both the European and intercontinental playoff finals take place on Tuesday after which all 48 teams will then be confirmed.`\
+https://nytimes.com/athletic/7149592/2026/03/26/world-cup-playoffs-italy-sweden-finals/
+
 **8 Days After Sex Abuse Revelations, California Renames Chavez Holiday**\
 `Gov. Gavin Newsom signed legislation to rename Cesar Chavez Day as “Farmworkers Day,” moving quickly before the March 31 holiday.`\
 https://nytimes.com/2026/03/26/us/california-cesar-chavez-day-rename.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/26/learning/science-practice-a-study-on-the-health-e
 **Senators Haggle Over Homeland Security Funding as Airport Lines Grow**\
 `Bipartisan talks continued, but a deal to reopen the department remained elusive ahead of a major spring travel weekend, and as lawmakers looked toward their own two-week break.`\
 https://nytimes.com/2026/03/26/us/politics/congress-senators-homeland-security-funding.html
-
-**The Briefing: Brazil 1 France 2 – Magical Mbappe, Vinicius Junior's response, and hello cooling breaks**\
-`The Athletic's writers analyse Thursday's friendly between two World Cup heavyweights in Boston`\
-https://nytimes.com/athletic/7140938/2026/03/26/brazil-france-friendly-analysis-boston-mbappe/
-
-**Trump’s Signature to Be Added to U.S. Dollars**\
-`President Trump is set to be the first sitting president to have his signature appear on America’s currency.`\
-https://nytimes.com/2026/03/26/us/politics/trump-signature-us-dollars.html
 
