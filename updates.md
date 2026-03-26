@@ -1,3 +1,7 @@
+**Arthur Fils saves 4 match points to beat Tommy Paul at Miami Open**\
+`"He was able to close out the match when I wasn't," Paul said.`\
+https://nytimes.com/athletic/7148313/2026/03/26/arthur-fils-4-match-points-beat-tommy-paul-miami-open/
+
 **Why have Chelsea stopped scoring goals?**\
 `Chelsea have not stopped creating, but they have eased off the pedal when it comes to the speed of their attacks`\
 https://nytimes.com/athletic/7146668/2026/03/26/chelsea-goal-drought-rosenior-tactics-premier-league/
