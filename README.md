@@ -1,3 +1,19 @@
+**Bulls' Jaden Ivey and Jalen Smith both shut down for season due to injury**\
+`Smith re-aggravated a calf issue while Ivey has been dealing with a knee injury.`\
+https://nytimes.com/athletic/7149549/2026/03/26/bulls-jaden-ivey-jalen-smith-injury-season/
+
+**How to watch Avalanche vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7149585/2026/03/26/avalanche-vs-jets-stream-how-to-watch-march-26/
+
+**How to watch Ducks vs. Flames: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Calgary Flames, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7149583/2026/03/26/ducks-vs-flames-stream-how-to-watch-march-26/
+
+**What we learned about the 2026 Giants (as they collapsed on a national stage)**\
+`The Giants laid an egg on Opening Night, but there were a few positives to take away from their performance.`\
+https://nytimes.com/athletic/7149435/2026/03/26/sf-giants-opening-night-takeaways/
+
 **How to watch Diamondbacks vs. Dodgers: Time, TV, streaming for March 26**\
 `Find out how to watch the Arizona Diamondbacks play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7149545/2026/03/26/diamondbacks-vs-dodgers-stream-how-to-watch-march-26/
@@ -21,16 +37,4 @@ https://nytimes.com/2026/03/26/opinion/iran-war-messages.html
 **At the Reception, Guests Played Cornhole and Toasted Marshmallows**\
 `Camp-style weddings appeal to couples who want to trade formal affairs for gatherings where guests can connect and play.`\
 https://nytimes.com/2026/03/26/fashion/weddings/at-the-reception-guests-played-cornhole-and-toasted-marshmallows.html
-
-**Trump Eyes White House Treaty Room for Latest Renovation Project**\
-`President Trump is making new plans in one of the most significant renovations in the history of the White House.`\
-https://nytimes.com/2026/03/26/us/trump-eyes-white-house-treaty-room-for-latest-renovation-project.html
-
-**Lawmakers Press to Limit Prediction Bets by Policymakers**\
-`New bills aim to crack down on prediction-market bets by the president and members of Congress.`\
-https://nytimes.com/2026/03/26/us/politics/congress-betting-ban.html
-
-**‘Yes’ Review: From Israel, an Uncomfortable Existential Howl**\
-`Nadav Lapid’s scathing tone and accelerated rhythms lead this movie about a married couple who ingratiate themselves with the country’s power elite.`\
-https://nytimes.com/2026/03/26/movies/yes-review-israel.html
 

@@ -1,3 +1,11 @@
+**How to watch Diamondbacks vs. Dodgers: Time, TV, streaming for March 26**\
+`Find out how to watch the Arizona Diamondbacks play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7149545/2026/03/26/diamondbacks-vs-dodgers-stream-how-to-watch-march-26/
+
+**European Allies Worry Russia Is Preparing to Deliver Drones to Iran**\
+`The drones are an improved version of a weapon that Iran sent to Russia for use in its war in Ukraine.`\
+https://nytimes.com/2026/03/26/world/europe/iran-russia-europe-drones.html
+
 **Transgender Athletes Barred From Women’s Olympic Events**\
 `The International Olympic Committee announced a ban on transgender athletes competing in women’s events. The rule, which will go into effect during the 2028 Olympics, will require athletes to undergo genetic testing.`\
 https://nytimes.com/video/sports/100000010802995/olympics-transgender-athletes-women-ban.html
