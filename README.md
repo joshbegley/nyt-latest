@@ -1,3 +1,15 @@
+**‘Because I’m President’: Trump Defends His Use of Mail Voting**\
+`President Trump wants to restrict voting by mail, which he says amounts to “cheating.” But he defended his own use of the practice in a special election this week.`\
+https://nytimes.com/2026/03/26/us/politics/trump-mail-in-voting-florida.html
+
+**These Airports Don’t Use T.S.A. Your Current Wait: Minutes, Not Hours.**\
+`A handful of airports, including San Francisco and Kansas City International, participate in a program that lets them rely on private screeners instead of T.S.A. agents.`\
+https://nytimes.com/2026/03/26/travel/tsa-airports-shutdown-security-sfo-mci.html
+
+**Savannah Guthrie Says She Believes Her Mother Was Taken for Ransom**\
+`Savannah Guthrie spoke on the “Today” show in her first interview since her mother, Nancy Guthrie, was abducted from her home near Tuscon, Ariz.`\
+https://nytimes.com/video/us/100000010802716/savannah-nancy-guthrie-today-interview.html
+
 **What Teenagers Are Saying About How Pets Have Improved Their Lives**\
 `Students reflect on research that shows pets keep you healthier and share the profound bonds they’ve made with their animal companions.`\
 https://nytimes.com/2026/03/26/learning/what-teenagers-are-saying-about-how-pets-have-improved-their-lives.html
@@ -25,12 +37,4 @@ https://nytimes.com/2026/03/26/business/media/academy-awards-moving-downtown-los
 **NFL Newsletter: Lavonte David's remarkable run**\
 `Two offseason questions that might be answered soon, plus one of the greatest-ever Buccaneers just retired and we might get replacement refs`\
 https://nytimes.com/athletic/7149599/2026/03/26/lavonte-davids-remarkable-run-plus-questions-for-maxx-crosby-puka-nacua-and-replacement-refs/
-
-**Small Portable Lamps That Make a Big Impact**\
-`The best rechargeable lights bring warmth and flair.`\
-https://nytimes.com/2026/03/26/t-magazine/portable-rechargeable-lamps.html
-
-**Will Wade to LSU creates college sports’ most unlikable trio — but there are levels**\
-`My word, what a trio. They need a nickname. Someone texted Unholy Trinity. Not bad. I threw out Triple Biotic. Let’s work on it.`\
-https://nytimes.com/athletic/7149438/2026/03/26/lsu-coaches-will-wade-kim-mulkey-lane-kiffin/
 
