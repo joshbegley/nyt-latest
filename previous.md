@@ -1,40 +1,40 @@
-**Oil Prices Go Higher and Global Stocks Fall**\
-`Investors continued to parse conflicting signals on whether the war in the Middle East was nearing de-escalation.`\
-https://nytimes.com/2026/03/26/business/oil-stock-gas-prices-iran.html
+**Coco Gauff sometimes feels like a tennis impostor, but she knows the ball doesn't lie**\
+`Gauff's latest journey into improving her two most important shots has challenged her sense of her own tennis.`\
+https://nytimes.com/athletic/7147873/2026/03/26/tennis-coco-gauff-impostor-syndrome/
 
-**How much do players get paid? Colleges don't want you to know — but you should**\
-`Out of 70 schools The Athletic requested payrolls and budgets from, only one provided the information.`\
-https://nytimes.com/athletic/7144472/2026/03/26/college-players-athletes-salaries-payments/
+**How Can America Be So Miserable When It’s So Rich?**\
+`The just resentments of a shrinking middle class.`\
+https://nytimes.com/2026/03/26/opinion/economy-attitudes-republicans-democrats.html
 
-**Is hating Duke falling out of style in college basketball?**\
-`Many of the old reasons to hate Duke aren’t as prevalent anymore, from the titles to the coach to the players fans grew to despise.`\
-https://nytimes.com/athletic/7146561/2026/03/26/duke-blue-devils-mens-basketball-hate-villains/
+**Men of the Trump Administration, 2026**\
+`Are Democrats ugly? Asking for a friend.`\
+https://nytimes.com/2026/03/26/opinion/trump-war-democrats.html
 
-**Here’s to the old Boston Garden scoreboard, as it rests in pieces**\
-`It's unclear what to do, if anything, about the scoreboard that was present for many of Boston's greatest sports moments and so much more.`\
-https://nytimes.com/athletic/7139845/2026/03/26/celtics-bruins-scoreboard-old-boston-garden/
+**Big Tech Should Pay for What It Has Done to Us**\
+`We are beginning an era where the social-media companies are finally held accountable for their harm.`\
+https://nytimes.com/2026/03/26/opinion/big-tech-meta-youtube-lawsuit.html
 
-**India Appears Sidelined as Pakistan Tries to Play Peacemaker**\
-`Hours before a call between President Trump and India’s prime minister, American officials urged India to focus on shared goals and ignore differences.`\
-https://nytimes.com/2026/03/26/world/asia/india-pakistan-iran-trump-modi.html
+**To Afford a House in Los Angeles, They Had to Become Landlords**\
+`For a couple and their toddler, moving from a noisy street in Hollywood to a tranquil home in the San Fernando Valley meant adding extra income — even if they had to build a house in the backyard.`\
+https://nytimes.com/interactive/2026/03/26/realestate/los-angeles-san-fernando-valley-homes-sale.html
 
-**Men's March Madness Thursday guide: Schedule, preview, TV info for Sweet 16 games**\
-`Thursday's Sweet 16 slate offers something for everyone. Here's what to know and how to watch each game.`\
-https://nytimes.com/athletic/7144888/2026/03/26/march-madness-sweet-16-thursday-arizona-arkansas-2026/
+**Raphael and the Renaissance of Divine Beauty**\
+`This blockbuster exhibition at the Metropolitan Museum of Art humanizes a lapsed god of painting.`\
+https://nytimes.com/2026/03/26/arts/design/raphael-metropolitan-museum-art-review.html
 
-**Jury Rules Against Meta and YouTube for Addictive Features**\
-`Meta and YouTube must pay a plaintiff a combined $6 million after a jury found that they knowingly designed features that were addictive and harmful for a young user.`\
-https://nytimes.com/video/us/100000010802350/social-media-trial-meta-youtube.html
+**A Klee Angel’s American Debut Is Delayed by the Mideast War**\
+`The rarely seen “Angelus Novus” by Paul Klee was supposed to arrive at New York’s Jewish Museum, but remains in Israel instead.`\
+https://nytimes.com/2026/03/26/arts/paul-klee-angelus-novus-israel.html
 
-**Here’s the latest.**\
-`By Francesca Regalado, Isabel Kershner, Eric Schmitt and Euan Ward`\
-https://nytimes.com/live/2026/03/26/world/iran-war-israel-trump-oil/heres-the-latest
+**Rare Books Stolen From a Jesuit Archive in Rome Are Returned to Italy**\
+`The books, about astronomy and other topics, were written in Chinese by Jesuit missionaries who shared information on science as part of their effort to spread Christianity.`\
+https://nytimes.com/2026/03/26/arts/design/rare-books-stolen-from-a-jesuit-archive-in-rome-are-returned-to-italy.html
 
-**Iran War Live Updates: Israel Launches New Strikes on Iran**\
-`The United States and Iran have struggled to begin negotiations to end the war, after nearly four weeks of fighting. There were more drone and missile attacks on U.S. allies in the Persian Gulf on Thursday.`\
-https://nytimes.com/live/2026/03/26/world/iran-war-israel-trump-oil
+**Iran Is Using America’s Playbook Against Us**\
+`Iran has blocked the Strait of Hormuz by raising risks for ship operators. In doing so, it has taken lessons from American financial policy.`\
+https://nytimes.com/2026/03/26/opinion/iran-us-war-strait-hormuz.html
 
-**Out the Door**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2026/03/26/learning/out-the-door.html
+**Juries Take the Lead in the Push for Child Online Safety**\
+`A pair of verdicts held social media companies accountable for harming young users, highlighting a growing backlash as Congress struggles to pass legislation.`\
+https://nytimes.com/2026/03/26/technology/social-media-verdicts-child-safety.html
 
