@@ -1,3 +1,7 @@
+**How does MLB's ABS Challenge System work? An explainer to get you caught up**\
+`If you haven't watched any spring training games, this should familiarize you with the latest innovation in MLB games.`\
+https://nytimes.com/athletic/7143662/2026/03/26/automated-ball-strike-system-explained/
+
 **MLB Season Predictions 1.0: How does our staff think 2026 will play out?**\
 `The 2026 MLB season is here, and The Athletic's MLB staff has some thoughts on how it'll play out. Plus, analysis on the picks.`\
 https://nytimes.com/athletic/7148032/2026/03/26/mlb-2026-season-predictions/
