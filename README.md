@@ -1,3 +1,7 @@
+**Crossplay Game Review**\
+`Review your recent games.`\
+https://nytimes.com/interactive/2026/upshot/crossplay-game-review-landing.html
+
 **Contemporary Opera Doesn’t Need to ‘Challenge’ Audiences**\
 `With a musical language they can appreciate, Americans could more easily find opera’s appeal.`\
 https://nytimes.com/2026/03/26/opinion/new-american-opera.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7149691/2026/03/26/chelsea-nottingham-forest-punish
 **Past, present tales of the urgency and pressure of USMNT's last pre-World Cup camp**\
 `The aura around the last camp before a World Cup squad is picked is just different, which is what USMNT players are currently experiencing`\
 https://nytimes.com/athletic/7146914/2026/03/26/usmnt-last-world-cup-window-camp-roster/
-
-**Winter Sea Ice in the Arctic Ties a Record Low**\
-`Ice plays a vital role in reflecting away planet-warming sunlight. The Arctic is warming much faster than most other parts of the world.`\
-https://nytimes.com/2026/03/26/climate/arctic-sea-ice-ties-record-low.html
 
