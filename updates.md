@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/7148871/2026/03/26/nba-expansion-seattle-las-vegas-the-bounce-2/
 
+**The Bounce: 5 burning questions about NBA expansion**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7148871/2026/03/26/nba-expansion-seattle-las-vegas-the-bounce-2/
+
 **Suzuka is one of F1’s best tracks. But with new cars, drivers are no longer convinced**\
 `F1 heads to Japan for its third 2026 race. Yet there are fears the Suzuka circuit might not be quite so enchanting for drivers`\
 https://nytimes.com/athletic/7148704/2026/03/26/new-f1-cars-japanese-gp-suzuka/

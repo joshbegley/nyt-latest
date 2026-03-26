@@ -1,3 +1,7 @@
+**Zelensky Says U.S. Is Conditioning Security Guarantees on Surrender of Donbas**\
+`President Volodymyr Zelensky of Ukraine said that President Trump “still chooses a strategy of putting more pressure on the Ukrainian side.”`\
+https://nytimes.com/2026/03/26/world/europe/zelensky-trump-ukraine-war-donbas.html
+
 **The Bounce: 5 burning questions about NBA expansion**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7148830/2026/03/26/dejan-kulusevski-surgery-knee-to
 **How to watch Rays vs. Cardinals: Time, TV, streaming for March 26**\
 `Find out how to watch the Tampa Bay Rays play the St. Louis Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7148862/2026/03/26/rays-vs-cardinals-stream-how-to-watch-march-26/
-
-**How to watch Rangers vs. Phillies: Time, TV, streaming for March 26**\
-`Find out how to watch the Texas Rangers play the Philadelphia Phillies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7148859/2026/03/26/rangers-vs-phillies-stream-how-to-watch-march-26/
 
