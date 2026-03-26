@@ -1,8 +1,16 @@
+**Trump’s Signature to Be Added to U.S. Dollars**\
+`President Trump is set to be the first sitting president to have his signature appear on America’s currency.`\
+https://nytimes.com/2026/03/26/us/politics/trumps-signature-to-be-added-to-us-dollars.html
+
+**Wall St. Bonuses Soared to $49.2 Billion. New York Hoped for Even More.**\
+`The city was counting on a 15 percent rise in bonuses to produce tax revenues to fill its budget gap. The actual increase was 9 percent, the state comptroller said.`\
+https://nytimes.com/2026/03/26/nyregion/wall-street-bonus.html
+
 **Tyler O'Neill's historic Opening Day home run streak ends**\
 `O’Neill’s streak shattered the previous record, which was held by three catchers: Todd Hundley, Gary Carter and Yogi Berra.`\
 https://nytimes.com/athletic/7150210/2026/03/26/baltimore-orioles-tyler-oneill-opening-day-home-run/
 
-**Italy 2 Northern Ireland 0: Sandro Tonali proves he is World Cup worthy - but are his team?**\
+**Italy 2 Northern Ireland 0: Sandro Tonali proves he is World Cup worthy, but are his team?**\
 `Analysing the major talking points from Thursday's World Cup playoff semi-final in Bergamo`\
 https://nytimes.com/athletic/7136298/2026/03/26/italy-northern-ireland-world-cup-playoff-analysis/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7150121/2026/03/26/boston-gillette-stadium-train-ti
 **Rubio Says Allies Should Help Secure Strait by Iran for Oil and Gas Ships**\
 `The secretary of state said the United States and Iran were passing messages to each other as he headed to France for a diplomatic meeting of the Group of 7 nations.`\
 https://nytimes.com/2026/03/26/world/middleeast/rubio-strait-of-hormuz-iran-oil.html
-
-**Displaced by War, Many Seek Shelter in Beirut**\
-`Over 100,000 people have fled to temporary shelters as Israel continues strikes on Lebanon.`\
-https://nytimes.com/2026/03/26/world/middleeast/war-displaced-beirut.html
-
-**Sam Kieth, Creator of Surreal Comic Book Series The Maxx, Dies at 63**\
-`A cocreator of Neil Gaiman’s Sandman series, he dreamed up a character who is homeless in the real world and a superhero in a subconscious realm. It was adapted for an MTV series.`\
-https://nytimes.com/2026/03/26/arts/sam-kieth-dead.html
 

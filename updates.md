@@ -1,3 +1,15 @@
+**Trump’s Signature to Be Added to U.S. Dollars**\
+`President Trump is set to be the first sitting president to have his signature appear on America’s currency.`\
+https://nytimes.com/2026/03/26/us/politics/trumps-signature-to-be-added-to-us-dollars.html
+
+**Wall St. Bonuses Soared to $49.2 Billion. New York Hoped for Even More.**\
+`The city was counting on a 15 percent rise in bonuses to produce tax revenues to fill its budget gap. The actual increase was 9 percent, the state comptroller said.`\
+https://nytimes.com/2026/03/26/nyregion/wall-street-bonus.html
+
+**Italy 2 Northern Ireland 0: Sandro Tonali proves he is World Cup worthy, but are his team?**\
+`Analysing the major talking points from Thursday's World Cup playoff semi-final in Bergamo`\
+https://nytimes.com/athletic/7136298/2026/03/26/italy-northern-ireland-world-cup-playoff-analysis/
+
 **G.O.P. Senator Weighs Forcing Congress to Vote to Authorize the Iran War**\
 `Senator Lisa Murkowski of Alaska is drafting a formal authorization for the use of military force in Iran, seeking to put some parameters around the operation as the Trump administration has boxed out Congress.`\
 https://nytimes.com/2026/03/26/us/senator-murkowski-iran-war-vote-congress.html
