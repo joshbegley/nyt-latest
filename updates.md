@@ -1,3 +1,8 @@
+**The Bounce: 5 burning questions about NBA expansion**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7148871/2026/03/26/nba-expansion-seattle-las-vegas-the-bounce-2/
+
 **Women’s Olympic events to be limited to biological females, IOC says**\
 `Athletes will have to undergo a one-time screening for the SRY gene, found on the Y chromosome, the IOC said Thursday.`\
 https://nytimes.com/athletic/7148904/2026/03/26/olympics-transgender-ban-women/
