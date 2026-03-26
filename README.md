@@ -1,3 +1,23 @@
+**Former NFL players Terrence Murphy, Reggie Bush acquire LOVB Salt Lake**\
+`The pair join other notable investors in the fast-growing volleyball ecosystem that is building out its pro franchise lineup.`\
+https://nytimes.com/athletic/7136670/2026/03/26/lovb-salt-lake-city-terrence-murphy-reggie-bush/
+
+**Seahawks NFL Draft big board: How should a team with few needs look to improve?**\
+`Let's look at how the reigning Super Bowl champs can make the most of their four draft picks in 2026.`\
+https://nytimes.com/athletic/7135728/2026/03/26/seahawks-2026-nfl-draft-big-board/
+
+**Five questions the Canucks need answers to before the end of the season**\
+`The answers to these questions might help shape Vancouver's offseason priorities.`\
+https://nytimes.com/athletic/7142923/2026/03/26/canucks-karlsson-buium-tolopilo-rossi-hoglander-questions/
+
+**How to Turn a Chicken Egg Into a Drug Factory**\
+`A biotech start-up is testing a novel way of efficiently producing pharmaceutical drugs.`\
+https://nytimes.com/2026/03/26/science/biotechnology-pharmaceuticals-eggs.html
+
+**How Logan Gilbert became an ace for a Mariners team with World Series aspirations**\
+`Gilbert was a highly regarded prospect when he entered professional baseball, but he's never stopped working to improve himself.`\
+https://nytimes.com/athletic/6714154/2026/03/26/logan-gilbert-seattle-mariners-opening-day/
+
 **Senegal to present AFCON trophy in Paris despite having title stripped**\
 `At a press conference, a lawyer for Senegal said Morocco had been unsuccessful in attempts to have the medals and prize money given to them.`\
 https://nytimes.com/athletic/7148636/2026/03/26/senegal-afcon-trophy-morocco-paris/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7147768/2026/03/26/dodgers-freddie-freeman-preview-
 **PSG successful in request for free weekend between Liverpool Champions League games**\
 `PSG were also granted the weekend off between their two games against Chelsea in the previous round of the competition.`\
 https://nytimes.com/athletic/7148667/2026/03/26/psg-liverpool-champions-league-games/
-
-**U.S. Military Kills 4 People in Boat Strike in Caribbean**\
-`At least 163 people have been killed in the Trump administration’s campaign against suspected drug smuggling.`\
-https://nytimes.com/2026/03/26/us/politics/boat-strikes-caribbean.html
-
-**Chargers NFL Draft big board: Day 2 fits at guard, edge, WR and CB**\
-`The Chargers need to come out of the first round with a guard or edge rusher. But who are the players they should target in rounds 2 and 3?`\
-https://nytimes.com/athletic/7147624/2026/03/26/chargers-nfl-draft-big-board-day-2/
-
-**Packers depth chart: How will they address holes at running back, O-line and safety?**\
-`The Packers don't have any glaring holes in their starting lineup, but some positions still need addressing this offseason.`\
-https://nytimes.com/athletic/7146782/2026/03/26/packers-depth-chart-draft-free-agency/
-
-**Inside Canada’s World Cup goalkeeper battle – and why nobody has claimed the job yet**\
-`Neither top contender has seized the No. 1 shirt for the 2026 World Cup cohost, leaving a battle that's gone down to the last camp`\
-https://nytimes.com/athletic/7147973/2026/03/26/canada-world-cup-goalkeeper-stclair-crepeau-marsch/
-
-**After ‘Sausage Making,’ European Lawmakers Approve U.S. Trade Deal**\
-`The agreement that President Trump struck with the European Union has cleared a major hurdle that delayed it for months.`\
-https://nytimes.com/2026/03/26/world/europe/eu-trade-deal-us-european-parliament.html
 
