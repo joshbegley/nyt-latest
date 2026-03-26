@@ -1,40 +1,40 @@
-**How does MLB's ABS Challenge System work? An explainer to get you caught up**\
-`If you haven't watched any spring training games, this should familiarize you with the latest innovation in MLB games.`\
-https://nytimes.com/athletic/7143662/2026/03/26/automated-ball-strike-system-explained/
+**Panthers NFL Draft big board: 28 prospects who could fit rounds 1-3**\
+`After checking off several boxes in free agency, GM Dan Morgan created flexibility that will allow him to draft the best players available.`\
+https://nytimes.com/athletic/7147275/2026/03/26/carolina-panthers-nfl-draft-big-board-picks/
 
-**MLB Season Predictions 1.0: How does our staff think 2026 will play out?**\
-`The 2026 MLB season is here, and The Athletic's MLB staff has some thoughts on how it'll play out. Plus, analysis on the picks.`\
-https://nytimes.com/athletic/7148032/2026/03/26/mlb-2026-season-predictions/
+**Sabres' blunders, Timmins' solid return and more from OT loss to Bruins: 3 thoughts**\
+`Though Buffalo's special teams had an encouraging night, the Sabres weren't at their best and fumbled a chance at two points in overtime.`\
+https://nytimes.com/athletic/7148229/2026/03/26/sabres-overtime-loss-dahlin-timmins-return-bruins/
 
-**LeBron says Bronny belongs after father-son duo shares rotation minutes**\
-`It was no gimmick, the two playing alongside one another — it was another stage in a remarkable comeback that people often forget about.`\
-https://nytimes.com/athletic/7148215/2026/03/26/lebron-james-lakers-depth-chart-rotation-bronny/
+**Is the tank still on? How 2 straight wins affect the Leafs' draft lottery odds**\
+`With the destination of their first-round pick in flux, two regulation wins mean the draft lottery becomes more important for the Leafs.`\
+https://nytimes.com/athletic/7147992/2026/03/26/maple-leafs-nhl-draft-lottery-rangers-blues/
 
-**How much to become Cinderella? Virginia's March Madness run fueled in part by Reddit co-founder gift**\
-`"I want to make UVA a contender," multimillionaire Alexis Ohanian said about his donation.`\
-https://nytimes.com/athletic/7148091/2026/03/26/virginia-womens-basketball-sweet-16-alexis-ohanian-reddit/
+**Sýkora's long-awaited debut gives Rangers a feel-good moment: Takeaways**\
+`Plus an improved penalty kill, a rejuvenated first line and Mike Sullivan's ongoing defensive pair headaches after a 4-3 loss to the Leafs.`\
+https://nytimes.com/athletic/7148197/2026/03/26/rangers-sykora-debut-defense-pairs-penalty-kill-maple-leafs/
 
-**Mark Shapiro on the Blue Jays' payroll plans, hosting an All-Star Game and more**\
-`This marks the first time in franchise history that Toronto has had a top-10 MLB payroll for four consecutive seasons.`\
-https://nytimes.com/athletic/7147692/2026/03/26/blue-jays-mark-shapiro-payroll-all-star/
+**Michael Valgren interview: 'I went straight into the fence, and fell maybe 10 metres down the mountain'**\
+`The Danish rider speaks to The Athletic about his recovery from a career-threatening crash in 2022, and why cycling needs more humanity`\
+https://nytimes.com/athletic/7141196/2026/03/26/michael-valgren-interview-tour-de-france-ef-education/
 
-**Updated Giants depth chart: Still lots of work to do this offseason**\
-`What happens when you’ve been out of the country and completely miss NFL free agency? Well, luckily for you all, I&#8217;m the test case for this exact scenario.`\
-https://nytimes.com/athletic/7147052/2026/03/26/new-york-giants-depth-chart-post-free-agency/
+**Three bold Red Sox predictions for the 2026 season**\
+`With solid pitching depth and a lineup that could be more potent than expected, the Red Sox have a chance to make things interesting. `\
+https://nytimes.com/athletic/7142308/2026/03/26/red-sox-2026-season-bold-predictions/
 
-**Bold predictions for the 2026 Mets, including Kodai Senga seeing stars**\
-`Watch for Christian Scott or Jonah Tong to emerge in time for the postseason playoff rotation, according to our fearless forecaster.`\
-https://nytimes.com/athletic/7140610/2026/03/26/mets-predictions-season-preview/
+**What's the worst a team can be at five-on-five and still compete for the Stanley Cup?**\
+`There's no perfect path to playoff success, but controlling play at five-on-five sure doesn't hurt. But exactly how necessary is it?`\
+https://nytimes.com/athletic/7148048/2026/03/26/nhl-playoffs-even-strength-stanley-cup-runs-analysis/
 
-**What is the Jets' plan at backup QB now? Is Oregon's Kenyon Sadiq a draft target? Mailbag**\
-`Plus, questions on Wink Martindale, rumors of Woody Johnson meddling and whether Geno Smith can have an all-time Jets season.`\
-https://nytimes.com/athletic/7147395/2026/03/26/new-york-jets-mailbag-backup-qb-draft-targets/
+**Ranking every Opening Day pitching matchup from proven aces to first-time season openers**\
+`Twenty-two top starters will take the mound on Opening Day as each team hands the ball and the honor to one of their best arms. `\
+https://nytimes.com/athletic/7147576/2026/03/26/ranking-opening-day-pitching-matchups/
 
-**His pro day in the books, Ty Simpson remains the NFL draft's biggest mystery**\
-`Simpson was sharp on Wednesday but it had little effect on his draft stock, which could land him anywhere in the first three rounds.`\
-https://nytimes.com/athletic/7147981/2026/03/26/ty-simpson-nfl-draft-alabama-pro-day/
+**José Ramírez is the Guardians' anchor — and hopefully, their World Series catalyst, too**\
+`“He’s a great Cleveland story,” Guardians owner Paul Dolan said this week."It’s one of the great legacies of this franchise to keep him."`\
+https://nytimes.com/athletic/7145460/2026/03/26/jose-ramirez-guardians-anchor-world-series-catalyst/
 
-**TV review: On ‘Netflix Opening Night,’ fans just wanted to watch ‘The Show’**\
-`For Netflix's MLB debut, it was too many company references and not enough of a focus on the baseball, The Athletic's media columnist says.`\
-https://nytimes.com/athletic/7148046/2026/03/26/mlb-netflix-yankees-giants/
+**Jaylen Brown lauds Jayson Tatum's 'great, encouraging' game against the Thunder**\
+`In a playoff atmosphere against the defending champs, Boston got its clearest look yet at what it can be with Tatum back and healthy.`\
+https://nytimes.com/athletic/7148315/2026/03/26/celtics-stop-thunder-jaylen-brown-jayson-tatum/
 
