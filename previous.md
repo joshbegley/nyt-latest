@@ -1,3 +1,7 @@
+**Oil Prices Go Higher and Global Stocks Fall**\
+`Investors continued to parse conflicting signals on whether the war in the Middle East was nearing de-escalation.`\
+https://nytimes.com/2026/03/26/business/oil-stock-gas-prices-iran.html
+
 **How much do players get paid? Colleges don't want you to know — but you should**\
 `Out of 70 schools The Athletic requested payrolls and budgets from, only one provided the information.`\
 https://nytimes.com/athletic/7144472/2026/03/26/college-players-athletes-salaries-payments/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/26/world/iran-war-israel-trump-oil
 **Out the Door**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2026/03/26/learning/out-the-door.html
-
-**Mamdani Promised to Freeze the Rent. Now the Fight Begins.**\
-`Nine board members, six of whom were appointed by Mayor Zohran Mamdani, will meet Thursday to begin weighing whether to enact a rent freeze.`\
-https://nytimes.com/2026/03/26/nyregion/mamdani-freeze-rent-guidelines-board.html
 

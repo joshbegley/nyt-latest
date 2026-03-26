@@ -1,3 +1,7 @@
+**Oil Prices Go Higher and Global Stocks Fall**\
+`Investors continued to parse conflicting signals on whether the war in the Middle East was nearing de-escalation.`\
+https://nytimes.com/2026/03/26/business/oil-stock-gas-prices-iran.html
+
 **How much do players get paid? Colleges don't want you to know — but you should**\
 `Out of 70 schools The Athletic requested payrolls and budgets from, only one provided the information.`\
 https://nytimes.com/athletic/7144472/2026/03/26/college-players-athletes-salaries-payments/
