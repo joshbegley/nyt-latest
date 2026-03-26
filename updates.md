@@ -1,3 +1,11 @@
+**Ipswich Town and Nigel Farage: A private lunch, free shirts and staff complaints**\
+`The visit by the Reform UK leader, and Ipswich's account of the visit being undermined, has prompted a fan backlash`\
+https://nytimes.com/athletic/7146892/2026/03/26/ipswich-town-nigel-farage-reform-uk/
+
+**Dash Crofts, of the Soft-Rock Duo That Sang ‘Summer Breeze,’ Dies at 87**\
+`Seals & Crofts had a number of Billboard Top 20 songs in the 1970s before their chart topper brought them global fame.`\
+https://nytimes.com/2026/03/26/arts/music/dash-crofts-dead.html
+
 **Lawsuit accuses Rams' Puka Nacua of biting women, making antisemitic remark**\
 `Nacua’s attorney has denied the allegations, labeling them part of an effort to blackmail the star wide reciever.`\
 https://nytimes.com/athletic/7149049/2026/03/26/rams-puka-nacua-lawsuit-antisemitic-biting-woman/
