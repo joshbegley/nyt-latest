@@ -1,3 +1,7 @@
+**Arthur Fils saves 4 match points to beat Tommy Paul at Miami Open**\
+`"He was able to close out the match when I wasn't," Paul said.`\
+https://nytimes.com/athletic/7148313/2026/03/26/arthur-fils-4-match-points-beat-tommy-paul-miami-open/
+
 **Will Brighton have another World Cup winner in 2026?**\
 `Which Brighton players could be heading to this summer's World Cup, and who could miss out...`\
 https://nytimes.com/athletic/7111078/2026/03/26/brighton-world-cup-2026-players/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7146734/2026/03/26/neco-williams-liverpool-forest-w
 **What are your Premier League club's players up to over the international break?**\
 `How many players are on international duty? Where are they playing? Who is out injured?`\
 https://nytimes.com/athletic/7143206/2026/03/26/premier-league-players-international-break/
-
-**Bukayo Saka, the load of expectation and what's changed this season**\
-`The 24-year-old has Arsenal's leading man since he was 18. This season, there has been a drop-off, but why?`\
-https://nytimes.com/athletic/7146116/2026/03/26/arsenal-bukayo-saka-performance/
 

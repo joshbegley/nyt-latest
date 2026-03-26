@@ -1,3 +1,7 @@
+**Why have Chelsea stopped scoring goals?**\
+`Chelsea have not stopped creating, but they have eased off the pedal when it comes to the speed of their attacks`\
+https://nytimes.com/athletic/7146668/2026/03/26/chelsea-goal-drought-rosenior-tactics-premier-league/
+
 **Will Brighton have another World Cup winner in 2026?**\
 `Which Brighton players could be heading to this summer's World Cup, and who could miss out...`\
 https://nytimes.com/athletic/7111078/2026/03/26/brighton-world-cup-2026-players/
