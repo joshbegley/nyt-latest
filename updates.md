@@ -1,3 +1,7 @@
+**India Appears Sidelined as Pakistan Tries to Play Peacemaker**\
+`Hours before a call between President Trump and India’s prime minister, American officials urged India to focus on shared goals and ignore differences.`\
+https://nytimes.com/2026/03/26/world/asia/india-pakistan-iran-trump-modi.html
+
 **Men's March Madness Thursday guide: Schedule, preview, TV info for Sweet 16 games**\
 `Thursday's Sweet 16 slate offers something for everyone. Here's what to know and how to watch each game.`\
 https://nytimes.com/athletic/7144888/2026/03/26/march-madness-sweet-16-thursday-arizona-arkansas-2026/
