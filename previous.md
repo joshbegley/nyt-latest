@@ -1,6 +1,10 @@
-**World Cup fans' $15,000 bonds to enter U.S. Plus: MLS commissioner's Salah hope**\
-`Today in TAFC: The bond payments facing fans of several World Cup countries. Plus: MLS hoping for Salah, and what about Casemiro?`\
-https://nytimes.com/athletic/7148501/2026/03/26/world-cup-fans-15000-bonds-to-enter-u-s-plus-mls-commissioners-salah-hope/
+**Savannah Guthrie Says Mother’s Abduction Was Probably a Ransom Attempt**\
+`Her interview on the “Today” show came more than 50 days after her mother, Nancy Guthrie, was taken from her home near Tucson, Ariz.`\
+https://nytimes.com/2026/03/26/us/savannah-guthrie-interview.html
+
+**Trump Administration Live Updates: President Is Set to Miss Deadline to Nominate C.D.C. Director**\
+``\
+https://nytimes.com/live/2026/03/26/us/trump-news
 
 **This is the Julius Randle the Timberwolves have been waiting for all season**\
 `Randle led the charge as Minnesota completed a historic overtime comeback against the Rockets on Wednesday.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7148617/2026/03/26/nationals-vs-cubs-stream-how-to-
 **How to watch White Sox vs. Brewers: Time, TV, streaming for March 26**\
 `Find out how to watch the Chicago White Sox play the Milwaukee Brewers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7148611/2026/03/26/white-sox-vs-brewers-stream-how-to-watch-march-26/
-
-**Commander Targeted by Israel Led Iran’s Blockade of Strait of Hormuz**\
-`Israel said it killed the naval commander, Alireza Tangsiri, in an airstrike on Thursday morning. Iran has not commented.`\
-https://nytimes.com/2026/03/26/world/middleeast/alireza-tangsiri.html
 

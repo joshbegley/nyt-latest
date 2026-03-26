@@ -1,3 +1,11 @@
+**Savannah Guthrie Says Mother’s Abduction Was Probably a Ransom Attempt**\
+`Her interview on the “Today” show came more than 50 days after her mother, Nancy Guthrie, was taken from her home near Tucson, Ariz.`\
+https://nytimes.com/2026/03/26/us/savannah-guthrie-interview.html
+
+**Trump Administration Live Updates: President Is Set to Miss Deadline to Nominate C.D.C. Director**\
+``\
+https://nytimes.com/live/2026/03/26/us/trump-news
+
 **World Cup fans' $15,000 bonds to enter U.S. Plus: MLS commissioner's Salah hope**\
 `Today in TAFC: The bond payments facing fans of several World Cup countries. Plus: MLS hoping for Salah, and what about Casemiro?`\
 https://nytimes.com/athletic/7148501/2026/03/26/world-cup-fans-15000-bonds-to-enter-u-s-plus-mls-commissioners-salah-hope/
