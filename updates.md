@@ -1,3 +1,7 @@
+**War Will Push U.S. Inflation Above 4 Percent This Year, O.E.C.D. Says**\
+`Higher energy prices and uncertainty over the war in the Middle East will boost inflation and weigh on economic growth, a new forecast says.`\
+https://nytimes.com/2026/03/26/business/inflation-prices-energy-iran-oecd.html
+
 **The Cubs are serious about a Series run, and they may have enough star power to do it**\
 `Everyone loves a winner. Chicago hungers for one. No one has to tell the Cubs what their goal is this year.`\
 https://nytimes.com/athletic/7145821/2026/03/26/cubs-opening-day-star-power-dodgers-world-series/
