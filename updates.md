@@ -1,3 +1,7 @@
+**U.S. Military Kills 4 People in Boat Strike in Caribbean**\
+`At least 163 people have been killed in the Trump administration’s campaign against suspected drug smuggling.`\
+https://nytimes.com/2026/03/26/us/politics/boat-strikes-caribbean.html
+
 **Chargers NFL Draft big board: Day 2 fits at guard, edge, WR and CB**\
 `The Chargers need to come out of the first round with a guard or edge rusher. But who are the players they should target in rounds 2 and 3?`\
 https://nytimes.com/athletic/7147624/2026/03/26/chargers-nfl-draft-big-board-day-2/
