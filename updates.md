@@ -1,3 +1,7 @@
+**Winter Sea Ice in the Arctic Ties a Record Low**\
+`Ice plays a vital role in reflecting away planet-warming sunlight. The Arctic is warming much faster than most other parts of the world.`\
+https://nytimes.com/2026/03/26/climate/arctic-sea-ice-ties-record-low.html
+
 **Safety Experts Considered LaGuardia Challenging but Not an Outlier**\
 `Regulators, pilots and others in aviation have worried about the kind of runway accident that happened at LaGuardia Airport on Sunday.`\
 https://nytimes.com/2026/03/26/business/laguardia-airport-air-canada-safety.html
