@@ -34,7 +34,7 @@ https://nytimes.com/athletic/7146849/2026/03/26/liverpool-transfer-olise-diomand
 `Fittingly, the former Liverpool, Inter and Bayern star's mantra was: "If you never try, you're never going to score"`\
 https://nytimes.com/athletic/7146873/2026/03/26/xherdan-shaqiri-liverpool-bayern-switzerland-analysis-goals/
 
-**Alexandre Pato interview: 'Brazilians just want to win now. If you play bad, just win the game'**\
-`The Brazilian speaks to The Athletic about his injury-hit career, how football has changed, and Brazil's front three for the World Cup`\
-https://nytimes.com/athletic/7146471/2026/03/26/alexandre-pato-interview-brazil-world-cup-milan-ronaldinho/
+**Bukayo Saka, the load of expectation and what's changed this season**\
+`The 24-year-old has Arsenal's leading man since he was 18. This season, there has been a drop-off, but why?`\
+https://nytimes.com/athletic/7146116/2026/03/26/arsenal-bukayo-saka-performance/
 
