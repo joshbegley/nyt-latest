@@ -1,3 +1,11 @@
+**Sheriff in California Seizes More Ballots, Ignoring State Attorney General**\
+`Chad Bianco, the Riverside County sheriff and a Republican running for governor, is examining votes from 2025 after unsubstantiated claims of fraud.`\
+https://nytimes.com/2026/03/26/us/politics/california-sheriff-ballots-attorney-general.html
+
+**The Briefing: Brazil 1 France 2 – Magical Mbappe, Vinicius Junior's response, and hello cooling breaks**\
+`The Athletic's writers analyse Thursday's friendly between two World Cup heavyweights in Boston`\
+https://nytimes.com/athletic/7140938/2026/03/26/brazil-france-friendly-analysis-boston-mbappe/
+
 **Sardi’s Sells Its Name and Takes a Brief Intermission**\
 `The longtime owner of the restaurant, a Theater District mainstay, is bowing out, and the Shubert Organization plans to reopen after a renovation, with the celebrity caricatures intact.`\
 https://nytimes.com/2026/03/26/nyregion/sardis-nyc-sold-shubert.html
