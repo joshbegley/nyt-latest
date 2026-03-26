@@ -1,5 +1,13 @@
+**Luis Robert and new-look Mets provide strong Opening Day impression**\
+`Carson Benge's homer and the lineup's patient approach against Paul Skenes made for an ideal tone-setter: "It gives you a lot of optimism."`\
+https://nytimes.com/athletic/7150329/2026/03/26/luis-robert-carson-benge-mets-opening-day/
+
+**Trump Says He Will Sign Order to Pay T.S.A. Agents During Shutdown**\
+`President Trump said he would sign an emergency order to pay Transportation Security Administration agents, with an intensifying crisis at airports ahead of a busy travel weekend.`\
+https://nytimes.com/2026/03/26/us/politics/trump-tsa-agents-shutdown.html
+
 **As Markets Revolt in the Face of War, Trump Extends Iran Deadline**\
-`Just before stocks ended another bruising day, the president took to social media to promote progress in talks with Iran.`\
+`Just after stocks ended another bruising day, the president took to social media to promote progress in talks with Iran.`\
 https://nytimes.com/2026/03/26/world/middleeast/markets-revolt-trump-iran.html
 
 **D.H.S. Funding Lapse Leads to Longest Partial Shutdown in History**\
@@ -11,7 +19,7 @@ https://nytimes.com/2026/03/26/us/politics/dhs-shutdown-longest-history.html
 https://nytimes.com/video/world/middleeast/100000010803010/missile-strikes-israel-iran.html
 
 **World Cup play-offs: Who went through? What are the match-ups in the finals?**\
-`Both the European and intercontinental playoff finals take place on Tuesday after which all 48 teams will then be confirmed.`\
+`Both the European and intercontinental play-off finals take place on Tuesday after which all 48 teams will then be confirmed.`\
 https://nytimes.com/athletic/7149592/2026/03/26/world-cup-playoffs-italy-sweden-finals/
 
 **8 Days After Sex Abuse Revelations, California Renames Chavez Holiday**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/26/us/politics/california-sheriff-ballots-attorney-g
 **Sardi’s Sells Its Name and Takes a Brief Intermission**\
 `The longtime owner of the restaurant, a Theater District mainstay, is bowing out, and the Shubert Organization plans to reopen after a renovation, with the celebrity caricatures intact.`\
 https://nytimes.com/2026/03/26/nyregion/sardis-nyc-sold-shubert.html
-
-**High School Athlete Is Shot Dead While Playing With Friends**\
-`A boy, the son of a New York police officer, may have been playing with a gun when it accidentally went off, killing Ka’Mardre Coleman, 16, according to prosecutors and the boy’s lawyer.`\
-https://nytimes.com/2026/03/26/nyregion/teen-shot-killed-nyc.html
-
-**How Young Is Too Young to Get a Smartphone?**\
-`A recent study found that having a smartphone before the age of 12 could carry health risks. Are kids getting the devices when they’re too young?`\
-https://nytimes.com/2026/03/26/learning/how-young-is-too-young-to-get-a-smartphone.html
 

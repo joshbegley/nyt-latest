@@ -1,3 +1,11 @@
+**As Markets Revolt in the Face of War, Trump Extends Iran Deadline**\
+`Just before stocks ended another bruising day, the president took to social media to promote progress in talks with Iran.`\
+https://nytimes.com/2026/03/26/world/middleeast/markets-revolt-trump-iran.html
+
+**D.H.S. Funding Lapse Leads to Longest Partial Shutdown in History**\
+`If the shutdown continues after this weekend, it will be longer than any previous shutdown, partial or full.`\
+https://nytimes.com/2026/03/26/us/politics/dhs-shutdown-longest-history.html
+
 **Missile Hits Town in Central Israel**\
 `Video footage shows two people in central Israel barely missing being hit by what the Israeli military said was bomblet from an Iranian cluster bomb.`\
 https://nytimes.com/video/world/middleeast/100000010803010/missile-strikes-israel-iran.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/26/nyregion/teen-shot-killed-nyc.html
 **How Young Is Too Young to Get a Smartphone?**\
 `A recent study found that having a smartphone before the age of 12 could carry health risks. Are kids getting the devices when they’re too young?`\
 https://nytimes.com/2026/03/26/learning/how-young-is-too-young-to-get-a-smartphone.html
-
-**Science Practice | A Study on the Health Effects of a Cellphone Before Age 12**\
-`Researchers found higher rates of depression, poor sleep and obesity among tweens who had early access to a cellphone.`\
-https://nytimes.com/2026/03/26/learning/science-practice-a-study-on-the-health-effects-of-a-cellphone-before-age-12.html
-
-**Senators Haggle Over Homeland Security Funding as Airport Lines Grow**\
-`Bipartisan talks continued, but a deal to reopen the department remained elusive ahead of a major spring travel weekend, and as lawmakers looked toward their own two-week break.`\
-https://nytimes.com/2026/03/26/us/politics/congress-senators-homeland-security-funding.html
 

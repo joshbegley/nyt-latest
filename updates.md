@@ -1,3 +1,11 @@
+**As Markets Revolt in the Face of War, Trump Extends Iran Deadline**\
+`Just before stocks ended another bruising day, the president took to social media to promote progress in talks with Iran.`\
+https://nytimes.com/2026/03/26/world/middleeast/markets-revolt-trump-iran.html
+
+**D.H.S. Funding Lapse Leads to Longest Partial Shutdown in History**\
+`If the shutdown continues after this weekend, it will be longer than any previous shutdown, partial or full.`\
+https://nytimes.com/2026/03/26/us/politics/dhs-shutdown-longest-history.html
+
 **Missile Hits Town in Central Israel**\
 `Video footage shows two people in central Israel barely missing being hit by what the Israeli military said was bomblet from an Iranian cluster bomb.`\
 https://nytimes.com/video/world/middleeast/100000010803010/missile-strikes-israel-iran.html
