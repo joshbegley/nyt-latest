@@ -1,3 +1,11 @@
+**Debate season: Wemby's MVP case, Giannis vs. the Bucks and the 65-game rule**\
+`Our columnist says he was wrong about the 65-game rule, though Adam Silver insists that it is working.`\
+https://nytimes.com/athletic/7148455/2026/03/26/victor-wembanyama-mvp-giannis-bucks-65-game-rule-nba/
+
+**Melania Trump and A.I.-Powered Robot Arrive at White House Event**\
+`The first lady, Melania Trump, entered a White House summit on educational technology alongside a humanoid robot. It then silently walked away as the meeting began.`\
+https://nytimes.com/video/us/politics/100000010802613/melania-trump-humanoid-ai-robot-white-house.html
+
 **Lions NFL Draft big board: O-linemen, edge rushers top needs with DB, LB lurking**\
 `The Lions are in need of offensive line and edge-rushing help, but could safety and linebacker also be in play on Day 1 or 2?`\
 https://nytimes.com/athletic/7141592/2026/03/26/detroit-lions-big-board-nfl-draft/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7148465/2026/03/26/draymond-green-victor-wembanyama
 **Giants' shortcomings look awfully familiar in season-opening loss to Yankees**\
 `After a positive and productive spring training, the Giants looked more like the team that struggled last season in Wednesday's 7-0 loss.`\
 https://nytimes.com/athletic/7148353/2026/03/26/giants-season-opening-loss-yankees/
-
-**World Cup 2026 stadium guides: Welcome to Los Angeles Stadium, the most expensive sports venue in the world**\
-`SoFi Stadium was primarily funded and developed by LA Rams owner Stan Kroenke. It will host eight games including two USMNT fixtures`\
-https://nytimes.com/athletic/7143097/2026/03/26/world-cup-2026-stadium-guides-los-angeles/
-
-**NWSL extends media reach with Women's Sports Network partnership through 2027**\
-`The network's focus on player-driven storytelling helps convert fans' discovery into deeper engagement, an executive said.`\
-https://nytimes.com/athletic/7148094/2026/03/26/nwsl-expands-streaming-options-wsn-2/
 
