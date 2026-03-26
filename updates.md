@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Francesca Regalado, Isabel Kershner, Eric Schmitt and Euan Ward`\
+https://nytimes.com/live/2026/03/26/world/iran-war-israel-trump-oil/heres-the-latest
+
+**Iran War Live Updates: Israel Launches New Strikes on Iran**\
+`The United States and Iran have struggled to begin negotiations to end the war, after nearly four weeks of fighting. There were more drone and missile attacks on U.S. allies in the Persian Gulf on Thursday.`\
+https://nytimes.com/live/2026/03/26/world/iran-war-israel-trump-oil
+
 **UWCL first-leg defeat to Bayern shows Manchester United must narrow the small margins**\
 `Champions League quarter-finals are all about margins and in them, Bayern were simply more robust, more physical, more savvy, more secure`\
 https://nytimes.com/athletic/7147937/2026/03/26/manchester-united-bayern-uwcl/
