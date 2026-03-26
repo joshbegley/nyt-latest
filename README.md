@@ -1,3 +1,7 @@
+**Josh Johnson Ridicules the Army’s Opening to Older Recruits**\
+`“Look, according to People magazine — and apparently the U.S. military — 42 is the new 35,” Johnson said on Tuesday’s “Daily Show.”`\
+https://nytimes.com/2026/03/26/arts/television/late-night-army-enlistment.html
+
 **Arthur Fils saves 4 match points to beat Tommy Paul at Miami Open**\
 `"He was able to close out the match when I wasn't," Paul said.`\
 https://nytimes.com/athletic/7148313/2026/03/26/arthur-fils-4-match-points-beat-tommy-paul-miami-open/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7143143/2026/03/26/kim-hellberg-middlesbrough-manag
 **Neco Williams: From Liverpool prospect to Forest's precise crosser and accomplished full-back**\
 `The 24-year-old came through at Anfield and has developed into an accomplished full-back at Forest with a possible World Cup on the horizon`\
 https://nytimes.com/athletic/7146734/2026/03/26/neco-williams-liverpool-forest-wales/
-
-**What are your Premier League club's players up to over the international break?**\
-`How many players are on international duty? Where are they playing? Who is out injured?`\
-https://nytimes.com/athletic/7143206/2026/03/26/premier-league-players-international-break/
 
