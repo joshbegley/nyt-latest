@@ -8,7 +8,7 @@ https://nytimes.com/athletic/7136298/2026/03/26/italy-northern-ireland-world-cup
 
 **G.O.P. Senator Weighs Forcing Congress to Vote to Authorize the Iran War**\
 `Senator Lisa Murkowski of Alaska is drafting a formal authorization for the use of military force in Iran, seeking to put some parameters around the operation as the Trump administration has boxed out Congress.`\
-https://nytimes.com/2026/03/26/us/gop-senator-weighs-forcing-congress-to-vote-to-authorize-the-iran-war.html
+https://nytimes.com/2026/03/26/us/senator-murkowski-iran-war-vote-congress.html
 
 **USMNT's last potential World Cup group opponent down to Turkey or Kosovo**\
 `It'll be one of two teams that completes the U.S.'s group at the 2026 World Cup.`\

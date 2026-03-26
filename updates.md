@@ -1,3 +1,23 @@
+**Tyler O'Neill's historic Opening Day home run streak ends**\
+`O’Neill’s streak shattered the previous record, which was held by three catchers: Todd Hundley, Gary Carter and Yogi Berra.`\
+https://nytimes.com/athletic/7150210/2026/03/26/baltimore-orioles-tyler-oneill-opening-day-home-run/
+
+**Italy 2 Northern Ireland 0: Sandro Tonali proves he is World Cup worthy - but are his team?**\
+`Analysing the major talking points from Thursday's World Cup playoff semi-final in Bergamo`\
+https://nytimes.com/athletic/7136298/2026/03/26/italy-northern-ireland-world-cup-playoff-analysis/
+
+**G.O.P. Senator Weighs Forcing Congress to Vote to Authorize the Iran War**\
+`Senator Lisa Murkowski of Alaska is drafting a formal authorization for the use of military force in Iran, seeking to put some parameters around the operation as the Trump administration has boxed out Congress.`\
+https://nytimes.com/2026/03/26/us/gop-senator-weighs-forcing-congress-to-vote-to-authorize-the-iran-war.html
+
+**USMNT's last potential World Cup group opponent down to Turkey or Kosovo**\
+`It'll be one of two teams that completes the U.S.'s group at the 2026 World Cup.`\
+https://nytimes.com/athletic/7149978/2026/03/26/usmnt-world-cup-group-opponents-playoff-turkey-kosovo/
+
+**Trump Gives Iran More Time to Reopen the Strait of Hormuz**\
+`Also, transgender athletes were barred from women’s Olympic events. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2026/03/26/briefing/trump-strait-of-hormuz-catholic-churches.html
+
 **Iran Acts as Gatekeeper of Hormuz as War Drags On**\
 `Iran has allowed a small number of vessels to pass, but that won’t alleviate pressure or risk for the shipping industry and energy markets any time soon.`\
 https://nytimes.com/2026/03/26/business/iran-war-ships-strait-of-hormuz.html

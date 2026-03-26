@@ -1,3 +1,23 @@
+**Tyler O'Neill's historic Opening Day home run streak ends**\
+`O’Neill’s streak shattered the previous record, which was held by three catchers: Todd Hundley, Gary Carter and Yogi Berra.`\
+https://nytimes.com/athletic/7150210/2026/03/26/baltimore-orioles-tyler-oneill-opening-day-home-run/
+
+**Italy 2 Northern Ireland 0: Sandro Tonali proves he is World Cup worthy - but are his team?**\
+`Analysing the major talking points from Thursday's World Cup playoff semi-final in Bergamo`\
+https://nytimes.com/athletic/7136298/2026/03/26/italy-northern-ireland-world-cup-playoff-analysis/
+
+**G.O.P. Senator Weighs Forcing Congress to Vote to Authorize the Iran War**\
+`Senator Lisa Murkowski of Alaska is drafting a formal authorization for the use of military force in Iran, seeking to put some parameters around the operation as the Trump administration has boxed out Congress.`\
+https://nytimes.com/2026/03/26/us/gop-senator-weighs-forcing-congress-to-vote-to-authorize-the-iran-war.html
+
+**USMNT's last potential World Cup group opponent down to Turkey or Kosovo**\
+`It'll be one of two teams that completes the U.S.'s group at the 2026 World Cup.`\
+https://nytimes.com/athletic/7149978/2026/03/26/usmnt-world-cup-group-opponents-playoff-turkey-kosovo/
+
+**Trump Gives Iran More Time to Reopen the Strait of Hormuz**\
+`Also, transgender athletes were barred from women’s Olympic events. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2026/03/26/briefing/trump-strait-of-hormuz-catholic-churches.html
+
 **Iran Acts as Gatekeeper of Hormuz as War Drags On**\
 `Iran has allowed a small number of vessels to pass, but that won’t alleviate pressure or risk for the shipping industry and energy markets any time soon.`\
 https://nytimes.com/2026/03/26/business/iran-war-ships-strait-of-hormuz.html
@@ -17,24 +37,4 @@ https://nytimes.com/2026/03/26/world/middleeast/war-displaced-beirut.html
 **Sam Kieth, Creator of Surreal Comic Book Series The Maxx, Dies at 63**\
 `A cocreator of Neil Gaiman’s Sandman series, he dreamed up a character who is homeless in the real world and a superhero in a subconscious realm. It was adapted for an MTV series.`\
 https://nytimes.com/2026/03/26/arts/sam-kieth-dead.html
-
-**Michigan's Lendeborg 'hurt' Bama didn't recruit him, downplays Kentucky NIL comments**\
-`Lendeborg and Michigan take on Alabama in the Sweet 16 on Friday.`\
-https://nytimes.com/athletic/7150083/2026/03/26/yaxel-lendeborg-michigan-recruitment-alabama-kentucky/
-
-**Betting on Everything**\
-`Prediction market platforms like Polymarket and Kalshi go way beyond sports and politics. We take a closer look.`\
-https://nytimes.com/2026/03/26/world/polymarket-betting-iran-trump-olympic-transgender.html
-
-**Coco Gauff sometimes feels like a tennis impostor, but she knows the ball doesn't lie**\
-`The American's latest journey into improving her two most important shots has challenged her sense of her own tennis.`\
-https://nytimes.com/athletic/7147873/2026/03/26/tennis-coco-gauff-impostor-syndrome/
-
-**White 'clearing the air' with England team-mates over World Cup exit - Tuchel**\
-`Tuchel says Ben White deserves a “second chance” after ending his four-year England absence.`\
-https://nytimes.com/athletic/7149925/2026/03/26/ben-white-england-thomas-tuchel/
-
-**A Troubling Problem at the Heart of the Met Opera’s Big Hit**\
-`Audiences are packing the theater for a new “Tristan und Isolde.” Everyone can see the same spectacle, but they probably don’t hear the same sound.`\
-https://nytimes.com/2026/03/26/arts/music/tristan-und-isolde-met-opera.html
 
