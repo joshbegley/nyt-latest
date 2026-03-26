@@ -1,3 +1,7 @@
+**Men's March Madness Thursday guide: Schedule, preview, TV info for Sweet 16 games**\
+`Thursday's Sweet 16 slate offers something for everyone. Here's what to know and how to watch each game.`\
+https://nytimes.com/athletic/7144888/2026/03/26/march-madness-sweet-16-thursday-arizona-arkansas-2026/
+
 **Jury Rules Against Meta and YouTube for Addictive Features**\
 `Meta and YouTube must pay a plaintiff a combined $6 million after a jury found that they knowingly designed features that were addictive and harmful for a young user.`\
 https://nytimes.com/video/us/100000010802350/social-media-trial-meta-youtube.html
