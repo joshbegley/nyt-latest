@@ -1,3 +1,11 @@
+**For House Republicans, an Exodus Rivaled Only By Trump’s First Term**\
+`The number of Republicans departing the House this cycle is one of the highest since 1930.`\
+https://nytimes.com/interactive/2026/03/27/us/politics/house-republicans-departures-midterms-trump.html
+
+**England 1 Uruguay 1 - Tuchel experiments, untimely injuries and Ben White's evening of extremes**\
+`The England manager gave fringe players a chance to impress at Wembley, but few took their opportunity to cement a place at the World Cup`\
+https://nytimes.com/athletic/7140960/2026/03/27/england-uruguay-tuchel-white-maguire-henderson/
+
 **Fertitta family to purchase Connecticut Sun for $300 million, bring WNBA back to Houston: Sources**\
 `The Sun sold for $300 million and will relocate to Houston, bringing a WNBA team back to one of the league's original cities.`\
 https://nytimes.com/athletic/7152749/2026/03/27/rockets-owners-connecticut-sun-relocate-houston-comets/
@@ -19,8 +27,8 @@ https://nytimes.com/2026/03/27/us/politics/cpac-trump-vance-rubio.html
 https://nytimes.com/athletic/7152530/2026/03/27/barret-robbins-raiders-obituary/
 
 **The Briefing: Netherlands 2 Norway 1 - How are the Dutch looking for the World Cup? How good is Kees Smit?**\
-`Analysis of the Netherlands' victory over Norway as teams prepare for this summer's World Cup`\
-https://nytimes.com/athletic/7146182/2026/03/27/netherlands-world-cup-kees-smit/
+`Analysis of the Netherlands' victory over Norway in Amsterdam as the two teams prepare for this summer's World Cup`\
+https://nytimes.com/athletic/7146182/2026/03/27/netherlands-norway-world-cup-kees-smit/
 
 **Overlooked No More: Gertrude Chandler Warner, Author of ‘The Boxcar Children’**\
 `Her best-selling series, about four children who live in a train car and solve mysteries, inspired sequels, spinoffs and animated films.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/27/obituaries/gertrude-chandler-warner-overlooked.ht
 **White House Vows to Pay T.S.A. Workers as Partial Shutdown Continues**\
 `Also, consumers are feeling the costs of the Iran war. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2026/03/27/briefing/tsa-workers-pay-global-food-supply.html
-
-**Ipswich chairman apologises 'unreservedly' for Nigel Farage visit**\
-`Farage, the leader of Reform UK and long-time ally of U.S. President Donald Trump, visited Portman Road on Monday`\
-https://nytimes.com/athletic/7152561/2026/03/27/ipswich-chairman-sorry-apology-nigel-farage/
-
-**What to Know About Zillow’s Major New Listings Feature**\
-`The massive real estate marketplace just changed its tune around pre-market listings, shifting the landscape for brokers and buyers.`\
-https://nytimes.com/2026/03/27/realestate/zillow-preview-explainer-listings.html
 
