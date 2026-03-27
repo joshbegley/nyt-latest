@@ -1,5 +1,17 @@
+**Versant Pursues a Deal for Vox Media’s Podcast Business**\
+`Versant, the parent company of CNBC and MS NOW, is looking to continue expanding its business beyond cable TV.`\
+https://nytimes.com/2026/03/27/business/media/versant-vox-medias-podcasts.html
+
+**How to watch Minnesota vs. UCLA women's basketball: Sweet 16 Time, TV, streaming**\
+`Find out how to watch the Minnesota Golden Gophers play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7151943/2026/03/27/minnesota-vs-ucla-stream-how-to-watch-march-27/
+
+**How to watch Red Wings vs. Sabres: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the Buffalo Sabres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7151932/2026/03/27/red-wings-vs-sabres-stream-how-to-watch-march-27/
+
 **Assassination Plot Targeting N.Y.C. Palestinian Activist Is Disrupted**\
-`Police and F.B.I. officials did not identify a suspect or motive, but told Nerdeen Kiswani, a co-founder of the pro-Palestinian group Within Our Lifetime, that she had been targeted, her lawyer said.`\
+`Law enforcement officials did not identify a suspect or motive, but told Nerdeen Kiswani, a co-founder of the pro-Palestinian group Within Our Lifetime, that she had been targeted, her lawyer said.`\
 https://nytimes.com/2026/03/27/nyregion/nerdeen-kiswani-assassination-plot.html
 
 **Argentina's Panichelli, Ligue 1 top scorer, suffers ACL tear in right knee**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7151907/2026/03/27/rockies-vs-marlins-stream-how-to
 **How to watch Athletics vs. Blue Jays: Time, TV, streaming for March 27**\
 `Find out how to watch the Athletics play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7151905/2026/03/27/athletics-vs-blue-jays-stream-how-to-watch-march-27/
-
-**Coleman Barks, Who Popularized the Islamic Poet Rumi in the West, Dies at 88**\
-`Although he did not speak a word of Persian, his interpretations of the 13th-century mystic’s work made Rumi a New Age icon for millions.`\
-https://nytimes.com/2026/03/27/books/coleman-barks-dead.html
-
-**How to watch Clippers vs. Pacers: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Clippers play the Indiana Pacers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7151884/2026/03/27/clippers-vs-pacers-stream-how-to-watch-march-27/
-
-**The Promise and Perils of Mamdani’s Millennial Playbook**\
-`There’s a real advantage to being young and governing: being able to work long hours. But there are potential tradeoffs to Mamdani's all-in management style.`\
-https://nytimes.com/2026/03/27/opinion/zohran-mamdani-work-gen-z-millennial.html
 
