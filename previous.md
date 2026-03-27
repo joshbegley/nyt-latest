@@ -1,3 +1,11 @@
+**Savannah Guthrie Is Returning to ‘Today’**\
+`NBC said that she would return as an anchor of the show on April 6, a little more than two months after the disappearance of her mother.`\
+https://nytimes.com/2026/03/27/business/media/savannah-guthrie-today.html
+
+**How to watch Notre Dame vs. Vanderbilt women's basketball: Sweet 16 Time, TV, streaming**\
+`Find out how to watch the Notre Dame Fighting Irish play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7151558/2026/03/27/notre-dame-vs-vanderbilt-stream-how-to-watch-march-27/
+
 **Humpback Whale Is Freed After Days Stranded Off German Beach**\
 `In an unexpected breakthrough, the 40-foot mammal swam to deeper water on Friday morning through a channel that rescuers had dug for it.`\
 https://nytimes.com/2026/03/27/world/europe/stranded-whale-germany-baltic-freed.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7151114/2026/03/27/pistons-cade-cunningham-jalen-du
 **Duke's Toby Fournier's dunks don't define her (pre)game. But they do make a statement**\
 `Fouriner, who faces LSU in the Sweet 16, said she wants to dunk in a college game like she did in high school.`\
 https://nytimes.com/athletic/7150867/2026/03/27/duke-toby-fournier-dunk-sweet-16/
-
-**How the Iran War Is Costing the Economy Its Buffers**\
-`As the U.S.-Israeli campaign enters a second month, analysts see a growing toll. One forecast predicts oil hitting $200 a barrel.`\
-https://nytimes.com/2026/03/27/business/dealbook/iran-war-oil-markets.html
-
-**He still mows lawns in his hometown. He's also the star of the Elite Eight's biggest surprise**\
-`Bennett Stirtz spent two seasons in Division II and one at Drake before following his coach, Ben McCollum, to Iowa this season.`\
-https://nytimes.com/athletic/7151422/2026/03/27/iowa-basketball-bennett-stirtz-march-madness/
 
