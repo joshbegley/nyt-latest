@@ -1,4 +1,12 @@
-**Iran men's soccer team makes school bag tribute in anthem as World Cup uncertainty remains**\
+**BTS Fans Revisit Howard University History From 1896**\
+`In promoting its new album, the K-pop superstars looked back to a late-19th-century moment featuring the unofficial anthem Arirang for inspiration.`\
+https://nytimes.com/2026/03/27/arts/music/bts-arirang-howard-university.html
+
+**Wrexham's accounts: Record-breaking revenue, huge wage hike, PSR headroom**\
+`Wrexham's record-breaking revenue for 2024-25 comes after sponsorship, matchday and retail income all went up on the previous year`\
+https://nytimes.com/athletic/7143039/2026/03/27/wrexhams-accounts-record-breaking-revenue-huge-wage-hike-psr-headroom/
+
+**Iran men's soccer team makes schoolbag tribute in anthem as World Cup uncertainty remains**\
 `The nation are preparing for the World Cup, where each of its three group games are scheduled to be held in the U.S..`\
 https://nytimes.com/athletic/7151535/2026/03/27/iran-football-team-world-cup/
 
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7151970/2026/03/27/st-john-s-vs-duke-stream-how-to-
 **Versant Pursues a Deal for Vox Media’s Podcast Business**\
 `Versant, the parent company of CNBC and MS NOW, is looking to continue expanding its business beyond cable TV.`\
 https://nytimes.com/2026/03/27/business/media/versant-vox-medias-podcasts.html
-
-**How to watch Minnesota vs. UCLA women's basketball: Sweet 16 Time, TV, streaming**\
-`Find out how to watch the Minnesota Golden Gophers play the UCLA Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7151943/2026/03/27/minnesota-vs-ucla-stream-how-to-watch-march-27/
-
-**How to watch Red Wings vs. Sabres: Time, TV, streaming**\
-`Find out how to watch the Detroit Red Wings play the Buffalo Sabres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7151932/2026/03/27/red-wings-vs-sabres-stream-how-to-watch-march-27/
 
