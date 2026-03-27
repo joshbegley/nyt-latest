@@ -1,3 +1,7 @@
+**If the NHL playoffs started today: Projecting all 8 matchups and analyzing the teams**\
+`A handful of teams continue to jostle for playoff spots in the Eastern and Western Conferences, including teams just on the outside.`\
+https://nytimes.com/athletic/7128499/2026/03/27/nhl-playoffs-matchups-projections-2026/
+
 **Frustrated Nationals fans find themselves shut out of watching Opening Day on TV**\
 `Fans who spent the game trying to reach customer service missed the start of a new Nationals era, one that featured a 10-4 victory. `\
 https://nytimes.com/athletic/7151012/2026/03/27/washington-nationals-opening-day-television-issues/

@@ -1,3 +1,7 @@
+**If the NHL playoffs started today: Projecting all 8 matchups and analyzing the teams**\
+`A handful of teams continue to jostle for playoff spots in the Eastern and Western Conferences, including teams just on the outside.`\
+https://nytimes.com/athletic/7128499/2026/03/27/nhl-playoffs-matchups-projections-2026/
+
 **Frustrated Nationals fans find themselves shut out of watching Opening Day on TV**\
 `Fans who spent the game trying to reach customer service missed the start of a new Nationals era, one that featured a 10-4 victory. `\
 https://nytimes.com/athletic/7151012/2026/03/27/washington-nationals-opening-day-television-issues/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/27/world/europe/german-military-social-media.html
 **An Invisible Bottleneck: A Helium Shortage Threatens the Chip Industry**\
 `With a third of the global supply offline because of the war in Iran, gas companies are scrambling to assure critical A.I. chip makers there will be no disruptions.`\
 https://nytimes.com/2026/03/27/business/helium-chips-iran-war.html
-
-**Corrections: March 27, 2026**\
-`Corrections that appeared in print on Friday, March 27, 2026.`\
-https://nytimes.com/2026/03/27/pageoneplus/corrections-march-27-2026.html
 
