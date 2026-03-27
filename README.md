@@ -1,3 +1,15 @@
+**Ravens NFL Draft big board: Examining most logical options at pick No. 14**\
+`Now that Baltimore again owns its 2026 first-round selection, we take a look at seven players who could make sense at pick No. 14. `\
+https://nytimes.com/athletic/7148999/2026/03/27/ravens-big-board-2026-nfl-draft/
+
+**Casemiro not thinking about reversing Man Utd decision**\
+`The midfielder confirmed his intention to leave the club on January 22, but has seen a recent upturn in form under Michael Carrick. `\
+https://nytimes.com/athletic/7151400/2026/03/27/casemiro-manchester-united-stay-transfer/
+
+**U.K. Police to Reinvestigate Sex Crime Allegations Against Andrew Tate**\
+`A police force in England said it would look again at 11-year-old allegations against the influencer. Mr. Tate was not charged in the case and denies any wrongdoing.`\
+https://nytimes.com/2026/03/27/world/europe/andrew-tate-assault-case-uk.html
+
 **Rubio Expected to Press Allies Over Strait of Hormuz at G7 Meeting**\
 `The meeting in France is slated to discuss efforts to stop the war in the Middle East, end Iran’s nuclear and ballistic missile development, and reopen maritime trade routes.`\
 https://nytimes.com/2026/03/27/world/middleeast/iran-rubio-g7-france.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7144108/2026/03/27/eagles-nfl-draft-big-board-poten
 **Who would the Hurricanes most (and least) like to play in the playoffs' first round?**\
 `Here are 7 potential opponents, and how the Hurricanes might fare against each.`\
 https://nytimes.com/athletic/7151027/2026/03/27/carolina-hurricanes-playoffs-opponent/
-
-**Maybe Arizona coach Tommy Lloyd doesn't need to want more**\
-`The Wildcats' success reflects its clear-minded coach. Lloyd didn’t skip steps to get here. He’s in the moment, learning, getting better.`\
-https://nytimes.com/athletic/7151280/2026/03/27/tommy-lloyd-arizona-arkansas-march-madness-elite-eight/
-
-**Luka Dončić's barrage, Darius Garland's adjustment and more NBA trends I'm watching**\
-`Luka Dončić's torrid stretch has been fueled by his love affair with one specific shot. Plus, how real is this recent Hawks run?`\
-https://nytimes.com/athletic/7150195/2026/03/27/luka-doncic-lakers-stats-darius-garland/
-
-**What's next in the James Pearce Jr. case? What are the options for the Falcons and NFL?**\
-`Falcons edge rusher James Pearce Jr. faces three felony charges and could face trial in May, putting his future with the team in doubt.`\
-https://nytimes.com/athletic/7149371/2026/03/27/james-pearce-jr-falcons-charged-battery-nfl/
 

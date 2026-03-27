@@ -1,40 +1,40 @@
-**On an important Opening Day for baseball, hope arrived via home runs, new records — and robots**\
-`Coming off a stellar World Series and World Baseball Classic, MLB has momentum. It felt that way on Thursday, even if a work stoppage looms.`\
-https://nytimes.com/athletic/7151008/2026/03/27/mlb-opening-day-robo-umps-records-skenes/
+**Rubio Expected to Press Allies Over Strait of Hormuz at G7 Meeting**\
+`The meeting in France is slated to discuss efforts to stop the war in the Middle East, end Iran’s nuclear and ballistic missile development, and reopen maritime trade routes.`\
+https://nytimes.com/2026/03/27/world/middleeast/iran-rubio-g7-france.html
 
-**Top remaining NFL free-agent fits, plus early look at best and worst teams for 2026**\
-`Jauan Jennings to the Bills? Joey Bosa to the 49ers? Tyreek Hill back to the Chiefs? Our best fits for top free agents still available.`\
-https://nytimes.com/athletic/7147350/2026/03/27/nfl-best-free-agent-fits-best-worst-teams/
+**Bitter-Swede symphony: Karlsson, Rakell lift Penguins after Crosby leaves with injury**\
+`Even after losing their captain, the Penguins played a fantastic second period and held on for a shootout win.`\
+https://nytimes.com/athletic/7150865/2026/03/27/penguins-crosby-injury-karlsson-rakell-senators/
 
-**LSU star Flau'jae Johnson is redefining what it means to be a dual-threat athlete**\
-`Johnson doesn't believe in limiting herself. She's chasing a championship, music career and WNBA career.`\
-https://nytimes.com/athletic/7145138/2026/03/27/flaujae-johnson-wiki-bio/
+**Tippett continues to spearhead Flyers' playoff push: 'He dragged everybody into the fight'**\
+`Tippett wasn’t one of the Flyers’ five goal scorers in their win over the Blackhawks, but he had his fingerprints all over the result.`\
+https://nytimes.com/athletic/7150948/2026/03/27/owen-tippett-flyers-playoff-push/
 
-**Inside Michigan State coach Tom Izzo's ability to adapt without compromising**\
-`As his peers have bowed out of college basketball's turmoil, Izzo has dug in, adapted — at least a little — and resumed winning big.`\
-https://nytimes.com/athletic/7149096/2026/03/27/tom-izzo-michigan-state-ncaa-tournament/
+**Sliders: Meet the new Rockies coach on a mission to solve MLB's toughest pitching problem**\
+`It's the 2026 debut of Sliders, a weekly in-season MLB column that focuses on both the timely and timeless elements of baseball.`\
+https://nytimes.com/athletic/7149043/2026/03/27/colorado-rockies-pitching-coach-alon-leichman/
 
-**Blue Jays bold predictions: A record-setting season, a deadline addition and more**\
-`Watch for Andrés Giménez to set a new Toronto standard at shortstop and don't be suprised by a big midseason acquisition. `\
-https://nytimes.com/athletic/7138685/2026/03/27/blue-jays-mlb-predictions-season-preview/
+**A college basketball coach made 418 mistakes his first year. He kept track of all of them**\
+`Thirteen years ago, Mike Neighbors dreamed up an idea to help others: He started writing down his mistakes.`\
+https://nytimes.com/athletic/7150051/2026/03/27/mike-neighbors-mistakes-college-basketball-leadership/
 
-**Duke's March Madness success under Kara Lawson good sign for her other job: Team USA coach**\
-`Lawson has earned her bona fides. Now, as she leads Duke's resurgence, she's also been entrusted with the biggest job in women's basketball.`\
-https://nytimes.com/athletic/7139632/2026/03/27/duke-womens-basketball-coach-kara-lawson-team-usa/
+**Eagles NFL Draft big board: Potential targets on all 3 days**\
+`The Eagles need to find some key contributors on rookie contracts.`\
+https://nytimes.com/athletic/7144108/2026/03/27/eagles-nfl-draft-big-board-potential-targets-3-days/
 
-**Geno Auriemma and Dawn Staley are torchbearers of women's basketball. But who's next?**\
-`The sport needs more prominent voices for the next generation of coaches and players. `\
-https://nytimes.com/athletic/7150507/2026/03/27/geno-auriemma-dawn-staley-womens-basketball-leaders/
+**Who would the Hurricanes most (and least) like to play in the playoffs' first round?**\
+`Here are 7 potential opponents, and how the Hurricanes might fare against each.`\
+https://nytimes.com/athletic/7151027/2026/03/27/carolina-hurricanes-playoffs-opponent/
 
-**What to expect from the NFL's 2026 league meeting in Phoenix next week**\
-`The league will discuss and vote on potential rules changes, while all 32 head coaches will address the media on Monday and Tuesday.`\
-https://nytimes.com/athletic/7149224/2026/03/27/nfl-2026-league-meeting-top-storylines/
+**Maybe Arizona coach Tommy Lloyd doesn't need to want more**\
+`The Wildcats' success reflects its clear-minded coach. Lloyd didn’t skip steps to get here. He’s in the moment, learning, getting better.`\
+https://nytimes.com/athletic/7151280/2026/03/27/tommy-lloyd-arizona-arkansas-march-madness-elite-eight/
 
-**The New York Times International Edition in Print for Saturday, March 28, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/03/27/todays-new-york-times-international-edition
+**Luka Dončić's barrage, Darius Garland's adjustment and more NBA trends I'm watching**\
+`Luka Dončić's torrid stretch has been fueled by his love affair with one specific shot. Plus, how real is this recent Hawks run?`\
+https://nytimes.com/athletic/7150195/2026/03/27/luka-doncic-lakers-stats-darius-garland/
 
-**Senate Votes to Fund Most of D.H.S. in Bid to End Partial Shutdown**\
-`The bill excludes funding for ICE and the Border Patrol but restores it for federal airport security workers. The House could consider the package on Friday.`\
-https://nytimes.com/2026/03/27/us/politics/senate-dhs-ice-shutdown-funding.html
+**What's next in the James Pearce Jr. case? What are the options for the Falcons and NFL?**\
+`Falcons edge rusher James Pearce Jr. faces three felony charges and could face trial in May, putting his future with the team in doubt.`\
+https://nytimes.com/athletic/7149371/2026/03/27/james-pearce-jr-falcons-charged-battery-nfl/
 
