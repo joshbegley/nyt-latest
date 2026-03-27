@@ -1,3 +1,11 @@
+**USMNT Notes: CB crisis as Richards, Robinson ruled out; Pulisic on his form**\
+`An already-thin position for the U.S. just got even thinner heading into two showdowns vs. top European opponents`\
+https://nytimes.com/athletic/7152262/2026/03/27/usmnt-belgium-richards-robinson-injuries-pulisic-mckennie-pochettino/
+
+**Iran Tried to Use a Famed Director’s Home to Push Its War Narrative. His Son Fired Back.**\
+`The Tehran home of the acclaimed Iranian director Abbas Kiarostami was damaged in strikes this week. His son Ahmad pushed back on efforts by the government to seize on his legacy.`\
+https://nytimes.com/2026/03/27/world/middleeast/abbas-kiarostami-home-damaged.html
+
 **Eruption of Sectarian Violence in Syria Killed More Than 1,700, U.N. Report Says**\
 `Investigators said the government of President Ahmed al-Sharaa had done little to address the extrajudicial killings and torture of Druse civilians in July 2025.`\
 https://nytimes.com/2026/03/27/world/middleeast/syria-mass-killing-druse-un.html

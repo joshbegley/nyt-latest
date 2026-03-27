@@ -1,3 +1,11 @@
+**USMNT Notes: CB crisis as Richards, Robinson ruled out; Pulisic on his form**\
+`An already-thin position for the U.S. just got even thinner heading into two showdowns vs. top European opponents`\
+https://nytimes.com/athletic/7152262/2026/03/27/usmnt-belgium-richards-robinson-injuries-pulisic-mckennie-pochettino/
+
+**Iran Tried to Use a Famed Director’s Home to Push Its War Narrative. His Son Fired Back.**\
+`The Tehran home of the acclaimed Iranian director Abbas Kiarostami was damaged in strikes this week. His son Ahmad pushed back on efforts by the government to seize on his legacy.`\
+https://nytimes.com/2026/03/27/world/middleeast/abbas-kiarostami-home-damaged.html
+
 **Eruption of Sectarian Violence in Syria Killed More Than 1,700, U.N. Report Says**\
 `Investigators said the government of President Ahmed al-Sharaa had done little to address the extrajudicial killings and torture of Druse civilians in July 2025.`\
 https://nytimes.com/2026/03/27/world/middleeast/syria-mass-killing-druse-un.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/27/movies/alexander-kluge-dead.html
 **Justice Dept. Scrutinizes Transgender Prisoner Housing in California and Maine**\
 `The investigations are the latest moves by the Trump administration to force prisons to house transgender women with male inmates.`\
 https://nytimes.com/2026/03/27/us/doj-transgender-prison-housing-california-maine.html
-
-**A Tale of Two Cats**\
-`Meet Oscar and Felix, two cats with very different palates and a lot to say about dinner. Using the latest in pet communication technology, we translated their meows into full editorial reviews of Tastefuls Gravy from Blue Buffalo. Two critics. Two meals. Two purrrfect verdicts.`\
-https://nytimes.com/paidpost/general-mills/tastefuls-gravy-from-blue-buffalo/a-tale-of-two-cats.html
-
-**A True Gourmand Weighs In**\
-`Meet Princess, a cat who knows what she likes — and it had better crunch. Using the latest in pet technology, we translated her meows into a full editorial review of Tastefuls Gravy from Blue Buffalo. Her standards are high. Her verdict is in.`\
-https://nytimes.com/paidpost/general-mills/tastefuls-gravy-from-blue-buffalo/a-true-gourmand-weighs-in.html
 
