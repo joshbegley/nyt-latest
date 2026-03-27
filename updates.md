@@ -1,3 +1,15 @@
+**What We Know About Pay for T.S.A. Workers**\
+`President Trump on Friday directed the Homeland Security Department to pay thousands of airport security officers.`\
+https://nytimes.com/live/2026/03/27/us/trump-news/tsa-pay
+
+**John Textor's Eagle Football placed into administration**\
+`Eagle Football's main creditor, investment firm Ares Capital Corporation, has put the group’s UK-based holding company into administration.`\
+https://nytimes.com/athletic/7152831/2026/03/27/john-textor-eagle-football-administration-crystal-palace/
+
+**Map: 4.2-Magnitude Earthquake Shakes Southern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/03/27/us/southern-california-quake-tracker.html
+
 **N.Y. Attorney General Bars Health Provider After 3 Jail Deaths**\
 `The company, which Letitia James found was operating illegally in the state, also was fined $875,000 as part of a settlement.`\
 https://nytimes.com/2026/03/27/nyregion/prison-medical-care-new-york.html
