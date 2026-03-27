@@ -1,3 +1,19 @@
+**Humpback Whale Is Freed After Days Stranded Off German Beach**\
+`In an unexpected breakthrough, the 40-foot mammal swam to deeper water on Friday morning through a channel that rescuers had dug for it.`\
+https://nytimes.com/2026/03/27/world/europe/stranded-whale-germany-baltic-freed.html
+
+**Rams NFL Draft big board: 3 scenarios to consider at pick No. 13**\
+`Taking a look at a few different ways the Rams can approach their first-round selection in this year's draft. `\
+https://nytimes.com/athletic/7145553/2026/03/27/rams-big-board-2026-nfl-draft/
+
+**Nine Astros prospects to watch in a pivotal minor-league season**\
+`First-year Astros farm director Sam Niedorf provided insight on the players to keep an eye on as the minor-league season begins. `\
+https://nytimes.com/athletic/7149700/2026/03/27/astros-prospects-minor-league-season-2026/
+
+**‘The Headlines’ News Quiz: Mar. 27, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://nytimes.com/2026/03/27/podcasts/the-headlines/the-headlines-news-quiz-mar-27-2026.html
+
 **March Madness runs in the family: Mom's in Sweet 16. Daughter's in DII national championship**\
 `Minnesota coach Dawn Plitzuweit will be rooting for her daughter Lexi, and vice versa, as they play on different sides of the country. `\
 https://nytimes.com/athletic/7150591/2026/03/27/dawn-plitzuweit-daughter-minnesota-sweet-16/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/27/business/dealbook/iran-war-oil-markets.html
 **He still mows lawns in his hometown. He's also the star of the Elite Eight's biggest surprise**\
 `Bennett Stirtz spent two seasons in Division II and one at Drake before following his coach, Ben McCollum, to Iowa this season.`\
 https://nytimes.com/athletic/7151422/2026/03/27/iowa-basketball-bennett-stirtz-march-madness/
-
-**U.S. 2031 Women's World Cup bid waiting on Trump guarantees while host cities want better deal**\
-`FIFA has not yet received crucial Trump government guarantees around the 2031 bid from the U.S., Costa Rica, Mexico and Jamaica`\
-https://nytimes.com/athletic/7151022/2026/03/27/us-2031-world-cup-bid-donald-trump/
-
-**Carlos Lagrange among 5 Yankees prospects poised to break out in 2026**\
-`Lagrange leads our list of the five Yankees prospects most likely to break out and help in the Bronx in 2026.`\
-https://nytimes.com/athletic/7138321/2026/03/27/yankees-prospects-2026/
-
-**Commanders mailbag: What will Washington do about its wide receivers?**\
-`Beat writer Nicki Jhabvala offers insight into David Blough's hiring as OC, the Commanders' options in the first round and more.`\
-https://nytimes.com/athletic/7150905/2026/03/27/washington-commanders-wide-receivers-draft/
-
-**Senator Tommy Tuberville has the right strategy to 'Save College Sports.' ... Really**\
-`Tuberville's proposal focuses on eligibility and transferring. It will appeal to almost every college sports fan. `\
-https://nytimes.com/athletic/7150566/2026/03/27/college-sports-senator-tommy-tuberville-nil/
 
