@@ -1,3 +1,11 @@
+**Stocks Sink and Oil Dips After Trump Delays Threat to Bomb Iran**\
+`President Trump said on Thursday he would delay an imminent deadline to begin attacking Iran’s power grid.`\
+https://nytimes.com/2026/03/26/business/gas-oil-gas-prices-iran.html
+
+**Blackhawks' team of the future gets even closer with Sacha Boisvert's NHL debut**\
+`The Blackhawks played their youngest team yet in a 5-1 loss to the Flyers, with Boisvert playing nine minutes on the fourth line.`\
+https://nytimes.com/athletic/7150161/2026/03/26/blackhawks-sacha-boisvert-debut-vlasic-crevier-flyers/
+
 **Man posed as adult film star to scam NFL and NBA players, prosecutors say**\
 `Kwamaine Jerell Ford has been charged with targeting pro athletes in a phishing scam that turned into a fraud and sex trafficking scheme.`\
 https://nytimes.com/athletic/7150696/2026/03/26/nfl-nba-players-phishing-scheme-fraud-sex/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7150826/2026/03/26/nebraska-iowa-4-players-on-court
 **Salzburg Festival Fires Its Artistic Director**\
 `The board terminated Markus Hinterhäuser’s contract early, leaving the leadership of the world’s largest classical music festival in limbo for now.`\
 https://nytimes.com/2026/03/26/arts/music/salzburg-festival-fires-artistic-director-markus-hinterhauser.html
-
-**Purdue tip-in takes out Texas in final second of Sweet 16 thriller**\
-`Purdue’s Trey Kaufman-Renn beat Texas with a tip-in with 0.7 seconds left in a Sweet 16 game on Thursday night.`\
-https://nytimes.com/athletic/7150744/2026/03/26/purdue-texas-march-madness-2026-score-results-takeaways/
-
-**Inside a mostly pleasant Phillies Opening Day of firsts and familiarity**\
-`It was eight perfect innings, then a hairy ninth, giving everyone something to complain about — making it a perfect Philly opener.`\
-https://nytimes.com/athletic/7150685/2026/03/26/phillies-opening-day-schwarber-crawford-sanchez/
 
