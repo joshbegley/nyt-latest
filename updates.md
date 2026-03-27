@@ -1,3 +1,7 @@
+**Nebraska only puts 4 players on court in late blunder vs. Iowa: 'A miscommunication'**\
+`Down 3 points late, Nebraska committed a jaw-dropping blunder that cost the Huskers a chance to advance to the Elite Eight.`\
+https://nytimes.com/athletic/7150826/2026/03/26/nebraska-iowa-4-players-on-court-march-madness/
+
 **Salzburg Festival Fires Its Artistic Director**\
 `The board terminated Markus Hinterhäuser’s contract early, leaving the leadership of the world’s largest classical music festival in limbo for now.`\
 https://nytimes.com/2026/03/26/arts/music/salzburg-festival-fires-artistic-director-markus-hinterhauser.html
