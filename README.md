@@ -1,3 +1,7 @@
+**5 Takeaways From ‘BTS: The Return’**\
+`Netflix’s documentary about the superstar K-pop group’s comeback after a four-year hiatus showcases its creative process, brotherhood and anxieties about fame.`\
+https://nytimes.com/2026/03/27/arts/music/bts-the-return-documentary.html
+
 **How ‘Love Story’ Gave Viewers a ’90s History Lesson**\
 `The FX show, which dramatizes the relationship between John F. Kennedy Jr. and Carolyn Bessette, has inspired a legion of younger viewers to dig into the couple’s past and 1990s New York City.`\
 https://nytimes.com/2026/03/27/arts/television/love-story-jfk-bessette-90s-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010791678/iran-war-india-cooking-gas.
 **The Bounce: Does Victor Wembanyama's MVP case hold water?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7151689/2026/03/27/the-bounce-does-victor-wembanyamas-mvp-case-hold-water/
-
-**The Windup: Remarkable debuts across Opening Day**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/7149150/2026/03/27/opening-day-paul-skenes-the-windup/
 
