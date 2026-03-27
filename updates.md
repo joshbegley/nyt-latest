@@ -1,3 +1,7 @@
+**Eruption of Sectarian Violence in Syria Killed More Than 1,700, U.N. Report Says**\
+`Investigators said the government of President Ahmed al-Sharaa had done little to address the extrajudicial killings and torture of Druse civilians in July 2025.`\
+https://nytimes.com/2026/03/27/world/middleeast/syria-mass-killing-druse-un.html
+
 **Idaho Criminalizes Transgender Use of Some Bathrooms in Private Businesses**\
 `The bill passed Friday by the Idaho legislature would make it a crime punishable by up to a year in prison to use a gender-designated bathroom that does not conform to a person’s sex at birth.`\
 https://nytimes.com/2026/03/27/us/idaho-transgender-bathroom-law.html

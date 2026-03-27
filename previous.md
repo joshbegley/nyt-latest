@@ -1,3 +1,7 @@
+**Eruption of Sectarian Violence in Syria Killed More Than 1,700, U.N. Report Says**\
+`Investigators said the government of President Ahmed al-Sharaa had done little to address the extrajudicial killings and torture of Druse civilians in July 2025.`\
+https://nytimes.com/2026/03/27/world/middleeast/syria-mass-killing-druse-un.html
+
 **Idaho Criminalizes Transgender Use of Some Bathrooms in Private Businesses**\
 `The bill passed Friday by the Idaho legislature would make it a crime punishable by up to a year in prison to use a gender-designated bathroom that does not conform to a person’s sex at birth.`\
 https://nytimes.com/2026/03/27/us/idaho-transgender-bathroom-law.html
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/general-mills/tastefuls-gravy-from-blue-buffalo/a-t
 **A True Gourmand Weighs In**\
 `Meet Princess, a cat who knows what she likes — and it had better crunch. Using the latest in pet technology, we translated her meows into a full editorial review of Tastefuls Gravy from Blue Buffalo. Her standards are high. Her verdict is in.`\
 https://nytimes.com/paidpost/general-mills/tastefuls-gravy-from-blue-buffalo/a-true-gourmand-weighs-in.html
-
-**A Matter of Taste**\
-` Meet Boots, a discerning cat and wet-food purist with a lot to say about dinner. Using the latest in pet communication technology, we translated her meows into a full-blown food critique of new Tastefuls Gravy from Blue Buffalo. The verdict? A revelation in texture and flavor.`\
-https://nytimes.com/paidpost/general-mills/tastefuls-gravy-from-blue-buffalo/a-matter-of-taste.html
 
