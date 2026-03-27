@@ -1,4 +1,12 @@
-**USMNT Notes: CB crisis as Richards, Robinson ruled out; Pulisic on his form**\
+**The Bar Is Open Again on the Staten Island Ferry**\
+`After a seven-year drought, including pandemic-related delays, the ferry service is bringing beer back to New York Harbor. It feels like a return to normal, regulars say.`\
+https://nytimes.com/2026/03/27/nyregion/staten-island-ferry-alcohol.html
+
+**Wirecutter-Approved Home Upgrades That Look Permanent but Peel Right Off **\
+`Text by Katie Okamoto`\
+https://nytimes.com/card/2026/03/27/smarter-living/wirecutter/
+
+**USMNT Notes: CB crisis grows with key injuries; Pulisic on McKennie's form**\
 `An already-thin position for the U.S. just got even thinner heading into two showdowns vs. top European opponents`\
 https://nytimes.com/athletic/7152262/2026/03/27/usmnt-belgium-richards-robinson-injuries-pulisic-mckennie-pochettino/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/27/world/europe/noelia-castillo-ramos-spain-assisted
 **Klopp says Salah 'irreplaceable' at Liverpool**\
 `The former Liverpool manager also discussed his own "arguments" with Salah during their time at Anfield.`\
 https://nytimes.com/athletic/7152193/2026/03/27/klopp-salah-liverpool-mane/
-
-**Alexander Kluge, a Lodestar in New German Cinema Movement, Dies at 94**\
-`A film director, movie theorist and author, he was widely regarded as one of his country’s towering artists and intellectuals.`\
-https://nytimes.com/2026/03/27/movies/alexander-kluge-dead.html
-
-**Justice Dept. Scrutinizes Transgender Prisoner Housing in California and Maine**\
-`The investigations are the latest moves by the Trump administration to force prisons to house transgender women with male inmates.`\
-https://nytimes.com/2026/03/27/us/doj-transgender-prison-housing-california-maine.html
 

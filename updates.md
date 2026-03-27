@@ -1,3 +1,15 @@
+**The Bar Is Open Again on the Staten Island Ferry**\
+`After a seven-year drought, including pandemic-related delays, the ferry service is bringing beer back to New York Harbor. It feels like a return to normal, regulars say.`\
+https://nytimes.com/2026/03/27/nyregion/staten-island-ferry-alcohol.html
+
+**Wirecutter-Approved Home Upgrades That Look Permanent but Peel Right Off **\
+`Text by Katie Okamoto`\
+https://nytimes.com/card/2026/03/27/smarter-living/wirecutter/
+
+**USMNT Notes: CB crisis grows with key injuries; Pulisic on McKennie's form**\
+`An already-thin position for the U.S. just got even thinner heading into two showdowns vs. top European opponents`\
+https://nytimes.com/athletic/7152262/2026/03/27/usmnt-belgium-richards-robinson-injuries-pulisic-mckennie-pochettino/
+
 **USMNT Notes: CB crisis as Richards, Robinson ruled out; Pulisic on his form**\
 `An already-thin position for the U.S. just got even thinner heading into two showdowns vs. top European opponents`\
 https://nytimes.com/athletic/7152262/2026/03/27/usmnt-belgium-richards-robinson-injuries-pulisic-mckennie-pochettino/
