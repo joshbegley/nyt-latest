@@ -1,3 +1,7 @@
+**New York City Ballet Pulls Out of Kennedy Center Performances**\
+`The decision by the company, one of the most prestigious in the country, is the latest in a wave of high-profile cancellations at the center.`\
+https://nytimes.com/2026/03/27/arts/dance/kennedy-center-new-york-city-ballet.html
+
 **At CPAC, the ‘America First’ Crowd Ponders Giving War a Chance**\
 `The Conservative Political Action Conference has been an America First gathering for years, but with President Trump pursuing war in Iran, organizers have tried to make a shift, with mixed results.`\
 https://nytimes.com/2026/03/27/us/politics/cpac-trump-iran-war.html
