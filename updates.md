@@ -1,3 +1,7 @@
+**Salah and Liverpool: Why the love affair ended – and what happens now**\
+`The Egyptian's departure has been a long time coming and Liverpool are already starting to plan for a future without him`\
+https://nytimes.com/athletic/7148907/2026/03/27/mohamed-salah-liverpool-exit-future/
+
 **Late Night Disses Trump’s New ‘America First’ Award**\
 `“How many fake trophies that were made specifically for him is this guy going to get?” Seth Meyers asked on Thursday’s “Late Night.”`\
 https://nytimes.com/2026/03/27/arts/television/late-night-trump-america-first-award.html
