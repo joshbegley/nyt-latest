@@ -1,3 +1,11 @@
+**Barcelona and Brazil winger Raphinha facing five weeks out with hamstring injury**\
+`Raphinha has scored 19 goals and provided eight assists in 31 games for Barca this season.`\
+https://nytimes.com/athletic/7152309/2026/03/27/raphinha-injury-hamstring-barcelona-brazil/
+
+**Fact-Checking the Debate Over the Republican Voting Bill**\
+`We examine claims justifying its restrictions, comparisons to current voting laws and warnings about its potential impact.`\
+https://nytimes.com/2026/03/27/us/politics/republican-voting-bill-save-act-fact-check.html
+
 **Kennedy Center Performer Asks Judge to Toss Case He Calls ‘Retaliatory’**\
 `A jazz drummer who called off a performance in protest of the center’s being renamed for President Trump said the president’s allies had sued him as punishment.`\
 https://nytimes.com/2026/03/27/us/politics/kennedy-center-jazz-performer.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/27/us/politics/elsayed-piker-michigan-rally-backlash
 **After Being Struck by Plane, Last Firefighter Is Released From Hospital**\
 `The two veterans of a specialized unit that responds to emergencies at LaGuardia Airport have been released from the hospital.`\
 https://nytimes.com/2026/03/27/nyregion/laguardia-firefighters-truck-air-canada.html
-
-**Trump and Modi Had a Call About the Iran War. Elon Musk Joined Them.**\
-`Mr. Musk’s participation was notable because it is rare for a private citizen to be on a call between heads of state. It also suggests that Mr. Musk is back on better terms with the president.`\
-https://nytimes.com/2026/03/27/us/politics/musk-joins-call-with-trump-modi.html
-
-**Which Dodgers prospects are poised to break out in 2026? Meet 6 under-the-radar candidates**\
-`Hard-throwers like Zach Root and Christian Zazueta rank among the most intriguing young players in the Dodgers' system.`\
-https://nytimes.com/athletic/7139764/2026/03/27/dodgers-prospects-breakout/
 
