@@ -1,3 +1,11 @@
+**How to watch Alabama vs. Michigan men's basketball: Sweet 16 Time, TV, streaming**\
+`Find out how to watch the Alabama Crimson Tide play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7151972/2026/03/27/alabama-vs-michigan-stream-how-to-watch-march-27/
+
+**How to watch St. John's vs. Duke men's basketball: Sweet 16 Time, TV, streaming**\
+`Find out how to watch the St. John's Red Storm play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7151970/2026/03/27/st-john-s-vs-duke-stream-how-to-watch-march-27/
+
 **Versant Pursues a Deal for Vox Media’s Podcast Business**\
 `Versant, the parent company of CNBC and MS NOW, is looking to continue expanding its business beyond cable TV.`\
 https://nytimes.com/2026/03/27/business/media/versant-vox-medias-podcasts.html
