@@ -1,3 +1,11 @@
+**Frustrated Nationals fans find themselves shut out of watching Opening Day on TV**\
+`Fans who spent the game trying to reach customer service missed the start of a new Nationals era, one that featured a 10-4 victory. `\
+https://nytimes.com/athletic/7151012/2026/03/27/washington-nationals-opening-day-television-issues/
+
+**Trump Says He Will Order TSA Agents to Be Paid**\
+`President Trump said on Truth Social that he would order pay for T.S.A. agents, who have worked for weeks without compensation, as a stalemate in Congress over funding has brought chaos to airports.`\
+https://nytimes.com/video/us/100000010804745/tsa-trump-payment-shutdown.html
+
 **Same Shows, Different Prices: Broadway vs. the West End**\
 `Michael Paulson reports from New York, and Alex Marshall reports from London, to compare theater prices for the same shows on both sides of the Atlantic.`\
 https://nytimes.com/video/theater/100000010758946/same-shows-different-prices-broadway-vs-the-west-end.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/27/business/helium-chips-iran-war.html
 **Corrections: March 27, 2026**\
 `Corrections that appeared in print on Friday, March 27, 2026.`\
 https://nytimes.com/2026/03/27/pageoneplus/corrections-march-27-2026.html
-
-**A Groom’s Procession and a New Orleans Second Line**\
-`Carolyn Holtzman and Nikhil Jyothinagaram blended Hindu rituals with the city’s signature celebrations.`\
-https://nytimes.com/2026/03/27/style/carolyn-holtzman-nikhil-jyothinagaram-wedding.html
-
-**They Planned a Wedding in 90 Days**\
-`A boba shop meet-cute and the creation of a fashion business led Nica Yusay and Quang Che to the altar after nearly five years of engagement.`\
-https://nytimes.com/2026/03/27/style/nica-yusay-quang-che-wedding.html
 
