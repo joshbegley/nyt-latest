@@ -1,3 +1,7 @@
+**Italy Says It Has Recovered $23 Million Stolen From First ‘Bond Girl’**\
+`The Swiss actress Ursula Andress, whose breakthrough came in “Dr. No” in 1962, accused a former wealth manager of embezzlement. He died in an apparent suicide last year.`\
+https://nytimes.com/2026/03/26/world/europe/ursula-andress-bond-stolen-assets-italy.html
+
 **Han Kang Among National Book Critics Circle Award Winners**\
 `This year’s winners include the latest novel by the South Korean Nobel laureate in literature and a memoir by one of India’s best known novelists.`\
 https://nytimes.com/2026/03/26/books/national-book-critics-circle-awards.html

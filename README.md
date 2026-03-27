@@ -1,3 +1,11 @@
+**On Opening Day, Orioles unveil new stadium upgrades and the vibes to match**\
+`Much of Opening Day in Baltimore is the same, it's tradition. But the rest had a new energy to it, from the new players to the new manager.`\
+https://nytimes.com/athletic/7150398/2026/03/26/baltimore-orioles-opening-day-stadium-vibes/
+
+**Cubs' ugly loss to start the season shouldn't dim optimism**\
+`The Cubs fell to the Nationals on Opening Day, but there are plenty of reasons to remain hopeful about the season.`\
+https://nytimes.com/athletic/7150340/2026/03/26/cubs-opening-day-loss-optimism/
+
 **Italy Says It Has Recovered $23 Million Stolen From First ‘Bond Girl’**\
 `The Swiss actress Ursula Andress, whose breakthrough came in “Dr. No” in 1962, accused a former wealth manager of embezzlement. He died in an apparent suicide last year.`\
 https://nytimes.com/2026/03/26/world/europe/ursula-andress-bond-stolen-assets-italy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7150375/2026/03/26/boston-college-luke-murray-mens-
 **Ireland's Szmodics knocked unconscious in World Cup playoff**\
 `Ireland manager Heimir Hallgrimsson confirmed at full time Szmodics had regained consciousness.`\
 https://nytimes.com/athletic/7150417/2026/03/26/sammie-szmodics-ireland-injury-update/
-
-**How Far Will Trump Go in Iran?**\
-`I asked an Iran hawk what victory looks like now.`\
-https://nytimes.com/video/opinion/100000010795916/how-far-will-trump-go-in-iran.html
-
-**Kennedy’s Vaccine Agenda Hits Roadblocks, Diminishing His Clout**\
-`Health Secretary Robert F. Kennedy Jr.’s vaccine skepticism is posing challenges for the Trump administration. Top health jobs are unfilled, and a court has blocked his vaccine schedule changes.`\
-https://nytimes.com/2026/03/26/us/politics/kennedy-vaccines-trump.html
 

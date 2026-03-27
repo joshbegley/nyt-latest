@@ -1,3 +1,7 @@
+**Italy Says It Has Recovered $23 Million Stolen From First ‘Bond Girl’**\
+`The Swiss actress Ursula Andress, whose breakthrough came in “Dr. No” in 1962, accused a former wealth manager of embezzlement. He died in an apparent suicide last year.`\
+https://nytimes.com/2026/03/26/world/europe/ursula-andress-bond-stolen-assets-italy.html
+
 **Han Kang Among National Book Critics Circle Award Winners**\
 `This year’s winners include the latest novel by the South Korean Nobel laureate in literature and a memoir by one of India’s best known novelists.`\
 https://nytimes.com/2026/03/26/books/national-book-critics-circle-awards.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010795916/how-far-will-trump-go-in-iran.
 **Kennedy’s Vaccine Agenda Hits Roadblocks, Diminishing His Clout**\
 `Health Secretary Robert F. Kennedy Jr.’s vaccine skepticism is posing challenges for the Trump administration. Top health jobs are unfilled, and a court has blocked his vaccine schedule changes.`\
 https://nytimes.com/2026/03/26/us/politics/kennedy-vaccines-trump.html
-
-**Cubs reach six-year extension agreement with Nico Hoerner: Source**\
-`The Cubs will continue to have one of baseball’s best infields anchored by Hoerner, who is a two-time Gold Glove winner. `\
-https://nytimes.com/athletic/7150381/2026/03/26/chicago-cubs-nico-hoerner-extension-source/
 
