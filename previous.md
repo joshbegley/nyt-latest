@@ -1,40 +1,40 @@
-**Will Iran Break Trumpism?**\
-`The right-wing thinker Christopher Caldwell believes the Iran war is the end of Trumpism. Is he right? What was Trumpism in the first place?`\
-https://nytimes.com/2026/03/27/opinion/ezra-klein-podcast-christopher-caldwell.html
+**On an important Opening Day for baseball, hope arrived via home runs, new records — and robots**\
+`Coming off a stellar World Series and World Baseball Classic, MLB has momentum. It felt that way on Thursday, even if a work stoppage looms.`\
+https://nytimes.com/athletic/7151008/2026/03/27/mlb-opening-day-robo-umps-records-skenes/
 
-**4 Ways to Flourish (in Good Times and Bad)**\
-`Our ability to thrive comes not from life’s wins and losses, but from how we navigate them.`\
-https://nytimes.com/2026/03/27/well/flourish-stress-anxiety.html
+**Top remaining NFL free-agent fits, plus early look at best and worst teams for 2026**\
+`Jauan Jennings to the Bills? Joey Bosa to the 49ers? Tyreek Hill back to the Chiefs? Our best fits for top free agents still available.`\
+https://nytimes.com/athletic/7147350/2026/03/27/nfl-best-free-agent-fits-best-worst-teams/
 
-**The New York Times News Quiz, March 27, 2026**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2026/03/27/briefing/news-quiz-iran-tsa-bts-trump.html
+**LSU star Flau'jae Johnson is redefining what it means to be a dual-threat athlete**\
+`Johnson doesn't believe in limiting herself. She's chasing a championship, music career and WNBA career.`\
+https://nytimes.com/athletic/7145138/2026/03/27/flaujae-johnson-wiki-bio/
 
-**Republicans Know This War Is Going Badly**\
-`Never before has America arrived at the threshold of a quagmire so quickly.`\
-https://nytimes.com/2026/03/27/opinion/republicans-iran-war.html
+**Inside Michigan State coach Tom Izzo's ability to adapt without compromising**\
+`As his peers have bowed out of college basketball's turmoil, Izzo has dug in, adapted — at least a little — and resumed winning big.`\
+https://nytimes.com/athletic/7149096/2026/03/27/tom-izzo-michigan-state-ncaa-tournament/
 
-**Questions for The Morning**\
-`We want to answer them.`\
-https://nytimes.com/2026/03/27/briefing/questions-for-the-morning.html
+**Blue Jays bold predictions: A record-setting season, a deadline addition and more**\
+`Watch for Andrés Giménez to set a new Toronto standard at shortstop and don't be suprised by a big midseason acquisition. `\
+https://nytimes.com/athletic/7138685/2026/03/27/blue-jays-mlb-predictions-season-preview/
 
-**Want More ‘Love Story’? Read These Books Next.**\
-`If the TV show has you craving 1990s glam, upper-crust romance and doomed dynasties, these books have got you covered.`\
-https://nytimes.com/2026/03/27/books/review/love-story-jfk-jr-carolyn-bessette-books.html
+**Duke's March Madness success under Kara Lawson good sign for her other job: Team USA coach**\
+`Lawson has earned her bona fides. Now, as she leads Duke's resurgence, she's also been entrusted with the biggest job in women's basketball.`\
+https://nytimes.com/athletic/7139632/2026/03/27/duke-womens-basketball-coach-kara-lawson-team-usa/
 
-**Can Seniors Order Off the Kids’ Menu?**\
-`A dispute over restaurant etiquette.`\
-https://nytimes.com/interactive/2026/03/27/magazine/children-kids-menu-hodgman-quiz.html
+**Geno Auriemma and Dawn Staley are torchbearers of women's basketball. But who's next?**\
+`The sport needs more prominent voices for the next generation of coaches and players. `\
+https://nytimes.com/athletic/7150507/2026/03/27/geno-auriemma-dawn-staley-womens-basketball-leaders/
 
-**What We Know About Saturday’s ‘No Kings’ Protests**\
-`Thousands of demonstrations against the Trump administration are scheduled to take place in cities and towns across the country on Saturday.`\
-https://nytimes.com/2026/03/27/us/no-kings-protests-cities.html
+**What to expect from the NFL's 2026 league meeting in Phoenix next week**\
+`The league will discuss and vote on potential rules changes, while all 32 head coaches will address the media on Monday and Tuesday.`\
+https://nytimes.com/athletic/7149224/2026/03/27/nfl-2026-league-meeting-top-storylines/
 
-**Europeans Are Angry at Trump, but Often Forgiving of Americans**\
-`A generation ago, foreign fury over the Iraq invasion often blurred into anti-Americanism. Now, some Europeans seem ready to distinguish between the president and the American people.`\
-https://nytimes.com/2026/03/27/world/europe/europe-trump-sentiment.html
+**The New York Times International Edition in Print for Saturday, March 28, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/03/27/todays-new-york-times-international-edition
 
-**Where Might the Iran War Hit Your Wallet? Start With Raspberries.**\
-`It takes a lot of fuel to produce this delicate fruit, which can be a sensitive barometer as oil costs rise.`\
-https://nytimes.com/2026/03/27/dining/raspberry-prices.html
+**Senate Votes to Fund Most of D.H.S. in Bid to End Partial Shutdown**\
+`The bill excludes funding for federal immigration enforcement and deportation operations. The House could consider the package on Friday morning.`\
+https://nytimes.com/2026/03/27/us/politics/senate-dhs-ice-shutdown-funding.html
 
