@@ -1,3 +1,7 @@
+**Nottingham Forest accounts analysed: £71m loss, Ange pay-off, and another big departure needed?**\
+`With a relegation fight still to be won, four managers employed and an upcoming stadium revamp, running the club is unlikely to get cheaper`\
+https://nytimes.com/athletic/7151374/2026/03/27/nottingham-forest-accounts-premier-league/
+
 **United Airlines Flight Avoids Collision With Military Helicopter in California**\
 `The Federal Aviation Administration said it was investigating after a helicopter crossed into the path of United Airlines Flight 589.`\
 https://nytimes.com/2026/03/27/us/united-airlines-helicopter-california-faa.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7147012/2026/03/27/the-athletics-friday-football-qu
 **Lowetide: Oilers defenceman Ty Emberson taking a step forward this season**\
 `Emberson can compete without the puck and has learned how to survive in the NHL.`\
 https://nytimes.com/athletic/7148659/2026/03/27/edmonton-oilers-defenceman-ty-emberson-stats-2026/
-
-**Ukraine signed a defense cooperation agreement with Saudi Arabia, Zelensky says.**\
-`By Maria Varenikova`\
-https://nytimes.com/live/2026/03/27/world/iran-war-trump-oil-israel/ukraine-signed-a-defense-cooperation-agreement-with-saudi-arabia-zelensky-says
 

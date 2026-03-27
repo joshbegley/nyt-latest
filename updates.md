@@ -1,3 +1,7 @@
+**Nottingham Forest accounts analysed: £71m loss, Ange pay-off, and another big departure needed?**\
+`With a relegation fight still to be won, four managers employed and an upcoming stadium revamp, running the club is unlikely to get cheaper`\
+https://nytimes.com/athletic/7151374/2026/03/27/nottingham-forest-accounts-premier-league/
+
 **United Airlines Flight Avoids Collision With Military Helicopter in California**\
 `The Federal Aviation Administration said it was investigating after a helicopter crossed into the path of United Airlines Flight 589.`\
 https://nytimes.com/2026/03/27/us/united-airlines-helicopter-california-faa.html
