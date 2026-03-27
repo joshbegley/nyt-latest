@@ -1,3 +1,7 @@
+**3 Killed in Helicopter Crash Off Hawaii**\
+`Two survivors were taken to a hospital for treatment after the crash on Thursday afternoon, according to the authorities on the island of Kauai.`\
+https://nytimes.com/2026/03/27/us/helicopter-crash-hawaii-kauai.html
+
 **How to watch Yankees vs. Giants: Time, TV, streaming for March 27**\
 `Find out how to watch the New York Yankees play the San Francisco Giants, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7151676/2026/03/27/yankees-vs-giants-stream-how-to-watch-march-27/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/27/us/united-airlines-helicopter-california-faa.html
 **Ukraine's World Cup dream is ended by Sweden, despite the defiance of a four-year exile**\
 `Aiming to qualify for a first World Cup in 20 years, Ukraine lost 3-1 to Sweden in Thursday's qualification play-off semi-final in Spain`\
 https://nytimes.com/athletic/7151396/2026/03/27/ukraine-world-cup-sweden-qualification-spain/
-
-**Silvestri leaves hospital six days after Milan-Sanremo crash**\
-`The 27-year-old sustained several broken ribs, a fractured collar-bone, and a bruised left lung after the fall. `\
-https://nytimes.com/athletic/7151599/2026/03/27/debora-silvestri-milan-sanremo-cycling-crash-hospital/
 
