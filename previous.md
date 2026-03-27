@@ -1,3 +1,11 @@
+**Dodgers know a three-peat is within reach. Opening Day was a strong start**\
+`Los Angeles might be set up better than ever to claim another trophy, its third in a row and its fourth in seven seasons.`\
+https://nytimes.com/athletic/7151110/2026/03/27/dodgers-win-diamondbacks-opening-day-three-peat/
+
+**Word of the Day: octave**\
+`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/27/learning/word-of-the-day-octave.html
+
 **IPL 2026 preview: From CSK's recruitment shift to top-heavy Titans and KKR's gamble on Green**\
 `The first half of our preview for the 2026 tournament features teams destined to challenge, as well as others who may lack cohesion`\
 https://nytimes.com/athletic/7149449/2026/03/27/ipl-2026-csk-delhi-titans-kkr-lucknow-preview/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7143152/2026/03/27/bad-weird-football-stats-opta/
 **Marcelo Bielsa returns to England, a nation where he found love**\
 `At Wembley on Friday, there will be Leeds fans in every corner hoping to use the match to properly say goodbye to an icon of their club`\
 https://nytimes.com/athletic/7149795/2026/03/27/marcelo-bielsa-england-uruguay-leeds/
-
-**The English striker running riot in Serie A: 'I can battle up against anyone in this league'**\
-`Keinan Davis worked on his fitness over the summer and has reaped the rewards, with 10 Serie A goals, to prompt talk of an England call-up`\
-https://nytimes.com/athletic/7146049/2026/03/27/keinan-davis-england-udinese-villa/
-
-**Chelsea need Liam Rosenior to succeed. He is their most BlueCo coaching hire yet**\
-`The head coach has overseen four consecutive defeats across all competitions and been subjected to ridicule online and abuse from the stands`\
-https://nytimes.com/athletic/7147459/2026/03/27/chelsea-liam-rosenior-blueco-eghbali-boehly/
 

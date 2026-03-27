@@ -1,3 +1,11 @@
+**Dodgers know a three-peat is within reach. Opening Day was a strong start**\
+`Los Angeles might be set up better than ever to claim another trophy, its third in a row and its fourth in seven seasons.`\
+https://nytimes.com/athletic/7151110/2026/03/27/dodgers-win-diamondbacks-opening-day-three-peat/
+
+**Word of the Day: octave**\
+`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/27/learning/word-of-the-day-octave.html
+
 **IPL 2026 preview: From CSK's recruitment shift to top-heavy Titans and KKR's gamble on Green**\
 `The first half of our preview for the 2026 tournament features teams destined to challenge, as well as others who may lack cohesion`\
 https://nytimes.com/athletic/7149449/2026/03/27/ipl-2026-csk-delhi-titans-kkr-lucknow-preview/
