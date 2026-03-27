@@ -1,3 +1,23 @@
+**For House Republicans, an Exodus Rivaled Only By Trump’s First Term**\
+`The number of Republicans departing the House this cycle is one of the highest since 1930.`\
+https://nytimes.com/interactive/2026/03/27/us/politics/house-republicans-departures-midterms-trump.html
+
+**England 1 Uruguay 1 - Tuchel experiments, untimely injuries and Ben White's evening of extremes**\
+`The England manager gave fringe players a chance to impress at Wembley, but few took their opportunity to cement a place at the World Cup`\
+https://nytimes.com/athletic/7140960/2026/03/27/england-uruguay-tuchel-white-maguire-henderson/
+
+**Fertitta family to purchase Connecticut Sun for $300 million, bring WNBA back to Houston: Sources**\
+`The Sun sold for $300 million and will relocate to Houston, bringing a WNBA team back to one of the league's original cities.`\
+https://nytimes.com/athletic/7152749/2026/03/27/rockets-owners-connecticut-sun-relocate-houston-comets/
+
+**Trump Offers More Aid to Farmers, a Key Support Bloc Hurt by Tariffs and War**\
+`The president announced new loan guarantees at a White House event that appeared intended to reassure a group that has found itself caught in the cross hairs of some of his major policies.`\
+https://nytimes.com/2026/03/27/us/politics/trump-farmers.html
+
+**The Briefing: Netherlands 2 Norway 1 - How are the Dutch looking for the World Cup? How good is Kees Smit?**\
+`Analysis of the Netherlands' victory over Norway in Amsterdam as the two teams prepare for this summer's World Cup`\
+https://nytimes.com/athletic/7146182/2026/03/27/netherlands-norway-world-cup-kees-smit/
+
 **Robert Trivers, Eccentric Scientist Who Probed Human Nature, Dies at 83**\
 `A visionary evolutionary biologist, he drew comparisons to Charles Darwin with his theories on the genetic roots of seemingly detrimental behaviors like self-deception.`\
 https://nytimes.com/2026/03/27/science/robert-trivers-dead.html
