@@ -1,8 +1,12 @@
+**John Textor's Eagle Football placed into administration**\
+`Eagle Football's main creditor, investment firm Ares Capital Corporation, has put the group’s UK-based holding company into administration.`\
+https://nytimes.com/athletic/7152831/2026/03/27/john-textor-eagle-football-administration-crystal-palace/
+
 **N.Y. Attorney General Bars Health Provider After 3 Jail Deaths**\
 `The company, which Letitia James found was operating illegally in the state, also was fined $875,000 as part of a settlement.`\
 https://nytimes.com/2026/03/27/nyregion/prison-medical-care-new-york.html
 
-**Map: 4.1-Magnitude Earthquake Shakes Southern California**\
+**Map: 4.2-Magnitude Earthquake Shakes Southern California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2026/03/27/us/southern-california-quake-tracker.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/03/27/us/politics/house-republicans-departu
 **England 1 Uruguay 1 - Tuchel experiments, untimely injuries and White's evening of extremes**\
 `The England manager gave fringe players a chance to impress at Wembley, but few took their opportunity to cement a place at the World Cup`\
 https://nytimes.com/athletic/7140960/2026/03/27/england-uruguay-tuchel-white-maguire-henderson/
-
-**Fertitta family to purchase Connecticut Sun for $300 million, bring WNBA back to Houston: Sources**\
-`The Sun sold for $300 million and will relocate to Houston, bringing a WNBA team back to one of the league's original cities.`\
-https://nytimes.com/athletic/7152749/2026/03/27/rockets-owners-connecticut-sun-relocate-houston-comets/
 

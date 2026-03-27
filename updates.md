@@ -1,3 +1,15 @@
+**N.Y. Attorney General Bars Health Provider After 3 Jail Deaths**\
+`The company, which Letitia James found was operating illegally in the state, also was fined $875,000 as part of a settlement.`\
+https://nytimes.com/2026/03/27/nyregion/prison-medical-care-new-york.html
+
+**Map: 4.1-Magnitude Earthquake Shakes Southern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/03/27/us/southern-california-quake-tracker.html
+
+**Florida AG calls NFL's Rooney Rule unlawful; league says it is 'consistent with the law'**\
+`The Florida attorney general demanded that the NFL stop enforcing the Rooney Rule for its three Florida-based franchises.`\
+https://nytimes.com/athletic/7152645/2026/03/27/rooney-rule-florida-attorney-general/
+
 **Arrest Warrant for Former Kentucky Governor Canceled by Appeals Court**\
 `The court decided the warrant was invalid, because it came after the former governor, Matt Bevin, had filed to disqualify a judge from his child-support case, accusing her of bias.`\
 https://nytimes.com/2026/03/27/us/arrest-warrant-kentucky-governor-matt-bevin.html
