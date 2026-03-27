@@ -1,3 +1,7 @@
+**Raiders GM John Spytek on Maxx Crosby: 'We welcome him like he never left'**\
+`Spytek expressed optimism about his team's offseason. "We're all really excited about where we're at right now after the past month."`\
+https://nytimes.com/athletic/7150361/2026/03/26/maxx-crosby-raiders-gm-john-spytek/
+
 **Kepner: The Pirates and Paul Skenes looked sharp off the field. On it? Not so much.**\
 `The NL Cy Young winner exited his first start of 2026 after giving up five runs in the first inning on 37 pitches.`\
 https://nytimes.com/athletic/7150509/2026/03/26/pittsburgh-pirates-paul-skenes-opening-day-mets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7150379/2026/03/26/mets-lineup-scouting-opening-day
 **Why the Verdict Against Meta and YouTube Could Change Social Media**\
 `In a landmark case, a jury found Meta and YouTube guilty of creating products that were addictive. Ryan Mac explains the outcome and what it could mean for tech companies going forward.`\
 https://nytimes.com/video/technology/100000010801833/why-the-verdict-against-meta-and-youtube-could-change-social-media.html
-
-**St. John’s is more proof Rick Pitino’s greatness survived his devastating loss to Duke**\
-`Pitino, a Hall of Fame motivator and strategist, carries a 12-1 career regional semifinal record into Friday night's Sweet 16 matchup.`\
-https://nytimes.com/athletic/7150323/2026/03/26/rick-pitino-st-johns-duke-march-madness-ncaa-tournament/
 
