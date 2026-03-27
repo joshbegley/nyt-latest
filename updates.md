@@ -1,3 +1,7 @@
+**3 Killed in Helicopter Crash Off Hawaii**\
+`Two survivors were taken to a hospital for treatment after the crash on Thursday afternoon, according to the authorities on the island of Kauai.`\
+https://nytimes.com/2026/03/27/us/helicopter-crash-hawaii-kauai.html
+
 **How to watch Yankees vs. Giants: Time, TV, streaming for March 27**\
 `Find out how to watch the New York Yankees play the San Francisco Giants, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7151676/2026/03/27/yankees-vs-giants-stream-how-to-watch-march-27/
