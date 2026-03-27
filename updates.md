@@ -1,3 +1,11 @@
+**Phillies' Alec Bohm sues parents, alleging financial mismanagement**\
+`The lawsuit, filed in Philadelphia County on Wednesday, alleges his parents misappropriated Bohm’s funds while managing LLCs on his behalf.`\
+https://nytimes.com/athletic/7150525/2026/03/26/alec-bohm-sues-parents-phillies/
+
+**Men’s March Madness takeaways: Purdue survives Texas; Iowa beats Nebraska**\
+`The Boilermakers and Hawkeyes advanced to the Elite Eight, with two other spots yet to be decided in Sweet 16 action Thursday night.`\
+https://nytimes.com/athletic/7147588/2026/03/26/march-madness-2026-mens-sweet-16-west-south-region/
+
 **One game in, Padres' rotation questions loom over everything**\
 `The Padres' 8-2 loss to the Tigers on Opening Day underscored the vulnerability of their starting pitching.`\
 https://nytimes.com/athletic/7150757/2026/03/26/padres-rotation-questions-opening-day/

@@ -1,3 +1,11 @@
+**Phillies' Alec Bohm sues parents, alleging financial mismanagement**\
+`The lawsuit, filed in Philadelphia County on Wednesday, alleges his parents misappropriated Bohm’s funds while managing LLCs on his behalf.`\
+https://nytimes.com/athletic/7150525/2026/03/26/alec-bohm-sues-parents-phillies/
+
+**Men’s March Madness takeaways: Purdue survives Texas; Iowa beats Nebraska**\
+`The Boilermakers and Hawkeyes advanced to the Elite Eight, with two other spots yet to be decided in Sweet 16 action Thursday night.`\
+https://nytimes.com/athletic/7147588/2026/03/26/march-madness-2026-mens-sweet-16-west-south-region/
+
 **One game in, Padres' rotation questions loom over everything**\
 `The Padres' 8-2 loss to the Tigers on Opening Day underscored the vulnerability of their starting pitching.`\
 https://nytimes.com/athletic/7150757/2026/03/26/padres-rotation-questions-opening-day/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7150685/2026/03/26/phillies-opening-day-schwarber-c
 **‘The Pitt’ Season 2, Episode 12 Recap: Breaking Points**\
 `The stalwarts of the Pitt seem to be cracking under the stress of an especially difficult day — in a workplace defined by difficult days.`\
 https://nytimes.com/2026/03/26/arts/television/the-pitt-recap-season-2-episode-12.html
-
-**Slightly Off**\
-`Zachary David Levy opens our solving weekend.`\
-https://nytimes.com/2026/03/26/crosswords/daily-puzzle-2026-03-27.html
-
-**Kevin McGonigle records 4 hits in MLB debut: 'It looked like that was his 700th game'**\
-`McGonigle was at the center of everything in the Tigers' 8-2 Opening Day win over the Padres.`\
-https://nytimes.com/athletic/7150616/2026/03/26/kevin-mcgonigle-tigers-mlb-debut-opening-day/
 
