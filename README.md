@@ -1,3 +1,7 @@
+**How to watch Yankees vs. Giants: Time, TV, streaming for March 27**\
+`Find out how to watch the New York Yankees play the San Francisco Giants, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7151676/2026/03/27/yankees-vs-giants-stream-how-to-watch-march-27/
+
 **Pistons are driving opponents crazy with defense, and, like their franchise forebears, winning**\
 `Detroit has been the East's best team this season by leaning into the defense-first ethos of the Pistons' past championship teams.`\
 https://nytimes.com/athletic/7140649/2026/03/27/pistons-defense-revive-winning-franchise/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7151396/2026/03/27/ukraine-world-cup-sweden-qualifi
 **Silvestri leaves hospital six days after Milan-Sanremo crash**\
 `The 27-year-old sustained several broken ribs, a fractured collar-bone, and a bruised left lung after the fall. `\
 https://nytimes.com/athletic/7151599/2026/03/27/debora-silvestri-milan-sanremo-cycling-crash-hospital/
-
-**Soaring Diesel Prices Set Off Transport Strike in Philippines**\
-`Transport workers in Manila walked off the job to protest the rising cost of fuel, as the war in the Middle East causes a national energy emergency.`\
-https://nytimes.com/2026/03/27/world/middleeast/manila-jeepney-drivers-strike-fuel.html
 
