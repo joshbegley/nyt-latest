@@ -1,3 +1,7 @@
+**Alabama guard Aden Holloway cleared to travel out of state ahead of Sweet 16**\
+`The university's office of student conduct removed Holloway from campus following his arrest on March 16.`\
+https://nytimes.com/athletic/7151968/2026/03/27/aden-holloway-alabama-status-arrest-charges/
+
 **How Camden, N.J., Cut Its Murder Rate to a 40-Year Low**\
 `In their own words, members of the community tell the story of how change came to the city, once among the nation’s deadliest.`\
 https://nytimes.com/interactive/2026/03/27/headway/camden-nj-murder-rate-gun-violence.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7143039/2026/03/27/wrexhams-accounts-record-breakin
 **Iran men's soccer team makes schoolbag tribute in anthem as World Cup uncertainty remains**\
 `The nation are preparing for the World Cup, where each of its three group games are scheduled to be held in the U.S..`\
 https://nytimes.com/athletic/7151535/2026/03/27/iran-football-team-world-cup/
-
-**Stream These Movies and Shows Before They Leave Netflix in April**\
-`Several Christopher Guest mockumentaries and almost every James Bond movie are among the titles leaving for U.S. subscribers before the month ends.`\
-https://nytimes.com/2026/03/27/arts/television/netflix-expiring-april-james-bond-christopher-guest.html
 
