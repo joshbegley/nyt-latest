@@ -1,3 +1,11 @@
+**Man Held in Hawaii for 2 Years Over Mistaken Identity Gets $975,000 Settlement**\
+`After spending over two years in a psychiatric hospital, Joshua Spriestersbach, 54, should no longer face the risk of being rearrested or jailed for the crimes of the person he was mistaken for.`\
+https://nytimes.com/2026/03/26/us/honolulu-man-mistaken-identity-settlement.html
+
+**Iowa rallies late to beat Nebraska, reach first Elite Eight since 1987**\
+`Iowa didn't lead for the first 37 minutes of the game, but came up with multiple clutch plays late.`\
+https://nytimes.com/athletic/7150698/2026/03/26/iowa-nebraska-march-madness-score-result-takeaways/
+
 **Referees missed 6 calls at end of critical Rockets-Timberwolves game**\
 `The game, which ended in a 110-108 Timberwolves victory after a 13-point overtime comeback, featured several controversial decisions.`\
 https://nytimes.com/athletic/7150568/2026/03/26/rockets-timberwolves-nba-referee-missed-calls-scott-foster/
