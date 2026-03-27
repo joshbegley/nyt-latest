@@ -1,3 +1,11 @@
+**Arrest Warrant for Former Kentucky Governor Canceled by Appeals Court**\
+`The court decided the warrant was invalid, because it came after the former governor, Matt Bevin, had filed to disqualify a judge from his child-support case, accusing her of bias.`\
+https://nytimes.com/2026/03/27/us/arrest-warrant-kentucky-governor-matt-bevin.html
+
+**Strikes on Iranian Industry Expand Blows to Civilian Economy**\
+`After Israel said it would intensify attacks on Iran’s industrial infrastructure, major steel plants and other vital plants were struck.`\
+https://nytimes.com/2026/03/27/world/middleeast/iran-strikes-infrastructure-industry.html
+
 **Trinidad Chambliss set to remain Ole Miss QB after NCAA petition denied**\
 `The ruling again clears the way for Chambliss to return to college football as one of the sport’s most exciting quarterbacks.`\
 https://nytimes.com/athletic/7152794/2026/03/27/trinidad-chambliss-ole-miss-ncaa-petition-denied/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/27/science/robert-trivers-dead.html
 **CPAC Considers Vance, Rubio and Life After Trump**\
 `The president’s potential successors “are mortal men,” one attendee said.`\
 https://nytimes.com/2026/03/27/us/politics/cpac-trump-vance-rubio.html
-
-**Former All-Pro Raiders center Barret Robbins dead at 52**\
-`Robbins spent his entire NFL career with Oakland from 1995 to 2003, winning All-Pro and Pro Bowl honors in 2002.`\
-https://nytimes.com/athletic/7152530/2026/03/27/barret-robbins-raiders-obituary/
-
-**The Briefing: Netherlands 2 Norway 1 - How are the Dutch looking for the World Cup? How good is Kees Smit?**\
-`Analysis of the Netherlands' victory over Norway in Amsterdam as the two teams prepare for this summer's World Cup`\
-https://nytimes.com/athletic/7146182/2026/03/27/netherlands-norway-world-cup-kees-smit/
 

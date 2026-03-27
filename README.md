@@ -1,3 +1,15 @@
+**N.Y. Attorney General Bars Health Provider After 3 Jail Deaths**\
+`The company, which Letitia James found was operating illegally in the state, also was fined $875,000 as part of a settlement.`\
+https://nytimes.com/2026/03/27/nyregion/prison-medical-care-new-york.html
+
+**Map: 4.1-Magnitude Earthquake Shakes Southern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/03/27/us/southern-california-quake-tracker.html
+
+**Florida AG calls NFL's Rooney Rule unlawful; league says it is 'consistent with the law'**\
+`The Florida attorney general demanded that the NFL stop enforcing the Rooney Rule for its three Florida-based franchises.`\
+https://nytimes.com/athletic/7152645/2026/03/27/rooney-rule-florida-attorney-general/
+
 **Arrest Warrant for Former Kentucky Governor Canceled by Appeals Court**\
 `The court decided the warrant was invalid, because it came after the former governor, Matt Bevin, had filed to disqualify a judge from his child-support case, accusing her of bias.`\
 https://nytimes.com/2026/03/27/us/arrest-warrant-kentucky-governor-matt-bevin.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7140960/2026/03/27/england-uruguay-tuchel-white-mag
 **Fertitta family to purchase Connecticut Sun for $300 million, bring WNBA back to Houston: Sources**\
 `The Sun sold for $300 million and will relocate to Houston, bringing a WNBA team back to one of the league's original cities.`\
 https://nytimes.com/athletic/7152749/2026/03/27/rockets-owners-connecticut-sun-relocate-houston-comets/
-
-**Trump Offers More Aid to Farmers, a Key Support Bloc Hurt by Tariffs and War**\
-`The president announced new loan guarantees at a White House event that appeared intended to reassure a group that has found itself caught in the cross hairs of some of his major policies.`\
-https://nytimes.com/2026/03/27/us/politics/trump-farmers.html
-
-**Robert Trivers, Eccentric Scientist Who Probed Human Nature, Dies at 83**\
-`A visionary evolutionary biologist, he drew comparisons to Charles Darwin with his theories on the genetic roots of seemingly detrimental behaviors like self-deception.`\
-https://nytimes.com/2026/03/27/science/robert-trivers-dead.html
-
-**CPAC Considers Vance, Rubio and Life After Trump**\
-`The president’s potential successors “are mortal men,” one attendee said.`\
-https://nytimes.com/2026/03/27/us/politics/cpac-trump-vance-rubio.html
 
