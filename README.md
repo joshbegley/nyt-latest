@@ -1,3 +1,7 @@
+**One game in, Padres' rotation questions loom over everything**\
+`The Padres' 8-2 loss to the Tigers on Opening Day underscored the vulnerability of their starting pitching.`\
+https://nytimes.com/athletic/7150757/2026/03/26/padres-rotation-questions-opening-day/
+
 **After rough spring, Garrett Crochet happy to 'turn the page,' dazzles in season opener**\
 `"What was I thinking? It's probably unprintable," Crochet said, grinning after the Red Sox 3-0 victory over the Reds. "I just felt good."`\
 https://nytimes.com/athletic/7150707/2026/03/26/red-sox-win-reds-garrett-crochet-season-opener/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/26/crosswords/daily-puzzle-2026-03-27.html
 **Kevin McGonigle records 4 hits in MLB debut: 'It looked like that was his 700th game'**\
 `McGonigle was at the center of everything in the Tigers' 8-2 Opening Day win over the Padres.`\
 https://nytimes.com/athletic/7150616/2026/03/26/kevin-mcgonigle-tigers-mlb-debut-opening-day/
-
-**After winter of changes, Astros fall flat in 3-0 Opening Day loss**\
-`Angels starter José Soriano kept Houston's bats in check over six innings, leaving Carlos Correa to say afterward, “we swung too much.”`\
-https://nytimes.com/athletic/7150714/2026/03/26/astros-offense-angels-opening-day-loss/
 
