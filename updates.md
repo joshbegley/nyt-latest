@@ -1,3 +1,11 @@
+**General McChrystal on the Myths Misleading Trump in Iran**\
+`The president may have been seduced by the idea of an easy victory, warns the Iraq and Afghanistan war commander on “The Opinions.”`\
+https://nytimes.com/video/opinion/100000010801995/general-mcchrystal-on-the-myths-misleading-trump-in-iran.html
+
+**Kepner: The Pirates and Paul Skenes looked sharp off the field. On it? Not so much**\
+`The NL Cy Young winner exited his first start of 2026 after giving up five runs in the first inning on 37 pitches.`\
+https://nytimes.com/athletic/7150509/2026/03/26/pittsburgh-pirates-paul-skenes-opening-day-mets/
+
 **Joe Gibbs Racing alleges Gabehart, Spire conspired to steal proprietary data**\
 `A temporary restraining order was extended 14 days, allowing Gabehart to work with Spire Motorsports as JGR's lawsuit continues.`\
 https://nytimes.com/athletic/7150560/2026/03/26/joe-gibbs-racing-chris-gabehart-spire-motorsports-lawsuit-update/
