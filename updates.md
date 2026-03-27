@@ -1,3 +1,11 @@
+**Quote of the Day: Bitten by a Tick, Then Severely Allergic to Meat**\
+`Quotation of the Day for Friday, May TK, 2026.`\
+https://nytimes.com/2026/03/26/pageoneplus/quote-of-the-day-bitten-by-a-tick-then-severely-allergic-to-meat.html
+
+**Wild earn gutsy, buzzer-beating win in Foligno brothers' first game together: Takeaways**\
+`Joel Eriksson Ek scored the game-winning goal with 4.4 seconds left to lift the Wild past the Panthers 3-2 on Thursday night.`\
+https://nytimes.com/athletic/7150929/2026/03/26/wild-panthers-win-foligno-brothers-takeaways/
+
 **Stocks Sink and Oil Dips After Trump Delays Threat to Bomb Iran**\
 `President Trump said on Thursday he would delay an imminent deadline to begin attacking Iran’s power grid.`\
 https://nytimes.com/2026/03/26/business/gas-oil-gas-prices-iran.html

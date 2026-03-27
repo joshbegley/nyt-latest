@@ -1,3 +1,11 @@
+**Quote of the Day: Bitten by a Tick, Then Severely Allergic to Meat**\
+`Quotation of the Day for Friday, May TK, 2026.`\
+https://nytimes.com/2026/03/26/pageoneplus/quote-of-the-day-bitten-by-a-tick-then-severely-allergic-to-meat.html
+
+**Wild earn gutsy, buzzer-beating win in Foligno brothers' first game together: Takeaways**\
+`Joel Eriksson Ek scored the game-winning goal with 4.4 seconds left to lift the Wild past the Panthers 3-2 on Thursday night.`\
+https://nytimes.com/athletic/7150929/2026/03/26/wild-panthers-win-foligno-brothers-takeaways/
+
 **Stocks Sink and Oil Dips After Trump Delays Threat to Bomb Iran**\
 `President Trump said on Thursday he would delay an imminent deadline to begin attacking Iran’s power grid.`\
 https://nytimes.com/2026/03/26/business/gas-oil-gas-prices-iran.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7150707/2026/03/26/red-sox-win-reds-garrett-crochet
 **Blue Jackets can't convert chances in frustrating loss to Canadiens**\
 `Defenseman Damon Severson also left the game halfway through the third after a hard hit from Zack Bolduc.`\
 https://nytimes.com/athletic/7150767/2026/03/26/blue-jackets-severson-injury-marchment-dobes-canadiens/
-
-**Nebraska only puts 4 players on court in late blunder vs. Iowa: 'A miscommunication'**\
-`Down 3 points late, Nebraska committed a jaw-dropping blunder that cost the Huskers a chance to advance to the Elite Eight.`\
-https://nytimes.com/athletic/7150826/2026/03/26/nebraska-iowa-4-players-on-court-march-madness/
-
-**Salzburg Festival Fires Its Artistic Director**\
-`The board terminated Markus Hinterhäuser’s contract early, leaving the leadership of the world’s largest classical music festival in limbo for now.`\
-https://nytimes.com/2026/03/26/arts/music/salzburg-festival-fires-artistic-director-markus-hinterhauser.html
 
