@@ -1,3 +1,7 @@
+**'No to De Zerbi': Spurs fan groups urge club to rethink over Italian's Mason Greenwood defence**\
+`Spurs are pursuing De Zerbi, who is out of work after leaving Marseille, as they consider alternatives to head coach Igor Tudor.`\
+https://nytimes.com/athletic/7152249/2026/03/27/tottenham-fans-roberto-de-zerbi-mason-greenwood-comments/
+
 **Ask a Journalist: Creating an Informative and Engaging Podcast**\
 `Wesley Morris, the host of the culture podcast “Cannonball,” joins us in April to chat with teenagers all about podcasting. Post your comments and questions for him by April 15.`\
 https://nytimes.com/2026/03/27/learning/lesson-plans/ask-a-journalist-creating-an-informative-and-engaging-podcast.html

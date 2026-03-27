@@ -1,3 +1,7 @@
+**'No to De Zerbi': Spurs fan groups urge club to rethink over Italian's Mason Greenwood defence**\
+`Spurs are pursuing De Zerbi, who is out of work after leaving Marseille, as they consider alternatives to head coach Igor Tudor.`\
+https://nytimes.com/athletic/7152249/2026/03/27/tottenham-fans-roberto-de-zerbi-mason-greenwood-comments/
+
 **Ask a Journalist: Creating an Informative and Engaging Podcast**\
 `Wesley Morris, the host of the culture podcast “Cannonball,” joins us in April to chat with teenagers all about podcasting. Post your comments and questions for him by April 15.`\
 https://nytimes.com/2026/03/27/learning/lesson-plans/ask-a-journalist-creating-an-informative-and-engaging-podcast.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/27/us/politics/kennedy-center-jazz-performer.html
 **Europe Is Drafting Postwar Plan to Escort Tankers, Officials Say**\
 `France and Britain are leading planning to have warships escort vessels through the Strait of Hormuz, which officials say is farther along than has been revealed publicly.`\
 https://nytimes.com/2026/03/27/world/middleeast/europe-plan-escort-hormuz.html
-
-**Flashback: Your Weekly History Quiz, March 28, 2026**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2026/03/27/upshot/flashback.html
 
