@@ -1,3 +1,15 @@
+**Ravens NFL Draft big board: Examining most logical options at pick No. 14**\
+`Now that Baltimore again owns its 2026 first-round selection, we take a look at seven players who could make sense at pick No. 14. `\
+https://nytimes.com/athletic/7148999/2026/03/27/ravens-big-board-2026-nfl-draft/
+
+**Casemiro not thinking about reversing Man Utd decision**\
+`The midfielder confirmed his intention to leave the club on January 22, but has seen a recent upturn in form under Michael Carrick. `\
+https://nytimes.com/athletic/7151400/2026/03/27/casemiro-manchester-united-stay-transfer/
+
+**U.K. Police to Reinvestigate Sex Crime Allegations Against Andrew Tate**\
+`A police force in England said it would look again at 11-year-old allegations against the influencer. Mr. Tate was not charged in the case and denies any wrongdoing.`\
+https://nytimes.com/2026/03/27/world/europe/andrew-tate-assault-case-uk.html
+
 **Rubio Expected to Press Allies Over Strait of Hormuz at G7 Meeting**\
 `The meeting in France is slated to discuss efforts to stop the war in the Middle East, end Iran’s nuclear and ballistic missile development, and reopen maritime trade routes.`\
 https://nytimes.com/2026/03/27/world/middleeast/iran-rubio-g7-france.html
