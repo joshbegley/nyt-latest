@@ -1,3 +1,11 @@
+**A Rapper Who Won Over Gen Z Now Leads Nepal. Can He Bring Justice?**\
+`A leaked report on the deadly violence and mass arson that broke out last year has put the new leader under pressure to ensure accountability.`\
+https://nytimes.com/2026/03/27/world/asia/nepal-balendra-shah-rapper-prime-minister.html
+
+**Gyokeres's hat-trick for Sweden could also be well-timed for Arsenal's hunt for glory**\
+`Gyokeres hit a hat-trick for Sweden right before Arsenal play crucial games in their season`\
+https://nytimes.com/athletic/7140626/2026/03/27/viktor-gyokeres-sweden-arsenal-analysis/
+
 **Wales and a missed opportunity to play at a World Cup: 'My heart hurts'**\
 `Wales were knocked out of World Cup qualification after losing to Bosnia and Herzegovina on penalties`\
 https://nytimes.com/athletic/7151097/2026/03/27/wales-world-cup-bosnia-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7149005/2026/03/27/gavi-world-cup-spain-barcelona-i
 **Why Newcastle could stand to boast more about their loans department**\
 `Newcastle's Peter Ramage tells The Athletic why he believes his club have improved when it comes to managing loan spells for young talents`\
 https://nytimes.com/athletic/7146105/2026/03/27/newcastle-united-loans-cordero-transfers/
-
-**Adored at West Ham, ignored by country. Is Bowen overdue his England chance?**\
-`Despite West Ham’s struggles, Bowen ranks top for goals and assists by an English attacking player in the Premier League this season`\
-https://nytimes.com/athletic/7146356/2026/03/27/jarrod-bowen-west-ham-england-danny-dyer-thomas-tuchel/
-
-**The Opta-stat-packification of football: Why are the game's milestones getting weirder?**\
-`To paraphrase the anti-VAR mantra: data itself isn’t the problem, it’s often the people using it`\
-https://nytimes.com/athletic/7143152/2026/03/27/bad-weird-football-stats-opta/
 
