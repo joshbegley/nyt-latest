@@ -1,40 +1,40 @@
-**Quote of the Day: Bitten by a Tick, Then Severely Allergic to Meat**\
-`Quotation of the Day for Friday, May TK, 2026.`\
-https://nytimes.com/2026/03/26/pageoneplus/quote-of-the-day-bitten-by-a-tick-then-severely-allergic-to-meat.html
+**Connections: Sports Edition Coach: Hints and answers for March 27, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7151033/2026/03/27/connections-sports-edition-hints-answers-march-27-2026/
 
-**Wild earn gutsy, buzzer-beating win in Foligno brothers' first game together: Takeaways**\
-`Joel Eriksson Ek scored the game-winning goal with 4.4 seconds left to lift the Wild past the Panthers 3-2 on Thursday night.`\
-https://nytimes.com/athletic/7150929/2026/03/26/wild-panthers-win-foligno-brothers-takeaways/
+**In Sleepy Town on Strait of Hormuz, War Rages Just Over Horizon**\
+`For centuries, an Omani exclave has been defined by a peculiar duality: rugged isolation and proximity to one of the world’s most important trade routes.`\
+https://nytimes.com/2026/03/27/world/middleeast/khasab-oman-hormuz-strait.html
 
-**Stocks Sink and Oil Dips After Trump Delays Threat to Bomb Iran**\
-`President Trump said on Thursday he would delay an imminent deadline to begin attacking Iran’s power grid.`\
-https://nytimes.com/2026/03/26/business/gas-oil-gas-prices-iran.html
+**Why Are Theater Tickets So Much Cheaper in London Than New York?**\
+`For half the price of a great seat at a Broadway show, you can see “Paddington” in the West End (if you can find a ticket) and snack on a marmalade sandwich.`\
+https://nytimes.com/2026/03/27/theater/tickets-theater-broadway-west-end-london.html
 
-**Blackhawks' team of the future gets even closer with Sacha Boisvert's NHL debut**\
-`The Blackhawks played their youngest team yet in a 5-1 loss to the Flyers, with Boisvert playing nine minutes on the fourth line.`\
-https://nytimes.com/athletic/7150161/2026/03/26/blackhawks-sacha-boisvert-debut-vlasic-crevier-flyers/
+**The German Military Tightens Its Social Media Rules**\
+`Military members sharing clips on Instagram and TikTok have helped recruit badly needed new soldiers, but Bundeswehr officials said they are concerned about security.`\
+https://nytimes.com/2026/03/27/world/europe/german-military-social-media.html
 
-**Man posed as adult film star to scam NFL and NBA players, prosecutors say**\
-`Kwamaine Jerell Ford has been charged with targeting pro athletes in a phishing scam that turned into a fraud and sex trafficking scheme.`\
-https://nytimes.com/athletic/7150696/2026/03/26/nfl-nba-players-phishing-scheme-fraud-sex/
+**An Invisible Bottleneck: A Helium Shortage Threatens the Chip Industry**\
+`With a third of the global supply offline because of the war in Iran, gas companies are scrambling to assure critical A.I. chip makers there will be no disruptions.`\
+https://nytimes.com/2026/03/27/business/helium-chips-iran-war.html
 
-**Phillies' Alec Bohm sues parents, alleging financial mismanagement**\
-`The lawsuit, filed in Philadelphia County on Wednesday, alleges his parents misappropriated Bohm’s funds while managing LLCs on his behalf.`\
-https://nytimes.com/athletic/7150525/2026/03/26/alec-bohm-sues-parents-phillies/
+**Corrections: March 27, 2026**\
+`Corrections that appeared in print on Friday, March 27, 2026.`\
+https://nytimes.com/2026/03/27/pageoneplus/corrections-march-27-2026.html
 
-**Men’s March Madness takeaways: Purdue survives Texas; Iowa beats Nebraska**\
-`The Boilermakers and Hawkeyes advanced to the Elite Eight, with two other spots yet to be decided in Sweet 16 action Thursday night.`\
-https://nytimes.com/athletic/7147588/2026/03/26/march-madness-2026-mens-sweet-16-west-south-region/
+**A Groom’s Procession and a New Orleans Second Line**\
+`Carolyn Holtzman and Nikhil Jyothinagaram blended Hindu rituals with the city’s signature celebrations.`\
+https://nytimes.com/2026/03/27/style/carolyn-holtzman-nikhil-jyothinagaram-wedding.html
 
-**One game in, Padres' rotation questions loom over everything**\
-`The Padres' 8-2 loss to the Tigers on Opening Day underscored the vulnerability of their starting pitching.`\
-https://nytimes.com/athletic/7150757/2026/03/26/padres-rotation-questions-opening-day/
+**They Planned a Wedding in 90 Days**\
+`A boba shop meet-cute and the creation of a fashion business led Nica Yusay and Quang Che to the altar after nearly five years of engagement.`\
+https://nytimes.com/2026/03/27/style/nica-yusay-quang-che-wedding.html
 
-**After rough spring, Garrett Crochet happy to 'turn the page,' dazzles in season opener**\
-`"What was I thinking? It's probably unprintable," Crochet said, grinning after the Red Sox 3-0 victory over the Reds. "I just felt good."`\
-https://nytimes.com/athletic/7150707/2026/03/26/red-sox-win-reds-garrett-crochet-season-opener/
+**She Was Sure About the Man. Not So Much About the Dress.**\
+`Natasha Barrow went viral for having doubts about her wedding dress. By the time she and Perry Holen married, she was done with regrets.`\
+https://nytimes.com/2026/03/27/style/natasha-barrow-perry-holen-wedding.html
 
-**Blue Jackets can't convert chances in frustrating loss to Canadiens**\
-`Defenseman Damon Severson also left the game halfway through the third after a hard hit from Zack Bolduc.`\
-https://nytimes.com/athletic/7150767/2026/03/26/blue-jackets-severson-injury-marchment-dobes-canadiens/
+**Four Years After I Had Last Been Touched, I Wrote Myself Back to Life**\
+`He was 14 years younger and a skateboarder. Why not invite him in?`\
+https://nytimes.com/2026/03/27/style/modern-love-divorced-laid-off-and-trying-to-feel-alive.html
 
