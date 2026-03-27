@@ -1,3 +1,35 @@
+**Soaring Diesel Prices Set Off Transport Strike in Philippines**\
+`Transport workers in Manila walked off the job to protest the rising cost of fuel, as the war in the Middle East causes a national energy emergency.`\
+https://nytimes.com/2026/03/27/world/middleeast/manila-jeepney-drivers-strike-fuel.html
+
+**Man United transfers: Zirkzee, Rashford, and should the club target an experienced striker?**\
+`Ian Irving, Laurie Whitwell, Carl Anka and Andy Mitten debate if the club should look to sign more attacking players this summer`\
+https://nytimes.com/athletic/7148954/2026/03/27/manchester-united-transfers-rashford-zirkzee-hojlund/
+
+**Dodgers ride 'relentless' offense to Opening Day victory over Diamondbacks**\
+`The World Series champs picked right back up where they left off on the first night of their title defense.`\
+https://nytimes.com/athletic/7151069/2026/03/27/dodgers-opening-day-offense-lineup/
+
+**Criticized at Copa América, Atlanta's grass has gotten a World Cup glow-up**\
+`Two years ago, Atlanta learned its lesson. Now, the World Cup – and USMNT friendlies – host has a new and improved playing surface`\
+https://nytimes.com/athletic/7149908/2026/03/27/atlanta-grass-playing-surface-world-cup-copa-america/
+
+**The Athletic’s Friday football quiz question #99**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/7147012/2026/03/27/the-athletics-friday-football-quiz-question-99/
+
+**Lowetide: Oilers defenceman Ty Emberson taking a step forward this season**\
+`Emberson can compete without the puck and has learned how to survive in the NHL.`\
+https://nytimes.com/athletic/7148659/2026/03/27/edmonton-oilers-defenceman-ty-emberson-stats-2026/
+
+**Ukraine signed a defense cooperation agreement with Saudi Arabia, Zelensky says.**\
+`By Maria Varenikova`\
+https://nytimes.com/live/2026/03/27/world/iran-war-trump-oil-israel/ukraine-signed-a-defense-cooperation-agreement-with-saudi-arabia-zelensky-says
+
+**Trump Administration Live Updates: Senate Votes to Fund Most of D.H.S. in Bid to End Partial Shutdown**\
+``\
+https://nytimes.com/live/2026/03/27/us/trump-news
+
 **Savannah Guthrie Is Returning to ‘Today’**\
 `NBC said that she would return as an anchor of the show on April 6, a little more than two months after the disappearance of her mother.`\
 https://nytimes.com/2026/03/27/business/media/savannah-guthrie-today.html
@@ -5,36 +37,4 @@ https://nytimes.com/2026/03/27/business/media/savannah-guthrie-today.html
 **How to watch Notre Dame vs. Vanderbilt women's basketball: Sweet 16 Time, TV, streaming**\
 `Find out how to watch the Notre Dame Fighting Irish play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7151558/2026/03/27/notre-dame-vs-vanderbilt-stream-how-to-watch-march-27/
-
-**Humpback Whale Is Freed After Days Stranded Off German Beach**\
-`In an unexpected breakthrough, the 40-foot mammal swam to deeper water on Friday morning through a channel that rescuers had dug for it.`\
-https://nytimes.com/2026/03/27/world/europe/stranded-whale-germany-baltic-freed.html
-
-**Rams NFL Draft big board: 3 scenarios to consider at pick No. 13**\
-`Taking a look at a few different ways the Rams can approach their first-round selection in this year's draft. `\
-https://nytimes.com/athletic/7145553/2026/03/27/rams-big-board-2026-nfl-draft/
-
-**Nine Astros prospects to watch in a pivotal minor-league season**\
-`First-year Astros farm director Sam Niedorf provided insight on the players to keep an eye on as the minor-league season begins. `\
-https://nytimes.com/athletic/7149700/2026/03/27/astros-prospects-minor-league-season-2026/
-
-**‘The Headlines’ News Quiz: Mar. 27, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://nytimes.com/2026/03/27/podcasts/the-headlines/the-headlines-news-quiz-mar-27-2026.html
-
-**March Madness runs in the family: Mom's in Sweet 16. Daughter's in DII national championship**\
-`Minnesota coach Dawn Plitzuweit will be rooting for her daughter Lexi, and vice versa, as they play on different sides of the country. `\
-https://nytimes.com/athletic/7150591/2026/03/27/dawn-plitzuweit-daughter-minnesota-sweet-16/
-
-**Justin Crawford, Trea Turner give Phillies two of MLB's fastest players. The Plan? Unleash 'hell'**\
-`“These two guys are going to be on base at the same time,” Phillies hitting coach Kevin Long said, “and all hell is gonna break loose.”`\
-https://nytimes.com/athletic/7151399/2026/03/27/phillies-justin-crawford-trea-turner-speed-mlb/
-
-**With Cade Cunningham out, Pistons have been forced to expand offensive options**\
-`Injuries may end up being a blessing in disguise for Detroit, as players like Jalen Duren and Kevin Huerter thrive in bigger roles.`\
-https://nytimes.com/athletic/7151114/2026/03/27/pistons-cade-cunningham-jalen-duren-kevin-huerter/
-
-**Duke's Toby Fournier's dunks don't define her (pre)game. But they do make a statement**\
-`Fouriner, who faces LSU in the Sweet 16, said she wants to dunk in a college game like she did in high school.`\
-https://nytimes.com/athletic/7150867/2026/03/27/duke-toby-fournier-dunk-sweet-16/
 
