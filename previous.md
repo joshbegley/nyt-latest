@@ -1,3 +1,15 @@
+**One game in, Padres' rotation questions loom over everything**\
+`The Padres' 8-2 loss to the Tigers on Opening Day underscored the vulnerability of their starting pitching.`\
+https://nytimes.com/athletic/7150757/2026/03/26/padres-rotation-questions-opening-day/
+
+**After rough spring, Garrett Crochet happy to 'turn the page,' dazzles in season opener**\
+`"What was I thinking? It's probably unprintable," Crochet said, grinning after the Red Sox 3-0 victory over the Reds. "I just felt good."`\
+https://nytimes.com/athletic/7150707/2026/03/26/red-sox-win-reds-garrett-crochet-season-opener/
+
+**Blue Jackets can't convert chances in frustrating loss to Canadiens**\
+`Defenseman Damon Severson also left the game halfway through the third after a hard hit from Zack Bolduc.`\
+https://nytimes.com/athletic/7150767/2026/03/26/blue-jackets-severson-injury-marchment-dobes-canadiens/
+
 **Nebraska only puts 4 players on court in late blunder vs. Iowa: 'A miscommunication'**\
 `Down 3 points late, Nebraska committed a jaw-dropping blunder that cost the Huskers a chance to advance to the Elite Eight.`\
 https://nytimes.com/athletic/7150826/2026/03/26/nebraska-iowa-4-players-on-court-march-madness/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/26/crosswords/daily-puzzle-2026-03-27.html
 **Kevin McGonigle records 4 hits in MLB debut: 'It looked like that was his 700th game'**\
 `McGonigle was at the center of everything in the Tigers' 8-2 Opening Day win over the Padres.`\
 https://nytimes.com/athletic/7150616/2026/03/26/kevin-mcgonigle-tigers-mlb-debut-opening-day/
-
-**After winter of changes, Astros fall flat in 3-0 Opening Day loss**\
-`Angels starter José Soriano kept Houston's bats in check over six innings, leaving Carlos Correa to say afterward, “we swung too much.”`\
-https://nytimes.com/athletic/7150714/2026/03/26/astros-offense-angels-opening-day-loss/
-
-**Man Held in Hawaii for 2 Years Over Mistaken Identity Gets $975,000 Settlement**\
-`After spending over two years in a psychiatric hospital, Joshua Spriestersbach, 54, should no longer face the risk of being rearrested or jailed for the crimes of the person he was mistaken for.`\
-https://nytimes.com/2026/03/26/us/honolulu-man-mistaken-identity-settlement.html
-
-**Iowa rallies late to beat Nebraska, reach first Elite Eight since 1987**\
-`Iowa didn't lead for the first 37 minutes of the game, but came up with multiple clutch plays late.`\
-https://nytimes.com/athletic/7150698/2026/03/26/iowa-nebraska-march-madness-score-result-takeaways/
 
