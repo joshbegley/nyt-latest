@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By John Yoon`\
+https://nytimes.com/live/2026/03/27/world/iran-war-trump-oil-israel/heres-the-latest
+
+**Iran War Live Updates: Trump Claims Progress in Talks and Extends Strait of Hormuz Deadline**\
+`President Trump has threatened to attack Iran’s power plants unless it fully reopens the Strait of Hormuz, a vital oil route, by April 6. Israel on Friday launched more strikes on Iran.`\
+https://nytimes.com/live/2026/03/27/world/iran-war-trump-oil-israel
+
+**Trump’s Signature to Appear on Dollar Bills**\
+`President Trump’s signature will be added to U.S. paper currency later this year, the Treasury Department said on Thursday.`\
+https://nytimes.com/video/us/politics/100000010804920/trumps-signature-dollar-bill.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/03/27/crosswords/spelling-bee-forum.html
