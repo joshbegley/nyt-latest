@@ -1,3 +1,7 @@
+**Red Light: The NHL playoff races heat up. Plus: Another trophy for MacKinnon?**\
+`Another busy one with 13 games last night, so let’s get you up to date on what’s happening around the league.`\
+https://nytimes.com/athletic/7151786/2026/03/27/the-nhl-playoff-races-heat-up-plus-another-trophy-for-mackinnon/
+
 **Lions' Terrion Arnold's named in texts tied to robbery, kidnapping plot**\
 `Arnold has not been charged, and did not send or receive any of the text messages discovered by investigators.`\
 https://nytimes.com/athletic/7151185/2026/03/27/lions-terrion-arnold-texts/
