@@ -1,7 +1,3 @@
-**Weight of history easing off Italian shoulders as Tonali puts them one step from World Cup**\
-`Having missed out in 2018 and 2022, a play-off win over Northern Ireland leaves Italy just one game for reaching World Cup 2026`\
-https://nytimes.com/athletic/7150321/2026/03/27/italy-northern-ireland-world-cup-play-off-tonali/
-
 **Wales and a missed opportunity to play at a World Cup: 'My heart hurts'**\
 `Wales were knocked out of World Cup qualification after losing to Bosnia and Herzegovina on penalties`\
 https://nytimes.com/athletic/7151097/2026/03/27/wales-world-cup-bosnia-analysis/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/7146105/2026/03/27/newcastle-united-loans-cordero-t
 **Adored at West Ham, ignored by country. Is Bowen overdue his England chance?**\
 `Despite West Ham’s struggles, Bowen ranks top for goals and assists by an English attacking player in the Premier League this season`\
 https://nytimes.com/athletic/7146356/2026/03/27/jarrod-bowen-west-ham-england-danny-dyer-thomas-tuchel/
+
+**The Opta-stat-packification of football: Why are the game's milestones getting weirder?**\
+`To paraphrase the anti-VAR mantra: data itself isn’t the problem, it’s often the people using it`\
+https://nytimes.com/athletic/7143152/2026/03/27/bad-weird-football-stats-opta/
 

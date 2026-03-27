@@ -1,3 +1,7 @@
+**The Opta-stat-packification of football: Why are the game's milestones getting weirder?**\
+`To paraphrase the anti-VAR mantra: data itself isn’t the problem, it’s often the people using it`\
+https://nytimes.com/athletic/7143152/2026/03/27/bad-weird-football-stats-opta/
+
 **Weight of history easing off Italian shoulders as Tonali puts them one step from World Cup**\
 `Having missed out in 2018 and 2022, a play-off win over Northern Ireland leaves Italy just one game for reaching World Cup 2026`\
 https://nytimes.com/athletic/7150321/2026/03/27/italy-northern-ireland-world-cup-play-off-tonali/
