@@ -1,3 +1,7 @@
+**Senegal manager on AFCON dispute: 'Everybody knows we are champions of Africa'**\
+`Thiaw and Gueye issued impassioned defences of Senegal's achievements, reaffirming their status as African champions. `\
+https://nytimes.com/athletic/7152051/2026/03/27/afcon-senegal-morocco-pape-news-dispute/
+
 **Why the Ancient City of Arles Continues to Enchant**\
 `The Roman colony turned artists’ haven is rich with ruins and creative energy.`\
 https://nytimes.com/2026/03/27/t-magazine/arles-france-guide-restaurants-hotels.html

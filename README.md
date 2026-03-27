@@ -1,3 +1,7 @@
+**Trump on the Dollar: Dismay and Derision**\
+`Reaction to President Trump’s signature on the dollar. Also: Innocent lives lost in Iran; Democrats’ brand; young job seekers; subway announcements; calling all teenagers.`\
+https://nytimes.com/2026/03/27/opinion/trump-dollar.html
+
 **Senegal manager on AFCON dispute: 'Everybody knows we are champions of Africa'**\
 `Thiaw and Gueye issued impassioned defences of Senegal's achievements, reaffirming their status as African champions. `\
 https://nytimes.com/athletic/7152051/2026/03/27/afcon-senegal-morocco-pape-news-dispute/

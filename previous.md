@@ -1,3 +1,7 @@
+**Senegal manager on AFCON dispute: 'Everybody knows we are champions of Africa'**\
+`Thiaw and Gueye issued impassioned defences of Senegal's achievements, reaffirming their status as African champions. `\
+https://nytimes.com/athletic/7152051/2026/03/27/afcon-senegal-morocco-pape-news-dispute/
+
 **Why the Ancient City of Arles Continues to Enchant**\
 `The Roman colony turned artists’ haven is rich with ruins and creative energy.`\
 https://nytimes.com/2026/03/27/t-magazine/arles-france-guide-restaurants-hotels.html
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/2026/03/27/headway/camden-nj-murder-rate-gun-vio
 **N.T.S.B. Investigators Document Accident Scene at LaGuardia**\
 `N.T.S.B. investigators documented the aftermath of an accident at LaGuardia Airport on March 22 that left two people dead and dozens injured.`\
 https://nytimes.com/video/us/100000010805433/ntsb-investigators-laguardia-accident-scene.html
-
-**Japan and the U.S. Agree to Team Up on Seabed Mining**\
-`The arrangement could signal a fracture in the decades-long effort among nations to reach consensus on how to mine the ocean floor while protecting ecosystems.`\
-https://nytimes.com/2026/03/27/climate/japan-united-states-seabed-mining.html
 
