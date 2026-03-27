@@ -6,8 +6,8 @@ https://nytimes.com/athletic/7150509/2026/03/26/pittsburgh-pirates-paul-skenes-o
 `Bolivia move a step closer to a first World Cup since 1994, while Suriname's dream of a first World Cup, period, is over`\
 https://nytimes.com/athletic/7150545/2026/03/26/bolivia-suriname-fifa-world-cup-intercontinental-playoff/
 
-**Crosby leaves game with injury in first period vs. Senators**\
-`The Penguins captain headed directly to the locker room after a shift late in the first period.`\
+**Sidney Crosby leaves game with injury in first period vs. Senators**\
+`The Penguins captain headed directly to the dressing room after a shift late in the first period.`\
 https://nytimes.com/athletic/7150572/2026/03/26/sidney-crosby-injury-penguins-senators/
 
 **On Opening Day, Orioles unveil new stadium upgrades and the vibes to match**\

@@ -1,3 +1,15 @@
+**Kepner: The Pirates and Paul Skenes looked sharp off the field. On it? Not so much.**\
+`The NL Cy Young winner exited his first start of 2026 after giving up five runs in the first inning on 37 pitches.`\
+https://nytimes.com/athletic/7150509/2026/03/26/pittsburgh-pirates-paul-skenes-opening-day-mets/
+
+**Bolivia 2, Suriname 1: Second-half fightback keeps dreams of repeating 1994 alive**\
+`Bolivia move a step closer to a first World Cup since 1994, while Suriname's dream of a first World Cup, period, is over`\
+https://nytimes.com/athletic/7150545/2026/03/26/bolivia-suriname-fifa-world-cup-intercontinental-playoff/
+
+**Crosby leaves game with injury in first period vs. Senators**\
+`The Penguins captain headed directly to the locker room after a shift late in the first period.`\
+https://nytimes.com/athletic/7150572/2026/03/26/sidney-crosby-injury-penguins-senators/
+
 **On Opening Day, Orioles unveil new stadium upgrades and the vibes to match**\
 `Much of Opening Day in Baltimore is the same, it's tradition. But the rest had a new energy to it, from the new players to the new manager.`\
 https://nytimes.com/athletic/7150398/2026/03/26/baltimore-orioles-opening-day-stadium-vibes/
@@ -25,16 +37,4 @@ https://nytimes.com/video/technology/100000010801833/why-the-verdict-against-met
 **St. John’s is more proof Rick Pitino’s greatness survived his devastating loss to Duke**\
 `Pitino, a Hall of Fame motivator and strategist, carries a 12-1 career regional semifinal record into Friday night's Sweet 16 matchup.`\
 https://nytimes.com/athletic/7150323/2026/03/26/rick-pitino-st-johns-duke-march-madness-ncaa-tournament/
-
-**Judge Stays Pentagon’s Labeling of Anthropic as ‘Supply Chain Risk’**\
-`The decision is an early victory for the artificial intelligence company in a rancorous legal battle with the Department of Justice.`\
-https://nytimes.com/2026/03/26/technology/anthropic-pentagon-risk-injunction.html
-
-**Boston College names UConn's Luke Murray head men's basketball coach**\
-`Bill Murray's son has spent the last five seasons as an assistant coach on Dan Hurley's UConn staff.`\
-https://nytimes.com/athletic/7150375/2026/03/26/boston-college-luke-murray-mens-basketball-coach/
-
-**Ireland's Szmodics knocked unconscious in World Cup playoff**\
-`Ireland manager Heimir Hallgrimsson confirmed at full time Szmodics had regained consciousness.`\
-https://nytimes.com/athletic/7150417/2026/03/26/sammie-szmodics-ireland-injury-update/
 

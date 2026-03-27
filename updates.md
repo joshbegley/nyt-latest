@@ -1,3 +1,15 @@
+**Kepner: The Pirates and Paul Skenes looked sharp off the field. On it? Not so much.**\
+`The NL Cy Young winner exited his first start of 2026 after giving up five runs in the first inning on 37 pitches.`\
+https://nytimes.com/athletic/7150509/2026/03/26/pittsburgh-pirates-paul-skenes-opening-day-mets/
+
+**Bolivia 2, Suriname 1: Second-half fightback keeps dreams of repeating 1994 alive**\
+`Bolivia move a step closer to a first World Cup since 1994, while Suriname's dream of a first World Cup, period, is over`\
+https://nytimes.com/athletic/7150545/2026/03/26/bolivia-suriname-fifa-world-cup-intercontinental-playoff/
+
+**Crosby leaves game with injury in first period vs. Senators**\
+`The Penguins captain headed directly to the locker room after a shift late in the first period.`\
+https://nytimes.com/athletic/7150572/2026/03/26/sidney-crosby-injury-penguins-senators/
+
 **On Opening Day, Orioles unveil new stadium upgrades and the vibes to match**\
 `Much of Opening Day in Baltimore is the same, it's tradition. But the rest had a new energy to it, from the new players to the new manager.`\
 https://nytimes.com/athletic/7150398/2026/03/26/baltimore-orioles-opening-day-stadium-vibes/
