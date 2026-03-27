@@ -26,7 +26,7 @@ https://nytimes.com/column/just-desserts
 `How the Antwerp Six shaped the modern fashion world, and why everyone is still obsessed.`\
 https://nytimes.com/2026/03/27/style/antwerp-six-momu-belgium.html
 
-**Tiger Woods involved in rollover crash in Florida: Reports**\
+**Tiger Woods involved in rollover crash in Florida**\
 `Friday’s accident came three days after Woods, 50, made his return to competitive golf, participating in the TGL Finals.`\
 https://nytimes.com/athletic/7152418/2026/03/27/tiger-woods-car-crash-florida/
 
