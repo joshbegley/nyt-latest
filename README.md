@@ -35,6 +35,6 @@ https://nytimes.com/athletic/7149224/2026/03/27/nfl-2026-league-meeting-top-stor
 https://nytimes.com/issue/todaysinyt/2026/03/27/todays-new-york-times-international-edition
 
 **Senate Votes to Fund Most of D.H.S. in Bid to End Partial Shutdown**\
-`The bill excludes funding for federal immigration enforcement and deportation operations. The House could consider the package on Friday morning.`\
+`The bill excludes funding for ICE and the Border Patrol but restores it for federal airport security workers. The House could consider the package on Friday.`\
 https://nytimes.com/2026/03/27/us/politics/senate-dhs-ice-shutdown-funding.html
 
