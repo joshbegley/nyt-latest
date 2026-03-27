@@ -1,3 +1,11 @@
+**What to Know About Zillow’s Major New Listings Feature**\
+`The massive real estate marketplace just changed its tune around pre-market listings, shifting the landscape for brokers and buyers.`\
+https://nytimes.com/2026/03/27/realestate/zillow-preview-explainer-listings.html
+
+**Orioles nearing extension with Shane Baz, a key offseason acquisition: Source**\
+`Baz was one of the Orioles' marquee offseason acquisitions, coming to the team in a trade with the Rays.`\
+https://nytimes.com/athletic/7152527/2026/03/27/baltimore-orioles-shane-baz-extension/
+
 **Women's Sweet 16 takeaways: Hannah Hidalgo, Notre Dame upset Vanderbilt**\
 `The first four spots in the women's Elite Eight of the NCAA Tournament will be decided Friday in Fort Worth and Sacramento.`\
 https://nytimes.com/athletic/7152222/2026/03/27/womens-sweet-16-ncaa-tournament-takeaways/
