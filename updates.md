@@ -1,3 +1,7 @@
+**How to watch Duke vs. LSU women's basketball: Sweet 16 Time, TV, streaming**\
+`Find out how to watch the Duke Blue Devils play the LSU Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7152436/2026/03/27/duke-vs-lsu-stream-how-to-watch-march-27/
+
 **'No to De Zerbi': Spurs fan groups urge club to rethink over Italian's Mason Greenwood defence**\
 `Spurs are pursuing De Zerbi, who is out of work after leaving Marseille, as they consider alternatives to head coach Igor Tudor.`\
 https://nytimes.com/athletic/7152249/2026/03/27/tottenham-fans-roberto-de-zerbi-mason-greenwood-comments/
