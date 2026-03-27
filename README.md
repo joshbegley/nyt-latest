@@ -1,5 +1,9 @@
+**Investors Are Losing Patience With the War in Iran**\
+`The S&P 500 is on course for its fifth straight week of losses and its worst weekly losing streak in roughly 4 years`\
+https://nytimes.com/2026/03/27/business/iran-war-stock-market-investors.html
+
 **NFL teams could sell preseason game rights to streaming platforms: Source**\
-`The proposal is expected to be discussed at the league meetings in Arizona next week. `\
+`The proposal is expected to be discussed at the league meetings in Phoenix next week. `\
 https://nytimes.com/athletic/7151914/2026/03/27/nfl-preseason-rights-streaming-league-meetings/
 
 **BTS Fans Revisit Howard University History From 1896**\

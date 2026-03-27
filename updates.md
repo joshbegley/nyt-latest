@@ -1,3 +1,7 @@
+**NFL teams could sell preseason game rights to streaming platforms: Source**\
+`The proposal is expected to be discussed at the league meetings in Arizona next week. `\
+https://nytimes.com/athletic/7151914/2026/03/27/nfl-preseason-rights-streaming-league-meetings/
+
 **BTS Fans Revisit Howard University History From 1896**\
 `In promoting its new album, the K-pop superstars looked back to a late-19th-century moment featuring the unofficial anthem Arirang for inspiration.`\
 https://nytimes.com/2026/03/27/arts/music/bts-arirang-howard-university.html

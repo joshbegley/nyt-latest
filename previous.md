@@ -1,3 +1,7 @@
+**NFL teams could sell preseason game rights to streaming platforms: Source**\
+`The proposal is expected to be discussed at the league meetings in Arizona next week. `\
+https://nytimes.com/athletic/7151914/2026/03/27/nfl-preseason-rights-streaming-league-meetings/
+
 **BTS Fans Revisit Howard University History From 1896**\
 `In promoting its new album, the K-pop superstars looked back to a late-19th-century moment featuring the unofficial anthem Arirang for inspiration.`\
 https://nytimes.com/2026/03/27/arts/music/bts-arirang-howard-university.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7151972/2026/03/27/alabama-vs-michigan-stream-how-t
 **How to watch St. John's vs. Duke men's basketball: Sweet 16 Time, TV, streaming**\
 `Find out how to watch the St. John's Red Storm play the Duke Blue Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7151970/2026/03/27/st-john-s-vs-duke-stream-how-to-watch-march-27/
-
-**Versant Pursues a Deal for Vox Media’s Podcast Business**\
-`Versant, the parent company of CNBC and MS NOW, is looking to continue expanding its business beyond cable TV.`\
-https://nytimes.com/2026/03/27/business/media/versant-vox-medias-podcasts.html
 
