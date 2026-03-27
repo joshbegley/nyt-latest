@@ -1,3 +1,7 @@
+**What We Know About Pay for T.S.A. Workers**\
+`President Trump on Friday directed the Homeland Security Department to pay thousands of airport security officers.`\
+https://nytimes.com/live/2026/03/27/us/trump-news/tsa-pay
+
 **John Textor's Eagle Football placed into administration**\
 `Eagle Football's main creditor, investment firm Ares Capital Corporation, has put the group’s UK-based holding company into administration.`\
 https://nytimes.com/athletic/7152831/2026/03/27/john-textor-eagle-football-administration-crystal-palace/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/27/us/politics/hegseth-generals-promotion.html
 **For House Republicans, an Exodus Rivaled Only By Trump’s First Term**\
 `The number of Republicans departing the House this cycle is one of the highest since 1930.`\
 https://nytimes.com/interactive/2026/03/27/us/politics/house-republicans-departures-midterms-trump.html
-
-**England 1 Uruguay 1 - Tuchel experiments, untimely injuries and White's evening of extremes**\
-`The England manager gave fringe players a chance to impress at Wembley, but few took their opportunity to cement a place at the World Cup`\
-https://nytimes.com/athletic/7140960/2026/03/27/england-uruguay-tuchel-white-maguire-henderson/
 
