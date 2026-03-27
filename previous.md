@@ -1,3 +1,19 @@
+**'Leadership, calmness, composure': Why wouldn't United renew Maguire's contract?**\
+`The defender is back in the England squad after 18 months and performing well at club level - here's why United want to keep him at age 33`\
+https://nytimes.com/athletic/7148749/2026/03/27/manchester-united-harry-maguire-contract/
+
+**Will Barcelona midfielder Gavi make Spain's World Cup squad?**\
+`The 21-year-old Barcelona midfielder has only played once for the national side since injuring his ACL in November 2023`\
+https://nytimes.com/athletic/7149005/2026/03/27/gavi-world-cup-spain-barcelona-injury/
+
+**Why Newcastle could stand to boast more about their loans department**\
+`Newcastle's Peter Ramage tells The Athletic why he believes his club have improved when it comes to managing loan spells for young talents`\
+https://nytimes.com/athletic/7146105/2026/03/27/newcastle-united-loans-cordero-transfers/
+
+**Adored at West Ham, ignored by country. Is Bowen overdue his England chance?**\
+`Despite West Ham’s struggles, Bowen ranks top for goals and assists by an English attacking player in the Premier League this season`\
+https://nytimes.com/athletic/7146356/2026/03/27/jarrod-bowen-west-ham-england-danny-dyer-thomas-tuchel/
+
 **The Opta-stat-packification of football: Why are the game's milestones getting weirder?**\
 `To paraphrase the anti-VAR mantra: data itself isn’t the problem, it’s often the people using it`\
 https://nytimes.com/athletic/7143152/2026/03/27/bad-weird-football-stats-opta/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/27/world/europe/faroe-islands-election-greenland.htm
 **The Prospects: Divine Mukasa, Leicester City (on loan from Manchester City)**\
 `Our series looking at some of the brightest emerging talents at Premier League academies takes in a young loanee in the Championship`\
 https://nytimes.com/athletic/7143480/2026/03/27/divine-mukasa-manchester-leicester-city-prospects/
-
-**The New York Times in Print for Friday, March 27, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/03/27/todays-new-york-times
-
-**Iran Has a Chokehold on the World’s Oil. Here’s How to Break It.**\
-`Nations are looking for alternatives to the Strait of Hormuz.`\
-https://nytimes.com/2026/03/27/opinion/hormuz-strait-energy-iran-war.html
-
-**The War in Ukraine Transformed Conflict. Iran Is the Proof.**\
-`Open-ended military conflict in Europe could, at some point, intersect with open-ended military conflict in the Middle East.`\
-https://nytimes.com/2026/03/27/opinion/ukraine-iran-drones.html
-
-**NHL 2025-26 Stanley Cup playoff chances and projected standings**\
-`Welcome to our 2025-26 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
-https://nytimes.com/athletic/6694758/2026/03/27/nhl-2025-26-stanley-cup-playoff-chances-and-projected-standings/
 
