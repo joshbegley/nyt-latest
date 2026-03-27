@@ -1,3 +1,7 @@
+**Lions' Terrion Arnold's named in texts tied to robbery, kidnapping plot**\
+`Arnold has not been charged, and did not send or receive any of the text messages discovered by investigators.`\
+https://nytimes.com/athletic/7151185/2026/03/27/lions-terrion-arnold-texts/
+
 **Global Food Supply Faces a Dangerous Bottleneck as Iran War Persists**\
 `Fertilizer prices are climbing as a result of disruptions in the Middle East, putting global food supplies at risk.`\
 https://nytimes.com/2026/03/27/business/economy/fertilizer-food-supply-iran-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7151314/2026/03/27/macario-san-diego-wave-chelsea-t
 **The time has arrived for the USMNT to end its Euro curse at the World Cup**\
 `The USA has a dismal World Cup record against European opponents - and the chance to change it`\
 https://nytimes.com/athletic/7151109/2026/03/27/usmnt-world-cup-pochettino-european/
-
-**Did Scientists Just Detect an Exploding Black Hole?**\
-`An underwater observatory recently detected a startlingly energetic cosmic neutrino. One possible cause involves a phenomenon that so far exists only in theory.`\
-https://nytimes.com/2026/03/27/science/astrophysics-neutrinos-black-holes.html
 
