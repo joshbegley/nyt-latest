@@ -1,3 +1,7 @@
+**Robert Trivers, Eccentric Scientist Who Probed Human Nature, Dies at 83**\
+`A visionary evolutionary biologist, he drew comparisons to Charles Darwin with his theories on the genetic roots of seemingly detrimental behaviors like self-deception.`\
+https://nytimes.com/2026/03/27/science/robert-trivers-dead.html
+
 **CPAC Considers Vance, Rubio and Life After Trump**\
 `The president’s potential successors “are mortal men,” one attendee said.`\
 https://nytimes.com/2026/03/27/us/politics/cpac-trump-vance-rubio.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7152527/2026/03/27/baltimore-orioles-shane-baz-exte
 **Women's Sweet 16 takeaways: Hannah Hidalgo, Notre Dame upset Vanderbilt**\
 `The first four spots in the women's Elite Eight of the NCAA Tournament will be decided Friday in Fort Worth and Sacramento.`\
 https://nytimes.com/athletic/7152222/2026/03/27/womens-sweet-16-ncaa-tournament-takeaways/
-
-**Iran Moves to Assert Control Over Strait While Trading Strikes With Israel**\
-`Two ships turned back after being warned not to pass through the Strait of Hormuz on Friday. Iran said strikes in the country had hit a uranium processing plant and industrial sites.`\
-https://nytimes.com/2026/03/27/world/middleeast/iran-israel-us-rubio-war.html
 

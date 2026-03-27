@@ -1,3 +1,7 @@
+**Robert Trivers, Eccentric Scientist Who Probed Human Nature, Dies at 83**\
+`A visionary evolutionary biologist, he drew comparisons to Charles Darwin with his theories on the genetic roots of seemingly detrimental behaviors like self-deception.`\
+https://nytimes.com/2026/03/27/science/robert-trivers-dead.html
+
 **CPAC Considers Vance, Rubio and Life After Trump**\
 `The president’s potential successors “are mortal men,” one attendee said.`\
 https://nytimes.com/2026/03/27/us/politics/cpac-trump-vance-rubio.html

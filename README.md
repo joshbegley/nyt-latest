@@ -1,3 +1,11 @@
+**Fertitta family to purchase Connecticut Sun for $300 million, bring WNBA back to Houston: Sources**\
+`The Sun sold for $300 million and will relocate to Houston, bringing a WNBA team back to one of the league's original cities.`\
+https://nytimes.com/athletic/7152749/2026/03/27/rockets-owners-connecticut-sun-relocate-houston-comets/
+
+**Trump Offers More Aid to Farmers, a Key Support Bloc Hurt by Tariffs and War**\
+`The president announced new loan guarantees at a White House event that appeared intended to reassure a group that has found itself caught in the cross hairs of some of his major policies.`\
+https://nytimes.com/2026/03/27/us/politics/trump-farmers.html
+
 **Robert Trivers, Eccentric Scientist Who Probed Human Nature, Dies at 83**\
 `A visionary evolutionary biologist, he drew comparisons to Charles Darwin with his theories on the genetic roots of seemingly detrimental behaviors like self-deception.`\
 https://nytimes.com/2026/03/27/science/robert-trivers-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7152561/2026/03/27/ipswich-chairman-sorry-apology-n
 **What to Know About Zillow’s Major New Listings Feature**\
 `The massive real estate marketplace just changed its tune around pre-market listings, shifting the landscape for brokers and buyers.`\
 https://nytimes.com/2026/03/27/realestate/zillow-preview-explainer-listings.html
-
-**Orioles nearing extension with Shane Baz, a key offseason acquisition: Source**\
-`Baz was one of the Orioles' marquee offseason acquisitions, coming to the team in a trade with the Rays.`\
-https://nytimes.com/athletic/7152527/2026/03/27/baltimore-orioles-shane-baz-extension/
-
-**Women's Sweet 16 takeaways: Hannah Hidalgo, Notre Dame upset Vanderbilt**\
-`The first four spots in the women's Elite Eight of the NCAA Tournament will be decided Friday in Fort Worth and Sacramento.`\
-https://nytimes.com/athletic/7152222/2026/03/27/womens-sweet-16-ncaa-tournament-takeaways/
 
