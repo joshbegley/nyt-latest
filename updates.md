@@ -1,3 +1,15 @@
+**Man Accused of Killing College Student in Chicago to Remain in Jail**\
+`Jose Medina, who is accused of being in the country illegally, is charged with murder in the death of Sheridan Gorman, a freshman at Loyola University Chicago.`\
+https://nytimes.com/2026/03/27/us/loyola-shooting-suspect-chicago.html
+
+**How Long of a Wait at Security? For Many Passengers, It Was Anyone’s Guess.**\
+`As T.S.A. staff shortages continued on Friday, some airports saw interminably long wait times, while others barely had a wait at all, adding to travelers’ confusion.`\
+https://nytimes.com/2026/03/27/us/wait-times-airports-tsa-confusion.html
+
+**Florida AG calls NFL's Rooney Rule unlawful; league says it is 'consistent' with it**\
+`The Florida attorney general demanded that the NFL stop enforcing the Rooney Rule for its three Florida-based franchises.`\
+https://nytimes.com/athletic/7152645/2026/03/27/rooney-rule-florida-attorney-general/
+
 **What We Know About Pay for T.S.A. Workers**\
 `President Trump on Friday directed the Homeland Security Department to pay thousands of airport security officers.`\
 https://nytimes.com/live/2026/03/27/us/trump-news/tsa-pay
