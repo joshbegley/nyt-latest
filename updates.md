@@ -1,3 +1,15 @@
+**Trinidad Chambliss set to remain Ole Miss QB after NCAA petition denied**\
+`The ruling again clears the way for Chambliss to return to college football as one of the sport’s most exciting quarterbacks.`\
+https://nytimes.com/athletic/7152794/2026/03/27/trinidad-chambliss-ole-miss-ncaa-petition-denied/
+
+**Hegseth Criticized for Removing Four Officers From Promotion List**\
+`Bitter rifts have opened over the defense secretary’s campaign to reverse policies that he says are prejudiced against white officers.`\
+https://nytimes.com/2026/03/27/us/politics/hegseth-generals-promotion.html
+
+**England 1 Uruguay 1 - Tuchel experiments, untimely injuries and White's evening of extremes**\
+`The England manager gave fringe players a chance to impress at Wembley, but few took their opportunity to cement a place at the World Cup`\
+https://nytimes.com/athletic/7140960/2026/03/27/england-uruguay-tuchel-white-maguire-henderson/
+
 **For House Republicans, an Exodus Rivaled Only By Trump’s First Term**\
 `The number of Republicans departing the House this cycle is one of the highest since 1930.`\
 https://nytimes.com/interactive/2026/03/27/us/politics/house-republicans-departures-midterms-trump.html
