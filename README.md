@@ -1,3 +1,11 @@
+**Man Held in Hawaii for 2 Years Over Mistaken Identity Gets $975,000 Settlement**\
+`After spending over two years in a psychiatric hospital, Joshua Spriestersbach, 54, should no longer face the risk of being rearrested or jailed for the crimes of the person he was mistaken for.`\
+https://nytimes.com/2026/03/26/us/honolulu-man-mistaken-identity-settlement.html
+
+**Iowa rallies late to beat Nebraska, reach first Elite Eight since 1987**\
+`Iowa didn't lead for the first 37 minutes of the game, but came up with multiple clutch plays late.`\
+https://nytimes.com/athletic/7150698/2026/03/26/iowa-nebraska-march-madness-score-result-takeaways/
+
 **Referees missed 6 calls at end of critical Rockets-Timberwolves game**\
 `The game, which ended in a 110-108 Timberwolves victory after a 13-point overtime comeback, featured several controversial decisions.`\
 https://nytimes.com/athletic/7150568/2026/03/26/rockets-timberwolves-nba-referee-missed-calls-scott-foster/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7150361/2026/03/26/maxx-crosby-raiders-gm-john-spyt
 **Kepner: The Pirates and Paul Skenes looked sharp off the field. On it? Not so much**\
 `The NL Cy Young winner exited his first start of 2026 after giving up five runs in the first inning on 37 pitches.`\
 https://nytimes.com/athletic/7150509/2026/03/26/pittsburgh-pirates-paul-skenes-opening-day-mets/
-
-**Bolivia 2, Suriname 1: Second-half fightback keeps dreams of repeating 1994 alive**\
-`Bolivia move a step closer to a first World Cup since 1994, while Suriname's dream of a first World Cup, period, is over`\
-https://nytimes.com/athletic/7150545/2026/03/26/bolivia-suriname-fifa-world-cup-intercontinental-playoff/
-
-**Sidney Crosby leaves game with injury in first period vs. Senators**\
-`The Penguins captain headed directly to the dressing room after a shift late in the first period.`\
-https://nytimes.com/athletic/7150572/2026/03/26/sidney-crosby-injury-penguins-senators/
 
