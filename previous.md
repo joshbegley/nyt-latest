@@ -1,3 +1,7 @@
+**Tiger Woods involved in rollover crash in Florida: Reports**\
+`Woods, 50, was also involved in a car crash in 2021.`\
+https://nytimes.com/athletic/7152418/2026/03/27/tiger-woods-car-crash-florida/
+
 **The entrepreneur looking to attract NWSL to Arizona with a 25,000-seat stadium**\
 `NWSL commissioner Jessica Berman said the league would likely announce its 18th team this year.`\
 https://nytimes.com/athletic/7150132/2026/03/27/nwsl-arizona-expansion-interest/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/27/learning/lesson-plans/ask-a-journalist-creating-a
 **How to watch Tigers vs. Padres: Time, TV, streaming for March 27**\
 `Find out how to watch the Detroit Tigers play the San Diego Padres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7152400/2026/03/27/tigers-vs-padres-stream-how-to-watch-march-27/
-
-**Hacked Files of F.B.I. Director Kash Patel Circulate Online**\
-`What appeared to be personal emails from before Mr. Patel’s time as director were posted on a website that identified itself as Iranian but seemed to be hosted in Russia.`\
-https://nytimes.com/2026/03/27/us/fbi-director-kash-patel-hacked-email-iran.html
 

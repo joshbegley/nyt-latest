@@ -1,3 +1,7 @@
+**Tiger Woods involved in rollover crash in Florida: Reports**\
+`Woods, 50, was also involved in a car crash in 2021.`\
+https://nytimes.com/athletic/7152418/2026/03/27/tiger-woods-car-crash-florida/
+
 **The entrepreneur looking to attract NWSL to Arizona with a 25,000-seat stadium**\
 `NWSL commissioner Jessica Berman said the league would likely announce its 18th team this year.`\
 https://nytimes.com/athletic/7150132/2026/03/27/nwsl-arizona-expansion-interest/
