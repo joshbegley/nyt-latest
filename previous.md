@@ -1,3 +1,15 @@
+**Will Iran Break Trumpism?**\
+`The right-wing thinker Christopher Caldwell believes the Iran war is the end of Trumpism. Is he right? What was Trumpism in the first place?`\
+https://nytimes.com/2026/03/27/opinion/ezra-klein-podcast-christopher-caldwell.html
+
+**4 Ways to Flourish (in Good Times and Bad)**\
+`Our ability to thrive comes not from life’s wins and losses, but from how we navigate them.`\
+https://nytimes.com/2026/03/27/well/flourish-stress-anxiety.html
+
+**The New York Times News Quiz, March 27, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2026/03/27/briefing/news-quiz-iran-tsa-bts-trump.html
+
 **Republicans Know This War Is Going Badly**\
 `Never before has America arrived at the threshold of a quagmire so quickly.`\
 https://nytimes.com/2026/03/27/opinion/republicans-iran-war.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/27/world/europe/europe-trump-sentiment.html
 **Where Might the Iran War Hit Your Wallet? Start With Raspberries.**\
 `It takes a lot of fuel to produce this delicate fruit, which can be a sensitive barometer as oil costs rise.`\
 https://nytimes.com/2026/03/27/dining/raspberry-prices.html
-
-**9 Fateful Seconds at LaGuardia Airport**\
-`After a fatal collision between an Air Canada jet and a fire truck on a runway, attention has focused on why the truck didn’t heed frantic calls to stop.`\
-https://nytimes.com/2026/03/27/nyregion/laguardia-crash-air-canada-truck.html
-
-**Resurgent Inflation Tests Faith in Fed’s Willingness to Tame It**\
-`The war in the Middle East risks worsening an inflation problem that the Federal Reserve has struggled for years to subdue.`\
-https://nytimes.com/2026/03/27/business/inflation-federal-reserve-iran-war.html
-
-**Will Iran Break Trumpism?**\
-`The right-wing thinker Christopher Caldwell believes the Iran war is the end of Trumpism. Is he right? What was Trumpism in the first place?`\
-https://nytimes.com/video/opinion/100000010799680/will-iran-break-trumpism.html
 
