@@ -1,3 +1,7 @@
+**Man posed as adult film star to scam NFL and NBA players, prosecutors say**\
+`Kwamaine Jerell Ford has been charged with targeting pro athletes in a phishing scam that turned into a fraud and sex trafficking scheme.`\
+https://nytimes.com/athletic/7150696/2026/03/26/nfl-nba-players-phishing-scheme-fraud-sex/
+
 **Phillies' Alec Bohm sues parents, alleging financial mismanagement**\
 `The lawsuit, filed in Philadelphia County on Wednesday, alleges his parents misappropriated Bohm’s funds while managing LLCs on his behalf.`\
 https://nytimes.com/athletic/7150525/2026/03/26/alec-bohm-sues-parents-phillies/

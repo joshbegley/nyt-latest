@@ -1,3 +1,7 @@
+**Man posed as adult film star to scam NFL and NBA players, prosecutors say**\
+`Kwamaine Jerell Ford has been charged with targeting pro athletes in a phishing scam that turned into a fraud and sex trafficking scheme.`\
+https://nytimes.com/athletic/7150696/2026/03/26/nfl-nba-players-phishing-scheme-fraud-sex/
+
 **Phillies' Alec Bohm sues parents, alleging financial mismanagement**\
 `The lawsuit, filed in Philadelphia County on Wednesday, alleges his parents misappropriated Bohm’s funds while managing LLCs on his behalf.`\
 https://nytimes.com/athletic/7150525/2026/03/26/alec-bohm-sues-parents-phillies/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7150744/2026/03/26/purdue-texas-march-madness-2026-
 **Inside a mostly pleasant Phillies Opening Day of firsts and familiarity**\
 `It was eight perfect innings, then a hairy ninth, giving everyone something to complain about — making it a perfect Philly opener.`\
 https://nytimes.com/athletic/7150685/2026/03/26/phillies-opening-day-schwarber-crawford-sanchez/
-
-**‘The Pitt’ Season 2, Episode 12 Recap: Breaking Points**\
-`The stalwarts of the Pitt seem to be cracking under the stress of an especially difficult day — in a workplace defined by difficult days.`\
-https://nytimes.com/2026/03/26/arts/television/the-pitt-recap-season-2-episode-12.html
 
