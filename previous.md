@@ -1,3 +1,11 @@
+**Overreactions from the Reds' Opening Day loss from ABS to the bullpen**\
+`In the end, we all know that every game isn't going to be like this. But just for one day, let's overreact after the Opening Day loss.`\
+https://nytimes.com/athletic/7150653/2026/03/26/cincinnati-reds-opening-day-2026-overreactions/
+
+**House Ethics Panel Holds Rare Public Hearing on Democrat’s Conduct**\
+`Representative Sheila Cherfilus-McCormick of Florida is charged with stealing $5 million in FEMA money for her campaign.`\
+https://nytimes.com/2026/03/26/us/politics/house-ethics-public-hearing-democrat-conduct.html
+
 **General McChrystal on the Myths Misleading Trump in Iran**\
 `The president may have been seduced by the idea of an easy victory, warns the Iraq and Afghanistan war commander on “The Opinions.”`\
 https://nytimes.com/video/opinion/100000010801995/general-mcchrystal-on-the-myths-misleading-trump-in-iran.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7150572/2026/03/26/sidney-crosby-injury-penguins-se
 **On Opening Day, Orioles unveil new stadium upgrades and the vibes to match**\
 `Much of Opening Day in Baltimore is the same, it's tradition. But the rest had a new energy to it, from the new players to the new manager.`\
 https://nytimes.com/athletic/7150398/2026/03/26/baltimore-orioles-opening-day-stadium-vibes/
-
-**Cubs' ugly loss to start the season shouldn't dim optimism**\
-`The Cubs fell to the Nationals on Opening Day, but there are plenty of reasons to remain hopeful about the season.`\
-https://nytimes.com/athletic/7150340/2026/03/26/cubs-opening-day-loss-optimism/
-
-**Italy Says It Has Recovered $23 Million Stolen From First ‘Bond Girl’**\
-`The Swiss actress Ursula Andress, whose breakthrough came in “Dr. No” in 1962, accused a former wealth manager of embezzlement. He died in an apparent suicide last year.`\
-https://nytimes.com/2026/03/26/world/europe/ursula-andress-bond-stolen-assets-italy.html
 

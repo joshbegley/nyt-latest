@@ -1,3 +1,11 @@
+**Overreactions from the Reds' Opening Day loss from ABS to the bullpen**\
+`In the end, we all know that every game isn't going to be like this. But just for one day, let's overreact after the Opening Day loss.`\
+https://nytimes.com/athletic/7150653/2026/03/26/cincinnati-reds-opening-day-2026-overreactions/
+
+**House Ethics Panel Holds Rare Public Hearing on Democrat’s Conduct**\
+`Representative Sheila Cherfilus-McCormick of Florida is charged with stealing $5 million in FEMA money for her campaign.`\
+https://nytimes.com/2026/03/26/us/politics/house-ethics-public-hearing-democrat-conduct.html
+
 **General McChrystal on the Myths Misleading Trump in Iran**\
 `The president may have been seduced by the idea of an easy victory, warns the Iraq and Afghanistan war commander on “The Opinions.”`\
 https://nytimes.com/video/opinion/100000010801995/general-mcchrystal-on-the-myths-misleading-trump-in-iran.html
