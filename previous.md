@@ -1,3 +1,15 @@
+**How ‘Love Story’ Gave Viewers a ’90s History Lesson**\
+`The FX show, which dramatizes the relationship between John F. Kennedy Jr. and Carolyn Bessette, has inspired a legion of younger viewers to dig into the couple’s past and 1990s New York City.`\
+https://nytimes.com/2026/03/27/arts/television/love-story-jfk-bessette-90s-nyc.html
+
+**Our new Nationals writer answers your questions during an Opening Day victory**\
+`CJ Abrams jogged out of the box and Joey Wiemer ran into an out. How does rookie manager Blake Butera hold them accountable?`\
+https://nytimes.com/athletic/7151769/2026/03/27/washington-nationals-opening-day-discussion/
+
+**NHL Power Rankings: Finding a focus for every team as the playoffs approach**\
+`There's a lot to worry about over the season’s final 10 games. Here’s one thing each team will have to focus on in the last few weeks.`\
+https://nytimes.com/athletic/7151645/2026/03/27/nhl-power-rankings-playoffs-focus/
+
 **Spiking Diesel Prices Mean Everything Will Get More Expensive**\
 `Diesel has climbed faster than gasoline this month, directly hitting businesses, from brewers to trucking companies. Those higher costs are likely to make their way into consumer prices.`\
 https://nytimes.com/2026/03/27/business/diesel-prices-inflation-consumer-prices.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7151689/2026/03/27/the-bounce-does-victor-wembanyam
 **The Windup: Remarkable debuts across Opening Day**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/7149150/2026/03/27/opening-day-paul-skenes-the-windup/
-
-**Ben Duckett intent on retaining England Test place and prioritises Notts over IPL**\
-`The England batter has withdrawn from a lucrative contract with the IPL's Delhi Capitals and will instead play in the County Championship`\
-https://nytimes.com/athletic/7151650/2026/03/27/ben-duckett-england-ipl-notts-delhi/
-
-**How to watch North Carolina vs. UConn women's basketball: Sweet 16 Time, TV, streaming**\
-`Find out how to watch the North Carolina Tar Heels play the UConn Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7151705/2026/03/27/north-carolina-vs-uconn-stream-how-to-watch-march-27/
-
-**Elite Eight upset odds for Iowa Hawkeyes**\
-`Iowa continues its Cinderella run in the Elite Eight. What are the chances they keep slaying?`\
-https://nytimes.com/athletic/7151649/2026/03/27/march-madness-upset-odds-iowa-bracket-breakers/
 

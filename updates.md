@@ -1,3 +1,15 @@
+**How ‘Love Story’ Gave Viewers a ’90s History Lesson**\
+`The FX show, which dramatizes the relationship between John F. Kennedy Jr. and Carolyn Bessette, has inspired a legion of younger viewers to dig into the couple’s past and 1990s New York City.`\
+https://nytimes.com/2026/03/27/arts/television/love-story-jfk-bessette-90s-nyc.html
+
+**Our new Nationals writer answers your questions during an Opening Day victory**\
+`CJ Abrams jogged out of the box and Joey Wiemer ran into an out. How does rookie manager Blake Butera hold them accountable?`\
+https://nytimes.com/athletic/7151769/2026/03/27/washington-nationals-opening-day-discussion/
+
+**NHL Power Rankings: Finding a focus for every team as the playoffs approach**\
+`There's a lot to worry about over the season’s final 10 games. Here’s one thing each team will have to focus on in the last few weeks.`\
+https://nytimes.com/athletic/7151645/2026/03/27/nhl-power-rankings-playoffs-focus/
+
 **Spiking Diesel Prices Mean Everything Will Get More Expensive**\
 `Diesel has climbed faster than gasoline this month, directly hitting businesses, from brewers to trucking companies. Those higher costs are likely to make their way into consumer prices.`\
 https://nytimes.com/2026/03/27/business/diesel-prices-inflation-consumer-prices.html
