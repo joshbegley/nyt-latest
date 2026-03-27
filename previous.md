@@ -1,3 +1,7 @@
+**Yankees make franchise history by securing back-to-back shutouts to start season**\
+`With their 3-0 win over the Giants on Friday afternoon, the Yankees opened the season with back-to-back shutouts for the first time.`\
+https://nytimes.com/athletic/7152913/2026/03/27/yankees-pitchers-shutouts-start-season-franchise-history/
+
 **Arrest Made in ‘Lovers Lane Murders,’ a 1990 Cold Case in Houston**\
 `The authorities charged a Lincoln, Neb., man with capital murder in the brutal killings of a young couple whose bodies were found in a wooded area.`\
 https://nytimes.com/2026/03/27/us/lovers-lane-murder-houston-texas-arrest.html
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/7152831/2026/03/27/john-textor-eagle-football-admin
 `The company, which Letitia James found was operating illegally in the state, also was fined $875,000 as part of a settlement.`\
 https://nytimes.com/2026/03/27/nyregion/prison-medical-care-new-york.html
 
-**Map: 4.2-Magnitude Earthquake Shakes Southern California**\
+**Map: 4.1-Magnitude Earthquake Shakes Southern California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2026/03/27/us/southern-california-quake-tracker.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7152645/2026/03/27/rooney-rule-florida-attorney-gen
 **Arrest Warrant for Former Kentucky Governor Canceled by Appeals Court**\
 `The court decided the warrant was invalid, because it came after the former governor, Matt Bevin, had filed to disqualify a judge from his child-support case, accusing her of bias.`\
 https://nytimes.com/2026/03/27/us/arrest-warrant-kentucky-governor-matt-bevin.html
-
-**Strikes on Iranian Industry Expand Blows to Civilian Economy**\
-`After Israel said it would intensify attacks on Iran’s industrial infrastructure, major steel plants and other vital plants were struck.`\
-https://nytimes.com/2026/03/27/world/middleeast/iran-strikes-infrastructure-industry.html
 

@@ -1,3 +1,11 @@
+**Yankees make franchise history by securing back-to-back shutouts to start season**\
+`With their 3-0 win over the Giants on Friday afternoon, the Yankees opened the season with back-to-back shutouts for the first time.`\
+https://nytimes.com/athletic/7152913/2026/03/27/yankees-pitchers-shutouts-start-season-franchise-history/
+
+**Map: 4.1-Magnitude Earthquake Shakes Southern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/03/27/us/southern-california-quake-tracker.html
+
 **Arrest Made in ‘Lovers Lane Murders,’ a 1990 Cold Case in Houston**\
 `The authorities charged a Lincoln, Neb., man with capital murder in the brutal killings of a young couple whose bodies were found in a wooded area.`\
 https://nytimes.com/2026/03/27/us/lovers-lane-murder-houston-texas-arrest.html
