@@ -1,3 +1,7 @@
+**General McChrystal on the Myths Misleading Trump in Iran**\
+`The president may have been seduced by the idea of an easy victory, warns the Iraq and Afghanistan war commander on “The Opinions.”`\
+https://nytimes.com/video/opinion/100000010801995/general-mcchrystal-on-the-myths-misleading-trump-in-iran.html
+
 **Joe Gibbs Racing alleges Gabehart, Spire conspired to steal proprietary data**\
 `A temporary restraining order was extended 14 days, allowing Gabehart to work with Spire Motorsports as JGR's lawsuit continues.`\
 https://nytimes.com/athletic/7150560/2026/03/26/joe-gibbs-racing-chris-gabehart-spire-motorsports-lawsuit-update/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/7150486/2026/03/26/twins-joe-ryan-orioles-opening-d
 `Spytek expressed optimism about his team's offseason. "We're all really excited about where we're at right now after the past month."`\
 https://nytimes.com/athletic/7150361/2026/03/26/maxx-crosby-raiders-gm-john-spytek/
 
-**Kepner: The Pirates and Paul Skenes looked sharp off the field. On it? Not so much.**\
+**Kepner: The Pirates and Paul Skenes looked sharp off the field. On it? Not so much**\
 `The NL Cy Young winner exited his first start of 2026 after giving up five runs in the first inning on 37 pitches.`\
 https://nytimes.com/athletic/7150509/2026/03/26/pittsburgh-pirates-paul-skenes-opening-day-mets/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7150340/2026/03/26/cubs-opening-day-loss-optimism/
 **Italy Says It Has Recovered $23 Million Stolen From First ‘Bond Girl’**\
 `The Swiss actress Ursula Andress, whose breakthrough came in “Dr. No” in 1962, accused a former wealth manager of embezzlement. He died in an apparent suicide last year.`\
 https://nytimes.com/2026/03/26/world/europe/ursula-andress-bond-stolen-assets-italy.html
-
-**Han Kang Among National Book Critics Circle Award Winners**\
-`This year’s winners include the latest novel by the South Korean Nobel laureate in literature and a memoir by one of India’s best known novelists.`\
-https://nytimes.com/2026/03/26/books/national-book-critics-circle-awards.html
 

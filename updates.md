@@ -1,3 +1,11 @@
+**Joe Gibbs Racing alleges Gabehart, Spire conspired to steal proprietary data**\
+`A temporary restraining order was extended 14 days, allowing Gabehart to work with Spire Motorsports as JGR's lawsuit continues.`\
+https://nytimes.com/athletic/7150560/2026/03/26/joe-gibbs-racing-chris-gabehart-spire-motorsports-lawsuit-update/
+
+**Joe Ryan's sharp outing might signal start of the end of his Twins tenure**\
+`Ryan struck out seven and limited the Orioles to three runners in 5 1/3 scoreless innings, but the Twins lost 2-1.`\
+https://nytimes.com/athletic/7150486/2026/03/26/twins-joe-ryan-orioles-opening-day/
+
 **Raiders GM John Spytek on Maxx Crosby: 'We welcome him like he never left'**\
 `Spytek expressed optimism about his team's offseason. "We're all really excited about where we're at right now after the past month."`\
 https://nytimes.com/athletic/7150361/2026/03/26/maxx-crosby-raiders-gm-john-spytek/
