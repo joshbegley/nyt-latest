@@ -1,3 +1,11 @@
+**Han Kang Among National Book Critics Circle Award Winners**\
+`This year’s winners include the latest novel by the South Korean Nobel laureate in literature and a memoir by one of India’s best known novelists.`\
+https://nytimes.com/2026/03/26/books/national-book-critics-circle-awards.html
+
+**The Mets' lineup is almost entirely different than last year's. Is it better?**\
+`Scouts are divided over whether the Mets offense will be more potent this season, but the bats sure looked good on Opening Day. `\
+https://nytimes.com/athletic/7150379/2026/03/26/mets-lineup-scouting-opening-day/
+
 **Why the Verdict Against Meta and YouTube Could Change Social Media**\
 `In a landmark case, a jury found Meta and YouTube guilty of creating products that were addictive. Ryan Mac explains the outcome and what it could mean for tech companies going forward.`\
 https://nytimes.com/video/technology/100000010801833/why-the-verdict-against-meta-and-youtube-could-change-social-media.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/26/us/politics/kennedy-vaccines-trump.html
 **Cubs reach six-year extension agreement with Nico Hoerner: Source**\
 `The Cubs will continue to have one of baseball’s best infields anchored by Hoerner, who is a two-time Gold Glove winner. `\
 https://nytimes.com/athletic/7150381/2026/03/26/chicago-cubs-nico-hoerner-extension-source/
-
-**Here’s What Happened in the War in the Middle East on Thursday**\
-`For a second time, President Trump extended the deadline for Iran to fully reopen the Strait of Hormuz.`\
-https://nytimes.com/2026/03/26/world/middleeast/war-iran-us-israel-recap.html
-
-**Luis Robert and new-look Mets provide strong Opening Day impression**\
-`Carson Benge's homer and the lineup's patient approach against Paul Skenes made for an ideal tone-setter: "It gives you a lot of optimism."`\
-https://nytimes.com/athletic/7150329/2026/03/26/luis-robert-carson-benge-mets-opening-day/
 
