@@ -1,3 +1,15 @@
+**Jason Heyward retires from MLB after 16 seasons**\
+`"I look forward to being a fan and seeing what other ways I can give back," Heyward said when announcing his retirement on MLB Network.`\
+https://nytimes.com/athletic/7152002/2026/03/27/jason-heyward-retires-braves-cubs/
+
+**Actress Says She’s Found Her Secret Online Abuser: Her Husband**\
+`Collien Fernandes said her spouse had posted deepfakes of her. The account, disputed by her husband, spurred outrage, protests and parliamentary debates in Germany.`\
+https://nytimes.com/2026/03/27/world/europe/collien-fernandes-deepfake-online-abuse.html
+
+**Antonee Robinson 'past that point' after thoughts his 2026 World Cup dream was over**\
+`Injuries have kept the Fulham left back from featuring for the U.S. for 16 months, but his return is imminent and comes at the perfect time`\
+https://nytimes.com/athletic/7152022/2026/03/27/antonee-robinson-usmnt-injuries-world-cup-belgium-portugal/
+
 **How to watch Royals vs. Braves: Time, TV, streaming for March 27**\
 `Find out how to watch the Kansas City Royals play the Atlanta Braves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7152181/2026/03/27/royals-vs-braves-stream-how-to-watch-march-27/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7152156/2026/03/27/bulls-vs-thunder-stream-how-to-w
 **How to watch Jazz vs. Nuggets: Time, TV, streaming**\
 `Find out how to watch the Utah Jazz play the Denver Nuggets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7152154/2026/03/27/jazz-vs-nuggets-stream-how-to-watch-march-27/
-
-**E3 Saxo Classic: Van der Poel digs deep to record dramatic win as Vingegaard dominates in Catalunya**\
-`Jacob Whitehead analyses a frenetic day of WorldTour action in western Belgium and northern Spain`\
-https://nytimes.com/athletic/7151978/2026/03/27/e3-saxo-classic-van-der-poel-vingegaard-catalunya/
-
-**How to watch Pelicans vs. Raptors: Time, TV, streaming**\
-`Find out how to watch the New Orleans Pelicans play the Toronto Raptors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7152146/2026/03/27/pelicans-vs-raptors-stream-how-to-watch-march-27/
-
-**How to watch Rockets vs. Grizzlies: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the Memphis Grizzlies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7152141/2026/03/27/rockets-vs-grizzlies-stream-how-to-watch-march-27/
 
