@@ -1,3 +1,7 @@
+**5 Takeaways From ‘BTS: The Return’**\
+`Netflix’s documentary about the superstar K-pop group’s comeback after a four-year hiatus showcases its creative process, brotherhood and anxieties about fame.`\
+https://nytimes.com/2026/03/27/arts/music/bts-the-return-documentary.html
+
 **How ‘Love Story’ Gave Viewers a ’90s History Lesson**\
 `The FX show, which dramatizes the relationship between John F. Kennedy Jr. and Carolyn Bessette, has inspired a legion of younger viewers to dig into the couple’s past and 1990s New York City.`\
 https://nytimes.com/2026/03/27/arts/television/love-story-jfk-bessette-90s-nyc.html
