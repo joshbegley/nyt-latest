@@ -1,3 +1,7 @@
+**Silvestri leaves hospital after six days following Milan-Sanremo crash**\
+`The 27-year-old sustained several broken ribs, a fractured collar-bone, and a bruised left lung after what she said was a "shocking fall".`\
+https://nytimes.com/athletic/7151599/2026/03/27/debora-silvestri-milan-sanremo-cycling-crash-hospital/
+
 **Soaring Diesel Prices Set Off Transport Strike in Philippines**\
 `Transport workers in Manila walked off the job to protest the rising cost of fuel, as the war in the Middle East causes a national energy emergency.`\
 https://nytimes.com/2026/03/27/world/middleeast/manila-jeepney-drivers-strike-fuel.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/27/us/trump-news
 **Savannah Guthrie Is Returning to ‘Today’**\
 `NBC said that she would return as an anchor of the show on April 6, a little more than two months after the disappearance of her mother.`\
 https://nytimes.com/2026/03/27/business/media/savannah-guthrie-today.html
-
-**How to watch Notre Dame vs. Vanderbilt women's basketball: Sweet 16 Time, TV, streaming**\
-`Find out how to watch the Notre Dame Fighting Irish play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7151558/2026/03/27/notre-dame-vs-vanderbilt-stream-how-to-watch-march-27/
 

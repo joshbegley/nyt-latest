@@ -1,3 +1,7 @@
+**Silvestri leaves hospital after six days following Milan-Sanremo crash**\
+`The 27-year-old sustained several broken ribs, a fractured collar-bone, and a bruised left lung after what she said was a "shocking fall".`\
+https://nytimes.com/athletic/7151599/2026/03/27/debora-silvestri-milan-sanremo-cycling-crash-hospital/
+
 **Trump Administration Live Updates: Senate Votes to Fund Most of D.H.S. in Bid to End Airport Crisis**\
 ``\
 https://nytimes.com/live/2026/03/27/us/trump-news
