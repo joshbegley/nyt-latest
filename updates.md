@@ -1,3 +1,7 @@
+**Overlooked No More: Gertrude Chandler Warner, Author of ‘The Boxcar Children’**\
+`Her best-selling series, about four children who live in a train car and solve mysteries, inspired sequels, spinoffs and animated films.`\
+https://nytimes.com/2026/03/27/obituaries/gertrude-chandler-warner-overlooked.html
+
 **White House Vows to Pay T.S.A. Workers as Partial Shutdown Continues**\
 `Also, consumers are feeling the costs of the Iran war. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2026/03/27/briefing/tsa-workers-pay-global-food-supply.html
