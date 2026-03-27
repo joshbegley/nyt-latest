@@ -1,3 +1,7 @@
+**Women's Sweet 16 takeaways: Hannah Hidalgo, Notre Dame upset Vanderbilt**\
+`The first four spots in the women's Elite Eight of the NCAA Tournament will be decided Friday in Fort Worth and Sacramento.`\
+https://nytimes.com/athletic/7152222/2026/03/27/womens-sweet-16-ncaa-tournament-takeaways/
+
 **Iran Moves to Assert Control Over Strait While Trading Strikes With Israel**\
 `Two ships turned back after being warned not to pass through the Strait of Hormuz on Friday. Iran said strikes in the country had hit a uranium processing plant and industrial sites.`\
 https://nytimes.com/2026/03/27/world/middleeast/iran-israel-us-rubio-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/27/us/politics/trump-save-america-act.html
 **Just Desserts**\
 ``\
 https://nytimes.com/column/just-desserts
-
-**Everyone Thinks Parisians Rule Fashion. Everyone Is Wrong.**\
-`How the Antwerp Six shaped the modern fashion world, and why everyone is still obsessed.`\
-https://nytimes.com/2026/03/27/style/antwerp-six-momu-belgium.html
 
