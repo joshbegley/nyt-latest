@@ -1,3 +1,11 @@
+**What to Know About Zillow’s Major New Listings Feature**\
+`The massive real estate marketplace just changed its tune around pre-market listings, shifting the landscape for brokers and buyers.`\
+https://nytimes.com/2026/03/27/realestate/zillow-preview-explainer-listings.html
+
+**Orioles nearing extension with Shane Baz, a key offseason acquisition: Source**\
+`Baz was one of the Orioles' marquee offseason acquisitions, coming to the team in a trade with the Rays.`\
+https://nytimes.com/athletic/7152527/2026/03/27/baltimore-orioles-shane-baz-extension/
+
 **Women's Sweet 16 takeaways: Hannah Hidalgo, Notre Dame upset Vanderbilt**\
 `The first four spots in the women's Elite Eight of the NCAA Tournament will be decided Friday in Fort Worth and Sacramento.`\
 https://nytimes.com/athletic/7152222/2026/03/27/womens-sweet-16-ncaa-tournament-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/27/us/politics/cpac-trump-iran-war.html
 **Government Trolls Sling Memes in the Online Trenches of Mideast War**\
 `Officials in Tehran and Washington alike are trading taunts in English, often using American pop culture references.`\
 https://nytimes.com/2026/03/27/world/middleeast/iran-war-memes-propaganda.html
-
-**Trump Demands an All-but-Doomed Bill. The Value for Him May Be in the Fight.**\
-`The SAVE America Act, which the president wants to use to address issues like voting and transgender surgeries, allows him to try to shift the conversation from worries over inflation and war.`\
-https://nytimes.com/2026/03/27/us/politics/trump-save-america-act.html
-
-**Just Desserts**\
-``\
-https://nytimes.com/column/just-desserts
 
