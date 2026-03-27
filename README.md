@@ -26,7 +26,7 @@ https://nytimes.com/athletic/7148659/2026/03/27/edmonton-oilers-defenceman-ty-em
 `By Maria Varenikova`\
 https://nytimes.com/live/2026/03/27/world/iran-war-trump-oil-israel/ukraine-signed-a-defense-cooperation-agreement-with-saudi-arabia-zelensky-says
 
-**Trump Administration Live Updates: Senate Votes to Fund Most of D.H.S. in Bid to End Partial Shutdown**\
+**Trump Administration Live Updates: Senate Votes to Fund Most of D.H.S. in Bid to End Airport Crisis**\
 ``\
 https://nytimes.com/live/2026/03/27/us/trump-news
 
