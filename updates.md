@@ -1,3 +1,5 @@
+
+
 **Can Trump Claim Victory in Iran?**\
 `Is this really what winning the war with Iran looks like? Mark Dubowitz, the chief executive of the Foundation for Defense of Democracies, joins Ross Douthat on “Interesting Times” to make the case that Operation Epic Fury has degraded Iran’s military power enough to make victory achievable.`\
 https://nytimes.com/video/opinion/100000010795930/can-trump-claim-victory-in-iran.html
