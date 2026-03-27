@@ -1,3 +1,7 @@
+**Gulf States Crack Down on Videos of Iranian Attacks Posted Online**\
+`The authorities have made a wave of arrests to stop people posting footage of strikes, citing security risks. Experts also see a fear of damage to the countries’ image as safe havens.`\
+https://nytimes.com/2026/03/27/world/middleeast/iran-war-videos-arrests-uae-gulf-states.html
+
 **Lee Geun-an, Infamous ‘Torture Master’ Under South Korean Dictator, Dies at 88**\
 `The name of Mr. Lee, a former police inspector, had long incited fear and hatred in the country.`\
 https://nytimes.com/2026/03/27/world/asia/lee-geun-an-korea-obit.html
