@@ -1,3 +1,7 @@
+**Mercedes signing Max Verstappen is 'not on', Toto Wolff says**\
+`The four-time world champion has been linked to Wolff's Formula 1 team since 2014.`\
+https://nytimes.com/athletic/7152184/2026/03/27/max-verstappen-mercedes-red-bull-wolff/
+
 **Jason Heyward retires from MLB after 16 seasons**\
 `"I look forward to being a fan and seeing what other ways I can give back," Heyward said when announcing his retirement on MLB Network.`\
 https://nytimes.com/athletic/7152002/2026/03/27/jason-heyward-retires-braves-cubs/
