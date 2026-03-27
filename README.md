@@ -1,3 +1,7 @@
+**Han Kang Among National Book Critics Circle Award Winners**\
+`This year’s winners include the latest novel by the South Korean Nobel laureate in literature and a memoir by one of India’s best known novelists.`\
+https://nytimes.com/2026/03/26/books/national-book-critics-circle-awards.html
+
 **The Mets' lineup is almost entirely different than last year's. Is it better?**\
 `Scouts are divided over whether the Mets offense will be more potent this season, but the bats sure looked good on Opening Day. `\
 https://nytimes.com/athletic/7150379/2026/03/26/mets-lineup-scouting-opening-day/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/26/us/politics/kennedy-vaccines-trump.html
 **Cubs reach six-year extension agreement with Nico Hoerner: Source**\
 `The Cubs will continue to have one of baseball’s best infields anchored by Hoerner, who is a two-time Gold Glove winner. `\
 https://nytimes.com/athletic/7150381/2026/03/26/chicago-cubs-nico-hoerner-extension-source/
-
-**Here’s What Happened in the War in the Middle East on Thursday**\
-`For a second time, President Trump extended the deadline for Iran to fully reopen the Strait of Hormuz.`\
-https://nytimes.com/2026/03/26/world/middleeast/war-iran-us-israel-recap.html
 
