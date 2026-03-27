@@ -1,3 +1,7 @@
+**Man Accused of Killing College Student in Chicago to Remain in Jail**\
+`Jose Medina, who is accused of being in the country illegally, is charged with murder in the death of Sheridan Gorman, a freshman at Loyola University Chicago.`\
+https://nytimes.com/2026/03/27/us/loyola-shooting-suspect-chicago.html
+
 **How Long of a Wait at Security? For Many Passengers, It Was Anyone’s Guess.**\
 `As T.S.A. staff shortages continued on Friday, some airports saw interminably long wait times, while others barely had a wait at all, adding to travelers’ confusion.`\
 https://nytimes.com/2026/03/27/us/wait-times-airports-tsa-confusion.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/27/world/middleeast/iran-strikes-infrastructure-indu
 **Trinidad Chambliss set to remain Ole Miss QB after NCAA petition denied**\
 `The ruling again clears the way for Chambliss to return to college football as one of the sport’s most exciting quarterbacks.`\
 https://nytimes.com/athletic/7152794/2026/03/27/trinidad-chambliss-ole-miss-ncaa-petition-denied/
-
-**Hegseth Criticized for Removing Four Officers From Promotion List**\
-`Bitter rifts have opened over the defense secretary’s campaign to reverse policies that he says are prejudiced against white officers.`\
-https://nytimes.com/2026/03/27/us/politics/hegseth-generals-promotion.html
 
