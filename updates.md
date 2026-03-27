@@ -1,3 +1,11 @@
+**Just Desserts**\
+``\
+https://nytimes.com/column/just-desserts
+
+**Everyone Thinks Parisians Rule Fashion. Everyone is Wrong.**\
+`How the Antwerp Six shaped the modern fashion world, and why everyone is still obsessed.`\
+https://nytimes.com/2026/03/27/style/antwerp-six-momu-belgium.html
+
 **Tiger Woods involved in rollover crash in Florida: Reports**\
 `Woods, 50, was also involved in a car crash in 2021.`\
 https://nytimes.com/athletic/7152418/2026/03/27/tiger-woods-car-crash-florida/
