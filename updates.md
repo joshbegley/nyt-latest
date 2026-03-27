@@ -1,3 +1,27 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/27/crosswords/spelling-bee-forum.html
+
+**Two Reflections**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2026/03/27/learning/two-reflections.html
+
+**Can a Democrat Make Headway With Trump? New York’s Governor Is Trying.**\
+`Gov. Kathy Hochul of New York has demonstrated her ability to negotiate with the president and his team on thorny issues like immigration enforcement.`\
+https://nytimes.com/2026/03/27/nyregion/hochul-new-york-trump-ice-immigration.html
+
+**Tracking Trump’s Efforts to Reshape Cultural Institutions**\
+`Jennifer Schuessler, a culture reporter who writes about intellectual life, is now covering President Trump’s attempts to amend the presentation of American history.`\
+https://nytimes.com/2026/03/27/insider/trump-culture-america.html
+
+**A Rapper Who Won Over Gen Z Now Leads Nepal. Can He Bring Justice?**\
+`A leaked report on the deadly violence and mass arson that broke out last year has put the new leader under pressure to ensure accountability.`\
+https://nytimes.com/2026/03/27/world/asia/nepal-balendra-shah-rapper-prime-minister.html
+
+**Gyokeres's hat-trick for Sweden could also be well-timed for Arsenal's hunt for glory**\
+`Gyokeres' goals helped his country to within one game of this summer’s World Cup finals`\
+https://nytimes.com/athletic/7140626/2026/03/27/viktor-gyokeres-sweden-arsenal-analysis/
+
 **The Opta-stat-packification of football: Why are the game's milestones getting weirder?**\
 `To paraphrase the anti-VAR mantra: data itself isn’t the problem, it’s often the people using it`\
 https://nytimes.com/athletic/7143152/2026/03/27/bad-weird-football-stats-opta/
