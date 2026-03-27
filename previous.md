@@ -1,40 +1,40 @@
+**How to watch Heat vs. Cavaliers: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7152158/2026/03/27/heat-vs-cavaliers-stream-how-to-watch-march-27/
+
+**Letizia Mowinckel, 105, Dies; Procured Jacqueline Kennedy’s Pink Chanel Suit**\
+`Mrs. Kennedy was wearing the suit when her husband was assassinated in Dallas in November 1963, and it was soaked in his blood.`\
+https://nytimes.com/2026/03/27/style/letizia-mowinckel-dead.html
+
+**How to watch Bulls vs. Thunder: Time, TV, streaming**\
+`Find out how to watch the Chicago Bulls play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7152156/2026/03/27/bulls-vs-thunder-stream-how-to-watch-march-27/
+
+**How to watch Jazz vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the Utah Jazz play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7152154/2026/03/27/jazz-vs-nuggets-stream-how-to-watch-march-27/
+
+**E3 Saxo Classic: Van der Poel digs deep to record dramatic win as Vingegaard dominates in Catalunya**\
+`Jacob Whitehead analyses a frenetic day of WorldTour action in western Belgium and northern Spain`\
+https://nytimes.com/athletic/7151978/2026/03/27/e3-saxo-classic-van-der-poel-vingegaard-catalunya/
+
+**How to watch Pelicans vs. Raptors: Time, TV, streaming**\
+`Find out how to watch the New Orleans Pelicans play the Toronto Raptors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7152146/2026/03/27/pelicans-vs-raptors-stream-how-to-watch-march-27/
+
+**How to watch Rockets vs. Grizzlies: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Memphis Grizzlies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7152141/2026/03/27/rockets-vs-grizzlies-stream-how-to-watch-march-27/
+
+**Iran Moves to Formalize Toll Plan in Strait of Hormuz**\
+`Tehran has effectively closed off the critical waterway, turning back container ships on Friday, and Iranian lawmakers are considering whether to charge fees to pass.`\
+https://nytimes.com/2026/03/27/world/middleeast/iran-hormuz-strait-tolls.html
+
+**How to watch Hawks vs. Celtics: Time, TV, streaming**\
+`Find out how to watch the Atlanta Hawks play the Boston Celtics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7152139/2026/03/27/hawks-vs-celtics-stream-how-to-watch-march-27/
+
 **Chat live with Eno Sarris at 11am PT!**\
 `Chat live with Eno Sarris today at 11am PT!`\
 https://nytimes.com/athletic/7151898/2026/03/27/eno-sarris-live-chat-march-27/
-
-**Trump on the Dollar: Dismay and Derision**\
-`Reaction to President Trump’s signature on the dollar. Also: Innocent lives lost in Iran; Democrats’ brand; young job seekers; subway announcements; calling all teenagers.`\
-https://nytimes.com/2026/03/27/opinion/trump-dollar.html
-
-**Senegal manager on AFCON dispute: 'Everybody knows we are champions of Africa'**\
-`Thiaw and Gueye issued impassioned defences of Senegal's achievements, reaffirming their status as African champions. `\
-https://nytimes.com/athletic/7152051/2026/03/27/afcon-senegal-morocco-pape-news-dispute/
-
-**Why the Ancient City of Arles Continues to Enchant**\
-`The Roman colony turned artists’ haven is rich with ruins and creative energy.`\
-https://nytimes.com/2026/03/27/t-magazine/arles-france-guide-restaurants-hotels.html
-
-**Another Senior House Republican Will Retire as Midterm Exodus Grows**\
-`Representative Sam Graves, the chairman of the Transportation and Infrastructure Committee, said he would leave Congress after nearly three decades, the latest sign that the G.O.P. is bracing for big losses.`\
-https://nytimes.com/2026/03/27/us/politics/sam-graves-retirement.html
-
-**Humpback Whale Stranded Off German Coast Is Freed by Rescuers**\
-`In a last-ditch effort, rescuers were at last able to free a 40-foot humpback whale that had been stuck in shallow waters near the coast of Germany for four days.`\
-https://nytimes.com/video/world/europe/100000010805128/humpback-whale-freed-german-coast.html
-
-**Leicester record £71m pre-tax loss for 2024-25: What would relegation mean?**\
-`The club said the large loss was mainly due to lower player sales and the absence of non-recurring other income.`\
-https://nytimes.com/athletic/7151447/2026/03/27/leicester-losses-accounts-psr/
-
-**Farage claims Sunderland have invited him to visit the Stadium of Light**\
-`The Reform UK leader sparked controversy this week after a visit to Ipswich Town's Portman Road, where he posed for photos and videos.`\
-https://nytimes.com/athletic/7151958/2026/03/27/nigel-farage-sunderland-stadium-reform/
-
-**Alabama guard Aden Holloway cleared to travel out of state ahead of Sweet 16**\
-`The university's office of student conduct removed Holloway from campus following his arrest on March 16.`\
-https://nytimes.com/athletic/7151968/2026/03/27/aden-holloway-alabama-status-arrest-charges/
-
-**How Camden, N.J., Cut Its Murder Rate to a 40-Year Low**\
-`In their own words, members of the community tell the story of how change came to the city, once among the nation’s deadliest.`\
-https://nytimes.com/interactive/2026/03/27/headway/camden-nj-murder-rate-gun-violence.html
 
