@@ -1,3 +1,7 @@
+**Late Night Disses Trump’s New ‘America First’ Award**\
+`“How many fake trophies that were made specifically for him is this guy going to get?” Seth Meyers asked on Thursday’s “Late Night.”`\
+https://nytimes.com/2026/03/27/arts/television/late-night-trump-america-first-award.html
+
 **Here’s the latest.**\
 `By John Yoon`\
 https://nytimes.com/live/2026/03/27/world/iran-war-trump-oil-israel/heres-the-latest
