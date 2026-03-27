@@ -1,40 +1,40 @@
-**Gulf States Crack Down on Videos of Iranian Attacks Posted Online**\
-`The authorities have made a wave of arrests to stop people posting footage of strikes, citing security risks. Experts also see a fear of damage to the countries’ image as safe havens.`\
-https://nytimes.com/2026/03/27/world/middleeast/iran-war-videos-arrests-uae-gulf-states.html
+**Republicans Know This War Is Going Badly**\
+`Never before has America arrived at the threshold of a quagmire so quickly.`\
+https://nytimes.com/2026/03/27/opinion/republicans-iran-war.html
 
-**Lee Geun-an, Infamous ‘Torture Master’ Under South Korean Dictator, Dies at 88**\
-`The name of Mr. Lee, a former police inspector, had long incited fear and hatred in the country.`\
-https://nytimes.com/2026/03/27/world/asia/lee-geun-an-korea-obit.html
+**Questions for The Morning**\
+`We want to answer them.`\
+https://nytimes.com/2026/03/27/briefing/questions-for-the-morning.html
 
-**Salah and Liverpool: Why the love affair ended – and what happens now**\
-`The Egyptian's departure has been a long time coming and Liverpool are already starting to plan for a future without him`\
-https://nytimes.com/athletic/7148907/2026/03/27/mohamed-salah-liverpool-exit-future/
+**Want More ‘Love Story’? Read These Books Next.**\
+`If the TV show has you craving 1990s glam, upper-crust romance and doomed dynasties, these books have got you covered.`\
+https://nytimes.com/2026/03/27/books/review/love-story-jfk-jr-carolyn-bessette-books.html
 
-**Late Night Disses Trump’s New ‘America First’ Award**\
-`“How many fake trophies that were made specifically for him is this guy going to get?” Seth Meyers asked on Thursday’s “Late Night.”`\
-https://nytimes.com/2026/03/27/arts/television/late-night-trump-america-first-award.html
+**Can Seniors Order Off the Kids’ Menu?**\
+`A dispute over restaurant etiquette.`\
+https://nytimes.com/interactive/2026/03/27/magazine/children-kids-menu-hodgman-quiz.html
 
-**Here’s the latest.**\
-`By John Yoon`\
-https://nytimes.com/live/2026/03/27/world/iran-war-trump-oil-israel/heres-the-latest
+**What We Know About Saturday’s ‘No Kings’ Protests**\
+`Thousands of demonstrations against the Trump administration are scheduled to take place in cities and towns across the country on Saturday.`\
+https://nytimes.com/2026/03/27/us/no-kings-protests-cities.html
 
-**Iran War Live Updates: Trump Claims Progress in Talks and Extends Strait of Hormuz Deadline**\
-`President Trump has threatened to attack Iran’s power plants unless it fully reopens the Strait of Hormuz, a vital oil route, by April 6. Israel on Friday launched more strikes on Iran.`\
-https://nytimes.com/live/2026/03/27/world/iran-war-trump-oil-israel
+**Europeans Are Angry at Trump, but Often Forgiving of Americans**\
+`A generation ago, foreign fury over the Iraq invasion often blurred into anti-Americanism. Now, some Europeans seem ready to distinguish between the president and the American people.`\
+https://nytimes.com/2026/03/27/world/europe/europe-trump-sentiment.html
 
-**Trump’s Signature to Appear on Dollar Bills**\
-`President Trump’s signature will be added to U.S. paper currency later this year, the Treasury Department said on Thursday.`\
-https://nytimes.com/video/us/politics/100000010804920/trumps-signature-dollar-bill.html
+**Where Might the Iran War Hit Your Wallet? Start With Raspberries.**\
+`It takes a lot of fuel to produce this delicate fruit, which can be a sensitive barometer as oil costs rise.`\
+https://nytimes.com/2026/03/27/dining/raspberry-prices.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/03/27/crosswords/spelling-bee-forum.html
+**9 Fateful Seconds at LaGuardia Airport**\
+`After a fatal collision between an Air Canada jet and a fire truck on a runway, attention has focused on why the truck didn’t heed frantic calls to stop.`\
+https://nytimes.com/2026/03/27/nyregion/laguardia-crash-air-canada-truck.html
 
-**Two Reflections**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2026/03/27/learning/two-reflections.html
+**Resurgent Inflation Tests Faith in Fed’s Willingness to Tame It**\
+`The war in the Middle East risks worsening an inflation problem that the Federal Reserve has struggled for years to subdue.`\
+https://nytimes.com/2026/03/27/business/inflation-federal-reserve-iran-war.html
 
-**Can a Democrat Make Headway With Trump? New York’s Governor Is Trying.**\
-`Gov. Kathy Hochul of New York has demonstrated her ability to negotiate with the president and his team on thorny issues like immigration enforcement.`\
-https://nytimes.com/2026/03/27/nyregion/hochul-new-york-trump-ice-immigration.html
+**Will Iran Break Trumpism?**\
+`The right-wing thinker Christopher Caldwell believes the Iran war is the end of Trumpism. Is he right? What was Trumpism in the first place?`\
+https://nytimes.com/video/opinion/100000010799680/will-iran-break-trumpism.html
 
