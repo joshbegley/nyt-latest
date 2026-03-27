@@ -1,3 +1,7 @@
+**Kennedy Center Performer Asks Judge to Toss Case He Calls ‘Retaliatory’**\
+`A jazz drummer who called off a performance in protest of the center’s being renamed for President Trump said the president’s allies had sued him as punishment.`\
+https://nytimes.com/2026/03/27/us/politics/kennedy-center-jazz-performer.html
+
 **Europe Is Drafting Postwar Plan to Escort Tankers, Officials Say**\
 `France and Britain are leading planning to have warships escort vessels through the Strait of Hormuz, which officials say is farther along than has been revealed publicly.`\
 https://nytimes.com/2026/03/27/world/middleeast/europe-plan-escort-hormuz.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/27/us/politics/musk-joins-call-with-trump-modi.html
 **Which Dodgers prospects are poised to break out in 2026? Meet 6 under-the-radar candidates**\
 `Hard-throwers like Zach Root and Christian Zazueta rank among the most intriguing young players in the Dodgers' system.`\
 https://nytimes.com/athletic/7139764/2026/03/27/dodgers-prospects-breakout/
-
-**House Republicans Revolt Over Bill to Reopen D.H.S., Deepening Shutdown Rift**\
-`G.O.P. members said they would not accept a Senate-passed measure to fund the Department of Homeland Security, dimming the chances for a quick end to the crisis crippling airports.`\
-https://nytimes.com/2026/03/27/us/politics/house-republicans-dhs-funding-shutdown.html
 
