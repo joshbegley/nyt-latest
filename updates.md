@@ -1,3 +1,11 @@
+**Which Dodgers prospects are poised to break out in 2026? Meet 6 under-the-radar candidates**\
+`Hard-throwers like Zach Root and Christian Zazueta rank among the most intriguing young players in the Dodgers' system.`\
+https://nytimes.com/athletic/7139764/2026/03/27/dodgers-prospects-breakout/
+
+**House Republicans Revolt Over Bill to Reopen D.H.S., Deepening Shutdown Rift**\
+`G.O.P. members said they would not accept a Senate-passed measure to fund the Department of Homeland Security, dimming the chances for a quick end to the crisis crippling airports.`\
+https://nytimes.com/2026/03/27/us/politics/house-republicans-dhs-funding-shutdown.html
+
 **The Bar Is Open Again on the Staten Island Ferry**\
 `After a seven-year drought, including pandemic-related delays, the ferry service is bringing beer back to New York Harbor. It feels like a return to normal, regulars say.`\
 https://nytimes.com/2026/03/27/nyregion/staten-island-ferry-alcohol.html
