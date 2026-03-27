@@ -1,3 +1,7 @@
+**Gulf States Crack Down on Videos of Iranian Attacks Posted Online**\
+`The authorities have made a wave of arrests to stop people posting footage of strikes, citing security risks. Experts also see a fear of damage to the countries’ image as safe havens.`\
+https://nytimes.com/2026/03/27/world/middleeast/iran-war-videos-arrests-uae-gulf-states.html
+
 **Lee Geun-an, Infamous ‘Torture Master’ Under South Korean Dictator, Dies at 88**\
 `The name of Mr. Lee, a former police inspector, had long incited fear and hatred in the country.`\
 https://nytimes.com/2026/03/27/world/asia/lee-geun-an-korea-obit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/27/learning/two-reflections.html
 **Can a Democrat Make Headway With Trump? New York’s Governor Is Trying.**\
 `Gov. Kathy Hochul of New York has demonstrated her ability to negotiate with the president and his team on thorny issues like immigration enforcement.`\
 https://nytimes.com/2026/03/27/nyregion/hochul-new-york-trump-ice-immigration.html
-
-**Tracking Trump’s Efforts to Reshape Cultural Institutions**\
-`Jennifer Schuessler, a culture reporter who writes about intellectual life, is now covering President Trump’s attempts to amend the presentation of American history.`\
-https://nytimes.com/2026/03/27/insider/trump-culture-america.html
 
