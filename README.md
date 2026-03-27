@@ -1,3 +1,15 @@
+**How to watch Blackhawks vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Chicago Blackhawks play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7151923/2026/03/27/blackhawks-vs-rangers-stream-how-to-watch-march-27/
+
+**Messi has stand at Inter Miami's new stadium named after him**\
+`Miami's first game at the Nu Stadium will also be the official unveiling of the "Leo Messi Stand".`\
+https://nytimes.com/athletic/7151802/2026/03/27/lionel-messi-inter-miami-stand/
+
+**NBA considering harsher tanking penalties, draft lottery expansion: Sources**\
+`"You have to have something in place that is so drastic, a team would actually think twice about tanking," one source told The Athletic.`\
+https://nytimes.com/athletic/7151841/2026/03/27/nba-tanking-rules-changes-draft-lottery-expansion/
+
 **How to watch Rockies vs. Marlins: Time, TV, streaming for March 27**\
 `Find out how to watch the Colorado Rockies play the Miami Marlins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7151907/2026/03/27/rockies-vs-marlins-stream-how-to-watch-march-27/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/27/dining/sometimes-the-simplest-salmon-is-the-best-
 **Five Horror Movies to Stream Now**\
 `This month brings paranoid psychopaths, ungodly subjugations and fiery suspicions.`\
 https://nytimes.com/2026/03/27/movies/five-horror-movies-to-stream-now.html
-
-**What to Consider Before Switching Antidepressants**\
-`Changing medications abruptly can result in dangerous side effects.`\
-https://nytimes.com/2026/03/27/well/mind/switching-antidepressants-ssri-snri.html
-
-**Red Light: The NHL playoff races heat up. Plus: Another trophy for MacKinnon?**\
-`Another busy one with 13 games last night, so let’s get you up to date on what’s happening around the league.`\
-https://nytimes.com/athletic/7151786/2026/03/27/the-nhl-playoff-races-heat-up-plus-another-trophy-for-mackinnon/
-
-**Lions' Terrion Arnold's named in texts tied to robbery, kidnapping plot**\
-`Arnold has not been charged, and did not send or receive any of the text messages discovered by investigators.`\
-https://nytimes.com/athletic/7151185/2026/03/27/lions-terrion-arnold-texts/
 
