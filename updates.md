@@ -1,3 +1,15 @@
+**Japan and the U.S. Agree to Team Up on Seabed Mining**\
+`The arrangement could signal a fracture in the decades-long effort among nations to reach consensus on how to mine the ocean floor while protecting ecosystems.`\
+https://nytimes.com/2026/03/27/climate/japan-united-states-seabed-mining.html
+
+**Investors Are Losing Patience With the War in Iran**\
+`The S&P 500 is on course for its fifth straight week of losses and its worst weekly losing streak in roughly four years.`\
+https://nytimes.com/2026/03/27/business/iran-war-stock-market-investors.html
+
+**NFL teams could sell preseason game rights to streaming platforms: Source**\
+`The proposal is expected to be discussed at the league meetings in Phoenix next week. `\
+https://nytimes.com/athletic/7151914/2026/03/27/nfl-preseason-rights-streaming-league-meetings/
+
 **NFL teams could sell preseason game rights to streaming platforms: Source**\
 `The proposal is expected to be discussed at the league meetings in Arizona next week. `\
 https://nytimes.com/athletic/7151914/2026/03/27/nfl-preseason-rights-streaming-league-meetings/
