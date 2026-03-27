@@ -1,3 +1,11 @@
+**Why Hannah Hidalgo's quick hands are key to Notre Dame stealing another tournament game**\
+`Notre Dame coach Niele Ivey calls Hidalgo one of the best two-way players she's ever seen. `\
+https://nytimes.com/athletic/7150322/2026/03/27/hannah-hidalgo-steals-notre-dame-ncaa-tournament/
+
+**Who's the best coach in college football? Who do fans approve of? Our readers weigh in**\
+`More than 3,000 readers voted, and the majority agrees with Bruce Feldman and Stewart Mandel about Curt Cignetti as the No. 1. coach.`\
+https://nytimes.com/athletic/7149776/2026/03/27/best-college-football-coach-fan-vote/
+
 **The Pulse: They really forgot 1 player**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7151158/2026/03/27/ncaa-mens-sweet-16-nebraska-iowa-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7150948/2026/03/27/owen-tippett-flyers-playoff-push
 **Sliders: Meet the new Rockies coach on a mission to solve MLB's toughest pitching problem**\
 `It's the 2026 debut of Sliders, a weekly in-season MLB column that focuses on both the timely and timeless elements of baseball.`\
 https://nytimes.com/athletic/7149043/2026/03/27/colorado-rockies-pitching-coach-alon-leichman/
-
-**A college basketball coach made 418 mistakes his first year. He kept track of all of them**\
-`Thirteen years ago, Mike Neighbors dreamed up an idea to help others: He started writing down his mistakes.`\
-https://nytimes.com/athletic/7150051/2026/03/27/mike-neighbors-mistakes-college-basketball-leadership/
-
-**Eagles NFL Draft big board: Potential targets on all 3 days**\
-`The Eagles need to find some key contributors on rookie contracts.`\
-https://nytimes.com/athletic/7144108/2026/03/27/eagles-nfl-draft-big-board-potential-targets-3-days/
 

@@ -1,3 +1,11 @@
+**Why Hannah Hidalgo's quick hands are key to Notre Dame stealing another tournament game**\
+`Notre Dame coach Niele Ivey calls Hidalgo one of the best two-way players she's ever seen. `\
+https://nytimes.com/athletic/7150322/2026/03/27/hannah-hidalgo-steals-notre-dame-ncaa-tournament/
+
+**Who's the best coach in college football? Who do fans approve of? Our readers weigh in**\
+`More than 3,000 readers voted, and the majority agrees with Bruce Feldman and Stewart Mandel about Curt Cignetti as the No. 1. coach.`\
+https://nytimes.com/athletic/7149776/2026/03/27/best-college-football-coach-fan-vote/
+
 **The Pulse: They really forgot 1 player**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7151158/2026/03/27/ncaa-mens-sweet-16-nebraska-iowa-the-pulse/
