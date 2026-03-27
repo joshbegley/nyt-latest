@@ -1,3 +1,15 @@
+**How to watch North Carolina vs. UConn women's basketball: Sweet 16 Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7151705/2026/03/27/north-carolina-vs-uconn-stream-how-to-watch-march-27/
+
+**Elite Eight upset odds for Iowa Hawkeyes**\
+`Iowa continues its Cinderella run in the Elite Eight. What are the chances they keep slaying?`\
+https://nytimes.com/athletic/7151649/2026/03/27/march-madness-upset-odds-iowa-bracket-breakers/
+
+**Four Padres prospects to watch in 2026**\
+`These young Padres could impact the big-league club either on the field or through, yes, more potential trades.`\
+https://nytimes.com/athletic/7141275/2026/03/27/prospects-san-diego-padres-to-watch/
+
 **3 Killed in Helicopter Crash Off Hawaii**\
 `Two survivors were taken to a hospital for treatment after the crash on Thursday afternoon, according to the authorities on the island of Kauai.`\
 https://nytimes.com/2026/03/27/us/helicopter-crash-hawaii-kauai.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/27/your-money/long-term-care-insurance.html
 **Two coaches have dominated the odds for UNC basketball's next coach**\
 `Prediction markets are tracking UNC's open coaching job. How accurate are these odds?`\
 https://nytimes.com/athletic/7149724/2026/03/27/north-carolina-next-coach-odds-billy-donovan-tommy-lloyd/
-
-**Nottingham Forest accounts analysed: £71m loss, Ange pay-off, and another big departure needed?**\
-`With a relegation fight still to be won, four managers employed and an upcoming stadium revamp, running the club is unlikely to get cheaper`\
-https://nytimes.com/athletic/7151374/2026/03/27/nottingham-forest-accounts-premier-league/
-
-**United Airlines Flight Avoids Collision With Military Helicopter in California**\
-`The Federal Aviation Administration said it was investigating after a helicopter crossed into the path of United Airlines Flight 589.`\
-https://nytimes.com/2026/03/27/us/united-airlines-helicopter-california-faa.html
-
-**Ukraine's World Cup dream is ended by Sweden, despite the defiance of a four-year exile**\
-`Aiming to qualify for a first World Cup in 20 years, Ukraine lost 3-1 to Sweden in Thursday's qualification play-off semi-final in Spain`\
-https://nytimes.com/athletic/7151396/2026/03/27/ukraine-world-cup-sweden-qualification-spain/
 
