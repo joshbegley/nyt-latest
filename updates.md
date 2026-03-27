@@ -1,3 +1,7 @@
+**What We Know About Pay for T.S.A. Workers**\
+`President Trump on Friday directed the Homeland Security Department to pay thousands of airport security officers.`\
+https://nytimes.com/2026/03/27/us/politics/tsa-pay.html
+
 **Man Accused of Killing College Student in Chicago to Remain in Jail**\
 `Jose Medina, who is accused of being in the country illegally, is charged with murder in the death of Sheridan Gorman, a freshman at Loyola University Chicago.`\
 https://nytimes.com/2026/03/27/us/loyola-shooting-suspect-chicago.html

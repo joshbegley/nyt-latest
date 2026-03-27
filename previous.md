@@ -8,7 +8,7 @@ https://nytimes.com/2026/03/27/us/wait-times-airports-tsa-confusion.html
 
 **What We Know About Pay for T.S.A. Workers**\
 `President Trump on Friday directed the Homeland Security Department to pay thousands of airport security officers.`\
-https://nytimes.com/live/2026/03/27/us/trump-news/tsa-pay
+https://nytimes.com/2026/03/27/us/politics/tsa-pay.html
 
 **John Textor's Eagle Football placed into administration**\
 `Eagle Football's main creditor, investment firm Ares Capital Corporation, has put the group’s UK-based holding company into administration.`\
