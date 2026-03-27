@@ -1,3 +1,27 @@
+**Purdue tip-in takes out Texas in final second of Sweet 16 thriller**\
+`Purdue’s Trey Kaufman-Renn beat Texas with a tip-in with 0.7 seconds left in a Sweet 16 game on Thursday night.`\
+https://nytimes.com/athletic/7150744/2026/03/26/purdue-texas-march-madness-2026-score-results-takeaways/
+
+**Inside a mostly pleasant Phillies Opening Day of firsts and familiarity**\
+`It was eight perfect innings, then a hairy ninth, giving everyone something to complain about — making it a perfect Philly opener.`\
+https://nytimes.com/athletic/7150685/2026/03/26/phillies-opening-day-schwarber-crawford-sanchez/
+
+**‘The Pitt’ Season 2, Episode 12 Recap: Breaking Points**\
+`The stalwarts of the Pitt seem to be cracking under the stress of an especially difficult day — in a workplace defined by difficult days.`\
+https://nytimes.com/2026/03/26/arts/television/the-pitt-recap-season-2-episode-12.html
+
+**Slightly Off**\
+`Zachary David Levy opens our solving weekend.`\
+https://nytimes.com/2026/03/26/crosswords/daily-puzzle-2026-03-27.html
+
+**Kevin McGonigle records 4 hits in MLB debut: 'It looked like that was his 700th game'**\
+`McGonigle was at the center of everything in the Tigers' 8-2 Opening Day win over the Padres.`\
+https://nytimes.com/athletic/7150616/2026/03/26/kevin-mcgonigle-tigers-mlb-debut-opening-day/
+
+**After winter of changes, Astros fall flat in 3-0 Opening Day loss**\
+`Angels starter José Soriano kept Houston's bats in check over six innings, leaving Carlos Correa to say afterward, “we swung too much.”`\
+https://nytimes.com/athletic/7150714/2026/03/26/astros-offense-angels-opening-day-loss/
+
 **Man Held in Hawaii for 2 Years Over Mistaken Identity Gets $975,000 Settlement**\
 `After spending over two years in a psychiatric hospital, Joshua Spriestersbach, 54, should no longer face the risk of being rearrested or jailed for the crimes of the person he was mistaken for.`\
 https://nytimes.com/2026/03/26/us/honolulu-man-mistaken-identity-settlement.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7150568/2026/03/26/rockets-timberwolves-nba-referee
 **Overreactions from the Reds' Opening Day loss from ABS to the bullpen**\
 `In the end, we all know that every game isn't going to be like this. But just for one day, let's overreact after the Opening Day loss.`\
 https://nytimes.com/athletic/7150653/2026/03/26/cincinnati-reds-opening-day-2026-overreactions/
-
-**House Ethics Panel Holds Rare Public Hearing on Democrat’s Conduct**\
-`Representative Sheila Cherfilus-McCormick of Florida is charged with stealing $5 million in FEMA money for her campaign.`\
-https://nytimes.com/2026/03/26/us/politics/house-ethics-public-hearing-democrat-conduct.html
-
-**General McChrystal on the Myths Misleading Trump in Iran**\
-`The president may have been seduced by the idea of an easy victory, warns the Iraq and Afghanistan war commander on “The Opinions.”`\
-https://nytimes.com/video/opinion/100000010801995/general-mcchrystal-on-the-myths-misleading-trump-in-iran.html
-
-**Joe Gibbs Racing alleges Gabehart, Spire conspired to steal proprietary data**\
-`A temporary restraining order was extended 14 days, allowing Gabehart to work with Spire Motorsports as JGR's lawsuit continues.`\
-https://nytimes.com/athletic/7150560/2026/03/26/joe-gibbs-racing-chris-gabehart-spire-motorsports-lawsuit-update/
-
-**Joe Ryan's sharp outing might signal start of the end of his Twins tenure**\
-`Ryan struck out seven and limited the Orioles to three runners in 5 1/3 scoreless innings, but the Twins lost 2-1.`\
-https://nytimes.com/athletic/7150486/2026/03/26/twins-joe-ryan-orioles-opening-day/
-
-**Raiders GM John Spytek on Maxx Crosby: 'We welcome him like he never left'**\
-`Spytek expressed optimism about his team's offseason. "We're all really excited about where we're at right now after the past month."`\
-https://nytimes.com/athletic/7150361/2026/03/26/maxx-crosby-raiders-gm-john-spytek/
-
-**Kepner: The Pirates and Paul Skenes looked sharp off the field. On it? Not so much**\
-`The NL Cy Young winner exited his first start of 2026 after giving up five runs in the first inning on 37 pitches.`\
-https://nytimes.com/athletic/7150509/2026/03/26/pittsburgh-pirates-paul-skenes-opening-day-mets/
 
