@@ -1,3 +1,7 @@
+**Lee Geun-an, Infamous ‘Torture Master’ Under South Korean Dictator, Dies at 88**\
+`The name of Mr. Lee, a former police inspector, had long incited fear and hatred in the country.`\
+https://nytimes.com/2026/03/27/world/asia/lee-geun-an-korea-obit.html
+
 **Salah and Liverpool: Why the love affair ended – and what happens now**\
 `The Egyptian's departure has been a long time coming and Liverpool are already starting to plan for a future without him`\
 https://nytimes.com/athletic/7148907/2026/03/27/mohamed-salah-liverpool-exit-future/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/27/nyregion/hochul-new-york-trump-ice-immigration.ht
 **Tracking Trump’s Efforts to Reshape Cultural Institutions**\
 `Jennifer Schuessler, a culture reporter who writes about intellectual life, is now covering President Trump’s attempts to amend the presentation of American history.`\
 https://nytimes.com/2026/03/27/insider/trump-culture-america.html
-
-**A Rapper Who Won Over Gen Z Now Leads Nepal. Can He Bring Justice?**\
-`A leaked report on the deadly violence and mass arson that broke out last year has put the new leader under pressure to ensure accountability.`\
-https://nytimes.com/2026/03/27/world/asia/nepal-balendra-shah-rapper-prime-minister.html
 
