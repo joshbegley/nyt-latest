@@ -1,3 +1,7 @@
+**Two coaches have dominated the odds for UNC basketball's next coach**\
+`Prediction markets are tracking UNC's open coaching job. How accurate are these odds?`\
+https://nytimes.com/athletic/7149724/2026/03/27/north-carolina-next-coach-odds-billy-donovan-tommy-lloyd/
+
 **Nottingham Forest accounts analysed: £71m loss, Ange pay-off, and another big departure needed?**\
 `With a relegation fight still to be won, four managers employed and an upcoming stadium revamp, running the club is unlikely to get cheaper`\
 https://nytimes.com/athletic/7151374/2026/03/27/nottingham-forest-accounts-premier-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7149908/2026/03/27/atlanta-grass-playing-surface-wo
 **The Athletic’s Friday football quiz question #99**\
 `Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/7147012/2026/03/27/the-athletics-friday-football-quiz-question-99/
-
-**Lowetide: Oilers defenceman Ty Emberson taking a step forward this season**\
-`Emberson can compete without the puck and has learned how to survive in the NHL.`\
-https://nytimes.com/athletic/7148659/2026/03/27/edmonton-oilers-defenceman-ty-emberson-stats-2026/
 
