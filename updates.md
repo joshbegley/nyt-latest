@@ -1,3 +1,11 @@
+**Raiders GM John Spytek on Maxx Crosby: 'We welcome him like he never left'**\
+`Spytek expressed optimism about his team's offseason. "We're all really excited about where we're at right now after the past month."`\
+https://nytimes.com/athletic/7150361/2026/03/26/maxx-crosby-raiders-gm-john-spytek/
+
+**Sidney Crosby leaves game with injury in first period vs. Senators**\
+`The Penguins captain headed directly to the dressing room after a shift late in the first period.`\
+https://nytimes.com/athletic/7150572/2026/03/26/sidney-crosby-injury-penguins-senators/
+
 **Kepner: The Pirates and Paul Skenes looked sharp off the field. On it? Not so much.**\
 `The NL Cy Young winner exited his first start of 2026 after giving up five runs in the first inning on 37 pitches.`\
 https://nytimes.com/athletic/7150509/2026/03/26/pittsburgh-pirates-paul-skenes-opening-day-mets/

@@ -1,3 +1,11 @@
+**Joe Gibbs Racing alleges Gabehart, Spire conspired to steal propriety data**\
+`A temporary restraining order was extended 14 days, allowing Gabehart to work with Spire Motorsports as JGR's lawsuit continues.`\
+https://nytimes.com/athletic/7150560/2026/03/26/joe-gibbs-racing-chris-gabehart-spire-motorsports-lawsuit-update/
+
+**Joe Ryan's sharp outing might signal start of the end of his Twins tenure**\
+`Ryan struck out seven and limited the Orioles to three runners in 5 1/3 scoreless innings, but the Twins lost 2-1.`\
+https://nytimes.com/athletic/7150486/2026/03/26/twins-joe-ryan-orioles-opening-day/
+
 **Raiders GM John Spytek on Maxx Crosby: 'We welcome him like he never left'**\
 `Spytek expressed optimism about his team's offseason. "We're all really excited about where we're at right now after the past month."`\
 https://nytimes.com/athletic/7150361/2026/03/26/maxx-crosby-raiders-gm-john-spytek/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/26/world/europe/ursula-andress-bond-stolen-assets-it
 **Han Kang Among National Book Critics Circle Award Winners**\
 `This year’s winners include the latest novel by the South Korean Nobel laureate in literature and a memoir by one of India’s best known novelists.`\
 https://nytimes.com/2026/03/26/books/national-book-critics-circle-awards.html
-
-**The Mets' lineup is almost entirely different than last year's. Is it better?**\
-`Scouts are divided over whether the Mets offense will be more potent this season, but the bats sure looked good on Opening Day. `\
-https://nytimes.com/athletic/7150379/2026/03/26/mets-lineup-scouting-opening-day/
-
-**Why the Verdict Against Meta and YouTube Could Change Social Media**\
-`In a landmark case, a jury found Meta and YouTube guilty of creating products that were addictive. Ryan Mac explains the outcome and what it could mean for tech companies going forward.`\
-https://nytimes.com/video/technology/100000010801833/why-the-verdict-against-meta-and-youtube-could-change-social-media.html
 
