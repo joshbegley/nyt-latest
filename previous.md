@@ -1,3 +1,7 @@
+**The Pulse: They really forgot 1 player**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7151158/2026/03/27/ncaa-mens-sweet-16-nebraska-iowa-the-pulse/
+
 **Ravens NFL Draft big board: Examining most logical options at pick No. 14**\
 `Now that Baltimore again owns its 2026 first-round selection, we take a look at seven players who could make sense at pick No. 14. `\
 https://nytimes.com/athletic/7148999/2026/03/27/ravens-big-board-2026-nfl-draft/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/7148999/2026/03/27/ravens-big-board-2026-nfl-draft/
 https://nytimes.com/athletic/7151400/2026/03/27/casemiro-manchester-united-stay-transfer/
 
 **U.K. Police to Reinvestigate Sex Crime Allegations Against Andrew Tate**\
-`A police force in England said it would look again at 11-year-old allegations against the influencer. Mr. Tate was not charged in the case and denies any wrongdoing.`\
+`A police force in England said it would look again at allegations against the influencer from 11 years ago. Mr. Tate was not charged in the case and denies any wrongdoing.`\
 https://nytimes.com/2026/03/27/world/europe/andrew-tate-assault-case-uk.html
 
 **Rubio Expected to Press Allies Over Strait of Hormuz at G7 Meeting**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7150051/2026/03/27/mike-neighbors-mistakes-college-
 **Eagles NFL Draft big board: Potential targets on all 3 days**\
 `The Eagles need to find some key contributors on rookie contracts.`\
 https://nytimes.com/athletic/7144108/2026/03/27/eagles-nfl-draft-big-board-potential-targets-3-days/
-
-**Who would the Hurricanes most (and least) like to play in the playoffs' first round?**\
-`Here are 7 potential opponents, and how the Hurricanes might fare against each.`\
-https://nytimes.com/athletic/7151027/2026/03/27/carolina-hurricanes-playoffs-opponent/
 

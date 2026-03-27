@@ -1,3 +1,11 @@
+**The Pulse: They really forgot 1 player**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7151158/2026/03/27/ncaa-mens-sweet-16-nebraska-iowa-the-pulse/
+
+**U.K. Police to Reinvestigate Sex Crime Allegations Against Andrew Tate**\
+`A police force in England said it would look again at allegations against the influencer from 11 years ago. Mr. Tate was not charged in the case and denies any wrongdoing.`\
+https://nytimes.com/2026/03/27/world/europe/andrew-tate-assault-case-uk.html
+
 **Ravens NFL Draft big board: Examining most logical options at pick No. 14**\
 `Now that Baltimore again owns its 2026 first-round selection, we take a look at seven players who could make sense at pick No. 14. `\
 https://nytimes.com/athletic/7148999/2026/03/27/ravens-big-board-2026-nfl-draft/
