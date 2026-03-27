@@ -1,3 +1,7 @@
+**Arrest Made in ‘Lovers Lane Murders,’ a 1990 Cold Case in Houston**\
+`The authorities charged a Lincoln, Neb., man with capital murder in the brutal killings of a young couple whose bodies were found in a wooded area.`\
+https://nytimes.com/2026/03/27/us/lovers-lane-murder-houston-texas-arrest.html
+
 **Man Accused of Killing College Student in Chicago to Remain in Jail**\
 `Jose Medina, who is accused of being in the country illegally, is charged with murder in the death of Sheridan Gorman, a freshman at Loyola University Chicago.`\
 https://nytimes.com/2026/03/27/us/loyola-shooting-suspect-chicago.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/27/us/arrest-warrant-kentucky-governor-matt-bevin.ht
 **Strikes on Iranian Industry Expand Blows to Civilian Economy**\
 `After Israel said it would intensify attacks on Iran’s industrial infrastructure, major steel plants and other vital plants were struck.`\
 https://nytimes.com/2026/03/27/world/middleeast/iran-strikes-infrastructure-industry.html
-
-**Trinidad Chambliss set to remain Ole Miss QB after NCAA petition denied**\
-`The ruling again clears the way for Chambliss to return to college football as one of the sport’s most exciting quarterbacks.`\
-https://nytimes.com/athletic/7152794/2026/03/27/trinidad-chambliss-ole-miss-ncaa-petition-denied/
 

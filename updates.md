@@ -1,3 +1,7 @@
+**Arrest Made in ‘Lovers Lane Murders,’ a 1990 Cold Case in Houston**\
+`The authorities charged a Lincoln, Neb., man with capital murder in the brutal killings of a young couple whose bodies were found in a wooded area.`\
+https://nytimes.com/2026/03/27/us/lovers-lane-murder-houston-texas-arrest.html
+
 **What We Know About Pay for T.S.A. Workers**\
 `President Trump on Friday directed the Homeland Security Department to pay thousands of airport security officers.`\
 https://nytimes.com/2026/03/27/us/politics/tsa-pay.html
