@@ -1,3 +1,11 @@
+**Idaho Criminalizes Transgender Use of Some Bathrooms in Private Businesses**\
+`The bill passed Friday by the Idaho legislature would make it a crime punishable by up to a year in prison to use a gender-designated bathroom that does not conform to a person’s sex at birth.`\
+https://nytimes.com/2026/03/27/us/idaho-transgender-bathroom-law.html
+
+**Secret Service Agent for Jill Biden Accidentally Shoots Himself in Philadelphia**\
+`Dr. Biden was not present at the time of the shooting at the airport early Friday, and no other injuries were reported, the agency said.`\
+https://nytimes.com/2026/03/27/us/jill-biden-secret-service-shot-philadelphia-airport.html
+
 **The Spirit of Excellence**\
 `How Don Julio González helped transform tequila into a modern-day luxury.`\
 https://nytimes.com/paidpost/don-julio/the-spirit-of-excellence/the-spirit-of-excellence.html
@@ -29,12 +37,4 @@ https://nytimes.com/paidpost/general-mills/tastefuls-gravy-from-blue-buffalo/a-t
 **A Matter of Taste**\
 ` Meet Boots, a discerning cat and wet-food purist with a lot to say about dinner. Using the latest in pet communication technology, we translated her meows into a full-blown food critique of new Tastefuls Gravy from Blue Buffalo. The verdict? A revelation in texture and flavor.`\
 https://nytimes.com/paidpost/general-mills/tastefuls-gravy-from-blue-buffalo/a-matter-of-taste.html
-
-**Mercedes signing Max Verstappen is 'not on', Toto Wolff says**\
-`The four-time world champion has been linked to Wolff's Formula 1 team since 2014.`\
-https://nytimes.com/athletic/7152184/2026/03/27/max-verstappen-mercedes-red-bull-wolff/
-
-**Jason Heyward retires from MLB after 16 seasons**\
-`"I look forward to being a fan and seeing what other ways I can give back," Heyward said when announcing his retirement on MLB Network.`\
-https://nytimes.com/athletic/7152002/2026/03/27/jason-heyward-retires-braves-cubs/
 
