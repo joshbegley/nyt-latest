@@ -1,3 +1,7 @@
+**Senate Votes to Fund Most of D.H.S. in Bid to End Partial Shutdown**\
+`The bill excludes funding for ICE and the Border Patrol but restores it for federal airport security workers. The House could consider the package on Friday.`\
+https://nytimes.com/2026/03/27/us/politics/senate-dhs-ice-shutdown-funding.html
+
 **On an important Opening Day for baseball, hope arrived via home runs, new records — and robots**\
 `Coming off a stellar World Series and World Baseball Classic, MLB has momentum. It felt that way on Thursday, even if a work stoppage looms.`\
 https://nytimes.com/athletic/7151008/2026/03/27/mlb-opening-day-robo-umps-records-skenes/
