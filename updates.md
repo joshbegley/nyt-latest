@@ -1,3 +1,11 @@
+**Assassination Plot Targeting N.Y.C. Palestinian Activist Is Disrupted**\
+`Police and F.B.I. officials did not identify a suspect or motive, but told Nerdeen Kiswani, a co-founder of the pro-Palestinian group Within Our Lifetime, that she had been targeted, her lawyer said.`\
+https://nytimes.com/2026/03/27/nyregion/nerdeen-kiswani-assassination-plot.html
+
+**Argentina's Panichelli, Ligue 1 top scorer, suffers ACL tear in right knee**\
+`The 23-year-old forward will miss the World Cup after sustaining the injury during training this week.`\
+https://nytimes.com/athletic/7151867/2026/03/27/joaquin-panichelli-argentina-injury-strasbourg/
+
 **How to watch Blackhawks vs. Rangers: Time, TV, streaming**\
 `Find out how to watch the Chicago Blackhawks play the New York Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7151923/2026/03/27/blackhawks-vs-rangers-stream-how-to-watch-march-27/

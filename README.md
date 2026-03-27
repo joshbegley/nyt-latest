@@ -1,3 +1,7 @@
+**How to watch Red Wings vs. Sabres: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the Buffalo Sabres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7151932/2026/03/27/red-wings-vs-sabres-stream-how-to-watch-march-27/
+
 **Assassination Plot Targeting N.Y.C. Palestinian Activist Is Disrupted**\
 `Police and F.B.I. officials did not identify a suspect or motive, but told Nerdeen Kiswani, a co-founder of the pro-Palestinian group Within Our Lifetime, that she had been targeted, her lawyer said.`\
 https://nytimes.com/2026/03/27/nyregion/nerdeen-kiswani-assassination-plot.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/27/books/coleman-barks-dead.html
 **How to watch Clippers vs. Pacers: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Indiana Pacers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7151884/2026/03/27/clippers-vs-pacers-stream-how-to-watch-march-27/
-
-**The Promise and Perils of Mamdani’s Millennial Playbook**\
-`There’s a real advantage to being young and governing: being able to work long hours. But there are potential tradeoffs to Mamdani's all-in management style.`\
-https://nytimes.com/2026/03/27/opinion/zohran-mamdani-work-gen-z-millennial.html
 
