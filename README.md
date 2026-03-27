@@ -1,3 +1,7 @@
+**Salah and Liverpool: Why the love affair ended – and what happens now**\
+`The Egyptian's departure has been a long time coming and Liverpool are already starting to plan for a future without him`\
+https://nytimes.com/athletic/7148907/2026/03/27/mohamed-salah-liverpool-exit-future/
+
 **Late Night Disses Trump’s New ‘America First’ Award**\
 `“How many fake trophies that were made specifically for him is this guy going to get?” Seth Meyers asked on Thursday’s “Late Night.”`\
 https://nytimes.com/2026/03/27/arts/television/late-night-trump-america-first-award.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/27/insider/trump-culture-america.html
 **A Rapper Who Won Over Gen Z Now Leads Nepal. Can He Bring Justice?**\
 `A leaked report on the deadly violence and mass arson that broke out last year has put the new leader under pressure to ensure accountability.`\
 https://nytimes.com/2026/03/27/world/asia/nepal-balendra-shah-rapper-prime-minister.html
-
-**Gyokeres's hat-trick for Sweden could also be well-timed for Arsenal's hunt for glory**\
-`Gyokeres' goals helped his country to within one game of this summer’s World Cup finals`\
-https://nytimes.com/athletic/7140626/2026/03/27/viktor-gyokeres-sweden-arsenal-analysis/
 
