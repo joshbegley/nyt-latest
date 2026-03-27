@@ -1,3 +1,11 @@
+**The Windup: Remarkable debuts across Opening Day**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7149150/2026/03/27/opening-day-paul-skenes-the-windup/
+
+**Ben Duckett intent on retaining England Test place and prioritises Notts over IPL**\
+`The England batter has withdrawn from a lucrative contract with the IPL's Delhi Capitals and will instead play in the County Championship`\
+https://nytimes.com/athletic/7151650/2026/03/27/ben-duckett-england-ipl-notts-delhi/
+
 **How to watch North Carolina vs. UConn women's basketball: Sweet 16 Time, TV, streaming**\
 `Find out how to watch the North Carolina Tar Heels play the UConn Huskies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7151705/2026/03/27/north-carolina-vs-uconn-stream-how-to-watch-march-27/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7148381/2026/03/27/clippers-kawhi-leonard-nba-award
 **'A dream come true': Inside Marcus and Nick Foligno's first NHL game together**\
 `The brothers played on the same team for the first time since a high school exhibition in the Wild's win over the Panthers on Thursday.`\
 https://nytimes.com/athletic/7151093/2026/03/27/minnesota-wild-marcus-nick-foligno/
-
-**Many People Will Need Long-Term Care, but Most Don’t Have Insurance to Cover It**\
-`Care for people who can’t take care of themselves is expensive, and regular health insurance doesn’t cover the cost.`\
-https://nytimes.com/2026/03/27/your-money/long-term-care-insurance.html
-
-**Two coaches have dominated the odds for UNC basketball's next coach**\
-`Prediction markets are tracking UNC's open coaching job. How accurate are these odds?`\
-https://nytimes.com/athletic/7149724/2026/03/27/north-carolina-next-coach-odds-billy-donovan-tommy-lloyd/
 
