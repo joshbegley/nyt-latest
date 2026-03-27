@@ -1,3 +1,7 @@
+**Chat live with Eno Sarris at 11am PT!**\
+`Chat live with Eno Sarris today at 11am PT!`\
+https://nytimes.com/athletic/7151898/2026/03/27/eno-sarris-live-chat-march-27/
+
 **Trump on the Dollar: Dismay and Derision**\
 `Reaction to President Trump’s signature on the dollar. Also: Innocent lives lost in Iran; Democrats’ brand; young job seekers; subway announcements; calling all teenagers.`\
 https://nytimes.com/2026/03/27/opinion/trump-dollar.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7151968/2026/03/27/aden-holloway-alabama-status-arr
 **How Camden, N.J., Cut Its Murder Rate to a 40-Year Low**\
 `In their own words, members of the community tell the story of how change came to the city, once among the nation’s deadliest.`\
 https://nytimes.com/interactive/2026/03/27/headway/camden-nj-murder-rate-gun-violence.html
-
-**N.T.S.B. Investigators Document Accident Scene at LaGuardia**\
-`N.T.S.B. investigators documented the aftermath of an accident at LaGuardia Airport on March 22 that left two people dead and dozens injured.`\
-https://nytimes.com/video/us/100000010805433/ntsb-investigators-laguardia-accident-scene.html
 
