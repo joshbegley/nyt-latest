@@ -1,3 +1,7 @@
+**Jamaica 1, New Caledonia 0: Reggae Boyz to face DR Congo for World Cup spot**\
+`Bailey Cadamarteri's first-half goal was the difference between the sides in Guadalajara`\
+https://nytimes.com/athletic/7136319/2026/03/27/jamaica-new-caledonia-world-cup-qualifying-playoff-congo-dr/
+
 **'Leadership, calmness, composure': Why wouldn't United renew Maguire's contract?**\
 `The defender is back in the England squad after 18 months and performing well at club level - here's why United want to keep him at age 33`\
 https://nytimes.com/athletic/7148749/2026/03/27/manchester-united-harry-maguire-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7147459/2026/03/27/chelsea-liam-rosenior-blueco-egh
 **The Faroe Islands, Wary After Greenland, Vote for Change**\
 `Statehood had been a key issue in this tiny Danish archipelago before President Trump threatened Greenland. Now, Faroese voters are focused more on their own economy than geopolitics.`\
 https://nytimes.com/2026/03/27/world/europe/faroe-islands-election-greenland.html
-
-**The Prospects: Divine Mukasa, Leicester City (on loan from Manchester City)**\
-`Our series looking at some of the brightest emerging talents at Premier League academies takes in a young loanee in the Championship`\
-https://nytimes.com/athletic/7143480/2026/03/27/divine-mukasa-manchester-leicester-city-prospects/
 

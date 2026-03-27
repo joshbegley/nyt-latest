@@ -1,3 +1,7 @@
+**Jamaica 1, New Caledonia 0: Reggae Boyz to face DR Congo for World Cup spot**\
+`Bailey Cadamarteri's first-half goal was the difference between the sides in Guadalajara`\
+https://nytimes.com/athletic/7136319/2026/03/27/jamaica-new-caledonia-world-cup-qualifying-playoff-congo-dr/
+
 **'Leadership, calmness, composure': Why wouldn't United renew Maguire's contract?**\
 `The defender is back in the England squad after 18 months and performing well at club level - here's why United want to keep him at age 33`\
 https://nytimes.com/athletic/7148749/2026/03/27/manchester-united-harry-maguire-contract/

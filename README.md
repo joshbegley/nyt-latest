@@ -1,3 +1,7 @@
+**IPL 2026 preview: From CSK's recruitment shift to top-heavy Titans and KKR's gamble on Green**\
+`The first half of our preview for the 2026 tournament features teams destined to challenge, as well as others who may lack cohesion`\
+https://nytimes.com/athletic/7149449/2026/03/27/ipl-2026-csk-delhi-titans-kkr-lucknow-preview/
+
 **Jamaica 1, New Caledonia 0: Reggae Boyz to face DR Congo for World Cup spot**\
 `Bailey Cadamarteri's first-half goal was the difference between the sides in Guadalajara`\
 https://nytimes.com/athletic/7136319/2026/03/27/jamaica-new-caledonia-world-cup-qualifying-playoff-congo-dr/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7146049/2026/03/27/keinan-davis-england-udinese-vil
 **Chelsea need Liam Rosenior to succeed. He is their most BlueCo coaching hire yet**\
 `The head coach has overseen four consecutive defeats across all competitions and been subjected to ridicule online and abuse from the stands`\
 https://nytimes.com/athletic/7147459/2026/03/27/chelsea-liam-rosenior-blueco-eghbali-boehly/
-
-**The Faroe Islands, Wary After Greenland, Vote for Change**\
-`Statehood had been a key issue in this tiny Danish archipelago before President Trump threatened Greenland. Now, Faroese voters are focused more on their own economy than geopolitics.`\
-https://nytimes.com/2026/03/27/world/europe/faroe-islands-election-greenland.html
 
