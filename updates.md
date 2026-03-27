@@ -1,3 +1,15 @@
+**The New York Times in Print for Friday, March 27, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/27/todays-new-york-times
+
+**Iran Has a Chokehold on the World’s Oil. Here’s How to Break It.**\
+`Nations are looking for alternatives to the Strait of Hormuz.`\
+https://nytimes.com/2026/03/27/opinion/hormuz-strait-energy-iran-war.html
+
+**The War in Ukraine Transformed Conflict. Iran Is the Proof.**\
+`Open-ended military conflict in Europe could, at some point, intersect with open-ended military conflict in the Middle East.`\
+https://nytimes.com/2026/03/27/opinion/ukraine-iran-drones.html
+
 **NHL 2025-26 Stanley Cup playoff chances and projected standings**\
 `Welcome to our 2025-26 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
 https://nytimes.com/athletic/6694758/2026/03/27/nhl-2025-26-stanley-cup-playoff-chances-and-projected-standings/

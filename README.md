@@ -1,3 +1,11 @@
+**The Faroe Islands, Wary After Greenland, Vote for Change**\
+`Statehood had been a key issue in this tiny Danish archipelago before President Trump threatened Greenland. Now, Faroese voters are focused more on their own economy than geopolitics.`\
+https://nytimes.com/2026/03/27/world/europe/faroe-islands-election-greenland.html
+
+**The Prospects: Divine Mukasa, Leicester City (on loan from Manchester City)**\
+`Our series looking at some of the brightest emerging talents at Premier League academies takes in a young loanee in the Championship`\
+https://nytimes.com/athletic/7143480/2026/03/27/divine-mukasa-manchester-leicester-city-prospects/
+
 **The New York Times in Print for Friday, March 27, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/27/todays-new-york-times
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000010804745/tsa-trump-payment-shutdown.html
 **Same Shows, Different Prices: Broadway vs. the West End**\
 `Michael Paulson reports from New York, and Alex Marshall reports from London, to compare theater prices for the same shows on both sides of the Atlantic.`\
 https://nytimes.com/video/theater/100000010758946/same-shows-different-prices-broadway-vs-the-west-end.html
-
-**Aryna Sabalenka bests Elena Rybakina to make Miami Open final**\
-`She did it in style, smothering the world No. 2 Rybakina, 6-4, 6-3 in a crisp 79 minutes.`\
-https://nytimes.com/athletic/7150871/2026/03/27/miami-open-aryna-sabalenka-elena-rybakina-coco-gauff/
-
-**Connections: Sports Edition Coach: Hints and answers for March 27, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7151033/2026/03/27/connections-sports-edition-hints-answers-march-27-2026/
 

@@ -1,3 +1,15 @@
+**The New York Times in Print for Friday, March 27, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/27/todays-new-york-times
+
+**Iran Has a Chokehold on the World’s Oil. Here’s How to Break It.**\
+`Nations are looking for alternatives to the Strait of Hormuz.`\
+https://nytimes.com/2026/03/27/opinion/hormuz-strait-energy-iran-war.html
+
+**The War in Ukraine Transformed Conflict. Iran Is the Proof.**\
+`Open-ended military conflict in Europe could, at some point, intersect with open-ended military conflict in the Middle East.`\
+https://nytimes.com/2026/03/27/opinion/ukraine-iran-drones.html
+
 **NHL 2025-26 Stanley Cup playoff chances and projected standings**\
 `Welcome to our 2025-26 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
 https://nytimes.com/athletic/6694758/2026/03/27/nhl-2025-26-stanley-cup-playoff-chances-and-projected-standings/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7150871/2026/03/27/miami-open-aryna-sabalenka-elena
 **Connections: Sports Edition Coach: Hints and answers for March 27, 2026**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/7151033/2026/03/27/connections-sports-edition-hints-answers-march-27-2026/
-
-**In Sleepy Town on Strait of Hormuz, War Rages Just Over Horizon**\
-`For centuries, an Omani exclave has been defined by a peculiar duality: rugged isolation and proximity to one of the world’s most important trade routes.`\
-https://nytimes.com/2026/03/27/world/middleeast/khasab-oman-hormuz-strait.html
-
-**Why Are Theater Tickets So Much Cheaper in London Than New York?**\
-`For half the price of a great seat at a Broadway show, you can see “Paddington” in the West End (if you can find a ticket) and snack on a marmalade sandwich.`\
-https://nytimes.com/2026/03/27/theater/tickets-theater-broadway-west-end-london.html
-
-**The German Military Tightens Its Social Media Rules**\
-`Military members sharing clips on Instagram and TikTok have helped recruit badly needed new soldiers, but Bundeswehr officials said they are concerned about security.`\
-https://nytimes.com/2026/03/27/world/europe/german-military-social-media.html
 
