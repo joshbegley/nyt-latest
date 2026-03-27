@@ -1,3 +1,7 @@
+**Wales and a missed opportunity to play at a World Cup: 'My heart hurts'**\
+`Wales were knocked out of World Cup qualification after losing to Bosnia and Herzegovina on penalties`\
+https://nytimes.com/athletic/7151097/2026/03/27/wales-world-cup-bosnia-analysis/
+
 **Dodgers know a three-peat is within reach. Opening Day was a strong start**\
 `Los Angeles might be set up better than ever to claim another trophy, its third in a row and its fourth in seven seasons.`\
 https://nytimes.com/athletic/7151110/2026/03/27/dodgers-win-diamondbacks-opening-day-three-peat/

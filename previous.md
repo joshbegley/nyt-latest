@@ -1,3 +1,7 @@
+**Wales and a missed opportunity to play at a World Cup: 'My heart hurts'**\
+`Wales were knocked out of World Cup qualification after losing to Bosnia and Herzegovina on penalties`\
+https://nytimes.com/athletic/7151097/2026/03/27/wales-world-cup-bosnia-analysis/
+
 **Dodgers know a three-peat is within reach. Opening Day was a strong start**\
 `Los Angeles might be set up better than ever to claim another trophy, its third in a row and its fourth in seven seasons.`\
 https://nytimes.com/athletic/7151110/2026/03/27/dodgers-win-diamondbacks-opening-day-three-peat/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7146356/2026/03/27/jarrod-bowen-west-ham-england-da
 **The Opta-stat-packification of football: Why are the game's milestones getting weirder?**\
 `To paraphrase the anti-VAR mantra: data itself isn’t the problem, it’s often the people using it`\
 https://nytimes.com/athletic/7143152/2026/03/27/bad-weird-football-stats-opta/
-
-**Marcelo Bielsa returns to England, a nation where he found love**\
-`At Wembley on Friday, there will be Leeds fans in every corner hoping to use the match to properly say goodbye to an icon of their club`\
-https://nytimes.com/athletic/7149795/2026/03/27/marcelo-bielsa-england-uruguay-leeds/
 
