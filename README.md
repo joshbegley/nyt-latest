@@ -1,40 +1,40 @@
-**PFA Player of the Year odds: Declan Rice and Arsenal’s title-chasers lead the way**\
-`While the entertainment value of the 2025-26 Premier League campaign has been debated, nobody can doubt the quality of certain individuals`\
-https://nytimes.com/athletic/7151426/2026/03/27/pfa-player-of-the-year-odds-premier-league-arsenal/
+**He still mows lawns in his hometown. He's also the star of the Elite Eight's biggest surprise**\
+`Bennett Stirtz spent two seasons in Division II and one at Drake before following his coach, Ben McCollum, to Iowa this season.`\
+https://nytimes.com/athletic/7151422/2026/03/27/iowa-basketball-bennett-stirtz-march-madness/
 
-**Why Hannah Hidalgo's quick hands are key to Notre Dame stealing another tournament game**\
-`Notre Dame coach Niele Ivey calls Hidalgo one of the best two-way players she's ever seen. `\
-https://nytimes.com/athletic/7150322/2026/03/27/hannah-hidalgo-steals-notre-dame-ncaa-tournament/
+**U.S. 2031 Women's World Cup bid waiting on Trump guarantees while host cities want better deal**\
+`FIFA has not yet received crucial Trump government guarantees around the 2031 bid from the U.S., Costa Rica, Mexico and Jamaica`\
+https://nytimes.com/athletic/7151022/2026/03/27/us-2031-world-cup-bid-donald-trump/
 
-**Who's the best coach in college football? Who do fans approve of? Our readers weigh in**\
-`More than 3,000 readers voted, and the majority agrees with Bruce Feldman and Stewart Mandel about Curt Cignetti as the No. 1. coach.`\
-https://nytimes.com/athletic/7149776/2026/03/27/best-college-football-coach-fan-vote/
+**Carlos Lagrange among 5 Yankees prospects poised to break out in 2026**\
+`Lagrange leads our list of the five Yankees prospects most likely to break out and help in the Bronx in 2026.`\
+https://nytimes.com/athletic/7138321/2026/03/27/yankees-prospects-2026/
 
-**The Pulse: They really forgot 1 player**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7151158/2026/03/27/ncaa-mens-sweet-16-nebraska-iowa-the-pulse/
+**Commanders mailbag: What will Washington do about its wide receivers?**\
+`Beat writer Nicki Jhabvala offers insight into David Blough's hiring as OC, the Commanders' options in the first round and more.`\
+https://nytimes.com/athletic/7150905/2026/03/27/washington-commanders-wide-receivers-draft/
 
-**Ravens NFL Draft big board: Examining most logical options at pick No. 14**\
-`Now that Baltimore again owns its 2026 first-round selection, we take a look at seven players who could make sense at pick No. 14. `\
-https://nytimes.com/athletic/7148999/2026/03/27/ravens-big-board-2026-nfl-draft/
+**Senator Tommy Tuberville has the right strategy to 'Save College Sports.' ... Really**\
+`Tuberville's proposal focuses on eligibility and transferring. It will appeal to almost every college sports fan. `\
+https://nytimes.com/athletic/7150566/2026/03/27/college-sports-senator-tommy-tuberville-nil/
 
-**Casemiro not thinking about reversing Man Utd decision**\
-`The midfielder confirmed his intention to leave the club on January 22, but has seen a recent upturn in form under Michael Carrick. `\
-https://nytimes.com/athletic/7151400/2026/03/27/casemiro-manchester-united-stay-transfer/
+**Ranking the Group of 6's top 20 head coaches, from Dan Mullen to KC Keeler**\
+`Knowing these names is as important as ever as sitting head coaches have become more valued candidates for bigger jobs.`\
+https://nytimes.com/athletic/7140799/2026/03/27/college-football-coach-rankings-group-of-6/
 
-**U.K. Police to Reinvestigate Sex Crime Allegations Against Andrew Tate**\
-`A police force in England said it would look again at allegations against the influencer from 11 years ago. Mr. Tate was not charged in the case and denies any wrongdoing.`\
-https://nytimes.com/2026/03/27/world/europe/andrew-tate-assault-case-uk.html
+**From Mexico to Marsch's roster, inside Marcelo Flores' dramatic Canada switch**\
+`The Tigres playmaker could be a difference maker for Canada at the World Cup after switching his international allegiance`\
+https://nytimes.com/athletic/7150840/2026/03/27/marcelo-flores-canada-mexico-world-cup-marsch/
 
-**Rubio Expected to Press Allies Over Strait of Hormuz at G7 Meeting**\
-`The meeting in France is slated to discuss efforts to stop the war in the Middle East, end Iran’s nuclear and ballistic missile development, and reopen maritime trade routes.`\
-https://nytimes.com/2026/03/27/world/middleeast/iran-rubio-g7-france.html
+**Evaluating Chris Drury's recent trades as he attempts to retool the Rangers**\
+`With the 2026 trade deadline behind us and more moves looming in the summer, it’s a good time to look back.`\
+https://nytimes.com/athletic/7150146/2026/03/27/rangers-chris-drury-trades-retool/
 
-**Bitter-Swede symphony: Karlsson, Rakell lift Penguins after Crosby leaves with injury**\
-`Even after losing their captain, the Penguins played a fantastic second period and held on for a shootout win.`\
-https://nytimes.com/athletic/7150865/2026/03/27/penguins-crosby-injury-karlsson-rakell-senators/
+**The best food items at MLB parks this season, and how some of them came to be**\
+`Say goodbye to the boring hot dog and Cracker Jack. Instead, take on chicken and churros or smashed crab tacos.  `\
+https://nytimes.com/athletic/7148318/2026/03/27/mlb-opening-day-2026-food-items/
 
-**Tippett continues to spearhead Flyers' playoff push: 'He dragged everybody into the fight'**\
-`Tippett wasn’t one of the Flyers’ five goal scorers in their win over the Blackhawks, but he had his fingerprints all over the result.`\
-https://nytimes.com/athletic/7150948/2026/03/27/owen-tippett-flyers-playoff-push/
+**Your Suck-up Chatbot**\
+`We explain the implications of A.I. being so sychophantic.`\
+https://nytimes.com/2026/03/27/briefing/your-suck-up-chatbot.html
 
