@@ -1,5 +1,13 @@
-**Silvestri leaves hospital after six days following Milan-Sanremo crash**\
-`The 27-year-old sustained several broken ribs, a fractured collar-bone, and a bruised left lung after what she said was a "shocking fall".`\
+**United Airlines Flight Avoids Collision With Military Helicopter in California**\
+`The Federal Aviation Administration said it was investigating after a helicopter crossed into the path of United Airlines Flight 589.`\
+https://nytimes.com/2026/03/27/us/united-airlines-helicopter-california-faa.html
+
+**Ukraine's World Cup dream is ended by Sweden, despite the defiance of a four-year exile**\
+`Aiming to qualify for a first World Cup in 20 years, Ukraine lost 3-1 to Sweden in Thursday's qualification play-off semi-final in Spain`\
+https://nytimes.com/athletic/7151396/2026/03/27/ukraine-world-cup-sweden-qualification-spain/
+
+**Silvestri leaves hospital six days after Milan-Sanremo crash**\
+`The 27-year-old sustained several broken ribs, a fractured collar-bone, and a bruised left lung after the fall. `\
 https://nytimes.com/athletic/7151599/2026/03/27/debora-silvestri-milan-sanremo-cycling-crash-hospital/
 
 **Soaring Diesel Prices Set Off Transport Strike in Philippines**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7148659/2026/03/27/edmonton-oilers-defenceman-ty-em
 **Ukraine signed a defense cooperation agreement with Saudi Arabia, Zelensky says.**\
 `By Maria Varenikova`\
 https://nytimes.com/live/2026/03/27/world/iran-war-trump-oil-israel/ukraine-signed-a-defense-cooperation-agreement-with-saudi-arabia-zelensky-says
-
-**Trump Administration Live Updates: Senate Votes to Fund Most of D.H.S. in Bid to End Airport Crisis**\
-``\
-https://nytimes.com/live/2026/03/27/us/trump-news
-
-**Savannah Guthrie Is Returning to ‘Today’**\
-`NBC said that she would return as an anchor of the show on April 6, a little more than two months after the disappearance of her mother.`\
-https://nytimes.com/2026/03/27/business/media/savannah-guthrie-today.html
 

@@ -1,3 +1,15 @@
+**United Airlines Flight Avoids Collision With Military Helicopter in California**\
+`The Federal Aviation Administration said it was investigating after a helicopter crossed into the path of United Airlines Flight 589.`\
+https://nytimes.com/2026/03/27/us/united-airlines-helicopter-california-faa.html
+
+**Ukraine's World Cup dream is ended by Sweden, despite the defiance of a four-year exile**\
+`Aiming to qualify for a first World Cup in 20 years, Ukraine lost 3-1 to Sweden in Thursday's qualification play-off semi-final in Spain`\
+https://nytimes.com/athletic/7151396/2026/03/27/ukraine-world-cup-sweden-qualification-spain/
+
+**Silvestri leaves hospital six days after Milan-Sanremo crash**\
+`The 27-year-old sustained several broken ribs, a fractured collar-bone, and a bruised left lung after the fall. `\
+https://nytimes.com/athletic/7151599/2026/03/27/debora-silvestri-milan-sanremo-cycling-crash-hospital/
+
 **Silvestri leaves hospital after six days following Milan-Sanremo crash**\
 `The 27-year-old sustained several broken ribs, a fractured collar-bone, and a bruised left lung after what she said was a "shocking fall".`\
 https://nytimes.com/athletic/7151599/2026/03/27/debora-silvestri-milan-sanremo-cycling-crash-hospital/
