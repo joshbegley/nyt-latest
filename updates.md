@@ -1,3 +1,23 @@
+**Spiking Diesel Prices Mean Everything Will Get More Expensive**\
+`Diesel has climbed faster than gasoline this month, directly hitting businesses, from brewers to trucking companies. Those higher costs are likely to make their way into consumer prices.`\
+https://nytimes.com/2026/03/27/business/diesel-prices-inflation-consumer-prices.html
+
+**USWNT's Macario joins San Diego Wave from Chelsea**\
+`Macario, who was the USWNT’s top goal scorer in 2025, will return to her hometown of San Diego on a contract to 2030.`\
+https://nytimes.com/athletic/7151314/2026/03/27/macario-san-diego-wave-chelsea-transfer/
+
+**The time has arrived for the USMNT to end its Euro curse at the World Cup**\
+`The USA has a dismal World Cup record against European opponents - and the chance to change it`\
+https://nytimes.com/athletic/7151109/2026/03/27/usmnt-world-cup-pochettino-european/
+
+**Did Scientists Just Detect an Exploding Black Hole?**\
+`An underwater observatory recently detected a startlingly energetic cosmic neutrino. One possible cause involves a phenomenon that so far exists only in theory.`\
+https://nytimes.com/2026/03/27/science/astrophysics-neutrinos-black-holes.html
+
+**Energy Crisis Forces India’s Eateries to Adapt**\
+`A small street stall and a big restaurant chain in India rethought how to cook after the war in the Middle East squeezed their supply of liquified petroleum gas.`\
+https://nytimes.com/video/world/asia/100000010791678/iran-war-india-cooking-gas.html
+
 **The Bounce: Does Victor Wembanyama's MVP case hold water?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7151689/2026/03/27/the-bounce-does-victor-wembanyamas-mvp-case-hold-water/
