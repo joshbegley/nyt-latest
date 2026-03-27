@@ -1,3 +1,7 @@
+**Alexander Kluge, a Lodestar in New German Cinema Movement, Dies at 94**\
+`A film director, movie theorist and author, he was widely regarded as one of his country’s towering artists and intellectuals.`\
+https://nytimes.com/2026/03/27/movies/alexander-kluge-dead.html
+
 **Justice Dept. Scrutinizes Transgender Prisoner Housing in California and Maine**\
 `The investigations are the latest moves by the Trump administration to force prisons to house transgender women with male inmates.`\
 https://nytimes.com/2026/03/27/us/doj-transgender-prison-housing-california-maine.html
