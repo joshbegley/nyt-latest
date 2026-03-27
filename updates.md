@@ -1,3 +1,11 @@
+**Why the Verdict Against Meta and YouTube Could Change Social Media**\
+`In a landmark case, a jury found Meta and YouTube guilty of creating products that were addictive. Ryan Mac explains the outcome and what it could mean for tech companies going forward.`\
+https://nytimes.com/video/technology/100000010801833/why-the-verdict-against-meta-and-youtube-could-change-social-media.html
+
+**St. John’s is more proof Rick Pitino’s greatness survived his devastating loss to Duke**\
+`Pitino, a Hall of Fame motivator and strategist, carries a 12-1 career regional semifinal record into Friday night's Sweet 16 matchup.`\
+https://nytimes.com/athletic/7150323/2026/03/26/rick-pitino-st-johns-duke-march-madness-ncaa-tournament/
+
 **Judge Stays Pentagon’s Labeling of Anthropic as ‘Supply Chain Risk’**\
 `The decision is an early victory for the artificial intelligence company in a rancorous legal battle with the Department of Justice.`\
 https://nytimes.com/2026/03/26/technology/anthropic-pentagon-risk-injunction.html
