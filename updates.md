@@ -1,3 +1,15 @@
+**Alabama guard Aden Holloway cleared to travel out of state ahead of Sweet 16**\
+`The university's office of student conduct removed Holloway from campus following his arrest on March 16.`\
+https://nytimes.com/athletic/7151968/2026/03/27/aden-holloway-alabama-status-arrest-charges/
+
+**How Camden, N.J., Cut Its Murder Rate to a 40-Year Low**\
+`In their own words, members of the community tell the story of how change came to the city, once among the nation’s deadliest.`\
+https://nytimes.com/interactive/2026/03/27/headway/camden-nj-murder-rate-gun-violence.html
+
+**N.T.S.B. Investigators Document Accident Scene at LaGuardia**\
+`N.T.S.B. investigators documented the aftermath of an accident at LaGuardia Airport on March 22 that left two people dead and dozens injured.`\
+https://nytimes.com/video/us/100000010805433/ntsb-investigators-laguardia-accident-scene.html
+
 **Japan and the U.S. Agree to Team Up on Seabed Mining**\
 `The arrangement could signal a fracture in the decades-long effort among nations to reach consensus on how to mine the ocean floor while protecting ecosystems.`\
 https://nytimes.com/2026/03/27/climate/japan-united-states-seabed-mining.html
