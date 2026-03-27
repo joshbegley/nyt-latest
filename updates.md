@@ -1,3 +1,11 @@
+**Stocks Sink and Oil Dips After Trump Delays Threat to Bomb Iran**\
+`President Trump said on Thursday he would delay an imminent deadline to begin attacking Iran’s power grid.`\
+https://nytimes.com/2026/03/26/business/gas-oil-gas-prices-iran.html
+
+**Blackhawks' team of the future gets even closer with Sacha Boisvert's NHL debut**\
+`The Blackhawks played their youngest team yet in a 5-1 loss to the Flyers, with Boisvert playing nine minutes on the fourth line.`\
+https://nytimes.com/athletic/7150161/2026/03/26/blackhawks-sacha-boisvert-debut-vlasic-crevier-flyers/
+
 **Man posed as adult film star to scam NFL and NBA players, prosecutors say**\
 `Kwamaine Jerell Ford has been charged with targeting pro athletes in a phishing scam that turned into a fraud and sex trafficking scheme.`\
 https://nytimes.com/athletic/7150696/2026/03/26/nfl-nba-players-phishing-scheme-fraud-sex/
