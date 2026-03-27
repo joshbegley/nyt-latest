@@ -1,3 +1,11 @@
+**White House Vows to Pay T.S.A. Workers as Partial Shutdown Continues**\
+`Also, consumers are feeling the costs of the Iran war. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2026/03/27/briefing/tsa-workers-pay-global-food-supply.html
+
+**Ipswich chairman apologises 'unreservedly' for Nigel Farage visit**\
+`Farage, the leader of Reform UK and long-time ally of U.S. President Donald Trump, visited Portman Road on Monday`\
+https://nytimes.com/athletic/7152561/2026/03/27/ipswich-chairman-sorry-apology-nigel-farage/
+
 **What to Know About Zillow’s Major New Listings Feature**\
 `The massive real estate marketplace just changed its tune around pre-market listings, shifting the landscape for brokers and buyers.`\
 https://nytimes.com/2026/03/27/realestate/zillow-preview-explainer-listings.html

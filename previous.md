@@ -1,3 +1,11 @@
+**White House Vows to Pay T.S.A. Workers as Partial Shutdown Continues**\
+`Also, consumers are feeling the costs of the Iran war. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2026/03/27/briefing/tsa-workers-pay-global-food-supply.html
+
+**Ipswich chairman apologises 'unreservedly' for Nigel Farage visit**\
+`Farage, the leader of Reform UK and long-time ally of U.S. President Donald Trump, visited Portman Road on Monday`\
+https://nytimes.com/athletic/7152561/2026/03/27/ipswich-chairman-sorry-apology-nigel-farage/
+
 **What to Know About Zillow’s Major New Listings Feature**\
 `The massive real estate marketplace just changed its tune around pre-market listings, shifting the landscape for brokers and buyers.`\
 https://nytimes.com/2026/03/27/realestate/zillow-preview-explainer-listings.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/opinion/100000010795930/can-trump-claim-victory-in-ira
 **New York City Ballet Pulls Out of Kennedy Center Performances**\
 `The decision by the company, one of the most prestigious in the country, is the latest in a wave of high-profile cancellations at the center.`\
 https://nytimes.com/2026/03/27/arts/dance/kennedy-center-new-york-city-ballet.html
-
-**At CPAC, the ‘America First’ Crowd Ponders Giving War a Chance**\
-`The Conservative Political Action Conference has been an America First gathering for years, but with President Trump pursuing war in Iran, organizers have tried to make a shift, with mixed results.`\
-https://nytimes.com/2026/03/27/us/politics/cpac-trump-iran-war.html
-
-**Government Trolls Sling Memes in the Online Trenches of Mideast War**\
-`Officials in Tehran and Washington alike are trading taunts in English, often using American pop culture references.`\
-https://nytimes.com/2026/03/27/world/middleeast/iran-war-memes-propaganda.html
 
