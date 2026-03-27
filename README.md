@@ -1,3 +1,7 @@
+**Red Light: The NHL playoff races heat up. Plus: Another trophy for MacKinnon?**\
+`Another busy one with 13 games last night, so let’s get you up to date on what’s happening around the league.`\
+https://nytimes.com/athletic/7151786/2026/03/27/the-nhl-playoff-races-heat-up-plus-another-trophy-for-mackinnon/
+
 **Lions' Terrion Arnold's named in texts tied to robbery, kidnapping plot**\
 `Arnold has not been charged, and did not send or receive any of the text messages discovered by investigators.`\
 https://nytimes.com/athletic/7151185/2026/03/27/lions-terrion-arnold-texts/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/27/business/diesel-prices-inflation-consumer-prices.
 **USWNT's Macario joins San Diego Wave from Chelsea**\
 `Macario, who was the USWNT’s top goal scorer in 2025, will return to her hometown of San Diego on a contract to 2030.`\
 https://nytimes.com/athletic/7151314/2026/03/27/macario-san-diego-wave-chelsea-transfer/
-
-**The time has arrived for the USMNT to end its Euro curse at the World Cup**\
-`The USA has a dismal World Cup record against European opponents - and the chance to change it`\
-https://nytimes.com/athletic/7151109/2026/03/27/usmnt-world-cup-pochettino-european/
 

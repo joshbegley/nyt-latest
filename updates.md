@@ -1,3 +1,15 @@
+**Lions' Terrion Arnold's named in texts tied to robbery, kidnapping plot**\
+`Arnold has not been charged, and did not send or receive any of the text messages discovered by investigators.`\
+https://nytimes.com/athletic/7151185/2026/03/27/lions-terrion-arnold-texts/
+
+**Global Food Supply Faces a Dangerous Bottleneck as Iran War Persists**\
+`Fertilizer prices are climbing as a result of disruptions in the Middle East, putting global food supplies at risk.`\
+https://nytimes.com/2026/03/27/business/economy/fertilizer-food-supply-iran-war.html
+
+**Jesse Roth, Who Advanced the Understanding of Diabetes, Dies at 91**\
+`His research showed that Type 2 diabetes was caused by insulin resistance at the cellular level, a controversial idea that initially met with disbelief.`\
+https://nytimes.com/2026/03/27/science/jesse-roth-dead.html
+
 **5 Takeaways From ‘BTS: The Return’**\
 `Netflix’s documentary about the superstar K-pop group’s comeback after a four-year hiatus showcases its creative process, brotherhood and anxieties about fame.`\
 https://nytimes.com/2026/03/27/arts/music/bts-the-return-documentary.html

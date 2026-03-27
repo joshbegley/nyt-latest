@@ -1,3 +1,15 @@
+**Lions' Terrion Arnold's named in texts tied to robbery, kidnapping plot**\
+`Arnold has not been charged, and did not send or receive any of the text messages discovered by investigators.`\
+https://nytimes.com/athletic/7151185/2026/03/27/lions-terrion-arnold-texts/
+
+**Global Food Supply Faces a Dangerous Bottleneck as Iran War Persists**\
+`Fertilizer prices are climbing as a result of disruptions in the Middle East, putting global food supplies at risk.`\
+https://nytimes.com/2026/03/27/business/economy/fertilizer-food-supply-iran-war.html
+
+**Jesse Roth, Who Advanced the Understanding of Diabetes, Dies at 91**\
+`His research showed that Type 2 diabetes was caused by insulin resistance at the cellular level, a controversial idea that initially met with disbelief.`\
+https://nytimes.com/2026/03/27/science/jesse-roth-dead.html
+
 **5 Takeaways From ‘BTS: The Return’**\
 `Netflix’s documentary about the superstar K-pop group’s comeback after a four-year hiatus showcases its creative process, brotherhood and anxieties about fame.`\
 https://nytimes.com/2026/03/27/arts/music/bts-the-return-documentary.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7151314/2026/03/27/macario-san-diego-wave-chelsea-t
 **The time has arrived for the USMNT to end its Euro curse at the World Cup**\
 `The USA has a dismal World Cup record against European opponents - and the chance to change it`\
 https://nytimes.com/athletic/7151109/2026/03/27/usmnt-world-cup-pochettino-european/
-
-**Did Scientists Just Detect an Exploding Black Hole?**\
-`An underwater observatory recently detected a startlingly energetic cosmic neutrino. One possible cause involves a phenomenon that so far exists only in theory.`\
-https://nytimes.com/2026/03/27/science/astrophysics-neutrinos-black-holes.html
-
-**Energy Crisis Forces India’s Eateries to Adapt**\
-`A small street stall and a big restaurant chain in India rethought how to cook after the war in the Middle East squeezed their supply of liquified petroleum gas.`\
-https://nytimes.com/video/world/asia/100000010791678/iran-war-india-cooking-gas.html
-
-**The Bounce: Does Victor Wembanyama's MVP case hold water?**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/7151689/2026/03/27/the-bounce-does-victor-wembanyamas-mvp-case-hold-water/
 
