@@ -1,3 +1,7 @@
+**PFA Player of the Year odds: Declan Rice and Arsenal’s title-chasers lead the way**\
+`While the entertainment value of the 2025-26 Premier League campaign has been debated, nobody can doubt the quality of certain individuals`\
+https://nytimes.com/athletic/7151426/2026/03/27/pfa-player-of-the-year-odds-premier-league-arsenal/
+
 **Why Hannah Hidalgo's quick hands are key to Notre Dame stealing another tournament game**\
 `Notre Dame coach Niele Ivey calls Hidalgo one of the best two-way players she's ever seen. `\
 https://nytimes.com/athletic/7150322/2026/03/27/hannah-hidalgo-steals-notre-dame-ncaa-tournament/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7150865/2026/03/27/penguins-crosby-injury-karlsson-
 **Tippett continues to spearhead Flyers' playoff push: 'He dragged everybody into the fight'**\
 `Tippett wasn’t one of the Flyers’ five goal scorers in their win over the Blackhawks, but he had his fingerprints all over the result.`\
 https://nytimes.com/athletic/7150948/2026/03/27/owen-tippett-flyers-playoff-push/
-
-**Sliders: Meet the new Rockies coach on a mission to solve MLB's toughest pitching problem**\
-`It's the 2026 debut of Sliders, a weekly in-season MLB column that focuses on both the timely and timeless elements of baseball.`\
-https://nytimes.com/athletic/7149043/2026/03/27/colorado-rockies-pitching-coach-alon-leichman/
 

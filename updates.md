@@ -1,3 +1,7 @@
+**PFA Player of the Year odds: Declan Rice and Arsenal’s title-chasers lead the way**\
+`While the entertainment value of the 2025-26 Premier League campaign has been debated, nobody can doubt the quality of certain individuals`\
+https://nytimes.com/athletic/7151426/2026/03/27/pfa-player-of-the-year-odds-premier-league-arsenal/
+
 **Why Hannah Hidalgo's quick hands are key to Notre Dame stealing another tournament game**\
 `Notre Dame coach Niele Ivey calls Hidalgo one of the best two-way players she's ever seen. `\
 https://nytimes.com/athletic/7150322/2026/03/27/hannah-hidalgo-steals-notre-dame-ncaa-tournament/
