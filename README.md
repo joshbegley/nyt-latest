@@ -1,4 +1,4 @@
-**Joe Gibbs Racing alleges Gabehart, Spire conspired to steal propriety data**\
+**Joe Gibbs Racing alleges Gabehart, Spire conspired to steal proprietary data**\
 `A temporary restraining order was extended 14 days, allowing Gabehart to work with Spire Motorsports as JGR's lawsuit continues.`\
 https://nytimes.com/athletic/7150560/2026/03/26/joe-gibbs-racing-chris-gabehart-spire-motorsports-lawsuit-update/
 
