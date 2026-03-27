@@ -1,3 +1,11 @@
+**Assassination Plot Targeting N.Y.C. Palestinian Activist Is Disrupted**\
+`Police and F.B.I. officials did not identify a suspect or motive, but told Nerdeen Kiswani, a co-founder of the pro-Palestinian group Within Our Lifetime, that she had been targeted, her lawyer said.`\
+https://nytimes.com/2026/03/27/nyregion/nerdeen-kiswani-assassination-plot.html
+
+**Argentina's Panichelli, Ligue 1 top scorer, suffers ACL tear in right knee**\
+`The 23-year-old forward will miss the World Cup after sustaining the injury during training this week.`\
+https://nytimes.com/athletic/7151867/2026/03/27/joaquin-panichelli-argentina-injury-strasbourg/
+
 **How to watch Blackhawks vs. Rangers: Time, TV, streaming**\
 `Find out how to watch the Chicago Blackhawks play the New York Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7151923/2026/03/27/blackhawks-vs-rangers-stream-how-to-watch-march-27/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7151884/2026/03/27/clippers-vs-pacers-stream-how-to
 **The Promise and Perils of Mamdani’s Millennial Playbook**\
 `There’s a real advantage to being young and governing: being able to work long hours. But there are potential tradeoffs to Mamdani's all-in management style.`\
 https://nytimes.com/2026/03/27/opinion/zohran-mamdani-work-gen-z-millennial.html
-
-**Sometimes the Simplest Salmon Is the Best Salmon**\
-`Mark Bittman’s salmon roasted in butter, and more of our most popular recipes from the week.`\
-https://nytimes.com/2026/03/27/dining/sometimes-the-simplest-salmon-is-the-best-salmon.html
-
-**Five Horror Movies to Stream Now**\
-`This month brings paranoid psychopaths, ungodly subjugations and fiery suspicions.`\
-https://nytimes.com/2026/03/27/movies/five-horror-movies-to-stream-now.html
 
