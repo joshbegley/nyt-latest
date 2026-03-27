@@ -1,3 +1,7 @@
+**Overlooked No More: Gertrude Chandler Warner, Author of ‘The Boxcar Children’**\
+`Her best-selling series, about four children who live in a train car and solve mysteries, inspired sequels, spinoffs and animated films.`\
+https://nytimes.com/2026/03/27/obituaries/gertrude-chandler-warner-overlooked.html
+
 **White House Vows to Pay T.S.A. Workers as Partial Shutdown Continues**\
 `Also, consumers are feeling the costs of the Iran war. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2026/03/27/briefing/tsa-workers-pay-global-food-supply.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/03/27/magazine/kennedy-maha-youth-wellness-
 **Can Trump Claim Victory in Iran?**\
 `Is this really what winning the war with Iran looks like? Mark Dubowitz, the chief executive of the Foundation for Defense of Democracies, joins Ross Douthat on “Interesting Times” to make the case that Operation Epic Fury has degraded Iran’s military power enough to make victory achievable.`\
 https://nytimes.com/video/opinion/100000010795930/can-trump-claim-victory-in-iran.html
-
-**New York City Ballet Pulls Out of Kennedy Center Performances**\
-`The decision by the company, one of the most prestigious in the country, is the latest in a wave of high-profile cancellations at the center.`\
-https://nytimes.com/2026/03/27/arts/dance/kennedy-center-new-york-city-ballet.html
 
