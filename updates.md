@@ -1,3 +1,7 @@
+**NHL 2025-26 Stanley Cup playoff chances and projected standings**\
+`Welcome to our 2025-26 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
+https://nytimes.com/athletic/6694758/2026/03/27/nhl-2025-26-stanley-cup-playoff-chances-and-projected-standings/
+
 **If the NHL playoffs started today: Projecting all 8 matchups and analyzing the teams**\
 `A handful of teams continue to jostle for playoff spots in the Eastern and Western Conferences, including teams just on the outside.`\
 https://nytimes.com/athletic/7128499/2026/03/27/nhl-playoffs-matchups-projections-2026/
