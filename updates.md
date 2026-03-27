@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Senate Votes to Fund Most of D.H.S. in Bid to End Airport Crisis**\
+``\
+https://nytimes.com/live/2026/03/27/us/trump-news
+
 **Soaring Diesel Prices Set Off Transport Strike in Philippines**\
 `Transport workers in Manila walked off the job to protest the rising cost of fuel, as the war in the Middle East causes a national energy emergency.`\
 https://nytimes.com/2026/03/27/world/middleeast/manila-jeepney-drivers-strike-fuel.html
