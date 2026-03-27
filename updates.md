@@ -1,3 +1,11 @@
+**Same Shows, Different Prices: Broadway vs. the West End**\
+`Michael Paulson reports from New York, and Alex Marshall reports from London, to compare theater prices for the same shows on both sides of the Atlantic.`\
+https://nytimes.com/video/theater/100000010758946/same-shows-different-prices-broadway-vs-the-west-end.html
+
+**Aryna Sabalenka bests Elena Rybakina to make Miami Open final**\
+`She did it in style, smothering the world No. 2 Rybakina, 6-4, 6-3 in a crisp 79 minutes.`\
+https://nytimes.com/athletic/7150871/2026/03/27/miami-open-aryna-sabalenka-elena-rybakina-coco-gauff/
+
 **Connections: Sports Edition Coach: Hints and answers for March 27, 2026**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/7151033/2026/03/27/connections-sports-edition-hints-answers-march-27-2026/
