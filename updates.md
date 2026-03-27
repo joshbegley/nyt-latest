@@ -1,3 +1,7 @@
+**Two coaches have dominated the odds for UNC basketball's next coach**\
+`Prediction markets are tracking UNC's open coaching job. How accurate are these odds?`\
+https://nytimes.com/athletic/7149724/2026/03/27/north-carolina-next-coach-odds-billy-donovan-tommy-lloyd/
+
 **Nottingham Forest accounts analysed: £71m loss, Ange pay-off, and another big departure needed?**\
 `With a relegation fight still to be won, four managers employed and an upcoming stadium revamp, running the club is unlikely to get cheaper`\
 https://nytimes.com/athletic/7151374/2026/03/27/nottingham-forest-accounts-premier-league/
