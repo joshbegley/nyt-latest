@@ -1,3 +1,11 @@
+**On Opening Day, Orioles unveil new stadium upgrades and the vibes to match**\
+`Much of Opening Day in Baltimore is the same, it's tradition. But the rest had a new energy to it, from the new players to the new manager.`\
+https://nytimes.com/athletic/7150398/2026/03/26/baltimore-orioles-opening-day-stadium-vibes/
+
+**Cubs' ugly loss to start the season shouldn't dim optimism**\
+`The Cubs fell to the Nationals on Opening Day, but there are plenty of reasons to remain hopeful about the season.`\
+https://nytimes.com/athletic/7150340/2026/03/26/cubs-opening-day-loss-optimism/
+
 **Italy Says It Has Recovered $23 Million Stolen From First ‘Bond Girl’**\
 `The Swiss actress Ursula Andress, whose breakthrough came in “Dr. No” in 1962, accused a former wealth manager of embezzlement. He died in an apparent suicide last year.`\
 https://nytimes.com/2026/03/26/world/europe/ursula-andress-bond-stolen-assets-italy.html
