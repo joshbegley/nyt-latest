@@ -1,3 +1,7 @@
+**Why the Ancient City of Arles Continues to Enchant**\
+`The Roman colony turned artists’ haven is rich with ruins and creative energy.`\
+https://nytimes.com/2026/03/27/t-magazine/arles-france-guide-restaurants-hotels.html
+
 **Another Senior House Republican Will Retire as Midterm Exodus Grows**\
 `Representative Sam Graves, the chairman of the Transportation and Infrastructure Committee, said he would leave Congress after nearly three decades, the latest sign that the G.O.P. is bracing for big losses.`\
 https://nytimes.com/2026/03/27/us/politics/sam-graves-retirement.html
