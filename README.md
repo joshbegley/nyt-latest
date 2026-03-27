@@ -1,3 +1,7 @@
+**Mercedes signing Max Verstappen is 'not on', Toto Wolff says**\
+`The four-time world champion has been linked to Wolff's Formula 1 team since 2014.`\
+https://nytimes.com/athletic/7152184/2026/03/27/max-verstappen-mercedes-red-bull-wolff/
+
 **Jason Heyward retires from MLB after 16 seasons**\
 `"I look forward to being a fan and seeing what other ways I can give back," Heyward said when announcing his retirement on MLB Network.`\
 https://nytimes.com/athletic/7152002/2026/03/27/jason-heyward-retires-braves-cubs/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/27/style/letizia-mowinckel-dead.html
 **How to watch Bulls vs. Thunder: Time, TV, streaming**\
 `Find out how to watch the Chicago Bulls play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7152156/2026/03/27/bulls-vs-thunder-stream-how-to-watch-march-27/
-
-**How to watch Jazz vs. Nuggets: Time, TV, streaming**\
-`Find out how to watch the Utah Jazz play the Denver Nuggets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7152154/2026/03/27/jazz-vs-nuggets-stream-how-to-watch-march-27/
 
