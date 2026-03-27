@@ -1,3 +1,7 @@
+**New York City Ballet Pulls Out of Kennedy Center Performances**\
+`The decision by the company, one of the most prestigious in the country, is the latest in a wave of high-profile cancellations at the center.`\
+https://nytimes.com/2026/03/27/arts/dance/kennedy-center-new-york-city-ballet.html
+
 **At CPAC, the ‘America First’ Crowd Ponders Giving War a Chance**\
 `The Conservative Political Action Conference has been an America First gathering for years, but with President Trump pursuing war in Iran, organizers have tried to make a shift, with mixed results.`\
 https://nytimes.com/2026/03/27/us/politics/cpac-trump-iran-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7152315/2026/03/27/leeds-united-andrea-dracopoulos-
 **How to watch Tennessee vs. Iowa State men's basketball: Sweet 16 Time, TV, streaming**\
 `Find out how to watch the Tennessee Volunteers play the Iowa State Cyclones, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7152457/2026/03/27/tennessee-vs-iowa-state-stream-how-to-watch-march-27/
-
-**Book Club: Let’s Talk About ‘Kin,’ by Tayari Jones**\
-`Jones’s new novel follows two motherless girls and their lifelong search for family.`\
-https://nytimes.com/2026/03/27/podcasts/book-club-lets-talk-about-kin-by-tayari-jones.html
 
