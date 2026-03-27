@@ -1,4 +1,8 @@
-**Yankees make franchise history by securing back-to-back shutouts to start season**\
+**More heartbreak for Amber Glenn, who falls short of medal at World Championships**\
+`In her final competitive program of the season, the U.S. star delivered the full Glenn experience: a mix of beauty and struggle.`\
+https://nytimes.com/athletic/7152669/2026/03/27/amber-glenn-isu-world-championships-2026/
+
+**Yankees make franchise history by starting season with back-to-back shutouts**\
 `With their 3-0 win over the Giants on Friday afternoon, the Yankees opened the season with back-to-back shutouts for the first time.`\
 https://nytimes.com/athletic/7152913/2026/03/27/yankees-pitchers-shutouts-start-season-franchise-history/
 
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/03/27/us/southern-california-quake-tracker.
 **Florida AG calls NFL's Rooney Rule unlawful; league says it is 'consistent' with it**\
 `The Florida attorney general demanded that the NFL stop enforcing the Rooney Rule for its three Florida-based franchises.`\
 https://nytimes.com/athletic/7152645/2026/03/27/rooney-rule-florida-attorney-general/
-
-**Arrest Warrant for Former Kentucky Governor Canceled by Appeals Court**\
-`The court decided the warrant was invalid, because it came after the former governor, Matt Bevin, had filed to disqualify a judge from his child-support case, accusing her of bias.`\
-https://nytimes.com/2026/03/27/us/arrest-warrant-kentucky-governor-matt-bevin.html
 
