@@ -22,7 +22,7 @@ https://nytimes.com/athletic/7152831/2026/03/27/john-textor-eagle-football-admin
 `The company, which Letitia James found was operating illegally in the state, also was fined $875,000 as part of a settlement.`\
 https://nytimes.com/2026/03/27/nyregion/prison-medical-care-new-york.html
 
-**Map: 4.2-Magnitude Earthquake Shakes Southern California**\
+**Map: 4.1-Magnitude Earthquake Shakes Southern California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2026/03/27/us/southern-california-quake-tracker.html
 
