@@ -1,3 +1,7 @@
+**Energy Crisis Forces India’s Eateries to Adapt**\
+`A small street stall and a big restaurant chain in India rethought how to cook after the war in the Middle East squeezed their supply of liquified petroleum gas.`\
+https://nytimes.com/video/world/asia/100000010791678/iran-war-india-cooking-gas.html
+
 **The Bounce: Does Victor Wembanyama's MVP case hold water?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7151689/2026/03/27/the-bounce-does-victor-wembanyamas-mvp-case-hold-water/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7151676/2026/03/27/yankees-vs-giants-stream-how-to-
 **Pistons are driving opponents crazy with defense, and, like their franchise forebears, winning**\
 `Detroit has been the East's best team this season by leaning into the defense-first ethos of the Pistons' past championship teams.`\
 https://nytimes.com/athletic/7140649/2026/03/27/pistons-defense-revive-winning-franchise/
-
-**Kawhi Leonard isn't just balling out this season. He's also speaking up**\
-`Leonard has been using his voice more in a year that could end with recognition that the 34-year-old hasn't seen in a while.`\
-https://nytimes.com/athletic/7148381/2026/03/27/clippers-kawhi-leonard-nba-awards-eligibility/
 

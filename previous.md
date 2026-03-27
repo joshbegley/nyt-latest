@@ -1,3 +1,7 @@
+**The Bounce: Does Victor Wembanyama's MVP case hold water?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7151689/2026/03/27/the-bounce-does-victor-wembanyamas-mvp-case-hold-water/
+
 **The Windup: Remarkable debuts across Opening Day**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/7149150/2026/03/27/opening-day-paul-skenes-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7140649/2026/03/27/pistons-defense-revive-winning-f
 **Kawhi Leonard isn't just balling out this season. He's also speaking up**\
 `Leonard has been using his voice more in a year that could end with recognition that the 34-year-old hasn't seen in a while.`\
 https://nytimes.com/athletic/7148381/2026/03/27/clippers-kawhi-leonard-nba-awards-eligibility/
-
-**'A dream come true': Inside Marcus and Nick Foligno's first NHL game together**\
-`The brothers played on the same team for the first time since a high school exhibition in the Wild's win over the Panthers on Thursday.`\
-https://nytimes.com/athletic/7151093/2026/03/27/minnesota-wild-marcus-nick-foligno/
 

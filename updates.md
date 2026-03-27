@@ -1,3 +1,7 @@
+**The Bounce: Does Victor Wembanyama's MVP case hold water?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7151689/2026/03/27/the-bounce-does-victor-wembanyamas-mvp-case-hold-water/
+
 **The Windup: Remarkable debuts across Opening Day**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/7149150/2026/03/27/opening-day-paul-skenes-the-windup/
