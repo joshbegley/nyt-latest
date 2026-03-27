@@ -1,3 +1,7 @@
+**Salzburg Festival Fires Its Artistic Director**\
+`The board terminated Markus Hinterhäuser’s contract early, leaving the leadership of the world’s largest classical music festival in limbo for now.`\
+https://nytimes.com/2026/03/26/arts/music/salzburg-festival-fires-artistic-director-markus-hinterhauser.html
+
 **Purdue tip-in takes out Texas in final second of Sweet 16 thriller**\
 `Purdue’s Trey Kaufman-Renn beat Texas with a tip-in with 0.7 seconds left in a Sweet 16 game on Thursday night.`\
 https://nytimes.com/athletic/7150744/2026/03/26/purdue-texas-march-madness-2026-score-results-takeaways/
