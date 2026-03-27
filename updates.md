@@ -1,3 +1,7 @@
+**Weight of history easing off Italian shoulders as Tonali puts them one step from World Cup**\
+`Having missed out in 2018 and 2022, a play-off win over Northern Ireland leaves Italy just one game for reaching World Cup 2026`\
+https://nytimes.com/athletic/7150321/2026/03/27/italy-northern-ireland-world-cup-play-off-tonali/
+
 **Wales and a missed opportunity to play at a World Cup: 'My heart hurts'**\
 `Wales were knocked out of World Cup qualification after losing to Bosnia and Herzegovina on penalties`\
 https://nytimes.com/athletic/7151097/2026/03/27/wales-world-cup-bosnia-analysis/
