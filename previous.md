@@ -1,3 +1,23 @@
+**The entrepreneur looking to attract NWSL to Arizona with a 25,000-seat stadium**\
+`NWSL commissioner Jessica Berman said the league would likely announce its 18th team this year.`\
+https://nytimes.com/athletic/7150132/2026/03/27/nwsl-arizona-expansion-interest/
+
+**Leeds name fan and philanthropist to board, 25 years after first investment in club**\
+`In 2001, Andrea Dracopoulos bought a three per cent stake in the club, having obtained his first official membership 50 years ago.`\
+https://nytimes.com/athletic/7152315/2026/03/27/leeds-united-andrea-dracopoulos-board/
+
+**How to watch Tennessee vs. Iowa State men's basketball: Sweet 16 Time, TV, streaming**\
+`Find out how to watch the Tennessee Volunteers play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7152457/2026/03/27/tennessee-vs-iowa-state-stream-how-to-watch-march-27/
+
+**Book Club: Let’s Talk About ‘Kin,’ by Tayari Jones**\
+`Jones’s new novel follows two motherless girls and their lifelong search for family.`\
+https://nytimes.com/2026/03/27/podcasts/book-club-lets-talk-about-kin-by-tayari-jones.html
+
+**How to watch Michigan State vs. UConn men's basketball: Sweet 16 Time, TV, streaming**\
+`Find out how to watch the Michigan State Spartans play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7152451/2026/03/27/michigan-state-vs-uconn-stream-how-to-watch-march-27/
+
 **How to watch Duke vs. LSU women's basketball: Sweet 16 Time, TV, streaming**\
 `Find out how to watch the Duke Blue Devils play the LSU Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7152436/2026/03/27/duke-vs-lsu-stream-how-to-watch-march-27/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7152400/2026/03/27/tigers-vs-padres-stream-how-to-w
 **Hacked Files of F.B.I. Director Kash Patel Circulate Online**\
 `What appeared to be personal emails from before Mr. Patel’s time as director were posted on a website that identified itself as Iranian but seemed to be hosted in Russia.`\
 https://nytimes.com/2026/03/27/us/fbi-director-kash-patel-hacked-email-iran.html
-
-**How to watch Guardians vs. Mariners: Time, TV, streaming for March 27**\
-`Find out how to watch the Cleveland Guardians play the Seattle Mariners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7152392/2026/03/27/guardians-vs-mariners-stream-how-to-watch-march-27/
-
-**How to watch Diamondbacks vs. Dodgers: Time, TV, streaming for March 27**\
-`Find out how to watch the Arizona Diamondbacks play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7152390/2026/03/27/diamondbacks-vs-dodgers-stream-how-to-watch-march-27/
-
-**Barcelona and Brazil winger Raphinha facing five weeks out with hamstring injury**\
-`Raphinha has scored 19 goals and provided eight assists in 31 games for Barca this season.`\
-https://nytimes.com/athletic/7152309/2026/03/27/raphinha-injury-hamstring-barcelona-brazil/
-
-**Fact-Checking the Debate Over the Republican Voting Bill**\
-`We examine claims justifying its restrictions, comparisons to current voting laws and warnings about its potential impact.`\
-https://nytimes.com/2026/03/27/us/politics/republican-voting-bill-save-act-fact-check.html
-
-**Kennedy Center Performer Asks Judge to Toss Case He Calls ‘Retaliatory’**\
-`A jazz drummer who called off a performance in protest of the center’s being renamed for President Trump said the president’s allies had sued him as punishment.`\
-https://nytimes.com/2026/03/27/us/politics/kennedy-center-jazz-performer.html
 
