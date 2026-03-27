@@ -1,3 +1,11 @@
+**How to watch Rockies vs. Marlins: Time, TV, streaming for March 27**\
+`Find out how to watch the Colorado Rockies play the Miami Marlins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7151907/2026/03/27/rockies-vs-marlins-stream-how-to-watch-march-27/
+
+**How to watch Athletics vs. Blue Jays: Time, TV, streaming for March 27**\
+`Find out how to watch the Athletics play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7151905/2026/03/27/athletics-vs-blue-jays-stream-how-to-watch-march-27/
+
 **Coleman Barks, Who Popularized the Islamic Poet Rumi in the West, Dies at 88**\
 `Although he did not speak a word of Persian, his interpretations of the 13th-century mystic’s work made Rumi a New Age icon for millions.`\
 https://nytimes.com/2026/03/27/books/coleman-barks-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7151786/2026/03/27/the-nhl-playoff-races-heat-up-pl
 **Lions' Terrion Arnold's named in texts tied to robbery, kidnapping plot**\
 `Arnold has not been charged, and did not send or receive any of the text messages discovered by investigators.`\
 https://nytimes.com/athletic/7151185/2026/03/27/lions-terrion-arnold-texts/
-
-**Global Food Supply Faces a Dangerous Bottleneck as Iran War Persists**\
-`Fertilizer prices are climbing as a result of disruptions in the Middle East, putting global food supplies at risk.`\
-https://nytimes.com/2026/03/27/business/economy/fertilizer-food-supply-iran-war.html
-
-**Jesse Roth, Who Advanced the Understanding of Diabetes, Dies at 91**\
-`His research showed that Type 2 diabetes was caused by insulin resistance at the cellular level, a controversial idea that initially met with disbelief.`\
-https://nytimes.com/2026/03/27/science/jesse-roth-dead.html
 

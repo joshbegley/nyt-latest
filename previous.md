@@ -1,5 +1,5 @@
 **Coleman Barks, Who Popularized the Islamic Poet Rumi in the West, Dies at 88**\
-`Although he did not speak a word of Persian, his translations of the 13th-century mystic’s work made Rumi a New Age icon for millions.`\
+`Although he did not speak a word of Persian, his interpretations of the 13th-century mystic’s work made Rumi a New Age icon for millions.`\
 https://nytimes.com/2026/03/27/books/coleman-barks-dead.html
 
 **How to watch Clippers vs. Pacers: Time, TV, streaming**\
