@@ -1,3 +1,11 @@
+**Managers on the rise: Cesc Fabregas – the tactical tyro ruffling the feathers of Serie A's traditionalists**\
+`The cultural resistance to Fabregas and the project of his club, Como, is intensifying with every win`\
+https://nytimes.com/athletic/7146969/2026/03/28/managers-on-the-rise-cesc-fabregas/
+
+**Mohamed and Al Hassan Toure were born in a refugee camp. Now they are dreaming of the World Cup**\
+`Both players are in contention to make the Australia squad and could play against the United States this summer`\
+https://nytimes.com/athletic/7111004/2026/03/28/mohamed-toure-al-hassan-australia/
+
 **St. John’s and its tears won't be forgotten after heartbreaking loss to Duke**\
 `It felt like St. John’s was 15 minutes away from a spot in Sunday’s East Region final. But Duke’s Caleb Foster took the game by the throat.`\
 https://nytimes.com/athletic/7153312/2026/03/28/st-johns-duke-march-madness-sweet-16-zuby-ejiofor/

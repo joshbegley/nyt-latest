@@ -1,3 +1,11 @@
+**Managers on the rise: Cesc Fabregas – the tactical tyro ruffling the feathers of Serie A's traditionalists**\
+`The cultural resistance to Fabregas and the project of his club, Como, is intensifying with every win`\
+https://nytimes.com/athletic/7146969/2026/03/28/managers-on-the-rise-cesc-fabregas/
+
+**Mohamed and Al Hassan Toure were born in a refugee camp. Now they are dreaming of the World Cup**\
+`Both players are in contention to make the Australia squad and could play against the United States this summer`\
+https://nytimes.com/athletic/7111004/2026/03/28/mohamed-toure-al-hassan-australia/
+
 **St. John’s and its tears won't be forgotten after heartbreaking loss to Duke**\
 `It felt like St. John’s was 15 minutes away from a spot in Sunday’s East Region final. But Duke’s Caleb Foster took the game by the throat.`\
 https://nytimes.com/athletic/7153312/2026/03/28/st-johns-duke-march-madness-sweet-16-zuby-ejiofor/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7153264/2026/03/28/michigan-state-uconn-march-madne
 **IPL 2026 preview: A new era at Rajasthan Royals, and can Mumbai challenge for RCB's crown?**\
 `Part two of our tournament preview takes in the reigning champions and another franchise that has recently attracted American investment`\
 https://nytimes.com/athletic/7151224/2026/03/28/ipl-2026-rcb-punjab-royals-mi-sunrisers-preview/
-
-**Connections: Sports Edition Coach: Hints and answers for March 28, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7153322/2026/03/28/connections-sports-edition-hints-answers-march-28-2026/
-
-**How Two Stars of ‘The Bear’ Turned to Robbing a Bank … on Broadway**\
-`Jon Bernthal and Ebon Moss-Bachrach are both making their Broadway debut in a high-stakes adaptation of the beloved 1975 film “Dog Day Afternoon.”`\
-https://nytimes.com/2026/03/28/theater/dog-day-afternoon-broadway-jon-bernthal-ebon-moss-bachrach.html
 
