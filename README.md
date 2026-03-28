@@ -1,3 +1,19 @@
+**How to watch Kraken vs. Sabres: Time, TV, streaming**\
+`Find out how to watch the Seattle Kraken play the Buffalo Sabres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153942/2026/03/28/kraken-vs-sabres-stream-how-to-watch-march-28/
+
+**How to watch Maple Leafs vs. Blues: Time, TV, streaming**\
+`Find out how to watch the Toronto Maple Leafs play the St. Louis Blues, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153940/2026/03/28/maple-leafs-vs-blues-stream-how-to-watch-march-28/
+
+**How to watch Canadiens vs. Predators: Time, TV, streaming**\
+`Find out how to watch the Montreal Canadiens play the Nashville Predators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153935/2026/03/28/canadiens-vs-predators-stream-how-to-watch-march-28/
+
+**How to watch Jets vs. Avalanche: Time, TV, streaming**\
+`Find out how to watch the Winnipeg Jets play the Colorado Avalanche, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153933/2026/03/28/jets-vs-avalanche-stream-how-to-watch-march-28/
+
 **How to watch White Sox vs. Brewers: Time, TV, streaming for March 28**\
 `Find out how to watch the Chicago White Sox play the Milwaukee Brewers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7153917/2026/03/28/white-sox-vs-brewers-stream-how-to-watch-march-28/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7153884/2026/03/28/76ers-vs-hornets-stream-how-to-w
 **A Robust Caesar for Broccoli Lovers**\
 `Trusty white beans and roasted broccoli get the garlicky, assertively umami Caesar treatment.`\
 https://nytimes.com/2026/03/28/dining/a-robust-caesar-for-broccoli-lovers.html
-
-**Kevin McGonigle's 10-pitch triumph: An anatomy of the Tigers rookie's go-ahead at-bat**\
-`Detroit is 2-0, and the prized rookie has played a starring role in both games.`\
-https://nytimes.com/athletic/7153473/2026/03/28/tigers-kevin-mcgonigle-ten-pitch-at-bat/
-
-**After receiving World Series rings, Dodgers' comeback victory shows why they're favorites again**\
-`The Dodgers' big offseason signings, Kyle Tucker and Edwin Díaz, ultimately sealed L.A.'s victory Friday night.`\
-https://nytimes.com/athletic/7153254/2026/03/28/dodgers-diamondbacks-edwin-diaz/
-
-**Everything With Trump’s Name, Likeness and Signature**\
-`Since the start of his second term, there have been more than a dozen instances of his name, image or signature emblazoned on a variety of American initiatives and institutions.`\
-https://nytimes.com/interactive/2026/03/28/us/politics/trump-signature-name-image.html
-
-**April Monthly Bake: Carrot Cake Butter Mochi**\
-`The spice of carrot cake meets the springy and buttery texture of mochi cake, with a tangy cream cheese glaze for good measure.`\
-https://nytimes.com/2026/03/28/dining/april-monthly-bake-carrot-cake-butter-mochi.html
 

@@ -1,3 +1,11 @@
+**How to watch White Sox vs. Brewers: Time, TV, streaming for March 28**\
+`Find out how to watch the Chicago White Sox play the Milwaukee Brewers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153917/2026/03/28/white-sox-vs-brewers-stream-how-to-watch-march-28/
+
+**How to watch Angels vs. Astros: Time, TV, streaming for March 28**\
+`Find out how to watch the Los Angeles Angels play the Houston Astros, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153899/2026/03/28/angels-vs-astros-stream-how-to-watch-march-28/
+
 **‘No Kings’ Protests Span the World, in Places Big and Small**\
 `It’s the third time that protesters have organized events around the globe to protest President Trump and his policies. In the United States, more than 3,000 demonstrations are planned.`\
 https://nytimes.com/2026/03/28/us/no-kings-protest-photos-videos.html
