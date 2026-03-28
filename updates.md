@@ -1,3 +1,15 @@
+**Elite Eight power rankings: Who's strong enough to make the Final Four?**\
+`The stage is set for four epic showdowns this weekend with berths in the Final Four on the line. `\
+https://nytimes.com/athletic/7153211/2026/03/28/mens-ncaa-tournament-elite-8-power-rankings/
+
+**Duke's NCAA Tournament revenge tour continues. Up next: UCLA in the Elite Eight**\
+`Duke has proven its regular-season losses are meaningless in March. A 30-point loss to UCLA is hard to forget.`\
+https://nytimes.com/athletic/7153515/2026/03/28/duke-ncaa-tournament-revenge-ucla-elite-eight/
+
+**Don't look now, but Rick Barnes is an elite NCAA Tournament coach**\
+`Barnes, who once shouldered the burden of March underachievement, is headed to a third straight Elite Eight with a team defying expectation.`\
+https://nytimes.com/athletic/7153581/2026/03/28/rick-barnes-ncaa-tournament-tennessee-elite-8/
+
 **Yemen’s Houthis Fire at Israel, Vowing Further Attacks**\
 `There has long been concern that the Houthis, an Iran-backed militia, could seek to disrupt shipping in the Red Sea if they entered the broader war.`\
 https://nytimes.com/2026/03/28/world/middleeast/yemen-houthis-attack-israel-war.html
