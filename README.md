@@ -18,9 +18,9 @@ https://nytimes.com/athletic/7153013/2026/03/27/duke-st-johns-march-madness-scor
 `For the first time since Steph Curry's injury, the Warriors acknowledged the possibility that he may not come back this season. `\
 https://nytimes.com/athletic/7153035/2026/03/27/steph-curry-injury-status-warriors-steve-kerr/
 
-**Strike on U.S. Base in Saudi Arabia Injures 12 American Troops, 2 Seriously, Officials Say**\
-`The combined missile and drone attack amounted to one of the most serious breaches of American air defenses in the course of the monthlong war with Iran.`\
-https://nytimes.com/2026/03/27/world/middleeast/iran-strike-us-base-saudi-arabia.html
+**Strike on U.S. Base in Saudi Arabia Injures 12 American Troops, Officials Say**\
+`The combined missile and drone attack was one of the most serious breaches of U.S. air defenses so far in he monthlong war with Iran.`\
+https://nytimes.com/2026/03/27/world/middleeast/strike-.html
 
 **Bank of America Pays $72.5 Million to Settle Lawsuit by Epstein Victims**\
 `The suit claimed the bank had overlooked signs that Mr. Epstein’s accounts were being used to further his abuse of young women.`\
