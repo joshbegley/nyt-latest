@@ -1,3 +1,11 @@
+**How to watch Kentucky vs. Texas women's basketball: Sweet 16 Time, TV, streaming**\
+`Find out how to watch the Kentucky Wildcats play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153621/2026/03/28/kentucky-vs-texas-stream-how-to-watch-march-28/
+
+**How to interpret Freddy Peralta's 'no comments' regarding extension talks with Mets**\
+`Peralta, 29, told The Athletic in early March that he preferred a long-term deal. It's reasonable to assume that one will have to wait.`\
+https://nytimes.com/athletic/7153071/2026/03/28/freddy-peralta-extension-mets-no-comments/
+
 **The Pulse: The Elite 8 begins**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/7153263/2026/03/28/the-elite-8-begins-plus-tigers-arrest/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7152933/2026/03/28/blue-jackets-rick-bowness-nhl-pl
 **Could the Blues shock the NHL again? Breaking down the ultimate long shot's potential playoff path**\
 `The Blues are 10-2-2 since the Olympic break but are still a long-shot to make the playoffs. Can they pull it off?`\
 https://nytimes.com/athletic/7115365/2026/03/28/st-louis-blues-playoffs-schedule-standings/
-
-**Dylan Garand's strong play warrants another start as young Rangers shine in win**\
-`Garand stopped 27 of the 28 shots the Blackhawks threw his way and earned his first NHL win, which came after a strong debut on Sunday.`\
-https://nytimes.com/athletic/7153253/2026/03/28/dylan-garands-strong-play-warrants-another-start-as-young-rangers-shine-in-win/
-
-**The personal history and connections that sealed Pete Crow-Armstrong’s 6-year, $115 million deal**\
-`“This city means everything to me,” Crow-Armstrong said. “It really welcomed me."`\
-https://nytimes.com/athletic/7153182/2026/03/28/pete-crow-armstrong-contract-cubs-2026/
 
