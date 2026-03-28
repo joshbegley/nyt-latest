@@ -1,3 +1,15 @@
+**How to watch Rays vs. Cardinals: Time, TV, streaming for March 28**\
+`Find out how to watch the Tampa Bay Rays play the St. Louis Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153604/2026/03/28/rays-vs-cardinals-stream-how-to-watch-march-28/
+
+**How to watch Nationals vs. Cubs: Time, TV, streaming for March 28**\
+`Find out how to watch the Washington Nationals play the Chicago Cubs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153602/2026/03/28/nationals-vs-cubs-stream-how-to-watch-march-28/
+
+**How to watch Athletics vs. Blue Jays: Time, TV, streaming for March 28**\
+`Find out how to watch the Athletics play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153599/2026/03/28/athletics-vs-blue-jays-stream-how-to-watch-march-28/
+
 **How to watch Spurs vs. Bucks: Time, TV, streaming**\
 `Find out how to watch the San Antonio Spurs play the Milwaukee Bucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7153591/2026/03/28/spurs-vs-bucks-stream-how-to-watch-march-28/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7153182/2026/03/28/pete-crow-armstrong-contract-cub
 **The Old Man Dreaming Up Wars for Young Men to Fight**\
 `Any deal with Iran would probably be a bad one. But sending ground troops to seize Iranian territory would be an even worse choice.`\
 https://nytimes.com/2026/03/28/opinion/iran-war-kharg-island.html
-
-**‘We Are Going to Deeply Regret This War’**\
-`Three journalists on the potential repercussions of Operation Epic Fury.`\
-https://nytimes.com/2026/03/28/opinion/iran-trump-israel-geopolitics.html
-
-**How Elias Salomonsson went from top prospect to unexpected top four Jets defenceman**\
-`Elias Salomonsson emerged as a top four defenceman before Winnipeg was ready for him.`\
-https://nytimes.com/athletic/7149507/2026/03/28/jets-elias-salomonsson/
-
-**5 pressing questions for Eagles owner Jeffrey Lurie: Tush push, Jalen Hurts contract and more**\
-`The plan for A.J. Brown and Nick Sirianni's job security should also be topics of discussion.`\
-https://nytimes.com/athletic/7146310/2026/03/28/eagles-questions-league-meetings-tush-push-jalen-hurts-contract/
 

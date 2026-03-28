@@ -1,3 +1,7 @@
+**The Pulse: The Elite 8 begins**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/7153263/2026/03/28/the-elite-8-begins-plus-tigers-arrest/
+
 **How to watch Rays vs. Cardinals: Time, TV, streaming for March 28**\
 `Find out how to watch the Tampa Bay Rays play the St. Louis Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7153604/2026/03/28/rays-vs-cardinals-stream-how-to-watch-march-28/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7153253/2026/03/28/dylan-garands-strong-play-warran
 **The personal history and connections that sealed Pete Crow-Armstrong’s 6-year, $115 million deal**\
 `“This city means everything to me,” Crow-Armstrong said. “It really welcomed me."`\
 https://nytimes.com/athletic/7153182/2026/03/28/pete-crow-armstrong-contract-cubs-2026/
-
-**The Old Man Dreaming Up Wars for Young Men to Fight**\
-`Any deal with Iran would probably be a bad one. But sending ground troops to seize Iranian territory would be an even worse choice.`\
-https://nytimes.com/2026/03/28/opinion/iran-war-kharg-island.html
 

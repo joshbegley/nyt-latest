@@ -1,3 +1,15 @@
+**How to watch Rays vs. Cardinals: Time, TV, streaming for March 28**\
+`Find out how to watch the Tampa Bay Rays play the St. Louis Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153604/2026/03/28/rays-vs-cardinals-stream-how-to-watch-march-28/
+
+**How to watch Nationals vs. Cubs: Time, TV, streaming for March 28**\
+`Find out how to watch the Washington Nationals play the Chicago Cubs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153602/2026/03/28/nationals-vs-cubs-stream-how-to-watch-march-28/
+
+**How to watch Athletics vs. Blue Jays: Time, TV, streaming for March 28**\
+`Find out how to watch the Athletics play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153599/2026/03/28/athletics-vs-blue-jays-stream-how-to-watch-march-28/
+
 **How to watch Spurs vs. Bucks: Time, TV, streaming**\
 `Find out how to watch the San Antonio Spurs play the Milwaukee Bucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7153591/2026/03/28/spurs-vs-bucks-stream-how-to-watch-march-28/
