@@ -1,3 +1,15 @@
+**James Tolkan, a Tough-Talking Actor in ‘Back to the Future’ and ‘Top Gun,’ Dies at 94**\
+`Mr. Tolkan’s career spanned decades but his breakout roles came as an authority figure in two popular films of the mid-1980s.`\
+https://nytimes.com/2026/03/28/obituaries/james-tolkan-dead.html
+
+**Sidney Crosby to miss game Saturday vs. Dallas but avoids major injury**\
+`Pittsburgh coach Dan Muse did not specify if Crosby's injury was related to the center's recent MCL tear, which kept him out for 11 games.`\
+https://nytimes.com/athletic/7154018/2026/03/28/penguins-sidney-crosby-injury-update/
+
+**Months after Game 7 loss, John Schneider found letter from an admirer: Steve Kerr**\
+`The letter sat in Schneider’s office all winter. But the Blue Jays manager read it at the perfect time.`\
+https://nytimes.com/athletic/7154224/2026/03/28/blue-jays-warriors-john-schneider-steve-kerr/
+
 **In Dubai, a famed horse race goes on, despite the war.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2026/03/28/world/iran-war-trump-israel-oil/in-dubai-a-famed-horse-race-goes-on-despite-the-war
