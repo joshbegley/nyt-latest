@@ -1,3 +1,11 @@
+**Everything With Trump’s Name, Likeness and Signature**\
+`Since the start of his second term, there have been more than a dozen instances of his name, image or signature emblazoned on a variety of American initiatives and institutions.`\
+https://nytimes.com/interactive/2026/03/28/us/politics/trump-signature-name-image.html
+
+**April Monthly Bake: Carrot Cake Butter Mochi**\
+`The spice of carrot cake meets the springy and buttery texture of mochi cake, with a tangy cream cheese glaze for good measure.`\
+https://nytimes.com/2026/03/28/dining/april-monthly-bake-carrot-cake-butter-mochi.html
+
 **Red Wings' victory in Buffalo answered key questions. One big one remains.**\
 `The Red Wings pulled off a big win in Buffalo on Friday, setting up a tense final 10 games.`\
 https://nytimes.com/athletic/7153160/2026/03/28/red-wings-sabres-moritz-seider-john-gibson/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7153781/2026/03/28/sharks-vs-blue-jackets-stream-ho
 **How to watch Rangers vs. Phillies: Time, TV, streaming for March 28**\
 `Find out how to watch the Texas Rangers play the Philadelphia Phillies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7153759/2026/03/28/rangers-vs-phillies-stream-how-to-watch-march-28/
-
-**How to watch Rockies vs. Marlins: Time, TV, streaming for March 28**\
-`Find out how to watch the Colorado Rockies play the Miami Marlins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7153757/2026/03/28/rockies-vs-marlins-stream-how-to-watch-march-28/
-
-**How to watch Red Sox vs. Reds: Time, TV, streaming for March 28**\
-`Find out how to watch the Boston Red Sox play the Cincinnati Reds, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7153753/2026/03/28/red-sox-vs-reds-stream-how-to-watch-march-28/
 
