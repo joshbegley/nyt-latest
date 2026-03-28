@@ -1,3 +1,7 @@
+**Henry C. Lee Dies at 87; Forensic Scientist Testified in Defense of O.J. Simpson**\
+`The Times called him “the world’s most highly regarded forensic criminologist,” but later in his career he faced accusations that he had hidden and fabricated evidence.`\
+https://nytimes.com/2026/03/28/science/henry-lee-dead.html
+
 **USA 2, Belgium 5: Pochettino's Americans flop in pre-World Cup test**\
 `The U.S. scored first, but the World Cup cohosts had their friendly vs. Belgium go south in Atlanta in a hurry`\
 https://nytimes.com/athletic/7153630/2026/03/28/usmnt-belgium-friendly-score-recap-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/28/us/politics/trump-fbi-patel-eric-swalwell.html
 **Iran and Immigration Frustrations Fuel New Wave of ‘No Kings’ Rallies**\
 `Thousands of organized demonstrations stretched across the country. Minnesota was a focal point of the protests after a tumultuous immigration crackdown.`\
 https://nytimes.com/2026/03/28/us/no-kings-trump-iran-immigration-minnesota.html
-
-**James Tolkan, a Tough-Talking Actor in ‘Back to the Future’ and ‘Top Gun,’ Dies at 94**\
-`Mr. Tolkan’s career spanned decades but his breakout roles came as an authority figure in two popular films of the mid-1980s.`\
-https://nytimes.com/2026/03/28/obituaries/james-tolkan-dead.html
 

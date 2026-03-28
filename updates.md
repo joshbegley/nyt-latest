@@ -1,3 +1,7 @@
+**G.O.P. Rift Leaves Congress With No Clear Path to End the Shutdown**\
+`The deadlock that left the Department of Homeland Security shuttered highlighted Republican divisions that are flaring ahead of the midterm elections.`\
+https://nytimes.com/2026/03/28/us/gop-rift-leaves-no-clear-shutdown-off-ramp.html
+
 **USA 2, Belgium 5: Pochettino's Americans flop in pre-World Cup test**\
 `The U.S. scored first, but the World Cup cohosts had their friendly vs. Belgium go south in Atlanta in a hurry`\
 https://nytimes.com/athletic/7153630/2026/03/28/usmnt-belgium-friendly-score-recap-world-cup/
