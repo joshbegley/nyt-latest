@@ -1,3 +1,15 @@
+**Marcelo Bielsa and Leeds United fans were reunited at Wembley. Their love for him runs deep**\
+`Leeds United fans were at Wembley as much to see their beloved Marcelo Bielsa on the touchline for Uruguay as England playing at home`\
+https://nytimes.com/athletic/7153462/2026/03/28/marcelo-bielsa-uruguay-england-leeds-united-reaction/
+
+**Here’s the latest.**\
+`By Aaron Boxerman, Eric Schmitt, Chris Cameron and John Yoon`\
+https://nytimes.com/live/2026/03/28/world/iran-war-trump-israel-oil/heres-the-latest
+
+**Iran War Live Updates: Iran-Backed Houthis Enter War With Missile Attack on Israel**\
+`Earlier, U.S. officials said an Iranian strike at a military base in Saudi Arabia injured 12 U.S. troops, one of the most serious breaches of American defenses since the war began.`\
+https://nytimes.com/live/2026/03/28/world/iran-war-trump-israel-oil
+
 **Spain have too many elite ’keepers to take to the World Cup. Who will be No 1 and who misses out?**\
 `Arsenal's David Raya and Barcelona's Joan Garcia are among the contenders, but can they displace incumbent Unai Simon?`\
 https://nytimes.com/athletic/7153090/2026/03/28/spain-goalkeepers-world-cup/

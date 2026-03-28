@@ -1,3 +1,7 @@
+**Marcelo Bielsa and Leeds United fans were reunited at Wembley. Their love for him runs deep**\
+`Leeds United fans were at Wembley as much to see their beloved Marcelo Bielsa on the touchline for Uruguay as England playing at home`\
+https://nytimes.com/athletic/7153462/2026/03/28/marcelo-bielsa-uruguay-england-leeds-united-reaction/
+
 **Why the Iowa-Illinois rivalry's hate goes much deeper than the Elite Eight**\
 `Each program has several other rivalries, but Illini and Hawkeyes newcomers learn quickly that this one is different.`\
 https://nytimes.com/athletic/7152774/2026/03/28/iowa-illinois-basketball-rivalry-ncaa-tournament/
@@ -27,14 +31,10 @@ https://nytimes.com/2026/03/28/nyregion/hochul-housing-seqra-environment.html
 https://nytimes.com/2026/03/28/crosswords/spelling-bee-forum.html
 
 **Here’s the latest.**\
-`By Eric Schmitt, Chris Cameron and John Yoon`\
+`By Aaron Boxerman, Eric Schmitt, Chris Cameron and John Yoon`\
 https://nytimes.com/live/2026/03/28/world/iran-war-trump-israel-oil/heres-the-latest
 
-**Iran War Live Updates: Iranian Strike on Saudi Base Injures 12 U.S. Troops, Officials Say**\
-`The attack was one of the most serious breaches of American defenses since the war began on Feb. 28. Israel and Iran launched new strikes at each other on Saturday.`\
+**Iran War Live Updates: Iran-Backed Houthis Enter War With Missile Attack on Israel**\
+`Earlier, U.S. officials said an Iranian strike at a military base in Saudi Arabia injured 12 U.S. troops, one of the most serious breaches of American defenses since the war began.`\
 https://nytimes.com/live/2026/03/28/world/iran-war-trump-israel-oil
-
-**Wirtz is Germany's key creative force. This is what Liverpool hoped to see this season**\
-`His two goals and two assists in Switzerland were evidence of the decisive contributions that have only been seen infrequently at Anfield`\
-https://nytimes.com/athletic/7153001/2026/03/28/florian-wirtz-germany-liverpool/
 
