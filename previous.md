@@ -1,3 +1,7 @@
+**Strike on U.S. Base in Saudi Arabia Injures 12 American Troops, 2 Seriously, Officials Say**\
+`The combined missile and drone attack amounted to one of the most serious breaches of American air defenses in the course of the monthlong war with Iran.`\
+https://nytimes.com/2026/03/27/world/middleeast/iran-strike-us-base-saudi-arabia.html
+
 **Bank of America Pays $72.5 Million to Settle Lawsuit by Epstein Victims**\
 `The suit claimed the bank had overlooked signs that Mr. Epstein’s accounts were being used to further his abuse of young women.`\
 https://nytimes.com/2026/03/27/business/bank-of-america-epstein-victims-settlement.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/nyregionspecial/100000010800839/we-analyzed-t
 **Here’s What Happened in the War in the Middle East on Friday**\
 `American officials sought to temper concerns of a possibly expanding military incursion after the Pentagon’s decision to deploy more troops to the Middle East.`\
 https://nytimes.com/2026/03/27/world/middleeast/iran-war-middle-east-recap.html
-
-**Judge Agrees to Drop Charges Against Officers in Breonna Taylor’s Death**\
-`The Trump administration had asked the court to dismiss the charges, describing them as an example of “weaponized federal overreach” by the Biden administration.`\
-https://nytimes.com/2026/03/27/us/politics/breonna-taylor-officer-charges-dropped.html
 
