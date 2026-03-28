@@ -1,3 +1,7 @@
+**Yemen’s Houthis Fire at Israel, Vowing Further Attacks**\
+`There has long been concern that the Houthis, an Iran-backed militia, could seek to disrupt shipping in the Red Sea if they entered the broader war.`\
+https://nytimes.com/2026/03/28/world/middleeast/yemen-houthis-attack-israel-war.html
+
 **Can Alex Bump continue to play a key role in the Flyers’ late-season playoff push?**\
 `Bump is learning how to use his 6-foot-2, 202-pound frame more effectively.`\
 https://nytimes.com/athletic/7152270/2026/03/28/alex-bump-flyers-roster-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7153251/2026/03/28/sabres-red-wings-streak-nhl-play
 **Can We Ask Our Son to Go on Weight-Loss Drugs in Exchange for a House?**\
 `My husband wants to condition the gift on our son’s getting on a GLP-1 program. I feel that a gift is a gift and you should not extort a grown man.`\
 https://nytimes.com/2026/03/28/magazine/son-weight-loss-drugs-house-ethics.html
-
-**Wordle Review No. 1,744**\
-`Scroll down for hints and conversation about the puzzle for Sunday, March 29, 2026.`\
-https://nytimes.com/2026/03/28/crosswords/wordle-review-1744.html
 
