@@ -1,3 +1,7 @@
+**The debate is over. Drivers say Suzuka's famous challenge is diminished in F1 2026**\
+`Ahead of the 2026 Japanese GP, many drivers wondered if Suzuka would feel the same in the new F1 cars. Their verdict is in: it does not`\
+https://nytimes.com/athletic/7153593/2026/03/28/japanese-gp-suzuka-new-f1-cars/
+
 **How to watch Kentucky vs. Texas women's basketball: Sweet 16 Time, TV, streaming**\
 `Find out how to watch the Kentucky Wildcats play the Texas Longhorns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7153621/2026/03/28/kentucky-vs-texas-stream-how-to-watch-march-28/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/28/briefing/present-company.html
 **Rick Bowness wants Blue Jackets to combat recent scoring woes with nastier approach**\
 `"I'm not going to hide behind the analytics... that's not winning games for us. We're going to have to get a little nastier," said Bowness.`\
 https://nytimes.com/athletic/7152933/2026/03/28/blue-jackets-rick-bowness-nhl-playoffs-scoring/
-
-**Could the Blues shock the NHL again? Breaking down the ultimate long shot's potential playoff path**\
-`The Blues are 10-2-2 since the Olympic break but are still a long-shot to make the playoffs. Can they pull it off?`\
-https://nytimes.com/athletic/7115365/2026/03/28/st-louis-blues-playoffs-schedule-standings/
 
