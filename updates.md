@@ -1,3 +1,7 @@
+**Yemen’s Houthis Fire at Israel, Vowing Further Attacks**\
+`There has long been concern that the Houthis, an Iran-backed militia, could seek to disrupt shipping in the Red Sea if they entered the broader war.`\
+https://nytimes.com/2026/03/28/world/middleeast/yemen-houthis-attack-israel-war.html
+
 **Can Alex Bump continue to play a key role in the Flyers’ late-season playoff push?**\
 `Bump is learning how to use his 6-foot-2, 202-pound frame more effectively.`\
 https://nytimes.com/athletic/7152270/2026/03/28/alex-bump-flyers-roster-nhl-playoffs/
