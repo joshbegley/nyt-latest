@@ -1,3 +1,7 @@
+**Wirtz is Germany's key creative force. This is what Liverpool hoped to see this season**\
+`His two goals and two assists in Switzerland were evidence of the decisive contributions that have only been seen infrequently at Anfield`\
+https://nytimes.com/athletic/7153001/2026/03/28/florian-wirtz-germany-liverpool/
+
 **Kim Mulkey shuts down rumors she is retiring: 'It’s just a flat-out lie'**\
 `Mulkey sounded frustrated addressing rumors after LSU suffered an 87-85 buzzer-beating loss to Duke on Friday in the Sweet 16.`\
 https://nytimes.com/athletic/7153442/2026/03/28/kim-mulkey-lsu-retirement-duke-loss/

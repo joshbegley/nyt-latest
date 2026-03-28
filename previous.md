@@ -1,3 +1,7 @@
+**Wirtz is Germany's key creative force. This is what Liverpool hoped to see this season**\
+`His two goals and two assists in Switzerland were evidence of the decisive contributions that have only been seen infrequently at Anfield`\
+https://nytimes.com/athletic/7153001/2026/03/28/florian-wirtz-germany-liverpool/
+
 **Kim Mulkey shuts down rumors she is retiring: 'It’s just a flat-out lie'**\
 `Mulkey sounded frustrated addressing rumors after LSU suffered an 87-85 buzzer-beating loss to Duke on Friday in the Sweet 16.`\
 https://nytimes.com/athletic/7153442/2026/03/28/kim-mulkey-lsu-retirement-duke-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/03/28/todays-new-york-times
 **Another Blackhawks lopsided loss shows effects of schedule on young team**\
 `More than half of the Blackhawks' 20-man roster has yet to play a full NHL season, and this season is even more grueling than usual.`\
 https://nytimes.com/athletic/7153178/2026/03/28/blackhawks-rangers-sacha-boisvert-fight-draft-lottery/
-
-**Big Ten earns half of 2026 Elite Eight spots, tying men's tournament record**\
-`Last year, the SEC also sent four teams to the regional finals, with eventual champion Florida and Auburn reaching the Final Four.`\
-https://nytimes.com/athletic/7153334/2026/03/28/big-ten-elite-eight-ncaa-tournament/
 
