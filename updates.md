@@ -1,3 +1,7 @@
+**Bank of America Pays $72.5 Million to Settle Lawsuit by Epstein Victims**\
+`The suit claimed the bank had overlooked signs that Mr. Epstein’s accounts were being used to further his abuse of young women.`\
+https://nytimes.com/2026/03/27/business/bank-of-america-epstein-victims-settlement.html
+
 **Judge Agrees to Drop Charges Against Officers in Breonna Taylor’s Death**\
 `The Trump administration had asked the court to dismiss the charges, describing them as an example of “weaponized federal overreach” by the Biden administration.`\
 https://nytimes.com/2026/03/27/us/politics/breonna-taylor-officer-charges-dropped.html

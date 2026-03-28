@@ -1,3 +1,7 @@
+**Bank of America Pays $72.5 Million to Settle Lawsuit by Epstein Victims**\
+`The suit claimed the bank had overlooked signs that Mr. Epstein’s accounts were being used to further his abuse of young women.`\
+https://nytimes.com/2026/03/27/business/bank-of-america-epstein-victims-settlement.html
+
 **UNC star Caleb Wilson, a projected top-5 pick, declares for NBA Draft**\
 `Wilson was part of a stellar freshman class, averaging 19.8 points and 9.4 rebounds this season, but had his season cut short by injuries.`\
 https://nytimes.com/athletic/7152954/2026/03/27/caleb-wilson-nba-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/27/world/middleeast/iran-war-middle-east-recap.html
 **Judge Agrees to Drop Charges Against Officers in Breonna Taylor’s Death**\
 `The Trump administration had asked the court to dismiss the charges, describing them as an example of “weaponized federal overreach” by the Biden administration.`\
 https://nytimes.com/2026/03/27/us/politics/breonna-taylor-officer-charges-dropped.html
-
-**More heartbreak for Amber Glenn, who falls short of medal at World Championships**\
-`In her final competitive program of the season, the U.S. star delivered the full Glenn experience: a mix of beauty and struggle.`\
-https://nytimes.com/athletic/7152669/2026/03/27/amber-glenn-isu-world-championships-2026/
 
