@@ -1,3 +1,11 @@
+**What we got right, and wrong, in our NHL bold predictions. Revisiting one for all 32 teams**\
+`With less than three weeks of the regular season remaining, we revisit our bold predictions. Which ones get a pass, fail or incomplete?`\
+https://nytimes.com/athletic/7152491/2026/03/28/nhl-bold-predictions-all-32-revisited/
+
+**The Biggest Names in Fine Dining Now Have Rock-Star Residencies**\
+`From Las Vegas to the Côte d’Azur, high-profile chefs are taking their cuisine on the road.`\
+https://nytimes.com/2026/03/28/business/dealbook/chef-restaurant-residencies.html
+
 **The debate is over. Drivers say Suzuka's famous challenge is diminished in F1 2026**\
 `Ahead of the 2026 Japanese GP, many drivers wondered if Suzuka would feel the same in the new F1 cars. Their verdict is in: it does not`\
 https://nytimes.com/athletic/7153593/2026/03/28/japanese-gp-suzuka-new-f1-cars/
