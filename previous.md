@@ -1,40 +1,40 @@
-**How to watch Louisville vs. Michigan women's basketball: Sweet 16 Time, TV, streaming**\
-`Find out how to watch the Louisville Cardinals play the Michigan Wolverines, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7153575/2026/03/28/louisville-vs-michigan-stream-how-to-watch-march-28/
+**Can Alex Bump continue to play a key role in the Flyers’ late-season playoff push?**\
+`Bump is learning how to use his 6-foot-2, 202-pound frame more effectively.`\
+https://nytimes.com/athletic/7152270/2026/03/28/alex-bump-flyers-roster-nhl-playoffs/
 
-**Jordyn Tyson isn't ready to run yet, but NFL teams are still intrigued**\
-`He's considered one of the top three receivers in the 2026 NFL Draft, but Tyson did not run at his pro day on Friday.`\
-https://nytimes.com/athletic/7153185/2026/03/28/jordyn-tyson-nfl-draft-stock-arizona-state-pro-day/
+**Iowa's coach never stops looking for an edge — even at 3 a.m.: 'He's always up'**\
+`“His ability to regurgitate all that, like cramming for a test, is unbelievable,” his assistant coach said.`\
+https://nytimes.com/athletic/7153247/2026/03/28/iowa-ben-mccollum-coach-game-plan-march-madness/
 
-**How to watch Panthers vs. Islanders: Time, TV, streaming**\
-`Find out how to watch the Florida Panthers play the New York Islanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7153572/2026/03/28/panthers-vs-islanders-stream-how-to-watch-march-28/
+**Baseball Hall of Fame's newest Buck O’Neil award winner Bill White reflects on his impact**\
+`Bill White wanted to be a doctor when he grew up. The game of baseball was better for his career.`\
+https://nytimes.com/athletic/7149699/2026/03/28/baseball-hof-buck-oneil-award-bill-white-career/
 
-**How to watch Senators vs. Lightning: Time, TV, streaming**\
-`Find out how to watch the Ottawa Senators play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7153570/2026/03/28/senators-vs-lightning-stream-how-to-watch-march-28/
+**What we learned from Red Sox opener: Anthony's poise, Mayer's readiness, ABS strategy, more**\
+`The Red Sox were off Friday following Opening Day on Thursday. Here's more news, notes and observations from Game 1 of 162.`\
+https://nytimes.com/athletic/7152487/2026/03/28/boston-red-sox-opener-anthony-mayer-abs/
 
-**What Is YouTube’s Dominance Doing to Us? We Asked Its C.E.O.**\
-`Neal Mohan on A.I. slop, parental controls and his platform’s impact on our lives.`\
-https://nytimes.com/2026/03/28/magazine/neal-mohan-interview.html
+**Blue Jays’ World Series run echoes in poetic Opening Day win**\
+`With a crushing blown save and a walk-off win, Toronto’s 3-2 victory over the Athletics reminded all of the Jays’ 2025 postseason run.`\
+https://nytimes.com/athletic/7153275/2026/03/28/blue-jays-walk-off-win-opening-day/
 
-**Is Iran a Political Problem for Trump? Tell Me How Long the War Lasts.**\
-`Historically, quagmire abroad and high prices at home are the ingredients of a failed presidency.`\
-https://nytimes.com/2026/03/28/upshot/iran-war-trump-popularity.html
+**2026 NHL prospect pool rankings: No. 13 Buffalo Sabres**\
+`The Sabres have pieces at premium positions, with future NHLers at center and on defense, but are weak on the wings.`\
+https://nytimes.com/athletic/7084288/2026/03/28/buffalo-sabres-nhl-prospect-rankings-2026/
 
-**Don’t Call Them Nuns. They’re Podcasters.**\
-`They pray, they play Ultimate Frisbee and they have unwittingly become a meme.`\
-https://nytimes.com/2026/03/28/style/nuns-podcast-ultimate-frisbee-tiktok.html
+**The ball hesitated. Duke and Ashlon Jackson didn't**\
+`At the end, Kara Lawson knew whose number.to call. “My teammates and my coaches, they trust me," Jackson said. “That’s really all I needed."`\
+https://nytimes.com/athletic/7153537/2026/03/28/duke-lsu-ncaa-tournament-ashlon-jackson-kara-lawson/
 
-**In an Asymmetrical War, Iran Seeks an Edge With Its Information War**\
-`Propaganda and disinformation have flooded the internet in a sophisticated effort to undermine support for U.S. and Israeli attacks.`\
-https://nytimes.com/2026/03/28/business/iran-propaganda-war-ai.html
+**Ugly loss to Red Wings has Sabres on 3-game winless streak: Thoughts**\
+`After three months of playing like the best team in the NHL, the Sabres have hit a rut.`\
+https://nytimes.com/athletic/7153251/2026/03/28/sabres-red-wings-streak-nhl-playoffs/
 
-**Her Past Was No Secret. Footage of a Child’s Cry Changed Everything.**\
-`Before being cast as “The Bachelorette,” Taylor Frankie Paul had discussed — with police, on podcasts and on TV — the domestic dispute that involved her 5-year-old daughter.`\
-https://nytimes.com/2026/03/28/arts/television/taylor-frankie-paul-child-endangerment.html
+**Can We Ask Our Son to Go on Weight-Loss Drugs in Exchange for a House?**\
+`My husband wants to condition the gift on our son’s getting on a GLP-1 program. I feel that a gift is a gift and you should not extort a grown man.`\
+https://nytimes.com/2026/03/28/magazine/son-weight-loss-drugs-house-ethics.html
 
-**‘Life! Life! Life!’: Reviving a Globe-Trotting Sculptor of the Gilded Age**\
-`Paul Troubetzkoy traveled the world to immortalize the A-listers of his time. An exhibition in Milan remembers his vitality and fame.`\
-https://nytimes.com/2026/03/28/arts/design/paul-troubezkoy.html
+**Wordle Review No. 1,744**\
+`Scroll down for hints and conversation about the puzzle for Sunday, March 29, 2026.`\
+https://nytimes.com/2026/03/28/crosswords/wordle-review-1744.html
 
