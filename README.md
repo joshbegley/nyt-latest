@@ -1,9 +1,17 @@
+**Ilia Malinin wins gold at 2026 World Championships**\
+`His latest success won't be as viral as his last failure, but Malinin looked like himself again in Prague.`\
+https://nytimes.com/athletic/7154026/2026/03/28/ilia-malinin-wins-gold-world-championships/
+
+**How to watch Guardians vs. Mariners: Time, TV, streaming for March 28**\
+`Find out how to watch the Cleveland Guardians play the Seattle Mariners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7154267/2026/03/28/guardians-vs-mariners-stream-how-to-watch-march-28/
+
 **The Briefing: Canada 2 Iceland 2 - Will defensive errors shape squad? Is Larin back? Is David the most important player?**\
 `An error-strewn first-half put Canada on the back-foot, but two penalties from star striker Jonathan David earned the draw`\
 https://nytimes.com/athletic/7148930/2026/03/28/canada-2-iceland-2-briefing/
 
 **Denver Summit FC shatters NWSL attendance record in home opener**\
-`The Summit and Washington Spirit drew a record 63,004 fans for their match inside Empower Field.`\
+`The Summit and Washington Spirit drew a record 63,004 fans for their match at Empower Field.`\
 https://nytimes.com/athletic/7154164/2026/03/28/denver-summit-fc-nwsl-attendance-record/
 
 **Women's Sweet 16 takeaways: Michigan overcomes slow start to beat Louisville**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7154143/2026/03/28/f1-kitkat-bars-stolen-europe/
 **Israeli Strike Kills 3 Journalists in Southern Lebanon, Officials Say**\
 `Israel accused one of the reporters of being a Hezbollah operative. Lebanon’s president said they were journalists and condemned the killings.`\
 https://nytimes.com/2026/03/28/world/middleeast/lebanon-journalists-killed-israeli-strike.html
-
-**How to watch Purdue vs. Arizona men's basketball: Elite Eight Time, TV, streaming**\
-`Find out how to watch the Purdue Boilermakers play the Arizona Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7154142/2026/03/28/purdue-vs-arizona-stream-how-to-watch-march-28/
-
-**Bulls knocked out of postseason contention for first time since 2021. What now?**\
-`After a trade deadline fire sale and a winless February, the Bulls will go without a Play-In or playoff berth for the first time since 2021.`\
-https://nytimes.com/athletic/7153977/2026/03/28/nba-bulls-postseason-contention-future/
 
