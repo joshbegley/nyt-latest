@@ -1,3 +1,7 @@
+**Another Blackhawks lopsided loss shows effects of schedule on young team**\
+`More than half of the Blackhawks' 20-man roster has yet to play a full NHL season, and this season is even more grueling than usual.`\
+https://nytimes.com/athletic/7153178/2026/03/28/blackhawks-rangers-sacha-boisvert-fight-draft-lottery/
+
 **Big Ten earns half of 2026 Elite Eight spots, tying men's tournament record**\
 `Last year, the SEC also sent four teams to the regional finals, with eventual champion Florida and Auburn reaching the Final Four.`\
 https://nytimes.com/athletic/7153334/2026/03/28/big-ten-elite-eight-ncaa-tournament/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/27/pageoneplus/quote-of-the-day-an-irish-village-lif
 **Payback time for Judge? ABS could mean revenge after years of bad calls**\
 `Judge used an ABS challenge to turn a strike call into a ball Friday. A few pitches later, he hit a home run.`\
 https://nytimes.com/athletic/7153125/2026/03/27/yankees-aaron-judge-abs/
-
-**Clippers, Pacers channel March Madness with inexplicable last 0.4 seconds**\
-`After Kawhi Leonard gave LA a 114-113 lead, a comedy of errors led to the Pacers missing two free throws that would have given them the win.`\
-https://nytimes.com/athletic/7153133/2026/03/27/clippers-pacers-end-jay-huff-kawhi-leonard/
 

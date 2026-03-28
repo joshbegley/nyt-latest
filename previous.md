@@ -1,3 +1,7 @@
+**Big Ten earns half of 2026 Elite Eight spots, tying men's tournament record**\
+`Last year, the SEC also sent four teams to the regional finals, with eventual champion Florida and Auburn reaching the Final Four.`\
+https://nytimes.com/athletic/7153334/2026/03/28/big-ten-elite-eight-ncaa-tournament/
+
 **Luka Dončić picks up 16th technical foul, triggering 1-game suspension**\
 `Unless the technical is rescinded (as one was last weekend), Luka Dončić will serve his suspension Monday against the Wizards.`\
 https://nytimes.com/athletic/7153332/2026/03/28/luka-doncic-technical-foul-suspension-lakers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7153125/2026/03/27/yankees-aaron-judge-abs/
 **Clippers, Pacers channel March Madness with inexplicable last 0.4 seconds**\
 `After Kawhi Leonard gave LA a 114-113 lead, a comedy of errors led to the Pacers missing two free throws that would have given them the win.`\
 https://nytimes.com/athletic/7153133/2026/03/27/clippers-pacers-end-jay-huff-kawhi-leonard/
-
-**Trump Says Middle East Is ‘Saved’ as Iran Strikes Injure U.S. Troops in Gulf**\
-`At a Saudi event, the president said Iran was “begging to make a deal,” seemingly unaware of reports that an Iranian strike on a Saudi base had injured American troops.`\
-https://nytimes.com/2026/03/27/us/politics/trump-saudi-speech.html
 

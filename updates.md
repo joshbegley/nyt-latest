@@ -1,3 +1,7 @@
+**Big Ten earns half of 2026 Elite Eight spots, tying men's tournament record**\
+`Last year, the SEC also sent four teams to the regional finals, with eventual champion Florida and Auburn reaching the Final Four.`\
+https://nytimes.com/athletic/7153334/2026/03/28/big-ten-elite-eight-ncaa-tournament/
+
 **Luka Dončić picks up 16th technical foul, triggering 1-game suspension**\
 `Unless the technical is rescinded (as one was last weekend), Luka Dončić will serve his suspension Monday against the Wizards.`\
 https://nytimes.com/athletic/7153332/2026/03/28/luka-doncic-technical-foul-suspension-lakers/
