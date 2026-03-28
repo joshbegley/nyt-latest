@@ -1,3 +1,7 @@
+**What Is YouTube’s Dominance Doing to Us? We Asked Its C.E.O.**\
+`Neal Mohan on A.I. slop, parental controls and his platform’s impact on our lives.`\
+https://nytimes.com/2026/03/28/magazine/neal-mohan-interview.html
+
 **Is Iran a Political Problem for Trump? Tell Me How Long the War Lasts.**\
 `Historically, quagmire abroad and high prices at home are the ingredients of a failed presidency.`\
 https://nytimes.com/2026/03/28/upshot/iran-war-trump-popularity.html

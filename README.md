@@ -1,3 +1,11 @@
+**How to watch Panthers vs. Islanders: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the New York Islanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153572/2026/03/28/panthers-vs-islanders-stream-how-to-watch-march-28/
+
+**How to watch Senators vs. Lightning: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153570/2026/03/28/senators-vs-lightning-stream-how-to-watch-march-28/
+
 **What Is YouTube’s Dominance Doing to Us? We Asked Its C.E.O.**\
 `Neal Mohan on A.I. slop, parental controls and his platform’s impact on our lives.`\
 https://nytimes.com/2026/03/28/magazine/neal-mohan-interview.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/28/world/americas/castro-family-cuba-energy-crisis-t
 **A Downturn in Las Vegas Could Signal Tough Times for the Nation**\
 `The high rollers may still be crowding the tables, but high prices and pinched discretionary incomes are driving a sharp drop-off in visitors to Las Vegas as Nevada’s governor runs for re-election.`\
 https://nytimes.com/2026/03/28/us/politics/las-vegas-economy.html
-
-**On CPAC’s Main Stage, Fissures in the Party Trump Remade**\
-`The Conservative Political Action Conference typically seeks to establish orthodoxy with its roster of speakers. This year, organizers created space for dissent, highlighting ongoing schisms in the MAGA movement.`\
-https://nytimes.com/2026/03/28/us/politics/on-cpacs-main-stage-fissures-in-the-party-trump-remade.html
-
-**The Oil Shocks of the ’70s Changed the World. Will the Iran War Do the Same?**\
-`Gas lines and quadrupling oil prices freaked out American consumers. But the oil crises also transformed global finance.`\
-https://nytimes.com/2026/03/28/business/oil-shocks-1970s-iran-war.html
 
