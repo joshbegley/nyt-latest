@@ -6,8 +6,8 @@ https://nytimes.com/athletic/7153630/2026/03/28/usmnt-belgium-friendly-score-rec
 `Noni Madueke, John Stones and Adam Wharton are also part of the group that will head back to their teams.`\
 https://nytimes.com/athletic/7154385/2026/03/28/saka-rice-england-squad-update/
 
-**G.O.P. Rift Leaves Congress With No Clear Shutdown Off Ramp**\
-`The deadlock that left the Department of Homeland Security shut down highlighted Republican divisions that are flaring ahead of the midterm elections.`\
+**G.O.P. Rift Leaves Congress With No Clear Path to End the Shutdown**\
+`The deadlock that left the Department of Homeland Security shuttered highlighted Republican divisions that are flaring ahead of the midterm elections.`\
 https://nytimes.com/2026/03/28/us/gop-rift-leaves-no-clear-shutdown-off-ramp.html
 
 **Geno Auriemma airs frustration with NCAA Tournament's two-site regional format**\

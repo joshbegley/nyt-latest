@@ -1,3 +1,7 @@
+**USA 2, Belgium 5: Pochettino's Americans flop in pre-World Cup test**\
+`The U.S. scored first, but the World Cup cohosts had their friendly vs. Belgium go south in Atlanta in a hurry`\
+https://nytimes.com/athletic/7153630/2026/03/28/usmnt-belgium-friendly-score-recap-world-cup/
+
 **Saka, Rice among 8 players to leave England camp and return to clubs**\
 `Noni Madueke, John Stones and Adam Wharton are also part of the group that will head back to their teams.`\
 https://nytimes.com/athletic/7154385/2026/03/28/saka-rice-england-squad-update/
