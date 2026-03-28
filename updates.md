@@ -1,3 +1,19 @@
+**Total Football? This Netherlands team are putting set pieces at the heart of their World Cup plans**\
+`Ronald Koeman has identified an area where his team can improve significantly, whether or not that fits the traditions of Dutch football`\
+https://nytimes.com/athletic/7153481/2026/03/28/netherlands-world-cup-set-pieces/
+
+**How a ‘Dexter’ Star Is Singing Her Way Through Spanish Harlem**\
+`Luna Lauren Vélez, who played Capt. Maria LaGuerta on the serial killer drama, is making her own projects now (with much less blood).`\
+https://nytimes.com/interactive/2026/03/28/nyregion/28met-routine-luna-velez.html
+
+**Are New York’s Environmental Concerns Worsening a Housing Shortage?**\
+`Gov. Kathy Hochul is proposing to exempt a majority of new housing from state environmental reviews, arguing that sufficient safeguards are in place at the local level.`\
+https://nytimes.com/2026/03/28/nyregion/hochul-housing-seqra-environment.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/28/crosswords/spelling-bee-forum.html
+
 **Here’s the latest.**\
 `By Eric Schmitt, Chris Cameron and John Yoon`\
 https://nytimes.com/live/2026/03/28/world/iran-war-trump-israel-oil/heres-the-latest

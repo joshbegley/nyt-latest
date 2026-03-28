@@ -1,3 +1,19 @@
+**Total Football? This Netherlands team are putting set pieces at the heart of their World Cup plans**\
+`Ronald Koeman has identified an area where his team can improve significantly, whether or not that fits the traditions of Dutch football`\
+https://nytimes.com/athletic/7153481/2026/03/28/netherlands-world-cup-set-pieces/
+
+**How a ‘Dexter’ Star Is Singing Her Way Through Spanish Harlem**\
+`Luna Lauren Vélez, who played Capt. Maria LaGuerta on the serial killer drama, is making her own projects now (with much less blood).`\
+https://nytimes.com/interactive/2026/03/28/nyregion/28met-routine-luna-velez.html
+
+**Are New York’s Environmental Concerns Worsening a Housing Shortage?**\
+`Gov. Kathy Hochul is proposing to exempt a majority of new housing from state environmental reviews, arguing that sufficient safeguards are in place at the local level.`\
+https://nytimes.com/2026/03/28/nyregion/hochul-housing-seqra-environment.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/28/crosswords/spelling-bee-forum.html
+
 **Here’s the latest.**\
 `By Eric Schmitt, Chris Cameron and John Yoon`\
 https://nytimes.com/live/2026/03/28/world/iran-war-trump-israel-oil/heres-the-latest
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7153433/2026/03/28/ben-white-england-boos/
 **Talk of the Devils debate: Are these Manchester United's transfer priorities this summer?**\
 `We've spent a week discussing United's summer transfer plans - so what are the most important issues to solve?`\
 https://nytimes.com/athletic/7151826/2026/03/28/manchester-united-transfer-priorities/
-
-**Managers on the rise: Cesc Fabregas – the tactical tyro ruffling the feathers of Serie A's traditionalists**\
-`The cultural resistance to Fabregas and the project of his club, Como, is intensifying with every win`\
-https://nytimes.com/athletic/7146969/2026/03/28/managers-on-the-rise-cesc-fabregas/
-
-**Mohamed and Al Hassan Toure were born in a refugee camp. Now they are dreaming of the World Cup**\
-`Both players are in contention to make the Australia squad and could play against the United States this summer`\
-https://nytimes.com/athletic/7111004/2026/03/28/mohamed-toure-al-hassan-australia/
-
-**St. John’s and its tears won't be forgotten after heartbreaking loss to Duke**\
-`It felt like St. John’s was 15 minutes away from a spot in Sunday’s East Region final. But Duke’s Caleb Foster took the game by the throat.`\
-https://nytimes.com/athletic/7153312/2026/03/28/st-johns-duke-march-madness-sweet-16-zuby-ejiofor/
-
-**First look at the men's NCAA Tournament Elite Eight: Reasons to get excited about each game**\
-`Half of the Elite Eight has never won a national title. Then there's Duke and UConn.`\
-https://nytimes.com/athletic/7153045/2026/03/28/elite-8-schedule-ncaa-mens-tournament/
 
