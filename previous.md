@@ -1,3 +1,11 @@
+**CB Bucknor has 6 pitches overturned via ABS, including consecutive challenges by Eugenio Suárez**\
+`Alex Cora was ejected by Bucknor, who had eight pitches challenged. Six were overturned.`\
+https://nytimes.com/athletic/7154534/2026/03/28/cb-bucknor-abs-challenges-eugenio-suarez-reds-red-sox/
+
+**Uncontrollable horn delays Iowa-Illinois for 11 minutes in middle of first half**\
+`The Toyota Center scoreboard also stopped working and an air horn had to be used in the Iowa-Illinois Elite Eight matchup in Houston.`\
+https://nytimes.com/athletic/7154554/2026/03/28/iowa-illinois-horn-scoreboard-delay-march-madness/
+
 **Pochettino unconcerned after USA's 'painful' 5-2 defeat to Belgium**\
 `The head coach insisted his players had not been "aggressive" enough as they slumped to a heavy defeat`\
 https://nytimes.com/athletic/7154532/2026/03/28/usa-usmnt-pochettino-belgium-painful-world-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/28/us/politics/vance-rubio-cpac-straw-poll.html
 **Henry C. Lee Dies at 87; Forensic Scientist Testified in Defense of O.J. Simpson**\
 `The Times called him “the world’s most highly regarded forensic criminologist,” but later in his career he faced accusations that he had hidden and fabricated evidence.`\
 https://nytimes.com/2026/03/28/science/henry-lee-dead.html
-
-**USA 2, Belgium 5: Pochettino's Americans flop in pre-World Cup test**\
-`The U.S. scored first, but the World Cup cohosts had their friendly vs. Belgium go south in Atlanta in a hurry`\
-https://nytimes.com/athletic/7153630/2026/03/28/usmnt-belgium-friendly-score-recap-world-cup/
-
-**Saka, Rice among 8 players to leave England camp and return to clubs**\
-`Noni Madueke, John Stones and Adam Wharton are also part of the group that will head back to their teams.`\
-https://nytimes.com/athletic/7154385/2026/03/28/saka-rice-england-squad-update/
 
