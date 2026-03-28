@@ -1,3 +1,7 @@
+**Aston Martin starts last for Honda's home F1 race. It's a new low for the manufacturer**\
+`Aston Martin has started the 2026 F1 season badly due to an issue with its Honda engine. That hurts at the Japanese manufacturer's home race`\
+https://nytimes.com/athletic/7153546/2026/03/28/aston-martin-honda-engine-problem-japanese-gp/
+
 **Pakistan Set to Host Top Regional Diplomats for Talks on Iran War**\
 `The foreign ministers of Saudi Arabia, Turkey, and Egypt are expected in Islamabad on Sunday as the Pakistani government strives to find a diplomatic solution to the war.`\
 https://nytimes.com/2026/03/28/world/middleeast/iran-pakistan-diplomacy.html
