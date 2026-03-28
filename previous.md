@@ -1,40 +1,40 @@
-**Elite Eight power rankings: Who's strong enough to make the Final Four?**\
-`The stage is set for four epic showdowns this weekend with berths in the Final Four on the line. `\
-https://nytimes.com/athletic/7153211/2026/03/28/mens-ncaa-tournament-elite-8-power-rankings/
+**How to watch Spurs vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the San Antonio Spurs play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153591/2026/03/28/spurs-vs-bucks-stream-how-to-watch-march-28/
 
-**Duke's NCAA Tournament revenge tour continues. Up next: UCLA in the Elite Eight**\
-`Duke has proven its regular-season losses are meaningless in March. A 30-point loss to UCLA is hard to forget.`\
-https://nytimes.com/athletic/7153515/2026/03/28/duke-ncaa-tournament-revenge-ucla-elite-eight/
+**Present Company**\
+`Entertaining out-of-town visitors can yield ideas for how to live more intentionally in your everyday life.`\
+https://nytimes.com/2026/03/28/briefing/present-company.html
 
-**Don't look now, but Rick Barnes is an elite NCAA Tournament coach**\
-`Barnes, who once shouldered the burden of March underachievement, is headed to a third straight Elite Eight with a team defying expectation.`\
-https://nytimes.com/athletic/7153581/2026/03/28/rick-barnes-ncaa-tournament-tennessee-elite-8/
+**Rick Bowness wants Blue Jackets to combat recent scoring woes with nastier approach**\
+`"I'm not going to hide behind the analytics... that's not winning games for us. We're going to have to get a little nastier," said Bowness.`\
+https://nytimes.com/athletic/7152933/2026/03/28/blue-jackets-rick-bowness-nhl-playoffs-scoring/
 
-**Yemen’s Houthis Fire at Israel, Vowing Further Attacks**\
-`There has long been concern that the Houthis, an Iran-backed militia, could seek to disrupt shipping in the Red Sea if they entered the broader war.`\
-https://nytimes.com/2026/03/28/world/middleeast/yemen-houthis-attack-israel-war.html
+**Could the Blues shock the NHL again? Breaking down the ultimate long shot's potential playoff path**\
+`The Blues are 10-2-2 since the Olympic break but are still a long-shot to make the playoffs. Can they pull it off?`\
+https://nytimes.com/athletic/7115365/2026/03/28/st-louis-blues-playoffs-schedule-standings/
 
-**Can Alex Bump continue to play a key role in the Flyers’ late-season playoff push?**\
-`Bump is learning how to use his 6-foot-2, 202-pound frame more effectively.`\
-https://nytimes.com/athletic/7152270/2026/03/28/alex-bump-flyers-roster-nhl-playoffs/
+**Dylan Garand's strong play warrants another start as young Rangers shine in win**\
+`Garand stopped 27 of the 28 shots the Blackhawks threw his way and earned his first NHL win, which came after a strong debut on Sunday.`\
+https://nytimes.com/athletic/7153253/2026/03/28/dylan-garands-strong-play-warrants-another-start-as-young-rangers-shine-in-win/
 
-**Iowa's coach never stops looking for an edge — even at 3 a.m.: 'He's always up'**\
-`“His ability to regurgitate all that, like cramming for a test, is unbelievable,” his assistant coach said.`\
-https://nytimes.com/athletic/7153247/2026/03/28/iowa-ben-mccollum-coach-game-plan-march-madness/
+**The personal history and connections that sealed Pete Crow-Armstrong’s 6-year, $115 million deal**\
+`“This city means everything to me,” Crow-Armstrong said. “It really welcomed me."`\
+https://nytimes.com/athletic/7153182/2026/03/28/pete-crow-armstrong-contract-cubs-2026/
 
-**Baseball Hall of Fame's newest Buck O’Neil award winner Bill White reflects on his impact**\
-`Bill White wanted to be a doctor when he grew up. The game of baseball was better for his career.`\
-https://nytimes.com/athletic/7149699/2026/03/28/baseball-hof-buck-oneil-award-bill-white-career/
+**The Old Man Dreaming Up Wars for Young Men to Fight**\
+`Any deal with Iran would probably be a bad one. But sending ground troops to seize Iranian territory would be an even worse choice.`\
+https://nytimes.com/2026/03/28/opinion/iran-war-kharg-island.html
 
-**What we learned from Red Sox opener: Anthony's poise, Mayer's readiness, ABS strategy, more**\
-`The Red Sox were off Friday following Opening Day on Thursday. Here's more news, notes and observations from Game 1 of 162.`\
-https://nytimes.com/athletic/7152487/2026/03/28/boston-red-sox-opener-anthony-mayer-abs/
+**‘We Are Going to Deeply Regret This War’**\
+`Three journalists on the potential repercussions of Operation Epic Fury.`\
+https://nytimes.com/2026/03/28/opinion/iran-trump-israel-geopolitics.html
 
-**Blue Jays’ World Series run echoes in poetic Opening Day win**\
-`With a crushing blown save and a walk-off win, Toronto’s 3-2 victory over the Athletics reminded all of the Jays’ 2025 postseason run.`\
-https://nytimes.com/athletic/7153275/2026/03/28/blue-jays-walk-off-win-opening-day/
+**How Elias Salomonsson went from top prospect to unexpected top four Jets defenceman**\
+`Elias Salomonsson emerged as a top four defenceman before Winnipeg was ready for him.`\
+https://nytimes.com/athletic/7149507/2026/03/28/jets-elias-salomonsson/
 
-**2026 NHL prospect pool rankings: No. 13 Buffalo Sabres**\
-`The Sabres have pieces at premium positions, with future NHLers at center and on defense, but are weak on the wings.`\
-https://nytimes.com/athletic/7084288/2026/03/28/buffalo-sabres-nhl-prospect-rankings-2026/
+**5 pressing questions for Eagles owner Jeffrey Lurie: Tush push, Jalen Hurts contract and more**\
+`The plan for A.J. Brown and Nick Sirianni's job security should also be topics of discussion.`\
+https://nytimes.com/athletic/7146310/2026/03/28/eagles-questions-league-meetings-tush-push-jalen-hurts-contract/
 
