@@ -1,3 +1,11 @@
+**Why the Iowa-Illinois rivalry's hate goes much deeper than the Elite Eight**\
+`Each program has several other rivalries, but Illini and Hawkeyes newcomers learn quickly that this one is different.`\
+https://nytimes.com/athletic/7152774/2026/03/28/iowa-illinois-basketball-rivalry-ncaa-tournament/
+
+**Men's Elite Eight Saturday schedule: How to watch Iowa-Illinois, Purdue-Arizona**\
+`Saturday's Elite Eight games punch the first set of tickets to the Final Four. Here's how to watch these high-stakes showdowns. `\
+https://nytimes.com/athletic/7152613/2026/03/28/elite-eight-iowa-illinois-purdue-arizona-how-to-watch/
+
 **Spain have too many elite keepers to take to the World Cup. Who will be No 1 and who misses out?**\
 `Arsenal's David Raya and Barcelona's Joan Garcia are among the contenders, but can they displace incumbent Unai Simon?`\
 https://nytimes.com/athletic/7153090/2026/03/28/spain-goalkeepers-world-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/03/28/world/iran-war-trump-israel-oil
 **Wirtz is Germany's key creative force. This is what Liverpool hoped to see this season**\
 `His two goals and two assists in Switzerland were evidence of the decisive contributions that have only been seen infrequently at Anfield`\
 https://nytimes.com/athletic/7153001/2026/03/28/florian-wirtz-germany-liverpool/
-
-**Kim Mulkey shuts down rumors she is retiring: 'It’s just a flat-out lie'**\
-`Mulkey sounded frustrated addressing rumors after LSU suffered an 87-85 buzzer-beating loss to Duke on Friday in the Sweet 16.`\
-https://nytimes.com/athletic/7153442/2026/03/28/kim-mulkey-lsu-retirement-duke-loss/
-
-**Ben White and boos - the latest chapter in a complicated relationship with England**\
-`The Arsenal defender scored, conceded a penalty and was the subject of fans' unhappiness on his first national-team appearance since 2022`\
-https://nytimes.com/athletic/7153433/2026/03/28/ben-white-england-boos/
 
