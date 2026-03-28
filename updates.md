@@ -1,3 +1,7 @@
+**The debate is over. Drivers say Suzuka's famous challenge is diminished in F1 2026**\
+`Ahead of the 2026 Japanese GP, many drivers wondered if Suzuka would feel the same in the new F1 cars. Their verdict is in: it does not`\
+https://nytimes.com/athletic/7153593/2026/03/28/japanese-gp-suzuka-new-f1-cars/
+
 **How to watch Kentucky vs. Texas women's basketball: Sweet 16 Time, TV, streaming**\
 `Find out how to watch the Kentucky Wildcats play the Texas Longhorns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7153621/2026/03/28/kentucky-vs-texas-stream-how-to-watch-march-28/
