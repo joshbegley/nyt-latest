@@ -1,3 +1,11 @@
+**USWNT forward Catarina Macario on returning home to San Diego: ‘There’s nothing better’**\
+`San Diego is Macario's home, but the Wave's roster construction and the NWSL's HIP rule are what helped make the move possible.`\
+https://nytimes.com/athletic/7153577/2026/03/28/uswnt-catarina-macario-interview-san-diego-wave-nwsl/
+
+**How to watch Iowa vs. Illinois men's basketball: Elite Eight Time, TV, streaming**\
+`Find out how to watch the Iowa Hawkeyes play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153971/2026/03/28/iowa-vs-illinois-stream-how-to-watch-march-28/
+
 **The Latest Front in Stephen Miller’s Personal War**\
 `His project of subordination at home and abroad continues unabated.`\
 https://nytimes.com/2026/03/28/opinion/stephen-miller-birthright-citizenship-14th-amendment.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7153917/2026/03/28/white-sox-vs-brewers-stream-how-
 **How to watch Angels vs. Astros: Time, TV, streaming for March 28**\
 `Find out how to watch the Los Angeles Angels play the Houston Astros, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7153899/2026/03/28/angels-vs-astros-stream-how-to-watch-march-28/
-
-**‘No Kings’ Protests Span the World, in Places Big and Small**\
-`It’s the third time that protesters have organized events around the globe to protest President Trump and his policies. In the United States, more than 3,000 demonstrations are planned.`\
-https://nytimes.com/2026/03/28/us/no-kings-protest-photos-videos.html
-
-**How to watch Pistons vs. Timberwolves: Time, TV, streaming**\
-`Find out how to watch the Detroit Pistons play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7153887/2026/03/28/pistons-vs-timberwolves-stream-how-to-watch-march-28/
 

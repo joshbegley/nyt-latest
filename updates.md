@@ -1,3 +1,11 @@
+**USWNT forward Catarina Macario on returning home to San Diego: ‘There’s nothing better’**\
+`San Diego is Macario's home, but the Wave's roster construction and the NWSL's HIP rule are what helped make the move possible.`\
+https://nytimes.com/athletic/7153577/2026/03/28/uswnt-catarina-macario-interview-san-diego-wave-nwsl/
+
+**How to watch Iowa vs. Illinois men's basketball: Elite Eight Time, TV, streaming**\
+`Find out how to watch the Iowa Hawkeyes play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153971/2026/03/28/iowa-vs-illinois-stream-how-to-watch-march-28/
+
 **The Latest Front in Stephen Miller’s Personal War**\
 `His project of subordination at home and abroad continues unabated.`\
 https://nytimes.com/2026/03/28/opinion/stephen-miller-birthright-citizenship-14th-amendment.html
