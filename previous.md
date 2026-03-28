@@ -1,3 +1,15 @@
+**How to watch Stars vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Dallas Stars play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153791/2026/03/28/stars-vs-penguins-stream-how-to-watch-march-28/
+
+**How to watch Ducks vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153789/2026/03/28/ducks-vs-oilers-stream-how-to-watch-march-28/
+
+**How to watch Wild vs. Bruins: Time, TV, streaming**\
+`Find out how to watch the Minnesota Wild play the Boston Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153787/2026/03/28/wild-vs-bruins-stream-how-to-watch-march-28/
+
 **How to watch Devils vs. Hurricanes: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the Carolina Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7153783/2026/03/28/devils-vs-hurricanes-stream-how-to-watch-march-28/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7153751/2026/03/28/twins-vs-orioles-stream-how-to-w
 **How to watch Pirates vs. Mets: Time, TV, streaming for March 28**\
 `Find out how to watch the Pittsburgh Pirates play the New York Mets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7153739/2026/03/28/pirates-vs-mets-stream-how-to-watch-march-28/
-
-**Aston Martin starts last for Honda's home F1 race. It's a new low for the manufacturer**\
-`Aston Martin has started the 2026 F1 season badly due to an issue with its Honda engine. That hurts at the Japanese manufacturer's home race`\
-https://nytimes.com/athletic/7153546/2026/03/28/aston-martin-honda-engine-problem-japanese-gp/
-
-**Pakistan Set to Host Top Regional Diplomats for Talks on Iran War**\
-`The foreign ministers of Saudi Arabia, Turkey, and Egypt are expected in Islamabad on Sunday as the Pakistani government strives to find a diplomatic solution to the war.`\
-https://nytimes.com/2026/03/28/world/middleeast/iran-pakistan-diplomacy.html
-
-**Payton Pritchard's clutch work on the glass helps Celtics continue rebounding surge**\
-`The Celtics entered the All-Star break 18th in defensive rebound rate. Since the break? They lead the NBA, and everyone is pitching in.`\
-https://nytimes.com/athletic/7153366/2026/03/28/celtics-payton-pritchard-rebounding-surge/
 

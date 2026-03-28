@@ -1,3 +1,15 @@
+**How to watch Stars vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Dallas Stars play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153791/2026/03/28/stars-vs-penguins-stream-how-to-watch-march-28/
+
+**How to watch Ducks vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153789/2026/03/28/ducks-vs-oilers-stream-how-to-watch-march-28/
+
+**How to watch Wild vs. Bruins: Time, TV, streaming**\
+`Find out how to watch the Minnesota Wild play the Boston Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153787/2026/03/28/wild-vs-bruins-stream-how-to-watch-march-28/
+
 **How to watch Devils vs. Hurricanes: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the Carolina Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7153783/2026/03/28/devils-vs-hurricanes-stream-how-to-watch-march-28/

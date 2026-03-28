@@ -1,3 +1,7 @@
+**How to watch Oklahoma vs. South Carolina women's basketball: Sweet 16 Time, TV, streaming**\
+`Find out how to watch the Oklahoma Sooners play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153806/2026/03/28/oklahoma-vs-south-carolina-stream-how-to-watch-march-28/
+
 **How to watch Stars vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the Dallas Stars play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7153791/2026/03/28/stars-vs-penguins-stream-how-to-watch-march-28/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7153753/2026/03/28/red-sox-vs-reds-stream-how-to-wa
 **How to watch Twins vs. Orioles: Time, TV, streaming for March 28**\
 `Find out how to watch the Minnesota Twins play the Baltimore Orioles, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7153751/2026/03/28/twins-vs-orioles-stream-how-to-watch-march-28/
-
-**How to watch Pirates vs. Mets: Time, TV, streaming for March 28**\
-`Find out how to watch the Pittsburgh Pirates play the New York Mets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7153739/2026/03/28/pirates-vs-mets-stream-how-to-watch-march-28/
 
