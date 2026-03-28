@@ -1,4 +1,4 @@
-**Marcelo Bielsa and Leeds United fans were reunited at Wembley. Their love for him runs deep**\
+**Marcelo Bielsa and Leeds fans were reunited at Wembley. Their love for him runs deep**\
 `Leeds United fans were at Wembley as much to see their beloved Marcelo Bielsa on the touchline for Uruguay as England playing at home`\
 https://nytimes.com/athletic/7153462/2026/03/28/marcelo-bielsa-uruguay-england-leeds-united-reaction/
 
