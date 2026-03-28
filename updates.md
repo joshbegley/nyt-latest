@@ -1,3 +1,7 @@
+**Pochettino unconcerned after USA's 'painful' 5-2 defeat to Belgium**\
+`The head coach insisted his players had not been "aggressive" enough as they slumped to a heavy defeat`\
+https://nytimes.com/athletic/7154532/2026/03/28/usa-usmnt-pochettino-belgium-painful-world-cup/
+
 **Astronaut’s Condition That Led to Space Station Evacuation Remains a Mystery**\
 `The astronaut, Michael Fincke, experienced a medical emergency in January that rendered him unable to speak, he said.`\
 https://nytimes.com/2026/03/28/science/space/nasa-astronaut-medical-evaluation.html
