@@ -1,3 +1,7 @@
+**Aston Martin starts last for Honda's home F1 race. It's a new low for the manufacturer**\
+`Aston Martin has started the 2026 F1 season badly due to an issue with its Honda engine. That hurts at the Japanese manufacturer's home race`\
+https://nytimes.com/athletic/7153546/2026/03/28/aston-martin-honda-engine-problem-japanese-gp/
+
 **Pakistan Set to Host Top Regional Diplomats for Talks on Iran War**\
 `The foreign ministers of Saudi Arabia, Turkey, and Egypt are expected in Islamabad on Sunday as the Pakistani government strives to find a diplomatic solution to the war.`\
 https://nytimes.com/2026/03/28/world/middleeast/iran-pakistan-diplomacy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7153071/2026/03/28/freddy-peralta-extension-mets-no
 **The Pulse: The Elite 8 begins**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/7153263/2026/03/28/the-elite-8-begins-plus-tigers-arrest/
-
-**How to watch Rays vs. Cardinals: Time, TV, streaming for March 28**\
-`Find out how to watch the Tampa Bay Rays play the St. Louis Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7153604/2026/03/28/rays-vs-cardinals-stream-how-to-watch-march-28/
 
