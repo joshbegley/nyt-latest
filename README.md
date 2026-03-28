@@ -22,7 +22,7 @@ https://nytimes.com/2026/03/27/us/politics/judge-agrees-to-drop-charges-against-
 `In her final competitive program of the season, the U.S. star delivered the full Glenn experience: a mix of beauty and struggle.`\
 https://nytimes.com/athletic/7152669/2026/03/27/amber-glenn-isu-world-championships-2026/
 
-**Yankees make franchise history by starting season with back-to-back shutouts**\
+**Yankees make franchise history by securing back-to-back shutouts to start season**\
 `With their 3-0 win over the Giants on Friday afternoon, the Yankees opened the season with back-to-back shutouts for the first time.`\
 https://nytimes.com/athletic/7152913/2026/03/27/yankees-pitchers-shutouts-start-season-franchise-history/
 
