@@ -1,3 +1,7 @@
+**USA 2, Belgium 5: Pochettino's Americans flop in pre-World Cup test**\
+`The U.S. scored first, but the World Cup cohosts had their friendly vs. Belgium go south in Atlanta in a hurry`\
+https://nytimes.com/athletic/7153630/2026/03/28/usmnt-belgium-friendly-score-recap-world-cup/
+
 **Saka, Rice among 8 players to leave England camp and return to clubs**\
 `Noni Madueke, John Stones and Adam Wharton are also part of the group that will head back to their teams.`\
 https://nytimes.com/athletic/7154385/2026/03/28/saka-rice-england-squad-update/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/28/us/no-kings-trump-iran-immigration-minnesota.html
 **James Tolkan, a Tough-Talking Actor in ‘Back to the Future’ and ‘Top Gun,’ Dies at 94**\
 `Mr. Tolkan’s career spanned decades but his breakout roles came as an authority figure in two popular films of the mid-1980s.`\
 https://nytimes.com/2026/03/28/obituaries/james-tolkan-dead.html
-
-**Sidney Crosby to miss game Saturday vs. Dallas but avoids major injury**\
-`Pittsburgh coach Dan Muse did not specify if Crosby's injury was related to the center's recent MCL tear, which kept him out for 11 games.`\
-https://nytimes.com/athletic/7154018/2026/03/28/penguins-sidney-crosby-injury-update/
 
