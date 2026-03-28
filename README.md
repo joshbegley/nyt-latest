@@ -2,7 +2,7 @@
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2026/03/28/world/iran-war-trump-israel-oil/in-dubai-a-famed-horse-race-goes-on-despite-the-war
 
-**Months after losing Game 7, John Schneider found a letter from an admirer: Steve Kerr**\
+**Months after Game 7 loss, John Schneider found letter from an admirer: Steve Kerr**\
 `The letter sat in Schneider’s office all winter. But the Blue Jays manager read it at the perfect time.`\
 https://nytimes.com/athletic/7154224/2026/03/28/blue-jays-warriors-john-schneider-steve-kerr/
 

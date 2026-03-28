@@ -1,3 +1,11 @@
+**In Dubai, a famed horse race goes on, despite the war.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2026/03/28/world/iran-war-trump-israel-oil/in-dubai-a-famed-horse-race-goes-on-despite-the-war
+
+**Months after losing Game 7, John Schneider found a letter from an admirer: Steve Kerr**\
+`The letter sat in Schneider’s office all winter. But the Blue Jays manager read it at the perfect time.`\
+https://nytimes.com/athletic/7154224/2026/03/28/blue-jays-warriors-john-schneider-steve-kerr/
+
 **10 Million Grill Brushes Recalled After Some People Ingested Loose Bristles**\
 `In at least five cases, customers sought medical attention to remove bristles “from their digestive tract or throat,” a federal agency said.`\
 https://nytimes.com/2026/03/28/business/nexgrill-grill-brush-recall-spikes-ingested.html
