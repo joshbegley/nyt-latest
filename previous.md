@@ -1,5 +1,9 @@
+**Roundabouts**\
+`Michael and Oliver Schlossberg’s puzzle will drive you crazy.`\
+https://nytimes.com/2026/03/28/crosswords/daily-puzzle-2026-03-29.html
+
 **Aryna Sabalenka claims resilient win over Coco Gauff in Miami Open final**\
-`With a multi-dimensional attack that had Gauff guessing all afternoon, Sabalenka powered to a second consecutive win at Hard Rock Stadium.`\
+`With a multidimensional attack that had Gauff guessing all afternoon, Sabalenka powered to a second consecutive win at Hard Rock Stadium.`\
 https://nytimes.com/athletic/7154315/2026/03/28/aryna-sabalenka-coco-gauff-miami-open-final/
 
 **Vance Wins CPAC Straw Poll, but Rubio Gains Steam Among MAGA Faithful**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7154330/2026/03/28/usmnt-belgium-jersey-color-clash
 **Airstrikes batter a university and residential zones in Tehran.**\
 `By Pranav Baskar and Shirin Hakim`\
 https://nytimes.com/live/2026/03/28/world/iran-war-trump-israel-oil/airstrikes-university-tehran
-
-**Dr. Judith L. Rapoport, Pioneer in Understanding O.C.D., Dies at 92**\
-`Her best-selling 1989 book, “The Boy Who Couldn’t Stop Washing,” based on her groundbreaking research, brought public awareness to obsessive-compulsive disorder.`\
-https://nytimes.com/2026/03/28/science/judith-rapoport-dead.html
 
