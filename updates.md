@@ -1,3 +1,7 @@
+**Kim Mulkey shuts down rumors she is retiring: 'It’s just a flat-out lie'**\
+`Mulkey sounded frustrated addressing rumors after LSU suffered an 87-85 buzzer-beating loss to Duke on Friday in the Sweet 16.`\
+https://nytimes.com/athletic/7153442/2026/03/28/kim-mulkey-lsu-retirement-duke-loss/
+
 **Ben White and boos - the latest chapter in a complicated relationship with England**\
 `The Arsenal defender scored, conceded a penalty and was the subject of fans' unhappiness on his first national-team appearance since 2022`\
 https://nytimes.com/athletic/7153433/2026/03/28/ben-white-england-boos/
