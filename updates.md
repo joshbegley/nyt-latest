@@ -1,3 +1,7 @@
+**After receiving World Series rings, Dodgers' comeback victory shows why they're favorites again**\
+`The Dodgers' big offseason signings, Kyle Tucker and Edwin Díaz, ultimately sealed L.A.'s victory Friday night.`\
+https://nytimes.com/athletic/7153254/2026/03/28/dodgers-diamondbacks-edwin-diaz/
+
 **Everything With Trump’s Name, Likeness and Signature**\
 `Since the start of his second term, there have been more than a dozen instances of his name, image or signature emblazoned on a variety of American initiatives and institutions.`\
 https://nytimes.com/interactive/2026/03/28/us/politics/trump-signature-name-image.html
