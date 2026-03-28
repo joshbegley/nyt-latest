@@ -1,3 +1,7 @@
+**F.B.I. Said to Dig Up Old Investigative Files on Democratic Lawmaker**\
+`The urgent instructions at the Trump administration’s behest to gather and relay the files on Representative Eric Swalwell have alarmed some career law enforcement officials.`\
+https://nytimes.com/2026/03/28/us/politics/trump-fbi-patel-eric-swalwell.html
+
 **Iran and Immigration Frustrations Fuel New Wave of ‘No Kings’ Rallies**\
 `Thousands of organized demonstrations stretched across the country. Minnesota was a focal point of the protests after a tumultuous immigration crackdown.`\
 https://nytimes.com/2026/03/28/world/no-kings-minnesota-trump-immigration-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7154287/2026/03/28/canucks-vs-flames-stream-how-to-
 **Ilia Malinin wins gold at 2026 World Championships**\
 `His latest success won't be as viral as his last failure, but Malinin looked like himself again in Prague.`\
 https://nytimes.com/athletic/7154026/2026/03/28/ilia-malinin-wins-gold-world-championships/
-
-**How to watch Guardians vs. Mariners: Time, TV, streaming for March 28**\
-`Find out how to watch the Cleveland Guardians play the Seattle Mariners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7154267/2026/03/28/guardians-vs-mariners-stream-how-to-watch-march-28/
 
