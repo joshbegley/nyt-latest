@@ -1,3 +1,7 @@
+**Spain have too many elite keepers to take to the World Cup. Who will be No 1 and who misses out?**\
+`Arsenal's David Raya and Barcelona's Joan Garcia are among the contenders, but can they displace incumbent Unai Simon?`\
+https://nytimes.com/athletic/7153090/2026/03/28/spain-goalkeepers-world-cup/
+
 **Total Football? This Netherlands team are putting set pieces at the heart of their World Cup plans**\
 `Ronald Koeman has identified an area where his team can improve significantly, whether or not that fits the traditions of Dutch football`\
 https://nytimes.com/athletic/7153481/2026/03/28/netherlands-world-cup-set-pieces/
