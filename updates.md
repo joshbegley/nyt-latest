@@ -1,3 +1,7 @@
+**A Robust Caesar for Broccoli Lovers**\
+`Trusty white beans and roasted broccoli get the garlicky, assertively umami Caesar treatment.`\
+https://nytimes.com/2026/03/28/dining/a-robust-caesar-for-broccoli-lovers.html
+
 **Kevin McGonigle's 10-pitch triumph: An anatomy of the Tigers rookie's go-ahead at-bat**\
 `Detroit is 2-0, and the prized rookie has played a starring role in both games.`\
 https://nytimes.com/athletic/7153473/2026/03/28/tigers-kevin-mcgonigle-ten-pitch-at-bat/

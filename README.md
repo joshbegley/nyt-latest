@@ -1,3 +1,15 @@
+**‘No Kings’ Protests Span the World, in Places Big and Small**\
+`It’s the third time that protesters have organized events around the globe to protest President Trump and his policies. In the United States, more than 3,000 demonstrations are planned.`\
+https://nytimes.com/2026/03/28/us/no-kings-protest-photos-videos.html
+
+**How to watch Pistons vs. Timberwolves: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153887/2026/03/28/pistons-vs-timberwolves-stream-how-to-watch-march-28/
+
+**How to watch 76ers vs. Hornets: Time, TV, streaming**\
+`Find out how to watch the Philadelphia 76ers play the Charlotte Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153884/2026/03/28/76ers-vs-hornets-stream-how-to-watch-march-28/
+
 **A Robust Caesar for Broccoli Lovers**\
 `Trusty white beans and roasted broccoli get the garlicky, assertively umami Caesar treatment.`\
 https://nytimes.com/2026/03/28/dining/a-robust-caesar-for-broccoli-lovers.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7153160/2026/03/28/red-wings-sabres-moritz-seider-j
 **How to watch Oklahoma vs. South Carolina women's basketball: Sweet 16 Time, TV, streaming**\
 `Find out how to watch the Oklahoma Sooners play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7153806/2026/03/28/oklahoma-vs-south-carolina-stream-how-to-watch-march-28/
-
-**How to watch Stars vs. Penguins: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7153791/2026/03/28/stars-vs-penguins-stream-how-to-watch-march-28/
-
-**How to watch Ducks vs. Oilers: Time, TV, streaming**\
-`Find out how to watch the Anaheim Ducks play the Edmonton Oilers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7153789/2026/03/28/ducks-vs-oilers-stream-how-to-watch-march-28/
-
-**How to watch Wild vs. Bruins: Time, TV, streaming**\
-`Find out how to watch the Minnesota Wild play the Boston Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7153787/2026/03/28/wild-vs-bruins-stream-how-to-watch-march-28/
 

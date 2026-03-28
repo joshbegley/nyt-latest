@@ -1,3 +1,7 @@
+**A Robust Caesar for Broccoli Lovers**\
+`Trusty white beans and roasted broccoli get the garlicky, assertively umami Caesar treatment.`\
+https://nytimes.com/2026/03/28/dining/a-robust-caesar-for-broccoli-lovers.html
+
 **Kevin McGonigle's 10-pitch triumph: An anatomy of the Tigers rookie's go-ahead at-bat**\
 `Detroit is 2-0, and the prized rookie has played a starring role in both games.`\
 https://nytimes.com/athletic/7153473/2026/03/28/tigers-kevin-mcgonigle-ten-pitch-at-bat/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7153789/2026/03/28/ducks-vs-oilers-stream-how-to-wa
 **How to watch Wild vs. Bruins: Time, TV, streaming**\
 `Find out how to watch the Minnesota Wild play the Boston Bruins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7153787/2026/03/28/wild-vs-bruins-stream-how-to-watch-march-28/
-
-**How to watch Devils vs. Hurricanes: Time, TV, streaming**\
-`Find out how to watch the New Jersey Devils play the Carolina Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7153783/2026/03/28/devils-vs-hurricanes-stream-how-to-watch-march-28/
 
