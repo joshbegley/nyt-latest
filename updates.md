@@ -1,3 +1,11 @@
+**Everything With Trump’s Name, Likeness and Signature**\
+`Since the start of his second term, there have been more than a dozen instances of his name, image or signature emblazoned on a variety of American initiatives and institutions.`\
+https://nytimes.com/interactive/2026/03/28/us/politics/trump-signature-name-image.html
+
+**April Monthly Bake: Carrot Cake Butter Mochi**\
+`The spice of carrot cake meets the springy and buttery texture of mochi cake, with a tangy cream cheese glaze for good measure.`\
+https://nytimes.com/2026/03/28/dining/april-monthly-bake-carrot-cake-butter-mochi.html
+
 **Red Wings' victory in Buffalo answered key questions. One big one remains.**\
 `The Red Wings pulled off a big win in Buffalo on Friday, setting up a tense final 10 games.`\
 https://nytimes.com/athletic/7153160/2026/03/28/red-wings-sabres-moritz-seider-john-gibson/
