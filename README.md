@@ -1,3 +1,7 @@
+**Kim Mulkey shuts down rumors she is retiring: 'It’s just a flat-out lie'**\
+`Mulkey sounded frustrated addressing rumors after LSU suffered an 87-85 buzzer-beating loss to Duke on Friday in the Sweet 16.`\
+https://nytimes.com/athletic/7153442/2026/03/28/kim-mulkey-lsu-retirement-duke-loss/
+
 **Ben White and boos - the latest chapter in a complicated relationship with England**\
 `The Arsenal defender scored, conceded a penalty and was the subject of fans' unhappiness on his first national-team appearance since 2022`\
 https://nytimes.com/athletic/7153433/2026/03/28/ben-white-england-boos/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7153178/2026/03/28/blackhawks-rangers-sacha-boisver
 **Big Ten earns half of 2026 Elite Eight spots, tying men's tournament record**\
 `Last year, the SEC also sent four teams to the regional finals, with eventual champion Florida and Auburn reaching the Final Four.`\
 https://nytimes.com/athletic/7153334/2026/03/28/big-ten-elite-eight-ncaa-tournament/
-
-**Luka Dončić picks up 16th technical foul, triggering 1-game suspension**\
-`Unless the technical is rescinded (as one was last weekend), Luka Dončić will serve his suspension Monday against the Wizards.`\
-https://nytimes.com/athletic/7153332/2026/03/28/luka-doncic-technical-foul-suspension-lakers/
 
