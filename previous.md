@@ -1,3 +1,7 @@
+**Cade Horton spins a gem, opens season looking like the pitcher who dominated last summer**\
+`Horton allowed two runs on four hits while striking out four and walking just one in 6 1/3 strong innings Saturday.`\
+https://nytimes.com/athletic/7154501/2026/03/28/cade-horton-stats-cubs-season-opener/
+
 **What we saw and learned from Nebraska football's spring game: 6 observations**\
 `New faces, a lighter crowd and more from an earlier spring game than ever at Nebraska.`\
 https://nytimes.com/athletic/7154490/2026/03/28/nebraska-football-spring-game-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/28/crosswords/daily-puzzle-2026-03-29.html
 **Aryna Sabalenka claims resilient win over Coco Gauff in Miami Open final**\
 `With a multidimensional attack that had Gauff guessing all afternoon, Sabalenka powered to a second consecutive win at Hard Rock Stadium.`\
 https://nytimes.com/athletic/7154315/2026/03/28/aryna-sabalenka-coco-gauff-miami-open-final/
-
-**Vance Wins CPAC Straw Poll, but Rubio Gains Steam Among MAGA Faithful**\
-`Conference organizers presented the poll results as a rebuttal to narratives that Republicans were split over the Iran war and support for Israel.`\
-https://nytimes.com/2026/03/28/us/politics/vance-rubio-cpac-straw-poll.html
 

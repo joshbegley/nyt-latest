@@ -1,3 +1,7 @@
+**Cade Horton spins a gem, opens season looking like the pitcher who dominated last summer**\
+`Horton allowed two runs on four hits while striking out four and walking just one in 6 1/3 strong innings Saturday.`\
+https://nytimes.com/athletic/7154501/2026/03/28/cade-horton-stats-cubs-season-opener/
+
 **What we saw and learned from Nebraska football's spring game: 6 observations**\
 `New faces, a lighter crowd and more from an earlier spring game than ever at Nebraska.`\
 https://nytimes.com/athletic/7154490/2026/03/28/nebraska-football-spring-game-analysis/
