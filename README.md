@@ -1,3 +1,11 @@
+**Twelve tonnes of Formula 1 KitKat bars stolen in Europe**\
+`KitKat became F1’s official chocolate bar last year, during F1’s 75th anniversary and KitKat’s 90th anniversary.`\
+https://nytimes.com/athletic/7154143/2026/03/28/f1-kitkat-bars-stolen-europe/
+
+**Israeli Strike Kills 3 Journalists in Southern Lebanon, Officials Say**\
+`Israel accused one of the reporters of being a Hezbollah operative. Lebanon’s president said they were journalists and condemned the killings.`\
+https://nytimes.com/2026/03/28/world/middleeast/lebanon-journalists-killed-israeli-strike.html
+
 **How to watch Purdue vs. Arizona men's basketball: Elite Eight Time, TV, streaming**\
 `Find out how to watch the Purdue Boilermakers play the Arizona Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7154142/2026/03/28/purdue-vs-arizona-stream-how-to-watch-march-28/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7154066/2026/03/28/diamondbacks-vs-dodgers-stream-h
 **How to watch Royals vs. Braves: Time, TV, streaming for March 28**\
 `Find out how to watch the Kansas City Royals play the Atlanta Braves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7154052/2026/03/28/royals-vs-braves-stream-how-to-watch-march-28/
-
-**How to watch Bulls vs. Grizzlies: Time, TV, streaming**\
-`Find out how to watch the Chicago Bulls play the Memphis Grizzlies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7154038/2026/03/28/bulls-vs-grizzlies-stream-how-to-watch-march-28/
-
-**How to watch Kings vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the Sacramento Kings play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7154036/2026/03/28/kings-vs-hawks-stream-how-to-watch-march-28/
 
