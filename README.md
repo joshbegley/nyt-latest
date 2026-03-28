@@ -1,3 +1,15 @@
+**USA, Belgium jersey clash makes for incredibly confusing viewing experience**\
+`For anyone watching USA vs. Belgium, it was tough to tell players from each team apart due to their kit choices`\
+https://nytimes.com/athletic/7154330/2026/03/28/usmnt-belgium-jersey-color-clash-uniforms/
+
+**Airstrikes batter a university and residential zones in Tehran.**\
+`By Pranav Baskar and Shirin Hakim`\
+https://nytimes.com/live/2026/03/28/world/iran-war-trump-israel-oil/airstrikes-university-tehran
+
+**Dr. Judith L. Rapoport, Pioneer in Understanding O.C.D., Dies at 92**\
+`Her best-selling 1989 book, “The Boy Who Couldn’t Stop Washing,” based on her groundbreaking research, brought public awareness to obsessive-compulsive disorder.`\
+https://nytimes.com/2026/03/28/science/judith-rapoport-dead.html
+
 **F.B.I. Said to Dig Up Old Investigative Files on Democratic Lawmaker**\
 `The urgent instructions at the Trump administration’s behest to gather and relay the files on Representative Eric Swalwell have alarmed some career law enforcement officials.`\
 https://nytimes.com/2026/03/28/us/politics/trump-fbi-patel-eric-swalwell.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7154224/2026/03/28/blue-jays-warriors-john-schneide
 **10 Million Grill Brushes Recalled After Some People Ingested Loose Bristles**\
 `In at least five cases, customers sought medical attention to remove bristles “from their digestive tract or throat,” a federal agency said.`\
 https://nytimes.com/2026/03/28/business/nexgrill-grill-brush-recall-spikes-ingested.html
-
-**How to watch Capitals vs. Golden Knights: Time, TV, streaming**\
-`Find out how to watch the Washington Capitals play the Vegas Golden Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7154289/2026/03/28/capitals-vs-golden-knights-stream-how-to-watch-march-28/
-
-**How to watch Canucks vs. Flames: Time, TV, streaming**\
-`Find out how to watch the Vancouver Canucks play the Calgary Flames, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7154287/2026/03/28/canucks-vs-flames-stream-how-to-watch-march-28/
-
-**Ilia Malinin wins gold at 2026 World Championships**\
-`His latest success won't be as viral as his last failure, but Malinin looked like himself again in Prague.`\
-https://nytimes.com/athletic/7154026/2026/03/28/ilia-malinin-wins-gold-world-championships/
 
