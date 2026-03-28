@@ -1,3 +1,7 @@
+**What Is YouTube’s Dominance Doing to Us? We Asked Its C.E.O.**\
+`Neal Mohan on A.I. slop, parental controls and his platform’s impact on our lives.`\
+https://nytimes.com/2026/03/28/magazine/neal-mohan-interview.html
+
 **Is Iran a Political Problem for Trump? Tell Me How Long the War Lasts.**\
 `Historically, quagmire abroad and high prices at home are the ingredients of a failed presidency.`\
 https://nytimes.com/2026/03/28/upshot/iran-war-trump-popularity.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/28/us/politics/on-cpacs-main-stage-fissures-in-the-p
 **The Oil Shocks of the ’70s Changed the World. Will the Iran War Do the Same?**\
 `Gas lines and quadrupling oil prices freaked out American consumers. But the oil crises also transformed global finance.`\
 https://nytimes.com/2026/03/28/business/oil-shocks-1970s-iran-war.html
-
-**On Iran’s Rugged Frontier, Kurds Yearn to Join the Fight**\
-`These groups’ dream has long been to establish federal autonomy, akin to that of their fellow Kurds in Iraq. With Iran’s leaders battered and degraded, they hope their moment has come.`\
-https://nytimes.com/2026/03/28/world/europe/iran-kurds-iraq-fighters.html
 
