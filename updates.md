@@ -1,3 +1,7 @@
+**Judge Agrees to Drop Charges Against Officers in Breonna Taylor’s Death**\
+`The Trump administration had asked the court to dismiss the charges, describing them as an example of “weaponized federal overreach” by the Biden administration.`\
+https://nytimes.com/2026/03/27/us/politics/breonna-taylor-officer-charges-dropped.html
+
 **UNC star Caleb Wilson, a projected top-5 pick, declares for NBA Draft**\
 `Wilson was part of a stellar freshman class, averaging 19.8 points and 9.4 rebounds this season, but had his season cut short by injuries.`\
 https://nytimes.com/athletic/7152954/2026/03/27/caleb-wilson-nba-draft/
