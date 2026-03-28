@@ -1,3 +1,11 @@
+**The Latest Front in Stephen Miller’s Personal War**\
+`His project of subordination at home and abroad continues unabated.`\
+https://nytimes.com/2026/03/28/opinion/stephen-miller-birthright-citizenship-14th-amendment.html
+
+**How to watch Virginia vs. TCU women's basketball: Sweet 16 Time, TV, streaming**\
+`Find out how to watch the Virginia Cavaliers play the TCU Horned Frogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153960/2026/03/28/virginia-vs-tcu-stream-how-to-watch-march-28/
+
 **How to watch Kraken vs. Sabres: Time, TV, streaming**\
 `Find out how to watch the Seattle Kraken play the Buffalo Sabres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7153942/2026/03/28/kraken-vs-sabres-stream-how-to-watch-march-28/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/28/us/no-kings-protest-photos-videos.html
 **How to watch Pistons vs. Timberwolves: Time, TV, streaming**\
 `Find out how to watch the Detroit Pistons play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7153887/2026/03/28/pistons-vs-timberwolves-stream-how-to-watch-march-28/
-
-**How to watch 76ers vs. Hornets: Time, TV, streaming**\
-`Find out how to watch the Philadelphia 76ers play the Charlotte Hornets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7153884/2026/03/28/76ers-vs-hornets-stream-how-to-watch-march-28/
-
-**A Robust Caesar for Broccoli Lovers**\
-`Trusty white beans and roasted broccoli get the garlicky, assertively umami Caesar treatment.`\
-https://nytimes.com/2026/03/28/dining/a-robust-caesar-for-broccoli-lovers.html
 
