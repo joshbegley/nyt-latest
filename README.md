@@ -1,4 +1,4 @@
-**St. John’s and its tears won't be forgotten by the city that embraced them**\
+**St. John’s and its tears won't be forgotten after heartbreaking loss to Duke**\
 `It felt like St. John’s was 15 minutes away from a spot in Sunday’s East Region final. But Duke’s Caleb Foster took the game by the throat.`\
 https://nytimes.com/athletic/7153312/2026/03/28/st-johns-duke-march-madness-sweet-16-zuby-ejiofor/
 
