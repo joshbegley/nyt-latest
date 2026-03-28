@@ -1,3 +1,11 @@
+**In Dubai, a famed horse race goes on, despite the war.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2026/03/28/world/iran-war-trump-israel-oil/in-dubai-a-famed-horse-race-goes-on-despite-the-war
+
+**Months after losing Game 7, John Schneider found a letter from an admirer: Steve Kerr**\
+`The letter sat in Schneider’s office all winter. But the Blue Jays manager read it at the perfect time.`\
+https://nytimes.com/athletic/7154224/2026/03/28/blue-jays-warriors-john-schneider-steve-kerr/
+
 **10 Million Grill Brushes Recalled After Some People Ingested Loose Bristles**\
 `In at least five cases, customers sought medical attention to remove bristles “from their digestive tract or throat,” a federal agency said.`\
 https://nytimes.com/2026/03/28/business/nexgrill-grill-brush-recall-spikes-ingested.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7154164/2026/03/28/denver-summit-fc-nwsl-attendance
 **Women's Sweet 16 takeaways: Michigan overcomes slow start to beat Louisville**\
 `Michigan started Saturday's action with a dominant 71-52 win against Louisville.`\
 https://nytimes.com/athletic/7153838/2026/03/28/womens-sweet-16-takeaways-texas-kentucky-louisville-michigan/
-
-**How to watch Jazz vs. Suns: Time, TV, streaming**\
-`Find out how to watch the Utah Jazz play the Phoenix Suns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7154207/2026/03/28/jazz-vs-suns-stream-how-to-watch-march-28/
-
-**Ukraine Finalizes Air Defense Deals With Gulf Nations Amid War in Mideast**\
-`The Ukrainian president visited the Middle East, where he sought to shift his country from a recipient of military aid to a supplier.`\
-https://nytimes.com/2026/03/28/world/europe/ukraine-air-defense-deal-qatar-saudi-arabia.html
 
