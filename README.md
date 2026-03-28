@@ -1,3 +1,7 @@
+**Tom Brady's surprise shoutout thrills Yankees' Cam Schlittler**\
+`Schlittler, who grew up as a Boston fan, received a social media shoutout from Brady, who spotted the righty wearing his card company's hat.`\
+https://nytimes.com/athletic/7154588/2026/03/28/tom-brady-cam-schlittler-instagram-shoutout/
+
 **Cade Horton spins a gem, opens season looking like the pitcher who dominated last summer**\
 `Horton allowed two runs on four hits while striking out four and walking just one in 6 1/3 strong innings Saturday.`\
 https://nytimes.com/athletic/7154501/2026/03/28/cade-horton-stats-cubs-season-opener/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/7154501/2026/03/28/cade-horton-stats-cubs-season-op
 `New faces, a lighter crowd and more from an earlier spring game than ever at Nebraska.`\
 https://nytimes.com/athletic/7154490/2026/03/28/nebraska-football-spring-game-analysis/
 
-**CB Bucknor has 6 pitches overturned via ABS, including consecutive challenges by Eugenio Suárez**\
+**CB Bucknor has 6 pitches overturned via ABS, including challenges by Eugenio Suárez**\
 `Red Sox manager Alex Cora was ejected by Bucknor, who called out Trevor Story on a check swing and had eight pitches challenged.`\
 https://nytimes.com/athletic/7154534/2026/03/28/cb-bucknor-abs-challenges-eugenio-suarez-reds-red-sox/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7154431/2026/03/28/luka-doncic-suspension-technical
 **Roundabouts**\
 `Michael and Oliver Schlossberg’s puzzle will drive you crazy.`\
 https://nytimes.com/2026/03/28/crosswords/daily-puzzle-2026-03-29.html
-
-**Aryna Sabalenka claims resilient win over Coco Gauff in Miami Open final**\
-`With a multidimensional attack that had Gauff guessing all afternoon, Sabalenka powered to a second consecutive win at Hard Rock Stadium.`\
-https://nytimes.com/athletic/7154315/2026/03/28/aryna-sabalenka-coco-gauff-miami-open-final/
 
