@@ -32,7 +32,7 @@ https://nytimes.com/2026/03/27/world/middleeast/iran-war-middle-east-recap.html
 
 **Judge Agrees to Drop Charges Against Officers in Breonna Taylor’s Death**\
 `The Trump administration had asked the court to dismiss the charges, describing them as an example of “weaponized federal overreach” by the Biden administration.`\
-https://nytimes.com/2026/03/27/us/politics/judge-agrees-to-drop-charges-against-officers-in-breonna-taylors-death.html
+https://nytimes.com/2026/03/27/us/politics/breonna-taylor-officer-charges-dropped.html
 
 **More heartbreak for Amber Glenn, who falls short of medal at World Championships**\
 `In her final competitive program of the season, the U.S. star delivered the full Glenn experience: a mix of beauty and struggle.`\
