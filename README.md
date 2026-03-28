@@ -1,3 +1,15 @@
+**Pakistan Set to Host Top Regional Diplomats for Talks on Iran War**\
+`The foreign ministers of Saudi Arabia, Turkey, and Egypt are expected in Islamabad on Sunday as the Pakistani government strives to find a diplomatic solution to the war.`\
+https://nytimes.com/2026/03/28/world/middleeast/iran-pakistan-diplomacy.html
+
+**Payton Pritchard's clutch work on the glass helps Celtics continue rebounding surge**\
+`The Celtics entered the All-Star break 18th in defensive rebound rate. Since the break? They lead the NBA, and everyone is pitching in.`\
+https://nytimes.com/athletic/7153366/2026/03/28/celtics-payton-pritchard-rebounding-surge/
+
+**Could the Blues shock the NHL again? Breaking down the ultimate long shot's potential playoff path**\
+`The Blues are 10-2-2 since the Olympic break but are still a long-shot to make the playoffs. Can they pull it off?`\
+https://nytimes.com/athletic/7115365/2026/03/28/st-louis-blues-playoffs-schedule-standings/
+
 **What we got right, and wrong, in our NHL bold predictions. Revisiting one for all 32 teams**\
 `With less than three weeks of the regular season remaining, we revisit our bold predictions. Which ones get a pass, fail or incomplete?`\
 https://nytimes.com/athletic/7152491/2026/03/28/nhl-bold-predictions-all-32-revisited/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7153263/2026/03/28/the-elite-8-begins-plus-tigers-a
 **How to watch Rays vs. Cardinals: Time, TV, streaming for March 28**\
 `Find out how to watch the Tampa Bay Rays play the St. Louis Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7153604/2026/03/28/rays-vs-cardinals-stream-how-to-watch-march-28/
-
-**How to watch Nationals vs. Cubs: Time, TV, streaming for March 28**\
-`Find out how to watch the Washington Nationals play the Chicago Cubs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7153602/2026/03/28/nationals-vs-cubs-stream-how-to-watch-march-28/
-
-**How to watch Athletics vs. Blue Jays: Time, TV, streaming for March 28**\
-`Find out how to watch the Athletics play the Toronto Blue Jays, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7153599/2026/03/28/athletics-vs-blue-jays-stream-how-to-watch-march-28/
-
-**How to watch Spurs vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the San Antonio Spurs play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7153591/2026/03/28/spurs-vs-bucks-stream-how-to-watch-march-28/
 
