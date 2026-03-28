@@ -1,3 +1,11 @@
+**Map: 4.1-Magnitude Earthquake Shakes Southern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/03/27/us/southern-california-quake-tracker.html
+
+**Florida AG calls NFL's Rooney Rule unlawful; league says it is 'consistent' with it**\
+`The Florida attorney general demanded that the NFL stop enforcing the Rooney Rule for its three Florida-based franchises.`\
+https://nytimes.com/athletic/7152645/2026/03/27/rooney-rule-florida-attorney-general/
+
 **Here’s What Happened in the War in the Middle East on Friday**\
 `American officials sought to temper concerns of a possibly expanding military incursion after the Pentagon’s decision to deploy more troops to the Middle East.`\
 https://nytimes.com/2026/03/27/world/middleeast/iran-war-middle-east-recap.html
