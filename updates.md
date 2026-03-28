@@ -1,3 +1,7 @@
+**Iran and Immigration Frustrations Fuel New Wave of ‘No Kings’ Rallies**\
+`Thousands of organized demonstrations stretched across the country. Minnesota was a focal point of the protests after a tumultuous immigration crackdown.`\
+https://nytimes.com/2026/03/28/world/no-kings-trump-iran-immigration-minnesota.html
+
 **USA, Belgium jersey clash makes for incredibly confusing viewing experience**\
 `For anyone watching USA vs. Belgium, it was tough to tell players from each team apart due to their kit choices`\
 https://nytimes.com/athletic/7154330/2026/03/28/usmnt-belgium-jersey-color-clash-uniforms/
