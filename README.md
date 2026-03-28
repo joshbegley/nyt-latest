@@ -1,3 +1,11 @@
+**James Tolkan, a Tough-Talking Actor in ‘Back to the Future’ and ‘Top Gun,’ Dies at 94**\
+`Mr. Tolkan’s career spanned decades but his breakout roles came as an authority figure in two popular films of the mid-1980s.`\
+https://nytimes.com/2026/03/28/obituaries/james-tolkan-dead.html
+
+**Sidney Crosby to miss game Saturday vs. Dallas but avoids major injury**\
+`Pittsburgh coach Dan Muse did not specify if Crosby's injury was related to the center's recent MCL tear, which kept him out for 11 games.`\
+https://nytimes.com/athletic/7154018/2026/03/28/penguins-sidney-crosby-injury-update/
+
 **In Dubai, a famed horse race goes on, despite the war.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2026/03/28/world/iran-war-trump-israel-oil/in-dubai-a-famed-horse-race-goes-on-despite-the-war
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7154267/2026/03/28/guardians-vs-mariners-stream-how
 **The Briefing: Canada 2 Iceland 2 - Will defensive errors shape squad? Is Larin back? Is David the most important player?**\
 `An error-strewn first-half put Canada on the back-foot, but two penalties from star striker Jonathan David earned the draw`\
 https://nytimes.com/athletic/7148930/2026/03/28/canada-2-iceland-2-briefing/
-
-**Denver Summit FC shatters NWSL attendance record in home opener**\
-`The Summit and Washington Spirit drew a record 63,004 fans for their match at Empower Field.`\
-https://nytimes.com/athletic/7154164/2026/03/28/denver-summit-fc-nwsl-attendance-record/
-
-**Women's Sweet 16 takeaways: Michigan overcomes slow start to beat Louisville**\
-`Michigan started Saturday's action with a dominant 71-52 win against Louisville.`\
-https://nytimes.com/athletic/7153838/2026/03/28/womens-sweet-16-takeaways-texas-kentucky-louisville-michigan/
 
