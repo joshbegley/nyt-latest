@@ -1,3 +1,7 @@
+**Ukraine Finalizes Air Defense Deals With Gulf Nations Amid War in Mideast**\
+`The Ukrainian president visited the Middle East, where he sought to shift his country from a recipient of military aid to a supplier.`\
+https://nytimes.com/2026/03/28/world/europe/ukraine-air-defense-deal-qatar-saudi-arabia.html
+
 **Man in Paris Accused of Attempted Attack on Bank of America**\
 `Prosecutors say the police thwarted an attacker as he was trying to detonate explosives. The episode is being investigated as possible terrorism.`\
 https://nytimes.com/2026/03/28/world/europe/paris-attack-bank-of-america.html

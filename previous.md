@@ -1,3 +1,7 @@
+**Ukraine Finalizes Air Defense Deals With Gulf Nations Amid War in Mideast**\
+`The Ukrainian president visited the Middle East, where he sought to shift his country from a recipient of military aid to a supplier.`\
+https://nytimes.com/2026/03/28/world/europe/ukraine-air-defense-deal-qatar-saudi-arabia.html
+
 **Man in Paris Accused of Attempted Attack on Bank of America**\
 `Prosecutors say the police thwarted an attacker as he was trying to detonate explosives. The episode is being investigated as possible terrorism.`\
 https://nytimes.com/2026/03/28/world/europe/paris-attack-bank-of-america.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7154092/2026/03/28/tigers-vs-padres-stream-how-to-w
 **How to watch Yankees vs. Giants: Time, TV, streaming for March 28**\
 `Find out how to watch the New York Yankees play the San Francisco Giants, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7154069/2026/03/28/yankees-vs-giants-stream-how-to-watch-march-28/
-
-**How to watch Diamondbacks vs. Dodgers: Time, TV, streaming for March 28**\
-`Find out how to watch the Arizona Diamondbacks play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7154066/2026/03/28/diamondbacks-vs-dodgers-stream-how-to-watch-march-28/
 
