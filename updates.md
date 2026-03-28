@@ -1,3 +1,7 @@
+**Spain have too many elite ’keepers to take to the World Cup. Who will be No 1 and who misses out?**\
+`Arsenal's David Raya and Barcelona's Joan Garcia are among the contenders, but can they displace incumbent Unai Simon?`\
+https://nytimes.com/athletic/7153090/2026/03/28/spain-goalkeepers-world-cup/
+
 **Why the Iowa-Illinois rivalry's hate goes much deeper than the Elite Eight**\
 `Each program has several other rivalries, but Illini and Hawkeyes newcomers learn quickly that this one is different.`\
 https://nytimes.com/athletic/7152774/2026/03/28/iowa-illinois-basketball-rivalry-ncaa-tournament/
