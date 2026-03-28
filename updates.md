@@ -1,3 +1,7 @@
+**Warriors 'running out of games' for Steph Curry to return from knee injury**\
+`For the first time since Steph Curry's injury, the Warriors acknowledged the possibility that he may not come back this season. `\
+https://nytimes.com/athletic/7153035/2026/03/27/steph-curry-injury-status-warriors-steve-kerr/
+
 **Strike on U.S. Base in Saudi Arabia Injures 12 American Troops, 2 Seriously, Officials Say**\
 `The combined missile and drone attack amounted to one of the most serious breaches of American air defenses in the course of the monthlong war with Iran.`\
 https://nytimes.com/2026/03/27/world/middleeast/iran-strike-us-base-saudi-arabia.html
