@@ -1,9 +1,13 @@
+**What we saw and learned from Nebraska football's spring game: 6 observations**\
+`New faces, a lighter crowd and more from an earlier spring game than ever at Nebraska.`\
+https://nytimes.com/athletic/7154490/2026/03/28/nebraska-football-spring-game-analysis/
+
 **CB Bucknor has 6 pitches overturned via ABS, including consecutive challenges by Eugenio Suárez**\
 `Alex Cora was ejected by Bucknor, who had eight pitches challenged. Six were overturned.`\
 https://nytimes.com/athletic/7154534/2026/03/28/cb-bucknor-abs-challenges-eugenio-suarez-reds-red-sox/
 
 **Uncontrollable horn delays Iowa-Illinois for 11 minutes in middle of first half**\
-`The Toyota Center scoreboard also stopped working and an air horn had to be used in the Iowa-Illinois Elite Eight matchup in Houston.`\
+`The Toyota Center scoreboard also stopped working and an air horn had to be used in the Elite Eight matchup in Houston.`\
 https://nytimes.com/athletic/7154554/2026/03/28/iowa-illinois-horn-scoreboard-delay-march-madness/
 
 **Pochettino unconcerned after USA's 'painful' 5-2 defeat to Belgium**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7154315/2026/03/28/aryna-sabalenka-coco-gauff-miami
 **Vance Wins CPAC Straw Poll, but Rubio Gains Steam Among MAGA Faithful**\
 `Conference organizers presented the poll results as a rebuttal to narratives that Republicans were split over the Iran war and support for Israel.`\
 https://nytimes.com/2026/03/28/us/politics/vance-rubio-cpac-straw-poll.html
-
-**Henry C. Lee Dies at 87; Forensic Scientist Testified in Defense of O.J. Simpson**\
-`The Times called him “the world’s most highly regarded forensic criminologist,” but later in his career he faced accusations that he had hidden and fabricated evidence.`\
-https://nytimes.com/2026/03/28/science/henry-lee-dead.html
 

@@ -1,3 +1,11 @@
+**What we saw and learned from Nebraska football's spring game: 6 observations**\
+`New faces, a lighter crowd and more from an earlier spring game than ever at Nebraska.`\
+https://nytimes.com/athletic/7154490/2026/03/28/nebraska-football-spring-game-analysis/
+
+**Uncontrollable horn delays Iowa-Illinois for 11 minutes in middle of first half**\
+`The Toyota Center scoreboard also stopped working and an air horn had to be used in the Elite Eight matchup in Houston.`\
+https://nytimes.com/athletic/7154554/2026/03/28/iowa-illinois-horn-scoreboard-delay-march-madness/
+
 **CB Bucknor has 6 pitches overturned via ABS, including consecutive challenges by Eugenio Suárez**\
 `Alex Cora was ejected by Bucknor, who had eight pitches challenged. Six were overturned.`\
 https://nytimes.com/athletic/7154534/2026/03/28/cb-bucknor-abs-challenges-eugenio-suarez-reds-red-sox/
