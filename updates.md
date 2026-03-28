@@ -1,3 +1,15 @@
+**How to watch Yankees vs. Giants: Time, TV, streaming for March 28**\
+`Find out how to watch the New York Yankees play the San Francisco Giants, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7154069/2026/03/28/yankees-vs-giants-stream-how-to-watch-march-28/
+
+**How to watch Diamondbacks vs. Dodgers: Time, TV, streaming for March 28**\
+`Find out how to watch the Arizona Diamondbacks play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7154066/2026/03/28/diamondbacks-vs-dodgers-stream-how-to-watch-march-28/
+
+**How to watch Royals vs. Braves: Time, TV, streaming for March 28**\
+`Find out how to watch the Kansas City Royals play the Atlanta Braves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7154052/2026/03/28/royals-vs-braves-stream-how-to-watch-march-28/
+
 **How to watch Bulls vs. Grizzlies: Time, TV, streaming**\
 `Find out how to watch the Chicago Bulls play the Memphis Grizzlies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7154038/2026/03/28/bulls-vs-grizzlies-stream-how-to-watch-march-28/

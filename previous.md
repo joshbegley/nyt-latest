@@ -1,3 +1,15 @@
+**How to watch Yankees vs. Giants: Time, TV, streaming for March 28**\
+`Find out how to watch the New York Yankees play the San Francisco Giants, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7154069/2026/03/28/yankees-vs-giants-stream-how-to-watch-march-28/
+
+**How to watch Diamondbacks vs. Dodgers: Time, TV, streaming for March 28**\
+`Find out how to watch the Arizona Diamondbacks play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7154066/2026/03/28/diamondbacks-vs-dodgers-stream-how-to-watch-march-28/
+
+**How to watch Royals vs. Braves: Time, TV, streaming for March 28**\
+`Find out how to watch the Kansas City Royals play the Atlanta Braves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7154052/2026/03/28/royals-vs-braves-stream-how-to-watch-march-28/
+
 **How to watch Bulls vs. Grizzlies: Time, TV, streaming**\
 `Find out how to watch the Chicago Bulls play the Memphis Grizzlies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7154038/2026/03/28/bulls-vs-grizzlies-stream-how-to-watch-march-28/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/28/opinion/stephen-miller-birthright-citizenship-14t
 **How to watch Virginia vs. TCU women's basketball: Sweet 16 Time, TV, streaming**\
 `Find out how to watch the Virginia Cavaliers play the TCU Horned Frogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7153960/2026/03/28/virginia-vs-tcu-stream-how-to-watch-march-28/
-
-**How to watch Kraken vs. Sabres: Time, TV, streaming**\
-`Find out how to watch the Seattle Kraken play the Buffalo Sabres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7153942/2026/03/28/kraken-vs-sabres-stream-how-to-watch-march-28/
-
-**How to watch Maple Leafs vs. Blues: Time, TV, streaming**\
-`Find out how to watch the Toronto Maple Leafs play the St. Louis Blues, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7153940/2026/03/28/maple-leafs-vs-blues-stream-how-to-watch-march-28/
-
-**How to watch Canadiens vs. Predators: Time, TV, streaming**\
-`Find out how to watch the Montreal Canadiens play the Nashville Predators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7153935/2026/03/28/canadiens-vs-predators-stream-how-to-watch-march-28/
 
