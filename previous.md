@@ -1,3 +1,7 @@
+**We don't need to quit Tiger Woods. But we must ask less of him**\
+`Woods seems like he needs help right now. His focus should be far from golf, and playing the least of his concerns.`\
+https://nytimes.com/athletic/7153057/2026/03/27/tiger-woods-arrest-impact-reaction/
+
 **Duke's Jon Scheyer chokes up reflecting on Caleb Foster's return from broken foot**\
 `Foster scored 11 points in 18 minutes against St. John's and sparked Duke's second-half comeback.`\
 https://nytimes.com/athletic/7153121/2026/03/27/jon-scheyer-interview-caleb-foster/
@@ -14,9 +18,9 @@ https://nytimes.com/athletic/7153013/2026/03/27/duke-st-johns-march-madness-scor
 `For the first time since Steph Curry's injury, the Warriors acknowledged the possibility that he may not come back this season. `\
 https://nytimes.com/athletic/7153035/2026/03/27/steph-curry-injury-status-warriors-steve-kerr/
 
-**Strike on U.S. Base in Saudi Arabia Injures 12 American Troops, 2 Seriously, Officials Say**\
-`The combined missile and drone attack amounted to one of the most serious breaches of American air defenses in the course of the monthlong war with Iran.`\
-https://nytimes.com/2026/03/27/world/middleeast/iran-strike-us-base-saudi-arabia.html
+**Strike on U.S. Base in Saudi Arabia Injures 12 American Troops, Officials Say**\
+`The combined missile and drone attack was one of the most serious breaches of U.S. air defenses so far in he monthlong war with Iran.`\
+https://nytimes.com/2026/03/27/world/middleeast/strike-.html
 
 **Bank of America Pays $72.5 Million to Settle Lawsuit by Epstein Victims**\
 `The suit claimed the bank had overlooked signs that Mr. Epstein’s accounts were being used to further his abuse of young women.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/27/us/clavicular-arrested-florida-fight-video.html
 **Clayton Kershaw officially rejoins Dodgers as special assistant: Sources**\
 `"I don't miss the game at all,” Kershaw said. “I just miss the people. I love watching. I just know I can't play it anymore."`\
 https://nytimes.com/athletic/7153009/2026/03/27/clayton-kershaw-dodgers-special-assistant/
-
-**Notre Dame's unlikely run to the Elite Eight started with offseason dedication to Niele Ivey**\
-`"To be ... still dancing, it's honestly a blessing." `\
-https://nytimes.com/athletic/7152898/2026/03/27/notre-dames-elite-eight-niele-ivey/
 

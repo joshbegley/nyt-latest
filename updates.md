@@ -1,3 +1,11 @@
+**We don't need to quit Tiger Woods. But we must ask less of him**\
+`Woods seems like he needs help right now. His focus should be far from golf, and playing the least of his concerns.`\
+https://nytimes.com/athletic/7153057/2026/03/27/tiger-woods-arrest-impact-reaction/
+
+**Strike on U.S. Base in Saudi Arabia Injures 12 American Troops, Officials Say**\
+`The combined missile and drone attack was one of the most serious breaches of U.S. air defenses so far in he monthlong war with Iran.`\
+https://nytimes.com/2026/03/27/world/middleeast/strike-.html
+
 **Duke's Jon Scheyer chokes up reflecting on Caleb Foster's return from broken foot**\
 `Foster scored 11 points in 18 minutes against St. John's and sparked Duke's second-half comeback.`\
 https://nytimes.com/athletic/7153121/2026/03/27/jon-scheyer-interview-caleb-foster/
