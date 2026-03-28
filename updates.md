@@ -1,3 +1,7 @@
+**Talk of the Devils debate: Are these Manchester United's transfer priorities this summer?**\
+`We've spent a week discussing United's summer transfer plans - so what are the most important issues to solve?`\
+https://nytimes.com/athletic/7151826/2026/03/28/manchester-united-transfer-priorities/
+
 **Managers on the rise: Cesc Fabregas – the tactical tyro ruffling the feathers of Serie A's traditionalists**\
 `The cultural resistance to Fabregas and the project of his club, Como, is intensifying with every win`\
 https://nytimes.com/athletic/7146969/2026/03/28/managers-on-the-rise-cesc-fabregas/

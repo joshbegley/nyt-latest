@@ -1,3 +1,7 @@
+**Talk of the Devils debate: Are these Manchester United's transfer priorities this summer?**\
+`We've spent a week discussing United's summer transfer plans - so what are the most important issues to solve?`\
+https://nytimes.com/athletic/7151826/2026/03/28/manchester-united-transfer-priorities/
+
 **Managers on the rise: Cesc Fabregas – the tactical tyro ruffling the feathers of Serie A's traditionalists**\
 `The cultural resistance to Fabregas and the project of his club, Como, is intensifying with every win`\
 https://nytimes.com/athletic/7146969/2026/03/28/managers-on-the-rise-cesc-fabregas/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7153332/2026/03/28/luka-doncic-technical-foul-suspe
 **UConn in Elite Eight for third time in four seasons after staving off Michigan State**\
 `An early exit last season ended UConn's run of national titles at two. Now it's a win away from the Final Four, but No. 1 Duke is next.`\
 https://nytimes.com/athletic/7153264/2026/03/28/michigan-state-uconn-march-madness-score-takeaways/
-
-**IPL 2026 preview: A new era at Rajasthan Royals, and can Mumbai challenge for RCB's crown?**\
-`Part two of our tournament preview takes in the reigning champions and another franchise that has recently attracted American investment`\
-https://nytimes.com/athletic/7151224/2026/03/28/ipl-2026-rcb-punjab-royals-mi-sunrisers-preview/
 
