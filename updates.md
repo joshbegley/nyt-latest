@@ -1,3 +1,11 @@
+**How to watch Louisville vs. Michigan women's basketball: Sweet 16 Time, TV, streaming**\
+`Find out how to watch the Louisville Cardinals play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153575/2026/03/28/louisville-vs-michigan-stream-how-to-watch-march-28/
+
+**Jordyn Tyson isn't ready to run yet, but NFL teams are still intrigued**\
+`He's considered one of the top three receivers in the 2026 NFL Draft, but Tyson did not run at his pro day on Friday.`\
+https://nytimes.com/athletic/7153185/2026/03/28/jordyn-tyson-nfl-draft-stock-arizona-state-pro-day/
+
 **How to watch Panthers vs. Islanders: Time, TV, streaming**\
 `Find out how to watch the Florida Panthers play the New York Islanders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7153572/2026/03/28/panthers-vs-islanders-stream-how-to-watch-march-28/
