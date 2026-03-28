@@ -1,3 +1,11 @@
+**How to watch Bulls vs. Grizzlies: Time, TV, streaming**\
+`Find out how to watch the Chicago Bulls play the Memphis Grizzlies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7154038/2026/03/28/bulls-vs-grizzlies-stream-how-to-watch-march-28/
+
+**How to watch Kings vs. Hawks: Time, TV, streaming**\
+`Find out how to watch the Sacramento Kings play the Atlanta Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7154036/2026/03/28/kings-vs-hawks-stream-how-to-watch-march-28/
+
 **The Briefing: South Korea 0 Ivory Coast 4 – Son's return to England, goals for Guessand and Adingra**\
 `Elias Burke analyses the main talking points from the match, held in England, between two teams who are World Cup-bound`\
 https://nytimes.com/athletic/7148929/2026/03/28/south-korea-ivory-analysis/
