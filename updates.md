@@ -1,3 +1,7 @@
+**Here’s What Happened in the War in the Middle East on Saturday**\
+`The war with Iran escalated on Saturday as the Iran-allied Houthis joined the conflict and Israel bombarded Tehran with airstrikes.`\
+https://nytimes.com/2026/03/28/world/middleeast/iran-israel-united-states-war-recap.html
+
 **NBA suspends Luka Dončić for 1 game due to 16th technical foul of season**\
 `NBA rules require players to serve one-game suspensions after their 16th technical foul of the season.`\
 https://nytimes.com/athletic/7154431/2026/03/28/luka-doncic-suspension-technical-foul-lakers/

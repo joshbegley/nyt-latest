@@ -1,3 +1,7 @@
+**Here’s What Happened in the War in the Middle East on Saturday**\
+`The war with Iran escalated on Saturday as the Iran-allied Houthis joined the conflict and Israel bombarded Tehran with airstrikes.`\
+https://nytimes.com/2026/03/28/world/middleeast/iran-israel-united-states-war-recap.html
+
 **NBA suspends Luka Dončić for 1 game due to 16th technical foul of season**\
 `NBA rules require players to serve one-game suspensions after their 16th technical foul of the season.`\
 https://nytimes.com/athletic/7154431/2026/03/28/luka-doncic-suspension-technical-foul-lakers/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/28/us/gop-rift-leaves-no-clear-shutdown-off-ramp.htm
 **Geno Auriemma airs frustration with NCAA Tournament's two-site regional format**\
 `Geno Auriemma airs frustration with NCAA super regional rounds.`\
 https://nytimes.com/athletic/7154351/2026/03/28/geno-auriemma-frustrations-ncaa-tournament/
-
-**USA, Belgium jersey clash makes for incredibly confusing viewing experience**\
-`For anyone watching USA vs. Belgium, it was tough to tell players from each team apart due to their kit choices`\
-https://nytimes.com/athletic/7154330/2026/03/28/usmnt-belgium-jersey-color-clash-uniforms/
 
