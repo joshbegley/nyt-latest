@@ -1,3 +1,7 @@
+**Aryna Sabalenka claims resilient win over Coco Gauff in Miami Open final**\
+`With a multi-dimensional attack that had Gauff guessing all afternoon, Sabalenka powered to a second consecutive win at Hard Rock Stadium.`\
+https://nytimes.com/athletic/7154315/2026/03/28/aryna-sabalenka-coco-gauff-miami-open-final/
+
 **Vance Wins CPAC Straw Poll, but Rubio Gains Steam Among MAGA Faithful**\
 `Conference organizers presented the poll results as a rebuttal to narratives that Republicans were split over the Iran war and support for Israel.`\
 https://nytimes.com/2026/03/28/us/politics/vance-rubio-cpac-straw-poll.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/28/world/iran-war-trump-israel-oil/airstrikes-u
 **Dr. Judith L. Rapoport, Pioneer in Understanding O.C.D., Dies at 92**\
 `Her best-selling 1989 book, “The Boy Who Couldn’t Stop Washing,” based on her groundbreaking research, brought public awareness to obsessive-compulsive disorder.`\
 https://nytimes.com/2026/03/28/science/judith-rapoport-dead.html
-
-**F.B.I. Said to Dig Up Old Investigative Files on Democratic Lawmaker**\
-`The urgent instructions at the Trump administration’s behest to gather and relay the files on Representative Eric Swalwell have alarmed some career law enforcement officials.`\
-https://nytimes.com/2026/03/28/us/politics/trump-fbi-patel-eric-swalwell.html
 

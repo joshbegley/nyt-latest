@@ -1,3 +1,7 @@
+**Aryna Sabalenka claims resilient win over Coco Gauff in Miami Open final**\
+`With a multi-dimensional attack that had Gauff guessing all afternoon, Sabalenka powered to a second consecutive win at Hard Rock Stadium.`\
+https://nytimes.com/athletic/7154315/2026/03/28/aryna-sabalenka-coco-gauff-miami-open-final/
+
 **Vance Wins CPAC Straw Poll, but Rubio Gains Steam Among MAGA Faithful**\
 `Conference organizers presented the poll results as a rebuttal to narratives that Republicans were split over the Iran war and support for Israel.`\
 https://nytimes.com/2026/03/28/us/politics/vance-rubio-cpac-straw-poll.html
