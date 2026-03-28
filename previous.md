@@ -1,3 +1,7 @@
+**Clippers, Pacers channel March Madness with inexplicable last 0.4 seconds**\
+`After Kawhi Leonard gave LA a 114-113 lead, a comedy of errors led to the Pacers missing two free throws that would have given them the win.`\
+https://nytimes.com/athletic/7153133/2026/03/27/clippers-pacers-end-jay-huff-kawhi-leonard/
+
 **Trump Says Middle East Is ‘Saved’ as Iran Strikes Injure U.S. Troops in Gulf**\
 `At a Saudi event, the president said Iran was “begging to make a deal,” seemingly unaware of reports that an Iranian strike on a Saudi base had injured American troops.`\
 https://nytimes.com/2026/03/27/us/politics/trump-saudi-speech.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/27/us/politics/strike-us-air-base-injuries.html
 **Bank of America Pays $72.5 Million to Settle Lawsuit by Epstein Victims**\
 `The suit claimed the bank had overlooked signs that Mr. Epstein’s accounts were being used to further his abuse of young women.`\
 https://nytimes.com/2026/03/27/business/bank-of-america-epstein-victims-settlement.html
-
-**UNC star Caleb Wilson, a projected top-5 pick, declares for NBA Draft**\
-`Wilson was part of a stellar freshman class, averaging 19.8 points and 9.4 rebounds this season, but had his season cut short by injuries.`\
-https://nytimes.com/athletic/7152954/2026/03/27/caleb-wilson-nba-draft/
 

@@ -1,3 +1,7 @@
+**Clippers, Pacers channel March Madness with inexplicable last 0.4 seconds**\
+`After Kawhi Leonard gave LA a 114-113 lead, a comedy of errors led to the Pacers missing two free throws that would have given them the win.`\
+https://nytimes.com/athletic/7153133/2026/03/27/clippers-pacers-end-jay-huff-kawhi-leonard/
+
 **Trump Says Middle East Is ‘Saved’ as Iran Strikes Injure U.S. Troops in Gulf**\
 `At a Saudi event, the president said Iran was “begging to make a deal,” seemingly unaware of reports that an Iranian strike on a Saudi base had injured American troops.`\
 https://nytimes.com/2026/03/27/us/politics/trump-saudi-speech.html

@@ -1,3 +1,7 @@
+**Payback time for Judge? ABS could mean revenge after years of bad calls**\
+`Judge used an ABS challenge to turn a strike call into a ball Friday. A few pitches later, he hit a home run.`\
+https://nytimes.com/athletic/7153125/2026/03/27/yankees-aaron-judge-abs/
+
 **Clippers, Pacers channel March Madness with inexplicable last 0.4 seconds**\
 `After Kawhi Leonard gave LA a 114-113 lead, a comedy of errors led to the Pacers missing two free throws that would have given them the win.`\
 https://nytimes.com/athletic/7153133/2026/03/27/clippers-pacers-end-jay-huff-kawhi-leonard/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7153035/2026/03/27/steph-curry-injury-status-warrio
 **Strike on U.S. Base in Saudi Arabia Injures 12 American Troops, 2 Seriously, Officials Say**\
 `The combined missile and drone attack amounted to one of the most serious breaches of American air defenses in the course of the monthlong war with Iran.`\
 https://nytimes.com/2026/03/27/us/politics/strike-us-air-base-injuries.html
-
-**Bank of America Pays $72.5 Million to Settle Lawsuit by Epstein Victims**\
-`The suit claimed the bank had overlooked signs that Mr. Epstein’s accounts were being used to further his abuse of young women.`\
-https://nytimes.com/2026/03/27/business/bank-of-america-epstein-victims-settlement.html
 
