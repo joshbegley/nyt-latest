@@ -1,3 +1,7 @@
+**Man in Paris Accused of Attempted Attack on Bank of America**\
+`Prosecutors say the police thwarted an attacker as he was trying to detonate explosives. The episode is being investigated as possible terrorism.`\
+https://nytimes.com/2026/03/28/world/europe/paris-attack-bank-of-america.html
+
 **Twelve tonnes of Formula 1 KitKat bars stolen in Europe**\
 `KitKat became F1’s official chocolate bar last year, during F1’s 75th anniversary and KitKat’s 90th anniversary.`\
 https://nytimes.com/athletic/7154143/2026/03/28/f1-kitkat-bars-stolen-europe/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7154069/2026/03/28/yankees-vs-giants-stream-how-to-
 **How to watch Diamondbacks vs. Dodgers: Time, TV, streaming for March 28**\
 `Find out how to watch the Arizona Diamondbacks play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7154066/2026/03/28/diamondbacks-vs-dodgers-stream-how-to-watch-march-28/
-
-**How to watch Royals vs. Braves: Time, TV, streaming for March 28**\
-`Find out how to watch the Kansas City Royals play the Atlanta Braves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7154052/2026/03/28/royals-vs-braves-stream-how-to-watch-march-28/
 

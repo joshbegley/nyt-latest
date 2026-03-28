@@ -1,3 +1,11 @@
+**Twelve tonnes of Formula 1 KitKat bars stolen in Europe**\
+`KitKat became F1’s official chocolate bar last year, during F1’s 75th anniversary and KitKat’s 90th anniversary.`\
+https://nytimes.com/athletic/7154143/2026/03/28/f1-kitkat-bars-stolen-europe/
+
+**Israeli Strike Kills 3 Journalists in Southern Lebanon, Officials Say**\
+`Israel accused one of the reporters of being a Hezbollah operative. Lebanon’s president said they were journalists and condemned the killings.`\
+https://nytimes.com/2026/03/28/world/middleeast/lebanon-journalists-killed-israeli-strike.html
+
 **How to watch Purdue vs. Arizona men's basketball: Elite Eight Time, TV, streaming**\
 `Find out how to watch the Purdue Boilermakers play the Arizona Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7154142/2026/03/28/purdue-vs-arizona-stream-how-to-watch-march-28/
