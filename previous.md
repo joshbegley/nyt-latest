@@ -1,3 +1,11 @@
+**Saka, Rice among 8 players to leave England camp and return to clubs**\
+`Noni Madueke, John Stones and Adam Wharton are also part of the group that will head back to their teams.`\
+https://nytimes.com/athletic/7154385/2026/03/28/saka-rice-england-squad-update/
+
+**G.O.P. Rift Leaves Congress With No Clear Shutdown Off Ramp**\
+`The deadlock that left the Department of Homeland Security shut down highlighted Republican divisions that are flaring ahead of the midterm elections.`\
+https://nytimes.com/2026/03/28/us/gop-rift-leaves-no-clear-shutdown-off-ramp.html
+
 **Geno Auriemma airs frustration with NCAA Tournament's two-site regional format**\
 `Geno Auriemma airs frustration with NCAA super regional rounds.`\
 https://nytimes.com/athletic/7154351/2026/03/28/geno-auriemma-frustrations-ncaa-tournament/
@@ -20,7 +28,7 @@ https://nytimes.com/2026/03/28/us/politics/trump-fbi-patel-eric-swalwell.html
 
 **Iran and Immigration Frustrations Fuel New Wave of ‘No Kings’ Rallies**\
 `Thousands of organized demonstrations stretched across the country. Minnesota was a focal point of the protests after a tumultuous immigration crackdown.`\
-https://nytimes.com/2026/03/28/world/no-kings-trump-iran-immigration-minnesota.html
+https://nytimes.com/2026/03/28/us/no-kings-trump-iran-immigration-minnesota.html
 
 **James Tolkan, a Tough-Talking Actor in ‘Back to the Future’ and ‘Top Gun,’ Dies at 94**\
 `Mr. Tolkan’s career spanned decades but his breakout roles came as an authority figure in two popular films of the mid-1980s.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/28/obituaries/james-tolkan-dead.html
 **Sidney Crosby to miss game Saturday vs. Dallas but avoids major injury**\
 `Pittsburgh coach Dan Muse did not specify if Crosby's injury was related to the center's recent MCL tear, which kept him out for 11 games.`\
 https://nytimes.com/athletic/7154018/2026/03/28/penguins-sidney-crosby-injury-update/
-
-**In Dubai, a famed horse race goes on, despite the war.**\
-`By Raja Abdulrahim`\
-https://nytimes.com/live/2026/03/28/world/iran-war-trump-israel-oil/in-dubai-a-famed-horse-race-goes-on-despite-the-war
-
-**Months after Game 7 loss, John Schneider found letter from an admirer: Steve Kerr**\
-`The letter sat in Schneider’s office all winter. But the Blue Jays manager read it at the perfect time.`\
-https://nytimes.com/athletic/7154224/2026/03/28/blue-jays-warriors-john-schneider-steve-kerr/
 

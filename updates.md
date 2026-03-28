@@ -1,3 +1,15 @@
+**Saka, Rice among 8 players to leave England camp and return to clubs**\
+`Noni Madueke, John Stones and Adam Wharton are also part of the group that will head back to their teams.`\
+https://nytimes.com/athletic/7154385/2026/03/28/saka-rice-england-squad-update/
+
+**G.O.P. Rift Leaves Congress With No Clear Shutdown Off Ramp**\
+`The deadlock that left the Department of Homeland Security shut down highlighted Republican divisions that are flaring ahead of the midterm elections.`\
+https://nytimes.com/2026/03/28/us/gop-rift-leaves-no-clear-shutdown-off-ramp.html
+
+**Iran and Immigration Frustrations Fuel New Wave of ‘No Kings’ Rallies**\
+`Thousands of organized demonstrations stretched across the country. Minnesota was a focal point of the protests after a tumultuous immigration crackdown.`\
+https://nytimes.com/2026/03/28/us/no-kings-trump-iran-immigration-minnesota.html
+
 **Geno Auriemma airs frustration with NCAA Tournament's two-site regional format**\
 `Geno Auriemma airs frustration with NCAA super regional rounds.`\
 https://nytimes.com/athletic/7154351/2026/03/28/geno-auriemma-frustrations-ncaa-tournament/
