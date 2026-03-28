@@ -1,3 +1,19 @@
+**Ilia Malinin wins gold at 2026 World Championships**\
+`His latest success won't be as viral as his last failure, but Malinin looked like himself again in Prague.`\
+https://nytimes.com/athletic/7154026/2026/03/28/ilia-malinin-wins-gold-world-championships/
+
+**How to watch Guardians vs. Mariners: Time, TV, streaming for March 28**\
+`Find out how to watch the Cleveland Guardians play the Seattle Mariners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7154267/2026/03/28/guardians-vs-mariners-stream-how-to-watch-march-28/
+
+**The Briefing: Canada 2 Iceland 2 - Will defensive errors shape squad? Is Larin back? Is David the most important player?**\
+`An error-strewn first-half put Canada on the back-foot, but two penalties from star striker Jonathan David earned the draw`\
+https://nytimes.com/athletic/7148930/2026/03/28/canada-2-iceland-2-briefing/
+
+**Denver Summit FC shatters NWSL attendance record in home opener**\
+`The Summit and Washington Spirit drew a record 63,004 fans for their match at Empower Field.`\
+https://nytimes.com/athletic/7154164/2026/03/28/denver-summit-fc-nwsl-attendance-record/
+
 **Denver Summit FC shatters NWSL attendance record in home opener**\
 `The Summit and Washington Spirit drew a record 63,004 fans for their match inside Empower Field.`\
 https://nytimes.com/athletic/7154164/2026/03/28/denver-summit-fc-nwsl-attendance-record/
