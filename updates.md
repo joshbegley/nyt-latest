@@ -1,3 +1,7 @@
+**Connections: Sports Edition Coach: Hints and answers for March 28, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7153322/2026/03/28/connections-sports-edition-hints-answers-march-28-2026/
+
 **How Two Stars of ‘The Bear’ Turned to Robbing a Bank … on Broadway**\
 `Jon Bernthal and Ebon Moss-Bachrach are both making their Broadway debut in a high-stakes adaptation of the beloved 1975 film “Dog Day Afternoon.”`\
 https://nytimes.com/2026/03/28/theater/dog-day-afternoon-broadway-jon-bernthal-ebon-moss-bachrach.html
