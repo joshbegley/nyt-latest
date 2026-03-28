@@ -1,3 +1,7 @@
+**Geno Auriemma airs frustration with NCAA Tournament's two-site regional format**\
+`Geno Auriemma airs frustration with NCAA Super Regional Rounds`\
+https://nytimes.com/athletic/7154351/2026/03/28/geno-auriemma-frustrations-ncaa-tournament/
+
 **USA, Belgium jersey clash makes for incredibly confusing viewing experience**\
 `For anyone watching USA vs. Belgium, it was tough to tell players from each team apart due to their kit choices`\
 https://nytimes.com/athletic/7154330/2026/03/28/usmnt-belgium-jersey-color-clash-uniforms/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/28/world/iran-war-trump-israel-oil/in-dubai-a-f
 **Months after Game 7 loss, John Schneider found letter from an admirer: Steve Kerr**\
 `The letter sat in Schneider’s office all winter. But the Blue Jays manager read it at the perfect time.`\
 https://nytimes.com/athletic/7154224/2026/03/28/blue-jays-warriors-john-schneider-steve-kerr/
-
-**10 Million Grill Brushes Recalled After Some People Ingested Loose Bristles**\
-`In at least five cases, customers sought medical attention to remove bristles “from their digestive tract or throat,” a federal agency said.`\
-https://nytimes.com/2026/03/28/business/nexgrill-grill-brush-recall-spikes-ingested.html
 
