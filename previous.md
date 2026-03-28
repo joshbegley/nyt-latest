@@ -1,3 +1,11 @@
+**UNC star Caleb Wilson, a projected top-5 pick, declares for NBA Draft**\
+`Wilson was part of a stellar freshman class, averaging 19.8 points and 9.4 rebounds this season, but had his season cut short by injuries.`\
+https://nytimes.com/athletic/7152954/2026/03/27/caleb-wilson-nba-draft/
+
+**Clavicular, an Internet Narcissus, Is Arrested After Posting a Fight Video**\
+`The influencer, known for promoting handsomeness, is accused of arranging a brawl between two women. Separately, the authorities are investigating a video showing him shooting an alligator.`\
+https://nytimes.com/2026/03/27/us/clavicular-arrested-florida-fight-video.html
+
 **Clayton Kershaw officially rejoins Dodgers as special assistant: Sources**\
 `"I don't miss the game at all,” Kershaw said. “I just miss the people. I love watching. I just know I can't play it anymore."`\
 https://nytimes.com/athletic/7153009/2026/03/27/clayton-kershaw-dodgers-special-assistant/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/27/us/politics/judge-agrees-to-drop-charges-against-
 **More heartbreak for Amber Glenn, who falls short of medal at World Championships**\
 `In her final competitive program of the season, the U.S. star delivered the full Glenn experience: a mix of beauty and struggle.`\
 https://nytimes.com/athletic/7152669/2026/03/27/amber-glenn-isu-world-championships-2026/
-
-**Yankees make franchise history by securing back-to-back shutouts to start season**\
-`With their 3-0 win over the Giants on Friday afternoon, the Yankees opened the season with back-to-back shutouts for the first time.`\
-https://nytimes.com/athletic/7152913/2026/03/27/yankees-pitchers-shutouts-start-season-franchise-history/
-
-**Arrest Made in ‘Lovers Lane Murders,’ a 1990 Cold Case in Houston**\
-`The authorities charged a Lincoln, Neb., man with capital murder in the brutal killings of a young couple whose bodies were found in a wooded area.`\
-https://nytimes.com/2026/03/27/us/lovers-lane-murder-houston-texas-arrest.html
 

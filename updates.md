@@ -1,3 +1,11 @@
+**UNC star Caleb Wilson, a projected top-5 pick, declares for NBA Draft**\
+`Wilson was part of a stellar freshman class, averaging 19.8 points and 9.4 rebounds this season, but had his season cut short by injuries.`\
+https://nytimes.com/athletic/7152954/2026/03/27/caleb-wilson-nba-draft/
+
+**Clavicular, an Internet Narcissus, Is Arrested After Posting a Fight Video**\
+`The influencer, known for promoting handsomeness, is accused of arranging a brawl between two women. Separately, the authorities are investigating a video showing him shooting an alligator.`\
+https://nytimes.com/2026/03/27/us/clavicular-arrested-florida-fight-video.html
+
 **Clayton Kershaw officially rejoins Dodgers as special assistant: Sources**\
 `"I don't miss the game at all,” Kershaw said. “I just miss the people. I love watching. I just know I can't play it anymore."`\
 https://nytimes.com/athletic/7153009/2026/03/27/clayton-kershaw-dodgers-special-assistant/
