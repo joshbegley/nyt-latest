@@ -1,3 +1,7 @@
+**Trump Says Middle East Is ‘Saved’ as Iran Strikes Injure U.S. Troops in Gulf**\
+`At a Saudi event, the president said Iran was “begging to make a deal,” seemingly unaware of reports that an Iranian strike on a Saudi base had injured American troops.`\
+https://nytimes.com/2026/03/27/us/politics/trump-saudi-speech.html
+
 **Tony Vitello takes blame after first pair of season-opening shutouts in Giants history**\
 `"Maybe it's time to do what I can to maybe ease any tension in there so guys can be free and go out there and play," Vitello said.`\
 https://nytimes.com/athletic/7153053/2026/03/27/sf-giants-shutouts-tony-vitello/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/27/business/bank-of-america-epstein-victims-settleme
 **UNC star Caleb Wilson, a projected top-5 pick, declares for NBA Draft**\
 `Wilson was part of a stellar freshman class, averaging 19.8 points and 9.4 rebounds this season, but had his season cut short by injuries.`\
 https://nytimes.com/athletic/7152954/2026/03/27/caleb-wilson-nba-draft/
-
-**Clavicular, an Internet Narcissus, Is Arrested After Posting a Fight Video**\
-`The influencer, known for promoting handsomeness, is accused of arranging a brawl between two women. Separately, the authorities are investigating a video showing him shooting an alligator.`\
-https://nytimes.com/2026/03/27/us/clavicular-arrested-florida-fight-video.html
 
