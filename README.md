@@ -1,3 +1,7 @@
+**The Briefing: Canada 2 Iceland 2 - Will defensive errors shape squad? Is Larin back? Is David the most important player?**\
+`An error-strewn first-half put Canada on the back-foot, but two penalties from star striker Jonathan David earned the draw`\
+https://nytimes.com/athletic/7148930/2026/03/28/canada-2-iceland-2-briefing/
+
 **Denver Summit FC shatters NWSL attendance record in home opener**\
 `The Summit and Washington Spirit drew a record 63,004 fans for their match inside Empower Field.`\
 https://nytimes.com/athletic/7154164/2026/03/28/denver-summit-fc-nwsl-attendance-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7154142/2026/03/28/purdue-vs-arizona-stream-how-to-
 **Bulls knocked out of postseason contention for first time since 2021. What now?**\
 `After a trade deadline fire sale and a winless February, the Bulls will go without a Play-In or playoff berth for the first time since 2021.`\
 https://nytimes.com/athletic/7153977/2026/03/28/nba-bulls-postseason-contention-future/
-
-**How to watch Flyers vs. Red Wings: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Flyers play the Detroit Red Wings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7154114/2026/03/28/flyers-vs-red-wings-stream-how-to-watch-march-28/
 

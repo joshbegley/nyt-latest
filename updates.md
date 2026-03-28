@@ -1,3 +1,15 @@
+**Denver Summit FC shatters NWSL attendance record in home opener**\
+`The Summit and Washington Spirit drew a record 63,004 fans for their match inside Empower Field.`\
+https://nytimes.com/athletic/7154164/2026/03/28/denver-summit-fc-nwsl-attendance-record/
+
+**Women's Sweet 16 takeaways: Michigan overcomes slow start to beat Louisville**\
+`Michigan started Saturday's action with a dominant 71-52 win against Louisville.`\
+https://nytimes.com/athletic/7153838/2026/03/28/womens-sweet-16-takeaways-texas-kentucky-louisville-michigan/
+
+**How to watch Jazz vs. Suns: Time, TV, streaming**\
+`Find out how to watch the Utah Jazz play the Phoenix Suns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7154207/2026/03/28/jazz-vs-suns-stream-how-to-watch-march-28/
+
 **Ukraine Finalizes Air Defense Deals With Gulf Nations Amid War in Mideast**\
 `The Ukrainian president visited the Middle East, where he sought to shift his country from a recipient of military aid to a supplier.`\
 https://nytimes.com/2026/03/28/world/europe/ukraine-air-defense-deal-qatar-saudi-arabia.html

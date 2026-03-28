@@ -1,3 +1,15 @@
+**Denver Summit FC shatters NWSL attendance record in home opener**\
+`The Summit and Washington Spirit drew a record 63,004 fans for their match inside Empower Field.`\
+https://nytimes.com/athletic/7154164/2026/03/28/denver-summit-fc-nwsl-attendance-record/
+
+**Women's Sweet 16 takeaways: Michigan overcomes slow start to beat Louisville**\
+`Michigan started Saturday's action with a dominant 71-52 win against Louisville.`\
+https://nytimes.com/athletic/7153838/2026/03/28/womens-sweet-16-takeaways-texas-kentucky-louisville-michigan/
+
+**How to watch Jazz vs. Suns: Time, TV, streaming**\
+`Find out how to watch the Utah Jazz play the Phoenix Suns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7154207/2026/03/28/jazz-vs-suns-stream-how-to-watch-march-28/
+
 **Ukraine Finalizes Air Defense Deals With Gulf Nations Amid War in Mideast**\
 `The Ukrainian president visited the Middle East, where he sought to shift his country from a recipient of military aid to a supplier.`\
 https://nytimes.com/2026/03/28/world/europe/ukraine-air-defense-deal-qatar-saudi-arabia.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7153977/2026/03/28/nba-bulls-postseason-contention-
 **How to watch Flyers vs. Red Wings: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Flyers play the Detroit Red Wings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7154114/2026/03/28/flyers-vs-red-wings-stream-how-to-watch-march-28/
-
-**How to watch Mammoth vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Utah Mammoth play the Los Angeles Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7154112/2026/03/28/mammoth-vs-kings-stream-how-to-watch-march-28/
-
-**How to watch Tigers vs. Padres: Time, TV, streaming for March 28**\
-`Find out how to watch the Detroit Tigers play the San Diego Padres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7154092/2026/03/28/tigers-vs-padres-stream-how-to-watch-march-28/
-
-**How to watch Yankees vs. Giants: Time, TV, streaming for March 28**\
-`Find out how to watch the New York Yankees play the San Francisco Giants, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7154069/2026/03/28/yankees-vs-giants-stream-how-to-watch-march-28/
 
