@@ -1,3 +1,11 @@
+**How to watch Panthers vs. Islanders: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the New York Islanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153572/2026/03/28/panthers-vs-islanders-stream-how-to-watch-march-28/
+
+**How to watch Senators vs. Lightning: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153570/2026/03/28/senators-vs-lightning-stream-how-to-watch-march-28/
+
 **What Is YouTube’s Dominance Doing to Us? We Asked Its C.E.O.**\
 `Neal Mohan on A.I. slop, parental controls and his platform’s impact on our lives.`\
 https://nytimes.com/2026/03/28/magazine/neal-mohan-interview.html
