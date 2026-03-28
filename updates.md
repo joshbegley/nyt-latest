@@ -1,3 +1,7 @@
+**Red Wings' victory in Buffalo answered key questions. One big one remains.**\
+`The Red Wings pulled off a big win in Buffalo on Friday, setting up a tense final 10 games.`\
+https://nytimes.com/athletic/7153160/2026/03/28/red-wings-sabres-moritz-seider-john-gibson/
+
 **How to watch Oklahoma vs. South Carolina women's basketball: Sweet 16 Time, TV, streaming**\
 `Find out how to watch the Oklahoma Sooners play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7153806/2026/03/28/oklahoma-vs-south-carolina-stream-how-to-watch-march-28/
