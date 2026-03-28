@@ -1,3 +1,15 @@
+**St. John’s and its tears won't be forgotten after heartbreaking loss to Duke**\
+`It felt like St. John’s was 15 minutes away from a spot in Sunday’s East Region final. But Duke’s Caleb Foster took the game by the throat.`\
+https://nytimes.com/athletic/7153312/2026/03/28/st-johns-duke-march-madness-sweet-16-zuby-ejiofor/
+
+**First look at the men's NCAA Tournament Elite Eight: Reasons to get excited about each game**\
+`Half of the Elite Eight has never won a national title. Then there's Duke and UConn.`\
+https://nytimes.com/athletic/7153045/2026/03/28/elite-8-schedule-ncaa-mens-tournament/
+
+**The New York Times in Print for Saturday, March 28, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/28/todays-new-york-times
+
 **Another Blackhawks lopsided loss shows effects of schedule on young team**\
 `More than half of the Blackhawks' 20-man roster has yet to play a full NHL season, and this season is even more grueling than usual.`\
 https://nytimes.com/athletic/7153178/2026/03/28/blackhawks-rangers-sacha-boisvert-fight-draft-lottery/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7153322/2026/03/28/connections-sports-edition-hints
 **How Two Stars of ‘The Bear’ Turned to Robbing a Bank … on Broadway**\
 `Jon Bernthal and Ebon Moss-Bachrach are both making their Broadway debut in a high-stakes adaptation of the beloved 1975 film “Dog Day Afternoon.”`\
 https://nytimes.com/2026/03/28/theater/dog-day-afternoon-broadway-jon-bernthal-ebon-moss-bachrach.html
-
-**Corrections: March 28, 2026**\
-`Corrections that appeared in print on Saturday, March 28, 2026.`\
-https://nytimes.com/2026/03/28/pageoneplus/corrections-march-28-2026.html
-
-**Quote of the Day: An Irish Village Lifts Together To Free Children From Phones**\
-`Quotation of the Day for Saturday, March 28, 2026.`\
-https://nytimes.com/2026/03/27/pageoneplus/quote-of-the-day-an-irish-village-lifts-together-to-free-children-from-phones.html
-
-**Payback time for Judge? ABS could mean revenge after years of bad calls**\
-`Judge used an ABS challenge to turn a strike call into a ball Friday. A few pitches later, he hit a home run.`\
-https://nytimes.com/athletic/7153125/2026/03/27/yankees-aaron-judge-abs/
 

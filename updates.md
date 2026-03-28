@@ -1,3 +1,15 @@
+**St. John’s and its tears won't be forgotten after heartbreaking loss to Duke**\
+`It felt like St. John’s was 15 minutes away from a spot in Sunday’s East Region final. But Duke’s Caleb Foster took the game by the throat.`\
+https://nytimes.com/athletic/7153312/2026/03/28/st-johns-duke-march-madness-sweet-16-zuby-ejiofor/
+
+**First look at the men's NCAA Tournament Elite Eight: Reasons to get excited about each game**\
+`Half of the Elite Eight has never won a national title. Then there's Duke and UConn.`\
+https://nytimes.com/athletic/7153045/2026/03/28/elite-8-schedule-ncaa-mens-tournament/
+
+**The New York Times in Print for Saturday, March 28, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/28/todays-new-york-times
+
 **Another Blackhawks lopsided loss shows effects of schedule on young team**\
 `More than half of the Blackhawks' 20-man roster has yet to play a full NHL season, and this season is even more grueling than usual.`\
 https://nytimes.com/athletic/7153178/2026/03/28/blackhawks-rangers-sacha-boisvert-fight-draft-lottery/
