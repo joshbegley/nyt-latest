@@ -1,3 +1,7 @@
+**Iran and Immigration Frustrations Fuel New Wave of ‘No Kings’ Rallies**\
+`Thousands of organized demonstrations stretched across the country. Minnesota was a focal point of the protests after a tumultuous immigration crackdown.`\
+https://nytimes.com/2026/03/28/world/no-kings-minnesota-trump-immigration-iran.html
+
 **James Tolkan, a Tough-Talking Actor in ‘Back to the Future’ and ‘Top Gun,’ Dies at 94**\
 `Mr. Tolkan’s career spanned decades but his breakout roles came as an authority figure in two popular films of the mid-1980s.`\
 https://nytimes.com/2026/03/28/obituaries/james-tolkan-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7154026/2026/03/28/ilia-malinin-wins-gold-world-cha
 **How to watch Guardians vs. Mariners: Time, TV, streaming for March 28**\
 `Find out how to watch the Cleveland Guardians play the Seattle Mariners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7154267/2026/03/28/guardians-vs-mariners-stream-how-to-watch-march-28/
-
-**The Briefing: Canada 2 Iceland 2 - Will defensive errors shape squad? Is Larin back? Is David the most important player?**\
-`An error-strewn first-half put Canada on the back-foot, but two penalties from star striker Jonathan David earned the draw`\
-https://nytimes.com/athletic/7148930/2026/03/28/canada-2-iceland-2-briefing/
 
