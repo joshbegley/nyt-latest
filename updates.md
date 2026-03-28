@@ -1,3 +1,7 @@
+**Top-seeded Duke surges back to survive St. John’s in Sweet 16 heart-stopper**\
+`Friday's thriller was a brawl, and a classic, as Duke kept St. John's from advancing to its first regional final since 1999.`\
+https://nytimes.com/athletic/7153013/2026/03/27/duke-st-johns-march-madness-score-takeaways/
+
 **Warriors 'running out of games' for Steph Curry to return from knee injury**\
 `For the first time since Steph Curry's injury, the Warriors acknowledged the possibility that he may not come back this season. `\
 https://nytimes.com/athletic/7153035/2026/03/27/steph-curry-injury-status-warriors-steve-kerr/
