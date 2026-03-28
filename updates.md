@@ -1,3 +1,15 @@
+**How to watch Flyers vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7154114/2026/03/28/flyers-vs-red-wings-stream-how-to-watch-march-28/
+
+**How to watch Mammoth vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Utah Mammoth play the Los Angeles Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7154112/2026/03/28/mammoth-vs-kings-stream-how-to-watch-march-28/
+
+**How to watch Tigers vs. Padres: Time, TV, streaming for March 28**\
+`Find out how to watch the Detroit Tigers play the San Diego Padres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7154092/2026/03/28/tigers-vs-padres-stream-how-to-watch-march-28/
+
 **How to watch Yankees vs. Giants: Time, TV, streaming for March 28**\
 `Find out how to watch the New York Yankees play the San Francisco Giants, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7154069/2026/03/28/yankees-vs-giants-stream-how-to-watch-march-28/

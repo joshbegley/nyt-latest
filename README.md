@@ -1,3 +1,7 @@
+**Bulls knocked out of postseason contention for first time since 2021. What now?**\
+`After a trade deadline fire sale and a winless February, the Bulls will go without a Play-In or playoff berth for the first time since 2021.`\
+https://nytimes.com/athletic/7153977/2026/03/28/nba-bulls-postseason-contention-future/
+
 **How to watch Flyers vs. Red Wings: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Flyers play the Detroit Red Wings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7154114/2026/03/28/flyers-vs-red-wings-stream-how-to-watch-march-28/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7154036/2026/03/28/kings-vs-hawks-stream-how-to-wat
 **The Briefing: South Korea 0 Ivory Coast 4 – Son's return to England, goals for Guessand and Adingra**\
 `Elias Burke analyses the main talking points from the match, held in England, between two teams who are World Cup-bound`\
 https://nytimes.com/athletic/7148929/2026/03/28/south-korea-ivory-analysis/
-
-**USWNT forward Catarina Macario on returning home to San Diego: ‘There’s nothing better’**\
-`San Diego is Macario's home, but the Wave's roster construction and the NWSL's HIP rule are what helped make the move possible.`\
-https://nytimes.com/athletic/7153577/2026/03/28/uswnt-catarina-macario-interview-san-diego-wave-nwsl/
 
