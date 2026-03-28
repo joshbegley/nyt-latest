@@ -1,3 +1,11 @@
+**Duke's Jon Scheyer chokes up reflecting on Caleb Foster's return from broken foot**\
+`Foster scored 11 points in 18 minutes against St. John's and sparked Duke's second-half comeback.`\
+https://nytimes.com/athletic/7153121/2026/03/27/jon-scheyer-interview-caleb-foster/
+
+**‘No Hard Feelings, Right?’**\
+`Don’t let Katie Hoody’s themeless puzzle make you hot under the collar.`\
+https://nytimes.com/2026/03/27/crosswords/daily-puzzle-2026-03-28.html
+
 **Top-seeded Duke surges back to survive St. John’s in Sweet 16 heart-stopper**\
 `Friday's thriller was a brawl, and a classic, as Duke kept St. John's from advancing to its first regional final since 1999.`\
 https://nytimes.com/athletic/7153013/2026/03/27/duke-st-johns-march-madness-score-takeaways/
