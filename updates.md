@@ -1,3 +1,15 @@
+**How Two Stars of ‘The Bear’ Turned to Robbing a Bank … on Broadway**\
+`Jon Bernthal and Ebon Moss-Bachrach are both making their Broadway debut in a high-stakes adaptation of the beloved 1975 film “Dog Day Afternoon.”`\
+https://nytimes.com/2026/03/28/theater/dog-day-afternoon-broadway-jon-bernthal-ebon-moss-bachrach.html
+
+**Corrections: March 28, 2026**\
+`Corrections that appeared in print on Saturday, March 28, 2026.`\
+https://nytimes.com/2026/03/28/pageoneplus/corrections-march-28-2026.html
+
+**Quote of the Day: An Irish Village Lifts Together To Free Children From Phones**\
+`Quotation of the Day for Saturday, March 28, 2026.`\
+https://nytimes.com/2026/03/27/pageoneplus/quote-of-the-day-an-irish-village-lifts-together-to-free-children-from-phones.html
+
 **Payback time for Judge? ABS could mean revenge after years of bad calls**\
 `Judge used an ABS challenge to turn a strike call into a ball Friday. A few pitches later, he hit a home run.`\
 https://nytimes.com/athletic/7153125/2026/03/27/yankees-aaron-judge-abs/
