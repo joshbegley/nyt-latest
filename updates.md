@@ -1,3 +1,7 @@
+**Kevin McGonigle's 10-pitch triumph: An anatomy of the Tigers rookie's go-ahead at-bat**\
+`Detroit is 2-0, and the prized rookie has played a starring role in both games.`\
+https://nytimes.com/athletic/7153473/2026/03/28/tigers-kevin-mcgonigle-ten-pitch-at-bat/
+
 **After receiving World Series rings, Dodgers' comeback victory shows why they're favorites again**\
 `The Dodgers' big offseason signings, Kyle Tucker and Edwin Díaz, ultimately sealed L.A.'s victory Friday night.`\
 https://nytimes.com/athletic/7153254/2026/03/28/dodgers-diamondbacks-edwin-diaz/
