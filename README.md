@@ -1,3 +1,15 @@
+**Elite Eight power rankings: Who's strong enough to make the Final Four?**\
+`The stage is set for four epic showdowns this weekend with berths in the Final Four on the line. `\
+https://nytimes.com/athletic/7153211/2026/03/28/mens-ncaa-tournament-elite-8-power-rankings/
+
+**Duke's NCAA Tournament revenge tour continues. Up next: UCLA in the Elite Eight**\
+`Duke has proven its regular-season losses are meaningless in March. A 30-point loss to UCLA is hard to forget.`\
+https://nytimes.com/athletic/7153515/2026/03/28/duke-ncaa-tournament-revenge-ucla-elite-eight/
+
+**Don't look now, but Rick Barnes is an elite NCAA Tournament coach**\
+`Barnes, who once shouldered the burden of March underachievement, is headed to a third straight Elite Eight with a team defying expectation.`\
+https://nytimes.com/athletic/7153581/2026/03/28/rick-barnes-ncaa-tournament-tennessee-elite-8/
+
 **Yemen’s Houthis Fire at Israel, Vowing Further Attacks**\
 `There has long been concern that the Houthis, an Iran-backed militia, could seek to disrupt shipping in the Red Sea if they entered the broader war.`\
 https://nytimes.com/2026/03/28/world/middleeast/yemen-houthis-attack-israel-war.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7153275/2026/03/28/blue-jays-walk-off-win-opening-d
 **2026 NHL prospect pool rankings: No. 13 Buffalo Sabres**\
 `The Sabres have pieces at premium positions, with future NHLers at center and on defense, but are weak on the wings.`\
 https://nytimes.com/athletic/7084288/2026/03/28/buffalo-sabres-nhl-prospect-rankings-2026/
-
-**The ball hesitated. Duke and Ashlon Jackson didn't**\
-`At the end, Kara Lawson knew whose number.to call. “My teammates and my coaches, they trust me," Jackson said. “That’s really all I needed."`\
-https://nytimes.com/athletic/7153537/2026/03/28/duke-lsu-ncaa-tournament-ashlon-jackson-kara-lawson/
-
-**Ugly loss to Red Wings has Sabres on 3-game winless streak: Thoughts**\
-`After three months of playing like the best team in the NHL, the Sabres have hit a rut.`\
-https://nytimes.com/athletic/7153251/2026/03/28/sabres-red-wings-streak-nhl-playoffs/
-
-**Can We Ask Our Son to Go on Weight-Loss Drugs in Exchange for a House?**\
-`My husband wants to condition the gift on our son’s getting on a GLP-1 program. I feel that a gift is a gift and you should not extort a grown man.`\
-https://nytimes.com/2026/03/28/magazine/son-weight-loss-drugs-house-ethics.html
 
