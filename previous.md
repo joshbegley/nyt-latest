@@ -7,7 +7,7 @@ https://nytimes.com/athletic/7154501/2026/03/28/cade-horton-stats-cubs-season-op
 https://nytimes.com/athletic/7154490/2026/03/28/nebraska-football-spring-game-analysis/
 
 **CB Bucknor has 6 pitches overturned via ABS, including consecutive challenges by Eugenio Suárez**\
-`Alex Cora was ejected by Bucknor, who had eight pitches challenged. Six were overturned.`\
+`Red Sox manager Alex Cora was ejected by Bucknor, who called out Trevor Story on a check swing and had eight pitches challenged.`\
 https://nytimes.com/athletic/7154534/2026/03/28/cb-bucknor-abs-challenges-eugenio-suarez-reds-red-sox/
 
 **Uncontrollable horn delays Iowa-Illinois for 11 minutes in middle of first half**\

@@ -1,3 +1,7 @@
+**CB Bucknor has 6 pitches overturned via ABS, including consecutive challenges by Eugenio Suárez**\
+`Red Sox manager Alex Cora was ejected by Bucknor, who called out Trevor Story on a check swing and had eight pitches challenged.`\
+https://nytimes.com/athletic/7154534/2026/03/28/cb-bucknor-abs-challenges-eugenio-suarez-reds-red-sox/
+
 **Cade Horton spins a gem, opens season looking like the pitcher who dominated last summer**\
 `Horton allowed two runs on four hits while striking out four and walking just one in 6 1/3 strong innings Saturday.`\
 https://nytimes.com/athletic/7154501/2026/03/28/cade-horton-stats-cubs-season-opener/
