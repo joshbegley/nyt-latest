@@ -1,3 +1,7 @@
+**‘We Are Going to Deeply Regret This War’**\
+`Three journalists on the potential repercussions of Operation Epic Fury.`\
+https://nytimes.com/video/opinion/100000010802778/we-are-going-to-deeply-regret-this-war.html
+
 **Elite Eight power rankings: Who's strong enough to make the Final Four?**\
 `The stage is set for four epic showdowns this weekend with berths in the Final Four on the line. `\
 https://nytimes.com/athletic/7153211/2026/03/28/mens-ncaa-tournament-elite-8-power-rankings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7152487/2026/03/28/boston-red-sox-opener-anthony-ma
 **Blue Jays’ World Series run echoes in poetic Opening Day win**\
 `With a crushing blown save and a walk-off win, Toronto’s 3-2 victory over the Athletics reminded all of the Jays’ 2025 postseason run.`\
 https://nytimes.com/athletic/7153275/2026/03/28/blue-jays-walk-off-win-opening-day/
-
-**2026 NHL prospect pool rankings: No. 13 Buffalo Sabres**\
-`The Sabres have pieces at premium positions, with future NHLers at center and on defense, but are weak on the wings.`\
-https://nytimes.com/athletic/7084288/2026/03/28/buffalo-sabres-nhl-prospect-rankings-2026/
 
