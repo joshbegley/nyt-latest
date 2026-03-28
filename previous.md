@@ -1,3 +1,7 @@
+**Astronaut’s Condition That Led to Space Station Evacuation Remains a Mystery**\
+`The astronaut, Michael Fincke, experienced a medical emergency in January that rendered him unable to speak, he said.`\
+https://nytimes.com/2026/03/28/science/space/nasa-astronaut-medical-evaluation.html
+
 **Here’s What Happened in the War in the Middle East on Saturday**\
 `The war with Iran escalated on Saturday as the Iran-allied Houthis joined the conflict and Israel bombarded Tehran with airstrikes.`\
 https://nytimes.com/2026/03/28/world/middleeast/iran-israel-united-states-war-recap.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7154385/2026/03/28/saka-rice-england-squad-update/
 **G.O.P. Rift Leaves Congress With No Clear Path to End the Shutdown**\
 `The deadlock that left the Department of Homeland Security shuttered highlighted Republican divisions that are flaring ahead of the midterm elections.`\
 https://nytimes.com/2026/03/28/us/gop-rift-leaves-no-clear-shutdown-off-ramp.html
-
-**Geno Auriemma airs frustration with NCAA Tournament's two-site regional format**\
-`Geno Auriemma airs frustration with NCAA super regional rounds.`\
-https://nytimes.com/athletic/7154351/2026/03/28/geno-auriemma-frustrations-ncaa-tournament/
 
