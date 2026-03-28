@@ -1,3 +1,7 @@
+**How to watch Purdue vs. Arizona men's basketball: Elite Eight Time, TV, streaming**\
+`Find out how to watch the Purdue Boilermakers play the Arizona Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7154142/2026/03/28/purdue-vs-arizona-stream-how-to-watch-march-28/
+
 **Bulls knocked out of postseason contention for first time since 2021. What now?**\
 `After a trade deadline fire sale and a winless February, the Bulls will go without a Play-In or playoff berth for the first time since 2021.`\
 https://nytimes.com/athletic/7153977/2026/03/28/nba-bulls-postseason-contention-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7154038/2026/03/28/bulls-vs-grizzlies-stream-how-to
 **How to watch Kings vs. Hawks: Time, TV, streaming**\
 `Find out how to watch the Sacramento Kings play the Atlanta Hawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7154036/2026/03/28/kings-vs-hawks-stream-how-to-watch-march-28/
-
-**The Briefing: South Korea 0 Ivory Coast 4 – Son's return to England, goals for Guessand and Adingra**\
-`Elias Burke analyses the main talking points from the match, held in England, between two teams who are World Cup-bound`\
-https://nytimes.com/athletic/7148929/2026/03/28/south-korea-ivory-analysis/
 
