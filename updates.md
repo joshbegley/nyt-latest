@@ -1,3 +1,7 @@
+**NBA suspends Luka Dončić for 1 game due to 16th technical foul of season**\
+`NBA rules require players to serve one-game suspensions after their 16th technical foul of the season.`\
+https://nytimes.com/athletic/7154431/2026/03/28/luka-doncic-suspension-technical-foul-lakers/
+
 **Roundabouts**\
 `Michael and Oliver Schlossberg’s puzzle will drive you crazy.`\
 https://nytimes.com/2026/03/28/crosswords/daily-puzzle-2026-03-29.html

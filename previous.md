@@ -1,3 +1,7 @@
+**NBA suspends Luka Dončić for 1 game due to 16th technical foul of season**\
+`NBA rules require players to serve one-game suspensions after their 16th technical foul of the season.`\
+https://nytimes.com/athletic/7154431/2026/03/28/luka-doncic-suspension-technical-foul-lakers/
+
 **Roundabouts**\
 `Michael and Oliver Schlossberg’s puzzle will drive you crazy.`\
 https://nytimes.com/2026/03/28/crosswords/daily-puzzle-2026-03-29.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7154351/2026/03/28/geno-auriemma-frustrations-ncaa-
 **USA, Belgium jersey clash makes for incredibly confusing viewing experience**\
 `For anyone watching USA vs. Belgium, it was tough to tell players from each team apart due to their kit choices`\
 https://nytimes.com/athletic/7154330/2026/03/28/usmnt-belgium-jersey-color-clash-uniforms/
-
-**Airstrikes batter a university and residential zones in Tehran.**\
-`By Pranav Baskar and Shirin Hakim`\
-https://nytimes.com/live/2026/03/28/world/iran-war-trump-israel-oil/airstrikes-university-tehran
 
