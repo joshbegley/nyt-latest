@@ -1,3 +1,7 @@
+**Payback time for Judge? ABS could mean revenge after years of bad calls**\
+`Judge used an ABS challenge to turn a strike call into a ball Friday. A few pitches later, he hit a home run.`\
+https://nytimes.com/athletic/7153125/2026/03/27/yankees-aaron-judge-abs/
+
 **Clippers, Pacers channel March Madness with inexplicable last 0.4 seconds**\
 `After Kawhi Leonard gave LA a 114-113 lead, a comedy of errors led to the Pacers missing two free throws that would have given them the win.`\
 https://nytimes.com/athletic/7153133/2026/03/27/clippers-pacers-end-jay-huff-kawhi-leonard/
