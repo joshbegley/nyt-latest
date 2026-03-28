@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Eric Schmitt, Chris Cameron and John Yoon`\
+https://nytimes.com/live/2026/03/28/world/iran-war-trump-israel-oil/heres-the-latest
+
+**Iran War Live Updates: Iranian Strike on Saudi Base Injures 12 U.S. Troops, Officials Say**\
+`The attack was one of the most serious breaches of American defenses since the war began on Feb. 28. Israel and Iran launched new strikes at each other on Saturday.`\
+https://nytimes.com/live/2026/03/28/world/iran-war-trump-israel-oil
+
 **Wirtz is Germany's key creative force. This is what Liverpool hoped to see this season**\
 `His two goals and two assists in Switzerland were evidence of the decisive contributions that have only been seen infrequently at Anfield`\
 https://nytimes.com/athletic/7153001/2026/03/28/florian-wirtz-germany-liverpool/

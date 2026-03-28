@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Eric Schmitt, Chris Cameron and John Yoon`\
+https://nytimes.com/live/2026/03/28/world/iran-war-trump-israel-oil/heres-the-latest
+
+**Iran War Live Updates: Iranian Strike on Saudi Base Injures 12 U.S. Troops, Officials Say**\
+`The attack was one of the most serious breaches of American defenses since the war began on Feb. 28. Israel and Iran launched new strikes at each other on Saturday.`\
+https://nytimes.com/live/2026/03/28/world/iran-war-trump-israel-oil
+
 **Wirtz is Germany's key creative force. This is what Liverpool hoped to see this season**\
 `His two goals and two assists in Switzerland were evidence of the decisive contributions that have only been seen infrequently at Anfield`\
 https://nytimes.com/athletic/7153001/2026/03/28/florian-wirtz-germany-liverpool/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7153312/2026/03/28/st-johns-duke-march-madness-swee
 **First look at the men's NCAA Tournament Elite Eight: Reasons to get excited about each game**\
 `Half of the Elite Eight has never won a national title. Then there's Duke and UConn.`\
 https://nytimes.com/athletic/7153045/2026/03/28/elite-8-schedule-ncaa-mens-tournament/
-
-**The New York Times in Print for Saturday, March 28, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/03/28/todays-new-york-times
-
-**Another Blackhawks lopsided loss shows effects of schedule on young team**\
-`More than half of the Blackhawks' 20-man roster has yet to play a full NHL season, and this season is even more grueling than usual.`\
-https://nytimes.com/athletic/7153178/2026/03/28/blackhawks-rangers-sacha-boisvert-fight-draft-lottery/
 
