@@ -1,3 +1,15 @@
+**How to watch Kentucky vs. Texas women's basketball: Sweet 16 Time, TV, streaming**\
+`Find out how to watch the Kentucky Wildcats play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7153621/2026/03/28/kentucky-vs-texas-stream-how-to-watch-march-28/
+
+**How to interpret Freddy Peralta's 'no comments' regarding extension talks with Mets**\
+`Peralta, 29, told The Athletic in early March that he preferred a long-term deal. It's reasonable to assume that one will have to wait.`\
+https://nytimes.com/athletic/7153071/2026/03/28/freddy-peralta-extension-mets-no-comments/
+
+**The Pulse: The Elite 8 begins**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/7153263/2026/03/28/the-elite-8-begins-plus-tigers-arrest/
+
 **How to watch Rays vs. Cardinals: Time, TV, streaming for March 28**\
 `Find out how to watch the Tampa Bay Rays play the St. Louis Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7153604/2026/03/28/rays-vs-cardinals-stream-how-to-watch-march-28/
