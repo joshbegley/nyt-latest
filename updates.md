@@ -1,3 +1,15 @@
+**Pakistan Set to Host Top Regional Diplomats for Talks on Iran War**\
+`The foreign ministers of Saudi Arabia, Turkey, and Egypt are expected in Islamabad on Sunday as the Pakistani government strives to find a diplomatic solution to the war.`\
+https://nytimes.com/2026/03/28/world/middleeast/iran-pakistan-diplomacy.html
+
+**Payton Pritchard's clutch work on the glass helps Celtics continue rebounding surge**\
+`The Celtics entered the All-Star break 18th in defensive rebound rate. Since the break? They lead the NBA, and everyone is pitching in.`\
+https://nytimes.com/athletic/7153366/2026/03/28/celtics-payton-pritchard-rebounding-surge/
+
+**Could the Blues shock the NHL again? Breaking down the ultimate long shot's potential playoff path**\
+`The Blues are 10-2-2 since the Olympic break but are still a long-shot to make the playoffs. Can they pull it off?`\
+https://nytimes.com/athletic/7115365/2026/03/28/st-louis-blues-playoffs-schedule-standings/
+
 **What we got right, and wrong, in our NHL bold predictions. Revisiting one for all 32 teams**\
 `With less than three weeks of the regular season remaining, we revisit our bold predictions. Which ones get a pass, fail or incomplete?`\
 https://nytimes.com/athletic/7152491/2026/03/28/nhl-bold-predictions-all-32-revisited/
