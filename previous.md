@@ -1,3 +1,11 @@
+**Clayton Kershaw officially rejoins Dodgers as special assistant: Sources**\
+`"I don't miss the game at all,” Kershaw said. “I just miss the people. I love watching. I just know I can't play it anymore."`\
+https://nytimes.com/athletic/7153009/2026/03/27/clayton-kershaw-dodgers-special-assistant/
+
+**Notre Dame's unlikely run to the Elite Eight started with offseason dedication to Niele Ivey**\
+`"To be ... still dancing, it's honestly a blessing." `\
+https://nytimes.com/athletic/7152898/2026/03/27/notre-dames-elite-eight-niele-ivey/
+
 **A timeline of Tiger Woods' car crashes and injuries after latest incident**\
 `Woods, 50, has been involved in four incidents involving automobiles since 2009, causing personal and professional harm.`\
 https://nytimes.com/athletic/7152847/2026/03/27/tiger-woods-dui-arrest-jupiter-island-accident-timeline/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7152913/2026/03/27/yankees-pitchers-shutouts-start-
 **Arrest Made in ‘Lovers Lane Murders,’ a 1990 Cold Case in Houston**\
 `The authorities charged a Lincoln, Neb., man with capital murder in the brutal killings of a young couple whose bodies were found in a wooded area.`\
 https://nytimes.com/2026/03/27/us/lovers-lane-murder-houston-texas-arrest.html
-
-**Man Accused of Killing College Student in Chicago to Remain in Jail**\
-`Jose Medina, who is accused of being in the country illegally, is charged with murder in the death of Sheridan Gorman, a freshman at Loyola University Chicago.`\
-https://nytimes.com/2026/03/27/us/loyola-shooting-suspect-chicago.html
-
-**How Long of a Wait at Security? For Many Passengers, It Was Anyone’s Guess.**\
-`As T.S.A. staff shortages continued on Friday, some airports saw interminably long wait times, while others barely had a wait at all, adding to travelers’ confusion.`\
-https://nytimes.com/2026/03/27/us/wait-times-airports-tsa-confusion.html
 

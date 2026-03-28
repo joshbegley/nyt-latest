@@ -1,3 +1,11 @@
+**Clayton Kershaw officially rejoins Dodgers as special assistant: Sources**\
+`"I don't miss the game at all,” Kershaw said. “I just miss the people. I love watching. I just know I can't play it anymore."`\
+https://nytimes.com/athletic/7153009/2026/03/27/clayton-kershaw-dodgers-special-assistant/
+
+**Notre Dame's unlikely run to the Elite Eight started with offseason dedication to Niele Ivey**\
+`"To be ... still dancing, it's honestly a blessing." `\
+https://nytimes.com/athletic/7152898/2026/03/27/notre-dames-elite-eight-niele-ivey/
+
 **A timeline of Tiger Woods' car crashes and injuries after latest incident**\
 `Woods, 50, has been involved in four incidents involving automobiles since 2009, causing personal and professional harm.`\
 https://nytimes.com/athletic/7152847/2026/03/27/tiger-woods-dui-arrest-jupiter-island-accident-timeline/
