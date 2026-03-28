@@ -1,7 +1,3 @@
-**Connections: Sports Edition Coach: Hints and answers for March 28, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7153322/2026/03/28/connections-sports-edition-hints-answers-march-28-2026/
-
 **How Two Stars of ‘The Bear’ Turned to Robbing a Bank … on Broadway**\
 `Jon Bernthal and Ebon Moss-Bachrach are both making their Broadway debut in a high-stakes adaptation of the beloved 1975 film “Dog Day Afternoon.”`\
 https://nytimes.com/2026/03/28/theater/dog-day-afternoon-broadway-jon-bernthal-ebon-moss-bachrach.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/7153057/2026/03/27/tiger-woods-arrest-impact-reacti
 **Duke's Jon Scheyer chokes up reflecting on Caleb Foster's return from broken foot**\
 `Foster scored 11 points in 18 minutes against St. John's and sparked Duke's second-half comeback.`\
 https://nytimes.com/athletic/7153121/2026/03/27/jon-scheyer-interview-caleb-foster/
+
+**‘No Hard Feelings, Right?’**\
+`Don’t let Katie Hoody’s themeless puzzle make you hot under the collar.`\
+https://nytimes.com/2026/03/27/crosswords/daily-puzzle-2026-03-28.html
 

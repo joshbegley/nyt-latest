@@ -1,3 +1,7 @@
+**‘No Hard Feelings, Right?’**\
+`Don’t let Katie Hoody’s themeless puzzle make you hot under the collar.`\
+https://nytimes.com/2026/03/27/crosswords/daily-puzzle-2026-03-28.html
+
 **Connections: Sports Edition Coach: Hints and answers for March 28, 2026**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/7153322/2026/03/28/connections-sports-edition-hints-answers-march-28-2026/
