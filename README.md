@@ -1,40 +1,40 @@
-**Marcelo Bielsa and Leeds fans were reunited at Wembley. Their love for him runs deep**\
-`Leeds United fans were at Wembley as much to see their beloved Marcelo Bielsa on the touchline for Uruguay as England playing at home`\
-https://nytimes.com/athletic/7153462/2026/03/28/marcelo-bielsa-uruguay-england-leeds-united-reaction/
+**Is Iran a Political Problem for Trump? Tell Me How Long the War Lasts.**\
+`Historically, quagmire abroad and high prices at home are the ingredients of a failed presidency.`\
+https://nytimes.com/2026/03/28/upshot/iran-war-trump-popularity.html
 
-**Why the Iowa-Illinois rivalry's hate goes much deeper than the Elite Eight**\
-`Each program has several other rivalries, but Illini and Hawkeyes newcomers learn quickly that this one is different.`\
-https://nytimes.com/athletic/7152774/2026/03/28/iowa-illinois-basketball-rivalry-ncaa-tournament/
+**Don’t Call Them Nuns. They’re Podcasters.**\
+`They pray, they play Ultimate Frisbee and they have unwittingly become a meme.`\
+https://nytimes.com/2026/03/28/style/nuns-podcast-ultimate-frisbee-tiktok.html
 
-**Men's Elite Eight Saturday schedule: How to watch Iowa-Illinois, Purdue-Arizona**\
-`Saturday's Elite Eight games punch the first set of tickets to the Final Four. Here's how to watch these high-stakes showdowns. `\
-https://nytimes.com/athletic/7152613/2026/03/28/elite-eight-iowa-illinois-purdue-arizona-how-to-watch/
+**In an Asymmetrical War, Iran Seeks an Edge With Its Information War**\
+`Propaganda and disinformation have flooded the internet in a sophisticated effort to undermine support for U.S. and Israeli attacks.`\
+https://nytimes.com/2026/03/28/business/iran-propaganda-war-ai.html
 
-**Spain have too many elite ’keepers to take to the World Cup. Who will be No 1 and who misses out?**\
-`Arsenal's David Raya and Barcelona's Joan Garcia are among the contenders, but can they displace incumbent Unai Simon?`\
-https://nytimes.com/athletic/7153090/2026/03/28/spain-goalkeepers-world-cup/
+**Her Past Was No Secret. Footage of a Child’s Cry Changed Everything.**\
+`Before being cast as “The Bachelorette,” Taylor Frankie Paul had discussed — with police, on podcasts and on TV — the domestic dispute that involved her 5-year-old daughter.`\
+https://nytimes.com/2026/03/28/arts/television/taylor-frankie-paul-child-endangerment.html
 
-**Total Football? This Netherlands team are putting set pieces at the heart of their World Cup plans**\
-`Ronald Koeman has identified an area where his team can improve significantly, whether or not that fits the traditions of Dutch football`\
-https://nytimes.com/athletic/7153481/2026/03/28/netherlands-world-cup-set-pieces/
+**‘Life! Life! Life!’: Reviving a Globe-Trotting Sculptor of the Gilded Age**\
+`Paul Troubetzkoy traveled the world to immortalize the A-listers of his time. An exhibition in Milan remembers his vitality and fame.`\
+https://nytimes.com/2026/03/28/arts/design/paul-troubezkoy.html
 
-**How a ‘Dexter’ Star Is Singing Her Way Through Spanish Harlem**\
-`Luna Lauren Vélez, who played Capt. Maria LaGuerta on the serial killer drama, is making her own projects now (with much less blood).`\
-https://nytimes.com/interactive/2026/03/28/nyregion/28met-routine-luna-velez.html
+**With Cuba Under Pressure, the Castro Dynasty Is Making a Comeback**\
+`As Trump officials demand changes, Castro family members are suddenly popping up across Cuba’s political scene. Some even ask: Could one be the “Cuban Delcy?”`\
+https://nytimes.com/2026/03/28/world/americas/castro-family-cuba-energy-crisis-trump.html
 
-**Are New York’s Environmental Concerns Worsening a Housing Shortage?**\
-`Gov. Kathy Hochul is proposing to exempt a majority of new housing from state environmental reviews, arguing that sufficient safeguards are in place at the local level.`\
-https://nytimes.com/2026/03/28/nyregion/hochul-housing-seqra-environment.html
+**A Downturn in Las Vegas Could Signal Tough Times for the Nation**\
+`The high rollers may still be crowding the tables, but high prices and pinched discretionary incomes are driving a sharp drop-off in visitors to Las Vegas as Nevada’s governor runs for re-election.`\
+https://nytimes.com/2026/03/28/us/politics/las-vegas-economy.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/03/28/crosswords/spelling-bee-forum.html
+**On CPAC’s Main Stage, Fissures in the Party Trump Remade**\
+`The Conservative Political Action Conference typically seeks to establish orthodoxy with its roster of speakers. This year, organizers created space for dissent, highlighting ongoing schisms in the MAGA movement.`\
+https://nytimes.com/2026/03/28/us/politics/on-cpacs-main-stage-fissures-in-the-party-trump-remade.html
 
-**Here’s the latest.**\
-`By Aaron Boxerman, Eric Schmitt, Chris Cameron and John Yoon`\
-https://nytimes.com/live/2026/03/28/world/iran-war-trump-israel-oil/heres-the-latest
+**The Oil Shocks of the ’70s Changed the World. Will the Iran War Do the Same?**\
+`Gas lines and quadrupling oil prices freaked out American consumers. But the oil crises also transformed global finance.`\
+https://nytimes.com/2026/03/28/business/oil-shocks-1970s-iran-war.html
 
-**Iran War Live Updates: Iran-Backed Houthis Enter War With Missile Attack on Israel**\
-`Earlier, U.S. officials said an Iranian strike at a military base in Saudi Arabia injured 12 U.S. troops, one of the most serious breaches of American defenses since the war began.`\
-https://nytimes.com/live/2026/03/28/world/iran-war-trump-israel-oil
+**On Iran’s Rugged Frontier, Kurds Yearn to Join the Fight**\
+`These groups’ dream has long been to establish federal autonomy, akin to that of their fellow Kurds in Iraq. With Iran’s leaders battered and degraded, they hope their moment has come.`\
+https://nytimes.com/2026/03/28/world/europe/iran-kurds-iraq-fighters.html
 
