@@ -1,3 +1,11 @@
+**Vance Wins CPAC Straw Poll, but Rubio Gains Steam Among MAGA Faithful**\
+`Conference organizers presented the poll results as a rebuttal to narratives that Republicans were split over the Iran war and support for Israel.`\
+https://nytimes.com/2026/03/28/us/politics/vance-rubio-cpac-straw-poll.html
+
+**Henry C. Lee Dies at 87; Forensic Scientist Testified in Defense of O.J. Simpson**\
+`The Times called him “the world’s most highly regarded forensic criminologist,” but later in his career he faced accusations that he had hidden and fabricated evidence.`\
+https://nytimes.com/2026/03/28/science/henry-lee-dead.html
+
 **G.O.P. Rift Leaves Congress With No Clear Path to End the Shutdown**\
 `The deadlock that left the Department of Homeland Security shuttered highlighted Republican divisions that are flaring ahead of the midterm elections.`\
 https://nytimes.com/2026/03/28/us/gop-rift-leaves-no-clear-shutdown-off-ramp.html
