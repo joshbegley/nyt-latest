@@ -1,5 +1,5 @@
 **Geno Auriemma airs frustration with NCAA Tournament's two-site regional format**\
-`Geno Auriemma airs frustration with NCAA Super Regional Rounds`\
+`Geno Auriemma airs frustration with NCAA super regional rounds.`\
 https://nytimes.com/athletic/7154351/2026/03/28/geno-auriemma-frustrations-ncaa-tournament/
 
 **USA, Belgium jersey clash makes for incredibly confusing viewing experience**\
