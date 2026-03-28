@@ -1,3 +1,11 @@
+**Duke's Jon Scheyer chokes up reflecting on Caleb Foster's return from broken foot**\
+`Foster scored 11 points in 18 minutes against St. John's and sparked Duke's second-half comeback.`\
+https://nytimes.com/athletic/7153121/2026/03/27/jon-scheyer-interview-caleb-foster/
+
+**‘No Hard Feelings, Right?’**\
+`Don’t let Katie Hoody’s themeless puzzle make you hot under the collar.`\
+https://nytimes.com/2026/03/27/crosswords/daily-puzzle-2026-03-28.html
+
 **Top-seeded Duke surges back to survive St. John’s in Sweet 16 heart-stopper**\
 `Friday's thriller was a brawl, and a classic, as Duke kept St. John's from advancing to its first regional final since 1999.`\
 https://nytimes.com/athletic/7153013/2026/03/27/duke-st-johns-march-madness-score-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7153009/2026/03/27/clayton-kershaw-dodgers-special-
 **Notre Dame's unlikely run to the Elite Eight started with offseason dedication to Niele Ivey**\
 `"To be ... still dancing, it's honestly a blessing." `\
 https://nytimes.com/athletic/7152898/2026/03/27/notre-dames-elite-eight-niele-ivey/
-
-**A timeline of Tiger Woods' car crashes and injuries after latest incident**\
-`Woods, 50, has been involved in four incidents involving automobiles since 2009, causing personal and professional harm.`\
-https://nytimes.com/athletic/7152847/2026/03/27/tiger-woods-dui-arrest-jupiter-island-accident-timeline/
-
-**U.S. Antitank Mines Discovered in Neighborhood in Iran**\
-`Photos and video verified by The New York Times show mines dispensed by cluster bombs in a village a few miles from a missile site.`\
-https://nytimes.com/2026/03/27/us/antitank-mines-iran.html
 
