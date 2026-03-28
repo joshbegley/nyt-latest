@@ -1,3 +1,7 @@
+**Another Blackhawks lopsided loss shows effects of schedule on young team**\
+`More than half of the Blackhawks' 20-man roster has yet to play a full NHL season, and this season is even more grueling than usual.`\
+https://nytimes.com/athletic/7153178/2026/03/28/blackhawks-rangers-sacha-boisvert-fight-draft-lottery/
+
 **Big Ten earns half of 2026 Elite Eight spots, tying men's tournament record**\
 `Last year, the SEC also sent four teams to the regional finals, with eventual champion Florida and Auburn reaching the Final Four.`\
 https://nytimes.com/athletic/7153334/2026/03/28/big-ten-elite-eight-ncaa-tournament/
