@@ -1,3 +1,15 @@
+**Trump Says Middle East Is ‘Saved’ as Iran Strikes Injure U.S. Troops in Gulf**\
+`At a Saudi event, the president said Iran was “begging to make a deal,” seemingly unaware of reports that an Iranian strike on a Saudi base had injured American troops.`\
+https://nytimes.com/2026/03/27/us/politics/trump-saudi-speech.html
+
+**Tony Vitello takes blame after first pair of season-opening shutouts in Giants history**\
+`"Maybe it's time to do what I can to maybe ease any tension in there so guys can be free and go out there and play," Vitello said.`\
+https://nytimes.com/athletic/7153053/2026/03/27/sf-giants-shutouts-tony-vitello/
+
+**Strike on U.S. Base in Saudi Arabia Injures 12 American Troops, 2 Seriously, Officials Say**\
+`The combined missile and drone attack amounted to one of the most serious breaches of American air defenses in the course of the monthlong war with Iran.`\
+https://nytimes.com/2026/03/27/us/politics/strike-us-air-base-injuries.html
+
 **We don't need to quit Tiger Woods. But we must ask less of him**\
 `Woods seems like he needs help right now. His focus should be far from golf, and playing the least of his concerns.`\
 https://nytimes.com/athletic/7153057/2026/03/27/tiger-woods-arrest-impact-reaction/
