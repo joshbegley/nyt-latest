@@ -1,3 +1,7 @@
+**Ben White and boos - the latest chapter in a complicated relationship with England**\
+`The Arsenal defender scored, conceded a penalty and was the subject of fans' unhappiness on his first national-team appearance since 2022`\
+https://nytimes.com/athletic/7153433/2026/03/28/ben-white-england-boos/
+
 **Talk of the Devils debate: Are these Manchester United's transfer priorities this summer?**\
 `We've spent a week discussing United's summer transfer plans - so what are the most important issues to solve?`\
 https://nytimes.com/athletic/7151826/2026/03/28/manchester-united-transfer-priorities/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7153334/2026/03/28/big-ten-elite-eight-ncaa-tournam
 **Luka Dončić picks up 16th technical foul, triggering 1-game suspension**\
 `Unless the technical is rescinded (as one was last weekend), Luka Dončić will serve his suspension Monday against the Wizards.`\
 https://nytimes.com/athletic/7153332/2026/03/28/luka-doncic-technical-foul-suspension-lakers/
-
-**UConn in Elite Eight for third time in four seasons after staving off Michigan State**\
-`An early exit last season ended UConn's run of national titles at two. Now it's a win away from the Final Four, but No. 1 Duke is next.`\
-https://nytimes.com/athletic/7153264/2026/03/28/michigan-state-uconn-march-madness-score-takeaways/
 

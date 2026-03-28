@@ -1,3 +1,7 @@
+**Ben White and boos - the latest chapter in a complicated relationship with England**\
+`The Arsenal defender scored, conceded a penalty and was the subject of fans' unhappiness on his first national-team appearance since 2022`\
+https://nytimes.com/athletic/7153433/2026/03/28/ben-white-england-boos/
+
 **Talk of the Devils debate: Are these Manchester United's transfer priorities this summer?**\
 `We've spent a week discussing United's summer transfer plans - so what are the most important issues to solve?`\
 https://nytimes.com/athletic/7151826/2026/03/28/manchester-united-transfer-priorities/
