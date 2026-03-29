@@ -1,3 +1,11 @@
+**How to watch Kings vs. Nets: Time, TV, streaming**\
+`Find out how to watch the Sacramento Kings play the Brooklyn Nets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155807/2026/03/29/kings-vs-nets-stream-how-to-watch-march-29/
+
+**How to watch Wizards vs. Trail Blazers: Time, TV, streaming**\
+`Find out how to watch the Washington Wizards play the Portland Trail Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155803/2026/03/29/wizards-vs-trail-blazers-stream-how-to-watch-march-29/
+
 **How to watch Magic vs. Raptors: Time, TV, streaming**\
 `Find out how to watch the Orlando Magic play the Toronto Raptors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7155795/2026/03/29/magic-vs-raptors-stream-how-to-watch-march-29/
