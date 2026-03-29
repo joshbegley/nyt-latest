@@ -1,3 +1,7 @@
+**The Yankees couldn't have asked for a better start to the season**\
+`Everything came together for the Yankees in their season-opening series against the Giants at Oracle Park.`\
+https://nytimes.com/athletic/7155101/2026/03/29/yankees-start-to-season-sweep/
+
 **Giants are an easy puzzle for Yankees to solve in series sweep**\
 `The Giants didn't produce enough offense to overcome the two-run double that Ben Rice hit in the third inning and Aaron Judge's solo shot.`\
 https://nytimes.com/athletic/7155052/2026/03/29/giants-yankees-sweep-recap-patrick-bailey-vitello/

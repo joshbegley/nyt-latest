@@ -1,3 +1,7 @@
+**The Yankees couldn't have asked for a better start to the season**\
+`Everything came together for the Yankees in their season-opening series against the Giants at Oracle Park.`\
+https://nytimes.com/athletic/7155101/2026/03/29/yankees-start-to-season-sweep/
+
 **Giants are an easy puzzle for Yankees to solve in series sweep**\
 `The Giants didn't produce enough offense to overcome the two-run double that Ben Rice hit in the third inning and Aaron Judge's solo shot.`\
 https://nytimes.com/athletic/7155052/2026/03/29/giants-yankees-sweep-recap-patrick-bailey-vitello/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7155407/2026/03/29/rangers-vs-phillies-stream-how-t
 **How to watch Nationals vs. Cubs: Time, TV, streaming for March 29**\
 `Find out how to watch the Washington Nationals play the Chicago Cubs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7155405/2026/03/29/nationals-vs-cubs-stream-how-to-watch-march-29/
-
-**How to watch White Sox vs. Brewers: Time, TV, streaming for March 29**\
-`Find out how to watch the Chicago White Sox play the Milwaukee Brewers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7155403/2026/03/29/white-sox-vs-brewers-stream-how-to-watch-march-29/
 
