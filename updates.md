@@ -1,3 +1,7 @@
+**Japanese GP: Submit your questions for our F1 mailbag**\
+`What questions do you have for our F1 experts after F1's 2026 Japanese GP?`\
+https://nytimes.com/athletic/7155226/2026/03/29/kimi-antonelli-japanese-gp-mailbag/
+
 **The Air Canada Crash: Before and After the Frantic Call to ‘Stop, Stop, Stop’**\
 `How a cascade of seemingly minor events led to the worst runway disaster at LaGuardia Airport in decades.`\
 https://nytimes.com/2026/03/29/nyregion/laguardia-air-canada-crash-reconstruction.html
