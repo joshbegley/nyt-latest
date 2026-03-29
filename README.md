@@ -1,3 +1,11 @@
+**Young skill, maturity has Blues in a surprising spot: ‘It’s really elevated our team’**\
+`The Blues are over .500 (32-31-11) for the first time since Oct. 21 and just four points out of a playoff spot.`\
+https://nytimes.com/athletic/7154883/2026/03/29/blues-win-maple-leafs-thomas-snuggerud/
+
+**Igor Tudor to leave Tottenham after 44 days in charge**\
+`Tudor, who was appointed on February 14, took charge of seven games in total, managing only one win.`\
+https://nytimes.com/athletic/7083328/2026/03/29/igor-tudor-tottenham-leaves/
+
 **What’s next with Zion Williamson? Should James Borrego return as coach? Pelicans mailbag**\
 `Is there a sentiment among Pelicans fans that the current group deserves one more chance to become a winning team?`\
 https://nytimes.com/athletic/7155293/2026/03/29/pelicans-mailbag-zion-williamson-james-borrego-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7155532/2026/03/29/hincapie-arsenal-injury-news-int
 **How to watch Predators vs. Lightning: Time, TV, streaming**\
 `Find out how to watch the Nashville Predators play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7155585/2026/03/29/predators-vs-lightning-stream-how-to-watch-march-29/
-
-**How to watch Bruins vs. Blue Jackets: Time, TV, streaming**\
-`Find out how to watch the Boston Bruins play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7155577/2026/03/29/bruins-vs-blue-jackets-stream-how-to-watch-march-29/
-
-**How to watch Canadiens vs. Hurricanes: Time, TV, streaming**\
-`Find out how to watch the Montreal Canadiens play the Carolina Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7155575/2026/03/29/canadiens-vs-hurricanes-stream-how-to-watch-march-29/
 
