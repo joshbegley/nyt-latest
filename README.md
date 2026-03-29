@@ -1,3 +1,7 @@
+**Mets fans are booing Bo Bichette and he gets it: 'I thought my at-bats were terrible'**\
+`Bichette’s failures to cash in with runners on base contributed to a lackluster loss to the Pirates. `\
+https://nytimes.com/athletic/7156564/2026/03/29/mets-bo-bichette-boos-strikeouts/
+
 **Three in four Premier League fans want VAR scrapped, new survey finds**\
 `The latest FSA survey also found that nine out of ten Premier League fans believe VAR has made football less enjoyable.`\
 https://nytimes.com/athletic/7156023/2026/03/29/premier-league-fans-var-fsa-survey/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/29/crosswords/daily-puzzle-2026-03-30.html
 **Politico Names New Top Editor**\
 `Jonathan Greenberger, an executive at the publication, will take over from John Harris, a co-founder of Politico.`\
 https://nytimes.com/2026/03/29/business/media/politico-editor-jonathan-greenberger.html
-
-**Olympian Caster Semenya criticizes IOC's renewed transgender athlete ban**\
-`Semenya spent seven years locked in court battles over various sex eligibility policies, and says the IOC rules disrespect women.`\
-https://nytimes.com/athletic/7156266/2026/03/29/ioc-transgender-ban-caster-semenya-reaction/
 
