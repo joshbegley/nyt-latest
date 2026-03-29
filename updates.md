@@ -1,3 +1,7 @@
+**Lowetide: Oilers sign Tomas Cibulka, mark beginning of spring signing season**\
+`Cibulka played the past two seasons in Czechia's top league for his hometown HC Motor Ceske Budejovice.`\
+https://nytimes.com/athletic/7153931/2026/03/29/oilers-sign-defenceman-tomas-cibulka/
+
 **Can Canada’s Left Regroup? A New Leader Will Try.**\
 `Seeking a comeback after voters flocked to Mark Carney’s Liberals, the New Democrats picked Avi Lewis, a scion of a leftist political dynasty.`\
 https://nytimes.com/2026/03/29/world/americas/canada-new-democrats-party-leader-avi-lewis.html

@@ -1,3 +1,7 @@
+**Lowetide: Oilers sign Tomas Cibulka, mark beginning of spring signing season**\
+`Cibulka played the past two seasons in Czechia's top league for his hometown HC Motor Ceske Budejovice.`\
+https://nytimes.com/athletic/7153931/2026/03/29/oilers-sign-defenceman-tomas-cibulka/
+
 **Can Canada’s Left Regroup? A New Leader Will Try.**\
 `Seeking a comeback after voters flocked to Mark Carney’s Liberals, the New Democrats picked Avi Lewis, a scion of a leftist political dynasty.`\
 https://nytimes.com/2026/03/29/world/americas/canada-new-democrats-party-leader-avi-lewis.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7155783/2026/03/29/celtics-vs-hornets-stream-how-to
 **How to watch Rockets vs. Pelicans: Time, TV, streaming**\
 `Find out how to watch the Houston Rockets play the New Orleans Pelicans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7155780/2026/03/29/rockets-vs-pelicans-stream-how-to-watch-march-29/
-
-**Make Melissa Clark’s Lemon Poppy Seed Cake**\
-`The olive oil in this five-star recipe keeps the cake from drying out, which means you can snack on it all week long.`\
-https://nytimes.com/2026/03/29/dining/make-melissa-clarks-lemon-poppy-seed-cake.html
 
