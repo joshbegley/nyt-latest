@@ -1,3 +1,11 @@
+**Rugby coach apologises for pushing and swearing at TV presenter during broadcast**\
+`Geoff Parling was angered after a ball kicked by a TNT Sports pundit landed nearer his Leicester Tigers players`\
+https://nytimes.com/athletic/7155639/2026/03/29/geoff-parling-tnt-sports-leicester/
+
+**Denver Summit’s record-breaking attendance sets new bar for NWSL expansion teams**\
+`Denver Summit's record crowd has opened the NWSL's thinking to bigger attendance targets, including the championship`\
+https://nytimes.com/athletic/7155245/2026/03/29/denver-summit-record-attendance-nwsl-expansion/
+
 **On his bobblehead night, Will Smith powers the Dodgers to a sweep**\
 `Smith, who wasn't originally in the lineup Saturday night, once again showed off his ability to come up big at the most important times.`\
 https://nytimes.com/athletic/7155070/2026/03/29/will-smith-powers-dodgers-sweep-bobblehead/
