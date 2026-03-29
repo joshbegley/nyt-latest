@@ -1,5 +1,9 @@
-**Tottenham had to sack Tudor, but this shambles goes far beyond just him**\
-`Tottenham have sacked Tudor - but the club's crisis is not his fault`\
+**Irish rugby player who sparked CFB recruiting frenzy committing to South Carolina**\
+`"A month ago, I didn't exist in the world of American football, and now I do," said Giwa. `\
+https://nytimes.com/athletic/7154766/2026/03/29/college-football-recruiting-south-carolina-neff-giwa-rugby-ireland/
+
+**Tottenham had to part ways with Tudor, but this shambles goes far beyond just him**\
+`Tudor may have left Spurs but the club's crisis is not his fault`\
 https://nytimes.com/athletic/7107544/2026/03/29/tottenham-sack-igor-tudor-enic/
 
 **Young skill, maturity has Blues in a surprising spot: ‘It’s really elevated our team’**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7155647/2026/03/29/uconn-vs-duke-stream-how-to-watc
 **Randy Vásquez takes matters into his own hands in Padres' first win of the season**\
 `Vásquez showed off his improved velocity and what he's learned under the tutelage of Yu Darvish in helping San Diego beat the Tigers.`\
 https://nytimes.com/athletic/7155146/2026/03/29/padres-randy-vasquez-first-win/
-
-**Zubimendi becomes tenth Arsenal player to withdraw from international squad over break**\
-`On Saturday night, Bukayo Saka and Declan Rice both departed from the England camp and return to Arsenal for "medical assessment".`\
-https://nytimes.com/athletic/7155532/2026/03/29/hincapie-arsenal-injury-news-internationals/
 
