@@ -1,3 +1,7 @@
+**Golden Knights fire Bruce Cassidy, hire John Tortorella**\
+`Cassidy coached Vegas to a Stanley Cup championship in 2023, but the Knights have lost 12 of 16, putting their playoff hopes in peril.`\
+https://nytimes.com/athletic/7156400/2026/03/29/golden-knights-fire-bruce-cassidy-hire-john-tortorella/
+
 **Aaron Glenn affirms Geno Smith will be Jets' starting quarterback**\
 `The New York Jets acquired Geno Smith from the Las Vegas Raiders in a trade earlier this month.`\
 https://nytimes.com/athletic/7156315/2026/03/29/aaron-glenn-geno-smith-jets-qb/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7154432/2026/03/29/womens-ncaa-tournament-reading-b
 **Australian Sky Turns an Apocalyptic Blood Red**\
 `Winds from Tropical Cyclone Narelle stirred up rust-colored dust from iron-rich soil, tinging the sky over Western Australia with a reddish Mars-like hue.`\
 https://nytimes.com/2026/03/29/world/australia/australia-red-sky-tropical-cyclone.html
-
-**Australia Skies Turn Blood Red Ahead of Tropical Cyclone**\
-`A fiery red sky covered Western Australia as Tropical Cyclone Narelle approached on Friday.`\
-https://nytimes.com/video/world/australia/100000010808989/red-sky-australia-cyclone.html
 
