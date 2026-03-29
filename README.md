@@ -1,3 +1,7 @@
+**How to watch Panthers vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155305/2026/03/29/panthers-vs-rangers-stream-how-to-watch-march-29/
+
 **Jannik Sinner arrives in Miami Open final on a mission, ready to say the quiet part out loud**\
 `Sinner missed three months of tennis last year under an anti-doping suspension. This year, he is making hay while the sun shines.`\
 https://nytimes.com/athletic/7153301/2026/03/29/tennis-jannik-sinner-season-atp-race/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/29/us/cesar-chavez-la-paz.html
 **These Stars Owned the Red Carpet This Season**\
 `Whether loud or quiet, formal or relaxed, the awards season attire of these eight individuals was surprising, delightful and worn with ease.`\
 https://nytimes.com/2026/03/29/style/red-carpet-fashion-awards-shows-2026.html
-
-**He Was Supposed to Break Up Kraft and Heinz. He Changed His Mind.**\
-`Steve Cahillane, a food industry veteran, is trying to revive the company behind Kool-Aid, Oscar Mayer and many other brands.`\
-https://nytimes.com/2026/03/29/business/kraft-heinz-steve-cahillane.html
 
