@@ -1,3 +1,19 @@
+**How to watch Warriors vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7156248/2026/03/29/warriors-vs-nuggets-stream-how-to-watch-march-29/
+
+**New Political Group to Push Trump’s A.I. Agenda in Midterms**\
+`The group, Innovation Council Action, says it plans to spend at least $100 million. It will be led by a former administration official.`\
+https://nytimes.com/2026/03/29/business/trump-artificial-intelligence-pac-midterms.html
+
+**Joey Browner, a 6-time Pro Bowler with the Vikings, dies at age 65**\
+`Browner, a member of the Vikings' Ring of Honor, played for Minnesota from 1983 through 1991 after being a first-round draft pick.`\
+https://nytimes.com/athletic/7156155/2026/03/29/joey-browner-vikings-obit-pro-bowl/
+
+**Eric Overmyer, Who Wrote for Modern Television Classics, Dies at 74**\
+`Trained as a playwright, he got his first TV writing job on “St. Elsewhere,” then worked on “Homicide: Life on the Street,” “The Wire,” “Treme” and “Bosch.”`\
+https://nytimes.com/2026/03/29/arts/television/eric-overmyer-dead.html
+
 **Iran War Draws Attention to U.S. Troop Presence in Saudi Arabia**\
 `A close U.S. ally and regional rival of Iran, the kingdom has faced hundreds of Iranian missile and drone attacks since the war began.`\
 https://nytimes.com/2026/03/29/world/middleeast/injured-us-troops-saudi-arabia.html
@@ -10,8 +26,8 @@ https://nytimes.com/live/2026/03/29/world/iran-war-trump-israel-oil/israels-mili
 `Purdue combined consistent winning with NCAA Tournament heartbreak over the past four years. What will Matt Painter do next?`\
 https://nytimes.com/athletic/7156027/2026/03/29/purdue-basketball-seniors-ncaa-tournament-arizona/
 
-**Regional officials met in Pakistan to discuss the war in Iran.**\
-`By Zia ur-Rehman`\
+**Regional officials meet in Pakistan to discuss the war in Iran.**\
+`By Zia ur-Rehman and Salman Masood`\
 https://nytimes.com/live/2026/03/29/world/iran-war-trump-israel-oil/regional-officials-pakistan-meeting
 
 **Journey to the Moon ‘Starting to Feel Real’ for NASA’s Artemis II Crew**\
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/29/science/nasa-astronauts-artemis-moon-launch.html
 **Verstappen's retirement threat feels shocking. But we shouldn't be surprised**\
 `The Dutch driver would not be the first high-achieving prodigy to walk away early from the sport that has been their life`\
 https://nytimes.com/athletic/7155999/2026/03/29/max-verstappen-f1-retirement-threat/
-
-**There Are Now Over 50,000 American Troops in the Mideast**\
-`The arrival of 2,500 Marines and another 2,500 sailors is keeping the number of American troops in the region at roughly 10,000 more than usual.`\
-https://nytimes.com/2026/03/29/us/politics/us-marines-middle-east-iran-war.html
-
-**How to watch Guardians vs. Mariners: Time, TV, streaming for March 29**\
-`Find out how to watch the Cleveland Guardians play the Seattle Mariners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7156063/2026/03/29/guardians-vs-mariners-stream-how-to-watch-march-29/
-
-**Flyers sign top prospect Porter Martone**\
-`Martone was the No. 6 pick of the 2025 NHL Draft by Philadelphia.`\
-https://nytimes.com/athletic/7154569/2026/03/29/porter-martone-flyers-contract/
-
-**How to watch Knicks vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the New York Knicks play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7156037/2026/03/29/knicks-vs-thunder-stream-how-to-watch-march-29/
 
