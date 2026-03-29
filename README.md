@@ -1,5 +1,9 @@
+**One of MLB’s hottest starts in 65 years belongs to a player who barely made the Nationals**\
+`The National League MVP frontrunner is just the third player since 1961 to reach base on each of his first 8 plate appearances of the year`\
+https://nytimes.com/athletic/7156369/2026/03/29/nationals-joey-wiemer-hot-start/
+
 **Browns GM says no plans to trade Myles Garrett despite recent contract modification**\
-`Adam Berry said the Browns wouldn't have needed a contract modification if they wanted to trade Garrett.`\
+`Andrew Berry said the Browns wouldn't have needed a contract modification if they wanted to trade Garrett.`\
 https://nytimes.com/athletic/7156338/2026/03/29/myles-garrett-browns-trade-speculation/
 
 **U.S. to Allow Russian Oil Tanker to Reach Cuba, Breaking Blockade**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/29/world/middleeast/catholic-church-jerusalem.html
 **49ers' tests indicate Levi's Stadium substation issue a 'nothing burger'**\
 `GM John Lynch said they tested practice fields, weight room, cafeteria, locker room, meetings rooms — anywhere players go — for exposure.`\
 https://nytimes.com/athletic/7156270/2026/03/29/49ers-john-lynch-substation-investigation-results/
-
-**Impostor posed as All-Pro safety Xavier McKinney to steal over $4 million, lawsuit alleges**\
-`Aliya Sports Finance Fund filed a lawsuit against Sure Sports alleging negligence.`\
-https://nytimes.com/athletic/7156162/2026/03/29/scam-xavier-mckinney-packers-lawsuit/
 

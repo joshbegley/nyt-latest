@@ -1,3 +1,11 @@
+**Browns GM says no plans to trade Myles Garrett despite recent contract modification**\
+`Adam Berry said the Browns wouldn't have needed a contract modification if they wanted to trade Garrett.`\
+https://nytimes.com/athletic/7156338/2026/03/29/myles-garrett-browns-trade-speculation/
+
+**U.S. to Allow Russian Oil Tanker to Reach Cuba, Breaking Blockade**\
+`The tanker full of crude oil could reach its expected destination by Tuesday, providing a lifeline to the island amid intense U.S. pressure.`\
+https://nytimes.com/2026/03/29/world/americas/cuba-russian-oil-tanlker.html
+
 **Israel’s Other War**\
 `As missiles fly in Iran, Israeli troops have moved deep into southern Lebanon to hit Hezbollah.`\
 https://nytimes.com/2026/03/29/world/israel-lebanon-hezbollah-war-iran.html
