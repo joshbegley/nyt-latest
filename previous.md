@@ -1,3 +1,7 @@
+**How to watch Knicks vs. Thunder: Time, TV, streaming**\
+`Find out how to watch the New York Knicks play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7156037/2026/03/29/knicks-vs-thunder-stream-how-to-watch-march-29/
+
 **Hundreds Gather for Funeral of 3 Lebanese Killed in Israeli Strike**\
 `Israel said one of those killed was a member of Hezbollah’s military wing “disguised as a journalist.” Lebanon’s president said all three were journalists and condemned the killings.`\
 https://nytimes.com/2026/03/29/world/middleeast/funerals-lebanese-killed-israeli-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7155058/2026/03/29/giants-what-we-learned-series-sw
 **How to watch Kings vs. Nets: Time, TV, streaming**\
 `Find out how to watch the Sacramento Kings play the Brooklyn Nets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7155807/2026/03/29/kings-vs-nets-stream-how-to-watch-march-29/
-
-**How to watch Wizards vs. Trail Blazers: Time, TV, streaming**\
-`Find out how to watch the Washington Wizards play the Portland Trail Blazers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7155803/2026/03/29/wizards-vs-trail-blazers-stream-how-to-watch-march-29/
 

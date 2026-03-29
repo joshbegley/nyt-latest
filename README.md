@@ -36,5 +36,5 @@ https://nytimes.com/athletic/7155058/2026/03/29/giants-what-we-learned-series-sw
 
 **How to watch Kings vs. Nets: Time, TV, streaming**\
 `Find out how to watch the Sacramento Kings play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7155807/2026/03/29/kings-vs-nets-stream-how-to-watch-march-29/
+https://nytimes.com/athletic/7155807/2026/03/29/how-to-watch-kings-vs-nets-tv-channel-and-streaming-options-for-march-29/
 
