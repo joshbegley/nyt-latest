@@ -1,3 +1,7 @@
+**The science of the warm-up: From ridicule to RAMP, and the nightmare of losing a player to injury**\
+`Player warm-ups, whether for training or on matchday, have become part of the normal routine but there is technique behind making them work`\
+https://nytimes.com/athletic/7107686/2026/03/29/warm-up-football-science-ramp-injury/
+
 **The New York Times in Print for Sunday, March 29, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/29/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7128499/2026/03/29/nhl-playoffs-matchups-projection
 **Rene Meulensteen interview: World Cup qualification 'is an opportunity to change the perception of Iraq'**\
 `After a three-day journey, including a 550-mile bus ride, Iraq's players face Bolivia in a qualifying play-off for the World Cup`\
 https://nytimes.com/athletic/7153885/2026/03/29/rene-meulensteen-iraq-interview/
-
-**How Spain won the 2010 World Cup: Clean sheets, lots of short passes, and a Barcelona core**\
-`Michael Cox's history of World Cup winners reaches 2010, and Spain's only victory so far`\
-https://nytimes.com/athletic/7146957/2026/03/29/how-spain-won-the-2010-world-cup/
 
