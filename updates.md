@@ -1,3 +1,7 @@
+**Senegal, the AFCON trophy and a day of defiance: 'A people’s memory cannot be rewritten'**\
+`Senegal's players are in no mood to recognise the ruling that has stripped them of their second AFCON title`\
+https://nytimes.com/athletic/7154693/2026/03/29/senegal-afcon-trophy-paris/
+
 **'Qualifying for a World Cup is an opportunity to change the perception of Iraq'**\
 `After a three-day journey, including a 550-mile bus ride, Iraq's players face Bolivia in a qualifying play-off for the World Cup`\
 https://nytimes.com/athletic/7153885/2026/03/29/rene-meulensteen-iraq-interview/
