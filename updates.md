@@ -1,3 +1,7 @@
+**Hundreds Gather for Funeral of 3 Lebanese Killed in Israeli Strike**\
+`Israel said one of those killed was a member of Hezbollah’s military wing “disguised as a journalist.” Lebanon’s president said all three were journalists and condemned the killings.`\
+https://nytimes.com/2026/03/29/world/middleeast/funerals-lebanese-killed-israeli-strike.html
+
 **ICE May Remain at Airports Even After T.S.A. Pay Resumes, Border Czar Says**\
 `Transportation safety officers are set to be paid on Monday, but Tom Homan, the White House’s border czar, said ICE agents may stay where there are shortages.`\
 https://nytimes.com/2026/03/29/us/ice-tsa-airports-homan-trump-shutdown.html
