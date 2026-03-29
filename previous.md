@@ -1,3 +1,7 @@
+**Men's Elite Eight Sunday watch guide: Michigan vs. Tennessee, Duke vs. UConn**\
+`There are two more Final Four tickets left to punch. Here's what to know and when to tune in for Sunday's regional finals.`\
+https://nytimes.com/athletic/7152641/2026/03/29/march-madness-elite-eight-duke-uconn-michigan-tennessee/
+
 **Japanese GP: Submit your questions for our F1 mailbag**\
 `What questions do you have for our F1 experts after F1's 2026 Japanese GP?`\
 https://nytimes.com/athletic/7155226/2026/03/29/kimi-antonelli-japanese-gp-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7107686/2026/03/29/warm-up-football-science-ramp-in
 **The New York Times in Print for Sunday, March 29, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/29/todays-new-york-times
-
-**I Saw Something New in San Francisco**\
-`Marshall McLuhan was right about Claude, too.`\
-https://nytimes.com/2026/03/29/opinion/ai-claude-chatgpt-gemini-mcluhan.html
 
