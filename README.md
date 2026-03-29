@@ -1,3 +1,7 @@
+**Pistons, despite injuries, maintaining defensive intensity: 'Stick to the script'**\
+`Detroit's defensive rating during its last six games without All-Star Cade Cunningham ranks second in the NBA.`\
+https://nytimes.com/athletic/7154797/2026/03/29/pistons-defense-nba-cade-cunningham/
+
 **The Yankees couldn't have asked for a better start to the season**\
 `Everything came together for the Yankees in their season-opening series against the Giants at Oracle Park.`\
 https://nytimes.com/athletic/7155101/2026/03/29/yankees-start-to-season-sweep/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7155416/2026/03/29/duke-vs-ucla-stream-how-to-watch
 **How to watch Rangers vs. Phillies: Time, TV, streaming for March 29**\
 `Find out how to watch the Texas Rangers play the Philadelphia Phillies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7155407/2026/03/29/rangers-vs-phillies-stream-how-to-watch-march-29/
-
-**How to watch Nationals vs. Cubs: Time, TV, streaming for March 29**\
-`Find out how to watch the Washington Nationals play the Chicago Cubs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7155405/2026/03/29/nationals-vs-cubs-stream-how-to-watch-march-29/
 
