@@ -34,7 +34,7 @@ https://nytimes.com/athletic/7156400/2026/03/29/golden-knights-fire-bruce-cassid
 `The New York Jets acquired Geno Smith from the Las Vegas Raiders in a trade earlier this month.`\
 https://nytimes.com/athletic/7156315/2026/03/29/aaron-glenn-geno-smith-jets-qb/
 
-**Why Steve Kerr wrote that handwritten letter to Blue Jays manager John Schneider**\
+**Steve Kerr explains why he penned that handwritten letter to Blue Jays manager John Schneider**\
 `The Warriors coach estimates he’s written at least seven supportive notes to coaches he admires across multiple sports. `\
 https://nytimes.com/athletic/7156351/2026/03/29/steve-kerr-letter-john-schneider-blue-jays-warriors/
 
