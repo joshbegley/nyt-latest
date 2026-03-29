@@ -1,3 +1,11 @@
+**Purdue bucked modern college hoops trends with a senior class like no other. What's next?**\
+`Purdue combined consistent winning with NCAA Tournament heartbreak over the past four years. What will Matt Painter do next?`\
+https://nytimes.com/athletic/7156027/2026/03/29/purdue-basketball-seniors-ncaa-tournament-arizona/
+
+**Regional officials met in Pakistan to discuss the war in Iran.**\
+`By Zia ur-Rehman`\
+https://nytimes.com/live/2026/03/29/world/iran-war-trump-israel-oil/regional-officials-pakistan-meeting
+
 **Journey to the Moon ‘Starting to Feel Real’ for NASA’s Artemis II Crew**\
 `The four astronauts — three Americans and one Canadian — spoke from a prelaunch quarantine ahead of their scheduled Wednesday mission.`\
 https://nytimes.com/2026/03/29/science/nasa-astronauts-artemis-moon-launch.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/29/world/middleeast/funerals-lebanese-killed-israeli
 **ICE May Remain at Airports Even After T.S.A. Pay Resumes, Border Czar Says**\
 `Transportation safety officers are set to be paid on Monday, but Tom Homan, the White House’s border czar, said ICE agents may stay where there are shortages.`\
 https://nytimes.com/2026/03/29/us/ice-tsa-airports-homan-trump-shutdown.html
-
-**Where does Tudor's 44-day Spurs stint rank in Premier League's shortest reigns?**\
-`The Croatian is fourth in the list of the shortest managerial tenures in the Premier League as honeymoon periods become a thing of the past`\
-https://nytimes.com/athletic/7086921/2026/03/29/tudor-tottenham-premier-league-managers-shortest-reigns/
-
-**Lowetide: Oilers sign Tomas Cibulka, mark beginning of spring signing season**\
-`Cibulka played the past two seasons in Czechia's top league for his hometown HC Motor Ceske Budejovice.`\
-https://nytimes.com/athletic/7153931/2026/03/29/oilers-sign-defenceman-tomas-cibulka/
 
