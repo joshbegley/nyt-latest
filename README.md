@@ -1,3 +1,15 @@
+**The Air Canada Crash: Before and After the Frantic Call to ‘Stop, Stop, Stop’**\
+`How a cascade of seemingly minor events led to the worst runway disaster at LaGuardia Airport in decades.`\
+https://nytimes.com/2026/03/29/nyregion/laguardia-air-canada-crash-reconstruction.html
+
+**‘A Young Woman Opened the Door on the Other Side and Slid in Next to Me’**\
+`Sharing a cab with the catch of the day, where two friends met and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2026/03/29/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/29/crosswords/spelling-bee-forum.html
+
 **Kimi Antonelli makes history again, Oscar Piastri roars back: Japanese Grand Prix briefing**\
 `Antonelli, 19, wins the Japanese Grand Prix, becoming the youngest driver to lead the world championship. `\
 https://nytimes.com/athletic/7155140/2026/03/29/japanese-grand-prix-briefing-kimi-antonelli/
@@ -14,27 +26,15 @@ https://nytimes.com/athletic/7154693/2026/03/29/senegal-afcon-trophy-paris/
 `Player warm-ups, whether for training or on matchday, have become part of the normal routine but there is technique behind making them work`\
 https://nytimes.com/athletic/7107686/2026/03/29/warm-up-football-science-ramp-injury/
 
-**I Saw Something New in San Francisco**\
-`Marshall McLuhan was right about Claude, too.`\
-https://nytimes.com/2026/03/29/opinion/ai-claude-chatgpt-gemini-mcluhan.html
-
 **The New York Times in Print for Sunday, March 29, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/29/todays-new-york-times
 
+**I Saw Something New in San Francisco**\
+`Marshall McLuhan was right about Claude, too.`\
+https://nytimes.com/2026/03/29/opinion/ai-claude-chatgpt-gemini-mcluhan.html
+
 **Help! My Favorite Athlete Is an Idiot.**\
 `Sports used to be an oasis from political squabbling. But now the bad opinions of star athletes have become impossible to escape.`\
 https://nytimes.com/2026/03/29/opinion/sports-politics-athletes-opinions.html
-
-**Goodbye, ‘Queer Eye.’ Goodbye, Queer Acceptance.**\
-`Today even tolerance is in doubt.`\
-https://nytimes.com/2026/03/29/opinion/queer-eye-finale-america-lgbtq.html
-
-**Here’s the latest.**\
-`By Pranav Baskar, Helene Cooper and James C. McKinley Jr.`\
-https://nytimes.com/live/2026/03/29/world/iran-war-trump-israel-oil/heres-the-latest
-
-**Iran War Live Updates: Tehran Hit by Heavy Airstrikes as U.S. Marines Arrive in Middle East**\
-`Airstrikes pummel residential areas and a university in Iran’s capital. Houthi forces in Yemen entered the widening conflict with a missile attack on Israel.`\
-https://nytimes.com/live/2026/03/29/world/iran-war-trump-israel-oil
 
