@@ -1,3 +1,11 @@
+**With 2 star performances, Luis Robert Jr. validating Mets' spring optimism**\
+`Robert's three-run homer in the 11th inning gave the Mets a walk-off win over the Pirates on Saturday.`\
+https://nytimes.com/athletic/7154725/2026/03/28/luis-robert-jr-mets-spring-optimism/
+
+**Record Number of T.S.A. Employees Called Out on Friday**\
+`President Trump signed a memo late Friday ordering the Department of Homeland Security to restore pay to airport screeners.`\
+https://nytimes.com/2026/03/28/us/tsa-employees-airports-wait-times.html
+
 **‘No Kings’ Protesters Rally From Coast to Coast**\
 `More than 3,000 demonstrations were planned in the United States on Saturday as part of the “No Kings” movement. Protesters held signs condemning the war in Iran and immigration raids.`\
 https://nytimes.com/video/world/100000010808444/no-kings-protesters-rally-from-coast-to-coast.html
