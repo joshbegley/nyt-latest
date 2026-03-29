@@ -1,3 +1,7 @@
+**How the Iran War Has Rippled Across the World**\
+`Deflated balloons? Pricier sugar? The fighting in the Middle East has played out across the world in sometimes surprising ways.`\
+https://nytimes.com/interactive/2026/03/29/world/middleeast/iran-war-global-impact-economy-fuel.html
+
 **Kimi Antonelli makes history again, Oscar Piastri roars back: Japanese Grand Prix briefing**\
 `Antonelli, 19, wins the 2026 Japanese Grand Prix, becoming the youngest driver to lead the F1 world championship. `\
 https://nytimes.com/athletic/7155140/2026/03/29/japanese-grand-prix-briefing-kimi-antonelli/
