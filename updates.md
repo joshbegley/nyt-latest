@@ -1,3 +1,15 @@
+**Nicholas Haysom, Apartheid Foe Who Became a U.N. Peacemaker, Dies at 73**\
+`As an anti-apartheid lawyer, he was jailed several times. Later, he was a top adviser to Nelson Mandela and held key posts at the United Nations.`\
+https://nytimes.com/2026/03/29/obituaries/nicholas-haysom-dead.html
+
+**UCLA headed back to Final Four after comeback against Duke**\
+`UCLA made crucial halftime adjustments to get Lauren Betts more involved. It paid off.`\
+https://nytimes.com/athletic/7156499/2026/03/29/ucla-final-four-duke/
+
+**Regrettably Unfortunate**\
+`It’s smooth sailing through Gary Cee’s Monday puzzle.`\
+https://nytimes.com/2026/03/29/crosswords/daily-puzzle-2026-03-30.html
+
 **Politico Names New Top Editor**\
 `Jonathan Greenberger, an executive at the publication, will take over from John Harris, a co-founder of Politico.`\
 https://nytimes.com/2026/03/29/business/media/politico-editor-jonathan-greenberger.html
