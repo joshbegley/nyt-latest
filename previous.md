@@ -1,3 +1,11 @@
+**Leave the nets ... for now. UConn, as always, plans for bigger Final Four celebrations**\
+`UConn is back in its 25th Final Four, including 17 of the last 18. `\
+https://nytimes.com/athletic/7156521/2026/03/29/uconn-25-final-four-geno-auriemma/
+
+**UConn stuns Duke with Braylon Mullins' deep 3 to cap wild comeback, return to Final Four**\
+`The victory that earned the Huskies’ eighth trip to the Final Four might go down as the most remarkable in program history.`\
+https://nytimes.com/athletic/7156494/2026/03/29/uconn-duke-march-madness-score-takeaways/
+
 **Struggling Magic yield 31-0 run to Raptors as season-ending slide continues**\
 `In a game among two teams in the morass of East teams seeded between fifth and 10th, the Raptors hung a 31-0 run on the Magic.`\
 https://nytimes.com/athletic/7156620/2026/03/29/nba-magic-raptors-game-turnover-starters-season/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7156475/2026/03/29/providence-colleges-duncan-powel
 **Bernie Sanders, in the Bronx, Presses N.Y. Governor to Tax the Rich**\
 `Senator Bernie Sanders, speaking at a rally at Lehman College, lent his support to Mayor Zohran Mamdani’s effort to raise taxes on millionaires. The mayor was not present.`\
 https://nytimes.com/2026/03/29/nyregion/bernie-sanders-tax-the-rich-rally.html
-
-**Nicholas Haysom, Apartheid Foe Who Became a U.N. Peacemaker, Dies at 73**\
-`As an anti-apartheid lawyer, he was jailed several times. Later, he was a top adviser to Nelson Mandela and held key posts at the United Nations.`\
-https://nytimes.com/2026/03/29/obituaries/nicholas-haysom-dead.html
-
-**UCLA headed back to Final Four after comeback against Duke**\
-`UCLA made crucial halftime adjustments to get Lauren Betts more involved. It paid off.`\
-https://nytimes.com/athletic/7156499/2026/03/29/ucla-final-four-duke/
 
