@@ -11,7 +11,7 @@ https://nytimes.com/2026/03/28/us/tsa-employees-airports-wait-times.html
 https://nytimes.com/video/world/100000010808444/no-kings-protesters-rally-from-coast-to-coast.html
 
 **Amid frustrating stretch for Wild, Kirill Kaprizov needs to be 'better': Takeaways**\
-`The Wild squandered a chance to clinch a playoff berth, losing 6-3 to the Bruins on Saturday.`\
+`The Wild fell behind 3-0 and couldn't come back against the Bruins.`\
 https://nytimes.com/athletic/7154717/2026/03/28/wild-kirill-kaprizov-takeaways-nhl-playoffs/
 
 **Illinois outlasts Iowa to advance to first Final Four since 2005**\
