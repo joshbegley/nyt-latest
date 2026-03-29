@@ -1,3 +1,19 @@
+**Young skill, maturity has Blues in a surprising spot: ‘It’s really elevated our team’**\
+`The Blues are over .500 (32-31-11) for the first time since Oct. 21 and just four points out of a playoff spot.`\
+https://nytimes.com/athletic/7154883/2026/03/29/blues-win-maple-leafs-thomas-snuggerud/
+
+**Igor Tudor to leave Tottenham after 44 days in charge**\
+`Tudor, who was appointed on February 14, took charge of seven games in total, managing only one win.`\
+https://nytimes.com/athletic/7083328/2026/03/29/igor-tudor-tottenham-leaves/
+
+**What’s next with Zion Williamson? Should James Borrego return as coach? Pelicans mailbag**\
+`Is there a sentiment among Pelicans fans that the current group deserves one more chance to become a winning team?`\
+https://nytimes.com/athletic/7155293/2026/03/29/pelicans-mailbag-zion-williamson-james-borrego-nba/
+
+**Zubimendi becomes tenth Arsenal player to withdraw from international squad over break**\
+`On Saturday night, Bukayo Saka and Declan Rice both departed from the England camp and return to Arsenal for "medical assessment".`\
+https://nytimes.com/athletic/7155532/2026/03/29/hincapie-arsenal-injury-news-internationals/
+
 **Rugby coach apologises for pushing and swearing at TV presenter during broadcast**\
 `Geoff Parling was angered after a ball kicked by a TNT Sports pundit landed nearer his Leicester Tigers players`\
 https://nytimes.com/athletic/7155639/2026/03/29/geoff-parling-tnt-sports-leicester/
