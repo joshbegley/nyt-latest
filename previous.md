@@ -1,3 +1,7 @@
+**Michigan mauls Tennessee, completing cruise to first Final Four since 2018**\
+`Michigan clamped down during a 21-0 first-half run on the way to the largest margin of victory in any men's regional final since 1989.`\
+https://nytimes.com/athletic/7156184/2026/03/29/michigan-mauls-tennessee-completing-white-hot-march-with-first-final-four-trip-since-2018/
+
 **Catholic Leaders Barred From Jerusalem Holy Site on Palm Sunday**\
 `Israeli police stopped clergymen from celebrating the Palm Sunday Mass at the Church of the Holy Sepulchre “for the first time in centuries,” church officials said.`\
 https://nytimes.com/2026/03/29/world/middleeast/catholic-church-jerusalem.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7156271/2026/03/29/jermain-defoe-woking-fc-manager/
 **Will Tiger Woods play in the Masters? Explaining what goes into that decision**\
 `Woods' arrest Friday and being charged with DUI complicates his participation at the first major of the year.`\
 https://nytimes.com/athletic/7156151/2026/03/29/tiger-woods-play-status-masters-2026-crash-arrest/
-
-**UConn advances to 25th Final Four with win over Notre Dame**\
-`Blanca Quiñonez scored 20 points, while Azzi Fudd and Sarah Strong combined for 34 points.`\
-https://nytimes.com/athletic/7156267/2026/03/29/uconn-notre-dame-final-four-womens-basketball/
 

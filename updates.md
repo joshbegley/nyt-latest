@@ -1,3 +1,7 @@
+**Michigan mauls Tennessee, completing cruise to first Final Four since 2018**\
+`Michigan clamped down during a 21-0 first-half run on the way to the largest margin of victory in any men's regional final since 1989.`\
+https://nytimes.com/athletic/7156184/2026/03/29/michigan-mauls-tennessee-completing-white-hot-march-with-first-final-four-trip-since-2018/
+
 **Catholic Leaders Barred From Jerusalem Holy Site on Palm Sunday**\
 `Israeli police stopped clergymen from celebrating the Palm Sunday Mass at the Church of the Holy Sepulchre “for the first time in centuries,” church officials said.`\
 https://nytimes.com/2026/03/29/world/middleeast/catholic-church-jerusalem.html
