@@ -1,3 +1,7 @@
+**Catholic Leaders Barred From Jerusalem Holy Site on Palm Sunday**\
+`Israeli police stopped clergymen from celebrating the Palm Sunday Mass at the Church of the Holy Sepulchre “for the first time in centuries,” church officials said.`\
+https://nytimes.com/2026/03/29/world/middleeast/catholic-church-jerusalem.html
+
 **49ers' tests indicate Levi's Stadium substation issue a 'nothing burger'**\
 `GM John Lynch said they tested practice fields, weight room, cafeteria, locker room, meetings rooms — anywhere players go — for exposure.`\
 https://nytimes.com/athletic/7156270/2026/03/29/49ers-john-lynch-substation-investigation-results/
