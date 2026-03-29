@@ -1,3 +1,7 @@
+**Here’s What Happened in the War in the Middle East on Sunday**\
+`Diplomats from around the region met in Pakistan, and the U.S.-Israeli bombardment hit a southern Iranian port, killing at least five people, Iranian state media said.`\
+https://nytimes.com/2026/03/29/world/middleeast/iran-israel-united-states-war-recap.html
+
 **Mets fans are booing Bo Bichette and he gets it: 'I thought my at-bats were terrible'**\
 `Bichette’s failures to cash in with runners on base contributed to a lackluster loss to the Pirates. `\
 https://nytimes.com/athletic/7156564/2026/03/29/mets-bo-bichette-boos-strikeouts/
