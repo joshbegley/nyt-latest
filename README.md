@@ -1,3 +1,7 @@
+**Denver Summit’s record-breaking attendance sets new bar for NWSL expansion teams**\
+`Denver Summit's record crowd has opened the NWSL's thinking to bigger attendance targets, including the championship`\
+https://nytimes.com/athletic/7155245/2026/03/29/denver-summit-record-attendance-nwsl-expansion/
+
 **On his bobblehead night, Will Smith powers the Dodgers to a sweep**\
 `Smith, who wasn't originally in the lineup Saturday night, once again showed off his ability to come up big at the most important times.`\
 https://nytimes.com/athletic/7155070/2026/03/29/will-smith-powers-dodgers-sweep-bobblehead/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7153415/2026/03/29/chase-delauter-guardians-home-ru
 **Dodger Details: Pages' next step, Sheehan's velocity, Scott's start**\
 `Pages could be in line for an extension. Plus, Sheehan's mechanics could be an issue, and Scott is finding his way in the bullpen.`\
 https://nytimes.com/athletic/7155074/2026/03/29/dodger-details-andy-pages-emmet-sheehan-tanner-scott/
-
-**How to watch Clippers vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Clippers play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7155516/2026/03/29/clippers-vs-bucks-stream-how-to-watch-march-29/
 

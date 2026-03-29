@@ -1,3 +1,7 @@
+**On his bobblehead night, Will Smith powers the Dodgers to a sweep**\
+`Smith, who wasn't originally in the lineup Saturday night, once again showed off his ability to come up big at the most important times.`\
+https://nytimes.com/athletic/7155070/2026/03/29/will-smith-powers-dodgers-sweep-bobblehead/
+
 **How to watch UConn vs. Duke men's basketball: Elite Eight Time, TV, streaming**\
 `Find out how to watch the UConn Huskies play the Duke Blue Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7155647/2026/03/29/uconn-vs-duke-stream-how-to-watch-march-29/
