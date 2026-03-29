@@ -1,3 +1,7 @@
+**UConn advances to 25th Final Four with win over Notre Dame**\
+`Blanca Quiñonez scored 20 points, while Azzi Fudd and Sarah Strong combined for 34 points.`\
+https://nytimes.com/athletic/7156267/2026/03/29/uconn-notre-dame-final-four-womens-basketball/
+
 **NFL tells teams not to publicly comment on CBA negotiations with officials**\
 `The NFL's competition committee will be presenting two proposals involving officials. `\
 https://nytimes.com/athletic/7156132/2026/03/29/nfl-teams-cba-negotiations-officials/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7156027/2026/03/29/purdue-basketball-seniors-ncaa-t
 **Regional officials meet in Pakistan to discuss the war in Iran.**\
 `By Zia ur-Rehman and Salman Masood`\
 https://nytimes.com/live/2026/03/29/world/iran-war-trump-israel-oil/regional-officials-pakistan-meeting
-
-**Journey to the Moon ‘Starting to Feel Real’ for NASA’s Artemis II Crew**\
-`The four astronauts — three Americans and one Canadian — spoke from a prelaunch quarantine ahead of their scheduled Wednesday mission.`\
-https://nytimes.com/2026/03/29/science/nasa-astronauts-artemis-moon-launch.html
 
