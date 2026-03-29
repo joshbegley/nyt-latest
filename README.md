@@ -1,3 +1,7 @@
+**‘Is it worth it?’ - Verstappen giving thought to F1 future after 2026 season**\
+`Verstappen finished eighth in Sunday’s Japanese Grand Prix at Suzuka, crossing the line over 30 seconds behind race winner Kimi Antonelli.`\
+https://nytimes.com/athletic/7155355/2026/03/29/max-verstappen-f1-future-contract/
+
 **Women's Elite Eight power rankings: Who can make it to the Final Four?**\
 `Notre Dame's got the hardest road ahead, facing UConn on Sunday.`\
 https://nytimes.com/athletic/7155134/2026/03/29/womens-elite-eight-power-rankings/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/29/opinion/free-speech-social-media-court-ruling.htm
 **Pulisic vows to end scoring drought and revive USMNT fortunes before World Cup**\
 `The USA star has not scored for his country since 2024, or for AC Milan during 2026, but he maintains optimism`\
 https://nytimes.com/athletic/7154864/2026/03/29/christian-pulisic-usmnt-usa-pochettino-belgium-portugal-world-cup/
-
-**Arizona's breakthrough required less coaching, not more**\
-`The Wildcats outscored Purdue 48-26 during the final 20 minutes as belief slayed Arizona's Elite Eight demons.`\
-https://nytimes.com/athletic/7155216/2026/03/29/arizona-purdue-final-four-march-madness-tommy-lloyd/
 
