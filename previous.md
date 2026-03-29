@@ -1,40 +1,40 @@
-**How the Iran War Has Rippled Across the World**\
-`Deflated balloons? Pricier sugar? The fighting in the Middle East has played out across the world in sometimes surprising ways.`\
-https://nytimes.com/interactive/2026/03/29/world/middleeast/iran-war-global-impact-economy-fuel.html
+**Jannik Sinner arrives in Miami Open final on a mission, ready to say the quiet part out loud**\
+`Sinner missed three months of tennis last year under an anti-doping suspension. This year, he is making hay while the sun shines.`\
+https://nytimes.com/athletic/7153301/2026/03/29/tennis-jannik-sinner-season-atp-race/
 
-**Men's Elite Eight Sunday watch guide: Michigan vs. Tennessee, Duke vs. UConn**\
-`There are two more Final Four tickets left to punch. Here's what to know and when to tune in for Sunday's regional finals.`\
-https://nytimes.com/athletic/7152641/2026/03/29/march-madness-elite-eight-duke-uconn-michigan-tennessee/
+**How a Mistake Led to the Breakout Star of ‘Project Hail Mary’**\
+`Rocky was brought to life through a combination of puppetry and visual effects. But his charming personality was the result of a misunderstanding.`\
+https://nytimes.com/2026/03/29/movies/project-hail-mary-rocky-alien-voice.html
 
-**Japanese GP: Submit your questions for our F1 mailbag**\
-`What questions do you have for our F1 experts after F1's 2026 Japanese GP?`\
-https://nytimes.com/athletic/7155226/2026/03/29/kimi-antonelli-japanese-gp-mailbag/
+**5 Takeaways From the ‘No Kings’ Rallies as the Midterms Heat Up**\
+`The war in Iran was a galvanizing force, but plenty of protesters focused on President Trump’s immigration crackdown. Senate candidates in several key races joined the crowds.`\
+https://nytimes.com/2026/03/29/us/politics/no-kings-rallies-takeaways.html
 
-**The Air Canada Crash: Before and After the Frantic Call to ‘Stop, Stop, Stop’**\
-`How a cascade of seemingly minor events led to the worst runway disaster at LaGuardia Airport in decades.`\
-https://nytimes.com/2026/03/29/nyregion/laguardia-air-canada-crash-reconstruction.html
+**How Many Air Traffic Controllers Are Needed Overnight?**\
+`The accident at LaGuardia has raised questions about whether the minimum standard of two air traffic controllers on overnight shifts is sufficient.`\
+https://nytimes.com/2026/03/29/us/air-traffic-controllers-staffing.html
 
-**‘A Young Woman Opened the Door on the Other Side and Slid in Next to Me’**\
-`Sharing a cab with the catch of the day, where two friends met and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2026/03/29/nyregion/metropolitan-diary.html
+**How the French Soccer Team Outdressed the N.B.A.**\
+`A continent away, eclectic style draws the eye.`\
+https://nytimes.com/2026/03/29/style/france-men-national-team-fashion.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/03/29/crosswords/spelling-bee-forum.html
+**Trump’s Ballroom Design Has Barely Been Scrutinized**\
+`Fake windows and a stairway to nowhere: Three months that could change the White House for generations.`\
+https://nytimes.com/interactive/2026/03/29/upshot/white-house-ballroom.html
 
-**Kimi Antonelli makes history again, Oscar Piastri roars back: Japanese Grand Prix briefing**\
-`Antonelli, 19, wins the 2026 Japanese Grand Prix, becoming the youngest driver to lead the F1 world championship. `\
-https://nytimes.com/athletic/7155140/2026/03/29/japanese-grand-prix-briefing-kimi-antonelli/
+**Why the Iran War May Force Countries to Rely Less on Natural Gas**\
+`The U.S. and other exporters are poised for a windfall, but disruptions to Persian Gulf supplies are also pushing gas-buying countries to consider alternatives like coal, solar and nuclear energy.`\
+https://nytimes.com/2026/03/29/business/energy-environment/iran-war-natural-gas.html
 
-**Ollie Bearman suffers knee contusion during F1 crash at Japanese Grand Prix**\
-`The Haas driver avoided serious injury while trying to overtake Franco Colapinto on Sunday`\
-https://nytimes.com/athletic/7155193/2026/03/29/ollie-bearman-injury-crash-japanese-grand-prix-f1/
+**‘The Cult of Cesar’: Inside the Mountain Compound Led by Cesar Chavez**\
+`In his remote headquarters, the United Farm Workers leader began to see himself as not just a union leader, but a visionary healer.`\
+https://nytimes.com/2026/03/29/us/cesar-chavez-la-paz.html
 
-**Senegal, the AFCON trophy and a day of defiance: 'A people’s memory cannot be rewritten'**\
-`Senegal's players are in no mood to recognise the ruling that has stripped them of their second AFCON title`\
-https://nytimes.com/athletic/7154693/2026/03/29/senegal-afcon-trophy-paris/
+**These Stars Owned the Red Carpet This Season**\
+`Whether loud or quiet, formal or relaxed, the awards season attire of these eight individuals was surprising, delightful and worn with ease.`\
+https://nytimes.com/2026/03/29/style/red-carpet-fashion-awards-shows-2026.html
 
-**The science of the warm-up: From ridicule to RAMP, and the nightmare of losing a player to injury**\
-`Player warm-ups, whether for training or on matchday, have become part of the normal routine but there is technique behind making them work`\
-https://nytimes.com/athletic/7107686/2026/03/29/warm-up-football-science-ramp-injury/
+**He Was Supposed to Break Up Kraft and Heinz. He Changed His Mind.**\
+`Steve Cahillane, a food industry veteran, is trying to revive the company behind Kool-Aid, Oscar Mayer and many other brands.`\
+https://nytimes.com/2026/03/29/business/kraft-heinz-steve-cahillane.html
 
