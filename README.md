@@ -1,3 +1,11 @@
+**The Pulse: Answering your sports questions**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/7155056/2026/03/29/answering-your-sports-questions-plus-goodbye-to-the-cinderellas/
+
+**How the IronPigs made 'Rehab Ribs Night' happen in honor of Zack Wheeler**\
+`The IronPigs celebrated Wheeler's rehab start the only way they know how: with a quirky promo deal celebrating his surgically removed rib.`\
+https://nytimes.com/athletic/7154976/2026/03/29/ironpigs-phillies-zack-wheeler-rehab-rib-promotion-milb/
+
 **Inside Cubs' new deals: 'When you have a team like that, you want to invest in it'**\
 `"It's hard to try and re-create something good every year with a bunch of new pieces," Dansby Swanson said. "Continuity is huge."`\
 https://nytimes.com/athletic/7154587/2026/03/29/cubs-new-deals-bregman-hoerner-crow-armstrong/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7155134/2026/03/29/womens-elite-eight-power-ranking
 **First look at women's NCAA Tournament Elite Eight: What to know about every game**\
 `Will all four No. 1 seeds be back in the Final Four? Or will upsets prevail? `\
 https://nytimes.com/athletic/7155174/2026/03/29/ncaa-tournament-womens-elite-eight-breakdown-predictions/
-
-**Ruff? Quenneville? Bowness? Making the case for 8 Jack Adams Award contenders**\
-`In this tight season, almost half the league's coaches have an argument for winning the Jack Adams.`\
-https://nytimes.com/athletic/7149453/2026/03/29/jack-adams-coach-nhl-2026/
-
-**Phillies' lineup choices offers early insight into Thomson's approach**\
-`Even after the Rangers scratched Jacob deGrom for a left-hander, the Phillies kept Bryson Stott and Brandon Marsh in the starting lineup.`\
-https://nytimes.com/athletic/7154700/2026/03/29/phillies-thomson-lineup-approach-insights-mlb/
 
