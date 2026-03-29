@@ -1,3 +1,7 @@
+**Women's Elite Eight power rankings: Who can make it to the Final Four?**\
+`Notre Dame's got the hardest road ahead, facing UConn on Sunday.`\
+https://nytimes.com/athletic/7155134/2026/03/29/womens-elite-eight-power-rankings/
+
 **First look at women's NCAA Tournament Elite Eight: What to know about every game**\
 `Will all four No. 1 seeds be back in the Final Four? Or will upsets prevail? `\
 https://nytimes.com/athletic/7155174/2026/03/29/ncaa-tournament-womens-elite-eight-breakdown-predictions/
