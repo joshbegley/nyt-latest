@@ -19,7 +19,7 @@ https://nytimes.com/2026/03/29/nyregion/metropolitan-diary.html
 https://nytimes.com/2026/03/29/crosswords/spelling-bee-forum.html
 
 **Kimi Antonelli makes history again, Oscar Piastri roars back: Japanese Grand Prix briefing**\
-`Antonelli, 19, wins the Japanese Grand Prix, becoming the youngest driver to lead the world championship. `\
+`Antonelli, 19, wins the 2026 Japanese Grand Prix, becoming the youngest driver to lead the F1 world championship. `\
 https://nytimes.com/athletic/7155140/2026/03/29/japanese-grand-prix-briefing-kimi-antonelli/
 
 **Ollie Bearman suffers knee contusion during F1 crash at Japanese Grand Prix**\

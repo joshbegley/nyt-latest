@@ -1,3 +1,7 @@
+**Kimi Antonelli makes history again, Oscar Piastri roars back: Japanese Grand Prix briefing**\
+`Antonelli, 19, wins the 2026 Japanese Grand Prix, becoming the youngest driver to lead the F1 world championship. `\
+https://nytimes.com/athletic/7155140/2026/03/29/japanese-grand-prix-briefing-kimi-antonelli/
+
 **Men's Elite Eight Sunday watch guide: Michigan vs. Tennessee, Duke vs. UConn**\
 `There are two more Final Four tickets left to punch. Here's what to know and when to tune in for Sunday's regional finals.`\
 https://nytimes.com/athletic/7152641/2026/03/29/march-madness-elite-eight-duke-uconn-michigan-tennessee/
