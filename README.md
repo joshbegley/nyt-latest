@@ -1,3 +1,7 @@
+**Ollie Bearman suffers knee contusion during F1 crash at Japanese Grand Prix**\
+`The Haas driver avoided serious injury while trying to overtake Franco Colapinto on Sunday`\
+https://nytimes.com/athletic/7155193/2026/03/29/ollie-bearman-injury-crash-japanese-grand-prix-f1/
+
 **Senegal, the AFCON trophy and a day of defiance: 'A people’s memory cannot be rewritten'**\
 `Senegal's players are in no mood to recognise the ruling that has stripped them of their second AFCON title`\
 https://nytimes.com/athletic/7154693/2026/03/29/senegal-afcon-trophy-paris/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/29/world/iran-war-trump-israel-oil
 **Meet Brian Peat, the man behind more than 50 years' worth of Manchester United flags**\
 `Some of the creations of Peat, who is now in his 70s, have been on display recently at an unofficial museum near Old Trafford`\
 https://nytimes.com/athletic/7153625/2026/03/29/manchester-united-flags-brian-peat/
-
-**If the NHL playoffs started today: Projecting all 8 matchups and analyzing the teams**\
-`A handful of teams continue to jostle for playoff spots in the Eastern and Western Conferences, including teams just on the outside.`\
-https://nytimes.com/athletic/7128499/2026/03/29/nhl-playoffs-matchups-projections-2026/
 
