@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By Pranav Baskar, Helene Cooper and James C. McKinley Jr.`\
+https://nytimes.com/live/2026/03/29/world/iran-war-trump-israel-oil/heres-the-latest
+
 **Iran War Live Updates: Tehran Hit by Heavy Airstrikes as U.S. Marines Arrive in Middle East**\
 `Airstrikes pummel residential areas and a university in Iran’s capital. Houthi forces in Yemen entered the widening conflict with a missile attack on Israel.`\
 https://nytimes.com/live/2026/03/29/world/iran-war-trump-israel-oil
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7152020/2026/03/29/revieiwng-englands-world-cup-kit
 **Quote of the Day: On Iran’s Rugged Frontier, Kurds Yearn to Join the Fight**\
 `Quotation of the Day for Sunday, March 29, 2026.`\
 https://nytimes.com/2026/03/29/pageoneplus/quote-of-the-day-on-irans-rugged-frontier-kurds-yearn-to-join-the-fight.html
-
-**A Toothless Iran? Missile and Drone Strikes Show It Can Still Inflict Pain.**\
-`A wave of strikes across the Middle East in recent days shows that Iran has not lost the capacity to retaliate.`\
-https://nytimes.com/2026/03/29/world/middleeast/iran-missiles-war.html
 
