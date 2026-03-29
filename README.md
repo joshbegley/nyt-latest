@@ -1,3 +1,7 @@
+**Tottenham had to sack Tudor, but this shambles goes far beyond just him**\
+`Tottenham have sacked Tudor - but the club's crisis is not his fault`\
+https://nytimes.com/athletic/7107544/2026/03/29/tottenham-sack-igor-tudor-enic/
+
 **Young skill, maturity has Blues in a surprising spot: ‘It’s really elevated our team’**\
 `The Blues are over .500 (32-31-11) for the first time since Oct. 21 and just four points out of a playoff spot.`\
 https://nytimes.com/athletic/7154883/2026/03/29/blues-win-maple-leafs-thomas-snuggerud/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7155146/2026/03/29/padres-randy-vasquez-first-win/
 **Zubimendi becomes tenth Arsenal player to withdraw from international squad over break**\
 `On Saturday night, Bukayo Saka and Declan Rice both departed from the England camp and return to Arsenal for "medical assessment".`\
 https://nytimes.com/athletic/7155532/2026/03/29/hincapie-arsenal-injury-news-internationals/
-
-**How to watch Predators vs. Lightning: Time, TV, streaming**\
-`Find out how to watch the Nashville Predators play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7155585/2026/03/29/predators-vs-lightning-stream-how-to-watch-march-29/
 
