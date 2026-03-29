@@ -1,3 +1,11 @@
+**How to watch Kings vs. Nets: Time, TV, streaming**\
+`Find out how to watch the Sacramento Kings play the Brooklyn Nets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155807/2026/03/29/kings-vs-nets-stream-how-to-watch-march-29/
+
+**How to watch Wizards vs. Trail Blazers: Time, TV, streaming**\
+`Find out how to watch the Washington Wizards play the Portland Trail Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155803/2026/03/29/wizards-vs-trail-blazers-stream-how-to-watch-march-29/
+
 **How to watch Magic vs. Raptors: Time, TV, streaming**\
 `Find out how to watch the Orlando Magic play the Toronto Raptors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7155795/2026/03/29/magic-vs-raptors-stream-how-to-watch-march-29/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7154883/2026/03/29/blues-win-maple-leafs-thomas-snu
 **Igor Tudor to leave Tottenham after 44 days in charge**\
 `Tudor, who was appointed on February 14, took charge of seven games in total, managing only one win.`\
 https://nytimes.com/athletic/7083328/2026/03/29/igor-tudor-tottenham-leaves/
-
-**What’s next with Zion Williamson? Should James Borrego return as coach? Pelicans mailbag**\
-`Is there a sentiment among Pelicans fans that the current group deserves one more chance to become a winning team?`\
-https://nytimes.com/athletic/7155293/2026/03/29/pelicans-mailbag-zion-williamson-james-borrego-nba/
-
-**Rugby coach apologises for pushing and swearing at TV presenter during broadcast**\
-`Geoff Parling was angered after a ball kicked by a TNT Sports pundit landed nearer his Leicester Tigers players`\
-https://nytimes.com/athletic/7155639/2026/03/29/geoff-parling-tnt-sports-leicester/
 
