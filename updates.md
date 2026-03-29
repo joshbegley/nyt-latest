@@ -1,3 +1,7 @@
+**Giants are an easy puzzle for Yankees to solve in series sweep**\
+`The Giants didn't produce enough offense to overcome the two-run double that Ben Rice hit in the third inning and Aaron Judge's solo shot.`\
+https://nytimes.com/athletic/7155052/2026/03/29/giants-yankees-sweep-recap-patrick-bailey-vitello/
+
 **How to watch Tennessee vs. Michigan men's basketball: Elite Eight Time, TV, streaming**\
 `Find out how to watch the Tennessee Volunteers play the Michigan Wolverines, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7155425/2026/03/29/tennessee-vs-michigan-stream-how-to-watch-march-29/
