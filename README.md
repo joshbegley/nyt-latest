@@ -1,3 +1,7 @@
+**How to watch Duke vs. UCLA women's basketball: Elite Eight Time, TV, streaming**\
+`Find out how to watch the Duke Blue Devils play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155416/2026/03/29/duke-vs-ucla-stream-how-to-watch-march-29/
+
 **How to watch Rangers vs. Phillies: Time, TV, streaming for March 29**\
 `Find out how to watch the Texas Rangers play the Philadelphia Phillies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7155407/2026/03/29/rangers-vs-phillies-stream-how-to-watch-march-29/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7155393/2026/03/29/athletics-vs-blue-jays-stream-ho
 **How to watch Royals vs. Braves: Time, TV, streaming for March 29**\
 `Find out how to watch the Kansas City Royals play the Atlanta Braves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7155391/2026/03/29/royals-vs-braves-stream-how-to-watch-march-29/
-
-**How to watch Red Sox vs. Reds: Time, TV, streaming for March 29**\
-`Find out how to watch the Boston Red Sox play the Cincinnati Reds, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7155388/2026/03/29/red-sox-vs-reds-stream-how-to-watch-march-29/
 

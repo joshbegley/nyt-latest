@@ -1,40 +1,40 @@
-**The Pulse: Answering your sports questions**\
-`Welcome to The Pulse, The Athletic's daily newsletter.`\
-https://nytimes.com/athletic/7155056/2026/03/29/answering-your-sports-questions-plus-goodbye-to-the-cinderellas/
+**How to watch Rangers vs. Phillies: Time, TV, streaming for March 29**\
+`Find out how to watch the Texas Rangers play the Philadelphia Phillies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155407/2026/03/29/rangers-vs-phillies-stream-how-to-watch-march-29/
 
-**How the IronPigs made 'Rehab Ribs Night' happen in honor of Zack Wheeler**\
-`The IronPigs celebrated Wheeler's rehab start the only way they know how: with a quirky promo deal celebrating his surgically removed rib.`\
-https://nytimes.com/athletic/7154976/2026/03/29/ironpigs-phillies-zack-wheeler-rehab-rib-promotion-milb/
+**How to watch Nationals vs. Cubs: Time, TV, streaming for March 29**\
+`Find out how to watch the Washington Nationals play the Chicago Cubs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155405/2026/03/29/nationals-vs-cubs-stream-how-to-watch-march-29/
 
-**Inside Cubs' new deals: 'When you have a team like that, you want to invest in it'**\
-`"It's hard to try and re-create something good every year with a bunch of new pieces," Dansby Swanson said. "Continuity is huge."`\
-https://nytimes.com/athletic/7154587/2026/03/29/cubs-new-deals-bregman-hoerner-crow-armstrong/
+**How to watch White Sox vs. Brewers: Time, TV, streaming for March 29**\
+`Find out how to watch the Chicago White Sox play the Milwaukee Brewers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155403/2026/03/29/white-sox-vs-brewers-stream-how-to-watch-march-29/
 
-**UConn's Final four hopes rest on Alex Karaban, the rare 4-year starter steeped in NCAA success**\
-`Alex Karaban and Dan Hurley have different personalities but bond over their obsession with basketball.`\
-https://nytimes.com/athletic/7154814/2026/03/29/uconn-duke-march-madness-alex-karaban/
+**How to watch Rockies vs. Marlins: Time, TV, streaming for March 29**\
+`Find out how to watch the Colorado Rockies play the Miami Marlins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155401/2026/03/29/rockies-vs-marlins-stream-how-to-watch-march-29/
 
-**USA was outclassed but Belgium's Garcia says hosts were 'better than the result'**\
-`Ninth-ranked Belgium left Atlanta deservedly filled with confidence, but insisted the scoreline was harsh on the defeated USMNT`\
-https://nytimes.com/athletic/7154853/2026/03/29/belgium-usmnt-onana-doku-lukebakio-garcia/
+**How to watch Twins vs. Orioles: Time, TV, streaming for March 29**\
+`Find out how to watch the Minnesota Twins play the Baltimore Orioles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155399/2026/03/29/twins-vs-orioles-stream-how-to-watch-march-29/
 
-**George Gervin-Caleb Williams 'Iceman' beef shows why it's key to respect legends**\
-`Gervin has been known as the “Iceman” since his ABA debut in 1973. Former teammate Roland "Fatty" Taylor is credited with applying it.`\
-https://nytimes.com/athletic/7154503/2026/03/29/george-gervin-caleb-williams-iceman-trademark-dispute/
+**How to watch Rays vs. Cardinals: Time, TV, streaming for March 29**\
+`Find out how to watch the Tampa Bay Rays play the St. Louis Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155397/2026/03/29/rays-vs-cardinals-stream-how-to-watch-march-29/
 
-**The 76ers' big three finally resembled peak form on Saturday. Can it be sustained?**\
-`When the 76ers arguably had to have it the most, their much-maligned big three finally showed its tantalizing potential.`\
-https://nytimes.com/athletic/7154969/2026/03/29/sixers-big-three-embiid-maxey-george-nba/
+**How to watch Pirates vs. Mets: Time, TV, streaming for March 29**\
+`Find out how to watch the Pittsburgh Pirates play the New York Mets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155395/2026/03/29/pirates-vs-mets-stream-how-to-watch-march-29/
 
-**‘Is it worth it?’ - Verstappen giving thought to F1 future after 2026 season**\
-`Verstappen finished eighth in Sunday’s Japanese Grand Prix at Suzuka, crossing the line over 30 seconds behind race winner Kimi Antonelli.`\
-https://nytimes.com/athletic/7155355/2026/03/29/max-verstappen-f1-future-contract/
+**How to watch Athletics vs. Blue Jays: Time, TV, streaming for March 29**\
+`Find out how to watch the Athletics play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155393/2026/03/29/athletics-vs-blue-jays-stream-how-to-watch-march-29/
 
-**Women's Elite Eight power rankings: Who can make it to the Final Four?**\
-`Notre Dame's got the hardest road ahead, facing UConn on Sunday.`\
-https://nytimes.com/athletic/7155134/2026/03/29/womens-elite-eight-power-rankings/
+**How to watch Royals vs. Braves: Time, TV, streaming for March 29**\
+`Find out how to watch the Kansas City Royals play the Atlanta Braves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155391/2026/03/29/royals-vs-braves-stream-how-to-watch-march-29/
 
-**First look at women's NCAA Tournament Elite Eight: What to know about every game**\
-`Will all four No. 1 seeds be back in the Final Four? Or will upsets prevail? `\
-https://nytimes.com/athletic/7155174/2026/03/29/ncaa-tournament-womens-elite-eight-breakdown-predictions/
+**How to watch Red Sox vs. Reds: Time, TV, streaming for March 29**\
+`Find out how to watch the Boston Red Sox play the Cincinnati Reds, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155388/2026/03/29/red-sox-vs-reds-stream-how-to-watch-march-29/
 
