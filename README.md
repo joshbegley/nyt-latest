@@ -1,3 +1,11 @@
+**Three in four Premier League fans want VAR scrapped, new survey finds**\
+`The latest FSA survey also found that nine out of ten Premier League fans believe VAR has made football less enjoyable.`\
+https://nytimes.com/athletic/7156023/2026/03/29/premier-league-fans-var-fsa-survey/
+
+**Gary Woodland wins for first time since 2019, weeks after PTSD diagnosis revealed**\
+`The 2019 U.S. Open champion was diagnosed a year ago but didn't reveal what he was enduring until recently.`\
+https://nytimes.com/athletic/7156479/2026/03/29/golf-pga-gary-woodland-win-surgery-ptsd/
+
 **Mamdani and Curtis Sliwa Performed a Skit. N.Y. Republicans Are Livid.**\
 `Mayor Zohran Mamdani and his former Republican opponent recorded a skit on cat adoption for the Inner Circle, an annual press corps roast. Some politicians weren’t laughing.`\
 https://nytimes.com/2026/03/29/nyregion/mamdani-sliwa-skit-ny-republicans.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/29/business/media/politico-editor-jonathan-greenberg
 **Olympian Caster Semenya criticizes IOC's renewed transgender athlete ban**\
 `Semenya spent seven years locked in court battles over various sex eligibility policies, and says the IOC rules disrespect women.`\
 https://nytimes.com/athletic/7156266/2026/03/29/ioc-transgender-ban-caster-semenya-reaction/
-
-**The revamped Azteca still has the grandeur of old. But this was a night marked by tragedy**\
-`Mexico's famous stadium has been updated ahead of the World Cup, but the death of a supporter overshadowed its reopening`\
-https://nytimes.com/athletic/7156355/2026/03/29/mexico-city-azteca-world-cup/
-
-**One of MLB’s hottest starts in 65 years belongs to a player who barely made the Nationals**\
-`The National League MVP frontrunner is just the third player since 1961 to reach base on each of his first 8 plate appearances of the year`\
-https://nytimes.com/athletic/7156369/2026/03/29/nationals-joey-wiemer-hot-start/
 
