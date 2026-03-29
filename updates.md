@@ -1,3 +1,7 @@
+**‘Is it worth it?’ - Verstappen giving thought to F1 future after 2026 season**\
+`Verstappen finished eighth in Sunday’s Japanese Grand Prix at Suzuka, crossing the line over 30 seconds behind race winner Kimi Antonelli.`\
+https://nytimes.com/athletic/7155355/2026/03/29/max-verstappen-f1-future-contract/
+
 **Women's Elite Eight power rankings: Who can make it to the Final Four?**\
 `Notre Dame's got the hardest road ahead, facing UConn on Sunday.`\
 https://nytimes.com/athletic/7155134/2026/03/29/womens-elite-eight-power-rankings/
