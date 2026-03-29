@@ -1,3 +1,11 @@
+**How to watch Notre Dame vs. UConn women's basketball: Elite Eight Time, TV, streaming**\
+`Find out how to watch the Notre Dame Fighting Irish play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155312/2026/03/29/notre-dame-vs-uconn-stream-how-to-watch-march-29/
+
+**The New York Times International Edition in Print for Monday, March 30, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/03/29/todays-new-york-times-international-edition
+
 **How to watch Panthers vs. Rangers: Time, TV, streaming**\
 `Find out how to watch the Florida Panthers play the New York Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7155305/2026/03/29/panthers-vs-rangers-stream-how-to-watch-march-29/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2026/03/29/upshot/white-house-ballroom.html
 **Why the Iran War May Force Countries to Rely Less on Natural Gas**\
 `The U.S. and other exporters are poised for a windfall, but disruptions to Persian Gulf supplies are also pushing gas-buying countries to consider alternatives like coal, solar and nuclear energy.`\
 https://nytimes.com/2026/03/29/business/energy-environment/iran-war-natural-gas.html
-
-**‘The Cult of Cesar’: Inside the Mountain Compound Led by Cesar Chavez**\
-`In his remote headquarters, the United Farm Workers leader began to see himself as not just a union leader, but a visionary healer.`\
-https://nytimes.com/2026/03/29/us/cesar-chavez-la-paz.html
-
-**These Stars Owned the Red Carpet This Season**\
-`Whether loud or quiet, formal or relaxed, the awards season attire of these eight individuals was surprising, delightful and worn with ease.`\
-https://nytimes.com/2026/03/29/style/red-carpet-fashion-awards-shows-2026.html
 

@@ -1,3 +1,11 @@
+**How to watch Notre Dame vs. UConn women's basketball: Elite Eight Time, TV, streaming**\
+`Find out how to watch the Notre Dame Fighting Irish play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155312/2026/03/29/notre-dame-vs-uconn-stream-how-to-watch-march-29/
+
+**The New York Times International Edition in Print for Monday, March 30, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/03/29/todays-new-york-times-international-edition
+
 **How to watch Panthers vs. Rangers: Time, TV, streaming**\
 `Find out how to watch the Florida Panthers play the New York Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7155305/2026/03/29/panthers-vs-rangers-stream-how-to-watch-march-29/
