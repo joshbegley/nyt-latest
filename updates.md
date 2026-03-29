@@ -1,3 +1,15 @@
+**Golden Knights fire Bruce Cassidy, hire John Tortorella**\
+`Cassidy coached Vegas to a Stanley Cup championship in 2023, but the Knights have lost 12 of 16, putting their playoff hopes in peril.`\
+https://nytimes.com/athletic/7156400/2026/03/29/golden-knights-fire-bruce-cassidy-hire-john-tortorella/
+
+**Aaron Glenn affirms Geno Smith will be Jets' starting quarterback**\
+`The New York Jets acquired Geno Smith from the Las Vegas Raiders in a trade earlier this month.`\
+https://nytimes.com/athletic/7156315/2026/03/29/aaron-glenn-geno-smith-jets-qb/
+
+**Why Steve Kerr wrote that handwritten letter to Blue Jays manager John Schneider**\
+`The Warriors coach estimates he’s written at least seven supportive notes to coaches he admires across multiple sports. `\
+https://nytimes.com/athletic/7156351/2026/03/29/steve-kerr-letter-john-schneider-blue-jays-warriors/
+
 **Michigan mauls Tennessee, completing cruise to first Final Four since 2018**\
 `Michigan clamped down during a 21-0 first-half run on the way to the largest margin of victory in any men's regional final since 1989.`\
 https://nytimes.com/athletic/7156184/2026/03/29/michigan-mauls-tennessee-completing-white-hot-march-with-first-final-four-trip-since-2018/
