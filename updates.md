@@ -1,3 +1,7 @@
+**UConn advances to 25th Final Four with win over Notre Dame**\
+`Blanca Quiñonez scored 20 points, while Azzi Fudd and Sarah Strong combined for 34 points.`\
+https://nytimes.com/athletic/7156267/2026/03/29/uconn-notre-dame-final-four-womens-basketball/
+
 **NFL tells teams not to publicly comment on CBA negotiations with officials**\
 `The NFL's competition committee will be presenting two proposals involving officials. `\
 https://nytimes.com/athletic/7156132/2026/03/29/nfl-teams-cba-negotiations-officials/
