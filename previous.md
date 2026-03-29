@@ -1,3 +1,7 @@
+**NFL tells teams not to publicly comment on CBA negotiations with officials**\
+`The NFL's competition committee will be presenting two proposals involving officials. `\
+https://nytimes.com/athletic/7156132/2026/03/29/nfl-teams-cba-negotiations-officials/
+
 **How to watch Warriors vs. Nuggets: Time, TV, streaming**\
 `Find out how to watch the Golden State Warriors play the Denver Nuggets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7156248/2026/03/29/warriors-vs-nuggets-stream-how-to-watch-march-29/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/29/world/iran-war-trump-israel-oil/regional-off
 **Journey to the Moon ‘Starting to Feel Real’ for NASA’s Artemis II Crew**\
 `The four astronauts — three Americans and one Canadian — spoke from a prelaunch quarantine ahead of their scheduled Wednesday mission.`\
 https://nytimes.com/2026/03/29/science/nasa-astronauts-artemis-moon-launch.html
-
-**Verstappen's retirement threat feels shocking. But we shouldn't be surprised**\
-`The Dutch driver would not be the first high-achieving prodigy to walk away early from the sport that has been their life`\
-https://nytimes.com/athletic/7155999/2026/03/29/max-verstappen-f1-retirement-threat/
 

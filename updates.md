@@ -1,3 +1,7 @@
+**NFL tells teams not to publicly comment on CBA negotiations with officials**\
+`The NFL's competition committee will be presenting two proposals involving officials. `\
+https://nytimes.com/athletic/7156132/2026/03/29/nfl-teams-cba-negotiations-officials/
+
 **How to watch Warriors vs. Nuggets: Time, TV, streaming**\
 `Find out how to watch the Golden State Warriors play the Denver Nuggets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7156248/2026/03/29/warriors-vs-nuggets-stream-how-to-watch-march-29/
