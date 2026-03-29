@@ -1,3 +1,7 @@
+**Twins' hard-won first victory punctuated by Royce Lewis' 2-run homer, stolen base**\
+`Nothing was easy about the Twins' first win of the season, but their gritty effort earned them the victory.`\
+https://nytimes.com/athletic/7154742/2026/03/28/twins-first-victory-2026-royce-lewis/
+
 **Timberwolves prep for Anthony Edwards' return after latest slide down West standings**\
 `All signs are pointing to Edwards returning Monday in Dallas, giving the Timberwolves a needed jolt as the playoffs near.`\
 https://nytimes.com/athletic/7154740/2026/03/28/timberwolves-anthony-edwards-return-lineup-nba/
