@@ -6,8 +6,8 @@ https://nytimes.com/athletic/7154693/2026/03/29/senegal-afcon-trophy-paris/
 `Player warm-ups, whether for training or on matchday, have become part of the normal routine but there is technique behind making them work`\
 https://nytimes.com/athletic/7107686/2026/03/29/warm-up-football-science-ramp-injury/
 
-**Marshall McLuhan Was Right About Claude, Too**\
-`A.I. will reshape us. It is already reshaping us.`\
+**I Saw Something New in San Francisco**\
+`Marshall McLuhan was right about Claude, too.`\
 https://nytimes.com/2026/03/29/opinion/ai-claude-chatgpt-gemini-mcluhan.html
 
 **The New York Times in Print for Sunday, March 29, 2026**\
