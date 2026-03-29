@@ -1,3 +1,7 @@
+**Israel’s military posted two images of Ali Choeib in what it said was a Hezbollah uniform. One was fake.**\
+`The`\
+https://nytimes.com/live/2026/03/29/world/iran-war-trump-israel-oil/israels-military-posted-two-images-of-ali-choeib-in-what-it-said-was-a-hezbollah-uniform-one-was-fake
+
 **Purdue bucked modern college hoops trends with a senior class like no other. What's next?**\
 `Purdue combined consistent winning with NCAA Tournament heartbreak over the past four years. What will Matt Painter do next?`\
 https://nytimes.com/athletic/7156027/2026/03/29/purdue-basketball-seniors-ncaa-tournament-arizona/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7156037/2026/03/29/knicks-vs-thunder-stream-how-to-
 **Hundreds Gather for Funeral of 3 Lebanese Killed in Israeli Strike**\
 `Israel said one of those killed was a member of Hezbollah’s military wing “disguised as a journalist.” Lebanon’s president said all three were journalists and condemned the killings.`\
 https://nytimes.com/2026/03/29/world/middleeast/funerals-lebanese-killed-israeli-strike.html
-
-**ICE May Remain at Airports Even After T.S.A. Pay Resumes, Border Czar Says**\
-`Transportation safety officers are set to be paid on Monday, but Tom Homan, the White House’s border czar, said ICE agents may stay where there are shortages.`\
-https://nytimes.com/2026/03/29/us/ice-tsa-airports-homan-trump-shutdown.html
 
