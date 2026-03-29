@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By Pranav Baskar, Helene Cooper and James C. McKinley Jr.`\
+https://nytimes.com/live/2026/03/29/world/iran-war-trump-israel-oil/heres-the-latest
+
 **Iran War Live Updates: Tehran Hit by Heavy Airstrikes as U.S. Marines Arrive in Middle East**\
 `Airstrikes pummel residential areas and a university in Iran’s capital. Houthi forces in Yemen entered the widening conflict with a missile attack on Israel.`\
 https://nytimes.com/live/2026/03/29/world/iran-war-trump-israel-oil
