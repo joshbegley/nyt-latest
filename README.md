@@ -1,3 +1,7 @@
+**Struggling Magic yield 31-0 run to Raptors as season-ending slide continues**\
+`In a game among two teams in the morass of East teams seeded between fifth and 10th, the Raptors hung a 31-0 run on the Magic.`\
+https://nytimes.com/athletic/7156620/2026/03/29/nba-magic-raptors-game-turnover-starters-season/
+
 **Here’s What Happened in the War in the Middle East on Sunday**\
 `Diplomats from around the region met in Pakistan, and the U.S.-Israeli bombardment hit a southern Iranian port, killing at least five people, Iranian state media said.`\
 https://nytimes.com/2026/03/29/world/middleeast/iran-israel-united-states-war-recap.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/29/obituaries/nicholas-haysom-dead.html
 **UCLA headed back to Final Four after comeback against Duke**\
 `UCLA made crucial halftime adjustments to get Lauren Betts more involved. It paid off.`\
 https://nytimes.com/athletic/7156499/2026/03/29/ucla-final-four-duke/
-
-**Regrettably Unfortunate**\
-`It’s smooth sailing through Gary Cee’s Monday puzzle.`\
-https://nytimes.com/2026/03/29/crosswords/daily-puzzle-2026-03-30.html
 
