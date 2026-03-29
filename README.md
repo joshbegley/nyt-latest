@@ -1,10 +1,14 @@
+**49ers' tests indicate Levi's Stadium substation issue a 'nothing burger'**\
+`GM John Lynch said they tested practice fields, weight room, cafeteria, locker room, meetings rooms — anywhere players go — for exposure.`\
+https://nytimes.com/athletic/7156270/2026/03/29/49ers-john-lynch-substation-investigation-results/
+
 **Impostor posed as All-Pro safety Xavier McKinney to steal over $4 million, lawsuit alleges**\
 `Aliya Sports Finance Fund filed a lawsuit against Sure Sports alleging negligence.`\
 https://nytimes.com/athletic/7156162/2026/03/29/scam-xavier-mckinney-packers-lawsuit/
 
 **As Gas Prices Approach $4 a Gallon, Americans Rethink Vacations**\
 `Already pinched by the high costs of living, some families have modified how they plan to travel by road and air as the Iran war pushes gas and oil prices higher.`\
-https://nytimes.com/2026/03/29/us/as-gas-prices-approach-4-a-gallon-americans-rethink-vacations.html
+https://nytimes.com/2026/03/29/us/gas-prices-american-vacations.html
 
 **A favorite NCAA Tournament pastime for players? Reading**\
 `Reading for leisure is a way some players escape some of the pressures of March Madness.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7156267/2026/03/29/uconn-notre-dame-final-four-wome
 **NFL tells teams not to publicly comment on CBA negotiations with officials**\
 `The NFL's competition committee will be presenting two proposals involving officials. `\
 https://nytimes.com/athletic/7156132/2026/03/29/nfl-teams-cba-negotiations-officials/
-
-**How to watch Warriors vs. Nuggets: Time, TV, streaming**\
-`Find out how to watch the Golden State Warriors play the Denver Nuggets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7156248/2026/03/29/warriors-vs-nuggets-stream-how-to-watch-march-29/
 
