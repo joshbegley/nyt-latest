@@ -1,3 +1,11 @@
+**‘No Kings’ Protesters Rally From Coast to Coast**\
+`More than 3,000 demonstrations were planned in the United States on Saturday as part of the “No Kings” movement. Protesters held signs condemning the war in Iran and immigration raids.`\
+https://nytimes.com/video/world/100000010808444/no-kings-protesters-rally-from-coast-to-coast.html
+
+**Amid frustrating stretch for Wild, Kirill Kaprizov needs to be 'better': Takeaways**\
+`The Wild squandered a chance to clinch a playoff berth, losing 6-3 to the Bruins on Saturday.`\
+https://nytimes.com/athletic/7154717/2026/03/28/wild-kirill-kaprizov-takeaways-nhl-playoffs/
+
 **Illinois outlasts Iowa to advance to first Final Four since 2005**\
 `The Illini dominated the Hawkeyes on the glass and took over a game Iowa led at halftime.`\
 https://nytimes.com/athletic/7154541/2026/03/28/illinois-iowa-score-result-takeaways-march-madness/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7154532/2026/03/28/usa-usmnt-pochettino-belgium-pai
 **Astronaut’s Condition That Led to Space Station Evacuation Remains a Mystery**\
 `The astronaut, Michael Fincke, experienced a medical emergency in January that rendered him unable to speak, he said.`\
 https://nytimes.com/2026/03/28/science/space/nasa-astronaut-medical-evaluation.html
-
-**Here’s What Happened in the War in the Middle East on Saturday**\
-`The war with Iran escalated on Saturday as the Iran-allied Houthis joined the conflict and Israel bombarded Tehran with airstrikes.`\
-https://nytimes.com/2026/03/28/world/middleeast/iran-israel-united-states-war-recap.html
-
-**NBA suspends Luka Dončić for 1 game due to 16th technical foul of season**\
-`NBA rules require players to serve one-game suspensions after their 16th technical foul of the season.`\
-https://nytimes.com/athletic/7154431/2026/03/28/luka-doncic-suspension-technical-foul-lakers/
 
