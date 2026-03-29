@@ -1,3 +1,11 @@
+**Providence College's Duncan Powell arrested for alleged disorderly conduct**\
+`In February, the Big East suspended Powell for three games following a hard foul on St. John's forward Bryce Hopkins.`\
+https://nytimes.com/athletic/7156475/2026/03/29/providence-colleges-duncan-powell-arrested/
+
+**Bernie Sanders, in the Bronx, Presses Hochul to Tax the Rich**\
+`Senator Bernie Sanders, speaking at a rally, backed Mayor Zohran Mamdani’s effort to pressure Gov. Kathy Hochul to raise taxes on millionaires. The mayor was not present.`\
+https://nytimes.com/2026/03/29/nyregion/bernie-sanders-tax-the-rich-rally.html
+
 **Nicholas Haysom, Apartheid Foe Who Became a U.N. Peacemaker, Dies at 73**\
 `As an anti-apartheid lawyer, he was jailed several times. Later, he was a top adviser to Nelson Mandela and held key posts at the United Nations.`\
 https://nytimes.com/2026/03/29/obituaries/nicholas-haysom-dead.html
