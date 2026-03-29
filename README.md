@@ -1,3 +1,19 @@
+**How to watch Clippers vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Clippers play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155516/2026/03/29/clippers-vs-bucks-stream-how-to-watch-march-29/
+
+**How to watch Heat vs. Pacers: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Indiana Pacers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155514/2026/03/29/heat-vs-pacers-stream-how-to-watch-march-29/
+
+**The Death Penalty’s Invisible Wounds**\
+`Readers respond to an editorial about the death penalty. Also: The benefits of small talk; calling all teenagers.`\
+https://nytimes.com/2026/03/29/opinion/death-penalty.html
+
+**Whatever Your Chatbot Is Saying, It Isn’t Therapy**\
+`Patients are turning to A.I. chatbots for therapy — and the chatbots are fueling their worst impulses.`\
+https://nytimes.com/2026/03/29/opinion/chatbot-therapy-ai.html
+
 **Pistons, despite injuries, maintaining defensive intensity: 'Stick to the script'**\
 `Detroit's defensive rating during its last six games without All-Star Cade Cunningham ranks second in the NBA.`\
 https://nytimes.com/athletic/7154797/2026/03/29/pistons-defense-nba-cade-cunningham/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/29/briefing/confronting-the-chaos.html
 **Kimi Antonelli's Suzuka win was more than luck. It proved his title chances are real**\
 `Antonelli's speed and execution across the Suzuka weekend was really impressive`\
 https://nytimes.com/athletic/7155344/2026/03/29/kimi-antonelli-japanese-gp-win-f1-world-title-mercedes/
-
-**Faith in Fandoms**\
-`We’re looking at the religious impulses in the manosphere and pop groups.`\
-https://nytimes.com/2026/03/29/briefing/andrew-tate-katseye.html
-
-**'This is where I belong;' World's Fastest Man Noah Lyles on love, legacy, and lifting track to new heights**\
-`Lyles believes track athletes can reach the same heights as stars in the Big Four sports, despite long gaps between high-profile events.`\
-https://nytimes.com/athletic/7151913/2026/03/29/noah-lyles-interview-athletic-show-paris-olympics/
-
-**How to watch Duke vs. UCLA women's basketball: Elite Eight Time, TV, streaming**\
-`Find out how to watch the Duke Blue Devils play the UCLA Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7155416/2026/03/29/duke-vs-ucla-stream-how-to-watch-march-29/
-
-**How to watch Rangers vs. Phillies: Time, TV, streaming for March 29**\
-`Find out how to watch the Texas Rangers play the Philadelphia Phillies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7155407/2026/03/29/rangers-vs-phillies-stream-how-to-watch-march-29/
 
