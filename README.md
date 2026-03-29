@@ -1,3 +1,11 @@
+**How to watch UConn vs. Duke men's basketball: Elite Eight Time, TV, streaming**\
+`Find out how to watch the UConn Huskies play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155647/2026/03/29/uconn-vs-duke-stream-how-to-watch-march-29/
+
+**Randy Vásquez takes matters into his own hands in Padres' first win of the season**\
+`Vásquez showed off his improved velocity and what he's learned under the tutelage of Yu Darvish in helping San Diego beat the Tigers.`\
+https://nytimes.com/athletic/7155146/2026/03/29/padres-randy-vasquez-first-win/
+
 **Hincapie becomes ninth Arsenal player to withdraw from international squad over break**\
 `On Saturday night, Bukayo Saka and Declan Rice both departed from the England camp and return to Arsenal for "medical assessment".`\
 https://nytimes.com/athletic/7155532/2026/03/29/hincapie-arsenal-injury-news-internationals/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7155516/2026/03/29/clippers-vs-bucks-stream-how-to-
 **How to watch Heat vs. Pacers: Time, TV, streaming**\
 `Find out how to watch the Miami Heat play the Indiana Pacers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7155514/2026/03/29/heat-vs-pacers-stream-how-to-watch-march-29/
-
-**The Death Penalty’s Invisible Wounds**\
-`Readers respond to an editorial about the death penalty. Also: The benefits of small talk; calling all teenagers.`\
-https://nytimes.com/2026/03/29/opinion/death-penalty.html
-
-**Whatever Your Chatbot Is Saying, It Isn’t Therapy**\
-`Patients are turning to A.I. chatbots for therapy — and the chatbots are fueling their worst impulses.`\
-https://nytimes.com/2026/03/29/opinion/chatbot-therapy-ai.html
 
