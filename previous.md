@@ -1,3 +1,7 @@
+**Illinois outlasts Iowa to advance to first Final Four since 2005**\
+`The Illini dominated the Hawkeyes on the glass and took over a game Iowa led at halftime.`\
+https://nytimes.com/athletic/7154541/2026/03/28/illinois-iowa-score-result-takeaways-march-madness/
+
 **Tom Brady's surprise shoutout thrills Yankees' Cam Schlittler**\
 `Schlittler, who grew up as a Boston fan, received a social media shoutout from Brady, who spotted the righty wearing his card company's hat.`\
 https://nytimes.com/athletic/7154588/2026/03/28/tom-brady-cam-schlittler-instagram-shoutout/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/28/world/middleeast/iran-israel-united-states-war-re
 **NBA suspends Luka Dončić for 1 game due to 16th technical foul of season**\
 `NBA rules require players to serve one-game suspensions after their 16th technical foul of the season.`\
 https://nytimes.com/athletic/7154431/2026/03/28/luka-doncic-suspension-technical-foul-lakers/
-
-**Roundabouts**\
-`Michael and Oliver Schlossberg’s puzzle will drive you crazy.`\
-https://nytimes.com/2026/03/28/crosswords/daily-puzzle-2026-03-29.html
 

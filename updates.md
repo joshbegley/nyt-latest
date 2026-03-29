@@ -1,3 +1,7 @@
+**Illinois outlasts Iowa to advance to first Final Four since 2005**\
+`The Illini dominated the Hawkeyes on the glass and took over a game Iowa led at halftime.`\
+https://nytimes.com/athletic/7154541/2026/03/28/illinois-iowa-score-result-takeaways-march-madness/
+
 **Tom Brady's surprise shoutout thrills Yankees' Cam Schlittler**\
 `Schlittler, who grew up as a Boston fan, received a social media shoutout from Brady, who spotted the righty wearing his card company's hat.`\
 https://nytimes.com/athletic/7154588/2026/03/28/tom-brady-cam-schlittler-instagram-shoutout/
