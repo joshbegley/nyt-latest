@@ -1,3 +1,11 @@
+**The Pulse: Answering your sports questions**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/7155056/2026/03/29/answering-your-sports-questions-plus-goodbye-to-the-cinderellas/
+
+**How the IronPigs made 'Rehab Ribs Night' happen in honor of Zack Wheeler**\
+`The IronPigs celebrated Wheeler's rehab start the only way they know how: with a quirky promo deal celebrating his surgically removed rib.`\
+https://nytimes.com/athletic/7154976/2026/03/29/ironpigs-phillies-zack-wheeler-rehab-rib-promotion-milb/
+
 **Inside Cubs' new deals: 'When you have a team like that, you want to invest in it'**\
 `"It's hard to try and re-create something good every year with a bunch of new pieces," Dansby Swanson said. "Continuity is huge."`\
 https://nytimes.com/athletic/7154587/2026/03/29/cubs-new-deals-bregman-hoerner-crow-armstrong/
