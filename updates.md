@@ -1,3 +1,15 @@
+**Impostor posed as All-Pro safety Xavier McKinney to steal over $4 million, lawsuit alleges**\
+`Aliya Sports Finance Fund filed a lawsuit against Sure Sports alleging negligence.`\
+https://nytimes.com/athletic/7156162/2026/03/29/scam-xavier-mckinney-packers-lawsuit/
+
+**As Gas Prices Approach $4 a Gallon, Americans Rethink Vacations**\
+`Already pinched by the high costs of living, some families have modified how they plan to travel by road and air as the Iran war pushes gas and oil prices higher.`\
+https://nytimes.com/2026/03/29/us/as-gas-prices-approach-4-a-gallon-americans-rethink-vacations.html
+
+**A favorite NCAA Tournament pastime for players? Reading**\
+`Reading for leisure is a way some players escape some of the pressures of March Madness.`\
+https://nytimes.com/athletic/7154432/2026/03/29/womens-ncaa-tournament-reading-books/
+
 **Australian Sky Turns an Apocalyptic Blood Red**\
 `Winds from Tropical Cyclone Narelle stirred up rust-colored dust from iron-rich soil, tinging the sky over Western Australia with a reddish Mars-like hue.`\
 https://nytimes.com/2026/03/29/world/australia/australia-red-sky-tropical-cyclone.html

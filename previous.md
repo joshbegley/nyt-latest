@@ -1,3 +1,15 @@
+**Impostor posed as All-Pro safety Xavier McKinney to steal over $4 million, lawsuit alleges**\
+`Aliya Sports Finance Fund filed a lawsuit against Sure Sports alleging negligence.`\
+https://nytimes.com/athletic/7156162/2026/03/29/scam-xavier-mckinney-packers-lawsuit/
+
+**As Gas Prices Approach $4 a Gallon, Americans Rethink Vacations**\
+`Already pinched by the high costs of living, some families have modified how they plan to travel by road and air as the Iran war pushes gas and oil prices higher.`\
+https://nytimes.com/2026/03/29/us/as-gas-prices-approach-4-a-gallon-americans-rethink-vacations.html
+
+**A favorite NCAA Tournament pastime for players? Reading**\
+`Reading for leisure is a way some players escape some of the pressures of March Madness.`\
+https://nytimes.com/athletic/7154432/2026/03/29/womens-ncaa-tournament-reading-books/
+
 **Australian Sky Turns an Apocalyptic Blood Red**\
 `Winds from Tropical Cyclone Narelle stirred up rust-colored dust from iron-rich soil, tinging the sky over Western Australia with a reddish Mars-like hue.`\
 https://nytimes.com/2026/03/29/world/australia/australia-red-sky-tropical-cyclone.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7156132/2026/03/29/nfl-teams-cba-negotiations-offic
 **How to watch Warriors vs. Nuggets: Time, TV, streaming**\
 `Find out how to watch the Golden State Warriors play the Denver Nuggets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7156248/2026/03/29/warriors-vs-nuggets-stream-how-to-watch-march-29/
-
-**New Political Group to Push Trump’s A.I. Agenda in Midterms**\
-`The group, Innovation Council Action, says it plans to spend at least $100 million. It will be led by a former administration official.`\
-https://nytimes.com/2026/03/29/business/trump-artificial-intelligence-pac-midterms.html
-
-**Joey Browner, a 6-time Pro Bowler with the Vikings, dies at age 65**\
-`Browner, a member of the Vikings' Ring of Honor, played for Minnesota from 1983 through 1991 after being a first-round draft pick.`\
-https://nytimes.com/athletic/7156155/2026/03/29/joey-browner-vikings-obit-pro-bowl/
-
-**Eric Overmyer, Who Wrote for Modern Television Classics, Dies at 74**\
-`Trained as a playwright, he got his first TV writing job on “St. Elsewhere,” then worked on “Homicide: Life on the Street,” “The Wire,” “Treme” and “Bosch.”`\
-https://nytimes.com/2026/03/29/arts/television/eric-overmyer-dead.html
 
