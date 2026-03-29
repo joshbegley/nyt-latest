@@ -1,3 +1,15 @@
+**Mets fans are booing Bo Bichette and he gets it: 'I thought my at-bats were terrible'**\
+`Bichette’s failures to cash in with runners on base contributed to a lackluster loss to the Pirates. `\
+https://nytimes.com/athletic/7156564/2026/03/29/mets-bo-bichette-boos-strikeouts/
+
+**Three in four Premier League fans want VAR scrapped, new survey finds**\
+`The latest FSA survey also found that nine out of ten Premier League fans believe VAR has made football less enjoyable.`\
+https://nytimes.com/athletic/7156023/2026/03/29/premier-league-fans-var-fsa-survey/
+
+**Gary Woodland wins for first time since 2019, weeks after PTSD diagnosis revealed**\
+`The 2019 U.S. Open champion was diagnosed a year ago but didn't reveal what he was enduring until recently.`\
+https://nytimes.com/athletic/7156479/2026/03/29/golf-pga-gary-woodland-win-surgery-ptsd/
+
 **Mamdani and Curtis Sliwa Performed a Skit. N.Y. Republicans Are Livid.**\
 `Mayor Zohran Mamdani and his former Republican opponent recorded a skit on cat adoption for the Inner Circle, an annual press corps roast. Some politicians weren’t laughing.`\
 https://nytimes.com/2026/03/29/nyregion/mamdani-sliwa-skit-ny-republicans.html
