@@ -1,3 +1,15 @@
+**Ukko-Pekka Luukkonen helps Sabres escape with badly needed win: 3 thoughts**\
+`It took a two-goal comeback, a hard-fought overtime and a shootout, but the Sabres managed to come from behind and beat the Kraken 3-2.`\
+https://nytimes.com/athletic/7154880/2026/03/28/sabres-kraken-ukko-pekka-luukkonen-nhl-playoffs/
+
+**Koa Peat elevates Arizona past Purdue to end 25-year Final Four drought**\
+`Koa Peat scored 20 points to lead Arizona to a 79-64 win over Purdue and its first Final Four trip since 2001.`\
+https://nytimes.com/athletic/7154848/2026/03/28/arizona-purdue-score-result-takeaways-march-madness/
+
+**Mexico 0, Portugal 0: Tragedy mars Azteca reopening as El Tri hold Ronaldo-less foe**\
+`The death of a fan overshadowed the reopening of one of world football's cathedrals, where two World Cup-bound sides ended goalless `\
+https://nytimes.com/athletic/7154929/2026/03/28/mexico-portugal-friendly-estadio-azteca-fan-death-world-cup/
+
 **Timberwolves prep for Anthony Edwards' return after latest slide down West standings**\
 `All signs are pointing to Edwards returning Monday in Dallas, giving the Timberwolves a needed jolt as the playoffs near.`\
 https://nytimes.com/athletic/7154740/2026/03/28/timberwolves-anthony-edwards-return-lineup-nba/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7154679/2026/03/28/blue-jackets-sharks-rick-bowness
 **With 2 star performances, Luis Robert Jr. validating Mets' spring optimism**\
 `Robert's three-run homer in the 11th inning gave the Mets a walk-off win over the Pirates on Saturday.`\
 https://nytimes.com/athletic/7154725/2026/03/28/luis-robert-jr-mets-spring-optimism/
-
-**Record Number of T.S.A. Employees Called Out on Friday**\
-`President Trump signed a memo late Friday ordering the Department of Homeland Security to restore pay to airport screeners.`\
-https://nytimes.com/2026/03/28/us/tsa-employees-airports-wait-times.html
-
-**‘No Kings’ Protesters Rally From Coast to Coast**\
-`More than 3,000 demonstrations were planned in the United States on Saturday as part of the “No Kings” movement. Protesters held signs condemning the war in Iran and immigration raids.`\
-https://nytimes.com/video/world/100000010808444/no-kings-protesters-rally-from-coast-to-coast.html
-
-**Amid frustrating stretch for Wild, Kirill Kaprizov needs to be 'better': Takeaways**\
-`The Wild fell behind 3-0 and couldn't come back against the Bruins.`\
-https://nytimes.com/athletic/7154717/2026/03/28/wild-kirill-kaprizov-takeaways-nhl-playoffs/
 

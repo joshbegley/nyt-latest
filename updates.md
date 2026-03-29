@@ -1,3 +1,15 @@
+**Ukko-Pekka Luukkonen helps Sabres escape with badly needed win: 3 thoughts**\
+`It took a two-goal comeback, a hard-fought overtime and a shootout, but the Sabres managed to come from behind and beat the Kraken 3-2.`\
+https://nytimes.com/athletic/7154880/2026/03/28/sabres-kraken-ukko-pekka-luukkonen-nhl-playoffs/
+
+**Koa Peat elevates Arizona past Purdue to end 25-year Final Four drought**\
+`Koa Peat scored 20 points to lead Arizona to a 79-64 win over Purdue and its first Final Four trip since 2001.`\
+https://nytimes.com/athletic/7154848/2026/03/28/arizona-purdue-score-result-takeaways-march-madness/
+
+**Mexico 0, Portugal 0: Tragedy mars Azteca reopening as El Tri hold Ronaldo-less foe**\
+`The death of a fan overshadowed the reopening of one of world football's cathedrals, where two World Cup-bound sides ended goalless `\
+https://nytimes.com/athletic/7154929/2026/03/28/mexico-portugal-friendly-estadio-azteca-fan-death-world-cup/
+
 **Twins' hard-won first victory punctuated by Royce Lewis' 2-run homer, stolen base**\
 `Nothing was easy about the Twins' first win of the season, but their gritty effort earned them the victory.`\
 https://nytimes.com/athletic/7154742/2026/03/28/twins-first-victory-2026-royce-lewis/
