@@ -1,3 +1,7 @@
+**ICE May Remain at Airports Even After T.S.A. Pay Resumes, Border Czar Says**\
+`Transportation safety officers are set to be paid on Monday, but Tom Homan, the White House’s border czar, said ICE agents may stay where there are shortages.`\
+https://nytimes.com/2026/03/29/us/ice-tsa-airports-homan-trump-shutdown.html
+
 **Where does Tudor's 44-day Spurs stint rank in Premier League's shortest reigns?**\
 `The Croatian is fourth in the list of the shortest managerial tenures in the Premier League as honeymoon periods become a thing of the past`\
 https://nytimes.com/athletic/7086921/2026/03/29/tudor-tottenham-premier-league-managers-shortest-reigns/

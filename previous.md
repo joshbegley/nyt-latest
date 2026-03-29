@@ -1,3 +1,7 @@
+**ICE May Remain at Airports Even After T.S.A. Pay Resumes, Border Czar Says**\
+`Transportation safety officers are set to be paid on Monday, but Tom Homan, the White House’s border czar, said ICE agents may stay where there are shortages.`\
+https://nytimes.com/2026/03/29/us/ice-tsa-airports-homan-trump-shutdown.html
+
 **Where does Tudor's 44-day Spurs stint rank in Premier League's shortest reigns?**\
 `The Croatian is fourth in the list of the shortest managerial tenures in the Premier League as honeymoon periods become a thing of the past`\
 https://nytimes.com/athletic/7086921/2026/03/29/tudor-tottenham-premier-league-managers-shortest-reigns/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7155803/2026/03/29/wizards-vs-trail-blazers-stream-
 **How to watch Magic vs. Raptors: Time, TV, streaming**\
 `Find out how to watch the Orlando Magic play the Toronto Raptors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7155795/2026/03/29/magic-vs-raptors-stream-how-to-watch-march-29/
-
-**How to watch Celtics vs. Hornets: Time, TV, streaming**\
-`Find out how to watch the Boston Celtics play the Charlotte Hornets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7155783/2026/03/29/celtics-vs-hornets-stream-how-to-watch-march-29/
 
