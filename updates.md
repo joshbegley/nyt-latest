@@ -1,3 +1,7 @@
+**Journey to the Moon ‘Starting to Feel Real’ for NASA’s Artemis II Crew**\
+`The four astronauts — three Americans and one Canadian — spoke from a prelaunch quarantine ahead of their scheduled Wednesday mission.`\
+https://nytimes.com/2026/03/29/science/nasa-astronauts-artemis-moon-launch.html
+
 **Verstappen's retirement threat feels shocking. But we shouldn't be surprised**\
 `The Dutch driver would not be the first high-achieving prodigy to walk away early from the sport that has been their life`\
 https://nytimes.com/athletic/7155999/2026/03/29/max-verstappen-f1-retirement-threat/
