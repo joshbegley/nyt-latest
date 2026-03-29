@@ -1,3 +1,7 @@
+**Iran War Draws Attention to U.S. Troop Presence in Saudi Arabia**\
+`A close U.S. ally and regional rival of Iran, the kingdom has faced hundreds of Iranian missile and drone attacks since the war began.`\
+https://nytimes.com/2026/03/29/world/middleeast/injured-us-troops-saudi-arabia.html
+
 **Israel’s military posted two images of Ali Choeib in what it said was a Hezbollah uniform. One was fake.**\
 `The`\
 https://nytimes.com/live/2026/03/29/world/iran-war-trump-israel-oil/israels-military-posted-two-images-of-ali-choeib-in-what-it-said-was-a-hezbollah-uniform-one-was-fake

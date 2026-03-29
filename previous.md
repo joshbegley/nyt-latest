@@ -1,3 +1,7 @@
+**Iran War Draws Attention to U.S. Troop Presence in Saudi Arabia**\
+`A close U.S. ally and regional rival of Iran, the kingdom has faced hundreds of Iranian missile and drone attacks since the war began.`\
+https://nytimes.com/2026/03/29/world/middleeast/injured-us-troops-saudi-arabia.html
+
 **Israel’s military posted two images of Ali Choeib in what it said was a Hezbollah uniform. One was fake.**\
 `The`\
 https://nytimes.com/live/2026/03/29/world/iran-war-trump-israel-oil/israels-military-posted-two-images-of-ali-choeib-in-what-it-said-was-a-hezbollah-uniform-one-was-fake
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7154569/2026/03/29/porter-martone-flyers-contract/
 **How to watch Knicks vs. Thunder: Time, TV, streaming**\
 `Find out how to watch the New York Knicks play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7156037/2026/03/29/knicks-vs-thunder-stream-how-to-watch-march-29/
-
-**Hundreds Gather for Funeral of 3 Lebanese Killed in Israeli Strike**\
-`Israel said one of those killed was a member of Hezbollah’s military wing “disguised as a journalist.” Lebanon’s president said all three were journalists and condemned the killings.`\
-https://nytimes.com/2026/03/29/world/middleeast/funerals-lebanese-killed-israeli-strike.html
 
