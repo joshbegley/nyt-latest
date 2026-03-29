@@ -1,3 +1,7 @@
+**Where does Tudor's 44-day Spurs stint rank in Premier League's shortest reigns?**\
+`The Croatian is fourth in the list of the shortest managerial tenures in the Premier League as honeymoon periods become a thing of the past`\
+https://nytimes.com/athletic/7086921/2026/03/29/tudor-tottenham-premier-league-managers-shortest-reigns/
+
 **Lowetide: Oilers sign Tomas Cibulka, mark beginning of spring signing season**\
 `Cibulka played the past two seasons in Czechia's top league for his hometown HC Motor Ceske Budejovice.`\
 https://nytimes.com/athletic/7153931/2026/03/29/oilers-sign-defenceman-tomas-cibulka/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7155795/2026/03/29/magic-vs-raptors-stream-how-to-w
 **How to watch Celtics vs. Hornets: Time, TV, streaming**\
 `Find out how to watch the Boston Celtics play the Charlotte Hornets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7155783/2026/03/29/celtics-vs-hornets-stream-how-to-watch-march-29/
-
-**How to watch Rockets vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7155780/2026/03/29/rockets-vs-pelicans-stream-how-to-watch-march-29/
 
