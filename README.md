@@ -1,3 +1,7 @@
+**How to watch Warriors vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7156248/2026/03/29/warriors-vs-nuggets-stream-how-to-watch-march-29/
+
 **New Political Group to Push Trump’s A.I. Agenda in Midterms**\
 `The group, Innovation Council Action, says it plans to spend at least $100 million. It will be led by a former administration official.`\
 https://nytimes.com/2026/03/29/business/trump-artificial-intelligence-pac-midterms.html
@@ -22,8 +26,8 @@ https://nytimes.com/live/2026/03/29/world/iran-war-trump-israel-oil/israels-mili
 `Purdue combined consistent winning with NCAA Tournament heartbreak over the past four years. What will Matt Painter do next?`\
 https://nytimes.com/athletic/7156027/2026/03/29/purdue-basketball-seniors-ncaa-tournament-arizona/
 
-**Regional officials met in Pakistan to discuss the war in Iran.**\
-`By Zia ur-Rehman`\
+**Regional officials meet in Pakistan to discuss the war in Iran.**\
+`By Zia ur-Rehman and Salman Masood`\
 https://nytimes.com/live/2026/03/29/world/iran-war-trump-israel-oil/regional-officials-pakistan-meeting
 
 **Journey to the Moon ‘Starting to Feel Real’ for NASA’s Artemis II Crew**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/29/science/nasa-astronauts-artemis-moon-launch.html
 **Verstappen's retirement threat feels shocking. But we shouldn't be surprised**\
 `The Dutch driver would not be the first high-achieving prodigy to walk away early from the sport that has been their life`\
 https://nytimes.com/athletic/7155999/2026/03/29/max-verstappen-f1-retirement-threat/
-
-**There Are Now Over 50,000 American Troops in the Mideast**\
-`The arrival of 2,500 Marines and another 2,500 sailors is keeping the number of American troops in the region at roughly 10,000 more than usual.`\
-https://nytimes.com/2026/03/29/us/politics/us-marines-middle-east-iran-war.html
 
