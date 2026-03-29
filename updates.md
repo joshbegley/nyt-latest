@@ -1,3 +1,11 @@
+**Politico Names New Top Editor**\
+`Jonathan Greenberger, an executive at the publication, will take over from John Harris, a co-founder of Politico.`\
+https://nytimes.com/2026/03/29/business/media/politico-editor-jonathan-greenberger.html
+
+**Steve Kerr explains why he penned that handwritten letter to Blue Jays manager John Schneider**\
+`The Warriors coach estimates he’s written at least seven supportive notes to coaches he admires across multiple sports. `\
+https://nytimes.com/athletic/7156351/2026/03/29/steve-kerr-letter-john-schneider-blue-jays-warriors/
+
 **Olympian Caster Semenya criticizes IOC's renewed transgender athlete ban**\
 `Semenya spent seven years locked in court battles over various sex eligibility policies, and says the IOC rules disrespect women.`\
 https://nytimes.com/athletic/7156266/2026/03/29/ioc-transgender-ban-caster-semenya-reaction/
