@@ -1,3 +1,7 @@
+**Red Sox frustrated with themselves and umpire CB Bucknor: 'He has one job to do'**\
+`"Two days ago, we were very excited about ABS. And today, we're not too happy with it," Red Sox manager Alex Cora said after the loss. `\
+https://nytimes.com/athletic/7154826/2026/03/28/red-sox-reds-cb-bucknor-challenges-alex-cora-ejected/
+
 **Ukko-Pekka Luukkonen helps Sabres escape with badly needed win: 3 thoughts**\
 `It took a two-goal comeback, a hard-fought overtime and a shootout, but the Sabres managed to come from behind and beat the Kraken 3-2.`\
 https://nytimes.com/athletic/7154880/2026/03/28/sabres-kraken-ukko-pekka-luukkonen-nhl-playoffs/
