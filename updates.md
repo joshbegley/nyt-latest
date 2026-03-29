@@ -1,3 +1,7 @@
+**Can Canada’s Left Regroup? A New Leader Will Try.**\
+`Seeking a comeback after voters flocked to Mark Carney’s Liberals, the New Democrats picked Avi Lewis, a scion of a leftist political dynasty.`\
+https://nytimes.com/2026/03/29/world/americas/canada-new-democrats-party-leader-avi-lewis.html
+
 **How to watch Blackhawks vs. Devils: Time, TV, streaming**\
 `Find out how to watch the Chicago Blackhawks play the New Jersey Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7155895/2026/03/29/blackhawks-vs-devils-stream-how-to-watch-march-29/
