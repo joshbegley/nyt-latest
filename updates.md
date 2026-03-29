@@ -1,3 +1,7 @@
+**Fan dies after falling from Mexico City World Cup stadium during friendly**\
+`Estadio Banorte, formerly known as Estadio Azteca, will host five World Cup matches, including the opener on June 11.`\
+https://nytimes.com/athletic/7154799/2026/03/28/fan-death-estadio-banorte-mexico-portugal-world-cup/
+
 **Blue Jackets hit first bump in Rick Bowness' tenure with listless loss to Sharks**\
 `Saturday's game marked Columbus' third loss in four games and the first time it has lost consecutive games in regulation since Jan. 10.`\
 https://nytimes.com/athletic/7154679/2026/03/28/blue-jackets-sharks-rick-bowness-nhl-playoffs/
