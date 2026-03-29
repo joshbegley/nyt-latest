@@ -1,3 +1,23 @@
+**How to watch Tennessee vs. Michigan men's basketball: Elite Eight Time, TV, streaming**\
+`Find out how to watch the Tennessee Volunteers play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155425/2026/03/29/tennessee-vs-michigan-stream-how-to-watch-march-29/
+
+**Confronting the Chaos**\
+`We offer some suggestions to help you get started on spring cleaning.`\
+https://nytimes.com/2026/03/29/briefing/confronting-the-chaos.html
+
+**Kimi Antonelli's Suzuka win was more than luck. It proved his title chances are real**\
+`Antonelli's speed and execution across the Suzuka weekend was really impressive`\
+https://nytimes.com/athletic/7155344/2026/03/29/kimi-antonelli-japanese-gp-win-f1-world-title-mercedes/
+
+**Faith in Fandoms**\
+`We’re looking at the religious impulses in the manosphere and pop groups.`\
+https://nytimes.com/2026/03/29/briefing/andrew-tate-katseye.html
+
+**'This is where I belong;' World's Fastest Man Noah Lyles on love, legacy, and lifting track to new heights**\
+`Lyles believes track athletes can reach the same heights as stars in the Big Four sports, despite long gaps between high-profile events.`\
+https://nytimes.com/athletic/7151913/2026/03/29/noah-lyles-interview-athletic-show-paris-olympics/
+
 **How to watch Duke vs. UCLA women's basketball: Elite Eight Time, TV, streaming**\
 `Find out how to watch the Duke Blue Devils play the UCLA Bruins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7155416/2026/03/29/duke-vs-ucla-stream-how-to-watch-march-29/
