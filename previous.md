@@ -1,4 +1,8 @@
-**Golden Knights fire Bruce Cassidy, hire John Tortorella**\
+**Israel’s Other War**\
+`As missiles fly in Iran, Israeli troops have moved deep into southern Lebanon to hit Hezbollah.`\
+https://nytimes.com/2026/03/29/world/israel-lebanon-hezbollah-war-iran.html
+
+**Golden Knights fire coach Bruce Cassidy, replace him with John Tortorella**\
 `Cassidy coached Vegas to a Stanley Cup championship in 2023, but the Knights have lost 12 of 16, putting their playoff hopes in peril.`\
 https://nytimes.com/athletic/7156400/2026/03/29/golden-knights-fire-bruce-cassidy-hire-john-tortorella/
 
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/7156315/2026/03/29/aaron-glenn-geno-smith-jets-qb/
 `The Warriors coach estimates he’s written at least seven supportive notes to coaches he admires across multiple sports. `\
 https://nytimes.com/athletic/7156351/2026/03/29/steve-kerr-letter-john-schneider-blue-jays-warriors/
 
-**Michigan mauls Tennessee, completing cruise to first Final Four since 2018**\
+**Michigan mauls Tennessee, cruising to first Final Four since 2018**\
 `Michigan clamped down during a 21-0 first-half run on the way to the largest margin of victory in any men's regional final since 1989.`\
 https://nytimes.com/athletic/7156184/2026/03/29/michigan-mauls-tennessee-completing-white-hot-march-with-first-final-four-trip-since-2018/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/29/us/gas-prices-spring-break-vacation.html
 **A favorite NCAA Tournament pastime for players? Reading**\
 `Reading for leisure is a way some players escape some of the pressures of March Madness.`\
 https://nytimes.com/athletic/7154432/2026/03/29/womens-ncaa-tournament-reading-books/
-
-**Australian Sky Turns an Apocalyptic Blood Red**\
-`Winds from Tropical Cyclone Narelle stirred up rust-colored dust from iron-rich soil, tinging the sky over Western Australia with a reddish Mars-like hue.`\
-https://nytimes.com/2026/03/29/world/australia/australia-red-sky-tropical-cyclone.html
 

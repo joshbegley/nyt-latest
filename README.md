@@ -1,3 +1,11 @@
+**Browns GM says no plans to trade Myles Garrett despite recent contract modification**\
+`Adam Berry said the Browns wouldn't have needed a contract modification if they wanted to trade Garrett.`\
+https://nytimes.com/athletic/7156338/2026/03/29/myles-garrett-browns-trade-speculation/
+
+**U.S. to Allow Russian Oil Tanker to Reach Cuba, Breaking Blockade**\
+`The tanker full of crude oil could reach its expected destination by Tuesday, providing a lifeline to the island amid intense U.S. pressure.`\
+https://nytimes.com/2026/03/29/world/americas/cuba-russian-oil-tanlker.html
+
 **Israel’s Other War**\
 `As missiles fly in Iran, Israeli troops have moved deep into southern Lebanon to hit Hezbollah.`\
 https://nytimes.com/2026/03/29/world/israel-lebanon-hezbollah-war-iran.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7156270/2026/03/29/49ers-john-lynch-substation-inve
 **Impostor posed as All-Pro safety Xavier McKinney to steal over $4 million, lawsuit alleges**\
 `Aliya Sports Finance Fund filed a lawsuit against Sure Sports alleging negligence.`\
 https://nytimes.com/athletic/7156162/2026/03/29/scam-xavier-mckinney-packers-lawsuit/
-
-**As Gas Prices Approach $4 a Gallon, Americans Rethink Vacations**\
-`Already pinched by the high costs of living, some families have modified how they plan to travel by road and air as the Iran war pushes gas and oil prices higher.`\
-https://nytimes.com/2026/03/29/us/gas-prices-spring-break-vacation.html
-
-**A favorite NCAA Tournament pastime for players? Reading**\
-`Reading for leisure is a way some players escape some of the pressures of March Madness.`\
-https://nytimes.com/athletic/7154432/2026/03/29/womens-ncaa-tournament-reading-books/
 

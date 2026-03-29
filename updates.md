@@ -1,3 +1,15 @@
+**Israel’s Other War**\
+`As missiles fly in Iran, Israeli troops have moved deep into southern Lebanon to hit Hezbollah.`\
+https://nytimes.com/2026/03/29/world/israel-lebanon-hezbollah-war-iran.html
+
+**Golden Knights fire coach Bruce Cassidy, replace him with John Tortorella**\
+`Cassidy coached Vegas to a Stanley Cup championship in 2023, but the Knights have lost 12 of 16, putting their playoff hopes in peril.`\
+https://nytimes.com/athletic/7156400/2026/03/29/golden-knights-fire-bruce-cassidy-hire-john-tortorella/
+
+**Michigan mauls Tennessee, cruising to first Final Four since 2018**\
+`Michigan clamped down during a 21-0 first-half run on the way to the largest margin of victory in any men's regional final since 1989.`\
+https://nytimes.com/athletic/7156184/2026/03/29/michigan-mauls-tennessee-completing-white-hot-march-with-first-final-four-trip-since-2018/
+
 **Golden Knights fire Bruce Cassidy, hire John Tortorella**\
 `Cassidy coached Vegas to a Stanley Cup championship in 2023, but the Knights have lost 12 of 16, putting their playoff hopes in peril.`\
 https://nytimes.com/athletic/7156400/2026/03/29/golden-knights-fire-bruce-cassidy-hire-john-tortorella/
