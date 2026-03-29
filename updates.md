@@ -1,3 +1,15 @@
+**Zack Wheeler pitches first rehab outing, still poised for April return**\
+`Wheeler threw 38 pitches and struck out three in his first rehab outing after thoracic outlet decompression surgery in September.`\
+https://nytimes.com/athletic/7154763/2026/03/28/zack-wheeler-first-rehab-outing-phillies-april-return/
+
+**Belgium gave USMNT a harsh reality check. Will it prove to be useful at the World Cup?**\
+`A smack in the face after the fall's run of positive results might prove to be just what the USMNT needs as the World Cup draws closer`\
+https://nytimes.com/athletic/7154792/2026/03/28/usmnt-belgium-world-cup-reality-pochettino/
+
+**Blue Jackets hit first bump in Rick Bowness' tenure with listless loss to Sharks**\
+`Bowness said "we didn't have our legs," which raises a question about how the Jackets will respond Sunday against the Bruins.`\
+https://nytimes.com/athletic/7154679/2026/03/28/blue-jackets-sharks-rick-bowness-nhl-playoffs/
+
 **Fan dies after falling from Mexico City World Cup stadium during friendly**\
 `Estadio Banorte, formerly known as Estadio Azteca, will host five World Cup matches, including the opener on June 11.`\
 https://nytimes.com/athletic/7154799/2026/03/28/fan-death-estadio-banorte-mexico-portugal-world-cup/

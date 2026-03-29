@@ -1,9 +1,17 @@
+**Zack Wheeler pitches first rehab outing, still poised for April return**\
+`Wheeler threw 38 pitches and struck out three in his first rehab outing after thoracic outlet decompression surgery in September.`\
+https://nytimes.com/athletic/7154763/2026/03/28/zack-wheeler-first-rehab-outing-phillies-april-return/
+
+**Belgium gave USMNT a harsh reality check. Will it prove to be useful at the World Cup?**\
+`A smack in the face after the fall's run of positive results might prove to be just what the USMNT needs as the World Cup draws closer`\
+https://nytimes.com/athletic/7154792/2026/03/28/usmnt-belgium-world-cup-reality-pochettino/
+
 **Fan dies after falling from Mexico City World Cup stadium during friendly**\
 `Estadio Banorte, formerly known as Estadio Azteca, will host five World Cup matches, including the opener on June 11.`\
 https://nytimes.com/athletic/7154799/2026/03/28/fan-death-estadio-banorte-mexico-portugal-world-cup/
 
 **Blue Jackets hit first bump in Rick Bowness' tenure with listless loss to Sharks**\
-`Saturday's game marked Columbus' third loss in four games and the first time it has lost consecutive games in regulation since Jan. 10.`\
+`Bowness said "we didn't have our legs," which raises a question about how the Jackets will respond Sunday against the Bruins.`\
 https://nytimes.com/athletic/7154679/2026/03/28/blue-jackets-sharks-rick-bowness-nhl-playoffs/
 
 **With 2 star performances, Luis Robert Jr. validating Mets' spring optimism**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7154541/2026/03/28/illinois-iowa-score-result-takea
 **Tom Brady's surprise shoutout thrills Yankees' Cam Schlittler**\
 `Schlittler, who grew up as a Boston fan, received a social media shoutout from Brady, who spotted the righty wearing his card company's hat.`\
 https://nytimes.com/athletic/7154588/2026/03/28/tom-brady-cam-schlittler-instagram-shoutout/
-
-**Cade Horton spins a gem, opens season looking like the pitcher who dominated last summer**\
-`Horton allowed two runs on four hits while striking out four and walking just one in 6 1/3 strong innings Saturday.`\
-https://nytimes.com/athletic/7154501/2026/03/28/cade-horton-stats-cubs-season-opener/
-
-**What we saw and learned from Nebraska football's spring game: 6 observations**\
-`New faces, a lighter crowd and more from an earlier spring game than ever at Nebraska.`\
-https://nytimes.com/athletic/7154490/2026/03/28/nebraska-football-spring-game-analysis/
 
