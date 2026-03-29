@@ -1,3 +1,7 @@
+**With 2 star performances, Luis Robert Jr. validating Mets' spring optimism**\
+`Robert's three-run homer in the 11th inning gave the Mets a walk-off win over the Pirates on Saturday.`\
+https://nytimes.com/athletic/7154725/2026/03/28/luis-robert-jr-mets-spring-optimism/
+
 **Record Number of T.S.A. Employees Called Out on Friday**\
 `President Trump signed a memo late Friday ordering the Department of Homeland Security to restore pay to airport screeners.`\
 https://nytimes.com/2026/03/28/us/tsa-employees-airports-wait-times.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7154534/2026/03/28/cb-bucknor-abs-challenges-eugeni
 **Uncontrollable horn delays Iowa-Illinois for 11 minutes in middle of first half**\
 `The Toyota Center scoreboard also stopped working and an air horn had to be used in the Elite Eight matchup in Houston.`\
 https://nytimes.com/athletic/7154554/2026/03/28/iowa-illinois-horn-scoreboard-delay-march-madness/
-
-**Pochettino unconcerned after USA's 'painful' 5-2 defeat to Belgium**\
-`The head coach insisted his players had not been "aggressive" enough as they slumped to a heavy defeat`\
-https://nytimes.com/athletic/7154532/2026/03/28/usa-usmnt-pochettino-belgium-painful-world-cup/
 
