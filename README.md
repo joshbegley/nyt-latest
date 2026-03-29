@@ -1,3 +1,7 @@
+**Sinner caps Miami dominance with first men's 'Sunshine Double' in 9 years**\
+`The 24-year-old Italian took down Jiri Lehecka of the Czech Republic in straight sets at Hard Rock Stadium.`\
+https://nytimes.com/athletic/7156468/2026/03/29/jannik-sinner-miami-open-sunshine-double/
+
 **Leave the nets ... for now. UConn, as always, plans for bigger Final Four celebrations**\
 `UConn is back in its 25th Final Four, including 17 of the last 18. `\
 https://nytimes.com/athletic/7156521/2026/03/29/uconn-25-final-four-geno-auriemma/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/29/nyregion/mamdani-sliwa-skit-ny-republicans.html
 **Providence College's Duncan Powell arrested for alleged disorderly conduct**\
 `In February, the Big East suspended Powell for three games following a hard foul on St. John's forward Bryce Hopkins.`\
 https://nytimes.com/athletic/7156475/2026/03/29/providence-colleges-duncan-powell-arrested/
-
-**Bernie Sanders, in the Bronx, Presses N.Y. Governor to Tax the Rich**\
-`Senator Bernie Sanders, speaking at a rally at Lehman College, lent his support to Mayor Zohran Mamdani’s effort to raise taxes on millionaires. The mayor was not present.`\
-https://nytimes.com/2026/03/29/nyregion/bernie-sanders-tax-the-rich-rally.html
 
