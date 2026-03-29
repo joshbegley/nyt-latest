@@ -1,3 +1,7 @@
+**I Saw Something New in San Francisco**\
+`Marshall McLuhan was right about Claude, too.`\
+https://nytimes.com/2026/03/29/opinion/ai-claude-chatgpt-gemini-mcluhan.html
+
 **Senegal, the AFCON trophy and a day of defiance: 'A people’s memory cannot be rewritten'**\
 `Senegal's players are in no mood to recognise the ruling that has stripped them of their second AFCON title`\
 https://nytimes.com/athletic/7154693/2026/03/29/senegal-afcon-trophy-paris/
