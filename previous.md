@@ -1,3 +1,7 @@
+**Iran War Live Updates: Tehran Hit by Heavy Airstrikes as U.S. Marines Arrive in Middle East**\
+`Airstrikes pummel residential areas and a university in Iran’s capital. Houthi forces in Yemen entered the widening conflict with a missile attack on Israel.`\
+https://nytimes.com/live/2026/03/29/world/iran-war-trump-israel-oil
+
 **Meet Brian Peat, the man behind more than 50 years' worth of Manchester United flags**\
 `Some of the creations of Peat, who is now in his 70s, have been on display recently at an unofficial museum near Old Trafford`\
 https://nytimes.com/athletic/7153625/2026/03/29/manchester-united-flags-brian-peat/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/29/pageoneplus/quote-of-the-day-on-irans-rugged-fron
 **A Toothless Iran? Missile and Drone Strikes Show It Can Still Inflict Pain.**\
 `A wave of strikes across the Middle East in recent days shows that Iran has not lost the capacity to retaliate.`\
 https://nytimes.com/2026/03/29/world/middleeast/iran-missiles-war.html
-
-**Would You Run a 5K in a Van? On a Plane? In the Tub?**\
-`For these influencers, there’s no space too small for a jog.`\
-https://nytimes.com/2026/03/29/well/move/run-5k-van-tub-tiktok.html
 
