@@ -1,3 +1,7 @@
+**How to watch Tennessee vs. Michigan men's basketball: Elite Eight Time, TV, streaming**\
+`Find out how to watch the Tennessee Volunteers play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155425/2026/03/29/tennessee-vs-michigan-stream-how-to-watch-march-29/
+
 **Confronting the Chaos**\
 `We offer some suggestions to help you get started on spring cleaning.`\
 https://nytimes.com/2026/03/29/briefing/confronting-the-chaos.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7155403/2026/03/29/white-sox-vs-brewers-stream-how-
 **How to watch Rockies vs. Marlins: Time, TV, streaming for March 29**\
 `Find out how to watch the Colorado Rockies play the Miami Marlins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7155401/2026/03/29/rockies-vs-marlins-stream-how-to-watch-march-29/
-
-**How to watch Twins vs. Orioles: Time, TV, streaming for March 29**\
-`Find out how to watch the Minnesota Twins play the Baltimore Orioles, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7155399/2026/03/29/twins-vs-orioles-stream-how-to-watch-march-29/
 
