@@ -1,3 +1,11 @@
+**Olympian Caster Semenya criticizes IOC's renewed transgender athlete ban**\
+`Semenya spent seven years locked in court battles over various sex eligibility policies, and says the IOC rules disrespect women.`\
+https://nytimes.com/athletic/7156266/2026/03/29/ioc-transgender-ban-caster-semenya-reaction/
+
+**The revamped Azteca still has the grandeur of old. But this was a night marked by tragedy**\
+`Mexico's famous stadium has been updated ahead of the World Cup, but the death of a supporter overshadowed its reopening`\
+https://nytimes.com/athletic/7156355/2026/03/29/mexico-city-azteca-world-cup/
+
 **One of MLB’s hottest starts in 65 years belongs to a player who barely made the Nationals**\
 `The National League MVP frontrunner is just the third player since 1961 to reach base on each of his first 8 plate appearances of the year`\
 https://nytimes.com/athletic/7156369/2026/03/29/nationals-joey-wiemer-hot-start/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7156351/2026/03/29/steve-kerr-letter-john-schneider
 **Michigan mauls Tennessee, cruising to first Final Four since 2018**\
 `Michigan clamped down during a 21-0 first-half run on the way to the largest margin of victory in any men's regional final since 1989.`\
 https://nytimes.com/athletic/7156184/2026/03/29/michigan-mauls-tennessee-completing-white-hot-march-with-first-final-four-trip-since-2018/
-
-**Catholic Leaders Barred From Jerusalem Holy Site on Palm Sunday**\
-`Israeli police stopped clergymen from celebrating the Palm Sunday Mass at the Church of the Holy Sepulchre “for the first time in centuries,” church officials said.`\
-https://nytimes.com/2026/03/29/world/middleeast/catholic-church-jerusalem.html
-
-**49ers' tests indicate Levi's Stadium substation issue a 'nothing burger'**\
-`GM John Lynch said they tested practice fields, weight room, cafeteria, locker room, meetings rooms — anywhere players go — for exposure.`\
-https://nytimes.com/athletic/7156270/2026/03/29/49ers-john-lynch-substation-investigation-results/
 

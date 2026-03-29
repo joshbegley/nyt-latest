@@ -1,3 +1,7 @@
+**Politico Names New Top Editor**\
+`Jonathan Greenberger, an executive at the publication, will take over from John Harris, a co-founder of Politico.`\
+https://nytimes.com/2026/03/29/business/media/politico-editor-jonathan-greenberger.html
+
 **Olympian Caster Semenya criticizes IOC's renewed transgender athlete ban**\
 `Semenya spent seven years locked in court battles over various sex eligibility policies, and says the IOC rules disrespect women.`\
 https://nytimes.com/athletic/7156266/2026/03/29/ioc-transgender-ban-caster-semenya-reaction/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7156315/2026/03/29/aaron-glenn-geno-smith-jets-qb/
 **Why Steve Kerr wrote that handwritten letter to Blue Jays manager John Schneider**\
 `The Warriors coach estimates he’s written at least seven supportive notes to coaches he admires across multiple sports. `\
 https://nytimes.com/athletic/7156351/2026/03/29/steve-kerr-letter-john-schneider-blue-jays-warriors/
-
-**Michigan mauls Tennessee, cruising to first Final Four since 2018**\
-`Michigan clamped down during a 21-0 first-half run on the way to the largest margin of victory in any men's regional final since 1989.`\
-https://nytimes.com/athletic/7156184/2026/03/29/michigan-mauls-tennessee-completing-white-hot-march-with-first-final-four-trip-since-2018/
 

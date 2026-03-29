@@ -1,3 +1,11 @@
+**Olympian Caster Semenya criticizes IOC's renewed transgender athlete ban**\
+`Semenya spent seven years locked in court battles over various sex eligibility policies, and says the IOC rules disrespect women.`\
+https://nytimes.com/athletic/7156266/2026/03/29/ioc-transgender-ban-caster-semenya-reaction/
+
+**The revamped Azteca still has the grandeur of old. But this was a night marked by tragedy**\
+`Mexico's famous stadium has been updated ahead of the World Cup, but the death of a supporter overshadowed its reopening`\
+https://nytimes.com/athletic/7156355/2026/03/29/mexico-city-azteca-world-cup/
+
 **One of MLB’s hottest starts in 65 years belongs to a player who barely made the Nationals**\
 `The National League MVP frontrunner is just the third player since 1961 to reach base on each of his first 8 plate appearances of the year`\
 https://nytimes.com/athletic/7156369/2026/03/29/nationals-joey-wiemer-hot-start/
