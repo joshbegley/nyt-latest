@@ -1,40 +1,40 @@
-**How to watch Notre Dame vs. UConn women's basketball: Elite Eight Time, TV, streaming**\
-`Find out how to watch the Notre Dame Fighting Irish play the UConn Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7155312/2026/03/29/notre-dame-vs-uconn-stream-how-to-watch-march-29/
+**First look at women's NCAA Tournament Elite Eight: What to know about every game**\
+`Will all four No. 1 seeds be back in the Final Four? Or will upsets prevail? `\
+https://nytimes.com/athletic/7155174/2026/03/29/ncaa-tournament-womens-elite-eight-breakdown-predictions/
 
-**The New York Times International Edition in Print for Monday, March 30, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/03/29/todays-new-york-times-international-edition
+**Ruff? Quenneville? Bowness? Making the case for 8 Jack Adams Award contenders**\
+`In this tight season, almost half the league's coaches have an argument for winning the Jack Adams.`\
+https://nytimes.com/athletic/7149453/2026/03/29/jack-adams-coach-nhl-2026/
 
-**How to watch Panthers vs. Rangers: Time, TV, streaming**\
-`Find out how to watch the Florida Panthers play the New York Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7155305/2026/03/29/panthers-vs-rangers-stream-how-to-watch-march-29/
+**Phillies' lineup choices offers early insight into Thomson's approach**\
+`Even after the Rangers scratched Jacob deGrom for a left-hander, the Phillies kept Bryson Stott and Brandon Marsh in the starting lineup.`\
+https://nytimes.com/athletic/7154700/2026/03/29/phillies-thomson-lineup-approach-insights-mlb/
 
-**Jannik Sinner arrives in Miami Open final on a mission, ready to say the quiet part out loud**\
-`Sinner missed three months of tennis last year under an anti-doping suspension. This year, he is making hay while the sun shines.`\
-https://nytimes.com/athletic/7153301/2026/03/29/tennis-jannik-sinner-season-atp-race/
+**Why Yankees may benefit from ABS more than any other team: 3 Opening Weekend takeaways**\
+`The Yankees swept the Giants on the road to open the season and held San Francisco to just one run. Will they continue to dominate?`\
+https://nytimes.com/athletic/7154749/2026/03/29/yankees-abs-rices-defense-takeaways/
 
-**How a Mistake Led to the Breakout Star of ‘Project Hail Mary’**\
-`Rocky was brought to life through a combination of puppetry and visual effects. But his charming personality was the result of a misunderstanding.`\
-https://nytimes.com/2026/03/29/movies/project-hail-mary-rocky-alien-voice.html
+**Our Enduring Fascination With the Kennedys**\
+`Decades later, their family drama still captivates — and divides`\
+https://nytimes.com/2026/03/29/podcasts/the-daily/our-enduring-fascination-with-the-kennedys.html
 
-**5 Takeaways From the ‘No Kings’ Rallies as the Midterms Heat Up**\
-`The war in Iran was a galvanizing force, but plenty of protesters focused on President Trump’s immigration crackdown. Senate candidates in several key races joined the crowds.`\
-https://nytimes.com/2026/03/29/us/politics/no-kings-rallies-takeaways.html
+**2026 NHL prospect pool rankings: No. 12 New York Islanders**\
+`The Islanders transformed their prospect pool last year and it's in the healthiest position it has been in years.`\
+https://nytimes.com/athletic/7101461/2026/03/29/new-york-islanders-nhl-prospect-rankings-2026/
 
-**How Many Air Traffic Controllers Are Needed Overnight?**\
-`The accident at LaGuardia has raised questions about whether the minimum standard of two air traffic controllers on overnight shifts is sufficient.`\
-https://nytimes.com/2026/03/29/us/air-traffic-controllers-staffing.html
+**Don’t Cheer Too Hard for the Facebook Verdicts**\
+`Courts aren’t always the right answer to our digital problems.`\
+https://nytimes.com/2026/03/29/opinion/free-speech-social-media-court-ruling.html
 
-**How the French Soccer Team Outdressed the N.B.A.**\
-`A continent away, eclectic style draws the eye.`\
-https://nytimes.com/2026/03/29/style/france-men-national-team-fashion.html
+**Pulisic vows to end scoring drought and revive USMNT fortunes before World Cup**\
+`The USA star has not scored for his country since 2024, or for AC Milan during 2026, but he maintains optimism`\
+https://nytimes.com/athletic/7154864/2026/03/29/christian-pulisic-usmnt-usa-pochettino-belgium-portugal-world-cup/
 
-**Trump’s Ballroom Design Has Barely Been Scrutinized**\
-`Fake windows and a stairway to nowhere: Three months that could change the White House for generations.`\
-https://nytimes.com/interactive/2026/03/29/upshot/white-house-ballroom.html
+**Arizona's breakthrough required less coaching, not more**\
+`The Wildcats outscored Purdue 48-26 during the final 20 minutes as belief slayed Arizona's Elite Eight demons.`\
+https://nytimes.com/athletic/7155216/2026/03/29/arizona-purdue-final-four-march-madness-tommy-lloyd/
 
-**Why the Iran War May Force Countries to Rely Less on Natural Gas**\
-`The U.S. and other exporters are poised for a windfall, but disruptions to Persian Gulf supplies are also pushing gas-buying countries to consider alternatives like coal, solar and nuclear energy.`\
-https://nytimes.com/2026/03/29/business/energy-environment/iran-war-natural-gas.html
+**The Iran War Is a Failure of Imagination**\
+`The planners of the Iran war had plenty of on-the-ground intelligence but operated with little insight into the minds of their enemies.`\
+https://nytimes.com/2026/03/29/opinion/israel-us-war-iran-literature.html
 
