@@ -1,3 +1,11 @@
+**Timberwolves prep for Anthony Edwards' return after latest slide down West standings**\
+`All signs are pointing to Edwards returning Monday in Dallas, giving the Timberwolves a needed jolt as the playoffs near.`\
+https://nytimes.com/athletic/7154740/2026/03/28/timberwolves-anthony-edwards-return-lineup-nba/
+
+**Twins' hard-won first victory punctuated by Royce Lewis' 2-run homer, stolen base**\
+`Nothing was easy about the Twins' first win of the season, but their collective gritty effort earned them the victory.`\
+https://nytimes.com/athletic/7154742/2026/03/28/twins-first-victory-2026-royce-lewis/
+
 **Zack Wheeler pitches first rehab outing, still poised for April return**\
 `Wheeler threw 38 pitches and struck out three in his first rehab outing after thoracic outlet decompression surgery in September.`\
 https://nytimes.com/athletic/7154763/2026/03/28/zack-wheeler-first-rehab-outing-phillies-april-return/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/100000010808444/no-kings-protesters-rally-from-c
 **Amid frustrating stretch for Wild, Kirill Kaprizov needs to be 'better': Takeaways**\
 `The Wild fell behind 3-0 and couldn't come back against the Bruins.`\
 https://nytimes.com/athletic/7154717/2026/03/28/wild-kirill-kaprizov-takeaways-nhl-playoffs/
-
-**Illinois outlasts Iowa to advance to first Final Four since 2005**\
-`The Illini dominated the Hawkeyes on the glass and took over a game Iowa led at halftime.`\
-https://nytimes.com/athletic/7154541/2026/03/28/illinois-iowa-score-result-takeaways-march-madness/
-
-**Tom Brady's surprise shoutout thrills Yankees' Cam Schlittler**\
-`Schlittler, who grew up as a Boston fan, received a social media shoutout from Brady, who spotted the righty wearing his card company's hat.`\
-https://nytimes.com/athletic/7154588/2026/03/28/tom-brady-cam-schlittler-instagram-shoutout/
 
