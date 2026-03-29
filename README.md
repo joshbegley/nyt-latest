@@ -8,7 +8,7 @@ https://nytimes.com/athletic/7156162/2026/03/29/scam-xavier-mckinney-packers-law
 
 **As Gas Prices Approach $4 a Gallon, Americans Rethink Vacations**\
 `Already pinched by the high costs of living, some families have modified how they plan to travel by road and air as the Iran war pushes gas and oil prices higher.`\
-https://nytimes.com/2026/03/29/us/gas-prices-american-vacations.html
+https://nytimes.com/2026/03/29/us/gas-prices-spring-break-vacation.html
 
 **A favorite NCAA Tournament pastime for players? Reading**\
 `Reading for leisure is a way some players escape some of the pressures of March Madness.`\
