@@ -1,3 +1,7 @@
+**Where does Tudor's 44-day Spurs stint rank in Premier League's shortest reigns?**\
+`The Croatian is fourth in the list of the shortest managerial tenures in the Premier League as honeymoon periods become a thing of the past`\
+https://nytimes.com/athletic/7086921/2026/03/29/tudor-tottenham-premier-league-managers-shortest-reigns/
+
 **Lowetide: Oilers sign Tomas Cibulka, mark beginning of spring signing season**\
 `Cibulka played the past two seasons in Czechia's top league for his hometown HC Motor Ceske Budejovice.`\
 https://nytimes.com/athletic/7153931/2026/03/29/oilers-sign-defenceman-tomas-cibulka/
