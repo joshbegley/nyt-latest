@@ -1,3 +1,7 @@
+**Ollie Bearman suffers knee contusion during F1 crash at Japanese Grand Prix**\
+`The Haas driver avoided serious injury while trying to overtake Franco Colapinto on Sunday`\
+https://nytimes.com/athletic/7155193/2026/03/29/ollie-bearman-injury-crash-japanese-grand-prix-f1/
+
 **I Saw Something New in San Francisco**\
 `Marshall McLuhan was right about Claude, too.`\
 https://nytimes.com/2026/03/29/opinion/ai-claude-chatgpt-gemini-mcluhan.html
