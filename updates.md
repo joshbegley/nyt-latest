@@ -1,3 +1,7 @@
+**Amid frustrating stretch for Wild, Kirill Kaprizov needs to be 'better': Takeaways**\
+`The Wild fell behind 3-0 and couldn't come back against the Bruins.`\
+https://nytimes.com/athletic/7154717/2026/03/28/wild-kirill-kaprizov-takeaways-nhl-playoffs/
+
 **With 2 star performances, Luis Robert Jr. validating Mets' spring optimism**\
 `Robert's three-run homer in the 11th inning gave the Mets a walk-off win over the Pirates on Saturday.`\
 https://nytimes.com/athletic/7154725/2026/03/28/luis-robert-jr-mets-spring-optimism/
