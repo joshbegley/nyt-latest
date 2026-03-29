@@ -1,3 +1,7 @@
+**How to watch Rangers vs. Phillies: Time, TV, streaming for March 29**\
+`Find out how to watch the Texas Rangers play the Philadelphia Phillies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155407/2026/03/29/rangers-vs-phillies-stream-how-to-watch-march-29/
+
 **How to watch Nationals vs. Cubs: Time, TV, streaming for March 29**\
 `Find out how to watch the Washington Nationals play the Chicago Cubs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7155405/2026/03/29/nationals-vs-cubs-stream-how-to-watch-march-29/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7155391/2026/03/29/royals-vs-braves-stream-how-to-w
 **How to watch Red Sox vs. Reds: Time, TV, streaming for March 29**\
 `Find out how to watch the Boston Red Sox play the Cincinnati Reds, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7155388/2026/03/29/red-sox-vs-reds-stream-how-to-watch-march-29/
-
-**Romania coach Lucescu, 80, ‘stable’ in hospital after being taken ill during training**\
-`Lucescu is "undergoing diagnostic investigations and therapeutic interventions necessary to stabilise his heart rhythm" in hospital.`\
-https://nytimes.com/athletic/7155366/2026/03/29/romania-coach-lucescu-health/
 
