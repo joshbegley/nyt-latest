@@ -1,3 +1,7 @@
+**Women's Elite Eight power rankings: Who can make it to the Final Four?**\
+`Notre Dame's got the hardest road ahead, facing UConn on Sunday.`\
+https://nytimes.com/athletic/7155134/2026/03/29/womens-elite-eight-power-rankings/
+
 **First look at women's NCAA Tournament Elite Eight: What to know about every game**\
 `Will all four No. 1 seeds be back in the Final Four? Or will upsets prevail? `\
 https://nytimes.com/athletic/7155174/2026/03/29/ncaa-tournament-womens-elite-eight-breakdown-predictions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7154864/2026/03/29/christian-pulisic-usmnt-usa-poch
 **Arizona's breakthrough required less coaching, not more**\
 `The Wildcats outscored Purdue 48-26 during the final 20 minutes as belief slayed Arizona's Elite Eight demons.`\
 https://nytimes.com/athletic/7155216/2026/03/29/arizona-purdue-final-four-march-madness-tommy-lloyd/
-
-**The Iran War Is a Failure of Imagination**\
-`The planners of the Iran war had plenty of on-the-ground intelligence but operated with little insight into the minds of their enemies.`\
-https://nytimes.com/2026/03/29/opinion/israel-us-war-iran-literature.html
 
