@@ -1,3 +1,11 @@
+**How to watch Blackhawks vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Chicago Blackhawks play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155895/2026/03/29/blackhawks-vs-devils-stream-how-to-watch-march-29/
+
+**How to watch Stars vs. Flyers: Time, TV, streaming**\
+`Find out how to watch the Dallas Stars play the Philadelphia Flyers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155893/2026/03/29/stars-vs-flyers-stream-how-to-watch-march-29/
+
 **What we learned from the Giants getting swept to start the 2026 season**\
 `The Giants regrettably scored just one run in their first 27 innings of the season. `\
 https://nytimes.com/athletic/7155058/2026/03/29/giants-what-we-learned-series-sweep/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/29/dining/make-melissa-clarks-lemon-poppy-seed-cake.
 **Irish rugby player who sparked CFB recruiting frenzy committing to South Carolina**\
 `"A month ago, I didn't exist in the world of American football, and now I do," said Giwa. `\
 https://nytimes.com/athletic/7154766/2026/03/29/college-football-recruiting-south-carolina-neff-giwa-rugby-ireland/
-
-**Tottenham had to part ways with Tudor, but this shambles goes far beyond just him**\
-`Tudor may have left Spurs but the club's crisis is not his fault`\
-https://nytimes.com/athletic/7107544/2026/03/29/tottenham-sack-igor-tudor-enic/
-
-**Young skill, maturity has Blues in a surprising spot: ‘It’s really elevated our team’**\
-`The Blues are over .500 (32-31-11) for the first time since Oct. 21 and just four points out of a playoff spot.`\
-https://nytimes.com/athletic/7154883/2026/03/29/blues-win-maple-leafs-thomas-snuggerud/
 

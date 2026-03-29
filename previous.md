@@ -1,3 +1,7 @@
+**What we learned from the Giants getting swept to start the 2026 season**\
+`The Giants regrettably scored just one run in their first 27 innings of the season. `\
+https://nytimes.com/athletic/7155058/2026/03/29/giants-what-we-learned-series-sweep/
+
 **How to watch Kings vs. Nets: Time, TV, streaming**\
 `Find out how to watch the Sacramento Kings play the Brooklyn Nets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7155807/2026/03/29/kings-vs-nets-stream-how-to-watch-march-29/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7107544/2026/03/29/tottenham-sack-igor-tudor-enic/
 **Young skill, maturity has Blues in a surprising spot: ‘It’s really elevated our team’**\
 `The Blues are over .500 (32-31-11) for the first time since Oct. 21 and just four points out of a playoff spot.`\
 https://nytimes.com/athletic/7154883/2026/03/29/blues-win-maple-leafs-thomas-snuggerud/
-
-**Igor Tudor to leave Tottenham after 44 days in charge**\
-`Tudor, who was appointed on February 14, took charge of seven games in total, managing only one win.`\
-https://nytimes.com/athletic/7083328/2026/03/29/igor-tudor-tottenham-leaves/
 
