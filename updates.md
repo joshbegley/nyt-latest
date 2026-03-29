@@ -1,3 +1,7 @@
+**Pistons, despite injuries, maintaining defensive intensity: 'Stick to the script'**\
+`Detroit's defensive rating during its last six games without All-Star Cade Cunningham ranks second in the NBA.`\
+https://nytimes.com/athletic/7154797/2026/03/29/pistons-defense-nba-cade-cunningham/
+
 **The Yankees couldn't have asked for a better start to the season**\
 `Everything came together for the Yankees in their season-opening series against the Giants at Oracle Park.`\
 https://nytimes.com/athletic/7155101/2026/03/29/yankees-start-to-season-sweep/
