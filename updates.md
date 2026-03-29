@@ -1,3 +1,11 @@
+**One of MLB’s hottest starts in 65 years belongs to a player who barely made the Nationals**\
+`The National League MVP frontrunner is just the third player since 1961 to reach base on each of his first 8 plate appearances of the year`\
+https://nytimes.com/athletic/7156369/2026/03/29/nationals-joey-wiemer-hot-start/
+
+**Browns GM says no plans to trade Myles Garrett despite recent contract modification**\
+`Andrew Berry said the Browns wouldn't have needed a contract modification if they wanted to trade Garrett.`\
+https://nytimes.com/athletic/7156338/2026/03/29/myles-garrett-browns-trade-speculation/
+
 **Browns GM says no plans to trade Myles Garrett despite recent contract modification**\
 `Adam Berry said the Browns wouldn't have needed a contract modification if they wanted to trade Garrett.`\
 https://nytimes.com/athletic/7156338/2026/03/29/myles-garrett-browns-trade-speculation/
