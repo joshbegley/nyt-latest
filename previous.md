@@ -1,3 +1,11 @@
+**How to watch Guardians vs. Mariners: Time, TV, streaming for March 29**\
+`Find out how to watch the Cleveland Guardians play the Seattle Mariners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7156063/2026/03/29/guardians-vs-mariners-stream-how-to-watch-march-29/
+
+**Flyers sign top prospect Porter Martone**\
+`Martone was the No. 6 pick of the 2025 NHL Draft by Philadelphia.`\
+https://nytimes.com/athletic/7154569/2026/03/29/porter-martone-flyers-contract/
+
 **How to watch Knicks vs. Thunder: Time, TV, streaming**\
 `Find out how to watch the New York Knicks play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7156037/2026/03/29/knicks-vs-thunder-stream-how-to-watch-march-29/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7155895/2026/03/29/blackhawks-vs-devils-stream-how-
 **How to watch Stars vs. Flyers: Time, TV, streaming**\
 `Find out how to watch the Dallas Stars play the Philadelphia Flyers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7155893/2026/03/29/stars-vs-flyers-stream-how-to-watch-march-29/
-
-**What we learned from the Giants getting swept to start the 2026 season**\
-`The Giants regrettably scored just one run in their first 27 innings of the season. `\
-https://nytimes.com/athletic/7155058/2026/03/29/giants-what-we-learned-series-sweep/
-
-**How to watch Kings vs. Nets: Time, TV, streaming**\
-`Find out how to watch the Sacramento Kings play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7155807/2026/03/29/kings-vs-nets-stream-how-to-watch-march-29/
 
