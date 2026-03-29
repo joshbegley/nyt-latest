@@ -1,3 +1,7 @@
+**There Are Now Over 50,000 American Troops in the Mideast**\
+`The arrival of 2,500 Marines and another 2,500 sailors is keeping the number of American troops in the region at roughly 10,000 more than usual.`\
+https://nytimes.com/2026/03/29/us/politics/us-marines-middle-east-iran-war.html
+
 **How to watch Guardians vs. Mariners: Time, TV, streaming for March 29**\
 `Find out how to watch the Cleveland Guardians play the Seattle Mariners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7156063/2026/03/29/guardians-vs-mariners-stream-how-to-watch-march-29/
