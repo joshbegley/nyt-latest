@@ -1,3 +1,7 @@
+**First look at women's NCAA Tournament Elite Eight: What to know about every game**\
+`Will all four No. 1 seeds be back in the Final Four? Or will upsets prevail? `\
+https://nytimes.com/athletic/7155174/2026/03/29/ncaa-tournament-womens-elite-eight-breakdown-predictions/
+
 **Ruff? Quenneville? Bowness? Making the case for 8 Jack Adams Award contenders**\
 `In this tight season, almost half the league's coaches have an argument for winning the Jack Adams.`\
 https://nytimes.com/athletic/7149453/2026/03/29/jack-adams-coach-nhl-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7155216/2026/03/29/arizona-purdue-final-four-march-
 **The Iran War Is a Failure of Imagination**\
 `The planners of the Iran war had plenty of on-the-ground intelligence but operated with little insight into the minds of their enemies.`\
 https://nytimes.com/2026/03/29/opinion/israel-us-war-iran-literature.html
-
-**Wordle Review No. 1,745**\
-`Scroll down for hints and conversation about the puzzle for Monday, March 30, 2026.`\
-https://nytimes.com/2026/03/29/crosswords/wordle-review-1745.html
 
