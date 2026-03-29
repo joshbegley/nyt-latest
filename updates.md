@@ -1,3 +1,11 @@
+**Chase DeLauter, the Guardians' golden knight, wreaks havoc on the record books**\
+`DeLauter donned the silver and gold home run helmet for the fourth time in the first three games of his big league career in Saturday's win.`\
+https://nytimes.com/athletic/7153415/2026/03/29/chase-delauter-guardians-home-run-record-history/
+
+**Dodger Details: Pages' next step, Sheehan's velocity, Scott's start**\
+`Pages could be in line for an extension. Plus, Sheehan's mechanics could be an issue, and Scott is finding his way in the bullpen.`\
+https://nytimes.com/athletic/7155074/2026/03/29/dodger-details-andy-pages-emmet-sheehan-tanner-scott/
+
 **How to watch Clippers vs. Bucks: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Milwaukee Bucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7155516/2026/03/29/clippers-vs-bucks-stream-how-to-watch-march-29/
