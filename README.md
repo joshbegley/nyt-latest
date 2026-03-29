@@ -1,3 +1,7 @@
+**How the Iran War Has Rippled Across the World**\
+`Deflated balloons? Pricier sugar? The fighting in the Middle East has played out across the world in sometimes surprising ways.`\
+https://nytimes.com/interactive/2026/03/29/world/middleeast/iran-war-global-impact-economy-fuel.html
+
 **Men's Elite Eight Sunday watch guide: Michigan vs. Tennessee, Duke vs. UConn**\
 `There are two more Final Four tickets left to punch. Here's what to know and when to tune in for Sunday's regional finals.`\
 https://nytimes.com/athletic/7152641/2026/03/29/march-madness-elite-eight-duke-uconn-michigan-tennessee/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7154693/2026/03/29/senegal-afcon-trophy-paris/
 **The science of the warm-up: From ridicule to RAMP, and the nightmare of losing a player to injury**\
 `Player warm-ups, whether for training or on matchday, have become part of the normal routine but there is technique behind making them work`\
 https://nytimes.com/athletic/7107686/2026/03/29/warm-up-football-science-ramp-injury/
-
-**The New York Times in Print for Sunday, March 29, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/03/29/todays-new-york-times
 
