@@ -1,3 +1,7 @@
+**Record Number of T.S.A. Employees Called Out on Friday**\
+`President Trump signed a memo late Friday ordering the Department of Homeland Security to restore pay to airport screeners.`\
+https://nytimes.com/2026/03/28/us/tsa-employees-airports-wait-times.html
+
 **‘No Kings’ Protesters Rally From Coast to Coast**\
 `More than 3,000 demonstrations were planned in the United States on Saturday as part of the “No Kings” movement. Protesters held signs condemning the war in Iran and immigration raids.`\
 https://nytimes.com/video/world/100000010808444/no-kings-protesters-rally-from-coast-to-coast.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7154554/2026/03/28/iowa-illinois-horn-scoreboard-de
 **Pochettino unconcerned after USA's 'painful' 5-2 defeat to Belgium**\
 `The head coach insisted his players had not been "aggressive" enough as they slumped to a heavy defeat`\
 https://nytimes.com/athletic/7154532/2026/03/28/usa-usmnt-pochettino-belgium-painful-world-cup/
-
-**Astronaut’s Condition That Led to Space Station Evacuation Remains a Mystery**\
-`The astronaut, Michael Fincke, experienced a medical emergency in January that rendered him unable to speak, he said.`\
-https://nytimes.com/2026/03/28/science/space/nasa-astronaut-medical-evaluation.html
 
