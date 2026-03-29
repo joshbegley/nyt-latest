@@ -1,9 +1,13 @@
+**Mamdani and Curtis Sliwa Performed a Skit. N.Y. Republicans Are Livid.**\
+`Mayor Zohran Mamdani and his former Republican opponent recorded a skit on cat adoption for the Inner Circle, an annual press corps roast. Some politicians weren’t laughing.`\
+https://nytimes.com/2026/03/29/nyregion/mamdani-sliwa-skit-ny-republicans.html
+
 **Providence College's Duncan Powell arrested for alleged disorderly conduct**\
 `In February, the Big East suspended Powell for three games following a hard foul on St. John's forward Bryce Hopkins.`\
 https://nytimes.com/athletic/7156475/2026/03/29/providence-colleges-duncan-powell-arrested/
 
-**Bernie Sanders, in the Bronx, Presses Hochul to Tax the Rich**\
-`Senator Bernie Sanders, speaking at a rally, backed Mayor Zohran Mamdani’s effort to pressure Gov. Kathy Hochul to raise taxes on millionaires. The mayor was not present.`\
+**Bernie Sanders, in the Bronx, Presses N.Y. Governor to Tax the Rich**\
+`Senator Bernie Sanders, speaking at a rally at Lehman College, lent his support to Mayor Zohran Mamdani’s effort to raise taxes on millionaires. The mayor was not present.`\
 https://nytimes.com/2026/03/29/nyregion/bernie-sanders-tax-the-rich-rally.html
 
 **Nicholas Haysom, Apartheid Foe Who Became a U.N. Peacemaker, Dies at 73**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7156355/2026/03/29/mexico-city-azteca-world-cup/
 **One of MLB’s hottest starts in 65 years belongs to a player who barely made the Nationals**\
 `The National League MVP frontrunner is just the third player since 1961 to reach base on each of his first 8 plate appearances of the year`\
 https://nytimes.com/athletic/7156369/2026/03/29/nationals-joey-wiemer-hot-start/
-
-**Browns GM says no plans to trade Myles Garrett despite recent contract modification**\
-`Andrew Berry said the Browns wouldn't have needed a contract modification if they wanted to trade Garrett.`\
-https://nytimes.com/athletic/7156338/2026/03/29/myles-garrett-browns-trade-speculation/
 

@@ -1,3 +1,11 @@
+**Mamdani and Curtis Sliwa Performed a Skit. N.Y. Republicans Are Livid.**\
+`Mayor Zohran Mamdani and his former Republican opponent recorded a skit on cat adoption for the Inner Circle, an annual press corps roast. Some politicians weren’t laughing.`\
+https://nytimes.com/2026/03/29/nyregion/mamdani-sliwa-skit-ny-republicans.html
+
+**Bernie Sanders, in the Bronx, Presses N.Y. Governor to Tax the Rich**\
+`Senator Bernie Sanders, speaking at a rally at Lehman College, lent his support to Mayor Zohran Mamdani’s effort to raise taxes on millionaires. The mayor was not present.`\
+https://nytimes.com/2026/03/29/nyregion/bernie-sanders-tax-the-rich-rally.html
+
 **Providence College's Duncan Powell arrested for alleged disorderly conduct**\
 `In February, the Big East suspended Powell for three games following a hard foul on St. John's forward Bryce Hopkins.`\
 https://nytimes.com/athletic/7156475/2026/03/29/providence-colleges-duncan-powell-arrested/
