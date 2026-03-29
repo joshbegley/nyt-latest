@@ -1,3 +1,7 @@
+**Verstappen's retirement threat feels shocking. But we shouldn't be surprised**\
+`The Dutch driver would not be the first high-achieving prodigy to walk away early from the sport that has been their life`\
+https://nytimes.com/athletic/7155999/2026/03/29/max-verstappen-f1-retirement-threat/
+
 **There Are Now Over 50,000 American Troops in the Mideast**\
 `The arrival of 2,500 Marines and another 2,500 sailors is keeping the number of American troops in the region at roughly 10,000 more than usual.`\
 https://nytimes.com/2026/03/29/us/politics/us-marines-middle-east-iran-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7153931/2026/03/29/oilers-sign-defenceman-tomas-cib
 **Can Canada’s Left Regroup? A New Leader Will Try.**\
 `Seeking a comeback after voters flocked to Mark Carney’s Liberals, the New Democrats picked Avi Lewis, a scion of a leftist political dynasty.`\
 https://nytimes.com/2026/03/29/world/americas/canada-new-democrats-party-leader-avi-lewis.html
-
-**How to watch Blackhawks vs. Devils: Time, TV, streaming**\
-`Find out how to watch the Chicago Blackhawks play the New Jersey Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7155895/2026/03/29/blackhawks-vs-devils-stream-how-to-watch-march-29/
 
