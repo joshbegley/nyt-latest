@@ -1,3 +1,7 @@
+**Blue Jackets hit first bump in Rick Bowness' tenure with listless loss to Sharks**\
+`Saturday's game marked Columbus' third loss in four games and the first time it has lost consecutive games in regulation since Jan. 10.`\
+https://nytimes.com/athletic/7154679/2026/03/28/blue-jackets-sharks-rick-bowness-nhl-playoffs/
+
 **Amid frustrating stretch for Wild, Kirill Kaprizov needs to be 'better': Takeaways**\
 `The Wild fell behind 3-0 and couldn't come back against the Bruins.`\
 https://nytimes.com/athletic/7154717/2026/03/28/wild-kirill-kaprizov-takeaways-nhl-playoffs/

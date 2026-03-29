@@ -1,3 +1,7 @@
+**Blue Jackets hit first bump in Rick Bowness' tenure with listless loss to Sharks**\
+`Saturday's game marked Columbus' third loss in four games and the first time it has lost consecutive games in regulation since Jan. 10.`\
+https://nytimes.com/athletic/7154679/2026/03/28/blue-jackets-sharks-rick-bowness-nhl-playoffs/
+
 **With 2 star performances, Luis Robert Jr. validating Mets' spring optimism**\
 `Robert's three-run homer in the 11th inning gave the Mets a walk-off win over the Pirates on Saturday.`\
 https://nytimes.com/athletic/7154725/2026/03/28/luis-robert-jr-mets-spring-optimism/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7154490/2026/03/28/nebraska-football-spring-game-an
 **CB Bucknor has 6 pitches overturned via ABS, including challenges by Eugenio Suárez**\
 `Red Sox manager Alex Cora was ejected by Bucknor, who called out Trevor Story on a check swing and had eight pitches challenged.`\
 https://nytimes.com/athletic/7154534/2026/03/28/cb-bucknor-abs-challenges-eugenio-suarez-reds-red-sox/
-
-**Uncontrollable horn delays Iowa-Illinois for 11 minutes in middle of first half**\
-`The Toyota Center scoreboard also stopped working and an air horn had to be used in the Elite Eight matchup in Houston.`\
-https://nytimes.com/athletic/7154554/2026/03/28/iowa-illinois-horn-scoreboard-delay-march-madness/
 
