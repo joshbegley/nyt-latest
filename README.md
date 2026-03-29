@@ -1,3 +1,7 @@
+**Hincapie becomes ninth Arsenal player to withdraw from international squad over break**\
+`On Saturday night, Bukayo Saka and Declan Rice both departed from the England camp and return to Arsenal for "medical assessment".`\
+https://nytimes.com/athletic/7155532/2026/03/29/hincapie-arsenal-injury-news-internationals/
+
 **How to watch Predators vs. Lightning: Time, TV, streaming**\
 `Find out how to watch the Nashville Predators play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7155585/2026/03/29/predators-vs-lightning-stream-how-to-watch-march-29/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/29/opinion/death-penalty.html
 **Whatever Your Chatbot Is Saying, It Isn’t Therapy**\
 `Patients are turning to A.I. chatbots for therapy — and the chatbots are fueling their worst impulses.`\
 https://nytimes.com/2026/03/29/opinion/chatbot-therapy-ai.html
-
-**Pistons, despite injuries, maintaining defensive intensity: 'Stick to the script'**\
-`Detroit's defensive rating during its last six games without All-Star Cade Cunningham ranks second in the NBA.`\
-https://nytimes.com/athletic/7154797/2026/03/29/pistons-defense-nba-cade-cunningham/
 
