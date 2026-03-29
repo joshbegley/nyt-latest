@@ -1,3 +1,7 @@
+**Catholic Leaders Barred From Jerusalem Holy Site on Palm Sunday**\
+`Israeli police stopped clergymen from celebrating the Palm Sunday Mass at the Church of the Holy Sepulchre “for the first time in centuries,” church officials said.`\
+https://nytimes.com/2026/03/29/world/middleeast/catholic-church-jerusalem.html
+
 **49ers' tests indicate Levi's Stadium substation issue a 'nothing burger'**\
 `GM John Lynch said they tested practice fields, weight room, cafeteria, locker room, meetings rooms — anywhere players go — for exposure.`\
 https://nytimes.com/athletic/7156270/2026/03/29/49ers-john-lynch-substation-investigation-results/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7156151/2026/03/29/tiger-woods-play-status-masters-
 **UConn advances to 25th Final Four with win over Notre Dame**\
 `Blanca Quiñonez scored 20 points, while Azzi Fudd and Sarah Strong combined for 34 points.`\
 https://nytimes.com/athletic/7156267/2026/03/29/uconn-notre-dame-final-four-womens-basketball/
-
-**NFL tells teams not to publicly comment on CBA negotiations with officials**\
-`The NFL's competition committee will be presenting two proposals involving officials. `\
-https://nytimes.com/athletic/7156132/2026/03/29/nfl-teams-cba-negotiations-officials/
 
