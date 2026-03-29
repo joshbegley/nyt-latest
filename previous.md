@@ -1,3 +1,11 @@
+**How to watch Bruins vs. Blue Jackets: Time, TV, streaming**\
+`Find out how to watch the Boston Bruins play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155577/2026/03/29/bruins-vs-blue-jackets-stream-how-to-watch-march-29/
+
+**How to watch Canadiens vs. Hurricanes: Time, TV, streaming**\
+`Find out how to watch the Montreal Canadiens play the Carolina Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155575/2026/03/29/canadiens-vs-hurricanes-stream-how-to-watch-march-29/
+
 **Chase DeLauter, the Guardians' golden knight, wreaks havoc on the record books**\
 `DeLauter donned the silver and gold home run helmet for the fourth time in the first three games of his big league career in Saturday's win.`\
 https://nytimes.com/athletic/7153415/2026/03/29/chase-delauter-guardians-home-run-record-history/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7154797/2026/03/29/pistons-defense-nba-cade-cunning
 **The Yankees couldn't have asked for a better start to the season**\
 `Everything came together for the Yankees in their season-opening series against the Giants at Oracle Park.`\
 https://nytimes.com/athletic/7155101/2026/03/29/yankees-start-to-season-sweep/
-
-**Giants are an easy puzzle for Yankees to solve in series sweep**\
-`The Giants didn't produce enough offense to overcome the two-run double that Ben Rice hit in the third inning and Aaron Judge's solo shot.`\
-https://nytimes.com/athletic/7155052/2026/03/29/giants-yankees-sweep-recap-patrick-bailey-vitello/
-
-**How to watch Tennessee vs. Michigan men's basketball: Elite Eight Time, TV, streaming**\
-`Find out how to watch the Tennessee Volunteers play the Michigan Wolverines, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7155425/2026/03/29/tennessee-vs-michigan-stream-how-to-watch-march-29/
 

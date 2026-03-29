@@ -1,3 +1,11 @@
+**How to watch Bruins vs. Blue Jackets: Time, TV, streaming**\
+`Find out how to watch the Boston Bruins play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155577/2026/03/29/bruins-vs-blue-jackets-stream-how-to-watch-march-29/
+
+**How to watch Canadiens vs. Hurricanes: Time, TV, streaming**\
+`Find out how to watch the Montreal Canadiens play the Carolina Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7155575/2026/03/29/canadiens-vs-hurricanes-stream-how-to-watch-march-29/
+
 **Chase DeLauter, the Guardians' golden knight, wreaks havoc on the record books**\
 `DeLauter donned the silver and gold home run helmet for the fourth time in the first three games of his big league career in Saturday's win.`\
 https://nytimes.com/athletic/7153415/2026/03/29/chase-delauter-guardians-home-run-record-history/
