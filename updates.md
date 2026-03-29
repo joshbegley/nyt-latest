@@ -1,3 +1,23 @@
+**The science of the warm-up: From ridicule to RAMP, and the nightmare of losing a player to injury**\
+`Player warm-ups, whether for training or on matchday, have become part of the normal routine but there is technique behind making them work`\
+https://nytimes.com/athletic/7107686/2026/03/29/warm-up-football-science-ramp-injury/
+
+**The New York Times in Print for Sunday, March 29, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/29/todays-new-york-times
+
+**Marshall McLuhan Was Right About Claude, Too**\
+`A.I. will reshape us. It is already reshaping us.`\
+https://nytimes.com/2026/03/29/opinion/ai-claude-chatgpt-gemini-mcluhan.html
+
+**Help! My Favorite Athlete Is an Idiot.**\
+`Sports used to be an oasis from political squabbling. But now the bad opinions of star athletes have become impossible to escape.`\
+https://nytimes.com/2026/03/29/opinion/sports-politics-athletes-opinions.html
+
+**Goodbye, ‘Queer Eye.’ Goodbye, Queer Acceptance.**\
+`Today even tolerance is in doubt.`\
+https://nytimes.com/2026/03/29/opinion/queer-eye-finale-america-lgbtq.html
+
 **Here’s the latest.**\
 `By Pranav Baskar, Helene Cooper and James C. McKinley Jr.`\
 https://nytimes.com/live/2026/03/29/world/iran-war-trump-israel-oil/heres-the-latest
