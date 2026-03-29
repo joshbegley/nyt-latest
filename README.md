@@ -2,13 +2,13 @@
 `Player warm-ups, whether for training or on matchday, have become part of the normal routine but there is technique behind making them work`\
 https://nytimes.com/athletic/7107686/2026/03/29/warm-up-football-science-ramp-injury/
 
-**The New York Times in Print for Sunday, March 29, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/03/29/todays-new-york-times
-
 **Marshall McLuhan Was Right About Claude, Too**\
 `A.I. will reshape us. It is already reshaping us.`\
 https://nytimes.com/2026/03/29/opinion/ai-claude-chatgpt-gemini-mcluhan.html
+
+**The New York Times in Print for Sunday, March 29, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/29/todays-new-york-times
 
 **Help! My Favorite Athlete Is an Idiot.**\
 `Sports used to be an oasis from political squabbling. But now the bad opinions of star athletes have become impossible to escape.`\
