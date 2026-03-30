@@ -1,3 +1,11 @@
+**Is Trump Threatening to Commit a War Crime?**\
+`The bombing campaign Mr. Trump is threatening in Iran could affect millions of Iranian civilians’ access to water, electricity and food.`\
+https://nytimes.com/2026/03/30/opinion/international-world/is-trump-threatening-to-commit-a-war-crime.html
+
+**What I learned about the Lions: How Dan Campbell eyes team getting back that hunger**\
+`Campbell also said he was ready to move Penei Sewell to left tackle if needed and that he was excited about adding center Cade Mays.`\
+https://nytimes.com/athletic/7158394/2026/03/30/detroit-lions-dan-campbell-2026-league-meeting/
+
 **Palm Sunday Attack in Nigeria Leaves at Least 12 Dead**\
 `No one has claimed responsibility for the killings in the mostly Christian city of Jos, and the police have yet to arrest the gunmen.`\
 https://nytimes.com/2026/03/30/world/africa/palm-sunday-attack-nigeria-dead.html
