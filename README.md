@@ -1,3 +1,7 @@
+**Vikings plan to pick up wide receiver Jordan Addison's fifth-year option: Sources**\
+`Despite a down season, the Vikings still view Addison as a key cog of their passing attack.`\
+https://nytimes.com/athletic/7159037/2026/03/30/vikings-jordan-addison-fifth-year-option/
+
 **Bills GM Brandon Beane: Dalton Kincaid's fifth-year option picked up, open to more WR help**\
 `Beane also spoke about moving back into the second round, joint practice, and more.`\
 https://nytimes.com/athletic/7158949/2026/03/30/bills-brandon-beane-dalton-kincaid-knee/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/30/us/north-dakota-facial-recognition-ai-errors-bank
 **NFL to launch men and women's pro flag football leagues**\
 `The NFL will partner with TMRW Sports, which helped develop and launch the prime-time team golf league TGL.`\
 https://nytimes.com/athletic/7158999/2026/03/30/nfl-flag-football-pro-leagues-men-women-brady-manning/
-
-**Super Bowl to return to Las Vegas' Allegiant Stadium in 2029**\
-`This will mark the second time Las Vegas hosts the NFL's marquee event.`\
-https://nytimes.com/athletic/7147267/2026/03/30/super-bowl-63-las-vegas-allegiant-stadium/
 
