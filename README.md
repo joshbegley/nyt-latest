@@ -1,3 +1,7 @@
+**Move to center latest change for Frondell as Blackhawks rookie adjusts to NHL**\
+`Coach Jeff Blashill thought Frondell might be a fit down the middle in the NHL and took the opportunity to try him in the new position.`\
+https://nytimes.com/athletic/7156463/2026/03/29/anton-frondell-blackhawks-center-levshunov-injury-devils/
+
 **NFL could hire replacement officials as soon as May as labor dispute intensifies: Sources**\
 `The current collective bargaining agreement between the NFL and the NFL Referees Association expires on May 31.`\
 https://nytimes.com/athletic/7156933/2026/03/29/nfl-replacement-officials-preseason-games/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7156908/2026/03/29/ucla-angela-dugalic-final-four/
 **Men's NCAA Tournament odds: Arizona, Michigan emerge as favorites after Duke's exit**\
 `Arizona and Michigan, the two No. 1 seeds remaining, enter the Final Four as favorites to win the national title.`\
 https://nytimes.com/athletic/7156898/2026/03/29/ncaa-tournament-odds-mens-arizona-michigan-illinois-uconn/
-
-**Vegas' relentless culture led to Cassidy's firing, but who really deserves the blame?**\
-`Vegas has long showed it will do anything to win, but can quick-fixer John Tortorella win with this roster?`\
-https://nytimes.com/athletic/7156790/2026/03/29/vegas-golden-knights-coach-cassidy-fired-tortorella/
 
