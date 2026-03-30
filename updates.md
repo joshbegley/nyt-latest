@@ -1,3 +1,15 @@
+**NC State hiring Vols assistant, former Wolfpack player Justin Gainey as coach**\
+`Gainey played at NC State from 1996 to 2000 under Herb Sendek, ending his career fourth in program history in steals and ninth in assists.`\
+https://nytimes.com/athletic/7156484/2026/03/30/justin-gainey-nc-state-mens-basketball-coach-search/
+
+**Air Canada C.E.O. to Step Down Amid Backlash Over Comments After Crash**\
+`Michael Rousseau’s mostly English statement after a fatal runway collision drew sharp criticism. The airline said it would emphasize French fluency in its search for a successor.`\
+https://nytimes.com/2026/03/30/business/air-canada-ceo-crash-retire.html
+
+**The Athletic college baseball top 25: Florida vaults to No. 16 after sweeping Arkansas**\
+`The Gators and Boston College are new entrants this week, replacing NC State and Tennesssee.`\
+https://nytimes.com/athletic/7157672/2026/03/30/college-baseball-rankings-florida-arkansas-ucla-texas/
+
 **Lawsuit Accuses Americans of Political Killings for Hire Overseas**\
 `Three men working for an American security contractor say the United Arab Emirates paid them to carry out targeted killings in Yemen. One of their targets is suing them in U.S. federal court.`\
 https://nytimes.com/2026/03/30/world/middleeast/yemen-assassination-lawsuit-americans.html
