@@ -1,40 +1,40 @@
-**Myanmar’s Military Leader Moves One Step Closer to Becoming President**\
-`Senior Gen. Min Aung Hlaing stepped down as commander in chief and is expected to be installed as the next civilian leader of the country by its rubber-stamp Parliament.`\
-https://nytimes.com/2026/03/30/world/asia/myanmar-min-aung-hlaing-president.html
+**How Trump’s Border Policies Have Hurt New York**\
+`Fewer international tourists are visiting, and fewer immigrants are moving here. The city needs both groups, experts say.`\
+https://nytimes.com/2026/03/30/nyregion/how-trumps-border-policies-have-hurt-new-york.html
 
-**SGA, Wemby, Luka and the Joker: how the NBA's best compare in the MVP race and beyond**\
-`All four stars are doing things we've rarely seen, but who will own the NBA a year from now? `\
-https://nytimes.com/athletic/7152508/2026/03/30/nba-best-player-debate-sga-wemby-luka-jokic/
+**A New Boss Takes Over Homeland Security With Less Flash but Same Mission**\
+`Markwayne Mullin, the incoming D.H.S. secretary, faces a difficult balance: a public reset of the agency while delivering on President Trump’s deportation agenda.`\
+https://nytimes.com/2026/03/30/us/politics/markwayne-mullin-new-era-homeland-security.html
 
-**Artemis II Crew Prepares for Moon Launch**\
-`The four astronauts of the Artemis II, the first crewed mission to the moon since Apollo in 1972, spoke to the news media leading up to Wednesday’s launch window.`\
-https://nytimes.com/video/science/space/100000010809567/artemis-moon-launch-nasa-astronauts.html
+**Trump Will Gladly Do the Jitterbug on Your Grave**\
+`The president’s depravity is deathless`\
+https://nytimes.com/2026/03/30/opinion/trump-death-mueller.html
 
-**Here’s the latest.**\
-`By David E. Sanger, Aaron Boxerman and Sanam Mahoozi`\
-https://nytimes.com/live/2026/03/30/world/iran-war-trump-oil-news/heres-the-latest
+**Destinations So Good They’re Worth a Return Journey**\
+`Even travel influencers, who spend their lives on the go, have their hearts stolen by certain places.`\
+https://nytimes.com/2026/03/30/travel/travel-influencer-destinations.html
 
-**Iran War Live Updates: Trump Says Iran to Allow More Oil Ships Through Strait of Hormuz**\
-`President Trump characterized the move as a “sign of respect” even as fighting between Israel and Iran continued and the war dragged into its second month.`\
-https://nytimes.com/live/2026/03/30/world/iran-war-trump-oil-news
+**Can You Fake Being Rich?**\
+`A spate of popular social media accounts offer advice on how to achieve an “old-money” look.`\
+https://nytimes.com/2026/03/30/style/can-you-fake-being-rich.html
 
-**The Founder of an ‘Orgasmic Meditation’ Group Is in Jail. And at Dinner?**\
-`Nicole Daedone, the former leader of OneTaste, is set to be sentenced after being convicted of forced labor conspiracy last year. But she is still finding ways to spread her message from behind bars.`\
-https://nytimes.com/2026/03/30/nyregion/nicole-daedone-one-taste-sentencing.html
+**Noah Lyles’ Master Plan, M.L.B.’s Opening Act, and the Death of Amateurism**\
+`The M.L.B. regular season officially kicked off Wednesday and we are getting you prepped.`\
+https://nytimes.com/2026/03/30/podcasts/noah-lyles-master-plan-mlbs-opening-act-and-the-death-of-amateurism.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/03/30/crosswords/spelling-bee-forum.html
+**Private-Credit Wobbles Could Prove Perilous for Trump**\
+`The Trump administration is poised to broaden access to risky investments that are showing signs of strain.`\
+https://nytimes.com/2026/03/30/business/private-credit-risks-trump-administration.html
 
-**How UConn's Mullins Magic creates a March Madness memory that will last forever**\
-`I never thought I'd see Duke get Christian Laettner’d in my lifetime, but wouldn't you know it, I just did.`\
-https://nytimes.com/athletic/7157051/2026/03/30/uconn-duke-game-history/
+**Can Shapewear Actually Give Me a Flat Stomach?**\
+`Shapewear can certainly make our bodies fit a certain ideal, but it can’t do all the heavy lifting. Our critic offers tips for managing your expectations.`\
+https://nytimes.com/2026/03/30/fashion/shapewear-spanx-skims.html
 
-**What's the best men's NCAA Tournament shot ever? Braylon Mullins joins our list of favorites**\
-`Braylon Mullins and UConn delivered an all-time classic March Madness moment against Duke. How does it stack up with other memorable shots?`\
-https://nytimes.com/athletic/7156682/2026/03/30/braylon-mullins-shot-best-ever-march-madness-ncaa-tournament/
+**Trump’s Birthright Citizenship Order at Supreme Court Splits Conservative Scholars**\
+`Before President Trump’s order to limit birthright citizenship, there was widespread agreement that the 14th Amendment guaranteed citizenship for U.S.-born babies.`\
+https://nytimes.com/2026/03/30/us/politics/supreme-court-trump-birthright-conservatives.html
 
-**In first days of MLB’s ABS era, see which umpires, players and teams thrived — and struggled**\
-`In just one weekend with ABS, several games have been flipped on their heads as a result of a literal tap on the head.`\
-https://nytimes.com/athletic/7156691/2026/03/30/mlb-abs-challenges-results/
+**MAGA Was Supposed to Be Antiwar. Nope.**\
+`It might be time to ditch some common assumptions about Republicans.`\
+https://nytimes.com/2026/03/30/opinion/iran-war-trump-maga.html
 

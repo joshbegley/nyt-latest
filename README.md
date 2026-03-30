@@ -1,3 +1,27 @@
+**In Arkansas, a House That Compels Passers-by to Stop and Look**\
+`A couple in Bentonville, Arkansas hired Marlon Blackwell Architects to design a home with easy access to the Crystal Bridges Museum.`\
+https://nytimes.com/2026/03/30/realestate/bentonville-marlon-blackwell-home-build.html
+
+**What’s Your Favorite Season?**\
+`Recent surveys show Americans prefer fall over spring and other seasons. What time of year do you most look forward to?`\
+https://nytimes.com/2026/03/30/learning/whats-your-favorite-season.html
+
+**Dancing in Space: Rethinking Bodies Without Gravity**\
+`As a new commercial era of space exploration accelerates, scientists are considering the physical culture of outer space. Dancers are well positioned to help.`\
+https://nytimes.com/2026/03/30/arts/dance/dancers-gravity-scientists-space.html
+
+**Confessions of a 17th-Century Diarist, Power Broker and Predator**\
+`Samuel Pepys’s journals are an invaluable record of British history. A new book reconsiders his infamous sexual exploits.`\
+https://nytimes.com/2026/03/30/books/review/confessions-of-samuel-pepys-bedoyere.html
+
+**$2.5 Million Homes in California**\
+`A midcentury modern in Los Angeles, a Queen Anne Revival in Alameda and a contemporary house in Laguna Beach.`\
+https://nytimes.com/2026/03/30/realestate/laguna-beach-la-alameda-home-sales.html
+
+**What We Know About the T.S.A. and ICE Presence at Airports**\
+`Transportation Security Agency officers have called out of work or quit after weeks of not getting paid during a partial government shutdown. ICE agents have begun to fill their roles.`\
+https://nytimes.com/2026/03/30/us/what-we-know-tsa-ice-airports.html
+
 **How Trump’s Border Policies Have Hurt New York**\
 `Fewer international tourists are visiting, and fewer immigrants are moving here. The city needs both groups, experts say.`\
 https://nytimes.com/2026/03/30/nyregion/how-trumps-border-policies-have-hurt-new-york.html
@@ -13,28 +37,4 @@ https://nytimes.com/2026/03/30/opinion/trump-death-mueller.html
 **Destinations So Good They’re Worth a Return Journey**\
 `Even travel influencers, who spend their lives on the go, have their hearts stolen by certain places.`\
 https://nytimes.com/2026/03/30/travel/travel-influencer-destinations.html
-
-**Can You Fake Being Rich?**\
-`A spate of popular social media accounts offer advice on how to achieve an “old-money” look.`\
-https://nytimes.com/2026/03/30/style/can-you-fake-being-rich.html
-
-**Noah Lyles’ Master Plan, M.L.B.’s Opening Act, and the Death of Amateurism**\
-`The M.L.B. regular season officially kicked off Wednesday and we are getting you prepped.`\
-https://nytimes.com/2026/03/30/podcasts/noah-lyles-master-plan-mlbs-opening-act-and-the-death-of-amateurism.html
-
-**Private-Credit Wobbles Could Prove Perilous for Trump**\
-`The Trump administration is poised to broaden access to risky investments that are showing signs of strain.`\
-https://nytimes.com/2026/03/30/business/private-credit-risks-trump-administration.html
-
-**Can Shapewear Actually Give Me a Flat Stomach?**\
-`Shapewear can certainly make our bodies fit a certain ideal, but it can’t do all the heavy lifting. Our critic offers tips for managing your expectations.`\
-https://nytimes.com/2026/03/30/fashion/shapewear-spanx-skims.html
-
-**Trump’s Birthright Citizenship Order at Supreme Court Splits Conservative Scholars**\
-`Before President Trump’s order to limit birthright citizenship, there was widespread agreement that the 14th Amendment guaranteed citizenship for U.S.-born babies.`\
-https://nytimes.com/2026/03/30/us/politics/supreme-court-trump-birthright-conservatives.html
-
-**MAGA Was Supposed to Be Antiwar. Nope.**\
-`It might be time to ditch some common assumptions about Republicans.`\
-https://nytimes.com/2026/03/30/opinion/iran-war-trump-maga.html
 
