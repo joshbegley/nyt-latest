@@ -1,3 +1,7 @@
+**Iran War’s Latest Economic Toll: Oil at $115 a Barrel**\
+`Economists and investors are increasingly pricing in a slowdown, or even a global recession, if the fighting drags on.`\
+https://nytimes.com/2026/03/30/business/dealbook/iran-war-oil-economy.html
+
 **UEFA to freeze Euro 2028 ticket prices in stark contrast to FIFA’s World Cup policy**\
 `The prices for the tournament will broadly correspond with the €30/€60 figures used in Germany two years ago.`\
 https://nytimes.com/athletic/7157502/2026/03/30/euro-2028-ticket-prices-uefa-world-cup/
