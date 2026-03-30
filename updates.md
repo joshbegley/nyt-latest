@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Still recovering from that UConn-Duke Elite Eight ending? Maybe turn your attention to some offseason college football.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/7157268/2026/03/30/submit-a-question-for-stewart-mandels-college-football-mailbag-340/
+
 **Manchester United squad audit: Exploring every player's contract and transfer status**\
 `Analysing the transfer and contract status of every Manchester United player`\
 https://nytimes.com/athletic/7152518/2026/03/30/manchester-united-transfers-squad-audit/

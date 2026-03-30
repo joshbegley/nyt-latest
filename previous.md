@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Still recovering from that UConn-Duke Elite Eight ending? Maybe turn your attention to some offseason college football.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/7157268/2026/03/30/submit-a-question-for-stewart-mandels-college-football-mailbag-340/
+
 **Manchester United squad audit: Exploring every player's contract and transfer status**\
 `Analysing the transfer and contract status of every Manchester United player`\
 https://nytimes.com/athletic/7152518/2026/03/30/manchester-united-transfers-squad-audit/
@@ -33,8 +39,4 @@ https://nytimes.com/athletic/7155632/2026/03/30/manchester-united-city-derby-blu
 **Hurzeler, the Leverkusen links and what comes next for Brighton's head coach?**\
 `The German may have options in his homeland and the possibility of managing in the Champions League could be an option for him`\
 https://nytimes.com/athletic/7146510/2026/03/30/fabian-hurzeler-brighton-future/
-
-**Connections: Sports Edition Coach: Hints and answers for March 30, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7157236/2026/03/30/connections-sports-edition-hints-answers-march-30-2026/
 
