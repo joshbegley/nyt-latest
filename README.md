@@ -1,3 +1,11 @@
+**Support for Israel Is Collapsing. Netanyahu Sees That.**\
+`Prime Minister Benjamin Netanyahu of Israel is racing to eliminate regional threats because he sees that U.S. support for the country is collapsing, Mona Charen, the policy editor at The Bulwark, argues on “The Opinions.”`\
+https://nytimes.com/video/opinion/100000010806926/support-for-israel-is-collapsing-netanyahu-sees-that.html
+
+**Former Olympic sprinter Adam Gemili working with Chelsea academy**\
+`Gemili, who announced his retirement from athletics on Monday, spent seven years in the club's youth system before switching to sprinting.`\
+https://nytimes.com/athletic/7158535/2026/03/30/chelsea-academy-adam-gemili-sprinter/
+
 **Scoop City: Why running backs tumble down draft boards**\
 `Four reasons why drafting elite running backs like Jeremiyah Love isn't the smartest move, even in an underwhelming draft class`\
 https://nytimes.com/athletic/7158539/2026/03/30/four-reasons-why-running-backs-like-jeremiyah-love-are-no-longer-drafted-so-early/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/03/30/us/politics/gitmo-cuba-trump.html
 **California’s Warmest, Driest March in Years Is Finally Ending**\
 `Parts of the state are expected to see light rain this week.`\
 https://nytimes.com/2026/03/30/weather/california-rain-heat-march.html
-
-**Matt LaFleur suggests disgruntled players took a toll on Packers last season**\
-`LaFleur declined to specify if the players who were unhappy with their roles last season are still on the team.`\
-https://nytimes.com/athletic/7158275/2026/03/30/matt-lafleur-packers-nfl-league-meeting/
-
-**Pochettino insists he is open to staying as USMNT coach after World Cup**\
-`The USMNT head coach has repeatedly been linked with a return to European club soccer`\
-https://nytimes.com/athletic/7158441/2026/03/30/pochettino-usmnt-coach-return-world-cup/
 

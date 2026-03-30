@@ -1,3 +1,7 @@
+**Scoop City: Why running backs tumble down draft boards**\
+`Four reasons why drafting elite running backs like Jeremiyah Love isn't the smartest move, even in an underwhelming draft class`\
+https://nytimes.com/athletic/7158539/2026/03/30/four-reasons-why-running-backs-like-jeremiyah-love-are-no-longer-drafted-so-early/
+
 **Why Did the U.S. Allow a Russian Oil Tanker Through Its Cuba Blockade?**\
 `The ship’s arrival would bring Cuba some badly needed fuel. It also marks a shift from U.S. efforts to block oil shipments and pressure the Cuban government.`\
 https://nytimes.com/2026/03/30/world/americas/russian-oil-tanker-cuba.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7158275/2026/03/30/matt-lafleur-packers-nfl-league-
 **Pochettino insists he is open to staying as USMNT coach after World Cup**\
 `The USMNT head coach has repeatedly been linked with a return to European club soccer`\
 https://nytimes.com/athletic/7158441/2026/03/30/pochettino-usmnt-coach-return-world-cup/
-
-**Timberwolves lose Jaden McDaniels as Minnesota makes playoff push**\
-`With McDaniels, one of Minnesota's most durable and versatile players sidelined, the Timberwolves' depth will be tested. `\
-https://nytimes.com/athletic/7158434/2026/03/30/jaden-mcdaniels-injury-timberwolves-nba/
 

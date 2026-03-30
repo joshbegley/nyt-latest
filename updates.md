@@ -1,3 +1,7 @@
+**Scoop City: Why running backs tumble down draft boards**\
+`Four reasons why drafting elite running backs like Jeremiyah Love isn't the smartest move, even in an underwhelming draft class`\
+https://nytimes.com/athletic/7158539/2026/03/30/four-reasons-why-running-backs-like-jeremiyah-love-are-no-longer-drafted-so-early/
+
 **Why Did the U.S. Allow a Russian Oil Tanker Through Its Cuba Blockade?**\
 `The ship’s arrival would bring Cuba some badly needed fuel. It also marks a shift from U.S. efforts to block oil shipments and pressure the Cuban government.`\
 https://nytimes.com/2026/03/30/world/americas/russian-oil-tanker-cuba.html
