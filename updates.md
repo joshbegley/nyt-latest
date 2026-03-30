@@ -1,3 +1,15 @@
+**Pennsylvania First Congressional District 2026: Latest Polls**\
+`Track the latest polls in Pennsylvania's 1st Congressional District.`\
+https://nytimes.com/interactive/polls/pennsylvania-us-house-1-polls-2026.html
+
+**Man Pleads Not Guilty in Fatal Subway Shoving of 83-Year-Old Veteran**\
+`Prosecutors on Monday said Bairon Hernandez pushed Richard Williams, who later died, onto the tracks. They said the attack was the second by Mr. Hernandez at the station that day.`\
+https://nytimes.com/2026/03/30/nyregion/subway-push-death-veteran.html
+
+**NBA approves Trail Blazers' sale to Tom Dundon at $4.25 billion valuation: Source**\
+`The transaction will mark the first time since 1988 that the Blazers have not been owned by Paul Allen or his sister, Jody.`\
+https://nytimes.com/athletic/7129015/2026/03/30/trail-blazers-sold-tom-dundon-nba/
+
 **New Arizona State men's basketball coach Randy Bennett slowed by 'health situation'**\
 `In a statement released Monday, Bennett said "everything is under control, and I will be back at full strength very soon."`\
 https://nytimes.com/athletic/7158625/2026/03/30/arizona-state-mens-basketball-coach-randy-bennett-health/

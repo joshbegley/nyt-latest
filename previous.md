@@ -1,3 +1,15 @@
+**Pennsylvania First Congressional District 2026: Latest Polls**\
+`Track the latest polls in Pennsylvania's 1st Congressional District.`\
+https://nytimes.com/interactive/polls/pennsylvania-us-house-1-polls-2026.html
+
+**Man Pleads Not Guilty in Fatal Subway Shoving of 83-Year-Old Veteran**\
+`Prosecutors on Monday said Bairon Hernandez pushed Richard Williams, who later died, onto the tracks. They said the attack was the second by Mr. Hernandez at the station that day.`\
+https://nytimes.com/2026/03/30/nyregion/subway-push-death-veteran.html
+
+**NBA approves Trail Blazers' sale to Tom Dundon at $4.25 billion valuation: Source**\
+`The transaction will mark the first time since 1988 that the Blazers have not been owned by Paul Allen or his sister, Jody.`\
+https://nytimes.com/athletic/7129015/2026/03/30/trail-blazers-sold-tom-dundon-nba/
+
 **New Arizona State men's basketball coach Randy Bennett slowed by 'health situation'**\
 `In a statement released Monday, Bennett said "everything is under control, and I will be back at full strength very soon."`\
 https://nytimes.com/athletic/7158625/2026/03/30/arizona-state-mens-basketball-coach-randy-bennett-health/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7158694/2026/03/30/maple-leafs-vs-ducks-stream-how-
 **Gus Malzahn among new CFP selection committee members; Hunter Yurachek extended as chair**\
 `Malzahn, the former Auburn coach, retired this offseason after a one-year stint as Florida State's offensive coordinator.`\
 https://nytimes.com/athletic/7158569/2026/03/30/gus-malzahn-jeff-tedford-cfp-committee/
-
-**How to watch Giants vs. Padres: Time, TV, streaming for March 30**\
-`Find out how to watch the San Francisco Giants play the San Diego Padres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7158686/2026/03/30/giants-vs-padres-stream-how-to-watch-march-30/
-
-**How to watch Yankees vs. Mariners: Time, TV, streaming for March 30**\
-`Find out how to watch the New York Yankees play the Seattle Mariners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7158671/2026/03/30/yankees-vs-mariners-stream-how-to-watch-march-30/
-
-**How to watch Tigers vs. Diamondbacks: Time, TV, streaming for March 30**\
-`Find out how to watch the Detroit Tigers play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7158658/2026/03/30/tigers-vs-diamondbacks-stream-how-to-watch-march-30/
 
