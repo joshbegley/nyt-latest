@@ -1,3 +1,19 @@
+**In a lost season, the Rangers have at least uncovered some intriguing bottom-six depth**\
+`Three rookies made a clear impact against the Panthers in just the Rangers' 11th win at Madison Square Garden this season.`\
+https://nytimes.com/athletic/7156596/2026/03/29/new-york-rangers-roster-depth-sykora-chmelar-laba-panthers/
+
+**Tatsuya Imai's MLB debut disappoints as command issues lead to early exit**\
+`The Japanese starter admitted he was "kind of nervous" after an outing that showed his transition to MLB is a work in progress.`\
+https://nytimes.com/athletic/7156650/2026/03/29/tatsuya-imai-mlb-debut-houston-astros/
+
+**Fans at World Cup risk facing ‘troubling attacks on human rights’, warns Amnesty**\
+`The human rights organisation says the U.S. is “facing a human rights emergency” while risks in co-hosts Mexico and Canada are also covered.`\
+https://nytimes.com/athletic/7154144/2026/03/29/world-cup-fans-human-rights-report/
+
+**Struggling Magic allow 31-0 run to Raptors as late-season slide continues**\
+`Toronto's 31-0 run against Orlando is the longest in the Play-by-Play era (1997-98), surpassing the Mavs' 30-0 run vs. the Thunder in 2023.`\
+https://nytimes.com/athletic/7156620/2026/03/29/nba-magic-raptors-game-turnover-starters-season/
+
 **Struggling Magic allow 31-0 run to Raptors as season-ending slide continues**\
 `Toronto's 31-0 run against Orlando is the longest in the Play-by-Play era (1997-98), surpassing the Mavs' 30-0 run vs. the Thunder in 2023.`\
 https://nytimes.com/athletic/7156620/2026/03/29/nba-magic-raptors-game-turnover-starters-season/

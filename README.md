@@ -1,3 +1,7 @@
+**First look at the men's Final Four: Why Michigan-Arizona, UConn-Illinois will be thrilling**\
+`Michigan and Arizona are arguably the nation's two best teams, UConn is going for a third title in four years, and Illinois wants its first.`\
+https://nytimes.com/athletic/7156435/2026/03/29/final-four-schedule-matchups-march-madness/
+
 **In a lost season, the Rangers have at least uncovered some intriguing bottom-six depth**\
 `Three rookies made a clear impact against the Panthers in just the Rangers' 11th win at Madison Square Garden this season.`\
 https://nytimes.com/athletic/7156596/2026/03/29/new-york-rangers-roster-depth-sykora-chmelar-laba-panthers/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/29/world/middleeast/iran-israel-united-states-war-re
 **Mets fans are booing Bo Bichette and he gets it: 'I thought my at-bats were terrible'**\
 `Bichette’s failures to cash in with runners on base contributed to a lackluster loss to the Pirates. `\
 https://nytimes.com/athletic/7156564/2026/03/29/mets-bo-bichette-boos-strikeouts/
-
-**Three in four Premier League fans want VAR scrapped, new survey finds**\
-`The latest FSA survey also found that nine out of ten Premier League fans believe VAR has made football less enjoyable.`\
-https://nytimes.com/athletic/7156023/2026/03/29/premier-league-fans-var-fsa-survey/
 
