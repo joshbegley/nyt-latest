@@ -1,3 +1,7 @@
+**SGA, Wemby, Luka and the Joker: how the NBA's best compare in the MVP race and beyond**\
+`All four stars are doing things we've rarely seen, but who will own the NBA a year from now? `\
+https://nytimes.com/athletic/7152508/2026/03/30/nba-best-player-debate-sga-wemby-luka-jokic/
+
 **Artemis II Crew Prepares for Moon Launch**\
 `The four astronauts of the Artemis II, the first crewed mission to the moon since Apollo in 1972, spoke to the news media leading up to Wednesday’s launch window.`\
 https://nytimes.com/video/science/space/100000010809567/artemis-moon-launch-nasa-astronauts.html

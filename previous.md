@@ -1,3 +1,7 @@
+**SGA, Wemby, Luka and the Joker: how the NBA's best compare in the MVP race and beyond**\
+`All four stars are doing things we've rarely seen, but who will own the NBA a year from now? `\
+https://nytimes.com/athletic/7152508/2026/03/30/nba-best-player-debate-sga-wemby-luka-jokic/
+
 **Artemis II Crew Prepares for Moon Launch**\
 `The four astronauts of the Artemis II, the first crewed mission to the moon since Apollo in 1972, spoke to the news media leading up to Wednesday’s launch window.`\
 https://nytimes.com/video/science/space/100000010809567/artemis-moon-launch-nasa-astronauts.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7156691/2026/03/30/mlb-abs-challenges-results/
 **Word of the Day: clemency**\
 `This word has appeared in 201 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/30/learning/word-of-the-day-clemency.html
-
-**2 Australian States Waive Transit Fares as Fuel Prices Soar**\
-`The measures in Victoria and Tasmania are temporary, but show how far and how intensely the oil shock from the war in Iran has spread.`\
-https://nytimes.com/2026/03/30/world/australia/australia-melbourne-free-transit.html
 
