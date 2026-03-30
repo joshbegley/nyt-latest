@@ -1,3 +1,7 @@
+**Myanmar’s Military Leader Moves One Step Closer to Becoming President**\
+`Senior Gen. Min Aung Hlaing stepped down as commander in chief and is expected to be installed as the next civilian leader of the country by its rubber-stamp Parliament.`\
+https://nytimes.com/2026/03/30/world/asia/myanmar-min-aung-hlaing-president.html
+
 **SGA, Wemby, Luka and the Joker: how the NBA's best compare in the MVP race and beyond**\
 `All four stars are doing things we've rarely seen, but who will own the NBA a year from now? `\
 https://nytimes.com/athletic/7152508/2026/03/30/nba-best-player-debate-sga-wemby-luka-jokic/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7156682/2026/03/30/braylon-mullins-shot-best-ever-m
 **In first days of MLB’s ABS era, see which umpires, players and teams thrived — and struggled**\
 `In just one weekend with ABS, several games have been flipped on their heads as a result of a literal tap on the head.`\
 https://nytimes.com/athletic/7156691/2026/03/30/mlb-abs-challenges-results/
-
-**Word of the Day: clemency**\
-`This word has appeared in 201 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/03/30/learning/word-of-the-day-clemency.html
 
