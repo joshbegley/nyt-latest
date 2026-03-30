@@ -1,3 +1,15 @@
+**Mark Cuban on selling the Mavericks: 'I regret who I sold to'**\
+`Cuban still owns a 27 percent stake in the franchise and attends many home games despite Dallas' struggles.`\
+https://nytimes.com/athletic/7158840/2026/03/30/mark-cuban-mavericks-sale-regret/
+
+**Don’t Know Where to Go This Summer? Let Us Help!**\
+`We’re responding to readers’ travel quandaries with our suggestions.`\
+https://nytimes.com/2026/03/30/t-magazine/summer-vacation-travel-ideas.html
+
+**John Tortorella joins Golden Knights, focuses on mindset: 'I do not want to change a lot'**\
+`Tortorella quickly got in touch with former coach Bruce Cassidy, and said he wants to see Vegas play faster.`\
+https://nytimes.com/athletic/7158928/2026/03/30/john-tortorella-golden-knights/
+
 **Paintings Worth Millions of Dollars Stolen From Italian Museum**\
 `Thieves stole three paintings by Renoir, Cézanne and Matisse from the Magnani-Rocca Foundation in Mamiano, Italy.`\
 https://nytimes.com/video/world/europe/100000010810347/italy-art-stolen-renoir-matisse-cezanne.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/30/us/politics/iran-leaders-trump-war.html
 **Trump Zigzags on Iran, Claiming ‘Great Progress’ but Making Threats**\
 `President Trump threatened to hit vital infrastructure in Iran if the Strait of Hormuz was not reopened, but he also said that “regime change” had already been achieved.`\
 https://nytimes.com/2026/03/30/world/middleeast/trump-iran-threats-kharg-island.html
-
-**For-Internal-Testing-Only**\
-`For-Internal-Testing-Only`\
-https://nytimes.com/paidpost/for-internal-testing-only/for-internal-testing-only.html
-
-**Bucs coach Todd Bowles bemoans lack of Black head coaches in the NFL**\
-`Bowles, a two-time head coach with the Buccaneers and Jets, said he's felt at times he's interviewed with teams to check a Rooney Rule box.`\
-https://nytimes.com/athletic/7158416/2026/03/30/todd-bowles-nfl-black-head-coach-rooney-rule/
-
-**Broncos' Bo Nix 'ahead of schedule' for return, owner Greg Penner says**\
-`Penner said Monday at the NFL league meeting that there have been no setbacks for the quarterback while rehabbing his ankle injury.`\
-https://nytimes.com/athletic/7158722/2026/03/30/broncos-bo-nix-return-greg-penner/
 

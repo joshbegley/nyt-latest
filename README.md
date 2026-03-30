@@ -1,3 +1,15 @@
+**Removing Unfriendly Leaders**\
+`The Trump administration appears to have embraced a new foreign policy tactic: getting rid of leaders it doesn’t like. Here’s how that can go wrong.`\
+https://nytimes.com/2026/03/30/world/targeted-strike-iran-us-israel-cuba.html
+
+**Nick Sirianni at league meetings: 'Edgy' Riq Woolen, Jalen Hurts' transition, practice vs. Patriots**\
+`Sirianni also spoke about what he hopes new coach Jerrod Johnson brings to the offense.`\
+https://nytimes.com/athletic/7158739/2026/03/30/nick-sirianni-league-meetings-riq-woolen-jalen-hurts-patriots/
+
+**States Plow Ahead With A.I. Regulation, Defying Trump**\
+`The battle over who should regulate artificial intelligence is turning into an epic clash between President Trump and states like California and Utah.`\
+https://nytimes.com/2026/03/30/technology/trump-states-ai-gavin-newsom-california.html
+
 **Mark Cuban on selling the Mavericks: 'I regret who I sold to'**\
 `Cuban still owns a 27 percent stake in the franchise and attends many home games despite Dallas' struggles.`\
 https://nytimes.com/athletic/7158840/2026/03/30/mark-cuban-mavericks-sale-regret/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/30/nyregion/nyu-abu-dhabi-campus-closed.html
 **Air Canada’s C.E.O. to Step Down After Comments Over Crash**\
 `The chief executive of Air Canada, Michael Rousseau, has faced backlash over a video he released primarily in English over the crash at LaGuardia Airport. Canada has two official languages, French and English, and the video was criticized as dismissive of French-speaking Canadians.`\
 https://nytimes.com/video/world/canada/100000010810143/air-canada-ceo-steps-down.html
-
-**NFL asks prediction markets to refrain from offering 'objectionable bets'**\
-`The NFL listed broadcast mentions, injuries, officiating actions and pick-by-pick draft predictions as examples of objectionable bets.`\
-https://nytimes.com/athletic/7158518/2026/03/30/nfl-prediction-markets-objectionable-bets/
-
-**Iran’s Fractured Leadership Is Struggling to Coordinate, Officials Say**\
-`As leaders are killed and replaced, Iranian negotiators may not know what their government is willing to concede in any negotiations.`\
-https://nytimes.com/2026/03/30/us/politics/iran-leaders-trump-war.html
-
-**Trump Zigzags on Iran, Claiming ‘Great Progress’ but Making Threats**\
-`President Trump threatened to hit vital infrastructure in Iran if the Strait of Hormuz was not reopened, but he also said that “regime change” had already been achieved.`\
-https://nytimes.com/2026/03/30/world/middleeast/trump-iran-threats-kharg-island.html
 

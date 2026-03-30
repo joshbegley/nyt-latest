@@ -1,3 +1,15 @@
+**Mark Cuban on selling the Mavericks: 'I regret who I sold to'**\
+`Cuban still owns a 27 percent stake in the franchise and attends many home games despite Dallas' struggles.`\
+https://nytimes.com/athletic/7158840/2026/03/30/mark-cuban-mavericks-sale-regret/
+
+**Don’t Know Where to Go This Summer? Let Us Help!**\
+`We’re responding to readers’ travel quandaries with our suggestions.`\
+https://nytimes.com/2026/03/30/t-magazine/summer-vacation-travel-ideas.html
+
+**John Tortorella joins Golden Knights, focuses on mindset: 'I do not want to change a lot'**\
+`Tortorella quickly got in touch with former coach Bruce Cassidy, and said he wants to see Vegas play faster.`\
+https://nytimes.com/athletic/7158928/2026/03/30/john-tortorella-golden-knights/
+
 **Paintings Worth Millions of Dollars Stolen From Italian Museum**\
 `Thieves stole three paintings by Renoir, Cézanne and Matisse from the Magnani-Rocca Foundation in Mamiano, Italy.`\
 https://nytimes.com/video/world/europe/100000010810347/italy-art-stolen-renoir-matisse-cezanne.html
