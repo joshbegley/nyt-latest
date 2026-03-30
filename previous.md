@@ -1,3 +1,7 @@
+**Cardiff lose €120m damages claim against Nantes in Emiliano Sala case**\
+`The League One side were instead ordered to pay Nantes $480,000 in damages and legal fees.`\
+https://nytimes.com/athletic/7157772/2026/03/30/cardiff-emiliano-sala-nantes-claim/
+
 **The Bounce: There's one NBA anti-tanking idea that would work. Plus, Duke melts down**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/2026/03/30/theater/death-salesman-broadway-lane-metcalf.html
 **NC State hiring Vols assistant, former Wolfpack player Justin Gainey as coach**\
 `Gainey played at NC State from 1996 to 2000 under Herb Sendek, ending his career fourth in program history in steals and ninth in assists.`\
 https://nytimes.com/athletic/7156484/2026/03/30/justin-gainey-nc-state-mens-basketball-coach-search/
-
-**Air Canada C.E.O. to Step Down Amid Backlash Over Comments After Crash**\
-`Michael Rousseau’s mostly English statement after a fatal runway collision drew sharp criticism. The airline said it would emphasize French fluency in its search for a successor.`\
-https://nytimes.com/2026/03/30/business/air-canada-ceo-crash-retire.html
 
