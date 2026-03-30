@@ -1,3 +1,7 @@
+**Artemis II Crew Prepares for Moon Launch**\
+`The four astronauts of the Artemis II, the first crewed mission to the moon since Apollo in 1972, spoke to the news media leading up to Wednesday’s launch window.`\
+https://nytimes.com/video/science/space/100000010809567/artemis-moon-launch-nasa-astronauts.html
+
 **Here’s the latest.**\
 `By David E. Sanger, Aaron Boxerman and Sanam Mahoozi`\
 https://nytimes.com/live/2026/03/30/world/iran-war-trump-oil-news/heres-the-latest
