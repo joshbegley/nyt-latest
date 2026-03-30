@@ -1,3 +1,23 @@
+**Muriel Furrer death: Swiss prosecutors opt against criminal proceedings**\
+`Ferrer, 18, crashed on a steep downhill descent during the junior world championship road race.`\
+https://nytimes.com/athletic/7157835/2026/03/30/muriel-furrer-death-crash-investigation/
+
+**WNBA's Connecticut Sun expected to become Houston Comets starting in 2027**\
+`The Sun will be renamed the Comets and begin play in Houston for the 2027 season, pending final league approval. `\
+https://nytimes.com/athletic/7157789/2026/03/30/houston-comets-wnba-connecticut-sun-relocation-moving/
+
+**Trout's steaming, Verlander's worth streaming and other fantasy baseball takeaways**\
+`Andy Behrens breaks down key early MLB performances and delivers essential fantasy baseball streaming advice.`\
+https://nytimes.com/athletic/7157686/2026/03/30/fantasy-baseball-takeaways-mike-trout-chase-delauter-streamers/
+
+**Bruins’ Tanner Jeannot, Mark Kastelic and how a pair of heavyweight bouts can turn a game**\
+`Charlie McAvoy on how Sunday's fights impacted the Bruins: “Kind of wakes everyone up. That was the spark of life we needed."`\
+https://nytimes.com/athletic/7157748/2026/03/30/bruins-tanner-jeannot-mark-kastelic-fights-blue-jackets/
+
+**Making ‘Death of a Salesman’ New, With Help From Something Old**\
+`Joe Mantello’s Broadway revival, starring Nathan Lane and Laurie Metcalf, was inspired by a draft with notes by Arthur Miller. Here are some of them.`\
+https://nytimes.com/2026/03/30/theater/death-salesman-broadway-lane-metcalf.html
+
 **NC State hiring Vols assistant, former Wolfpack player Justin Gainey as coach**\
 `Gainey played at NC State from 1996 to 2000 under Herb Sendek, ending his career fourth in program history in steals and ninth in assists.`\
 https://nytimes.com/athletic/7156484/2026/03/30/justin-gainey-nc-state-mens-basketball-coach-search/
@@ -17,24 +37,4 @@ https://nytimes.com/2026/03/30/world/middleeast/yemen-assassination-lawsuit-amer
 **College baseball week in review: Vanderbilt walk-offs headline sweep-filled week in SEC**\
 `Florida, swept last weekend at Alabama, becomes the first team to sweep Arkansas in Fayetteville since 2016. `\
 https://nytimes.com/athletic/7157116/2026/03/30/college-baseball-vanderbilt-tennessee-florida-arkansas/
-
-**How to watch Twins vs. Royals: Time, TV, streaming for March 30**\
-`Find out how to watch the Minnesota Twins play the Kansas City Royals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7157742/2026/03/30/twins-vs-royals-stream-how-to-watch-march-30/
-
-**The odds are stacked against New Zealand, the World Cup's lowest-ranked team. But they are chasing history**\
-`They are the giants of Oceania and averaged 6-0 wins in qualifying. Now they are chasing a first victory at their third World Cup finals`\
-https://nytimes.com/athletic/7157317/2026/03/30/new-zealand-world-cup/
-
-**No Corrections: March 30, 2026**\
-`No corrections appeared in print on Monday, March 30, 2026.`\
-https://nytimes.com/2026/03/30/pageoneplus/no-corrections-march-30-2026.html
-
-**Lowetide: Oilers line shuffle brings youth, speed to Connor's McDavid unit**\
-`Is there a case for the Oilers to keep Vasily Podkolzin and Matt Savoie on the top line with McDavid?`\
-https://nytimes.com/athletic/7155940/2026/03/30/edmonton-oilers-connor-mcdavid-line-savoie-podkolzin-stats/
-
-**Giannis-less Bucks eliminated from playoff contention, so what remains ahead?**\
-`Mathematically eliminated from playoff contention, the Bucks do not have a whole lot to play for at this point.`\
-https://nytimes.com/athletic/7156462/2026/03/30/bucks-nba-playoffs-giannis-future-roster/
 
