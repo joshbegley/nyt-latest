@@ -1,3 +1,7 @@
+**He Rode an Elephant Costume Into Colombia’s Senate**\
+`After years of anonymously documenting abandoned public works projects in Colombia, Luis Carlos Rúa revealed himself days before his election.`\
+https://nytimes.com/2026/03/30/world/americas/luis-carlos-rua-colombia-senator.html
+
 **49ers 'in no rush' to release Brandon Aiyuk, holding out hope for trade**\
 `"Eventually, it will resolve itself," coach Kyle Shanahan said of the situation. "Hopefully, we get something for it."`\
 https://nytimes.com/athletic/7157987/2026/03/30/49ers-brandon-aiyuk-release-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/lenovo/03-2026/ambient-intelligence-faces-real-test
 **How to watch Rockies vs. Blue Jays: Time, TV, streaming for March 30**\
 `Find out how to watch the Colorado Rockies play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7157993/2026/03/30/rockies-vs-blue-jays-stream-how-to-watch-march-30/
-
-**Analysis shows where a new U.S. missile hit an Iranian sports hall and school.**\
-`By Leanne Abraham and Christiaan Triebert`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/analysis-shows-where-a-new-us-missile-hit-an-iranian-sports-hall-and-school
 
