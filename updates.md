@@ -1,3 +1,11 @@
+**He Rode an Elephant Costume Into Colombia’s Senate**\
+`After years of anonymously documenting abandoned public works projects in Colombia, Luis Carlos Rúa revealed himself days before his election.`\
+https://nytimes.com/2026/03/30/world/americas/luis-carlos-rua-colombia-senator.html
+
+**Renoir, Cézanne and Matisse Paintings Are Stolen in 3-Minute Museum Heist, Police Say**\
+`Thieves broke into the Magnani-Rocca Foundation outside Parma, Italy, officials said, and made off with paintings worth millions.`\
+https://nytimes.com/2026/03/30/world/europe/parma-art-heist-renoir-matisse-cezanne-italy.html
+
 **49ers 'in no rush' to release Brandon Aiyuk, holding out hope for trade**\
 `"Eventually, it will resolve itself," coach Kyle Shanahan said of the situation. "Hopefully, we get something for it."`\
 https://nytimes.com/athletic/7157987/2026/03/30/49ers-brandon-aiyuk-release-trade/
