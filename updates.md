@@ -1,3 +1,5 @@
+
+
 **He Rode an Elephant Costume Into Colombia’s Senate**\
 `After years of anonymously documenting abandoned public works projects in Colombia, Luis Carlos Rúa revealed himself days before his election.`\
 https://nytimes.com/2026/03/30/world/americas/luis-carlos-rua-colombia-senator.html
