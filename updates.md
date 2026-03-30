@@ -1,3 +1,7 @@
+**Struggling Magic allow 31-0 run to Raptors as season-ending slide continues**\
+`Toronto's 31-0 run against Orlando is the longest in the Play-by-Play era (1997-98), surpassing the Mavs' 30-0 run vs. the Thunder in 2023.`\
+https://nytimes.com/athletic/7156620/2026/03/29/nba-magic-raptors-game-turnover-starters-season/
+
 **Sinner caps Miami dominance with first men's 'Sunshine Double' in 9 years**\
 `The 24-year-old Italian took down Jiri Lehecka of the Czech Republic in straight sets at Hard Rock Stadium.`\
 https://nytimes.com/athletic/7156468/2026/03/29/jannik-sinner-miami-open-sunshine-double/
