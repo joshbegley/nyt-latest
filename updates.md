@@ -10,8 +10,8 @@ https://nytimes.com/athletic/7156521/2026/03/29/uconn-25-final-four-geno-auriemm
 `The victory that earned the Huskies’ eighth trip to the Final Four might go down as the most remarkable in program history.`\
 https://nytimes.com/athletic/7156494/2026/03/29/uconn-duke-march-madness-score-takeaways/
 
-**Struggling Magic allow 31-0 run to Raptors as season-ending slide continues**\
-`Toronto's 31-0 run against Orlando is the longest in the Play-by-Play era (1997-98), surpassing the Mavs' 30-0 run vs. the Thunder in 2023.`\
+**Struggling Magic yield 31-0 run to Raptors as season-ending slide continues**\
+`In a game among two teams in the morass of East teams seeded between fifth and 10th, the Raptors hung a 31-0 run on the Magic.`\
 https://nytimes.com/athletic/7156620/2026/03/29/nba-magic-raptors-game-turnover-starters-season/
 
 **Here’s What Happened in the War in the Middle East on Sunday**\
