@@ -1,3 +1,8 @@
+**The Bounce: There's one NBA anti-tanking idea that would work. Plus, Duke melts down**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7157778/2026/03/30/nba-tanking-lottery-duke-march-madness-the-bounce/
+
 **For a High Priestess of Extreme Theater, Death Is Gentler Than Life**\
 `In her “Trilogy of Funerals,” the Spanish provocateur Angélica Liddell shows a sense of vulnerability that will surprise longtime watchers of her work.`\
 https://nytimes.com/2026/03/30/theater/angelica-liddell-trilogy-of-funerals.html
