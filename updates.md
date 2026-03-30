@@ -1,3 +1,11 @@
+**Viral DR Congo fan will not attend World Cup play-off in Mexico due to visa issues**\
+`Lumumba Vea, real name Michel Kuka Mboladinga, is known for his snappy suits and his ability to hold a statuesque pose for entire matches.`\
+https://nytimes.com/athletic/7158161/2026/03/30/dr-congo-fan-lumumba-statue-world-cup/
+
+**What I’m seeing from Braeden Cootes’ stellar playoff start and his NHL future**\
+`Here's what we've seen from Vancouver's top pick from last year's draft in the WHL playoffs so far.`\
+https://nytimes.com/athletic/7157328/2026/03/30/canucks-braeden-cootes/
+
 **Which Premier League players have withdrawn through injury this international break?**\
 `From Gabriel to Benjamin Sesko, we run through which of your side's players have dropped out of their national team squads through injury`\
 https://nytimes.com/athletic/7157874/2026/03/30/premier-league-players-international-break-injury/
