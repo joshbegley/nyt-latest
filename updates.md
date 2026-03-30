@@ -1,3 +1,7 @@
+**How Barbie Dream Fest Turned Into a Nightmare**\
+`Fans had high hopes for the event, a Mattel-sanctioned gathering in a Florida convention center. Now, it’s drawing comparisons to Fyre Festival.`\
+https://nytimes.com/2026/03/30/style/barbie-dream-fest-florida.html
+
 **Employee Lawsuit Against Fox News Is Dismissed**\
 `A reporter who claimed the network had fired him for challenging its coverage failed to prove retaliation and discrimination, a federal judge said.`\
 https://nytimes.com/2026/03/30/business/media/fox-news-jason-donner-lawsuit-dismissed.html

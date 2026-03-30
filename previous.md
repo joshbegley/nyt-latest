@@ -1,3 +1,7 @@
+**How Barbie Dream Fest Turned Into a Nightmare**\
+`Fans had high hopes for the event, a Mattel-sanctioned gathering in a Florida convention center. Now, it’s drawing comparisons to Fyre Festival.`\
+https://nytimes.com/2026/03/30/style/barbie-dream-fest-florida.html
+
 **Employee Lawsuit Against Fox News Is Dismissed**\
 `A reporter who claimed the network had fired him for challenging its coverage failed to prove retaliation and discrimination, a federal judge said.`\
 https://nytimes.com/2026/03/30/business/media/fox-news-jason-donner-lawsuit-dismissed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/30/us/mexico-ice-detention-deaths.html
 **Joe Mazzulla on NBA's Coach of the Year honor: 'It's a stupid award'**\
 `Joe Mazzulla thinks Coach of the Year is a stupid award, but his thoughts won't stop him from garnering respect around the NBA.`\
 https://nytimes.com/athletic/7159253/2026/03/30/joe-mazzulla-coach-of-the-year-nba-jayson-tatum/
-
-**Michigan Synagogue Attack Was ‘Inspired by Hezbollah,’ Officials Say**\
-`The man who rammed his vehicle into the synagogue was purposely targeting the Jewish community, officials said on Monday, detailing his days of planning.`\
-https://nytimes.com/2026/03/30/us/michigan-synagogue-attack-hezbollah.html
 
