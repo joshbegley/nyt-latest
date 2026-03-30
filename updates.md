@@ -1,3 +1,7 @@
+**How Angela Dugalić set the tone for UCLA's Final Four run**\
+`Dugalić had 16 points, six rebounds, four assists and two steals to pace the Bruins.`\
+https://nytimes.com/athletic/7156908/2026/03/29/ucla-angela-dugalic-final-four/
+
 **Trump Says Iran Agreed to Allow 20 More Ships of Oil Through Strait of Hormuz**\
 `The president, speaking to reporters on Air Force One, cast the permission as a “sign of respect.” He also asserted that the United States had already achieved “regime change” in Iran.`\
 https://nytimes.com/2026/03/29/world/middleeast/trump-says-iran-agreed-to-allow-20-more-ships-of-oil-through-strait-of-hormuz.html
