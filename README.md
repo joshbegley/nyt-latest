@@ -1,3 +1,23 @@
+**How to watch Pirates vs. Reds: Time, TV, streaming for March 30**\
+`Find out how to watch the Pittsburgh Pirates play the Cincinnati Reds, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7157981/2026/03/30/pirates-vs-reds-stream-how-to-watch-march-30/
+
+**How to watch Rangers vs. Orioles: Time, TV, streaming for March 30**\
+`Find out how to watch the Texas Rangers play the Baltimore Orioles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7157980/2026/03/30/rangers-vs-orioles-stream-how-to-watch-march-30/
+
+**Who’s ‘Safer’ or ‘Riskier’? Maine Democrats Clash Over How to Beat Collins.**\
+`Gov. Janet Mills argues that her rival for Senate, Graham Platner, could be doomed by his history of offensive online remarks. But at a time of anti-establishment anger, Mr. Platner says he is the safer choice.`\
+https://nytimes.com/2026/03/30/us/politics/maine-senate-primary-mills-platner-democrat.html
+
+**‘I Think That MAGA Is Dying’**\
+`At a sparsely attended Conservative Political Action Conference, young Republicans were eager to start the post-Trump era.`\
+https://nytimes.com/2026/03/30/style/cpac-scene-maga.html
+
+**The Windup: Dodgers will go 162-0, and more overreactions**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7157920/2026/03/30/dodgers-yankees-mlb-overreactions-2026-the-windup/
+
 **Idaho U.S. Senate Election 2026: Latest Polls**\
 `Track the latest polls in the Idaho U.S. Senate election.`\
 https://nytimes.com/interactive/polls/idaho-us-senate-election-polls-2026.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7157860/2026/03/30/chris-richards-injury-status-usa
 **A preview of The Athletic’s live coverage this week**\
 `The Athletic's live coverage this week features March Madness, World Cup qualifying playoffs boxing and the FA Cup.`\
 https://nytimes.com/athletic/7157868/2026/03/30/march-madness-world-cup-playoffs-boxing/
-
-**Can a late-season coaching change fix the Golden Knights? The 2000 Devils are Exhibit A**\
-`GM Lou Lamoriello and coach Larry Robinson on how a similar coaching swap helped the Devils become champs: "You can’t just sit there."`\
-https://nytimes.com/athletic/7157794/2026/03/30/golden-knights-devils-late-season-nhl-coaching-changes/
-
-**Chicken With Dates and Olives, Harissa Butter Cod and My New Cauliflower Kugel**\
-`And more bright Passover dishes to celebrate spring.`\
-https://nytimes.com/2026/03/30/dining/chicken-with-dates-and-olives-harissa-butter-cod-and-my-new-cauliflower-kugel.html
-
-**Key questions about the NFL's labor dispute with its referees and how it could impact games**\
-`If a new collective bargaining agreement isn’t reached, the NFL plans to begin hiring replacement refs as soon as May.`\
-https://nytimes.com/athletic/7152525/2026/03/30/nfl-referees-contract-replacements/
-
-**Do You Know the Final Resting Place of These Authors?**\
-`Try this short quiz on the last stop for five popular writers.`\
-https://nytimes.com/interactive/2026/03/30/books/review/authors-graves-quiz.html
-
-**Why Are So Many People Obsessed With Lindy West’s Polyamory?**\
-`Is she a feminist? Is she happy? Everyone has an opinion.`\
-https://nytimes.com/2026/03/30/opinion/why-are-so-many-people-obsessed-with-lindy-wests-polyamory.html
 
