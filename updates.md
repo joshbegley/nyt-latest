@@ -1,3 +1,7 @@
+**Trump Is Setting the World on Fire. The Rest of Us Choke on the Fumes.**\
+`Trump’s war on Iran is dangerous for everyone.`\
+https://nytimes.com/2026/03/30/opinion/trump-iran-war-india-oil.html
+
 **How UConn's Mullins Magic creates a March Madness memory that will last forever**\
 `I never thought I'd see Duke get Christian Laettner’d in my lifetime, but wouldn't you know it, I just did.`\
 https://nytimes.com/athletic/7157051/2026/03/30/uconn-duke-game-history/
