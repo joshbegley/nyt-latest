@@ -1,3 +1,7 @@
+**‘The Comeback’ Season 3, Episode 2: Getting the Band Back Together**\
+`Valerie doesn’t fully understand why people in Hollywood are so worked up about A.I. She just sees a wave she thinks she knows how to ride.`\
+https://nytimes.com/2026/03/29/arts/television/the-comeback-recap-season-3-episode-2.html
+
 **Move to center latest change for Frondell as Blackhawks rookie adjusts to NHL**\
 `Coach Jeff Blashill thought Frondell might be a fit down the middle in the NHL and took the opportunity to try him in the new position.`\
 https://nytimes.com/athletic/7156463/2026/03/29/anton-frondell-blackhawks-center-levshunov-injury-devils/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7156669/2026/03/29/chicago-cubs-nico-hoerner-standa
 **How Angela Dugalić set the tone for UCLA's Final Four run**\
 `Dugalić had 16 points, six rebounds, four assists and two steals to pace the Bruins.`\
 https://nytimes.com/athletic/7156908/2026/03/29/ucla-angela-dugalic-final-four/
-
-**Men's NCAA Tournament odds: Arizona, Michigan emerge as favorites after Duke's exit**\
-`Arizona and Michigan, the two No. 1 seeds remaining, enter the Final Four as favorites to win the national title.`\
-https://nytimes.com/athletic/7156898/2026/03/29/ncaa-tournament-odds-mens-arizona-michigan-illinois-uconn/
 

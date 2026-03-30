@@ -1,3 +1,7 @@
+**‘The Comeback’ Season 3, Episode 2: Getting the Band Back Together**\
+`Valerie doesn’t fully understand why people in Hollywood are so worked up about A.I. She just sees a wave she thinks she knows how to ride.`\
+https://nytimes.com/2026/03/29/arts/television/the-comeback-recap-season-3-episode-2.html
+
 **Move to center latest change for Frondell as Blackhawks rookie adjusts to NHL**\
 `Coach Jeff Blashill thought Frondell might be a fit down the middle in the NHL and took the opportunity to try him in the new position.`\
 https://nytimes.com/athletic/7156463/2026/03/29/anton-frondell-blackhawks-center-levshunov-injury-devils/

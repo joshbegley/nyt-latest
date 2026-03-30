@@ -1,3 +1,7 @@
+**New U.S. Missile Hit Iranian Sports Hall and School, Analysis Shows**\
+`The Pentagon used missiles untested in combat in a deadly attack that struck civilian sites near a military compound, according to visual evidence examined by The Times and weapons experts.`\
+https://nytimes.com/2026/03/29/world/middleeast/us-precision-strike-missile-iran-lamerd.html
+
 **‘The Comeback’ Season 3, Episode 2: Getting the Band Back Together**\
 `Valerie doesn’t fully understand why people in Hollywood are so worked up about A.I. She just sees a wave she thinks she knows how to ride.`\
 https://nytimes.com/2026/03/29/arts/television/the-comeback-recap-season-3-episode-2.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/29/business/oil-stocks-gasoline-prices-iran.html
 **Nico Hoerner reflects the standards of this generation of Cubs players**\
 `What the Cubs learned during trade calls is that, though other teams value Hoerner, no one valued him as much as they did.`\
 https://nytimes.com/athletic/7156669/2026/03/29/chicago-cubs-nico-hoerner-standards/
-
-**How Angela Dugalić set the tone for UCLA's Final Four run**\
-`Dugalić had 16 points, six rebounds, four assists and two steals to pace the Bruins.`\
-https://nytimes.com/athletic/7156908/2026/03/29/ucla-angela-dugalic-final-four/
 
