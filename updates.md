@@ -1,3 +1,7 @@
+**Nico Hoerner reflects the standards of this generation of Cubs players**\
+`What the Cubs learned during trade calls is that, though other teams value Hoerner, no one valued him as much as they did.`\
+https://nytimes.com/athletic/7156669/2026/03/29/chicago-cubs-nico-hoerner-standards/
+
 **How Angela Dugalić set the tone for UCLA's Final Four run**\
 `SACRAMENTO, Calif.`\
 https://nytimes.com/athletic/7156908/2026/03/29/ucla-angela-dugalic-final-four/
