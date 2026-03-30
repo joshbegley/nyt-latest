@@ -1,5 +1,9 @@
+**Why the ideas to fix tanking in the NBA (mostly) miss the mark**\
+`Plus, how might this week's games impact the postseason picture?`\
+https://nytimes.com/athletic/7151261/2026/03/30/nba-tanking-fixes-rule-changes-playoff-picture/
+
 **Muriel Furrer death: Swiss prosecutors opt against criminal proceedings**\
-`Ferrer, 18, crashed on a steep downhill descent during the junior world championship road race.`\
+`Furrer, 18, crashed on a steep downhill descent during the junior world championship road race.`\
 https://nytimes.com/athletic/7157835/2026/03/30/muriel-furrer-death-crash-investigation/
 
 **WNBA's Connecticut Sun expected to become Houston Comets starting in 2027**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7157672/2026/03/30/college-baseball-rankings-florid
 **Lawsuit Accuses Americans of Political Killings for Hire Overseas**\
 `Three men working for an American security contractor say the United Arab Emirates paid them to carry out targeted killings in Yemen. One of their targets is suing them in U.S. federal court.`\
 https://nytimes.com/2026/03/30/world/middleeast/yemen-assassination-lawsuit-americans.html
-
-**College baseball week in review: Vanderbilt walk-offs headline sweep-filled week in SEC**\
-`Florida, swept last weekend at Alabama, becomes the first team to sweep Arkansas in Fayetteville since 2016. `\
-https://nytimes.com/athletic/7157116/2026/03/30/college-baseball-vanderbilt-tennessee-florida-arkansas/
 
