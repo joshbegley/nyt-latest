@@ -1,3 +1,7 @@
+**Which Premier League players have withdrawn through injury this international break?**\
+`From Gabriel to Benjamin Sesko, we run through which of your side's players have dropped out of their national team squads through injury`\
+https://nytimes.com/athletic/7157874/2026/03/30/premier-league-players-international-break-injury/
+
 **Mark Morris’s Stations of the Cross: Simple and Stinging**\
 `One of two New York premieres at the Brooklyn Academy of Music, “Via Dolorosa” seeks truth in plainness.`\
 https://nytimes.com/2026/03/30/arts/dance/mark-morris-via-dolorosa-moon-brooklyn-academy.html
