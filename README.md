@@ -1,3 +1,19 @@
+**Here’s the latest.**\
+`By David E. Sanger, Aaron Boxerman and Sanam Mahoozi`\
+https://nytimes.com/live/2026/03/30/world/iran-war-trump-oil-news/heres-the-latest
+
+**Iran War Live Updates: Trump Says Iran to Allow More Oil Ships Through Strait of Hormuz**\
+`President Trump characterized the move as a “sign of respect” even as fighting between Israel and Iran continued and the war dragged into its second month.`\
+https://nytimes.com/live/2026/03/30/world/iran-war-trump-oil-news
+
+**The Founder of an ‘Orgasmic Meditation’ Group Is in Jail. And at Dinner?**\
+`Nicole Daedone, the former leader of OneTaste, is set to be sentenced after being convicted of forced labor conspiracy last year. But she is still finding ways to spread her message from behind bars.`\
+https://nytimes.com/2026/03/30/nyregion/nicole-daedone-one-taste-sentencing.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/30/crosswords/spelling-bee-forum.html
+
 **How UConn's Mullins Magic creates a March Madness memory that will last forever**\
 `I never thought I'd see Duke get Christian Laettner’d in my lifetime, but wouldn't you know it, I just did.`\
 https://nytimes.com/athletic/7157051/2026/03/30/uconn-duke-game-history/
@@ -21,22 +37,4 @@ https://nytimes.com/2026/03/30/world/australia/australia-melbourne-free-transit.
 **The New York Times in Print for Monday, March 30, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/30/todays-new-york-times
-
-**Trump Is Setting the World on Fire. The Rest of Us Choke on the Fumes.**\
-`Trump’s war on Iran is dangerous for everyone.`\
-https://nytimes.com/2026/03/30/opinion/trump-iran-war-india-oil.html
-
-**‘The Real Housewives of Rhode Island,’ Plus 7 Things to Watch on TV This Week**\
-`A new iteration of the Bravo franchise begins and the second season of “Your Friends & Neighbors” premieres.`\
-https://nytimes.com/2026/03/30/arts/television/real-housewives-of-rhode-island-tv-this-week.html
-
-**Iran to Allow More Oil Ships Through Strait of Hormuz, Trump Says**\
-`President Trump said that Iran had agreed to release 20 more cargo ships of oil through the Strait of Hormuz starting on Monday.`\
-https://nytimes.com/video/us/100000010809553/trump-iran-strait-of-hormuz-ships.html
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>Still recovering from that UConn-Duke Elite Eight ending? Maybe turn your attention to some offseason college football.</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/7157268/2026/03/30/submit-a-question-for-stewart-mandels-college-football-mailbag-340/
 
