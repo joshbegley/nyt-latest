@@ -1,3 +1,11 @@
+**UEFA to freeze Euro 2028 ticket prices in stark contrast to FIFA’s World Cup policy**\
+`The prices for the tournament will broadly correspond with the €30/€60 figures used in Germany two years ago.`\
+https://nytimes.com/athletic/7157502/2026/03/30/euro-2028-ticket-prices-uefa-world-cup/
+
+**Christian Walker catching up to velocity and Cam Smith stealing bases: Astros takeaways**\
+`Plus why Bryan Abreu's cameo as Houston's closer is generating concern from manager Joe Espada.`\
+https://nytimes.com/athletic/7156657/2026/03/30/astros-christian-walker-velocity-cam-smith-stolen-bases/
+
 **DeLauter's muscle, Armstrong's journey and pitching woes: What we learned about the Guardians**\
 `Cleveland has a 2-2 record built on slim victories and one-sided losses. `\
 https://nytimes.com/athletic/7146816/2026/03/30/guardians-takeaways-chase-delauter-shawn-armstrong-pitching/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7152417/2026/03/30/vikings-roster-projection-nfl-dr
 **This Week in Mets: What matters and what doesn't off an opening series win**\
 `Sean Manaea’s fastball sat around 88 to 89 mph on Sunday, and recent history suggests it's difficult to survive in the majors that way. `\
 https://nytimes.com/athletic/7156986/2026/03/30/mets-luis-robert-bo-bichette-sean-manaea/
-
-**Israel to Vote on Death Penalty Targeting Palestinians Guilty of Lethal Attacks**\
-`The bill is broadly popular and expected to pass. Critics say it would strip away many of the safeguards intended to preserve due process, including the possibility of a pardon.`\
-https://nytimes.com/2026/03/30/world/middleeast/israel-death-penalty-palestinians-attacks.html
-
-**The Pulse: Better than Laettner’s shot?**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7156625/2026/03/30/braylon-mullins-uconn-shot-the-pulse/
 
