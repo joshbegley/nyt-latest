@@ -1,3 +1,15 @@
+**A Democratic Electrician Nabs a State Senate Seat in Republican Florida**\
+`With Brian Nathan’s victory certified, Democrats won two of three state legislative races in this month’s special elections, all in Republican-leaning districts.`\
+https://nytimes.com/2026/03/30/us/politics/democrat-wins-florida-specail-election.html
+
+**Parity or panic: NWSL's top teams struggle with earlier season woes**\
+`Angel City FC is the only team left undefeated in NWSL, while last years contenders fall well below the top of the table `\
+https://nytimes.com/athletic/7157359/2026/03/30/nwsl-championship-parity-panic-season/
+
+**Democrats Examine Elon Musk’s Role in Suspension of Business Disclosure Law**\
+`Lawmakers have asked the Treasury Department for information on how Mr. Musk may have influenced the decision to end enforcement of the Corporate Transparency Act.`\
+https://nytimes.com/2026/03/30/business/lawmakers-probe-elon-musk-treasury.html
+
 **He Rode an Elephant Costume Into Colombia’s Senate**\
 `After years of anonymously documenting abandoned public works projects in Colombia, Luis Carlos Rúa revealed himself days before his election.`\
 https://nytimes.com/2026/03/30/world/americas/luis-carlos-rua-colombia-senator.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/30/us/politics/trump-administration-doj-watchdog-reu
 **From Foe to Ally: The S.E.C. Is Now Writing Crypto-Friendly Policies**\
 `The embrace of crypto by financial regulators under President Trump has entered a new, cozier phase.`\
 https://nytimes.com/2026/03/30/technology/sec-crypto-friendly-rules.html
-
-**How to watch Penguins vs. Islanders: Time, TV, streaming**\
-`Find out how to watch the Pittsburgh Penguins play the New York Islanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7158009/2026/03/30/penguins-vs-islanders-stream-how-to-watch-march-30/
-
-**Amid the Noise and Chaos of Tech Trade Shows, Ambient Intelligence Faces Its Real Test**\
-` If AI can remain useful there, it can survive anywhere.`\
-https://nytimes.com/paidpost/lenovo/03-2026/ambient-intelligence-faces-real-test.html
-
-**How to watch Rockies vs. Blue Jays: Time, TV, streaming for March 30**\
-`Find out how to watch the Colorado Rockies play the Toronto Blue Jays, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7157993/2026/03/30/rockies-vs-blue-jays-stream-how-to-watch-march-30/
 
