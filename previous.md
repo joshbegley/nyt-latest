@@ -1,3 +1,35 @@
+**How to watch 76ers vs. Heat: Time, TV, streaming**\
+`Find out how to watch the Philadelphia 76ers play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7157961/2026/03/30/76ers-vs-heat-stream-how-to-watch-march-30/
+
+**Chris Richards on his status for USMNT vs. Portugal: 'I'm available'**\
+`Mauricio Pochettino had cast doubt on the center back's availability to play at all during this window`\
+https://nytimes.com/athletic/7157860/2026/03/30/chris-richards-injury-status-usa-portugal/
+
+**A preview of The Athletic’s live coverage this week**\
+`The Athletic's live coverage this week features March Madness, World Cup qualifying playoffs boxing and the FA Cup.`\
+https://nytimes.com/athletic/7157868/2026/03/30/march-madness-world-cup-playoffs-boxing/
+
+**Can a late-season coaching change fix the Golden Knights? The 2000 Devils are Exhibit A**\
+`GM Lou Lamoriello and coach Larry Robinson on how a similar coaching swap helped the Devils become champs: "You can’t just sit there."`\
+https://nytimes.com/athletic/7157794/2026/03/30/golden-knights-devils-late-season-nhl-coaching-changes/
+
+**Chicken With Dates and Olives, Harissa Butter Cod and My New Cauliflower Kugel**\
+`And more bright Passover dishes to celebrate spring.`\
+https://nytimes.com/2026/03/30/dining/chicken-with-dates-and-olives-harissa-butter-cod-and-my-new-cauliflower-kugel.html
+
+**Key questions about the NFL's labor dispute with its referees and how it could impact games**\
+`If a new collective bargaining agreement isn’t reached, the NFL plans to begin hiring replacement refs as soon as May.`\
+https://nytimes.com/athletic/7152525/2026/03/30/nfl-referees-contract-replacements/
+
+**Do You Know the Final Resting Place of These Authors?**\
+`Try this short quiz on the last stop for five popular writers.`\
+https://nytimes.com/interactive/2026/03/30/books/review/authors-graves-quiz.html
+
+**Why Are So Many People Obsessed With Lindy West’s Polyamory?**\
+`Is she a feminist? Is she happy? Everyone has an opinion.`\
+https://nytimes.com/2026/03/30/opinion/why-are-so-many-people-obsessed-with-lindy-wests-polyamory.html
+
 **Utah State hiring Northern Iowa's Ben Jacobson as head coach**\
 `Jacobson led Northern Iowa to five NCAA Tournaments in 20 years, including one Sweet 16 run in 2010.`\
 https://nytimes.com/athletic/7157787/2026/03/30/utah-state-ben-jacobson-head-coach-hire-uni/
@@ -5,37 +37,4 @@ https://nytimes.com/athletic/7157787/2026/03/30/utah-state-ben-jacobson-head-coa
 **Cardiff lose €120m damages claim against Nantes in Emiliano Sala case**\
 `The League One side were instead ordered to pay Nantes $480,000 in damages and legal fees.`\
 https://nytimes.com/athletic/7157772/2026/03/30/cardiff-emiliano-sala-nantes-claim/
-
-**The Bounce: There's one NBA anti-tanking idea that would work. Plus, Duke melts down**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.
-`\
-https://nytimes.com/athletic/7157778/2026/03/30/nba-tanking-lottery-duke-march-madness-the-bounce/
-
-**For a High Priestess of Extreme Theater, Death Is Gentler Than Life**\
-`In her “Trilogy of Funerals,” the Spanish provocateur Angélica Liddell shows a sense of vulnerability that will surprise longtime watchers of her work.`\
-https://nytimes.com/2026/03/30/theater/angelica-liddell-trilogy-of-funerals.html
-
-**Why the ideas to fix tanking in the NBA (mostly) miss the mark**\
-`Plus, how might this week's games impact the postseason picture?`\
-https://nytimes.com/athletic/7151261/2026/03/30/nba-tanking-fixes-rule-changes-playoff-picture/
-
-**Muriel Furrer death: Swiss prosecutors opt against criminal proceedings**\
-`Furrer, 18, crashed on a steep downhill descent during the junior world championship road race.`\
-https://nytimes.com/athletic/7157835/2026/03/30/muriel-furrer-death-crash-investigation/
-
-**WNBA's Connecticut Sun expected to become Houston Comets starting in 2027**\
-`The Sun will be renamed the Comets and begin play in Houston for the 2027 season, pending final league approval. `\
-https://nytimes.com/athletic/7157789/2026/03/30/houston-comets-wnba-connecticut-sun-relocation-moving/
-
-**Trout's steaming, Verlander's worth streaming and other fantasy baseball takeaways**\
-`Andy Behrens breaks down key early MLB performances and delivers essential fantasy baseball streaming advice.`\
-https://nytimes.com/athletic/7157686/2026/03/30/fantasy-baseball-takeaways-mike-trout-chase-delauter-streamers/
-
-**Bruins’ Tanner Jeannot, Mark Kastelic and how a pair of heavyweight bouts can turn a game**\
-`Charlie McAvoy on how Sunday's fights impacted the Bruins: “Kind of wakes everyone up. That was the spark of life we needed."`\
-https://nytimes.com/athletic/7157748/2026/03/30/bruins-tanner-jeannot-mark-kastelic-fights-blue-jackets/
-
-**Making ‘Death of a Salesman’ New, With Help From Something Old**\
-`Joe Mantello’s Broadway revival, starring Nathan Lane and Laurie Metcalf, was inspired by a draft with notes by Arthur Miller. Here are some of them.`\
-https://nytimes.com/2026/03/30/theater/death-salesman-broadway-lane-metcalf.html
 

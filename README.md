@@ -1,3 +1,11 @@
+**Idaho U.S. Senate Election 2026: Latest Polls**\
+`Track the latest polls in the Idaho U.S. Senate election.`\
+https://nytimes.com/interactive/polls/idaho-us-senate-election-polls-2026.html
+
+**NBA Power Rankings: There's a new No. 1, and the Cavaliers are contenders**\
+`In the spirit of the season, we're recognizing one player per team with what we're calling the Frontier Award.`\
+https://nytimes.com/athletic/7157499/2026/03/30/nba-power-rankings-spurs-celtics-knicks-cavs/
+
 **How to watch 76ers vs. Heat: Time, TV, streaming**\
 `Find out how to watch the Philadelphia 76ers play the Miami Heat, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7157961/2026/03/30/76ers-vs-heat-stream-how-to-watch-march-30/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2026/03/30/books/review/authors-graves-quiz.html
 **Why Are So Many People Obsessed With Lindy West’s Polyamory?**\
 `Is she a feminist? Is she happy? Everyone has an opinion.`\
 https://nytimes.com/2026/03/30/opinion/why-are-so-many-people-obsessed-with-lindy-wests-polyamory.html
-
-**Utah State hiring Northern Iowa's Ben Jacobson as head coach**\
-`Jacobson led Northern Iowa to five NCAA Tournaments in 20 years, including one Sweet 16 run in 2010.`\
-https://nytimes.com/athletic/7157787/2026/03/30/utah-state-ben-jacobson-head-coach-hire-uni/
-
-**Cardiff lose €120m damages claim against Nantes in Emiliano Sala case**\
-`The League One side were instead ordered to pay Nantes $480,000 in damages and legal fees.`\
-https://nytimes.com/athletic/7157772/2026/03/30/cardiff-emiliano-sala-nantes-claim/
 
