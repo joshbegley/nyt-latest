@@ -1,9 +1,25 @@
+**Trump Says Iran Agreed to Allow 20 More Ships of Oil Through Strait of Hormuz**\
+`The president, speaking to reporters on Air Force One, cast the permission as a “sign of respect.” He also asserted that the United States had already achieved “regime change” in Iran.`\
+https://nytimes.com/2026/03/29/world/middleeast/trump-says-iran-agreed-to-allow-20-more-ships-of-oil-through-strait-of-hormuz.html
+
+**Blue Jackets blow 3-0 lead in third period in latest collapse for shootout loss**\
+`After an utterly dominant first period, the Blue Jackets slowly lost their grip on the game to give up a valuable point.`\
+https://nytimes.com/athletic/7156504/2026/03/29/blue-jackets-shootout-bowness-playoffs-push-bruins/
+
+**Eagles GM Roseman sticks to script: 'A.J. Brown is a member of the Eagles'**\
+`If the Eagles trade Brown after June 1, they would absorb less of a salary cap hit this offseason.`\
+https://nytimes.com/athletic/7156886/2026/03/29/aj-brown-speculation-eagles-gm-howie-roseman/
+
+**Oil Jumps to $116 a Barrel on Signs of Escalation of Middle East War**\
+`Investors digested increasing signs of escalation of the U.S.-Israeli war in Iran, which has led to a blockage of critical energy supplies.`\
+https://nytimes.com/2026/03/29/business/oil-stocks-gasoline-prices-iran.html
+
 **Nico Hoerner reflects the standards of this generation of Cubs players**\
 `What the Cubs learned during trade calls is that, though other teams value Hoerner, no one valued him as much as they did.`\
 https://nytimes.com/athletic/7156669/2026/03/29/chicago-cubs-nico-hoerner-standards/
 
 **How Angela Dugalić set the tone for UCLA's Final Four run**\
-`SACRAMENTO, Calif.`\
+`Dugalić had 16 points, six rebounds, four assists and two steals and was a team-high plus-14 in the win over Duke.`\
 https://nytimes.com/athletic/7156908/2026/03/29/ucla-angela-dugalic-final-four/
 
 **Men's NCAA Tournament odds: Arizona, Michigan emerge as favorites after Duke's exit**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7156815/2026/03/29/cayden-boozer-pass-stolen-duke-u
 **Elliott tops Hamlin in redemptive win for crew chief: Martinsville takeaways**\
 `Hamlin led 292 of the first 317 laps of the Cook Out 400, but crew chief Alan Gustafson made the right call to help push Elliott to victory.`\
 https://nytimes.com/athletic/7156754/2026/03/29/chase-elliott-martinsville-takeaways/
-
-**Jayson Tatum's season-high 32 points mark vital step in Achilles return**\
-`Tatum notched 32 points on Sunday, reaching the 30-point mark for the first time since returning from a torn Achilles on March 6.`\
-https://nytimes.com/athletic/7156798/2026/03/29/celtics-jayson-tatum-achilles-recovery-points-game/
-
-**Colts owner says team 'pressed pause on a movie' during hot start in 2025, plans to resume in 2026**\
-`A Colts owner spoke at the annual owners' meeting for the first time in three years as Carlie Irsay-Gordon fielded questions.`\
-https://nytimes.com/athletic/7156563/2026/03/29/colts-carlie-irsay-gordon-owners-meetings/
-
-**49ers GM John Lynch doesn't think money is there for Joey Bosa, says bye to Jauan Jennings**\
-`"I know that would make Mama Bosa happy," he said, "but I don't know if we can afford him."`\
-https://nytimes.com/athletic/7156619/2026/03/29/49ers-joey-bosa-jauan-jennings-gm-john-lynch/
-
-**U.S. Special Operations Forces Sent to Mideast as Trump Weighs Next Move**\
-`The commandos have not been assigned specific roles. But President Trump has expressed concern about the now-closed Strait of Hormuz and Iran’s store of enriched uranium.`\
-https://nytimes.com/2026/03/29/us/politics/trump-special-operations-forces-iran.html
 

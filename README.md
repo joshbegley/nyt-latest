@@ -19,7 +19,7 @@ https://nytimes.com/2026/03/29/business/oil-stocks-gasoline-prices-iran.html
 https://nytimes.com/athletic/7156669/2026/03/29/chicago-cubs-nico-hoerner-standards/
 
 **How Angela Dugalić set the tone for UCLA's Final Four run**\
-`Dugalić had 16 points, six rebounds, four assists and two steals and was a team-high plus-14 in the win over Duke.`\
+`Dugalić had 16 points, six rebounds, four assists and two steals to pace the Bruins.`\
 https://nytimes.com/athletic/7156908/2026/03/29/ucla-angela-dugalic-final-four/
 
 **Men's NCAA Tournament odds: Arizona, Michigan emerge as favorites after Duke's exit**\

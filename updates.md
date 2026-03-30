@@ -1,3 +1,23 @@
+**Trump Says Iran Agreed to Allow 20 More Ships of Oil Through Strait of Hormuz**\
+`The president, speaking to reporters on Air Force One, cast the permission as a “sign of respect.” He also asserted that the United States had already achieved “regime change” in Iran.`\
+https://nytimes.com/2026/03/29/world/middleeast/trump-says-iran-agreed-to-allow-20-more-ships-of-oil-through-strait-of-hormuz.html
+
+**Blue Jackets blow 3-0 lead in third period in latest collapse for shootout loss**\
+`After an utterly dominant first period, the Blue Jackets slowly lost their grip on the game to give up a valuable point.`\
+https://nytimes.com/athletic/7156504/2026/03/29/blue-jackets-shootout-bowness-playoffs-push-bruins/
+
+**Eagles GM Roseman sticks to script: 'A.J. Brown is a member of the Eagles'**\
+`If the Eagles trade Brown after June 1, they would absorb less of a salary cap hit this offseason.`\
+https://nytimes.com/athletic/7156886/2026/03/29/aj-brown-speculation-eagles-gm-howie-roseman/
+
+**Oil Jumps to $116 a Barrel on Signs of Escalation of Middle East War**\
+`Investors digested increasing signs of escalation of the U.S.-Israeli war in Iran, which has led to a blockage of critical energy supplies.`\
+https://nytimes.com/2026/03/29/business/oil-stocks-gasoline-prices-iran.html
+
+**How Angela Dugalić set the tone for UCLA's Final Four run**\
+`Dugalić had 16 points, six rebounds, four assists and two steals and was a team-high plus-14 in the win over Duke.`\
+https://nytimes.com/athletic/7156908/2026/03/29/ucla-angela-dugalic-final-four/
+
 **Nico Hoerner reflects the standards of this generation of Cubs players**\
 `What the Cubs learned during trade calls is that, though other teams value Hoerner, no one valued him as much as they did.`\
 https://nytimes.com/athletic/7156669/2026/03/29/chicago-cubs-nico-hoerner-standards/
