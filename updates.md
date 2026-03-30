@@ -1,3 +1,15 @@
+**Brian Schottenheimer: Cowboys have plans for George Pickens to 'be here for a long time'**\
+`Schottenheimer said Pickens has been spending time with CeeDee Lamb and Dak Prescott this offseason.`\
+https://nytimes.com/athletic/7157799/2026/03/30/cowboys-george-pickens-franchise-tag-contract/
+
+**Josh Allen injury update: 'When he gets back in April, we expect him to be full-go'**\
+`The Bills quarterback appeared in a walking boot at coach Joe Brady's introductory news conference in January.`\
+https://nytimes.com/athletic/7158091/2026/03/30/josh-allen-injury-update-bills/
+
+**How to watch Angels vs. Cubs: Time, TV, streaming for March 30**\
+`Find out how to watch the Los Angeles Angels play the Chicago Cubs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7158320/2026/03/30/angels-vs-cubs-stream-how-to-watch-march-30/
+
 **Agosto Machado Is Dead; Artist Memorialized New York’s Avant-Garde**\
 `An experimental theater veteran, he collected the ephemera of his friends and colleagues. As they began to die, he made shrines honoring them.`\
 https://nytimes.com/2026/03/30/arts/design/agosto-machado-dead.html
