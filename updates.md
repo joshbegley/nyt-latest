@@ -1,3 +1,7 @@
+**Late-game mistake by Cayden Boozer leads to Duke's latest NCAA meltdown**\
+`The freshman just needed to hold on to the ball with time running out. But he tried to make a pass. UConn had its opening.`\
+https://nytimes.com/athletic/7156815/2026/03/29/cayden-boozer-pass-stolen-duke-uconn/
+
 **Elliott tops Hamlin in redemptive win for crew chief: Martinsville takeaways**\
 `Hamlin led 292 of the first 317 laps of the Cook Out 400, but crew chief Alan Gustafson made the right call to help push Elliott to victory.`\
 https://nytimes.com/athletic/7156754/2026/03/29/chase-elliott-martinsville-takeaways/

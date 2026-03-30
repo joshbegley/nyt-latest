@@ -1,3 +1,7 @@
+**Late-game mistake by Cayden Boozer leads to Duke's latest NCAA meltdown**\
+`The freshman just needed to hold on to the ball with time running out. But he tried to make a pass. UConn had its opening.`\
+https://nytimes.com/athletic/7156815/2026/03/29/cayden-boozer-pass-stolen-duke-uconn/
+
 **Elliott tops Hamlin in redemptive win for crew chief: Martinsville takeaways**\
 `Hamlin led 292 of the first 317 laps of the Cook Out 400, but crew chief Alan Gustafson made the right call to help push Elliott to victory.`\
 https://nytimes.com/athletic/7156754/2026/03/29/chase-elliott-martinsville-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7156650/2026/03/29/tatsuya-imai-mlb-debut-houston-a
 **Fans at World Cup risk facing ‘troubling attacks on human rights’, warns Amnesty**\
 `The human rights organisation says the U.S. is “facing a human rights emergency” while risks in co-hosts Mexico and Canada are also covered.`\
 https://nytimes.com/athletic/7154144/2026/03/29/world-cup-fans-human-rights-report/
-
-**Sinner caps Miami dominance with first men's 'Sunshine Double' in 9 years**\
-`The 24-year-old Italian took down Jiri Lehecka of the Czech Republic in straight sets at Hard Rock Stadium.`\
-https://nytimes.com/athletic/7156468/2026/03/29/jannik-sinner-miami-open-sunshine-double/
 
