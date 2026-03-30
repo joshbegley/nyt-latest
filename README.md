@@ -14,10 +14,6 @@ https://nytimes.com/athletic/7158477/2026/03/30/robert-kraft-patriots-owner-play
 `The teacher was taken to a hospital, and the student died at the scene, the authorities said.`\
 https://nytimes.com/2026/03/30/us/texas-shooting-teacher-student-dead-high-school.html
 
-**Timberwolves lose Jaden McDaniels as Minnesota makes playoff push**\
-`With McDaniels, one of Minnesota's most durable and versatile players sidelined, the Timberwolves' depth will be tested. `\
-https://nytimes.com/athletic/7158434/2026/03/30/jaden-mcdaniels-injury-timberwolves-nba/
-
 **As Trump Squeezes Cuba, U.S. Military Exists in a Bubble**\
 `The Navy base at Guantánamo Bay sparkles at night while neighbors across a Cuban minefield struggle in darkness driven by a Trump fuel embargo.`\
 https://nytimes.com/2026/03/30/us/politics/gitmo-cuba-trump.html
@@ -33,4 +29,8 @@ https://nytimes.com/athletic/7158275/2026/03/30/matt-lafleur-packers-nfl-league-
 **Pochettino insists he is open to staying as USMNT coach after World Cup**\
 `The USMNT head coach has repeatedly been linked with a return to European club soccer`\
 https://nytimes.com/athletic/7158441/2026/03/30/pochettino-usmnt-coach-return-world-cup/
+
+**Timberwolves lose Jaden McDaniels as Minnesota makes playoff push**\
+`With McDaniels, one of Minnesota's most durable and versatile players sidelined, the Timberwolves' depth will be tested. `\
+https://nytimes.com/athletic/7158434/2026/03/30/jaden-mcdaniels-injury-timberwolves-nba/
 
