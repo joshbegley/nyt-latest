@@ -1,3 +1,7 @@
+**First look at the men's Final Four: Why Michigan-Arizona, UConn-Illinois will be thrilling**\
+`Michigan and Arizona are arguably the nation's two best teams, UConn is going for a third title in four years, and Illinois wants its first.`\
+https://nytimes.com/athletic/7156435/2026/03/29/final-four-schedule-matchups-march-madness/
+
 **In a lost season, the Rangers have at least uncovered some intriguing bottom-six depth**\
 `Three rookies made a clear impact against the Panthers in just the Rangers' 11th win at Madison Square Garden this season.`\
 https://nytimes.com/athletic/7156596/2026/03/29/new-york-rangers-roster-depth-sykora-chmelar-laba-panthers/
