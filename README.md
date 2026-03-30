@@ -1,3 +1,11 @@
+**Spurs pursuing Roberto De Zerbi appointment**\
+`Spurs have offered a long-term contract and significant financial package which would make him one of the best paid managers in the league.`\
+https://nytimes.com/athletic/7112409/2026/03/30/roberto-de-zerbi-tottenham-manager-offer/
+
+**Rosenthal: So far, MLB’s highly-riveting ABS is proving to be a good call**\
+`ABS is already introducing new forms of scrutiny, new ways to talk baseball and new strategies to debate.`\
+https://nytimes.com/athletic/7156806/2026/03/30/automated-ball-strike-system-mlb-success/
+
 **A hockey player from birth: How a family's devotion built a rising NHL star**\
 `Ivan Demidov's rookie success with the Montreal Canadiens comes as a result of a life-changing decision his parents made 13 years ago.`\
 https://nytimes.com/athletic/7148368/2026/03/30/ivan-demidov-canadiens-nhl-family/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/30/learning/whats-your-favorite-season.html
 **Dancing in Space: Rethinking Bodies Without Gravity**\
 `As a new commercial era of space exploration accelerates, scientists are considering the physical culture of outer space. Dancers are well positioned to help.`\
 https://nytimes.com/2026/03/30/arts/dance/dancers-gravity-scientists-space.html
-
-**Confessions of a 17th-Century Diarist, Power Broker and Predator**\
-`Samuel Pepys’s journals are an invaluable record of British history. A new book reconsiders his infamous sexual exploits.`\
-https://nytimes.com/2026/03/30/books/review/confessions-of-samuel-pepys-bedoyere.html
-
-**$2.5 Million Homes in California**\
-`A midcentury modern in Los Angeles, a Queen Anne Revival in Alameda and a contemporary house in Laguna Beach.`\
-https://nytimes.com/2026/03/30/realestate/laguna-beach-la-alameda-home-sales.html
 
