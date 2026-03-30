@@ -1,3 +1,7 @@
+**2 Australian States Waive Transit Fares as Fuel Prices Soar**\
+`The measures in Victoria and Tasmania are temporary, but show how far and how intensely the oil shock from the war in Iran has spread.`\
+https://nytimes.com/2026/03/30/world/australia/australia-melbourne-free-transit.html
+
 **The New York Times in Print for Monday, March 30, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/30/todays-new-york-times
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/7138762/2026/03/30/adam-ankers-death-football-heart
 **Tudor left Tottenham worse than he found them. Here are the key mistakes he made**\
 `Tudor failed to win any of his five league games in charge of Spurs. Here, The Athletic breaks down the key decisions he got wrong`\
 https://nytimes.com/athletic/7140519/2026/03/30/igor-tudor-tottenham-hotspur-premier-league/
-
-**What does football think of the Premier League's sanction agreement with Chelsea?**\
-`After Chelsea were fined £10m and given a suspended transfer ban, we asked executives in the game what they made of the punishment`\
-https://nytimes.com/athletic/7128191/2026/03/30/chelsea-premier-league-punishment-analysis/
 

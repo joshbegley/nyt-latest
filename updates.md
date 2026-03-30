@@ -1,3 +1,7 @@
+**2 Australian States Waive Transit Fares as Fuel Prices Soar**\
+`The measures in Victoria and Tasmania are temporary, but show how far and how intensely the oil shock from the war in Iran has spread.`\
+https://nytimes.com/2026/03/30/world/australia/australia-melbourne-free-transit.html
+
 **The New York Times in Print for Monday, March 30, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/30/todays-new-york-times
