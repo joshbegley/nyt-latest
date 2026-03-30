@@ -1,3 +1,11 @@
+**LeBron James adds nod to his nickname with new signature**\
+`LeBron adds some artistry to his autograph in latest change. `\
+https://nytimes.com/athletic/7158892/2026/03/30/lebron-james-crown-signature-autographs-lakers/
+
+**Brewers prospect Cooper Pratt finalizing 8-year, $51 million contract: Sources**\
+`The 21-year-old shortstop has only played in three games above Double A.`\
+https://nytimes.com/athletic/7158939/2026/03/30/brewers-cooper-pratt-contract/
+
 **Falcons' decision-makers noncommittal on QB competition**\
 `Kevin Stefanski discussed Michael Penix and Tua Tagovailoa, while Ian Cunningham didn't rule out listening to trade offers for Kyle Pitts.`\
 https://nytimes.com/athletic/7158870/2026/03/30/falcons-owners-meeting-michael-penix-tua-tagovailoa/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7158840/2026/03/30/mark-cuban-mavericks-sale-regret
 **Don’t Know Where to Go This Summer? Let Us Help!**\
 `We’re responding to readers’ travel quandaries with our suggestions.`\
 https://nytimes.com/2026/03/30/t-magazine/summer-vacation-travel-ideas.html
-
-**John Tortorella joins Golden Knights, focuses on mindset: 'I do not want to change a lot'**\
-`Tortorella quickly got in touch with former coach Bruce Cassidy, and said he wants to see Vegas play faster.`\
-https://nytimes.com/athletic/7158928/2026/03/30/john-tortorella-golden-knights/
-
-**Paintings Worth Millions of Dollars Stolen From Italian Museum**\
-`Thieves stole three paintings by Renoir, Cézanne and Matisse from the Magnani-Rocca Foundation in Mamiano, Italy.`\
-https://nytimes.com/video/world/europe/100000010810347/italy-art-stolen-renoir-matisse-cezanne.html
 

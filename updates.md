@@ -1,3 +1,15 @@
+**Falcons' decision-makers noncommittal on QB competition**\
+`Kevin Stefanski discussed Michael Penix and Tua Tagovailoa, while Ian Cunningham didn't rule out listening to trade offers for Kyle Pitts.`\
+https://nytimes.com/athletic/7158870/2026/03/30/falcons-owners-meeting-michael-penix-tua-tagovailoa/
+
+**Josh Harris says Commanders new uniforms will embrace and update the past**\
+`The Commanders' owner also addressed the progress of the team's stadium project and Jayden Daniels' participation in a flag football event.`\
+https://nytimes.com/athletic/7158815/2026/03/30/washington-commanders-uniforms-super-bowl-era/
+
+**'From a teenager to a man': Why Flyers believe Porter Martone can help them now**\
+`“I think I really found my identity as a player and who I needed to be to be successful,” Martone said of his one season in college.`\
+https://nytimes.com/athletic/7158802/2026/03/30/flyers-porter-martone-signing-debut/
+
 **Removing Unfriendly Leaders**\
 `The Trump administration appears to have embraced a new foreign policy tactic: getting rid of leaders it doesn’t like. Here’s how that can go wrong.`\
 https://nytimes.com/2026/03/30/world/targeted-strike-iran-us-israel-cuba.html
