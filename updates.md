@@ -1,3 +1,11 @@
+**Paintings Worth Millions of Dollars Stolen From Italian Museum**\
+`Thieves stole three paintings by Renoir, Cézanne and Matisse from the Magnani-Rocca Foundation in Mamiano, Italy.`\
+https://nytimes.com/video/world/europe/100000010810347/italy-art-stolen-renoir-matisse-cezanne.html
+
+**T.S.A. Workers Get Paid but Wonder When Next Check Will Come**\
+`A memo that President Trump signed on Friday ordering the Department of Homeland Security to pay T.S.A. officers did not specify whether they would be paid on a regular schedule.`\
+https://nytimes.com/2026/03/30/us/politics/tsa-workers-paychecks-trump-executive-order.html
+
 **N.Y.U. Closes Its Abu Dhabi Campus as Iran Vows Retaliation for Strikes**\
 `After a university in Tehran was struck during the war, Iranian leaders said that the outposts of U.S. schools were “legitimate targets.”`\
 https://nytimes.com/2026/03/30/nyregion/nyu-abu-dhabi-campus-closed.html
