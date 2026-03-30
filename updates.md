@@ -1,3 +1,7 @@
+**Move to center latest change for Frondell as Blackhawks rookie adjusts to NHL**\
+`Coach Jeff Blashill thought Frondell might be a fit down the middle in the NHL and took the opportunity to try him in the new position.`\
+https://nytimes.com/athletic/7156463/2026/03/29/anton-frondell-blackhawks-center-levshunov-injury-devils/
+
 **NFL could hire replacement officials as soon as May as labor dispute intensifies: Sources**\
 `The current collective bargaining agreement between the NFL and the NFL Referees Association expires on May 31.`\
 https://nytimes.com/athletic/7156933/2026/03/29/nfl-replacement-officials-preseason-games/
