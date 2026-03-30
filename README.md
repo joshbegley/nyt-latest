@@ -1,3 +1,7 @@
+**'From a teenager to a man': Why Flyers believe Porter Martone can help them now**\
+`“I think I really found my identity as a player and who I needed to be to be successful,” Martone said of his one season in college.`\
+https://nytimes.com/athletic/7158802/2026/03/30/flyers-porter-martone-signing-debut/
+
 **Removing Unfriendly Leaders**\
 `The Trump administration appears to have embraced a new foreign policy tactic: getting rid of leaders it doesn’t like. Here’s how that can go wrong.`\
 https://nytimes.com/2026/03/30/world/targeted-strike-iran-us-israel-cuba.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/30/us/politics/tsa-workers-paychecks-trump-executive
 **N.Y.U. Closes Its Abu Dhabi Campus as Iran Vows Retaliation for Strikes**\
 `After a university in Tehran was struck during the war, Iranian leaders said that the outposts of U.S. schools were “legitimate targets.”`\
 https://nytimes.com/2026/03/30/nyregion/nyu-abu-dhabi-campus-closed.html
-
-**Air Canada’s C.E.O. to Step Down After Comments Over Crash**\
-`The chief executive of Air Canada, Michael Rousseau, has faced backlash over a video he released primarily in English over the crash at LaGuardia Airport. Canada has two official languages, French and English, and the video was criticized as dismissive of French-speaking Canadians.`\
-https://nytimes.com/video/world/canada/100000010810143/air-canada-ceo-steps-down.html
 
