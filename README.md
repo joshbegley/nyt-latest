@@ -22,7 +22,7 @@ https://nytimes.com/athletic/7158888/2026/03/30/giants-luis-matos-trade-brewers-
 `Barely out of prototype testing, the Precision Strike Missile is shrouded in secrecy — including which Persian Gulf countries the Army is launching them from.`\
 https://nytimes.com/2026/03/30/us/politics/us-missile-strike-iran-sports-hall-school.html
 
-**Mexico Pressures U.S. Over Deaths of its Citizens in ICE Custody**\
+**Mexico Pressures U.S. Over Deaths of Its Citizens in ICE Custody**\
 `Claudia Sheinbaum, president of Mexico, said her country would take legal steps to demand better conditions at immigration detention facilities, where she said 14 Mexican citizens have died since President Trump took office.`\
 https://nytimes.com/2026/03/30/us/mexico-ice-detention-deaths.html
 
