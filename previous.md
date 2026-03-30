@@ -1,3 +1,23 @@
+**Agosto Machado Is Dead; Artist Memorialized New York’s Avant-Garde**\
+`An experimental theater veteran, he collected the ephemera of his friends and colleagues. As they began to die, he made shrines honoring them.`\
+https://nytimes.com/2026/03/30/arts/design/agosto-machado-dead.html
+
+**How to watch Mets vs. Cardinals: Time, TV, streaming for March 30**\
+`Find out how to watch the New York Mets play the St. Louis Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7158314/2026/03/30/mets-vs-cardinals-stream-how-to-watch-march-30/
+
+**How to watch Rays vs. Brewers: Time, TV, streaming for March 30**\
+`Find out how to watch the Tampa Bay Rays play the Milwaukee Brewers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7158304/2026/03/30/rays-vs-brewers-stream-how-to-watch-march-30/
+
+**How to watch Red Sox vs. Astros: Time, TV, streaming for March 30**\
+`Find out how to watch the Boston Red Sox play the Houston Astros, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7158301/2026/03/30/red-sox-vs-astros-stream-how-to-watch-march-30/
+
+**How to watch Athletics vs. Braves: Time, TV, streaming for March 30**\
+`Find out how to watch the Athletics play the Atlanta Braves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7158294/2026/03/30/athletics-vs-braves-stream-how-to-watch-march-30/
+
 **Senate Convenes, but G.O.P. Makes No Move to Pass House Bill to Reopen D.H.S.**\
 `With Congress in recess, much of the Homeland Security Department remains without money because of the impasse on Capitol Hill, even as airport security workers are to begin getting paid.`\
 https://nytimes.com/2026/03/30/us/senate-republicans-dhs-shutdown.html
@@ -17,20 +37,4 @@ https://nytimes.com/athletic/7158248/2026/03/30/bulls-vs-spurs-stream-how-to-wat
 **How to watch Timberwolves vs. Mavericks: Time, TV, streaming**\
 `Find out how to watch the Minnesota Timberwolves play the Dallas Mavericks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7158245/2026/03/30/timberwolves-vs-mavericks-stream-how-to-watch-march-30/
-
-**How to watch Suns vs. Grizzlies: Time, TV, streaming**\
-`Find out how to watch the Phoenix Suns play the Memphis Grizzlies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7158242/2026/03/30/suns-vs-grizzlies-stream-how-to-watch-march-30/
-
-**T.S.A. Lines Are Getting Shorter, for Now**\
-`The hourslong waits at airports appear to be easing after the president signed an order to pay Transportation Security Administration officers.`\
-https://nytimes.com/2026/03/30/travel/tsa-lines-trump-paychecks.html
-
-**The Witch’s Magic Is Feeble, but Her Story Casts a Spell**\
-`Part horror, part fable, the latest novel by Marie NDiaye to be translated into English is an exacting portrait of domestic entrapment and psychological turmoil.`\
-https://nytimes.com/2026/03/30/books/review/the-witch-marie-ndiaye.html
-
-**Viral DR Congo fan will not attend World Cup play-off in Mexico due to visa issues**\
-`Lumumba Vea, real name Michel Kuka Mboladinga, is known for his snappy suits and his ability to hold a statuesque pose for entire matches.`\
-https://nytimes.com/athletic/7158161/2026/03/30/dr-congo-fan-lumumba-statue-world-cup/
 
