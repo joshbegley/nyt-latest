@@ -1,3 +1,19 @@
+**Here’s the latest.**\
+`By David E. Sanger, Aaron Boxerman and Sanam Mahoozi`\
+https://nytimes.com/live/2026/03/30/world/iran-war-trump-oil-news/heres-the-latest
+
+**Iran War Live Updates: Trump Says Iran to Allow More Oil Ships Through Strait of Hormuz**\
+`President Trump characterized the move as a “sign of respect” even as fighting between Israel and Iran continued and the war dragged into its second month.`\
+https://nytimes.com/live/2026/03/30/world/iran-war-trump-oil-news
+
+**The Founder of an ‘Orgasmic Meditation’ Group Is in Jail. And at Dinner?**\
+`Nicole Daedone, the former leader of OneTaste, is set to be sentenced after being convicted of forced labor conspiracy last year. But she is still finding ways to spread her message from behind bars.`\
+https://nytimes.com/2026/03/30/nyregion/nicole-daedone-one-taste-sentencing.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/30/crosswords/spelling-bee-forum.html
+
 **Trump Is Setting the World on Fire. The Rest of Us Choke on the Fumes.**\
 `Trump’s war on Iran is dangerous for everyone.`\
 https://nytimes.com/2026/03/30/opinion/trump-iran-war-india-oil.html
