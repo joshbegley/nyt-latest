@@ -1,8 +1,12 @@
+**Weekly Student News Quiz: Social Media Trial, Global Protests, Baseball**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2026/03/30/learning/30StudentNewsQuiz.html
+
 **Ben Stevenson Dies at 89; Choreographer Made Houston Ballet Thrive**\
 `He created dances performed around the world, and under his leadership the Houston company grew into one of America’s largest and most prominent.`\
 https://nytimes.com/2026/03/30/arts/dance/ben-stevenson-dead.html
 
-**Browns owner: Deshaun Watson still has 'great chance' to become team's QB**\
+**Deshaun Watson still has 'great chance' to become Browns QB, owner says**\
 `Haslam called the trade for and commitment to quarterback Deshaun Watson "a big swing and a miss" last year. Watson didn't play in 2025.`\
 https://nytimes.com/athletic/7158960/2026/03/30/browns-deshaun-watson-jimmy-haslam/
 
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010811444/trump-administration-cuba-
 **Trump Reveals New Look for White House Ballroom After Times Article**\
 `Architects and preservation organizations have warned that little scrutiny has been given to the project’s design plans.`\
 https://nytimes.com/2026/03/30/upshot/trump-white-house-ballroom-plans.html
-
-**What to Know About California’s Executive Order on A.I.**\
-`Gov. Gavin Newsom, a Democrat, issued an order requiring safety and privacy guardrails for artificial intelligence companies contracting with the state.`\
-https://nytimes.com/2026/03/30/technology/california-ai-executive-order.html
 
