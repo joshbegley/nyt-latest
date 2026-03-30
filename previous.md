@@ -1,3 +1,11 @@
+**How Angela Dugalić set the tone for UCLA's Final Four run**\
+`SACRAMENTO, Calif.`\
+https://nytimes.com/athletic/7156908/2026/03/29/ucla-angela-dugalic-final-four/
+
+**Men's NCAA Tournament odds: Arizona, Michigan emerge as favorites after Duke's exit**\
+`Arizona and Michigan, the two No. 1 seeds remaining, enter the Final Four as favorites to win the national title.`\
+https://nytimes.com/athletic/7156898/2026/03/29/ncaa-tournament-odds-mens-arizona-michigan-illinois-uconn/
+
 **Vegas' relentless culture led to Cassidy's firing, but who really deserves the blame?**\
 `Vegas has long showed it will do anything to win, but can quick-fixer John Tortorella win with this roster?`\
 https://nytimes.com/athletic/7156790/2026/03/29/vegas-golden-knights-coach-cassidy-fired-tortorella/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/29/us/politics/trump-special-operations-forces-iran.
 **First look at the men's Final Four: Why Michigan-Arizona, UConn-Illinois will be thrilling**\
 `Michigan and Arizona are arguably the nation's two best teams, UConn is going for a third title in four years, and Illinois wants its first.`\
 https://nytimes.com/athletic/7156435/2026/03/29/final-four-schedule-matchups-march-madness/
-
-**In a lost season, the Rangers have at least uncovered some intriguing bottom-six depth**\
-`Three rookies made a clear impact against the Panthers in just the Rangers' 11th win at Madison Square Garden this season.`\
-https://nytimes.com/athletic/7156596/2026/03/29/new-york-rangers-roster-depth-sykora-chmelar-laba-panthers/
-
-**Tatsuya Imai's MLB debut disappoints as command issues lead to early exit**\
-`The Japanese starter admitted he was "kind of nervous" after an outing that showed his transition to MLB is a work in progress.`\
-https://nytimes.com/athletic/7156650/2026/03/29/tatsuya-imai-mlb-debut-houston-astros/
 

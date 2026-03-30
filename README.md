@@ -1,3 +1,7 @@
+**Nico Hoerner reflects the standards of this generation of Cubs players**\
+`What the Cubs learned during trade calls is that, while other teams value Hoerner, no one valued him as much as they did.`\
+https://nytimes.com/athletic/7156669/2026/03/29/chicago-cubs-nico-hoerner-standards/
+
 **How Angela Dugalić set the tone for UCLA's Final Four run**\
 `SACRAMENTO, Calif.`\
 https://nytimes.com/athletic/7156908/2026/03/29/ucla-angela-dugalic-final-four/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7156619/2026/03/29/49ers-joey-bosa-jauan-jennings-g
 **U.S. Special Operations Forces Sent to Mideast as Trump Weighs Next Move**\
 `The commandos have not been assigned specific roles. But President Trump has expressed concern about the now-closed Strait of Hormuz and Iran’s store of enriched uranium.`\
 https://nytimes.com/2026/03/29/us/politics/trump-special-operations-forces-iran.html
-
-**First look at the men's Final Four: Why Michigan-Arizona, UConn-Illinois will be thrilling**\
-`Michigan and Arizona are arguably the nation's two best teams, UConn is going for a third title in four years, and Illinois wants its first.`\
-https://nytimes.com/athletic/7156435/2026/03/29/final-four-schedule-matchups-march-madness/
 
