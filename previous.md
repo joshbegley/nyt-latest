@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/7158275/2026/03/30/matt-lafleur-packers-nfl-league-meeting/
 
 **Pochettino insists he is open to USMNT coaching return after World Cup**\
-`The USMNT heaad coach has repeatedly been linked with a return to European club soccer`\
+`The USMNT head coach has repeatedly been linked with a return to European club soccer`\
 https://nytimes.com/athletic/7158441/2026/03/30/pochettino-usmnt-coach-return-world-cup/
 
 **Rams considered trading Davante Adams, targeting Kirk Cousins as backup QB**\
@@ -33,8 +33,4 @@ https://nytimes.com/athletic/7158337/2026/03/30/twins-manager-ejected-abs-system
 **401(k) Plans Could Add Riskier Investments Under a New Rule**\
 `The Labor Dept. proposed a change that would make it easier for workplace retirement plans to include alternative investments like private credit and crypto.`\
 https://nytimes.com/2026/03/30/your-money/401k-private-equity-crypto-investments.html
-
-**Blue Jackets Monday Gathering: After another kick in the teeth, Bowness will stay 'very positive'**\
-`Is the pressure of success is simply too much for the Blue Jackets, collectively, to handle?`\
-https://nytimes.com/athletic/7155500/2026/03/30/blue-jackets-playoffs-slump-standings/
 

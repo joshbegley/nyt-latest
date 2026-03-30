@@ -1,3 +1,7 @@
+**Pochettino insists he is open to USMNT coaching return after World Cup**\
+`The USMNT head coach has repeatedly been linked with a return to European club soccer`\
+https://nytimes.com/athletic/7158441/2026/03/30/pochettino-usmnt-coach-return-world-cup/
+
 **Matt LaFleur suggests disgruntled players took a toll on Packers last season**\
 `LaFleur declined to specify if the players who were unhappy with their roles last season are still on the team.`\
 https://nytimes.com/athletic/7158275/2026/03/30/matt-lafleur-packers-nfl-league-meeting/

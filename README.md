@@ -1,3 +1,11 @@
+**As Trump Squeezes Cuba, U.S. Military Exists in a Bubble**\
+`The Navy base at Guantánamo Bay sparkles at night while neighbors across a Cuban minefield struggle in darkness driven by a Trump fuel embargo.`\
+https://nytimes.com/2026/03/30/us/politics/gitmo-cuba-trump.html
+
+**California’s Warmest, Driest March in Years Is Finally Ending**\
+`Parts of the state are expected to see light rain this week.`\
+https://nytimes.com/2026/03/30/weather/california-rain-heat-march.html
+
 **Matt LaFleur suggests disgruntled players took a toll on Packers last season**\
 `LaFleur declined to specify if the players who were unhappy with their roles last season are still on the team.`\
 https://nytimes.com/athletic/7158275/2026/03/30/matt-lafleur-packers-nfl-league-meeting/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/03/30/nyregion/rikers-deaths-jail-mamdani.html
 **Tuchel: England attackers not producing numbers 'we would normally expect'**\
 `The England head coach said that only Harry Kane is recording "outstanding" numbers this season.`\
 https://nytimes.com/athletic/7158208/2026/03/30/england-thomas-tuchel-attackers-harry-kane/
-
-**Derek Shelton’s ejection highlights thought process, tricky nature of life with ABS system**\
-`They have a 64 percent success rate on an MLB-high 11 ABS challenges issued but, like everyone else, they're still figuring out the nuance.`\
-https://nytimes.com/athletic/7158337/2026/03/30/twins-manager-ejected-abs-system-robot-umpire/
-
-**401(k) Plans Could Add Riskier Investments Under a New Rule**\
-`The Labor Dept. proposed a change that would make it easier for workplace retirement plans to include alternative investments like private credit and crypto.`\
-https://nytimes.com/2026/03/30/your-money/401k-private-equity-crypto-investments.html
 
