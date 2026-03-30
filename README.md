@@ -1,3 +1,7 @@
+**Celine Dion Announces Comeback Concerts in Paris**\
+`Dion has rarely performed since announcing her stiff person syndrome diagnosis in 2022.`\
+https://nytimes.com/2026/03/30/arts/music/celine-dion-paris-concerts.html
+
 **Support for Israel Is Collapsing. Netanyahu Sees That.**\
 `Prime Minister Benjamin Netanyahu of Israel is racing to eliminate regional threats because he sees that U.S. support for the country is collapsing, Mona Charen, the policy editor at The Bulwark, argues on “The Opinions.”`\
 https://nytimes.com/video/opinion/100000010806926/support-for-israel-is-collapsing-netanyahu-sees-that.html
