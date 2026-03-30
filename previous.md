@@ -1,3 +1,15 @@
+**Xi Invites Taiwan’s Opposition Leader to Talk ‘Peace’ Ahead of Trump Summit**\
+`The planned visit by Cheng Li-wun appears designed to show Beijing’s influence and convey a benign message ahead of the summit with President Trump.`\
+https://nytimes.com/2026/03/30/world/asia/china-xi-taiwan-cheng.html
+
+**Vikings offseason roster projection: Where will they look in the draft to fill holes?**\
+`After taking a conservative approach in free agency, the Vikings have several important positions and roles to fill via the NFL Draft.`\
+https://nytimes.com/athletic/7152417/2026/03/30/vikings-roster-projection-nfl-draft/
+
+**This Week in Mets: What matters and what doesn't off an opening series win**\
+`Sean Manaea’s fastball sat around 88 to 89 mph on Sunday, and recent history suggests it's difficult to survive in the majors that way. `\
+https://nytimes.com/athletic/7156986/2026/03/30/mets-luis-robert-bo-bichette-sean-manaea/
+
 **Israel to Vote on Death Penalty Targeting Palestinians Guilty of Lethal Attacks**\
 `The bill is broadly popular and expected to pass. Critics say it would strip away many of the safeguards intended to preserve due process, including the possibility of a pardon.`\
 https://nytimes.com/2026/03/30/world/middleeast/israel-death-penalty-palestinians-attacks.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7157214/2026/03/30/knicks-loss-thunder-playoffs-app
 **Miles played in snow with Scherzer way before they became Blue Jays teammates**\
 `Toronto swept the three-game series against the Athletics, thanks two walk-off hits, brilliant rookie debuts and dominant starting pitching.`\
 https://nytimes.com/athletic/7156929/2026/03/30/blue-jays-opening-series-notes/
-
-**Canada's World Cup squad, and starting XI, is coming into focus for Jesse Marsch**\
-`Alphonso Davies, Jonathan David and Tajon Buchanan may be locked in, but who else is going to start for Canada this summer?`\
-https://nytimes.com/athletic/7156796/2026/03/30/canada-world-cup-starting-xi-analysis/
-
-**Final Four power rankings: Who will cut down the nets in Indianapolis?**\
-`UConn and Illinois are both more than good enough to avoid Saturday's Michigan-Arizona nightcap being a de facto championship game.`\
-https://nytimes.com/athletic/7156645/2026/03/30/final-four-power-rankings-favorites-odds/
-
-**2026 NHL prospect pool rankings: No. 11 Washington Capitals**\
-`The Capitals have five legit wing prospects of different shapes and sizes, and one of the most talented young D in the sport.`\
-https://nytimes.com/athletic/7134207/2026/03/30/washington-capitals-nhl-prospect-rankings-2026/
 

@@ -1,3 +1,15 @@
+**Xi Invites Taiwan’s Opposition Leader to Talk ‘Peace’ Ahead of Trump Summit**\
+`The planned visit by Cheng Li-wun appears designed to show Beijing’s influence and convey a benign message ahead of the summit with President Trump.`\
+https://nytimes.com/2026/03/30/world/asia/china-xi-taiwan-cheng.html
+
+**Vikings offseason roster projection: Where will they look in the draft to fill holes?**\
+`After taking a conservative approach in free agency, the Vikings have several important positions and roles to fill via the NFL Draft.`\
+https://nytimes.com/athletic/7152417/2026/03/30/vikings-roster-projection-nfl-draft/
+
+**This Week in Mets: What matters and what doesn't off an opening series win**\
+`Sean Manaea’s fastball sat around 88 to 89 mph on Sunday, and recent history suggests it's difficult to survive in the majors that way. `\
+https://nytimes.com/athletic/7156986/2026/03/30/mets-luis-robert-bo-bichette-sean-manaea/
+
 **Israel to Vote on Death Penalty Targeting Palestinians Guilty of Lethal Attacks**\
 `The bill is broadly popular and expected to pass. Critics say it would strip away many of the safeguards intended to preserve due process, including the possibility of a pardon.`\
 https://nytimes.com/2026/03/30/world/middleeast/israel-death-penalty-palestinians-attacks.html
