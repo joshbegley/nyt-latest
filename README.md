@@ -1,3 +1,11 @@
+**Jonathon Brooks missed 2025 and Dave Canales looking forward to getting him back**\
+`The Panthers drafted Brooks in the second round in 2024 and he's been limited after an ACL injury in college and again late in 2024.`\
+https://nytimes.com/athletic/7157782/2026/03/30/panthers-jonathon-brooks-acl-injury-return/
+
+**We Tried Styles of Rothy’s Flexible Flat**\
+`Are Rothy’s really the Goldilocks of comfy yet stylish shoes, or do its flats fall, well, flat? A panel of testers wore these shoes everywhere for two weeks to see if they lived up to their promise of machine-washable, blister-free comfort.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010796426/we-tried-styles-of-rothys-flexible-flat.html
+
 **‘No Kings’: Vast Throngs Say No to Trump**\
 `Readers discuss the huge rallies on Saturday protesting the president.`\
 https://nytimes.com/2026/03/30/opinion/letters/no-kings-protests-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/30/business/lawmakers-probe-elon-musk-treasury.html
 **He Rode an Elephant Costume Into Colombia’s Senate**\
 `After years of anonymously documenting abandoned public works projects in Colombia, Luis Carlos Rúa revealed himself days before his election.`\
 https://nytimes.com/2026/03/30/world/americas/luis-carlos-rua-colombia-senator.html
-
-**49ers 'in no rush' to release Brandon Aiyuk, holding out hope for trade**\
-`"Eventually, it will resolve itself," coach Kyle Shanahan said of the situation. "Hopefully, we get something for it."`\
-https://nytimes.com/athletic/7157987/2026/03/30/49ers-brandon-aiyuk-release-trade/
-
-**Marine Is Charged With Stealing Missile Launcher and Ammunition**\
-`A corporal is accused of taking weapons from his base, Camp Pendleton near San Diego, and reselling them.`\
-https://nytimes.com/2026/03/30/us/marine-stolen-missile-charged.html
 
