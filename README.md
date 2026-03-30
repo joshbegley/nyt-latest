@@ -1,3 +1,7 @@
+**Mark Morris’s Stations of the Cross: Simple and Stinging**\
+`One of two New York premieres at the Brooklyn Academy of Music, “Via Dolorosa” seeks truth in plainness.`\
+https://nytimes.com/2026/03/30/arts/dance/mark-morris-via-dolorosa-moon-brooklyn-academy.html
+
 **Jonathon Brooks missed 2025 and Dave Canales looking forward to getting him back**\
 `The Panthers drafted Brooks in the second round in 2024 and he's been limited after an ACL injury in college and again late in 2024.`\
 https://nytimes.com/athletic/7157782/2026/03/30/panthers-jonathon-brooks-acl-injury-return/
@@ -24,7 +28,7 @@ https://nytimes.com/athletic/7157816/2026/03/30/penguins-nhl-officiating-referee
 
 **A Democratic Electrician Nabs a State Senate Seat in Republican Florida**\
 `With Brian Nathan’s victory certified, Democrats won two of three state legislative races in this month’s special elections, all in Republican-leaning districts.`\
-https://nytimes.com/2026/03/30/us/politics/democrat-wins-florida-specail-election.html
+https://nytimes.com/2026/03/30/us/politics/brian-nathan-florida-special-election.html
 
 **Parity or panic: NWSL's top teams struggle with early season woes**\
 `Angel City FC is the only undefeated team in NWSL, while last year's contenders fall well below the top of the table `\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7157359/2026/03/30/nwsl-championship-parity-panic-s
 **Democrats Examine Elon Musk’s Role in Suspension of Business Disclosure Law**\
 `Lawmakers have asked the Treasury Department for information on how Mr. Musk may have influenced the decision to end enforcement of the Corporate Transparency Act.`\
 https://nytimes.com/2026/03/30/business/lawmakers-probe-elon-musk-treasury.html
-
-**He Rode an Elephant Costume Into Colombia’s Senate**\
-`After years of anonymously documenting abandoned public works projects in Colombia, Luis Carlos Rúa revealed himself days before his election.`\
-https://nytimes.com/2026/03/30/world/americas/luis-carlos-rua-colombia-senator.html
 
