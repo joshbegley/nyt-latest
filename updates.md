@@ -1,3 +1,19 @@
+**Michigan Synagogue Attack Was ‘Inspired by Hezbollah,’ Officials Say**\
+`The man who rammed his vehicle into the synagogue was purposely targeting the Jewish community, officials said on Monday, detailing his days of planning.`\
+https://nytimes.com/2026/03/30/us/michigan-synagogue-attack-hezbollah.html
+
+**Why the Seahawks are not 'defending' their Super Bowl title, and other notes from Arizona**\
+`Meanwhile, the Seahawks are happy with their running backs but frustrated by the new "Millionaires Tax" in Washington.`\
+https://nytimes.com/athletic/7159150/2026/03/30/seahawks-nfl-owners-meetings-mike-macdonald/
+
+**President Trump Shares Revised Plans for White House Ballroom**\
+`President Trump unveiled revised plans for his proposed White House ballroom following a New York Times article that detailed criticisms that architects and preservationists have made of the previous design.`\
+https://nytimes.com/video/us/politics/100000010811532/trump-white-house-ballroom-designs.html
+
+**Donovan questions USMNT pride, says Belgium loss could do 'psychological damage'**\
+`The former USMNT forward did not hold back in his assessment of the current team's demoralizing defeat to Belgium`\
+https://nytimes.com/athletic/7159290/2026/03/30/landon-donovan-usmnt-pride-belgium-world-cup/
+
 **Pochettino's World Cup mandate for USMNT is clear: Intensity is not optional**\
 `The U.S. manager bemoaned his side's 90-minute effort against Belgium. Will the players' response meet the challenge?`\
 https://nytimes.com/athletic/7159184/2026/03/30/usmnt-world-cup-pochettino-intensity-belgium-portugal/
