@@ -1,3 +1,19 @@
+**Mark Morris’s Stations of the Cross: Simple and Stinging**\
+`One of two New York premieres at the Brooklyn Academy of Music, “Via Dolorosa” seeks truth in plainness.`\
+https://nytimes.com/2026/03/30/arts/dance/mark-morris-via-dolorosa-moon-brooklyn-academy.html
+
+**Jonathon Brooks missed 2025 and Dave Canales looking forward to getting him back**\
+`The Panthers drafted Brooks in the second round in 2024 and he's been limited after an ACL injury in college and again late in 2024.`\
+https://nytimes.com/athletic/7157782/2026/03/30/panthers-jonathon-brooks-acl-injury-return/
+
+**We Tried Styles of Rothy’s Flexible Flat**\
+`Are Rothy’s really the Goldilocks of comfy yet stylish shoes, or do its flats fall, well, flat? A panel of testers wore these shoes everywhere for two weeks to see if they lived up to their promise of machine-washable, blister-free comfort.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010796426/we-tried-styles-of-rothys-flexible-flat.html
+
+**A Democratic Electrician Nabs a State Senate Seat in Republican Florida**\
+`With Brian Nathan’s victory certified, Democrats won two of three state legislative races in this month’s special elections, all in Republican-leaning districts.`\
+https://nytimes.com/2026/03/30/us/politics/brian-nathan-florida-special-election.html
+
 **‘No Kings’: Vast Throngs Say No to Trump**\
 `Readers discuss the huge rallies on Saturday protesting the president.`\
 https://nytimes.com/2026/03/30/opinion/letters/no-kings-protests-trump.html
