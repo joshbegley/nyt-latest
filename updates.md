@@ -1,3 +1,7 @@
+**Vegas' relentless culture led to Cassidy's firing, but who really deserves the blame?**\
+`Vegas has long showed it will do anything to win, but can quick-fixer John Tortorella win with this roster?`\
+https://nytimes.com/athletic/7156790/2026/03/29/vegas-golden-knights-coach-cassidy-fired-tortorella/
+
 **Late-game mistake by Cayden Boozer leads to Duke's latest NCAA meltdown**\
 `The freshman just needed to hold on to the ball with time running out. But he tried to make a pass. UConn had its opening.`\
 https://nytimes.com/athletic/7156815/2026/03/29/cayden-boozer-pass-stolen-duke-uconn/

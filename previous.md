@@ -1,3 +1,7 @@
+**Vegas' relentless culture led to Cassidy's firing, but who really deserves the blame?**\
+`Vegas has long showed it will do anything to win, but can quick-fixer John Tortorella win with this roster?`\
+https://nytimes.com/athletic/7156790/2026/03/29/vegas-golden-knights-coach-cassidy-fired-tortorella/
+
 **Late-game mistake by Cayden Boozer leads to Duke's latest NCAA meltdown**\
 `The freshman just needed to hold on to the ball with time running out. But he tried to make a pass. UConn had its opening.`\
 https://nytimes.com/athletic/7156815/2026/03/29/cayden-boozer-pass-stolen-duke-uconn/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7156596/2026/03/29/new-york-rangers-roster-depth-sy
 **Tatsuya Imai's MLB debut disappoints as command issues lead to early exit**\
 `The Japanese starter admitted he was "kind of nervous" after an outing that showed his transition to MLB is a work in progress.`\
 https://nytimes.com/athletic/7156650/2026/03/29/tatsuya-imai-mlb-debut-houston-astros/
-
-**Fans at World Cup risk facing ‘troubling attacks on human rights’, warns Amnesty**\
-`The human rights organisation says the U.S. is “facing a human rights emergency” while risks in co-hosts Mexico and Canada are also covered.`\
-https://nytimes.com/athletic/7154144/2026/03/29/world-cup-fans-human-rights-report/
 
