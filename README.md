@@ -1,3 +1,11 @@
+**Man United are at a low ebb. Do WSL leaders City offer a blueprint for a change of fortunes?**\
+`The derby showed how far United are behind the best teams. But it is not so long ago that champions-elect City were in a similar position…`\
+https://nytimes.com/athletic/7155632/2026/03/30/manchester-united-city-derby-blueprint/
+
+**Hurzeler, the Leverkusen links and what comes next for Brighton's head coach?**\
+`The German may have options in his homeland and the possibility of managing in the Champions League could be an option for him`\
+https://nytimes.com/athletic/7146510/2026/03/30/fabian-hurzeler-brighton-future/
+
 **Connections: Sports Edition Coach: Hints and answers for March 30, 2026**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/7157236/2026/03/30/connections-sports-edition-hints-answers-march-30-2026/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/29/world/middleeast/us-precision-strike-missile-iran
 **‘The Comeback’ Season 3, Episode 2: Getting the Band Back Together**\
 `Valerie doesn’t fully understand why people in Hollywood are so worked up about A.I. She just sees a wave she thinks she knows how to ride.`\
 https://nytimes.com/2026/03/29/arts/television/the-comeback-recap-season-3-episode-2.html
-
-**Move to center latest change for Frondell as Blackhawks rookie adjusts to NHL**\
-`Coach Jeff Blashill thought Frondell might be a fit down the middle in the NHL and took the opportunity to try him in the new position.`\
-https://nytimes.com/athletic/7156463/2026/03/29/anton-frondell-blackhawks-center-levshunov-injury-devils/
-
-**NFL could hire replacement officials as soon as May as labor dispute intensifies: Sources**\
-`The current collective bargaining agreement between the NFL and the NFL Referees Association expires on May 31.`\
-https://nytimes.com/athletic/7156933/2026/03/29/nfl-replacement-officials-preseason-games/
 
