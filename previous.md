@@ -1,3 +1,19 @@
+**DeLauter's muscle, Armstrong's journey and pitching woes: What we learned about the Guardians**\
+`Cleveland has a 2-2 record built on slim victories and one-sided losses. `\
+https://nytimes.com/athletic/7146816/2026/03/30/guardians-takeaways-chase-delauter-shawn-armstrong-pitching/
+
+**Contender on paper, disappointment down the stretch: What’s wrong with the Wild?**\
+`The Wild's next game isn't until Thursday, which gives them time to rest up and heal. Judging by their latest games, they need it.`\
+https://nytimes.com/athletic/7156022/2026/03/30/wild-slump-kaprizov-boldy-hughes-faber-playoffs/
+
+**Avenging Auston Matthews and Bruce Cassidy’s fit in Toronto: Monday Morning Leafs Report**\
+`With a visit to the Ducks looming, it's worth considering what a clash with Radko Gudas might mean, now and in the future.`\
+https://nytimes.com/athletic/7156534/2026/03/30/maple-leafs-auston-matthews-ducks-bruce-cassidy-coach/
+
+**Red Sox takeaways: How Alex Bregman's workouts helped Connelly Early, offensive woes and more**\
+`The Red Sox provided some clues about how they'll divide time among their outfielders. They didn't produce much offense, however.`\
+https://nytimes.com/athletic/7156540/2026/03/30/red-sox-connelly-early-workouts-alex-bregman-offense-outfield/
+
 **Your Questions About the News**\
 `Times reporters answer reader questions about the war, the economy and more.`\
 https://nytimes.com/2026/03/30/briefing/your-questions-about-the-news.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/30/world/middleeast/israel-death-penalty-palestinian
 **The Pulse: Better than Laettner’s shot?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7156625/2026/03/30/braylon-mullins-uconn-shot-the-pulse/
-
-**Phillies takeaways from flat 3-game start that was offense's worst since 2015**\
-`The Phillies finished the season-opening series against Texas with 18 hits and a .186 batting average. It could have been even worse.`\
-https://nytimes.com/athletic/7156885/2026/03/30/phillies-offense-struggles-takeaways-rangers/
-
-**Porter Martone contract, playoff chase provide Flyers with real momentum**\
-`The Flyers have been one of the best teams in the league since the Olympic break. Whether they make the playoffs or not, it's a great step.`\
-https://nytimes.com/athletic/7157161/2026/03/30/flyers-momentum-playoffs-zegras-martone-stars/
-
-**This men's Final Four is full of monsters, but UConn is a different beast**\
-`In Indianapolis, three extremely large teams will be looking to transform light trophy cases. And then there's the six-time champs.`\
-https://nytimes.com/athletic/7157114/2026/03/30/mens-final-four-uconn-michigan-arizona-illinois/
-
-**Time is ticking on the Knicks with the playoffs approaching**\
-`The Knicks have two weeks left to get themselves in the best possible position before the postseason begins.`\
-https://nytimes.com/athletic/7157214/2026/03/30/knicks-loss-thunder-playoffs-approaching/
 
