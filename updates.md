@@ -1,3 +1,7 @@
+**Elliott tops Hamlin in redemptive win for crew chief: Martinsville takeaways**\
+`Hamlin led 292 of the first 317 laps of the Cook Out 400, but crew chief Alan Gustafson made the right call to help push Elliott to victory.`\
+https://nytimes.com/athletic/7156754/2026/03/29/chase-elliott-martinsville-takeaways/
+
 **Jayson Tatum's season-high 32 points mark vital step in Achilles return**\
 `Tatum notched 32 points on Sunday, reaching the 30-point mark for the first time since returning from a torn Achilles on March 6.`\
 https://nytimes.com/athletic/7156798/2026/03/29/celtics-jayson-tatum-achilles-recovery-points-game/
