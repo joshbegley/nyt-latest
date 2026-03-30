@@ -1,3 +1,11 @@
+**The Secret Trial of a Chinese Artist Accused of Mocking Mao Zedong**\
+`Gao Zhen, who emigrated to the United States years ago, was arrested during a visit to China and now faces up to three years in prison for artwork.`\
+https://nytimes.com/2026/03/29/world/asia/china-artist-gao-trial.html
+
+**New U.S. Missile Hit Iranian Sports Hall and School, Analysis Shows**\
+`The Pentagon used missiles untested in combat in a deadly attack that struck civilian sites near a military compound on Feb. 28, according to visual evidence examined by The Times and weapons experts.`\
+https://nytimes.com/2026/03/29/world/middleeast/us-precision-strike-missile-iran-lamerd.html
+
 **New U.S. Missile Hit Iranian Sports Hall and School, Analysis Shows**\
 `The Pentagon used missiles untested in combat in a deadly attack that struck civilian sites near a military compound, according to visual evidence examined by The Times and weapons experts.`\
 https://nytimes.com/2026/03/29/world/middleeast/us-precision-strike-missile-iran-lamerd.html

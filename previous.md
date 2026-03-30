@@ -1,5 +1,9 @@
+**The Secret Trial of a Chinese Artist Accused of Mocking Mao Zedong**\
+`Gao Zhen, who emigrated to the United States years ago, was arrested during a visit to China and now faces up to three years in prison for artwork.`\
+https://nytimes.com/2026/03/29/world/asia/china-artist-gao-trial.html
+
 **New U.S. Missile Hit Iranian Sports Hall and School, Analysis Shows**\
-`The Pentagon used missiles untested in combat in a deadly attack that struck civilian sites near a military compound, according to visual evidence examined by The Times and weapons experts.`\
+`The Pentagon used missiles untested in combat in a deadly attack that struck civilian sites near a military compound on Feb. 28, according to visual evidence examined by The Times and weapons experts.`\
 https://nytimes.com/2026/03/29/world/middleeast/us-precision-strike-missile-iran-lamerd.html
 
 **‘The Comeback’ Season 3, Episode 2: Getting the Band Back Together**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7156886/2026/03/29/aj-brown-speculation-eagles-gm-h
 **Oil Jumps to $116 a Barrel on Signs of Escalation of Middle East War**\
 `Investors digested increasing signs of escalation of the U.S.-Israeli war in Iran, which has led to a blockage of critical energy supplies.`\
 https://nytimes.com/2026/03/29/business/oil-stocks-gasoline-prices-iran.html
-
-**Nico Hoerner reflects the standards of this generation of Cubs players**\
-`What the Cubs learned during trade calls is that, though other teams value Hoerner, no one valued him as much as they did.`\
-https://nytimes.com/athletic/7156669/2026/03/29/chicago-cubs-nico-hoerner-standards/
 
