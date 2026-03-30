@@ -1,3 +1,11 @@
+**Giannis Antetokounmpo's teammate doesn't think he'll play again this season**\
+`Bobby Portis, Antetokounmpo's longest-tenured teammate, said it "doesn't really make sense" for the two-time MVP to return to the court.`\
+https://nytimes.com/athletic/7158225/2026/03/30/giannis-antetokounmpo-bucks-status-bobby-portis/
+
+**Robert Kraft sets measured goal for Patriots in 2026: Make the playoffs**\
+`"My objective every year is (to) make the playoffs," Kraft said Monday. "When you’re privileged to make the playoffs, anything can happen."`\
+https://nytimes.com/athletic/7158477/2026/03/30/robert-kraft-patriots-owner-playoffs-2026/
+
 **Student, 15, Shoots High School Teacher in Texas**\
 `The teacher was taken to a hospital, and the student died at the scene, the authorities said.`\
 https://nytimes.com/2026/03/30/us/texas-shooting-teacher-student-dead-high-school.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7158441/2026/03/30/pochettino-usmnt-coach-return-wo
 **Rams considered trading Davante Adams, targeting Kirk Cousins as backup QB**\
 `Rams coach Sean McVay discussed Adams, the team's backup QB options and more at the NFL's annual meeting. `\
 https://nytimes.com/athletic/7158132/2026/03/30/rams-kirk-cousins-davante-adams-nfl-meeting/
-
-**How to watch Wizards vs. Lakers: Time, TV, streaming**\
-`Find out how to watch the Washington Wizards play the Los Angeles Lakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7158466/2026/03/30/wizards-vs-lakers-stream-how-to-watch-march-30/
-
-**How to watch Pistons vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the Detroit Pistons play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7158439/2026/03/30/pistons-vs-thunder-stream-how-to-watch-march-30/
 
