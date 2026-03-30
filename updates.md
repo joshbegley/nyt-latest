@@ -1,3 +1,7 @@
+**Employee Lawsuit Against Fox News Is Dismissed**\
+`A reporter who claimed the network had fired him for challenging its coverage failed to prove retaliation and discrimination, a federal judge said.`\
+https://nytimes.com/2026/03/30/business/media/fox-news-jason-donner-lawsuit-dismissed.html
+
 **Iran advances a plan to charge a toll for ships to traverse the Strait of Hormuz.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2026/03/30/world/iran-war-trump-oil-news/strait-of-hormuz-toll-iran
