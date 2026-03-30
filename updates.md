@@ -1,3 +1,7 @@
+**Colts owner says team 'pressed pause on a movie' during hot start in 2025, plans to resume in 2026**\
+`A Colts owner spoke at the annual owners' meeting for the first time in three years as Carlie Irsay-Gordon fielded questions.`\
+https://nytimes.com/athletic/7156563/2026/03/29/colts-carlie-irsay-gordon-owners-meetings/
+
 **49ers GM John Lynch doesn't think money is there for Joey Bosa, says bye to Jauan Jennings**\
 `"I know that would make Mama Bosa happy," he said, "but I don't know if we can afford him."`\
 https://nytimes.com/athletic/7156619/2026/03/29/49ers-joey-bosa-jauan-jennings-gm-john-lynch/

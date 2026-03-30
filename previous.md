@@ -1,3 +1,7 @@
+**Colts owner says team 'pressed pause on a movie' during hot start in 2025, plans to resume in 2026**\
+`A Colts owner spoke at the annual owners' meeting for the first time in three years as Carlie Irsay-Gordon fielded questions.`\
+https://nytimes.com/athletic/7156563/2026/03/29/colts-carlie-irsay-gordon-owners-meetings/
+
 **49ers GM John Lynch doesn't think money is there for Joey Bosa, says bye to Jauan Jennings**\
 `"I know that would make Mama Bosa happy," he said, "but I don't know if we can afford him."`\
 https://nytimes.com/athletic/7156619/2026/03/29/49ers-joey-bosa-jauan-jennings-gm-john-lynch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7156521/2026/03/29/uconn-25-final-four-geno-auriemm
 **UConn stuns Duke with Braylon Mullins' deep 3 to cap wild comeback, return to Final Four**\
 `The victory that earned the Huskies’ eighth trip to the Final Four might go down as the most remarkable in program history.`\
 https://nytimes.com/athletic/7156494/2026/03/29/uconn-duke-march-madness-score-takeaways/
-
-**Struggling Magic allow 31-0 run to Raptors en route to team-record 52-point loss**\
-`Toronto's 31-0 run against Orlando is the longest in the Play-by-Play era (1997-98), surpassing the Mavs' 30-0 run vs. the Thunder in 2023.`\
-https://nytimes.com/athletic/7156620/2026/03/29/nba-magic-raptors-game-turnover-starters-season/
 
