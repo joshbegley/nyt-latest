@@ -1,3 +1,7 @@
+**Which Premier League players have withdrawn through injury this international break?**\
+`From Gabriel to Benjamin Sesko, we run through which of your side's players have dropped out of their national team squads through injury`\
+https://nytimes.com/athletic/7157874/2026/03/30/premier-league-players-international-break-injury/
+
 **Mark Morris’s Stations of the Cross: Simple and Stinging**\
 `One of two New York premieres at the Brooklyn Academy of Music, “Via Dolorosa” seeks truth in plainness.`\
 https://nytimes.com/2026/03/30/arts/dance/mark-morris-via-dolorosa-moon-brooklyn-academy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/30/us/politics/brian-nathan-florida-special-election
 **Parity or panic: NWSL's top teams struggle with early season woes**\
 `Angel City FC is the only undefeated team in NWSL, while last year's contenders fall well below the top of the table `\
 https://nytimes.com/athletic/7157359/2026/03/30/nwsl-championship-parity-panic-season/
-
-**Democrats Examine Elon Musk’s Role in Suspension of Business Disclosure Law**\
-`Lawmakers have asked the Treasury Department for information on how Mr. Musk may have influenced the decision to end enforcement of the Corporate Transparency Act.`\
-https://nytimes.com/2026/03/30/business/lawmakers-probe-elon-musk-treasury.html
 
