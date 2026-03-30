@@ -1,3 +1,15 @@
+**New Arizona State men's basketball coach Randy Bennett slowed by 'health situation'**\
+`In a statement released Monday, Bennett said "everything is under control, and I will be back at full strength very soon."`\
+https://nytimes.com/athletic/7158625/2026/03/30/arizona-state-mens-basketball-coach-randy-bennett-health/
+
+**Amon-Ra St. Brown hypes Lions' game in Munich, discusses OC Drew Petzing**\
+`"I think the NFL is doing a great job of expanding," St. Brown said of the Lions' playing a yet-to-be-named opponent in Germany.`\
+https://nytimes.com/athletic/7157793/2026/03/30/lions-amon-ra-st-brown-munich-germany-game/
+
+**Trump Administration Sues Minnesota Over Transgender Student Athletes**\
+`Last year, the state said it would not follow President Trump’s directive on transgender athlete participation in girls’ sports.`\
+https://nytimes.com/2026/03/30/us/politics/minnesota-transgender-girls-sports-trump-lawsuit.html
+
 **How to watch Canucks vs. Golden Knights: Time, TV, streaming**\
 `Find out how to watch the Vancouver Canucks play the Vegas Golden Knights, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7158711/2026/03/30/canucks-vs-golden-knights-stream-how-to-watch-march-30/
