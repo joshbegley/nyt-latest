@@ -1,3 +1,11 @@
+**Blue Jackets Monday Gathering: After another kick in the teeth, Bowness will stay 'very positive'**\
+`Is the pressure of success is simply too much for the Blue Jackets, collectively, to handle?`\
+https://nytimes.com/athletic/7155500/2026/03/30/blue-jackets-playoffs-slump-standings/
+
+**Browns withdraw proposal to allow trades of draft picks 5 years out: Source**\
+`Cleveland GM Andrew Berry proposed the idea to extend the window for trading draft picks, and it could be revisited in the future.`\
+https://nytimes.com/athletic/7158155/2026/03/30/browns-withdraw-trade-draft-picks-proposal-sean-mcvay/
+
 **Why did Broncos trade another 1st-round pick? Jaylen Waddle was 'too unique to pass up'**\
 `The Broncos "didn't get very far" in their pursuit of last year's trade deadline, GM George Paton said, but dynamics changed this offseason.`\
 https://nytimes.com/athletic/7158084/2026/03/30/george-paton-broncos-jaylen-waddle-trade/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7158091/2026/03/30/josh-allen-injury-update-bills/
 **How to watch Angels vs. Cubs: Time, TV, streaming for March 30**\
 `Find out how to watch the Los Angeles Angels play the Chicago Cubs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7158320/2026/03/30/angels-vs-cubs-stream-how-to-watch-march-30/
-
-**Agosto Machado Is Dead; Artist Memorialized New York’s Avant-Garde**\
-`An experimental theater veteran, he collected the ephemera of his friends and colleagues. As they began to die, he made shrines honoring them.`\
-https://nytimes.com/2026/03/30/arts/design/agosto-machado-dead.html
-
-**How to watch Mets vs. Cardinals: Time, TV, streaming for March 30**\
-`Find out how to watch the New York Mets play the St. Louis Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7158314/2026/03/30/mets-vs-cardinals-stream-how-to-watch-march-30/
 
