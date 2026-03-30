@@ -1,3 +1,7 @@
+**Trump Claims ‘Regime Change’ in Iran Is Already Complete**\
+`President Trump suggested that Iran’s current leaders were “much more reasonable” as he sought to show progress in his war aims. Despite a month of U.S.-Israeli attacks, Iran’s government, led by clerics and the Revolutionary Guards, appears firmly in control.`\
+https://nytimes.com/2026/03/30/world/middleeast/trump-regime-change-iran.html
+
 **Iran War’s Latest Economic Toll: Oil at $115 a Barrel**\
 `Economists and investors are increasingly pricing in a slowdown, or even a global recession, if the fighting drags on.`\
 https://nytimes.com/2026/03/30/business/dealbook/iran-war-oil-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/30/briefing/your-questions-about-the-news.html
 **Xi Invites Taiwan’s Opposition Leader to Talk ‘Peace’ Ahead of Trump Summit**\
 `The planned visit by Cheng Li-wun appears designed to show Beijing’s influence and convey a benign message ahead of the summit with President Trump.`\
 https://nytimes.com/2026/03/30/world/asia/china-xi-taiwan-cheng.html
-
-**Vikings offseason roster projection: Where will they look in the draft to fill holes?**\
-`After taking a conservative approach in free agency, the Vikings have several important positions and roles to fill via the NFL Draft.`\
-https://nytimes.com/athletic/7152417/2026/03/30/vikings-roster-projection-nfl-draft/
 
