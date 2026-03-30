@@ -1,3 +1,7 @@
+**Iran to Allow More Oil Ships Through Strait of Hormuz, Trump Says**\
+`President Trump said that Iran had agreed to release 20 more cargo ships of oil through the Strait of Hormuz starting on Monday.`\
+https://nytimes.com/video/us/100000010809553/trump-iran-strait-of-hormuz-ships.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Still recovering from that UConn-Duke Elite Eight ending? Maybe turn your attention to some offseason college football.</p>
 <p>Leave your questions here. Please include your city.</p>
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/7149037/2026/03/30/managers-on-the-rise-carlos-cues
 **Man United are at a low ebb. Do WSL leaders City offer a blueprint for a change of fortunes?**\
 `The derby showed how far United are behind the best teams. But it is not so long ago that champions-elect City were in a similar position…`\
 https://nytimes.com/athletic/7155632/2026/03/30/manchester-united-city-derby-blueprint/
-
-**Hurzeler, the Leverkusen links and what comes next for Brighton's head coach?**\
-`The German may have options in his homeland and the possibility of managing in the Champions League could be an option for him`\
-https://nytimes.com/athletic/7146510/2026/03/30/fabian-hurzeler-brighton-future/
 
