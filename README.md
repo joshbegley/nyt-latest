@@ -1,3 +1,7 @@
+**Matt LaFleur suggests disgruntled players took a toll on Packers last season**\
+`LaFleur declined to specify if the players who were unhappy with their roles last season are still on the team.`\
+https://nytimes.com/athletic/7158275/2026/03/30/matt-lafleur-packers-nfl-league-meeting/
+
 **Pochettino insists he is open to USMNT coaching return after World Cup**\
 `The USMNT heaad coach has repeatedly been linked with a return to European club soccer`\
 https://nytimes.com/athletic/7158441/2026/03/30/pochettino-usmnt-coach-return-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/30/your-money/401k-private-equity-crypto-investments
 **Blue Jackets Monday Gathering: After another kick in the teeth, Bowness will stay 'very positive'**\
 `Is the pressure of success is simply too much for the Blue Jackets, collectively, to handle?`\
 https://nytimes.com/athletic/7155500/2026/03/30/blue-jackets-playoffs-slump-standings/
-
-**Browns withdraw proposal to allow trades of draft picks 5 years out: Source**\
-`Cleveland GM Andrew Berry proposed an idea to extend the window for trading draft picks, and it could be revisited in the future.`\
-https://nytimes.com/athletic/7158155/2026/03/30/browns-withdraw-trade-draft-picks-proposal-sean-mcvay/
 
