@@ -1,3 +1,7 @@
+**Pochettino's World Cup mandate for USMNT is clear: Intensity is not optional**\
+`The U.S. manager bemoaned his side's 90-minute effort against Belgium. Will the players' response meet the challenge?`\
+https://nytimes.com/athletic/7159184/2026/03/30/usmnt-world-cup-pochettino-intensity-belgium-portugal/
+
 **Weekly Student News Quiz: Social Media Trial, Global Protests, Baseball**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2026/03/30/learning/30StudentNewsQuiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7158822/2026/03/30/ravens-sashi-brown-maxx-crosby-t
 **White House Will Allow Oil Shipments to Cuba on ‘Case-by-Case’ Basis**\
 `The White House press secretary, Karoline Leavitt, said on Monday that the U.S. would evaluate oil shipments to Cuba on an individual basis after a Russian tanker was allowed to deliver fuel.`\
 https://nytimes.com/video/us/politics/100000010811444/trump-administration-cuba-oil.html
-
-**Trump Reveals New Look for White House Ballroom After Times Article**\
-`Architects and preservation organizations have warned that little scrutiny has been given to the project’s design plans.`\
-https://nytimes.com/2026/03/30/upshot/trump-white-house-ballroom-plans.html
 
