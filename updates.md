@@ -1,3 +1,19 @@
+**Bulls waive Jaden Ivey less than two months after acquiring him from Pistons**\
+`Monday’s comments were part of an extensive livestream, his third over the past week in which he’s spoken on his religious beliefs.`\
+https://nytimes.com/athletic/7159179/2026/03/30/jaden-ivey-waived-bulls-nba-pride-month/
+
+**Woman Spent Five Months in Jail After A.I. Linked Her to Bank Fraud Case**\
+`The police chief in Fargo, N.D., acknowledged “missteps” but stopped short of apologizing to Angela Lipps, a Tennessee resident who said she had never been to North Dakota before she was arrested.`\
+https://nytimes.com/2026/03/30/us/north-dakota-facial-recognition-ai-errors-bank-fraud.html
+
+**NFL to launch men and women's pro flag football leagues**\
+`The NFL will partner with TMRW Sports, which helped develop and launch the prime-time team golf league TGL.`\
+https://nytimes.com/athletic/7158999/2026/03/30/nfl-flag-football-pro-leagues-men-women-brady-manning/
+
+**Super Bowl to return to Las Vegas' Allegiant Stadium in 2029**\
+`This will mark the second time Las Vegas hosts the NFL's marquee event.`\
+https://nytimes.com/athletic/7147267/2026/03/30/super-bowl-63-las-vegas-allegiant-stadium/
+
 **Is Trump Threatening to Commit a War Crime?**\
 `The bombing campaign Mr. Trump is threatening in Iran could affect millions of Iranian civilians’ access to water, electricity and food.`\
 https://nytimes.com/2026/03/30/opinion/international-world/is-trump-threatening-to-commit-a-war-crime.html
