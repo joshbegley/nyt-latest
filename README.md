@@ -1,3 +1,23 @@
+**A hockey player from birth: How a family's devotion built a rising NHL star**\
+`Ivan Demidov's rookie success with the Montreal Canadiens comes as a result of a life-changing decision his parents made 13 years ago.`\
+https://nytimes.com/athletic/7148368/2026/03/30/ivan-demidov-canadiens-nhl-family/
+
+**MLB Hope-O-Meter results: Ranking fans’ optimism in 2026 for all 30 teams**\
+`Seventy-two percent of our readers reported they are optimistic about their favorite team this season, up from 66 percent last year. `\
+https://nytimes.com/athletic/7153999/2026/03/30/mlb-hope-o-meter-results-ranking/
+
+**In MLB, they're all short kings now: new ABS measurements shrink half of all hitters**\
+`New measurements for the robo-ump strike zone are ending MLB height exaggerations. “I didn't know we were going to get exposed like that."`\
+https://nytimes.com/athletic/7155626/2026/03/30/mlb-short-kings-height-measurements-changing-abs/
+
+**The Steelers are waiting on Aaron Rodgers, a fitting moment for a franchise without an answer**\
+`Pittsburgh is still without a long-term option at QB, as they hope for the return of Rodgers, a Band-Aid disguised as a bridge.`\
+https://nytimes.com/athletic/7155996/2026/03/30/aaron-rodgers-plans-steelers-qb-situation/
+
+**The New York Times International Edition in Print for Tuesday, March 31, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/03/30/todays-new-york-times-international-edition
+
 **In Arkansas, a House That Compels Passers-by to Stop and Look**\
 `A couple in Bentonville, Arkansas hired Marlon Blackwell Architects to design a home with easy access to the Crystal Bridges Museum.`\
 https://nytimes.com/2026/03/30/realestate/bentonville-marlon-blackwell-home-build.html
@@ -17,24 +37,4 @@ https://nytimes.com/2026/03/30/books/review/confessions-of-samuel-pepys-bedoyere
 **$2.5 Million Homes in California**\
 `A midcentury modern in Los Angeles, a Queen Anne Revival in Alameda and a contemporary house in Laguna Beach.`\
 https://nytimes.com/2026/03/30/realestate/laguna-beach-la-alameda-home-sales.html
-
-**What We Know About the T.S.A. and ICE Presence at Airports**\
-`Transportation Security Agency officers have called out of work or quit after weeks of not getting paid during a partial government shutdown. ICE agents have begun to fill their roles.`\
-https://nytimes.com/2026/03/30/us/what-we-know-tsa-ice-airports.html
-
-**How Trump’s Border Policies Have Hurt New York**\
-`Fewer international tourists are visiting, and fewer immigrants are moving here. The city needs both groups, experts say.`\
-https://nytimes.com/2026/03/30/nyregion/how-trumps-border-policies-have-hurt-new-york.html
-
-**A New Boss Takes Over Homeland Security With Less Flash but Same Mission**\
-`Markwayne Mullin, the incoming D.H.S. secretary, faces a difficult balance: a public reset of the agency while delivering on President Trump’s deportation agenda.`\
-https://nytimes.com/2026/03/30/us/politics/markwayne-mullin-new-era-homeland-security.html
-
-**Trump Will Gladly Do the Jitterbug on Your Grave**\
-`The president’s depravity is deathless`\
-https://nytimes.com/2026/03/30/opinion/trump-death-mueller.html
-
-**Destinations So Good They’re Worth a Return Journey**\
-`Even travel influencers, who spend their lives on the go, have their hearts stolen by certain places.`\
-https://nytimes.com/2026/03/30/travel/travel-influencer-destinations.html
 
