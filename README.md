@@ -22,7 +22,7 @@ https://nytimes.com/2026/03/30/world/australia/australia-melbourne-free-transit.
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/30/todays-new-york-times
 
-**Trump Sets the World on Fire. India Chokes on the Fumes.**\
+**Trump Is Setting the World on Fire. The Rest of Us Choke on the Fumes.**\
 `Trump’s war on Iran is dangerous for everyone.`\
 https://nytimes.com/2026/03/30/opinion/trump-iran-war-india-oil.html
 
