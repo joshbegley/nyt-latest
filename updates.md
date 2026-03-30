@@ -1,3 +1,7 @@
+**Why Did the U.S. Allow a Russian Oil Tanker Through Its Cuba Blockade?**\
+`The ship’s arrival would bring Cuba some badly needed fuel. It also marks a shift from U.S. efforts to block oil shipments and pressure the Cuban government.`\
+https://nytimes.com/2026/03/30/world/americas/russian-oil-tanker-cuba.html
+
 **Giannis Antetokounmpo's teammate doesn't think he'll play again this season**\
 `Bobby Portis, Antetokounmpo's longest-tenured teammate, said it "doesn't really make sense" for the two-time MVP to return to the court.`\
 https://nytimes.com/athletic/7158225/2026/03/30/giannis-antetokounmpo-bucks-status-bobby-portis/
