@@ -1,3 +1,7 @@
+**U.S. Special Operations Forces Sent to Mideast as Trump Weighs Next Move**\
+`The commandos have not been assigned specific roles. But President Trump has expressed concern about the now-closed Strait of Hormuz and Iran’s store of enriched uranium.`\
+https://nytimes.com/2026/03/29/us/politics/trump-special-operations-forces-iran.html
+
 **First look at the men's Final Four: Why Michigan-Arizona, UConn-Illinois will be thrilling**\
 `Michigan and Arizona are arguably the nation's two best teams, UConn is going for a third title in four years, and Illinois wants its first.`\
 https://nytimes.com/athletic/7156435/2026/03/29/final-four-schedule-matchups-march-madness/
