@@ -1,3 +1,7 @@
+**Your Questions About the News**\
+`Times reporters answer reader questions about the war, the economy and more.`\
+https://nytimes.com/2026/03/30/briefing/your-questions-about-the-news.html
+
 **Xi Invites Taiwan’s Opposition Leader to Talk ‘Peace’ Ahead of Trump Summit**\
 `The planned visit by Cheng Li-wun appears designed to show Beijing’s influence and convey a benign message ahead of the summit with President Trump.`\
 https://nytimes.com/2026/03/30/world/asia/china-xi-taiwan-cheng.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7157114/2026/03/30/mens-final-four-uconn-michigan-a
 **Time is ticking on the Knicks with the playoffs approaching**\
 `The Knicks have two weeks left to get themselves in the best possible position before the postseason begins.`\
 https://nytimes.com/athletic/7157214/2026/03/30/knicks-loss-thunder-playoffs-approaching/
-
-**Miles played in snow with Scherzer way before they became Blue Jays teammates**\
-`Toronto swept the three-game series against the Athletics, thanks two walk-off hits, brilliant rookie debuts and dominant starting pitching.`\
-https://nytimes.com/athletic/7156929/2026/03/30/blue-jays-opening-series-notes/
 

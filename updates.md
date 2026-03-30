@@ -1,3 +1,7 @@
+**Your Questions About the News**\
+`Times reporters answer reader questions about the war, the economy and more.`\
+https://nytimes.com/2026/03/30/briefing/your-questions-about-the-news.html
+
 **Xi Invites Taiwan’s Opposition Leader to Talk ‘Peace’ Ahead of Trump Summit**\
 `The planned visit by Cheng Li-wun appears designed to show Beijing’s influence and convey a benign message ahead of the summit with President Trump.`\
 https://nytimes.com/2026/03/30/world/asia/china-xi-taiwan-cheng.html
