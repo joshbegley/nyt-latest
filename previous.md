@@ -1,3 +1,11 @@
+**NFL could hire replacement officials as soon as May as labor dispute intensifies: Sources**\
+`The current collective bargaining agreement between the NFL and the NFL Referees Association expires on May 31.`\
+https://nytimes.com/athletic/7156933/2026/03/29/nfl-replacement-officials-preseason-games/
+
+**Unfinished business remains for Lauren Betts and UCLA as they return to the Final Four**\
+`The Bruins' elite status cannot be minimized, and neither can Betts' legacy, but UCLA says its work isn't done.`\
+https://nytimes.com/athletic/7156868/2026/03/29/lauren-betts-ucla-final-four-return/
+
 **Trump Says Iran Agreed to Allow 20 More Ships of Oil Through Strait of Hormuz**\
 `The president, speaking to reporters on Air Force One, cast the permission as a “sign of respect.” He also asserted that the United States had already achieved “regime change” in Iran.`\
 https://nytimes.com/2026/03/29/world/middleeast/trump-says-iran-agreed-to-allow-20-more-ships-of-oil-through-strait-of-hormuz.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7156898/2026/03/29/ncaa-tournament-odds-mens-arizon
 **Vegas' relentless culture led to Cassidy's firing, but who really deserves the blame?**\
 `Vegas has long showed it will do anything to win, but can quick-fixer John Tortorella win with this roster?`\
 https://nytimes.com/athletic/7156790/2026/03/29/vegas-golden-knights-coach-cassidy-fired-tortorella/
-
-**Late-game mistake by Cayden Boozer leads to Duke's latest NCAA meltdown**\
-`The freshman just needed to hold on to the ball with time running out. But he tried to make a pass. UConn had its opening.`\
-https://nytimes.com/athletic/7156815/2026/03/29/cayden-boozer-pass-stolen-duke-uconn/
-
-**Elliott tops Hamlin in redemptive win for crew chief: Martinsville takeaways**\
-`Hamlin led 292 of the first 317 laps of the Cook Out 400, but crew chief Alan Gustafson made the right call to help push Elliott to victory.`\
-https://nytimes.com/athletic/7156754/2026/03/29/chase-elliott-martinsville-takeaways/
 

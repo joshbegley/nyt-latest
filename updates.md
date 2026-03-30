@@ -1,3 +1,11 @@
+**NFL could hire replacement officials as soon as May as labor dispute intensifies: Sources**\
+`The current collective bargaining agreement between the NFL and the NFL Referees Association expires on May 31.`\
+https://nytimes.com/athletic/7156933/2026/03/29/nfl-replacement-officials-preseason-games/
+
+**Unfinished business remains for Lauren Betts and UCLA as they return to the Final Four**\
+`The Bruins' elite status cannot be minimized, and neither can Betts' legacy, but UCLA says its work isn't done.`\
+https://nytimes.com/athletic/7156868/2026/03/29/lauren-betts-ucla-final-four-return/
+
 **How Angela Dugalić set the tone for UCLA's Final Four run**\
 `Dugalić had 16 points, six rebounds, four assists and two steals to pace the Bruins.`\
 https://nytimes.com/athletic/7156908/2026/03/29/ucla-angela-dugalic-final-four/
