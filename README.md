@@ -1,3 +1,7 @@
+**Why Did the U.S. Allow a Russian Oil Tanker Through Its Cuba Blockade?**\
+`The ship’s arrival would bring Cuba some badly needed fuel. It also marks a shift from U.S. efforts to block oil shipments and pressure the Cuban government.`\
+https://nytimes.com/2026/03/30/world/americas/russian-oil-tanker-cuba.html
+
 **Giannis Antetokounmpo's teammate doesn't think he'll play again this season**\
 `Bobby Portis, Antetokounmpo's longest-tenured teammate, said it "doesn't really make sense" for the two-time MVP to return to the court.`\
 https://nytimes.com/athletic/7158225/2026/03/30/giannis-antetokounmpo-bucks-status-bobby-portis/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7158275/2026/03/30/matt-lafleur-packers-nfl-league-
 **Pochettino insists he is open to staying as USMNT coach after World Cup**\
 `The USMNT head coach has repeatedly been linked with a return to European club soccer`\
 https://nytimes.com/athletic/7158441/2026/03/30/pochettino-usmnt-coach-return-world-cup/
-
-**Rams considered trading Davante Adams, targeting Kirk Cousins as backup QB**\
-`Rams coach Sean McVay discussed Adams, the team's backup QB options and more at the NFL's annual meeting. `\
-https://nytimes.com/athletic/7158132/2026/03/30/rams-kirk-cousins-davante-adams-nfl-meeting/
 

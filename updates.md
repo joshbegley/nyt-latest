@@ -1,3 +1,15 @@
+**Giannis Antetokounmpo's teammate doesn't think he'll play again this season**\
+`Bobby Portis, Antetokounmpo's longest-tenured teammate, said it "doesn't really make sense" for the two-time MVP to return to the court.`\
+https://nytimes.com/athletic/7158225/2026/03/30/giannis-antetokounmpo-bucks-status-bobby-portis/
+
+**Robert Kraft sets measured goal for Patriots in 2026: Make the playoffs**\
+`"My objective every year is (to) make the playoffs," Kraft said Monday. "When you’re privileged to make the playoffs, anything can happen."`\
+https://nytimes.com/athletic/7158477/2026/03/30/robert-kraft-patriots-owner-playoffs-2026/
+
+**Student, 15, Shoots High School Teacher in Texas**\
+`The teacher was taken to a hospital, and the student died at the scene, the authorities said.`\
+https://nytimes.com/2026/03/30/us/texas-shooting-teacher-student-dead-high-school.html
+
 **Timberwolves lose Jaden McDaniels as Minnesota makes playoff push**\
 `With McDaniels, one of Minnesota's most durable and versatile players sidelined, the Timberwolves' depth will be tested. `\
 https://nytimes.com/athletic/7158434/2026/03/30/jaden-mcdaniels-injury-timberwolves-nba/
