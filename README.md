@@ -1,3 +1,11 @@
+**Paintings Worth Millions of Dollars Stolen From Italian Museum**\
+`Thieves stole three paintings by Renoir, Cézanne and Matisse from the Magnani-Rocca Foundation in Mamiano, Italy.`\
+https://nytimes.com/video/world/europe/100000010810347/italy-art-stolen-renoir-matisse-cezanne.html
+
+**T.S.A. Workers Get Paid but Wonder When Next Check Will Come**\
+`A memo that President Trump signed on Friday ordering the Department of Homeland Security to pay T.S.A. officers did not specify whether they would be paid on a regular schedule.`\
+https://nytimes.com/2026/03/30/us/politics/tsa-workers-paychecks-trump-executive-order.html
+
 **N.Y.U. Closes Its Abu Dhabi Campus as Iran Vows Retaliation for Strikes**\
 `After a university in Tehran was struck during the war, Iranian leaders said that the outposts of U.S. schools were “legitimate targets.”`\
 https://nytimes.com/2026/03/30/nyregion/nyu-abu-dhabi-campus-closed.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7158416/2026/03/30/todd-bowles-nfl-black-head-coach
 **Broncos' Bo Nix 'ahead of schedule' for return, owner Greg Penner says**\
 `Penner said Monday at the NFL league meeting that there have been no setbacks for the quarterback while rehabbing his ankle injury.`\
 https://nytimes.com/athletic/7158722/2026/03/30/broncos-bo-nix-return-greg-penner/
-
-**Browns' Shedeur Sanders to switch jersey number from 12 to 2**\
-`Sanders, who donned No. 12 as a rookie, had his No. 2 retired by Colorado after his final college season. `\
-https://nytimes.com/athletic/7158558/2026/03/30/browns-shedeur-sanders-jersey-number/
-
-**Pennsylvania 10th Congressional District 2026: Latest Polls**\
-`Track the latest polls in Pennsylvania's 10th Congressional District.`\
-https://nytimes.com/interactive/polls/pennsylvania-us-house-10-polls-2026.html
 
