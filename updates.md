@@ -1,3 +1,11 @@
+**Israel to Vote on Death Penalty Targeting Palestinians Guilty of Lethal Attacks**\
+`The bill is broadly popular and expected to pass. Critics say it would strip away many of the safeguards intended to preserve due process, including the possibility of a pardon.`\
+https://nytimes.com/2026/03/30/world/middleeast/israel-death-penalty-palestinians-attacks.html
+
+**The Pulse: Better than Laettner’s shot?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7156625/2026/03/30/braylon-mullins-uconn-shot-the-pulse/
+
 **Phillies takeaways from flat 3-game start that was offense's worst since 2015**\
 `The Phillies finished the season-opening series against Texas with 18 hits and a .186 batting average. It could have been even worse.`\
 https://nytimes.com/athletic/7156885/2026/03/30/phillies-offense-struggles-takeaways-rangers/
