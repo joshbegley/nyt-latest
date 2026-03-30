@@ -1,3 +1,7 @@
+**N.Y.U. Closes Its Abu Dhabi Campus as Iran Vows Retaliation for Strikes**\
+`After a university in Tehran was struck during the war, Iranian leaders said that the outposts of U.S. schools were “legitimate targets.”`\
+https://nytimes.com/2026/03/30/nyregion/nyu-abu-dhabi-campus-closed.html
+
 **Air Canada’s C.E.O. to Step Down After Comments Over Crash**\
 `The chief executive of Air Canada, Michael Rousseau, has faced backlash over a video he released primarily in English over the crash at LaGuardia Airport. Canada has two official languages, French and English, and the video was criticized as dismissive of French-speaking Canadians.`\
 https://nytimes.com/video/world/canada/100000010810143/air-canada-ceo-steps-down.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7158558/2026/03/30/browns-shedeur-sanders-jersey-nu
 **Pennsylvania 10th Congressional District 2026: Latest Polls**\
 `Track the latest polls in Pennsylvania's 10th Congressional District.`\
 https://nytimes.com/interactive/polls/pennsylvania-us-house-10-polls-2026.html
-
-**Pennsylvania Eighth Congressional District 2026: Latest Polls**\
-`Track the latest polls in Pennsylvania's 8th Congressional District.`\
-https://nytimes.com/interactive/polls/pennsylvania-us-house-8-polls-2026.html
 
