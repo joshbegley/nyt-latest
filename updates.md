@@ -1,3 +1,7 @@
+**For a High Priestess of Extreme Theater, Death Is Gentler Than Life**\
+`In her “Trilogy of Funerals,” the Spanish provocateur Angélica Liddell shows a sense of vulnerability that will surprise longtime watchers of her work.`\
+https://nytimes.com/2026/03/30/theater/angelica-liddell-trilogy-of-funerals.html
+
 **Why the ideas to fix tanking in the NBA (mostly) miss the mark**\
 `Plus, how might this week's games impact the postseason picture?`\
 https://nytimes.com/athletic/7151261/2026/03/30/nba-tanking-fixes-rule-changes-playoff-picture/

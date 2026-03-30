@@ -1,3 +1,8 @@
+**The Bounce: There's one NBA anti-tanking idea that would work. Plus, Duke melts down**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7157778/2026/03/30/nba-tanking-lottery-duke-march-madness-the-bounce/
+
 **For a High Priestess of Extreme Theater, Death Is Gentler Than Life**\
 `In her “Trilogy of Funerals,” the Spanish provocateur Angélica Liddell shows a sense of vulnerability that will surprise longtime watchers of her work.`\
 https://nytimes.com/2026/03/30/theater/angelica-liddell-trilogy-of-funerals.html
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/7156484/2026/03/30/justin-gainey-nc-state-mens-bask
 **Air Canada C.E.O. to Step Down Amid Backlash Over Comments After Crash**\
 `Michael Rousseau’s mostly English statement after a fatal runway collision drew sharp criticism. The airline said it would emphasize French fluency in its search for a successor.`\
 https://nytimes.com/2026/03/30/business/air-canada-ceo-crash-retire.html
-
-**The Athletic college baseball top 25: Florida vaults to No. 16 after sweeping Arkansas**\
-`The Gators and Boston College are new entrants this week, replacing NC State and Tennesssee.`\
-https://nytimes.com/athletic/7157672/2026/03/30/college-baseball-rankings-florida-arkansas-ucla-texas/
 
