@@ -1,3 +1,8 @@
+**The Bounce: There's one NBA anti-tanking idea that would work. Plus, Duke melts down**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7157778/2026/03/30/nba-tanking-lottery-duke-march-madness-the-bounce/
+
 **Cardiff lose €120m damages claim against Nantes in Emiliano Sala case**\
 `The League One side were instead ordered to pay Nantes $480,000 in damages and legal fees.`\
 https://nytimes.com/athletic/7157772/2026/03/30/cardiff-emiliano-sala-nantes-claim/
