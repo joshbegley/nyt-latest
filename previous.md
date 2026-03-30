@@ -1,3 +1,7 @@
+**Trump Threatens to Destroy Kharg Island and Other Key Iranian Energy Sites**\
+`President Trump said in a newspaper interview that the United States might try to invade the Persian Gulf island, which is Iran’s main oil export hub.`\
+https://nytimes.com/2026/03/30/world/middleeast/trump-iran-kharg-island.html
+
 **Crystal Palace mailbag: Send your questions to Matt Woosnam now**\
 `Oliver Glasner's future, summer squad planning and the redevelopment of Selhurst Park – ask our correspondent your questions here`\
 https://nytimes.com/athletic/7157616/2026/03/30/crystal-palace-glasner-selhurst-transfers-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7156507/2026/03/30/wrexham-women-champions-wales-eu
 **Why the cost of college football roster building won't slow down anytime soon**\
 `Winning is expensive, but the alternative costs more. “Losing is the most expensive element of our sport,” a Pac-12 assistant coach said.`\
 https://nytimes.com/athletic/7149349/2026/03/30/college-football-nil-revenue-sharing/
-
-**USMNT exposed with tactical approach to Belgium, makes for a World Cup warning**\
-`There was no single reason for the USMNT unraveling, but a series of missed steps.`\
-https://nytimes.com/athletic/7157156/2026/03/30/usa-belgium-tactics-pochettino-world-cup/
 

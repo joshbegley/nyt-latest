@@ -1,3 +1,7 @@
+**Trump Threatens to Destroy Kharg Island and Other Key Iranian Energy Sites**\
+`President Trump said in a newspaper interview that the United States might try to invade the Persian Gulf island, which is Iran’s main oil export hub.`\
+https://nytimes.com/2026/03/30/world/middleeast/trump-iran-kharg-island.html
+
 **Crystal Palace mailbag: Send your questions to Matt Woosnam now**\
 `Oliver Glasner's future, summer squad planning and the redevelopment of Selhurst Park – ask our correspondent your questions here`\
 https://nytimes.com/athletic/7157616/2026/03/30/crystal-palace-glasner-selhurst-transfers-mailbag/
