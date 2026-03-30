@@ -1,3 +1,23 @@
+**Trump Administration Live Updates: T.S.A. Pay to Resume, but ICE Could Remain at Airports, Homan Says**\
+``\
+https://nytimes.com/live/2026/03/30/us/trump-news
+
+**Wrexham Women have realised their dream to become Welsh champions. Now Europe awaits**\
+`The rise of Wrexham women's team has matched that of the men's side, with the team crowned Wales' Adran Premier champions for the first time`\
+https://nytimes.com/athletic/7156507/2026/03/30/wrexham-women-champions-wales-europe-adran-owen/
+
+**Why the cost of college football roster building won't slow down anytime soon**\
+`Winning is expensive, but the alternative costs more. “Losing is the most expensive element of our sport,” a Pac-12 assistant coach said.`\
+https://nytimes.com/athletic/7149349/2026/03/30/college-football-nil-revenue-sharing/
+
+**USMNT exposed with tactical approach to Belgium, makes for a World Cup warning**\
+`There was no single reason for the USMNT unraveling, but a series of missed steps.`\
+https://nytimes.com/athletic/7157156/2026/03/30/usa-belgium-tactics-pochettino-world-cup/
+
+**Trump Claims ‘Regime Change’ in Iran Is Already Complete**\
+`President Trump suggested that Iran’s current leaders were “much more reasonable” as he sought to show progress in his war aims. Despite a month of U.S.-Israeli attacks, Iran’s government, led by clerics and the Revolutionary Guards, appears firmly in control.`\
+https://nytimes.com/2026/03/30/world/middleeast/trump-regime-change-iran.html
+
 **Iran War’s Latest Economic Toll: Oil at $115 a Barrel**\
 `Economists and investors are increasingly pricing in a slowdown, or even a global recession, if the fighting drags on.`\
 https://nytimes.com/2026/03/30/business/dealbook/iran-war-oil-economy.html
