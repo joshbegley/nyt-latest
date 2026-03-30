@@ -1,40 +1,40 @@
-**Porter Martone contract, playoff chase provide Flyers with real momentum**\
-`The Flyers have been one of the best teams in the league since the Olympic break. Whether they make the playoffs or not, it's a great step.`\
-https://nytimes.com/athletic/7157161/2026/03/30/flyers-momentum-playoffs-zegras-martone-stars/
+**Spurs pursuing Roberto De Zerbi appointment**\
+`Spurs have offered a long-term contract and significant financial package which would make him one of the best paid managers in the league.`\
+https://nytimes.com/athletic/7112409/2026/03/30/roberto-de-zerbi-tottenham-manager-offer/
 
-**This men's Final Four is full of monsters, but UConn is a different beast**\
-`In Indianapolis, three extremely large teams will be looking to transform light trophy cases. And then there's the six-time champs.`\
-https://nytimes.com/athletic/7157114/2026/03/30/mens-final-four-uconn-michigan-arizona-illinois/
+**Rosenthal: So far, MLB’s highly-riveting ABS is proving to be a good call**\
+`ABS is already introducing new forms of scrutiny, new ways to talk baseball and new strategies to debate.`\
+https://nytimes.com/athletic/7156806/2026/03/30/automated-ball-strike-system-mlb-success/
 
-**Time is ticking on the Knicks with the playoffs approaching**\
-`The Knicks have two weeks left to get themselves in the best possible position before the postseason begins.`\
-https://nytimes.com/athletic/7157214/2026/03/30/knicks-loss-thunder-playoffs-approaching/
+**A hockey player from birth: How a family's devotion built a rising NHL star**\
+`Ivan Demidov's rookie success with the Montreal Canadiens comes as a result of a life-changing decision his parents made 13 years ago.`\
+https://nytimes.com/athletic/7148368/2026/03/30/ivan-demidov-canadiens-nhl-family/
 
-**Miles played in snow with Scherzer way before they became Blue Jays teammates**\
-`Toronto swept the three-game series against the Athletics, thanks two walk-off hits, brilliant rookie debuts and dominant starting pitching.`\
-https://nytimes.com/athletic/7156929/2026/03/30/blue-jays-opening-series-notes/
+**MLB Hope-O-Meter results: Ranking fans’ optimism in 2026 for all 30 teams**\
+`Seventy-two percent of our readers reported they are optimistic about their favorite team this season, up from 66 percent last year. `\
+https://nytimes.com/athletic/7153999/2026/03/30/mlb-hope-o-meter-results-ranking/
 
-**Canada's World Cup squad, and starting XI, is coming into focus for Jesse Marsch**\
-`Alphonso Davies, Jonathan David and Tajon Buchanan may be locked in, but who else is going to start for Canada this summer?`\
-https://nytimes.com/athletic/7156796/2026/03/30/canada-world-cup-starting-xi-analysis/
+**In MLB, they're all short kings now: new ABS measurements shrink half of all hitters**\
+`New measurements for the robo-ump strike zone are ending MLB height exaggerations. “I didn't know we were going to get exposed like that."`\
+https://nytimes.com/athletic/7155626/2026/03/30/mlb-short-kings-height-measurements-changing-abs/
 
-**Final Four power rankings: Who will cut down the nets in Indianapolis?**\
-`UConn and Illinois are both more than good enough to avoid Saturday's Michigan-Arizona nightcap being a de facto championship game.`\
-https://nytimes.com/athletic/7156645/2026/03/30/final-four-power-rankings-favorites-odds/
+**The Steelers are waiting on Aaron Rodgers, a fitting moment for a franchise without an answer**\
+`Pittsburgh is still without a long-term option at QB, as they hope for the return of Rodgers, a Band-Aid disguised as a bridge.`\
+https://nytimes.com/athletic/7155996/2026/03/30/aaron-rodgers-plans-steelers-qb-situation/
 
-**2026 NHL prospect pool rankings: No. 11 Washington Capitals**\
-`The Capitals have five legit wing prospects of different shapes and sizes, and one of the most talented young D in the sport.`\
-https://nytimes.com/athletic/7134207/2026/03/30/washington-capitals-nhl-prospect-rankings-2026/
+**The New York Times International Edition in Print for Tuesday, March 31, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/03/30/todays-new-york-times-international-edition
 
-**NHL weekend rankings: A stunning coaching change in Vegas shakes up the Pacific**\
-`Vegas' reputation for ruthlessness strikes again. What does it mean for the least impressive — and most winnable — division in the NHL?`\
-https://nytimes.com/athletic/7156589/2026/03/30/nhl-weekend-rankings-vegas-golden-knights-bruce-cassidy/
+**In Arkansas, a House That Compels Passers-by to Stop and Look**\
+`A couple in Bentonville, Arkansas hired Marlon Blackwell Architects to design a home with easy access to the Crystal Bridges Museum.`\
+https://nytimes.com/2026/03/30/realestate/bentonville-marlon-blackwell-home-build.html
 
-**Determination and espresso: What the Tigers have learned about Justin Verlander**\
-`Ahead of Justin Verlander's first start of the season, Tigers teammates reflect on sharing the clubhouse with a living legend.`\
-https://nytimes.com/athletic/7155078/2026/03/30/justin-verlander-tigers-start-homecoming-espresso/
+**What’s Your Favorite Season?**\
+`Recent surveys show Americans prefer fall over spring and other seasons. What time of year do you most look forward to?`\
+https://nytimes.com/2026/03/30/learning/whats-your-favorite-season.html
 
-**Reds' Eugenio Suárez has still got it, and other lessons from an opening-series win**\
-`The Reds have high hopes for Sal Stewart in his first full season. He might exceed them.`\
-https://nytimes.com/athletic/7156529/2026/03/30/reds-eugenio-suarez-opening-series-takeaways/
+**Dancing in Space: Rethinking Bodies Without Gravity**\
+`As a new commercial era of space exploration accelerates, scientists are considering the physical culture of outer space. Dancers are well positioned to help.`\
+https://nytimes.com/2026/03/30/arts/dance/dancers-gravity-scientists-space.html
 
