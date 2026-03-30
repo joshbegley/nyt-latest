@@ -1,3 +1,11 @@
+**Israel Pulls Battalion From West Bank After Soldier Talks of ‘Revenge’**\
+`While detaining a CNN crew, a soldier said that Israeli troops were motivated by “revenge” against Palestinians and that all of the West Bank was “for the Jews.”`\
+https://nytimes.com/2026/03/30/world/middleeast/israel-pulls-battalion-from-west-bank-after-soldier-talks-of-revenge.html
+
+**Giants chairman Greg Johnson Q&A Part 1: Tony Vitello hire, payroll, real estate and more**\
+`Johnson explained why he's optimistic about the 2026 team and how acquiring the Curran Theater can add income that "supports the payroll."`\
+https://nytimes.com/athletic/7156593/2026/03/30/sf-giants-greg-johnson-interview-payroll-real-estate-tony-vitello/
+
 **Trump Administration Live Updates: T.S.A. Pay to Resume, but ICE Could Remain at Airports, Homan Says**\
 ``\
 https://nytimes.com/live/2026/03/30/us/trump-news
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7157502/2026/03/30/euro-2028-ticket-prices-uefa-wor
 **Christian Walker catching up to velocity and Cam Smith stealing bases: Astros takeaways**\
 `Plus why Bryan Abreu's cameo as Houston's closer is generating concern from manager Joe Espada.`\
 https://nytimes.com/athletic/7156657/2026/03/30/astros-christian-walker-velocity-cam-smith-stolen-bases/
-
-**DeLauter's muscle, Armstrong's journey and pitching woes: What we learned about the Guardians**\
-`Cleveland has a 2-2 record built on slim victories and one-sided losses. `\
-https://nytimes.com/athletic/7146816/2026/03/30/guardians-takeaways-chase-delauter-shawn-armstrong-pitching/
-
-**Contender on paper, disappointment down the stretch: What’s wrong with the Wild?**\
-`The Wild's next game isn't until Thursday, which gives them time to rest up and heal. Judging by their latest games, they need it.`\
-https://nytimes.com/athletic/7156022/2026/03/30/wild-slump-kaprizov-boldy-hughes-faber-playoffs/
 

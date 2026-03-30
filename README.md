@@ -1,3 +1,19 @@
+**Crystal Palace mailbag: Send your questions to Matt Woosnam now**\
+`Oliver Glasner's future, summer squad planning and the redevelopment of Selhurst Park – ask our correspondent your questions here`\
+https://nytimes.com/athletic/7157616/2026/03/30/crystal-palace-glasner-selhurst-transfers-mailbag/
+
+**Arsenal's Madueke a doubt for Sporting first leg due to knee injury**\
+`After Friday's 1-1 draw with Uruguay, Madueke walked through Wembley's media mixed zone with a knee brace on his left leg.`\
+https://nytimes.com/athletic/7153588/2026/03/30/madueke-injury-arsenal-england/
+
+**Rockets' Tari Eason looks more like himself, thanks to a well-timed meeting**\
+`Mired in a shooting slump and dealing with emotions off the court, Eason got a lift from his teammates.`\
+https://nytimes.com/athletic/7157433/2026/03/30/rockets-tari-eason-team-meeting/
+
+**Howie Roseman details Eagles' free-agency move at league meetings**\
+`The general manager told a huddle of reporters Philadelphia signed edge rusher Joe Tryon-Shoyinka to a one-year contract.`\
+https://nytimes.com/athletic/7156945/2026/03/30/howie-roseman-eagles-moves-league-meetings/
+
 **Israel Pulls Battalion From West Bank After Soldier Talks of ‘Revenge’**\
 `While detaining a CNN crew, a soldier said that Israeli troops were motivated by “revenge” against Palestinians and that all of the West Bank was “for the Jews.”`\
 https://nytimes.com/2026/03/30/world/middleeast/israel-pulls-battalion-from-west-bank-after-soldier-talks-of-revenge.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7149349/2026/03/30/college-football-nil-revenue-sha
 **USMNT exposed with tactical approach to Belgium, makes for a World Cup warning**\
 `There was no single reason for the USMNT unraveling, but a series of missed steps.`\
 https://nytimes.com/athletic/7157156/2026/03/30/usa-belgium-tactics-pochettino-world-cup/
-
-**Trump Claims ‘Regime Change’ in Iran Is Already Complete**\
-`President Trump suggested that Iran’s current leaders were “much more reasonable” as he sought to show progress in his war aims. Despite a month of U.S.-Israeli attacks, Iran’s government, led by clerics and the Revolutionary Guards, appears firmly in control.`\
-https://nytimes.com/2026/03/30/world/middleeast/trump-regime-change-iran.html
-
-**Iran War’s Latest Economic Toll: Oil at $115 a Barrel**\
-`Economists and investors are increasingly pricing in a slowdown, or even a global recession, if the fighting drags on.`\
-https://nytimes.com/2026/03/30/business/dealbook/iran-war-oil-economy.html
-
-**UEFA to freeze Euro 2028 ticket prices in stark contrast to FIFA’s World Cup policy**\
-`The prices for the tournament will broadly correspond with the €30/€60 figures used in Germany two years ago.`\
-https://nytimes.com/athletic/7157502/2026/03/30/euro-2028-ticket-prices-uefa-world-cup/
-
-**Christian Walker catching up to velocity and Cam Smith stealing bases: Astros takeaways**\
-`Plus why Bryan Abreu's cameo as Houston's closer is generating concern from manager Joe Espada.`\
-https://nytimes.com/athletic/7156657/2026/03/30/astros-christian-walker-velocity-cam-smith-stolen-bases/
 

@@ -1,3 +1,11 @@
+**Israel Pulls Battalion From West Bank After Soldier Talks of ‘Revenge’**\
+`While detaining a CNN crew, a soldier said that Israeli troops were motivated by “revenge” against Palestinians and that all of the West Bank was “for the Jews.”`\
+https://nytimes.com/2026/03/30/world/middleeast/israel-pulls-battalion-from-west-bank-after-soldier-talks-of-revenge.html
+
+**Giants chairman Greg Johnson Q&A Part 1: Tony Vitello hire, payroll, real estate and more**\
+`Johnson explained why he's optimistic about the 2026 team and how acquiring the Curran Theater can add income that "supports the payroll."`\
+https://nytimes.com/athletic/7156593/2026/03/30/sf-giants-greg-johnson-interview-payroll-real-estate-tony-vitello/
+
 **Trump Administration Live Updates: T.S.A. Pay to Resume, but ICE Could Remain at Airports, Homan Says**\
 ``\
 https://nytimes.com/live/2026/03/30/us/trump-news
