@@ -1,3 +1,7 @@
+**Trump Zigzags on Iran, Claiming ‘Great Progress’ but Making Threats**\
+`President Trump threatened to hit vital infrastructure in Iran if the Strait of Hormuz was not reopened, but he also said that “regime change” had already been achieved.`\
+https://nytimes.com/2026/03/30/world/middleeast/trump-iran-threats-kharg-island.html
+
 **For-Internal-Testing-Only**\
 `For-Internal-Testing-Only`\
 https://nytimes.com/paidpost/for-internal-testing-only/for-internal-testing-only.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7158622/2026/03/30/christian-mccaffrey-workload-49e
 **Roy Hodgson, back in the dugout aged 78: 'I’ve got no intention of dying on the bench'**\
 `A text message out of the blue was enough to pique the former England manager's interest. But he insists his return is only a short-term one`\
 https://nytimes.com/athletic/7158614/2026/03/30/roy-hodgson-bristol-city-interview/
-
-**Pennsylvania Third Congressional District 2026: Latest Polls**\
-`Track the latest polls in Pennsylvania's 3rd Congressional District.`\
-https://nytimes.com/interactive/polls/pennsylvania-us-house-3-polls-2026.html
 

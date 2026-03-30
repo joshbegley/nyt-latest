@@ -1,3 +1,19 @@
+**For-Internal-Testing-Only**\
+`For-Internal-Testing-Only`\
+https://nytimes.com/paidpost/for-internal-testing-only/for-internal-testing-only.html
+
+**Bucs coach Todd Bowles bemoans lack of Black head coaches in the NFL**\
+`Bowles, a two-time head coach with the Buccaneers and Jets, said he's felt at times he's interviewed with teams to check a Rooney Rule box.`\
+https://nytimes.com/athletic/7158416/2026/03/30/todd-bowles-nfl-black-head-coach-rooney-rule/
+
+**Broncos' Bo Nix 'ahead of schedule' for return, owner Greg Penner says**\
+`Penner said Monday at the NFL league meeting that there have been no setbacks for the quarterback while rehabbing his ankle injury.`\
+https://nytimes.com/athletic/7158722/2026/03/30/broncos-bo-nix-return-greg-penner/
+
+**Browns' Shedeur Sanders to switch jersey number from 12 to 2**\
+`Sanders, who donned No. 12 as a rookie, had his No. 2 retired by Colorado after his final college season. `\
+https://nytimes.com/athletic/7158558/2026/03/30/browns-shedeur-sanders-jersey-number/
+
 **Browns' Shedeur Sanders to switch jersey number from 12 to 2**\
 `Sanders, who donned No. 12 as a rookie, had his No. 2 retired by Colorado following his final college season. `\
 https://nytimes.com/athletic/7158558/2026/03/30/browns-shedeur-sanders-jersey-number/
