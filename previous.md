@@ -1,3 +1,11 @@
+**How to watch Twins vs. Royals: Time, TV, streaming for March 30**\
+`Find out how to watch the Minnesota Twins play the Kansas City Royals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7157742/2026/03/30/twins-vs-royals-stream-how-to-watch-march-30/
+
+**No Corrections: March 30, 2026**\
+`No corrections appeared in print on Monday, March 30, 2026.`\
+https://nytimes.com/2026/03/30/pageoneplus/no-corrections-march-30-2026.html
+
 **Lowetide: Oilers line shuffle brings youth, speed to Connor's McDavid unit**\
 `Is there a case for the Oilers to keep Vasily Podkolzin and Matt Savoie on the top line with McDavid?`\
 https://nytimes.com/athletic/7155940/2026/03/30/edmonton-oilers-connor-mcdavid-line-savoie-podkolzin-stats/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7157579/2026/03/30/submit-your-maple-leafs-question
 **Next Tottenham manager odds: Roberto De Zerbi leads market to replace Igor Tudor**\
 `Who will the north London club turn to next? De Zerbi? Redknapp? Keane? Dyche?`\
 https://nytimes.com/athletic/7157573/2026/03/30/next-tottenham-manager-odds-de-zerbi-redknapp-keane-dyche/
-
-**Trump Threatens to Destroy Kharg Island and Other Key Iranian Energy Sites**\
-`President Trump said in a newspaper interview that the United States might try to invade the Persian Gulf island, which is Iran’s main oil export hub.`\
-https://nytimes.com/2026/03/30/world/middleeast/trump-iran-kharg-island.html
-
-**Crystal Palace mailbag: Send your questions to Matt Woosnam now**\
-`Oliver Glasner's future, summer squad planning and the redevelopment of Selhurst Park – ask our correspondent your questions here`\
-https://nytimes.com/athletic/7157616/2026/03/30/crystal-palace-glasner-selhurst-transfers-mailbag/
 
