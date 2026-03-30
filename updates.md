@@ -1,3 +1,12 @@
+**Utah State hiring Northern Iowa's Ben Jacobson as head coach**\
+`Jacobson led Northern Iowa to five NCAA Tournaments in 20 years, including one Sweet 16 run in 2010.`\
+https://nytimes.com/athletic/7157787/2026/03/30/utah-state-ben-jacobson-head-coach-hire-uni/
+
+**The Bounce: There's one NBA anti-tanking idea that would work. Plus, Duke melts down**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7157778/2026/03/30/nba-tanking-lottery-duke-march-madness-the-bounce/
+
 **The Bounce: There's one NBA anti-tanking idea that would work. Plus, Duke melts down**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.
 `\

@@ -1,3 +1,7 @@
+**Utah State hiring Northern Iowa's Ben Jacobson as head coach**\
+`Jacobson led Northern Iowa to five NCAA Tournaments in 20 years, including one Sweet 16 run in 2010.`\
+https://nytimes.com/athletic/7157787/2026/03/30/utah-state-ben-jacobson-head-coach-hire-uni/
+
 **Cardiff lose €120m damages claim against Nantes in Emiliano Sala case**\
 `The League One side were instead ordered to pay Nantes $480,000 in damages and legal fees.`\
 https://nytimes.com/athletic/7157772/2026/03/30/cardiff-emiliano-sala-nantes-claim/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7157748/2026/03/30/bruins-tanner-jeannot-mark-kaste
 **Making ‘Death of a Salesman’ New, With Help From Something Old**\
 `Joe Mantello’s Broadway revival, starring Nathan Lane and Laurie Metcalf, was inspired by a draft with notes by Arthur Miller. Here are some of them.`\
 https://nytimes.com/2026/03/30/theater/death-salesman-broadway-lane-metcalf.html
-
-**NC State hiring Vols assistant, former Wolfpack player Justin Gainey as coach**\
-`Gainey played at NC State from 1996 to 2000 under Herb Sendek, ending his career fourth in program history in steals and ninth in assists.`\
-https://nytimes.com/athletic/7156484/2026/03/30/justin-gainey-nc-state-mens-basketball-coach-search/
 
