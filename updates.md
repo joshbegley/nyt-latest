@@ -1,3 +1,27 @@
+**Trump Zigzags on Iran**\
+`Also, T.S.A. workers start getting back pay. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2026/03/30/briefing/trump-iran-tsa-back-pay.html
+
+**Ravens president not concerned about team's reputation after failed Maxx Crosby trade**\
+`"People understand who we are and what we’re about," Ravens president Sashi Brown said at the league meeting in Phoenix. `\
+https://nytimes.com/athletic/7158822/2026/03/30/ravens-sashi-brown-maxx-crosby-trade-fallout/
+
+**White House Will Allow Oil Shipments to Cuba on ‘Case-by-Case’ Basis**\
+`The White House press secretary, Karoline Leavitt, said on Monday that the U.S. would evaluate oil shipments to Cuba on an individual basis after a Russian tanker was allowed to deliver fuel.`\
+https://nytimes.com/video/us/politics/100000010811444/trump-administration-cuba-oil.html
+
+**Trump Reveals New Look for White House Ballroom After Times Article**\
+`Architects and preservation organizations have warned that little scrutiny has been given to the project’s design plans.`\
+https://nytimes.com/2026/03/30/upshot/trump-white-house-ballroom-plans.html
+
+**What to Know About California’s Executive Order on A.I.**\
+`Gov. Gavin Newsom, a Democrat, plans to issue an order requiring safety and privacy guardrails for artificial intelligence companies contracting with the state.`\
+https://nytimes.com/2026/03/30/technology/california-ai-executive-order.html
+
+**Bulls waive Jaden Ivey less than two months after acquiring him from Pistons**\
+`Ivey's season was shut down on Thursday while he manages left knee pain.`\
+https://nytimes.com/athletic/7159179/2026/03/30/jaden-ivey-waived-bulls-nba-pride-month/
+
 **Bulls waive Jaden Ivey less than two months after acquiring him from Pistons**\
 `Monday’s comments were part of an extensive livestream, his third over the past week in which he’s spoken on his religious beliefs.`\
 https://nytimes.com/athletic/7159179/2026/03/30/jaden-ivey-waived-bulls-nba-pride-month/

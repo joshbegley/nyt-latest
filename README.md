@@ -1,3 +1,7 @@
+**Bills GM Brandon Beane: Dalton Kincaid's fifth-year option picked up, open to more WR help**\
+`Beane also spoke about moving back into the second round, joint practice, and more.`\
+https://nytimes.com/athletic/7158949/2026/03/30/bills-brandon-beane-dalton-kincaid-knee/
+
 **Trump Zigzags on Iran**\
 `Also, T.S.A. workers start getting back pay. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2026/03/30/briefing/trump-iran-tsa-back-pay.html
@@ -15,7 +19,7 @@ https://nytimes.com/video/us/politics/100000010811444/trump-administration-cuba-
 https://nytimes.com/2026/03/30/upshot/trump-white-house-ballroom-plans.html
 
 **What to Know About California’s Executive Order on A.I.**\
-`Gov. Gavin Newsom, a Democrat, plans to issue an order requiring safety and privacy guardrails for artificial intelligence companies contracting with the state.`\
+`Gov. Gavin Newsom, a Democrat, issued an order requiring safety and privacy guardrails for artificial intelligence companies contracting with the state.`\
 https://nytimes.com/2026/03/30/technology/california-ai-executive-order.html
 
 **Bulls waive Jaden Ivey less than two months after acquiring him from Pistons**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7158999/2026/03/30/nfl-flag-football-pro-leagues-me
 **Super Bowl to return to Las Vegas' Allegiant Stadium in 2029**\
 `This will mark the second time Las Vegas hosts the NFL's marquee event.`\
 https://nytimes.com/athletic/7147267/2026/03/30/super-bowl-63-las-vegas-allegiant-stadium/
-
-**Is Trump Threatening to Commit a War Crime?**\
-`The bombing campaign Mr. Trump is threatening in Iran could affect millions of Iranian civilians’ access to water, electricity and food.`\
-https://nytimes.com/2026/03/30/opinion/international-world/is-trump-threatening-to-commit-a-war-crime.html
 
