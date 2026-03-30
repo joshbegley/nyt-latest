@@ -1,3 +1,19 @@
+**Crystal Palace mailbag: Send your questions to Matt Woosnam now**\
+`Oliver Glasner's future, summer squad planning and the redevelopment of Selhurst Park – ask our correspondent your questions here`\
+https://nytimes.com/athletic/7157616/2026/03/30/crystal-palace-glasner-selhurst-transfers-mailbag/
+
+**Arsenal's Madueke a doubt for Sporting first leg due to knee injury**\
+`After Friday's 1-1 draw with Uruguay, Madueke walked through Wembley's media mixed zone with a knee brace on his left leg.`\
+https://nytimes.com/athletic/7153588/2026/03/30/madueke-injury-arsenal-england/
+
+**Rockets' Tari Eason looks more like himself, thanks to a well-timed meeting**\
+`Mired in a shooting slump and dealing with emotions off the court, Eason got a lift from his teammates.`\
+https://nytimes.com/athletic/7157433/2026/03/30/rockets-tari-eason-team-meeting/
+
+**Howie Roseman details Eagles' free-agency move at league meetings**\
+`The general manager told a huddle of reporters Philadelphia signed edge rusher Joe Tryon-Shoyinka to a one-year contract.`\
+https://nytimes.com/athletic/7156945/2026/03/30/howie-roseman-eagles-moves-league-meetings/
+
 **Israel Pulls Battalion From West Bank After Soldier Talks of ‘Revenge’**\
 `While detaining a CNN crew, a soldier said that Israeli troops were motivated by “revenge” against Palestinians and that all of the West Bank was “for the Jews.”`\
 https://nytimes.com/2026/03/30/world/middleeast/israel-pulls-battalion-from-west-bank-after-soldier-talks-of-revenge.html
