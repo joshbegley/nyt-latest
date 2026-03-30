@@ -1,3 +1,15 @@
+**The Army Begins an Inquiry After Kid Rock Gets a Helicopter Flyby**\
+`The pro-Trump musician saluted the pair of Apache attack choppers, which appeared to be the same ones that flew low over a “No Kings” rally in Nashville.`\
+https://nytimes.com/2026/03/30/us/kid-rock-nashville-helicopter-video-army-inquiry.html
+
+**In Maine, Michigan and Beyond, Primary Season Is Getting Punchy**\
+`Here’s a crash course on what’s coming up next.`\
+https://nytimes.com/2026/03/30/us/politics/primary-elections-maine-michigan.html
+
+**Giants send Luis Matos to Brewers for cash, acquire Dylan Smith from Tigers**\
+`The Matos trade was one of three roster tweaks the Giants made before Monday's series opener in San Diego.`\
+https://nytimes.com/athletic/7158888/2026/03/30/giants-luis-matos-trade-brewers-tigers-dylan-smith/
+
 **A New U.S. Missile Hit a Sports Hall in Iran. Here’s What We Know About It.**\
 `Barely out of prototype testing, the Precision Strike Missile is shrouded in secrecy — including which Persian Gulf countries the Army is launching them from.`\
 https://nytimes.com/2026/03/30/us/politics/us-missile-strike-iran-sports-hall-school.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/politics/100000010811532/trump-white-house-ballroom
 **Pochettino's World Cup mandate for USMNT is clear: Intensity is not optional**\
 `The U.S. manager bemoaned his side's 90-minute effort against Belgium. Will the players' response meet the challenge?`\
 https://nytimes.com/athletic/7159184/2026/03/30/usmnt-world-cup-pochettino-intensity-belgium-portugal/
-
-**Donovan questions USMNT pride, says Belgium loss could do 'psychological damage'**\
-`The former USMNT forward did not hold back in his assessment of the current team's demoralizing defeat to Belgium`\
-https://nytimes.com/athletic/7159290/2026/03/30/landon-donovan-usmnt-pride-belgium-world-cup/
-
-**Weekly Student News Quiz: Social Media Trial, Global Protests, Baseball**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2026/03/30/learning/30StudentNewsQuiz.html
-
-**Ben Stevenson Dies at 89; Choreographer Made Houston Ballet Thrive**\
-`He created dances performed around the world, and under his leadership the Houston company grew into one of America’s largest and most prominent.`\
-https://nytimes.com/2026/03/30/arts/dance/ben-stevenson-dead.html
 
