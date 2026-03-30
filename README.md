@@ -1,3 +1,15 @@
+**Jayden Daniels' flag football experiment had Commanders leaders nervous but supportive**\
+`The Commanders' owner and GM both said they left the decision to participate up to Daniels and told the quarterback they would support him.`\
+https://nytimes.com/athletic/7159448/2026/03/30/jayden-daniels-fanatics-flag-football-classic/
+
+**After Months of Threats, Trump Softens His Stance on Blocking Oil to Cuba**\
+`The White House press secretary said the United States would evaluate oil shipments to Cuba on a “case-by-case basis,” after a Russian tanker full of crude reached the island.`\
+https://nytimes.com/2026/03/30/us/politics/trump-threats-oil-cuba-sanctions.html
+
+**DeSantis Signs Bill to Rename Florida Airport for Trump**\
+`The airport near West Palm Beach will be rebranded the President Donald J. Trump International Airport on July 1, if approved by the Federal Aviation Administration.`\
+https://nytimes.com/2026/03/30/us/politics/trump-airport-palm-beach-florida.html
+
 **How Barbie Dream Fest Turned Into a Nightmare**\
 `Fans had high hopes for the event, a Mattel-sanctioned gathering in a Florida convention center. Now, it’s drawing comparisons to Fyre Festival.`\
 https://nytimes.com/2026/03/30/style/barbie-dream-fest-florida.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/30/us/politics/primary-elections-maine-michigan.html
 **Giants send Luis Matos to Brewers for cash, acquire Dylan Smith from Tigers**\
 `The Matos trade was one of three roster tweaks the Giants made before Monday's series opener in San Diego.`\
 https://nytimes.com/athletic/7158888/2026/03/30/giants-luis-matos-trade-brewers-tigers-dylan-smith/
-
-**A New U.S. Missile Hit a Sports Hall in Iran. Here’s What We Know About It.**\
-`Barely out of prototype testing, the Precision Strike Missile is shrouded in secrecy — including which Persian Gulf countries the Army is launching them from.`\
-https://nytimes.com/2026/03/30/us/politics/us-missile-strike-iran-sports-hall-school.html
-
-**Mexico Pressures U.S. Over Deaths of Its Citizens in ICE Custody**\
-`Claudia Sheinbaum, president of Mexico, said her country would take legal steps to demand better conditions at immigration detention facilities, where she said 14 Mexican citizens have died since President Trump took office.`\
-https://nytimes.com/2026/03/30/us/mexico-ice-detention-deaths.html
-
-**Joe Mazzulla on NBA's Coach of the Year honor: 'It's a stupid award'**\
-`Joe Mazzulla thinks Coach of the Year is a stupid award, but his thoughts won't stop him from garnering respect around the NBA.`\
-https://nytimes.com/athletic/7159253/2026/03/30/joe-mazzulla-coach-of-the-year-nba-jayson-tatum/
 
