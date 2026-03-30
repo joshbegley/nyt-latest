@@ -1,3 +1,19 @@
+**The New York Times in Print for Monday, March 30, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/30/todays-new-york-times
+
+**Trump Sets the World on Fire. India Chokes on the Fumes.**\
+`Trump’s war on Iran is dangerous for everyone.`\
+https://nytimes.com/2026/03/30/opinion/trump-iran-war-india-oil.html
+
+**‘The Real Housewives of Rhode Island,’ Plus 7 Things to Watch on TV This Week**\
+`A new iteration of the Bravo franchise begins and the second season of “Your Friends & Neighbors” premieres.`\
+https://nytimes.com/2026/03/30/arts/television/real-housewives-of-rhode-island-tv-this-week.html
+
+**Iran to Allow More Oil Ships Through Strait of Hormuz, Trump Says**\
+`President Trump said that Iran had agreed to release 20 more cargo ships of oil through the Strait of Hormuz starting on Monday.`\
+https://nytimes.com/video/us/100000010809553/trump-iran-strait-of-hormuz-ships.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Still recovering from that UConn-Duke Elite Eight ending? Maybe turn your attention to some offseason college football.</p>
 <p>Leave your questions here. Please include your city.</p>
