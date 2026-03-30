@@ -1,3 +1,7 @@
+**Manchester United squad audit: Exploring every player's contract and transfer status**\
+`Analysing the transfer and contract status of every Manchester United player`\
+https://nytimes.com/athletic/7152518/2026/03/30/manchester-united-transfers-squad-audit/
+
 **Why Odegaard's return could be key to maximising Arsenal's attacking potency**\
 `Arsenal's captain should be back from injury soon, giving Mikel Arteta a creative passer while easing the burden on his fellow midfielders`\
 https://nytimes.com/athletic/7151381/2026/03/30/arsenal-odegaard-havertz-eze/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7146510/2026/03/30/fabian-hurzeler-brighton-future/
 **Connections: Sports Edition Coach: Hints and answers for March 30, 2026**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/7157236/2026/03/30/connections-sports-edition-hints-answers-march-30-2026/
-
-**This Is What Happens When the Gas Runs Out**\
-`With a cutoff in shipments imminent, Asian countries, the biggest importers of liquefied natural gas from the Middle East, are already burning more coal and reducing consumption.`\
-https://nytimes.com/2026/03/30/business/lng-supply-asia-qatar-iran.html
 
