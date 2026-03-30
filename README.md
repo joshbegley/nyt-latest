@@ -1,3 +1,11 @@
+**Ben Stevenson Dies at 89; Choreographer Made Houston Ballet Thrive**\
+`He created dances performed around the world, and under his leadership the Houston company grew into one of America’s largest and most prominent.`\
+https://nytimes.com/2026/03/30/arts/dance/ben-stevenson-dead.html
+
+**Browns owner: Deshaun Watson still has 'great chance' to become team's QB**\
+`Haslam called the trade for and commitment to quarterback Deshaun Watson "a big swing and a miss" last year. Watson didn't play in 2025.`\
+https://nytimes.com/athletic/7158960/2026/03/30/browns-deshaun-watson-jimmy-haslam/
+
 **Mark Sanford, Years After Scandal, Aims for a Comeback to Congress**\
 `The former South Carolina governor and congressman filed papers to run for his old seat, six years after running for president and nearly two decades after a high-profile affair.`\
 https://nytimes.com/2026/03/30/us/politics/mark-sanford-south-carolina-congress.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/30/upshot/trump-white-house-ballroom-plans.html
 **What to Know About California’s Executive Order on A.I.**\
 `Gov. Gavin Newsom, a Democrat, issued an order requiring safety and privacy guardrails for artificial intelligence companies contracting with the state.`\
 https://nytimes.com/2026/03/30/technology/california-ai-executive-order.html
-
-**Bulls waive Jaden Ivey less than two months after acquiring him from Pistons**\
-`Ivey's season was shut down on Thursday while he manages left knee pain.`\
-https://nytimes.com/athletic/7159179/2026/03/30/jaden-ivey-waived-bulls-nba-pride-month/
-
-**Woman Spent Five Months in Jail After A.I. Linked Her to Bank Fraud Case**\
-`The police chief in Fargo, N.D., acknowledged “missteps” but stopped short of apologizing to Angela Lipps, a Tennessee resident who said she had never been to North Dakota before she was arrested.`\
-https://nytimes.com/2026/03/30/us/north-dakota-facial-recognition-ai-errors-bank-fraud.html
 
