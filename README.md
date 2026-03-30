@@ -1,3 +1,11 @@
+**Bulls waive Jaden Ivey less than two months after acquiring him from Pistons**\
+`Monday’s comments were part of an extensive livestream, his third over the past week in which he’s spoken on his religious beliefs.`\
+https://nytimes.com/athletic/7159179/2026/03/30/jaden-ivey-waived-bulls-nba-pride-month/
+
+**Woman Spent Five Months in Jail After A.I. Linked Her to Bank Fraud Case**\
+`The police chief in Fargo, N.D., acknowledged “missteps” but stopped short of apologizing to Angela Lipps, a Tennessee resident who said she had never been to North Dakota before she was arrested.`\
+https://nytimes.com/2026/03/30/us/north-dakota-facial-recognition-ai-errors-bank-fraud.html
+
 **NFL to launch men and women's pro flag football leagues**\
 `The NFL will partner with TMRW Sports, which helped develop and launch the prime-time team golf league TGL.`\
 https://nytimes.com/athletic/7158999/2026/03/30/nfl-flag-football-pro-leagues-men-women-brady-manning/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/30/climate/vermont-hits-back-at-trumps-effort-to-blo
 **LeBron James adds nod to his nickname with new signature**\
 `LeBron adds some artistry to his autograph in latest change. `\
 https://nytimes.com/athletic/7158892/2026/03/30/lebron-james-crown-signature-autographs-lakers/
-
-**Brewers prospect Cooper Pratt finalizing 8-year, $51 million contract: Sources**\
-`The 21-year-old shortstop has only played in three games above Double A.`\
-https://nytimes.com/athletic/7158939/2026/03/30/brewers-cooper-pratt-contract/
-
-**Falcons' decision-makers noncommittal on QB competition**\
-`Kevin Stefanski discussed Michael Penix and Tua Tagovailoa, while Ian Cunningham didn't rule out listening to trade offers for Kyle Pitts.`\
-https://nytimes.com/athletic/7158870/2026/03/30/falcons-owners-meeting-michael-penix-tua-tagovailoa/
 
