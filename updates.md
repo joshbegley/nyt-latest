@@ -1,3 +1,7 @@
+**The odds are stacked against New Zealand, the World Cup's lowest-ranked team. But they are chasing history**\
+`They are the giants of Oceania and averaged 6-0 wins in qualifying. Now they are chasing a first victory at their third World Cup finals`\
+https://nytimes.com/athletic/7157317/2026/03/30/new-zealand-world-cup/
+
 **College baseball week in review: Vanderbilt walk-offs headline sweep-filled week in SEC**\
 `Florida, swept last weekend at Alabama, becomes the first team to sweep Arkansas in Fayetteville since 2016. `\
 https://nytimes.com/athletic/7157116/2026/03/30/college-baseball-vanderbilt-tennessee-florida-arkansas/

@@ -6,6 +6,10 @@ https://nytimes.com/athletic/7157116/2026/03/30/college-baseball-vanderbilt-tenn
 `Find out how to watch the Minnesota Twins play the Kansas City Royals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7157742/2026/03/30/twins-vs-royals-stream-how-to-watch-march-30/
 
+**The odds are stacked against New Zealand, the World Cup's lowest-ranked team. But they are chasing history**\
+`They are the giants of Oceania and averaged 6-0 wins in qualifying. Now they are chasing a first victory at their third World Cup finals`\
+https://nytimes.com/athletic/7157317/2026/03/30/new-zealand-world-cup/
+
 **No Corrections: March 30, 2026**\
 `No corrections appeared in print on Monday, March 30, 2026.`\
 https://nytimes.com/2026/03/30/pageoneplus/no-corrections-march-30-2026.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/30/arts/music/symphony-space-renovation-bloomsday.ht
 **How to Replace Daniel Radcliffe on Broadway? Call Mariska Hargitay.**\
 `Starting in May, Hargitay will make her Broadway debut in “Every Brilliant Thing,” an elastic play that shape shifts to fit a distinctly different star.`\
 https://nytimes.com/2026/03/30/theater/mariska-hargitay-daniel-radcliffe-every-brilliant-thing.html
-
-**Submit your Maple Leafs questions for our next podcast or column**\
-`Just eight games.`\
-https://nytimes.com/athletic/7157579/2026/03/30/submit-your-maple-leafs-questions-for-our-next-podcast-or-column/
 
