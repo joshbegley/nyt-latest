@@ -1,5 +1,17 @@
+**For-Internal-Testing-Only**\
+`For-Internal-Testing-Only`\
+https://nytimes.com/paidpost/for-internal-testing-only/for-internal-testing-only.html
+
+**Bucs coach Todd Bowles bemoans lack of Black head coaches in the NFL**\
+`Bowles, a two-time head coach with the Buccaneers and Jets, said he's felt at times he's interviewed with teams to check a Rooney Rule box.`\
+https://nytimes.com/athletic/7158416/2026/03/30/todd-bowles-nfl-black-head-coach-rooney-rule/
+
+**Broncos' Bo Nix 'ahead of schedule' for return, owner Greg Penner says**\
+`Penner said Monday at the NFL league meeting that there have been no setbacks for the quarterback while rehabbing his ankle injury.`\
+https://nytimes.com/athletic/7158722/2026/03/30/broncos-bo-nix-return-greg-penner/
+
 **Browns' Shedeur Sanders to switch jersey number from 12 to 2**\
-`Sanders, who donned No. 12 as a rookie, had his No. 2 retired by Colorado following his final college season. `\
+`Sanders, who donned No. 12 as a rookie, had his No. 2 retired by Colorado after his final college season. `\
 https://nytimes.com/athletic/7158558/2026/03/30/browns-shedeur-sanders-jersey-number/
 
 **Pennsylvania 10th Congressional District 2026: Latest Polls**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7158614/2026/03/30/roy-hodgson-bristol-city-intervi
 **Pennsylvania Third Congressional District 2026: Latest Polls**\
 `Track the latest polls in Pennsylvania's 3rd Congressional District.`\
 https://nytimes.com/interactive/polls/pennsylvania-us-house-3-polls-2026.html
-
-**Pennsylvania First Congressional District 2026: Latest Polls**\
-`Track the latest polls in Pennsylvania's 1st Congressional District.`\
-https://nytimes.com/interactive/polls/pennsylvania-us-house-1-polls-2026.html
-
-**Man Pleads Not Guilty in Fatal Subway Shoving of 83-Year-Old Veteran**\
-`Prosecutors on Monday said Bairon Hernandez pushed Richard Williams, who later died, onto the tracks. They said the attack was the second by Mr. Hernandez at the station that day.`\
-https://nytimes.com/2026/03/30/nyregion/subway-push-death-veteran.html
-
-**NBA approves Trail Blazers' sale to Tom Dundon at $4.25 billion valuation: Source**\
-`The transaction will mark the first time since 1988 that the Blazers have not been owned by Paul Allen or his sister, Jody.`\
-https://nytimes.com/athletic/7129015/2026/03/30/trail-blazers-sold-tom-dundon-nba/
 
