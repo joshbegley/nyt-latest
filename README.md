@@ -1,3 +1,7 @@
+**Employee Lawsuit Against Fox News Is Dismissed**\
+`A reporter who claimed the network had fired him for challenging its coverage failed to prove retaliation and discrimination, a federal judge said.`\
+https://nytimes.com/2026/03/30/business/media/fox-news-jason-donner-lawsuit-dismissed.html
+
 **Iran advances a plan to charge a toll for ships to traverse the Strait of Hormuz.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2026/03/30/world/iran-war-trump-oil-news/strait-of-hormuz-toll-iran
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7159253/2026/03/30/joe-mazzulla-coach-of-the-year-n
 **Michigan Synagogue Attack Was ‘Inspired by Hezbollah,’ Officials Say**\
 `The man who rammed his vehicle into the synagogue was purposely targeting the Jewish community, officials said on Monday, detailing his days of planning.`\
 https://nytimes.com/2026/03/30/us/michigan-synagogue-attack-hezbollah.html
-
-**Why the Seahawks are not 'defending' their Super Bowl title, and other notes from Arizona**\
-`Meanwhile, the Seahawks are happy with their running backs but frustrated by the new "Millionaires Tax" in Washington.`\
-https://nytimes.com/athletic/7159150/2026/03/30/seahawks-nfl-owners-meetings-mike-macdonald/
 
