@@ -1,3 +1,15 @@
+**Vikings plan to pick up wide receiver Jordan Addison's fifth-year option: Sources**\
+`Despite a down season, the Vikings still view Addison as a key cog of their passing attack.`\
+https://nytimes.com/athletic/7159037/2026/03/30/vikings-jordan-addison-fifth-year-option/
+
+**Bills GM Brandon Beane: Dalton Kincaid's fifth-year option picked up, open to more WR help**\
+`Beane also spoke about moving back into the second round, joint practice, and more.`\
+https://nytimes.com/athletic/7158949/2026/03/30/bills-brandon-beane-dalton-kincaid-knee/
+
+**What to Know About California’s Executive Order on A.I.**\
+`Gov. Gavin Newsom, a Democrat, issued an order requiring safety and privacy guardrails for artificial intelligence companies contracting with the state.`\
+https://nytimes.com/2026/03/30/technology/california-ai-executive-order.html
+
 **Trump Zigzags on Iran**\
 `Also, T.S.A. workers start getting back pay. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2026/03/30/briefing/trump-iran-tsa-back-pay.html

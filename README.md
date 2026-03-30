@@ -1,3 +1,7 @@
+**Mark Sanford, Years After Scandal, Aims for a Comeback to Congress**\
+`The former South Carolina governor and congressman filed papers to run for his old seat, six years after running for president and nearly two decades after a high-profile affair.`\
+https://nytimes.com/2026/03/30/us/politics/mark-sanford-south-carolina-congress.html
+
 **Vikings plan to pick up wide receiver Jordan Addison's fifth-year option: Sources**\
 `Despite a down season, the Vikings still view Addison as a key cog of their passing attack.`\
 https://nytimes.com/athletic/7159037/2026/03/30/vikings-jordan-addison-fifth-year-option/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7159179/2026/03/30/jaden-ivey-waived-bulls-nba-prid
 **Woman Spent Five Months in Jail After A.I. Linked Her to Bank Fraud Case**\
 `The police chief in Fargo, N.D., acknowledged “missteps” but stopped short of apologizing to Angela Lipps, a Tennessee resident who said she had never been to North Dakota before she was arrested.`\
 https://nytimes.com/2026/03/30/us/north-dakota-facial-recognition-ai-errors-bank-fraud.html
-
-**NFL to launch men and women's pro flag football leagues**\
-`The NFL will partner with TMRW Sports, which helped develop and launch the prime-time team golf league TGL.`\
-https://nytimes.com/athletic/7158999/2026/03/30/nfl-flag-football-pro-leagues-men-women-brady-manning/
 
