@@ -1,3 +1,7 @@
+**The Athletic college baseball top 25: Florida vaults to No. 16 after sweeping Arkansas**\
+`The Gators and Boston College are new entrants this week, replacing NC State and Tennesssee.`\
+https://nytimes.com/athletic/7157672/2026/03/30/college-baseball-rankings-florida-arkansas-ucla-texas/
+
 **Lawsuit Accuses Americans of Political Killings for Hire Overseas**\
 `Three men working for an American security contractor say the United Arab Emirates paid them to carry out targeted killings in Yemen. One of their targets is suing them in U.S. federal court.`\
 https://nytimes.com/2026/03/30/world/middleeast/yemen-assassination-lawsuit-americans.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/30/world/middleeast/lebanon-un-peacekeepers.html
 **Darius Garland knew his Cavaliers days were numbered. Now, he’s embracing L.A.**\
 `In an exclusive interview with The Athletic, Garland opened up on his journey to the Clippers and how Dave Chappelle shaped his future.`\
 https://nytimes.com/athletic/7156847/2026/03/30/darius-garland-clippers-cavaliers-career-dave-chappelle/
-
-**Symphony Space to Undergo a $45 Million Makeover**\
-`The Upper West Side performing arts venue will take its programming across the city while its doors close for a 15-month overhaul.`\
-https://nytimes.com/2026/03/30/arts/music/symphony-space-renovation-bloomsday.html
 

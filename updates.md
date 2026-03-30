@@ -1,3 +1,7 @@
+**Lawsuit Accuses Americans of Political Killings for Hire Overseas**\
+`Three men working for an American security contractor say the United Arab Emirates paid them to carry out targeted killings in Yemen. One of their targets is suing them in U.S. federal court.`\
+https://nytimes.com/2026/03/30/world/middleeast/yemen-assassination-lawsuit-americans.html
+
 **The odds are stacked against New Zealand, the World Cup's lowest-ranked team. But they are chasing history**\
 `They are the giants of Oceania and averaged 6-0 wins in qualifying. Now they are chasing a first victory at their third World Cup finals`\
 https://nytimes.com/athletic/7157317/2026/03/30/new-zealand-world-cup/

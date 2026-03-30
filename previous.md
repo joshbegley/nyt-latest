@@ -1,3 +1,7 @@
+**Lawsuit Accuses Americans of Political Killings for Hire Overseas**\
+`Three men working for an American security contractor say the United Arab Emirates paid them to carry out targeted killings in Yemen. One of their targets is suing them in U.S. federal court.`\
+https://nytimes.com/2026/03/30/world/middleeast/yemen-assassination-lawsuit-americans.html
+
 **College baseball week in review: Vanderbilt walk-offs headline sweep-filled week in SEC**\
 `Florida, swept last weekend at Alabama, becomes the first team to sweep Arkansas in Fayetteville since 2016. `\
 https://nytimes.com/athletic/7157116/2026/03/30/college-baseball-vanderbilt-tennessee-florida-arkansas/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7156847/2026/03/30/darius-garland-clippers-cavalier
 **Symphony Space to Undergo a $45 Million Makeover**\
 `The Upper West Side performing arts venue will take its programming across the city while its doors close for a 15-month overhaul.`\
 https://nytimes.com/2026/03/30/arts/music/symphony-space-renovation-bloomsday.html
-
-**How to Replace Daniel Radcliffe on Broadway? Call Mariska Hargitay.**\
-`Starting in May, Hargitay will make her Broadway debut in “Every Brilliant Thing,” an elastic play that shape shifts to fit a distinctly different star.`\
-https://nytimes.com/2026/03/30/theater/mariska-hargitay-daniel-radcliffe-every-brilliant-thing.html
 
