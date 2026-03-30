@@ -11,7 +11,7 @@ https://nytimes.com/2026/03/30/us/marine-stolen-missile-charged.html
 https://nytimes.com/athletic/7158035/2026/03/30/michigan-vs-texas-stream-how-to-watch-march-30/
 
 **Renoir, Cézanne and Matisse Paintings Are Stolen in 3-Minute Museum Heist, Police Say**\
-`Thieves broke into the Magnani-Rocca Foundation outside Parma, Italy, and made off with paintings worth about $10 million, officials said.`\
+`Thieves broke into the Magnani-Rocca Foundation outside Parma, Italy, officials said, and made off with paintings worth millions.`\
 https://nytimes.com/2026/03/30/world/europe/parma-art-heist-renoir-matisse-cezanne-italy.html
 
 **Justice Dept. Watchdog Has Gone Silent, Lawyers for Whistle-Blower Say**\

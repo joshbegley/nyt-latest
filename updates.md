@@ -1,3 +1,15 @@
+**49ers 'in no rush' to release Brandon Aiyuk, holding out hope for trade**\
+`"Eventually, it will resolve itself," coach Kyle Shanahan said of the situation. "Hopefully, we get something for it."`\
+https://nytimes.com/athletic/7157987/2026/03/30/49ers-brandon-aiyuk-release-trade/
+
+**Marine Is Charged With Stealing Missile Launcher and Ammunition**\
+`A corporal is accused of taking weapons from his base, Camp Pendleton near San Diego, and reselling them.`\
+https://nytimes.com/2026/03/30/us/marine-stolen-missile-charged.html
+
+**How to watch Michigan vs. Texas women's basketball: Elite Eight Time, TV, streaming**\
+`Find out how to watch the Michigan Wolverines play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7158035/2026/03/30/michigan-vs-texas-stream-how-to-watch-march-30/
+
 **Renoir, Cézanne and Matisse Paintings Are Stolen in 3-Minute Museum Heist, Police Say**\
 `Thieves broke into the Magnani-Rocca Foundation outside Parma, Italy, and made off with paintings worth about $10 million, officials said.`\
 https://nytimes.com/2026/03/30/world/europe/parma-art-heist-renoir-matisse-cezanne-italy.html
