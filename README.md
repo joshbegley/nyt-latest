@@ -1,3 +1,11 @@
+**From Foe to Ally: The S.E.C. Is Now Writing Crypto-Friendly Policies**\
+`The embrace of crypto by financial regulators under President Trump has entered a new, cozier phase.`\
+https://nytimes.com/2026/03/30/technology/sec-crypto-friendly-rules.html
+
+**How to watch Penguins vs. Islanders: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Penguins play the New York Islanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7158009/2026/03/30/penguins-vs-islanders-stream-how-to-watch-march-30/
+
 **Amid the Noise and Chaos of Tech Trade Shows, Ambient Intelligence Faces Its Real Test**\
 ` If AI can remain useful there, it can survive anywhere.`\
 https://nytimes.com/paidpost/lenovo/03-2026/ambient-intelligence-faces-real-test.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7157981/2026/03/30/pirates-vs-reds-stream-how-to-wa
 **How to watch Rangers vs. Orioles: Time, TV, streaming for March 30**\
 `Find out how to watch the Texas Rangers play the Baltimore Orioles, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7157980/2026/03/30/rangers-vs-orioles-stream-how-to-watch-march-30/
-
-**Who’s ‘Safer’ or ‘Riskier’? Maine Democrats Clash Over How to Beat Collins.**\
-`Gov. Janet Mills argues that her rival for Senate, Graham Platner, could be doomed by his history of offensive online remarks. But at a time of anti-establishment anger, Mr. Platner says he is the safer choice.`\
-https://nytimes.com/2026/03/30/us/politics/maine-senate-primary-mills-platner-democrat.html
-
-**‘I Think That MAGA Is Dying’: Inside the Youth Movement at CPAC**\
-`At a sparsely attended Conservative Political Action Conference, young Republicans were eager to start the post-Trump era.`\
-https://nytimes.com/2026/03/30/style/cpac-scene-maga.html
 
