@@ -1,3 +1,15 @@
+**401(k) Plans Could Add Riskier Investments Under a New Rule**\
+`The Labor Dept. proposed a change that would make it easier for workplace retirement plans to include alternative investments like private credit and crypto.`\
+https://nytimes.com/2026/03/30/your-money/401k-private-equity-crypto-investments.html
+
+**Blue Jackets Monday Gathering: After another kick in the teeth, Bowness will stay 'very positive'**\
+`Is the pressure of success is simply too much for the Blue Jackets, collectively, to handle?`\
+https://nytimes.com/athletic/7155500/2026/03/30/blue-jackets-playoffs-slump-standings/
+
+**Browns withdraw proposal to allow trades of draft picks 5 years out: Source**\
+`Cleveland GM Andrew Berry proposed an idea to extend the window for trading draft picks, and it could be revisited in the future.`\
+https://nytimes.com/athletic/7158155/2026/03/30/browns-withdraw-trade-draft-picks-proposal-sean-mcvay/
+
 **34 years after 'The Shot,' Grant Hill reflects on UConn's miracle, Duke's 'meltdown'**\
 `The former Duke superstar, calling the UConn-Duke game for CBS with Ian Eagle and Bill Raftery, knows something about epic March moments.`\
 https://nytimes.com/athletic/7157967/2026/03/30/grant-hill-braylon-mullins-uconn-duke-cbs/
