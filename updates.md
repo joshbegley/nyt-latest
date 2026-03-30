@@ -1,3 +1,19 @@
+**Timberwolves lose Jaden McDaniels as Minnesota makes playoff push**\
+`With McDaniels, one of Minnesota's most durable and versatile players sidelined, the Timberwolves' depth will be tested. `\
+https://nytimes.com/athletic/7158434/2026/03/30/jaden-mcdaniels-injury-timberwolves-nba/
+
+**As Trump Squeezes Cuba, U.S. Military Exists in a Bubble**\
+`The Navy base at Guantánamo Bay sparkles at night while neighbors across a Cuban minefield struggle in darkness driven by a Trump fuel embargo.`\
+https://nytimes.com/2026/03/30/us/politics/gitmo-cuba-trump.html
+
+**California’s Warmest, Driest March in Years Is Finally Ending**\
+`Parts of the state are expected to see light rain this week.`\
+https://nytimes.com/2026/03/30/weather/california-rain-heat-march.html
+
+**Pochettino insists he is open to staying as USMNT coach after World Cup**\
+`The USMNT head coach has repeatedly been linked with a return to European club soccer`\
+https://nytimes.com/athletic/7158441/2026/03/30/pochettino-usmnt-coach-return-world-cup/
+
 **Pochettino insists he is open to USMNT coaching return after World Cup**\
 `The USMNT head coach has repeatedly been linked with a return to European club soccer`\
 https://nytimes.com/athletic/7158441/2026/03/30/pochettino-usmnt-coach-return-world-cup/

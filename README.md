@@ -1,3 +1,7 @@
+**Student, 15, Shoots High School Teacher in Texas**\
+`The teacher was taken to a hospital, and the student died at the scene, the authorities said.`\
+https://nytimes.com/2026/03/30/us/texas-shooting-teacher-student-dead-high-school.html
+
 **Timberwolves lose Jaden McDaniels as Minnesota makes playoff push**\
 `With McDaniels, one of Minnesota's most durable and versatile players sidelined, the Timberwolves' depth will be tested. `\
 https://nytimes.com/athletic/7158434/2026/03/30/jaden-mcdaniels-injury-timberwolves-nba/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7158466/2026/03/30/wizards-vs-lakers-stream-how-to-
 **How to watch Pistons vs. Thunder: Time, TV, streaming**\
 `Find out how to watch the Detroit Pistons play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7158439/2026/03/30/pistons-vs-thunder-stream-how-to-watch-march-30/
-
-**2 Rikers Detainees Die as Mamdani Faces Deadline to Shut Troubled Jail**\
-`Two men who had been held on Rikers Island died in the past week, and Mayor Zohran Mamdani he would “pursue every avenue” to shut the troubled facility as soon as possible.`\
-https://nytimes.com/2026/03/30/nyregion/rikers-deaths-jail-mamdani.html
 
