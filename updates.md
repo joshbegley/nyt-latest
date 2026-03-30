@@ -1,3 +1,15 @@
+**Pochettino's World Cup mandate for USMNT is clear: Intensity is not optional**\
+`The U.S. manager bemoaned his side's 90-minute effort against Belgium. Will the players' response meet the challenge?`\
+https://nytimes.com/athletic/7159184/2026/03/30/usmnt-world-cup-pochettino-intensity-belgium-portugal/
+
+**Weekly Student News Quiz: Social Media Trial, Global Protests, Baseball**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2026/03/30/learning/30StudentNewsQuiz.html
+
+**Deshaun Watson still has 'great chance' to become Browns QB, owner says**\
+`Haslam called the trade for and commitment to quarterback Deshaun Watson "a big swing and a miss" last year. Watson didn't play in 2025.`\
+https://nytimes.com/athletic/7158960/2026/03/30/browns-deshaun-watson-jimmy-haslam/
+
 **Ben Stevenson Dies at 89; Choreographer Made Houston Ballet Thrive**\
 `He created dances performed around the world, and under his leadership the Houston company grew into one of America’s largest and most prominent.`\
 https://nytimes.com/2026/03/30/arts/dance/ben-stevenson-dead.html

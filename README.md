@@ -1,3 +1,11 @@
+**Why the Seahawks are not 'defending' their Super Bowl title, and other notes from Arizona**\
+`Meanwhile, the Seahawks are happy with their running backs but frustrated by the new "Millionaires Tax" in Washington.`\
+https://nytimes.com/athletic/7159150/2026/03/30/seahawks-nfl-owners-meetings-mike-macdonald/
+
+**President Trump Shares Revised Plans for White House Ballroom**\
+`President Trump unveiled revised plans for his proposed White House ballroom following a New York Times article that detailed criticisms that architects and preservationists have made of the previous design.`\
+https://nytimes.com/video/us/politics/100000010811532/trump-white-house-ballroom-designs.html
+
 **Pochettino's World Cup mandate for USMNT is clear: Intensity is not optional**\
 `The U.S. manager bemoaned his side's 90-minute effort against Belgium. Will the players' response meet the challenge?`\
 https://nytimes.com/athletic/7159184/2026/03/30/usmnt-world-cup-pochettino-intensity-belgium-portugal/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7158949/2026/03/30/bills-brandon-beane-dalton-kinca
 **Trump Zigzags on Iran**\
 `Also, T.S.A. workers start getting back pay. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2026/03/30/briefing/trump-iran-tsa-back-pay.html
-
-**Ravens president not concerned about team's reputation after failed Maxx Crosby trade**\
-`"People understand who we are and what we’re about," Ravens president Sashi Brown said at the league meeting in Phoenix. `\
-https://nytimes.com/athletic/7158822/2026/03/30/ravens-sashi-brown-maxx-crosby-trade-fallout/
-
-**White House Will Allow Oil Shipments to Cuba on ‘Case-by-Case’ Basis**\
-`The White House press secretary, Karoline Leavitt, said on Monday that the U.S. would evaluate oil shipments to Cuba on an individual basis after a Russian tanker was allowed to deliver fuel.`\
-https://nytimes.com/video/us/politics/100000010811444/trump-administration-cuba-oil.html
 
