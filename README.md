@@ -6,7 +6,7 @@ https://nytimes.com/athletic/7158084/2026/03/30/george-paton-broncos-jaylen-wadd
 `Find out how to watch the TCU Horned Frogs play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7158361/2026/03/30/tcu-vs-south-carolina-stream-how-to-watch-march-30/
 
-**34 years after 'The Shot,' Grant Hill reflects on UConn's miracle, Duke's meltdown**\
+**34 years after 'The Shot,' Grant Hill reflects on UConn's miracle, Duke's 'meltdown'**\
 `The former Duke superstar, calling the UConn-Duke game for CBS with Ian Eagle and Bill Raftery, knows something about epic March moments.`\
 https://nytimes.com/athletic/7157967/2026/03/30/grant-hill-braylon-mullins-uconn-duke-cbs/
 

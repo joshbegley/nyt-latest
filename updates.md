@@ -1,3 +1,7 @@
+**Why did Broncos trade another 1st-round pick? Jaylen Waddle was 'too unique to pass up'**\
+`The Broncos "didn't get very far" in their pursuit of last year's trade deadline, GM George Paton said, but dynamics changed this offseason.`\
+https://nytimes.com/athletic/7158084/2026/03/30/george-paton-broncos-jaylen-waddle-trade/
+
 **How to watch TCU vs. South Carolina women's basketball: Elite Eight Time, TV, streaming**\
 `Find out how to watch the TCU Horned Frogs play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7158361/2026/03/30/tcu-vs-south-carolina-stream-how-to-watch-march-30/
