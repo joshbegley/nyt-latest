@@ -1,3 +1,7 @@
+**A New U.S. Missile Hit a Sports Hall in Iran. Here’s What We Know About It.**\
+`Barely out of prototype testing, the Precision Strike Missile is shrouded in secrecy — including which Persian Gulf countries the Army is launching them from.`\
+https://nytimes.com/2026/03/30/us/politics/us-missile-strike-iran-sports-hall-school.html
+
 **Mexico Pressures U.S. Over Deaths of its Citizens in ICE Custody**\
 `Claudia Sheinbaum, president of Mexico, said her country would take legal steps to demand better conditions at immigration detention facilities, where she said 14 Mexican citizens have died since President Trump took office.`\
 https://nytimes.com/2026/03/30/us/mexico-ice-detention-deaths.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/03/30/learning/30StudentNewsQuiz.html
 **Ben Stevenson Dies at 89; Choreographer Made Houston Ballet Thrive**\
 `He created dances performed around the world, and under his leadership the Houston company grew into one of America’s largest and most prominent.`\
 https://nytimes.com/2026/03/30/arts/dance/ben-stevenson-dead.html
-
-**Deshaun Watson still has 'great chance' to become Browns QB, owner says**\
-`Haslam called the trade for and commitment to quarterback Deshaun Watson "a big swing and a miss" last year. Watson didn't play in 2025.`\
-https://nytimes.com/athletic/7158960/2026/03/30/browns-deshaun-watson-jimmy-haslam/
 

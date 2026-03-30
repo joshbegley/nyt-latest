@@ -1,3 +1,11 @@
+**Mexico Pressures U.S. Over Deaths of its Citizens in ICE Custody**\
+`Claudia Sheinbaum, president of Mexico, said her country would take legal steps to demand better conditions at immigration detention facilities, where she said 14 Mexican citizens have died since President Trump took office.`\
+https://nytimes.com/2026/03/30/us/mexico-ice-detention-deaths.html
+
+**Joe Mazzulla on NBA's Coach of the Year honor: 'I think it's a stupid award'**\
+`Joe Mazzulla thinks Coach of the Year is a stupid award, but his thoughts won't stop him from garnering respect around the NBA.`\
+https://nytimes.com/athletic/7159253/2026/03/30/joe-mazzulla-coach-of-the-year-nba-jayson-tatum/
+
 **Michigan Synagogue Attack Was ‘Inspired by Hezbollah,’ Officials Say**\
 `The man who rammed his vehicle into the synagogue was purposely targeting the Jewish community, officials said on Monday, detailing his days of planning.`\
 https://nytimes.com/2026/03/30/us/michigan-synagogue-attack-hezbollah.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/30/arts/dance/ben-stevenson-dead.html
 **Deshaun Watson still has 'great chance' to become Browns QB, owner says**\
 `Haslam called the trade for and commitment to quarterback Deshaun Watson "a big swing and a miss" last year. Watson didn't play in 2025.`\
 https://nytimes.com/athletic/7158960/2026/03/30/browns-deshaun-watson-jimmy-haslam/
-
-**Mark Sanford, Years After Scandal, Aims for a Comeback to Congress**\
-`The former South Carolina governor and congressman filed papers to run for his old seat, six years after running for president and nearly two decades after a high-profile affair.`\
-https://nytimes.com/2026/03/30/us/politics/mark-sanford-south-carolina-congress.html
-
-**Vikings plan to pick up wide receiver Jordan Addison's fifth-year option: Sources**\
-`Despite a down season, the Vikings still view Addison as a key cog of their passing attack.`\
-https://nytimes.com/athletic/7159037/2026/03/30/vikings-jordan-addison-fifth-year-option/
 
