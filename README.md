@@ -1,3 +1,11 @@
+**NC State hiring Vols assistant, former Wolfpack player Justin Gainey as coach**\
+`Gainey played at NC State from 1996 to 2000 under Herb Sendek, ending his career fourth in program history in steals and ninth in assists.`\
+https://nytimes.com/athletic/7156484/2026/03/30/justin-gainey-nc-state-mens-basketball-coach-search/
+
+**Air Canada C.E.O. to Step Down Amid Backlash Over Comments After Crash**\
+`Michael Rousseau’s mostly English statement after a fatal runway collision drew sharp criticism. The airline said it would emphasize French fluency in its search for a successor.`\
+https://nytimes.com/2026/03/30/business/air-canada-ceo-crash-retire.html
+
 **The Athletic college baseball top 25: Florida vaults to No. 16 after sweeping Arkansas**\
 `The Gators and Boston College are new entrants this week, replacing NC State and Tennesssee.`\
 https://nytimes.com/athletic/7157672/2026/03/30/college-baseball-rankings-florida-arkansas-ucla-texas/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7155940/2026/03/30/edmonton-oilers-connor-mcdavid-l
 **Giannis-less Bucks eliminated from playoff contention, so what remains ahead?**\
 `Mathematically eliminated from playoff contention, the Bucks do not have a whole lot to play for at this point.`\
 https://nytimes.com/athletic/7156462/2026/03/30/bucks-nba-playoffs-giannis-future-roster/
-
-**Two More U.N. Peacekeepers Are Killed in Southern Lebanon**\
-`The deaths came a day after the U.N. secretary-general, António Guterres, condemned the killing of another peacekeeper.`\
-https://nytimes.com/2026/03/30/world/middleeast/lebanon-un-peacekeepers.html
-
-**Darius Garland knew his Cavaliers days were numbered. Now, he’s embracing L.A.**\
-`In an exclusive interview with The Athletic, Garland opened up on his journey to the Clippers and how Dave Chappelle shaped his future.`\
-https://nytimes.com/athletic/7156847/2026/03/30/darius-garland-clippers-cavaliers-career-dave-chappelle/
 
