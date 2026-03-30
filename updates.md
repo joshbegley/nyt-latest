@@ -1,3 +1,11 @@
+**Submit your Maple Leafs questions for our next podcast or column**\
+`Just eight games.`\
+https://nytimes.com/athletic/7157579/2026/03/30/submit-your-maple-leafs-questions-for-our-next-podcast-or-column/
+
+**Next Tottenham manager odds: Roberto De Zerbi leads market to replace Igor Tudor**\
+`Who will the north London club turn to next? De Zerbi? Redknapp? Keane? Dyche?`\
+https://nytimes.com/athletic/7157573/2026/03/30/next-tottenham-manager-odds-de-zerbi-redknapp-keane-dyche/
+
 **Trump Threatens to Destroy Kharg Island and Other Key Iranian Energy Sites**\
 `President Trump said in a newspaper interview that the United States might try to invade the Persian Gulf island, which is Iran’s main oil export hub.`\
 https://nytimes.com/2026/03/30/world/middleeast/trump-iran-kharg-island.html
