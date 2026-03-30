@@ -1,3 +1,11 @@
+**Iran advances a plan to charge a toll for ships to traverse the Strait of Hormuz.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2026/03/30/world/iran-war-trump-oil-news/strait-of-hormuz-toll-iran
+
+**For rookies in 2026, a spectacular first impression that could have staying power**\
+`It's the first time in a decade that rookies won the player of the week awards in the AL and NL in the opening week.`\
+https://nytimes.com/athletic/7159361/2026/03/30/mlb-rookies-wetherholt-delauter-stewart-benge-murakami/
+
 **The Army Begins an Inquiry After Kid Rock Gets a Helicopter Flyby**\
 `The pro-Trump musician saluted the pair of Apache attack choppers, which appeared to be the same ones that flew low over a “No Kings” rally in Nashville.`\
 https://nytimes.com/2026/03/30/us/kid-rock-nashville-helicopter-video-army-inquiry.html
@@ -18,7 +26,7 @@ https://nytimes.com/2026/03/30/us/politics/us-missile-strike-iran-sports-hall-sc
 `Claudia Sheinbaum, president of Mexico, said her country would take legal steps to demand better conditions at immigration detention facilities, where she said 14 Mexican citizens have died since President Trump took office.`\
 https://nytimes.com/2026/03/30/us/mexico-ice-detention-deaths.html
 
-**Joe Mazzulla on NBA's Coach of the Year honor: 'I think it's a stupid award'**\
+**Joe Mazzulla on NBA's Coach of the Year honor: 'It's a stupid award'**\
 `Joe Mazzulla thinks Coach of the Year is a stupid award, but his thoughts won't stop him from garnering respect around the NBA.`\
 https://nytimes.com/athletic/7159253/2026/03/30/joe-mazzulla-coach-of-the-year-nba-jayson-tatum/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/30/us/michigan-synagogue-attack-hezbollah.html
 **Why the Seahawks are not 'defending' their Super Bowl title, and other notes from Arizona**\
 `Meanwhile, the Seahawks are happy with their running backs but frustrated by the new "Millionaires Tax" in Washington.`\
 https://nytimes.com/athletic/7159150/2026/03/30/seahawks-nfl-owners-meetings-mike-macdonald/
-
-**President Trump Shares Revised Plans for White House Ballroom**\
-`President Trump unveiled revised plans for his proposed White House ballroom following a New York Times article that detailed criticisms that architects and preservationists have made of the previous design.`\
-https://nytimes.com/video/us/politics/100000010811532/trump-white-house-ballroom-designs.html
-
-**Pochettino's World Cup mandate for USMNT is clear: Intensity is not optional**\
-`The U.S. manager bemoaned his side's 90-minute effort against Belgium. Will the players' response meet the challenge?`\
-https://nytimes.com/athletic/7159184/2026/03/30/usmnt-world-cup-pochettino-intensity-belgium-portugal/
 

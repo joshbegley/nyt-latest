@@ -1,3 +1,19 @@
+**The Army Begins an Inquiry After Kid Rock Gets a Helicopter Flyby**\
+`The pro-Trump musician saluted the pair of Apache attack choppers, which appeared to be the same ones that flew low over a “No Kings” rally in Nashville.`\
+https://nytimes.com/2026/03/30/us/kid-rock-nashville-helicopter-video-army-inquiry.html
+
+**In Maine, Michigan and Beyond, Primary Season Is Getting Punchy**\
+`Here’s a crash course on what’s coming up next.`\
+https://nytimes.com/2026/03/30/us/politics/primary-elections-maine-michigan.html
+
+**Giants send Luis Matos to Brewers for cash, acquire Dylan Smith from Tigers**\
+`The Matos trade was one of three roster tweaks the Giants made before Monday's series opener in San Diego.`\
+https://nytimes.com/athletic/7158888/2026/03/30/giants-luis-matos-trade-brewers-tigers-dylan-smith/
+
+**A New U.S. Missile Hit a Sports Hall in Iran. Here’s What We Know About It.**\
+`Barely out of prototype testing, the Precision Strike Missile is shrouded in secrecy — including which Persian Gulf countries the Army is launching them from.`\
+https://nytimes.com/2026/03/30/us/politics/us-missile-strike-iran-sports-hall-school.html
+
 **Mexico Pressures U.S. Over Deaths of its Citizens in ICE Custody**\
 `Claudia Sheinbaum, president of Mexico, said her country would take legal steps to demand better conditions at immigration detention facilities, where she said 14 Mexican citizens have died since President Trump took office.`\
 https://nytimes.com/2026/03/30/us/mexico-ice-detention-deaths.html
