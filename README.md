@@ -1,3 +1,11 @@
+**How to watch Canucks vs. Golden Knights: Time, TV, streaming**\
+`Find out how to watch the Vancouver Canucks play the Vegas Golden Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7158711/2026/03/30/canucks-vs-golden-knights-stream-how-to-watch-march-30/
+
+**How to watch Blues vs. Sharks: Time, TV, streaming**\
+`Find out how to watch the St. Louis Blues play the San Jose Sharks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7158698/2026/03/30/blues-vs-sharks-stream-how-to-watch-march-30/
+
 **How to watch Maple Leafs vs. Ducks: Time, TV, streaming**\
 `Find out how to watch the Toronto Maple Leafs play the Anaheim Ducks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7158694/2026/03/30/maple-leafs-vs-ducks-stream-how-to-watch-march-30/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/30/arts/music/celine-dion-paris-concerts.html
 **Support for Israel Is Collapsing. Netanyahu Sees That.**\
 `Prime Minister Benjamin Netanyahu of Israel is racing to eliminate regional threats because he sees that U.S. support for the country is collapsing, Mona Charen, the policy editor at The Bulwark, argues on “The Opinions.”`\
 https://nytimes.com/video/opinion/100000010806926/support-for-israel-is-collapsing-netanyahu-sees-that.html
-
-**Former Olympic sprinter Adam Gemili working with Chelsea academy**\
-`Gemili, who announced his retirement from athletics on Monday, spent seven years in the club's youth system before switching to sprinting.`\
-https://nytimes.com/athletic/7158535/2026/03/30/chelsea-academy-adam-gemili-sprinter/
-
-**NFL Newsletter: Why running backs tumble down draft boards**\
-`Four reasons why drafting elite running backs like Jeremiyah Love isn't the smartest move, even in an underwhelming draft class`\
-https://nytimes.com/athletic/7158539/2026/03/30/four-reasons-why-running-backs-like-jeremiyah-love-are-no-longer-drafted-so-early/
 
