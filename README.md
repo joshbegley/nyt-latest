@@ -1,3 +1,11 @@
+**Israel to Vote on Death Penalty Targeting Palestinians Guilty of Lethal Attacks**\
+`The bill is broadly popular and expected to pass. Critics say it would strip away many of the safeguards intended to preserve due process, including the possibility of a pardon.`\
+https://nytimes.com/2026/03/30/world/middleeast/israel-death-penalty-palestinians-attacks.html
+
+**The Pulse: Better than Laettner’s shot?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7156625/2026/03/30/braylon-mullins-uconn-shot-the-pulse/
+
 **Phillies takeaways from flat 3-game start that was offense's worst since 2015**\
 `The Phillies finished the season-opening series against Texas with 18 hits and a .186 batting average. It could have been even worse.`\
 https://nytimes.com/athletic/7156885/2026/03/30/phillies-offense-struggles-takeaways-rangers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7156645/2026/03/30/final-four-power-rankings-favori
 **2026 NHL prospect pool rankings: No. 11 Washington Capitals**\
 `The Capitals have five legit wing prospects of different shapes and sizes, and one of the most talented young D in the sport.`\
 https://nytimes.com/athletic/7134207/2026/03/30/washington-capitals-nhl-prospect-rankings-2026/
-
-**NHL weekend rankings: A stunning coaching change in Vegas shakes up the Pacific**\
-`Vegas' reputation for ruthlessness strikes again. What does it mean for the least impressive — and most winnable — division in the NHL?`\
-https://nytimes.com/athletic/7156589/2026/03/30/nhl-weekend-rankings-vegas-golden-knights-bruce-cassidy/
-
-**Determination and espresso: What the Tigers have learned about Justin Verlander**\
-`Ahead of Justin Verlander's first start of the season, Tigers teammates reflect on sharing the clubhouse with a living legend.`\
-https://nytimes.com/athletic/7155078/2026/03/30/justin-verlander-tigers-start-homecoming-espresso/
 
