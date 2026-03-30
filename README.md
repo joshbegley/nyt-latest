@@ -1,3 +1,7 @@
+**Submit your Maple Leafs questions for our next podcast or column**\
+`Just eight games.`\
+https://nytimes.com/athletic/7157579/2026/03/30/submit-your-maple-leafs-questions-for-our-next-podcast-or-column/
+
 **Next Tottenham manager odds: Roberto De Zerbi leads market to replace Igor Tudor**\
 `Who will the north London club turn to next? De Zerbi? Redknapp? Keane? Dyche?`\
 https://nytimes.com/athletic/7157573/2026/03/30/next-tottenham-manager-odds-de-zerbi-redknapp-keane-dyche/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7156593/2026/03/30/sf-giants-greg-johnson-interview
 **Trump Administration Live Updates: T.S.A. Pay to Resume, but ICE Could Remain at Airports, Homan Says**\
 ``\
 https://nytimes.com/live/2026/03/30/us/trump-news
-
-**Wrexham Women have realised their dream to become Welsh champions. Now Europe awaits**\
-`The rise of Wrexham women's team has matched that of the men's side, with the team crowned Wales' Adran Premier champions for the first time`\
-https://nytimes.com/athletic/7156507/2026/03/30/wrexham-women-champions-wales-europe-adran-owen/
 
