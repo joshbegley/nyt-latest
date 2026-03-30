@@ -1,3 +1,15 @@
+**Palm Sunday Attack in Nigeria Leaves at Least 12 Dead**\
+`No one has claimed responsibility for the killings in the mostly Christian city of Jos, and the police have yet to arrest the gunmen.`\
+https://nytimes.com/2026/03/30/world/africa/palm-sunday-attack-nigeria-dead.html
+
+**Mary Beth Hurt, Actress Acclaimed in ‘Interiors’ and ‘Garp,’ Dies at 79**\
+`She elevated supporting roles in films with insight and improvisational skill, a talent she took to Broadway as well, earning Tony nominations.`\
+https://nytimes.com/2026/03/30/movies/mary-beth-hurt-actress-dead.html
+
+**Vermont Hits Back at Trump’s Effort to Block ‘Climate Superfund’ Law**\
+`The law would make fuel companies help pay for damages caused by climate change. The administration argues it’s unconstitutional.`\
+https://nytimes.com/2026/03/30/climate/vermont-hits-back-at-trumps-effort-to-block-climate-superfund-law.html
+
 **LeBron James adds nod to his nickname with new signature**\
 `LeBron adds some artistry to his autograph in latest change. `\
 https://nytimes.com/athletic/7158892/2026/03/30/lebron-james-crown-signature-autographs-lakers/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/30/world/targeted-strike-iran-us-israel-cuba.html
 **Nick Sirianni at league meetings: 'Edgy' Riq Woolen, Jalen Hurts' transition, practice vs. Patriots**\
 `Sirianni also spoke about what he hopes new coach Jerrod Johnson brings to the offense.`\
 https://nytimes.com/athletic/7158739/2026/03/30/nick-sirianni-league-meetings-riq-woolen-jalen-hurts-patriots/
-
-**States Plow Ahead With A.I. Regulation, Defying Trump**\
-`The battle over who should regulate artificial intelligence is turning into an epic clash between President Trump and states like California and Utah.`\
-https://nytimes.com/2026/03/30/technology/trump-states-ai-gavin-newsom-california.html
-
-**Mark Cuban on selling the Mavericks: 'I regret who I sold to'**\
-`Cuban still owns a 27 percent stake in the franchise and attends many home games despite Dallas' struggles.`\
-https://nytimes.com/athletic/7158840/2026/03/30/mark-cuban-mavericks-sale-regret/
-
-**Don’t Know Where to Go This Summer? Let Us Help!**\
-`We’re responding to readers’ travel quandaries with our suggestions.`\
-https://nytimes.com/2026/03/30/t-magazine/summer-vacation-travel-ideas.html
 
