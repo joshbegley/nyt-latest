@@ -1,3 +1,7 @@
+**College baseball week in review: Vanderbilt walk-offs headline sweep-filled week in SEC**\
+`Florida, swept last weekend at Alabama, becomes the first team to sweep Arkansas in Fayetteville since 2016. `\
+https://nytimes.com/athletic/7157116/2026/03/30/college-baseball-vanderbilt-tennessee-florida-arkansas/
+
 **How to watch Twins vs. Royals: Time, TV, streaming for March 30**\
 `Find out how to watch the Minnesota Twins play the Kansas City Royals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7157742/2026/03/30/twins-vs-royals-stream-how-to-watch-march-30/
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/7155940/2026/03/30/edmonton-oilers-connor-mcdavid-l
 `Mathematically eliminated from playoff contention, the Bucks do not have a whole lot to play for at this point.`\
 https://nytimes.com/athletic/7156462/2026/03/30/bucks-nba-playoffs-giannis-future-roster/
 
-**Two More U.N. Peacekeepers Killed in Southern Lebanon**\
+**Two More U.N. Peacekeepers Are Killed in Southern Lebanon**\
 `The deaths came a day after the U.N. secretary-general, António Guterres, condemned the killing of another peacekeeper.`\
 https://nytimes.com/2026/03/30/world/middleeast/lebanon-un-peacekeepers.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/30/theater/mariska-hargitay-daniel-radcliffe-every-b
 **Submit your Maple Leafs questions for our next podcast or column**\
 `Just eight games.`\
 https://nytimes.com/athletic/7157579/2026/03/30/submit-your-maple-leafs-questions-for-our-next-podcast-or-column/
-
-**Next Tottenham manager odds: Roberto De Zerbi leads market to replace Igor Tudor**\
-`Who will the north London club turn to next? De Zerbi? Redknapp? Keane? Dyche?`\
-https://nytimes.com/athletic/7157573/2026/03/30/next-tottenham-manager-odds-de-zerbi-redknapp-keane-dyche/
 

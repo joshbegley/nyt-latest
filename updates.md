@@ -1,3 +1,11 @@
+**College baseball week in review: Vanderbilt walk-offs headline sweep-filled week in SEC**\
+`Florida, swept last weekend at Alabama, becomes the first team to sweep Arkansas in Fayetteville since 2016. `\
+https://nytimes.com/athletic/7157116/2026/03/30/college-baseball-vanderbilt-tennessee-florida-arkansas/
+
+**Two More U.N. Peacekeepers Are Killed in Southern Lebanon**\
+`The deaths came a day after the U.N. secretary-general, António Guterres, condemned the killing of another peacekeeper.`\
+https://nytimes.com/2026/03/30/world/middleeast/lebanon-un-peacekeepers.html
+
 **How to watch Twins vs. Royals: Time, TV, streaming for March 30**\
 `Find out how to watch the Minnesota Twins play the Kansas City Royals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7157742/2026/03/30/twins-vs-royals-stream-how-to-watch-march-30/
