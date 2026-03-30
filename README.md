@@ -1,3 +1,11 @@
+**How to watch TCU vs. South Carolina women's basketball: Elite Eight Time, TV, streaming**\
+`Find out how to watch the TCU Horned Frogs play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7158361/2026/03/30/tcu-vs-south-carolina-stream-how-to-watch-march-30/
+
+**34 years after 'The Shot,' Grant Hill reflects on UConn's miracle, Duke's meltdown**\
+`The former Duke superstar, calling the UConn-Duke game for CBS with Ian Eagle and Bill Raftery, knows something about epic March moments.`\
+https://nytimes.com/athletic/7157967/2026/03/30/grant-hill-braylon-mullins-uconn-duke-cbs/
+
 **Iran Condemns Attacks on Its Universities, Warns of Retaliation**\
 `After attacks on several Iranian campuses, Iranian forces warn they could target American universities in the region.`\
 https://nytimes.com/2026/03/30/world/middleeast/iran-universities-strikes.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7158314/2026/03/30/mets-vs-cardinals-stream-how-to-
 **How to watch Rays vs. Brewers: Time, TV, streaming for March 30**\
 `Find out how to watch the Tampa Bay Rays play the Milwaukee Brewers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7158304/2026/03/30/rays-vs-brewers-stream-how-to-watch-march-30/
-
-**How to watch Red Sox vs. Astros: Time, TV, streaming for March 30**\
-`Find out how to watch the Boston Red Sox play the Houston Astros, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7158301/2026/03/30/red-sox-vs-astros-stream-how-to-watch-march-30/
-
-**How to watch Athletics vs. Braves: Time, TV, streaming for March 30**\
-`Find out how to watch the Athletics play the Atlanta Braves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7158294/2026/03/30/athletics-vs-braves-stream-how-to-watch-march-30/
 
