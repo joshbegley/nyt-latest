@@ -1,3 +1,7 @@
+**Jayson Tatum's season-high 32 points mark vital step in Achilles return**\
+`Tatum notched 32 points on Sunday, reaching the 30-point mark for the first time since returning from a torn Achilles on March 6.`\
+https://nytimes.com/athletic/7156798/2026/03/29/celtics-jayson-tatum-achilles-recovery-points-game/
+
 **Colts owner says team 'pressed pause on a movie' during hot start in 2025, plans to resume in 2026**\
 `A Colts owner spoke at the annual owners' meeting for the first time in three years as Carlie Irsay-Gordon fielded questions.`\
 https://nytimes.com/athletic/7156563/2026/03/29/colts-carlie-irsay-gordon-owners-meetings/
