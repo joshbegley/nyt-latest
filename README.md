@@ -1,3 +1,11 @@
+**St. Bonaventure to hire Mike MacDonald as men's basketball coach: Source**\
+`MacDonald will take the new job after a 12-year run at Daemen, where he was 61-3 over the past two years.`\
+https://nytimes.com/athletic/7158011/2026/03/30/st-bonaventure-mike-macdonald-head-coach/
+
+**The Penguins are livid with NHL officiating. Here's why**\
+`The Penguins, from future Hall of Famers to healthy scratches, have been privately seething in recent weeks.`\
+https://nytimes.com/athletic/7157816/2026/03/30/penguins-nhl-officiating-referees-rules/
+
 **A Democratic Electrician Nabs a State Senate Seat in Republican Florida**\
 `With Brian Nathan’s victory certified, Democrats won two of three state legislative races in this month’s special elections, all in Republican-leaning districts.`\
 https://nytimes.com/2026/03/30/us/politics/democrat-wins-florida-specail-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7158035/2026/03/30/michigan-vs-texas-stream-how-to-
 **Renoir, Cézanne and Matisse Paintings Are Stolen in 3-Minute Museum Heist, Police Say**\
 `Thieves broke into the Magnani-Rocca Foundation outside Parma, Italy, officials said, and made off with paintings worth millions.`\
 https://nytimes.com/2026/03/30/world/europe/parma-art-heist-renoir-matisse-cezanne-italy.html
-
-**Justice Dept. Watchdog Has Gone Silent, Lawyers for Whistle-Blower Say**\
-`Lawyers for a fired Justice Department lawyer say the agency’s inspector general appears to have ignored at least 20 different requests to scrutinize misconduct.`\
-https://nytimes.com/2026/03/30/us/politics/trump-administration-doj-watchdog-reuveni.html
-
-**From Foe to Ally: The S.E.C. Is Now Writing Crypto-Friendly Policies**\
-`The embrace of crypto by financial regulators under President Trump has entered a new, cozier phase.`\
-https://nytimes.com/2026/03/30/technology/sec-crypto-friendly-rules.html
 
