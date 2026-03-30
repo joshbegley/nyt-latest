@@ -1,3 +1,11 @@
+**49ers GM John Lynch doesn't think money is there for Joey Bosa, says bye to Jauan Jennings**\
+`"I know that would make Mama Bosa happy," he said, "but I don't know if we can afford him."`\
+https://nytimes.com/athletic/7156619/2026/03/29/49ers-joey-bosa-jauan-jennings-gm-john-lynch/
+
+**Struggling Magic allow 31-0 run to Raptors en route to team-record 52-point loss**\
+`Toronto's 31-0 run against Orlando is the longest in the Play-by-Play era (1997-98), surpassing the Mavs' 30-0 run vs. the Thunder in 2023.`\
+https://nytimes.com/athletic/7156620/2026/03/29/nba-magic-raptors-game-turnover-starters-season/
+
 **U.S. Special Operations Forces Sent to Mideast as Trump Weighs Next Move**\
 `The commandos have not been assigned specific roles. But President Trump has expressed concern about the now-closed Strait of Hormuz and Iran’s store of enriched uranium.`\
 https://nytimes.com/2026/03/29/us/politics/trump-special-operations-forces-iran.html
