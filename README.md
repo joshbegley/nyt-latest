@@ -1,3 +1,11 @@
+**Air Canada’s C.E.O. to Step Down After Comments Over Crash**\
+`The chief executive of Air Canada, Michael Rousseau, has faced backlash over a video he released primarily in English over the crash at LaGuardia Airport. Canada has two official languages, French and English, and the video was criticized as dismissive of French-speaking Canadians.`\
+https://nytimes.com/video/world/canada/100000010810143/air-canada-ceo-steps-down.html
+
+**NFL asks prediction markets to refrain from offering 'objectionable bets'**\
+`The NFL listed broadcast mentions, injuries, officiating actions and pick-by-pick draft predictions as examples of objectionable bets.`\
+https://nytimes.com/athletic/7158518/2026/03/30/nfl-prediction-markets-objectionable-bets/
+
 **Iran’s Fractured Leadership Is Struggling to Coordinate, Officials Say**\
 `As leaders are killed and replaced, Iranian negotiators may not know what their government is willing to concede in any negotiations.`\
 https://nytimes.com/2026/03/30/us/politics/iran-leaders-trump-war.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/polls/pennsylvania-us-house-10-polls-2026.html
 **Pennsylvania Eighth Congressional District 2026: Latest Polls**\
 `Track the latest polls in Pennsylvania's 8th Congressional District.`\
 https://nytimes.com/interactive/polls/pennsylvania-us-house-8-polls-2026.html
-
-**Pennsylvania Seventh Congressional District 2026: Latest Polls**\
-`Track the latest polls in Pennsylvania's 7th Congressional District.`\
-https://nytimes.com/interactive/polls/pennsylvania-us-house-7-polls-2026.html
-
-**49ers pledge to rest Christian McCaffrey more. Do they actually mean it this time?**\
-`McCaffrey, who turns 30 in June, logged a career-high 311 carries in 2025. Could Jordan James take more of that workload in 2026?`\
-https://nytimes.com/athletic/7158622/2026/03/30/christian-mccaffrey-workload-49ers-jordan-james/
 

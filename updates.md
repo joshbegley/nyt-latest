@@ -1,3 +1,11 @@
+**Iran’s Fractured Leadership Is Struggling to Coordinate, Officials Say**\
+`As leaders are killed and replaced, Iranian negotiators may not know what their government is willing to concede in any negotiations.`\
+https://nytimes.com/2026/03/30/us/politics/iran-leaders-trump-war.html
+
+**Trump Zigzags on Iran, Claiming ‘Great Progress’ but Making Threats**\
+`President Trump threatened to hit vital infrastructure in Iran if the Strait of Hormuz was not reopened, but he also said that “regime change” had already been achieved.`\
+https://nytimes.com/2026/03/30/world/middleeast/trump-iran-threats-kharg-island.html
+
 **For-Internal-Testing-Only**\
 `For-Internal-Testing-Only`\
 https://nytimes.com/paidpost/for-internal-testing-only/for-internal-testing-only.html
