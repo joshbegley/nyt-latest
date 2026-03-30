@@ -1,3 +1,7 @@
+**Why did Broncos trade another 1st-round pick? Jaylen Waddle was 'too unique to pass up'**\
+`The Broncos "didn't get very far" in their pursuit of last year's trade deadline, GM George Paton said, but dynamics changed this offseason.`\
+https://nytimes.com/athletic/7158084/2026/03/30/george-paton-broncos-jaylen-waddle-trade/
+
 **How to watch TCU vs. South Carolina women's basketball: Elite Eight Time, TV, streaming**\
 `Find out how to watch the TCU Horned Frogs play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7158361/2026/03/30/tcu-vs-south-carolina-stream-how-to-watch-march-30/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/30/arts/design/agosto-machado-dead.html
 **How to watch Mets vs. Cardinals: Time, TV, streaming for March 30**\
 `Find out how to watch the New York Mets play the St. Louis Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7158314/2026/03/30/mets-vs-cardinals-stream-how-to-watch-march-30/
-
-**How to watch Rays vs. Brewers: Time, TV, streaming for March 30**\
-`Find out how to watch the Tampa Bay Rays play the Milwaukee Brewers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7158304/2026/03/30/rays-vs-brewers-stream-how-to-watch-march-30/
 
