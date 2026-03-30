@@ -1,3 +1,11 @@
+**Man United are at a low ebb. Do WSL leaders City offer a blueprint for a change of fortunes?**\
+`The derby showed how far United are behind the best teams. But it is not so long ago that champions-elect City were in a similar position…`\
+https://nytimes.com/athletic/7155632/2026/03/30/manchester-united-city-derby-blueprint/
+
+**Hurzeler, the Leverkusen links and what comes next for Brighton's head coach?**\
+`The German may have options in his homeland and the possibility of managing in the Champions League could be an option for him`\
+https://nytimes.com/athletic/7146510/2026/03/30/fabian-hurzeler-brighton-future/
+
 **Connections: Sports Edition Coach: Hints and answers for March 30, 2026**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/7157236/2026/03/30/connections-sports-edition-hints-answers-march-30-2026/

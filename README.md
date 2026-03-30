@@ -1,3 +1,27 @@
+**Why Odegaard's return could be key to maximising Arsenal's attacking potency**\
+`Arsenal's captain should be back from injury soon, giving Mikel Arteta a creative passer while easing the burden on his fellow midfielders`\
+https://nytimes.com/athletic/7151381/2026/03/30/arsenal-odegaard-havertz-eze/
+
+**The tragedy of Adam Ankers - and why his family want football to learn from his death**\
+`Nobody knew Adam Ankers had a genetic heart condition. Two years after his death, it has to be hoped that his legacy is to make sport safer`\
+https://nytimes.com/athletic/7138762/2026/03/30/adam-ankers-death-football-heart/
+
+**Tudor left Tottenham worse than he found them. Here are the key mistakes he made**\
+`Tudor failed to win any of his five league games in charge of Spurs. Here, The Athletic breaks down the key decisions he got wrong`\
+https://nytimes.com/athletic/7140519/2026/03/30/igor-tudor-tottenham-hotspur-premier-league/
+
+**What does football think of the Premier League's sanction agreement with Chelsea?**\
+`After Chelsea were fined £10m and given a suspended transfer ban, we asked executives in the game what they made of the punishment`\
+https://nytimes.com/athletic/7128191/2026/03/30/chelsea-premier-league-punishment-analysis/
+
+**What Salah's Liverpool exit means for the club's finances**\
+`The Egyptian's departure will make precious savings at a time of supercharged transfer spending, higher wages and on-field underperformance`\
+https://nytimes.com/athletic/7148634/2026/03/30/mohamed-liverpool-exit-finances/
+
+**Managers on the rise: Carlos Cuesta - hired by Parma at 29 after impressing Atletico and Arteta**\
+`The Spaniard was a head coach in Serie A before turning 30 - he has clear traits from working at Arsenal, Juventus and more`\
+https://nytimes.com/athletic/7149037/2026/03/30/managers-on-the-rise-carlos-cuesta/
+
 **Man United are at a low ebb. Do WSL leaders City offer a blueprint for a change of fortunes?**\
 `The derby showed how far United are behind the best teams. But it is not so long ago that champions-elect City were in a similar position…`\
 https://nytimes.com/athletic/7155632/2026/03/30/manchester-united-city-derby-blueprint/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7157236/2026/03/30/connections-sports-edition-hints
 **This Is What Happens When the Gas Runs Out**\
 `With a cutoff in shipments imminent, Asian countries, the biggest importers of liquefied natural gas from the Middle East, are already burning more coal and reducing consumption.`\
 https://nytimes.com/2026/03/30/business/lng-supply-asia-qatar-iran.html
-
-**He Led Congo for 18 Years. Now, He’s a Hunted Man.**\
-`Joseph Kabila, the former president, faces the death penalty after the government convicted him of treason last year. He says the charges are bogus.`\
-https://nytimes.com/2026/03/30/world/africa/he-led-congo-for-18-years-now-hes-a-hunted-man.html
-
-**They’ve Been Accused of Running a ‘Covert’ Operation in Greenland. It’s No Secret.**\
-`Members of President Trump’s circle, working in plain sight, have caught the eye of Denmark’s intelligence services for trying to make friends and cut deals on the Danish territory.`\
-https://nytimes.com/2026/03/30/world/europe/trump-greenland-operation-danish-media.html
-
-**Quote of the Day: Catholic Church Has Surge of Converts in U.S.**\
-`Quotation of the Day for Monday, March 30, 2026.`\
-https://nytimes.com/2026/03/29/pageoneplus/quote-of-the-day-catholic-church-has-surge-of-converts-in-us.html
-
-**The Secret Trial of a Chinese Artist Accused of Mocking Mao Zedong**\
-`Gao Zhen, who emigrated to the United States years ago, was arrested during a visit to China and now faces up to three years in prison for artwork.`\
-https://nytimes.com/2026/03/29/world/asia/china-artist-gao-trial.html
-
-**New U.S. Missile Hit Iranian Sports Hall and School, Analysis Shows**\
-`The Pentagon used missiles untested in combat in a deadly attack that struck civilian sites near a military compound on Feb. 28, according to visual evidence examined by The Times and weapons experts.`\
-https://nytimes.com/2026/03/29/world/middleeast/us-precision-strike-missile-iran-lamerd.html
-
-**‘The Comeback’ Season 3, Episode 2: Getting the Band Back Together**\
-`Valerie doesn’t fully understand why people in Hollywood are so worked up about A.I. She just sees a wave she thinks she knows how to ride.`\
-https://nytimes.com/2026/03/29/arts/television/the-comeback-recap-season-3-episode-2.html
 
