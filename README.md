@@ -1,3 +1,7 @@
+**For a High Priestess of Extreme Theater, Death Is Gentler Than Life**\
+`In her “Trilogy of Funerals,” the Spanish provocateur Angélica Liddell shows a sense of vulnerability that will surprise longtime watchers of her work.`\
+https://nytimes.com/2026/03/30/theater/angelica-liddell-trilogy-of-funerals.html
+
 **Why the ideas to fix tanking in the NBA (mostly) miss the mark**\
 `Plus, how might this week's games impact the postseason picture?`\
 https://nytimes.com/athletic/7151261/2026/03/30/nba-tanking-fixes-rule-changes-playoff-picture/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/30/business/air-canada-ceo-crash-retire.html
 **The Athletic college baseball top 25: Florida vaults to No. 16 after sweeping Arkansas**\
 `The Gators and Boston College are new entrants this week, replacing NC State and Tennesssee.`\
 https://nytimes.com/athletic/7157672/2026/03/30/college-baseball-rankings-florida-arkansas-ucla-texas/
-
-**Lawsuit Accuses Americans of Political Killings for Hire Overseas**\
-`Three men working for an American security contractor say the United Arab Emirates paid them to carry out targeted killings in Yemen. One of their targets is suing them in U.S. federal court.`\
-https://nytimes.com/2026/03/30/world/middleeast/yemen-assassination-lawsuit-americans.html
 
