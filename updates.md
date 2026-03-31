@@ -1,3 +1,15 @@
+**The Briefing: DR Congo 1 Jamaica 0 - How did the Leopards make history? What do their fans bring? What happened to the ref?**\
+`An extra-time goal from Axel Tuanzebe ensured DR Congo became the 47th team to qualify for this summer's World Cup`\
+https://nytimes.com/athletic/7156216/2026/03/31/dr-congo-1-jamaica-0-world-cup-playoff-briefing/
+
+**Steph Curry, Warriors targeting Sunday return after successful workout Tuesday**\
+`Curry hasn't played since he left the Warriors' game Jan. 30 with an injury to his right knee.`\
+https://nytimes.com/athletic/7162374/2026/03/31/warriors-steph-curry-return-knee-injury-sunday/
+
+**J.D. Martinez joins Mets front office in special assistant role**\
+`The Mets first discussed a potential front office role with Martinez back in 2024, when he played for them.`\
+https://nytimes.com/athletic/7161492/2026/03/31/new-york-mets-jd-martinez-front-office-role/
+
 **Tugboat Captain Is Charged in Miami Beach Crash That Killed 3 Children**\
 `Six people, including a camp counselor, were thrown into the water on July 28 when their sailboat was struck by a barge that was being pushed by a tugboat, the authorities said.`\
 https://nytimes.com/2026/03/31/us/miami-sailboat-crash-biscayne-bay-manslaughter.html

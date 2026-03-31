@@ -1,3 +1,15 @@
+**The Briefing: DR Congo 1 Jamaica 0 - How did the Leopards make history? What do their fans bring? What happened to the ref?**\
+`An extra-time goal from Axel Tuanzebe ensured DR Congo became the 47th team to qualify for this summer's World Cup`\
+https://nytimes.com/athletic/7156216/2026/03/31/dr-congo-1-jamaica-0-world-cup-playoff-briefing/
+
+**Steph Curry, Warriors targeting Sunday return after successful workout Tuesday**\
+`Curry hasn't played since he left the Warriors' game Jan. 30 with an injury to his right knee.`\
+https://nytimes.com/athletic/7162374/2026/03/31/warriors-steph-curry-return-knee-injury-sunday/
+
+**J.D. Martinez joins Mets front office in special assistant role**\
+`The Mets first discussed a potential front office role with Martinez back in 2024, when he played for them.`\
+https://nytimes.com/athletic/7161492/2026/03/31/new-york-mets-jd-martinez-front-office-role/
+
 **Tugboat Captain Is Charged in Miami Beach Crash That Killed 3 Children**\
 `Six people, including a camp counselor, were thrown into the water on July 28 when their sailboat was struck by a barge that was being pushed by a tugboat, the authorities said.`\
 https://nytimes.com/2026/03/31/us/miami-sailboat-crash-biscayne-bay-manslaughter.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7161668/2026/03/31/pittsburgh-steelers-mike-mccarth
 **Tiger: 'I am stepping away ... to seek treatment'**\
 `Woods will not be at the Masters in any capacity.`\
 https://nytimes.com/athletic/7162240/2026/03/31/tiger-woods-treatment-dui-arrest/
-
-**Justice Dept. Struggles to Respond to Trump’s Suit Against I.R.S.**\
-`Officials at the department and the White House are in the middle of a messy and complicated debate over how to respond to President Trump’s lawsuit demanding $10 billion from the I.R.S.`\
-https://nytimes.com/2026/03/31/us/politics/trump-irs-lawsuit-doj.html
-
-**Wisconsin's Bajraktarevic shocks Italy, sends Bosnia-Herzegovina to World Cup**\
-`The U.S.-born former New England Revolution winger, who has one USMNT cap, sealed a memorable triumph`\
-https://nytimes.com/athletic/7162161/2026/03/31/esmir-bajraktarevic-italy-bosnia-herzegovina-world-cup-wisconsin-usa/
-
-**Arkansas Primary Runoff Election Results**\
-`Get live results and maps from the 2026 Arkansas primary runoff elections.`\
-https://nytimes.com/interactive/2026/us/elections/results-arkansas-runoff.html
 
