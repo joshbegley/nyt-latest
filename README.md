@@ -1,3 +1,11 @@
+**Who Is Getting Paid During the Department of Homeland Security Shutdown?**\
+`At least 120,000 law enforcement officers who work for the agency have continued to collect paychecks throughout the funding lapse. But tens of thousands of workers have gone without pay.`\
+https://nytimes.com/2026/03/31/us/politics/homeland-security-pay-shutdown.html
+
+**Why the Artemis II Astronauts Will Be Wearing Orange**\
+`It’s not just any orange. It’s International Orange.`\
+https://nytimes.com/2026/03/31/style/artemis-ii-spacesuits-orange-astronauts.html
+
 **OpenAI Adds Another $12 Billion to Latest Funding Round**\
 `The start-up has raised a total of $122 billion in a funding round that values the company at $730 billion.`\
 https://nytimes.com/2026/03/31/technology/openai-12-billion-latest-funding-round.html
@@ -25,12 +33,4 @@ https://nytimes.com/2026/03/31/world/social-media-ban-case-iran-trump-russia.htm
 **Yes, This Is Your War, Too**\
 `Even opponents of the conflict should want to see Iran defanged and defeated.`\
 https://nytimes.com/2026/03/31/opinion/yes-this-is-your-war-too.html
-
-**In Search of a Religious Center**\
-`Why none of America’s faiths have taken mainline Protestantism’s place.`\
-https://nytimes.com/2026/03/31/opinion/religion-revival-america.html
-
-**The Briefing: Kosovo 0 Turkey 1 — How good were Yildiz and Guler? Should the USMNT be worried?**\
-`Turkey qualified for the World Cup for the first time in 24 years. They will face the United States, Paraguay and Australia in Group D`\
-https://nytimes.com/athletic/7156215/2026/03/31/kosovo-0-turkey-1-world-cup-playoff-briefing/
 
