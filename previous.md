@@ -1,3 +1,15 @@
+**ESPN adds Jason Kelce to Masters Par 3 Contest broadcasting team**\
+`Kelce will interview golfers and their families on the course as part of ESPN's coverage of the event.`\
+https://nytimes.com/athletic/7160834/2026/03/31/jason-kelce-masters-par-3-contest-espn/
+
+**Sean Payton will be 'surprised' if NFL players are in Olympic flag football**\
+`Denver's head coach said it was humbling to go against Team USA at the recent Fanatics flag football event.`\
+https://nytimes.com/athletic/7160883/2026/03/31/sean-payton-broncos-flag-football-olympics/
+
+**An Ominous U.S. Threat Against Iran**\
+`Readers criticize President Trump over his bellicose statements on Iran. Also: Education for every child, citizen or not; the cost of war.`\
+https://nytimes.com/2026/03/31/opinion/iran-war.html
+
 **Fired F.B.I. Agents File Class-Action Suit Claiming Political Retaliation**\
 `The suit is one of the broadest bids yet seeking accountability against the F.B.I. director, Kash Patel, and Attorney General Pam Bondi for getting rid of employees who have run afoul of President Trump.`\
 https://nytimes.com/2026/03/31/us/politics/fbi-class-action-lawsuit-patel-bondi.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7160933/2026/03/31/knicks-vs-rockets-stream-how-to-
 **How to watch Hornets vs. Nets: Time, TV, streaming**\
 `Find out how to watch the Charlotte Hornets play the Brooklyn Nets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7160930/2026/03/31/hornets-vs-nets-stream-how-to-watch-march-31/
-
-**How to watch Mavericks vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the Dallas Mavericks play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7160927/2026/03/31/mavericks-vs-bucks-stream-how-to-watch-march-31/
-
-**How to watch Athletics vs. Braves: Time, TV, streaming for March 31**\
-`Find out how to watch the Athletics play the Atlanta Braves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7160915/2026/03/31/athletics-vs-braves-stream-how-to-watch-march-31/
-
-**How to watch Raptors vs. Pistons: Time, TV, streaming**\
-`Find out how to watch the Toronto Raptors play the Detroit Pistons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7160913/2026/03/31/raptors-vs-pistons-stream-how-to-watch-march-31/
 
