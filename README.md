@@ -1,9 +1,17 @@
+**Bills coach Joe Brady says his approach on Josh Allen's running not changing**\
+`Brady also addressed Keon Coleman, who became a hot topic in the offseason.`\
+https://nytimes.com/athletic/7161607/2026/03/31/joe-brady-josh-allen-running-keon-coleman/
+
+**Canada reaches new CBA before World Cup**\
+`For years, a continued sense of discontent between national team players and Canada Soccer has been highlighted by the lack of a CBA.`\
+https://nytimes.com/athletic/7160691/2026/03/31/canada-new-cba-world-cup/
+
 **What we learned from Mike Vrabel's comments at the NFL meetings**\
 `Vrabel offered little but cagey responses to questions about the potential of trading for Eagles receiver A.J. Brown.`\
 https://nytimes.com/athletic/7161314/2026/03/31/mike-vrabel-patriots-nfl-meetings-aj-brown/
 
 **Seven Maple Leafs takeaways from Keith Pelley's media availability**\
-`The MLSE president addressed the media Tuesday following the team's firing of Leafs GM Brad Treliving. Here's what stood out.`\
+`The MLSE president addressed the media Tuesday following the firing of Leafs GM Brad Treliving. Here's what stood out.`\
 https://nytimes.com/athletic/7161419/2026/03/31/maple-leafs-keith-pelley-brad-treliving-fired/
 
 **A Times Lawyer on Why the Pentagon Lawsuit Matters**\
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2026/03/31/magazine/young-people-without-smartph
 **Warriors' Curry returns to practice in big step in recovery from injury**\
 `Warriors coach Steve Kerr said that Steph Curry will get some 5-on-5 scrimmaging in after practice. `\
 https://nytimes.com/athletic/7161622/2026/03/31/warriors-stephen-curry-injury-recovery/
-
-**What we learned about the Chargers from Jim Harbaugh at the league meeting**\
-`The Chargers enter the draft needing to add help at guard and edge rusher. Harbaugh: "Competitors welcome. ... So there’s more to come.”`\
-https://nytimes.com/athletic/7161396/2026/03/31/jim-harbaugh-chargers-league-meeting-2026/
-
-**Why Everton qualifying for Europe could give them a financial headache**\
-`David Moyes' side could achieve European football for the first time since 2017-18, but they will need to comply with UEFA financial rules`\
-https://nytimes.com/athletic/7161203/2026/03/31/everton-european-football-financial-analysis/
 
