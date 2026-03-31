@@ -1,3 +1,7 @@
+**Is Social Media the New Tobacco?**\
+`A landmark court ruling in an online addiction case could be very bad news for big tech companies.`\
+https://nytimes.com/2026/03/31/world/social-media-ban-case-iran-trump-russia.html
+
 **The Briefing: Kosovo 0 Turkey 1 — How good were Yildiz and Guler? Should the USMNT be worried?**\
 `Turkey qualified for the World Cup for the first time in 24 years. They will face the United States, Paraguay and Australia in Group D`\
 https://nytimes.com/athletic/7156215/2026/03/31/kosovo-0-turkey-1-world-cup-playoff-briefing/

@@ -1,3 +1,15 @@
+**Submit a question for Pete Sampson's Notre Dame mailbag**\
+`The storylines and questions of the 2026 Fighting Irish are coming into clearer focus.`\
+https://nytimes.com/athletic/7161882/2026/03/31/submit-a-question-for-pete-sampsons-notre-dame-mailbag-111/
+
+**NFL owners approve mandate that teams employ full-time mental health clinicians**\
+`Previously, teams were required to have one clinician work eight to 12 hours per week over a two-day span.`\
+https://nytimes.com/athletic/7161644/2026/03/31/nfl-mental-health-clinicians-mandate/
+
+**Sweden are among the least deserving World Cup qualifiers this century - but they could still be a force**\
+`The most important goal of Sweden's bizarre World Cup qualifying campaign was arguably scored in November 2024`\
+https://nytimes.com/athletic/7161827/2026/03/31/sweden-world-cup-qualifying/
+
 **Is Social Media the New Tobacco?**\
 `A landmark court ruling in an online addiction case could be very bad news for big tech companies.`\
 https://nytimes.com/2026/03/31/world/social-media-ban-case-iran-trump-russia.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/7160650/2026/03/31/usmnt-guide-turkey-world-cup/
 **Spain fans warned over discriminatory behaviour after anti-Muslim chant in Egypt friendly**\
 `The home crowd were heard singing an anti-Muslim chant during the international fixture. `\
 https://nytimes.com/athletic/7161587/2026/03/31/spain-fans-discriminatory-chant-egypt/
-
-**Turkey completes USA's World Cup group, ramps up overall difficulty**\
-`Turkey outlasted Kosovo for one of the final places in the 2026 World Cup and will be the U.S.'s last group opponent`\
-https://nytimes.com/athletic/7161070/2026/03/31/usmnt-world-cup-group-d-turkey-paraguay-australia/
-
-**The Briefing: England 0 Japan 1 – No Kane, no World Cup hope for Tuchel?**\
-`The big talking points dissected as Thomas Tuchel's team play their final game before the summer`\
-https://nytimes.com/athletic/7157905/2026/03/31/england-japan-result-analysis/
-
-**Liam Coen tempers expectations for Travis Hunter's Year 2 impact as two-way player's rehab continues**\
-`Hunter's rookie season in 2025 ended prematurely after suffering a torn LCL.`\
-https://nytimes.com/athletic/7161466/2026/03/31/jacksonville-jaguars-liam-coen-travis-hunter-owners-meetings/
 
