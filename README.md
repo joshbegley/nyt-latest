@@ -1,8 +1,16 @@
+**A foreign journalist was abducted in Iraq, the country’s interior ministry says.**\
+`Iraq’s interior ministry said it is`\
+https://nytimes.com/live/2026/03/31/world/iran-war-oil-trump/a-foreign-journalist-was-abducted-in-iraq-the-countrys-interior-ministry-says
+
+**DeMeco Ryans sees a 'dialed-in' C.J. Stroud early in Texans' offseason**\
+`Stroud threw four interceptions in the Texans' divisional-round loss to the Patriots that ended Houston's season.`\
+https://nytimes.com/athletic/7161032/2026/03/31/cj-stroud-houston-texans-demeco-ryans/
+
 **Dean’s Transports a Breezy Coastal England Pub to SoHo**\
 `The team from King and Jupiter are serving up pork scratchings, crab with buttered crumpets and sticky ginger pudding.`\
 https://nytimes.com/2026/03/31/dining/nyc-restaurant-news.html
 
-**Chiefs' Andy Reid gives Patrick Mahomes knee update. It comes from a unique perspective**\
+**Andy Reid gives Patrick Mahomes knee update from a unique perspective**\
 `Mahomes has publicly stated a goal to return for Week 1 of the regular season, and Reid said Tuesday that he "would never bet against him."`\
 https://nytimes.com/athletic/7161074/2026/03/31/chiefs-patrick-mahomes-knee-injury-andy-reid/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7161112/2026/03/31/red-sox-vs-astros-stream-how-to-
 **Israel Signals Plans to Occupy Southern Lebanon After Ground Invasion**\
 `Israeli forces will control “the entire area” from the border to the Litani River, some 20 miles to the north, the defense minister said. He indicated troops would remain after the ground invasion ends.`\
 https://nytimes.com/2026/03/31/world/middleeast/israel-lebanon-ground-invasion.html
-
-**TMZ Sics Its Tipsters on a New Breed of Celebrity Villain: Members of Congress**\
-`After lawmakers left Washington for a two-week spring break with the Department of Homeland Security shut down, the Hollywood tabloid began publishing photographs of them living it up around the country.`\
-https://nytimes.com/2026/03/31/us/politics/tmz-congress.html
-
-**U.S. Assures Colombian President He Does Not Face Charges Right Now**\
-`The Justice Department is examining Gustavo Petro for possible ties to drug traffickers. U.S. officials have told him that for now he does not face criminal charges arising from the probes.`\
-https://nytimes.com/2026/03/31/world/americas/gustavo-petro-colombia-president-us-charges.html
 
