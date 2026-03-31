@@ -1,3 +1,11 @@
+**Macklin Celebrini becomes sixth teenager to score 100 points in NHL season**\
+`Celebrini has moved into league-wide stardom this season.`\
+https://nytimes.com/athletic/7158797/2026/03/30/macklin-celebrini-sharks-100-points/
+
+**Radko Gudas, Max Domi fight in first Leafs-Ducks game since Matthews injury**\
+`The players dropped gloves just after the opening faceoff.`\
+https://nytimes.com/athletic/7159586/2026/03/30/radko-gudas-leafs-fight-domi/
+
 **Radko Gudas, Max Domi fight early in first Leafs-Ducks game since Auston Matthews injury**\
 `The players dropped gloves just after the opening faceoff.`\
 https://nytimes.com/athletic/7159586/2026/03/30/radko-gudas-leafs-fight-domi/

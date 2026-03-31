@@ -1,4 +1,8 @@
-**Radko Gudas, Max Domi fight early in first Leafs-Ducks game since Auston Matthews injury**\
+**Macklin Celebrini becomes sixth teenager to score 100 points in NHL season**\
+`Celebrini has moved into league-wide stardom this season.`\
+https://nytimes.com/athletic/7158797/2026/03/30/macklin-celebrini-sharks-100-points/
+
+**Radko Gudas, Max Domi fight in first Leafs-Ducks game since Matthews injury**\
 `The players dropped gloves just after the opening faceoff.`\
 https://nytimes.com/athletic/7159586/2026/03/30/radko-gudas-leafs-fight-domi/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7159428/2026/03/30/new-york-giants-nfl-draft-jeremi
 **Aaron Rodgers, Mike McCarthy talk often, but QB's future still uncertain**\
 `McCarthy offered little new information but heaped praise on his former QB in numerous ways and highlighted Rodgers' "curiosity" off field.`\
 https://nytimes.com/athletic/7159498/2026/03/30/aaron-rodgers-mccarthy-steelers-qb-uncertain-future/
-
-**Kuwaiti Oil Tanker Is Set Ablaze After Attack Off the Coast of Dubai**\
-`The attack damaged the hull, the owner of the tanker said, which could cause an oil spill.`\
-https://nytimes.com/2026/03/30/world/middleeast/kuwait-oil-tanker-iran-drone.html
 
