@@ -1,3 +1,11 @@
+**Consciousness Lives in Our Bodies**\
+`“The brain exists to keep the body alive, not the other way around,” argues the author Michael Pollan as he explores the connection between consciousness and the body in this episode of “The Ezra Klein Show.”`\
+https://nytimes.com/video/opinion/100000010802900/consciousness-lives-in-our-bodies.html
+
+**Trump’s Executive Order on NPR and PBS Is Unconstitutional, Judge Rules**\
+`The ruling will likely have minimal effect on the federal money going to public media because Congress voted to claw back funding.`\
+https://nytimes.com/2026/03/31/business/media/trump-npr-pbs-executive-order-ruling.html
+
 **Will the Iran Crisis Push the World to Rethink Oil and Gas?**\
 `A growing energy crisis could push countries to burn more fossil fuels in the short term, experts say. Plus more climate news.`\
 https://nytimes.com/2026/03/31/climate/iran-war-renewable-energy.html
