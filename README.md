@@ -1,3 +1,15 @@
+**A Times Lawyer on Why the Pentagon Lawsuit Matters**\
+`David McCraw, who heads the newsroom legal team for The New York Times, discusses the case and his view of the judge’s ruling.`\
+https://nytimes.com/2026/03/31/insider/times-pentagon-first-amendment-lawsuit.html
+
+**Confident of Air Supremacy, U.S. Sends B-52 Bombers Over Iran**\
+`Iran continued to retaliate across the region on Tuesday but markets saw hopes that fighting might ebb. Israel said it would occupy a large chunk of Lebanon even after the war ends.`\
+https://nytimes.com/2026/03/31/world/middleeast/us-iran-b52-bombers.html
+
+**The pressure is ramping up, but this time around Aaron Glenn is keeping his cool**\
+`At the league meeting on Tuesday, Glenn addressed Geno Smith, the upcoming draft and, yes, the pressure to deliver wins in 2026.`\
+https://nytimes.com/athletic/7161582/2026/03/31/aaron-glenn-owners-meetings-new-york-jets-geno-smith/
+
 **Is There Life After Smartphones?**\
 `What happens when a growing cohort of young people decide to ditch their devices?`\
 https://nytimes.com/interactive/2026/03/31/magazine/quit-smartphone-addiction-social-media.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/opinion/100000010802908/can-you-anesthetize-a-plant.ht
 **Newsom’s New Attack on Political Enemies: You’re Gay**\
 `Gov. Gavin Newsom’s aides said that their online insults were meant to ridicule figures on the right. But some critics say they are homophobic.`\
 https://nytimes.com/2026/03/31/us/politics/newsom-social-media-grindr-homophobia.html
-
-**Prime Tire: New cars vs. old circuits**\
-`Welcome to Prime Tire, The Athletic's F1 newsletter.`\
-https://nytimes.com/athletic/7161470/2026/03/31/f1-car-regulations-suzuka-circuit-kimi-antonelli/
-
-**Why Broncos' Sean Payton didn't want 'chaos' of a frenzied free-agent period**\
-`The Broncos' offseason, which has included only one significant outside addition, was all part of 'steady' plan, Denver's coach said.`\
-https://nytimes.com/athletic/7161346/2026/03/31/broncos-sean-payton-free-agency-offseason/
-
-**Consciousness Lives in Our Bodies**\
-`“The brain exists to keep the body alive, not the other way around,” argues the author Michael Pollan as he explores the connection between consciousness and the body in this episode of “The Ezra Klein Show.”`\
-https://nytimes.com/video/opinion/100000010802900/consciousness-lives-in-our-bodies.html
 

@@ -1,3 +1,15 @@
+**Is There Life After Smartphones?**\
+`What happens when a growing cohort of young people decide to ditch their devices?`\
+https://nytimes.com/interactive/2026/03/31/magazine/quit-smartphone-addiction-social-media.html
+
+**Warriors' Curry returns to practice in big step in recovery from injury**\
+`Warriors coach Steve Kerr said that Steph Curry will get some 5-on-5 scrimmaging in after practice. `\
+https://nytimes.com/athletic/7161622/2026/03/31/warriors-stephen-curry-injury-recovery/
+
+**What we learned about the Chargers from Jim Harbaugh at the league meeting**\
+`The Chargers enter the draft needing to add help at guard and edge rusher. Harbaugh: "Competitors welcome. ... So there’s more to come.”`\
+https://nytimes.com/athletic/7161396/2026/03/31/jim-harbaugh-chargers-league-meeting-2026/
+
 **They Grew Up With Smartphones. This Is How They Live Without Them.**\
 `We asked six young New Yorkers who have taken the leap.`\
 https://nytimes.com/interactive/2026/03/31/magazine/young-people-without-smartphones-photo.html
