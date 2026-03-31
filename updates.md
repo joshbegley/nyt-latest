@@ -1,3 +1,19 @@
+**Why Australia Enshrined ‘a Succulent Chinese Meal’ Rant in Its Archive**\
+`A clip of the con man Jack Karlson delivering a theatrical soliloquy while being arrested in 1991 has been deemed one of the country’s important cultural recordings.`\
+https://nytimes.com/2026/03/31/world/australia/jack-karlson-succulent-chinese-meal-meme.html
+
+**10 Synth-Pop Songs That Bring the Drama**\
+`With TV soundtracks increasingly turning to nostalgic ’80s tracks, hear a playlist of essential hits and deeper cuts.`\
+https://nytimes.com/2026/03/31/arts/music/amplifier-newsletter-synth-pop-songs.html
+
+**Las Vegas Is Still a March Madness Mecca**\
+`The influx of fans during this month’s college basketball tournament is a welcome lift to the city’s casinos and hotels after a dismal 2025, when the number of visitors fell 7.5 percent.`\
+https://nytimes.com/2026/03/31/business/las-vegas-march-madness-tourism.html
+
+**Will Patrick Mahomes be ready for Week 1? Andy Reid has unique perspective on knee rehab**\
+`Mahomes has publicly stated a goal to return for Week 1 of the regular season, and Reid said Tuesday that he "would never bet against him."`\
+https://nytimes.com/athletic/7161074/2026/03/31/chiefs-patrick-mahomes-knee-injury-andy-reid/
+
 **A foreign journalist was abducted in Iraq, the country’s interior ministry says.**\
 `Iraq’s interior ministry said it is`\
 https://nytimes.com/live/2026/03/31/world/iran-war-oil-trump/a-foreign-journalist-was-abducted-in-iraq-the-countrys-interior-ministry-says
