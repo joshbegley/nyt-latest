@@ -1,40 +1,40 @@
-**What’s Your Fave Organizational Tool?**\
-`Here are a few of our favorite organizational hacks.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010812333/whats-your-fave-organizational-tool.html
+**Women’s NCAA Tournament odds: UConn enters repeat Final Four as clear favorite**\
+`All four No. 1 seeds are in the Final Four. But can anyone challenge UConn's dominance?`\
+https://nytimes.com/athletic/7160503/2026/03/31/ncaa-tournament-odds-womens-uconn-texas-ucla-south-carolina/
 
-**King Charles to Visit U.S. as Tensions Rise Between Trump and Britain**\
-`President Trump has fired criticism at America’s longtime ally over the war in Iran, but there are hopes that the royal visit will help shore up relations.`\
-https://nytimes.com/2026/03/31/world/europe/king-charles-state-visit-trump.html
+**How to watch Suns vs. Magic: Time, TV, streaming**\
+`Find out how to watch the Phoenix Suns play the Orlando Magic, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7160739/2026/03/31/suns-vs-magic-stream-how-to-watch-march-31/
 
-**Eli Lilly Will Buy a Narcolepsy Drug Developer for $6.3 Billion**\
-`Eli Lilly plans to acquire Centessa Pharmaceuticals, which has been conducting a midstage clinical trial of its lead drug.`\
-https://nytimes.com/2026/03/31/business/eli-lilly-narcolepsy-centessa.html
+**Sneakers for Any Walking Style**\
+`These are just a few fave spring sneaks. See more favorites on Wirecutter.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010812388/sneakers-for-any-walking-style.html
 
-**The Chaotic Competition for Trump’s Attention**\
-`The scholar Henry Farrell explains how efforts to capture Trump’s attention and approval through spectacle resemble the attention dynamics in Nazi Germany.`\
-https://nytimes.com/video/opinion/100000010810043/the-chaotic-competition-for-trumps-attention.html
+**Mamdani, the Influencer Mayor, Ends TikTok Ban for N.Y.C. Government**\
+`Mayor Zohran Mamdani is lifting the ban on governmental use of the social media app, one of a handful that the mayor used to amplify his campaign messaging.`\
+https://nytimes.com/2026/03/31/nyregion/mamdani-tiktok-nyc.html
 
-**Mariners' Colt Emerson nearing $95 million extension, a record for MLB prospect before debut**\
-`It may not be long before the 20-year-old is given a chance to help the Mariners attempt to secure a second straight division title.`\
-https://nytimes.com/athletic/7160565/2026/03/31/mariners-colt-emerson-debut-deal-record-contract/
+**Playing with fire: Unpacking Golden Knights' John Tortorella gamble, Leafs' GM firing**\
+`As the NHL regular season intensifies down the stretch, Brad Treliving is out in Toronto and Tortorella starts a ticking clock in Vegas.`\
+https://nytimes.com/athletic/7160628/2026/03/31/nhl-maple-leafs-golden-knights-red-light/
 
-**Masai Ujiri to join ownership group for WNBA's Toronto Tempo**\
-`The longtime Toronto Raptors executive, who was fired in 2025, will become a principal owner of the WNBA expansion franchise. `\
-https://nytimes.com/athletic/7160610/2026/03/31/masai-ujiri-tempo-owner-wnba-toronto/
+**Three Great Documentaries to Stream**\
+`In this month’s picks, reflections on a comedian couple, a charged reality-TV series and activism in Northern Ireland.`\
+https://nytimes.com/2026/03/31/movies/documentaries-streaming.html
 
-**For the Global Economy, ‘All Roads Lead to Higher Prices and Slower Growth’**\
-`The effects of the war in Iran are squeezing consumers, businesses and governments around the world, raising the prices of many essential goods.`\
-https://nytimes.com/2026/03/31/world/middleeast/oil-energy-inflation-global-economy.html
+**A New Jersey Teen Finds Treasure, and More, in Abandoned Storage Units**\
+`Michael Haskell, 17, set out to make some money from his locker dives. He ended up learning about life.`\
+https://nytimes.com/2026/03/31/style/a-new-jersey-teen-finds-treasure-and-more-in-abandoned-storage-units.html
 
-**Should Rich New Yorkers Get Free Stuff, Too? Mamdani Says Yes.**\
-`A free preschool center in one of the city’s wealthiest neighborhoods raises questions about Mayor Zohran Mamdani’s vow to expand universal child care.`\
-https://nytimes.com/2026/03/31/nyregion/mamdani-child-care-upper-east-side.html
+**A Slurp of Noodle Soup, the Pucker of Piccata**\
+`Five weeknight recipes to delight and refresh.`\
+https://nytimes.com/2026/03/31/dining/a-slurp-of-noodle-soup-the-pucker-of-piccata.html
 
-**Trump Lashes Out Again at Europe for Its Lukewarm Support Against Iran**\
-`President Trump’s latest outbursts followed reports that European countries were imposing more restrictions on American aircraft in their airspace.`\
-https://nytimes.com/2026/03/31/world/middleeast/trump-europe-iran-criticism.html
+**The Next British Invasion Is Here, and It’s Led by Women**\
+`Raye, Olivia Dean, Lola Young and PinkPantheress are making a big impact on the charts and in pop culture, foregrounding their Englishness rather than adapting it.`\
+https://nytimes.com/2026/03/31/arts/music/british-invasion-raye-olivia-dean-pinkpantheress.html
 
-**Justices Reject Colorado Law Banning ‘Conversion Therapy’ for L.G.B.T.Q. Minors**\
-`Colorado and more than 20 other states restrict therapists from trying to change the gender identity or sexual orientation of L.G.B.T.Q. clients under the age of 18.`\
-https://nytimes.com/2026/03/31/us/politics/supreme-court-colorado-conversion-therapy.html
+**Toy Testing with a Discerning Bodega Cat**\
+`Cats are notoriously difficult to buy toys for, so we enlisted the help of Oreo — a lazy yet discerning bodega cat — and Michelladonna of “Shop Cats” to test a few options with pets writer Mel Plaut.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010812365/toy-testing-with-a-discerning-bodega-cat.html
 
