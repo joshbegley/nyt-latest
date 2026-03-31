@@ -1,3 +1,11 @@
+**New Book by JD Vance Will Explore His Conversion to Catholicism**\
+`The vice president’s book, to be released in June, will detail his return to Christianity after leaving the loosely evangelical practice of his childhood.`\
+https://nytimes.com/2026/03/31/us/politics/jd-vance-book-communion.html
+
+**EFL contacted over O'Neill's Blackburn, Northern Ireland conflict of interest concerns**\
+`A number of players in O’Neill’s Northern Ireland squad play for teams battling with Blackburn to remain in the Championship.`\
+https://nytimes.com/athletic/7160864/2026/03/31/michael-oneill-blackburn-northern-ireland-efl/
+
 **How to watch Knicks vs. Rockets: Time, TV, streaming**\
 `Find out how to watch the New York Knicks play the Houston Rockets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7160933/2026/03/31/knicks-vs-rockets-stream-how-to-watch-march-31/
