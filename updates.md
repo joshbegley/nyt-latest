@@ -1,3 +1,7 @@
+**Radko Gudas, Max Domi fight early in first Leafs-Ducks game since Auston Matthews injury**\
+`The players dropped gloves just after the opening faceoff.`\
+https://nytimes.com/athletic/7159586/2026/03/30/radko-gudas-leafs-fight-domi/
+
 **5 million people registered for 2028 Olympics tickets. Winners learn fate this week.**\
 `Locals will get first dibs, with everyone in LA-area counties or Oklahoma City learning Tuesday through Thursday if they can buy tickets. `\
 https://nytimes.com/athletic/7159525/2026/03/30/2028-la-olympics-tickets-lottery-winners-sales-process/

@@ -1,3 +1,7 @@
+**Radko Gudas, Max Domi fight early in first Leafs-Ducks game since Auston Matthews injury**\
+`The players dropped gloves just after the opening faceoff.`\
+https://nytimes.com/athletic/7159586/2026/03/30/radko-gudas-leafs-fight-domi/
+
 **5 million people registered for 2028 Olympics tickets. Winners learn fate this week.**\
 `Locals will get first dibs, with everyone in LA-area counties or Oklahoma City learning Tuesday through Thursday if they can buy tickets. `\
 https://nytimes.com/athletic/7159525/2026/03/30/2028-la-olympics-tickets-lottery-winners-sales-process/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7159498/2026/03/30/aaron-rodgers-mccarthy-steelers-
 **Kuwaiti Oil Tanker Is Set Ablaze After Attack Off the Coast of Dubai**\
 `The attack damaged the hull, the owner of the tanker said, which could cause an oil spill.`\
 https://nytimes.com/2026/03/30/world/middleeast/kuwait-oil-tanker-iran-drone.html
-
-**Cody Ponce carted off field after running off mound in Blue Jays debut**\
-`Toronto's rotation, which appeared exceptionally deep ahead of the regular season, had already lost three starters.`\
-https://nytimes.com/athletic/7159589/2026/03/30/toronto-blue-jays-cody-ponce-early-exit/
 
