@@ -1,4 +1,4 @@
-**Radko Gudas, Max Domi fight early in first Leafs-Ducks game since Auston Matthews injury**\
+**Radko Gudas, Max Domi fight in first Leafs-Ducks game since Matthews injury**\
 `The players dropped gloves just after the opening faceoff.`\
 https://nytimes.com/athletic/7159586/2026/03/30/radko-gudas-leafs-fight-domi/
 
