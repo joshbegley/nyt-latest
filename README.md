@@ -1,3 +1,7 @@
+**Las Vegas Is Still a March Madness Mecca**\
+`The influx of fans during this month’s college basketball tournament is a welcome lift to the city’s casinos and hotels after a dismal 2025, when the number of visitors fell 7.5 percent.`\
+https://nytimes.com/2026/03/31/business/las-vegas-march-madness-tourism.html
+
 **A foreign journalist was abducted in Iraq, the country’s interior ministry says.**\
 `Iraq’s interior ministry said it is`\
 https://nytimes.com/live/2026/03/31/world/iran-war-oil-trump/a-foreign-journalist-was-abducted-in-iraq-the-countrys-interior-ministry-says
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7161140/2026/03/31/jets-vs-blackhawks-stream-how-to
 **How to watch Red Sox vs. Astros: Time, TV, streaming for March 31**\
 `Find out how to watch the Boston Red Sox play the Houston Astros, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7161112/2026/03/31/red-sox-vs-astros-stream-how-to-watch-march-31/
-
-**Israel Signals Plans to Occupy Southern Lebanon After Ground Invasion**\
-`Israeli forces will control “the entire area” from the border to the Litani River, some 20 miles to the north, the defense minister said. He indicated troops would remain after the ground invasion ends.`\
-https://nytimes.com/2026/03/31/world/middleeast/israel-lebanon-ground-invasion.html
 
