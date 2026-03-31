@@ -1,3 +1,7 @@
+**Aston Villa, the Europa League and ticket prices — is there a breaking point?**\
+`Villa Park has not been sold out for any Europa League fixture this season with frustration at prices for the quarter-final against Bologna`\
+https://nytimes.com/athletic/7146529/2026/03/31/aston-villa-ticket-prices-bologna-europa-league/
+
 **Spurs and Roberto De Zerbi - Would it be worth alienating a section of the fanbase?**\
 `Can Tottenham Hotspur afford to alienate so many of their fans in a time when the club desperately needs unity?`\
 https://nytimes.com/athletic/7158633/2026/03/31/spurs-de-zerbi-greenwood-fans/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7158136/2026/03/31/kosovo-independence-world-cup-te
 **How Graham Potter resurrected Sweden's World Cup prospects - and his own career**\
 `Potter has not always made good decisions on his next job – but taking charge of the Swedish national team might be one`\
 https://nytimes.com/athletic/7151518/2026/03/31/graham-potter-sweden-world-cup/
-
-**How a provincial Belgian club became Japan's talent factory**\
-`Seven members of the Japan squad to face England this week are either past or present Sint-Truiden players`\
-https://nytimes.com/athletic/7157473/2026/03/31/japan-belgium-st-truiden-world-cup/
 

@@ -1,3 +1,7 @@
+**Aston Villa, the Europa League and ticket prices — is there a breaking point?**\
+`Villa Park has not been sold out for any Europa League fixture this season with frustration at prices for the quarter-final against Bologna`\
+https://nytimes.com/athletic/7146529/2026/03/31/aston-villa-ticket-prices-bologna-europa-league/
+
 **Spurs and Roberto De Zerbi - Would it be worth alienating a section of the fanbase?**\
 `Can Tottenham Hotspur afford to alienate so many of their fans in a time when the club desperately needs unity?`\
 https://nytimes.com/athletic/7158633/2026/03/31/spurs-de-zerbi-greenwood-fans/
