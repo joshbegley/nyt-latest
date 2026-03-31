@@ -1,3 +1,15 @@
+**Eric Swalwell Sends Cease-and-Desist Letter to F.B.I. Over Case Files**\
+`A Trump administration effort to gather documents from an old investigation had alarmed law enforcement officials, who feared it would be used to smear the Democratic lawmaker.`\
+https://nytimes.com/2026/03/30/us/politics/eric-swalwell-fbi.html
+
+**Texas decimates Michigan for return trip to Final Four**\
+`Texas' defense was at its trademark best, giving the Wolverines fits throughout the Elite Eight contest.`\
+https://nytimes.com/athletic/7159671/2026/03/30/texas-michigan-elite-eight-ncaa-tournament/
+
+**Senators Seek Answers From Trump Administration About Airport Immigration Arrests**\
+`Airport security officials have been sharing passenger data with immigration agents, but the program received little attention until videos captured a woman and her daughter being detained at San Francisco’s airport.`\
+https://nytimes.com/2026/03/30/us/senators-trump-airport-immigration-arrests.html
+
 **Maple Leafs fire general manager Brad Treliving**\
 `The Leafs fired Treliving while set to miss the playoffs for the first time in ten years.`\
 https://nytimes.com/athletic/7159646/2026/03/30/leafs-fire-gm-treliving/
