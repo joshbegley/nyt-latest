@@ -1,3 +1,7 @@
+**In bare feet, Giants manager Tony Vitello soaks up his first major league victory**\
+`Vitello got a beer shower from his players after the Giants won their first game of the season and his major-league career.`\
+https://nytimes.com/athletic/7160164/2026/03/31/tony-vitello-giants-first-win-mlb-padres/
+
 **Marc Cucurella interview: Chelsea’s season has 'paid the price' for inexperience, impact of Maresca exit, and story of the huddle**\
 `Cucurella has become a key player for both Chelsea and Spain. He speaks frankly to The Athletic about what's going wrong for his club side`\
 https://nytimes.com/athletic/7157593/2026/03/31/chelsea-marc-cucurella-exclusive-interview-maresca/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/31/world/iran-war-oil-trump/heres-the-latest
 **Iran War Live Updates: Attack Hits Kuwaiti Tanker Full of Oil Near Dubai**\
 `The massive vessel caught fire after what its owner called an Iranian attack. On Monday, President Trump warned Iran that without a deal, he would order attacks on infrastructure targets.`\
 https://nytimes.com/live/2026/03/31/world/iran-war-oil-trump
-
-**For Dick Motta, the Hall of Fame 'was never my goal.' Only the work mattered**\
-`Is this the last chance for Dick Motta, the winningest retired coach not in the Hall of Fame? If so, he's not seeking your validation.`\
-https://nytimes.com/athletic/7128413/2026/03/31/dick-motta-basketball-hall-of-fame-nba-legacy/
 
