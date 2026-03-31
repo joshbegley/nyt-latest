@@ -1,3 +1,11 @@
+**Olivier Rioux, tallest player in college basketball history, to enter transfer portal**\
+`For the season, Rioux attempted five shots and made two, including a 1-for-3 effort in the Gators' tournament opener.`\
+https://nytimes.com/athletic/7160514/2026/03/31/olivier-rioux-transfer-portal-height-florida/
+
+**3 takeaways from the Nationals’ encouraging start to the season**\
+`The weird lineups are working, the baseball isn't perfect but it's cleaner, and the pitchers are trying the right things.`\
+https://nytimes.com/athletic/7160494/2026/03/31/washington-nationals-takeaways-fast-start/
+
 **Artemis II Moon Launch**\
 `See complete coverage of NASA's Artemis II moon launch, the first crewed trip toward the moon since 1972.`\
 https://nytimes.com/news-event/artemis-ii-launch
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/31/books/international-booker-prize-shortlist.html
 **How Instagram’s ‘PG-13’ Branding for Teens Unraveled**\
 `The social media giant, under legal pressure from the Motion Picture Association, has retreated from its use of the movie rating in its marketing.`\
 https://nytimes.com/2026/03/31/arts/instagram-pg-13-rating-mpa-meta-teen-safety.html
-
-**Streetwear That Used to Be Duffel Bags**\
-`Attire spotted outside in Tokyo had a past life as military gear.`\
-https://nytimes.com/2026/03/31/style/genki-matsumoto-street-style-military.html
-
-**The 10 most interesting players to watch in Notre Dame's spring practice**\
-`Whether it’s a starter, a rotational player or a breakout freshman, these are the players drawing buzz at Notre Dame this spring.`\
-https://nytimes.com/athletic/7160391/2026/03/31/notre-dame-spring-practice-will-black-cj-carr/
 
