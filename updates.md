@@ -1,3 +1,23 @@
+**The lessons Andrew Painter learned — through struggles — on the way to MLB debut**\
+`Painter was shaped by his struggles last season in Triple A. He carries those lessons with him as he embarks on his big-league career. `\
+https://nytimes.com/athletic/7159614/2026/03/31/andrew-painter-phillies-mlb-debut-journey/
+
+**A new year brings a new set of challenges to Ben Johnson's Bears offense**\
+`Johnson had kind words for center Drew Dalman, who retired at age 27, and said replacement Garrett Bradbury will "fit us like a glove."`\
+https://nytimes.com/athletic/7158746/2026/03/31/bears-ben-johnson-caleb-williams-offense-challenges/
+
+**2027 NHL Draft ranking: Landon DuPont tops Wheeler's way-too-early top 25**\
+`The class for the 2027 NHL Draft is headlined by Landon DuPont, Alexis Joseph and Nazar Privalov.`\
+https://nytimes.com/athletic/7116102/2026/03/31/nhl-draft-2027-ranking-dupont-joseph-privalov/
+
+**Justin Verlander's warm Tigers return meets a colder first start**\
+`The 43-year-old surrendered five runs in 3 2/3 innings in his much-anticipated first start back with the Tigers. `\
+https://nytimes.com/athletic/7160158/2026/03/31/justin-verlander-tigers-first-start/
+
+**Isles' playoff hopes in danger after loss to Penguins: 'One of our worst games defensively'**\
+`"We lost a big game tonight," captain Anders Lee said after an 8-3 thrashing in which his team blew a 3-1 lead.`\
+https://nytimes.com/athletic/7159932/2026/03/31/islanders-loss-penguins-playoff-hopes-danger/
+
 **Justin Verlander's warm Tigers return meets a colder first start**\
 `The 43-year-old surrendered five runs in 3 2/3 innings in his much-anticipated first start back with the Tigers. `\
 https://nytimes.com/athletic/7160158/2026/03/31/justin-verlanders-tigers-first-start/
