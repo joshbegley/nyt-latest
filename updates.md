@@ -1,3 +1,7 @@
+**Anthony Edwards returns to Timberwolves' lineup with a new idea of how to play**\
+`Edwards is hoping to pick his spots and get out in transition more as Minnesota pushes toward the playoffs.`\
+https://nytimes.com/athletic/7159723/2026/03/31/anthony-edwards-return-timberwolves-nba/
+
 **Jarren Duran's renewed mental approach has him wondering: 'Why did I care so much?'**\
 `Duran, a self-proclaimed overthinker, has focused on letting go: “I feel like this spring has been a really good mental spot for me."`\
 https://nytimes.com/athletic/7158810/2026/03/31/red-sox-jarren-duran-mental-approach/
