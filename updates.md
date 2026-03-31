@@ -1,3 +1,11 @@
+**Raiders at peace with Maxx Crosby trade debacle, turn attention to solving starting QB conundrum**\
+`GM John Spytek and coach Klint Kubiak also dish on the Raiders adding a veteran QB and Fernando Mendoza as a Day 1 starter.`\
+https://nytimes.com/athletic/7161723/2026/03/31/las-vegas-raider-maxx-crosby-fernando-mendoza/
+
+**Jerry Jones stressed Cowboys have plans for George Pickens: 'Make no mistake about it'**\
+`Dez Bryant (2015) is the last Cowboys player to get a contract extension the first time Dallas gave him the franchise tag.`\
+https://nytimes.com/athletic/7161599/2026/03/31/cowboys-jerry-jones-george-pickens-franchise-tag/
+
 **At the National Archives, the Declaration Gets More Company**\
 `The Emancipation Proclamation and the 19th Amendment have been added to the Archives’s rotunda, the first permanent changes there in nearly 75 years.`\
 https://nytimes.com/2026/03/31/arts/national-archives-emancipation-19th-amendment.html

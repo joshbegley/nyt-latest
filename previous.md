@@ -1,3 +1,11 @@
+**Raiders at peace with Maxx Crosby trade debacle, turn attention to solving starting QB conundrum**\
+`GM John Spytek and coach Klint Kubiak also dish on the Raiders adding a veteran QB and Fernando Mendoza as a Day 1 starter.`\
+https://nytimes.com/athletic/7161723/2026/03/31/las-vegas-raider-maxx-crosby-fernando-mendoza/
+
+**Jerry Jones stressed Cowboys have plans for George Pickens: 'Make no mistake about it'**\
+`Dez Bryant (2015) is the last Cowboys player to get a contract extension the first time Dallas gave him the franchise tag.`\
+https://nytimes.com/athletic/7161599/2026/03/31/cowboys-jerry-jones-george-pickens-franchise-tag/
+
 **At the National Archives, the Declaration Gets More Company**\
 `The Emancipation Proclamation and the 19th Amendment have been added to the Archives’s rotunda, the first permanent changes there in nearly 75 years.`\
 https://nytimes.com/2026/03/31/arts/national-archives-emancipation-19th-amendment.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/31/technology/openai-12-billion-latest-funding-round
 **Read the Judge’s Decision on the Trump Administration’s Subpoena Against Penn**\
 `Gerald J. Pappert, a federal judge, affirms that Equal Employment Opportunity Commission was within its rights to demand that the University of Pennsylvania turn over information about Jews on campus.`\
 https://nytimes.com/interactive/2026/03/31/us/trump-penn-jews-list-judge-decision.html
-
-**Submit a question for Pete Sampson's Notre Dame mailbag**\
-`The storylines and questions of the 2026 Fighting Irish are coming into clearer focus.`\
-https://nytimes.com/athletic/7161882/2026/03/31/submit-a-question-for-pete-sampsons-notre-dame-mailbag-111/
-
-**NFL owners approve mandate that teams employ full-time mental health clinicians**\
-`Previously, teams were required to have one clinician work eight to 12 hours per week over a two-day span.`\
-https://nytimes.com/athletic/7161644/2026/03/31/nfl-mental-health-clinicians-mandate/
 
