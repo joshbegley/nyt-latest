@@ -1,3 +1,19 @@
+**Can You Anesthetize a Plant?**\
+`If it’s possible to put plants to sleep using anesthesia, what does that say about whether they’re conscious? Can they feel pain? The author Michael Pollan explores this “spooky and interesting” discovery on “The Ezra Klein Show.”`\
+https://nytimes.com/video/opinion/100000010802908/can-you-anesthetize-a-plant.html
+
+**Newsom’s New Attack on Political Enemies: You’re Gay**\
+`Gov. Gavin Newsom’s aides said that their online insults were meant to ridicule figures on the right. But some critics say they are homophobic.`\
+https://nytimes.com/2026/03/31/us/politics/newsom-social-media-grindr-homophobia.html
+
+**Prime Tire: New cars vs. old circuits**\
+`Welcome to Prime Tire, The Athletic's F1 newsletter.`\
+https://nytimes.com/athletic/7161470/2026/03/31/f1-car-regulations-suzuka-circuit-kimi-antonelli/
+
+**Why Broncos' Sean Payton didn't want 'chaos' of a frenzied free-agent period**\
+`The Broncos' offseason, which has included only one significant outside addition, was all part of 'steady' plan, Denver's coach said.`\
+https://nytimes.com/athletic/7161346/2026/03/31/broncos-sean-payton-free-agency-offseason/
+
 **Consciousness Lives in Our Bodies**\
 `“The brain exists to keep the body alive, not the other way around,” argues the author Michael Pollan as he explores the connection between consciousness and the body in this episode of “The Ezra Klein Show.”`\
 https://nytimes.com/video/opinion/100000010802900/consciousness-lives-in-our-bodies.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/31/business/media/trump-npr-pbs-executive-order-ruli
 **How to watch Tigers vs. Diamondbacks: Time, TV, streaming for March 31**\
 `Find out how to watch the Detroit Tigers play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7161509/2026/03/31/tigers-vs-diamondbacks-stream-how-to-watch-march-31/
-
-**How to watch Giants vs. Padres: Time, TV, streaming for March 31**\
-`Find out how to watch the San Francisco Giants play the San Diego Padres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7161497/2026/03/31/giants-vs-padres-stream-how-to-watch-march-31/
-
-**Mike Vrabel on TreVeyon Henderson sharing Jaden Ivey video: 'We want to be inclusive'**\
-`Henderson has come under fire for seemingly defending Ivey, who was cut following negative comments about the NBA's support of LGBTQ issues.`\
-https://nytimes.com/athletic/7161057/2026/03/31/vrabel-comments-treveyon-henderson-post-ivey/
-
-**Judge Orders Construction Stopped on Trump’s White House Ballroom**\
-`A federal judge required the president to seek lawmakers’ input and pursue traditional approvals before proceeding with the $400 million replacement for the East Wing.`\
-https://nytimes.com/2026/03/31/us/politics/trump-white-house-ballroom-construction-ruling.html
-
-**Judge Rules Trump Unlawfully Revoked Status of Migrants Who Used Entry App**\
-`A federal judge in Massachusetts ordered the Trump administration to reinstate the legal status of those who were invited to use the Biden-era app.`\
-https://nytimes.com/2026/03/31/us/politics/migrants-immigration-app-parole.html
 
