@@ -1,3 +1,11 @@
+**What’s Your Fave Organizational Tool?**\
+`Here are a few of our favorite organizational hacks.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010812333/whats-your-fave-organizational-tool.html
+
+**King Charles to Visit U.S. as Tensions Rise Between Trump and Britain**\
+`President Trump has fired criticism at America’s longtime ally over the war in Iran, but there are hopes that the royal visit will help shore up relations.`\
+https://nytimes.com/2026/03/31/world/europe/king-charles-state-visit-trump.html
+
 **Eli Lilly Will Buy a Narcolepsy Drug Developer for $6.3 Billion**\
 `Eli Lilly plans to acquire Centessa Pharmaceuticals, which has been conducting a midstage clinical trial of its lead drug.`\
 https://nytimes.com/2026/03/31/business/eli-lilly-narcolepsy-centessa.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/31/world/middleeast/trump-europe-iran-criticism.html
 **Justices Reject Colorado Law Banning ‘Conversion Therapy’ for L.G.B.T.Q. Minors**\
 `Colorado and more than 20 other states restrict therapists from trying to change the gender identity or sexual orientation of L.G.B.T.Q. clients under the age of 18.`\
 https://nytimes.com/2026/03/31/us/politics/supreme-court-colorado-conversion-therapy.html
-
-**McCormick to Combine With Unilever Food Unit to Create a Spice Giant**\
-`The deal ends Unilever’s time in the food industry and will create a multibillion-dollar group under the McCormick name.`\
-https://nytimes.com/2026/03/31/business/mccormick-unilever-food-aquisition.html
-
-**Tiger Woods' DUI arrest details released: Says phone led to crash, found with pills**\
-`Woods was arrested Friday in Jupiter Island, Fla., after he struck a truck hauling a trailer and flipped his Land Rover onto its side.`\
-https://nytimes.com/athletic/7160591/2026/03/31/tiger-woods-dui-arrest-details-phone-radio-pills/
 
