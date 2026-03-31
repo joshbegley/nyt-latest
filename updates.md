@@ -1,3 +1,15 @@
+**Four Tied to N.Y.C. Contractor To Be Charged In Federal Corruption Inquiry**\
+`At least three people were arrested on Tuesday as part of an investigation examining the conduct of Councilwoman Farah Louis and others, people with knowledge of the matter said.`\
+https://nytimes.com/2026/03/31/nyregion/investigation-nyc-councilwoman-hochul-aide.html
+
+**Everton accounts explained: £49.2m sale of women's team, record revenues, but potential UEFA concern**\
+`The Athletic explains a positive set of Everton accounts in detail, and how the TFG takeover has helped them`\
+https://nytimes.com/athletic/7160723/2026/03/31/everton-accounts-explained-womens-team-analysis/
+
+**Sean Payton will be 'surprised' if NFL players are in Olympic flag football**\
+`Denver's coach said it was humbling to go against Team USA at the recent Fanatics flag football event.`\
+https://nytimes.com/athletic/7160883/2026/03/31/sean-payton-broncos-flag-football-olympics/
+
 **ESPN adds Jason Kelce to Masters Par 3 Contest broadcasting team**\
 `Kelce will interview golfers and their families on the course as part of ESPN's coverage of the event.`\
 https://nytimes.com/athletic/7160834/2026/03/31/jason-kelce-masters-par-3-contest-espn/

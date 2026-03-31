@@ -1,9 +1,17 @@
+**Four Tied to N.Y.C. Contractor To Be Charged In Federal Corruption Inquiry**\
+`At least three people were arrested on Tuesday as part of an investigation examining the conduct of Councilwoman Farah Louis and others, people with knowledge of the matter said.`\
+https://nytimes.com/2026/03/31/nyregion/investigation-nyc-councilwoman-hochul-aide.html
+
+**Everton accounts explained: £49.2m sale of women's team, record revenues, but potential UEFA concern**\
+`The Athletic explains a positive set of Everton accounts in detail, and how the TFG takeover has helped them`\
+https://nytimes.com/athletic/7160723/2026/03/31/everton-accounts-explained-womens-team-analysis/
+
 **ESPN adds Jason Kelce to Masters Par 3 Contest broadcasting team**\
 `Kelce will interview golfers and their families on the course as part of ESPN's coverage of the event.`\
 https://nytimes.com/athletic/7160834/2026/03/31/jason-kelce-masters-par-3-contest-espn/
 
 **Sean Payton will be 'surprised' if NFL players are in Olympic flag football**\
-`Denver's head coach said it was humbling to go against Team USA at the recent Fanatics flag football event.`\
+`Denver's coach said it was humbling to go against Team USA at the recent Fanatics flag football event.`\
 https://nytimes.com/athletic/7160883/2026/03/31/sean-payton-broncos-flag-football-olympics/
 
 **An Ominous U.S. Threat Against Iran**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/31/us/politics/jd-vance-book-communion.html
 **EFL contacted over O'Neill's Blackburn, Northern Ireland conflict of interest concerns**\
 `A number of players in O’Neill’s Northern Ireland squad play for teams battling with Blackburn to remain in the Championship.`\
 https://nytimes.com/athletic/7160864/2026/03/31/michael-oneill-blackburn-northern-ireland-efl/
-
-**How to watch Knicks vs. Rockets: Time, TV, streaming**\
-`Find out how to watch the New York Knicks play the Houston Rockets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7160933/2026/03/31/knicks-vs-rockets-stream-how-to-watch-march-31/
-
-**How to watch Hornets vs. Nets: Time, TV, streaming**\
-`Find out how to watch the Charlotte Hornets play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7160930/2026/03/31/hornets-vs-nets-stream-how-to-watch-march-31/
 
