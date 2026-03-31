@@ -1,3 +1,7 @@
+**ESPN adds Jason Kelce to Masters Par 3 Contest broadcasting team**\
+`Kelce will interview golfers and their families on the course as part of ESPN's coverage of the event.`\
+https://nytimes.com/athletic/7160834/2026/03/31/jason-kelce-masters-par-3-contest-espn/
+
 **Sean Payton will be 'surprised' if NFL players are in Olympic flag football**\
 `Denver's head coach said it was humbling to go against Team USA at the recent Fanatics flag football event.`\
 https://nytimes.com/athletic/7160883/2026/03/31/sean-payton-broncos-flag-football-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7160933/2026/03/31/knicks-vs-rockets-stream-how-to-
 **How to watch Hornets vs. Nets: Time, TV, streaming**\
 `Find out how to watch the Charlotte Hornets play the Brooklyn Nets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7160930/2026/03/31/hornets-vs-nets-stream-how-to-watch-march-31/
-
-**How to watch Mavericks vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the Dallas Mavericks play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7160927/2026/03/31/mavericks-vs-bucks-stream-how-to-watch-march-31/
 
