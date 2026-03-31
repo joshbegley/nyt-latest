@@ -1,3 +1,19 @@
+**They Grew Up With Smartphones. This Is How They Live Without Them.**\
+`We asked six young New Yorkers who have taken the leap.`\
+https://nytimes.com/interactive/2026/03/31/magazine/young-people-without-smartphones-photo.html
+
+**Warriors' Curry to take significant step in road to recovery from injury**\
+`Warriors coach Steve Kerr said that Steph Curry will get some 5-on-5 scrimmaging in after practice. `\
+https://nytimes.com/athletic/7161622/2026/03/31/warriors-stephen-curry-injury-recovery/
+
+**What we learned about the Chargers from Jim Harbaugh at the league meeting**\
+`The Chargers enter the draft needing to add help at guard and edge rusher. Competitors welcome. ... So there’s more to come.”`\
+https://nytimes.com/athletic/7161396/2026/03/31/jim-harbaugh-chargers-league-meeting-2026/
+
+**Why Everton qualifying for Europe could give them a financial headache**\
+`David Moyes' side could achieve European football for the first time since 2017-18, but they will need to comply with UEFA financial rules`\
+https://nytimes.com/athletic/7161203/2026/03/31/everton-european-football-financial-analysis/
+
 **Can You Anesthetize a Plant?**\
 `If it’s possible to put plants to sleep using anesthesia, what does that say about whether they’re conscious? Can they feel pain? The author Michael Pollan explores this “spooky and interesting” discovery on “The Ezra Klein Show.”`\
 https://nytimes.com/video/opinion/100000010802908/can-you-anesthetize-a-plant.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/opinion/100000010802900/consciousness-lives-in-our-bod
 **Will the Iran Crisis Push the World to Rethink Oil and Gas?**\
 `A growing energy crisis could push countries to burn more fossil fuels in the short term, experts say. Plus more climate news.`\
 https://nytimes.com/2026/03/31/climate/iran-war-renewable-energy.html
-
-**How to watch Yankees vs. Mariners: Time, TV, streaming for March 31**\
-`Find out how to watch the New York Yankees play the Seattle Mariners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7161527/2026/03/31/yankees-vs-mariners-stream-how-to-watch-march-31/
-
-**How to watch Guardians vs. Dodgers: Time, TV, streaming for March 31**\
-`Find out how to watch the Cleveland Guardians play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7161517/2026/03/31/guardians-vs-dodgers-stream-how-to-watch-march-31/
-
-**Trump’s Executive Order on NPR and PBS Is Unconstitutional, Judge Rules**\
-`The ruling will likely have minimal effect on the federal money going to public media because Congress voted to claw back funding.`\
-https://nytimes.com/2026/03/31/business/media/trump-npr-pbs-executive-order-ruling.html
-
-**How to watch Tigers vs. Diamondbacks: Time, TV, streaming for March 31**\
-`Find out how to watch the Detroit Tigers play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7161509/2026/03/31/tigers-vs-diamondbacks-stream-how-to-watch-march-31/
 
