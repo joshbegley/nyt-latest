@@ -1,3 +1,7 @@
+**Weird & Wild stats and facts from MLB's return. Plus, ranking ABS challenges**\
+`"Nobody knows anything," Trea Turner said this spring. The early days of this baseball season were another reminder that he's right. `\
+https://nytimes.com/athletic/7159460/2026/03/31/mlb-weird-stats-abs-challenge-rankings/
+
 **Mike Gatting, Des Haynes among Middlesex greats calling for action to arrest county's decline**\
 `Ex-players have written an open letter to members calling for action at their AGM amid doubts over the club's long-term future at Lord’s`\
 https://nytimes.com/athletic/7160275/2026/03/31/middlesex-gatting-haynes-lords-agm-members-decline/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/31/world/europe/russia-internet-restrictions.html
 **Putin’s Internet Blackout: A Chaotic Drive to Cut Off Russians From the World**\
 `With new outages and blockages, President Vladimir V. Putin is taking his boldest steps yet to control Russians’ communications.`\
 https://nytimes.com/2026/03/31/world/europe/russia-putin-telegram-internet.html
-
-**Whoop, a Wearable Health Device Maker, Raises $575 Million**\
-`With elite athletes like LeBron James and Cristiano Ronaldo as investors, the company, now valued at $10 billion, is courting everyday health enthusiasts.`\
-https://nytimes.com/2026/03/31/business/dealbook/whoop-a-wearable-health-device-maker-raises-575-million.html
 

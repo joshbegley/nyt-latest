@@ -1,3 +1,7 @@
+**Weird & Wild stats and facts from MLB's return. Plus, ranking ABS challenges**\
+`"Nobody knows anything," Trea Turner said this spring. The early days of this baseball season were another reminder that he's right. `\
+https://nytimes.com/athletic/7159460/2026/03/31/mlb-weird-stats-abs-challenge-rankings/
+
 **Mike Gatting, Des Haynes among Middlesex greats calling for action to arrest county's decline**\
 `Ex-players have written an open letter to members calling for action at their AGM amid doubts over the club's long-term future at Lord’s`\
 https://nytimes.com/athletic/7160275/2026/03/31/middlesex-gatting-haynes-lords-agm-members-decline/
