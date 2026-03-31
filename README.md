@@ -1,3 +1,11 @@
+**The 'very, very good' Jeremiyah Love, and a familiar Giants draft debate**\
+`The star running back from Notre Dame was a subject of conversation with the Giants coach John Harbaugh and GM Joe Schoen on Monday.`\
+https://nytimes.com/athletic/7159428/2026/03/30/new-york-giants-nfl-draft-jeremiyah-love/
+
+**Aaron Rodgers, Mike McCarthy talk often, but QB's future still uncertain**\
+`McCarthy offered little new information but heaped praise on his former QB in numerous ways and highlighted Rodgers' "curiosity" off field.`\
+https://nytimes.com/athletic/7159498/2026/03/30/aaron-rodgers-mccarthy-steelers-qb-uncertain-future/
+
 **Kuwaiti Oil Tanker Is Set Ablaze After Attack Off the Coast of Dubai**\
 `The attack damaged the hull, the owner of the tanker said, which could cause an oil spill.`\
 https://nytimes.com/2026/03/30/world/middleeast/kuwait-oil-tanker-iran-drone.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7159325/2026/03/30/new-york-giants-john-harbaugh-jo
 **Jayden Daniels' flag football experiment had Commanders leaders nervous but supportive**\
 `The Commanders' owner and GM both said they left the decision to participate up to Daniels and told the quarterback they would support him.`\
 https://nytimes.com/athletic/7159448/2026/03/30/jayden-daniels-fanatics-flag-football-classic/
-
-**After Months of Threats, Trump Softens His Stance on Blocking Oil to Cuba**\
-`The White House press secretary said the United States would evaluate oil shipments to Cuba on a “case-by-case basis,” after a Russian tanker full of crude reached the island.`\
-https://nytimes.com/2026/03/30/us/politics/trump-threats-oil-cuba-sanctions.html
-
-**DeSantis Signs Bill to Rename Florida Airport for Trump**\
-`The airport near West Palm Beach will be rebranded the President Donald J. Trump International Airport on July 1, if approved by the Federal Aviation Administration.`\
-https://nytimes.com/2026/03/30/us/politics/trump-airport-palm-beach-florida.html
 
