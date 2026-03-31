@@ -31,7 +31,7 @@ https://nytimes.com/2026/03/31/us/politics/tmz-congress.html
 https://nytimes.com/2026/03/31/world/americas/gustavo-petro-colombia-president-us-charges.html
 
 **Ed Policy was 'shocked' by talk of firing Matt LaFleur prior to extension**\
-`Green Bay's president and CEO lauded the coach's success during his tenure and the locker room support he has.`\
+`Green Bay's president and CEO lauded the coach's success with the Packers, as well as the locker room's support for LaFleur.`\
 https://nytimes.com/athletic/7160618/2026/03/31/ed-policy-matt-lafleur-packers/
 
 **Four Tied to N.Y.C. Contractor to Be Charged in Federal Corruption Inquiry**\

@@ -1,3 +1,23 @@
+**What’s Going On in This Poem?: Join a Live-Moderated Discussion on April 14.**\
+`In honor of National Poetry Month, we invite students to read a short poem, then join a lively discussion about what they notice.`\
+https://nytimes.com/2026/03/31/learning/whats-going-on-in-this-poem-join-a-live-moderated-discussion-on-april-14.html
+
+**How to watch Kraken vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the Seattle Kraken play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7161158/2026/03/31/kraken-vs-oilers-stream-how-to-watch-march-31/
+
+**How to watch Hurricanes vs. Blue Jackets: Time, TV, streaming**\
+`Find out how to watch the Carolina Hurricanes play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7161145/2026/03/31/hurricanes-vs-blue-jackets-stream-how-to-watch-march-31/
+
+**How to watch Jets vs. Blackhawks: Time, TV, streaming**\
+`Find out how to watch the Winnipeg Jets play the Chicago Blackhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7161140/2026/03/31/jets-vs-blackhawks-stream-how-to-watch-march-31/
+
+**Four Tied to N.Y.C. Contractor to Be Charged in Federal Corruption Inquiry**\
+`The arrests were part of an investigation that is also examining the conduct of a city councilwoman, her sister and the Brooklyn Democratic leader’s husband.`\
+https://nytimes.com/2026/03/31/nyregion/investigation-nyc-councilwoman-hochul-aide.html
+
 **How to watch Red Sox vs. Astros: Time, TV, streaming for March 31**\
 `Find out how to watch the Boston Red Sox play the Houston Astros, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7161112/2026/03/31/red-sox-vs-astros-stream-how-to-watch-march-31/
