@@ -18,7 +18,7 @@ https://nytimes.com/2026/03/31/world/americas/gustavo-petro-colombia-president-u
 `Green Bay's president and CEO lauded the coach's success during his tenure and the locker room support he has.`\
 https://nytimes.com/athletic/7160618/2026/03/31/ed-policy-matt-lafleur-packers/
 
-**Four Tied to N.Y.C. Contractor to Be Charged In Federal Corruption Inquiry**\
+**Four Tied to N.Y.C. Contractor to Be Charged in Federal Corruption Inquiry**\
 `The arrests were part of an investigation that is also examining the conduct of a city councilwoman, her sister and the Brooklyn Democratic leader’s husband.`\
 https://nytimes.com/2026/03/31/nyregion/investigation-nyc-councilwoman-hochul-aide.html
 
