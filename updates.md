@@ -1,3 +1,11 @@
+**The Briefing: Kosovo 0 Turkey 1- How good were Yildiz and Guler? Should the USMNT be worried?**\
+`Turkey qualified for the World Cup for the first time in 22 years where they will face the United States, Paraguay and Australia.`\
+https://nytimes.com/athletic/7156215/2026/03/31/kosovo-0-turkey-1-world-cup-playoff-briefing/
+
+**Seven Maple Leafs takeaways from Keith Pelley's media availability**\
+`The MLSE president and CEO addressed the media Tuesday following the firing of Leafs GM Brad Treliving. Here's what stood out.`\
+https://nytimes.com/athletic/7161419/2026/03/31/maple-leafs-keith-pelley-brad-treliving-fired/
+
 **Everything USMNT fans need to know about Turkey, their newest World Cup opponent**\
 `The Group D line-up has been set, but what should we expect?`\
 https://nytimes.com/athletic/7160650/2026/03/31/usmnt-guide-turkey-world-cup/
