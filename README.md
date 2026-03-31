@@ -1,3 +1,7 @@
+**Will $4 Gas Hurt Trump’s Approval Ratings? Here’s What History Shows.**\
+`Presidents since at least the Carter administration have seen their approval ratings tied to gas prices. But there are signs the correlation may be weakening.`\
+https://nytimes.com/2026/03/31/us/politics/trump-approval-ratings-gas-prices.html
+
 **Anthony Edwards returns to Timberwolves' lineup with a new idea of how to play**\
 `Edwards is hoping to pick his spots and get out in transition more as Minnesota pushes toward the playoffs.`\
 https://nytimes.com/athletic/7159723/2026/03/31/anthony-edwards-return-timberwolves-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7149902/2026/03/31/college-football-top-25-2026-ind
 **College softball power rankings: Nebraska trending up, Tennessee's offense struggles**\
 `Jordy Frahm and the Huskers took two of three from UCLA in a key Big Ten series last weekend, while Ole Miss upset Tennessee in the SEC.`\
 https://nytimes.com/athletic/7159051/2026/03/31/college-softball-rankings-texas-nebraska-ucla-ole-miss/
-
-**The power of goaltending, Bolduc-Evans pairing and Demidov bonus content**\
-`Jakub Dobeš is a big reason why the Canadiens are hot, but strong goaltending can be influenced by strong play and vice versa.`\
-https://nytimes.com/athletic/7159892/2026/03/31/canadiens-goaltending-bolduc-evans-demidov-newhook/
 
