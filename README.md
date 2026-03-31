@@ -1,3 +1,7 @@
+**Trump Redefines ‘Regime Change’ in Iran War**\
+`President Trump and his aides have made contradictory statements on whether the United States and Israel have transformed the Iranian government through violence.`\
+https://nytimes.com/2026/03/31/us/politics/trump-regime-change-iran.html
+
 **Allbirds, Once Silicon Valley’s Favorite Shoe, Sells for $39 Million**\
 `Despite once being valued at $4 billion, the company that made sneakers from Merino wool struggled to capture a wide customer base and turn a profit.`\
 https://nytimes.com/2026/03/31/business/allbirds-sold-39-million.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7161032/2026/03/31/cj-stroud-houston-texans-demeco-
 **Dean’s Transports a Breezy Coastal England Pub to SoHo**\
 `The team from King and Jupiter are serving up pork scratchings, crab with buttered crumpets and sticky ginger pudding.`\
 https://nytimes.com/2026/03/31/dining/nyc-restaurant-news.html
-
-**Will Patrick Mahomes be ready for Week 1? Andy Reid has unique perspective on knee rehab**\
-`Mahomes has publicly stated a goal to return for Week 1 of the regular season, and Reid said Tuesday that he "would never bet against him."`\
-https://nytimes.com/athletic/7161074/2026/03/31/chiefs-patrick-mahomes-knee-injury-andy-reid/
 
