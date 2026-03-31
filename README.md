@@ -1,3 +1,7 @@
+**Liam Coen tempers expectations for Travis Hunter's Year 2 impact as two-way player's rehab continues**\
+`Hunter's rookie season in 2025 ended prematurely after suffering a torn LCL.`\
+https://nytimes.com/athletic/7161466/2026/03/31/jacksonville-jaguars-liam-coen-travis-hunter-owners-meetings/
+
 **Bills coach Joe Brady says his approach on Josh Allen's running not changing**\
 `Brady also addressed Keon Coleman, who became a hot topic in the offseason.`\
 https://nytimes.com/athletic/7161607/2026/03/31/joe-brady-josh-allen-running-keon-coleman/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/03/31/magazine/quit-smartphone-addiction-so
 **They Grew Up With Smartphones. This Is How They Live Without Them.**\
 `We asked six young New Yorkers who have taken the leap.`\
 https://nytimes.com/interactive/2026/03/31/magazine/young-people-without-smartphones-photo.html
-
-**Warriors' Curry returns to practice in big step in recovery from injury**\
-`Warriors coach Steve Kerr said that Steph Curry will get some 5-on-5 scrimmaging in after practice. `\
-https://nytimes.com/athletic/7161622/2026/03/31/warriors-stephen-curry-injury-recovery/
 
