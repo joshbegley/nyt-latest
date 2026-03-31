@@ -1,3 +1,11 @@
+**Dean’s Transports a Breezy Coastal England Pub to SoHo**\
+`The team from King and Jupiter are serving up pork scratchings, crab with buttered crumpets and sticky ginger pudding.`\
+https://nytimes.com/2026/03/31/dining/nyc-restaurant-news.html
+
+**Chiefs' Andy Reid gives Patrick Mahomes knee update. It comes from a unique perspective**\
+`Mahomes has publicly stated a goal to return for Week 1 of the regular season, and Reid said Tuesday that he "would never bet against him."`\
+https://nytimes.com/athletic/7161074/2026/03/31/chiefs-patrick-mahomes-knee-injury-andy-reid/
+
 **What’s Going On in This Poem?: Join a Live-Moderated Discussion on April 14.**\
 `In honor of National Poetry Month, we invite students to read a short poem, then join a lively discussion about what they notice.`\
 https://nytimes.com/2026/03/31/learning/whats-going-on-in-this-poem-join-a-live-moderated-discussion-on-april-14.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/31/us/politics/tmz-congress.html
 **U.S. Assures Colombian President He Does Not Face Charges Right Now**\
 `The Justice Department is examining Gustavo Petro for possible ties to drug traffickers. U.S. officials have told him that for now he does not face criminal charges arising from the probes.`\
 https://nytimes.com/2026/03/31/world/americas/gustavo-petro-colombia-president-us-charges.html
-
-**Ed Policy was 'shocked' by talk of firing Matt LaFleur prior to extension**\
-`Green Bay's president and CEO lauded the coach's success with the Packers, as well as the locker room's support for LaFleur.`\
-https://nytimes.com/athletic/7160618/2026/03/31/ed-policy-matt-lafleur-packers/
-
-**Four Tied to N.Y.C. Contractor to Be Charged in Federal Corruption Inquiry**\
-`The arrests were part of an investigation that is also examining the conduct of a city councilwoman, her sister and the Brooklyn Democratic leader’s husband.`\
-https://nytimes.com/2026/03/31/nyregion/investigation-nyc-councilwoman-hochul-aide.html
 

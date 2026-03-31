@@ -1,3 +1,7 @@
+**Ed Policy was 'shocked' by talk of firing Matt LaFleur prior to extension**\
+`Green Bay's president and CEO lauded the coach's success with the Packers, as well as the locker room's support for LaFleur.`\
+https://nytimes.com/athletic/7160618/2026/03/31/ed-policy-matt-lafleur-packers/
+
 **What’s Going On in This Poem?: Join a Live-Moderated Discussion on April 14.**\
 `In honor of National Poetry Month, we invite students to read a short poem, then join a lively discussion about what they notice.`\
 https://nytimes.com/2026/03/31/learning/whats-going-on-in-this-poem-join-a-live-moderated-discussion-on-april-14.html
