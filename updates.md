@@ -1,3 +1,11 @@
+**Artemis II Moon Launch**\
+`See complete coverage of NASA's Artemis II moon launch, the first crewed trip toward the moon since 1972.`\
+https://nytimes.com/news-event/artemis-ii-launch
+
+**If the NBA playoffs started today: Projecting and analyzing the first-round matchups**\
+`From Thunder-Clippers to a classic Celtics-76ers matchup, we look at the concerns across potential first-round series.`\
+https://nytimes.com/athletic/7158470/2026/03/31/nba-playoffs-matchups-pairings-predictions/
+
 **Corrections: March 31, 2026**\
 `Corrections that appeared in print on Tuesday, March 31, 2026.`\
 https://nytimes.com/2026/03/31/pageoneplus/corrections-march-31-2026.html
