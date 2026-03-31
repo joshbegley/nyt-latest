@@ -1,3 +1,15 @@
+**How to watch Trail Blazers vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the Portland Trail Blazers play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7161440/2026/03/31/trail-blazers-vs-clippers-stream-how-to-watch-march-31/
+
+**My Two-Point Peace Plan for the Iran War**\
+`Trump and Netanyahu started the Iran war without thinking how to end it. But there is a way out.`\
+https://nytimes.com/2026/03/31/opinion/trump-iran-war-nuclear-regime-change-peace.html
+
+**‘The Super Mario Galaxy Movie’ Review: It’s-a Meh**\
+`The sequel to the mega-blockbuster can’t hold still long enough to let us enjoy the good stuff.`\
+https://nytimes.com/2026/03/31/movies/the-super-mario-galaxy-movie-review.html
+
 **Packers received 'really good' report on Micah Parsons' ACL rehab**\
 `Parsons is expected to miss the first couple games of the season, while Tucker Kraft should be ready to go for Week 1.`\
 https://nytimes.com/athletic/7161188/2026/03/31/packers-micah-parsons-rehab-brian-gutekunst/
@@ -25,16 +37,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010812443/one-bite-aft
 **Sources: Jaden Ivey will receive full salary after being waived by Bulls**\
 `If and when Ivey clears waivers, the 24-year-old guard will be an unrestricted free agent.`\
 https://nytimes.com/athletic/7161166/2026/03/31/jaden-ivey-bulls-waived-salary/
-
-**Red Wings sign top goalie prospect, Hobey Baker finalist Trey Augustine**\
-`The Red Wings signed the 2023 second-round pick after Michigan State was eliminated from the NCAA Tournament.`\
-https://nytimes.com/athletic/7155049/2026/03/31/red-wings-trey-augustine-hobey-baker-michigan-state/
-
-**How Bengals, Zac Taylor view the work left to do on defense**\
-`Taylor stressed patience with young players and said the team has a vision for second-year linebackers Demetrius Knight and Barrett Carter.`\
-https://nytimes.com/athletic/7161221/2026/03/31/bengals-zac-taylor-defense-offseason/
-
-**Max Dowman just delivered another masterclass. So what now, England?**\
-`Arsenal's 16-year-old prodigy served another reminder of his brilliance for England's under-19s in Portugal`\
-https://nytimes.com/athletic/7161151/2026/03/31/max-dowman-england-u19-goal/
 
