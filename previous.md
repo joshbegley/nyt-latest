@@ -1,40 +1,40 @@
-**For Trump, Moon Mission Is a Ticket to Greater Goals, and His Own Legacy**\
-`No president since the Apollo era has pushed harder to return to the moon than President Trump. But he wants a space achievement that is about “more than getting rocks this time.”`\
-https://nytimes.com/2026/03/31/us/politics/trump-artemis-ii-moon-mission.html
+**Trump Faces a Decision on Whether to Start a Ground War in Iran**\
+`The president wants a negotiation, but the Iranians say they are refusing until a cease-fire is declared. And while Marines and the 82nd Airborne Division offer new leverage, the risks escalate quickly.`\
+https://nytimes.com/2026/03/31/us/politics/trump-faces-a-decision-on-whether-to-start-a-ground-war-in-iran.html
 
-**They’re Going to the Moon and They Know Not Everyone Is With Them**\
-`Can the four astronauts of the NASA mission Artemis II make a difference in a distracted and divided world?`\
-https://nytimes.com/2026/03/31/science/nasa-artemis-ii-mission-astronauts.html
+**Americans Count Their Pennies at the Pump as the Iran War Grinds On**\
+`Since the Iran conflict began on Feb. 28, gas prices across the United States have increased about 35 percent. They are now above $4 a gallon, and drivers are wincing.`\
+https://nytimes.com/2026/03/31/us/gas-prices-iran-war.html
 
-**Colts GM Chris Ballard puts last year's start in rearview mirror: 'That ... is over'**\
-`Ballard shared his thoughts on Daniel Jones, Riley Leonard, Anthony Richardson and more at the NFL's annual meeting.`\
-https://nytimes.com/athletic/7159540/2026/03/31/colts-chris-ballard-2026-outlook/
+**Sketches Found in a Closet Reveal Reality of the Holocaust**\
+`The drawings, now on display at Manhattan University, were found in a house in Westchester County.`\
+https://nytimes.com/2026/03/31/nyregion/sketches-holocaust-manhattan-university.html
 
-**Fresh Food Distributors Add Surcharges as Fuel Costs Rise**\
-`Delivering salmon, fruits and other perishable foods has become more expensive as the war with Iran pushes up diesel prices.`\
-https://nytimes.com/2026/03/31/business/food-distributors-surcharges-fuel.html
+**I Wrote a Cesar Chavez Biography. This Is How His Secrets Stayed Buried.**\
+`Reckoning with the United Farm Workers founder means reckoning with his movement.`\
+https://nytimes.com/2026/03/31/opinion/cesar-chavez-sexual-abuse-allegations-biographer.html
 
-**Newcastle United's owners sold St James' Park to themselves - accounts show club no longer officially owns its home**\
-`The 2024-25 accounts reveal the sale of the stadium and adjacent land to another company owned by the club’s shareholders`\
-https://nytimes.com/athletic/7157606/2026/03/31/newcastle-accounts-st-james-sale/
+**Bill Lawrence and Christa Miller List Their NoMad Condo for $7.85 Million**\
+`The Hollywood couple’s three-bedroom apartment is on the 14th floor of 212 Fifth Avenue, where Jeff Bezos also owns several units.`\
+https://nytimes.com/2026/03/31/realestate/bill-lawrence-and-christa-miller-list-their-nomad-condo-for-7-85-million.html
 
-**Eddie Howe's future, player sales and the stadium - what Newcastle's hierarchy said and meant**\
-`David Hopkinson, Newcastle's chief executive, sat down with journalists to discuss the club's latest accounts`\
-https://nytimes.com/athletic/7157384/2026/03/31/newcastle-eddie-howe-future-player-sales/
+**Cubans React to Arrival of Russian Oil Tanker**\
+`A Russian tanker full of crude oil arrived in Cuba, offering a slight reprieve to Cubans after regular blackouts amid a severe energy crisis. Some said it was not enough.`\
+https://nytimes.com/video/world/americas/100000010811866/cuba-oil-russia-tanker.html
 
-**Average Gasoline Price Hits $4 in U.S., a ‘Headache’ for Drivers and Trump**\
-`A month since the first U.S.-Israeli attacks and Iran’s response effectively shut off Persian Gulf oil, drivers are paying significantly more to fill up.`\
-https://nytimes.com/2026/03/31/business/gas-prices-4-dollars-gallon-iran.html
+**‘The Book of Mormon’ Is Sorry if You Were Offended for 15 Years**\
+`The taboo-busting, gasp-inducing Broadway musical comedy has been a hit with audiences and critics. But could it be produced today?`\
+https://nytimes.com/2026/03/31/theater/book-of-mormon-stone-parker.html
 
-**In bare feet, Giants manager Tony Vitello soaks up his first major league victory**\
-`Vitello got a beer shower from his players after the Giants won their first game of the season and his major-league career.`\
-https://nytimes.com/athletic/7160164/2026/03/31/tony-vitello-giants-first-win-mlb-padres/
+**On What Was Once Chavez Day, Some Try to Highlight a Movement, Not a Man**\
+`The reconsideration of the legacy of Cesar Chavez after he was accused of abusing women and girls has led some to question the lionization of icons, when reality is so often a letdown.`\
+https://nytimes.com/2026/03/31/us/cesar-chavez-day-fallen-hero.html
 
-**Marc Cucurella interview: Chelsea’s season has 'paid the price' for inexperience, impact of Maresca exit, and story of the huddle**\
-`Cucurella has become a key player for both Chelsea and Spain. He speaks frankly to The Athletic about what's going wrong for his club side`\
-https://nytimes.com/athletic/7157593/2026/03/31/chelsea-marc-cucurella-exclusive-interview-maresca/
+**Michael Pollan’s Journey to the Borderlands of Consciousness**\
+`Pollan, a science writer, spent five years trying to understand how consciousness worked. The more he learned, the weirder things got.`\
+https://nytimes.com/video/opinion/100000010802886/michael-pollans-journey-to-the-borderlands-of-consciousness.html
 
-**Favorite Podcasts**\
-`What do you like to listen to? Why?`\
-https://nytimes.com/2026/03/31/learning/favorite-podcasts.html
+**Latino Republicans in South Texas Break With Trump Over Birthright Citizenship**\
+`Frustrated by the Trump administration’s immigration crackdown, some Latino voters say they also disagree with his plan, now before the Supreme Court, to reject automatic citizenship for children born in the United States to immigrant parents.`\
+https://nytimes.com/2026/03/31/us/south-texas-latino-republicans-trump-birthright-citizenship.html
 
