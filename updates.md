@@ -1,3 +1,7 @@
+**They’re Going to the Moon and They Know Not Everyone Is With Them**\
+`Can the four astronauts of the NASA mission Artemis II make a difference in a distracted and divided world?`\
+https://nytimes.com/2026/03/31/science/nasa-artemis-ii-mission-astronauts.html
+
 **Colts GM Chris Ballard puts last year's start in rearview mirror: 'That ... is over'**\
 `Ballard shared his thoughts on Daniel Jones, Riley Leonard, Anthony Richardson and more at the NFL's annual meeting.`\
 https://nytimes.com/athletic/7159540/2026/03/31/colts-chris-ballard-2026-outlook/

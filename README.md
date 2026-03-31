@@ -1,3 +1,7 @@
+**For Trump, Moon Mission Is a Ticket to Greater Goals, and His Own Legacy**\
+`No president since the Apollo era has pushed harder to return to the moon than President Trump. But he wants a space achievement that is about “more than getting rocks this time.”`\
+https://nytimes.com/2026/03/31/us/politics/trump-artemis-ii-moon-mission.html
+
 **They’re Going to the Moon and They Know Not Everyone Is With Them**\
 `Can the four astronauts of the NASA mission Artemis II make a difference in a distracted and divided world?`\
 https://nytimes.com/2026/03/31/science/nasa-artemis-ii-mission-astronauts.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7157593/2026/03/31/chelsea-marc-cucurella-exclusive
 **Favorite Podcasts**\
 `What do you like to listen to? Why?`\
 https://nytimes.com/2026/03/31/learning/favorite-podcasts.html
-
-**The Push to Ban Cars From All New York City Parks**\
-`Central Park is car-free, and so is Prospect Park. What about the rest?`\
-https://nytimes.com/2026/03/31/nyregion/car-free-parks-nyc.html
 
