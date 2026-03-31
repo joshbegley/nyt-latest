@@ -1,3 +1,7 @@
+**Mohamed Salah next club odds: MLS, Saudi, Barcelona or a return to Roma?**\
+`Speculation is already swirling over Salah’s next destination. At the age of 33, the winger is already into the twilight of his career`\
+https://nytimes.com/athletic/7160277/2026/03/31/mohamed-salah-next-club-odds-liverpool-premier-league/
+
 **The Pulse: Being shorter is better**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7158260/2026/03/31/mlb-abs-overturns-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7159220/2026/03/31/cowboys-middle-linebacker-roster
 **Yankees suffer first loss of the season, but it could have been worse**\
 `There are no good losses. But the Yankees' 2-1 defeat Monday night in Seattle wasn't terrible.`\
 https://nytimes.com/athletic/7160140/2026/03/31/yankees-first-loss-mariners/
-
-**Isles' playoff hopes in danger after loss to Penguins: 'One of our worst games defensively'**\
-`"We lost a big game tonight," captain Anders Lee said after an 8-3 thrashing in which his team blew a 3-1 lead.`\
-https://nytimes.com/athletic/7159932/2026/03/31/islanders-loss-penguins-playoff-hopes-danger/
 
