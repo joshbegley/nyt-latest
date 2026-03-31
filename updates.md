@@ -1,3 +1,11 @@
+**FIFA confirms new offside rule to be trialed in Canadian Premier League**\
+`The new regulation will be tested when the CPL begins its season this weekend`\
+https://nytimes.com/athletic/7158945/2026/03/31/canadian-premier-league-offside-wenger/
+
+**First look at the Final Four: Who has the edge? South Carolina or UConn? Texas or UCLA?**\
+`Same teams, but different rosters. This Final Four may yield the same results. `\
+https://nytimes.com/athletic/7160006/2026/03/31/final-four-breakdown-uconn-south-carolina-texas-ucla/
+
 **Aston Villa, the Europa League and ticket prices — is there a breaking point?**\
 `Villa Park has not been sold out for any Europa League fixture this season with frustration at prices for the quarter-final against Bologna`\
 https://nytimes.com/athletic/7146529/2026/03/31/aston-villa-ticket-prices-bologna-europa-league/
