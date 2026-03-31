@@ -1,13 +1,17 @@
+**Is There Life After Smartphones?**\
+`What happens when a growing cohort of young people decide to ditch their devices?`\
+https://nytimes.com/interactive/2026/03/31/magazine/quit-smartphone-addiction-social-media.html
+
 **They Grew Up With Smartphones. This Is How They Live Without Them.**\
 `We asked six young New Yorkers who have taken the leap.`\
 https://nytimes.com/interactive/2026/03/31/magazine/young-people-without-smartphones-photo.html
 
-**Warriors' Curry to take significant step in road to recovery from injury**\
+**Warriors' Curry returns to practice in big step in recovery from injury**\
 `Warriors coach Steve Kerr said that Steph Curry will get some 5-on-5 scrimmaging in after practice. `\
 https://nytimes.com/athletic/7161622/2026/03/31/warriors-stephen-curry-injury-recovery/
 
 **What we learned about the Chargers from Jim Harbaugh at the league meeting**\
-`The Chargers enter the draft needing to add help at guard and edge rusher. Competitors welcome. ... So there’s more to come.”`\
+`The Chargers enter the draft needing to add help at guard and edge rusher. Harbaugh: "Competitors welcome. ... So there’s more to come.”`\
 https://nytimes.com/athletic/7161396/2026/03/31/jim-harbaugh-chargers-league-meeting-2026/
 
 **Why Everton qualifying for Europe could give them a financial headache**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7161346/2026/03/31/broncos-sean-payton-free-agency-
 **Consciousness Lives in Our Bodies**\
 `“The brain exists to keep the body alive, not the other way around,” argues the author Michael Pollan as he explores the connection between consciousness and the body in this episode of “The Ezra Klein Show.”`\
 https://nytimes.com/video/opinion/100000010802900/consciousness-lives-in-our-bodies.html
-
-**Will the Iran Crisis Push the World to Rethink Oil and Gas?**\
-`A growing energy crisis could push countries to burn more fossil fuels in the short term, experts say. Plus more climate news.`\
-https://nytimes.com/2026/03/31/climate/iran-war-renewable-energy.html
 
