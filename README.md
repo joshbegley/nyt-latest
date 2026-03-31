@@ -1,3 +1,15 @@
+**Eric Swalwell Sends Cease-and-Desist Letter to F.B.I. Over Case Files**\
+`A Trump administration effort to gather documents from an old investigation had alarmed law enforcement officials, who feared it would be used to smear the Democratic lawmaker.`\
+https://nytimes.com/2026/03/30/us/politics/eric-swalwell-fbi.html
+
+**Texas decimates Michigan for return trip to Final Four**\
+`Texas' defense was at its trademark best, giving the Wolverines fits throughout the Elite Eight contest.`\
+https://nytimes.com/athletic/7159671/2026/03/30/texas-michigan-elite-eight-ncaa-tournament/
+
+**Senators Seek Answers From Trump Administration About Airport Immigration Arrests**\
+`Airport security officials have been sharing passenger data with immigration agents, but the program received little attention until videos captured a woman and her daughter being detained at San Francisco’s airport.`\
+https://nytimes.com/2026/03/30/us/senators-trump-airport-immigration-arrests.html
+
 **Maple Leafs fire general manager Brad Treliving**\
 `The Leafs fired Treliving while set to miss the playoffs for the first time in ten years.`\
 https://nytimes.com/athletic/7159646/2026/03/30/leafs-fire-gm-treliving/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/30/world/middleeast/iran-middle-east-war-recap-monda
 **Nationals' Joey Wiemer's historic on-base streak ends; OF part of rare group**\
 `It was a streak that seemed as though it could not die, produced by a man who would not let his career die.`\
 https://nytimes.com/athletic/7159592/2026/03/30/washington-nationals-joey-wiemer-streak-ends/
-
-**Cardinals' No. 3 pick could shape the organization and the NFL Draft's first round**\
-`A new coach brings optimism, but the uncertainty at quarterback has made it difficult for fans to move on from last season's misery. `\
-https://nytimes.com/athletic/7158936/2026/03/30/arizona-cardinals-nfl-draft-first-round-pick/
-
-**She Was a Famous Millennial Feminist. Her Polyamory Memoir Is Heartbreaking.**\
-`Almost every ideology can be wielded to make women feel that they’re failing.`\
-https://nytimes.com/2026/03/30/opinion/feminism-polyamory-lindy-west.html
-
-**Talk of a potential Odell Beckham Jr.-Giants reunion at the league meetings**\
-`At the league meetings on Monday, John Harbaugh and Joe Schoen addressed the potential for additions across the roster.`\
-https://nytimes.com/athletic/7159325/2026/03/30/new-york-giants-john-harbaugh-joe-schoen-league-meetings/
 
