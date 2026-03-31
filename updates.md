@@ -1,3 +1,7 @@
+**These Two Countries With Social Media Bans Aren’t Happy With Google and Meta**\
+`Indonesia says the two companies are violating its law that bars children under 16 from the social media. Australia has similar concerns.`\
+https://nytimes.com/2026/03/31/world/asia/indonesia-australia-social-media-ban.html
+
 **As Maple Leafs fire Brad Treliving, spotlight shifts to CEO Keith Pelley**\
 `Why should anyone in Toronto be left with the belief that MLSE CEO Keith Pelley is capable of saving this sinking ship?`\
 https://nytimes.com/athletic/7160015/2026/03/31/maple-leafs-brad-treliving-keith-pelley/
