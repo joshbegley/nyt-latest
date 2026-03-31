@@ -1,3 +1,11 @@
+**Seahawks get the 'Hard Knocks' call for 2026, Patriots on deck for next season**\
+`The series debuted in 2001 with the Baltimore Ravens as the team in the spotlight.`\
+https://nytimes.com/athletic/7159745/2026/03/30/hbo-hard-knocks-seahawks-patriots/
+
+**Five million people registered for 2028 Olympics tickets; winners learn fate this week**\
+`Locals will get first dibs, with everyone in LA-area counties or Oklahoma City learning Tuesday through Thursday if they can buy tickets. `\
+https://nytimes.com/athletic/7159525/2026/03/30/2028-la-olympics-tickets-lottery-winners-sales-process/
+
 **Macklin Celebrini becomes sixth teenager to score 100 points in NHL season**\
 `Celebrini has moved into league-wide stardom this season.`\
 https://nytimes.com/athletic/7158797/2026/03/30/macklin-celebrini-sharks-100-points/

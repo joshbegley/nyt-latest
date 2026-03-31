@@ -1,3 +1,7 @@
+**Seahawks get the 'Hard Knocks' call for 2026, Patriots on deck for next season**\
+`The series debuted in 2001 with the Baltimore Ravens as the team in the spotlight.`\
+https://nytimes.com/athletic/7159745/2026/03/30/hbo-hard-knocks-seahawks-patriots/
+
 **Macklin Celebrini becomes sixth teenager to score 100 points in NHL season**\
 `Celebrini has moved into league-wide stardom this season.`\
 https://nytimes.com/athletic/7158797/2026/03/30/macklin-celebrini-sharks-100-points/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/7158797/2026/03/30/macklin-celebrini-sharks-100-poi
 `The players dropped gloves just after the opening faceoff.`\
 https://nytimes.com/athletic/7159586/2026/03/30/radko-gudas-leafs-fight-domi/
 
-**5 million people registered for 2028 Olympics tickets. Winners learn fate this week.**\
+**Five million people registered for 2028 Olympics tickets; winners learn fate this week**\
 `Locals will get first dibs, with everyone in LA-area counties or Oklahoma City learning Tuesday through Thursday if they can buy tickets. `\
 https://nytimes.com/athletic/7159525/2026/03/30/2028-la-olympics-tickets-lottery-winners-sales-process/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7159646/2026/03/30/leafs-fire-gm-treliving/
 **The 'very, very good' Jeremiyah Love, and a familiar Giants draft debate**\
 `The star running back from Notre Dame was a subject of conversation with the Giants coach John Harbaugh and GM Joe Schoen on Monday.`\
 https://nytimes.com/athletic/7159428/2026/03/30/new-york-giants-nfl-draft-jeremiyah-love/
-
-**Aaron Rodgers, Mike McCarthy talk often, but QB's future still uncertain**\
-`McCarthy offered little new information but heaped praise on his former QB in numerous ways and highlighted Rodgers' "curiosity" off field.`\
-https://nytimes.com/athletic/7159498/2026/03/30/aaron-rodgers-mccarthy-steelers-qb-uncertain-future/
 
