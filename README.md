@@ -1,3 +1,11 @@
+**Allbirds, Once Silicon Valley’s Favorite Shoe, Sells for $39 Million**\
+`Despite once being valued at $4 billion, the company that made sneakers from Merino wool struggled to capture a wide customer base and turn a profit.`\
+https://nytimes.com/2026/03/31/business/allbirds-sold-39-million.html
+
+**Footage Shows U.S. Bombing in Iranian City of Isfahan**\
+`President Trump shared a video of the attack, which the Pentagon said had targeted an ammunition depot.`\
+https://nytimes.com/2026/03/31/world/middleeast/isfahan-iran-bombing-trump-video.html
+
 **Republican Candidate for N.Y. Governor Is Denied Public Matching Funds**\
 `Bruce Blakeman, who is trying to unseat Gov. Kathy Hochul, will not receive up to $7 million, after a 4-to-3 ruling by a Democratic-led board.`\
 https://nytimes.com/2026/03/31/nyregion/bruce-blakeman-matching-funds.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/31/dining/nyc-restaurant-news.html
 **Will Patrick Mahomes be ready for Week 1? Andy Reid has unique perspective on knee rehab**\
 `Mahomes has publicly stated a goal to return for Week 1 of the regular season, and Reid said Tuesday that he "would never bet against him."`\
 https://nytimes.com/athletic/7161074/2026/03/31/chiefs-patrick-mahomes-knee-injury-andy-reid/
-
-**What’s Going On in This Poem?: Join a Live-Moderated Discussion on April 14.**\
-`In honor of National Poetry Month, we invite students to read a short poem, then join a lively discussion about what they notice.`\
-https://nytimes.com/2026/03/31/learning/whats-going-on-in-this-poem-join-a-live-moderated-discussion-on-april-14.html
-
-**How to watch Kraken vs. Oilers: Time, TV, streaming**\
-`Find out how to watch the Seattle Kraken play the Edmonton Oilers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7161158/2026/03/31/kraken-vs-oilers-stream-how-to-watch-march-31/
 

@@ -1,3 +1,7 @@
+**Republican Candidate for N.Y. Governor Is Denied Public Matching Funds**\
+`Bruce Blakeman, who is trying to unseat Gov. Kathy Hochul, will not receive up to $7 million, after a 4-to-3 ruling by a Democratic-led board.`\
+https://nytimes.com/2026/03/31/nyregion/bruce-blakeman-matching-funds.html
+
 **Why Australia Enshrined ‘a Succulent Chinese Meal’ Rant in Its Archive**\
 `A clip of the con man Jack Karlson delivering a theatrical soliloquy while being arrested in 1991 has been deemed one of the country’s important cultural recordings.`\
 https://nytimes.com/2026/03/31/world/australia/jack-karlson-succulent-chinese-meal-meme.html

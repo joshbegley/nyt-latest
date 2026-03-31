@@ -1,3 +1,7 @@
+**Republican Candidate for N.Y. Governor Is Denied Public Matching Funds**\
+`Bruce Blakeman, who is trying to unseat Gov. Kathy Hochul, will not receive up to $7 million, after a 4-to-3 ruling by a Democratic-led board.`\
+https://nytimes.com/2026/03/31/nyregion/bruce-blakeman-matching-funds.html
+
 **Why Australia Enshrined ‘a Succulent Chinese Meal’ Rant in Its Archive**\
 `A clip of the con man Jack Karlson delivering a theatrical soliloquy while being arrested in 1991 has been deemed one of the country’s important cultural recordings.`\
 https://nytimes.com/2026/03/31/world/australia/jack-karlson-succulent-chinese-meal-meme.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/31/learning/whats-going-on-in-this-poem-join-a-live-
 **How to watch Kraken vs. Oilers: Time, TV, streaming**\
 `Find out how to watch the Seattle Kraken play the Edmonton Oilers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7161158/2026/03/31/kraken-vs-oilers-stream-how-to-watch-march-31/
-
-**How to watch Hurricanes vs. Blue Jackets: Time, TV, streaming**\
-`Find out how to watch the Carolina Hurricanes play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7161145/2026/03/31/hurricanes-vs-blue-jackets-stream-how-to-watch-march-31/
 
