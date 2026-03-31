@@ -1,5 +1,9 @@
+**Sources: Jaden Ivey will receive full salary after being waived by Bulls**\
+`If and when Ivey clears waivers, the 24-year-old guard will be an unrestricted free agent.`\
+https://nytimes.com/athletic/7161166/2026/03/31/jaden-ivey-bulls-waived-salary/
+
 **Red Wings sign top goalie prospect, Hobey Baker finalist Trey Augustine**\
-`The Red Wings signed the 2023 second-round pick after Michigan State was eliminated from the NCAA Tournament this weekend.`\
+`The Red Wings signed the 2023 second-round pick after Michigan State was eliminated from the NCAA Tournament.`\
 https://nytimes.com/athletic/7155049/2026/03/31/red-wings-trey-augustine-hobey-baker-michigan-state/
 
 **How Bengals, Zac Taylor view the work left to do on defense**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/31/world/australia/jack-karlson-succulent-chinese-me
 **10 Synth-Pop Songs That Bring the Drama**\
 `With TV soundtracks increasingly turning to nostalgic ’80s tracks, hear a playlist of essential hits and deeper cuts.`\
 https://nytimes.com/2026/03/31/arts/music/amplifier-newsletter-synth-pop-songs.html
-
-**Las Vegas Is Still a March Madness Mecca**\
-`The influx of fans during this month’s college basketball tournament is a welcome lift to the city’s casinos and hotels after a dismal 2025, when the number of visitors fell 7.5 percent.`\
-https://nytimes.com/2026/03/31/business/las-vegas-march-madness-tourism.html
 

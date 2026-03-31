@@ -1,3 +1,11 @@
+**Sources: Jaden Ivey will receive full salary after being waived by Bulls**\
+`If and when Ivey clears waivers, the 24-year-old guard will be an unrestricted free agent.`\
+https://nytimes.com/athletic/7161166/2026/03/31/jaden-ivey-bulls-waived-salary/
+
+**Red Wings sign top goalie prospect, Hobey Baker finalist Trey Augustine**\
+`The Red Wings signed the 2023 second-round pick after Michigan State was eliminated from the NCAA Tournament.`\
+https://nytimes.com/athletic/7155049/2026/03/31/red-wings-trey-augustine-hobey-baker-michigan-state/
+
 **Red Wings sign top goalie prospect, Hobey Baker finalist Trey Augustine**\
 `The Red Wings signed the 2023 second-round pick after Michigan State was eliminated from the NCAA Tournament this weekend.`\
 https://nytimes.com/athletic/7155049/2026/03/31/red-wings-trey-augustine-hobey-baker-michigan-state/

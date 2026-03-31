@@ -1,3 +1,19 @@
+**All the NFL rule changes, including more replay assistance in case of replacement refs**\
+`NFL owners also approved several other rule changes at the annual league meetings, including three related to kickoffs. `\
+https://nytimes.com/athletic/7161251/2026/03/31/nfl-rule-changes-replacement-officials-replay-kickoff-2026/
+
+**Jesse Minter: Ravens 'in a good place' heading into offseason workout program**\
+`Minter discussed the team's upcoming workout sessions, Lamar Jackson's approach to the offseason and more at the league meeting in Phoenix.`\
+https://nytimes.com/athletic/7161096/2026/03/31/ravens-jesse-minter-offseason-program-nfl-meeting/
+
+**Federal Judge Approves Trump Effort to Extract List of Jews From Penn**\
+`The decision to allow the government to collect the names and phone numbers of Jewish people on campus could allow the government to pursue similar tactics elsewhere.`\
+https://nytimes.com/2026/03/31/us/politics/federal-judge-approves-trump-effort-to-extract-list-of-jews-from-penn.html
+
+**One Bite After Another**\
+`These snacks may not be Oscar-worthy, but perhaps this video is PTA approved?`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010812443/one-bite-after-another.html
+
 **Sources: Jaden Ivey will receive full salary after being waived by Bulls**\
 `If and when Ivey clears waivers, the 24-year-old guard will be an unrestricted free agent.`\
 https://nytimes.com/athletic/7161166/2026/03/31/jaden-ivey-bulls-waived-salary/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/31/us/politics/trump-regime-change-iran.html
 **Allbirds, Once Silicon Valley’s Favorite Shoe, Sells for $39 Million**\
 `Despite once being valued at $4 billion, the company that made sneakers from Merino wool struggled to capture a wide customer base and turn a profit.`\
 https://nytimes.com/2026/03/31/business/allbirds-sold-39-million.html
-
-**Footage Shows U.S. Bombing in Iranian City of Isfahan**\
-`President Trump shared a video of the attack, which the Pentagon said had targeted an ammunition depot.`\
-https://nytimes.com/2026/03/31/world/middleeast/isfahan-iran-bombing-trump-video.html
-
-**Republican Candidate for N.Y. Governor Is Denied Public Matching Funds**\
-`Bruce Blakeman, who is trying to unseat Gov. Kathy Hochul, will not receive up to $7 million, after a 4-to-3 ruling by a Democratic-led board.`\
-https://nytimes.com/2026/03/31/nyregion/bruce-blakeman-matching-funds.html
-
-**Why Australia Enshrined ‘a Succulent Chinese Meal’ Rant in Its Archive**\
-`A clip of the con man Jack Karlson delivering a theatrical soliloquy while being arrested in 1991 has been deemed one of the country’s important cultural recordings.`\
-https://nytimes.com/2026/03/31/world/australia/jack-karlson-succulent-chinese-meal-meme.html
-
-**10 Synth-Pop Songs That Bring the Drama**\
-`With TV soundtracks increasingly turning to nostalgic ’80s tracks, hear a playlist of essential hits and deeper cuts.`\
-https://nytimes.com/2026/03/31/arts/music/amplifier-newsletter-synth-pop-songs.html
 
