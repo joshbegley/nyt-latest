@@ -1,3 +1,11 @@
+**South Africa Sees Maritime Traffic Surge Amid Iran War**\
+`Global shipping companies looking for safer routes are turning to the Cape of Good Hope, a much longer, more expensive journey.`\
+https://nytimes.com/2026/03/31/world/africa/africa-iran-shipping-houthis.html
+
+**Gattuso apologises after Italy miss out on 2026 World Cup**\
+`Italy were beaten on penalties by Bosnia & Herzegovina in the qualification playoff final on Tuesday.`\
+https://nytimes.com/athletic/7162137/2026/03/31/gennaro-gattuso-italy-world-cup/
+
 **Drivers Say Rising Gas Prices Are ‘Out of Control’**\
 `Gasoline prices in the U.S. passed $4 a gallon, on average, as the war in the Middle East affects global energy markets. Drivers said that the rising costs were affecting their wallets.`\
 https://nytimes.com/video/us/100000010813164/gas-prices-iran-war-drivers-reactions.html
