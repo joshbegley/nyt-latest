@@ -1,3 +1,11 @@
+**Eli Lilly Will Buy a Narcolepsy Drug Developer for $6.3 Billion**\
+`Eli Lilly plans to acquire Centessa Pharmaceuticals, which has been conducting a midstage clinical trial of its lead drug.`\
+https://nytimes.com/2026/03/31/business/eli-lilly-narcolepsy-centessa.html
+
+**The Chaotic Competition for Trump’s Attention**\
+`The scholar Henry Farrell explains how efforts to capture Trump’s attention and approval through spectacle resemble the attention dynamics in Nazi Germany.`\
+https://nytimes.com/video/opinion/100000010810043/the-chaotic-competition-for-trumps-attention.html
+
 **Mariners' Colt Emerson nearing $95 million extension, a record for MLB prospect before debut**\
 `It may not be long before the 20-year-old is given a chance to help the Mariners attempt to secure a second straight division title.`\
 https://nytimes.com/athletic/7160565/2026/03/31/mariners-colt-emerson-debut-deal-record-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/31/business/mccormick-unilever-food-aquisition.html
 **Tiger Woods' DUI arrest details released: Says phone led to crash, found with pills**\
 `Woods was arrested Friday in Jupiter Island, Fla., after he struck a truck hauling a trailer and flipped his Land Rover onto its side.`\
 https://nytimes.com/athletic/7160591/2026/03/31/tiger-woods-dui-arrest-details-phone-radio-pills/
-
-**The Bounce: A Hall of Fame mistake that needs fixing. Plus, the Jaden Ivey saga**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/7160535/2026/03/31/marques-johnson-nba-hall-of-fame-the-bounce/
-
-**The ‘God Squad’ Waives Environmental Rules for Offshore Drilling**\
-`The panel voted to override Endangered Species Act restrictions on oil and gas activities in the Gulf of Mexico, home to critically endangered whales and other imperiled wildlife.`\
-https://nytimes.com/2026/03/31/climate/god-squad-whales-gulf.html
 
