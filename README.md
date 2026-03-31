@@ -1,3 +1,11 @@
+**Women’s NCAA Tournament odds: UConn enters repeat Final Four as clear favorite**\
+`All four No. 1 seeds are in the Final Four. But can anyone challenge UConn's dominance?`\
+https://nytimes.com/athletic/7160503/2026/03/31/ncaa-tournament-odds-womens-uconn-texas-ucla-south-carolina/
+
+**How to watch Suns vs. Magic: Time, TV, streaming**\
+`Find out how to watch the Phoenix Suns play the Orlando Magic, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7160739/2026/03/31/suns-vs-magic-stream-how-to-watch-march-31/
+
 **Sneakers for Any Walking Style**\
 `These are just a few fave spring sneaks. See more favorites on Wirecutter.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010812388/sneakers-for-any-walking-style.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/31/arts/music/british-invasion-raye-olivia-dean-pink
 **Toy Testing with a Discerning Bodega Cat**\
 `Cats are notoriously difficult to buy toys for, so we enlisted the help of Oreo — a lazy yet discerning bodega cat — and Michelladonna of “Shop Cats” to test a few options with pets writer Mel Plaut.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010812365/toy-testing-with-a-discerning-bodega-cat.html
-
-**What’s Your Fave Organizational Tool?**\
-`Here are a few of our favorite organizational hacks.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010812333/whats-your-fave-organizational-tool.html
-
-**King Charles to Visit U.S. as Tensions Rise Between Trump and Britain**\
-`President Trump has fired criticism at America’s longtime ally over the war in Iran, but there are hopes that the royal visit will help shore up relations.`\
-https://nytimes.com/2026/03/31/world/europe/king-charles-state-visit-trump.html
 
