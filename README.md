@@ -1,3 +1,7 @@
+**These Pistons won't go down without a fight, even down four starters at OKC**\
+`"We go out there and fight every night," Javonte Green said after undermanned Detroit took the defending champs to overtime.`\
+https://nytimes.com/athletic/7160095/2026/03/31/pistons-thunder-injury-overtime/
+
 **Will $4 Gas Hurt Trump’s Approval Ratings? Here’s What History Shows.**\
 `Presidents since at least the Carter administration have seen their approval ratings tied to gas prices. But there are signs the correlation may be weakening.`\
 https://nytimes.com/2026/03/31/us/politics/trump-approval-ratings-gas-prices.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7158048/2026/03/31/tye-kartye-new-york-rangers-waiv
 **Indiana's QB, Miami's pass rush, Texas' O-line: 1 key question for each AP Top 25 team**\
 `Can Georgia find a big-play option in the passing game? Can John Mateer take a Year 2 leap at OU? How will Iowa rebuild its O-line?`\
 https://nytimes.com/athletic/7149902/2026/03/31/college-football-top-25-2026-indiana-miami-texas/
-
-**College softball power rankings: Nebraska trending up, Tennessee's offense struggles**\
-`Jordy Frahm and the Huskers took two of three from UCLA in a key Big Ten series last weekend, while Ole Miss upset Tennessee in the SEC.`\
-https://nytimes.com/athletic/7159051/2026/03/31/college-softball-rankings-texas-nebraska-ucla-ole-miss/
 

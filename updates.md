@@ -1,3 +1,7 @@
+**Will $4 Gas Hurt Trump’s Approval Ratings? Here’s What History Shows.**\
+`Presidents since at least the Carter administration have seen their approval ratings tied to gas prices. But there are signs the correlation may be weakening.`\
+https://nytimes.com/2026/03/31/us/politics/trump-approval-ratings-gas-prices.html
+
 **Anthony Edwards returns to Timberwolves' lineup with a new idea of how to play**\
 `Edwards is hoping to pick his spots and get out in transition more as Minnesota pushes toward the playoffs.`\
 https://nytimes.com/athletic/7159723/2026/03/31/anthony-edwards-return-timberwolves-nba/
