@@ -1,3 +1,11 @@
+**Tugboat Captain Is Charged in Miami Beach Crash That Killed 3 Children**\
+`Six people, including a camp counselor, were thrown into the water on July 28 when their sailboat was struck by a barge that was being pushed by a tugboat, the authorities said.`\
+https://nytimes.com/2026/03/31/us/miami-sailboat-crash-biscayne-bay-manslaughter.html
+
+**Judge Dismisses Lawsuit That Challenged Ban on Endorsements by Churches**\
+`Conservatives had expected a victory in the case after the I.R.S. agreed to a settlement that allowed churches to voice support for candidates.`\
+https://nytimes.com/2026/03/31/us/politics/judge-johnson-amendment-settlement.html
+
 **LeBrun: Keith Pelley's tell and what it means for the future of the Maple Leafs**\
 `The MLSE president and CEO hinted that the Leafs don't have the stomach for a rebuild, which will shape the list of front-office candidates.`\
 https://nytimes.com/athletic/7162202/2026/03/31/keith-pelley-maple-leafs-retool-rebuild/
@@ -15,7 +23,7 @@ https://nytimes.com/athletic/7162059/2026/03/31/dan-hurley-referee-roger-ayers-t
 https://nytimes.com/athletic/7161668/2026/03/31/pittsburgh-steelers-mike-mccarthy-quarterback/
 
 **Tiger: 'I am stepping away ... to seek treatment'**\
-`Woods was arrested on Friday and charged with DUI.`\
+`Woods will not be at the Masters in any capacity.`\
 https://nytimes.com/athletic/7162240/2026/03/31/tiger-woods-treatment-dui-arrest/
 
 **Justice Dept. Struggles to Respond to Trump’s Suit Against I.R.S.**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7162161/2026/03/31/esmir-bajraktarevic-italy-bosnia
 **Arkansas Primary Runoff Election Results**\
 `Get live results and maps from the 2026 Arkansas primary runoff elections.`\
 https://nytimes.com/interactive/2026/us/elections/results-arkansas-runoff.html
-
-**Narges Mohammadi is denied treatment after a heart attack in an Iranian prison, her husband says.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2026/03/31/world/iran-war-oil-trump/narges-mohammadi-heart-attack-iranian-prison
-
-**Massachusetts State House 5th Essex District Special Election Results**\
-`Get live results and maps from the 2026 Massachusetts 5th Essex District special election.`\
-https://nytimes.com/interactive/2026/us/elections/results-massachusetts-state-house-5th-essex-special.html
 
