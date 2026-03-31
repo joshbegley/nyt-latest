@@ -1,3 +1,7 @@
+**Stephen Colbert Marvels at ‘No Kings’ Rallies Worldwide**\
+`“Just look at the crowd we got here in New York,” he said. “Oop, that’s the T.S.A. line at J.F.K.”`\
+https://nytimes.com/2026/03/31/arts/television/colbert-no-kings-marches.html
+
 **Trump, Don’t Make Churchill’s Deadly Mistake**\
 `A 1936 convention establishing Turkish control over the Dardanelles could be an inspiration to resolving the energy bottleneck in the Persian Gulf.`\
 https://nytimes.com/2026/03/31/opinion/trump-hormuz-turkey-dardanelles.html
