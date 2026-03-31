@@ -18,7 +18,7 @@ https://nytimes.com/video/us/politics/100000010812061/gas-prices-trump.html
 `The average price of gasoline in the U.S. has topped $4 a gallon, a multiyear high, as war in the Middle East roils the oil market and slams drivers.`\
 https://nytimes.com/2026/03/31/business/dealbook/trump-war-gas-prices.html
 
-**Trump Administration Live Updates: Senators Seek Answers About Airport Immigration Arrests**\
+**Trump Administration Live Updates: King Charles Will Make State Visit to U.S.**\
 ``\
 https://nytimes.com/live/2026/03/31/us/trump-news
 
