@@ -1,3 +1,11 @@
+**OpenAI Adds Another $12 Billion to Latest Funding Round**\
+`The start-up has raised a total of $122 billion in a funding round that values the company at $730 billion.`\
+https://nytimes.com/2026/03/31/technology/openai-12-billion-latest-funding-round.html
+
+**Read the Judge’s Decision on the Trump Administration’s Subpoena Against Penn**\
+`Gerald J. Pappert, a federal judge, affirms that Equal Employment Opportunity Commission was within its rights to demand that the University of Pennsylvania turn over information about Jews on campus.`\
+https://nytimes.com/interactive/2026/03/31/us/trump-penn-jews-list-judge-decision.html
+
 **Submit a question for Pete Sampson's Notre Dame mailbag**\
 `The storylines and questions of the 2026 Fighting Irish are coming into clearer focus.`\
 https://nytimes.com/athletic/7161882/2026/03/31/submit-a-question-for-pete-sampsons-notre-dame-mailbag-111/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/03/31/opinion/religion-revival-america.html
 **The Briefing: Kosovo 0 Turkey 1 — How good were Yildiz and Guler? Should the USMNT be worried?**\
 `Turkey qualified for the World Cup for the first time in 24 years. They will face the United States, Paraguay and Australia in Group D`\
 https://nytimes.com/athletic/7156215/2026/03/31/kosovo-0-turkey-1-world-cup-playoff-briefing/
-
-**Everything USMNT fans need to know about Turkey, their newest World Cup opponent**\
-`The Group D line-up has been set, but what should we expect?`\
-https://nytimes.com/athletic/7160650/2026/03/31/usmnt-guide-turkey-world-cup/
-
-**Spain fans warned over discriminatory behaviour after anti-Muslim chant in Egypt friendly**\
-`The home crowd were heard singing an anti-Muslim chant during the international fixture. `\
-https://nytimes.com/athletic/7161587/2026/03/31/spain-fans-discriminatory-chant-egypt/
 
