@@ -1,40 +1,40 @@
+**Marc Cucurella's Chelsea concerns will resonate with fans. Will the club act on them?**\
+`Cucurella is one of the most popular players at Stamford Bridge — and that status lends authority to his opinions`\
+https://nytimes.com/athletic/7159119/2026/03/31/marc-cucurella-blueco-recruitment/
+
+**Wild insider: Push the stars, pay the price — plus much love for Jessi Pierce**\
+`Also in our weekly notebook, what to expect next with the team's NCAA prospects, including Charlie Stramel.`\
+https://nytimes.com/athletic/7158037/2026/03/31/wild-nick-foligno-fight-jessi-pierce-visitation/
+
+**Fighting, hitting, defending teammates: Young Blackhawks learning NHL's physical game**\
+`The last thing anyone on the Blackhawks, from management on down, wants is other teams trying to bully their young star players.`\
+https://nytimes.com/athletic/7158366/2026/03/31/blackhawks-fighting-nhl-sacha-boisvert/
+
+**Man United's Senne Lammens interview: 'Carrick was clear from the first day... he didn't make it too complicated'**\
+`Senne Lammens speaks of his World Cup ambitions with Belgium, how Man Utd have changed this season and the defender who is a 'beast'`\
+https://nytimes.com/athletic/7154386/2026/03/31/senne-lammens-manchester-united-interview/
+
+**Why a young waiver claim has been a great find for the Rangers: 'A coach's dream'**\
+`After going undrafted and scoring in his NHL debut in the playoffs, Kartye is now starring on the Rangers' most effective line.`\
+https://nytimes.com/athletic/7158048/2026/03/31/tye-kartye-new-york-rangers-waivers-kraken-greyhounds/
+
+**Indiana's QB, Miami's pass rush, Texas' O-line: 1 key question for each AP Top 25 team**\
+`Can Georgia find a big-play option in the passing game? Can John Mateer take a Year 2 leap at OU? How will Iowa rebuild its O-line?`\
+https://nytimes.com/athletic/7149902/2026/03/31/college-football-top-25-2026-indiana-miami-texas/
+
+**College softball power rankings: Nebraska trending up, Tennessee's offense struggles**\
+`Jordy Frahm and the Huskers took two of three from UCLA in a key Big Ten series last weekend, while Ole Miss upset Tennessee in the SEC.`\
+https://nytimes.com/athletic/7159051/2026/03/31/college-softball-rankings-texas-nebraska-ucla-ole-miss/
+
+**The power of goaltending, Bolduc-Evans pairing and Demidov bonus content**\
+`Jakub Dobeš is a big reason why the Canadiens are hot, but strong goaltending can be influenced by strong play and vice versa.`\
+https://nytimes.com/athletic/7159892/2026/03/31/canadiens-goaltending-bolduc-evans-demidov-newhook/
+
+**Kyle Shanahan enters Year 10 with 49ers energized, with no broadcast plans anytime soon**\
+`Shanahan is in great spirits as he nears a tie with Bill Walsh for the longest tenure by a 49ers head coach.`\
+https://nytimes.com/athletic/7159522/2026/03/31/kyle-shanahan-49ers-coach-offseason/
+
 **A Lifeline for Cuba**\
 `We look at the energy crisis on the Caribbean island.`\
 https://nytimes.com/2026/03/31/briefing/a-lifeline-for-cuba.html
-
-**These Two Countries With Social Media Bans Aren’t Happy With Google and Meta**\
-`Indonesia says the two companies are violating its law that bars children under 16 from the social media. Australia has similar concerns.`\
-https://nytimes.com/2026/03/31/world/asia/indonesia-australia-social-media-ban.html
-
-**As Maple Leafs fire Brad Treliving, spotlight shifts to CEO Keith Pelley**\
-`Why should anyone in Toronto be left with the belief that MLSE CEO Keith Pelley is capable of saving this sinking ship?`\
-https://nytimes.com/athletic/7160015/2026/03/31/maple-leafs-brad-treliving-keith-pelley/
-
-**Mohamed Salah next club odds: MLS, Saudi, Barcelona or a return to Roma?**\
-`Speculation is already swirling over Salah’s next destination. At the age of 33, the winger is already into the twilight of his career`\
-https://nytimes.com/athletic/7160277/2026/03/31/mohamed-salah-next-club-odds-liverpool-premier-league/
-
-**The Pulse: Being shorter is better**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7158260/2026/03/31/mlb-abs-overturns-the-pulse/
-
-**Arsenal's Mead back in England squad**\
-`Chelsea’s Aggie Beever-Jones, Manchester City’s Grace Clinton and Manchester United’s Ella Toone miss out with injuries.`\
-https://nytimes.com/athletic/7160321/2026/03/31/england-women-squad-april-mead/
-
-**The lessons Andrew Painter learned — through struggles — on the way to MLB debut**\
-`Painter was shaped by his struggles last season in Triple A. He carries those lessons with him as he embarks on his big-league career. `\
-https://nytimes.com/athletic/7159614/2026/03/31/andrew-painter-phillies-mlb-debut-journey/
-
-**A new year brings a new set of challenges to Ben Johnson's Bears offense**\
-`Johnson had kind words for center Drew Dalman, who retired at age 27, and said replacement Garrett Bradbury will "fit us like a glove."`\
-https://nytimes.com/athletic/7158746/2026/03/31/bears-ben-johnson-caleb-williams-offense-challenges/
-
-**2027 NHL Draft ranking: Landon DuPont tops Wheeler's way-too-early top 25**\
-`The class for the 2027 NHL Draft is headlined by Landon DuPont, Alexis Joseph and Nazar Privalov.`\
-https://nytimes.com/athletic/7116102/2026/03/31/nhl-draft-2027-ranking-dupont-joseph-privalov/
-
-**Justin Verlander's warm Tigers return meets a colder first start**\
-`The 43-year-old surrendered five runs in 3 2/3 innings in his much-anticipated first start back with the Tigers. `\
-https://nytimes.com/athletic/7160158/2026/03/31/justin-verlander-tigers-first-start/
 
