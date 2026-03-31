@@ -1,3 +1,7 @@
+**NASCAR to reinstate Daniel Dye after suspension, won't return to Kaulig Racing: Sources**\
+`Dye had previously been suspended by NASCAR in April 2022 after he was arrested and charged with battery on a high-school classmate.`\
+https://nytimes.com/athletic/7160792/2026/03/31/nascar-daniel-dye-suspension-homophobic-kaulig-racing/
+
 **Tottenham accounts: Worst-ever pre-tax loss and growing need for cash**\
 `The 2024-25 accounts also detail that Spurs’ net transfer debt to other clubs was £242.8m ahead of last summer's transfer window.`\
 https://nytimes.com/athletic/7160684/2026/03/31/tottenham-accounts-loss-cash/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7160800/2026/03/31/canadiens-vs-lightning-stream-ho
 **How to watch Flyers vs. Capitals: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Flyers play the Washington Capitals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7160796/2026/03/31/flyers-vs-capitals-stream-how-to-watch-march-31/
-
-**How to watch Islanders vs. Sabres: Time, TV, streaming**\
-`Find out how to watch the New York Islanders play the Buffalo Sabres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7160794/2026/03/31/islanders-vs-sabres-stream-how-to-watch-march-31/
 
