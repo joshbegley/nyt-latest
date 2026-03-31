@@ -1,3 +1,11 @@
+**Ahead of likely lockout, MLB players union amasses war chest of more than $500 million**\
+`The union’s financial disclosure was the first it has filed since the ouster of Tony Clark as executive director in February.`\
+https://nytimes.com/athletic/7162265/2026/03/31/mlbpa-assets-annual-filing-mlb-cba-negotiations/
+
+**Dan Hurley downplays ref contact, expected 'chest bump' after UConn buzzer-beater**\
+`ESPN's Seth Greenberg said Monday that he spoke with Roger Ayers about the incident and was told it was 'absolutely nothing.'`\
+https://nytimes.com/athletic/7162059/2026/03/31/dan-hurley-referee-roger-ayers-technical/
+
 **Mike McCarthy eyes mid-round QB, maps out plan to mold Will Howard into a starter**\
 `The Steelers coach said, "We want to have a hell of a class" and is "hopeful" a QB will be available "at the right time."`\
 https://nytimes.com/athletic/7161668/2026/03/31/pittsburgh-steelers-mike-mccarthy-quarterback/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2026/us/elections/results-massachusetts-state-ho
 **Arkansas Secretary of State Primary Runoff Election Results**\
 `Get live results and maps from the 2026 Arkansas primary runoff election.`\
 https://nytimes.com/interactive/2026/us/elections/results-arkansas-secretary-of-state-runoff.html
-
-**South Africa Sees Maritime Traffic Surge Amid Iran War**\
-`Global shipping companies looking for safer routes are turning to the Cape of Good Hope, a much longer, more expensive journey.`\
-https://nytimes.com/2026/03/31/world/africa/africa-iran-shipping-houthis.html
-
-**Gattuso apologises after Italy miss out on 2026 World Cup**\
-`Italy were beaten on penalties by Bosnia and Herzegovina in the qualification playoff final on Tuesday.`\
-https://nytimes.com/athletic/7162137/2026/03/31/gennaro-gattuso-italy-world-cup/
 
