@@ -1,5 +1,5 @@
 **Maple Leafs fire general manager Brad Treliving**\
-`The Leafs fired Treliving while on pace to miss the playoffs for the first time in ten years.`\
+`The Leafs fired Treliving while set to miss the playoffs for the first time in ten years.`\
 https://nytimes.com/athletic/7159646/2026/03/30/leafs-fire-gm-treliving/
 
 **The 'very, very good' Jeremiyah Love, and a familiar Giants draft debate**\
