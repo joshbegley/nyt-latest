@@ -1,3 +1,11 @@
+**Trump Lashes Out Again at Europe for Its Lukewarm Support Against Iran**\
+`President Trump’s latest outbursts followed reports that European countries were imposing more restrictions on American aircraft in their airspace.`\
+https://nytimes.com/2026/03/31/world/middleeast/trump-europe-iran-criticism.html
+
+**Tiger Woods' DUI arrest details released: Says phone led to crash, found with pills**\
+`Woods was arrested Friday in Jupiter Island, Fla., after he struck a truck hauling a trailer and flipped his Land Rover onto its side.`\
+https://nytimes.com/athletic/7160591/2026/03/31/tiger-woods-dui-arrest-details-phone-radio-pills/
+
 **Justices Reject Colorado Law Banning ‘Conversion Therapy’ for L.G.B.T.Q. Minors**\
 `Colorado and more than 20 other states restrict therapists from trying to change the gender identity or sexual orientation of L.G.B.T.Q. clients under the age of 18.`\
 https://nytimes.com/2026/03/31/us/politics/supreme-court-colorado-conversion-therapy.html
