@@ -1,3 +1,15 @@
+**Justices Reject Colorado Law Banning ‘Conversion Therapy’ for L.G.B.T.Q. Minors**\
+`Colorado and more than 20 other states restrict therapists from trying to change the gender identity or sexual orientation of L.G.B.T.Q. clients under the age of 18.`\
+https://nytimes.com/2026/03/31/us/politics/supreme-court-colorado-conversion-therapy.html
+
+**McCormick to Combine With Unilever Food Unit to Create a Spice Giant**\
+`The deal ends Unilever’s time in the food industry and will create a multibillion-dollar group under the McCormick name.`\
+https://nytimes.com/2026/03/31/business/mccormick-unilever-food-aquisition.html
+
+**Tiger Woods' DUI arrest details released: Claims phone led to crash, found with pills**\
+`Woods was arrested Friday in Jupiter Island, Fla., after he struck a truck hauling a trailer and flipped his Land Rover onto its side.`\
+https://nytimes.com/athletic/7160591/2026/03/31/tiger-woods-dui-arrest-details-phone-radio-pills/
+
 **The Bounce: A Hall of Fame mistake that needs fixing. Plus, the Jaden Ivey saga**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7160535/2026/03/31/marques-johnson-nba-hall-of-fame-the-bounce/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7160494/2026/03/31/washington-nationals-takeaways-f
 **Artemis II Moon Launch**\
 `See complete coverage of NASA's Artemis II moon launch, the first crewed trip toward the moon since 1972.`\
 https://nytimes.com/news-event/artemis-ii-launch
-
-**If the NBA playoffs started today: Projecting and analyzing the first-round matchups**\
-`From Thunder-Clippers to a classic Celtics-76ers matchup, we look at the concerns across potential first-round series.`\
-https://nytimes.com/athletic/7158470/2026/03/31/nba-playoffs-matchups-pairings-predictions/
-
-**Corrections: March 31, 2026**\
-`Corrections that appeared in print on Tuesday, March 31, 2026.`\
-https://nytimes.com/2026/03/31/pageoneplus/corrections-march-31-2026.html
-
-**Arab World Faces ‘Profound’ Economic Crisis From Iran War, U.N. Agency Warns**\
-`An economic simulation warned that the region’s economy could lose more than $190 billion in just one month, and that Gulf states that have often bankrolled reconstruction efforts will be less able to help.`\
-https://nytimes.com/2026/03/31/world/middleeast/arab-countries-war-economic-impact.html
 

@@ -1,3 +1,15 @@
+**Justices Reject Colorado Law Banning ‘Conversion Therapy’ for L.G.B.T.Q. Minors**\
+`Colorado and more than 20 other states restrict therapists from trying to change the gender identity or sexual orientation of L.G.B.T.Q. clients under the age of 18.`\
+https://nytimes.com/2026/03/31/us/politics/supreme-court-colorado-conversion-therapy.html
+
+**McCormick to Combine With Unilever Food Unit to Create a Spice Giant**\
+`The deal ends Unilever’s time in the food industry and will create a multibillion-dollar group under the McCormick name.`\
+https://nytimes.com/2026/03/31/business/mccormick-unilever-food-aquisition.html
+
+**Tiger Woods' DUI arrest details released: Claims phone led to crash, found with pills**\
+`Woods was arrested Friday in Jupiter Island, Fla., after he struck a truck hauling a trailer and flipped his Land Rover onto its side.`\
+https://nytimes.com/athletic/7160591/2026/03/31/tiger-woods-dui-arrest-details-phone-radio-pills/
+
 **The Bounce: A Hall of Fame mistake that needs fixing. Plus, the Jaden Ivey saga**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7160535/2026/03/31/marques-johnson-nba-hall-of-fame-the-bounce/
