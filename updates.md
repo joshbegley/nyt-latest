@@ -1,3 +1,19 @@
+**Yes, This Is Your War, Too**\
+`Even opponents of the conflict should want to see Iran defanged and defeated.`\
+https://nytimes.com/2026/03/31/opinion/yes-this-is-your-war-too.html
+
+**In Search of a Religious Center**\
+`Why none of America’s faiths have taken mainline Protestantism’s place.`\
+https://nytimes.com/2026/03/31/opinion/religion-revival-america.html
+
+**The Briefing: Kosovo 0 Turkey 1 — How good were Yildiz and Guler? Should the USMNT be worried?**\
+`Turkey qualified for the World Cup for the first time in 22 years where they will face the United States, Paraguay and Australia.`\
+https://nytimes.com/athletic/7156215/2026/03/31/kosovo-0-turkey-1-world-cup-playoff-briefing/
+
+**The Briefing: England 0 Japan 1 – No Kane, no World Cup hope for Tuchel?**\
+`The big talking points dissected as Thomas Tuchel's team play their final game before the summer`\
+https://nytimes.com/athletic/7157905/2026/03/31/england-japan-result-analysis/
+
 **The Briefing: Kosovo 0 Turkey 1- How good were Yildiz and Guler? Should the USMNT be worried?**\
 `Turkey qualified for the World Cup for the first time in 22 years where they will face the United States, Paraguay and Australia.`\
 https://nytimes.com/athletic/7156215/2026/03/31/kosovo-0-turkey-1-world-cup-playoff-briefing/
