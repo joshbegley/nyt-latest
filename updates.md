@@ -1,3 +1,7 @@
+**Fresh Food Distributors Add Surcharges as Fuel Costs Rise**\
+`Delivering salmon, fruits and other perishable foods has become more expensive as the war with Iran pushes up diesel prices.`\
+https://nytimes.com/2026/03/31/business/food-distributors-surcharges-fuel.html
+
 **Newcastle United's owners sold St James' Park to themselves - accounts show club no longer officially owns its home**\
 `The 2024-25 accounts reveal the sale of the stadium and adjacent land to another company owned by the club’s shareholders`\
 https://nytimes.com/athletic/7157606/2026/03/31/newcastle-accounts-st-james-sale/

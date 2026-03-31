@@ -1,3 +1,7 @@
+**Fresh Food Distributors Add Surcharges as Fuel Costs Rise**\
+`Delivering salmon, fruits and other perishable foods has become more expensive as the war with Iran pushes up diesel prices.`\
+https://nytimes.com/2026/03/31/business/food-distributors-surcharges-fuel.html
+
 **Newcastle United's owners sold St James' Park to themselves - accounts show club no longer officially owns its home**\
 `The 2024-25 accounts reveal the sale of the stadium and adjacent land to another company owned by the club’s shareholders`\
 https://nytimes.com/athletic/7157606/2026/03/31/newcastle-accounts-st-james-sale/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/31/crosswords/spelling-bee-forum.html
 **Astronauts Prepare for Artemis II Moon Mission**\
 `NASA is sending four astronauts to space on a mission to circle the moon and test a life support system. The astronauts spoke to The New York Times in January before the mission was delayed until April because of technical issues.`\
 https://nytimes.com/video/us/100000010671827/astronaut-moon-artemis-nasa.html
-
-**Sandro Tonali is Italy's main man. What does the future hold for Newcastle midfielder?**\
-`The cost of a deal for Tonali may put off Premier League suitors, with Man United looking elsewhere, and rule out a return to Italy`\
-https://nytimes.com/athletic/7153968/2026/03/31/sandro-tonali-italy-world-cup-newcastle-future-man-united/
 
