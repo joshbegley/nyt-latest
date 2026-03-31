@@ -1,3 +1,7 @@
+**Mike Gatting, Des Haynes among Middlesex greats calling for action to arrest county's decline**\
+`Ex-players have written an open letter to members calling for action at their AGM amid doubts over the club's long-term future at Lord’s`\
+https://nytimes.com/athletic/7160275/2026/03/31/middlesex-gatting-haynes-lords-agm-members-decline/
+
 **My ballot, my stress: The NBA votes giving me the most anxiety**\
 `Fred Katz has been crunching the numbers and sifting through film to see which NBA players qualify for his vote.`\
 https://nytimes.com/athletic/7158925/2026/03/31/nba-award-ballots-mvp-stress/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/31/world/europe/russia-putin-telegram-internet.html
 **Whoop, a Wearable Health Device Maker, Raises $575 Million**\
 `With elite athletes like LeBron James and Cristiano Ronaldo as investors, the company, now valued at $10 billion, is courting everyday health enthusiasts.`\
 https://nytimes.com/2026/03/31/business/dealbook/whoop-a-wearable-health-device-maker-raises-575-million.html
-
-**It’s Not Going to Get Any Easier for Democrats After Trump**\
-`The party will come up against a demographic cliff in 2032.`\
-https://nytimes.com/2026/03/31/opinion/democrats-census-2028-2032.html
 
