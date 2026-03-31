@@ -1,8 +1,12 @@
+**Justices Reject Colorado Law Banning ‘Conversion Therapy’ for L.G.B.T.Q. Minors**\
+`Colorado and more than 20 other states restrict therapists from trying to change the gender identity or sexual orientation of L.G.B.T.Q. clients under the age of 18.`\
+https://nytimes.com/2026/03/31/us/politics/supreme-court-colorado-conversion-therapy.html
+
 **McCormick to Combine With Unilever Food Unit to Create a Spice Giant**\
 `The deal ends Unilever’s time in the food industry and will create a multibillion-dollar group under the McCormick name.`\
 https://nytimes.com/2026/03/31/business/mccormick-unilever-food-aquisition.html
 
-**Tiger Woods' DUI arrest details released: Claims phone, radio led to crash**\
+**Tiger Woods' DUI arrest details released: Claims phone led to crash, found with pills**\
 `Woods was arrested Friday in Jupiter Island, Fla., after he struck a truck hauling a trailer and flipped his Land Rover onto its side.`\
 https://nytimes.com/athletic/7160591/2026/03/31/tiger-woods-dui-arrest-details-phone-radio-pills/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7160494/2026/03/31/washington-nationals-takeaways-f
 **Artemis II Moon Launch**\
 `See complete coverage of NASA's Artemis II moon launch, the first crewed trip toward the moon since 1972.`\
 https://nytimes.com/news-event/artemis-ii-launch
-
-**If the NBA playoffs started today: Projecting and analyzing the first-round matchups**\
-`From Thunder-Clippers to a classic Celtics-76ers matchup, we look at the concerns across potential first-round series.`\
-https://nytimes.com/athletic/7158470/2026/03/31/nba-playoffs-matchups-pairings-predictions/
 
