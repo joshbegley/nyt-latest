@@ -1,3 +1,11 @@
+**‘Dog Day Afternoon’ Review: A 1970s Classic, Onstage and Underbaked**\
+`A raucous adaptation of a gritty portrait of New York stifles tension with comedy, leaving its stars, Jon Bernthal and Ebon Moss-Bachrach, adrift.`\
+https://nytimes.com/2026/03/30/theater/dog-day-afternoon-review-bernthal-moss-bachrach.html
+
+**Quote of the Day: Video Game Fans Issue a Plea To Filmmakers: Don’t Be Noobs**\
+`Quotation of the Day for Tuesday, March 31, 2026.`\
+https://nytimes.com/2026/03/30/pageoneplus/quote-of-the-day-video-game-fans-issue-a-plea-to-filmmakers-dont-be-noobs.html
+
 **Final Four field is set: South Carolina joins UConn, UCLA and Texas**\
 `South Carolina shoot off a shaky start to dominate Olivia Miles and TCU. `\
 https://nytimes.com/athletic/7159906/2026/03/30/south-carolina-final-four-uconn-ucla-texas/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7159525/2026/03/30/2028-la-olympics-tickets-lottery
 **Sign of Things to Come**\
 `Pack your bags — Ryan Patrick Smith’s puzzle will take you for a spin.`\
 https://nytimes.com/2026/03/30/crosswords/daily-puzzle-2026-03-31.html
-
-**Eric Swalwell Sends Cease-and-Desist Letter to F.B.I. Over Case Files**\
-`A Trump administration effort to gather documents from an old investigation had alarmed law enforcement officials, who feared it would be used to smear the Democratic lawmaker.`\
-https://nytimes.com/2026/03/30/us/politics/eric-swalwell-fbi.html
-
-**Texas decimates Michigan for return trip to Final Four**\
-`Texas' defense was at its trademark best, giving the Wolverines fits throughout the Elite Eight contest.`\
-https://nytimes.com/athletic/7159671/2026/03/30/texas-michigan-elite-eight-ncaa-tournament/
 
