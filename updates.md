@@ -1,3 +1,15 @@
+**Masai Ujiri to join ownership group for WNBA's Toronto Tempo**\
+`The longtime Toronto Raptors executive, who was fired in 2025, will become a principal owner of the WNBA expansion franchise. `\
+https://nytimes.com/athletic/7160610/2026/03/31/masai-ujiri-tempo-owner-wnba-toronto/
+
+**For the Global Economy, ‘All Roads Lead to Higher Prices and Slower Growth’**\
+`The effects of the war in Iran are squeezing consumers, businesses and governments around the world, raising the prices of many essential goods.`\
+https://nytimes.com/2026/03/31/world/middleeast/oil-energy-inflation-global-economy.html
+
+**Should Rich New Yorkers Get Free Stuff, Too? Mamdani Says Yes.**\
+`A free preschool center in one of the city’s wealthiest neighborhoods raises questions about Mayor Zohran Mamdani’s vow to expand universal child care.`\
+https://nytimes.com/2026/03/31/nyregion/mamdani-child-care-upper-east-side.html
+
 **Trump Lashes Out Again at Europe for Its Lukewarm Support Against Iran**\
 `President Trump’s latest outbursts followed reports that European countries were imposing more restrictions on American aircraft in their airspace.`\
 https://nytimes.com/2026/03/31/world/middleeast/trump-europe-iran-criticism.html
