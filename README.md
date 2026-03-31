@@ -1,3 +1,11 @@
+**The 10 most interesting players to watch in Notre Dame's spring practice**\
+`Whether it’s a starter, a rotational player or a breakout freshman, these are the players drawing buzz at Notre Dame this spring.`\
+https://nytimes.com/athletic/7160391/2026/03/31/notre-dame-spring-practice-will-black-cj-carr/
+
+**Giants chairman Greg Johnson Q&A Part 2: Media rights, a new one-team market and more**\
+`Johnson weighed in on the A's leaving Oakland, a potential lockout and whether the Dodgers are bad for baseball.`\
+https://nytimes.com/athletic/7156737/2026/03/31/sf-giants-greg-johnson-media-rights-athletics-mlb-labor/
+
 **Wolves' accounts: What do the 2024-25 figures tell us about life after relegation?**\
 `Wolves booked a £15.3m loss in 2024-25, even as they reaped £117m in player profits - by some distance a new club record`\
 https://nytimes.com/athletic/7140880/2026/03/31/wolves-2024-25-relegation-accounts-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/31/us/politics/trump-approval-ratings-gas-prices.htm
 **Anthony Edwards returns to Timberwolves' lineup with a new idea of how to play**\
 `Edwards is hoping to pick his spots and get out in transition more as Minnesota pushes toward the playoffs.`\
 https://nytimes.com/athletic/7159723/2026/03/31/anthony-edwards-return-timberwolves-nba/
-
-**Jarren Duran's renewed mental approach has him wondering: 'Why did I care so much?'**\
-`Duran, a self-proclaimed overthinker, has focused on letting go: “I feel like this spring has been a really good mental spot for me."`\
-https://nytimes.com/athletic/7158810/2026/03/31/red-sox-jarren-duran-mental-approach/
-
-**Marc Cucurella's Chelsea concerns will resonate with fans. Will the club act on them?**\
-`Cucurella is one of the most popular players at Stamford Bridge — and that status lends authority to his opinions`\
-https://nytimes.com/athletic/7159119/2026/03/31/marc-cucurella-blueco-recruitment/
 
