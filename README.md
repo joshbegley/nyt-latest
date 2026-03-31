@@ -11,7 +11,7 @@ https://nytimes.com/athletic/7159671/2026/03/30/texas-michigan-elite-eight-ncaa-
 https://nytimes.com/2026/03/30/us/senators-trump-airport-immigration-arrests.html
 
 **Maple Leafs fire general manager Brad Treliving**\
-`The Leafs fired Treliving while set to miss the playoffs for the first time in ten years.`\
+`The Leafs fired Treliving while set to miss the playoffs for the first time in 10 years.`\
 https://nytimes.com/athletic/7159646/2026/03/30/leafs-fire-gm-treliving/
 
 **The 'very, very good' Jeremiyah Love, and a familiar Giants draft debate**\
