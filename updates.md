@@ -1,3 +1,7 @@
+**LeBrun: Keith Pelley's tell and what it means for the future of the Maple Leafs**\
+`The MLSE president and CEO hinted that the Leafs don't have the stomach for a rebuild, which will shape the list of front-office candidates.`\
+https://nytimes.com/athletic/7162202/2026/03/31/keith-pelley-maple-leafs-retool-rebuild/
+
 **Ahead of likely lockout, MLB players union amasses war chest of more than $500 million**\
 `The union’s financial disclosure was the first it has filed since the ouster of Tony Clark as executive director in February.`\
 https://nytimes.com/athletic/7162265/2026/03/31/mlbpa-assets-annual-filing-mlb-cba-negotiations/
