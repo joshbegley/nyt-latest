@@ -1,3 +1,5 @@
+
+
 **Trump, Don’t Make Churchill’s Deadly Mistake**\
 `A 1936 convention establishing Turkish control over the Dardanelles could be an inspiration to resolving the energy bottleneck in the Persian Gulf.`\
 https://nytimes.com/2026/03/31/opinion/trump-hormuz-turkey-dardanelles.html
