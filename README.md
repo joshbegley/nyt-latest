@@ -1,3 +1,7 @@
+**Anthony Edwards returns to Timberwolves' lineup with a new idea of how to play**\
+`Edwards is hoping to pick his spots and get out in transition more as Minnesota pushes toward the playoffs.`\
+https://nytimes.com/athletic/7159723/2026/03/31/anthony-edwards-return-timberwolves-nba/
+
 **Jarren Duran's renewed mental approach has him wondering: 'Why did I care so much?'**\
 `Duran, a self-proclaimed overthinker, has focused on letting go: “I feel like this spring has been a really good mental spot for me."`\
 https://nytimes.com/athletic/7158810/2026/03/31/red-sox-jarren-duran-mental-approach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7159051/2026/03/31/college-softball-rankings-texas-
 **The power of goaltending, Bolduc-Evans pairing and Demidov bonus content**\
 `Jakub Dobeš is a big reason why the Canadiens are hot, but strong goaltending can be influenced by strong play and vice versa.`\
 https://nytimes.com/athletic/7159892/2026/03/31/canadiens-goaltending-bolduc-evans-demidov-newhook/
-
-**Kyle Shanahan enters Year 10 with 49ers energized, with no broadcast plans anytime soon**\
-`Shanahan is in great spirits as he nears a tie with Bill Walsh for the longest tenure by a 49ers head coach.`\
-https://nytimes.com/athletic/7159522/2026/03/31/kyle-shanahan-49ers-coach-offseason/
 
