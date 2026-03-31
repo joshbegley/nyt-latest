@@ -1,3 +1,11 @@
+**Olivier Rioux, tallest player in college basketball history, to enter transfer portal**\
+`For the season, Rioux attempted five shots and made two, including a 1-for-3 effort in the Gators' tournament opener.`\
+https://nytimes.com/athletic/7160514/2026/03/31/olivier-rioux-transfer-portal-height-florida/
+
+**3 takeaways from the Nationals’ encouraging start to the season**\
+`The weird lineups are working, the baseball isn't perfect but it's cleaner, and the pitchers are trying the right things.`\
+https://nytimes.com/athletic/7160494/2026/03/31/washington-nationals-takeaways-fast-start/
+
 **Artemis II Moon Launch**\
 `See complete coverage of NASA's Artemis II moon launch, the first crewed trip toward the moon since 1972.`\
 https://nytimes.com/news-event/artemis-ii-launch
