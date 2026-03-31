@@ -1,3 +1,7 @@
+**These Two Countries With Social Media Bans Aren’t Happy With Google and Meta**\
+`Indonesia says the two companies are violating its law that bars children under 16 from the social media. Australia has similar concerns.`\
+https://nytimes.com/2026/03/31/world/asia/indonesia-australia-social-media-ban.html
+
 **As Maple Leafs fire Brad Treliving, spotlight shifts to CEO Keith Pelley**\
 `Why should anyone in Toronto be left with the belief that MLSE CEO Keith Pelley is capable of saving this sinking ship?`\
 https://nytimes.com/athletic/7160015/2026/03/31/maple-leafs-brad-treliving-keith-pelley/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7160158/2026/03/31/justin-verlander-tigers-first-st
 **Dave Canales one-on-one: How the Panthers take next step with Bryce Young**\
 `Canales discussed Young's growth, what he likes about new backup Kenny Pickett and expectations for Xavier Legette.`\
 https://nytimes.com/athletic/7159405/2026/03/31/carolina-panthers-bryce-young-dave-canales/
-
-**Cowboys believe they made 'very fair' offers to fill LB need, but a large hole remains**\
-`Dallas made plays for three free-agent LBs, but it didn't work out. Brian Schottenheimer says they're not done looking to fill that hole.`\
-https://nytimes.com/athletic/7159220/2026/03/31/cowboys-middle-linebacker-roster-needs/
 
