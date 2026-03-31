@@ -1,3 +1,11 @@
+**The 'very, very good' Jeremiyah Love, and a familiar Giants draft debate**\
+`The star running back from Notre Dame was a subject of conversation with the Giants coach John Harbaugh and GM Joe Schoen on Monday.`\
+https://nytimes.com/athletic/7159428/2026/03/30/new-york-giants-nfl-draft-jeremiyah-love/
+
+**Aaron Rodgers, Mike McCarthy talk often, but QB's future still uncertain**\
+`McCarthy offered little new information but heaped praise on his former QB in numerous ways and highlighted Rodgers' "curiosity" off field.`\
+https://nytimes.com/athletic/7159498/2026/03/30/aaron-rodgers-mccarthy-steelers-qb-uncertain-future/
+
 **Kuwaiti Oil Tanker Is Set Ablaze After Attack Off the Coast of Dubai**\
 `The attack damaged the hull, the owner of the tanker said, which could cause an oil spill.`\
 https://nytimes.com/2026/03/30/world/middleeast/kuwait-oil-tanker-iran-drone.html

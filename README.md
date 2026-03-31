@@ -1,3 +1,7 @@
+**Maple Leafs fire general manager Brad Treliving**\
+`The Leafs fired Treliving while on pace to miss the playoffs for the first time in ten years.`\
+https://nytimes.com/athletic/7159646/2026/03/30/leafs-fire-gm-treliving/
+
 **The 'very, very good' Jeremiyah Love, and a familiar Giants draft debate**\
 `The star running back from Notre Dame was a subject of conversation with the Giants coach John Harbaugh and GM Joe Schoen on Monday.`\
 https://nytimes.com/athletic/7159428/2026/03/30/new-york-giants-nfl-draft-jeremiyah-love/
@@ -10,8 +14,8 @@ https://nytimes.com/athletic/7159498/2026/03/30/aaron-rodgers-mccarthy-steelers-
 `The attack damaged the hull, the owner of the tanker said, which could cause an oil spill.`\
 https://nytimes.com/2026/03/30/world/middleeast/kuwait-oil-tanker-iran-drone.html
 
-**Blue Jays' Cody Ponce carted off the field after running off the mound**\
-`Toronto’s rotation, which appeared exceptionally deep ahead of the regular season, has already seen three losses.`\
+**Cody Ponce carted off field after running off mound in Blue Jays debut**\
+`Toronto's rotation, which appeared exceptionally deep ahead of the regular season, had already lost three starters.`\
 https://nytimes.com/athletic/7159589/2026/03/30/toronto-blue-jays-cody-ponce-early-exit/
 
 **Here’s What Happened in the War in the Middle East on Monday**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/30/opinion/feminism-polyamory-lindy-west.html
 **Talk of a potential Odell Beckham Jr.-Giants reunion at the league meetings**\
 `At the league meetings on Monday, John Harbaugh and Joe Schoen addressed the potential for additions across the roster.`\
 https://nytimes.com/athletic/7159325/2026/03/30/new-york-giants-john-harbaugh-joe-schoen-league-meetings/
-
-**Jayden Daniels' flag football experiment had Commanders leaders nervous but supportive**\
-`The Commanders' owner and GM both said they left the decision to participate up to Daniels and told the quarterback they would support him.`\
-https://nytimes.com/athletic/7159448/2026/03/30/jayden-daniels-fanatics-flag-football-classic/
 
