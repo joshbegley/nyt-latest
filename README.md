@@ -1,3 +1,7 @@
+**Ghana sack head coach Addo 78 days before opening World Cup match**\
+`The decision followed five straight losses, including friendly defeats to Austria (5-1) on Friday and Germany (2-1) on Monday.`\
+https://nytimes.com/athletic/7160139/2026/03/31/ghana-sack-otto-addo-world-cup-england/
+
 **Here’s the latest.**\
 `By Ephrat Livni, David E. Sanger and Yan Zhuang`\
 https://nytimes.com/live/2026/03/31/world/iran-war-oil-trump/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/31/opinion/trump-hormuz-turkey-dardanelles.html
 **The New York Times in Print for Tuesday, March 31, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/31/todays-new-york-times
-
-**FIFA confirms new offside rule to be trialed in Canadian Premier League**\
-`The new regulation will be tested when the CPL begins its season this weekend`\
-https://nytimes.com/athletic/7158945/2026/03/31/canadian-premier-league-offside-wenger/
 
