@@ -1,3 +1,7 @@
+**As Maple Leafs fire Brad Treliving, spotlight shifts to CEO Keith Pelley**\
+`Why should anyone in Toronto be left with the belief that MLSE CEO Keith Pelley is capable of saving this sinking ship?`\
+https://nytimes.com/athletic/7160015/2026/03/31/maple-leafs-brad-treliving-keith-pelley/
+
 **Mohamed Salah next club odds: MLS, Saudi, Barcelona or a return to Roma?**\
 `Speculation is already swirling over Salah’s next destination. At the age of 33, the winger is already into the twilight of his career`\
 https://nytimes.com/athletic/7160277/2026/03/31/mohamed-salah-next-club-odds-liverpool-premier-league/
