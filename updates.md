@@ -1,3 +1,15 @@
+**Cardinals' No. 3 pick could shape the organization and the NFL Draft's first round**\
+`A new coach brings optimism, but the uncertainty at quarterback has made it difficult for fans to move on from last season's misery. `\
+https://nytimes.com/athletic/7158936/2026/03/30/arizona-cardinals-nfl-draft-first-round-pick/
+
+**She Was a Famous Millennial Feminist. Her Polyamory Memoir Is Heartbreaking.**\
+`Almost every ideology can be wielded to make women feel that they’re failing.`\
+https://nytimes.com/2026/03/30/opinion/feminism-polyamory-lindy-west.html
+
+**Talk of a potential Odell Beckham Jr.-Giants reunion at the league meetings**\
+`At the league meetings on Monday, John Harbaugh and Joe Schoen addressed the potential for additions across the roster.`\
+https://nytimes.com/athletic/7159325/2026/03/30/new-york-giants-john-harbaugh-joe-schoen-league-meetings/
+
 **Jayden Daniels' flag football experiment had Commanders leaders nervous but supportive**\
 `The Commanders' owner and GM both said they left the decision to participate up to Daniels and told the quarterback they would support him.`\
 https://nytimes.com/athletic/7159448/2026/03/30/jayden-daniels-fanatics-flag-football-classic/
