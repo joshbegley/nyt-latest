@@ -1,3 +1,15 @@
+**Fired F.B.I. Agents File Class-Action Suit Claiming Political Retaliation**\
+`The suit is one of the broadest bids yet seeking accountability against the F.B.I. director, Kash Patel, and Attorney General Pam Bondi for getting rid of employees who have run afoul of President Trump.`\
+https://nytimes.com/2026/03/31/us/politics/fbi-class-action-lawsuit-patel-bondi.html
+
+**Five big questions facing Sabres during their push for the playoffs and beyond**\
+`The Sabres' final eight games of the regular season will determine playoff seeding, matchups and home-ice advantage.`\
+https://nytimes.com/athletic/7160872/2026/03/31/buffalo-sabres-standings-stats-playoffs-questions/
+
+**Mayor Mamdani Attended a Hip Seder. Some Guests Weren’t Thrilled.**\
+`The mayor spoke at Michael Dorf’s annual Passover celebration, taking hecklers and a comic’s last-minute cancellation in stride.`\
+https://nytimes.com/2026/03/31/style/zohran-mamdani-seder-nyc.html
+
 **How to watch Angels vs. Cubs: Time, TV, streaming for March 31**\
 `Find out how to watch the Los Angeles Angels play the Chicago Cubs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7160907/2026/03/31/angels-vs-cubs-stream-how-to-watch-march-31/
