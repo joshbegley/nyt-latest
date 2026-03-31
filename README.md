@@ -1,9 +1,17 @@
+**Trump, Don’t Make Churchill’s Deadly Mistake**\
+`A 1936 convention establishing Turkish control over the Dardanelles could be an inspiration to resolving the energy bottleneck in the Persian Gulf.`\
+https://nytimes.com/2026/03/31/opinion/trump-hormuz-turkey-dardanelles.html
+
+**The New York Times in Print for Tuesday, March 31, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/31/todays-new-york-times
+
 **FIFA confirms new offside rule to be trialed in Canadian Premier League**\
 `The new regulation will be tested when the CPL begins its season this weekend`\
 https://nytimes.com/athletic/7158945/2026/03/31/canadian-premier-league-offside-wenger/
 
 **First look at the Final Four: Who has the edge? South Carolina or UConn? Texas or UCLA?**\
-`Same teams, but different rosters. This Final Four may yield the same results. `\
+`Same teams but different rosters. This Final Four might yield the same results. `\
 https://nytimes.com/athletic/7160006/2026/03/31/final-four-breakdown-uconn-south-carolina-texas-ucla/
 
 **Aston Villa, the Europa League and ticket prices — is there a breaking point?**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7156201/2026/03/31/england-top-capper-fans-world-cu
 **Liverpool have missed 102 big chances this season. What's going on?**\
 `Arne Slot has highlighted his side's profligacy as a key reason for their slump as Premier League champions, and the stats back him up`\
 https://nytimes.com/athletic/7143381/2026/03/31/liverpool-missed-chances-premier-league/
-
-**Managers on the rise: Christian Ilzer – the former electrician who gives his teams a spark**\
-`The 48-year-old Austrian has worked wonders since taking charge at Hoffenheim with a breathless style`\
-https://nytimes.com/athletic/7144112/2026/03/31/christian-ilzer-hoffenheim-manager-profile/
-
-**Interview with Francisco and Sergio Conceicao: On football, family and Portugal's World Cup chances**\
-`The Athletic sits down with Juventus and Portugal winger Francisco and his illustrious father, Sergio, a serial winner as player and manager`\
-https://nytimes.com/athletic/7158560/2026/03/31/interview-francisco-and-sergio-conceicao-portugal-juventus/
 
