@@ -1,3 +1,11 @@
+**5 million people registered for 2028 Olympics tickets. Winners learn fate this week.**\
+`Locals will get first dibs, with everyone in LA-area counties or Oklahoma City learning Tuesday through Thursday if they can buy tickets. `\
+https://nytimes.com/athletic/7159525/2026/03/30/2028-la-olympics-tickets-lottery-winners-sales-process/
+
+**Sign of Things to Come**\
+`Pack your bags — Ryan Patrick Smith’s puzzle will take you for a spin.`\
+https://nytimes.com/2026/03/30/crosswords/daily-puzzle-2026-03-31.html
+
 **Maple Leafs fire general manager Brad Treliving**\
 `The Leafs fired Treliving while set to miss the playoffs for the first time in 10 years.`\
 https://nytimes.com/athletic/7159646/2026/03/30/leafs-fire-gm-treliving/

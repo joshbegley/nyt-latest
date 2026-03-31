@@ -1,3 +1,11 @@
+**5 million people registered for 2028 Olympics tickets. Winners learn fate this week.**\
+`Locals will get first dibs, with everyone in LA-area counties or Oklahoma City learning Tuesday through Thursday if they can buy tickets. `\
+https://nytimes.com/athletic/7159525/2026/03/30/2028-la-olympics-tickets-lottery-winners-sales-process/
+
+**Sign of Things to Come**\
+`Pack your bags — Ryan Patrick Smith’s puzzle will take you for a spin.`\
+https://nytimes.com/2026/03/30/crosswords/daily-puzzle-2026-03-31.html
+
 **Eric Swalwell Sends Cease-and-Desist Letter to F.B.I. Over Case Files**\
 `A Trump administration effort to gather documents from an old investigation had alarmed law enforcement officials, who feared it would be used to smear the Democratic lawmaker.`\
 https://nytimes.com/2026/03/30/us/politics/eric-swalwell-fbi.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/30/world/middleeast/kuwait-oil-tanker-iran-drone.htm
 **Cody Ponce carted off field after running off mound in Blue Jays debut**\
 `Toronto's rotation, which appeared exceptionally deep ahead of the regular season, had already lost three starters.`\
 https://nytimes.com/athletic/7159589/2026/03/30/toronto-blue-jays-cody-ponce-early-exit/
-
-**Here’s What Happened in the War in the Middle East on Monday**\
-`Iran maintained that no negotiations have been held with the United States, and said none would while the fighting continues.`\
-https://nytimes.com/2026/03/30/world/middleeast/iran-middle-east-war-recap-monday.html
-
-**Nationals' Joey Wiemer's historic on-base streak ends; OF part of rare group**\
-`It was a streak that seemed as though it could not die, produced by a man who would not let his career die.`\
-https://nytimes.com/athletic/7159592/2026/03/30/washington-nationals-joey-wiemer-streak-ends/
 
