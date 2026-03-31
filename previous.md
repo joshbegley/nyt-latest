@@ -7,7 +7,7 @@ https://nytimes.com/2026/03/31/opinion/yes-this-is-your-war-too.html
 https://nytimes.com/2026/03/31/opinion/religion-revival-america.html
 
 **The Briefing: Kosovo 0 Turkey 1 — How good were Yildiz and Guler? Should the USMNT be worried?**\
-`Turkey qualified for the World Cup for the first time in 22 years where they will face the United States, Paraguay and Australia.`\
+`Turkey qualified for the World Cup for the first time in 24 years. They will face the United States, Paraguay and Australia in Group D`\
 https://nytimes.com/athletic/7156215/2026/03/31/kosovo-0-turkey-1-world-cup-playoff-briefing/
 
 **Everything USMNT fans need to know about Turkey, their newest World Cup opponent**\
@@ -33,8 +33,4 @@ https://nytimes.com/athletic/7161466/2026/03/31/jacksonville-jaguars-liam-coen-t
 **Bills coach Joe Brady says his approach on Josh Allen's running not changing**\
 `Brady also addressed Keon Coleman, who became a hot topic in the offseason.`\
 https://nytimes.com/athletic/7161607/2026/03/31/joe-brady-josh-allen-running-keon-coleman/
-
-**Canada reaches new CBA before World Cup**\
-`For years, a continued sense of discontent between national team players and Canada Soccer has been highlighted by the lack of a CBA.`\
-https://nytimes.com/athletic/7160691/2026/03/31/canada-new-cba-world-cup/
 

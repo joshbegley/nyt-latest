@@ -1,3 +1,7 @@
+**Is Social Media the New Tobacco?**\
+`A landmark court ruling in an online addiction case could be very bad news for big tech companies.`\
+https://nytimes.com/2026/03/31/world/social-media-ban-case-iran-trump-russia.html
+
 **Yes, This Is Your War, Too**\
 `Even opponents of the conflict should want to see Iran defanged and defeated.`\
 https://nytimes.com/2026/03/31/opinion/yes-this-is-your-war-too.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7157905/2026/03/31/england-japan-result-analysis/
 **Liam Coen tempers expectations for Travis Hunter's Year 2 impact as two-way player's rehab continues**\
 `Hunter's rookie season in 2025 ended prematurely after suffering a torn LCL.`\
 https://nytimes.com/athletic/7161466/2026/03/31/jacksonville-jaguars-liam-coen-travis-hunter-owners-meetings/
-
-**Bills coach Joe Brady says his approach on Josh Allen's running not changing**\
-`Brady also addressed Keon Coleman, who became a hot topic in the offseason.`\
-https://nytimes.com/athletic/7161607/2026/03/31/joe-brady-josh-allen-running-keon-coleman/
 
