@@ -1,3 +1,31 @@
+**Streetwear That Used to Be Duffel Bags**\
+`Attire spotted outside in Tokyo had a past life as military gear.`\
+https://nytimes.com/2026/03/31/style/genki-matsumoto-street-style-military.html
+
+**The 10 most interesting players to watch in Notre Dame's spring practice**\
+`Whether it’s a starter, a rotational player or a breakout freshman, these are the players drawing buzz at Notre Dame this spring.`\
+https://nytimes.com/athletic/7160391/2026/03/31/notre-dame-spring-practice-will-black-cj-carr/
+
+**Giants chairman Greg Johnson Q&A Part 2: Media rights, a new one-team market and more**\
+`Johnson weighed in on the A's leaving Oakland, a potential lockout and whether the Dodgers are bad for baseball.`\
+https://nytimes.com/athletic/7156737/2026/03/31/sf-giants-greg-johnson-media-rights-athletics-mlb-labor/
+
+**Wolves' accounts: What do the 2024-25 figures tell us about life after relegation?**\
+`Wolves booked a £15.3m loss in 2024-25, even as they reaped £117m in player profits - by some distance a new club record`\
+https://nytimes.com/athletic/7140880/2026/03/31/wolves-2024-25-relegation-accounts-analysis/
+
+**U.S. Gas Prices Top $4 a Gallon**\
+`The average price of a gallon of gasoline in the United States rose above $4 on Tuesday as the war in the Middle East continued to affect global oil supplies.`\
+https://nytimes.com/video/us/politics/100000010812061/gas-prices-trump.html
+
+**The Trump Effect at the Pump**\
+`The average price of gasoline in the U.S. has topped $4 a gallon, a multiyear high, as war in the Middle East roils the oil market and slams drivers.`\
+https://nytimes.com/2026/03/31/business/dealbook/trump-war-gas-prices.html
+
+**Trump Administration Live Updates: King Charles Will Make State Visit to U.S.**\
+``\
+https://nytimes.com/live/2026/03/31/us/trump-news
+
 **Trump Administration Live Updates: Senators Seek Answers About Airport Immigration Arrests**\
 ``\
 https://nytimes.com/live/2026/03/31/us/trump-news
