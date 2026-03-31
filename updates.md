@@ -1,3 +1,31 @@
+**Trump Administration Live Updates: Senators Seek Answers About Airport Immigration Arrests**\
+``\
+https://nytimes.com/live/2026/03/31/us/trump-news
+
+**Anthony Edwards returns to Timberwolves' lineup with a new idea of how to play**\
+`Edwards is hoping to pick his spots and get out in transition more as Minnesota pushes toward the playoffs.`\
+https://nytimes.com/athletic/7159723/2026/03/31/anthony-edwards-return-timberwolves-nba/
+
+**Jarren Duran's renewed mental approach has him wondering: 'Why did I care so much?'**\
+`Duran, a self-proclaimed overthinker, has focused on letting go: “I feel like this spring has been a really good mental spot for me."`\
+https://nytimes.com/athletic/7158810/2026/03/31/red-sox-jarren-duran-mental-approach/
+
+**Marc Cucurella's Chelsea concerns will resonate with fans. Will the club act on them?**\
+`Cucurella is one of the most popular players at Stamford Bridge — and that status lends authority to his opinions`\
+https://nytimes.com/athletic/7159119/2026/03/31/marc-cucurella-blueco-recruitment/
+
+**Wild insider: Push the stars, pay the price — plus much love for Jessi Pierce**\
+`Also in our weekly notebook, what to expect next with the team's NCAA prospects, including Charlie Stramel.`\
+https://nytimes.com/athletic/7158037/2026/03/31/wild-nick-foligno-fight-jessi-pierce-visitation/
+
+**Fighting, hitting, defending teammates: Young Blackhawks learning NHL's physical game**\
+`The last thing anyone on the Blackhawks, from management on down, wants is other teams trying to bully their young star players.`\
+https://nytimes.com/athletic/7158366/2026/03/31/blackhawks-fighting-nhl-sacha-boisvert/
+
+**Man United's Senne Lammens interview: 'Carrick was clear from the first day... he didn't make it too complicated'**\
+`Senne Lammens speaks of his World Cup ambitions with Belgium, how Man Utd have changed this season and the defender who is a 'beast'`\
+https://nytimes.com/athletic/7154386/2026/03/31/senne-lammens-manchester-united-interview/
+
 **Streetwear That Used to Be Duffel Bags**\
 `Attire spotted outside in Tokyo had a past life as military gear.`\
 https://nytimes.com/2026/03/31/style/genki-matsumoto-street-style-military.html
