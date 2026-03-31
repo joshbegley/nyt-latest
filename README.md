@@ -1,3 +1,7 @@
+**How to watch Red Sox vs. Astros: Time, TV, streaming for March 31**\
+`Find out how to watch the Boston Red Sox play the Houston Astros, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7161112/2026/03/31/red-sox-vs-astros-stream-how-to-watch-march-31/
+
 **Israel Signals Plans to Occupy Southern Lebanon After Ground Invasion**\
 `Israeli forces will control “the entire area” from the border to the Litani River, some 20 miles to the north, the defense minister said. He indicated troops would remain after the ground invasion ends.`\
 https://nytimes.com/2026/03/31/world/middleeast/israel-lebanon-ground-invasion.html
@@ -14,8 +18,8 @@ https://nytimes.com/2026/03/31/world/americas/gustavo-petro-colombia-president-u
 `Green Bay's president and CEO lauded the coach's success during his tenure and the locker room support he has.`\
 https://nytimes.com/athletic/7160618/2026/03/31/ed-policy-matt-lafleur-packers/
 
-**Four Tied to N.Y.C. Contractor To Be Charged In Federal Corruption Inquiry**\
-`At least three people were arrested on Tuesday as part of an investigation examining the conduct of Councilwoman Farah Louis and others, people with knowledge of the matter said.`\
+**Four Tied to N.Y.C. Contractor to Be Charged In Federal Corruption Inquiry**\
+`The arrests were part of an investigation that is also examining the conduct of a city councilwoman, her sister and the Brooklyn Democratic leader’s husband.`\
 https://nytimes.com/2026/03/31/nyregion/investigation-nyc-councilwoman-hochul-aide.html
 
 **Everton accounts explained: £49.2m sale of women's team, record revenues, but potential UEFA concern**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7160883/2026/03/31/sean-payton-broncos-flag-footbal
 **An Ominous U.S. Threat Against Iran**\
 `Readers criticize President Trump over his bellicose statements on Iran. Also: Education for every child, citizen or not; the cost of war.`\
 https://nytimes.com/2026/03/31/opinion/iran-war.html
-
-**Fired F.B.I. Agents File Class-Action Suit Claiming Political Retaliation**\
-`The suit is one of the broadest bids yet seeking accountability against the F.B.I. director, Kash Patel, and Attorney General Pam Bondi for getting rid of employees who have run afoul of President Trump.`\
-https://nytimes.com/2026/03/31/us/politics/fbi-class-action-lawsuit-patel-bondi.html
 
