@@ -1,3 +1,7 @@
+**These Pistons won't go down without a fight, even down four starters at OKC**\
+`"We go out there and fight every night," Javonte Green said after undermanned Detroit took the defending champs to overtime.`\
+https://nytimes.com/athletic/7160095/2026/03/31/pistons-thunder-injury-overtime/
+
 **Will $4 Gas Hurt Trump’s Approval Ratings? Here’s What History Shows.**\
 `Presidents since at least the Carter administration have seen their approval ratings tied to gas prices. But there are signs the correlation may be weakening.`\
 https://nytimes.com/2026/03/31/us/politics/trump-approval-ratings-gas-prices.html
