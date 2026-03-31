@@ -1,40 +1,40 @@
-**Weird & Wild stats and facts from MLB's return. Plus, ranking ABS challenges**\
-`"Nobody knows anything," Trea Turner said this spring. The early days of this baseball season were another reminder that he's right. `\
-https://nytimes.com/athletic/7159460/2026/03/31/mlb-weird-stats-abs-challenge-rankings/
+**Justin Verlander's warm Tigers return meets a colder first start**\
+`The 43-year-old surrendered five runs in 3 2/3 innings in his much-anticipated first start back with the Tigers. `\
+https://nytimes.com/athletic/7160158/2026/03/31/justin-verlanders-tigers-first-start/
 
-**Mike Gatting, Des Haynes among Middlesex greats calling for action to arrest county's decline**\
-`Ex-players have written an open letter to members calling for action at their AGM amid doubts over the club's long-term future at Lord’s`\
-https://nytimes.com/athletic/7160275/2026/03/31/middlesex-gatting-haynes-lords-agm-members-decline/
+**Dave Canales one-on-one: How the Panthers take next step with Bryce Young**\
+`Canales discussed Young's growth, what he likes about new backup Kenny Pickett and expectations for Xavier Legette.`\
+https://nytimes.com/athletic/7159405/2026/03/31/carolina-panthers-bryce-young-dave-canales/
 
-**My ballot, my stress: The NBA votes giving me the most anxiety**\
-`Fred Katz has been crunching the numbers and sifting through film to see which NBA players qualify for his vote.`\
-https://nytimes.com/athletic/7158925/2026/03/31/nba-award-ballots-mvp-stress/
+**Cowboys believe they made 'very fair' offers to fill LB need, but a large hole remains**\
+`Dallas made plays for three free-agent LBs, but it didn't work out. Brian Schottenheimer says they're not done looking to fill that hole.`\
+https://nytimes.com/athletic/7159220/2026/03/31/cowboys-middle-linebacker-roster-needs/
 
-**MLB Power Rankings: What did we learn from each team's first series? ¯\_(ツ)_/¯**\
-`This week’s installment will look at the ephemeral stats, the ones that could mean nothing at all ... or could indicate something major.`\
-https://nytimes.com/athletic/7153946/2026/03/31/mlb-power-rankings-2026-week-1/
+**Yankees suffer first loss of the season, but it could have been worse**\
+`There are no good losses. But the Yankees' 2-1 defeat Monday night in Seattle wasn't terrible.`\
+https://nytimes.com/athletic/7160140/2026/03/31/yankees-first-loss-mariners/
 
-**What's behind the speedy, unified rise of the latest generation of elite shortstops**\
-`A stellar crop of young shortstops are now hitting the majors, driven both by talent and structural factors keeping them at the position. `\
-https://nytimes.com/athletic/7159004/2026/03/31/mlb-golden-generation-shortstops-mcgonigle-wetherholt-griffin/
+**Brad Treliving is gone. What comes next for the Maple Leafs?**\
+`Numerous questions are swirling around the Leafs now that Treliving has been let go as general manager.`\
+https://nytimes.com/athletic/7160146/2026/03/31/maple-leafs-brad-treliving-what-comes-next/
 
-**Sal Stewart's hot start is no surprise to Reds or Red Sox's Roman Anthony**\
-`The reigning National League Player of the Week accounted for the Reds' first hit, first run driven in and first home run of 2026. `\
-https://nytimes.com/athletic/7159215/2026/03/31/cincinnati-reds-sal-stewart-roman-anthony-success/
+**Edward Cabrera gives Cubs a taste of what they have long desired in team debut**\
+`Cabrera led the way in the Cubs' 7-2 win over the Los Angeles Angels on Monday night.`\
+https://nytimes.com/athletic/7159862/2026/03/31/cubs-win-angels-edward-cabrera-debut/
 
-**The New York Times International Edition in Print for Wednesday, April 1, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/03/31/todays-new-york-times-international-edition
+**Mason Miller needed a new entrance. The Padres' clubhouse manager had just the song**\
+`"I know that closers nowadays take a lot of pride in their walkout. … But yeah, that's got to be up there for one of the best." `\
+https://nytimes.com/athletic/7160061/2026/03/31/mason-miller-korn-blind-walkout-song/
 
-**U.S. Senators Press Taiwan to Raise Military Spending as China Protests**\
-`Four visiting senators urged Taiwan to break an impasse over a $40 billion budget proposal, highlighting concerns in Washington about the threat from China.`\
-https://nytimes.com/2026/03/31/world/asia/senators-taiwan-military.html
+**How Bruins' Don Sweeney built a playoff team by fleecing other NHL GMs**\
+`Go down the list of trades Sweeney has made involving players on the current roster. There’s not one dud.`\
+https://nytimes.com/athletic/7158773/2026/03/31/bruins-don-sweeney-trade-masterpieces-nhl/
 
-**A Cat-and-Mouse Game of Russian Internet Restrictions and Evasion**\
-`As the Kremlin spends heavily on censorship technology, Russians are scrambling to find new ways to circumvent the limits.`\
-https://nytimes.com/2026/03/31/world/europe/russia-internet-restrictions.html
+**New Lance McCullers Jr. paints a 'masterpiece' in win over Red Sox**\
+`"I like this style a lot better," said Carlos Correa, one of McCullers' closest friends who worked out alongside him this offseason.`\
+https://nytimes.com/athletic/7160042/2026/03/31/astros-win-red-sox-lance-mccullers-jr/
 
-**Putin’s Internet Blackout: A Chaotic Drive to Cut Off Russians From the World**\
-`With new outages and blockages, President Vladimir V. Putin is taking his boldest steps yet to control Russians’ communications.`\
-https://nytimes.com/2026/03/31/world/europe/russia-putin-telegram-internet.html
+**MLSE has made a massive mess of the Maple Leafs after three dysfunctional years**\
+`A lot of things went wrong in Toronto to cause this season. It's time scrutiny went higher than the GM.`\
+https://nytimes.com/athletic/7159755/2026/03/31/toronto-maple-leafs-keith-pelley-mlse-treliving/
 
