@@ -1,3 +1,11 @@
+**What we learned from Mike Vrabel's comments at the NFL meetings**\
+`Vrabel offered little but cagey responses to questions about the potential of trading for Eagles receiver A.J. Brown.`\
+https://nytimes.com/athletic/7161314/2026/03/31/mike-vrabel-patriots-nfl-meetings-aj-brown/
+
+**Seven Maple Leafs takeaways from Keith Pelley's media availability**\
+`The MLSE president addressed the media Tuesday following the team's firing of Leafs GM Brad Treliving. Here's what stood out.`\
+https://nytimes.com/athletic/7161419/2026/03/31/maple-leafs-keith-pelley-brad-treliving-fired/
+
 **A Times Lawyer on Why the Pentagon Lawsuit Matters**\
 `David McCraw, who heads the newsroom legal team for The New York Times, discusses the case and his view of the judge’s ruling.`\
 https://nytimes.com/2026/03/31/insider/times-pentagon-first-amendment-lawsuit.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7161396/2026/03/31/jim-harbaugh-chargers-league-mee
 **Why Everton qualifying for Europe could give them a financial headache**\
 `David Moyes' side could achieve European football for the first time since 2017-18, but they will need to comply with UEFA financial rules`\
 https://nytimes.com/athletic/7161203/2026/03/31/everton-european-football-financial-analysis/
-
-**Can You Anesthetize a Plant?**\
-`If it’s possible to put plants to sleep using anesthesia, what does that say about whether they’re conscious? Can they feel pain? The author Michael Pollan explores this “spooky and interesting” discovery on “The Ezra Klein Show.”`\
-https://nytimes.com/video/opinion/100000010802908/can-you-anesthetize-a-plant.html
-
-**Newsom’s New Attack on Political Enemies: You’re Gay**\
-`Gov. Gavin Newsom’s aides said that their online insults were meant to ridicule figures on the right. But some critics say they are homophobic.`\
-https://nytimes.com/2026/03/31/us/politics/newsom-social-media-grindr-homophobia.html
 
