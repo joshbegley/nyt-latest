@@ -1,3 +1,7 @@
+**Full Time: Parity or panic time in NWSL?**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/7159853/2026/03/30/nwsl-parity-2026-the-athletic/
+
 **Seahawks get the 'Hard Knocks' call for 2026, Patriots on deck for next season**\
 `The series debuted in 2001 with the Baltimore Ravens as the team in the spotlight.`\
 https://nytimes.com/athletic/7159745/2026/03/30/hbo-hard-knocks-seahawks-patriots/
