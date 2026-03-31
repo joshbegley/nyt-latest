@@ -1,3 +1,27 @@
+**Justice Dept. Struggles to Respond to Trump’s Suit Against I.R.S.**\
+`Officials at the department and the White House are in the middle of a messy and complicated debate over how to respond to President Trump’s lawsuit demanding $10 billion from the I.R.S.`\
+https://nytimes.com/2026/03/31/us/politics/trump-irs-lawsuit-doj.html
+
+**Wisconsin's Bajraktarevic shocks Italy, sends Bosnia-Herzegovina to World Cup**\
+`The U.S.-born former New England Revolution winger, who has one USMNT cap, sealed a memorable triumph`\
+https://nytimes.com/athletic/7162161/2026/03/31/esmir-bajraktarevic-italy-bosnia-herzegovina-world-cup-wisconsin-usa/
+
+**Arkansas Primary Runoff Election Results**\
+`Get live results and maps from the 2026 Arkansas primary runoff elections.`\
+https://nytimes.com/interactive/2026/us/elections/results-arkansas-runoff.html
+
+**Narges Mohammadi is denied treatment after a heart attack in an Iranian prison, her husband says.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2026/03/31/world/iran-war-oil-trump/narges-mohammadi-heart-attack-iranian-prison
+
+**Massachusetts State House 5th Essex District Special Election Results**\
+`Get live results and maps from the 2026 Massachusetts 5th Essex District special election.`\
+https://nytimes.com/interactive/2026/us/elections/results-massachusetts-state-house-5th-essex-special.html
+
+**Arkansas Secretary of State Primary Runoff Election Results**\
+`Get live results and maps from the 2026 Arkansas primary runoff election.`\
+https://nytimes.com/interactive/2026/us/elections/results-arkansas-secretary-of-state-runoff.html
+
 **South Africa Sees Maritime Traffic Surge Amid Iran War**\
 `Global shipping companies looking for safer routes are turning to the Cape of Good Hope, a much longer, more expensive journey.`\
 https://nytimes.com/2026/03/31/world/africa/africa-iran-shipping-houthis.html
@@ -13,28 +37,4 @@ https://nytimes.com/video/us/100000010813164/gas-prices-iran-war-drivers-reactio
 **Forgoing Oversight of Iran War, G.O.P. Calls Hegseth to Testify on Budget**\
 `After resisting calls for public hearings for weeks, House Republicans have called the secretary of defense to testify at a budget hearing in late April for the first time since the attacks on Iran began.`\
 https://nytimes.com/2026/03/31/world/middleeast/hegseth-iran-war-testimony.html
-
-**Slava Tsukerman, Who Directed the Cult Classic ‘Liquid Sky,’ Dies at 86**\
-`A Russian-born director, he created a film about New Wave models and killer aliens in 1980s New York, helping to reshape independent filmmaking in America.`\
-https://nytimes.com/2026/03/31/movies/slava-tsukerman-dead.html
-
-**England 'do not have the same threat' without Kane, Tuchel says**\
-`The head coach said it was "absolutely normal" to not be the same without the team's captain and central attacking threat.`\
-https://nytimes.com/athletic/7162102/2026/03/31/harry-kane-england-threat-tuchel/
-
-**Here’s What Happened in the War in the Middle East on Tuesday**\
-`Defense Secretary Pete Hegseth and Gen. Dan Caine, the chairman of the Joint Chiefs of Staff, took questions from reporters for the first time in nearly two weeks.`\
-https://nytimes.com/2026/03/31/world/middleeast/iran-war-middle-east-recap-tuesday.html
-
-**Mavericks ready to discuss 'potential framework' of new downtown arena, CEO says**\
-`Mavericks CEO Rick Welts also said the search fro a permanent new president of basketball operations is ongoing. `\
-https://nytimes.com/athletic/7161796/2026/03/31/mavericks-arena-rick-welts-city-hall/
-
-**BTS Is Back, But at What Cost?**\
-`BTS is back. Roll up to the drive-through with our critic Jon Caramanica as he dissects “Normal,” one of the most inventive songs from the group’s new album “Arirang,” and explains how it taps into the stylings of Rihanna and Mk.gee.`\
-https://nytimes.com/video/podcasts/100000010813668/bts-is-back-but-at-what-cost.html
-
-**A'ja Wilson heads to Team USA camp; Caitlin Clark to sit out session**\
-`The 2026 FIBA World Cup will take place Sept. 4-13 in Berlin, Germany.`\
-https://nytimes.com/athletic/7161819/2026/03/31/aja-wilson-napheesa-collier-usa-national-team-training-camp/
 

@@ -1,3 +1,7 @@
+**Tiger: 'I am stepping away ... to seek treatment'**\
+`Woods was arrested on Friday and charged with DUI.`\
+https://nytimes.com/athletic/7162240/2026/03/31/tiger-woods-treatment-dui-arrest/
+
 **Justice Dept. Struggles to Respond to Trump’s Suit Against I.R.S.**\
 `Officials at the department and the White House are in the middle of a messy and complicated debate over how to respond to President Trump’s lawsuit demanding $10 billion from the I.R.S.`\
 https://nytimes.com/2026/03/31/us/politics/trump-irs-lawsuit-doj.html
@@ -27,14 +31,10 @@ https://nytimes.com/interactive/2026/us/elections/results-arkansas-secretary-of-
 https://nytimes.com/2026/03/31/world/africa/africa-iran-shipping-houthis.html
 
 **Gattuso apologises after Italy miss out on 2026 World Cup**\
-`Italy were beaten on penalties by Bosnia & Herzegovina in the qualification playoff final on Tuesday.`\
+`Italy were beaten on penalties by Bosnia and Herzegovina in the qualification playoff final on Tuesday.`\
 https://nytimes.com/athletic/7162137/2026/03/31/gennaro-gattuso-italy-world-cup/
 
 **Drivers Say Rising Gas Prices Are ‘Out of Control’**\
 `Gasoline prices in the U.S. passed $4 a gallon, on average, as the war in the Middle East affects global energy markets. Drivers said that the rising costs were affecting their wallets.`\
 https://nytimes.com/video/us/100000010813164/gas-prices-iran-war-drivers-reactions.html
-
-**Forgoing Oversight of Iran War, G.O.P. Calls Hegseth to Testify on Budget**\
-`After resisting calls for public hearings for weeks, House Republicans have called the secretary of defense to testify at a budget hearing in late April for the first time since the attacks on Iran began.`\
-https://nytimes.com/2026/03/31/world/middleeast/hegseth-iran-war-testimony.html
 
