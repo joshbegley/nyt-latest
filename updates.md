@@ -1,3 +1,11 @@
+**Drivers Say Rising Gas Prices Are ‘Out of Control’**\
+`Gasoline prices in the U.S. passed $4 a gallon, on average, as the war in the Middle East affects global energy markets. Drivers said that the rising costs were affecting their wallets.`\
+https://nytimes.com/video/us/100000010813164/gas-prices-iran-war-drivers-reactions.html
+
+**Forgoing Oversight of Iran War, G.O.P. Calls Hegseth to Testify on Budget**\
+`After resisting calls for public hearings for weeks, House Republicans have called the secretary of defense to testify at a budget hearing in late April for the first time since the attacks on Iran began.`\
+https://nytimes.com/2026/03/31/world/middleeast/hegseth-iran-war-testimony.html
+
 **Slava Tsukerman, Who Directed the Cult Classic ‘Liquid Sky,’ Dies at 86**\
 `A Russian-born director, he created a film about New Wave models and killer aliens in 1980s New York, helping to reshape independent filmmaking in America.`\
 https://nytimes.com/2026/03/31/movies/slava-tsukerman-dead.html

@@ -1,3 +1,11 @@
+**South Africa Sees Maritime Traffic Surge Amid Iran War**\
+`Global shipping companies looking for safer routes are turning to the Cape of Good Hope, a much longer, more expensive journey.`\
+https://nytimes.com/2026/03/31/world/africa/africa-iran-shipping-houthis.html
+
+**Gattuso apologises after Italy miss out on 2026 World Cup**\
+`Italy were beaten on penalties by Bosnia & Herzegovina in the qualification playoff final on Tuesday.`\
+https://nytimes.com/athletic/7162137/2026/03/31/gennaro-gattuso-italy-world-cup/
+
 **Drivers Say Rising Gas Prices Are ‘Out of Control’**\
 `Gasoline prices in the U.S. passed $4 a gallon, on average, as the war in the Middle East affects global energy markets. Drivers said that the rising costs were affecting their wallets.`\
 https://nytimes.com/video/us/100000010813164/gas-prices-iran-war-drivers-reactions.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/podcasts/100000010813668/bts-is-back-but-at-what-cost.
 **A'ja Wilson heads to Team USA camp; Caitlin Clark to sit out session**\
 `The 2026 FIBA World Cup will take place Sept. 4-13 in Berlin, Germany.`\
 https://nytimes.com/athletic/7161819/2026/03/31/aja-wilson-napheesa-collier-usa-national-team-training-camp/
-
-**U.N. Peacekeepers in Lebanon Were Killed by Roadside Bomb**\
-`Members of the United Nations Security Council condemned deadly attacks on U.N. peacekeepers in south Lebanon and called for de-escalation between Israel and Hezbollah.`\
-https://nytimes.com/2026/03/31/world/middleeast/un-peacekeepers-lebanon-killed-security-council.html
-
-**World Cup play-offs: Who went through? Which groups are they in?**\
-`Sweden, Bosnia & Herzegovina, Turkey and Czech Republic booked their place at the 2026 World Cup on Tuesday.`\
-https://nytimes.com/athletic/7161079/2026/03/31/world-cup-play-offs-who-qualified/
 
