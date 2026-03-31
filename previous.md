@@ -1,3 +1,19 @@
+**How to watch Giants vs. Padres: Time, TV, streaming for March 31**\
+`Find out how to watch the San Francisco Giants play the San Diego Padres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7161497/2026/03/31/giants-vs-padres-stream-how-to-watch-march-31/
+
+**Mike Vrabel on TreVeyon Henderson sharing Jaden Ivey video: 'We want to be inclusive'**\
+`Henderson has come under fire for seemingly defending Ivey, who was cut following negative comments about the NBA's support of LGBTQ issues.`\
+https://nytimes.com/athletic/7161057/2026/03/31/vrabel-comments-treveyon-henderson-post-ivey/
+
+**Judge Orders Construction Stopped on Trump’s White House Ballroom**\
+`A federal judge required the president to seek lawmakers’ input and pursue traditional approvals before proceeding with the $400 million replacement for the East Wing.`\
+https://nytimes.com/2026/03/31/us/politics/trump-white-house-ballroom-construction-ruling.html
+
+**Judge Rules Trump Unlawfully Revoked Status of Migrants Who Used Entry App**\
+`A federal judge in Massachusetts ordered the Trump administration to reinstate the legal status of those who were invited to use the Biden-era app.`\
+https://nytimes.com/2026/03/31/us/politics/migrants-immigration-app-parole.html
+
 **How to watch Cavaliers vs. Lakers: Time, TV, streaming**\
 `Find out how to watch the Cleveland Cavaliers play the Los Angeles Lakers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7161457/2026/03/31/cavaliers-vs-lakers-stream-how-to-watch-march-31/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7161188/2026/03/31/packers-micah-parsons-rehab-bria
 **We Put Dyson’s $600 Vacuum to the Test**\
 `Dyson named its new stick vacuum PencilVac Fluffycones. We liked some other things about it, too.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010812518/we-put-dysons-600-vacuum-to-the-test.html
-
-**All the NFL rule changes, including more replay assistance in case of replacement refs**\
-`NFL owners also approved several other rule changes at the annual league meetings, including three related to kickoffs. `\
-https://nytimes.com/athletic/7161251/2026/03/31/nfl-rule-changes-replacement-officials-replay-kickoff-2026/
-
-**Jesse Minter: Ravens 'in a good place' heading into offseason workout program**\
-`Minter discussed the team's upcoming workout sessions, Lamar Jackson's approach to the offseason and more at the league meeting in Phoenix.`\
-https://nytimes.com/athletic/7161096/2026/03/31/ravens-jesse-minter-offseason-program-nfl-meeting/
-
-**Federal Judge Approves Trump Effort to Extract List of Jews From Penn**\
-`The decision to allow the government to collect the names and phone numbers of Jewish people on campus could allow the government to pursue similar tactics elsewhere.`\
-https://nytimes.com/2026/03/31/us/politics/trump-jews-penn-list-judge.html
-
-**One Bite After Another**\
-`These snacks may not be Oscar-worthy, but perhaps this video is PTA approved?`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010812443/one-bite-after-another.html
 
