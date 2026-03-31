@@ -1,3 +1,15 @@
+**'Miraculously ... I'm alive': Andrea Pavan details the freak elevator shaft accident that shocked golf**\
+`The Italian's life changed forever in February after a freak accident. He tells The Athletic about his recovery and what comes next`\
+https://nytimes.com/athletic/7151386/2026/03/31/andrea-pavan-interview-elevator-shaft-fall/
+
+**Word of the Day: equitable**\
+`This word has appeared in 212 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/31/learning/word-of-the-day-equitable.html
+
+**Texas is 2 wins from Vic Schaefer's first title and him saying it's his best team**\
+`Schaefer, in his 21st year as a head coach, is seeking his first national championship. He has Texas a win away from playing for the title.`\
+https://nytimes.com/athletic/7159962/2026/03/31/texas-vic-schaefer-final-four-ucla/
+
 **Stephen Colbert Marvels at ‘No Kings’ Rallies Worldwide**\
 `“Just look at the crowd we got here in New York,” he said. “Oop, that’s the T.S.A. line at J.F.K.”`\
 https://nytimes.com/2026/03/31/arts/television/colbert-no-kings-marches.html
@@ -22,19 +34,7 @@ https://nytimes.com/athletic/7160006/2026/03/31/final-four-breakdown-uconn-south
 `Villa Park has not been sold out for any Europa League fixture this season with frustration at prices for the quarter-final against Bologna`\
 https://nytimes.com/athletic/7146529/2026/03/31/aston-villa-ticket-prices-bologna-europa-league/
 
-**Spurs and Roberto De Zerbi - Would it be worth alienating a section of the fanbase?**\
-`Can Tottenham Hotspur afford to alienate so many of their fans in a time when the club desperately needs unity?`\
+**Spurs and Roberto De Zerbi – would it be worth alienating a section of the fanbase?**\
+`Three Spurs supporters’ groups — all officially recognised by the club — have come out in opposition to the pursuit of De Zerbi as manager`\
 https://nytimes.com/athletic/7158633/2026/03/31/spurs-de-zerbi-greenwood-fans/
-
-**Brad Treliving took the Maple Leafs backwards as GM**\
-`After less than three seasons, Brad Treliving leaves the Leafs in a much worse position than he found them when he took the GM job.`\
-https://nytimes.com/athletic/7159876/2026/03/31/brad-treliving-maple-leafs-fired-legacy/
-
-**In Uzbekistan, the World Cup is about a lot more than just football**\
-`For a country that is still grappling with its post-communist legacy, this summer could change the way it is seen by the world`\
-https://nytimes.com/athletic/7157871/2026/03/31/uzbekistan-world-cup-2026/
-
-**Inside the strange world of England's 'top cappers' – and why many are snubbing this World Cup**\
-`The England supporters loyalty program encourages fans to go to great lengths to attend games — but this World Cup is too expensive for some`\
-https://nytimes.com/athletic/7156201/2026/03/31/england-top-capper-fans-world-cup/
 
