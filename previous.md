@@ -1,3 +1,23 @@
+**Spurs and Roberto De Zerbi - Would it be worth alienating a section of the fanbase?**\
+`Can Tottenham Hotspur afford to alienate so many of their fans in a time when the club desperately needs unity?`\
+https://nytimes.com/athletic/7158633/2026/03/31/spurs-de-zerbi-greenwood-fans/
+
+**Brad Treliving took the Maple Leafs backwards as GM**\
+`After less than three seasons, Brad Treliving leaves the Leafs in a much worse position than he found them when he took the GM job.`\
+https://nytimes.com/athletic/7159876/2026/03/31/brad-treliving-maple-leafs-fired-legacy/
+
+**In Uzbekistan, the World Cup is about a lot more than just football**\
+`For a country that is still grappling with its post-communist legacy, this summer could change the way it is seen by the world`\
+https://nytimes.com/athletic/7157871/2026/03/31/uzbekistan-world-cup-2026/
+
+**Inside the strange world of England's 'top cappers' – and why many are snubbing this World Cup**\
+`The England supporters loyalty program encourages fans to go to great lengths to attend games — but this World Cup is too expensive for some`\
+https://nytimes.com/athletic/7156201/2026/03/31/england-top-capper-fans-world-cup/
+
+**Liverpool have missed 102 big chances this season. What's going on?**\
+`Arne Slot has highlighted his side's profligacy as a key reason for their slump as Premier League champions, and the stats back him up`\
+https://nytimes.com/athletic/7143381/2026/03/31/liverpool-missed-chances-premier-league/
+
 **Managers on the rise: Christian Ilzer – the former electrician who gives his teams a spark**\
 `The 48-year-old Austrian has worked wonders since taking charge at Hoffenheim with a breathless style`\
 https://nytimes.com/athletic/7144112/2026/03/31/christian-ilzer-hoffenheim-manager-profile/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7151518/2026/03/31/graham-potter-sweden-world-cup/
 **How a provincial Belgian club became Japan's talent factory**\
 `Seven members of the Japan squad to face England this week are either past or present Sint-Truiden players`\
 https://nytimes.com/athletic/7157473/2026/03/31/japan-belgium-st-truiden-world-cup/
-
-**‘It’s a disgrace’: What Senegal fans think of U.S. World Cup visa restrictions**\
-`The Athletic spoke to Senegal fans who will have to pay a bond of up to $15,000 to get a visa to attend games in the U.S. this summer`\
-https://nytimes.com/athletic/7158149/2026/03/31/senegal-fans-visas-world-cup/
-
-**Offensive vs. Defensive: On Iran, the Distinction Matters for Britain’s Leader**\
-`As the United States expands its armada of warplanes on British soil, Prime Minister Keir Starmer says he is trying to defend Britain’s interests while keeping the country out of war.`\
-https://nytimes.com/2026/03/31/world/europe/iran-war-united-states-britain-starmer.html
-
-**When Will Japan’s Cherry Blossoms Bloom? A.I. Can Help Answer That**\
-`Experts use artificial intelligence to analyze data, plus thousands of crowdsourced photos, to forecast the prized flowers, which are a multibillion-dollar attraction.`\
-https://nytimes.com/2026/03/31/world/asia/japan-cherry-blossoms-ai.html
-
-**Connections: Sports Edition Coach: Hints and answers for March 31, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7159953/2026/03/31/connections-sports-edition-hints-answers-march-31-2026/
-
-**‘Dog Day Afternoon’ Review: A 1970s Classic, Onstage and Underbaked**\
-`A raucous adaptation of a gritty portrait of New York stifles tension with comedy, leaving its stars, Jon Bernthal and Ebon Moss-Bachrach, adrift.`\
-https://nytimes.com/2026/03/30/theater/dog-day-afternoon-review-bernthal-moss-bachrach.html
 
