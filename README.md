@@ -1,3 +1,7 @@
+**As Maple Leafs fire Brad Treliving, spotlight shifts to CEO Keith Pelley**\
+`Why should anyone in Toronto be left with the belief that MLSE CEO Keith Pelley is capable of saving this sinking ship?`\
+https://nytimes.com/athletic/7160015/2026/03/31/maple-leafs-brad-treliving-keith-pelley/
+
 **Mohamed Salah next club odds: MLS, Saudi, Barcelona or a return to Roma?**\
 `Speculation is already swirling over Salah’s next destination. At the age of 33, the winger is already into the twilight of his career`\
 https://nytimes.com/athletic/7160277/2026/03/31/mohamed-salah-next-club-odds-liverpool-premier-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7159405/2026/03/31/carolina-panthers-bryce-young-da
 **Cowboys believe they made 'very fair' offers to fill LB need, but a large hole remains**\
 `Dallas made plays for three free-agent LBs, but it didn't work out. Brian Schottenheimer says they're not done looking to fill that hole.`\
 https://nytimes.com/athletic/7159220/2026/03/31/cowboys-middle-linebacker-roster-needs/
-
-**Yankees suffer first loss of the season, but it could have been worse**\
-`There are no good losses. But the Yankees' 2-1 defeat Monday night in Seattle wasn't terrible.`\
-https://nytimes.com/athletic/7160140/2026/03/31/yankees-first-loss-mariners/
 
