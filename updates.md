@@ -1,3 +1,15 @@
+**Trump, Don’t Make Churchill’s Deadly Mistake**\
+`A 1936 convention establishing Turkish control over the Dardanelles could be an inspiration to resolving the energy bottleneck in the Persian Gulf.`\
+https://nytimes.com/2026/03/31/opinion/trump-hormuz-turkey-dardanelles.html
+
+**The New York Times in Print for Tuesday, March 31, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/31/todays-new-york-times
+
+**First look at the Final Four: Who has the edge? South Carolina or UConn? Texas or UCLA?**\
+`Same teams but different rosters. This Final Four might yield the same results. `\
+https://nytimes.com/athletic/7160006/2026/03/31/final-four-breakdown-uconn-south-carolina-texas-ucla/
+
 **FIFA confirms new offside rule to be trialed in Canadian Premier League**\
 `The new regulation will be tested when the CPL begins its season this weekend`\
 https://nytimes.com/athletic/7158945/2026/03/31/canadian-premier-league-offside-wenger/
