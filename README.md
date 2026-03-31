@@ -1,4 +1,8 @@
-**Penguins chase Sorokin, rout Islanders to earn crucial Metro Division win**\
+**Final Four field is set: South Carolina joins UConn, UCLA and Texas**\
+`South Carolina shoot off a shaky start to dominate Olivia Miles and TCU. `\
+https://nytimes.com/athletic/7159906/2026/03/30/south-carolina-final-four-uconn-ucla-texas/
+
+**Penguins chase Ilya Sorokin, rout Islanders to earn crucial Metro Division win**\
 `The Penguins and Islanders exploded for an eight-goal second period before the Penguins took firm control in the third.`\
 https://nytimes.com/athletic/7159774/2026/03/30/penguins-crosby-assist-silovs-rakell-rust-islanders/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/30/us/politics/eric-swalwell-fbi.html
 **Texas decimates Michigan for return trip to Final Four**\
 `Texas' defense was at its trademark best, giving the Wolverines fits throughout the Elite Eight contest.`\
 https://nytimes.com/athletic/7159671/2026/03/30/texas-michigan-elite-eight-ncaa-tournament/
-
-**Senators Seek Answers From Trump Administration About Airport Immigration Arrests**\
-`Airport security officials have been sharing passenger data with immigration agents, but the program received little attention until videos captured a woman and her daughter being detained at San Francisco’s airport.`\
-https://nytimes.com/2026/03/30/us/senators-trump-airport-immigration-arrests.html
 

@@ -1,3 +1,7 @@
+**Penguins chase Sorokin, rout Islanders to earn crucial Metro Division win**\
+`The Penguins and Islanders exploded for an eight-goal second period before the Penguins took firm control in the third.`\
+https://nytimes.com/athletic/7159774/2026/03/30/penguins-crosby-assist-silovs-rakell-rust-islanders/
+
 **Full Time: Parity or panic time in NWSL?**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/7159853/2026/03/30/nwsl-parity-2026-the-athletic/
