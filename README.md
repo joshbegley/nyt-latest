@@ -1,3 +1,7 @@
+**For Dick Motta, the Hall of Fame 'was never my goal.' Only the work mattered**\
+`Is this the last chance for Dick Motta, the winningest retired coach not in the Hall of Fame? If so, he's not seeking your validation.`\
+https://nytimes.com/athletic/7128413/2026/03/31/dick-motta-basketball-hall-of-fame-nba-legacy/
+
 **'Miraculously ... I'm alive': Andrea Pavan details the freak elevator shaft accident that shocked golf**\
 `The Italian's life changed forever in February after a freak accident. He tells The Athletic about his recovery and what comes next`\
 https://nytimes.com/athletic/7151386/2026/03/31/andrea-pavan-interview-elevator-shaft-fall/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7160006/2026/03/31/final-four-breakdown-uconn-south
 **Aston Villa, the Europa League and ticket prices — is there a breaking point?**\
 `Villa Park has not been sold out for any Europa League fixture this season with frustration at prices for the quarter-final against Bologna`\
 https://nytimes.com/athletic/7146529/2026/03/31/aston-villa-ticket-prices-bologna-europa-league/
-
-**Spurs and Roberto De Zerbi – would it be worth alienating a section of the fanbase?**\
-`Three Spurs supporters’ groups — all officially recognised by the club — have come out in opposition to the pursuit of De Zerbi as manager`\
-https://nytimes.com/athletic/7158633/2026/03/31/spurs-de-zerbi-greenwood-fans/
 
