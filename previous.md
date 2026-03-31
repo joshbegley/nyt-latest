@@ -1,3 +1,7 @@
+**Colts GM Chris Ballard puts last year's start in rearview mirror: 'That ... is over'**\
+`Ballard shared his thoughts on Daniel Jones, Riley Leonard, Anthony Richardson and more at the NFL's annual meeting.`\
+https://nytimes.com/athletic/7159540/2026/03/31/colts-chris-ballard-2026-outlook/
+
 **Fresh Food Distributors Add Surcharges as Fuel Costs Rise**\
 `Delivering salmon, fruits and other perishable foods has become more expensive as the war with Iran pushes up diesel prices.`\
 https://nytimes.com/2026/03/31/business/food-distributors-surcharges-fuel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/31/nyregion/car-free-parks-nyc.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/03/31/crosswords/spelling-bee-forum.html
-
-**Astronauts Prepare for Artemis II Moon Mission**\
-`NASA is sending four astronauts to space on a mission to circle the moon and test a life support system. The astronauts spoke to The New York Times in January before the mission was delayed until April because of technical issues.`\
-https://nytimes.com/video/us/100000010671827/astronaut-moon-artemis-nasa.html
 

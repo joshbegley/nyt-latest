@@ -1,3 +1,7 @@
+**Colts GM Chris Ballard puts last year's start in rearview mirror: 'That ... is over'**\
+`Ballard shared his thoughts on Daniel Jones, Riley Leonard, Anthony Richardson and more at the NFL's annual meeting.`\
+https://nytimes.com/athletic/7159540/2026/03/31/colts-chris-ballard-2026-outlook/
+
 **Fresh Food Distributors Add Surcharges as Fuel Costs Rise**\
 `Delivering salmon, fruits and other perishable foods has become more expensive as the war with Iran pushes up diesel prices.`\
 https://nytimes.com/2026/03/31/business/food-distributors-surcharges-fuel.html
