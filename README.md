@@ -1,3 +1,11 @@
+**New Book by JD Vance Will Explore His Conversion to Catholicism**\
+`The vice president’s book, to be released in June, will detail his return to Christianity after leaving the loosely evangelical practice of his childhood.`\
+https://nytimes.com/2026/03/31/us/politics/jd-vance-book-communion.html
+
+**EFL contacted over O'Neill's Blackburn, Northern Ireland conflict of interest concerns**\
+`A number of players in O’Neill’s Northern Ireland squad play for teams battling with Blackburn to remain in the Championship.`\
+https://nytimes.com/athletic/7160864/2026/03/31/michael-oneill-blackburn-northern-ireland-efl/
+
 **How to watch Knicks vs. Rockets: Time, TV, streaming**\
 `Find out how to watch the New York Knicks play the Houston Rockets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7160933/2026/03/31/knicks-vs-rockets-stream-how-to-watch-march-31/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7160907/2026/03/31/angels-vs-cubs-stream-how-to-wat
 **How to watch Rays vs. Brewers: Time, TV, streaming for March 31**\
 `Find out how to watch the Tampa Bay Rays play the Milwaukee Brewers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7160903/2026/03/31/rays-vs-brewers-stream-how-to-watch-march-31/
-
-**De Zerbi will put Spurs on the front foot - but can he implement his tactics quickly enough?**\
-`Firefighter? As a tactician, Roberto De Zerbi has always been more of a firestarter. Can he get Spurs warmed up enough to avoid the drop?`\
-https://nytimes.com/athletic/7158115/2026/03/31/de-zerbi-tottenham-tactics/
-
-**Men's March Madness Most Outstanding Player odds: Yaxel Lendeborg, Brayden Burries lead**\
-`In the big dance, the individual performances become the stuff of legend. Which player will clinch the top award?`\
-https://nytimes.com/athletic/7160709/2026/03/31/mens-march-madness-most-outstanding-player-odds-michigans-yaxel-lendeborg-arizonas-brayden-burries-lead/
 
