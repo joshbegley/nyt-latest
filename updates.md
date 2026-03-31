@@ -1,3 +1,7 @@
+**Slava Tsukerman, Who Directed the Cult Classic ‘Liquid Sky,’ Dies at 86**\
+`A Russian-born director, he created a film about New Wave models and killer aliens in 1980s New York, helping to reshape independent filmmaking in America.`\
+https://nytimes.com/2026/03/31/movies/slava-tsukerman-dead.html
+
 **England 'do not have the same threat' without Kane, Tuchel says**\
 `The head coach said it was "absolutely normal" to not be the same without the team's captain and central attacking threat.`\
 https://nytimes.com/athletic/7162102/2026/03/31/harry-kane-england-threat-tuchel/

@@ -1,3 +1,7 @@
+**Slava Tsukerman, Who Directed the Cult Classic ‘Liquid Sky,’ Dies at 86**\
+`A Russian-born director, he created a film about New Wave models and killer aliens in 1980s New York, helping to reshape independent filmmaking in America.`\
+https://nytimes.com/2026/03/31/movies/slava-tsukerman-dead.html
+
 **England 'do not have the same threat' without Kane, Tuchel says**\
 `The head coach said it was "absolutely normal" to not be the same without the team's captain and central attacking threat.`\
 https://nytimes.com/athletic/7162102/2026/03/31/harry-kane-england-threat-tuchel/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/31/briefing/supreme-court-conversion-therapy-trump-b
 **Melvin Edwards, Sculptor Who Wove Black History Into Art, Dies at 88**\
 `Lynch Fragments, a series of abstract steel sculptures he created starting in 1963, evoked the long, devastating history of violence against Black Americans.`\
 https://nytimes.com/2026/03/31/arts/melvin-edwards-dead.html
-
-**Tiger Woods pleads not guilty in DUI case, demands jury trial**\
-`Golfer was charged with driving under the influence with property damage, and refusal to submit to a urinalysis test after his Friday crash.`\
-https://nytimes.com/athletic/7161999/2026/03/31/tiger-woods-arrest-plea-not-guilty-dui/
 
