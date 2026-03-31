@@ -1,3 +1,7 @@
+**Sandro Tonali is Italy's main man. What does the future hold for Newcastle midfielder?**\
+`The cost of a deal for Tonali may put off Premier League suitors, with Man United looking elsewhere, and rule out a return to Italy`\
+https://nytimes.com/athletic/7153968/2026/03/31/sandro-tonali-italy-world-cup-newcastle-future-man-united/
+
 **Ghana sack head coach Addo 78 days before opening World Cup match**\
 `The decision followed five straight losses, including friendly defeats to Austria (5-1) on Friday and Germany (2-1) on Monday.`\
 https://nytimes.com/athletic/7160139/2026/03/31/ghana-sack-otto-addo-world-cup-england/
