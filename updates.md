@@ -1,3 +1,7 @@
+**Max Dowman just delivered another masterclass. So what now, England?**\
+`Arsenal's 16-year-old prodigy served another reminder of his brilliance for England's under-19s in Portugal`\
+https://nytimes.com/athletic/7161151/2026/03/31/max-dowman-england-u19-goal/
+
 **Trump Redefines ‘Regime Change’ in Iran War**\
 `President Trump and his aides have made contradictory statements on whether the United States and Israel have transformed the Iranian government through violence.`\
 https://nytimes.com/2026/03/31/us/politics/trump-regime-change-iran.html

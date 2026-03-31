@@ -1,3 +1,11 @@
+**Red Wings sign top goalie prospect, Hobey Baker finalist Trey Augustine**\
+`The Red Wings signed the 2023 second-round pick after Michigan State was eliminated from the NCAA Tournament this weekend.`\
+https://nytimes.com/athletic/7155049/2026/03/31/red-wings-trey-augustine-hobey-baker-michigan-state/
+
+**How Bengals, Zac Taylor view the work left to do on defense**\
+`Taylor stressed patience with young players and said the team has a vision for second-year linebackers Demetrius Knight and Barrett Carter.`\
+https://nytimes.com/athletic/7161221/2026/03/31/bengals-zac-taylor-defense-offseason/
+
 **Max Dowman just delivered another masterclass. So what now, England?**\
 `Arsenal's 16-year-old prodigy served another reminder of his brilliance for England's under-19s in Portugal`\
 https://nytimes.com/athletic/7161151/2026/03/31/max-dowman-england-u19-goal/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/31/arts/music/amplifier-newsletter-synth-pop-songs.h
 **Las Vegas Is Still a March Madness Mecca**\
 `The influx of fans during this month’s college basketball tournament is a welcome lift to the city’s casinos and hotels after a dismal 2025, when the number of visitors fell 7.5 percent.`\
 https://nytimes.com/2026/03/31/business/las-vegas-march-madness-tourism.html
-
-**A foreign journalist was abducted in Iraq, the country’s interior ministry says.**\
-`Iraq’s interior ministry said it is`\
-https://nytimes.com/live/2026/03/31/world/iran-war-oil-trump/a-foreign-journalist-was-abducted-in-iraq-the-countrys-interior-ministry-says
-
-**DeMeco Ryans sees a 'dialed-in' C.J. Stroud early in Texans' offseason**\
-`Stroud threw four interceptions in the Texans' divisional-round loss to the Patriots that ended Houston's season.`\
-https://nytimes.com/athletic/7161032/2026/03/31/cj-stroud-houston-texans-demeco-ryans/
 
