@@ -1,3 +1,7 @@
+**For Trump, Moon Mission Is a Ticket to Greater Goals, and His Own Legacy**\
+`No president since the Apollo era has pushed harder to return to the moon than President Trump. But he wants a space achievement that is about “more than getting rocks this time.”`\
+https://nytimes.com/2026/03/31/us/politics/trump-artemis-ii-moon-mission.html
+
 **They’re Going to the Moon and They Know Not Everyone Is With Them**\
 `Can the four astronauts of the NASA mission Artemis II make a difference in a distracted and divided world?`\
 https://nytimes.com/2026/03/31/science/nasa-artemis-ii-mission-astronauts.html

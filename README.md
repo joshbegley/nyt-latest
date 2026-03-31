@@ -1,3 +1,11 @@
+**Uncovering the World’s Newest and Deadliest Drugs**\
+`Overdose rates in the United States have surged with the emergence of new synthetic drugs. Matt Richtel reports from a lab in Pennsylvania where scientists are identifying new drug molecules that toxicology reports can’t detect.`\
+https://nytimes.com/video/science/100000010234095/synthetic-drugs-overdoses-fentanyl.html
+
+**Canada Charts a New Path in Space, and With the U.S.**\
+`Canada will send its first astronaut to the moon on a joint mission with the United States, but back on Earth, the relationship between the two countries is fraying.`\
+https://nytimes.com/2026/03/31/world/canada/canada-astronaut-artemis-ii-mission-moon.html
+
 **For Trump, Moon Mission Is a Ticket to Greater Goals, and His Own Legacy**\
 `No president since the Apollo era has pushed harder to return to the moon than President Trump. But he wants a space achievement that is about “more than getting rocks this time.”`\
 https://nytimes.com/2026/03/31/us/politics/trump-artemis-ii-moon-mission.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/31/business/gas-prices-4-dollars-gallon-iran.html
 **In bare feet, Giants manager Tony Vitello soaks up his first major league victory**\
 `Vitello got a beer shower from his players after the Giants won their first game of the season and his major-league career.`\
 https://nytimes.com/athletic/7160164/2026/03/31/tony-vitello-giants-first-win-mlb-padres/
-
-**Marc Cucurella interview: Chelsea’s season has 'paid the price' for inexperience, impact of Maresca exit, and story of the huddle**\
-`Cucurella has become a key player for both Chelsea and Spain. He speaks frankly to The Athletic about what's going wrong for his club side`\
-https://nytimes.com/athletic/7157593/2026/03/31/chelsea-marc-cucurella-exclusive-interview-maresca/
-
-**Favorite Podcasts**\
-`What do you like to listen to? Why?`\
-https://nytimes.com/2026/03/31/learning/favorite-podcasts.html
 
