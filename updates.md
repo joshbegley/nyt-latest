@@ -1,3 +1,7 @@
+**Jarren Duran's renewed mental approach has him wondering: 'Why did I care so much?'**\
+`Duran, a self-proclaimed overthinker, has focused on letting go: “I feel like this spring has been a really good mental spot for me."`\
+https://nytimes.com/athletic/7158810/2026/03/31/red-sox-jarren-duran-mental-approach/
+
 **Marc Cucurella's Chelsea concerns will resonate with fans. Will the club act on them?**\
 `Cucurella is one of the most popular players at Stamford Bridge — and that status lends authority to his opinions`\
 https://nytimes.com/athletic/7159119/2026/03/31/marc-cucurella-blueco-recruitment/
