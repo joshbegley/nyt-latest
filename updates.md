@@ -1,3 +1,11 @@
+**Final Four field is set: South Carolina joins UConn, UCLA and Texas**\
+`South Carolina shoot off a shaky start to dominate Olivia Miles and TCU. `\
+https://nytimes.com/athletic/7159906/2026/03/30/south-carolina-final-four-uconn-ucla-texas/
+
+**Penguins chase Ilya Sorokin, rout Islanders to earn crucial Metro Division win**\
+`The Penguins and Islanders exploded for an eight-goal second period before the Penguins took firm control in the third.`\
+https://nytimes.com/athletic/7159774/2026/03/30/penguins-crosby-assist-silovs-rakell-rust-islanders/
+
 **Penguins chase Sorokin, rout Islanders to earn crucial Metro Division win**\
 `The Penguins and Islanders exploded for an eight-goal second period before the Penguins took firm control in the third.`\
 https://nytimes.com/athletic/7159774/2026/03/30/penguins-crosby-assist-silovs-rakell-rust-islanders/
