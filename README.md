@@ -1,3 +1,7 @@
+**Max Dowman just delivered another masterclass. So what now, England?**\
+`Arsenal's 16-year-old prodigy served another reminder of his brilliance for England's under-19s in Portugal`\
+https://nytimes.com/athletic/7161151/2026/03/31/max-dowman-england-u19-goal/
+
 **Trump Redefines ‘Regime Change’ in Iran War**\
 `President Trump and his aides have made contradictory statements on whether the United States and Israel have transformed the Iranian government through violence.`\
 https://nytimes.com/2026/03/31/us/politics/trump-regime-change-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/31/world/iran-war-oil-trump/a-foreign-journalis
 **DeMeco Ryans sees a 'dialed-in' C.J. Stroud early in Texans' offseason**\
 `Stroud threw four interceptions in the Texans' divisional-round loss to the Patriots that ended Houston's season.`\
 https://nytimes.com/athletic/7161032/2026/03/31/cj-stroud-houston-texans-demeco-ryans/
-
-**Dean’s Transports a Breezy Coastal England Pub to SoHo**\
-`The team from King and Jupiter are serving up pork scratchings, crab with buttered crumpets and sticky ginger pudding.`\
-https://nytimes.com/2026/03/31/dining/nyc-restaurant-news.html
 
