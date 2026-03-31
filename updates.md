@@ -1,3 +1,15 @@
+**Submit a question for Pete Sampson's Notre Dame mailbag**\
+`The storylines and questions of the 2026 Fighting Irish are coming into clearer focus.`\
+https://nytimes.com/athletic/7161882/2026/03/31/submit-a-question-for-pete-sampsons-notre-dame-mailbag-111/
+
+**NFL owners approve mandate that teams employ full-time mental health clinicians**\
+`Previously, teams were required to have one clinician work eight to 12 hours per week over a two-day span.`\
+https://nytimes.com/athletic/7161644/2026/03/31/nfl-mental-health-clinicians-mandate/
+
+**Sweden are among the least deserving World Cup qualifiers this century - but they could still be a force**\
+`The most important goal of Sweden's bizarre World Cup qualifying campaign was arguably scored in November 2024`\
+https://nytimes.com/athletic/7161827/2026/03/31/sweden-world-cup-qualifying/
+
 **Is Social Media the New Tobacco?**\
 `A landmark court ruling in an online addiction case could be very bad news for big tech companies.`\
 https://nytimes.com/2026/03/31/world/social-media-ban-case-iran-trump-russia.html
