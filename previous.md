@@ -1,3 +1,15 @@
+**Ghana sack head coach Addo 78 days before opening World Cup match**\
+`The decision followed five straight losses, including friendly defeats to Austria (5-1) on Friday and Germany (2-1) on Monday.`\
+https://nytimes.com/athletic/7160139/2026/03/31/ghana-sack-otto-addo-world-cup-england/
+
+**Here’s the latest.**\
+`By Ephrat Livni, David E. Sanger and Yan Zhuang`\
+https://nytimes.com/live/2026/03/31/world/iran-war-oil-trump/heres-the-latest
+
+**Iran War Live Updates: Attack Hits Kuwaiti Tanker Full of Oil Near Dubai**\
+`The massive vessel caught fire after what its owner called an Iranian attack. On Monday, President Trump warned Iran that without a deal, he would order attacks on infrastructure targets.`\
+https://nytimes.com/live/2026/03/31/world/iran-war-oil-trump
+
 **For Dick Motta, the Hall of Fame 'was never my goal.' Only the work mattered**\
 `Is this the last chance for Dick Motta, the winningest retired coach not in the Hall of Fame? If so, he's not seeking your validation.`\
 https://nytimes.com/athletic/7128413/2026/03/31/dick-motta-basketball-hall-of-fame-nba-legacy/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/31/opinion/trump-hormuz-turkey-dardanelles.html
 **The New York Times in Print for Tuesday, March 31, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/31/todays-new-york-times
-
-**FIFA confirms new offside rule to be trialed in Canadian Premier League**\
-`The new regulation will be tested when the CPL begins its season this weekend`\
-https://nytimes.com/athletic/7158945/2026/03/31/canadian-premier-league-offside-wenger/
-
-**First look at the Final Four: Who has the edge? South Carolina or UConn? Texas or UCLA?**\
-`Same teams but different rosters. This Final Four might yield the same results. `\
-https://nytimes.com/athletic/7160006/2026/03/31/final-four-breakdown-uconn-south-carolina-texas-ucla/
-
-**Aston Villa, the Europa League and ticket prices — is there a breaking point?**\
-`Villa Park has not been sold out for any Europa League fixture this season with frustration at prices for the quarter-final against Bologna`\
-https://nytimes.com/athletic/7146529/2026/03/31/aston-villa-ticket-prices-bologna-europa-league/
 
