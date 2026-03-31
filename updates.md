@@ -1,3 +1,15 @@
+**Ahead of likely lockout, MLB players union amasses war chest of more than $500 million**\
+`The union’s financial disclosure was the first it has filed since the ouster of Tony Clark as executive director in February.`\
+https://nytimes.com/athletic/7162265/2026/03/31/mlbpa-assets-annual-filing-mlb-cba-negotiations/
+
+**Dan Hurley downplays ref contact, expected 'chest bump' after UConn buzzer-beater**\
+`ESPN's Seth Greenberg said Monday that he spoke with Roger Ayers about the incident and was told it was 'absolutely nothing.'`\
+https://nytimes.com/athletic/7162059/2026/03/31/dan-hurley-referee-roger-ayers-technical/
+
+**Mike McCarthy eyes mid-round QB, maps out plan to mold Will Howard into a starter**\
+`The Steelers coach said, "We want to have a hell of a class" and is "hopeful" a QB will be available "at the right time."`\
+https://nytimes.com/athletic/7161668/2026/03/31/pittsburgh-steelers-mike-mccarthy-quarterback/
+
 **Tiger: 'I am stepping away ... to seek treatment'**\
 `Woods was arrested on Friday and charged with DUI.`\
 https://nytimes.com/athletic/7162240/2026/03/31/tiger-woods-treatment-dui-arrest/
