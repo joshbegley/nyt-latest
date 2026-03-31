@@ -1,3 +1,7 @@
+**Kuwaiti Oil Tanker Is Set Ablaze After Attack Off the Coast of Dubai**\
+`The attack damaged the hull, the owner of the tanker said, which could cause an oil spill.`\
+https://nytimes.com/2026/03/30/world/middleeast/kuwait-oil-tanker-iran-drone.html
+
 **Blue Jays' Cody Ponce carted off the field after running off the mound**\
 `Toronto’s rotation, which appeared exceptionally deep ahead of the regular season, has already seen three losses.`\
 https://nytimes.com/athletic/7159589/2026/03/30/toronto-blue-jays-cody-ponce-early-exit/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/30/us/politics/trump-threats-oil-cuba-sanctions.html
 **DeSantis Signs Bill to Rename Florida Airport for Trump**\
 `The airport near West Palm Beach will be rebranded the President Donald J. Trump International Airport on July 1, if approved by the Federal Aviation Administration.`\
 https://nytimes.com/2026/03/30/us/politics/trump-airport-palm-beach-florida.html
-
-**How Barbie Dream Fest Turned Into a Nightmare**\
-`Fans had high hopes for the event, a Mattel-sanctioned gathering in a Florida convention center. Now, it’s drawing comparisons to Fyre Festival.`\
-https://nytimes.com/2026/03/30/style/barbie-dream-fest-florida.html
 

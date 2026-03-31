@@ -1,3 +1,7 @@
+**Blue Jays' Cody Ponce carted off the field after running off the mound**\
+`Toronto’s rotation, which appeared exceptionally deep ahead of the regular season, has already seen three losses.`\
+https://nytimes.com/athletic/7159589/2026/03/30/toronto-blue-jays-cody-ponce-early-exit/
+
 **Here’s What Happened in the War in the Middle East on Monday**\
 `Iran maintained that no negotiations have been held with the United States, and said none would while the fighting continues.`\
 https://nytimes.com/2026/03/30/world/middleeast/iran-middle-east-war-recap-monday.html

@@ -1,3 +1,7 @@
+**Blue Jays' Cody Ponce carted off the field after running off the mound**\
+`Toronto’s rotation, which appeared exceptionally deep ahead of the regular season, has already seen three losses.`\
+https://nytimes.com/athletic/7159589/2026/03/30/toronto-blue-jays-cody-ponce-early-exit/
+
 **Here’s What Happened in the War in the Middle East on Monday**\
 `Iran maintained that no negotiations have been held with the United States, and said none would while the fighting continues.`\
 https://nytimes.com/2026/03/30/world/middleeast/iran-middle-east-war-recap-monday.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/30/us/politics/trump-airport-palm-beach-florida.html
 **How Barbie Dream Fest Turned Into a Nightmare**\
 `Fans had high hopes for the event, a Mattel-sanctioned gathering in a Florida convention center. Now, it’s drawing comparisons to Fyre Festival.`\
 https://nytimes.com/2026/03/30/style/barbie-dream-fest-florida.html
-
-**Employee Lawsuit Against Fox News Is Dismissed**\
-`A reporter who claimed the network had fired him for challenging its coverage failed to prove retaliation and discrimination, a federal judge said.`\
-https://nytimes.com/2026/03/30/business/media/fox-news-jason-donner-lawsuit-dismissed.html
 
