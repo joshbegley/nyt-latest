@@ -1,3 +1,7 @@
+**Stephen Colbert Marvels at ‘No Kings’ Rallies Worldwide**\
+`“Just look at the crowd we got here in New York,” he said. “Oop, that’s the T.S.A. line at J.F.K.”`\
+https://nytimes.com/2026/03/31/arts/television/colbert-no-kings-marches.html
+
 **Trump, Don’t Make Churchill’s Deadly Mistake**\
 `A 1936 convention establishing Turkish control over the Dardanelles could be an inspiration to resolving the energy bottleneck in the Persian Gulf.`\
 https://nytimes.com/2026/03/31/opinion/trump-hormuz-turkey-dardanelles.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7157871/2026/03/31/uzbekistan-world-cup-2026/
 **Inside the strange world of England's 'top cappers' – and why many are snubbing this World Cup**\
 `The England supporters loyalty program encourages fans to go to great lengths to attend games — but this World Cup is too expensive for some`\
 https://nytimes.com/athletic/7156201/2026/03/31/england-top-capper-fans-world-cup/
-
-**Liverpool have missed 102 big chances this season. What's going on?**\
-`Arne Slot has highlighted his side's profligacy as a key reason for their slump as Premier League champions, and the stats back him up`\
-https://nytimes.com/athletic/7143381/2026/03/31/liverpool-missed-chances-premier-league/
 
