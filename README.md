@@ -1,3 +1,7 @@
+**FIFA confirms new offside rule to be trialed in Canadian Premier League**\
+`The new regulation will be tested when the CPL begins its season this weekend`\
+https://nytimes.com/athletic/7158945/2026/03/31/canadian-premier-league-offside-wenger/
+
 **First look at the Final Four: Who has the edge? South Carolina or UConn? Texas or UCLA?**\
 `Same teams, but different rosters. This Final Four may yield the same results. `\
 https://nytimes.com/athletic/7160006/2026/03/31/final-four-breakdown-uconn-south-carolina-texas-ucla/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7144112/2026/03/31/christian-ilzer-hoffenheim-manag
 **Interview with Francisco and Sergio Conceicao: On football, family and Portugal's World Cup chances**\
 `The Athletic sits down with Juventus and Portugal winger Francisco and his illustrious father, Sergio, a serial winner as player and manager`\
 https://nytimes.com/athletic/7158560/2026/03/31/interview-francisco-and-sergio-conceicao-portugal-juventus/
-
-**Kosovo, football's youngest nation, are a win away from the World Cup. But much more is at stake**\
-`A country that was not recognised by FIFA 10 years ago is 90 minutes from sport's biggest stage and the symbolism goes far beyond the pitch`\
-https://nytimes.com/athletic/7158136/2026/03/31/kosovo-independence-world-cup-teams-qualified/
 
