@@ -1,3 +1,15 @@
+**Tugboat Captain Is Charged in Miami Beach Crash That Killed 3 Children**\
+`Six people, including a camp counselor, were thrown into the water on July 28 when their sailboat was struck by a barge that was being pushed by a tugboat, the authorities said.`\
+https://nytimes.com/2026/03/31/us/miami-sailboat-crash-biscayne-bay-manslaughter.html
+
+**Judge Dismisses Lawsuit That Challenged Ban on Endorsements by Churches**\
+`Conservatives had expected a victory in the case after the I.R.S. agreed to a settlement that allowed churches to voice support for candidates.`\
+https://nytimes.com/2026/03/31/us/politics/judge-johnson-amendment-settlement.html
+
+**Tiger: 'I am stepping away ... to seek treatment'**\
+`Woods will not be at the Masters in any capacity.`\
+https://nytimes.com/athletic/7162240/2026/03/31/tiger-woods-treatment-dui-arrest/
+
 **LeBrun: Keith Pelley's tell and what it means for the future of the Maple Leafs**\
 `The MLSE president and CEO hinted that the Leafs don't have the stomach for a rebuild, which will shape the list of front-office candidates.`\
 https://nytimes.com/athletic/7162202/2026/03/31/keith-pelley-maple-leafs-retool-rebuild/
