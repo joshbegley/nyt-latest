@@ -1,3 +1,11 @@
+**Tottenham accounts: Worst-ever pre-tax loss and growing need for cash**\
+`The 2024-25 accounts also detail that Spurs’ net transfer debt to other clubs was £242.8m ahead of last summer's transfer window.`\
+https://nytimes.com/athletic/7160684/2026/03/31/tottenham-accounts-loss-cash/
+
+**Maple Leafs GM search: Who might be considered?**\
+`Brad Treliving is out. Who will take over? A very early list of potential candidates to lead the Maple Leafs. `\
+https://nytimes.com/athletic/7159796/2026/03/31/maple-leafs-gm-search-candidates/
+
 **What’s Your Mom’s Favorite Mantra?**\
 `Share the go-to motto or oft-repeated bit of advice that has stayed with you throughout the years.`\
 https://nytimes.com/2026/03/31/well/family/mother-mom-advice-mantra-motto-saying-aphorism.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7160796/2026/03/31/flyers-vs-capitals-stream-how-to
 **How to watch Islanders vs. Sabres: Time, TV, streaming**\
 `Find out how to watch the New York Islanders play the Buffalo Sabres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7160794/2026/03/31/islanders-vs-sabres-stream-how-to-watch-march-31/
-
-**How to watch Red Wings vs. Penguins: Time, TV, streaming**\
-`Find out how to watch the Detroit Red Wings play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7160791/2026/03/31/red-wings-vs-penguins-stream-how-to-watch-march-31/
-
-**How to watch Stars vs. Bruins: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the Boston Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7160789/2026/03/31/stars-vs-bruins-stream-how-to-watch-march-31/
 

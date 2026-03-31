@@ -1,40 +1,40 @@
-**How to watch Nationals vs. Phillies: Time, TV, streaming for March 31**\
-`Find out how to watch the Washington Nationals play the Philadelphia Phillies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7160766/2026/03/31/nationals-vs-phillies-stream-how-to-watch-march-31/
+**What’s Your Mom’s Favorite Mantra?**\
+`Share the go-to motto or oft-repeated bit of advice that has stayed with you throughout the years.`\
+https://nytimes.com/2026/03/31/well/family/mother-mom-advice-mantra-motto-saying-aphorism.html
 
-**How to watch White Sox vs. Marlins: Time, TV, streaming for March 31**\
-`Find out how to watch the Chicago White Sox play the Miami Marlins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7160764/2026/03/31/white-sox-vs-marlins-stream-how-to-watch-march-31/
+**Arkansas Primary Runoff Election Results**\
+`Get live results and maps from the 2026 Arkansas primary runoff elections.`\
+https://nytimes.com/interactive/2026/us/elections/results-arkansas-runoff.html
 
-**How to watch Pirates vs. Reds: Time, TV, streaming for March 31**\
-`Find out how to watch the Pittsburgh Pirates play the Cincinnati Reds, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7160762/2026/03/31/pirates-vs-reds-stream-how-to-watch-march-31/
+**Eurovision Song Contest to Add Asian Edition This Year**\
+`The competition will bring together singers representing 10 nations including South Korea, the Philippines and Vietnam.`\
+https://nytimes.com/2026/03/31/arts/music/eurovision-song-contest-asia.html
 
-**Pentagon Weighs Using Anti-Drone Lasers in Washington Airspace**\
-`Sightings of drones around Fort McNair, the Army base where Defense Secretary Pete Hegseth and Secretary of State Marco Rubio live, have prompted consideration of deploying the new technology.`\
-https://nytimes.com/2026/03/31/us/politics/pentagon-anti-drone-lasers-dc.html
+**How to watch Senators vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the Florida Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7160803/2026/03/31/senators-vs-panthers-stream-how-to-watch-march-31/
 
-**Women’s NCAA Tournament odds: UConn enters repeat Final Four as clear favorite**\
-`All four No. 1 seeds are in the Final Four. But can anyone challenge UConn's dominance?`\
-https://nytimes.com/athletic/7160503/2026/03/31/ncaa-tournament-odds-womens-uconn-texas-ucla-south-carolina/
+**Infantino says Iran will play at World Cup, attends friendly in Turkey**\
+`Iran's participation at the men's World Cup has been thrown into doubt due to its ongoing war with co-hosts the United States.`\
+https://nytimes.com/athletic/7160758/2026/03/31/iran-world-cup-infantino-turkey/
 
-**How to watch Suns vs. Magic: Time, TV, streaming**\
-`Find out how to watch the Phoenix Suns play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7160739/2026/03/31/suns-vs-magic-stream-how-to-watch-march-31/
+**How to watch Canadiens vs. Lightning: Time, TV, streaming**\
+`Find out how to watch the Montreal Canadiens play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7160800/2026/03/31/canadiens-vs-lightning-stream-how-to-watch-march-31/
 
-**Sneakers for Any Walking Style**\
-`These are just a few fave spring sneaks. See more favorites on Wirecutter.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010812388/sneakers-for-any-walking-style.html
+**How to watch Flyers vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7160796/2026/03/31/flyers-vs-capitals-stream-how-to-watch-march-31/
 
-**Mamdani, the Influencer Mayor, Ends TikTok Ban for N.Y.C. Government**\
-`Mayor Zohran Mamdani is lifting the ban on governmental use of the social media app, one of a handful that the mayor used to amplify his campaign messaging.`\
-https://nytimes.com/2026/03/31/nyregion/mamdani-tiktok-nyc.html
+**How to watch Islanders vs. Sabres: Time, TV, streaming**\
+`Find out how to watch the New York Islanders play the Buffalo Sabres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7160794/2026/03/31/islanders-vs-sabres-stream-how-to-watch-march-31/
 
-**Playing with fire: Unpacking Golden Knights' John Tortorella gamble, Leafs' GM firing**\
-`As the NHL regular season intensifies down the stretch, Brad Treliving is out in Toronto and Tortorella starts a ticking clock in Vegas.`\
-https://nytimes.com/athletic/7160628/2026/03/31/nhl-maple-leafs-golden-knights-red-light/
+**How to watch Red Wings vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7160791/2026/03/31/red-wings-vs-penguins-stream-how-to-watch-march-31/
 
-**Three Great Documentaries to Stream**\
-`In this month’s picks, reflections on a comedian couple, a charged reality-TV series and activism in Northern Ireland.`\
-https://nytimes.com/2026/03/31/movies/documentaries-streaming.html
+**How to watch Stars vs. Bruins: Time, TV, streaming**\
+`Find out how to watch the Dallas Stars play the Boston Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7160789/2026/03/31/stars-vs-bruins-stream-how-to-watch-march-31/
 
