@@ -1,3 +1,7 @@
+**A Lifeline for Cuba**\
+`We look at the energy crisis on the Caribbean island.`\
+https://nytimes.com/2026/03/31/briefing/a-lifeline-for-cuba.html
+
 **These Two Countries With Social Media Bans Aren’t Happy With Google and Meta**\
 `Indonesia says the two companies are violating its law that bars children under 16 from the social media. Australia has similar concerns.`\
 https://nytimes.com/2026/03/31/world/asia/indonesia-australia-social-media-ban.html

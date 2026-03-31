@@ -1,3 +1,7 @@
+**A Lifeline for Cuba**\
+`We look at the energy crisis on the Caribbean island.`\
+https://nytimes.com/2026/03/31/briefing/a-lifeline-for-cuba.html
+
 **These Two Countries With Social Media Bans Aren’t Happy With Google and Meta**\
 `Indonesia says the two companies are violating its law that bars children under 16 from the social media. Australia has similar concerns.`\
 https://nytimes.com/2026/03/31/world/asia/indonesia-australia-social-media-ban.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7116102/2026/03/31/nhl-draft-2027-ranking-dupont-jo
 **Justin Verlander's warm Tigers return meets a colder first start**\
 `The 43-year-old surrendered five runs in 3 2/3 innings in his much-anticipated first start back with the Tigers. `\
 https://nytimes.com/athletic/7160158/2026/03/31/justin-verlander-tigers-first-start/
-
-**Dave Canales one-on-one: How the Panthers take next step with Bryce Young**\
-`Canales discussed Young's growth, what he likes about new backup Kenny Pickett and expectations for Xavier Legette.`\
-https://nytimes.com/athletic/7159405/2026/03/31/carolina-panthers-bryce-young-dave-canales/
 
