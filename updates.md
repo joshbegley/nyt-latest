@@ -1,3 +1,11 @@
+**Maple Leafs fire general manager Brad Treliving**\
+`The Leafs fired Treliving while set to miss the playoffs for the first time in ten years.`\
+https://nytimes.com/athletic/7159646/2026/03/30/leafs-fire-gm-treliving/
+
+**Cody Ponce carted off field after running off mound in Blue Jays debut**\
+`Toronto's rotation, which appeared exceptionally deep ahead of the regular season, had already lost three starters.`\
+https://nytimes.com/athletic/7159589/2026/03/30/toronto-blue-jays-cody-ponce-early-exit/
+
 **The 'very, very good' Jeremiyah Love, and a familiar Giants draft debate**\
 `The star running back from Notre Dame was a subject of conversation with the Giants coach John Harbaugh and GM Joe Schoen on Monday.`\
 https://nytimes.com/athletic/7159428/2026/03/30/new-york-giants-nfl-draft-jeremiyah-love/
