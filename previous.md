@@ -1,3 +1,7 @@
+**Corrections: March 31, 2026**\
+`Corrections that appeared in print on Tuesday, March 31, 2026.`\
+https://nytimes.com/2026/03/31/pageoneplus/corrections-march-31-2026.html
+
 **Arab World Faces ‘Profound’ Economic Crisis From Iran War, U.N. Agency Warns**\
 `An economic simulation warned that the region’s economy could lose more than $190 billion in just one month, and that Gulf states that have often bankrolled reconstruction efforts will be less able to help.`\
 https://nytimes.com/2026/03/31/world/middleeast/arab-countries-war-economic-impact.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7156737/2026/03/31/sf-giants-greg-johnson-media-rig
 **Wolves' accounts: What do the 2024-25 figures tell us about life after relegation?**\
 `Wolves booked a £15.3m loss in 2024-25, even as they reaped £117m in player profits - by some distance a new club record`\
 https://nytimes.com/athletic/7140880/2026/03/31/wolves-2024-25-relegation-accounts-analysis/
-
-**U.S. Gas Prices Top $4 a Gallon**\
-`The average price of a gallon of gasoline in the United States rose above $4 on Tuesday as the war in the Middle East continued to affect global oil supplies.`\
-https://nytimes.com/video/us/politics/100000010812061/gas-prices-trump.html
 

@@ -1,3 +1,7 @@
+**Corrections: March 31, 2026**\
+`Corrections that appeared in print on Tuesday, March 31, 2026.`\
+https://nytimes.com/2026/03/31/pageoneplus/corrections-march-31-2026.html
+
 **Arab World Faces ‘Profound’ Economic Crisis From Iran War, U.N. Agency Warns**\
 `An economic simulation warned that the region’s economy could lose more than $190 billion in just one month, and that Gulf states that have often bankrolled reconstruction efforts will be less able to help.`\
 https://nytimes.com/2026/03/31/world/middleeast/arab-countries-war-economic-impact.html
