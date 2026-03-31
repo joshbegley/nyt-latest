@@ -1,3 +1,7 @@
+**Maple Leafs fire general manager Brad Treliving**\
+`The Leafs fired Treliving while set to miss the playoffs for the first time in 10 years.`\
+https://nytimes.com/athletic/7159646/2026/03/30/leafs-fire-gm-treliving/
+
 **Eric Swalwell Sends Cease-and-Desist Letter to F.B.I. Over Case Files**\
 `A Trump administration effort to gather documents from an old investigation had alarmed law enforcement officials, who feared it would be used to smear the Democratic lawmaker.`\
 https://nytimes.com/2026/03/30/us/politics/eric-swalwell-fbi.html
