@@ -1,3 +1,15 @@
+**Mohamed Salah next club odds: MLS, Saudi, Barcelona or a return to Roma?**\
+`Speculation is already swirling over Salah’s next destination. At the age of 33, the winger is already into the twilight of his career`\
+https://nytimes.com/athletic/7160277/2026/03/31/mohamed-salah-next-club-odds-liverpool-premier-league/
+
+**The Pulse: Being shorter is better**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7158260/2026/03/31/mlb-abs-overturns-the-pulse/
+
+**Arsenal's Mead back in England squad**\
+`Chelsea’s Aggie Beever-Jones, Manchester City’s Grace Clinton and Manchester United’s Ella Toone miss out with injuries.`\
+https://nytimes.com/athletic/7160321/2026/03/31/england-women-squad-april-mead/
+
 **The lessons Andrew Painter learned — through struggles — on the way to MLB debut**\
 `Painter was shaped by his struggles last season in Triple A. He carries those lessons with him as he embarks on his big-league career. `\
 https://nytimes.com/athletic/7159614/2026/03/31/andrew-painter-phillies-mlb-debut-journey/

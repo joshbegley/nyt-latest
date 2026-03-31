@@ -1,3 +1,15 @@
+**Mohamed Salah next club odds: MLS, Saudi, Barcelona or a return to Roma?**\
+`Speculation is already swirling over Salah’s next destination. At the age of 33, the winger is already into the twilight of his career`\
+https://nytimes.com/athletic/7160277/2026/03/31/mohamed-salah-next-club-odds-liverpool-premier-league/
+
+**The Pulse: Being shorter is better**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7158260/2026/03/31/mlb-abs-overturns-the-pulse/
+
+**Arsenal's Mead back in England squad**\
+`Chelsea’s Aggie Beever-Jones, Manchester City’s Grace Clinton and Manchester United’s Ella Toone miss out with injuries.`\
+https://nytimes.com/athletic/7160321/2026/03/31/england-women-squad-april-mead/
+
 **The lessons Andrew Painter learned — through struggles — on the way to MLB debut**\
 `Painter was shaped by his struggles last season in Triple A. He carries those lessons with him as he embarks on his big-league career. `\
 https://nytimes.com/athletic/7159614/2026/03/31/andrew-painter-phillies-mlb-debut-journey/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7159220/2026/03/31/cowboys-middle-linebacker-roster
 **Yankees suffer first loss of the season, but it could have been worse**\
 `There are no good losses. But the Yankees' 2-1 defeat Monday night in Seattle wasn't terrible.`\
 https://nytimes.com/athletic/7160140/2026/03/31/yankees-first-loss-mariners/
-
-**Isles' playoff hopes in danger after loss to Penguins: 'One of our worst games defensively'**\
-`"We lost a big game tonight," captain Anders Lee said after an 8-3 thrashing in which his team blew a 3-1 lead.`\
-https://nytimes.com/athletic/7159932/2026/03/31/islanders-loss-penguins-playoff-hopes-danger/
-
-**Brad Treliving is gone. What comes next for the Maple Leafs?**\
-`Numerous questions are swirling around the Leafs now that Treliving has been let go as general manager.`\
-https://nytimes.com/athletic/7160146/2026/03/31/maple-leafs-brad-treliving-what-comes-next/
-
-**Edward Cabrera gives Cubs a taste of what they have long desired in team debut**\
-`Cabrera led the way in the Cubs' 7-2 win over the Los Angeles Angels on Monday night.`\
-https://nytimes.com/athletic/7159862/2026/03/31/cubs-win-angels-edward-cabrera-debut/
 
