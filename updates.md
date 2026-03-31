@@ -1,3 +1,11 @@
+**How to watch Cavaliers vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the Cleveland Cavaliers play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7161457/2026/03/31/cavaliers-vs-lakers-stream-how-to-watch-march-31/
+
+**Packers received 'really good' report on Micah Parsons' ACL rehab**\
+`Parsons is expected to miss the first few games of the season, and Tucker Kraft should be ready to go for Week 1.`\
+https://nytimes.com/athletic/7161188/2026/03/31/packers-micah-parsons-rehab-brian-gutekunst/
+
 **How to watch Trail Blazers vs. Clippers: Time, TV, streaming**\
 `Find out how to watch the Portland Trail Blazers play the Los Angeles Clippers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7161440/2026/03/31/trail-blazers-vs-clippers-stream-how-to-watch-march-31/
