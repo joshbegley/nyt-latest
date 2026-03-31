@@ -1,3 +1,11 @@
+**The Windup: Out with the old, in with the rookies?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7160639/2026/03/31/mlb-rookies-andrew-painter-the-windup/
+
+**Napoli may take 'disciplinary action' against Lukaku after striker misses training**\
+`Lukaku withdrew from Belgium’s squad for their March international friendlies, but didn't return to training.`\
+https://nytimes.com/athletic/7160490/2026/03/31/lukaku-napoli-training-disciplinary-action-news/
+
 **NASCAR to reinstate Daniel Dye after suspension, won't return to Kaulig Racing: Sources**\
 `Dye had previously been suspended by NASCAR in April 2022 after he was arrested and charged with battery on a high-school classmate.`\
 https://nytimes.com/athletic/7160792/2026/03/31/nascar-daniel-dye-suspension-homophobic-kaulig-racing/

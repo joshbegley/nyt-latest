@@ -1,3 +1,11 @@
+**L.A. Locals Share Their Favorite Burritos**\
+`From a vegetarian version with smoky salsa to a carne asada style that’s an after-school staple.`\
+https://nytimes.com/2026/03/31/t-magazine/los-angeles-burritos-favorites.html
+
+**Tottenham confirm De Zerbi appointment**\
+`De Zerbi becomes the third Spurs head coach of the season and succeeds Igor Tudor, who parted ways with the club on Sunday.`\
+https://nytimes.com/athletic/7157581/2026/03/31/de-zerbi-tottenham-manager-coach/
+
 **The Windup: Out with the old, in with the rookies?**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/7160639/2026/03/31/mlb-rookies-andrew-painter-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2026/us/elections/results-arkansas-runoff.html
 **Eurovision Song Contest to Add Asian Edition This Year**\
 `The competition will bring together singers representing 10 nations including South Korea, the Philippines and Vietnam.`\
 https://nytimes.com/2026/03/31/arts/music/eurovision-song-contest-asia.html
-
-**How to watch Senators vs. Panthers: Time, TV, streaming**\
-`Find out how to watch the Ottawa Senators play the Florida Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7160803/2026/03/31/senators-vs-panthers-stream-how-to-watch-march-31/
-
-**Infantino says Iran will play at World Cup, attends friendly in Turkey**\
-`Iran's participation at the men's World Cup has been thrown into doubt due to its ongoing war with co-hosts the United States.`\
-https://nytimes.com/athletic/7160758/2026/03/31/iran-world-cup-infantino-turkey/
 

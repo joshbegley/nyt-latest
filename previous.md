@@ -1,3 +1,11 @@
+**The Windup: Out with the old, in with the rookies?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7160639/2026/03/31/mlb-rookies-andrew-painter-the-windup/
+
+**Napoli may take 'disciplinary action' against Lukaku after striker misses training**\
+`Lukaku withdrew from Belgium’s squad for their March international friendlies, but didn't return to training.`\
+https://nytimes.com/athletic/7160490/2026/03/31/lukaku-napoli-training-disciplinary-action-news/
+
 **NASCAR to reinstate Daniel Dye after suspension, won't return to Kaulig Racing: Sources**\
 `Dye had previously been suspended by NASCAR in April 2022 after he was arrested and charged with battery on a high-school classmate.`\
 https://nytimes.com/athletic/7160792/2026/03/31/nascar-daniel-dye-suspension-homophobic-kaulig-racing/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7160803/2026/03/31/senators-vs-panthers-stream-how-
 **Infantino says Iran will play at World Cup, attends friendly in Turkey**\
 `Iran's participation at the men's World Cup has been thrown into doubt due to its ongoing war with co-hosts the United States.`\
 https://nytimes.com/athletic/7160758/2026/03/31/iran-world-cup-infantino-turkey/
-
-**How to watch Canadiens vs. Lightning: Time, TV, streaming**\
-`Find out how to watch the Montreal Canadiens play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7160800/2026/03/31/canadiens-vs-lightning-stream-how-to-watch-march-31/
-
-**How to watch Flyers vs. Capitals: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Flyers play the Washington Capitals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7160796/2026/03/31/flyers-vs-capitals-stream-how-to-watch-march-31/
 
