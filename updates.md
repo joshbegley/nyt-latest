@@ -1,3 +1,7 @@
+**For Dick Motta, the Hall of Fame 'was never my goal.' Only the work mattered**\
+`Is this the last chance for Dick Motta, the winningest retired coach not in the Hall of Fame? If so, he's not seeking your validation.`\
+https://nytimes.com/athletic/7128413/2026/03/31/dick-motta-basketball-hall-of-fame-nba-legacy/
+
 **'Miraculously ... I'm alive': Andrea Pavan details the freak elevator shaft accident that shocked golf**\
 `The Italian's life changed forever in February after a freak accident. He tells The Athletic about his recovery and what comes next`\
 https://nytimes.com/athletic/7151386/2026/03/31/andrea-pavan-interview-elevator-shaft-fall/
