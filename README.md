@@ -1,3 +1,15 @@
+**U.N. Peacekeepers in Lebanon Were Killed by Roadside Bomb**\
+`Members of the United Nations Security Council condemned deadly attacks on U.N. peacekeepers in south Lebanon and called for de-escalation between Israel and Hezbollah.`\
+https://nytimes.com/2026/03/31/world/middleeast/un-peacekeepers-lebanon-killed-security-council.html
+
+**World Cup play-offs: Who went through? Which groups are they in?**\
+`Sweden, Bosnia & Herzegovina, Turkey and Czech Republic booked their place at the 2026 World Cup on Tuesday.`\
+https://nytimes.com/athletic/7161079/2026/03/31/world-cup-play-offs-who-qualified/
+
+**Supreme Court Rejects a Ban on ‘Conversion Therapy’ for Minors**\
+`Also, a judge halts construction on the White House ballroom. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2026/03/31/briefing/supreme-court-conversion-therapy-trump-ballroom.html
+
 **Melvin Edwards, Sculptor Who Wove Black History Into Art, Dies at 88**\
 `Lynch Fragments, a series of abstract steel sculptures he created starting in 1963, evoked the long, devastating history of violence against Black Americans.`\
 https://nytimes.com/2026/03/31/arts/melvin-edwards-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7161599/2026/03/31/cowboys-jerry-jones-george-picke
 **At the National Archives, the Declaration Gets More Company**\
 `The Emancipation Proclamation and the 19th Amendment have been added to the Archives’s rotunda, the first permanent changes there in nearly 75 years.`\
 https://nytimes.com/2026/03/31/arts/national-archives-emancipation-19th-amendment.html
-
-**Italy fail to reach 2026 World Cup after penalty shootout defeat by Bosnia and Herzegovina**\
-`The four-time champions took the lead in Zenica but had their centre-back Bastoni sent off before half-time, before losing on penalties`\
-https://nytimes.com/athletic/7156213/2026/03/31/italy-world-cup-penalties-lose-bosnia-herzegovina/
-
-**Miami Imagines Itself With Trump’s Glitzy Library at Center Stage**\
-`The president’s foundation released a video showing a gleaming tower by Biscayne Bay emblazoned with his name. It would dominate the skyline.`\
-https://nytimes.com/2026/03/31/us/miami-trump-library-reaction.html
-
-**Everything Canada fans need to know about Bosnia and Herzegovina, their newest World Cup opponent**\
-`The Group B line-up has been set, but what should we expect?`\
-https://nytimes.com/athletic/7160651/2026/03/31/canada-bosnia-herzegovina-world-cup-guide/
 
