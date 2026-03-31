@@ -1,3 +1,11 @@
+**England 'do not have the same threat' without Kane, Tuchel says**\
+`The head coach said it was "absolutely normal" to not be the same without the team's captain and central attacking threat.`\
+https://nytimes.com/athletic/7162102/2026/03/31/harry-kane-england-threat-tuchel/
+
+**Here’s What Happened in the War in the Middle East on Tuesday**\
+`Defense Secretary Pete Hegseth and Gen. Dan Caine, the chairman of the Joint Chiefs of Staff, took questions from reporters for the first time in nearly two weeks.`\
+https://nytimes.com/2026/03/31/world/middleeast/iran-war-middle-east-recap-tuesday.html
+
 **Mavericks ready to discuss 'potential framework' of new downtown arena, CEO says**\
 `Mavericks CEO Rick Welts also said the search fro a permanent new president of basketball operations is ongoing. `\
 https://nytimes.com/athletic/7161796/2026/03/31/mavericks-arena-rick-welts-city-hall/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/31/arts/melvin-edwards-dead.html
 **Tiger Woods pleads not guilty in DUI case, demands jury trial**\
 `Golfer was charged with driving under the influence with property damage, and refusal to submit to a urinalysis test after his Friday crash.`\
 https://nytimes.com/athletic/7161999/2026/03/31/tiger-woods-arrest-plea-not-guilty-dui/
-
-**Backdoor Funding of Homeland Security Agency Could Weaken Congress Anew**\
-`An emerging Republican plan to skirt a Democratic filibuster and fund an entire department without congressional appropriations would be the latest example of surrendering power to the White House.`\
-https://nytimes.com/2026/03/31/us/politics/republicans-reconciliation-homeland-security-funding.html
-
-**Doug Armstrong to the Maple Leafs? It still doesn't make sense for the Blues**\
-`Armstrong is under contract for three more years with the Blues as president of hockey ops and doesn't have an out clause.`\
-https://nytimes.com/athletic/7161199/2026/03/31/doug-armstrong-maple-leafs-blues-front-office/
 
