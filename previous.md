@@ -1,3 +1,23 @@
+**England 'do not have the same threat' without Kane, Tuchel says**\
+`The head coach said it was "absolutely normal" to not be the same without the team's captain and central attacking threat.`\
+https://nytimes.com/athletic/7162102/2026/03/31/harry-kane-england-threat-tuchel/
+
+**Here’s What Happened in the War in the Middle East on Tuesday**\
+`Defense Secretary Pete Hegseth and Gen. Dan Caine, the chairman of the Joint Chiefs of Staff, took questions from reporters for the first time in nearly two weeks.`\
+https://nytimes.com/2026/03/31/world/middleeast/iran-war-middle-east-recap-tuesday.html
+
+**Mavericks ready to discuss 'potential framework' of new downtown arena, CEO says**\
+`Mavericks CEO Rick Welts also said the search fro a permanent new president of basketball operations is ongoing. `\
+https://nytimes.com/athletic/7161796/2026/03/31/mavericks-arena-rick-welts-city-hall/
+
+**BTS Is Back, But at What Cost?**\
+`BTS is back. Roll up to the drive-through with our critic Jon Caramanica as he dissects “Normal,” one of the most inventive songs from the group’s new album “Arirang,” and explains how it taps into the stylings of Rihanna and Mk.gee.`\
+https://nytimes.com/video/podcasts/100000010813668/bts-is-back-but-at-what-cost.html
+
+**A'ja Wilson heads to Team USA camp; Caitlin Clark to sit out session**\
+`The 2026 FIBA World Cup will take place Sept. 4-13 in Berlin, Germany.`\
+https://nytimes.com/athletic/7161819/2026/03/31/aja-wilson-napheesa-collier-usa-national-team-training-camp/
+
 **U.N. Peacekeepers in Lebanon Were Killed by Roadside Bomb**\
 `Members of the United Nations Security Council condemned deadly attacks on U.N. peacekeepers in south Lebanon and called for de-escalation between Israel and Hezbollah.`\
 https://nytimes.com/2026/03/31/world/middleeast/un-peacekeepers-lebanon-killed-security-council.html
@@ -17,24 +37,4 @@ https://nytimes.com/2026/03/31/arts/melvin-edwards-dead.html
 **Tiger Woods pleads not guilty in DUI case, demands jury trial**\
 `Golfer was charged with driving under the influence with property damage, and refusal to submit to a urinalysis test after his Friday crash.`\
 https://nytimes.com/athletic/7161999/2026/03/31/tiger-woods-arrest-plea-not-guilty-dui/
-
-**Backdoor Funding of Homeland Security Agency Could Weaken Congress Anew**\
-`An emerging Republican plan to skirt a Democratic filibuster and fund an entire department without congressional appropriations would be the latest example of surrendering power to the White House.`\
-https://nytimes.com/2026/03/31/us/politics/republicans-reconciliation-homeland-security-funding.html
-
-**Doug Armstrong to the Maple Leafs? It still doesn't make sense for the Blues**\
-`Armstrong is under contract for three more years with the Blues as president of hockey ops and doesn't have an out clause.`\
-https://nytimes.com/athletic/7161199/2026/03/31/doug-armstrong-maple-leafs-blues-front-office/
-
-**Raiders at peace with Maxx Crosby trade debacle, turn attention to solving starting QB conundrum**\
-`GM John Spytek and coach Klint Kubiak also dish on the Raiders adding a veteran QB and Fernando Mendoza as a Day 1 starter.`\
-https://nytimes.com/athletic/7161723/2026/03/31/las-vegas-raider-maxx-crosby-fernando-mendoza/
-
-**Jerry Jones stressed Cowboys have plans for George Pickens: 'Make no mistake about it'**\
-`Dez Bryant (2015) is the last Cowboys player to get a contract extension the first time Dallas gave him the franchise tag.`\
-https://nytimes.com/athletic/7161599/2026/03/31/cowboys-jerry-jones-george-pickens-franchise-tag/
-
-**At the National Archives, the Declaration Gets More Company**\
-`The Emancipation Proclamation and the 19th Amendment have been added to the Archives’s rotunda, the first permanent changes there in nearly 75 years.`\
-https://nytimes.com/2026/03/31/arts/national-archives-emancipation-19th-amendment.html
 
