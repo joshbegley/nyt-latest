@@ -1,3 +1,7 @@
+**Streetwear That Used to Be Duffel Bags**\
+`Attire spotted outside in Tokyo had a past life as military gear.`\
+https://nytimes.com/2026/03/31/style/genki-matsumoto-street-style-military.html
+
 **The 10 most interesting players to watch in Notre Dame's spring practice**\
 `Whether it’s a starter, a rotational player or a breakout freshman, these are the players drawing buzz at Notre Dame this spring.`\
 https://nytimes.com/athletic/7160391/2026/03/31/notre-dame-spring-practice-will-black-cj-carr/
