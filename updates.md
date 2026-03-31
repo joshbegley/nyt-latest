@@ -1,3 +1,19 @@
+**A foreign journalist was abducted in Iraq, the country’s interior ministry says.**\
+`Iraq’s interior ministry said it is`\
+https://nytimes.com/live/2026/03/31/world/iran-war-oil-trump/a-foreign-journalist-was-abducted-in-iraq-the-countrys-interior-ministry-says
+
+**DeMeco Ryans sees a 'dialed-in' C.J. Stroud early in Texans' offseason**\
+`Stroud threw four interceptions in the Texans' divisional-round loss to the Patriots that ended Houston's season.`\
+https://nytimes.com/athletic/7161032/2026/03/31/cj-stroud-houston-texans-demeco-ryans/
+
+**Dean’s Transports a Breezy Coastal England Pub to SoHo**\
+`The team from King and Jupiter are serving up pork scratchings, crab with buttered crumpets and sticky ginger pudding.`\
+https://nytimes.com/2026/03/31/dining/nyc-restaurant-news.html
+
+**Andy Reid gives Patrick Mahomes knee update from a unique perspective**\
+`Mahomes has publicly stated a goal to return for Week 1 of the regular season, and Reid said Tuesday that he "would never bet against him."`\
+https://nytimes.com/athletic/7161074/2026/03/31/chiefs-patrick-mahomes-knee-injury-andy-reid/
+
 **Ed Policy was 'shocked' by talk of firing Matt LaFleur prior to extension**\
 `Green Bay's president and CEO lauded the coach's success with the Packers, as well as the locker room's support for LaFleur.`\
 https://nytimes.com/athletic/7160618/2026/03/31/ed-policy-matt-lafleur-packers/
