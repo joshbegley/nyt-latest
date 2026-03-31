@@ -1,3 +1,23 @@
+**What’s Your Fave Organizational Tool?**\
+`Here are a few of our favorite organizational hacks.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010812333/whats-your-fave-organizational-tool.html
+
+**King Charles to Visit U.S. as Tensions Rise Between Trump and Britain**\
+`President Trump has fired criticism at America’s longtime ally over the war in Iran, but there are hopes that the royal visit will help shore up relations.`\
+https://nytimes.com/2026/03/31/world/europe/king-charles-state-visit-trump.html
+
+**Eli Lilly Will Buy a Narcolepsy Drug Developer for $6.3 Billion**\
+`Eli Lilly plans to acquire Centessa Pharmaceuticals, which has been conducting a midstage clinical trial of its lead drug.`\
+https://nytimes.com/2026/03/31/business/eli-lilly-narcolepsy-centessa.html
+
+**The Chaotic Competition for Trump’s Attention**\
+`The scholar Henry Farrell explains how efforts to capture Trump’s attention and approval through spectacle resemble the attention dynamics in Nazi Germany.`\
+https://nytimes.com/video/opinion/100000010810043/the-chaotic-competition-for-trumps-attention.html
+
+**Mariners' Colt Emerson nearing $95 million extension, a record for MLB prospect before debut**\
+`It may not be long before the 20-year-old is given a chance to help the Mariners attempt to secure a second straight division title.`\
+https://nytimes.com/athletic/7160565/2026/03/31/mariners-colt-emerson-debut-deal-record-contract/
+
 **Masai Ujiri to join ownership group for WNBA's Toronto Tempo**\
 `The longtime Toronto Raptors executive, who was fired in 2025, will become a principal owner of the WNBA expansion franchise. `\
 https://nytimes.com/athletic/7160610/2026/03/31/masai-ujiri-tempo-owner-wnba-toronto/
