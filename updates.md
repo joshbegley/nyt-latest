@@ -1,3 +1,7 @@
+**In bare feet, Giants manager Tony Vitello soaks up his first major league victory**\
+`Vitello got a beer shower from his players after the Giants won their first game of the season and his major-league career.`\
+https://nytimes.com/athletic/7160164/2026/03/31/tony-vitello-giants-first-win-mlb-padres/
+
 **Marc Cucurella interview: Chelsea’s season has 'paid the price' for inexperience, impact of Maresca exit, and story of the huddle**\
 `Cucurella has become a key player for both Chelsea and Spain. He speaks frankly to The Athletic about what's going wrong for his club side`\
 https://nytimes.com/athletic/7157593/2026/03/31/chelsea-marc-cucurella-exclusive-interview-maresca/
