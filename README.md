@@ -1,3 +1,7 @@
+**First look at the Final Four: Who has the edge? South Carolina or UConn? Texas or UCLA?**\
+`Same teams, but different rosters. This Final Four may yield the same results. `\
+https://nytimes.com/athletic/7160006/2026/03/31/final-four-breakdown-uconn-south-carolina-texas-ucla/
+
 **Aston Villa, the Europa League and ticket prices — is there a breaking point?**\
 `Villa Park has not been sold out for any Europa League fixture this season with frustration at prices for the quarter-final against Bologna`\
 https://nytimes.com/athletic/7146529/2026/03/31/aston-villa-ticket-prices-bologna-europa-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7158560/2026/03/31/interview-francisco-and-sergio-c
 **Kosovo, football's youngest nation, are a win away from the World Cup. But much more is at stake**\
 `A country that was not recognised by FIFA 10 years ago is 90 minutes from sport's biggest stage and the symbolism goes far beyond the pitch`\
 https://nytimes.com/athletic/7158136/2026/03/31/kosovo-independence-world-cup-teams-qualified/
-
-**How Graham Potter resurrected Sweden's World Cup prospects - and his own career**\
-`Potter has not always made good decisions on his next job – but taking charge of the Swedish national team might be one`\
-https://nytimes.com/athletic/7151518/2026/03/31/graham-potter-sweden-world-cup/
 
