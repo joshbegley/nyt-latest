@@ -1,3 +1,15 @@
+**The 10 most interesting players to watch in Notre Dame's spring practice**\
+`Whether it’s a starter, a rotational player or a breakout freshman, these are the players drawing buzz at Notre Dame this spring.`\
+https://nytimes.com/athletic/7160391/2026/03/31/notre-dame-spring-practice-will-black-cj-carr/
+
+**Giants chairman Greg Johnson Q&A Part 2: Media rights, a new one-team market and more**\
+`Johnson weighed in on the A's leaving Oakland, a potential lockout and whether the Dodgers are bad for baseball.`\
+https://nytimes.com/athletic/7156737/2026/03/31/sf-giants-greg-johnson-media-rights-athletics-mlb-labor/
+
+**Trump Administration Live Updates: King Charles Will Make State Visit to U.S.**\
+``\
+https://nytimes.com/live/2026/03/31/us/trump-news
+
 **Wolves' accounts: What do the 2024-25 figures tell us about life after relegation?**\
 `Wolves booked a £15.3m loss in 2024-25, even as they reaped £117m in player profits - by some distance a new club record`\
 https://nytimes.com/athletic/7140880/2026/03/31/wolves-2024-25-relegation-accounts-analysis/
