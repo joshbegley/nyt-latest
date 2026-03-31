@@ -1,3 +1,11 @@
+**Five big questions facing Sabres during their push for the playoffs and beyond**\
+`The Sabres' final eight games of the regular season will determine playoff seeding, matchups and home-ice advantage.`\
+https://nytimes.com/athletic/7160872/2026/03/31/buffalo-sabres-standings-stats-playoffs-questions/
+
+**Mayor Mamdani Attended a Hip Seder. Some Guests Weren’t Thrilled.**\
+`The mayor spoke at Michael Dorf’s annual Passover celebration, taking hecklers and a comic’s last-minute cancellation in stride.`\
+https://nytimes.com/2026/03/31/style/zohran-mamdani-seder-nyc.html
+
 **New Book by JD Vance Will Explore His Conversion to Catholicism**\
 `The vice president’s book, to be released in June, will detail his return to Christianity after leaving the loosely evangelical practice of his childhood.`\
 https://nytimes.com/2026/03/31/us/politics/jd-vance-book-communion.html
