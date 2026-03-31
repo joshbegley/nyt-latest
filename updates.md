@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: Senators Seek Answers About Airport Immigration Arrests**\
+``\
+https://nytimes.com/live/2026/03/31/us/trump-news
+
+**Tom Willander's offence, Elias Pettersson's blocks: 10 Canucks observations**\
+`Also, goaltending woes come to the fore and Zeev Buium and Marco Rossi step up.`\
+https://nytimes.com/athletic/7159951/2026/03/31/canucks-observations-tom-willander-elias-pettersson/
+
 **These Pistons won't go down without a fight, even down four starters at OKC**\
 `"We go out there and fight every night," Javonte Green said after undermanned Detroit took the defending champs to overtime.`\
 https://nytimes.com/athletic/7160095/2026/03/31/pistons-thunder-injury-overtime/
