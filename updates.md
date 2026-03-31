@@ -1,3 +1,15 @@
+**Trump Redefines ‘Regime Change’ in Iran War**\
+`President Trump and his aides have made contradictory statements on whether the United States and Israel have transformed the Iranian government through violence.`\
+https://nytimes.com/2026/03/31/us/politics/trump-regime-change-iran.html
+
+**Allbirds, Once Silicon Valley’s Favorite Shoe, Sells for $39 Million**\
+`Despite once being valued at $4 billion, the company that made sneakers from Merino wool struggled to capture a wide customer base and turn a profit.`\
+https://nytimes.com/2026/03/31/business/allbirds-sold-39-million.html
+
+**Footage Shows U.S. Bombing in Iranian City of Isfahan**\
+`President Trump shared a video of the attack, which the Pentagon said had targeted an ammunition depot.`\
+https://nytimes.com/2026/03/31/world/middleeast/isfahan-iran-bombing-trump-video.html
+
 **Republican Candidate for N.Y. Governor Is Denied Public Matching Funds**\
 `Bruce Blakeman, who is trying to unseat Gov. Kathy Hochul, will not receive up to $7 million, after a 4-to-3 ruling by a Democratic-led board.`\
 https://nytimes.com/2026/03/31/nyregion/bruce-blakeman-matching-funds.html
