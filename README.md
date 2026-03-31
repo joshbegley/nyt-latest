@@ -1,3 +1,7 @@
+**Penguins chase Sorokin, rout Islanders to earn crucial Metro Division win**\
+`The Penguins and Islanders exploded for an eight-goal second period before the Penguins took firm control in the third.`\
+https://nytimes.com/athletic/7159774/2026/03/30/penguins-crosby-assist-silovs-rakell-rust-islanders/
+
 **Full Time: Parity or panic time in NWSL?**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/7159853/2026/03/30/nwsl-parity-2026-the-athletic/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7159671/2026/03/30/texas-michigan-elite-eight-ncaa-
 **Senators Seek Answers From Trump Administration About Airport Immigration Arrests**\
 `Airport security officials have been sharing passenger data with immigration agents, but the program received little attention until videos captured a woman and her daughter being detained at San Francisco’s airport.`\
 https://nytimes.com/2026/03/30/us/senators-trump-airport-immigration-arrests.html
-
-**Maple Leafs fire general manager Brad Treliving**\
-`The Leafs fired Treliving while set to miss the playoffs for the first time in 10 years.`\
-https://nytimes.com/athletic/7159646/2026/03/30/leafs-fire-gm-treliving/
 
