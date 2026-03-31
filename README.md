@@ -1,3 +1,11 @@
+**Packers received 'really good' report on Micah Parsons' ACL rehab**\
+`Parsons is expected to miss the first couple games of the season, while Tucker Kraft should be ready to go for Week 1.`\
+https://nytimes.com/athletic/7161188/2026/03/31/packers-micah-parsons-rehab-brian-gutekunst/
+
+**We Put Dyson’s $600 Vacuum to the Test**\
+`Dyson named its new stick vacuum PencilVac Fluffycones. We liked some other things about it, too.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010812518/we-put-dysons-600-vacuum-to-the-test.html
+
 **All the NFL rule changes, including more replay assistance in case of replacement refs**\
 `NFL owners also approved several other rule changes at the annual league meetings, including three related to kickoffs. `\
 https://nytimes.com/athletic/7161251/2026/03/31/nfl-rule-changes-replacement-officials-replay-kickoff-2026/
@@ -8,7 +16,7 @@ https://nytimes.com/athletic/7161096/2026/03/31/ravens-jesse-minter-offseason-pr
 
 **Federal Judge Approves Trump Effort to Extract List of Jews From Penn**\
 `The decision to allow the government to collect the names and phone numbers of Jewish people on campus could allow the government to pursue similar tactics elsewhere.`\
-https://nytimes.com/2026/03/31/us/politics/federal-judge-approves-trump-effort-to-extract-list-of-jews-from-penn.html
+https://nytimes.com/2026/03/31/us/politics/trump-jews-penn-list-judge.html
 
 **One Bite After Another**\
 `These snacks may not be Oscar-worthy, but perhaps this video is PTA approved?`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7161221/2026/03/31/bengals-zac-taylor-defense-offse
 **Max Dowman just delivered another masterclass. So what now, England?**\
 `Arsenal's 16-year-old prodigy served another reminder of his brilliance for England's under-19s in Portugal`\
 https://nytimes.com/athletic/7161151/2026/03/31/max-dowman-england-u19-goal/
-
-**Trump Redefines ‘Regime Change’ in Iran War**\
-`President Trump and his aides have made contradictory statements on whether the United States and Israel have transformed the Iranian government through violence.`\
-https://nytimes.com/2026/03/31/us/politics/trump-regime-change-iran.html
-
-**Allbirds, Once Silicon Valley’s Favorite Shoe, Sells for $39 Million**\
-`Despite once being valued at $4 billion, the company that made sneakers from Merino wool struggled to capture a wide customer base and turn a profit.`\
-https://nytimes.com/2026/03/31/business/allbirds-sold-39-million.html
 

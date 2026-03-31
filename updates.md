@@ -1,3 +1,19 @@
+**All the NFL rule changes, including more replay assistance in case of replacement refs**\
+`NFL owners also approved several other rule changes at the annual league meetings, including three related to kickoffs. `\
+https://nytimes.com/athletic/7161251/2026/03/31/nfl-rule-changes-replacement-officials-replay-kickoff-2026/
+
+**Jesse Minter: Ravens 'in a good place' heading into offseason workout program**\
+`Minter discussed the team's upcoming workout sessions, Lamar Jackson's approach to the offseason and more at the league meeting in Phoenix.`\
+https://nytimes.com/athletic/7161096/2026/03/31/ravens-jesse-minter-offseason-program-nfl-meeting/
+
+**Federal Judge Approves Trump Effort to Extract List of Jews From Penn**\
+`The decision to allow the government to collect the names and phone numbers of Jewish people on campus could allow the government to pursue similar tactics elsewhere.`\
+https://nytimes.com/2026/03/31/us/politics/federal-judge-approves-trump-effort-to-extract-list-of-jews-from-penn.html
+
+**One Bite After Another**\
+`These snacks may not be Oscar-worthy, but perhaps this video is PTA approved?`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010812443/one-bite-after-another.html
+
 **Sources: Jaden Ivey will receive full salary after being waived by Bulls**\
 `If and when Ivey clears waivers, the 24-year-old guard will be an unrestricted free agent.`\
 https://nytimes.com/athletic/7161166/2026/03/31/jaden-ivey-bulls-waived-salary/
