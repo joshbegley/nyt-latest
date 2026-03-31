@@ -1,3 +1,7 @@
+**Mike McCarthy eyes mid-round QB, maps out plan to mold Will Howard into a starter**\
+`The Steelers coach said, "We want to have a hell of a class" and is "hopeful" a QB will be available "at the right time."`\
+https://nytimes.com/athletic/7161668/2026/03/31/pittsburgh-steelers-mike-mccarthy-quarterback/
+
 **Tiger: 'I am stepping away ... to seek treatment'**\
 `Woods was arrested on Friday and charged with DUI.`\
 https://nytimes.com/athletic/7162240/2026/03/31/tiger-woods-treatment-dui-arrest/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/31/world/africa/africa-iran-shipping-houthis.html
 **Gattuso apologises after Italy miss out on 2026 World Cup**\
 `Italy were beaten on penalties by Bosnia and Herzegovina in the qualification playoff final on Tuesday.`\
 https://nytimes.com/athletic/7162137/2026/03/31/gennaro-gattuso-italy-world-cup/
-
-**Drivers Say Rising Gas Prices Are ‘Out of Control’**\
-`Gasoline prices in the U.S. passed $4 a gallon, on average, as the war in the Middle East affects global energy markets. Drivers said that the rising costs were affecting their wallets.`\
-https://nytimes.com/video/us/100000010813164/gas-prices-iran-war-drivers-reactions.html
 

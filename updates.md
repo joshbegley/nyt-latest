@@ -1,3 +1,11 @@
+**Tiger: 'I am stepping away ... to seek treatment'**\
+`Woods was arrested on Friday and charged with DUI.`\
+https://nytimes.com/athletic/7162240/2026/03/31/tiger-woods-treatment-dui-arrest/
+
+**Gattuso apologises after Italy miss out on 2026 World Cup**\
+`Italy were beaten on penalties by Bosnia and Herzegovina in the qualification playoff final on Tuesday.`\
+https://nytimes.com/athletic/7162137/2026/03/31/gennaro-gattuso-italy-world-cup/
+
 **Justice Dept. Struggles to Respond to Trump’s Suit Against I.R.S.**\
 `Officials at the department and the White House are in the middle of a messy and complicated debate over how to respond to President Trump’s lawsuit demanding $10 billion from the I.R.S.`\
 https://nytimes.com/2026/03/31/us/politics/trump-irs-lawsuit-doj.html
