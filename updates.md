@@ -1,3 +1,7 @@
+**Average Gasoline Price Hits $4 in U.S., a ‘Headache’ for Drivers and Trump**\
+`A month since the first U.S.-Israeli attacks and Iran’s response effectively shut off Persian Gulf oil, drivers are paying significantly more to fill up.`\
+https://nytimes.com/2026/03/31/business/gas-prices-4-dollars-gallon-iran.html
+
 **In bare feet, Giants manager Tony Vitello soaks up his first major league victory**\
 `Vitello got a beer shower from his players after the Giants won their first game of the season and his major-league career.`\
 https://nytimes.com/athletic/7160164/2026/03/31/tony-vitello-giants-first-win-mlb-padres/
