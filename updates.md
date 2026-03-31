@@ -1,3 +1,19 @@
+**How to watch Nationals vs. Phillies: Time, TV, streaming for March 31**\
+`Find out how to watch the Washington Nationals play the Philadelphia Phillies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7160766/2026/03/31/nationals-vs-phillies-stream-how-to-watch-march-31/
+
+**How to watch White Sox vs. Marlins: Time, TV, streaming for March 31**\
+`Find out how to watch the Chicago White Sox play the Miami Marlins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7160764/2026/03/31/white-sox-vs-marlins-stream-how-to-watch-march-31/
+
+**How to watch Pirates vs. Reds: Time, TV, streaming for March 31**\
+`Find out how to watch the Pittsburgh Pirates play the Cincinnati Reds, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7160762/2026/03/31/pirates-vs-reds-stream-how-to-watch-march-31/
+
+**Pentagon Weighs Using Anti-Drone Lasers in Washington Airspace**\
+`Sightings of drones around Fort McNair, the Army base where Defense Secretary Pete Hegseth and Secretary of State Marco Rubio live, have prompted consideration of deploying the new technology.`\
+https://nytimes.com/2026/03/31/us/politics/pentagon-anti-drone-lasers-dc.html
+
 **Women’s NCAA Tournament odds: UConn enters repeat Final Four as clear favorite**\
 `All four No. 1 seeds are in the Final Four. But can anyone challenge UConn's dominance?`\
 https://nytimes.com/athletic/7160503/2026/03/31/ncaa-tournament-odds-womens-uconn-texas-ucla-south-carolina/
