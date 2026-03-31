@@ -1,3 +1,7 @@
+**U.S. Senators Press Taiwan to Raise Military Spending as China Protests**\
+`Four visiting senators urged Taiwan to break an impasse over a $40 billion budget proposal, highlighting concerns in Washington about the threat from China.`\
+https://nytimes.com/2026/03/31/world/asia/senators-taiwan-military.html
+
 **A Cat-and-Mouse Game of Russian Internet Restrictions and Evasion**\
 `As the Kremlin spends heavily on censorship technology, Russians are scrambling to find new ways to circumvent the limits.`\
 https://nytimes.com/2026/03/31/world/europe/russia-internet-restrictions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/31/us/gas-prices-iran-war.html
 **Sketches Found in a Closet Reveal Reality of the Holocaust**\
 `The drawings, now on display at Manhattan University, were found in a house in Westchester County.`\
 https://nytimes.com/2026/03/31/nyregion/sketches-holocaust-manhattan-university.html
-
-**I Wrote a Cesar Chavez Biography. This Is How His Secrets Stayed Buried.**\
-`Reckoning with the United Farm Workers founder means reckoning with his movement.`\
-https://nytimes.com/2026/03/31/opinion/cesar-chavez-sexual-abuse-allegations-biographer.html
 

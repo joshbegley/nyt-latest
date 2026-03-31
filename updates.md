@@ -1,3 +1,7 @@
+**U.S. Senators Press Taiwan to Raise Military Spending as China Protests**\
+`Four visiting senators urged Taiwan to break an impasse over a $40 billion budget proposal, highlighting concerns in Washington about the threat from China.`\
+https://nytimes.com/2026/03/31/world/asia/senators-taiwan-military.html
+
 **A Cat-and-Mouse Game of Russian Internet Restrictions and Evasion**\
 `As the Kremlin spends heavily on censorship technology, Russians are scrambling to find new ways to circumvent the limits.`\
 https://nytimes.com/2026/03/31/world/europe/russia-internet-restrictions.html
