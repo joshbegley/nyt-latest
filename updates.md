@@ -1,3 +1,19 @@
+**Shimmying American Woodcocks Cause a Birding Frenzy in N.Y.C.**\
+`People flocked to Bryant Park in Midtown Manhattan, where the quirky American woodcocks had made a pit stop on their migration north. The birds are known for their bopping and shimmying.`\
+https://nytimes.com/video/nyregion/100000010816436/american-woodcock-bryant-park-nyc.html
+
+**Chelsea 1-0 Arsenal: Bompastor sent off after McCabe's hair pull**\
+`McCabe was not disciplined for the incident at the end of an eventful second leg tie, which Chelsea won 1-0 on the night.`\
+https://nytimes.com/athletic/7165409/2026/04/01/bompastor-sent-off-mccabe-hair-pull-chelsea-arsenal/
+
+**Bill Self, Kansas' all-time winningest coach, returning for 24th season**\
+`Self will be looking to add to his Kansas legacy of two national championships and 16 regular-season Big 12 titles.`\
+https://nytimes.com/athletic/7160615/2026/04/01/bill-self-returning-kansas-mens-basketball-coach-ku/
+
+**Trump Will Lose the Birthright Citizenship Case. But in a Way, He’s Already Won.**\
+`The case is open-and-shut on the merits. But its procedural course still leaves plenty of room for Trump administration overreach.`\
+https://nytimes.com/2026/04/01/opinion/birthright-citizenship-case-trump.html
+
 **Trump Has Discussed Firing Attorney General Pam Bondi**\
 `President Trump has not made a final decision, but he has floated the idea of replacing Ms. Bondi with Lee Zeldin, the E.P.A. administrator.`\
 https://nytimes.com/2026/04/01/us/politics/trump-pam-bondi-future.html
