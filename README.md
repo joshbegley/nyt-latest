@@ -1,3 +1,7 @@
+**Why Reopening the Strait of Hormuz Matters for the U.S. Economy**\
+`The interconnectedness of global energy markets means that the effects of Iran’s blockade of the waterway are not limited to countries directly dependent on oil from the Middle East.`\
+https://nytimes.com/2026/04/01/world/middleeast/strait-of-hormuz-economy-oil.html
+
 **Placing U.S. Troops in Middle East Hotels May Violate Laws of War**\
 `U.S. commanders have kept many troops away from bases in the region to protect them from Iran’s ballistic missile attacks.`\
 https://nytimes.com/2026/04/01/us/politics/troops-iran-hotels.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/01/arts/music/bruce-springsteen-minneapolis-concert-
 **What Is Birth Tourism and How Common Is It?**\
 `The term refers to pregnant women who travel to the United States to give birth so that their baby can have American citizenship.`\
 https://nytimes.com/2026/04/01/us/politics/supreme-court-birth-tourism-birthright-citizenship.html
-
-**Netanyahu makes the case that wars on Iran have succeeded.**\
-`Prime Minister Benjamin Netanyahu claimed that Israel had crushed Iran’s capacity to make nuclear weapons and ballistic missiles. But Iran has continued attacking Israel and Persian Gulf countries and is believed to still have highly enriched uranium.`\
-https://nytimes.com/live/2026/04/01/world/iran-war-trump-oil-news/netanyahu-israel-iran-war
 
