@@ -1,3 +1,7 @@
+**Analyzing the 4 paths Canucks could take with organizational leadership decisions**\
+`There are four obvious paths available to Canucks ownership in deciding how to move forward.`\
+https://nytimes.com/athletic/7151227/2026/04/01/vancouver-canucks-season-results/
+
 **Why the Dodgers will be conservative with Shohei Ohtani's pitching in April**\
 `It won't be unusual for Ohtani to see between six and seven days between starts through April. In the Dodgers' eyes, it'd be ideal.`\
 https://nytimes.com/athletic/7163015/2026/04/01/dodgers-shohei-ohtani-pitching-usage/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7163808/2026/04/01/nebraska-football-2026-spring-fa
 **Trump Administration Live Updates: President Justifies Building Ballroom as Security Matter**\
 ``\
 https://nytimes.com/live/2026/04/01/us/trump-news
-
-**Markets Bet Big on a Quick End to the War in Iran**\
-`Global markets rallied as President Trump signaled that the United States may stop fighting soon. But big questions remain about lingering damage.`\
-https://nytimes.com/2026/04/01/business/dealbook/markets-war-iran-trump.html
 
