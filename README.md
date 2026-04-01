@@ -1,3 +1,7 @@
+**Longtime Friend of Eric Adams Is Indicted on Health Care Fraud Charges**\
+`U.S. prosecutors charged that Zhan Petrosyants, known as Johnny, submitted millions of dollars in false health care claims. He and his twin brother are close associates of Mr. Adams.`\
+https://nytimes.com/2026/04/01/nyregion/zhan-petrosyants-fraud-money-laundering.html
+
 **Paul Skenes lowers ERA by nearly 60 points against Reds**\
 `The Cy Young winner bounced back from a rough Opening Day start by continuing his mastery of the Reds. `\
 https://nytimes.com/athletic/7164937/2026/04/01/paul-skenes-pirates-reds/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7164602/2026/04/01/ncaa-rules-transfer-portal-sprin
 **At Syracuse, Classics, Ceramics and Italian Out as Majors in Overhaul**\
 `In all, 93 of the 460 academic programs at the university will be closed or paused. No students were majoring in 55 of the programs that are ending.`\
 https://nytimes.com/2026/04/01/nyregion/syracuse-university-degrees-eliminated.html
-
-**How High Are Gas Prices Where You Live?**\
-`Here is a county-level look at where drivers are facing the highest costs.`\
-https://nytimes.com/interactive/2026/business/energy-environment/gas-prices-map-iran-war-oil.html
 
