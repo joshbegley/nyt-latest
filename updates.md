@@ -1,3 +1,11 @@
+**Senate and House Republicans Strike Deal to End Homeland Security Shutdown**\
+`Legislation to reopen the department, which the House G.O.P. angrily rejected on Friday, could be approved as early as Thursday morning. It represents a sharp turnaround by them and President Trump.`\
+https://nytimes.com/2026/04/01/us/politics/senate-house-homeland-security-shutdown.html
+
+**Iran’s President Suggests Diplomatic Engagement Possible in Letter to U.S. Public**\
+`The letter, by President Masoud Pezeshkian of Iran, was at times defiant, patronizing or conciliatory, and came hours before President Trump was set to address the American people on the war.`\
+https://nytimes.com/2026/04/01/world/middleeast/iran-president-pezeshkian-letter-diplomacy.html
+
 **NCAA approves major penalties for programs that circumvent transfer portal in the spring**\
 `The rule, which goes into effect immediately, seeks to stop "ghost transfers" where athletes withdraw from one school and enroll at another.`\
 https://nytimes.com/athletic/7164602/2026/04/01/ncaa-rules-transfer-portal-spring-window-roster/

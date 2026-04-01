@@ -1,3 +1,11 @@
+**Senate and House Republicans Strike Deal to End Homeland Security Shutdown**\
+`Legislation to reopen the department, which the House G.O.P. angrily rejected on Friday, could be approved as early as Thursday morning. It represents a sharp turnaround by them and President Trump.`\
+https://nytimes.com/2026/04/01/us/politics/senate-house-homeland-security-shutdown.html
+
+**Iran’s President Suggests Diplomatic Engagement Possible in Letter to U.S. Public**\
+`The letter, by President Masoud Pezeshkian of Iran, was at times defiant, patronizing or conciliatory, and came hours before President Trump was set to address the American people on the war.`\
+https://nytimes.com/2026/04/01/world/middleeast/iran-president-pezeshkian-letter-diplomacy.html
+
 **NCAA approves major penalties for programs that circumvent transfer portal in the spring**\
 `The rule, which goes into effect immediately, seeks to stop "ghost transfers" where athletes withdraw from one school and enroll at another.`\
 https://nytimes.com/athletic/7164602/2026/04/01/ncaa-rules-transfer-portal-spring-window-roster/
@@ -25,16 +33,4 @@ https://nytimes.com/athletic/7164877/2026/04/01/bears-stadium-update-illinois-in
 **Tom Izzo says Suns offered him head coach job last year: 'A hard thing to turn down'**\
 `The longtime Michigan State head coach said he considered leaving East Lansing, because "I don’t like what’s going on in college athletics."`\
 https://nytimes.com/athletic/7164795/2026/04/01/tom-izzo-suns-coach-michigan-state-mat-ishbia/
-
-**The Good List: 7 Things to Add Some Delight to Your Day**\
-`A fish doorbell, jumping humanity and 1,000 days of happiness.`\
-https://nytimes.com/2026/04/01/briefing/01-the-good-list-jumping-fish-doorbell.html
-
-**7-Month-Old Is Said to Be Fatally Shot in Brooklyn**\
-`The baby was shot in the head on Wednesday afternoon in the Williamsburg neighborhood, the police said.`\
-https://nytimes.com/2026/04/01/nyregion/williamsburg-nyc-baby-shooting.html
-
-**Umpire CB Bucknor leaves game after taking a foul ball off his facemask**\
-`Bucknor rose to his feet and departed the field after being attended to by athletic trainers. `\
-https://nytimes.com/athletic/7164876/2026/04/01/mlb-umpire-cb-bucknor-injured/
 
