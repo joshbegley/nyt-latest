@@ -1,3 +1,11 @@
+**7.4-Magnitude Earthquake in Indonesia Raises Tsunami Alerts**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/04/01/world/asia/01wea-quake-tracker-indonesia-nyt7h6g2.html
+
+**In Nationals' series loss, pitching in unfamiliar situations leads to familiar outcome**\
+`Clayton Beeter, PJ Poulin and Cole Henry couldn't close it out against the Phillies, who won on Justin Crawford's 10th-inning, walk-off hit.`\
+https://nytimes.com/athletic/7165382/2026/04/01/nationals-series-loss-walk-off-phillies/
+
 **Trump Laid Out Five Goals for the Iran War. Here’s Where They Stand.**\
 `The United States and Israel have done significant damage to Iran’s military capabilities. But Iran still fires missiles, has nuclear material and coordinates with militias in the region.`\
 https://nytimes.com/2026/04/01/us/politics/trump-goals-iran-war.html

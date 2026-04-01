@@ -1,6 +1,10 @@
+**Medical Examiner Rules That a Rohingya Refugee’s Death Was a Homicide**\
+`An autopsy showed that the man suffered dehydration and hypothermia after Border Patrol agents dropped him off on a cold night in Buffalo.`\
+https://nytimes.com/2026/04/01/nyregion/rohingya-refugee-buffalo-homicide-medical-examiner.html
+
 **7.4-Magnitude Earthquake in Indonesia Raises Tsunami Alerts**\
 `View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2026/04/01/world/asia/01wea-quake-tracker-indonesia-nyt7h6g2.html
+https://nytimes.com/interactive/2026/04/01/world/asia/earthquake-indonesia.html
 
 **Trump Laid Out Five Goals for the Iran War. Here’s Where They Stand.**\
 `The United States and Israel have done significant damage to Iran’s military capabilities. But Iran still fires missiles, has nuclear material and coordinates with militias in the region.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7165409/2026/04/01/bompastor-sent-off-mccabe-hair-p
 **Bill Self, Kansas' all-time winningest coach, returning for 24th season**\
 `Self will be looking to add to his Kansas legacy of two national championships and 17 regular-season Big 12 titles.`\
 https://nytimes.com/athletic/7160615/2026/04/01/bill-self-returning-kansas-mens-basketball-coach-ku/
-
-**Trump Will Lose the Birthright Citizenship Case. But in a Way, He’s Already Won.**\
-`The case is open-and-shut on the merits. But its procedural course still leaves plenty of room for Trump administration overreach.`\
-https://nytimes.com/2026/04/01/opinion/birthright-citizenship-case-trump.html
 

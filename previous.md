@@ -1,3 +1,7 @@
+**7.4-Magnitude Earthquake in Indonesia Raises Tsunami Alerts**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/04/01/world/asia/01wea-quake-tracker-indonesia-nyt7h6g2.html
+
 **Trump Laid Out Five Goals for the Iran War. Here’s Where They Stand.**\
 `The United States and Israel have done significant damage to Iran’s military capabilities. But Iran still fires missiles, has nuclear material and coordinates with militias in the region.`\
 https://nytimes.com/2026/04/01/us/politics/trump-goals-iran-war.html
@@ -14,8 +18,8 @@ https://nytimes.com/athletic/7165336/2026/04/01/phillies-takeaways-justin-crawfo
 `Mr. Bundy had confessed to killing Laura Ann Aime before he was executed in 1989. Investigators said DNA testing provided conclusive proof.`\
 https://nytimes.com/2026/04/01/us/ted-bundy-utah-murder-confirmed.html
 
-**In Nationals' series loss, unfamiliar situations lead to familiar outcome**\
-`In a vacuum, these were the levers to pull. However, it didn't work out, and Washington's shot for a series victory evaporated. `\
+**In Nationals' series loss, pitching in unfamiliar situations leads to familiar outcome**\
+`Clayton Beeter, PJ Poulin and Cole Henry couldn't close it out against the Phillies, who won on Justin Crawford's 10th-inning, walk-off hit.`\
 https://nytimes.com/athletic/7165382/2026/04/01/nationals-series-loss-walk-off-phillies/
 
 **Shimmying American Woodcocks Cause a Birding Frenzy in N.Y.C.**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7160615/2026/04/01/bill-self-returning-kansas-mens-
 **Trump Will Lose the Birthright Citizenship Case. But in a Way, He’s Already Won.**\
 `The case is open-and-shut on the merits. But its procedural course still leaves plenty of room for Trump administration overreach.`\
 https://nytimes.com/2026/04/01/opinion/birthright-citizenship-case-trump.html
-
-**Trump Has Discussed Firing Attorney General Pam Bondi**\
-`President Trump has not made a final decision, but he has floated the idea of replacing Ms. Bondi with Lee Zeldin, the E.P.A. administrator.`\
-https://nytimes.com/2026/04/01/us/politics/trump-pam-bondi-future.html
 
