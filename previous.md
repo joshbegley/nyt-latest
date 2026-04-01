@@ -1,3 +1,23 @@
+**NFLPA's JC Tretter opposes replacement officials, cites safety concerns in joint statement**\
+`“Player safety requires trained, professional officials on the field,” said Tretter, the NFLPA's executive director.`\
+https://nytimes.com/athletic/7164747/2026/04/01/nflpa-replacement-referees-negotiations-jc-tretter/
+
+**Trump Administration Scales Back Plan to Dismantle Consumer Protection Bureau**\
+`A new filing asks a federal court to allow the White House to dismiss much of the Consumer Financial Protection Bureau’s remaining work force, but not close the bureau entirely.`\
+https://nytimes.com/2026/04/01/us/politics/cfpb-layoffs.html
+
+**Iraqi Militia Offers to Negotiate Release of Kidnapped U.S. Journalist**\
+`The Iranian-aligned militia, Kataib Hezbollah, is pressing for the release of members detained by the Iraqi government in exchange for freeing the journalist, Shelly Kittleson.`\
+https://nytimes.com/2026/04/01/world/middleeast/shelly-kittleson-kidnapping-iraq.html
+
+**Latest FIFA men’s world rankings: France go top, USMNT fall to 16th**\
+`It is the first time since September 2018 that France have been ranked No 1 by FIFA.`\
+https://nytimes.com/athletic/7164717/2026/04/01/fifa-world-rankings-france-usmnt-spain-argentina/
+
+**Victor Glover, Artemis II’s Pilot, Will be the First Black Astronaut Around the Moon.**\
+`An astronaut since 2013, Mr. Glover was also the first Black astronaut on a long duration International Space Station mission.`\
+https://nytimes.com/2026/04/01/science/victor-glover-artemis-ii-first-black-astronaut-moon.html
+
 **The Windup: Ohtani's especially stellar start**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/7164612/2026/04/01/shohei-ohtani-mlb-season-start-the-windup/
@@ -13,28 +33,4 @@ https://nytimes.com/2026/04/01/technology/spacex-ipo-elon-musk.html
 **How to watch Ducks vs. Sharks: Time, TV, streaming**\
 `Find out how to watch the Anaheim Ducks play the San Jose Sharks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7164708/2026/04/01/ducks-vs-sharks-stream-how-to-watch-april-1/
-
-**How to watch Blues vs. Kings: Time, TV, streaming**\
-`Find out how to watch the St. Louis Blues play the Los Angeles Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7164703/2026/04/01/blues-vs-kings-stream-how-to-watch-april-1/
-
-**How to watch Canucks vs. Avalanche: Time, TV, streaming**\
-`Find out how to watch the Vancouver Canucks play the Colorado Avalanche, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7164700/2026/04/01/canucks-vs-avalanche-stream-how-to-watch-april-1/
-
-**Roger McQueen, Anaheim Ducks' 2025 first-round pick, signs amateur tryout contract**\
-`Anaheim used the No. 10 pick on McQueen in 2025, and then he played at Providence.`\
-https://nytimes.com/athletic/7154835/2026/04/01/roger-mcqueen-anaheim-ducks-contract/
-
-**How to watch Guardians vs. Dodgers: Time, TV, streaming for April 1**\
-`Find out how to watch the Cleveland Guardians play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7164679/2026/04/01/guardians-vs-dodgers-stream-how-to-watch-april-1/
-
-**How to watch Twins vs. Royals: Time, TV, streaming for April 1**\
-`Find out how to watch the Minnesota Twins play the Kansas City Royals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7164674/2026/04/01/twins-vs-royals-stream-how-to-watch-april-1/
-
-**Reid Wiseman, a Veteran Fighter Pilot, Is the Artemis II Commander**\
-`As a child, Mr. Wiseman never imagined he could be an astronaut. Now he’s commanding NASA’s first mission to the moon since 1972.`\
-https://nytimes.com/2026/04/01/science/space/reid-wiseman-artemis-ii-commander.html
 
