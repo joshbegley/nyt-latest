@@ -1,3 +1,15 @@
+**Who Made the Artemis II Rocket and Space Capsule?**\
+`While SpaceX and Blue Origin get much of the attention among rocket makers these days, traditional aerospace companies, including Boeing and Lockheed Martin, built the vehicles for Artemis II.`\
+https://nytimes.com/2026/04/01/science/space/artemis-ii-rocket-space-capsule-boeing-lockheed-martin.html
+
+**Stephen Lewis, Leftist Canadian Politician and AIDS Activist, Dies at 88**\
+`Part of a political dynasty, he led Ontario’s main progressive party, became Canada’s U.N. ambassador and campaigned against the spread of  AIDS in Africa.`\
+https://nytimes.com/2026/04/01/world/canada/stephen-lewis-dead.html
+
+**Tiny Love Stories: ‘If I Arrived Home After Dark ’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2026/04/01/style/tiny-modern-love-stories-if-i-arrived-home-after-dark.html
+
 **Senate and House Republicans Strike Deal to End Homeland Security Shutdown**\
 `Legislation to reopen the department, which the House G.O.P. angrily rejected on Friday, could be approved as early as Thursday morning. It represents a sharp turnaround by them and President Trump.`\
 https://nytimes.com/2026/04/01/us/politics/senate-house-homeland-security-shutdown.html

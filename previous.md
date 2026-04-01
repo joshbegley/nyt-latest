@@ -1,3 +1,15 @@
+**Who Made the Artemis II Rocket and Space Capsule?**\
+`While SpaceX and Blue Origin get much of the attention among rocket makers these days, traditional aerospace companies, including Boeing and Lockheed Martin, built the vehicles for Artemis II.`\
+https://nytimes.com/2026/04/01/science/space/artemis-ii-rocket-space-capsule-boeing-lockheed-martin.html
+
+**Stephen Lewis, Leftist Canadian Politician and AIDS Activist, Dies at 88**\
+`Part of a political dynasty, he led Ontario’s main progressive party, became Canada’s U.N. ambassador and campaigned against the spread of  AIDS in Africa.`\
+https://nytimes.com/2026/04/01/world/canada/stephen-lewis-dead.html
+
+**Tiny Love Stories: ‘If I Arrived Home After Dark ’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2026/04/01/style/tiny-modern-love-stories-if-i-arrived-home-after-dark.html
+
 **Senate and House Republicans Strike Deal to End Homeland Security Shutdown**\
 `Legislation to reopen the department, which the House G.O.P. angrily rejected on Friday, could be approved as early as Thursday morning. It represents a sharp turnaround by them and President Trump.`\
 https://nytimes.com/2026/04/01/us/politics/senate-house-homeland-security-shutdown.html
@@ -21,16 +33,4 @@ https://nytimes.com/interactive/2026/business/energy-environment/gas-prices-map-
 **Why Artemis II Won’t Land on the Moon**\
 `It has been 50 years since humans last walked the lunar surface, and NASA’s efforts to get back there will take place in stages.`\
 https://nytimes.com/2026/04/01/science/nasa-artemis-ii-astronauts-moon-landing.html
-
-**2026 World Cup odds: European powers remain top 3 favorites with field set**\
-`Spain, England and France are the top favorites to win the 2026 World Cup. How does the rest of the field rank?`\
-https://nytimes.com/athletic/7164649/2026/04/01/world-cup-odds-spain-england-france/
-
-**Where will Bears build their new stadium? Illinois-Indiana tug of war continues**\
-`“The fact of the matter is we don’t have a deal to consider right now,” Bears chairman George McCaskey said Wednesday.`\
-https://nytimes.com/athletic/7164877/2026/04/01/bears-stadium-update-illinois-indiana/
-
-**Tom Izzo says Suns offered him head coach job last year: 'A hard thing to turn down'**\
-`The longtime Michigan State head coach said he considered leaving East Lansing, because "I don’t like what’s going on in college athletics."`\
-https://nytimes.com/athletic/7164795/2026/04/01/tom-izzo-suns-coach-michigan-state-mat-ishbia/
 
