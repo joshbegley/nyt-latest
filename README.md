@@ -1,3 +1,7 @@
+**Trump is expected to give a rosy assessment of the war, after conflicting messages on its end.**\
+`By Zolan Kanno-Youngs`\
+https://nytimes.com/live/2026/04/01/world/iran-war-trump-oil-news/trump-iran-war-speech
+
 **Medical Examiner Rules That a Rohingya Refugee’s Death Was a Homicide**\
 `An autopsy showed that the man suffered dehydration and hypothermia after Border Patrol agents dropped him off on a cold night in Buffalo.`\
 https://nytimes.com/2026/04/01/nyregion/rohingya-refugee-buffalo-homicide-medical-examiner.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000010816436/american-woodcock-bryant-park
 **Chelsea 1-0 Arsenal: Bompastor sent off after McCabe's hair pull**\
 `McCabe was not disciplined for the incident at the end of an eventful second leg tie, which Chelsea won 1-0 on the night.`\
 https://nytimes.com/athletic/7165409/2026/04/01/bompastor-sent-off-mccabe-hair-pull-chelsea-arsenal/
-
-**Bill Self, Kansas' all-time winningest coach, returning for 24th season**\
-`Self will be looking to add to his Kansas legacy of two national championships and 17 regular-season Big 12 titles.`\
-https://nytimes.com/athletic/7160615/2026/04/01/bill-self-returning-kansas-mens-basketball-coach-ku/
 
