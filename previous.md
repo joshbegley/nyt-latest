@@ -1,3 +1,7 @@
+**Roger Goodell says NFL's Rooney Rule isn't going anywhere, addresses ref negotiations**\
+`While Florida's Attorney General has claimed the Rooney Rule violates state law, Goodell pointed out the policy is not a hiring mandate.`\
+https://nytimes.com/athletic/7162634/2026/03/31/roger-goodell-nfl-meetings-rooney-rule-referees/
+
 **USA 0, Portugal 2: Decisive loss, Pulisic struggles cap last pre-World Cup window**\
 `The U.S. made multiple tweaks but fell to a second straight European power in similar fashion, leaving much to do as the World Cup nears`\
 https://nytimes.com/athletic/7162351/2026/03/31/usmnt-portugal-friendly-score-result-pulisic-pochettino/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7162313/2026/03/31/blue-jays-cody-ponce-acl-injury-
 **Elena Delle Donne, Mark Few among inductees for 2026 Hall of Fame class: Sources**\
 `Delle Donne, one of the best shooters in WNBA history, and Few, college basketball's winningest coach by win percentage, will be inducted.`\
 https://nytimes.com/athletic/7161860/2026/03/31/elena-delle-donne-mark-few-hall-of-fame-2026/
-
-**Ole Miss' Pete Golding on Dabo Swinney's tampering claim: 'Two sides to every story'**\
-`Golding says the flip of linebacker Luke Ferrelli from Clemson happened after Ole Miss linebacker TJ Dottery entered the portal.`\
-https://nytimes.com/athletic/7162367/2026/03/31/pete-golding-dabo-swinney-tampering/
 
