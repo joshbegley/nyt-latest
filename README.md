@@ -1,3 +1,11 @@
+**Chelsea announce largest pre-tax loss in English football history**\
+`The club are yet to release their full accounts for 2024-25 but announced a £262.4million deficit for that period on Wednesday.`\
+https://nytimes.com/athletic/7164314/2026/04/01/chelsea-accounts-loss-latest/
+
+**Can Trump declare that his birthright rules apply only in the future?**\
+`By Adam Liptak`\
+https://nytimes.com/live/2026/04/01/us/supreme-court-birthright-citizenship/can-trump-declare-that-his-birthright-rules-apply-only-in-the-future
+
 **Birthright Citizenship Plan Faces Costly Verification Hurdles**\
 `Experts warn that enforcing President Trump’s order to limit birthright citizenship would require building an expensive and fragmented verification system.`\
 https://nytimes.com/2026/04/01/us/politics/trump-birthright-citizenship-verification-cost-records-system.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7164111/2026/04/01/doc-rivers-hall-of-fame-nba-the-
 **Meet the four astronauts of Artemis II.**\
 `By Katrina Miller`\
 https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/meet-the-four-astronauts-of-artemis-ii
-
-**F1 Academy introducing three-race weekends in Montreal and Austin**\
-`The move comes after the cancellation of races in the Middle East.`\
-https://nytimes.com/athletic/7163618/2026/04/01/f1-academy-calendar-montreal-austin/
-
-**Trump’s Birthright Citizenship Order Draws Lines Scholars Find Indefensible**\
-`Different treatment for mothers and fathers is at odds with a 2017 Supreme Court decision, and other ideas in the order are hard to understand.`\
-https://nytimes.com/2026/04/01/us/politics/trumps-birthright-citizenship-order-draws-lines-scholars-find-indefensible.html
 
