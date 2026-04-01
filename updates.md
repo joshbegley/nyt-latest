@@ -1,3 +1,7 @@
+**Word of the Day: gratuitous**\
+`This word has appeared in 61 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/04/01/learning/word-of-the-day-gratuitous.html
+
 **The Briefing - Iraq 2 Bolivia 1: World Cup play-off winners reach first finals in 40 years**\
 `Iraq became the 48th and final team to book their place at the World Cup in the United States, Canada and Mexico`\
 https://nytimes.com/athletic/7163208/2026/04/01/iraq-2-bolivia-1-world-cup-playoff/

@@ -1,3 +1,7 @@
+**Word of the Day: gratuitous**\
+`This word has appeared in 61 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/04/01/learning/word-of-the-day-gratuitous.html
+
 **The Briefing - Iraq 2 Bolivia 1: World Cup play-off winners reach first finals in 40 years**\
 `Iraq became the 48th and final team to book their place at the World Cup in the United States, Canada and Mexico`\
 https://nytimes.com/athletic/7163208/2026/04/01/iraq-2-bolivia-1-world-cup-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7162949/2026/04/01/mauricio-pochettino-usmnt-top-10
 **Haseeb Hameed on life outside the Bazball bubble: 'The ambition to play for England will always be there'**\
 `The Notts captain is England's forgotten man, but sheer weight of runs over the last two seasons demands he is contention for a Test return`\
 https://nytimes.com/athletic/7157525/2026/04/01/hameed-england-notts-moores-bazball-interview/
-
-**Pulisic's U.S. goal drought continues, but he maintains 'things are gonna click'**\
-`Pulisic has now gone eight straight U.S. matches without a goal and endured a frustrating March window`\
-https://nytimes.com/athletic/7163052/2026/04/01/christian-pulisic-goals-drought-usmnt-portugal-world-cup/
 
