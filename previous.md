@@ -1,3 +1,15 @@
+**Homeland Security Dept. Asks Workers for Videos of Their Shutdown Hardships**\
+`The department’s public affairs office is seeking 30-second “selfie videos,” part of a push to pressure lawmakers to strike a deal.`\
+https://nytimes.com/2026/04/01/us/politics/homeland-security-videos-shutdown.html
+
+**How NASA Is Keeping the Astronauts Safe During the Artemis II Mission**\
+`Years of testing, emergency systems and sensors have gone into protecting the astronauts set to head to the moon.`\
+https://nytimes.com/2026/04/01/science/space/nasa-artemis-ii-moon-astronauts-safety.html
+
+**Tuchel casts doubt on Foden's World Cup chances: 'He struggled'**\
+`The England head coach handed the Manchester City playmaker a chance to impress from start against both Uruguay and Japan.`\
+https://nytimes.com/athletic/7163609/2026/04/01/england-squad-world-cup-phil-foden/
+
 **NFLPA's JC Tretter opposes replacement officials, cites safety concerns in joint statement**\
 `“Player safety requires trained, professional officials on the field,” said Tretter, the NFLPA's executive director.`\
 https://nytimes.com/athletic/7164747/2026/04/01/nflpa-replacement-referees-negotiations-jc-tretter/
@@ -21,16 +33,4 @@ https://nytimes.com/2026/04/01/science/victor-glover-artemis-ii-first-black-astr
 **The Windup: Ohtani's especially stellar start**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/7164612/2026/04/01/shohei-ohtani-mlb-season-start-the-windup/
-
-**Chelsea's £65m tops list of Premier League fees paid to agents, Wrexham spend up 367 per cent**\
-`How much every Premier League club spent on agent fees and who were the biggest spenders in the EFL and Women's Super League`\
-https://nytimes.com/athletic/7164505/2026/04/01/chelsea-agent-fees-wrexham/
-
-**SpaceX Files to Go Public, Setting Stage for Huge I.P.O.**\
-`An initial public offering of Elon Musk’s rocket and satellite company would most likely be a generational wealth event and one of the largest offerings ever.`\
-https://nytimes.com/2026/04/01/technology/spacex-ipo-elon-musk.html
-
-**How to watch Ducks vs. Sharks: Time, TV, streaming**\
-`Find out how to watch the Anaheim Ducks play the San Jose Sharks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7164708/2026/04/01/ducks-vs-sharks-stream-how-to-watch-april-1/
 
