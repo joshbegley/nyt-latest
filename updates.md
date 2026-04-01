@@ -1,3 +1,11 @@
+**Tiger Woods granted leave for inpatient treatment outside country**\
+`Woods' attorney argued he has an “urgent need for a level of care that cannot safely or effectively be done within the United States.”`\
+https://nytimes.com/athletic/7165123/2026/04/01/tiger-woods-leave-country-inpatient-treatment/
+
+**The D.H.S. shutdown is the longest in history.**\
+`By Ashley Wu`\
+https://nytimes.com/live/2026/04/01/us/trump-news/the-dhs-shutdown-is-the-longest-in-history
+
 **Pipe Bomb Defendant Says He May Adopt Debunked Account as Defense**\
 `Court papers show that Brian Cole Jr.’s lawyers might seek to blame a former Capitol Police officer whose name first surfaced in a right-wing media account and whom the F.B.I. briefly investigated.`\
 https://nytimes.com/2026/04/01/us/politics/pipe-bomb-jan-6.html

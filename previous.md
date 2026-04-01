@@ -1,3 +1,11 @@
+**Tiger Woods granted leave for inpatient treatment outside country**\
+`Woods' attorney argued he has an “urgent need for a level of care that cannot safely or effectively be done within the United States.”`\
+https://nytimes.com/athletic/7165123/2026/04/01/tiger-woods-leave-country-inpatient-treatment/
+
+**The D.H.S. shutdown is the longest in history.**\
+`By Ashley Wu`\
+https://nytimes.com/live/2026/04/01/us/trump-news/the-dhs-shutdown-is-the-longest-in-history
+
 **Pipe Bomb Defendant Says He May Adopt Debunked Account as Defense**\
 `Court papers show that Brian Cole Jr.’s lawyers might seek to blame a former Capitol Police officer whose name first surfaced in a right-wing media account and whom the F.B.I. briefly investigated.`\
 https://nytimes.com/2026/04/01/us/politics/pipe-bomb-jan-6.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/01/science/space/artemis-ii-rocket-space-capsule-boe
 **Stephen Lewis, Leftist Canadian Politician and AIDS Activist, Dies at 88**\
 `Part of a political dynasty, he led Ontario’s main progressive party, became Canada’s U.N. ambassador and campaigned against the spread of AIDS in Africa.`\
 https://nytimes.com/2026/04/01/world/canada/stephen-lewis-dead.html
-
-**Tiny Love Stories: ‘If I Arrived Home After Dark ’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2026/04/01/style/tiny-modern-love-stories-if-i-arrived-home-after-dark.html
-
-**Senate and House Republicans Strike Deal to End Homeland Security Shutdown**\
-`Legislation to reopen the department, which the House G.O.P. angrily rejected on Friday, could be approved as early as Thursday morning. It represents a sharp turnaround by them and President Trump.`\
-https://nytimes.com/2026/04/01/us/politics/senate-house-homeland-security-shutdown.html
 
