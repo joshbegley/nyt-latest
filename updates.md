@@ -1,3 +1,7 @@
+**‘I Don’t Care About That’: Trump Says Iran’s Enriched Uranium Is Not a Concern**\
+`President Trump’s statement was the second time in 24 hours that he had declared that the nuclear problem with Iran had been solved, despite all evidence to the contrary.`\
+https://nytimes.com/2026/04/01/us/politics/i-dont-care-about-that-trump-says-irans-enriched-uranium-is-not-a-concern.html
+
 **F.D.A. Approves New Obesity Pill**\
 `The drug, made by Eli Lilly, could offer a more convenient option for patients who want to avoid injections.`\
 https://nytimes.com/2026/04/01/well/fda-obesity-pill-orfoglipron.html

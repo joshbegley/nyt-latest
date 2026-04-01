@@ -1,3 +1,7 @@
+**‘I Don’t Care About That’: Trump Says Iran’s Enriched Uranium Is Not a Concern**\
+`President Trump’s statement was the second time in 24 hours that he had declared that the nuclear problem with Iran had been solved, despite all evidence to the contrary.`\
+https://nytimes.com/2026/04/01/us/politics/i-dont-care-about-that-trump-says-irans-enriched-uranium-is-not-a-concern.html
+
 **F.D.A. Approves New Obesity Pill**\
 `The drug, made by Eli Lilly, could offer a more convenient option for patients who want to avoid injections.`\
 https://nytimes.com/2026/04/01/well/fda-obesity-pill-orfoglipron.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7164531/2026/04/01/kings-vs-raptors-stream-how-to-w
 **Before Artemis II, there had to be an Artemis I.**\
 `By Katrina Miller`\
 https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/before-artemis-ii-there-had-to-be-an-artemis-i
-
-**My Friend Wrote a Book About Her Trauma. Do I Have to Read It?**\
-`She told me that anyone who won’t read her book is not her friend and that I am contributing to the greater problem in the world.`\
-https://nytimes.com/2026/04/01/magazine/friend-trauma-book-ethics.html
 
