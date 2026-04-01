@@ -1,3 +1,11 @@
+**Stephen Colbert Blames ‘The Bachelorette’ Cancellation for $4 Gas**\
+`The “Late Show” host joked that “Trump attacked Iran” after ABC scrapped the reality show’s latest season.`\
+https://nytimes.com/2026/04/01/arts/television/stephen-colbert-trump-popularity.html
+
+**Stocks in Asia Rally and Oil Prices Drop**\
+`President Trump said the U.S. military would wrap up its campaign in Iran in two or three weeks.`\
+https://nytimes.com/2026/04/01/business/stocks-oil-gasoline-prices-iran.html
+
 **How Spurs convinced Roberto De Zerbi to become their head coach**\
 `Spurs wanted to make De Zerbi their manager when they sacked Thomas Frank in February, but have only now been able to seal the deal`\
 https://nytimes.com/athletic/7152972/2026/04/01/tottenham-hotspur-roberto-de-zerbi-deal/
