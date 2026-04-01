@@ -1,3 +1,7 @@
+**Jaden Ivey was on track to be a future star. How he fell so far, so quickly**\
+`After a promising start to his career, Ivey was hampered by multiple injuries.`\
+https://nytimes.com/athletic/7162491/2026/04/01/jaden-ivey-career-timeline-pistons-bulls/
+
 **Lamine Yamal, Spain's 'worldwide shame' and how anti-Muslim chants forced him to speak out**\
 `An unsavoury chant has cast a shadow over Spain, just as an exciting team led by Yamal prepare for this summer's World Cup`\
 https://nytimes.com/athletic/7164199/2026/04/01/lamine-yamal-spain-anti-muslim-chants/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/01/science/nasa-artemis-ii-moon-launch-how-to-watch.
 **Man Utd to play pre-season friendlies in Finland, Sweden, Norway, Ireland and Poland**\
 `Included in the fixtures is a game against Leeds United at Dublin's Croke Park, the first time it has hosted two Premier League clubs..`\
 https://nytimes.com/athletic/7164222/2026/04/01/manchester-united-pre-season-friendlies/
-
-**Trump’s War Is Perpetually ‘Ahead of Schedule’**\
-`In Iran, the schedule is our most malleable illusion.`\
-https://nytimes.com/2026/04/01/opinion/trump-hegseth-rubio-iran-war.html
 
