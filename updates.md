@@ -1,3 +1,15 @@
+**What we've learned about Shedeur Sanders, Deshaun Watson and Browns' QB situation**\
+`A look at where things stand at QB after hearing from team owner Jimmy Haslam, GM Andrew Berry and coach Todd Monken at the league meeting.`\
+https://nytimes.com/athletic/7161484/2026/04/01/browns-quarterbacks-shedeur-sanders-deshaun-watson/
+
+**Aston Villa accounts: £17m profit masks deeper losses and fears over European rules**\
+`The continual wrestling with spreadsheets and financial rules is indicative of the direction modern football continues to head`\
+https://nytimes.com/athletic/7127881/2026/04/01/aston-villa-accounts-profit-loss-uefa/
+
+**Analyzing the 4 paths Canucks could take with organizational leadership decisions**\
+`There are four obvious paths available to Canucks ownership in deciding how to move forward.`\
+https://nytimes.com/athletic/7151227/2026/04/01/vancouver-canucks-season-results/
+
 **Why the Dodgers will be conservative with Shohei Ohtani's pitching in April**\
 `It won't be unusual for Ohtani to see between six and seven days between starts through April. In the Dodgers' eyes, it'd be ideal.`\
 https://nytimes.com/athletic/7163015/2026/04/01/dodgers-shohei-ohtani-pitching-usage/
