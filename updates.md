@@ -1,3 +1,15 @@
+**Meet the four astronauts of Artemis II.**\
+`By Katrina Miller`\
+https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/meet-the-four-astronauts-of-artemis-ii
+
+**F1 Academy introducing three-race weekends in Montreal and Austin**\
+`The move comes after the cancellation of races in the Middle East.`\
+https://nytimes.com/athletic/7163618/2026/04/01/f1-academy-calendar-montreal-austin/
+
+**Trump’s Birthright Citizenship Order Draws Lines Scholars Find Indefensible**\
+`Different treatment for mothers and fathers is at odds with a 2017 Supreme Court decision, and other ideas in the order are hard to understand.`\
+https://nytimes.com/2026/04/01/us/politics/trumps-birthright-citizenship-order-draws-lines-scholars-find-indefensible.html
+
 **Bruce Springsteen Brings Fiery Speeches and Songs to Minneapolis**\
 `The E Street Band opened its Land of Hopes and Dreams tour on Tuesday night, where the musician asked the crowd to choose “unity over division and peace over war.”`\
 https://nytimes.com/2026/04/01/arts/music/bruce-springsteen-minneapolis-concert-trump.html

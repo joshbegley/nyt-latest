@@ -1,3 +1,11 @@
+**T Gardens**\
+``\
+https://nytimes.com/spotlight/t-gardens
+
+**The Bounce: Yes, Doc Rivers deserves to be a Hall of Fame coach**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7164111/2026/04/01/doc-rivers-hall-of-fame-nba-the-bounce/
+
 **Meet the four astronauts of Artemis II.**\
 `By Katrina Miller`\
 https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/meet-the-four-astronauts-of-artemis-ii
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010814558/trump-us-leaving-nato
 **The ‘Constitutional Bedrock’ Trump Is Trying to Erase**\
 `Trump is on a mission to eliminate birthright citizenship, a right long thought to be guaranteed by the 14th Amendment of the Constitution. But how will the Supreme Court respond? The legal journalist Cristian Farias shares his insights.`\
 https://nytimes.com/video/opinion/100000010811212/the-constitutional-bedrock-trump-is-trying-to-erase.html
-
-**Liverpool have a new international goalscoring hero - but you may never have heard of him**\
-`Kyle Kelly has had an unconventional journey to becoming a key figure for Saint Kitts and Nevis `\
-https://nytimes.com/athletic/7158483/2026/04/01/kyle-kelly-liverpool-st-kitts/
-
-**Without the U.S., what would happen to NATO?**\
-`By Lara Jakes`\
-https://nytimes.com/live/2026/04/01/world/iran-war-trump-oil-news/without-the-us-what-would-happen-to-nato
 
