@@ -1,5 +1,21 @@
-**In South Dakota, Sympathy for Kristi Noem’s Husband After Tabloid Photo Leak**\
-`In the tiny town of Castlewood, S.D., where everyone knows the Noems, the prevailing sense was that people can’t help but feel sorry for Bryon Noem.`\
+**USMNT 0, Portugal 2: Decisive loss, Pulisic struggles cap last pre-World Cup window**\
+`The U.S. made multiple tweaks but fell to a second straight European power in similar fashion, leaving much to do as the World Cup nears`\
+https://nytimes.com/athletic/7162351/2026/03/31/usmnt-portugal-friendly-score-result-pulisic-pochettino/
+
+**Eagles owner Jeffrey Lurie on Jalen Hurts: ‘There’s no bigger fan than me’**\
+`Comments on Hurts come as quarterback remains the 10th-highest-paid at his position.`\
+https://nytimes.com/athletic/7162635/2026/03/31/eagles-owner-jeffrey-lurie-jalen-hurts-contract/
+
+**Editors’ Note: April 1, 2026**\
+`The following Editors’ Note and corrections appeared in print on Wednesday, April 1, 2026.`\
+https://nytimes.com/2026/03/31/pageoneplus/editors-note-april-1-2026.html
+
+**Israel Strikes Tehran Pharmaceutical Plant, Claiming Military Link**\
+`Iran’s foreign minister, Abbas Araghchi, said on Tuesday that Israel was “openly and unashamedly bombing pharmaceutical companies.”`\
+https://nytimes.com/2026/03/31/world/middleeast/tehran-pharmaceutical-strike-israel.html
+
+**In South Dakota, Neighbors Feel Sorry for Kristi Noem’s Husband**\
+`In the tiny town of Castlewood, S.D., where everyone knows the Noems, the prevailing sense was that people can’t help but feel bad for Bryon Noem after a tabloid photo leak.`\
 https://nytimes.com/2026/03/31/us/politics/kristi-noem-husband-photos-daily-mail.html
 
 **NFL ending 'Monday Night Football' doubleheaders, exploring Thanksgiving Eve game**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7161860/2026/03/31/elena-delle-donne-mark-few-hall-
 **Ole Miss' Pete Golding on Dabo Swinney's tampering claim: 'Two sides to every story'**\
 `Golding says the flip of linebacker Luke Ferrelli from Clemson happened after Ole Miss linebacker TJ Dottery entered the portal.`\
 https://nytimes.com/athletic/7162367/2026/03/31/pete-golding-dabo-swinney-tampering/
-
-**Goodell on Steve Tisch's Epstein connection: 'We have not found anything that’s a violation'**\
-`The NFL commissioner added that Tisch and his siblings are "no longer owners" after transferring their stakes to their children.`\
-https://nytimes.com/athletic/7162428/2026/03/31/roger-goodell-nfl-personal-conduct-policy-steve-tisch-epstein-files/
-
-**The Briefing: DR Congo 1 Jamaica 0 — How did the Leopards make history? What do their fans bring? What happened to the ref?**\
-`An extra-time goal from Axel Tuanzebe ensured DR Congo became the 47th team to qualify for this summer's World Cup`\
-https://nytimes.com/athletic/7156216/2026/03/31/dr-congo-1-jamaica-0-world-cup-playoff-briefing/
-
-**Steph Curry, Warriors targeting Sunday return after successful workout: Sources**\
-`Curry hasn't played since he left the Warriors' game Jan. 30 with an injury to his right knee.`\
-https://nytimes.com/athletic/7162374/2026/03/31/warriors-steph-curry-return-knee-injury-sunday/
-
-**J.D. Martinez joins Mets front office in special assistant role**\
-`The Mets first discussed a potential front office role with Martinez back in 2024, when he played for them.`\
-https://nytimes.com/athletic/7161492/2026/03/31/new-york-mets-jd-martinez-front-office-role/
 
