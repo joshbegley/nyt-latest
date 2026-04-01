@@ -1,40 +1,40 @@
-**Israel’s Message to Southern Lebanon: Shiites Must Go**\
-`Israel has issued sweeping evacuation warnings, and pressed some Christian and Druse leaders to expel Shiite Muslims from their towns, the leaders said.`\
-https://nytimes.com/2026/04/01/world/middleeast/lebanon-shiite-israel-evacuation.html
+**'Why not us?' Mauricio Pochettino asked the USMNT. Belgium and Portugal answered.**\
+`Despite a camp-opening message daring the U.S. to dream big this summer, two European powers delivered harsh lessons just days apart`\
+https://nytimes.com/athletic/7163165/2026/04/01/usmnt-world-cup-mauricio-pochettino-belgium-portugal-european-opponent/
 
-**Keep Calm and Maybe Take Public Transit: Australia Confronts Oil Shock**\
-`Prime Minister Anthony Albanese made the plea to not panic over higher fuel prices in a rare national address on Wednesday.`\
-https://nytimes.com/2026/04/01/world/asia/australia-albanese-fuel-speech.html
+**New season, familiar slide: How Red Wings came undone in March yet again**\
+`Another year, another disappointing March. There were signs long before the calendar flipped, but despite everything, the push isn't over.`\
+https://nytimes.com/athletic/7161702/2026/04/01/detroit-red-wings-march-collapse-2026/
 
-**Kodai Senga's sizzling velocity an excellent sign for Mets, despite defeat**\
-`Senga averaged 97.4 mph with his four-seamer, the hardest he’s ever thrown it in a major-league game.`\
-https://nytimes.com/athletic/7162944/2026/04/01/mets-kodai-senga-velocity/
+**From $1,000 locker-room dinners to $96 selfies: How the Maple Leafs changed under Keith Pelley**\
+`During Pelley’s tenure as president and CEO of MLSE, the team has appeared intent on monetizing as much as it possibly can.`\
+https://nytimes.com/athletic/7128336/2026/04/01/maple-leafs-keith-pelley-brad-treliving-fans/
 
-**The new NFL draft picks proposal was dead on arrival. Is it dead forever?**\
-`The Browns withdrew their proposal to extend the window of draft pick trades to five years. Something similar might return in the future.`\
-https://nytimes.com/athletic/7162399/2026/04/01/nfl-draft-pick-trades-rule-change/
+**Frank Ragnow repaying bonus not good optics for Lions — and a familiar position**\
+`"If I worried about optics, you wouldn't do a lot of things," outgoing Lions team president Rod Wood said Tuesday.`\
+https://nytimes.com/athletic/7162514/2026/04/01/detroit-lions-frank-ragnow-bonus-repay-reaction/
 
-**Stop pretending no parity is a problem. Goliaths in women's Final Four is good for the sport**\
-`UConn, UCLA, Texas, South Carolina back in Final Four. That's not an issue. Women's tourney doesn't need to chase parity like men's sports.`\
-https://nytimes.com/athletic/7163147/2026/04/01/womens-final-four-parity-ucla-uconn-texas-south-carolina/
+**What are the Vikings' draft priorities with interim GM Rob Brzezinski running the show?**\
+`With Brzezinski calling the shots, the Vikings will exercise patience in the NFL Draft. But could their new center already be on the roster?`\
+https://nytimes.com/athletic/7161645/2026/04/01/vikings-rob-brzezinski-nfl-draft-blake-brandel/
 
-**Why the Colts doubled down on Daniel Jones, leaving no doubt about QB direction**\
-`Colts GM Chris Ballard envisions a career path for Jones similar to that of Alex Smith, who flourished in his second NFL stop.`\
-https://nytimes.com/athletic/7161641/2026/04/01/colts-daniel-jones-shane-steichen-chris-ballard/
+**Where the Rangers' slipping draft odds stand and which prospects could be in focus**\
+`With a win against the Devils pushing the Rangers down the draft order, it's worth wondering about strategy even as players celebrate.`\
+https://nytimes.com/athletic/7162649/2026/04/01/new-york-rangers-nhl-draft-pick-devils/
 
-**It's a Cardinal party: How Stanford is taking over Augusta**\
-`“Being at Stanford in itself is hard. Being on Stanford women’s golf is adding another gear to it.”`\
-https://nytimes.com/athletic/7161459/2026/04/01/stanford-augusta-national-womens-amateur-golf/
+**What does Panthers GM Dan Morgan look for in his defenders? Arm length, for starters**\
+`The Panthers added long-armed defenders Jaelan Phillips and Devin Lloyd in free agency and it's one of several key traits they value.`\
+https://nytimes.com/athletic/7161321/2026/04/01/panthers-defense-jaelan-phillips-devin-lloyd-arm-length/
 
-**They combined for the greatest shot in March Madness history. It was years in the making**\
-`It was the stuff of driveway dreams: 4.7 seconds left, tie score, the 2016 men's college basketball national championship on the line.`\
-https://nytimes.com/athletic/7160592/2026/04/01/kris-jenkins-march-madness-villanova-greatest-shot/
+**Sabres inch closer to clinching playoff spot, lose Carrick to injury: 3 thoughts**\
+`Carrick left the game with an injury to his left shoulder or arm after fighting the Islanders' Anders Lee.`\
+https://nytimes.com/athletic/7162974/2026/04/01/sabres-carrick-injury-playoffs-spot-metsa-greenway-islanders/
 
-**Former umps watch their brethren deal with ABS and feel sympathy, pain**\
-`Umpires were once masters of their own domain. It has become more complicated of late. `\
-https://nytimes.com/athletic/7163482/2026/04/01/mlb-umpires-abs-system/
+**Porter Martone's NHL debut encouraging as Flyers learn lessons in loss**\
+`Martone finished with a team-high five shots on goal but Philadelphia's playoff chances took a hit after a 6-4 loss to the Capitals.`\
+https://nytimes.com/athletic/7162972/2026/04/01/flyers-porter-martone-nhl-debut-capitals/
 
-**Can regional sports networks survive, or even thrive? Depends on who you ask**\
-`Charlie Jacobs, the CEO of hockey’s Boston Bruins, is convinced that his three children, all in their twenties, will likely never sign up for a traditional cable package to watch television.`\
-https://nytimes.com/athletic/7163526/2026/04/01/mlb-rsn-support-thrive-nesn-options/
+**Penguins are on verge of a playoff spot after dominant win against Red Wings**\
+`The Penguins handled Detroit with ease in a 5-1 win Tuesday, looking like a team ready to thrive in the playoffs.`\
+https://nytimes.com/athletic/7162754/2026/04/01/penguins-playoffs-win-red-wings-nhl/
 
