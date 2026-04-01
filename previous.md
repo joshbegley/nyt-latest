@@ -1,4 +1,4 @@
-**Trump’s Brusque Message to Europe: Go It Alone**\
+**Trump’s Brusque Threat to Europe: Go It Alone**\
 `Threatening to pull out of NATO, President Trump portrayed the alliance as a “paper tiger” and said Europe was on its own in trying to secure the Strait of Hormuz.`\
 https://nytimes.com/2026/04/01/world/middleeast/trump-europe-nato-iran.html
 
