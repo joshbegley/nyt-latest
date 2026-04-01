@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Farnaz Fassihi, Francesca Regalado and Abdi Latif Dahir`\
+https://nytimes.com/live/2026/04/01/world/iran-war-trump-oil-news/heres-the-latest
+
+**Iran War Live Updates: Israel Strikes Tehran After Trump Says U.S. Will Leave ‘Very Soon’**\
+`Residents of the Iranian capital reported explosions early Wednesday. President Trump said the United States expected the U.S. military campaign in Iran to end in two or three weeks.`\
+https://nytimes.com/live/2026/04/01/world/iran-war-trump-oil-news
+
 **Israelis Prepare to Celebrate Passover in Shadow of War**\
 `The atmosphere during preparations for the Jewish festival has been unusually subdued, with people afraid to stray far from their homes and shelters.`\
 https://nytimes.com/2026/04/01/world/middleeast/israel-iran-passover.html
