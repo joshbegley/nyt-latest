@@ -1,3 +1,11 @@
+**Trump’s Brusque Message to Europe: Go It Alone**\
+`Threatening to pull out of NATO, President Trump portrayed the alliance as a “paper tiger” and said Europe was on its own in trying to secure the Strait of Hormuz.`\
+https://nytimes.com/2026/04/01/world/middleeast/trump-europe-nato-iran.html
+
+**Markets Bet Big on a Quick End to the War in Iran**\
+`Global markets rallied as President Trump signaled that the United States may stop fighting soon. But big questions remain about lingering damage.`\
+https://nytimes.com/2026/04/01/business/dealbook/markets-war-iran-trump.html
+
 **Party atmosphere does little to give USMNT home advantage, unlike for Mexico**\
 `Mexico City's Estadio Azteca gives the kind of home advantage the USMNT must crave`\
 https://nytimes.com/athletic/7163111/2026/04/01/usmnt-mexico-stadium-atmosphere-azteca-atlanta/

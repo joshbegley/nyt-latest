@@ -1,3 +1,7 @@
+**Trump’s Brusque Message to Europe: Go It Alone**\
+`Threatening to pull out of NATO, President Trump portrayed the alliance as a “paper tiger” and said Europe was on its own in trying to secure the Strait of Hormuz.`\
+https://nytimes.com/2026/04/01/world/middleeast/trump-europe-nato-iran.html
+
 **Party atmosphere does little to give USMNT home advantage, unlike for Mexico**\
 `Mexico City's Estadio Azteca gives the kind of home advantage the USMNT must crave`\
 https://nytimes.com/athletic/7163111/2026/04/01/usmnt-mexico-stadium-atmosphere-azteca-atlanta/
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/7163808/2026/04/01/nebraska-football-2026-spring-fa
 ``\
 https://nytimes.com/live/2026/04/01/us/trump-news
 
-**Markets Bet Big on a Quick End to the Iran War**\
+**Markets Bet Big on a Quick End to the War in Iran**\
 `Global markets rallied as President Trump signaled that the United States may stop fighting soon. But big questions remain about lingering damage.`\
 https://nytimes.com/2026/04/01/business/dealbook/markets-war-iran-trump.html
 
 **Why the Bears view Coby Bryant as a tone-setter for a defense in flux**\
 `Bears coaches will be “hyper-alert” for any signs of complacency or entitlement when the offseason program begins.`\
 https://nytimes.com/athletic/7161500/2026/04/01/bears-ryan-poles-ben-johnson-coby-bryant/
-
-**Why some MLB teams are willing to offer long-term deals to unproven top prospects**\
-`The Mariners signed infielder Colt Emerson to an eight-year, $95 million extension and he hasn't made his MLB debut yet.`\
-https://nytimes.com/athletic/7163745/2026/04/01/mlb-contract-extensions-prospects-colt-emerson-mariners/
 
