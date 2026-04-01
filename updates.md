@@ -1,3 +1,15 @@
+**How High Are Gas Prices Where You Live?**\
+`Here is a county-level look at where drivers are facing the highest costs.`\
+https://nytimes.com/interactive/2026/business/energy-environment/gas-prices-map-iran-war-oil.html
+
+**Why Artemis II Won’t Land on the Moon**\
+`It has been 50 years since humans last walked the lunar surface, and NASA’s efforts to get back there will take place in stages.`\
+https://nytimes.com/2026/04/01/science/nasa-artemis-ii-astronauts-moon-landing.html
+
+**2026 World Cup odds: European powers remain top 3 favorites with field set**\
+`Spain, England and France are the top favorites to win the 2026 World Cup. How does the rest of the field rank?`\
+https://nytimes.com/athletic/7164649/2026/04/01/world-cup-odds-spain-england-france/
+
 **Where will Bears build their new stadium? Illinois-Indiana tug of war continues**\
 `“The fact of the matter is we don’t have a deal to consider right now,” Bears Chairman George McCaskey said Wednesday.`\
 https://nytimes.com/athletic/7164877/2026/04/01/bears-stadium-update-illinois-indiana/
