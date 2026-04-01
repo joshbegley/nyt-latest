@@ -1,5 +1,5 @@
-**She’s Trump-backed but Praised D.E.I. Will It Hurt Her in a Republican Primary?**\
-`Democratic politicians aren’t the only ones whose Covid-era remarks are haunting them politically.`\
+**She’s Trump-Backed but Praised D.E.I. Will It Hurt Her in a Republican Primary?**\
+`Representative Julia Letlow of Louisiana, running to challenge Senator Bill Cassidy, is facing conservative blowback over remarks from 2020.`\
 https://nytimes.com/2026/04/01/us/politics/julia-letlow-louisiana-republican-primary.html
 
 **Bettina Köster, a Leading Voice in Berlin’s 1980s Avant-Garde, Dies at 66**\
