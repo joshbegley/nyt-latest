@@ -1,3 +1,11 @@
+**Medical Examiner Rules That a Rohingya Refugee’s Death Was a Homicide**\
+`An autopsy showed that the man suffered dehydration and hypothermia after Border Patrol agents dropped him off on a cold night in Buffalo.`\
+https://nytimes.com/2026/04/01/nyregion/rohingya-refugee-buffalo-homicide-medical-examiner.html
+
+**7.4-Magnitude Earthquake in Indonesia Raises Tsunami Alerts**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/04/01/world/asia/earthquake-indonesia.html
+
 **7.4-Magnitude Earthquake in Indonesia Raises Tsunami Alerts**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2026/04/01/world/asia/01wea-quake-tracker-indonesia-nyt7h6g2.html
