@@ -1,3 +1,19 @@
+**French Prosecutors Link Foiled Attack on American Bank to a Pro-Iranian Group**\
+`The group is suspected of involvement in a string of attacks on Jewish targets in Belgium, Britain and the Netherlands.`\
+https://nytimes.com/2026/04/01/world/bank-of-america-attack-pro-iranian-group.html
+
+**An offseason malaise around Nebraska football? Only wins — not talk — will lift it**\
+`Nebraska football kept a low profile in the spring. Fans who have seen offseason hype fizzle just want to see wins, anyway.`\
+https://nytimes.com/athletic/7163808/2026/04/01/nebraska-football-2026-spring-fans-matt-rhule/
+
+**Trump Administration Live Updates: President Justifies Building Ballroom as Security Matter**\
+``\
+https://nytimes.com/live/2026/04/01/us/trump-news
+
+**Markets Bet Big on a Quick End to the Iran War**\
+`Global markets rallied as President Trump signaled that the United States may stop fighting soon. But big questions remain about lingering damage.`\
+https://nytimes.com/2026/04/01/business/dealbook/markets-war-iran-trump.html
+
 **Why the Bears view Coby Bryant as a tone-setter for a defense in flux**\
 `Bears coaches will be “hyper-alert” for any signs of complacency or entitlement when the offseason program begins.`\
 https://nytimes.com/athletic/7161500/2026/04/01/bears-ryan-poles-ben-johnson-coby-bryant/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7163779/2026/04/01/angels-vs-cubs-stream-how-to-wat
 **How to watch Red Sox vs. Astros: Time, TV, streaming for April 1**\
 `Find out how to watch the Boston Red Sox play the Houston Astros, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7163773/2026/04/01/red-sox-vs-astros-stream-how-to-watch-april-1/
-
-**How to watch Rays vs. Brewers: Time, TV, streaming for April 1**\
-`Find out how to watch the Tampa Bay Rays play the Milwaukee Brewers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7163769/2026/04/01/rays-vs-brewers-stream-how-to-watch-april-1/
-
-**Meet Sheel Tyle, the new local Blazers co-owner intent on keeping the team in Portland**\
-`In the 56-year history of the Blazers, the 34-year-old Teel joins founder Harry Glickman as the only Oregonians to stake an ownership claim.`\
-https://nytimes.com/athletic/7143606/2026/04/01/meet-sheel-tyle-the-new-local-blazers-co-owner-intent-on-keeping-the-team-in-portland/
-
-**Seventy thoughts on 70 key Michigan players: How is Kyle Whittingham's roster shaping up?**\
-`Who's back at Michigan and who's new under a new coaching staff? Here's what you need to know about the football roster for 2026.`\
-https://nytimes.com/athletic/7160581/2026/04/01/michigan-football-roster-spring-starters/
-
-**Here’s the latest.**\
-`By Kenneth Chang and Katrina Miller`\
-https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/heres-the-latest
 
