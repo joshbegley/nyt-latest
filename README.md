@@ -1,3 +1,15 @@
+**Megan Thee Stallion Falls Ill on Broadway, Leaving Run in Question**\
+`The rapper was rushed to the hospital midway through a performance of “Moulin Rouge! The Musical” on Tuesday. She is expected to miss shows on Wednesday.`\
+https://nytimes.com/2026/04/01/theater/megan-thee-stallion-broadway-hospital.html
+
+**C.D.C. Pauses Testing for Rabies and Mpox**\
+`The diseases were removed from a list of tests the agency conducts for state and local health departments. Experts worry that with drastic staff reductions, the testing may not resume.`\
+https://nytimes.com/2026/04/01/health/cdc-rabies-mpox-tests-paused.html
+
+**Isak to return to Liverpool team training this week, says Slot**\
+`"To have him back for the last two months is, I think, very helpful for us," Slot told Liverpool's club website.`\
+https://nytimes.com/athletic/7164489/2026/04/01/alexander-isak-liverpool-injury-training/
+
 **Why ABS is captivating the attention of MLB, fans and the AI-curious: MoneyCall**\
 `This week's free sports-business cheat sheet from The Athletic.`\
 https://nytimes.com/athletic/7164445/2026/04/01/mlb-abs-ai-challenge-moneycall/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/7162491/2026/04/01/jaden-ivey-career-timeline-pisto
 **Lamine Yamal, Spain's 'worldwide shame' and how anti-Muslim chants forced him to speak out**\
 `An unsavoury chant has cast a shadow over Spain, just as an exciting team led by Yamal prepare for this summer's World Cup`\
 https://nytimes.com/athletic/7164199/2026/04/01/lamine-yamal-spain-anti-muslim-chants/
-
-**Can Science Predict When a Study Won’t Hold Up?**\
-`Conducting research is hard; confirming the results is, too. And artificial intelligence isn’t yet ready to help, a major new study finds.`\
-https://nytimes.com/2026/04/01/science/ai-experiments-replication.html
-
-**Under Trump’s Approach to Birthright Citizenship, ‘Foundlings’ Given Up for Adoption Could Be Stateless**\
-`Abandoned infants would have to produce evidence that at least one of their biological parents was a U.S. citizen or lawful permanent resident.`\
-https://nytimes.com/2026/04/01/us/politics/birthright-citizenship-foundlings.html
-
-**How to watch 76ers vs. Wizards: Time, TV, streaming**\
-`Find out how to watch the Philadelphia 76ers play the Washington Wizards, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7164386/2026/04/01/76ers-vs-wizards-stream-how-to-watch-april-1/
 
