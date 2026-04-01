@@ -1,3 +1,7 @@
+**Why the Bears view Coby Bryant as a tone-setter for a defense in flux**\
+`Bears coaches will be “hyper-alert” for any signs of complacency or entitlement when the offseason program begins.`\
+https://nytimes.com/athletic/7161500/2026/04/01/bears-ryan-poles-ben-johnson-coby-bryant/
+
 **Why some MLB teams are willing to offer long-term deals to unproven top prospects**\
 `The Mariners signed infielder Colt Emerson to an eight-year, $95 million extension and he hasn't made his MLB debut yet.`\
 https://nytimes.com/athletic/7163745/2026/04/01/mlb-contract-extensions-prospects-colt-emerson-mariners/
