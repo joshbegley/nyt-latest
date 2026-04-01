@@ -1,3 +1,15 @@
+**Blazers owner addresses future of employees, the franchise and the arena deal**\
+`Dundon says the Blazers will get better with him as owner. "It's going to happen. It always happens when I show up."`\
+https://nytimes.com/athletic/7163115/2026/04/01/tom-dundon-trail-blazers-owner-sale-nba/
+
+**World Cup 2026 - Groups, bracket and predictions with all 48 teams confirmed**\
+`Could holders Argentina be a letdown? Does 41-year-old Ronaldo have a real shot at the Golden Boot? And who are our writers backing to win?`\
+https://nytimes.com/athletic/7159194/2026/04/01/world-cup-2026-bracket-predictions/
+
+**Padma Lakshmi: The Decision That Would Create a Permanent American Underclass**\
+`President Trump wants to take away a fundamental American promise.`\
+https://nytimes.com/2026/04/01/opinion/padma-lakshmi-birthright-citizenship-food.html
+
 **Stocks in Asia Rally and Oil Prices Rise**\
 `President Trump said the U.S. military would wrap up its campaign in Iran in two or three weeks.`\
 https://nytimes.com/2026/04/01/business/stocks-oil-gasoline-prices-iran.html
