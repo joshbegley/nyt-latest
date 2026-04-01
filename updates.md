@@ -1,3 +1,23 @@
+**What to Know About Ted Bundy, the Notorious Serial Killer**\
+`On Wednesday, the authorities said DNA evidence had linked Mr. Bundy, who was executed in 1989, to the murder of a 17-year-old Utah girl in 1974.`\
+https://nytimes.com/2026/04/01/us/what-to-know-about-ted-bundy-serial-killer.html
+
+**Phillies takeaways: Justin Crawford's walk-off, ABS strategy, Zack Wheeler update**\
+`The Phillies, among the oldest teams last season, have witnessed two magical moments from their youngest players in the past two games.`\
+https://nytimes.com/athletic/7165336/2026/04/01/phillies-takeaways-justin-crawford-zack-wheeler-rehab/
+
+**DNA Confirms Ted Bundy Killed Utah Teen in 1974, Investigators Say**\
+`Mr. Bundy had confessed to killing Laura Ann Aime before he was executed in 1989. Investigators said DNA testing provided conclusive proof.`\
+https://nytimes.com/2026/04/01/us/ted-bundy-utah-murder-confirmed.html
+
+**In Nationals' series loss, unfamiliar situations lead to familiar outcome**\
+`In a vacuum, these were the levers to pull. However, it didn't work out, and Washington's shot for a series victory evaporated. `\
+https://nytimes.com/athletic/7165382/2026/04/01/nationals-series-loss-walk-off-phillies/
+
+**Bill Self, Kansas' all-time winningest coach, returning for 24th season**\
+`Self will be looking to add to his Kansas legacy of two national championships and 17 regular-season Big 12 titles.`\
+https://nytimes.com/athletic/7160615/2026/04/01/bill-self-returning-kansas-mens-basketball-coach-ku/
+
 **Shimmying American Woodcocks Cause a Birding Frenzy in N.Y.C.**\
 `People flocked to Bryant Park in Midtown Manhattan, where the quirky American woodcocks had made a pit stop on their migration north. The birds are known for their bopping and shimmying.`\
 https://nytimes.com/video/nyregion/100000010816436/american-woodcock-bryant-park-nyc.html
