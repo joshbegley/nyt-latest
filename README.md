@@ -1,3 +1,11 @@
+**Meet the four astronauts of Artemis II.**\
+`By Katrina Miller`\
+https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/meet-the-four-astronauts-of-artemis-ii
+
+**F1 Academy introducing three-race weekends in Montreal and Austin**\
+`The move comes after the cancellation of races in the Middle East.`\
+https://nytimes.com/athletic/7163618/2026/04/01/f1-academy-calendar-montreal-austin/
+
 **Trump’s Birthright Citizenship Order Draws Lines Scholars Find Indefensible**\
 `Different treatment for mothers and fathers is at odds with a 2017 Supreme Court decision, and other ideas in the order are hard to understand.`\
 https://nytimes.com/2026/04/01/us/politics/trumps-birthright-citizenship-order-draws-lines-scholars-find-indefensible.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7158483/2026/04/01/kyle-kelly-liverpool-st-kitts/
 **Without the U.S., what would happen to NATO?**\
 `By Lara Jakes`\
 https://nytimes.com/live/2026/04/01/world/iran-war-trump-oil-news/without-the-us-what-would-happen-to-nato
-
-**How to watch Yankees vs. Mariners: Time, TV, streaming for April 1**\
-`Find out how to watch the New York Yankees play the Seattle Mariners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7164143/2026/04/01/yankees-vs-mariners-stream-how-to-watch-april-1/
-
-**How to watch Tigers vs. Diamondbacks: Time, TV, streaming for April 1**\
-`Find out how to watch the Detroit Tigers play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7164130/2026/04/01/tigers-vs-diamondbacks-stream-how-to-watch-april-1/
 
