@@ -1,3 +1,7 @@
+**Why the Dodgers will be conservative with Shohei Ohtani's pitching in April**\
+`It won't be unusual for Ohtani to see between six and seven days between starts through April. In the Dodgers' eyes, it'd be ideal.`\
+https://nytimes.com/athletic/7163015/2026/04/01/dodgers-shohei-ohtani-pitching-usage/
+
 **Trump’s Brusque Threat to Europe: Go It Alone**\
 `Threatening to pull out of NATO, President Trump portrayed the alliance as a “paper tiger” and said Europe was on its own in trying to secure the Strait of Hormuz.`\
 https://nytimes.com/2026/04/01/world/middleeast/trump-europe-nato-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/04/01/us/trump-news
 **Markets Bet Big on a Quick End to the War in Iran**\
 `Global markets rallied as President Trump signaled that the United States may stop fighting soon. But big questions remain about lingering damage.`\
 https://nytimes.com/2026/04/01/business/dealbook/markets-war-iran-trump.html
-
-**Why the Bears view Coby Bryant as a tone-setter for a defense in flux**\
-`Bears coaches will be “hyper-alert” for any signs of complacency or entitlement when the offseason program begins.`\
-https://nytimes.com/athletic/7161500/2026/04/01/bears-ryan-poles-ben-johnson-coby-bryant/
 
