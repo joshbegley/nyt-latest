@@ -1,3 +1,7 @@
+**Quote of the Day: Trump Facing Hard Decision As War Rages**\
+`Quotation of the Day for Wednesday, April 1, 2026.`\
+https://nytimes.com/2026/03/31/pageoneplus/quote-of-the-day-trump-facing-hard-decision-as-war-rages.html
+
 **Embattled umpire C.B. Bucknor prompts laughter after latest blown call**\
 `It was evident that Bauers' right foot came down on the first-base bag. He was called out anyway by Bucknor. `\
 https://nytimes.com/athletic/7162909/2026/03/31/brewers-rays-cb-bucknor-replay-review-judgment/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/31/crosswords/daily-puzzle-2026-04-01.html
 **Bomb Shelters and a Drone-Proof Roof: Trump Says Ballroom Is a Matter of Security**\
 `President Trump spoke about his ballroom’s security features as he argued against a judge’s orders to stop construction.`\
 https://nytimes.com/2026/03/31/us/politics/trump-ballroom-underground-security.html
-
-**Goalies Igor Shesterkin, Jacob Markström drop the gloves for fight at MSG**\
-`Shesterkin and Markström were given two-minute penalties for leaving the crease and five minutes for fighting.`\
-https://nytimes.com/athletic/7162764/2026/03/31/nhl-goalie-fight-igor-shesterkin-jacob-markstrom/
 
