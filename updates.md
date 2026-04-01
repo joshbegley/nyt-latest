@@ -1,3 +1,7 @@
+**In South Dakota, Sympathy for Kristi Noem’s Husband After Tabloid Photo Leak**\
+`In the tiny town of Castlewood, S.D., where everyone knows the Noems, the prevailing sense was that people can’t help but feel sorry for Bryon Noem.`\
+https://nytimes.com/2026/03/31/us/politics/kristi-noem-husband-photos-daily-mail.html
+
 **NFL ending 'Monday Night Football' doubleheaders, exploring Thanksgiving Eve game**\
 `The NFL will redistribute the five games in standalone windows.`\
 https://nytimes.com/athletic/7162393/2026/03/31/nfl-ending-monday-night-football-doubleheaders-exploring-adding-thanksgiving-eve-game/
