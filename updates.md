@@ -1,3 +1,7 @@
+**YouTube’s C.E.O. on the Rise of Video and the Decline of Reading**\
+`On “The Interview,” Neal Mohan, YouTube’s C.E.O., talks about the platform’s role in an age of post-literacy and his belief that video serves as a vital “visual library” for a new generation of learners.`\
+https://nytimes.com/video/podcasts/100000010814209/youtubes-ceo-on-the-rise-of-video-and-the-decline-of-reading.html
+
 **Appeals Court Stops V.O.A. Journalists From Quickly Returning**\
 `A panel of three judges halted the lower court order to reinstate all full-time Voice of America reporters and support staff who had been put on paid leave.`\
 https://nytimes.com/2026/03/31/us/politics/appeals-court-stops-voa-journalists-from-quickly-returning.html

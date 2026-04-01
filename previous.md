@@ -1,3 +1,7 @@
+**YouTube’s C.E.O. on the Rise of Video and the Decline of Reading**\
+`On “The Interview,” Neal Mohan, YouTube’s C.E.O., talks about the platform’s role in an age of post-literacy and his belief that video serves as a vital “visual library” for a new generation of learners.`\
+https://nytimes.com/video/podcasts/100000010814209/youtubes-ceo-on-the-rise-of-video-and-the-decline-of-reading.html
+
 **Appeals Court Stops V.O.A. Journalists From Quickly Returning**\
 `A panel of three judges halted the lower court order to reinstate all full-time Voice of America reporters and support staff who had been put on paid leave.`\
 https://nytimes.com/2026/03/31/us/politics/appeals-court-stops-voa-journalists-from-quickly-returning.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/31/us/politics/trump-says-us-will-be-out-of-iran-wit
 **Trump Says He Halted Nuclear Threat From Iran, Despite Evidence to the Contrary**\
 `For the second time in recent days, President Trump declared that one of the key objectives of the war had been accomplished.`\
 https://nytimes.com/2026/03/31/us/politics/trump-nuclear-threat-iran.html
-
-**Trump Administration Acted Illegally With Homeless Grants Program, Judge Rules**\
-`A federal judge in Rhode Island said that the administration had wrongly demanded that groups seeking grants comply with its agenda on other issues, including immigration.`\
-https://nytimes.com/2026/03/31/us/politics/trump-homelessness-program-judge.html
 
