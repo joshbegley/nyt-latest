@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Farnaz Fassihi, Francesca Regalado and Abdi Latif Dahir`\
+https://nytimes.com/live/2026/04/01/world/iran-war-trump-oil-news/heres-the-latest
+
+**Iran War Live Updates: Israel Strikes Tehran After Trump Says U.S. Will Leave ‘Very Soon’**\
+`Residents of the Iranian capital reported explosions early Wednesday. President Trump said the United States expected the U.S. military campaign in Iran to end in two or three weeks.`\
+https://nytimes.com/live/2026/04/01/world/iran-war-trump-oil-news
+
 **Israelis Prepare to Celebrate Passover in Shadow of War**\
 `The atmosphere during preparations for the Jewish festival has been unusually subdued, with people afraid to stray far from their homes and shelters.`\
 https://nytimes.com/2026/04/01/world/middleeast/israel-iran-passover.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/01/learning/april-fools-pranks.html
 **A ‘Traffic Jam’ of Trials Poses Headache for Mangione’s Lawyers**\
 `Luigi Mangione’s lawyers could be in and out of court in Manhattan through the end of the year. A judge could decide as early as Wednesday on whether to delay his federal case.`\
 https://nytimes.com/2026/04/01/nyregion/mangione-weinstein-trial-manhattan.html
-
-**Who Murdered Minerliz? How a Diner Meet-up Cracked the Case.**\
-`In 1999, a 13-year-old girl was found dead in the Bronx. Then the trail went cold for 20 years, until an ingenious ploy by detectives produced a vital clue to her killer.`\
-https://nytimes.com/2026/04/01/nyregion/jupiter-joe-bronx-murder.html
-
-**The Three Big Questions Delaying New York’s Budget**\
-`Legislators are weighing tax increases on the wealthy and changes to laws meant to protect immigrants and the environment as the state budget deadline passes.`\
-https://nytimes.com/2026/04/01/nyregion/budget-delayed-hochul.html
 
