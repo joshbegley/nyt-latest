@@ -1,3 +1,7 @@
+**U.S. Is Weighing Leaving NATO, Trump Says**\
+`In an interview with The Telegraph, a British newspaper, President Trump said that he was considering pulling the United States out of NATO alliance over the war in Iran.`\
+https://nytimes.com/video/world/middleeast/100000010814558/trump-us-leaving-nato.html
+
 **The ‘Constitutional Bedrock’ Trump Is Trying to Erase**\
 `Trump is on a mission to eliminate birthright citizenship, a right long thought to be guaranteed by the 14th Amendment of the Constitution. But how will the Supreme Court respond? The legal journalist Cristian Farias shares his insights.`\
 https://nytimes.com/video/opinion/100000010811212/the-constitutional-bedrock-trump-is-trying-to-erase.html
