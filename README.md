@@ -1,3 +1,11 @@
+**What Happened in the War in the Middle East on Wednesday.**\
+`Formidable strikes rocked Tehran early Wednesday morning. Iran launched what its state-aligned media called one of the largest attacks on Israel yet, damaging several cities.`\
+https://nytimes.com/2026/04/01/world/middleeast/what-happened-in-the-war-in-the-middle-east-on-wednesday.html
+
+**What China sees as NASA launches Artemis II.**\
+`By Selam Gebrekidan`\
+https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/what-china-sees-as-nasa-launches-artemis-ii
+
 **Jose Altuve is staying patient and propelling a new-look Astros offense**\
 `Altuve is spearheading a lineup that just scored 45 runs and worked 32 walks across a seven-game homestand. `\
 https://nytimes.com/athletic/7165452/2026/04/01/houston-astros-jose-altuve-patience-offense/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7165336/2026/04/01/phillies-takeaways-justin-crawfo
 **DNA Confirms Ted Bundy Killed Utah Teen in 1974, Investigators Say**\
 `Mr. Bundy had confessed to killing Laura Ann Aime before he was executed in 1989. Investigators said DNA testing provided conclusive proof.`\
 https://nytimes.com/2026/04/01/us/ted-bundy-utah-murder-confirmed.html
-
-**In Nationals' series loss, pitching in unfamiliar situations leads to familiar outcome**\
-`Clayton Beeter, PJ Poulin and Cole Henry couldn't close it out against the Phillies, who won on Justin Crawford's 10th-inning, walk-off hit.`\
-https://nytimes.com/athletic/7165382/2026/04/01/nationals-series-loss-walk-off-phillies/
-
-**Shimmying American Woodcocks Cause a Birding Frenzy in N.Y.C.**\
-`People flocked to Bryant Park in Midtown Manhattan, where the quirky American woodcocks had made a pit stop on their migration north. The birds are known for their bopping and shimmying.`\
-https://nytimes.com/video/nyregion/100000010816436/american-woodcock-bryant-park-nyc.html
 
