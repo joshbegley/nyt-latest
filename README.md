@@ -1,3 +1,7 @@
+**The Briefing - Iraq 2 Bolivia 1: World Cup play-off winners reach first finals in 40 years**\
+`Iraq became the 48th and final team to book their place at the World Cup in the United States, Canada and Mexico`\
+https://nytimes.com/athletic/7163208/2026/04/01/iraq-2-bolivia-1-world-cup-playoff/
+
 **Blazers owner addresses future of employees, the franchise and the arena deal**\
 `Dundon says the Blazers will get better with him as owner. "It's going to happen. It always happens when I show up."`\
 https://nytimes.com/athletic/7163115/2026/04/01/tom-dundon-trail-blazers-owner-sale-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7157525/2026/04/01/hameed-england-notts-moores-bazb
 **Pulisic's U.S. goal drought continues, but he maintains 'things are gonna click'**\
 `Pulisic has now gone eight straight U.S. matches without a goal and endured a frustrating March window`\
 https://nytimes.com/athletic/7163052/2026/04/01/christian-pulisic-goals-drought-usmnt-portugal-world-cup/
-
-**The 76-year-old European Cup-winning captain still training with Nottingham Forest**\
-`In a season that has seen four different permanent managers, John McGovern has been a welcome and comforting presence on the training pitch`\
-https://nytimes.com/athletic/7158389/2026/04/01/nottingham-forest-john-mcgovern-training-ground/
 
