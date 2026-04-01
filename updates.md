@@ -1,3 +1,11 @@
+**Robot Taxis Stop in Traffic in Chinese City, Stranding Travelers**\
+`The authorities in Wuhan, the site of one of the world’s largest experiments in self-driving cars, cited a “system failure” after widespread reports on Tuesday evening.`\
+https://nytimes.com/2026/04/01/business/baidu-robotaxi-wuhan-china.html
+
+**Iraq and a World Cup party 40 years in the making: 'This is why we love football'**\
+`No team worked harder to reach this summer's tournament – and they were ready to cherish the moment`\
+https://nytimes.com/athletic/7163597/2026/04/01/iraq-qualify-world-cup/
+
 **The Rush to Save Premature Infants in Gaza**\
 `Text by Samar Abu Elouf`\
 https://nytimes.com/card/2026/04/01/world/middleeast/
