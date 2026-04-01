@@ -1,3 +1,7 @@
+**Canada 0, Tunisia 0: Flores stands out, another CB hurt in World Cup tuneup**\
+`Canada's scoring woes resurfaced, but so did a new attacking wrinkle as the World Cup opener in Toronto gets ever closer`\
+https://nytimes.com/athletic/7162272/2026/03/31/canada-tunisia-friendly-score-result-world-cup-flores/
+
 **YouTube’s C.E.O. on the Rise of Video and the Decline of Reading**\
 `On “The Interview,” Neal Mohan, YouTube’s C.E.O., talks about the platform’s role in an age of post-literacy and his belief that video serves as a vital “visual library” for a new generation of learners.`\
 https://nytimes.com/video/podcasts/100000010814209/youtubes-ceo-on-the-rise-of-video-and-the-decline-of-reading.html
