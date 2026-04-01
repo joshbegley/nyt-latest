@@ -1,5 +1,13 @@
+**Shimmying American Woodcocks Cause a Birding Frenzy in N.Y.C.**\
+`People flocked to Bryant Park in Midtown Manhattan, where the quirky American woodcocks had made a pit stop on their migration north. The birds are known for their bopping and shimmying.`\
+https://nytimes.com/video/nyregion/100000010816436/american-woodcock-bryant-park-nyc.html
+
+**Chelsea 1-0 Arsenal: Bompastor sent off after McCabe's hair pull**\
+`McCabe was not disciplined for the incident at the end of an eventful second leg tie, which Chelsea won 1-0 on the night.`\
+https://nytimes.com/athletic/7165409/2026/04/01/bompastor-sent-off-mccabe-hair-pull-chelsea-arsenal/
+
 **Bill Self, Kansas' all-time winningest coach, returning for 24th season**\
-`Self will be looking to add to his legacy of two national championships and 21 conference titles.`\
+`Self will be looking to add to his Kansas legacy of two national championships and 16 regular-season Big 12 titles.`\
 https://nytimes.com/athletic/7160615/2026/04/01/bill-self-returning-kansas-mens-basketball-coach-ku/
 
 **Trump Will Lose the Birthright Citizenship Case. But in a Way, He’s Already Won.**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/01/business/trump-foreign-disinformation-iran.html
 **Key Justices Appear Skeptical of Limiting Birthright Citizenship**\
 `Also, NASA prepares to launch the first crewed moon mission in 50 years. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2026/04/01/briefing/supreme-court-citizenship-moon-launch.html
-
-**A flight to the moon like no other.**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/a-flight-to-the-moon-like-no-other
-
-**Artistic Clothes Inspired by the Slopes and Seas**\
-`Patrick Taylor’s new fashion line draws from his sporty childhood.`\
-https://nytimes.com/2026/04/01/t-magazine/patrick-taylor-fashion.html
 
