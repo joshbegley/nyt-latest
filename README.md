@@ -1,10 +1,14 @@
+**Why ABS is captivating the attention of MLB, fans and the AI-curious: MoneyCall**\
+`This week's free sports-business cheat sheet from The Athletic.`\
+https://nytimes.com/athletic/7164445/2026/04/01/mlb-abs-ai-challenge-moneycall/
+
 **WhatsApp Whistle-Blower Suit Is Dismissed**\
 `The former head of security for the messaging app, owned by Meta, had accused the social media company of putting billions of users at risk. A judge said there was not enough evidence that he was fired for his claims.`\
 https://nytimes.com/2026/04/01/technology/whatsapp-whistle-blower-suit-is-dismissed.html
 
 **In This ‘Hamlet’ and ‘Titus Andronicus,’ Life, Death and Even Joy**\
 `Two Shakespeare adaptations — Teatro La Plaza’s uplifting remix and Red Bull Theater’s gore fest — place very different values on human existence.`\
-https://nytimes.com/2026/04/01/theater/hamlet-titus-andronicus-review.html
+https://nytimes.com/2026/04/01/theater/hamlet-titus-andronicus-review-patrick-page.html
 
 **Heavy bombings across Tehran jolt its war-weary residents.**\
 `Some people in the capital said the blasts on Wednesday morning were among the most powerful they had felt in more than a month of war.`\
@@ -29,12 +33,4 @@ https://nytimes.com/2026/04/01/us/politics/birthright-citizenship-foundlings.htm
 **How to watch 76ers vs. Wizards: Time, TV, streaming**\
 `Find out how to watch the Philadelphia 76ers play the Washington Wizards, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7164386/2026/04/01/76ers-vs-wizards-stream-how-to-watch-april-1/
-
-**How to watch Hawks vs. Magic: Time, TV, streaming**\
-`Find out how to watch the Atlanta Hawks play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7164384/2026/04/01/hawks-vs-magic-stream-how-to-watch-april-1/
-
-**Leeds United set for Dublin pre-season friendly against Man Utd**\
-`The proposed game is set to take place at the 82,000-capacity Croke Park in the Irish capital.`\
-https://nytimes.com/athletic/7163854/2026/04/01/leeds-united-croke-park-dublin-man-utd/
 

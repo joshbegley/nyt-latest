@@ -1,3 +1,15 @@
+**WhatsApp Whistle-Blower Suit Is Dismissed**\
+`The former head of security for the messaging app, owned by Meta, had accused the social media company of putting billions of users at risk. A judge said there was not enough evidence that he was fired for his claims.`\
+https://nytimes.com/2026/04/01/technology/whatsapp-whistle-blower-suit-is-dismissed.html
+
+**In This ‘Hamlet’ and ‘Titus Andronicus,’ Life, Death and Even Joy**\
+`Two Shakespeare adaptations — Teatro La Plaza’s uplifting remix and Red Bull Theater’s gore fest — place very different values on human existence.`\
+https://nytimes.com/2026/04/01/theater/hamlet-titus-andronicus-review.html
+
+**Heavy bombings across Tehran jolt its war-weary residents.**\
+`Some people in the capital said the blasts on Wednesday morning were among the most powerful they had felt in more than a month of war.`\
+https://nytimes.com/live/2026/04/01/world/iran-war-trump-oil-news/heavy-bombings-tehran
+
 **Jaden Ivey was on track to be a future star. How he fell so far, so quickly**\
 `After a promising start to his career, Ivey was hampered by multiple injuries.`\
 https://nytimes.com/athletic/7162491/2026/04/01/jaden-ivey-career-timeline-pistons-bulls/
