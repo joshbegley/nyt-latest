@@ -1,3 +1,23 @@
+**USMNT 0, Portugal 2: Decisive loss, Pulisic struggles cap last pre-World Cup window**\
+`The U.S. made multiple tweaks but fell to a second straight European power in similar fashion, leaving much to do as the World Cup nears`\
+https://nytimes.com/athletic/7162351/2026/03/31/usmnt-portugal-friendly-score-result-pulisic-pochettino/
+
+**Eagles owner Jeffrey Lurie on Jalen Hurts: ‘There’s no bigger fan than me’**\
+`Comments on Hurts come as quarterback remains the 10th-highest-paid at his position.`\
+https://nytimes.com/athletic/7162635/2026/03/31/eagles-owner-jeffrey-lurie-jalen-hurts-contract/
+
+**Editors’ Note: April 1, 2026**\
+`The following Editors’ Note and corrections appeared in print on Wednesday, April 1, 2026.`\
+https://nytimes.com/2026/03/31/pageoneplus/editors-note-april-1-2026.html
+
+**Israel Strikes Tehran Pharmaceutical Plant, Claiming Military Link**\
+`Iran’s foreign minister, Abbas Araghchi, said on Tuesday that Israel was “openly and unashamedly bombing pharmaceutical companies.”`\
+https://nytimes.com/2026/03/31/world/middleeast/tehran-pharmaceutical-strike-israel.html
+
+**In South Dakota, Neighbors Feel Sorry for Kristi Noem’s Husband**\
+`In the tiny town of Castlewood, S.D., where everyone knows the Noems, the prevailing sense was that people can’t help but feel bad for Bryon Noem after a tabloid photo leak.`\
+https://nytimes.com/2026/03/31/us/politics/kristi-noem-husband-photos-daily-mail.html
+
 **In South Dakota, Sympathy for Kristi Noem’s Husband After Tabloid Photo Leak**\
 `In the tiny town of Castlewood, S.D., where everyone knows the Noems, the prevailing sense was that people can’t help but feel sorry for Bryon Noem.`\
 https://nytimes.com/2026/03/31/us/politics/kristi-noem-husband-photos-daily-mail.html
