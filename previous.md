@@ -1,3 +1,7 @@
+**Haseeb Hameed on life outside the Bazball bubble: 'The ambition to play for England will always be there'**\
+`The Notts captain is England's forgotten man, but sheer weight of runs over the last two seasons demands he is contention for a Test return`\
+https://nytimes.com/athletic/7157525/2026/04/01/hameed-england-notts-moores-bazball-interview/
+
 **Pulisic's U.S. goal drought continues, but he maintains 'things are gonna click'**\
 `Pulisic has now gone eight straight U.S. matches without a goal and endured a frustrating March window`\
 https://nytimes.com/athletic/7163052/2026/04/01/christian-pulisic-goals-drought-usmnt-portugal-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7157998/2026/04/01/michael-carrick-manchester-unite
 **Liverpool's top scorer on calls to her psychologist and a whirlwind WSL season**\
 `The Sweden international's early impact was disrupted by injury. She talks to Megan Feringa about that setback and her career so far`\
 https://nytimes.com/athletic/7143386/2026/04/01/beata-olsson-interview-liverpool/
-
-**Welcome to the 'ridiculous' international match nobody wanted to play**\
-`Wales vs Northern Ireland was the deadest of dead rubbers after both lost their World Cup playoff semi-finals`\
-https://nytimes.com/athletic/7162232/2026/04/01/wales-northern-ireland-fifa-friendly/
 

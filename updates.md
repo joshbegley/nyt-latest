@@ -1,3 +1,7 @@
+**Haseeb Hameed on life outside the Bazball bubble: 'The ambition to play for England will always be there'**\
+`The Notts captain is England's forgotten man, but sheer weight of runs over the last two seasons demands he is contention for a Test return`\
+https://nytimes.com/athletic/7157525/2026/04/01/hameed-england-notts-moores-bazball-interview/
+
 **Pulisic's U.S. goal drought continues, but he maintains 'things are gonna click'**\
 `Pulisic has now gone eight straight U.S. matches without a goal and endured a frustrating March window`\
 https://nytimes.com/athletic/7163052/2026/04/01/christian-pulisic-goals-drought-usmnt-portugal-world-cup/
