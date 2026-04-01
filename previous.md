@@ -1,40 +1,40 @@
-**Born American**\
-`We look at an important case before the Supreme Court.`\
-https://nytimes.com/2026/04/01/briefing/birthright-citizenship.html
+**Here’s the latest.**\
+`By Kenneth Chang and Katrina Miller`\
+https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/heres-the-latest
 
-**The Rush to Save Premature Infants in Gaza**\
-`Text by Samar Abu Elouf`\
-https://nytimes.com/card/2026/04/01/world/middleeast/
+**Live Updates: NASA’s Artemis II Moon Launch Countdown Begins**\
+`Four astronauts — three Americans and one Canadian — are preparing to launch on the first crewed journey to the moon since 1972. But they will not land there on this mission.`\
+https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch
 
-**Robot Taxis Stop in Traffic in Chinese City, Stranding Travelers**\
-`The authorities in Wuhan, the site of one of the world’s largest experiments in self-driving cars, cited a “system failure” after widespread reports on Tuesday evening.`\
-https://nytimes.com/2026/04/01/business/baidu-robotaxi-wuhan-china.html
+**Andrew Painter's supporters bask in a big-league debut that brings back memories**\
+`After Painter’s eight strikeouts came at least 38 hugs — from his group of 38 emotional supporters who were on hand for his debut.`\
+https://nytimes.com/athletic/7162999/2026/04/01/andrew-painter-mlb-debut-family-friends-phillies/
 
-**Iraq and a World Cup party 40 years in the making: 'This is why we love football'**\
-`No team worked harder to reach this summer's tournament – and they were ready to cherish the moment`\
-https://nytimes.com/athletic/7163597/2026/04/01/iraq-qualify-world-cup/
+**The Fall of a Cambodian Money-Laundering Giant**\
+`The former chairman of a financial group was brought to China in handcuffs, the latest high-level capture in a widening investigation into organized crime.`\
+https://nytimes.com/2026/04/01/world/asia/china-cambodia-huione-extradition.html
 
-**The Rush to Save Premature Infants in Gaza**\
-`Text by Samar Abu Elouf`\
-https://nytimes.com/card/2026/04/01/world/middleeast/
+**Where does Ian Happ fit after the Cubs' recent push for contract extensions?**\
+`Happ is beginning the final season of the three-year, $61 million contract extension he signed in April 2023.`\
+https://nytimes.com/athletic/7162877/2026/04/01/ian-happ-chicago-cubs-contract-status/
 
-**Down to Business: The real value of being the highest-paid player in women's soccer**\
-`Down to Business with Asli Pelit takes you through the exciting, fast-paced (and sometimes confusing) corporate side of women's soccer.`\
-https://nytimes.com/athletic/7162464/2026/04/01/highest-paid-womens-soccer-player-down-to-business/
+**What you need to know about the 2026 College Basketball Crown**\
+`Eight teams face off in Las Vegas for the postseason tournament's second installation.`\
+https://nytimes.com/athletic/7158531/2026/04/01/college-basketball-crown-tournament-schedule-teams-nil-2026/
 
-**Shohei Ohtani is back on the mound for the Dodgers, and might be even better**\
-`Ohtani was dominant over six innings and 87 pitches in a rain-filled win Tuesday night over the Guardians.`\
-https://nytimes.com/athletic/7163375/2026/04/01/shohei-ohtani-dodgers-pitching-win-guardians/
+**After dodging Italy, a confident Canada has its World Cup group outlook change**\
+`Facing Italy in Toronto to open the World Cup would have presented challenges. The cohosts have new marching orders now – but a same goal`\
+https://nytimes.com/athletic/7163150/2026/04/01/canada-world-cup-group-bosnia-herzegovina-switzerland-qatar-marsch/
 
-**Will Chiefs run more under center with Kenneth Walker III? What Andy Reid said**\
-`Here's how the Chiefs coach sees Walker, their free-agent signing, helping K.C.'s offense in 2026.`\
-https://nytimes.com/athletic/7161522/2026/04/01/chiefs-kenneth-walker-iii-run-game/
+**UEFA lobbying FIFA to increase World Cup prize money amid cost concerns**\
+`Some national associations are warning of potential losses should they not advance into the final eight of this summer's tournament.`\
+https://nytimes.com/athletic/7163394/2026/04/01/fifa-world-cup-costs-prize-money-uefa/
 
-**The Pulse: A big Cowboys move? In 2026?**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7162506/2026/04/01/nfl-mock-draft-cowboys-david-bailey-the-pulse/
+**Playoffs? The Jets? Breaking down their remaining schedule**\
+`What we can learn by examining the remaining schedule of all of the teams competing for the West's second wild-card spot.`\
+https://nytimes.com/athletic/7158872/2026/04/01/winnipeg-jets-playoffs-remaining-schedule/
 
-**Eight tough questions the Leafs should ask their next GM candidates**\
-`As the Maple Leafs search for their next GM, here are the eight questions I wouldn’t let a candidate leave an interview without answering.`\
-https://nytimes.com/athletic/7161385/2026/04/01/maple-leafs-gm-candidates-questions/
+**Who was the last quarterback signed, developed and retained by each ACC team?**\
+`Every college football program in the country preaches development. But how many really mean it — especially at the QB position?`\
+https://nytimes.com/athletic/7160474/2026/04/01/college-football-quarterbacks-acc-recruiting/
 
