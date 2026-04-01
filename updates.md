@@ -1,3 +1,23 @@
+**How to watch Celtics vs. Heat: Time, TV, streaming**\
+`Find out how to watch the Boston Celtics play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7164533/2026/04/01/celtics-vs-heat-stream-how-to-watch-april-1/
+
+**How to watch Kings vs. Raptors: Time, TV, streaming**\
+`Find out how to watch the Sacramento Kings play the Toronto Raptors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7164531/2026/04/01/kings-vs-raptors-stream-how-to-watch-april-1/
+
+**Before Artemis II, there had to be an Artemis I.**\
+`By Katrina Miller`\
+https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/before-artemis-ii-there-had-to-be-an-artemis-i
+
+**My Friend Wrote a Book About Her Trauma. Do I Have to Read It?**\
+`She told me that anyone who won’t read her book is not her friend and that I am contributing to the greater problem in the world.`\
+https://nytimes.com/2026/04/01/magazine/friend-trauma-book-ethics.html
+
+**Megan Thee Stallion Falls Ill on Broadway, Leaving Run in Question**\
+`The rapper was rushed to the hospital midway through a performance of “Moulin Rouge! The Musical” on Tuesday. She is expected to miss shows on Wednesday.`\
+https://nytimes.com/2026/04/01/theater/megan-thee-stallion-hospital-moulin-rouge-broadway.html
+
 **Megan Thee Stallion Falls Ill on Broadway, Leaving Run in Question**\
 `The rapper was rushed to the hospital midway through a performance of “Moulin Rouge! The Musical” on Tuesday. She is expected to miss shows on Wednesday.`\
 https://nytimes.com/2026/04/01/theater/megan-thee-stallion-broadway-hospital.html
