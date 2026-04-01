@@ -1,3 +1,7 @@
+**Stocks in Asia Rally and Oil Prices Rise**\
+`President Trump said the U.S. military would wrap up its campaign in Iran in two or three weeks.`\
+https://nytimes.com/2026/04/01/business/stocks-oil-gasoline-prices-iran.html
+
 **The New York Times in Print for Wednesday, April 1, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/04/01/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7152338/2026/04/01/ryan-kavuma-mcqueen-chelsea-rona
 **Tuchel's World Cup formula? England - Kane = Disaster**\
 `Praying his captain and talismanic striker is fully fit seems the head coach's best chance of success this summer`\
 https://nytimes.com/athletic/7160839/2026/04/01/england-harry-kane-world-cup/
-
-**From fiasco to fairytale - Arsenal's Viktor Gyokeres is Sweden's World Cup saviour**\
-`After a dismal run in the qualifiers, Viktor Gyokores and Sweden finally clicked in the playoffs to reach the finals this summer `\
-https://nytimes.com/athletic/7162454/2026/04/01/viktor-gyokeres-sweden-world-cupm-playoff/
 
