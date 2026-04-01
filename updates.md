@@ -1,3 +1,19 @@
+**French Prosecutors Link Foiled Attack on American Bank to a Pro-Iranian Group**\
+`The group is suspected of involvement in a string of attacks on Jewish targets in Belgium, Britain and the Netherlands.`\
+https://nytimes.com/2026/04/01/world/bank-of-america-attack-pro-iranian-group.html
+
+**An offseason malaise around Nebraska football? Only wins — not talk — will lift it**\
+`Nebraska football kept a low profile in the spring. Fans who have seen offseason hype fizzle just want to see wins, anyway.`\
+https://nytimes.com/athletic/7163808/2026/04/01/nebraska-football-2026-spring-fans-matt-rhule/
+
+**Trump Administration Live Updates: President Justifies Building Ballroom as Security Matter**\
+``\
+https://nytimes.com/live/2026/04/01/us/trump-news
+
+**Markets Bet Big on a Quick End to the Iran War**\
+`Global markets rallied as President Trump signaled that the United States may stop fighting soon. But big questions remain about lingering damage.`\
+https://nytimes.com/2026/04/01/business/dealbook/markets-war-iran-trump.html
+
 **Why the Bears view Coby Bryant as a tone-setter for a defense in flux**\
 `Bears coaches will be “hyper-alert” for any signs of complacency or entitlement when the offseason program begins.`\
 https://nytimes.com/athletic/7161500/2026/04/01/bears-ryan-poles-ben-johnson-coby-bryant/
