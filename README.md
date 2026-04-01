@@ -1,40 +1,40 @@
-**Birthright Citizenship’s Demise Would Affect Asians Disproportionately**\
-`A new study found that most babies born without citizenship would be Hispanic, but the biggest relative increase would be among babies born to Asian parents on visas.`\
-https://nytimes.com/2026/04/01/us/politics/birthright-citizenship-asian-immigrants.html
+**Under Trump’s Approach to Birthright Citizenship, ‘Foundlings’ Given Up for Adoption Could Be Stateless**\
+`Abandoned infants would have to produce evidence that at least one of their biological parents was a U.S. citizen or lawful permanent resident.`\
+https://nytimes.com/2026/04/01/us/politics/birthright-citizenship-foundlings.html
 
-**Forget the 14th Amendment. A 1952 law also takes on birthright citizenship.**\
-`By Adam Liptak`\
-https://nytimes.com/live/2026/04/01/us/supreme-court-birthright-citizenship/forget-the-14th-amendment-a-1952-law-also-takes-on-birthright-citizenship
+**How to watch 76ers vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the Philadelphia 76ers play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7164386/2026/04/01/76ers-vs-wizards-stream-how-to-watch-april-1/
 
-**Democrats Start to Hammer Vulnerable Republicans Over the War in Iran**\
-`“Look at that gas pump,” a new ad from a liberal group says. It is targeting Representative Derrick Van Orden of Wisconsin over his support for the war effort.`\
-https://nytimes.com/2026/04/01/us/politics/iran-war-democrats-political-ads.html
+**How to watch Hawks vs. Magic: Time, TV, streaming**\
+`Find out how to watch the Atlanta Hawks play the Orlando Magic, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7164384/2026/04/01/hawks-vs-magic-stream-how-to-watch-april-1/
 
-**‘Romeo and Juliet’: Sadie Sink, Noah Jupe and the Wonder of Young Love**\
-`The sincerity of the play’s two stars shines through in Robert Icke’s new London production.`\
-https://nytimes.com/2026/04/01/theater/romeo-and-juliet-sadie-sink-joah-jupe-robert-icke.html
+**Leeds United set for Dublin pre-season friendly against Man Utd**\
+`The proposed game is set to take place at the 82,000-capacity Croke Park in the Irish capital.`\
+https://nytimes.com/athletic/7163854/2026/04/01/leeds-united-croke-park-dublin-man-utd/
 
-**Chelsea announce largest pre-tax loss in English football history**\
-`The club are yet to release their full accounts for 2024-25 but announced a £262.4million deficit for that period on Wednesday.`\
-https://nytimes.com/athletic/7164314/2026/04/01/chelsea-accounts-loss-latest/
+**Chicken With Artichokes and Lemon, Fragrant and Festive**\
+`Frozen artichoke bottoms will work just fine in Joan Nathan’s one-skillet take on a Moroccan classic.`\
+https://nytimes.com/2026/04/01/dining/chicken-with-artichokes-and-lemon-fragrant-and-festive.html
 
-**Can Trump declare that his birthright rules apply only in the future?**\
-`By Adam Liptak`\
-https://nytimes.com/live/2026/04/01/us/supreme-court-birthright-citizenship/can-trump-declare-that-his-birthright-rules-apply-only-in-the-future
+**How to Watch NASA’s Artemis II Moon Launch Online**\
+`NASA will broadcast the launch of the Artemis II mission as well as holding live conversations with the crew during their time in space.`\
+https://nytimes.com/2026/04/01/science/nasa-artemis-ii-moon-launch-how-to-watch.html
 
-**Birthright Citizenship Plan Faces Costly Verification Hurdles**\
-`Experts warn that enforcing President Trump’s order to limit birthright citizenship would require building an expensive and fragmented verification system.`\
-https://nytimes.com/2026/04/01/us/politics/trump-birthright-citizenship-verification-cost-records-system.html
+**Man Utd to play pre-season friendlies in Finland, Sweden, Norway, Ireland and Poland**\
+`Included in the fixtures is a game against Leeds United at Dublin's Croke Park, the first time it has hosted two Premier League clubs..`\
+https://nytimes.com/athletic/7164222/2026/04/01/manchester-united-pre-season-friendlies/
 
-**When Racism Is a Crime: Brazil Puts a Tourist on Trial for Word and Gesture**\
-`An Argentine woman, who is white, could face years in prison after being accused of racism. The case has set off intense debate in Argentina and Brazil.`\
-https://nytimes.com/2026/04/01/world/brazil-argentina-tourist-racism-trial.html
+**Trump’s War Is Perpetually ‘Ahead of Schedule’**\
+`In Iran, the schedule is our most malleable illusion.`\
+https://nytimes.com/2026/04/01/opinion/trump-hegseth-rubio-iran-war.html
 
-**Why Reopening the Strait of Hormuz Matters for the U.S. Economy**\
-`The interconnectedness of global energy markets means that the effects of Iran’s blockade of the waterway are not limited to countries directly dependent on oil from the Middle East.`\
-https://nytimes.com/2026/04/01/world/middleeast/strait-of-hormuz-economy-oil.html
+**Coming to New York City Ballet: Retirements, a Rarity and ‘Romeo’**\
+`Two principal dancers will say farewell in the 2026-27 season, which features the revival of Balanchine’s “Pithoprakta” and Alexei Ratmansky’s “Romeo and Juliet.”`\
+https://nytimes.com/2026/04/01/arts/dance/new-york-city-ballet-season.html
 
-**Placing U.S. Troops in Middle East Hotels May Violate Laws of War**\
-`U.S. commanders have kept many troops away from bases in the region to protect them from Iran’s ballistic missile attacks.`\
-https://nytimes.com/2026/04/01/us/politics/troops-iran-hotels.html
+**Why Everyone Wants to Be ‘High Agency’ Now**\
+`The term “high agency” is an ethos for a gambler’s time.`\
+https://nytimes.com/2026/04/01/opinion/high-agency-silicon-valley.html
 
