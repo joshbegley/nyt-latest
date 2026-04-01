@@ -1,3 +1,11 @@
+**How to watch White Sox vs. Marlins: Time, TV, streaming for April 1**\
+`Find out how to watch the Chicago White Sox play the Miami Marlins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7163592/2026/04/01/white-sox-vs-marlins-stream-how-to-watch-april-1/
+
+**How to watch Rockies vs. Blue Jays: Time, TV, streaming for April 1**\
+`Find out how to watch the Colorado Rockies play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7163590/2026/04/01/rockies-vs-blue-jays-stream-how-to-watch-april-1/
+
 **One of Apple’s First Employees Looks Back at 50 Years**\
 `In 1976, 14-year-old Chris Espinosa rode a moped to his job demonstrating computers made in Steve Jobs’s childhood home. The company has changed a bit since then.`\
 https://nytimes.com/2026/04/01/technology/apple-employee-50-years.html

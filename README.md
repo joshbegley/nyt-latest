@@ -1,3 +1,27 @@
+**How to watch Nationals vs. Phillies: Time, TV, streaming for April 1**\
+`Find out how to watch the Washington Nationals play the Philadelphia Phillies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7163603/2026/04/01/nationals-vs-phillies-stream-how-to-watch-april-1/
+
+**How to watch Athletics vs. Braves: Time, TV, streaming for April 1**\
+`Find out how to watch the Athletics play the Atlanta Braves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7163601/2026/04/01/athletics-vs-braves-stream-how-to-watch-april-1/
+
+**29 Killed in Russian Military Plane Crash in Crimea**\
+`Investigators cited a possible technical malfunction.`\
+https://nytimes.com/2026/04/01/world/europe/russia-military-plane-crash-crimea.html
+
+**How to watch Pirates vs. Reds: Time, TV, streaming for April 1**\
+`Find out how to watch the Pittsburgh Pirates play the Cincinnati Reds, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7163596/2026/04/01/pirates-vs-reds-stream-how-to-watch-april-1/
+
+**Lamar Odom's Netflix doc detailed near-death experience. He revisited with us**\
+`Odom's story has long been public. In a new documentary, he discusses what some may not have known.`\
+https://nytimes.com/athletic/7159221/2026/04/01/lamar-odom-untold-netflix-documentary/
+
+**How to watch Rangers vs. Orioles: Time, TV, streaming for April 1**\
+`Find out how to watch the Texas Rangers play the Baltimore Orioles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7163594/2026/04/01/rangers-vs-orioles-stream-how-to-watch-april-1/
+
 **How to watch White Sox vs. Marlins: Time, TV, streaming for April 1**\
 `Find out how to watch the Chicago White Sox play the Miami Marlins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7163592/2026/04/01/white-sox-vs-marlins-stream-how-to-watch-april-1/
@@ -13,28 +37,4 @@ https://nytimes.com/2026/04/01/technology/apple-employee-50-years.html
 **The Birthright Con**\
 `Trump wants to find out just how weak this Supreme Court is.`\
 https://nytimes.com/2026/04/01/opinion/birthright-citizenship-supreme-court-14th-amendment.html
-
-**16 Off Broadway Plays and More to Ignite Your April**\
-`Jennifer Tilly and Daphne Rubin-Vega in “The Adding Machine,” plus Jane Fonda in an eco-musical and Cecily Strong and Corey Stoll as a couple on their first date.`\
-https://nytimes.com/2026/04/01/theater/off-broadway-shows-jane-fonda-jennifer-tilly.html
-
-**U.S. Plans Military Expansion in Greenland**\
-`The Pentagon is in talks with Denmark for access to three more areas on the Arctic island. Several Greenlanders said they didn’t like the idea.`\
-https://nytimes.com/2026/04/01/world/europe/us-military-seeks-expansion-in-greenland.html
-
-**‘Star Spangled to Death’: Ken Jacobs’s History of the United States**\
-`At the Museum of Modern Art through April 7, audiences can enter and exit a screening of the 6½-hour film, which Jacobs began in the 1950s.`\
-https://nytimes.com/2026/04/01/movies/star-spangled-to-death-museum-of-modern-art.html
-
-**A Memphis Congressman, His Ex-Intern and the Democrats’ Generational Fights**\
-`The contest between Representative Steve Cohen, 76, a white incumbent, and Justin Pearson, 31, a Black state lawmaker, exemplifies a national push for a passing of the torch.`\
-https://nytimes.com/2026/04/01/us/politics/democrats-age-memphis-house-primary.html
-
-**They Want to Stage World Cup Events. Can They Get Permits?**\
-`Business improvement districts in the city are eager to capitalize on the huge sports event, which starts in June. But they’re worried about red tape.`\
-https://nytimes.com/2026/04/01/nyregion/world-cup-business-improvement-districts.html
-
-**Zendaya and Robert Pattinson on Marriage and Secrets**\
-`The stars of the new film, “The Drama,” debate the pros and cons of dredging up the past.`\
-https://nytimes.com/2026/04/01/podcasts/zendaya-robert-pattinson-the-drama.html
 
