@@ -1,3 +1,15 @@
+**Jose Altuve is staying patient and propelling a new-look Astros offense**\
+`Altuve is spearheading a lineup that just scored 45 runs and worked 32 walks across a seven-game homestand. `\
+https://nytimes.com/athletic/7165452/2026/04/01/houston-astros-jose-altuve-patience-offense/
+
+**Trump is expected to give a rosy assessment of the war, after conflicting messages on its end.**\
+`By Zolan Kanno-Youngs`\
+https://nytimes.com/live/2026/04/01/world/iran-war-trump-oil-news/trump-iran-war-speech
+
+**7.4-Magnitude Earthquake in Indonesia Raises Tsunami Alerts**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/04/01/world/asia/earthquake-indonesia-tsunami.html
+
 **Medical Examiner Rules That a Rohingya Refugee’s Death Was a Homicide**\
 `An autopsy showed that the man suffered dehydration and hypothermia after Border Patrol agents dropped him off on a cold night in Buffalo.`\
 https://nytimes.com/2026/04/01/nyregion/rohingya-refugee-buffalo-homicide-medical-examiner.html

@@ -1,10 +1,18 @@
+**Jose Altuve is staying patient and propelling a new-look Astros offense**\
+`Altuve is spearheading a lineup that just scored 45 runs and worked 32 walks across a seven-game homestand. `\
+https://nytimes.com/athletic/7165452/2026/04/01/houston-astros-jose-altuve-patience-offense/
+
+**Trump is expected to give a rosy assessment of the war, after conflicting messages on its end.**\
+`By Zolan Kanno-Youngs`\
+https://nytimes.com/live/2026/04/01/world/iran-war-trump-oil-news/trump-iran-war-speech
+
 **Medical Examiner Rules That a Rohingya Refugee’s Death Was a Homicide**\
 `An autopsy showed that the man suffered dehydration and hypothermia after Border Patrol agents dropped him off on a cold night in Buffalo.`\
 https://nytimes.com/2026/04/01/nyregion/rohingya-refugee-buffalo-homicide-medical-examiner.html
 
 **7.4-Magnitude Earthquake in Indonesia Raises Tsunami Alerts**\
 `View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2026/04/01/world/asia/earthquake-indonesia.html
+https://nytimes.com/interactive/2026/04/01/world/asia/earthquake-indonesia-tsunami.html
 
 **Trump Laid Out Five Goals for the Iran War. Here’s Where They Stand.**\
 `The United States and Israel have done significant damage to Iran’s military capabilities. But Iran still fires missiles, has nuclear material and coordinates with militias in the region.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7165382/2026/04/01/nationals-series-loss-walk-off-p
 **Shimmying American Woodcocks Cause a Birding Frenzy in N.Y.C.**\
 `People flocked to Bryant Park in Midtown Manhattan, where the quirky American woodcocks had made a pit stop on their migration north. The birds are known for their bopping and shimmying.`\
 https://nytimes.com/video/nyregion/100000010816436/american-woodcock-bryant-park-nyc.html
-
-**Chelsea 1-0 Arsenal: Bompastor sent off after McCabe's hair pull**\
-`McCabe was not disciplined for the incident at the end of an eventful second leg tie, which Chelsea won 1-0 on the night.`\
-https://nytimes.com/athletic/7165409/2026/04/01/bompastor-sent-off-mccabe-hair-pull-chelsea-arsenal/
-
-**Bill Self, Kansas' all-time winningest coach, returning for 24th season**\
-`Self will be looking to add to his Kansas legacy of two national championships and 17 regular-season Big 12 titles.`\
-https://nytimes.com/athletic/7160615/2026/04/01/bill-self-returning-kansas-mens-basketball-coach-ku/
 
