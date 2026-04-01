@@ -1,3 +1,7 @@
+**Embattled umpire C.B. Bucknor prompts laughter after latest blown call**\
+`It was evident that Bauers' right foot came down on the first-base bag. He was called out anyway by Bucknor. `\
+https://nytimes.com/athletic/7162909/2026/03/31/brewers-rays-cb-bucknor-replay-review-judgment/
+
 **Canada 0, Tunisia 0: Flores stands out, another CB hurt in World Cup tuneup**\
 `Canada's scoring woes resurfaced, but so did a new attacking wrinkle as the World Cup opener in Toronto gets ever closer`\
 https://nytimes.com/athletic/7162272/2026/03/31/canada-tunisia-friendly-score-result-world-cup-flores/
