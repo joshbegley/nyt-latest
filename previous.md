@@ -1,3 +1,11 @@
+**Pipe Bomb Defendant Says He May Adopt Debunked Account as Defense**\
+`Court papers show that Brian Cole Jr.’s lawyers might seek to blame a former Capitol Police officer whose name first surfaced in a right-wing media account and whom the F.B.I. briefly investigated.`\
+https://nytimes.com/2026/04/01/us/politics/pipe-bomb-jan-6.html
+
+**An Adorable Stowaway Is Aboard NASA’s Artemis II Mission to the Moon**\
+`Lucas Ye, age 8, designed the stuffed toy that will start floating when the Orion capsule reaches orbit.`\
+https://nytimes.com/2026/04/01/science/artemis-ii-zero-gravity-indicator-rise.html
+
 **Here’s where and when you can see the rocket in the sky.**\
 `By Ashley Ahn`\
 https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/heres-where-and-when-you-can-see-the-rocket-in-the-sky
@@ -29,8 +37,4 @@ https://nytimes.com/2026/04/01/style/tiny-modern-love-stories-if-i-arrived-home-
 **Senate and House Republicans Strike Deal to End Homeland Security Shutdown**\
 `Legislation to reopen the department, which the House G.O.P. angrily rejected on Friday, could be approved as early as Thursday morning. It represents a sharp turnaround by them and President Trump.`\
 https://nytimes.com/2026/04/01/us/politics/senate-house-homeland-security-shutdown.html
-
-**Iran’s President Suggests Diplomatic Engagement Possible in Letter to U.S. Public**\
-`The letter, by President Masoud Pezeshkian of Iran, was at times defiant, patronizing or conciliatory, and came hours before President Trump was set to address the American people on the war.`\
-https://nytimes.com/2026/04/01/world/middleeast/iran-president-pezeshkian-letter-diplomacy.html
 

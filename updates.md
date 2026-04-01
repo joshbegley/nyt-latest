@@ -1,3 +1,11 @@
+**Pipe Bomb Defendant Says He May Adopt Debunked Account as Defense**\
+`Court papers show that Brian Cole Jr.’s lawyers might seek to blame a former Capitol Police officer whose name first surfaced in a right-wing media account and whom the F.B.I. briefly investigated.`\
+https://nytimes.com/2026/04/01/us/politics/pipe-bomb-jan-6.html
+
+**An Adorable Stowaway Is Aboard NASA’s Artemis II Mission to the Moon**\
+`Lucas Ye, age 8, designed the stuffed toy that will start floating when the Orion capsule reaches orbit.`\
+https://nytimes.com/2026/04/01/science/artemis-ii-zero-gravity-indicator-rise.html
+
 **Here’s where and when you can see the rocket in the sky.**\
 `By Ashley Ahn`\
 https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/heres-where-and-when-you-can-see-the-rocket-in-the-sky
