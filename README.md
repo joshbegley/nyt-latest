@@ -1,3 +1,7 @@
+**Which Blue Jays must step up after Cody Ponce's ACL injury**\
+`Ponce will miss significant time, leaving a spot in the rotation for Toronto to fill. Here are pitchers who can fill that role.`\
+https://nytimes.com/athletic/7162313/2026/03/31/blue-jays-cody-ponce-acl-injury-fill-in/
+
 **Elena Delle Donne, Mark Few among inductees for 2026 Hall of Fame class: Sources**\
 `Delle Donne, one of the best shooters in WNBA history, and Few, college basketball's winningest coach by win percentage, will be inducted.`\
 https://nytimes.com/athletic/7161860/2026/03/31/elena-delle-donne-mark-few-hall-of-fame-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/31/us/politics/judge-johnson-amendment-settlement.ht
 **LeBrun: Keith Pelley's tell and what it means for the future of the Maple Leafs**\
 `The MLSE president and CEO hinted that the Leafs don't have the stomach for a rebuild, which will shape the list of front-office candidates.`\
 https://nytimes.com/athletic/7162202/2026/03/31/keith-pelley-maple-leafs-retool-rebuild/
-
-**Ahead of likely lockout, MLB players union amasses war chest of more than $500 million**\
-`The union’s financial disclosure was the first it has filed since the ouster of Tony Clark as executive director in February.`\
-https://nytimes.com/athletic/7162265/2026/03/31/mlbpa-assets-annual-filing-mlb-cba-negotiations/
 

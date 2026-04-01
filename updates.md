@@ -1,3 +1,19 @@
+**Elena Delle Donne, Mark Few among inductees for 2026 Hall of Fame class: Sources**\
+`Delle Donne, one of the best shooters in WNBA history, and Few, college basketball's winningest coach by win percentage, will be inducted.`\
+https://nytimes.com/athletic/7161860/2026/03/31/elena-delle-donne-mark-few-hall-of-fame-2026/
+
+**Ole Miss' Pete Golding on Dabo Swinney's tampering claim: 'Two sides to every story'**\
+`Golding says the flip of linebacker Luke Ferrelli from Clemson happened after Ole Miss linebacker TJ Dottery entered the portal.`\
+https://nytimes.com/athletic/7162367/2026/03/31/pete-golding-dabo-swinney-tampering/
+
+**Goodell on Steve Tisch's Epstein connection: 'We have not found anything that’s a violation'**\
+`The NFL commissioner added that Tisch and his siblings are "no longer owners" after transferring their stakes to their children.`\
+https://nytimes.com/athletic/7162428/2026/03/31/roger-goodell-nfl-personal-conduct-policy-steve-tisch-epstein-files/
+
+**Steph Curry, Warriors targeting Sunday return after successful workout: Sources**\
+`Curry hasn't played since he left the Warriors' game Jan. 30 with an injury to his right knee.`\
+https://nytimes.com/athletic/7162374/2026/03/31/warriors-steph-curry-return-knee-injury-sunday/
+
 **Tiger Woods says he'll 'seek treatment' in first public comments since DUI arrest**\
 `Woods said he will be seeking privacy during his recovery, meaning the golfer will not be at next week's Masters in any capacity.`\
 https://nytimes.com/athletic/7162240/2026/03/31/tiger-woods-treatment-dui-arrest/

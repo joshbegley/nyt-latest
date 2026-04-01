@@ -1,8 +1,20 @@
+**Elena Delle Donne, Mark Few among inductees for 2026 Hall of Fame class: Sources**\
+`Delle Donne, one of the best shooters in WNBA history, and Few, college basketball's winningest coach by win percentage, will be inducted.`\
+https://nytimes.com/athletic/7161860/2026/03/31/elena-delle-donne-mark-few-hall-of-fame-2026/
+
+**Ole Miss' Pete Golding on Dabo Swinney's tampering claim: 'Two sides to every story'**\
+`Golding says the flip of linebacker Luke Ferrelli from Clemson happened after Ole Miss linebacker TJ Dottery entered the portal.`\
+https://nytimes.com/athletic/7162367/2026/03/31/pete-golding-dabo-swinney-tampering/
+
+**Goodell on Steve Tisch's Epstein connection: 'We have not found anything that’s a violation'**\
+`The NFL commissioner added that Tisch and his siblings are "no longer owners" after transferring their stakes to their children.`\
+https://nytimes.com/athletic/7162428/2026/03/31/roger-goodell-nfl-personal-conduct-policy-steve-tisch-epstein-files/
+
 **The Briefing: DR Congo 1 Jamaica 0 — How did the Leopards make history? What do their fans bring? What happened to the ref?**\
 `An extra-time goal from Axel Tuanzebe ensured DR Congo became the 47th team to qualify for this summer's World Cup`\
 https://nytimes.com/athletic/7156216/2026/03/31/dr-congo-1-jamaica-0-world-cup-playoff-briefing/
 
-**Steph Curry, Warriors targeting Sunday return after successful workout Tuesday**\
+**Steph Curry, Warriors targeting Sunday return after successful workout: Sources**\
 `Curry hasn't played since he left the Warriors' game Jan. 30 with an injury to his right knee.`\
 https://nytimes.com/athletic/7162374/2026/03/31/warriors-steph-curry-return-knee-injury-sunday/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7162202/2026/03/31/keith-pelley-maple-leafs-retool-
 **Ahead of likely lockout, MLB players union amasses war chest of more than $500 million**\
 `The union’s financial disclosure was the first it has filed since the ouster of Tony Clark as executive director in February.`\
 https://nytimes.com/athletic/7162265/2026/03/31/mlbpa-assets-annual-filing-mlb-cba-negotiations/
-
-**Dan Hurley downplays ref contact, expected 'chest bump' after UConn buzzer-beater**\
-`ESPN's Seth Greenberg said Monday that he spoke with Roger Ayers about the incident and was told it was 'absolutely nothing.'`\
-https://nytimes.com/athletic/7162059/2026/03/31/dan-hurley-referee-roger-ayers-technical/
-
-**Mike McCarthy eyes mid-round QB, maps out plan to mold Will Howard into a starter**\
-`The Steelers coach said, "We want to have a hell of a class" and is "hopeful" a QB will be available "at the right time."`\
-https://nytimes.com/athletic/7161668/2026/03/31/pittsburgh-steelers-mike-mccarthy-quarterback/
-
-**Tiger Woods says he'll 'seek treatment' in first public comments since DUI arrest**\
-`Woods said he will be seeking privacy during his recovery, meaning the golfer will not be at next week's Masters in any capacity.`\
-https://nytimes.com/athletic/7162240/2026/03/31/tiger-woods-treatment-dui-arrest/
 
