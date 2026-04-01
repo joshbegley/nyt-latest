@@ -1,3 +1,19 @@
+**The night Bosnia and Herzegovina found new heroes**\
+`Years from now, even the walls will speak of that night at the Bilino Polje`\
+https://nytimes.com/athletic/7163891/2026/04/01/bosnia-herzegovina-world-cup-qualification-celebration-italy/
+
+**Cecillia Wang, the A.C.L.U. lawyer, is a birthright citizen.**\
+`She has spent much of her career defending immigrants’ rights in America.`\
+https://nytimes.com/live/2026/04/01/us/supreme-court-birthright-citizenship/cecillia-wang-the-aclu-lawyer-is-a-birthright-citizen
+
+**Here’s the latest.**\
+`By Abbie VanSickle`\
+https://nytimes.com/live/2026/04/01/us/supreme-court-birthright-citizenship/heres-the-latest
+
+**Live Updates: Supreme Court to Hear Case on Trump’s Effort to Limit Birthright Citizenship**\
+`President Trump's executive order, which was blocked by lower courts, would stop children of undocumented immigrants or temporary residents from automatically being Americans.`\
+https://nytimes.com/live/2026/04/01/us/supreme-court-birthright-citizenship
+
 **Home of Beloved New York Art Collector Hits the Market**\
 `The Manhattan townhouse where Barbara Jakobson hosted art world luminaries for decades is for sale for $9.8 million.`\
 https://nytimes.com/2026/04/01/realestate/barbara-jakobson-home-for-sale.html
