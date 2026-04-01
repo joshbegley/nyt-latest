@@ -1,3 +1,11 @@
+**Trump Officials Try to Fight Foreign Disinformation They Once Dismissed**\
+`The war in Iran has exposed the need to mount a defense against foreign influence campaigns, officials and experts say.`\
+https://nytimes.com/2026/04/01/business/trump-foreign-disinformation-iran.html
+
+**Key Justices Appear Skeptical of Limiting Birthright Citizenship**\
+`Also, NASA prepares to launch the first crewed moon mission in 50 years. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2026/04/01/briefing/supreme-court-citizenship-moon-launch.html
+
 **A flight to the moon like no other.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/a-flight-to-the-moon-like-no-other
@@ -21,8 +29,4 @@ https://nytimes.com/2026/04/01/us/politics/bondi-epstein-files-doj-trump.html
 **Iran Is Skeptical About Diplomacy for Now, U.S. Intelligence Says**\
 `Any decision by Iran to keep fighting would complicate President Trump’s stated goal of trying to end the war within weeks.`\
 https://nytimes.com/2026/04/01/us/politics/trump-iran-war.html
-
-**Immigrant Families Watch Supreme Court Case With Cautious Hope**\
-`As the high court heard arguments on whether to limit birthright citizenship, many people pondered what the decision could mean for future generations.`\
-https://nytimes.com/2026/04/01/us/politics/immigrant-reactions-supreme-court-birthright-citizenship.html
 

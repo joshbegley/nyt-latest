@@ -1,3 +1,7 @@
+**A flight to the moon like no other.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/a-flight-to-the-moon-like-no-other
+
 **Artistic Clothes Inspired by the Slopes and Seas**\
 `Patrick Taylor’s new fashion line draws from his sporty childhood.`\
 https://nytimes.com/2026/04/01/t-magazine/patrick-taylor-fashion.html
