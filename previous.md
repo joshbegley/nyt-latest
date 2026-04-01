@@ -1,3 +1,7 @@
+**Plotting England's possible path to World Cup glory**\
+`Mexico in the last 16? Brazil in the quarter-finals? Argentina in the semis? Jack Pitt-Brooke attempts to map out England's road to glory`\
+https://nytimes.com/athletic/7156170/2026/04/01/england-world-cup-path/
+
 **Months before the World Cup, Scotland have revived an old formation. Is it really an option?**\
 `Having long abandoned a back-three system, Scotland boss Clarke went back to it against the Ivory Coast. But is it too late to use it again?`\
 https://nytimes.com/athletic/7161263/2026/04/01/scotland-world-cup-ivory-coast-formation/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/01/arts/television/stephen-colbert-trump-popularity.
 **How Spurs convinced Roberto De Zerbi to become their head coach**\
 `Spurs wanted to make De Zerbi their manager when they sacked Thomas Frank in February, but have only now been able to seal the deal`\
 https://nytimes.com/athletic/7152972/2026/04/01/tottenham-hotspur-roberto-de-zerbi-deal/
-
-**Word of the Day: gratuitous**\
-`This word has appeared in 61 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/04/01/learning/word-of-the-day-gratuitous.html
 
