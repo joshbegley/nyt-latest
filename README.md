@@ -1,3 +1,7 @@
+**Pochettino gives blunt assessment of whether USA has any world top 100 players**\
+`The USMNT coach oddly undercut his players when discussing defeat to a second straight European power`\
+https://nytimes.com/athletic/7162949/2026/04/01/mauricio-pochettino-usmnt-top-100-players-world-cup-portugal/
+
 **Haseeb Hameed on life outside the Bazball bubble: 'The ambition to play for England will always be there'**\
 `The Notts captain is England's forgotten man, but sheer weight of runs over the last two seasons demands he is contention for a Test return`\
 https://nytimes.com/athletic/7157525/2026/04/01/hameed-england-notts-moores-bazball-interview/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7152872/2026/04/01/liverpool-fsg-michael-edwards-ri
 **How Michael Carrick has changed Man United's football: More passes, fewer crosses, but outswinging corners are back**\
 `Explaining how Michael Carrick has changed they way Manchester United play in ten games`\
 https://nytimes.com/athletic/7157998/2026/04/01/michael-carrick-manchester-united-tactics-passes/
-
-**Liverpool's top scorer on calls to her psychologist and a whirlwind WSL season**\
-`The Sweden international's early impact was disrupted by injury. She talks to Megan Feringa about that setback and her career so far`\
-https://nytimes.com/athletic/7143386/2026/04/01/beata-olsson-interview-liverpool/
 
