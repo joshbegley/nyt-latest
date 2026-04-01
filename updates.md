@@ -1,3 +1,7 @@
+**Born American**\
+`We look at an important case before the Supreme Court.`\
+https://nytimes.com/2026/04/01/briefing/birthright-citizenship.html
+
 **Robot Taxis Stop in Traffic in Chinese City, Stranding Travelers**\
 `The authorities in Wuhan, the site of one of the world’s largest experiments in self-driving cars, cited a “system failure” after widespread reports on Tuesday evening.`\
 https://nytimes.com/2026/04/01/business/baidu-robotaxi-wuhan-china.html

@@ -1,3 +1,7 @@
+**Born American**\
+`We look at an important case before the Supreme Court.`\
+https://nytimes.com/2026/04/01/briefing/birthright-citizenship.html
+
 **The Rush to Save Premature Infants in Gaza**\
 `Text by Samar Abu Elouf`\
 https://nytimes.com/card/2026/04/01/world/middleeast/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7162506/2026/04/01/nfl-mock-draft-cowboys-david-bai
 **Eight tough questions the Leafs should ask their next GM candidates**\
 `As the Maple Leafs search for their next GM, here are the eight questions I wouldn’t let a candidate leave an interview without answering.`\
 https://nytimes.com/athletic/7161385/2026/04/01/maple-leafs-gm-candidates-questions/
-
-**'Why not us?' Mauricio Pochettino asked the USMNT. Belgium and Portugal answered.**\
-`Despite a camp-opening message daring the U.S. to dream big this summer, two European powers delivered harsh lessons just days apart`\
-https://nytimes.com/athletic/7163165/2026/04/01/usmnt-world-cup-mauricio-pochettino-belgium-portugal-european-opponent/
 
