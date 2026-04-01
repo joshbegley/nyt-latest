@@ -1,3 +1,7 @@
+**Birthright Citizenship’s Demise Would Affect Asians Disproportionately**\
+`A new study found that most babies born without citizenship would be Hispanic, but the biggest relative increase would be among babies born to Asian parents on visas.`\
+https://nytimes.com/2026/04/01/us/politics/birthright-citizenship-asian-immigrants.html
+
 **Forget the 14th Amendment. A 1952 law also takes on birthright citizenship.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2026/04/01/us/supreme-court-birthright-citizenship/forget-the-14th-amendment-a-1952-law-also-takes-on-birthright-citizenship
@@ -22,7 +26,7 @@ https://nytimes.com/live/2026/04/01/us/supreme-court-birthright-citizenship/can-
 `Experts warn that enforcing President Trump’s order to limit birthright citizenship would require building an expensive and fragmented verification system.`\
 https://nytimes.com/2026/04/01/us/politics/trump-birthright-citizenship-verification-cost-records-system.html
 
-**When Racism is a Crime: Brazil Puts a Tourist on Trial for Word and Gesture**\
+**When Racism Is a Crime: Brazil Puts a Tourist on Trial for Word and Gesture**\
 `An Argentine woman, who is white, could face years in prison after being accused of racism. The case has set off intense debate in Argentina and Brazil.`\
 https://nytimes.com/2026/04/01/world/brazil-argentina-tourist-racism-trial.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/01/world/middleeast/strait-of-hormuz-economy-oil.htm
 **Placing U.S. Troops in Middle East Hotels May Violate Laws of War**\
 `U.S. commanders have kept many troops away from bases in the region to protect them from Iran’s ballistic missile attacks.`\
 https://nytimes.com/2026/04/01/us/politics/troops-iran-hotels.html
-
-**The early exception to birthright citizenship for Native Americans and why it matters.**\
-`By Ann E. Marimow`\
-https://nytimes.com/live/2026/04/01/us/supreme-court-birthright-citizenship/the-early-exception-to-birthright-citizenship-for-native-americans-and-why-it-matters
 

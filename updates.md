@@ -1,3 +1,15 @@
+**Forget the 14th Amendment. A 1952 law also takes on birthright citizenship.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2026/04/01/us/supreme-court-birthright-citizenship/forget-the-14th-amendment-a-1952-law-also-takes-on-birthright-citizenship
+
+**Democrats Start to Hammer Vulnerable Republicans Over the War in Iran**\
+`“Look at that gas pump,” a new ad from a liberal group says. It is targeting Representative Derrick Van Orden of Wisconsin over his support for the war effort.`\
+https://nytimes.com/2026/04/01/us/politics/iran-war-democrats-political-ads.html
+
+**‘Romeo and Juliet’: Sadie Sink, Noah Jupe and the Wonder of Young Love**\
+`The sincerity of the play’s two stars shines through in Robert Icke’s new London production.`\
+https://nytimes.com/2026/04/01/theater/romeo-and-juliet-sadie-sink-joah-jupe-robert-icke.html
+
 **Chelsea announce largest pre-tax loss in English football history**\
 `The club are yet to release their full accounts for 2024-25 but announced a £262.4million deficit for that period on Wednesday.`\
 https://nytimes.com/athletic/7164314/2026/04/01/chelsea-accounts-loss-latest/
