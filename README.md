@@ -1,3 +1,7 @@
+**Chelsea's £65m tops list of Premier League fees paid to agents, Wrexham spend up 367 per cent**\
+`How much every Premier League spent on agent fees and who were the biggest spenders in the EFL and Women's Super League`\
+https://nytimes.com/athletic/7164505/2026/04/01/chelsea-agent-fees-wrexham/
+
 **SpaceX Files to Go Public, Setting Stage for Huge I.P.O.**\
 `An initial public offering of Elon Musk’s rocket and satellite company would most likely be a generational wealth event and one of the largest offerings ever.`\
 https://nytimes.com/2026/04/01/technology/spacex-ipo-elon-musk.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/01/science/space/reid-wiseman-artemis-ii-commander.h
 **Fosse! Robbins! Making the Case for Vintage Broadway Dance**\
 `Hubbard Street Dance Chicago and the Off Broadway revue “Gotta Dance!” shine a light on repertory that is too often overlooked.`\
 https://nytimes.com/2026/04/01/arts/dance/hubbard-street-dance-chicago-gotta-dance-broadway-fosse.html
-
-**UConn stars lead women’s MOP odds, but last year’s winner isn’t the favorite**\
-`UConn's Azzi Fudd won Most Outstanding Player last year, but teammate Sarah Strong is favored to win it this year.`\
-https://nytimes.com/athletic/7164464/2026/04/01/womens-most-outstanding-player-odds-strong-fudd-booker-betts/
 
