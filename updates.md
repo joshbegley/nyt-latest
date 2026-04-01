@@ -1,3 +1,7 @@
+**Quote of the Day: Trump Facing Hard Decision As War Rages**\
+`Quotation of the Day for Wednesday, April 1, 2026.`\
+https://nytimes.com/2026/03/31/pageoneplus/quote-of-the-day-trump-facing-hard-decision-as-war-rages.html
+
 **Embattled umpire C.B. Bucknor prompts laughter after latest blown call**\
 `It was evident that Bauers' right foot came down on the first-base bag. He was called out anyway by Bucknor. `\
 https://nytimes.com/athletic/7162909/2026/03/31/brewers-rays-cb-bucknor-replay-review-judgment/
