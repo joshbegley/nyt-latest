@@ -1,3 +1,7 @@
+**Israelis Prepare to Celebrate Passover in Shadow of War**\
+`The atmosphere during preparations for the Jewish festival has been unusually subdued, with people afraid to stray far from their homes and shelters.`\
+https://nytimes.com/2026/04/01/world/middleeast/israel-iran-passover.html
+
 **Can regional sports networks survive, or even thrive? Depends on who you ask**\
 `Charlie Jacobs, the CEO of hockey’s Boston Bruins, is convinced that his three children, all in their twenties, will likely never sign up for a traditional cable package to watch television.`\
 https://nytimes.com/athletic/7163526/2026/04/01/can-regional-sports-network-survive-or-even-thrive-depends-on-who-you-ask/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/01/nyregion/jupiter-joe-bronx-murder.html
 **The Three Big Questions Delaying New York’s Budget**\
 `Legislators are weighing tax increases on the wealthy and changes to laws meant to protect immigrants and the environment as the state budget deadline passes.`\
 https://nytimes.com/2026/04/01/nyregion/budget-delayed-hochul.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/04/01/crosswords/spelling-bee-forum.html
 
