@@ -1,3 +1,7 @@
+**The Rush to Save Premature Infants in Gaza**\
+`Text by Samar Abu Elouf`\
+https://nytimes.com/card/2026/04/01/world/middleeast/
+
 **Down to Business: The real value of being the highest-paid player in women's soccer**\
 `Down to Business with Asli Pelit takes you through the exciting, fast-paced (and sometimes confusing) corporate side of women's soccer.`\
 https://nytimes.com/athletic/7162464/2026/04/01/highest-paid-womens-soccer-player-down-to-business/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7128336/2026/04/01/maple-leafs-keith-pelley-brad-tr
 **Frank Ragnow repaying bonus not good optics for Lions — and a familiar position**\
 `"If I worried about optics, you wouldn't do a lot of things," outgoing Lions team president Rod Wood said Tuesday.`\
 https://nytimes.com/athletic/7162514/2026/04/01/detroit-lions-frank-ragnow-bonus-repay-reaction/
-
-**What are the Vikings' draft priorities with interim GM Rob Brzezinski running the show?**\
-`With Brzezinski calling the shots, the Vikings will exercise patience in the NFL Draft. But could their new center already be on the roster?`\
-https://nytimes.com/athletic/7161645/2026/04/01/vikings-rob-brzezinski-nfl-draft-blake-brandel/
 

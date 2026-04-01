@@ -1,3 +1,15 @@
+**Down to Business: The real value of being the highest-paid player in women's soccer**\
+`Down to Business with Asli Pelit takes you through the exciting, fast-paced (and sometimes confusing) corporate side of women's soccer.`\
+https://nytimes.com/athletic/7162464/2026/04/01/highest-paid-womens-soccer-player-down-to-business/
+
+**Shohei Ohtani is back on the mound for the Dodgers, and might be even better**\
+`Ohtani was dominant over six innings and 87 pitches in a rain-filled win Tuesday night over the Guardians.`\
+https://nytimes.com/athletic/7163375/2026/04/01/shohei-ohtani-dodgers-pitching-win-guardians/
+
+**Will Chiefs run more under center with Kenneth Walker III? What Andy Reid said**\
+`Here's how the Chiefs coach sees Walker, their free-agent signing, helping K.C.'s offense in 2026.`\
+https://nytimes.com/athletic/7161522/2026/04/01/chiefs-kenneth-walker-iii-run-game/
+
 **The Pulse: A big Cowboys move? In 2026?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7162506/2026/04/01/nfl-mock-draft-cowboys-david-bailey-the-pulse/

@@ -1,3 +1,15 @@
+**Down to Business: The real value of being the highest-paid player in women's soccer**\
+`Down to Business with Asli Pelit takes you through the exciting, fast-paced (and sometimes confusing) corporate side of women's soccer.`\
+https://nytimes.com/athletic/7162464/2026/04/01/highest-paid-womens-soccer-player-down-to-business/
+
+**Shohei Ohtani is back on the mound for the Dodgers, and might be even better**\
+`Ohtani was dominant over six innings and 87 pitches in a rain-filled win Tuesday night over the Guardians.`\
+https://nytimes.com/athletic/7163375/2026/04/01/shohei-ohtani-dodgers-pitching-win-guardians/
+
+**Will Chiefs run more under center with Kenneth Walker III? What Andy Reid said**\
+`Here's how the Chiefs coach sees Walker, their free-agent signing, helping K.C.'s offense in 2026.`\
+https://nytimes.com/athletic/7161522/2026/04/01/chiefs-kenneth-walker-iii-run-game/
+
 **The Pulse: A big Cowboys move? In 2026?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7162506/2026/04/01/nfl-mock-draft-cowboys-david-bailey-the-pulse/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7162514/2026/04/01/detroit-lions-frank-ragnow-bonus
 **What are the Vikings' draft priorities with interim GM Rob Brzezinski running the show?**\
 `With Brzezinski calling the shots, the Vikings will exercise patience in the NFL Draft. But could their new center already be on the roster?`\
 https://nytimes.com/athletic/7161645/2026/04/01/vikings-rob-brzezinski-nfl-draft-blake-brandel/
-
-**Where the Rangers' slipping draft odds stand and which prospects could be in focus**\
-`With a win against the Devils pushing the Rangers down the draft order, it's worth wondering about strategy even as players celebrate.`\
-https://nytimes.com/athletic/7162649/2026/04/01/new-york-rangers-nhl-draft-pick-devils/
-
-**What does Panthers GM Dan Morgan look for in his defenders? Arm length, for starters**\
-`The Panthers added long-armed defenders Jaelan Phillips and Devin Lloyd in free agency and it's one of several key traits they value.`\
-https://nytimes.com/athletic/7161321/2026/04/01/panthers-defense-jaelan-phillips-devin-lloyd-arm-length/
-
-**Sabres inch closer to clinching playoff spot, lose Carrick to injury: 3 thoughts**\
-`Carrick left the game with an injury to his left shoulder or arm after fighting the Islanders' Anders Lee.`\
-https://nytimes.com/athletic/7162974/2026/04/01/sabres-carrick-injury-playoffs-spot-metsa-greenway-islanders/
 
