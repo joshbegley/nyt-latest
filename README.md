@@ -1,3 +1,15 @@
+**WhatsApp Whistle-Blower Suit Is Dismissed**\
+`The former head of security for the messaging app, owned by Meta, had accused the social media company of putting billions of users at risk. A judge said there was not enough evidence that he was fired for his claims.`\
+https://nytimes.com/2026/04/01/technology/whatsapp-whistle-blower-suit-is-dismissed.html
+
+**In This ‘Hamlet’ and ‘Titus Andronicus,’ Life, Death and Even Joy**\
+`Two Shakespeare adaptations — Teatro La Plaza’s uplifting remix and Red Bull Theater’s gore fest — place very different values on human existence.`\
+https://nytimes.com/2026/04/01/theater/hamlet-titus-andronicus-review.html
+
+**Heavy bombings across Tehran jolt its war-weary residents.**\
+`Some people in the capital said the blasts on Wednesday morning were among the most powerful they had felt in more than a month of war.`\
+https://nytimes.com/live/2026/04/01/world/iran-war-trump-oil-news/heavy-bombings-tehran
+
 **Jaden Ivey was on track to be a future star. How he fell so far, so quickly**\
 `After a promising start to his career, Ivey was hampered by multiple injuries.`\
 https://nytimes.com/athletic/7162491/2026/04/01/jaden-ivey-career-timeline-pistons-bulls/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7164384/2026/04/01/hawks-vs-magic-stream-how-to-wat
 **Leeds United set for Dublin pre-season friendly against Man Utd**\
 `The proposed game is set to take place at the 82,000-capacity Croke Park in the Irish capital.`\
 https://nytimes.com/athletic/7163854/2026/04/01/leeds-united-croke-park-dublin-man-utd/
-
-**Chicken With Artichokes and Lemon, Fragrant and Festive**\
-`Frozen artichoke bottoms will work just fine in Joan Nathan’s one-skillet take on a Moroccan classic.`\
-https://nytimes.com/2026/04/01/dining/chicken-with-artichokes-and-lemon-fragrant-and-festive.html
-
-**How to Watch NASA’s Artemis II Moon Launch Online**\
-`NASA will broadcast the launch of the Artemis II mission as well as holding live conversations with the crew during their time in space.`\
-https://nytimes.com/2026/04/01/science/nasa-artemis-ii-moon-launch-how-to-watch.html
-
-**Man Utd to play pre-season friendlies in Finland, Sweden, Norway, Ireland and Poland**\
-`Included in the fixtures is a game against Leeds United at Dublin's Croke Park, the first time it has hosted two Premier League clubs..`\
-https://nytimes.com/athletic/7164222/2026/04/01/manchester-united-pre-season-friendlies/
 
