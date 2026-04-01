@@ -1,3 +1,7 @@
+**A flight to the moon like no other.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/a-flight-to-the-moon-like-no-other
+
 **Artistic Clothes Inspired by the Slopes and Seas**\
 `Patrick Taylor’s new fashion line draws from his sporty childhood.`\
 https://nytimes.com/2026/04/01/t-magazine/patrick-taylor-fashion.html
@@ -21,8 +25,4 @@ https://nytimes.com/2026/04/01/us/politics/trump-iran-war.html
 **Immigrant Families Watch Supreme Court Case With Cautious Hope**\
 `As the high court heard arguments on whether to limit birthright citizenship, many people pondered what the decision could mean for future generations.`\
 https://nytimes.com/2026/04/01/us/politics/immigrant-reactions-supreme-court-birthright-citizenship.html
-
-**Robo-ump delivers first walk-off challenge as Orioles appeal final strike**\
-`The automated ball-strike challenge system revealed that a fastball from Albert Suárez was in the strike zone. `\
-https://nytimes.com/athletic/7165194/2026/04/01/mlb-abs-challenge-walkoff-orioles-rangers/
 
