@@ -1,5 +1,9 @@
-**She’s Trump-backed but Praised D.E.I. Will It Hurt Her in a Republican Primary?**\
-`Democratic politicians aren’t the only ones whose Covid-era remarks are haunting them politically.`\
+**Artistic Clothes Inspired by the Slopes and Seas**\
+`Patrick Taylor’s new fashion line draws from his sporty childhood.`\
+https://nytimes.com/2026/04/01/t-magazine/patrick-taylor-fashion.html
+
+**She’s Trump-Backed but Praised D.E.I. Will It Hurt Her in a Republican Primary?**\
+`Representative Julia Letlow of Louisiana, running to challenge Senator Bill Cassidy, is facing conservative blowback over remarks from 2020.`\
 https://nytimes.com/2026/04/01/us/politics/julia-letlow-louisiana-republican-primary.html
 
 **Bettina Köster, a Leading Voice in Berlin’s 1980s Avant-Garde, Dies at 66**\
@@ -21,8 +25,4 @@ https://nytimes.com/2026/04/01/us/politics/immigrant-reactions-supreme-court-bir
 **Robo-ump delivers first walk-off challenge as Orioles appeal final strike**\
 `The automated ball-strike challenge system revealed that a fastball from Albert Suárez was in the strike zone. `\
 https://nytimes.com/athletic/7165194/2026/04/01/mlb-abs-challenge-walkoff-orioles-rangers/
-
-**Migrating American Woodcocks Set Off a Birding Frenzy in Bryant Park**\
-`American woodcocks, also known as timberdoodles, are bopping and shimmying through the park, charming visitors during a pit stop on their northerly migration.`\
-https://nytimes.com/2026/04/01/nyregion/american-woodcock-bryant-park-nyc.html
 
