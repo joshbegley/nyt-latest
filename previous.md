@@ -1,3 +1,7 @@
+**Paul Skenes lowers ERA by nearly 60 points against Reds**\
+`The Cy Young winner bounced back from a rough Opening Day start by continuing his mastery of the Reds. `\
+https://nytimes.com/athletic/7164937/2026/04/01/paul-skenes-pirates-reds/
+
 **Who Made the Artemis II Rocket and Space Capsule?**\
 `While SpaceX and Blue Origin get much of the attention among rocket makers these days, traditional aerospace companies, including Boeing and Lockheed Martin, built the vehicles for Artemis II.`\
 https://nytimes.com/2026/04/01/science/space/artemis-ii-rocket-space-capsule-boeing-lockheed-martin.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/04/01/nyregion/syracuse-university-degrees-eliminated.h
 **How High Are Gas Prices Where You Live?**\
 `Here is a county-level look at where drivers are facing the highest costs.`\
 https://nytimes.com/interactive/2026/business/energy-environment/gas-prices-map-iran-war-oil.html
-
-**Why Artemis II Won’t Land on the Moon**\
-`It has been 50 years since humans last walked the lunar surface, and NASA’s efforts to get back there will take place in stages.`\
-https://nytimes.com/2026/04/01/science/nasa-artemis-ii-astronauts-moon-landing.html
 
