@@ -1,3 +1,7 @@
+**The Rush to Save Premature Infants in Gaza**\
+`Text by Samar Abu Elouf`\
+https://nytimes.com/card/2026/04/01/world/middleeast/
+
 **Down to Business: The real value of being the highest-paid player in women's soccer**\
 `Down to Business with Asli Pelit takes you through the exciting, fast-paced (and sometimes confusing) corporate side of women's soccer.`\
 https://nytimes.com/athletic/7162464/2026/04/01/highest-paid-womens-soccer-player-down-to-business/
