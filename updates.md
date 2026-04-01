@@ -1,3 +1,7 @@
+**One of the NFL's first female officials sues league over treatment, firing**\
+`The NFL called the lawsuit "baseless" and said DeLorenzo was terminated following three seasons of documented underperformance.`\
+https://nytimes.com/athletic/7162700/2026/03/31/nfl-female-official-lawsuit/
+
 **Astros' Cam Smith swung at strike three, then walked in a bizarre mishap**\
 `Both MLB Gameday and Baseball Savant labeled Bello’s third pitch as a ball, though video showed Smith swinging and missing. `\
 https://nytimes.com/athletic/7162829/2026/03/31/astros-red-sox-cam-smith-missed-strike-three/

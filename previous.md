@@ -1,3 +1,7 @@
+**One of the NFL's first female officials sues league over treatment, firing**\
+`The NFL called the lawsuit "baseless" and said DeLorenzo was terminated following three seasons of documented underperformance.`\
+https://nytimes.com/athletic/7162700/2026/03/31/nfl-female-official-lawsuit/
+
 **Astros' Cam Smith swung at strike three, then walked in a bizarre mishap**\
 `Both MLB Gameday and Baseball Savant labeled Bello’s third pitch as a ball, though video showed Smith swinging and missing. `\
 https://nytimes.com/athletic/7162829/2026/03/31/astros-red-sox-cam-smith-missed-strike-three/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/31/us/politics/trump-homelessness-program-judge.html
 **Roger Goodell says NFL's Rooney Rule isn't going anywhere, addresses ref negotiations**\
 `While Florida's Attorney General has claimed the Rooney Rule violates state law, Goodell pointed out the policy is not a hiring mandate.`\
 https://nytimes.com/athletic/7162634/2026/03/31/roger-goodell-nfl-meetings-rooney-rule-referees/
-
-**USA 0, Portugal 2: Decisive loss, Pulisic struggles cap last pre-World Cup window**\
-`The U.S. made multiple tweaks but fell to a second straight European power in similar fashion, leaving much to do as the World Cup nears`\
-https://nytimes.com/athletic/7162351/2026/03/31/usmnt-portugal-friendly-score-result-pulisic-pochettino/
 
