@@ -1,3 +1,11 @@
+**NFL ending 'Monday Night Football' doubleheaders, exploring Thanksgiving Eve game**\
+`The NFL will redistribute the five games in standalone windows.`\
+https://nytimes.com/athletic/7162393/2026/03/31/nfl-ending-monday-night-football-doubleheaders-exploring-adding-thanksgiving-eve-game/
+
+**Trump Signs Order Seeking Federal Control of Mail Voting as He Promotes False Claims**\
+`Election experts and Democratic officials called the order legally invalid, and Arizona and Oregon pledged to immediately challenge it in court.`\
+https://nytimes.com/2026/03/31/us/politics/trump-mail-in-ballots-voting-executive-order.html
+
 **Which Blue Jays must step up after Cody Ponce's ACL injury**\
 `Ponce will miss significant time, leaving a spot in the rotation for Toronto to fill. Here are pitchers who can fill that role.`\
 https://nytimes.com/athletic/7162313/2026/03/31/blue-jays-cody-ponce-acl-injury-fill-in/
