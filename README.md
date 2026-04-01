@@ -1,3 +1,7 @@
+**Trump’s Birthright Citizenship Order Draws Lines Scholars Find Indefensible**\
+`Different treatment for mothers and fathers is at odds with a 2017 Supreme Court decision, and other ideas in the order are hard to understand.`\
+https://nytimes.com/2026/04/01/us/politics/trumps-birthright-citizenship-order-draws-lines-scholars-find-indefensible.html
+
 **Bruce Springsteen Brings Fiery Speeches and Songs to Minneapolis**\
 `The E Street Band opened its Land of Hopes and Dreams tour on Tuesday night, where the musician asked the crowd to choose “unity over division and peace over war.”`\
 https://nytimes.com/2026/04/01/arts/music/bruce-springsteen-minneapolis-concert-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7164143/2026/04/01/yankees-vs-mariners-stream-how-t
 **How to watch Tigers vs. Diamondbacks: Time, TV, streaming for April 1**\
 `Find out how to watch the Detroit Tigers play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7164130/2026/04/01/tigers-vs-diamondbacks-stream-how-to-watch-april-1/
-
-**How to watch Giants vs. Padres: Time, TV, streaming for April 1**\
-`Find out how to watch the San Francisco Giants play the San Diego Padres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7164125/2026/04/01/giants-vs-padres-stream-how-to-watch-april-1/
 
