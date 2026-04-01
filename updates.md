@@ -1,3 +1,7 @@
+**Months before the World Cup, Scotland have revived an old formation. Is it really an option?**\
+`Having long abandoned a back-three system, Scotland boss Clarke went back to it against the Ivory Coast. But is it too late to use it again?`\
+https://nytimes.com/athletic/7161263/2026/04/01/scotland-world-cup-ivory-coast-formation/
+
 **How do NBA players get their kicks? One pair at a time**\
 `The shoes players wear are a huge part of the NBA. How many shoes, which style and what happens to them after they're done is all personal.`\
 https://nytimes.com/athletic/7110836/2026/04/01/nba-sneaker-heads-culture/
