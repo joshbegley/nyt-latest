@@ -1,3 +1,11 @@
+**The Pulse: A big Cowboys move? In 2026?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7162506/2026/04/01/nfl-mock-draft-cowboys-david-bailey-the-pulse/
+
+**Eight tough questions the Leafs should ask their next GM candidates**\
+`As the Maple Leafs search for their next GM, here are the eight questions I wouldn’t let a candidate leave an interview without answering.`\
+https://nytimes.com/athletic/7161385/2026/04/01/maple-leafs-gm-candidates-questions/
+
 **'Why not us?' Mauricio Pochettino asked the USMNT. Belgium and Portugal answered.**\
 `Despite a camp-opening message daring the U.S. to dream big this summer, two European powers delivered harsh lessons just days apart`\
 https://nytimes.com/athletic/7163165/2026/04/01/usmnt-world-cup-mauricio-pochettino-belgium-portugal-european-opponent/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7161321/2026/04/01/panthers-defense-jaelan-phillips
 **Sabres inch closer to clinching playoff spot, lose Carrick to injury: 3 thoughts**\
 `Carrick left the game with an injury to his left shoulder or arm after fighting the Islanders' Anders Lee.`\
 https://nytimes.com/athletic/7162974/2026/04/01/sabres-carrick-injury-playoffs-spot-metsa-greenway-islanders/
-
-**Porter Martone's NHL debut encouraging as Flyers learn lessons in loss**\
-`Martone finished with a team-high five shots on goal but Philadelphia's playoff chances took a hit after a 6-4 loss to the Capitals.`\
-https://nytimes.com/athletic/7162972/2026/04/01/flyers-porter-martone-nhl-debut-capitals/
-
-**Penguins are on verge of a playoff spot after dominant win against Red Wings**\
-`The Penguins handled Detroit with ease in a 5-1 win Tuesday, looking like a team ready to thrive in the playoffs.`\
-https://nytimes.com/athletic/7162754/2026/04/01/penguins-playoffs-win-red-wings-nhl/
 

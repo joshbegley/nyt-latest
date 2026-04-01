@@ -1,3 +1,11 @@
+**The Pulse: A big Cowboys move? In 2026?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7162506/2026/04/01/nfl-mock-draft-cowboys-david-bailey-the-pulse/
+
+**Eight tough questions the Leafs should ask their next GM candidates**\
+`As the Maple Leafs search for their next GM, here are the eight questions I wouldn’t let a candidate leave an interview without answering.`\
+https://nytimes.com/athletic/7161385/2026/04/01/maple-leafs-gm-candidates-questions/
+
 **'Why not us?' Mauricio Pochettino asked the USMNT. Belgium and Portugal answered.**\
 `Despite a camp-opening message daring the U.S. to dream big this summer, two European powers delivered harsh lessons just days apart`\
 https://nytimes.com/athletic/7163165/2026/04/01/usmnt-world-cup-mauricio-pochettino-belgium-portugal-european-opponent/
