@@ -1,3 +1,15 @@
+**Stocks in Asia Rally and Oil Prices Rise**\
+`President Trump said the U.S. military would wrap up its campaign in Iran in two or three weeks.`\
+https://nytimes.com/2026/04/01/business/stocks-oil-gasoline-prices-iran.html
+
+**The New York Times in Print for Wednesday, April 1, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/04/01/todays-new-york-times
+
+**Padma Lakshmi: What America’s Food Tells Us About Birthright Citizenship**\
+`President Trump wants to take away a fundamental American promise.`\
+https://nytimes.com/2026/04/01/opinion/padma-lakshmi-birthright-citizenship-food.html
+
 **At 50 wins, this version of the Lakers feels different — and better than last spring's**\
 `Like last season, the Lakers have reached 50 wins. This time around, are they built to last? `\
 https://nytimes.com/athletic/7160136/2026/04/01/lakers-lebron-james-50-wins-nba/

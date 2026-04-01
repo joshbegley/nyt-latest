@@ -1,3 +1,15 @@
+**Stocks in Asia Rally and Oil Prices Rise**\
+`President Trump said the U.S. military would wrap up its campaign in Iran in two or three weeks.`\
+https://nytimes.com/2026/04/01/business/stocks-oil-gasoline-prices-iran.html
+
+**The New York Times in Print for Wednesday, April 1, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/04/01/todays-new-york-times
+
+**Padma Lakshmi: What America’s Food Tells Us About Birthright Citizenship**\
+`President Trump wants to take away a fundamental American promise.`\
+https://nytimes.com/2026/04/01/opinion/padma-lakshmi-birthright-citizenship-food.html
+
 **At 50 wins, this version of the Lakers feels different — and better than last spring's**\
 `Like last season, the Lakers have reached 50 wins. This time around, are they built to last? `\
 https://nytimes.com/athletic/7160136/2026/04/01/lakers-lebron-james-50-wins-nba/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7152338/2026/04/01/ryan-kavuma-mcqueen-chelsea-rona
 **Tuchel's World Cup formula? England - Kane = Disaster**\
 `Praying his captain and talismanic striker is fully fit seems the head coach's best chance of success this summer`\
 https://nytimes.com/athletic/7160839/2026/04/01/england-harry-kane-world-cup/
-
-**From fiasco to fairytale - Arsenal's Viktor Gyokeres is Sweden's World Cup saviour**\
-`After a dismal run in the qualifiers, Viktor Gyokores and Sweden finally clicked in the playoffs to reach the finals this summer `\
-https://nytimes.com/athletic/7162454/2026/04/01/viktor-gyokeres-sweden-world-cupm-playoff/
-
-**Phillies' Andrew Painter dazzles in long-awaited MLB debut**\
-`The hype was dialed to another level. Then, afterward, the Phillies could see through the clouds that followed Painter for three years. `\
-https://nytimes.com/athletic/7162959/2026/04/01/andrew-painter-phillies-mlb-debut-nationals/
-
-**FSG is allowing Liverpool to drift – and that is dangerous**\
-`With key executives out of contract in 2027, Anfield's U.S. owners could be facing a looming problem`\
-https://nytimes.com/athletic/7152872/2026/04/01/liverpool-fsg-michael-edwards-richard-hughes/
 
