@@ -1,3 +1,11 @@
+**Blazers owner addresses future of employees, the franchise and the arena deal**\
+`Dundon says the Blazers will get better with him as owner. "It's going to happen. It always happens when I show up."`\
+https://nytimes.com/athletic/7163115/2026/04/01/tom-dundon-trail-blazers-owner-sale-nba/
+
+**World Cup 2026 - Groups, bracket and predictions with all 48 teams confirmed**\
+`Could holders Argentina be a letdown? Does 41-year-old Ronaldo have a real shot at the Golden Boot? And who are our writers backing to win?`\
+https://nytimes.com/athletic/7159194/2026/04/01/world-cup-2026-bracket-predictions/
+
 **Stocks in Asia Rally and Oil Prices Rise**\
 `President Trump said the U.S. military would wrap up its campaign in Iran in two or three weeks.`\
 https://nytimes.com/2026/04/01/business/stocks-oil-gasoline-prices-iran.html
@@ -6,7 +14,7 @@ https://nytimes.com/2026/04/01/business/stocks-oil-gasoline-prices-iran.html
 ``\
 https://nytimes.com/issue/todayspaper/2026/04/01/todays-new-york-times
 
-**Padma Lakshmi: What America’s Food Tells Us About Birthright Citizenship**\
+**Padma Lakshmi: The Decision That Would Create a Permanent American Underclass**\
 `President Trump wants to take away a fundamental American promise.`\
 https://nytimes.com/2026/04/01/opinion/padma-lakshmi-birthright-citizenship-food.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7163052/2026/04/01/christian-pulisic-goals-drought-
 **The 76-year-old European Cup-winning captain still training with Nottingham Forest**\
 `In a season that has seen four different permanent managers, John McGovern has been a welcome and comforting presence on the training pitch`\
 https://nytimes.com/athletic/7158389/2026/04/01/nottingham-forest-john-mcgovern-training-ground/
-
-**Inspired by Ronaldo, watched by Palmer: How Kavuma-McQueen became Chelsea’s latest rising star**\
-`Ryan Kavuma-McQueen is making a name for himself at Cobham, and Saturday's FA Cup tie is looking like his next possibility for game time`\
-https://nytimes.com/athletic/7152338/2026/04/01/ryan-kavuma-mcqueen-chelsea-ronaldo-palmer/
-
-**Tuchel's World Cup formula? England - Kane = Disaster**\
-`Praying his captain and talismanic striker is fully fit seems the head coach's best chance of success this summer`\
-https://nytimes.com/athletic/7160839/2026/04/01/england-harry-kane-world-cup/
 
