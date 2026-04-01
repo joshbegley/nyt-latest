@@ -1,3 +1,7 @@
+**She’s Trump-backed but Praised D.E.I. Will It Hurt Her in a Republican Primary?**\
+`Democratic politicians aren’t the only ones whose Covid-era remarks are haunting them politically.`\
+https://nytimes.com/2026/04/01/us/politics/julia-letlow-louisiana-republican-primary.html
+
 **Bettina Köster, a Leading Voice in Berlin’s 1980s Avant-Garde, Dies at 66**\
 `She sang lead for influential all-female bands, including Malaria!, and toured in the U.S. and elsewhere with groups like the Birthday Party and New Order.`\
 https://nytimes.com/2026/04/01/arts/music/bettina-koster-dead.html
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/7165194/2026/04/01/mlb-abs-challenge-walkoff-oriole
 **Migrating American Woodcocks Set Off a Birding Frenzy in Bryant Park**\
 `American woodcocks, also known as timberdoodles, are bopping and shimmying through the park, charming visitors during a pit stop on their northerly migration.`\
 https://nytimes.com/2026/04/01/nyregion/american-woodcock-bryant-park-nyc.html
-
-**Trump’s Endgame in Iran?**\
-`We look at what has changed, and what hasn’t, as a result of the joint U.S.-Israeli war against Iran.`\
-https://nytimes.com/2026/04/01/world/trump-iran-speech-artemis-moon-launch-cape-town-housing.html
 
