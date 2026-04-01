@@ -1,3 +1,15 @@
+**NCAA approves major penalties for programs that circumvent transfer portal in the spring**\
+`The rule, which goes into effect immediately, seeks to stop "ghost transfers" where athletes withdraw from one school and enroll at another.`\
+https://nytimes.com/athletic/7164602/2026/04/01/ncaa-rules-transfer-portal-spring-window-roster/
+
+**At Syracuse, Classics, Ceramics and Italian Out as Majors in Overhaul**\
+`In all, 93 of the 460 academic programs at the university will be closed or paused. No students were majoring in 55 of the programs that are ending.`\
+https://nytimes.com/2026/04/01/nyregion/syracuse-university-degrees-eliminated.html
+
+**Where will Bears build their new stadium? Illinois-Indiana tug of war continues**\
+`“The fact of the matter is we don’t have a deal to consider right now,” Bears chairman George McCaskey said Wednesday.`\
+https://nytimes.com/athletic/7164877/2026/04/01/bears-stadium-update-illinois-indiana/
+
 **How High Are Gas Prices Where You Live?**\
 `Here is a county-level look at where drivers are facing the highest costs.`\
 https://nytimes.com/interactive/2026/business/energy-environment/gas-prices-map-iran-war-oil.html
