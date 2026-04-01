@@ -1,3 +1,7 @@
+**Goalies Igor Shesterkin, Jacob Markström drop the gloves for fight at MSG**\
+`Shesterkin and Markström were given two-minute penalties for leaving the crease and five minutes for fighting.`\
+https://nytimes.com/athletic/7162764/2026/03/31/nhl-goalie-fight-igor-shesterkin-jacob-markstrom/
+
 **Trump Says U.S. Will Be Out of Iran Within Two to Three Weeks**\
 `The White House said the president would address the nation about Iran on Wednesday evening.`\
 https://nytimes.com/2026/03/31/us/politics/trump-says-us-will-be-out-of-iran-within-two-to-three-weeks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/31/world/middleeast/tehran-pharmaceutical-strike-isr
 **In South Dakota, Neighbors Feel Sorry for Kristi Noem’s Husband**\
 `In the tiny town of Castlewood, S.D., where everyone knows the Noems, the prevailing sense was that people can’t help but feel bad for Bryon Noem after a tabloid photo leak.`\
 https://nytimes.com/2026/03/31/us/politics/kristi-noem-husband-photos-daily-mail.html
-
-**NFL ending 'Monday Night Football' doubleheaders, exploring Thanksgiving Eve game**\
-`The NFL will redistribute the five games in standalone windows.`\
-https://nytimes.com/athletic/7162393/2026/03/31/nfl-ending-monday-night-football-doubleheaders-exploring-adding-thanksgiving-eve-game/
 
