@@ -1,3 +1,19 @@
+**Placing U.S. Troops in Middle East Hotels May Violate Laws of War**\
+`U.S. commanders have kept many troops away from bases in the region to protect them from Iran’s ballistic missile attacks.`\
+https://nytimes.com/2026/04/01/us/politics/troops-iran-hotels.html
+
+**The early exception to birthright citizenship for Native Americans and why it matters.**\
+`By Ann E. Marimow`\
+https://nytimes.com/live/2026/04/01/us/supreme-court-birthright-citizenship/the-early-exception-to-birthright-citizenship-for-native-americans-and-why-it-matters
+
+**T Gardens**\
+``\
+https://nytimes.com/spotlight/t-gardens
+
+**The Bounce: Yes, Doc Rivers deserves to be a Hall of Fame coach**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7164111/2026/04/01/doc-rivers-hall-of-fame-nba-the-bounce/
+
 **Meet the four astronauts of Artemis II.**\
 `By Katrina Miller`\
 https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/meet-the-four-astronauts-of-artemis-ii
