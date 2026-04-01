@@ -1,3 +1,7 @@
+**Pulisic's U.S. goal drought continues, but he maintains 'things are gonna click'**\
+`Pulisic has now gone eight straight U.S. matches without a goal and endured a frustrating March window`\
+https://nytimes.com/athletic/7163052/2026/04/01/christian-pulisic-goals-drought-usmnt-portugal-world-cup/
+
 **The 76-year-old European Cup-winning captain still training with Nottingham Forest**\
 `In a season that has seen four different permanent managers, John McGovern has been a welcome and comforting presence on the training pitch`\
 https://nytimes.com/athletic/7158389/2026/04/01/nottingham-forest-john-mcgovern-training-ground/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7143386/2026/04/01/beata-olsson-interview-liverpool
 **Welcome to the 'ridiculous' international match nobody wanted to play**\
 `Wales vs Northern Ireland was the deadest of dead rubbers after both lost their World Cup playoff semi-finals`\
 https://nytimes.com/athletic/7162232/2026/04/01/wales-northern-ireland-fifa-friendly/
-
-**Haaland is misfiring and Odegaard is absent. Should Norway be worried?**\
-`Norwegians are celebrating qualification for a first major finals in 26 years, but they will need their best players if they are to thrive`\
-https://nytimes.com/athletic/7162150/2026/04/01/haaland-odegaard-norway-world-cup-bobb/
 
