@@ -1,3 +1,11 @@
+**Placing U.S. Troops in Middle East Hotels May Violate Laws of War**\
+`U.S. commanders have kept many troops away from bases in the region to protect them from Iran’s ballistic missile attacks.`\
+https://nytimes.com/2026/04/01/us/politics/troops-iran-hotels.html
+
+**The early exception to birthright citizenship for Native Americans and why it matters.**\
+`By Ann E. Marimow`\
+https://nytimes.com/live/2026/04/01/us/supreme-court-birthright-citizenship/the-early-exception-to-birthright-citizenship-for-native-americans-and-why-it-matters
+
 **T Gardens**\
 ``\
 https://nytimes.com/spotlight/t-gardens
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/01/us/politics/supreme-court-birth-tourism-birthrigh
 **Netanyahu makes the case that wars on Iran have succeeded.**\
 `Prime Minister Benjamin Netanyahu claimed that Israel had crushed Iran’s capacity to make nuclear weapons and ballistic missiles. But Iran has continued attacking Israel and Persian Gulf countries and is believed to still have highly enriched uranium.`\
 https://nytimes.com/live/2026/04/01/world/iran-war-trump-oil-news/netanyahu-israel-iran-war
-
-**U.S. Is Weighing Leaving NATO, Trump Says**\
-`In an interview with The Telegraph, a British newspaper, President Trump said that he was considering pulling the United States out of NATO alliance over the war in Iran.`\
-https://nytimes.com/video/world/middleeast/100000010814558/trump-us-leaving-nato.html
-
-**The ‘Constitutional Bedrock’ Trump Is Trying to Erase**\
-`Trump is on a mission to eliminate birthright citizenship, a right long thought to be guaranteed by the 14th Amendment of the Constitution. But how will the Supreme Court respond? The legal journalist Cristian Farias shares his insights.`\
-https://nytimes.com/video/opinion/100000010811212/the-constitutional-bedrock-trump-is-trying-to-erase.html
 
