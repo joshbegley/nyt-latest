@@ -1,3 +1,11 @@
+**Latest FIFA men’s world rankings: France go top, USMNT fall to 16th**\
+`It is the first time since September 2018 that France have been ranked No 1 by FIFA.`\
+https://nytimes.com/athletic/7164717/2026/04/01/fifa-world-rankings-france-usmnt-spain-argentina/
+
+**Victor Glover, Artemis II’s Pilot, Will be the First Black Astronaut Around the Moon.**\
+`An astronaut since 2013, Mr. Glover was also the first Black astronaut on a long duration International Space Station mission.`\
+https://nytimes.com/2026/04/01/science/victor-glover-artemis-ii-first-black-astronaut-moon.html
+
 **The Windup: Ohtani's especially stellar start**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/7164612/2026/04/01/shohei-ohtani-mlb-season-start-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7154835/2026/04/01/roger-mcqueen-anaheim-ducks-cont
 **How to watch Guardians vs. Dodgers: Time, TV, streaming for April 1**\
 `Find out how to watch the Cleveland Guardians play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7164679/2026/04/01/guardians-vs-dodgers-stream-how-to-watch-april-1/
-
-**How to watch Twins vs. Royals: Time, TV, streaming for April 1**\
-`Find out how to watch the Minnesota Twins play the Kansas City Royals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7164674/2026/04/01/twins-vs-royals-stream-how-to-watch-april-1/
-
-**Reid Wiseman, a Veteran Fighter Pilot, Is the Artemis II Commander**\
-`As a child, Mr. Wiseman never imagined he could be an astronaut. Now he’s commanding NASA’s first mission to the moon since 1972.`\
-https://nytimes.com/2026/04/01/science/space/reid-wiseman-artemis-ii-commander.html
 

@@ -1,5 +1,9 @@
+**The Windup: Ohtani's especially stellar start**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7164612/2026/04/01/shohei-ohtani-mlb-season-start-the-windup/
+
 **Chelsea's £65m tops list of Premier League fees paid to agents, Wrexham spend up 367 per cent**\
-`How much every Premier League spent on agent fees and who were the biggest spenders in the EFL and Women's Super League`\
+`How much every Premier League club spent on agent fees and who were the biggest spenders in the EFL and Women's Super League`\
 https://nytimes.com/athletic/7164505/2026/04/01/chelsea-agent-fees-wrexham/
 
 **SpaceX Files to Go Public, Setting Stage for Huge I.P.O.**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7164674/2026/04/01/twins-vs-royals-stream-how-to-wa
 **Reid Wiseman, a Veteran Fighter Pilot, Is the Artemis II Commander**\
 `As a child, Mr. Wiseman never imagined he could be an astronaut. Now he’s commanding NASA’s first mission to the moon since 1972.`\
 https://nytimes.com/2026/04/01/science/space/reid-wiseman-artemis-ii-commander.html
-
-**Fosse! Robbins! Making the Case for Vintage Broadway Dance**\
-`Hubbard Street Dance Chicago and the Off Broadway revue “Gotta Dance!” shine a light on repertory that is too often overlooked.`\
-https://nytimes.com/2026/04/01/arts/dance/hubbard-street-dance-chicago-gotta-dance-broadway-fosse.html
 

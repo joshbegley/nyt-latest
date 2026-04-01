@@ -1,3 +1,11 @@
+**The Windup: Ohtani's especially stellar start**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7164612/2026/04/01/shohei-ohtani-mlb-season-start-the-windup/
+
+**Chelsea's £65m tops list of Premier League fees paid to agents, Wrexham spend up 367 per cent**\
+`How much every Premier League club spent on agent fees and who were the biggest spenders in the EFL and Women's Super League`\
+https://nytimes.com/athletic/7164505/2026/04/01/chelsea-agent-fees-wrexham/
+
 **Chelsea's £65m tops list of Premier League fees paid to agents, Wrexham spend up 367 per cent**\
 `How much every Premier League spent on agent fees and who were the biggest spenders in the EFL and Women's Super League`\
 https://nytimes.com/athletic/7164505/2026/04/01/chelsea-agent-fees-wrexham/
