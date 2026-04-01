@@ -1,3 +1,15 @@
+**Trump Says U.S. Will Be Out of Iran Within Two to Three Weeks**\
+`The White House said the president would address the nation about Iran on Wednesday evening.`\
+https://nytimes.com/2026/03/31/us/politics/trump-says-us-will-be-out-of-iran-within-two-to-three-weeks.html
+
+**Trump Says He Halted Nuclear Threat From Iran, Despite Evidence to the Contrary**\
+`For the second time in recent days, President Trump declared that one of the key objectives of the war had been accomplished.`\
+https://nytimes.com/2026/03/31/us/politics/trump-nuclear-threat-iran.html
+
+**Trump Administration Acted Illegally With Homeless Grants Program, Judge Rules**\
+`A federal judge in Rhode Island said that the administration had wrongly demanded that groups seeking grants comply with its agenda on other issues, including immigration.`\
+https://nytimes.com/2026/03/31/us/politics/trump-homelessness-program-judge.html
+
 **Roger Goodell says NFL's Rooney Rule isn't going anywhere, addresses ref negotiations**\
 `While Florida's Attorney General has claimed the Rooney Rule violates state law, Goodell pointed out the policy is not a hiring mandate.`\
 https://nytimes.com/athletic/7162634/2026/03/31/roger-goodell-nfl-meetings-rooney-rule-referees/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/31/us/politics/kristi-noem-husband-photos-daily-mail
 **NFL ending 'Monday Night Football' doubleheaders, exploring Thanksgiving Eve game**\
 `The NFL will redistribute the five games in standalone windows.`\
 https://nytimes.com/athletic/7162393/2026/03/31/nfl-ending-monday-night-football-doubleheaders-exploring-adding-thanksgiving-eve-game/
-
-**Trump Signs Order Seeking Federal Control of Mail Voting as He Promotes False Claims**\
-`Election experts and Democratic officials called the order legally invalid, and Arizona and Oregon pledged to immediately challenge it in court.`\
-https://nytimes.com/2026/03/31/us/politics/trump-mail-in-ballots-voting-executive-order.html
-
-**Which Blue Jays must step up after Cody Ponce's ACL injury**\
-`Ponce will miss significant time, leaving a spot in the rotation for Toronto to fill. Here are pitchers who can fill that role.`\
-https://nytimes.com/athletic/7162313/2026/03/31/blue-jays-cody-ponce-acl-injury-fill-in/
-
-**Elena Delle Donne, Mark Few among inductees for 2026 Hall of Fame class: Sources**\
-`Delle Donne, one of the best shooters in WNBA history, and Few, college basketball's winningest coach by win percentage, will be inducted.`\
-https://nytimes.com/athletic/7161860/2026/03/31/elena-delle-donne-mark-few-hall-of-fame-2026/
 

@@ -1,3 +1,15 @@
+**Trump Says U.S. Will Be Out of Iran Within Two to Three Weeks**\
+`The White House said the president would address the nation about Iran on Wednesday evening.`\
+https://nytimes.com/2026/03/31/us/politics/trump-says-us-will-be-out-of-iran-within-two-to-three-weeks.html
+
+**Trump Says He Halted Nuclear Threat From Iran, Despite Evidence to the Contrary**\
+`For the second time in recent days, President Trump declared that one of the key objectives of the war had been accomplished.`\
+https://nytimes.com/2026/03/31/us/politics/trump-nuclear-threat-iran.html
+
+**Trump Administration Acted Illegally With Homeless Grants Program, Judge Rules**\
+`A federal judge in Rhode Island said that the administration had wrongly demanded that groups seeking grants comply with its agenda on other issues, including immigration.`\
+https://nytimes.com/2026/03/31/us/politics/trump-homelessness-program-judge.html
+
 **Roger Goodell says NFL's Rooney Rule isn't going anywhere, addresses ref negotiations**\
 `While Florida's Attorney General has claimed the Rooney Rule violates state law, Goodell pointed out the policy is not a hiring mandate.`\
 https://nytimes.com/athletic/7162634/2026/03/31/roger-goodell-nfl-meetings-rooney-rule-referees/
