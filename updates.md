@@ -1,3 +1,19 @@
+**How to watch Mets vs. Cardinals: Time, TV, streaming for April 1**\
+`Find out how to watch the New York Mets play the St. Louis Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7163789/2026/04/01/mets-vs-cardinals-stream-how-to-watch-april-1/
+
+**How to watch Angels vs. Cubs: Time, TV, streaming for April 1**\
+`Find out how to watch the Los Angeles Angels play the Chicago Cubs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7163779/2026/04/01/angels-vs-cubs-stream-how-to-watch-april-1/
+
+**How to watch Red Sox vs. Astros: Time, TV, streaming for April 1**\
+`Find out how to watch the Boston Red Sox play the Houston Astros, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7163773/2026/04/01/red-sox-vs-astros-stream-how-to-watch-april-1/
+
+**How to watch Rays vs. Brewers: Time, TV, streaming for April 1**\
+`Find out how to watch the Tampa Bay Rays play the Milwaukee Brewers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7163769/2026/04/01/rays-vs-brewers-stream-how-to-watch-april-1/
+
 **Meet Sheel Tyle, the new local Blazers co-owner intent on keeping the team in Portland**\
 `In the 56-year history of the Blazers, the 34-year-old Teel joins founder Harry Glickman as the only Oregonians to stake an ownership claim.`\
 https://nytimes.com/athletic/7143606/2026/04/01/meet-sheel-tyle-the-new-local-blazers-co-owner-intent-on-keeping-the-team-in-portland/
