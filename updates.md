@@ -1,3 +1,11 @@
+**Pentagon Is Doubling Fleet of A-10 Attack Planes in Middle East**\
+`The slow-moving A-10 “Warthog” is a close-air support plane that could be used to help U.S. ground forces seize territory near the Strait of Hormuz.`\
+https://nytimes.com/2026/04/01/us/politics/attack-planes-iran.html
+
+**Bears have not given up hope of receiving compensatory picks for Ian Cunningham's move**\
+`The Bears insist that Cunningham's jump to a GM job should entitle them to league-awarded draft compensation.`\
+https://nytimes.com/athletic/7164753/2026/04/01/bears-ian-cunningham-nfl-draft-compensation/
+
 **Got Bucks questions? Submit to Eric Nehm for the upcoming mailbag**\
 `The Milwaukee Bucks have officially been eliminated from contention for this year’s NBA playoffs.`\
 https://nytimes.com/athletic/7164793/2026/04/01/bucks-mailbag-giannis-offseason-nba/

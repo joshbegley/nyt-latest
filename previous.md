@@ -1,3 +1,11 @@
+**Pentagon Is Doubling Fleet of A-10 Attack Planes in Middle East**\
+`The slow-moving A-10 “Warthog” is a close-air support plane that could be used to help U.S. ground forces seize territory near the Strait of Hormuz.`\
+https://nytimes.com/2026/04/01/us/politics/attack-planes-iran.html
+
+**Bears have not given up hope of receiving compensatory picks for Ian Cunningham's move**\
+`The Bears insist that Cunningham's jump to a GM job should entitle them to league-awarded draft compensation.`\
+https://nytimes.com/athletic/7164753/2026/04/01/bears-ian-cunningham-nfl-draft-compensation/
+
 **Got Bucks questions? Submit to Eric Nehm for the upcoming mailbag**\
 `The Milwaukee Bucks have officially been eliminated from contention for this year’s NBA playoffs.`\
 https://nytimes.com/athletic/7164793/2026/04/01/bucks-mailbag-giannis-offseason-nba/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/04/01/science/space/christina-koch-artemis-ii-astronaut
 **How Juan Soto helped Luis Robert get comfortable in New York**\
 `Soto reached out right away: “The vibe that you bring every day because you feel comfortable in that place is going to be through the roof."`\
 https://nytimes.com/athletic/7164761/2026/04/01/mets-juan-soto-luis-robert-chemistry/
-
-**How to watch Spurs vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the San Antonio Spurs play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7164825/2026/04/01/spurs-vs-warriors-stream-how-to-watch-april-1/
-
-**The ‘Summer House’ Scandal, Explained**\
-`Will the newly announced “connection” between the co-stars West Wilson and Amanda Batula become Scandoval 2.0?`\
-https://nytimes.com/2026/04/01/style/bravo-summer-house-west-wilson-amanda-batula.html
 
