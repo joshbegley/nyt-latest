@@ -1,3 +1,7 @@
+**How to watch Knicks vs. Grizzlies: Time, TV, streaming**\
+`Find out how to watch the New York Knicks play the Memphis Grizzlies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7164544/2026/04/01/how-to-watch-knicks-vs-grizzlies-tv-channel-and-streaming-options-for-april-1/
+
 **The Best Movies and TV Shows Coming to Netflix in April**\
 `New shows of note this month include a new season of “Beef” and an animated “Stranger Things” spinoff.`\
 https://nytimes.com/2026/04/01/arts/television/new-netflix-april-2026.html

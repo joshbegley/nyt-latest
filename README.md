@@ -1,3 +1,15 @@
+**Fosse! Robbins! Making the Case for Vintage Broadway Dance**\
+`Hubbard Street Dance Chicago and the Off Broadway revue “Gotta Dance!” shine a light on repertory that is too often overlooked.`\
+https://nytimes.com/2026/04/01/arts/dance/hubbard-street-dance-chicago-gotta-dance-broadway-fosse.html
+
+**UConn stars lead women’s MOP odds, but last year’s winner isn’t the favorite**\
+`UConn's Azzi Fudd won Most Outstanding Player last year, but teammate Sarah Strong is favored to win it this year.`\
+https://nytimes.com/athletic/7164464/2026/04/01/womens-most-outstanding-player-odds-strong-fudd-booker-betts/
+
+**How to watch Nuggets vs. Jazz: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the Utah Jazz, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7164636/2026/04/01/nuggets-vs-jazz-stream-how-to-watch-april-1/
+
 **The Best Movies and TV Shows Coming to Netflix in April**\
 `New shows of note this month include a new season of “Beef” and an animated “Stranger Things” spinoff.`\
 https://nytimes.com/2026/04/01/arts/television/new-netflix-april-2026.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/04/01/us/politics/trump-iran-war-nuclear-uranium.html
 **F.D.A. Approves New Obesity Pill**\
 `The drug, made by Eli Lilly, could offer a more convenient option for patients who want to avoid injections.`\
 https://nytimes.com/2026/04/01/well/fda-obesity-pill-orfoglipron.html
-
-**How to watch Bucks vs. Rockets: Time, TV, streaming**\
-`Find out how to watch the Milwaukee Bucks play the Houston Rockets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7164547/2026/04/01/bucks-vs-rockets-stream-how-to-watch-april-1/
-
-**How to watch Knicks vs. Grizzlies: Time, TV, streaming**\
-`Find out how to watch the New York Knicks play the Memphis Grizzlies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7164544/2026/04/01/how-to-watch-knicks-vs-grizzlies-tv-channel-and-streaming-options-for-april-1/
-
-**Mike Krzyzewski calls Duke's Elite Eight loss to UConn 'heartbreaking'**\
-`Krzyzewski said he couldn't sleep after the loss and expressed sympathy for Duke's Cayden Boozer, saying he wasn't to blame.`\
-https://nytimes.com/athletic/7164451/2026/04/01/mike-krzyzewski-duke-uconn-elite-eight-reaction-ncaa/
 
