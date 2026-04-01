@@ -1,3 +1,7 @@
+**Trump Says U.S. to Leave Iran ‘Very Soon’**\
+`President Trump suggested on Tuesday that the American military campaign in Iran would be winding down in a matter of weeks. He also announced that he would give an address on Wednesday evening.`\
+https://nytimes.com/video/us/100000010814375/trump-iran-war-military.html
+
 **Plotting England's possible path to World Cup glory**\
 `Mexico in the last 16? Brazil in the quarter-finals? Argentina in the semis? Jack Pitt-Brooke attempts to map out England's road to glory`\
 https://nytimes.com/athletic/7156170/2026/04/01/england-world-cup-path/
