@@ -2,7 +2,7 @@
 `Both MLB Gameday and Baseball Savant labeled Bello’s third pitch as a ball, though video showed Smith swinging and missing. `\
 https://nytimes.com/athletic/7162829/2026/03/31/astros-red-sox-cam-smith-missed-strike-three/
 
-**Pochettino says World Cup roster picks will be 'painful' after Portugal loss**\
+**Pochettino: USA World Cup squad picks will be 'painful' after Portugal loss**\
 `May 26 is decision day for Pochettino to name his final World Cup roster`\
 https://nytimes.com/athletic/7162814/2026/03/31/pochettino-usmnt-world-cup-roster-painful-portugal/
 
