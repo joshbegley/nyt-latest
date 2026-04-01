@@ -1,3 +1,7 @@
+**Tiger Woods says he'll 'seek treatment' in first public comments since DUI arrest**\
+`Woods said he will be seeking privacy during his recovery, meaning the golfer will not be at next week's Masters in any capacity.`\
+https://nytimes.com/athletic/7162240/2026/03/31/tiger-woods-treatment-dui-arrest/
+
 **The Briefing: DR Congo 1 Jamaica 0 — How did the Leopards make history? What do their fans bring? What happened to the ref?**\
 `An extra-time goal from Axel Tuanzebe ensured DR Congo became the 47th team to qualify for this summer's World Cup`\
 https://nytimes.com/athletic/7156216/2026/03/31/dr-congo-1-jamaica-0-world-cup-playoff-briefing/

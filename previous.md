@@ -34,7 +34,7 @@ https://nytimes.com/athletic/7162059/2026/03/31/dan-hurley-referee-roger-ayers-t
 `The Steelers coach said, "We want to have a hell of a class" and is "hopeful" a QB will be available "at the right time."`\
 https://nytimes.com/athletic/7161668/2026/03/31/pittsburgh-steelers-mike-mccarthy-quarterback/
 
-**Tiger: 'I am stepping away ... to seek treatment'**\
-`Woods will not be at the Masters in any capacity.`\
+**Tiger Woods says he'll 'seek treatment' in first public comments since DUI arrest**\
+`Woods said he will be seeking privacy during his recovery, meaning the golfer will not be at next week's Masters in any capacity.`\
 https://nytimes.com/athletic/7162240/2026/03/31/tiger-woods-treatment-dui-arrest/
 
