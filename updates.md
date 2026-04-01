@@ -1,3 +1,7 @@
+**USA 0, Portugal 2: Decisive loss, Pulisic struggles cap last pre-World Cup window**\
+`The U.S. made multiple tweaks but fell to a second straight European power in similar fashion, leaving much to do as the World Cup nears`\
+https://nytimes.com/athletic/7162351/2026/03/31/usmnt-portugal-friendly-score-result-pulisic-pochettino/
+
 **USMNT 0, Portugal 2: Decisive loss, Pulisic struggles cap last pre-World Cup window**\
 `The U.S. made multiple tweaks but fell to a second straight European power in similar fashion, leaving much to do as the World Cup nears`\
 https://nytimes.com/athletic/7162351/2026/03/31/usmnt-portugal-friendly-score-result-pulisic-pochettino/
