@@ -1,3 +1,19 @@
+**How to watch Celtics vs. Heat: Time, TV, streaming**\
+`Find out how to watch the Boston Celtics play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7164533/2026/04/01/celtics-vs-heat-stream-how-to-watch-april-1/
+
+**How to watch Kings vs. Raptors: Time, TV, streaming**\
+`Find out how to watch the Sacramento Kings play the Toronto Raptors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7164531/2026/04/01/kings-vs-raptors-stream-how-to-watch-april-1/
+
+**Before Artemis II, there had to be an Artemis I.**\
+`By Katrina Miller`\
+https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/before-artemis-ii-there-had-to-be-an-artemis-i
+
+**My Friend Wrote a Book About Her Trauma. Do I Have to Read It?**\
+`She told me that anyone who won’t read her book is not her friend and that I am contributing to the greater problem in the world.`\
+https://nytimes.com/2026/04/01/magazine/friend-trauma-book-ethics.html
+
 **Megan Thee Stallion Falls Ill on Broadway, Leaving Run in Question**\
 `The rapper was rushed to the hospital midway through a performance of “Moulin Rouge! The Musical” on Tuesday. She is expected to miss shows on Wednesday.`\
 https://nytimes.com/2026/04/01/theater/megan-thee-stallion-hospital-moulin-rouge-broadway.html
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/7164445/2026/04/01/mlb-abs-ai-challenge-moneycall/
 **WhatsApp Whistle-Blower Suit Is Dismissed**\
 `The former head of security for the messaging app, owned by Meta, had accused the social media company of putting billions of users at risk. A judge said there was not enough evidence that he was fired for his claims.`\
 https://nytimes.com/2026/04/01/technology/whatsapp-whistle-blower-suit-is-dismissed.html
-
-**In This ‘Hamlet’ and ‘Titus Andronicus,’ Life, Death and Even Joy**\
-`Two Shakespeare adaptations — Teatro La Plaza’s uplifting remix and Red Bull Theater’s gore fest — place very different values on human existence.`\
-https://nytimes.com/2026/04/01/theater/hamlet-titus-andronicus-review-patrick-page.html
-
-**Heavy bombings across Tehran jolt its war-weary residents.**\
-`Some people in the capital said the blasts on Wednesday morning were among the most powerful they had felt in more than a month of war.`\
-https://nytimes.com/live/2026/04/01/world/iran-war-trump-oil-news/heavy-bombings-tehran
-
-**Jaden Ivey was on track to be a future star. How he fell so far, so quickly**\
-`After a promising start to his career, Ivey was hampered by multiple injuries.`\
-https://nytimes.com/athletic/7162491/2026/04/01/jaden-ivey-career-timeline-pistons-bulls/
-
-**Lamine Yamal, Spain's 'worldwide shame' and how anti-Muslim chants led him to speak out**\
-`An unsavoury chant has cast a shadow over Spain, just as an exciting team led by Yamal prepare for this summer's World Cup`\
-https://nytimes.com/athletic/7164199/2026/04/01/lamine-yamal-spain-anti-muslim-chants/
 
