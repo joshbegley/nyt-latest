@@ -1,3 +1,7 @@
+**Trump Laid Out Five Goals for the Iran War. Here’s Where They Stand.**\
+`The United States and Israel have done significant damage to Iran’s military capabilities. But Iran still fires missiles, has nuclear material and coordinates with militias in the region.`\
+https://nytimes.com/2026/04/01/us/politics/trump-goals-iran-war.html
+
 **What to Know About Ted Bundy, the Notorious Serial Killer**\
 `On Wednesday, the authorities said DNA evidence had linked Mr. Bundy, who was executed in 1989, to the murder of a 17-year-old Utah girl in 1974.`\
 https://nytimes.com/2026/04/01/us/what-to-know-about-ted-bundy-serial-killer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/01/opinion/birthright-citizenship-case-trump.html
 **Trump Has Discussed Firing Attorney General Pam Bondi**\
 `President Trump has not made a final decision, but he has floated the idea of replacing Ms. Bondi with Lee Zeldin, the E.P.A. administrator.`\
 https://nytimes.com/2026/04/01/us/politics/trump-pam-bondi-future.html
-
-**Goodbye ‘Geeky Hunk’? Gmail Users Can Now Change Their Usernames.**\
-`Users who have been saddled with now-cringe email handles since the mid-2000s can now change them without losing any data under a policy Google announced on Wednesday.`\
-https://nytimes.com/2026/04/01/technology/gmail-change-email-address-google.html
 

@@ -1,3 +1,7 @@
+**Trump Laid Out Five Goals for the Iran War. Here’s Where They Stand.**\
+`The United States and Israel have done significant damage to Iran’s military capabilities. But Iran still fires missiles, has nuclear material and coordinates with militias in the region.`\
+https://nytimes.com/2026/04/01/us/politics/trump-goals-iran-war.html
+
 **What to Know About Ted Bundy, the Notorious Serial Killer**\
 `On Wednesday, the authorities said DNA evidence had linked Mr. Bundy, who was executed in 1989, to the murder of a 17-year-old Utah girl in 1974.`\
 https://nytimes.com/2026/04/01/us/what-to-know-about-ted-bundy-serial-killer.html
