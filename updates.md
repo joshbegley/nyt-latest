@@ -1,3 +1,11 @@
+**Birthright Citizenship’s Demise Would Affect Asians Disproportionately**\
+`A new study found that most babies born without citizenship would be Hispanic, but the biggest relative increase would be among babies born to Asian parents on visas.`\
+https://nytimes.com/2026/04/01/us/politics/birthright-citizenship-asian-immigrants.html
+
+**When Racism Is a Crime: Brazil Puts a Tourist on Trial for Word and Gesture**\
+`An Argentine woman, who is white, could face years in prison after being accused of racism. The case has set off intense debate in Argentina and Brazil.`\
+https://nytimes.com/2026/04/01/world/brazil-argentina-tourist-racism-trial.html
+
 **Forget the 14th Amendment. A 1952 law also takes on birthright citizenship.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2026/04/01/us/supreme-court-birthright-citizenship/forget-the-14th-amendment-a-1952-law-also-takes-on-birthright-citizenship
