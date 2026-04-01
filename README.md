@@ -18,6 +18,10 @@ https://nytimes.com/athletic/7161641/2026/04/01/colts-daniel-jones-shane-steiche
 `“Being at Stanford in itself is hard. Being on Stanford women’s golf is adding another gear to it.”`\
 https://nytimes.com/athletic/7161459/2026/04/01/stanford-augusta-national-womens-amateur-golf/
 
+**They combined for the greatest shot in March Madness history. It was years in the making**\
+`It was the stuff of driveway dreams: 4.7 seconds left, tie score, the 2016 men's college basketball national championship on the line.`\
+https://nytimes.com/athletic/7160592/2026/04/01/kris-jenkins-march-madness-villanova-greatest-shot/
+
 **Former umps watch their brethren deal with ABS and feel sympathy, pain**\
 `Umpires were once masters of their own domain. It has become more complicated of late. `\
 https://nytimes.com/athletic/7163482/2026/04/01/mlb-umpires-abs-system/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7161319/2026/04/01/mlb-mailbag-early-season-overrea
 **The New York Times International Edition in Print for Thursday, April 2, 2026**\
 ``\
 https://nytimes.com/issue/todaysinyt/2026/04/01/todays-new-york-times-international-edition
-
-**How to watch Nationals vs. Phillies: Time, TV, streaming for April 1**\
-`Find out how to watch the Washington Nationals play the Philadelphia Phillies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7163603/2026/04/01/nationals-vs-phillies-stream-how-to-watch-april-1/
 
