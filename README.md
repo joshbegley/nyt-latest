@@ -1,3 +1,11 @@
+**How to watch White Sox vs. Marlins: Time, TV, streaming for April 1**\
+`Find out how to watch the Chicago White Sox play the Miami Marlins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7163592/2026/04/01/white-sox-vs-marlins-stream-how-to-watch-april-1/
+
+**How to watch Rockies vs. Blue Jays: Time, TV, streaming for April 1**\
+`Find out how to watch the Colorado Rockies play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7163590/2026/04/01/rockies-vs-blue-jays-stream-how-to-watch-april-1/
+
 **One of Apple’s First Employees Looks Back at 50 Years**\
 `In 1976, 14-year-old Chris Espinosa rode a moped to his job demonstrating computers made in Steve Jobs’s childhood home. The company has changed a bit since then.`\
 https://nytimes.com/2026/04/01/technology/apple-employee-50-years.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/01/nyregion/world-cup-business-improvement-districts
 **Zendaya and Robert Pattinson on Marriage and Secrets**\
 `The stars of the new film, “The Drama,” debate the pros and cons of dredging up the past.`\
 https://nytimes.com/2026/04/01/podcasts/zendaya-robert-pattinson-the-drama.html
-
-**$650,000 Homes in Texas, Nebraska and Virginia**\
-`A brick bungalow in Houston, a renovated 1911 house in Omaha and a home with a rentable storefront space in Norfolk`\
-https://nytimes.com/2026/04/01/realestate/650000-dollar-homes-for-sale-in-houston-omaha-norfolk.html
-
-**Zendaya, Robert Pattinson and ‘The Drama’**\
-`Robert Pattinson and Zendaya sit down with the host of “Modern Love,” Anna Martin, to discuss the anxieties explored in their new film “The Drama.”`\
-https://nytimes.com/video/podcasts/100000010813869/01-zendaya-robert-pattinson-modern-love.html
 
