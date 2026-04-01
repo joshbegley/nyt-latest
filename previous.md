@@ -1,3 +1,27 @@
+**How to watch Blues vs. Kings: Time, TV, streaming**\
+`Find out how to watch the St. Louis Blues play the Los Angeles Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7164703/2026/04/01/blues-vs-kings-stream-how-to-watch-april-1/
+
+**How to watch Canucks vs. Avalanche: Time, TV, streaming**\
+`Find out how to watch the Vancouver Canucks play the Colorado Avalanche, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7164700/2026/04/01/canucks-vs-avalanche-stream-how-to-watch-april-1/
+
+**Roger McQueen, Anaheim Ducks' 2025 first-round pick, signs amateur tryout contract**\
+`Anaheim used the No. 10 pick on McQueen in 2025, and then he played at Providence.`\
+https://nytimes.com/athletic/7154835/2026/04/01/roger-mcqueen-anaheim-ducks-contract/
+
+**How to watch Guardians vs. Dodgers: Time, TV, streaming for April 1**\
+`Find out how to watch the Cleveland Guardians play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7164679/2026/04/01/guardians-vs-dodgers-stream-how-to-watch-april-1/
+
+**How to watch Twins vs. Royals: Time, TV, streaming for April 1**\
+`Find out how to watch the Minnesota Twins play the Kansas City Royals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7164674/2026/04/01/twins-vs-royals-stream-how-to-watch-april-1/
+
+**Reid Wiseman, a Veteran Fighter Pilot, Is the Artemis II Commander**\
+`As a child, Mr. Wiseman never imagined he could be an astronaut. Now he’s commanding NASA’s first mission to the moon since 1972.`\
+https://nytimes.com/2026/04/01/science/space/reid-wiseman-artemis-ii-commander.html
+
 **Fosse! Robbins! Making the Case for Vintage Broadway Dance**\
 `Hubbard Street Dance Chicago and the Off Broadway revue “Gotta Dance!” shine a light on repertory that is too often overlooked.`\
 https://nytimes.com/2026/04/01/arts/dance/hubbard-street-dance-chicago-gotta-dance-broadway-fosse.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7164636/2026/04/01/nuggets-vs-jazz-stream-how-to-wa
 **The Best Movies and TV Shows Coming to Netflix in April**\
 `New shows of note this month include a new season of “Beef” and an animated “Stranger Things” spinoff.`\
 https://nytimes.com/2026/04/01/arts/television/new-netflix-april-2026.html
-
-**Moise Bombito opens up on his fight to return from injury in time for World Cup**\
-`The Canadian defender's recovery from a broken leg has provided challenges, both physical and emotional`\
-https://nytimes.com/athletic/7163356/2026/04/01/moise-bombito-canada-world-cup/
-
-**Josefina Aguilar, Who Depicted Mexican Life in Clay, Dies at 80**\
-`Her sculpted figurines were hailed as exemplars of folk art, drawing a Rockefeller’s admiration. She continued her artistry even after losing her eyesight.`\
-https://nytimes.com/2026/04/01/arts/josefina-aguilar-dead.html
-
-**A Supreme Court Ruling for a Discredited Therapy**\
-`Readers discuss the justices’ decision on gay conversion therapy. Also: An immigrant’s story; a list of Jews at Penn?`\
-https://nytimes.com/2026/04/01/opinion/supreme-court-gay-conversion-therapy.html
-
-**Leeds post English football's ninth-highest commercial income and record turnover but also £49.2m loss in accounts**\
-`The Elland Road club posted impressive revenues and commercial income despite making an overall pre-tax loss`\
-https://nytimes.com/athletic/7163813/2026/04/01/leeds-2024-25-accounts-analysis/
-
-**‘I Don’t Care About That’: Trump Says Iran’s Enriched Uranium Is Not a Concern**\
-`President Trump’s statement was the second time in 24 hours that he had declared that the nuclear problem with Iran had been solved, despite all evidence to the contrary.`\
-https://nytimes.com/2026/04/01/us/politics/trump-iran-war-nuclear-uranium.html
-
-**F.D.A. Approves New Obesity Pill**\
-`The drug, made by Eli Lilly, could offer a more convenient option for patients who want to avoid injections.`\
-https://nytimes.com/2026/04/01/well/fda-obesity-pill-orfoglipron.html
 

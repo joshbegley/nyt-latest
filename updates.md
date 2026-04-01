@@ -1,3 +1,27 @@
+**How to watch Blues vs. Kings: Time, TV, streaming**\
+`Find out how to watch the St. Louis Blues play the Los Angeles Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7164703/2026/04/01/blues-vs-kings-stream-how-to-watch-april-1/
+
+**How to watch Canucks vs. Avalanche: Time, TV, streaming**\
+`Find out how to watch the Vancouver Canucks play the Colorado Avalanche, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7164700/2026/04/01/canucks-vs-avalanche-stream-how-to-watch-april-1/
+
+**Roger McQueen, Anaheim Ducks' 2025 first-round pick, signs amateur tryout contract**\
+`Anaheim used the No. 10 pick on McQueen in 2025, and then he played at Providence.`\
+https://nytimes.com/athletic/7154835/2026/04/01/roger-mcqueen-anaheim-ducks-contract/
+
+**How to watch Guardians vs. Dodgers: Time, TV, streaming for April 1**\
+`Find out how to watch the Cleveland Guardians play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7164679/2026/04/01/guardians-vs-dodgers-stream-how-to-watch-april-1/
+
+**How to watch Twins vs. Royals: Time, TV, streaming for April 1**\
+`Find out how to watch the Minnesota Twins play the Kansas City Royals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7164674/2026/04/01/twins-vs-royals-stream-how-to-watch-april-1/
+
+**Reid Wiseman, a Veteran Fighter Pilot, Is the Artemis II Commander**\
+`As a child, Mr. Wiseman never imagined he could be an astronaut. Now he’s commanding NASA’s first mission to the moon since 1972.`\
+https://nytimes.com/2026/04/01/science/space/reid-wiseman-artemis-ii-commander.html
+
 **Fosse! Robbins! Making the Case for Vintage Broadway Dance**\
 `Hubbard Street Dance Chicago and the Off Broadway revue “Gotta Dance!” shine a light on repertory that is too often overlooked.`\
 https://nytimes.com/2026/04/01/arts/dance/hubbard-street-dance-chicago-gotta-dance-broadway-fosse.html

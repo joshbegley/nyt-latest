@@ -1,3 +1,11 @@
+**SpaceX Files to Go Public, Setting Stage for Huge I.P.O.**\
+`An initial public offering of Elon Musk’s rocket and satellite company would most likely be a generational wealth event and one of the largest offerings ever.`\
+https://nytimes.com/2026/04/01/technology/spacex-ipo-elon-musk.html
+
+**How to watch Ducks vs. Sharks: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the San Jose Sharks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7164708/2026/04/01/ducks-vs-sharks-stream-how-to-watch-april-1/
+
 **How to watch Blues vs. Kings: Time, TV, streaming**\
 `Find out how to watch the St. Louis Blues play the Los Angeles Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7164703/2026/04/01/blues-vs-kings-stream-how-to-watch-april-1/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/01/arts/dance/hubbard-street-dance-chicago-gotta-dan
 **UConn stars lead women’s MOP odds, but last year’s winner isn’t the favorite**\
 `UConn's Azzi Fudd won Most Outstanding Player last year, but teammate Sarah Strong is favored to win it this year.`\
 https://nytimes.com/athletic/7164464/2026/04/01/womens-most-outstanding-player-odds-strong-fudd-booker-betts/
-
-**How to watch Nuggets vs. Jazz: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the Utah Jazz, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7164636/2026/04/01/nuggets-vs-jazz-stream-how-to-watch-april-1/
-
-**The Best Movies and TV Shows Coming to Netflix in April**\
-`New shows of note this month include a new season of “Beef” and an animated “Stranger Things” spinoff.`\
-https://nytimes.com/2026/04/01/arts/television/new-netflix-april-2026.html
 
