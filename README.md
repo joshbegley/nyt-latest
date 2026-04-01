@@ -1,3 +1,7 @@
+**F.D.A. Approves New Obesity Pill**\
+`The drug, made by Eli Lilly, could offer a more convenient option for patients who want to avoid injections.`\
+https://nytimes.com/2026/04/01/well/fda-obesity-pill-orfoglipron.html
+
 **How to watch Bucks vs. Rockets: Time, TV, streaming**\
 `Find out how to watch the Milwaukee Bucks play the Houston Rockets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7164547/2026/04/01/bucks-vs-rockets-stream-how-to-watch-april-1/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/before-arte
 **My Friend Wrote a Book About Her Trauma. Do I Have to Read It?**\
 `She told me that anyone who won’t read her book is not her friend and that I am contributing to the greater problem in the world.`\
 https://nytimes.com/2026/04/01/magazine/friend-trauma-book-ethics.html
-
-**Megan Thee Stallion Falls Ill on Broadway, Leaving Run in Question**\
-`The rapper was rushed to the hospital midway through a performance of “Moulin Rouge! The Musical” on Tuesday. She is expected to miss shows on Wednesday.`\
-https://nytimes.com/2026/04/01/theater/megan-thee-stallion-hospital-moulin-rouge-broadway.html
 
