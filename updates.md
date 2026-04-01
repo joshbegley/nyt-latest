@@ -1,3 +1,7 @@
+**Appeals Court Stops V.O.A. Journalists From Quickly Returning**\
+`A panel of three judges halted the lower court order to reinstate all full-time Voice of America reporters and support staff who had been put on paid leave.`\
+https://nytimes.com/2026/03/31/us/politics/appeals-court-stops-voa-journalists-from-quickly-returning.html
+
 **One of the NFL's first female officials sues league over treatment, firing**\
 `The NFL called the lawsuit "baseless" and said DeLorenzo was terminated following three seasons of documented underperformance.`\
 https://nytimes.com/athletic/7162700/2026/03/31/nfl-female-official-lawsuit/

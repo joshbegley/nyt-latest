@@ -1,3 +1,7 @@
+**Appeals Court Stops V.O.A. Journalists From Quickly Returning**\
+`A panel of three judges halted the lower court order to reinstate all full-time Voice of America reporters and support staff who had been put on paid leave.`\
+https://nytimes.com/2026/03/31/us/politics/appeals-court-stops-voa-journalists-from-quickly-returning.html
+
 **One of the NFL's first female officials sues league over treatment, firing**\
 `The NFL called the lawsuit "baseless" and said DeLorenzo was terminated following three seasons of documented underperformance.`\
 https://nytimes.com/athletic/7162700/2026/03/31/nfl-female-official-lawsuit/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/31/us/politics/trump-nuclear-threat-iran.html
 **Trump Administration Acted Illegally With Homeless Grants Program, Judge Rules**\
 `A federal judge in Rhode Island said that the administration had wrongly demanded that groups seeking grants comply with its agenda on other issues, including immigration.`\
 https://nytimes.com/2026/03/31/us/politics/trump-homelessness-program-judge.html
-
-**Roger Goodell says NFL's Rooney Rule isn't going anywhere, addresses ref negotiations**\
-`While Florida's Attorney General has claimed the Rooney Rule violates state law, Goodell pointed out the policy is not a hiring mandate.`\
-https://nytimes.com/athletic/7162634/2026/03/31/roger-goodell-nfl-meetings-rooney-rule-referees/
 
