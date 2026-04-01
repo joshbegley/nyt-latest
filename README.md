@@ -1,3 +1,11 @@
+**The 76-year-old European Cup-winning captain still training with Nottingham Forest**\
+`In a season that has seen four different permanent managers, John McGovern has been a welcome and comforting presence on the training pitch`\
+https://nytimes.com/athletic/7158389/2026/04/01/nottingham-forest-john-mcgovern-training-ground/
+
+**Inspired by Ronaldo, watched by Palmer: How Kavuma-McQueen became Chelsea’s latest rising star**\
+`Ryan Kavuma-McQueen is making a name for himself at Cobham, and Saturday's FA Cup tie is looking like his next possibility for game time`\
+https://nytimes.com/athletic/7152338/2026/04/01/ryan-kavuma-mcqueen-chelsea-ronaldo-palmer/
+
 **Tuchel's World Cup formula? England - Kane = Disaster**\
 `Praying his captain and talismanic striker is fully fit seems the head coach's best chance of success this summer`\
 https://nytimes.com/athletic/7160839/2026/04/01/england-harry-kane-world-cup/
@@ -6,7 +14,7 @@ https://nytimes.com/athletic/7160839/2026/04/01/england-harry-kane-world-cup/
 `After a dismal run in the qualifiers, Viktor Gyokores and Sweden finally clicked in the playoffs to reach the finals this summer `\
 https://nytimes.com/athletic/7162454/2026/04/01/viktor-gyokeres-sweden-world-cupm-playoff/
 
-**Phillies' Andrew Painter impresses in long-awaited MLB debut**\
+**Phillies' Andrew Painter dazzles in long-awaited MLB debut**\
 `The hype was dialed to another level. Then, afterward, the Phillies could see through the clouds that followed Painter for three years. `\
 https://nytimes.com/athletic/7162959/2026/04/01/andrew-painter-phillies-mlb-debut-nationals/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7162232/2026/04/01/wales-northern-ireland-fifa-frie
 **Haaland is misfiring and Odegaard is absent. Should Norway be worried?**\
 `Norwegians are celebrating qualification for a first major finals in 26 years, but they will need their best players if they are to thrive`\
 https://nytimes.com/athletic/7162150/2026/04/01/haaland-odegaard-norway-world-cup-bobb/
-
-**Turkey fans have a message for the USMNT at the World Cup: 'We are coming for you'**\
-`Turkey edged past Kosovo at Pristina’s Fadil Vokrri Stadium to secure passage to a first World Cup since they finished third back in 2002`\
-https://nytimes.com/athletic/7162205/2026/04/01/turkey-usmnt-kosovo-world-cup-fans/
-
-**Cape Town Housing Is Booming. Many Residents Are Unhappy About It.**\
-`A shortage of affordable housing in the coastal city in South Africa has forced many people to live far outside the city center, while tourists occupy prime real estate.`\
-https://nytimes.com/2026/04/01/world/africa/cape-town-housing-crisis.html
 
