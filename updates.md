@@ -1,3 +1,19 @@
+**Pulisic's U.S. goal drought continues, but he maintains 'things are gonna click'**\
+`Pulisic has now gone eight straight U.S. matches without a goal and endured a frustrating March window`\
+https://nytimes.com/athletic/7163052/2026/04/01/christian-pulisic-goals-drought-usmnt-portugal-world-cup/
+
+**The 76-year-old European Cup-winning captain still training with Nottingham Forest**\
+`In a season that has seen four different permanent managers, John McGovern has been a welcome and comforting presence on the training pitch`\
+https://nytimes.com/athletic/7158389/2026/04/01/nottingham-forest-john-mcgovern-training-ground/
+
+**Inspired by Ronaldo, watched by Palmer: How Kavuma-McQueen became Chelsea’s latest rising star**\
+`Ryan Kavuma-McQueen is making a name for himself at Cobham, and Saturday's FA Cup tie is looking like his next possibility for game time`\
+https://nytimes.com/athletic/7152338/2026/04/01/ryan-kavuma-mcqueen-chelsea-ronaldo-palmer/
+
+**Phillies' Andrew Painter dazzles in long-awaited MLB debut**\
+`The hype was dialed to another level. Then, afterward, the Phillies could see through the clouds that followed Painter for three years. `\
+https://nytimes.com/athletic/7162959/2026/04/01/andrew-painter-phillies-mlb-debut-nationals/
+
 **Tuchel's World Cup formula? England - Kane = Disaster**\
 `Praying his captain and talismanic striker is fully fit seems the head coach's best chance of success this summer`\
 https://nytimes.com/athletic/7160839/2026/04/01/england-harry-kane-world-cup/
