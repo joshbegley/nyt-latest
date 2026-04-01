@@ -1,3 +1,11 @@
+**NFL ending 'Monday Night Football' doubleheaders, exploring Thanksgiving Eve game**\
+`The NFL will redistribute the five games in standalone windows.`\
+https://nytimes.com/athletic/7162393/2026/03/31/nfl-ending-monday-night-football-doubleheaders-exploring-adding-thanksgiving-eve-game/
+
+**Trump Signs Order Seeking Federal Control of Mail Voting as He Promotes False Claims**\
+`Election experts and Democratic officials called the order legally invalid, and Arizona and Oregon pledged to immediately challenge it in court.`\
+https://nytimes.com/2026/03/31/us/politics/trump-mail-in-ballots-voting-executive-order.html
+
 **Which Blue Jays must step up after Cody Ponce's ACL injury**\
 `Ponce will miss significant time, leaving a spot in the rotation for Toronto to fill. Here are pitchers who can fill that role.`\
 https://nytimes.com/athletic/7162313/2026/03/31/blue-jays-cody-ponce-acl-injury-fill-in/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7161492/2026/03/31/new-york-mets-jd-martinez-front-
 **Tugboat Captain Is Charged in Miami Beach Crash That Killed 3 Children**\
 `Six people, including a camp counselor, were thrown into the water on July 28 when their sailboat was struck by a barge that was being pushed by a tugboat, the authorities said.`\
 https://nytimes.com/2026/03/31/us/miami-sailboat-crash-biscayne-bay-manslaughter.html
-
-**Judge Dismisses Lawsuit That Challenged Ban on Endorsements by Churches**\
-`Conservatives had expected a victory in the case after the I.R.S. agreed to a settlement that allowed churches to voice support for candidates.`\
-https://nytimes.com/2026/03/31/us/politics/judge-johnson-amendment-settlement.html
-
-**LeBrun: Keith Pelley's tell and what it means for the future of the Maple Leafs**\
-`The MLSE president and CEO hinted that the Leafs don't have the stomach for a rebuild, which will shape the list of front-office candidates.`\
-https://nytimes.com/athletic/7162202/2026/03/31/keith-pelley-maple-leafs-retool-rebuild/
 

@@ -1,3 +1,7 @@
+**Which Blue Jays must step up after Cody Ponce's ACL injury**\
+`Ponce will miss significant time, leaving a spot in the rotation for Toronto to fill. Here are pitchers who can fill that role.`\
+https://nytimes.com/athletic/7162313/2026/03/31/blue-jays-cody-ponce-acl-injury-fill-in/
+
 **Elena Delle Donne, Mark Few among inductees for 2026 Hall of Fame class: Sources**\
 `Delle Donne, one of the best shooters in WNBA history, and Few, college basketball's winningest coach by win percentage, will be inducted.`\
 https://nytimes.com/athletic/7161860/2026/03/31/elena-delle-donne-mark-few-hall-of-fame-2026/
