@@ -1,3 +1,7 @@
+**What to Know About Ted Bundy, the Notorious Serial Killer**\
+`On Wednesday, the authorities said DNA evidence had linked Mr. Bundy, who was executed in 1989, to the murder of a 17-year-old Utah girl in 1974.`\
+https://nytimes.com/2026/04/01/us/what-to-know-about-ted-bundy-serial-killer.html
+
 **Phillies takeaways: Justin Crawford's walk-off, ABS strategy, Zack Wheeler update**\
 `The Phillies, among the oldest teams last season, have witnessed two magical moments from their youngest players in the past two games.`\
 https://nytimes.com/athletic/7165336/2026/04/01/phillies-takeaways-justin-crawford-zack-wheeler-rehab/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/01/us/politics/trump-pam-bondi-future.html
 **Goodbye ‘Geeky Hunk’? Gmail Users Can Now Change Their Usernames.**\
 `Users who have been saddled with now-cringe email handles since the mid-2000s can now change them without losing any data under a policy Google announced on Wednesday.`\
 https://nytimes.com/2026/04/01/technology/gmail-change-email-address-google.html
-
-**Mahmoud Khalil Asks Emil Bove to Recuse Himself From Immigration Case**\
-`Mr. Khalil, who is fighting his deportation, and Judge Bove were on opposite sides of President Trump’s crackdown on campus protesters when the judge was a Justice Department official.`\
-https://nytimes.com/2026/04/01/nyregion/mahmoud-khalil-columbia-appeal.html
 
