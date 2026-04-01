@@ -1,3 +1,11 @@
+**Astros' Cam Smith swung at strike three. Instead, he walked in bizarre mishap**\
+`Both MLB Gameday and Baseball Savant labeled Bello’s third pitch as a ball, though video showed Smith swinging and missing. `\
+https://nytimes.com/athletic/7162829/2026/03/31/astros-red-sox-cam-smith-missed-strike-three/
+
+**Pochettino says World Cup roster picks will be 'painful' after Portugal loss**\
+`May 26 is decision day for Pochettino to name his final World Cup roster`\
+https://nytimes.com/athletic/7162814/2026/03/31/pochettino-usmnt-world-cup-roster-painful-portugal/
+
 **Leave Undisturbed**\
 `Jess Shulman and Amie Walker’s crossword? It’s kind of an inside joke.`\
 https://nytimes.com/2026/03/31/crosswords/daily-puzzle-2026-04-01.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7162634/2026/03/31/roger-goodell-nfl-meetings-roone
 **USA 0, Portugal 2: Decisive loss, Pulisic struggles cap last pre-World Cup window**\
 `The U.S. made multiple tweaks but fell to a second straight European power in similar fashion, leaving much to do as the World Cup nears`\
 https://nytimes.com/athletic/7162351/2026/03/31/usmnt-portugal-friendly-score-result-pulisic-pochettino/
-
-**Eagles owner Jeffrey Lurie on Jalen Hurts: ‘There’s no bigger fan than me’**\
-`Comments on Hurts come as quarterback remains the 10th-highest-paid at his position.`\
-https://nytimes.com/athletic/7162635/2026/03/31/eagles-owner-jeffrey-lurie-jalen-hurts-contract/
-
-**Editors’ Note: April 1, 2026**\
-`The following Editors’ Note and corrections appeared in print on Wednesday, April 1, 2026.`\
-https://nytimes.com/2026/03/31/pageoneplus/editors-note-april-1-2026.html
 
