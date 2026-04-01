@@ -1,3 +1,7 @@
+**U.S. Is Weighing Leaving NATO, Trump Says**\
+`In an interview with The Telegraph, a British newspaper, President Trump said that he was considering pulling the United States out of NATO alliance over the war in Iran.`\
+https://nytimes.com/video/world/middleeast/100000010814558/trump-us-leaving-nato.html
+
 **The ‘Constitutional Bedrock’ Trump Is Trying to Erase**\
 `Trump is on a mission to eliminate birthright citizenship, a right long thought to be guaranteed by the 14th Amendment of the Constitution. But how will the Supreme Court respond? The legal journalist Cristian Farias shares his insights.`\
 https://nytimes.com/video/opinion/100000010811212/the-constitutional-bedrock-trump-is-trying-to-erase.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/01/us/politics/trump-supreme-court-visit.html
 **The night Bosnia and Herzegovina found new heroes**\
 `Years from now, even the walls will speak of that night at the Bilino Polje`\
 https://nytimes.com/athletic/7163891/2026/04/01/bosnia-herzegovina-world-cup-qualification-celebration-italy/
-
-**Cecillia Wang, the A.C.L.U. lawyer, is a birthright citizen.**\
-`She has spent much of her career defending immigrants’ rights in America.`\
-https://nytimes.com/live/2026/04/01/us/supreme-court-birthright-citizenship/cecillia-wang-the-aclu-lawyer-is-a-birthright-citizen
 
