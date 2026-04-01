@@ -1,3 +1,11 @@
+**Chelsea announce largest pre-tax loss in English football history**\
+`The club are yet to release their full accounts for 2024-25 but announced a £262.4million deficit for that period on Wednesday.`\
+https://nytimes.com/athletic/7164314/2026/04/01/chelsea-accounts-loss-latest/
+
+**Can Trump declare that his birthright rules apply only in the future?**\
+`By Adam Liptak`\
+https://nytimes.com/live/2026/04/01/us/supreme-court-birthright-citizenship/can-trump-declare-that-his-birthright-rules-apply-only-in-the-future
+
 **Birthright Citizenship Plan Faces Costly Verification Hurdles**\
 `Experts warn that enforcing President Trump’s order to limit birthright citizenship would require building an expensive and fragmented verification system.`\
 https://nytimes.com/2026/04/01/us/politics/trump-birthright-citizenship-verification-cost-records-system.html
