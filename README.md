@@ -1,3 +1,7 @@
+**Without the U.S., What Would Happen to NATO?**\
+`Losing its most powerful member would change the alliance fundamentally. But President Trump can’t pull the United States out of it unless Congress approves.`\
+https://nytimes.com/live/2026/04/01/world/iran-war-trump-oil-news/without-the-us-what-would-happen-to-nato
+
 **How to watch Yankees vs. Mariners: Time, TV, streaming for April 1**\
 `Find out how to watch the New York Yankees play the Seattle Mariners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7164143/2026/04/01/yankees-vs-mariners-stream-how-to-watch-april-1/
@@ -30,11 +34,7 @@ https://nytimes.com/live/2026/04/01/us/supreme-court-birthright-citizenship/ceci
 `By Abbie VanSickle`\
 https://nytimes.com/live/2026/04/01/us/supreme-court-birthright-citizenship/heres-the-latest
 
-**Live Updates: Trump Will Attend Supreme Court Arguments in Birthright Citizenship Case**\
-`President Trump’s executive order, which was blocked by lower courts, would stop children of undocumented immigrants or temporary residents from automatically being Americans.`\
+**Live Updates: Trump Says He’ll Attend Supreme Court Arguments in Birthright Citizenship Case**\
+`President Trump’s executive order would stop children of undocumented immigrants or temporary residents from automatically being Americans. No sitting president has attended a Supreme Court argument before.`\
 https://nytimes.com/live/2026/04/01/us/supreme-court-birthright-citizenship
-
-**Home of Beloved New York Art Collector Hits the Market**\
-`The Manhattan townhouse where Barbara Jakobson hosted art world luminaries for decades is for sale for $9.8 million.`\
-https://nytimes.com/2026/04/01/realestate/barbara-jakobson-home-for-sale.html
 
