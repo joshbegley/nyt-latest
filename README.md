@@ -1,3 +1,15 @@
+**Immigrant Families Watch Supreme Court Case With Cautious Hope**\
+`As the high court heard arguments on whether to limit birthright citizenship, many people pondered what the decision could mean for future generations.`\
+https://nytimes.com/2026/04/01/us/politics/immigrant-reactions-supreme-court-birthright-citizenship.html
+
+**Robo-ump delivers first walk-off challenge as Orioles appeal final strike**\
+`The automated ball-strike challenge system revealed that a fastball from Albert Suárez was in the strike zone. `\
+https://nytimes.com/athletic/7165194/2026/04/01/mlb-abs-challenge-walkoff-orioles-rangers/
+
+**Migrating American Woodcocks Set Off a Birding Frenzy in Bryant Park**\
+`American woodcocks, also known as timberdoodles, are bopping and shimmying through the park, charming visitors during a pit stop on their northerly migration.`\
+https://nytimes.com/2026/04/01/nyregion/american-woodcock-bryant-park-nyc.html
+
 **Trump’s Endgame in Iran?**\
 `We look at what has changed, and what hasn’t, as a result of the joint U.S.-Israeli war against Iran.`\
 https://nytimes.com/2026/04/01/world/trump-iran-speech-artemis-moon-launch-cape-town-housing.html
@@ -21,20 +33,4 @@ https://nytimes.com/2026/04/01/t-magazine/favorite-gardening-tools.html
 **Library Director in Tennessee Fired for Refusing to Move Gender-Themed Books**\
 `The director, Luanne James, was fired at a board meeting for the Rutherford County Library System on Monday after she refused to move certain books to the adult section.`\
 https://nytimes.com/2026/04/01/us/tennessee-library-luanne-james-firing.html
-
-**G.M. Reports Sharp Decline in Car Sales Amid War and High Prices**\
-`Toyota, Honda and Hyundai reported drops in March. Some blamed gasoline prices.`\
-https://nytimes.com/2026/04/01/business/gm-toyota-hyundai-honda-sales.html
-
-**Tiger Woods granted leave for inpatient treatment outside country**\
-`Woods' attorney argued he has an “urgent need for a level of care that cannot safely or effectively be done within the United States.”`\
-https://nytimes.com/athletic/7165123/2026/04/01/tiger-woods-leave-country-inpatient-treatment/
-
-**The D.H.S. shutdown is the longest in history.**\
-`By Ashley Wu`\
-https://nytimes.com/live/2026/04/01/us/trump-news/the-dhs-shutdown-is-the-longest-in-history
-
-**Pipe Bomb Defendant Says He May Adopt Debunked Account as Defense**\
-`Court papers show that Brian Cole Jr.’s lawyers might seek to blame a former Capitol Police officer whose name first surfaced in a right-wing media account and whom the F.B.I. briefly investigated.`\
-https://nytimes.com/2026/04/01/us/politics/pipe-bomb-jan-6.html
 
