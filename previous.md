@@ -1,3 +1,7 @@
+**Meet Sheel Tyle, the new local Blazers co-owner intent on keeping the team in Portland**\
+`In the 56-year history of the Blazers, the 34-year-old Teel joins founder Harry Glickman as the only Oregonians to stake an ownership claim.`\
+https://nytimes.com/athletic/7143606/2026/04/01/meet-sheel-tyle-the-new-local-blazers-co-owner-intent-on-keeping-the-team-in-portland/
+
 **Seventy thoughts on 70 key Michigan players: How is Kyle Whittingham's roster shaping up?**\
 `Who's back at Michigan and who's new under a new coaching staff? Here's what you need to know about the football roster for 2026.`\
 https://nytimes.com/athletic/7160581/2026/04/01/michigan-football-roster-spring-starters/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7163150/2026/04/01/canada-world-cup-group-bosnia-he
 **UEFA lobbying FIFA to increase World Cup prize money amid cost concerns**\
 `Some national associations are warning of potential losses should they not advance into the final eight of this summer's tournament.`\
 https://nytimes.com/athletic/7163394/2026/04/01/fifa-world-cup-costs-prize-money-uefa/
-
-**Playoffs? The Jets? Breaking down their remaining schedule**\
-`What we can learn by examining the remaining schedule of all of the teams competing for the West's second wild-card spot.`\
-https://nytimes.com/athletic/7158872/2026/04/01/winnipeg-jets-playoffs-remaining-schedule/
 

@@ -1,3 +1,7 @@
+**Meet Sheel Tyle, the new local Blazers co-owner intent on keeping the team in Portland**\
+`In the 56-year history of the Blazers, the 34-year-old Teel joins founder Harry Glickman as the only Oregonians to stake an ownership claim.`\
+https://nytimes.com/athletic/7143606/2026/04/01/meet-sheel-tyle-the-new-local-blazers-co-owner-intent-on-keeping-the-team-in-portland/
+
 **Seventy thoughts on 70 key Michigan players: How is Kyle Whittingham's roster shaping up?**\
 `Who's back at Michigan and who's new under a new coaching staff? Here's what you need to know about the football roster for 2026.`\
 https://nytimes.com/athletic/7160581/2026/04/01/michigan-football-roster-spring-starters/
