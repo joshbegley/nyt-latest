@@ -1,3 +1,11 @@
+**Leave Undisturbed**\
+`Jess Shulman and Amie Walker’s crossword? It’s kind of an inside joke.`\
+https://nytimes.com/2026/03/31/crosswords/daily-puzzle-2026-04-01.html
+
+**Bomb Shelters and a Drone-Proof Roof: Trump Says Ballroom Is a Matter of Security**\
+`President Trump spoke about his ballroom’s security features as he argued against a judge’s orders to stop construction.`\
+https://nytimes.com/2026/03/31/us/politics/trump-ballroom-underground-security.html
+
 **Goalies Igor Shesterkin, Jacob Markström drop the gloves for fight at MSG**\
 `Shesterkin and Markström were given two-minute penalties for leaving the crease and five minutes for fighting.`\
 https://nytimes.com/athletic/7162764/2026/03/31/nhl-goalie-fight-igor-shesterkin-jacob-markstrom/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7162635/2026/03/31/eagles-owner-jeffrey-lurie-jalen
 **Editors’ Note: April 1, 2026**\
 `The following Editors’ Note and corrections appeared in print on Wednesday, April 1, 2026.`\
 https://nytimes.com/2026/03/31/pageoneplus/editors-note-april-1-2026.html
-
-**Israel Strikes Tehran Pharmaceutical Plant, Claiming Military Link**\
-`Iran’s foreign minister, Abbas Araghchi, said on Tuesday that Israel was “openly and unashamedly bombing pharmaceutical companies.”`\
-https://nytimes.com/2026/03/31/world/middleeast/tehran-pharmaceutical-strike-israel.html
-
-**In South Dakota, Neighbors Feel Sorry for Kristi Noem’s Husband**\
-`In the tiny town of Castlewood, S.D., where everyone knows the Noems, the prevailing sense was that people can’t help but feel bad for Bryon Noem after a tabloid photo leak.`\
-https://nytimes.com/2026/03/31/us/politics/kristi-noem-husband-photos-daily-mail.html
 
