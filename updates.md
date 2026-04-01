@@ -1,3 +1,7 @@
+**Goalies Igor Shesterkin, Jacob Markström drop the gloves for fight at MSG**\
+`Shesterkin and Markström were given two-minute penalties for leaving the crease and five minutes for fighting.`\
+https://nytimes.com/athletic/7162764/2026/03/31/nhl-goalie-fight-igor-shesterkin-jacob-markstrom/
+
 **Trump Says U.S. Will Be Out of Iran Within Two to Three Weeks**\
 `The White House said the president would address the nation about Iran on Wednesday evening.`\
 https://nytimes.com/2026/03/31/us/politics/trump-says-us-will-be-out-of-iran-within-two-to-three-weeks.html
