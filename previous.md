@@ -1,9 +1,13 @@
+**Seventy thoughts on 70 key Michigan players: How is Kyle Whittingham's roster shaping up?**\
+`Who's back at Michigan and who's new under a new coaching staff? Here's what you need to know about the football roster for 2026.`\
+https://nytimes.com/athletic/7160581/2026/04/01/michigan-football-roster-spring-starters/
+
 **Here’s the latest.**\
 `By Kenneth Chang and Katrina Miller`\
 https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/heres-the-latest
 
 **Live Updates: NASA’s Artemis II Moon Launch Countdown Begins**\
-`Four astronauts — three Americans and one Canadian — are preparing to launch on the first crewed journey to the moon since 1972. But they will not land there on this mission.`\
+`Four astronauts — three Americans and one Canadian — are scheduled to launch at 6:24 p.m. Eastern on the first crewed journey to the moon since 1972. But they will not land there on this mission.`\
 https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch
 
 **Andrew Painter's supporters bask in a big-league debut that brings back memories**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7163394/2026/04/01/fifa-world-cup-costs-prize-money
 **Playoffs? The Jets? Breaking down their remaining schedule**\
 `What we can learn by examining the remaining schedule of all of the teams competing for the West's second wild-card spot.`\
 https://nytimes.com/athletic/7158872/2026/04/01/winnipeg-jets-playoffs-remaining-schedule/
-
-**Who was the last quarterback signed, developed and retained by each ACC team?**\
-`Every college football program in the country preaches development. But how many really mean it — especially at the QB position?`\
-https://nytimes.com/athletic/7160474/2026/04/01/college-football-quarterbacks-acc-recruiting/
 

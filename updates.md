@@ -1,3 +1,11 @@
+**Seventy thoughts on 70 key Michigan players: How is Kyle Whittingham's roster shaping up?**\
+`Who's back at Michigan and who's new under a new coaching staff? Here's what you need to know about the football roster for 2026.`\
+https://nytimes.com/athletic/7160581/2026/04/01/michigan-football-roster-spring-starters/
+
+**Live Updates: NASA’s Artemis II Moon Launch Countdown Begins**\
+`Four astronauts — three Americans and one Canadian — are scheduled to launch at 6:24 p.m. Eastern on the first crewed journey to the moon since 1972. But they will not land there on this mission.`\
+https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch
+
 **Here’s the latest.**\
 `By Kenneth Chang and Katrina Miller`\
 https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/heres-the-latest
