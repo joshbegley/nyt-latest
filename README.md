@@ -1,3 +1,11 @@
+**Lamine Yamal, Spain's 'worldwide shame' and how anti-Muslim chants forced him to speak out**\
+`An unsavoury chant has cast a shadow over Spain, just as an exciting team led by Yamal prepare for this summer's World Cup`\
+https://nytimes.com/athletic/7164199/2026/04/01/lamine-yamal-spain-anti-muslim-chants/
+
+**Can Science Predict When a Study Won’t Hold Up?**\
+`Conducting research is hard; confirming the results is, too. And artificial intelligence isn’t yet ready to help, a major new study finds.`\
+https://nytimes.com/2026/04/01/science/ai-experiments-replication.html
+
 **Under Trump’s Approach to Birthright Citizenship, ‘Foundlings’ Given Up for Adoption Could Be Stateless**\
 `Abandoned infants would have to produce evidence that at least one of their biological parents was a U.S. citizen or lawful permanent resident.`\
 https://nytimes.com/2026/04/01/us/politics/birthright-citizenship-foundlings.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7164222/2026/04/01/manchester-united-pre-season-fri
 **Trump’s War Is Perpetually ‘Ahead of Schedule’**\
 `In Iran, the schedule is our most malleable illusion.`\
 https://nytimes.com/2026/04/01/opinion/trump-hegseth-rubio-iran-war.html
-
-**Coming to New York City Ballet: Retirements, a Rarity and ‘Romeo’**\
-`Two principal dancers will say farewell in the 2026-27 season, which features the revival of Balanchine’s “Pithoprakta” and Alexei Ratmansky’s “Romeo and Juliet.”`\
-https://nytimes.com/2026/04/01/arts/dance/new-york-city-ballet-season.html
-
-**Why Everyone Wants to Be ‘High Agency’ Now**\
-`The term “high agency” is an ethos for a gambler’s time.`\
-https://nytimes.com/2026/04/01/opinion/high-agency-silicon-valley.html
 
