@@ -1,3 +1,11 @@
+**Israel’s Message to Southern Lebanon: Shiites Must Go**\
+`Israel has issued sweeping evacuation warnings, and pressed some Christian and Druse leaders to expel Shiite Muslims from their towns, the leaders said.`\
+https://nytimes.com/2026/04/01/world/middleeast/lebanon-shiite-israel-evacuation.html
+
+**Keep Calm and Maybe Take Public Transit: Australia Confronts Oil Shock**\
+`Prime Minister Anthony Albanese made the plea to not panic over higher fuel prices in a rare national address on Wednesday.`\
+https://nytimes.com/2026/04/01/world/asia/australia-albanese-fuel-speech.html
+
 **They combined for the greatest shot in March Madness history. It was years in the making**\
 `It was the stuff of driveway dreams: 4.7 seconds left, tie score, the 2016 men's college basketball national championship on the line.`\
 https://nytimes.com/athletic/7160592/2026/04/01/kris-jenkins-march-madness-villanova-greatest-shot/

@@ -1,3 +1,11 @@
+**Israel’s Message to Southern Lebanon: Shiites Must Go**\
+`Israel has issued sweeping evacuation warnings, and pressed some Christian and Druse leaders to expel Shiite Muslims from their towns, the leaders said.`\
+https://nytimes.com/2026/04/01/world/middleeast/lebanon-shiite-israel-evacuation.html
+
+**Keep Calm and Maybe Take Public Transit: Australia Confronts Oil Shock**\
+`Prime Minister Anthony Albanese made the plea to not panic over higher fuel prices in a rare national address on Wednesday.`\
+https://nytimes.com/2026/04/01/world/asia/australia-albanese-fuel-speech.html
+
 **Kodai Senga's sizzling velocity an excellent sign for Mets, despite defeat**\
 `Senga averaged 97.4 mph with his four-seamer, the hardest he’s ever thrown it in a major-league game.`\
 https://nytimes.com/athletic/7162944/2026/04/01/mets-kodai-senga-velocity/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7163482/2026/04/01/mlb-umpires-abs-system/
 **Can regional sports networks survive, or even thrive? Depends on who you ask**\
 `Charlie Jacobs, the CEO of hockey’s Boston Bruins, is convinced that his three children, all in their twenties, will likely never sign up for a traditional cable package to watch television.`\
 https://nytimes.com/athletic/7163526/2026/04/01/mlb-rsn-support-thrive-nesn-options/
-
-**How good can this crop of MLB rookies be? Can George Springer stay elite? We answer your questions**\
-`In Andy McCullough's weekly MLB mailbag, we asked readers to overreact to the first week of results. Philly fans definitely delivered. `\
-https://nytimes.com/athletic/7161319/2026/04/01/mlb-mailbag-early-season-overreactions-rookies/
-
-**The New York Times International Edition in Print for Thursday, April 2, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/04/01/todays-new-york-times-international-edition
 
