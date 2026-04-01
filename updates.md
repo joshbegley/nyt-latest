@@ -1,3 +1,15 @@
+**FIFA raises World Cup ticket prices again for last sales phase**\
+`Tickets to roughly 40 of the World Cup’s 104 matches were more expensive Wednesday than they had been in any previous ticketing phase.`\
+https://nytimes.com/athletic/7165327/2026/04/01/fifa-world-cup-ticket-prices-sales/
+
+**Trump Officials Try to Fight Foreign Disinformation They Once Dismissed**\
+`The war in Iran has exposed the need to mount a defense against foreign influence campaigns, officials and experts say.`\
+https://nytimes.com/2026/04/01/business/trump-foreign-disinformation-iran.html
+
+**Key Justices Appear Skeptical of Limiting Birthright Citizenship**\
+`Also, NASA prepares to launch the first crewed moon mission in 50 years. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2026/04/01/briefing/supreme-court-citizenship-moon-launch.html
+
 **A flight to the moon like no other.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/a-flight-to-the-moon-like-no-other
