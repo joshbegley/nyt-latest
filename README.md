@@ -1,3 +1,7 @@
+**USWNT roster bubble watch: Is the door closed to coach Emma Hayes' core World Cup squad?**\
+`Some players have firmed up their spots on the U.S. roster, while others put on club performances that make Hayes’ job more difficult `\
+https://nytimes.com/athletic/7162601/2026/04/01/uswnt-world-cup-bubble-watch-emma-hayes/
+
 **Five Takeaways From the Birthright Citizenship Argument**\
 `The justices grappled with questions about domiciles and foundlings, avoided policy debates and mused about the sweep of possible rulings.`\
 https://nytimes.com/2026/04/01/us/politics/scotus-birthright-citizenship-takeaways.html
@@ -23,7 +27,7 @@ https://nytimes.com/paidpost/princess-cruises/mariko-celebrating-at-sea.html
 https://nytimes.com/paidpost/princess-cruises/elise-relaxing-at-sea.html
 
 **Pentagon Is Doubling Fleet of A-10 Attack Planes in Middle East**\
-`The slow-moving A-10 “Warthog” is a close-air support plane that could be used to help U.S. ground forces seize territory near the Strait of Hormuz.`\
+`The slow-moving A-10 “Warthog” is a so-called close-air support plane that could be used to help U.S. ground forces seize territory near the Strait of Hormuz.`\
 https://nytimes.com/2026/04/01/us/politics/attack-planes-iran.html
 
 **Bears have not given up hope of receiving compensatory picks for Ian Cunningham's move**\
