@@ -1,3 +1,7 @@
+**Why the Cowboys are 'very optimistic' they'll be better in 2026**\
+`Jerry Jones touched on improvements in 2026, Maxx Crosby, Jadeveon Clowney, Brandon Aubrey and more at the NFL meetings.`\
+https://nytimes.com/athletic/7162450/2026/04/01/dallas-cowboys-jerry-jones-2026-season-maxx-crosby/
+
 **How to watch Mets vs. Cardinals: Time, TV, streaming for April 1**\
 `Find out how to watch the New York Mets play the St. Louis Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7163789/2026/04/01/mets-vs-cardinals-stream-how-to-watch-april-1/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch
 **Andrew Painter's supporters bask in a big-league debut that brings back memories**\
 `After Painter’s eight strikeouts came at least 38 hugs — from his group of 38 emotional supporters who were on hand for his debut.`\
 https://nytimes.com/athletic/7162999/2026/04/01/andrew-painter-mlb-debut-family-friends-phillies/
-
-**The Fall of a Cambodian Money-Laundering Giant**\
-`The former chairman of a financial group was brought to China in handcuffs, the latest high-level capture in a widening investigation into organized crime.`\
-https://nytimes.com/2026/04/01/world/asia/china-cambodia-huione-extradition.html
 
