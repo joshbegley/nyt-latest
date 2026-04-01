@@ -1,4 +1,4 @@
-**Can regional sports network survive, or even thrive? Depends on who you ask**\
+**Can regional sports networks survive, or even thrive? Depends on who you ask**\
 `Charlie Jacobs, the CEO of hockey’s Boston Bruins, is convinced that his three children, all in their twenties, will likely never sign up for a traditional cable package to watch television.`\
 https://nytimes.com/athletic/7163526/2026/04/01/can-regional-sports-network-survive-or-even-thrive-depends-on-who-you-ask/
 
