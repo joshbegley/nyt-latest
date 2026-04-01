@@ -1,3 +1,11 @@
+**Bill Self, Kansas' all-time winningest coach, returning for 24th season**\
+`Self will be looking to add to his legacy of two national championships and 21 conference titles.`\
+https://nytimes.com/athletic/7160615/2026/04/01/bill-self-returning-kansas-mens-basketball-coach-ku/
+
+**Trump Will Lose the Birthright Citizenship Case. But in a Way, He’s Already Won.**\
+`The case is open-and-shut on the merits. But its procedural course still leaves plenty of room for Trump administration overreach.`\
+https://nytimes.com/2026/04/01/opinion/birthright-citizenship-case-trump.html
+
 **Trump Has Discussed Firing Attorney General Pam Bondi**\
 `President Trump has not made a final decision, but he has floated the idea of replacing Ms. Bondi with Lee Zeldin, the E.P.A. administrator.`\
 https://nytimes.com/2026/04/01/us/politics/trump-pam-bondi-future.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/a-flight-to
 **Artistic Clothes Inspired by the Slopes and Seas**\
 `Patrick Taylor’s new fashion line draws from his sporty childhood.`\
 https://nytimes.com/2026/04/01/t-magazine/patrick-taylor-fashion.html
-
-**She’s Trump-Backed but Praised D.E.I. Will It Hurt Her in a Republican Primary?**\
-`Representative Julia Letlow of Louisiana, running to challenge Senator Bill Cassidy, is facing conservative blowback over remarks from 2020.`\
-https://nytimes.com/2026/04/01/us/politics/julia-letlow-louisiana-republican-primary.html
-
-**Bettina Köster, a Leading Voice in Berlin’s 1980s Avant-Garde, Dies at 66**\
-`She sang lead for influential all-female bands, including Malaria!, and toured in the U.S. and elsewhere with groups like the Birthday Party and New Order.`\
-https://nytimes.com/2026/04/01/arts/music/bettina-koster-dead.html
 

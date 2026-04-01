@@ -1,3 +1,7 @@
+**Trump Has Discussed Firing Attorney General Pam Bondi**\
+`President Trump has not made a final decision, but he has floated the idea of replacing Ms. Bondi with Lee Zeldin, the E.P.A. administrator.`\
+https://nytimes.com/2026/04/01/us/politics/trump-pam-bondi-future.html
+
 **Goodbye ‘Geeky Hunk’? Gmail Users Can Now Change Their Usernames.**\
 `Users who have been saddled with now-cringe email handles since the mid-2000s can now change them without losing any data under a policy Google announced on Wednesday.`\
 https://nytimes.com/2026/04/01/technology/gmail-change-email-address-google.html
