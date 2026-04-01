@@ -10,7 +10,7 @@ https://nytimes.com/athletic/7164130/2026/04/01/tigers-vs-diamondbacks-stream-ho
 `Find out how to watch the San Francisco Giants play the San Diego Padres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7164125/2026/04/01/giants-vs-padres-stream-how-to-watch-april-1/
 
-**Roman Abramovich plans to defy UK government with charity foundation for frozen Chelsea sale funds**\
+**Abramovich plans to defy UK government with foundation for Chelsea sale funds**\
 `The foundation is due to outline Abramovich’s intention for the money to be spent on global causes as opposed to being limited to Ukraine.`\
 https://nytimes.com/athletic/7163736/2026/04/01/roman-abramovich-chelsea-sale-funds/
 
