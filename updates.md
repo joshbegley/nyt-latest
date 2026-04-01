@@ -1,3 +1,15 @@
+**Fosse! Robbins! Making the Case for Vintage Broadway Dance**\
+`Hubbard Street Dance Chicago and the Off Broadway revue “Gotta Dance!” shine a light on repertory that is too often overlooked.`\
+https://nytimes.com/2026/04/01/arts/dance/hubbard-street-dance-chicago-gotta-dance-broadway-fosse.html
+
+**UConn stars lead women’s MOP odds, but last year’s winner isn’t the favorite**\
+`UConn's Azzi Fudd won Most Outstanding Player last year, but teammate Sarah Strong is favored to win it this year.`\
+https://nytimes.com/athletic/7164464/2026/04/01/womens-most-outstanding-player-odds-strong-fudd-booker-betts/
+
+**How to watch Nuggets vs. Jazz: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the Utah Jazz, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7164636/2026/04/01/nuggets-vs-jazz-stream-how-to-watch-april-1/
+
 **How to watch Knicks vs. Grizzlies: Time, TV, streaming**\
 `Find out how to watch the New York Knicks play the Memphis Grizzlies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7164544/2026/04/01/how-to-watch-knicks-vs-grizzlies-tv-channel-and-streaming-options-for-april-1/
