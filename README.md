@@ -32,7 +32,7 @@ https://nytimes.com/athletic/7164547/2026/04/01/bucks-vs-rockets-stream-how-to-w
 
 **How to watch Knicks vs. Grizzlies: Time, TV, streaming**\
 `Find out how to watch the New York Knicks play the Memphis Grizzlies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7164544/2026/04/01/knicks-vs-grizzlies-stream-how-to-watch-april-1/
+https://nytimes.com/athletic/7164544/2026/04/01/how-to-watch-knicks-vs-grizzlies-tv-channel-and-streaming-options-for-april-1/
 
 **Mike Krzyzewski calls Duke's Elite Eight loss to UConn 'heartbreaking'**\
 `Krzyzewski said he couldn't sleep after the loss and expressed sympathy for Duke's Cayden Boozer, saying he wasn't to blame.`\
