@@ -1,3 +1,7 @@
+**What’s in Our Queue? Caamp and More**\
+`Text by Megan Specia`\
+https://nytimes.com/card/2026/04/01/arts/editors-recommendation-caamp
+
 **Longtime Friend of Eric Adams Is Indicted on Health Care Fraud Charges**\
 `U.S. prosecutors charged that Zhan Petrosyants, known as Johnny, submitted millions of dollars in false health care claims. He and his twin brother are close associates of Mr. Adams.`\
 https://nytimes.com/2026/04/01/nyregion/zhan-petrosyants-fraud-money-laundering.html
