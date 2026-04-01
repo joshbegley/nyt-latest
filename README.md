@@ -1,3 +1,19 @@
+**Tom Izzo says Suns offered him head coach job last year: 'A hard thing to turn down'**\
+`The longtime Michigan State head coach said he considered leaving East Lansing, because "I don’t like what’s going on in college athletics."`\
+https://nytimes.com/athletic/7164795/2026/04/01/tom-izzo-suns-coach-michigan-state-mat-ishbia/
+
+**The Good List: 7 Things to Add Some Delight to Your Day**\
+`A fish doorbell, jumping humanity and 1,000 days of happiness.`\
+https://nytimes.com/2026/04/01/briefing/01-the-good-list-jumping-fish-doorbell.html
+
+**7-Month-Old Is Said to Be Fatally Shot in Brooklyn**\
+`The baby was shot in the head on Wednesday afternoon in the Williamsburg neighborhood, the police said.`\
+https://nytimes.com/2026/04/01/nyregion/williamsburg-nyc-baby-shooting.html
+
+**Umpire CB Bucknor leaves game after taking a foul ball off his facemask**\
+`Bucknor rose to his feet and departed the field after being attended to by athletic trainers. `\
+https://nytimes.com/athletic/7164876/2026/04/01/mlb-umpire-cb-bucknor-injured/
+
 **USWNT roster bubble watch: Is the door closed to coach Emma Hayes' core World Cup squad?**\
 `Some players have firmed up their spots on the U.S. roster, while others put on club performances that make Hayes’ job more difficult `\
 https://nytimes.com/athletic/7162601/2026/04/01/uswnt-world-cup-bubble-watch-emma-hayes/
@@ -17,20 +33,4 @@ https://nytimes.com/2026/04/01/world/middleeast/gaza-children-evacuated-return.h
 **Jeremy Hansen Is the First Canadian to Join a Moon Mission**\
 `The Canadian Space Agency astronaut is the one Artemis II crew member who has not traveled to space.`\
 https://nytimes.com/2026/04/01/science/space/jeremy-hansen-artemis-ii-astronaut-canada.html
-
-**Mariko: Celebrating At Sea**\
-`Discover how a thoughtful birthday cruise creates unforgettable moments at sea. Follow Mariko’s journey in the Caribbean aboard Star Princess. With destination immersion, fine dining, and cultural and active experiences, her celebration became one she’ll never forget.`\
-https://nytimes.com/paidpost/princess-cruises/mariko-celebrating-at-sea.html
-
-**Elise: Relaxing At Sea**\
-`Watch how an elevated cruise experience allows a dedicated mom to fully recharge, reconnect with her mother and revel in pure indulgence. While sailing the Caribbean aboard Star Princess, moments of relaxation and shared discovery turn this journey into a meaningful escape they’ll always cherish.`\
-https://nytimes.com/paidpost/princess-cruises/elise-relaxing-at-sea.html
-
-**Pentagon Is Doubling Fleet of A-10 Attack Planes in Middle East**\
-`The slow-moving A-10 “Warthog” is a so-called close-air support plane that could be used to help U.S. ground forces seize territory near the Strait of Hormuz.`\
-https://nytimes.com/2026/04/01/us/politics/attack-planes-iran.html
-
-**Bears have not given up hope of receiving compensatory picks for Ian Cunningham's move**\
-`The Bears insist that Cunningham's jump to a GM job should entitle them to league-awarded draft compensation.`\
-https://nytimes.com/athletic/7164753/2026/04/01/bears-ian-cunningham-nfl-draft-compensation/
 
