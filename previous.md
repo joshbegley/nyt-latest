@@ -1,3 +1,7 @@
+**Here’s where and when you can see the rocket in the sky.**\
+`By Ashley Ahn`\
+https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/heres-where-and-when-you-can-see-the-rocket-in-the-sky
+
 **What’s in Our Queue? Caamp and More**\
 `Text by Megan Specia`\
 https://nytimes.com/card/2026/04/01/arts/editors-recommendation-caamp
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/7164937/2026/04/01/paul-skenes-pirates-reds/
 https://nytimes.com/2026/04/01/science/space/artemis-ii-rocket-space-capsule-boeing-lockheed-martin.html
 
 **Stephen Lewis, Leftist Canadian Politician and AIDS Activist, Dies at 88**\
-`Part of a political dynasty, he led Ontario’s main progressive party, became Canada’s U.N. ambassador and campaigned against the spread of  AIDS in Africa.`\
+`Part of a political dynasty, he led Ontario’s main progressive party, became Canada’s U.N. ambassador and campaigned against the spread of AIDS in Africa.`\
 https://nytimes.com/2026/04/01/world/canada/stephen-lewis-dead.html
 
 **Tiny Love Stories: ‘If I Arrived Home After Dark ’**\
@@ -29,8 +33,4 @@ https://nytimes.com/2026/04/01/us/politics/senate-house-homeland-security-shutdo
 **Iran’s President Suggests Diplomatic Engagement Possible in Letter to U.S. Public**\
 `The letter, by President Masoud Pezeshkian of Iran, was at times defiant, patronizing or conciliatory, and came hours before President Trump was set to address the American people on the war.`\
 https://nytimes.com/2026/04/01/world/middleeast/iran-president-pezeshkian-letter-diplomacy.html
-
-**NCAA approves major penalties for programs that circumvent transfer portal in the spring**\
-`The rule, which goes into effect immediately, seeks to stop "ghost transfers" where athletes withdraw from one school and enroll at another.`\
-https://nytimes.com/athletic/7164602/2026/04/01/ncaa-rules-transfer-portal-spring-window-roster/
 

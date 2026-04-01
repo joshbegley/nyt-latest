@@ -1,3 +1,11 @@
+**Here’s where and when you can see the rocket in the sky.**\
+`By Ashley Ahn`\
+https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/heres-where-and-when-you-can-see-the-rocket-in-the-sky
+
+**Stephen Lewis, Leftist Canadian Politician and AIDS Activist, Dies at 88**\
+`Part of a political dynasty, he led Ontario’s main progressive party, became Canada’s U.N. ambassador and campaigned against the spread of AIDS in Africa.`\
+https://nytimes.com/2026/04/01/world/canada/stephen-lewis-dead.html
+
 **What’s in Our Queue? Caamp and More**\
 `Text by Megan Specia`\
 https://nytimes.com/card/2026/04/01/arts/editors-recommendation-caamp
