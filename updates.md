@@ -1,3 +1,7 @@
+**How Spurs convinced Roberto De Zerbi to become their head coach**\
+`Spurs wanted to make De Zerbi their manager when they sacked Thomas Frank in February, but have only now been able to seal the deal`\
+https://nytimes.com/athletic/7152972/2026/04/01/tottenham-hotspur-roberto-de-zerbi-deal/
+
 **Word of the Day: gratuitous**\
 `This word has appeared in 61 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/04/01/learning/word-of-the-day-gratuitous.html

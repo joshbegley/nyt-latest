@@ -1,3 +1,7 @@
+**Stephen Colbert Blames ‘The Bachelorette’ Cancellation for $4 Gas**\
+`The “Late Show” host joked that “Trump attacked Iran” after ABC scrapped the reality show’s latest season.`\
+https://nytimes.com/2026/04/01/arts/television/stephen-colbert-trump-popularity.html
+
 **How Spurs convinced Roberto De Zerbi to become their head coach**\
 `Spurs wanted to make De Zerbi their manager when they sacked Thomas Frank in February, but have only now been able to seal the deal`\
 https://nytimes.com/athletic/7152972/2026/04/01/tottenham-hotspur-roberto-de-zerbi-deal/
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/7163115/2026/04/01/tom-dundon-trail-blazers-owner-s
 `Could holders Argentina be a letdown? Does 41-year-old Ronaldo have a real shot at the Golden Boot? And who are our writers backing to win?`\
 https://nytimes.com/athletic/7159194/2026/04/01/world-cup-2026-bracket-predictions/
 
-**Stocks in Asia Rally and Oil Prices Rise**\
+**Stocks in Asia Rally and Oil Prices Drop**\
 `President Trump said the U.S. military would wrap up its campaign in Iran in two or three weeks.`\
 https://nytimes.com/2026/04/01/business/stocks-oil-gasoline-prices-iran.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/01/opinion/padma-lakshmi-birthright-citizenship-food
 **At 50 wins, this version of the Lakers feels different — and better than last spring's**\
 `Like last season, the Lakers have reached 50 wins. This time around, are they built to last? `\
 https://nytimes.com/athletic/7160136/2026/04/01/lakers-lebron-james-50-wins-nba/
-
-**Pochettino gives blunt assessment of whether USA has any world top 100 players**\
-`The USMNT coach oddly undercut his players when discussing defeat to a second straight European power`\
-https://nytimes.com/athletic/7162949/2026/04/01/mauricio-pochettino-usmnt-top-100-players-world-cup-portugal/
 
