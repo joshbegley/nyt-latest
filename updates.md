@@ -1,3 +1,7 @@
+**At 50 wins, this version of the Lakers feels different — and better than last spring's**\
+`Like last season, the Lakers have reached 50 wins. This time around, are they built to last? `\
+https://nytimes.com/athletic/7160136/2026/04/01/lakers-lebron-james-50-wins-nba/
+
 **Pochettino gives blunt assessment of whether USA has any world top 100 players**\
 `The USMNT coach oddly undercut his players when discussing defeat to a second straight European power`\
 https://nytimes.com/athletic/7162949/2026/04/01/mauricio-pochettino-usmnt-top-100-players-world-cup-portugal/
