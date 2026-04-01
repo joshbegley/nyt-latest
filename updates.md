@@ -1,3 +1,7 @@
+**Why some MLB teams are willing to offer long-term deals to unproven top prospects**\
+`The Mariners signed infielder Colt Emerson to an eight-year, $95 million extension and he hasn't made his MLB debut yet.`\
+https://nytimes.com/athletic/7163745/2026/04/01/mlb-contract-extensions-prospects-colt-emerson-mariners/
+
 **Why the Cowboys are 'very optimistic' they'll be better in 2026**\
 `Jerry Jones touched on improvements in 2026, Maxx Crosby, Jadeveon Clowney, Brandon Aubrey and more at the NFL meetings.`\
 https://nytimes.com/athletic/7162450/2026/04/01/dallas-cowboys-jerry-jones-2026-season-maxx-crosby/
