@@ -1,3 +1,7 @@
+**What’s in Our Queue? Caamp and More**\
+`Text by Megan Specia`\
+https://nytimes.com/card/2026/04/01/arts/editors-recommendation-caamp
+
 **Longtime Friend of Eric Adams Is Indicted on Health Care Fraud Charges**\
 `U.S. prosecutors charged that Zhan Petrosyants, known as Johnny, submitted millions of dollars in false health care claims. He and his twin brother are close associates of Mr. Adams.`\
 https://nytimes.com/2026/04/01/nyregion/zhan-petrosyants-fraud-money-laundering.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/04/01/world/middleeast/iran-president-pezeshkian-letter
 **NCAA approves major penalties for programs that circumvent transfer portal in the spring**\
 `The rule, which goes into effect immediately, seeks to stop "ghost transfers" where athletes withdraw from one school and enroll at another.`\
 https://nytimes.com/athletic/7164602/2026/04/01/ncaa-rules-transfer-portal-spring-window-roster/
-
-**At Syracuse, Classics, Ceramics and Italian Out as Majors in Overhaul**\
-`In all, 93 of the 460 academic programs at the university will be closed or paused. No students were majoring in 55 of the programs that are ending.`\
-https://nytimes.com/2026/04/01/nyregion/syracuse-university-degrees-eliminated.html
 
