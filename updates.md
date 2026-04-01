@@ -1,3 +1,11 @@
+**Lamine Yamal, Spain's 'worldwide shame' and how anti-Muslim chants forced him to speak out**\
+`An unsavoury chant has cast a shadow over Spain, just as an exciting team led by Yamal prepare for this summer's World Cup`\
+https://nytimes.com/athletic/7164199/2026/04/01/lamine-yamal-spain-anti-muslim-chants/
+
+**Can Science Predict When a Study Won’t Hold Up?**\
+`Conducting research is hard; confirming the results is, too. And artificial intelligence isn’t yet ready to help, a major new study finds.`\
+https://nytimes.com/2026/04/01/science/ai-experiments-replication.html
+
 **Under Trump’s Approach to Birthright Citizenship, ‘Foundlings’ Given Up for Adoption Could Be Stateless**\
 `Abandoned infants would have to produce evidence that at least one of their biological parents was a U.S. citizen or lawful permanent resident.`\
 https://nytimes.com/2026/04/01/us/politics/birthright-citizenship-foundlings.html
