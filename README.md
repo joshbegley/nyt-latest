@@ -1,3 +1,7 @@
+**Why some MLB teams are willing to offer long-term deals to unproven top prospects**\
+`The Mariners signed infielder Colt Emerson to an eight-year, $95 million extension and he hasn't made his MLB debut yet.`\
+https://nytimes.com/athletic/7163745/2026/04/01/mlb-contract-extensions-prospects-colt-emerson-mariners/
+
 **Why the Cowboys are 'very optimistic' they'll be better in 2026**\
 `Jerry Jones touched on improvements in 2026, Maxx Crosby, Jadeveon Clowney, Brandon Aubrey and more at the NFL meetings.`\
 https://nytimes.com/athletic/7162450/2026/04/01/dallas-cowboys-jerry-jones-2026-season-maxx-crosby/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/heres-the-l
 **Live Updates: NASA’s Artemis II Moon Launch Countdown Begins**\
 `Four astronauts — three Americans and one Canadian — are scheduled to launch at 6:24 p.m. Eastern on the first crewed journey to the moon since 1972. But they will not land there on this mission.`\
 https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch
-
-**Andrew Painter's supporters bask in a big-league debut that brings back memories**\
-`After Painter’s eight strikeouts came at least 38 hugs — from his group of 38 emotional supporters who were on hand for his debut.`\
-https://nytimes.com/athletic/7162999/2026/04/01/andrew-painter-mlb-debut-family-friends-phillies/
 
