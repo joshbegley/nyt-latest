@@ -1,3 +1,7 @@
+**Netanyahu makes the case that wars on Iran have succeeded.**\
+`Prime Minister Benjamin Netanyahu claimed that Israel had crushed Iran’s capacity to make nuclear weapons and ballistic missiles. But Iran has continued attacking Israel and Persian Gulf countries and is believed to still have highly enriched uranium.`\
+https://nytimes.com/live/2026/04/01/world/iran-war-trump-oil-news/netanyahu-israel-iran-war
+
 **U.S. Is Weighing Leaving NATO, Trump Says**\
 `In an interview with The Telegraph, a British newspaper, President Trump said that he was considering pulling the United States out of NATO alliance over the war in Iran.`\
 https://nytimes.com/video/world/middleeast/100000010814558/trump-us-leaving-nato.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7163736/2026/04/01/roman-abramovich-chelsea-sale-fu
 **If Trump Attends Oral Arguments, It Would Be a Presidential First**\
 `The president previously mused about attending the Supreme Court’s arguments over his sweeping tariffs, but ultimately did not make an appearance.`\
 https://nytimes.com/2026/04/01/us/politics/trump-supreme-court-visit.html
-
-**The night Bosnia and Herzegovina found new heroes**\
-`Years from now, even the walls will speak of that night at the Bilino Polje`\
-https://nytimes.com/athletic/7163891/2026/04/01/bosnia-herzegovina-world-cup-qualification-celebration-italy/
 

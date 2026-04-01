@@ -1,3 +1,7 @@
+**Netanyahu makes the case that wars on Iran have succeeded.**\
+`Prime Minister Benjamin Netanyahu claimed that Israel had crushed Iran’s capacity to make nuclear weapons and ballistic missiles. But Iran has continued attacking Israel and Persian Gulf countries and is believed to still have highly enriched uranium.`\
+https://nytimes.com/live/2026/04/01/world/iran-war-trump-oil-news/netanyahu-israel-iran-war
+
 **U.S. Is Weighing Leaving NATO, Trump Says**\
 `In an interview with The Telegraph, a British newspaper, President Trump said that he was considering pulling the United States out of NATO alliance over the war in Iran.`\
 https://nytimes.com/video/world/middleeast/100000010814558/trump-us-leaving-nato.html
