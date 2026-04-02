@@ -1,3 +1,7 @@
+**Holders of Hammers and Anvils**\
+`In Joe Marquez’s wisecracking puzzle, the joke’s on us.`\
+https://nytimes.com/2026/04/01/crosswords/daily-puzzle-2026-04-02.html
+
 **Judge Finds Border Officials Violated Previous Order on Warrantless Arrests**\
 `A federal judge in California ordered agents to thoroughly document any future stops in an area spanning 34 counties.`\
 https://nytimes.com/2026/04/01/us/politics/ruling-border-patrol-warrantless-arrests.html

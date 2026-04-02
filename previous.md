@@ -1,3 +1,7 @@
+**Holders of Hammers and Anvils**\
+`In Joe Marquez’s wisecracking puzzle, the joke’s on us.`\
+https://nytimes.com/2026/04/01/crosswords/daily-puzzle-2026-04-02.html
+
 **Judge Finds Border Officials Violated Previous Order on Warrantless Arrests**\
 `A federal judge in California ordered agents to thoroughly document any future stops in an area spanning 34 counties.`\
 https://nytimes.com/2026/04/01/us/politics/ruling-border-patrol-warrantless-arrests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/01/us/trump-lawsuits-education-agenda.html
 **D.H.S. Inspector General Inquiry Focuses in Part on Top Noem Aide**\
 `The investigation comes as administration officials have fielded complaints about how Kristi Noem’s top adviser, Corey Lewandowski, dealt with companies seeking federal contracts.`\
 https://nytimes.com/2026/04/01/us/politics/dhs-inspector-general-inquiry-lewandowski.html
-
-**What to make of the Tigers through six games? It depends on your perspective**\
-`There Tigers leave Arizona with a bad taste, but it's too early to draw any real conclusions. `\
-https://nytimes.com/athletic/7165516/2026/04/01/tigers-struggles-first-week/
 

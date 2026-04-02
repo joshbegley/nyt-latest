@@ -1,3 +1,11 @@
+**The Artemis II Toilet Had a Problem**\
+`The Universal Waste Management System aboard the Orion capsule is an innovation in deep space toiletry (if it works).`\
+https://nytimes.com/2026/04/01/science/artemis-ii-bathroom-toilet.html
+
+**For the First Time, a Toilet Heads Into Deep Space**\
+`The Orion spacecraft will take four crew members and one commode around the moon and back as part of the Artemis II mission. In April 2025, National Geographic worked with NASA and filmed the astronauts at an Orion space capsule model in Houston.`\
+https://nytimes.com/video/science/space/100000010813292/orion-spacecraft-first-toilet-space.html
+
 **Holders of Hammers and Anvils**\
 `In Joe Marquez’s wisecracking puzzle, the joke’s on us.`\
 https://nytimes.com/2026/04/01/crosswords/daily-puzzle-2026-04-02.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/01/pageoneplus/corrections-april-2-2026.html
 **NASA’s Artemis II Moon Mission Launches Into Space**\
 `The crew of four — three Americans and one Canadian — reached space on Wednesday on the first crewed journey to the moon since 1972.`\
 https://nytimes.com/video/science/space/100000010816588/nasas-artemis-ii-moon-mission-launches-into-space.html
-
-**Lawsuits Are the New Trump Tactic in the Fight to Overhaul Education**\
-`Trump officials have faced dozens of lawsuits over their aggressive efforts to force change in universities and school districts. Now Trump lawyers are taking schools to court.`\
-https://nytimes.com/2026/04/01/us/trump-lawsuits-education-agenda.html
-
-**D.H.S. Inspector General Inquiry Focuses in Part on Top Noem Aide**\
-`The investigation comes as administration officials have fielded complaints about how Kristi Noem’s top adviser, Corey Lewandowski, dealt with companies seeking federal contracts.`\
-https://nytimes.com/2026/04/01/us/politics/dhs-inspector-general-inquiry-lewandowski.html
 
