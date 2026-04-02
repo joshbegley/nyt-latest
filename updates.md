@@ -1,3 +1,7 @@
+**What I'm seeing from Dodgers' first homestand: Shohei Ohtani, struggling offense and more**\
+`Ohtani and the top of the Dodgers lineup have yet to find their offensive groove.`\
+https://nytimes.com/athletic/7165907/2026/04/02/dodgers-shohei-ohtani-offense-muncy-struggling/
+
 **The New York Times in Print for Thursday, April 2, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/04/02/todays-new-york-times

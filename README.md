@@ -1,3 +1,7 @@
+**Chelsea's Champions League exit underlines the need for summer transition**\
+`After a difficult season and with senior players' contracts expiring, transfer dealings over the next few months will be hugely important`\
+https://nytimes.com/athletic/7165698/2026/04/02/chelsea-women-champions-league-summer-transition/
+
 **What I'm seeing from Dodgers' first homestand: Shohei Ohtani, struggling offense and more**\
 `Ohtani and the top of the Dodgers lineup have yet to find their offensive groove.`\
 https://nytimes.com/athletic/7165907/2026/04/02/dodgers-shohei-ohtani-offense-muncy-struggling/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7161003/2026/04/02/pablo-hernandez-interview-leeds-
 **Why Arsenal may need to show a bit more caution in the Champions League semi-finals**\
 `Chelsea may be out but they revealed some defensive weaknesses in the Arsenal team that future opponents may be able to exploit`\
 https://nytimes.com/athletic/7165326/2026/04/02/arsenal-chelsea-champions-league-tactics/
-
-**Is Mbappe a leader who can take France to World Cup glory?**\
-`The Real Madrid striker is preparing for his first World Cup as his country's on-field leader. The role has not been without its challenges`\
-https://nytimes.com/athletic/7139364/2026/04/02/kylian-mbappe-france-captain/
 
