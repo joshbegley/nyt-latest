@@ -1,3 +1,15 @@
+**Blake Lively’s Retaliation Case Heads to Trial Without Harassment Claims**\
+`A federal judge tossed the actress’s sexual harassment claims against Justin Baldoni in a split decision that sets the stage for a contentious trial.`\
+https://nytimes.com/2026/04/02/movies/blake-lively-justin-baldoni-harassment-claims-dismissed.html
+
+**How Are High California Gas Prices Affecting Your Life?**\
+`Tell us how the sharp increase in gas prices is changing how you live and work.`\
+https://nytimes.com/2026/04/02/us/california-gas-prices-expenses.html
+
+**Submit your questions for Jeremy Rutherford’s St. Louis Blues mailbag**\
+`Have a question about the Blues? Submit it here and The Athletic’s Jeremy Rutherford will address a selection in his upcoming mailbag.`\
+https://nytimes.com/athletic/7167679/2026/04/02/blues-mailbag-jeremy-rutherford-april-2026/
+
 **Victor Wembanyama sends message to Artemis II astronauts on NASA stream**\
 `Wembanyama has shown interest in aeronautical science and cosmology, visiting NASA’s Johnson Space Center in Houston last offseason.
 `\
@@ -26,16 +38,4 @@ https://nytimes.com/2026/04/02/arts/art-gallery-shows-to-see-in-april.html
 **Trump Hails Destruction of Iranian Bridge, Warning ‘More to Follow’**\
 `Fars, a semiofficial news agency, said eight people had been killed in the attack and dozens wounded.`\
 https://nytimes.com/2026/04/02/world/middleeast/trump-iran-bridge-strike.html
-
-**Former Patriots star CB Stephon Gilmore retiring after 13 seasons**\
-`Gilmore sealed the Patriots' Super Bowl 53 victory over the Rams to cap the 2018 season, then won Defensive Player of the Year in 2019.`\
-https://nytimes.com/athletic/7167529/2026/04/02/stephon-gilmore-retires-patriots-bills/
-
-**Justice Dept. Says Trump Doesn’t Need to Hand Over Presidential Records After Office**\
-`The opinion could set the stage for President Trump to refuse to give the National Archives many of his own official documents when he leaves office.`\
-https://nytimes.com/2026/04/02/us/politics/justice-department-trump-presidential-records.html
-
-**Phil Mickelson opts out of Masters due to 'personal health matter' with family**\
-`The 55-year-old golfer will join Tiger Woods in missing tournament, marking first time since 1994 both will be absent from Augusta.`\
-https://nytimes.com/athletic/7167504/2026/04/02/phil-mickelson-masters-out-family-health/
 

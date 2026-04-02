@@ -1,3 +1,11 @@
+**Wimbledon Is Expanding. What Does That Mean for Tennis?**\
+`The largest obstacle to Wimbledon’s plans to nearly triple the size of its grounds has been removed. The Athletic’s Charlie Eccleshare explains what it could mean for the Grand Slam’s future.`\
+https://nytimes.com/video/the-athletic/100000010814221/wimbledon-is-expanding-what-does-that-mean-for-tennis.html
+
+**How Much Will It Cost to Travel to the World Cup?**\
+`The Athletic calculated the potential costs, including flights, hotels, ride shares, food and tickets, for fans traveling to the World Cup. Writer Henry Bushnell digs into the numbers.`\
+https://nytimes.com/video/the-athletic/100000010814222/how-much-will-it-cost-to-travel-to-the-world-cup.html
+
 **Blake Lively’s Retaliation Case Heads to Trial Without Harassment Claims**\
 `A federal judge tossed the actress’s sexual harassment claims against Justin Baldoni in a split decision that sets the stage for a contentious trial.`\
 https://nytimes.com/2026/04/02/movies/blake-lively-justin-baldoni-harassment-claims-dismissed.html
@@ -30,12 +38,4 @@ https://nytimes.com/2026/04/02/t-magazine/best-raincoats-mens-jackets.html
 **Where will Audi Crooks go as a transfer after leaving Iowa State?**\
 `The center could make a splash at several programs. Where will she fit? `\
 https://nytimes.com/athletic/7167559/2026/04/02/audi-crooks-transfer-iowa-state/
-
-**Art Gallery Shows to See in April**\
-`This week in Newly Reviewed, Travis Diehl covers Pat Oleszko’s burlesque street theater, Paul Chan’s inflatables, David Armstrong’s calm curiosity and Torbjorn Rodland’s subtle awkwardness. `\
-https://nytimes.com/2026/04/02/arts/art-gallery-shows-to-see-in-april.html
-
-**Trump Hails Destruction of Iranian Bridge, Warning ‘More to Follow’**\
-`Fars, a semiofficial news agency, said eight people had been killed in the attack and dozens wounded.`\
-https://nytimes.com/2026/04/02/world/middleeast/trump-iran-bridge-strike.html
 
