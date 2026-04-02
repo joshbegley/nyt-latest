@@ -1,3 +1,7 @@
+**Chatting**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2026/04/02/learning/chatting.html
+
 **Volunteers in Helicopter Rescue Hiker’s Dog After a Week in the Wilderness**\
 `A hiker in New Zealand fell 180 feet down a waterfall and was evacuated without her dog. A crowd-funded rescue effort reunited them.`\
 https://nytimes.com/2026/04/02/world/asia/dog-rescue-new-zealand.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7164019/2026/04/02/nba-cavaliers-team-meals-bonding
 **Ranking Yankee Stadium's newest concessions, from dessert 'chicken' to fried mozzarella**\
 `The Yankees unveiled their new concession items for 2026 this week, and The Athletic was there to taste everything. Let's rank some food!`\
 https://nytimes.com/athletic/7161666/2026/04/02/yankee-stadium-food-beverage-concessions-ranking/
-
-**Steph Curry knows a game-bending player when he sees it. And he sees it in Wemby**\
-`Curry spoke to The Athletic about the Spurs' young superstar becoming the next great basketball revolutionary.`\
-https://nytimes.com/athletic/7166070/2026/04/02/steph-curry-victor-wembanyama-interview-nba/
 
