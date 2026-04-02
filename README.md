@@ -1,3 +1,7 @@
+**Why the NFL chose Fanatics as exclusive trading card rights holder**\
+`"We think that Fanatics can help us really bring in new fans into the NFL," says NFL senior VP of licensing Casey Collins.`\
+https://nytimes.com/athletic/7166306/2026/04/02/fanatics-nfl-topps-chrome-football-cards/
+
 **New Jersey 11th Congressional District Special Election 2026: Latest Polls**\
 `Track the latest polls in New Jersey's 11th Congressional District special election.`\
 https://nytimes.com/interactive/polls/new-jersey-us-house-11-special-polls-2026.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/02/us/politics/house-no-action-homeland-security-fun
 **Kirk Cousins agrees to free-agent deal with Raiders**\
 `Cousins, 37, was 12-10 as a starter and 24th in the league in EPA per dropback during his two seasons with the Atlanta Falcons.`\
 https://nytimes.com/athletic/7086984/2026/04/02/kirk-cousins-raiders-nfl-free-agency-2026/
-
-**After More Than 50 Years, Humans Depart Again for the Moon**\
-`With the Artemis II launch, NASA reignited its long-dormant ambitions for crewed lunar exploration.`\
-https://nytimes.com/2026/04/02/science/space/artemis-nasa-astronauts-moon-launch-photos.html
 
