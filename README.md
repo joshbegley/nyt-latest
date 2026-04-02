@@ -1,3 +1,7 @@
+**Italian Football Federation chief resigns after World Cup failure**\
+`Tuesday's defeat by Bosnia and Herzegovina means Italy have failed to qualify for the last three men's World Cups.`\
+https://nytimes.com/athletic/7163681/2026/04/02/italy-world-cup-gravina-gattuso/
+
 **Macron Snaps Back at Trump’s Mockery and Criticism of NATO**\
 `President Emmanuel Macron of France suggested that President Trump’s daily comments on the war in Iran were unserious. “Maybe one shouldn’t speak every day,” Mr. Macron told reporters.`\
 https://nytimes.com/2026/04/02/world/middleeast/macron-trump-nato.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/02/business/tesla-sales-electric-vehicles.html
 **LOVB SF adds owners, including Steve Kerr, Julie Foudy, Lexi Hull, Holly Rowe**\
 `The pro volleyball franchise adds nearly three dozen to its ownership group, continuing LOVB's wider surge in team investment.`\
 https://nytimes.com/athletic/7166396/2026/04/02/lovb-sf-steve-kerr-lexi-hull-julie-foudy/
-
-**Ye Takes the Stage in L.A., Hoping to Wash Away His Sins**\
-`After years of antisemitic behavior, the rapper formerly known as Kanye West performed at SoFi Stadium for his first full live show in the United States since 2021.`\
-https://nytimes.com/2026/04/02/arts/music/kanye-west-concert-los-angeles.html
 
