@@ -1,3 +1,7 @@
+**Puka Nacua checks into facility, 'takes responsibility for his well-being'**\
+`The Rams star checked into the facility in early March and will remain there until he completes the program ahead of OTAs, his lawyer says.`\
+https://nytimes.com/athletic/7165555/2026/04/01/puka-nacua-rehab-rams-allegations/
+
 **Corrections: April 2, 2026**\
 `Corrections that appeared in print on Thursday, April 2, 2026.`\
 https://nytimes.com/2026/04/01/pageoneplus/corrections-april-2-2026.html
