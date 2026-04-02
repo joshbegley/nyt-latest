@@ -1,3 +1,7 @@
+**NBA fines Trail Blazers $100,000, suspends assistant GMs for draft violation**\
+`Assistant general managers Mike Schmitz and Sergi Oliva were suspended for two weeks after the Blazers self-reported the violations.`\
+https://nytimes.com/athletic/7165567/2026/04/01/portland-trail-blazers-assistant-gm-fined-suspended/
+
 **Trail Blazers fined $100,000 as assistant GMs suspended for NBA Draft violation**\
 `Assistant general managers Mike Schmitz and Sergi Oliva were suspended for two weeks after the Blazers self-reported the violations.`\
 https://nytimes.com/athletic/7165567/2026/04/01/portland-trail-blazers-assistant-gm-fined-suspended/
