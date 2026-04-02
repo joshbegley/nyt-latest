@@ -1,3 +1,7 @@
+**What I'm seeing from Dodgers' first homestand: Shohei Ohtani, struggling offense and more**\
+`Ohtani and the top of the Dodgers lineup have yet to find their offensive groove.`\
+https://nytimes.com/athletic/7165907/2026/04/02/dodgers-shohei-ohtani-offense-muncy-struggling/
+
 **The New York Times in Print for Thursday, April 2, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/04/02/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7165326/2026/04/02/arsenal-chelsea-champions-league
 **Is Mbappe a leader who can take France to World Cup glory?**\
 `The Real Madrid striker is preparing for his first World Cup as his country's on-field leader. The role has not been without its challenges`\
 https://nytimes.com/athletic/7139364/2026/04/02/kylian-mbappe-france-captain/
-
-**Managers on the rise: Rene Maric, the Bayern Munich assistant who looks ready to set out on his own**\
-`Bayern Munich's highly-rated assistant has turned down roles in Europe and appears to have all the tools needed to succeed as a head coach`\
-https://nytimes.com/athletic/7127911/2026/04/02/rene-maric-bayern-munich-profile/
 
