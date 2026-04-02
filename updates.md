@@ -1,3 +1,7 @@
+**Trump Isn’t Taking Cuba. He’s Starving It.**\
+`Starving Cubans does nothing to advance American interests.`\
+https://nytimes.com/2026/04/02/opinion/trump-cuba-oil-blockade.html
+
 **Here’s the latest.**\
 `By Zolan Kanno-Youngs and Yan Zhuang`\
 https://nytimes.com/live/2026/04/02/world/iran-war-trump-news/heres-the-latest
