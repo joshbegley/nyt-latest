@@ -1,3 +1,7 @@
+**Chandler Morris' lawsuit over 7th year of eligibility denied by judge**\
+`Morris was denied a preliminary injunction for his lawsuit over a retroactive medical redshirt for his 2022 season.`\
+https://nytimes.com/athletic/7167985/2026/04/02/judge-denies-virginia-chandler-morris-lawsuit-eligibility/
+
 **Hegseth Allows Troops to Carry Personal Firearms at Military Bases**\
 `Many shootings at military bases have involved troops bringing guns they purchased onto base grounds and opening fire on fellow service members.`\
 https://nytimes.com/2026/04/02/us/politics/hegseth-personal-firearms.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/02/us/politics/trump-ballroom-military-bunker.html
 **Johnson Wavers on Ending the Shutdown, Reflecting His Weak Hold on Power**\
 `The House speaker first panned, then endorsed, then punted on, then pitched and now is delaying a bill to reopen the Homeland Security Department, showing his vulnerability in the face of party rifts.`\
 https://nytimes.com/2026/04/02/us/elections/mike-johnson-shutdown-power.html
-
-**Macron Voices Europe’s Frustration With Trump as Fighting Rages and Missiles Fly**\
-`President Emmanuel Macron of France expressed disapproval about President Trump’s handling of the war against Iran on Thursday, chastising him for speaking cavalierly in a speech.`\
-https://nytimes.com/2026/04/02/world/middleeast/iran-war-trump-strait.html
 

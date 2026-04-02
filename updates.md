@@ -1,3 +1,7 @@
+**Chandler Morris' lawsuit over 7th year of eligibility denied by judge**\
+`Morris was denied a preliminary injunction for his lawsuit over a retroactive medical redshirt for his 2022 season.`\
+https://nytimes.com/athletic/7167985/2026/04/02/judge-denies-virginia-chandler-morris-lawsuit-eligibility/
+
 **Hegseth Allows Troops to Carry Personal Firearms at Military Bases**\
 `Many shootings at military bases have involved troops bringing guns they purchased onto base grounds and opening fire on fellow service members.`\
 https://nytimes.com/2026/04/02/us/politics/hegseth-personal-firearms.html
