@@ -1,3 +1,7 @@
+**Former Wisconsin tight end Jack Pugh dies at 24**\
+`Jack Pugh, who spent three years as a tight end on the Wisconsin team, died at the age of 24. No official cause of death was released.`\
+https://nytimes.com/athletic/7166649/2026/04/02/jack-pugh-wisconsin-football-dies/
+
 **Konnor Griffin, one of baseball's most exciting prospects in years, to join Pirates**\
 `Griffin’s ceiling conjures hope for a Pirates fan base desperate for a return to relevance.`\
 https://nytimes.com/athletic/7160955/2026/04/02/konnor-griffin-pirates-mlb-prospect-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/02/nyregion/laguardia-air-canada-investigation.html
 **Why the NFL chose Fanatics as exclusive trading card rights holder**\
 `"We think that Fanatics can help us really bring in new fans into the NFL," says NFL senior VP of licensing Casey Collins.`\
 https://nytimes.com/athletic/7166306/2026/04/02/fanatics-nfl-topps-chrome-football-cards/
-
-**Thierry Henry: What it's like to win a World Cup, lose a World Cup, and coach at one**\
-`Henry has experienced World Cups from every angle. He won it in 1998 and was a runner-up in 2006, and coached Belgium in 2018 and 2022`\
-https://nytimes.com/athletic/7165223/2026/04/02/thierry-henry-2026-world-cup-interview-france/
 
