@@ -31,7 +31,7 @@ https://nytimes.com/2026/04/02/world/middleeast/iran-oman-hormuz-control.html
 https://nytimes.com/2026/04/02/books/review/new-recommended-books.html
 
 **Fab Five to reunite for Michigan-Arizona alt-cast during Final Four showdown**\
-`The Wolverines are entering their first Final Four appearance since 2018, the year they won the national championship.`\
+`The Wolverines are making their first Final Four appearance since 2018, when they finished runner-up to Villanova.`\
 https://nytimes.com/athletic/7167024/2026/04/02/fab-five-michigan-arizona-altcast-final-four/
 
 **How Trump Boxed Himself In on Iran**\
