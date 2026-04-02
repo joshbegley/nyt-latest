@@ -1,9 +1,13 @@
+**4 tiny spacecraft have tagged along with Artemis II.**\
+`By Katrina Miller`\
+https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/4-tiny-spacecraft-are-tagging-along-with-artemis-ii
+
 **Padres avoid sweep as rookie manager Craig Stammen continues learning on the job**\
 `On Wednesday, in search of a missing offense, Stammen debuted another lineup — and it worked in San Diego's 7-1 win against the Giants.`\
 https://nytimes.com/athletic/7165787/2026/04/01/padres-win-giants-rookie-manager-craig-stammen/
 
 **Jayson Tatum's triple-double, Jaylen Brown's 43-point night continue Celtics' late surge**\
-`In less than a month, the Celtics have quieted those concerns by going 10-2 in Tatum’s first 12 games.`\
+`In less than a month, the Celtics have quieted concerns by going 10-2 in Tatum’s first 12 games.`\
 https://nytimes.com/athletic/7165823/2026/04/01/celtics-heat-score-results-jayson-tatum-jaylen-brown/
 
 **How likely is it that Artemis II will collide with debris in space?**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/people-watc
 **Yankees takeaways: Is Cam Schlittler club's best young pitcher since Luis Severino?**\
 `The former seventh-rounder has a chance to be the club's next homegrown star. Plus, Aaron Judge has struggled, but others are stepping up.`\
 https://nytimes.com/athletic/7165720/2026/04/01/yankees-cam-schlittler-aaron-judge-takeaways/
-
-**The Artemis II Toilet Had a Problem**\
-`The Universal Waste Management System aboard the Orion capsule is an innovation in deep space toiletry (if it works).`\
-https://nytimes.com/2026/04/01/science/artemis-ii-bathroom-toilet.html
 
