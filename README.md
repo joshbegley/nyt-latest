@@ -1,3 +1,7 @@
+**How likely is it that Artemis II will collide with debris in space?**\
+`By Ashley Ahn`\
+https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/how-likely-is-it-that-artemis-ii-will-collide-with-debris-in-space
+
 **5 Takeaways From Trump’s Address on Iran**\
 `President Trump did not define a clear path out of the conflict, which he estimated would end within three weeks.`\
 https://nytimes.com/2026/04/01/us/politics/trump-iran-war-address-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/science/space/100000010813292/orion-spacecraft-first-t
 **Holders of Hammers and Anvils**\
 `In Joe Marquez’s wisecracking puzzle, the joke’s on us.`\
 https://nytimes.com/2026/04/01/crosswords/daily-puzzle-2026-04-02.html
-
-**Judge Finds Border Officials Violated Previous Order on Warrantless Arrests**\
-`A federal judge in California ordered agents to thoroughly document any future stops in an area spanning 34 counties.`\
-https://nytimes.com/2026/04/01/us/politics/ruling-border-patrol-warrantless-arrests.html
 
