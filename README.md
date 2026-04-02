@@ -1,3 +1,7 @@
+**How to watch Twins vs. Royals: Time, TV, streaming for April 2**\
+`Find out how to watch the Minnesota Twins play the Kansas City Royals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7166287/2026/04/02/twins-vs-royals-stream-how-to-watch-april-2/
+
 **How the Cavaliers rely on meals to retain superstars, build team bonds**\
 `Rather than meals at expensive restaurants that require extensive planning, Cavaliers players prefer team dinners at their hotels.`\
 https://nytimes.com/athletic/7164019/2026/04/02/nba-cavaliers-team-meals-bonding/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7164811/2026/04/02/wild-hughes-trade-rossi-buium-oh
 **The decline of U.S. heavyweight boxing feels terminal. Can it be saved?**\
 `It is five years since an American owned a world title in the sport's most storied class but hope is not lost`\
 https://nytimes.com/athletic/7160783/2026/04/02/us-heavyweight-boxing-decline/
-
-**College football transfer portal QB rankings: Darian Mensah, Sam Leavitt top the list**\
-`This ranking, updated since January, factors in the fit for each quarterback, not just their overall ability.`\
-https://nytimes.com/athletic/7149139/2026/04/02/college-football-transfer-portal-qb-rankings-mensah-leavitt/
 
