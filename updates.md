@@ -1,3 +1,7 @@
+**After More Than 50 Years, Humans Depart Again for the Moon**\
+`With the Artemis II launch, NASA reignited its long-dormant ambitions for crewed lunar exploration.`\
+https://nytimes.com/2026/04/02/science/space/artemis-nasa-astronauts-moon-launch-photos.html
+
 **Iranian officials come out defiant after Trump’s war speech.**\
 `By Erika Solomon and Leily Nikounazar`\
 https://nytimes.com/live/2026/04/02/world/iran-war-trump-news/iranian-officials-come-out-defiant-after-trumps-war-speech
