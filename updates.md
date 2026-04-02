@@ -1,3 +1,11 @@
+**Liamine Zeroual, Algerian President During Bloody Civil War, Dies at 84**\
+`Cutting short his five-year term amid the scarring conflict, he was perhaps a first: an Algerian leader who left without being forced out or dying in office.`\
+https://nytimes.com/2026/04/02/world/africa/liamine-zeroual-dead.html
+
+**Wizards' April Fools' prank 'missed the mark,' team says in apology**\
+`The skit occurred during halftime of the Wizards’ eventual 153-131 loss to the Philadelphia 76ers on the evening of April Fools' Day.`\
+https://nytimes.com/athletic/7166953/2026/04/02/wizards-april-fools-joke-halfcourt-shot/
+
 **How to watch Pelicans vs. Trail Blazers: Time, TV, streaming**\
 `Find out how to watch the New Orleans Pelicans play the Portland Trail Blazers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7167261/2026/04/02/pelicans-vs-trail-blazers-stream-how-to-watch-april-2/
