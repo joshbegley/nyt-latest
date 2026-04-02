@@ -1,3 +1,11 @@
+**Hegseth Allows Troops to Carry Personal Firearms at Military Bases**\
+`Many shootings at military bases have involved troops bringing guns they purchased onto base grounds and opening fire on fellow service members.`\
+https://nytimes.com/2026/04/02/us/politics/hegseth-personal-firearms.html
+
+**On Day 2, the astronauts begin their journey to the moon.**\
+`By Katrina Miller`\
+https://nytimes.com/live/2026/04/02/science/artemis-nasa-moon-astronauts/artemis-day-2-moon-journey
+
 **Trump Says Opening the Strait of Hormuz ‘Should Be Easy.’ Will It?**\
 `President Trump is asking U.S. allies to “go to” the Strait of Hormuz “and just take it.” Eric Schmitt, our national security correspondent, explains how difficult it would be to clear the strait by force.`\
 https://nytimes.com/video/us/politics/100000010806526/trump-iran-strait-of-hormuz.html
