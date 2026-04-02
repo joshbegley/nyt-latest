@@ -1,3 +1,7 @@
+**Kirk Cousins agrees to free-agent deal with Raiders**\
+`Cousins, 37, was 12-10 as a starter and 24th in the league in EPA per dropback during his two seasons with the Atlanta Falcons.`\
+https://nytimes.com/athletic/7086984/2026/04/02/kirk-cousins-raiders-nfl-free-agency-2026/
+
 **After More Than 50 Years, Humans Depart Again for the Moon**\
 `With the Artemis II launch, NASA reignited its long-dormant ambitions for crewed lunar exploration.`\
 https://nytimes.com/2026/04/02/science/space/artemis-nasa-astronauts-moon-launch-photos.html

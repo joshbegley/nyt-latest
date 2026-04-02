@@ -1,3 +1,7 @@
+**Kirk Cousins agrees to free-agent deal with Raiders**\
+`Cousins, 37, was 12-10 as a starter and 24th in the league in EPA per dropback during his two seasons with the Atlanta Falcons.`\
+https://nytimes.com/athletic/7086984/2026/04/02/kirk-cousins-raiders-nfl-free-agency-2026/
+
 **After More Than 50 Years, Humans Depart Again for the Moon**\
 `With the Artemis II launch, NASA reignited its long-dormant ambitions for crewed lunar exploration.`\
 https://nytimes.com/2026/04/02/science/space/artemis-nasa-astronauts-moon-launch-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/02/arts/design/the-coming-of-age-wellcome-collection
 **Midway through Notre Dame spring practice, what's on Marcus Freeman's mind?**\
 `As complete as his roster looks, Freeman will keep poking and prodding the team as the calendar flips to April, with the spring game ahead.`\
 https://nytimes.com/athletic/7166233/2026/04/02/notre-dame-spring-practice-marcus-freeman-takeaways/
-
-**Alpine dismisses Colapinto-Gasly 'sabotage' claims, condemns abuse in open letter to fans**\
-`The team said that “any questions about sabotage or not giving Franco the same car are completely unfounded".`\
-https://nytimes.com/athletic/7166290/2026/04/02/alpine-open-letter-colapinto-gasly-sabotage/
 
