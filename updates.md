@@ -1,3 +1,7 @@
+**Blanche, Trump’s Former Defense Lawyer, Steps In as Interim Attorney General**\
+`While it remains unclear how long Todd Blanche will stay in the job, whoever ends up taking over permanently will lead a department that he has shaped in his own image.`\
+https://nytimes.com/2026/04/02/us/politics/todd-blanche-interim-attorney-general-trump.html
+
 **OpenAI Buys Streaming Show ‘TBPN,’ Aiming to Change Narrative on A.I.**\
 `OpenAI said the deal would help it “create a space for a real, constructive conversation about the changes A.I. creates.”`\
 https://nytimes.com/2026/04/02/technology/openai-buys-tbpn.html
