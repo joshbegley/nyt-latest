@@ -1,3 +1,19 @@
+**Blue Owl, Ailing Wall St. Lender, Reveals Even More Troubles**\
+`Investors in struggling private credit firm put in record requests to get their money back.`\
+https://nytimes.com/2026/04/02/business/blue-owl-private-credit.html
+
+**Could Mike Gillis' unique pitch to NHL teams actually work for the Maple Leafs?**\
+`Mike Gillis' pitch for the Penguins was made five years ago, but offers insight into how he might approach a top job with the Maple Leafs.`\
+https://nytimes.com/athletic/7166409/2026/04/02/maple-leafs-mike-gillis-nhl/
+
+**Alabama AD says SEC title game has 'run its course' in expanded CFP era**\
+`Alabama AD Greg Byrne told USA Today the SEC should get rid of its conference title game amid debates about the Playoff's future.`\
+https://nytimes.com/athletic/7166799/2026/04/02/sec-championship-game-future-greg-byrne/
+
+**In a Holy Thursday Ritual, Pope Leo Returns to Tradition**\
+`Pope Francis washed and kissed the feet of prisoners and refugees. On Thursday, his successor performed the rite of humility and service for priests.`\
+https://nytimes.com/2026/04/02/world/europe/pope-leo-wash-feet-holy-thursday.html
+
 **How Did Trump’s Iran Speech Fare?**\
 `Readers respond to President Trump’s speech on the war. Also: Asian Americans at risk; civic eduction for the 250th; a veteran’s view.`\
 https://nytimes.com/2026/04/02/opinion/trump-iran-speech.html
