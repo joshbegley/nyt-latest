@@ -1,3 +1,11 @@
+**ICE Arrests the Head of Wisconsin’s Largest Islamic Group**\
+`Officials detained Salah Sarsour, the president of the Islamic Society of Milwaukee, on Monday. He is a legal permanent resident, the organization said.`\
+https://nytimes.com/2026/04/02/us/ice-milwaukee-muslim-leader-arrest.html
+
+**What to Know About the ‘Massive’ Military Bunker Beneath Trump’s Ballroom**\
+`President Trump has been talking about the emergency facility beneath what was once the East Wing, details of which are usually kept secret, as he tries to justify his renovation.`\
+https://nytimes.com/2026/04/02/us/politics/trump-ballroom-military-bunker.html
+
 **Johnson Wavers on Ending the Shutdown, Reflecting His Weak Hold on Power**\
 `The House speaker first panned, then endorsed, then punted on, then pitched and now is delaying a bill to reopen the Homeland Security Department, showing his vulnerability in the face of party rifts.`\
 https://nytimes.com/2026/04/02/us/elections/mike-johnson-shutdown-power.html
