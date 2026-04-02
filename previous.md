@@ -1,3 +1,7 @@
+**Yankees takeaways: Is Cam Schlittler club's best young pitcher since Luis Severino?**\
+`The former seventh-rounder has a chance to be the club's next homegrown star. Plus, Aaron Judge has struggled, but others are stepping up.`\
+https://nytimes.com/athletic/7165720/2026/04/01/yankees-cam-schlittler-aaron-judge-takeaways/
+
 **The Artemis II Toilet Had a Problem**\
 `The Universal Waste Management System aboard the Orion capsule is an innovation in deep space toiletry (if it works).`\
 https://nytimes.com/2026/04/01/science/artemis-ii-bathroom-toilet.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7165555/2026/04/01/puka-nacua-rehab-rams-allegation
 **Corrections: April 2, 2026**\
 `Corrections that appeared in print on Thursday, April 2, 2026.`\
 https://nytimes.com/2026/04/01/pageoneplus/corrections-april-2-2026.html
-
-**NASA’s Artemis II Moon Mission Launches Into Space**\
-`The crew of four — three Americans and one Canadian — reached space on Wednesday on the first crewed journey to the moon since 1972.`\
-https://nytimes.com/video/science/space/100000010816588/nasas-artemis-ii-moon-mission-launches-into-space.html
 

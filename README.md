@@ -1,3 +1,7 @@
+**Some rejoiced in NASA’s return to the moon. Others had a regular Wednesday.**\
+`Space enthusiasts watched with awe and joy as a massive rocket roared into space on the first crewed flight to the moon in more than 50 years. Other Americans were detached, or oblivious.`\
+https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/people-watch-moon-flight
+
 **Yankees takeaways: Is Cam Schlittler club's best young pitcher since Luis Severino?**\
 `The former seventh-rounder has a chance to be the club's next homegrown star. Plus, Aaron Judge has struggled, but others are stepping up.`\
 https://nytimes.com/athletic/7165720/2026/04/01/yankees-cam-schlittler-aaron-judge-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/01/us/eugene-mirman-car-crash-bobs-burgers.html
 **Puka Nacua checks into facility, 'takes responsibility for his well-being'**\
 `The Rams star checked into the facility in early March and will remain there until he completes the program ahead of OTAs, his lawyer says.`\
 https://nytimes.com/athletic/7165555/2026/04/01/puka-nacua-rehab-rams-allegations/
-
-**Corrections: April 2, 2026**\
-`Corrections that appeared in print on Thursday, April 2, 2026.`\
-https://nytimes.com/2026/04/01/pageoneplus/corrections-april-2-2026.html
 

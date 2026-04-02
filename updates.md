@@ -1,3 +1,7 @@
+**Yankees takeaways: Is Cam Schlittler club's best young pitcher since Luis Severino?**\
+`The former seventh-rounder has a chance to be the club's next homegrown star. Plus, Aaron Judge has struggled, but others are stepping up.`\
+https://nytimes.com/athletic/7165720/2026/04/01/yankees-cam-schlittler-aaron-judge-takeaways/
+
 **The Artemis II Toilet Had a Problem**\
 `The Universal Waste Management System aboard the Orion capsule is an innovation in deep space toiletry (if it works).`\
 https://nytimes.com/2026/04/01/science/artemis-ii-bathroom-toilet.html
