@@ -1,3 +1,7 @@
+**Konate, his Liverpool future and contract talks: What we're hearing**\
+`The French defender is nearing the end of his deal, so what is the situation as it stands?`\
+https://nytimes.com/athletic/7163885/2026/04/02/ibrahima-konate-liverpool-contract-talks-future/
+
 **Word of the Day: parasol**\
 `This word has appeared in 13 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/04/02/learning/word-of-the-day-parasol.html

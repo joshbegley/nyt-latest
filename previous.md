@@ -1,3 +1,7 @@
+**Konate, his Liverpool future and contract talks: What we're hearing**\
+`The French defender is nearing the end of his deal, so what is the situation as it stands?`\
+https://nytimes.com/athletic/7163885/2026/04/02/ibrahima-konate-liverpool-contract-talks-future/
+
 **Word of the Day: parasol**\
 `This word has appeared in 13 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/04/02/learning/word-of-the-day-parasol.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7157425/2026/04/02/west-ham-squad-audit-2026/
 **It's time for Arsenal's players and fans to strap in for the mother of all run-ins**\
 `It was a mixed international break for Mikel Arteta's squad, but now they must reassemble and focus on a huge two months `\
 https://nytimes.com/athletic/7163508/2026/04/02/arsenal-return-fa-cup-champions-league-premier-league/
-
-**'Castellon's fans are as passionate as at Leeds – it's my dream to take them to La Liga'**\
-`Management has come sooner than expected the former Elland Road magician - but he explains to The Athletic how he's relishing the challenge`\
-https://nytimes.com/athletic/7161003/2026/04/02/pablo-hernandez-interview-leeds-castellon-la-liga/
 
