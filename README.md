@@ -1,3 +1,7 @@
+**Puka Nacua checks into facility, 'takes responsibility for his well-being'**\
+`The Rams star checked into the facility in early March and will remain there until he completes the program ahead of OTAs, his lawyer says.`\
+https://nytimes.com/athletic/7165555/2026/04/01/puka-nacua-rehab-rams-allegations/
+
 **Corrections: April 2, 2026**\
 `Corrections that appeared in print on Thursday, April 2, 2026.`\
 https://nytimes.com/2026/04/01/pageoneplus/corrections-april-2-2026.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/01/science/space/artemis-nasa-moon-how-long.html
 **Man Convicted of Aggravated Manslaughter in Police Officer’s Death**\
 `While the jury found Guy Rivera guilty in the death of Detective Jonathan Diller in 2024, they acquitted him of first-degree murder, the most serious charge he faced.`\
 https://nytimes.com/2026/04/01/nyregion/nypd-diller-rivera-murder-trial.html
-
-**Red Sox lose fifth straight, fall to 1-5 after 'embarrassing' road trip**\
-`Trevor Story and Masataka Yoshida went 0-for-8 in the two- and three-holes and Caleb Durbin is searching for his first hit of the year.`\
-https://nytimes.com/athletic/7165379/2026/04/01/red-sox-1-5-takeaways-alex-cora/
 
