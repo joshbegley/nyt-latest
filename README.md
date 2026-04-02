@@ -19,7 +19,7 @@ https://nytimes.com/2026/04/02/us/elections/mike-johnson-shutdown-power.html
 https://nytimes.com/2026/04/02/world/middleeast/iran-war-trump-strait.html
 
 **LeBron James takes shots at Memphis, suggests Grizzlies 'go over to Nashville'**\
-`In an appearance on a YouTube show, star also said he might have "pulled an Eli Manning" had Grizzlies earned right to draft him in 2003.`\
+`In an appearance on a YouTube show, star lamented any trip he takes to the city, and said that other players share his sentiments.`\
 https://nytimes.com/athletic/7167728/2026/04/02/lebron-james-memphis-grizzlies-eli-manning/
 
 **Iranians mark a nature festival in the shadow of war.**\
