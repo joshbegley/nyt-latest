@@ -1,3 +1,11 @@
+**Submit questions for Jim Bowden's MLB mailbag**\
+`What are you wondering about this season? Jim Bowden will answer subscribers' questions in his upcoming mailbag. `\
+https://nytimes.com/athletic/7166269/2026/04/02/mlb-questions-jim-bowden/
+
+**Should Steph Curry return this season? It's silly to even debate it**\
+`Curry, who has been out since Jan. 30 with a knee injury, is aiming to come back for the 10th-place Warriors this weekend. `\
+https://nytimes.com/athletic/7166042/2026/04/02/steph-curry-return-knee-injury-debate-warriors/
+
 **How to watch Twins vs. Royals: Time, TV, streaming for April 2**\
 `Find out how to watch the Minnesota Twins play the Kansas City Royals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7166287/2026/04/02/twins-vs-royals-stream-how-to-watch-april-2/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7165207/2026/04/02/lakers-thunder-hot-nba-playoffs/
 **For Red Sox and Roman Anthony, Fenway opener is a 1-day pass from all that's gone wrong**\
 `For the Sox, the 1-5 start won't matter Friday. For Anthony, the slow start won't matter, either. But then comes the day after.`\
 https://nytimes.com/athletic/7165658/2026/04/02/red-sox-roman-anthony-home-opener/
-
-**Full circle after Hughes trade: Rossi, Buium, Öhgren return to Minnesota**\
-`On Thursday, Zeev Buium, Marco Rossi and Liam Öhgren will play their first game in Minnesota since being traded to the Canucks.`\
-https://nytimes.com/athletic/7164811/2026/04/02/wild-hughes-trade-rossi-buium-ohgren-return/
-
-**The decline of U.S. heavyweight boxing feels terminal. Can it be saved?**\
-`It is five years since an American owned a world title in the sport's most storied class but hope is not lost`\
-https://nytimes.com/athletic/7160783/2026/04/02/us-heavyweight-boxing-decline/
 
