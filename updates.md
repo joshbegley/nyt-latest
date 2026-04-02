@@ -1,3 +1,7 @@
+**Rival Nations Seize On Choke Points to Counter Trump**\
+`From Iran to China, President Trump’s global aggression has encouraged other countries to search for new ways to pressure the U.S. economy.`\
+https://nytimes.com/2026/04/02/business/economy/trump-iran-china-choke-points.html
+
 **JetBlue Raises Checked Bag Fees as Fuel Costs Soar**\
 `The airline, which now charges up to $59 for one checked bag on a domestic flight, could influence other carriers strained by the war in Iran.`\
 https://nytimes.com/2026/04/02/travel/jetblue-checked-bag-fees.html

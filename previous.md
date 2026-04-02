@@ -1,3 +1,7 @@
+**Rival Nations Seize On Choke Points to Counter Trump**\
+`From Iran to China, President Trump’s global aggression has encouraged other countries to search for new ways to pressure the U.S. economy.`\
+https://nytimes.com/2026/04/02/business/economy/trump-iran-china-choke-points.html
+
 **JetBlue Raises Checked Bag Fees as Fuel Costs Soar**\
 `The airline, which now charges up to $59 for one checked bag on a domestic flight, could influence other carriers strained by the war in Iran.`\
 https://nytimes.com/2026/04/02/travel/jetblue-checked-bag-fees.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/02/world/space-artemis-us-china-trump-iran-pam-bondi
 **The Singular Failure of Pam Bondi**\
 `The core of Mr. Trump’s dissatisfaction with the attorney general was apparently her failure to serve his need for revenge against his enemies.`\
 https://nytimes.com/2026/04/02/opinion/pam-bondi-fired-trump.html
-
-**Wimbledon Is Expanding. What Does That Mean for Tennis?**\
-`The largest obstacle to Wimbledon’s plans to nearly triple the size of its grounds has been removed. The Athletic’s Charlie Eccleshare explains what it could mean for the Grand Slam’s future.`\
-https://nytimes.com/video/the-athletic/100000010814221/wimbledon-is-expanding-what-does-that-mean-for-tennis.html
 

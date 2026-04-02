@@ -1,3 +1,7 @@
+**Trump Fires His Attorney General**\
+`Also, France’s president voices European frustration with the U.S. leader. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2026/04/02/briefing/trump-fires-attorney-general.html
+
 **Rival Nations Seize On Choke Points to Counter Trump**\
 `From Iran to China, President Trump’s global aggression has encouraged other countries to search for new ways to pressure the U.S. economy.`\
 https://nytimes.com/2026/04/02/business/economy/trump-iran-china-choke-points.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/04/02/science/artemis-nasa-moon-astronauts
 **The Race for the Future of the Moon**\
 `The Artemis II mission isn’t just about science and exploration. It’s part of a high-stakes space race between the U.S. and China.`\
 https://nytimes.com/2026/04/02/world/space-artemis-us-china-trump-iran-pam-bondi.html
-
-**The Singular Failure of Pam Bondi**\
-`The core of Mr. Trump’s dissatisfaction with the attorney general was apparently her failure to serve his need for revenge against his enemies.`\
-https://nytimes.com/2026/04/02/opinion/pam-bondi-fired-trump.html
 
