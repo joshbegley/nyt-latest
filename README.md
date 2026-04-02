@@ -1,3 +1,11 @@
+**Trump’s Cuts Have Eviscerated Once-Bipartisan Foreign Aid Programs**\
+`Acting mostly with approval from the Republican-led Congress, President Trump clawed back money it had approved for initiatives that enjoyed strong backing from members of both parties.`\
+https://nytimes.com/2026/04/02/us/politics/trump-congress-foreign-aid-rescissions.html
+
+**Trump Said Gas Prices Would Fall Quickly. World Leaders Are Not So Sure.**\
+`The president said this week the recent increases would be “short-term.” But other leaders are preparing for a longer crisis.`\
+https://nytimes.com/2026/04/02/climate/trump-gas-prices-iran-world-leaders.html
+
 **How to watch Braves vs. Diamondbacks: Time, TV, streaming for April 2**\
 `Find out how to watch the Atlanta Braves play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7167423/2026/04/02/braves-vs-diamondbacks-stream-how-to-watch-april-2/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/02/opinion/trump-iran-war-speech.html
 **Eloquence Has Grown Passé. Let’s Bring it Back into Fashion.**\
 `Being authentic or relatable shouldn’t mean being inarticulate.`\
 https://nytimes.com/2026/04/02/opinion/eloquence-ai-arguments.html
-
-**What’s Going On in This Picture? | April 13, 2026**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2026/04/02/learning/whats-going-on-in-this-picture-april-13-2026.html
-
-**Trump Has No Idea How to Clean Up His Own Mess**\
-`His speech told us very little, at least explicitly, but revealed quite a lot.`\
-https://nytimes.com/2026/04/02/opinion/trump-war-iran-speech.html
 
