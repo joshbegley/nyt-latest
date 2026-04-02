@@ -34,7 +34,7 @@ https://nytimes.com/2026/04/02/business/tesla-sales-electric-vehicles.html
 `The pro volleyball franchise adds nearly three dozen to its ownership group, continuing LOVB's wider surge in team investment.`\
 https://nytimes.com/athletic/7166396/2026/04/02/lovb-sf-steve-kerr-lexi-hull-julie-foudy/
 
-**Kanye West Takes the Stage in L.A., Hoping for a Rebranding**\
-`A concert on Wednesday at SoFi Stadium was the rapper’s first full live show in the United States since 2021 — and since a series of antisemitic behavior.`\
+**Ye Takes the Stage in L.A., Hoping to Wash Away His Sins**\
+`After years of antisemitic behavior, the rapper formerly known as Kanye West performed at SoFi Stadium for his first full live show in the United States since 2021.`\
 https://nytimes.com/2026/04/02/arts/music/kanye-west-concert-los-angeles.html
 
