@@ -1,3 +1,15 @@
+**How Did Trump’s Iran Speech Fare?**\
+`Readers respond to President Trump’s speech on the war. Also: Asian Americans at risk; civic eduction for the 250th; a veteran’s view.`\
+https://nytimes.com/2026/04/02/opinion/trump-iran-speech.html
+
+**Why have a Brazilian club called out Cristiano Ronaldo over a historic transfer dispute?**\
+`A dispute between Flamengo and Almeria over a transfer has led to the Court of Arbitration for Sport and embroiled the Portuguese superstar.`\
+https://nytimes.com/athletic/7166795/2026/04/02/flamengo-almeria-cas-cristiano-ronaldo/
+
+**Lawsuit Challenges Warrantless Searches and Forced Entries by ICE**\
+`A coalition of legal groups claims the Homeland Security Department adopted an unconstitutional policy allowing its agents to enter homes without a judicial warrant.`\
+https://nytimes.com/2026/04/02/us/politics/ice-lawsuit-forced-entry-warrants.html
+
 **‘The Blue Trail’ Review: A Drifting Journey Into Freedom**\
 `In an imaginary Brazil, where older people are forcibly removed from society, a resolute 77-year-old seeks her independence in the Amazon.`\
 https://nytimes.com/2026/04/02/movies/the-blue-trail-review.html
