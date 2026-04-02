@@ -1,3 +1,11 @@
+**Hegseth Allows Troops to Carry Personal Firearms at Military Bases**\
+`Many shootings at military bases have involved troops bringing guns they purchased onto base grounds and opening fire on fellow service members.`\
+https://nytimes.com/2026/04/02/us/politics/hegseth-personal-firearms.html
+
+**On Day 2, the astronauts begin their journey to the moon.**\
+`By Katrina Miller`\
+https://nytimes.com/live/2026/04/02/science/artemis-nasa-moon-astronauts/artemis-day-2-moon-journey
+
 **Trump Says Opening the Strait of Hormuz ‘Should Be Easy.’ Will It?**\
 `President Trump is asking U.S. allies to “go to” the Strait of Hormuz “and just take it.” Eric Schmitt, our national security correspondent, explains how difficult it would be to clear the strait by force.`\
 https://nytimes.com/video/us/politics/100000010806526/trump-iran-strait-of-hormuz.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/02/us/elections/mike-johnson-shutdown-power.html
 **Macron Voices Europe’s Frustration With Trump as Fighting Rages and Missiles Fly**\
 `President Emmanuel Macron of France expressed disapproval about President Trump’s handling of the war against Iran on Thursday, chastising him for speaking cavalierly in a speech.`\
 https://nytimes.com/2026/04/02/world/middleeast/iran-war-trump-strait.html
-
-**LeBron James takes swipe at Memphis, suggests Grizzlies 'go over to Nashville'**\
-`In an appearance on a YouTube show, star lamented any trip he takes to the city, and said that other players share his sentiments.`\
-https://nytimes.com/athletic/7167728/2026/04/02/lebron-james-memphis-grizzlies-eli-manning/
-
-**Iranians mark a nature festival in the shadow of war.**\
-`By Yeganeh Torbati and Sanam Mahoozi`\
-https://nytimes.com/live/2026/04/02/world/iran-war-trump-news/iranians-mark-a-nature-festival-in-the-shadow-of-war
 
