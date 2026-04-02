@@ -1,3 +1,11 @@
+**Storm Dave Cometh. But Why Is It Called That?**\
+`The conventions for naming storms are complicated by a mishmash of rules, national quirks and language barriers.`\
+https://nytimes.com/2026/04/02/world/europe/dave-storm-name-uk.html
+
+**Tina Peters, Colorado Election Denier, Has Prison Sentence Overturned**\
+`Ms. Peters, a former county clerk, received a nine-year sentence after being convicted of tampering with voting machines. An appeals court overturned the sentence but did not immediately free her from prison.`\
+https://nytimes.com/2026/04/02/us/politics/tina-peters-prison-sentence-trump.html
+
 **Iowa State star Audi Crooks to enter transfer portal**\
 `The 6-foot-3 All-American led the Big 12 in scoring each of the past two seasons.`\
 https://nytimes.com/athletic/7166788/2026/04/02/iowa-state-audi-crooks-transfer-portal/
