@@ -1,3 +1,23 @@
+**Why Newcastle's £18m KNOX training ground and sleeve deal is a 'message to the marketplace'**\
+`Newcastle confirmed a new training ground and training kit-sleeve sponsorship deal on Thursday`\
+https://nytimes.com/athletic/7163381/2026/04/02/newcastle-training-ground-kit-knox-analysis/
+
+**Map: 4.9-Magnitude Earthquake Shakes Northern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/04/02/us/02earthquake-california-tracker.html
+
+**Europe Pushes for a Gentler Internet for Children**\
+`The European Union and national capitals are trying to make social media and algorithms less addictive and safer, especially for children.`\
+https://nytimes.com/2026/04/02/world/europe/european-union-social-media-internet-regulation-children.html
+
+**Even if This Is the Right War, We’ve Got the Wrong President**\
+`Tastelessness and classlessness are the least of our concerns.`\
+https://nytimes.com/2026/04/02/opinion/trump-noem-birthright-east-wing.html
+
+**Can We Trust the New Testament?**\
+`A Christian and a self-described Christian Atheist debate.`\
+https://nytimes.com/2026/04/02/opinion/christian-atheist-debate-religion.html
+
 **How a Sapling and a Viral Candy Made California the World’s Pistachio King**\
 `Iran was once the world’s largest exporter of the nut. But years of trade embargoes and conflict have allowed the United States to steal its market share.`\
 https://nytimes.com/interactive/2026/04/02/business/california-pistachios-iran-war-dubai-chocolate.html
@@ -17,24 +37,4 @@ https://nytimes.com/2026/04/02/opinion/serial-the-idiot-family-prison.html
 **Homes for Sale in New York and New Jersey**\
 `This week’s properties are four-bedroom homes in East Hampton, N.Y., and Mahwah, N.J.`\
 https://nytimes.com/2026/04/02/realestate/housing-market-near-nyc.html
-
-**Homes for Sale in Manhattan and Brooklyn**\
-`This week’s properties are a studio in Murray Hill, and one bedroom apartments in Midtown and Carroll Gardens.`\
-https://nytimes.com/2026/04/02/realestate/housing-market-nyc.html
-
-**Worried About A.I. Taking Your Job? That’s Not Very ‘Agentic’ of You.**\
-`Today’s spin on the idea of personal agency is convenient for tech C.E.O.s, who boast that their models work just fine without us.`\
-https://nytimes.com/2026/04/02/magazine/agentic-ai-agency-tech.html
-
-**The Unlikely TV Show Restoring Everyone’s Faith in Dating**\
-`Without exploitation, “Love on the Spectrum” captures the triumphs and travails of dating. It has become one of Netflix’s most popular shows.`\
-https://nytimes.com/2026/04/02/magazine/love-spectrum-reality-dating-show.html
-
-**Louis Vuitton, Gucci, Prada … Meta?**\
-`Get ready for the return of wearables and a new stage in the fashion-tech relationship.`\
-https://nytimes.com/2026/04/02/style/meta-lab-smartglasses-wearables.html
-
-**36 Hours in Queenstown, New Zealand**\
-`An adventure town famous for madcap thrills is offering something relatively radical — relaxation.`\
-https://nytimes.com/interactive/2026/04/02/travel/things-to-do-queenstown.html
 
