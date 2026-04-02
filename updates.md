@@ -1,3 +1,7 @@
+**How to watch Spurs vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the San Antonio Spurs play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7167386/2026/04/02/spurs-vs-clippers-stream-how-to-watch-april-2/
+
 **No Plan. No Allies. No End in Sight.**\
 `The president failed to provide any meaningful strategy on the two central issues that define the war on Iran: reopening the Strait of Hormuz and what to do about that country’s uranium.`\
 https://nytimes.com/2026/04/02/opinion/trump-iran-war-speech.html

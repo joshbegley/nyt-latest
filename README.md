@@ -1,3 +1,7 @@
+**Former Turnstile Guitarist Charged With Attempted Murder of Bandmate’s Father**\
+`Brady Ebert, a founding member of the Baltimore hardcore punk band, hit the father of Brendan Yates, the group’s lead vocalist, with his car, the police said.`\
+https://nytimes.com/2026/04/02/arts/music/turnstile-brady-ebert-attempted-murder.html
+
 **How to watch Spurs vs. Clippers: Time, TV, streaming**\
 `Find out how to watch the San Antonio Spurs play the Los Angeles Clippers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7167386/2026/04/02/spurs-vs-clippers-stream-how-to-watch-april-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7166995/2026/04/02/how-the-dodgers-are-embracing-ed
 **Cignetti not concerned about new Indiana QB Hoover's TCU turnover history**\
 `Said Curt Cignetti of his new QB: 'When Josh got here, he met his two new best friends: a great defense and a really good run game.'`\
 https://nytimes.com/athletic/7167267/2026/04/02/josh-hoover-curt-cignetti-indiana-tcu/
-
-**Taking stock of the Giants' bullpen so far**\
-`The Giants' bullpen has been a surprising positive, with a couple of notable exceptions.`\
-https://nytimes.com/athletic/7167075/2026/04/02/taking-stock-of-giants-bullpen/
 
