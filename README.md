@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Zolan Kanno-Youngs and Yan Zhuang`\
+https://nytimes.com/live/2026/04/02/world/iran-war-trump-news/heres-the-latest
+
+**Iran War Live Updates: Gulf Nations and Israel Face New Attacks After Trump Claims Military Success**\
+`President Trump said the United States would hit Iran “extremely hard” over the next two to three weeks. He said the war was already a success but did not offer a concrete exit timeline.`\
+https://nytimes.com/live/2026/04/02/world/iran-war-trump-news
+
 **Desi Lydic Would Like Trump to Take a Hint**\
 `“Might I suggest: If the ballroom starts experiencing ballistic assault, maybe we just cancel the ball?” she said on “The Daily Show.”`\
 https://nytimes.com/2026/04/02/arts/television/late-night-trump-ballroom.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7165907/2026/04/02/dodgers-shohei-ohtani-offense-mu
 **The Only Thing Trump Is Missing in Cuba Is a Plan**\
 `Starving Cubans does nothing to advance American interests.`\
 https://nytimes.com/2026/04/02/opinion/trump-cuba-oil-blockade.html
-
-**The New York Times in Print for Thursday, April 2, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/04/02/todays-new-york-times
-
-**Why Hashtag United signed and sold AI footballers: 'AI is not going anywhere'**\
-`Spencer Carmichael-Brown, the founder of Hashtag United, explains why the club felt the need to sign AI footballers`\
-https://nytimes.com/athletic/6836755/2026/04/02/hashtag-united-ai-footballers-interview/
 
