@@ -1,3 +1,11 @@
+**Judge Finds Border Officials Violated Previous Order on Warrantless Arrests**\
+`A federal judge in California ordered agents to thoroughly document any future stops in an area spanning 34 counties.`\
+https://nytimes.com/2026/04/01/us/politics/ruling-border-patrol-warrantless-arrests.html
+
+**Man Threatened to Kill President Trump With Sword, Officials Say**\
+`The man made multiple threats on Facebook and said that the law enforcement agents responding to arrest him would be killed, officials said.`\
+https://nytimes.com/2026/04/01/us/trump-kill-threats-fbi-sword.html
+
 **U.S. Lifts Sanctions on Venezuela’s New Leader**\
 `Removing sanctions would allow Delcy Rodríguez, the country’s acting leader, to conduct business with U.S. companies and potentially meet with President Trump.`\
 https://nytimes.com/2026/04/01/us/politics/us-lifts-sanctions-rodriguez.html
