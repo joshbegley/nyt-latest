@@ -1,3 +1,11 @@
+**Trump Fires Pam Bondi as Attorney General**\
+`Todd Blanche, Ms. Bondi’s deputy, will be the acting attorney general, according to a person familiar with the decision.`\
+https://nytimes.com/2026/04/02/us/politics/trump-fires-bondi-attorney-general.html
+
+**Blue Owl, Ailing Private Credit Firm, Reveals Even More Troubles**\
+`Investors in the struggling Wall Street lender put in record requests to get their money back.`\
+https://nytimes.com/2026/04/02/business/blue-owl-private-credit.html
+
 **In Birthright Case, Trump’s Likely Loss May Not End the Fight**\
 `The justices gave respectful consideration to what was once a fringe theory and could rule against it on grounds that would allow Congress to return to the question.`\
 https://nytimes.com/2026/04/02/us/politics/birthright-citizenship-trump-supreme-court.html

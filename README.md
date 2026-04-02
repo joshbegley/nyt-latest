@@ -1,3 +1,11 @@
+**Russia Is Sending a Second Oil Tanker to Fuel-Starved Cuba**\
+`The announcement of a second shipment follows the arrival of a first oil tanker sent by the Kremlin earlier this week.`\
+https://nytimes.com/2026/04/02/world/americas/cuba-russia-oil-tanker.html
+
+**How to Find Great Values in Wine**\
+`Costs are rising, but with exploration and understanding one’s own limits it’s still possible to maximize quality at the right price.`\
+https://nytimes.com/2026/04/02/dining/drinks/wine-tariffs-cost-value.html
+
 **Trump Fires Pam Bondi as Attorney General**\
 `Todd Blanche, Ms. Bondi’s deputy, will be the acting attorney general, according to a person familiar with the decision.`\
 https://nytimes.com/2026/04/02/us/politics/trump-fires-bondi-attorney-general.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7166799/2026/04/02/sec-championship-game-future-gre
 **In a Holy Thursday Ritual, Pope Leo Returns to Tradition**\
 `Pope Francis washed and kissed the feet of prisoners and refugees. On Thursday, his successor performed the rite of humility and service for priests.`\
 https://nytimes.com/2026/04/02/world/europe/pope-leo-wash-feet-holy-thursday.html
-
-**How Did Trump’s Iran Speech Fare?**\
-`Readers respond to President Trump’s speech on the war. Also: Asian Americans at risk; civic eduction for the 250th; a veteran’s view.`\
-https://nytimes.com/2026/04/02/opinion/trump-iran-speech.html
-
-**Why have a Brazilian club called out Cristiano Ronaldo over a historic transfer dispute?**\
-`A dispute between Flamengo and Almeria over a transfer has led to the Court of Arbitration for Sport and embroiled the Portuguese superstar.`\
-https://nytimes.com/athletic/7166795/2026/04/02/flamengo-almeria-cas-cristiano-ronaldo/
 
