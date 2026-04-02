@@ -1,3 +1,7 @@
+**How the Cavaliers rely on meals to retain superstars, build team bonds**\
+`Rather than meals at expensive restaurants that require extensive planning, Cavaliers players prefer team dinners at their hotels.`\
+https://nytimes.com/athletic/7164019/2026/04/02/nba-cavaliers-team-meals-bonding/
+
 **Ranking Yankee Stadium's newest concessions, from dessert 'chicken' to fried mozzarella**\
 `The Yankees unveiled their new concession items for 2026 this week, and The Athletic was there to taste everything. Let's rank some food!`\
 https://nytimes.com/athletic/7161666/2026/04/02/yankee-stadium-food-beverage-concessions-ranking/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7160783/2026/04/02/us-heavyweight-boxing-decline/
 **College football transfer portal QB rankings: Darian Mensah, Sam Leavitt top the list**\
 `This ranking, updated since January, factors in the fit for each quarterback, not just their overall ability.`\
 https://nytimes.com/athletic/7149139/2026/04/02/college-football-transfer-portal-qb-rankings-mensah-leavitt/
-
-**Why Conor Sheary is still a Rangers mainstay amid a recent rookie surge**\
-`After spending most of the 2024-25 season in the AHL, Sheary's motor and veteran presence have powered 55 games for the Rangers.`\
-https://nytimes.com/athletic/7165077/2026/04/02/conor-sheary-rangers-nhl-career-veteran-leadership/
 

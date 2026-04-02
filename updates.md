@@ -1,3 +1,7 @@
+**How the Cavaliers rely on meals to retain superstars, build team bonds**\
+`Rather than meals at expensive restaurants that require extensive planning, Cavaliers players prefer team dinners at their hotels.`\
+https://nytimes.com/athletic/7164019/2026/04/02/nba-cavaliers-team-meals-bonding/
+
 **Ranking Yankee Stadium's newest concessions, from dessert 'chicken' to fried mozzarella**\
 `The Yankees unveiled their new concession items for 2026 this week, and The Athletic was there to taste everything. Let's rank some food!`\
 https://nytimes.com/athletic/7161666/2026/04/02/yankee-stadium-food-beverage-concessions-ranking/
