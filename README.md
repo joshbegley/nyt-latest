@@ -1,3 +1,7 @@
+**Texas Man Charged With Manslaughter in Connection With Cold Case**\
+`Prosecutors in Galveston County say that in the 1980s, a man killed a teenager and helped hide the remains of a woman, two of the dozens of bodies found on land known as the Texas Killing Fields.`\
+https://nytimes.com/2026/04/01/us/texas-killing-fields-charges-filed.html
+
 **4 tiny spacecraft have tagged along with Artemis II.**\
 `By Katrina Miller`\
 https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/4-tiny-spacecraft-are-tagging-along-with-artemis-ii
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/01/business/oil-stocks-gasoline-prices-iran-trump.ht
 **Some rejoiced in NASA’s return to the moon. Others had a regular Wednesday.**\
 `Space enthusiasts watched with awe and joy as a massive rocket roared into space on the first crewed flight to the moon in more than 50 years. Other Americans were detached, or oblivious.`\
 https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/people-watch-moon-flight
-
-**Yankees takeaways: Is Cam Schlittler club's best young pitcher since Luis Severino?**\
-`The former seventh-rounder has a chance to be the club's next homegrown star. Plus, Aaron Judge has struggled, but others are stepping up.`\
-https://nytimes.com/athletic/7165720/2026/04/01/yankees-cam-schlittler-aaron-judge-takeaways/
 
