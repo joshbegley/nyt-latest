@@ -1,3 +1,7 @@
+**Konnor Griffin, one of baseball's most exciting prospects in years, to join Pirates**\
+`Griffin’s ceiling conjures hope for a Pirates fan base desperate for a return to relevance.`\
+https://nytimes.com/athletic/7160955/2026/04/02/konnor-griffin-pirates-mlb-prospect-debut/
+
 **Penguins mailbag: Will Pittsburgh pursue Auston Matthews?**\
 `A look at what could happen this summer and a big swing that might intrigue Kyle Dubas.`\
 https://nytimes.com/athletic/7165249/2026/04/02/penguins-auston-matthews-kyle-dubas-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7166306/2026/04/02/fanatics-nfl-topps-chrome-footba
 **Thierry Henry: What it's like to win a World Cup, lose a World Cup, and coach at one**\
 `Henry has experienced World Cups from every angle. He won it in 1998 and was a runner-up in 2006, and coached Belgium in 2018 and 2022`\
 https://nytimes.com/athletic/7165223/2026/04/02/thierry-henry-2026-world-cup-interview-france/
-
-**New Jersey 11th Congressional District Special Election 2026: Latest Polls**\
-`Track the latest polls in New Jersey's 11th Congressional District special election.`\
-https://nytimes.com/interactive/polls/new-jersey-us-house-11-special-polls-2026.html
 

@@ -1,3 +1,11 @@
+**Penguins mailbag: Will Pittsburgh pursue Auston Matthews?**\
+`A look at what could happen this summer and a big swing that might intrigue Kyle Dubas.`\
+https://nytimes.com/athletic/7165249/2026/04/02/penguins-auston-matthews-kyle-dubas-mailbag/
+
+**The Bounce: The West's best are charging toward the playoffs with zest**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7166579/2026/04/02/west-playoffs-nba-thunder-spurs-the-bounce/
+
 **Thierry Henry: What it's like to win a World Cup, lose a World Cup, and coach at one**\
 `Henry has experienced World Cups from every angle. He won it in 1998 and was a runner-up in 2006, and coached Belgium in 2018 and 2022`\
 https://nytimes.com/athletic/7165223/2026/04/02/thierry-henry-2026-world-cup-interview-france/
