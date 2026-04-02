@@ -1,3 +1,11 @@
+**Everton hopeful of keeping Grealish beyond end of loan spell**\
+`The 30-year-old has not played since January 18 due to a foot injury that required surgery.`\
+https://nytimes.com/athletic/7166864/2026/04/02/jack-grealish-everton-future-loan/
+
+**New Spurs coach De Zerbi responds to criticism over defence of Greenwood**\
+`A number of fan groups criticised Spurs over the Italian's public defence of Greenwood while at Marseille.`\
+https://nytimes.com/athletic/7166861/2026/04/02/tottenham-de-zerbi-mason-greenwood-response/
+
 **New Spurs coach De Zerbi responds to criticism over defence of Greenwood**\
 `A number of fan groups criticised the Italian over his public defence of Greenwood while at Marseille prior to his appointment by Spurs.`\
 https://nytimes.com/athletic/7166861/2026/04/02/tottenham-de-zerbi-mason-greenwood-response/

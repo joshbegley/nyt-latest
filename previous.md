@@ -1,5 +1,9 @@
+**Everton hopeful of keeping Grealish beyond end of loan spell**\
+`The 30-year-old has not played since January 18 due to a foot injury that required surgery.`\
+https://nytimes.com/athletic/7166864/2026/04/02/jack-grealish-everton-future-loan/
+
 **New Spurs coach De Zerbi responds to criticism over defence of Greenwood**\
-`A number of fan groups criticised the Italian over his public defence of Greenwood while at Marseille prior to his appointment by Spurs.`\
+`A number of fan groups criticised Spurs over the Italian's public defence of Greenwood while at Marseille.`\
 https://nytimes.com/athletic/7166861/2026/04/02/tottenham-de-zerbi-mason-greenwood-response/
 
 **Strong Storms Bring a Threat of Tornadoes on Thursday**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7158740/2026/04/02/mlb-peter-ueberroth-daughter-law
 **Storm Dave Cometh. But Why Is It Called That?**\
 `The conventions for naming storms are complicated by a mishmash of rules, national quirks and language barriers.`\
 https://nytimes.com/2026/04/02/world/europe/dave-storm-name-uk.html
-
-**Iowa State star Audi Crooks to enter transfer portal**\
-`The 6-foot-3 All-American led the Big 12 in scoring each of the past two seasons.`\
-https://nytimes.com/athletic/7166788/2026/04/02/iowa-state-audi-crooks-transfer-portal/
 
