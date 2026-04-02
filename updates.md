@@ -1,3 +1,15 @@
+**Fantasy baseball bullpen report featuring Lucas Erceg, Ryan Walker and others**\
+`Greg Jewett notes this week's most impactful bullpen changes for fantasy baseball, including Lucas Erceg's hot start. `\
+https://nytimes.com/athletic/7166959/2026/04/02/fantasy-baseball-bullpen-report-lucas-erceg/
+
+**E.P.A. Targets Microplastics and Drugs in Drinking Water**\
+`The move drew praise from leaders of the Make America Healthy Again movement who had recently criticized the agency’s handling of toxic chemicals.`\
+https://nytimes.com/2026/04/02/climate/microplastics-maha-epa.html
+
+**What Students Are Saying About Screens in School**\
+`Teenagers react to New York Times reporting that shows technology has become ingrained in classrooms since the pandemic.`\
+https://nytimes.com/2026/04/02/learning/what-students-are-saying-about-screens-in-school.html
+
 **Fab Five to reunite for Michigan-Arizona alt-cast during Final Four showdown**\
 `The Wolverines are making their first Final Four appearance since 2018, when they finished runner-up to Villanova.`\
 https://nytimes.com/athletic/7167024/2026/04/02/fab-five-michigan-arizona-altcast-final-four/
