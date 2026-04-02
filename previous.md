@@ -1,3 +1,19 @@
+**Danish Shows to Watch While We’re Still at Peace**\
+`The protector of Greenland also makes very entertaining TV.`\
+https://nytimes.com/2026/04/02/arts/television/danish-shows-to-watch-streaming.html
+
+**Villa loanee Sancho set for at least two weeks on sidelines**\
+`Scans showed the winger, who is on loan from Manchester United, has not dislocated his right shoulder, but instead has a joint issue.`\
+https://nytimes.com/athletic/7166626/2026/04/02/jadon-sancho-injury-latest-aston-villa/
+
+**Trump Faces a Tough Fight With His New Budget**\
+`Last year, the president proposed many steep spending cuts that Congress never granted. This time, he may face an even tougher sell.`\
+https://nytimes.com/2026/04/02/business/economy/trump-budget-spending.html
+
+**Big 12 commissioner Brett Yormark: Cody Campbell 'does not run the Big 12'**\
+`Yormark responded to Texas Tech booster and board of regents chair Cody Campbell taking issue with a potential move of a game to Friday.`\
+https://nytimes.com/athletic/7166545/2026/04/02/brett-yormark-big-12-cody-campbell-texas-tech/
+
 **Investigators Said to Look at Whether LaGuardia Controller Stepped Away**\
 `Officials are said to be examining whether a controller had to use an emergency phone just before the crash at LaGuardia. They have yet to determine the cause of the crash and are also focusing on other avenues.`\
 https://nytimes.com/2026/04/02/nyregion/laguardia-air-canada-investigation.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7166527/2026/04/02/jaume-guardeno-intensive-care-cy
 **Rapper J. Cole to join Chinese pro basketball team**\
 `Cole played high school basketball in Fayetteville, N.C., and attempted to play college ball at St. John’s as a walk-on. `\
 https://nytimes.com/athletic/7166009/2026/04/02/j-cole-basketball-china/
-
-**Italian Football Federation chief resigns after World Cup failure**\
-`Tuesday's defeat by Bosnia and Herzegovina means Italy have failed to qualify for the last three men's World Cups.`\
-https://nytimes.com/athletic/7163681/2026/04/02/italy-world-cup-gravina-gattuso/
-
-**Macron Snaps Back at Trump’s Mockery and Criticism of NATO**\
-`President Emmanuel Macron of France suggested that President Trump’s daily comments on the war in Iran were unserious. “Maybe one shouldn’t speak every day,” Mr. Macron told reporters.`\
-https://nytimes.com/2026/04/02/world/middleeast/macron-trump-nato.html
-
-**He Studied How to Transport Blood to Wounded Marines**\
-`Peter Frazier’s lab at Cornell worked to improve how blood was stored and transported for armed forces. Then he received a stop-work order.`\
-https://nytimes.com/2026/04/02/science/science-military-blood.html
-
-**House Takes No Action on Homeland Security Funding, Prolonging Shutdown**\
-`Even after Speaker Mike Johnson agreed to a deal to fund the Department of Homeland Security without immigration enforcement money, the House failed to take it up amid hard-right opposition.`\
-https://nytimes.com/2026/04/02/us/politics/house-no-action-homeland-security-funding-shutdown.html
 
