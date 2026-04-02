@@ -1,3 +1,7 @@
+**The Awe of a Moon Launch in an Age of Trump, Turmoil and Tribal Divisions**\
+`The launch of Artemis II captured the tenor of the times in a country that can still do big things but seems forever mired in big problems.`\
+https://nytimes.com/2026/04/02/us/politics/artemis-ii-launch-trump.html
+
 **How Predictions Markets Are Thriving in the Trump Administration**\
 `Prediction markets like Kalshi and Polymarket are surging in popularity, but are they a valuable forecasting tool or a dangerous slippery slope? The “Athletic Show” panel explores how these platforms have bypassed traditional sports-betting regulations, operating with a “federal lightning pass” under the Trump administration.`\
 https://nytimes.com/video/the-athletic/100000010800819/how-predictions-markets-are-thriving-in-the-trump-administration.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/100000010818606/macron-trump-war-in-iran-nato.ht
 **Here’s the latest.**\
 `By Katrina Miller`\
 https://nytimes.com/live/2026/04/02/science/artemis-nasa-moon-astronauts/heres-the-latest
-
-**Live Updates: Orbiting Artemis II Astronauts Prepare to Head to the Moon**\
-`After waiting above the Earth for almost a day, the NASA Orion spacecraft is expected to fire its engines soon and shoot away from the planet.`\
-https://nytimes.com/live/2026/04/02/science/artemis-nasa-moon-astronauts
 

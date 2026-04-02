@@ -1,3 +1,7 @@
+**How Predictions Markets Are Thriving in the Trump Administration**\
+`Prediction markets like Kalshi and Polymarket are surging in popularity, but are they a valuable forecasting tool or a dangerous slippery slope? The “Athletic Show” panel explores how these platforms have bypassed traditional sports-betting regulations, operating with a “federal lightning pass” under the Trump administration.`\
+https://nytimes.com/video/the-athletic/100000010800819/how-predictions-markets-are-thriving-in-the-trump-administration.html
+
 **Trump Fires His Attorney General**\
 `Also, France’s president voices European frustration with the U.S. leader. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2026/04/02/briefing/trump-fires-attorney-general.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/04/02/science/artemis-nasa-moon-astronauts/heres-t
 **Live Updates: Orbiting Artemis II Astronauts Prepare to Head to the Moon**\
 `After waiting above the Earth for almost a day, the NASA Orion spacecraft is expected to fire its engines soon and shoot away from the planet.`\
 https://nytimes.com/live/2026/04/02/science/artemis-nasa-moon-astronauts
-
-**The Race for the Future of the Moon**\
-`The Artemis II mission isn’t just about science and exploration. It’s part of a high-stakes space race between the U.S. and China.`\
-https://nytimes.com/2026/04/02/world/space-artemis-us-china-trump-iran-pam-bondi.html
 
