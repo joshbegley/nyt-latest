@@ -1,3 +1,15 @@
+**West Ham squad audit: Exploring every player's contract situation as the club fight to stay up**\
+`What are the contract statuses of key players, and whose future could be determined by whether or not the club stays in the Premier League?`\
+https://nytimes.com/athletic/7157425/2026/04/02/west-ham-squad-audit-2026/
+
+**It's time for Arsenal's players and fans to strap in for the mother of all run-ins**\
+`It was a mixed international break for Mikel Arteta's squad, but now they must reassemble and focus on a huge two months `\
+https://nytimes.com/athletic/7163508/2026/04/02/arsenal-return-fa-cup-champions-league-premier-league/
+
+**'Castellon's fans are as passionate as at Leeds – it's my dream to take them to La Liga'**\
+`Management has come sooner than expected the former Elland Road magician - but he explains to The Athletic how he's relishing the challenge`\
+https://nytimes.com/athletic/7161003/2026/04/02/pablo-hernandez-interview-leeds-castellon-la-liga/
+
 **Why Arsenal may need to show a bit more caution in the Champions League semi-finals**\
 `Chelsea may be out but they revealed some defensive weaknesses in the Arsenal team that future opponents may be able to exploit`\
 https://nytimes.com/athletic/7165326/2026/04/02/arsenal-chelsea-champions-league-tactics/
@@ -25,16 +37,4 @@ https://nytimes.com/video/science/space/100000010816934/artemis-nasa-moon-launch
 **Twins are MLB's most aggressive ABS team, set record with 9 challenges**\
 `The 2026 Minnesota Twins lead the league in something, and it's being successful at the new Automated Ball-Strike challenge system. `\
 https://nytimes.com/athletic/7165898/2026/04/02/minnesota-twins-abs-challenges-success/
-
-**Connections: Sports Edition Coach: Hints and answers for April 2, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7165341/2026/04/02/connections-sports-edition-hints-answers-april-2-2026/
-
-**China’s Aiming for the Moon, and NASA Is Looking Over Its Shoulder**\
-`The U.S. space agency launched a lunar flyby Wednesday, but Beijing is pursuing its own space program with formidable focus. Here’s what we know about it, in photos and videos.`\
-https://nytimes.com/2026/04/02/world/asia/chinas-aiming-for-the-moon-and-nasa-is-looking-over-its-shoulder.html
-
-**Iran War Showcases Strength of South Korean Defense Sector**\
-`Missile interceptors made by the South Korean firm LIG Nex1 are said to be performing well, at a small fraction of the cost of U.S. interceptors.`\
-https://nytimes.com/2026/04/02/business/iran-war-showcases-strength-of-south-korean-defense-sector.html
 

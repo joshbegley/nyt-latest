@@ -1,3 +1,11 @@
+**Why Arsenal may need to show a bit more caution in the Champions League semi-finals**\
+`Chelsea may be out but they revealed some defensive weaknesses in the Arsenal team that future opponents may be able to exploit`\
+https://nytimes.com/athletic/7165326/2026/04/02/arsenal-chelsea-champions-league-tactics/
+
+**Is Mbappe a leader who can take France to World Cup glory?**\
+`The Real Madrid striker is preparing for his first World Cup as his country's on-field leader. The role has not been without its challenges`\
+https://nytimes.com/athletic/7139364/2026/04/02/kylian-mbappe-france-captain/
+
 **Managers on the rise: Rene Maric, the Bayern Munich assistant who looks ready to set out on his own**\
 `Bayern Munich's highly-rated assistant has turned down roles in Europe and appears to have all the tools needed to succeed as a head coach`\
 https://nytimes.com/athletic/7127911/2026/04/02/rene-maric-bayern-munich-profile/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/02/world/asia/chinas-aiming-for-the-moon-and-nasa-is
 **Iran War Showcases Strength of South Korean Defense Sector**\
 `Missile interceptors made by the South Korean firm LIG Nex1 are said to be performing well, at a small fraction of the cost of U.S. interceptors.`\
 https://nytimes.com/2026/04/02/business/iran-war-showcases-strength-of-south-korean-defense-sector.html
-
-**Quote of the Day: He Won Birthright Citizenship for All. His Kin Never Knew.**\
-`Quotation of the Day for Thursday, April 2, 2026.`\
-https://nytimes.com/2026/04/01/pageoneplus/quote-of-the-day-he-won-birthright-citizenship-for-all-his-kin-never-knew.html
-
-**Texas Man Charged With Manslaughter in Connection With Cold Case**\
-`Prosecutors in Galveston County say that in the 1980s, a man killed a teenager and helped hide the remains of a woman, two of the dozens of bodies found on land known as the Texas Killing Fields.`\
-https://nytimes.com/2026/04/01/us/texas-killing-fields-charges-filed.html
 

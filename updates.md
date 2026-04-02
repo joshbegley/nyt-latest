@@ -1,3 +1,11 @@
+**Why Arsenal may need to show a bit more caution in the Champions League semi-finals**\
+`Chelsea may be out but they revealed some defensive weaknesses in the Arsenal team that future opponents may be able to exploit`\
+https://nytimes.com/athletic/7165326/2026/04/02/arsenal-chelsea-champions-league-tactics/
+
+**Is Mbappe a leader who can take France to World Cup glory?**\
+`The Real Madrid striker is preparing for his first World Cup as his country's on-field leader. The role has not been without its challenges`\
+https://nytimes.com/athletic/7139364/2026/04/02/kylian-mbappe-france-captain/
+
 **Managers on the rise: Rene Maric, the Bayern Munich assistant who looks ready to set out on his own**\
 `Bayern Munich's highly-rated assistant has turned down roles in Europe and appears to have all the tools needed to succeed as a head coach`\
 https://nytimes.com/athletic/7127911/2026/04/02/rene-maric-bayern-munich-profile/
