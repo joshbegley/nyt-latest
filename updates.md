@@ -1,3 +1,7 @@
+**How to watch Twins vs. Royals: Time, TV, streaming for April 2**\
+`Find out how to watch the Minnesota Twins play the Kansas City Royals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7166287/2026/04/02/twins-vs-royals-stream-how-to-watch-april-2/
+
 **How the Cavaliers rely on meals to retain superstars, build team bonds**\
 `Rather than meals at expensive restaurants that require extensive planning, Cavaliers players prefer team dinners at their hotels.`\
 https://nytimes.com/athletic/7164019/2026/04/02/nba-cavaliers-team-meals-bonding/
