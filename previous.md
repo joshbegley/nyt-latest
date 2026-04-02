@@ -1,3 +1,15 @@
+**Macron Snaps Back at Trump’s Mockery and Criticism of NATO**\
+`President Emmanuel Macron of France suggested that President Trump’s daily comments on the war in Iran were unserious. “Maybe one shouldn’t speak every day,” Mr. Macron told reporters.`\
+https://nytimes.com/2026/04/02/world/middleeast/macron-trump-nato.html
+
+**He Studied How to Transport Blood to Wounded Marines**\
+`Peter Frazier’s lab at Cornell worked to improve how blood was stored and transported for armed forces. Then he received a stop-work order.`\
+https://nytimes.com/2026/04/02/science/science-military-blood.html
+
+**House Takes No Action on Homeland Security Funding, Prolonging Shutdown**\
+`Even after Speaker Mike Johnson agreed to a deal to fund the Department of Homeland Security without immigration enforcement money, the House failed to take it up amid hard-right opposition.`\
+https://nytimes.com/2026/04/02/us/politics/house-no-action-homeland-security-funding-shutdown.html
+
 **Kirk Cousins agrees to free-agent deal with Raiders**\
 `Cousins, 37, was 12-10 as a starter and 24th in the league in EPA per dropback during his two seasons with the Atlanta Falcons.`\
 https://nytimes.com/athletic/7086984/2026/04/02/kirk-cousins-raiders-nfl-free-agency-2026/
@@ -22,19 +34,7 @@ https://nytimes.com/2026/04/02/business/tesla-sales-electric-vehicles.html
 `The pro volleyball franchise adds nearly three dozen to its ownership group, continuing LOVB's wider surge in team investment.`\
 https://nytimes.com/athletic/7166396/2026/04/02/lovb-sf-steve-kerr-lexi-hull-julie-foudy/
 
-**Kanye West Takes the Stage in L.A., Hoping for a Rebranding**\
-`A concert on Wednesday at SoFi Stadium was the rapper’s first full live show in the United States since 2021 — and since a series of antisemitic behavior.`\
+**Ye Takes the Stage in L.A., Hoping to Wash Away His Sins**\
+`After years of antisemitic behavior, the rapper formerly known as Kanye West performed at SoFi Stadium for his first full live show in the United States since 2021.`\
 https://nytimes.com/2026/04/02/arts/music/kanye-west-concert-los-angeles.html
-
-**With Alperen Şengün ascending, Rockets look ready to launch for playoffs**\
-`Time off has helped Şengün return to his best self, and the two-man game between him and Kevin Durant is thriving.`\
-https://nytimes.com/athletic/7166047/2026/04/02/alperen-sengun-rockets-kevin-durant-playoffs/
-
-**The Age-Old Obsession With Living Forever**\
-`Biohackers like Bryan Johnson seem to want to live forever. What would that be like? A London exhibition offers some thoughts.`\
-https://nytimes.com/2026/04/02/arts/design/the-coming-of-age-wellcome-collection.html
-
-**Midway through Notre Dame spring practice, what's on Marcus Freeman's mind?**\
-`As complete as his roster looks, Freeman will keep poking and prodding the team as the calendar flips to April, with the spring game ahead.`\
-https://nytimes.com/athletic/7166233/2026/04/02/notre-dame-spring-practice-marcus-freeman-takeaways/
 
