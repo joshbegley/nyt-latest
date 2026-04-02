@@ -1,3 +1,8 @@
+**Victor Wembanyama sends message to Artemis II astronauts on NASA stream**\
+`Wembanyama has shown interest in aeronautical science and cosmology, visiting NASA’s Johnson Space Center in Houston last offseason.
+`\
+https://nytimes.com/athletic/7167544/2026/04/02/victor-wembanyama-artemis-ii-message-astronauts/
+
 **Blake Lively’s Retaliation Case Heads to Trial Without Harassment Claims**\
 `A federal judge tossed the actress’s sexual harassment claims against Justin Baldoni in a split decision that sets the stage for a contentious trial.`\
 https://nytimes.com/2026/04/02/movies/blake-lively-justin-baldoni-harassment-claims-dismissed.html
