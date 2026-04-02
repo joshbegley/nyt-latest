@@ -1,3 +1,7 @@
+**How to watch Timberwolves vs. Pistons: Time, TV, streaming**\
+`Find out how to watch the Minnesota Timberwolves play the Detroit Pistons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7166767/2026/04/02/timberwolves-vs-pistons-stream-how-to-watch-april-2/
+
 **How to watch Suns vs. Hornets: Time, TV, streaming**\
 `Find out how to watch the Phoenix Suns play the Charlotte Hornets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7166756/2026/04/02/suns-vs-hornets-stream-how-to-watch-april-2/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/02/arts/television/danish-shows-to-watch-streaming.h
 **Villa loanee Sancho set for at least two weeks on sidelines**\
 `Scans showed the winger, who is on loan from Manchester United, has not dislocated his right shoulder, but instead has a joint issue.`\
 https://nytimes.com/athletic/7166626/2026/04/02/jadon-sancho-injury-latest-aston-villa/
-
-**Trump Faces a Tough Fight With His New Budget**\
-`Last year, the president proposed many steep spending cuts that Congress never granted. This time, he may face an even tougher sell.`\
-https://nytimes.com/2026/04/02/business/economy/trump-budget-spending.html
 
