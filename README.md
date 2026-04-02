@@ -1,3 +1,7 @@
+**Fantasy baseball bullpen report featuring Lucas Erceg, Ryan Walker and others**\
+`Greg Jewett notes this week's most impactful bullpen changes for fantasy baseball, including Lucas Erceg's hot start. `\
+https://nytimes.com/athletic/7166959/2026/04/02/fantasy-baseball-bullpen-report-lucas-erceg/
+
 **E.P.A. Targets Microplastics and Drugs in Drinking Water**\
 `The move drew praise from leaders of the Make America Healthy Again movement who had recently criticized the agency’s handling of toxic chemicals.`\
 https://nytimes.com/2026/04/02/climate/microplastics-maha-epa.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/02/climate/trump-budget-climate-cuts-congress.html
 **Iran Says It Will Oversee Strait of Hormuz Traffic, Even in Peacetime**\
 `The United States says Iran’s claims to control the strait are illegal, but Tehran has made escalating assertions of authority over the vital waterway.`\
 https://nytimes.com/2026/04/02/world/middleeast/iran-oman-hormuz-control.html
-
-**5 New Books We Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://nytimes.com/2026/04/02/books/review/new-recommended-books.html
 
