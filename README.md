@@ -1,3 +1,7 @@
+**U.S. Lifts Sanctions on Venezuela’s New Leader**\
+`Removing sanctions would allow Delcy Rodríguez, the country’s acting leader, to conduct business with U.S. companies and potentially meet with President Trump.`\
+https://nytimes.com/2026/04/01/us/politics/us-lifts-sanctions-rodriguez.html
+
 **Eugene Mirman, ‘Bob’s Burgers’ Voice Actor, Seriously Injured in Car Crash**\
 `Mr. Mirman crashed his car on Tuesday in New Hampshire. He remains hospitalized with serious but non-life-threatening injuries.`\
 https://nytimes.com/2026/04/01/us/eugene-mirman-car-crash-bobs-burgers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7165577/2026/04/01/brandon-clarke-arrest-jail-charg
 **Key Justices Appear Skeptical of Limiting Birthright Citizenship**\
 `During a Supreme Court hearing on Wednesday, several justices expressed skepticism about the Trump administration’s efforts to bar children of undocumented immigrants born in the United States from automatically becoming Americans.`\
 https://nytimes.com/video/us/politics/100000010814848/supreme-court-birthright-trump-citizenship.html
-
-**When Will Artemis II Reach the Moon?**\
-`After orbiting Earth, the Orion capsule will carry the astronauts to the moon and arrive by Monday night.`\
-https://nytimes.com/2026/04/01/science/space/artemis-nasa-moon-how-long.html
 
