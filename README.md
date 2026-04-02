@@ -6,7 +6,7 @@ https://nytimes.com/2026/04/02/nyregion/alpha-gal-new-york-state-does-not-count.
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/04/02/crosswords/spelling-bee-forum.html
 
-**Konate, his Liverpool future and contract talks: What we're hearing**\
+**Konate's Liverpool future and contract talks: What we're hearing**\
 `The French defender is nearing the end of his deal, so what is the situation as it stands?`\
 https://nytimes.com/athletic/7163885/2026/04/02/ibrahima-konate-liverpool-contract-talks-future/
 
