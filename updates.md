@@ -1,3 +1,15 @@
+**How to watch Timberwolves vs. Pistons: Time, TV, streaming**\
+`Find out how to watch the Minnesota Timberwolves play the Detroit Pistons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7166767/2026/04/02/timberwolves-vs-pistons-stream-how-to-watch-april-2/
+
+**How to watch Suns vs. Hornets: Time, TV, streaming**\
+`Find out how to watch the Phoenix Suns play the Charlotte Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7166756/2026/04/02/suns-vs-hornets-stream-how-to-watch-april-2/
+
+**This Spicy Citrus-Marinated Fish Is, to Quote Our Readers, ‘SO GOOD!’**\
+`I need this mix of quick-roasted fish, pico de gallo and creamy avocado, and I need it now.`\
+https://nytimes.com/2026/04/02/dining/this-spicy-citrus-marinated-fish-is-to-quote-our-readers-so-good.html
+
 **Britain Says It Will Host Military Talks on Securing Strait of Hormuz**\
 `It was not clear whether the talks, expected to involve dozens of countries, would satisfy President Trump’s demand that other nations take a more active part in the Iran war.`\
 https://nytimes.com/2026/04/02/world/uk-reopen-strait-of-hormuz-talks.html
