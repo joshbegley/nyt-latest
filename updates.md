@@ -1,3 +1,7 @@
+**Cignetti not concerned about new Indiana QB Hoover's TCU turnover history**\
+`Said Curt Cignetti of his new QB: 'When Josh got here, he met his two new best friends: a great defense and a really good run game.'`\
+https://nytimes.com/athletic/7167267/2026/04/02/josh-hoover-curt-cignetti-indiana-tcu/
+
 **Taking stock of the Giants' bullpen so far**\
 `The Giants' bullpen has been a surprising positive, with a couple of notable exceptions.`\
 https://nytimes.com/athletic/7167075/2026/04/02/taking-stock-of-giants-bullpen/
