@@ -1,3 +1,7 @@
+**Eugene Mirman, ‘Bob’s Burgers’ Voice Actor, Seriously Injured in Car Crash**\
+`Mr. Mirman crashed his car on Tuesday in New Hampshire. He remains hospitalized with serious but non-life-threatening injuries.`\
+https://nytimes.com/2026/04/01/us/eugene-mirman-car-crash-bobs-burgers.html
+
 **Puka Nacua checks into facility, 'takes responsibility for his well-being'**\
 `The Rams star checked into the facility in early March and will remain there until he completes the program ahead of OTAs, his lawyer says.`\
 https://nytimes.com/athletic/7165555/2026/04/01/puka-nacua-rehab-rams-allegations/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010814848/supreme-court-birthright-t
 **When Will Artemis II Reach the Moon?**\
 `After orbiting Earth, the Orion capsule will carry the astronauts to the moon and arrive by Monday night.`\
 https://nytimes.com/2026/04/01/science/space/artemis-nasa-moon-how-long.html
-
-**Man Convicted of Aggravated Manslaughter in Police Officer’s Death**\
-`While the jury found Guy Rivera guilty in the death of Detective Jonathan Diller in 2024, they acquitted him of first-degree murder, the most serious charge he faced.`\
-https://nytimes.com/2026/04/01/nyregion/nypd-diller-rivera-murder-trial.html
 
