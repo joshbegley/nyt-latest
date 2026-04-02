@@ -1,9 +1,9 @@
 **Justice Dept. Says Trump Doesn’t Need to Hand Over Presidential Records After Office**\
 `The opinion could set the stage for President Trump to refuse to give the National Archives many of his own official documents when he leaves office.`\
-https://nytimes.com/live/2026/04/02/us/trump-news/justice-department-trump-presidential-records
+https://nytimes.com/2026/04/02/us/politics/justice-department-trump-presidential-records.html
 
 **Phil Mickelson opts out of Masters due to 'personal health matter' with family**\
-`The 55-year-old golfer will join Tiger Woods in missing tournament, marking first time both will be absent from Augusta since 1994.`\
+`The 55-year-old golfer will join Tiger Woods in missing tournament, marking first time since 1994 both will be absent from Augusta.`\
 https://nytimes.com/athletic/7167504/2026/04/02/phil-mickelson-masters-out-family-health/
 
 **If You Love a Great Restaurant Dupe, This One’s For You**\
