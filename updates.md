@@ -1,3 +1,11 @@
+**How an iconic Masters moment came to be, and has come to last**\
+`When Shota Hayafuji bowed to Augusta National Golf Course 5 years ago only one camera was there to notice it.`\
+https://nytimes.com/athletic/7165197/2026/04/02/masters-caddie-bow-hideki-matsuyama-shota-hayafuji/
+
+**Tiger Woods withdraws from Ryder Cup captaincy race for 2027**\
+`The 50-year-old had been widely tipped to succeed Keegan Bradley in the role for Adare Manor in County Limerick, Ireland.`\
+https://nytimes.com/athletic/7166155/2026/04/02/tiger-woods-ryder-cup-captain/
+
 **The Pulse: Playoff pictures, two ways**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7164949/2026/04/02/nhl-nba-playoffs-the-pulse/
