@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Zolan Kanno-Youngs and Yan Zhuang`\
+https://nytimes.com/live/2026/04/02/world/iran-war-trump-news/heres-the-latest
+
+**Iran War Live Updates: Gulf Nations and Israel Face New Attacks After Trump Claims Military Success**\
+`President Trump said the United States would hit Iran “extremely hard” over the next two to three weeks. He said the war was already a success but did not offer a concrete exit timeline.`\
+https://nytimes.com/live/2026/04/02/world/iran-war-trump-news
+
 **Desi Lydic Would Like Trump to Take a Hint**\
 `“Might I suggest: If the ballroom starts experiencing ballistic assault, maybe we just cancel the ball?” she said on “The Daily Show.”`\
 https://nytimes.com/2026/04/02/arts/television/late-night-trump-ballroom.html
