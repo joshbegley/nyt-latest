@@ -1,6 +1,21 @@
+**In the Birthright Citizenship Hearing, a Story of Asians Fighting for Rights**\
+`Supreme Court justices and lawyers cited a litany of historic cases that reflect the many times Asians turned to the courts, trying to shape immigration law.`\
+https://nytimes.com/2026/04/02/us/politics/birthright-citizenship-asian-immigrants.html
+
+**Mortgage Rates Climb for 5th Week as Iran War Weighs on U.S. Housing Market**\
+`The average rate on a 30-year mortgage in the United States jumped to 6.46 percent, making it harder for buyers to afford homes.`\
+https://nytimes.com/2026/04/02/business/mortgage-rates-housing-iran-war.html
+
+**ESPN expected to change No. 2 broadcasting team after NFL Network deal**\
+`ESPN officially took over NFL Network this week as part of a series of agreements in which the league took a 10 percent stake in ESPN.`\
+https://nytimes.com/athletic/7166718/2026/04/02/espn-nfl-network-broadcast-analyst-team-changes/
+
+**Danish Warship Sunk by Britain’s Lord Nelson 225 Years Ago Is Found**\
+`The ship sank during the Battle of Copenhagen, an important moment in Danish and British history, and became the origin of a common saying.`\
+https://nytimes.com/2026/04/02/world/europe/danish-warship-britain-nelson-copenhagen.html
+
 **What's up with the Mets' dormant offense? Examining early trends**\
-`Maybe the Mets just need to face Paul Skenes again?
-Since its Opening Day outburst against the reigning Cy Young award winner, New York’s new-look offense has been stuck in neutral.`\
+`An inability to drive in runners in scoring position, chasing bad pitches and not enough hard contact are all part of New York's slow start.`\
 https://nytimes.com/athletic/7166851/2026/04/02/mets-dormant-offense-early-trends/
 
 **Former MLB commissioner Peter Ueberroth's daughter tells court trustee misused millions**\
@@ -22,20 +37,4 @@ https://nytimes.com/athletic/7166485/2026/04/02/atlanta-falcons-new-uniforms-red
 **Robert Pattinson and Zendaya on Love’s Warning Signs**\
 `Robert Pattinson and Zendaya, stars of the film “The Drama,” discuss knowing whether a relationship is right with the “Modern Love” host, Anna Martin.`\
 https://nytimes.com/video/podcasts/100000010817863/robert-pattinson-and-zendaya-on-loves-warning-signs.html
-
-**How to watch Red Wings vs. Flyers: Time, TV, streaming**\
-`Find out how to watch the Detroit Red Wings play the Philadelphia Flyers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7166823/2026/04/02/red-wings-vs-flyers-stream-how-to-watch-april-2/
-
-**How to watch Canadiens vs. Rangers: Time, TV, streaming**\
-`Find out how to watch the Montreal Canadiens play the New York Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7166820/2026/04/02/canadiens-vs-rangers-stream-how-to-watch-april-2/
-
-**How to watch Blue Jackets vs. Hurricanes: Time, TV, streaming**\
-`Find out how to watch the Columbus Blue Jackets play the Carolina Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7166814/2026/04/02/blue-jackets-vs-hurricanes-stream-how-to-watch-april-2/
-
-**Tina Peters, Colorado Election Denier, Has Prison Sentence Overturned**\
-`Ms. Peters, a former county clerk, received a nine-year sentence after being convicted of tampering with voting machines. An appeals court overturned the sentence but did not immediately free her from prison.`\
-https://nytimes.com/2026/04/02/us/politics/tina-peters-prison-sentence-trump.html
 

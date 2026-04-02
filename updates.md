@@ -1,3 +1,12 @@
+**What's up with the Mets' dormant offense? Examining early trends**\
+`Maybe the Mets just need to face Paul Skenes again?
+Since its Opening Day outburst against the reigning Cy Young award winner, New York’s new-look offense has been stuck in neutral.`\
+https://nytimes.com/athletic/7166851/2026/04/02/mets-dormant-offense-early-trends/
+
+**Former MLB commissioner Peter Ueberroth's daughter tells court trustee misused millions**\
+`Vicki Ueberroth claims millions of dollars have been wasted or misused over the last two years while her parents are in cognitive decline.`\
+https://nytimes.com/athletic/7158740/2026/04/02/mlb-peter-ueberroth-daughter-lawsuit-tiger-woods/
+
 **Storm Dave Cometh. But Why Is It Called That?**\
 `The conventions for naming storms are complicated by a mishmash of rules, national quirks and language barriers.`\
 https://nytimes.com/2026/04/02/world/europe/dave-storm-name-uk.html
