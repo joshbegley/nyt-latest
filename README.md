@@ -1,3 +1,15 @@
+**The Windup: Our first ABS walk-off!**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7166753/2026/04/02/automated-ball-strike-challenge-walk-off-win-the-windup/
+
+**Ancient Artifacts Stolen in Dutch Museum Heist Are Recovered**\
+`The golden helmet of Cotofenesti, a highly regarded artifact from Romania, and two elaborate golden bracelets were taken in January 2025.`\
+https://nytimes.com/2026/04/02/world/europe/museum-heist-netherlands-helmet-romania.html
+
+**'If I can execute everything I believe to be important, Everton could be unstoppable'**\
+`Everton's technical director has immersed himself in his new job since arriving from Manchester United — he has big plans to make a reality`\
+https://nytimes.com/athletic/7146129/2026/04/02/nick-cox-everton-technical-director/
+
 **How to watch Timberwolves vs. Pistons: Time, TV, streaming**\
 `Find out how to watch the Minnesota Timberwolves play the Detroit Pistons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7166767/2026/04/02/timberwolves-vs-pistons-stream-how-to-watch-april-2/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7160955/2026/04/02/konnor-griffin-pirates-mlb-prosp
 **Penguins mailbag: Will Pittsburgh pursue Auston Matthews?**\
 `A look at what could happen this summer and a big swing that might intrigue Kyle Dubas.`\
 https://nytimes.com/athletic/7165249/2026/04/02/penguins-auston-matthews-kyle-dubas-mailbag/
-
-**The Bounce: The West's best are charging toward the playoffs with zest**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/7166579/2026/04/02/west-playoffs-nba-thunder-spurs-the-bounce/
-
-**Danish Shows to Watch While We’re Still at Peace**\
-`The protector of Greenland also makes very entertaining TV.`\
-https://nytimes.com/2026/04/02/arts/television/danish-shows-to-watch-streaming.html
-
-**Villa loanee Sancho set for at least two weeks on sidelines**\
-`Scans showed the winger, who is on loan from Manchester United, has not dislocated his right shoulder, but instead has a joint issue.`\
-https://nytimes.com/athletic/7166626/2026/04/02/jadon-sancho-injury-latest-aston-villa/
 
