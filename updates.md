@@ -1,3 +1,7 @@
+**Desi Lydic Would Like Trump to Take a Hint**\
+`“Might I suggest: If the ballroom starts experiencing ballistic assault, maybe we just cancel the ball?” she said on “The Daily Show.”`\
+https://nytimes.com/2026/04/02/arts/television/late-night-trump-ballroom.html
+
 **Konate's Liverpool future and contract talks: What we're hearing**\
 `The French defender is nearing the end of his deal, so what is the situation as it stands?`\
 https://nytimes.com/athletic/7163885/2026/04/02/ibrahima-konate-liverpool-contract-talks-future/

@@ -1,3 +1,7 @@
+**Desi Lydic Would Like Trump to Take a Hint**\
+`“Might I suggest: If the ballroom starts experiencing ballistic assault, maybe we just cancel the ball?” she said on “The Daily Show.”`\
+https://nytimes.com/2026/04/02/arts/television/late-night-trump-ballroom.html
+
 **New York Is a Hot Spot for Alpha-Gal. Why Doesn’t the State Track Cases?**\
 `In more than 10 states, laboratories or doctors must notify the state health authorities of each positive test for a marker of the syndrome.`\
 https://nytimes.com/2026/04/02/nyregion/alpha-gal-new-york-state-does-not-count.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/04/02/todays-new-york-times
 **Why Hashtag United signed and sold AI footballers: 'AI is not going anywhere'**\
 `Spencer Carmichael-Brown, the founder of Hashtag United, explains why the club felt the need to sign AI footballers`\
 https://nytimes.com/athletic/6836755/2026/04/02/hashtag-united-ai-footballers-interview/
-
-**Crystal Palace mailbag: Targeting Iraola, Wharton's future, transfer plans and stadium latest**\
-`Matt Woosnam answers readers' questions on the club's managerial search, summer priorities and ownership situation`\
-https://nytimes.com/athletic/7158572/2026/04/02/crystal-palace-andoni-iraola-manager-transfers/
 
