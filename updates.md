@@ -1,3 +1,7 @@
+**Kanye West Takes the Stage in L.A., Hoping for a Rebranding**\
+`A show on Wednesday at SoFi Stadium was the rapper’s first full domestic live show since 2021 — and since a series of antisemitic behavior.`\
+https://nytimes.com/2026/04/02/arts/music/kanye-west-concert-los-angeles.html
+
 **With Alperen Şengün ascending, Rockets look ready to launch for playoffs**\
 `Time off has helped Şengün return to his best self, and the two-man game between him and Kevin Durant is thriving.`\
 https://nytimes.com/athletic/7166047/2026/04/02/alperen-sengun-rockets-kevin-durant-playoffs/
