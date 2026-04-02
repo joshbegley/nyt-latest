@@ -1,3 +1,11 @@
+**The New York Times in Print for Thursday, April 2, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/04/02/todays-new-york-times
+
+**The Only Thing Trump Is Missing in Cuba Is a Plan**\
+`Starving Cubans does nothing to advance American interests.`\
+https://nytimes.com/2026/04/02/opinion/trump-cuba-oil-blockade.html
+
 **Why Hashtag United signed and sold AI footballers: 'AI is not going anywhere'**\
 `Spencer Carmichael-Brown, the founder of Hashtag United, explains why the club felt the need to sign AI footballers`\
 https://nytimes.com/athletic/6836755/2026/04/02/hashtag-united-ai-footballers-interview/
