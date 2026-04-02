@@ -1,3 +1,11 @@
+**New Spurs coach De Zerbi responds to criticism over defence of Greenwood**\
+`A number of fan groups criticised the Italian over his public defence of Greenwood while at Marseille prior to his appointment by Spurs.`\
+https://nytimes.com/athletic/7166861/2026/04/02/tottenham-de-zerbi-mason-greenwood-response/
+
+**Strong Storms Bring a Threat of Tornadoes on Thursday**\
+`Parts of Iowa, Illinois, Wisconsin and Missouri are in the bull’s-eye of powerful storms sweeping through this week.`\
+https://nytimes.com/2026/04/02/weather/storms-tornado-forecast-iowa-illinois-wisconsin-missouri.html
+
 **In the Birthright Citizenship Hearing, a Story of Asians Fighting for Rights**\
 `Supreme Court justices and lawyers cited a litany of historic cases that reflect the many times Asians turned to the courts, trying to shape immigration law.`\
 https://nytimes.com/2026/04/02/us/politics/birthright-citizenship-asian-immigrants.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/02/world/europe/dave-storm-name-uk.html
 **Iowa State star Audi Crooks to enter transfer portal**\
 `The 6-foot-3 All-American led the Big 12 in scoring each of the past two seasons.`\
 https://nytimes.com/athletic/7166788/2026/04/02/iowa-state-audi-crooks-transfer-portal/
-
-**Falcons unveil new uniforms with red home jerseys**\
-`The Falcons' new uniforms feature red tops that will be the primary home jerseys, replacing the black ones that have been worn since 2020.`\
-https://nytimes.com/athletic/7166485/2026/04/02/atlanta-falcons-new-uniforms-red-jerseys/
-
-**Robert Pattinson and Zendaya on Love’s Warning Signs**\
-`Robert Pattinson and Zendaya, stars of the film “The Drama,” discuss knowing whether a relationship is right with the “Modern Love” host, Anna Martin.`\
-https://nytimes.com/video/podcasts/100000010817863/robert-pattinson-and-zendaya-on-loves-warning-signs.html
 
