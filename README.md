@@ -1,40 +1,40 @@
-**Nielsen leaves Japan 12 days after Asian Cup win, Kano to take charge of U.S. friendlies**\
-`The Japan Football Association (JFA) announced on Thursday Nielsen has stepped down upon the expiration of his contract.`\
-https://nytimes.com/athletic/7166137/2026/04/02/nils-nielsen-japan-resign/
+**What I learned about the Bengals at NFL league meetings**\
+`Shedding light on Jonathan Allen's upside, Katie Blackburn's absence, Joe Flacco's return and more.`\
+https://nytimes.com/athletic/7162085/2026/04/02/bengals-nfl-league-meeting/
 
-**Trump Administration Live Updates: House and Senate Could Take Up Bill to End D.H.S. Shutdown**\
-``\
-https://nytimes.com/live/2026/04/02/us/trump-news
+**Projected landing spots for top NFL draft prospects and the fantasy football implications**\
+`Michael Salfino judges the fantasy football impact of consensus landing spots for the top skill position players in the upcoming NFL draft.`\
+https://nytimes.com/athletic/7164388/2026/04/02/fantasy-football-2026-top-nfl-draft-prospects-projected-landing-spots/
 
-**Earthquake Rattles Northern California**\
-`A 4.6-magnitude quake struck near Boulder Creek, Calif., early Thursday.`\
-https://nytimes.com/2026/04/02/us/earthquake-california.html
+**Ranking all 20 projected starters in the men's Final Four**\
+`Every Final Four starter makes significant positive contributions in their own ways. So what's the best way to sort out the true stars?`\
+https://nytimes.com/athletic/7164608/2026/04/02/mens-final-four-player-rankings-lendeborg-wagler/
 
-**How do UConn women's and men's Final Four teams stack up financially?**\
-`UConn women's and men's programs are considered powerhouses. Do they receive similar funding? `\
-https://nytimes.com/athletic/7165839/2026/04/02/uconn-women-men-march-madness-financial-nil-comparison/
+**16 Stats: The Canadiens' core looks Stanley Cup contender-worthy**\
+`There’s still work to be done around the edges, but the Canadiens are on the cusp of something special. Plus: big names and soaring offense.`\
+https://nytimes.com/athletic/7164561/2026/04/02/16-stats-canadiens-stanley-cup-contenders/
 
-**NBA Awards Watch: Who's on track for All-Defensive and All-Rookie recognition?**\
-`Victor Wembanyama (All-Defensive) and Dylan Harper (All-Rookie) are key reasons the Spurs are where they are, near the top of the West.`\
-https://nytimes.com/athletic/7157306/2026/04/02/nba-awards-victor-wembanyama-cooper-flagg-kon-knueppel/
+**Exclusive: Nylander wants to stick with the Leafs – if they retool**\
+`Even after Brad Treliving's firing and an uncertain future at the top of the organization, Nylander still wants to win with the Leafs.`\
+https://nytimes.com/athletic/7165619/2026/04/02/william-nylander-maple-leafs-future-retool-pelley-treliving/
 
-**Trump Asserts War in Iran Is ‘Nearing Completion’**\
-`During a prime-time address on Wednesday, President Trump said the United States was on track for completing its military objectives in Iran, but offered no clear timeline to end the war.`\
-https://nytimes.com/video/us/politics/100000010817429/trump-asserts-war-in-iran-is-nearing-completion.html
+**2026 NHL prospect pool rankings: No. 8 Philadelphia Flyers**\
+`The Flyers have multiple solid prospects at center and on defense, plus a star on the wing and in net.`\
+https://nytimes.com/athletic/7141031/2026/04/02/philadelphia-flyers-nhl-prospect-rankings-2026/
 
-**Every Trump Threat to Abandon NATO Hollows It Out**\
-`Doubts that the United States would come to the aid of NATO allies increase each time, prompting Europeans to consider an alliance without Washington.`\
-https://nytimes.com/2026/04/02/world/europe/trump-nato-iran.html
+**How the Canucks stunned the Avalanche in the biggest upset of the season**\
+`Right from the beginning, the Canucks seized the initiative in a roller-coaster 8-6 victory, scoring on their first shift.`\
+https://nytimes.com/athletic/7165940/2026/04/02/canucks-stun-avalanche-upset-score-nhl/
 
-**Men's Final Four staff predictions: Why Arizona is (still) our favorite to win**\
-`All four Final Four teams received at least one vote to win the championship from our staff.`\
-https://nytimes.com/athletic/7165812/2026/04/02/mens-final-four-predictions-arizona-michigan-uconn-illinois/
+**How the Falcons plan to approach the 2026 draft ... then change everything for 2027**\
+`The Falcons are set to have five draft picks this year, but general manager Ian Cunningham would still like to add more.`\
+https://nytimes.com/athletic/7164570/2026/04/02/atlanta-falcons-nfl-draft-2026-ian-cunningham/
 
-**Can a YouTuber become a NASCAR driver? 'Cleetus McFarland' is trying to find out**\
-`"Now here I am, going to race in a level that, yeah, I may not deserve to be at. But it's up to me now."`\
-https://nytimes.com/athletic/7160771/2026/04/02/cleetus-mcfarland-garrett-mitchell-youtube-nascar/
+**Big expectations are returning to Wrigley Field, and now the Cubs must deliver**\
+`As an organization, the Cubs are past the point of wondering if one loss to a bad team in April could be the difference for the playoffs.`\
+https://nytimes.com/athletic/7165535/2026/04/02/chicago-cubs-expectations-urgency-homestand/
 
-**NFL execs unfiltered on free agency: Thoughts on Maxx Crosby controversy and all AFC teams**\
-`Many around the league questioned the Bills, Dolphins and Steelers, while some were split on the Colts' and Broncos' big moves.`\
-https://nytimes.com/athletic/7165189/2026/04/02/nfl-free-agency-2026-afc-execs-best-worst/
+**Geno Auriemma gave a viral answer about body language. He stands by it 10 years later**\
+`“We put a huge premium on body language,” Auriemma said. “And if your body language is bad, you will never get in the game. Ever."`\
+https://nytimes.com/athletic/7165313/2026/04/02/geno-auriemma-body-language-leadership/
 
