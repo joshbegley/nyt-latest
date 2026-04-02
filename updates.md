@@ -1,3 +1,7 @@
+**Midway through Notre Dame spring practice, what's on Marcus Freeman's mind?**\
+`As complete as his roster looks, Freeman will keep poking and prodding the team as the calendar flips to April, with the spring game ahead.`\
+https://nytimes.com/athletic/7166233/2026/04/02/notre-dame-spring-practice-marcus-freeman-takeaways/
+
 **Alpine dismisses Colapinto-Gasly 'sabotage' claims, condemns abuse in open letter to fans**\
 `The team said that “any questions about sabotage or not giving Franco the same car are completely unfounded".`\
 https://nytimes.com/athletic/7166290/2026/04/02/alpine-open-letter-colapinto-gasly-sabotage/
