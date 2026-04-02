@@ -1,3 +1,11 @@
+**Iowa State star Audi Crooks to enter transfer portal**\
+`The 6-foot-3 All-American led the Big 12 in scoring each of the past two seasons.`\
+https://nytimes.com/athletic/7166788/2026/04/02/iowa-state-audi-crooks-transfer-portal/
+
+**Falcons unveil new uniforms with red home jerseys**\
+`The Falcons' new uniforms feature red tops that will be the primary home jerseys, replacing the black ones that have been worn since 2020.`\
+https://nytimes.com/athletic/7166485/2026/04/02/atlanta-falcons-new-uniforms-red-jerseys/
+
 **Robert Pattinson and Zendaya on Love’s Warning Signs**\
 `Robert Pattinson and Zendaya, stars of the film “The Drama,” discuss knowing whether a relationship is right with the “Modern Love” host, Anna Martin.`\
 https://nytimes.com/video/podcasts/100000010817863/robert-pattinson-and-zendaya-on-loves-warning-signs.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7166808/2026/04/02/bruins-vs-panthers-stream-how-to
 **How to watch Penguins vs. Lightning: Time, TV, streaming**\
 `Find out how to watch the Pittsburgh Penguins play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7166806/2026/04/02/penguins-vs-lightning-stream-how-to-watch-april-2/
-
-**Trump’s Media-Bashing Is Coming Back to Bite Him in Court**\
-`Judges have cited attacks on the press by the president and his appointees when ruling against the government in at least three court cases.`\
-https://nytimes.com/2026/04/02/business/media/trump-media-courts.html
-
-**The Windup: Our first ABS walk-off!**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/7166753/2026/04/02/automated-ball-strike-challenge-walk-off-win-the-windup/
 

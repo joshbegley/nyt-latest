@@ -1,3 +1,15 @@
+**Robert Pattinson and Zendaya on Love’s Warning Signs**\
+`Robert Pattinson and Zendaya, stars of the film “The Drama,” discuss knowing whether a relationship is right with the “Modern Love” host, Anna Martin.`\
+https://nytimes.com/video/podcasts/100000010817863/robert-pattinson-and-zendaya-on-loves-warning-signs.html
+
+**How to watch Red Wings vs. Flyers: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the Philadelphia Flyers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7166823/2026/04/02/red-wings-vs-flyers-stream-how-to-watch-april-2/
+
+**How to watch Canadiens vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Montreal Canadiens play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7166820/2026/04/02/canadiens-vs-rangers-stream-how-to-watch-april-2/
+
 **How to watch Blue Jackets vs. Hurricanes: Time, TV, streaming**\
 `Find out how to watch the Columbus Blue Jackets play the Carolina Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7166814/2026/04/02/blue-jackets-vs-hurricanes-stream-how-to-watch-april-2/
