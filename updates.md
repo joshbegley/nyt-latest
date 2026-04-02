@@ -1,3 +1,11 @@
+**5 Takeaways From Trump’s Address on Iran**\
+`President Trump did not define a clear path out of the conflict, which he estimated would end within three weeks.`\
+https://nytimes.com/live/2026/04/01/world/iran-war-trump-oil-news/trump-iran-war-address-takeaways
+
+**Transcript: Trump Addresses the Nation on Iran**\
+`The president made his case for the U.S. attack, and said that the main objectives had been achieved.`\
+https://nytimes.com/2026/04/01/us/politics/trump-transcript-speech-iran.html
+
 **Giants drop finale to Padres, but Matt Chapman's viral mound moment blows over**\
 `Chapman's ire didn't look great, but it would be overstating the moment to say manager Tony Vitello had a controversy on his hands.`\
 https://nytimes.com/athletic/7165768/2026/04/01/giants-padres-matt-chapman-viral/

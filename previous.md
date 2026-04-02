@@ -1,3 +1,11 @@
+**5 Takeaways From Trump’s Address on Iran**\
+`President Trump did not define a clear path out of the conflict, which he estimated would end within three weeks.`\
+https://nytimes.com/live/2026/04/01/world/iran-war-trump-oil-news/trump-iran-war-address-takeaways
+
+**Transcript: Trump Addresses the Nation on Iran**\
+`The president made his case for the U.S. attack, and said that the main objectives had been achieved.`\
+https://nytimes.com/2026/04/01/us/politics/trump-transcript-speech-iran.html
+
 **Giants drop finale to Padres, but Matt Chapman's viral mound moment blows over**\
 `Chapman's ire didn't look great, but it would be overstating the moment to say manager Tony Vitello had a controversy on his hands.`\
 https://nytimes.com/athletic/7165768/2026/04/01/giants-padres-matt-chapman-viral/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/01/crosswords/daily-puzzle-2026-04-02.html
 **Judge Finds Border Officials Violated Previous Order on Warrantless Arrests**\
 `A federal judge in California ordered agents to thoroughly document any future stops in an area spanning 34 counties.`\
 https://nytimes.com/2026/04/01/us/politics/ruling-border-patrol-warrantless-arrests.html
-
-**Man Threatened to Kill President Trump With Sword, Officials Say**\
-`The man made multiple threats on Facebook and said that the law enforcement agents responding to arrest him would be killed, officials said.`\
-https://nytimes.com/2026/04/01/us/trump-kill-threats-fbi-sword.html
-
-**U.S. Lifts Sanctions on Venezuela’s New Leader**\
-`Removing sanctions would allow Delcy Rodríguez, the country’s acting leader, to conduct business with U.S. companies and potentially meet with President Trump.`\
-https://nytimes.com/2026/04/01/us/politics/us-lifts-sanctions-rodriguez.html
 
