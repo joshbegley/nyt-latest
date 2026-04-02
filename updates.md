@@ -1,3 +1,7 @@
+**Fab Five to reunite for Michigan-Arizona alt-cast during Final Four showdown**\
+`The Wolverines are making their first Final Four appearance since 2018, when they finished runner-up to Villanova.`\
+https://nytimes.com/athletic/7167024/2026/04/02/fab-five-michigan-arizona-altcast-final-four/
+
 **Liamine Zeroual, Algerian President During Bloody Civil War, Dies at 84**\
 `Cutting short his five-year term amid the scarring conflict, he was perhaps a first: an Algerian leader who left without being forced out or dying in office.`\
 https://nytimes.com/2026/04/02/world/africa/liamine-zeroual-dead.html

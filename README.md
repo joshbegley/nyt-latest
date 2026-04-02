@@ -1,3 +1,11 @@
+**E.P.A. Targets Microplastics and Drugs in Drinking Water**\
+`The move drew praise from leaders of the Make America Healthy Again movement who had recently criticized the agency’s handling of toxic chemicals.`\
+https://nytimes.com/2026/04/02/climate/microplastics-maha-epa.html
+
+**What Students Are Saying About Screens in School**\
+`Teenagers react to New York Times reporting that shows technology has become ingrained in classrooms since the pandemic.`\
+https://nytimes.com/2026/04/02/learning/what-students-are-saying-about-screens-in-school.html
+
 **Liamine Zeroual, Algerian President During Bloody Civil War, Dies at 84**\
 `Cutting short his five-year term amid the scarring conflict, he was perhaps a first: an Algerian leader who left without being forced out or dying in office.`\
 https://nytimes.com/2026/04/02/world/africa/liamine-zeroual-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/02/world/middleeast/iran-oman-hormuz-control.html
 **5 New Books We Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://nytimes.com/2026/04/02/books/review/new-recommended-books.html
-
-**Fab Five to reunite for Michigan-Arizona alt-cast during Final Four showdown**\
-`The Wolverines are making their first Final Four appearance since 2018, when they finished runner-up to Villanova.`\
-https://nytimes.com/athletic/7167024/2026/04/02/fab-five-michigan-arizona-altcast-final-four/
-
-**How Trump Boxed Himself In on Iran**\
-`President Trump faces the possibility that at the end of his own two-to-three week window for wrapping up the war in Iran, nothing much will have changed.`\
-https://nytimes.com/2026/04/02/us/politics/trump-speech-iran-war-whats-next.html
 
