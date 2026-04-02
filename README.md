@@ -1,3 +1,11 @@
+**NASA’s Artemis II Moon Mission Launches Into Space**\
+`The crew of four — three Americans and one Canadian — reached space on Wednesday on the first crewed journey to the moon since 1972.`\
+https://nytimes.com/video/science/space/100000010816588/nasas-artemis-ii-moon-mission-launches-into-space.html
+
+**Lawsuits Are the New Trump Tactic in the Fight to Overhaul Education**\
+`Trump officials have faced dozens of lawsuits over their aggressive efforts to force change in universities and school districts. Now Trump lawyers are taking schools to court.`\
+https://nytimes.com/2026/04/01/us/trump-lawsuits-education-agenda.html
+
 **D.H.S. Inspector General Inquiry Focuses in Part on Top Noem Aide**\
 `The investigation comes as administration officials have fielded complaints about how Kristi Noem’s top adviser, Corey Lewandowski, dealt with companies seeking federal contracts.`\
 https://nytimes.com/2026/04/01/us/politics/dhs-inspector-general-inquiry-lewandowski.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7165379/2026/04/01/red-sox-1-5-takeaways-alex-cora/
 **NBA fines Trail Blazers $100,000, suspends assistant GMs for draft violation**\
 `Mike Schmitz and Sergi Oliva were suspended after Portland self-reported that they had illegal contact with Yang Hansen before drafting him.`\
 https://nytimes.com/athletic/7165567/2026/04/01/portland-trail-blazers-assistant-gm-fined-suspended/
-
-**What Happened in the War in the Middle East on Wednesday.**\
-`Formidable strikes rocked Tehran early Wednesday morning. Iran launched what its state-aligned media called one of the largest attacks on Israel yet, damaging several cities.`\
-https://nytimes.com/2026/04/01/world/middleeast/what-happened-in-the-war-in-the-middle-east-on-wednesday.html
-
-**What China sees as NASA launches Artemis II.**\
-`By Selam Gebrekidan`\
-https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/what-china-sees-as-nasa-launches-artemis-ii
 
