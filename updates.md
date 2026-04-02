@@ -1,3 +1,7 @@
+**Why Hashtag United signed and sold AI footballers: 'AI is not going anywhere'**\
+`Spencer Carmichael-Brown, the founder of Hashtag United, explains why the club felt the need to sign AI footballers`\
+https://nytimes.com/athletic/6836755/2026/04/02/hashtag-united-ai-footballers-interview/
+
 **Crystal Palace mailbag: Targeting Iraola, Wharton's future, transfer plans and stadium latest**\
 `Matt Woosnam answers readers' questions on the club's managerial search, summer priorities and ownership situation`\
 https://nytimes.com/athletic/7158572/2026/04/02/crystal-palace-andoni-iraola-manager-transfers/

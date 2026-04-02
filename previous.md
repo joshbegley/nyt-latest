@@ -1,3 +1,7 @@
+**Why Hashtag United signed and sold AI footballers: 'AI is not going anywhere'**\
+`Spencer Carmichael-Brown, the founder of Hashtag United, explains why the club felt the need to sign AI footballers`\
+https://nytimes.com/athletic/6836755/2026/04/02/hashtag-united-ai-footballers-interview/
+
 **Crystal Palace mailbag: Targeting Iraola, Wharton's future, transfer plans and stadium latest**\
 `Matt Woosnam answers readers' questions on the club's managerial search, summer priorities and ownership situation`\
 https://nytimes.com/athletic/7158572/2026/04/02/crystal-palace-andoni-iraola-manager-transfers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7157619/2026/04/02/championship-run-in-analysis-cov
 **In Roberto De Zerbi, Tottenham have gambled everything on the tantalising prospect of... an idea**\
 `For the first time since Ange Postecoglou arrived, there is an original, specific ambitious vision of the game at Spurs`\
 https://nytimes.com/athletic/7162129/2026/04/02/tottenham-de-zerbi-idea/
-
-**NASA Launches Artemis Astronauts on Journey to the Moon**\
-`Crowds gathered near the Kennedy Space Center in Cape Canaveral, Fla., on Wednesday to watch as NASA launched four astronauts on a 10-day journey that will go around the moon.`\
-https://nytimes.com/video/science/space/100000010816934/artemis-nasa-moon-launch.html
 

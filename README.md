@@ -1,3 +1,11 @@
+**The New York Times in Print for Thursday, April 2, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/04/02/todays-new-york-times
+
+**The Only Thing Trump Is Missing in Cuba Is a Plan**\
+`Starving Cubans does nothing to advance American interests.`\
+https://nytimes.com/2026/04/02/opinion/trump-cuba-oil-blockade.html
+
 **Why Hashtag United signed and sold AI footballers: 'AI is not going anywhere'**\
 `Spencer Carmichael-Brown, the founder of Hashtag United, explains why the club felt the need to sign AI footballers`\
 https://nytimes.com/athletic/6836755/2026/04/02/hashtag-united-ai-footballers-interview/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7139364/2026/04/02/kylian-mbappe-france-captain/
 **Managers on the rise: Rene Maric, the Bayern Munich assistant who looks ready to set out on his own**\
 `Bayern Munich's highly-rated assistant has turned down roles in Europe and appears to have all the tools needed to succeed as a head coach`\
 https://nytimes.com/athletic/7127911/2026/04/02/rene-maric-bayern-munich-profile/
-
-**The Championship promotion battle: Who's going up and who could miss out?**\
-`Coventry City have one foot back in the Premier League, but who is best-placed to join them?`\
-https://nytimes.com/athletic/7157619/2026/04/02/championship-run-in-analysis-coventry-middlesbrough-millwall-hull-wrexham/
-
-**In Roberto De Zerbi, Tottenham have gambled everything on the tantalising prospect of... an idea**\
-`For the first time since Ange Postecoglou arrived, there is an original, specific ambitious vision of the game at Spurs`\
-https://nytimes.com/athletic/7162129/2026/04/02/tottenham-de-zerbi-idea/
 
