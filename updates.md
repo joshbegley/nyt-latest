@@ -1,3 +1,15 @@
+**In Birthright Case, Trump’s Likely Loss May Not End the Fight**\
+`The justices gave respectful consideration to what was once a fringe theory and could rule against it on grounds that would allow Congress to return to the question.`\
+https://nytimes.com/2026/04/02/us/politics/birthright-citizenship-trump-supreme-court.html
+
+**Say Peas**\
+`Frozen peas star in a very green baked risotto, a spring tofu soup and a ricotta frittata.`\
+https://nytimes.com/2026/04/02/dining/say-peas.html
+
+**Konnor Griffin, MLB's top prospect, is here. An accident years ago almost derailed his rise**\
+`Konnor Griffin will make his MLB debut Friday. A scar still reminds him of how close he was to never getting the chance.`\
+https://nytimes.com/athletic/7166838/2026/04/02/konnor-griffin-pirates-mlb-debut-prospect-accident/
+
 **Blue Owl, Ailing Wall St. Lender, Reveals Even More Troubles**\
 `Investors in struggling private credit firm put in record requests to get their money back.`\
 https://nytimes.com/2026/04/02/business/blue-owl-private-credit.html

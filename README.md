@@ -1,3 +1,7 @@
+**Trump Fires Pam Bondi as Attorney General**\
+`Todd Blanche, Ms. Bondi’s deputy, will be the acting attorney general, according to a person familiar with the decision.`\
+https://nytimes.com/2026/04/02/us/politics/trump-fires-bondi-attorney-general.html
+
 **In Birthright Case, Trump’s Likely Loss May Not End the Fight**\
 `The justices gave respectful consideration to what was once a fringe theory and could rule against it on grounds that would allow Congress to return to the question.`\
 https://nytimes.com/2026/04/02/us/politics/birthright-citizenship-trump-supreme-court.html
@@ -10,8 +14,8 @@ https://nytimes.com/2026/04/02/dining/say-peas.html
 `Konnor Griffin will make his MLB debut Friday. A scar still reminds him of how close he was to never getting the chance.`\
 https://nytimes.com/athletic/7166838/2026/04/02/konnor-griffin-pirates-mlb-debut-prospect-accident/
 
-**Blue Owl, Ailing Wall St. Lender, Reveals Even More Troubles**\
-`Investors in struggling private credit firm put in record requests to get their money back.`\
+**Blue Owl, Ailing Private Credit Firm, Reveals Even More Troubles**\
+`Investors in the struggling Wall Street lender put in record requests to get their money back.`\
 https://nytimes.com/2026/04/02/business/blue-owl-private-credit.html
 
 **Could Mike Gillis' unique pitch to NHL teams actually work for the Maple Leafs?**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/02/opinion/trump-iran-speech.html
 **Why have a Brazilian club called out Cristiano Ronaldo over a historic transfer dispute?**\
 `A dispute between Flamengo and Almeria over a transfer has led to the Court of Arbitration for Sport and embroiled the Portuguese superstar.`\
 https://nytimes.com/athletic/7166795/2026/04/02/flamengo-almeria-cas-cristiano-ronaldo/
-
-**Lawsuit Challenges Warrantless Searches and Forced Entries by ICE**\
-`A coalition of legal groups claims the Homeland Security Department adopted an unconstitutional policy allowing its agents to enter homes without a judicial warrant.`\
-https://nytimes.com/2026/04/02/us/politics/ice-lawsuit-forced-entry-warrants.html
 

@@ -1,3 +1,15 @@
+**In Birthright Case, Trump’s Likely Loss May Not End the Fight**\
+`The justices gave respectful consideration to what was once a fringe theory and could rule against it on grounds that would allow Congress to return to the question.`\
+https://nytimes.com/2026/04/02/us/politics/birthright-citizenship-trump-supreme-court.html
+
+**Say Peas**\
+`Frozen peas star in a very green baked risotto, a spring tofu soup and a ricotta frittata.`\
+https://nytimes.com/2026/04/02/dining/say-peas.html
+
+**Konnor Griffin, MLB's top prospect, is here. An accident years ago almost derailed his rise**\
+`Konnor Griffin will make his MLB debut Friday. A scar still reminds him of how close he was to never getting the chance.`\
+https://nytimes.com/athletic/7166838/2026/04/02/konnor-griffin-pirates-mlb-debut-prospect-accident/
+
 **Blue Owl, Ailing Wall St. Lender, Reveals Even More Troubles**\
 `Investors in struggling private credit firm put in record requests to get their money back.`\
 https://nytimes.com/2026/04/02/business/blue-owl-private-credit.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7166795/2026/04/02/flamengo-almeria-cas-cristiano-r
 **Lawsuit Challenges Warrantless Searches and Forced Entries by ICE**\
 `A coalition of legal groups claims the Homeland Security Department adopted an unconstitutional policy allowing its agents to enter homes without a judicial warrant.`\
 https://nytimes.com/2026/04/02/us/politics/ice-lawsuit-forced-entry-warrants.html
-
-**‘The Blue Trail’ Review: A Drifting Journey Into Freedom**\
-`In an imaginary Brazil, where older people are forcibly removed from society, a resolute 77-year-old seeks her independence in the Amazon.`\
-https://nytimes.com/2026/04/02/movies/the-blue-trail-review.html
-
-**Is Alix Earle the Right Face for a Skin Care Brand?**\
-`Critics of Reale Actives, Ms. Earle’s new skin care line, suggest that the TikTok star’s past use of prescription acne treatments makes her an odd fit to sell consumer skin care products.`\
-https://nytimes.com/2026/04/02/style/reale-alix-earle-skin-care-tiktok.html
-
-**William F. Murphy, Led Diocese and Weathered Abuse Scandal, Dies at 85**\
-`While serving as a Long Island bishop, his earlier tenure in Boston came under scrutiny during investigations of sex-abuse allegations involving pedophile priests.`\
-https://nytimes.com/2026/04/02/nyregion/william-f-murphy-dead.html
 
