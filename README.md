@@ -1,3 +1,7 @@
+**Padres avoid sweep as rookie manager Craig Stammen continues learning on the job**\
+`On Wednesday, in search of a missing offense, Stammen debuted another lineup — and it worked in San Diego's 7-1 win against the Giants.`\
+https://nytimes.com/athletic/7165787/2026/04/01/padres-win-giants-rookie-manager-craig-stammen/
+
 **Jayson Tatum's triple-double, Jaylen Brown's 43-point night continue Celtics' late surge**\
 `In less than a month, the Celtics have quieted those concerns by going 10-2 in Tatum’s first 12 games.`\
 https://nytimes.com/athletic/7165823/2026/04/01/celtics-heat-score-results-jayson-tatum-jaylen-brown/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7165720/2026/04/01/yankees-cam-schlittler-aaron-jud
 **The Artemis II Toilet Had a Problem**\
 `The Universal Waste Management System aboard the Orion capsule is an innovation in deep space toiletry (if it works).`\
 https://nytimes.com/2026/04/01/science/artemis-ii-bathroom-toilet.html
-
-**For the First Time, a Toilet Heads Into Deep Space**\
-`The Orion spacecraft will take four crew members and one commode around the moon and back as part of the Artemis II mission. In April 2025, National Geographic worked with NASA and filmed the astronauts at an Orion space capsule model in Houston.`\
-https://nytimes.com/video/science/space/100000010813292/orion-spacecraft-first-toilet-space.html
 
