@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/7167544/2026/04/02/victor-wembanyama-artemis-ii-message-astronauts/
 
+**Victor Wembanyama sends message to Artemis II astronauts on NASA stream**\
+`Wembanyama has shown interest in aeronautical science and cosmology, visiting NASA’s Johnson Space Center in Houston last offseason.
+`\
+https://nytimes.com/athletic/7167544/2026/04/02/victor-wembanyama-artemis-ii-message-astronauts/
+
 **Arab Countries Want the U.N. to Authorize Force to Open the Strait of Hormuz. The Idea Hit Roadblocks.**\
 `Several permanent members of the Security Council opposed the resolution, drafted by Bahrain in coordination with its Gulf neighbors, officials said.`\
 https://nytimes.com/2026/04/02/world/middleeast/arab-iran-hormuz-force.html
