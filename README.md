@@ -1,3 +1,7 @@
+**After a long Wednesday, NASA launched its mission back to the moon.**\
+`By Katrina Miller`\
+https://nytimes.com/live/2026/04/02/science/artemis-nasa-moon-astronauts/wednesday-nasa-moon-recap
+
 **President Trump Fires Pam Bondi as Attorney General**\
 `On Thursday, President Trump announced on social media that Attorney General Pam Bondi would be leaving her role for a new position in the private sector.`\
 https://nytimes.com/video/us/politics/100000010818981/trump-fires-attorney-general-pam-bondi.html
@@ -18,7 +22,7 @@ https://nytimes.com/2026/04/02/us/elections/mike-johnson-shutdown-power.html
 `President Emmanuel Macron of France expressed disapproval about President Trump’s handling of the war against Iran on Thursday, chastising him for speaking cavalierly in a speech.`\
 https://nytimes.com/2026/04/02/world/middleeast/iran-war-trump-strait.html
 
-**LeBron James takes shots at Memphis, suggests Grizzlies 'go over to Nashville'**\
+**LeBron James takes swipe at Memphis, suggests Grizzlies 'go over to Nashville'**\
 `In an appearance on a YouTube show, star lamented any trip he takes to the city, and said that other players share his sentiments.`\
 https://nytimes.com/athletic/7167728/2026/04/02/lebron-james-memphis-grizzlies-eli-manning/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/02/us/politics/artemis-ii-launch-trump.html
 **How Predictions Markets Are Thriving in the Trump Administration**\
 `Prediction markets like Kalshi and Polymarket are surging in popularity, but are they a valuable forecasting tool or a dangerous slippery slope? The “Athletic Show” panel explores how these platforms have bypassed traditional sports-betting regulations, operating with a “federal lightning pass” under the Trump administration.`\
 https://nytimes.com/video/the-athletic/100000010800819/how-predictions-markets-are-thriving-in-the-trump-administration.html
-
-**Trump Fires His Attorney General**\
-`Also, France’s president voices European frustration with the U.S. leader. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2026/04/02/briefing/trump-fires-attorney-general.html
 
