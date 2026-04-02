@@ -1,3 +1,11 @@
+**ICE Arrests the Head of Wisconsin’s Largest Islamic Group**\
+`Officials detained Salah Sarsour, the president of the Islamic Society of Milwaukee, on Monday. He is a legal permanent resident, the organization said.`\
+https://nytimes.com/2026/04/02/us/ice-milwaukee-muslim-leader-arrest.html
+
+**What to Know About the ‘Massive’ Military Bunker Beneath Trump’s Ballroom**\
+`President Trump has been talking about the emergency facility beneath what was once the East Wing, details of which are usually kept secret, as he tries to justify his renovation.`\
+https://nytimes.com/2026/04/02/us/politics/trump-ballroom-military-bunker.html
+
 **Johnson Wavers on Ending the Shutdown, Reflecting His Weak Hold on Power**\
 `The House speaker first panned, then endorsed, then punted on, then pitched and now is delaying a bill to reopen the Homeland Security Department, showing his vulnerability in the face of party rifts.`\
 https://nytimes.com/2026/04/02/us/elections/mike-johnson-shutdown-power.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/02/briefing/trump-fires-attorney-general.html
 **Rival Nations Seize On Choke Points to Counter Trump**\
 `From Iran to China, President Trump’s global aggression has encouraged other countries to search for new ways to pressure the U.S. economy.`\
 https://nytimes.com/2026/04/02/business/economy/trump-iran-china-choke-points.html
-
-**JetBlue Raises Checked Bag Fees as Fuel Costs Soar**\
-`The airline, which now charges up to $59 for one checked bag on a domestic flight, could influence other carriers strained by the war in Iran.`\
-https://nytimes.com/2026/04/02/travel/jetblue-checked-bag-fees.html
-
-**Biruté Galdikas, 79, Who Worked to Save Wild Orangutans in Borneo, Dies**\
-`With Jane Goodall and Dian Fossey, she was one of three prominent researchers of great apes who were sometimes called the “trimates.”`\
-https://nytimes.com/2026/04/02/science/earth/birute-galdikas-dead.html
 
