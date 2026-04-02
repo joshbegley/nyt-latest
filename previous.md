@@ -1,3 +1,31 @@
+**Alpine dismisses Colapinto-Gasly 'sabotage' claims, condemns abuse in open letter to fans**\
+`The team said that “any questions about sabotage or not giving Franco the same car are completely unfounded".`\
+https://nytimes.com/athletic/7166290/2026/04/02/alpine-open-letter-colapinto-gasly-sabotage/
+
+**Watching Mykhailo Mudryk train alone at Uxbridge FC**\
+`Whenever and wherever the Ukrainian can play professional football again, he looks determined to make sure he is ready`\
+https://nytimes.com/athletic/7165264/2026/04/02/mudryk-chelsea-uxbridge-fc-suspension-training/
+
+**Where do the Seahawks go from here? Remaining priorities this offseason**\
+`While the Seahawks work on an extension for Devon Witherspoon, there's one position that stands out as their biggest priority in the draft.`\
+https://nytimes.com/athletic/7162583/2026/04/02/seahawks-devon-witherspoon-nfl-draft/
+
+**What we saw and heard about the 49ers at the NFL owners' meetings**\
+`We also learned plenty about the 49ers-Rams game in Australia, Jauan Jennings' status, Christian Kirk's arrival and much more.`\
+https://nytimes.com/athletic/7161408/2026/04/02/49ers-brandon-aiyuk-australia-owners-meetings/
+
+**Inside Blue Jays outfielder Jesús Sánchez’s hot start and his new, old swing**\
+`The Blue Jays have worked with Sánchez to unlock “the most natural version of his swing."`\
+https://nytimes.com/athletic/7165469/2026/04/02/blue-jays-jesus-sanchez-hot-start-swing/
+
+**Would You Want a Robot Teacher?**\
+`The first lady, Melania Trump, believes that more children should be educated by “humanoid educators.” Do you agree?`\
+https://nytimes.com/2026/04/02/learning/would-you-want-a-robot-teacher.html
+
+**Chatting**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2026/04/02/learning/chatting.html
+
 **Volunteers in Helicopter Rescue Hiker’s Dog After a Week in the Wilderness**\
 `A hiker in New Zealand fell 180 feet down a waterfall and was evacuated without her dog. A crowd-funded rescue effort reunited them.`\
 https://nytimes.com/2026/04/02/world/asia/dog-rescue-new-zealand.html
@@ -9,32 +37,4 @@ https://nytimes.com/video/video/100000010817338/dog-hiker-rescue-new-zealand.htm
 **Amen Thompson, Lu Dort highlight our All-Perimeter-Defense Second Team**\
 `Honoring the NBA players who push the boundaries of good defense.`\
 https://nytimes.com/athletic/7165007/2026/04/02/amen-thompson-stephon-castle-all-perimeter-defense-second-team/
-
-**Why Trump’s Iran Address Failed to Soothe Markets**\
-`Oil surged and stocks sold off after the president delivered an unclear case for continuing the war in the Middle East.`\
-https://nytimes.com/2026/04/02/business/dealbook/trump-iran-war-markets.html
-
-**Submit questions for Jim Bowden's MLB mailbag**\
-`What are you wondering about this season? Jim Bowden will answer subscribers' questions in his upcoming mailbag. `\
-https://nytimes.com/athletic/7166269/2026/04/02/mlb-questions-jim-bowden/
-
-**Should Steph Curry return this season? It's silly to even debate it**\
-`Curry, who has been out since Jan. 30 with a knee injury, is aiming to come back for the 10th-place Warriors this weekend. `\
-https://nytimes.com/athletic/7166042/2026/04/02/steph-curry-return-knee-injury-debate-warriors/
-
-**How to watch Twins vs. Royals: Time, TV, streaming for April 2**\
-`Find out how to watch the Minnesota Twins play the Kansas City Royals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7166287/2026/04/02/twins-vs-royals-stream-how-to-watch-april-2/
-
-**How the Cavaliers rely on meals to retain superstars, build team bonds**\
-`Rather than meals at expensive restaurants that require extensive planning, Cavaliers players prefer team dinners at their hotels.`\
-https://nytimes.com/athletic/7164019/2026/04/02/nba-cavaliers-team-meals-bonding/
-
-**Ranking Yankee Stadium's newest concessions, from dessert 'chicken' to fried mozzarella**\
-`The Yankees unveiled their new concession items for 2026 this week, and The Athletic was there to taste everything. Let's rank some food!`\
-https://nytimes.com/athletic/7161666/2026/04/02/yankee-stadium-food-beverage-concessions-ranking/
-
-**Steph Curry knows a game-bending player when he sees it. And he sees it in Wemby**\
-`Curry spoke to The Athletic about the Spurs' young superstar becoming the next great basketball revolutionary.`\
-https://nytimes.com/athletic/7166070/2026/04/02/steph-curry-victor-wembanyama-interview-nba/
 

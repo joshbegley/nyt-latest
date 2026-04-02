@@ -1,3 +1,7 @@
+**Midway through Notre Dame spring practice, what's on Marcus Freeman's mind?**\
+`As complete as his roster looks, Freeman will keep poking and prodding the team as the calendar flips to April, with the spring game ahead.`\
+https://nytimes.com/athletic/7166233/2026/04/02/notre-dame-spring-practice-marcus-freeman-takeaways/
+
 **Alpine dismisses Colapinto-Gasly 'sabotage' claims, condemns abuse in open letter to fans**\
 `The team said that “any questions about sabotage or not giving Franco the same car are completely unfounded".`\
 https://nytimes.com/athletic/7166290/2026/04/02/alpine-open-letter-colapinto-gasly-sabotage/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/02/world/asia/dog-rescue-new-zealand.html
 **Dog Is Rescued by Helicopter After Week in Wilderness**\
 `Strangers funded a private helicopter search to rescue a dog stranded for seven days in the New Zealand bush. The animal was lost after its owner fell from a cliff.`\
 https://nytimes.com/video/video/100000010817338/dog-hiker-rescue-new-zealand.html
-
-**Amen Thompson, Lu Dort highlight our All-Perimeter-Defense Second Team**\
-`Honoring the NBA players who push the boundaries of good defense.`\
-https://nytimes.com/athletic/7165007/2026/04/02/amen-thompson-stephon-castle-all-perimeter-defense-second-team/
 
