@@ -1,3 +1,15 @@
+**How FIFA used dynamic pricing to milk millions more out of 2026 World Cup tickets**\
+`Dynamic pricing has meant significant adjustment to World Cup ticket costs`\
+https://nytimes.com/athletic/7166874/2026/04/02/fifa-dynamic-pricing-2026-world-cup-tickets/
+
+**Russia Is Sending a Second Oil Tanker to Fuel-Starved Cuba**\
+`The announcement of a second shipment follows the arrival of a first oil tanker sent by the Kremlin earlier this week.`\
+https://nytimes.com/2026/04/02/world/americas/cuba-russia-oil-tanker.html
+
+**How to Find Great Values in Wine**\
+`Costs are rising, but with exploration and understanding one’s own limits it’s still possible to maximize quality at the right price.`\
+https://nytimes.com/2026/04/02/dining/drinks/wine-tariffs-cost-value.html
+
 **Trump Fires Pam Bondi as Attorney General**\
 `Todd Blanche, Ms. Bondi’s deputy, will be the acting attorney general, according to a person familiar with the decision.`\
 https://nytimes.com/2026/04/02/us/politics/trump-fires-bondi-attorney-general.html
