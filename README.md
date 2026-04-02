@@ -1,3 +1,7 @@
+**Jayson Tatum's triple-double, Jaylen Brown's 43-point night continue Celtics' late surge**\
+`In less than a month, the Celtics have quieted those concerns by going 10-2 in Tatum’s first 12 games.`\
+https://nytimes.com/athletic/7165823/2026/04/01/celtics-heat-score-results-jayson-tatum-jaylen-brown/
+
 **How likely is it that Artemis II will collide with debris in space?**\
 `By Ashley Ahn`\
 https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/how-likely-is-it-that-artemis-ii-will-collide-with-debris-in-space
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/01/science/artemis-ii-bathroom-toilet.html
 **For the First Time, a Toilet Heads Into Deep Space**\
 `The Orion spacecraft will take four crew members and one commode around the moon and back as part of the Artemis II mission. In April 2025, National Geographic worked with NASA and filmed the astronauts at an Orion space capsule model in Houston.`\
 https://nytimes.com/video/science/space/100000010813292/orion-spacecraft-first-toilet-space.html
-
-**Holders of Hammers and Anvils**\
-`In Joe Marquez’s wisecracking puzzle, the joke’s on us.`\
-https://nytimes.com/2026/04/01/crosswords/daily-puzzle-2026-04-02.html
 
