@@ -1,3 +1,7 @@
+**Konate's Liverpool future and contract talks: What we're hearing**\
+`The French defender is nearing the end of his deal, so what is the situation as it stands?`\
+https://nytimes.com/athletic/7163885/2026/04/02/ibrahima-konate-liverpool-contract-talks-future/
+
 **New York Is a Hot Spot for Alpha-Gal. Why Doesn’t the State Track Cases?**\
 `In more than 10 states, laboratories or doctors must notify the state health authorities of each positive test for a marker of the syndrome.`\
 https://nytimes.com/2026/04/02/nyregion/alpha-gal-new-york-state-does-not-count.html
