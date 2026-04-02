@@ -1,3 +1,11 @@
+**The Race for the Future of the Moon**\
+`The Artemis II mission isn’t just about science and exploration. It’s part of a high-stakes space race between the U.S. and China.`\
+https://nytimes.com/2026/04/02/world/space-artemis-us-china-trump-iran-pam-bondi.html
+
+**The Singular Failure of Pam Bondi**\
+`The core of Mr. Trump’s dissatisfaction with the attorney general was apparently her failure to serve his need for revenge against his enemies.`\
+https://nytimes.com/2026/04/02/opinion/pam-bondi-fired-trump.html
+
 **Wimbledon Is Expanding. What Does That Mean for Tennis?**\
 `The largest obstacle to Wimbledon’s plans to nearly triple the size of its grounds has been removed. The Athletic’s Charlie Eccleshare explains what it could mean for the Grand Slam’s future.`\
 https://nytimes.com/video/the-athletic/100000010814221/wimbledon-is-expanding-what-does-that-mean-for-tennis.html
@@ -23,19 +31,11 @@ https://nytimes.com/athletic/7167679/2026/04/02/blues-mailbag-jeremy-rutherford-
 `\
 https://nytimes.com/athletic/7167544/2026/04/02/victor-wembanyama-artemis-ii-message-astronauts/
 
-**Arab Countries Want the U.N. to Authorize Force to Open the Strait of Hormuz. The Idea Hit Roadblocks.**\
+**A Bid to Use Force to Open Strait of Hormuz Hits U.N. Roadblocks**\
 `Several permanent members of the Security Council opposed the resolution, drafted by Bahrain in coordination with its Gulf neighbors, officials said.`\
 https://nytimes.com/2026/04/02/world/middleeast/arab-iran-hormuz-force.html
 
 **Wisconsin Universities Chief Defies Board’s Push for Resignation**\
 `Jay Rothman, the president of the state university system, said he had received no explanation for why regents want to oust him.`\
 https://nytimes.com/2026/04/02/us/wisconsin-universities-rothman-defies-board.html
-
-**The Best Raincoats for April Showers**\
-`A roundup of light jackets to keep you dry on wet spring days.`\
-https://nytimes.com/2026/04/02/t-magazine/best-raincoats-mens-jackets.html
-
-**Where will Audi Crooks go as a transfer after leaving Iowa State?**\
-`The center could make a splash at several programs. Where will she fit? `\
-https://nytimes.com/athletic/7167559/2026/04/02/audi-crooks-transfer-iowa-state/
 

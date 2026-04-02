@@ -1,3 +1,19 @@
+**How the Artemis Astronauts Plan to Live in Space for 10 Days**\
+`On the Artemis II mission, four astronauts will work, exercise and sleep in a capsule that is about the size of two minivans for 10 days. In April 2025, National Geographic worked with NASA to film the astronauts at an Orion space capsule model in Houston.`\
+https://nytimes.com/video/science/100000010814928/nasa-artemis-sleep-work-capsule.html
+
+**Macron Criticized Trump for War in Iran and for Berating NATO Allies**\
+`President Emmanuel Macron of France on Thursday criticized President Trump for shifting his goals with the war in Iran during a trip through Asia. Mr. Macron also warned that the attacks on NATO were weakening the alliance.`\
+https://nytimes.com/video/world/100000010818606/macron-trump-war-in-iran-nato.html
+
+**Here’s the latest.**\
+`By Katrina Miller`\
+https://nytimes.com/live/2026/04/02/science/artemis-nasa-moon-astronauts/heres-the-latest
+
+**Live Updates: Orbiting Artemis II Astronauts Prepare to Head to the Moon**\
+`After waiting above the Earth for almost a day, the NASA Orion spacecraft is expected to fire its engines soon and shoot away from the planet.`\
+https://nytimes.com/live/2026/04/02/science/artemis-nasa-moon-astronauts
+
 **The Race for the Future of the Moon**\
 `The Artemis II mission isn’t just about science and exploration. It’s part of a high-stakes space race between the U.S. and China.`\
 https://nytimes.com/2026/04/02/world/space-artemis-us-china-trump-iran-pam-bondi.html
@@ -21,21 +37,4 @@ https://nytimes.com/2026/04/02/movies/blake-lively-justin-baldoni-harassment-cla
 **How Are High California Gas Prices Affecting Your Life?**\
 `Tell us how the sharp increase in gas prices is changing how you live and work.`\
 https://nytimes.com/2026/04/02/us/california-gas-prices-expenses.html
-
-**Submit your questions for Jeremy Rutherford’s St. Louis Blues mailbag**\
-`Have a question about the Blues? Submit it here and The Athletic’s Jeremy Rutherford will address a selection in his upcoming mailbag.`\
-https://nytimes.com/athletic/7167679/2026/04/02/blues-mailbag-jeremy-rutherford-april-2026/
-
-**Victor Wembanyama sends message to Artemis II astronauts on NASA stream**\
-`Wembanyama has shown interest in aeronautical science and cosmology, visiting NASA’s Johnson Space Center in Houston last offseason.
-`\
-https://nytimes.com/athletic/7167544/2026/04/02/victor-wembanyama-artemis-ii-message-astronauts/
-
-**A Bid to Use Force to Open Strait of Hormuz Hits U.N. Roadblocks**\
-`Several permanent members of the Security Council opposed the resolution, drafted by Bahrain in coordination with its Gulf neighbors, officials said.`\
-https://nytimes.com/2026/04/02/world/middleeast/arab-iran-hormuz-force.html
-
-**Wisconsin Universities Chief Defies Board’s Push for Resignation**\
-`Jay Rothman, the president of the state university system, said he had received no explanation for why regents want to oust him.`\
-https://nytimes.com/2026/04/02/us/wisconsin-universities-rothman-defies-board.html
 

@@ -1,3 +1,20 @@
+**The Race for the Future of the Moon**\
+`The Artemis II mission isn’t just about science and exploration. It’s part of a high-stakes space race between the U.S. and China.`\
+https://nytimes.com/2026/04/02/world/space-artemis-us-china-trump-iran-pam-bondi.html
+
+**The Singular Failure of Pam Bondi**\
+`The core of Mr. Trump’s dissatisfaction with the attorney general was apparently her failure to serve his need for revenge against his enemies.`\
+https://nytimes.com/2026/04/02/opinion/pam-bondi-fired-trump.html
+
+**Victor Wembanyama sends message to Artemis II astronauts on NASA stream**\
+`Wembanyama has shown interest in aeronautical science and cosmology, visiting NASA’s Johnson Space Center in Houston last offseason.
+`\
+https://nytimes.com/athletic/7167544/2026/04/02/victor-wembanyama-artemis-ii-message-astronauts/
+
+**A Bid to Use Force to Open Strait of Hormuz Hits U.N. Roadblocks**\
+`Several permanent members of the Security Council opposed the resolution, drafted by Bahrain in coordination with its Gulf neighbors, officials said.`\
+https://nytimes.com/2026/04/02/world/middleeast/arab-iran-hormuz-force.html
+
 **Victor Wembanyama sends message to Artemis II astronauts on NASA stream**\
 `Wembanyama has shown interest in aeronautical science and cosmology, visiting NASA’s Johnson Space Center in Houston last offseason.
 `\
