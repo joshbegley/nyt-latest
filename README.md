@@ -1,3 +1,7 @@
+**Blanche, Trump’s Former Defense Lawyer, Steps In as Interim Attorney General**\
+`While it remains unclear how long Todd Blanche will stay in the job, whoever ends up taking over permanently will lead a department that he has shaped in his own image.`\
+https://nytimes.com/2026/04/02/us/politics/todd-blanche-interim-attorney-general-trump.html
+
 **OpenAI Buys Streaming Show ‘TBPN,’ Aiming to Change Narrative on A.I.**\
 `OpenAI said the deal would help it “create a space for a real, constructive conversation about the changes A.I. creates.”`\
 https://nytimes.com/2026/04/02/technology/openai-buys-tbpn.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/02/us/politics/trump-congress-foreign-aid-rescission
 **Trump Said Gas Prices Would Fall Quickly. World Leaders Are Not So Sure.**\
 `The president said this week the recent increases would be “short-term.” But other leaders are preparing for a longer crisis.`\
 https://nytimes.com/2026/04/02/climate/trump-gas-prices-iran-world-leaders.html
-
-**How to watch Braves vs. Diamondbacks: Time, TV, streaming for April 2**\
-`Find out how to watch the Atlanta Braves play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7167423/2026/04/02/braves-vs-diamondbacks-stream-how-to-watch-april-2/
 

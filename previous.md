@@ -1,3 +1,7 @@
+**OpenAI Buys Streaming Show ‘TBPN,’ Aiming to Change Narrative on A.I.**\
+`OpenAI said the deal would help it “create a space for a real, constructive conversation about the changes A.I. creates.”`\
+https://nytimes.com/2026/04/02/technology/openai-buys-tbpn.html
+
 **Sophia Wilson back with USWNT: ‘I’m in a really great place right now’**\
 `The Portland Thorns forward is back with the national team after giving birth to her first child in September.`\
 https://nytimes.com/athletic/7167337/2026/04/02/sophia-wilson-uswnt-return/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/02/climate/trump-gas-prices-iran-world-leaders.html
 **How to watch Braves vs. Diamondbacks: Time, TV, streaming for April 2**\
 `Find out how to watch the Atlanta Braves play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7167423/2026/04/02/braves-vs-diamondbacks-stream-how-to-watch-april-2/
-
-**Trump Revamps Metal and Pharmaceutical Tariffs**\
-`The administration announced new levies and made changes to existing tariffs for industries that have proved influential on the president’s trade policy.`\
-https://nytimes.com/2026/04/02/business/economy/trump-metal-pharmaceutical-tariffs.html
 

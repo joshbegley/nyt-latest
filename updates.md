@@ -1,3 +1,7 @@
+**OpenAI Buys Streaming Show ‘TBPN,’ Aiming to Change Narrative on A.I.**\
+`OpenAI said the deal would help it “create a space for a real, constructive conversation about the changes A.I. creates.”`\
+https://nytimes.com/2026/04/02/technology/openai-buys-tbpn.html
+
 **Sophia Wilson back with USWNT: ‘I’m in a really great place right now’**\
 `The Portland Thorns forward is back with the national team after giving birth to her first child in September.`\
 https://nytimes.com/athletic/7167337/2026/04/02/sophia-wilson-uswnt-return/
