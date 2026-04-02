@@ -1,3 +1,15 @@
+**How likely is it that Artemis II will collide with debris in space?**\
+`By Ashley Ahn`\
+https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/how-likely-is-it-that-artemis-ii-will-collide-with-debris-in-space
+
+**5 Takeaways From Trump’s Address on Iran**\
+`President Trump did not define a clear path out of the conflict, which he estimated would end within three weeks.`\
+https://nytimes.com/2026/04/01/us/politics/trump-iran-war-address-takeaways.html
+
+**Matt Chapman has a viral mound moment as Giants drop finale to Padres**\
+`Chapman's ire didn't look great, but it would be overstating the moment to say manager Tony Vitello had a controversy on his hands.`\
+https://nytimes.com/athletic/7165768/2026/04/01/giants-padres-matt-chapman-viral/
+
 **5 Takeaways From Trump’s Address on Iran**\
 `President Trump did not define a clear path out of the conflict, which he estimated would end within three weeks.`\
 https://nytimes.com/live/2026/04/01/world/iran-war-trump-oil-news/trump-iran-war-address-takeaways
