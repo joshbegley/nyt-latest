@@ -1,3 +1,7 @@
+**Chelsea's Champions League exit underlines the need for summer transition**\
+`After a difficult season and with senior players' contracts expiring, transfer dealings over the next few months will be hugely important`\
+https://nytimes.com/athletic/7165698/2026/04/02/chelsea-women-champions-league-summer-transition/
+
 **What I'm seeing from Dodgers' first homestand: Shohei Ohtani, struggling offense and more**\
 `Ohtani and the top of the Dodgers lineup have yet to find their offensive groove.`\
 https://nytimes.com/athletic/7165907/2026/04/02/dodgers-shohei-ohtani-offense-muncy-struggling/
