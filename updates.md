@@ -1,3 +1,11 @@
+**U.S. Lifts Sanctions on Venezuela’s New Leader**\
+`Removing sanctions would allow Delcy Rodríguez, the country’s acting leader, to conduct business with U.S. companies and potentially meet with President Trump.`\
+https://nytimes.com/2026/04/01/us/politics/us-lifts-sanctions-rodriguez.html
+
+**Eugene Mirman, ‘Bob’s Burgers’ Voice Actor, Seriously Injured in Car Crash**\
+`Mr. Mirman crashed his car on Tuesday in New Hampshire. He remains hospitalized with serious but non-life-threatening injuries.`\
+https://nytimes.com/2026/04/01/us/eugene-mirman-car-crash-bobs-burgers.html
+
 **Puka Nacua checks into facility, 'takes responsibility for his well-being'**\
 `The Rams star checked into the facility in early March and will remain there until he completes the program ahead of OTAs, his lawyer says.`\
 https://nytimes.com/athletic/7165555/2026/04/01/puka-nacua-rehab-rams-allegations/

@@ -1,3 +1,11 @@
+**Judge Finds Border Officials Violated Previous Order on Warrantless Arrests**\
+`A federal judge in California ordered agents to thoroughly document any future stops in an area spanning 34 counties.`\
+https://nytimes.com/2026/04/01/us/politics/ruling-border-patrol-warrantless-arrests.html
+
+**Man Threatened to Kill President Trump With Sword, Officials Say**\
+`The man made multiple threats on Facebook and said that the law enforcement agents responding to arrest him would be killed, officials said.`\
+https://nytimes.com/2026/04/01/us/trump-kill-threats-fbi-sword.html
+
 **U.S. Lifts Sanctions on Venezuela’s New Leader**\
 `Removing sanctions would allow Delcy Rodríguez, the country’s acting leader, to conduct business with U.S. companies and potentially meet with President Trump.`\
 https://nytimes.com/2026/04/01/us/politics/us-lifts-sanctions-rodriguez.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/01/us/politics/dhs-inspector-general-inquiry-lewando
 **What to make of the Tigers through six games? It depends on your perspective**\
 `There Tigers leave Arizona with a bad taste, but it's too early to draw any real conclusions. `\
 https://nytimes.com/athletic/7165516/2026/04/01/tigers-struggles-first-week/
-
-**Grizzlies forward Brandon Clarke jailed on 4 charges in Arkansas**\
-`Cross County booking information did not indicate if any of the charges against Clarke were misdemeanors or felonies.`\
-https://nytimes.com/athletic/7165577/2026/04/01/brandon-clarke-arrest-jail-charges-grizzlies-arkansas/
-
-**Key Justices Appear Skeptical of Limiting Birthright Citizenship**\
-`During a Supreme Court hearing on Wednesday, several justices expressed skepticism about the Trump administration’s efforts to bar children of undocumented immigrants born in the United States from automatically becoming Americans.`\
-https://nytimes.com/video/us/politics/100000010814848/supreme-court-birthright-trump-citizenship.html
 
