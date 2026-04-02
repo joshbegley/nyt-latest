@@ -1,3 +1,5 @@
+
+
 **How FIFA used dynamic pricing to milk millions more out of 2026 World Cup tickets**\
 `Dynamic pricing has meant significant adjustment to World Cup ticket costs`\
 https://nytimes.com/athletic/7166874/2026/04/02/fifa-dynamic-pricing-2026-world-cup-tickets/
