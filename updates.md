@@ -1,3 +1,15 @@
+**4 tiny spacecraft have tagged along with Artemis II.**\
+`By Katrina Miller`\
+https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/4-tiny-spacecraft-are-tagging-along-with-artemis-ii
+
+**Padres avoid sweep as rookie manager Craig Stammen continues learning on the job**\
+`On Wednesday, in search of a missing offense, Stammen debuted another lineup — and it worked in San Diego's 7-1 win against the Giants.`\
+https://nytimes.com/athletic/7165787/2026/04/01/padres-win-giants-rookie-manager-craig-stammen/
+
+**Jayson Tatum's triple-double, Jaylen Brown's 43-point night continue Celtics' late surge**\
+`In less than a month, the Celtics have quieted concerns by going 10-2 in Tatum’s first 12 games.`\
+https://nytimes.com/athletic/7165823/2026/04/01/celtics-heat-score-results-jayson-tatum-jaylen-brown/
+
 **Jayson Tatum's triple-double, Jaylen Brown's 43-point night continue Celtics' late surge**\
 `In less than a month, the Celtics have quieted those concerns by going 10-2 in Tatum’s first 12 games.`\
 https://nytimes.com/athletic/7165823/2026/04/01/celtics-heat-score-results-jayson-tatum-jaylen-brown/
