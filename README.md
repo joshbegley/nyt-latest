@@ -1,3 +1,7 @@
+**Britain Says It Will Host Military Talks on Securing Strait of Hormuz**\
+`It was not clear whether the talks, expected to involve dozens of countries, would satisfy President Trump’s demand that other nations take a more active part in the Iran war.`\
+https://nytimes.com/2026/04/02/world/uk-reopen-strait-of-hormuz-talks.html
+
 **Former Wisconsin tight end Jack Pugh dies at 24**\
 `Jack Pugh, who spent three years as a tight end on the Wisconsin team, died at the age of 24. No official cause of death was released.`\
 https://nytimes.com/athletic/7166649/2026/04/02/jack-pugh-wisconsin-football-dies/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7166545/2026/04/02/brett-yormark-big-12-cody-campbe
 **Investigators Said to Look at Whether LaGuardia Controller Stepped Away**\
 `Officials are said to be examining whether a controller had to use an emergency phone just before the crash at LaGuardia. They have yet to determine the cause of the crash and are also focusing on other avenues.`\
 https://nytimes.com/2026/04/02/nyregion/laguardia-air-canada-investigation.html
-
-**Why the NFL chose Fanatics as exclusive trading card rights holder**\
-`"We think that Fanatics can help us really bring in new fans into the NFL," says NFL senior VP of licensing Casey Collins.`\
-https://nytimes.com/athletic/7166306/2026/04/02/fanatics-nfl-topps-chrome-football-cards/
 
