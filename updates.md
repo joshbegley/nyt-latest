@@ -1,3 +1,19 @@
+**Crystal Palace mailbag: Targeting Iraola, Wharton's future, transfer plans and stadium latest**\
+`Matt Woosnam answers readers' questions on the club's managerial search, summer priorities and ownership situation`\
+https://nytimes.com/athletic/7158572/2026/04/02/crystal-palace-andoni-iraola-manager-transfers/
+
+**West Ham squad audit: Exploring every player's contract situation as the club fight to stay up**\
+`What are the contract statuses of key players, and whose future could be determined by whether or not the club stays in the Premier League?`\
+https://nytimes.com/athletic/7157425/2026/04/02/west-ham-squad-audit-2026/
+
+**It's time for Arsenal's players and fans to strap in for the mother of all run-ins**\
+`It was a mixed international break for Mikel Arteta's squad, but now they must reassemble and focus on a huge two months `\
+https://nytimes.com/athletic/7163508/2026/04/02/arsenal-return-fa-cup-champions-league-premier-league/
+
+**'Castellon's fans are as passionate as at Leeds – it's my dream to take them to La Liga'**\
+`Management has come sooner than expected the former Elland Road magician - but he explains to The Athletic how he's relishing the challenge`\
+https://nytimes.com/athletic/7161003/2026/04/02/pablo-hernandez-interview-leeds-castellon-la-liga/
+
 **Why Arsenal may need to show a bit more caution in the Champions League semi-finals**\
 `Chelsea may be out but they revealed some defensive weaknesses in the Arsenal team that future opponents may be able to exploit`\
 https://nytimes.com/athletic/7165326/2026/04/02/arsenal-chelsea-champions-league-tactics/
