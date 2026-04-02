@@ -1,3 +1,7 @@
+**Italian Football Federation chief resigns after World Cup failure**\
+`Tuesday's defeat by Bosnia and Herzegovina means Italy have failed to qualify for the last three men's World Cups.`\
+https://nytimes.com/athletic/7163681/2026/04/02/italy-world-cup-gravina-gattuso/
+
 **Macron Snaps Back at Trump’s Mockery and Criticism of NATO**\
 `President Emmanuel Macron of France suggested that President Trump’s daily comments on the war in Iran were unserious. “Maybe one shouldn’t speak every day,” Mr. Macron told reporters.`\
 https://nytimes.com/2026/04/02/world/middleeast/macron-trump-nato.html
