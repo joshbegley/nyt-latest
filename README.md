@@ -1,3 +1,27 @@
+**How to watch Blue Jackets vs. Hurricanes: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the Carolina Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7166814/2026/04/02/blue-jackets-vs-hurricanes-stream-how-to-watch-april-2/
+
+**Tina Peters, Colorado Election Denier, Will Have Prison Sentence Reconsidered**\
+`Ms. Peters, a former county clerk, received a nine-year sentence after being convicted of tampering with voting machines. An appeals court overturned the sentence but did not immediately free her from prison.`\
+https://nytimes.com/2026/04/02/us/politics/tina-peters-prison-sentence-trump.html
+
+**How to watch Sabres vs. Senators: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the Ottawa Senators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7166812/2026/04/02/sabres-vs-senators-stream-how-to-watch-april-2/
+
+**How to watch Bruins vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the Boston Bruins play the Florida Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7166808/2026/04/02/bruins-vs-panthers-stream-how-to-watch-april-2/
+
+**How to watch Penguins vs. Lightning: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Penguins play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7166806/2026/04/02/penguins-vs-lightning-stream-how-to-watch-april-2/
+
+**Trump’s Media-Bashing Is Coming Back to Bite Him in Court**\
+`Judges have cited attacks on the press by the president and his appointees when ruling against the government in at least three court cases.`\
+https://nytimes.com/2026/04/02/business/media/trump-media-courts.html
+
 **The Windup: Our first ABS walk-off!**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/7166753/2026/04/02/automated-ball-strike-challenge-walk-off-win-the-windup/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7146129/2026/04/02/nick-cox-everton-technical-direc
 **How to watch Timberwolves vs. Pistons: Time, TV, streaming**\
 `Find out how to watch the Minnesota Timberwolves play the Detroit Pistons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7166767/2026/04/02/timberwolves-vs-pistons-stream-how-to-watch-april-2/
-
-**How to watch Suns vs. Hornets: Time, TV, streaming**\
-`Find out how to watch the Phoenix Suns play the Charlotte Hornets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7166756/2026/04/02/suns-vs-hornets-stream-how-to-watch-april-2/
-
-**This Spicy Citrus-Marinated Fish Is, to Quote Our Readers, ‘SO GOOD!’**\
-`I need this mix of quick-roasted fish, pico de gallo and creamy avocado, and I need it now.`\
-https://nytimes.com/2026/04/02/dining/this-spicy-citrus-marinated-fish-is-to-quote-our-readers-so-good.html
-
-**Britain Says It Will Host Military Talks on Securing Strait of Hormuz**\
-`It was not clear whether the talks, expected to involve dozens of countries, would satisfy President Trump’s demand that other nations take a more active part in the Iran war.`\
-https://nytimes.com/2026/04/02/world/uk-reopen-strait-of-hormuz-talks.html
-
-**Former Wisconsin tight end Jack Pugh dies at 24**\
-`Jack Pugh, who spent three years as a tight end on the Wisconsin team, died at the age of 24. No official cause of death was released.`\
-https://nytimes.com/athletic/7166649/2026/04/02/jack-pugh-wisconsin-football-dies/
-
-**Konnor Griffin, one of baseball's most exciting prospects in years, to join Pirates**\
-`Griffin’s ceiling conjures hope for a Pirates fan base desperate for a return to relevance.`\
-https://nytimes.com/athletic/7160955/2026/04/02/konnor-griffin-pirates-mlb-prospect-debut/
-
-**Penguins mailbag: Will Pittsburgh pursue Auston Matthews?**\
-`A look at what could happen this summer and a big swing that might intrigue Kyle Dubas.`\
-https://nytimes.com/athletic/7165249/2026/04/02/penguins-auston-matthews-kyle-dubas-mailbag/
 
