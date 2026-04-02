@@ -1,3 +1,7 @@
+**Anthony Edwards misses Thursday's game, making him ineligible for NBA awards**\
+`Timberwolves star, who is averaging 29.3 points per game, will not reach the 65-game threshold for being eligible for awards.`\
+https://nytimes.com/athletic/7168023/2026/04/02/anthony-edwards-injury-update-timberwolves/
+
 **How Jesus Altered the World’s Conscience**\
 `It might sound obvious now, but helping your neighbor wasn’t always seen as a moral imperative. The New Testament scholar Bart Ehrman explains how Jesus’ teachings shape the way we all view our role in society today.`\
 https://nytimes.com/video/opinion/100000010807119/how-jesus-altered-the-worlds-conscience.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/04/02/science/artemis-nasa-moon-astronauts/wednesd
 **President Trump Fires Pam Bondi as Attorney General**\
 `On Thursday, President Trump announced on social media that Attorney General Pam Bondi would be leaving her role for a new position in the private sector.`\
 https://nytimes.com/video/us/politics/100000010818981/trump-fires-attorney-general-pam-bondi.html
-
-**ICE Arrests the Head of Wisconsin’s Largest Islamic Group**\
-`Officials detained Salah Sarsour, the president of the Islamic Society of Milwaukee, on Monday. He is a legal permanent resident, the organization said.`\
-https://nytimes.com/2026/04/02/us/ice-milwaukee-muslim-leader-arrest.html
 

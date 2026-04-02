@@ -1,3 +1,7 @@
+**Anthony Edwards misses Thursday's game, making him ineligible for NBA awards**\
+`Timberwolves star, who is averaging 29.3 points per game, will not reach the 65-game threshold for being eligible for awards.`\
+https://nytimes.com/athletic/7168023/2026/04/02/anthony-edwards-injury-update-timberwolves/
+
 **How Jesus Altered the World’s Conscience**\
 `It might sound obvious now, but helping your neighbor wasn’t always seen as a moral imperative. The New Testament scholar Bart Ehrman explains how Jesus’ teachings shape the way we all view our role in society today.`\
 https://nytimes.com/video/opinion/100000010807119/how-jesus-altered-the-worlds-conscience.html
