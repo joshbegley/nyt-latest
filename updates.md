@@ -1,3 +1,11 @@
+**Dan Hurley on headbutting ref: ‘Zero technical fouls' in NCAA Tournament**\
+`Hurley’s poor behavior toward officials has been a topic the past two seasons, with the coach admitting, "It's not easy to work my games.”`\
+https://nytimes.com/athletic/7167288/2026/04/02/uconn-dan-hurley-referee-headbutt-explanation/
+
+**How the Dodgers are embracing Edwin Díaz and the trumpets**\
+`Dodgers teammates rave about the professionalism of their new closer, who arrived with his own ninth-inning soundtrack.`\
+https://nytimes.com/athletic/7166995/2026/04/02/how-the-dodgers-are-embracing-edwin-diaz-and-the-trumpets/
+
 **Cignetti not concerned about new Indiana QB Hoover's TCU turnover history**\
 `Said Curt Cignetti of his new QB: 'When Josh got here, he met his two new best friends: a great defense and a really good run game.'`\
 https://nytimes.com/athletic/7167267/2026/04/02/josh-hoover-curt-cignetti-indiana-tcu/
