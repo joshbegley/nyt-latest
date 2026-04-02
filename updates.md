@@ -1,3 +1,11 @@
+**The Artemis II Toilet Had a Problem**\
+`The Universal Waste Management System aboard the Orion capsule is an innovation in deep space toiletry (if it works).`\
+https://nytimes.com/2026/04/01/science/artemis-ii-bathroom-toilet.html
+
+**For the First Time, a Toilet Heads Into Deep Space**\
+`The Orion spacecraft will take four crew members and one commode around the moon and back as part of the Artemis II mission. In April 2025, National Geographic worked with NASA and filmed the astronauts at an Orion space capsule model in Houston.`\
+https://nytimes.com/video/science/space/100000010813292/orion-spacecraft-first-toilet-space.html
+
 **Holders of Hammers and Anvils**\
 `In Joe Marquez’s wisecracking puzzle, the joke’s on us.`\
 https://nytimes.com/2026/04/01/crosswords/daily-puzzle-2026-04-02.html
