@@ -1,3 +1,11 @@
+**How Jesus Altered the World’s Conscience**\
+`It might sound obvious now, but helping your neighbor wasn’t always seen as a moral imperative. The New Testament scholar Bart Ehrman explains how Jesus’ teachings shape the way we all view our role in society today.`\
+https://nytimes.com/video/opinion/100000010807119/how-jesus-altered-the-worlds-conscience.html
+
+**Here’s What Happened in the War in the Middle East on Thursday**\
+`President Trump’s prime-time address received a defiant response from a top leader in Tehran.`\
+https://nytimes.com/2026/04/02/world/middleeast/iran-war-middle-east-recap-thursday.html
+
 **Chandler Morris' lawsuit over 7th year of eligibility denied by judge**\
 `Morris was denied a preliminary injunction for his lawsuit over a retroactive medical redshirt for his 2022 season.`\
 https://nytimes.com/athletic/7167985/2026/04/02/judge-denies-virginia-chandler-morris-lawsuit-eligibility/
