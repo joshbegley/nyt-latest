@@ -1,3 +1,7 @@
+**‘The Blue Trail’ Review: A Drifting Journey Into Freedom**\
+`In an imaginary Brazil, where older people are forcibly removed from society, a resolute 77-year-old seeks her independence in the Amazon.`\
+https://nytimes.com/2026/04/02/movies/the-blue-trail-review.html
+
 **Is Alix Earle the Right Face for a Skin Care Brand?**\
 `Critics of Reale Actives, Ms. Earle’s new skin care line, suggest that the TikTok star’s past use of prescription acne treatments makes her an odd fit to sell consumer skin care products.`\
 https://nytimes.com/2026/04/02/style/reale-alix-earle-skin-care-tiktok.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7166718/2026/04/02/espn-nfl-network-broadcast-analy
 **Danish Warship Sunk by Britain’s Lord Nelson 225 Years Ago Is Found**\
 `The ship sank during the Battle of Copenhagen, an important moment in Danish and British history, and became the origin of a common saying.`\
 https://nytimes.com/2026/04/02/world/europe/danish-warship-britain-nelson-copenhagen.html
-
-**What's up with the Mets' dormant offense? Examining early trends**\
-`An inability to drive in runners in scoring position, chasing bad pitches and not enough hard contact are all part of New York's slow start.`\
-https://nytimes.com/athletic/7166851/2026/04/02/mets-dormant-offense-early-trends/
 
