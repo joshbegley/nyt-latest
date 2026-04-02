@@ -1,3 +1,7 @@
+**Crystal Palace mailbag: Targeting Iraola, Wharton's future, transfer plans and stadium latest**\
+`Matt Woosnam answers readers' questions on the club's managerial search, summer priorities and ownership situation`\
+https://nytimes.com/athletic/7158572/2026/04/02/crystal-palace-andoni-iraola-manager-transfers/
+
 **West Ham squad audit: Exploring every player's contract situation as the club fight to stay up**\
 `What are the contract statuses of key players, and whose future could be determined by whether or not the club stays in the Premier League?`\
 https://nytimes.com/athletic/7157425/2026/04/02/west-ham-squad-audit-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7162129/2026/04/02/tottenham-de-zerbi-idea/
 **NASA Launches Artemis Astronauts on Journey to the Moon**\
 `Crowds gathered near the Kennedy Space Center in Cape Canaveral, Fla., on Wednesday to watch as NASA launched four astronauts on a 10-day journey that will go around the moon.`\
 https://nytimes.com/video/science/space/100000010816934/artemis-nasa-moon-launch.html
-
-**Twins are MLB's most aggressive ABS team, set record with 9 challenges**\
-`The 2026 Minnesota Twins lead the league in something, and it's being successful at the new Automated Ball-Strike challenge system. `\
-https://nytimes.com/athletic/7165898/2026/04/02/minnesota-twins-abs-challenges-success/
 
