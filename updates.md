@@ -1,3 +1,7 @@
+**Texas Man Charged With Manslaughter in Connection With Cold Case**\
+`Prosecutors in Galveston County say that in the 1980s, a man killed a teenager and helped hide the remains of a woman, two of the dozens of bodies found on land known as the Texas Killing Fields.`\
+https://nytimes.com/2026/04/01/us/texas-killing-fields-charges-filed.html
+
 **4 tiny spacecraft have tagged along with Artemis II.**\
 `By Katrina Miller`\
 https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/4-tiny-spacecraft-are-tagging-along-with-artemis-ii
