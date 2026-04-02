@@ -1,3 +1,15 @@
+**Why the NFL chose Fanatics as exclusive trading card rights holder**\
+`"We think that Fanatics can help us really bring in new fans into the NFL," says NFL senior VP of licensing Casey Collins.`\
+https://nytimes.com/athletic/7166306/2026/04/02/fanatics-nfl-topps-chrome-football-cards/
+
+**New Jersey 11th Congressional District Special Election 2026: Latest Polls**\
+`Track the latest polls in New Jersey's 11th Congressional District special election.`\
+https://nytimes.com/interactive/polls/new-jersey-us-house-11-special-polls-2026.html
+
+**Bad, Very Bad and Much Worse: Pick a Forecast for the War and Economy**\
+`A merely bad outlook might be good enough for the markets, our columnist says.`\
+https://nytimes.com/2026/04/02/business/iran-war-economy-stocks-bonds.html
+
 **Caja-Rural’s Jaume Guardeno in intensive care after training collision with car**\
 `The 23-year-old finished 14th at last year’s Vuelta a Espana in a highly promising first Grand Tour.`\
 https://nytimes.com/athletic/7166527/2026/04/02/jaume-guardeno-intensive-care-cycling/
