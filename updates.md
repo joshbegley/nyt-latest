@@ -1,3 +1,7 @@
+**Investigators Said to Look at Whether LaGuardia Controller Stepped Away**\
+`Officials are said to be examining whether a controller had to use an emergency phone just before the crash at LaGuardia. They have yet to determine the cause of the crash and are also focusing on other avenues.`\
+https://nytimes.com/2026/04/02/nyregion/laguardia-air-canada-investigation.html
+
 **Why the NFL chose Fanatics as exclusive trading card rights holder**\
 `"We think that Fanatics can help us really bring in new fans into the NFL," says NFL senior VP of licensing Casey Collins.`\
 https://nytimes.com/athletic/7166306/2026/04/02/fanatics-nfl-topps-chrome-football-cards/

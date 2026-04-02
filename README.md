@@ -1,3 +1,7 @@
+**Big 12 commissioner Brett Yormark: Cody Campbell 'does not run the Big 12'**\
+`Yormark responded to Texas Tech booster and board of regents chair Cody Campbell taking issue with a potential move of a game to Friday.`\
+https://nytimes.com/athletic/7166545/2026/04/02/brett-yormark-big-12-cody-campbell-texas-tech/
+
 **Investigators Said to Look at Whether LaGuardia Controller Stepped Away**\
 `Officials are said to be examining whether a controller had to use an emergency phone just before the crash at LaGuardia. They have yet to determine the cause of the crash and are also focusing on other avenues.`\
 https://nytimes.com/2026/04/02/nyregion/laguardia-air-canada-investigation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/02/world/middleeast/macron-trump-nato.html
 **He Studied How to Transport Blood to Wounded Marines**\
 `Peter Frazier’s lab at Cornell worked to improve how blood was stored and transported for armed forces. Then he received a stop-work order.`\
 https://nytimes.com/2026/04/02/science/science-military-blood.html
-
-**House Takes No Action on Homeland Security Funding, Prolonging Shutdown**\
-`Even after Speaker Mike Johnson agreed to a deal to fund the Department of Homeland Security without immigration enforcement money, the House failed to take it up amid hard-right opposition.`\
-https://nytimes.com/2026/04/02/us/politics/house-no-action-homeland-security-funding-shutdown.html
 

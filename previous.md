@@ -1,3 +1,7 @@
+**Investigators Said to Look at Whether LaGuardia Controller Stepped Away**\
+`Officials are said to be examining whether a controller had to use an emergency phone just before the crash at LaGuardia. They have yet to determine the cause of the crash and are also focusing on other avenues.`\
+https://nytimes.com/2026/04/02/nyregion/laguardia-air-canada-investigation.html
+
 **Why the NFL chose Fanatics as exclusive trading card rights holder**\
 `"We think that Fanatics can help us really bring in new fans into the NFL," says NFL senior VP of licensing Casey Collins.`\
 https://nytimes.com/athletic/7166306/2026/04/02/fanatics-nfl-topps-chrome-football-cards/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/02/science/science-military-blood.html
 **House Takes No Action on Homeland Security Funding, Prolonging Shutdown**\
 `Even after Speaker Mike Johnson agreed to a deal to fund the Department of Homeland Security without immigration enforcement money, the House failed to take it up amid hard-right opposition.`\
 https://nytimes.com/2026/04/02/us/politics/house-no-action-homeland-security-funding-shutdown.html
-
-**Kirk Cousins agrees to free-agent deal with Raiders**\
-`Cousins, 37, was 12-10 as a starter and 24th in the league in EPA per dropback during his two seasons with the Atlanta Falcons.`\
-https://nytimes.com/athletic/7086984/2026/04/02/kirk-cousins-raiders-nfl-free-agency-2026/
 
