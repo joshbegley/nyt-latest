@@ -1,3 +1,7 @@
+**Trump Fires His Attorney General**\
+`Also, France’s president voices European frustration with the U.S. leader. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2026/04/02/briefing/trump-fires-attorney-general.html
+
 **Rival Nations Seize On Choke Points to Counter Trump**\
 `From Iran to China, President Trump’s global aggression has encouraged other countries to search for new ways to pressure the U.S. economy.`\
 https://nytimes.com/2026/04/02/business/economy/trump-iran-china-choke-points.html
