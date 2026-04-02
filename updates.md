@@ -1,3 +1,16 @@
+**Wimbledon Is Expanding. What Does That Mean for Tennis?**\
+`The largest obstacle to Wimbledon’s plans to nearly triple the size of its grounds has been removed. The Athletic’s Charlie Eccleshare explains what it could mean for the Grand Slam’s future.`\
+https://nytimes.com/video/the-athletic/100000010814221/wimbledon-is-expanding-what-does-that-mean-for-tennis.html
+
+**How Much Will It Cost to Travel to the World Cup?**\
+`The Athletic calculated the potential costs, including flights, hotels, ride shares, food and tickets, for fans traveling to the World Cup. Writer Henry Bushnell digs into the numbers.`\
+https://nytimes.com/video/the-athletic/100000010814222/how-much-will-it-cost-to-travel-to-the-world-cup.html
+
+**Victor Wembanyama sends message to Artemis II astronauts on NASA stream**\
+`Wembanyama has shown interest in aeronautical science and cosmology, visiting NASA’s Johnson Space Center in Houston last offseason.
+`\
+https://nytimes.com/athletic/7167544/2026/04/02/victor-wembanyama-artemis-ii-message-astronauts/
+
 **Victor Wembanyama sends message to Artemis II astronauts on NASA stream**\
 `Wembanyama has shown interest in aeronautical science and cosmology, visiting NASA’s Johnson Space Center in Houston last offseason.
 `\
