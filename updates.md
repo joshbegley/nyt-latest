@@ -1,3 +1,7 @@
+**Lost Friendships, Broken Relationships: How the War in Iran Is Dividing the Diaspora**\
+`Amid months of protest, repression and war in their native country, Iranians living abroad are navigating their biggest rifts yet.`\
+https://nytimes.com/2026/04/02/world/middleeast/iran-war-diaspora.html
+
 **Why Newcastle's £18m KNOX training ground and sleeve deal is a 'message to the marketplace'**\
 `Newcastle confirmed a new training ground and training kit-sleeve sponsorship deal on Thursday`\
 https://nytimes.com/athletic/7163381/2026/04/02/newcastle-training-ground-kit-knox-analysis/
