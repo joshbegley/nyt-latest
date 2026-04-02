@@ -1,3 +1,11 @@
+**President Trump Fires Pam Bondi as Attorney General**\
+`On Thursday, President Trump announced on social media that Attorney General Pam Bondi would be leaving her role for a new position in the private sector.`\
+https://nytimes.com/video/us/politics/100000010818981/trump-fires-attorney-general-pam-bondi.html
+
+**LeBron James takes shots at Memphis, suggests Grizzlies 'go over to Nashville'**\
+`In an appearance on a YouTube show, star lamented any trip he takes to the city, and said that other players share his sentiments.`\
+https://nytimes.com/athletic/7167728/2026/04/02/lebron-james-memphis-grizzlies-eli-manning/
+
 **ICE Arrests the Head of Wisconsin’s Largest Islamic Group**\
 `Officials detained Salah Sarsour, the president of the Islamic Society of Milwaukee, on Monday. He is a legal permanent resident, the organization said.`\
 https://nytimes.com/2026/04/02/us/ice-milwaukee-muslim-leader-arrest.html

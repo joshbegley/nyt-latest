@@ -1,3 +1,7 @@
+**President Trump Fires Pam Bondi as Attorney General**\
+`On Thursday, President Trump announced on social media that Attorney General Pam Bondi would be leaving her role for a new position in the private sector.`\
+https://nytimes.com/video/us/politics/100000010818981/trump-fires-attorney-general-pam-bondi.html
+
 **ICE Arrests the Head of Wisconsin’s Largest Islamic Group**\
 `Officials detained Salah Sarsour, the president of the Islamic Society of Milwaukee, on Monday. He is a legal permanent resident, the organization said.`\
 https://nytimes.com/2026/04/02/us/ice-milwaukee-muslim-leader-arrest.html
@@ -14,8 +18,8 @@ https://nytimes.com/2026/04/02/us/elections/mike-johnson-shutdown-power.html
 `President Emmanuel Macron of France expressed disapproval about President Trump’s handling of the war against Iran on Thursday, chastising him for speaking cavalierly in a speech.`\
 https://nytimes.com/2026/04/02/world/middleeast/iran-war-trump-strait.html
 
-**LeBron 'might've pulled an Eli Manning' if Memphis had won No. 1 pick in 2003**\
-`In his appearance on a YouTube show, the NBA star also suggested that the Grizzlies franchise should move to Nashville.`\
+**LeBron James takes shots at Memphis, suggests Grizzlies 'go over to Nashville'**\
+`In an appearance on a YouTube show, star lamented any trip he takes to the city, and said that other players share his sentiments.`\
 https://nytimes.com/athletic/7167728/2026/04/02/lebron-james-memphis-grizzlies-eli-manning/
 
 **Iranians mark a nature festival in the shadow of war.**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/the-athletic/100000010800819/how-predictions-markets-a
 **Trump Fires His Attorney General**\
 `Also, France’s president voices European frustration with the U.S. leader. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2026/04/02/briefing/trump-fires-attorney-general.html
-
-**Rival Nations Seize On Choke Points to Counter Trump**\
-`From Iran to China, President Trump’s global aggression has encouraged other countries to search for new ways to pressure the U.S. economy.`\
-https://nytimes.com/2026/04/02/business/economy/trump-iran-china-choke-points.html
 
