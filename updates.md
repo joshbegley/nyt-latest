@@ -1,3 +1,11 @@
+**Submit questions for Jim Bowden's MLB mailbag**\
+`What are you wondering about this season? Jim Bowden will answer subscribers' questions in his upcoming mailbag. `\
+https://nytimes.com/athletic/7166269/2026/04/02/mlb-questions-jim-bowden/
+
+**Should Steph Curry return this season? It's silly to even debate it**\
+`Curry, who has been out since Jan. 30 with a knee injury, is aiming to come back for the 10th-place Warriors this weekend. `\
+https://nytimes.com/athletic/7166042/2026/04/02/steph-curry-return-knee-injury-debate-warriors/
+
 **How to watch Twins vs. Royals: Time, TV, streaming for April 2**\
 `Find out how to watch the Minnesota Twins play the Kansas City Royals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7166287/2026/04/02/twins-vs-royals-stream-how-to-watch-april-2/
