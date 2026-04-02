@@ -1,3 +1,23 @@
+**NASA’s Artemis II Moon Mission Launches Into Space**\
+`The crew of four — three Americans and one Canadian — reached space on Wednesday on the first crewed journey to the moon since 1972.`\
+https://nytimes.com/video/science/space/100000010816588/nasas-artemis-ii-moon-mission-launches-into-space.html
+
+**Lawsuits Are the New Trump Tactic in the Fight to Overhaul Education**\
+`Trump officials have faced dozens of lawsuits over their aggressive efforts to force change in universities and school districts. Now Trump lawyers are taking schools to court.`\
+https://nytimes.com/2026/04/01/us/trump-lawsuits-education-agenda.html
+
+**D.H.S. Inspector General Inquiry Focuses in Part on Top Noem Aide**\
+`The investigation comes as administration officials have fielded complaints about how Kristi Noem’s top adviser, Corey Lewandowski, dealt with companies seeking federal contracts.`\
+https://nytimes.com/2026/04/01/us/politics/dhs-inspector-general-inquiry-lewandowski.html
+
+**What to make of the Tigers through six games? It depends on your perspective**\
+`There Tigers leave Arizona with a bad taste, but it's too early to draw any real conclusions. `\
+https://nytimes.com/athletic/7165516/2026/04/01/tigers-struggles-first-week/
+
+**Grizzlies forward Brandon Clarke jailed on 4 charges in Arkansas**\
+`Cross County booking information did not indicate if any of the charges against Clarke were misdemeanors or felonies.`\
+https://nytimes.com/athletic/7165577/2026/04/01/brandon-clarke-arrest-jail-charges-grizzlies-arkansas/
+
 **Key Justices Appear Skeptical of Limiting Birthright Citizenship**\
 `During a Supreme Court hearing on Wednesday, several justices expressed skepticism about the Trump administration’s efforts to bar children of undocumented immigrants born in the United States from automatically becoming Americans.`\
 https://nytimes.com/video/us/politics/100000010814848/supreme-court-birthright-trump-citizenship.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7165379/2026/04/01/red-sox-1-5-takeaways-alex-cora/
 **NBA fines Trail Blazers $100,000, suspends assistant GMs for draft violation**\
 `Mike Schmitz and Sergi Oliva were suspended after Portland self-reported that they had illegal contact with Yang Hansen before drafting him.`\
 https://nytimes.com/athletic/7165567/2026/04/01/portland-trail-blazers-assistant-gm-fined-suspended/
-
-**What Happened in the War in the Middle East on Wednesday.**\
-`Formidable strikes rocked Tehran early Wednesday morning. Iran launched what its state-aligned media called one of the largest attacks on Israel yet, damaging several cities.`\
-https://nytimes.com/2026/04/01/world/middleeast/what-happened-in-the-war-in-the-middle-east-on-wednesday.html
-
-**What China sees as NASA launches Artemis II.**\
-`By Selam Gebrekidan`\
-https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/what-china-sees-as-nasa-launches-artemis-ii
-
-**Jose Altuve is staying patient and propelling a new-look Astros offense**\
-`Altuve is spearheading a lineup that just scored 45 runs and worked 32 walks across a seven-game homestand. `\
-https://nytimes.com/athletic/7165452/2026/04/01/houston-astros-jose-altuve-patience-offense/
-
-**Trump is expected to give a rosy assessment of the war, after conflicting messages on its end.**\
-`By Zolan Kanno-Youngs`\
-https://nytimes.com/live/2026/04/01/world/iran-war-trump-oil-news/trump-iran-war-speech
-
-**Medical Examiner Rules That a Rohingya Refugee’s Death Was a Homicide**\
-`An autopsy showed that the man suffered dehydration and hypothermia after Border Patrol agents dropped him off on a cold night in Buffalo. Gov. Kathy Hochul condemned their actions as cruel and inhumane.`\
-https://nytimes.com/2026/04/01/nyregion/rohingya-refugee-buffalo-homicide-medical-examiner.html
 
