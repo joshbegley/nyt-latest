@@ -1,3 +1,7 @@
+**Primetime Trump**\
+`We have takeaways from the president’s address to the nation.`\
+https://nytimes.com/2026/04/02/briefing/trump-primetime-address.html
+
 **How an iconic Masters moment came to be, and has come to last**\
 `When Shota Hayafuji bowed to Augusta National Golf Course 5 years ago only one camera was there to notice it.`\
 https://nytimes.com/athletic/7165197/2026/04/02/masters-caddie-bow-hideki-matsuyama-shota-hayafuji/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7164608/2026/04/02/mens-final-four-player-rankings-
 **16 Stats: The Canadiens' core looks Stanley Cup contender-worthy**\
 `There’s still work to be done around the edges, but the Canadiens are on the cusp of something special. Plus: big names and soaring offense.`\
 https://nytimes.com/athletic/7164561/2026/04/02/16-stats-canadiens-stanley-cup-contenders/
-
-**Exclusive: Nylander wants to stick with the Leafs – if they retool**\
-`Even after Brad Treliving's firing and an uncertain future at the top of the organization, Nylander still wants to win with the Leafs.`\
-https://nytimes.com/athletic/7165619/2026/04/02/william-nylander-maple-leafs-future-retool-pelley-treliving/
 
