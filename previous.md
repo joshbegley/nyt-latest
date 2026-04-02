@@ -1,3 +1,7 @@
+**Sophia Wilson back with USWNT: ‘I’m in a really great place right now’**\
+`The Portland Thorns forward is back with the national team after giving birth to her first child in September.`\
+https://nytimes.com/athletic/7167337/2026/04/02/sophia-wilson-uswnt-return/
+
 **Exclusive: Quinn Hughes reflects on what led to the end of his Canucks tenure**\
 `Hughes, the former Canucks captain, will face off against Vancouver for the first time on Thursday.`\
 https://nytimes.com/athletic/7167018/2026/04/02/quinn-hughes-canucks-wild-exclusive/
@@ -31,10 +35,6 @@ https://nytimes.com/2026/04/02/climate/trump-gas-prices-iran-world-leaders.html
 https://nytimes.com/athletic/7167423/2026/04/02/braves-vs-diamondbacks-stream-how-to-watch-april-2/
 
 **Trump Revamps Metal and Pharmaceutical Tariffs**\
-`The administration announced new levies and made changes to existing tariffs for two industries that have proved influential on the president’s trade policy.`\
+`The administration announced new levies and made changes to existing tariffs for industries that have proved influential on the president’s trade policy.`\
 https://nytimes.com/2026/04/02/business/economy/trump-metal-pharmaceutical-tariffs.html
-
-**How to watch Mets vs. Giants: Time, TV, streaming for April 2**\
-`Find out how to watch the New York Mets play the San Francisco Giants, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7167421/2026/04/02/mets-vs-giants-stream-how-to-watch-april-2/
 

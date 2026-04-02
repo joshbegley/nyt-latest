@@ -1,3 +1,11 @@
+**Sophia Wilson back with USWNT: ‘I’m in a really great place right now’**\
+`The Portland Thorns forward is back with the national team after giving birth to her first child in September.`\
+https://nytimes.com/athletic/7167337/2026/04/02/sophia-wilson-uswnt-return/
+
+**Trump Revamps Metal and Pharmaceutical Tariffs**\
+`The administration announced new levies and made changes to existing tariffs for industries that have proved influential on the president’s trade policy.`\
+https://nytimes.com/2026/04/02/business/economy/trump-metal-pharmaceutical-tariffs.html
+
 **Exclusive: Quinn Hughes reflects on what led to the end of his Canucks tenure**\
 `Hughes, the former Canucks captain, will face off against Vancouver for the first time on Thursday.`\
 https://nytimes.com/athletic/7167018/2026/04/02/quinn-hughes-canucks-wild-exclusive/
