@@ -1,3 +1,11 @@
+**Liamine Zeroual, Algerian President During Bloody Civil War, Dies at 84**\
+`Cutting short his five-year term amid the scarring conflict, he was perhaps a first: an Algerian leader who left without being forced out or dying in office.`\
+https://nytimes.com/2026/04/02/world/africa/liamine-zeroual-dead.html
+
+**Wizards' April Fools' prank 'missed the mark,' team says in apology**\
+`The skit occurred during halftime of the Wizards’ eventual 153-131 loss to the Philadelphia 76ers on the evening of April Fools' Day.`\
+https://nytimes.com/athletic/7166953/2026/04/02/wizards-april-fools-joke-halfcourt-shot/
+
 **How to watch Pelicans vs. Trail Blazers: Time, TV, streaming**\
 `Find out how to watch the New Orleans Pelicans play the Portland Trail Blazers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7167261/2026/04/02/pelicans-vs-trail-blazers-stream-how-to-watch-april-2/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7167024/2026/04/02/fab-five-michigan-arizona-altcas
 **How Trump Boxed Himself In on Iran**\
 `President Trump faces the possibility that at the end of his own two-to-three week window for wrapping up the war in Iran, nothing much will have changed.`\
 https://nytimes.com/2026/04/02/us/politics/trump-speech-iran-war-whats-next.html
-
-**Former MLB pitcher Trevor Bauer signs with Long Island Ducks**\
-`Bauer will make the Opening Day start for the Atlantic League team on April 21. `\
-https://nytimes.com/athletic/7167097/2026/04/02/trevor-bauer-signing-long-island-ducks/
-
-**Pope Leo Washes Feet of 12 Roman Priests on Holy Thursday**\
-`Returning to tradition, Pope Leo XIV performed the rite of humility and service for priests during an afternoon Mass at the Basilica of St. John Lateran.`\
-https://nytimes.com/video/world/europe/100000010817852/pope-leo-holy-thursday-ritual.html
 
