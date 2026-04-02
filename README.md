@@ -1,9 +1,13 @@
+**Twins notes: Taj Bradley keeps rolling with record velocity; where to find top prospects**\
+`Bradley has started both Twins wins this season and is already dominating the leaderboard for fastest pitches by starters in team history.`\
+https://nytimes.com/athletic/7167694/2026/04/02/twins-taj-bradley-100-mph-top-prospects/
+
 **What to expect from the UEFA Women's Champions League semifinals**\
-`Barcelona's commanding 12-2 victory over rivals Real Madrid was an outlier in an otherwise competitive quarterfinal rounds`\
+`Barcelona's commanding 12-2 victory over rivals Real Madrid was an outlier in an otherwise competitive quarterfinal round`\
 https://nytimes.com/athletic/7167325/2026/04/02/uefa-womens-champions-league-barcelona-arseal-ol-lyonnes-bayern-munich/
 
 **Anthony Edwards misses Thursday's game, making him ineligible for NBA awards**\
-`Timberwolves star, who is averaging 29.3 points per game, will not reach the 65-game threshold for being eligible for awards.`\
+`The Timberwolves star, who is averaging 29.3 points per game, will not reach the 65-game threshold for being eligible for awards.`\
 https://nytimes.com/athletic/7168023/2026/04/02/anthony-edwards-injury-update-timberwolves/
 
 **How Jesus Altered the World’s Conscience**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010806526/trump-iran-strait-of-hormu
 **Hegseth Fires Army Chief Amid Battle With Its Leaders**\
 `Senior Army officers reacted with anger and frustration to news of Gen. Randy George’s dismissal, characterizing it as the latest blow to the service.`\
 https://nytimes.com/2026/04/02/us/politics/hegseth-fires-general-randy-george.html
-
-**After a long Wednesday, NASA launched its mission back to the moon.**\
-`By Katrina Miller`\
-https://nytimes.com/live/2026/04/02/science/artemis-nasa-moon-astronauts/wednesday-nasa-moon-recap
 

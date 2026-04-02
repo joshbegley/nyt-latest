@@ -1,3 +1,7 @@
+**What to expect from the UEFA Women's Champions League semifinals**\
+`Barcelona's commanding 12-2 victory over rivals Real Madrid was an outlier in an otherwise competitive quarterfinal rounds`\
+https://nytimes.com/athletic/7167325/2026/04/02/uefa-womens-champions-league-barcelona-arseal-ol-lyonnes-bayern-munich/
+
 **Anthony Edwards misses Thursday's game, making him ineligible for NBA awards**\
 `Timberwolves star, who is averaging 29.3 points per game, will not reach the 65-game threshold for being eligible for awards.`\
 https://nytimes.com/athletic/7168023/2026/04/02/anthony-edwards-injury-update-timberwolves/
