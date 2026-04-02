@@ -1,3 +1,19 @@
+**How do UConn women's and men's Final Four teams stack up financially?**\
+`UConn women's and men's programs are considered powerhouses. Do they receive similar funding? `\
+https://nytimes.com/athletic/7165839/2026/04/02/uconn-women-men-march-madness-financial-nil-comparison/
+
+**NBA Awards Watch: Who's on track for All-Defensive and All-Rookie recognition?**\
+`Victor Wembanyama (All-Defensive) and Dylan Harper (All-Rookie) are key reasons the Spurs are where they are, near the top of the West.`\
+https://nytimes.com/athletic/7157306/2026/04/02/nba-awards-victor-wembanyama-cooper-flagg-kon-knueppel/
+
+**Trump Asserts War in Iran Is ‘Nearing Completion’**\
+`During a prime-time address on Wednesday, President Trump said the United States was on track for completing its military objectives in Iran, but offered no clear timeline to end the war.`\
+https://nytimes.com/video/us/politics/100000010817429/trump-asserts-war-in-iran-is-nearing-completion.html
+
+**Every Trump Threat to Abandon NATO Hollows It Out**\
+`Doubts that the United States would come to the aid of NATO allies increase each time, prompting Europeans to consider an alliance without Washington.`\
+https://nytimes.com/2026/04/02/world/europe/trump-nato-iran.html
+
 **Men's Final Four staff predictions: Why Arizona is (still) our favorite to win**\
 `All four Final Four teams received at least one vote to win the championship from our staff.`\
 https://nytimes.com/athletic/7165812/2026/04/02/mens-final-four-predictions-arizona-michigan-uconn-illinois/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7165570/2026/04/02/fernando-mendoza-pro-day-las-veg
 **For Jets, the 'promised land' is a word that begins with 'C' — not the one you're thinking of**\
 `The coach and general manager are growing closer and aiming for one thing from their Jets team in 2026: competence.`\
 https://nytimes.com/athletic/7165474/2026/04/02/aaron-glenn-darren-mougey-relationship-second-season/
-
-**The Giants might finally have a QB worth building around. Here's how they're doing it**\
-`“He can live in a lot of different worlds,” John Harbaugh said. “I'm not sure what he really can't do.”`\
-https://nytimes.com/athletic/7164857/2026/04/02/jaxson-dart-new-york-giants-supporting-cast/
-
-**UConn is in unfamiliar territory: A betting underdog**\
-`UConn has covered the spread in 17 of 18 NCAA Tournament games. Now they are underdogs. Here's a recap of all the betting action.`\
-https://nytimes.com/athletic/7164068/2026/04/02/march-madness-betting-action-report-uconn-michigan-illinois-arizona/
-
-**The New York Times International Edition in Print for Friday, April 3, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/04/02/todays-new-york-times-international-edition
-
-**Lost Friendships, Broken Relationships: How the War in Iran Is Dividing the Diaspora**\
-`Amid months of protest, repression and war in their native country, Iranians living abroad are navigating their biggest rifts yet.`\
-https://nytimes.com/2026/04/02/world/middleeast/iran-war-diaspora.html
 
