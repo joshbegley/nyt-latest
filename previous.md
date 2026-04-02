@@ -1,5 +1,9 @@
+**Justice Dept. Says Trump Doesn’t Need to Hand Over Presidential Records After Office**\
+`The opinion could set the stage for President Trump to refuse to give the National Archives many of his own official documents when he leaves office.`\
+https://nytimes.com/2026/04/02/us/politics/justice-department-trump-presidential-records.html
+
 **Phil Mickelson opts out of Masters due to 'personal health matter' with family**\
-`The 55-year-old golfer will join Tiger Woods in missing tournament, marking first time both will be absent from Augusta since 1994.`\
+`The 55-year-old golfer will join Tiger Woods in missing tournament, marking first time since 1994 both will be absent from Augusta.`\
 https://nytimes.com/athletic/7167504/2026/04/02/phil-mickelson-masters-out-family-health/
 
 **If You Love a Great Restaurant Dupe, This One’s For You**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7167463/2026/04/02/predators-vs-kings-stream-how-to
 **How to watch Flames vs. Golden Knights: Time, TV, streaming**\
 `Find out how to watch the Calgary Flames play the Vegas Golden Knights, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7167458/2026/04/02/flames-vs-golden-knights-stream-how-to-watch-april-2/
-
-**How to watch Maple Leafs vs. Sharks: Time, TV, streaming**\
-`Find out how to watch the Toronto Maple Leafs play the San Jose Sharks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7167453/2026/04/02/maple-leafs-vs-sharks-stream-how-to-watch-april-2/
 
