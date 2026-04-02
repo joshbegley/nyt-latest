@@ -1,3 +1,7 @@
+**Jayson Tatum's triple-double, Jaylen Brown's 43-point night continue Celtics' late surge**\
+`In less than a month, the Celtics have quieted those concerns by going 10-2 in Tatum’s first 12 games.`\
+https://nytimes.com/athletic/7165823/2026/04/01/celtics-heat-score-results-jayson-tatum-jaylen-brown/
+
 **How likely is it that Artemis II will collide with debris in space?**\
 `By Ashley Ahn`\
 https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/how-likely-is-it-that-artemis-ii-will-collide-with-debris-in-space
