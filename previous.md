@@ -1,3 +1,7 @@
+**Former Patriots star CB Stephon Gilmore retiring after 13 seasons**\
+`Gilmore sealed the Patriots' Super Bowl 53 victory over the Rams to cap the 2018 season, then won Defensive Player of the Year in 2019.`\
+https://nytimes.com/athletic/7167529/2026/04/02/stephon-gilmore-retires-patriots-bills/
+
 **Justice Dept. Says Trump Doesn’t Need to Hand Over Presidential Records After Office**\
 `The opinion could set the stage for President Trump to refuse to give the National Archives many of his own official documents when he leaves office.`\
 https://nytimes.com/2026/04/02/us/politics/justice-department-trump-presidential-records.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7167467/2026/04/02/mammoth-vs-kraken-stream-how-to-
 **How to watch Predators vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Nashville Predators play the Los Angeles Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7167463/2026/04/02/predators-vs-kings-stream-how-to-watch-april-2/
-
-**How to watch Flames vs. Golden Knights: Time, TV, streaming**\
-`Find out how to watch the Calgary Flames play the Vegas Golden Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7167458/2026/04/02/flames-vs-golden-knights-stream-how-to-watch-april-2/
 

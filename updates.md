@@ -1,3 +1,7 @@
+**Former Patriots star CB Stephon Gilmore retiring after 13 seasons**\
+`Gilmore sealed the Patriots' Super Bowl 53 victory over the Rams to cap the 2018 season, then won Defensive Player of the Year in 2019.`\
+https://nytimes.com/athletic/7167529/2026/04/02/stephon-gilmore-retires-patriots-bills/
+
 **Justice Dept. Says Trump Doesn’t Need to Hand Over Presidential Records After Office**\
 `The opinion could set the stage for President Trump to refuse to give the National Archives many of his own official documents when he leaves office.`\
 https://nytimes.com/2026/04/02/us/politics/justice-department-trump-presidential-records.html
