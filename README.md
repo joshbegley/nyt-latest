@@ -34,7 +34,7 @@ https://nytimes.com/athletic/7165698/2026/04/02/chelsea-women-champions-league-s
 `Ohtani and the top of the Dodgers lineup have yet to find their offensive groove.`\
 https://nytimes.com/athletic/7165907/2026/04/02/dodgers-shohei-ohtani-offense-muncy-struggling/
 
-**The Only Thing Trump Is Missing in Cuba Is a Plan**\
+**Trump Isn’t Taking Cuba. He’s Starving It.**\
 `Starving Cubans does nothing to advance American interests.`\
 https://nytimes.com/2026/04/02/opinion/trump-cuba-oil-blockade.html
 
