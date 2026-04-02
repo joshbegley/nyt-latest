@@ -1,3 +1,11 @@
+**Phil Mickelson opts out of Masters due to 'personal health matter' with family**\
+`The 55-year-old golfer will join Tiger Woods in missing tournament, marking first time both will be absent from Augusta since 1994.`\
+https://nytimes.com/athletic/7167504/2026/04/02/phil-mickelson-masters-out-family-health/
+
+**If You Love a Great Restaurant Dupe, This One’s For You**\
+`Why wait in line when you can enjoy equally great food somewhere else?`\
+https://nytimes.com/2026/04/02/dining/if-you-love-a-great-restaurant-dupe-this-ones-for-you.html
+
 **Blanche, Trump’s Former Defense Lawyer, Steps In as Interim Attorney General**\
 `While it remains unclear how long Todd Blanche will stay in the job, whoever ends up taking over permanently will lead a department that he has shaped in his own image.`\
 https://nytimes.com/2026/04/02/us/politics/todd-blanche-interim-attorney-general-trump.html
