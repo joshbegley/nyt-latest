@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/7166864/2026/04/02/jack-grealish-everton-future-loan/
 
 **New Spurs coach De Zerbi responds to criticism over defence of Greenwood**\
-`A number of fan groups criticised the Italian over his public defence of Greenwood while at Marseille prior to his appointment by Spurs.`\
+`A number of fan groups criticised Spurs over the Italian's public defence of Greenwood while at Marseille.`\
 https://nytimes.com/athletic/7166861/2026/04/02/tottenham-de-zerbi-mason-greenwood-response/
 
 **Strong Storms Bring a Threat of Tornadoes on Thursday**\
