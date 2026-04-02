@@ -1,3 +1,7 @@
+**How FIFA used dynamic pricing to milk millions more out of 2026 World Cup tickets**\
+`Dynamic pricing has meant significant adjustment to World Cup ticket costs`\
+https://nytimes.com/athletic/7166874/2026/04/02/fifa-dynamic-pricing-2026-world-cup-tickets/
+
 **Russia Is Sending a Second Oil Tanker to Fuel-Starved Cuba**\
 `The announcement of a second shipment follows the arrival of a first oil tanker sent by the Kremlin earlier this week.`\
 https://nytimes.com/2026/04/02/world/americas/cuba-russia-oil-tanker.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7166409/2026/04/02/maple-leafs-mike-gillis-nhl/
 **Alabama AD says SEC title game has 'run its course' in expanded CFP era**\
 `Alabama AD Greg Byrne told USA Today the SEC should get rid of its conference title game amid debates about the Playoff's future.`\
 https://nytimes.com/athletic/7166799/2026/04/02/sec-championship-game-future-greg-byrne/
-
-**In a Holy Thursday Ritual, Pope Leo Returns to Tradition**\
-`Pope Francis washed and kissed the feet of prisoners and refugees. On Thursday, his successor performed the rite of humility and service for priests.`\
-https://nytimes.com/2026/04/02/world/europe/pope-leo-wash-feet-holy-thursday.html
 
