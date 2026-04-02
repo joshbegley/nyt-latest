@@ -1,3 +1,7 @@
+**After More Than 50 Years, Humans Depart Again for the Moon**\
+`With the Artemis II launch, NASA reignited its long-dormant ambitions for crewed lunar exploration.`\
+https://nytimes.com/2026/04/02/science/space/artemis-nasa-astronauts-moon-launch-photos.html
+
 **Iranian officials come out defiant after Trump’s war speech.**\
 `By Erika Solomon and Leily Nikounazar`\
 https://nytimes.com/live/2026/04/02/world/iran-war-trump-news/iranian-officials-come-out-defiant-after-trumps-war-speech
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7166233/2026/04/02/notre-dame-spring-practice-marcu
 **Alpine dismisses Colapinto-Gasly 'sabotage' claims, condemns abuse in open letter to fans**\
 `The team said that “any questions about sabotage or not giving Franco the same car are completely unfounded".`\
 https://nytimes.com/athletic/7166290/2026/04/02/alpine-open-letter-colapinto-gasly-sabotage/
-
-**Watching Mykhailo Mudryk train alone at Uxbridge FC**\
-`Whenever and wherever the Ukrainian can play professional football again, he looks determined to make sure he is ready`\
-https://nytimes.com/athletic/7165264/2026/04/02/mudryk-chelsea-uxbridge-fc-suspension-training/
 
