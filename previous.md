@@ -1,3 +1,7 @@
+**Word of the Day: parasol**\
+`This word has appeared in 13 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/04/02/learning/word-of-the-day-parasol.html
+
 **Chelsea's Champions League exit underlines the need for summer transition**\
 `After a difficult season and with senior players' contracts expiring, transfer dealings over the next few months will be hugely important`\
 https://nytimes.com/athletic/7165698/2026/04/02/chelsea-women-champions-league-summer-transition/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7163508/2026/04/02/arsenal-return-fa-cup-champions-
 **'Castellon's fans are as passionate as at Leeds – it's my dream to take them to La Liga'**\
 `Management has come sooner than expected the former Elland Road magician - but he explains to The Athletic how he's relishing the challenge`\
 https://nytimes.com/athletic/7161003/2026/04/02/pablo-hernandez-interview-leeds-castellon-la-liga/
-
-**Why Arsenal may need to show a bit more caution in the Champions League semi-finals**\
-`Chelsea may be out but they revealed some defensive weaknesses in the Arsenal team that future opponents may be able to exploit`\
-https://nytimes.com/athletic/7165326/2026/04/02/arsenal-chelsea-champions-league-tactics/
 

@@ -1,3 +1,7 @@
+**Word of the Day: parasol**\
+`This word has appeared in 13 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/04/02/learning/word-of-the-day-parasol.html
+
 **Chelsea's Champions League exit underlines the need for summer transition**\
 `After a difficult season and with senior players' contracts expiring, transfer dealings over the next few months will be hugely important`\
 https://nytimes.com/athletic/7165698/2026/04/02/chelsea-women-champions-league-summer-transition/
