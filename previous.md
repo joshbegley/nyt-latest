@@ -1,7 +1,3 @@
-**Trail Blazers fined $100,000 as assistant GMs suspended for NBA Draft violation**\
-`Assistant general managers Mike Schmitz and Sergi Oliva were suspended for two weeks after the Blazers self-reported the violations.`\
-https://nytimes.com/athletic/7165567/2026/04/01/portland-trail-blazers-assistant-gm-fined-suspended/
-
 **What Happened in the War in the Middle East on Wednesday.**\
 `Formidable strikes rocked Tehran early Wednesday morning. Iran launched what its state-aligned media called one of the largest attacks on Israel yet, damaging several cities.`\
 https://nytimes.com/2026/04/01/world/middleeast/what-happened-in-the-war-in-the-middle-east-on-wednesday.html
@@ -37,4 +33,8 @@ https://nytimes.com/2026/04/01/us/what-to-know-about-ted-bundy-serial-killer.htm
 **Phillies takeaways: Justin Crawford's walk-off, ABS strategy, Zack Wheeler update**\
 `The Phillies, among the oldest teams last season, have witnessed two magical moments from their youngest players in the past two games.`\
 https://nytimes.com/athletic/7165336/2026/04/01/phillies-takeaways-justin-crawford-zack-wheeler-rehab/
+
+**DNA Confirms Ted Bundy Killed Utah Teen in 1974, Investigators Say**\
+`Mr. Bundy had confessed to killing Laura Ann Aime before he was executed in 1989. Investigators said DNA testing provided conclusive proof.`\
+https://nytimes.com/2026/04/01/us/ted-bundy-utah-murder-confirmed.html
 
