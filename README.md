@@ -1,3 +1,15 @@
+**Nielsen leaves Japan 12 days after Asian Cup win, Kano to take charge of U.S. friendlies**\
+`The Japan Football Association (JFA) announced on Thursday Nielsen has stepped down upon the expiration of his contract.`\
+https://nytimes.com/athletic/7166137/2026/04/02/nils-nielsen-japan-resign/
+
+**Trump Administration Live Updates: House and Senate Could Take Up Bill to End D.H.S. Shutdown**\
+``\
+https://nytimes.com/live/2026/04/02/us/trump-news
+
+**Earthquake Rattles Northern California**\
+`A 4.6-magnitude quake struck near Boulder Creek, Calif., early Thursday.`\
+https://nytimes.com/2026/04/02/us/earthquake-california.html
+
 **How do UConn women's and men's Final Four teams stack up financially?**\
 `UConn women's and men's programs are considered powerhouses. Do they receive similar funding? `\
 https://nytimes.com/athletic/7165839/2026/04/02/uconn-women-men-march-madness-financial-nil-comparison/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7160771/2026/04/02/cleetus-mcfarland-garrett-mitche
 **NFL execs unfiltered on free agency: Thoughts on Maxx Crosby controversy and all AFC teams**\
 `Many around the league questioned the Bills, Dolphins and Steelers, while some were split on the Colts' and Broncos' big moves.`\
 https://nytimes.com/athletic/7165189/2026/04/02/nfl-free-agency-2026-afc-execs-best-worst/
-
-**Braylon Mullins' hometown, built on poetry and basketball, adds a Final Four to its lore**\
-`Greenfield, Ind., is known for the "Wet Tenderloin," the poet James Whitcomb Riley and, now, for being the home of Braylon Mullins. `\
-https://nytimes.com/athletic/7165157/2026/04/02/braylon-mullins-greenfield-indiana-uconn-final-four/
-
-**Fernando Mendoza's pro day, his way — and the Raiders caught it all on camera**\
-`On Wednesday, Mendoza erased any lingering doubts that he wouldn't be the NFL Draft's No. 1 pick.`\
-https://nytimes.com/athletic/7165570/2026/04/02/fernando-mendoza-pro-day-las-vegas-raiders/
-
-**For Jets, the 'promised land' is a word that begins with 'C' — not the one you're thinking of**\
-`The coach and general manager are growing closer and aiming for one thing from their Jets team in 2026: competence.`\
-https://nytimes.com/athletic/7165474/2026/04/02/aaron-glenn-darren-mougey-relationship-second-season/
 
