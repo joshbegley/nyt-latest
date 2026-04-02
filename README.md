@@ -1,40 +1,40 @@
-**Primetime Trump**\
-`We have takeaways from the president’s address to the nation.`\
-https://nytimes.com/2026/04/02/briefing/trump-primetime-address.html
+**Ranking Yankee Stadium's newest concessions, from dessert 'chicken' to fried mozzarella**\
+`The Yankees unveiled their new concession items for 2026 this week, and The Athletic was there to taste everything. Let's rank some food!`\
+https://nytimes.com/athletic/7161666/2026/04/02/yankee-stadium-food-beverage-concessions-ranking/
 
-**How an iconic Masters moment came to be, and has come to last**\
-`When Shota Hayafuji bowed to Augusta National Golf Course 5 years ago only one camera was there to notice it.`\
-https://nytimes.com/athletic/7165197/2026/04/02/masters-caddie-bow-hideki-matsuyama-shota-hayafuji/
+**Steph Curry knows a game-bending player when he sees it. And he sees it in Wemby**\
+`Curry spoke to The Athletic about the Spurs' young superstar becoming the next great basketball revolutionary.`\
+https://nytimes.com/athletic/7166070/2026/04/02/steph-curry-victor-wembanyama-interview-nba/
 
-**Tiger Woods withdraws from Ryder Cup captaincy race for 2027**\
-`The 50-year-old had been widely tipped to succeed Keegan Bradley in the role for Adare Manor in County Limerick, Ireland.`\
-https://nytimes.com/athletic/7166155/2026/04/02/tiger-woods-ryder-cup-captain/
+**TAFC: Let's argue over the World Cup favourites. Plus: Yamal denounces anti-Muslim chants, and a hair-pulling episode**\
+`In today's TAFC: Are France going to be the strongest team at the World Cup? And Yamal speaks out after hateful chants at a Spain match`\
+https://nytimes.com/athletic/7166091/2026/04/02/lets-argue-over-the-world-cup-favourites-plus-yamal-denounces-anti-muslim-chants-and-a-hair-pulling-episode/
 
-**The Pulse: Playoff pictures, two ways**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7164949/2026/04/02/nhl-nba-playoffs-the-pulse/
+**How to watch NIT semifinals: Auburn vs. Illinois St., New Mexico vs. Tulsa**\
+`The NIT is advancing to its final stages in Indianapolis. Here's how to watch Auburn and the other finalists take the floor in the semis.`\
+https://nytimes.com/athletic/7165230/2026/04/02/nit-semifinals-schedule-auburn-how-to-watch-2026/
 
-**Brain injury activist Shane Christie diagnosed with ‘high-stage’ CTE after taking own life**\
-`Before his death in August 2025, the former rugby union player had spoken publicly about the belief he was suffering from CTE.`\
-https://nytimes.com/athletic/7166174/2026/04/02/cte-shane-christie-brain-injury-activist/
+**The Lakers are the NBA's hottest team — except for the one they play up next**\
+`The Lakers have found something special over the last month. On Thursday, they'll find out if it can hold up. `\
+https://nytimes.com/athletic/7165207/2026/04/02/lakers-thunder-hot-nba-playoffs/
 
-**Why the Chiefs' Andy Reid says a role change contributed to Xavier Worthy's down season**\
-`Reid says there's a good reason to expect Worthy to have a bounce-back 2026 season. He also touched on the rest of the Chiefs' receivers.`\
-https://nytimes.com/athletic/7165035/2026/04/02/chiefs-xavier-worthy-andy-reid/
+**For Red Sox and Roman Anthony, Fenway opener is a 1-day pass from all that's gone wrong**\
+`For the Sox, the 1-5 start won't matter Friday. For Anthony, the slow start won't matter, either. But then comes the day after.`\
+https://nytimes.com/athletic/7165658/2026/04/02/red-sox-roman-anthony-home-opener/
 
-**What I learned about the Bengals at NFL league meetings**\
-`Shedding light on Jonathan Allen's upside, Katie Blackburn's absence, Joe Flacco's return and more.`\
-https://nytimes.com/athletic/7162085/2026/04/02/bengals-nfl-league-meeting/
+**Full circle after Hughes trade: Rossi, Buium, Öhgren return to Minnesota**\
+`On Thursday, Zeev Buium, Marco Rossi and Liam Öhgren will play their first game in Minnesota since being traded to the Canucks.`\
+https://nytimes.com/athletic/7164811/2026/04/02/wild-hughes-trade-rossi-buium-ohgren-return/
 
-**Projected landing spots for top NFL draft prospects and the fantasy football implications**\
-`Michael Salfino judges the fantasy football impact of consensus landing spots for the top skill position players in the upcoming NFL draft.`\
-https://nytimes.com/athletic/7164388/2026/04/02/fantasy-football-2026-top-nfl-draft-prospects-projected-landing-spots/
+**The decline of U.S. heavyweight boxing feels terminal. Can it be saved?**\
+`It is five years since an American owned a world title in the sport's most storied class but hope is not lost`\
+https://nytimes.com/athletic/7160783/2026/04/02/us-heavyweight-boxing-decline/
 
-**Ranking all 20 projected starters in the men's Final Four**\
-`Every Final Four starter makes significant positive contributions in their own ways. So what's the best way to sort out the true stars?`\
-https://nytimes.com/athletic/7164608/2026/04/02/mens-final-four-player-rankings-lendeborg-wagler/
+**College football transfer portal QB rankings: Darian Mensah, Sam Leavitt top the list**\
+`This ranking, updated since January, factors in the fit for each quarterback, not just their overall ability.`\
+https://nytimes.com/athletic/7149139/2026/04/02/college-football-transfer-portal-qb-rankings-mensah-leavitt/
 
-**16 Stats: The Canadiens' core looks Stanley Cup contender-worthy**\
-`There’s still work to be done around the edges, but the Canadiens are on the cusp of something special. Plus: big names and soaring offense.`\
-https://nytimes.com/athletic/7164561/2026/04/02/16-stats-canadiens-stanley-cup-contenders/
+**Why Conor Sheary is still a Rangers mainstay amid a recent rookie surge**\
+`After spending most of the 2024-25 season in the AHL, Sheary's motor and veteran presence have powered 55 games for the Rangers.`\
+https://nytimes.com/athletic/7165077/2026/04/02/conor-sheary-rangers-nhl-career-veteran-leadership/
 
