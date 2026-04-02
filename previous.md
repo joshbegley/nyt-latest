@@ -1,3 +1,11 @@
+**Key Justices Appear Skeptical of Limiting Birthright Citizenship**\
+`During a Supreme Court hearing on Wednesday, several justices expressed skepticism about the Trump administration’s efforts to bar children of undocumented immigrants born in the United States from automatically becoming Americans.`\
+https://nytimes.com/video/us/politics/100000010814848/supreme-court-birthright-trump-citizenship.html
+
+**When Will Artemis II Reach the Moon?**\
+`After orbiting Earth, the Orion capsule will carry the astronauts to the moon and arrive by Monday night.`\
+https://nytimes.com/2026/04/01/science/space/artemis-nasa-moon-how-long.html
+
 **Man Convicted of Aggravated Manslaughter in Police Officer’s Death**\
 `While the jury found Guy Rivera guilty in the death of Detective Jonathan Diller in 2024, they acquitted him of first-degree murder, the most serious charge he faced.`\
 https://nytimes.com/2026/04/01/nyregion/nypd-diller-rivera-murder-trial.html
@@ -27,14 +35,6 @@ https://nytimes.com/athletic/7165452/2026/04/01/houston-astros-jose-altuve-patie
 https://nytimes.com/live/2026/04/01/world/iran-war-trump-oil-news/trump-iran-war-speech
 
 **Medical Examiner Rules That a Rohingya Refugee’s Death Was a Homicide**\
-`An autopsy showed that the man suffered dehydration and hypothermia after Border Patrol agents dropped him off on a cold night in Buffalo.`\
+`An autopsy showed that the man suffered dehydration and hypothermia after Border Patrol agents dropped him off on a cold night in Buffalo. Gov. Kathy Hochul condemned their actions as cruel and inhumane.`\
 https://nytimes.com/2026/04/01/nyregion/rohingya-refugee-buffalo-homicide-medical-examiner.html
-
-**7.4-Magnitude Earthquake in Indonesia Raises Tsunami Alerts**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2026/04/01/world/asia/earthquake-indonesia-tsunami.html
-
-**Trump Laid Out Five Goals for the Iran War. Here’s Where They Stand.**\
-`The United States and Israel have done significant damage to Iran’s military capabilities. But Iran still fires missiles, has nuclear material and coordinates with militias in the region.`\
-https://nytimes.com/2026/04/01/us/politics/trump-goals-iran-war.html
 

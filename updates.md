@@ -1,3 +1,15 @@
+**Key Justices Appear Skeptical of Limiting Birthright Citizenship**\
+`During a Supreme Court hearing on Wednesday, several justices expressed skepticism about the Trump administration’s efforts to bar children of undocumented immigrants born in the United States from automatically becoming Americans.`\
+https://nytimes.com/video/us/politics/100000010814848/supreme-court-birthright-trump-citizenship.html
+
+**When Will Artemis II Reach the Moon?**\
+`After orbiting Earth, the Orion capsule will carry the astronauts to the moon and arrive by Monday night.`\
+https://nytimes.com/2026/04/01/science/space/artemis-nasa-moon-how-long.html
+
+**Medical Examiner Rules That a Rohingya Refugee’s Death Was a Homicide**\
+`An autopsy showed that the man suffered dehydration and hypothermia after Border Patrol agents dropped him off on a cold night in Buffalo. Gov. Kathy Hochul condemned their actions as cruel and inhumane.`\
+https://nytimes.com/2026/04/01/nyregion/rohingya-refugee-buffalo-homicide-medical-examiner.html
+
 **Man Convicted of Aggravated Manslaughter in Police Officer’s Death**\
 `While the jury found Guy Rivera guilty in the death of Detective Jonathan Diller in 2024, they acquitted him of first-degree murder, the most serious charge he faced.`\
 https://nytimes.com/2026/04/01/nyregion/nypd-diller-rivera-murder-trial.html
