@@ -1,3 +1,11 @@
+**Art Gallery Shows to See in April**\
+`This week in Newly Reviewed, Travis Diehl covers Pat Oleszko’s burlesque street theater, Paul Chan’s inflatables, David Armstrong’s calm curiosity and Torbjorn Rodland’s subtle awkwardness. `\
+https://nytimes.com/2026/04/02/arts/art-gallery-shows-to-see-in-april.html
+
+**Trump Hails Destruction of Iranian Bridge, Warning ‘More to Follow’**\
+`Fars, a semiofficial news agency, said eight people had been killed in the attack and dozens wounded.`\
+https://nytimes.com/2026/04/02/world/middleeast/trump-iran-bridge-strike.html
+
 **Former Patriots star CB Stephon Gilmore retiring after 13 seasons**\
 `Gilmore sealed the Patriots' Super Bowl 53 victory over the Rams to cap the 2018 season, then won Defensive Player of the Year in 2019.`\
 https://nytimes.com/athletic/7167529/2026/04/02/stephon-gilmore-retires-patriots-bills/

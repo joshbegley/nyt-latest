@@ -1,3 +1,11 @@
+**Art Gallery Shows to See in April**\
+`This week in Newly Reviewed, Travis Diehl covers Pat Oleszko’s burlesque street theater, Paul Chan’s inflatables, David Armstrong’s calm curiosity and Torbjorn Rodland’s subtle awkwardness. `\
+https://nytimes.com/2026/04/02/arts/art-gallery-shows-to-see-in-april.html
+
+**Trump Hails Destruction of Iranian Bridge, Warning ‘More to Follow’**\
+`Fars, a semiofficial news agency, said eight people had been killed in the attack and dozens wounded.`\
+https://nytimes.com/2026/04/02/world/middleeast/trump-iran-bridge-strike.html
+
 **Former Patriots star CB Stephon Gilmore retiring after 13 seasons**\
 `Gilmore sealed the Patriots' Super Bowl 53 victory over the Rams to cap the 2018 season, then won Defensive Player of the Year in 2019.`\
 https://nytimes.com/athletic/7167529/2026/04/02/stephon-gilmore-retires-patriots-bills/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7167337/2026/04/02/sophia-wilson-uswnt-return/
 **Exclusive: Quinn Hughes reflects on what led to the end of his Canucks tenure**\
 `Hughes, the former Canucks captain, will face off against Vancouver for the first time on Thursday.`\
 https://nytimes.com/athletic/7167018/2026/04/02/quinn-hughes-canucks-wild-exclusive/
-
-**How to watch Mammoth vs. Kraken: Time, TV, streaming**\
-`Find out how to watch the Utah Mammoth play the Seattle Kraken, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7167467/2026/04/02/mammoth-vs-kraken-stream-how-to-watch-april-2/
-
-**How to watch Predators vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Nashville Predators play the Los Angeles Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7167463/2026/04/02/predators-vs-kings-stream-how-to-watch-april-2/
 

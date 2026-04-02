@@ -1,3 +1,11 @@
+**The Best Raincoats for April Showers**\
+`A roundup of light jackets to keep you dry on wet spring days.`\
+https://nytimes.com/2026/04/02/t-magazine/best-raincoats-mens-jackets.html
+
+**Where will Audi Crooks go as a transfer after leaving Iowa State?**\
+`The center could make a splash at several programs. Where will she fit? `\
+https://nytimes.com/athletic/7167559/2026/04/02/audi-crooks-transfer-iowa-state/
+
 **Art Gallery Shows to See in April**\
 `This week in Newly Reviewed, Travis Diehl covers Pat Oleszko’s burlesque street theater, Paul Chan’s inflatables, David Armstrong’s calm curiosity and Torbjorn Rodland’s subtle awkwardness. `\
 https://nytimes.com/2026/04/02/arts/art-gallery-shows-to-see-in-april.html
@@ -22,19 +30,11 @@ https://nytimes.com/athletic/7167504/2026/04/02/phil-mickelson-masters-out-famil
 `Why wait in line when you can enjoy equally great food somewhere else?`\
 https://nytimes.com/2026/04/02/dining/if-you-love-a-great-restaurant-dupe-this-ones-for-you.html
 
-**Blanche, Trump’s Former Defense Lawyer, Steps In as Interim Attorney General**\
+**Blanche, Trump’s Former Defense Lawyer, Steps In as Acting Attorney General**\
 `While it remains unclear how long Todd Blanche will stay in the job, whoever ends up taking over permanently will lead a department that he has shaped in his own image.`\
-https://nytimes.com/2026/04/02/us/politics/todd-blanche-interim-attorney-general-trump.html
+https://nytimes.com/2026/04/02/us/politics/todd-blanche-attorney-general-trump.html
 
 **OpenAI Buys Streaming Show ‘TBPN,’ Aiming to Change Narrative on A.I.**\
 `OpenAI said the deal would help it “create a space for a real, constructive conversation about the changes A.I. creates.”`\
 https://nytimes.com/2026/04/02/technology/openai-buys-tbpn.html
-
-**Sophia Wilson back with USWNT: ‘I’m in a really great place right now’**\
-`The Portland Thorns forward is back with the national team after giving birth to her first child in September.`\
-https://nytimes.com/athletic/7167337/2026/04/02/sophia-wilson-uswnt-return/
-
-**Exclusive: Quinn Hughes reflects on what led to the end of his Canucks tenure**\
-`Hughes, the former Canucks captain, will face off against Vancouver for the first time on Thursday.`\
-https://nytimes.com/athletic/7167018/2026/04/02/quinn-hughes-canucks-wild-exclusive/
 
