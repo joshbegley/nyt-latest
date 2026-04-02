@@ -1,3 +1,7 @@
+**Wisconsin Universities Chief Defies Board’s Push for Resignation**\
+`Jay Rothman, the president of the state university system, said he had received no explanation for why regents want to oust him.`\
+https://nytimes.com/2026/04/02/us/wisconsin-universities-rothman-defies-board.html
+
 **The Best Raincoats for April Showers**\
 `A roundup of light jackets to keep you dry on wet spring days.`\
 https://nytimes.com/2026/04/02/t-magazine/best-raincoats-mens-jackets.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/02/dining/if-you-love-a-great-restaurant-dupe-this-o
 **Blanche, Trump’s Former Defense Lawyer, Steps In as Acting Attorney General**\
 `While it remains unclear how long Todd Blanche will stay in the job, whoever ends up taking over permanently will lead a department that he has shaped in his own image.`\
 https://nytimes.com/2026/04/02/us/politics/todd-blanche-attorney-general-trump.html
-
-**OpenAI Buys Streaming Show ‘TBPN,’ Aiming to Change Narrative on A.I.**\
-`OpenAI said the deal would help it “create a space for a real, constructive conversation about the changes A.I. creates.”`\
-https://nytimes.com/2026/04/02/technology/openai-buys-tbpn.html
 

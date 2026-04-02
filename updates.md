@@ -1,3 +1,15 @@
+**The Best Raincoats for April Showers**\
+`A roundup of light jackets to keep you dry on wet spring days.`\
+https://nytimes.com/2026/04/02/t-magazine/best-raincoats-mens-jackets.html
+
+**Where will Audi Crooks go as a transfer after leaving Iowa State?**\
+`The center could make a splash at several programs. Where will she fit? `\
+https://nytimes.com/athletic/7167559/2026/04/02/audi-crooks-transfer-iowa-state/
+
+**Blanche, Trump’s Former Defense Lawyer, Steps In as Acting Attorney General**\
+`While it remains unclear how long Todd Blanche will stay in the job, whoever ends up taking over permanently will lead a department that he has shaped in his own image.`\
+https://nytimes.com/2026/04/02/us/politics/todd-blanche-attorney-general-trump.html
+
 **Art Gallery Shows to See in April**\
 `This week in Newly Reviewed, Travis Diehl covers Pat Oleszko’s burlesque street theater, Paul Chan’s inflatables, David Armstrong’s calm curiosity and Torbjorn Rodland’s subtle awkwardness. `\
 https://nytimes.com/2026/04/02/arts/art-gallery-shows-to-see-in-april.html
