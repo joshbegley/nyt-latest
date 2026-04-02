@@ -1,3 +1,11 @@
+**The Pulse: Playoff pictures, two ways**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7164949/2026/04/02/nhl-nba-playoffs-the-pulse/
+
+**Brain injury activist Shane Christie diagnosed with ‘high-stage’ CTE after taking own life**\
+`Before his death in August 2025, the former rugby union player had spoken publicly about the belief he was suffering from CTE.`\
+https://nytimes.com/athletic/7166174/2026/04/02/cte-shane-christie-brain-injury-activist/
+
 **Why the Chiefs' Andy Reid says a role change contributed to Xavier Worthy's down season**\
 `Reid says there's a good reason to expect Worthy to have a bounce-back 2026 season. He also touched on the rest of the Chiefs' receivers.`\
 https://nytimes.com/athletic/7165035/2026/04/02/chiefs-xavier-worthy-andy-reid/
