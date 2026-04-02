@@ -1,3 +1,11 @@
+**New Jersey 11th Congressional District Special Election 2026: Latest Polls**\
+`Track the latest polls in New Jersey's 11th Congressional District special election.`\
+https://nytimes.com/interactive/polls/new-jersey-us-house-11-special-polls-2026.html
+
+**Bad, Very Bad and Much Worse: Pick a Forecast for the War and Economy**\
+`A merely bad outlook might be good enough for the markets, our columnist says.`\
+https://nytimes.com/2026/04/02/business/iran-war-economy-stocks-bonds.html
+
 **Caja-Rural’s Jaume Guardeno in intensive care after training collision with car**\
 `The 23-year-old finished 14th at last year’s Vuelta a Espana in a highly promising first Grand Tour.`\
 https://nytimes.com/athletic/7166527/2026/04/02/jaume-guardeno-intensive-care-cycling/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7086984/2026/04/02/kirk-cousins-raiders-nfl-free-ag
 **After More Than 50 Years, Humans Depart Again for the Moon**\
 `With the Artemis II launch, NASA reignited its long-dormant ambitions for crewed lunar exploration.`\
 https://nytimes.com/2026/04/02/science/space/artemis-nasa-astronauts-moon-launch-photos.html
-
-**Iranian officials come out defiant after Trump’s war speech.**\
-`By Erika Solomon and Leily Nikounazar`\
-https://nytimes.com/live/2026/04/02/world/iran-war-trump-news/iranian-officials-come-out-defiant-after-trumps-war-speech
-
-**Frank Nazar is ending the season how he started it: 10 Blackhawks thoughts**\
-`There is a noticeable difference in Nazar when he's rolling. The confidence is unmistakable.`\
-https://nytimes.com/athletic/7165853/2026/04/02/blackhawks-frank-nazar-10-thoughts/
 

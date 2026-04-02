@@ -1,3 +1,11 @@
+**Caja-Rural’s Jaume Guardeno in intensive care after training collision with car**\
+`The 23-year-old finished 14th at last year’s Vuelta a Espana in a highly promising first Grand Tour.`\
+https://nytimes.com/athletic/7166527/2026/04/02/jaume-guardeno-intensive-care-cycling/
+
+**Rapper J. Cole to join Chinese pro basketball team**\
+`Cole played high school basketball in Fayetteville, N.C., and attempted to play college ball at St. John’s as a walk-on. `\
+https://nytimes.com/athletic/7166009/2026/04/02/j-cole-basketball-china/
+
 **Italian Football Federation chief resigns after World Cup failure**\
 `Tuesday's defeat by Bosnia and Herzegovina means Italy have failed to qualify for the last three men's World Cups.`\
 https://nytimes.com/athletic/7163681/2026/04/02/italy-world-cup-gravina-gattuso/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/04/02/world/iran-war-trump-news/iranian-officials-
 **Frank Nazar is ending the season how he started it: 10 Blackhawks thoughts**\
 `There is a noticeable difference in Nazar when he's rolling. The confidence is unmistakable.`\
 https://nytimes.com/athletic/7165853/2026/04/02/blackhawks-frank-nazar-10-thoughts/
-
-**Tesla Sales Rise as $4-a-Gallon Gas Revives Interest in E.V.s**\
-`The repeal of tax credits last year sent electric vehicle sales plummeting. But with gas prices soaring, consumers are taking another, cautious, look.`\
-https://nytimes.com/2026/04/02/business/tesla-sales-electric-vehicles.html
-
-**LOVB SF adds owners, including Steve Kerr, Julie Foudy, Lexi Hull, Holly Rowe**\
-`The pro volleyball franchise adds nearly three dozen to its ownership group, continuing LOVB's wider surge in team investment.`\
-https://nytimes.com/athletic/7166396/2026/04/02/lovb-sf-steve-kerr-lexi-hull-julie-foudy/
 

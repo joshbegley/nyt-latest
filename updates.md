@@ -1,3 +1,11 @@
+**Caja-Rural’s Jaume Guardeno in intensive care after training collision with car**\
+`The 23-year-old finished 14th at last year’s Vuelta a Espana in a highly promising first Grand Tour.`\
+https://nytimes.com/athletic/7166527/2026/04/02/jaume-guardeno-intensive-care-cycling/
+
+**Rapper J. Cole to join Chinese pro basketball team**\
+`Cole played high school basketball in Fayetteville, N.C., and attempted to play college ball at St. John’s as a walk-on. `\
+https://nytimes.com/athletic/7166009/2026/04/02/j-cole-basketball-china/
+
 **Italian Football Federation chief resigns after World Cup failure**\
 `Tuesday's defeat by Bosnia and Herzegovina means Italy have failed to qualify for the last three men's World Cups.`\
 https://nytimes.com/athletic/7163681/2026/04/02/italy-world-cup-gravina-gattuso/
