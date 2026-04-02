@@ -22,6 +22,10 @@ https://nytimes.com/2026/04/02/nyregion/laguardia-air-canada-investigation.html
 `"We think that Fanatics can help us really bring in new fans into the NFL," says NFL senior VP of licensing Casey Collins.`\
 https://nytimes.com/athletic/7166306/2026/04/02/fanatics-nfl-topps-chrome-football-cards/
 
+**Thierry Henry: What it's like to win a World Cup, lose a World Cup, and coach at one**\
+`Henry has experienced World Cups from every angle. He won it in 1998 and was a runner-up in 2006, and coached Belgium in 2018 and 2022`\
+https://nytimes.com/athletic/7165223/2026/04/02/thierry-henry-2026-world-cup-interview-france/
+
 **New Jersey 11th Congressional District Special Election 2026: Latest Polls**\
 `Track the latest polls in New Jersey's 11th Congressional District special election.`\
 https://nytimes.com/interactive/polls/new-jersey-us-house-11-special-polls-2026.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/02/business/iran-war-economy-stocks-bonds.html
 **Caja-Rural’s Jaume Guardeno in intensive care after training collision with car**\
 `The 23-year-old finished 14th at last year’s Vuelta a Espana in a highly promising first Grand Tour.`\
 https://nytimes.com/athletic/7166527/2026/04/02/jaume-guardeno-intensive-care-cycling/
-
-**Rapper J. Cole to join Chinese pro basketball team**\
-`Cole played high school basketball in Fayetteville, N.C., and attempted to play college ball at St. John’s as a walk-on. `\
-https://nytimes.com/athletic/7166009/2026/04/02/j-cole-basketball-china/
 

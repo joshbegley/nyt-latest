@@ -1,3 +1,7 @@
+**Thierry Henry: What it's like to win a World Cup, lose a World Cup, and coach at one**\
+`Henry has experienced World Cups from every angle. He won it in 1998 and was a runner-up in 2006, and coached Belgium in 2018 and 2022`\
+https://nytimes.com/athletic/7165223/2026/04/02/thierry-henry-2026-world-cup-interview-france/
+
 **Danish Shows to Watch While We’re Still at Peace**\
 `The protector of Greenland also makes very entertaining TV.`\
 https://nytimes.com/2026/04/02/arts/television/danish-shows-to-watch-streaming.html
