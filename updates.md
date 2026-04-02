@@ -1,3 +1,11 @@
+**Iowa State star Audi Crooks to enter transfer portal**\
+`The 6-foot-3 All-American led the Big 12 in scoring each of the past two seasons.`\
+https://nytimes.com/athletic/7166788/2026/04/02/iowa-state-audi-crooks-transfer-portal/
+
+**Falcons unveil new uniforms with red home jerseys**\
+`The Falcons' new uniforms feature red tops that will be the primary home jerseys, replacing the black ones that have been worn since 2020.`\
+https://nytimes.com/athletic/7166485/2026/04/02/atlanta-falcons-new-uniforms-red-jerseys/
+
 **Robert Pattinson and Zendaya on Love’s Warning Signs**\
 `Robert Pattinson and Zendaya, stars of the film “The Drama,” discuss knowing whether a relationship is right with the “Modern Love” host, Anna Martin.`\
 https://nytimes.com/video/podcasts/100000010817863/robert-pattinson-and-zendaya-on-loves-warning-signs.html

@@ -22,7 +22,7 @@ https://nytimes.com/athletic/7166820/2026/04/02/canadiens-vs-rangers-stream-how-
 `Find out how to watch the Columbus Blue Jackets play the Carolina Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7166814/2026/04/02/blue-jackets-vs-hurricanes-stream-how-to-watch-april-2/
 
-**Tina Peters, Colorado Election Denier, Will Have Prison Sentence Reconsidered**\
+**Tina Peters, Colorado Election Denier, Has Prison Sentence Overturned**\
 `Ms. Peters, a former county clerk, received a nine-year sentence after being convicted of tampering with voting machines. An appeals court overturned the sentence but did not immediately free her from prison.`\
 https://nytimes.com/2026/04/02/us/politics/tina-peters-prison-sentence-trump.html
 
