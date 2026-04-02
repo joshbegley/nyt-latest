@@ -1,3 +1,7 @@
+**Submit your questions for Jeremy Rutherford’s St. Louis Blues mailbag**\
+`Have a question about the Blues? Submit it here and The Athletic’s Jeremy Rutherford will address a selection in his upcoming mailbag.`\
+https://nytimes.com/athletic/7167679/2026/04/02/blues-mailbag-jeremy-rutherford-april-2026/
+
 **Victor Wembanyama sends message to Artemis II astronauts on NASA stream**\
 `Wembanyama has shown interest in aeronautical science and cosmology, visiting NASA’s Johnson Space Center in Houston last offseason.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7167529/2026/04/02/stephon-gilmore-retires-patriots
 **Justice Dept. Says Trump Doesn’t Need to Hand Over Presidential Records After Office**\
 `The opinion could set the stage for President Trump to refuse to give the National Archives many of his own official documents when he leaves office.`\
 https://nytimes.com/2026/04/02/us/politics/justice-department-trump-presidential-records.html
-
-**Phil Mickelson opts out of Masters due to 'personal health matter' with family**\
-`The 55-year-old golfer will join Tiger Woods in missing tournament, marking first time since 1994 both will be absent from Augusta.`\
-https://nytimes.com/athletic/7167504/2026/04/02/phil-mickelson-masters-out-family-health/
 
