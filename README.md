@@ -1,3 +1,11 @@
+**How an iconic Masters moment came to be, and has come to last**\
+`When Shota Hayafuji bowed to Augusta National Golf Course 5 years ago only one camera was there to notice it.`\
+https://nytimes.com/athletic/7165197/2026/04/02/masters-caddie-bow-hideki-matsuyama-shota-hayafuji/
+
+**Tiger Woods withdraws from Ryder Cup captaincy race for 2027**\
+`The 50-year-old had been widely tipped to succeed Keegan Bradley in the role for Adare Manor in County Limerick, Ireland.`\
+https://nytimes.com/athletic/7166155/2026/04/02/tiger-woods-ryder-cup-captain/
+
 **The Pulse: Playoff pictures, two ways**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7164949/2026/04/02/nhl-nba-playoffs-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7164561/2026/04/02/16-stats-canadiens-stanley-cup-c
 **Exclusive: Nylander wants to stick with the Leafs – if they retool**\
 `Even after Brad Treliving's firing and an uncertain future at the top of the organization, Nylander still wants to win with the Leafs.`\
 https://nytimes.com/athletic/7165619/2026/04/02/william-nylander-maple-leafs-future-retool-pelley-treliving/
-
-**2026 NHL prospect pool rankings: No. 8 Philadelphia Flyers**\
-`The Flyers have multiple solid prospects at center and on defense, plus a star on the wing and in net.`\
-https://nytimes.com/athletic/7141031/2026/04/02/philadelphia-flyers-nhl-prospect-rankings-2026/
-
-**How the Canucks stunned the Avalanche in the biggest upset of the season**\
-`Right from the beginning, the Canucks seized the initiative in a roller-coaster 8-6 victory, scoring on their first shift.`\
-https://nytimes.com/athletic/7165940/2026/04/02/canucks-stun-avalanche-upset-score-nhl/
 
