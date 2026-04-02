@@ -1,3 +1,7 @@
+**Why the Chiefs' Andy Reid says a role change contributed to Xavier Worthy's down season**\
+`Reid says there's a good reason to expect Worthy to have a bounce-back 2026 season. He also touched on the rest of the Chiefs' receivers.`\
+https://nytimes.com/athletic/7165035/2026/04/02/chiefs-xavier-worthy-andy-reid/
+
 **What I learned about the Bengals at NFL league meetings**\
 `Shedding light on Jonathan Allen's upside, Katie Blackburn's absence, Joe Flacco's return and more.`\
 https://nytimes.com/athletic/7162085/2026/04/02/bengals-nfl-league-meeting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7164570/2026/04/02/atlanta-falcons-nfl-draft-2026-i
 **Big expectations are returning to Wrigley Field, and now the Cubs must deliver**\
 `As an organization, the Cubs are past the point of wondering if one loss to a bad team in April could be the difference for the playoffs.`\
 https://nytimes.com/athletic/7165535/2026/04/02/chicago-cubs-expectations-urgency-homestand/
-
-**Geno Auriemma gave a viral answer about body language. He stands by it 10 years later**\
-`“We put a huge premium on body language,” Auriemma said. “And if your body language is bad, you will never get in the game. Ever."`\
-https://nytimes.com/athletic/7165313/2026/04/02/geno-auriemma-body-language-leadership/
 

@@ -1,3 +1,7 @@
+**Why the Chiefs' Andy Reid says a role change contributed to Xavier Worthy's down season**\
+`Reid says there's a good reason to expect Worthy to have a bounce-back 2026 season. He also touched on the rest of the Chiefs' receivers.`\
+https://nytimes.com/athletic/7165035/2026/04/02/chiefs-xavier-worthy-andy-reid/
+
 **What I learned about the Bengals at NFL league meetings**\
 `Shedding light on Jonathan Allen's upside, Katie Blackburn's absence, Joe Flacco's return and more.`\
 https://nytimes.com/athletic/7162085/2026/04/02/bengals-nfl-league-meeting/

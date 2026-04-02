@@ -1,3 +1,11 @@
+**The Pulse: Playoff pictures, two ways**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7164949/2026/04/02/nhl-nba-playoffs-the-pulse/
+
+**Brain injury activist Shane Christie diagnosed with ‘high-stage’ CTE after taking own life**\
+`Before his death in August 2025, the former rugby union player had spoken publicly about the belief he was suffering from CTE.`\
+https://nytimes.com/athletic/7166174/2026/04/02/cte-shane-christie-brain-injury-activist/
+
 **Why the Chiefs' Andy Reid says a role change contributed to Xavier Worthy's down season**\
 `Reid says there's a good reason to expect Worthy to have a bounce-back 2026 season. He also touched on the rest of the Chiefs' receivers.`\
 https://nytimes.com/athletic/7165035/2026/04/02/chiefs-xavier-worthy-andy-reid/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7141031/2026/04/02/philadelphia-flyers-nhl-prospect
 **How the Canucks stunned the Avalanche in the biggest upset of the season**\
 `Right from the beginning, the Canucks seized the initiative in a roller-coaster 8-6 victory, scoring on their first shift.`\
 https://nytimes.com/athletic/7165940/2026/04/02/canucks-stun-avalanche-upset-score-nhl/
-
-**How the Falcons plan to approach the 2026 draft ... then change everything for 2027**\
-`The Falcons are set to have five draft picks this year, but general manager Ian Cunningham would still like to add more.`\
-https://nytimes.com/athletic/7164570/2026/04/02/atlanta-falcons-nfl-draft-2026-ian-cunningham/
-
-**Big expectations are returning to Wrigley Field, and now the Cubs must deliver**\
-`As an organization, the Cubs are past the point of wondering if one loss to a bad team in April could be the difference for the playoffs.`\
-https://nytimes.com/athletic/7165535/2026/04/02/chicago-cubs-expectations-urgency-homestand/
 
