@@ -1,3 +1,11 @@
+**How Trump Boxed Himself In on Iran**\
+`President Trump faces the possibility that at the end of his own two-to-three week window for wrapping up the war in Iran, nothing much will have changed.`\
+https://nytimes.com/2026/04/02/us/politics/trump-speech-iran-war-whats-next.html
+
+**Former MLB pitcher Trevor Bauer signs with Long Island Ducks**\
+`Bauer will make the Opening Day start for the Atlantic League team on April 21. `\
+https://nytimes.com/athletic/7167097/2026/04/02/trevor-bauer-signing-long-island-ducks/
+
 **Pope Leo Washes Feet of 12 Roman Priests on Holy Thursday**\
 `Returning to tradition, Pope Leo XIV performed the rite of humility and service for priests during an afternoon Mass at the Basilica of St. John Lateran.`\
 https://nytimes.com/video/world/europe/100000010817852/pope-leo-holy-thursday-ritual.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7167162/2026/04/02/blackhawks-vs-oilers-stream-how-
 **How to watch Canucks vs. Wild: Time, TV, streaming**\
 `Find out how to watch the Vancouver Canucks play the Minnesota Wild, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7167160/2026/04/02/canucks-vs-wild-stream-how-to-watch-april-2/
-
-**Cade Cunningham still out with injury, will be ineligible for NBA awards**\
-`Cunningham remains out for the Pistons' game against the Timberwolves on Thursday night.`\
-https://nytimes.com/athletic/7166877/2026/04/02/cade-cunningham-injury-update-pistons/
-
-**War Clarifies Trump’s Spending Priorities: The Military, Not Child Care**\
-`As the White House prepares to release its 2027 budget, President Trump said military protection, not social programs, took precedence.`\
-https://nytimes.com/2026/04/02/us/politics/trump-military-spending-budget.html
 
