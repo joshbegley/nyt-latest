@@ -1,40 +1,40 @@
-**Here’s the latest.**\
-`By Zolan Kanno-Youngs and Yan Zhuang`\
-https://nytimes.com/live/2026/04/02/world/iran-war-trump-news/heres-the-latest
+**How a Sapling and a Viral Candy Made California the World’s Pistachio King**\
+`Iran was once the world’s largest exporter of the nut. But years of trade embargoes and conflict have allowed the United States to steal its market share.`\
+https://nytimes.com/interactive/2026/04/02/business/california-pistachios-iran-war-dubai-chocolate.html
 
-**Iran War Live Updates: Gulf Nations and Israel Face New Attacks After Trump Claims Military Success**\
-`President Trump said the United States would hit Iran “extremely hard” over the next two to three weeks. He said the war was already a success but did not offer a concrete exit timeline.`\
-https://nytimes.com/live/2026/04/02/world/iran-war-trump-news
+**Solve the April Bonus Puzzle**\
+`This month’s national park themed grid was constructed by Matthew Stock.`\
+https://nytimes.com/2026/04/02/crosswords/bonus-puzzle-national-parks.html
 
-**Desi Lydic Would Like Trump to Take a Hint**\
-`“Might I suggest: If the ballroom starts experiencing ballistic assault, maybe we just cancel the ball?” she said on “The Daily Show.”`\
-https://nytimes.com/2026/04/02/arts/television/late-night-trump-ballroom.html
+**Harry Styles Is the Sound of Spring**\
+`He’s given us the breezy, dance-y album of the season.`\
+https://nytimes.com/2026/04/02/podcasts/harry-styles-is-the-sound-of-spring.html
 
-**New York Is a Hot Spot for Alpha-Gal. Why Doesn’t the State Track Cases?**\
-`In more than 10 states, laboratories or doctors must notify the state health authorities of each positive test for a marker of the syndrome.`\
-https://nytimes.com/2026/04/02/nyregion/alpha-gal-new-york-state-does-not-count.html
+**What Do You Do When a Family Member Commits a Terrible Crime?**\
+`The columnist M. Gessen sits down with the writer Harriet Clark to talk through the complexity of maintaining relationships with family members who have done unthinkable things.`\
+https://nytimes.com/2026/04/02/opinion/serial-the-idiot-family-prison.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/04/02/crosswords/spelling-bee-forum.html
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are four-bedroom homes in East Hampton, N.Y., and Mahwah, N.J.`\
+https://nytimes.com/2026/04/02/realestate/housing-market-near-nyc.html
 
-**Konate's Liverpool future and contract talks: What we're hearing**\
-`The French defender is nearing the end of his deal, so what is the situation as it stands?`\
-https://nytimes.com/athletic/7163885/2026/04/02/ibrahima-konate-liverpool-contract-talks-future/
+**Homes for Sale in Manhattan and Brooklyn**\
+`This week’s properties are a studio in Murray Hill, and one bedroom apartments in Midtown and Carroll Gardens.`\
+https://nytimes.com/2026/04/02/realestate/housing-market-nyc.html
 
-**Word of the Day: parasol**\
-`This word has appeared in 13 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/04/02/learning/word-of-the-day-parasol.html
+**Worried About A.I. Taking Your Job? That’s Not Very ‘Agentic’ of You.**\
+`Today’s spin on the idea of personal agency is convenient for tech C.E.O.s, who boast that their models work just fine without us.`\
+https://nytimes.com/2026/04/02/magazine/agentic-ai-agency-tech.html
 
-**Chelsea's Champions League exit underlines the need for summer transition**\
-`After a difficult season and with senior players' contracts expiring, transfer dealings over the next few months will be hugely important`\
-https://nytimes.com/athletic/7165698/2026/04/02/chelsea-women-champions-league-summer-transition/
+**The Unlikely TV Show Restoring Everyone’s Faith in Dating**\
+`Without exploitation, “Love on the Spectrum” captures the triumphs and travails of dating. It has become one of Netflix’s most popular shows.`\
+https://nytimes.com/2026/04/02/magazine/love-spectrum-reality-dating-show.html
 
-**What I'm seeing from Dodgers' first homestand: Shohei Ohtani, struggling offense and more**\
-`Ohtani and the top of the Dodgers lineup have yet to find their offensive groove.`\
-https://nytimes.com/athletic/7165907/2026/04/02/dodgers-shohei-ohtani-offense-muncy-struggling/
+**Louis Vuitton, Gucci, Prada … Meta?**\
+`Get ready for the return of wearables and a new stage in the fashion-tech relationship.`\
+https://nytimes.com/2026/04/02/style/meta-lab-smartglasses-wearables.html
 
-**Trump Isn’t Taking Cuba. He’s Starving It.**\
-`Starving Cubans does nothing to advance American interests.`\
-https://nytimes.com/2026/04/02/opinion/trump-cuba-oil-blockade.html
+**36 Hours in Queenstown, New Zealand**\
+`An adventure town famous for madcap thrills is offering something relatively radical — relaxation.`\
+https://nytimes.com/interactive/2026/04/02/travel/things-to-do-queenstown.html
 
