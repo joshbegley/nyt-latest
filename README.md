@@ -1,3 +1,11 @@
+**Giants drop finale to Padres, but Matt Chapman's viral mound moment blows over**\
+`Chapman's ire didn't look great, but it would be overstating the moment to say manager Tony Vitello had a controversy on his hands.`\
+https://nytimes.com/athletic/7165768/2026/04/01/giants-padres-matt-chapman-viral/
+
+**Oil Prices Jump and Stocks Drop After Trump’s White House Speech**\
+`President Trump claimed in a White House address that the war on Iran was “nearing completion” but made no new announcements about the conflict.`\
+https://nytimes.com/2026/04/01/business/oil-stocks-gasoline-prices-iran-trump.html
+
 **Some rejoiced in NASA’s return to the moon. Others had a regular Wednesday.**\
 `Space enthusiasts watched with awe and joy as a massive rocket roared into space on the first crewed flight to the moon in more than 50 years. Other Americans were detached, or oblivious.`\
 https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/people-watch-moon-flight
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/01/us/trump-kill-threats-fbi-sword.html
 **U.S. Lifts Sanctions on Venezuela’s New Leader**\
 `Removing sanctions would allow Delcy Rodríguez, the country’s acting leader, to conduct business with U.S. companies and potentially meet with President Trump.`\
 https://nytimes.com/2026/04/01/us/politics/us-lifts-sanctions-rodriguez.html
-
-**Eugene Mirman, ‘Bob’s Burgers’ Voice Actor, Seriously Injured in Car Crash**\
-`Mr. Mirman crashed his car on Tuesday in New Hampshire. He remains hospitalized with serious but non-life-threatening injuries.`\
-https://nytimes.com/2026/04/01/us/eugene-mirman-car-crash-bobs-burgers.html
-
-**Puka Nacua checks into facility, 'takes responsibility for his well-being'**\
-`The Rams star checked into the facility in early March and will remain there until he completes the program ahead of OTAs, his lawyer says.`\
-https://nytimes.com/athletic/7165555/2026/04/01/puka-nacua-rehab-rams-allegations/
 
