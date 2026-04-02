@@ -1,3 +1,7 @@
+**Johnson Wavers on Ending the Shutdown, Reflecting His Weak Hold on Power**\
+`The House speaker first panned, then endorsed, then punted on, then pitched and now is delaying a bill to reopen the Homeland Security Department, showing his vulnerability in the face of party rifts.`\
+https://nytimes.com/2026/04/02/us/elections/mike-johnson-shutdown-power.html
+
 **Macron Voices Europe’s Frustration With Trump as Fighting Rages and Missiles Fly**\
 `President Emmanuel Macron of France expressed disapproval about President Trump’s handling of the war against Iran on Thursday, chastising him for speaking cavalierly in a speech.`\
 https://nytimes.com/2026/04/02/world/middleeast/iran-war-trump-strait.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/02/travel/jetblue-checked-bag-fees.html
 **Biruté Galdikas, 79, Who Worked to Save Wild Orangutans in Borneo, Dies**\
 `With Jane Goodall and Dian Fossey, she was one of three prominent researchers of great apes who were sometimes called the “trimates.”`\
 https://nytimes.com/2026/04/02/science/earth/birute-galdikas-dead.html
-
-**Hershey’s Promises to Use Only Real Chocolate After Backlash**\
-`The change follows weeks of complaints from a grandson of the Reese’s Peanut Butter Cup inventor and other vocal consumers.`\
-https://nytimes.com/2026/04/02/business/hershey-reeses-recipe-real-chocolate.html
 
