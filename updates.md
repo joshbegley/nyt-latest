@@ -1,3 +1,11 @@
+**Trump Says Opening the Strait of Hormuz ‘Should Be Easy.’ Will It?**\
+`President Trump is asking U.S. allies to “go to” the Strait of Hormuz “and just take it.” Eric Schmitt, our national security correspondent, explains how difficult it would be to clear the strait by force.`\
+https://nytimes.com/video/us/politics/100000010806526/trump-iran-strait-of-hormuz.html
+
+**Hegseth Fires Army Chief Amid Battle With Its Leaders**\
+`Senior Army officers reacted with anger and frustration to news of Gen. Randy George’s dismissal, characterizing it as the latest blow to the service.`\
+https://nytimes.com/2026/04/02/us/politics/hegseth-fires-general-randy-george.html
+
 **After a long Wednesday, NASA launched its mission back to the moon.**\
 `By Katrina Miller`\
 https://nytimes.com/live/2026/04/02/science/artemis-nasa-moon-astronauts/wednesday-nasa-moon-recap
