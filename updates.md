@@ -1,3 +1,11 @@
+**Red Sox lose fifth straight, fall to 1-5 after 'embarrassing' road trip**\
+`Trevor Story and Masataka Yoshida went 0-for-8 in the two- and three-holes and Caleb Durbin is searching for his first hit of the year.`\
+https://nytimes.com/athletic/7165379/2026/04/01/red-sox-1-5-takeaways-alex-cora/
+
+**NBA fines Trail Blazers $100,000, suspends assistant GMs for draft violation**\
+`Mike Schmitz and Sergi Oliva were suspended after Portland self-reported that they had illegal contact with Yang Hansen before drafting him.`\
+https://nytimes.com/athletic/7165567/2026/04/01/portland-trail-blazers-assistant-gm-fined-suspended/
+
 **NBA fines Trail Blazers $100,000, suspends assistant GMs for draft violation**\
 `Assistant general managers Mike Schmitz and Sergi Oliva were suspended for two weeks after the Blazers self-reported the violations.`\
 https://nytimes.com/athletic/7165567/2026/04/01/portland-trail-blazers-assistant-gm-fined-suspended/

@@ -1,3 +1,7 @@
+**Man Convicted of Aggravated Manslaughter in Police Officer’s Death**\
+`While the jury found Guy Rivera guilty in the death of Detective Jonathan Diller in 2024, they acquitted him of first-degree murder, the most serious charge he faced.`\
+https://nytimes.com/2026/04/01/nyregion/nypd-diller-rivera-murder-trial.html
+
 **Red Sox lose fifth straight, fall to 1-5 after 'embarrassing' road trip**\
 `Trevor Story and Masataka Yoshida went 0-for-8 in the two- and three-holes and Caleb Durbin is searching for his first hit of the year.`\
 https://nytimes.com/athletic/7165379/2026/04/01/red-sox-1-5-takeaways-alex-cora/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/04/01/world/asia/earthquake-indonesia-tsuna
 **Trump Laid Out Five Goals for the Iran War. Here’s Where They Stand.**\
 `The United States and Israel have done significant damage to Iran’s military capabilities. But Iran still fires missiles, has nuclear material and coordinates with militias in the region.`\
 https://nytimes.com/2026/04/01/us/politics/trump-goals-iran-war.html
-
-**What to Know About Ted Bundy, the Notorious Serial Killer**\
-`On Wednesday, the authorities said DNA evidence had linked Mr. Bundy, who was executed in 1989, to the murder of a 17-year-old Utah girl in 1974.`\
-https://nytimes.com/2026/04/01/us/what-to-know-about-ted-bundy-serial-killer.html
 
