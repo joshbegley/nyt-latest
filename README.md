@@ -1,3 +1,11 @@
+**With Alperen Şengün ascending, Rockets look ready to launch for playoffs**\
+`Time off has helped Şengün return to his best self, and the two-man game between him and Kevin Durant is thriving.`\
+https://nytimes.com/athletic/7166047/2026/04/02/alperen-sengun-rockets-kevin-durant-playoffs/
+
+**The Age-Old Obsession With Living Forever**\
+`Biohackers like Bryan Johnson seem to want to live forever. What would that be like? A London exhibition offers some thoughts.`\
+https://nytimes.com/2026/04/02/arts/design/the-coming-of-age-wellcome-collection.html
+
 **Midway through Notre Dame spring practice, what's on Marcus Freeman's mind?**\
 `As complete as his roster looks, Freeman will keep poking and prodding the team as the calendar flips to April, with the spring game ahead.`\
 https://nytimes.com/athletic/7166233/2026/04/02/notre-dame-spring-practice-marcus-freeman-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/02/learning/would-you-want-a-robot-teacher.html
 **Chatting**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2026/04/02/learning/chatting.html
-
-**Volunteers in Helicopter Rescue Hiker’s Dog After a Week in the Wilderness**\
-`A hiker in New Zealand fell 180 feet down a waterfall and was evacuated without her dog. A crowd-funded rescue effort reunited them.`\
-https://nytimes.com/2026/04/02/world/asia/dog-rescue-new-zealand.html
-
-**Dog Is Rescued by Helicopter After Week in Wilderness**\
-`Strangers funded a private helicopter search to rescue a dog stranded for seven days in the New Zealand bush. The animal was lost after its owner fell from a cliff.`\
-https://nytimes.com/video/video/100000010817338/dog-hiker-rescue-new-zealand.html
 
