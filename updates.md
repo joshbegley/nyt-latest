@@ -1,3 +1,8 @@
+**Victor Wembanyama sends message to Artemis II astronauts on NASA stream**\
+`Wembanyama has shown interest in aeronautical science and cosmology, visiting NASA’s Johnson Space Center in Houston last offseason.
+`\
+https://nytimes.com/athletic/7167544/2026/04/02/victor-wembanyama-artemis-ii-message-astronauts/
+
 **The Race for the Future of the Moon**\
 `The Artemis II mission isn’t just about science and exploration. It’s part of a high-stakes space race between the U.S. and China.`\
 https://nytimes.com/2026/04/02/world/space-artemis-us-china-trump-iran-pam-bondi.html

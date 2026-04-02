@@ -1,3 +1,15 @@
+**JetBlue Raises Checked Bag Fees as Fuel Costs Soar**\
+`The airline, which now charges up to $59 for one checked bag on a domestic flight, could influence other carriers strained by the war in Iran.`\
+https://nytimes.com/2026/04/02/travel/jetblue-checked-bag-fees.html
+
+**Biruté Galdikas, 79, Who Worked to Save Wild Orangutans in Borneo, Dies**\
+`With Jane Goodall and Dian Fossey, she was one of three prominent researchers of great apes who were sometimes called the “trimates.”`\
+https://nytimes.com/2026/04/02/science/earth/birute-galdikas-dead.html
+
+**Hershey’s Promises to Use Only Real Chocolate After Backlash**\
+`The change follows weeks of complaints from a grandson of the Reese’s Peanut Butter Cup inventor and other vocal consumers.`\
+https://nytimes.com/2026/04/02/business/hershey-reeses-recipe-real-chocolate.html
+
 **How the Artemis Astronauts Plan to Live in Space for 10 Days**\
 `On the Artemis II mission, four astronauts will work, exercise and sleep in a capsule that is about the size of two minivans for 10 days. In April 2025, National Geographic worked with NASA to film the astronauts at an Orion space capsule model in Houston.`\
 https://nytimes.com/video/science/100000010814928/nasa-artemis-sleep-work-capsule.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/04/02/opinion/pam-bondi-fired-trump.html
 **Wimbledon Is Expanding. What Does That Mean for Tennis?**\
 `The largest obstacle to Wimbledon’s plans to nearly triple the size of its grounds has been removed. The Athletic’s Charlie Eccleshare explains what it could mean for the Grand Slam’s future.`\
 https://nytimes.com/video/the-athletic/100000010814221/wimbledon-is-expanding-what-does-that-mean-for-tennis.html
-
-**How Much Will It Cost to Travel to the World Cup?**\
-`The Athletic calculated the potential costs, including flights, hotels, ride shares, food and tickets, for fans traveling to the World Cup. Writer Henry Bushnell digs into the numbers.`\
-https://nytimes.com/video/the-athletic/100000010814222/how-much-will-it-cost-to-travel-to-the-world-cup.html
-
-**Blake Lively’s Retaliation Case Heads to Trial Without Harassment Claims**\
-`A federal judge tossed the actress’s sexual harassment claims against Justin Baldoni in a split decision that sets the stage for a contentious trial.`\
-https://nytimes.com/2026/04/02/movies/blake-lively-justin-baldoni-harassment-claims-dismissed.html
-
-**How Are High California Gas Prices Affecting Your Life?**\
-`Tell us how the sharp increase in gas prices is changing how you live and work.`\
-https://nytimes.com/2026/04/02/us/california-gas-prices-expenses.html
 
