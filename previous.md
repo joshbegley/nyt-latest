@@ -1,5 +1,17 @@
+**Taking stock of the Giants' bullpen so far**\
+`The Giants' bullpen has been a surprising positive, with a couple of notable exceptions.`\
+https://nytimes.com/athletic/7167075/2026/04/02/taking-stock-of-giants-bullpen/
+
+**NFL Newsletter: Annual coaches photo, 2026 edition**\
+`What we learned from league meetings (and annual photo), evaluating non-Mendoza quarterbacks and notes from Indiana's Pro Day`\
+https://nytimes.com/athletic/7167284/2026/04/02/annual-nfl-coaches-photo-2026-edition-plus-no-1-qbs-pro-day/
+
+**Planning Commission Approves Trump’s Ballroom, but Legal Roadblocks Remain**\
+`The board had been expected to vote to approve the project last month, but it was delayed after about 32,000 mostly negative comments rolled in from across the country.`\
+https://nytimes.com/2026/04/02/us/politics/trump-ballroom-commission-vote.html
+
 **Fantasy baseball bullpen report featuring Lucas Erceg, Ryan Walker and others**\
-`Greg Jewett notes this week's most impactful bullpen changes for fantasy baseball, including Lucas Erceg's hot start. `\
+`Greg Jewett notes this week's most impactful bullpen updates for fantasy baseball, including Lucas Erceg's new role. `\
 https://nytimes.com/athletic/7166959/2026/04/02/fantasy-baseball-bullpen-report-lucas-erceg/
 
 **E.P.A. Targets Microplastics and Drugs in Drinking Water**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7167261/2026/04/02/pelicans-vs-trail-blazers-stream
 **How to watch Cavaliers vs. Warriors: Time, TV, streaming**\
 `Find out how to watch the Cleveland Cavaliers play the Golden State Warriors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7167259/2026/04/02/cavaliers-vs-warriors-stream-how-to-watch-april-2/
-
-**How to watch Lakers vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Lakers play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7167256/2026/04/02/lakers-vs-thunder-stream-how-to-watch-april-2/
-
-**Trump’s Budget May Target Climate Programs. Here’s What Still Survives.**\
-`Efforts to study, prepare for and address climate change have taken a major hit. But a few programs are hanging on thanks to bipartisan support.`\
-https://nytimes.com/2026/04/02/climate/trump-budget-climate-cuts-congress.html
-
-**Iran Says It Will Oversee Strait of Hormuz Traffic, Even in Peacetime**\
-`The United States says Iran’s claims to control the strait are illegal, but Tehran has made escalating assertions of authority over the vital waterway.`\
-https://nytimes.com/2026/04/02/world/middleeast/iran-oman-hormuz-control.html
 

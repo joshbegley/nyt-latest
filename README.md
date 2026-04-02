@@ -1,3 +1,7 @@
+**Cignetti not concerned about new Indiana QB Hoover's TCU turnover history**\
+`Said Curt Cignetti of his new QB: 'When Josh got here, he met his two new best friends: a great defense and a really good run game.'`\
+https://nytimes.com/athletic/7167267/2026/04/02/josh-hoover-curt-cignetti-indiana-tcu/
+
 **Taking stock of the Giants' bullpen so far**\
 `The Giants' bullpen has been a surprising positive, with a couple of notable exceptions.`\
 https://nytimes.com/athletic/7167075/2026/04/02/taking-stock-of-giants-bullpen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7166953/2026/04/02/wizards-april-fools-joke-halfcou
 **How to watch Pelicans vs. Trail Blazers: Time, TV, streaming**\
 `Find out how to watch the New Orleans Pelicans play the Portland Trail Blazers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7167261/2026/04/02/pelicans-vs-trail-blazers-stream-how-to-watch-april-2/
-
-**How to watch Cavaliers vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the Cleveland Cavaliers play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7167259/2026/04/02/cavaliers-vs-warriors-stream-how-to-watch-april-2/
 

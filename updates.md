@@ -1,3 +1,19 @@
+**Taking stock of the Giants' bullpen so far**\
+`The Giants' bullpen has been a surprising positive, with a couple of notable exceptions.`\
+https://nytimes.com/athletic/7167075/2026/04/02/taking-stock-of-giants-bullpen/
+
+**NFL Newsletter: Annual coaches photo, 2026 edition**\
+`What we learned from league meetings (and annual photo), evaluating non-Mendoza quarterbacks and notes from Indiana's Pro Day`\
+https://nytimes.com/athletic/7167284/2026/04/02/annual-nfl-coaches-photo-2026-edition-plus-no-1-qbs-pro-day/
+
+**Planning Commission Approves Trump’s Ballroom, but Legal Roadblocks Remain**\
+`The board had been expected to vote to approve the project last month, but it was delayed after about 32,000 mostly negative comments rolled in from across the country.`\
+https://nytimes.com/2026/04/02/us/politics/trump-ballroom-commission-vote.html
+
+**Fantasy baseball bullpen report featuring Lucas Erceg, Ryan Walker and others**\
+`Greg Jewett notes this week's most impactful bullpen updates for fantasy baseball, including Lucas Erceg's new role. `\
+https://nytimes.com/athletic/7166959/2026/04/02/fantasy-baseball-bullpen-report-lucas-erceg/
+
 **Fantasy baseball bullpen report featuring Lucas Erceg, Ryan Walker and others**\
 `Greg Jewett notes this week's most impactful bullpen changes for fantasy baseball, including Lucas Erceg's hot start. `\
 https://nytimes.com/athletic/7166959/2026/04/02/fantasy-baseball-bullpen-report-lucas-erceg/
