@@ -1,3 +1,11 @@
+**Former Wisconsin tight end Jack Pugh dies at 24**\
+`Jack Pugh, who spent three years as a tight end on the Wisconsin team, died at the age of 24. No official cause of death was released.`\
+https://nytimes.com/athletic/7166649/2026/04/02/jack-pugh-wisconsin-football-dies/
+
+**Konnor Griffin, one of baseball's most exciting prospects in years, to join Pirates**\
+`Griffin’s ceiling conjures hope for a Pirates fan base desperate for a return to relevance.`\
+https://nytimes.com/athletic/7160955/2026/04/02/konnor-griffin-pirates-mlb-prospect-debut/
+
 **Penguins mailbag: Will Pittsburgh pursue Auston Matthews?**\
 `A look at what could happen this summer and a big swing that might intrigue Kyle Dubas.`\
 https://nytimes.com/athletic/7165249/2026/04/02/penguins-auston-matthews-kyle-dubas-mailbag/
