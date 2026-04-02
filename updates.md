@@ -1,3 +1,7 @@
+**Britain Says It Will Host Military Talks on Securing Strait of Hormuz**\
+`It was not clear whether the talks, expected to involve dozens of countries, would satisfy President Trump’s demand that other nations take a more active part in the Iran war.`\
+https://nytimes.com/2026/04/02/world/uk-reopen-strait-of-hormuz-talks.html
+
 **Former Wisconsin tight end Jack Pugh dies at 24**\
 `Jack Pugh, who spent three years as a tight end on the Wisconsin team, died at the age of 24. No official cause of death was released.`\
 https://nytimes.com/athletic/7166649/2026/04/02/jack-pugh-wisconsin-football-dies/
