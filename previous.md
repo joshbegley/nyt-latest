@@ -1,3 +1,15 @@
+**‘The Blue Trail’ Review: A Drifting Journey Into Freedom**\
+`In an imaginary Brazil, where older people are forcibly removed from society, a resolute 77-year-old seeks her independence in the Amazon.`\
+https://nytimes.com/2026/04/02/movies/the-blue-trail-review.html
+
+**Is Alix Earle the Right Face for a Skin Care Brand?**\
+`Critics of Reale Actives, Ms. Earle’s new skin care line, suggest that the TikTok star’s past use of prescription acne treatments makes her an odd fit to sell consumer skin care products.`\
+https://nytimes.com/2026/04/02/style/reale-alix-earle-skin-care-tiktok.html
+
+**William F. Murphy, Led Diocese and Weathered Abuse Scandal, Dies at 85**\
+`While serving as a Long Island bishop, his earlier tenure in Boston came under scrutiny during investigations of sex-abuse allegations involving pedophile priests.`\
+https://nytimes.com/2026/04/02/nyregion/william-f-murphy-dead.html
+
 **Everton hopeful of keeping Grealish beyond end of loan spell**\
 `The 30-year-old has not played since January 18 due to a foot injury that required surgery.`\
 https://nytimes.com/athletic/7166864/2026/04/02/jack-grealish-everton-future-loan/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7166718/2026/04/02/espn-nfl-network-broadcast-analy
 **Danish Warship Sunk by Britain’s Lord Nelson 225 Years Ago Is Found**\
 `The ship sank during the Battle of Copenhagen, an important moment in Danish and British history, and became the origin of a common saying.`\
 https://nytimes.com/2026/04/02/world/europe/danish-warship-britain-nelson-copenhagen.html
-
-**What's up with the Mets' dormant offense? Examining early trends**\
-`An inability to drive in runners in scoring position, chasing bad pitches and not enough hard contact are all part of New York's slow start.`\
-https://nytimes.com/athletic/7166851/2026/04/02/mets-dormant-offense-early-trends/
-
-**Former MLB commissioner Peter Ueberroth's daughter tells court trustee misused millions**\
-`Vicki Ueberroth claims millions of dollars have been wasted or misused over the last two years while her parents are in cognitive decline.`\
-https://nytimes.com/athletic/7158740/2026/04/02/mlb-peter-ueberroth-daughter-lawsuit-tiger-woods/
-
-**Storm Dave Cometh. But Why Is It Called That?**\
-`The conventions for naming storms are complicated by a mishmash of rules, national quirks and language barriers.`\
-https://nytimes.com/2026/04/02/world/europe/dave-storm-name-uk.html
 

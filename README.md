@@ -1,3 +1,15 @@
+**How Did Trump’s Iran Speech Fare?**\
+`Readers respond to President Trump’s speech on the war. Also: Asian Americans at risk; civic eduction for the 250th; a veteran’s view.`\
+https://nytimes.com/2026/04/02/opinion/trump-iran-speech.html
+
+**Why have a Brazilian club called out Cristiano Ronaldo over a historic transfer dispute?**\
+`A dispute between Flamengo and Almeria over a transfer has led to the Court of Arbitration for Sport and embroiled the Portuguese superstar.`\
+https://nytimes.com/athletic/7166795/2026/04/02/flamengo-almeria-cas-cristiano-ronaldo/
+
+**Lawsuit Challenges Warrantless Searches and Forced Entries by ICE**\
+`A coalition of legal groups claims the Homeland Security Department adopted an unconstitutional policy allowing its agents to enter homes without a judicial warrant.`\
+https://nytimes.com/2026/04/02/us/politics/ice-lawsuit-forced-entry-warrants.html
+
 **‘The Blue Trail’ Review: A Drifting Journey Into Freedom**\
 `In an imaginary Brazil, where older people are forcibly removed from society, a resolute 77-year-old seeks her independence in the Amazon.`\
 https://nytimes.com/2026/04/02/movies/the-blue-trail-review.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/04/02/weather/storms-tornado-forecast-iowa-illinois-wis
 **In the Birthright Citizenship Hearing, a Story of Asians Fighting for Rights**\
 `Supreme Court justices and lawyers cited a litany of historic cases that reflect the many times Asians turned to the courts, trying to shape immigration law.`\
 https://nytimes.com/2026/04/02/us/politics/birthright-citizenship-asian-immigrants.html
-
-**Mortgage Rates Climb for 5th Week as Iran War Weighs on U.S. Housing Market**\
-`The average rate on a 30-year mortgage in the United States jumped to 6.46 percent, making it harder for buyers to afford homes.`\
-https://nytimes.com/2026/04/02/business/mortgage-rates-housing-iran-war.html
-
-**ESPN expected to change No. 2 broadcasting team after NFL Network deal**\
-`ESPN officially took over NFL Network this week as part of a series of agreements in which the league took a 10 percent stake in ESPN.`\
-https://nytimes.com/athletic/7166718/2026/04/02/espn-nfl-network-broadcast-analyst-team-changes/
-
-**Danish Warship Sunk by Britain’s Lord Nelson 225 Years Ago Is Found**\
-`The ship sank during the Battle of Copenhagen, an important moment in Danish and British history, and became the origin of a common saying.`\
-https://nytimes.com/2026/04/02/world/europe/danish-warship-britain-nelson-copenhagen.html
 
