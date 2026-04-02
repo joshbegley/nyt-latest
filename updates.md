@@ -1,3 +1,7 @@
+**Corrections: April 2, 2026**\
+`Corrections that appeared in print on Thursday, April 2, 2026.`\
+https://nytimes.com/2026/04/01/pageoneplus/corrections-april-2-2026.html
+
 **NASA’s Artemis II Moon Mission Launches Into Space**\
 `The crew of four — three Americans and one Canadian — reached space on Wednesday on the first crewed journey to the moon since 1972.`\
 https://nytimes.com/video/science/space/100000010816588/nasas-artemis-ii-moon-mission-launches-into-space.html

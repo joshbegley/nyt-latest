@@ -1,3 +1,7 @@
+**Corrections: April 2, 2026**\
+`Corrections that appeared in print on Thursday, April 2, 2026.`\
+https://nytimes.com/2026/04/01/pageoneplus/corrections-april-2-2026.html
+
 **NASA’s Artemis II Moon Mission Launches Into Space**\
 `The crew of four — three Americans and one Canadian — reached space on Wednesday on the first crewed journey to the moon since 1972.`\
 https://nytimes.com/video/science/space/100000010816588/nasas-artemis-ii-moon-mission-launches-into-space.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/01/nyregion/nypd-diller-rivera-murder-trial.html
 **Red Sox lose fifth straight, fall to 1-5 after 'embarrassing' road trip**\
 `Trevor Story and Masataka Yoshida went 0-for-8 in the two- and three-holes and Caleb Durbin is searching for his first hit of the year.`\
 https://nytimes.com/athletic/7165379/2026/04/01/red-sox-1-5-takeaways-alex-cora/
-
-**NBA fines Trail Blazers $100,000, suspends assistant GMs for draft violation**\
-`Mike Schmitz and Sergi Oliva were suspended after Portland self-reported that they had illegal contact with Yang Hansen before drafting him.`\
-https://nytimes.com/athletic/7165567/2026/04/01/portland-trail-blazers-assistant-gm-fined-suspended/
 
