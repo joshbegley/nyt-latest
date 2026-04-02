@@ -1,3 +1,19 @@
+**Connections: Sports Edition Coach: Hints and answers for April 2, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7165341/2026/04/02/connections-sports-edition-hints-answers-april-2-2026/
+
+**China’s Aiming for the Moon, and NASA Is Looking Over Its Shoulder**\
+`The U.S. space agency launched a lunar flyby Wednesday, but Beijing is pursuing its own space program with formidable focus. Here’s what we know about it, in photos and videos.`\
+https://nytimes.com/2026/04/02/world/asia/chinas-aiming-for-the-moon-and-nasa-is-looking-over-its-shoulder.html
+
+**Iran War Showcases Strength of South Korean Defense Sector**\
+`Missile interceptors made by the South Korean firm LIG Nex1 are said to be performing well, at a small fraction of the cost of U.S. interceptors.`\
+https://nytimes.com/2026/04/02/business/iran-war-showcases-strength-of-south-korean-defense-sector.html
+
+**Quote of the Day: He Won Birthright Citizenship for All. His Kin Never Knew.**\
+`Quotation of the Day for Thursday, April 2, 2026.`\
+https://nytimes.com/2026/04/01/pageoneplus/quote-of-the-day-he-won-birthright-citizenship-for-all-his-kin-never-knew.html
+
 **Texas Man Charged With Manslaughter in Connection With Cold Case**\
 `Prosecutors in Galveston County say that in the 1980s, a man killed a teenager and helped hide the remains of a woman, two of the dozens of bodies found on land known as the Texas Killing Fields.`\
 https://nytimes.com/2026/04/01/us/texas-killing-fields-charges-filed.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/how-likely-
 **5 Takeaways From Trump’s Address on Iran**\
 `President Trump did not define a clear path out of the conflict, which he estimated would end within three weeks.`\
 https://nytimes.com/2026/04/01/us/politics/trump-iran-war-address-takeaways.html
-
-**Transcript: Trump Addresses the Nation on Iran**\
-`The president made his case for the U.S. attack, and said that the main objectives had been achieved.`\
-https://nytimes.com/2026/04/01/us/politics/trump-transcript-speech-iran.html
-
-**Matt Chapman has a viral mound moment as Giants drop finale to Padres**\
-`Chapman's ire didn't look great, but it would be overstating the moment to say manager Tony Vitello had a controversy on his hands.`\
-https://nytimes.com/athletic/7165768/2026/04/01/giants-padres-matt-chapman-viral/
-
-**Oil Prices Jump and Stocks Drop After Trump’s White House Speech**\
-`President Trump claimed in a White House address that the war on Iran was “nearing completion” but made no new announcements about the conflict.`\
-https://nytimes.com/2026/04/01/business/oil-stocks-gasoline-prices-iran-trump.html
-
-**Some rejoiced in NASA’s return to the moon. Others had a regular Wednesday.**\
-`Space enthusiasts watched with awe and joy as a massive rocket roared into space on the first crewed flight to the moon in more than 50 years. Other Americans were detached, or oblivious.`\
-https://nytimes.com/live/2026/04/01/science/moon-nasa-artemis-launch/people-watch-moon-flight
 
