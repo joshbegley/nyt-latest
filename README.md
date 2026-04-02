@@ -1,3 +1,12 @@
+**Victor Wembanyama sends message to Artemis II astronauts on NASA stream**\
+`Wembanyama has shown interest in aeronautical science and cosmology, visiting NASA’s Johnson Space Center in Houston last offseason.
+`\
+https://nytimes.com/athletic/7167544/2026/04/02/victor-wembanyama-artemis-ii-message-astronauts/
+
+**Arab Countries Want the U.N. to Authorize Force to Open the Strait of Hormuz. The Idea Hit Roadblocks.**\
+`Several permanent members of the Security Council opposed the resolution, drafted by Bahrain in coordination with its Gulf neighbors, officials said.`\
+https://nytimes.com/2026/04/02/world/middleeast/arab-iran-hormuz-force.html
+
 **Wisconsin Universities Chief Defies Board’s Push for Resignation**\
 `Jay Rothman, the president of the state university system, said he had received no explanation for why regents want to oust him.`\
 https://nytimes.com/2026/04/02/us/wisconsin-universities-rothman-defies-board.html
@@ -29,12 +38,4 @@ https://nytimes.com/2026/04/02/us/politics/justice-department-trump-presidential
 **Phil Mickelson opts out of Masters due to 'personal health matter' with family**\
 `The 55-year-old golfer will join Tiger Woods in missing tournament, marking first time since 1994 both will be absent from Augusta.`\
 https://nytimes.com/athletic/7167504/2026/04/02/phil-mickelson-masters-out-family-health/
-
-**If You Love a Great Restaurant Dupe, This One’s For You**\
-`Why wait in line when you can enjoy equally great food somewhere else?`\
-https://nytimes.com/2026/04/02/dining/if-you-love-a-great-restaurant-dupe-this-ones-for-you.html
-
-**Blanche, Trump’s Former Defense Lawyer, Steps In as Acting Attorney General**\
-`While it remains unclear how long Todd Blanche will stay in the job, whoever ends up taking over permanently will lead a department that he has shaped in his own image.`\
-https://nytimes.com/2026/04/02/us/politics/todd-blanche-attorney-general-trump.html
 
