@@ -1,3 +1,15 @@
+**United to Offer No-Frills Fares in Its Premium Cabins**\
+`United is introducing restrictive base fares in its most profitable cabins: premium economy and business class.`\
+https://nytimes.com/2026/04/03/business/united-airlines-fares-premium-cabins.html
+
+**Big Banks Seeking a Piece of SpaceX’s I.P.O. Must Subscribe to Elon Musk’s Grok**\
+`Mr. Musk is requiring Wall Street firms to purchase subscriptions to his A.I. chatbot if they want to advise on one of the largest initial public offerings in history.`\
+https://nytimes.com/2026/04/03/business/spacex-ipo-grok-elon-musk.html
+
+**How to watch Brewers vs. Royals: Time, TV, streaming for April 3**\
+`Find out how to watch the Milwaukee Brewers play the Kansas City Royals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7169873/2026/04/03/brewers-vs-royals-stream-how-to-watch-april-3/
+
 **Chat with Eno Sarris live at 11am PT!**\
 `Eno Sarris will be chatting live with subscribers for an hour at 11am Pacific.`\
 https://nytimes.com/athletic/7169849/2026/04/03/chat-with-eno-sarris-live-at-11am-pt/
