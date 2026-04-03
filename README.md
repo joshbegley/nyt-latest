@@ -1,3 +1,7 @@
+**What's next for the Browns? Draft decisions and a potential QB battle await**\
+`We predict how Cleveland's decision-makers will address some of the team's major issues as the NFL Draft draws near. `\
+https://nytimes.com/athletic/7165054/2026/04/03/browns-nfl-draft-quarterback-competition/
+
 **The White House is readying a budget for the statistics agency that compiles the jobs report.**\
 `President Trump is set to release his new spending plan on Friday, after trying last year to cut funding for the federal bureau tasked with measuring the economy.`\
 https://nytimes.com/live/2026/04/03/business/jobs-report-economy/the-white-house-is-readying-a-budget-for-the-statistics-agency-that-compiles-the-jobs-report
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7164948/2026/04/03/tour-of-flanders-preview-pogacar
 **World Cup 2026 stadium guides: Welcome to Miami Stadium, the greatest multi-sport venue in the United States… if not the world**\
 `It opened in 1987, making it one of the older stadiums to feature at the 2026 World Cup`\
 https://nytimes.com/athletic/7157895/2026/04/03/world-cup-2026-stadium-guides-miami/
-
-**Cubs have a plan for unleashing Cade Horton, a homegrown starter with ace potential**\
-`The Cubs deliberately managed Horton's workload his rookie season, not allowing the right-hander to throw 100 pitches in a single start.`\
-https://nytimes.com/athletic/7168135/2026/04/03/cade-horton-cubs-ace-pitch-count/
 
