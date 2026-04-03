@@ -1,5 +1,5 @@
 **Dodgers buck tradition, add alternate blue jersey to road uniform rotation**\
-`The will mark the first time the Dodgers will go to the color for a road alternate look. It will be the third in their rotation.`\
+`This will mark the first time the Dodgers will go to the color for a road alternate look. It will be the third in their rotation.`\
 https://nytimes.com/athletic/7168258/2026/04/02/los-angeles-dodgers-road-blue-uniform/
 
 **Cade Cunningham still out with injury, will be ineligible for NBA awards**\
