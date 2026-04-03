@@ -1,3 +1,11 @@
+**U.S. Fighter Jet Shot Down Over Iran, U.S. Officials and Iran Say**\
+`The fate of the plane’s crew was unclear, as American officials scrambled to mount a search and rescue operation.`\
+https://nytimes.com/2026/04/03/us/politics/us-fighter-jet-iran.html
+
+**Arsenal's Hincapie out of Southampton trip, Odegaard, Timber may return**\
+`Neither Odegaard (Norway) nor Timber (Netherlands) travelled to their national set-ups as they were recovering from pre-existing injuries.`\
+https://nytimes.com/athletic/7169306/2026/04/03/arsenal-team-news-hincapie-injury-update/
+
 **How to watch Orioles vs. Pirates: Time, TV, streaming for April 3**\
 `Find out how to watch the Baltimore Orioles play the Pittsburgh Pirates, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7169300/2026/04/03/orioles-vs-pirates-stream-how-to-watch-april-3/

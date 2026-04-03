@@ -1,3 +1,11 @@
+**U.S. Fighter Jet Shot Down Over Iran, U.S. Officials and Iran Say**\
+`The fate of the plane’s crew was unclear, as American officials scrambled to mount a search and rescue operation.`\
+https://nytimes.com/2026/04/03/us/politics/us-fighter-jet-iran.html
+
+**Arsenal's Hincapie out of Southampton trip, Odegaard, Timber may return**\
+`Neither Odegaard (Norway) nor Timber (Netherlands) travelled to their national set-ups as they were recovering from pre-existing injuries.`\
+https://nytimes.com/athletic/7169306/2026/04/03/arsenal-team-news-hincapie-injury-update/
+
 **How to watch Orioles vs. Pirates: Time, TV, streaming for April 3**\
 `Find out how to watch the Baltimore Orioles play the Pittsburgh Pirates, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7169300/2026/04/03/orioles-vs-pirates-stream-how-to-watch-april-3/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7167634/2026/04/03/naz-reid-timberwolves-slump-play
 **Which Final Four draft prospects should Bucks fans pay attention to?**\
 `Milwaukee will have a lottery pick for the first time 10 years. Final Four stars like Keaton Wagler and Brayden Burries could be available.`\
 https://nytimes.com/athletic/7116476/2026/04/03/bucks-final-four-nba-draft-scouting/
-
-**The day Indiana's national championship trophy came to Notre Dame's backyard**\
-`As part of a nine-stop tour around the state, the Hoosiers' haul spent the afternoon in South Bend, three miles from Notre Dame's campus.`\
-https://nytimes.com/athletic/7169061/2026/04/03/indiana-football-national-championship-trophy-tour-notre-dame/
-
-**The numbers to know ahead of the FA Cup quarter-finals**\
-`All the key pointers ahead of a big weekend in the oldest cup competition in the world`\
-https://nytimes.com/athletic/7168905/2026/04/03/fa-cup-quarter-finals-liverpool-man-city-arsenal-chelsea-port-vale/
 
