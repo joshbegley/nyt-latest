@@ -1,3 +1,11 @@
+**Why Andy Reid's vision for new Chiefs QB Justin Fields is 'more than a gadget guy'**\
+`The Chiefs, by trading a 2027 sixth-round pick for Fields, are partly betting that their environment can bring out his best.`\
+https://nytimes.com/athletic/7166930/2026/04/03/chiefs-justin-fields-andy-reid/
+
+**Soccer in Colombia: Growing a domestic league from national-team momentum**\
+`After years of fighting for fair treatment, the past decade has seen Colombia make serious strides toward a sustainable domestic league`\
+https://nytimes.com/athletic/7168508/2026/04/03/soccer-in-colombia-national-team/
+
 **Red Wings get shot of adrenaline in win over Flyers, tied for playoff spot: 5 thoughts**\
 `Alex DeBrincat has been Detroit's most consistent forward this spring and delivered again Thursday with two crucial goals.`\
 https://nytimes.com/athletic/7168355/2026/04/03/detroit-red-wings-alex-debrincat-playoff-race/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7159714/2026/04/03/wnba-expansion-draft-tv-toronto-
 **Macklin Celebrini deserves Hart Trophy votes for carrying the Sharks and wowing the world**\
 `At age 19, Celebrini has already proven that he belongs among the NHL's greats.`\
 https://nytimes.com/athletic/7167749/2026/04/03/macklin-celebrini-hart-trophy-sharks/
-
-**Paul George is playing free again. Why it matters for the Sixers**\
-`Is the Clippers version of Paul George back again? This recent stretch has shown he can still be himself when fully healthy.`\
-https://nytimes.com/athletic/7167111/2026/04/03/paul-george-sixers-injury-nba-playoffs/
-
-**How to make sense of a nonsensical NHL season? Just follow the chain of blowouts**\
-`There's a much more effective way of gauging relative team strength this season than simply checking the NHL standings.`\
-https://nytimes.com/athletic/7159563/2026/04/03/nhl-blowouts-team-standings-avalanche/
 
