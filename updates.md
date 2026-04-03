@@ -1,3 +1,7 @@
+**Did Jesus Rise From the Dead?**\
+`A case of mistaken identity, or a profound experience of grief? The religious scholar Bart Ehrman argues that the earliest accounts of Jesus’ Resurrection might be rooted in the way we process loss.`\
+https://nytimes.com/video/opinion/100000010807127/did-jesus-rise-from-the-dead.html
+
 **Colombian captain James Rodríguez hospitalized for 'severe dehydration'**\
 `The Colombian federation released a statement saying that Rodríguez's dehydration episode "is not linked to his footballing activities."`\
 https://nytimes.com/athletic/7168108/2026/04/02/colombia-james-rodriguez-dehydration-health-update/

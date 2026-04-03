@@ -1,3 +1,7 @@
+**Artemis II’s commander had a message for one of his oldest friends.**\
+`By Timothy Bella`\
+https://nytimes.com/live/2026/04/02/science/artemis-nasa-moon-astronauts/artemis-iis-commander-had-a-message-for-one-of-his-oldest-friends
+
 **Did Jesus Rise From the Dead?**\
 `A case of mistaken identity, or a profound experience of grief? The religious scholar Bart Ehrman argues that the earliest accounts of Jesus’ Resurrection might be rooted in the way we process loss.`\
 https://nytimes.com/video/opinion/100000010807127/did-jesus-rise-from-the-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010807119/how-jesus-altered-the-worlds-c
 **Here’s What Happened in the War in the Middle East on Thursday**\
 `President Trump’s prime-time address received a defiant response from a top leader in Tehran.`\
 https://nytimes.com/2026/04/02/world/middleeast/iran-war-middle-east-recap-thursday.html
-
-**Chandler Morris' lawsuit over 7th year of eligibility denied by judge**\
-`Morris was denied a preliminary injunction for his lawsuit over a retroactive medical redshirt for his 2022 season.`\
-https://nytimes.com/athletic/7167985/2026/04/02/judge-denies-virginia-chandler-morris-lawsuit-eligibility/
 
