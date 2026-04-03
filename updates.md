@@ -1,3 +1,7 @@
+**Soft and slow Blue Jackets get destroyed by Hurricanes, knocked out of playoff spot**\
+`The Blue Jackets finished with only 10 shots on goal on Thursday, matching a franchise record that has stood for more than 23 years.`\
+https://nytimes.com/athletic/7168245/2026/04/02/blue-jackets-hurricanes-nhl-playoffs/
+
 **Megan Thee Stallion Returns to Broadway Role After Brief Illness**\
 `The rapper was back onstage in “Moulin Rouge” two days after being taken to a hospital after becoming ill during a performance.`\
 https://nytimes.com/2026/04/02/theater/megan-thee-stallion-returns.html
