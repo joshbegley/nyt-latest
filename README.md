@@ -1,3 +1,7 @@
+**Wolves' Naz Reid searches for ways out of his funk and back into folk hero status**\
+`The fan favorite and former NBA Sixth Man of the Year has battled a shoulder injury and other issues, though he had 19 points on Thursday.`\
+https://nytimes.com/athletic/7167634/2026/04/03/naz-reid-timberwolves-slump-playoffs/
+
 **Which Final Four draft prospects should Bucks fans pay attention to?**\
 `Milwaukee will have a lottery pick for the first time 10 years. Final Four stars like Keaton Wagler and Brayden Burries could be available.`\
 https://nytimes.com/athletic/7116476/2026/04/03/bucks-final-four-nba-draft-scouting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7168818/2026/04/03/daniel-susac-giants-debut/
 **A Lesson Plan About the War With Iran**\
 `Through Times articles, photos, videos, graphics, podcasts and more, we invite students to explore what is happening in the war and how we got here.`\
 https://nytimes.com/2026/04/03/learning/lesson-plans/a-lesson-plan-about-the-war-with-iran.html
-
-**Pistons learning valuable lessons for playoffs with Cade Cunningham sidelined**\
-`Detroit has had to dig deep with its star out, which could benefit the team in the postseason.`\
-https://nytimes.com/athletic/7168544/2026/04/03/pistons-lessons-playoffs-cade-cunningham-injury/
 

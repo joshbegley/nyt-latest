@@ -1,3 +1,7 @@
+**Which Final Four draft prospects should Bucks fans pay attention to?**\
+`Milwaukee will have a lottery pick for the first time 10 years. Final Four stars like Keaton Wagler and Brayden Burries could be available.`\
+https://nytimes.com/athletic/7116476/2026/04/03/bucks-final-four-nba-draft-scouting/
+
 **The day Indiana's national championship trophy came to Notre Dame's backyard**\
 `As part of a nine-stop tour around the state, the Hoosiers' haul spent the afternoon in South Bend, three miles from Notre Dame's campus.`\
 https://nytimes.com/athletic/7169061/2026/04/03/indiana-football-national-championship-trophy-tour-notre-dame/

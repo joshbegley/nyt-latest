@@ -1,3 +1,7 @@
+**Which Final Four draft prospects should Bucks fans pay attention to?**\
+`Milwaukee will have a lottery pick for the first time 10 years. Final Four stars like Keaton Wagler and Brayden Burries could be available.`\
+https://nytimes.com/athletic/7116476/2026/04/03/bucks-final-four-nba-draft-scouting/
+
 **The day Indiana's national championship trophy came to Notre Dame's backyard**\
 `As part of a nine-stop tour around the state, the Hoosiers' haul spent the afternoon in South Bend, three miles from Notre Dame's campus.`\
 https://nytimes.com/athletic/7169061/2026/04/03/indiana-football-national-championship-trophy-tour-notre-dame/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/03/learning/lesson-plans/a-lesson-plan-about-the-war
 **Pistons learning valuable lessons for playoffs with Cade Cunningham sidelined**\
 `Detroit has had to dig deep with its star out, which could benefit the team in the postseason.`\
 https://nytimes.com/athletic/7168544/2026/04/03/pistons-lessons-playoffs-cade-cunningham-injury/
-
-**Lowetide: Why the Oilers' defensive tweaks are gaining traction**\
-`Winners of five straight, the Oilers have reached Easter weekend looking like a Stanley Cup contender again.`\
-https://nytimes.com/athletic/7166761/2026/04/03/edmonton-oilers-stats-defensive-tweaks/
 
