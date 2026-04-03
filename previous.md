@@ -1,3 +1,19 @@
+**TAFC: Tracking down £62m Mudryk in exile. Plus: Why Barcelona Femeni dominate Real Madrid**\
+`Today in TAFC: Tracking down Mykhailo Mudryk. Plus: Barcelona Femini thump Real Madrid 6-0, and a first glimpse at Inter Miami's new stadium`\
+https://nytimes.com/athletic/7168850/2026/04/03/mudryk-chelsea-ban-barcelona-putellas/
+
+**FA Cup quarter-finals odds: Who will win through to Wembley?**\
+`The eight surviving clubs will become four this weekend, with one of the Premier League's heavyweights certain to bow out`\
+https://nytimes.com/athletic/7168963/2026/04/03/fa-cup-quarter-finals-odds-one-big-gun-must-go-will-arsenal-keep-treble-alive-and-what-chance-for-port-vale/
+
+**Chelsea captain Fernandez dropped for Port Vale, Man City games**\
+`Rosenior said he was "disappointed" with Fernandez, whom he said "crossed the line" with comments on his future at the club.`\
+https://nytimes.com/athletic/7168986/2026/04/03/enzo-fernandez-rosenior-chelsea-dropped/
+
+**Against analytics, Arizona opts for 2s. Even Steve Kerr approves of his Wildcats' approach**\
+`The other Final Four teams take a 3 at least 40 percent of the time. Then there's Arizona, trying from long-range 26.4 percent of the time.`\
+https://nytimes.com/athletic/7167485/2026/04/03/arizona-basketball-final-four-2026-march-madness-steve-kerr/
+
 **The Pulse: The kids are really, really good**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7168685/2026/04/03/konnor-griffin-mlb-rookies-the-pulse/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7168505/2026/04/03/tyson-foerster-porter-martone-de
 **Extensions are all the rage across baseball. Why the Mets are unlikely to follow suit**\
 `Amid a spate of aggressive new deals, the Mets are taking a more patient approach when it comes to long-term commitments. `\
 https://nytimes.com/athletic/7168242/2026/04/03/mlb-contract-extensions-mets/
-
-**Sabres miss chance to clinch playoff spot in loss to Senators: 5 thoughts**\
-`The Sabres might be itching to end a playoff drought, but their Eastern Conference opponents are feeling plenty of desperation themselves.`\
-https://nytimes.com/athletic/7168536/2026/04/03/sabres-playoffs-zucker-empty-net-senators/
-
-**Rangers' Will Cuylle: 'I've got a lot more to give' as third-year winger assesses season**\
-`Cuylle's production is down this season as he has 17 goals and 34 points through 76 games after notching 20 goals and 45 points last season.`\
-https://nytimes.com/athletic/7168546/2026/04/03/will-cuylle-rangers-goals-season-canadiens/
-
-**Jonathan Toews comparisons don't faze Blackhawks rookie Anton Frondell: 'I'm far away'**\
-`Frondell took the comparison from his coach in the encouraging nature it was intended, without any of the pressure that could accompany it.`\
-https://nytimes.com/athletic/7168572/2026/04/03/jonathan-toews-comparisons-blackhawks-rookie-anton-frondell/
-
-**WNBA expansion draft 2026: What to know and how to watch**\
-`The Toronto Tempo and Portland Fire, the WNBA's two new teams, start filling out their inaugural rosters. Here's how to tune in Friday.`\
-https://nytimes.com/athletic/7159714/2026/04/03/wnba-expansion-draft-tv-toronto-tempo-portland-fire/
 
