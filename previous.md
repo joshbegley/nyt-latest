@@ -10,13 +10,13 @@ https://nytimes.com/athletic/7167396/2026/04/03/abs-mlb-first-week-tactics-chang
 `The top four seeds are back in the Final Four. Expect close games, but an ultimate UConn victory. `\
 https://nytimes.com/athletic/7168170/2026/04/03/womens-final-four-power-rankings-uconn/
 
-**NFL execs unfiltered on free agency: Thoughts on Kyler Murray, the bold Rams and all NFC teams**\
-`Why didn't the Cardinals trade Murray? Can he thrive in Minnesota? Meanwhile, execs had plenty of questions about the Falcons, yet again.`\
-https://nytimes.com/athletic/7167213/2026/04/03/nfl-free-agency-2026-nfc-execs-best-worst/
-
 **Women's 2026 Final Four players to watch: Sarah Strong, Joyce Edwards, more**\
 `Texas vs. UCLA. UConn vs. South Carolina. Which players will make an impact in the Final Four? `\
 https://nytimes.com/athletic/7167953/2026/04/03/womens-final-four-2026-sarah-strong-joyce-edwards/
+
+**NFL execs unfiltered on free agency: Thoughts on Kyler Murray, the bold Rams and all NFC teams**\
+`Why didn't the Cardinals trade Murray? Can he thrive in Minnesota? Meanwhile, execs had plenty of questions about the Falcons, yet again.`\
+https://nytimes.com/athletic/7167213/2026/04/03/nfl-free-agency-2026-nfc-execs-best-worst/
 
 **Trust is a two-way street, and James Wood and the Nats are building it**\
 `This year, Wood feels more equipped to handle these slumps. That’s in part because he has been through them before. `\

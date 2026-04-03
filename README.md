@@ -1,3 +1,7 @@
+**The lessons Puka Nacua learns this offseason could define the Rams' future**\
+`The star Rams receiver has had his share of off-the-field incidents over the past year. How could it affect the team's long-term future?`\
+https://nytimes.com/athletic/7166887/2026/04/03/puka-nacua-los-angeles-rams-future/
+
 **'Vamos, Yaxel!': How mom of Michigan star kept him going, all the way to Final Four**\
 `“I can hear nobody else in the stadium but her,” said Yaxel Lendeborg of his mother. “It puts me in attack mode, honestly.”`\
 https://nytimes.com/athletic/7167775/2026/04/03/yaxel-lendeborg-michigan-basketball-march-madness-final-four/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7168885/2026/04/03/kane-davies-bayern-injury-news/
 **How to watch Cardinals vs. Tigers: Time, TV, streaming for April 3**\
 `Find out how to watch the St. Louis Cardinals play the Detroit Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7168924/2026/04/03/cardinals-vs-tigers-stream-how-to-watch-april-3/
-
-**How to watch Dodgers vs. Nationals: Time, TV, streaming for April 3**\
-`Find out how to watch the Los Angeles Dodgers play the Washington Nationals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7168922/2026/04/03/dodgers-vs-nationals-stream-how-to-watch-april-3/
 
