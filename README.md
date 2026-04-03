@@ -1,3 +1,11 @@
+**Luka Dončić injures hamstring during Lakers game vs. Thunder**\
+`Dončić, a top MVP candidate, suffered the injury in his 64th game of the season, putting his award eligibility in jeopardy.`\
+https://nytimes.com/athletic/7168488/2026/04/02/luka-doncic-injury-hamstring-lakers-thunder/
+
+**Lightning serve Penguins a humbling loss: 'They outworked us and outsmarted us'**\
+`The Penguins never looked in control against the Lightning and fell prey to yet more short-handed goals in Tampa.`\
+https://nytimes.com/athletic/7168228/2026/04/02/penguins-karlsson-shorthanded-chinakhov-playoffs-lightning/
+
 **'I was just talking to the president,' Tiger Woods says in footage after accident**\
 `Woods mentioned "the president" as he walked past an officer who asked that he stay near the scene of the automobile accident.`\
 https://nytimes.com/athletic/7168401/2026/04/02/tiger-woods-dui-bodycam-footage-arrest-president-call/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/02/arts/television/the-pitt-season-2-episode-13-reca
 **Swimmer’s Assignment**\
 `Carolyn Davies Lynch and Brian Callahan open our solving weekend.`\
 https://nytimes.com/2026/04/02/crosswords/daily-puzzle-2026-04-03.html
-
-**Dodgers buck tradition, add alternate blue jersey to road uniform rotation**\
-`This will mark the first time the Dodgers will go to the color for a road alternate look. It will be the third in their rotation.`\
-https://nytimes.com/athletic/7168258/2026/04/02/los-angeles-dodgers-road-blue-uniform/
-
-**Cade Cunningham still out with injury, will be ineligible for NBA awards**\
-`Cunningham remains out for the Pistons' game against the Timberwolves on Thursday night.`\
-https://nytimes.com/athletic/7166877/2026/04/02/cade-cunningham-injury-update-pistons/
 
