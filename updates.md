@@ -1,3 +1,15 @@
+**Iranian media outlets say helicopters are searching for the crew of the downed jet.**\
+`By Leily Nikounazar and Yeganeh Torbati`\
+https://nytimes.com/live/2026/04/03/world/iran-war-trump-oil/iranian-media-outlets-say-helicopters-are-searching-for-the-crew-of-the-downed-jet
+
+**How to watch Flyers vs. Islanders: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the New York Islanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7169589/2026/04/03/flyers-vs-islanders-stream-how-to-watch-april-3/
+
+**Pedro Friedeberg, Whose Hand Chair Drew Outsize Attention, Dies at 90**\
+`Known for his hallucinatory canvases of otherworldly structures, he cemented his fame with a hand-shaped chair that was both a work of art and a pop culture curio.`\
+https://nytimes.com/2026/04/03/arts/design/pedro-friedeberg-dead.html
+
 **NHL playoff watch: The critical races to monitor**\
 `There are only 113 games to go in the 2025-26 season — seven per team — so let’s jump into our latest scan around the league.`\
 https://nytimes.com/athletic/7169472/2026/04/03/nhl-playoff-standings-stanley-cup-race/

@@ -1,3 +1,15 @@
+**Iranian media outlets say helicopters are searching for the crew of the downed jet.**\
+`By Leily Nikounazar and Yeganeh Torbati`\
+https://nytimes.com/live/2026/04/03/world/iran-war-trump-oil/iranian-media-outlets-say-helicopters-are-searching-for-the-crew-of-the-downed-jet
+
+**How to watch Flyers vs. Islanders: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the New York Islanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7169589/2026/04/03/flyers-vs-islanders-stream-how-to-watch-april-3/
+
+**Pedro Friedeberg, Whose Hand Chair Drew Outsize Attention, Dies at 90**\
+`Known for his hallucinatory canvases of otherworldly structures, he cemented his fame with a hand-shaped chair that was both a work of art and a pop culture curio.`\
+https://nytimes.com/2026/04/03/arts/design/pedro-friedeberg-dead.html
+
 **NHL playoff watch: The critical races to monitor**\
 `There are only 113 games to go in the 2025-26 season — seven per team — so let’s jump into our latest scan around the league.`\
 https://nytimes.com/athletic/7169472/2026/04/03/nhl-playoff-standings-stanley-cup-race/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/04/03/theater/burnout-paradise-treadmills-theater-off-b
 **Five International Movies to Stream Now**\
 `This month’s picks include a feminist coming-of-age tale from India, a documentary about grasshopper harvesting in Uganda, a queer fable from Brazil and more.`\
 https://nytimes.com/2026/04/03/movies/five-international-movies-to-stream-now.html
-
-**With Polka Dots and Microtones, Angine de Poitrine Has Gone Viral**\
-`The virtuosic rock duo from Quebec releases its second album, “Vol. II,” this week.`\
-https://nytimes.com/2026/04/03/arts/music/angine-de-poitrine-vol-ii.html
-
-**The Windup: The ninth teenager debut**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/7169409/2026/04/03/konnor-griffin-mlb-debut-the-windup/
-
-**Fantasy baseball waiver wire targets: Why adding Max Muncy is a no-brainer and much more**\
-`John Laghezza's first waiver wire column this season offers loads of intel, including must-adds, stashes, two-start pitchers and more. `\
-https://nytimes.com/athletic/7164633/2026/04/03/fantasy-baseball-waiver-wire-max-muncy/
 
