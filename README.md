@@ -1,3 +1,7 @@
+**Wrexham have evolved - and why West Brom are the perfect yardstick**\
+`Wrexham looked well short of Championship level when they were humbled by West Brom in August. But they're a different beast now`\
+https://nytimes.com/athletic/7160305/2026/04/03/wrexham-west-brom-squad-championship/
+
 **Two Diaries of War, From Opposing Sides of Iran’s Political Divide**\
 `One supports the regime, the other desires change. Each offers a personal account of the terrifying sights and frayed emotions of a city under attack.`\
 https://nytimes.com/interactive/2026/04/03/magazine/iranians-war-regime-us-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/spotlight/wedding-guides
 **What’s More Soothing Than Hearing Sean Bean Talk About Birds? Nothing.**\
 `Text by Alexander Aciman`\
 https://nytimes.com/card/2026/04/03/smarter-living/wirecutter/sean-bean-birdwatching-tips
-
-**Store to refund millions if UConn teams reach title games: ‘We’re hoping that it’ll happen’**\
-`Jordan's Furniture says it could owe $50 million in refunds to customers if both Huskies basketball teams win Final Four games.`\
-https://nytimes.com/athletic/7167530/2026/04/03/furniture-store-uconn-basketball-promotion/
 
