@@ -1,3 +1,15 @@
+**The night Barcelona crowned Alexia Putellas their queen at the new Camp Nou**\
+`The Spain midfielder celebrated her 500th Barca appearance by becoming the women's team's first scorer at the redeveloped stadium`\
+https://nytimes.com/athletic/7168810/2026/04/03/alexia-putellas-barcelona-real-madrid-500/
+
+**At War With Iran Again, Some Israelis Fear Conflict Is Becoming Routine**\
+`A majority of Israelis support the war with Iran, but many doubt that it will solve Israel’s long-term security problems. Some also question their prime minister’s assurances and motives.`\
+https://nytimes.com/2026/04/03/world/middleeast/israel-war-mood.html
+
+**Jayson Tatum has his swagger back and that's bad news for the rest of the NBA**\
+`Since his return from an Achilles injury, Jayson Tatum has dispelled most of the concerns about how he'd fit in with the Celtics.`\
+https://nytimes.com/athletic/7167262/2026/04/03/celtics-jayson-tatum-return-injury/
+
 **The New York Times News Quiz, April 3, 2026**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2026/04/03/briefing/news-quiz-artemis-trump-supreme-court.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/04/03/opinion/birthright-supreme-court-conversation-the
 **On ‘Company Retreat,’ Anthony Norman Finished the Job**\
 `The unwitting hero of this Amazon prank comedy series acted heroically in the final episode.`\
 https://nytimes.com/2026/04/03/arts/television/jury-duty-company-retreat-anthony-norman.html
-
-**His Film Is Intended to Provoke Both Supporters and Opponents of Israel**\
-`The director Nadav Lapid uses his work to confront his discomfort with nationalism in his home country, never more so than in “Yes.”`\
-https://nytimes.com/2026/04/03/movies/yes-movie-israel-gaza-nadav-lapid.html
-
-**Economists Once Dismissed the A.I. Job Threat, but Not Anymore**\
-`Artificial intelligence hasn’t disrupted the labor market, economists say, but they are increasingly convinced that it will — and that policymakers are unprepared.`\
-https://nytimes.com/2026/04/03/business/economists-once-dismissed-the-ai-job-threat-but-not-anymore.html
-
-**How Far Would You Go to Learn From Werner Herzog?**\
-`In January, 50 artists from all over the world were chosen to shoot shorts in the Azores, guided by the iconic filmmaker. They just had to find $10,000 and airfare to get there.`\
-https://nytimes.com/2026/04/03/style/werner-herzog-workshop-filmmakers.html
 

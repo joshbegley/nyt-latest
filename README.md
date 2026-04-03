@@ -1,3 +1,11 @@
+**How to watch Cardinals vs. Tigers: Time, TV, streaming for April 3**\
+`Find out how to watch the St. Louis Cardinals play the Detroit Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7168924/2026/04/03/cardinals-vs-tigers-stream-how-to-watch-april-3/
+
+**How to watch Dodgers vs. Nationals: Time, TV, streaming for April 3**\
+`Find out how to watch the Los Angeles Dodgers play the Washington Nationals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7168922/2026/04/03/dodgers-vs-nationals-stream-how-to-watch-april-3/
+
 **The night Barcelona crowned Alexia Putellas their queen at the new Camp Nou**\
 `The Spain midfielder celebrated her 500th Barca appearance by becoming the women's team's first scorer at the redeveloped stadium`\
 https://nytimes.com/athletic/7168810/2026/04/03/alexia-putellas-barcelona-real-madrid-500/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2026/04/03/world/middleeast/israel-military-sout
 **Is There a Proper Way to Eat Chip Dust?**\
 `A ruling on the consumption of snack dregs.`\
 https://nytimes.com/interactive/2026/04/03/magazine/potato-chip-bag-hodgman-quiz.html
-
-**Is It Legal to Bully the Supreme Court?**\
-`It may be a new world, but “it’s the same Constitution.”`\
-https://nytimes.com/2026/04/03/opinion/birthright-supreme-court-conversation-therapy.html
-
-**On ‘Company Retreat,’ Anthony Norman Finished the Job**\
-`The unwitting hero of this Amazon prank comedy series acted heroically in the final episode.`\
-https://nytimes.com/2026/04/03/arts/television/jury-duty-company-retreat-anthony-norman.html
 

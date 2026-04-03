@@ -1,3 +1,15 @@
+**The night Barcelona crowned Alexia Putellas their queen at the new Camp Nou**\
+`The Spain midfielder celebrated her 500th Barca appearance by becoming the women's team's first scorer at the redeveloped stadium`\
+https://nytimes.com/athletic/7168810/2026/04/03/alexia-putellas-barcelona-real-madrid-500/
+
+**At War With Iran Again, Some Israelis Fear Conflict Is Becoming Routine**\
+`A majority of Israelis support the war with Iran, but many doubt that it will solve Israel’s long-term security problems. Some also question their prime minister’s assurances and motives.`\
+https://nytimes.com/2026/04/03/world/middleeast/israel-war-mood.html
+
+**Jayson Tatum has his swagger back and that's bad news for the rest of the NBA**\
+`Since his return from an Achilles injury, Jayson Tatum has dispelled most of the concerns about how he'd fit in with the Celtics.`\
+https://nytimes.com/athletic/7167262/2026/04/03/celtics-jayson-tatum-return-injury/
+
 **The New York Times News Quiz, April 3, 2026**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2026/04/03/briefing/news-quiz-artemis-trump-supreme-court.html
