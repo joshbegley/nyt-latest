@@ -1,3 +1,7 @@
+**‘Under Protest,’ Raw Dairy Farm Recalls Cheddar Linked to 9 E. Coli Cases**\
+`Raw Farm, a dairy producer in California, denies that its products have caused the outbreak, which has sickened people in three states.`\
+https://nytimes.com/2026/04/03/business/fda-raw-farm-cheese-recall-e-coli.html
+
 **Cubs ace Cade Horton leaves start in second inning with injury**\
 `Horton worked a quick, 1-2-3 first inning but issued a rare walk to start the second, then threw two pitches before motioning to the dugout.`\
 https://nytimes.com/athletic/7170376/2026/04/03/chicago-cubs-cade-horton-injury/

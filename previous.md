@@ -1,3 +1,7 @@
+**‘Under Protest,’ Raw Dairy Farm Recalls Cheddar Linked to 9 E. Coli Cases**\
+`Raw Farm, a dairy producer in California, denies that its products have caused the outbreak, which has sickened people in three states.`\
+https://nytimes.com/2026/04/03/business/fda-raw-farm-cheese-recall-e-coli.html
+
 **Cubs ace Cade Horton leaves start in second inning with injury**\
 `Horton worked a quick, 1-2-3 first inning but issued a rare walk to start the second, then threw two pitches before motioning to the dugout.`\
 https://nytimes.com/athletic/7170376/2026/04/03/chicago-cubs-cade-horton-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/03/world/middleeast/f-15-us-fighter-jet-iran.html
 **Preschool Instructor Charged With Sexually Assaulting Children**\
 `A 43-year-old man was accused of abusing “multiple” children over a period of 11 years in South Jersey, and prosecutors fear there could be more victims, given his employment.`\
 https://nytimes.com/2026/04/03/nyregion/nj-preschool-instructor-sexual-assault-children.html
-
-**How iPhones Found Their Way Into Space**\
-`The astronauts traveling in the Artemis II spacecraft were allowed to take smartphones with them. Sadly, they can’t connect to the internet.`\
-https://nytimes.com/2026/04/03/technology/iphones-artemis-nasa.html
 
