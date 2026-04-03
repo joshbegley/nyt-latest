@@ -1,3 +1,15 @@
+**Luka Dončić injures hamstring during Lakers game vs. Thunder**\
+`Dončić, a top MVP candidate, suffered the injury in his 64th game of the season, putting his award eligibility in jeopardy.`\
+https://nytimes.com/athletic/7168488/2026/04/02/luka-doncic-injury-hamstring-lakers-thunder/
+
+**Lightning serve Penguins a humbling loss: 'They outworked us and outsmarted us'**\
+`The Penguins never looked in control against the Lightning and fell prey to yet more short-handed goals in Tampa.`\
+https://nytimes.com/athletic/7168228/2026/04/02/penguins-karlsson-shorthanded-chinakhov-playoffs-lightning/
+
+**'I was just talking to the president,' Tiger Woods says in footage after accident**\
+`Woods mentioned "the president" as he walked past an officer who asked that he stay near the scene of the automobile accident.`\
+https://nytimes.com/athletic/7168401/2026/04/02/tiger-woods-dui-bodycam-footage-arrest-president-call/
+
 **Soft and slow Blue Jackets get destroyed by Hurricanes, knocked out of playoff spot**\
 `The Blue Jackets finished with only 10 shots on goal Thursday, matching a franchise record that has stood for more than 23 years.`\
 https://nytimes.com/athletic/7168245/2026/04/02/blue-jackets-hurricanes-nhl-playoffs/
