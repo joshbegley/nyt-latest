@@ -1,3 +1,15 @@
+**French Politician Is Charged With Glorifying Terrorism in Social Media Post**\
+`Rima Hassan, a member of the European Parliament, could face seven years in prison for the post, in which she quoted a perpetrator of a 1972 massacre in Israel.`\
+https://nytimes.com/2026/04/03/rima-hassan-france-terrorism-charges.html
+
+**Can the Maple Leafs get Doug Armstrong for a draft pick? No. Here's why**\
+`Compensation to a team for letting someone under contract leave to work for another organization has not been allowed for 10 years.`\
+https://nytimes.com/athletic/7169497/2026/04/03/nhl-personnel-compensation-rules-doug-armstrong/
+
+**Is the SEC serious about ditching its championship game? 'Its days are numbered'**\
+`In an expanded College Football Playoff — currently at 12, probably even more soon — being the conference champion is almost irrelevant.`\
+https://nytimes.com/athletic/7169578/2026/04/03/sec-championship-game-ending-greg-sankey/
+
 **Why Is the Labor Market Stuck?**\
 `Our chief economics correspondent, Ben Casselman, describes how a “low-hire, low-fire” labor market has left American job-seekers in a bind.`\
 https://nytimes.com/video/business/100000010815978/why-is-the-labor-market-stuck.html
