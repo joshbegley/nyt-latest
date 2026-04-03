@@ -1,3 +1,11 @@
+**‘The Pitt’ Season 2 Episode 13 Recap: Should He Stay or Should He Go?**\
+`Dr. Robby finally says what his colleagues had been thinking.`\
+https://nytimes.com/2026/04/02/arts/television/the-pitt-season-2-episode-13-recap.html
+
+**Swimmer’s Assignment**\
+`Carolyn Davies Lynch and Brian Callahan open our solving weekend.`\
+https://nytimes.com/2026/04/02/crosswords/daily-puzzle-2026-04-03.html
+
 **Dodgers buck tradition, add alternate blue jersey to road uniform rotation**\
 `This will mark the first time the Dodgers will go to the color for a road alternate look. It will be the third in their rotation.`\
 https://nytimes.com/athletic/7168258/2026/04/02/los-angeles-dodgers-road-blue-uniform/

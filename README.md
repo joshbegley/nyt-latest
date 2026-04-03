@@ -1,3 +1,7 @@
+**Trump’s Strait of Hormuz Problem**\
+`Our White House reporter Zolan Kanno-Youngs parses some of President Trump’s conflicting messages about the war with Iran.`\
+https://nytimes.com/video/world/middleeast/100000010815863/trumps-strait-of-hormuz-problem.html
+
 **‘The Pitt’ Season 2 Episode 13 Recap: Should He Stay or Should He Go?**\
 `Dr. Robby finally says what his colleagues had been thinking.`\
 https://nytimes.com/2026/04/02/arts/television/the-pitt-season-2-episode-13-recap.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/02/us/gucci-mane-kidnapping-pooh-shiesty-big30.html
 **The Artemis II crew’s spacecraft feels bigger on the inside than you might think.**\
 `By Ashley Ahn`\
 https://nytimes.com/live/2026/04/02/science/artemis-nasa-moon-astronauts/artemis-spacecraft-living-quarters
-
-**Colombian captain James Rodríguez hospitalized for 'severe dehydration'**\
-`The Colombian federation released a statement saying that Rodríguez's dehydration episode "is not linked to his footballing activities."`\
-https://nytimes.com/athletic/7168108/2026/04/02/colombia-james-rodriguez-dehydration-health-update/
 
