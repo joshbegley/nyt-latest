@@ -1,3 +1,7 @@
+**Barcelona continue to dominate Real Madrid. Can this really be called El Clasico?**\
+`Barcelona and Real Madrid are equals in the men's game. For the women's teams, it is an entirely different story`\
+https://nytimes.com/athletic/7169777/2026/04/03/barcelona-femeni-real-madrid-gap/
+
 **Kentucky Fourth Congressional District 2026: Latest Polls**\
 `Track the latest polls in Kentucky's 4th Congressional District.`\
 https://nytimes.com/interactive/polls/kentucky-us-house-4-polls-2026.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/04/03/realestate/summer-house-mansion-for-sale.html
 **How to watch Texas vs. UCLA women's basketball: Semifinals Time, TV, streaming**\
 `Find out how to watch the Texas Longhorns play the UCLA Bruins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7169938/2026/04/03/texas-vs-ucla-stream-how-to-watch-april-3/
-
-**Hegseth Says U.S. Troops Are Fighting for Jesus. The Pope Disagrees.**\
-`In sharp contrast to the Trump administration’s calls for Christian prayers for the war effort, Pope Leo XIV says military domination is “entirely foreign to the way of Jesus Christ.”`\
-https://nytimes.com/2026/04/03/world/middleeast/pope-iran-war.html
 
