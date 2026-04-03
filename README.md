@@ -1,3 +1,7 @@
+**NBA trends I'm watching: Respecting Kon Knueppel, the Rookie of the Year front-runner**\
+`One Knicks guard is becoming unrecognizable, and one Wizards streak comes to an end.`\
+https://nytimes.com/athletic/7169356/2026/04/03/kon-knueppel-hornets-knicks-trends-nba/
+
 **Iranian media outlets say helicopters are searching for the crew of the downed jet.**\
 `By Leily Nikounazar and Yeganeh Torbati`\
 https://nytimes.com/live/2026/04/03/world/iran-war-trump-oil/iranian-media-outlets-say-helicopters-are-searching-for-the-crew-of-the-downed-jet
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/03/opinion/iran-war-trump-irgc-hormuz.html
 **The Show That Gives ‘Running Time’ a New Meaning**\
 `In “Burnout Paradise,” four performers try ambitious tasks while jogging. If they can’t beat their run time goal, the audience gets its money back.`\
 https://nytimes.com/2026/04/03/theater/burnout-paradise-treadmills-theater-off-broadway.html
-
-**Five International Movies to Stream Now**\
-`This month’s picks include a feminist coming-of-age tale from India, a documentary about grasshopper harvesting in Uganda, a queer fable from Brazil and more.`\
-https://nytimes.com/2026/04/03/movies/five-international-movies-to-stream-now.html
 
