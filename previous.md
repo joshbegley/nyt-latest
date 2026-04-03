@@ -1,3 +1,19 @@
+**Luka Dončić to miss rest of regular season with hamstring injury, Lakers announce**\
+`Dončić's status for the playoffs, which begin in 15 days, remains uncertain. `\
+https://nytimes.com/athletic/7170499/2026/04/03/luka-doncic-injury-update-season-ending-lakers-nba/
+
+**Ruff shakes things up as Sabres attempt to end playoff drought: Notebook**\
+`Buffalo has been in a funk, and coach Lindy Ruff put the Sabres through an intense practice Friday as they eye clinching a playoff spot.`\
+https://nytimes.com/athletic/7170331/2026/04/03/sabres-playoffs-lindy-ruff-line-changes/
+
+**One of Two Americans Rescued After Iran Downs a U.S. Jet**\
+`Also, job growth rebounded in March. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2026/04/03/briefing/us-jet-iran-search-job-growth.html
+
+**23 Days in Iraq: U.S. Pilot Shot Down During Invasion Recalls Battle for Survival**\
+`Ronald Young Jr. was in the Army when his Apache Longbow copter went down during the U.S. invasion of Iraq.`\
+https://nytimes.com/2026/04/03/world/middleeast/iraq-us-pow-rescue-survival.html
+
 **Carol Mullins, Who Illuminated Dance for Decades, Dies at 86**\
 `She knew nothing about lighting when the director Robert Wilson asked her to work on his shows, and later spent over 40 years as a designer for Danspace Project.`\
 https://nytimes.com/2026/04/03/arts/dance/carol-mullins-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/world/asia/100000010820649/philippines-gas-prices-holy
 **Dolores Keane, Singer Known as the ‘Soul of Ireland,’ Dies at 72**\
 `She sang of homesickness and longing, and often collaborated with American musicians like John Prine and Emmylou Harris.`\
 https://nytimes.com/2026/04/03/arts/music/dolores-keane-dead.html
-
-**Chiefs' Rashee Rice won't face discipline from NFL over civil lawsuit allegations**\
-`Earlier this year, Rice was accused of assault by the mother of his children in a Dallas County, Texas, civil lawsuit.`\
-https://nytimes.com/athletic/7170405/2026/04/03/rashee-rice-suspension-news-chiefs/
-
-**How the Fuel Crisis Crimped an Easter Pilgrimage**\
-`Surging gasoline prices in the Philippines have forced some people to cancel or scale back the Visita Iglesia, a Holy Week tradition in which Catholics travel to seven churches.`\
-https://nytimes.com/2026/04/03/world/asia/philippines-holy-week-oil-fuel-prices.html
-
-**Le Tissier appointed by Southampton in formal advisory role**\
-`Le Tissier previously stepped down from his role as club ambassador in 2022 following criticism of his social media activity.`\
-https://nytimes.com/athletic/7170372/2026/04/03/southampton-matt-le-tissier-return-championship/
-
-**‘Under Protest,’ Raw Dairy Farm Recalls Cheddar Linked to 9 E. Coli Cases**\
-`Raw Farm, a dairy producer in California, denies that its products have caused the outbreak, which has sickened people in three states.`\
-https://nytimes.com/2026/04/03/business/fda-raw-farm-cheese-recall-e-coli.html
 

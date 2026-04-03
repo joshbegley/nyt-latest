@@ -1,3 +1,7 @@
+**Alejandro Kirk the latest injured Blue Jay after a foul tip hits his left thumb**\
+`After the game, the Blue Jays announced that they've signed Patrick Corbin to a one-year deal, adding rotation depth.`\
+https://nytimes.com/athletic/7170480/2026/04/03/blue-jays-alejandro-kirk-thumb-injury/
+
 **Luka Dončić to miss rest of regular season with hamstring injury, Lakers announce**\
 `Dončić's status for the playoffs, which begin in 15 days, remains uncertain. `\
 https://nytimes.com/athletic/7170499/2026/04/03/luka-doncic-injury-update-season-ending-lakers-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/03/world/middleeast/iran-missiles-drones-military.ht
 **High Gas Prices Hamper Holy Week Pilgrimage in the Philippines**\
 `Worshipers have scaled back and adjusted plans for the Visita Iglesia, a Holy Week tradition in which Catholics travel to seven churches in one day for prayer, as the war in Iran has doubled gas prices in the Philippines.`\
 https://nytimes.com/video/world/asia/100000010820649/philippines-gas-prices-holy-week-iran.html
-
-**Dolores Keane, Singer Known as the ‘Soul of Ireland,’ Dies at 72**\
-`She sang of homesickness and longing, and often collaborated with American musicians like John Prine and Emmylou Harris.`\
-https://nytimes.com/2026/04/03/arts/music/dolores-keane-dead.html
 
