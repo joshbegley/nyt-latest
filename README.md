@@ -1,40 +1,40 @@
-**The Human Cost of War**\
-`Our colleague spent two months in Kyiv.`\
-https://nytimes.com/2026/04/03/briefing/the-human-cost-of-war.html
+**The White House is readying a budget for the statistics agency that compiles the jobs report.**\
+`President Trump is set to release his new spending plan on Friday, after trying last year to cut funding for the federal bureau tasked with measuring the economy.`\
+https://nytimes.com/live/2026/04/03/business/jobs-report-economy/the-white-house-is-readying-a-budget-for-the-statistics-agency-that-compiles-the-jobs-report
 
-**TAFC: Tracking down £62m Mudryk in exile. Plus: Why Barcelona Femeni dominate Real Madrid**\
-`Today in TAFC: Tracking down Mykhailo Mudryk. Plus: Barcelona Femini thump Real Madrid 6-0, and a first glimpse at Inter Miami's new stadium`\
-https://nytimes.com/athletic/7168850/2026/04/03/mudryk-chelsea-ban-barcelona-putellas/
+**What to know about the report.**\
+`By Lydia DePillis`\
+https://nytimes.com/live/2026/04/03/business/jobs-report-economy/jobs-report-hiring-unemployment
 
-**FA Cup quarter-finals odds: Who will win through to Wembley?**\
-`The eight surviving clubs will become four this weekend, with one of the Premier League's heavyweights certain to bow out`\
-https://nytimes.com/athletic/7168963/2026/04/03/fa-cup-quarter-finals-odds-one-big-gun-must-go-will-arsenal-keep-treble-alive-and-what-chance-for-port-vale/
+**Live Updates: Data Will Give Insights on a Frozen Job Market**\
+`Employers are holding onto workers, keeping the unemployment rate in check, but sluggish hiring is making it difficult for job seekers.`\
+https://nytimes.com/live/2026/04/03/business/jobs-report-economy
 
-**Chelsea captain Fernandez dropped for Port Vale, Man City games**\
-`Rosenior said he was "disappointed" with Fernandez, whom he said "crossed the line" with comments on his future at the club.`\
-https://nytimes.com/athletic/7168986/2026/04/03/enzo-fernandez-rosenior-chelsea-dropped/
+**Who was the last quarterback signed, developed and retained by each Big 12 team?**\
+`Oklahoma State's entry on this list arrived as a walk-on. Iowa State's was Mr. Irrelevant in the 2022 NFL Draft. `\
+https://nytimes.com/athletic/7164897/2026/04/03/college-football-quarterbacks-big-12-recruiting/
 
-**Against analytics, Arizona opts for 2s. Even Steve Kerr approves of his Wildcats' approach**\
-`The other Final Four teams take a 3 at least 40 percent of the time. Then there's Arizona, trying from long-range 26.4 percent of the time.`\
-https://nytimes.com/athletic/7167485/2026/04/03/arizona-basketball-final-four-2026-march-madness-steve-kerr/
+**2026 NFL Draft consensus rankings: Jacob Rodriguez, Dillon Thieneman rising**\
+`Thieneman has positioned himself to be a potential top-20 pick, and Rodriguez isn't far behind. Which other prospects are climbing boards?`\
+https://nytimes.com/athletic/7166382/2026/04/03/nfl-draft-2026-consensus-rankings-top-100/
 
-**The Pulse: The kids are really, really good**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7168685/2026/04/03/konnor-griffin-mlb-rookies-the-pulse/
+**Ranking every Man City vs Liverpool game in the Guardiola era**\
+`With uncertainty over the City manager's future, how do the 26 meetings with his old adversaries compare?`\
+https://nytimes.com/athletic/7166394/2026/04/03/manchester-city-liverpool-pep-guardiola-matches-ranked/
 
-**Why Andy Reid's vision for new Chiefs QB Justin Fields is 'more than a gadget guy'**\
-`The Chiefs, by trading a 2027 sixth-round pick for Fields, are partly betting that their environment can bring out his best.`\
-https://nytimes.com/athletic/7166930/2026/04/03/chiefs-justin-fields-andy-reid/
+**Jets can't afford to let late surge prevent hard questions about organizational missteps**\
+`Even if the Jets manage to squeak into the playoffs, the series of decisions that led Winnipeg to this point needs sincere scrutiny.`\
+https://nytimes.com/athletic/7166777/2026/04/03/winnipeg-jets-cheveldayoff-roster-deployment-prospects-playoffs/
 
-**Soccer in Colombia: Growing a domestic league from national-team momentum**\
-`After years of fighting for fair treatment, the past decade has seen Colombia make serious strides toward a sustainable domestic league`\
-https://nytimes.com/athletic/7168508/2026/04/03/soccer-in-colombia-national-team/
+**Tour of Flanders: Pogačar and Kopecky again? And what can Remco Evenepoel do on his debut?**\
+`The Athletic's writers look ahead to the second Monument race of the 2026 season`\
+https://nytimes.com/athletic/7164948/2026/04/03/tour-of-flanders-preview-pogacar-van-der-poel-evenepoel-kopecky-vollering/
 
-**Red Wings get shot of adrenaline in win over Flyers, tied for playoff spot: 5 thoughts**\
-`Alex DeBrincat has been Detroit's most consistent forward this spring and delivered again Thursday with two crucial goals.`\
-https://nytimes.com/athletic/7168355/2026/04/03/detroit-red-wings-alex-debrincat-playoff-race/
+**World Cup 2026 stadium guides: Welcome to Miami Stadium, the greatest multi-sport venue in the United States… if not the world**\
+`It opened in 1987, making it one of the older stadiums to feature at the 2026 World Cup`\
+https://nytimes.com/athletic/7157895/2026/04/03/world-cup-2026-stadium-guides-miami/
 
-**Defensive miscues doom Flyers despite efforts of Tyson Foerster, Porter Martone**\
-`Too many defensive errors and not enough offensive finish burned the Flyers despite strong showings from Foerster and Martone.`\
-https://nytimes.com/athletic/7168505/2026/04/03/tyson-foerster-porter-martone-defense-miscues-flyers/
+**Cubs have a plan for unleashing Cade Horton, a homegrown starter with ace potential**\
+`The Cubs deliberately managed Horton's workload his rookie season, not allowing the right-hander to throw 100 pitches in a single start.`\
+https://nytimes.com/athletic/7168135/2026/04/03/cade-horton-cubs-ace-pitch-count/
 
