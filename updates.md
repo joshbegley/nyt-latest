@@ -1,3 +1,11 @@
+**How to watch Phillies vs. Rockies: Time, TV, streaming for April 3**\
+`Find out how to watch the Philadelphia Phillies play the Colorado Rockies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7169275/2026/04/03/phillies-vs-rockies-stream-how-to-watch-april-3/
+
+**White House Seeks $1.5 Trillion for Defense in New Budget Request**\
+`The huge, proposed increase would be offset in part by steep cuts to domestic programs, some of which the administration describes as wasteful.`\
+https://nytimes.com/2026/04/03/us/politics/white-house-defense-budget.html
+
 **Parents Who Borrowed for Children’s College Face Looming Deadline**\
 `New rules mean that parent PLUS loans have to be consolidated into a new loan by June 30 for parents to keep affordable payments. But the deadline is really earlier to allow time for processing.`\
 https://nytimes.com/2026/04/03/your-money/parent-plus-college-loans-deadline.html
