@@ -1,3 +1,15 @@
+**I’ve Been Rebuying the Same Boots for 16 Years**\
+`Clarks Desert Boots have been a wardrobe staple across the world for almost a century and in my closet for 16 years.`\
+https://nytimes.com/wirecutter/reviews/clarks-desert-boot-review/
+
+**What We Know About the U.S. Fighter Jet Shot Down by Iran**\
+`It was the first enemy downing of an American warplane during the war with Iran. The F-15E Strike Eagle was carrying two crew members, who ejected, officials said.`\
+https://nytimes.com/2026/04/03/world/middleeast/f-15-us-fighter-jet-iran.html
+
+**How iPhones Found Their Way Into Space**\
+`The astronauts traveling in the Artemis II spacecraft were allowed to take smartphones with them. Sadly, they can’t connect to the internet.`\
+https://nytimes.com/2026/04/03/technology/iphones-artemis-nasa.html
+
 **Preschool Instructor Charged With Sexually Assaulting Children**\
 `A 43-year-old man was accused of abusing “multiple” children over a period of 11 years in South Jersey, and prosecutors fear there could be more victims, given his employment.`\
 https://nytimes.com/2026/04/03/nyregion/nj-preschool-instructor-sexual-assault-children.html
