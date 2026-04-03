@@ -1,3 +1,7 @@
+**Pedro Friedeberg, Whose Hand Chair Drew Outsize Attention, Dies at 90**\
+`Known for his hallucinatory canvases of otherworldly structures, he cemented his fame with a hand-shaped chair that was both a work of art and a pop culture curio.`\
+https://nytimes.com/2026/04/03/arts/design/pedro-friedeberg-dead.html
+
 **NHL playoff watch: The critical races to monitor**\
 `There are only 113 games to go in the 2025-26 season — seven per team — so let’s jump into our latest scan around the league.`\
 https://nytimes.com/athletic/7169472/2026/04/03/nhl-playoff-standings-stanley-cup-race/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/03/arts/music/angine-de-poitrine-vol-ii.html
 **The Windup: The ninth teenager debut**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/7169409/2026/04/03/konnor-griffin-mlb-debut-the-windup/
-
-**Fantasy baseball waiver wire targets: Why adding Max Muncy is a no-brainer and much more**\
-`John Laghezza's first waiver wire column this season offers loads of intel, including must-adds, stashes, two-start pitchers and more. `\
-https://nytimes.com/athletic/7164633/2026/04/03/fantasy-baseball-waiver-wire-max-muncy/
 
