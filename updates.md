@@ -1,3 +1,7 @@
+**What to expect from the UEFA Women's Champions League semifinals**\
+`Barcelona's commanding 12-2 aggregate victory over rival Real Madrid was an outlier in an otherwise competitive quarterfinal round`\
+https://nytimes.com/athletic/7167325/2026/04/02/uefa-womens-champions-league-barcelona-arsenal-ol-lyonnes-bayern-munich/
+
 **Artemis II’s commander had a message for one of his oldest friends.**\
 `By Timothy Bella`\
 https://nytimes.com/live/2026/04/02/science/artemis-nasa-moon-astronauts/artemis-iis-commander-had-a-message-for-one-of-his-oldest-friends

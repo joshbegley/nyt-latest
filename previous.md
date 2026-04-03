@@ -23,7 +23,7 @@ https://nytimes.com/athletic/7168108/2026/04/02/colombia-james-rodriguez-dehydra
 https://nytimes.com/athletic/7167694/2026/04/02/twins-taj-bradley-100-mph-top-prospects/
 
 **What to expect from the UEFA Women's Champions League semifinals**\
-`Barcelona's commanding 12-2 victory over rivals Real Madrid was an outlier in an otherwise competitive quarterfinal round`\
+`Barcelona's commanding 12-2 aggregate victory over rival Real Madrid was an outlier in an otherwise competitive quarterfinal round`\
 https://nytimes.com/athletic/7167325/2026/04/02/uefa-womens-champions-league-barcelona-arsenal-ol-lyonnes-bayern-munich/
 
 **Anthony Edwards misses Thursday's game, making him ineligible for NBA awards**\
