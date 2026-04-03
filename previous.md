@@ -1,3 +1,7 @@
+**Pam Bondi Wanted a Graceful Exit. But Trump Wanted Her Gone.**\
+`Pam Bondi had a feeling her days as attorney general were numbered. But she didn’t expect President Trump to drop the curtain quite so soon.`\
+https://nytimes.com/2026/04/02/us/politics/pam-bondi-attorney-general-trump.html
+
 **Soft and slow Blue Jackets get destroyed by Hurricanes, knocked out of playoff spot**\
 `The Blue Jackets finished with only 10 shots on goal on Thursday, matching a franchise record that has stood for more than 23 years.`\
 https://nytimes.com/athletic/7168245/2026/04/02/blue-jackets-hurricanes-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7166877/2026/04/02/cade-cunningham-injury-update-pi
 **Corrections: April 3, 2026**\
 `Corrections that appeared in print on Friday, April 3, 2026.`\
 https://nytimes.com/2026/04/02/pageoneplus/corrections-april-3-2026.html
-
-**Artemis II’s commander had a message for one of his oldest friends.**\
-`By Timothy Bella`\
-https://nytimes.com/live/2026/04/02/science/artemis-nasa-moon-astronauts/artemis-iis-commander-had-a-message-for-one-of-his-oldest-friends
 
