@@ -1,3 +1,15 @@
+**Preschool Instructor Charged With Sexually Assaulting Children**\
+`A 43-year-old man was accused of abusing “multiple” children over a period of 11 years in South Jersey, and prosecutors fear there could be more victims, given his employment.`\
+https://nytimes.com/2026/04/03/nyregion/nj-preschool-instructor-sexual-assault-children.html
+
+**How iPhones Found Their Way Into Space**\
+`The astronauts traveling in the Artemis II spacecraft were allowed to bring smartphones with them. Sadly, they can’t connect to the internet.`\
+https://nytimes.com/2026/04/03/technology/iphones-artemis-nasa.html
+
+**Toronto Tempo and Portland Fire select players in WNBA expansion draft**\
+`Bridget Carleton has a new home. The draft was topped by international stars making moves.`\
+https://nytimes.com/athletic/7170311/2026/04/03/toronto-tempo-portland-fire-wnba-expansion-draft/
+
 **Iran Is Quickly Repairing Missile Bunkers, U.S. Intelligence Says**\
 `Reports cast doubt on how close the United States is to destroying Iran’s missile capability, a key goal in the war.`\
 https://nytimes.com/2026/04/03/us/politics/iran-missiles-launchers.html
