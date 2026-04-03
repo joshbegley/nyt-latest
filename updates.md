@@ -1,3 +1,7 @@
+**Myanmar Junta Chief Ascends to President, Five Years After Coup**\
+`U Min Aung Hlaing’s elevation to the civilian post is the conclusion of elections in the country, which were stage managed by the military.`\
+https://nytimes.com/2026/04/03/world/asia/myanmar-president-min-aung-hlaing.html
+
 **A blowout loss was bad. What happened to Luka Dončić and the Lakers was worse**\
 `The Lakers didn't just lose big in Oklahoma City — they may have lost something more. `\
 https://nytimes.com/athletic/7168707/2026/04/03/luka-doncic-lakers-injury-thunder-nba/
