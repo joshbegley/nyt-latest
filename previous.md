@@ -1,3 +1,7 @@
+**How Do You Count 1.4 Billion People? India Is Trying.**\
+`India’s 2027 census will shape how wealth and power is distributed and inform policies around castes and women in the world’s most populous nation.`\
+https://nytimes.com/2026/04/03/world/asia/india-census-population.html
+
 **xA brief history of international sports' biggest underperformers**\
 `In the wake of Italy's failure to make a third soccer World Cup, our writers detail the biggest international underperformers in sports`\
 https://nytimes.com/athletic/7167576/2026/04/03/international-sports-olympics-lebron-ohtani-ferrari/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7169071/2026/04/03/elche-cf-vs-rayo-vallecano-strea
 **What's next for the Browns? Draft decisions and a potential QB battle await**\
 `We predict how Cleveland's decision-makers will address some of the team's major issues as the NFL Draft draws near. `\
 https://nytimes.com/athletic/7165054/2026/04/03/browns-nfl-draft-quarterback-competition/
-
-**The White House is readying a budget for the statistics agency that compiles the jobs report.**\
-`President Trump is set to release his new spending plan on Friday, after trying last year to cut funding for the federal bureau tasked with measuring the economy.`\
-https://nytimes.com/live/2026/04/03/business/jobs-report-economy/the-white-house-is-readying-a-budget-for-the-statistics-agency-that-compiles-the-jobs-report
 

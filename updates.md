@@ -1,3 +1,7 @@
+**How Do You Count 1.4 Billion People? India Is Trying.**\
+`India’s 2027 census will shape how wealth and power is distributed and inform policies around castes and women in the world’s most populous nation.`\
+https://nytimes.com/2026/04/03/world/asia/india-census-population.html
+
 **xA brief history of international sports' biggest underperformers**\
 `In the wake of Italy's failure to make a third soccer World Cup, our writers detail the biggest international underperformers in sports`\
 https://nytimes.com/athletic/7167576/2026/04/03/international-sports-olympics-lebron-ohtani-ferrari/
