@@ -1,3 +1,15 @@
+**Pistons learning valuable lessons for playoffs with Cade Cunningham sidelined**\
+`Detroit has had to dig deep with its star out, which could benefit the team in the postseason.`\
+https://nytimes.com/athletic/7168544/2026/04/03/pistons-lessons-playoffs-cade-cunningham-injury/
+
+**Lowetide: Why the Oilers' defensive tweaks are gaining traction**\
+`Winners of five straight, the Oilers have reached Easter weekend looking like a Stanley Cup contender again.`\
+https://nytimes.com/athletic/7166761/2026/04/03/edmonton-oilers-stats-defensive-tweaks/
+
+**What Jonah Elliss' position change could mean for Broncos' defense, draft plans**\
+`Que Robinson, who sacked Patriots QB Drake Maye in the AFC Championship Game, should see more pass-rushing reps this offseason.`\
+https://nytimes.com/athletic/7167087/2026/04/03/jonah-elliss-denver-broncos-draft/
+
 **Trump Administration Live Updates: Hegseth Fires Army Chief Amid Feud With Its Leaders**\
 ``\
 https://nytimes.com/live/2026/04/03/us/trump-news

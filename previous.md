@@ -1,3 +1,15 @@
+**Pistons learning valuable lessons for playoffs with Cade Cunningham sidelined**\
+`Detroit has had to dig deep with its star out, which could benefit the team in the postseason.`\
+https://nytimes.com/athletic/7168544/2026/04/03/pistons-lessons-playoffs-cade-cunningham-injury/
+
+**Lowetide: Why the Oilers' defensive tweaks are gaining traction**\
+`Winners of five straight, the Oilers have reached Easter weekend looking like a Stanley Cup contender again.`\
+https://nytimes.com/athletic/7166761/2026/04/03/edmonton-oilers-stats-defensive-tweaks/
+
+**What Jonah Elliss' position change could mean for Broncos' defense, draft plans**\
+`Que Robinson, who sacked Patriots QB Drake Maye in the AFC Championship Game, should see more pass-rushing reps this offseason.`\
+https://nytimes.com/athletic/7167087/2026/04/03/jonah-elliss-denver-broncos-draft/
+
 **Trump Administration Live Updates: Hegseth Fires Army Chief Amid Feud With Its Leaders**\
 ``\
 https://nytimes.com/live/2026/04/03/us/trump-news
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7169073/2026/04/03/alexander-isak-liverpool-alisson
 **How to watch Blue Jays vs. White Sox: Time, TV, streaming for April 3**\
 `Find out how to watch the Toronto Blue Jays play the Chicago White Sox, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7169094/2026/04/03/blue-jays-vs-white-sox-stream-how-to-watch-april-3/
-
-**How to watch Marlins vs. Yankees: Time, TV, streaming for April 3**\
-`Find out how to watch the Miami Marlins play the New York Yankees, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7169085/2026/04/03/marlins-vs-yankees-stream-how-to-watch-april-3/
-
-**How to watch Padres vs. Red Sox: Time, TV, streaming for April 3**\
-`Find out how to watch the San Diego Padres play the Boston Red Sox, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7169083/2026/04/03/padres-vs-red-sox-stream-how-to-watch-april-3/
-
-**‘The Headlines’ News Quiz: Apr. 3, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://nytimes.com/2026/04/03/podcasts/the-headlines/the-headlines-news-quiz-apr-3-2026.html
 
