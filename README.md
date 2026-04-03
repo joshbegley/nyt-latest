@@ -27,7 +27,7 @@ https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/israel-plans-to-s
 https://nytimes.com/athletic/7168363/2026/04/03/tom-dundon-blazers-owner-nba-portland/
 
 **White House Seeks $1.5 Trillion for Defense in New Budget Request**\
-`The massive, proposed increase would be offset in part by steep cuts to domestic programs, some of which the administration describes as wasteful.`\
+`The huge, proposed increase would be offset in part by steep cuts to domestic programs, some of which the administration describes as wasteful.`\
 https://nytimes.com/2026/04/03/us/politics/white-house-defense-budget.html
 
 **Gattuso leaves Italy head coach role after World Cup qualification failure**\

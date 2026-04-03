@@ -1,3 +1,15 @@
+**Parents Who Borrowed for Children’s College Face Looming Deadline**\
+`New rules mean that parent PLUS loans have to be consolidated into a new loan by June 30 for parents to keep affordable payments. But the deadline is really earlier to allow time for processing.`\
+https://nytimes.com/2026/04/03/your-money/parent-plus-college-loans-deadline.html
+
+**Wolves' Naz Reid searches for ways out of his funk and back into folk hero status**\
+`The fan favorite and former NBA Sixth Man of the Year has battled a shoulder injury and other issues, though he had 19 points on Thursday.`\
+https://nytimes.com/athletic/7167634/2026/04/03/naz-reid-timberwolves-slump-playoffs/
+
+**White House Seeks $1.5 Trillion for Defense in New Budget Request**\
+`The massive, proposed increase would be offset in part by steep cuts to domestic programs, some of which the administration describes as wasteful.`\
+https://nytimes.com/2026/04/03/us/politics/white-house-defense-budget.html
+
 **Which Final Four draft prospects should Bucks fans pay attention to?**\
 `Milwaukee will have a lottery pick for the first time 10 years. Final Four stars like Keaton Wagler and Brayden Burries could be available.`\
 https://nytimes.com/athletic/7116476/2026/04/03/bucks-final-four-nba-draft-scouting/
