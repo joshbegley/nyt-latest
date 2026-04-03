@@ -1,3 +1,7 @@
+**Word of the Day: inculcate**\
+`This word has appeared in 11 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/04/03/learning/word-of-the-day-inculcate.html
+
 **Late Night Says Goodbye to Pam Bondi**\
 `President Trump is “on a bit of a firing spree,” Jimmy Fallon said on “The Tonight Show” on Thursday, adding, “Ironically, the only staffer who has immunity is RFK Jr.”`\
 https://nytimes.com/2026/04/03/arts/television/late-night-pam-bondi.html

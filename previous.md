@@ -1,3 +1,7 @@
+**Word of the Day: inculcate**\
+`This word has appeared in 11 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/04/03/learning/word-of-the-day-inculcate.html
+
 **Late Night Says Goodbye to Pam Bondi**\
 `President Trump is “on a bit of a firing spree,” Jimmy Fallon said on “The Tonight Show” on Thursday, adding, “Ironically, the only staffer who has immunity is RFK Jr.”`\
 https://nytimes.com/2026/04/03/arts/television/late-night-pam-bondi.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7168119/2026/04/03/wild-boldy-kaprizov-40-goals-hug
 **The 'cluster' injuries that have left Arsenal short**\
 `Arsenal's squad was enlarged last summer – and the pattern of injuries they have suffered this season shows it was a necessary decision`\
 https://nytimes.com/athletic/7163720/2026/04/03/arsenal-clustered-injuries-saka-rice-madueke-gabriel-saliba/
-
-**Owen Coyle Jr on Forest's loan strategy, and keeping a close eye on Kalimuendo, Bindon and Jota Silva**\
-`Coyle speaks to The Athletic about his unusual football pathway, and why he is enjoying life at the City Ground`\
-https://nytimes.com/athletic/7164882/2026/04/03/owen-coyle-nottingham-forest-loans/
 
