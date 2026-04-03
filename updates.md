@@ -1,3 +1,7 @@
+**Georgia Lawmakers End Session Without Fixing a Threat to Its Midterm Elections**\
+`The state legislature failed to push back a deadline that requires Georgia to get rid of its current voting system and find a new one — all before November.`\
+https://nytimes.com/2026/04/03/us/elections/georgia-voting-systems-midterm-elections.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/04/03/crosswords/spelling-bee-forum.html
