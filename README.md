@@ -1,3 +1,7 @@
+**Hegseth Says U.S. Troops Are Fighting for Jesus. The Pope Disagrees.**\
+`In sharp contrast to the Trump administration’s calls for Christian prayers for the war effort, Pope Leo XIV says military domination is “entirely foreign to the way of Jesus Christ.”`\
+https://nytimes.com/2026/04/03/world/middleeast/pope-iran-war.html
+
 **United to Offer No-Frills Fares in Its Premium Cabins**\
 `United is introducing restrictive base fares in its most profitable cabins: premium economy and business class.`\
 https://nytimes.com/2026/04/03/business/united-airlines-fares-premium-cabins.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/04/03/opinion/pam-bondi-trump.html
 **What I’m seeing at the Nationals’ home opener:  ‘All kinds of liquid,’ early pregame work**\
 `How Blake Butera is emphasizing improvement on defense, new details inside the clubhouse showing the team's culture, and more.`\
 https://nytimes.com/athletic/7169765/2026/04/03/washington-nationals-blake-butera-win-shirt/
-
-**A'ja Wilson says she'll return to Aces: 'I'm not looking anywhere'**\
-`Wilson will be able to capitalize on the substantial salary increase in the new collective bargaining agreement.`\
-https://nytimes.com/athletic/7169623/2026/04/03/aja-wilson-las-vegas-aces-return/
 
