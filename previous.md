@@ -1,3 +1,7 @@
+**The Pulse: The kids are really, really good**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7168685/2026/04/03/konnor-griffin-mlb-rookies-the-pulse/
+
 **Why Andy Reid's vision for new Chiefs QB Justin Fields is 'more than a gadget guy'**\
 `The Chiefs, by trading a 2027 sixth-round pick for Fields, are partly betting that their environment can bring out his best.`\
 https://nytimes.com/athletic/7166930/2026/04/03/chiefs-justin-fields-andy-reid/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7168572/2026/04/03/jonathan-toews-comparisons-black
 **WNBA expansion draft 2026: What to know and how to watch**\
 `The Toronto Tempo and Portland Fire, the WNBA's two new teams, start filling out their inaugural rosters. Here's how to tune in Friday.`\
 https://nytimes.com/athletic/7159714/2026/04/03/wnba-expansion-draft-tv-toronto-tempo-portland-fire/
-
-**Macklin Celebrini deserves Hart Trophy votes for carrying the Sharks and wowing the world**\
-`At age 19, Celebrini has already proven that he belongs among the NHL's greats.`\
-https://nytimes.com/athletic/7167749/2026/04/03/macklin-celebrini-hart-trophy-sharks/
 

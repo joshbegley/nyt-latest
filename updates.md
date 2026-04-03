@@ -1,3 +1,7 @@
+**The Pulse: The kids are really, really good**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7168685/2026/04/03/konnor-griffin-mlb-rookies-the-pulse/
+
 **Why Andy Reid's vision for new Chiefs QB Justin Fields is 'more than a gadget guy'**\
 `The Chiefs, by trading a 2027 sixth-round pick for Fields, are partly betting that their environment can bring out his best.`\
 https://nytimes.com/athletic/7166930/2026/04/03/chiefs-justin-fields-andy-reid/
