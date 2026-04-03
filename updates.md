@@ -1,3 +1,15 @@
+**How Do I Recreate Julianne Moore’s Eye Makeup?**\
+`The secret to the actress’s reddish-brown tint from a recent Pedro Almodóvar film.`\
+https://nytimes.com/2026/04/03/t-magazine/julianne-moore-makeup.html
+
+**How Lagavulin Builds Whisky for the Ages**\
+`After almost a decade without a permanent addition to its lineup, one of Scotland's most storied distilleries introduces something unexpected.`\
+https://nytimes.com/paidpost/lagavulin/how-lagavulin-builds-whisky-for-the-ages.html
+
+**NASA Unveils 1st Earth Photos From Artemis II: ‘You Look Beautiful.’**\
+`The pictures were released on the third day of the first mission since 1972 to send people around the moon.`\
+https://nytimes.com/2026/04/03/science/nasa-artemis-moon-photos.html
+
 **As the future of the SEC Championship Game is in peril, here’s why it could be here to stay**\
 `In an expanded College Football Playoff — currently at 12, probably even more soon — being the conference champion is almost irrelevant.`\
 https://nytimes.com/athletic/7169578/2026/04/03/sec-championship-game-ending-greg-sankey/
