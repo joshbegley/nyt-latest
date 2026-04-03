@@ -1,3 +1,11 @@
+**No Ant, no Cade, no Luka? NBA awards race is officially a fiasco**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7166607/2026/04/03/nba-awards-65-game-luka-doncic-cade-cunningham-anthony-edwards/
+
+**Submit your Padres questions for Dennis Lin’s mailbag**\
+`One of the most important seasons in Padres history is underway. What questions do you have about the start of the 2026 campaign?`\
+https://nytimes.com/athletic/7168681/2026/04/03/padres-mailbag-submission-form-2026-season-start/
+
 **U.S. Searches for Crew After Fighter Jet Shot Down Over Iran, U.S. Officials Say**\
 `The fate of the plane’s crew was unclear, as American officials scrambled to mount a search and rescue operation.`\
 https://nytimes.com/2026/04/03/us/politics/us-fighter-jet-iran.html

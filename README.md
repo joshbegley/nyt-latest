@@ -1,3 +1,11 @@
+**How will Luka Dončić's injury impact the rest of the Lakers' season, playoffs?**\
+`At this point, the Lakers' priority moving forward should be their superstar's playoff availability.`\
+https://nytimes.com/athletic/7168763/2026/04/03/luka-doncic-hamstring-injury-lakers-nba-playoffs/
+
+**Canucks clinch top draft lottery odds: Now it's time to root against Quinn Hughes' Wild**\
+`Where exactly the first-round pick Vancouver acquired from the Wild falls could legitimately matter.`\
+https://nytimes.com/athletic/7168598/2026/04/03/canucks-quinn-hughes-lottery-odds-playoffs-wild/
+
 **No Ant, no Cade, no Luka? NBA awards race is officially a fiasco**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7166607/2026/04/03/nba-awards-65-game-luka-doncic-cade-cunningham-anthony-edwards/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7169293/2026/04/03/reds-vs-rangers-stream-how-to-wa
 **How to watch Rays vs. Twins: Time, TV, streaming for April 3**\
 `Find out how to watch the Tampa Bay Rays play the Minnesota Twins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7169287/2026/04/03/rays-vs-twins-stream-how-to-watch-april-3/
-
-**How to watch Phillies vs. Rockies: Time, TV, streaming for April 3**\
-`Find out how to watch the Philadelphia Phillies play the Colorado Rockies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7169275/2026/04/03/phillies-vs-rockies-stream-how-to-watch-april-3/
-
-**Parents Who Borrowed for Children’s College Face Looming Deadline**\
-`New rules mean that parent PLUS loans have to be consolidated into a new loan by June 30 for parents to keep affordable payments. But the deadline is really earlier to allow time for processing.`\
-https://nytimes.com/2026/04/03/your-money/parent-plus-college-loans-deadline.html
 
