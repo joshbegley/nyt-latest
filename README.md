@@ -1,3 +1,11 @@
+**Stray Bullet That Killed Baby Girl in Brooklyn Also Grazed Brother**\
+`A man was arrested and charged with murder, attempted murder and assault in connection to a shooting on Wednesday that killed an infant.`\
+https://nytimes.com/2026/04/03/nyregion/baby-murder-williamsburg-arrest.html
+
+**Why We Chose to Go Back to the Moon**\
+`These lunar resources could be valuable to us on Earth and in space.`\
+https://nytimes.com/interactive/2026/04/03/science/space/moon-map-nasa-artemis-ii.html
+
 **Alejandro Kirk the latest injured Blue Jay after a foul tip hits his left thumb**\
 `After the game, the Blue Jays announced that they've signed Patrick Corbin to a one-year deal, adding rotation depth.`\
 https://nytimes.com/athletic/7170480/2026/04/03/blue-jays-alejandro-kirk-thumb-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7169907/2026/04/03/trump-executive-order-college-sp
 **Search and Rescue Underway After Iran Downs U.S. Fighter Jet**\
 `Search and rescue efforts continued after a U.S. fighter jet was shot down over Iran. One of the two crew members was rescued, but the fate of the other was unknown.`\
 https://nytimes.com/video/us/100000010820849/iran-fighter-jet-war.html
-
-**Iran’s Defenses Have Been Struck, but They Can Still Fire Back**\
-`Iran has sent waves of missiles and drones at Israel and Gulf states in recent weeks and shot down an American fighter jet on Friday.`\
-https://nytimes.com/2026/04/03/world/middleeast/iran-missiles-drones-military.html
-
-**High Gas Prices Hamper Holy Week Pilgrimage in the Philippines**\
-`Worshipers have scaled back and adjusted plans for the Visita Iglesia, a Holy Week tradition in which Catholics travel to seven churches in one day for prayer, as the war in Iran has doubled gas prices in the Philippines.`\
-https://nytimes.com/video/world/asia/100000010820649/philippines-gas-prices-holy-week-iran.html
 
