@@ -1,3 +1,11 @@
+**The day Indiana's national championship trophy came to Notre Dame's backyard**\
+`As part of a nine-stop tour around the state, the Hoosiers' haul spent the afternoon in South Bend, three miles from Notre Dame's campus.`\
+https://nytimes.com/athletic/7169061/2026/04/03/indiana-football-national-championship-trophy-tour-notre-dame/
+
+**The numbers to know ahead of the FA Cup quarter-finals**\
+`All the key pointers ahead of a big weekend in the oldest cup competition in the world`\
+https://nytimes.com/athletic/7168905/2026/04/03/fa-cup-quarter-finals-liverpool-man-city-arsenal-chelsea-port-vale/
+
 **Israel plans to seize control of parts of southern Lebanon.**\
 `By Christina Goldbaum, Samuel Granados and Sanjana Varghese`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/israel-plans-to-seize-control-of-parts-of-southern-lebanon
