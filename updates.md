@@ -1,3 +1,7 @@
+**What's next for the Browns? Draft decisions and a potential QB battle await**\
+`We predict how Cleveland's decision-makers will address some of the team's major issues as the NFL Draft draws near. `\
+https://nytimes.com/athletic/7165054/2026/04/03/browns-nfl-draft-quarterback-competition/
+
 **The White House is readying a budget for the statistics agency that compiles the jobs report.**\
 `President Trump is set to release his new spending plan on Friday, after trying last year to cut funding for the federal bureau tasked with measuring the economy.`\
 https://nytimes.com/live/2026/04/03/business/jobs-report-economy/the-white-house-is-readying-a-budget-for-the-statistics-agency-that-compiles-the-jobs-report

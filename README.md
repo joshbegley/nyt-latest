@@ -1,3 +1,15 @@
+**How to watch Padres vs. Red Sox: Time, TV, streaming for April 3**\
+`Find out how to watch the San Diego Padres play the Boston Red Sox, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7169083/2026/04/03/padres-vs-red-sox-stream-how-to-watch-april-3/
+
+**‘The Headlines’ News Quiz: Apr. 3, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://nytimes.com/2026/04/03/podcasts/the-headlines/the-headlines-news-quiz-apr-3-2026.html
+
+**How to watch Elche CF vs. Rayo Vallecano in the U.S.**\
+`Find out how to watch Elche CF play Rayo Vallecano, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7169071/2026/04/03/elche-cf-vs-rayo-vallecano-stream-how-to-watch-la-liga-april-3/
+
 **What's next for the Browns? Draft decisions and a potential QB battle await**\
 `We predict how Cleveland's decision-makers will address some of the team's major issues as the NFL Draft draws near. `\
 https://nytimes.com/athletic/7165054/2026/04/03/browns-nfl-draft-quarterback-competition/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7166382/2026/04/03/nfl-draft-2026-consensus-ranking
 **Ranking every Man City vs Liverpool game in the Guardiola era**\
 `With uncertainty over the City manager's future, how do the 26 meetings with his old adversaries compare?`\
 https://nytimes.com/athletic/7166394/2026/04/03/manchester-city-liverpool-pep-guardiola-matches-ranked/
-
-**Jets can't afford to let late surge prevent hard questions about organizational missteps**\
-`Even if the Jets manage to squeak into the playoffs, the series of decisions that led Winnipeg to this point needs sincere scrutiny.`\
-https://nytimes.com/athletic/7166777/2026/04/03/winnipeg-jets-cheveldayoff-roster-deployment-prospects-playoffs/
-
-**Tour of Flanders: Pogačar and Kopecky again? And what can Remco Evenepoel do on his debut?**\
-`The Athletic's writers look ahead to the second Monument race of the 2026 season`\
-https://nytimes.com/athletic/7164948/2026/04/03/tour-of-flanders-preview-pogacar-van-der-poel-evenepoel-kopecky-vollering/
-
-**World Cup 2026 stadium guides: Welcome to Miami Stadium, the greatest multi-sport venue in the United States… if not the world**\
-`It opened in 1987, making it one of the older stadiums to feature at the 2026 World Cup`\
-https://nytimes.com/athletic/7157895/2026/04/03/world-cup-2026-stadium-guides-miami/
 
