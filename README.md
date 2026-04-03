@@ -1,40 +1,40 @@
+**Football is broken – and 'selling' community assets to keep up with huge spending is proof**\
+`Latest accounts reveal that several Premier League clubs are selling stadiums, women's teams and other assets to meet spending regulations `\
+https://nytimes.com/athletic/7166938/2026/04/03/newcastle-aston-villa-chelsea-everton-accounts-stadium-sale/
+
+**Liverpool insist they back Arne Slot. The next fortnight will put that to the test**\
+`FSG has sympathy for the hand dealt to head coach but crucial games in the coming weeks could yet determine his future`\
+https://nytimes.com/athletic/7167211/2026/04/03/liverpool-fixtures-arne-slot/
+
+**England's World Cup starting XI: Who our writers are picking, and who drops out**\
+`O'Reilly or Hall? Maguire at centre-half? Where does Jude Bellingham fit in? And has Phil Foden blown his chance?`\
+https://nytimes.com/athletic/7166404/2026/04/03/englands-world-cup-starting-xi-debate/
+
+**The Real Madrid academy graduate compared to Rodri who's 'keeping a level head'**\
+`Chema Andres left Real Madrid for Stuttgart last summer in search of more playing time. Could he return to the Bernabeu at some point?`\
+https://nytimes.com/athletic/7166740/2026/04/03/chema-andres-interview-real-madrid/
+
+**Mikey Moore interview: 'It’s my dream to be one of the best in the world. Why be scared to say it?'**\
+`The 18-year-old Tottenham prospect had a rough first few months in Glasgow but has emerged as Rangers' key player as they chase the title`\
+https://nytimes.com/athletic/7146246/2026/04/03/mikey-moore-interview-tottenham-spurs-rangers/
+
+**Why are Port Vale called Port Vale?**\
+`The League One club is a rarity in the English Football League as there is no place called 'Port Vale' in existence now - but there once was`\
+https://nytimes.com/athletic/7160399/2026/04/03/port-vale-name-arsenal-palace-fa-cup-chelsea/
+
+**Abdukodir Khusanov is Uzbekistan's version of Cristiano Ronaldo. Their World Cup hopes rest on him**\
+`The 22-year-old Man City defender is worshipped in Uzbekistan and is the figurehead of the national team heading to the 2026 World Cup`\
+https://nytimes.com/athletic/7164397/2026/04/03/abdukodir-khusanov-uzbekistan-world-cup/
+
+**Jermain Defoe is a Premier League icon. How did he end up as manager of fifth-tier Woking?**\
+`At his unveiling, the 43-year-old former Tottenham and England star expressed his enthusiasm for the challenge ahead`\
+https://nytimes.com/athletic/7164884/2026/04/03/jermain-defoe-on-managing-a-club-ranked-102nd-in-the-country-youve-got-to-do-your-apprenticeship/
+
+**The Prospects: Divin Mubama, Stoke City (on loan from Manchester City)**\
+`The striker was developed at West Ham but has thrived through the England junior setup and is now learning his trade in the Championship`\
+https://nytimes.com/athletic/7164905/2026/04/03/divin-mubama-manchester-stoke-city-prospects/
+
 **‘City of Parasites’ or ‘Glamorous Metropolis?’ China’s Cosmopolitan Contradiction**\
 `Shanghai’s many layers of architecture, culture and politics have made it a difficult fit for the Communist Party’s preferred narrative of Chinese victimhood and Western sins.`\
 https://nytimes.com/2026/04/03/world/asia/shanghai-dispatch-architecture.html
-
-**In Syria, Kidnappings of Women and Girls Fuel a Minority Group’s Fears**\
-`A Times investigation found that abductions of women and girls from Syria’s Alawite minority were more common, and more brutal, than the government has acknowledged.`\
-https://nytimes.com/2026/04/03/world/middleeast/syria-kidnapping-alawite-woman-girls.html
-
-**Andreas Dracopoulos, a two-time Leeds investor and 'great supporter of the club'**\
-`Andreas Dracopoulos became a public investor in Leeds United in 2001. He has since bought back into the club`\
-https://nytimes.com/athletic/7166124/2026/04/03/andreas-dracopoulos-leeds-united-investment-profile/
-
-**They Re-Planned Their Wedding in 10 Days**\
-`After cartel violence erupted in Mexico, just weeks before their wedding in Punta Mita, Lauren Futterman and Tyler Olson quickly decided to move the ceremony to California.`\
-https://nytimes.com/2026/04/03/style/lauren-futterman-tyler-olson-wedding.html
-
-**May I End My Life With You?**\
-`My friend made the weightiest decision possible while staying at my home. I struggled with what it meant.`\
-https://nytimes.com/2026/04/03/style/modern-love-myalgic-encephalomyelitis-chronic-fatigue-syndrome.html
-
-**First the Hora, Then the Hora Loca**\
-`Dani Roldan and Michael Wexler brought their families together, blending Jewish and Colombian traditions at their Miami wedding.`\
-https://nytimes.com/2026/04/03/style/dani-roldan-michael-wexler-wedding.html
-
-**He Likes the Mets, She the Yankees. That’s Where Their Differences End.**\
-`After connecting online, Lisa Tarantino and Billy Peeker bonded over their Long Island upbringings and their love of movies, breweries and baseball.`\
-https://nytimes.com/2026/04/03/style/lisa-tarantino-billy-peeker-wedding.html
-
-**After They Finally Met, Their ‘Rom-Com Story’ Began**\
-`Jacqueline Lobel and Michka Bengio started dating during the pandemic, though the two had briefly connected a few years before.`\
-https://nytimes.com/2026/04/03/style/jacqueline-lobel-michka-bengio-wedding.html
-
-**Quote of the Day: MACRON IS VOICE FOR FRUSTRATION OVER WAR IN IRAN**\
-`Quotation of the Day for Friday, April 3, 2026.`\
-https://nytimes.com/2026/04/02/pageoneplus/quote-of-the-day-macron-is-voice-for-frustration-over-war-in-iran.html
-
-**Cuba Says It Is Pardoning More Than 2,000 Prisoners**\
-`The Cuban government said the releases were a humanitarian gesture during Holy Week. It was not clear if they were related to ongoing negotiations between Cuba and the United States.`\
-https://nytimes.com/2026/04/02/world/americas/cuba-prisoner-release.html
 
