@@ -1,3 +1,7 @@
+**NASA Unveils 1st Earth Photos From Artemis II: ‘You Look Beautiful.’**\
+`The pictures were released on the third day of the first mission since 1972 to send people around the moon.`\
+https://nytimes.com/2026/04/03/science/nasa-artemis-moon-photos.html
+
 **How to watch Jazz vs. Rockets: Time, TV, streaming**\
 `Find out how to watch the Utah Jazz play the Houston Rockets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7169704/2026/04/03/jazz-vs-rockets-stream-how-to-watch-april-3/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/04/03/rima-hassan-france-terrorism-charges.html
 **Can the Maple Leafs get Doug Armstrong for a draft pick? No. Here's why**\
 `Compensation to a team for letting someone under contract leave to work for another organization has not been allowed for 10 years.`\
 https://nytimes.com/athletic/7169497/2026/04/03/nhl-personnel-compensation-rules-doug-armstrong/
-
-**As the future of the SEC Championship Game is in peril, here’s why it could be here to stay**\
-`In an expanded College Football Playoff — currently at 12, probably even more soon — being the conference champion is almost irrelevant.`\
-https://nytimes.com/athletic/7169578/2026/04/03/sec-championship-game-ending-greg-sankey/
 

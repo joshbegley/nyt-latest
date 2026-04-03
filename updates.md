@@ -1,3 +1,7 @@
+**As the future of the SEC Championship Game is in peril, here’s why it could be here to stay**\
+`In an expanded College Football Playoff — currently at 12, probably even more soon — being the conference champion is almost irrelevant.`\
+https://nytimes.com/athletic/7169578/2026/04/03/sec-championship-game-ending-greg-sankey/
+
 **How to watch Jazz vs. Rockets: Time, TV, streaming**\
 `Find out how to watch the Utah Jazz play the Houston Rockets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7169704/2026/04/03/jazz-vs-rockets-stream-how-to-watch-april-3/

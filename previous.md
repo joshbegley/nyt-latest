@@ -30,7 +30,7 @@ https://nytimes.com/2026/04/03/rima-hassan-france-terrorism-charges.html
 `Compensation to a team for letting someone under contract leave to work for another organization has not been allowed for 10 years.`\
 https://nytimes.com/athletic/7169497/2026/04/03/nhl-personnel-compensation-rules-doug-armstrong/
 
-**Is the SEC serious about ditching its championship game? 'Its days are numbered'**\
+**As the future of the SEC Championship Game is in peril, here’s why it could be here to stay**\
 `In an expanded College Football Playoff — currently at 12, probably even more soon — being the conference champion is almost irrelevant.`\
 https://nytimes.com/athletic/7169578/2026/04/03/sec-championship-game-ending-greg-sankey/
 
