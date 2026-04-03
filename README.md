@@ -1,4 +1,8 @@
-**How Luka Dončić can still win NBA awards even if he doesn't play 65 games**\
+**Iran Is Quickly Repairing Missile Bunkers, U.S. Intelligence Says**\
+`Reports cast doubt on how close the United States is to destroying Iran’s missile capability, a key goal in the war.`\
+https://nytimes.com/2026/04/03/us/politics/iran-missiles-launchers.html
+
+**How Luka Dončić could be eligible for NBA awards without playing 65 games**\
 `After injuring his hamstring Thursday at Oklahoma City, the Lakers star might not play the minimum 65 games to be eligible for NBA awards.`\
 https://nytimes.com/athletic/7170214/2026/04/03/luka-doncic-nba-awards-65-games/
 
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/2026/04/03/magazine/iranians-war-regime-us-israe
 **How to watch Blues vs. Ducks: Time, TV, streaming**\
 `Find out how to watch the St. Louis Blues play the Anaheim Ducks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7170191/2026/04/03/blues-vs-ducks-stream-how-to-watch-april-3/
-
-**How to watch Mets vs. Giants: Time, TV, streaming for April 3**\
-`Find out how to watch the New York Mets play the San Francisco Giants, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7170179/2026/04/03/mets-vs-giants-stream-how-to-watch-april-3/
 
