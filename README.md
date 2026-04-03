@@ -1,3 +1,7 @@
+**'I was just talking to the president,' Tiger Woods says in footage after accident**\
+`Woods mentioned "the president" as he walked past an officer who asked that he stay near the scene of the automobile accident.`\
+https://nytimes.com/athletic/7168401/2026/04/02/tiger-woods-dui-bodycam-footage-arrest-president-call/
+
 **Pam Bondi Wanted a Graceful Exit. But Trump Wanted Her Gone.**\
 `Pam Bondi had a feeling her days as attorney general were numbered. But she didn’t expect President Trump to drop the curtain quite so soon.`\
 https://nytimes.com/2026/04/02/us/politics/pam-bondi-attorney-general-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7168258/2026/04/02/los-angeles-dodgers-road-blue-un
 **Cade Cunningham still out with injury, will be ineligible for NBA awards**\
 `Cunningham remains out for the Pistons' game against the Timberwolves on Thursday night.`\
 https://nytimes.com/athletic/7166877/2026/04/02/cade-cunningham-injury-update-pistons/
-
-**Corrections: April 3, 2026**\
-`Corrections that appeared in print on Friday, April 3, 2026.`\
-https://nytimes.com/2026/04/02/pageoneplus/corrections-april-3-2026.html
 
