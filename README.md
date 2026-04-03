@@ -1,3 +1,7 @@
+**Preschool Instructor Charged With Sexually Assaulting Children**\
+`A 43-year-old man was accused of abusing “multiple” children over a period of 11 years in South Jersey, and prosecutors fear there could be more victims, given his employment.`\
+https://nytimes.com/2026/04/03/nyregion/nj-preschool-instructor-sexual-assault-children.html
+
 **How iPhones Found Their Way Into Space**\
 `The astronauts traveling in the Artemis II spacecraft were allowed to bring smartphones with them. Sadly, they can’t connect to the internet.`\
 https://nytimes.com/2026/04/03/technology/iphones-artemis-nasa.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7170149/2026/04/03/nick-lodolo-reads-injury-finger-
 **President Trump Makes Contradictory Statements About Strategy for War in Iran**\
 `Since launching the war in Iran on Feb. 28, President Trump has altered his position on regime change and shifted the timeline of operations.`\
 https://nytimes.com/video/us/politics/100000010817995/trump-war-iran-regime.html
-
-**Wrexham have evolved - and West Brom are the perfect yardstick**\
-`Wrexham looked well short of Championship level when they were humbled by West Brom in August. But they're a different beast now`\
-https://nytimes.com/athletic/7160305/2026/04/03/wrexham-west-brom-squad-championship/
 
