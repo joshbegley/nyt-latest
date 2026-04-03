@@ -1,3 +1,7 @@
+**Ollie Robinson on England: 'I’ve not done myself any favours. It's up to me to force myself back in'**\
+`The newly appointed Sussex red-ball captain has not played for his country since 2024 but, if fit and firing, he may be in the frame again`\
+https://nytimes.com/athletic/7157537/2026/04/03/ollie-robinson-england-sussex/
+
 **How Manchester United's internationals have fared for their countries**\
 `Many players needed game time, but the club's internationals enjoyed mixed fortunes`\
 https://nytimes.com/athletic/7166247/2026/04/03/manchester-united-internationals-fernandes-cunha-maguire/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7166938/2026/04/03/newcastle-aston-villa-chelsea-ev
 **Liverpool insist they back Arne Slot. The next fortnight will put that to the test**\
 `FSG has sympathy for the hand dealt to head coach but crucial games in the coming weeks could yet determine his future`\
 https://nytimes.com/athletic/7167211/2026/04/03/liverpool-fixtures-arne-slot/
-
-**England's World Cup starting XI: Who our writers are picking, and who drops out**\
-`O'Reilly or Hall? Maguire at centre-half? Where does Jude Bellingham fit in? And has Phil Foden blown his chance?`\
-https://nytimes.com/athletic/7166404/2026/04/03/englands-world-cup-starting-xi-debate/
 
