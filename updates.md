@@ -1,3 +1,7 @@
+**Amid UNC interest, Tommy Lloyd announces new contract at Arizona**\
+`"I made a decision that my Michael Jordan is Steve Kerr, and I'm proud to be an Arizona Wildcat," Lloyd said Friday.`\
+https://nytimes.com/athletic/7169906/2026/04/03/tommy-lloyd-arizona-extension-unc-basketball-coaching-search/
+
 **Jason Kidd refutes Mark Cuban's claim that he was part of the Luka Dončić trade**\
 `Kidd stood by his previous comment that he was only made aware of the trade “at the 11th hour.”`\
 https://nytimes.com/athletic/7169852/2026/04/03/jason-kidd-mark-cuban-luka-doncic-trade/
