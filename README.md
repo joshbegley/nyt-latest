@@ -1,3 +1,11 @@
+**No Ant, no Cade, no Luka? NBA awards race is officially a fiasco**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7166607/2026/04/03/nba-awards-65-game-luka-doncic-cade-cunningham-anthony-edwards/
+
+**Submit your Padres questions for Dennis Lin’s mailbag**\
+`One of the most important seasons in Padres history is underway. What questions do you have about the start of the 2026 campaign?`\
+https://nytimes.com/athletic/7168681/2026/04/03/padres-mailbag-submission-form-2026-season-start/
+
 **U.S. Searches for Crew After Fighter Jet Shot Down Over Iran, U.S. Officials Say**\
 `The fate of the plane’s crew was unclear, as American officials scrambled to mount a search and rescue operation.`\
 https://nytimes.com/2026/04/03/us/politics/us-fighter-jet-iran.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7169275/2026/04/03/phillies-vs-rockies-stream-how-t
 **Parents Who Borrowed for Children’s College Face Looming Deadline**\
 `New rules mean that parent PLUS loans have to be consolidated into a new loan by June 30 for parents to keep affordable payments. But the deadline is really earlier to allow time for processing.`\
 https://nytimes.com/2026/04/03/your-money/parent-plus-college-loans-deadline.html
-
-**Wolves' Naz Reid searches for ways out of his funk and back into folk hero status**\
-`The fan favorite and former NBA Sixth Man of the Year has battled a shoulder injury and other issues, though he had 19 points on Thursday.`\
-https://nytimes.com/athletic/7167634/2026/04/03/naz-reid-timberwolves-slump-playoffs/
-
-**Which Final Four draft prospects should Bucks fans pay attention to?**\
-`Milwaukee will have a lottery pick for the first time 10 years. Final Four stars like Keaton Wagler and Brayden Burries could be available.`\
-https://nytimes.com/athletic/7116476/2026/04/03/bucks-final-four-nba-draft-scouting/
 
