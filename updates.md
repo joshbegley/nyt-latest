@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/04/03/crosswords/spelling-bee-forum.html
+
 **Here’s the latest.**\
 `By Qasim Nauman and Johnatan Reiss`\
 https://nytimes.com/live/2026/04/03/world/iran-war-trump-oil/heres-the-latest
