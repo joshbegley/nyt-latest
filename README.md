@@ -1,3 +1,7 @@
+**Parents Who Borrowed for Children’s College Face Looming Deadline**\
+`New rules mean that parent PLUS loans have to be consolidated into a new loan by June 30 for parents to keep affordable payments. But the deadline is really earlier to allow time for processing.`\
+https://nytimes.com/2026/04/03/your-money/parent-plus-college-loans-deadline.html
+
 **Wolves' Naz Reid searches for ways out of his funk and back into folk hero status**\
 `The fan favorite and former NBA Sixth Man of the Year has battled a shoulder injury and other issues, though he had 19 points on Thursday.`\
 https://nytimes.com/athletic/7167634/2026/04/03/naz-reid-timberwolves-slump-playoffs/
@@ -24,7 +28,7 @@ https://nytimes.com/athletic/7168363/2026/04/03/tom-dundon-blazers-owner-nba-por
 
 **White House Seeks $1.5 Trillion for Defense in New Budget Request**\
 `The massive, proposed increase would be offset in part by steep cuts to domestic programs, some of which the administration describes as wasteful.`\
-https://nytimes.com/2026/04/03/us/politics/white-house-seeks-1-5-trillion-for-defense-in-new-budget-request.html
+https://nytimes.com/2026/04/03/us/politics/white-house-defense-budget.html
 
 **Gattuso leaves Italy head coach role after World Cup qualification failure**\
 `Italy were beaten on penalties by Bosnia and Herzegovina in the playoff final on Tuesday to miss their third tournament in a row. `\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7169102/2026/04/03/gennaro-gattuso-italy-head-coach
 **A crowd-pleasing debut from Daniel Susac sends Giants to their first home victory**\
 `The catcher, added in the Rule 5 draft this offseason, had three hits and a walk in his first start, and caught Blade Tidwell's first save.`\
 https://nytimes.com/athletic/7168818/2026/04/03/daniel-susac-giants-debut/
-
-**A Lesson Plan About the War With Iran**\
-`Through Times articles, photos, videos, graphics, podcasts and more, we invite students to explore what is happening in the war and how we got here.`\
-https://nytimes.com/2026/04/03/learning/lesson-plans/a-lesson-plan-about-the-war-with-iran.html
 
