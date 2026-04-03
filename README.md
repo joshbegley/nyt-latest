@@ -1,3 +1,23 @@
+**How to watch Blues vs. Ducks: Time, TV, streaming**\
+`Find out how to watch the St. Louis Blues play the Anaheim Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7170191/2026/04/03/blues-vs-ducks-stream-how-to-watch-april-3/
+
+**How to watch Mets vs. Giants: Time, TV, streaming for April 3**\
+`Find out how to watch the New York Mets play the San Francisco Giants, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7170179/2026/04/03/mets-vs-giants-stream-how-to-watch-april-3/
+
+**How to watch Mariners vs. Angels: Time, TV, streaming for April 3**\
+`Find out how to watch the Seattle Mariners play the Los Angeles Angels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7170176/2026/04/03/mariners-vs-angels-stream-how-to-watch-april-3/
+
+**How to watch Braves vs. Diamondbacks: Time, TV, streaming for April 3**\
+`Find out how to watch the Atlanta Braves play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7170170/2026/04/03/braves-vs-diamondbacks-stream-how-to-watch-april-3/
+
+**How to watch Astros vs. Athletics: Time, TV, streaming for April 3**\
+`Find out how to watch the Houston Astros play the Athletics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7170167/2026/04/03/astros-vs-athletics-stream-how-to-watch-april-3/
+
 **H.H.S. Takes a First Step Toward Restoring Vaccine Advisory Committee**\
 `A federal judge last month questioned the legitimacy of the panel and overturned its recent work. A notice suggests that it may be revived on Robert F. Kennedy Jr.’s terms.`\
 https://nytimes.com/2026/04/03/health/kennedy-vaccine-advisers-acip.html
@@ -17,20 +37,4 @@ https://nytimes.com/athletic/7167530/2026/04/03/furniture-store-uconn-basketball
 **Trump Seeks $152 Million to Begin to Turn Alcatraz Back Into a Prison**\
 `The plan faces significant local political opposition and the dilapidated state of the site poses considerable logistical challenges.`\
 https://nytimes.com/2026/04/03/nyregion/trump-alcatraz-funding.html
-
-**Kristaps Porziņģis uncertain on his future with Warriors as Steph Curry nears return**\
-`Porziņģis is finally settling into his role with the Warriors, but his long-term future in Golden State remains undecided. `\
-https://nytimes.com/athletic/7168854/2026/04/03/kristaps-porzingis-steph-curry-warriors-return-nba/
-
-**What to Know About the F-15E Strike Eagle**\
-`The U.S. military aircraft with a two-person crew was shot down in Iran on Friday.`\
-https://nytimes.com/2026/04/03/world/middleeast/f15e-strike-eagle.html
-
-**Flashback: Your Weekly History Quiz, April 4, 2026**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2026/04/03/upshot/flashback.html
-
-**Prime Tire: Similarities of Verstappen and Senna**\
-`Welcome to Prime Tire, The Athletic's F1 newsletter.`\
-https://nytimes.com/athletic/7170044/2026/04/03/max-verstappen-ayrton-senna-prime-tire/
 
