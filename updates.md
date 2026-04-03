@@ -1,3 +1,7 @@
+**Alejandro Kirk the latest injured Blue Jay after a foul tip hits his left thumb**\
+`After the game, the Blue Jays announced that they've signed Patrick Corbin to a one-year deal, adding rotation depth.`\
+https://nytimes.com/athletic/7170480/2026/04/03/blue-jays-alejandro-kirk-thumb-injury/
+
 **Luka Dončić to miss rest of regular season with hamstring injury, Lakers announce**\
 `Dončić's status for the playoffs, which begin in 15 days, remains uncertain. `\
 https://nytimes.com/athletic/7170499/2026/04/03/luka-doncic-injury-update-season-ending-lakers-nba/
