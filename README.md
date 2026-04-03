@@ -1,3 +1,7 @@
+**Trump Seeks $152 Million to Begin to Turn Alcatraz Back Into a Prison**\
+`The plan faces significant local political opposition and the dilapidated state of the site poses considerable logistical challenges.`\
+https://nytimes.com/2026/04/03/nyregion/trump-alcatraz-funding.html
+
 **Kristaps Porziņģis uncertain on his future with Warriors as Steph Curry nears return**\
 `Porziņģis is finally settling into his role with the Warriors, but his long-term future in Golden State remains undecided. `\
 https://nytimes.com/athletic/7168854/2026/04/03/kristaps-porzingis-steph-curry-warriors-return-nba/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7169685/2026/04/03/ncaa-prize-money-lawsuit-college
 **Shohei Ohtani connects on his first home run of the 2026 season for Dodgers**\
 `Ohtani was off to a slow start at the plate, collecting only three hits in his first six games, though he was reaching base at a good clip.`\
 https://nytimes.com/athletic/7169968/2026/04/03/shohei-ohtani-los-angeles-dodgers-first-home-run-2026/
-
-**House Democrat Wages a Lonely Legal Fight Testing Congress’s Power**\
-`Representative LaMonica McIver is facing crushing legal fees and prison time as she seeks to get the Justice Department assault case against her dismissed, citing her legislative prerogatives.`\
-https://nytimes.com/2026/04/03/us/politics/lamonica-mciver-immigration-congress-trump.html
 
