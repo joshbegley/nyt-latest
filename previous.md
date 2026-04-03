@@ -1,3 +1,19 @@
+**Why Is the Labor Market Stuck?**\
+`Our chief economics correspondent, Ben Casselman, describes how a “low-hire, low-fire” labor market has left American job-seekers in a bind.`\
+https://nytimes.com/video/business/100000010815978/why-is-the-labor-market-stuck.html
+
+**Chekhov Plays for an Un-Chekhov Time**\
+`The directors Michael DeFilippis, Dmitry Krymov and Aleksandr Molochnikov all infuse their current productions with a burning, modern rage.`\
+https://nytimes.com/2026/04/03/theater/chekhov-plays-ivanov-seagull-uncle-vanya.html
+
+**Fernandez's Chelsea punishment 'unfair' says agent, discusses comments and contract**\
+`Javier Pastore says Fernandez will explore other options if he is unable to agree new terms with Chelsea after the World Cup.`\
+https://nytimes.com/athletic/7169153/2026/04/03/enzo-fernandezs-chelsea-rosenior-ban-agent/
+
+**Why Iran Believes It Has the Upper Hand**\
+`The Iran expert Suzanne Maloney explains how Iran views the war, and why the United States is losing.`\
+https://nytimes.com/video/opinion/100000010812935/why-iran-believes-it-has-the-upper-hand.html
+
 **What to know about the report.**\
 `By Lydia DePillis`\
 https://nytimes.com/live/2026/04/03/business/jobs-report-economy/what-to-know-about-the-report
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7169589/2026/04/03/flyers-vs-islanders-stream-how-t
 **Pedro Friedeberg, Whose Hand Chair Drew Outsize Attention, Dies at 90**\
 `Known for his hallucinatory canvases of otherworldly structures, he cemented his fame with a hand-shaped chair that was both a work of art and a pop culture curio.`\
 https://nytimes.com/2026/04/03/arts/design/pedro-friedeberg-dead.html
-
-**NHL playoff watch: The critical races to monitor**\
-`There are only 113 games to go in the 2025-26 season — seven per team — so let’s jump into our latest scan around the league.`\
-https://nytimes.com/athletic/7169472/2026/04/03/nhl-playoff-standings-stanley-cup-race/
-
-**How to watch Pacers vs. Hornets: Time, TV, streaming**\
-`Find out how to watch the Indiana Pacers play the Charlotte Hornets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7169522/2026/04/03/pacers-vs-hornets-stream-how-to-watch-april-3/
-
-**How to watch Timberwolves vs. 76ers: Time, TV, streaming**\
-`Find out how to watch the Minnesota Timberwolves play the Philadelphia 76ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7169520/2026/04/03/timberwolves-vs-76ers-stream-how-to-watch-april-3/
-
-**Here It Is, Our Best Carrot Cake**\
-`Dorie Greenspan’s luscious cake serves up spring, with five stars and over 10,000 reviews.`\
-https://nytimes.com/2026/04/03/dining/here-it-is-our-best-carrot-cake.html
 

@@ -1,3 +1,19 @@
+**Why Is the Labor Market Stuck?**\
+`Our chief economics correspondent, Ben Casselman, describes how a “low-hire, low-fire” labor market has left American job-seekers in a bind.`\
+https://nytimes.com/video/business/100000010815978/why-is-the-labor-market-stuck.html
+
+**Chekhov Plays for an Un-Chekhov Time**\
+`The directors Michael DeFilippis, Dmitry Krymov and Aleksandr Molochnikov all infuse their current productions with a burning, modern rage.`\
+https://nytimes.com/2026/04/03/theater/chekhov-plays-ivanov-seagull-uncle-vanya.html
+
+**Fernandez's Chelsea punishment 'unfair' says agent, discusses comments and contract**\
+`Javier Pastore says Fernandez will explore other options if he is unable to agree new terms with Chelsea after the World Cup.`\
+https://nytimes.com/athletic/7169153/2026/04/03/enzo-fernandezs-chelsea-rosenior-ban-agent/
+
+**Why Iran Believes It Has the Upper Hand**\
+`The Iran expert Suzanne Maloney explains how Iran views the war, and why the United States is losing.`\
+https://nytimes.com/video/opinion/100000010812935/why-iran-believes-it-has-the-upper-hand.html
+
 **What to know about the report.**\
 `By Lydia DePillis`\
 https://nytimes.com/live/2026/04/03/business/jobs-report-economy/what-to-know-about-the-report
