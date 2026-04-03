@@ -1,3 +1,7 @@
+**Jason Kidd refutes Mark Cuban's claim that he was part of the Luka Dončić trade**\
+`Kidd stood by his previous comment that he was only made aware of the trade “at the 11th hour.”`\
+https://nytimes.com/athletic/7169852/2026/04/03/jason-kidd-mark-cuban-luka-doncic-trade/
+
 **‘Summer House’ Mansion on the Market for $5.65 Million**\
 `The Sag Harbor, N.Y., home has hosted the reality TV show for the last five seasons.`\
 https://nytimes.com/2026/04/03/realestate/summer-house-mansion-for-sale.html

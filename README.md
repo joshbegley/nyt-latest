@@ -1,3 +1,7 @@
+**Amid UNC interest, Tommy Lloyd announces new contract at Arizona**\
+`"I made a decision that my Michael Jordan is Steve Kerr, and I'm proud to be an Arizona Wildcat," Lloyd said Friday.`\
+https://nytimes.com/athletic/7169906/2026/04/03/tommy-lloyd-arizona-extension-unc-basketball-coaching-search/
+
 **Jason Kidd refutes Mark Cuban's claim that he was part of the Luka Dončić trade**\
 `Kidd stood by his previous comment that he was only made aware of the trade “at the 11th hour.”`\
 https://nytimes.com/athletic/7169852/2026/04/03/jason-kidd-mark-cuban-luka-doncic-trade/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7169873/2026/04/03/brewers-vs-royals-stream-how-to-
 **Chat with Eno Sarris live at 11am PT!**\
 `Eno Sarris will be chatting live with subscribers for an hour at 11am Pacific.`\
 https://nytimes.com/athletic/7169849/2026/04/03/chat-with-eno-sarris-live-at-11am-pt/
-
-**How to watch Magic vs. Mavericks: Time, TV, streaming**\
-`Find out how to watch the Orlando Magic play the Dallas Mavericks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7169848/2026/04/03/magic-vs-mavericks-stream-how-to-watch-april-3/
 
