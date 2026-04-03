@@ -1,3 +1,11 @@
+**Quote of the Day: MACRON IS VOICE FOR FRUSTRATION OVER WAR IN IRAN**\
+`Quotation of the Day for Friday, April 3, 2026.`\
+https://nytimes.com/2026/04/02/pageoneplus/quote-of-the-day-macron-is-voice-for-frustration-over-war-in-iran.html
+
+**Luka Dončić injures hamstring during Lakers' blowout loss to Thunder**\
+`Dončić, a top MVP candidate, suffered the injury in his 64th game of the season, putting his award eligibility in jeopardy.`\
+https://nytimes.com/athletic/7168488/2026/04/02/luka-doncic-injury-hamstring-lakers-thunder/
+
 **Cuba Says It Is Pardoning More Than 2,000 Prisoners**\
 `The Cuban government said the releases were a humanitarian gesture during Holy Week. It was not clear if they were related to ongoing negotiations between Cuba and the United States.`\
 https://nytimes.com/2026/04/02/world/americas/cuba-prisoner-release.html

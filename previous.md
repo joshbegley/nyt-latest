@@ -1,8 +1,12 @@
+**Quote of the Day: MACRON IS VOICE FOR FRUSTRATION OVER WAR IN IRAN**\
+`Quotation of the Day for Friday, April 3, 2026.`\
+https://nytimes.com/2026/04/02/pageoneplus/quote-of-the-day-macron-is-voice-for-frustration-over-war-in-iran.html
+
 **Cuba Says It Is Pardoning More Than 2,000 Prisoners**\
 `The Cuban government said the releases were a humanitarian gesture during Holy Week. It was not clear if they were related to ongoing negotiations between Cuba and the United States.`\
 https://nytimes.com/2026/04/02/world/americas/cuba-prisoner-release.html
 
-**Luka Dončić injures hamstring during Lakers game vs. Thunder**\
+**Luka Dončić injures hamstring during Lakers' blowout loss to Thunder**\
 `Dončić, a top MVP candidate, suffered the injury in his 64th game of the season, putting his award eligibility in jeopardy.`\
 https://nytimes.com/athletic/7168488/2026/04/02/luka-doncic-injury-hamstring-lakers-thunder/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7168408/2026/04/02/bruins-panthers-injuries-geekie-
 **Trump’s Strait of Hormuz Problem**\
 `Our White House reporter Zolan Kanno-Youngs parses some of President Trump’s conflicting messages about the war with Iran.`\
 https://nytimes.com/video/world/middleeast/100000010815863/trumps-strait-of-hormuz-problem.html
-
-**‘The Pitt’ Season 2 Episode 13 Recap: Should He Stay or Should He Go?**\
-`Dr. Robby finally says what his colleagues had been thinking.`\
-https://nytimes.com/2026/04/02/arts/television/the-pitt-season-2-episode-13-recap.html
 
