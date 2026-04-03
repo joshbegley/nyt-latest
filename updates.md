@@ -1,3 +1,11 @@
+**Twins' home opener goes dark as power outage hits downtown Minneapolis**\
+`Power went out at Target Field 51 minutes after the team opened its gates for the first time in the 2026 season.`\
+https://nytimes.com/athletic/7170157/2026/04/03/twins-home-opener-power-outage/
+
+**Nick Lodolo's return to mound pushed back as finger blister issues return**\
+`The Reds pitcher throws an elite slider that causes a blister on the pad of his index finger. Managing that has become a challenge.`\
+https://nytimes.com/athletic/7170149/2026/04/03/nick-lodolo-reads-injury-finger-blister/
+
 **Wrexham have evolved - and West Brom are the perfect yardstick**\
 `Wrexham looked well short of Championship level when they were humbled by West Brom in August. But they're a different beast now`\
 https://nytimes.com/athletic/7160305/2026/04/03/wrexham-west-brom-squad-championship/
