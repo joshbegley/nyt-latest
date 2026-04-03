@@ -1,4 +1,4 @@
-**U.S. Fighter Jet Shot Down Over Iran, U.S. Officials and Iran Say**\
+**U.S. Searches for Crew After Fighter Jet Shot Down Over Iran, U.S. Officials Say**\
 `The fate of the plane’s crew was unclear, as American officials scrambled to mount a search and rescue operation.`\
 https://nytimes.com/2026/04/03/us/politics/us-fighter-jet-iran.html
 
