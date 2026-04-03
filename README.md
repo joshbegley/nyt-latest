@@ -1,3 +1,7 @@
+**Gucci Mane Held at Gunpoint, Prompting 2 Rappers’ Arrests**\
+`The hip-hop titan was forced to sign papers releasing a rapper known as Pooh Shiesty from his record contract during an armed confrontation in January at a Dallas music studio, officials said.`\
+https://nytimes.com/2026/04/02/us/gucci-mane-kidnapping-pooh-shiesty-big30.html
+
 **The Artemis II crew’s spacecraft feels bigger on the inside than you might think.**\
 `By Ashley Ahn`\
 https://nytimes.com/live/2026/04/02/science/artemis-nasa-moon-astronauts/artemis-spacecraft-living-quarters
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7167985/2026/04/02/judge-denies-virginia-chandler-m
 **Hegseth Allows Troops to Carry Personal Firearms at Military Bases**\
 `Many shootings at military bases have involved troops bringing guns they purchased onto base grounds and opening fire on fellow service members.`\
 https://nytimes.com/2026/04/02/us/politics/hegseth-personal-firearms.html
-
-**On Day 2, the astronauts begin their journey to the moon.**\
-`By Katrina Miller`\
-https://nytimes.com/live/2026/04/02/science/artemis-nasa-moon-astronauts/artemis-day-2-moon-journey
 
