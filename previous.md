@@ -1,40 +1,40 @@
-**The lessons Puka Nacua learns this offseason could define the Rams' future**\
-`The star Rams receiver has had his share of off-the-field incidents over the past year. How could it affect the team's long-term future?`\
-https://nytimes.com/athletic/7166887/2026/04/03/puka-nacua-los-angeles-rams-future/
+**Red Wings get shot of adrenaline in win over Flyers, tied for playoff spot: 5 thoughts**\
+`Alex DeBrincat has been Detroit's most consistent forward this spring and delivered again Thursday with two crucial goals.`\
+https://nytimes.com/athletic/7168355/2026/04/03/detroit-red-wings-alex-debrincat-playoff-race/
 
-**'Vamos, Yaxel!': How mom of Michigan star kept him going, all the way to Final Four**\
-`“I can hear nobody else in the stadium but her,” said Yaxel Lendeborg of his mother. “It puts me in attack mode, honestly.”`\
-https://nytimes.com/athletic/7167775/2026/04/03/yaxel-lendeborg-michigan-basketball-march-madness-final-four/
+**Defensive miscues doom Flyers despite efforts of Tyson Foerster, Porter Martone**\
+`Too many defensive errors and not enough offensive finish burned the Flyers despite strong showings from Foerster and Martone.`\
+https://nytimes.com/athletic/7168505/2026/04/03/tyson-foerster-porter-martone-defense-miscues-flyers/
 
-**In just a week, the ABS system has already changed baseball in surprising ways**\
-`Players, managers and coaches are drilling down on the best tactics to use with the new ABS system, with surprising early returns.`\
-https://nytimes.com/athletic/7167396/2026/04/03/abs-mlb-first-week-tactics-changes/
+**Extensions are all the rage across baseball. Why the Mets are unlikely to follow suit**\
+`Amid a spate of aggressive new deals, the Mets are taking a more patient approach when it comes to long-term commitments. `\
+https://nytimes.com/athletic/7168242/2026/04/03/mlb-contract-extensions-mets/
 
-**Women's Final Four power rankings: Who wins it all? UConn, South Carolina, Texas or UCLA?**\
-`The top four seeds are back in the Final Four. Expect close games, but an ultimate UConn victory. `\
-https://nytimes.com/athletic/7168170/2026/04/03/womens-final-four-power-rankings-uconn/
+**Sabres miss chance to clinch playoff spot in loss to Senators: 5 thoughts**\
+`The Sabres might be itching to end a playoff drought, but their Eastern Conference opponents are feeling plenty of desperation themselves.`\
+https://nytimes.com/athletic/7168536/2026/04/03/sabres-playoffs-zucker-empty-net-senators/
 
-**Women's 2026 Final Four players to watch: Sarah Strong, Joyce Edwards, more**\
-`Texas vs. UCLA. UConn vs. South Carolina. Which players will make an impact in the Final Four? `\
-https://nytimes.com/athletic/7167953/2026/04/03/womens-final-four-2026-sarah-strong-joyce-edwards/
+**Rangers' Will Cuylle: 'I've got a lot more to give' as third-year winger assesses season**\
+`Cuylle's production is down this season as he has 17 goals and 34 points through 76 games after notching 20 goals and 45 points last season.`\
+https://nytimes.com/athletic/7168546/2026/04/03/will-cuylle-rangers-goals-season-canadiens/
 
-**NFL execs unfiltered on free agency: Thoughts on Kyler Murray, the bold Rams and all NFC teams**\
-`Why didn't the Cardinals trade Murray? Can he thrive in Minnesota? Meanwhile, execs had plenty of questions about the Falcons, yet again.`\
-https://nytimes.com/athletic/7167213/2026/04/03/nfl-free-agency-2026-nfc-execs-best-worst/
+**Jonathan Toews comparisons don't faze Blackhawks rookie Anton Frondell: 'I'm far away'**\
+`Frondell took the comparison from his coach in the encouraging nature it was intended, without any of the pressure that could accompany it.`\
+https://nytimes.com/athletic/7168572/2026/04/03/jonathan-toews-comparisons-blackhawks-rookie-anton-frondell/
 
-**Trust is a two-way street, and James Wood and the Nats are building it**\
-`This year, Wood feels more equipped to handle these slumps. That’s in part because he has been through them before. `\
-https://nytimes.com/athletic/7167486/2026/04/03/washington-nationals-james-wood-trust-injury/
+**WNBA expansion draft 2026: What to know and how to watch**\
+`The Toronto Tempo and Portland Fire, the WNBA's two new teams, start filling out their inaugural rosters. Here's how to tune in Friday.`\
+https://nytimes.com/athletic/7159714/2026/04/03/wnba-expansion-draft-tv-toronto-tempo-portland-fire/
 
-**The New York Times International Edition in Print for Saturday, April 4, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/04/03/todays-new-york-times-international-edition
+**Macklin Celebrini deserves Hart Trophy votes for carrying the Sharks and wowing the world**\
+`At age 19, Celebrini has already proven that he belongs among the NHL's greats.`\
+https://nytimes.com/athletic/7167749/2026/04/03/macklin-celebrini-hart-trophy-sharks/
 
-**Kane out of Bayern game at Freiburg, Davies to return**\
-`Kompany is confident Kane would return against Real Madrid for the Champions League quarter-final first leg on Tuesday.`\
-https://nytimes.com/athletic/7168885/2026/04/03/kane-davies-bayern-injury-news/
+**Paul George is playing free again. Why it matters for the Sixers**\
+`Is the Clippers version of Paul George back again? This recent stretch has shown he can still be himself when fully healthy.`\
+https://nytimes.com/athletic/7167111/2026/04/03/paul-george-sixers-injury-nba-playoffs/
 
-**How to watch Cardinals vs. Tigers: Time, TV, streaming for April 3**\
-`Find out how to watch the St. Louis Cardinals play the Detroit Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7168924/2026/04/03/cardinals-vs-tigers-stream-how-to-watch-april-3/
+**How to make sense of a nonsensical NHL season? Just follow the chain of blowouts**\
+`There's a much more effective way of gauging relative team strength this season than simply checking the NHL standings.`\
+https://nytimes.com/athletic/7159563/2026/04/03/nhl-blowouts-team-standings-avalanche/
 
