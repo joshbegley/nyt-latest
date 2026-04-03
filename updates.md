@@ -1,3 +1,15 @@
+**Kristaps Porziņģis uncertain on his future with Warriors as Steph Curry nears return**\
+`Porziņģis is finally settling into his role with the Warriors, but his long-term future in Golden State remains undecided. `\
+https://nytimes.com/athletic/7168854/2026/04/03/kristaps-porzingis-steph-curry-warriors-return-nba/
+
+**What to know about the F-15E Strike Eagle.**\
+`By Pranav Baskar`\
+https://nytimes.com/live/2026/04/03/world/iran-war-trump-oil/f15e-strike-eagle
+
+**Flashback: Your Weekly History Quiz, April 4, 2026**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2026/04/03/upshot/flashback.html
+
 **Prime Tire: Similarities of Verstappen and Senna**\
 `Welcome to Prime Tire, The Athletic's F1 newsletter.`\
 https://nytimes.com/athletic/7170044/2026/04/03/max-verstappen-ayrton-senna-prime-tire/

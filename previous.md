@@ -1,3 +1,15 @@
+**Kristaps Porziņģis uncertain on his future with Warriors as Steph Curry nears return**\
+`Porziņģis is finally settling into his role with the Warriors, but his long-term future in Golden State remains undecided. `\
+https://nytimes.com/athletic/7168854/2026/04/03/kristaps-porzingis-steph-curry-warriors-return-nba/
+
+**What to know about the F-15E Strike Eagle.**\
+`By Pranav Baskar`\
+https://nytimes.com/live/2026/04/03/world/iran-war-trump-oil/f15e-strike-eagle
+
+**Flashback: Your Weekly History Quiz, April 4, 2026**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2026/04/03/upshot/flashback.html
+
 **Prime Tire: Similarities of Verstappen and Senna**\
 `Welcome to Prime Tire, The Athletic's F1 newsletter.`\
 https://nytimes.com/athletic/7170044/2026/04/03/max-verstappen-ayrton-senna-prime-tire/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/04/03/us/politics/lamonica-mciver-immigration-congress-
 **How to watch Pelicans vs. Kings: Time, TV, streaming**\
 `Find out how to watch the New Orleans Pelicans play the Sacramento Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7170021/2026/04/03/pelicans-vs-kings-stream-how-to-watch-april-3/
-
-**Justice Alito Was Taken to the Hospital Last Month in Undisclosed Incident**\
-`Supreme Court justices are not required to release information about their health, and the disclosure practices of individual justices have varied.`\
-https://nytimes.com/2026/04/03/us/politics/justice-alito-briefly-hospitalized.html
-
-**Barcelona continue to dominate Real Madrid. Can this really be called El Clasico?**\
-`Barcelona and Real Madrid are equals in the men's game. For the women's teams, it is an entirely different story`\
-https://nytimes.com/athletic/7169777/2026/04/03/barcelona-femeni-real-madrid-gap/
-
-**Kentucky Fourth Congressional District 2026: Latest Polls**\
-`Track the latest polls in Kentucky's 4th Congressional District.`\
-https://nytimes.com/interactive/polls/kentucky-us-house-4-polls-2026.html
 
