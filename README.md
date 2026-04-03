@@ -1,3 +1,7 @@
+**How to watch Phillies vs. Rockies: Time, TV, streaming for April 3**\
+`Find out how to watch the Philadelphia Phillies play the Colorado Rockies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7169275/2026/04/03/phillies-vs-rockies-stream-how-to-watch-april-3/
+
 **Parents Who Borrowed for Children’s College Face Looming Deadline**\
 `New rules mean that parent PLUS loans have to be consolidated into a new loan by June 30 for parents to keep affordable payments. But the deadline is really earlier to allow time for processing.`\
 https://nytimes.com/2026/04/03/your-money/parent-plus-college-loans-deadline.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/03/us/politics/white-house-defense-budget.html
 **Gattuso leaves Italy head coach role after World Cup qualification failure**\
 `Italy were beaten on penalties by Bosnia and Herzegovina in the playoff final on Tuesday to miss their third tournament in a row. `\
 https://nytimes.com/athletic/7169102/2026/04/03/gennaro-gattuso-italy-head-coach-world-cup/
-
-**A crowd-pleasing debut from Daniel Susac sends Giants to their first home victory**\
-`The catcher, added in the Rule 5 draft this offseason, had three hits and a walk in his first start, and caught Blade Tidwell's first save.`\
-https://nytimes.com/athletic/7168818/2026/04/03/daniel-susac-giants-debut/
 
