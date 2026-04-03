@@ -1,3 +1,15 @@
+**‘Summer House’ Mansion on the Market for $5.65 Million**\
+`The Sag Harbor, N.Y., home has hosted the reality TV show for the last five seasons.`\
+https://nytimes.com/2026/04/03/realestate/summer-house-mansion-for-sale.html
+
+**How to watch Texas vs. UCLA women's basketball: Semifinals Time, TV, streaming**\
+`Find out how to watch the Texas Longhorns play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7169938/2026/04/03/texas-vs-ucla-stream-how-to-watch-april-3/
+
+**Hegseth Says U.S. Troops Are Fighting for Jesus. The Pope Disagrees.**\
+`In sharp contrast to the Trump administration’s calls for Christian prayers for the war effort, Pope Leo XIV says military domination is “entirely foreign to the way of Jesus Christ.”`\
+https://nytimes.com/2026/04/03/world/middleeast/pope-iran-war.html
+
 **United to Offer No-Frills Fares in Its Premium Cabins**\
 `United is introducing restrictive base fares in its most profitable cabins: premium economy and business class.`\
 https://nytimes.com/2026/04/03/business/united-airlines-fares-premium-cabins.html

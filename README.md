@@ -1,3 +1,7 @@
+**Jason Kidd refutes Mark Cuban's claim that he was part of the Luka Dončić trade**\
+`Kidd stood by his previous comment that he was only made aware of the trade “at the 11th hour.”`\
+https://nytimes.com/athletic/7169852/2026/04/03/jason-kidd-mark-cuban-luka-doncic-trade/
+
 **‘Summer House’ Mansion on the Market for $5.65 Million**\
 `The Sag Harbor, N.Y., home has hosted the reality TV show for the last five seasons.`\
 https://nytimes.com/2026/04/03/realestate/summer-house-mansion-for-sale.html
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/7169849/2026/04/03/chat-with-eno-sarris-live-at-11a
 **How to watch Magic vs. Mavericks: Time, TV, streaming**\
 `Find out how to watch the Orlando Magic play the Dallas Mavericks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7169848/2026/04/03/magic-vs-mavericks-stream-how-to-watch-april-3/
-
-**FEMA Official Says He Teleported to Waffle House. Experts Are Dubious.**\
-`Gregg Phillips, who is in charge of responding to fires and floods, says the hand of God suddenly and mysteriously moved him to a 24-hour breakfast spot in Rome, Ga.`\
-https://nytimes.com/2026/04/03/us/fema-gregg-phillips-waffle-house-teleportation.html
-
-**The Rise and Fall of Pam Bondi**\
-`Readers react to President Trump’s firing of the attorney general. Also: A.I. and therapy.`\
-https://nytimes.com/2026/04/03/opinion/pam-bondi-trump.html
 
