@@ -1,8 +1,12 @@
+**Cuba Says It Is Pardoning More Than 2,000 Prisoners**\
+`The Cuban government said the releases were a humanitarian gesture during Holy Week. It was not clear if they were related to ongoing negotiations between Cuba and the United States.`\
+https://nytimes.com/2026/04/02/world/americas/cuba-prisoner-release.html
+
 **Luka Dončić injures hamstring during Lakers game vs. Thunder**\
 `Dončić, a top MVP candidate, suffered the injury in his 64th game of the season, putting his award eligibility in jeopardy.`\
 https://nytimes.com/athletic/7168488/2026/04/02/luka-doncic-injury-hamstring-lakers-thunder/
 
-**Lightning serve Penguins a humbling loss: 'They outworked us and outsmarted us'**\
+**Lightning serve Penguins humbling loss: 'They outworked us and outsmarted us'**\
 `The Penguins never looked in control against the Lightning and fell prey to yet more short-handed goals in Tampa.`\
 https://nytimes.com/athletic/7168228/2026/04/02/penguins-karlsson-shorthanded-chinakhov-playoffs-lightning/
 
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010815863/trumps-strait-of-horm
 **‘The Pitt’ Season 2 Episode 13 Recap: Should He Stay or Should He Go?**\
 `Dr. Robby finally says what his colleagues had been thinking.`\
 https://nytimes.com/2026/04/02/arts/television/the-pitt-season-2-episode-13-recap.html
-
-**Swimmer’s Assignment**\
-`Carolyn Davies Lynch and Brian Callahan open our solving weekend.`\
-https://nytimes.com/2026/04/02/crosswords/daily-puzzle-2026-04-03.html
 
