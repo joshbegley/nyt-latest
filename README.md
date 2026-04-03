@@ -1,3 +1,7 @@
+**Did Jesus Rise From the Dead?**\
+`A case of mistaken identity, or a profound experience of grief? The religious scholar Bart Ehrman argues that the earliest accounts of Jesus’ Resurrection might be rooted in the way we process loss.`\
+https://nytimes.com/video/opinion/100000010807127/did-jesus-rise-from-the-dead.html
+
 **Gucci Mane Held at Gunpoint, Prompting 2 Rappers’ Arrests**\
 `The hip-hop titan was forced to sign papers releasing a rapper known as Pooh Shiesty from his record contract during an armed confrontation in January at a Dallas music studio, officials said.`\
 https://nytimes.com/2026/04/02/us/gucci-mane-kidnapping-pooh-shiesty-big30.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/02/world/middleeast/iran-war-middle-east-recap-thurs
 **Chandler Morris' lawsuit over 7th year of eligibility denied by judge**\
 `Morris was denied a preliminary injunction for his lawsuit over a retroactive medical redshirt for his 2022 season.`\
 https://nytimes.com/athletic/7167985/2026/04/02/judge-denies-virginia-chandler-morris-lawsuit-eligibility/
-
-**Hegseth Allows Troops to Carry Personal Firearms at Military Bases**\
-`Many shootings at military bases have involved troops bringing guns they purchased onto base grounds and opening fire on fellow service members.`\
-https://nytimes.com/2026/04/02/us/politics/hegseth-personal-firearms.html
 

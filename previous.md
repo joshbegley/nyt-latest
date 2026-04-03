@@ -7,7 +7,7 @@ https://nytimes.com/2026/04/02/us/gucci-mane-kidnapping-pooh-shiesty-big30.html
 https://nytimes.com/live/2026/04/02/science/artemis-nasa-moon-astronauts/artemis-spacecraft-living-quarters
 
 **Colombian captain James Rodríguez hospitalized for 'severe dehydration'**\
-`The Colombian federation released a statement saying that Rodríguez's dehydration episode "is not linked to his footballing activities.”`\
+`The Colombian federation released a statement saying that Rodríguez's dehydration episode "is not linked to his footballing activities."`\
 https://nytimes.com/athletic/7168108/2026/04/02/colombia-james-rodriguez-dehydration-health-update/
 
 **Twins notes: Taj Bradley keeps rolling with record velocity; where to find top prospects**\
