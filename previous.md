@@ -1,3 +1,31 @@
+**Trump signs new college sports executive order: What we know**\
+`The order poses the possibility of federal funding being withheld from schools that do not comply with the rules.`\
+https://nytimes.com/athletic/7169907/2026/04/03/trump-executive-order-college-sports-rules/
+
+**Search and Rescue Underway After Iran Downs U.S. Fighter Jet**\
+`Search and rescue efforts continued after a U.S. fighter jet was shot down over Iran. One of the two crew members was rescued, but the fate of the other was unknown.`\
+https://nytimes.com/video/us/100000010820849/iran-fighter-jet-war.html
+
+**Iran’s Defenses Have Been Struck, but They Can Still Fire Back**\
+`Iran has sent waves of missiles and drones at Israel and Gulf states in recent weeks and shot down an American fighter jet on Friday.`\
+https://nytimes.com/2026/04/03/world/middleeast/iran-missiles-drones-military.html
+
+**High Gas Prices Hamper Holy Week Pilgrimage in the Philippines**\
+`Worshipers have scaled back and adjusted plans for the Visita Iglesia, a Holy Week tradition in which Catholics travel to seven churches in one day for prayer, as the war in Iran has doubled gas prices in the Philippines.`\
+https://nytimes.com/video/world/asia/100000010820649/philippines-gas-prices-holy-week-iran.html
+
+**Dolores Keane, Singer Known as the ‘Soul of Ireland,’ Dies at 72**\
+`She sang of homesickness and longing, and often collaborated with American musicians like John Prine and Emmylou Harris.`\
+https://nytimes.com/2026/04/03/arts/music/dolores-keane-dead.html
+
+**Chiefs' Rashee Rice won't face discipline from NFL over civil lawsuit allegations**\
+`Earlier this year, Rice was accused of assault by the mother of his children in a Dallas County, Texas, civil lawsuit.`\
+https://nytimes.com/athletic/7170405/2026/04/03/rashee-rice-suspension-news-chiefs/
+
+**How the Fuel Crisis Crimped an Easter Pilgrimage**\
+`Surging gasoline prices in the Philippines have forced some people to cancel or scale back the Visita Iglesia, a Holy Week tradition in which Catholics travel to seven churches.`\
+https://nytimes.com/2026/04/03/world/asia/philippines-holy-week-oil-fuel-prices.html
+
 **Le Tissier appointed by Southampton in formal advisory role**\
 `Le Tissier previously stepped down from his role as club ambassador in 2022 following criticism of his social media activity.`\
 https://nytimes.com/athletic/7170372/2026/04/03/southampton-matt-le-tissier-return-championship/
@@ -9,32 +37,4 @@ https://nytimes.com/2026/04/03/business/fda-raw-farm-cheese-recall-e-coli.html
 **Cubs ace Cade Horton leaves start in second inning with injury**\
 `Horton worked a quick, 1-2-3 first inning but issued a rare walk to start the second, then threw two pitches before motioning to the dugout.`\
 https://nytimes.com/athletic/7170376/2026/04/03/chicago-cubs-cade-horton-injury/
-
-**Six Senate Races to Watch as Democrats Grow More Bullish**\
-`It’s still a tall task for the party to win back control. Here’s the latest.`\
-https://nytimes.com/2026/04/03/us/politics/senate-races-midterms-primary-election.html
-
-**Pirates' Konnor Griffin, 19, collects RBI double for first MLB hit**\
-`Griffin was down two strikes in his first MLB at-bat, but then lined a run-scoring double to left-center field.`\
-https://nytimes.com/athletic/7170390/2026/04/03/pittsburgh-pirates-konnor-griffin-first-mlb-hit/
-
-**Forest Service Will Close Research Stations That Study Wildfire Risk**\
-`Scientists say their work on fires and climate change could be lost as the agency moves its headquarters to Utah from Washington and shuts 57 research stations.`\
-https://nytimes.com/2026/04/03/climate/forest-service-research-stations.html
-
-**U.S. Searches for Airman After Iran Shoots Down Fighter Jet**\
-`One crew member was rescued. The risky operation to find the second airman came as the United States and Israel struck infrastructure targets in Iran, prompting Iranian retaliation in the Gulf.`\
-https://nytimes.com/2026/04/03/world/middleeast/us-airman-search-iran.html
-
-**Jaguars signing edge rusher Travon Walker to 4-year, $110 million extension**\
-`Walker's new deal includes $77 million guaranteed, including $50 million at signing, according to his agency.`\
-https://nytimes.com/athletic/7170291/2026/04/03/travon-walker-contract-extension-jaguars-nfl-news/
-
-**I’ve Been Rebuying the Same Boots for 16 Years**\
-`Clarks Desert Boots have been a wardrobe staple across the world for almost a century and in my closet for 16 years.`\
-https://nytimes.com/wirecutter/reviews/clarks-desert-boot-review/
-
-**What We Know About the F-15E Strike Eagle Shot Down by Iran**\
-`A rescue helicopter was also fired upon and another Air Force combat plane, an A-10 Warthog, crashed in the Persian Gulf region on Friday.`\
-https://nytimes.com/2026/04/03/world/middleeast/f-15-us-fighter-jet-iran.html
 
