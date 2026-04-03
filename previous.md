@@ -1,3 +1,23 @@
+**How to watch Raptors vs. Grizzlies: Time, TV, streaming**\
+`Find out how to watch the Toronto Raptors play the Memphis Grizzlies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7169700/2026/04/03/raptors-vs-grizzlies-stream-how-to-watch-april-3/
+
+**What U.S. military pilots are trained to do when they are shot down.**\
+`By Pranav Baskar`\
+https://nytimes.com/live/2026/04/03/world/iran-war-trump-oil/what-us-military-pilots-are-trained-to-do-when-they-are-shot-down
+
+**How to watch Hawks vs. Nets: Time, TV, streaming**\
+`Find out how to watch the Atlanta Hawks play the Brooklyn Nets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7169689/2026/04/03/hawks-vs-nets-stream-how-to-watch-april-3/
+
+**How to watch Bulls vs. Knicks: Time, TV, streaming**\
+`Find out how to watch the Chicago Bulls play the New York Knicks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7169684/2026/04/03/bulls-vs-knicks-stream-how-to-watch-april-3/
+
+**How to watch Celtics vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the Boston Celtics play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7169683/2026/04/03/celtics-vs-bucks-stream-how-to-watch-april-3/
+
 **French Politician Is Charged With Glorifying Terrorism in Social Media Post**\
 `Rima Hassan, a member of the European Parliament, could face seven years in prison for the post, in which she quoted a perpetrator of a 1972 massacre in Israel.`\
 https://nytimes.com/2026/04/03/rima-hassan-france-terrorism-charges.html
@@ -13,28 +33,4 @@ https://nytimes.com/athletic/7169578/2026/04/03/sec-championship-game-ending-gre
 **Why Is the Labor Market Stuck?**\
 `Our chief economics correspondent, Ben Casselman, describes how a “low-hire, low-fire” labor market has left American job-seekers in a bind.`\
 https://nytimes.com/video/business/100000010815978/why-is-the-labor-market-stuck.html
-
-**Chekhov Plays for an Un-Chekhov Time**\
-`The directors Michael DeFilippis, Dmitry Krymov and Aleksandr Molochnikov all infuse their current productions with a burning, modern rage.`\
-https://nytimes.com/2026/04/03/theater/chekhov-plays-ivanov-seagull-uncle-vanya.html
-
-**Fernandez's Chelsea punishment 'unfair' says agent, discusses comments and contract**\
-`Javier Pastore says Fernandez will explore other options if he is unable to agree new terms with Chelsea after the World Cup.`\
-https://nytimes.com/athletic/7169153/2026/04/03/enzo-fernandezs-chelsea-rosenior-ban-agent/
-
-**Why Iran Believes It Has the Upper Hand**\
-`The Iran expert Suzanne Maloney explains how Iran views the war, and why the United States is losing.`\
-https://nytimes.com/video/opinion/100000010812935/why-iran-believes-it-has-the-upper-hand.html
-
-**What to know about the report.**\
-`By Lydia DePillis`\
-https://nytimes.com/live/2026/04/03/business/jobs-report-economy/what-to-know-about-the-report
-
-**How to watch South Carolina vs. UConn women's basketball: Semifinals Time, TV, streaming**\
-`Find out how to watch the South Carolina Gamecocks play the UConn Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7169610/2026/04/03/south-carolina-vs-uconn-stream-how-to-watch-april-3/
-
-**NBA trends I'm watching: Respecting Kon Knueppel, the Rookie of the Year front-runner**\
-`One Knicks guard is becoming unrecognizable, and one Wizards streak comes to an end.`\
-https://nytimes.com/athletic/7169356/2026/04/03/kon-knueppel-hornets-knicks-trends-nba/
 

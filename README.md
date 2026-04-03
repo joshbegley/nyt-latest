@@ -1,3 +1,7 @@
+**How to watch Jazz vs. Rockets: Time, TV, streaming**\
+`Find out how to watch the Utah Jazz play the Houston Rockets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7169704/2026/04/03/jazz-vs-rockets-stream-how-to-watch-april-3/
+
 **How to watch Raptors vs. Grizzlies: Time, TV, streaming**\
 `Find out how to watch the Toronto Raptors play the Memphis Grizzlies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7169700/2026/04/03/raptors-vs-grizzlies-stream-how-to-watch-april-3/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7169497/2026/04/03/nhl-personnel-compensation-rules
 **Is the SEC serious about ditching its championship game? 'Its days are numbered'**\
 `In an expanded College Football Playoff — currently at 12, probably even more soon — being the conference champion is almost irrelevant.`\
 https://nytimes.com/athletic/7169578/2026/04/03/sec-championship-game-ending-greg-sankey/
-
-**Why Is the Labor Market Stuck?**\
-`Our chief economics correspondent, Ben Casselman, describes how a “low-hire, low-fire” labor market has left American job-seekers in a bind.`\
-https://nytimes.com/video/business/100000010815978/why-is-the-labor-market-stuck.html
 
