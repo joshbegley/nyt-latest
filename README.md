@@ -1,3 +1,7 @@
+**Le Tissier appointed by Southampton in formal advisory role**\
+`Le Tissier previously stepped down from his role as club ambassador in 2022 following criticism of his social media activity.`\
+https://nytimes.com/athletic/7170372/2026/04/03/southampton-matt-le-tissier-return-championship/
+
 **‘Under Protest,’ Raw Dairy Farm Recalls Cheddar Linked to 9 E. Coli Cases**\
 `Raw Farm, a dairy producer in California, denies that its products have caused the outbreak, which has sickened people in three states.`\
 https://nytimes.com/2026/04/03/business/fda-raw-farm-cheese-recall-e-coli.html
@@ -33,8 +37,4 @@ https://nytimes.com/wirecutter/reviews/clarks-desert-boot-review/
 **What We Know About the F-15E Strike Eagle Shot Down by Iran**\
 `A rescue helicopter was also fired upon and another Air Force combat plane, an A-10 Warthog, crashed in the Persian Gulf region on Friday.`\
 https://nytimes.com/2026/04/03/world/middleeast/f-15-us-fighter-jet-iran.html
-
-**Preschool Instructor Charged With Sexually Assaulting Children**\
-`A 43-year-old man was accused of abusing “multiple” children over a period of 11 years in South Jersey, and prosecutors fear there could be more victims, given his employment.`\
-https://nytimes.com/2026/04/03/nyregion/nj-preschool-instructor-sexual-assault-children.html
 
