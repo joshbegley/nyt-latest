@@ -1,3 +1,7 @@
+**Soft and slow Blue Jackets get destroyed by Hurricanes, knocked out of playoff spot**\
+`The Blue Jackets finished with only 10 shots on goal on Thursday, matching a franchise record that has stood for more than 23 years.`\
+https://nytimes.com/athletic/7168245/2026/04/02/blue-jackets-hurricanes-nhl-playoffs/
+
 **Megan Thee Stallion Returns to Broadway Role After Brief Illness**\
 `The rapper was back onstage in “Moulin Rouge” two days after being taken to a hospital after becoming ill during a performance.`\
 https://nytimes.com/2026/04/02/theater/megan-thee-stallion-returns.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/02/pageoneplus/corrections-april-3-2026.html
 **Artemis II’s commander had a message for one of his oldest friends.**\
 `By Timothy Bella`\
 https://nytimes.com/live/2026/04/02/science/artemis-nasa-moon-astronauts/artemis-iis-commander-had-a-message-for-one-of-his-oldest-friends
-
-**Did Jesus Rise From the Dead?**\
-`A case of mistaken identity, or a profound experience of grief? The religious scholar Bart Ehrman argues that the earliest accounts of Jesus’ Resurrection might be rooted in the way we process loss.`\
-https://nytimes.com/video/opinion/100000010807127/did-jesus-rise-from-the-dead.html
 

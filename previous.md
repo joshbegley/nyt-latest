@@ -1,5 +1,9 @@
-**‘Didn’t respect our opponent’: Bruins punt two points against no-name Panthers**\
-`The Bruins turned it up in the third period with 15 shots on net, but couldn't beat a heavily depleted Panthers squad.`\
+**Megan Thee Stallion Returns to Broadway Role After Brief Illness**\
+`The rapper was back onstage in “Moulin Rouge” two days after being taken to a hospital after becoming ill during a performance.`\
+https://nytimes.com/2026/04/02/theater/megan-thee-stallion-returns.html
+
+**‘Didn’t respect our opponent’: Bruins punt 2 points against no-name Panthers**\
+`The Bruins turned it up in the third period with 15 shots on net but couldn't beat a heavily depleted Panthers squad.`\
 https://nytimes.com/athletic/7168408/2026/04/02/bruins-panthers-injuries-geekie-goal-slump/
 
 **Trump’s Strait of Hormuz Problem**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/04/02/science/artemis-nasa-moon-astronauts/artemis
 **Did Jesus Rise From the Dead?**\
 `A case of mistaken identity, or a profound experience of grief? The religious scholar Bart Ehrman argues that the earliest accounts of Jesus’ Resurrection might be rooted in the way we process loss.`\
 https://nytimes.com/video/opinion/100000010807127/did-jesus-rise-from-the-dead.html
-
-**Gucci Mane Held at Gunpoint, Prompting 2 Rappers’ Arrests**\
-`The hip-hop titan was forced to sign papers releasing a rapper known as Pooh Shiesty from his record contract during an armed confrontation in January at a Dallas music studio, officials said.`\
-https://nytimes.com/2026/04/02/us/gucci-mane-kidnapping-pooh-shiesty-big30.html
 

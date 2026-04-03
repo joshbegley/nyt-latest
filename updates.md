@@ -1,3 +1,11 @@
+**Megan Thee Stallion Returns to Broadway Role After Brief Illness**\
+`The rapper was back onstage in “Moulin Rouge” two days after being taken to a hospital after becoming ill during a performance.`\
+https://nytimes.com/2026/04/02/theater/megan-thee-stallion-returns.html
+
+**‘Didn’t respect our opponent’: Bruins punt 2 points against no-name Panthers**\
+`The Bruins turned it up in the third period with 15 shots on net but couldn't beat a heavily depleted Panthers squad.`\
+https://nytimes.com/athletic/7168408/2026/04/02/bruins-panthers-injuries-geekie-goal-slump/
+
 **‘Didn’t respect our opponent’: Bruins punt two points against no-name Panthers**\
 `The Bruins turned it up in the third period with 15 shots on net, but couldn't beat a heavily depleted Panthers squad.`\
 https://nytimes.com/athletic/7168408/2026/04/02/bruins-panthers-injuries-geekie-goal-slump/
