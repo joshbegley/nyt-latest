@@ -1,3 +1,7 @@
+**Kane out of Bayern game at Freiburg, Davies to return**\
+`Kompany is confident Kane would return against Real Madrid for the Champions League quarter-final first leg on Tuesday.`\
+https://nytimes.com/athletic/7168885/2026/04/03/kane-davies-bayern-injury-news/
+
 **How to watch Cardinals vs. Tigers: Time, TV, streaming for April 3**\
 `Find out how to watch the St. Louis Cardinals play the Detroit Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7168924/2026/04/03/cardinals-vs-tigers-stream-how-to-watch-april-3/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/03/us/politics/trump-supreme-court-justices-vacancie
 **How Israel Is Taking Control of Southern Lebanon**\
 `Israel says it will occupy much of southern Lebanon after its ground invasion. Here’s what the Israeli military presence there looks like now.`\
 https://nytimes.com/interactive/2026/04/03/world/middleeast/israel-military-southern-lebanon-hezbollah.html
-
-**Is There a Proper Way to Eat Chip Dust?**\
-`A ruling on the consumption of snack dregs.`\
-https://nytimes.com/interactive/2026/04/03/magazine/potato-chip-bag-hodgman-quiz.html
 

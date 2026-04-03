@@ -1,3 +1,7 @@
+**Kane out of Bayern game at Freiburg, Davies to return**\
+`Kompany is confident Kane would return against Real Madrid for the Champions League quarter-final first leg on Tuesday.`\
+https://nytimes.com/athletic/7168885/2026/04/03/kane-davies-bayern-injury-news/
+
 **How to watch Cardinals vs. Tigers: Time, TV, streaming for April 3**\
 `Find out how to watch the St. Louis Cardinals play the Detroit Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7168924/2026/04/03/cardinals-vs-tigers-stream-how-to-watch-april-3/
