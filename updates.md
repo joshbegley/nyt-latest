@@ -1,3 +1,7 @@
+**Yankees notes: Bellinger can't believe 'lucky' catch; Judge's close call**\
+`The Yankees pitching staff is off to a record start after winning Friday's home opener in the Bronx.`\
+https://nytimes.com/athletic/7170640/2026/04/03/cody-bellinger-catch-yankees-home-opener/
+
 **Our First Moon Colony Will Be Filled With Garbage**\
 `Forget futuristic glass domes filled with plants and high-tech infrastructure, Jared Isaacman, the head of NASA, says of humanity’s first space colonies. In reality, because of the cost of travel, they will most likely be scrappy bases surrounded by garbage.`\
 https://nytimes.com/video/opinion/100000010821466/our-first-moon-colony-will-be-filled-with-garbage.html

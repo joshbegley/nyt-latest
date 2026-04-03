@@ -1,3 +1,7 @@
+**Dozens of Violations Found at Migrant Detention Camp in Texas**\
+`A review of Camp East Montana in Texas found failures in medical care, disease control and oversight, including improperly documented uses of force.`\
+https://nytimes.com/2026/04/03/us/ice-texas-camp-montana-east.html
+
 **Yankees notes: Bellinger can't believe 'lucky' catch; Judge's close call**\
 `The Yankees pitching staff is off to a record start after winning Friday's home opener in the Bronx.`\
 https://nytimes.com/athletic/7170640/2026/04/03/cody-bellinger-catch-yankees-home-opener/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/04/03/science/space/moon-map-nasa-artemis-i
 **Alejandro Kirk the latest injured Blue Jay after a foul tip hits his left thumb**\
 `After the game, the Blue Jays announced that they've signed Patrick Corbin to a one-year deal, adding rotation depth.`\
 https://nytimes.com/athletic/7170480/2026/04/03/blue-jays-alejandro-kirk-thumb-injury/
-
-**Luka Dončić to miss rest of regular season with hamstring injury, Lakers announce**\
-`Dončić's status for the playoffs, which begin in 15 days, remains uncertain. `\
-https://nytimes.com/athletic/7170499/2026/04/03/luka-doncic-injury-update-season-ending-lakers-nba/
 
