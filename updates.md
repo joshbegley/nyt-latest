@@ -1,3 +1,11 @@
+**Gucci Mane Held at Gunpoint, Prompting 2 Rappers’ Arrests**\
+`The hip-hop titan was forced to sign papers releasing a rapper known as Pooh Shiesty from his record contract during an armed confrontation in January at a Dallas music studio, officials said.`\
+https://nytimes.com/2026/04/02/us/gucci-mane-kidnapping-pooh-shiesty-big30.html
+
+**The Artemis II crew’s spacecraft feels bigger on the inside than you might think.**\
+`By Ashley Ahn`\
+https://nytimes.com/live/2026/04/02/science/artemis-nasa-moon-astronauts/artemis-spacecraft-living-quarters
+
 **Colombian captain James Rodríguez hospitalized for 'severe dehydration'**\
 `The Colombian federation released a statement saying that Rodríguez's dehydration episode "is not linked to his footballing activities.”`\
 https://nytimes.com/athletic/7168108/2026/04/02/colombia-james-rodriguez-dehydration-health-update/
