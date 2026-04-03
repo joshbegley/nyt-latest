@@ -1,3 +1,7 @@
+**How to watch Jazz vs. Rockets: Time, TV, streaming**\
+`Find out how to watch the Utah Jazz play the Houston Rockets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7169704/2026/04/03/jazz-vs-rockets-stream-how-to-watch-april-3/
+
 **How to watch Raptors vs. Grizzlies: Time, TV, streaming**\
 `Find out how to watch the Toronto Raptors play the Memphis Grizzlies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7169700/2026/04/03/raptors-vs-grizzlies-stream-how-to-watch-april-3/
