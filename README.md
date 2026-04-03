@@ -1,3 +1,15 @@
+**Cubs ace Cade Horton leaves start in second inning with injury**\
+`Horton worked a quick, 1-2-3 first inning but issued a rare walk to start the second, then threw two pitches before motioning to the dugout.`\
+https://nytimes.com/athletic/7170376/2026/04/03/chicago-cubs-cade-horton-injury/
+
+**Six Senate Races to Watch as Democrats Grow More Bullish**\
+`It’s still a tall task for the party to win back control. Here’s the latest.`\
+https://nytimes.com/2026/04/03/us/politics/senate-races-midterms-primary-election.html
+
+**Pirates' Konnor Griffin, 19, collects RBI double for first MLB hit**\
+`Griffin was down two strikes in his first MLB at-bat, but then lined a run-scoring double to left-center field.`\
+https://nytimes.com/athletic/7170390/2026/04/03/pittsburgh-pirates-konnor-griffin-first-mlb-hit/
+
 **Forest Service Will Close Research Stations That Study Wildfire Risk**\
 `Scientists say their work on fires and climate change could be lost as the agency moves its headquarters to Utah from Washington and shuts 57 research stations.`\
 https://nytimes.com/2026/04/03/climate/forest-service-research-stations.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/04/03/nyregion/nj-preschool-instructor-sexual-assault-c
 **How iPhones Found Their Way Into Space**\
 `The astronauts traveling in the Artemis II spacecraft were allowed to take smartphones with them. Sadly, they can’t connect to the internet.`\
 https://nytimes.com/2026/04/03/technology/iphones-artemis-nasa.html
-
-**Toronto Tempo and Portland Fire select players in WNBA expansion draft**\
-`Bridget Carleton has a new home. The draft was topped by international stars making moves.`\
-https://nytimes.com/athletic/7170311/2026/04/03/toronto-tempo-portland-fire-wnba-expansion-draft/
-
-**Iran Is Quickly Repairing Missile Bunkers, U.S. Intelligence Says**\
-`Reports cast doubt on how close the United States is to destroying Iran’s missile capability, a key goal in the war.`\
-https://nytimes.com/2026/04/03/us/politics/iran-missiles-launchers.html
-
-**How Luka Dončić could be eligible for NBA awards without playing 65 games**\
-`After injuring his hamstring Thursday at Oklahoma City, the Lakers star might not play the minimum 65 games to be eligible for NBA awards.`\
-https://nytimes.com/athletic/7170214/2026/04/03/luka-doncic-nba-awards-65-games/
 
