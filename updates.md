@@ -1,3 +1,11 @@
+**Chat with Eno Sarris live at 11am PT!**\
+`Eno Sarris will be chatting live with subscribers for an hour at 11am Pacific.`\
+https://nytimes.com/athletic/7169849/2026/04/03/chat-with-eno-sarris-live-at-11am-pt/
+
+**How to watch Magic vs. Mavericks: Time, TV, streaming**\
+`Find out how to watch the Orlando Magic play the Dallas Mavericks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7169848/2026/04/03/magic-vs-mavericks-stream-how-to-watch-april-3/
+
 **FEMA Official Says He Teleported to Waffle House. Experts Are Dubious.**\
 `Gregg Phillips, who is in charge of responding to fires and floods, says the hand of God suddenly and mysteriously moved him to a 24-hour breakfast spot in Rome, Ga.`\
 https://nytimes.com/2026/04/03/us/fema-gregg-phillips-waffle-house-teleportation.html

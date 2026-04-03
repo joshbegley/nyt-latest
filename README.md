@@ -1,3 +1,7 @@
+**How to watch Brewers vs. Royals: Time, TV, streaming for April 3**\
+`Find out how to watch the Milwaukee Brewers play the Kansas City Royals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7169873/2026/04/03/brewers-vs-royals-stream-how-to-watch-april-3/
+
 **Chat with Eno Sarris live at 11am PT!**\
 `Eno Sarris will be chatting live with subscribers for an hour at 11am Pacific.`\
 https://nytimes.com/athletic/7169849/2026/04/03/chat-with-eno-sarris-live-at-11am-pt/
@@ -29,8 +33,4 @@ https://nytimes.com/video/podcasts/100000010810303/youtubes-ceo-on-free-speech-a
 **Brady Tkachuk, Senators dismiss dad Keith's controversial podcast comments as 'white noise'**\
 `The viral comments, made on the Tkachuk brothers' podcast, included criticism of Brady's ice time under Ottawa coach Travis Green.`\
 https://nytimes.com/athletic/7166803/2026/04/03/tkachuk-brothers-podcast-senators-ullmark/
-
-**YouTube’s C.E.O. on Its Settlement to Fund Trump’s Ballroom**\
-`On “The Interview,” Neal Mohan, YouTube’s C.E.O., talks about the platform’s decision to reinstate Donald Trump’s account and the company’s $25 million settlement with Mr. Trump and others whose accounts were suspended after the Jan. 6, 2021, riot at the U.S. Capitol.`\
-https://nytimes.com/video/podcasts/100000010814219/youtubes-ceo-on-its-settlement-to-fund-trumps-ballroom.html
 
