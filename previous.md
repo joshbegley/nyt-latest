@@ -1,3 +1,7 @@
+**‘Didn’t respect our opponent’: Bruins punt two points against no-name Panthers**\
+`The Bruins turned it up in the third period with 15 shots on net, but couldn't beat a heavily depleted Panthers squad.`\
+https://nytimes.com/athletic/7168408/2026/04/02/bruins-panthers-injuries-geekie-goal-slump/
+
 **Trump’s Strait of Hormuz Problem**\
 `Our White House reporter Zolan Kanno-Youngs parses some of President Trump’s conflicting messages about the war with Iran.`\
 https://nytimes.com/video/world/middleeast/100000010815863/trumps-strait-of-hormuz-problem.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010807127/did-jesus-rise-from-the-dead.h
 **Gucci Mane Held at Gunpoint, Prompting 2 Rappers’ Arrests**\
 `The hip-hop titan was forced to sign papers releasing a rapper known as Pooh Shiesty from his record contract during an armed confrontation in January at a Dallas music studio, officials said.`\
 https://nytimes.com/2026/04/02/us/gucci-mane-kidnapping-pooh-shiesty-big30.html
-
-**The Artemis II crew’s spacecraft feels bigger on the inside than you might think.**\
-`By Ashley Ahn`\
-https://nytimes.com/live/2026/04/02/science/artemis-nasa-moon-astronauts/artemis-spacecraft-living-quarters
 
