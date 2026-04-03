@@ -1,3 +1,19 @@
+**How to watch Orioles vs. Pirates: Time, TV, streaming for April 3**\
+`Find out how to watch the Baltimore Orioles play the Pittsburgh Pirates, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7169300/2026/04/03/orioles-vs-pirates-stream-how-to-watch-april-3/
+
+**How to watch Cubs vs. Guardians: Time, TV, streaming for April 3**\
+`Find out how to watch the Chicago Cubs play the Cleveland Guardians, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7169298/2026/04/03/cubs-vs-guardians-stream-how-to-watch-april-3/
+
+**How to watch Reds vs. Rangers: Time, TV, streaming for April 3**\
+`Find out how to watch the Cincinnati Reds play the Texas Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7169293/2026/04/03/reds-vs-rangers-stream-how-to-watch-april-3/
+
+**How to watch Rays vs. Twins: Time, TV, streaming for April 3**\
+`Find out how to watch the Tampa Bay Rays play the Minnesota Twins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7169287/2026/04/03/rays-vs-twins-stream-how-to-watch-april-3/
+
 **How to watch Phillies vs. Rockies: Time, TV, streaming for April 3**\
 `Find out how to watch the Philadelphia Phillies play the Colorado Rockies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7169275/2026/04/03/phillies-vs-rockies-stream-how-to-watch-april-3/

@@ -1,3 +1,19 @@
+**How to watch Orioles vs. Pirates: Time, TV, streaming for April 3**\
+`Find out how to watch the Baltimore Orioles play the Pittsburgh Pirates, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7169300/2026/04/03/orioles-vs-pirates-stream-how-to-watch-april-3/
+
+**How to watch Cubs vs. Guardians: Time, TV, streaming for April 3**\
+`Find out how to watch the Chicago Cubs play the Cleveland Guardians, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7169298/2026/04/03/cubs-vs-guardians-stream-how-to-watch-april-3/
+
+**How to watch Reds vs. Rangers: Time, TV, streaming for April 3**\
+`Find out how to watch the Cincinnati Reds play the Texas Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7169293/2026/04/03/reds-vs-rangers-stream-how-to-watch-april-3/
+
+**How to watch Rays vs. Twins: Time, TV, streaming for April 3**\
+`Find out how to watch the Tampa Bay Rays play the Minnesota Twins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7169287/2026/04/03/rays-vs-twins-stream-how-to-watch-april-3/
+
 **How to watch Phillies vs. Rockies: Time, TV, streaming for April 3**\
 `Find out how to watch the Philadelphia Phillies play the Colorado Rockies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7169275/2026/04/03/phillies-vs-rockies-stream-how-to-watch-april-3/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7169061/2026/04/03/indiana-football-national-champi
 **The numbers to know ahead of the FA Cup quarter-finals**\
 `All the key pointers ahead of a big weekend in the oldest cup competition in the world`\
 https://nytimes.com/athletic/7168905/2026/04/03/fa-cup-quarter-finals-liverpool-man-city-arsenal-chelsea-port-vale/
-
-**Israel plans to seize control of parts of southern Lebanon.**\
-`By Christina Goldbaum, Samuel Granados and Sanjana Varghese`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/israel-plans-to-seize-control-of-parts-of-southern-lebanon
-
-**New owner Tom Dundon wants to turn the Trail Blazers into winners. Why I'm still wary**\
-`The Blazers' new owner still won't commit to Portland's future or put his own money into arena upgrades. But he showed humanity.`\
-https://nytimes.com/athletic/7168363/2026/04/03/tom-dundon-blazers-owner-nba-portland/
-
-**White House Seeks $1.5 Trillion for Defense in New Budget Request**\
-`The huge, proposed increase would be offset in part by steep cuts to domestic programs, some of which the administration describes as wasteful.`\
-https://nytimes.com/2026/04/03/us/politics/white-house-defense-budget.html
-
-**Gattuso leaves Italy head coach role after World Cup qualification failure**\
-`Italy were beaten on penalties by Bosnia and Herzegovina in the playoff final on Tuesday to miss their third tournament in a row. `\
-https://nytimes.com/athletic/7169102/2026/04/03/gennaro-gattuso-italy-head-coach-world-cup/
 
