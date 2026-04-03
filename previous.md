@@ -1,3 +1,15 @@
+**Students Are Disciplined Over Antisemitic Posts Targeting Hockey Rivals**\
+`A Connecticut high school said that it was aware of the Instagram posts and that antisemitism is “repugnant and antithetical to our values as a school.”`\
+https://nytimes.com/2026/04/03/nyregion/fairfield-prep-connecticut-antisemitism.html
+
+**A Sneeze**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2026/04/03/learning/a-sneeze.html
+
+**How New Yorkers Spend, Splurge and Scrimp to Live in the City**\
+`Eliza Shapiro, who reports on New York City’s affordability crisis, asked hundreds of residents to get candid about their finances.`\
+https://nytimes.com/2026/04/03/insider/affording-new-york-city-apartments.html
+
 **Captain, leader, legend — but is John Terry his own worst enemy?**\
 `The former Chelsea captain has a playing CV few can match but his past controversies are not helping his bid to forge a coaching career`\
 https://nytimes.com/athletic/7148627/2026/04/03/john-terry-chelsea/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7166283/2026/04/03/deontay-wilder-derek-chisora-int
 **How Giorgia Meloni Fell to Earth**\
 `For more than three years, Giorgia Meloni’s leadership of Italy has seemed unshakable. Now she suddenly seems vulnerable.`\
 https://nytimes.com/2026/04/03/opinion/trump-europe-iran-meloni-italy.html
-
-**The New York Times in Print for Friday, April 3, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/04/03/todays-new-york-times
-
-**Ollie Robinson on England: 'I’ve not done myself any favours. It's up to me to force myself back in'**\
-`The newly appointed Sussex red-ball captain has not played for his country since 2024 but, if fit and firing, he may be in the frame again`\
-https://nytimes.com/athletic/7157537/2026/04/03/ollie-robinson-england-sussex/
-
-**How Manchester United's internationals have fared for their countries**\
-`Many players needed game time, but the club's internationals enjoyed mixed fortunes`\
-https://nytimes.com/athletic/7166247/2026/04/03/manchester-united-internationals-fernandes-cunha-maguire/
 
