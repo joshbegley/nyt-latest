@@ -1,3 +1,11 @@
+**Israel plans to seize control of parts of southern Lebanon.**\
+`By Christina Goldbaum, Samuel Granados and Sanjana Varghese`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/israel-plans-to-seize-control-of-parts-of-southern-lebanon
+
+**New owner Tom Dundon wants to turn the Trail Blazers into winners. Why I'm still wary**\
+`The Blazers' new owner still won't commit to Portland's future or put his own money into arena upgrades. But he showed humanity.`\
+https://nytimes.com/athletic/7168363/2026/04/03/tom-dundon-blazers-owner-nba-portland/
+
 **White House Seeks $1.5 Trillion for Defense in New Budget Request**\
 `The massive, proposed increase would be offset in part by steep cuts to domestic programs, some of which the administration describes as wasteful.`\
 https://nytimes.com/2026/04/03/us/politics/white-house-seeks-1-5-trillion-for-defense-in-new-budget-request.html

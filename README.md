@@ -1,3 +1,11 @@
+**The day Indiana's national championship trophy came to Notre Dame's backyard**\
+`As part of a nine-stop tour around the state, the Hoosiers' haul spent the afternoon in South Bend, three miles from Notre Dame's campus.`\
+https://nytimes.com/athletic/7169061/2026/04/03/indiana-football-national-championship-trophy-tour-notre-dame/
+
+**The numbers to know ahead of the FA Cup quarter-finals**\
+`All the key pointers ahead of a big weekend in the oldest cup competition in the world`\
+https://nytimes.com/athletic/7168905/2026/04/03/fa-cup-quarter-finals-liverpool-man-city-arsenal-chelsea-port-vale/
+
 **Israel plans to seize control of parts of southern Lebanon.**\
 `By Christina Goldbaum, Samuel Granados and Sanjana Varghese`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/israel-plans-to-seize-control-of-parts-of-southern-lebanon
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7168544/2026/04/03/pistons-lessons-playoffs-cade-cu
 **Lowetide: Why the Oilers' defensive tweaks are gaining traction**\
 `Winners of five straight, the Oilers have reached Easter weekend looking like a Stanley Cup contender again.`\
 https://nytimes.com/athletic/7166761/2026/04/03/edmonton-oilers-stats-defensive-tweaks/
-
-**What Jonah Elliss' position change could mean for Broncos' defense, draft plans**\
-`Que Robinson, who sacked Patriots QB Drake Maye in the AFC Championship Game, should see more pass-rushing reps this offseason.`\
-https://nytimes.com/athletic/7167087/2026/04/03/jonah-elliss-denver-broncos-draft/
-
-**Trump Administration Live Updates: Hegseth Fires Army Chief Amid Feud With Its Leaders**\
-``\
-https://nytimes.com/live/2026/04/03/us/trump-news
 

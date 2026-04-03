@@ -1,3 +1,11 @@
+**Israel plans to seize control of parts of southern Lebanon.**\
+`By Christina Goldbaum, Samuel Granados and Sanjana Varghese`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/israel-plans-to-seize-control-of-parts-of-southern-lebanon
+
+**New owner Tom Dundon wants to turn the Trail Blazers into winners. Why I'm still wary**\
+`The Blazers' new owner still won't commit to Portland's future or put his own money into arena upgrades. But he showed humanity.`\
+https://nytimes.com/athletic/7168363/2026/04/03/tom-dundon-blazers-owner-nba-portland/
+
 **White House Seeks $1.5 Trillion for Defense in New Budget Request**\
 `The massive, proposed increase would be offset in part by steep cuts to domestic programs, some of which the administration describes as wasteful.`\
 https://nytimes.com/2026/04/03/us/politics/white-house-seeks-1-5-trillion-for-defense-in-new-budget-request.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7167087/2026/04/03/jonah-elliss-denver-broncos-draf
 **Trump Administration Live Updates: Hegseth Fires Army Chief Amid Feud With Its Leaders**\
 ``\
 https://nytimes.com/live/2026/04/03/us/trump-news
-
-**More Infrastructure Sites in Gulf Countries Are Attacked**\
-`In Kuwait, an Iranian attack on Friday damaged a power and water desalination plant, officials said. Both sides in the Iran war have ramped up strikes on civilian targets.`\
-https://nytimes.com/2026/04/03/world/middleeast/infrastructure-attacked-gulf-kuwait-iran.html
-
-**How Do You Count 1.4 Billion People? India Is Trying.**\
-`India’s 2027 census will shape how wealth and power is distributed and inform policies around castes and women in the world’s most populous nation.`\
-https://nytimes.com/2026/04/03/world/asia/india-census-population.html
 
