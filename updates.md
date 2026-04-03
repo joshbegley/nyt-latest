@@ -1,3 +1,11 @@
+**How will Luka Dončić's injury impact the rest of the Lakers' season, playoffs?**\
+`At this point, the Lakers' priority moving forward should be their superstar's playoff availability.`\
+https://nytimes.com/athletic/7168763/2026/04/03/luka-doncic-hamstring-injury-lakers-nba-playoffs/
+
+**Canucks clinch top draft lottery odds: Now it's time to root against Quinn Hughes' Wild**\
+`Where exactly the first-round pick Vancouver acquired from the Wild falls could legitimately matter.`\
+https://nytimes.com/athletic/7168598/2026/04/03/canucks-quinn-hughes-lottery-odds-playoffs-wild/
+
 **No Ant, no Cade, no Luka? NBA awards race is officially a fiasco**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7166607/2026/04/03/nba-awards-65-game-luka-doncic-cade-cunningham-anthony-edwards/
