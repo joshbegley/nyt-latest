@@ -1,3 +1,7 @@
+**Final Four Haters Guide: Is UConn or Michigan a more objectionable champion?**\
+`Chances are, Indianapolis will produce something for the world to gather around and truly abhor.`\
+https://nytimes.com/athletic/7167735/2026/04/03/final-four-michigan-uconn/
+
 **Students Are Disciplined Over Antisemitic Posts Targeting Hockey Rivals**\
 `A Connecticut high school said that it was aware of the Instagram posts and that antisemitism is “repugnant and antithetical to our values as a school.”`\
 https://nytimes.com/2026/04/03/nyregion/fairfield-prep-connecticut-antisemitism.html

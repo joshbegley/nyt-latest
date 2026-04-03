@@ -1,3 +1,7 @@
+**Final Four Haters Guide: Is UConn or Michigan a more objectionable champion?**\
+`Chances are, Indianapolis will produce something for the world to gather around and truly abhor.`\
+https://nytimes.com/athletic/7167735/2026/04/03/final-four-michigan-uconn/
+
 **Students Are Disciplined Over Antisemitic Posts Targeting Hockey Rivals**\
 `A Connecticut high school said that it was aware of the Instagram posts and that antisemitism is “repugnant and antithetical to our values as a school.”`\
 https://nytimes.com/2026/04/03/nyregion/fairfield-prep-connecticut-antisemitism.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/03/arts/television/late-night-pam-bondi.html
 **Deontay Wilder: 'I sacrificed my body for my child. Now I'm being selfish'**\
 `The U.S. veteran is not ready to consider retirement as he launches his latest comeback this weekend`\
 https://nytimes.com/athletic/7166283/2026/04/03/deontay-wilder-derek-chisora-interview/
-
-**How Giorgia Meloni Fell to Earth**\
-`For more than three years, Giorgia Meloni’s leadership of Italy has seemed unshakable. Now she suddenly seems vulnerable.`\
-https://nytimes.com/2026/04/03/opinion/trump-europe-iran-meloni-italy.html
 
