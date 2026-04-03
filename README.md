@@ -1,3 +1,7 @@
+**Settlement in college tennis lawsuit will change NCAA prize-money rules across sports**\
+`A settlement in a suit filed by two tennis players is set to have division-wide ramifications in the top tier of college sports.`\
+https://nytimes.com/athletic/7169685/2026/04/03/ncaa-prize-money-lawsuit-college-tennis/
+
 **Shohei Ohtani connects on his first home run of the 2026 season**\
 `Ohtani was off to a slow start at the plate, collecting only three hits in his first six games, though he was reaching base at a good clip.`\
 https://nytimes.com/athletic/7169968/2026/04/03/shohei-ohtani-los-angeles-dodgers-first-home-run-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/03/science/nasa-artemis-ii-demonstration-moon-pilot.
 **Alabama First Congressional District 2026: Latest Polls**\
 `Track the latest polls in Alabama's 1st Congressional District.`\
 https://nytimes.com/interactive/polls/alabama-us-house-1-polls-2026.html
-
-**Amid UNC interest, Tommy Lloyd announces new contract at Arizona**\
-`"I made a decision that my Michael Jordan is Steve Kerr, and I'm proud to be an Arizona Wildcat," Lloyd said Friday.`\
-https://nytimes.com/athletic/7169906/2026/04/03/tommy-lloyd-arizona-extension-unc-basketball-coaching-search/
 

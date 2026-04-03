@@ -1,3 +1,7 @@
+**Shohei Ohtani connects on his first home run of the 2026 season**\
+`Ohtani was off to a slow start at the plate, collecting only three hits in his first six games, though he was reaching base at a good clip.`\
+https://nytimes.com/athletic/7169968/2026/04/03/shohei-ohtani-los-angeles-dodgers-first-home-run-2026/
+
 **House Democrat Wages a Lonely Legal Fight Testing Congress’s Power**\
 `Representative LaMonica McIver is facing crushing legal fees and prison time as she seeks to get the Justice Department assault case against her dismissed, citing her legislative prerogatives.`\
 https://nytimes.com/2026/04/03/us/politics/lamonica-mciver-immigration-congress-trump.html
