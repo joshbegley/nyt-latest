@@ -1,3 +1,7 @@
+**What’s the future best and worst case for Egor Chinakhov and Josh Doan?**\
+`Sometimes, it just takes a change of scenery to get a player into gear. That's looking like the case for Chinakhov and Doan.`\
+https://nytimes.com/athletic/7166043/2026/04/03/nhl-egor-chinakhov-josh-doan-best-worst/
+
 **The lessons Puka Nacua learns this offseason could define the Rams' future**\
 `The star Rams receiver has had his share of off-the-field incidents over the past year. How could it affect the team's long-term future?`\
 https://nytimes.com/athletic/7166887/2026/04/03/puka-nacua-los-angeles-rams-future/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todaysinyt/2026/04/03/todays-new-york-times-internatio
 **Kane out of Bayern game at Freiburg, Davies to return**\
 `Kompany is confident Kane would return against Real Madrid for the Champions League quarter-final first leg on Tuesday.`\
 https://nytimes.com/athletic/7168885/2026/04/03/kane-davies-bayern-injury-news/
-
-**How to watch Cardinals vs. Tigers: Time, TV, streaming for April 3**\
-`Find out how to watch the St. Louis Cardinals play the Detroit Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7168924/2026/04/03/cardinals-vs-tigers-stream-how-to-watch-april-3/
 

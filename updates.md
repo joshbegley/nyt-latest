@@ -1,3 +1,7 @@
+**The lessons Puka Nacua learns this offseason could define the Rams' future**\
+`The star Rams receiver has had his share of off-the-field incidents over the past year. How could it affect the team's long-term future?`\
+https://nytimes.com/athletic/7166887/2026/04/03/puka-nacua-los-angeles-rams-future/
+
 **'Vamos, Yaxel!': How mom of Michigan star kept him going, all the way to Final Four**\
 `“I can hear nobody else in the stadium but her,” said Yaxel Lendeborg of his mother. “It puts me in attack mode, honestly.”`\
 https://nytimes.com/athletic/7167775/2026/04/03/yaxel-lendeborg-michigan-basketball-march-madness-final-four/
