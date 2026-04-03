@@ -1,3 +1,11 @@
+**Our First Moon Colony Will Be Filled With Garbage**\
+`Forget futuristic glass domes filled with plants and high-tech infrastructure, Jared Isaacman, the head of NASA, says of humanity’s first space colonies. In reality, because of the cost of travel, they will most likely be scrappy bases surrounded by garbage.`\
+https://nytimes.com/video/opinion/100000010821466/our-first-moon-colony-will-be-filled-with-garbage.html
+
+**Ozzie Guillén's lucky No. 13 is getting retired by the White Sox, and it's about time**\
+`Guillén was moved to tears when he learned the news during Chicago's 5-4 victory in the home opener against Toronto.`\
+https://nytimes.com/athletic/7170598/2026/04/03/ozzie-guillen-white-sox-no-13-uniform-retirement/
+
 **WNBA expansion draft winners and losers: Portland's depth, Toronto's future scoring**\
 `Does Nyara Sabally find herself in a better position? Will the Tempo pick up complementary players to Julie Allemand? `\
 https://nytimes.com/athletic/7170637/2026/04/03/wnba-expansion-draft-toronto-portland-winners-losers/
@@ -11,7 +19,7 @@ https://nytimes.com/2026/04/03/us/politics/trump-budget-proposal-woke.html
 https://nytimes.com/2026/04/03/arts/modigliani-nazi-court-ruling.html
 
 **Stray Bullet That Killed Baby Girl in Brooklyn Also Grazed Brother**\
-`A man was arrested and charged with murder, attempted murder and assault in connection to a shooting on Wednesday that killed an infant.`\
+`Two men have been arrested in connection to a shooting on Wednesday that killed an infant. One was charged with murder, attempted murder and assault.`\
 https://nytimes.com/2026/04/03/nyregion/baby-murder-williamsburg-arrest.html
 
 **Why We Chose to Go Back to the Moon**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7170499/2026/04/03/luka-doncic-injury-update-season
 **Ruff shakes things up as Sabres attempt to end playoff drought: Notebook**\
 `Buffalo has been in a funk, and coach Lindy Ruff put the Sabres through an intense practice Friday as they eye clinching a playoff spot.`\
 https://nytimes.com/athletic/7170331/2026/04/03/sabres-playoffs-lindy-ruff-line-changes/
-
-**One of Two Americans Rescued After Iran Downs a U.S. Jet**\
-`Also, job growth rebounded in March. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2026/04/03/briefing/us-jet-iran-search-job-growth.html
-
-**23 Days in Iraq: U.S. Pilot Shot Down During Invasion Recalls Battle for Survival**\
-`Ronald Young Jr. was in the Army when his Apache Longbow copter went down during the U.S. invasion of Iraq.`\
-https://nytimes.com/2026/04/03/world/middleeast/iraq-us-pow-rescue-survival.html
 
