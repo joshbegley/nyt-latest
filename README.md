@@ -19,7 +19,7 @@ https://nytimes.com/2026/04/03/us/politics/trump-budget-proposal-woke.html
 https://nytimes.com/2026/04/03/arts/modigliani-nazi-court-ruling.html
 
 **Stray Bullet That Killed Baby Girl in Brooklyn Also Grazed Brother**\
-`A man was arrested and charged with murder, attempted murder and assault in connection to a shooting on Wednesday that killed an infant.`\
+`Two men have been arrested in connection to a shooting on Wednesday that killed an infant. One was charged with murder, attempted murder and assault.`\
 https://nytimes.com/2026/04/03/nyregion/baby-murder-williamsburg-arrest.html
 
 **Why We Chose to Go Back to the Moon**\
