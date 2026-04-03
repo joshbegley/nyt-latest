@@ -1,3 +1,11 @@
+**Chat with Eno Sarris live at 11am PT!**\
+`Eno Sarris will be chatting live with subscribers for an hour at 11am Pacific.`\
+https://nytimes.com/athletic/7169849/2026/04/03/chat-with-eno-sarris-live-at-11am-pt/
+
+**How to watch Magic vs. Mavericks: Time, TV, streaming**\
+`Find out how to watch the Orlando Magic play the Dallas Mavericks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7169848/2026/04/03/magic-vs-mavericks-stream-how-to-watch-april-3/
+
 **FEMA Official Says He Teleported to Waffle House. Experts Are Dubious.**\
 `Gregg Phillips, who is in charge of responding to fires and floods, says the hand of God suddenly and mysteriously moved him to a 24-hour breakfast spot in Rome, Ga.`\
 https://nytimes.com/2026/04/03/us/fema-gregg-phillips-waffle-house-teleportation.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7166803/2026/04/03/tkachuk-brothers-podcast-senator
 **YouTube’s C.E.O. on Its Settlement to Fund Trump’s Ballroom**\
 `On “The Interview,” Neal Mohan, YouTube’s C.E.O., talks about the platform’s decision to reinstate Donald Trump’s account and the company’s $25 million settlement with Mr. Trump and others whose accounts were suspended after the Jan. 6, 2021, riot at the U.S. Capitol.`\
 https://nytimes.com/video/podcasts/100000010814219/youtubes-ceo-on-its-settlement-to-fund-trumps-ballroom.html
-
-**NFL rejects Bears' appeal for compensatory draft picks after Ian Cunningham exit**\
-`The league ruled that Cunningham is not the Falcons' primary football executive. The NFL deemed Matt Ryan to hold that position.`\
-https://nytimes.com/athletic/7169670/2026/04/03/bears-compensatory-nfl-draft-picks-appeal-rejected/
-
-**How Do I Recreate Julianne Moore’s Eye Makeup?**\
-`The secret to the actress’s reddish-brown tint from a recent Pedro Almodóvar film.`\
-https://nytimes.com/2026/04/03/t-magazine/julianne-moore-makeup.html
 

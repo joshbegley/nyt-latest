@@ -1,3 +1,7 @@
+**FEMA Official Says He Teleported to Waffle House. Experts Are Dubious.**\
+`Gregg Phillips, who is in charge of responding to fires and floods, says the hand of God suddenly and mysteriously moved him to a 24-hour breakfast spot in Rome, Ga.`\
+https://nytimes.com/2026/04/03/us/fema-gregg-phillips-waffle-house-teleportation.html
+
 **The Rise and Fall of Pam Bondi**\
 `Readers react to President Trump’s firing of the attorney general. Also: A.I. and therapy.`\
 https://nytimes.com/2026/04/03/opinion/pam-bondi-trump.html
