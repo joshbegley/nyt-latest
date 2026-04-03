@@ -1,3 +1,7 @@
+**The Premier League Hope-o-meter: How are fans feeling about the rest of the season?**\
+`The Premier League Hope-o-meter is back for the rest of the season — and there are some surprising teams in surprising places`\
+https://nytimes.com/athletic/7166723/2026/04/03/premier-league-hope-o-meter-season-fa-cup-champions-league/
+
 **Football is broken – and 'selling' community assets to keep up with huge spending is proof**\
 `Latest accounts reveal that several Premier League clubs are selling stadiums, women's teams and other assets to meet spending regulations `\
 https://nytimes.com/athletic/7166938/2026/04/03/newcastle-aston-villa-chelsea-everton-accounts-stadium-sale/
