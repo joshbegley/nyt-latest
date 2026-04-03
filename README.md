@@ -1,3 +1,11 @@
+**What if Trump Just Walked Away From Iran?**\
+`Iran will become “the toll collector at the gulf” if Trump preemptively walks away from the conflict in Iran, Suzanne Maloney, the director of foreign policy at the Brookings Institution, argues on “The Ezra Klein Show.”`\
+https://nytimes.com/video/opinion/100000010812971/what-if-trump-just-walked-away-from-iran.html
+
+**Why Iranians Believe They Have the Upper Hand**\
+`Iran believes time is on its side, and that the West isn’t ready for the economic shock of a blocked Strait of Hormuz, warns Suzanne Maloney, the director of foreign policy at the Brookings Institution.`\
+https://nytimes.com/video/opinion/100000010812958/why-iranians-believe-they-have-the-upper-hand.html
+
 **Dozens of Violations Found at Migrant Detention Camp in Texas**\
 `A review of Camp East Montana in Texas found failures in medical care, disease control and oversight, including improperly documented uses of force.`\
 https://nytimes.com/2026/04/03/us/ice-texas-camp-montana-east.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/03/arts/modigliani-nazi-court-ruling.html
 **Stray Bullet That Killed Baby Girl in Brooklyn Also Grazed Brother**\
 `Two men have been arrested in connection to a shooting on Wednesday that killed an infant. One was charged with murder, attempted murder and assault.`\
 https://nytimes.com/2026/04/03/nyregion/baby-murder-williamsburg-arrest.html
-
-**Why We Chose to Go Back to the Moon**\
-`These lunar resources could be valuable to us on Earth and in space.`\
-https://nytimes.com/interactive/2026/04/03/science/space/moon-map-nasa-artemis-ii.html
-
-**Alejandro Kirk the latest injured Blue Jay after a foul tip hits his left thumb**\
-`After the game, the Blue Jays announced that they've signed Patrick Corbin to a one-year deal, adding rotation depth.`\
-https://nytimes.com/athletic/7170480/2026/04/03/blue-jays-alejandro-kirk-thumb-injury/
 
