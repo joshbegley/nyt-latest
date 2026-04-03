@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, April 5, 2026**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2026/04/03/upshot/flashback.html
+
 **Prime Tire: Similarities of Verstappen and Senna**\
 `Welcome to Prime Tire, The Athletic's F1 newsletter.`\
 https://nytimes.com/athletic/7170044/2026/04/03/max-verstappen-ayrton-senna-prime-tire/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/03/us/politics/justice-alito-briefly-hospitalized.ht
 **Barcelona continue to dominate Real Madrid. Can this really be called El Clasico?**\
 `Barcelona and Real Madrid are equals in the men's game. For the women's teams, it is an entirely different story`\
 https://nytimes.com/athletic/7169777/2026/04/03/barcelona-femeni-real-madrid-gap/
-
-**Kentucky Fourth Congressional District 2026: Latest Polls**\
-`Track the latest polls in Kentucky's 4th Congressional District.`\
-https://nytimes.com/interactive/polls/kentucky-us-house-4-polls-2026.html
 

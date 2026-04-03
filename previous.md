@@ -1,3 +1,19 @@
+**Prime Tire: Similarities of Verstappen and Senna**\
+`Welcome to Prime Tire, The Athletic's F1 newsletter.`\
+https://nytimes.com/athletic/7170044/2026/04/03/max-verstappen-ayrton-senna-prime-tire/
+
+**Milan Cortina Olympics doping report finds no doping violations**\
+`The indipendent body behind the doping analysis tested more than 3,000 samples from nearly 1,900 athletes.`\
+https://nytimes.com/athletic/7169622/2026/04/03/winter-olympics-2026-doping-violations-report/
+
+**The Neighbor Who Has No Problem Fighting With Mayor Mamdani**\
+`Mayor Zohran Mamdani and the City Council speaker, Julie Menin, both live on the Upper East Side. They are sparring over different approaches to balancing a $5.4 billion deficit.`\
+https://nytimes.com/2026/04/03/nyregion/mamdani-menin-nyc-budget.html
+
+**Settlement in college tennis lawsuit will change NCAA prize-money rules across sports**\
+`A settlement in a suit filed by two tennis players is set to have division-wide ramifications in the top tier of college sports.`\
+https://nytimes.com/athletic/7169685/2026/04/03/ncaa-prize-money-lawsuit-college-tennis/
+
 **Shohei Ohtani connects on his first home run of the 2026 season**\
 `Ohtani was off to a slow start at the plate, collecting only three hits in his first six games, though he was reaching base at a good clip.`\
 https://nytimes.com/athletic/7169968/2026/04/03/shohei-ohtani-los-angeles-dodgers-first-home-run-2026/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7169777/2026/04/03/barcelona-femeni-real-madrid-gap
 **Kentucky Fourth Congressional District 2026: Latest Polls**\
 `Track the latest polls in Kentucky's 4th Congressional District.`\
 https://nytimes.com/interactive/polls/kentucky-us-house-4-polls-2026.html
-
-**Georgia 13th Congressional District 2026: Latest Polls**\
-`Track the latest polls in Georgia's 13th Congressional District.`\
-https://nytimes.com/interactive/polls/georgia-us-house-13-polls-2026.html
-
-**Artemis II Pilot Took a Test Drive on the Way to the Moon**\
-`Victor Glover, a former Navy test pilot, carefully maneuvered the Orion capsule in space around a discarded rocket stage. The demonstration is crucial for future moon landing missions.`\
-https://nytimes.com/2026/04/03/science/nasa-artemis-ii-demonstration-moon-pilot.html
-
-**Alabama First Congressional District 2026: Latest Polls**\
-`Track the latest polls in Alabama's 1st Congressional District.`\
-https://nytimes.com/interactive/polls/alabama-us-house-1-polls-2026.html
-
-**Amid UNC interest, Tommy Lloyd announces new contract at Arizona**\
-`"I made a decision that my Michael Jordan is Steve Kerr, and I'm proud to be an Arizona Wildcat," Lloyd said Friday.`\
-https://nytimes.com/athletic/7169906/2026/04/03/tommy-lloyd-arizona-extension-unc-basketball-coaching-search/
 
