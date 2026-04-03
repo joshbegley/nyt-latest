@@ -1,3 +1,11 @@
+**Cade Cunningham still out with injury, will be ineligible for NBA awards**\
+`Cunningham remains out for the Pistons' game against the Timberwolves on Thursday night.`\
+https://nytimes.com/athletic/7166877/2026/04/02/cade-cunningham-injury-update-pistons/
+
+**Corrections: April 3, 2026**\
+`Corrections that appeared in print on Friday, April 3, 2026.`\
+https://nytimes.com/2026/04/02/pageoneplus/corrections-april-3-2026.html
+
 **Artemis II’s commander had a message for one of his oldest friends.**\
 `By Timothy Bella`\
 https://nytimes.com/live/2026/04/02/science/artemis-nasa-moon-astronauts/artemis-iis-commander-had-a-message-for-one-of-his-oldest-friends
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7167325/2026/04/02/uefa-womens-champions-league-bar
 **Anthony Edwards misses Thursday's game, making him ineligible for NBA awards**\
 `The Timberwolves star, who is averaging 29.3 points per game, will not reach the 65-game threshold for being eligible for awards.`\
 https://nytimes.com/athletic/7168023/2026/04/02/anthony-edwards-injury-update-timberwolves/
-
-**How Jesus Altered the World’s Conscience**\
-`It might sound obvious now, but helping your neighbor wasn’t always seen as a moral imperative. The New Testament scholar Bart Ehrman explains how Jesus’ teachings shape the way we all view our role in society today.`\
-https://nytimes.com/video/opinion/100000010807119/how-jesus-altered-the-worlds-conscience.html
-
-**Here’s What Happened in the War in the Middle East on Thursday**\
-`President Trump’s prime-time address received a defiant response from a top leader in Tehran.`\
-https://nytimes.com/2026/04/02/world/middleeast/iran-war-middle-east-recap-thursday.html
 
