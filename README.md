@@ -1,3 +1,11 @@
+**Twins' home opener goes dark as power outage hits downtown Minneapolis**\
+`Power went out at Target Field 51 minutes after the team opened its gates for the first time in the 2026 season.`\
+https://nytimes.com/athletic/7170157/2026/04/03/twins-home-opener-power-outage/
+
+**Nick Lodolo's return to mound pushed back as finger blister issues return**\
+`The Reds pitcher throws an elite slider that causes a blister on the pad of his index finger. Managing that has become a challenge.`\
+https://nytimes.com/athletic/7170149/2026/04/03/nick-lodolo-reads-injury-finger-blister/
+
 **President Trump Makes Contradictory Statements About Strategy for War in Iran**\
 `Since launching the war in Iran on Feb. 28, President Trump has altered his position on regime change and shifted the timeline of operations.`\
 https://nytimes.com/video/us/politics/100000010817995/trump-war-iran-regime.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7170176/2026/04/03/mariners-vs-angels-stream-how-to
 **How to watch Braves vs. Diamondbacks: Time, TV, streaming for April 3**\
 `Find out how to watch the Atlanta Braves play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7170170/2026/04/03/braves-vs-diamondbacks-stream-how-to-watch-april-3/
-
-**How to watch Astros vs. Athletics: Time, TV, streaming for April 3**\
-`Find out how to watch the Houston Astros play the Athletics, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7170167/2026/04/03/astros-vs-athletics-stream-how-to-watch-april-3/
-
-**H.H.S. Takes a First Step Toward Restoring Vaccine Advisory Committee**\
-`A federal judge last month questioned the legitimacy of the panel and overturned its recent work. A notice suggests that it may be revived on Robert F. Kennedy Jr.’s terms.`\
-https://nytimes.com/2026/04/03/health/kennedy-vaccine-advisers-acip.html
 

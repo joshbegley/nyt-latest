@@ -1,3 +1,7 @@
+**Wrexham have evolved - and West Brom are the perfect yardstick**\
+`Wrexham looked well short of Championship level when they were humbled by West Brom in August. But they're a different beast now`\
+https://nytimes.com/athletic/7160305/2026/04/03/wrexham-west-brom-squad-championship/
+
 **President Trump Makes Contradictory Statements About Strategy for War in Iran**\
 `Since launching the war in Iran on Feb. 28, President Trump has altered his position on regime change and shifted the timeline of operations.`\
 https://nytimes.com/video/us/politics/100000010817995/trump-war-iran-regime.html

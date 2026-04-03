@@ -2,7 +2,7 @@
 `Since launching the war in Iran on Feb. 28, President Trump has altered his position on regime change and shifted the timeline of operations.`\
 https://nytimes.com/video/us/politics/100000010817995/trump-war-iran-regime.html
 
-**Wrexham have evolved - and why West Brom are the perfect yardstick**\
+**Wrexham have evolved - and West Brom are the perfect yardstick**\
 `Wrexham looked well short of Championship level when they were humbled by West Brom in August. But they're a different beast now`\
 https://nytimes.com/athletic/7160305/2026/04/03/wrexham-west-brom-squad-championship/
 
@@ -33,8 +33,4 @@ https://nytimes.com/athletic/7170167/2026/04/03/astros-vs-athletics-stream-how-t
 **H.H.S. Takes a First Step Toward Restoring Vaccine Advisory Committee**\
 `A federal judge last month questioned the legitimacy of the panel and overturned its recent work. A notice suggests that it may be revived on Robert F. Kennedy Jr.’s terms.`\
 https://nytimes.com/2026/04/03/health/kennedy-vaccine-advisers-acip.html
-
-**Wedding Guides**\
-``\
-https://nytimes.com/spotlight/wedding-guides
 
