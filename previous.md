@@ -1,3 +1,11 @@
+**White House Seeks $1.5 Trillion for Defense in New Budget Request**\
+`The massive, proposed increase would be offset in part by steep cuts to domestic programs, some of which the administration describes as wasteful.`\
+https://nytimes.com/2026/04/03/us/politics/white-house-seeks-1-5-trillion-for-defense-in-new-budget-request.html
+
+**Gattuso leaves Italy head coach role after World Cup qualification failure**\
+`Italy were beaten on penalties by Bosnia and Herzegovina in the playoff final on Tuesday to miss their third tournament in a row. `\
+https://nytimes.com/athletic/7169102/2026/04/03/gennaro-gattuso-italy-head-coach-world-cup/
+
 **A crowd-pleasing debut from Daniel Susac sends Giants to their first home victory**\
 `The catcher, added in the Rule 5 draft this offseason, had three hits and a walk in his first start, and caught Blade Tidwell's first save.`\
 https://nytimes.com/athletic/7168818/2026/04/03/daniel-susac-giants-debut/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/03/world/middleeast/infrastructure-attacked-gulf-kuw
 **How Do You Count 1.4 Billion People? India Is Trying.**\
 `India’s 2027 census will shape how wealth and power is distributed and inform policies around castes and women in the world’s most populous nation.`\
 https://nytimes.com/2026/04/03/world/asia/india-census-population.html
-
-**xA brief history of international sports' biggest underperformers**\
-`In the wake of Italy's failure to make a third soccer World Cup, our writers detail the biggest international underperformers in sports`\
-https://nytimes.com/athletic/7167576/2026/04/03/international-sports-olympics-lebron-ohtani-ferrari/
-
-**The Iran war has forced the Fed back to wait-and-see mode.**\
-`By Colby Smith`\
-https://nytimes.com/live/2026/04/03/business/jobs-report-economy/the-iran-war-has-forced-the-fed-back-to-wait-and-see-mode
 

@@ -1,3 +1,11 @@
+**White House Seeks $1.5 Trillion for Defense in New Budget Request**\
+`The massive, proposed increase would be offset in part by steep cuts to domestic programs, some of which the administration describes as wasteful.`\
+https://nytimes.com/2026/04/03/us/politics/white-house-seeks-1-5-trillion-for-defense-in-new-budget-request.html
+
+**Gattuso leaves Italy head coach role after World Cup qualification failure**\
+`Italy were beaten on penalties by Bosnia and Herzegovina in the playoff final on Tuesday to miss their third tournament in a row. `\
+https://nytimes.com/athletic/7169102/2026/04/03/gennaro-gattuso-italy-head-coach-world-cup/
+
 **A crowd-pleasing debut from Daniel Susac sends Giants to their first home victory**\
 `The catcher, added in the Rule 5 draft this offseason, had three hits and a walk in his first start, and caught Blade Tidwell's first save.`\
 https://nytimes.com/athletic/7168818/2026/04/03/daniel-susac-giants-debut/
