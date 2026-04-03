@@ -1,3 +1,11 @@
+**How Do I Recreate Julianne Moore’s Eye Makeup?**\
+`The secret to the actress’s reddish-brown tint from a recent Pedro Almodóvar film.`\
+https://nytimes.com/2026/04/03/t-magazine/julianne-moore-makeup.html
+
+**How Lagavulin Builds Whisky for the Ages**\
+`After almost a decade without a permanent addition to its lineup, one of Scotland's most storied distilleries introduces something unexpected.`\
+https://nytimes.com/paidpost/lagavulin/how-lagavulin-builds-whisky-for-the-ages.html
+
 **NASA Unveils 1st Earth Photos From Artemis II: ‘You Look Beautiful.’**\
 `The pictures were released on the third day of the first mission since 1972 to send people around the moon.`\
 https://nytimes.com/2026/04/03/science/nasa-artemis-moon-photos.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7169684/2026/04/03/bulls-vs-knicks-stream-how-to-wa
 **How to watch Celtics vs. Bucks: Time, TV, streaming**\
 `Find out how to watch the Boston Celtics play the Milwaukee Bucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7169683/2026/04/03/celtics-vs-bucks-stream-how-to-watch-april-3/
-
-**French Politician Is Charged With Glorifying Terrorism in Social Media Post**\
-`Rima Hassan, a member of the European Parliament, could face seven years in prison for the post, in which she quoted a perpetrator of a 1972 massacre in Israel.`\
-https://nytimes.com/2026/04/03/rima-hassan-france-terrorism-charges.html
-
-**Can the Maple Leafs get Doug Armstrong for a draft pick? No. Here's why**\
-`Compensation to a team for letting someone under contract leave to work for another organization has not been allowed for 10 years.`\
-https://nytimes.com/athletic/7169497/2026/04/03/nhl-personnel-compensation-rules-doug-armstrong/
 
