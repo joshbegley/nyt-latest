@@ -1,3 +1,7 @@
+**How Luka Dončić can still win NBA awards even if he doesn't play 65 games**\
+`After injuring his hamstring Thursday at Oklahoma City, the Lakers star might not play the minimum 65 games to be eligible for NBA awards.`\
+https://nytimes.com/athletic/7170214/2026/04/03/luka-doncic-nba-awards-65-games/
+
 **‘The Drama’ and the Secrets That Can Unravel a Relationship**\
 `In the new film, a shocking revelation upends the lives of a couple played by Zendaya and Robert Pattinson, raising the question: Are some betrayals simply unforgivable?`\
 https://nytimes.com/2026/04/03/style/the-drama-zendaya-robert-pattinson.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7170191/2026/04/03/blues-vs-ducks-stream-how-to-wat
 **How to watch Mets vs. Giants: Time, TV, streaming for April 3**\
 `Find out how to watch the New York Mets play the San Francisco Giants, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7170179/2026/04/03/mets-vs-giants-stream-how-to-watch-april-3/
-
-**How to watch Mariners vs. Angels: Time, TV, streaming for April 3**\
-`Find out how to watch the Seattle Mariners play the Los Angeles Angels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7170176/2026/04/03/mariners-vs-angels-stream-how-to-watch-april-3/
 

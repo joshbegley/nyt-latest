@@ -1,3 +1,7 @@
+**‘The Drama’ and the Secrets That Can Unravel a Relationship**\
+`In the new film, a shocking revelation upends the lives of a couple played by Zendaya and Robert Pattinson, raising the question: Are some betrayals simply unforgivable?`\
+https://nytimes.com/2026/04/03/style/the-drama-zendaya-robert-pattinson.html
+
 **Twins' home opener goes dark as power outage hits downtown Minneapolis**\
 `Power went out at Target Field 51 minutes after the team opened its gates for the first time in the 2026 season.`\
 https://nytimes.com/athletic/7170157/2026/04/03/twins-home-opener-power-outage/

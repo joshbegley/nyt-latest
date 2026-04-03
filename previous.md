@@ -1,3 +1,7 @@
+**‘The Drama’ and the Secrets That Can Unravel a Relationship**\
+`In the new film, a shocking revelation upends the lives of a couple played by Zendaya and Robert Pattinson, raising the question: Are some betrayals simply unforgivable?`\
+https://nytimes.com/2026/04/03/style/the-drama-zendaya-robert-pattinson.html
+
 **Twins' home opener goes dark as power outage hits downtown Minneapolis**\
 `Power went out at Target Field 51 minutes after the team opened its gates for the first time in the 2026 season.`\
 https://nytimes.com/athletic/7170157/2026/04/03/twins-home-opener-power-outage/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7170179/2026/04/03/mets-vs-giants-stream-how-to-wat
 **How to watch Mariners vs. Angels: Time, TV, streaming for April 3**\
 `Find out how to watch the Seattle Mariners play the Los Angeles Angels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7170176/2026/04/03/mariners-vs-angels-stream-how-to-watch-april-3/
-
-**How to watch Braves vs. Diamondbacks: Time, TV, streaming for April 3**\
-`Find out how to watch the Atlanta Braves play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7170170/2026/04/03/braves-vs-diamondbacks-stream-how-to-watch-april-3/
 
