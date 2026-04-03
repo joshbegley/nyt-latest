@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: Hegseth Fires Army Chief Amid Feud With Its Leaders**\
+``\
+https://nytimes.com/live/2026/04/03/us/trump-news
+
+**More Infrastructure Sites in Gulf Countries Are Attacked**\
+`In Kuwait, an Iranian attack on Friday damaged a power and water desalination plant, officials said. Both sides in the Iran war have ramped up strikes on civilian targets.`\
+https://nytimes.com/2026/04/03/world/middleeast/infrastructure-attacked-gulf-kuwait-iran.html
+
 **How Do You Count 1.4 Billion People? India Is Trying.**\
 `India’s 2027 census will shape how wealth and power is distributed and inform policies around castes and women in the world’s most populous nation.`\
 https://nytimes.com/2026/04/03/world/asia/india-census-population.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7169083/2026/04/03/padres-vs-red-sox-stream-how-to-
 **‘The Headlines’ News Quiz: Apr. 3, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://nytimes.com/2026/04/03/podcasts/the-headlines/the-headlines-news-quiz-apr-3-2026.html
-
-**How to watch Elche CF vs. Rayo Vallecano in the U.S.**\
-`Find out how to watch Elche CF play Rayo Vallecano, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7169071/2026/04/03/elche-cf-vs-rayo-vallecano-stream-how-to-watch-la-liga-april-3/
-
-**What's next for the Browns? Draft decisions and a potential QB battle await**\
-`We predict how Cleveland's decision-makers will address some of the team's major issues as the NFL Draft draws near. `\
-https://nytimes.com/athletic/7165054/2026/04/03/browns-nfl-draft-quarterback-competition/
 

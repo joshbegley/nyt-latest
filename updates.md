@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: Hegseth Fires Army Chief Amid Feud With Its Leaders**\
+``\
+https://nytimes.com/live/2026/04/03/us/trump-news
+
+**More Infrastructure Sites in Gulf Countries Are Attacked**\
+`In Kuwait, an Iranian attack on Friday damaged a power and water desalination plant, officials said. Both sides in the Iran war have ramped up strikes on civilian targets.`\
+https://nytimes.com/2026/04/03/world/middleeast/infrastructure-attacked-gulf-kuwait-iran.html
+
 **How Do You Count 1.4 Billion People? India Is Trying.**\
 `India’s 2027 census will shape how wealth and power is distributed and inform policies around castes and women in the world’s most populous nation.`\
 https://nytimes.com/2026/04/03/world/asia/india-census-population.html
