@@ -1,3 +1,7 @@
+**Captain, leader, legend — but is John Terry his own worst enemy?**\
+`The former Chelsea captain has a playing CV few can match but his past controversies are not helping his bid to forge a coaching career`\
+https://nytimes.com/athletic/7148627/2026/04/03/john-terry-chelsea/
+
 **Myanmar Junta Chief Ascends to President, Five Years After Coup**\
 `U Min Aung Hlaing’s elevation to the civilian post is the conclusion of elections in the country, which were stage managed by the military.`\
 https://nytimes.com/2026/04/03/world/asia/myanmar-president-min-aung-hlaing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7157537/2026/04/03/ollie-robinson-england-sussex/
 **How Manchester United's internationals have fared for their countries**\
 `Many players needed game time, but the club's internationals enjoyed mixed fortunes`\
 https://nytimes.com/athletic/7166247/2026/04/03/manchester-united-internationals-fernandes-cunha-maguire/
-
-**Connections: Sports Edition Coach: Hints and answers for April 3, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7168611/2026/04/03/connections-sports-edition-hints-answers-april-3-2026/
 

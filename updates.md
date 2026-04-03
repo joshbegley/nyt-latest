@@ -1,3 +1,7 @@
+**Captain, leader, legend — but is John Terry his own worst enemy?**\
+`The former Chelsea captain has a playing CV few can match but his past controversies are not helping his bid to forge a coaching career`\
+https://nytimes.com/athletic/7148627/2026/04/03/john-terry-chelsea/
+
 **Myanmar Junta Chief Ascends to President, Five Years After Coup**\
 `U Min Aung Hlaing’s elevation to the civilian post is the conclusion of elections in the country, which were stage managed by the military.`\
 https://nytimes.com/2026/04/03/world/asia/myanmar-president-min-aung-hlaing.html
