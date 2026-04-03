@@ -1,3 +1,11 @@
+**United to Offer No-Frills Fares in Its Premium Cabins**\
+`United is introducing restrictive base fares in its most profitable cabins: premium economy and business class.`\
+https://nytimes.com/2026/04/03/business/united-airlines-fares-premium-cabins.html
+
+**Big Banks Seeking a Piece of SpaceX’s I.P.O. Must Subscribe to Elon Musk’s Grok**\
+`Mr. Musk is requiring Wall Street firms to purchase subscriptions to his A.I. chatbot if they want to advise on one of the largest initial public offerings in history.`\
+https://nytimes.com/2026/04/03/business/spacex-ipo-grok-elon-musk.html
+
 **How to watch Brewers vs. Royals: Time, TV, streaming for April 3**\
 `Find out how to watch the Milwaukee Brewers play the Kansas City Royals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7169873/2026/04/03/brewers-vs-royals-stream-how-to-watch-april-3/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7169765/2026/04/03/washington-nationals-blake-buter
 **A'ja Wilson says she'll return to Aces: 'I'm not looking anywhere'**\
 `Wilson will be able to capitalize on the substantial salary increase in the new collective bargaining agreement.`\
 https://nytimes.com/athletic/7169623/2026/04/03/aja-wilson-las-vegas-aces-return/
-
-**YouTube’s C.E.O. on Free Speech and the Platform’s Policies**\
-`What is the responsibility of a platform like YouTube — which is now the leading way Americans watch video — to elevate truth over misinformation? On “The Interview,” YouTube’s chief executive, Neal Mohan, says he believes the answer lies in the platform’s principle of free speech reflected in its community guidelines.`\
-https://nytimes.com/video/podcasts/100000010810303/youtubes-ceo-on-free-speech-and-the-platforms-policies.html
-
-**Brady Tkachuk, Senators dismiss dad Keith's controversial podcast comments as 'white noise'**\
-`The viral comments, made on the Tkachuk brothers' podcast, included criticism of Brady's ice time under Ottawa coach Travis Green.`\
-https://nytimes.com/athletic/7166803/2026/04/03/tkachuk-brothers-podcast-senators-ullmark/
 
