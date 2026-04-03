@@ -1,3 +1,7 @@
+**Late Night Says Goodbye to Pam Bondi**\
+`President Trump is “on a bit of a firing spree,” Jimmy Fallon said on “The Tonight Show” on Thursday, adding, “Ironically, the only staffer who has immunity is RFK Jr.”`\
+https://nytimes.com/2026/04/03/arts/television/late-night-pam-bondi.html
+
 **Deontay Wilder: 'I sacrificed my body for my child. Now I'm being selfish'**\
 `The U.S. veteran is not ready to consider retirement as he launches his latest comeback this weekend`\
 https://nytimes.com/athletic/7166283/2026/04/03/deontay-wilder-derek-chisora-interview/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7163720/2026/04/03/arsenal-clustered-injuries-saka-
 **Owen Coyle Jr on Forest's loan strategy, and keeping a close eye on Kalimuendo, Bindon and Jota Silva**\
 `Coyle speaks to The Athletic about his unusual football pathway, and why he is enjoying life at the City Ground`\
 https://nytimes.com/athletic/7164882/2026/04/03/owen-coyle-nottingham-forest-loans/
-
-**Pascal Gross's Brighton comeback is going so well he's now back in the Germany reckoning**\
-`'Pascal makes other players better', Julian Nagelsmann said after recalling Gross, something Brighton fans know more than most `\
-https://nytimes.com/athletic/7133530/2026/04/03/pascal-gross-brighton-form-german-recall/
 
