@@ -1,4 +1,12 @@
-**Trungelliti, 36, will become oldest men's tennis top-100 debutant in 50 years**\
+**The Windup: The ninth teenager debut**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7169409/2026/04/03/konnor-griffin-mlb-debut-the-windup/
+
+**Fantasy baseball waiver wire targets: Why adding Max Muncy is a no-brainer and much more**\
+`John Laghezza's first waiver wire column this season offers loads of intel, including must-adds, stashes, two-start pitchers and more. `\
+https://nytimes.com/athletic/7164633/2026/04/03/fantasy-baseball-waiver-wire-max-muncy/
+
+**Marco Trungelliti, 36, will become oldest men's tennis top-100 debutant in 50 years**\
 `The Argentine upset Corentin Moutet at the Hassan Grand Prix II in Marrakech, Morocco to confirm the first two-digit ranking of his career.`\
 https://nytimes.com/athletic/7169355/2026/04/03/marco-trungelliti-top-100-rankings-oldest-man/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7168681/2026/04/03/padres-mailbag-submission-form-2
 **U.S. Searches for Crew After Fighter Jet Shot Down Over Iran, U.S. Officials Say**\
 `The fate of the plane’s crew was unclear, as American officials scrambled to mount a search and rescue operation.`\
 https://nytimes.com/2026/04/03/us/politics/us-fighter-jet-iran.html
-
-**Arsenal's Hincapie out of Southampton trip, Odegaard, Timber may return**\
-`Neither Odegaard (Norway) nor Timber (Netherlands) travelled to their national set-ups as they were recovering from pre-existing injuries.`\
-https://nytimes.com/athletic/7169306/2026/04/03/arsenal-team-news-hincapie-injury-update/
-
-**How to watch Orioles vs. Pirates: Time, TV, streaming for April 3**\
-`Find out how to watch the Baltimore Orioles play the Pittsburgh Pirates, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7169300/2026/04/03/orioles-vs-pirates-stream-how-to-watch-april-3/
 
