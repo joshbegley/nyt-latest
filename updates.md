@@ -1,3 +1,7 @@
+**Le Tissier appointed by Southampton in formal advisory role**\
+`Le Tissier previously stepped down from his role as club ambassador in 2022 following criticism of his social media activity.`\
+https://nytimes.com/athletic/7170372/2026/04/03/southampton-matt-le-tissier-return-championship/
+
 **‘Under Protest,’ Raw Dairy Farm Recalls Cheddar Linked to 9 E. Coli Cases**\
 `Raw Farm, a dairy producer in California, denies that its products have caused the outbreak, which has sickened people in three states.`\
 https://nytimes.com/2026/04/03/business/fda-raw-farm-cheese-recall-e-coli.html
