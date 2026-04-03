@@ -1,3 +1,11 @@
+**A crowd-pleasing debut from Daniel Susac sends Giants to their first home victory**\
+`The catcher, added in the Rule 5 draft this offseason, had three hits and a walk in his first start, and caught Blade Tidwell's first save.`\
+https://nytimes.com/athletic/7168818/2026/04/03/daniel-susac-giants-debut/
+
+**A Lesson Plan About the War With Iran**\
+`Through Times articles, photos, videos, graphics, podcasts and more, we invite students to explore what is happening in the war and how we got here.`\
+https://nytimes.com/2026/04/03/learning/lesson-plans/a-lesson-plan-about-the-war-with-iran.html
+
 **Pistons learning valuable lessons for playoffs with Cade Cunningham sidelined**\
 `Detroit has had to dig deep with its star out, which could benefit the team in the postseason.`\
 https://nytimes.com/athletic/7168544/2026/04/03/pistons-lessons-playoffs-cade-cunningham-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7167576/2026/04/03/international-sports-olympics-le
 **The Iran war has forced the Fed back to wait-and-see mode.**\
 `By Colby Smith`\
 https://nytimes.com/live/2026/04/03/business/jobs-report-economy/the-iran-war-has-forced-the-fed-back-to-wait-and-see-mode
-
-**Isak return will boost Liverpool but Alisson faces 'longer' period out, Slot says**\
-`The head coach said his record signing had been in training and could feature against Manchester City on Saturday. `\
-https://nytimes.com/athletic/7169073/2026/04/03/alexander-isak-liverpool-alisson-slot-injury-news/
-
-**How to watch Blue Jays vs. White Sox: Time, TV, streaming for April 3**\
-`Find out how to watch the Toronto Blue Jays play the Chicago White Sox, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7169094/2026/04/03/blue-jays-vs-white-sox-stream-how-to-watch-april-3/
 

@@ -1,3 +1,11 @@
+**A crowd-pleasing debut from Daniel Susac sends Giants to their first home victory**\
+`The catcher, added in the Rule 5 draft this offseason, had three hits and a walk in his first start, and caught Blade Tidwell's first save.`\
+https://nytimes.com/athletic/7168818/2026/04/03/daniel-susac-giants-debut/
+
+**A Lesson Plan About the War With Iran**\
+`Through Times articles, photos, videos, graphics, podcasts and more, we invite students to explore what is happening in the war and how we got here.`\
+https://nytimes.com/2026/04/03/learning/lesson-plans/a-lesson-plan-about-the-war-with-iran.html
+
 **Pistons learning valuable lessons for playoffs with Cade Cunningham sidelined**\
 `Detroit has had to dig deep with its star out, which could benefit the team in the postseason.`\
 https://nytimes.com/athletic/7168544/2026/04/03/pistons-lessons-playoffs-cade-cunningham-injury/
