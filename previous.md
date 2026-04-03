@@ -1,3 +1,7 @@
+**The Human Cost of War**\
+`Our colleague spent two months in Kyiv.`\
+https://nytimes.com/2026/04/03/briefing/the-human-cost-of-war.html
+
 **TAFC: Tracking down £62m Mudryk in exile. Plus: Why Barcelona Femeni dominate Real Madrid**\
 `Today in TAFC: Tracking down Mykhailo Mudryk. Plus: Barcelona Femini thump Real Madrid 6-0, and a first glimpse at Inter Miami's new stadium`\
 https://nytimes.com/athletic/7168850/2026/04/03/mudryk-chelsea-ban-barcelona-putellas/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7168355/2026/04/03/detroit-red-wings-alex-debrincat
 **Defensive miscues doom Flyers despite efforts of Tyson Foerster, Porter Martone**\
 `Too many defensive errors and not enough offensive finish burned the Flyers despite strong showings from Foerster and Martone.`\
 https://nytimes.com/athletic/7168505/2026/04/03/tyson-foerster-porter-martone-defense-miscues-flyers/
-
-**Extensions are all the rage across baseball. Why the Mets are unlikely to follow suit**\
-`Amid a spate of aggressive new deals, the Mets are taking a more patient approach when it comes to long-term commitments. `\
-https://nytimes.com/athletic/7168242/2026/04/03/mlb-contract-extensions-mets/
 

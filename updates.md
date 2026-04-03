@@ -1,3 +1,7 @@
+**The Human Cost of War**\
+`Our colleague spent two months in Kyiv.`\
+https://nytimes.com/2026/04/03/briefing/the-human-cost-of-war.html
+
 **TAFC: Tracking down £62m Mudryk in exile. Plus: Why Barcelona Femeni dominate Real Madrid**\
 `Today in TAFC: Tracking down Mykhailo Mudryk. Plus: Barcelona Femini thump Real Madrid 6-0, and a first glimpse at Inter Miami's new stadium`\
 https://nytimes.com/athletic/7168850/2026/04/03/mudryk-chelsea-ban-barcelona-putellas/
