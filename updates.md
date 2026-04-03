@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Qasim Nauman and Johnatan Reiss`\
+https://nytimes.com/live/2026/04/03/world/iran-war-trump-oil/heres-the-latest
+
+**Iran War Live Updates: Drone Hits Kuwaiti Oil Refinery in New Attack on Gulf Energy Sites**\
+`The strike set several refinery units ablaze, its operator said. President Trump threatened to destroy Iran’s infrastructure but there was no sign of a deal to end the war.`\
+https://nytimes.com/live/2026/04/03/world/iran-war-trump-oil
+
 **Final Four Haters Guide: Is UConn or Michigan a more objectionable champion?**\
 `Chances are, Indianapolis will produce something for the world to gather around and truly abhor.`\
 https://nytimes.com/athletic/7167735/2026/04/03/final-four-michigan-uconn/

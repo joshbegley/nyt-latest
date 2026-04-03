@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Qasim Nauman and Johnatan Reiss`\
+https://nytimes.com/live/2026/04/03/world/iran-war-trump-oil/heres-the-latest
+
+**Iran War Live Updates: Drone Hits Kuwaiti Oil Refinery in New Attack on Gulf Energy Sites**\
+`The strike set several refinery units ablaze, its operator said. President Trump threatened to destroy Iran’s infrastructure but there was no sign of a deal to end the war.`\
+https://nytimes.com/live/2026/04/03/world/iran-war-trump-oil
+
 **Final Four Haters Guide: Is UConn or Michigan a more objectionable champion?**\
 `Chances are, Indianapolis will produce something for the world to gather around and truly abhor.`\
 https://nytimes.com/athletic/7167735/2026/04/03/final-four-michigan-uconn/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7168707/2026/04/03/luka-doncic-lakers-injury-thunde
 **Word of the Day: inculcate**\
 `This word has appeared in 11 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/04/03/learning/word-of-the-day-inculcate.html
-
-**Late Night Says Goodbye to Pam Bondi**\
-`President Trump is “on a bit of a firing spree,” Jimmy Fallon said on “The Tonight Show” on Thursday, adding, “Ironically, the only staffer who has immunity is RFK Jr.”`\
-https://nytimes.com/2026/04/03/arts/television/late-night-pam-bondi.html
-
-**Deontay Wilder: 'I sacrificed my body for my child. Now I'm being selfish'**\
-`The U.S. veteran is not ready to consider retirement as he launches his latest comeback this weekend`\
-https://nytimes.com/athletic/7166283/2026/04/03/deontay-wilder-derek-chisora-interview/
 

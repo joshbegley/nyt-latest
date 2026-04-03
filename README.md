@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/04/03/crosswords/spelling-bee-forum.html
+
 **Here’s the latest.**\
 `By Qasim Nauman and Johnatan Reiss`\
 https://nytimes.com/live/2026/04/03/world/iran-war-trump-oil/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/03/world/asia/myanmar-president-min-aung-hlaing.html
 **A blowout loss was bad. What happened to Luka Dončić and the Lakers was worse**\
 `The Lakers didn't just lose big in Oklahoma City — they may have lost something more. `\
 https://nytimes.com/athletic/7168707/2026/04/03/luka-doncic-lakers-injury-thunder-nba/
-
-**Word of the Day: inculcate**\
-`This word has appeared in 11 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/04/03/learning/word-of-the-day-inculcate.html
 
