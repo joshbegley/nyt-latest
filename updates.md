@@ -1,3 +1,11 @@
+**Iran Is Quickly Repairing Missile Bunkers, U.S. Intelligence Says**\
+`Reports cast doubt on how close the United States is to destroying Iran’s missile capability, a key goal in the war.`\
+https://nytimes.com/2026/04/03/us/politics/iran-missiles-launchers.html
+
+**How Luka Dončić could be eligible for NBA awards without playing 65 games**\
+`After injuring his hamstring Thursday at Oklahoma City, the Lakers star might not play the minimum 65 games to be eligible for NBA awards.`\
+https://nytimes.com/athletic/7170214/2026/04/03/luka-doncic-nba-awards-65-games/
+
 **‘The Drama’ and the Secrets That Can Unravel a Relationship**\
 `In the new film, a shocking revelation upends the lives of a couple played by Zendaya and Robert Pattinson, raising the question: Are some betrayals simply unforgivable?`\
 https://nytimes.com/2026/04/03/style/the-drama-zendaya-robert-pattinson.html
