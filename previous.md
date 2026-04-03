@@ -1,3 +1,11 @@
+**xA brief history of international sports' biggest underperformers**\
+`In the wake of Italy's failure to make a third soccer World Cup, our writers detail the biggest international underperformers in sports`\
+https://nytimes.com/athletic/7167576/2026/04/03/international-sports-olympics-lebron-ohtani-ferrari/
+
+**The Iran war has forced the Fed back to wait-and-see mode.**\
+`By Colby Smith`\
+https://nytimes.com/live/2026/04/03/business/jobs-report-economy/the-iran-war-has-forced-the-fed-back-to-wait-and-see-mode
+
 **Isak return will boost Liverpool but Alisson faces 'longer' period out, Slot says**\
 `The head coach said his record signing had been in training and could feature against Manchester City on Saturday. `\
 https://nytimes.com/athletic/7169073/2026/04/03/alexander-isak-liverpool-alisson-slot-injury-news/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7165054/2026/04/03/browns-nfl-draft-quarterback-com
 **The White House is readying a budget for the statistics agency that compiles the jobs report.**\
 `President Trump is set to release his new spending plan on Friday, after trying last year to cut funding for the federal bureau tasked with measuring the economy.`\
 https://nytimes.com/live/2026/04/03/business/jobs-report-economy/the-white-house-is-readying-a-budget-for-the-statistics-agency-that-compiles-the-jobs-report
-
-**What to know about the report.**\
-`By Lydia DePillis`\
-https://nytimes.com/live/2026/04/03/business/jobs-report-economy/jobs-report-hiring-unemployment
-
-**Live Updates: Data Will Give Insights on a Frozen Job Market**\
-`Employers are holding onto workers, keeping the unemployment rate in check, but sluggish hiring is making it difficult for job seekers.`\
-https://nytimes.com/live/2026/04/03/business/jobs-report-economy
 

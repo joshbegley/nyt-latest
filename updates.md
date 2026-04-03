@@ -1,3 +1,11 @@
+**xA brief history of international sports' biggest underperformers**\
+`In the wake of Italy's failure to make a third soccer World Cup, our writers detail the biggest international underperformers in sports`\
+https://nytimes.com/athletic/7167576/2026/04/03/international-sports-olympics-lebron-ohtani-ferrari/
+
+**The Iran war has forced the Fed back to wait-and-see mode.**\
+`By Colby Smith`\
+https://nytimes.com/live/2026/04/03/business/jobs-report-economy/the-iran-war-has-forced-the-fed-back-to-wait-and-see-mode
+
 **Isak return will boost Liverpool but Alisson faces 'longer' period out, Slot says**\
 `The head coach said his record signing had been in training and could feature against Manchester City on Saturday. `\
 https://nytimes.com/athletic/7169073/2026/04/03/alexander-isak-liverpool-alisson-slot-injury-news/
