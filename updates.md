@@ -1,3 +1,7 @@
+**How Giorgia Meloni Fell to Earth**\
+`For more than three years, Giorgia Meloni’s leadership of Italy has seemed unshakable. Now she suddenly seems vulnerable.`\
+https://nytimes.com/2026/04/03/opinion/trump-europe-iran-meloni-italy.html
+
 **Deontay Wilder: 'I sacrificed my body for my child. Now I'm being selfish'**\
 `The U.S. veteran is not ready to consider retirement as he launches his latest comeback this weekend`\
 https://nytimes.com/athletic/7166283/2026/04/03/deontay-wilder-derek-chisora-interview/
