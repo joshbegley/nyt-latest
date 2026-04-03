@@ -1,3 +1,15 @@
+**Forest Service Will Close Research Stations That Study Wildfire Risk**\
+`Scientists say their work on fires and climate change could be lost as the agency moves its headquarters to Utah from Washington and shuts 57 research stations.`\
+https://nytimes.com/2026/04/03/climate/forest-service-research-stations.html
+
+**U.S. Searches for Airman After Iran Shoots Down Fighter Jet**\
+`One crew member was rescued. The risky operation to find the second airman came as the United States and Israel struck infrastructure targets in Iran, prompting Iranian retaliation in the Gulf.`\
+https://nytimes.com/2026/04/03/world/middleeast/us-airman-search-iran.html
+
+**Jaguars signing edge rusher Travon Walker to 4-year, $110 million extension**\
+`Walker's new deal includes $77 million guaranteed, including $50 million at signing, according to his agency.`\
+https://nytimes.com/athletic/7170291/2026/04/03/travon-walker-contract-extension-jaguars-nfl-news/
+
 **I’ve Been Rebuying the Same Boots for 16 Years**\
 `Clarks Desert Boots have been a wardrobe staple across the world for almost a century and in my closet for 16 years.`\
 https://nytimes.com/wirecutter/reviews/clarks-desert-boot-review/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/04/03/us/politics/iran-missiles-launchers.html
 **How Luka Dončić could be eligible for NBA awards without playing 65 games**\
 `After injuring his hamstring Thursday at Oklahoma City, the Lakers star might not play the minimum 65 games to be eligible for NBA awards.`\
 https://nytimes.com/athletic/7170214/2026/04/03/luka-doncic-nba-awards-65-games/
-
-**‘The Drama’ and the Secrets That Can Unravel a Relationship**\
-`In the new film, a shocking revelation upends the lives of a couple played by Zendaya and Robert Pattinson, raising the question: Are some betrayals simply unforgivable?`\
-https://nytimes.com/2026/04/03/style/the-drama-zendaya-robert-pattinson.html
-
-**Twins' home opener goes dark as power outage hits downtown Minneapolis**\
-`Power went out at Target Field 51 minutes after the team opened its gates for the first time in the 2026 season.`\
-https://nytimes.com/athletic/7170157/2026/04/03/twins-home-opener-power-outage/
-
-**Nick Lodolo's return to mound pushed back as finger blister issues return**\
-`The Reds pitcher throws an elite slider that causes a blister on the pad of his index finger. Managing that has become a challenge.`\
-https://nytimes.com/athletic/7170149/2026/04/03/nick-lodolo-reads-injury-finger-blister/
 
