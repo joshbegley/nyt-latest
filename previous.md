@@ -26,7 +26,7 @@ https://nytimes.com/2026/04/03/nyregion/mamdani-menin-nyc-budget.html
 `A settlement in a suit filed by two tennis players is set to have division-wide ramifications in the top tier of college sports.`\
 https://nytimes.com/athletic/7169685/2026/04/03/ncaa-prize-money-lawsuit-college-tennis/
 
-**Shohei Ohtani connects on his first home run of the 2026 season**\
+**Shohei Ohtani connects on his first home run of the 2026 season for Dodgers**\
 `Ohtani was off to a slow start at the plate, collecting only three hits in his first six games, though he was reaching base at a good clip.`\
 https://nytimes.com/athletic/7169968/2026/04/03/shohei-ohtani-los-angeles-dodgers-first-home-run-2026/
 
