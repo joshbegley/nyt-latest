@@ -1,5 +1,5 @@
-**‘Didn’t respect our opponent’: Bruins punt two points against no-name Panthers**\
-`The Bruins turned it up in the third period with 15 shots on net, but couldn't beat a heavily depleted Panthers squad.`\
+**‘Didn’t respect our opponent’: Bruins punt 2 points against no-name Panthers**\
+`The Bruins turned it up in the third period with 15 shots on net but couldn't beat a heavily depleted Panthers squad.`\
 https://nytimes.com/athletic/7168408/2026/04/02/bruins-panthers-injuries-geekie-goal-slump/
 
 **Trump’s Strait of Hormuz Problem**\
