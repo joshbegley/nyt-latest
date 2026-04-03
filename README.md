@@ -1,3 +1,7 @@
+**The Artemis II crew’s spacecraft feels bigger on the inside than you might think.**\
+`By Ashley Ahn`\
+https://nytimes.com/live/2026/04/02/science/artemis-nasa-moon-astronauts/artemis-spacecraft-living-quarters
+
 **Colombian captain James Rodríguez hospitalized for 'severe dehydration'**\
 `The Colombian federation released a statement saying that Rodríguez's dehydration episode "is not linked to his footballing activities.”`\
 https://nytimes.com/athletic/7168108/2026/04/02/colombia-james-rodriguez-dehydration-health-update/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/02/us/politics/hegseth-personal-firearms.html
 **On Day 2, the astronauts begin their journey to the moon.**\
 `By Katrina Miller`\
 https://nytimes.com/live/2026/04/02/science/artemis-nasa-moon-astronauts/artemis-day-2-moon-journey
-
-**Trump Says Opening the Strait of Hormuz ‘Should Be Easy.’ Will It?**\
-`President Trump is asking U.S. allies to “go to” the Strait of Hormuz “and just take it.” Eric Schmitt, our national security correspondent, explains how difficult it would be to clear the strait by force.`\
-https://nytimes.com/video/us/politics/100000010806526/trump-iran-strait-of-hormuz.html
 
