@@ -1,3 +1,19 @@
+**Cubs ace Cade Horton leaves start in second inning with injury**\
+`Horton worked a quick, 1-2-3 first inning but issued a rare walk to start the second, then threw two pitches before motioning to the dugout.`\
+https://nytimes.com/athletic/7170376/2026/04/03/chicago-cubs-cade-horton-injury/
+
+**Six Senate Races to Watch as Democrats Grow More Bullish**\
+`It’s still a tall task for the party to win back control. Here’s the latest.`\
+https://nytimes.com/2026/04/03/us/politics/senate-races-midterms-primary-election.html
+
+**Pirates' Konnor Griffin, 19, collects RBI double for first MLB hit**\
+`Griffin was down two strikes in his first MLB at-bat, but then lined a run-scoring double to left-center field.`\
+https://nytimes.com/athletic/7170390/2026/04/03/pittsburgh-pirates-konnor-griffin-first-mlb-hit/
+
+**What We Know About the F-15E Strike Eagle Shot Down by Iran**\
+`A rescue helicopter was also fired upon and another Air Force combat plane, an A-10 Warthog, crashed in the Persian Gulf region on Friday.`\
+https://nytimes.com/2026/04/03/world/middleeast/f-15-us-fighter-jet-iran.html
+
 **Forest Service Will Close Research Stations That Study Wildfire Risk**\
 `Scientists say their work on fires and climate change could be lost as the agency moves its headquarters to Utah from Washington and shuts 57 research stations.`\
 https://nytimes.com/2026/04/03/climate/forest-service-research-stations.html
