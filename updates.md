@@ -1,3 +1,7 @@
+**What to Know About the F-15E Strike Eagle**\
+`The U.S. military aircraft with a two-person crew was shot down in Iran on Friday.`\
+https://nytimes.com/2026/04/03/world/middleeast/f15e-strike-eagle.html
+
 **Shohei Ohtani connects on his first home run of the 2026 season for Dodgers**\
 `Ohtani was off to a slow start at the plate, collecting only three hits in his first six games, though he was reaching base at a good clip.`\
 https://nytimes.com/athletic/7169968/2026/04/03/shohei-ohtani-los-angeles-dodgers-first-home-run-2026/

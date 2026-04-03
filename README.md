@@ -34,7 +34,3 @@ https://nytimes.com/athletic/7169968/2026/04/03/shohei-ohtani-los-angeles-dodger
 `Representative LaMonica McIver is facing crushing legal fees and prison time as she seeks to get the Justice Department assault case against her dismissed, citing her legislative prerogatives.`\
 https://nytimes.com/2026/04/03/us/politics/lamonica-mciver-immigration-congress-trump.html
 
-**How to watch Pelicans vs. Kings: Time, TV, streaming**\
-`Find out how to watch the New Orleans Pelicans play the Sacramento Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7170021/2026/04/03/pelicans-vs-kings-stream-how-to-watch-april-3/
-

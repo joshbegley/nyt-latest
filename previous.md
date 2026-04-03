@@ -2,9 +2,9 @@
 `Porziņģis is finally settling into his role with the Warriors, but his long-term future in Golden State remains undecided. `\
 https://nytimes.com/athletic/7168854/2026/04/03/kristaps-porzingis-steph-curry-warriors-return-nba/
 
-**What to know about the F-15E Strike Eagle.**\
-`By Pranav Baskar`\
-https://nytimes.com/live/2026/04/03/world/iran-war-trump-oil/f15e-strike-eagle
+**What to Know About the F-15E Strike Eagle**\
+`The U.S. military aircraft with a two-person crew was shot down in Iran on Friday.`\
+https://nytimes.com/2026/04/03/world/middleeast/f15e-strike-eagle.html
 
 **Flashback: Your Weekly History Quiz, April 4, 2026**\
 `Can you sort 8 historical events?`\
