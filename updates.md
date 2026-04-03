@@ -1,3 +1,11 @@
+**The Rise and Fall of Pam Bondi**\
+`Readers react to President Trump’s firing of the attorney general. Also: A.I. and therapy.`\
+https://nytimes.com/2026/04/03/opinion/pam-bondi-trump.html
+
+**What I’m seeing at the Nationals’ home opener:  ‘All kinds of liquid,’ early pregame work**\
+`How Blake Butera is emphasizing improvement on defense, new details inside the clubhouse showing the team's culture, and more.`\
+https://nytimes.com/athletic/7169765/2026/04/03/washington-nationals-blake-butera-win-shirt/
+
 **What I’m seeing at the Nationals’ home opener:  ‘All kinds of liquid,’ early pregame work**\
 `How Blake Butera is emphasizing improvement on defense, news details inside the clubhouse showing the team's culture, and more.`\
 https://nytimes.com/athletic/7169765/2026/04/03/washington-nationals-blake-butera-win-shirt/

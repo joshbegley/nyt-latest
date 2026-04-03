@@ -1,3 +1,7 @@
+**FEMA Official Says He Teleported to Waffle House. Experts Are Dubious.**\
+`Gregg Phillips, who is in charge of responding to fires and floods, says the hand of God suddenly and mysteriously moved him to a 24-hour breakfast spot in Rome, Ga.`\
+https://nytimes.com/2026/04/03/us/fema-gregg-phillips-waffle-house-teleportation.html
+
 **The Rise and Fall of Pam Bondi**\
 `Readers react to President Trump’s firing of the attorney general. Also: A.I. and therapy.`\
 https://nytimes.com/2026/04/03/opinion/pam-bondi-trump.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7169670/2026/04/03/bears-compensatory-nfl-draft-pic
 **How Do I Recreate Julianne Moore’s Eye Makeup?**\
 `The secret to the actress’s reddish-brown tint from a recent Pedro Almodóvar film.`\
 https://nytimes.com/2026/04/03/t-magazine/julianne-moore-makeup.html
-
-**How Lagavulin Builds Whisky for the Ages**\
-`After almost a decade without a permanent addition to its lineup, one of Scotland's most storied distilleries introduces something unexpected.`\
-https://nytimes.com/paidpost/lagavulin/how-lagavulin-builds-whisky-for-the-ages.html
 
