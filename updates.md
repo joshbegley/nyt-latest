@@ -1,3 +1,7 @@
+**Artemis II’s commander had a message for one of his oldest friends.**\
+`By Timothy Bella`\
+https://nytimes.com/live/2026/04/02/science/artemis-nasa-moon-astronauts/artemis-iis-commander-had-a-message-for-one-of-his-oldest-friends
+
 **Did Jesus Rise From the Dead?**\
 `A case of mistaken identity, or a profound experience of grief? The religious scholar Bart Ehrman argues that the earliest accounts of Jesus’ Resurrection might be rooted in the way we process loss.`\
 https://nytimes.com/video/opinion/100000010807127/did-jesus-rise-from-the-dead.html
