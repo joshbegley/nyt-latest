@@ -1,3 +1,15 @@
+**What’s More Soothing Than Hearing Sean Bean Talk About Birds? Nothing.**\
+`Text by Alexander Aciman`\
+https://nytimes.com/card/2026/04/03/smarter-living/wirecutter/sean-bean-birdwatching-tips
+
+**Store to refund millions if UConn teams reach title games: ‘We’re hoping that it’ll happen’**\
+`Jordan's Furniture says it could owe $50 million in refunds if both Huskies basketball teams win Final Four games.`\
+https://nytimes.com/athletic/7167530/2026/04/03/furniture-store-uconn-basketball-promotion/
+
+**Trump Seeks $152 Million to Begin to Turn Alcatraz Back Into a Prison**\
+`The plan faces significant local political opposition and the dilapidated state of the site poses considerable logistical challenges.`\
+https://nytimes.com/2026/04/03/nyregion/trump-alcatraz-funding.html
+
 **What to Know About the F-15E Strike Eagle**\
 `The U.S. military aircraft with a two-person crew was shot down in Iran on Friday.`\
 https://nytimes.com/2026/04/03/world/middleeast/f15e-strike-eagle.html

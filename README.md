@@ -1,9 +1,17 @@
+**H.H.S. Takes a First Step Toward Restoring Vaccine Advisory Committee**\
+`A federal judge last month questioned the legitimacy of the panel and overturned its recent work. A notice suggests that it may be revived on Robert F. Kennedy Jr.’s terms.`\
+https://nytimes.com/2026/04/03/health/kennedy-vaccine-advisers-acip.html
+
+**Wedding Guides**\
+``\
+https://nytimes.com/spotlight/wedding-guides
+
 **What’s More Soothing Than Hearing Sean Bean Talk About Birds? Nothing.**\
 `Text by Alexander Aciman`\
 https://nytimes.com/card/2026/04/03/smarter-living/wirecutter/sean-bean-birdwatching-tips
 
 **Store to refund millions if UConn teams reach title games: ‘We’re hoping that it’ll happen’**\
-`Jordan's Furniture says it could owe $50 million in refunds if both Huskies basketball teams win Final Four games.`\
+`Jordan's Furniture says it could owe $50 million in refunds to customers if both Huskies basketball teams win Final Four games.`\
 https://nytimes.com/athletic/7167530/2026/04/03/furniture-store-uconn-basketball-promotion/
 
 **Trump Seeks $152 Million to Begin to Turn Alcatraz Back Into a Prison**\
@@ -25,12 +33,4 @@ https://nytimes.com/interactive/2026/04/03/upshot/flashback.html
 **Prime Tire: Similarities of Verstappen and Senna**\
 `Welcome to Prime Tire, The Athletic's F1 newsletter.`\
 https://nytimes.com/athletic/7170044/2026/04/03/max-verstappen-ayrton-senna-prime-tire/
-
-**Milan Cortina Olympics doping report finds no doping violations**\
-`The indipendent body behind the doping analysis tested more than 3,000 samples from nearly 1,900 athletes.`\
-https://nytimes.com/athletic/7169622/2026/04/03/winter-olympics-2026-doping-violations-report/
-
-**The Neighbor Who Has No Problem Fighting With Mayor Mamdani**\
-`Mayor Zohran Mamdani and the City Council speaker, Julie Menin, both live on the Upper East Side. They are sparring over different approaches to balancing a $5.4 billion deficit.`\
-https://nytimes.com/2026/04/03/nyregion/mamdani-menin-nyc-budget.html
 

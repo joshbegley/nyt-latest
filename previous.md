@@ -1,3 +1,15 @@
+**What’s More Soothing Than Hearing Sean Bean Talk About Birds? Nothing.**\
+`Text by Alexander Aciman`\
+https://nytimes.com/card/2026/04/03/smarter-living/wirecutter/sean-bean-birdwatching-tips
+
+**Store to refund millions if UConn teams reach title games: ‘We’re hoping that it’ll happen’**\
+`Jordan's Furniture says it could owe $50 million in refunds if both Huskies basketball teams win Final Four games.`\
+https://nytimes.com/athletic/7167530/2026/04/03/furniture-store-uconn-basketball-promotion/
+
+**Trump Seeks $152 Million to Begin to Turn Alcatraz Back Into a Prison**\
+`The plan faces significant local political opposition and the dilapidated state of the site poses considerable logistical challenges.`\
+https://nytimes.com/2026/04/03/nyregion/trump-alcatraz-funding.html
+
 **Kristaps Porziņģis uncertain on his future with Warriors as Steph Curry nears return**\
 `Porziņģis is finally settling into his role with the Warriors, but his long-term future in Golden State remains undecided. `\
 https://nytimes.com/athletic/7168854/2026/04/03/kristaps-porzingis-steph-curry-warriors-return-nba/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/7169622/2026/04/03/winter-olympics-2026-doping-viol
 **The Neighbor Who Has No Problem Fighting With Mayor Mamdani**\
 `Mayor Zohran Mamdani and the City Council speaker, Julie Menin, both live on the Upper East Side. They are sparring over different approaches to balancing a $5.4 billion deficit.`\
 https://nytimes.com/2026/04/03/nyregion/mamdani-menin-nyc-budget.html
-
-**Settlement in college tennis lawsuit will change NCAA prize-money rules across sports**\
-`A settlement in a suit filed by two tennis players is set to have division-wide ramifications in the top tier of college sports.`\
-https://nytimes.com/athletic/7169685/2026/04/03/ncaa-prize-money-lawsuit-college-tennis/
-
-**Shohei Ohtani connects on his first home run of the 2026 season for Dodgers**\
-`Ohtani was off to a slow start at the plate, collecting only three hits in his first six games, though he was reaching base at a good clip.`\
-https://nytimes.com/athletic/7169968/2026/04/03/shohei-ohtani-los-angeles-dodgers-first-home-run-2026/
-
-**House Democrat Wages a Lonely Legal Fight Testing Congress’s Power**\
-`Representative LaMonica McIver is facing crushing legal fees and prison time as she seeks to get the Justice Department assault case against her dismissed, citing her legislative prerogatives.`\
-https://nytimes.com/2026/04/03/us/politics/lamonica-mciver-immigration-congress-trump.html
 
