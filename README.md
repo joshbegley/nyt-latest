@@ -1,3 +1,7 @@
+**A blowout loss was bad. What happened to Luka Dončić and the Lakers was worse**\
+`The Lakers didn't just lose big in Oklahoma City — they may have lost something more. `\
+https://nytimes.com/athletic/7168707/2026/04/03/luka-doncic-lakers-injury-thunder-nba/
+
 **Word of the Day: inculcate**\
 `This word has appeared in 11 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/04/03/learning/word-of-the-day-inculcate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7168611/2026/04/03/connections-sports-edition-hints
 **Boldy, Kaprizov each hit 40-goal mark, Hughes plus-4 in first game vs. Canucks: Takeaways**\
 `The Wild clinched a playoff spot and the Vancouver Canucks clinched the best odds for the draft lottery in an eventful reunion.`\
 https://nytimes.com/athletic/7168119/2026/04/03/wild-boldy-kaprizov-40-goals-hughes-buium-canucks/
-
-**The 'cluster' injuries that have left Arsenal short**\
-`Arsenal's squad was enlarged last summer – and the pattern of injuries they have suffered this season shows it was a necessary decision`\
-https://nytimes.com/athletic/7163720/2026/04/03/arsenal-clustered-injuries-saka-rice-madueke-gabriel-saliba/
 
