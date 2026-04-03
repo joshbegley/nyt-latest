@@ -1,3 +1,15 @@
+**What to know about the report.**\
+`By Lydia DePillis`\
+https://nytimes.com/live/2026/04/03/business/jobs-report-economy/what-to-know-about-the-report
+
+**How to watch South Carolina vs. UConn women's basketball: Semifinals Time, TV, streaming**\
+`Find out how to watch the South Carolina Gamecocks play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7169610/2026/04/03/south-carolina-vs-uconn-stream-how-to-watch-april-3/
+
+**NBA trends I'm watching: Respecting Kon Knueppel, the Rookie of the Year front-runner**\
+`One Knicks guard is becoming unrecognizable, and one Wizards streak comes to an end.`\
+https://nytimes.com/athletic/7169356/2026/04/03/kon-knueppel-hornets-knicks-trends-nba/
+
 **Iranian media outlets say helicopters are searching for the crew of the downed jet.**\
 `By Leily Nikounazar and Yeganeh Torbati`\
 https://nytimes.com/live/2026/04/03/world/iran-war-trump-oil/iranian-media-outlets-say-helicopters-are-searching-for-the-crew-of-the-downed-jet
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7169520/2026/04/03/timberwolves-vs-76ers-stream-how
 **Here It Is, Our Best Carrot Cake**\
 `Dorie Greenspan’s luscious cake serves up spring, with five stars and over 10,000 reviews.`\
 https://nytimes.com/2026/04/03/dining/here-it-is-our-best-carrot-cake.html
-
-**Trump Has Lost Control of His War**\
-`The pain inflicted on Iran has not forced it into submission. It is not clear what will.`\
-https://nytimes.com/2026/04/03/opinion/iran-war-trump-irgc-hormuz.html
-
-**The Show That Gives ‘Running Time’ a New Meaning**\
-`In “Burnout Paradise,” four performers try ambitious tasks while jogging. If they can’t beat their run time goal, the audience gets its money back.`\
-https://nytimes.com/2026/04/03/theater/burnout-paradise-treadmills-theater-off-broadway.html
-
-**Five International Movies to Stream Now**\
-`This month’s picks include a feminist coming-of-age tale from India, a documentary about grasshopper harvesting in Uganda, a queer fable from Brazil and more.`\
-https://nytimes.com/2026/04/03/movies/five-international-movies-to-stream-now.html
 
