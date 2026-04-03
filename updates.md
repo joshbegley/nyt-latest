@@ -1,3 +1,11 @@
+**Cade Cunningham still out with injury, will be ineligible for NBA awards**\
+`Cunningham remains out for the Pistons' game against the Timberwolves on Thursday night.`\
+https://nytimes.com/athletic/7166877/2026/04/02/cade-cunningham-injury-update-pistons/
+
+**Corrections: April 3, 2026**\
+`Corrections that appeared in print on Friday, April 3, 2026.`\
+https://nytimes.com/2026/04/02/pageoneplus/corrections-april-3-2026.html
+
 **What to expect from the UEFA Women's Champions League semifinals**\
 `Barcelona's commanding 12-2 aggregate victory over rival Real Madrid was an outlier in an otherwise competitive quarterfinal round`\
 https://nytimes.com/athletic/7167325/2026/04/02/uefa-womens-champions-league-barcelona-arsenal-ol-lyonnes-bayern-munich/
