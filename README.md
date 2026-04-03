@@ -1,3 +1,7 @@
+**WNBA expansion draft winners and losers: Portland's depth, Toronto's future scoring**\
+`Does Nyara Sabally find herself in a better position? Will the Tempo pick up complementary players to Julie Allemand? `\
+https://nytimes.com/athletic/7170637/2026/04/03/wnba-expansion-draft-toronto-portland-winners-losers/
+
 **Trump Goes After Federal Programs He Calls ‘Woke’ in Budget Proposal**\
 `The president’s request for 2027 reflects his preoccupation with eliminating programs that support diversity and civil rights.`\
 https://nytimes.com/2026/04/03/us/politics/trump-budget-proposal-woke.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/03/briefing/us-jet-iran-search-job-growth.html
 **23 Days in Iraq: U.S. Pilot Shot Down During Invasion Recalls Battle for Survival**\
 `Ronald Young Jr. was in the Army when his Apache Longbow copter went down during the U.S. invasion of Iraq.`\
 https://nytimes.com/2026/04/03/world/middleeast/iraq-us-pow-rescue-survival.html
-
-**Carol Mullins, Who Illuminated Dance for Decades, Dies at 86**\
-`She knew nothing about lighting when the director Robert Wilson asked her to work on his shows, and later spent over 40 years as a designer for Danspace Project.`\
-https://nytimes.com/2026/04/03/arts/dance/carol-mullins-dead.html
 

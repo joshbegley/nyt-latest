@@ -1,3 +1,11 @@
+**Trump Goes After Federal Programs He Calls ‘Woke’ in Budget Proposal**\
+`The president’s request for 2027 reflects his preoccupation with eliminating programs that support diversity and civil rights.`\
+https://nytimes.com/2026/04/03/us/politics/trump-budget-proposal-woke.html
+
+**After 11 Years in Court, Heir Reclaims a Modigliani Looted by the Nazis**\
+`A judge ruled against a holding company controlled by David Nahmad, the billionaire art dealer, which had bought the work at auction in 1996.`\
+https://nytimes.com/2026/04/03/arts/modigliani-nazi-court-ruling.html
+
 **Stray Bullet That Killed Baby Girl in Brooklyn Also Grazed Brother**\
 `A man was arrested and charged with murder, attempted murder and assault in connection to a shooting on Wednesday that killed an infant.`\
 https://nytimes.com/2026/04/03/nyregion/baby-murder-williamsburg-arrest.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/03/world/middleeast/iraq-us-pow-rescue-survival.html
 **Carol Mullins, Who Illuminated Dance for Decades, Dies at 86**\
 `She knew nothing about lighting when the director Robert Wilson asked her to work on his shows, and later spent over 40 years as a designer for Danspace Project.`\
 https://nytimes.com/2026/04/03/arts/dance/carol-mullins-dead.html
-
-**Trump signs new college sports executive order: What we know**\
-`The order poses the possibility of federal funding being withheld from schools that do not comply with the rules.`\
-https://nytimes.com/athletic/7169907/2026/04/03/trump-executive-order-college-sports-rules/
-
-**Search and Rescue Underway After Iran Downs U.S. Fighter Jet**\
-`Search and rescue efforts continued after a U.S. fighter jet was shot down over Iran. One of the two crew members was rescued, but the fate of the other was unknown.`\
-https://nytimes.com/video/us/100000010820849/iran-fighter-jet-war.html
 

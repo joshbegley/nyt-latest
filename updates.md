@@ -1,3 +1,11 @@
+**Trump Goes After Federal Programs He Calls ‘Woke’ in Budget Proposal**\
+`The president’s request for 2027 reflects his preoccupation with eliminating programs that support diversity and civil rights.`\
+https://nytimes.com/2026/04/03/us/politics/trump-budget-proposal-woke.html
+
+**After 11 Years in Court, Heir Reclaims a Modigliani Looted by the Nazis**\
+`A judge ruled against a holding company controlled by David Nahmad, the billionaire art dealer, which had bought the work at auction in 1996.`\
+https://nytimes.com/2026/04/03/arts/modigliani-nazi-court-ruling.html
+
 **Stray Bullet That Killed Baby Girl in Brooklyn Also Grazed Brother**\
 `A man was arrested and charged with murder, attempted murder and assault in connection to a shooting on Wednesday that killed an infant.`\
 https://nytimes.com/2026/04/03/nyregion/baby-murder-williamsburg-arrest.html
