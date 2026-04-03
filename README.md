@@ -1,3 +1,7 @@
+**The Premier League Hope-o-meter: How are fans feeling about the rest of the season?**\
+`The Premier League Hope-o-meter is back for the rest of the season — and there are some surprising teams in surprising places`\
+https://nytimes.com/athletic/7166723/2026/04/03/premier-league-hope-o-meter-season-fa-cup-champions-league/
+
 **Football is broken – and 'selling' community assets to keep up with huge spending is proof**\
 `Latest accounts reveal that several Premier League clubs are selling stadiums, women's teams and other assets to meet spending regulations `\
 https://nytimes.com/athletic/7166938/2026/04/03/newcastle-aston-villa-chelsea-everton-accounts-stadium-sale/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7164884/2026/04/03/jermain-defoe-on-managing-a-club
 **The Prospects: Divin Mubama, Stoke City (on loan from Manchester City)**\
 `The striker was developed at West Ham but has thrived through the England junior setup and is now learning his trade in the Championship`\
 https://nytimes.com/athletic/7164905/2026/04/03/divin-mubama-manchester-stoke-city-prospects/
-
-**‘City of Parasites’ or ‘Glamorous Metropolis?’ China’s Cosmopolitan Contradiction**\
-`Shanghai’s many layers of architecture, culture and politics have made it a difficult fit for the Communist Party’s preferred narrative of Chinese victimhood and Western sins.`\
-https://nytimes.com/2026/04/03/world/asia/shanghai-dispatch-architecture.html
 
