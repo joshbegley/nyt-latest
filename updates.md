@@ -1,3 +1,7 @@
+**WNBA expansion draft winners and losers: Portland's depth, Toronto's future scoring**\
+`Does Nyara Sabally find herself in a better position? Will the Tempo pick up complementary players to Julie Allemand? `\
+https://nytimes.com/athletic/7170637/2026/04/03/wnba-expansion-draft-toronto-portland-winners-losers/
+
 **Trump Goes After Federal Programs He Calls ‘Woke’ in Budget Proposal**\
 `The president’s request for 2027 reflects his preoccupation with eliminating programs that support diversity and civil rights.`\
 https://nytimes.com/2026/04/03/us/politics/trump-budget-proposal-woke.html
