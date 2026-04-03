@@ -1,3 +1,7 @@
+**Pistons learning valuable lessons for playoffs with Cade Cunningham sidelined**\
+`Detroit has had to dig deep with its star out, which could benefit the team in the postseason.`\
+https://nytimes.com/athletic/7168544/2026/04/03/pistons-lessons-playoffs-cade-cunningham-injury/
+
 **Lowetide: Why the Oilers' defensive tweaks are gaining traction**\
 `Winners of five straight, the Oilers have reached Easter weekend looking like a Stanley Cup contender again.`\
 https://nytimes.com/athletic/7166761/2026/04/03/edmonton-oilers-stats-defensive-tweaks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7169073/2026/04/03/alexander-isak-liverpool-alisson
 **How to watch Blue Jays vs. White Sox: Time, TV, streaming for April 3**\
 `Find out how to watch the Toronto Blue Jays play the Chicago White Sox, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7169094/2026/04/03/blue-jays-vs-white-sox-stream-how-to-watch-april-3/
-
-**How to watch Marlins vs. Yankees: Time, TV, streaming for April 3**\
-`Find out how to watch the Miami Marlins play the New York Yankees, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7169085/2026/04/03/marlins-vs-yankees-stream-how-to-watch-april-3/
 
