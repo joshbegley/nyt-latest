@@ -1,3 +1,15 @@
+**Deontay Wilder: 'I sacrificed my body for my child. Now I'm being selfish'**\
+`The U.S. veteran is not ready to consider retirement as he launches his latest comeback this weekend`\
+https://nytimes.com/athletic/7166283/2026/04/03/deontay-wilder-derek-chisora-interview/
+
+**Being Trump’s ‘Friend’ in Europe Is Becoming a Real Liability**\
+`For more than three years, Giorgia Meloni’s leadership of Italy has seemed unshakable. Now she suddenly seems vulnerable.`\
+https://nytimes.com/2026/04/03/opinion/trump-europe-iran-meloni-italy.html
+
+**The New York Times in Print for Friday, April 3, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/04/03/todays-new-york-times
+
 **Ollie Robinson on England: 'I’ve not done myself any favours. It's up to me to force myself back in'**\
 `The newly appointed Sussex red-ball captain has not played for his country since 2024 but, if fit and firing, he may be in the frame again`\
 https://nytimes.com/athletic/7157537/2026/04/03/ollie-robinson-england-sussex/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7164882/2026/04/03/owen-coyle-nottingham-forest-loa
 **Pascal Gross's Brighton comeback is going so well he's now back in the Germany reckoning**\
 `'Pascal makes other players better', Julian Nagelsmann said after recalling Gross, something Brighton fans know more than most `\
 https://nytimes.com/athletic/7133530/2026/04/03/pascal-gross-brighton-form-german-recall/
-
-**The Premier League Hope-o-meter: How are fans feeling about the rest of the season?**\
-`The Premier League Hope-o-meter is back for the rest of the season — and there are some surprising teams in surprising places`\
-https://nytimes.com/athletic/7166723/2026/04/03/premier-league-hope-o-meter-season-fa-cup-champions-league/
-
-**Football is broken – and 'selling' community assets to keep up with huge spending is proof**\
-`Latest accounts reveal that several Premier League clubs are selling stadiums, women's teams and other assets to meet spending regulations `\
-https://nytimes.com/athletic/7166938/2026/04/03/newcastle-aston-villa-chelsea-everton-accounts-stadium-sale/
-
-**Liverpool insist they back Arne Slot. The next fortnight will put that to the test**\
-`FSG has sympathy for the hand dealt to head coach but crucial games in the coming weeks could yet determine his future`\
-https://nytimes.com/athletic/7167211/2026/04/03/liverpool-fixtures-arne-slot/
 

@@ -1,3 +1,15 @@
+**Deontay Wilder: 'I sacrificed my body for my child. Now I'm being selfish'**\
+`The U.S. veteran is not ready to consider retirement as he launches his latest comeback this weekend`\
+https://nytimes.com/athletic/7166283/2026/04/03/deontay-wilder-derek-chisora-interview/
+
+**Being Trump’s ‘Friend’ in Europe Is Becoming a Real Liability**\
+`For more than three years, Giorgia Meloni’s leadership of Italy has seemed unshakable. Now she suddenly seems vulnerable.`\
+https://nytimes.com/2026/04/03/opinion/trump-europe-iran-meloni-italy.html
+
+**The New York Times in Print for Friday, April 3, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/04/03/todays-new-york-times
+
 **Ollie Robinson on England: 'I’ve not done myself any favours. It's up to me to force myself back in'**\
 `The newly appointed Sussex red-ball captain has not played for his country since 2024 but, if fit and firing, he may be in the frame again`\
 https://nytimes.com/athletic/7157537/2026/04/03/ollie-robinson-england-sussex/
