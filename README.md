@@ -1,3 +1,7 @@
+**Dodgers buck tradition, add alternate blue jersey to road uniform rotation**\
+`The will mark the first time the Dodgers will go to the color for a road alternate look. It will be the third in their rotation.`\
+https://nytimes.com/athletic/7168258/2026/04/02/los-angeles-dodgers-road-blue-uniform/
+
 **Cade Cunningham still out with injury, will be ineligible for NBA awards**\
 `Cunningham remains out for the Pistons' game against the Timberwolves on Thursday night.`\
 https://nytimes.com/athletic/7166877/2026/04/02/cade-cunningham-injury-update-pistons/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7167694/2026/04/02/twins-taj-bradley-100-mph-top-pr
 **What to expect from the UEFA Women's Champions League semifinals**\
 `Barcelona's commanding 12-2 aggregate victory over rival Real Madrid was an outlier in an otherwise competitive quarterfinal round`\
 https://nytimes.com/athletic/7167325/2026/04/02/uefa-womens-champions-league-barcelona-arsenal-ol-lyonnes-bayern-munich/
-
-**Anthony Edwards misses Thursday's game, making him ineligible for NBA awards**\
-`The Timberwolves star, who is averaging 29.3 points per game, will not reach the 65-game threshold for being eligible for awards.`\
-https://nytimes.com/athletic/7168023/2026/04/02/anthony-edwards-injury-update-timberwolves/
 
