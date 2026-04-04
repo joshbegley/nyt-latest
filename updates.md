@@ -1,3 +1,7 @@
+**Cooper Flagg becomes youngest player in NBA history to have a 50-point game**\
+`The Mavs' rookie became the first teenager to exceed the 50-point mark and broke his own record for the most points in a game by a teenager.`\
+https://nytimes.com/athletic/7171061/2026/04/03/cooper-flagg-stats-highlights-mavericks-51-points/
+
 **Twins outlast power outage, early deficit to win home opener, hope to sell winning to fans**\
 `"The product we put on the field is ultimately what is going to drive hope within our fan base," owner Tom Pohlad said.`\
 https://nytimes.com/athletic/7170957/2026/04/03/twins-win-home-opener-power-outage/
