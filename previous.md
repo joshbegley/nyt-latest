@@ -1,5 +1,13 @@
-**Joel Embiid 'pissed off' 76ers held him out of recent game, calls out GM Daryl Morey**\
-`After one of the 76ers' biggest wins of the season, Joel Embiid said he was not happy about being held out of a game earlier in the week.`\
+**Here’s the latest.**\
+`By Eric Schmitt, Helene Cooper, Yeganeh Torbati and John Yoon`\
+https://nytimes.com/live/2026/04/04/world/iran-war-trump-news/heres-the-latest
+
+**Iran War Live Updates: U.S. Forces Search for Missing Airman After Iran Downs Jet**\
+`The F-15E was the first U.S. warplane shot down by Iran in the war. The episode presents challenges for the United States that would grow if the missing airman is taken prisoner.`\
+https://nytimes.com/live/2026/04/04/world/iran-war-trump-news
+
+**Joel Embiid 'pissed off' after 76ers hold him out of recent game, calls out GM Daryl Morey**\
+`After one of the 76ers' biggest wins of the season, Embiid said he was not happy about being held out of a game earlier in the week.`\
 https://nytimes.com/athletic/7171064/2026/04/04/joel-embiid-daryl-morey-illness-76ers/
 
 **How to watch Levante vs. Real Sociedad in the U.S.**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7157510/2026/04/04/west-hams-2006-fa-cup-run-no-one
 **Roberto De Zerbi, Tottenham Hotspur and an issue that has fractured a fanbase**\
 `A fanbase enraged and provoked by this season's many failures is still to reach a consensus on what the price for progress should be`\
 https://nytimes.com/athletic/7169247/2026/04/04/roberto-de-zerbi-spurs-greenwood/
-
-**Matty Cash, Peaky Blinders and channelling his inner Tommy Shelby: 'It changes a man'**\
-`The Aston Villa and Poland right-back delivered a typically solid performance to promote the new Peaky Blinders film, The Immortal Man`\
-https://nytimes.com/athletic/7157423/2026/04/04/matty-cash-peaky-blinders-netflix-aston-villa/
-
-**Lille were close to bankruptcy. This is how they became Europe's most profitable club**\
-`Lille were Ligue 1 champions in 2021, but there were major underlying problems that needed addressing by the new owners`\
-https://nytimes.com/athletic/7166217/2026/04/04/lille-europe-most-profitable-club/
 

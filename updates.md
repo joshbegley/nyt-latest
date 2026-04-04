@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By Eric Schmitt, Helene Cooper, Yeganeh Torbati and John Yoon`\
+https://nytimes.com/live/2026/04/04/world/iran-war-trump-news/heres-the-latest
+
+**Iran War Live Updates: U.S. Forces Search for Missing Airman After Iran Downs Jet**\
+`The F-15E was the first U.S. warplane shot down by Iran in the war. The episode presents challenges for the United States that would grow if the missing airman is taken prisoner.`\
+https://nytimes.com/live/2026/04/04/world/iran-war-trump-news
+
+**Joel Embiid 'pissed off' after 76ers hold him out of recent game, calls out GM Daryl Morey**\
+`After one of the 76ers' biggest wins of the season, Embiid said he was not happy about being held out of a game earlier in the week.`\
+https://nytimes.com/athletic/7171064/2026/04/04/joel-embiid-daryl-morey-illness-76ers/
+
 **Joel Embiid 'pissed off' 76ers held him out of recent game, calls out GM Daryl Morey**\
 `After one of the 76ers' biggest wins of the season, Joel Embiid said he was not happy about being held out of a game earlier in the week.`\
 https://nytimes.com/athletic/7171064/2026/04/04/joel-embiid-daryl-morey-illness-76ers/
