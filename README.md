@@ -1,3 +1,11 @@
+**How to watch Avalanche vs. Stars: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the Dallas Stars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7171470/2026/04/04/avalanche-vs-stars-stream-how-to-watch-april-4/
+
+**How to watch Blue Jays vs. White Sox: Time, TV, streaming for April 4**\
+`Find out how to watch the Toronto Blue Jays play the Chicago White Sox, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7171467/2026/04/04/blue-jays-vs-white-sox-stream-how-to-watch-april-4/
+
 **How to watch Brewers vs. Royals: Time, TV, streaming for April 4**\
 `Find out how to watch the Milwaukee Brewers play the Kansas City Royals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7171461/2026/04/04/brewers-vs-royals-stream-how-to-watch-april-4/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7170767/2026/04/04/cincinnati-reds-showing-off-need
 **Geno Auriemma's exchange with Dawn Staley the lastest in string of coaching rivalries**\
 `At the end of Friday night’s Final Four game, UConn coach Geno Auriemma had a tense exchange with South Carolina’s Dawn Staley as the Gamecocks were a second away from securing a trip to the national championship with a 62-48 victory.`\
 https://nytimes.com/athletic/7171310/2026/04/04/geno-auriemma-dawn-staley-coach-rivalry/
-
-**Why did the Maple Leafs leave Craig Berube twisting in the wind?**\
-`Berube is signed through the 2027-28 season but won't know his fate until a new Leafs boss makes a decision on it this summer.`\
-https://nytimes.com/athletic/7168184/2026/04/04/maple-leafs-craig-berube-future/
-
-**Pam and Kristi, Kicked to the Curb**\
-`Trump girls gone wild — or just gone.`\
-https://nytimes.com/2026/04/04/opinion/pam-bondi-kristi-noem-trump.html
 
