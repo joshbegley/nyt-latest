@@ -1,3 +1,7 @@
+**The 4.5.26 Issue**\
+``\
+https://nytimes.com/issue/magazine/2026/04/04/the-4526-issue
+
 **Virginia, Agugua-Hamilton part ways after ending NCAA Tournament drought**\
 `Agugua-Hamilton came to Virginia in 2022 and just led the Cavaliers to their best season in more than a decade.`\
 https://nytimes.com/athletic/7172076/2026/04/04/virginia-amaka-agugua-hamilton-coach-out/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7171962/2026/04/04/cubs-vs-guardians-stream-how-to-
 **How to watch Mets vs. Giants: Time, TV, streaming for April 4**\
 `Find out how to watch the New York Mets play the San Francisco Giants, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7171958/2026/04/04/mets-vs-giants-stream-how-to-watch-april-4/
-
-**How to watch Braves vs. Diamondbacks: Time, TV, streaming for April 4**\
-`Find out how to watch the Atlanta Braves play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171955/2026/04/04/braves-vs-diamondbacks-stream-how-to-watch-april-4/
 
