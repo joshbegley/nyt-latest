@@ -1,3 +1,11 @@
+**Twins outlast power outage, early deficit to win home opener, hope to sell winning to fans**\
+`"The product we put on the field is ultimately what is going to drive hope within our fan base," owner Tom Pohlad said.`\
+https://nytimes.com/athletic/7170957/2026/04/03/twins-win-home-opener-power-outage/
+
+**Trump Directs Officials to Pay All D.H.S. Employees**\
+`The memorandum calls for paying employees at the Coast Guard, Federal Emergency Management Agency and Cybersecurity and Infrastructure Security Agency who have gone without pay during a record-long shutdown.`\
+https://nytimes.com/2026/04/03/us/politics/trump-order-dhs-funding.html
+
 **In Pirates debut, top prospect Konnor Griffin delivers moment to remember**\
 `To say Griffin had dreamed of his MLB debut is true. Saying he had rehearsed it would be even more accurate.`\
 https://nytimes.com/athletic/7170875/2026/04/03/pittsburgh-pirates-konnor-griffin-debut-promise/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7170804/2026/04/03/phillies-hitters-golf-colorado-r
 **Giannis Antetokounmpo excoriates Bucks for sitting him as NBA investigation continues**\
 `The Bucks' star said he's being forced to "do things against my nature" and that he and the team are "definitely not on the same page."`\
 https://nytimes.com/athletic/7161947/2026/04/03/giannis-antetokounmpo-injury-update-frustrated-bucks-decision/
-
-**Arrest of Wisconsin Mosque Leader Was Tied to Trump Antisemitism Campaign**\
-`Immigration lawyers and former federal officials say the case of   Sarsour echoes those against other pro-Palestinian activists.`\
-https://nytimes.com/2026/04/03/us/wisconsin-mosque-leader-antisemitism.html
-
-**Trump Contemplates Other Cabinet Changes as He Faces Political Clock**\
-`With the midterms approaching, the president may be running out of time to get new cabinet members confirmed without bipartisan support.`\
-https://nytimes.com/2026/04/03/us/politics/trump-cabinet-changes.html
 

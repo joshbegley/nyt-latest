@@ -1,3 +1,7 @@
+**Arrest of Wisconsin Mosque Leader Was Tied to Trump Antisemitism Campaign**\
+`Immigration lawyers and former federal officials say the case of   Sarsour echoes those against other pro-Palestinian activists.`\
+https://nytimes.com/2026/04/03/us/wisconsin-mosque-leader-antisemitism.html
+
 **In Pirates debut, top prospect Konnor Griffin delivers moment to remember**\
 `To say Griffin had dreamed of his MLB debut is true. Saying he had rehearsed it would be even more accurate.`\
 https://nytimes.com/athletic/7170875/2026/04/03/pittsburgh-pirates-konnor-griffin-debut-promise/
