@@ -1,40 +1,40 @@
-**Missing Airman Raises Concerns That Iran Could Gain Leverage Over the U.S.**\
-`Since 1979, Iran has repeatedly used Americans and Europeans detained on its territory to win concessions over more powerful adversaries.`\
-https://nytimes.com/2026/04/04/world/middleeast/missing-airman-iran.html
+**How to watch Wizards vs. Heat: Time, TV, streaming**\
+`Find out how to watch the Washington Wizards play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7171427/2026/04/04/wizards-vs-heat-stream-how-to-watch-april-4/
 
-**The Pulse: A Masters golf primer**\
-`Welcome to The Pulse, The Athletic's daily newsletter.`\
-https://nytimes.com/athletic/7171206/2026/04/04/a-masters-golf-primer-plus-genos-meltdown/
+**How to watch Spurs vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the San Antonio Spurs play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7171425/2026/04/04/spurs-vs-nuggets-stream-how-to-watch-april-4/
 
-**Living Space**\
-`We don’t have to travel to the moon to gain some of the insight that astronauts do.`\
-https://nytimes.com/2026/04/04/briefing/living-space.html
+**Which prospect in each NHL team’s pipeline had the most promising season?**\
+`As the 2025-26 hockey season winds down, these NHL prospects have emerged and shown what they have to offer.`\
+https://nytimes.com/athletic/7169458/2026/04/04/nhl-top-prospect-pipeline-season/
 
-**Matvei Michkov helps earn must-win game as Flyers eye playoff push**\
-`The Flyers are playing their best hockey of the season, and if they keep it up, a playoff berth is very much within reach. `\
-https://nytimes.com/athletic/7170975/2026/04/04/matvei-michkov-philadelphia-flyers-new-york-islanders-takeaways/
+**Cincinnati Reds showing off needed power early in 2026**\
+`Through seven games, Cincinnati has nine HRs, ahead of the team's pace in 2025. `\
+https://nytimes.com/athletic/7170767/2026/04/04/cincinnati-reds-showing-off-needed-power-early-in-2026/
 
-**Can Arizona bring glory back to the west after a 29-year men's NCAA Tournament title drought?**\
-`With a team Bill Walton would have loved, Arizona has given the West as good of a chance at a national championship as it has had in years.`\
-https://nytimes.com/athletic/7169823/2026/04/04/arizona-basketball-final-four-west-drought-pac-12/
+**Geno Auriemma's exchange with Dawn Staley the lastest in string of coaching rivalries**\
+`At the end of Friday night’s Final Four game, UConn coach Geno Auriemma had a tense exchange with South Carolina’s Dawn Staley as the Gamecocks were a second away from securing a trip to the national championship with a 62-48 victory.`\
+https://nytimes.com/athletic/7171310/2026/04/04/geno-auriemma-dawn-staley-coach-rivalry/
 
-**Will Luka Dončić return for the playoffs? History says it'll be difficult**\
-`If Dončić returns from his Grade 2 hamstring strain by the playoffs, he will be going against recent NBA history with these injuries.`\
-https://nytimes.com/athletic/7170931/2026/04/04/luka-doncic-hamstring-nba-playoffs/
+**Why did the Maple Leafs leave Craig Berube twisting in the wind?**\
+`Berube is signed through the 2027-28 season but won't know his fate until a new Leafs boss makes a decision on it this summer.`\
+https://nytimes.com/athletic/7168184/2026/04/04/maple-leafs-craig-berube-future/
 
-**UConn's chase for perfection ends in most imperfect way in Final Four loss to South Carolina**\
-`The undefeated Huskies' quest for a second-straight national title came to an end as they unraveled in Phoenix.`\
-https://nytimes.com/athletic/7171289/2026/04/04/uconn-final-four-loss-south-carolina/
+**Pam and Kristi, Kicked to the Curb**\
+`Trump girls gone wild — or just gone.`\
+https://nytimes.com/2026/04/04/opinion/pam-bondi-kristi-noem-trump.html
 
-**Meet David Mirkovic: Illinois' karaoke king and DJ who refuses to lose**\
-`The 6-foot-9 Montenegrin's fun personality and competitive drive has helped Illinois reach the Final Four.`\
-https://nytimes.com/athletic/7170586/2026/04/04/illinois-david-mirkovic-final-four-karaoke-dj/
+**Alex Cora's message to Red Sox fans: Caleb Durbin is his own player and nobody else**\
+`After his 0-for-19 start, the team's new third baseman heard it from the fans Boston-style in the home opener. But he redeemed himself.`\
+https://nytimes.com/athletic/7170716/2026/04/04/caleb-durbin-booed-alex-cora-red-sox-home-opener/
 
-**Igor Shesterkin starred in the NHL's latest goalie fight. His boxing coaches were proud**\
-`“He looked very confident, doing a jab and a right overhand," Sergey Novikov said of Shesterkin. "Things he tried in our boxing sessions.”`\
-https://nytimes.com/athletic/7169922/2026/04/04/shesterkin-boxing-nhl-goalie-fight/
+**Trump Needs Smarter Sycophants**\
+`Loyal losers don’t go very far with this president.`\
+https://nytimes.com/2026/04/04/opinion/trump-bondi-hegseth-noem.html
 
-**Who will step up and become the Blackhawks' next defensive stopper?**\
-`The Blackhawks are on lookout for someone to fill an unglamorous but critical role: shutdown guy.`\
-https://nytimes.com/athletic/7170091/2026/04/04/blackhawks-next-defensive-stopper/
+**All the President’s Wars — at Home and Abroad**\
+`From Tehran to the Supreme Court, a look at Trump’s relentless battles.`\
+https://nytimes.com/2026/04/04/opinion/trump-wars-iran-birthright-citizenship.html
 
