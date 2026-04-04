@@ -1,3 +1,7 @@
+**Memories of the ‘Last, Best Time to Be a Kid’**\
+`Readers react to Sarah Wildman’s guest essay about the free-range childhood depicted in the Rob Reiner film “Stand by Me.”`\
+https://nytimes.com/2026/04/04/opinion/stand-by-me-childhood-freedom.html
+
 **How to watch Avalanche vs. Stars: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the Dallas Stars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7171470/2026/04/04/avalanche-vs-stars-stream-how-to-watch-april-4/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7169458/2026/04/04/nhl-top-prospect-pipeline-season
 **Cincinnati Reds showing off needed power early in 2026**\
 `Through seven games, Cincinnati has nine HRs, ahead of the team's pace in 2025. `\
 https://nytimes.com/athletic/7170767/2026/04/04/cincinnati-reds-showing-off-needed-power-early-in-2026/
-
-**Geno Auriemma's exchange with Dawn Staley the lastest in string of coaching rivalries**\
-`At the end of Friday night’s Final Four game, UConn coach Geno Auriemma had a tense exchange with South Carolina’s Dawn Staley as the Gamecocks were a second away from securing a trip to the national championship with a 62-48 victory.`\
-https://nytimes.com/athletic/7171310/2026/04/04/geno-auriemma-dawn-staley-coach-rivalry/
 
