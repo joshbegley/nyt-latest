@@ -1,3 +1,7 @@
+**With Arizona in the Final Four, Warriors coach Steve Kerr is just a fan**\
+`“It's fun to be a Wildcat this week,” Kerr said.`\
+https://nytimes.com/athletic/7172447/2026/04/04/steve-kerr-warriors-arizona-ncaa-final-four/
+
 **Badvertising**\
 `Samuel A. Donaldson brandishes a sharp Sunday puzzle.`\
 https://nytimes.com/2026/04/04/crosswords/daily-puzzle-2026-04-05.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7172259/2026/04/04/asterisk-talley-anwa-dechambeau-
 **The Briefing: Southampton 2 Arsenal 1 - Premier League leaders knocked out of the FA Cup**\
 `The Athletic analyses the key talking points from the FA Cup tie at St Mary's`\
 https://nytimes.com/athletic/7168802/2026/04/04/arsenal-facup-southampton-result/
-
-**Warriors' Steph Curry expected to return Sunday against Rockets**\
-`Curry described the recovery process as adjusting to a "new normal."`\
-https://nytimes.com/athletic/7172270/2026/04/04/steph-curry-warriors-return-knee-injury-rockets/
 

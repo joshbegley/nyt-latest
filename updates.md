@@ -1,3 +1,7 @@
+**With Arizona in the Final Four, Warriors coach Steve Kerr is just a fan**\
+`“It's fun to be a Wildcat this week,” Kerr said.`\
+https://nytimes.com/athletic/7172447/2026/04/04/steve-kerr-warriors-arizona-ncaa-final-four/
+
 **Badvertising**\
 `Samuel A. Donaldson brandishes a sharp Sunday puzzle.`\
 https://nytimes.com/2026/04/04/crosswords/daily-puzzle-2026-04-05.html
