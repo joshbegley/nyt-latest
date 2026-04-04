@@ -1,3 +1,7 @@
+**How Maria Jose Marin, from Colombia by way of Arkansas, had her ANWA moment**\
+`“I have a lot of friends and little kids in my country club that just say, I want to be like you someday."`\
+https://nytimes.com/athletic/7172475/2026/04/04/maria-jose-marin-anwa-2026-win-colombia-arkansas/
+
 **Dozens Killed in Haiti Massacre as International Force Trickles In**\
 `Gangs tore through several rural communities last weekend, underscoring the challenges that will face the new, U.N.-backed Gang Suppression Force starting to enter the country.`\
 https://nytimes.com/2026/04/04/world/americas/haiti-gang-massacre.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/04/us/vehicle-crash-parade-new-iberia-louisiana.html
 **NASA Astronauts Are Closer to Moon Than Earth on Artemis II Day 4**\
 `The astronauts said they had lost track of which day it is on Earth on their transit to the moon.`\
 https://nytimes.com/2026/04/04/science/nasa-moon-artemis-day-4.html
-
-**Lakers' Austin Reaves out for rest of regular season with oblique injury**\
-`The injury is the latest blow to the Lakers, with Luka Dončić also missing the rest of the regular season with a hamstring injury.`\
-https://nytimes.com/athletic/7172313/2026/04/04/austin-reaves-injury-out-regular-season-lakers/
 

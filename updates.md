@@ -1,3 +1,7 @@
+**Dozens Killed in Haiti Massacre as International Force Trickles In**\
+`Gangs tore through several rural communities last weekend, underscoring the challenges that will face the new, U.N.-backed Gang Suppression Force starting to enter the country.`\
+https://nytimes.com/2026/04/04/world/americas/haiti-gang-massacre.html
+
 **With Geno Auriemma and Sarah Strong back at UConn, are the Huskies 2027 contenders?**\
 `UConn likely will need to dip into the transfer portal for another scoring option. `\
 https://nytimes.com/athletic/7172482/2026/04/04/geno-auriemma-sarah-strong-uconn-2027/
