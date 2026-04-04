@@ -1,3 +1,7 @@
+**Football fan event in Peru leaves one dead and dozens hospitalised**\
+`Peru’s health minister Juan Carlos Velasco confirmed to news channel Canal N on Friday that a 39-year-old male had died with 47 hospitalised`\
+https://nytimes.com/athletic/7171492/2026/04/04/football-fan-death-peru/
+
 **What Ken Griffey Jr. found in the lens at Augusta National**\
 `“There’s that old saying, be comfortable being uncomfortable. That was that whole week at Augusta."`\
 https://nytimes.com/athletic/7170413/2026/04/04/ken-griffey-jr-masters-photographer-augusta-national/
