@@ -1,3 +1,11 @@
+**Ryan Hartman stays hot, Jesper Wallstedt stands tall as Wild beat Senators: Takeaways**\
+`Hartman extended his point streak to five games (six goals, two assists and eight points) with a two-goal performance.`\
+https://nytimes.com/athletic/7172346/2026/04/04/wild-ryan-hartman-jesper-wallstedt-senators-takeaways/
+
+**NCAA president on Trump executive order: Hopeful for 'bipartisan solution'**\
+`Trump's order mandates limiting athletes to one unrestricted transfer as undergraduates and puts a five-year cap on college eligibility.`\
+https://nytimes.com/athletic/7172414/2026/04/04/charlie-baker-trump-executive-order-final-four/
+
 **Satellite image company restricts Mideast content, citing a U.S. government request.**\
 `By Pranav Baskar`\
 https://nytimes.com/live/2026/04/04/world/iran-war-trump-news/satellite-image-company-restricts-mideast-content-citing-a-us-government-request
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7172270/2026/04/04/steph-curry-warriors-return-knee
 **Mary Rand, Pioneering Track and Field Olympian, Dies at 86**\
 `At the 1964 Tokyo Olympics, she became the first British woman to win a gold medal in track and field, and the first to win three medals in one Games.`\
 https://nytimes.com/2026/04/04/sports/mary-rand-dead.html
-
-**LeBron doubles down on Memphis diss, adds Milwaukee to cities he doesn’t like playing in**\
-`The Los Angeles Lakers star told reporters that his digs at Memphis had nothing to do with the people who live in the city.`\
-https://nytimes.com/athletic/7172108/2026/04/04/lebron-james-memphis-milwaukee-comments/
-
-**Tom Valenti, Who Made Lamb Shanks a Showstopper, Dies at 67**\
-`At Ouest, on the Upper West Side, and other Manhattan restaurants, he served robust dishes in a style he called “haute cuisine with the grandma gene.”`\
-https://nytimes.com/2026/04/04/dining/tom-valenti-dead.html
 
