@@ -1,3 +1,11 @@
+**How to watch Cardinals vs. Tigers: Time, TV, streaming for April 4**\
+`Find out how to watch the St. Louis Cardinals play the Detroit Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7171375/2026/04/04/cardinals-vs-tigers-stream-how-to-watch-april-4/
+
+**How to watch Borussia Dortmund vs. VfB Stuttgart in the U.S.**\
+`Find out how to watch Borussia Dortmund play VfB Stuttgart, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7171372/2026/04/04/borussia-dortmund-vs-vfb-stuttgart-stream-how-to-watch-bundesliga-april-4/
+
 **How to watch Espanyol vs. Real Betis in the U.S.**\
 `Find out how to watch Espanyol play Real Betis, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7171355/2026/04/04/espanyol-vs-real-betis-stream-how-to-watch-la-liga-april-4/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/04/movies/the-drama-plot-twist-reader-thoughts.html
 **Trump Pledged a Quick End to the Iran War, but He Hasn’t Explained How**\
 `President Trump bet that American firepower could cow Iran into compliance. So far, Iran’s leaders have been unwilling to quit.`\
 https://nytimes.com/2026/04/04/us/politics/trump-endless-wars.html
-
-**'Every loss will hurt extra': Wim Fissette's coaching partnership with Iga Świątek, and its end**\
-`Fissette and Świątek won Wimbledon together, but their partnership required working through the complex task of changing style in real time.`\
-https://nytimes.com/athletic/7167246/2026/04/04/tennis-wim-fissette-iga-swiatek-coach-interview/
-
-**How Plausible Is ‘Project Hail Mary’? Astrophysicists Have Thoughts**\
-`Based on hard science fiction, a genre that prioritizes scientific accuracy, the blockbuster gets a lot right but misses a few things, experts say.`\
-https://nytimes.com/2026/04/04/movies/project-hail-mary-scientific-accuracy.html
 

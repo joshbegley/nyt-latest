@@ -1,3 +1,11 @@
+**How to watch Wild vs. Senators: Time, TV, streaming**\
+`Find out how to watch the Minnesota Wild play the Ottawa Senators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7171379/2026/04/04/wild-vs-senators-stream-how-to-watch-april-4/
+
+**How to watch Red Wings vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7171377/2026/04/04/red-wings-vs-rangers-stream-how-to-watch-april-4/
+
 **How to watch Cardinals vs. Tigers: Time, TV, streaming for April 4**\
 `Find out how to watch the St. Louis Cardinals play the Detroit Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7171375/2026/04/04/cardinals-vs-tigers-stream-how-to-watch-april-4/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/04/business/my-husband-cant-get-a-job-should-i-divor
 **Trump Budget Does Little to Address Nation’s Fiscal Challenges**\
 `While the federal deficit has started to shrink under President Trump, his plans could make the long-term situation worse.`\
 https://nytimes.com/2026/04/04/business/trump-budget-federal-deficit.html
-
-**‘The Drama’ Has a Shocking Plot Twist. Share Your Reaction.**\
-`The sort-of rom-com stars Zendaya and Robert Pattinson as an engaged couple whose relationship is upended by a revelation that has divided audiences.`\
-https://nytimes.com/2026/04/04/movies/the-drama-plot-twist-reader-thoughts.html
-
-**Trump Pledged a Quick End to the Iran War, but He Hasn’t Explained How**\
-`President Trump bet that American firepower could cow Iran into compliance. So far, Iran’s leaders have been unwilling to quit.`\
-https://nytimes.com/2026/04/04/us/politics/trump-endless-wars.html
 
