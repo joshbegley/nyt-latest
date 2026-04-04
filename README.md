@@ -1,3 +1,7 @@
+**LeBron doubles down on Memphis diss, adds Milwaukee to cities he doesn’t like playing in**\
+`The Los Angeles Lakers star told reporters that his digs at Memphis had nothing to do with the people who live in the city.`\
+https://nytimes.com/athletic/7172108/2026/04/04/lebron-james-memphis-milwaukee-comments/
+
 **Tom Valenti, Who Made Lamb Shanks a Showstopper, Dies at 67**\
 `At Ouest, on the Upper West Side, and other Manhattan restaurants, he served robust dishes in a style he called “haute cuisine with the grandma gene.”`\
 https://nytimes.com/2026/04/04/dining/tom-valenti-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/04/world/asia/afghanistan-floods-earthquake.html
 **Here’s how two airmen would have ejected from the F-15E.**\
 `A step-by-step look at the process by which the two crew members probably ejected from the fighter jet.`\
 https://nytimes.com/live/2026/04/04/world/iran-war-trump-news/iran-pilot-fighter-jet-strike-war
-
-**The 4.5.26 Issue**\
-``\
-https://nytimes.com/issue/magazine/2026/04/04/the-4526-issue
 
