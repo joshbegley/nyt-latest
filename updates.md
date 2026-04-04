@@ -1,3 +1,7 @@
+**Quote of the Day: The Mystifying Drunken Episodes of Teetotalers**\
+`Quotation of the Day for Saturday, April 4, 2026.`\
+https://nytimes.com/2026/04/03/pageoneplus/quote-of-the-day-the-mystifying-drunken-episodes-of-teetotalers.html
+
 **Cooper Flagg becomes youngest player in NBA history to have a 50-point game**\
 `The Mavs' rookie became the first teenager to exceed the 50-point mark and broke his own record for the most points in a game by a teenager.`\
 https://nytimes.com/athletic/7171061/2026/04/03/cooper-flagg-stats-highlights-mavericks-51-points/
