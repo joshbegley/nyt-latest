@@ -1,3 +1,7 @@
+**Ex-Chelsea midfielder Oscar, 34, retires from football with fainting condition**\
+`The former Brazil international spent five-and-a-half seasons in the Premier League between 2012 and 2017, winning two titles.`\
+https://nytimes.com/athletic/7171706/2026/04/04/oscar-chelsea-sao-paulo-retirement/
+
 **How to watch Rays vs. Twins: Time, TV, streaming for April 4**\
 `Find out how to watch the Tampa Bay Rays play the Minnesota Twins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7171774/2026/04/04/rays-vs-twins-stream-how-to-watch-april-4/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7171490/2026/04/04/juan-soto-injury-mets-giants/
 **Easy, Breezy Springtime Desserts**\
 `It’s time for simple showstoppers like toasted coconut rum balls and blueberry, lemon and almond cake.`\
 https://nytimes.com/2026/04/04/dining/easy-breezy-springtime-desserts.html
-
-**Lights, Camera, Crafty: The Woman Who Feeds the Movie Crews**\
-`Watch Concetta Scottodicarlo in action, as she feeds the cast and crew of a film production.`\
-https://nytimes.com/2026/04/04/dining/on-the-job-craft-services.html
 
