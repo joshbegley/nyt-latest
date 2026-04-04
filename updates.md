@@ -1,3 +1,7 @@
+**Deadly Earthquake and Floods Worsen Afghanistan’s Troubles**\
+`Floods have killed at least 77 people this week and destroyed or damaged thousands of homes, and an earthquake on Friday killed a dozen more.`\
+https://nytimes.com/2026/04/04/world/asia/afghanistan-floods-earthquake.html
+
 **Here’s how two airmen would have ejected from the F-15E.**\
 `A step-by-step look at the process by which the two crew members probably ejected from the fighter jet.`\
 https://nytimes.com/live/2026/04/04/world/iran-war-trump-news/iran-pilot-fighter-jet-strike-war
