@@ -1,3 +1,7 @@
+**Sabres clinch first playoff berth since 2011, end NHL-record drought**\
+`We're not just gonna go for the playoffs," Sabres winger Alex Tuch said earlier this season. "We're gonna go for the Cup."`\
+https://nytimes.com/athletic/7161395/2026/04/04/buffalo-sabres-playoffs-2026-clinch/
+
 **Deadly Earthquake and Floods Worsen Afghanistan’s Troubles**\
 `Floods have killed at least 77 people this week and destroyed or damaged thousands of homes, and an earthquake on Friday killed a dozen more.`\
 https://nytimes.com/2026/04/04/world/asia/afghanistan-floods-earthquake.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7172038/2026/04/04/michigan-vs-arizona-stream-how-t
 **Tigers place starter Justin Verlander on 15-day IL with left hip inflammation**\
 `The 43-year-old first felt symptoms of the injury sometime after his outing on March 30.`\
 https://nytimes.com/athletic/7171953/2026/04/04/tigers-verlander-hip-inflammation-il/
-
-**How to watch Phillies vs. Rockies: Time, TV, streaming for April 4**\
-`Find out how to watch the Philadelphia Phillies play the Colorado Rockies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171969/2026/04/04/phillies-vs-rockies-stream-how-to-watch-april-4/
 
