@@ -1,3 +1,7 @@
+**With Geno Auriemma and Sarah Strong back at UConn, are the Huskies 2027 contenders?**\
+`UConn likely will need to dip into the transfer portal for another scoring option. `\
+https://nytimes.com/athletic/7172482/2026/04/04/geno-auriemma-sarah-strong-uconn-2027/
+
 **With Arizona in the Final Four, Warriors coach Steve Kerr is just a fan**\
 `“It's fun to be a Wildcat this week,” Kerr said.`\
 https://nytimes.com/athletic/7172447/2026/04/04/steve-kerr-warriors-arizona-ncaa-final-four/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7172313/2026/04/04/austin-reaves-injury-out-regular
 **Talley comforted by DeChambeau, Sorenstam after 'little meltdown' at ANWA**\
 `Talley, 17, hit two shots out of one of the 12th hole's back bunkers into the pond.`\
 https://nytimes.com/athletic/7172259/2026/04/04/asterisk-talley-anwa-dechambeau-sorenstam/
-
-**The Briefing: Southampton 2 Arsenal 1 - Premier League leaders knocked out of the FA Cup**\
-`The Athletic analyses the key talking points from the FA Cup tie at St Mary's`\
-https://nytimes.com/athletic/7168802/2026/04/04/arsenal-facup-southampton-result/
 

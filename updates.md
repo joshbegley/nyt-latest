@@ -1,3 +1,7 @@
+**With Geno Auriemma and Sarah Strong back at UConn, are the Huskies 2027 contenders?**\
+`UConn likely will need to dip into the transfer portal for another scoring option. `\
+https://nytimes.com/athletic/7172482/2026/04/04/geno-auriemma-sarah-strong-uconn-2027/
+
 **With Arizona in the Final Four, Warriors coach Steve Kerr is just a fan**\
 `“It's fun to be a Wildcat this week,” Kerr said.`\
 https://nytimes.com/athletic/7172447/2026/04/04/steve-kerr-warriors-arizona-ncaa-final-four/
