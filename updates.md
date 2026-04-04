@@ -1,3 +1,7 @@
+**UCLA takes down Texas, advances to first NCAA national championship game**\
+`Center Lauren Betts scored 16 points to lead the Bruins into a national title matchup with South Carolina.`\
+https://nytimes.com/athletic/7171128/2026/04/04/ucla-texas-final-four-result-takeaways/
+
 **UCLA takes down Texas, advances to first national championship game**\
 `Center Lauren Betts scored 16 points to lead the Bruins into a national title matchup with South Carolina.`\
 https://nytimes.com/athletic/7171128/2026/04/04/ucla-texas-final-four-result-takeaways/
