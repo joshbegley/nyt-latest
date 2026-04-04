@@ -1,3 +1,11 @@
+**Red Wings' late-season slide raises uncomfortable questions**\
+`The Red Wings again lost a must-win game against a beatable team, a trend that raises questions about their future.`\
+https://nytimes.com/athletic/7172273/2026/04/04/red-wings-rangers-nhl-playoffs-standings/
+
+**Geno Auriemma confirms return to UConn next season**\
+`Auriemma, 72, is the winningest college basketball coach in history — men’s or women’s — and will return to increase that lead next season.`\
+https://nytimes.com/athletic/7172575/2026/04/04/geno-auriemma-returns-uconn-2027-season-ncaaw/
+
 **Blue Jays' sloppy losses could spark tough conversations, roster moves**\
 `A 4-4 start is no reason to panic, but Toronto manager John Schneider acknowledges that "we've had some games that scream ‘not us.’"`\
 https://nytimes.com/athletic/7172455/2026/04/04/blue-jays-white-sox-losses/

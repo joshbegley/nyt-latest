@@ -1,3 +1,11 @@
+**Red Wings' late-season slide raises uncomfortable questions**\
+`The Red Wings again lost a must-win game against a beatable team, a trend that raises questions about their future.`\
+https://nytimes.com/athletic/7172273/2026/04/04/red-wings-rangers-nhl-playoffs-standings/
+
+**Geno Auriemma confirms return to UConn next season**\
+`Auriemma, 72, is the winningest college basketball coach in history — men’s or women’s — and will return to increase that lead next season.`\
+https://nytimes.com/athletic/7172575/2026/04/04/geno-auriemma-returns-uconn-2027-season-ncaaw/
+
 **Blue Jays' sloppy losses could spark tough conversations, roster moves**\
 `A 4-4 start is no reason to panic, but Toronto manager John Schneider acknowledges that "we've had some games that scream ‘not us.’"`\
 https://nytimes.com/athletic/7172455/2026/04/04/blue-jays-white-sox-losses/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7172447/2026/04/04/steve-kerr-warriors-arizona-ncaa
 **Badvertising**\
 `Samuel A. Donaldson brandishes a sharp Sunday puzzle.`\
 https://nytimes.com/2026/04/04/crosswords/daily-puzzle-2026-04-05.html
-
-**Ryan Hartman stays hot, Jesper Wallstedt stands tall as Wild beat Senators: Takeaways**\
-`Hartman extended his point streak to five games (six goals, two assists and eight points) with a two-goal performance.`\
-https://nytimes.com/athletic/7172346/2026/04/04/wild-ryan-hartman-jesper-wallstedt-senators-takeaways/
-
-**NCAA president on Trump executive order: Hopeful for 'bipartisan solution'**\
-`Trump's order mandates limiting athletes to one unrestricted transfer as undergraduates and puts a five-year cap on college eligibility.`\
-https://nytimes.com/athletic/7172414/2026/04/04/charlie-baker-trump-executive-order-final-four/
 
