@@ -1,3 +1,11 @@
+**Talley comforted by DeChambeau, Sorenstam after 'little meltdown' at ANWA**\
+`Talley, 17, hit two shots out of one of the 12th hole's back bunkers into the pond.`\
+https://nytimes.com/athletic/7172259/2026/04/04/asterisk-talley-anwa-dechambeau-sorenstam/
+
+**The Briefing: Southampton 2 Arsenal 1 - Premier League leaders knocked out of the FA Cup**\
+`The Athletic analyses the key talking points from the FA Cup tie at St Mary's`\
+https://nytimes.com/athletic/7168802/2026/04/04/arsenal-facup-southampton-result/
+
 **Warriors' Steph Curry expected to return Sunday against Rockets**\
 `Curry has not played since Jan. 30 due to a right knee injury.`\
 https://nytimes.com/athletic/7172270/2026/04/04/steph-curry-warriors-return-knee-injury-rockets/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7172186/2026/04/04/golden-knights-vs-oilers-stream-
 **How to watch Blackhawks vs. Kraken: Time, TV, streaming**\
 `Find out how to watch the Chicago Blackhawks play the Seattle Kraken, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7172179/2026/04/04/blackhawks-vs-kraken-stream-how-to-watch-april-4/
-
-**How to watch Mariners vs. Angels: Time, TV, streaming for April 4**\
-`Find out how to watch the Seattle Mariners play the Los Angeles Angels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7172165/2026/04/04/mariners-vs-angels-stream-how-to-watch-april-4/
-
-**Sabres clinch first playoff berth since 2011, end NHL-record drought**\
-`"We're not just gonna go for the playoffs," Sabres winger Alex Tuch said earlier this season. "We're gonna go for the Cup."`\
-https://nytimes.com/athletic/7161395/2026/04/04/buffalo-sabres-playoffs-2026-clinch/
 
