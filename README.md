@@ -1,3 +1,7 @@
+**Joel Embiid 'pissed off' 76ers held him out of recent game, calls out GM Daryl Morey**\
+`After one of the 76ers' biggest wins of the season, Joel Embiid said he was not happy about being held out of a game earlier in the week.`\
+https://nytimes.com/athletic/7171064/2026/04/04/joel-embiid-daryl-morey-illness-76ers/
+
 **How to watch Levante vs. Real Sociedad in the U.S.**\
 `Find out how to watch Levante play Real Sociedad, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7171216/2026/04/04/levante-vs-real-sociedad-stream-how-to-watch-la-liga-april-4/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7157423/2026/04/04/matty-cash-peaky-blinders-netfli
 **Lille were close to bankruptcy. This is how they became Europe's most profitable club**\
 `Lille were Ligue 1 champions in 2021, but there were major underlying problems that needed addressing by the new owners`\
 https://nytimes.com/athletic/7166217/2026/04/04/lille-europe-most-profitable-club/
-
-**Joe Cole interview: 'The FA Cup is crucial for Chelsea. It can help settle things down'**\
-`Chelsea have not won a domestic cup for eight years. Joe Cole believes winning it this time could be important`\
-https://nytimes.com/athletic/7151653/2026/04/04/joe-cole-chelsea-interview-fa-cup/
 
