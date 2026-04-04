@@ -22,7 +22,7 @@ https://nytimes.com/athletic/7171795/2026/04/04/mammoth-vs-canucks-stream-how-to
 `Find out how to watch the Toronto Maple Leafs play the Los Angeles Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7171793/2026/04/04/maple-leafs-vs-kings-stream-how-to-watch-april-4/
 
-**Ex-Chelsea midfielder Oscar, 34, retires from football with fainting condition**\
+**Ex-Chelsea midfielder Oscar, 34, retires after fainting condition diagnosis**\
 `The former Brazil international spent five-and-a-half seasons in the Premier League between 2012 and 2017, winning two titles.`\
 https://nytimes.com/athletic/7171706/2026/04/04/oscar-chelsea-sao-paulo-retirement/
 
