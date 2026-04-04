@@ -1,3 +1,7 @@
+**What Ken Griffey Jr. found in the lens at Augusta National**\
+`“There’s that old saying, be comfortable being uncomfortable. That was that whole week at Augusta."`\
+https://nytimes.com/athletic/7170413/2026/04/04/ken-griffey-jr-masters-photographer-augusta-national/
+
 **What if the Jets were ruthless? Reimagining 10 of Winnipeg's most important moves**\
 `Winnipeg is known for being patient and loyal. What if that weren't the case? Let's play "what if?"`\
 https://nytimes.com/athletic/7168243/2026/04/04/winnipeg-jets-reimagining-10-important-moves/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/04/world/europe/london-arson-attack.html
 **How to watch Barcelona vs. Atletico Madrid in the U.S.**\
 `Find out how to watch Barcelona play Atletico Madrid, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7171437/2026/04/04/barcelona-vs-atletico-madrid-stream-how-to-watch-la-liga-april-4/
-
-**How to watch Wizards vs. Heat: Time, TV, streaming**\
-`Find out how to watch the Washington Wizards play the Miami Heat, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171427/2026/04/04/how-to-watch-wizards-vs-heat-tv-channel-and-streaming-options-for-april-4/
 
