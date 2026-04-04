@@ -1,8 +1,12 @@
+**Geno Auriemma, Dawn Staley have heated sideline argument in Final Four game**\
+`With less than a second left, Auriemma walked up to Staley, sharing some perturbed words that immediately visibly infuriated Staley.`\
+https://nytimes.com/athletic/7170849/2026/04/03/geno-auriemma-dawn-staley-sideline-drama-south-carolina-uconn-final-four/
+
 **South Carolina hands UConn first loss, reaches 4th NCAA final in 5 years**\
 `The Gamecocks pulled the upset over top-seeded UConn by stifling a Huskies’ offense that has been scoring at will this season.`\
 https://nytimes.com/athletic/7170841/2026/04/03/south-carolina-defeats-uconn-final-four-result-takeaways/
 
-**Phillies' hitters swing into gear with first-inning barrage after off-day golfing**\
+**Phillies’ bats awaken with cathartic first-inning barrage in Colorado**\
 `All it took was 18 minutes of catharsis in the first inning, as the Phillies scored seven runs, more than they had in any game this season.`\
 https://nytimes.com/athletic/7170804/2026/04/03/phillies-hitters-golf-colorado-rockies/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7170487/2026/04/03/ben-rice-yankees/
 **Trump Administration Celebrates Good Friday in Official Messages**\
 `President Trump and administration officials have extended more pronounced overtures to Christians in public statements and executive orders.`\
 https://nytimes.com/2026/04/03/us/politics/trump-christian-good-friday-posts.html
-
-**Framber Valdez shows his worth and growth in Tigers' home opener**\
-`Valdez's performance helped steer the Tigers out of an early four-game skid. "He has a really good reset button," A.J. Hinch said.`\
-https://nytimes.com/athletic/7170517/2026/04/03/framber-valdez-tigers-home-opener/
 

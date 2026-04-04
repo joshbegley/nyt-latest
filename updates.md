@@ -1,3 +1,11 @@
+**Geno Auriemma, Dawn Staley have heated sideline argument in Final Four game**\
+`With less than a second left, Auriemma walked up to Staley, sharing some perturbed words that immediately visibly infuriated Staley.`\
+https://nytimes.com/athletic/7170849/2026/04/03/geno-auriemma-dawn-staley-sideline-drama-south-carolina-uconn-final-four/
+
+**Phillies’ bats awaken with cathartic first-inning barrage in Colorado**\
+`All it took was 18 minutes of catharsis in the first inning, as the Phillies scored seven runs, more than they had in any game this season.`\
+https://nytimes.com/athletic/7170804/2026/04/03/phillies-hitters-golf-colorado-rockies/
+
 **South Carolina hands UConn first loss, reaches 4th NCAA final in 5 years**\
 `The Gamecocks pulled the upset over top-seeded UConn by stifling a Huskies’ offense that has been scoring at will this season.`\
 https://nytimes.com/athletic/7170841/2026/04/03/south-carolina-defeats-uconn-final-four-result-takeaways/
