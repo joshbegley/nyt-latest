@@ -31,7 +31,7 @@ https://nytimes.com/athletic/7170804/2026/04/03/phillies-hitters-golf-colorado-r
 https://nytimes.com/athletic/7161947/2026/04/03/giannis-antetokounmpo-injury-update-frustrated-bucks-decision/
 
 **Arrest of Wisconsin Mosque Leader Was Tied to Trump Antisemitism Campaign**\
-`Immigration lawyers and former federal officials say the case of Salah Sarsour echoes those against other pro-Palestinian activists.`\
+`Immigration lawyers and former federal officials say the case of   Sarsour echoes those against other pro-Palestinian activists.`\
 https://nytimes.com/2026/04/03/us/wisconsin-mosque-leader-antisemitism.html
 
 **Trump Contemplates Other Cabinet Changes as He Faces Political Clock**\

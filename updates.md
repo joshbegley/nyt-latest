@@ -1,3 +1,7 @@
+**In Pirates debut, top prospect Konnor Griffin delivers moment to remember**\
+`To say Griffin had dreamed of his MLB debut is true. Saying he had rehearsed it would be even more accurate.`\
+https://nytimes.com/athletic/7170875/2026/04/03/pittsburgh-pirates-konnor-griffin-debut-promise/
+
 **Diary of a Guardians home opener: Sing-alongs, gyrating mascots and more DeLauter homers**\
 `Here’s a chronicle of how the 33rd home opener at Progressive Field unfolded Friday against the Chicago Cubs.`\
 https://nytimes.com/athletic/7168429/2026/04/03/guardians-home-opener-diary/
