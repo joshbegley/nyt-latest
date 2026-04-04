@@ -1,3 +1,7 @@
+**Chart-Toppers**\
+`Royce Ferguson’s latest Saturday puzzle drops some sick beats.`\
+https://nytimes.com/2026/04/03/crosswords/daily-puzzle-2026-04-04.html
+
 **‘Iran Is Being Destroyed in Front of Our Eyes’: Tehran Is Gripped by Fear**\
 `Fifteen residents of Tehran said in telephone interviews and text messages that the capital was weathering heavy bombardment Friday.`\
 https://nytimes.com/2026/04/03/world/middleeast/iran-is-being-destroyed-in-front-of-our-eyes-tehran-is-gripped-by-fear.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7170666/2026/04/03/sonny-gray-red-sox-home-opener-p
 **Here’s What Happened in the War in the Middle East on Friday**\
 `An American fighter jet was shot down by Iran for the first time since the start of the war, leading to an urgent search-and-rescue operation for a missing crew member.`\
 https://nytimes.com/2026/04/03/world/middleeast/iran-war-middle-east-recap-friday.html
-
-**Yankees slugger Ben Rice's ascension to stardom has arrived**\
-`Rice continually destroying baseballs is nothing new. The only difference is the level of attention he's now receiving.`\
-https://nytimes.com/athletic/7170487/2026/04/03/ben-rice-yankees/
 
