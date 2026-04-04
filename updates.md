@@ -1,3 +1,7 @@
+**Chelsea's week of recriminations ends in call for 'emotional stability' and hints they might lean less on youth**\
+`A week in which senior players had questioned the club's transfer policy or hinted at a desire to leave ended with a call for maturity`\
+https://nytimes.com/athletic/7169995/2026/04/04/chelsea-fernandez-rosenior-emotional-stability/
+
 **Here’s the latest.**\
 `By Eric Schmitt, Helene Cooper, Yeganeh Torbati and John Yoon`\
 https://nytimes.com/live/2026/04/04/world/iran-war-trump-news/heres-the-latest
