@@ -1,3 +1,7 @@
+**Cooper Flagg becomes youngest player in NBA history to have a 50-point game**\
+`The Mavs' rookie became the first teenager to exceed the 50-point mark and broke his own record for the most points in a game by a teenager.`\
+https://nytimes.com/athletic/7171061/2026/04/03/cooper-flagg-stats-highlights-mavericks-51-points/
+
 **Twins outlast power outage, early deficit to win home opener, hope to sell winning to fans**\
 `"The product we put on the field is ultimately what is going to drive hope within our fan base," owner Tom Pohlad said.`\
 https://nytimes.com/athletic/7170957/2026/04/03/twins-win-home-opener-power-outage/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7170841/2026/04/03/south-carolina-defeats-uconn-fin
 **Phillies’ bats awaken with cathartic first-inning barrage in Colorado**\
 `All it took was 18 minutes of catharsis in the first inning, as the Phillies scored seven runs, more than they had in any game this season.`\
 https://nytimes.com/athletic/7170804/2026/04/03/phillies-hitters-golf-colorado-rockies/
-
-**Giannis Antetokounmpo excoriates Bucks for sitting him as NBA investigation continues**\
-`The Bucks' star said he's being forced to "do things against my nature" and that he and the team are "definitely not on the same page."`\
-https://nytimes.com/athletic/7161947/2026/04/03/giannis-antetokounmpo-injury-update-frustrated-bucks-decision/
 
