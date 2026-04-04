@@ -1,3 +1,19 @@
+**How to watch Phillies vs. Rockies: Time, TV, streaming for April 4**\
+`Find out how to watch the Philadelphia Phillies play the Colorado Rockies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7171969/2026/04/04/phillies-vs-rockies-stream-how-to-watch-april-4/
+
+**How to watch Cubs vs. Guardians: Time, TV, streaming for April 4**\
+`Find out how to watch the Chicago Cubs play the Cleveland Guardians, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7171962/2026/04/04/cubs-vs-guardians-stream-how-to-watch-april-4/
+
+**How to watch Mets vs. Giants: Time, TV, streaming for April 4**\
+`Find out how to watch the New York Mets play the San Francisco Giants, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7171958/2026/04/04/mets-vs-giants-stream-how-to-watch-april-4/
+
+**How to watch Braves vs. Diamondbacks: Time, TV, streaming for April 4**\
+`Find out how to watch the Atlanta Braves play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7171955/2026/04/04/braves-vs-diamondbacks-stream-how-to-watch-april-4/
+
 **What Teens Are Doing With Those Role-Playing Chatbots**\
 `Harassing bots with “funny violence.” Confiding about a broken heart. Chatting with a block of cheese. Filling a void of loneliness.`\
 https://nytimes.com/2026/04/04/technology/ai-chatbots-teen-roleplay.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/04/04/world/middleeast/iran-war-fighter-jet-f15-raf-lak
 **Liverpool 'missed fighting spirit' in Man City FA Cup loss, Slot says**\
 `The head coach added his team's defence for City's four goals was "absolutely not good enough" as they were defeated in the quarter-final.`\
 https://nytimes.com/athletic/7171810/2026/04/04/liverpool-fighting-spirit-fa-cup-slot/
-
-**How to watch Illinois vs. UConn men's basketball: Semifinals Time, TV, streaming**\
-`Find out how to watch the Illinois Fighting Illini play the UConn Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171837/2026/04/04/illinois-vs-uconn-stream-how-to-watch-april-4/
-
-**How to watch Canadiens vs. Devils: Time, TV, streaming**\
-`Find out how to watch the Montreal Canadiens play the New Jersey Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171813/2026/04/04/canadiens-vs-devils-stream-how-to-watch-april-4/
-
-**How to watch Sabres vs. Capitals: Time, TV, streaming**\
-`Find out how to watch the Buffalo Sabres play the Washington Capitals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171805/2026/04/04/sabres-vs-capitals-stream-how-to-watch-april-4/
-
-**How to watch Islanders vs. Hurricanes: Time, TV, streaming**\
-`Find out how to watch the New York Islanders play the Carolina Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171802/2026/04/04/islanders-vs-hurricanes-stream-how-to-watch-april-4/
 
