@@ -1,3 +1,7 @@
+**Real Madrid risk losing ground in La Liga title race after Mallorca defeat**\
+`Madrid equalised in the 88th minute only to concede in extra time and miss the chance to go one point behind Barcelona. `\
+https://nytimes.com/athletic/7171856/2026/04/04/real-madrid-la-liga-mallorca-loss/
+
 **1952 Topps Mickey Mantle card owned by Fred Couples sells for $158,600**\
 `Couples sold an iconic card of a baseball legend who once left him "starstruck" during a round of golf together. `\
 https://nytimes.com/athletic/7171699/2026/04/04/fred-couples-1952-topps-mickey-mantle-auction/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7171797/2026/04/04/jets-vs-blue-jackets-stream-how-
 **How to watch Mammoth vs. Canucks: Time, TV, streaming**\
 `Find out how to watch the Utah Mammoth play the Vancouver Canucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7171795/2026/04/04/mammoth-vs-canucks-stream-how-to-watch-april-4/
-
-**How to watch Maple Leafs vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Toronto Maple Leafs play the Los Angeles Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171793/2026/04/04/maple-leafs-vs-kings-stream-how-to-watch-april-4/
 
