@@ -1,3 +1,11 @@
+**Three Charged With Arson in Attack on U.K. Jewish Charity’s Ambulances**\
+`Two men and a teenager were arrested this week, the London police said, adding that the March attack had not been declared a terrorist incident.`\
+https://nytimes.com/2026/04/04/world/europe/london-arson-attack.html
+
+**How to watch Barcelona vs. Atletico Madrid in the U.S.**\
+`Find out how to watch Barcelona play Atletico Madrid, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7171437/2026/04/04/barcelona-vs-atletico-madrid-stream-how-to-watch-la-liga-april-4/
+
 **How to watch Wizards vs. Heat: Time, TV, streaming**\
 `Find out how to watch the Washington Wizards play the Miami Heat, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7171427/2026/04/04/wizards-vs-heat-stream-how-to-watch-april-4/
