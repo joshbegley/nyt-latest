@@ -1,3 +1,7 @@
+**How to watch Bayern Munich vs. SC Freiburg in the U.S.**\
+`Find out how to watch Bayern Munich play SC Freiburg, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7171306/2026/04/04/bayern-munich-vs-sc-freiburg-stream-how-to-watch-bundesliga-april-4/
+
 **How to watch 1. FC Heidenheim 1846 vs. Borussia Monchengladbach in the U.S.**\
 `Find out how to watch 1. FC Heidenheim 1846 play Borussia Monchengladbach, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7171304/2026/04/04/1-fc-heidenheim-1846-vs-borussia-monchengladbach-stream-how-to-watch-bundesliga-april-4/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/04/nyregion/ulta-harlem-nyc-civil-rights-black-hair.
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/04/04/crosswords/spelling-bee-forum.html
-
-**Here’s the latest.**\
-`By Eric Schmitt, Helene Cooper, Yeganeh Torbati and John Yoon`\
-https://nytimes.com/live/2026/04/04/world/iran-war-trump-news/heres-the-latest
 
