@@ -1,3 +1,7 @@
+**Trump Contemplates Other Cabinet Changes as He Faces Political Clock**\
+`With the midterms approaching, the president may be running out of time to get new cabinet members confirmed without bipartisan support.`\
+https://nytimes.com/2026/04/03/us/politics/trump-cabinet-changes.html
+
 **Sonny Gray leads Red Sox to much-needed win as offense comes to life**\
 `The Red Sox finally snapped a five-game losing streak in their first game at Fenway Park in the new season.`\
 https://nytimes.com/athletic/7170666/2026/04/03/sonny-gray-red-sox-home-opener-padres/
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010812958/why-iranians-believe-they-have
 **Dozens of Violations Found at Migrant Detention Camp in Texas**\
 `A review of Camp East Montana in Texas found failures in medical care, disease control and oversight, including improperly documented uses of force.`\
 https://nytimes.com/2026/04/03/us/ice-texas-camp-montana-east.html
-
-**Yankees notes: Bellinger's circus catch, Judge's close call, shutdown pitching**\
-`“I definitely got lucky,” Bellinger said. Plus, the Yankees' staff is off to a record start, allowing eight earned runs in seven games. `\
-https://nytimes.com/athletic/7170640/2026/04/03/cody-bellinger-catch-yankees-home-opener/
 
