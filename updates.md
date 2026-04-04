@@ -1,3 +1,7 @@
+**How to watch Illinois vs. UConn men's basketball: Semifinals Time, TV, streaming**\
+`Find out how to watch the Illinois Fighting Illini play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7171837/2026/04/04/illinois-vs-uconn-stream-how-to-watch-april-4/
+
 **How to watch Canadiens vs. Devils: Time, TV, streaming**\
 `Find out how to watch the Montreal Canadiens play the New Jersey Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7171813/2026/04/04/canadiens-vs-devils-stream-how-to-watch-april-4/
