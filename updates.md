@@ -1,3 +1,15 @@
+**Real Madrid risk losing ground in La Liga title race after Mallorca defeat**\
+`Madrid equalised in the 88th minute only to concede in extra time and miss the chance to go one point behind Barcelona. `\
+https://nytimes.com/athletic/7171856/2026/04/04/real-madrid-la-liga-mallorca-loss/
+
+**1952 Topps Mickey Mantle card owned by Fred Couples sells for $158,600**\
+`Couples sold an iconic card of a baseball legend who once left him "starstruck" during a round of golf together. `\
+https://nytimes.com/athletic/7171699/2026/04/04/fred-couples-1952-topps-mickey-mantle-auction/
+
+**U.S. Jet Downed Over Iran Was Most Likely Based at U.K. Airfield**\
+`A military analyst identified markings consistent with a squadron based at R.A.F. Lakenheath, one of two British bases that host the largest U.S. fighter jet operation in Europe.`\
+https://nytimes.com/2026/04/04/world/middleeast/iran-war-fighter-jet-f15-raf-lakenheath.html
+
 **U.S. Jet Downed Over Iran Was Likely Based at U.K. Airfield**\
 `A military analyst identified markings consistent with a squadron based at R.A.F. Lakenheath, one of two British bases that host the largest U.S. fighter jet operation in Europe.`\
 https://nytimes.com/2026/04/04/world/middleeast/iran-war-fighter-jet-f15-raf-lakenheath.html
