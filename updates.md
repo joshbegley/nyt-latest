@@ -1,3 +1,7 @@
+**How Maria Jose Marin, from Colombia by way of Arkansas, had her ANWA moment**\
+`“I have a lot of friends and little kids in my country club that just say, I want to be like you someday."`\
+https://nytimes.com/athletic/7172475/2026/04/04/maria-jose-marin-anwa-2026-win-colombia-arkansas/
+
 **Dozens Killed in Haiti Massacre as International Force Trickles In**\
 `Gangs tore through several rural communities last weekend, underscoring the challenges that will face the new, U.N.-backed Gang Suppression Force starting to enter the country.`\
 https://nytimes.com/2026/04/04/world/americas/haiti-gang-massacre.html

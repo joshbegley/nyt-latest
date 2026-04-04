@@ -1,3 +1,15 @@
+**Blue Jays' sloppy losses could spark tough conversations, roster moves**\
+`A 4-4 start is no reason to panic, but Toronto manager John Schneider acknowledges that "we've had some games that scream ‘not us.’"`\
+https://nytimes.com/athletic/7172455/2026/04/04/blue-jays-white-sox-losses/
+
+**Israel Strikes Iran’s Largest Petrochemical Complex**\
+`The sprawling complex in the city of Mahshahr was taken offline after strikes hit two utility plants that provided basic services like gas and power, Iranian officials said.`\
+https://nytimes.com/2026/04/04/world/middleeast/israel-strikes-mahshahr-iran-oil.html
+
+**Under 40 and Diagnosed with Cancer**\
+`Hundreds of New York Times readers shared their experiences with early-onset cancers. Here are seven of their stories.`\
+https://nytimes.com/interactive/2026/04/04/well/early-onset-cancer.html
+
 **How Maria Jose Marin, from Colombia by way of Arkansas, had her ANWA moment**\
 `“I have a lot of friends and little kids in my country club that just say, I want to be like you someday."`\
 https://nytimes.com/athletic/7172475/2026/04/04/maria-jose-marin-anwa-2026-win-colombia-arkansas/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7172346/2026/04/04/wild-ryan-hartman-jesper-wallste
 **NCAA president on Trump executive order: Hopeful for 'bipartisan solution'**\
 `Trump's order mandates limiting athletes to one unrestricted transfer as undergraduates and puts a five-year cap on college eligibility.`\
 https://nytimes.com/athletic/7172414/2026/04/04/charlie-baker-trump-executive-order-final-four/
-
-**Satellite image company restricts Mideast content, citing a U.S. government request.**\
-`By Pranav Baskar`\
-https://nytimes.com/live/2026/04/04/world/iran-war-trump-news/satellite-image-company-restricts-mideast-content-citing-a-us-government-request
-
-**At Least 15 Injured After Driver Plows Into a Louisiana Parade**\
-`Some of the pedestrians at the parade in New Iberia, La., were critically hurt, according to the authorities, who said the driver was taken into custody.`\
-https://nytimes.com/2026/04/04/us/vehicle-crash-parade-new-iberia-louisiana.html
-
-**NASA Astronauts Are Closer to Moon Than Earth on Artemis II Day 4**\
-`The astronauts said they had lost track of which day it is on Earth on their transit to the moon.`\
-https://nytimes.com/2026/04/04/science/nasa-moon-artemis-day-4.html
 
