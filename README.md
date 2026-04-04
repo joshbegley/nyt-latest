@@ -1,3 +1,7 @@
+**South Carolina hands UConn first loss, reaches 4th NCAA final in 5 years**\
+`The Gamecocks pulled the upset over top-seeded UConn by stifling a Huskies’ offense that has been scoring at will this season.`\
+https://nytimes.com/athletic/7170841/2026/04/03/south-carolina-defeats-uconn-final-four-result-takeaways/
+
 **Phillies' hitters swing into gear with first-inning barrage after off-day golfing**\
 `All it took was 18 minutes of catharsis in the first inning, as the Phillies scored seven runs, more than they had in any game this season.`\
 https://nytimes.com/athletic/7170804/2026/04/03/phillies-hitters-golf-colorado-rockies/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/03/us/politics/trump-christian-good-friday-posts.htm
 **Framber Valdez shows his worth and growth in Tigers' home opener**\
 `Valdez's performance helped steer the Tigers out of an early four-game skid. "He has a really good reset button," A.J. Hinch said.`\
 https://nytimes.com/athletic/7170517/2026/04/03/framber-valdez-tigers-home-opener/
-
-**What if Iran Wins This War?**\
-`If Iran wins this war, victory “will be tremendously emboldening for a regime that has been very dangerous even at its weaker moments,” Suzanne Maloney, the director of foreign policy at the Brookings Institution, argues on “The Ezra Klein Show.”`\
-https://nytimes.com/video/opinion/100000010821382/what-if-iran-wins-this-war.html
 
