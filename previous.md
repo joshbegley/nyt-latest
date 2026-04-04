@@ -1,3 +1,7 @@
+**Men's Final Four watch guide: Illinois-UConn, Michigan-Arizona, Fab Five alt-cast**\
+`Saturday is the Final Four, one of the coolest nights in live sports with back-to-back semifinal tension.`\
+https://nytimes.com/athletic/7168554/2026/04/04/final-four-schedule-illinois-uconn-michigan-arizona-2026/
+
 **How to watch Bayern Munich vs. SC Freiburg in the U.S.**\
 `Find out how to watch Bayern Munich play SC Freiburg, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7171306/2026/04/04/bayern-munich-vs-sc-freiburg-stream-how-to-watch-bundesliga-april-4/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/04/nyregion/fight-escalates-over-plan-to-demolish-an
 **She Wanted Her Hair Done for a Special Day. She Left the Salon in Tears.**\
 `A Black woman is pushing for changes in the hair industry after claiming in a lawsuit that she and her 7-year-old were turned away from an Ulta Beauty salon in Manhattan because of their hair texture.`\
 https://nytimes.com/2026/04/04/nyregion/ulta-harlem-nyc-civil-rights-black-hair.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/04/04/crosswords/spelling-bee-forum.html
 
