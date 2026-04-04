@@ -1,3 +1,15 @@
+**Easy, Breezy Springtime Desserts**\
+`It’s time for simple showstoppers like toasted coconut rum balls and blueberry, lemon and almond cake.`\
+https://nytimes.com/2026/04/04/dining/easy-breezy-springtime-desserts.html
+
+**Lights, Camera, Crafty: The Woman Who Feeds the Movie Crews**\
+`Watch Concetta Scottodicarlo in action, as she feeds the cast and crew of a film production.`\
+https://nytimes.com/2026/04/04/dining/on-the-job-craft-services.html
+
+**UCLA women's basketball regained its focus to set sights on national championship**\
+`The Bruins advanced to the title game after beating Texas in the Final Four. `\
+https://nytimes.com/athletic/7171387/2026/04/04/ucla-final-four-texas/
+
 **The Briefing: Man City 4 Liverpool 0 - Haaland's hat-trick, City break 145-year record and Salah exit reminder**\
 `Erling Haaland scored a hat-trick as City advanced to the semi-finals of the FA Cup`\
 https://nytimes.com/athletic/7168800/2026/04/04/manchester-city-liverpool-result-score-analysis/
