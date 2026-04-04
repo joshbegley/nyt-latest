@@ -1,3 +1,7 @@
+**Orion Samuelson, the Elvis Presley of Agricultural Radio, Dies at 91**\
+`As a host at WGN in Chicago for 60 years, he shared news that was essential to farmers in a homespun style that appealed to listeners from the city.`\
+https://nytimes.com/2026/04/04/business/media/orion-samuelson-dead.html
+
 **Juan Soto to get MRI on right calf as Mets deal with early season injury woes**\
 `Soto departed Friday's 10-3 win over the Giants with right calf soreness.`\
 https://nytimes.com/athletic/7171490/2026/04/04/juan-soto-injury-mets-giants/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/04/04/world/iran-war-trump-news/a-projectile-hit-n
 **How to watch Dodgers vs. Nationals: Time, TV, streaming for April 4**\
 `Find out how to watch the Los Angeles Dodgers play the Washington Nationals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7171608/2026/04/04/dodgers-vs-nationals-stream-how-to-watch-april-4/
-
-**How to watch Astros vs. Athletics: Time, TV, streaming for April 4**\
-`Find out how to watch the Houston Astros play the Athletics, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171604/2026/04/04/astros-vs-athletics-stream-how-to-watch-april-4/
 

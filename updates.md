@@ -1,3 +1,7 @@
+**Orion Samuelson, the Elvis Presley of Agricultural Radio, Dies at 91**\
+`As a host at WGN in Chicago for 60 years, he shared news that was essential to farmers in a homespun style that appealed to listeners from the city.`\
+https://nytimes.com/2026/04/04/business/media/orion-samuelson-dead.html
+
 **Juan Soto to get MRI on right calf as Mets deal with early season injury woes**\
 `Soto departed Friday's 10-3 win over the Giants with right calf soreness.`\
 https://nytimes.com/athletic/7171490/2026/04/04/juan-soto-injury-mets-giants/
