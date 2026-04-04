@@ -1,3 +1,11 @@
+**Talley comforted by DeChambeau, Sorenstam after 'little meltdown' at ANWA**\
+`Talley, 17, hit two shots out of one of the 12th hole's back bunkers into the pond.`\
+https://nytimes.com/athletic/7172259/2026/04/04/asterisk-talley-anwa-dechambeau-sorenstam/
+
+**The Briefing: Southampton 2 Arsenal 1 - Premier League leaders knocked out of the FA Cup**\
+`The Athletic analyses the key talking points from the FA Cup tie at St Mary's`\
+https://nytimes.com/athletic/7168802/2026/04/04/arsenal-facup-southampton-result/
+
 **Warriors' Steph Curry expected to return Sunday against Rockets**\
 `Curry has not played since Jan. 30 due to a right knee injury.`\
 https://nytimes.com/athletic/7172270/2026/04/04/steph-curry-warriors-return-knee-injury-rockets/
