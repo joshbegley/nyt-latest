@@ -1,3 +1,11 @@
+**Ryan Hartman stays hot, Jesper Wallstedt stands tall as Wild beat Senators: Takeaways**\
+`Hartman extended his point streak to five games (six goals, two assists and eight points) with a two-goal performance.`\
+https://nytimes.com/athletic/7172346/2026/04/04/wild-ryan-hartman-jesper-wallstedt-senators-takeaways/
+
+**NCAA president on Trump executive order: Hopeful for 'bipartisan solution'**\
+`Trump's order mandates limiting athletes to one unrestricted transfer as undergraduates and puts a five-year cap on college eligibility.`\
+https://nytimes.com/athletic/7172414/2026/04/04/charlie-baker-trump-executive-order-final-four/
+
 **Warriors' Steph Curry expected to return Sunday against Rockets**\
 `Curry described the recovery process as adjusting to a "new normal."`\
 https://nytimes.com/athletic/7172270/2026/04/04/steph-curry-warriors-return-knee-injury-rockets/

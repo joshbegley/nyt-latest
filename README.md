@@ -1,3 +1,7 @@
+**Badvertising**\
+`Samuel A. Donaldson brandishes a sharp Sunday puzzle.`\
+https://nytimes.com/2026/04/04/crosswords/daily-puzzle-2026-04-05.html
+
 **Ryan Hartman stays hot, Jesper Wallstedt stands tall as Wild beat Senators: Takeaways**\
 `Hartman extended his point streak to five games (six goals, two assists and eight points) with a two-goal performance.`\
 https://nytimes.com/athletic/7172346/2026/04/04/wild-ryan-hartman-jesper-wallstedt-senators-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7168802/2026/04/04/arsenal-facup-southampton-result
 **Warriors' Steph Curry expected to return Sunday against Rockets**\
 `Curry described the recovery process as adjusting to a "new normal."`\
 https://nytimes.com/athletic/7172270/2026/04/04/steph-curry-warriors-return-knee-injury-rockets/
-
-**Mary Rand, Pioneering Track and Field Olympian, Dies at 86**\
-`At the 1964 Tokyo Olympics, she became the first British woman to win a gold medal in track and field, and the first to win three medals in one Games.`\
-https://nytimes.com/2026/04/04/sports/mary-rand-dead.html
 
