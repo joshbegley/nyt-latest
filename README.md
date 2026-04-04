@@ -1,3 +1,7 @@
+**‘Iran Is Being Destroyed in Front of Our Eyes’: Tehran Is Gripped by Fear**\
+`Fifteen residents of Tehran said in telephone interviews and text messages that the capital was weathering heavy bombardment Friday.`\
+https://nytimes.com/2026/04/03/world/middleeast/iran-is-being-destroyed-in-front-of-our-eyes-tehran-is-gripped-by-fear.html
+
 **Geno Auriemma, Dawn Staley have heated sideline argument in Final Four game**\
 `With less than a second left, Auriemma walked up to Staley, sharing some perturbed words that immediately visibly infuriated Staley.`\
 https://nytimes.com/athletic/7170849/2026/04/03/geno-auriemma-dawn-staley-sideline-drama-south-carolina-uconn-final-four/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/7170841/2026/04/03/south-carolina-defeats-uconn-fin
 `All it took was 18 minutes of catharsis in the first inning, as the Phillies scored seven runs, more than they had in any game this season.`\
 https://nytimes.com/athletic/7170804/2026/04/03/phillies-hitters-golf-colorado-rockies/
 
-**Giannis Antetokounmpo says Bucks telling him to sit out while healthy 'a slap in the face'**\
+**Giannis Antetokounmpo excoriates Bucks for sitting him as NBA investigation continues**\
 `The Bucks' star said he's being forced to "do things against my nature" and that he and the team are "definitely not on the same page."`\
 https://nytimes.com/athletic/7161947/2026/04/03/giannis-antetokounmpo-injury-update-frustrated-bucks-decision/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/03/world/middleeast/iran-war-middle-east-recap-frida
 **Yankees slugger Ben Rice's ascension to stardom has arrived**\
 `Rice continually destroying baseballs is nothing new. The only difference is the level of attention he's now receiving.`\
 https://nytimes.com/athletic/7170487/2026/04/03/ben-rice-yankees/
-
-**Trump Administration Celebrates Good Friday in Official Messages**\
-`President Trump and administration officials have extended more pronounced overtures to Christians in public statements and executive orders.`\
-https://nytimes.com/2026/04/03/us/politics/trump-christian-good-friday-posts.html
 
