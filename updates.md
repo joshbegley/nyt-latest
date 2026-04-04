@@ -1,3 +1,19 @@
+**What if the Jets were ruthless? Reimagining 10 of Winnipeg's most important moves**\
+`Winnipeg is known for being patient and loyal. What if that weren't the case? Let's play "what if?"`\
+https://nytimes.com/athletic/7168243/2026/04/04/winnipeg-jets-reimagining-10-important-moves/
+
+**Jalen Hurts still has support of Eagles' most important voice**\
+`Hurts has faced scrutiny over his performance during the 2025 season.`\
+https://nytimes.com/athletic/7170844/2026/04/04/eagles-jalen-hurts-offense-jeffrey-lurie/
+
+**Trump Slashed Funding for Science. Now the U.S. Faces a Costly Brain Drain.**\
+`The White House’s attacks on academia and budget cuts for research have provided an opening for other countries to poach leading scientists.`\
+https://nytimes.com/2026/04/04/business/dealbook/trump-brain-drain-academia.html
+
+**How to watch Wizards vs. Heat: Time, TV, streaming**\
+`Find out how to watch the Washington Wizards play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7171427/2026/04/04/how-to-watch-wizards-vs-heat-tv-channel-and-streaming-options-for-april-4/
+
 **Memories of the ‘Last, Best Time to Be a Kid’**\
 `Readers react to Sarah Wildman’s guest essay about the free-range childhood depicted in the Rob Reiner film “Stand by Me.”`\
 https://nytimes.com/2026/04/04/opinion/stand-by-me-childhood-freedom.html
