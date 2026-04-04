@@ -1,3 +1,7 @@
+**The Briefing: Chelsea 7 Port Vale 0 - Will progress into the FA Cup semi-finals settle Rosenior's team down?**\
+`The Premier League side ended a run of four successive defeats in all competitions to secure comfortable passage into the FA Cup semi-finals`\
+https://nytimes.com/athletic/7168801/2026/04/04/chelsea-port-vale-rosenior-fa-cup/
+
 **Some Voters Say Congress Is Too Old. These Black Democrats Aren’t Leaving.**\
 `As older members of Congress head for the exits amid growing pressure for fresh faces in the Democratic Party, some of the most seasoned Black lawmakers are resisting retirement.`\
 https://nytimes.com/2026/04/04/us/voters-congress-old-democrats.html
