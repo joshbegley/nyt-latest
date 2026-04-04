@@ -1,3 +1,7 @@
+**In Pirates debut, top prospect Konnor Griffin delivers moment to remember**\
+`To say Griffin had dreamed of his MLB debut is true. Saying he had rehearsed it would be even more accurate.`\
+https://nytimes.com/athletic/7170875/2026/04/03/pittsburgh-pirates-konnor-griffin-debut-promise/
+
 **Diary of a Guardians home opener: Sing-alongs, gyrating mascots and more DeLauter homers**\
 `Here’s a chronicle of how the 33rd home opener at Progressive Field unfolded Friday against the Chicago Cubs.`\
 https://nytimes.com/athletic/7168429/2026/04/03/guardians-home-opener-diary/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/03/us/wisconsin-mosque-leader-antisemitism.html
 **Trump Contemplates Other Cabinet Changes as He Faces Political Clock**\
 `With the midterms approaching, the president may be running out of time to get new cabinet members confirmed without bipartisan support.`\
 https://nytimes.com/2026/04/03/us/politics/trump-cabinet-changes.html
-
-**Sonny Gray leads Red Sox to much-needed win as offense comes to life**\
-`The Red Sox finally snapped a five-game losing streak in their first game at Fenway Park in the new season.`\
-https://nytimes.com/athletic/7170666/2026/04/03/sonny-gray-red-sox-home-opener-padres/
 
