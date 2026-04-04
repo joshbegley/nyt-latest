@@ -1,3 +1,7 @@
+**Memories of the ‘Last, Best Time to Be a Kid’**\
+`Readers react to Sarah Wildman’s guest essay about the free-range childhood depicted in the Rob Reiner film “Stand by Me.”`\
+https://nytimes.com/2026/04/04/opinion/stand-by-me-childhood-freedom.html
+
 **How to watch Avalanche vs. Stars: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the Dallas Stars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7171470/2026/04/04/avalanche-vs-stars-stream-how-to-watch-april-4/
