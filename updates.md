@@ -1,3 +1,7 @@
+**Tigers place starter Justin Verlander on 15-day IL with left hip inflammation**\
+`The 43-year-old first felt symptoms of the injury sometime after his outing on March 30.`\
+https://nytimes.com/athletic/7171953/2026/04/04/tigers-verlander-hip-inflammation-il/
+
 **How to watch Phillies vs. Rockies: Time, TV, streaming for April 4**\
 `Find out how to watch the Philadelphia Phillies play the Colorado Rockies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7171969/2026/04/04/phillies-vs-rockies-stream-how-to-watch-april-4/
