@@ -1,12 +1,12 @@
 **What Teens Are Doing With Those Role-Playing Chatbots**\
 `Harassing bots with “funny violence.” Confiding about a broken heart. Chatting with a block of cheese. Filling a void of loneliness.`\
-https://nytimes.com/2026/04/04/technology/what-teens-are-doing-with-those-role-playing-chatbots.html
+https://nytimes.com/2026/04/04/technology/ai-chatbots-teen-roleplay.html
 
 **Candace Parker, Amar’e Stoudemire, Doc Rivers headline 2026 Hall of Fame class**\
 `Here is everything to know about the Class of 2026, which includes pioneering players and coaches with remarkable levels of success.`\
 https://nytimes.com/athletic/7170797/2026/04/04/basketball-hall-of-fame-2026-class/
 
-**Real Madrid lose at Mallorca, stay four points behind Barcelona in La Liga**\
+**Madrid's defeat at Mallorca 'on me', says Alvaro Arbeloa: 'The decisions are mine'**\
 `Madrid equalised in the 88th minute only to concede in extra time and miss the chance to go one point behind the league leaders. `\
 https://nytimes.com/athletic/7171856/2026/04/04/real-madrid-la-liga-mallorca-loss/
 
