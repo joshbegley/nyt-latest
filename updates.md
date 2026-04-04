@@ -1,3 +1,7 @@
+**Lakers' Austin Reaves out for rest of regular season with oblique injury**\
+`The injury is the latest blow to the Lakers, with Luka Dončić also missing the rest of the regular season with a hamstring injury.`\
+https://nytimes.com/athletic/7172313/2026/04/04/austin-reaves-injury-out-regular-season-lakers/
+
 **Satellite image company restricts Mideast content, citing a U.S. government request.**\
 `By Pranav Baskar`\
 https://nytimes.com/live/2026/04/04/world/iran-war-trump-news/satellite-image-company-restricts-mideast-content-citing-a-us-government-request
