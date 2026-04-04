@@ -1,3 +1,7 @@
+**The 4.5.26 Issue**\
+``\
+https://nytimes.com/issue/magazine/2026/04/04/the-4526-issue
+
 **Virginia, Agugua-Hamilton part ways after ending NCAA Tournament drought**\
 `Agugua-Hamilton came to Virginia in 2022 and just led the Cavaliers to their best season in more than a decade.`\
 https://nytimes.com/athletic/7172076/2026/04/04/virginia-amaka-agugua-hamilton-coach-out/
