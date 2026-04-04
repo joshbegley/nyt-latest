@@ -1,3 +1,7 @@
+**Badvertising**\
+`Samuel A. Donaldson brandishes a sharp Sunday puzzle.`\
+https://nytimes.com/2026/04/04/crosswords/daily-puzzle-2026-04-05.html
+
 **Ryan Hartman stays hot, Jesper Wallstedt stands tall as Wild beat Senators: Takeaways**\
 `Hartman extended his point streak to five games (six goals, two assists and eight points) with a two-goal performance.`\
 https://nytimes.com/athletic/7172346/2026/04/04/wild-ryan-hartman-jesper-wallstedt-senators-takeaways/
