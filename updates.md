@@ -1,3 +1,7 @@
+**Sonny Gray leads Red Sox to much-needed win as offense comes to life**\
+`The Red Sox finally snapped a five-game losing streak in their first game at Fenway Park in the new season.`\
+https://nytimes.com/athletic/7170666/2026/04/03/sonny-gray-red-sox-home-opener-padres/
+
 **Here’s What Happened in the War in the Middle East on Friday**\
 `An American fighter jet was shot down by Iran for the first time since the start of the war, leading to an urgent search-and-rescue operation for a missing crew member.`\
 https://nytimes.com/2026/04/03/world/middleeast/iran-war-middle-east-recap-friday.html
