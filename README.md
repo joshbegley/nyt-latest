@@ -1,3 +1,15 @@
+**What if the Jets were ruthless? Reimagining 10 of Winnipeg's most important moves**\
+`Winnipeg is known for being patient and loyal. What if that weren't the case? Let's play "what if?"`\
+https://nytimes.com/athletic/7168243/2026/04/04/winnipeg-jets-reimagining-10-important-moves/
+
+**Jalen Hurts still has support of Eagles' most important voice**\
+`Hurts has faced scrutiny over his performance during the 2025 season.`\
+https://nytimes.com/athletic/7170844/2026/04/04/eagles-jalen-hurts-offense-jeffrey-lurie/
+
+**Trump Slashed Funding for Science. Now the U.S. Faces a Costly Brain Drain.**\
+`The White House’s attacks on academia and budget cuts for research have provided an opening for other countries to poach leading scientists.`\
+https://nytimes.com/2026/04/04/business/dealbook/trump-brain-drain-academia.html
+
 **Memories of the ‘Last, Best Time to Be a Kid’**\
 `Readers react to Sarah Wildman’s guest essay about the free-range childhood depicted in the Rob Reiner film “Stand by Me.”`\
 https://nytimes.com/2026/04/04/opinion/stand-by-me-childhood-freedom.html
@@ -24,17 +36,5 @@ https://nytimes.com/athletic/7171437/2026/04/04/barcelona-vs-atletico-madrid-str
 
 **How to watch Wizards vs. Heat: Time, TV, streaming**\
 `Find out how to watch the Washington Wizards play the Miami Heat, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171427/2026/04/04/wizards-vs-heat-stream-how-to-watch-april-4/
-
-**How to watch Spurs vs. Nuggets: Time, TV, streaming**\
-`Find out how to watch the San Antonio Spurs play the Denver Nuggets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171425/2026/04/04/spurs-vs-nuggets-stream-how-to-watch-april-4/
-
-**Which prospect in each NHL team’s pipeline had the most promising season?**\
-`As the 2025-26 hockey season winds down, these NHL prospects have emerged and shown what they have to offer.`\
-https://nytimes.com/athletic/7169458/2026/04/04/nhl-top-prospect-pipeline-season/
-
-**Cincinnati Reds showing off needed power early in 2026**\
-`Through seven games, Cincinnati has nine HRs, ahead of the team's pace in 2025. `\
-https://nytimes.com/athletic/7170767/2026/04/04/cincinnati-reds-showing-off-needed-power-early-in-2026/
+https://nytimes.com/athletic/7171427/2026/04/04/how-to-watch-wizards-vs-heat-tv-channel-and-streaming-options-for-april-4/
 
