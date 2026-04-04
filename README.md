@@ -1,3 +1,7 @@
+**Dozens Killed in Haiti Massacre as International Force Trickles In**\
+`Gangs tore through several rural communities last weekend, underscoring the challenges that will face the new, U.N.-backed Gang Suppression Force starting to enter the country.`\
+https://nytimes.com/2026/04/04/world/americas/haiti-gang-massacre.html
+
 **With Geno Auriemma and Sarah Strong back at UConn, are the Huskies 2027 contenders?**\
 `UConn likely will need to dip into the transfer portal for another scoring option. `\
 https://nytimes.com/athletic/7172482/2026/04/04/geno-auriemma-sarah-strong-uconn-2027/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/04/science/nasa-moon-artemis-day-4.html
 **Lakers' Austin Reaves out for rest of regular season with oblique injury**\
 `The injury is the latest blow to the Lakers, with Luka Dončić also missing the rest of the regular season with a hamstring injury.`\
 https://nytimes.com/athletic/7172313/2026/04/04/austin-reaves-injury-out-regular-season-lakers/
-
-**Talley comforted by DeChambeau, Sorenstam after 'little meltdown' at ANWA**\
-`Talley, 17, hit two shots out of one of the 12th hole's back bunkers into the pond.`\
-https://nytimes.com/athletic/7172259/2026/04/04/asterisk-talley-anwa-dechambeau-sorenstam/
 
