@@ -1,3 +1,7 @@
+**How to watch Michigan vs. Arizona men's basketball: Semifinals Time, TV, streaming**\
+`Find out how to watch the Michigan Wolverines play the Arizona Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7172038/2026/04/04/michigan-vs-arizona-stream-how-to-watch-april-4/
+
 **Tigers place starter Justin Verlander on 15-day IL with left hip inflammation**\
 `The 43-year-old first felt symptoms of the injury sometime after his outing on March 30.`\
 https://nytimes.com/athletic/7171953/2026/04/04/tigers-verlander-hip-inflammation-il/

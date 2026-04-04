@@ -1,3 +1,7 @@
+**How to watch Michigan vs. Arizona men's basketball: Semifinals Time, TV, streaming**\
+`Find out how to watch the Michigan Wolverines play the Arizona Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7172038/2026/04/04/michigan-vs-arizona-stream-how-to-watch-april-4/
+
 **Tigers place starter Justin Verlander on 15-day IL with left hip inflammation**\
 `The 43-year-old first felt symptoms of the injury sometime after his outing on March 30.`\
 https://nytimes.com/athletic/7171953/2026/04/04/tigers-verlander-hip-inflammation-il/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7171856/2026/04/04/real-madrid-la-liga-mallorca-los
 **1952 Topps Mickey Mantle card owned by Fred Couples sells for $158,600**\
 `Couples sold an iconic card of a baseball legend who once left him "starstruck" during a round of golf together. `\
 https://nytimes.com/athletic/7171699/2026/04/04/fred-couples-1952-topps-mickey-mantle-auction/
-
-**U.S. Jet Downed Over Iran Was Most Likely Based at U.K. Airfield**\
-`A military analyst identified markings consistent with a squadron based at R.A.F. Lakenheath, one of two British bases that host the largest U.S. fighter jet operation in Europe.`\
-https://nytimes.com/2026/04/04/world/middleeast/iran-war-fighter-jet-f15-raf-lakenheath.html
 
