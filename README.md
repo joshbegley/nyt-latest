@@ -1,5 +1,9 @@
-**Geno Auriemma apologizes for behavior after Final Four loss**\
-`PHOENIX — UConn coach Geno Auriemma issued an apology on Saturday morning, following his tense argument at the end of the Huskies&#8217; Final Four loss to South Carolina.`\
+**Some Voters Say Congress Is Too Old. These Black Democrats Aren’t Leaving.**\
+`As older members of Congress head for the exits amid growing pressure for fresh faces in the Democratic Party, some of the most seasoned Black lawmakers are resisting retirement.`\
+https://nytimes.com/2026/04/04/us/voters-congress-old-democrats.html
+
+**Geno Auriemma apologizes for behavior after heated exchange with Dawn Staley**\
+`"It’s unlike what I do and what our standard is here at Connecticut," Auriemma said.`\
 https://nytimes.com/athletic/7172055/2026/04/04/geno-auriemma-apologize-final-four-uconn-south-carolina/
 
 **How to watch Michigan vs. Arizona men's basketball: Semifinals Time, TV, streaming**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/04/technology/ai-chatbots-teen-roleplay.html
 **Candace Parker, Amar’e Stoudemire, Doc Rivers headline 2026 Hall of Fame class**\
 `Here is everything to know about the Class of 2026, which includes pioneering players and coaches with remarkable levels of success.`\
 https://nytimes.com/athletic/7170797/2026/04/04/basketball-hall-of-fame-2026-class/
-
-**Madrid's defeat at Mallorca 'on me', says Alvaro Arbeloa: 'The decisions are mine'**\
-`Madrid equalised in the 88th minute only to concede in extra time and miss the chance to go one point behind the league leaders. `\
-https://nytimes.com/athletic/7171856/2026/04/04/real-madrid-la-liga-mallorca-loss/
 
