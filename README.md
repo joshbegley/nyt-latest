@@ -1,3 +1,15 @@
+**UCLA takes down Texas, advances to first national championship game**\
+`Center Lauren Betts scored 16 points to lead the Bruins into a national title matchup with South Carolina.`\
+https://nytimes.com/athletic/7171128/2026/04/04/ucla-texas-final-four-result-takeaways/
+
+**'No one fancied us to stay up, let alone reach the FA Cup final' - inside West Ham's 2006 cup run**\
+`The heroes of West Ham's run to the 2006 FA Cup final tell The Athletic how they got there, and what they think of the current side`\
+https://nytimes.com/athletic/7157510/2026/04/04/west-hams-2006-fa-cup-run-no-one-fancied-us-to-stay-up-let-alone-reach-the-cup-final/
+
+**Roberto De Zerbi, Tottenham Hotspur and an issue that has fractured a fanbase**\
+`A fanbase enraged and provoked by this season's many failures is still to reach a consensus on what the price for progress should be`\
+https://nytimes.com/athletic/7169247/2026/04/04/roberto-de-zerbi-spurs-greenwood/
+
 **Matty Cash, Peaky Blinders and channelling his inner Tommy Shelby: 'It changes a man'**\
 `The Aston Villa and Poland right-back delivered a typically solid performance to promote the new Peaky Blinders film, The Immortal Man`\
 https://nytimes.com/athletic/7157423/2026/04/04/matty-cash-peaky-blinders-netflix-aston-villa/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7164254/2026/04/04/2026-ballon-dor-contenders-mbapp
 **Epstein Presented Himself to Indian Tycoon as a Trump White House Insider**\
 `The convicted sex offender gave Anil Ambani information on appointments and foreign policy. Some seemed prescient, though there was no evidence he was close to the administration.`\
 https://nytimes.com/2026/04/04/world/asia/epstein-india-ambani.html
-
-**Connections: Sports Edition Coach: Hints and answers for April 4, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7170392/2026/04/04/connections-sports-edition-hints-answers-april-4-2026/
-
-**Quote of the Day: The Mystifying Drunken Episodes of Teetotalers**\
-`Quotation of the Day for Saturday, April 4, 2026.`\
-https://nytimes.com/2026/04/03/pageoneplus/quote-of-the-day-the-mystifying-drunken-episodes-of-teetotalers.html
-
-**Cooper Flagg becomes youngest player in NBA history to have a 50-point game**\
-`The Mavs' rookie became the first teenager to exceed the 50-point mark and broke his own record for the most points in a game by a teenager.`\
-https://nytimes.com/athletic/7171061/2026/04/03/cooper-flagg-stats-highlights-mavericks-51-points/
 
