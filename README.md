@@ -1,3 +1,15 @@
+**Phillies' hitters swing into gear with first-inning barrage after off-day golfing**\
+`All it took was 18 minutes of catharsis in the first inning, as the Phillies scored seven runs, more than they had in any game this season.`\
+https://nytimes.com/athletic/7170804/2026/04/03/phillies-hitters-golf-colorado-rockies/
+
+**Giannis Antetokounmpo says Bucks telling him to sit out while healthy 'a slap in the face'**\
+`The Bucks' star said he's being forced to "do things against my nature" and that he and the team are "definitely not on the same page."`\
+https://nytimes.com/athletic/7161947/2026/04/03/giannis-antetokounmpo-injury-update-frustrated-bucks-decision/
+
+**Arrest of Wisconsin Mosque Leader Was Tied to Trump Antisemitism Campaign**\
+`Immigration lawyers and former federal officials say the case of Salah Sarsour echoes those against other pro-Palestinian activists.`\
+https://nytimes.com/2026/04/03/us/wisconsin-mosque-leader-antisemitism.html
+
 **Trump Contemplates Other Cabinet Changes as He Faces Political Clock**\
 `With the midterms approaching, the president may be running out of time to get new cabinet members confirmed without bipartisan support.`\
 https://nytimes.com/2026/04/03/us/politics/trump-cabinet-changes.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7170517/2026/04/03/framber-valdez-tigers-home-opene
 **What if Iran Wins This War?**\
 `If Iran wins this war, victory “will be tremendously emboldening for a regime that has been very dangerous even at its weaker moments,” Suzanne Maloney, the director of foreign policy at the Brookings Institution, argues on “The Ezra Klein Show.”`\
 https://nytimes.com/video/opinion/100000010821382/what-if-iran-wins-this-war.html
-
-**What if Trump Just Walked Away From Iran?**\
-`Iran will become “the toll collector at the gulf” if Trump preemptively walks away from the conflict in Iran, Suzanne Maloney, the director of foreign policy at the Brookings Institution, argues on “The Ezra Klein Show.”`\
-https://nytimes.com/video/opinion/100000010812971/what-if-trump-just-walked-away-from-iran.html
-
-**Why Iranians Believe They Have the Upper Hand**\
-`Iran believes time is on its side, and that the West isn’t ready for the economic shock of a blocked Strait of Hormuz, warns Suzanne Maloney, the director of foreign policy at the Brookings Institution.`\
-https://nytimes.com/video/opinion/100000010812958/why-iranians-believe-they-have-the-upper-hand.html
-
-**Dozens of Violations Found at Migrant Detention Camp in Texas**\
-`A review of Camp East Montana in Texas found failures in medical care, disease control and oversight, including improperly documented uses of force.`\
-https://nytimes.com/2026/04/03/us/ice-texas-camp-montana-east.html
 
