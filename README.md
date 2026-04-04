@@ -30,11 +30,11 @@ https://nytimes.com/athletic/7168993/2026/04/04/arsenal-southampton-fa-cup-quart
 `Center Lauren Betts scored 16 points to lead the Bruins into a national title matchup with South Carolina.`\
 https://nytimes.com/athletic/7171128/2026/04/04/ucla-texas-final-four-result-takeaways/
 
+**Chelsea's week of recriminations ends in call for 'emotional stability' and hints they might lean less on youth**\
+`A week in which senior players had questioned the club's transfer policy or hinted at a desire to leave ended with a call for maturity`\
+https://nytimes.com/athletic/7169995/2026/04/04/chelsea-fernandez-rosenior-emotional-stability/
+
 **'No one fancied us to stay up, let alone reach the FA Cup final' - inside West Ham's 2006 cup run**\
 `The heroes of West Ham's run to the 2006 FA Cup final tell The Athletic how they got there, and what they think of the current side`\
 https://nytimes.com/athletic/7157510/2026/04/04/west-hams-2006-fa-cup-run-no-one-fancied-us-to-stay-up-let-alone-reach-the-cup-final/
-
-**Roberto De Zerbi, Tottenham Hotspur and an issue that has fractured a fanbase**\
-`A fanbase enraged and provoked by this season's many failures is still to reach a consensus on what the price for progress should be`\
-https://nytimes.com/athletic/7169247/2026/04/04/roberto-de-zerbi-spurs-greenwood/
 
