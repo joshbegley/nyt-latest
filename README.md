@@ -1,3 +1,7 @@
+**Missing Airman Raises Concerns That Iran Could Gain Leverage Over the U.S.**\
+`Since 1979, Iran has repeatedly used Americans and Europeans detained on its territory to win concessions over more powerful adversaries.`\
+https://nytimes.com/2026/04/04/world/middleeast/missing-airman-iran.html
+
 **The Pulse: A Masters golf primer**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/7171206/2026/04/04/a-masters-golf-primer-plus-genos-meltdown/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7169922/2026/04/04/shesterkin-boxing-nhl-goalie-fig
 **Who will step up and become the Blackhawks' next defensive stopper?**\
 `The Blackhawks are on lookout for someone to fill an unglamorous but critical role: shutdown guy.`\
 https://nytimes.com/athletic/7170091/2026/04/04/blackhawks-next-defensive-stopper/
-
-**Ex-union official who orchestrated mutiny at MLBPA breaks silence on players association turmoil**\
-`Two years ago, Harry Marino, a labor organizer and former attorney for the Major League Baseball Players Association, helped orchestrate a player mutiny challenging that union’s leadership, a highly charged and public rebuke that rattled the baseball world for a week and left some in the industry questioning Marino’s motivations.`\
-https://nytimes.com/athletic/7170856/2026/04/04/mlbpa-mutiny-interview-harry-marino/
 
