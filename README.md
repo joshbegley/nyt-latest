@@ -1,3 +1,11 @@
+**How to watch Espanyol vs. Real Betis in the U.S.**\
+`Find out how to watch Espanyol play Real Betis, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7171355/2026/04/04/espanyol-vs-real-betis-stream-how-to-watch-la-liga-april-4/
+
+**Kelley O'Hara talks about her broadcast career, Atlanta NWSL and being herself**\
+`From the booth, the boardroom, the studio, the sidelines or the fan zone, O'Hara will stay honest and close to her roots.`\
+https://nytimes.com/athletic/7169839/2026/04/04/kelley-ohara-full-time-interview/
+
 **Iranians Seek Respite in Nature Amid the War**\
 `Families gathered for picnics and games this week to mark the end of the Iranian new year holiday, seizing on a brief chance to celebrate.`\
 https://nytimes.com/2026/04/04/world/europe/iranian-respite-war.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7167246/2026/04/04/tennis-wim-fissette-iga-swiatek-
 **How Plausible Is ‘Project Hail Mary’? Astrophysicists Have Thoughts**\
 `Based on hard science fiction, a genre that prioritizes scientific accuracy, the blockbuster gets a lot right but misses a few things, experts say.`\
 https://nytimes.com/2026/04/04/movies/project-hail-mary-scientific-accuracy.html
-
-**A Tradwife Wakes Up in 1805 …**\
-`“Yesteryear,” a debut novel about an influencer who is transported to the early 19th century, lands the author Caro Claire Burke in the middle of the culture wars.`\
-https://nytimes.com/2026/04/04/style/yesteryear-tradwife-novel-caro-claire-burke.html
-
-**Europe’s Options in the Strait of Hormuz: Few, and Risky**\
-`European leaders and other officials have ideas for bringing shipping back to the strait once the Iran war ends. But none of them are sure bets.`\
-https://nytimes.com/2026/04/04/world/europe/strait-hormuz-shipping-iran.html
 

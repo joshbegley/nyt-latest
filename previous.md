@@ -1,40 +1,40 @@
-**Men's Final Four watch guide: Illinois-UConn, Michigan-Arizona, Fab Five alt-cast**\
-`Saturday is the Final Four, one of the coolest nights in live sports with back-to-back semifinal tension.`\
-https://nytimes.com/athletic/7168554/2026/04/04/final-four-schedule-illinois-uconn-michigan-arizona-2026/
+**Iranians Seek Respite in Nature Amid the War**\
+`Families gathered for picnics and games this week to mark the end of the Iranian new year holiday, seizing on a brief chance to celebrate.`\
+https://nytimes.com/2026/04/04/world/europe/iranian-respite-war.html
 
-**How to watch Bayern Munich vs. SC Freiburg in the U.S.**\
-`Find out how to watch Bayern Munich play SC Freiburg, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171306/2026/04/04/bayern-munich-vs-sc-freiburg-stream-how-to-watch-bundesliga-april-4/
+**New Attorney General, Same Albatross: Trump’s Quest for Retribution**\
+`The name atop the Justice Department’s organizational chart matters less than the presence of a president whose demands for revenge have become so extreme that even his most obsequious appointees have fallen short.`\
+https://nytimes.com/2026/04/04/us/politics/attorney-general-trump.html
 
-**How to watch 1. FC Heidenheim 1846 vs. Borussia Monchengladbach in the U.S.**\
-`Find out how to watch 1. FC Heidenheim 1846 play Borussia Monchengladbach, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171304/2026/04/04/1-fc-heidenheim-1846-vs-borussia-monchengladbach-stream-how-to-watch-bundesliga-april-4/
+**My Husband Can’t Get a Job. Should I Divorce Him?**\
+`Plus, whether to use A.I. to get ahead at work — if you think the technology is evil.`\
+https://nytimes.com/2026/04/04/business/my-husband-cant-get-a-job-should-i-divorce-him.html
 
-**How to watch FSV Mainz vs. TSG Hoffenheim in the U.S.**\
-`Find out how to watch FSV Mainz play TSG Hoffenheim, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171302/2026/04/04/fsv-mainz-vs-tsg-hoffenheim-stream-how-to-watch-bundesliga-april-4/
+**Trump Budget Does Little to Address Nation’s Fiscal Challenges**\
+`While the federal deficit has started to shrink under President Trump, his plans could make the long-term situation worse.`\
+https://nytimes.com/2026/04/04/business/trump-budget-federal-deficit.html
 
-**How to watch FC Augsburg vs. Hamburger SV in the U.S.**\
-`Find out how to watch FC Augsburg play Hamburger SV, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171300/2026/04/04/fc-augsburg-vs-hamburger-sv-stream-how-to-watch-bundesliga-april-4/
+**‘The Drama’ Has a Shocking Plot Twist. Share Your Reaction.**\
+`The sort-of rom-com stars Zendaya and Robert Pattinson as an engaged couple whose relationship is upended by a revelation that has divided audiences.`\
+https://nytimes.com/2026/04/04/movies/the-drama-plot-twist-reader-thoughts.html
 
-**How to watch VfL Wolfsburg vs. Bayer Leverkusen in the U.S.**\
-`Find out how to watch VfL Wolfsburg play Bayer Leverkusen, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171298/2026/04/04/vfl-wolfsburg-vs-bayer-leverkusen-stream-how-to-watch-bundesliga-april-4/
+**Trump Pledged a Quick End to the Iran War, but He Hasn’t Explained How**\
+`President Trump bet that American firepower could cow Iran into compliance. So far, Iran’s leaders have been unwilling to quit.`\
+https://nytimes.com/2026/04/04/us/politics/trump-endless-wars.html
 
-**How to watch RB Leipzig vs. Werder Bremen in the U.S.**\
-`Find out how to watch RB Leipzig play Werder Bremen, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171296/2026/04/04/rb-leipzig-vs-werder-bremen-stream-how-to-watch-bundesliga-april-4/
+**'Every loss will hurt extra': Wim Fissette's coaching partnership with Iga Świątek, and its end**\
+`Fissette and Świątek won Wimbledon together, but their partnership required working through the complex task of changing style in real time.`\
+https://nytimes.com/athletic/7167246/2026/04/04/tennis-wim-fissette-iga-swiatek-coach-interview/
 
-**How to watch Real Madrid vs. Mallorca in the U.S.**\
-`Find out how to watch Real Madrid play Mallorca, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171291/2026/04/04/real-madrid-vs-mallorca-stream-how-to-watch-la-liga-april-4/
+**How Plausible Is ‘Project Hail Mary’? Astrophysicists Have Thoughts**\
+`Based on hard science fiction, a genre that prioritizes scientific accuracy, the blockbuster gets a lot right but misses a few things, experts say.`\
+https://nytimes.com/2026/04/04/movies/project-hail-mary-scientific-accuracy.html
 
-**Fight Escalates Over Plan to Demolish and Rebuild N.Y.C. Public Housing**\
-`The city thinks four developments in Chelsea are too run-down to be saved, and wants to rebuild them, adding mixed-income housing. Some residents are opposed.`\
-https://nytimes.com/2026/04/04/nyregion/fight-escalates-over-plan-to-demolish-and-rebuild-nyc-public-housing.html
+**A Tradwife Wakes Up in 1805 …**\
+`“Yesteryear,” a debut novel about an influencer who is transported to the early 19th century, lands the author Caro Claire Burke in the middle of the culture wars.`\
+https://nytimes.com/2026/04/04/style/yesteryear-tradwife-novel-caro-claire-burke.html
 
-**She Wanted Her Hair Done for a Special Day. She Left the Salon in Tears.**\
-`A Black woman is pushing for changes in the hair industry after claiming in a lawsuit that she and her 7-year-old were turned away from an Ulta Beauty salon in Manhattan because of their hair texture.`\
-https://nytimes.com/2026/04/04/nyregion/ulta-harlem-nyc-civil-rights-black-hair.html
+**Europe’s Options in the Strait of Hormuz: Few, and Risky**\
+`European leaders and other officials have ideas for bringing shipping back to the strait once the Iran war ends. But none of them are sure bets.`\
+https://nytimes.com/2026/04/04/world/europe/strait-hormuz-shipping-iran.html
 
