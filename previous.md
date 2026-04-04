@@ -1,40 +1,40 @@
-**Geno Auriemma pushed back. Dawn Staley pushed through. The sport felt the shift**\
-`A power dynamic shift is happening at the top of women's basketball. And Auriemma knows it.`\
-https://nytimes.com/athletic/7171312/2026/04/04/geno-auriemma-dawn-staley-rivalry/
+**Living Space**\
+`We don’t have to travel to the moon to gain some of the insight that astronauts do.`\
+https://nytimes.com/2026/04/04/briefing/living-space.html
 
-**How to watch Wild vs. Senators: Time, TV, streaming**\
-`Find out how to watch the Minnesota Wild play the Ottawa Senators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171379/2026/04/04/wild-vs-senators-stream-how-to-watch-april-4/
+**Matvei Michkov helps earn must-win game as Flyers eye playoff push**\
+`The Flyers are playing their best hockey of the season, and if they keep it up, a playoff berth is very much within reach. `\
+https://nytimes.com/athletic/7170975/2026/04/04/matvei-michkov-philadelphia-flyers-new-york-islanders-takeaways/
 
-**How to watch Red Wings vs. Rangers: Time, TV, streaming**\
-`Find out how to watch the Detroit Red Wings play the New York Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171377/2026/04/04/red-wings-vs-rangers-stream-how-to-watch-april-4/
+**Can Arizona bring glory back to the west after a 29-year men's NCAA Tournament title drought?**\
+`With a team Bill Walton would have loved, Arizona has given the West as good of a chance at a national championship as it has had in years.`\
+https://nytimes.com/athletic/7169823/2026/04/04/arizona-basketball-final-four-west-drought-pac-12/
 
-**How to watch Cardinals vs. Tigers: Time, TV, streaming for April 4**\
-`Find out how to watch the St. Louis Cardinals play the Detroit Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171375/2026/04/04/cardinals-vs-tigers-stream-how-to-watch-april-4/
+**Will Luka Dončić return for the playoffs? History says it'll be difficult**\
+`If Dončić returns from his Grade 2 hamstring strain by the playoffs, he will be going against recent NBA history with these injuries.`\
+https://nytimes.com/athletic/7170931/2026/04/04/luka-doncic-hamstring-nba-playoffs/
 
-**How to watch Borussia Dortmund vs. VfB Stuttgart in the U.S.**\
-`Find out how to watch Borussia Dortmund play VfB Stuttgart, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171372/2026/04/04/borussia-dortmund-vs-vfb-stuttgart-stream-how-to-watch-bundesliga-april-4/
+**UConn's chase for perfection ends in most imperfect way in Final Four loss to South Carolina**\
+`The undefeated Huskies' quest for a second-straight national title came to an end as they unraveled in Phoenix.`\
+https://nytimes.com/athletic/7171289/2026/04/04/uconn-final-four-loss-south-carolina/
 
-**How to watch Espanyol vs. Real Betis in the U.S.**\
-`Find out how to watch Espanyol play Real Betis, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171355/2026/04/04/espanyol-vs-real-betis-stream-how-to-watch-la-liga-april-4/
+**Meet David Mirkovic: Illinois' karaoke king and DJ who refuses to lose**\
+`The 6-foot-9 Montenegrin's fun personality and competitive drive has helped Illinois reach the Final Four.`\
+https://nytimes.com/athletic/7170586/2026/04/04/illinois-david-mirkovic-final-four-karaoke-dj/
 
-**Kelley O'Hara talks about her broadcast career, Atlanta NWSL and being herself**\
-`From the booth, the boardroom, the studio, the sidelines or the fan zone, O'Hara will stay honest and close to her roots.`\
-https://nytimes.com/athletic/7169839/2026/04/04/kelley-ohara-full-time-interview/
+**Igor Shesterkin starred in the NHL's latest goalie fight. His boxing coaches were proud**\
+`“He looked very confident, doing a jab and a right overhand," Sergey Novikov said of Shesterkin. "Things he tried in our boxing sessions.”`\
+https://nytimes.com/athletic/7169922/2026/04/04/shesterkin-boxing-nhl-goalie-fight/
 
-**Iranians Seek Respite in Nature Amid the War**\
-`Families gathered for picnics and games this week to mark the end of the Iranian new year holiday, seizing on a brief chance to celebrate.`\
-https://nytimes.com/2026/04/04/world/europe/iranian-respite-war.html
+**Who will step up and become the Blackhawks' next defensive stopper?**\
+`The Blackhawks are on lookout for someone to fill an unglamorous but critical role: shutdown guy.`\
+https://nytimes.com/athletic/7170091/2026/04/04/blackhawks-next-defensive-stopper/
 
-**New Attorney General, Same Albatross: Trump’s Quest for Retribution**\
-`The name atop the Justice Department’s organizational chart matters less than the presence of a president whose demands for revenge have become so extreme that even his most obsequious appointees have fallen short.`\
-https://nytimes.com/2026/04/04/us/politics/attorney-general-trump.html
+**Ex-union official who orchestrated mutiny at MLBPA breaks silence on players association turmoil**\
+`Two years ago, Harry Marino, a labor organizer and former attorney for the Major League Baseball Players Association, helped orchestrate a player mutiny challenging that union’s leadership, a highly charged and public rebuke that rattled the baseball world for a week and left some in the industry questioning Marino’s motivations.`\
+https://nytimes.com/athletic/7170856/2026/04/04/mlbpa-mutiny-interview-harry-marino/
 
-**My Husband Can’t Get a Job. Should I Divorce Him?**\
-`Plus, whether to use A.I. to get ahead at work — if you think the technology is evil.`\
-https://nytimes.com/2026/04/04/business/my-husband-cant-get-a-job-should-i-divorce-him.html
+**The Thinking Behind Our Times Magazine Redesign**\
+`The magazine’s editor explains why it was time to shake up the look and feel of a 130-year-old print product.`\
+https://nytimes.com/2026/04/04/insider/the-thinking-behind-our-times-magazine-redesign.html
 
