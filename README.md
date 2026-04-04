@@ -1,5 +1,5 @@
-**Real Madrid risk losing ground in La Liga title race after Mallorca defeat**\
-`Madrid equalised in the 88th minute only to concede in extra time and miss the chance to go one point behind Barcelona. `\
+**Real Madrid lose at Mallorca, stay four points behind Barcelona in La Liga**\
+`Madrid equalised in the 88th minute only to concede in extra time and miss the chance to go one point behind the league leaders. `\
 https://nytimes.com/athletic/7171856/2026/04/04/real-madrid-la-liga-mallorca-loss/
 
 **1952 Topps Mickey Mantle card owned by Fred Couples sells for $158,600**\
