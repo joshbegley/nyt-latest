@@ -1,3 +1,11 @@
+**Lakers' Austin Reaves out for rest of regular season with oblique injury**\
+`The injury is the latest blow to the Lakers, with Luka Dončić also missing the rest of the regular season a hamstring injury.`\
+https://nytimes.com/athletic/7172313/2026/04/04/austin-reaves-injury-out-regular-season-lakers/
+
+**How to watch Predators vs. Sharks: Time, TV, streaming**\
+`Find out how to watch the Nashville Predators play the San Jose Sharks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7172191/2026/04/04/how-to-watch-predators-vs-sharks-tv-channel-and-streaming-options-for-april-4/
+
 **Talley comforted by DeChambeau, Sorenstam after 'little meltdown' at ANWA**\
 `Talley, 17, hit two shots out of one of the 12th hole's back bunkers into the pond.`\
 https://nytimes.com/athletic/7172259/2026/04/04/asterisk-talley-anwa-dechambeau-sorenstam/
