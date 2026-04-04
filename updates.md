@@ -1,3 +1,11 @@
+**The New York Times in Print for Saturday, April 4, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/04/04/todays-new-york-times
+
+**Women's March Madness title odds: South Carolina favored over UCLA**\
+`Dawn Staley's squad opened as favorites after storming through the semifinal as a 7.5-point underdog to UConn.`\
+https://nytimes.com/athletic/7170729/2026/04/04/womens-march-madness-championship-odds-south-carolina-ucla/
+
 **Why Arsenal owe it to themselves to not take Southampton for granted**\
 `Those who have followed Mikel Arteta's side closely know that a trip to St Mary's is not that simple. Nothing is a given against Southampton`\
 https://nytimes.com/athletic/7168993/2026/04/04/arsenal-southampton-fa-cup-quarter-final/

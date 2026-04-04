@@ -1,3 +1,7 @@
+**How to watch Levante vs. Real Sociedad in the U.S.**\
+`Find out how to watch Levante play Real Sociedad, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7171216/2026/04/04/levante-vs-real-sociedad-stream-how-to-watch-la-liga-april-4/
+
 **The New York Times in Print for Saturday, April 4, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/04/04/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7166217/2026/04/04/lille-europe-most-profitable-clu
 **Joe Cole interview: 'The FA Cup is crucial for Chelsea. It can help settle things down'**\
 `Chelsea have not won a domestic cup for eight years. Joe Cole believes winning it this time could be important`\
 https://nytimes.com/athletic/7151653/2026/04/04/joe-cole-chelsea-interview-fa-cup/
-
-**Lamine Yamal and Spain fans' anti-Muslim chants: What next and what could it mean for 2030 World Cup?**\
-`The events raised questions as to what this might mean for Spain’s co-hosting of the 2030 World Cup with Morocco, a majority Muslim country`\
-https://nytimes.com/athletic/7169483/2026/04/04/lamine-yamal-spain-anti-muslim-chants-explained/
 

@@ -1,3 +1,11 @@
+**The New York Times in Print for Saturday, April 4, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/04/04/todays-new-york-times
+
+**Women's March Madness title odds: South Carolina favored over UCLA**\
+`Dawn Staley's squad opened as favorites after storming through the semifinal as a 7.5-point underdog to UConn.`\
+https://nytimes.com/athletic/7170729/2026/04/04/womens-march-madness-championship-odds-south-carolina-ucla/
+
 **Why Arsenal owe it to themselves to not take Southampton for granted**\
 `Those who have followed Mikel Arteta's side closely know that a trip to St Mary's is not that simple. Nothing is a given against Southampton`\
 https://nytimes.com/athletic/7168993/2026/04/04/arsenal-southampton-fa-cup-quarter-final/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7151653/2026/04/04/joe-cole-chelsea-interview-fa-cu
 **Lamine Yamal and Spain fans' anti-Muslim chants: What next and what could it mean for 2030 World Cup?**\
 `The events raised questions as to what this might mean for Spain’s co-hosting of the 2030 World Cup with Morocco, a majority Muslim country`\
 https://nytimes.com/athletic/7169483/2026/04/04/lamine-yamal-spain-anti-muslim-chants-explained/
-
-**Managers on the rise: Fabian Hurzeler - an inventive Premier League tactician at the age of 33**\
-`The young German is pragmatic yet innovative in the ideas he is honing with Brighton. Expect to see him at the top level for a long time`\
-https://nytimes.com/athletic/7166418/2026/04/04/brighton-manager-fabian-hurzeler-profile/
-
-**Ranking the 2026 Ballon d’Or contenders: Four huge months for Mbappe, Yamal, Kane and others**\
-`Assessing the world's best footballers as they reach the biggest four months of the year `\
-https://nytimes.com/athletic/7164254/2026/04/04/2026-ballon-dor-contenders-mbappe-yamal-kane-rice-olise-pedri/
 
