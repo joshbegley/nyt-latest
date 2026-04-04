@@ -1,3 +1,7 @@
+**How to watch Canadiens vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Montreal Canadiens play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7171813/2026/04/04/canadiens-vs-devils-stream-how-to-watch-april-4/
+
 **How to watch Sabres vs. Capitals: Time, TV, streaming**\
 `Find out how to watch the Buffalo Sabres play the Washington Capitals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7171805/2026/04/04/sabres-vs-capitals-stream-how-to-watch-april-4/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7171772/2026/04/04/marlins-vs-yankees-stream-how-to
 **How to watch Reds vs. Rangers: Time, TV, streaming for April 4**\
 `Find out how to watch the Cincinnati Reds play the Texas Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7171768/2026/04/04/reds-vs-rangers-stream-how-to-watch-april-4/
-
-**How to watch Pistons vs. 76ers: Time, TV, streaming**\
-`Find out how to watch the Detroit Pistons play the Philadelphia 76ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171735/2026/04/04/pistons-vs-76ers-stream-how-to-watch-april-4/
 
