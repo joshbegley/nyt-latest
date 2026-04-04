@@ -1,3 +1,7 @@
+**Football fan event in Peru leaves one dead and dozens hospitalised**\
+`Peru’s health minister Juan Carlos Velasco confirmed to news channel Canal N on Friday that a 39-year-old male had died with 47 hospitalised`\
+https://nytimes.com/athletic/7171492/2026/04/04/football-fan-death-peru/
+
 **What Ken Griffey Jr. found in the lens at Augusta National**\
 `“There’s that old saying, be comfortable being uncomfortable. That was that whole week at Augusta."`\
 https://nytimes.com/athletic/7170413/2026/04/04/ken-griffey-jr-masters-photographer-augusta-national/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7171461/2026/04/04/brewers-vs-royals-stream-how-to-
 **Three Charged With Arson in Attack on U.K. Jewish Charity’s Ambulances**\
 `Two men and a teenager were arrested this week, the London police said, adding that the March attack had not been declared a terrorist incident.`\
 https://nytimes.com/2026/04/04/world/europe/london-arson-attack.html
-
-**How to watch Barcelona vs. Atletico Madrid in the U.S.**\
-`Find out how to watch Barcelona play Atletico Madrid, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171437/2026/04/04/barcelona-vs-atletico-madrid-stream-how-to-watch-la-liga-april-4/
 
