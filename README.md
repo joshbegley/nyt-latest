@@ -11,7 +11,7 @@ https://nytimes.com/2026/04/04/us/vehicle-crash-parade-new-iberia-louisiana.html
 https://nytimes.com/2026/04/04/science/nasa-moon-artemis-day-4.html
 
 **Lakers' Austin Reaves out for rest of regular season with oblique injury**\
-`The injury is the latest blow to the Lakers, with Luka Dončić also missing the rest of the regular season a hamstring injury.`\
+`The injury is the latest blow to the Lakers, with Luka Dončić also missing the rest of the regular season with a hamstring injury.`\
 https://nytimes.com/athletic/7172313/2026/04/04/austin-reaves-injury-out-regular-season-lakers/
 
 **Talley comforted by DeChambeau, Sorenstam after 'little meltdown' at ANWA**\

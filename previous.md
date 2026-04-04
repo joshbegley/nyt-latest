@@ -1,3 +1,15 @@
+**Satellite image company restricts Mideast content, citing a U.S. government request.**\
+`By Pranav Baskar`\
+https://nytimes.com/live/2026/04/04/world/iran-war-trump-news/satellite-image-company-restricts-mideast-content-citing-a-us-government-request
+
+**At Least 15 Injured After Driver Plows Into a Louisiana Parade**\
+`Some of the pedestrians at the parade in New Iberia, La., were critically hurt, according to the authorities, who said the driver was taken into custody.`\
+https://nytimes.com/2026/04/04/us/vehicle-crash-parade-new-iberia-louisiana.html
+
+**NASA Astronauts Are Closer to Moon Than Earth on Artemis II Day 4**\
+`The astronauts said they had lost track of which day it is on Earth on their transit to the moon.`\
+https://nytimes.com/2026/04/04/science/nasa-moon-artemis-day-4.html
+
 **Lakers' Austin Reaves out for rest of regular season with oblique injury**\
 `The injury is the latest blow to the Lakers, with Luka Dončić also missing the rest of the regular season a hamstring injury.`\
 https://nytimes.com/athletic/7172313/2026/04/04/austin-reaves-injury-out-regular-season-lakers/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7172108/2026/04/04/lebron-james-memphis-milwaukee-c
 **Tom Valenti, Who Made Lamb Shanks a Showstopper, Dies at 67**\
 `At Ouest, on the Upper West Side, and other Manhattan restaurants, he served robust dishes in a style he called “haute cuisine with the grandma gene.”`\
 https://nytimes.com/2026/04/04/dining/tom-valenti-dead.html
-
-**How to watch Flames vs. Ducks: Time, TV, streaming**\
-`Find out how to watch the Calgary Flames play the Anaheim Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7172194/2026/04/04/flames-vs-ducks-stream-how-to-watch-april-4/
-
-**How to watch Predators vs. Sharks: Time, TV, streaming**\
-`Find out how to watch the Nashville Predators play the San Jose Sharks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7172191/2026/04/04/how-to-watch-predators-vs-sharks-tv-channel-and-streaming-options-for-april-4/
-
-**How to watch Golden Knights vs. Oilers: Time, TV, streaming**\
-`Find out how to watch the Vegas Golden Knights play the Edmonton Oilers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7172186/2026/04/04/golden-knights-vs-oilers-stream-how-to-watch-april-4/
 
