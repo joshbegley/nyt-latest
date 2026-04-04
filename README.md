@@ -6,7 +6,7 @@ https://nytimes.com/athletic/7170849/2026/04/03/geno-auriemma-dawn-staley-sideli
 `The Gamecocks pulled the upset over top-seeded UConn by stifling a Huskies’ offense that has been scoring at will this season.`\
 https://nytimes.com/athletic/7170841/2026/04/03/south-carolina-defeats-uconn-final-four-result-takeaways/
 
-**Phillies' hitters swing into gear with first-inning barrage after off-day golfing**\
+**Phillies’ bats awaken with cathartic first-inning barrage in Colorado**\
 `All it took was 18 minutes of catharsis in the first inning, as the Phillies scored seven runs, more than they had in any game this season.`\
 https://nytimes.com/athletic/7170804/2026/04/03/phillies-hitters-golf-colorado-rockies/
 
