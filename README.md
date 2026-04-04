@@ -1,3 +1,7 @@
+**Quote of the Day: The Mystifying Drunken Episodes of Teetotalers**\
+`Quotation of the Day for Saturday, April 4, 2026.`\
+https://nytimes.com/2026/04/03/pageoneplus/quote-of-the-day-the-mystifying-drunken-episodes-of-teetotalers.html
+
 **Cooper Flagg becomes youngest player in NBA history to have a 50-point game**\
 `The Mavs' rookie became the first teenager to exceed the 50-point mark and broke his own record for the most points in a game by a teenager.`\
 https://nytimes.com/athletic/7171061/2026/04/03/cooper-flagg-stats-highlights-mavericks-51-points/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7170849/2026/04/03/geno-auriemma-dawn-staley-sideli
 **South Carolina hands UConn first loss, reaches 4th NCAA final in 5 years**\
 `The Gamecocks pulled the upset over top-seeded UConn by stifling a Huskies’ offense that has been scoring at will this season.`\
 https://nytimes.com/athletic/7170841/2026/04/03/south-carolina-defeats-uconn-final-four-result-takeaways/
-
-**Phillies’ bats awaken with cathartic first-inning barrage in Colorado**\
-`All it took was 18 minutes of catharsis in the first inning, as the Phillies scored seven runs, more than they had in any game this season.`\
-https://nytimes.com/athletic/7170804/2026/04/03/phillies-hitters-golf-colorado-rockies/
 
