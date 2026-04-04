@@ -1,3 +1,7 @@
+**Geno Auriemma pushed back. Dawn Staley pushed through. The sport felt the shift**\
+`A power dynamic shift is happening at the top of women's basketball. And Auriemma knows it.`\
+https://nytimes.com/athletic/7171312/2026/04/04/geno-auriemma-dawn-staley-rivalry/
+
 **How to watch Wild vs. Senators: Time, TV, streaming**\
 `Find out how to watch the Minnesota Wild play the Ottawa Senators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7171379/2026/04/04/wild-vs-senators-stream-how-to-watch-april-4/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/04/us/politics/attorney-general-trump.html
 **My Husband Can’t Get a Job. Should I Divorce Him?**\
 `Plus, whether to use A.I. to get ahead at work — if you think the technology is evil.`\
 https://nytimes.com/2026/04/04/business/my-husband-cant-get-a-job-should-i-divorce-him.html
-
-**Trump Budget Does Little to Address Nation’s Fiscal Challenges**\
-`While the federal deficit has started to shrink under President Trump, his plans could make the long-term situation worse.`\
-https://nytimes.com/2026/04/04/business/trump-budget-federal-deficit.html
 

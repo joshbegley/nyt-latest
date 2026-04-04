@@ -1,3 +1,11 @@
+**How to watch Wild vs. Senators: Time, TV, streaming**\
+`Find out how to watch the Minnesota Wild play the Ottawa Senators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7171379/2026/04/04/wild-vs-senators-stream-how-to-watch-april-4/
+
+**How to watch Red Wings vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7171377/2026/04/04/red-wings-vs-rangers-stream-how-to-watch-april-4/
+
 **How to watch Cardinals vs. Tigers: Time, TV, streaming for April 4**\
 `Find out how to watch the St. Louis Cardinals play the Detroit Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7171375/2026/04/04/cardinals-vs-tigers-stream-how-to-watch-april-4/
