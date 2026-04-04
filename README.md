@@ -1,3 +1,7 @@
+**Diary of a Guardians home opener: Sing-alongs, gyrating mascots and more DeLauter homers**\
+`Here’s a chronicle of how the 33rd home opener at Progressive Field unfolded Friday against the Chicago Cubs.`\
+https://nytimes.com/athletic/7168429/2026/04/03/guardians-home-opener-diary/
+
 **Chart-Toppers**\
 `Royce Ferguson’s latest Saturday puzzle drops some sick beats.`\
 https://nytimes.com/2026/04/03/crosswords/daily-puzzle-2026-04-04.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/03/us/politics/trump-cabinet-changes.html
 **Sonny Gray leads Red Sox to much-needed win as offense comes to life**\
 `The Red Sox finally snapped a five-game losing streak in their first game at Fenway Park in the new season.`\
 https://nytimes.com/athletic/7170666/2026/04/03/sonny-gray-red-sox-home-opener-padres/
-
-**Here’s What Happened in the War in the Middle East on Friday**\
-`An American fighter jet was shot down by Iran for the first time since the start of the war, leading to an urgent search-and-rescue operation for a missing crew member.`\
-https://nytimes.com/2026/04/03/world/middleeast/iran-war-middle-east-recap-friday.html
 
