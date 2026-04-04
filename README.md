@@ -28,7 +28,7 @@ https://nytimes.com/athletic/7171470/2026/04/04/avalanche-vs-stars-stream-how-to
 
 **How to watch Blue Jays vs. White Sox: Time, TV, streaming for April 4**\
 `Find out how to watch the Toronto Blue Jays play the Chicago White Sox, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171467/2026/04/04/blue-jays-vs-white-sox-stream-how-to-watch-april-4/
+https://nytimes.com/athletic/7171467/2026/04/04/how-to-watch-blue-jays-vs-white-sox-tv-channel-and-streaming-options-for-april-4/
 
 **How to watch Brewers vs. Royals: Time, TV, streaming for April 4**\
 `Find out how to watch the Milwaukee Brewers play the Kansas City Royals, with time, TV channel and streaming information.`\
