@@ -1,3 +1,7 @@
+**Here’s What Happened in the War in the Middle East on Friday**\
+`An American fighter jet was shot down by Iran for the first time since the start of the war, leading to an urgent search-and-rescue operation for a missing crew member.`\
+https://nytimes.com/2026/04/03/world/middleeast/iran-war-middle-east-recap-friday.html
+
 **Yankees slugger Ben Rice's ascension to stardom has arrived**\
 `Rice continually destroying baseballs is nothing new. The only difference is the level of attention he's now receiving.`\
 https://nytimes.com/athletic/7170487/2026/04/03/ben-rice-yankees/
