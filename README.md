@@ -1,3 +1,7 @@
+**Here’s What Happened in the War in the Middle East on Friday**\
+`An American fighter jet was shot down by Iran for the first time since the start of the war, leading to an urgent search-and-rescue operation for a missing crew member.`\
+https://nytimes.com/2026/04/03/world/middleeast/iran-war-middle-east-recap-friday.html
+
 **Yankees slugger Ben Rice's ascension to stardom has arrived**\
 `Rice continually destroying baseballs is nothing new. The only difference is the level of attention he's now receiving.`\
 https://nytimes.com/athletic/7170487/2026/04/03/ben-rice-yankees/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7170640/2026/04/03/cody-bellinger-catch-yankees-hom
 **Our First Moon Colony Will Be Filled With Garbage**\
 `Forget futuristic glass domes filled with plants and high-tech infrastructure, Jared Isaacman, the head of NASA, says of humanity’s first space colonies. In reality, because of the cost of travel, they will most likely be scrappy bases surrounded by garbage.`\
 https://nytimes.com/video/opinion/100000010821466/our-first-moon-colony-will-be-filled-with-garbage.html
-
-**Ozzie Guillén's lucky No. 13 is getting retired by the White Sox, and it's about time**\
-`Guillén was moved to tears when he learned the news during Chicago's 5-4 victory in the home opener against Toronto.`\
-https://nytimes.com/athletic/7170598/2026/04/03/ozzie-guillen-white-sox-no-13-uniform-retirement/
 

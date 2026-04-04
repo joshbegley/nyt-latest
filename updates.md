@@ -1,3 +1,11 @@
+**Yankees slugger Ben Rice's ascension to stardom has arrived**\
+`Rice continually destroying baseballs is nothing new. The only difference is the level of attention he's now receiving.`\
+https://nytimes.com/athletic/7170487/2026/04/03/ben-rice-yankees/
+
+**Yankees notes: Bellinger's circus catch, Judge's close call, shutdown pitching**\
+`“I definitely got lucky,” Bellinger said. Plus, the Yankees' staff is off to a record start, allowing eight earned runs in seven games. `\
+https://nytimes.com/athletic/7170640/2026/04/03/cody-bellinger-catch-yankees-home-opener/
+
 **Trump Administration Celebrates Good Friday in Official Messages**\
 `President Trump and administration officials have extended more pronounced overtures to Christians in public statements and executive orders.`\
 https://nytimes.com/2026/04/03/us/politics/trump-christian-good-friday-posts.html
