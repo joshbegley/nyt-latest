@@ -1,3 +1,7 @@
+**The Pulse: A Masters golf primer**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/7171206/2026/04/04/a-masters-golf-primer-plus-genos-meltdown/
+
 **Living Space**\
 `We don’t have to travel to the moon to gain some of the insight that astronauts do.`\
 https://nytimes.com/2026/04/04/briefing/living-space.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7170091/2026/04/04/blackhawks-next-defensive-stoppe
 **Ex-union official who orchestrated mutiny at MLBPA breaks silence on players association turmoil**\
 `Two years ago, Harry Marino, a labor organizer and former attorney for the Major League Baseball Players Association, helped orchestrate a player mutiny challenging that union’s leadership, a highly charged and public rebuke that rattled the baseball world for a week and left some in the industry questioning Marino’s motivations.`\
 https://nytimes.com/athletic/7170856/2026/04/04/mlbpa-mutiny-interview-harry-marino/
-
-**The Thinking Behind Our Times Magazine Redesign**\
-`The magazine’s editor explains why it was time to shake up the look and feel of a 130-year-old print product.`\
-https://nytimes.com/2026/04/04/insider/the-thinking-behind-our-times-magazine-redesign.html
 

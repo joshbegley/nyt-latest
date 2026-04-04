@@ -1,3 +1,7 @@
+**The Pulse: A Masters golf primer**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/7171206/2026/04/04/a-masters-golf-primer-plus-genos-meltdown/
+
 **Living Space**\
 `We don’t have to travel to the moon to gain some of the insight that astronauts do.`\
 https://nytimes.com/2026/04/04/briefing/living-space.html
