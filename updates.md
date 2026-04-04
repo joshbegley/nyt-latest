@@ -1,3 +1,11 @@
+**‘Iran Is Being Destroyed in Front of Our Eyes’: Tehran Is Gripped by Fear**\
+`Fifteen residents of Tehran said in telephone interviews and text messages that the capital was weathering heavy bombardment Friday.`\
+https://nytimes.com/2026/04/03/world/middleeast/iran-is-being-destroyed-in-front-of-our-eyes-tehran-is-gripped-by-fear.html
+
+**Giannis Antetokounmpo excoriates Bucks for sitting him as NBA investigation continues**\
+`The Bucks' star said he's being forced to "do things against my nature" and that he and the team are "definitely not on the same page."`\
+https://nytimes.com/athletic/7161947/2026/04/03/giannis-antetokounmpo-injury-update-frustrated-bucks-decision/
+
 **Geno Auriemma, Dawn Staley have heated sideline argument in Final Four game**\
 `With less than a second left, Auriemma walked up to Staley, sharing some perturbed words that immediately visibly infuriated Staley.`\
 https://nytimes.com/athletic/7170849/2026/04/03/geno-auriemma-dawn-staley-sideline-drama-south-carolina-uconn-final-four/

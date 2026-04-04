@@ -2,7 +2,7 @@
 `Fifteen residents of Tehran said in telephone interviews and text messages that the capital was weathering heavy bombardment Friday.`\
 https://nytimes.com/2026/04/03/world/middleeast/iran-is-being-destroyed-in-front-of-our-eyes-tehran-is-gripped-by-fear.html
 
-**Geno Auriemma, Dawn Staley have heated sideline argument in Final Four game**\
+**Geno Auriemma, Dawn Staley engage in heated argument at end of Final Four game**\
 `With less than a second left, Auriemma walked up to Staley, sharing some perturbed words that immediately visibly infuriated Staley.`\
 https://nytimes.com/athletic/7170849/2026/04/03/geno-auriemma-dawn-staley-sideline-drama-south-carolina-uconn-final-four/
 
