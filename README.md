@@ -1,3 +1,15 @@
+**Fight Escalates Over Plan to Demolish and Rebuild N.Y.C. Public Housing**\
+`The city thinks four developments in Chelsea are too run-down to be saved, and wants to rebuild them, adding mixed-income housing. Some residents are opposed.`\
+https://nytimes.com/2026/04/04/nyregion/fight-escalates-over-plan-to-demolish-and-rebuild-nyc-public-housing.html
+
+**She Wanted Her Hair Done for a Special Day. She Left the Salon in Tears.**\
+`A Black woman is pushing for changes in the hair industry after claiming in a lawsuit that she and her 7-year-old were turned away from an Ulta Beauty salon in Manhattan because of their hair texture.`\
+https://nytimes.com/2026/04/04/nyregion/ulta-harlem-nyc-civil-rights-black-hair.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/04/04/crosswords/spelling-bee-forum.html
+
 **Here’s the latest.**\
 `By Eric Schmitt, Helene Cooper, Yeganeh Torbati and John Yoon`\
 https://nytimes.com/live/2026/04/04/world/iran-war-trump-news/heres-the-latest
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7170729/2026/04/04/womens-march-madness-championshi
 **Why Arsenal owe it to themselves to not take Southampton for granted**\
 `Those who have followed Mikel Arteta's side closely know that a trip to St Mary's is not that simple. Nothing is a given against Southampton`\
 https://nytimes.com/athletic/7168993/2026/04/04/arsenal-southampton-fa-cup-quarter-final/
-
-**UCLA takes down Texas, advances to first NCAA national championship game**\
-`Center Lauren Betts scored 16 points to lead the Bruins into a national title matchup with South Carolina.`\
-https://nytimes.com/athletic/7171128/2026/04/04/ucla-texas-final-four-result-takeaways/
-
-**Chelsea's week of recriminations ends in call for 'emotional stability' and hints they might lean less on youth**\
-`A week in which senior players had questioned the club's transfer policy or hinted at a desire to leave ended with a call for maturity`\
-https://nytimes.com/athletic/7169995/2026/04/04/chelsea-fernandez-rosenior-emotional-stability/
-
-**'No one fancied us to stay up, let alone reach the FA Cup final' - inside West Ham's 2006 cup run**\
-`The heroes of West Ham's run to the 2006 FA Cup final tell The Athletic how they got there, and what they think of the current side`\
-https://nytimes.com/athletic/7157510/2026/04/04/west-hams-2006-fa-cup-run-no-one-fancied-us-to-stay-up-let-alone-reach-the-cup-final/
 
