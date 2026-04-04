@@ -1,3 +1,11 @@
+**Matty Cash, Peaky Blinders and channelling his inner Tommy Shelby: 'It changes a man'**\
+`The Aston Villa and Poland right-back delivered a typically solid performance to promote the new Peaky Blinders film, The Immortal Man`\
+https://nytimes.com/athletic/7157423/2026/04/04/matty-cash-peaky-blinders-netflix-aston-villa/
+
+**Lille were close to bankruptcy. This is how they became Europe's most profitable club**\
+`Lille were Ligue 1 champions in 2021, but there were major underlying problems that needed addressing by the new owners`\
+https://nytimes.com/athletic/7166217/2026/04/04/lille-europe-most-profitable-club/
+
 **Joe Cole interview: 'The FA Cup is crucial for Chelsea. It can help settle things down'**\
 `Chelsea have not won a domestic cup for eight years. Joe Cole believes winning it this time could be important`\
 https://nytimes.com/athletic/7151653/2026/04/04/joe-cole-chelsea-interview-fa-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/03/pageoneplus/quote-of-the-day-the-mystifying-drunk
 **Cooper Flagg becomes youngest player in NBA history to have a 50-point game**\
 `The Mavs' rookie became the first teenager to exceed the 50-point mark and broke his own record for the most points in a game by a teenager.`\
 https://nytimes.com/athletic/7171061/2026/04/03/cooper-flagg-stats-highlights-mavericks-51-points/
-
-**Twins outlast power outage, early deficit to win home opener, hope to sell winning to fans**\
-`"The product we put on the field is ultimately what is going to drive hope within our fan base," owner Tom Pohlad said.`\
-https://nytimes.com/athletic/7170957/2026/04/03/twins-win-home-opener-power-outage/
-
-**Trump Directs Officials to Pay All D.H.S. Employees**\
-`The memorandum calls for paying employees at the Coast Guard, Federal Emergency Management Agency and Cybersecurity and Infrastructure Security Agency who have gone without pay during a record-long shutdown.`\
-https://nytimes.com/2026/04/03/us/politics/trump-order-dhs-funding.html
 
