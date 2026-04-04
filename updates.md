@@ -1,3 +1,7 @@
+**How to watch Bayern Munich vs. SC Freiburg in the U.S.**\
+`Find out how to watch Bayern Munich play SC Freiburg, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7171306/2026/04/04/bayern-munich-vs-sc-freiburg-stream-how-to-watch-bundesliga-april-4/
+
 **How to watch 1. FC Heidenheim 1846 vs. Borussia Monchengladbach in the U.S.**\
 `Find out how to watch 1. FC Heidenheim 1846 play Borussia Monchengladbach, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7171304/2026/04/04/1-fc-heidenheim-1846-vs-borussia-monchengladbach-stream-how-to-watch-bundesliga-april-4/
