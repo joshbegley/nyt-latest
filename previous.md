@@ -1,3 +1,7 @@
+**Why Arsenal owe it to themselves to not take Southampton for granted**\
+`Those who have followed Mikel Arteta's side closely know that a trip to St Mary's is not that simple. Nothing is a given against Southampton`\
+https://nytimes.com/athletic/7168993/2026/04/04/arsenal-southampton-fa-cup-quarter-final/
+
 **UCLA takes down Texas, advances to first NCAA national championship game**\
 `Center Lauren Betts scored 16 points to lead the Bruins into a national title matchup with South Carolina.`\
 https://nytimes.com/athletic/7171128/2026/04/04/ucla-texas-final-four-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7166418/2026/04/04/brighton-manager-fabian-hurzeler
 **Ranking the 2026 Ballon d’Or contenders: Four huge months for Mbappe, Yamal, Kane and others**\
 `Assessing the world's best footballers as they reach the biggest four months of the year `\
 https://nytimes.com/athletic/7164254/2026/04/04/2026-ballon-dor-contenders-mbappe-yamal-kane-rice-olise-pedri/
-
-**Epstein Presented Himself to Indian Tycoon as a Trump White House Insider**\
-`The convicted sex offender gave Anil Ambani information on appointments and foreign policy. Some seemed prescient, though there was no evidence he was close to the administration.`\
-https://nytimes.com/2026/04/04/world/asia/epstein-india-ambani.html
 
