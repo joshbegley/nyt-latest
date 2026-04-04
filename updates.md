@@ -1,3 +1,11 @@
+**Twins outlast power outage, early deficit to win home opener, hope to sell winning to fans**\
+`"The product we put on the field is ultimately what is going to drive hope within our fan base," owner Tom Pohlad said.`\
+https://nytimes.com/athletic/7170957/2026/04/03/twins-win-home-opener-power-outage/
+
+**Trump Directs Officials to Pay All D.H.S. Employees**\
+`The memorandum calls for paying employees at the Coast Guard, Federal Emergency Management Agency and Cybersecurity and Infrastructure Security Agency who have gone without pay during a record-long shutdown.`\
+https://nytimes.com/2026/04/03/us/politics/trump-order-dhs-funding.html
+
 **Arrest of Wisconsin Mosque Leader Was Tied to Trump Antisemitism Campaign**\
 `Immigration lawyers and former federal officials say the case of   Sarsour echoes those against other pro-Palestinian activists.`\
 https://nytimes.com/2026/04/03/us/wisconsin-mosque-leader-antisemitism.html
