@@ -1,3 +1,7 @@
+**Deadly Earthquake and Floods Worsen Afghanistan’s Troubles**\
+`Floods have killed at least 77 people this week and destroyed or damaged thousands of homes, and an earthquake on Friday killed a dozen more.`\
+https://nytimes.com/2026/04/04/world/asia/afghanistan-floods-earthquake.html
+
 **Here’s how two airmen would have ejected from the F-15E.**\
 `A step-by-step look at the process by which the two crew members probably ejected from the fighter jet.`\
 https://nytimes.com/live/2026/04/04/world/iran-war-trump-news/iran-pilot-fighter-jet-strike-war
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7171953/2026/04/04/tigers-verlander-hip-inflammatio
 **How to watch Phillies vs. Rockies: Time, TV, streaming for April 4**\
 `Find out how to watch the Philadelphia Phillies play the Colorado Rockies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7171969/2026/04/04/phillies-vs-rockies-stream-how-to-watch-april-4/
-
-**How to watch Cubs vs. Guardians: Time, TV, streaming for April 4**\
-`Find out how to watch the Chicago Cubs play the Cleveland Guardians, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171962/2026/04/04/cubs-vs-guardians-stream-how-to-watch-april-4/
 
