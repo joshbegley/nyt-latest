@@ -1,3 +1,7 @@
+**Here’s how two airmen would have ejected from the F-15E.**\
+`A step-by-step look at the process by which the two crew members probably ejected from the fighter jet.`\
+https://nytimes.com/live/2026/04/04/world/iran-war-trump-news/iran-pilot-fighter-jet-strike-war
+
 **The 4.5.26 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2026/04/04/the-4526-issue

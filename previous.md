@@ -1,3 +1,7 @@
+**Here’s how two airmen would have ejected from the F-15E.**\
+`A step-by-step look at the process by which the two crew members probably ejected from the fighter jet.`\
+https://nytimes.com/live/2026/04/04/world/iran-war-trump-news/iran-pilot-fighter-jet-strike-war
+
 **The 4.5.26 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2026/04/04/the-4526-issue
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7171969/2026/04/04/phillies-vs-rockies-stream-how-t
 **How to watch Cubs vs. Guardians: Time, TV, streaming for April 4**\
 `Find out how to watch the Chicago Cubs play the Cleveland Guardians, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7171962/2026/04/04/cubs-vs-guardians-stream-how-to-watch-april-4/
-
-**How to watch Mets vs. Giants: Time, TV, streaming for April 4**\
-`Find out how to watch the New York Mets play the San Francisco Giants, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171958/2026/04/04/mets-vs-giants-stream-how-to-watch-april-4/
 
