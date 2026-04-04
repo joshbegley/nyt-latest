@@ -1,3 +1,7 @@
+**Geno Auriemma pushed back. Dawn Staley pushed through. The sport felt the shift**\
+`A power dynamic shift is happening at the top of women's basketball. And Auriemma knows it.`\
+https://nytimes.com/athletic/7171312/2026/04/04/geno-auriemma-dawn-staley-rivalry/
+
 **How to watch Wild vs. Senators: Time, TV, streaming**\
 `Find out how to watch the Minnesota Wild play the Ottawa Senators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7171379/2026/04/04/wild-vs-senators-stream-how-to-watch-april-4/
