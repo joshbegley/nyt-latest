@@ -1,3 +1,7 @@
+**Warriors' Steph Curry expected to return Sunday against Rockets**\
+`Curry has not played since Jan. 30 due to a right knee injury.`\
+https://nytimes.com/athletic/7172270/2026/04/04/steph-curry-warriors-return-knee-injury-rockets/
+
 **Mary Rand, Pioneering Track and Field Olympian, Dies at 86**\
 `At the 1964 Tokyo Olympics, she became the first British woman to win a gold medal in track and field, and the first to win three medals in one Games.`\
 https://nytimes.com/2026/04/04/sports/mary-rand-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7172165/2026/04/04/mariners-vs-angels-stream-how-to
 **Sabres clinch first playoff berth since 2011, end NHL-record drought**\
 `"We're not just gonna go for the playoffs," Sabres winger Alex Tuch said earlier this season. "We're gonna go for the Cup."`\
 https://nytimes.com/athletic/7161395/2026/04/04/buffalo-sabres-playoffs-2026-clinch/
-
-**Deadly Earthquake and Floods Worsen Afghanistan’s Troubles**\
-`Floods have killed at least 77 people this week and destroyed or damaged thousands of homes, and an earthquake on Friday killed a dozen more.`\
-https://nytimes.com/2026/04/04/world/asia/afghanistan-floods-earthquake.html
 

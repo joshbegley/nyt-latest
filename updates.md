@@ -1,3 +1,7 @@
+**Warriors' Steph Curry expected to return Sunday against Rockets**\
+`Curry has not played since Jan. 30 due to a right knee injury.`\
+https://nytimes.com/athletic/7172270/2026/04/04/steph-curry-warriors-return-knee-injury-rockets/
+
 **Mary Rand, Pioneering Track and Field Olympian, Dies at 86**\
 `At the 1964 Tokyo Olympics, she became the first British woman to win a gold medal in track and field, and the first to win three medals in one Games.`\
 https://nytimes.com/2026/04/04/sports/mary-rand-dead.html
