@@ -1,3 +1,11 @@
+**Some Voters Say Congress Is Too Old. These Black Democrats Aren’t Leaving.**\
+`As older members of Congress head for the exits amid growing pressure for fresh faces in the Democratic Party, some of the most seasoned Black lawmakers are resisting retirement.`\
+https://nytimes.com/2026/04/04/us/voters-congress-old-democrats.html
+
+**Geno Auriemma apologizes for behavior after heated exchange with Dawn Staley**\
+`"It’s unlike what I do and what our standard is here at Connecticut," Auriemma said.`\
+https://nytimes.com/athletic/7172055/2026/04/04/geno-auriemma-apologize-final-four-uconn-south-carolina/
+
 **How to watch Michigan vs. Arizona men's basketball: Semifinals Time, TV, streaming**\
 `Find out how to watch the Michigan Wolverines play the Arizona Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7172038/2026/04/04/michigan-vs-arizona-stream-how-to-watch-april-4/

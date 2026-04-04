@@ -1,3 +1,7 @@
+**The Briefing: Chelsea 7 Port Vale 0 - Will progress into the FA Cup semi-finals settle Rosenior's team down?**\
+`The Premier League side ended a run of four successive defeats in all competitions to secure comfortable passage into the FA Cup semi-finals`\
+https://nytimes.com/athletic/7168801/2026/04/04/chelsea-port-vale-rosenior-fa-cup/
+
 **Some Voters Say Congress Is Too Old. These Black Democrats Aren’t Leaving.**\
 `As older members of Congress head for the exits amid growing pressure for fresh faces in the Democratic Party, some of the most seasoned Black lawmakers are resisting retirement.`\
 https://nytimes.com/2026/04/04/us/voters-congress-old-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7171955/2026/04/04/braves-vs-diamondbacks-stream-ho
 **What Teens Are Doing With Those Role-Playing Chatbots**\
 `Harassing bots with “funny violence.” Confiding about a broken heart. Chatting with a block of cheese. Filling a void of loneliness.`\
 https://nytimes.com/2026/04/04/technology/ai-chatbots-teen-roleplay.html
-
-**Candace Parker, Amar’e Stoudemire, Doc Rivers headline 2026 Hall of Fame class**\
-`Here is everything to know about the Class of 2026, which includes pioneering players and coaches with remarkable levels of success.`\
-https://nytimes.com/athletic/7170797/2026/04/04/basketball-hall-of-fame-2026-class/
 

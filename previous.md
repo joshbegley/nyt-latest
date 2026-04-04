@@ -1,3 +1,11 @@
+**Some Voters Say Congress Is Too Old. These Black Democrats Aren’t Leaving.**\
+`As older members of Congress head for the exits amid growing pressure for fresh faces in the Democratic Party, some of the most seasoned Black lawmakers are resisting retirement.`\
+https://nytimes.com/2026/04/04/us/voters-congress-old-democrats.html
+
+**Geno Auriemma apologizes for behavior after heated exchange with Dawn Staley**\
+`"It’s unlike what I do and what our standard is here at Connecticut," Auriemma said.`\
+https://nytimes.com/athletic/7172055/2026/04/04/geno-auriemma-apologize-final-four-uconn-south-carolina/
+
 **How to watch Michigan vs. Arizona men's basketball: Semifinals Time, TV, streaming**\
 `Find out how to watch the Michigan Wolverines play the Arizona Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7172038/2026/04/04/michigan-vs-arizona-stream-how-to-watch-april-4/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/04/technology/ai-chatbots-teen-roleplay.html
 **Candace Parker, Amar’e Stoudemire, Doc Rivers headline 2026 Hall of Fame class**\
 `Here is everything to know about the Class of 2026, which includes pioneering players and coaches with remarkable levels of success.`\
 https://nytimes.com/athletic/7170797/2026/04/04/basketball-hall-of-fame-2026-class/
-
-**Madrid's defeat at Mallorca 'on me', says Alvaro Arbeloa: 'The decisions are mine'**\
-`Madrid equalised in the 88th minute only to concede in extra time and miss the chance to go one point behind the league leaders. `\
-https://nytimes.com/athletic/7171856/2026/04/04/real-madrid-la-liga-mallorca-loss/
-
-**1952 Topps Mickey Mantle card owned by Fred Couples sells for $158,600**\
-`Couples sold an iconic card of a baseball legend who once left him "starstruck" during a round of golf together. `\
-https://nytimes.com/athletic/7171699/2026/04/04/fred-couples-1952-topps-mickey-mantle-auction/
 
