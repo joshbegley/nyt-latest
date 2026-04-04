@@ -1,3 +1,7 @@
+**Juan Soto to get MRI on right calf as Mets deal with early season injury woes**\
+`Soto departed Friday's 10-3 win over the Giants with right calf soreness.`\
+https://nytimes.com/athletic/7171490/2026/04/04/juan-soto-injury-mets-giants/
+
 **Easy, Breezy Springtime Desserts**\
 `It’s time for simple showstoppers like toasted coconut rum balls and blueberry, lemon and almond cake.`\
 https://nytimes.com/2026/04/04/dining/easy-breezy-springtime-desserts.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7171608/2026/04/04/dodgers-vs-nationals-stream-how-
 **How to watch Astros vs. Athletics: Time, TV, streaming for April 4**\
 `Find out how to watch the Houston Astros play the Athletics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7171604/2026/04/04/astros-vs-athletics-stream-how-to-watch-april-4/
-
-**How to watch Padres vs. Red Sox: Time, TV, streaming for April 4**\
-`Find out how to watch the San Diego Padres play the Boston Red Sox, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171598/2026/04/04/padres-vs-red-sox-stream-how-to-watch-april-4/
 

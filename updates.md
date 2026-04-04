@@ -1,3 +1,7 @@
+**Juan Soto to get MRI on right calf as Mets deal with early season injury woes**\
+`Soto departed Friday's 10-3 win over the Giants with right calf soreness.`\
+https://nytimes.com/athletic/7171490/2026/04/04/juan-soto-injury-mets-giants/
+
 **Easy, Breezy Springtime Desserts**\
 `It’s time for simple showstoppers like toasted coconut rum balls and blueberry, lemon and almond cake.`\
 https://nytimes.com/2026/04/04/dining/easy-breezy-springtime-desserts.html
