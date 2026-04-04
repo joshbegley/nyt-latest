@@ -1,5 +1,9 @@
+**Satellite image company restricts Mideast content, citing a U.S. government request.**\
+`By Pranav Baskar`\
+https://nytimes.com/live/2026/04/04/world/iran-war-trump-news/satellite-image-company-restricts-mideast-content-citing-a-us-government-request
+
 **At Least 15 Injured After Driver Plows Into a Louisiana Parade**\
-`Some of the attendees at the parade in New Iberia, La., were critically hurt, according to the authorities, who said the driver was taken into custody.`\
+`Some of the pedestrians at the parade in New Iberia, La., were critically hurt, according to the authorities, who said the driver was taken into custody.`\
 https://nytimes.com/2026/04/04/us/vehicle-crash-parade-new-iberia-louisiana.html
 
 **NASA Astronauts Are Closer to Moon Than Earth on Artemis II Day 4**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7172108/2026/04/04/lebron-james-memphis-milwaukee-c
 **Tom Valenti, Who Made Lamb Shanks a Showstopper, Dies at 67**\
 `At Ouest, on the Upper West Side, and other Manhattan restaurants, he served robust dishes in a style he called “haute cuisine with the grandma gene.”`\
 https://nytimes.com/2026/04/04/dining/tom-valenti-dead.html
-
-**How to watch Flames vs. Ducks: Time, TV, streaming**\
-`Find out how to watch the Calgary Flames play the Anaheim Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7172194/2026/04/04/how-to-watch-flames-vs-ducks-tv-channel-and-streaming-options-for-april-4/
 
