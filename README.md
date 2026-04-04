@@ -1,3 +1,7 @@
+**How to watch Brewers vs. Royals: Time, TV, streaming for April 4**\
+`Find out how to watch the Milwaukee Brewers play the Kansas City Royals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7171461/2026/04/04/brewers-vs-royals-stream-how-to-watch-april-4/
+
 **Three Charged With Arson in Attack on U.K. Jewish Charity’s Ambulances**\
 `Two men and a teenager were arrested this week, the London police said, adding that the March attack had not been declared a terrorist incident.`\
 https://nytimes.com/2026/04/04/world/europe/london-arson-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7168184/2026/04/04/maple-leafs-craig-berube-future/
 **Pam and Kristi, Kicked to the Curb**\
 `Trump girls gone wild — or just gone.`\
 https://nytimes.com/2026/04/04/opinion/pam-bondi-kristi-noem-trump.html
-
-**Alex Cora's message to Red Sox fans: Caleb Durbin is his own player and nobody else**\
-`After his 0-for-19 start, the team's new third baseman heard it from the fans Boston-style in the home opener. But he redeemed himself.`\
-https://nytimes.com/athletic/7170716/2026/04/04/caleb-durbin-booed-alex-cora-red-sox-home-opener/
 
