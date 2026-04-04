@@ -1,3 +1,7 @@
+**Sabres clinch first playoff berth since 2011, end NHL-record drought**\
+`We're not just gonna go for the playoffs," Sabres winger Alex Tuch said earlier this season. "We're gonna go for the Cup."`\
+https://nytimes.com/athletic/7161395/2026/04/04/buffalo-sabres-playoffs-2026-clinch/
+
 **Deadly Earthquake and Floods Worsen Afghanistan’s Troubles**\
 `Floods have killed at least 77 people this week and destroyed or damaged thousands of homes, and an earthquake on Friday killed a dozen more.`\
 https://nytimes.com/2026/04/04/world/asia/afghanistan-floods-earthquake.html

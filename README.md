@@ -1,3 +1,23 @@
+**How to watch Flames vs. Ducks: Time, TV, streaming**\
+`Find out how to watch the Calgary Flames play the Anaheim Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7172194/2026/04/04/flames-vs-ducks-stream-how-to-watch-april-4/
+
+**How to watch Predators vs. Sharks: Time, TV, streaming**\
+`Find out how to watch the Nashville Predators play the San Jose Sharks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7172191/2026/04/04/predators-vs-sharks-stream-how-to-watch-april-4/
+
+**How to watch Golden Knights vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the Vegas Golden Knights play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7172186/2026/04/04/golden-knights-vs-oilers-stream-how-to-watch-april-4/
+
+**How to watch Blackhawks vs. Kraken: Time, TV, streaming**\
+`Find out how to watch the Chicago Blackhawks play the Seattle Kraken, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7172179/2026/04/04/blackhawks-vs-kraken-stream-how-to-watch-april-4/
+
+**How to watch Mariners vs. Angels: Time, TV, streaming for April 4**\
+`Find out how to watch the Seattle Mariners play the Los Angeles Angels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7172165/2026/04/04/mariners-vs-angels-stream-how-to-watch-april-4/
+
 **Sabres clinch first playoff berth since 2011, end NHL-record drought**\
 `We're not just gonna go for the playoffs," Sabres winger Alex Tuch said earlier this season. "We're gonna go for the Cup."`\
 https://nytimes.com/athletic/7161395/2026/04/04/buffalo-sabres-playoffs-2026-clinch/
@@ -17,24 +37,4 @@ https://nytimes.com/issue/magazine/2026/04/04/the-4526-issue
 **Virginia, Agugua-Hamilton part ways after ending NCAA Tournament drought**\
 `Agugua-Hamilton came to Virginia in 2022 and just led the Cavaliers to their best season in more than a decade.`\
 https://nytimes.com/athletic/7172076/2026/04/04/virginia-amaka-agugua-hamilton-coach-out/
-
-**The Briefing: Chelsea 7 Port Vale 0 - Will progress into the FA Cup semi-finals settle Rosenior's team down?**\
-`The Premier League side ended a run of four successive defeats in all competitions to secure comfortable passage into the FA Cup semi-finals`\
-https://nytimes.com/athletic/7168801/2026/04/04/chelsea-port-vale-rosenior-fa-cup/
-
-**Some Voters Say Congress Is Too Old. These Black Democrats Aren’t Leaving.**\
-`As older members of Congress head for the exits amid growing pressure for fresh faces in the Democratic Party, some of the most seasoned Black lawmakers are resisting retirement.`\
-https://nytimes.com/2026/04/04/us/voters-congress-old-democrats.html
-
-**Geno Auriemma apologizes for behavior after heated exchange with Dawn Staley**\
-`"It’s unlike what I do and what our standard is here at Connecticut," Auriemma said.`\
-https://nytimes.com/athletic/7172055/2026/04/04/geno-auriemma-apologize-final-four-uconn-south-carolina/
-
-**How to watch Michigan vs. Arizona men's basketball: Semifinals Time, TV, streaming**\
-`Find out how to watch the Michigan Wolverines play the Arizona Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7172038/2026/04/04/michigan-vs-arizona-stream-how-to-watch-april-4/
-
-**Tigers place starter Justin Verlander on 15-day IL with left hip inflammation**\
-`The 43-year-old first felt symptoms of the injury sometime after his outing on March 30.`\
-https://nytimes.com/athletic/7171953/2026/04/04/tigers-verlander-hip-inflammation-il/
 
