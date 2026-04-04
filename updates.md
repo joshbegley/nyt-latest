@@ -1,3 +1,11 @@
+**Joel Embiid 'pissed off' 76ers held him out of recent game, calls out GM Daryl Morey**\
+`After one of the 76ers' biggest wins of the season, Joel Embiid said he was not happy about being held out of a game earlier in the week.`\
+https://nytimes.com/athletic/7171064/2026/04/04/joel-embiid-daryl-morey-illness-76ers/
+
+**How to watch Levante vs. Real Sociedad in the U.S.**\
+`Find out how to watch Levante play Real Sociedad, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7171216/2026/04/04/levante-vs-real-sociedad-stream-how-to-watch-la-liga-april-4/
+
 **The New York Times in Print for Saturday, April 4, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/04/04/todays-new-york-times
