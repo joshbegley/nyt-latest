@@ -1,3 +1,7 @@
+**Living Space**\
+`We don’t have to travel to the moon to gain some of the insight that astronauts do.`\
+https://nytimes.com/2026/04/04/briefing/living-space.html
+
 **Matvei Michkov helps earn must-win game as Flyers eye playoff push**\
 `The Flyers are playing their best hockey of the season, and if they keep it up, a playoff berth is very much within reach. `\
 https://nytimes.com/athletic/7170975/2026/04/04/matvei-michkov-philadelphia-flyers-new-york-islanders-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7170856/2026/04/04/mlbpa-mutiny-interview-harry-mar
 **The Thinking Behind Our Times Magazine Redesign**\
 `The magazine’s editor explains why it was time to shake up the look and feel of a 130-year-old print product.`\
 https://nytimes.com/2026/04/04/insider/the-thinking-behind-our-times-magazine-redesign.html
-
-**My Fiancé’s Mother Is Out of Control. Does She Have to Come to the Wedding?**\
-`I can’t put my family through what she put us through on Thanksgiving.`\
-https://nytimes.com/2026/04/04/magazine/fiance-mother-wedding-ethics.html
 
