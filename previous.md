@@ -1,3 +1,7 @@
+**Mary Rand, Pioneering Track and Field Olympian, Dies at 86**\
+`At the 1964 Tokyo Olympics, she became the first British woman to win a gold medal in track and field, and the first to win three medals in one Games.`\
+https://nytimes.com/2026/04/04/sports/mary-rand-dead.html
+
 **LeBron doubles down on Memphis diss, adds Milwaukee to cities he doesn’t like playing in**\
 `The Los Angeles Lakers star told reporters that his digs at Memphis had nothing to do with the people who live in the city.`\
 https://nytimes.com/athletic/7172108/2026/04/04/lebron-james-memphis-milwaukee-comments/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7161395/2026/04/04/buffalo-sabres-playoffs-2026-cli
 **Deadly Earthquake and Floods Worsen Afghanistan’s Troubles**\
 `Floods have killed at least 77 people this week and destroyed or damaged thousands of homes, and an earthquake on Friday killed a dozen more.`\
 https://nytimes.com/2026/04/04/world/asia/afghanistan-floods-earthquake.html
-
-**Here’s how two airmen would have ejected from the F-15E.**\
-`A step-by-step look at the process by which the two crew members probably ejected from the fighter jet.`\
-https://nytimes.com/live/2026/04/04/world/iran-war-trump-news/iran-pilot-fighter-jet-strike-war
 
