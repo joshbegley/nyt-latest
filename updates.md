@@ -1,3 +1,7 @@
+**Missing Airman Raises Concerns That Iran Could Gain Leverage Over the U.S.**\
+`Since 1979, Iran has repeatedly used Americans and Europeans detained on its territory to win concessions over more powerful adversaries.`\
+https://nytimes.com/2026/04/04/world/middleeast/missing-airman-iran.html
+
 **The Pulse: A Masters golf primer**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/7171206/2026/04/04/a-masters-golf-primer-plus-genos-meltdown/

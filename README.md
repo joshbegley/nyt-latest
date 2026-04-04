@@ -1,3 +1,7 @@
+**All the President’s Wars — at Home and Abroad**\
+`From Tehran to the Supreme Court, a look at Trump’s relentless battles.`\
+https://nytimes.com/video/opinion/100000010817928/all-the-presidents-wars-at-home-and-abroad.html
+
 **Missing Airman Raises Concerns That Iran Could Gain Leverage Over the U.S.**\
 `Since 1979, Iran has repeatedly used Americans and Europeans detained on its territory to win concessions over more powerful adversaries.`\
 https://nytimes.com/2026/04/04/world/middleeast/missing-airman-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7170586/2026/04/04/illinois-david-mirkovic-final-fo
 **Igor Shesterkin starred in the NHL's latest goalie fight. His boxing coaches were proud**\
 `“He looked very confident, doing a jab and a right overhand," Sergey Novikov said of Shesterkin. "Things he tried in our boxing sessions.”`\
 https://nytimes.com/athletic/7169922/2026/04/04/shesterkin-boxing-nhl-goalie-fight/
-
-**Who will step up and become the Blackhawks' next defensive stopper?**\
-`The Blackhawks are on lookout for someone to fill an unglamorous but critical role: shutdown guy.`\
-https://nytimes.com/athletic/7170091/2026/04/04/blackhawks-next-defensive-stopper/
 
