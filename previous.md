@@ -23,7 +23,7 @@ https://nytimes.com/athletic/7172259/2026/04/04/asterisk-talley-anwa-dechambeau-
 https://nytimes.com/athletic/7168802/2026/04/04/arsenal-facup-southampton-result/
 
 **Warriors' Steph Curry expected to return Sunday against Rockets**\
-`Curry has not played since Jan. 30 due to a right knee injury.`\
+`Curry described the recovery process as adjusting to a "new normal."`\
 https://nytimes.com/athletic/7172270/2026/04/04/steph-curry-warriors-return-knee-injury-rockets/
 
 **Mary Rand, Pioneering Track and Field Olympian, Dies at 86**\
