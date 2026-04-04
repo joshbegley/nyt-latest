@@ -1,3 +1,7 @@
+**Diary of a Guardians home opener: Sing-alongs, gyrating mascots and more DeLauter homers**\
+`Here’s a chronicle of how the 33rd home opener at Progressive Field unfolded Friday against the Chicago Cubs.`\
+https://nytimes.com/athletic/7168429/2026/04/03/guardians-home-opener-diary/
+
 **Chart-Toppers**\
 `Royce Ferguson’s latest Saturday puzzle drops some sick beats.`\
 https://nytimes.com/2026/04/03/crosswords/daily-puzzle-2026-04-04.html
