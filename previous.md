@@ -1,4 +1,12 @@
-**Real Madrid lose at Mallorca, stay four points behind Barcelona in La Liga**\
+**What Teens Are Doing With Those Role-Playing Chatbots**\
+`Harassing bots with “funny violence.” Confiding about a broken heart. Chatting with a block of cheese. Filling a void of loneliness.`\
+https://nytimes.com/2026/04/04/technology/ai-chatbots-teen-roleplay.html
+
+**Candace Parker, Amar’e Stoudemire, Doc Rivers headline 2026 Hall of Fame class**\
+`Here is everything to know about the Class of 2026, which includes pioneering players and coaches with remarkable levels of success.`\
+https://nytimes.com/athletic/7170797/2026/04/04/basketball-hall-of-fame-2026-class/
+
+**Madrid's defeat at Mallorca 'on me', says Alvaro Arbeloa: 'The decisions are mine'**\
 `Madrid equalised in the 88th minute only to concede in extra time and miss the chance to go one point behind the league leaders. `\
 https://nytimes.com/athletic/7171856/2026/04/04/real-madrid-la-liga-mallorca-loss/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7171805/2026/04/04/sabres-vs-capitals-stream-how-to
 **How to watch Islanders vs. Hurricanes: Time, TV, streaming**\
 `Find out how to watch the New York Islanders play the Carolina Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7171802/2026/04/04/islanders-vs-hurricanes-stream-how-to-watch-april-4/
-
-**How to watch Jets vs. Blue Jackets: Time, TV, streaming**\
-`Find out how to watch the Winnipeg Jets play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171797/2026/04/04/jets-vs-blue-jackets-stream-how-to-watch-april-4/
-
-**How to watch Mammoth vs. Canucks: Time, TV, streaming**\
-`Find out how to watch the Utah Mammoth play the Vancouver Canucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7171795/2026/04/04/mammoth-vs-canucks-stream-how-to-watch-april-4/
 
