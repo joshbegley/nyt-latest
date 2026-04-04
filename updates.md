@@ -1,3 +1,7 @@
+**Virginia, Agugua-Hamilton part ways after ending NCAA Tournament drought**\
+`Agugua-Hamilton came to Virginia in 2022 and just led the Cavaliers to their best season in more than a decade.`\
+https://nytimes.com/athletic/7172076/2026/04/04/virginia-amaka-agugua-hamilton-coach-out/
+
 **The Briefing: Chelsea 7 Port Vale 0 - Will progress into the FA Cup semi-finals settle Rosenior's team down?**\
 `The Premier League side ended a run of four successive defeats in all competitions to secure comfortable passage into the FA Cup semi-finals`\
 https://nytimes.com/athletic/7168801/2026/04/04/chelsea-port-vale-rosenior-fa-cup/
