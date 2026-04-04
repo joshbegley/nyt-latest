@@ -1,3 +1,11 @@
+**Tom Valenti, Who Made Lamb Shanks a Showstopper, Dies at 67**\
+`At Ouest, on the Upper West Side, and other Manhattan restaurants, he served robust dishes in a style he called “haute cuisine with the grandma gene.”`\
+https://nytimes.com/2026/04/04/dining/tom-valenti-dead.html
+
+**Sabres clinch first playoff berth since 2011, end NHL-record drought**\
+`"We're not just gonna go for the playoffs," Sabres winger Alex Tuch said earlier this season. "We're gonna go for the Cup."`\
+https://nytimes.com/athletic/7161395/2026/04/04/buffalo-sabres-playoffs-2026-clinch/
+
 **How to watch Flames vs. Ducks: Time, TV, streaming**\
 `Find out how to watch the Calgary Flames play the Anaheim Ducks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7172194/2026/04/04/flames-vs-ducks-stream-how-to-watch-april-4/

@@ -1,3 +1,7 @@
+**Tom Valenti, Who Made Lamb Shanks a Showstopper, Dies at 67**\
+`At Ouest, on the Upper West Side, and other Manhattan restaurants, he served robust dishes in a style he called “haute cuisine with the grandma gene.”`\
+https://nytimes.com/2026/04/04/dining/tom-valenti-dead.html
+
 **How to watch Flames vs. Ducks: Time, TV, streaming**\
 `Find out how to watch the Calgary Flames play the Anaheim Ducks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7172194/2026/04/04/flames-vs-ducks-stream-how-to-watch-april-4/
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/7172179/2026/04/04/blackhawks-vs-kraken-stream-how-
 https://nytimes.com/athletic/7172165/2026/04/04/mariners-vs-angels-stream-how-to-watch-april-4/
 
 **Sabres clinch first playoff berth since 2011, end NHL-record drought**\
-`We're not just gonna go for the playoffs," Sabres winger Alex Tuch said earlier this season. "We're gonna go for the Cup."`\
+`"We're not just gonna go for the playoffs," Sabres winger Alex Tuch said earlier this season. "We're gonna go for the Cup."`\
 https://nytimes.com/athletic/7161395/2026/04/04/buffalo-sabres-playoffs-2026-clinch/
 
 **Deadly Earthquake and Floods Worsen Afghanistan’s Troubles**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/04/04/world/iran-war-trump-news/iran-pilot-fighter
 **The 4.5.26 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2026/04/04/the-4526-issue
-
-**Virginia, Agugua-Hamilton part ways after ending NCAA Tournament drought**\
-`Agugua-Hamilton came to Virginia in 2022 and just led the Cavaliers to their best season in more than a decade.`\
-https://nytimes.com/athletic/7172076/2026/04/04/virginia-amaka-agugua-hamilton-coach-out/
 
