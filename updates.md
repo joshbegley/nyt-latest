@@ -1,3 +1,11 @@
+**How to watch Espanyol vs. Real Betis in the U.S.**\
+`Find out how to watch Espanyol play Real Betis, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7171355/2026/04/04/espanyol-vs-real-betis-stream-how-to-watch-la-liga-april-4/
+
+**Kelley O'Hara talks about her broadcast career, Atlanta NWSL and being herself**\
+`From the booth, the boardroom, the studio, the sidelines or the fan zone, O'Hara will stay honest and close to her roots.`\
+https://nytimes.com/athletic/7169839/2026/04/04/kelley-ohara-full-time-interview/
+
 **Iranians Seek Respite in Nature Amid the War**\
 `Families gathered for picnics and games this week to mark the end of the Iranian new year holiday, seizing on a brief chance to celebrate.`\
 https://nytimes.com/2026/04/04/world/europe/iranian-respite-war.html
