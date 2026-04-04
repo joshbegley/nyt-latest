@@ -1,3 +1,15 @@
+**How to watch Astros vs. Athletics: Time, TV, streaming for April 4**\
+`Find out how to watch the Houston Astros play the Athletics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7171604/2026/04/04/astros-vs-athletics-stream-how-to-watch-april-4/
+
+**How to watch Padres vs. Red Sox: Time, TV, streaming for April 4**\
+`Find out how to watch the San Diego Padres play the Boston Red Sox, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7171598/2026/04/04/padres-vs-red-sox-stream-how-to-watch-april-4/
+
+**How to watch Orioles vs. Pirates: Time, TV, streaming for April 4**\
+`Find out how to watch the Baltimore Orioles play the Pittsburgh Pirates, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7171596/2026/04/04/orioles-vs-pirates-stream-how-to-watch-april-4/
+
 **Football fan event in Peru leaves one dead and dozens hospitalised**\
 `Peru’s health minister Juan Carlos Velasco confirmed to news channel Canal N on Friday that a 39-year-old male had died with 47 hospitalised`\
 https://nytimes.com/athletic/7171492/2026/04/04/football-fan-death-peru/
