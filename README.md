@@ -1,3 +1,7 @@
+**How to watch Osasuna vs. Deportivo Alaves in the U.S.**\
+`Find out how to watch Osasuna play Deportivo Alaves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173295/2026/04/05/osasuna-vs-deportivo-alaves-stream-how-to-watch-la-liga-april-5/
+
 **Pete Crow-Armstrong's bat speed is up, but he sees it as a bad sign**\
 `"I think it's bad habits leading to that," Crow-Armstrong said of his increased bat speed. `\
 https://nytimes.com/athletic/7172488/2026/04/05/pete-crow-armstrong-bat-speed-cubs-mechanics-groundball-rate/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7173080/2026/04/05/yaxel-lendeborg-michigan-injury-
 **College Basketball Crown championship: How to watch Oklahoma vs. West Virginia**\
 `The College Basketball Crown championship game features a familiar matchup between Oklahoma and West Virginia. Here's how to watch.`\
 https://nytimes.com/athletic/7172726/2026/04/05/college-basketball-crown-oklahoma-west-virginia-how-to-watch/
-
-**2026 NHL prospect pool rankings: No. 5 Nashville Predators**\
-`The Predators have a claim for the deepest pool in the league, with 16 prospects drafted in the first two rounds.`\
-https://nytimes.com/athletic/7141420/2026/04/05/nashville-predators-nhl-prospect-rankings-2026/
 
