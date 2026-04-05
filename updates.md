@@ -1,3 +1,11 @@
+**Son and Bouanga spark LAFC's record-tying thrashing of Orlando**\
+`Son Heung-min and Denis Bouanga were in sparkling form to complete a resounding triumph`\
+https://nytimes.com/athletic/7172936/2026/04/05/son-heung-min-bouanga-lafc-hat-trick-assist-mls-orlando/
+
+**The glue. The brains. The heartbeat. Bernardo Silva**\
+`Pep Guardiola still regards Bernardo Silva as indispensable - and the secret is his subtlety`\
+https://nytimes.com/athletic/6906334/2026/04/05/bernardo-silva-still-manchester-citys-glue-brains-and-heartbeat/
+
 **Men's college basketball national title odds: Michigan is favored by how much?!**\
 `Michigan enters Monday's national title game against UConn as one of the biggest favorites in recent memory.`\
 https://nytimes.com/athletic/7172916/2026/04/05/mens-college-basketball-national-championship-odds-michigan-arizona/

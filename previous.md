@@ -1,3 +1,11 @@
+**Son and Bouanga spark LAFC's record-tying thrashing of Orlando**\
+`Son Heung-min and Denis Bouanga were in sparkling form to complete a resounding triumph`\
+https://nytimes.com/athletic/7172936/2026/04/05/son-heung-min-bouanga-lafc-hat-trick-assist-mls-orlando/
+
+**The glue. The brains. The heartbeat. Bernardo Silva**\
+`Pep Guardiola still regards Bernardo Silva as indispensable - and the secret is his subtlety`\
+https://nytimes.com/athletic/6906334/2026/04/05/bernardo-silva-still-manchester-citys-glue-brains-and-heartbeat/
+
 **Men's college basketball national title odds: Michigan is favored by how much?!**\
 `Michigan enters Monday's national title game against UConn as one of the biggest favorites in recent memory.`\
 https://nytimes.com/athletic/7172916/2026/04/05/mens-college-basketball-national-championship-odds-michigan-arizona/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7172735/2026/04/05/blue-jackets-players-only-meetin
 **China Built the World’s Drone Industry. Now It’s Locking Down the Skies.**\
 `The Chinese government tightened rules to curb what it described as illegal drone use, but some users say the changes are now restricting too many flights.`\
 https://nytimes.com/2026/04/05/world/asia/china-drone-regulations.html
-
-**U.S. Rescues Downed Air Force Officer Deep Inside Iran, Officials Say**\
-`An Air Force officer of a F-15E Strike Eagle shot down on Friday by Iran spent a day in hostile territory with little more than a pistol for protection.`\
-https://nytimes.com/2026/04/04/us/politics/military-iran-airman-rescue.html
-
-**Quote of the Day: How a Man, His Brother and A.I. Built a $1.8 Billion Company**\
-`Quotation of the Day for Sunday, April 5, 2026.`\
-https://nytimes.com/2026/04/04/pageoneplus/quote-of-the-day-how-a-man-his-brother-and-ai-built-a-1-8-billion-company.html
 
