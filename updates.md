@@ -1,3 +1,7 @@
+**Reed Sheppard or Tari Eason: Who should be the Rockets' 5th starter for postseason play?**\
+`Eason and Sheppard have given Ime Udoka and his staff a lot to consider regarding Houston's starting lineup with the playoffs approaching.`\
+https://nytimes.com/athletic/7173206/2026/04/05/rockets-reed-sheppard-tari-eason-starting-lineup/
+
 **Canadiens complete perfect road trip, earn opportunity to do special things at home**\
 `The Canadiens were less than the best version of themselves and still came out of New Jersey with their eighth straight win. `\
 https://nytimes.com/athletic/7173073/2026/04/05/canadiens-devils-win-nhl-standings/
