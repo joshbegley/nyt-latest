@@ -1,3 +1,11 @@
+**Canadiens complete perfect road trip, earn opportunity to do special things at home**\
+`The Canadiens were less than the best version of themselves and still came out of New Jersey with their eighth straight win. `\
+https://nytimes.com/athletic/7173073/2026/04/05/canadiens-devils-win-nhl-standings/
+
+**Iran Downing of Plane and Daring U.S. Rescue Leave Both Sides Emboldened**\
+`Iran’s downing of a U.S. plane and the complex two-day American rescue operation to extract a stranded airman has emboldened both sides, a potential recipe for escalation.`\
+https://nytimes.com/2026/04/05/world/middleeast/iran-us-rescue.html
+
 **After Daring U.S. Rescue of Airman, Iran Claims a Victory**\
 `Iran’s downing of a U.S. plane and the complex two-day American rescue operation to extract a stranded airman has emboldened both sides, a potential recipe for escalation.`\
 https://nytimes.com/2026/04/05/world/middleeast/iran-us-rescue.html
