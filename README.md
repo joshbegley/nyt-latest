@@ -1,3 +1,7 @@
+**Ranking the eight 2025-26 Champions League quarter-finalists**\
+`It's a stellar list of names remaining in Europe's top-tier competition – but who will lift the famous trophy on May 30?`\
+https://nytimes.com/athletic/7163735/2026/04/05/ranking-champions-league-quarterfinalists/
+
 **Steph Curry isn’t sitting out. It’s not in his Warriors’ DNA**\
 `Even at the end of one the Warriors' toughest seasons, Curry isn't ready to throw in the towel. `\
 https://nytimes.com/athletic/7152237/2026/04/05/steph-curry-warriors-return-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/05/opinion/change-self-transformation-industry.html
 **Always Be Posting: The New Rules for Democratic Candidates**\
 `Is this a great way to audition and select our leaders, especially for executive offices? Not particularly.`\
 https://nytimes.com/2026/04/05/opinion/politics-midterms-tiktok-attention-content.html
-
-**She Risked Her Voice to Become a Mother**\
-`For the soprano Lise Davidsen, parenthood has turned her relationship to work – and to her art – into an open question.`\
-https://nytimes.com/2026/04/05/podcasts/the-daily/lise-davidsen-motherhood-voice-met-opera.html
 
