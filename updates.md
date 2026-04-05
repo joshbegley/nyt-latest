@@ -1,3 +1,19 @@
+**How to watch Lakers vs. Mavericks: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the Dallas Mavericks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173782/2026/04/05/lakers-vs-mavericks-stream-how-to-watch-april-5/
+
+**OPEC Plus Warns of Slow Recovery After War in Iran**\
+`The group of influential oil exporters also said it was increasing its production quotas, a largely symbolic move.`\
+https://nytimes.com/2026/04/05/business/opec-plus-oil-production-iran.html
+
+**How Matheus Nunes exploited the spaces around Liverpool's defence**\
+`Under Guardiola, every City player can be a threat if afforded space - as Saturday's game proved`\
+https://nytimes.com/athletic/7171925/2026/04/05/matheus-nunes-man-city-liverpool/
+
+**How to watch Hornets vs. Timberwolves: Time, TV, streaming**\
+`Find out how to watch the Charlotte Hornets play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173667/2026/04/05/how-to-watch-hornets-vs-timberwolves-tv-channel-and-streaming-options-for-april-5/
+
 **March's top selling sports cards: Judge, Ohtani, Flagg, Knueppel  and more**\
 `Two big Aaron Judge card sales led the way, but did he actually lower the value of one he shared with Ohtani? `\
 https://nytimes.com/athletic/7172639/2026/04/05/top-selling-sports-cards-ohtani-flagg-judge/
