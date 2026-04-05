@@ -1,3 +1,7 @@
+**Martinelli not expected to face FA sanction for pushing referee**\
+`Martinelli, 24, was shown a yellow card in stoppage time of his side's FA Cup quarter-final loss to Southampton.`\
+https://nytimes.com/athletic/7174004/2026/04/05/gabriel-martinelli-arsenal-referee-push/
+
 **FA Cup semi-final draw: Chelsea vs. Leeds, Man City to play Southampton**\
 `The semi-final ties will be played the weekend of April 25-26.`\
 https://nytimes.com/athletic/7173404/2026/04/05/fa-cup-semi-final-draw-2026/

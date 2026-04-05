@@ -1,3 +1,7 @@
+**Martinelli not expected to face FA sanction for pushing referee**\
+`Martinelli, 24, was shown a yellow card in stoppage time of his side's FA Cup quarter-final loss to Southampton.`\
+https://nytimes.com/athletic/7174004/2026/04/05/gabriel-martinelli-arsenal-referee-push/
+
 **FA Cup semi-final draw: Chelsea vs. Leeds, Man City to play Southampton**\
 `The semi-final ties will be played the weekend of April 25-26.`\
 https://nytimes.com/athletic/7173404/2026/04/05/fa-cup-semi-final-draw-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7173882/2026/04/05/how-to-watch-clippers-vs-kings-t
 **Dodgers to place Mookie Betts on 10-day IL with right oblique strain**\
 `The Dodgers believe Betts aggravated his oblique on a check swing during Saturday's game against the Nationals.`\
 https://nytimes.com/athletic/7172624/2026/04/05/dodgers-mookie-betts-oblique-strain-injured-list/
-
-**Islanders fire Patrick Roy, hire Peter DeBoer as head coach**\
-`The Islanders have lost four consecutive games and were badly outplayed during that stretch, putting them at risk of missing the playoffs.`\
-https://nytimes.com/athletic/7173830/2026/04/05/peter-deboer-islanders-patrick-roy-coach/
 
