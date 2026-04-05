@@ -1,3 +1,7 @@
+**Connections: Sports Edition Coach: Hints and answers for April 5, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7173116/2026/04/05/connections-sports-edition-hints-answers-april-5-2026/
+
 **Liverpool plugged the gaps against Manchester City - until they didn't**\
 `Arne Slot's side were set up to keep Man City at bay but when it slipped, they were punished`\
 https://nytimes.com/athletic/7172363/2026/04/05/liverpool-manchester-city-gaps-facup/

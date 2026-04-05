@@ -1,3 +1,7 @@
+**Connections: Sports Edition Coach: Hints and answers for April 5, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7173116/2026/04/05/connections-sports-edition-hints-answers-april-5-2026/
+
 **Liverpool plugged the gaps against Manchester City - until they didn't**\
 `Arne Slot's side were set up to keep Man City at bay but when it slipped, they were punished`\
 https://nytimes.com/athletic/7172363/2026/04/05/liverpool-manchester-city-gaps-facup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7173008/2026/04/05/dan-hurley-uconn-dynasty-nationa
 **Son and Bouanga spark LAFC's record-tying thrashing of Orlando**\
 `Son Heung-min and Denis Bouanga were in sparkling form to complete a resounding triumph.`\
 https://nytimes.com/athletic/7172936/2026/04/05/son-heung-min-bouanga-lafc-hat-trick-assist-mls-orlando/
-
-**The glue. The brains. The heartbeat. Bernardo Silva**\
-`Pep Guardiola still regards Bernardo Silva as indispensable - and the secret is his subtlety`\
-https://nytimes.com/athletic/6906334/2026/04/05/bernardo-silva-still-manchester-citys-glue-brains-and-heartbeat/
 
