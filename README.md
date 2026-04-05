@@ -1,3 +1,7 @@
+**Here’s a Timeline of Trump’s Ultimatums Over the Strait of Hormuz**\
+`President Trump first gave Iran 48 hours to reopen the vital oil shipping route on March 21. The deadline has been reset many times since.`\
+https://nytimes.com/2026/04/05/world/middleeast/trump-strait-of-hormuz-deadline-iran-war.html
+
 **A Harrowing Race Against Time to Find a Downed U.S. Airman in Iran**\
 `For the Iranians, the Air Force colonel whose fighter jet had been shot down was possible leverage. For the U.S. military, finding him was a moral imperative.`\
 https://nytimes.com/2026/04/05/us/iran-airman-fighter-jet-rescue-mission.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7173898/2026/04/05/houston-astros-hunter-brown-shou
 **How to watch Cardinals vs. Tigers: Time, TV, streaming for April 5**\
 `Find out how to watch the St. Louis Cardinals play the Detroit Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173906/2026/04/05/how-to-watch-cardinals-vs-tigers-tv-channel-and-streaming-options-for-april-5/
-
-**'A hidden secret': Why the stigma of eating disorders persists in women's college basketball**\
-`Former Oregon player Jennah Isai dreamed of playing in the Final Four one day. She stepped away from the sport to focus on healing.`\
-https://nytimes.com/athletic/7172389/2026/04/05/womens-college-basketball-eating-disorder-stigma/
 
