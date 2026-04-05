@@ -1,3 +1,15 @@
+**Pope Leo Calls for Peace and Warns of a World Indifferent to Violence**\
+`The pontiff’s Easter remarks follow a Palm Sunday homily in which he said God rejected the prayers of “those who wage war.”`\
+https://nytimes.com/2026/04/05/world/europe/pope-leo-easter.html
+
+**How to watch South Carolina vs. UCLA women's basketball: Championship Time, TV, streaming**\
+`Find out how to watch the South Carolina Gamecocks play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173356/2026/04/05/south-carolina-vs-ucla-stream-how-to-watch-april-5/
+
+**Liverpool players let down ourselves, the manager and our fans in FA Cup defeat - Van Dijk**\
+`The Netherlands defender said he was "hurting" after Arne Slot's side capitulated at the Etihad in their four-goal loss.`\
+https://nytimes.com/athletic/7173308/2026/04/05/van-dijk-liverpool-fa-cup-defeat/
+
 **How to watch Phillies vs. Rockies: Time, TV, streaming for April 5**\
 `Find out how to watch the Philadelphia Phillies play the Colorado Rockies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173343/2026/04/05/phillies-vs-rockies-stream-how-to-watch-april-5/
