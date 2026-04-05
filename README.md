@@ -1,3 +1,15 @@
+**On ‘S.N.L.,’ Bondi Boasts of Being ‘First Woman Ever Fired as Attorney General’**\
+`Ashley Padilla was both Pam Bondi and Kristi Noem on “Saturday Night Live,” with Tina Fey, Candice Bergen and Melissa McCarthy. Jack Black and Jack White were host and musical guest.`\
+https://nytimes.com/2026/04/05/arts/television/on-snl-bondi-boasts-shes-first-woman-fired-as-attorney-general.html
+
+**Iran Is Ending the Dream of Remote-Controlled War**\
+`A.I.’s significant targeting improvements aren’t enough to overcome geography in Iran.`\
+https://nytimes.com/2026/04/05/opinion/iran-ai-war-geography.html
+
+**Not Just for Rock Stars: Playing in the Band**\
+`Readers respond to “Change Your Life. Start a Band,” an Opinion guest essay by Hugo Lindgren. Also: Bruce Springsteen’s art.`\
+https://nytimes.com/2026/04/05/opinion/change-your-life-band.html
+
 **Reed Sheppard or Tari Eason: Who should be the Rockets' 5th starter for postseason play?**\
 `Eason and Sheppard have given Ime Udoka and his staff a lot to consider regarding Houston's starting lineup with the playoffs approaching.`\
 https://nytimes.com/athletic/7173206/2026/04/05/rockets-reed-sheppard-tari-eason-starting-lineup/
@@ -16,25 +28,13 @@ https://nytimes.com/athletic/7172113/2026/04/05/boat-race-tradition-future/
 
 **How to watch Wizards vs. Nets: Time, TV, streaming**\
 `Find out how to watch the Washington Wizards play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7173382/2026/04/05/wizards-vs-nets-stream-how-to-watch-april-5/
+https://nytimes.com/athletic/7173382/2026/04/05/how-to-watch-wizards-vs-nets-tv-channel-and-streaming-options-for-april-5/
 
 **How to watch Suns vs. Bulls: Time, TV, streaming**\
 `Find out how to watch the Phoenix Suns play the Chicago Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7173380/2026/04/05/suns-vs-bulls-stream-how-to-watch-april-5/
+https://nytimes.com/athletic/7173380/2026/04/05/how-to-watch-suns-vs-bulls-tv-channel-and-streaming-options-for-april-5/
 
 **How to watch Grizzlies vs. Bucks: Time, TV, streaming**\
 `Find out how to watch the Memphis Grizzlies play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7173376/2026/04/05/grizzlies-vs-bucks-stream-how-to-watch-april-5/
-
-**How to watch Raptors vs. Celtics: Time, TV, streaming**\
-`Find out how to watch the Toronto Raptors play the Boston Celtics, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7173374/2026/04/05/raptors-vs-celtics-stream-how-to-watch-april-5/
-
-**Behind the Twins' ABS challenges, strategy: 'We don't have a cheat code'**\
-`The Twins have requested 30 ABS challenges, nine more than the next closest team in the majors, with 19 successful conversions. `\
-https://nytimes.com/athletic/7172839/2026/04/05/twins-aggressive-abs-team-mlb/
-
-**Is Christianity Making a Comeback?**\
-`Some see Easter Sunday’s packed pews and overflowing chapels as a sign of a religious revival. But experts are urging caution.`\
-https://nytimes.com/2026/04/05/briefing/easte-christian-revival-trump.html
+https://nytimes.com/athletic/7173376/2026/04/05/how-to-watch-grizzlies-vs-bucks-tv-channel-and-streaming-options-for-april-5/
 
