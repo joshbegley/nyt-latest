@@ -1,3 +1,7 @@
+**10-Minute Challenge: ‘I Spy’**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2026/04/05/upshot/ten-minute-challenge-spy.html
+
 **Twins offense sputters again in 10-inning loss to Tampa Bay: 'Little bit of a funk'**\
 `For the first time since the Twins' 103-loss campaign in 2016, Minnesota has lost each of its first three series to start the season.`\
 https://nytimes.com/athletic/7174338/2026/04/05/twins-rays-offense-slumping-byron-buxton/
