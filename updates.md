@@ -1,3 +1,11 @@
+**After Daring U.S. Rescue of Airman, Iran Claims a Victory**\
+`Iran’s downing of a U.S. plane and the complex two-day American rescue operation to extract a stranded airman has emboldened both sides, a potential recipe for escalation.`\
+https://nytimes.com/2026/04/05/world/middleeast/iran-us-rescue.html
+
+**The Boat Race: A centuries-old tradition that typifies British love of sport - or a relic of elitism?**\
+`To some, the race is an iconic tradition, others view it as a relic - the Boat Race is now trying to reach new audiences`\
+https://nytimes.com/athletic/7172113/2026/04/05/boat-race-tradition-future/
+
 **Is Christianity Making a Comeback?**\
 `Some see Easter Sunday’s packed pews and overflowing chapels as a sign of a religious revival. But experts are urging caution.`\
 https://nytimes.com/2026/04/05/briefing/easte-christian-revival-trump.html
