@@ -1,3 +1,11 @@
+**MVP candidates Jokić and Wemby shine in a tense OT win by Nuggets**\
+`After both coaches promoted their stars for the MVP award, Nikola Jokić and Victor Wembanyama went out and made strong cases.`\
+https://nytimes.com/athletic/7172733/2026/04/04/nuggets-spurs-nikola-jokic-victor-wembanyama-mvp/
+
+**Messi scores Inter Miami's first goal at Nu Stadium, Suárez salvages draw**\
+`Messi inaugurated his new stadium with a header in front of the Inter Miami supporters section`\
+https://nytimes.com/athletic/7172669/2026/04/04/lionel-messi-goal-inter-miami-austin-fc-nu-stadium/
+
 **Red Sox battle back late but fall to Padres as thin margin for error is magnified**\
 `Boston's hitters had eight strikeouts Saturday and have put the ball in play far too little through the early part of the season.`\
 https://nytimes.com/athletic/7172689/2026/04/04/red-sox-padres-rally-lose-mlb/
