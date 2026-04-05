@@ -1,3 +1,7 @@
+**Pepsi Drops Sponsorship of London Music Festival Headlined by Ye**\
+`Prime Minister Keir Starmer said he was “deeply concerned” that the rapper known for antisemitic and racist comments had been booked to perform at the Wireless Festival.`\
+https://nytimes.com/2026/04/05/world/europe/ye-music-festival-pepsi-antisemitism.html
+
 **How to watch Lakers vs. Mavericks: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Lakers play the Dallas Mavericks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173782/2026/04/05/lakers-vs-mavericks-stream-how-to-watch-april-5/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7173096/2026/04/05/lakers-injuries-lebron-jj-redick
 **German police investigating 'dangerous bodily harm' after on-pitch clashes between rival fans**\
 `Dynamo Dresden vs Hertha Berlin was suspended for around 20 minutes after fans set of pyrotechnics and invaded the pitch. `\
 https://nytimes.com/athletic/7173590/2026/04/05/dynamo-dresden-hertha-berlin-police-investigation/
-
-**How to watch Hornets vs. Timberwolves: Time, TV, streaming**\
-`Find out how to watch the Charlotte Hornets play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7173667/2026/04/05/how-to-watch-hornets-vs-timberwolves-tv-channel-and-streaming-options-for-april-5/
 
