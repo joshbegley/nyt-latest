@@ -1,3 +1,7 @@
+**A timeout turning point and a Kaprizov hat trick in Wild's nail-biting win: Takeaways**\
+`The Red Wings scored three straight in the third period, but Kaprizov's sixth career hat trick helped secure a regulation win.`\
+https://nytimes.com/athletic/7174235/2026/04/05/wild-kaprizov-hat-trick-tarasenko-red-wings/
+
 **Bernardo Silva will leave Man City as free agent this summer - Ljinders**\
 `The Portugal midfielder is out of contract at the end of the season and will leave the Etihad as a free agent.`\
 https://nytimes.com/athletic/7173307/2026/04/05/bernardo-silva-man-city-transfer-news/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/05/world/middleeast/trump-strait-of-hormuz-deadline-
 **A Harrowing Race Against Time to Find a Downed U.S. Airman in Iran**\
 `For the Iranians, the Air Force colonel whose fighter jet had been shot down was possible leverage. For the U.S. military, finding him was a moral imperative.`\
 https://nytimes.com/2026/04/05/us/iran-airman-fighter-jet-rescue-mission.html
-
-**How to watch Blues vs. Avalanche: Time, TV, streaming**\
-`Find out how to watch the St. Louis Blues play the Colorado Avalanche, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7174099/2026/04/05/how-to-watch-blues-vs-avalanche-tv-channel-and-streaming-options-for-april-5/
 
