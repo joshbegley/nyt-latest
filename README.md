@@ -7,7 +7,7 @@ https://nytimes.com/2026/04/05/us/midwest-food-bank-rubys-pantry.html
 https://nytimes.com/2026/04/05/us/germany-easter-egg-hunt-tree-kills-3.html
 
 **Gray Skies but Pastels Aplenty at the Easter Parade**\
-`April showers brought silk flowers on Sunday, as New Yorkers promenaded along Fifth Avenue in Manhattan for the annual Easter Parade and Bonnet Festival.`\
+`April showers brought silk flowers on Sunday as New Yorkers promenaded along Fifth Avenue in Manhattan for the annual Easter Parade and Bonnet Festival.`\
 https://nytimes.com/2026/04/05/style/nyc-easter-parade-bonnet-festival-fifth-avenue-photos.html
 
 **How Democrats and Republicans Are Clashing in Week 6 of the Iran War**\
