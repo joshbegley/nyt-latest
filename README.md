@@ -1,3 +1,11 @@
+**Twins offense sputters again in 10-inning loss to Tampa Bay: 'Little bit of a funk'**\
+`For the first time since the Twins' 103-loss campaign in 2016, Minnesota has lost each of its first three series to start the season.`\
+https://nytimes.com/athletic/7174338/2026/04/05/twins-rays-offense-slumping-byron-buxton/
+
+**Red Sox reeling after 2-7 start: 'It's unacceptable to the fans'**\
+`“I cannot allow that to happen,” Ranger Suarez said. “Obviously not the way I wanted the first two starts to go.”`\
+https://nytimes.com/athletic/7174425/2026/04/05/red-sox-unacceptable-start/
+
 **J.J. Spaun survives wild-weather weekend to win Valero Texas Open**\
 `Saturday’s rain meant players had to complete their third rounds on Sunday, with some facing a 30-hole grind to finish the tournament.`\
 https://nytimes.com/athletic/7174134/2026/04/05/jj-spaun-pga-valero-texas-open/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7174273/2026/04/05/ucla-womens-march-madness-nation
 **A timeout turning point and a Kaprizov hat trick in Wild's nail-biting win: Takeaways**\
 `The Red Wings scored three straight in the third period, but Kaprizov's sixth career hat trick helped secure a regulation win.`\
 https://nytimes.com/athletic/7174235/2026/04/05/wild-kaprizov-hat-trick-tarasenko-red-wings/
-
-**Bernardo Silva will leave Man City as free agent this summer - Ljinders**\
-`The Portugal midfielder is out of contract at the end of the season and will leave the Etihad as a free agent.`\
-https://nytimes.com/athletic/7173307/2026/04/05/bernardo-silva-man-city-transfer-news/
-
-**ICE Agents Detain Newlywed Spouse of Soldier Training to Deploy**\
-`The 22-year-old wife of an Army staff sergeant came to the U.S. as a toddler. She was taken from a military base where the couple planned to live.`\
-https://nytimes.com/2026/04/05/us/ice-detains-military-wife-soldier-deployment.html
 

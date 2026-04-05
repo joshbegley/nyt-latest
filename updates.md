@@ -1,3 +1,11 @@
+**J.J. Spaun survives wild-weather weekend to win Valero Texas Open**\
+`Saturday’s rain meant players had to complete their third rounds on Sunday, with some facing a 30-hole grind to finish the tournament.`\
+https://nytimes.com/athletic/7174134/2026/04/05/jj-spaun-pga-valero-texas-open/
+
+**'Not 6 feet under yet': Red Wings trying to tune out noise with 5 games left**\
+`A late push made it interesting, but a costly second period led the Red Wings to another loss Sunday with time running out.`\
+https://nytimes.com/athletic/7174222/2026/04/05/detroit-red-wings-noise-copp-stretch-run-wild/
+
 **'Not six feet under yet': Red Wings trying to tune out noise with five games left**\
 `A late push made it interesting, but a costly second period led the Red Wings to another loss Sunday with time running out.`\
 https://nytimes.com/athletic/7174222/2026/04/05/detroit-red-wings-noise-copp-stretch-run-wild/
