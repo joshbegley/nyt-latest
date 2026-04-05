@@ -1,3 +1,7 @@
+**Dan Hurley's UConn is back in the title game. And he's entering rarefied air**\
+`Saturday’s win reinforced Hurley as the best postseason coach of the modern era, with an 18-1 record over his last 19 NCAA Tournament games.`\
+https://nytimes.com/athletic/7173008/2026/04/05/dan-hurley-uconn-dynasty-national-championship-game-illinois/
+
 **Son and Bouanga spark LAFC's record-tying thrashing of Orlando**\
 `Son Heung-min and Denis Bouanga were in sparkling form to complete a resounding triumph`\
 https://nytimes.com/athletic/7172936/2026/04/05/son-heung-min-bouanga-lafc-hat-trick-assist-mls-orlando/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7073175/2026/04/05/fenerbahce-devin-ozek-sporting-d
 **Blue Jackets hold players-only meeting as downward spiral continues**\
 `"We're a better team than we've shown, and we just talked about it," Zach Werenski said of the meeting after Columbus' loss to Winnipeg.`\
 https://nytimes.com/athletic/7172735/2026/04/05/blue-jackets-players-only-meeting-nhl-playoffs/
-
-**China Built the World’s Drone Industry. Now It’s Locking Down the Skies.**\
-`The Chinese government tightened rules to curb what it described as illegal drone use, but some users say the changes are now restricting too many flights.`\
-https://nytimes.com/2026/04/05/world/asia/china-drone-regulations.html
 
