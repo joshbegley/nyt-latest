@@ -1,3 +1,11 @@
+**How to watch Cardinals vs. Tigers: Time, TV, streaming for April 5**\
+`Find out how to watch the St. Louis Cardinals play the Detroit Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173906/2026/04/05/cardinals-vs-tigers-stream-how-to-watch-april-5/
+
+**'A hidden secret': Why the stigma of eating disorders persists in women's college basketball**\
+`Former Oregon player Jennah Isai dreamed of playing in the Final Four one day. She stepped away from the sport to focus on healing.`\
+https://nytimes.com/athletic/7172389/2026/04/05/womens-college-basketball-eating-disorder-stigma/
+
 **How to watch Clippers vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Sacramento Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173882/2026/04/05/clippers-vs-kings-stream-how-to-watch-april-5/
