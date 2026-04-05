@@ -1,3 +1,7 @@
+**Michigan's Dusty May removes name from UNC coaching search: Sources**\
+`May is the second Final Four coach this weekend to spurn UNC interest, joining Arizona's Tommy Lloyd.`\
+https://nytimes.com/athletic/7174389/2026/04/05/dusty-may-michigan-unc-coaching-search/
+
 **U.S. Military Rescues Airman Stranded in Iran**\
 `An Air Force officer whose fighter jet was shot down in Iran was rescued by U.S. Special Operations forces in a risky Saturday night mission that took commandos deep into enemy territory, President Trump said on social media early on Sunday.`\
 https://nytimes.com/video/world/middleeast/100000010823371/military-iran-airman-rescue.html
