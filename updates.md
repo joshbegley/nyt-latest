@@ -1,3 +1,15 @@
+**First look at the national championship game: UConn-Michigan could be an all-timer**\
+`Both teams are eyeing wins that would border on legendary for each program. `\
+https://nytimes.com/athletic/7172827/2026/04/04/uconn-michigan-national-championship-title-game-ncaam/
+
+**Inside Sabres' anticlimactic clinch day: A drought ended, followed by another alarming loss**\
+`After clinching a playoff berth while still in street clothes thanks to another team, the Sabres laid another egg against the Capitals.`\
+https://nytimes.com/athletic/7172919/2026/04/04/sabres-nhl-playoffs-clinch-drought-capitals/
+
+**Pistons clinch No. 1 seed in East for first time since 2007 with win over 76ers**\
+`Detroit just continues to exceed expectations, as it has since the beginning of last season.`\
+https://nytimes.com/athletic/7172723/2026/04/04/pistons-first-seed-76ers-nba-playoffs/
+
 **Screenwriters Union and Studios Swiftly Reach Tentative Deal**\
 `With the global entertainment business reeling during a period of rapid change, there was little enthusiasm on either side for a costly standoff.`\
 https://nytimes.com/2026/04/04/business/media/hollywood-writers-contract-deal.html
