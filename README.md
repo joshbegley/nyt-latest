@@ -1,3 +1,7 @@
+**How to watch Cardinals vs. Tigers: Time, TV, streaming for April 5**\
+`Find out how to watch the St. Louis Cardinals play the Detroit Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173906/2026/04/05/cardinals-vs-tigers-stream-how-to-watch-april-5/
+
 **'A hidden secret': Why the stigma of eating disorders persists in women's college basketball**\
 `Former Oregon player Jennah Isai dreamed of playing in the Final Four one day. She stepped away from the sport to focus on healing.`\
 https://nytimes.com/athletic/7172389/2026/04/05/womens-college-basketball-eating-disorder-stigma/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7173782/2026/04/05/how-to-watch-lakers-vs-mavericks
 **OPEC Plus Warns of Slow Recovery After War in Iran**\
 `The group of influential oil exporters also said it was increasing its production quotas, a largely symbolic move.`\
 https://nytimes.com/2026/04/05/business/opec-plus-oil-production-iran.html
-
-**How Matheus Nunes exploited the spaces around Liverpool's defence**\
-`Under Guardiola, every City player can be a threat if afforded space - as Saturday's game proved`\
-https://nytimes.com/athletic/7171925/2026/04/05/matheus-nunes-man-city-liverpool/
 
