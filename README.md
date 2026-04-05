@@ -1,3 +1,7 @@
+**Gray Skies but Pastels Aplenty at the Easter Parade**\
+`April showers brought silk flowers on Sunday, as New Yorkers promenaded along Fifth Avenue in Manhattan for the annual Easter Parade and Bonnet Festival.`\
+https://nytimes.com/2026/04/05/style/nyc-easter-parade-bonnet-festival-fifth-avenue-photos.html
+
 **How Democrats and Republicans Are Clashing in Week 6 of the Iran War**\
 `A swing-district Republican called the war an “incredible operation,” and President Trump drew backlash from political figures in both parties over a social media post.`\
 https://nytimes.com/2026/04/05/us/politics/democrats-republicans-trump-iran-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7173993/2026/04/05/how-to-watch-rockets-vs-warriors
 **Trump Revels in Threats to Commit War Crimes in Iran**\
 `The president said he would bomb Iran “back to the Stone Ages.” Until this administration, American leaders had insisted they were trying to follow international law in war.`\
 https://nytimes.com/2026/04/05/us/politics/trump-iran-war-crimes-truth-social.html
-
-**Astros ace Brown placed on injured list with right shoulder strain**\
-`Astros manager Joe Espada said Brown felt the injury Friday during his throwing program and traveled back to Houston to visit team doctors.`\
-https://nytimes.com/athletic/7173898/2026/04/05/houston-astros-hunter-brown-shoulder-injury/
 
