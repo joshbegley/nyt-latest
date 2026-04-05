@@ -1,3 +1,7 @@
+**How the C.I.A. Helped Locate a U.S. Airman Hiding on an Iranian Ridgeline**\
+`The intelligence agency also executed a deception campaign aimed at drawing Iranian forces away from where the missing Air Force officer was hiding.`\
+https://nytimes.com/2026/04/05/world/middleeast/cia-us-airman-rescue-iran.html
+
 **Former Matador Is Gored to Death Before Annual Bullfight in Spain**\
 `The accident happened before the Corrida Picassiana, an annual event in Malaga that honors the painter Pablo Picasso.`\
 https://nytimes.com/2026/04/05/world/europe/matador-dead-bull-fighting-malaga.html
