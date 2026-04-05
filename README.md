@@ -1,3 +1,7 @@
+**Michigan's Dusty May removes name from UNC coaching search: Sources**\
+`May is the second Final Four coach this weekend to spurn UNC interest, joining Arizona's Tommy Lloyd.`\
+https://nytimes.com/athletic/7174389/2026/04/05/dusty-may-michigan-unc-coaching-search/
+
 **U.S. Military Rescues Airman Stranded in Iran**\
 `An Air Force officer whose fighter jet was shot down in Iran was rescued by U.S. Special Operations forces in a risky Saturday night mission that took commandos deep into enemy territory, President Trump said on social media early on Sunday.`\
 https://nytimes.com/video/world/middleeast/100000010823371/military-iran-airman-rescue.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/05/world/iran-hormuz-rescue-trump-ultimatum.html
 **A Food Pantry Network Suddenly Shuttered, Leaving Thousands Scrambling**\
 `Ruby’s Pantry had 85 locations in communities in Minnesota, Wisconsin, North Dakota and Iowa.`\
 https://nytimes.com/2026/04/05/us/midwest-food-bank-rubys-pantry.html
-
-**3 Dead After High Winds Topple Tree During Easter Egg Hunt in Germany**\
-`A 21-year-old woman, her baby and a 16-year-old girl were killed after a nearly 100-foot tree fell in a wooded area in northern Germany, the police said.`\
-https://nytimes.com/2026/04/05/us/germany-easter-egg-hunt-tree-kills-3.html
 
