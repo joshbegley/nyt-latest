@@ -1,3 +1,19 @@
+**A Harrowing Race Against Time to Find a Downed U.S. Airman in Iran**\
+`For the Iranians, the Air Force colonel whose fighter jet had been shot down was possible leverage. For the U.S. military, finding him was a moral imperative.`\
+https://nytimes.com/2026/04/05/us/iran-airman-fighter-jet-rescue-mission.html
+
+**How to watch Blues vs. Avalanche: Time, TV, streaming**\
+`Find out how to watch the St. Louis Blues play the Colorado Avalanche, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7174099/2026/04/05/blues-vs-avalanche-stream-how-to-watch-april-5/
+
+**Astros place Hunter Brown on injured list with right shoulder strain**\
+`Astros manager Joe Espada said Brown felt the injury Friday during his throwing program and traveled back to Houston to visit team doctors.`\
+https://nytimes.com/athletic/7173898/2026/04/05/houston-astros-hunter-brown-shoulder-injury/
+
+**How to watch Cardinals vs. Tigers: Time, TV, streaming for April 5**\
+`Find out how to watch the St. Louis Cardinals play the Detroit Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173906/2026/04/05/how-to-watch-cardinals-vs-tigers-tv-channel-and-streaming-options-for-april-5/
+
 **Martinelli not expected to face FA sanction for pushing referee**\
 `Martinelli, 24, was shown a yellow card in stoppage time of his side's FA Cup quarter-final loss to Southampton.`\
 https://nytimes.com/athletic/7174004/2026/04/05/gabriel-martinelli-arsenal-referee-push/

@@ -1,3 +1,11 @@
+**A Harrowing Race Against Time to Find a Downed U.S. Airman in Iran**\
+`For the Iranians, the Air Force colonel whose fighter jet had been shot down was possible leverage. For the U.S. military, finding him was a moral imperative.`\
+https://nytimes.com/2026/04/05/us/iran-airman-fighter-jet-rescue-mission.html
+
+**How to watch Blues vs. Avalanche: Time, TV, streaming**\
+`Find out how to watch the St. Louis Blues play the Colorado Avalanche, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7174099/2026/04/05/blues-vs-avalanche-stream-how-to-watch-april-5/
+
 **Martinelli not expected to face FA sanction for pushing referee**\
 `Martinelli, 24, was shown a yellow card in stoppage time of his side's FA Cup quarter-final loss to Southampton.`\
 https://nytimes.com/athletic/7174004/2026/04/05/gabriel-martinelli-arsenal-referee-push/
@@ -19,22 +27,14 @@ https://nytimes.com/athletic/7173993/2026/04/05/how-to-watch-rockets-vs-warriors
 https://nytimes.com/2026/04/05/us/politics/trump-iran-war-crimes-truth-social.html
 
 **Astros place Hunter Brown on injured list with right shoulder strain**\
-`The right-hander began the season 1-0, with a 0.84 ERA and 17 strikeouts in 10 2/3 innings over two starts.`\
+`Astros manager Joe Espada said Brown felt the injury Friday during his throwing program and traveled back to Houston to visit team doctors.`\
 https://nytimes.com/athletic/7173898/2026/04/05/houston-astros-hunter-brown-shoulder-injury/
 
 **How to watch Cardinals vs. Tigers: Time, TV, streaming for April 5**\
 `Find out how to watch the St. Louis Cardinals play the Detroit Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7173906/2026/04/05/cardinals-vs-tigers-stream-how-to-watch-april-5/
+https://nytimes.com/athletic/7173906/2026/04/05/how-to-watch-cardinals-vs-tigers-tv-channel-and-streaming-options-for-april-5/
 
 **'A hidden secret': Why the stigma of eating disorders persists in women's college basketball**\
 `Former Oregon player Jennah Isai dreamed of playing in the Final Four one day. She stepped away from the sport to focus on healing.`\
 https://nytimes.com/athletic/7172389/2026/04/05/womens-college-basketball-eating-disorder-stigma/
-
-**How to watch Clippers vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Clippers play the Sacramento Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7173882/2026/04/05/how-to-watch-clippers-vs-kings-tv-channel-and-streaming-options-for-april-5/
-
-**Dodgers to place Mookie Betts on 10-day IL with right oblique strain**\
-`The Dodgers believe Betts aggravated his oblique on a check swing during Saturday's game against the Nationals.`\
-https://nytimes.com/athletic/7172624/2026/04/05/dodgers-mookie-betts-oblique-strain-injured-list/
 
