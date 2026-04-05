@@ -1,3 +1,7 @@
+**The Briefing: West Ham 2 Leeds 2 (Leeds win on penalties) – Farke's side reach first FA Cup semi-final for 39 years**\
+`Leeds United have reached an FA Cup semi-final for the first time in 39 years after a penalty shootout victory over West Ham`\
+https://nytimes.com/athletic/7168803/2026/04/05/west-ham-leeds-score-result-report-analysis/
+
 **A Harrowing Race Against Time to Find a Downed U.S. Airman in Iran**\
 `For the Iranians, the Air Force colonel whose fighter jet had been shot down was possible leverage. For the U.S. military, finding him was a moral imperative.`\
 https://nytimes.com/2026/04/05/us/iran-airman-fighter-jet-rescue-mission.html

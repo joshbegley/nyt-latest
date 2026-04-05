@@ -14,8 +14,8 @@ https://nytimes.com/athletic/7174004/2026/04/05/gabriel-martinelli-arsenal-refer
 `The semi-final ties will be played the weekend of April 25-26.`\
 https://nytimes.com/athletic/7173404/2026/04/05/fa-cup-semi-final-draw-2026/
 
-**The Briefing: West Ham 2 Leeds 2 (Leeds win on penalties) - Farke's side reach first FA Cup semi-final for 39 years**\
-`Leeds United have reached an FA Cup semi-final for the first time in 39 years after a dramatic penalty shootout victory over West Ham`\
+**The Briefing: West Ham 2 Leeds 2 (Leeds win on penalties) – Farke's side reach first FA Cup semi-final for 39 years**\
+`Leeds United have reached an FA Cup semi-final for the first time in 39 years after a penalty shootout victory over West Ham`\
 https://nytimes.com/athletic/7168803/2026/04/05/west-ham-leeds-score-result-report-analysis/
 
 **How to watch Rockets vs. Warriors: Time, TV, streaming**\
