@@ -1,3 +1,7 @@
+**UConn's Dan Hurley jokes he's had 'a negative influence on Geno' Auriemma**\
+`Hurley, who is known for his temper, also offered support for his UConn colleague.`\
+https://nytimes.com/athletic/7172866/2026/04/04/dan-hurley-responds-geno-auriemma-dawn-staley-statement/
+
 **PWHL game at Madison Square Garden sets U.S. women's hockey attendance record**\
 `A sold-out crowd of 18,006 fans watched the New York Sirens take on the Seattle Torrent in the league’s debut at MSG.`\
 https://nytimes.com/athletic/7172775/2026/04/04/pwhl-womens-hockey-attendance-record-madison-square-garden/

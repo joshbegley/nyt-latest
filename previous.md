@@ -1,3 +1,7 @@
+**UConn's Dan Hurley jokes he's had 'a negative influence on Geno' Auriemma**\
+`Hurley, who is known for his temper, also offered support for his UConn colleague.`\
+https://nytimes.com/athletic/7172866/2026/04/04/dan-hurley-responds-geno-auriemma-dawn-staley-statement/
+
 **PWHL game at Madison Square Garden sets U.S. women's hockey attendance record**\
 `A sold-out crowd of 18,006 fans watched the New York Sirens take on the Seattle Torrent in the league’s debut at MSG.`\
 https://nytimes.com/athletic/7172775/2026/04/04/pwhl-womens-hockey-attendance-record-madison-square-garden/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7172669/2026/04/04/lionel-messi-goal-inter-miami-au
 **UConn outlasts Illinois to advance to third national championship game in 4 years**\
 `UConn has won 19 straight games in the Sweet 16 or later in NCAA tournaments.`\
 https://nytimes.com/athletic/7172449/2026/04/04/uconn-illinois-final-four-score-takeaways/
-
-**Deontay Wilder wins heavyweight brawl vs. Derek Chisora via split decision**\
-`Wilder got the decision after knocking down Chisora in the eighth round of a scrappy affair at London's O2 Arena.`\
-https://nytimes.com/athletic/7172546/2026/04/04/wilder-beats-chisora-slit-decision-heavyweight-fight/
 
