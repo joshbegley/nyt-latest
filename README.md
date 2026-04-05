@@ -1,3 +1,15 @@
+**The New York Times in Print for Sunday, April 5, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/04/05/todays-new-york-times
+
+**Resurrection Is Everywhere**\
+`Marriages, careers, reputations, financial stability and dreams can all die. But that’s not the end of the story.`\
+https://nytimes.com/2026/04/05/opinion/easter-sunday-resurrection.html
+
+**Women Need Treatment for Hot Flashes. Why Is This So Hard?**\
+`Hormone patches are in scarce supply because of increased demand — that’s mostly a good thing.`\
+https://nytimes.com/2026/04/05/opinion/estrogen-hormone-therapy-patches-shortage.html
+
 **Dan Hurley's UConn is back in the title game. And he's entering rarefied air**\
 `Saturday’s win reinforced Hurley as the best postseason coach of the modern era, with an 18-1 record over his last 19 NCAA Tournament games.`\
 https://nytimes.com/athletic/7173008/2026/04/05/dan-hurley-uconn-dynasty-national-championship-game-illinois/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7166434/2026/04/05/tottenham-robert-de-zerbi-who/
 **Is Gianni Infantino right? Would football not exist in '150 countries' without FIFA?**\
 `Gianni Infantino claimed football would not exist in 150 countries without FIFA — could he be making a genuine point?`\
 https://nytimes.com/athletic/7157477/2026/04/05/fifa-150-countries-football-survive/
-
-**From 1956 to 2009: The first player born in each year to score in the Premier League**\
-`Max Dowman's goal against Everton means the Premier League has had a scorer born in every year of the 1960s, 1970s, 1980s, 1990s and 2000s`\
-https://nytimes.com/athletic/7125245/2026/04/05/premier-league-scorers-each-year-dowman/
-
-**Why Fenerbahce turned to Europe's youngest sporting director to break their title drought**\
-`Devin Ozek is only 30 but, having played his part in Bayer Leverkusen's rise, swapped Germany for the pressure-cooker of Istanbul football`\
-https://nytimes.com/athletic/7073175/2026/04/05/fenerbahce-devin-ozek-sporting-director-bayer-leverkusen/
-
-**Blue Jackets hold players-only meeting as downward spiral continues**\
-`"We're a better team than we've shown, and we just talked about it," Zach Werenski said of the meeting after Columbus' loss to Winnipeg.`\
-https://nytimes.com/athletic/7172735/2026/04/05/blue-jackets-players-only-meeting-nhl-playoffs/
 
