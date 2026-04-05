@@ -1,3 +1,15 @@
+**Men's college basketball national title odds: Michigan is favored by how much?!**\
+`Michigan enters Monday's national title game against UConn as one of the biggest favorites in recent memory.`\
+https://nytimes.com/athletic/7172916/2026/04/05/mens-college-basketball-national-championship-odds-michigan-arizona/
+
+**Man Utd want Elliot Anderson. Does he work in a midfield pair with Kobbie Mainoo?**\
+`Mainoo and Anderson played alongside each other for England. Could this be a sign of things to come for Manchester United?`\
+https://nytimes.com/athletic/7166618/2026/04/05/manchester-united-kobbie-mainoo-elliot-anderson-analysis/
+
+**Roberto De Zerbi is Tottenham's new risk taker who helps people 'see football a new way'**\
+`Tottenham have appointed Roberto De Zerbi as their new head coach — this is his history`\
+https://nytimes.com/athletic/7166434/2026/04/05/tottenham-robert-de-zerbi-who/
+
 **Is Gianni Infantino right? Would football not exist in '150 countries' without FIFA?**\
 `Gianni Infantino claimed football would not exist in 150 countries without FIFA — could he be making a genuine point?`\
 https://nytimes.com/athletic/7157477/2026/04/05/fifa-150-countries-football-survive/
