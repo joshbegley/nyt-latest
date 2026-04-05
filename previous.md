@@ -1,3 +1,7 @@
+**How to watch Celta de Vigo vs. Valencia in the U.S.**\
+`Find out how to watch Celta de Vigo play Valencia, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173156/2026/04/05/celta-de-vigo-vs-valencia-stream-how-to-watch-la-liga-april-5/
+
 **How to watch FC St. Pauli vs. Union Berlin in the U.S.**\
 `Find out how to watch FC St. Pauli play Union Berlin, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173147/2026/04/05/fc-st-pauli-vs-union-berlin-stream-how-to-watch-bundesliga-april-5/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7173116/2026/04/05/connections-sports-edition-hints
 **Liverpool plugged the gaps against Manchester City - until they didn't**\
 `Arne Slot's side were set up to keep Man City at bay but when it slipped, they were punished`\
 https://nytimes.com/athletic/7172363/2026/04/05/liverpool-manchester-city-gaps-facup/
-
-**Arsenal's season has narrowed. Can Arteta galvanise squad with so much still at stake?**\
-`Southampton were seen by some as an easy route through to the semi-finals for the north London team. Yet it proved to be anything but`\
-https://nytimes.com/athletic/7172388/2026/04/05/arsenal-southampton-fa-cup-defeat/
 

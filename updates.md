@@ -1,3 +1,7 @@
+**How to watch Celta de Vigo vs. Valencia in the U.S.**\
+`Find out how to watch Celta de Vigo play Valencia, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173156/2026/04/05/celta-de-vigo-vs-valencia-stream-how-to-watch-la-liga-april-5/
+
 **How to watch FC St. Pauli vs. Union Berlin in the U.S.**\
 `Find out how to watch FC St. Pauli play Union Berlin, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173147/2026/04/05/fc-st-pauli-vs-union-berlin-stream-how-to-watch-bundesliga-april-5/
