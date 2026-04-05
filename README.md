@@ -1,3 +1,15 @@
+**Men's college basketball national title odds: Michigan is favored by how much?!**\
+`Michigan enters Monday's national title game against UConn as one of the biggest favorites in recent memory.`\
+https://nytimes.com/athletic/7172916/2026/04/05/mens-college-basketball-national-championship-odds-michigan-arizona/
+
+**Man Utd want Elliot Anderson. Does he work in a midfield pair with Kobbie Mainoo?**\
+`Mainoo and Anderson played alongside each other for England. Could this be a sign of things to come for Manchester United?`\
+https://nytimes.com/athletic/7166618/2026/04/05/manchester-united-kobbie-mainoo-elliot-anderson-analysis/
+
+**Roberto De Zerbi is Tottenham's new risk taker who helps people 'see football a new way'**\
+`Tottenham have appointed Roberto De Zerbi as their new head coach — this is his history`\
+https://nytimes.com/athletic/7166434/2026/04/05/tottenham-robert-de-zerbi-who/
+
 **Is Gianni Infantino right? Would football not exist in '150 countries' without FIFA?**\
 `Gianni Infantino claimed football would not exist in 150 countries without FIFA — could he be making a genuine point?`\
 https://nytimes.com/athletic/7157477/2026/04/05/fifa-150-countries-football-survive/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/04/04/us/politics/military-iran-airman-rescue.html
 **Quote of the Day: How a Man, His Brother and A.I. Built a $1.8 Billion Company**\
 `Quotation of the Day for Sunday, April 5, 2026.`\
 https://nytimes.com/2026/04/04/pageoneplus/quote-of-the-day-how-a-man-his-brother-and-ai-built-a-1-8-billion-company.html
-
-**First look at the national championship game: UConn-Michigan could be an all-timer**\
-`Both teams are eyeing wins that would border on legendary for each program. `\
-https://nytimes.com/athletic/7172827/2026/04/04/uconn-michigan-national-championship-title-game-ncaam/
-
-**Inside Sabres' anticlimactic clinch day: A drought ended, followed by another alarming loss**\
-`After clinching a playoff berth while still in street clothes thanks to another team, the Sabres laid another egg against the Capitals.`\
-https://nytimes.com/athletic/7172919/2026/04/04/sabres-nhl-playoffs-clinch-drought-capitals/
-
-**Screenwriters Union and Studios Swiftly Reach Tentative Deal**\
-`With the global entertainment business reeling during a period of rapid change, there was little enthusiasm on either side for a costly standoff.`\
-https://nytimes.com/2026/04/04/business/media/hollywood-writers-contract-deal.html
 
