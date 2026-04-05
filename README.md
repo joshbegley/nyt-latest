@@ -1,3 +1,7 @@
+**Reed Sheppard or Tari Eason: Who should be the Rockets' 5th starter for postseason play?**\
+`Eason and Sheppard have given Ime Udoka and his staff a lot to consider regarding Houston's starting lineup with the playoffs approaching.`\
+https://nytimes.com/athletic/7173206/2026/04/05/rockets-reed-sheppard-tari-eason-starting-lineup/
+
 **Canadiens complete perfect road trip, earn opportunity to do special things at home**\
 `The Canadiens were less than the best version of themselves and still came out of New Jersey with their eighth straight win. `\
 https://nytimes.com/athletic/7173073/2026/04/05/canadiens-devils-win-nhl-standings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7172839/2026/04/05/twins-aggressive-abs-team-mlb/
 **Is Christianity Making a Comeback?**\
 `Some see Easter Sunday’s packed pews and overflowing chapels as a sign of a religious revival. But experts are urging caution.`\
 https://nytimes.com/2026/04/05/briefing/easte-christian-revival-trump.html
-
-**Why the Moon Mission Is a Redemption Story**\
-`Today is Easter, and the fourth day of Passover. Both holidays are centered on redemption stories. So I’ve been thinking about what these stories are, why they stick and how they are appearing now.`\
-https://nytimes.com/2026/04/05/briefing/easter-passover-artemis-moon.html
 
