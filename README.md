@@ -1,3 +1,7 @@
+**Dodgers' Mookie Betts (back) to undergo MRI; IL stint possible**\
+`The Dodgers shortstop tweaked his back running the bases in the first inning against the Washington Nationals, manager Dave Roberts said.`\
+https://nytimes.com/athletic/7172683/2026/04/04/dodgers-mookie-betts-back-injury-mri/
+
 **Here’s What Happened in the War in the Middle East on Saturday**\
 `The U.S. military’s search-and-rescue operation for a missing American airman entered its second day. The Israeli military struck a major petrochemical complex in Iran.`\
 https://nytimes.com/2026/04/04/world/middleeast/iran-israel-us-war-middle-east.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7172575/2026/04/04/geno-auriemma-returns-uconn-2027
 **Blue Jays' sloppy losses could spark tough conversations, roster moves**\
 `A 4-4 start is no reason to panic, but Toronto manager John Schneider acknowledges that "we've had some games that scream ‘not us.’"`\
 https://nytimes.com/athletic/7172455/2026/04/04/blue-jays-white-sox-losses/
-
-**Israel Strikes Iran’s Largest Petrochemical Complex**\
-`The sprawling complex in the city of Mahshahr was taken offline after strikes hit two utility plants that provided basic services like gas and power, Iranian officials said.`\
-https://nytimes.com/2026/04/04/world/middleeast/israel-strikes-mahshahr-iran-oil.html
 
