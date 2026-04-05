@@ -1,4 +1,8 @@
-**Arsenal's season has narrowed. Now Arteta must galvanise squad with so much still at stake**\
+**Liverpool plugged the gaps against Manchester City - until they didn't**\
+`Arne Slot's side were set up to keep Man City at bay but when it slipped, they were punished`\
+https://nytimes.com/athletic/7172363/2026/04/05/liverpool-manchester-city-gaps-facup/
+
+**Arsenal's season has narrowed. Can Arteta galvanise squad with so much still at stake?**\
 `Southampton were seen by some as an easy route through to the semi-finals for the north London team. Yet it proved to be anything but`\
 https://nytimes.com/athletic/7172388/2026/04/05/arsenal-southampton-fa-cup-defeat/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7172936/2026/04/05/son-heung-min-bouanga-lafc-hat-t
 **The glue. The brains. The heartbeat. Bernardo Silva**\
 `Pep Guardiola still regards Bernardo Silva as indispensable - and the secret is his subtlety`\
 https://nytimes.com/athletic/6906334/2026/04/05/bernardo-silva-still-manchester-citys-glue-brains-and-heartbeat/
-
-**Men's college basketball national title odds: Michigan is favored by how much?!**\
-`Michigan enters Monday's national title game against UConn as one of the biggest favorites in recent memory.`\
-https://nytimes.com/athletic/7172916/2026/04/05/mens-college-basketball-national-championship-odds-michigan-arizona/
 

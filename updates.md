@@ -1,3 +1,11 @@
+**Liverpool plugged the gaps against Manchester City - until they didn't**\
+`Arne Slot's side were set up to keep Man City at bay but when it slipped, they were punished`\
+https://nytimes.com/athletic/7172363/2026/04/05/liverpool-manchester-city-gaps-facup/
+
+**Arsenal's season has narrowed. Can Arteta galvanise squad with so much still at stake?**\
+`Southampton were seen by some as an easy route through to the semi-finals for the north London team. Yet it proved to be anything but`\
+https://nytimes.com/athletic/7172388/2026/04/05/arsenal-southampton-fa-cup-defeat/
+
 **Arsenal's season has narrowed. Now Arteta must galvanise squad with so much still at stake**\
 `Southampton were seen by some as an easy route through to the semi-finals for the north London team. Yet it proved to be anything but`\
 https://nytimes.com/athletic/7172388/2026/04/05/arsenal-southampton-fa-cup-defeat/
