@@ -18,7 +18,7 @@ https://nytimes.com/athletic/7172683/2026/04/04/dodgers-mookie-betts-back-injury
 `The U.S. military’s search-and-rescue operation for a missing American airman entered its second day. The Israeli military struck a major petrochemical complex in Iran.`\
 https://nytimes.com/2026/04/04/world/middleeast/iran-israel-us-war-middle-east.html
 
-**Messi scores Inter Miami's first goal at Nu Stadium, answers Austin's opener**\
+**Messi scores Inter Miami's first goal at Nu Stadium, Suárez salvages draw**\
 `Messi inaugurated his new stadium with a header in front of the Inter Miami supporters section`\
 https://nytimes.com/athletic/7172669/2026/04/04/lionel-messi-goal-inter-miami-austin-fc-nu-stadium/
 
