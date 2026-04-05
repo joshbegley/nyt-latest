@@ -1,3 +1,7 @@
+**How to watch Athletic Bilbao vs. Getafe in the U.S.**\
+`Find out how to watch Athletic Bilbao play Getafe, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173057/2026/04/05/athletic-bilbao-vs-getafe-stream-how-to-watch-la-liga-april-5/
+
 **The New York Times in Print for Sunday, April 5, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/04/05/todays-new-york-times

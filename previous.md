@@ -1,3 +1,7 @@
+**How to watch Athletic Bilbao vs. Getafe in the U.S.**\
+`Find out how to watch Athletic Bilbao play Getafe, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173057/2026/04/05/athletic-bilbao-vs-getafe-stream-how-to-watch-la-liga-april-5/
+
 **The New York Times in Print for Sunday, April 5, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/04/05/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7166618/2026/04/05/manchester-united-kobbie-mainoo-
 **Roberto De Zerbi is Tottenham's new risk taker who helps people 'see football a new way'**\
 `Tottenham have appointed Roberto De Zerbi as their new head coach — this is his history`\
 https://nytimes.com/athletic/7166434/2026/04/05/tottenham-robert-de-zerbi-who/
-
-**Is Gianni Infantino right? Would football not exist in '150 countries' without FIFA?**\
-`Gianni Infantino claimed football would not exist in 150 countries without FIFA — could he be making a genuine point?`\
-https://nytimes.com/athletic/7157477/2026/04/05/fifa-150-countries-football-survive/
 
