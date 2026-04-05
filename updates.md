@@ -1,3 +1,11 @@
+**U.S. Rescues Downed Air Force Officer Deep Inside Iran, Officials Say**\
+`An Air Force officer of a F-15E Strike Eagle shot down on Friday by Iran spent a day in hostile territory with little more than a pistol for protection.`\
+https://nytimes.com/2026/04/04/us/politics/military-iran-airman-rescue.html
+
+**Quote of the Day: How a Man, His Brother and A.I. Built a $1.8 Billion Company**\
+`Quotation of the Day for Sunday, April 5, 2026.`\
+https://nytimes.com/2026/04/04/pageoneplus/quote-of-the-day-how-a-man-his-brother-and-ai-built-a-1-8-billion-company.html
+
 **First look at the national championship game: UConn-Michigan could be an all-timer**\
 `Both teams are eyeing wins that would border on legendary for each program. `\
 https://nytimes.com/athletic/7172827/2026/04/04/uconn-michigan-national-championship-title-game-ncaam/

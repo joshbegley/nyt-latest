@@ -1,3 +1,11 @@
+**U.S. Rescues Downed Air Force Officer Deep Inside Iran, Officials Say**\
+`An Air Force officer of a F-15E Strike Eagle shot down on Friday by Iran spent a day in hostile territory with little more than a pistol for protection.`\
+https://nytimes.com/2026/04/04/us/politics/military-iran-airman-rescue.html
+
+**Quote of the Day: How a Man, His Brother and A.I. Built a $1.8 Billion Company**\
+`Quotation of the Day for Sunday, April 5, 2026.`\
+https://nytimes.com/2026/04/04/pageoneplus/quote-of-the-day-how-a-man-his-brother-and-ai-built-a-1-8-billion-company.html
+
 **First look at the national championship game: UConn-Michigan could be an all-timer**\
 `Both teams are eyeing wins that would border on legendary for each program. `\
 https://nytimes.com/athletic/7172827/2026/04/04/uconn-michigan-national-championship-title-game-ncaam/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7172775/2026/04/04/pwhl-womens-hockey-attendance-re
 **MVP candidates Jokić and Wemby shine in a tense OT win by Nuggets**\
 `After both coaches promoted their stars for the MVP award, Nikola Jokić and Victor Wembanyama went out and made strong cases.`\
 https://nytimes.com/athletic/7172733/2026/04/04/nuggets-spurs-nikola-jokic-victor-wembanyama-mvp/
-
-**Red Sox battle back late but fall to Padres as thin margin for error is magnified**\
-`Boston's hitters had eight strikeouts Saturday and have put the ball in play far too little through the early part of the season.`\
-https://nytimes.com/athletic/7172689/2026/04/04/red-sox-padres-rally-lose-mlb/
-
-**Pistons clinch No. 1 seed in East for first time since 2007 with win over 76ers**\
-`Detroit just continues to exceed expectations, as it has since the beginning of last season.`\
-https://nytimes.com/athletic/7172723/2026/04/04/pistons-first-seed-76ers-nba-playoffs/
 
