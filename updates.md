@@ -1,3 +1,11 @@
+**Gray Skies but Pastels Aplenty at the Easter Parade**\
+`April showers brought silk flowers on Sunday, as New Yorkers promenaded along Fifth Avenue in Manhattan for the annual Easter Parade and Bonnet Festival.`\
+https://nytimes.com/2026/04/05/style/nyc-easter-parade-bonnet-festival-fifth-avenue-photos.html
+
+**How Democrats and Republicans Are Clashing in Week 6 of the Iran War**\
+`A swing-district Republican called the war an “incredible operation,” and President Trump drew backlash from political figures in both parties over a social media post.`\
+https://nytimes.com/2026/04/05/us/politics/democrats-republicans-trump-iran-war.html
+
 **Here’s a Timeline of Trump’s Ultimatums Over the Strait of Hormuz**\
 `President Trump first gave Iran 48 hours to reopen the vital oil shipping route on March 21. The deadline has been reset many times since.`\
 https://nytimes.com/2026/04/05/world/middleeast/trump-strait-of-hormuz-deadline-iran-war.html
