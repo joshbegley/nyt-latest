@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Greg Jaffe, Eric Schmidt, Helene Cooper and Yan Zhuang`\
+https://nytimes.com/live/2026/04/05/world/iran-war-trump-news/heres-the-latest
+
+**Iran War Live Updates: U.S. Rescues Officer From Downed Fighter Jet in Iran, Trump Says**\
+`The rescue followed a two-day, life-or-death race between U.S. and Iranian forces to reach the injured airman, officials said.`\
+https://nytimes.com/live/2026/04/05/world/iran-war-trump-news
+
 **Connections: Sports Edition Coach: Hints and answers for April 5, 2026**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/7173116/2026/04/05/connections-sports-edition-hints-answers-april-5-2026/
