@@ -1,3 +1,11 @@
+**Here’s a Timeline of Trump’s Ultimatums Over the Strait of Hormuz**\
+`President Trump first gave Iran 48 hours to reopen the vital oil shipping route on March 21. The deadline has been reset many times since.`\
+https://nytimes.com/2026/04/05/world/middleeast/trump-strait-of-hormuz-deadline-iran-war.html
+
+**Astros ace Brown placed on injured list with right shoulder strain**\
+`Astros manager Joe Espada said Brown felt the injury Friday during his throwing program and traveled back to Houston to visit team doctors.`\
+https://nytimes.com/athletic/7173898/2026/04/05/houston-astros-hunter-brown-shoulder-injury/
+
 **The Briefing: West Ham 2 Leeds 2 (Leeds win on penalties) – Farke's side reach first FA Cup semi-final for 39 years**\
 `Leeds United have reached an FA Cup semi-final for the first time in 39 years after a penalty shootout victory over West Ham`\
 https://nytimes.com/athletic/7168803/2026/04/05/west-ham-leeds-score-result-report-analysis/
