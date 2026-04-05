@@ -1,3 +1,7 @@
+**ICE Agents Detain Newlywed Spouse of Soldier Training to Deploy**\
+`The 22-year-old wife of an Army staff sergeant came to the U.S. as a toddler. She was taken from a military base where the couple planned to live.`\
+https://nytimes.com/2026/04/05/us/ice-detains-military-wife-soldier-deployment.html
+
 **A Looming Deadline**\
 `We look at the options for reopening the Strait of Hormuz as President Trump escalates his threats.`\
 https://nytimes.com/2026/04/05/world/iran-hormuz-rescue-trump-ultimatum.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7174099/2026/04/05/how-to-watch-blues-vs-avalanche-
 **Martinelli not expected to face FA sanction for pushing referee**\
 `Martinelli, 24, was shown a yellow card in stoppage time of his side's FA Cup quarter-final loss to Southampton.`\
 https://nytimes.com/athletic/7174004/2026/04/05/gabriel-martinelli-arsenal-referee-push/
-
-**FA Cup semi-final draw: Chelsea vs. Leeds, Man City to play Southampton**\
-`The semi-final ties will be played the weekend of April 25-26.`\
-https://nytimes.com/athletic/7173404/2026/04/05/fa-cup-semi-final-draw-2026/
 

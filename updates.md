@@ -1,3 +1,11 @@
+**3 Dead After High Winds Topple Tree During Easter Egg Hunt in Germany**\
+`A 21-year-old woman, her baby and a 16-year-old girl were killed after a nearly 100-foot tree fell in a wooded area in northern Germany, the police said.`\
+https://nytimes.com/2026/04/05/us/germany-easter-egg-hunt-tree-kills-3.html
+
+**How to watch Blues vs. Avalanche: Time, TV, streaming**\
+`Find out how to watch the St. Louis Blues play the Colorado Avalanche, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7174099/2026/04/05/how-to-watch-blues-vs-avalanche-tv-channel-and-streaming-options-for-april-5/
+
 **A Looming Deadline**\
 `We look at the options for reopening the Strait of Hormuz as President Trump escalates his threats.`\
 https://nytimes.com/2026/04/05/world/iran-hormuz-rescue-trump-ultimatum.html
