@@ -1,3 +1,11 @@
+**How to watch Astros vs. Athletics: Time, TV, streaming for April 5**\
+`Find out how to watch the Houston Astros play the Athletics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173508/2026/04/05/astros-vs-athletics-stream-how-to-watch-april-5/
+
+**How to watch Mariners vs. Angels: Time, TV, streaming for April 5**\
+`Find out how to watch the Seattle Mariners play the Los Angeles Angels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173501/2026/04/05/mariners-vs-angels-stream-how-to-watch-april-5/
+
 **On ‘S.N.L.,’ Bondi Boasts of Being ‘First Woman Ever Fired as Attorney General’**\
 `Ashley Padilla was both Pam Bondi and Kristi Noem on “Saturday Night Live,” with Tina Fey, Candice Bergen and Melissa McCarthy. Jack Black and Jack White were host and musical guest.`\
 https://nytimes.com/2026/04/05/arts/television/on-snl-bondi-boasts-shes-first-woman-fired-as-attorney-general.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7172113/2026/04/05/boat-race-tradition-future/
 **How to watch Wizards vs. Nets: Time, TV, streaming**\
 `Find out how to watch the Washington Wizards play the Brooklyn Nets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173382/2026/04/05/how-to-watch-wizards-vs-nets-tv-channel-and-streaming-options-for-april-5/
-
-**How to watch Suns vs. Bulls: Time, TV, streaming**\
-`Find out how to watch the Phoenix Suns play the Chicago Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7173380/2026/04/05/how-to-watch-suns-vs-bulls-tv-channel-and-streaming-options-for-april-5/
-
-**How to watch Grizzlies vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the Memphis Grizzlies play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7173376/2026/04/05/how-to-watch-grizzlies-vs-bucks-tv-channel-and-streaming-options-for-april-5/
 
