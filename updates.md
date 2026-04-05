@@ -1,3 +1,11 @@
+**How to watch Astros vs. Athletics: Time, TV, streaming for April 5**\
+`Find out how to watch the Houston Astros play the Athletics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173508/2026/04/05/astros-vs-athletics-stream-how-to-watch-april-5/
+
+**How to watch Mariners vs. Angels: Time, TV, streaming for April 5**\
+`Find out how to watch the Seattle Mariners play the Los Angeles Angels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173501/2026/04/05/mariners-vs-angels-stream-how-to-watch-april-5/
+
 **On ‘S.N.L.,’ Bondi Boasts of Being ‘First Woman Ever Fired as Attorney General’**\
 `Ashley Padilla was both Pam Bondi and Kristi Noem on “Saturday Night Live,” with Tina Fey, Candice Bergen and Melissa McCarthy. Jack Black and Jack White were host and musical guest.`\
 https://nytimes.com/2026/04/05/arts/television/on-snl-bondi-boasts-shes-first-woman-fired-as-attorney-general.html
