@@ -1,3 +1,7 @@
+**Bernardo Silva will leave Man City as free agent this summer - Ljinders**\
+`The Portugal midfielder is out of contract at the end of the season and will leave the Etihad as a free agent.`\
+https://nytimes.com/athletic/7173307/2026/04/05/bernardo-silva-man-city-transfer-news/
+
 **ICE Agents Detain Newlywed Spouse of Soldier Training to Deploy**\
 `The 22-year-old wife of an Army staff sergeant came to the U.S. as a toddler. She was taken from a military base where the couple planned to live.`\
 https://nytimes.com/2026/04/05/us/ice-detains-military-wife-soldier-deployment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/05/us/iran-airman-fighter-jet-rescue-mission.html
 **How to watch Blues vs. Avalanche: Time, TV, streaming**\
 `Find out how to watch the St. Louis Blues play the Colorado Avalanche, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7174099/2026/04/05/how-to-watch-blues-vs-avalanche-tv-channel-and-streaming-options-for-april-5/
-
-**Martinelli not expected to face FA sanction for pushing referee**\
-`Martinelli, 24, was shown a yellow card in stoppage time of his side's FA Cup quarter-final loss to Southampton.`\
-https://nytimes.com/athletic/7174004/2026/04/05/gabriel-martinelli-arsenal-referee-push/
 
