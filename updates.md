@@ -1,3 +1,7 @@
+**Trump’s Lesson From Risky Rescue: Threaten to Go Harder at Iran**\
+`In an expletive-laced social media post, the president said Iran should open the Strait of Hormuz or he would bomb bridges and power plants.`\
+https://nytimes.com/2026/04/05/us/politics/trump-risky-rescue-threats-iran.html
+
 **Period to Live Through**\
 `Log on for a new puzzle from John Ewbank.`\
 https://nytimes.com/2026/04/05/crosswords/daily-puzzle-2026-04-06.html
