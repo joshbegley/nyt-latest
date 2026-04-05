@@ -1,3 +1,11 @@
+**Red Sox battle back late but fall to Padres as thin margin for error is magnified**\
+`Boston's hitters had eight strikeouts Saturday and have put the ball in play far too little through the early part of the season.`\
+https://nytimes.com/athletic/7172689/2026/04/04/red-sox-padres-rally-lose-mlb/
+
+**Pistons clinch No. 1 seed in East for first time since 2007 in win over 76ers**\
+`Detroit just continues to exceed expectations, as it has since the beginning of last season.`\
+https://nytimes.com/athletic/7172723/2026/04/04/pistons-first-seed-76ers-nba-playoffs/
+
 **'We played great': Bruins lose to Lightning in an unusual way**\
 `The Bruins allowed the winning goal on what should have been a routine save for Jeremy Swayman.`\
 https://nytimes.com/athletic/7172724/2026/04/04/bruins-lightning-jeremy-swayman-nhl/
