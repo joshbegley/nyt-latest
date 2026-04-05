@@ -1,3 +1,11 @@
+**How to watch Devils vs. Canadiens: Time, TV, streaming**\
+`Find out how to watch the New Jersey Devils play the Montreal Canadiens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173728/2026/04/05/devils-vs-canadiens-stream-how-to-watch-april-5/
+
+**How to watch Capitals vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173726/2026/04/05/capitals-vs-rangers-stream-how-to-watch-april-5/
+
 **Key injuries are ill-timed for the Lakers. LeBron, JJ Redick have been here before**\
 `"I think it's up to all of us, whoever's in the lineup, to pick up our individual play and make plays together," LeBron James said.`\
 https://nytimes.com/athletic/7173096/2026/04/05/lakers-injuries-lebron-jj-redick-luka-austin-reaves-nba/

@@ -1,3 +1,11 @@
+**How to watch Devils vs. Canadiens: Time, TV, streaming**\
+`Find out how to watch the New Jersey Devils play the Montreal Canadiens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173728/2026/04/05/devils-vs-canadiens-stream-how-to-watch-april-5/
+
+**How to watch Capitals vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173726/2026/04/05/capitals-vs-rangers-stream-how-to-watch-april-5/
+
 **Key injuries are ill-timed for the Lakers. LeBron, JJ Redick have been here before**\
 `"I think it's up to all of us, whoever's in the lineup, to pick up our individual play and make plays together," LeBron James said.`\
 https://nytimes.com/athletic/7173096/2026/04/05/lakers-injuries-lebron-jj-redick-luka-austin-reaves-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/05/world/middleeast/cia-us-airman-rescue-iran.html
 **Former Matador Is Gored to Death Before Annual Bullfight in Spain**\
 `The accident happened before the Corrida Picassiana, an annual event in Malaga that honors the painter Pablo Picasso.`\
 https://nytimes.com/2026/04/05/world/europe/matador-dead-bull-fighting-malaga.html
-
-**Lowetide: Oilers sign college forward Owen Michaels, more signings appear imminent**\
-`This spring, the Oilers appear even more aggressive in pursuing college players graduating from the NCAA`\
-https://nytimes.com/athletic/7171725/2026/04/05/edmonton-oilers-owen-michaels-ncaa-signings/
-
-**In New Threats, Trump Seems Emboldened by a Successful Rescue**\
-`In an expletive-filled social media post, Mr. Trump said Iran should open the Strait of Hormuz or he will bomb bridges and power plants.`\
-https://nytimes.com/2026/04/05/world/middleeast/trump-truth-social-post-iran-allah-strait-of-hormuz.html
 
