@@ -1,3 +1,7 @@
+**How to watch Wild vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Minnesota Wild play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173238/2026/04/05/wild-vs-red-wings-stream-how-to-watch-april-5/
+
 **How to watch Cubs vs. Guardians: Time, TV, streaming for April 5**\
 `Find out how to watch the Chicago Cubs play the Cleveland Guardians, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173233/2026/04/05/cubs-vs-guardians-stream-how-to-watch-april-5/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/04/05/world/middleeast/war-middle-east-five
 **$400 Bibles? Luxurious Scripture Is on the Rise.**\
 `“This is actually God’s word,” says one collector. “Why not have a really nice copy of it?”`\
 https://nytimes.com/2026/04/05/us/400-bibles-luxurious-scripture-is-on-the-rise.html
-
-**A Wedding Weekend, No Spouse Required**\
-`For some single women, milestone birthday parties offer the celebratory feel of a wedding, without the marriage.`\
-https://nytimes.com/2026/04/05/style/single-women-birthday-parties-wedding-vibes.html
 

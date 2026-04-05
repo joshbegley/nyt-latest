@@ -1,3 +1,7 @@
+**How to watch Wild vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Minnesota Wild play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173238/2026/04/05/wild-vs-red-wings-stream-how-to-watch-april-5/
+
 **How to watch Cubs vs. Guardians: Time, TV, streaming for April 5**\
 `Find out how to watch the Chicago Cubs play the Cleveland Guardians, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173233/2026/04/05/cubs-vs-guardians-stream-how-to-watch-april-5/

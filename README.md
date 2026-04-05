@@ -1,3 +1,15 @@
+**All eyes on South Carolina and UCLA for national championship fireworks. Will they deliver?**\
+`After blah semifinals and handshake-line controversy, these teams can reclaim the narrative and put on a show for women's hoops fans.`\
+https://nytimes.com/athletic/7172543/2026/04/05/south-carolina-ucla-national-championship-expectations-ncaaw/
+
+**Dawn Staley's silence hits harder than any snide comeback**\
+`After a heated exchange with UConn's Geno Auriemma, Staley refocused and put women's basketball first.`\
+https://nytimes.com/athletic/7172506/2026/04/05/dawn-staley-geno-auriemma-drama-womens-basketball/
+
+**The New York Times International Edition in Print for Monday, April 6, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/04/05/todays-new-york-times-international-edition
+
 **How to watch Wild vs. Red Wings: Time, TV, streaming**\
 `Find out how to watch the Minnesota Wild play the Detroit Red Wings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173238/2026/04/05/wild-vs-red-wings-stream-how-to-watch-april-5/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/04/05/business/box-office-super-mario-galaxy-movie.html
 **Interceptor Missiles Save Lives, but Stockpiles Are Dwindling**\
 `Defense systems that shoot projectiles out of the sky have become one of the most important components of warfare, so much so that militaries face a diminishing supply.`\
 https://nytimes.com/2026/04/05/world/middleeast/iran-war-interceptor-missiles.html
-
-**For People With Autism, Can Restaurant Kitchens Be a Haven?**\
-`Culinary jobs have the potential to be a perfect fit, and a new effort is afoot to help autistic workers land them.`\
-https://nytimes.com/2026/04/05/dining/autism-chefs-restaurants.html
-
-**The Scale of the War in the Middle East in Five Maps**\
-`See how the area of the countries affected by the war compares with other parts of the world.`\
-https://nytimes.com/interactive/2026/04/05/world/middleeast/war-middle-east-five-maps.html
-
-**$400 Bibles? Luxurious Scripture Is on the Rise.**\
-`“This is actually God’s word,” says one collector. “Why not have a really nice copy of it?”`\
-https://nytimes.com/2026/04/05/us/400-bibles-luxurious-scripture-is-on-the-rise.html
 
