@@ -1,3 +1,7 @@
+**Pepsi Drops Sponsorship of London Music Festival Headlined by Ye**\
+`Prime Minister Keir Starmer said he was “deeply concerned” that the rapper known for antisemitic and racist comments had been booked to perform at the Wireless Festival.`\
+https://nytimes.com/2026/04/05/world/europe/ye-music-festival-pepsi-antisemitism.html
+
 **How to watch Lakers vs. Mavericks: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Lakers play the Dallas Mavericks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173782/2026/04/05/lakers-vs-mavericks-stream-how-to-watch-april-5/
