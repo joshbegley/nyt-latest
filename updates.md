@@ -1,3 +1,7 @@
+**Iran War Live Updates: U.S. Rescues Officer From Downed Fighter Jet in Iran, Trump Says**\
+`The rescue followed a two-day race between U.S. and Iranian forces to reach the injured airman, officials said. On Saturday, Israel attacked Iran’s largest petrochemical industrial complex.`\
+https://nytimes.com/live/2026/04/05/world/iran-war-trump-news
+
 **Messi’s Inter Miami opens new stadium befitting MLS’s glitziest club**\
 `Nu Stadium's first game on Saturday came after a long and frustrating road for Inter Miami's ownership`\
 https://nytimes.com/athletic/7169387/2026/04/05/messis-inter-miami-opens-new-stadium-reflective-befitting-of-mlss-glitziest-club/
