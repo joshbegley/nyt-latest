@@ -1,3 +1,11 @@
+**Period to Live Through**\
+`Log on for a new puzzle from John Ewbank.`\
+https://nytimes.com/2026/04/05/crosswords/daily-puzzle-2026-04-06.html
+
+**UCLA clobbers South Carolina for first NCAA national championship**\
+`The Bruins dominated in Phoenix as Dawn Staley's Gamecocks lost the NCAA championship game for the second year in a row.`\
+https://nytimes.com/athletic/7174273/2026/04/05/ucla-womens-march-madness-national-champions-2026/
+
 **A timeout turning point and a Kaprizov hat trick in Wild's nail-biting win: Takeaways**\
 `The Red Wings scored three straight in the third period, but Kaprizov's sixth career hat trick helped secure a regulation win.`\
 https://nytimes.com/athletic/7174235/2026/04/05/wild-kaprizov-hat-trick-tarasenko-red-wings/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/05/style/nyc-easter-parade-bonnet-festival-fifth-ave
 **How Democrats and Republicans Are Clashing in Week 6 of the Iran War**\
 `A swing-district Republican called the war an “incredible operation,” and President Trump drew backlash from political figures in both parties over a social media post.`\
 https://nytimes.com/2026/04/05/us/politics/democrats-republicans-trump-iran-war.html
-
-**Here’s a Timeline of Trump’s Ultimatums Over the Strait of Hormuz**\
-`President Trump first gave Iran 48 hours to reopen the vital oil shipping route on March 21. The deadline has been reset many times since.`\
-https://nytimes.com/2026/04/05/world/middleeast/trump-strait-of-hormuz-deadline-iran-war.html
-
-**A Harrowing Race Against Time to Find a Downed U.S. Airman in Iran**\
-`For the Iranians, the Air Force colonel whose fighter jet had been shot down was possible leverage. For the U.S. military, finding him was a moral imperative.`\
-https://nytimes.com/2026/04/05/us/iran-airman-fighter-jet-rescue-mission.html
 

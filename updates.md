@@ -1,3 +1,11 @@
+**Period to Live Through**\
+`Log on for a new puzzle from John Ewbank.`\
+https://nytimes.com/2026/04/05/crosswords/daily-puzzle-2026-04-06.html
+
+**UCLA clobbers South Carolina for first NCAA national championship**\
+`The Bruins dominated in Phoenix as Dawn Staley's Gamecocks lost the NCAA championship game for the second year in a row.`\
+https://nytimes.com/athletic/7174273/2026/04/05/ucla-womens-march-madness-national-champions-2026/
+
 **A timeout turning point and a Kaprizov hat trick in Wild's nail-biting win: Takeaways**\
 `The Red Wings scored three straight in the third period, but Kaprizov's sixth career hat trick helped secure a regulation win.`\
 https://nytimes.com/athletic/7174235/2026/04/05/wild-kaprizov-hat-trick-tarasenko-red-wings/
