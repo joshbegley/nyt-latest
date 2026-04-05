@@ -1,3 +1,11 @@
+**Messi’s Inter Miami opens new stadium befitting MLS’s glitziest club**\
+`Nu Stadium's first game on Saturday came after a long and frustrating road for Inter Miami's ownership`\
+https://nytimes.com/athletic/7169387/2026/04/05/messis-inter-miami-opens-new-stadium-reflective-befitting-of-mlss-glitziest-club/
+
+**Women's national championship watch guide: UCLA vs. South Carolina in title game**\
+`UCLA arrives in pursuit of its first NCAA title. South Carolina goes for a fourth banner in the last decade.`\
+https://nytimes.com/athletic/7172311/2026/04/05/ucla-south-carolina-womens-basketball-national-championship-2026/
+
 **How to watch Celta de Vigo vs. Valencia in the U.S.**\
 `Find out how to watch Celta de Vigo play Valencia, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173156/2026/04/05/celta-de-vigo-vs-valencia-stream-how-to-watch-la-liga-april-5/
