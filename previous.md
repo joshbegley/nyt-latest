@@ -1,3 +1,7 @@
+**PWHL game at Madison Square Garden sets U.S. women's hockey attendance record**\
+`A sold-out crowd of 18,006 fans watched the New York Sirens take on the Seattle Torrent in the league’s debut at MSG.`\
+https://nytimes.com/athletic/7172775/2026/04/04/pwhl-womens-hockey-attendance-record-madison-square-garden/
+
 **MVP candidates Jokić and Wemby shine in a tense OT win by Nuggets**\
 `After both coaches promoted their stars for the MVP award, Nikola Jokić and Victor Wembanyama went out and made strong cases.`\
 https://nytimes.com/athletic/7172733/2026/04/04/nuggets-spurs-nikola-jokic-victor-wembanyama-mvp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7172449/2026/04/04/uconn-illinois-final-four-score-
 **Deontay Wilder wins heavyweight brawl vs. Derek Chisora via split decision**\
 `Wilder got the decision after knocking down Chisora in the eighth round of a scrappy affair at London's O2 Arena.`\
 https://nytimes.com/athletic/7172546/2026/04/04/wilder-beats-chisora-slit-decision-heavyweight-fight/
-
-**Judge Pauses Trump Demand for Student Race Data in 17 States**\
-`The Trump administration had said it would collect data from colleges to ensure compliance with a Supreme Court ruling ending affirmative action in admissions.`\
-https://nytimes.com/2026/04/04/us/trump-lawsuit-admissions-data.html
 

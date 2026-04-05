@@ -1,3 +1,7 @@
+**PWHL game at Madison Square Garden sets U.S. women's hockey attendance record**\
+`A sold-out crowd of 18,006 fans watched the New York Sirens take on the Seattle Torrent in the league’s debut at MSG.`\
+https://nytimes.com/athletic/7172775/2026/04/04/pwhl-womens-hockey-attendance-record-madison-square-garden/
+
 **MVP candidates Jokić and Wemby shine in a tense OT win by Nuggets**\
 `After both coaches promoted their stars for the MVP award, Nikola Jokić and Victor Wembanyama went out and made strong cases.`\
 https://nytimes.com/athletic/7172733/2026/04/04/nuggets-spurs-nikola-jokic-victor-wembanyama-mvp/
