@@ -1,3 +1,7 @@
+**Is Christianity Making a Comeback?**\
+`Some see Easter Sunday’s packed pews and overflowing chapels as a sign of a religious revival. But experts are urging caution.`\
+https://nytimes.com/2026/04/05/briefing/easte-christian-revival-trump.html
+
 **How to watch Wizards vs. Nets: Time, TV, streaming**\
 `Find out how to watch the Washington Wizards play the Brooklyn Nets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173382/2026/04/05/wizards-vs-nets-stream-how-to-watch-april-5/
