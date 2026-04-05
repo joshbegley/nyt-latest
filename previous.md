@@ -1,3 +1,7 @@
+**Astros place Hunter Brown on injured list with right shoulder strain**\
+`The right-hander began the season 1-0, with a 0.84 ERA and 17 strikeouts in 10 2/3 innings over two starts.`\
+https://nytimes.com/athletic/7173898/2026/04/05/houston-astros-hunter-brown-shoulder-injury/
+
 **How to watch Cardinals vs. Tigers: Time, TV, streaming for April 5**\
 `Find out how to watch the St. Louis Cardinals play the Detroit Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173906/2026/04/05/cardinals-vs-tigers-stream-how-to-watch-april-5/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/05/world/europe/ye-music-festival-pepsi-antisemitism
 **How to watch Lakers vs. Mavericks: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Lakers play the Dallas Mavericks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173782/2026/04/05/how-to-watch-lakers-vs-mavericks-tv-channel-and-streaming-options-for-april-5/
-
-**OPEC Plus Warns of Slow Recovery After War in Iran**\
-`The group of influential oil exporters also said it was increasing its production quotas, a largely symbolic move.`\
-https://nytimes.com/2026/04/05/business/opec-plus-oil-production-iran.html
 
