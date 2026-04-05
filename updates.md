@@ -1,3 +1,7 @@
+**How to watch Clippers vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Clippers play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173882/2026/04/05/how-to-watch-clippers-vs-kings-tv-channel-and-streaming-options-for-april-5/
+
 **Trump Revels in Threats to Commit War Crimes in Iran**\
 `The president said he would bomb Iran “back to the Stone Ages.” Until this administration, American leaders had insisted they were trying to follow international law in war.`\
 https://nytimes.com/2026/04/05/us/politics/trump-iran-war-crimes-truth-social.html
