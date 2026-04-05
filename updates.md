@@ -1,3 +1,43 @@
+**Steph Curry isn’t sitting out. It’s not in his Warriors’ DNA**\
+`Even at the end of one the Warriors' toughest seasons, Curry isn't ready to throw in the towel. `\
+https://nytimes.com/athletic/7152237/2026/04/05/steph-curry-warriors-return-nba/
+
+**Yaxel Lendeborg wants to play in the title game, but will his body let him?**\
+`Yaxel Lendeborg injured his left MCL and ankle in Michigan's win. He was able to return, but will he be available on Monday?`\
+https://nytimes.com/athletic/7173080/2026/04/05/yaxel-lendeborg-michigan-injury-national-championship/
+
+**College Basketball Crown championship: How to watch Oklahoma vs. West Virginia**\
+`The College Basketball Crown championship game features a familiar matchup between Oklahoma and West Virginia. Here's how to watch.`\
+https://nytimes.com/athletic/7172726/2026/04/05/college-basketball-crown-oklahoma-west-virginia-how-to-watch/
+
+**2026 NHL prospect pool rankings: No. 5 Nashville Predators**\
+`The Predators have a claim for the deepest pool in the league, with 16 prospects drafted in the first two rounds.`\
+https://nytimes.com/athletic/7141420/2026/04/05/nashville-predators-nhl-prospect-rankings-2026/
+
+**UCLA's Cori Close can complete her resume by getting Bruins a championship**\
+`Can the Bruins get over the hump and win the national title? `\
+https://nytimes.com/athletic/7173166/2026/04/05/ucla-national-championship-cori-close/
+
+**Jokić vs. Wemby battle sign of things to come as Spurs' playoff test approaches**\
+`Victor Wembanyama faced Nikola Jokić for the first time this season, and the two MVP candidates delivered an epic.`\
+https://nytimes.com/athletic/7172670/2026/04/05/jokic-wembanyama-nuggets-spurs-overtime-duel/
+
+**A Smoldering Wick in the Darkness**\
+`The light that changed my life.`\
+https://nytimes.com/2026/04/05/opinion/easter-vigil-paschal-candle.html
+
+**Want to Change? Maybe Stop Trying So Hard.**\
+`The self-transformation industry sells control. Real change is messier.`\
+https://nytimes.com/2026/04/05/opinion/change-self-transformation-industry.html
+
+**Always Be Posting: The New Rules for Democratic Candidates**\
+`Is this a great way to audition and select our leaders, especially for executive offices? Not particularly.`\
+https://nytimes.com/2026/04/05/opinion/politics-midterms-tiktok-attention-content.html
+
+**She Risked Her Voice to Become a Mother**\
+`For the soprano Lise Davidsen, parenthood has turned her relationship to work – and to her art – into an open question.`\
+https://nytimes.com/2026/04/05/podcasts/the-daily/lise-davidsen-motherhood-voice-met-opera.html
+
 **All eyes on South Carolina and UCLA for national championship fireworks. Will they deliver?**\
 `After blah semifinals and handshake-line controversy, these teams can reclaim the narrative and put on a show for women's hoops fans.`\
 https://nytimes.com/athletic/7172543/2026/04/05/south-carolina-ucla-national-championship-expectations-ncaaw/
