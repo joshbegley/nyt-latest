@@ -1,3 +1,11 @@
+**Screenwriters Union and Studios Swiftly Reach Tentative Deal**\
+`With the global entertainment business reeling during a period of rapid change, there was little enthusiasm on either side for a costly standoff.`\
+https://nytimes.com/2026/04/04/business/media/hollywood-writers-contract-deal.html
+
+**Michigan pummels Arizona to roll into national championship game against UConn**\
+`Michigan has scored 90-plus points and won by double digits in all five of its NCAA Tournament games.`\
+https://nytimes.com/athletic/7172808/2026/04/04/michigan-arizona-final-four-results-national-championship-ncaam-2026/
+
 **'I almost cried': Emotional Evgeni Malkin records hat trick as Penguins rout Panthers**\
 `Malkin netted his 14th career hat trick and passed the 1,400-point mark for his career against Florida on Saturday.`\
 https://nytimes.com/athletic/7171915/2026/04/04/evgeni-malkin-penguins-hat-trick-panthers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7172724/2026/04/04/bruins-lightning-jeremy-swayman-
 **Dodgers' Mookie Betts (back) to undergo MRI; IL stint possible**\
 `The Dodgers shortstop tweaked his back running the bases in the first inning against the Washington Nationals, manager Dave Roberts said.`\
 https://nytimes.com/athletic/7172683/2026/04/04/dodgers-mookie-betts-back-injury-mri/
-
-**Here’s What Happened in the War in the Middle East on Saturday**\
-`The U.S. military’s search-and-rescue operation for a missing American airman entered its second day. The Israeli military struck a major petrochemical complex in Iran.`\
-https://nytimes.com/2026/04/04/world/middleeast/iran-israel-us-war-middle-east.html
-
-**Messi scores Inter Miami's first goal at Nu Stadium, Suárez salvages draw**\
-`Messi inaugurated his new stadium with a header in front of the Inter Miami supporters section`\
-https://nytimes.com/athletic/7172669/2026/04/04/lionel-messi-goal-inter-miami-austin-fc-nu-stadium/
 

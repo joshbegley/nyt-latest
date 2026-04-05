@@ -1,3 +1,11 @@
+**Screenwriters Union and Studios Swiftly Reach Tentative Deal**\
+`With the global entertainment business reeling during a period of rapid change, there was little enthusiasm on either side for a costly standoff.`\
+https://nytimes.com/2026/04/04/business/media/hollywood-writers-contract-deal.html
+
+**Michigan pummels Arizona to roll into national championship game against UConn**\
+`Michigan has scored 90-plus points and won by double digits in all five of its NCAA Tournament games.`\
+https://nytimes.com/athletic/7172808/2026/04/04/michigan-arizona-final-four-results-national-championship-ncaam-2026/
+
 **'I almost cried': Emotional Evgeni Malkin records hat trick as Penguins rout Panthers**\
 `Malkin netted his 14th career hat trick and passed the 1,400-point mark for his career against Florida on Saturday.`\
 https://nytimes.com/athletic/7171915/2026/04/04/evgeni-malkin-penguins-hat-trick-panthers/
