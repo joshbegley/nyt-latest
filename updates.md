@@ -1,3 +1,7 @@
+**Former Matador Is Gored to Death Before Annual Bullfight in Spain**\
+`The accident happened before the Corrida Picassiana, an annual event in Malaga that honors the painter Pablo Picasso.`\
+https://nytimes.com/2026/04/05/world/europe/matador-dead-bull-fighting-malaga.html
+
 **Lowetide: Oilers sign college forward Owen Michaels, more signings appear imminent**\
 `This spring, the Oilers appear even more aggressive in pursuing college players graduating from the NCAA`\
 https://nytimes.com/athletic/7171725/2026/04/05/edmonton-oilers-owen-michaels-ncaa-signings/
