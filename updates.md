@@ -1,3 +1,19 @@
+**After 53 Years, This New Jersey Town’s Fight to Secede Is Over. Kind of.**\
+`South Seaside Park on the Jersey Shore has just succeeded in leaving Berkeley Township and joining its neighbor, Seaside Park, but there are still more challenges ahead.`\
+https://nytimes.com/2026/04/05/nyregion/south-seaside-nj-secession.html
+
+**Uber and Trial Lawyers Spar Over New Yorkers’ Auto Insurance Premiums**\
+`A powerful lawyers’ association is opposing a bill that would cap damages, but the ride-share company has spent millions lobbying state lawmakers to lower rates, some of the highest in the country.`\
+https://nytimes.com/2026/04/05/nyregion/lawyers-uber-auto-insurance.html
+
+**‘The Two of Them Looked at Each Other and Burst Into Laughter ’**\
+`Learning a memory trick at a bus stop, a lost neighborhood recalled and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2026/04/05/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/04/05/crosswords/spelling-bee-forum.html
+
 **Here’s the latest.**\
 `By Greg Jaffe, Eric Schmidt, Helene Cooper and Yan Zhuang`\
 https://nytimes.com/live/2026/04/05/world/iran-war-trump-news/heres-the-latest
