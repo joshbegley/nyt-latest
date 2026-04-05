@@ -1,3 +1,11 @@
+**Deontay Wilder wins heavyweight brawl vs. Derek Chisora via split decision**\
+`Wilder got the decision after putting Chisora on the mat in the eighth round of a scrappy affair at London's O2 Arena.`\
+https://nytimes.com/athletic/7172546/2026/04/04/wilder-beats-chisora-slit-decision-heavyweight-fight/
+
+**Judge Pauses Trump Demand for Student Race Data in 17 States**\
+`The Trump administration had said it would collect data from colleges to ensure compliance with a Supreme Court ruling ending affirmative action in admissions.`\
+https://nytimes.com/2026/04/04/us/trump-lawsuit-admissions-data.html
+
 **Inter Miami opens Nu Stadium after mad dash for occupancy approval**\
 `Inter Miami opened its new venue, Nu Stadium, Saturday night for a game against Austin FC.`\
 https://nytimes.com/athletic/7172530/2026/04/04/inter-miami-nu-stadium-opening-don-garber-mls/
