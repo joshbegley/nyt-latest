@@ -1,3 +1,7 @@
+**Greatest defensive game ever? Jo Adell robs M's of 3 homers in Angels' 1-0 win**\
+`Legendary center fielder Torii Hunter called Adell's feat “probably the greatest defensive game I’ve ever seen.”`\
+https://nytimes.com/athletic/7173003/2026/04/05/angels-jo-adell-robs-3-home-runs/
+
 **How to watch Athletic Bilbao vs. Getafe in the U.S.**\
 `Find out how to watch Athletic Bilbao play Getafe, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173057/2026/04/05/athletic-bilbao-vs-getafe-stream-how-to-watch-la-liga-april-5/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7172916/2026/04/05/mens-college-basketball-national
 **Man Utd want Elliot Anderson. Does he work in a midfield pair with Kobbie Mainoo?**\
 `Mainoo and Anderson played alongside each other for England. Could this be a sign of things to come for Manchester United?`\
 https://nytimes.com/athletic/7166618/2026/04/05/manchester-united-kobbie-mainoo-elliot-anderson-analysis/
-
-**Roberto De Zerbi is Tottenham's new risk taker who helps people 'see football a new way'**\
-`Tottenham have appointed Roberto De Zerbi as their new head coach — this is his history`\
-https://nytimes.com/athletic/7166434/2026/04/05/tottenham-robert-de-zerbi-who/
 
