@@ -1,3 +1,7 @@
+**A Food Pantry Network Suddenly Shuttered, Leaving Thousands Scrambling**\
+`Ruby’s Pantry had 85 locations in communities in Minnesota, Wisconsin, North Dakota and Iowa.`\
+https://nytimes.com/2026/04/05/us/midwest-food-bank-rubys-pantry.html
+
 **3 Dead After High Winds Topple Tree During Easter Egg Hunt in Germany**\
 `A 21-year-old woman, her baby and a 16-year-old girl were killed after a nearly 100-foot tree fell in a wooded area in northeast Germany, the police said.`\
 https://nytimes.com/2026/04/05/us/germany-easter-egg-hunt-tree-kills-3.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7173404/2026/04/05/fa-cup-semi-final-draw-2026/
 **The Briefing: West Ham 2 Leeds 2 (Leeds win on penalties) – Farke's side reach first FA Cup semi-final for 39 years**\
 `Leeds United have reached an FA Cup semi-final for the first time in 39 years after a penalty shootout victory over West Ham`\
 https://nytimes.com/athletic/7168803/2026/04/05/west-ham-leeds-score-result-report-analysis/
-
-**How to watch Rockets vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7173993/2026/04/05/how-to-watch-rockets-vs-warriors-tv-channel-and-streaming-options-for-april-5/
 
