@@ -1,3 +1,11 @@
+**Messi scores Inter Miami's first goal at Nu Stadium, answers Austin's opener**\
+`Messi inaugurated his new stadium with a header in front of the Inter Miami supporters section`\
+https://nytimes.com/athletic/7172669/2026/04/04/lionel-messi-goal-inter-miami-austin-fc-nu-stadium/
+
+**UConn outlasts Illinois to advance to third national championship game in 4 years**\
+`UConn has won 19 straight games in the Sweet 16 or later in NCAA tournaments.`\
+https://nytimes.com/athletic/7172449/2026/04/04/uconn-illinois-final-four-score-takeaways/
+
 **Deontay Wilder wins heavyweight brawl vs. Derek Chisora via split decision**\
 `Wilder got the decision after knocking down Chisora in the eighth round of a scrappy affair at London's O2 Arena.`\
 https://nytimes.com/athletic/7172546/2026/04/04/wilder-beats-chisora-slit-decision-heavyweight-fight/
