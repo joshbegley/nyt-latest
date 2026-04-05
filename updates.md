@@ -1,3 +1,7 @@
+**Greatest defensive game ever? Jo Adell robs M's of 3 homers in Angels' 1-0 win**\
+`Legendary center fielder Torii Hunter called Adell's feat “probably the greatest defensive game I’ve ever seen.”`\
+https://nytimes.com/athletic/7173003/2026/04/05/angels-jo-adell-robs-3-home-runs/
+
 **How to watch Athletic Bilbao vs. Getafe in the U.S.**\
 `Find out how to watch Athletic Bilbao play Getafe, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173057/2026/04/05/athletic-bilbao-vs-getafe-stream-how-to-watch-la-liga-april-5/
