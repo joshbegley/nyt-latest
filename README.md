@@ -1,3 +1,19 @@
+**After 53 Years, This New Jersey Town’s Fight to Secede Is Over. Kind of.**\
+`South Seaside Park on the Jersey Shore has just succeeded in leaving Berkeley Township and joining its neighbor, Seaside Park, but there are still more challenges ahead.`\
+https://nytimes.com/2026/04/05/nyregion/south-seaside-nj-secession.html
+
+**Uber and Trial Lawyers Spar Over New Yorkers’ Auto Insurance Premiums**\
+`A powerful lawyers’ association is opposing a bill that would cap damages, but the ride-share company has spent millions lobbying state lawmakers to lower rates, some of the highest in the country.`\
+https://nytimes.com/2026/04/05/nyregion/lawyers-uber-auto-insurance.html
+
+**‘The Two of Them Looked at Each Other and Burst Into Laughter ’**\
+`Learning a memory trick at a bus stop, a lost neighborhood recalled and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2026/04/05/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/04/05/crosswords/spelling-bee-forum.html
+
 **Here’s the latest.**\
 `By Greg Jaffe, Eric Schmidt, Helene Cooper and Yan Zhuang`\
 https://nytimes.com/live/2026/04/05/world/iran-war-trump-news/heres-the-latest
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7172388/2026/04/05/arsenal-southampton-fa-cup-defea
 **Greatest defensive game ever? Jo Adell robs M's of 3 homers in Angels' 1-0 win**\
 `Legendary center fielder Torii Hunter called Adell's feat “probably the greatest defensive game I’ve ever seen.”`\
 https://nytimes.com/athletic/7173003/2026/04/05/angels-jo-adell-robs-3-home-runs/
-
-**How to watch Athletic Bilbao vs. Getafe in the U.S.**\
-`Find out how to watch Athletic Bilbao play Getafe, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7173057/2026/04/05/athletic-bilbao-vs-getafe-stream-how-to-watch-la-liga-april-5/
-
-**The New York Times in Print for Sunday, April 5, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/04/05/todays-new-york-times
-
-**Resurrection Is Everywhere**\
-`Marriages, careers, reputations, financial stability and dreams can all die. But that’s not the end of the story.`\
-https://nytimes.com/2026/04/05/opinion/easter-sunday-resurrection.html
-
-**Women Need Treatment for Hot Flashes. Why Is This So Hard?**\
-`Hormone patches are in scarce supply because of increased demand — that’s mostly a good thing.`\
-https://nytimes.com/2026/04/05/opinion/estrogen-hormone-therapy-patches-shortage.html
 
