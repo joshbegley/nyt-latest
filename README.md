@@ -7,7 +7,7 @@ https://nytimes.com/2026/04/05/world/iran-hormuz-rescue-trump-ultimatum.html
 https://nytimes.com/2026/04/05/us/midwest-food-bank-rubys-pantry.html
 
 **3 Dead After High Winds Topple Tree During Easter Egg Hunt in Germany**\
-`A 21-year-old woman, her baby and a 16-year-old girl were killed after a nearly 100-foot tree fell in a wooded area in northeast Germany, the police said.`\
+`A 21-year-old woman, her baby and a 16-year-old girl were killed after a nearly 100-foot tree fell in a wooded area in northern Germany, the police said.`\
 https://nytimes.com/2026/04/05/us/germany-easter-egg-hunt-tree-kills-3.html
 
 **Gray Skies but Pastels Aplenty at the Easter Parade**\
@@ -28,7 +28,7 @@ https://nytimes.com/2026/04/05/us/iran-airman-fighter-jet-rescue-mission.html
 
 **How to watch Blues vs. Avalanche: Time, TV, streaming**\
 `Find out how to watch the St. Louis Blues play the Colorado Avalanche, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7174099/2026/04/05/blues-vs-avalanche-stream-how-to-watch-april-5/
+https://nytimes.com/athletic/7174099/2026/04/05/how-to-watch-blues-vs-avalanche-tv-channel-and-streaming-options-for-april-5/
 
 **Martinelli not expected to face FA sanction for pushing referee**\
 `Martinelli, 24, was shown a yellow card in stoppage time of his side's FA Cup quarter-final loss to Southampton.`\

@@ -1,3 +1,7 @@
+**A Looming Deadline**\
+`We look at the options for reopening the Strait of Hormuz as President Trump escalates his threats.`\
+https://nytimes.com/2026/04/05/world/iran-hormuz-rescue-trump-ultimatum.html
+
 **Gray Skies but Pastels Aplenty at the Easter Parade**\
 `April showers brought silk flowers on Sunday as New Yorkers promenaded along Fifth Avenue in Manhattan for the annual Easter Parade and Bonnet Festival.`\
 https://nytimes.com/2026/04/05/style/nyc-easter-parade-bonnet-festival-fifth-avenue-photos.html
