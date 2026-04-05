@@ -1,3 +1,7 @@
+**More Than 70 Migrants Feared Dead After Boat Capsizes Off Libya**\
+`Survivors said at least 100 people were on a boat that had left Libya for Europe. Only 32 of those aboard are known to have survived.`\
+https://nytimes.com/2026/04/05/world/europe/migrants-missing-boat-capsize-libya.html
+
 **How to watch Devils vs. Canadiens: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the Montreal Canadiens, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173728/2026/04/05/devils-vs-canadiens-stream-how-to-watch-april-5/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/05/dining/simple-bread-pudding-spring-vegetables-eve
 **How the C.I.A. Helped Locate a U.S. Airman Hiding on an Iranian Ridgeline**\
 `The intelligence agency also executed a deception campaign aimed at drawing Iranian forces away from where the missing Air Force officer was hiding.`\
 https://nytimes.com/2026/04/05/world/middleeast/cia-us-airman-rescue-iran.html
-
-**Former Matador Is Gored to Death Before Annual Bullfight in Spain**\
-`The accident happened before the Corrida Picassiana, an annual event in Malaga that honors the painter Pablo Picasso.`\
-https://nytimes.com/2026/04/05/world/europe/matador-dead-bull-fighting-malaga.html
 
