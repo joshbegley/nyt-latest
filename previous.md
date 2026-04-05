@@ -1,3 +1,11 @@
+**In New Threats, Trumps Seems Emboldened by a Successful Rescue**\
+`In an expletive-filled social media post, Mr. Trump said Iran should open the Strait of Hormuz or he will bomb bridges and power plants.`\
+https://nytimes.com/2026/04/05/world/middleeast/trump-truth-social-post-iran-allah-strait-of-hormuz.html
+
+**How to watch Pacers vs. Cavaliers: Time, TV, streaming**\
+`Find out how to watch the Indiana Pacers play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173564/2026/04/05/pacers-vs-cavaliers-stream-how-to-watch-april-5/
+
 **How to watch Bruins vs. Flyers: Time, TV, streaming**\
 `Find out how to watch the Boston Bruins play the Philadelphia Flyers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173534/2026/04/05/bruins-vs-flyers-stream-how-to-watch-april-5/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7173501/2026/04/05/mariners-vs-angels-stream-how-to
 **On ‘S.N.L.,’ Bondi Boasts of Being ‘First Woman Ever Fired as Attorney General’**\
 `Ashley Padilla was both Pam Bondi and Kristi Noem on “Saturday Night Live,” with Tina Fey, Candice Bergen and Melissa McCarthy. Jack Black and Jack White were host and musical guest.`\
 https://nytimes.com/2026/04/05/arts/television/on-snl-bondi-boasts-shes-first-woman-fired-as-attorney-general.html
-
-**Iran Is Ending the Dream of Remote-Controlled War**\
-`A.I.’s significant targeting improvements aren’t enough to overcome geography in Iran.`\
-https://nytimes.com/2026/04/05/opinion/iran-ai-war-geography.html
-
-**Not Just for Rock Stars: Playing in the Band**\
-`Readers respond to “Change Your Life. Start a Band,” an Opinion guest essay by Hugo Lindgren. Also: Bruce Springsteen’s art.`\
-https://nytimes.com/2026/04/05/opinion/change-your-life-band.html
 

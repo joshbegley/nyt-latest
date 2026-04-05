@@ -1,3 +1,11 @@
+**In New Threats, Trumps Seems Emboldened by a Successful Rescue**\
+`In an expletive-filled social media post, Mr. Trump said Iran should open the Strait of Hormuz or he will bomb bridges and power plants.`\
+https://nytimes.com/2026/04/05/world/middleeast/trump-truth-social-post-iran-allah-strait-of-hormuz.html
+
+**How to watch Pacers vs. Cavaliers: Time, TV, streaming**\
+`Find out how to watch the Indiana Pacers play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173564/2026/04/05/pacers-vs-cavaliers-stream-how-to-watch-april-5/
+
 **How to watch Bruins vs. Flyers: Time, TV, streaming**\
 `Find out how to watch the Boston Bruins play the Philadelphia Flyers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173534/2026/04/05/bruins-vs-flyers-stream-how-to-watch-april-5/
