@@ -35,6 +35,6 @@ https://nytimes.com/2026/04/05/crosswords/spelling-bee-forum.html
 https://nytimes.com/live/2026/04/05/world/iran-war-trump-news/heres-the-latest
 
 **Iran War Live Updates: U.S. Rescues Officer From Downed Fighter Jet in Iran, Trump Says**\
-`The rescue followed a two-day, life-or-death race between U.S. and Iranian forces to reach the injured airman, officials said.`\
+`The rescue followed a two-day race between U.S. and Iranian forces to reach the injured airman, officials said. On Saturday, Israel attacked Iran’s largest petrochemical industrial complex.`\
 https://nytimes.com/live/2026/04/05/world/iran-war-trump-news
 
