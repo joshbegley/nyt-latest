@@ -1,3 +1,7 @@
+**Inter Miami opens Nu Stadium after mad dash for occupancy approval**\
+`Inter Miami opened its new venue, Nu Stadium, Saturday night for a game against Austin FC.`\
+https://nytimes.com/athletic/7172530/2026/04/04/inter-miami-nu-stadium-opening-don-garber-mls/
+
 **Red Wings' late-season slide raises uncomfortable questions**\
 `The Red Wings again lost a must-win game against a beatable team, a trend that raises questions about their future.`\
 https://nytimes.com/athletic/7172273/2026/04/04/red-wings-rangers-nhl-playoffs-standings/
