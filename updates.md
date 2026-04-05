@@ -1,3 +1,7 @@
+**'Not six feet under yet': Red Wings trying to tune out noise with five games left**\
+`A late push made it interesting, but a costly second period led the Red Wings to another loss Sunday with time running out.`\
+https://nytimes.com/athletic/7174222/2026/04/05/detroit-red-wings-noise-copp-stretch-run-wild/
+
 **Michigan's Dusty May removes name from UNC coaching search: Sources**\
 `May is the second Final Four coach this weekend to spurn UNC interest, joining Arizona's Tommy Lloyd.`\
 https://nytimes.com/athletic/7174389/2026/04/05/dusty-may-michigan-unc-coaching-search/
