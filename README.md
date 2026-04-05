@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/7173796/2026/04/05/michigan-uconn-injuries-yaxel-lendeborg-solo-ball/
 
 **Tour of Flanders: Pogacar goes solo to land 12th Monument win, Vollering drops rivals to record first Ronde victory**\
-`The Athletic's writers analyse the men's and women's Ronde van Vlaanderen – the second Monument race of the 2026 season`\
+`The Athletic's writers analyse the men's and women's Ronde van Vlaanderen, the second Monument race of the 2026 season`\
 https://nytimes.com/athletic/7173340/2026/04/05/tour-of-flanders-analysis-2026-pogacar-vollering-evenepoel/
 
 **Pepsi Drops Sponsorship of London Music Festival Headlined by Ye**\
