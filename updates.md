@@ -1,3 +1,7 @@
+**How to watch Reds vs. Rangers: Time, TV, streaming for April 5**\
+`Find out how to watch the Cincinnati Reds play the Texas Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173323/2026/04/05/reds-vs-rangers-stream-how-to-watch-april-5/
+
 **Why the Moon Mission Is a Redemption Story**\
 `Today is Easter, and the fourth day of Passover. Both holidays are centered on redemption stories. So I’ve been thinking about what these stories are, why they stick and how they are appearing now.`\
 https://nytimes.com/2026/04/05/briefing/easter-passover-artemis-moon.html
