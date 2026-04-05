@@ -1,3 +1,7 @@
+**10-Minute Challenge: ‘I Spy’**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2026/04/05/upshot/ten-minute-challenge-spy.html
+
 **Twins offense sputters again in 10-inning loss to Tampa Bay: 'Little bit of a funk'**\
 `For the first time since the Twins' 103-loss campaign in 2016, Minnesota has lost each of its first three series to start the season.`\
 https://nytimes.com/athletic/7174338/2026/04/05/twins-rays-offense-slumping-byron-buxton/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/05/crosswords/daily-puzzle-2026-04-06.html
 **UCLA clobbers South Carolina for first NCAA national championship**\
 `The Bruins dominated in Phoenix as Dawn Staley's Gamecocks lost the NCAA championship game for the second year in a row.`\
 https://nytimes.com/athletic/7174273/2026/04/05/ucla-womens-march-madness-national-champions-2026/
-
-**A timeout turning point and a Kaprizov hat trick in Wild's nail-biting win: Takeaways**\
-`The Red Wings scored three straight in the third period, but Kaprizov's sixth career hat trick helped secure a regulation win.`\
-https://nytimes.com/athletic/7174235/2026/04/05/wild-kaprizov-hat-trick-tarasenko-red-wings/
 
