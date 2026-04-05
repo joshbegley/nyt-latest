@@ -1,3 +1,7 @@
+**Simple Bread Pudding, Spring Vegetables Every Which Way and Hot Cross Buns**\
+`Happy Easter, happy spring and happy Sunday.`\
+https://nytimes.com/2026/04/05/dining/simple-bread-pudding-spring-vegetables-every-which-way-and-hot-cross-buns.html
+
 **How the C.I.A. Helped Locate a U.S. Airman Hiding on an Iranian Ridgeline**\
 `The intelligence agency also executed a deception campaign aimed at drawing Iranian forces away from where the missing Air Force officer was hiding.`\
 https://nytimes.com/2026/04/05/world/middleeast/cia-us-airman-rescue-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7173207/2026/04/05/southampton-yellow-anniversary-s
 **How to watch Braves vs. Diamondbacks: Time, TV, streaming for April 5**\
 `Find out how to watch the Atlanta Braves play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173519/2026/04/05/braves-vs-diamondbacks-stream-how-to-watch-april-5/
-
-**How to watch Mets vs. Giants: Time, TV, streaming for April 5**\
-`Find out how to watch the New York Mets play the San Francisco Giants, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7173517/2026/04/05/mets-vs-giants-stream-how-to-watch-april-5/
 
