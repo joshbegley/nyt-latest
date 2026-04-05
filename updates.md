@@ -1,3 +1,11 @@
+**Twins offense sputters again in 10-inning loss to Tampa Bay: 'Little bit of a funk'**\
+`For the first time since the Twins' 103-loss campaign in 2016, Minnesota has lost each of its first three series to start the season.`\
+https://nytimes.com/athletic/7174338/2026/04/05/twins-rays-offense-slumping-byron-buxton/
+
+**Red Sox reeling after 2-7 start: 'It's unacceptable to the fans'**\
+`“I cannot allow that to happen,” Ranger Suarez said. “Obviously not the way I wanted the first two starts to go.”`\
+https://nytimes.com/athletic/7174425/2026/04/05/red-sox-unacceptable-start/
+
 **J.J. Spaun survives wild-weather weekend to win Valero Texas Open**\
 `Saturday’s rain meant players had to complete their third rounds on Sunday, with some facing a 30-hole grind to finish the tournament.`\
 https://nytimes.com/athletic/7174134/2026/04/05/jj-spaun-pga-valero-texas-open/
