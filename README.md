@@ -1,3 +1,7 @@
+**Why the Moon Mission Is a Redemption Story**\
+`Today is Easter, and the fourth day of Passover. Both holidays are centered on redemption stories. So I’ve been thinking about what these stories are, why they stick and how they are appearing now.`\
+https://nytimes.com/2026/04/05/briefing/easter-passover-artemis-moon.html
+
 **Pope Leo Calls for Peace and Warns of a World Indifferent to Violence**\
 `The pontiff’s Easter remarks follow a Palm Sunday homily in which he said God rejected the prayers of “those who wage war.”`\
 https://nytimes.com/2026/04/05/world/europe/pope-leo-easter.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7173328/2026/04/05/brewers-vs-royals-stream-how-to-
 **How to watch Marlins vs. Yankees: Time, TV, streaming for April 5**\
 `Find out how to watch the Miami Marlins play the New York Yankees, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173325/2026/04/05/marlins-vs-yankees-stream-how-to-watch-april-5/
-
-**How to watch Reds vs. Rangers: Time, TV, streaming for April 5**\
-`Find out how to watch the Cincinnati Reds play the Texas Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7173323/2026/04/05/reds-vs-rangers-stream-how-to-watch-april-5/
 
