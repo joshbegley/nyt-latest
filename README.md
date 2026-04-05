@@ -1,3 +1,11 @@
+**Messi scores Inter Miami's first goal at Nu Stadium, answers Austin's opener**\
+`Messi inaugurated his new stadium with a header in front of the Inter Miami supporters section`\
+https://nytimes.com/athletic/7172669/2026/04/04/lionel-messi-goal-inter-miami-austin-fc-nu-stadium/
+
+**UConn outlasts Illinois to advance to third national championship game in 4 years**\
+`UConn has won 19 straight games in the Sweet 16 or later in NCAA tournaments.`\
+https://nytimes.com/athletic/7172449/2026/04/04/uconn-illinois-final-four-score-takeaways/
+
 **Deontay Wilder wins heavyweight brawl vs. Derek Chisora via split decision**\
 `Wilder got the decision after knocking down Chisora in the eighth round of a scrappy affair at London's O2 Arena.`\
 https://nytimes.com/athletic/7172546/2026/04/04/wilder-beats-chisora-slit-decision-heavyweight-fight/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/04/world/middleeast/israel-strikes-mahshahr-iran-oil
 **Under 40 and Diagnosed with Cancer**\
 `Hundreds of New York Times readers shared their experiences with early-onset cancers. Here are seven of their stories.`\
 https://nytimes.com/interactive/2026/04/04/well/early-onset-cancer.html
-
-**How Maria Jose Marin, from Colombia by way of Arkansas, had her ANWA moment**\
-`“I have a lot of friends and little kids in my country club that just say, I want to be like you someday."`\
-https://nytimes.com/athletic/7172475/2026/04/04/maria-jose-marin-anwa-2026-win-colombia-arkansas/
-
-**Dozens Killed in Haiti Massacre as International Force Trickles In**\
-`Gangs tore through several rural communities last weekend, underscoring the challenges that will face the new, U.N.-backed Gang Suppression Force starting to enter the country.`\
-https://nytimes.com/2026/04/04/world/americas/haiti-gang-massacre.html
 
