@@ -1,3 +1,11 @@
+**Red Sox battle back late but fall to Padres as thin margin for error is magnified**\
+`Boston's hitters had eight strikeouts Saturday and have put the ball in play far too little through the early part of the season.`\
+https://nytimes.com/athletic/7172689/2026/04/04/red-sox-padres-rally-lose-mlb/
+
+**Pistons clinch No. 1 seed in East for first time since 2007 in win over 76ers**\
+`Detroit just continues to exceed expectations, as it has since the beginning of last season.`\
+https://nytimes.com/athletic/7172723/2026/04/04/pistons-first-seed-76ers-nba-playoffs/
+
 **'We played great': Bruins lose to Lightning in an unusual way**\
 `The Bruins allowed the winning goal on what should have been a routine save for Jeremy Swayman.`\
 https://nytimes.com/athletic/7172724/2026/04/04/bruins-lightning-jeremy-swayman-nhl/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/04/us/trump-lawsuit-admissions-data.html
 **Inter Miami opens Nu Stadium after mad dash for occupancy approval**\
 `Inter Miami opened its new venue, Nu Stadium, Saturday night for a game against Austin FC.`\
 https://nytimes.com/athletic/7172530/2026/04/04/inter-miami-nu-stadium-opening-don-garber-mls/
-
-**Red Wings' late-season slide raises uncomfortable questions**\
-`The Red Wings again lost a must-win game against a beatable team, a trend that raises questions about their future.`\
-https://nytimes.com/athletic/7172273/2026/04/04/red-wings-rangers-nhl-playoffs-standings/
-
-**Geno Auriemma confirms return to UConn next season**\
-`Auriemma, 72, is the winningest college basketball coach in history — men’s or women’s — and will return to increase that lead next season.`\
-https://nytimes.com/athletic/7172575/2026/04/04/geno-auriemma-returns-uconn-2027-season-ncaaw/
 
