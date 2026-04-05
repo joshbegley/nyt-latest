@@ -1,3 +1,7 @@
+**'We played great': Bruins lose to Lightning in an unusual way**\
+`The Bruins allowed the winning goal on what should have been a routine save for Jeremy Swayman.`\
+https://nytimes.com/athletic/7172724/2026/04/04/bruins-lightning-jeremy-swayman-nhl/
+
 **Dodgers' Mookie Betts (back) to undergo MRI; IL stint possible**\
 `The Dodgers shortstop tweaked his back running the bases in the first inning against the Washington Nationals, manager Dave Roberts said.`\
 https://nytimes.com/athletic/7172683/2026/04/04/dodgers-mookie-betts-back-injury-mri/
