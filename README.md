@@ -1,3 +1,7 @@
+**'A hidden secret': Why the stigma of eating disorders persists in women's college basketball**\
+`Former Oregon player Jennah Isai dreamed of playing in the Final Four one day. She stepped away from the sport to focus on healing.`\
+https://nytimes.com/athletic/7172389/2026/04/05/womens-college-basketball-eating-disorder-stigma/
+
 **How to watch Clippers vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Sacramento Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173882/2026/04/05/clippers-vs-kings-stream-how-to-watch-april-5/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/05/business/opec-plus-oil-production-iran.html
 **How Matheus Nunes exploited the spaces around Liverpool's defence**\
 `Under Guardiola, every City player can be a threat if afforded space - as Saturday's game proved`\
 https://nytimes.com/athletic/7171925/2026/04/05/matheus-nunes-man-city-liverpool/
-
-**March's top selling sports cards: Judge, Ohtani, Flagg, Knueppel  and more**\
-`Two big Aaron Judge card sales led the way, but did he actually lower the value of one he shared with Ohtani? `\
-https://nytimes.com/athletic/7172639/2026/04/05/top-selling-sports-cards-ohtani-flagg-judge/
 
