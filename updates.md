@@ -1,3 +1,7 @@
+**Ranking the eight 2025-26 Champions League quarter-finalists**\
+`It's a stellar list of names remaining in Europe's top-tier competition – but who will lift the famous trophy on May 30?`\
+https://nytimes.com/athletic/7163735/2026/04/05/ranking-champions-league-quarterfinalists/
+
 **Can anything keep Yaxel Lendeborg off the floor? Why Michigan's star played through pain**\
 `Yaxel Lendeborg injured his left MCL and ankle in Michigan's win. He was able to return, but will he be available on Monday?`\
 https://nytimes.com/athletic/7173080/2026/04/05/yaxel-lendeborg-michigan-injury-national-championship/
