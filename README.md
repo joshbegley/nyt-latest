@@ -1,3 +1,11 @@
+**After Daring U.S. Rescue of Airman, Iran Claims a Victory**\
+`Iran’s downing of a U.S. plane and the complex two-day American rescue operation to extract a stranded airman has emboldened both sides, a potential recipe for escalation.`\
+https://nytimes.com/2026/04/05/world/middleeast/iran-us-rescue.html
+
+**The Boat Race: A centuries-old tradition that typifies British love of sport - or a relic of elitism?**\
+`To some, the race is an iconic tradition, others view it as a relic - the Boat Race is now trying to reach new audiences`\
+https://nytimes.com/athletic/7172113/2026/04/05/boat-race-tradition-future/
+
 **How to watch Wizards vs. Nets: Time, TV, streaming**\
 `Find out how to watch the Washington Wizards play the Brooklyn Nets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173382/2026/04/05/wizards-vs-nets-stream-how-to-watch-april-5/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/05/briefing/easter-passover-artemis-moon.html
 **Pope Leo Calls for Peace and Warns of a World Indifferent to Violence**\
 `The pontiff’s Easter remarks follow a Palm Sunday homily in which he said God rejected the prayers of “those who wage war.”`\
 https://nytimes.com/2026/04/05/world/europe/pope-leo-easter.html
-
-**How to watch South Carolina vs. UCLA women's basketball: Championship Time, TV, streaming**\
-`Find out how to watch the South Carolina Gamecocks play the UCLA Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7173356/2026/04/05/south-carolina-vs-ucla-stream-how-to-watch-april-5/
-
-**Liverpool players let down ourselves, the manager and our fans in FA Cup defeat - Van Dijk**\
-`The Netherlands defender said he was "hurting" after Arne Slot's side capitulated at the Etihad in their four-goal loss.`\
-https://nytimes.com/athletic/7173308/2026/04/05/van-dijk-liverpool-fa-cup-defeat/
 
