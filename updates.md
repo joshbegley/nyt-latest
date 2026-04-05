@@ -1,3 +1,11 @@
+**Dodgers' Mookie Betts (back) to undergo MRI; IL stint possible**\
+`The Dodgers shortstop tweaked his back running the bases in the first inning against the Washington Nationals, manager Dave Roberts said.`\
+https://nytimes.com/athletic/7172683/2026/04/04/dodgers-mookie-betts-back-injury-mri/
+
+**Here’s What Happened in the War in the Middle East on Saturday**\
+`The U.S. military’s search-and-rescue operation for a missing American airman entered its second day. The Israeli military struck a major petrochemical complex in Iran.`\
+https://nytimes.com/2026/04/04/world/middleeast/iran-israel-us-war-middle-east.html
+
 **Messi scores Inter Miami's first goal at Nu Stadium, answers Austin's opener**\
 `Messi inaugurated his new stadium with a header in front of the Inter Miami supporters section`\
 https://nytimes.com/athletic/7172669/2026/04/04/lionel-messi-goal-inter-miami-austin-fc-nu-stadium/
