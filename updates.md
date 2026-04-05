@@ -1,3 +1,23 @@
+**How to watch Bruins vs. Flyers: Time, TV, streaming**\
+`Find out how to watch the Boston Bruins play the Philadelphia Flyers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173534/2026/04/05/bruins-vs-flyers-stream-how-to-watch-april-5/
+
+**How to watch Hurricanes vs. Senators: Time, TV, streaming**\
+`Find out how to watch the Carolina Hurricanes play the Ottawa Senators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173530/2026/04/05/hurricanes-vs-senators-stream-how-to-watch-april-5/
+
+**Southampton require permission to wear yellow anniversary shirt for FA Cup semi-final**\
+`The club have been wearing a yellow kit throughout this season’s tournament, to mark the 50th anniversary of their success in 1976.`\
+https://nytimes.com/athletic/7173207/2026/04/05/southampton-yellow-anniversary-shirt-fa-cup/
+
+**How to watch Braves vs. Diamondbacks: Time, TV, streaming for April 5**\
+`Find out how to watch the Atlanta Braves play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173519/2026/04/05/braves-vs-diamondbacks-stream-how-to-watch-april-5/
+
+**How to watch Mets vs. Giants: Time, TV, streaming for April 5**\
+`Find out how to watch the New York Mets play the San Francisco Giants, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173517/2026/04/05/mets-vs-giants-stream-how-to-watch-april-5/
+
 **How to watch Astros vs. Athletics: Time, TV, streaming for April 5**\
 `Find out how to watch the Houston Astros play the Athletics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173508/2026/04/05/astros-vs-athletics-stream-how-to-watch-april-5/

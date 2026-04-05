@@ -1,3 +1,23 @@
+**How to watch Bruins vs. Flyers: Time, TV, streaming**\
+`Find out how to watch the Boston Bruins play the Philadelphia Flyers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173534/2026/04/05/bruins-vs-flyers-stream-how-to-watch-april-5/
+
+**How to watch Hurricanes vs. Senators: Time, TV, streaming**\
+`Find out how to watch the Carolina Hurricanes play the Ottawa Senators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173530/2026/04/05/hurricanes-vs-senators-stream-how-to-watch-april-5/
+
+**Southampton require permission to wear yellow anniversary shirt for FA Cup semi-final**\
+`The club have been wearing a yellow kit throughout this season’s tournament, to mark the 50th anniversary of their success in 1976.`\
+https://nytimes.com/athletic/7173207/2026/04/05/southampton-yellow-anniversary-shirt-fa-cup/
+
+**How to watch Braves vs. Diamondbacks: Time, TV, streaming for April 5**\
+`Find out how to watch the Atlanta Braves play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173519/2026/04/05/braves-vs-diamondbacks-stream-how-to-watch-april-5/
+
+**How to watch Mets vs. Giants: Time, TV, streaming for April 5**\
+`Find out how to watch the New York Mets play the San Francisco Giants, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173517/2026/04/05/mets-vs-giants-stream-how-to-watch-april-5/
+
 **How to watch Astros vs. Athletics: Time, TV, streaming for April 5**\
 `Find out how to watch the Houston Astros play the Athletics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173508/2026/04/05/astros-vs-athletics-stream-how-to-watch-april-5/
@@ -17,24 +37,4 @@ https://nytimes.com/2026/04/05/opinion/iran-ai-war-geography.html
 **Not Just for Rock Stars: Playing in the Band**\
 `Readers respond to “Change Your Life. Start a Band,” an Opinion guest essay by Hugo Lindgren. Also: Bruce Springsteen’s art.`\
 https://nytimes.com/2026/04/05/opinion/change-your-life-band.html
-
-**Reed Sheppard or Tari Eason: Who should be the Rockets' 5th starter for postseason play?**\
-`Eason and Sheppard have given Ime Udoka and his staff a lot to consider regarding Houston's starting lineup with the playoffs approaching.`\
-https://nytimes.com/athletic/7173206/2026/04/05/rockets-reed-sheppard-tari-eason-starting-lineup/
-
-**Canadiens complete perfect road trip, earn opportunity to do special things at home**\
-`The Canadiens were less than the best version of themselves and still came out of New Jersey with their eighth straight win. `\
-https://nytimes.com/athletic/7173073/2026/04/05/canadiens-devils-win-nhl-standings/
-
-**Iran Downing of Plane and Daring U.S. Rescue Leave Both Sides Emboldened**\
-`Iran’s downing of a U.S. plane and the complex two-day American rescue operation to extract a stranded airman has emboldened both sides, a potential recipe for escalation.`\
-https://nytimes.com/2026/04/05/world/middleeast/iran-us-rescue.html
-
-**The Boat Race: A centuries-old tradition that typifies British love of sport - or a relic of elitism?**\
-`To some, the race is an iconic tradition, others view it as a relic - the Boat Race is now trying to reach new audiences`\
-https://nytimes.com/athletic/7172113/2026/04/05/boat-race-tradition-future/
-
-**How to watch Wizards vs. Nets: Time, TV, streaming**\
-`Find out how to watch the Washington Wizards play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7173382/2026/04/05/how-to-watch-wizards-vs-nets-tv-channel-and-streaming-options-for-april-5/
 
