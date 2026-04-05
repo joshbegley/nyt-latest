@@ -1,3 +1,7 @@
+**The Briefing: West Ham 2 Leeds 2 (Leeds win on penalties) - Farke's side reach first FA Cup semi-final for 39 years**\
+`Leeds United have reached an FA Cup semi-final for the first time in 39 years after a dramatic penalty shootout victory over West Ham`\
+https://nytimes.com/athletic/7168803/2026/04/05/west-ham-leeds-score-result-report-analysis/
+
 **How to watch Rockets vs. Warriors: Time, TV, streaming**\
 `Find out how to watch the Houston Rockets play the Golden State Warriors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173993/2026/04/05/rockets-vs-warriors-stream-how-to-watch-april-5/
