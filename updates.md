@@ -1,3 +1,7 @@
+**How to watch Osasuna vs. Deportivo Alaves in the U.S.**\
+`Find out how to watch Osasuna play Deportivo Alaves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173295/2026/04/05/osasuna-vs-deportivo-alaves-stream-how-to-watch-la-liga-april-5/
+
 **Pete Crow-Armstrong's bat speed is up, but he sees it as a bad sign**\
 `"I think it's bad habits leading to that," Crow-Armstrong said of his increased bat speed. `\
 https://nytimes.com/athletic/7172488/2026/04/05/pete-crow-armstrong-bat-speed-cubs-mechanics-groundball-rate/
