@@ -1,3 +1,7 @@
+**Dan Hurley's UConn is back in the title game. And he's entering rarefied air**\
+`Saturday’s win reinforced Hurley as the best postseason coach of the modern era, with an 18-1 record over his last 19 NCAA Tournament games.`\
+https://nytimes.com/athletic/7173008/2026/04/05/dan-hurley-uconn-dynasty-national-championship-game-illinois/
+
 **Son and Bouanga spark LAFC's record-tying thrashing of Orlando**\
 `Son Heung-min and Denis Bouanga were in sparkling form to complete a resounding triumph`\
 https://nytimes.com/athletic/7172936/2026/04/05/son-heung-min-bouanga-lafc-hat-trick-assist-mls-orlando/

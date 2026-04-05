@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/7173008/2026/04/05/dan-hurley-uconn-dynasty-national-championship-game-illinois/
 
 **Son and Bouanga spark LAFC's record-tying thrashing of Orlando**\
-`Son Heung-min and Denis Bouanga were in sparkling form to complete a resounding triumph`\
+`Son Heung-min and Denis Bouanga were in sparkling form to complete a resounding triumph.`\
 https://nytimes.com/athletic/7172936/2026/04/05/son-heung-min-bouanga-lafc-hat-trick-assist-mls-orlando/
 
 **The glue. The brains. The heartbeat. Bernardo Silva**\
