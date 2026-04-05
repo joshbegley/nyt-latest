@@ -1,3 +1,27 @@
+**On ‘S.N.L.,’ Bondi Boasts of Being ‘First Woman Ever Fired as Attorney General’**\
+`Ashley Padilla was both Pam Bondi and Kristi Noem on “Saturday Night Live,” with Tina Fey, Candice Bergen and Melissa McCarthy. Jack Black and Jack White were host and musical guest.`\
+https://nytimes.com/2026/04/05/arts/television/on-snl-bondi-boasts-shes-first-woman-fired-as-attorney-general.html
+
+**Iran Is Ending the Dream of Remote-Controlled War**\
+`A.I.’s significant targeting improvements aren’t enough to overcome geography in Iran.`\
+https://nytimes.com/2026/04/05/opinion/iran-ai-war-geography.html
+
+**Not Just for Rock Stars: Playing in the Band**\
+`Readers respond to “Change Your Life. Start a Band,” an Opinion guest essay by Hugo Lindgren. Also: Bruce Springsteen’s art.`\
+https://nytimes.com/2026/04/05/opinion/change-your-life-band.html
+
+**How to watch Wizards vs. Nets: Time, TV, streaming**\
+`Find out how to watch the Washington Wizards play the Brooklyn Nets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173382/2026/04/05/how-to-watch-wizards-vs-nets-tv-channel-and-streaming-options-for-april-5/
+
+**How to watch Suns vs. Bulls: Time, TV, streaming**\
+`Find out how to watch the Phoenix Suns play the Chicago Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173380/2026/04/05/how-to-watch-suns-vs-bulls-tv-channel-and-streaming-options-for-april-5/
+
+**How to watch Grizzlies vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173376/2026/04/05/how-to-watch-grizzlies-vs-bucks-tv-channel-and-streaming-options-for-april-5/
+
 **Reed Sheppard or Tari Eason: Who should be the Rockets' 5th starter for postseason play?**\
 `Eason and Sheppard have given Ime Udoka and his staff a lot to consider regarding Houston's starting lineup with the playoffs approaching.`\
 https://nytimes.com/athletic/7173206/2026/04/05/rockets-reed-sheppard-tari-eason-starting-lineup/
