@@ -1,3 +1,7 @@
+**Former Matador Is Gored to Death Before Annual Bullfight in Spain**\
+`The accident happened before the Corrida Picassiana, an annual event in Malaga that honors the painter Pablo Picasso.`\
+https://nytimes.com/2026/04/05/world/europe/matador-dead-bull-fighting-malaga.html
+
 **Lowetide: Oilers sign college forward Owen Michaels, more signings appear imminent**\
 `This spring, the Oilers appear even more aggressive in pursuing college players graduating from the NCAA`\
 https://nytimes.com/athletic/7171725/2026/04/05/edmonton-oilers-owen-michaels-ncaa-signings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7173517/2026/04/05/mets-vs-giants-stream-how-to-wat
 **How to watch Astros vs. Athletics: Time, TV, streaming for April 5**\
 `Find out how to watch the Houston Astros play the Athletics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173508/2026/04/05/astros-vs-athletics-stream-how-to-watch-april-5/
-
-**How to watch Mariners vs. Angels: Time, TV, streaming for April 5**\
-`Find out how to watch the Seattle Mariners play the Los Angeles Angels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7173501/2026/04/05/mariners-vs-angels-stream-how-to-watch-april-5/
 

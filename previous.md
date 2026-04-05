@@ -1,4 +1,8 @@
-**In New Threats, Trumps Seems Emboldened by a Successful Rescue**\
+**Lowetide: Oilers sign college forward Owen Michaels, more signings appear imminent**\
+`This spring, the Oilers appear even more aggressive in pursuing college players graduating from the NCAA`\
+https://nytimes.com/athletic/7171725/2026/04/05/edmonton-oilers-owen-michaels-ncaa-signings/
+
+**In New Threats, Trump Seems Emboldened by a Successful Rescue**\
 `In an expletive-filled social media post, Mr. Trump said Iran should open the Strait of Hormuz or he will bomb bridges and power plants.`\
 https://nytimes.com/2026/04/05/world/middleeast/trump-truth-social-post-iran-allah-strait-of-hormuz.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7173508/2026/04/05/astros-vs-athletics-stream-how-t
 **How to watch Mariners vs. Angels: Time, TV, streaming for April 5**\
 `Find out how to watch the Seattle Mariners play the Los Angeles Angels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173501/2026/04/05/mariners-vs-angels-stream-how-to-watch-april-5/
-
-**On ‘S.N.L.,’ Bondi Boasts of Being ‘First Woman Ever Fired as Attorney General’**\
-`Ashley Padilla was both Pam Bondi and Kristi Noem on “Saturday Night Live,” with Tina Fey, Candice Bergen and Melissa McCarthy. Jack Black and Jack White were host and musical guest.`\
-https://nytimes.com/2026/04/05/arts/television/on-snl-bondi-boasts-shes-first-woman-fired-as-attorney-general.html
 

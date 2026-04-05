@@ -1,3 +1,11 @@
+**Lowetide: Oilers sign college forward Owen Michaels, more signings appear imminent**\
+`This spring, the Oilers appear even more aggressive in pursuing college players graduating from the NCAA`\
+https://nytimes.com/athletic/7171725/2026/04/05/edmonton-oilers-owen-michaels-ncaa-signings/
+
+**In New Threats, Trump Seems Emboldened by a Successful Rescue**\
+`In an expletive-filled social media post, Mr. Trump said Iran should open the Strait of Hormuz or he will bomb bridges and power plants.`\
+https://nytimes.com/2026/04/05/world/middleeast/trump-truth-social-post-iran-allah-strait-of-hormuz.html
+
 **In New Threats, Trumps Seems Emboldened by a Successful Rescue**\
 `In an expletive-filled social media post, Mr. Trump said Iran should open the Strait of Hormuz or he will bomb bridges and power plants.`\
 https://nytimes.com/2026/04/05/world/middleeast/trump-truth-social-post-iran-allah-strait-of-hormuz.html
