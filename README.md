@@ -1,3 +1,11 @@
+**Messi’s Inter Miami opens new stadium befitting MLS’s glitziest club**\
+`Nu Stadium's first game on Saturday came after a long and frustrating road for Inter Miami's ownership`\
+https://nytimes.com/athletic/7169387/2026/04/05/messis-inter-miami-opens-new-stadium-reflective-befitting-of-mlss-glitziest-club/
+
+**Women's national championship watch guide: UCLA vs. South Carolina in title game**\
+`UCLA arrives in pursuit of its first NCAA title. South Carolina goes for a fourth banner in the last decade.`\
+https://nytimes.com/athletic/7172311/2026/04/05/ucla-south-carolina-womens-basketball-national-championship-2026/
+
 **How to watch Celta de Vigo vs. Valencia in the U.S.**\
 `Find out how to watch Celta de Vigo play Valencia, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173156/2026/04/05/celta-de-vigo-vs-valencia-stream-how-to-watch-la-liga-april-5/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/04/05/world/iran-war-trump-news/heres-the-latest
 **Iran War Live Updates: U.S. Rescues Officer From Downed Fighter Jet in Iran, Trump Says**\
 `The rescue followed a two-day, life-or-death race between U.S. and Iranian forces to reach the injured airman, officials said.`\
 https://nytimes.com/live/2026/04/05/world/iran-war-trump-news
-
-**Connections: Sports Edition Coach: Hints and answers for April 5, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7173116/2026/04/05/connections-sports-edition-hints-answers-april-5-2026/
-
-**Liverpool plugged the gaps against Manchester City - until they didn't**\
-`Arne Slot's side were set up to keep Man City at bay but when it slipped, they were punished`\
-https://nytimes.com/athletic/7172363/2026/04/05/liverpool-manchester-city-gaps-facup/
 
