@@ -1,3 +1,7 @@
+**Arsenal's season has narrowed. Now Arteta must galvanise squad with so much still at stake**\
+`Southampton was seen by some as an easy route through to the semi-finals for the north London team. Yet it proved to be anything but`\
+https://nytimes.com/athletic/7172388/2026/04/05/arsenal-southampton-fa-cup-defeat/
+
 **Greatest defensive game ever? Jo Adell robs M's of 3 homers in Angels' 1-0 win**\
 `Legendary center fielder Torii Hunter called Adell's feat “probably the greatest defensive game I’ve ever seen.”`\
 https://nytimes.com/athletic/7173003/2026/04/05/angels-jo-adell-robs-3-home-runs/
