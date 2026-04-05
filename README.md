@@ -1,3 +1,15 @@
+**Is Gianni Infantino right? Would football not exist in '150 countries' without FIFA?**\
+`Gianni Infantino claimed football would not exist in 150 countries without FIFA — could he be making a genuine point?`\
+https://nytimes.com/athletic/7157477/2026/04/05/fifa-150-countries-football-survive/
+
+**From 1956 to 2009: The first player born in each year to score in the Premier League**\
+`Max Dowman's goal against Everton means the Premier League has had a scorer born in every year of the 1960s, 1970s, 1980s, 1990s and 2000s`\
+https://nytimes.com/athletic/7125245/2026/04/05/premier-league-scorers-each-year-dowman/
+
+**Why Fenerbahce turned to Europe's youngest sporting director to break their title drought**\
+`Devin Ozek is only 30 but, having played his part in Bayer Leverkusen's rise, swapped Germany for the pressure-cooker of Istanbul football`\
+https://nytimes.com/athletic/7073175/2026/04/05/fenerbahce-devin-ozek-sporting-director-bayer-leverkusen/
+
 **Blue Jackets hold players-only meeting as downward spiral continues**\
 `"We're a better team than we've shown, and we just talked about it," Zach Werenski said of the meeting after Columbus' loss to Winnipeg.`\
 https://nytimes.com/athletic/7172735/2026/04/05/blue-jackets-players-only-meeting-nhl-playoffs/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7172919/2026/04/04/sabres-nhl-playoffs-clinch-droug
 **Screenwriters Union and Studios Swiftly Reach Tentative Deal**\
 `With the global entertainment business reeling during a period of rapid change, there was little enthusiasm on either side for a costly standoff.`\
 https://nytimes.com/2026/04/04/business/media/hollywood-writers-contract-deal.html
-
-**Michigan pummels Arizona to roll into national championship game against UConn**\
-`Michigan has scored 90-plus points and won by double digits in all five of its NCAA Tournament games.`\
-https://nytimes.com/athletic/7172808/2026/04/04/michigan-arizona-final-four-results-national-championship-ncaam-2026/
-
-**'I almost cried': Emotional Evgeni Malkin records hat trick as Penguins rout Panthers**\
-`Malkin netted his 14th career hat trick and passed the 1,400-point mark for his career against Florida on Saturday.`\
-https://nytimes.com/athletic/7171915/2026/04/04/evgeni-malkin-penguins-hat-trick-panthers/
-
-**UConn's Dan Hurley jokes he's had 'a negative influence on Geno' Auriemma**\
-`Hurley, who is known for his temper, also offered support for his UConn colleague.`\
-https://nytimes.com/athletic/7172866/2026/04/04/dan-hurley-responds-geno-auriemma-dawn-staley-statement/
 

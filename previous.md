@@ -1,3 +1,11 @@
+**Blue Jackets hold players-only meeting as downward spiral continues**\
+`"We're a better team than we've shown, and we just talked about it," Zach Werenski said of the meeting after Columbus' loss to Winnipeg.`\
+https://nytimes.com/athletic/7172735/2026/04/05/blue-jackets-players-only-meeting-nhl-playoffs/
+
+**China Built the World’s Drone Industry. Now It’s Locking Down the Skies.**\
+`The Chinese government tightened rules to curb what it described as illegal drone use, but some users say the changes are now restricting too many flights.`\
+https://nytimes.com/2026/04/05/world/asia/china-drone-regulations.html
+
 **U.S. Rescues Downed Air Force Officer Deep Inside Iran, Officials Say**\
 `An Air Force officer of a F-15E Strike Eagle shot down on Friday by Iran spent a day in hostile territory with little more than a pistol for protection.`\
 https://nytimes.com/2026/04/04/us/politics/military-iran-airman-rescue.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7171915/2026/04/04/evgeni-malkin-penguins-hat-trick
 **UConn's Dan Hurley jokes he's had 'a negative influence on Geno' Auriemma**\
 `Hurley, who is known for his temper, also offered support for his UConn colleague.`\
 https://nytimes.com/athletic/7172866/2026/04/04/dan-hurley-responds-geno-auriemma-dawn-staley-statement/
-
-**PWHL game at Madison Square Garden sets U.S. women's hockey attendance record**\
-`A sold-out crowd of 18,006 fans watched the New York Sirens take on the Seattle Torrent in the league’s debut at MSG.`\
-https://nytimes.com/athletic/7172775/2026/04/04/pwhl-womens-hockey-attendance-record-madison-square-garden/
-
-**MVP candidates Jokić and Wemby shine in a tense OT win by Nuggets**\
-`After both coaches promoted their stars for the MVP award, Nikola Jokić and Victor Wembanyama went out and made strong cases.`\
-https://nytimes.com/athletic/7172733/2026/04/04/nuggets-spurs-nikola-jokic-victor-wembanyama-mvp/
 

@@ -1,3 +1,11 @@
+**Blue Jackets hold players-only meeting as downward spiral continues**\
+`"We're a better team than we've shown, and we just talked about it," Zach Werenski said of the meeting after Columbus' loss to Winnipeg.`\
+https://nytimes.com/athletic/7172735/2026/04/05/blue-jackets-players-only-meeting-nhl-playoffs/
+
+**China Built the World’s Drone Industry. Now It’s Locking Down the Skies.**\
+`The Chinese government tightened rules to curb what it described as illegal drone use, but some users say the changes are now restricting too many flights.`\
+https://nytimes.com/2026/04/05/world/asia/china-drone-regulations.html
+
 **U.S. Rescues Downed Air Force Officer Deep Inside Iran, Officials Say**\
 `An Air Force officer of a F-15E Strike Eagle shot down on Friday by Iran spent a day in hostile territory with little more than a pistol for protection.`\
 https://nytimes.com/2026/04/04/us/politics/military-iran-airman-rescue.html
