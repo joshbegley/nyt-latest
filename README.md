@@ -16,7 +16,7 @@ https://nytimes.com/athletic/7172389/2026/04/05/womens-college-basketball-eating
 
 **How to watch Clippers vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Sacramento Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7173882/2026/04/05/clippers-vs-kings-stream-how-to-watch-april-5/
+https://nytimes.com/athletic/7173882/2026/04/05/how-to-watch-clippers-vs-kings-tv-channel-and-streaming-options-for-april-5/
 
 **Dodgers to place Mookie Betts on 10-day IL with right oblique strain**\
 `The Dodgers believe Betts aggravated his oblique on a check swing during Saturday's game against the Nationals.`\
