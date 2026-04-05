@@ -1,3 +1,7 @@
+**Pope Leo Calls for Peace and Warns of a World Indifferent to Violence**\
+`The pontiff’s Easter remarks follow a Palm Sunday homily in which he said God rejected the prayers of “those who wage war.”`\
+https://nytimes.com/2026/04/05/world/europe/pope-leo-easter.html
+
 **How to watch South Carolina vs. UCLA women's basketball: Championship Time, TV, streaming**\
 `Find out how to watch the South Carolina Gamecocks play the UCLA Bruins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173356/2026/04/05/south-carolina-vs-ucla-stream-how-to-watch-april-5/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7173325/2026/04/05/marlins-vs-yankees-stream-how-to
 **How to watch Reds vs. Rangers: Time, TV, streaming for April 5**\
 `Find out how to watch the Cincinnati Reds play the Texas Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173323/2026/04/05/reds-vs-rangers-stream-how-to-watch-april-5/
-
-**How to watch Dodgers vs. Nationals: Time, TV, streaming for April 5**\
-`Find out how to watch the Los Angeles Dodgers play the Washington Nationals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7173319/2026/04/05/dodgers-vs-nationals-stream-how-to-watch-april-5/
 
