@@ -1,3 +1,7 @@
+**A timeout turning point and a Kaprizov hat trick in Wild's nail-biting win: Takeaways**\
+`The Red Wings scored three straight in the third period, but Kaprizov's sixth career hat trick helped secure a regulation win.`\
+https://nytimes.com/athletic/7174235/2026/04/05/wild-kaprizov-hat-trick-tarasenko-red-wings/
+
 **Bernardo Silva will leave Man City as free agent this summer - Ljinders**\
 `The Portugal midfielder is out of contract at the end of the season and will leave the Etihad as a free agent.`\
 https://nytimes.com/athletic/7173307/2026/04/05/bernardo-silva-man-city-transfer-news/
