@@ -1,3 +1,7 @@
+**How to watch Rockets vs. Warriors: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Golden State Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173993/2026/04/05/rockets-vs-warriors-stream-how-to-watch-april-5/
+
 **How to watch Clippers vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Sacramento Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173882/2026/04/05/how-to-watch-clippers-vs-kings-tv-channel-and-streaming-options-for-april-5/
