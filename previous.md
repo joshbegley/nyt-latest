@@ -1,40 +1,40 @@
-**How to watch Osasuna vs. Deportivo Alaves in the U.S.**\
-`Find out how to watch Osasuna play Deportivo Alaves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7173295/2026/04/05/osasuna-vs-deportivo-alaves-stream-how-to-watch-la-liga-april-5/
+**How to watch Phillies vs. Rockies: Time, TV, streaming for April 5**\
+`Find out how to watch the Philadelphia Phillies play the Colorado Rockies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173343/2026/04/05/phillies-vs-rockies-stream-how-to-watch-april-5/
 
-**Pete Crow-Armstrong's bat speed is up, but he sees it as a bad sign**\
-`"I think it's bad habits leading to that," Crow-Armstrong said of his increased bat speed. `\
-https://nytimes.com/athletic/7172488/2026/04/05/pete-crow-armstrong-bat-speed-cubs-mechanics-groundball-rate/
+**How to watch Panthers vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173339/2026/04/05/panthers-vs-penguins-stream-how-to-watch-april-5/
 
-**Deontay Wilder showed his power remains - but has he lost the finishing instinct?**\
-`Wilder came through a messy and chaotic fight with Chisora - but whether it showed he still has enough for the highest level is doubtful.`\
-https://nytimes.com/athletic/7172626/2026/04/05/deontay-wilder-chisora-what-next/
+**How to watch Blue Jays vs. White Sox: Time, TV, streaming for April 5**\
+`Find out how to watch the Toronto Blue Jays play the Chicago White Sox, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173333/2026/04/05/blue-jays-vs-white-sox-stream-how-to-watch-april-5/
 
-**Sacha Boisvert's first NHL goal is a game-winner as Blackhawks finally win in Seattle**\
-`It’s been a whirlwind fortnight for Boisvert, who says he’s just now starting to feel comfortable with the NHL.`\
-https://nytimes.com/athletic/7173067/2026/04/05/sacha-boisvert-blackhawks-kraken/
+**How to watch Orioles vs. Pirates: Time, TV, streaming for April 5**\
+`Find out how to watch the Baltimore Orioles play the Pittsburgh Pirates, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173331/2026/04/05/orioles-vs-pirates-stream-how-to-watch-april-5/
 
-**How to watch 2026 NIT championship game: TV streaming for Auburn vs. Tulsa**\
-`Auburn and Tulsa meet in Indianapolis with the NIT title on the line. Here's how to watch the championship game.`\
-https://nytimes.com/athletic/7172570/2026/04/05/nit-championship-auburn-tulsa-how-to-watch-2026/
+**How to watch Brewers vs. Royals: Time, TV, streaming for April 5**\
+`Find out how to watch the Milwaukee Brewers play the Kansas City Royals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173328/2026/04/05/brewers-vs-royals-stream-how-to-watch-april-5/
 
-**Phillies preach patience as Zack Wheeler works to add velocity to fastball**\
-`The Phillies' nutrition team is working with Wheeler to regain the weight he lost following surgery.`\
-https://nytimes.com/athletic/7172857/2026/04/05/phillies-zack-wheeler-fastball-velocity-rehab/
+**How to watch Marlins vs. Yankees: Time, TV, streaming for April 5**\
+`Find out how to watch the Miami Marlins play the New York Yankees, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173325/2026/04/05/marlins-vs-yankees-stream-how-to-watch-april-5/
 
-**Ranking the eight 2025-26 Champions League quarter-finalists**\
-`It's a stellar list of names remaining in Europe's top-tier competition – but who will lift the famous trophy on May 30?`\
-https://nytimes.com/athletic/7163735/2026/04/05/ranking-champions-league-quarterfinalists/
+**How to watch Reds vs. Rangers: Time, TV, streaming for April 5**\
+`Find out how to watch the Cincinnati Reds play the Texas Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173323/2026/04/05/reds-vs-rangers-stream-how-to-watch-april-5/
 
-**Steph Curry isn’t sitting out. It’s not in his Warriors’ DNA**\
-`Even at the end of one the Warriors' toughest seasons, Curry isn't ready to throw in the towel. `\
-https://nytimes.com/athletic/7152237/2026/04/05/steph-curry-warriors-return-nba/
+**How to watch Dodgers vs. Nationals: Time, TV, streaming for April 5**\
+`Find out how to watch the Los Angeles Dodgers play the Washington Nationals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173319/2026/04/05/dodgers-vs-nationals-stream-how-to-watch-april-5/
 
-**Can anything keep Yaxel Lendeborg off the floor? Why Michigan's star played through pain**\
-`Yaxel Lendeborg injured his left MCL and ankle in Michigan's win. He was able to return, but will he be available on Monday?`\
-https://nytimes.com/athletic/7173080/2026/04/05/yaxel-lendeborg-michigan-injury-national-championship/
+**Geno Auriemma, the practiced problem-solver, must figure out his next step at UConn**\
+`Auriemma's dustup with Staley overshadowed the semifinals, but will it change how Auriemma's viewed by basketball fans? `\
+https://nytimes.com/athletic/7173141/2026/04/05/geno-auriemma-uconn-womens-next-step/
 
-**College Basketball Crown championship: How to watch Oklahoma vs. West Virginia**\
-`The College Basketball Crown championship game features a familiar matchup between Oklahoma and West Virginia. Here's how to watch.`\
-https://nytimes.com/athletic/7172726/2026/04/05/college-basketball-crown-oklahoma-west-virginia-how-to-watch/
+**How to watch Rays vs. Twins: Time, TV, streaming for April 5**\
+`Find out how to watch the Tampa Bay Rays play the Minnesota Twins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173317/2026/04/05/rays-vs-twins-stream-how-to-watch-april-5/
 

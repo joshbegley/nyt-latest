@@ -1,3 +1,43 @@
+**How to watch Phillies vs. Rockies: Time, TV, streaming for April 5**\
+`Find out how to watch the Philadelphia Phillies play the Colorado Rockies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173343/2026/04/05/phillies-vs-rockies-stream-how-to-watch-april-5/
+
+**How to watch Panthers vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173339/2026/04/05/panthers-vs-penguins-stream-how-to-watch-april-5/
+
+**How to watch Blue Jays vs. White Sox: Time, TV, streaming for April 5**\
+`Find out how to watch the Toronto Blue Jays play the Chicago White Sox, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173333/2026/04/05/blue-jays-vs-white-sox-stream-how-to-watch-april-5/
+
+**How to watch Orioles vs. Pirates: Time, TV, streaming for April 5**\
+`Find out how to watch the Baltimore Orioles play the Pittsburgh Pirates, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173331/2026/04/05/orioles-vs-pirates-stream-how-to-watch-april-5/
+
+**How to watch Brewers vs. Royals: Time, TV, streaming for April 5**\
+`Find out how to watch the Milwaukee Brewers play the Kansas City Royals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173328/2026/04/05/brewers-vs-royals-stream-how-to-watch-april-5/
+
+**How to watch Marlins vs. Yankees: Time, TV, streaming for April 5**\
+`Find out how to watch the Miami Marlins play the New York Yankees, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173325/2026/04/05/marlins-vs-yankees-stream-how-to-watch-april-5/
+
+**How to watch Reds vs. Rangers: Time, TV, streaming for April 5**\
+`Find out how to watch the Cincinnati Reds play the Texas Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173323/2026/04/05/reds-vs-rangers-stream-how-to-watch-april-5/
+
+**How to watch Dodgers vs. Nationals: Time, TV, streaming for April 5**\
+`Find out how to watch the Los Angeles Dodgers play the Washington Nationals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173319/2026/04/05/dodgers-vs-nationals-stream-how-to-watch-april-5/
+
+**Geno Auriemma, the practiced problem-solver, must figure out his next step at UConn**\
+`Auriemma's dustup with Staley overshadowed the semifinals, but will it change how Auriemma's viewed by basketball fans? `\
+https://nytimes.com/athletic/7173141/2026/04/05/geno-auriemma-uconn-womens-next-step/
+
+**How to watch Rays vs. Twins: Time, TV, streaming for April 5**\
+`Find out how to watch the Tampa Bay Rays play the Minnesota Twins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173317/2026/04/05/rays-vs-twins-stream-how-to-watch-april-5/
+
 **How to watch Osasuna vs. Deportivo Alaves in the U.S.**\
 `Find out how to watch Osasuna play Deportivo Alaves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173295/2026/04/05/osasuna-vs-deportivo-alaves-stream-how-to-watch-la-liga-april-5/
