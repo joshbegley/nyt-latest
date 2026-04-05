@@ -1,3 +1,11 @@
+**Dodgers to place Mookie Betts on 10-day IL with right oblique strain**\
+`The Dodgers believe Betts aggravated his oblique on a check swing during Saturday's game against the Nationals.`\
+https://nytimes.com/athletic/7172624/2026/04/05/dodgers-mookie-betts-oblique-strain-injured-list/
+
+**Islanders fire Patrick Roy, hire Peter DeBoer as head coach**\
+`The Islanders have lost four consecutive games and were badly outplayed during that stretch, putting them at risk of missing the playoffs.`\
+https://nytimes.com/athletic/7173830/2026/04/05/peter-deboer-islanders-patrick-roy-coach/
+
 **Final Four injuries: Lendeborg plans to play, Ball in walking boot on eve of title game**\
 `Lendeborg said after Saturday's semifinal that he planned to play in the title game unless he couldn’t walk when he woke up Sunday.`\
 https://nytimes.com/athletic/7173796/2026/04/05/michigan-uconn-injuries-yaxel-lendeborg-solo-ball/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7172639/2026/04/05/top-selling-sports-cards-ohtani-
 **More Than 70 Migrants Feared Dead After Boat Capsizes Off Libya**\
 `Survivors said at least 100 people were on a boat that had left Libya for Europe. Only 32 of those aboard are known to have survived.`\
 https://nytimes.com/2026/04/05/world/europe/migrants-missing-boat-capsize-libya.html
-
-**How to watch Devils vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the New Jersey Devils play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7173728/2026/04/05/devils-vs-canadiens-stream-how-to-watch-april-5/
-
-**How to watch Capitals vs. Rangers: Time, TV, streaming**\
-`Find out how to watch the Washington Capitals play the New York Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7173726/2026/04/05/capitals-vs-rangers-stream-how-to-watch-april-5/
 
