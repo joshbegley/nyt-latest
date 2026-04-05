@@ -1,3 +1,7 @@
+**March's top selling sports cards: Judge, Ohtani, Flagg, Knueppel  and more**\
+`Two big Aaron Judge card sales led the way, but did he actually lower the value of one he shared with Ohtani? `\
+https://nytimes.com/athletic/7172639/2026/04/05/top-selling-sports-cards-ohtani-flagg-judge/
+
 **More Than 70 Migrants Feared Dead After Boat Capsizes Off Libya**\
 `Survivors said at least 100 people were on a boat that had left Libya for Europe. Only 32 of those aboard are known to have survived.`\
 https://nytimes.com/2026/04/05/world/europe/migrants-missing-boat-capsize-libya.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7173661/2026/04/05/jazz-vs-thunder-stream-how-to-wa
 **Simple Bread Pudding, Spring Vegetables Every Which Way and Hot Cross Buns**\
 `Happy Easter, happy spring and happy Sunday.`\
 https://nytimes.com/2026/04/05/dining/simple-bread-pudding-spring-vegetables-every-which-way-and-hot-cross-buns.html
-
-**How the C.I.A. Helped Locate a U.S. Airman Hiding on an Iranian Ridgeline**\
-`The intelligence agency also executed a deception campaign aimed at drawing Iranian forces away from where the missing Air Force officer was hiding.`\
-https://nytimes.com/2026/04/05/world/middleeast/cia-us-airman-rescue-iran.html
 

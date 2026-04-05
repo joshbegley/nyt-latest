@@ -1,3 +1,7 @@
+**More Than 70 Migrants Feared Dead After Boat Capsizes Off Libya**\
+`Survivors said at least 100 people were on a boat that had left Libya for Europe. Only 32 of those aboard are known to have survived.`\
+https://nytimes.com/2026/04/05/world/europe/migrants-missing-boat-capsize-libya.html
+
 **How to watch Devils vs. Canadiens: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the Montreal Canadiens, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173728/2026/04/05/devils-vs-canadiens-stream-how-to-watch-april-5/
