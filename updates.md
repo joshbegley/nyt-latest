@@ -1,3 +1,15 @@
+**How to watch Cubs vs. Guardians: Time, TV, streaming for April 5**\
+`Find out how to watch the Chicago Cubs play the Cleveland Guardians, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173233/2026/04/05/cubs-vs-guardians-stream-how-to-watch-april-5/
+
+**How to watch Sevilla vs. Real Oviedo in the U.S.**\
+`Find out how to watch Sevilla play Real Oviedo, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173231/2026/04/05/sevilla-vs-real-oviedo-stream-how-to-watch-la-liga-april-5/
+
+**How to watch FC Cologne vs. Eintracht Frankfurt in the U.S.**\
+`Find out how to watch FC Cologne play Eintracht Frankfurt, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173229/2026/04/05/fc-cologne-vs-eintracht-frankfurt-stream-how-to-watch-bundesliga-april-5/
+
 **‘Twelve Dollars for Two Gallons’: E.V.s Lure Drivers as Gas Prices Rise**\
 `From the gas pump to the auto show, drivers are talking about electric vehicles.`\
 https://nytimes.com/2026/04/05/us/twelve-dollars-for-two-gallons-evs-lure-drivers-as-gas-prices-rise.html

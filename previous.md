@@ -1,3 +1,15 @@
+**How to watch Cubs vs. Guardians: Time, TV, streaming for April 5**\
+`Find out how to watch the Chicago Cubs play the Cleveland Guardians, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173233/2026/04/05/cubs-vs-guardians-stream-how-to-watch-april-5/
+
+**How to watch Sevilla vs. Real Oviedo in the U.S.**\
+`Find out how to watch Sevilla play Real Oviedo, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173231/2026/04/05/sevilla-vs-real-oviedo-stream-how-to-watch-la-liga-april-5/
+
+**How to watch FC Cologne vs. Eintracht Frankfurt in the U.S.**\
+`Find out how to watch FC Cologne play Eintracht Frankfurt, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173229/2026/04/05/fc-cologne-vs-eintracht-frankfurt-stream-how-to-watch-bundesliga-april-5/
+
 **‘Twelve Dollars for Two Gallons’: E.V.s Lure Drivers as Gas Prices Rise**\
 `From the gas pump to the auto show, drivers are talking about electric vehicles.`\
 https://nytimes.com/2026/04/05/us/twelve-dollars-for-two-gallons-evs-lure-drivers-as-gas-prices-rise.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/04/05/us/400-bibles-luxurious-scripture-is-on-the-rise.
 **A Wedding Weekend, No Spouse Required**\
 `For some single women, milestone birthday parties offer the celebratory feel of a wedding, without the marriage.`\
 https://nytimes.com/2026/04/05/style/single-women-birthday-parties-wedding-vibes.html
-
-**Their Parents Were Taken by ICE. The Children Had to Raise One Another.**\
-`Andrea García and her siblings are carrying on in a home reshaped by fear, loss and new responsibility.`\
-https://nytimes.com/2026/04/05/us/their-parents-were-taken-by-ice-the-children-had-to-raise-one-another.html
-
-**Hockey Rinks Turn to Plastic Ice as Planet Warms**\
-`Some environmentalists question using plastic to address rising temperatures.`\
-https://nytimes.com/2026/04/05/business/hockey-rinks-turn-to-plastic-ice-as-planet-warms.html
-
-**Tradwife or Trainwreck?**\
-`In Caro Claire Burke’s novel, “Yesteryear,” a homesteading momfluencer can no longer hide the scandal swirling just below the surface.`\
-https://nytimes.com/2026/04/05/books/review/yesteryear-caro-claire-burke.html
 
