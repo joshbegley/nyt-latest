@@ -18,8 +18,8 @@ https://nytimes.com/athletic/7173374/2026/04/05/raptors-vs-celtics-stream-how-to
 `The Twins have requested 30 ABS challenges, nine more than the next closest team in the majors, with 19 successful conversions. `\
 https://nytimes.com/athletic/7172839/2026/04/05/twins-aggressive-abs-team-mlb/
 
-**Revival, Is That You?**\
-`It’s Easter, the busiest day of the year for many churches. The packed pews and overflowing chapels are a sign that Christianity is making a comeback, right? Not so fast.`\
+**Is Christianity Making a Comeback?**\
+`Some see Easter Sunday’s packed pews and overflowing chapels as a sign of a religious revival. But experts are urging caution.`\
 https://nytimes.com/2026/04/05/briefing/easte-christian-revival-trump.html
 
 **Why the Moon Mission Is a Redemption Story**\

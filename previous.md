@@ -1,3 +1,31 @@
+**How to watch Wizards vs. Nets: Time, TV, streaming**\
+`Find out how to watch the Washington Wizards play the Brooklyn Nets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173382/2026/04/05/wizards-vs-nets-stream-how-to-watch-april-5/
+
+**How to watch Suns vs. Bulls: Time, TV, streaming**\
+`Find out how to watch the Phoenix Suns play the Chicago Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173380/2026/04/05/suns-vs-bulls-stream-how-to-watch-april-5/
+
+**How to watch Grizzlies vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173376/2026/04/05/grizzlies-vs-bucks-stream-how-to-watch-april-5/
+
+**How to watch Raptors vs. Celtics: Time, TV, streaming**\
+`Find out how to watch the Toronto Raptors play the Boston Celtics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7173374/2026/04/05/raptors-vs-celtics-stream-how-to-watch-april-5/
+
+**Behind the Twins' ABS challenges, strategy: 'We don't have a cheat code'**\
+`The Twins have requested 30 ABS challenges, nine more than the next closest team in the majors, with 19 successful conversions. `\
+https://nytimes.com/athletic/7172839/2026/04/05/twins-aggressive-abs-team-mlb/
+
+**Revival, Is That You?**\
+`It’s Easter, the busiest day of the year for many churches. The packed pews and overflowing chapels are a sign that Christianity is making a comeback, right? Not so fast.`\
+https://nytimes.com/2026/04/05/briefing/easte-christian-revival-trump.html
+
+**Why the Moon Mission Is a Redemption Story**\
+`Today is Easter, and the fourth day of Passover. Both holidays are centered on redemption stories. So I’ve been thinking about what these stories are, why they stick and how they are appearing now.`\
+https://nytimes.com/2026/04/05/briefing/easter-passover-artemis-moon.html
+
 **Pope Leo Calls for Peace and Warns of a World Indifferent to Violence**\
 `The pontiff’s Easter remarks follow a Palm Sunday homily in which he said God rejected the prayers of “those who wage war.”`\
 https://nytimes.com/2026/04/05/world/europe/pope-leo-easter.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/7173356/2026/04/05/south-carolina-vs-ucla-stream-ho
 **Liverpool players let down ourselves, the manager and our fans in FA Cup defeat - Van Dijk**\
 `The Netherlands defender said he was "hurting" after Arne Slot's side capitulated at the Etihad in their four-goal loss.`\
 https://nytimes.com/athletic/7173308/2026/04/05/van-dijk-liverpool-fa-cup-defeat/
-
-**How to watch Phillies vs. Rockies: Time, TV, streaming for April 5**\
-`Find out how to watch the Philadelphia Phillies play the Colorado Rockies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7173343/2026/04/05/phillies-vs-rockies-stream-how-to-watch-april-5/
-
-**How to watch Panthers vs. Penguins: Time, TV, streaming**\
-`Find out how to watch the Florida Panthers play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7173339/2026/04/05/panthers-vs-penguins-stream-how-to-watch-april-5/
-
-**How to watch Blue Jays vs. White Sox: Time, TV, streaming for April 5**\
-`Find out how to watch the Toronto Blue Jays play the Chicago White Sox, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7173333/2026/04/05/blue-jays-vs-white-sox-stream-how-to-watch-april-5/
-
-**How to watch Orioles vs. Pirates: Time, TV, streaming for April 5**\
-`Find out how to watch the Baltimore Orioles play the Pittsburgh Pirates, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7173331/2026/04/05/orioles-vs-pirates-stream-how-to-watch-april-5/
-
-**How to watch Brewers vs. Royals: Time, TV, streaming for April 5**\
-`Find out how to watch the Milwaukee Brewers play the Kansas City Royals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7173328/2026/04/05/brewers-vs-royals-stream-how-to-watch-april-5/
-
-**How to watch Marlins vs. Yankees: Time, TV, streaming for April 5**\
-`Find out how to watch the Miami Marlins play the New York Yankees, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7173325/2026/04/05/marlins-vs-yankees-stream-how-to-watch-april-5/
-
-**How to watch Reds vs. Rangers: Time, TV, streaming for April 5**\
-`Find out how to watch the Cincinnati Reds play the Texas Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7173323/2026/04/05/reds-vs-rangers-stream-how-to-watch-april-5/
 
