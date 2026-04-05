@@ -1,4 +1,8 @@
 **Deontay Wilder wins heavyweight brawl vs. Derek Chisora via split decision**\
+`Wilder got the decision after knocking down Chisora in the eighth round of a scrappy affair at London's O2 Arena.`\
+https://nytimes.com/athletic/7172546/2026/04/04/wilder-beats-chisora-slit-decision-heavyweight-fight/
+
+**Deontay Wilder wins heavyweight brawl vs. Derek Chisora via split decision**\
 `Wilder got the decision after putting Chisora on the mat in the eighth round of a scrappy affair at London's O2 Arena.`\
 https://nytimes.com/athletic/7172546/2026/04/04/wilder-beats-chisora-slit-decision-heavyweight-fight/
 
