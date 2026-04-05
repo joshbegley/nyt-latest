@@ -30,7 +30,7 @@ https://nytimes.com/athletic/7173993/2026/04/05/how-to-watch-rockets-vs-warriors
 `The president said he would bomb Iran “back to the Stone Ages.” Until this administration, American leaders had insisted they were trying to follow international law in war.`\
 https://nytimes.com/2026/04/05/us/politics/trump-iran-war-crimes-truth-social.html
 
-**Astros place Hunter Brown on injured list with right shoulder strain**\
+**Astros ace Brown placed on injured list with right shoulder strain**\
 `Astros manager Joe Espada said Brown felt the injury Friday during his throwing program and traveled back to Houston to visit team doctors.`\
 https://nytimes.com/athletic/7173898/2026/04/05/houston-astros-hunter-brown-shoulder-injury/
 
