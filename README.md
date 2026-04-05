@@ -1,3 +1,7 @@
+**3 Dead After High Winds Topple Tree During Easter Egg Hunt in Germany**\
+`A 21-year-old woman, her baby and a 16-year-old girl were killed after a nearly 100-foot tree fell in a wooded area in northeast Germany, the police said.`\
+https://nytimes.com/2026/04/05/us/germany-easter-egg-hunt-tree-kills-3.html
+
 **Gray Skies but Pastels Aplenty at the Easter Parade**\
 `April showers brought silk flowers on Sunday, as New Yorkers promenaded along Fifth Avenue in Manhattan for the annual Easter Parade and Bonnet Festival.`\
 https://nytimes.com/2026/04/05/style/nyc-easter-parade-bonnet-festival-fifth-avenue-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7168803/2026/04/05/west-ham-leeds-score-result-repo
 **How to watch Rockets vs. Warriors: Time, TV, streaming**\
 `Find out how to watch the Houston Rockets play the Golden State Warriors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173993/2026/04/05/how-to-watch-rockets-vs-warriors-tv-channel-and-streaming-options-for-april-5/
-
-**Trump Revels in Threats to Commit War Crimes in Iran**\
-`The president said he would bomb Iran “back to the Stone Ages.” Until this administration, American leaders had insisted they were trying to follow international law in war.`\
-https://nytimes.com/2026/04/05/us/politics/trump-iran-war-crimes-truth-social.html
 
