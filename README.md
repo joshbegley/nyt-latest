@@ -1,3 +1,7 @@
+**How Democrats and Republicans Are Clashing in Week 6 of the Iran War**\
+`A swing-district Republican called the war an “incredible operation,” and President Trump drew backlash from political figures in both parties over a social media post.`\
+https://nytimes.com/2026/04/05/us/politics/democrats-republicans-trump-iran-war.html
+
 **Here’s a Timeline of Trump’s Ultimatums Over the Strait of Hormuz**\
 `President Trump first gave Iran 48 hours to reopen the vital oil shipping route on March 21. The deadline has been reset many times since.`\
 https://nytimes.com/2026/04/05/world/middleeast/trump-strait-of-hormuz-deadline-iran-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/05/us/politics/trump-iran-war-crimes-truth-social.ht
 **Astros ace Brown placed on injured list with right shoulder strain**\
 `Astros manager Joe Espada said Brown felt the injury Friday during his throwing program and traveled back to Houston to visit team doctors.`\
 https://nytimes.com/athletic/7173898/2026/04/05/houston-astros-hunter-brown-shoulder-injury/
-
-**How to watch Cardinals vs. Tigers: Time, TV, streaming for April 5**\
-`Find out how to watch the St. Louis Cardinals play the Detroit Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7173906/2026/04/05/how-to-watch-cardinals-vs-tigers-tv-channel-and-streaming-options-for-april-5/
 
