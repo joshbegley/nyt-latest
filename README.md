@@ -1,4 +1,8 @@
-**After Daring U.S. Rescue of Airman, Iran Claims a Victory**\
+**Canadiens complete perfect road trip, earn opportunity to do special things at home**\
+`The Canadiens were less than the best version of themselves and still came out of New Jersey with their eighth straight win. `\
+https://nytimes.com/athletic/7173073/2026/04/05/canadiens-devils-win-nhl-standings/
+
+**Iran Downing of Plane and Daring U.S. Rescue Leave Both Sides Emboldened**\
 `Iran’s downing of a U.S. plane and the complex two-day American rescue operation to extract a stranded airman has emboldened both sides, a potential recipe for escalation.`\
 https://nytimes.com/2026/04/05/world/middleeast/iran-us-rescue.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/05/briefing/easte-christian-revival-trump.html
 **Why the Moon Mission Is a Redemption Story**\
 `Today is Easter, and the fourth day of Passover. Both holidays are centered on redemption stories. So I’ve been thinking about what these stories are, why they stick and how they are appearing now.`\
 https://nytimes.com/2026/04/05/briefing/easter-passover-artemis-moon.html
-
-**Pope Leo Calls for Peace and Warns of a World Indifferent to Violence**\
-`The pontiff’s Easter remarks follow a Palm Sunday homily in which he said God rejected the prayers of “those who wage war.”`\
-https://nytimes.com/2026/04/05/world/europe/pope-leo-easter.html
 
