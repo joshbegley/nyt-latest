@@ -6,13 +6,13 @@ https://nytimes.com/2026/04/05/us/twelve-dollars-for-two-gallons-evs-lure-driver
 `The animated sequel was expected to collect about $371 million worldwide over its first five days in theaters. “Kids love the movie,” a box office analyst said.`\
 https://nytimes.com/2026/04/05/business/box-office-super-mario-galaxy-movie.html
 
-**For People With Autism, Can Restaurant Kitchens Be a Haven?**\
-`Culinary jobs have the potential to be a perfect fit, and a new effort is afoot to help autistic workers land them.`\
-https://nytimes.com/2026/04/05/dining/autism-chefs-restaurants.html
-
 **Interceptor Missiles Save Lives, but Stockpiles Are Dwindling**\
 `Defense systems that shoot projectiles out of the sky have become one of the most important components of warfare, so much so that militaries face a diminishing supply.`\
 https://nytimes.com/2026/04/05/world/middleeast/iran-war-interceptor-missiles.html
+
+**For People With Autism, Can Restaurant Kitchens Be a Haven?**\
+`Culinary jobs have the potential to be a perfect fit, and a new effort is afoot to help autistic workers land them.`\
+https://nytimes.com/2026/04/05/dining/autism-chefs-restaurants.html
 
 **The Scale of the War in the Middle East in Five Maps**\
 `See how the area of the countries affected by the war compares with other parts of the world.`\
