@@ -1,3 +1,7 @@
+**Gray Skies but Pastels Aplenty at the Easter Parade**\
+`April showers brought silk flowers on Sunday as New Yorkers promenaded along Fifth Avenue in Manhattan for the annual Easter Parade and Bonnet Festival.`\
+https://nytimes.com/2026/04/05/style/nyc-easter-parade-bonnet-festival-fifth-avenue-photos.html
+
 **A Food Pantry Network Suddenly Shuttered, Leaving Thousands Scrambling**\
 `Ruby’s Pantry had 85 locations in communities in Minnesota, Wisconsin, North Dakota and Iowa.`\
 https://nytimes.com/2026/04/05/us/midwest-food-bank-rubys-pantry.html
