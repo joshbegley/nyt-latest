@@ -1,3 +1,7 @@
+**Final Four injuries: Lendeborg plans to play, Ball in walking boot on eve of title game**\
+`Lendeborg said after Saturday's semifinal that he planned to play in the title game unless he couldn’t walk when he woke up Sunday.`\
+https://nytimes.com/athletic/7173796/2026/04/05/michigan-uconn-injuries-yaxel-lendeborg-solo-ball/
+
 **Tour of Flanders: Pogacar goes solo to land 12th Monument win, Vollering drops rivals to record first Ronde victory**\
 `The Athletic's writers analyse the men's and women's Ronde van Vlaanderen – the second Monument race of the 2026 season`\
 https://nytimes.com/athletic/7173340/2026/04/05/tour-of-flanders-analysis-2026-pogacar-vollering-evenepoel/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7173728/2026/04/05/devils-vs-canadiens-stream-how-t
 **How to watch Capitals vs. Rangers: Time, TV, streaming**\
 `Find out how to watch the Washington Capitals play the New York Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7173726/2026/04/05/capitals-vs-rangers-stream-how-to-watch-april-5/
-
-**Key injuries are ill-timed for the Lakers. LeBron, JJ Redick have been here before**\
-`"I think it's up to all of us, whoever's in the lineup, to pick up our individual play and make plays together," LeBron James said.`\
-https://nytimes.com/athletic/7173096/2026/04/05/lakers-injuries-lebron-jj-redick-luka-austin-reaves-nba/
 

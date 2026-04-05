@@ -1,3 +1,7 @@
+**Tour of Flanders: Pogacar goes solo to land 12th Monument win, Vollering drops rivals to record first Ronde victory**\
+`The Athletic's writers analyse the men's and women's Ronde van Vlaanderen – the second Monument race of the 2026 season`\
+https://nytimes.com/athletic/7173340/2026/04/05/tour-of-flanders-analysis-2026-pogacar-vollering-evenepoel/
+
 **Pepsi Drops Sponsorship of London Music Festival Headlined by Ye**\
 `Prime Minister Keir Starmer said he was “deeply concerned” that the rapper known for antisemitic and racist comments had been booked to perform at the Wireless Festival.`\
 https://nytimes.com/2026/04/05/world/europe/ye-music-festival-pepsi-antisemitism.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7173726/2026/04/05/capitals-vs-rangers-stream-how-t
 **Key injuries are ill-timed for the Lakers. LeBron, JJ Redick have been here before**\
 `"I think it's up to all of us, whoever's in the lineup, to pick up our individual play and make plays together," LeBron James said.`\
 https://nytimes.com/athletic/7173096/2026/04/05/lakers-injuries-lebron-jj-redick-luka-austin-reaves-nba/
-
-**German police investigating 'dangerous bodily harm' after on-pitch clashes between rival fans**\
-`Dynamo Dresden vs Hertha Berlin was suspended for around 20 minutes after fans set of pyrotechnics and invaded the pitch. `\
-https://nytimes.com/athletic/7173590/2026/04/05/dynamo-dresden-hertha-berlin-police-investigation/
 
