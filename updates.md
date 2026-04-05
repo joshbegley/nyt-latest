@@ -1,3 +1,7 @@
+**'I almost cried': Emotional Evgeni Malkin records hat trick as Penguins rout Panthers**\
+`Malkin netted his 14th career hat trick and passed the 1,400-point mark for his career against Florida on Saturday.`\
+https://nytimes.com/athletic/7171915/2026/04/04/evgeni-malkin-penguins-hat-trick-panthers/
+
 **UConn's Dan Hurley jokes he's had 'a negative influence on Geno' Auriemma**\
 `Hurley, who is known for his temper, also offered support for his UConn colleague.`\
 https://nytimes.com/athletic/7172866/2026/04/04/dan-hurley-responds-geno-auriemma-dawn-staley-statement/
