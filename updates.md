@@ -1,4 +1,8 @@
 **Arsenal's season has narrowed. Now Arteta must galvanise squad with so much still at stake**\
+`Southampton were seen by some as an easy route through to the semi-finals for the north London team. Yet it proved to be anything but`\
+https://nytimes.com/athletic/7172388/2026/04/05/arsenal-southampton-fa-cup-defeat/
+
+**Arsenal's season has narrowed. Now Arteta must galvanise squad with so much still at stake**\
 `Southampton was seen by some as an easy route through to the semi-finals for the north London team. Yet it proved to be anything but`\
 https://nytimes.com/athletic/7172388/2026/04/05/arsenal-southampton-fa-cup-defeat/
 
