@@ -1,3 +1,7 @@
+**Shots Fired at Indianapolis Councilman’s Home, After Vote Backing Data Center**\
+`No one was injured, but the councilman, Ron Gibson, called it “deeply unsettling.”`\
+https://nytimes.com/2026/04/06/us/indianapolis-data-center-shooting.html
+
 **Falcons' James Pearce Jr. will not attend minicamp following February arrest: Source**\
 `Pearce’s status with the team has been in limbo since he was arrested following an incident with former girlfriend Rickea Jackson.`\
 https://nytimes.com/athletic/7168049/2026/04/06/falcons-james-pearce-jr-minicamp-arrest/
