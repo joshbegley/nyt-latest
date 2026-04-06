@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: Supreme Court Clears Way for Dismissal of Bannon Conviction**\
+``\
+https://nytimes.com/live/2026/04/06/us/trump-news
+
+**Cruise Ship Runs Aground Off Island Where ‘Cast Away’ Was Filmed**\
+`Tom Hanks’s character spent four years stranded in the 2000 film. The 30 cruise passengers were rescued much more quickly.`\
+https://nytimes.com/2026/04/06/world/australia/castaway-cruise-shipwreck-fiji.html
+
 **Supreme Court Clears the Way for Dismissal of Bannon Conviction**\
 `Stephen K. Bannon, a former close aide to President Trump, was convicted for failing to comply with a congressional subpoena related to the investigation into the Jan. 6 attack.`\
 https://nytimes.com/2026/04/06/us/politics/supreme-court-bannon-trump.html
