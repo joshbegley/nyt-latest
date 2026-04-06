@@ -1,3 +1,11 @@
+**Making sense of the Giants' disastrous start to the 2026 season**\
+`The Giants have been bad so far, but when you look at the individual reasons why they have been bad, it doesn't yet give a full picture.`\
+https://nytimes.com/athletic/7176585/2026/04/06/sf-giants-poor-start-reasons/
+
+**Full Time: World Cup prep continues vs. Japan**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/7176680/2026/04/06/emma-hayes-uswnt-japan-world-cup-full-time/
+
 **Hard Fork Full Episode 188**\
 `Last week, two separate juries held social media companies liable for harming young users.`\
 https://nytimes.com/video/podcasts/100000010825223/hard-fork-full-episode-188.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/science/space/100000010788127/exploring-the-far-side-o
 **Artemis II Crew Names Crater After Mission Commander’s Late Wife**\
 `As the Artemis II mission approached lunar flyby on Monday, the crew shared an emotional moment when they called down to mission control to request that a previously unnamed moon crater be dedicated to Carroll, the late wife of the mission commander, Reid Wiseman.`\
 https://nytimes.com/video/science/space/100000010825583/artemis-carroll-wiseman-crater.html
-
-**Melania Trump’s Unexpected Easter Look**\
-`The first lady makes a statement in Ralph Lauren at the annual egg toss.`\
-https://nytimes.com/2026/04/06/style/easter-egg-roll-melania-trump-ralph-lauren.html
-
-**Peter DeBoer, Islanders react to late-season coaching change: 'Out of left field'**\
-`DeBoer, who takes over in New York with four games left in the regular season, is one of the most experienced coaches in the world.`\
-https://nytimes.com/athletic/7176212/2026/04/06/peter-deboer-islanders-coach-patrick-roy/
 
