@@ -6,7 +6,7 @@ https://nytimes.com/2026/04/05/arts/television/the-comeback-season-3-episode-3-r
 `After last season's Final Four loss, UCLA has dedicated itself to learning from mistakes and finding redemption. `\
 https://nytimes.com/athletic/7174724/2026/04/05/ucla-championship-south-carolina-lessons/
 
-**Donovan Mitchell drops two defenders with one ankle breaker in Cavaliers' win**\
+**Donovan Mitchell leaves two defenders on the floor in viral ankle breaker during Cavs win**\
 `Mitchell dropped jaws and two Pacers defenders before scoring via floater as Indiana's Micah Potter and Kobe Brown watched from the ground.`\
 https://nytimes.com/athletic/7174708/2026/04/05/donovan-mitchell-stats-performance-cavaliers-pacers-nba/
 
