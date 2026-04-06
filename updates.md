@@ -1,3 +1,7 @@
+**Blue Jackets Monday Gathering: What is —and isn't — behind this surprising collapse**\
+`Let's dispel a few theories and look at what's really going on as frustrations mount during the playoff race.`\
+https://nytimes.com/athletic/7173450/2026/04/06/blue-jackets-collapse-playoff-race/
+
 **Savannah Guthrie Returns to the ‘Today’ Show**\
 `Savannah Guthrie rejoined the “Today” show morning newscast more than two months after her mother’s disappearance in February. Her 84-year-old mother, Nancy Guthrie, remains missing.`\
 https://nytimes.com/video/us/100000010824713/savannah-guthrie-today-show.html
