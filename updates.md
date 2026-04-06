@@ -1,3 +1,7 @@
+**Jamie Dimon Cites Risks From War, Private Credit and More**\
+`In his annual letter to shareholders, Jamie Dimon, the chief executive of JPMorgan Chase, said investors and businesses faced a series of challenges.`\
+https://nytimes.com/2026/04/06/business/dealbook/jamie-dimon-war-private-credit.html
+
 **Iranian Intelligence Chief Killed in Overnight Attack**\
 `Israel claimed responsibility for the death of Major General Seyed Majid Khademi, the spy chief of the Islamic Revolutionary Guards Corps, the latest senior official to be killed in the war.`\
 https://nytimes.com/2026/04/06/world/middleeast/iran-khademi-intelligence-israel.html

@@ -1,3 +1,7 @@
+**Jamie Dimon Cites Risks From War, Private Credit and More**\
+`In his annual letter to shareholders, Jamie Dimon, the chief executive of JPMorgan Chase, said investors and businesses faced a series of challenges.`\
+https://nytimes.com/2026/04/06/business/dealbook/jamie-dimon-war-private-credit.html
+
 **Iranian Intelligence Chief Killed in Overnight Attack**\
 `Israel claimed responsibility for the death of Major General Seyed Majid Khademi, the spy chief of the Islamic Revolutionary Guards Corps, the latest senior official to be killed in the war.`\
 https://nytimes.com/2026/04/06/world/middleeast/iran-khademi-intelligence-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7175472/2026/04/06/vinicius-real-madrid-contract/
 **What Do You Think About the U.S. Sending Astronauts to the Moon Again?**\
 `A NASA mission is taking four astronauts around the moon and back for the first time in 50 years. Will it make a difference in the world?`\
 https://nytimes.com/2026/04/06/learning/what-do-you-think-about-the-us-sending-astronauts-to-the-moon-again.html
-
-**Word of the Day: filial**\
-`This word has appeared in 14 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/04/06/learning/word-of-the-day-filial.html
 

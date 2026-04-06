@@ -1,3 +1,7 @@
+**Rockets’ late-season offensive evolution is yielding results, wins and optimism**\
+`Houston registered its sixth straight game of 30 or more assists vs. the Warriors on Sunday, a sign of growing trust.`\
+https://nytimes.com/athletic/7175249/2026/04/06/rockets-offense-sengun-durant-assists/
+
 **Jamie Dimon Cites Risks From War, Private Credit and More**\
 `In his annual letter to shareholders, Jamie Dimon, the chief executive of JPMorgan Chase, said investors and businesses faced a series of challenges.`\
 https://nytimes.com/2026/04/06/business/dealbook/jamie-dimon-war-private-credit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7173820/2026/04/06/edmonton-oilers-lines-zach-hyman
 **Vinicius Jr wants Madrid stay 'for many years', speaks on 'difficult' Alonso period**\
 `The 25-year-old, who has scored 123 goals for Madrid since joining in 2018 from Flamengo, has played down any speculation on his future.`\
 https://nytimes.com/athletic/7175472/2026/04/06/vinicius-real-madrid-contract/
-
-**What Do You Think About the U.S. Sending Astronauts to the Moon Again?**\
-`A NASA mission is taking four astronauts around the moon and back for the first time in 50 years. Will it make a difference in the world?`\
-https://nytimes.com/2026/04/06/learning/what-do-you-think-about-the-us-sending-astronauts-to-the-moon-again.html
 
