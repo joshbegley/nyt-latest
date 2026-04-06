@@ -1,3 +1,11 @@
+**At Least 4 Killed in Strike in Northern Israel**\
+`Rescue workers recovered four bodies from a residential building in the port city of Haifa after air defenses failed to intercept an Iranian strike, Israeli officials said.`\
+https://nytimes.com/2026/04/06/world/middleeast/israel-haifa-strike-iran.html
+
+**The NBA's tanking problem is even worse than you think**\
+`The Notorious Nine — the teams that are blatantly trying to lose — have succeeded at their mission while dragging down the sport.`\
+https://nytimes.com/athletic/7175030/2026/04/06/nba-tanking-costs-blowouts/
+
 **The Athletic college baseball top 25: Surging UCF enters at No. 17; Kentucky, Oregon drop out**\
 `UCF and Kansas join West Virginia and Arizona State to give the Big 12 four teams in this week's ranking.`\
 https://nytimes.com/athletic/7175627/2026/04/06/college-baseball-ranking-ucf-kansas-ucla-georgia/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/06/pageoneplus/corrections-april-4-2026.html
 **Steph Curry's game-altering return shows why the Warriors can't give up on this**\
 `On restricted minutes, Curry nearly led an upset of one of the league's hottest teams. It's why the Warriors still hold on to hope.`\
 https://nytimes.com/athletic/7175415/2026/04/06/stephen-curry-warriors-return-nba-playoffs-injury/
-
-**The man who saw everything: Lawrence Bennett’s long drive through Augusta’s history**\
-`“Probably nobody on the planet knows more about Augusta National than me." `\
-https://nytimes.com/athletic/7174158/2026/04/06/augusta-national-masters-history-lawrence-bennett-green-jackets/
-
-**The Blues' playoff chances looked lost. Then they knocked off the NHL's best team**\
-`An improbable win in Colorado has St. Louis just three points back of the West's second wild card with six games to play.`\
-https://nytimes.com/athletic/7175037/2026/04/06/blues-playoff-chances-win-avalanche/
 
