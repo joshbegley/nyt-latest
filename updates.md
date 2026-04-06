@@ -1,3 +1,5 @@
+
+
 **Redistricting War Comes Down to Virginia and Florida**\
 `As deadlines approach in the next two weeks, neither is going quite according to the partisan plan.`\
 https://nytimes.com/2026/04/06/us/politics/redistricting-virginia-florida-ga-special-election-republicans.html
