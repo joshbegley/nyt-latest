@@ -1,3 +1,15 @@
+**Ten Ravens to watch with offseason workout program set to begin**\
+`Rashod Bateman and Mike Green are among the players who would benefit from a strong first impression with the new coaching staff. `\
+https://nytimes.com/athletic/7169537/2026/04/06/ravens-offseason-workout-program-rashod-bateman/
+
+**Phillies takeaways: Stott's new approach, Walker's review, Duran's splitter**\
+`Stott is carrying the highest chase rate among all Phillies hitters; the newfound aggressiveness has not resulted in much this season.`\
+https://nytimes.com/athletic/7174565/2026/04/06/phillies-bryson-stott-jhoan-duran-taijuan-walker/
+
+**Rosenthal: 5 key reasons why the Cubs' $141 million extension with Nico Hoerner makes sense**\
+`Hoerner is a top defender and base runner, despite only being a slightly above-average hitter during his time with the Cubs.`\
+https://nytimes.com/athletic/7174758/2026/04/06/chicago-cubs-nico-hoerner-extension/
+
 **Back-to-back first hat tricks, 2 dominant wins: Inside a memorable Rangers weekend**\
 `Will Cuylle's hat trick on Sunday marked the first time in Rangers history that the team has had hat tricks on back-to-back-days.`\
 https://nytimes.com/athletic/7174965/2026/04/06/rangers-perreault-cuylle-hat-tricks-quick-red-wings-capitals/
