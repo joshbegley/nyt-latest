@@ -1,3 +1,7 @@
+**Rockets’ late-season offensive evolution is yielding results, wins and optimism**\
+`Houston registered its sixth straight game of 30 or more assists vs. the Warriors on Sunday, a sign of growing trust.`\
+https://nytimes.com/athletic/7175249/2026/04/06/rockets-offense-sengun-durant-assists/
+
 **Jamie Dimon Cites Risks From War, Private Credit and More**\
 `In his annual letter to shareholders, Jamie Dimon, the chief executive of JPMorgan Chase, said investors and businesses faced a series of challenges.`\
 https://nytimes.com/2026/04/06/business/dealbook/jamie-dimon-war-private-credit.html

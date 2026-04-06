@@ -1,3 +1,11 @@
+**Curry brothers share the floor as NBA teammates: 'A dream come true'**\
+`Steph and Seth Curry, who have played in the NBA since 2009 and 2014, respectively, finally got to be teammates Sunday night.`\
+https://nytimes.com/athletic/7175368/2026/04/06/steph-curry-seth-curry-teammates-warriors/
+
+**College baseball week in review: Georgia takes SEC lead with sweep in Starkville**\
+`Cade Arrambide's record-setting day powers LSU to a series win. Kansas hits four ninth-inning HRs to beat Utah. Georgia Tech keeps mashing.`\
+https://nytimes.com/athletic/7174109/2026/04/06/college-baseball-georgia-mississippi-state-ucla-usc/
+
 **Rockets’ late-season offensive evolution is yielding results, wins and optimism**\
 `Houston registered its sixth straight game of 30 or more assists vs. the Warriors on Sunday, a sign of growing trust.`\
 https://nytimes.com/athletic/7175249/2026/04/06/rockets-offense-sengun-durant-assists/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7175308/2026/04/06/bundesliga-bayern-goretzka-board
 **Why can't the Twins hit lefties? As a new season begins, a familiar problem persists**\
 `Year after year, the Twins' lineup struggles versus lefties. And the early numbers this season are uglier than ever.`\
 https://nytimes.com/athletic/7163825/2026/04/06/why-cant-twins-hit-left-handed-pitchers/
-
-**Lowetide: As injuries hit the top of Oilers' roster, opportunity knocks**\
-`How should the Oilers line up their forwards now that Zach Hyman has joined Leon Draisaitl on the sidelines?`\
-https://nytimes.com/athletic/7173820/2026/04/06/edmonton-oilers-lines-zach-hyman-injury-wingers/
-
-**Vinicius Jr wants Madrid stay 'for many years', speaks on 'difficult' Alonso period**\
-`The 25-year-old, who has scored 123 goals for Madrid since joining in 2018 from Flamengo, has played down any speculation on his future.`\
-https://nytimes.com/athletic/7175472/2026/04/06/vinicius-real-madrid-contract/
 
