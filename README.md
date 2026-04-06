@@ -1,3 +1,7 @@
+**New Jersey Devils fire general manager Tom Fitzgerald**\
+`Fitzgerald had been part of the Devils front office since 2015 at varying levels, and GM since 2020.`\
+https://nytimes.com/athletic/7176974/2026/04/06/nj-devils-gm-tom-fitzgerald-fired-news/
+
 **Here’s What Happened in the War in the Middle East on Monday**\
 `President Trump escalated his threats ahead of his pending Tuesday deadline for Iran to reopen the Strait of Hormuz.`\
 https://nytimes.com/2026/04/06/world/middleeast/middle-east-iran-war-week-6.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010825584/trump-iran-threats-war-f-1
 **How to Follow NASA’s Artemis II Around the Far Side of the Moon**\
 `The astronauts will head into a communications blackout at 6:44 p.m. Eastern time as they become the first people to travel around the moon since 1972.`\
 https://nytimes.com/2026/04/06/science/artemis-ii-moon-watch.html
-
-**Redistricting War Comes Down to Virginia and Florida**\
-`As deadlines approach in the next two weeks, neither is going quite according to the partisan plan.`\
-https://nytimes.com/2026/04/06/us/politics/redistricting-virginia-florida-ga-special-election-republicans.html
 
