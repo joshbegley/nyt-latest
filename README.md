@@ -2,8 +2,8 @@
 `By Yan Zhuang and Aaron Boxerman`\
 https://nytimes.com/live/2026/04/06/world/iran-war-trump-israel/heres-the-latest
 
-**Iran War Live Updates: Strikes Hit Israel and Iran After Trump’s New Hormuz Ultimatum**\
-`The fighting followed President Trump’s threat to bomb power plants and bridges on Tuesday if Iran did not open the Strait of Hormuz.`\
+**Iran War Live Updates: Israel and Iran Trade Attacks After Trump’s New Hormuz Ultimatum**\
+`The fighting on Monday morning followed President Trump’s threat to bomb power plants and bridges on Tuesday if Iran did not open the Strait of Hormuz.`\
 https://nytimes.com/live/2026/04/06/world/iran-war-trump-israel
 
 **Sharpton Moves Longtime Civil Rights Group to New Home in Harlem**\
