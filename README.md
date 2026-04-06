@@ -1,3 +1,7 @@
+**Here’s What Happened in the War in the Middle East on Sunday**\
+`President Trump taunted Iran on social media, while strikes continued in Iran, Israel, Lebanon and some Gulf states.`\
+https://nytimes.com/2026/04/05/world/middleeast/iran-israel-us-war-middle-east.html
+
 **Martone's overtime winner, gorgeous assist catapult Flyers into playoff position**\
 `The Flyers bypassed a wild-card spot entirely to jump to third in the Metro after the overtime win.`\
 https://nytimes.com/athletic/7174607/2026/04/05/porter-martone-flyers-overtime-goal-dvorak-bruins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7174222/2026/04/05/detroit-red-wings-noise-copp-str
 **Michigan's Dusty May removes name from UNC coaching search: Sources**\
 `May is the second Final Four coach this weekend to spurn UNC interest, joining Arizona's Tommy Lloyd.`\
 https://nytimes.com/athletic/7174389/2026/04/05/dusty-may-michigan-unc-coaching-search/
-
-**U.S. Military Rescues Airman Stranded in Iran**\
-`An Air Force officer whose fighter jet was shot down in Iran was rescued by U.S. Special Operations forces in a risky Saturday night mission that took commandos deep into enemy territory, President Trump said on social media early on Sunday.`\
-https://nytimes.com/video/world/middleeast/100000010823371/military-iran-airman-rescue.html
 
