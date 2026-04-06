@@ -1,3 +1,7 @@
+**NASA Artemis II Astronauts Race Into Moon’s Embrace After Quiet Easter**\
+`Ahead of a lunar flyby on Monday, the crew celebrated the astronaut Jeremy Hansen’s first spaceflight and got a special message from Charlie Duke, the Apollo 16 moonwalker.`\
+https://nytimes.com/2026/04/05/science/nasa-moon-artemis-day-5.html
+
 **Sidney Crosby comes back to life as the Penguins trample Florida again**\
 `The Penguins captain finally looks like he has his legs back after two injuries this season.`\
 https://nytimes.com/athletic/7174485/2026/04/05/sidney-crosby-penguins-playoffs-rakell-panthers/
