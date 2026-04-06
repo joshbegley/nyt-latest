@@ -1,3 +1,7 @@
+**Melania Trump’s Unexpected Easter Look**\
+`The first lady makes a statement in Ralph Lauren at the annual egg toss.`\
+https://nytimes.com/2026/04/06/style/easter-egg-roll-melania-trump-ralph-lauren.html
+
 **Peter DeBoer, Islanders react to late-season coaching change: 'Out of left field'**\
 `DeBoer, who takes over in New York with four games left in the regular season, is one of the most experienced coaches in the world.`\
 https://nytimes.com/athletic/7176212/2026/04/06/peter-deboer-islanders-coach-patrick-roy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7176502/2026/04/06/phillies-vs-giants-stream-how-to
 **This is the most important science experiment aboard Artemis II.**\
 `By Katrina Miller`\
 https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/this-is-the-most-important-science-experiment-aboard-artemis-ii
-
-**Arsenal's Gabriel, Rice, Trossard to return vs Sporting - Arteta**\
-`The trio were among 11 Arsenal players that withdrew from their respective international squads over the March break. `\
-https://nytimes.com/athletic/7175270/2026/04/06/arsenal-injury-news-update-gabriel-rice/
 

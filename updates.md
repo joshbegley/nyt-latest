@@ -1,3 +1,11 @@
+**Peter DeBoer, Islanders react to late-season coaching change: 'Out of left field'**\
+`DeBoer, who takes over in New York with four games left in the regular season, is one of the most experienced coaches in the world.`\
+https://nytimes.com/athletic/7176212/2026/04/06/peter-deboer-islanders-coach-patrick-roy/
+
+**Israel Steps Up Attacks on Lebanon, Killing Dozens**\
+`Sunday was a particularly deadly day, as Israel targeted areas around the country — including a Christian area long regarded as safe by residents.`\
+https://nytimes.com/2026/04/06/world/middleeast/israel-attacks-lebanon-kill-dozens.html
+
 **Shots Fired at Indianapolis Councilman’s Home, After Vote Backing Data Center**\
 `No one was injured, but the councilman, Ron Gibson, called it “deeply unsettling.”`\
 https://nytimes.com/2026/04/06/us/indianapolis-data-center-shooting.html

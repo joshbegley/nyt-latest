@@ -1,3 +1,11 @@
+**Peter DeBoer, Islanders react to late-season coaching change: 'Out of left field'**\
+`DeBoer, who takes over in New York with four games left in the regular season, is one of the most experienced coaches in the world.`\
+https://nytimes.com/athletic/7176212/2026/04/06/peter-deboer-islanders-coach-patrick-roy/
+
+**Israel Steps Up Attacks on Lebanon, Killing Dozens**\
+`Sunday was a particularly deadly day, as Israel targeted areas around the country — including a Christian area long regarded as safe by residents.`\
+https://nytimes.com/2026/04/06/world/middleeast/israel-attacks-lebanon-kill-dozens.html
+
 **Shots Fired at Indianapolis Councilman’s Home, After Vote Backing Data Center**\
 `No one was injured, but the councilman, Ron Gibson, called it “deeply unsettling.”`\
 https://nytimes.com/2026/04/06/us/indianapolis-data-center-shooting.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/thi
 **Arsenal's Gabriel, Rice, Trossard to return vs Sporting - Arteta**\
 `The trio were among 11 Arsenal players that withdrew from their respective international squads over the March break. `\
 https://nytimes.com/athletic/7175270/2026/04/06/arsenal-injury-news-update-gabriel-rice/
-
-**NFL Newsletter: Have we found football's Wembanyama?**\
-`Also: League executives weigh in on the AFC, NFC and biggest offseason storylines, plus Dane Brugler joins for a quick draft Q&A.`\
-https://nytimes.com/athletic/7176431/2026/04/06/uar-bernard-nfl-draft-prospect-athletic/
-
-**I’ve Covered Women in the Workplace for 15 Years. Something Alarming Is Happening.**\
-`As women are erased from the narrative, injustices against them go unnoticed.`\
-https://nytimes.com/2026/04/06/opinion/women-workplace-dei-feminism.html
 
