@@ -1,3 +1,7 @@
+**What I'm hearing about UNC's coaching search: Billy Donovan next up with Dusty May out**\
+`If not Donovan, UNC could turn to Vanderbilt's Mark Byington, Baylor's Scott Drew or ex-Nuggets coach Michael Malone.`\
+https://nytimes.com/athletic/7175991/2026/04/06/unc-coaching-search-latest-news-billy-donovan/
+
 **As Savannah Guthrie Returns, No News Can Be the Hardest News**\
 `With her mother still missing, the “Today” host’s comeback was a rare TV example of learning to live with not knowing.`\
 https://nytimes.com/2026/04/06/arts/television/savannah-guthrie-today-return.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby
 **How to watch Cavaliers vs. Grizzlies: Time, TV, streaming**\
 `Find out how to watch the Cleveland Cavaliers play the Memphis Grizzlies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7176082/2026/04/06/cavaliers-vs-grizzlies-stream-how-to-watch-april-6/
-
-**How to watch 76ers vs. Spurs: Time, TV, streaming**\
-`Find out how to watch the Philadelphia 76ers play the San Antonio Spurs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7176080/2026/04/06/76ers-vs-spurs-stream-how-to-watch-april-6/
 
