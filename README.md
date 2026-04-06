@@ -1,3 +1,7 @@
+**The Athletic college baseball top 25: Surging UCF enters at No. 17; Kentucky, Oregon drop out**\
+`UCF and Kansas join West Virginia and Arizona State to give the Big 12 four teams in this week's ranking.`\
+https://nytimes.com/athletic/7175627/2026/04/06/college-baseball-ranking-ucf-kansas-ucla-georgia/
+
 **The Latest Blows to Iran’s Leadership**\
 `An Iranian intelligence chief killed overnight on Monday was one of several Iranian officials who occupied their posts for only a few months.`\
 https://nytimes.com/2026/04/06/world/middleeast/killings-iran-leadership.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7174158/2026/04/06/augusta-national-masters-history
 **The Blues' playoff chances looked lost. Then they knocked off the NHL's best team**\
 `An improbable win in Colorado has St. Louis just three points back of the West's second wild card with six games to play.`\
 https://nytimes.com/athletic/7175037/2026/04/06/blues-playoff-chances-win-avalanche/
-
-**Curry brothers share the floor as NBA teammates: 'A dream come true'**\
-`Steph and Seth Curry, who have played in the NBA since 2009 and 2014, respectively, finally got to be teammates Sunday night.`\
-https://nytimes.com/athletic/7175368/2026/04/06/steph-curry-seth-curry-teammates-warriors/
 
