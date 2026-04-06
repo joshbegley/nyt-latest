@@ -1,3 +1,7 @@
+**Hard Fork Full Episode 188**\
+`Last week, two separate juries held social media companies liable for harming young users.`\
+https://nytimes.com/video/podcasts/100000010825223/hard-fork-full-episode-188.html
+
 **Why the Strait of Hormuz Is Iran’s Trump Card**\
 `On “The Opinions,” the columnist David French says that no matter how much havoc Trump wreaks on Iranian targets, as long as they maintain control of the Strait of Hormuz, Iran can keep going.`\
 https://nytimes.com/video/opinion/100000010817937/why-the-strait-of-hormuz-is-irans-trump-card.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/06/style/easter-egg-roll-melania-trump-ralph-lauren.
 **Peter DeBoer, Islanders react to late-season coaching change: 'Out of left field'**\
 `DeBoer, who takes over in New York with four games left in the regular season, is one of the most experienced coaches in the world.`\
 https://nytimes.com/athletic/7176212/2026/04/06/peter-deboer-islanders-coach-patrick-roy/
-
-**Shots Fired at Indianapolis Councilman’s Home, After Vote Backing Data Center**\
-`No one was injured, but the councilman, Ron Gibson, called it “deeply unsettling.”`\
-https://nytimes.com/2026/04/06/us/indianapolis-data-center-shooting.html
 
