@@ -1,3 +1,11 @@
+**Trump’s Board of Peace Gives Hamas Disarmament Deadline**\
+`The demand reflects both the U.S. administration’s eagerness to secure a lasting cease-fire in Gaza and its growing impatience with the Palestinian militant group.`\
+https://nytimes.com/2026/04/06/world/middleeast/trumps-board-of-peace-gives-hamas-disarmament-deadline.html
+
+**Chicago Sky trade Angel Reese to Atlanta Dream for 2 first-round picks**\
+`“Angel is a dynamic talent and a perfect fit for what we are building in Atlanta,” said Dream general manager Dan Padover.`\
+https://nytimes.com/athletic/7175987/2026/04/06/angel-reese-trade-atlanta-dream-chicago-sky/
+
 **The Windup: Unbelievable outfielder achievement**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/7175877/2026/04/06/jo-adell-outfield-defense-angels-the-windup/
