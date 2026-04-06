@@ -1,3 +1,7 @@
+**Steph Curry's game-altering return shows why the Warriors can't give up on this**\
+`On restricted minutes, Curry nearly led an upset of one of the league's hottest teams. It's why the Warriors still hold on to hope.`\
+https://nytimes.com/athletic/7175415/2026/04/06/stephen-curry-warriors-return-nba-playoffs-injury/
+
 **The man who saw everything: Lawrence Bennett’s long drive through Augusta’s history**\
 `“Probably nobody on the planet knows more about Augusta National than me." `\
 https://nytimes.com/athletic/7174158/2026/04/06/augusta-national-masters-history-lawrence-bennett-green-jackets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7175115/2026/04/06/canadiens-nhl-playoffs-preparati
 **How the Reds are winning games despite having scored the fewest runs in MLB**\
 `The Reds may not be mashing the ball, but their clean play helped them sweep the Rangers. They haven't committed an error this season.`\
 https://nytimes.com/athletic/7174613/2026/04/06/cincinnati-reds-texas-rangers-series-win/
-
-**'The race is too fast for you to have doubt': Inside Demi Vollering's historic win at the Tour of Flanders**\
-`The Athletic spent a weekend behind the scenes with FDJ–Suez to see how a famous win was achieved `\
-https://nytimes.com/athletic/7175256/2026/04/06/demi-vollering-tour-of-flanders-access-all-areas/
 
