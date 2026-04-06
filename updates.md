@@ -1,3 +1,7 @@
+**Sidney Crosby comes back to life as the Penguins trample Florida again**\
+`The Penguins captain finally looks like he has his legs back after two injuries this season.`\
+https://nytimes.com/athletic/7174485/2026/04/05/sidney-crosby-penguins-playoffs-rakell-panthers/
+
 **How UCLA's super senior class set the championship standard**\
 `UCLA's six seniors ended their college careers on top and will be in WNBA training camps in two weeks.`\
 https://nytimes.com/athletic/7174739/2026/04/05/ucla-national-championship-seniors/

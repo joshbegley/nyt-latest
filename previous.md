@@ -1,3 +1,7 @@
+**Sidney Crosby comes back to life as the Penguins trample Florida again**\
+`The Penguins captain finally looks like he has his legs back after two injuries this season.`\
+https://nytimes.com/athletic/7174485/2026/04/05/sidney-crosby-penguins-playoffs-rakell-panthers/
+
 **How UCLA's super senior class set the championship standard**\
 `UCLA's six seniors ended their college careers on top and will be in WNBA training camps in two weeks.`\
 https://nytimes.com/athletic/7174739/2026/04/05/ucla-national-championship-seniors/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7174338/2026/04/05/twins-rays-offense-slumping-byro
 **Red Sox reeling after 2-7 start: 'It's unacceptable to the fans'**\
 `Ranger Suarez has exited in the fifth in each of his two starts, showing little resemblance to the strong pitcher he was with the Phillies.`\
 https://nytimes.com/athletic/7174425/2026/04/05/red-sox-unacceptable-start/
-
-**J.J. Spaun survives wild-weather weekend to win Valero Texas Open**\
-`Saturday’s rain meant players had to complete their third rounds on Sunday, with some facing a 30-hole grind to finish the tournament.`\
-https://nytimes.com/athletic/7174134/2026/04/05/jj-spaun-pga-valero-texas-open/
 
