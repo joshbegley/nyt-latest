@@ -1,3 +1,11 @@
+**Suspect in Hacking of Climate Activists Is Extradited to New York**\
+`Prosecutors say Amit Forlit ran a global hacking operation on behalf of a Washington lobbying group that aimed to thwart environmental lawsuits against oil companies.`\
+https://nytimes.com/2026/04/06/climate/forlit-exxon-dci-hacking-extradition.html
+
+**Bulls fire Artūras Karnišovas, Marc Eversley in front-office shakeup**\
+`The Bulls had made the playoffs just once since the two men took over the front office in 2020.`\
+https://nytimes.com/athletic/7176408/2026/04/06/bulls-front-office-arturas-karnisovas-fired/
+
 **Juan Soto heads to IL with calf strain**\
 `Soto's injured list stint is his first since 2021. The 10-day IL stint is retroactive to April 4.`\
 https://nytimes.com/athletic/7176395/2026/04/06/new-york-mets-juan-soto-injured-list-calf-strain/
@@ -25,12 +33,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010825115/the-do-it-al
 **UNC expected to hire ex-Nuggets coach Michael Malone as men's hoops coach**\
 `Malone emerged as a prime candidate in recent days after top college options Tommy Lloyd and Dusty May removed themselves from the process. `\
 https://nytimes.com/athletic/7176338/2026/04/06/unc-basketball-michael-malone-head-coaching-hire/
-
-**How to Restore a Scorched Dutch Oven**\
-`You can save that scorched Dutch oven in the back of your cabinet.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010824808/how-to-restore-a-scorched-dutch-oven.html
-
-**How to Refresh an 80 Year Old Dutch Oven**\
-`You don’t need — and shouldn’t use — harsh chemicals or abrasive tools to bring your cruddy enameled cast-iron Dutch oven back to its original factory sheen. Kitchen writer Michael Sullivan shows us that boiling water, a wooden spatula, and a little elbow grease will do the trick.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010824758/how-to-refresh-an-80-year-old-dutch-oven.html
 

@@ -1,3 +1,11 @@
+**NFL Newsletter: Have we found football's Wembanyama?**\
+`Also: League executives weigh in on the AFC, NFC and biggest offseason storylines, plus Dane Brugler joins for a quick draft Q&A.`\
+https://nytimes.com/athletic/7176431/2026/04/06/uar-bernard-nfl-draft-prospect-athletic/
+
+**I’ve Covered Women in the Workplace for 15 Years. Something Alarming Is Happening.**\
+`As women are erased from the narrative, injustices against them go unnoticed.`\
+https://nytimes.com/2026/04/06/opinion/women-workplace-dei-feminism.html
+
 **Suspect in Hacking of Climate Activists Is Extradited to New York**\
 `Prosecutors say Amit Forlit ran a global hacking operation on behalf of a Washington lobbying group that aimed to thwart environmental lawsuits against oil companies.`\
 https://nytimes.com/2026/04/06/climate/forlit-exxon-dci-hacking-extradition.html
@@ -25,12 +33,4 @@ https://nytimes.com/live/2026/us/times-election-results-explained/where-does-the
 **Don’t AirTag Your Pet**\
 `AirTags are great for luggage, but when it comes to your furry friends you’re better off using a GPS tracker specifically made for pets.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010825089/dont-airtag-your-pet.html
-
-**The Do-It-All Tape for Your Toolbox**\
-`Learn about “the most useful spiriform adhesive you’ll ever own,” according to home improvement writer Tim Heffernan.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010825115/the-do-it-all-tape-for-your-toolbox.html
-
-**UNC expected to hire ex-Nuggets coach Michael Malone as men's hoops coach**\
-`Malone emerged as a prime candidate in recent days after top college options Tommy Lloyd and Dusty May removed themselves from the process. `\
-https://nytimes.com/athletic/7176338/2026/04/06/unc-basketball-michael-malone-head-coaching-hire/
 
