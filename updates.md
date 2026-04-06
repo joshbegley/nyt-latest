@@ -1,3 +1,11 @@
+**‘The Comeback’ Season 3, Episode 3: The Aww-Ick**\
+`This week’s episode suggests that Lisa Kudrow and Michael Patrick King don’t mind mixing in a little sentiment with their satire.`\
+https://nytimes.com/2026/04/05/arts/television/the-comeback-season-3-episode-3-recap.html
+
+**Donovan Mitchell leaves two defenders on the floor in viral ankle breaker during Cavs win**\
+`Mitchell dropped jaws and two Pacers defenders before scoring via floater as Indiana's Micah Potter and Kobe Brown watched from the ground.`\
+https://nytimes.com/athletic/7174708/2026/04/05/donovan-mitchell-stats-performance-cavaliers-pacers-nba/
+
 **The theme of this women's Final Four: the work of losing, reward of winning**\
 `After last season's Final Four loss, UCLA has dedicated itself to learning from mistakes and finding redemption. `\
 https://nytimes.com/athletic/7174724/2026/04/05/ucla-championship-south-carolina-lessons/

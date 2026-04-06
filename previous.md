@@ -1,8 +1,12 @@
+**‘The Comeback’ Season 3, Episode 3: The Aww-Ick**\
+`This week’s episode suggests that Lisa Kudrow and Michael Patrick King don’t mind mixing in a little sentiment with their satire.`\
+https://nytimes.com/2026/04/05/arts/television/the-comeback-season-3-episode-3-recap.html
+
 **The theme of this women's Final Four: the work of losing, reward of winning**\
 `After last season's Final Four loss, UCLA has dedicated itself to learning from mistakes and finding redemption. `\
 https://nytimes.com/athletic/7174724/2026/04/05/ucla-championship-south-carolina-lessons/
 
-**Donovan Mitchell drops two defenders with one ankle breaker in Cavaliers' win**\
+**Donovan Mitchell leaves two defenders on the floor in viral ankle breaker during Cavs win**\
 `Mitchell dropped jaws and two Pacers defenders before scoring via floater as Indiana's Micah Potter and Kobe Brown watched from the ground.`\
 https://nytimes.com/athletic/7174708/2026/04/05/donovan-mitchell-stats-performance-cavaliers-pacers-nba/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7174607/2026/04/05/porter-martone-flyers-overtime-g
 **Jaylen Brown sees 'night and day' difference in Neemias Queta's growth**\
 `The Most Improved Player award will be announced April 30th.`\
 https://nytimes.com/athletic/7174470/2026/04/05/jaylen-brown-neemias-queta-most-improved-candidate-celtics/
-
-**‘This is the time to show up’: Geekie's scoring slump stays stubbornly intact**\
-`The Bruins continued to struggle for offense in an overtime loss to the Flyers, in which Morgan Geekie's goal drought hit a month.`\
-https://nytimes.com/athletic/7174549/2026/04/05/bruins-morgan-geekie-scoring-top-line-flyers/
 
