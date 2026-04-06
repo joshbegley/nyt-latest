@@ -1,3 +1,11 @@
+**How to watch Phillies vs. Giants: Time, TV, streaming for April 6**\
+`Find out how to watch the Philadelphia Phillies play the San Francisco Giants, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7176502/2026/04/06/phillies-vs-giants-stream-how-to-watch-april-6/
+
+**This is the most important science experiment aboard Artemis II.**\
+`By Katrina Miller`\
+https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/this-is-the-most-important-science-experiment-aboard-artemis-ii
+
 **Arsenal's Gabriel, Rice, Trossard to return vs Sporting - Arteta**\
 `The trio were among 11 Arsenal players that withdrew from their respective international squads over the March break. `\
 https://nytimes.com/athletic/7175270/2026/04/06/arsenal-injury-news-update-gabriel-rice/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/06/us/politics/transgender-students-civil-rights.htm
 **Cubs' rotation injuries mounting with Matthew Boyd joining Cade Horton on the IL**\
 `Boyd is dealing with left bicep soreness but it isn't believed to be a serious injury.`\
 https://nytimes.com/athletic/7176370/2026/04/06/chicago-cubs-matthew-boyd-injured-list/
-
-**Where does the data for election estimates come from, and what kind of data do we collect?**\
-`(No description)`\
-https://nytimes.com/live/2026/us/times-election-results-explained/where-does-the-data-for-election-estimates-come-from-and-what-kind-of-data-do-we-collect
-
-**Don’t AirTag Your Pet**\
-`AirTags are great for luggage, but when it comes to your furry friends you’re better off using a GPS tracker specifically made for pets.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010825089/dont-airtag-your-pet.html
 

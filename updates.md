@@ -1,3 +1,7 @@
+**Arsenal's Gabriel, Rice, Trossard to return vs Sporting - Arteta**\
+`The trio were among 11 Arsenal players that withdrew from their respective international squads over the March break. `\
+https://nytimes.com/athletic/7175270/2026/04/06/arsenal-injury-news-update-gabriel-rice/
+
 **NFL Newsletter: Have we found football's Wembanyama?**\
 `Also: League executives weigh in on the AFC, NFC and biggest offseason storylines, plus Dane Brugler joins for a quick draft Q&A.`\
 https://nytimes.com/athletic/7176431/2026/04/06/uar-bernard-nfl-draft-prospect-athletic/
