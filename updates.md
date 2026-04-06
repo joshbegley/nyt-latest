@@ -1,3 +1,7 @@
+**Iran War Live Updates: Israel and Iran Trade Attacks After Trump’s New Hormuz Ultimatum**\
+`The fighting on Monday morning followed President Trump’s threat to bomb power plants and bridges on Tuesday if Iran did not open the Strait of Hormuz.`\
+https://nytimes.com/live/2026/04/06/world/iran-war-trump-israel
+
 **Here’s the latest.**\
 `By Yan Zhuang and Aaron Boxerman`\
 https://nytimes.com/live/2026/04/06/world/iran-war-trump-israel/heres-the-latest

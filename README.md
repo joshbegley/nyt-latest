@@ -1,3 +1,7 @@
+**Michigan vs. UConn national championship guide: Tipoff time, title history, injury updates**\
+`No. 1 Michigan vs. No. 2 UConn. Here's what to expect as the March Madness theme builds into "One Shining Moment."`\
+https://nytimes.com/athletic/7174144/2026/04/06/michigan-uconn-ncaa-championship-basketball-tv-2026/
+
 **Here’s the latest.**\
 `By Yan Zhuang and Aaron Boxerman`\
 https://nytimes.com/live/2026/04/06/world/iran-war-trump-israel/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/04/06/todays-new-york-times
 **The War Is Turning Iran Into a Major World Power**\
 `Its newfound might derives from its control the Strait of Hormuz.`\
 https://nytimes.com/2026/04/06/opinion/iran-war-strait-hormuz.html
-
-**‘Euphoria,’ Plus 8 Things to Watch on TV This Week**\
-`The HBO show returns after a long hiatus. And the March Madness final airs.`\
-https://nytimes.com/2026/04/06/arts/television/euphoria-march-madness-tv-this-week.html
 
