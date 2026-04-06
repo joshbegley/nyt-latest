@@ -1,3 +1,7 @@
+**Mapping the scale of the conflict.**\
+`By Martín González Gómez`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/mapping-the-scale-of-the-conflict
+
 **How to watch UConn vs. Michigan men's basketball: Championship Time, TV, streaming**\
 `Find out how to watch the UConn Huskies play the Michigan Wolverines, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7176323/2026/04/06/uconn-vs-michigan-stream-how-to-watch-april-6/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7176262/2026/04/06/orioles-vs-white-sox-stream-how-
 **How to watch Mariners vs. Rangers: Time, TV, streaming for April 6**\
 `Find out how to watch the Seattle Mariners play the Texas Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7176245/2026/04/06/mariners-vs-rangers-stream-how-to-watch-april-6/
-
-**How to watch Tigers vs. Twins: Time, TV, streaming for April 6**\
-`Find out how to watch the Detroit Tigers play the Minnesota Twins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7176243/2026/04/06/tigers-vs-twins-stream-how-to-watch-april-6/
 
