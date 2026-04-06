@@ -1,3 +1,7 @@
+**What we're seeing, hearing at the Masters with Morikawa's back issue, Scheffler's family**\
+`Morikawa, an early Masters favorite, was not able to hit a full shot on Monday.`\
+https://nytimes.com/athletic/7176792/2026/04/06/masters-latest-morikawa-scheffler-2026-seeing-hearing/
+
 **Dallas Stars ban fan who made apparent Nazi salute at game**\
 `The incident took place during a game against the Toronto Maple Leafs on Dec. 21.`\
 https://nytimes.com/athletic/7176600/2026/04/06/dallas-stars-ban-fan-gesture/

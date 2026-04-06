@@ -1,3 +1,7 @@
+**Student News Quiz for March 31-April 6**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2026/04/06/learning/06StudentNewsQuiz.html
+
 **What we're seeing, hearing at the Masters with Morikawa's back issue, Scheffler's family**\
 `Morikawa, an early Masters favorite, was not able to hit a full shot on Monday.`\
 https://nytimes.com/athletic/7176792/2026/04/06/masters-latest-morikawa-scheffler-2026-seeing-hearing/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/06/briefing/artemis-ii-moon-trump-iran-threats.html
 **The Artemis II crew breaks a distance record.**\
 `Three Americans and one Canadian traveling on NASA’s Orion spacecraft surpassed a milestone set by the crew of Apollo 13 in 1970.`\
 https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/the-artemis-ii-crew-breaks-a-distance-record
-
-**Angel Reese's trade another example of Chicago Sky's inability to hold onto star players**\
-`Reese follows other stars who left Chicago: Candace Parker, Sylvia Fowles, Elena Delle Donne.`\
-https://nytimes.com/athletic/7176754/2026/04/06/angel-reeses-chicago-sky-trade-stars/
 
