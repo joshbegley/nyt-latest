@@ -1,3 +1,23 @@
+**Savannah Guthrie Returns to the ‘Today’ Show**\
+`Savannah Guthrie rejoined the “Today” show morning newscast more than two months after her mother’s disappearance in February. Her 84-year-old mother, Nancy Guthrie, remains missing.`\
+https://nytimes.com/video/us/100000010824713/savannah-guthrie-today-show.html
+
+**‘Stop This Madness’: Time to Rein In Trump’s Reckless Conduct**\
+`Readers react to President Trump’s increasingly bellicose rhetoric. Also: Two moon missions, 58 years apart.`\
+https://nytimes.com/2026/04/06/opinion/trump-iran.html
+
+**BNY and Robinhood Will Help Run ‘Trump Accounts’ for Children**\
+`The new tax-sheltered savings and investment accounts will start accepting deposits this summer.`\
+https://nytimes.com/2026/04/06/business/trump-accounts-bny-robinhood.html
+
+**How to watch Kraken vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Seattle Kraken play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7176267/2026/04/06/kraken-vs-jets-stream-how-to-watch-april-6/
+
+**How to watch Orioles vs. White Sox: Time, TV, streaming for April 6**\
+`Find out how to watch the Baltimore Orioles play the Chicago White Sox, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7176262/2026/04/06/orioles-vs-white-sox-stream-how-to-watch-april-6/
+
 **How to watch Mariners vs. Rangers: Time, TV, streaming for April 6**\
 `Find out how to watch the Seattle Mariners play the Texas Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7176245/2026/04/06/mariners-vs-rangers-stream-how-to-watch-april-6/
