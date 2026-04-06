@@ -1,3 +1,7 @@
+**How UCLA's super senior class set the championship standard**\
+`UCLA's six seniors ended their college careers on top and will be in WNBA training camps in two weeks.`\
+https://nytimes.com/athletic/7174739/2026/04/05/ucla-national-championship-seniors/
+
 **Steph Curry returns to Warriors on minutes restriction as team eyes postseason push**\
 `The Warriors will be understandably cautious given how much time Curry has missed and the fact there is only one week left in the season.`\
 https://nytimes.com/athletic/7174669/2026/04/05/steph-curry-returns-warriors-rockets-nba/
