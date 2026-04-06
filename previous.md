@@ -1,3 +1,7 @@
+**The Canadiens are playoff-bound. Preparation will define their final five games**\
+`The Canadiens clinched a playoff spot in their sleep Sunday, and now auditions for playoff roles can officially begin.`\
+https://nytimes.com/athletic/7175115/2026/04/06/canadiens-nhl-playoffs-preparation/
+
 **How the Reds are winning games despite having scored the fewest runs in MLB**\
 `The Reds may not be mashing the ball, but their clean play helped them sweep the Rangers. They haven't committed an error this season.`\
 https://nytimes.com/athletic/7174613/2026/04/06/cincinnati-reds-texas-rangers-series-win/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/06/learning/word-of-the-day-filial.html
 **What is the best pass you have ever seen?**\
 `Inspired by Yamal's show-stopping assist against Atletico Madrid on Saturday, The Athletic's writers pick the best passes they've seen.`\
 https://nytimes.com/athletic/7175123/2026/04/06/yamal-barcelona-atletico-pass-best-ever/
-
-**How to watch Villarreal vs. Girona FC in the U.S.**\
-`Find out how to watch Villarreal play Girona FC, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7175456/2026/04/06/villarreal-vs-girona-fc-stream-how-to-watch-la-liga-april-6/
 

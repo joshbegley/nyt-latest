@@ -1,3 +1,7 @@
+**Iranian Intelligence Chief Killed in Overnight Attack**\
+`Israel claimed responsibility for the death of Major General Seyed Majid Khademi, the spy chief of the Islamic Revolutionary Guards Corps, the latest senior official to be killed in the war.`\
+https://nytimes.com/2026/04/06/world/middleeast/iran-khademi-intelligence-israel.html
+
 **The Canadiens are playoff-bound. Preparation will define their final five games**\
 `The Canadiens clinched a playoff spot in their sleep Sunday, and now auditions for playoff roles can officially begin.`\
 https://nytimes.com/athletic/7175115/2026/04/06/canadiens-nhl-playoffs-preparation/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/06/learning/what-do-you-think-about-the-us-sending-a
 **Word of the Day: filial**\
 `This word has appeared in 14 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/04/06/learning/word-of-the-day-filial.html
-
-**What is the best pass you have ever seen?**\
-`Inspired by Yamal's show-stopping assist against Atletico Madrid on Saturday, The Athletic's writers pick the best passes they've seen.`\
-https://nytimes.com/athletic/7175123/2026/04/06/yamal-barcelona-atletico-pass-best-ever/
 

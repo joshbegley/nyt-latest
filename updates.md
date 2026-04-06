@@ -1,3 +1,7 @@
+**The Canadiens are playoff-bound. Preparation will define their final five games**\
+`The Canadiens clinched a playoff spot in their sleep Sunday, and now auditions for playoff roles can officially begin.`\
+https://nytimes.com/athletic/7175115/2026/04/06/canadiens-nhl-playoffs-preparation/
+
 **How the Reds are winning games despite having scored the fewest runs in MLB**\
 `The Reds may not be mashing the ball, but their clean play helped them sweep the Rangers. They haven't committed an error this season.`\
 https://nytimes.com/athletic/7174613/2026/04/06/cincinnati-reds-texas-rangers-series-win/
