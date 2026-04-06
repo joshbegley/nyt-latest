@@ -1,3 +1,7 @@
+**Cubs' rotation injuries mounting with Matthew Boyd joining Cade Horton on the IL**\
+`Boyd is dealing with left bicep soreness but it isn't believed to be a serious injury.`\
+https://nytimes.com/athletic/7176370/2026/04/06/chicago-cubs-matthew-boyd-injured-list/
+
 **Where does the data for election estimates come from, and what kind of data do we collect?**\
 `(No description)`\
 https://nytimes.com/live/2026/us/times-election-results-explained/where-does-the-data-for-election-estimates-come-from-and-what-kind-of-data-do-we-collect
@@ -25,8 +29,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010824758/how-to-refre
 **Mapping the scale of the conflict.**\
 `By Martín González Gómez`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/mapping-the-scale-of-the-conflict
-
-**How to watch UConn vs. Michigan men's basketball: Championship Time, TV, streaming**\
-`Find out how to watch the UConn Huskies play the Michigan Wolverines, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7176323/2026/04/06/uconn-vs-michigan-stream-how-to-watch-april-6/
 
