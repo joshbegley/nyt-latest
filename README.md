@@ -1,3 +1,15 @@
+**'This is about action' - Liverpool fan group confirm Anfield protests over ticket prices**\
+`It is also calling on fans not to spend money inside the ground and to delay renewing season tickets to "send a message" to owner FSG.`\
+https://nytimes.com/athletic/7175794/2026/04/06/liverpool-fans-protest-ticket-prices/
+
+**New Revelations Reignite Crypto Scandal Involving Argentina’s President Milei**\
+`Court documents raise questions about the Argentine president’s statements that he had no connection to the launch of the $Libra cryptocurrency.`\
+https://nytimes.com/2026/04/06/world/americas/argentina-milei-crypto-libra.html
+
+**From seeding to tanking, everything at stake in the NBA season's final week**\
+`Plus, who's hot (Rockets) and who's not (Timberwolves) as the sun sets on the 2025-26 regular season.`\
+https://nytimes.com/athletic/7153936/2026/04/06/nba-final-week-playoffs-standings-tanking/
+
 **Trump Administration Live Updates: Supreme Court Clears Way for Dismissal of Bannon Conviction**\
 ``\
 https://nytimes.com/live/2026/04/06/us/trump-news
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7175724/2026/04/06/lamar-jackson-ravens-offseason-w
 **At Least 4 Killed in Strike in Northern Israel**\
 `Rescue workers recovered four bodies from a residential building in the port city of Haifa after air defenses failed to intercept an Iranian strike, Israeli officials said.`\
 https://nytimes.com/2026/04/06/world/middleeast/israel-haifa-strike-iran.html
-
-**The NBA's tanking problem is even worse than you think**\
-`The Notorious Nine — the teams that are blatantly trying to lose — have succeeded at their mission while dragging down the sport.`\
-https://nytimes.com/athletic/7175030/2026/04/06/nba-tanking-costs-blowouts/
-
-**The Athletic college baseball top 25: Surging UCF enters at No. 17; Kentucky, Oregon drop out**\
-`UCF and Kansas join West Virginia and Arizona State to give the Big 12 four teams in this week's ranking.`\
-https://nytimes.com/athletic/7175627/2026/04/06/college-baseball-ranking-ucf-kansas-ucla-georgia/
-
-**The Latest Blows to Iran’s Leadership**\
-`An Iranian intelligence chief killed overnight on Monday was one of several Iranian officials who occupied their posts for only a few months.`\
-https://nytimes.com/2026/04/06/world/middleeast/killings-iran-leadership.html
 
