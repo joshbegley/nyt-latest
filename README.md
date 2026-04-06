@@ -1,3 +1,15 @@
+**Vinicius Jr wants Madrid stay 'for many years', speaks on 'difficult' Alonso period**\
+`The 25-year-old, who has scored 123 goals for Madrid since joining in 2018 from Flamengo, has played down any speculation on his future.`\
+https://nytimes.com/athletic/7175472/2026/04/06/vinicius-real-madrid-contract/
+
+**What Do You Think About the U.S. Sending Astronauts to the Moon Again?**\
+`A NASA mission is taking four astronauts around the moon and back for the first time in 50 years. Will it make a difference in the world?`\
+https://nytimes.com/2026/04/06/learning/what-do-you-think-about-the-us-sending-astronauts-to-the-moon-again.html
+
+**Word of the Day: filial**\
+`This word has appeared in 14 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/04/06/learning/word-of-the-day-filial.html
+
 **What is the best pass you have ever seen?**\
 `Inspired by Yamal's show-stopping assist against Atletico Madrid on Saturday, The Athletic's writers pick the best passes they've seen.`\
 https://nytimes.com/athletic/7175123/2026/04/06/yamal-barcelona-atletico-pass-best-ever/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7172968/2026/04/06/connor-bedard-blackhawks-injury-
 **Why Wrexham against Southampton is the biggest game of the Hollywood era**\
 `The collision at the SToK Cae Ras pits two of the Championship's form sides and could be critical in terms of securing a play-off place `\
 https://nytimes.com/athletic/7163647/2026/04/06/wrexham-southampton-easter-mac-reynolds-promotion/
-
-**5 burning questions for the Wild ahead of the playoffs — and an inevitable Stars series**\
-`How will the handle the goalie rotation? Who's the odd man out? Who plays with Quinn Hughes? Those question and more.`\
-https://nytimes.com/athletic/7173619/2026/04/06/wild-playoffs-burning-questions-stars/
-
-**Dodgers takeaways: What we learned from a series sweep of the Nationals**\
-`The Dodgers must manage Mookie Betts' absence and take advantage of off days in April to manage the starting rotation. `\
-https://nytimes.com/athletic/7174874/2026/04/06/dodgers-series-sweep-nationals-takeaways/
-
-**The road to 1,620: José Ramírez's journey to becoming Guardians' leader in games played**\
-`Terry Turner's record of 1,619 games played for Cleveland has stood since Sept. 1, 1918, more than a century ago.`\
-https://nytimes.com/athletic/7173836/2026/04/06/jose-ramirez-cleveland-guardians-games-played-record-terry-turner/
 
