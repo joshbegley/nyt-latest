@@ -7,7 +7,7 @@ https://nytimes.com/athletic/7176323/2026/04/06/uconn-vs-michigan-stream-how-to-
 https://nytimes.com/athletic/7173450/2026/04/06/blue-jackets-collapse-playoff-race/
 
 **Savannah Guthrie Returns to the ‘Today’ Show**\
-`Savannah Guthrie rejoined the “Today” show morning newscast more than two months after her mother’s disappearance in February. Her 84-year-old mother, Nancy Guthrie, remains missing.`\
+`Savannah Guthrie rejoined the “Today” show on Monday, more than two months after her mother’s disappearance in February. Nancy Guthrie, 84, remains missing.`\
 https://nytimes.com/video/us/100000010824713/savannah-guthrie-today-show.html
 
 **‘Stop This Madness’: Time to Rein In Trump’s Reckless Conduct**\
@@ -33,8 +33,4 @@ https://nytimes.com/athletic/7176245/2026/04/06/mariners-vs-rangers-stream-how-t
 **How to watch Tigers vs. Twins: Time, TV, streaming for April 6**\
 `Find out how to watch the Detroit Tigers play the Minnesota Twins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7176243/2026/04/06/tigers-vs-twins-stream-how-to-watch-april-6/
-
-**How to watch Astros vs. Rockies: Time, TV, streaming for April 6**\
-`Find out how to watch the Houston Astros play the Colorado Rockies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7176237/2026/04/06/astros-vs-rockies-stream-how-to-watch-april-6/
 
