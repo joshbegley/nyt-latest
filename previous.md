@@ -18,6 +18,10 @@ https://nytimes.com/2026/04/06/arts/television/euphoria-march-madness-tv-this-we
 `By beating South Carolina, Close became the first first-time champion since Dawn Staley in 2017.`\
 https://nytimes.com/athletic/7175020/2026/04/06/ucla-cori-close-national-championship/
 
+**Leeds have waited 39 years for an FA Cup semi-final and they did it the Leeds way**\
+`For the second time in this cup run, the goalkeeper Perri emerged as the hero, saving penalties from Bowen and Pablo in the shootout`\
+https://nytimes.com/athletic/7174824/2026/04/06/leeds-fa-cup-semi-final-39-years/
+
 **Newcastle have a built-in aversion to losing key players. But can this pain become a gain?**\
 `With supporters wincing at memories of Beardsley, Gascoigne, Carroll and Isak leaving Tyneside, it remains a psychological hurdle to jump`\
 https://nytimes.com/athletic/7169246/2026/04/06/newcastle-sandro-tonali-tino-livramento-transfer-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7174013/2026/04/06/arsenal-fa-cup-exit-leeds-bernar
 **Prescott, Messi, Ohtani and more: How the world's biggest sports stars get paid**\
 `From deferring salaries to taking ownership equity, we explore all the different ways the biggest names in sport get paid`\
 https://nytimes.com/athletic/7151569/2026/04/06/ohtani-messi-prescott-sport-salaries-pay-contracts/
-
-**Champions League quarter-finals predictions, star players and youngsters to watch**\
-`And then there were eight. Our writers explain everything you need to know about the business end of the Champions League`\
-https://nytimes.com/athletic/7169577/2026/04/06/champions-league-quarter-finals-predictions/
 
