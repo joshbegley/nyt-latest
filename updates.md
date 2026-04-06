@@ -1,3 +1,11 @@
+**How to watch Cubs vs. Rays: Time, TV, streaming for April 6**\
+`Find out how to watch the Chicago Cubs play the Tampa Bay Rays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7175697/2026/04/06/cubs-vs-rays-stream-how-to-watch-april-6/
+
+**If the NBA playoffs started today: Projecting first-round matchups in season's final week**\
+`From Spurs-Suns to a Knicks-76ers matchup, we look at the concerns across potential first-round series.`\
+https://nytimes.com/athletic/7175651/2026/04/06/nba-playoffs-matchups-predictions-final-week/
+
 **No Corrections: April 6, 2026**\
 `No corrections appeared in print on Monday, April 6, 2026.`\
 https://nytimes.com/2026/04/06/pageoneplus/no-corrections-april-6-2026.html

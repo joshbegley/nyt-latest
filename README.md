@@ -1,3 +1,7 @@
+**The Latest Blows to Iran’s Leadership**\
+`An Iranian intelligence chief killed overnight on Monday was one of several Iranian officials who occupied their posts for only a few months.`\
+https://nytimes.com/2026/04/06/world/middleeast/killings-iran-leadership.html
+
 **How to watch Cubs vs. Rays: Time, TV, streaming for April 6**\
 `Find out how to watch the Chicago Cubs play the Tampa Bay Rays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7175697/2026/04/06/cubs-vs-rays-stream-how-to-watch-april-6/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7175037/2026/04/06/blues-playoff-chances-win-avalan
 **Curry brothers share the floor as NBA teammates: 'A dream come true'**\
 `Steph and Seth Curry, who have played in the NBA since 2009 and 2014, respectively, finally got to be teammates Sunday night.`\
 https://nytimes.com/athletic/7175368/2026/04/06/steph-curry-seth-curry-teammates-warriors/
-
-**College baseball week in review: Georgia takes SEC lead with sweep in Starkville**\
-`Cade Arrambide's record-setting day powers LSU to a series win. Kansas hits four ninth-inning HRs to beat Utah. Georgia Tech keeps mashing.`\
-https://nytimes.com/athletic/7174109/2026/04/06/college-baseball-georgia-mississippi-state-ucla-usc/
 
