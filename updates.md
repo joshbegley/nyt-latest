@@ -1,3 +1,11 @@
+**Hegseth Likens Easter Rescue of U.S. Airman to Resurrection of Jesus Christ**\
+`President Trump also asserted that God supports the American war against Iran “because God is good, and God wants to see people taken care of.”`\
+https://nytimes.com/2026/04/06/us/politics/hegseth-religious-tone.html
+
+**Trump Threatens Jail if Journalists Protect Certain Iran Sources**\
+`The president indicated he would ask an unnamed media outlet to reveal the sources behind its coverage of Iran’s successful strike on a U.S. fighter jet, and of its crew.`\
+https://nytimes.com/2026/04/06/business/media/trump-jail-journalists-fighter-crew.html
+
 **Firing Bulls' front office was easy decision. Can Reinsdorfs find a way out of malaise?**\
 `In the 11 seasons since parting with Tom Thibodeau, the team has had three head coaches and is 378-493, with just two playoff appearances.`\
 https://nytimes.com/athletic/7176874/2026/04/06/bulls-fire-front-office-arturas-karnisovas-marc-eversley/
