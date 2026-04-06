@@ -1,3 +1,15 @@
+**'This is about action' - Liverpool fan group confirm Anfield protests over ticket prices**\
+`It is also calling on fans not to spend money inside the ground and to delay renewing season tickets to "send a message" to owner FSG.`\
+https://nytimes.com/athletic/7175794/2026/04/06/liverpool-fans-protest-ticket-prices/
+
+**New Revelations Reignite Crypto Scandal Involving Argentina’s President Milei**\
+`Court documents raise questions about the Argentine president’s statements that he had no connection to the launch of the $Libra cryptocurrency.`\
+https://nytimes.com/2026/04/06/world/americas/argentina-milei-crypto-libra.html
+
+**From seeding to tanking, everything at stake in the NBA season's final week**\
+`Plus, who's hot (Rockets) and who's not (Timberwolves) as the sun sets on the 2025-26 regular season.`\
+https://nytimes.com/athletic/7153936/2026/04/06/nba-final-week-playoffs-standings-tanking/
+
 **Trump Administration Live Updates: Supreme Court Clears Way for Dismissal of Bannon Conviction**\
 ``\
 https://nytimes.com/live/2026/04/06/us/trump-news
