@@ -1,3 +1,7 @@
+**The New Laettner, Golf’s Soul and Athletes Stuck in the Wrong Era**\
+`Has the greatest moment in N.C.A.A. history officially been dethroned?`\
+https://nytimes.com/2026/04/06/podcasts/laettner-golfs-soul-and-athletes-stuck-in-the-wrong-era.html
+
 **As Rays return to Tropicana Field, they look ahead to finding their 'forever home'**\
 `It’s been 18 months, almost to the day, since Hurricane Milton ripped the roof off Tropicana Field.`\
 https://nytimes.com/athletic/7174311/2026/04/06/tampa-bay-rays-mlb-tropicana-field-new-stadium/

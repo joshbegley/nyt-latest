@@ -1,3 +1,7 @@
+**The New Laettner, Golf’s Soul and Athletes Stuck in the Wrong Era**\
+`Has the greatest moment in N.C.A.A. history officially been dethroned?`\
+https://nytimes.com/2026/04/06/podcasts/laettner-golfs-soul-and-athletes-stuck-in-the-wrong-era.html
+
 **As Rays return to Tropicana Field, they look ahead to finding their 'forever home'**\
 `It’s been 18 months, almost to the day, since Hurricane Milton ripped the roof off Tropicana Field.`\
 https://nytimes.com/athletic/7174311/2026/04/06/tampa-bay-rays-mlb-tropicana-field-new-stadium/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7171631/2026/04/06/tennis-equal-prize-money-finance
 **These Whales Live, and Sing, Near New York Harbor in Spring**\
 `Scientists who recorded whale songs learned that the New York Bight, at the entrance to the harbor, attracts sei whales. Ships pose a risk to them.`\
 https://nytimes.com/2026/04/06/nyregion/sei-whales-new-york-bight.html
-
-**In Race to Replace Marjorie Taylor Greene, a Test for Voters on Iran War**\
-`Tuesday’s special House election runoff in a conservative stretch of Georgia is one of the first to showcase disagreements over the conflict, including within the G.O.P.`\
-https://nytimes.com/2026/04/06/us/politics/georgia-election-iran-marjorie-taylor-greene-house.html
 
