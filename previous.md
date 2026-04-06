@@ -1,3 +1,7 @@
+**The Pulse: A people-pleasing title**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/7175137/2026/04/06/ucla-ncaa-hoops-title-the-pulse/
+
 **Ten Ravens to watch with offseason workout program set to begin**\
 `Rashod Bateman and Mike Green are among the players who would benefit from a strong first impression with the new coaching staff. `\
 https://nytimes.com/athletic/7169537/2026/04/06/ravens-offseason-workout-program-rashod-bateman/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7174320/2026/04/06/tarris-reed-uconn-michigan-dan-h
 **Vikings NFL Draft big board: 40 prospects to watch with the team's 9 picks**\
 `The Vikings have plenty of positional needs, so they should be able to take a "best available" approach when it comes to the NFL Draft.`\
 https://nytimes.com/athletic/7174006/2026/04/06/vikings-nfl-draft-big-board-caleb-downs/
-
-**What would it cost for the Nationals to join MLB’s extension frenzy with Daylen Lile?**\
-`According to a source, the Nationals have yet to make an extension offer to Lile.`\
-https://nytimes.com/athletic/7174182/2026/04/06/washington-nationals-daylen-lile-extension/
 

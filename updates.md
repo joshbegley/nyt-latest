@@ -1,3 +1,7 @@
+**The Pulse: A people-pleasing title**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/7175137/2026/04/06/ucla-ncaa-hoops-title-the-pulse/
+
 **Ten Ravens to watch with offseason workout program set to begin**\
 `Rashod Bateman and Mike Green are among the players who would benefit from a strong first impression with the new coaching staff. `\
 https://nytimes.com/athletic/7169537/2026/04/06/ravens-offseason-workout-program-rashod-bateman/
