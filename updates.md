@@ -1,3 +1,11 @@
+**Human eyes are seeing the far side of the moon for the first time in a long time.**\
+`By Katrina Miller`\
+https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/human-eyes-are-seeing-the-far-side-of-the-moon-for-the-first-time-in-a-long-time
+
+**Falcons' James Pearce Jr. will not attend workouts following February arrest: Source**\
+`Pearce’s status with the team has been in limbo since he was arrested following an incident with former girlfriend Rickea Jackson.`\
+https://nytimes.com/athletic/7168049/2026/04/06/falcons-james-pearce-jr-minicamp-arrest/
+
 **Exploring the Far Side of the Moon**\
 `As Artemis II flies around the far side of the moon, our graphics editor Marco Hernandez describes what the astronauts are looking for.`\
 https://nytimes.com/video/science/space/100000010788127/exploring-the-far-side-of-the-moon.html

@@ -1,3 +1,7 @@
+**Human eyes are seeing the far side of the moon for the first time in a long time.**\
+`By Katrina Miller`\
+https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/human-eyes-are-seeing-the-far-side-of-the-moon-for-the-first-time-in-a-long-time
+
 **Israel Steps Up Attacks on Lebanon, Killing Dozens**\
 `Sunday was a particularly deadly day, as Israel targeted areas around the country — including a Christian area long regarded as safe by residents.`\
 https://nytimes.com/2026/04/06/world/middleeast/israel-attacks-lebanon-kill-dozens.html
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/7176212/2026/04/06/peter-deboer-islanders-coach-pat
 `No one was injured, but the councilman, Ron Gibson, called it “deeply unsettling.”`\
 https://nytimes.com/2026/04/06/us/indianapolis-data-center-shooting.html
 
-**Falcons' James Pearce Jr. will not attend minicamp following February arrest: Source**\
+**Falcons' James Pearce Jr. will not attend workouts following February arrest: Source**\
 `Pearce’s status with the team has been in limbo since he was arrested following an incident with former girlfriend Rickea Jackson.`\
 https://nytimes.com/athletic/7168049/2026/04/06/falcons-james-pearce-jr-minicamp-arrest/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7176543/2026/04/06/predators-vs-kings-stream-how-to
 **How to watch Blackhawks vs. Sharks: Time, TV, streaming**\
 `Find out how to watch the Chicago Blackhawks play the San Jose Sharks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7176540/2026/04/06/blackhawks-vs-sharks-stream-how-to-watch-april-6/
-
-**How to watch Braves vs. Angels: Time, TV, streaming for April 6**\
-`Find out how to watch the Atlanta Braves play the Los Angeles Angels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7176513/2026/04/06/braves-vs-angels-stream-how-to-watch-april-6/
 
