@@ -1,3 +1,7 @@
+**A.I. Is on Its Way to Upending Cybersecurity**\
+`With new systems from companies like Anthropic and OpenAI, hackers can attack with greater speed. The defense is more A.I.`\
+https://nytimes.com/2026/04/06/technology/ai-cybersecurity-hackers.html
+
 **USMNT's Agyemang taken off on a stretcher while playing for Derby**\
 `Agyemang, 25, played in both friendlies during the March international window and is in contention for a World Cup roster spot.`\
 https://nytimes.com/athletic/7175873/2026/04/06/patrick-agyemang-usmnt-injury-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7175944/2026/04/06/dodgers-vs-blue-jays-stream-how-
 **The Big Bang: A.I. Has Created a Code Overload**\
 `Companies are scrambling to deal with the glut.`\
 https://nytimes.com/2026/04/06/technology/ai-code-overload.html
-
-**How to watch Cardinals vs. Nationals: Time, TV, streaming for April 6**\
-`Find out how to watch the St. Louis Cardinals play the Washington Nationals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7175941/2026/04/06/cardinals-vs-nationals-stream-how-to-watch-april-6/
 
