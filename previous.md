@@ -1,3 +1,11 @@
+**Broncos mock draft: Prioritizing trenches after trading top pick for Jaylen Waddle**\
+`"You are always looking for big guys on the offensive and defensive lines," Broncos GM George Paton said ahead of this month's NFL Draft.`\
+https://nytimes.com/athletic/7174791/2026/04/06/broncos-mock-draft-trenches-lee-hunter/
+
+**The Bounce: Bucks-Giannis saga gets even messier. Plus, Lakers might be toast**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7166627/2026/04/06/giannis-bucks-lakers-playoffs-nba-the-bounce/
+
 **'This is about action' - Liverpool fan group confirm Anfield protests over ticket prices**\
 `It is also calling on fans not to spend money inside the ground and to delay renewing season tickets to "send a message" to owner FSG.`\
 https://nytimes.com/athletic/7175794/2026/04/06/liverpool-fans-protest-ticket-prices/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7175682/2026/04/06/francisco-alvarez-is-dreamy-case
 **Republicans Unveil a $342 Million Battle Plan to Keep the Senate**\
 `The main super PAC for Senate Republicans is focusing on eight states, and plans to spend big money to defend G.O.P.-held seats in Alaska, Iowa and Ohio.`\
 https://nytimes.com/2026/04/06/us/politics/republican-midterms-fundraising-super-pac.html
-
-**Lamar Jackson reports for Ravens' offseason workout program**\
-`Jackson, a two-time league MVP, is coming off arguably the most disappointing season of his eight-year career. `\
-https://nytimes.com/athletic/7175724/2026/04/06/lamar-jackson-ravens-offseason-workout-program/
-
-**At Least 4 Killed in Strike in Northern Israel**\
-`Rescue workers recovered four bodies from a residential building in the port city of Haifa after air defenses failed to intercept an Iranian strike, Israeli officials said.`\
-https://nytimes.com/2026/04/06/world/middleeast/israel-haifa-strike-iran.html
 

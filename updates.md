@@ -1,3 +1,11 @@
+**Broncos mock draft: Prioritizing trenches after trading top pick for Jaylen Waddle**\
+`"You are always looking for big guys on the offensive and defensive lines," Broncos GM George Paton said ahead of this month's NFL Draft.`\
+https://nytimes.com/athletic/7174791/2026/04/06/broncos-mock-draft-trenches-lee-hunter/
+
+**The Bounce: Bucks-Giannis saga gets even messier. Plus, Lakers might be toast**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7166627/2026/04/06/giannis-bucks-lakers-playoffs-nba-the-bounce/
+
 **'This is about action' - Liverpool fan group confirm Anfield protests over ticket prices**\
 `It is also calling on fans not to spend money inside the ground and to delay renewing season tickets to "send a message" to owner FSG.`\
 https://nytimes.com/athletic/7175794/2026/04/06/liverpool-fans-protest-ticket-prices/
