@@ -1,3 +1,11 @@
+**Curry brothers share the floor as NBA teammates: 'A dream come true'**\
+`Steph and Seth Curry, who have played in the NBA since 2009 and 2014, respectively, finally got to be teammates Sunday night.`\
+https://nytimes.com/athletic/7175368/2026/04/06/steph-curry-seth-curry-teammates-warriors/
+
+**College baseball week in review: Georgia takes SEC lead with sweep in Starkville**\
+`Cade Arrambide's record-setting day powers LSU to a series win. Kansas hits four ninth-inning HRs to beat Utah. Georgia Tech keeps mashing.`\
+https://nytimes.com/athletic/7174109/2026/04/06/college-baseball-georgia-mississippi-state-ucla-usc/
+
 **Rockets’ late-season offensive evolution is yielding results, wins and optimism**\
 `Houston registered its sixth straight game of 30 or more assists vs. the Warriors on Sunday, a sign of growing trust.`\
 https://nytimes.com/athletic/7175249/2026/04/06/rockets-offense-sengun-durant-assists/
