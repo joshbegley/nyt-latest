@@ -1,3 +1,7 @@
+**How UCLA's super senior class set the championship standard**\
+`UCLA's six seniors ended their college careers on top and will be in WNBA training camps in two weeks.`\
+https://nytimes.com/athletic/7174739/2026/04/05/ucla-national-championship-seniors/
+
 **Steph Curry returns to Warriors on minutes restriction as team eyes postseason push**\
 `The Warriors will be understandably cautious given how much time Curry has missed and the fact there is only one week left in the season.`\
 https://nytimes.com/athletic/7174669/2026/04/05/steph-curry-returns-warriors-rockets-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7174425/2026/04/05/red-sox-unacceptable-start/
 **J.J. Spaun survives wild-weather weekend to win Valero Texas Open**\
 `Saturday’s rain meant players had to complete their third rounds on Sunday, with some facing a 30-hole grind to finish the tournament.`\
 https://nytimes.com/athletic/7174134/2026/04/05/jj-spaun-pga-valero-texas-open/
-
-**'Not 6 feet under yet': Red Wings trying to tune out noise with 5 games left**\
-`A late push made it interesting, but a costly second period led the Red Wings to another loss Sunday with time running out.`\
-https://nytimes.com/athletic/7174222/2026/04/05/detroit-red-wings-noise-copp-stretch-run-wild/
 
