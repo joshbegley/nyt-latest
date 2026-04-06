@@ -1,3 +1,7 @@
+**How to watch Orioles vs. White Sox: Time, TV, streaming for April 6**\
+`Find out how to watch the Baltimore Orioles play the Chicago White Sox, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7176262/2026/04/06/orioles-vs-white-sox-stream-how-to-watch-april-6/
+
 **How to watch Mariners vs. Rangers: Time, TV, streaming for April 6**\
 `Find out how to watch the Seattle Mariners play the Texas Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7176245/2026/04/06/mariners-vs-rangers-stream-how-to-watch-april-6/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/thi
 **Send Jon Machota your Cowboys questions for his upcoming mailbag**\
 `<p>NFL league meetings were last week in Arizona.`\
 https://nytimes.com/athletic/7172044/2026/04/06/send-us-your-dallas-cowboys-mailbag-questions/
-
-**Iranians Condemn Strike on a Top University**\
-`Government officials and anti-government activists alike denounced the attacks on the Sharif University of Technology in Tehran, the latest Iranian center for higher education to be targeted.`\
-https://nytimes.com/2026/04/06/world/middleeast/iranians-condemn-university-strike.html
 

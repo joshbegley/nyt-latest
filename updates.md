@@ -1,3 +1,15 @@
+**How to watch Mariners vs. Rangers: Time, TV, streaming for April 6**\
+`Find out how to watch the Seattle Mariners play the Texas Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7176245/2026/04/06/mariners-vs-rangers-stream-how-to-watch-april-6/
+
+**How to watch Tigers vs. Twins: Time, TV, streaming for April 6**\
+`Find out how to watch the Detroit Tigers play the Minnesota Twins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7176243/2026/04/06/tigers-vs-twins-stream-how-to-watch-april-6/
+
+**How to watch Astros vs. Rockies: Time, TV, streaming for April 6**\
+`Find out how to watch the Houston Astros play the Colorado Rockies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7176237/2026/04/06/astros-vs-rockies-stream-how-to-watch-april-6/
+
 **Giants All-Pro DT Dexter Lawrence requests trade: Source**\
 `Lawrence is coming off a 2025 season in which he had career lows in sacks, tackles and quarterback hits. `\
 https://nytimes.com/athletic/7176164/2026/04/06/giants-dexter-lawrence-trade-request/

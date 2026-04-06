@@ -1,3 +1,15 @@
+**How to watch Mariners vs. Rangers: Time, TV, streaming for April 6**\
+`Find out how to watch the Seattle Mariners play the Texas Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7176245/2026/04/06/mariners-vs-rangers-stream-how-to-watch-april-6/
+
+**How to watch Tigers vs. Twins: Time, TV, streaming for April 6**\
+`Find out how to watch the Detroit Tigers play the Minnesota Twins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7176243/2026/04/06/tigers-vs-twins-stream-how-to-watch-april-6/
+
+**How to watch Astros vs. Rockies: Time, TV, streaming for April 6**\
+`Find out how to watch the Houston Astros play the Colorado Rockies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7176237/2026/04/06/astros-vs-rockies-stream-how-to-watch-april-6/
+
 **Giants All-Pro DT Dexter Lawrence requests trade: Source**\
 `Lawrence is coming off a 2025 season in which he had career lows in sacks, tackles and quarterback hits. `\
 https://nytimes.com/athletic/7176164/2026/04/06/giants-dexter-lawrence-trade-request/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7172044/2026/04/06/send-us-your-dallas-cowboys-mail
 **Iranians Condemn Strike on a Top University**\
 `Government officials and anti-government activists alike denounced the attacks on the Sharif University of Technology in Tehran, the latest Iranian center for higher education to be targeted.`\
 https://nytimes.com/2026/04/06/world/middleeast/iranians-condemn-university-strike.html
-
-**What I'm hearing about UNC's coaching search: Billy Donovan next up with Dusty May out**\
-`If not Donovan, UNC could turn to Vanderbilt's Mark Byington, Baylor's Scott Drew or ex-Nuggets coach Michael Malone.`\
-https://nytimes.com/athletic/7175991/2026/04/06/unc-coaching-search-latest-news-billy-donovan/
-
-**As Savannah Guthrie Returns, No News Can Be the Hardest News**\
-`With her mother still missing, the “Today” host’s comeback was a rare TV example of learning to live with not knowing.`\
-https://nytimes.com/2026/04/06/arts/television/savannah-guthrie-today-return.html
-
-**NFL 2026 offseason workout dates: When all 32 teams will be in action**\
-`The Baltimore Ravens started their voluntary offseason program Monday, while the nine other NFL teams with new coaches will begin Tuesday.`\
-https://nytimes.com/athletic/7175876/2026/04/06/nfl-2026-offseason-workout-dates/
 
