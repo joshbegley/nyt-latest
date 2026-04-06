@@ -1,3 +1,11 @@
+**Giants All-Pro DT Dexter Lawrence requests trade: Source**\
+`Lawrence is coming off a 2025 season in which he had career lows in sacks, tackles and quarterback hits. `\
+https://nytimes.com/athletic/7176164/2026/04/06/giants-dexter-lawrence-trade-request/
+
+**Do You Have Questions About a No-Bid Federal Contract? Tell Us Here.**\
+`The government is supposed to let many vendors compete for contracts, to get the best deal for taxpayers. We are looking at cases where it did not.`\
+https://nytimes.com/2026/04/06/us/politics/no-bid-federal-contract.html
+
 **How to watch Trail Blazers vs. Nuggets: Time, TV, streaming**\
 `Find out how to watch the Portland Trail Blazers play the Denver Nuggets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7176207/2026/04/06/trail-blazers-vs-nuggets-stream-how-to-watch-april-6/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/06/arts/television/savannah-guthrie-today-return.htm
 **NFL 2026 offseason workout dates: When all 32 teams will be in action**\
 `The Baltimore Ravens started their voluntary offseason program Monday, while the nine other NFL teams with new coaches will begin Tuesday.`\
 https://nytimes.com/athletic/7175876/2026/04/06/nfl-2026-offseason-workout-dates/
-
-**Pope Leo Calls for Peace and Condemns Violence on Easter**\
-`During his first Easter address, Pope Leo XIV called for peace and condemned violence. The pope has been increasingly outspoken since the war in Iran began.`\
-https://nytimes.com/video/world/europe/100000010824770/pope-leo-easter-address-peace-iran.html
-
-**Here’s the latest.**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/heres-the-latest
 
