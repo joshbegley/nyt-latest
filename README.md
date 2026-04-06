@@ -1,3 +1,11 @@
+**Juan Soto heads to IL with calf strain**\
+`Soto's injured list stint is his first since 2021. The 10-day IL stint is retroactive to April 4.`\
+https://nytimes.com/athletic/7176395/2026/04/06/new-york-mets-juan-soto-injured-list-calf-strain/
+
+**Trump Administration to Pull Out of Civil Rights Settlements Backing Trans Students**\
+`The Education Department said there was no precedent for the federal government terminating settlements stemming from civil rights investigations into schools.`\
+https://nytimes.com/2026/04/06/us/politics/transgender-students-civil-rights.html
+
 **Cubs' rotation injuries mounting with Matthew Boyd joining Cade Horton on the IL**\
 `Boyd is dealing with left bicep soreness but it isn't believed to be a serious injury.`\
 https://nytimes.com/athletic/7176370/2026/04/06/chicago-cubs-matthew-boyd-injured-list/
@@ -25,8 +33,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010824808/how-to-resto
 **How to Refresh an 80 Year Old Dutch Oven**\
 `You don’t need — and shouldn’t use — harsh chemicals or abrasive tools to bring your cruddy enameled cast-iron Dutch oven back to its original factory sheen. Kitchen writer Michael Sullivan shows us that boiling water, a wooden spatula, and a little elbow grease will do the trick.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010824758/how-to-refresh-an-80-year-old-dutch-oven.html
-
-**Mapping the scale of the conflict.**\
-`By Martín González Gómez`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/mapping-the-scale-of-the-conflict
 

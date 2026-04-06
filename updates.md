@@ -1,3 +1,15 @@
+**Cubs' rotation injuries mounting with Matthew Boyd joining Cade Horton on the IL**\
+`Boyd is dealing with left bicep soreness but it isn't believed to be a serious injury.`\
+https://nytimes.com/athletic/7176370/2026/04/06/chicago-cubs-matthew-boyd-injured-list/
+
+**Where does the data for election estimates come from, and what kind of data do we collect?**\
+`(No description)`\
+https://nytimes.com/live/2026/us/times-election-results-explained/where-does-the-data-for-election-estimates-come-from-and-what-kind-of-data-do-we-collect
+
+**Don’t AirTag Your Pet**\
+`AirTags are great for luggage, but when it comes to your furry friends you’re better off using a GPS tracker specifically made for pets.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010825089/dont-airtag-your-pet.html
+
 **Don’t AirTag Your Pet**\
 `While AirTags are great for luggage, when it comes to your furry friends you’re better off using a GPS tracker specifically made for pets.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010825089/dont-airtag-your-pet.html
