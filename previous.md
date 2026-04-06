@@ -1,3 +1,7 @@
+**Can the Predators finish off their improbable playoff run?**\
+`Nashville sold at the trade deadline, signaling the end, but then the Predators made an unlikely push.`\
+https://nytimes.com/athletic/7172722/2026/04/06/nashville-predators-nhl-playoff-standings/
+
 **The Pulse: A people-pleasing title**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/7175137/2026/04/06/ucla-ncaa-hoops-title-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7174150/2026/04/06/ryan-strome-anaheim-ducks-teamma
 **Dan Hurley put Tarris Reed Jr. through a grueling reinvention. Mission accomplished**\
 `Reed hasn’t always been this dominant, but he'll have an opportunity to prove just how far he’s come as the Huskies play for another title.`\
 https://nytimes.com/athletic/7174320/2026/04/06/tarris-reed-uconn-michigan-dan-hurley/
-
-**Vikings NFL Draft big board: 40 prospects to watch with the team's 9 picks**\
-`The Vikings have plenty of positional needs, so they should be able to take a "best available" approach when it comes to the NFL Draft.`\
-https://nytimes.com/athletic/7174006/2026/04/06/vikings-nfl-draft-big-board-caleb-downs/
 

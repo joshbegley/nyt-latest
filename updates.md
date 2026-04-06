@@ -1,3 +1,7 @@
+**Can the Predators finish off their improbable playoff run?**\
+`Nashville sold at the trade deadline, signaling the end, but then the Predators made an unlikely push.`\
+https://nytimes.com/athletic/7172722/2026/04/06/nashville-predators-nhl-playoff-standings/
+
 **The Pulse: A people-pleasing title**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/7175137/2026/04/06/ucla-ncaa-hoops-title-the-pulse/
