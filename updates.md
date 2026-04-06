@@ -1,3 +1,7 @@
+**Here’s What Happened in the War in the Middle East on Sunday**\
+`President Trump taunted Iran on social media, while strikes continued in Iran, Israel, Lebanon and some Gulf states.`\
+https://nytimes.com/2026/04/05/world/middleeast/iran-israel-us-war-middle-east.html
+
 **Martone's overtime winner, gorgeous assist catapult Flyers into playoff position**\
 `The Flyers bypassed a wild-card spot entirely to jump to third in the Metro after the overtime win.`\
 https://nytimes.com/athletic/7174607/2026/04/05/porter-martone-flyers-overtime-goal-dvorak-bruins/
