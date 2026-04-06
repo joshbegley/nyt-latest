@@ -1,3 +1,7 @@
+**Oil Rises Slightly After Trump’s Latest Threats on Iran**\
+`President Trump taunted Iranian leaders on Sunday, threatening to escalate attacks if the Strait of Hormuz was not reopened.`\
+https://nytimes.com/2026/04/06/business/oil-stocks-gas-prices-iran.html
+
 **Connections: Sports Edition Coach: Hints and answers for April 6, 2026**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/7175105/2026/04/06/connections-sports-edition-hints-answers-april-6-2026/
@@ -17,10 +21,6 @@ https://nytimes.com/2026/04/06/arts/television/euphoria-march-madness-tv-this-we
 **Sacrifice and selflessness define coach Cori Close's UCLA  championship run**\
 `By beating South Carolina, Close became the first first-time champion since Dawn Staley in 2017.`\
 https://nytimes.com/athletic/7175020/2026/04/06/ucla-cori-close-national-championship/
-
-**Leeds have waited 39 years for an FA Cup semi-final and they did it the Leeds way**\
-`For the second time in this cup run, the goalkeeper Perri emerged as the hero, saving penalties from Bowen and Pablo in the shootout`\
-https://nytimes.com/athletic/7174824/2026/04/06/leeds-fa-cup-semi-final-39-years/
 
 **Newcastle have a built-in aversion to losing key players. But can this pain become a gain?**\
 `With supporters wincing at memories of Beardsley, Gascoigne, Carroll and Isak leaving Tyneside, it remains a psychological hurdle to jump`\

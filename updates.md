@@ -1,3 +1,7 @@
+**Oil Rises Slightly After Trump’s Latest Threats on Iran**\
+`President Trump taunted Iranian leaders on Sunday, threatening to escalate attacks if the Strait of Hormuz was not reopened.`\
+https://nytimes.com/2026/04/06/business/oil-stocks-gas-prices-iran.html
+
 **Leeds have waited 39 years for an FA Cup semi-final and they did it the Leeds way**\
 `For the second time in this cup run, the goalkeeper Perri emerged as the hero, saving penalties from Bowen and Pablo in the shootout`\
 https://nytimes.com/athletic/7174824/2026/04/06/leeds-fa-cup-semi-final-39-years/
