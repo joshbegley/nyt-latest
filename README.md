@@ -1,3 +1,7 @@
+**The Briefing: Could Arsenal end up empty-handed? Will the FA Cup help or hinder Leeds survival?**\
+`Welcome to The Briefing, where every Monday, The Athletic discusses three of the biggest issues raised by the weekend’s action`\
+https://nytimes.com/athletic/7174013/2026/04/06/arsenal-fa-cup-exit-leeds-bernardo-silva/
+
 **Prescott, Messi, Ohtani and more: How the world's biggest sports stars get paid**\
 `From deferring salaries to taking ownership equity, we explore all the different ways the biggest names in sport get paid`\
 https://nytimes.com/athletic/7151569/2026/04/06/ohtani-messi-prescott-sport-salaries-pay-contracts/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/7169577/2026/04/06/champions-league-quarter-finals-
 <p>Leave your questions here. Please include your city.</p>
 `\
 https://nytimes.com/athletic/7175009/2026/04/06/submit-a-question-for-stewart-mandels-college-football-mailbag-341/
-
-**NASA’s Artemis II Moon Mission: Everything You Need to Know**\
-`The journey around the moon of three Americans and one Canadian is going into its sixth day, but it’s not too late to get caught up on it.`\
-https://nytimes.com/2026/04/06/science/artemis-2-lunar-moon-flyby-nasa-timeline.html
 
