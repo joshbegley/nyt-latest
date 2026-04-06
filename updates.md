@@ -1,3 +1,7 @@
+**Mailbag: Are the Penguins actually Stanley Cup contenders?**\
+`Should expectations be low for the supremely surprising Penguins, or do they have a deep run in them?`\
+https://nytimes.com/athletic/7175672/2026/04/06/penguins-stanley-cup-odds-nhl-mailbag/
+
 **Harry Styles Gave Us the Album of the Spring**\
 `Wesley Morris on why Harry Styles’s new album is the perfect spring soundtrack.`\
 https://nytimes.com/video/podcasts/100000010816483/harry-styles-gave-us-the-album-of-the-spring.html
