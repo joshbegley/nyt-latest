@@ -1,3 +1,7 @@
+**Wild in process of adding a Viking to the State of Hockey?**\
+`Viking Gustafsson Nyberg signed an amateur tryout with the Wild that could lead to an entry-level NHL deal in the coming days.`\
+https://nytimes.com/athletic/7171638/2026/04/06/wild-viking-gustafsson-nyberg-signing/
+
 **Trump’s Board of Peace Gives Hamas Disarmament Deadline**\
 `The demand reflects both the U.S. administration’s eagerness to secure a lasting cease-fire in Gaza and its growing impatience with the Palestinian militant group.`\
 https://nytimes.com/2026/04/06/world/middleeast/trumps-board-of-peace-gives-hamas-disarmament-deadline.html
