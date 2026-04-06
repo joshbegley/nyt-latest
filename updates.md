@@ -1,3 +1,15 @@
+**Vinicius Jr wants Madrid stay 'for many years', speaks on 'difficult' Alonso period**\
+`The 25-year-old, who has scored 123 goals for Madrid since joining in 2018 from Flamengo, has played down any speculation on his future.`\
+https://nytimes.com/athletic/7175472/2026/04/06/vinicius-real-madrid-contract/
+
+**What Do You Think About the U.S. Sending Astronauts to the Moon Again?**\
+`A NASA mission is taking four astronauts around the moon and back for the first time in 50 years. Will it make a difference in the world?`\
+https://nytimes.com/2026/04/06/learning/what-do-you-think-about-the-us-sending-astronauts-to-the-moon-again.html
+
+**Word of the Day: filial**\
+`This word has appeared in 14 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/04/06/learning/word-of-the-day-filial.html
+
 **What is the best pass you have ever seen?**\
 `Inspired by Yamal's show-stopping assist against Atletico Madrid on Saturday, The Athletic's writers pick the best passes they've seen.`\
 https://nytimes.com/athletic/7175123/2026/04/06/yamal-barcelona-atletico-pass-best-ever/
