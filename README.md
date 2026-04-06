@@ -1,3 +1,7 @@
+**What went wrong for South Carolina? The main thing: UCLA's dominating defense**\
+`South Carolina says the loss needs to be a motivator to get back to next season's title game. `\
+https://nytimes.com/athletic/7174907/2026/04/05/south-carolina-ucla-defense-national-championship/
+
 **Lakers' Luka Dončić to visit Europe in effort to expedite hamstring strain treatment**\
 `Could an expedited hamstring rehab help Luka Dončić return in time to help the Lakers' playoff run?`\
 https://nytimes.com/athletic/7174900/2026/04/05/lakers-luka-doncic-to-visit-europe-in-effort-to-expedite-hamstring-strain-treatment/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7174669/2026/04/05/steph-curry-returns-warriors-roc
 **Here’s What Happened in the War in the Middle East on Sunday**\
 `President Trump taunted Iran on social media, while strikes continued in Iran, Israel, Lebanon and some Gulf states.`\
 https://nytimes.com/2026/04/05/world/middleeast/iran-israel-us-war-middle-east.html
-
-**Martone's overtime winner, gorgeous assist catapult Flyers into playoff position**\
-`The Flyers bypassed a wild-card spot entirely to jump to third in the Metro after the overtime win.`\
-https://nytimes.com/athletic/7174607/2026/04/05/porter-martone-flyers-overtime-goal-dvorak-bruins/
 
