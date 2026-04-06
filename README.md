@@ -1,3 +1,7 @@
+**Lamar Jackson reports for Ravens' offseason workout program**\
+`Jackson, a two-time league MVP, is coming off arguably the most disappointing season of his eight-year career. `\
+https://nytimes.com/athletic/7175724/2026/04/06/lamar-jackson-ravens-offseason-workout-program/
+
 **At Least 4 Killed in Strike in Northern Israel**\
 `Rescue workers recovered four bodies from a residential building in the port city of Haifa after air defenses failed to intercept an Iranian strike, Israeli officials said.`\
 https://nytimes.com/2026/04/06/world/middleeast/israel-haifa-strike-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/06/pageoneplus/no-corrections-april-5-2026.html
 **Corrections: April 4, 2026**\
 `Corrections that appeared in print on Saturday, April 4, 2026.`\
 https://nytimes.com/2026/04/06/pageoneplus/corrections-april-4-2026.html
-
-**Steph Curry's game-altering return shows why the Warriors can't give up on this**\
-`On restricted minutes, Curry nearly led an upset of one of the league's hottest teams. It's why the Warriors still hold on to hope.`\
-https://nytimes.com/athletic/7175415/2026/04/06/stephen-curry-warriors-return-nba-playoffs-injury/
 

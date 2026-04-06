@@ -1,3 +1,11 @@
+**At Least 4 Killed in Strike in Northern Israel**\
+`Rescue workers recovered four bodies from a residential building in the port city of Haifa after air defenses failed to intercept an Iranian strike, Israeli officials said.`\
+https://nytimes.com/2026/04/06/world/middleeast/israel-haifa-strike-iran.html
+
+**The NBA's tanking problem is even worse than you think**\
+`The Notorious Nine — the teams that are blatantly trying to lose — have succeeded at their mission while dragging down the sport.`\
+https://nytimes.com/athletic/7175030/2026/04/06/nba-tanking-costs-blowouts/
+
 **The Athletic college baseball top 25: Surging UCF enters at No. 17; Kentucky, Oregon drop out**\
 `UCF and Kansas join West Virginia and Arizona State to give the Big 12 four teams in this week's ranking.`\
 https://nytimes.com/athletic/7175627/2026/04/06/college-baseball-ranking-ucf-kansas-ucla-georgia/
