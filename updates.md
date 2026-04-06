@@ -1,3 +1,11 @@
+**What is the best pass you have ever seen?**\
+`Inspired by Yamal's show-stopping assist against Atletico Madrid on Saturday, The Athletic's writers pick the best passes they've seen.`\
+https://nytimes.com/athletic/7175123/2026/04/06/yamal-barcelona-atletico-pass-best-ever/
+
+**How to watch Villarreal vs. Girona FC in the U.S.**\
+`Find out how to watch Villarreal play Girona FC, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7175456/2026/04/06/villarreal-vs-girona-fc-stream-how-to-watch-la-liga-april-6/
+
 **Inside Barcelona: Why was Lamine Yamal angry after victory over Atletico Madrid?**\
 `The 18-year-old forward left the pitch visibly annoyed after Saturday's 2-1 victory at the Estadio Metropolitano`\
 https://nytimes.com/athletic/7175344/2026/04/06/barcelona-lamine-yamal-atletico-la-liga-champions-league/
