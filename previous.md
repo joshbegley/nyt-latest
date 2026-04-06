@@ -1,3 +1,15 @@
+**New Jersey Devils fire general manager Tom Fitzgerald**\
+`Fitzgerald had been part of the Devils front office since 2015 at varying levels, and GM since 2020.`\
+https://nytimes.com/athletic/7176974/2026/04/06/nj-devils-gm-tom-fitzgerald-fired-news/
+
+**Here’s What Happened in the War in the Middle East on Monday**\
+`President Trump escalated his threats ahead of his pending Tuesday deadline for Iran to reopen the Strait of Hormuz.`\
+https://nytimes.com/2026/04/06/world/middleeast/middle-east-iran-war-week-6.html
+
+**NASA Isn’t Going to Dark Side of the Moon**\
+`Scientists prefer to call the backside of the moon its “far” side.`\
+https://nytimes.com/2026/04/06/science/moon-dark-side-far-side.html
+
 **Student News Quiz for March 31-April 6**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2026/04/06/learning/06StudentNewsQuiz.html
@@ -6,7 +18,7 @@ https://nytimes.com/interactive/2026/04/06/learning/06StudentNewsQuiz.html
 `Morikawa, an early Masters favorite, was not able to hit a full shot on Monday.`\
 https://nytimes.com/athletic/7176792/2026/04/06/masters-latest-morikawa-scheffler-2026-seeing-hearing/
 
-**Dallas Stars ban fan who made apparent Nazi salute at game**\
+**Dallas Stars ban fan after group made apparent Nazi salute at game**\
 `The incident took place during a game against the Toronto Maple Leafs on Dec. 21.`\
 https://nytimes.com/athletic/7176600/2026/04/06/dallas-stars-ban-fan-gesture/
 
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/politics/100000010825584/trump-iran-threats-war-f-1
 **How to Follow NASA’s Artemis II Around the Far Side of the Moon**\
 `The astronauts will head into a communications blackout at 6:44 p.m. Eastern time as they become the first people to travel around the moon since 1972.`\
 https://nytimes.com/2026/04/06/science/artemis-ii-moon-watch.html
-
-**Redistricting War Comes Down to Virginia and Florida**\
-`As deadlines approach in the next two weeks, neither is going quite according to the partisan plan.`\
-https://nytimes.com/2026/04/06/us/politics/redistricting-virginia-florida-ga-special-election-republicans.html
-
-**Artemis II Astronauts Go Farther From Earth Than Ever Before**\
-`Also, Trump threatens to attack Iran’s power plants and bridges. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2026/04/06/briefing/artemis-ii-moon-trump-iran-threats.html
-
-**The Artemis II crew breaks a distance record.**\
-`Three Americans and one Canadian traveling on NASA’s Orion spacecraft surpassed a milestone set by the crew of Apollo 13 in 1970.`\
-https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/the-artemis-ii-crew-breaks-a-distance-record
 
