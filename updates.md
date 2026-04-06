@@ -1,3 +1,15 @@
+**Falcons' James Pearce Jr. will not attend minicamp following February arrest: Source**\
+`Pearce’s status with the team has been in limbo since he was arrested following an incident with former girlfriend Rickea Jackson.`\
+https://nytimes.com/athletic/7168049/2026/04/06/falcons-james-pearce-jr-minicamp-arrest/
+
+**How to watch Predators vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Nashville Predators play the Los Angeles Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7176543/2026/04/06/predators-vs-kings-stream-how-to-watch-april-6/
+
+**How to watch Blackhawks vs. Sharks: Time, TV, streaming**\
+`Find out how to watch the Chicago Blackhawks play the San Jose Sharks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7176540/2026/04/06/blackhawks-vs-sharks-stream-how-to-watch-april-6/
+
 **How to watch Braves vs. Angels: Time, TV, streaming for April 6**\
 `Find out how to watch the Atlanta Braves play the Los Angeles Angels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7176513/2026/04/06/braves-vs-angels-stream-how-to-watch-april-6/
