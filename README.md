@@ -14,6 +14,10 @@ https://nytimes.com/2026/04/06/arts/television/euphoria-march-madness-tv-this-we
 `By beating South Carolina, Close became the first first-time champion since Dawn Staley in 2017.`\
 https://nytimes.com/athletic/7175020/2026/04/06/ucla-cori-close-national-championship/
 
+**Newcastle have a built-in aversion to losing key players. But can this pain become a gain?**\
+`With supporters wincing at memories of Beardsley, Gascoigne, Carroll and Isak leaving Tyneside, it remains a psychological hurdle to jump`\
+https://nytimes.com/athletic/7169246/2026/04/06/newcastle-sandro-tonali-tino-livramento-transfer-analysis/
+
 **Estevao is the spark Chelsea will need in the daunting run-in ahead**\
 `The teenager was excellent in the thrashing of Port Vale, but will tear into far trickier fixtures with gusto over the campaign's run-in `\
 https://nytimes.com/athletic/7172244/2026/04/06/chelsea-estevao-youthful-energy-rosenior/
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/7174013/2026/04/06/arsenal-fa-cup-exit-leeds-bernar
 `From deferring salaries to taking ownership equity, we explore all the different ways the biggest names in sport get paid`\
 https://nytimes.com/athletic/7151569/2026/04/06/ohtani-messi-prescott-sport-salaries-pay-contracts/
 
+**Champions League quarter-finals predictions, star players and youngsters to watch**\
+`And then there were eight. Our writers explain everything you need to know about the business end of the Champions League`\
+https://nytimes.com/athletic/7169577/2026/04/06/champions-league-quarter-finals-predictions/
+
 **Can the Premier League do more to combat violence against women and girls?**\
 `There is no centralised campaign about violence against women and girls in the Premier League. Should this change?`\
 https://nytimes.com/athletic/7143844/2026/04/06/premier-league-violence-women-girls/
-
-**Slot's future was never reliant on the FA Cup, but his reign is in danger of unravelling**\
-`FSG wants to give Slot the chance to put things right next season, but the manner of the defeat to City should set alarm bells ringing`\
-https://nytimes.com/athletic/7171777/2026/04/06/arne-slot-liverpool-fa-cup/
-
-**Five things to look out for in the Champions League quarter-finals**\
-`We are down to the last eight in Europe's premier competition, but who will come out on top?`\
-https://nytimes.com/athletic/7169006/2026/04/06/champions-league-quarter-finals-five-things/
 
