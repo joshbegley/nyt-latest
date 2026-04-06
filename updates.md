@@ -1,3 +1,7 @@
+**How to Refresh an 80 Year Old Dutch Oven**\
+`You don’t need — and shouldn’t use — harsh chemicals or abrasive tools to bring your cruddy enameled cast-iron Dutch oven back to its original factory sheen. Kitchen writer Michael Sullivan shows us that boiling water, a wooden spatula, and a little elbow grease will do the trick.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010824758/how-to-refresh-an-80-year-old-dutch-oven.html
+
 **Mapping the scale of the conflict.**\
 `By Martín González Gómez`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/mapping-the-scale-of-the-conflict

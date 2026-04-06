@@ -1,3 +1,7 @@
+**How to Refresh an 80 Year Old Dutch Oven**\
+`You don’t need — and shouldn’t use — harsh chemicals or abrasive tools to bring your cruddy enameled cast-iron Dutch oven back to its original factory sheen. Kitchen writer Michael Sullivan shows us that boiling water, a wooden spatula, and a little elbow grease will do the trick.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010824758/how-to-refresh-an-80-year-old-dutch-oven.html
+
 **Mapping the scale of the conflict.**\
 `By Martín González Gómez`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/mapping-the-scale-of-the-conflict
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7176267/2026/04/06/kraken-vs-jets-stream-how-to-wat
 **How to watch Orioles vs. White Sox: Time, TV, streaming for April 6**\
 `Find out how to watch the Baltimore Orioles play the Chicago White Sox, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7176262/2026/04/06/orioles-vs-white-sox-stream-how-to-watch-april-6/
-
-**How to watch Mariners vs. Rangers: Time, TV, streaming for April 6**\
-`Find out how to watch the Seattle Mariners play the Texas Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7176245/2026/04/06/mariners-vs-rangers-stream-how-to-watch-april-6/
 
