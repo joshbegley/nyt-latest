@@ -34,7 +34,3 @@ https://nytimes.com/2026/04/06/us/politics/supreme-court-bannon-trump.html
 `Need fantasy baseball help? Andy Behrens breaks down early MLB trends and drops essential streaming targets to boost your roster.`\
 https://nytimes.com/athletic/7175682/2026/04/06/francisco-alvarez-is-dreamy-casey-mize-is-streamy-and-other-fantasy-baseball-takeaways/
 
-**Republicans Unveil a $342 Million Battle Plan to Keep the Senate**\
-`The main super PAC for Senate Republicans is focusing on eight states, and plans to spend big money to defend G.O.P.-held seats in Alaska, Iowa and Ohio.`\
-https://nytimes.com/2026/04/06/us/politics/republican-midterms-fundraising-super-pac.html
-
