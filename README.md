@@ -1,3 +1,7 @@
+**Blue Jackets Monday Gathering: What is —and isn't — behind this surprising collapse**\
+`Let's dispel a few theories and look at what's really going on as frustrations mount during the playoff race.`\
+https://nytimes.com/athletic/7173450/2026/04/06/blue-jackets-collapse-playoff-race/
+
 **Savannah Guthrie Returns to the ‘Today’ Show**\
 `Savannah Guthrie rejoined the “Today” show morning newscast more than two months after her mother’s disappearance in February. Her 84-year-old mother, Nancy Guthrie, remains missing.`\
 https://nytimes.com/video/us/100000010824713/savannah-guthrie-today-show.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7176237/2026/04/06/astros-vs-rockies-stream-how-to-
 **Giants All-Pro DT Dexter Lawrence requests trade: Source**\
 `Lawrence is coming off a 2025 season in which he had career lows in sacks, tackles and quarterback hits. `\
 https://nytimes.com/athletic/7176164/2026/04/06/giants-dexter-lawrence-trade-request/
-
-**Do You Have Questions About a No-Bid Federal Contract? Tell Us Here.**\
-`The government is supposed to let many vendors compete for contracts, to get the best deal for taxpayers. We are looking at cases where it did not.`\
-https://nytimes.com/2026/04/06/us/politics/no-bid-federal-contract.html
 
