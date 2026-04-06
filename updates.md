@@ -1,3 +1,25 @@
+**The Windup: Unbelievable outfielder achievement**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7175877/2026/04/06/jo-adell-outfield-defense-angels-the-windup/
+
+**Entering Week 3 of the ABS system: Which umpires, teams and players thrived and struggled**\
+`Plus, some of the standout moments and takeaways from MLB's first full week of the Automated Ball-Strike challenge system. `\
+https://nytimes.com/athletic/7175039/2026/04/06/mlb-abs-challenges-results-entering-week-three/
+
+**The Cases That Could Change Social Media Forever**\
+`Two important cases could open the floodgates for people to sue social media platforms, by cracking open Section 230 of the Communications Decency Act. Casey Newton and Kevin Roose dive into why, and how, on the “Hard Fork” podcast. Listen to the full conversation at youtube.com/hardfork.`\
+https://nytimes.com/video/podcasts/100000010824974/the-cases-that-could-change-social-media-forever.html
+
+**Chicago Sky trade Angel Reese to Atlanta Dream for 2 first-round picks**\
+`The Chicago Sky traded Angel Reese to the Atlanta Dream for two first-round picks, the teams announced Monday.
+
+thank you, Angel 🩵
+wishing you the best in Atlanta! pic.twitter.com/JWGGOwVhGP
+&mdash; Chicago Sky (@chicagosky) April 6, 2026
+
+This is a developing story. More to come.`\
+https://nytimes.com/athletic/7175987/2026/04/06/angel-reese-trade-atlanta-dream-chicago-sky/
+
 **Mailbag: Are the Penguins actually Stanley Cup contenders?**\
 `Should expectations be low for the supremely surprising Penguins, or do they have a deep run in them?`\
 https://nytimes.com/athletic/7175672/2026/04/06/penguins-stanley-cup-odds-nhl-mailbag/
