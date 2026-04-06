@@ -1,3 +1,7 @@
+**Jaylen Brown sees 'night and day' difference in Neemias Queta's growth**\
+`The Most Improved Player award will be announced April 30th.`\
+https://nytimes.com/athletic/7174470/2026/04/05/jaylen-brown-neemias-queta-most-improved-candidate-celtics/
+
 **‘This is the time to show up’: Geekie's scoring slump stays stubbornly intact**\
 `The Bruins continued to struggle for offense in an overtime loss to the Flyers, in which Morgan Geekie's goal drought hit a month.`\
 https://nytimes.com/athletic/7174549/2026/04/05/bruins-morgan-geekie-scoring-top-line-flyers/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010823371/military-iran-airman-
 **Trump’s Lesson From Risky Rescue: Threaten to Go Harder at Iran**\
 `In an expletive-laced social media post, the president said Iran should open the Strait of Hormuz or he would bomb bridges and power plants.`\
 https://nytimes.com/2026/04/05/us/politics/trump-risky-rescue-threats-iran.html
-
-**Period to Live Through**\
-`Log on for a new puzzle from John Ewbank.`\
-https://nytimes.com/2026/04/05/crosswords/daily-puzzle-2026-04-06.html
 

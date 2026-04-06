@@ -1,3 +1,7 @@
+**Red Sox reeling after 2-7 start: 'It's unacceptable to the fans'**\
+`Ranger Suarez has exited in the fifth in each of his two starts, showing little resemblance to the strong pitcher he was with the Phillies.`\
+https://nytimes.com/athletic/7174425/2026/04/05/red-sox-unacceptable-start/
+
 **‘This is the time to show up’: Geekie's scoring slump stays stubbornly intact**\
 `The Bruins continued to struggle for offense in an overtime loss to the Flyers, in which Morgan Geekie's goal drought hit a month.`\
 https://nytimes.com/athletic/7174549/2026/04/05/bruins-morgan-geekie-scoring-top-line-flyers/

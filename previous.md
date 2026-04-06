@@ -11,7 +11,7 @@ https://nytimes.com/interactive/2026/04/05/upshot/ten-minute-challenge-spy.html
 https://nytimes.com/athletic/7174338/2026/04/05/twins-rays-offense-slumping-byron-buxton/
 
 **Red Sox reeling after 2-7 start: 'It's unacceptable to the fans'**\
-`“I cannot allow that to happen,” Ranger Suarez said. “Obviously not the way I wanted the first two starts to go.”`\
+`Ranger Suarez has exited in the fifth in each of his two starts, showing little resemblance to the strong pitcher he was with the Phillies.`\
 https://nytimes.com/athletic/7174425/2026/04/05/red-sox-unacceptable-start/
 
 **J.J. Spaun survives wild-weather weekend to win Valero Texas Open**\
