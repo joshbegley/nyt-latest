@@ -1,40 +1,40 @@
-**Cooper Flagg outduels LeBron James, makes another Rookie of the Year statement**\
-`“I mean, he’s obviously special,” James said of Flagg, who has scored 96 points in his last two games.`\
-https://nytimes.com/athletic/7175060/2026/04/06/cooper-flagg-lebron-james-mavericks-rookie/
+**Inside Barcelona: Why was Lamine Yamal angry after victory over Atletico Madrid?**\
+`The 18-year-old forward left the pitch visibly annoyed after Saturday's 2-1 victory at the Estadio Metropolitano`\
+https://nytimes.com/athletic/7175344/2026/04/06/barcelona-lamine-yamal-atletico-la-liga-champions-league/
 
-**Asked and Answered**\
-`Today we take on more reader questions about the news.`\
-https://nytimes.com/2026/04/06/briefing/reader-questions-answered.html
+**The Marlins call pitches from the dugout. Why the Yankees think it's 'terrible'**\
+`The Marlins are calling pitches from the dugout this season. With Miami in town, several Yankees explained why they are against it. `\
+https://nytimes.com/athletic/7172359/2026/04/06/yankees-marlins-dugout-called-pitches/
 
-**On Iran, Trump Keeps World Off Balance With Ever-Changing Threats**\
-`Global leaders are struggling in their efforts to find a way to end the American-Israeli war on Iran, and they are spooked about what President Trump might do next.`\
-https://nytimes.com/2026/04/06/world/europe/iran-trump-threats.html
+**What matters, and what doesn't, from the Blue Jays’ brutal week**\
+`The Blue Jays dropped five of six games to two of baseball's worst teams and lost two key players to long-term injuries this week. `\
+https://nytimes.com/athletic/7174349/2026/04/06/blue-jays-week-recap-injuries-cody-ponce-alejandro-kirk-vladimir-guerrero/
 
-**Can the Predators finish off their improbable playoff run?**\
-`Nashville sold at the trade deadline, signaling the end, but then the Predators made an unlikely push.`\
-https://nytimes.com/athletic/7172722/2026/04/06/nashville-predators-nhl-playoff-standings/
+**Bedard reflects on the Blackhawks season that was, not what might have been**\
+`Despite a shoulder injury and missing out on the Olympics, Bedard is proud of where he and the Blackhawks are at to end the season.`\
+https://nytimes.com/athletic/7172968/2026/04/06/connor-bedard-blackhawks-injury-celebrini-growth/
 
-**The Pulse: A people-pleasing title**\
-`Welcome to The Pulse, The Athletic's daily newsletter.`\
-https://nytimes.com/athletic/7175137/2026/04/06/ucla-ncaa-hoops-title-the-pulse/
+**Why Wrexham against Southampton is the biggest game of the Hollywood era**\
+`The collision at the SToK Cae Ras pits two of the Championship's form sides and could be critical in terms of securing a play-off place `\
+https://nytimes.com/athletic/7163647/2026/04/06/wrexham-southampton-easter-mac-reynolds-promotion/
 
-**Ten Ravens to watch with offseason workout program set to begin**\
-`Rashod Bateman and Mike Green are among the players who would benefit from a strong first impression with the new coaching staff. `\
-https://nytimes.com/athletic/7169537/2026/04/06/ravens-offseason-workout-program-rashod-bateman/
+**5 burning questions for the Wild ahead of the playoffs — and an inevitable Stars series**\
+`How will the handle the goalie rotation? Who's the odd man out? Who plays with Quinn Hughes? Those question and more.`\
+https://nytimes.com/athletic/7173619/2026/04/06/wild-playoffs-burning-questions-stars/
 
-**Phillies takeaways: Stott's new approach, Walker's review, Duran's splitter**\
-`Stott is carrying the highest chase rate among all Phillies hitters; the newfound aggressiveness has not resulted in much this season.`\
-https://nytimes.com/athletic/7174565/2026/04/06/phillies-bryson-stott-jhoan-duran-taijuan-walker/
+**Dodgers takeaways: What we learned from a series sweep of the Nationals**\
+`The Dodgers must manage Mookie Betts' absence and take advantage of off days in April to manage the starting rotation. `\
+https://nytimes.com/athletic/7174874/2026/04/06/dodgers-series-sweep-nationals-takeaways/
 
-**Rosenthal: 5 key reasons why the Cubs' $141 million extension with Nico Hoerner makes sense**\
-`Hoerner is a top defender and base runner, despite only being a slightly above-average hitter during his time with the Cubs.`\
-https://nytimes.com/athletic/7174758/2026/04/06/chicago-cubs-nico-hoerner-extension/
+**The road to 1,620: José Ramírez's journey to becoming Guardians' leader in games played**\
+`Terry Turner's record of 1,619 games played for Cleveland has stood since Sept. 1, 1918, more than a century ago.`\
+https://nytimes.com/athletic/7173836/2026/04/06/jose-ramirez-cleveland-guardians-games-played-record-terry-turner/
 
-**Back-to-back first hat tricks, 2 dominant wins: Inside a memorable Rangers weekend**\
-`Will Cuylle's hat trick on Sunday marked the first time in Rangers history that the team has had hat tricks on back-to-back-days.`\
-https://nytimes.com/athletic/7174965/2026/04/06/rangers-perreault-cuylle-hat-tricks-quick-red-wings-capitals/
+**This Week in Mets: How the offense turned it around in San Francisco**\
+`It's easy to forget Mark Vientos had an .859 OPS and 10 homers over his final 145 plate appearances of 2025.`\
+https://nytimes.com/athletic/7174835/2026/04/06/mets-offense-mark-vientos-marcus-semien/
 
-**NHL weekend rankings: Another coaching shocker rocks the East's pillow fight**\
-`Have the Golden Knights started a trend? Another team, this time the Islanders, fired their coach with single-digit games left.`\
-https://nytimes.com/athletic/7174324/2026/04/06/nhl-weekend-rankings-patrick-roy-islanders-bruins/
+**Who are the best Group of 6 transfers heading to the Power 4 ranks?**\
+`During the winter (and only) portal window, 114 Group of 6 players who earned all-conference honors transferred to Power 4 schools.`\
+https://nytimes.com/athletic/7169249/2026/04/06/college-football-transfer-portal-group-6-power-4/
 
