@@ -1,3 +1,7 @@
+**Oil Rises Slightly After Trump’s Latest Threats on Iran**\
+`President Trump taunted Iranian leaders on Sunday, threatening to escalate attacks if the Strait of Hormuz was not reopened.`\
+https://nytimes.com/2026/04/06/business/oil-stocks-gas-prices-iran.html
+
 **Connections: Sports Edition Coach: Hints and answers for April 6, 2026**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/7175105/2026/04/06/connections-sports-edition-hints-answers-april-6-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7174013/2026/04/06/arsenal-fa-cup-exit-leeds-bernar
 **Prescott, Messi, Ohtani and more: How the world's biggest sports stars get paid**\
 `From deferring salaries to taking ownership equity, we explore all the different ways the biggest names in sport get paid`\
 https://nytimes.com/athletic/7151569/2026/04/06/ohtani-messi-prescott-sport-salaries-pay-contracts/
-
-**Champions League quarter-finals predictions, star players and youngsters to watch**\
-`And then there were eight. Our writers explain everything you need to know about the business end of the Champions League`\
-https://nytimes.com/athletic/7169577/2026/04/06/champions-league-quarter-finals-predictions/
 
