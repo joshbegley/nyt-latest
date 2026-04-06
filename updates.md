@@ -1,3 +1,7 @@
+**Mapping the scale of the conflict.**\
+`By Martín González Gómez`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/mapping-the-scale-of-the-conflict
+
 **Savannah Guthrie Returns to the ‘Today’ Show**\
 `Savannah Guthrie rejoined the “Today” show on Monday, more than two months after her mother’s disappearance in February. Nancy Guthrie, 84, remains missing.`\
 https://nytimes.com/video/us/100000010824713/savannah-guthrie-today-show.html
