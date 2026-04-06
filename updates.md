@@ -1,3 +1,7 @@
+**Firing Bulls' front office was easy decision. Can Reinsdorfs find a way out of malaise?**\
+`In the 11 seasons since parting with Tom Thibodeau, the team has had three head coaches and is 378-493, with just two playoff appearances.`\
+https://nytimes.com/athletic/7176874/2026/04/06/bulls-fire-front-office-arturas-karnisovas-marc-eversley/
+
 **New Jersey Devils part ways with general manager Tom Fitzgerald**\
 `Fitzgerald had been part of the Devils front office since 2015 at varying levels, and GM since 2020.`\
 https://nytimes.com/athletic/7176974/2026/04/06/nj-devils-gm-tom-fitzgerald-fired-news/

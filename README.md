@@ -1,3 +1,11 @@
+**Hegseth Likens Easter Rescue of U.S. Airman to Resurrection of Jesus Christ**\
+`President Trump also asserted that God supports the American war against Iran “because God is good, and God wants to see people taken care of.”`\
+https://nytimes.com/2026/04/06/us/politics/hegseth-religious-tone.html
+
+**Trump Threatens Jail if Journalists Protect Certain Iran Sources**\
+`The president indicated he would ask an unnamed media outlet to reveal the sources behind its coverage of Iran’s successful strike on a U.S. fighter jet, and of its crew.`\
+https://nytimes.com/2026/04/06/business/media/trump-jail-journalists-fighter-crew.html
+
 **Firing Bulls' front office was easy decision. Can Reinsdorfs find a way out of malaise?**\
 `In the 11 seasons since parting with Tom Thibodeau, the team has had three head coaches and is 378-493, with just two playoff appearances.`\
 https://nytimes.com/athletic/7176874/2026/04/06/bulls-fire-front-office-arturas-karnisovas-marc-eversley/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7176792/2026/04/06/masters-latest-morikawa-scheffle
 **Dallas Stars ban fan after group made apparent Nazi salute at game**\
 `The incident took place during a game against the Toronto Maple Leafs on Dec. 21.`\
 https://nytimes.com/athletic/7176600/2026/04/06/dallas-stars-ban-fan-gesture/
-
-**Trump Says Iran Cease-Fire Proposal Is ‘Not Good Enough’ as Deadline Approaches**\
-`President Trump has threatened to launch a massive attack targeting bridges, power plants and other civilian facilities by Tuesday evening.`\
-https://nytimes.com/2026/04/06/us/politics/trump-iran-cease-fire-proposal.html
-
-**As the astronauts lose contact with Earth, NASA isn’t worried.**\
-`By Katrina Miller`\
-https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/as-the-astronauts-lose-contact-with-earth-nasa-isnt-worried
 
