@@ -1,3 +1,7 @@
+**Texas Congressman Accused of Pursuing a Second Subordinate With Lewd Texts**\
+`A news report linked Representative Tony Gonzales of Texas, who has admitted to an affair with an aide, to another series of sexual texts with a different aide, raising a dilemma for the House G.O.P.`\
+https://nytimes.com/2026/04/06/us/politics/tony-gonzales-sexual-texts-republicans.html
+
 **Mystics part ways with GM Jamila Wideman after 1 season: Source**\
 `Head coach Sydney Johnson will assume control of basketball operations.`\
 https://nytimes.com/athletic/7176723/2026/04/06/jamila-wideman-mystics-gm-part-ways-sydney-johnson/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/06/science/moon-crater-carroll-reid-wiseman.html
 **Making sense of the Giants' disastrous start to the 2026 season**\
 `The Giants have been bad so far, but when you look at the individual reasons why they have been bad, it doesn't yet give a full picture. `\
 https://nytimes.com/athletic/7176585/2026/04/06/sf-giants-poor-start-reasons/
-
-**Full Time: World Cup prep continues vs. Japan**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/7176680/2026/04/06/emma-hayes-uswnt-japan-world-cup-full-time/
 
