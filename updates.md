@@ -1,3 +1,7 @@
+**Martone's overtime winner, gorgeous assist catapult Flyers into playoff position**\
+`The Flyers bypassed a wild-card spot entirely to jump to third in the Metro after the overtime win.`\
+https://nytimes.com/athletic/7174607/2026/04/05/porter-martone-flyers-overtime-goal-dvorak-bruins/
+
 **Jaylen Brown sees 'night and day' difference in Neemias Queta's growth**\
 `The Most Improved Player award will be announced April 30th.`\
 https://nytimes.com/athletic/7174470/2026/04/05/jaylen-brown-neemias-queta-most-improved-candidate-celtics/
