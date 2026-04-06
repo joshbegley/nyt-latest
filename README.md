@@ -1,3 +1,19 @@
+**Savannah Guthrie Returns to the ‘Today’ Show**\
+`Savannah Guthrie rejoined the “Today” show morning newscast more than two months after her mother’s disappearance in February. Her 84-year-old mother, Nancy Guthrie, remains missing.`\
+https://nytimes.com/video/us/100000010824713/savannah-guthrie-today-show.html
+
+**‘Stop This Madness’: Time to Rein In Trump’s Reckless Conduct**\
+`Readers react to President Trump’s increasingly bellicose rhetoric. Also: Two moon missions, 58 years apart.`\
+https://nytimes.com/2026/04/06/opinion/trump-iran.html
+
+**BNY and Robinhood Will Help Run ‘Trump Accounts’ for Children**\
+`The new tax-sheltered savings and investment accounts will start accepting deposits this summer.`\
+https://nytimes.com/2026/04/06/business/trump-accounts-bny-robinhood.html
+
+**How to watch Kraken vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Seattle Kraken play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7176267/2026/04/06/kraken-vs-jets-stream-how-to-watch-april-6/
+
 **How to watch Orioles vs. White Sox: Time, TV, streaming for April 6**\
 `Find out how to watch the Baltimore Orioles play the Chicago White Sox, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7176262/2026/04/06/orioles-vs-white-sox-stream-how-to-watch-april-6/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7176164/2026/04/06/giants-dexter-lawrence-trade-req
 **Do You Have Questions About a No-Bid Federal Contract? Tell Us Here.**\
 `The government is supposed to let many vendors compete for contracts, to get the best deal for taxpayers. We are looking at cases where it did not.`\
 https://nytimes.com/2026/04/06/us/politics/no-bid-federal-contract.html
-
-**How to watch Trail Blazers vs. Nuggets: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Denver Nuggets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7176207/2026/04/06/trail-blazers-vs-nuggets-stream-how-to-watch-april-6/
-
-**NBA Power Rankings: Nuggets are contenders, and were our first-week predictions correct?**\
-`What did we get right (and wrong) about our early-season forecast?`\
-https://nytimes.com/athletic/7175823/2026/04/06/nba-power-rankings-nuggets-knicks-celtics-lakers/
-
-**This is the Artemis II moon menu.**\
-`By Ashley Ahn`\
-https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/this-is-the-artemis-ii-moon-menu
-
-**Send Jon Machota your Cowboys questions for his upcoming mailbag**\
-`<p>NFL league meetings were last week in Arizona.`\
-https://nytimes.com/athletic/7172044/2026/04/06/send-us-your-dallas-cowboys-mailbag-questions/
 
