@@ -1,3 +1,7 @@
+**How to watch Trail Blazers vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the Portland Trail Blazers play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7176207/2026/04/06/trail-blazers-vs-nuggets-stream-how-to-watch-april-6/
+
 **NBA Power Rankings: Nuggets are contenders, and were our first-week predictions correct?**\
 `What did we get right (and wrong) about our early-season forecast?`\
 https://nytimes.com/athletic/7175823/2026/04/06/nba-power-rankings-nuggets-knicks-celtics-lakers/
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/7175991/2026/04/06/unc-coaching-search-latest-news-
 `With her mother still missing, the “Today” host’s comeback was a rare TV example of learning to live with not knowing.`\
 https://nytimes.com/2026/04/06/arts/television/savannah-guthrie-today-return.html
 
-**NFL announces 2026 offseason workout dates for all 32 teams**\
+**NFL 2026 offseason workout dates: When all 32 teams will be in action**\
 `The Baltimore Ravens started their voluntary offseason program Monday, while the nine other NFL teams with new coaches will begin Tuesday.`\
 https://nytimes.com/athletic/7175876/2026/04/06/nfl-2026-offseason-workout-dates/
 
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010824770/pope-leo-easter-address-p
 **Here’s the latest.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/heres-the-latest
-
-**‘Instructions on Not Giving Up’**\
-`On a recent episode of the “Book Review” podcast, the former poet laureate Ada Limón made the case for why poetry matters and read two poems, including this one called “Instructions on Not Giving Up.”`\
-https://nytimes.com/video/podcasts/100000010824727/instructions-on-not-giving-up.html
 

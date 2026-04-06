@@ -1,3 +1,15 @@
+**NBA Power Rankings: Nuggets are contenders, and were our first-week predictions correct?**\
+`What did we get right (and wrong) about our early-season forecast?`\
+https://nytimes.com/athletic/7175823/2026/04/06/nba-power-rankings-nuggets-knicks-celtics-lakers/
+
+**This is the Artemis II moon menu.**\
+`By Ashley Ahn`\
+https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/this-is-the-artemis-ii-moon-menu
+
+**Send Jon Machota your Cowboys questions for his upcoming mailbag**\
+`<p>NFL league meetings were last week in Arizona.`\
+https://nytimes.com/athletic/7172044/2026/04/06/send-us-your-dallas-cowboys-mailbag-questions/
+
 **Iranians Condemn Strike on a Top University**\
 `Government officials and anti-government activists alike denounced the attacks on the Sharif University of Technology in Tehran, the latest Iranian center for higher education to be targeted.`\
 https://nytimes.com/2026/04/06/world/middleeast/iranians-condemn-university-strike.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/her
 **‘Instructions on Not Giving Up’**\
 `On a recent episode of the “Book Review” podcast, the former poet laureate Ada Limón made the case for why poetry matters and read two poems, including this one called “Instructions on Not Giving Up.”`\
 https://nytimes.com/video/podcasts/100000010824727/instructions-on-not-giving-up.html
-
-**Andy Weir on the End of 'Project Hail Mary'**\
-`*SPOILER ALERT* We asked Times readers and listeners of the “Book Review” podcast what questions they had for Andy Weir. Many wanted to know why he ended his book “Project Hail Mary” the way he did. Andy explains.`\
-https://nytimes.com/video/podcasts/100000010824812/andy-weir-on-the-end-of-project-hail-mary.html
-
-**Inside Lincoln City: The U.S.-owned club with Landon Donovan as investor and where data and AI are king**\
-`Chaired by former San Diego Padres owner Ron Fowler, Lincoln became 'the Arsenal of League One' – now they're Championship-bound`\
-https://nytimes.com/athletic/7167961/2026/04/06/lincoln-city-padres-donovan-championship-promotion/
-
-**Live Updates: Artemis II Astronauts Prepare to Pass Distance From Earth Record**\
-`The crew of four will become the humans who have traveled farthest from Earth at 1:56 p.m. Eastern time. Later, the astronauts will pass behind the moon.`\
-https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby
 
