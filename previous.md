@@ -1,3 +1,7 @@
+**Connections: Sports Edition Coach: Hints and answers for April 6, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7175105/2026/04/06/connections-sports-edition-hints-answers-april-6-2026/
+
 **The New York Times in Print for Monday, April 6, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/04/06/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7151569/2026/04/06/ohtani-messi-prescott-sport-sala
 **Champions League quarter-finals predictions, star players and youngsters to watch**\
 `And then there were eight. Our writers explain everything you need to know about the business end of the Champions League`\
 https://nytimes.com/athletic/7169577/2026/04/06/champions-league-quarter-finals-predictions/
-
-**Can the Premier League do more to combat violence against women and girls?**\
-`There is no centralised campaign about violence against women and girls in the Premier League. Should this change?`\
-https://nytimes.com/athletic/7143844/2026/04/06/premier-league-violence-women-girls/
 

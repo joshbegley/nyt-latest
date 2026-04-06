@@ -1,3 +1,7 @@
+**Connections: Sports Edition Coach: Hints and answers for April 6, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7175105/2026/04/06/connections-sports-edition-hints-answers-april-6-2026/
+
 **Newcastle have a built-in aversion to losing key players. But can this pain become a gain?**\
 `With supporters wincing at memories of Beardsley, Gascoigne, Carroll and Isak leaving Tyneside, it remains a psychological hurdle to jump`\
 https://nytimes.com/athletic/7169246/2026/04/06/newcastle-sandro-tonali-tino-livramento-transfer-analysis/
