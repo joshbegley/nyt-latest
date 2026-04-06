@@ -1,3 +1,11 @@
+**6 Takeaways From Trump’s News Conference on Iran**\
+`President Trump described the risky mission to rescue an Air Force colonel whose fighter jet had been shot down, but he offered no clear path out of the war.`\
+https://nytimes.com/2026/04/06/us/politics/trump-iran-news-conference.html
+
+**Map: Minor Earthquake Strikes Near San Diego**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/04/06/us/quake-tracker-san-diego.html
+
 **Watch Live: Artemis II Mission**\
 `The four Artemis astronauts will pass behind the far side of the moon, seeing parts of the moon never observed with human eyes.`\
 https://nytimes.com/video/science/space/100000010825842/watch-live-artemis-ii-mission.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/06/books/ronald-spector-dead.html
 **Trump’s Deportation Deals**\
 `The president wants third countries to take migrants who can’t be sent back home. To get that, almost everything is up for negotiation.`\
 https://nytimes.com/2026/04/06/world/us-trump-deportations-iran-deadline-artemis-moon.html
-
-**As Trump Deadline Looms, Iran and U.S. Mix Threats With Hints of Deal**\
-`One potential off-ramp appeared when Iran offered a 10-point counterproposal for ending the war that President Trump called a significant step, if “not good enough.”`\
-https://nytimes.com/2026/04/06/world/middleeast/iran-trump-deadline.html
-
-**Elisabeth Waldo Dies at 107; Fused Indigenous and Western Sounds**\
-`A classically-trained violinist, she incorporated traditional instruments native to Latin America in Western-style scores to create an atmospheric hybrid.`\
-https://nytimes.com/2026/04/06/arts/music/elisabeth-waldo-dead.html
 

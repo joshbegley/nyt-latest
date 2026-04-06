@@ -1,3 +1,11 @@
+**The Artemis II crew breaks a distance record.**\
+`Three Americans and one Canadian traveling on NASA’s Orion spacecraft surpassed a milestone set by the crew of Apollo 13 in 1970.`\
+https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/the-artemis-ii-crew-breaks-a-distance-record
+
+**Angel Reese's departure another example of Chicago Sky's inability to hold onto star players**\
+`Reese follows other stars who left Chicago: Candace Parker, Sylvia Fowles, Elena Delle Donne.`\
+https://nytimes.com/athletic/7176754/2026/04/06/angel-reeses-chicago-sky-trade-stars/
+
 **6 Takeaways From Trump’s News Conference on Iran**\
 `President Trump described the risky mission to rescue an Air Force colonel whose fighter jet had been shot down, but he offered no clear path out of the war.`\
 https://nytimes.com/2026/04/06/us/politics/trump-iran-news-conference.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/06/us/politics/trump-easter-egg-roll-white-house.htm
 **Iran’s 10-Point Proposal Demands an End to Attacks and Sanctions**\
 `As President Trump’s deadline for new attacks loomed, Iran conveyed its conditions through Pakistani intermediaries.`\
 https://nytimes.com/2026/04/06/world/middleeast/iran-10-point-proposal.html
-
-**Ronald H. Spector, Who Traced Social History in Books on War, Dies at 83**\
-`A Vietnam veteran-turned-academic historian, he drew acclaim for portraying conflicts from the perspectives of generals as well as grunts on all sides, both in Vietnam and in World War II.`\
-https://nytimes.com/2026/04/06/books/ronald-spector-dead.html
-
-**Trump’s Deportation Deals**\
-`The president wants third countries to take migrants who can’t be sent back home. To get that, almost everything is up for negotiation.`\
-https://nytimes.com/2026/04/06/world/us-trump-deportations-iran-deadline-artemis-moon.html
 

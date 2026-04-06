@@ -1,3 +1,11 @@
+**6 Takeaways From Trump’s News Conference on Iran**\
+`President Trump described the risky mission to rescue an Air Force colonel whose fighter jet had been shot down, but he offered no clear path out of the war.`\
+https://nytimes.com/2026/04/06/us/politics/trump-iran-news-conference.html
+
+**Map: Minor Earthquake Strikes Near San Diego**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/04/06/us/quake-tracker-san-diego.html
+
 **Watch Live: Artemis II Mission**\
 `The four Artemis astronauts will pass behind the far side of the moon, seeing parts of the moon never observed with human eyes.`\
 https://nytimes.com/video/science/space/100000010825842/watch-live-artemis-ii-mission.html
