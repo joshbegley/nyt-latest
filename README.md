@@ -1,3 +1,15 @@
+**Sharpton Moves Longtime Civil Rights Group to New Home in Harlem**\
+`The Rev. Al Sharpton wants to leave his mark in the face of gentrification, which he says has diluted Harlem’s political power.`\
+https://nytimes.com/2026/04/06/nyregion/al-sharpton-faison-firehouse-harlem.html
+
+**Someone Changed His Party Registration. He Thinks He Knows Why.**\
+`Andrew Hevesi, a lifelong Democrat and New York State assemblyman from Queens, was told his voter registration had been changed without his knowledge. He has a culprit in mind.`\
+https://nytimes.com/2026/04/06/nyregion/hevesi-democrat-sperminator.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/04/06/crosswords/spelling-bee-forum.html
+
 **Oil Rises Slightly After Trump’s Latest Threats on Iran**\
 `President Trump taunted Iranian leaders on Sunday, threatening to escalate attacks if the Strait of Hormuz was not reopened.`\
 https://nytimes.com/2026/04/06/business/oil-stocks-gas-prices-iran.html
@@ -22,19 +34,7 @@ https://nytimes.com/2026/04/06/arts/television/euphoria-march-madness-tv-this-we
 `By beating South Carolina, Close became the first first-time champion since Dawn Staley in 2017.`\
 https://nytimes.com/athletic/7175020/2026/04/06/ucla-cori-close-national-championship/
 
-**Newcastle have a built-in aversion to losing key players. But can this pain become a gain?**\
-`With supporters wincing at memories of Beardsley, Gascoigne, Carroll and Isak leaving Tyneside, it remains a psychological hurdle to jump`\
-https://nytimes.com/athletic/7169246/2026/04/06/newcastle-sandro-tonali-tino-livramento-transfer-analysis/
-
-**Estevao is the spark Chelsea will need in the daunting run-in ahead**\
-`The teenager was excellent in the thrashing of Port Vale, but will tear into far trickier fixtures with gusto over the campaign's run-in `\
-https://nytimes.com/athletic/7172244/2026/04/06/chelsea-estevao-youthful-energy-rosenior/
-
-**The Briefing: Could Arsenal end up empty-handed? Will the FA Cup help or hinder Leeds survival?**\
-`Welcome to The Briefing, where every Monday, The Athletic discusses three of the biggest issues raised by the weekend’s action`\
-https://nytimes.com/athletic/7174013/2026/04/06/arsenal-fa-cup-exit-leeds-bernardo-silva/
-
-**Prescott, Messi, Ohtani and more: How the world's biggest sports stars get paid**\
-`From deferring salaries to taking ownership equity, we explore all the different ways the biggest names in sport get paid`\
-https://nytimes.com/athletic/7151569/2026/04/06/ohtani-messi-prescott-sport-salaries-pay-contracts/
+**West Ham's FA Cup heartbreak will hurt but their fighting spirit bodes well for relegation battle**\
+`Despite losing their quarter-final on penalties to Leeds, there were positives to take from how they forced extra time`\
+https://nytimes.com/athletic/7173717/2026/04/06/west-ham-fa-cup-defeat-leeds/
 
