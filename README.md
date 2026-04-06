@@ -1,3 +1,7 @@
+**Inside one tennis tournament's move toward equal prize money: 'To break even is not our goal'**\
+`The 500-level women's tournament is the first to offer prize money commensurate with men's events of the same level.`\
+https://nytimes.com/athletic/7171631/2026/04/06/tennis-equal-prize-money-finances-wta-atp/
+
 **These Whales Live, and Sing, Near New York Harbor in Spring**\
 `Scientists who recorded whale songs learned that the New York Bight, at the entrance to the harbor, attracts sei whales. Ships pose a risk to them.`\
 https://nytimes.com/2026/04/06/nyregion/sei-whales-new-york-bight.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/06/business/media/savannah-guthrie-return-today-show
 **Mamdani Moves to Link Affordability Agenda With Racial Equity**\
 `Mayor Zohran Mamdani, who has been taking steps to try to strengthen his ties with Black voters, is issuing two reports that focus on the ways nonwhite New Yorkers are being left behind.`\
 https://nytimes.com/2026/04/06/nyregion/mamdani-moves-to-link-affordability-agenda-with-racial-equity.html
-
-**NASA Families Don’t Go to the Moon, but They’re on the Mission, Too**\
-`For the families of the Artemis II astronauts, the mission “begins at assignment.”`\
-https://nytimes.com/2026/04/06/science/artemis-moon-nasa-families-astronauts.html
 
