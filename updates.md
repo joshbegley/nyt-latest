@@ -1,4 +1,8 @@
 **Inside one tennis tournament's move toward equal prize money: 'To break even is not our goal'**\
+`The WTA Charleston Open is the first 500-level tournament to offer prize money commensurate with men's events of the same level.`\
+https://nytimes.com/athletic/7171631/2026/04/06/tennis-equal-prize-money-finances-wta-atp/
+
+**Inside one tennis tournament's move toward equal prize money: 'To break even is not our goal'**\
 `The 500-level women's tournament is the first to offer prize money commensurate with men's events of the same level.`\
 https://nytimes.com/athletic/7171631/2026/04/06/tennis-equal-prize-money-finances-wta-atp/
 

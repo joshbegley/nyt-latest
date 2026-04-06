@@ -1,3 +1,31 @@
+**As Rays return to Tropicana Field, they look ahead to finding their 'forever home'**\
+`It’s been 18 months, almost to the day, since Hurricane Milton ripped the roof off Tropicana Field.`\
+https://nytimes.com/athletic/7174311/2026/04/06/tampa-bay-rays-mlb-tropicana-field-new-stadium/
+
+**Early MLB observations see rookies primed for quick success, Yankees' rotation is legit**\
+`Teams are making the smart move signing young players to long-term extensions, the Brewers are separating themselves from the pack and more.`\
+https://nytimes.com/athletic/7172223/2026/04/06/mlb-early-season-observations-konnor-griffin/
+
+**Over half the NFL is expected to have a new backup quarterback. Who slots in where?**\
+`Most NFL teams are returning their starting QBs from 2025, but the backup job is a different story, even with the draft still to come.`\
+https://nytimes.com/athletic/7170550/2026/04/06/nfl-backup-quarterbacks-roster-depth-chart/
+
+**Former NFL punter Chris Kluwe is ready to turn his activism into a political career**\
+`Chris Kluwe never imagined a life in politics, but after years of speaking out, he's now running for a California Assembly seat.`\
+https://nytimes.com/athletic/7149196/2026/04/06/chris-kluwe-nfl-punter-vikings-california-assembly/
+
+**Michigan vs. UConn predictions: Wolverines a clear favorite in men's final**\
+`After beating tournament favorite Arizona on Saturday, the Wolverines are now the consensus pick to cut down the nets.`\
+https://nytimes.com/athletic/7174298/2026/04/06/michigan-uconn-predictions-march-madness-championship/
+
+**The New York Times International Edition in Print for Tuesday, April 7, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/04/06/todays-new-york-times-international-edition
+
+**Inside Real Madrid: How big a blow was defeat at Mallorca, with Bayern Munich up next?**\
+`With Barcelona now seven points clear in La Liga, the Champions League takes on extra significance for Real Madrid`\
+https://nytimes.com/athletic/7175250/2026/04/06/real-madrid-champions-league-mallorca-barcelona-la-liga/
+
 **Inside one tennis tournament's move toward equal prize money: 'To break even is not our goal'**\
 `The WTA Charleston Open is the first 500-level tournament to offer prize money commensurate with men's events of the same level.`\
 https://nytimes.com/athletic/7171631/2026/04/06/tennis-equal-prize-money-finances-wta-atp/
@@ -9,32 +37,4 @@ https://nytimes.com/2026/04/06/nyregion/sei-whales-new-york-bight.html
 **In Race to Replace Marjorie Taylor Greene, a Test for Voters on Iran War**\
 `Tuesday’s special House election runoff in a conservative stretch of Georgia is one of the first to showcase disagreements over the conflict, including within the G.O.P.`\
 https://nytimes.com/2026/04/06/us/politics/georgia-election-iran-marjorie-taylor-greene-house.html
-
-**The Islands That Give Iran Sway Over Hormuz**\
-`A U.S. invasion of islands in the world’s most vital oil corridor would come with extraordinary risks.`\
-https://nytimes.com/interactive/2026/04/06/world/middleeast/iran-islands-strait-of-hormuz-control.html
-
-**Make Way for ‘A Twink and a Redhead’**\
-`Grant Gibbs and Ashley Gill have gained quite an online following with their outlandish comedy. Now they’re taking it on the road.`\
-https://nytimes.com/2026/04/06/style/twink-redhead-grant-ash.html
-
-**Don’t Blame College Students for Feeling Adrift. I’m Right There With Them.**\
-`We’re supposed to give students a map. I don’t even know the terrain.`\
-https://nytimes.com/2026/04/06/opinion/college-uncertainty.html
-
-**What Should I Wear to a College Graduation?**\
-`It can be tricky to look nice without stealing the spotlight. Our critic has some tips on dressing as smart as the graduate.`\
-https://nytimes.com/2026/04/06/fashion/graduation-college-outfits.html
-
-**Is There Anything Left to Learn About the Manosphere?**\
-`In a new Netflix documentary, the filmmaker Louis Theroux exposes the motivations of men who populate a dark online ecosystem.`\
-https://nytimes.com/2026/04/06/style/louis-theroux-inside-the-manosphere-netflix.html
-
-**Savannah Guthrie to Return to ‘Today’**\
-`The anchor is set to join the show’s cast on Monday for the first time since the disappearance of her 84-year-old mother, Nancy, who remains missing.`\
-https://nytimes.com/2026/04/06/business/media/savannah-guthrie-return-today-show.html
-
-**Mamdani Moves to Link Affordability Agenda With Racial Equity**\
-`Mayor Zohran Mamdani, who has been taking steps to try to strengthen his ties with Black voters, is issuing two reports that focus on the ways nonwhite New Yorkers are being left behind.`\
-https://nytimes.com/2026/04/06/nyregion/mamdani-moves-to-link-affordability-agenda-with-racial-equity.html
 
