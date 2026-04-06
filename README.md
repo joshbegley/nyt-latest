@@ -1,3 +1,7 @@
+**Pope Leo Calls for Peace and Condemns Violence on Easter**\
+`During his first Easter address, Pope Leo XIV called for peace and condemned violence. The pope has been increasingly outspoken since the war in Iran began.`\
+https://nytimes.com/video/world/europe/100000010824770/pope-leo-easter-address-peace-iran.html
+
 **Here’s the latest.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7171638/2026/04/06/wild-viking-gustafsson-nyberg-si
 **Trump’s Board of Peace Gives Hamas Disarmament Deadline**\
 `The demand reflects both the U.S. administration’s eagerness to secure a lasting cease-fire in Gaza and its growing impatience with the Palestinian militant group.`\
 https://nytimes.com/2026/04/06/world/middleeast/trumps-board-of-peace-gives-hamas-disarmament-deadline.html
-
-**The Windup: Unbelievable outfielder achievement**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/7175877/2026/04/06/jo-adell-outfield-defense-angels-the-windup/
 
