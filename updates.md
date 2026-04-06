@@ -1,3 +1,7 @@
+**Michigan vs. UConn national championship guide: Tipoff time, title history, injury updates**\
+`No. 1 Michigan vs. No. 2 UConn. Here's what to expect as the March Madness theme builds into "One Shining Moment."`\
+https://nytimes.com/athletic/7174144/2026/04/06/michigan-uconn-ncaa-championship-basketball-tv-2026/
+
 **Iran War Live Updates: Israel and Iran Trade Attacks After Trump’s New Hormuz Ultimatum**\
 `The fighting on Monday morning followed President Trump’s threat to bomb power plants and bridges on Tuesday if Iran did not open the Strait of Hormuz.`\
 https://nytimes.com/live/2026/04/06/world/iran-war-trump-israel
