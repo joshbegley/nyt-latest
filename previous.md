@@ -1,40 +1,40 @@
-**The New Laettner, Golf’s Soul and Athletes Stuck in the Wrong Era**\
-`Has the greatest moment in N.C.A.A. history officially been dethroned?`\
-https://nytimes.com/2026/04/06/podcasts/laettner-golfs-soul-and-athletes-stuck-in-the-wrong-era.html
+**Back-to-back first hat tricks, 2 dominant wins: Inside a memorable Rangers weekend**\
+`Will Cuylle's hat trick on Sunday marked the first time in Rangers history that the team has had hat tricks on back-to-back-days.`\
+https://nytimes.com/athletic/7174965/2026/04/06/rangers-perreault-cuylle-hat-tricks-quick-red-wings-capitals/
 
-**As Rays return to Tropicana Field, they look ahead to finding their 'forever home'**\
-`It’s been 18 months, almost to the day, since Hurricane Milton ripped the roof off Tropicana Field.`\
-https://nytimes.com/athletic/7174311/2026/04/06/tampa-bay-rays-mlb-tropicana-field-new-stadium/
+**NHL weekend rankings: Another coaching shocker rocks the East's pillow fight**\
+`Have the Golden Knights started a trend? Another team, this time the Islanders, fired their coach with single-digit games left.`\
+https://nytimes.com/athletic/7174324/2026/04/06/nhl-weekend-rankings-patrick-roy-islanders-bruins/
 
-**Early MLB observations see rookies primed for quick success, Yankees' rotation is legit**\
-`Teams are making the smart move signing young players to long-term extensions, the Brewers are separating themselves from the pack and more.`\
-https://nytimes.com/athletic/7172223/2026/04/06/mlb-early-season-observations-konnor-griffin/
+**What the NFL is talking about: Kyler Murray, 3-year deals and a smart Raiders plan**\
+`The NFL's officiating unrest, the Puka Nacua situation and Minnesota's open GM job are also generating interest around the league.`\
+https://nytimes.com/athletic/7174220/2026/04/06/nfl-news-updates-kyler-murray-vikings-fernando-mendoza-raiders/
 
-**Over half the NFL is expected to have a new backup quarterback. Who slots in where?**\
-`Most NFL teams are returning their starting QBs from 2025, but the backup job is a different story, even with the draft still to come.`\
-https://nytimes.com/athletic/7170550/2026/04/06/nfl-backup-quarterbacks-roster-depth-chart/
+**How Ryan Strome sold the Ducks as a destination team by helping it become one**\
+`Strome came to Anaheim at what some would have seen as the worst time. He left with the Ducks on the verge of being playoff mainstays again.`\
+https://nytimes.com/athletic/7174150/2026/04/06/ryan-strome-anaheim-ducks-teammate-rebuild-flames/
 
-**Former NFL punter Chris Kluwe is ready to turn his activism into a political career**\
-`Chris Kluwe never imagined a life in politics, but after years of speaking out, he's now running for a California Assembly seat.`\
-https://nytimes.com/athletic/7149196/2026/04/06/chris-kluwe-nfl-punter-vikings-california-assembly/
+**Dan Hurley put Tarris Reed Jr. through a grueling reinvention. Mission accomplished**\
+`Reed hasn’t always been this dominant, but he'll have an opportunity to prove just how far he’s come as the Huskies play for another title.`\
+https://nytimes.com/athletic/7174320/2026/04/06/tarris-reed-uconn-michigan-dan-hurley/
 
-**Michigan vs. UConn predictions: Wolverines a clear favorite in men's final**\
-`After beating tournament favorite Arizona on Saturday, the Wolverines are now the consensus pick to cut down the nets.`\
-https://nytimes.com/athletic/7174298/2026/04/06/michigan-uconn-predictions-march-madness-championship/
+**Vikings NFL Draft big board: 40 prospects to watch with the team's 9 picks**\
+`The Vikings have plenty of positional needs, so they should be able to take a "best available" approach when it comes to the NFL Draft.`\
+https://nytimes.com/athletic/7174006/2026/04/06/vikings-nfl-draft-big-board-caleb-downs/
 
-**The New York Times International Edition in Print for Tuesday, April 7, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/04/06/todays-new-york-times-international-edition
+**What would it cost for the Nationals to join MLB’s extension frenzy with Daylen Lile?**\
+`According to a source, the Nationals have yet to make an extension offer to Lile.`\
+https://nytimes.com/athletic/7174182/2026/04/06/washington-nationals-daylen-lile-extension/
 
-**Inside Real Madrid: How big a blow was defeat at Mallorca, with Bayern Munich up next?**\
-`With Barcelona now seven points clear in La Liga, the Champions League takes on extra significance for Real Madrid`\
-https://nytimes.com/athletic/7175250/2026/04/06/real-madrid-champions-league-mallorca-barcelona-la-liga/
+**Justin Joyner, Luke Murray balance title runs before becoming head coaches**\
+`After Monday's title game, Joyner will take over at Oregon State, while Murray is off to Boston College.`\
+https://nytimes.com/athletic/7174322/2026/04/06/justin-joyner-luke-murray-title-run-head-coach/
 
-**Inside one tennis tournament's move toward equal prize money: 'To break even is not our goal'**\
-`The WTA Charleston Open is the first 500-level tournament to offer prize money commensurate with men's events of the same level.`\
-https://nytimes.com/athletic/7171631/2026/04/06/tennis-equal-prize-money-finances-wta-atp/
+**Nikola Vučević back to building chemistry with Celtics after return**\
+`Vučević should add a different dynamic for the Celtics with his combination of scoring and playmaking.`\
+https://nytimes.com/athletic/7174743/2026/04/06/celtics-nikola-vucevic-return-building-chemistry/
 
-**These Whales Live, and Sing, Near New York Harbor in Spring**\
-`Scientists who recorded whale songs learned that the New York Bight, at the entrance to the harbor, attracts sei whales. Ships pose a risk to them.`\
-https://nytimes.com/2026/04/06/nyregion/sei-whales-new-york-bight.html
+**If the NHL playoffs started today: All 8 current matchups, and who is on the doorstep**\
+`We are 12 days away from the beginning of the Stanley Cup playoffs, and we still have questions about many of these playoff races.`\
+https://nytimes.com/athletic/7170965/2026/04/06/nhl-playoff-matchups-2026-projected/
 
