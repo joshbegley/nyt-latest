@@ -1,3 +1,7 @@
+**Martone's overtime winner, gorgeous assist catapult Flyers into playoff position**\
+`The Flyers bypassed a wild-card spot entirely to jump to third in the Metro after the overtime win.`\
+https://nytimes.com/athletic/7174607/2026/04/05/porter-martone-flyers-overtime-goal-dvorak-bruins/
+
 **Jaylen Brown sees 'night and day' difference in Neemias Queta's growth**\
 `The Most Improved Player award will be announced April 30th.`\
 https://nytimes.com/athletic/7174470/2026/04/05/jaylen-brown-neemias-queta-most-improved-candidate-celtics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7174389/2026/04/05/dusty-may-michigan-unc-coaching-
 **U.S. Military Rescues Airman Stranded in Iran**\
 `An Air Force officer whose fighter jet was shot down in Iran was rescued by U.S. Special Operations forces in a risky Saturday night mission that took commandos deep into enemy territory, President Trump said on social media early on Sunday.`\
 https://nytimes.com/video/world/middleeast/100000010823371/military-iran-airman-rescue.html
-
-**Trump’s Lesson From Risky Rescue: Threaten to Go Harder at Iran**\
-`In an expletive-laced social media post, the president said Iran should open the Strait of Hormuz or he would bomb bridges and power plants.`\
-https://nytimes.com/2026/04/05/us/politics/trump-risky-rescue-threats-iran.html
 
