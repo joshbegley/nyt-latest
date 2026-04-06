@@ -1,3 +1,11 @@
+**Watch Live: Artemis II Mission**\
+`The four Artemis astronauts will pass behind the far side of the moon, seeing parts of the moon never observed with human eyes.`\
+https://nytimes.com/video/science/space/100000010825842/watch-live-artemis-ii-mission.html
+
+**Artemis Astronauts Set Record for Farthest Distance Traveled From Earth**\
+`The Artemis II astronauts ventured farther from Earth than anyone else in the history of humanity on Monday, breaking the record set by Apollo 13 in 1970.`\
+https://nytimes.com/video/science/space/100000010825697/artemis-astronauts-record-space-travel.html
+
 **Texas Congressman Accused of Pursuing a Second Subordinate With Lewd Texts**\
 `A news report linked Representative Tony Gonzales of Texas, who has admitted to an affair with an aide, to another series of sexual texts with a different aide, raising a dilemma for the House G.O.P.`\
 https://nytimes.com/2026/04/06/us/politics/tony-gonzales-sexual-texts-republicans.html
