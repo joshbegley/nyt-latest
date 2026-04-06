@@ -1,3 +1,7 @@
+**Student News Quiz for March 31-April 6**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2026/04/06/learning/06StudentNewsQuiz.html
+
 **What we're seeing, hearing at the Masters with Morikawa's back issue, Scheffler's family**\
 `Morikawa, an early Masters favorite, was not able to hit a full shot on Monday.`\
 https://nytimes.com/athletic/7176792/2026/04/06/masters-latest-morikawa-scheffler-2026-seeing-hearing/
