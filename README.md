@@ -1,3 +1,7 @@
+**What is the best pass you have ever seen?**\
+`Inspired by Yamal's show-stopping assist against Atletico Madrid on Saturday, The Athletic's writers pick the best passes they've seen.`\
+https://nytimes.com/athletic/7175123/2026/04/06/yamal-barcelona-atletico-pass-best-ever/
+
 **How to watch Villarreal vs. Girona FC in the U.S.**\
 `Find out how to watch Villarreal play Girona FC, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7175456/2026/04/06/villarreal-vs-girona-fc-stream-how-to-watch-la-liga-april-6/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7174874/2026/04/06/dodgers-series-sweep-nationals-t
 **The road to 1,620: José Ramírez's journey to becoming Guardians' leader in games played**\
 `Terry Turner's record of 1,619 games played for Cleveland has stood since Sept. 1, 1918, more than a century ago.`\
 https://nytimes.com/athletic/7173836/2026/04/06/jose-ramirez-cleveland-guardians-games-played-record-terry-turner/
-
-**This Week in Mets: How the offense turned it around in San Francisco**\
-`It's easy to forget Mark Vientos had an .859 OPS and 10 homers over his final 145 plate appearances of 2025.`\
-https://nytimes.com/athletic/7174835/2026/04/06/mets-offense-mark-vientos-marcus-semien/
 
