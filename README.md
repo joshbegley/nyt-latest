@@ -1,3 +1,7 @@
+**NASA Artemis II Astronauts Race Into Moon’s Embrace After Quiet Easter**\
+`Ahead of a lunar flyby on Monday, the crew celebrated the astronaut Jeremy Hansen’s first spaceflight and got a special message from Charlie Duke, the Apollo 16 moonwalker.`\
+https://nytimes.com/2026/04/05/science/nasa-moon-artemis-day-5.html
+
 **Sidney Crosby comes back to life as the Penguins trample Florida again**\
 `The Penguins captain finally looks like he has his legs back after two injuries this season.`\
 https://nytimes.com/athletic/7174485/2026/04/05/sidney-crosby-penguins-playoffs-rakell-panthers/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/04/05/upshot/ten-minute-challenge-spy.html
 **Twins offense sputters again in 10-inning loss to Tampa Bay: 'Little bit of a funk'**\
 `For the first time since the Twins' 103-loss campaign in 2016, Minnesota has lost each of its first three series to start the season.`\
 https://nytimes.com/athletic/7174338/2026/04/05/twins-rays-offense-slumping-byron-buxton/
-
-**Red Sox reeling after 2-7 start: 'It's unacceptable to the fans'**\
-`Ranger Suarez has exited in the fifth in each of his two starts, showing little resemblance to the strong pitcher he was with the Phillies.`\
-https://nytimes.com/athletic/7174425/2026/04/05/red-sox-unacceptable-start/
 
