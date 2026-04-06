@@ -1,3 +1,7 @@
+**How to watch UConn vs. Michigan men's basketball: Championship Time, TV, streaming**\
+`Find out how to watch the UConn Huskies play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7176323/2026/04/06/uconn-vs-michigan-stream-how-to-watch-april-6/
+
 **Blue Jackets Monday Gathering: What is —and isn't — behind this surprising collapse**\
 `Let's dispel a few theories and look at what's really going on as frustrations mount during the playoff race.`\
 https://nytimes.com/athletic/7173450/2026/04/06/blue-jackets-collapse-playoff-race/
