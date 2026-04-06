@@ -1,3 +1,7 @@
+**How to watch Braves vs. Angels: Time, TV, streaming for April 6**\
+`Find out how to watch the Atlanta Braves play the Los Angeles Angels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7176513/2026/04/06/braves-vs-angels-stream-how-to-watch-april-6/
+
 **How to watch Phillies vs. Giants: Time, TV, streaming for April 6**\
 `Find out how to watch the Philadelphia Phillies play the San Francisco Giants, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7176502/2026/04/06/phillies-vs-giants-stream-how-to-watch-april-6/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7176395/2026/04/06/new-york-mets-juan-soto-injured-
 **Trump Administration to Pull Out of Civil Rights Settlements Backing Trans Students**\
 `The Education Department said there was no precedent for the federal government terminating settlements stemming from civil rights investigations into schools.`\
 https://nytimes.com/2026/04/06/us/politics/transgender-students-civil-rights.html
-
-**Cubs' rotation injuries mounting with Matthew Boyd joining Cade Horton on the IL**\
-`Boyd is dealing with left bicep soreness but it isn't believed to be a serious injury.`\
-https://nytimes.com/athletic/7176370/2026/04/06/chicago-cubs-matthew-boyd-injured-list/
 
