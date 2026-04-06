@@ -1,3 +1,7 @@
+**Lakers' Luka Dončić to visit Europe in effort to expedite hamstring strain treatment**\
+`Could an expedited hamstring rehab help Luka Dončić return in time to help the Lakers' playoff run?`\
+https://nytimes.com/athletic/7174900/2026/04/05/lakers-luka-doncic-to-visit-europe-in-effort-to-expedite-hamstring-strain-treatment/
+
 **‘The Comeback’ Season 3, Episode 3: The Aww-Ick**\
 `This week’s episode suggests that Lisa Kudrow and Michael Patrick King don’t mind mixing in a little sentiment with their satire.`\
 https://nytimes.com/2026/04/05/arts/television/the-comeback-season-3-episode-3-recap.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/05/world/middleeast/iran-israel-us-war-middle-east.h
 **Martone's overtime winner, gorgeous assist catapult Flyers into playoff position**\
 `The Flyers bypassed a wild-card spot entirely to jump to third in the Metro after the overtime win.`\
 https://nytimes.com/athletic/7174607/2026/04/05/porter-martone-flyers-overtime-goal-dvorak-bruins/
-
-**Jaylen Brown sees 'night and day' difference in Neemias Queta's growth**\
-`The Most Improved Player award will be announced April 30th.`\
-https://nytimes.com/athletic/7174470/2026/04/05/jaylen-brown-neemias-queta-most-improved-candidate-celtics/
 
