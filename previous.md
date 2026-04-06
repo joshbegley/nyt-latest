@@ -1,3 +1,7 @@
+**‘This is the time to show up’: Geekie's scoring slump stays stubbornly intact**\
+`The Bruins continued to struggle for offense in an overtime loss to the Flyers, in which Morgan Geekie's goal drought hit a month.`\
+https://nytimes.com/athletic/7174549/2026/04/05/bruins-morgan-geekie-scoring-top-line-flyers/
+
 **10-Minute Challenge: ‘I Spy’**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2026/04/05/upshot/ten-minute-challenge-spy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/05/us/politics/trump-risky-rescue-threats-iran.html
 **Period to Live Through**\
 `Log on for a new puzzle from John Ewbank.`\
 https://nytimes.com/2026/04/05/crosswords/daily-puzzle-2026-04-06.html
-
-**UCLA clobbers South Carolina for first NCAA national championship**\
-`The Bruins dominated in Phoenix as Dawn Staley's Gamecocks lost the NCAA championship game for the second year in a row.`\
-https://nytimes.com/athletic/7174273/2026/04/05/ucla-womens-march-madness-national-champions-2026/
 

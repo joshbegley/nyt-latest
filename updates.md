@@ -1,3 +1,7 @@
+**‘This is the time to show up’: Geekie's scoring slump stays stubbornly intact**\
+`The Bruins continued to struggle for offense in an overtime loss to the Flyers, in which Morgan Geekie's goal drought hit a month.`\
+https://nytimes.com/athletic/7174549/2026/04/05/bruins-morgan-geekie-scoring-top-line-flyers/
+
 **10-Minute Challenge: ‘I Spy’**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2026/04/05/upshot/ten-minute-challenge-spy.html
