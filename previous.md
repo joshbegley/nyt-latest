@@ -1,3 +1,11 @@
+**Iranians Condemn Strike on a Top University**\
+`Government officials and anti-government activists alike denounced the attacks on the Sharif University of Technology in Tehran, the latest Iranian center for higher education to be targeted.`\
+https://nytimes.com/2026/04/06/world/middleeast/iranians-condemn-university-strike.html
+
+**What I'm hearing about UNC's coaching search: Billy Donovan next up with Dusty May out**\
+`If not Donovan, UNC could turn to Vanderbilt's Mark Byington, Baylor's Scott Drew or ex-Nuggets coach Michael Malone.`\
+https://nytimes.com/athletic/7175991/2026/04/06/unc-coaching-search-latest-news-billy-donovan/
+
 **As Savannah Guthrie Returns, No News Can Be the Hardest News**\
 `With her mother still missing, the “Today” host’s comeback was a rare TV example of learning to live with not knowing.`\
 https://nytimes.com/2026/04/06/arts/television/savannah-guthrie-today-return.html
@@ -23,18 +31,10 @@ https://nytimes.com/video/podcasts/100000010824727/instructions-on-not-giving-up
 https://nytimes.com/video/podcasts/100000010824812/andy-weir-on-the-end-of-project-hail-mary.html
 
 **Inside Lincoln City: The U.S.-owned club with Landon Donovan as investor and where data and AI are king**\
-`Chaired by former San Diego Padres owner Ron Fowler, Lincoln became 'the Arsenal of League One' - now they're Championship-bound`\
+`Chaired by former San Diego Padres owner Ron Fowler, Lincoln became 'the Arsenal of League One' – now they're Championship-bound`\
 https://nytimes.com/athletic/7167961/2026/04/06/lincoln-city-padres-donovan-championship-promotion/
 
 **Live Updates: Artemis II Astronauts Prepare to Pass Distance From Earth Record**\
 `The crew of four will become the humans who have traveled farthest from Earth at 1:56 p.m. Eastern time. Later, the astronauts will pass behind the moon.`\
 https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby
-
-**How to watch Cavaliers vs. Grizzlies: Time, TV, streaming**\
-`Find out how to watch the Cleveland Cavaliers play the Memphis Grizzlies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7176082/2026/04/06/cavaliers-vs-grizzlies-stream-how-to-watch-april-6/
-
-**How to watch 76ers vs. Spurs: Time, TV, streaming**\
-`Find out how to watch the Philadelphia 76ers play the San Antonio Spurs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7176080/2026/04/06/76ers-vs-spurs-stream-how-to-watch-april-6/
 
