@@ -1,3 +1,7 @@
+**Astronauts Dedicate Moon Crater to Carroll Wiseman, Wife of NASA Commander**\
+`The crew shared an emotional moment with mission control and the family of Reid Wiseman, whose wife, Carroll, died in 2020, on the ground in Houston.`\
+https://nytimes.com/2026/04/06/science/moon-crater-carroll-reid-wiseman.html
+
 **Making sense of the Giants' disastrous start to the 2026 season**\
 `The Giants have been bad so far, but when you look at the individual reasons why they have been bad, it doesn't yet give a full picture.`\
 https://nytimes.com/athletic/7176585/2026/04/06/sf-giants-poor-start-reasons/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/06/world/middleeast/israel-attacks-lebanon-kill-doze
 **Exploring the Far Side of the Moon**\
 `As Artemis II flies around the far side of the moon, our graphics editor Marco Hernandez describes what the astronauts are looking for.`\
 https://nytimes.com/video/science/space/100000010788127/exploring-the-far-side-of-the-moon.html
-
-**Artemis II Crew Names Crater After Mission Commander’s Late Wife**\
-`As the Artemis II mission approached lunar flyby on Monday, the crew shared an emotional moment when they called down to mission control to request that a previously unnamed moon crater be dedicated to Carroll, the late wife of the mission commander, Reid Wiseman.`\
-https://nytimes.com/video/science/space/100000010825583/artemis-carroll-wiseman-crater.html
 
