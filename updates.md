@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Yan Zhuang and Aaron Boxerman`\
+https://nytimes.com/live/2026/04/06/world/iran-war-trump-israel/heres-the-latest
+
+**Iran War Live Updates: Strikes Hit Israel and Iran After Trump’s New Hormuz Ultimatum**\
+`The fighting followed President Trump’s threat to bomb power plants and bridges on Tuesday if Iran did not open the Strait of Hormuz.`\
+https://nytimes.com/live/2026/04/06/world/iran-war-trump-israel
+
 **Sharpton Moves Longtime Civil Rights Group to New Home in Harlem**\
 `The Rev. Al Sharpton wants to leave his mark in the face of gentrification, which he says has diluted Harlem’s political power.`\
 https://nytimes.com/2026/04/06/nyregion/al-sharpton-faison-firehouse-harlem.html

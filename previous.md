@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Yan Zhuang and Aaron Boxerman`\
+https://nytimes.com/live/2026/04/06/world/iran-war-trump-israel/heres-the-latest
+
+**Iran War Live Updates: Strikes Hit Israel and Iran After Trump’s New Hormuz Ultimatum**\
+`The fighting followed President Trump’s threat to bomb power plants and bridges on Tuesday if Iran did not open the Strait of Hormuz.`\
+https://nytimes.com/live/2026/04/06/world/iran-war-trump-israel
+
 **Sharpton Moves Longtime Civil Rights Group to New Home in Harlem**\
 `The Rev. Al Sharpton wants to leave his mark in the face of gentrification, which he says has diluted Harlem’s political power.`\
 https://nytimes.com/2026/04/06/nyregion/al-sharpton-faison-firehouse-harlem.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/06/opinion/iran-war-strait-hormuz.html
 **‘Euphoria,’ Plus 8 Things to Watch on TV This Week**\
 `The HBO show returns after a long hiatus. And the March Madness final airs.`\
 https://nytimes.com/2026/04/06/arts/television/euphoria-march-madness-tv-this-week.html
-
-**Sacrifice and selflessness define coach Cori Close's UCLA  championship run**\
-`By beating South Carolina, Close became the first first-time champion since Dawn Staley in 2017.`\
-https://nytimes.com/athletic/7175020/2026/04/06/ucla-cori-close-national-championship/
-
-**West Ham's FA Cup heartbreak will hurt but their fighting spirit bodes well for relegation battle**\
-`Despite losing their quarter-final on penalties to Leeds, there were positives to take from how they forced extra time`\
-https://nytimes.com/athletic/7173717/2026/04/06/west-ham-fa-cup-defeat-leeds/
 
