@@ -2,7 +2,7 @@
 `With these mostly spring presentations, the designers went deep on their love of flowers and plants.`\
 https://nytimes.com/2026/04/06/t-magazine/garden-flowers-fashion-spring.html
 
-**New Jersey Devils fire general manager Tom Fitzgerald**\
+**New Jersey Devils part ways with general manager Tom Fitzgerald**\
 `Fitzgerald had been part of the Devils front office since 2015 at varying levels, and GM since 2020.`\
 https://nytimes.com/athletic/7176974/2026/04/06/nj-devils-gm-tom-fitzgerald-fired-news/
 
