@@ -1,3 +1,27 @@
+**Texas Congressman Accused of Pursuing a Second Subordinate With Lewd Texts**\
+`A news report linked Representative Tony Gonzales of Texas, who has admitted to an affair with an aide, to another series of sexual texts with a different aide, raising a dilemma for the House G.O.P.`\
+https://nytimes.com/2026/04/06/us/politics/tony-gonzales-sexual-texts-republicans.html
+
+**Mystics part ways with GM Jamila Wideman after 1 season: Source**\
+`Head coach Sydney Johnson will assume control of basketball operations.`\
+https://nytimes.com/athletic/7176723/2026/04/06/jamila-wideman-mystics-gm-part-ways-sydney-johnson/
+
+**Between Easter Eggs and Bunny Hops, Trump Talks of War and Autopens**\
+`The Easter Bunny was out of earshot as President Trump spoke to reporters about the war in Iran and his predecessor’s mental acuity.`\
+https://nytimes.com/2026/04/06/us/politics/trump-easter-egg-roll-white-house.html
+
+**Iran’s 10-Point Proposal Demands an End to Attacks and Sanctions**\
+`As President Trump’s deadline for new attacks loomed, Iran conveyed its conditions through Pakistani intermediaries.`\
+https://nytimes.com/2026/04/06/world/middleeast/iran-10-point-proposal.html
+
+**Ronald H. Spector, Who Traced Social History in Books on War, Dies at 83**\
+`A Vietnam veteran-turned-academic historian, he drew acclaim for portraying conflicts from the perspectives of generals as well as grunts on all sides, both in Vietnam and in World War II.`\
+https://nytimes.com/2026/04/06/books/ronald-spector-dead.html
+
+**Making sense of the Giants' disastrous start to the 2026 season**\
+`The Giants have been bad so far, but when you look at the individual reasons why they have been bad, it doesn't yet give a full picture. `\
+https://nytimes.com/athletic/7176585/2026/04/06/sf-giants-poor-start-reasons/
+
 **Trump’s Deportation Deals**\
 `The president wants third countries to take migrants who can’t be sent back home. To get that, almost everything is up for negotiation.`\
 https://nytimes.com/2026/04/06/world/us-trump-deportations-iran-deadline-artemis-moon.html
