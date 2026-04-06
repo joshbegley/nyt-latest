@@ -1,3 +1,15 @@
+**Cooper Flagg outduels LeBron James, makes another Rookie of the Year statement**\
+`“I mean, he’s obviously special,” James said of Flagg, who has scored 96 points in his last two games.`\
+https://nytimes.com/athletic/7175060/2026/04/06/cooper-flagg-lebron-james-mavericks-rookie/
+
+**Asked and Answered**\
+`Today we take on more reader questions about the news.`\
+https://nytimes.com/2026/04/06/briefing/reader-questions-answered.html
+
+**On Iran, Trump Keeps World Off Balance With Ever-Changing Threats**\
+`Global leaders are struggling in their efforts to find a way to end the American-Israeli war on Iran, and they are spooked about what President Trump might do next.`\
+https://nytimes.com/2026/04/06/world/europe/iran-trump-threats.html
+
 **Can the Predators finish off their improbable playoff run?**\
 `Nashville sold at the trade deadline, signaling the end, but then the Predators made an unlikely push.`\
 https://nytimes.com/athletic/7172722/2026/04/06/nashville-predators-nhl-playoff-standings/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7174965/2026/04/06/rangers-perreault-cuylle-hat-tri
 **NHL weekend rankings: Another coaching shocker rocks the East's pillow fight**\
 `Have the Golden Knights started a trend? Another team, this time the Islanders, fired their coach with single-digit games left.`\
 https://nytimes.com/athletic/7174324/2026/04/06/nhl-weekend-rankings-patrick-roy-islanders-bruins/
-
-**What the NFL is talking about: Kyler Murray, 3-year deals and a smart Raiders plan**\
-`The NFL's officiating unrest, the Puka Nacua situation and Minnesota's open GM job are also generating interest around the league.`\
-https://nytimes.com/athletic/7174220/2026/04/06/nfl-news-updates-kyler-murray-vikings-fernando-mendoza-raiders/
-
-**How Ryan Strome sold the Ducks as a destination team by helping it become one**\
-`Strome came to Anaheim at what some would have seen as the worst time. He left with the Ducks on the verge of being playoff mainstays again.`\
-https://nytimes.com/athletic/7174150/2026/04/06/ryan-strome-anaheim-ducks-teammate-rebuild-flames/
-
-**Dan Hurley put Tarris Reed Jr. through a grueling reinvention. Mission accomplished**\
-`Reed hasn’t always been this dominant, but he'll have an opportunity to prove just how far he’s come as the Huskies play for another title.`\
-https://nytimes.com/athletic/7174320/2026/04/06/tarris-reed-uconn-michigan-dan-hurley/
 

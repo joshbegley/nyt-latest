@@ -1,3 +1,15 @@
+**Cooper Flagg outduels LeBron James, makes another Rookie of the Year statement**\
+`“I mean, he’s obviously special,” James said of Flagg, who has scored 96 points in his last two games.`\
+https://nytimes.com/athletic/7175060/2026/04/06/cooper-flagg-lebron-james-mavericks-rookie/
+
+**Asked and Answered**\
+`Today we take on more reader questions about the news.`\
+https://nytimes.com/2026/04/06/briefing/reader-questions-answered.html
+
+**On Iran, Trump Keeps World Off Balance With Ever-Changing Threats**\
+`Global leaders are struggling in their efforts to find a way to end the American-Israeli war on Iran, and they are spooked about what President Trump might do next.`\
+https://nytimes.com/2026/04/06/world/europe/iran-trump-threats.html
+
 **Can the Predators finish off their improbable playoff run?**\
 `Nashville sold at the trade deadline, signaling the end, but then the Predators made an unlikely push.`\
 https://nytimes.com/athletic/7172722/2026/04/06/nashville-predators-nhl-playoff-standings/
