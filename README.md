@@ -1,3 +1,11 @@
+**Dallas Stars ban fan who made apparent Nazi salute at game**\
+`The incident took place during a game against the Toronto Maple Leafs on Dec. 21.`\
+https://nytimes.com/athletic/7176600/2026/04/06/dallas-stars-ban-fan-gesture/
+
+**Trump Says Iran Cease-Fire Proposal Is ‘Not Good Enough’ as Deadline Approaches**\
+`President Trump has threatened to launch a massive attack targeting bridges, power plants and other civilian facilities by Tuesday evening.`\
+https://nytimes.com/2026/04/06/us/politics/trump-iran-cease-fire-proposal.html
+
 **As the astronauts lose contact with Earth, NASA isn’t worried.**\
 `By Katrina Miller`\
 https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/as-the-astronauts-lose-contact-with-earth-nasa-isnt-worried
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7176754/2026/04/06/angel-reeses-chicago-sky-trade-s
 **6 Takeaways From Trump’s News Conference on Iran**\
 `President Trump described the risky mission to rescue an Air Force colonel whose fighter jet had been shot down, but he offered no clear path out of the war.`\
 https://nytimes.com/2026/04/06/us/politics/trump-iran-news-conference.html
-
-**Map: Minor Earthquake Strikes Near San Diego**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2026/04/06/us/quake-tracker-san-diego.html
-
-**Watch Live: Artemis II Mission**\
-`The four Artemis astronauts will pass behind the far side of the moon, seeing parts of the moon never observed with human eyes.`\
-https://nytimes.com/video/science/space/100000010825842/watch-live-artemis-ii-mission.html
 
