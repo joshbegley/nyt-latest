@@ -1,3 +1,7 @@
+**Sacrifice and selflessness define coach Cori Close's UCLA  championship run**\
+`By beating South Carolina, Close became the first first-time champion since Dawn Staley in 2017.`\
+https://nytimes.com/athletic/7175020/2026/04/06/ucla-cori-close-national-championship/
+
 **Estevao is the spark Chelsea will need in the daunting run-in ahead**\
 `The teenager was excellent in the thrashing of Port Vale, but will tear into far trickier fixtures with gusto over the campaign's run-in `\
 https://nytimes.com/athletic/7172244/2026/04/06/chelsea-estevao-youthful-energy-rosenior/
