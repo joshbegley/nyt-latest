@@ -1,3 +1,11 @@
+**The man who saw everything: Lawrence Bennett’s long drive through Augusta’s history**\
+`“Probably nobody on the planet knows more about Augusta National than me." `\
+https://nytimes.com/athletic/7174158/2026/04/06/augusta-national-masters-history-lawrence-bennett-green-jackets/
+
+**The Blues' playoff chances looked lost. Then they knocked off the NHL's best team**\
+`An improbable win in Colorado has St. Louis just three points back of the West's second wild card with six games to play.`\
+https://nytimes.com/athletic/7175037/2026/04/06/blues-playoff-chances-win-avalanche/
+
 **Curry brothers share the floor as NBA teammates: 'A dream come true'**\
 `Steph and Seth Curry, who have played in the NBA since 2009 and 2014, respectively, finally got to be teammates Sunday night.`\
 https://nytimes.com/athletic/7175368/2026/04/06/steph-curry-seth-curry-teammates-warriors/
