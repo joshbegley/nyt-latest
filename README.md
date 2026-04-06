@@ -1,3 +1,11 @@
+**As Savannah Guthrie Returns, No News Can Be the Hardest News**\
+`With her mother still missing, the “Today” host’s comeback was a rare TV example of learning to live with not knowing.`\
+https://nytimes.com/2026/04/06/arts/television/savannah-guthrie-today-return.html
+
+**NFL announces 2026 offseason workout dates for all 32 teams**\
+`The Baltimore Ravens started their voluntary offseason program Monday, while the nine other NFL teams with new coaches will begin Tuesday.`\
+https://nytimes.com/athletic/7175876/2026/04/06/nfl-2026-offseason-workout-dates/
+
 **Pope Leo Calls for Peace and Condemns Violence on Easter**\
 `During his first Easter address, Pope Leo XIV called for peace and condemned violence. The pope has been increasingly outspoken since the war in Iran began.`\
 https://nytimes.com/video/world/europe/100000010824770/pope-leo-easter-address-peace-iran.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7176082/2026/04/06/cavaliers-vs-grizzlies-stream-ho
 **How to watch 76ers vs. Spurs: Time, TV, streaming**\
 `Find out how to watch the Philadelphia 76ers play the San Antonio Spurs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7176080/2026/04/06/76ers-vs-spurs-stream-how-to-watch-april-6/
-
-**Wild in process of adding a Viking to the State of Hockey?**\
-`Viking Gustafsson Nyberg signed an amateur tryout with the Wild that could lead to an entry-level NHL deal in the coming days.`\
-https://nytimes.com/athletic/7171638/2026/04/06/wild-viking-gustafsson-nyberg-signing/
-
-**Trump’s Board of Peace Gives Hamas Disarmament Deadline**\
-`The demand reflects both the U.S. administration’s eagerness to secure a lasting cease-fire in Gaza and its growing impatience with the Palestinian militant group.`\
-https://nytimes.com/2026/04/06/world/middleeast/trumps-board-of-peace-gives-hamas-disarmament-deadline.html
 
