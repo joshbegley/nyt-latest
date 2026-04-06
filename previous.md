@@ -1,3 +1,7 @@
+**Iconic Fashion Shows That Seemed Plucked From the Garden**\
+`With these mostly spring presentations, the designers went deep on their love of flowers and plants.`\
+https://nytimes.com/2026/04/06/t-magazine/garden-flowers-fashion-spring.html
+
 **New Jersey Devils fire general manager Tom Fitzgerald**\
 `Fitzgerald had been part of the Devils front office since 2015 at varying levels, and GM since 2020.`\
 https://nytimes.com/athletic/7176974/2026/04/06/nj-devils-gm-tom-fitzgerald-fired-news/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/as-
 **Trump Escalates Threats to Devastate Iran**\
 `President Trump renewed threats of attacks on Iran if the country does not agree to a deal to reopen the Strait of Hormuz by his Tuesday night deadline. The warnings came on Monday as the president gave more details on the rescue of a missing American airman shot down over Iran on Friday.`\
 https://nytimes.com/video/us/politics/100000010825584/trump-iran-threats-war-f-15-rescue.html
-
-**How to Follow NASA’s Artemis II Around the Far Side of the Moon**\
-`The astronauts will head into a communications blackout at 6:44 p.m. Eastern time as they become the first people to travel around the moon since 1972.`\
-https://nytimes.com/2026/04/06/science/artemis-ii-moon-watch.html
 
