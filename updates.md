@@ -1,3 +1,15 @@
+**How to watch Braves vs. Angels: Time, TV, streaming for April 6**\
+`Find out how to watch the Atlanta Braves play the Los Angeles Angels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7176513/2026/04/06/braves-vs-angels-stream-how-to-watch-april-6/
+
+**How to watch Phillies vs. Giants: Time, TV, streaming for April 6**\
+`Find out how to watch the Philadelphia Phillies play the San Francisco Giants, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7176502/2026/04/06/phillies-vs-giants-stream-how-to-watch-april-6/
+
+**This is the most important science experiment aboard Artemis II.**\
+`By Katrina Miller`\
+https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/this-is-the-most-important-science-experiment-aboard-artemis-ii
+
 **Arsenal's Gabriel, Rice, Trossard to return vs Sporting - Arteta**\
 `The trio were among 11 Arsenal players that withdrew from their respective international squads over the March break. `\
 https://nytimes.com/athletic/7175270/2026/04/06/arsenal-injury-news-update-gabriel-rice/
