@@ -1,3 +1,15 @@
+**As Savannah Guthrie Returns, No News Can Be the Hardest News**\
+`With her mother still missing, the “Today” host’s comeback was a rare TV example of learning to live with not knowing.`\
+https://nytimes.com/2026/04/06/arts/television/savannah-guthrie-today-return.html
+
+**NFL announces 2026 offseason workout dates for all 32 teams**\
+`The Baltimore Ravens started their voluntary offseason program Monday, while the nine other NFL teams with new coaches will begin Tuesday.`\
+https://nytimes.com/athletic/7175876/2026/04/06/nfl-2026-offseason-workout-dates/
+
+**Pope Leo Calls for Peace and Condemns Violence on Easter**\
+`During his first Easter address, Pope Leo XIV called for peace and condemned violence. The pope has been increasingly outspoken since the war in Iran began.`\
+https://nytimes.com/video/world/europe/100000010824770/pope-leo-easter-address-peace-iran.html
+
 **Here’s the latest.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/heres-the-latest
