@@ -1,3 +1,7 @@
+**Sacrifice and selflessness define coach Cori Close's UCLA  championship run**\
+`By beating South Carolina, Close became the first first-time champion since Dawn Staley in 2017.`\
+https://nytimes.com/athletic/7175020/2026/04/06/ucla-cori-close-national-championship/
+
 **Estevao is the spark Chelsea will need in the daunting run-in ahead**\
 `The teenager was excellent in the thrashing of Port Vale, but will tear into far trickier fixtures with gusto over the campaign's run-in `\
 https://nytimes.com/athletic/7172244/2026/04/06/chelsea-estevao-youthful-energy-rosenior/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7174955/2026/04/06/wnba-free-agency-league-announce
 **Watching a remarkable comeback and shootout defeat with fans stuck outside - because they left early**\
 `Some West Ham fans could not go back into the ground after leaving. The Athletic went to watch their comeback and penalty shootout with them`\
 https://nytimes.com/athletic/7174248/2026/04/06/west-ham-fans-early-leeds-stadium/
-
-**Champions League quarter-finals predictions, star players and youngsters to watch**\
-`And then there were eight. Our writers explain everything you need to know about the business end of the Champions League`\
-https://nytimes.com/athletic/7169577/2026/04/06/champions-league-quarter-finals-predictions/
 
