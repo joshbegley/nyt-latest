@@ -1,3 +1,11 @@
+**NFL Newsletter: Have we found football's Wembanyama?**\
+`Also: League executives weigh in on the AFC, NFC and biggest offseason storylines, plus Dane Brugler joins for a quick draft Q&A.`\
+https://nytimes.com/athletic/7176431/2026/04/06/uar-bernard-nfl-draft-prospect-athletic/
+
+**I’ve Covered Women in the Workplace for 15 Years. Something Alarming Is Happening.**\
+`As women are erased from the narrative, injustices against them go unnoticed.`\
+https://nytimes.com/2026/04/06/opinion/women-workplace-dei-feminism.html
+
 **Suspect in Hacking of Climate Activists Is Extradited to New York**\
 `Prosecutors say Amit Forlit ran a global hacking operation on behalf of a Washington lobbying group that aimed to thwart environmental lawsuits against oil companies.`\
 https://nytimes.com/2026/04/06/climate/forlit-exxon-dci-hacking-extradition.html
