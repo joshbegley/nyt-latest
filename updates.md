@@ -1,3 +1,15 @@
+**Making sense of the Giants' disastrous start to the 2026 season**\
+`The Giants have been bad so far, but when you look at the individual reasons why they have been bad, it doesn't yet give a full picture.`\
+https://nytimes.com/athletic/7176585/2026/04/06/sf-giants-poor-start-reasons/
+
+**Full Time: World Cup prep continues vs. Japan**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/7176680/2026/04/06/emma-hayes-uswnt-japan-world-cup-full-time/
+
+**Hard Fork Full Episode 188**\
+`Last week, two separate juries held social media companies liable for harming young users.`\
+https://nytimes.com/video/podcasts/100000010825223/hard-fork-full-episode-188.html
+
 **Why the Strait of Hormuz Is Iran’s Trump Card**\
 `On “The Opinions,” the columnist David French says that no matter how much havoc Trump wreaks on Iranian targets, as long as they maintain control of the Strait of Hormuz, Iran can keep going.`\
 https://nytimes.com/video/opinion/100000010817937/why-the-strait-of-hormuz-is-irans-trump-card.html
