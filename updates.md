@@ -1,3 +1,7 @@
+**Savannah Guthrie Returns to the ‘Today’ Show**\
+`Savannah Guthrie rejoined the “Today” show on Monday, more than two months after her mother’s disappearance in February. Nancy Guthrie, 84, remains missing.`\
+https://nytimes.com/video/us/100000010824713/savannah-guthrie-today-show.html
+
 **How to watch UConn vs. Michigan men's basketball: Championship Time, TV, streaming**\
 `Find out how to watch the UConn Huskies play the Michigan Wolverines, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7176323/2026/04/06/uconn-vs-michigan-stream-how-to-watch-april-6/
