@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/7174907/2026/04/05/south-carolina-ucla-defense-national-championship/
 
 **Lakers' Luka Dončić visits Europes in effort to expedite hamstring strain treatment**\
-`Could an expedited hamstring rehab help Luka Dončić return in time to help the Lakers' playoff run?`\
+`Could an expedited hamstring rehab help Dončić return in time to help the Lakers' playoff run?`\
 https://nytimes.com/athletic/7174900/2026/04/05/lakers-luka-doncic-to-visit-europe-in-effort-to-expedite-hamstring-strain-treatment/
 
 **‘The Comeback’ Season 3, Episode 3: The Aww-Ick**\
