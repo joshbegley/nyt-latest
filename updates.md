@@ -1,3 +1,19 @@
+**Sharpton Moves Longtime Civil Rights Group to New Home in Harlem**\
+`The Rev. Al Sharpton wants to leave his mark in the face of gentrification, which he says has diluted Harlem’s political power.`\
+https://nytimes.com/2026/04/06/nyregion/al-sharpton-faison-firehouse-harlem.html
+
+**Someone Changed His Party Registration. He Thinks He Knows Why.**\
+`Andrew Hevesi, a lifelong Democrat and New York State assemblyman from Queens, was told his voter registration had been changed without his knowledge. He has a culprit in mind.`\
+https://nytimes.com/2026/04/06/nyregion/hevesi-democrat-sperminator.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/04/06/crosswords/spelling-bee-forum.html
+
+**West Ham's FA Cup heartbreak will hurt but their fighting spirit bodes well for relegation battle**\
+`Despite losing their quarter-final on penalties to Leeds, there were positives to take from how they forced extra time`\
+https://nytimes.com/athletic/7173717/2026/04/06/west-ham-fa-cup-defeat-leeds/
+
 **Oil Rises Slightly After Trump’s Latest Threats on Iran**\
 `President Trump taunted Iranian leaders on Sunday, threatening to escalate attacks if the Strait of Hormuz was not reopened.`\
 https://nytimes.com/2026/04/06/business/oil-stocks-gas-prices-iran.html
