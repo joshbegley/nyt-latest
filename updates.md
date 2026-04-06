@@ -1,3 +1,11 @@
+**Newcastle have a built-in aversion to losing key players. But can this pain become a gain?**\
+`With supporters wincing at memories of Beardsley, Gascoigne, Carroll and Isak leaving Tyneside, it remains a psychological hurdle to jump`\
+https://nytimes.com/athletic/7169246/2026/04/06/newcastle-sandro-tonali-tino-livramento-transfer-analysis/
+
+**Champions League quarter-finals predictions, star players and youngsters to watch**\
+`And then there were eight. Our writers explain everything you need to know about the business end of the Champions League`\
+https://nytimes.com/athletic/7169577/2026/04/06/champions-league-quarter-finals-predictions/
+
 **The New York Times in Print for Monday, April 6, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/04/06/todays-new-york-times
