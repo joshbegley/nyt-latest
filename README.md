@@ -1,3 +1,11 @@
+**USMNT's Agyemang taken off on a stretcher while playing for Derby**\
+`Agyemang, 25, played in both friendlies during the March international window and is in contention for a World Cup roster spot.`\
+https://nytimes.com/athletic/7175873/2026/04/06/patrick-agyemang-usmnt-injury-world-cup/
+
+**How to watch Lightning vs. Sabres: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the Buffalo Sabres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7175959/2026/04/06/lightning-vs-sabres-stream-how-to-watch-april-6/
+
 **The California Lake Billed as the ‘Saudi Arabia of Lithium’**\
 `Residents of Imperial County, Calif., are in dire need of an economic boost. Experts say the answer lies beneath the Salton Sea, where a lithium trove sits.`\
 https://nytimes.com/2026/04/06/us/imperial-valley-salton-sea-lithium.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/06/technology/ai-code-overload.html
 **How to watch Cardinals vs. Nationals: Time, TV, streaming for April 6**\
 `Find out how to watch the St. Louis Cardinals play the Washington Nationals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7175941/2026/04/06/cardinals-vs-nationals-stream-how-to-watch-april-6/
-
-**How to watch Padres vs. Pirates: Time, TV, streaming for April 6**\
-`Find out how to watch the San Diego Padres play the Pittsburgh Pirates, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7175939/2026/04/06/padres-vs-pirates-stream-how-to-watch-april-6/
-
-**How to watch Royals vs. Guardians: Time, TV, streaming for April 6**\
-`Find out how to watch the Kansas City Royals play the Cleveland Guardians, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7175933/2026/04/06/royals-vs-guardians-stream-how-to-watch-april-6/
 
