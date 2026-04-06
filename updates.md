@@ -1,3 +1,15 @@
+**Dallas Stars ban fan who made apparent Nazi salute at game**\
+`The incident took place during a game against the Toronto Maple Leafs on Dec. 21.`\
+https://nytimes.com/athletic/7176600/2026/04/06/dallas-stars-ban-fan-gesture/
+
+**Trump Says Iran Cease-Fire Proposal Is ‘Not Good Enough’ as Deadline Approaches**\
+`President Trump has threatened to launch a massive attack targeting bridges, power plants and other civilian facilities by Tuesday evening.`\
+https://nytimes.com/2026/04/06/us/politics/trump-iran-cease-fire-proposal.html
+
+**As the astronauts lose contact with Earth, NASA isn’t worried.**\
+`By Katrina Miller`\
+https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/as-the-astronauts-lose-contact-with-earth-nasa-isnt-worried
+
 **Trump Escalates Threats to Devastate Iran**\
 `President Trump renewed threats of attacks on Iran if the country does not agree to a deal to reopen the Strait of Hormuz by his Tuesday night deadline. The warnings came on Monday as the president gave more details on the rescue of a missing American airman shot down over Iran on Friday.`\
 https://nytimes.com/video/us/politics/100000010825584/trump-iran-threats-war-f-15-rescue.html
