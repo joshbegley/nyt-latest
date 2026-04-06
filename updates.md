@@ -1,3 +1,7 @@
+**Quote of the Day: First to Be Disrupted By A.I.? Its Creators.**\
+`Quotation of the Day for Monday, April 6, 2026.`\
+https://nytimes.com/2026/04/05/pageoneplus/quote-of-the-day-first-to-be-disrupted-by-ai-its-creators.html
+
 **Lakers' Luka Dončić visits Europes in effort to expedite hamstring strain treatment**\
 `Could an expedited hamstring rehab help Dončić return in time to help the Lakers' playoff run?`\
 https://nytimes.com/athletic/7174900/2026/04/05/lakers-luka-doncic-to-visit-europe-in-effort-to-expedite-hamstring-strain-treatment/

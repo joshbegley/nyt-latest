@@ -1,3 +1,7 @@
+**Quote of the Day: First to Be Disrupted By A.I.? Its Creators.**\
+`Quotation of the Day for Monday, April 6, 2026.`\
+https://nytimes.com/2026/04/05/pageoneplus/quote-of-the-day-first-to-be-disrupted-by-ai-its-creators.html
+
 **What went wrong for South Carolina? The main thing: UCLA's dominating defense**\
 `South Carolina says the loss needs to be a motivator to get back to next season's title game. `\
 https://nytimes.com/athletic/7174907/2026/04/05/south-carolina-ucla-defense-national-championship/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7174739/2026/04/05/ucla-national-championship-senio
 **Steph Curry returns to Warriors on minutes restriction as team eyes postseason push**\
 `The Warriors will be understandably cautious given how much time Curry has missed and the fact there is only one week left in the season.`\
 https://nytimes.com/athletic/7174669/2026/04/05/steph-curry-returns-warriors-rockets-nba/
-
-**Here’s What Happened in the War in the Middle East on Sunday**\
-`President Trump taunted Iran on social media, while strikes continued in Iran, Israel, Lebanon and some Gulf states.`\
-https://nytimes.com/2026/04/05/world/middleeast/iran-israel-us-war-middle-east.html
 
