@@ -1,3 +1,7 @@
+**How to watch Villarreal vs. Girona FC in the U.S.**\
+`Find out how to watch Villarreal play Girona FC, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7175456/2026/04/06/villarreal-vs-girona-fc-stream-how-to-watch-la-liga-april-6/
+
 **Inside Barcelona: Why was Lamine Yamal angry after victory over Atletico Madrid?**\
 `The 18-year-old forward left the pitch visibly annoyed after Saturday's 2-1 victory at the Estadio Metropolitano`\
 https://nytimes.com/athletic/7175344/2026/04/06/barcelona-lamine-yamal-atletico-la-liga-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7173836/2026/04/06/jose-ramirez-cleveland-guardians
 **This Week in Mets: How the offense turned it around in San Francisco**\
 `It's easy to forget Mark Vientos had an .859 OPS and 10 homers over his final 145 plate appearances of 2025.`\
 https://nytimes.com/athletic/7174835/2026/04/06/mets-offense-mark-vientos-marcus-semien/
-
-**Who are the best Group of 6 transfers heading to the Power 4 ranks?**\
-`During the winter (and only) portal window, 114 Group of 6 players who earned all-conference honors transferred to Power 4 schools.`\
-https://nytimes.com/athletic/7169249/2026/04/06/college-football-transfer-portal-group-6-power-4/
 
