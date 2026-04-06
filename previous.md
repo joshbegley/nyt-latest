@@ -1,3 +1,7 @@
+**The theme of this women's Final Four: the work of losing, reward of winning**\
+`After last season's Final Four loss, UCLA has dedicated itself to learning from mistakes and finding redemption. `\
+https://nytimes.com/athletic/7174724/2026/04/05/ucla-championship-south-carolina-lessons/
+
 **Donovan Mitchell drops two defenders with one ankle breaker in Cavaliers' win**\
 `Mitchell dropped jaws and two Pacers defenders before scoring via floater as Indiana's Micah Potter and Kobe Brown watched from the ground.`\
 https://nytimes.com/athletic/7174708/2026/04/05/donovan-mitchell-stats-performance-cavaliers-pacers-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7174470/2026/04/05/jaylen-brown-neemias-queta-most-
 **‘This is the time to show up’: Geekie's scoring slump stays stubbornly intact**\
 `The Bruins continued to struggle for offense in an overtime loss to the Flyers, in which Morgan Geekie's goal drought hit a month.`\
 https://nytimes.com/athletic/7174549/2026/04/05/bruins-morgan-geekie-scoring-top-line-flyers/
-
-**10-Minute Challenge: ‘I Spy’**\
-`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
-https://nytimes.com/interactive/2026/04/05/upshot/ten-minute-challenge-spy.html
 
