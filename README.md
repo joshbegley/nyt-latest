@@ -1,40 +1,40 @@
-**How to watch Knicks vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the New York Knicks play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7175916/2026/04/06/knicks-vs-hawks-stream-how-to-watch-april-6/
+**The California Lake Billed as the ‘Saudi Arabia of Lithium’**\
+`Residents of Imperial County, Calif., are in dire need of an economic boost. Experts say the answer lies beneath the Salton Sea, where a lithium trove sits.`\
+https://nytimes.com/2026/04/06/us/imperial-valley-salton-sea-lithium.html
 
-**How to watch Pistons vs. Magic: Time, TV, streaming**\
-`Find out how to watch the Detroit Pistons play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7175914/2026/04/06/pistons-vs-magic-stream-how-to-watch-april-6/
+**Mailbag: Are the Penguins actually Stanley Cup contenders?**\
+`Should expectations be low for the supremely suprising Penguins, or do they have a deep run in them?`\
+https://nytimes.com/athletic/7175672/2026/04/06/penguins-stanley-cup-odds-nhl-mailbag/
 
-**A Speedier Pasta Primavera**\
-`Ready in 20 minutes, it’s filled with all the seasonal vegetables I like best: asparagus, two kinds of peas (sugar snap and English) and delicate spring onions.`\
-https://nytimes.com/2026/04/06/dining/a-speedier-pasta-primavera.html
+**Key islands give Iran sway over the Strait of Hormuz.**\
+`By Josh Holder and Adina Renner`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/key-islands-give-iran-sway-over-the-strait-of-hormuz
 
-**Federal Agency Unveils Three Potential Osteoarthritis Treatments**\
-`With funding from ARPA-H, three teams of researchers have regrown bone and cartilage, even entire knees, in animal studies. Human trials are not far off.`\
-https://nytimes.com/2026/04/06/health/arpa-h-osteoarthritis-bone-cartilage.html
+**How to watch Brewers vs. Red Sox: Time, TV, streaming for April 6**\
+`Find out how to watch the Milwaukee Brewers play the Boston Red Sox, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7175949/2026/04/06/brewers-vs-red-sox-stream-how-to-watch-april-6/
 
-**A Seattle House Where the Work Never Stops**\
-`A landscape architect has been adding personality to his Craftsman-style home for more than 15 years with no plans to stop iterating.`\
-https://nytimes.com/2026/04/06/realestate/a-seattle-house-where-the-work-never-stops.html
+**How to watch Reds vs. Marlins: Time, TV, streaming for April 6**\
+`Find out how to watch the Cincinnati Reds play the Miami Marlins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7175946/2026/04/06/reds-vs-marlins-stream-how-to-watch-april-6/
 
-**This Is Starting to Look Like a Slow-Motion Bank Run**\
-`The cockroaches are starting to emerge.`\
-https://nytimes.com/2026/04/06/opinion/banking-crisis-private-credit.html
+**How to watch Dodgers vs. Blue Jays: Time, TV, streaming for April 6**\
+`Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7175944/2026/04/06/dodgers-vs-blue-jays-stream-how-to-watch-april-6/
 
-**How Some People Are Incorporating Movement in Their Therapy Sessions**\
-`Many different techniques fall under the umbrella of “somatic therapy,” which is gaining popularity.`\
-https://nytimes.com/2026/04/06/well/mind/somatic-therapy.html
+**The Big Bang: A.I. Has Created a Code Overload**\
+`Companies are scrambling to deal with the glut.`\
+https://nytimes.com/2026/04/06/technology/ai-code-overload.html
 
-**Trump’s Foreign Aid Overhaul Sent Millions More Dollars to Big U.S.-Based Contractors**\
-`While organizations in the developing world were nearly shut out, the big aid agencies DOGE had called wasteful received huge infusions of cash, a new analysis found.`\
-https://nytimes.com/2026/04/06/health/trump-foreign-aid.html
+**How to watch Cardinals vs. Nationals: Time, TV, streaming for April 6**\
+`Find out how to watch the St. Louis Cardinals play the Washington Nationals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7175941/2026/04/06/cardinals-vs-nationals-stream-how-to-watch-april-6/
 
-**Trump’s Tuesday Deadline for Iran Is His Latest Extension**\
-`The new deadline comes as the president and Iranian leaders have ramped up bombastic threats against one another.`\
-https://nytimes.com/2026/04/06/world/middleeast/trump-threat-strait-peace.html
+**How to watch Padres vs. Pirates: Time, TV, streaming for April 6**\
+`Find out how to watch the San Diego Padres play the Pittsburgh Pirates, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7175939/2026/04/06/padres-vs-pirates-stream-how-to-watch-april-6/
 
-**A New Oil Shock Accelerates Return to Nuclear Power**\
-`Shocks to natural gas supplies are spurring countries in Asia and elsewhere to rethink their rejection of nuclear energy after the 2011 disaster in Fukushima, Japan.`\
-https://nytimes.com/2026/04/06/business/nuclear-energy-iran-war.html
+**How to watch Royals vs. Guardians: Time, TV, streaming for April 6**\
+`Find out how to watch the Kansas City Royals play the Cleveland Guardians, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7175933/2026/04/06/royals-vs-guardians-stream-how-to-watch-april-6/
 
