@@ -1,3 +1,15 @@
+**Harry Styles Gave Us the Album of the Spring**\
+`Wesley Morris on why Harry Styles’s new album is the perfect spring soundtrack.`\
+https://nytimes.com/video/podcasts/100000010816483/harry-styles-gave-us-the-album-of-the-spring.html
+
+**Do You Recognize These Novels From Their Characters?**\
+`Try this short quiz to see how many titles and people you can pair up from five classic books.`\
+https://nytimes.com/interactive/2026/04/06/books/review/book-characters-quiz.html
+
+**A.I. Is on Its Way to Upending Cybersecurity**\
+`With new systems from companies like Anthropic and OpenAI, hackers can attack with greater speed. The defense is more A.I.`\
+https://nytimes.com/2026/04/06/technology/ai-cybersecurity-hackers.html
+
 **USMNT's Agyemang taken off on a stretcher while playing for Derby**\
 `Agyemang, 25, played in both friendlies during the March international window and is in contention for a World Cup roster spot.`\
 https://nytimes.com/athletic/7175873/2026/04/06/patrick-agyemang-usmnt-injury-world-cup/
