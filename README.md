@@ -23,7 +23,7 @@ https://nytimes.com/athletic/7175959/2026/04/06/lightning-vs-sabres-stream-how-t
 https://nytimes.com/2026/04/06/us/imperial-valley-salton-sea-lithium.html
 
 **Mailbag: Are the Penguins actually Stanley Cup contenders?**\
-`Should expectations be low for the supremely suprising Penguins, or do they have a deep run in them?`\
+`Should expectations be low for the supremely surprising Penguins, or do they have a deep run in them?`\
 https://nytimes.com/athletic/7175672/2026/04/06/penguins-stanley-cup-odds-nhl-mailbag/
 
 **Key islands give Iran sway over the Strait of Hormuz.**\
