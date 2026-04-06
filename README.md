@@ -1,3 +1,7 @@
+**As the astronauts lose contact with Earth, NASA isn’t worried.**\
+`By Katrina Miller`\
+https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/as-the-astronauts-lose-contact-with-earth-nasa-isnt-worried
+
 **Trump Escalates Threats to Devastate Iran**\
 `President Trump renewed threats of attacks on Iran if the country does not agree to a deal to reopen the Strait of Hormuz by his Tuesday night deadline. The warnings came on Monday as the president gave more details on the rescue of a missing American airman shot down over Iran on Friday.`\
 https://nytimes.com/video/us/politics/100000010825584/trump-iran-threats-war-f-15-rescue.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/04/06/us/quake-tracker-san-diego.html
 **Watch Live: Artemis II Mission**\
 `The four Artemis astronauts will pass behind the far side of the moon, seeing parts of the moon never observed with human eyes.`\
 https://nytimes.com/video/science/space/100000010825842/watch-live-artemis-ii-mission.html
-
-**Artemis Astronauts Set Record for Farthest Distance Traveled From Earth**\
-`The Artemis II astronauts ventured farther from Earth than anyone else in the history of humanity on Monday, breaking the record set by Apollo 13 in 1970.`\
-https://nytimes.com/video/science/space/100000010825697/artemis-astronauts-record-space-travel.html
 
