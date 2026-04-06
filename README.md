@@ -1,3 +1,7 @@
+**Redistricting War Comes Down to Virginia and Florida**\
+`As deadlines approach in the next two weeks, neither is going quite according to the partisan plan.`\
+https://nytimes.com/2026/04/06/us/politics/redistricting-virginia-florida-ga-special-election-republicans.html
+
 **Artemis II Astronauts Go Farther From Earth Than Ever Before**\
 `Also, Trump threatens to attack Iran’s power plants and bridges. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2026/04/06/briefing/artemis-ii-moon-trump-iran-threats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/06/us/politics/tony-gonzales-sexual-texts-republican
 **Mystics part ways with GM Jamila Wideman after 1 season: Source**\
 `Head coach Sydney Johnson will assume control of basketball operations.`\
 https://nytimes.com/athletic/7176723/2026/04/06/jamila-wideman-mystics-gm-part-ways-sydney-johnson/
-
-**Between Easter Eggs and Bunny Hops, Trump Talks of War and Autopens**\
-`The Easter Bunny was out of earshot as President Trump spoke to reporters about the war in Iran and his predecessor’s mental acuity.`\
-https://nytimes.com/2026/04/06/us/politics/trump-easter-egg-roll-white-house.html
 

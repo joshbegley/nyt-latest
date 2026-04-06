@@ -1,3 +1,15 @@
+**Artemis II Astronauts Go Farther From Earth Than Ever Before**\
+`Also, Trump threatens to attack Iran’s power plants and bridges. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2026/04/06/briefing/artemis-ii-moon-trump-iran-threats.html
+
+**The Artemis II crew breaks a distance record.**\
+`Three Americans and one Canadian traveling on NASA’s Orion spacecraft surpassed a milestone set by the crew of Apollo 13 in 1970.`\
+https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/the-artemis-ii-crew-breaks-a-distance-record
+
+**Angel Reese's trade another example of Chicago Sky's inability to hold onto star players**\
+`Reese follows other stars who left Chicago: Candace Parker, Sylvia Fowles, Elena Delle Donne.`\
+https://nytimes.com/athletic/7176754/2026/04/06/angel-reeses-chicago-sky-trade-stars/
+
 **6 Takeaways From Trump’s News Conference on Iran**\
 `President Trump described the risky mission to rescue an Air Force colonel whose fighter jet had been shot down, but he offered no clear path out of the war.`\
 https://nytimes.com/2026/04/06/us/politics/trump-iran-news-conference.html
