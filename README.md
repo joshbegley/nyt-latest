@@ -1,3 +1,7 @@
+**Elisabeth Waldo Dies at 107; Fused Indigenous and Western Sounds**\
+`A classically-trained violinist, she incorporated traditional instruments native to Latin America in Western-style scores to create an atmospheric hybrid.`\
+https://nytimes.com/2026/04/06/arts/music/elisabeth-waldo-dead.html
+
 **Astronauts Dedicate Moon Crater to Carroll Wiseman, Wife of NASA Commander**\
 `The crew shared an emotional moment with mission control and the family of Reid Wiseman, whose wife, Carroll, died in 2020, on the ground in Houston.`\
 https://nytimes.com/2026/04/06/science/moon-crater-carroll-reid-wiseman.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/hum
 **Israel Steps Up Attacks on Lebanon, Killing Dozens**\
 `Sunday was a particularly deadly day, as Israel targeted areas around the country — including a Christian area long regarded as safe by residents.`\
 https://nytimes.com/2026/04/06/world/middleeast/israel-attacks-lebanon-kill-dozens.html
-
-**Exploring the Far Side of the Moon**\
-`As Artemis II flies around the far side of the moon, our graphics editor Marco Hernandez describes what the astronauts are looking for.`\
-https://nytimes.com/video/science/space/100000010788127/exploring-the-far-side-of-the-moon.html
 

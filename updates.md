@@ -1,3 +1,7 @@
+**Astronauts Dedicate Moon Crater to Carroll Wiseman, Wife of NASA Commander**\
+`The crew shared an emotional moment with mission control and the family of Reid Wiseman, whose wife, Carroll, died in 2020, on the ground in Houston.`\
+https://nytimes.com/2026/04/06/science/moon-crater-carroll-reid-wiseman.html
+
 **Making sense of the Giants' disastrous start to the 2026 season**\
 `The Giants have been bad so far, but when you look at the individual reasons why they have been bad, it doesn't yet give a full picture.`\
 https://nytimes.com/athletic/7176585/2026/04/06/sf-giants-poor-start-reasons/
