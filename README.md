@@ -1,3 +1,15 @@
+**The New York Times in Print for Monday, April 6, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/04/06/todays-new-york-times
+
+**The War Is Turning Iran Into a Major World Power**\
+`Its newfound might derives from its control the Strait of Hormuz.`\
+https://nytimes.com/2026/04/06/opinion/iran-war-strait-hormuz.html
+
+**‘Euphoria,’ Plus 8 Things to Watch on TV This Week**\
+`The HBO show returns after a long hiatus. And the March Madness final airs.`\
+https://nytimes.com/2026/04/06/arts/television/euphoria-march-madness-tv-this-week.html
+
 **Sacrifice and selflessness define coach Cori Close's UCLA  championship run**\
 `By beating South Carolina, Close became the first first-time champion since Dawn Staley in 2017.`\
 https://nytimes.com/athletic/7175020/2026/04/06/ucla-cori-close-national-championship/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7171777/2026/04/06/arne-slot-liverpool-fa-cup/
 **Five things to look out for in the Champions League quarter-finals**\
 `We are down to the last eight in Europe's premier competition, but who will come out on top?`\
 https://nytimes.com/athletic/7169006/2026/04/06/champions-league-quarter-finals-five-things/
-
-**Bruno Fernandes is a brilliant footballer. Is he destined to be a coach too?**\
-`Bruno Fernandes has much left to achieve on the football pitch but those who know him well feel he has the skills to thrive as a coach too`\
-https://nytimes.com/athletic/7168871/2026/04/06/bruno-fernandes-coaching/
-
-**WNBA announces start of free agency on Monday**\
-`Over 100 players — more than 80 percent of the league — are free agents during this signing period.`\
-https://nytimes.com/athletic/7174955/2026/04/06/wnba-free-agency-league-announcement/
-
-**Watching a remarkable comeback and shootout defeat with fans stuck outside - because they left early**\
-`Some West Ham fans could not go back into the ground after leaving. The Athletic went to watch their comeback and penalty shootout with them`\
-https://nytimes.com/athletic/7174248/2026/04/06/west-ham-fans-early-leeds-stadium/
 
