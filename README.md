@@ -1,3 +1,7 @@
+**Suspect in Hacking of Climate Activists Is Extradited to New York**\
+`Prosecutors say Amit Forlit ran a global hacking operation on behalf of a Washington lobbying group that aimed to thwart environmental lawsuits against oil companies.`\
+https://nytimes.com/2026/04/06/climate/forlit-exxon-dci-hacking-extradition.html
+
 **Bulls fire Artūras Karnišovas, Marc Eversley in front-office shakeup**\
 `The Bulls had made the playoffs just once since the two men took over the front office in 2020.`\
 https://nytimes.com/athletic/7176408/2026/04/06/bulls-front-office-arturas-karnisovas-fired/
@@ -29,8 +33,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010825115/the-do-it-al
 **UNC expected to hire ex-Nuggets coach Michael Malone as men's hoops coach**\
 `Malone emerged as a prime candidate in recent days after top college options Tommy Lloyd and Dusty May removed themselves from the process. `\
 https://nytimes.com/athletic/7176338/2026/04/06/unc-basketball-michael-malone-head-coaching-hire/
-
-**How to Restore a Scorched Dutch Oven**\
-`You can save that scorched Dutch oven in the back of your cabinet.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010824808/how-to-restore-a-scorched-dutch-oven.html
 
