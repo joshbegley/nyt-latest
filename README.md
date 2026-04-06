@@ -1,8 +1,12 @@
+**Artemis II Astronauts Go Farther From Earth Than Ever Before**\
+`Also, Trump threatens to attack Iran’s power plants and bridges. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2026/04/06/briefing/artemis-ii-moon-trump-iran-threats.html
+
 **The Artemis II crew breaks a distance record.**\
 `Three Americans and one Canadian traveling on NASA’s Orion spacecraft surpassed a milestone set by the crew of Apollo 13 in 1970.`\
 https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/the-artemis-ii-crew-breaks-a-distance-record
 
-**Angel Reese's departure another example of Chicago Sky's inability to hold onto star players**\
+**Angel Reese's trade another example of Chicago Sky's inability to hold onto star players**\
 `Reese follows other stars who left Chicago: Candace Parker, Sylvia Fowles, Elena Delle Donne.`\
 https://nytimes.com/athletic/7176754/2026/04/06/angel-reeses-chicago-sky-trade-stars/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7176723/2026/04/06/jamila-wideman-mystics-gm-part-w
 **Between Easter Eggs and Bunny Hops, Trump Talks of War and Autopens**\
 `The Easter Bunny was out of earshot as President Trump spoke to reporters about the war in Iran and his predecessor’s mental acuity.`\
 https://nytimes.com/2026/04/06/us/politics/trump-easter-egg-roll-white-house.html
-
-**Iran’s 10-Point Proposal Demands an End to Attacks and Sanctions**\
-`As President Trump’s deadline for new attacks loomed, Iran conveyed its conditions through Pakistani intermediaries.`\
-https://nytimes.com/2026/04/06/world/middleeast/iran-10-point-proposal.html
 
