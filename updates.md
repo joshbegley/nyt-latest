@@ -1,3 +1,15 @@
+**Trump’s Deportation Deals**\
+`The president wants third countries to take migrants who can’t be sent back home. To get that, almost everything is up for negotiation.`\
+https://nytimes.com/2026/04/06/world/us-trump-deportations-iran-deadline-artemis-moon.html
+
+**As Trump Deadline Looms, Iran and U.S. Mix Threats With Hints of Deal**\
+`One potential off-ramp appeared when Iran offered a 10-point counterproposal for ending the war that President Trump called a significant step, if “not good enough.”`\
+https://nytimes.com/2026/04/06/world/middleeast/iran-trump-deadline.html
+
+**Elisabeth Waldo Dies at 107; Fused Indigenous and Western Sounds**\
+`A classically-trained violinist, she incorporated traditional instruments native to Latin America in Western-style scores to create an atmospheric hybrid.`\
+https://nytimes.com/2026/04/06/arts/music/elisabeth-waldo-dead.html
+
 **Astronauts Dedicate Moon Crater to Carroll Wiseman, Wife of NASA Commander**\
 `The crew shared an emotional moment with mission control and the family of Reid Wiseman, whose wife, Carroll, died in 2020, on the ground in Houston.`\
 https://nytimes.com/2026/04/06/science/moon-crater-carroll-reid-wiseman.html
