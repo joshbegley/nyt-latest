@@ -1,3 +1,15 @@
+**No Corrections: April 6, 2026**\
+`No corrections appeared in print on Monday, April 6, 2026.`\
+https://nytimes.com/2026/04/06/pageoneplus/no-corrections-april-6-2026.html
+
+**No Corrections: April 5, 2026**\
+`No corrections appeared in print on Sunday, April 5, 2026.`\
+https://nytimes.com/2026/04/06/pageoneplus/no-corrections-april-5-2026.html
+
+**Corrections: April 4, 2026**\
+`Corrections that appeared in print on Saturday, April 4, 2026.`\
+https://nytimes.com/2026/04/06/pageoneplus/corrections-april-4-2026.html
+
 **Steph Curry's game-altering return shows why the Warriors can't give up on this**\
 `On restricted minutes, Curry nearly led an upset of one of the league's hottest teams. It's why the Warriors still hold on to hope.`\
 https://nytimes.com/athletic/7175415/2026/04/06/stephen-curry-warriors-return-nba-playoffs-injury/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7175249/2026/04/06/rockets-offense-sengun-durant-as
 **Jamie Dimon Cites Risks From War, Private Credit and More**\
 `In his annual letter to shareholders, Jamie Dimon, the chief executive of JPMorgan Chase, said investors and businesses faced a series of challenges.`\
 https://nytimes.com/2026/04/06/business/dealbook/jamie-dimon-war-private-credit.html
-
-**Iranian Intelligence Chief Killed in Overnight Attack**\
-`Israel claimed responsibility for the death of Major General Seyed Majid Khademi, the spy chief of the Islamic Revolutionary Guards Corps, the latest senior official to be killed in the war.`\
-https://nytimes.com/2026/04/06/world/middleeast/iran-khademi-intelligence-israel.html
-
-**The Canadiens are playoff-bound. Preparation will define their final five games**\
-`The Canadiens clinched a playoff spot in their sleep Sunday, and now auditions for playoff roles can officially begin.`\
-https://nytimes.com/athletic/7175115/2026/04/06/canadiens-nhl-playoffs-preparation/
-
-**How the Reds are winning games despite having scored the fewest runs in MLB**\
-`The Reds may not be mashing the ball, but their clean play helped them sweep the Rangers. They haven't committed an error this season.`\
-https://nytimes.com/athletic/7174613/2026/04/06/cincinnati-reds-texas-rangers-series-win/
 

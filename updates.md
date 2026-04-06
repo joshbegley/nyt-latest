@@ -1,3 +1,15 @@
+**No Corrections: April 6, 2026**\
+`No corrections appeared in print on Monday, April 6, 2026.`\
+https://nytimes.com/2026/04/06/pageoneplus/no-corrections-april-6-2026.html
+
+**No Corrections: April 5, 2026**\
+`No corrections appeared in print on Sunday, April 5, 2026.`\
+https://nytimes.com/2026/04/06/pageoneplus/no-corrections-april-5-2026.html
+
+**Corrections: April 4, 2026**\
+`Corrections that appeared in print on Saturday, April 4, 2026.`\
+https://nytimes.com/2026/04/06/pageoneplus/corrections-april-4-2026.html
+
 **Steph Curry's game-altering return shows why the Warriors can't give up on this**\
 `On restricted minutes, Curry nearly led an upset of one of the league's hottest teams. It's why the Warriors still hold on to hope.`\
 https://nytimes.com/athletic/7175415/2026/04/06/stephen-curry-warriors-return-nba-playoffs-injury/
