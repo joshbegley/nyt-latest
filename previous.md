@@ -1,3 +1,15 @@
+**Trump’s Foreign Aid Overhaul Sent Millions More Dollars to Big U.S.-Based Contractors**\
+`While organizations in the developing world were nearly shut out, the big aid agencies DOGE had called wasteful received huge infusions of cash, a new analysis found.`\
+https://nytimes.com/2026/04/06/health/trump-foreign-aid.html
+
+**Trump’s Tuesday Deadline for Iran Is His Latest Extension**\
+`The new deadline comes as the president and Iranian leaders have ramped up bombastic threats against one another.`\
+https://nytimes.com/2026/04/06/world/middleeast/trump-threat-strait-peace.html
+
+**A New Oil Shock Accelerates Return to Nuclear Power**\
+`Shocks to natural gas supplies are spurring countries in Asia and elsewhere to rethink their rejection of nuclear energy after the 2011 disaster in Fukushima, Japan.`\
+https://nytimes.com/2026/04/06/business/nuclear-energy-iran-war.html
+
 **Broncos mock draft: Prioritizing trenches after trading top pick for Jaylen Waddle**\
 `"You are always looking for big guys on the offensive and defensive lines," Broncos GM George Paton said ahead of this month's NFL Draft.`\
 https://nytimes.com/athletic/7174791/2026/04/06/broncos-mock-draft-trenches-lee-hunter/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/7153936/2026/04/06/nba-final-week-playoffs-standing
 **Trump Administration Live Updates: Supreme Court Clears Way for Dismissal of Bannon Conviction**\
 ``\
 https://nytimes.com/live/2026/04/06/us/trump-news
-
-**Cruise Ship Runs Aground Off Island Where ‘Cast Away’ Was Filmed**\
-`Tom Hanks’s character spent four years stranded in the 2000 film. The 30 cruise passengers were rescued much more quickly.`\
-https://nytimes.com/2026/04/06/world/australia/castaway-cruise-shipwreck-fiji.html
-
-**Supreme Court Clears the Way for Dismissal of Bannon Conviction**\
-`Stephen K. Bannon, a former close aide to President Trump, was convicted for failing to comply with a congressional subpoena related to the investigation into the Jan. 6 attack.`\
-https://nytimes.com/2026/04/06/us/politics/supreme-court-bannon-trump.html
-
-**Francisco Alvarez is dreamy, Casey Mize is streamy and other fantasy baseball takeaways**\
-`Need fantasy baseball help? Andy Behrens breaks down early MLB trends and drops essential streaming targets to boost your roster.`\
-https://nytimes.com/athletic/7175682/2026/04/06/francisco-alvarez-is-dreamy-casey-mize-is-streamy-and-other-fantasy-baseball-takeaways/
 

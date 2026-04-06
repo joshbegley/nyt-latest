@@ -1,3 +1,15 @@
+**Trump’s Foreign Aid Overhaul Sent Millions More Dollars to Big U.S.-Based Contractors**\
+`While organizations in the developing world were nearly shut out, the big aid agencies DOGE had called wasteful received huge infusions of cash, a new analysis found.`\
+https://nytimes.com/2026/04/06/health/trump-foreign-aid.html
+
+**Trump’s Tuesday Deadline for Iran Is His Latest Extension**\
+`The new deadline comes as the president and Iranian leaders have ramped up bombastic threats against one another.`\
+https://nytimes.com/2026/04/06/world/middleeast/trump-threat-strait-peace.html
+
+**A New Oil Shock Accelerates Return to Nuclear Power**\
+`Shocks to natural gas supplies are spurring countries in Asia and elsewhere to rethink their rejection of nuclear energy after the 2011 disaster in Fukushima, Japan.`\
+https://nytimes.com/2026/04/06/business/nuclear-energy-iran-war.html
+
 **Broncos mock draft: Prioritizing trenches after trading top pick for Jaylen Waddle**\
 `"You are always looking for big guys on the offensive and defensive lines," Broncos GM George Paton said ahead of this month's NFL Draft.`\
 https://nytimes.com/athletic/7174791/2026/04/06/broncos-mock-draft-trenches-lee-hunter/
