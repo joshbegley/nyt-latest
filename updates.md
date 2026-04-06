@@ -1,3 +1,7 @@
+**Iranian Intelligence Chief Killed in Overnight Attack**\
+`Israel claimed responsibility for the death of Major General Seyed Majid Khademi, the spy chief of the Islamic Revolutionary Guards Corps, the latest senior official to be killed in the war.`\
+https://nytimes.com/2026/04/06/world/middleeast/iran-khademi-intelligence-israel.html
+
 **The Canadiens are playoff-bound. Preparation will define their final five games**\
 `The Canadiens clinched a playoff spot in their sleep Sunday, and now auditions for playoff roles can officially begin.`\
 https://nytimes.com/athletic/7175115/2026/04/06/canadiens-nhl-playoffs-preparation/
