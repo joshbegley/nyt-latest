@@ -1,3 +1,7 @@
+**Estevao is the spark Chelsea will need in the daunting run-in ahead**\
+`The teenager was excellent in the thrashing of Port Vale, but will tear into far trickier fixtures with gusto over the campaign's run-in `\
+https://nytimes.com/athletic/7172244/2026/04/06/chelsea-estevao-youthful-energy-rosenior/
+
 **The Briefing: Could Arsenal end up empty-handed? Will the FA Cup help or hinder Leeds survival?**\
 `Welcome to The Briefing, where every Monday, The Athletic discusses three of the biggest issues raised by the weekend’s action`\
 https://nytimes.com/athletic/7174013/2026/04/06/arsenal-fa-cup-exit-leeds-bernardo-silva/
@@ -33,10 +37,4 @@ https://nytimes.com/athletic/7174248/2026/04/06/west-ham-fans-early-leeds-stadiu
 **Champions League quarter-finals predictions, star players and youngsters to watch**\
 `And then there were eight. Our writers explain everything you need to know about the business end of the Champions League`\
 https://nytimes.com/athletic/7169577/2026/04/06/champions-league-quarter-finals-predictions/
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>The SEC championship game may be on its death bed, but the Mailbag isn&#8217;t going anywhere.</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/7175009/2026/04/06/submit-a-question-for-stewart-mandels-college-football-mailbag-341/
 
