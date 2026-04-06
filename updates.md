@@ -1,3 +1,7 @@
+**Steph Curry returns to Warriors on minutes restriction as team eyes postseason push**\
+`The Warriors will be understandably cautious given how much time Curry has missed and the fact there is only one week left in the season.`\
+https://nytimes.com/athletic/7174669/2026/04/05/steph-curry-returns-warriors-rockets-nba/
+
 **Here’s What Happened in the War in the Middle East on Sunday**\
 `President Trump taunted Iran on social media, while strikes continued in Iran, Israel, Lebanon and some Gulf states.`\
 https://nytimes.com/2026/04/05/world/middleeast/iran-israel-us-war-middle-east.html

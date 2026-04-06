@@ -1,3 +1,7 @@
+**Steph Curry returns to Warriors on minutes restriction as team eyes postseason push**\
+`The Warriors will be understandably cautious given how much time Curry has missed and the fact there is only one week left in the season.`\
+https://nytimes.com/athletic/7174669/2026/04/05/steph-curry-returns-warriors-rockets-nba/
+
 **Here’s What Happened in the War in the Middle East on Sunday**\
 `President Trump taunted Iran on social media, while strikes continued in Iran, Israel, Lebanon and some Gulf states.`\
 https://nytimes.com/2026/04/05/world/middleeast/iran-israel-us-war-middle-east.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7174134/2026/04/05/jj-spaun-pga-valero-texas-open/
 **'Not 6 feet under yet': Red Wings trying to tune out noise with 5 games left**\
 `A late push made it interesting, but a costly second period led the Red Wings to another loss Sunday with time running out.`\
 https://nytimes.com/athletic/7174222/2026/04/05/detroit-red-wings-noise-copp-stretch-run-wild/
-
-**Michigan's Dusty May removes name from UNC coaching search: Sources**\
-`May is the second Final Four coach this weekend to spurn UNC interest, joining Arizona's Tommy Lloyd.`\
-https://nytimes.com/athletic/7174389/2026/04/05/dusty-may-michigan-unc-coaching-search/
 
