@@ -1,3 +1,11 @@
+**Harry Styles Gave Us the Album of the Spring**\
+`Wesley Morris on why Harry Styles’s new album is the perfect spring soundtrack.`\
+https://nytimes.com/video/podcasts/100000010816483/harry-styles-gave-us-the-album-of-the-spring.html
+
+**Do You Recognize These Novels From Their Characters?**\
+`Try this short quiz to see how many titles and people you can pair up from five classic books.`\
+https://nytimes.com/interactive/2026/04/06/books/review/book-characters-quiz.html
+
 **A.I. Is on Its Way to Upending Cybersecurity**\
 `With new systems from companies like Anthropic and OpenAI, hackers can attack with greater speed. The defense is more A.I.`\
 https://nytimes.com/2026/04/06/technology/ai-cybersecurity-hackers.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7175949/2026/04/06/brewers-vs-red-sox-stream-how-to
 **How to watch Reds vs. Marlins: Time, TV, streaming for April 6**\
 `Find out how to watch the Cincinnati Reds play the Miami Marlins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7175946/2026/04/06/reds-vs-marlins-stream-how-to-watch-april-6/
-
-**How to watch Dodgers vs. Blue Jays: Time, TV, streaming for April 6**\
-`Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7175944/2026/04/06/dodgers-vs-blue-jays-stream-how-to-watch-april-6/
-
-**The Big Bang: A.I. Has Created a Code Overload**\
-`Companies are scrambling to deal with the glut.`\
-https://nytimes.com/2026/04/06/technology/ai-code-overload.html
 
