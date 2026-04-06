@@ -1,3 +1,7 @@
+**The Latest Blows to Iran’s Leadership**\
+`An Iranian intelligence chief killed overnight on Monday was one of several Iranian officials who occupied their posts for only a few months.`\
+https://nytimes.com/2026/04/06/world/middleeast/killings-iran-leadership.html
+
 **How to watch Cubs vs. Rays: Time, TV, streaming for April 6**\
 `Find out how to watch the Chicago Cubs play the Tampa Bay Rays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7175697/2026/04/06/cubs-vs-rays-stream-how-to-watch-april-6/
