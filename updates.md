@@ -1,3 +1,15 @@
+**The Chargers should trade down in draft's first round. Can they find a partner?**\
+`A trade down is logical for multiple reasons. Can GM Joe Hortiz find the partner to make it happen?`\
+https://nytimes.com/athletic/7176687/2026/04/07/chargers-nfl-draft-trade-first-round/
+
+**Not Your Average Sweater and Jeans**\
+`Shoulder pads and denim flaps made wardrobe basics look less ordinary.`\
+https://nytimes.com/2026/04/07/style/street-style-look-exaggerated-silhouette.html
+
+**Buy Cam Smith, sell Munetaka Murakami, hold Jesús Sánchez in fantasy baseball**\
+`Why Owen Poindexter's buying Willy Adames and offloading Munetaka Murakami.`\
+https://nytimes.com/athletic/7176981/2026/04/07/fantasy-baseball-buy-sell-hold-cam-smith/
+
 **U.K. Bars Ye Over Antisemitism, Months Before Major Festival Performances**\
 `The BBC said that entry to the country was being denied to the rapper formerly known as Kanye West.`\
 https://nytimes.com/2026/04/07/arts/music/kanye-west-ye-visa-ban-wireless.html

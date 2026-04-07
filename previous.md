@@ -1,3 +1,15 @@
+**The Chargers should trade down in draft's first round. Can they find a partner?**\
+`A trade down is logical for multiple reasons. Can GM Joe Hortiz find the partner to make it happen?`\
+https://nytimes.com/athletic/7176687/2026/04/07/chargers-nfl-draft-trade-first-round/
+
+**Not Your Average Sweater and Jeans**\
+`Shoulder pads and denim flaps made wardrobe basics look less ordinary.`\
+https://nytimes.com/2026/04/07/style/street-style-look-exaggerated-silhouette.html
+
+**Buy Cam Smith, sell Munetaka Murakami, hold Jesús Sánchez in fantasy baseball**\
+`Why Owen Poindexter's buying Willy Adames and offloading Munetaka Murakami.`\
+https://nytimes.com/athletic/7176981/2026/04/07/fantasy-baseball-buy-sell-hold-cam-smith/
+
 **U.K. Bars Ye Over Antisemitism, Months Before Major Festival Performances**\
 `The BBC said that entry to the country was being denied to the rapper formerly known as Kanye West.`\
 https://nytimes.com/2026/04/07/arts/music/kanye-west-ye-visa-ban-wireless.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/04/07/business/dealbook/markets-trump-iran-threats.html
 **Up in the rafters, it's about vibes, not views: 'At least we’re in the building'**\
 `The Final Four has not been played in a traditional basketball arena since 1996. The result: some seats that are less than ideal. `\
 https://nytimes.com/athletic/7177691/2026/04/07/final-four-michigan-uconn-bad-seats-domes/
-
-**Kim Jong-un’s Daughter Drives a Tank, and Succession Talk Accelerates**\
-`Images of Kim Ju-ae at the helm of the military vehicle, with her father riding on top, added to speculation that she was being groomed to succeed him as North Korea’s leader.`\
-https://nytimes.com/2026/04/07/world/asia/north-korea-kim-jong-un-daughter-tank.html
-
-**Dusty May, Michigan's biggest star, gives off Cignetti vibes with NCAA championship run**\
-`As players become more transient in the NIL era, it's coaches like May and Dan Hurley who are often the main attractions.`\
-https://nytimes.com/athletic/7177607/2026/04/07/dusty-may-michigan-uconn-national-championship-coach/
-
-**How to watch Orioles vs. White Sox: Time, TV, streaming for April 7**\
-`Find out how to watch the Baltimore Orioles play the Chicago White Sox, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7177775/2026/04/07/orioles-vs-white-sox-stream-how-to-watch-april-7/
 
