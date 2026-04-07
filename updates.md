@@ -1,3 +1,7 @@
+**Iran War Live Updates: Trump’s Deadline Draws Closer With No Sign of Diplomatic Breakthrough**\
+`Israel and Iran traded fresh attacks on Tuesday after President Trump said a cease-fire proposal put forward by mediators was “not good enough.” Mr. Trump has threatened to destroy Iran’s bridges and power plants if it does not reopen the Strait of Hormuz by 8 p.m. Eastern.`\
+https://nytimes.com/live/2026/04/07/world/iran-war-trump-news
+
 **Champions League quarter-final odds: Lamine Yamal's goal threat and a trap game for Arsenal**\
 `Barcelona's attack will be tough for Atletico Madrid to stop and in Lisbon, Sporting CP could spring a surprise`\
 https://nytimes.com/athletic/7177563/2026/04/07/champions-league-quarter-final-odds/
