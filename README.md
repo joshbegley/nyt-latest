@@ -1,3 +1,7 @@
+**FIFA opens proceedings against Spanish FA over anti-Muslim chants**\
+`Spanish fans in Catalonia were warned about the chants during the game. The songs were condemned by Spain's Lamine Yamal, who is Muslim.`\
+https://nytimes.com/athletic/7169711/2026/04/07/spain-anti-muslim-chants-investigation/
+
 **What I'm hearing about the Penguins: Murashov, McGroarty and magical pickups**\
 `The Penguins called up goaltender Sergei Murashov after Stuart Skinner's eye injury. Could we see him in the playoffs?`\
 https://nytimes.com/athletic/7171929/2026/04/07/penguins-nhl-playoffs-sergei-murashov-rutger-mcgroarty/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7177632/2026/04/07/la-kings-anton-forsberg-nhl-play
 **How to watch Reds vs. Marlins: Time, TV, streaming for April 7**\
 `Find out how to watch the Cincinnati Reds play the Miami Marlins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7178265/2026/04/07/reds-vs-marlins-stream-how-to-watch-april-7/
-
-**Cyclists being investigated by police over running red light at Tour of Flanders**\
-`The incident occurred with 213 kilometres remaining in the race, splitting the peloton into two.`\
-https://nytimes.com/athletic/7178167/2026/04/07/pogacar-evenepoel-red-light-crossing-flanders/
 

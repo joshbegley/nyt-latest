@@ -1,3 +1,15 @@
+**What I'm hearing about the Penguins: Murashov, McGroarty and magical pickups**\
+`The Penguins called up goaltender Sergei Murashov after Stuart Skinner's eye injury. Could we see him in the playoffs?`\
+https://nytimes.com/athletic/7171929/2026/04/07/penguins-nhl-playoffs-sergei-murashov-rutger-mcgroarty/
+
+**Protests in Mexico Challenge Move of Frida Kahlo Trove to Spain**\
+`Officials scrambled to reassure Mexicans that a collection of esteemed artworks would return by 2028. A rarely-seen will may clarify the collector’s wishes.`\
+https://nytimes.com/2026/04/07/arts/design/frida-kahlo-gelman-mexico-spain.html
+
+**How to watch Blue Jackets vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7178302/2026/04/07/blue-jackets-vs-red-wings-stream-how-to-watch-april-7/
+
 **How to watch Flyers vs. Devils: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Flyers play the New Jersey Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7178294/2026/04/07/flyers-vs-devils-stream-how-to-watch-april-7/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7178265/2026/04/07/reds-vs-marlins-stream-how-to-wa
 **Cyclists being investigated by police over running red light at Tour of Flanders**\
 `The incident occurred with 213 kilometres remaining in the race, splitting the peloton into two.`\
 https://nytimes.com/athletic/7178167/2026/04/07/pogacar-evenepoel-red-light-crossing-flanders/
-
-**How to watch Brewers vs. Red Sox: Time, TV, streaming for April 7**\
-`Find out how to watch the Milwaukee Brewers play the Boston Red Sox, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7178247/2026/04/07/brewers-vs-red-sox-stream-how-to-watch-april-7/
-
-**How to watch Cubs vs. Rays: Time, TV, streaming for April 7**\
-`Find out how to watch the Chicago Cubs play the Tampa Bay Rays, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7178240/2026/04/07/cubs-vs-rays-stream-how-to-watch-april-7/
-
-**How to watch Dodgers vs. Blue Jays: Time, TV, streaming for April 7**\
-`Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7178234/2026/04/07/dodgers-vs-blue-jays-stream-how-to-watch-april-7/
 
