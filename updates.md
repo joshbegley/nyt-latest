@@ -1,3 +1,7 @@
+**Meet the die-hard Angels fan and mother of 5 who captured Jo Adell's magic moment**\
+`Kayleigh Kraus took a shot for the ages on her cellphone. High school photo class might've helped. `\
+https://nytimes.com/athletic/7177191/2026/04/07/jo-adell-angels-fan-photo-catch/
+
 **Pakistan Says It Hit a Military Target. Investigations Suggest It Was a Rehab Center.**\
 `After the deadliest attack in Afghanistan since the Taliban took over, families searched among photos and remains for signs of their relatives.`\
 https://nytimes.com/2026/04/07/world/asia/kabul-drug-rehab-pakistan-airstrike.html

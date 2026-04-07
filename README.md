@@ -1,3 +1,7 @@
+**The Champions League quarter-finals: The numbers you need to know**\
+`From Kylian Mbappe's goals to Arsenal's watertight defence, these are the key statistics for this week's quarter-finals`\
+https://nytimes.com/athletic/7176719/2026/04/07/champions-league-quarter-finals-scorers-goals/
+
 **Meet the die-hard Angels fan and mother of 5 who captured Jo Adell's magic moment**\
 `Kayleigh Kraus took a shot for the ages on her cellphone. High school photo class might've helped. `\
 https://nytimes.com/athletic/7177191/2026/04/07/jo-adell-angels-fan-photo-catch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7177637/2026/04/07/royals-vs-guardians-stream-how-t
 **History says long shots don't win the Masters, but is this the year?**\
 `The Masters is uniquely difficult for long shots. But there are a few who could challenge this year.`\
 https://nytimes.com/athletic/7175768/2026/04/07/masters-2026-odds-long-shot-winner/
-
-**Australia Charges Ex-Soldier With War Crimes in Afghanistan**\
-`The suspect, charged with five counts of murder, is accused of killing or ordering the killings of unarmed civilians during the Afghan war.`\
-https://nytimes.com/2026/04/07/world/australia/australia-soldier-afghanistan-war-crimes-roberts-smith.html
 

@@ -1,3 +1,7 @@
+**Meet the die-hard Angels fan and mother of 5 who captured Jo Adell's magic moment**\
+`Kayleigh Kraus took a shot for the ages on her cellphone. High school photo class might've helped. `\
+https://nytimes.com/athletic/7177191/2026/04/07/jo-adell-angels-fan-photo-catch/
+
 **Pakistan Says It Hit a Military Target. Investigations Suggest It Was a Rehab Center.**\
 `After the deadliest attack in Afghanistan since the Taliban took over, families searched among photos and remains for signs of their relatives.`\
 https://nytimes.com/2026/04/07/world/asia/kabul-drug-rehab-pakistan-airstrike.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7175768/2026/04/07/masters-2026-odds-long-shot-winn
 **Australia Charges Ex-Soldier With War Crimes in Afghanistan**\
 `The suspect, charged with five counts of murder, is accused of killing or ordering the killings of unarmed civilians during the Afghan war.`\
 https://nytimes.com/2026/04/07/world/australia/australia-soldier-afghanistan-war-crimes-roberts-smith.html
-
-**Bill Ackman’s Fund Offers to Buy Universal Music in $64 Billion Deal**\
-`The complex transaction pitched by the billionaire hedge fund manager would need to pass muster with the music label’s shareholders.`\
-https://nytimes.com/2026/04/07/business/dealbook/bill-ackman-universal-music-merger.html
 
