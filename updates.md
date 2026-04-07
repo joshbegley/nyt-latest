@@ -1,3 +1,15 @@
+**NHL playoff update: 7 clinched, 6 close, while the Red Wings battle their own math**\
+`We’ve basically got three spots up for grabs: the last wild card in the West, the last wild card in the East and third place in the Metro.`\
+https://nytimes.com/athletic/7178062/2026/04/07/nhl-playoff-race-standings-red-wings-red-light/
+
+**Kevin Lankinen, Adam Foote and the worst Canucks season ever: Notebook**\
+`The Canucks' season enters the end-game stage ahead of a lengthy, critical offseason for the franchise.`\
+https://nytimes.com/athletic/7177523/2026/04/07/vancouver-canucks-adam-foote-kevin-lankinen-stats-standings/
+
+**I’ve Been Rebuying the Same Boots for 16 Years**\
+`Clarks Desert Boots have been a wardrobe staple across the world for almost a century and in my closet for 16 years.`\
+https://nytimes.com/wirecutter/reviews/clarks-desert-boot-review/
+
 **Despite promises, Angels accused of not paying Eric Kay's legal fees in Skaggs case**\
 `Kay has been imprisoned since 2022. He waived doctor-patient privilege to assist the Angels defense in the Tyler Skaggs civil case. `\
 https://nytimes.com/athletic/7178007/2026/04/07/angels-eric-kay-legal-fees-tyler-skaggs-case/
