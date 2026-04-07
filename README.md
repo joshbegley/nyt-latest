@@ -6,7 +6,7 @@ https://nytimes.com/2026/04/06/us/gray-whale-dead-washington-river.html
 `From Kevin Young to Larry Brown, several NBA coaches have taken a shot at mastering the college game. Here's how they did.`\
 https://nytimes.com/athletic/7176825/2026/04/06/michael-malone-former-nba-coaches-college/
 
-**In World Series rematch, Max Scherzer exits after just two innings**\
+**In World Series rematch, Max Scherzer exits after just 2 innings**\
 `The Blue Jays have already weathered several injuries to their rotation, plus another for catcher Alejandro Kirk. `\
 https://nytimes.com/athletic/7177075/2026/04/06/blue-jays-dodgers-max-scherzer-early-exit/
 
