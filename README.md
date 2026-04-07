@@ -1,12 +1,12 @@
 **After HBP, Willson Contreras tells Brewers he's taking action next time**\
-`Even after changing divisions, Willson Contreras made his disdain for the Brewers abundantly clear on Monday evening. `\
+`Even after changing divisions, Contreras made his disdain for the Brewers abundantly clear Monday evening. `\
 https://nytimes.com/athletic/7177261/2026/04/06/red-sox-brewers-willson-contreras-hit-by-pitch/
 
 **The way too early men's hoops Top 25: Where does 2026 champion Michigan rank?**\
 `Where does your team rank after season's end? `\
 https://nytimes.com/athletic/7177055/2026/04/06/mens-college-basketball-2026-early-top-25-rankings/
 
-**Michigan fends off UConn to win first national championship since 1989**\
+**Michigan fights off UConn to win first national championship since 1989**\
 `The Wolverines completed a 37-3 season by winning a defensive battle against Dan Hurley's Huskies.`\
 https://nytimes.com/athletic/7177066/2026/04/06/uconn-michigan-2026-ncaa-mens-championship-score-results/
 
