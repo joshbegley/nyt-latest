@@ -1,3 +1,11 @@
+**How to watch Diamondbacks vs. Mets: Time, TV, streaming for April 7**\
+`Find out how to watch the Arizona Diamondbacks play the New York Mets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7177920/2026/04/07/diamondbacks-vs-mets-stream-how-to-watch-april-7/
+
+**Amid Escalating Threats, U.S. and Iran Float Ideas to End War**\
+`Both countries have offered plans that could form the basis of negotiations. So far, each side’s leaders have publicly dismissed the other side’s proposals.`\
+https://nytimes.com/2026/04/07/world/middleeast/amid-escalating-threats-us-and-iran-float-ideas-to-end-war.html
+
 **The Chargers should trade down in draft's first round. Can they find a partner?**\
 `A trade down is logical for multiple reasons. Can GM Joe Hortiz find the partner to make it happen?`\
 https://nytimes.com/athletic/7176687/2026/04/07/chargers-nfl-draft-trade-first-round/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7177518/2026/04/07/giants-bullpen-lose-phillies/
 **Abramovich: Charity set up to oversee frozen £2.35bn from Chelsea sale**\
 `The Foundation for the Victims of Conflict will be overseen by a former UNICEF executive, and includes other high-profile trustees.`\
 https://nytimes.com/athletic/7177690/2026/04/07/roman-abramovich-chelsea-sale-foundation/
-
-**Markets on Edge as Trump’s Iran Ultimatum Looms**\
-`Oil prices are rising and stocks are selling off as investors fret that the president will carry out his threats to “decimate” Iran.`\
-https://nytimes.com/2026/04/07/business/dealbook/markets-trump-iran-threats.html
-
-**Up in the rafters, it's about vibes, not views: 'At least we’re in the building'**\
-`The Final Four has not been played in a traditional basketball arena since 1996. The result: some seats that are less than ideal. `\
-https://nytimes.com/athletic/7177691/2026/04/07/final-four-michigan-uconn-bad-seats-domes/
 

@@ -1,3 +1,11 @@
+**How to watch Diamondbacks vs. Mets: Time, TV, streaming for April 7**\
+`Find out how to watch the Arizona Diamondbacks play the New York Mets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7177920/2026/04/07/diamondbacks-vs-mets-stream-how-to-watch-april-7/
+
+**Amid Escalating Threats, U.S. and Iran Float Ideas to End War**\
+`Both countries have offered plans that could form the basis of negotiations. So far, each side’s leaders have publicly dismissed the other side’s proposals.`\
+https://nytimes.com/2026/04/07/world/middleeast/amid-escalating-threats-us-and-iran-float-ideas-to-end-war.html
+
 **The Chargers should trade down in draft's first round. Can they find a partner?**\
 `A trade down is logical for multiple reasons. Can GM Joe Hortiz find the partner to make it happen?`\
 https://nytimes.com/athletic/7176687/2026/04/07/chargers-nfl-draft-trade-first-round/
