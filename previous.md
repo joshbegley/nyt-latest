@@ -1,3 +1,7 @@
+**Gulf Backers Invest $24 Billion in Paramount’s Deal for Warner Bros.**\
+`Despite speculation that the Iran war could scuttle commitments from Saudi Arabia and other Middle Eastern countries, their investments have been secured.`\
+https://nytimes.com/2026/04/07/business/gulf-invest-paramount-warner-bros.html
+
 **Devils' new GM to face critical offseason, starting with a coaching decision**\
 `With the firing of Tom Fitzgerald, New Jersey needs a new front-office boss. Let's dive into what that person should address first.`\
 https://nytimes.com/athletic/7177881/2026/04/07/nj-devils-gm-search-leadership-coach-future-roster/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7178557/2026/04/07/kraken-vs-wild-stream-how-to-wat
 **Georgia Special Election Runoff Results**\
 `Get live results and maps from the 2026 Georgia special election runoffs.`\
 https://nytimes.com/interactive/2026/us/elections/results-georgia-special-april-7.html
-
-**Wisconsin Spring Election Results**\
-`Get live results and maps from the 2026 Wisconsin spring elections.`\
-https://nytimes.com/interactive/2026/us/elections/results-wisconsin-spring-election.html
 
