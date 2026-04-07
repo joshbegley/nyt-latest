@@ -1,3 +1,7 @@
+**Up in the rafters, it's about vibes, not views: 'At least we’re in the building'**\
+`The Final Four has not been played in a traditional basketball arena since 1996. The result: some seats that are less than ideal. `\
+https://nytimes.com/athletic/7177691/2026/04/07/final-four-michigan-uconn-bad-seats-domes/
+
 **Kim Jong-un’s Daughter Drives a Tank, and Succession Talk Accelerates**\
 `Images of Kim Ju-ae at the helm of the military vehicle, with her father riding on top, added to speculation that she was being groomed to succeed him as North Korea’s leader.`\
 https://nytimes.com/2026/04/07/world/asia/north-korea-kim-jong-un-daughter-tank.html

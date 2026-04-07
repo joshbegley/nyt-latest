@@ -1,3 +1,7 @@
+**Up in the rafters, it's about vibes, not views: 'At least we’re in the building'**\
+`The Final Four has not been played in a traditional basketball arena since 1996. The result: some seats that are less than ideal. `\
+https://nytimes.com/athletic/7177691/2026/04/07/final-four-michigan-uconn-bad-seats-domes/
+
 **Kim Jong-un’s Daughter Drives a Tank, and Succession Talk Accelerates**\
 `Images of Kim Ju-ae at the helm of the military vehicle, with her father riding on top, added to speculation that she was being groomed to succeed him as North Korea’s leader.`\
 https://nytimes.com/2026/04/07/world/asia/north-korea-kim-jong-un-daughter-tank.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7170303/2026/04/07/carolina-panthers-tetairoa-mcmil
 **Why UNC pivoted to the pros for another coach: Will hiring Michael Malone pay off?**\
 `The 54-year-old has spent little time at the highest levels of college hoops but has 25 years of NBA experience — and a championship ring.`\
 https://nytimes.com/athletic/7177216/2026/04/07/unc-basketball-coach-michael-malone-nuggets/
-
-**College softball power rankings: There’s a new No. 1 after Texas falls at Alabama**\
-`Texas Tech jumps to the top after Texas' series loss at Alabama. And speaking of the Tide, this team looks poised for a run to the WCWS.`\
-https://nytimes.com/athletic/7176351/2026/04/07/college-softball-rankings-texas-tech-texas-alabama/
 

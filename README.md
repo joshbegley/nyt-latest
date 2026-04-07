@@ -1,3 +1,7 @@
+**Markets on Edge as Trump’s Iran Ultimatum Looms**\
+`Oil prices are rising and stocks are selling off as investors fret that the president will carry out his threats to “decimate” Iran.`\
+https://nytimes.com/2026/04/07/business/dealbook/markets-trump-iran-threats.html
+
 **Up in the rafters, it's about vibes, not views: 'At least we’re in the building'**\
 `The Final Four has not been played in a traditional basketball arena since 1996. The result: some seats that are less than ideal. `\
 https://nytimes.com/athletic/7177691/2026/04/07/final-four-michigan-uconn-bad-seats-domes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7176650/2026/04/07/nwsl-temwa-chawinga-aura-charges
 **Why the Panthers locked in on Tetairoa McMillan a year ago: 'Not gonna overthink this'**\
 `Carolina GM Dan Morgan liked McMillan for a long time before the 2025 NFL Draft. The receiver proved Morgan and the Panthers right.`\
 https://nytimes.com/athletic/7170303/2026/04/07/carolina-panthers-tetairoa-mcmillan-nfl-draft-history/
-
-**Why UNC pivoted to the pros for another coach: Will hiring Michael Malone pay off?**\
-`The 54-year-old has spent little time at the highest levels of college hoops but has 25 years of NBA experience — and a championship ring.`\
-https://nytimes.com/athletic/7177216/2026/04/07/unc-basketball-coach-michael-malone-nuggets/
 
