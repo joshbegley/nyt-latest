@@ -1,3 +1,7 @@
+**A coach secretly filmed his women players undressing – yet he can still work in football**\
+`Kristyna Janku has chosen to speak out about what happened - and football's apparent inability to make sure it does not happen again`\
+https://nytimes.com/athletic/7167630/2026/04/07/a-coach-secretly-filmed-his-women-players-undressing-yet-he-can-still-work-in-football/
+
 **Stephen Colbert Says Trump Went ‘100 Percent Cage-Free Crazy’ for Easter**\
 `Late night hosts mocked the president’s expletive-filled ultimatum to Iran, posted on Easter Sunday morning.`\
 https://nytimes.com/2026/04/07/arts/television/stephen-colbert-trump-iran-easter-post.html

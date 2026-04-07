@@ -1,3 +1,7 @@
+**A coach secretly filmed his women players undressing – yet he can still work in football**\
+`Kristyna Janku has chosen to speak out about what happened - and football's apparent inability to make sure it does not happen again`\
+https://nytimes.com/athletic/7167630/2026/04/07/a-coach-secretly-filmed-his-women-players-undressing-yet-he-can-still-work-in-football/
+
 **Stephen Colbert Says Trump Went ‘100 Percent Cage-Free Crazy’ for Easter**\
 `Late night hosts mocked the president’s expletive-filled ultimatum to Iran, posted on Easter Sunday morning.`\
 https://nytimes.com/2026/04/07/arts/television/stephen-colbert-trump-iran-easter-post.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/07/us/politics/trump-nasa-artemis-astronauts-moon.ht
 **Michigan's national title is the latest chapter in a year of Big Ten dominance**\
 `From Indiana football to Northwestern field hockey, the Big Ten has continued to win national championships across multiple sports.`\
 https://nytimes.com/athletic/7177301/2026/04/07/michigan-big-ten-dominance-national-championship/
-
-**Are Real Madrid's big stars actually their biggest problem?**\
-`Alvaro Arbeloa's team were flying during a recent injury crisis. With their galacticos back, they slumped to defeat, with Bayern Munich next`\
-https://nytimes.com/athletic/7175848/2026/04/07/real-madrid-champions-league-mbappe-bellingham-vinicius-jr/
 
