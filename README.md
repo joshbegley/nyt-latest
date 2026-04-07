@@ -1,3 +1,7 @@
+**Steve McMichael, late Bears great and Hall of Famer, had CTE, researchers find**\
+`The Pro Football Hall of Famer died in 2025 at age 67 after a battle with ALS.`\
+https://nytimes.com/athletic/7178040/2026/04/07/bears-steve-mcmichael-cte-diagnosed/
+
 **Tiger Woods was ‘selfish’ to be driving at time of crash, Jason Day says**\
 `"He's just a human being like everyone else, and we have struggles," Day said Monday. "It's unfortunate."`\
 https://nytimes.com/athletic/7177850/2026/04/07/jason-day-tiger-woods-car-crash-masters/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/07/style/street-style-look-exaggerated-silhouette.ht
 **Buy Cam Smith, sell Munetaka Murakami, hold Jesús Sánchez in fantasy baseball**\
 `Why Owen Poindexter's buying Willy Adames and offloading Munetaka Murakami.`\
 https://nytimes.com/athletic/7176981/2026/04/07/fantasy-baseball-buy-sell-hold-cam-smith/
-
-**U.K. Bars Ye Over Antisemitism, Months Before Major Festival Performances**\
-`The BBC reported that entry to the country was being denied to the rapper formerly known as Kanye West. The festival he was due to headline is now canceled.`\
-https://nytimes.com/2026/04/07/arts/music/kanye-west-ye-visa-ban-wireless.html
 
