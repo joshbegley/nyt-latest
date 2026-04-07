@@ -1,3 +1,11 @@
+**How to watch Avalanche vs. Blues: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the St. Louis Blues, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7178565/2026/04/07/avalanche-vs-blues-stream-how-to-watch-april-7/
+
+**How to watch Kraken vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Seattle Kraken play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7178557/2026/04/07/kraken-vs-wild-stream-how-to-watch-april-7/
+
 **Georgia 14th Congressional District Special Runoff Election Results**\
 `Get live results and maps from the 2026 Georgia 14th Congressional District special runoff election.`\
 https://nytimes.com/interactive/2026/us/elections/results-georgia-us-house-14-special-runoff.html
