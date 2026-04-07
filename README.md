@@ -1,3 +1,19 @@
+**Vance to Visit Hungary to Boost Orban Before Election**\
+`A scheduled visit by the American vice president, JD Vance, makes clear that Russia is not the only country invested in a victory for Hungary’s leader, Viktor Orban.`\
+https://nytimes.com/2026/04/07/world/europe/vance-hungary-orban-fidesz-election.html
+
+**Why Hungary’s Election Could Swing on Roma Votes**\
+`Prime Minister Viktor Orban’s policies affecting the Roma minority have put those voters in play in upcoming parliamentary elections. In a tight race, they could make the difference.`\
+https://nytimes.com/2026/04/07/world/europe/hungary-roma-orban-election-education.html
+
+**Can a Renovation Breathe New Life Into Paris’s Home for the Dead?**\
+`For centuries, the bones of some six million people were buried in the catacombs beneath the city. Curators are trying to preserve and modernize the tunnels while maintaining the spooky ambience.`\
+https://nytimes.com/2026/04/07/world/europe/paris-catacombs-renovation.html
+
+**Connections: Sports Edition Coach: Hints and answers for April 7, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7177127/2026/04/07/connections-sports-edition-hints-answers-april-7-2026/
+
 **Quote of the Day: Artemis II Astronauts Reach New Frontier in Human Travel**\
 `Quotation of the Day for Tuesday, April 7, 2026.`\
 https://nytimes.com/2026/04/06/pageoneplus/quote-of-the-day-artemis-ii-astronauts-reach-new-frontier-in-human-travel.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7177066/2026/04/06/uconn-michigan-2026-ncaa-mens-ch
 **Offset, Former Migos Rapper, Is Shot Outside Florida Casino**\
 `The former member of the chart-topping trio was in stable condition after being shot in Hollywood, Fla., his representative said. The police said they had detained two other people.`\
 https://nytimes.com/2026/04/06/us/offset-migos-shooting-florida.html
-
-**Organ Meats**\
-`This debut from Adryel W. Robles Ojeda will set you free.`\
-https://nytimes.com/2026/04/06/crosswords/daily-puzzle-2026-04-07.html
-
-**‘Becky Shaw’ Review: Funny vs. Likable? Funny Wins.**\
-`Alden Ehrenreich makes a show-stealing Broadway debut in Gina Gionfriddo’s comedy about two old friends, one disastrous blind date and the dicey aftermath.`\
-https://nytimes.com/2026/04/06/theater/becky-shaw-review-alden-ehrenreich.html
-
-**The hundreds of mementos aboard Artemis II include a flag that never made it to the moon.**\
-`By Ashley Ahn`\
-https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/the-hundreds-of-mementos-aboard-artemis-ii-include-a-flag-that-never-made-it-to-the-moon
-
-**Wemby leaves Spurs-76ers game with left rib contusion after hurting shoulder**\
-`Because Wembanyama played 16 minutes, this will count as his second and final "near-miss" exemption for the 65-game rule.`\
-https://nytimes.com/athletic/7177163/2026/04/06/victor-wembanyama-injury-update-rib-contusion-spurs-nba/
 
