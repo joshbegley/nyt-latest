@@ -1,3 +1,7 @@
+**U.K. Bars Ye Over Antisemitism, Months Before Major Festival Performances**\
+`The BBC said that entry to the country was being denied to the rapper formerly known as Kanye West.`\
+https://nytimes.com/2026/04/07/arts/music/kanye-west-ye-visa-ban-wireless.html
+
 **Ann Arbor goes wild (again): How Michigan celebrated another national championship**\
 `Michigan fans are the first since Florida 20 years ago to celebrate football and men's basketball national championships so close together.`\
 https://nytimes.com/athletic/7177755/2026/04/07/michigan-fans-national-championship-celebration-basketball/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7177607/2026/04/07/dusty-may-michigan-uconn-nationa
 **How to watch Orioles vs. White Sox: Time, TV, streaming for April 7**\
 `Find out how to watch the Baltimore Orioles play the Chicago White Sox, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7177775/2026/04/07/orioles-vs-white-sox-stream-how-to-watch-april-7/
-
-**Three paths Rams could take to fill their backup quarterback need**\
-`How the Rams decide to fill their backup QB void could tell a lot about their future plans at the game's most important position.`\
-https://nytimes.com/athletic/7176683/2026/04/07/rams-backup-quarterback-search-matthew-stafford/
 
