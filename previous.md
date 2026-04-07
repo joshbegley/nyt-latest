@@ -1,3 +1,7 @@
+**Joey Barton pleads not guilty to grievous bodily harm charge**\
+`Barton, 43, is jointly charged with 50-year-old Gary O'Grady, who has not yet entered a plea.`\
+https://nytimes.com/athletic/7177686/2026/04/07/joey-barton-plea-charge-golf-club/
+
 **The 10 coolest plays of men's 2026 March Madness, from Otega Oweh to Braylon Mullins**\
 `In practice, the NCAA Tournament is a zero-sum game. But these 10 moments should live beyond the championship presentation.`\
 https://nytimes.com/athletic/7172630/2026/04/07/march-madness-best-plays-braylon-mullins-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7175723/2026/04/07/nba-awards-eligibility-65-games-
 **Boos fill Fenway as Boston's free-fall to MLB-worst record continues**\
 `The Red Sox now have an MLB-worst 2-8 record, matching their worst start through 10 games in franchise history.`\
 https://nytimes.com/athletic/7177349/2026/04/07/red-sox-lose-brewers-worst-record/
-
-**Final 5:28 in Atlanta could be turning point for Knicks' underwhelming starting 5**\
-`The Knicks starters made a statement in a win over the Hawks, and maybe built confidence along the way. `\
-https://nytimes.com/athletic/7177253/2026/04/07/knicks-hawks-jalen-brunson-karl-anthony-towns-clutch-win-playoffs/
 

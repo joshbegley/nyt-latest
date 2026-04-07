@@ -1,3 +1,7 @@
+**Joey Barton pleads not guilty to grievous bodily harm charge**\
+`Barton, 43, is jointly charged with 50-year-old Gary O'Grady, who has not yet entered a plea.`\
+https://nytimes.com/athletic/7177686/2026/04/07/joey-barton-plea-charge-golf-club/
+
 **The 10 coolest plays of men's 2026 March Madness, from Otega Oweh to Braylon Mullins**\
 `In practice, the NCAA Tournament is a zero-sum game. But these 10 moments should live beyond the championship presentation.`\
 https://nytimes.com/athletic/7172630/2026/04/07/march-madness-best-plays-braylon-mullins-2026/
