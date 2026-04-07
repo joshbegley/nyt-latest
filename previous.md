@@ -1,3 +1,7 @@
+**Patrice Evra interview: 'As a player, I had to be an animal. It's a toxic world in sport.'**\
+`In a compelling interview, the former Manchester United defender surveys the modern game`\
+https://nytimes.com/athletic/7171659/2026/04/07/manchester-united-patrice-evra-racism-football/
+
 **A coach secretly filmed his women players undressing – yet he can still work in football**\
 `Kristyna Janku has chosen to speak out about what happened - and football's apparent inability to make sure it does not happen again`\
 https://nytimes.com/athletic/7167630/2026/04/07/a-coach-secretly-filmed-his-women-players-undressing-yet-he-can-still-work-in-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7177367/2026/04/07/michigan-national-champions-visu
 **Trump Calls Artemis II Astronauts After Their Historic Journey Around the Moon**\
 `The conversation celebrated a small, but significant, step in an ambitious plan for missions to the moon and Mars that Mr. Trump had set early in his first term.`\
 https://nytimes.com/2026/04/07/us/politics/trump-nasa-artemis-astronauts-moon.html
-
-**Michigan's national title is the latest chapter in a year of Big Ten dominance**\
-`From Indiana football to Northwestern field hockey, the Big Ten has continued to win national championships across multiple sports.`\
-https://nytimes.com/athletic/7177301/2026/04/07/michigan-big-ten-dominance-national-championship/
 
