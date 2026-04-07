@@ -1,3 +1,11 @@
+**Weakened and Reluctant, Yemen’s Houthis Belatedly Enter War**\
+`Analysts say their delay in supporting Iran is partly because their capabilities were severely degraded by the U.S.-Israeli campaign last year.`\
+https://nytimes.com/2026/04/07/world/middleeast/houthis-iran-yemen-war.html
+
+**Health Insurance Companies Care About You. Agree or Disagree?**\
+`We put a doctor and a former insurance executive in a room.`\
+https://nytimes.com/video/opinion/100000010742069/health-insurance-companies-care-about-you-agree-or-disagree.html
+
 **Champions League quarter-final odds: Lamine Yamal's goal threat and a trap game for Arsenal**\
 `Barcelona's attack will be tough for Atletico Madrid to stop and in Lisbon, Sporting CP could spring a surprise`\
 https://nytimes.com/athletic/7177563/2026/04/07/champions-league-quarter-final-odds/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/07/insider/ben-blatt-new-york-times.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/04/07/crosswords/spelling-bee-forum.html
-
-**Patrice Evra interview: 'As a player, I had to be an animal. It's a toxic world in sport.'**\
-`In a compelling interview, the former Manchester United defender surveys the modern game`\
-https://nytimes.com/athletic/7171659/2026/04/07/manchester-united-patrice-evra-racism-football/
-
-**A coach secretly filmed his women players undressing – yet he can still work in football**\
-`Kristyna Janku has chosen to speak out about what happened - and football's apparent inability to make sure it does not happen again`\
-https://nytimes.com/athletic/7167630/2026/04/07/a-coach-secretly-filmed-his-women-players-undressing-yet-he-can-still-work-in-football/
 
