@@ -1,3 +1,19 @@
+**Three paths Rams could take to fill their backup quarterback need**\
+`How the Rams decide to fill their backup QB void could tell a lot about their future plans at the game's most important position.`\
+https://nytimes.com/athletic/7176683/2026/04/07/rams-backup-quarterback-search-matthew-stafford/
+
+**Wizards rookie Will Riley is a creative artist on and off the basketball court**\
+`Riley has emerged as one of the steals of the 2025 NBA Draft, and an important part of Washington's future.`\
+https://nytimes.com/athletic/7177128/2026/04/07/will-riley-wizards-rookie-artist/
+
+**Aaron Ramsey: Former Wales and Arsenal midfielder announces retirement**\
+`The 35-year-old has been without a club since he left Mexican side Pumas UNAM last summer. `\
+https://nytimes.com/athletic/7177727/2026/04/07/aaron-ramsey-retires-wales-arsenal/
+
+**2-time MVP and Golden Boot winner Temwa Chawinga’s aura charges KC Current**\
+`The Athletic chooses three words to describe Chawinga's 2026 debut and unpacks what it means for the Current.`\
+https://nytimes.com/athletic/7176650/2026/04/07/nwsl-temwa-chawinga-aura-charges-kc-current/
+
 **Why the Panthers locked in on Tetairoa McMillan a year ago: 'Not gonna overthink this'**\
 `Carolina GM Dan Morgan liked McMillan for a long time before the 2025 NFL Draft. The receiver proved Morgan and the Panthers right.`\
 https://nytimes.com/athletic/7170303/2026/04/07/carolina-panthers-tetairoa-mcmillan-nfl-draft-history/

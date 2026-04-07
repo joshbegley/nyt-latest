@@ -1,3 +1,7 @@
+**How to watch Orioles vs. White Sox: Time, TV, streaming for April 7**\
+`Find out how to watch the Baltimore Orioles play the Chicago White Sox, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7177775/2026/04/07/orioles-vs-white-sox-stream-how-to-watch-april-7/
+
 **Three paths Rams could take to fill their backup quarterback need**\
 `How the Rams decide to fill their backup QB void could tell a lot about their future plans at the game's most important position.`\
 https://nytimes.com/athletic/7176683/2026/04/07/rams-backup-quarterback-search-matthew-stafford/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7171899/2026/04/07/blues-robert-thomas-playoffs-mai
 **Bears roster tiers: Loveland, Burden join Caleb Williams in team's long-term core**\
 `In the sixth annual Bears roster tiers, the players are organized into tiers reflecting their long-term viability in Chicago.`\
 https://nytimes.com/athletic/7176905/2026/04/07/bears-roster-tiers-colston-loveland-luther-burden/
-
-**Ben Danford's season of evolution could lift him to the Leafs this fall**\
-`The young defenceman is preparing for a deep run in the OHL playoffs with the Brantford Bulldogs after losing in the final twice previously.`\
-https://nytimes.com/athletic/7174748/2026/04/07/ben-danford-maple-leafs-prospect-defence-ohl/
 
