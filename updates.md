@@ -1,3 +1,7 @@
+**Iranians Voice Shock and Defiance in Face of Trump’s Latest Deadline**\
+`President Trump has threatened devastating attacks if Iran does not reopen the Strait of Hormuz. Some Iranians questioned what had happened to American values.`\
+https://nytimes.com/2026/04/07/world/middleeast/iran-shock-defiance-trump-deadline-threat.html
+
 **How to watch Diamondbacks vs. Mets: Time, TV, streaming for April 7**\
 `Find out how to watch the Arizona Diamondbacks play the New York Mets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7177920/2026/04/07/diamondbacks-vs-mets-stream-how-to-watch-april-7/

@@ -1,3 +1,7 @@
+**Iranians Voice Shock and Defiance in Face of Trump’s Latest Deadline**\
+`President Trump has threatened devastating attacks if Iran does not reopen the Strait of Hormuz. Some Iranians questioned what had happened to American values.`\
+https://nytimes.com/2026/04/07/world/middleeast/iran-shock-defiance-trump-deadline-threat.html
+
 **How to watch Diamondbacks vs. Mets: Time, TV, streaming for April 7**\
 `Find out how to watch the Arizona Diamondbacks play the New York Mets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7177920/2026/04/07/diamondbacks-vs-mets-stream-how-to-watch-april-7/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/04/07/us/trump-news-updates
 **Thief of joy: An unsettled bullpen falters again and Giants fall to 1-7 at home**\
 `A 6-4 loss to the Phillies was the latest calamity for a team that is finding a new way to let the baton clatter to the track every night.`\
 https://nytimes.com/athletic/7177518/2026/04/07/giants-bullpen-lose-phillies/
-
-**Abramovich: Charity set up to oversee frozen £2.35bn from Chelsea sale**\
-`The Foundation for the Victims of Conflict will be overseen by a former UNICEF executive, and includes other high-profile trustees.`\
-https://nytimes.com/athletic/7177690/2026/04/07/roman-abramovich-chelsea-sale-foundation/
 
