@@ -1,3 +1,7 @@
+**Hudson Local Leans Toward Luxury With a Jean Georges Alum**\
+`The daiquiri is the star at Echo Lake, Vietnamese flavors are showcased at After Eden and more restaurant news.`\
+https://nytimes.com/2026/04/07/dining/nyc-restaurant-news.html
+
 **Britain Reinforces That U.S. Cannot Use British Bases for Attacks on Iran**\
 `The U.K. government underlined its previous stance that the United States could only use British bases for defensive purposes, after President Trump threatened to strike civilian targets.`\
 https://nytimes.com/2026/04/07/world/middleeast/britain-iran-bases.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7178288/2026/04/07/panthers-vs-canadiens-stream-how
 **How to watch Bruins vs. Hurricanes: Time, TV, streaming**\
 `Find out how to watch the Boston Bruins play the Carolina Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7178285/2026/04/07/bruins-vs-hurricanes-stream-how-to-watch-april-7/
-
-**As Kings hunt playoff berth, Forsberg — not Kuemper — deserves the net**\
-`The Kings are being diplomatic with their net options. But it's time to go with their best. Right now, that's Anton Forsberg.`\
-https://nytimes.com/athletic/7177632/2026/04/07/la-kings-anton-forsberg-nhl-playoffs/
 
