@@ -1,3 +1,15 @@
+**Michigan did something unusual before the championship. Did it help them win a title?**\
+`Michigan was prepared for the moment, confident, talented, and embracing the nuances, the things they hadn’t thought about before.`\
+https://nytimes.com/athletic/7177367/2026/04/07/michigan-national-champions-visualization-dusty-may/
+
+**Trump Calls Artemis II Astronauts After Their Historic Journey Around the Moon**\
+`The conversation celebrated a small, but significant, step in an ambitious plan for missions to the moon and Mars that Mr. Trump had set early in his first term.`\
+https://nytimes.com/2026/04/07/us/politics/trump-nasa-artemis-astronauts-moon.html
+
+**Michigan's national title is the latest chapter in a year of Big Ten dominance**\
+`From Indiana football to Northwestern field hockey, the Big Ten has continued to win national championships across multiple sports.`\
+https://nytimes.com/athletic/7177301/2026/04/07/michigan-big-ten-dominance-national-championship/
+
 **Welcome to Lincoln, the underdogs who could soon be welcoming some big Premier League names**\
 `Lincoln have won promotion to the Championship - potentially putting them in competition with top teams next season`\
 https://nytimes.com/athletic/7172301/2026/04/07/premier-league-clubs-lincoln-city-guide/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7175452/2026/04/07/italy-world-cup-serie-a-reform-f
 **Kane, Olise and Diaz: Bayern's formidable front three chasing Barcelona and Real Madrid greats**\
 `The trio are playing their first season together at Bayern Munich but have already scored 86 goals between them in all competitions`\
 https://nytimes.com/athletic/7166461/2026/04/07/kane-olise-diaz-bayern-front-three-goals-europe/
-
-**What we learned from Netflix’s documentary on a cheating scandal that rocked chess**\
-`‘Chess Mates,' from the Netflix Untold series, digs a little deeper into the chess cheating scandal that created headlines around the world`\
-https://nytimes.com/athletic/7166947/2026/04/07/netflix-chess-mates-review/
-
-**How the 'other' Luis Suarez replaced Viktor Gyokeres' goal threat at Sporting**\
-`Arsenal should be wary of a player in this kind of form and showing this kind of confidence`\
-https://nytimes.com/athletic/7169370/2026/04/07/uis-suarez-sporting-arsenal-gyokeres/
-
-**'A beast mentally': How Sporting view Gyokeres ahead of Champions League return**\
-`As Viktor Gyokeres prepares to face his former team, Sporting CP,  in the Champions League, we see how he is remembered in Portugal.`\
-https://nytimes.com/athletic/7169111/2026/04/07/viktor-gyokeres-arsenal-sporting/
 

@@ -1,3 +1,15 @@
+**Michigan did something unusual before the championship. Did it help them win a title?**\
+`Michigan was prepared for the moment, confident, talented, and embracing the nuances, the things they hadn’t thought about before.`\
+https://nytimes.com/athletic/7177367/2026/04/07/michigan-national-champions-visualization-dusty-may/
+
+**Trump Calls Artemis II Astronauts After Their Historic Journey Around the Moon**\
+`The conversation celebrated a small, but significant, step in an ambitious plan for missions to the moon and Mars that Mr. Trump had set early in his first term.`\
+https://nytimes.com/2026/04/07/us/politics/trump-nasa-artemis-astronauts-moon.html
+
+**Michigan's national title is the latest chapter in a year of Big Ten dominance**\
+`From Indiana football to Northwestern field hockey, the Big Ten has continued to win national championships across multiple sports.`\
+https://nytimes.com/athletic/7177301/2026/04/07/michigan-big-ten-dominance-national-championship/
+
 **Welcome to Lincoln, the underdogs who could soon be welcoming some big Premier League names**\
 `Lincoln have won promotion to the Championship - potentially putting them in competition with top teams next season`\
 https://nytimes.com/athletic/7172301/2026/04/07/premier-league-clubs-lincoln-city-guide/
