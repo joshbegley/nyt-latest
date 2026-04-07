@@ -1,3 +1,7 @@
+**Padres mailbag, Part 1: How will a sale and new ownership affect A.J. Preller?**\
+`With final bids for the Padres due soon, the stakes are high for Preller.`\
+https://nytimes.com/athletic/7176572/2026/04/07/padres-mailbag-new-ownership-aj-preller/
+
 **Amid Escalating Threats, U.S. and Iran Float Ideas to End War**\
 `Both countries have offered plans that could form the basis of negotiations. So far, each side’s leaders have publicly dismissed the other side’s proposals.`\
 https://nytimes.com/2026/04/07/world/middleeast/us-iran-war-negotiations-proposals.html

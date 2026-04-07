@@ -31,7 +31,7 @@ https://nytimes.com/2026/04/07/style/street-style-look-exaggerated-silhouette.ht
 https://nytimes.com/athletic/7176981/2026/04/07/fantasy-baseball-buy-sell-hold-cam-smith/
 
 **U.K. Bars Ye Over Antisemitism, Months Before Major Festival Performances**\
-`The BBC said that entry to the country was being denied to the rapper formerly known as Kanye West. The concert promoter behind Wireless, the festival he was due to headline, said that the event was now canceled.`\
+`The BBC reported that entry to the country was being denied to the rapper formerly known as Kanye West. The concert promoter behind Wireless, the festival he was due to headline, said that the event was now canceled.`\
 https://nytimes.com/2026/04/07/arts/music/kanye-west-ye-visa-ban-wireless.html
 
 **Ann Arbor goes wild (again): How Michigan celebrated another national championship**\

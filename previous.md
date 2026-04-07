@@ -1,3 +1,7 @@
+**Padres mailbag, Part 1: How will a sale and new ownership affect A.J. Preller?**\
+`With final bids for the Padres due soon, the stakes are high for Preller.`\
+https://nytimes.com/athletic/7176572/2026/04/07/padres-mailbag-new-ownership-aj-preller/
+
 **Stride for stride with Michigan's Dusty May on a late-night walk of champions**\
 `May rarely rides the bus after games, instead choosing to get some exercise, and he wasn’t breaking the habit on the night he won a title.`\
 https://nytimes.com/athletic/7177801/2026/04/07/dusty-may-michigan-national-championship-career/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/07/arts/music/kanye-west-ye-visa-ban-wireless.html
 **Ann Arbor goes wild (again): How Michigan celebrated another national championship**\
 `Michigan fans are the first since Florida 20 years ago to celebrate football and men's basketball national championships so close together.`\
 https://nytimes.com/athletic/7177755/2026/04/07/michigan-fans-national-championship-celebration-basketball/
-
-**Trump Administration Live Updates: Vance Visits Hungary to Support Orban’s Election Effort**\
-``\
-https://nytimes.com/live/2026/04/07/us/trump-news-updates
 
