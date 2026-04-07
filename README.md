@@ -1,3 +1,11 @@
+**How Tolls in the Strait of Hormuz Would Undercut International Law**\
+`Both the U.S. and Iran are now talking about imposing fees on ships using the vital passageway. That could fray a treaty that ended centuries of lawlessness on the high seas.`\
+https://nytimes.com/2026/04/07/climate/strait-of-hormuz-law-of-the-sea-tolls.html
+
+**How to watch Kings vs. Warriors: Time, TV, streaming**\
+`Find out how to watch the Sacramento Kings play the Golden State Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7178652/2026/04/07/kings-vs-warriors-stream-how-to-watch-april-7/
+
 **2 French Citizens Detained in Iran for Years Are Freed**\
 `The couple, who had been arrested during a tourist visit in 2022, were accused of spying in a case that galvanized the French public.`\
 https://nytimes.com/2026/04/07/world/middleeast/iran-french-couple-freed.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7178471/2026/04/07/fernando-mendoza-nfl-draft-atten
 **Eyes on the Far Side of the Moon**\
 `See the photos taken by the Artemis II astronauts during their moon flyby.`\
 https://nytimes.com/interactive/2026/04/07/science/space/moon-photos-artemis-2-nasa.html
-
-**John Harbaugh on Dexter Lawrence's trade demand: 'I believe Dexter wants to be here'**\
-`The star defensive tackle made his trade demand public on Monday.`\
-https://nytimes.com/athletic/7178469/2026/04/07/john-harbaugh-dexter-lawrence-trade-demand-new-york-giants/
-
-**Gunman Killed in Clash With Police Near Israeli Consulate in Istanbul**\
-`Three armed men clashed with the police in a shootout near the Israeli Consulate in Istanbul on Tuesday. The police killed one of the attackers and wounded the two others, officials said.`\
-https://nytimes.com/video/world/middleeast/100000010827246/istanbul-israel-consulate-gunman-killed.html
 
