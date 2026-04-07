@@ -2,7 +2,7 @@
 ``\
 https://nytimes.com/issue/todayspaper/2026/04/07/todays-new-york-times
 
-**Vance’s Deal With the Devil Isn’t Paying Off**\
+**How Much Humiliation Can JD Vance Take?**\
 `The vice president gets saddled with the Iran war and eroding popularity.`\
 https://nytimes.com/2026/04/07/opinion/jd-vance-trump-iran-hungary-orban.html
 
