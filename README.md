@@ -1,3 +1,7 @@
+**Dawn Staley says she spoke to Geno Auriemma, asks everyone to 'turn the page'**\
+`"I have a great deal of respect for him and what he's meant to this game," Staley said about Auriemma after their recent heated exchange.`\
+https://nytimes.com/athletic/7178573/2026/04/07/march-madness-geno-dawn-staley-incident-future/
+
 **Pentagon Stays Mum on School Strike, Even As Trump Boasts of Iran Rescue**\
 `President Trump and Secretary of Defense Pete Hegseth’s eagerness to recount details of the rescue of a downed airman followed weeks of silence on the deadly Tomahawk missile strike on an Iranian school.`\
 https://nytimes.com/2026/04/07/world/middleeast/iran-school-strike-pentagon.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7178652/2026/04/07/kings-vs-warriors-stream-how-to-
 **2 French Citizens Detained in Iran for Years Are Freed**\
 `The couple, who had been arrested during a tourist visit in 2022, were accused of spying in a case that galvanized the French public.`\
 https://nytimes.com/2026/04/07/world/middleeast/iran-french-couple-freed.html
-
-**Anthropic Claims Its New A.I. Model, Mythos, Is a Cybersecurity ‘Reckoning’**\
-`The company said on Tuesday that it was holding back on releasing the new technology but was working with 40 companies to explore how it could prevent cyberattacks.`\
-https://nytimes.com/2026/04/07/technology/anthropic-claims-its-new-ai-model-mythos-is-a-cybersecurity-reckoning.html
 
