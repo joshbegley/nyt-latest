@@ -1,3 +1,11 @@
+**How to watch Avalanche vs. Blues: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the St. Louis Blues, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7178565/2026/04/07/avalanche-vs-blues-stream-how-to-watch-april-7/
+
+**How to watch Kraken vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Seattle Kraken play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7178557/2026/04/07/kraken-vs-wild-stream-how-to-watch-april-7/
+
 **Georgia Special Election Runoff Results**\
 `Get live results and maps from the 2026 Georgia special election runoffs.`\
 https://nytimes.com/interactive/2026/us/elections/results-georgia-special-april-7.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7178524/2026/04/07/mariners-vs-rangers-stream-how-t
 **How to watch Tigers vs. Twins: Time, TV, streaming for April 7**\
 `Find out how to watch the Detroit Tigers play the Minnesota Twins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7178518/2026/04/07/tigers-vs-twins-stream-how-to-watch-april-7/
-
-**An Easter Egg Hunt in a California Park Leads to a Human Skull**\
-`The authorities said they were examining the skull, which a child found in a park in Long Beach on Sunday, to identify the remains.`\
-https://nytimes.com/2026/04/07/us/human-skull-easter-egg-hunt.html
-
-**Human Writers Who Rage Against A.I.**\
-`Readers discuss the ways writing and artificial intelligence don’t mix. Also: A degraded civil culture.`\
-https://nytimes.com/2026/04/07/opinion/writers-ai.html
 
