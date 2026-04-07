@@ -1,3 +1,7 @@
+**Michigan did something unusual before the championship. Did it help the Wolverines win?**\
+`Michigan was prepared for the moment, confident, talented and embracing the nuances, the things it hadn't thought about before.`\
+https://nytimes.com/athletic/7177367/2026/04/07/michigan-national-champions-visualization-dusty-may/
+
 **The New York Times in Print for Tuesday, April 7, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/04/07/todays-new-york-times
