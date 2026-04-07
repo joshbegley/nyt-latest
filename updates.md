@@ -1,3 +1,7 @@
+**FIFA opens proceedings against Spanish FA over anti-Muslim chants**\
+`Spanish fans in Catalonia were warned about the chants during the game. The songs were condemned by Spain's Lamine Yamal, who is Muslim.`\
+https://nytimes.com/athletic/7169711/2026/04/07/spain-anti-muslim-chants-investigation/
+
 **What I'm hearing about the Penguins: Murashov, McGroarty and magical pickups**\
 `The Penguins called up goaltender Sergei Murashov after Stuart Skinner's eye injury. Could we see him in the playoffs?`\
 https://nytimes.com/athletic/7171929/2026/04/07/penguins-nhl-playoffs-sergei-murashov-rutger-mcgroarty/

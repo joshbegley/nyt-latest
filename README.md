@@ -1,3 +1,7 @@
+**Britain Reinforces That U.S. Cannot Use British Bases for Attacks on Iran**\
+`The U.K. government underlined its previous stance that the United States could only use British bases for defensive purposes, after President Trump threatened to strike civilian targets.`\
+https://nytimes.com/2026/04/07/world/middleeast/britain-iran-bases.html
+
 **FIFA opens proceedings against Spanish FA over anti-Muslim chants**\
 `Spanish fans in Catalonia were warned about the chants during the game. The songs were condemned by Spain's Lamine Yamal, who is Muslim.`\
 https://nytimes.com/athletic/7169711/2026/04/07/spain-anti-muslim-chants-investigation/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7178285/2026/04/07/bruins-vs-hurricanes-stream-how-
 **As Kings hunt playoff berth, Forsberg — not Kuemper — deserves the net**\
 `The Kings are being diplomatic with their net options. But it's time to go with their best. Right now, that's Anton Forsberg.`\
 https://nytimes.com/athletic/7177632/2026/04/07/la-kings-anton-forsberg-nhl-playoffs/
-
-**How to watch Reds vs. Marlins: Time, TV, streaming for April 7**\
-`Find out how to watch the Cincinnati Reds play the Miami Marlins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7178265/2026/04/07/reds-vs-marlins-stream-how-to-watch-april-7/
 
