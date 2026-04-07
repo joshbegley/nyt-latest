@@ -1,3 +1,7 @@
+**Spanish players’ protest over soccer game in U.S. ruled ‘freedom of expression’**\
+`On Tuesday, Spain’s National Court said the players protest “did not constitute a strike” and was instead "freedom of expression".`\
+https://nytimes.com/athletic/7178191/2026/04/07/la-liga-protests-game-abroad/
+
 **U.S. and Israel Coordinate Strikes on Iran as Trump Turns Up Rhetoric**\
 `U.S. forces launched more than 90 “restrikes” on Kharg Island, Iran’s oil export hub, early on Tuesday but have avoided hitting oil infrastructure.`\
 https://nytimes.com/2026/04/07/us/politics/us-israel-iran-strikes-kharg-trump.html

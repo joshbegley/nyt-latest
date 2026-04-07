@@ -1,3 +1,11 @@
+**U.S., Israel and Iran Accelerate Strikes Ahead of Trump’s Deadline**\
+`The United States and Israel trying to force Iran to open the Strait of Hormuz, according to American and Israel officials.`\
+https://nytimes.com/2026/04/07/world/middleeast/us-israel-strikes-iran.html
+
+**Paul Seixas, 19, dominates Iztulia Basque Country: Is the Tour de France next?**\
+`The teenager may be sent by his Decathlon-CMA CGM team to the Tour de France, which has not had a French winner in 41 years.`\
+https://nytimes.com/athletic/7178438/2026/04/07/paul-seixas-cycling-tour-de-france/
+
 **Spanish players’ protest over soccer game in U.S. ruled ‘freedom of expression’**\
 `On Tuesday, Spain’s National Court said the players protest “did not constitute a strike” and was instead "freedom of expression".`\
 https://nytimes.com/athletic/7178191/2026/04/07/la-liga-protests-game-abroad/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/07/world/middleeast/shelly-kittleson-journalist-iraq
 **Review: Seeing a School Shooting on America’s Biggest Opera Stage**\
 `Kaija Saariaho’s “Innocence,” a powerful and kaleidoscopic depiction of mass violence and its aftermath, has arrived at the Metropolitan Opera.`\
 https://nytimes.com/2026/04/07/arts/music/innocence-met-opera-review.html
-
-**Jon Rahm, 2023 Masters champion, can't escape his Ryder Cup fight**\
-`“We're going to find a good solution for both of us,” Rahm said on Tuesday.`\
-https://nytimes.com/athletic/7178315/2026/04/07/jon-rahm-ryder-cup-dp-world-tour-fight/
-
-**6 Takeaways From the Story of Trump’s Decision to Go to War With Iran**\
-`New details from the weeks leading up to the campaign show how President Trump’s alignment with Benjamin Netanyahu and a lack of sustained opposition from his inner circle put the United States on a course to war.`\
-https://nytimes.com/2026/04/07/us/politics/trump-iran-war-takeaways.html
 
