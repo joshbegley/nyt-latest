@@ -1,3 +1,15 @@
+**‘Definitely a Sham’: As Tariffs Climb, Trade Fraud and Accounting Tricks Proliferate**\
+`U.S. imports from China have shrunk drastically. But billions of dollars of the change appear to be the result of accounting gimmicks and outright fraud.`\
+https://nytimes.com/2026/04/07/us/politics/tariffs-trade-import-fraud.html
+
+**Latest Topps basketball and baseball card release analysis and reviews**\
+`Our breakdowns of Topps Finest Basketball, Baseball Series 1 Celebration, Bowman's Best, Cosmic Chrome Basketball and Transcendent Baseball.`\
+https://nytimes.com/athletic/7176316/2026/04/07/topps-basketball-baseball-cards-odds-review/
+
+**American Journalist Kidnapped in Iraq Is Freed**\
+`The journalist, Shelly Kittleson, was abducted by a militia allied with Iran and held for a week. Iraqi officials say she was freed in exchange for the release of militia members.`\
+https://nytimes.com/2026/04/07/world/middleeast/shelly-kittleson-journalist-iraq.html
+
 **Review: Seeing a School Shooting on America’s Biggest Opera Stage**\
 `Kaija Saariaho’s “Innocence,” a powerful and kaleidoscopic depiction of mass violence and its aftermath, has arrived at the Metropolitan Opera.`\
 https://nytimes.com/2026/04/07/arts/music/innocence-met-opera-review.html

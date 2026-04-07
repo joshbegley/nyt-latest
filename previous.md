@@ -1,3 +1,15 @@
+**‘Definitely a Sham’: As Tariffs Climb, Trade Fraud and Accounting Tricks Proliferate**\
+`U.S. imports from China have shrunk drastically. But billions of dollars of the change appear to be the result of accounting gimmicks and outright fraud.`\
+https://nytimes.com/2026/04/07/us/politics/tariffs-trade-import-fraud.html
+
+**Latest Topps basketball and baseball card release analysis and reviews**\
+`Our breakdowns of Topps Finest Basketball, Baseball Series 1 Celebration, Bowman's Best, Cosmic Chrome Basketball and Transcendent Baseball.`\
+https://nytimes.com/athletic/7176316/2026/04/07/topps-basketball-baseball-cards-odds-review/
+
+**American Journalist Kidnapped in Iraq Is Freed**\
+`The journalist, Shelly Kittleson, was abducted by a militia allied with Iran and held for a week. Iraqi officials say she was freed in exchange for the release of militia members.`\
+https://nytimes.com/2026/04/07/world/middleeast/shelly-kittleson-journalist-iraq.html
+
 **Review: Seeing a School Shooting on America’s Biggest Opera Stage**\
 `Kaija Saariaho’s “Innocence,” a powerful and kaleidoscopic depiction of mass violence and its aftermath, has arrived at the Metropolitan Opera.`\
 https://nytimes.com/2026/04/07/arts/music/innocence-met-opera-review.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7178377/2026/04/07/hornets-vs-celtics-stream-how-to
 **How to watch Heat vs. Raptors: Time, TV, streaming**\
 `Find out how to watch the Miami Heat play the Toronto Raptors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7178373/2026/04/07/heat-vs-raptors-stream-how-to-watch-april-7/
-
-**How to watch Bucks vs. Nets: Time, TV, streaming**\
-`Find out how to watch the Milwaukee Bucks play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7178369/2026/04/07/bucks-vs-nets-stream-how-to-watch-april-7/
-
-**Joe Conzo Sr., Guardian of Tito Puente’s Legacy, Dies at 83**\
-`He went from being a fan of the “Mambo King” to becoming his manager and personal historian. Later, he kept alive memories of a bygone era of New York Latino culture.`\
-https://nytimes.com/2026/04/07/arts/music/joe-conzo-sr-dead.html
-
-**‘The Late Show’ Will Be Replaced by Byron Allen’s ‘Comics Unleashed,’ CBS Says**\
-`The comedian and longtime producer will bring his syndicated programming to the late-night slot that “The Late Show With Stephen Colbert” will vacate in May.`\
-https://nytimes.com/2026/04/07/business/media/colbert-late-show-replacement-byron-allen-cbs.html
 
