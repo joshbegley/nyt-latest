@@ -1,3 +1,19 @@
+**The Far Side**\
+`The Artemis II crew has gone farther from Earth than anyone has ever been.`\
+https://nytimes.com/2026/04/07/briefing/the-far-side-moon.html
+
+**Gunman Is Killed in Shootout Near Israeli Consulate in Istanbul, Official Says**\
+`Two other armed men were wounded in a clash with police officers, according to the regional governor.`\
+https://nytimes.com/2026/04/07/world/middleeast/istanbul-israel-consulate-shootout.html
+
+**Everton mailbag: Send your questions to Patrick Boyland now**\
+`Send in your questions for Everton writer Patrick Boyland's mailbag now`\
+https://nytimes.com/athletic/7177699/2026/04/07/everton-mailbag-questions-patrick-boyland/
+
+**Wrexham’s Okonkwo switches international allegiance to Nigeria**\
+`The former Arsenal goalkeeper represented England up to under-18 level.`\
+https://nytimes.com/athletic/7177664/2026/04/07/arthur-okonkwo-nigeria-wrexham/
+
 **Joey Barton pleads not guilty to grievous bodily harm charge**\
 `Barton, 43, is jointly charged with 50-year-old Gary O'Grady, who has not yet entered a plea.`\
 https://nytimes.com/athletic/7177686/2026/04/07/joey-barton-plea-charge-golf-club/
