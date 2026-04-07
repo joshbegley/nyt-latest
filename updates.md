@@ -1,3 +1,15 @@
+**Newlywed Wife of U.S. Soldier Released From Immigration Detention**\
+`The couple had gone to the husband’s Army base to complete paperwork so they could move in together. But within hours that plan derailed, and New York Times reporting about the case quickly spread.`\
+https://nytimes.com/2026/04/07/us/ice-newlywed-military-wife-detain.html
+
+**Mircea Lucescu dies at 80, 12 days after managing Romania in World Cup playoff**\
+`Lucescu oversaw Romania's 1-0 loss in Turkey on March 26, before being taken ill at the national side's training base three days later.`\
+https://nytimes.com/athletic/7173244/2026/04/07/romania-manager-lucescu-death/
+
+**Iran Calls Off Indirect Talks With U.S. After Trump’s Latest Threat**\
+`As the United States’ 8 p.m. deadline to open the Strait of Hormuz approaches, Iran vowed to retaliate if its power plants were attacked.`\
+https://nytimes.com/2026/04/07/world/middleeast/iran-trump-negotiations-talks-threat.html
+
 **ICE Agents Shoot Into a Car, Injuring a Suspect in Northern California**\
 `A federal official said the agents were pursuing a “wanted gang member” who tried to run one of them over. No confirmation of that account was immediately available.`\
 https://nytimes.com/2026/04/07/us/shooting-ice-california.html

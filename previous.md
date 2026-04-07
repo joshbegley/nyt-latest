@@ -1,4 +1,12 @@
-**Iran Calls Off Indirect Talks With U.S. After Trump Threatens to Destroy ‘A Whole Civilization’**\
+**Newlywed Wife of U.S. Soldier Released From Immigration Detention**\
+`The couple had gone to the husband’s Army base to complete paperwork so they could move in together. But within hours that plan derailed, and New York Times reporting about the case quickly spread.`\
+https://nytimes.com/2026/04/07/us/ice-newlywed-military-wife-detain.html
+
+**Mircea Lucescu dies at 80, 12 days after managing Romania in World Cup playoff**\
+`Lucescu oversaw Romania's 1-0 loss in Turkey on March 26, before being taken ill at the national side's training base three days later.`\
+https://nytimes.com/athletic/7173244/2026/04/07/romania-manager-lucescu-death/
+
+**Iran Calls Off Indirect Talks With U.S. After Trump’s Latest Threat**\
 `As the United States’ 8 p.m. deadline to open the Strait of Hormuz approaches, Iran vowed to retaliate if its power plants were attacked.`\
 https://nytimes.com/2026/04/07/world/middleeast/iran-trump-negotiations-talks-threat.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/07/technology/anthropic-claims-its-new-ai-model-myth
 **The air ball that won a D-III national championship: 'The failure of a lifetime'**\
 `Mary Washington’s Kye Robinson slipped while attempting a game-winner as time ran low. Luckily, Colin Mitchell was there to save the day.`\
 https://nytimes.com/athletic/7178409/2026/04/07/mary-washington-division-iii-game-winning-shot/
-
-**9 Ethereal, Emotional, Chaotic and Goofy Cloud-Rap Gems**\
-`A quick guide to the underground genre, featuring fakemink, Bladee, Yung Lean and more.`\
-https://nytimes.com/2026/04/07/arts/music/amplifier-newsletter-cloud-rap.html
-
-**Gulf Backers Invest $24 Billion in Paramount’s Deal for Warner Bros.**\
-`Despite speculation that the Iran war could scuttle commitments from Saudi Arabia and other Middle Eastern countries, their investments have been secured.`\
-https://nytimes.com/2026/04/07/business/gulf-invest-paramount-warner-bros.html
 
