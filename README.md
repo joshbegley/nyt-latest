@@ -1,3 +1,7 @@
+**Human Writers Who Rage Against A.I.**\
+`Readers discuss the ways writing and artificial intelligence don’t mix. Also: A degraded civil culture.`\
+https://nytimes.com/2026/04/07/opinion/writers-ai.html
+
 **U.S., Israel and Iran Accelerate Strikes Ahead of Trump’s Deadline**\
 `The United States and Israel are trying to force Iran to open the Strait of Hormuz, according to American and Israel officials.`\
 https://nytimes.com/2026/04/07/world/middleeast/us-israel-strikes-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7176316/2026/04/07/topps-basketball-baseball-cards-
 **American Journalist Kidnapped in Iraq Is Freed**\
 `The journalist, Shelly Kittleson, was abducted by a militia allied with Iran and held for a week. Iraqi officials say she was freed in exchange for the release of militia members.`\
 https://nytimes.com/2026/04/07/world/middleeast/shelly-kittleson-journalist-iraq.html
-
-**Review: Seeing a School Shooting on America’s Biggest Opera Stage**\
-`Kaija Saariaho’s “Innocence,” a powerful and kaleidoscopic depiction of mass violence and its aftermath, has arrived at the Metropolitan Opera.`\
-https://nytimes.com/2026/04/07/arts/music/innocence-met-opera-review.html
 

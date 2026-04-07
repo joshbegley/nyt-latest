@@ -1,3 +1,11 @@
+**U.S., Israel and Iran Accelerate Strikes Ahead of Trump’s Deadline**\
+`The United States and Israel are trying to force Iran to open the Strait of Hormuz, according to American and Israel officials.`\
+https://nytimes.com/2026/04/07/world/middleeast/us-israel-strikes-iran.html
+
+**Paul Seixas, 19, dominates Iztulia Basque Country: Is the Tour de France next?**\
+`The teenager may be sent by his Decathlon-CMA CGM team to the Tour de France, which has not had a French winner in 41 years.`\
+https://nytimes.com/athletic/7178438/2026/04/07/paul-seixas-cycling-tour-de-france/
+
 **Spanish players’ protest over soccer game in U.S. ruled ‘freedom of expression’**\
 `On Tuesday, Spain’s National Court said the players protest “did not constitute a strike” and was instead "freedom of expression".`\
 https://nytimes.com/athletic/7178191/2026/04/07/la-liga-protests-game-abroad/
