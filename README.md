@@ -1,5 +1,17 @@
+**Organ Meats**\
+`This debut from Adryel W. Robles Ojeda will set you free.`\
+https://nytimes.com/2026/04/06/crosswords/daily-puzzle-2026-04-07.html
+
+**‘Becky Shaw’ Review: Funny vs. Likable? Funny Wins.**\
+`Alden Ehrenreich makes a show-stealing Broadway debut in Gina Gionfriddo’s comedy about two old friends, one disastrous blind date and the dicey aftermath.`\
+https://nytimes.com/2026/04/06/theater/becky-shaw-review-alden-ehrenreich.html
+
+**The hundreds of mementos aboard Artemis II include a flag that never made it to the moon.**\
+`By Ashley Ahn`\
+https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/the-hundreds-of-mementos-aboard-artemis-ii-include-a-flag-that-never-made-it-to-the-moon
+
 **Wemby leaves Spurs-76ers game with left rib contusion after hurting shoulder**\
-`Because Wembanyama played 16 minutes, this will count as his second and final “near-miss” exemption for the 65-game rule.`\
+`Because Wembanyama played 16 minutes, this will count as his second and final "near-miss" exemption for the 65-game rule.`\
 https://nytimes.com/athletic/7177163/2026/04/06/victor-wembanyama-injury-update-rib-contusion-spurs-nba/
 
 **Wild sign top prospect Charlie Stramel after Michigan State’s exit**\
@@ -25,16 +37,4 @@ https://nytimes.com/2026/04/06/nyregion/mamdani-street-seder.html
 **Whale That Swam 20 Miles Up Washington River Is Found Dead**\
 `The gray whale, which some locals affectionately named Willapa Willy, was found on Saturday afternoon after first being spotted swimming up the Willapa River last week.`\
 https://nytimes.com/2026/04/06/us/gray-whale-dead-washington-river.html
-
-**Michael Malone to North Carolina: How other former NBA coaches fared in college**\
-`From Kevin Young to Larry Brown, several NBA coaches have taken a shot at mastering the college game. Here's how they did.`\
-https://nytimes.com/athletic/7176825/2026/04/06/michael-malone-former-nba-coaches-college/
-
-**In World Series rematch, Max Scherzer exits after just 2 innings**\
-`The Blue Jays have already weathered several injuries to their rotation, plus another for catcher Alejandro Kirk. `\
-https://nytimes.com/athletic/7177075/2026/04/06/blue-jays-dodgers-max-scherzer-early-exit/
-
-**The crew will see a solar eclipse while on the far side of the moon.**\
-`By Katrina Miller`\
-https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/the-crew-will-see-a-solar-eclipse-while-on-the-far-side-of-the-moon
 
