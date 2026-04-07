@@ -1,3 +1,7 @@
+**U.K. Bars Ye Over Antisemitism, Months Before Major Festival Performances**\
+`The BBC reported that entry to the country was being denied to the rapper formerly known as Kanye West. The concert promoter behind Wireless, the festival he was due to headline, said that the event was now canceled.`\
+https://nytimes.com/2026/04/07/arts/music/kanye-west-ye-visa-ban-wireless.html
+
 **Padres mailbag, Part 1: How will a sale and new ownership affect A.J. Preller?**\
 `With final bids for the Padres due soon, the stakes are high for Preller.`\
 https://nytimes.com/athletic/7176572/2026/04/07/padres-mailbag-new-ownership-aj-preller/

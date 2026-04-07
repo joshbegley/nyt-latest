@@ -1,3 +1,7 @@
+**Tiger Woods was ‘selfish’ to be driving at time of crash, Jason Day says**\
+`"He's just a human being like everyone else, and we have struggles," Day said Monday. "It's unfortunate."`\
+https://nytimes.com/athletic/7177850/2026/04/07/jason-day-tiger-woods-car-crash-masters/
+
 **Padres mailbag, Part 1: How will a sale and new ownership affect A.J. Preller?**\
 `With final bids for the Padres due soon, the stakes are high for Preller.`\
 https://nytimes.com/athletic/7176572/2026/04/07/padres-mailbag-new-ownership-aj-preller/
@@ -31,10 +35,6 @@ https://nytimes.com/2026/04/07/style/street-style-look-exaggerated-silhouette.ht
 https://nytimes.com/athletic/7176981/2026/04/07/fantasy-baseball-buy-sell-hold-cam-smith/
 
 **U.K. Bars Ye Over Antisemitism, Months Before Major Festival Performances**\
-`The BBC reported that entry to the country was being denied to the rapper formerly known as Kanye West. The concert promoter behind Wireless, the festival he was due to headline, said that the event was now canceled.`\
+`The BBC reported that entry to the country was being denied to the rapper formerly known as Kanye West. The festival he was due to headline is now canceled.`\
 https://nytimes.com/2026/04/07/arts/music/kanye-west-ye-visa-ban-wireless.html
-
-**Ann Arbor goes wild (again): How Michigan celebrated another national championship**\
-`Michigan fans are the first since Florida 20 years ago to celebrate football and men's basketball national championships so close together.`\
-https://nytimes.com/athletic/7177755/2026/04/07/michigan-fans-national-championship-celebration-basketball/
 
