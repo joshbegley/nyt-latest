@@ -1,40 +1,40 @@
+**Georgia 14th Congressional District Special Runoff Election Results**\
+`Get live results and maps from the 2026 Georgia 14th Congressional District special runoff election.`\
+https://nytimes.com/interactive/2026/us/elections/results-georgia-us-house-14-special-runoff.html
+
+**Wisconsin Supreme Court Election Results**\
+`Get live results and maps from the 2026 Wisconsin general election.`\
+https://nytimes.com/interactive/2026/us/elections/results-wisconsin-supreme-court.html
+
+**How to watch Astros vs. Rockies: Time, TV, streaming for April 7**\
+`Find out how to watch the Houston Astros play the Colorado Rockies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7178535/2026/04/07/astros-vs-rockies-stream-how-to-watch-april-7/
+
+**Georgia Special Election Runoff Results**\
+`Get live results and maps from the 2026 Georgia special election runoffs.`\
+https://nytimes.com/interactive/2026/us/elections/results-georgia-special-april-7.html
+
+**Wisconsin Spring Election Results**\
+`Get live results and maps from the 2026 Wisconsin spring elections.`\
+https://nytimes.com/interactive/2026/us/elections/results-wisconsin-spring-election.html
+
+**How to watch Mariners vs. Rangers: Time, TV, streaming for April 7**\
+`Find out how to watch the Seattle Mariners play the Texas Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7178524/2026/04/07/mariners-vs-rangers-stream-how-to-watch-april-7/
+
+**How to watch Tigers vs. Twins: Time, TV, streaming for April 7**\
+`Find out how to watch the Detroit Tigers play the Minnesota Twins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7178518/2026/04/07/tigers-vs-twins-stream-how-to-watch-april-7/
+
 **An Easter Egg Hunt in a California Park Leads to a Human Skull**\
 `The authorities said they were examining the skull, which a child found in a park in Long Beach on Sunday, to identify the remains.`\
 https://nytimes.com/2026/04/07/us/human-skull-easter-egg-hunt.html
 
+**Waukesha Mayor Election Results**\
+`Get live results and maps from the 2026 Waukesha mayor election.`\
+https://nytimes.com/interactive/2026/us/elections/results-wisconsin-mayor-waukesha.html
+
 **Human Writers Who Rage Against A.I.**\
 `Readers discuss the ways writing and artificial intelligence don’t mix. Also: A degraded civil culture.`\
 https://nytimes.com/2026/04/07/opinion/writers-ai.html
-
-**U.S., Israel and Iran Accelerate Strikes Ahead of Trump’s Deadline**\
-`The United States and Israel are trying to force Iran to open the Strait of Hormuz, according to American and Israel officials.`\
-https://nytimes.com/2026/04/07/world/middleeast/us-israel-strikes-iran.html
-
-**Paul Seixas, 19, dominates Iztulia Basque Country: Is the Tour de France next?**\
-`The teenager may be sent by his Decathlon-CMA CGM team to the Tour de France, which has not had a French winner in 41 years.`\
-https://nytimes.com/athletic/7178438/2026/04/07/paul-seixas-cycling-tour-de-france/
-
-**Spanish players’ protest over soccer game in U.S. ruled ‘freedom of expression’**\
-`On Tuesday, Spain’s National Court said the players protest “did not constitute a strike” and was instead "freedom of expression".`\
-https://nytimes.com/athletic/7178191/2026/04/07/la-liga-protests-game-abroad/
-
-**U.S. and Israel Coordinate Strikes on Iran as Trump Turns Up Rhetoric**\
-`U.S. forces launched more than 90 “restrikes” on Kharg Island, Iran’s oil export hub, early on Tuesday but have avoided hitting oil infrastructure.`\
-https://nytimes.com/2026/04/07/us/politics/us-israel-iran-strikes-kharg-trump.html
-
-**Lebanese Mourn Couple Killed in Israeli Strike, Exposing Rift Over Hezbollah**\
-`The victims had no ties to Hezbollah, and Israel said they were not targets. Many Lebanese are angry with Israel, but also with Hezbollah for embroiling their country in the war.`\
-https://nytimes.com/2026/04/07/world/middleeast/lebanon-couple-killed-israeli-strike.html
-
-**NBA Rookie of the Year odds: 2 former Duke teammates locked in incredibly tight race**\
-`Former Duke teammates Cooper Flagg and Kon Knueppel are battling for NBA Rookie of the Year in one of the closest races in recent memory.`\
-https://nytimes.com/athletic/7178182/2026/04/07/nba-rookie-of-the-year-odds-flagg-knueppel/
-
-**‘Definitely a Sham’: As Tariffs Climb, Trade Fraud and Accounting Tricks Proliferate**\
-`U.S. imports from China have shrunk drastically. But billions of dollars of the change appear to be the result of accounting gimmicks and outright fraud.`\
-https://nytimes.com/2026/04/07/us/politics/tariffs-trade-import-fraud.html
-
-**Latest Topps basketball and baseball card release analysis and reviews**\
-`Our breakdowns of Topps Finest Basketball, Baseball Series 1 Celebration, Bowman's Best, Cosmic Chrome Basketball and Transcendent Baseball.`\
-https://nytimes.com/athletic/7176316/2026/04/07/topps-basketball-baseball-cards-odds-review/
 
