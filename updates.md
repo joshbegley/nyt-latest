@@ -1,3 +1,11 @@
+**How to watch Royals vs. Guardians: Time, TV, streaming for April 7**\
+`Find out how to watch the Kansas City Royals play the Cleveland Guardians, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7177637/2026/04/07/royals-vs-guardians-stream-how-to-watch-april-7/
+
+**History says long shots don't win the Masters, but is this the year?**\
+`The Masters is uniquely difficult for long shots. But there are a few who could challenge this year.`\
+https://nytimes.com/athletic/7175768/2026/04/07/masters-2026-odds-long-shot-winner/
+
 **Australia Charges Ex-Soldier With War Crimes in Afghanistan**\
 `The suspect, charged with five counts of murder, is accused of killing or ordering the killings of unarmed civilians during the Afghan war.`\
 https://nytimes.com/2026/04/07/world/australia/australia-soldier-afghanistan-war-crimes-roberts-smith.html
