@@ -1,3 +1,7 @@
+**Quote of the Day: Artemis II Astronauts Reach New Frontier in Human Travel**\
+`Quotation of the Day for Tuesday, April 7, 2026.`\
+https://nytimes.com/2026/04/06/pageoneplus/quote-of-the-day-artemis-ii-astronauts-reach-new-frontier-in-human-travel.html
+
 **2027 men's college basketball title odds: Duke favored ahead of Michigan**\
 `Michigan just won the national title, but Duke opens as the favorite to win it all in 2027.`\
 https://nytimes.com/athletic/7177273/2026/04/06/2027-mens-college-basketball-title-odds-duke-michigan/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/the
 **Wemby leaves Spurs-76ers game with left rib contusion after hurting shoulder**\
 `Because Wembanyama played 16 minutes, this will count as his second and final "near-miss" exemption for the 65-game rule.`\
 https://nytimes.com/athletic/7177163/2026/04/06/victor-wembanyama-injury-update-rib-contusion-spurs-nba/
-
-**Wild sign top prospect Charlie Stramel after Michigan State’s exit**\
-`Charlie Stramel was deemed by many a bust at Wisconsin but thrived after a transfer to Michigan State.`\
-https://nytimes.com/athletic/7152526/2026/04/06/wild-sign-charlie-stramel-michigan-state/
 

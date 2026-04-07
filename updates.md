@@ -1,3 +1,7 @@
+**2027 men's college basketball title odds: Duke favored ahead of Michigan**\
+`Michigan just won the national title, but Duke opens as the favorite to win it all in 2027.`\
+https://nytimes.com/athletic/7177273/2026/04/06/2027-mens-college-basketball-title-odds-duke-michigan/
+
 **After HBP, Willson Contreras tells Brewers he's taking action next time**\
 `Even after changing divisions, Contreras made his disdain for the Brewers abundantly clear Monday evening. `\
 https://nytimes.com/athletic/7177261/2026/04/06/red-sox-brewers-willson-contreras-hit-by-pitch/

@@ -1,3 +1,7 @@
+**2027 men's college basketball title odds: Duke favored ahead of Michigan**\
+`Michigan just won the national title, but Duke opens as the favorite to win it all in 2027.`\
+https://nytimes.com/athletic/7177273/2026/04/06/2027-mens-college-basketball-title-odds-duke-michigan/
+
 **After HBP, Willson Contreras tells Brewers he's taking action next time**\
 `Even after changing divisions, Contreras made his disdain for the Brewers abundantly clear Monday evening. `\
 https://nytimes.com/athletic/7177261/2026/04/06/red-sox-brewers-willson-contreras-hit-by-pitch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7177163/2026/04/06/victor-wembanyama-injury-update-
 **Wild sign top prospect Charlie Stramel after Michigan State’s exit**\
 `Charlie Stramel was deemed by many a bust at Wisconsin but thrived after a transfer to Michigan State.`\
 https://nytimes.com/athletic/7152526/2026/04/06/wild-sign-charlie-stramel-michigan-state/
-
-**How Trump’s Endorsement in California Could Backfire Against Republicans**\
-`President Trump endorsed Steve Hilton, a Republican, in the governor’s race, which could help Democrats avoid being shut out of the general election.`\
-https://nytimes.com/2026/04/06/us/california-governor-trump-hilton-democrats.html
 
