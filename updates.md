@@ -1,3 +1,11 @@
+**Stephen Colbert Says Trump Went ‘100 Percent Cage-Free Crazy’ for Easter**\
+`Late night hosts mocked the president’s expletive-filled ultimatum to Iran, posted on Easter Sunday morning.`\
+https://nytimes.com/2026/04/07/arts/television/stephen-colbert-trump-iran-easter-post.html
+
+**Oil Prices Jump as Trump’s Deadline for Deal Draws Near**\
+`President Trump's Tuesday evening deadline for a deal approached after he rejected a cease-fire proposal as “not good enough.”`\
+https://nytimes.com/2026/04/07/business/oil-stocks-gas-prices-iran.html
+
 **Word of the Day: contiguous**\
 `This word has appeared in 44 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/04/07/learning/word-of-the-day-contiguous.html

@@ -1,3 +1,11 @@
+**Stephen Colbert Says Trump Went ‘100 Percent Cage-Free Crazy’ for Easter**\
+`Late night hosts mocked the president’s expletive-filled ultimatum to Iran, posted on Easter Sunday morning.`\
+https://nytimes.com/2026/04/07/arts/television/stephen-colbert-trump-iran-easter-post.html
+
+**Oil Prices Jump as Trump’s Deadline for Deal Draws Near**\
+`President Trump's Tuesday evening deadline for a deal approached after he rejected a cease-fire proposal as “not good enough.”`\
+https://nytimes.com/2026/04/07/business/oil-stocks-gas-prices-iran.html
+
 **Word of the Day: contiguous**\
 `This word has appeared in 44 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/04/07/learning/word-of-the-day-contiguous.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7177301/2026/04/07/michigan-big-ten-dominance-natio
 **Are Real Madrid's big stars actually their biggest problem?**\
 `Alvaro Arbeloa's team were flying during a recent injury crisis. With their galacticos back, they slumped to defeat, with Bayern Munich next`\
 https://nytimes.com/athletic/7175848/2026/04/07/real-madrid-champions-league-mbappe-bellingham-vinicius-jr/
-
-**Milner, Mitoma, Van Hecke - Brighton's contract situation and what happens next**\
-`There are some big decisions to be made, which will have an impact on Brighton's trading in this summer's transfer window.`\
-https://nytimes.com/athletic/7163686/2026/04/07/brighton-expiring-contracts-plans/
-
-**Aston Villa rejoice at the return of Youri Tielemans, their midfield metronome**\
-`The Belgian has been absent with an ankle injury since January, but his cameos for the national team suggest is he ready to make his mark`\
-https://nytimes.com/athletic/7166230/2026/04/07/youri-tielemans-aston-villa-emery-return/
 
