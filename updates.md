@@ -1,3 +1,7 @@
+**Bill Ackman’s Fund Offers to Buy Universal Music in $64 Billion Deal**\
+`The complex transaction pitched by the billionaire hedge fund manager would need to pass muster with the music label’s shareholders.`\
+https://nytimes.com/2026/04/07/business/dealbook/bill-ackman-universal-music-merger.html
+
 **You Don’t Yell at a Broadway Show. But What if It’s ‘Rocky Horror’?**\
 `The new musical is trying to calibrate just how much to rein in the audience participation that longtime fans are used to.`\
 https://nytimes.com/2026/04/07/theater/rocky-horror-show-broadway-audience.html

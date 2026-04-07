@@ -1,3 +1,7 @@
+**Australia Charges Ex-Soldier With War Crimes in Afghanistan**\
+`The suspect, charged with five counts of murder, is accused of killing or ordering the killings of unarmed civilians during the Afghan war.`\
+https://nytimes.com/2026/04/07/world/australia/australia-soldier-afghanistan-war-crimes-roberts-smith.html
+
 **Bill Ackman’s Fund Offers to Buy Universal Music in $64 Billion Deal**\
 `The complex transaction pitched by the billionaire hedge fund manager would need to pass muster with the music label’s shareholders.`\
 https://nytimes.com/2026/04/07/business/dealbook/bill-ackman-universal-music-merger.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/07/opinion/political-power-citizens-assemblies.html
 **Do You Like Amusement Parks?**\
 `Six Flags announced plans to close some of its parks. What would it mean for you if your local amusement park shut down?`\
 https://nytimes.com/2026/04/07/learning/do-you-like-amusement-parks.html
-
-**Fact-Checking Republicans’ Misleading Claims About Problematic Elections**\
-`President Trump, his administration and G.O.P. lawmakers have claimed widespread issues with mailed ballots and fraudulent voting, but the evidence doesn’t support them.`\
-https://nytimes.com/2026/04/07/us/politics/trump-mail-voting-elections-fact-check.html
 
