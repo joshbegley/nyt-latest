@@ -1,3 +1,23 @@
+**Welcome to Lincoln, the underdogs who could soon be welcoming some big Premier League names**\
+`Lincoln have won promotion to the Championship - potentially putting them in competition with top teams next season`\
+https://nytimes.com/athletic/7172301/2026/04/07/premier-league-clubs-lincoln-city-guide/
+
+**Are Real Madrid's big stars actually their biggest problem?**\
+`Alvaro Arbeloa's team were flying during a recent injury crisis. With their galacticos back, they slumped to defeat, with Bayern Munich next`\
+https://nytimes.com/athletic/7175848/2026/04/07/real-madrid-champions-league-mbappe-bellingham-vinicius-jr/
+
+**Milner, Mitoma, Van Hecke - Brighton's contract situation and what happens next**\
+`There are some big decisions to be made, which will have an impact on Brighton's trading in this summer's transfer window.`\
+https://nytimes.com/athletic/7163686/2026/04/07/brighton-expiring-contracts-plans/
+
+**Aston Villa rejoice at the return of Youri Tielemans, their midfield metronome**\
+`The Belgian has been absent with an ankle injury since January, but his cameos for the national team suggest is he ready to make his mark`\
+https://nytimes.com/athletic/7166230/2026/04/07/youri-tielemans-aston-villa-emery-return/
+
+**Defensive discipline, high pressing and a reliable out-ball: How Liverpool can challenge PSG**\
+`Arne Slot's side face a monumental task against the defending European champions. These the key areas that they should be focusing on`\
+https://nytimes.com/athletic/7175551/2026/04/07/liverpool-slot-champions-league-psg/
+
 **How does Italian football move on from crushing failure to reach another World Cup?**\
 `One former player is calling for Pep Guardiola to lead Italy into a new era. First of all they need a new president, with elections in June`\
 https://nytimes.com/athletic/7175452/2026/04/07/italy-world-cup-serie-a-reform-future/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7169370/2026/04/07/uis-suarez-sporting-arsenal-gyok
 **'A beast mentally': How Sporting view Gyokeres ahead of Champions League return**\
 `As Viktor Gyokeres prepares to face his former team, Sporting CP,  in the Champions League, we see how he is remembered in Portugal.`\
 https://nytimes.com/athletic/7169111/2026/04/07/viktor-gyokeres-arsenal-sporting/
-
-**Madrid, Bayern, the story of 'La Bestia Negra' – and whether the nickname still works...**\
-`The two European giants meet tonight. We explain a nickname associated with the rivalry that goes back 50 years...`\
-https://nytimes.com/athletic/7175394/2026/04/07/real-madrid-bayern-munich-the-story-of-la-bestia-negra-and-whether-the-nickname-still-works/
-
-**Eight Tennessee women's basketball players to transfer, leaving one on roster**\
-`Oliviyah Edwards, the No. 2 recruit, decommitted last week, while Gabby Minus is set to start her freshman season later this year.`\
-https://nytimes.com/athletic/7177165/2026/04/07/kim-caldwell-tennessee-womens-basketball-transfer-portal/
-
-**Sporting CP's Rui Borges: From amateur coaching to historic match against Arsenal**\
-`The Sporting coach is on the brink of taking the club to the Champions League quarter-finals - it has been a rapid rise for the 44-year-old`\
-https://nytimes.com/athletic/7001214/2026/04/07/sporting-rui-borges-arsenal/
-
-**Vance to Visit Hungary to Boost Orban Before Election**\
-`A scheduled visit by the American vice president, JD Vance, makes clear that Russia is not the only country invested in a victory for Hungary’s leader, Viktor Orban.`\
-https://nytimes.com/2026/04/07/world/europe/vance-hungary-orban-fidesz-election.html
-
-**Why Hungary’s Election Could Swing on Roma Votes**\
-`Prime Minister Viktor Orban’s policies affecting the Roma minority have put those voters in play in upcoming parliamentary elections. In a tight race, they could make the difference.`\
-https://nytimes.com/2026/04/07/world/europe/hungary-roma-orban-election-education.html
 
