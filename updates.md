@@ -1,3 +1,7 @@
+**Defensive discipline, high pressing and a reliable out-ball: How Liverpool can challenge PSG**\
+`Arne Slot's side face a monumental task against the defending European champions. These the key areas that they should be focusing on`\
+https://nytimes.com/athletic/7175551/2026/04/07/liverpool-slot-champions-league-psg/
+
 **Michigan did something unusual before the championship. Did it help the Wolverines win?**\
 `Michigan was prepared for the moment, confident, talented and embracing the nuances, the things it hadn't thought about before.`\
 https://nytimes.com/athletic/7177367/2026/04/07/michigan-national-champions-visualization-dusty-may/
