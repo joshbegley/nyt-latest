@@ -1,4 +1,4 @@
-**Michigan did something unusual before the championship. Did it help them win a title?**\
+**Michigan did something unusual before the championship. Did it help the Wolverines win?**\
 `Michigan was prepared for the moment, confident, talented, and embracing the nuances, the things they hadn’t thought about before.`\
 https://nytimes.com/athletic/7177367/2026/04/07/michigan-national-champions-visualization-dusty-may/
 
