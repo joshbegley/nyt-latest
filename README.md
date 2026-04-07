@@ -1,3 +1,15 @@
+**Devils' new GM to face critical offseason, starting with a coaching decision**\
+`With the firing of Tom Fitzgerald, New Jersey needs a new front-office boss. Let's dive into what that person should address first.`\
+https://nytimes.com/athletic/7177881/2026/04/07/nj-devils-gm-search-leadership-coach-future-roster/
+
+**Fernando Mendoza won't be attending NFL Draft in Pittsburgh: Source**\
+`Mendoza could be the first No. 1 pick to not attend the draft since Jaguars defensive end Travon Walker in 2022.`\
+https://nytimes.com/athletic/7178471/2026/04/07/fernando-mendoza-nfl-draft-attendance/
+
+**Eyes on the Far Side of the Moon**\
+`See the photos taken by the Artemis II astronauts during their moon flyby.`\
+https://nytimes.com/interactive/2026/04/07/science/space/moon-photos-artemis-2-nasa.html
+
 **John Harbaugh on Dexter Lawrence's trade demand: 'I believe Dexter wants to be here'**\
 `The star defensive tackle made his trade demand public on Monday.`\
 https://nytimes.com/athletic/7178469/2026/04/07/john-harbaugh-dexter-lawrence-trade-demand-new-york-giants/
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2026/us/elections/results-georgia-special-april-
 **Wisconsin Spring Election Results**\
 `Get live results and maps from the 2026 Wisconsin spring elections.`\
 https://nytimes.com/interactive/2026/us/elections/results-wisconsin-spring-election.html
-
-**Georgia 14th Congressional District Special Runoff Election Results**\
-`Get live results and maps from the 2026 Georgia 14th Congressional District special runoff election.`\
-https://nytimes.com/interactive/2026/us/elections/results-georgia-us-house-14-special-runoff.html
-
-**Wisconsin Supreme Court Election Results**\
-`Get live results and maps from the 2026 Wisconsin general election.`\
-https://nytimes.com/interactive/2026/us/elections/results-wisconsin-supreme-court.html
-
-**How to watch Astros vs. Rockies: Time, TV, streaming for April 7**\
-`Find out how to watch the Houston Astros play the Colorado Rockies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7178535/2026/04/07/astros-vs-rockies-stream-how-to-watch-april-7/
 
