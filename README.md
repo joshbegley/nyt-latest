@@ -1,3 +1,19 @@
+**The Bulls' GM hire won't matter if they don't acknowledge reality**\
+`As an organization, Chicago has lacked the ability to look in the mirror and accurately describe what is looking back at it.`\
+https://nytimes.com/athletic/7177726/2026/04/07/chicago-bulls-general-manger-search-honesty/
+
+**First Photos From NASA Moon Flyby Show Setting Earth and Eclipse**\
+`The White House and NASA released imagery captured by the cameras of the four astronauts of the Artemis II mission.`\
+https://nytimes.com/2026/04/07/science/nasa-artemis-moon-flyby-photos.html
+
+**Kim Jong-un’s Daughter Drives a Tank**\
+`South Korea’s spy agency now believes that Kim Ju-ae has officially been chosen to succeed her father, the North Korean leader, according to South Korean lawmakers briefed on the matter.`\
+https://nytimes.com/video/world/asia/100000010826991/north-korea-kim-daughter-tank.html
+
+**The Bounce: Ugly championships still count. Plus, the Bulls clean house**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7166656/2026/04/07/michigan-ncaa-title-bulls-firings-the-bounce/
+
 **Steve McMichael, late Bears great and Hall of Famer, had CTE, researchers find**\
 `The Pro Football Hall of Famer died in 2025 at age 67 after a five-year battle with ALS.`\
 https://nytimes.com/athletic/7178040/2026/04/07/bears-steve-mcmichael-cte-diagnosed/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/04/07/world/middleeast/iran-shock-defiance-trump-deadli
 **How to watch Diamondbacks vs. Mets: Time, TV, streaming for April 7**\
 `Find out how to watch the Arizona Diamondbacks play the New York Mets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7177920/2026/04/07/diamondbacks-vs-mets-stream-how-to-watch-april-7/
-
-**Amid Escalating Threats, U.S. and Iran Float Ideas to End War**\
-`Both countries have offered plans that could form the basis of negotiations. So far, each side’s leaders have publicly dismissed the other side’s proposals.`\
-https://nytimes.com/2026/04/07/world/middleeast/us-iran-war-negotiations-proposals.html
-
-**The Chargers should trade down in draft's first round. Can they find a partner?**\
-`A trade down is logical for multiple reasons. Can GM Joe Hortiz find the partner to make it happen?`\
-https://nytimes.com/athletic/7176687/2026/04/07/chargers-nfl-draft-trade-first-round/
-
-**Not Your Average Sweater and Jeans**\
-`Shoulder pads and denim flaps made wardrobe basics look less ordinary.`\
-https://nytimes.com/2026/04/07/style/street-style-look-exaggerated-silhouette.html
-
-**Buy Cam Smith, sell Munetaka Murakami, hold Jesús Sánchez in fantasy baseball**\
-`Why Owen Poindexter's buying Willy Adames and offloading Munetaka Murakami.`\
-https://nytimes.com/athletic/7176981/2026/04/07/fantasy-baseball-buy-sell-hold-cam-smith/
 
