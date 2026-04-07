@@ -1,3 +1,7 @@
+**An Easter Egg Hunt in a California Park Leads to a Human Skull**\
+`The authorities said they were examining the skull, which a child found in a park in Long Beach on Sunday, to identify the remains.`\
+https://nytimes.com/2026/04/07/us/human-skull-easter-egg-hunt.html
+
 **Human Writers Who Rage Against A.I.**\
 `Readers discuss the ways writing and artificial intelligence don’t mix. Also: A degraded civil culture.`\
 https://nytimes.com/2026/04/07/opinion/writers-ai.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/07/us/politics/tariffs-trade-import-fraud.html
 **Latest Topps basketball and baseball card release analysis and reviews**\
 `Our breakdowns of Topps Finest Basketball, Baseball Series 1 Celebration, Bowman's Best, Cosmic Chrome Basketball and Transcendent Baseball.`\
 https://nytimes.com/athletic/7176316/2026/04/07/topps-basketball-baseball-cards-odds-review/
-
-**American Journalist Kidnapped in Iraq Is Freed**\
-`The journalist, Shelly Kittleson, was abducted by a militia allied with Iran and held for a week. Iraqi officials say she was freed in exchange for the release of militia members.`\
-https://nytimes.com/2026/04/07/world/middleeast/shelly-kittleson-journalist-iraq.html
 
