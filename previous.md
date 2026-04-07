@@ -1,3 +1,7 @@
+**How Trump’s Endorsement in California Could Backfire Against Republicans**\
+`President Trump endorsed Steve Hilton, a Republican, in the governor’s race, which could help Democrats avoid being shut out of the general election.`\
+https://nytimes.com/2026/04/06/us/california-governor-trump-hilton-democrats.html
+
 **The first earthlings to the moon weren’t humans. They were tortoises.**\
 `By Ashley Ahn`\
 https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/the-first-earthlings-to-the-moon-werent-humans-they-were-tortoises
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/06/us/politics/hegseth-religious-tone.html
 **Trump Threatens Jail if Journalists Protect Certain Iran Sources**\
 `The president indicated he would ask an unnamed media outlet to reveal the sources behind its coverage of Iran’s successful strike on a U.S. fighter jet, and of its crew.`\
 https://nytimes.com/2026/04/06/business/media/trump-jail-journalists-fighter-crew.html
-
-**Firing Bulls' front office was easy decision. Can Reinsdorfs find a way out of malaise?**\
-`In the 11 seasons since parting with Tom Thibodeau, the team has had three head coaches and is 378-493, with just two playoff appearances.`\
-https://nytimes.com/athletic/7176874/2026/04/06/bulls-fire-front-office-arturas-karnisovas-marc-eversley/
 

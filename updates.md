@@ -1,3 +1,7 @@
+**How Trump’s Endorsement in California Could Backfire Against Republicans**\
+`President Trump endorsed Steve Hilton, a Republican, in the governor’s race, which could help Democrats avoid being shut out of the general election.`\
+https://nytimes.com/2026/04/06/us/california-governor-trump-hilton-democrats.html
+
 **The first earthlings to the moon weren’t humans. They were tortoises.**\
 `By Ashley Ahn`\
 https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/the-first-earthlings-to-the-moon-werent-humans-they-were-tortoises
