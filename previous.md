@@ -1,3 +1,15 @@
+**The New York Times in Print for Tuesday, April 7, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/04/07/todays-new-york-times
+
+**Vance’s Deal With the Devil Isn’t Paying Off**\
+`The vice president gets saddled with the Iran war and eroding popularity.`\
+https://nytimes.com/2026/04/07/opinion/jd-vance-trump-iran-hungary-orban.html
+
+**The Fire in the West Bank Is Burning Hotter, Out of Sight**\
+`An Israeli law aiming capital punishment at Palestinians but not Jewish settlers is immoral, unconstitutional and part of a larger effort to suppress rights.`\
+https://nytimes.com/2026/04/07/opinion/israel-palestinians-west-bank-death-penalty.html
+
 **Michigan did something unusual before the championship. Did it help the Wolverines win?**\
 `Michigan was prepared for the moment, confident, talented, and embracing the nuances, the things they hadn’t thought about before.`\
 https://nytimes.com/athletic/7177367/2026/04/07/michigan-national-champions-visualization-dusty-may/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7163686/2026/04/07/brighton-expiring-contracts-plan
 **Aston Villa rejoice at the return of Youri Tielemans, their midfield metronome**\
 `The Belgian has been absent with an ankle injury since January, but his cameos for the national team suggest is he ready to make his mark`\
 https://nytimes.com/athletic/7166230/2026/04/07/youri-tielemans-aston-villa-emery-return/
-
-**Defensive discipline, high pressing and a reliable out-ball: How Liverpool can challenge PSG**\
-`Arne Slot's side face a monumental task against the defending European champions. These the key areas that they should be focusing on`\
-https://nytimes.com/athletic/7175551/2026/04/07/liverpool-slot-champions-league-psg/
-
-**How does Italian football move on from crushing failure to reach another World Cup?**\
-`One former player is calling for Pep Guardiola to lead Italy into a new era. First of all they need a new president, with elections in June`\
-https://nytimes.com/athletic/7175452/2026/04/07/italy-world-cup-serie-a-reform-future/
-
-**Kane, Olise and Diaz: Bayern's formidable front three chasing Barcelona and Real Madrid greats**\
-`The trio are playing their first season together at Bayern Munich but have already scored 86 goals between them in all competitions`\
-https://nytimes.com/athletic/7166461/2026/04/07/kane-olise-diaz-bayern-front-three-goals-europe/
 
