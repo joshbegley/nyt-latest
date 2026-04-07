@@ -1,3 +1,7 @@
+**U.K. Bars Ye Over Antisemitism, Months Before Major Festival Performances**\
+`The BBC said that entry to the country was being denied to the rapper formerly known as Kanye West.`\
+https://nytimes.com/2026/04/07/arts/music/kanye-west-ye-visa-ban-wireless.html
+
 **Ann Arbor goes wild (again): How Michigan celebrated another national championship**\
 `Michigan fans are the first since Florida 20 years ago to celebrate football and men's basketball national championships so close together.`\
 https://nytimes.com/athletic/7177755/2026/04/07/michigan-fans-national-championship-celebration-basketball/
