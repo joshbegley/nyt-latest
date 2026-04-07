@@ -1,3 +1,19 @@
+**How to watch Bruins vs. Hurricanes: Time, TV, streaming**\
+`Find out how to watch the Boston Bruins play the Carolina Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7178285/2026/04/07/bruins-vs-hurricanes-stream-how-to-watch-april-7/
+
+**As Kings hunt playoff berth, Forsberg — not Kuemper — deserves the net**\
+`The Kings are being diplomatic with their net options. But it's time to go with their best. Right now, that's Anton Forsberg.`\
+https://nytimes.com/athletic/7177632/2026/04/07/la-kings-anton-forsberg-nhl-playoffs/
+
+**How to watch Reds vs. Marlins: Time, TV, streaming for April 7**\
+`Find out how to watch the Cincinnati Reds play the Miami Marlins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7178265/2026/04/07/reds-vs-marlins-stream-how-to-watch-april-7/
+
+**Cyclists being investigated by police over running red light at Tour of Flanders**\
+`The incident occurred with 213 kilometres remaining in the race, splitting the peloton into two.`\
+https://nytimes.com/athletic/7178167/2026/04/07/pogacar-evenepoel-red-light-crossing-flanders/
+
 **How to watch Brewers vs. Red Sox: Time, TV, streaming for April 7**\
 `Find out how to watch the Milwaukee Brewers play the Boston Red Sox, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7178247/2026/04/07/brewers-vs-red-sox-stream-how-to-watch-april-7/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/04/07/business/companies-deals-iran-oil-stocks.html
 **How to watch Padres vs. Pirates: Time, TV, streaming for April 7**\
 `Find out how to watch the San Diego Padres play the Pittsburgh Pirates, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7178220/2026/04/07/padres-vs-pirates-stream-how-to-watch-april-7/
-
-**How to watch Athletics vs. Yankees: Time, TV, streaming for April 7**\
-`Find out how to watch the Athletics play the New York Yankees, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7178214/2026/04/07/athletics-vs-yankees-stream-how-to-watch-april-7/
-
-**Houston, We Have No Problem. But We Do Have a Lot of ‘Moon Joy.’**\
-`While science can seem colorless and plain, NASA’s lunar crew members have brought expressiveness and emotion about their journey to mission control and the public.`\
-https://nytimes.com/2026/04/07/science/nasa-artemis-ii-astronauts-moon-joy.html
-
-**Food Influencing Gets a Feel-Good Refresh**\
-`Audiences and restaurant owners have soured on predictable voice overs and pay-for-play reviews.`\
-https://nytimes.com/2026/04/07/dining/food-influencer.html
-
-**How to watch Bulls vs. Wizards: Time, TV, streaming**\
-`Find out how to watch the Chicago Bulls play the Washington Wizards, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7178188/2026/04/07/bulls-vs-wizards-stream-how-to-watch-april-7/
 
