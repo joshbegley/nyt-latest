@@ -1,3 +1,19 @@
+**Ann Arbor goes wild (again): How Michigan celebrated another national championship**\
+`Michigan fans are the first since Florida 20 years ago to celebrate football and men's basketball national championships so close together.`\
+https://nytimes.com/athletic/7177755/2026/04/07/michigan-fans-national-championship-celebration-basketball/
+
+**Trump Administration Live Updates: Vance Visits Hungary to Support Orban’s Election Effort**\
+``\
+https://nytimes.com/live/2026/04/07/us/trump-news-updates
+
+**Thief of joy: An unsettled bullpen falters again and Giants fall to 1-7 at home**\
+`A 6-4 loss to the Phillies was the latest calamity for a team that is finding a new way to let the baton clatter to the track every night.`\
+https://nytimes.com/athletic/7177518/2026/04/07/giants-bullpen-lose-phillies/
+
+**Abramovich: Charity set up to oversee frozen £2.35bn from Chelsea sale**\
+`The Foundation for the Victims of Conflict will be overseen by a former UNICEF executive, and includes other high-profile trustees.`\
+https://nytimes.com/athletic/7177690/2026/04/07/roman-abramovich-chelsea-sale-foundation/
+
 **Markets on Edge as Trump’s Iran Ultimatum Looms**\
 `Oil prices are rising and stocks are selling off as investors fret that the president will carry out his threats to “decimate” Iran.`\
 https://nytimes.com/2026/04/07/business/dealbook/markets-trump-iran-threats.html
