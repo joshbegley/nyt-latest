@@ -1,40 +1,40 @@
-**Champions League quarter-final odds: Lamine Yamal's goal threat and a trap game for Arsenal**\
-`Barcelona's attack will be tough for Atletico Madrid to stop and in Lisbon, Sporting CP could spring a surprise`\
-https://nytimes.com/athletic/7177563/2026/04/07/champions-league-quarter-final-odds/
+**You Don’t Yell at a Broadway Show. But What if It’s ‘Rocky Horror’?**\
+`The new musical is trying to calibrate just how much to rein in the audience participation that longtime fans are used to.`\
+https://nytimes.com/2026/04/07/theater/rocky-horror-show-broadway-audience.html
 
-**Artemis II Completes Historic Journey Around the Moon**\
-`NASA’s Artemis II crew received a call from President Trump, who congratulated them for the successful lunar flyby.`\
-https://nytimes.com/video/science/space/100000010826698/artemis-ii-trump-moon-lunar-flyby.html
+**Ukraine Ramps Up Attacks on Russian Oil, Aiming to Curb Iran War Windfall**\
+`As the Persian Gulf conflict boosts the oil revenue that finances Moscow’s war against Ukraine, Kyiv’s forces are striking at Russia’s ability to refine and ship its crude.`\
+https://nytimes.com/2026/04/07/world/europe/ukraine-attacks-russian-oil-exports.html
 
-**Here’s the latest.**\
-`By Francesca Regalado, Farnaz Fassihi, Elian Peltier and Ephrat Livni`\
-https://nytimes.com/live/2026/04/07/world/iran-war-trump-news/heres-the-latest
+**Who Really Controls Your Health Care?**\
+`In the first episode of Times Opinion’s new series “Divided,” a doctor and a former insurance executive confront a central question: Do insurance companies prioritize profit over patient care?`\
+https://nytimes.com/video/opinion/100000010820854/who-really-controls-your-health-care.html
 
-**Iran War Live Updates: Trump’s Deadline Draws Closer With No Sign of Diplomatic Breakthrough**\
-`Israel and Iran traded fresh attacks on Tuesday after President Trump said a cease-fire proposal was “not good enough.” Mr. Trump has threatened to destroy Iran’s bridges and power plants if it does not reopen the Strait of Hormuz by 8 p.m. Eastern.`\
-https://nytimes.com/live/2026/04/07/world/iran-war-trump-news
+**Trump Hasn’t Given Up on His ‘Unrequited Love’ for Putin**\
+`The president’s deference to authoritarian leaders has profoundly corrupted American foreign policy.`\
+https://nytimes.com/2026/04/07/opinion/trump-putin-iran-nato.html
 
-**How to Build a Rest Stop for Delivery Workers in a Hurry**\
-`A shelter for delivery workers was proposed years ago. Then Mayor Zohran Mamdani decided that it needed to be finished within his first 100 days in office.`\
-https://nytimes.com/2026/04/07/nyregion/how-to-build-a-rest-stop-for-delivery-workers-in-a-hurry.html
+**How Duchamp Inspired These 4 Artists**\
+`Decades after his death, he continues to influence contemporary artists. Here are four — of many — who have riffed on his urinal sculpture “Fountain.”`\
+https://nytimes.com/2026/04/07/arts/design/marcel-duchamp-maurizio-cattalan-ai-weiwei.html
 
-**‘Our Bright Blue Planet’**\
-`Have you seen this image this week? What is your reaction?`\
-https://nytimes.com/2026/04/07/learning/our-bright-blue-planet.html
+**What to Watch in the Election to Succeed Marjorie Taylor Greene in Georgia**\
+`Clay Fuller, a Republican allied with President Trump, will face Shawn Harris, a Democrat, in the election to fill the remainder of Ms. Greene’s term after her resignation from Congress.`\
+https://nytimes.com/2026/04/07/us/politics/marjorie-taylor-greene-election-georgia.html
 
-**Finding Trends in Sports Stats and ‘Wheel of Fortune’ Puzzles**\
-`Ben Blatt, a data reporter for The Upshot, dreams up inventive ways to answer questions like: “Is Taylor Swift actually increasing N.F.L. ratings?”`\
-https://nytimes.com/2026/04/07/insider/ben-blatt-new-york-times.html
+**No Shy Person Left Behind**\
+`American democracy has a personality problem.`\
+https://nytimes.com/2026/04/07/opinion/political-power-citizens-assemblies.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/04/07/crosswords/spelling-bee-forum.html
+**Do You Like Amusement Parks?**\
+`Six Flags announced plans to close some of its parks. What would it mean for you if your local amusement park shut down?`\
+https://nytimes.com/2026/04/07/learning/do-you-like-amusement-parks.html
 
-**Patrice Evra interview: 'As a player, I had to be an animal. It's a toxic world in sport.'**\
-`In a compelling interview, the former Manchester United defender surveys the modern game`\
-https://nytimes.com/athletic/7171659/2026/04/07/manchester-united-patrice-evra-racism-football/
+**Fact-Checking Republicans’ Misleading Claims About Problematic Elections**\
+`President Trump, his administration and G.O.P. lawmakers have claimed widespread issues with mailed ballots and fraudulent voting, but the evidence doesn’t support them.`\
+https://nytimes.com/2026/04/07/us/politics/trump-mail-voting-elections-fact-check.html
 
-**A coach secretly filmed his women players undressing – yet he can still work in football**\
-`Kristyna Janku has chosen to speak out about what happened - and football's apparent inability to make sure it does not happen again`\
-https://nytimes.com/athletic/7167630/2026/04/07/a-coach-secretly-filmed-his-women-players-undressing-yet-he-can-still-work-in-football/
+**Can Developers Help Save Public Housing?**\
+`The city wants to replace run-down buildings in four Manhattan housing developments with new towers. Some residents are skeptical.`\
+https://nytimes.com/2026/04/07/nyregion/can-developers-help-save-public-housing.html
 
