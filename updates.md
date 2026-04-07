@@ -1,3 +1,19 @@
+**How to Build a Rest Stop for Delivery Workers in a Hurry**\
+`A shelter for delivery workers was proposed years ago. Then Mayor Zohran Mamdani decided that it needed to be finished within his first 100 days in office.`\
+https://nytimes.com/2026/04/07/nyregion/how-to-build-a-rest-stop-for-delivery-workers-in-a-hurry.html
+
+**‘Our Bright Blue Planet’**\
+`Have you seen this image this week? What is your reaction?`\
+https://nytimes.com/2026/04/07/learning/our-bright-blue-planet.html
+
+**Finding Trends in Sports Stats and ‘Wheel of Fortune’ Puzzles**\
+`Ben Blatt, a data reporter for The Upshot, dreams up inventive ways to answer questions like: “Is Taylor Swift actually increasing N.F.L. ratings?”`\
+https://nytimes.com/2026/04/07/insider/ben-blatt-new-york-times.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/04/07/crosswords/spelling-bee-forum.html
+
 **Patrice Evra interview: 'As a player, I had to be an animal. It's a toxic world in sport.'**\
 `In a compelling interview, the former Manchester United defender surveys the modern game`\
 https://nytimes.com/athletic/7171659/2026/04/07/manchester-united-patrice-evra-racism-football/

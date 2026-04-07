@@ -1,3 +1,19 @@
+**How to Build a Rest Stop for Delivery Workers in a Hurry**\
+`A shelter for delivery workers was proposed years ago. Then Mayor Zohran Mamdani decided that it needed to be finished within his first 100 days in office.`\
+https://nytimes.com/2026/04/07/nyregion/how-to-build-a-rest-stop-for-delivery-workers-in-a-hurry.html
+
+**‘Our Bright Blue Planet’**\
+`Have you seen this image this week? What is your reaction?`\
+https://nytimes.com/2026/04/07/learning/our-bright-blue-planet.html
+
+**Finding Trends in Sports Stats and ‘Wheel of Fortune’ Puzzles**\
+`Ben Blatt, a data reporter for The Upshot, dreams up inventive ways to answer questions like: “Is Taylor Swift actually increasing N.F.L. ratings?”`\
+https://nytimes.com/2026/04/07/insider/ben-blatt-new-york-times.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/04/07/crosswords/spelling-bee-forum.html
+
 **Patrice Evra interview: 'As a player, I had to be an animal. It's a toxic world in sport.'**\
 `In a compelling interview, the former Manchester United defender surveys the modern game`\
 https://nytimes.com/athletic/7171659/2026/04/07/manchester-united-patrice-evra-racism-football/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/04/07/learning/word-of-the-day-contiguous.html
 **The New York Times in Print for Tuesday, April 7, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/04/07/todays-new-york-times
-
-**How Much Humiliation Can JD Vance Take?**\
-`The vice president gets saddled with the Iran war and eroding popularity.`\
-https://nytimes.com/2026/04/07/opinion/jd-vance-trump-iran-hungary-orban.html
-
-**The Fire in the West Bank Is Burning Hotter, Out of Sight**\
-`An Israeli law aiming capital punishment at Palestinians but not Jewish settlers is immoral, unconstitutional and part of a larger effort to suppress rights.`\
-https://nytimes.com/2026/04/07/opinion/israel-palestinians-west-bank-death-penalty.html
-
-**Michigan did something unusual before the championship. Did it help the Wolverines win?**\
-`Michigan was prepared for the moment, confident, talented and embracing the nuances, the things it hadn't thought about before.`\
-https://nytimes.com/athletic/7177367/2026/04/07/michigan-national-champions-visualization-dusty-may/
-
-**Trump Calls Artemis II Astronauts After Their Historic Journey Around the Moon**\
-`The conversation celebrated a small, but significant, step in an ambitious plan for missions to the moon and Mars that Mr. Trump had set early in his first term.`\
-https://nytimes.com/2026/04/07/us/politics/trump-nasa-artemis-astronauts-moon.html
 
