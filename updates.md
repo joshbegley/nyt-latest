@@ -1,3 +1,7 @@
+**How Much Humiliation Can JD Vance Take?**\
+`The vice president gets saddled with the Iran war and eroding popularity.`\
+https://nytimes.com/2026/04/07/opinion/jd-vance-trump-iran-hungary-orban.html
+
 **Defensive discipline, high pressing and a reliable out-ball: How Liverpool can challenge PSG**\
 `Arne Slot's side face a monumental task against the defending European champions. These the key areas that they should be focusing on`\
 https://nytimes.com/athletic/7175551/2026/04/07/liverpool-slot-champions-league-psg/
