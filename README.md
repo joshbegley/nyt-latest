@@ -11,7 +11,7 @@ https://nytimes.com/2026/04/07/opinion/jd-vance-trump-iran-hungary-orban.html
 https://nytimes.com/2026/04/07/opinion/israel-palestinians-west-bank-death-penalty.html
 
 **Michigan did something unusual before the championship. Did it help the Wolverines win?**\
-`Michigan was prepared for the moment, confident, talented, and embracing the nuances, the things they hadn’t thought about before.`\
+`Michigan was prepared for the moment, confident, talented and embracing the nuances, the things it hadn't thought about before.`\
 https://nytimes.com/athletic/7177367/2026/04/07/michigan-national-champions-visualization-dusty-may/
 
 **Trump Calls Artemis II Astronauts After Their Historic Journey Around the Moon**\
