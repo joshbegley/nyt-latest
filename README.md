@@ -1,40 +1,40 @@
+**How to watch Brewers vs. Red Sox: Time, TV, streaming for April 7**\
+`Find out how to watch the Milwaukee Brewers play the Boston Red Sox, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7178247/2026/04/07/brewers-vs-red-sox-stream-how-to-watch-april-7/
+
+**How to watch Cubs vs. Rays: Time, TV, streaming for April 7**\
+`Find out how to watch the Chicago Cubs play the Tampa Bay Rays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7178240/2026/04/07/cubs-vs-rays-stream-how-to-watch-april-7/
+
+**How to watch Dodgers vs. Blue Jays: Time, TV, streaming for April 7**\
+`Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7178234/2026/04/07/dodgers-vs-blue-jays-stream-how-to-watch-april-7/
+
+**How to watch Cardinals vs. Nationals: Time, TV, streaming for April 7**\
+`Find out how to watch the St. Louis Cardinals play the Washington Nationals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7178226/2026/04/07/cardinals-vs-nationals-stream-how-to-watch-april-7/
+
+**Companies See Opening for Deals Despite Market Volatility**\
+`Bankers say companies are braving higher oil prices and whipsawing stock prices to seize on the willingness of federal antitrust enforcers to approve mergers.`\
+https://nytimes.com/2026/04/07/business/companies-deals-iran-oil-stocks.html
+
+**How to watch Padres vs. Pirates: Time, TV, streaming for April 7**\
+`Find out how to watch the San Diego Padres play the Pittsburgh Pirates, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7178220/2026/04/07/padres-vs-pirates-stream-how-to-watch-april-7/
+
+**How to watch Athletics vs. Yankees: Time, TV, streaming for April 7**\
+`Find out how to watch the Athletics play the New York Yankees, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7178214/2026/04/07/athletics-vs-yankees-stream-how-to-watch-april-7/
+
+**Houston, We Have No Problem. But We Do Have a Lot of ‘Moon Joy.’**\
+`While science can seem colorless and plain, NASA’s lunar crew members have brought expressiveness and emotion about their journey to mission control and the public.`\
+https://nytimes.com/2026/04/07/science/nasa-artemis-ii-astronauts-moon-joy.html
+
+**Food Influencing Gets a Feel-Good Refresh**\
+`Audiences and restaurant owners have soured on predictable voice overs and pay-for-play reviews.`\
+https://nytimes.com/2026/04/07/dining/food-influencer.html
+
 **How to watch Bulls vs. Wizards: Time, TV, streaming**\
 `Find out how to watch the Chicago Bulls play the Washington Wizards, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7178188/2026/04/07/bulls-vs-wizards-stream-how-to-watch-april-7/
-
-**How to watch Timberwolves vs. Pacers: Time, TV, streaming**\
-`Find out how to watch the Minnesota Timberwolves play the Indiana Pacers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7178186/2026/04/07/timberwolves-vs-pacers-stream-how-to-watch-april-7/
-
-**The Windup: Another brother brawl loading?!**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/7178060/2026/04/07/willson-william-contreras-red-sox-brewers-the-windup/
-
-**What, Exactly, Is Longevity Medicine?**\
-`The field is ripe with opportunity — and opportunism. Here’s how to navigate it.`\
-https://nytimes.com/2026/04/07/well/longevity-medicine-definition.html
-
-**Submit your Twins questions for Aaron Gleeman's early-season mailbag**\
-`The Twins' offense hasn't clicked in the early going. What questions do you have about that, and more, as the 2026 season gets underway?`\
-https://nytimes.com/athletic/7177899/2026/04/07/twins-mailbag-submission-form-2026-season-start/
-
-**Sunderland reach deal to sell majority stake in women's team**\
-`Sunderland become the fourth Premier League club to sell a stake in their women’s team to outside investors within the past two years.`\
-https://nytimes.com/athletic/7177846/2026/04/07/sunderland-women-team-sale-bay-collective/
-
-**Our Vacations. Our Food. Our Mortgages. The Iran War Will Change Everything.**\
-`The disruptions caused by the Iran war will significantly impact our cost of living.`\
-https://nytimes.com/2026/04/07/opinion/gas-prices-iran-war-travel-food-fed.html
-
-**The Five Weeknight Dishes in My Current Rotation**\
-`Including a bean-based Japanese curry, Genevieve Ko’s dan dan noodles and our very beloved chicken shawarma.`\
-https://nytimes.com/2026/04/07/dining/the-five-weeknight-dishes-in-my-current-rotation.html
-
-**NHL playoff update: 7 clinched, 6 close, while the Red Wings battle their own math**\
-`We’ve basically got three spots up for grabs: the last wild card in the West, the last wild card in the East and third place in the Metro.`\
-https://nytimes.com/athletic/7178062/2026/04/07/nhl-playoff-race-standings-red-wings-red-light/
-
-**Kevin Lankinen, Adam Foote and the worst Canucks season ever: Notebook**\
-`The Canucks' season enters the end-game stage ahead of a lengthy, critical offseason for the franchise.`\
-https://nytimes.com/athletic/7177523/2026/04/07/vancouver-canucks-adam-foote-kevin-lankinen-stats-standings/
 
