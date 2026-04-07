@@ -1,3 +1,19 @@
+**Three paths Rams could take to fill their backup quarterback need**\
+`How the Rams decide to fill their backup QB void could tell a lot about their future plans at the game's most important position.`\
+https://nytimes.com/athletic/7176683/2026/04/07/rams-backup-quarterback-search-matthew-stafford/
+
+**Wizards rookie Will Riley is a creative artist on and off the basketball court**\
+`Riley has emerged as one of the steals of the 2025 NBA Draft, and an important part of Washington's future.`\
+https://nytimes.com/athletic/7177128/2026/04/07/will-riley-wizards-rookie-artist/
+
+**Aaron Ramsey: Former Wales and Arsenal midfielder announces retirement**\
+`The 35-year-old has been without a club since he left Mexican side Pumas UNAM last summer. `\
+https://nytimes.com/athletic/7177727/2026/04/07/aaron-ramsey-retires-wales-arsenal/
+
+**2-time MVP and Golden Boot winner Temwa Chawinga’s aura charges KC Current**\
+`The Athletic chooses three words to describe Chawinga's 2026 debut and unpacks what it means for the Current.`\
+https://nytimes.com/athletic/7176650/2026/04/07/nwsl-temwa-chawinga-aura-charges-kc-current/
+
 **Why the Panthers locked in on Tetairoa McMillan a year ago: 'Not gonna overthink this'**\
 `Carolina GM Dan Morgan liked McMillan for a long time before the 2025 NFL Draft. The receiver proved Morgan and the Panthers right.`\
 https://nytimes.com/athletic/7170303/2026/04/07/carolina-panthers-tetairoa-mcmillan-nfl-draft-history/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7176905/2026/04/07/bears-roster-tiers-colston-lovel
 **Ben Danford's season of evolution could lift him to the Leafs this fall**\
 `The young defenceman is preparing for a deep run in the OHL playoffs with the Brantford Bulldogs after losing in the final twice previously.`\
 https://nytimes.com/athletic/7174748/2026/04/07/ben-danford-maple-leafs-prospect-defence-ohl/
-
-**David Carle on whispers of Denver's demise, its latest Frozen Four run and his NHL future**\
-`Carle, a popular pick for NHL coaching vacancies, has a chance to win his third NCAA title a year after some said DU's window had closed.`\
-https://nytimes.com/athletic/7175521/2026/04/07/david-carle-denver-frozen-four/
-
-**Why Dave Roberts wound up with the baseball from World Series Game 7**\
-`On a night when the Dodgers cruised to victory, Freddie Freeman found time to savor one last memory from last year's World Series. `\
-https://nytimes.com/athletic/7177328/2026/04/07/dodgers-dave-roberts-freddie-freeman/
-
-**The Far Side**\
-`The Artemis II crew has gone farther from Earth than anyone has ever been.`\
-https://nytimes.com/2026/04/07/briefing/the-far-side-moon.html
-
-**Gunman Is Killed in Shootout Near Israeli Consulate in Istanbul, Official Says**\
-`Two other armed men were wounded in a clash with police officers, according to the regional governor.`\
-https://nytimes.com/2026/04/07/world/middleeast/istanbul-israel-consulate-shootout.html
 
