@@ -1,40 +1,41 @@
-**The Champions League quarter-finals: The numbers you need to know**\
-`From Kylian Mbappe's goals to Arsenal's watertight defence, these are the key statistics for this week's quarter-finals`\
-https://nytimes.com/athletic/7176719/2026/04/07/champions-league-quarter-finals-scorers-goals/
+**Sabres' win over the Lightning leaves Jon Cooper frustrated, tightens division race**\
+`The Sabres shook out of their funk with an excellent performance against their Atlantic rivals, that featured far fewer fights.`\
+https://nytimes.com/athletic/7177357/2026/04/07/sabres-playoffs-atlantic-division-cooper-holmberg-injury-lightning/
 
-**Meet the die-hard Angels fan and mother of 5 who captured Jo Adell's magic moment**\
-`Kayleigh Kraus took a shot for the ages on her cellphone. High school photo class might've helped. `\
-https://nytimes.com/athletic/7177191/2026/04/07/jo-adell-angels-fan-photo-catch/
+**A Phillies comeback win at Oracle Park? It really happened**\
+`With a 6-4 win Monday night, the Phillies took a series opener at the Giants for the first time since 2014.`\
+https://nytimes.com/athletic/7177487/2026/04/07/phillies-win-giants-comeback-series/
 
-**Pakistan Says It Hit a Military Target. Investigations Suggest It Was a Rehab Center.**\
-`After the deadliest attack in Afghanistan since the Taliban took over, families searched among photos and remains for signs of their relatives.`\
-https://nytimes.com/2026/04/07/world/asia/kabul-drug-rehab-pakistan-airstrike.html
+**Travis Sanheim's Olympic experience is fueling his elite play with the Flyers**\
+`A teammate called Sanheim the "backbone" of the Flyers as they make a surprising playoff push.`\
+https://nytimes.com/athletic/7176609/2026/04/07/travis-sanheim-flyers-playoffs/
 
-**USMNT's Agyemang suffers ruptured Achilles, out of the World Cup**\
-`Agyemang, 25, sustained the injury playing for Derby County against Stoke City on Monday.`\
-https://nytimes.com/athletic/7177596/2026/04/07/usmnt-patrick-agyemang-world-cup-injury/
+**Who is and isn't eligible for NBA awards? Here's the list**\
+`The so-called 65-game rule has inspired significant debate, and that conversation has only gotten hotter in recent weeks.`\
+https://nytimes.com/athletic/7175723/2026/04/07/nba-awards-eligibility-65-games-tracker/
 
-**MLB Power Rankings: Who's your team's early difference-maker?**\
-`For this week’s edition of the Power Rankings, we highlighted one member of each team who has been an early game-changer.`\
-https://nytimes.com/athletic/7171919/2026/04/07/mlb-power-rankings-week-2-braves/
+**Boos fill Fenway as Boston's free-fall to MLB-worst record continues**\
+`The Red Sox now have an MLB-worst 2-8 record, matching their worst start through 10 games in franchise history.`\
+https://nytimes.com/athletic/7177349/2026/04/07/red-sox-lose-brewers-worst-record/
 
-**In one night, Nationals' James Wood shows the kind of player he can be**\
-`With a leaping robbery of one homer and a three-run blast of his own, Wood helped Washington rally to beat the Cardinals 9-6 on Monday.`\
-https://nytimes.com/athletic/7177313/2026/04/07/washington-nationals-james-wood-home-run-defense/
+**Final 5:28 in Atlanta could be turning point for Knicks' underwhelming starting 5**\
+`The Knicks starters made a statement in a win over the Hawks, and maybe built confidence along the way. `\
+https://nytimes.com/athletic/7177253/2026/04/07/knicks-hawks-jalen-brunson-karl-anthony-towns-clutch-win-playoffs/
 
-**As WNBA free agency starts, a question for every team**\
-`Will the expansion teams tank? What's next for the Angel Reese-less Chicago Sky? Jonquel Jones to the Valkyries? `\
-https://nytimes.com/athletic/7177462/2026/04/07/wnba-free-agency-team-questions/
+**Could Lions' Penei Sewell move to left tackle? Breaking down pros and cons**\
+`The Lions seem interested in the idea of moving Sewell to left tackle. How could that look in 2026?`\
+https://nytimes.com/athletic/7176503/2026/04/07/lions-penei-sewell-left-tackl-pros-cons-nfl/
 
-**The New York Times International Edition in Print for Wednesday, April 8, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/04/07/todays-new-york-times-international-edition
+**Looking for a 2026 NFL Draft sleeper? Meet the FCS star who's been hustling his whole life**\
+`After lighting up the combine as one of just a few FCS prospects invited, Charles Demmings could be a mid-round pick in this year's draft.`\
+https://nytimes.com/athletic/7169799/2026/04/07/nfl-draft-2026-charles-demmings-cornerback-sleeper/
 
-**How to watch Royals vs. Guardians: Time, TV, streaming for April 7**\
-`Find out how to watch the Kansas City Royals play the Cleveland Guardians, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7177637/2026/04/07/royals-vs-guardians-stream-how-to-watch-april-7/
+**Luke Keaschall shrugs off slow start, homers, scores twice as Twins down Tigers**\
+`Minnesota found its offense and snapped a two-game losing streak with a 7-3 win over Detroit.
+`\
+https://nytimes.com/athletic/7177376/2026/04/07/twins-win-tigers-luke-keaschall-homers/
 
-**History says long shots don't win the Masters, but is this the year?**\
-`The Masters is uniquely difficult for long shots. But there are a few who could challenge this year.`\
-https://nytimes.com/athletic/7175768/2026/04/07/masters-2026-odds-long-shot-winner/
+**‘Finally, Sandy’s back’: Alcantara reasserts himself as the Marlins’ ace – and valuable trade chip**\
+`A return to Cy Young form for Alcantara could make the Marlins a playoff contender. It also skyrockets his value at the deadline.`\
+https://nytimes.com/athletic/7176665/2026/04/07/sandy-alcantara-marlins-ace-trade-deadline/
 
