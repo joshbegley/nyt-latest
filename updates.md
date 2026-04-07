@@ -1,3 +1,7 @@
+**Offset, Former Migos Rapper, Is Shot Outside Florida Casino**\
+`The former member of the chart-topping trio was in stable condition after being shot in Hollywood, Fla., his representative said. The police said they had detained two other people.`\
+https://nytimes.com/2026/04/06/us/offset-migos-shooting-florida.html
+
 **Organ Meats**\
 `This debut from Adryel W. Robles Ojeda will set you free.`\
 https://nytimes.com/2026/04/06/crosswords/daily-puzzle-2026-04-07.html

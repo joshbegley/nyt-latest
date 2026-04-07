@@ -1,3 +1,7 @@
+**Offset, Former Migos Rapper, Is Shot Outside Florida Casino**\
+`The former member of the chart-topping trio was in stable condition after being shot in Hollywood, Fla., his representative said. The police said they had detained two other people.`\
+https://nytimes.com/2026/04/06/us/offset-migos-shooting-florida.html
+
 **Organ Meats**\
 `This debut from Adryel W. Robles Ojeda will set you free.`\
 https://nytimes.com/2026/04/06/crosswords/daily-puzzle-2026-04-07.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/06/pageoneplus/corrections-april-7-2026.html
 **Mamdani Celebrates Passover at Progressive ‘Seder in the Street’**\
 `The mayor has observed the Passover holiday in several ways in recent days, including a left-wing event on Monday. He planned to hold a Seder for city workers in the evening at Gracie Mansion.`\
 https://nytimes.com/2026/04/06/nyregion/mamdani-street-seder.html
-
-**Whale That Swam 20 Miles Up Washington River Is Found Dead**\
-`The gray whale, which some locals affectionately named Willapa Willy, was found on Saturday afternoon after first being spotted swimming up the Willapa River last week.`\
-https://nytimes.com/2026/04/06/us/gray-whale-dead-washington-river.html
 
