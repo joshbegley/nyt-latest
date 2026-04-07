@@ -1,3 +1,7 @@
+**Hudson Local Leans Toward Luxury With a Jean Georges Alum**\
+`The daiquiri is the star at Echo Lake, Vietnamese flavors are showcased at After Eden and more restaurant news.`\
+https://nytimes.com/2026/04/07/dining/nyc-restaurant-news.html
+
 **Britain Reinforces That U.S. Cannot Use British Bases for Attacks on Iran**\
 `The U.K. government underlined its previous stance that the United States could only use British bases for defensive purposes, after President Trump threatened to strike civilian targets.`\
 https://nytimes.com/2026/04/07/world/middleeast/britain-iran-bases.html
