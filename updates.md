@@ -1,3 +1,7 @@
+**Champions League quarter-final odds: Lamine Yamal's goal threat and a trap game for Arsenal**\
+`Barcelona's attack will be tough for Atletico Madrid to stop and in Lisbon, Sporting CP could spring a surprise`\
+https://nytimes.com/athletic/7177563/2026/04/07/champions-league-quarter-final-odds/
+
 **Artemis II Completes Historic Journey Around the Moon**\
 `NASA’s Artemis II crew received a call from President Trump, who congratulated them for the successful lunar flyby.`\
 https://nytimes.com/video/science/space/100000010826698/artemis-ii-trump-moon-lunar-flyby.html
