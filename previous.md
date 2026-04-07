@@ -1,3 +1,15 @@
+**Iran Calls Off Indirect Talks With U.S. After Trump Threatens to Destroy ‘A Whole Civilization’**\
+`As the United States’ 8 p.m. deadline to open the Strait of Hormuz approaches, Iran vowed to retaliate if its power plants were attacked.`\
+https://nytimes.com/2026/04/07/world/middleeast/iran-trump-negotiations-talks-threat.html
+
+**What Defines a Civilian Target in War?**\
+`It is illegal for any military to target civilians, as President Trump has suggested he would in threats against Iran. But the U.S. has sought significant leeway in defining a civilian target.`\
+https://nytimes.com/2026/04/07/us/politics/war-crimes-civilians.html
+
+**Person Injured in Shooting Involving ICE in California, Police Say**\
+`The person’s condition and other details about the episode were not immediately clear. The Stanislaus County Sheriff’s Office said the shooting happened in the agricultural town of Patterson.`\
+https://nytimes.com/2026/04/07/us/shooting-ice-california.html
+
 **How Tolls in the Strait of Hormuz Would Undercut International Law**\
 `Both the U.S. and Iran are now talking about imposing fees on ships using the vital passageway. That could fray a treaty that ended centuries of lawlessness on the high seas.`\
 https://nytimes.com/2026/04/07/climate/strait-of-hormuz-law-of-the-sea-tolls.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/04/07/arts/music/amplifier-newsletter-cloud-rap.html
 **Gulf Backers Invest $24 Billion in Paramount’s Deal for Warner Bros.**\
 `Despite speculation that the Iran war could scuttle commitments from Saudi Arabia and other Middle Eastern countries, their investments have been secured.`\
 https://nytimes.com/2026/04/07/business/gulf-invest-paramount-warner-bros.html
-
-**Devils' new GM to face critical offseason, starting with a coaching decision**\
-`With the firing of Tom Fitzgerald, New Jersey needs a new front-office boss. Let's dive into what that person should address first.`\
-https://nytimes.com/athletic/7177881/2026/04/07/nj-devils-gm-search-leadership-coach-future-roster/
-
-**Fernando Mendoza won't be attending NFL Draft in Pittsburgh: Source**\
-`Mendoza could be the first No. 1 pick to not attend the draft since Jaguars defensive end Travon Walker in 2022.`\
-https://nytimes.com/athletic/7178471/2026/04/07/fernando-mendoza-nfl-draft-attendance/
-
-**Eyes on the Far Side of the Moon**\
-`See the photos taken by the Artemis II astronauts during their moon flyby.`\
-https://nytimes.com/interactive/2026/04/07/science/space/moon-photos-artemis-2-nasa.html
 

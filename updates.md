@@ -1,3 +1,15 @@
+**Iran Calls Off Indirect Talks With U.S. After Trump Threatens to Destroy ‘A Whole Civilization’**\
+`As the United States’ 8 p.m. deadline to open the Strait of Hormuz approaches, Iran vowed to retaliate if its power plants were attacked.`\
+https://nytimes.com/2026/04/07/world/middleeast/iran-trump-negotiations-talks-threat.html
+
+**What Defines a Civilian Target in War?**\
+`It is illegal for any military to target civilians, as President Trump has suggested he would in threats against Iran. But the U.S. has sought significant leeway in defining a civilian target.`\
+https://nytimes.com/2026/04/07/us/politics/war-crimes-civilians.html
+
+**Person Injured in Shooting Involving ICE in California, Police Say**\
+`The person’s condition and other details about the episode were not immediately clear. The Stanislaus County Sheriff’s Office said the shooting happened in the agricultural town of Patterson.`\
+https://nytimes.com/2026/04/07/us/shooting-ice-california.html
+
 **How Tolls in the Strait of Hormuz Would Undercut International Law**\
 `Both the U.S. and Iran are now talking about imposing fees on ships using the vital passageway. That could fray a treaty that ended centuries of lawlessness on the high seas.`\
 https://nytimes.com/2026/04/07/climate/strait-of-hormuz-law-of-the-sea-tolls.html
