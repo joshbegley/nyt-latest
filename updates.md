@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Francesca Regalado, Farnaz Fassihi, Elian Peltier and Ephrat Livni`\
+https://nytimes.com/live/2026/04/07/world/iran-war-trump-news/heres-the-latest
+
+**Iran War Live Updates: Trump’s Hormuz Deadline Hangs Over the Middle East**\
+`President Trump has threatened to destroy Iran’s bridges and power plants on Tuesday night Eastern time if it does not open the Strait of Hormuz. There have been no public signs of a diplomatic breakthrough.`\
+https://nytimes.com/live/2026/04/07/world/iran-war-trump-news
+
 **How to Build a Rest Stop for Delivery Workers in a Hurry**\
 `A shelter for delivery workers was proposed years ago. Then Mayor Zohran Mamdani decided that it needed to be finished within his first 100 days in office.`\
 https://nytimes.com/2026/04/07/nyregion/how-to-build-a-rest-stop-for-delivery-workers-in-a-hurry.html

@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Francesca Regalado, Farnaz Fassihi, Elian Peltier and Ephrat Livni`\
+https://nytimes.com/live/2026/04/07/world/iran-war-trump-news/heres-the-latest
+
+**Iran War Live Updates: Trump’s Hormuz Deadline Hangs Over the Middle East**\
+`President Trump has threatened to destroy Iran’s bridges and power plants on Tuesday night Eastern time if it does not open the Strait of Hormuz. There have been no public signs of a diplomatic breakthrough.`\
+https://nytimes.com/live/2026/04/07/world/iran-war-trump-news
+
 **How to Build a Rest Stop for Delivery Workers in a Hurry**\
 `A shelter for delivery workers was proposed years ago. Then Mayor Zohran Mamdani decided that it needed to be finished within his first 100 days in office.`\
 https://nytimes.com/2026/04/07/nyregion/how-to-build-a-rest-stop-for-delivery-workers-in-a-hurry.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/07/arts/television/stephen-colbert-trump-iran-easter
 **Oil Prices Jump as Trump’s Deadline for Deal Draws Near**\
 `President Trump's Tuesday evening deadline for a deal approached after he rejected a cease-fire proposal as “not good enough.”`\
 https://nytimes.com/2026/04/07/business/oil-stocks-gas-prices-iran.html
-
-**Word of the Day: contiguous**\
-`This word has appeared in 44 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/04/07/learning/word-of-the-day-contiguous.html
-
-**The New York Times in Print for Tuesday, April 7, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/04/07/todays-new-york-times
 
