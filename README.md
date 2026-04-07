@@ -1,3 +1,15 @@
+**NHL playoff update: 7 clinched, 6 close, while the Red Wings battle their own math**\
+`We’ve basically got three spots up for grabs: the last wild card in the West, the last wild card in the East and third place in the Metro.`\
+https://nytimes.com/athletic/7178062/2026/04/07/nhl-playoff-race-standings-red-wings-red-light/
+
+**Kevin Lankinen, Adam Foote and the worst Canucks season ever: Notebook**\
+`The Canucks' season enters the end-game stage ahead of a lengthy, critical offseason for the franchise.`\
+https://nytimes.com/athletic/7177523/2026/04/07/vancouver-canucks-adam-foote-kevin-lankinen-stats-standings/
+
+**I’ve Been Rebuying the Same Boots for 16 Years**\
+`Clarks Desert Boots have been a wardrobe staple across the world for almost a century and in my closet for 16 years.`\
+https://nytimes.com/wirecutter/reviews/clarks-desert-boot-review/
+
 **Despite promises, Angels accused of not paying Eric Kay's legal fees in Skaggs case**\
 `Kay has been imprisoned since 2022. He waived doctor-patient privilege to assist the Angels defense in the Tyler Skaggs civil case. `\
 https://nytimes.com/athletic/7178007/2026/04/07/angels-eric-kay-legal-fees-tyler-skaggs-case/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7178040/2026/04/07/bears-steve-mcmichael-cte-diagno
 **Tiger Woods was ‘selfish’ to be driving at time of crash, Jason Day says**\
 `"He's just a human being like everyone else, and we have struggles," Day said Monday. "It's unfortunate."`\
 https://nytimes.com/athletic/7177850/2026/04/07/jason-day-tiger-woods-car-crash-masters/
-
-**Padres mailbag, Part 1: How will a sale and new ownership affect A.J. Preller?**\
-`With final bids for the Padres due soon, the stakes are high for Preller.`\
-https://nytimes.com/athletic/7176572/2026/04/07/padres-mailbag-new-ownership-aj-preller/
-
-**Stride for stride with Michigan's Dusty May on a late-night walk of champions**\
-`May rarely rides the bus after games, instead choosing to get some exercise, and he wasn’t breaking the habit on the night he won a title.`\
-https://nytimes.com/athletic/7177801/2026/04/07/dusty-may-michigan-national-championship-career/
-
-**Iranians Voice Shock and Defiance in Face of Trump’s Latest Deadline**\
-`President Trump has threatened devastating attacks if Iran does not reopen the Strait of Hormuz. Some Iranians questioned what had happened to American values.`\
-https://nytimes.com/2026/04/07/world/middleeast/iran-shock-defiance-trump-deadline-threat.html
 
