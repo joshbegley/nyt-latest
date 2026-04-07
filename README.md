@@ -1,3 +1,7 @@
+**Spanish players’ protest over soccer game in U.S. ruled ‘freedom of expression’**\
+`On Tuesday, Spain’s National Court said the players protest “did not constitute a strike” and was instead "freedom of expression".`\
+https://nytimes.com/athletic/7178191/2026/04/07/la-liga-protests-game-abroad/
+
 **U.S. and Israel Coordinate Strikes on Iran as Trump Turns Up Rhetoric**\
 `U.S. forces launched more than 90 “restrikes” on Kharg Island, Iran’s oil export hub, early on Tuesday but have avoided hitting oil infrastructure.`\
 https://nytimes.com/2026/04/07/us/politics/us-israel-iran-strikes-kharg-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7178315/2026/04/07/jon-rahm-ryder-cup-dp-world-tour
 **6 Takeaways From the Story of Trump’s Decision to Go to War With Iran**\
 `New details from the weeks leading up to the campaign show how President Trump’s alignment with Benjamin Netanyahu and a lack of sustained opposition from his inner circle put the United States on a course to war.`\
 https://nytimes.com/2026/04/07/us/politics/trump-iran-war-takeaways.html
-
-**How Trump Took the U.S. to War With Iran**\
-`In a series of Situation Room meetings, President Trump weighed his instincts against the deep concerns of his vice president and a pessimistic intelligence assessment. Here’s the inside story of how he made the fateful decision.`\
-https://nytimes.com/2026/04/07/us/politics/trump-iran-war.html
 

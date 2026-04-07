@@ -1,3 +1,15 @@
+**U.S. and Israel Coordinate Strikes on Iran as Trump Turns Up Rhetoric**\
+`U.S. forces launched more than 90 “restrikes” on Kharg Island, Iran’s oil export hub, early on Tuesday but have avoided hitting oil infrastructure.`\
+https://nytimes.com/2026/04/07/us/politics/us-israel-iran-strikes-kharg-trump.html
+
+**Lebanese Mourn Couple Killed in Israeli Strike, Exposing Rift Over Hezbollah**\
+`The victims had no ties to Hezbollah, and Israel said they were not targets. Many Lebanese are angry with Israel, but also with Hezbollah for embroiling their country in the war.`\
+https://nytimes.com/2026/04/07/world/middleeast/lebanon-couple-killed-israeli-strike.html
+
+**NBA Rookie of the Year odds: 2 former Duke teammates locked in incredibly tight race**\
+`Former Duke teammates Cooper Flagg and Kon Knueppel are battling for NBA Rookie of the Year in one of the closest races in recent memory.`\
+https://nytimes.com/athletic/7178182/2026/04/07/nba-rookie-of-the-year-odds-flagg-knueppel/
+
 **‘Definitely a Sham’: As Tariffs Climb, Trade Fraud and Accounting Tricks Proliferate**\
 `U.S. imports from China have shrunk drastically. But billions of dollars of the change appear to be the result of accounting gimmicks and outright fraud.`\
 https://nytimes.com/2026/04/07/us/politics/tariffs-trade-import-fraud.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/04/07/us/politics/trump-iran-war-takeaways.html
 **How Trump Took the U.S. to War With Iran**\
 `In a series of Situation Room meetings, President Trump weighed his instincts against the deep concerns of his vice president and a pessimistic intelligence assessment. Here’s the inside story of how he made the fateful decision.`\
 https://nytimes.com/2026/04/07/us/politics/trump-iran-war.html
-
-**How to watch Jazz vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Utah Jazz play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7178389/2026/04/07/jazz-vs-pelicans-stream-how-to-watch-april-7/
-
-**How to watch Hornets vs. Celtics: Time, TV, streaming**\
-`Find out how to watch the Charlotte Hornets play the Boston Celtics, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7178377/2026/04/07/hornets-vs-celtics-stream-how-to-watch-april-7/
-
-**How to watch Heat vs. Raptors: Time, TV, streaming**\
-`Find out how to watch the Miami Heat play the Toronto Raptors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7178373/2026/04/07/heat-vs-raptors-stream-how-to-watch-april-7/
 
