@@ -1,3 +1,7 @@
+**Markets on Edge as Trump’s Iran Ultimatum Looms**\
+`Oil prices are rising and stocks are selling off as investors fret that the president will carry out his threats to “decimate” Iran.`\
+https://nytimes.com/2026/04/07/business/dealbook/markets-trump-iran-threats.html
+
 **Up in the rafters, it's about vibes, not views: 'At least we’re in the building'**\
 `The Final Four has not been played in a traditional basketball arena since 1996. The result: some seats that are less than ideal. `\
 https://nytimes.com/athletic/7177691/2026/04/07/final-four-michigan-uconn-bad-seats-domes/
