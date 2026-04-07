@@ -1,3 +1,7 @@
+**The 10 coolest plays of men's 2026 March Madness, from Otega Oweh to Braylon Mullins**\
+`In practice, the NCAA Tournament is a zero-sum game. But these 10 moments should live beyond the championship presentation.`\
+https://nytimes.com/athletic/7172630/2026/04/07/march-madness-best-plays-braylon-mullins-2026/
+
 **The Pulse: When the favorites just get it done**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/7177473/2026/04/07/michigan-basketball-ncaa-title-the-pulse/

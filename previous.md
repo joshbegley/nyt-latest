@@ -1,3 +1,7 @@
+**The 10 coolest plays of men's 2026 March Madness, from Otega Oweh to Braylon Mullins**\
+`In practice, the NCAA Tournament is a zero-sum game. But these 10 moments should live beyond the championship presentation.`\
+https://nytimes.com/athletic/7172630/2026/04/07/march-madness-best-plays-braylon-mullins-2026/
+
 **The Pulse: When the favorites just get it done**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/7177473/2026/04/07/michigan-basketball-ncaa-title-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7177349/2026/04/07/red-sox-lose-brewers-worst-recor
 **Final 5:28 in Atlanta could be turning point for Knicks' underwhelming starting 5**\
 `The Knicks starters made a statement in a win over the Hawks, and maybe built confidence along the way. `\
 https://nytimes.com/athletic/7177253/2026/04/07/knicks-hawks-jalen-brunson-karl-anthony-towns-clutch-win-playoffs/
-
-**Could Lions' Penei Sewell move to left tackle? Breaking down pros and cons**\
-`The Lions seem interested in the idea of moving Sewell to left tackle. How could that look in 2026?`\
-https://nytimes.com/athletic/7176503/2026/04/07/lions-penei-sewell-left-tackl-pros-cons-nfl/
 
