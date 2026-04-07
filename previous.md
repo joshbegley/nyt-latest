@@ -1,3 +1,27 @@
+**How to watch Jazz vs. Pelicans: Time, TV, streaming**\
+`Find out how to watch the Utah Jazz play the New Orleans Pelicans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7178389/2026/04/07/jazz-vs-pelicans-stream-how-to-watch-april-7/
+
+**How to watch Hornets vs. Celtics: Time, TV, streaming**\
+`Find out how to watch the Charlotte Hornets play the Boston Celtics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7178377/2026/04/07/hornets-vs-celtics-stream-how-to-watch-april-7/
+
+**How to watch Heat vs. Raptors: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Toronto Raptors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7178373/2026/04/07/heat-vs-raptors-stream-how-to-watch-april-7/
+
+**How to watch Bucks vs. Nets: Time, TV, streaming**\
+`Find out how to watch the Milwaukee Bucks play the Brooklyn Nets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7178369/2026/04/07/bucks-vs-nets-stream-how-to-watch-april-7/
+
+**Joe Conzo Sr., Guardian of Tito Puente’s Legacy, Dies at 83**\
+`He went from being a fan of the “Mambo King” to becoming his manager and personal historian. Later, he kept alive memories of a bygone era of New York Latino culture.`\
+https://nytimes.com/2026/04/07/arts/music/joe-conzo-sr-dead.html
+
+**‘The Late Show’ Will Be Replaced by Byron Allen’s ‘Comics Unleashed,’ CBS Says**\
+`The comedian and longtime producer will bring his syndicated programming to the late-night slot that “The Late Show With Stephen Colbert” will vacate in May.`\
+https://nytimes.com/2026/04/07/business/media/colbert-late-show-replacement-byron-allen-cbs.html
+
 **Hudson Local Leans Toward Luxury With a Jean Georges Alum**\
 `The daiquiri is the star at Echo Lake, Vietnamese flavors are showcased at After Eden and more restaurant news.`\
 https://nytimes.com/2026/04/07/dining/nyc-restaurant-news.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7169711/2026/04/07/spain-anti-muslim-chants-investi
 **What I'm hearing about the Penguins: Murashov, McGroarty and magical pickups**\
 `The Penguins called up goaltender Sergei Murashov after Stuart Skinner's eye injury. Could we see him in the playoffs?`\
 https://nytimes.com/athletic/7171929/2026/04/07/penguins-nhl-playoffs-sergei-murashov-rutger-mcgroarty/
-
-**Protests in Mexico Challenge Move of Frida Kahlo Trove to Spain**\
-`Officials scrambled to reassure Mexicans that a collection of esteemed artworks would return by 2028. A rarely-seen will may clarify the collector’s wishes.`\
-https://nytimes.com/2026/04/07/arts/design/frida-kahlo-gelman-mexico-spain.html
-
-**How to watch Blue Jackets vs. Red Wings: Time, TV, streaming**\
-`Find out how to watch the Columbus Blue Jackets play the Detroit Red Wings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7178302/2026/04/07/blue-jackets-vs-red-wings-stream-how-to-watch-april-7/
-
-**How to watch Flyers vs. Devils: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Flyers play the New Jersey Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7178294/2026/04/07/flyers-vs-devils-stream-how-to-watch-april-7/
-
-**How to watch Lightning vs. Senators: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Lightning play the Ottawa Senators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7178291/2026/04/07/lightning-vs-senators-stream-how-to-watch-april-7/
-
-**How to watch Panthers vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the Florida Panthers play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7178288/2026/04/07/panthers-vs-canadiens-stream-how-to-watch-april-7/
-
-**How to watch Bruins vs. Hurricanes: Time, TV, streaming**\
-`Find out how to watch the Boston Bruins play the Carolina Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7178285/2026/04/07/bruins-vs-hurricanes-stream-how-to-watch-april-7/
 
