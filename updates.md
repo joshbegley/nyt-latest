@@ -1,3 +1,7 @@
+**Steve McMichael, late Bears great and Hall of Famer, had CTE, researchers find**\
+`The Pro Football Hall of Famer died in 2025 at age 67 after a five-year battle with ALS.`\
+https://nytimes.com/athletic/7178040/2026/04/07/bears-steve-mcmichael-cte-diagnosed/
+
 **Tiger Woods was ‘selfish’ to be driving at time of crash, Jason Day says**\
 `"He's just a human being like everyone else, and we have struggles," Day said Monday. "It's unfortunate."`\
 https://nytimes.com/athletic/7177850/2026/04/07/jason-day-tiger-woods-car-crash-masters/
