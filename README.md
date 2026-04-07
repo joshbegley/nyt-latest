@@ -1,3 +1,7 @@
+**American Journalist Kidnapped in Iraq Is Freed**\
+`The journalist, Shelly Kittleson, was abducted by a militia allied with Iran and held for a week. Iraqi officials say she was freed in exchange for the release of militia members.`\
+https://nytimes.com/2026/04/07/world/middleeast/shelly-kittleson-journalist-iraq.html
+
 **Review: Seeing a School Shooting on America’s Biggest Opera Stage**\
 `Kaija Saariaho’s “Innocence,” a powerful and kaleidoscopic depiction of mass violence and its aftermath, has arrived at the Metropolitan Opera.`\
 https://nytimes.com/2026/04/07/arts/music/innocence-met-opera-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7178369/2026/04/07/bucks-vs-nets-stream-how-to-watc
 **Joe Conzo Sr., Guardian of Tito Puente’s Legacy, Dies at 83**\
 `He went from being a fan of the “Mambo King” to becoming his manager and personal historian. Later, he kept alive memories of a bygone era of New York Latino culture.`\
 https://nytimes.com/2026/04/07/arts/music/joe-conzo-sr-dead.html
-
-**‘The Late Show’ Will Be Replaced by Byron Allen’s ‘Comics Unleashed,’ CBS Says**\
-`The comedian and longtime producer will bring his syndicated programming to the late-night slot that “The Late Show With Stephen Colbert” will vacate in May.`\
-https://nytimes.com/2026/04/07/business/media/colbert-late-show-replacement-byron-allen-cbs.html
 
