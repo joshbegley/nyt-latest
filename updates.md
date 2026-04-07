@@ -1,3 +1,7 @@
+**Michigan fends off UConn to win first national championship since 1989**\
+`The Wolverines completed a 37-3 season by winning a defensive battle against Dan Hurley's Huskies.`\
+https://nytimes.com/athletic/7177066/2026/04/06/uconn-michigan-2026-ncaa-mens-championship-score-results/
+
 **Offset, Former Migos Rapper, Is Shot Outside Florida Casino**\
 `The former member of the chart-topping trio was in stable condition after being shot in Hollywood, Fla., his representative said. The police said they had detained two other people.`\
 https://nytimes.com/2026/04/06/us/offset-migos-shooting-florida.html

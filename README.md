@@ -1,3 +1,11 @@
+**After HBP, Willson Contreras tells Brewers he's taking action next time**\
+`Even after changing divisions, Willson Contreras made his disdain for the Brewers abundantly clear on Monday evening. `\
+https://nytimes.com/athletic/7177261/2026/04/06/red-sox-brewers-willson-contreras-hit-by-pitch/
+
+**The way too early men's hoops Top 25: Where does 2026 champion Michigan rank?**\
+`Where does your team rank after season's end? `\
+https://nytimes.com/athletic/7177055/2026/04/06/mens-college-basketball-2026-early-top-25-rankings/
+
 **Michigan fends off UConn to win first national championship since 1989**\
 `The Wolverines completed a 37-3 season by winning a defensive battle against Dan Hurley's Huskies.`\
 https://nytimes.com/athletic/7177066/2026/04/06/uconn-michigan-2026-ncaa-mens-championship-score-results/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7152526/2026/04/06/wild-sign-charlie-stramel-michig
 **How Trump’s Endorsement in California Could Backfire Against Republicans**\
 `President Trump endorsed Steve Hilton, a Republican, in the governor’s race, which could help Democrats avoid being shut out of the general election.`\
 https://nytimes.com/2026/04/06/us/california-governor-trump-hilton-democrats.html
-
-**The first earthlings to the moon weren’t humans. They were tortoises.**\
-`By Ashley Ahn`\
-https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/the-first-earthlings-to-the-moon-werent-humans-they-were-tortoises
-
-**Corrections: April 7, 2026**\
-`Corrections that appeared in print on Tuesday, April 7, 2026.`\
-https://nytimes.com/2026/04/06/pageoneplus/corrections-april-7-2026.html
 
