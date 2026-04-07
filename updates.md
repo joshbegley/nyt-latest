@@ -1,3 +1,11 @@
+**The first earthlings to the moon weren’t humans. They were tortoises.**\
+`By Ashley Ahn`\
+https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/the-first-earthlings-to-the-moon-werent-humans-they-were-tortoises
+
+**Corrections: April 7, 2026**\
+`Corrections that appeared in print on Tuesday, April 7, 2026.`\
+https://nytimes.com/2026/04/06/pageoneplus/corrections-april-7-2026.html
+
 **Mamdani Celebrates Passover at Progressive ‘Seder in the Street’**\
 `The mayor has observed the Passover holiday in several ways in recent days, including a left-wing event on Monday. He planned to hold a Seder for city workers in the evening at Gracie Mansion.`\
 https://nytimes.com/2026/04/06/nyregion/mamdani-street-seder.html

@@ -1,3 +1,11 @@
+**The first earthlings to the moon weren’t humans. They were tortoises.**\
+`By Ashley Ahn`\
+https://nytimes.com/live/2026/04/06/science/nasa-artemis-ii-moon-lunar-flyby/the-first-earthlings-to-the-moon-werent-humans-they-were-tortoises
+
+**Corrections: April 7, 2026**\
+`Corrections that appeared in print on Tuesday, April 7, 2026.`\
+https://nytimes.com/2026/04/06/pageoneplus/corrections-april-7-2026.html
+
 **Mamdani Celebrates Passover at Progressive ‘Seder in the Street’**\
 `The mayor has observed the Passover holiday in several ways in recent days, including a left-wing event on Monday. He planned to hold a Seder for city workers in the evening at Gracie Mansion.`\
 https://nytimes.com/2026/04/06/nyregion/mamdani-street-seder.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/04/06/business/media/trump-jail-journalists-fighter-cre
 **Firing Bulls' front office was easy decision. Can Reinsdorfs find a way out of malaise?**\
 `In the 11 seasons since parting with Tom Thibodeau, the team has had three head coaches and is 378-493, with just two playoff appearances.`\
 https://nytimes.com/athletic/7176874/2026/04/06/bulls-fire-front-office-arturas-karnisovas-marc-eversley/
-
-**Iconic Fashion Shows That Seemed Plucked From the Garden**\
-`With these mostly spring presentations, the designers went deep on their love of flowers and plants.`\
-https://nytimes.com/2026/04/06/t-magazine/garden-flowers-fashion-spring.html
-
-**New Jersey Devils part ways with general manager Tom Fitzgerald**\
-`Fitzgerald had been part of the Devils front office since 2015 at varying levels, and GM since 2020.`\
-https://nytimes.com/athletic/7176974/2026/04/06/nj-devils-gm-tom-fitzgerald-fired-news/
 
