@@ -1,3 +1,7 @@
+**Word of the Day: contiguous**\
+`This word has appeared in 44 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/04/07/learning/word-of-the-day-contiguous.html
+
 **The New York Times in Print for Tuesday, April 7, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/04/07/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7163686/2026/04/07/brighton-expiring-contracts-plan
 **Aston Villa rejoice at the return of Youri Tielemans, their midfield metronome**\
 `The Belgian has been absent with an ankle injury since January, but his cameos for the national team suggest is he ready to make his mark`\
 https://nytimes.com/athletic/7166230/2026/04/07/youri-tielemans-aston-villa-emery-return/
-
-**Defensive discipline, high pressing and a reliable out-ball: How Liverpool can challenge PSG**\
-`Arne Slot's side face a monumental task against the defending European champions. These the key areas that they should be focusing on`\
-https://nytimes.com/athletic/7175551/2026/04/07/liverpool-slot-champions-league-psg/
 
