@@ -1,3 +1,7 @@
+**Mamdani Celebrates Passover at Progressive ‘Seder in the Street’**\
+`The mayor has observed the Passover holiday in several ways in recent days, including a left-wing event on Monday. He planned to hold a Seder for city workers in the evening at Gracie Mansion.`\
+https://nytimes.com/2026/04/06/nyregion/mamdani-street-seder.html
+
 **Whale That Swam 20 Miles Up Washington River Is Found Dead**\
 `The gray whale, which some locals affectionately named Willapa Willy, was found on Saturday afternoon after first being spotted swimming up the Willapa River last week.`\
 https://nytimes.com/2026/04/06/us/gray-whale-dead-washington-river.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/04/06/t-magazine/garden-flowers-fashion-spring.html
 **New Jersey Devils part ways with general manager Tom Fitzgerald**\
 `Fitzgerald had been part of the Devils front office since 2015 at varying levels, and GM since 2020.`\
 https://nytimes.com/athletic/7176974/2026/04/06/nj-devils-gm-tom-fitzgerald-fired-news/
-
-**Here’s What Happened in the War in the Middle East on Monday**\
-`President Trump escalated his threats ahead of his pending Tuesday deadline for Iran to reopen the Strait of Hormuz.`\
-https://nytimes.com/2026/04/06/world/middleeast/middle-east-iran-war-week-6.html
 

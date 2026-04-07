@@ -1,3 +1,7 @@
+**Mamdani Celebrates Passover at Progressive ‘Seder in the Street’**\
+`The mayor has observed the Passover holiday in several ways in recent days, including a left-wing event on Monday. He planned to hold a Seder for city workers in the evening at Gracie Mansion.`\
+https://nytimes.com/2026/04/06/nyregion/mamdani-street-seder.html
+
 **Whale That Swam 20 Miles Up Washington River Is Found Dead**\
 `The gray whale, which some locals affectionately named Willapa Willy, was found on Saturday afternoon after first being spotted swimming up the Willapa River last week.`\
 https://nytimes.com/2026/04/06/us/gray-whale-dead-washington-river.html
