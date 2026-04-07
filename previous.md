@@ -1,3 +1,7 @@
+**Stride for stride with Michigan's Dusty May on a late-night walk of champions**\
+`May rarely rides the bus after games, instead choosing to get some exercise, and he wasn’t breaking the habit on the night he won a title.`\
+https://nytimes.com/athletic/7177801/2026/04/07/dusty-may-michigan-national-championship-career/
+
 **Iranians Voice Shock and Defiance in Face of Trump’s Latest Deadline**\
 `President Trump has threatened devastating attacks if Iran does not reopen the Strait of Hormuz. Some Iranians questioned what had happened to American values.`\
 https://nytimes.com/2026/04/07/world/middleeast/iran-shock-defiance-trump-deadline-threat.html
@@ -23,7 +27,7 @@ https://nytimes.com/2026/04/07/style/street-style-look-exaggerated-silhouette.ht
 https://nytimes.com/athletic/7176981/2026/04/07/fantasy-baseball-buy-sell-hold-cam-smith/
 
 **U.K. Bars Ye Over Antisemitism, Months Before Major Festival Performances**\
-`The BBC said that entry to the country was being denied to the rapper formerly known as Kanye West.`\
+`The BBC said that entry to the country was being denied to the rapper formerly known as Kanye West. The concert promoter behind Wireless, the festival he was due to headline, said that the event was now canceled.`\
 https://nytimes.com/2026/04/07/arts/music/kanye-west-ye-visa-ban-wireless.html
 
 **Ann Arbor goes wild (again): How Michigan celebrated another national championship**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7177755/2026/04/07/michigan-fans-national-champions
 **Trump Administration Live Updates: Vance Visits Hungary to Support Orban’s Election Effort**\
 ``\
 https://nytimes.com/live/2026/04/07/us/trump-news-updates
-
-**Thief of joy: An unsettled bullpen falters again and Giants fall to 1-7 at home**\
-`A 6-4 loss to the Phillies was the latest calamity for a team that is finding a new way to let the baton clatter to the track every night.`\
-https://nytimes.com/athletic/7177518/2026/04/07/giants-bullpen-lose-phillies/
 

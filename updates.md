@@ -1,3 +1,11 @@
+**Stride for stride with Michigan's Dusty May on a late-night walk of champions**\
+`May rarely rides the bus after games, instead choosing to get some exercise, and he wasn’t breaking the habit on the night he won a title.`\
+https://nytimes.com/athletic/7177801/2026/04/07/dusty-may-michigan-national-championship-career/
+
+**U.K. Bars Ye Over Antisemitism, Months Before Major Festival Performances**\
+`The BBC said that entry to the country was being denied to the rapper formerly known as Kanye West. The concert promoter behind Wireless, the festival he was due to headline, said that the event was now canceled.`\
+https://nytimes.com/2026/04/07/arts/music/kanye-west-ye-visa-ban-wireless.html
+
 **Iranians Voice Shock and Defiance in Face of Trump’s Latest Deadline**\
 `President Trump has threatened devastating attacks if Iran does not reopen the Strait of Hormuz. Some Iranians questioned what had happened to American values.`\
 https://nytimes.com/2026/04/07/world/middleeast/iran-shock-defiance-trump-deadline-threat.html
