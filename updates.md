@@ -1,3 +1,7 @@
+**Word of the Day: contiguous**\
+`This word has appeared in 44 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/04/07/learning/word-of-the-day-contiguous.html
+
 **How Much Humiliation Can JD Vance Take?**\
 `The vice president gets saddled with the Iran war and eroding popularity.`\
 https://nytimes.com/2026/04/07/opinion/jd-vance-trump-iran-hungary-orban.html
