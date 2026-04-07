@@ -1,3 +1,11 @@
+**Kim Jong-un’s Daughter Drives a Tank, and Succession Talk Accelerates**\
+`Images of Kim Ju-ae at the helm of the military vehicle, with her father riding on top, added to speculation that she was being groomed to succeed him as North Korea’s leader.`\
+https://nytimes.com/2026/04/07/world/asia/north-korea-kim-jong-un-daughter-tank.html
+
+**Dusty May, Michigan's biggest star, gives off Cignetti vibes with NCAA championship run**\
+`As players become more transient in the NIL era, it's coaches like May and Dan Hurley who are often the main attractions.`\
+https://nytimes.com/athletic/7177607/2026/04/07/dusty-may-michigan-uconn-national-championship-coach/
+
 **How to watch Orioles vs. White Sox: Time, TV, streaming for April 7**\
 `Find out how to watch the Baltimore Orioles play the Chicago White Sox, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7177775/2026/04/07/orioles-vs-white-sox-stream-how-to-watch-april-7/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7177216/2026/04/07/unc-basketball-coach-michael-mal
 **College softball power rankings: There’s a new No. 1 after Texas falls at Alabama**\
 `Texas Tech jumps to the top after Texas' series loss at Alabama. And speaking of the Tide, this team looks poised for a run to the WCWS.`\
 https://nytimes.com/athletic/7176351/2026/04/07/college-softball-rankings-texas-tech-texas-alabama/
-
-**Will Robert Thomas' play convince the Blues to keep him? Top 5 pick or playoffs? Mailbag**\
-`The Blues entertained trade talks ahead of the deadline on Thomas, who was named the NHL's third star of the week for last week.`\
-https://nytimes.com/athletic/7171899/2026/04/07/blues-robert-thomas-playoffs-mailbag/
-
-**Bears roster tiers: Loveland, Burden join Caleb Williams in team's long-term core**\
-`In the sixth annual Bears roster tiers, the players are organized into tiers reflecting their long-term viability in Chicago.`\
-https://nytimes.com/athletic/7176905/2026/04/07/bears-roster-tiers-colston-loveland-luther-burden/
 

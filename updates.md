@@ -1,3 +1,7 @@
+**How to watch Orioles vs. White Sox: Time, TV, streaming for April 7**\
+`Find out how to watch the Baltimore Orioles play the Chicago White Sox, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7177775/2026/04/07/orioles-vs-white-sox-stream-how-to-watch-april-7/
+
 **Three paths Rams could take to fill their backup quarterback need**\
 `How the Rams decide to fill their backup QB void could tell a lot about their future plans at the game's most important position.`\
 https://nytimes.com/athletic/7176683/2026/04/07/rams-backup-quarterback-search-matthew-stafford/
