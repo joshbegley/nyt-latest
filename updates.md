@@ -1,3 +1,11 @@
+**An Easter Egg Hunt in a California Park Leads to a Human Skull**\
+`The authorities said they were examining the skull, which a child found in a park in Long Beach on Sunday, to identify the remains.`\
+https://nytimes.com/2026/04/07/us/human-skull-easter-egg-hunt.html
+
+**Human Writers Who Rage Against A.I.**\
+`Readers discuss the ways writing and artificial intelligence don’t mix. Also: A degraded civil culture.`\
+https://nytimes.com/2026/04/07/opinion/writers-ai.html
+
 **U.S., Israel and Iran Accelerate Strikes Ahead of Trump’s Deadline**\
 `The United States and Israel are trying to force Iran to open the Strait of Hormuz, according to American and Israel officials.`\
 https://nytimes.com/2026/04/07/world/middleeast/us-israel-strikes-iran.html
