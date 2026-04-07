@@ -1,5 +1,5 @@
 **U.S., Israel and Iran Accelerate Strikes Ahead of Trump’s Deadline**\
-`The United States and Israel trying to force Iran to open the Strait of Hormuz, according to American and Israel officials.`\
+`The United States and Israel are trying to force Iran to open the Strait of Hormuz, according to American and Israel officials.`\
 https://nytimes.com/2026/04/07/world/middleeast/us-israel-strikes-iran.html
 
 **Paul Seixas, 19, dominates Iztulia Basque Country: Is the Tour de France next?**\
