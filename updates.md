@@ -1,3 +1,11 @@
+**Dawn Staley says she spoke to Geno Auriemma, asks everyone to 'turn the page'**\
+`"I have a great deal of respect for him and what he's meant to this game," Staley said about Auriemma after their recent heated exchange.`\
+https://nytimes.com/athletic/7178573/2026/04/07/march-madness-geno-dawn-staley-incident-future/
+
+**Pentagon Stays Mum on School Strike, Even As Trump Boasts of Iran Rescue**\
+`President Trump and Secretary of Defense Pete Hegseth’s eagerness to recount details of the rescue of a downed airman followed weeks of silence on the deadly Tomahawk missile strike on an Iranian school.`\
+https://nytimes.com/2026/04/07/world/middleeast/iran-school-strike-pentagon.html
+
 **Newlywed Wife of U.S. Soldier Released From Immigration Detention**\
 `The couple had gone to the husband’s Army base to complete paperwork so they could move in together. But within hours that plan derailed, and New York Times reporting about the case quickly spread.`\
 https://nytimes.com/2026/04/07/us/ice-newlywed-military-wife-detain.html
