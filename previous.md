@@ -11,7 +11,7 @@ https://nytimes.com/video/science/space/100000010826698/artemis-ii-trump-moon-lu
 https://nytimes.com/live/2026/04/07/world/iran-war-trump-news/heres-the-latest
 
 **Iran War Live Updates: Trump’s Deadline Draws Closer With No Sign of Diplomatic Breakthrough**\
-`Israel and Iran traded fresh attacks on Tuesday after President Trump said a cease-fire proposal put forward by mediators was “not good enough.” Mr. Trump has threatened to destroy Iran’s bridges and power plants if it does not reopen the Strait of Hormuz by 8 p.m. Eastern.`\
+`Israel and Iran traded fresh attacks on Tuesday after President Trump said a cease-fire proposal was “not good enough.” Mr. Trump has threatened to destroy Iran’s bridges and power plants if it does not reopen the Strait of Hormuz by 8 p.m. Eastern.`\
 https://nytimes.com/live/2026/04/07/world/iran-war-trump-news
 
 **How to Build a Rest Stop for Delivery Workers in a Hurry**\
