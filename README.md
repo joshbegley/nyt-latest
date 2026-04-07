@@ -1,3 +1,35 @@
+**How to watch Bulls vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the Chicago Bulls play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7178188/2026/04/07/bulls-vs-wizards-stream-how-to-watch-april-7/
+
+**How to watch Timberwolves vs. Pacers: Time, TV, streaming**\
+`Find out how to watch the Minnesota Timberwolves play the Indiana Pacers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7178186/2026/04/07/timberwolves-vs-pacers-stream-how-to-watch-april-7/
+
+**The Windup: Another brother brawl loading?!**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7178060/2026/04/07/willson-william-contreras-red-sox-brewers-the-windup/
+
+**What, Exactly, Is Longevity Medicine?**\
+`The field is ripe with opportunity — and opportunism. Here’s how to navigate it.`\
+https://nytimes.com/2026/04/07/well/longevity-medicine-definition.html
+
+**Submit your Twins questions for Aaron Gleeman's early-season mailbag**\
+`The Twins' offense hasn't clicked in the early going. What questions do you have about that, and more, as the 2026 season gets underway?`\
+https://nytimes.com/athletic/7177899/2026/04/07/twins-mailbag-submission-form-2026-season-start/
+
+**Sunderland reach deal to sell majority stake in women's team**\
+`Sunderland become the fourth Premier League club to sell a stake in their women’s team to outside investors within the past two years.`\
+https://nytimes.com/athletic/7177846/2026/04/07/sunderland-women-team-sale-bay-collective/
+
+**Our Vacations. Our Food. Our Mortgages. The Iran War Will Change Everything.**\
+`The disruptions caused by the Iran war will significantly impact our cost of living.`\
+https://nytimes.com/2026/04/07/opinion/gas-prices-iran-war-travel-food-fed.html
+
+**The Five Weeknight Dishes in My Current Rotation**\
+`Including a bean-based Japanese curry, Genevieve Ko’s dan dan noodles and our very beloved chicken shawarma.`\
+https://nytimes.com/2026/04/07/dining/the-five-weeknight-dishes-in-my-current-rotation.html
+
 **NHL playoff update: 7 clinched, 6 close, while the Red Wings battle their own math**\
 `We’ve basically got three spots up for grabs: the last wild card in the West, the last wild card in the East and third place in the Metro.`\
 https://nytimes.com/athletic/7178062/2026/04/07/nhl-playoff-race-standings-red-wings-red-light/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/7178062/2026/04/07/nhl-playoff-race-standings-red-w
 **Kevin Lankinen, Adam Foote and the worst Canucks season ever: Notebook**\
 `The Canucks' season enters the end-game stage ahead of a lengthy, critical offseason for the franchise.`\
 https://nytimes.com/athletic/7177523/2026/04/07/vancouver-canucks-adam-foote-kevin-lankinen-stats-standings/
-
-**I’ve Been Rebuying the Same Boots for 16 Years**\
-`Clarks Desert Boots have been a wardrobe staple across the world for almost a century and in my closet for 16 years.`\
-https://nytimes.com/wirecutter/reviews/clarks-desert-boot-review/
-
-**Despite promises, Angels accused of not paying Eric Kay's legal fees in Skaggs case**\
-`Kay has been imprisoned since 2022. He waived doctor-patient privilege to assist the Angels defense in the Tyler Skaggs civil case. `\
-https://nytimes.com/athletic/7178007/2026/04/07/angels-eric-kay-legal-fees-tyler-skaggs-case/
-
-**The Bulls' GM hire won't matter if they don't acknowledge reality**\
-`As an organization, Chicago has lacked the ability to look in the mirror and accurately describe what is looking back at it.`\
-https://nytimes.com/athletic/7177726/2026/04/07/chicago-bulls-general-manger-search-honesty/
-
-**First Photos From NASA Moon Flyby Show Setting Earth and Eclipse**\
-`The White House and NASA released imagery captured by the cameras of the four astronauts of the Artemis II mission.`\
-https://nytimes.com/2026/04/07/science/nasa-artemis-moon-flyby-photos.html
-
-**Kim Jong-un’s Daughter Drives a Tank**\
-`South Korea’s spy agency now believes that Kim Ju-ae has officially been chosen to succeed her father, the North Korean leader, according to South Korean lawmakers briefed on the matter.`\
-https://nytimes.com/video/world/asia/100000010826991/north-korea-kim-daughter-tank.html
-
-**The Bounce: Ugly championships still count. Plus, the Bulls clean house**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/7166656/2026/04/07/michigan-ncaa-title-bulls-firings-the-bounce/
-
-**Steve McMichael, late Bears great and Hall of Famer, had CTE, researchers find**\
-`The Pro Football Hall of Famer died in 2025 at age 67 after a five-year battle with ALS.`\
-https://nytimes.com/athletic/7178040/2026/04/07/bears-steve-mcmichael-cte-diagnosed/
-
-**Tiger Woods was ‘selfish’ to be driving at time of crash, Jason Day says**\
-`"He's just a human being like everyone else, and we have struggles," Day said Monday. "It's unfortunate."`\
-https://nytimes.com/athletic/7177850/2026/04/07/jason-day-tiger-woods-car-crash-masters/
 
