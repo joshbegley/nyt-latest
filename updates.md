@@ -1,3 +1,11 @@
+**Wrexham’s Okonkwo switches international allegiance to Nigeria**\
+`The former Arsenal goalkeeper represented England up to under-18s.`\
+https://nytimes.com/athletic/7177664/2026/04/07/arthur-okonkwo-nigeria-wrexham/
+
+**Rangers insider: Drury's offseason crossroads, and which path he might take**\
+`Will the general manager choose prudence and patience in retooling New York's roster, or look to make a big summer splash? `\
+https://nytimes.com/athletic/7176381/2026/04/07/new-york-rangers-chris-drury-nhl-offseason/
+
 **Sabres' win over the Lightning leaves Jon Cooper frustrated, tightens division race**\
 `The Sabres shook out of their funk with an excellent performance against their Atlantic rivals, that featured far fewer fights.`\
 https://nytimes.com/athletic/7177357/2026/04/07/sabres-playoffs-atlantic-division-cooper-holmberg-injury-lightning/

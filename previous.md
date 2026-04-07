@@ -1,3 +1,11 @@
+**Wrexham’s Okonkwo switches international allegiance to Nigeria**\
+`The former Arsenal goalkeeper represented England up to under-18s.`\
+https://nytimes.com/athletic/7177664/2026/04/07/arthur-okonkwo-nigeria-wrexham/
+
+**Rangers insider: Drury's offseason crossroads, and which path he might take**\
+`Will the general manager choose prudence and patience in retooling New York's roster, or look to make a big summer splash? `\
+https://nytimes.com/athletic/7176381/2026/04/07/new-york-rangers-chris-drury-nhl-offseason/
+
 **Sabres' win over the Lightning leaves Jon Cooper frustrated, tightens division race**\
 `The Sabres shook out of their funk with an excellent performance against their Atlantic rivals, that featured far fewer fights.`\
 https://nytimes.com/athletic/7177357/2026/04/07/sabres-playoffs-atlantic-division-cooper-holmberg-injury-lightning/
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/7176503/2026/04/07/lions-penei-sewell-left-tackl-pr
 **Looking for a 2026 NFL Draft sleeper? Meet the FCS star who's been hustling his whole life**\
 `After lighting up the combine as one of just a few FCS prospects invited, Charles Demmings could be a mid-round pick in this year's draft.`\
 https://nytimes.com/athletic/7169799/2026/04/07/nfl-draft-2026-charles-demmings-cornerback-sleeper/
-
-**Luke Keaschall shrugs off slow start, homers, scores twice as Twins down Tigers**\
-`Minnesota found its offense and snapped a two-game losing streak with a 7-3 win over Detroit.
-`\
-https://nytimes.com/athletic/7177376/2026/04/07/twins-win-tigers-luke-keaschall-homers/
-
-**‘Finally, Sandy’s back’: Alcantara reasserts himself as the Marlins’ ace – and valuable trade chip**\
-`A return to Cy Young form for Alcantara could make the Marlins a playoff contender. It also skyrockets his value at the deadline.`\
-https://nytimes.com/athletic/7176665/2026/04/07/sandy-alcantara-marlins-ace-trade-deadline/
 
