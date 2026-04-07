@@ -1,3 +1,19 @@
+**Ann Arbor goes wild (again): How Michigan celebrated another national championship**\
+`Michigan fans are the first since Florida 20 years ago to celebrate football and men's basketball national championships so close together.`\
+https://nytimes.com/athletic/7177755/2026/04/07/michigan-fans-national-championship-celebration-basketball/
+
+**Trump Administration Live Updates: Vance Visits Hungary to Support Orban’s Election Effort**\
+``\
+https://nytimes.com/live/2026/04/07/us/trump-news-updates
+
+**Thief of joy: An unsettled bullpen falters again and Giants fall to 1-7 at home**\
+`A 6-4 loss to the Phillies was the latest calamity for a team that is finding a new way to let the baton clatter to the track every night.`\
+https://nytimes.com/athletic/7177518/2026/04/07/giants-bullpen-lose-phillies/
+
+**Abramovich: Charity set up to oversee frozen £2.35bn from Chelsea sale**\
+`The Foundation for the Victims of Conflict will be overseen by a former UNICEF executive, and includes other high-profile trustees.`\
+https://nytimes.com/athletic/7177690/2026/04/07/roman-abramovich-chelsea-sale-foundation/
+
 **Markets on Edge as Trump’s Iran Ultimatum Looms**\
 `Oil prices are rising and stocks are selling off as investors fret that the president will carry out his threats to “decimate” Iran.`\
 https://nytimes.com/2026/04/07/business/dealbook/markets-trump-iran-threats.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7177775/2026/04/07/orioles-vs-white-sox-stream-how-
 **Three paths Rams could take to fill their backup quarterback need**\
 `How the Rams decide to fill their backup QB void could tell a lot about their future plans at the game's most important position.`\
 https://nytimes.com/athletic/7176683/2026/04/07/rams-backup-quarterback-search-matthew-stafford/
-
-**Wizards rookie Will Riley is a creative artist on and off the basketball court**\
-`Riley has emerged as one of the steals of the 2025 NBA Draft, and an important part of Washington's future.`\
-https://nytimes.com/athletic/7177128/2026/04/07/will-riley-wizards-rookie-artist/
-
-**Aaron Ramsey: Former Wales and Arsenal midfielder announces retirement**\
-`The 35-year-old has been without a club since he left Mexican side Pumas UNAM last summer. `\
-https://nytimes.com/athletic/7177727/2026/04/07/aaron-ramsey-retires-wales-arsenal/
-
-**2-time MVP and Golden Boot winner Temwa Chawinga’s aura charges KC Current**\
-`The Athletic chooses three words to describe Chawinga's 2026 debut and unpacks what it means for the Current.`\
-https://nytimes.com/athletic/7176650/2026/04/07/nwsl-temwa-chawinga-aura-charges-kc-current/
-
-**Why the Panthers locked in on Tetairoa McMillan a year ago: 'Not gonna overthink this'**\
-`Carolina GM Dan Morgan liked McMillan for a long time before the 2025 NFL Draft. The receiver proved Morgan and the Panthers right.`\
-https://nytimes.com/athletic/7170303/2026/04/07/carolina-panthers-tetairoa-mcmillan-nfl-draft-history/
 
