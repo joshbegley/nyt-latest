@@ -1,3 +1,7 @@
+**Artemis II Completes Historic Journey Around the Moon**\
+`NASA’s Artemis II crew received a call from President Trump, who congratulated them for the successful lunar flyby.`\
+https://nytimes.com/video/science/space/100000010826698/artemis-ii-trump-moon-lunar-flyby.html
+
 **Here’s the latest.**\
 `By Francesca Regalado, Farnaz Fassihi, Elian Peltier and Ephrat Livni`\
 https://nytimes.com/live/2026/04/07/world/iran-war-trump-news/heres-the-latest
