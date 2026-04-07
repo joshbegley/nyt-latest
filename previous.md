@@ -1,3 +1,7 @@
+**The Pulse: When the favorites just get it done**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/7177473/2026/04/07/michigan-basketball-ncaa-title-the-pulse/
+
 **Wrexham’s Okonkwo switches international allegiance to Nigeria**\
 `The former Arsenal goalkeeper represented England up to under-18s.`\
 https://nytimes.com/athletic/7177664/2026/04/07/arthur-okonkwo-nigeria-wrexham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7177253/2026/04/07/knicks-hawks-jalen-brunson-karl-
 **Could Lions' Penei Sewell move to left tackle? Breaking down pros and cons**\
 `The Lions seem interested in the idea of moving Sewell to left tackle. How could that look in 2026?`\
 https://nytimes.com/athletic/7176503/2026/04/07/lions-penei-sewell-left-tackl-pros-cons-nfl/
-
-**Looking for a 2026 NFL Draft sleeper? Meet the FCS star who's been hustling his whole life**\
-`After lighting up the combine as one of just a few FCS prospects invited, Charles Demmings could be a mid-round pick in this year's draft.`\
-https://nytimes.com/athletic/7169799/2026/04/07/nfl-draft-2026-charles-demmings-cornerback-sleeper/
 

@@ -1,3 +1,7 @@
+**The Pulse: When the favorites just get it done**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/7177473/2026/04/07/michigan-basketball-ncaa-title-the-pulse/
+
 **Wrexham’s Okonkwo switches international allegiance to Nigeria**\
 `The former Arsenal goalkeeper represented England up to under-18s.`\
 https://nytimes.com/athletic/7177664/2026/04/07/arthur-okonkwo-nigeria-wrexham/
