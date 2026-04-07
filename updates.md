@@ -1,3 +1,7 @@
+**ICE Agents Shoot Into a Car, Injuring a Suspect in Northern California**\
+`A federal official said the agents were pursuing a “wanted gang member” who tried to run one of them over. No confirmation of that account was immediately available.`\
+https://nytimes.com/2026/04/07/us/shooting-ice-california.html
+
 **Iran Calls Off Indirect Talks With U.S. After Trump Threatens to Destroy ‘A Whole Civilization’**\
 `As the United States’ 8 p.m. deadline to open the Strait of Hormuz approaches, Iran vowed to retaliate if its power plants were attacked.`\
 https://nytimes.com/2026/04/07/world/middleeast/iran-trump-negotiations-talks-threat.html

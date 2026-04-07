@@ -6,8 +6,8 @@ https://nytimes.com/2026/04/07/world/middleeast/iran-trump-negotiations-talks-th
 `It is illegal for any military to target civilians, as President Trump has suggested he would in threats against Iran. But the U.S. has sought significant leeway in defining a civilian target.`\
 https://nytimes.com/2026/04/07/us/politics/war-crimes-civilians.html
 
-**Person Injured in Shooting Involving ICE in California, Police Say**\
-`The person’s condition and other details about the episode were not immediately clear. The Stanislaus County Sheriff’s Office said the shooting happened in the agricultural town of Patterson.`\
+**ICE Agents Shoot Into a Car, Injuring a Suspect in Northern California**\
+`A federal official said the agents were pursuing a “wanted gang member” who tried to run one of them over. No confirmation of that account was immediately available.`\
 https://nytimes.com/2026/04/07/us/shooting-ice-california.html
 
 **How Tolls in the Strait of Hormuz Would Undercut International Law**\
