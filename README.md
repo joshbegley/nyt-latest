@@ -1,3 +1,23 @@
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/04/10/t-magazine/tk.html
+
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/04/10/t-magazine/tk.html
+
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/04/10/t-magazine/tk.html
+
+**Gaza’s Rubble Is the Grave of Our Future**\
+`Six month’s after the cease-fire, ordinary Gazans contemplate their future while living with the wounds of war.`\
+https://www.nytimes.com/2026/04/10/opinion/gaza-cease-fire-death-israel.html
+
+**For Putin, Iran Is Something Close to Irreplaceable**\
+`Vladimir Putin has spent years building a coalition of the discontented on the premise that authoritarian states can outlast Western pressure. Iran is his proof of concept.`\
+https://www.nytimes.com/2026/04/10/opinion/putin-russia-iran.html
+
 **He Changed How Blackness Was Viewed in South Africa. Now He Gets Personal.**\
 `Mfundi Vundla spent 21 years in exile and created the popular television show “Generations.” His latest project is a play that explores the imperfections of the fight against apartheid.`\
 https://www.nytimes.com/2026/04/10/world/africa/south-africa-theater-generations-mfundi-vundla.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/04/09/us/politics/white-house-prediction-markets.ht
 **U.S. Government Moves Toward Automatic Registration for Military Draft**\
 `For decades, draft-eligible men ages 18 to 25 have been required to register with the Selective Service System. Most states offer a registration option on driver’s license applications.`\
 https://www.nytimes.com/2026/04/09/us/us-military-draft-automatic-registration-war.html
-
-**Patrick Radden Keefe on the Mystery at the Center of ‘London Falling’**\
-`The author discusses his newest book, about a 19-year-old’s curious death and the investigation that followed.`\
-https://www.nytimes.com/video/podcasts/100000010833269/patrick-radden-keefe-on-the-mystery-at-the-center-of-london-falling.html
-
-**Erick Valencia Salazar, exsocio del Mencho, se declara culpable en EE. UU.**\
-`Cofundador del Cártel Jalisco Nueva Generación, Valencia Salazar se enfrenta a penas de entre 10 años y cadena perpetua tras llegar a un acuerdo de culpabilidad en un tribunal de Washington.`\
-https://www.nytimes.com/es/2026/04/09/espanol/america-latina/erick-valencia-85-culpable-mexico.html
-
-**Trump Lashes Out at Prominent Conservatives Over Iran War Criticism**\
-`In a lengthy social media post, the president attacked Tucker Carlson, Megyn Kelly and others in starkly personal terms. He also criticized the editorial board of The Wall Street Journal.`\
-https://www.nytimes.com/2026/04/09/us/politics/trump-tucker-carlson-candace-owens.html
-
-**Here’s What Happened in the War in the Middle East on Thursday**\
-`Israeli strikes against Hezbollah in Lebanon threatened the cease-fire between the United States and Iran ahead of scheduled peace talks.`\
-https://www.nytimes.com/2026/04/09/world/middleeast/iran-war-middle-east-recap-thursday.html
-
-**Intelligence Court Renews Surveillance Program Whose Law May Soon Lapse**\
-`A classified ruling recertified the Section 702 program for a year but objected to systems that can filter Americans’ messages outside querying limits.`\
-https://www.nytimes.com/2026/04/09/us/politics/section-702-surveillance-fisa.html
 
