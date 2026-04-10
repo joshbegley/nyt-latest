@@ -1,3 +1,35 @@
+**He Changed How Blackness Was Viewed in South Africa. Now He Gets Personal.**\
+`Mfundi Vundla spent 21 years in exile and created the popular television show “Generations.” His latest project is a play that explores the imperfections of the fight against apartheid.`\
+https://www.nytimes.com/2026/04/10/world/africa/south-africa-theater-generations-mfundi-vundla.html
+
+**No Longer Off Limits, the Strait of Hormuz Remains Thorny Politically**\
+`Even after a cease-fire, Iran is keeping a chokehold on traffic, forcing countries to cut deals that could put them at odds with the U.S.`\
+https://www.nytimes.com/2026/04/10/world/middleeast/strait-hormuz-iran-ships-oil.html
+
+**Corrections: April 10, 2026**\
+`Corrections that appeared in print on Friday, April 10, 2026.`\
+https://www.nytimes.com/2026/04/10/pageoneplus/corrections-april-10-2026.html
+
+**He Came to New York For a Job and Left With a Boyfriend**\
+`Shawn Miller didn’t get the job, but an unexpected connection with Ivan Gilkes on a dating app made the trip worthwhile.`\
+https://www.nytimes.com/2026/04/10/style/ivan-gilkes-shawn-miller.html
+
+**The Stranger Who Invited Me Into My Own Bed**\
+`It was more rom-com than horror movie.`\
+https://www.nytimes.com/2026/04/10/style/modern-love-a-stranger-invited-me-into-my-own-bed.html
+
+**They Met at the Grammys and Eventually Hit the Right Note**\
+`It was music that bonded Ross Scarano, the editorial director of Complex Media, and Nina Lee, a publicist, and writing that reunited them.`\
+https://www.nytimes.com/2026/04/10/style/nina-lee-ross-scarano-wedding.html
+
+**They Clicked Over Scrabble in the High School Cafeteria**\
+`Sarah Luciano and Samuel Bobley have “been crazy about each other since we were 16 years old,” when they met in Long Island, she said.`\
+https://www.nytimes.com/2026/04/10/style/sarah-luciano-samuel-bobley-wedding.html
+
+**Quote of the Day: Suez Signaled Britain’s Slide. Could Iran Do That for U.S.?**\
+`Quotation of the Day for Friday, April 10, 2026.`\
+https://www.nytimes.com/2026/04/09/pageoneplus/quote-of-the-day-suez-signaled-britains-slide-could-iran-do-that-for-us.html
+
 **Iran’s Schools and Hospitals in Ruins From U.S.-Israeli Strikes**\
 `The Times has verified strikes on at least 39 schools and hospitals, a fraction of the devastation so far.`\
 https://www.nytimes.com/interactive/2026/04/09/world/middleeast/us-israel-strikes-iran-structures-damage.html
@@ -45,36 +77,4 @@ https://www.nytimes.com/2026/04/09/world/middleeast/iran-war-middle-east-recap-t
 **Intelligence Court Renews Surveillance Program Whose Law May Soon Lapse**\
 `A classified ruling recertified the Section 702 program for a year but objected to systems that can filter Americans’ messages outside querying limits.`\
 https://www.nytimes.com/2026/04/09/us/politics/section-702-surveillance-fisa.html
-
-**Unmasking the Creator of Bitcoin**\
-`The Daily’s Natalie Kitroeff and The New York Times Investigative Reporter John Carreyrou talk to Adam Back - the man Carreyrou believes is Bitcoin’s pseudonymous founder Satoshi Nakamoto.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000010832771/unmasking-the-creator-of-bitcoin.html
-
-**What We Know About the U.S.-Iran Cease-Fire Talks in Pakistan**\
-`Vice President JD Vance will lead the United States delegation which is set to meet with Iranian officials in Pakistan on Saturday.`\
-https://www.nytimes.com/2026/04/09/world/middleeast/iran-us-ceasefire-talks-negotiations.html
-
-**Afrika Bambaataa, Often Called the ‘Godfather of Hip-Hop,’ Is Dead**\
-`A pioneering rapper and D.J. from the Bronx, Mr. Bambaataa was accused of child sexual abuse later in his career.`\
-https://www.nytimes.com/2026/04/09/arts/music/afrika-bambaataa-dead.html
-
-**Judge Rejects Hegseth’s Second Attempt to Restrict Reporters at Pentagon**\
-`A federal judge gutted a set of rules that were adopted after the court declared an earlier press policy unconstitutional, in a case brought by The New York Times.`\
-https://www.nytimes.com/2026/04/09/business/media/judge-hegseth-pentagon-reporters-rules.html
-
-**How Trump’s Advisers Felt About Going to War With Iran**\
-`Our reporters Maggie Haberman and Jonathan Swan discuss how individual members of President Trump’s administration felt in the leadup to the war in Iran, and how they communicated their thoughts to Mr. Trump.`\
-https://www.nytimes.com/video/us/politics/100000010828478/trump-war-iran-advisers.html
-
-**A Mexican Cartel Leader and Ex-Partner to El Mencho Pleads Guilty in U.S.**\
-`Erick Valencia Salazar, a co-founder of one of Mexico’s deadliest gangs, faces 10 years to life in prison after making a plea deal in a Washington court.`\
-https://www.nytimes.com/2026/04/09/world/americas/mexico-cartels-el-85-guilty-plea-us.html
-
-**Melania Says She Was Not a Victim of Jeffrey Epstein**\
-`Melania Trump said on Thursday that she was not a victim of Jeffrey Epstein, and that she had no knowledge of his crimes.`\
-https://www.nytimes.com/video/us/100000010832546/melania-trump-epstein-maxwell-victim.html
-
-**Venezuela aprueba una nueva ley para abrir la minería a los inversionistas extranjeros**\
-`La medida sigue a una ley similar aprobada recientemente por los legisladores venezolanos que pretende abrir el sector petrolero del país a la inversión extranjera.`\
-https://www.nytimes.com/es/2026/04/09/espanol/america-latina/venezuela-mineria-inversion-extranjera-ley.html
 
