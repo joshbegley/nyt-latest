@@ -1,3 +1,19 @@
+**What’s Inside NASA’s Mission Control**\
+`Take a tour of the room in Houston where the team behind the Artemis II mission works day and night.`\
+https://www.nytimes.com/interactive/2026/04/09/science/space/nasa-mission-control-room.html
+
+**‘The Pitt’ Season 2, Episode 14 Recap: Physician, Heal Thyself**\
+`Dr. Robby may be stressed out by the constant demands of the E.R., but the work may also be the only thing saving him from himself.`\
+https://www.nytimes.com/2026/04/09/arts/television/the-pitt-recap-season-2-episode-14.html
+
+**Review: A Cold, Perfect ‘Death of a Salesman’ for Our Time**\
+`Arthur Miller’s classic tragedy returns to Broadway, starring Nathan Lane and Laurie Metcalf. Yet again, it is a triumph.`\
+https://www.nytimes.com/2026/04/09/theater/death-of-a-salesman-review-broadway-lane-metcalf.html
+
+**Drift Off**\
+`Erica Hsiung Wojcik returns to open our solving weekend.`\
+https://www.nytimes.com/2026/04/09/crosswords/daily-puzzle-2026-04-10.html
+
 **White House Warned Staff Not to Engage in Insider Trading Amid War With Iran**\
 `The directive came amid a surge of suspiciously well-timed trades on oil and prediction markets just ahead of crucial moments in the conflict.`\
 https://www.nytimes.com/2026/04/09/us/politics/white-house-prediction-markets.html

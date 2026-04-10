@@ -1,3 +1,19 @@
+**What’s Inside NASA’s Mission Control**\
+`Take a tour of the room in Houston where the team behind the Artemis II mission works day and night.`\
+https://www.nytimes.com/interactive/2026/04/09/science/space/nasa-mission-control-room.html
+
+**‘The Pitt’ Season 2, Episode 14 Recap: Physician, Heal Thyself**\
+`Dr. Robby may be stressed out by the constant demands of the E.R., but the work may also be the only thing saving him from himself.`\
+https://www.nytimes.com/2026/04/09/arts/television/the-pitt-recap-season-2-episode-14.html
+
+**Review: A Cold, Perfect ‘Death of a Salesman’ for Our Time**\
+`Arthur Miller’s classic tragedy returns to Broadway, starring Nathan Lane and Laurie Metcalf. Yet again, it is a triumph.`\
+https://www.nytimes.com/2026/04/09/theater/death-of-a-salesman-review-broadway-lane-metcalf.html
+
+**Drift Off**\
+`Erica Hsiung Wojcik returns to open our solving weekend.`\
+https://www.nytimes.com/2026/04/09/crosswords/daily-puzzle-2026-04-10.html
+
 **White House Warned Staff Not to Engage in Insider Trading Amid War With Iran**\
 `The directive came amid a surge of suspiciously well-timed trades on oil and prediction markets just ahead of crucial moments in the conflict.`\
 https://www.nytimes.com/2026/04/09/us/politics/white-house-prediction-markets.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/es/2026/04/09/espanol/america-latina/venezuela-mineria-i
 **Student Hit by Projectile During ‘No Kings’ Protest Lost an Eye, Lawyer Says**\
 `The student, Tucker Collins, 18, was observing demonstrators in Los Angeles when he was struck, the lawyer said.`\
 https://www.nytimes.com/2026/04/09/us/usc-student-loses-eye-no-kings-protest.html
-
-**NATO Labors to Avoid Becoming Another Casualty of the Iran War**\
-`President Trump is citing the unwillingness of European nations to back the United States in the conflict as another reason to scale back or abandon the alliance. And he still wants Greenland.`\
-https://www.nytimes.com/2026/04/09/us/politics/trump-iran-nato-rutte.html
-
-**Strained Postal Service Proposes Price Increases and Delays Retirement Funds**\
-`The moves are the latest attempts to stave off a looming financial crisis, and come on top of an 8 percent package surcharge that will take effect later this month.`\
-https://www.nytimes.com/2026/04/09/us/politics/postal-service-prices-retirement-funds.html
-
-**EE. UU. quiere la ayuda de sus aliados para perseguir a la extrema izquierda**\
-`El gobierno del presidente Trump busca designar como terroristas a grupos de extrema izquierda alrededor del mundo, aunque haya pocas pruebas de que representan un peligro inminente.`\
-https://www.nytimes.com/es/2026/04/09/espanol/estados-unidos/trump-antifa-terrorismo.html
-
-**Rodolfo Acuña, 93, Forthright Scholar at Forefront of Chicano Studies, Dies**\
-`An activist in the academy, he wrote a foundational text in the field, “Occupied America: A History of Chicanos.” It is still in print and still assigned to students.`\
-https://www.nytimes.com/2026/04/09/us/rodolfo-acuna-dead.html
 
