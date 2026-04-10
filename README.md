@@ -1,80 +1,80 @@
-**Pakistan Prepares for U.S.-Iran Peace Talks**\
-`Security has been ramped up in Islamabad, Pakistan’s capital, ahead of peace talks between the United States and Iran, which are set to start on Saturday. Vice President JD Vance will lead the U.S. delegation.`\
-https://www.nytimes.com/video/world/middleeast/100000010833530/pakistan-iran-us-ceasefire-talks.html
+**Lebanon: A Nation Uprooted by War**\
+`A million people in Lebanon have fled their homes as Israel clashes anew with Hezbollah. This is what their lives look now.`\
+https://www.nytimes.com/2026/04/10/world/middleeast/lebanon-displaced-photos.html
 
-**At 82, the ‘Jump Rope Queen of Beverly Hills’ Is Still Going**\
-`For Annie Judis, 82, defending her title as the world’s oldest competitive rope skipper — and sharing her journey on social media — has given her a sense of purpose.`\
-https://www.nytimes.com/video/well/100000010826077/at-82-the-jump-rope-queen-of-beverly-hills-is-still-going.html
+**See You in Pyongyang: Russia Pushes Its People to Embrace North Korea**\
+`Through art, food, tourism and academics, an increasingly isolated Moscow is seeking to cement lasting ties with Pyongyang.`\
+https://www.nytimes.com/2026/04/10/world/europe/russia-north-korea.html
 
-**Ahora cualquiera puede ser ‘biohacker’**\
-`Con semillas, suplementos y dispositivos electrónicos (pero con poca guía de expertos), estadounidenses de todos los perfiles buscan mejorar su bienestar con lo que comen.`\
-https://www.nytimes.com/es/2026/04/10/espanol/estilos-de-vida/hack-dieta.html
+**El misterioso síndrome de la embriaguez espontánea**\
+`Detenciones por conducir bajo los efectos del alcohol, problemas de pareja, acusaciones de beber en secreto: el síndrome de autocervecería puede causar estragos en la vida y la reputación de las personas.`\
+https://www.nytimes.com/es/2026/04/10/espanol/estilos-de-vida/sindrome-embriaguez-espontanea.html
 
-****\
-``\
-https://www.nytimes.com/video/embedded/admin/100000010833570/10vid-tyre-bridge-70689.html
+**La pastilla contra la calvicie que está redefiniendo la masculinidad**\
+`La finasterida, un fármaco para frenar la caída del cabello, está cambiando la forma en que los hombres envejecen y cómo se perciben a sí mismos.`\
+https://www.nytimes.com/es/2026/04/10/espanol/calvicie-finasterida-pastilla-medicamento-hombres.html
 
-**Middle East War Triggers Higher Prices in China**\
-`Three and a half years of deflationary pressure on Chinese factories reversed course last month as higher energy prices cycled into the economy.`\
-https://www.nytimes.com/2026/04/10/business/china-deflation-iran-war.html
+**5 Ways You’re Sabotaging Your Sleep**\
+`Some factors are outside our control, but others are avoidable.`\
+https://www.nytimes.com/2026/04/10/well/bad-sleep-habits.html
 
-**Brain Exercise**\
-`What do you think this image is communicating?`\
-https://www.nytimes.com/2026/04/10/learning/brain-exercise.html
+**The New York Times News Quiz, April 10, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/interactive/2026/04/10/briefing/quiz-iran-moon-michigan-wireless.html
 
-**How to Be Mayor in 100 Days: Mamdani Grapples With a Learning Curve**\
-`Zohran Mamdani has accrued a long list of quick accomplishments as mayor of New York City, but he has also abandoned some key campaign promises.`\
-https://www.nytimes.com/2026/04/10/nyregion/mamdani-100-days.html
+**Forks in the Dishwasher — Tines Up or Down?**\
+`A ruling on a timeless marital dispute.`\
+https://www.nytimes.com/interactive/2026/04/10/magazine/silverware-dishwasher-hodgman-quiz.html
 
-**Mamdani’s New York: Chronicling His First 100 Days as Mayor**\
-`Zohran Mamdani has pushed to deliver tangible improvements to New Yorkers’ lives, amid larger challenges like a blizzard and a deficit-laden budget.`\
-https://www.nytimes.com/interactive/2026/04/10/nyregion/zohran-mamdani-nyc-mayor-first-100-days.html
+**Vance Faces a High-Profile Test of His Negotiating Skills With Iran Talks**\
+`Vice President JD Vance is leading negotiations this weekend toward an end to a war that he had opposed starting.`\
+https://www.nytimes.com/2026/04/10/us/politics/vance-iran-talks.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/04/10/crosswords/spelling-bee-forum.html
+**To Fill Air Traffic Controller Shortage, F.A.A. Turns to Gamers**\
+`Avid players of video games have emerged as a target demographic for recruiters at range of federal agencies, including the military and the Department of Homeland Security.`\
+https://www.nytimes.com/2026/04/10/us/politics/air-traffic-controller-gamer.html
 
-**How to Steal a Subway Train: First, Get Yourself a $10 Skeleton Key.**\
-`Inside the world of “conquesting,” where vandals break into the operator’s booth, fool around with the control panel — and maybe take a quick joyride.`\
-https://www.nytimes.com/2026/04/10/nyregion/nyc-subway-conquesting-joyride.html
+**Contemplating Trump at 80**\
+`The president is giving old people a bad name.`\
+https://www.nytimes.com/2026/04/10/opinion/trump-presidents-aging-80.html
 
-**Tracking 7 of Mamdani’s Biggest Campaign Promises**\
-`Zohran Mamdani based his successful campaign for mayor of New York City on several central pledges. Here’s an early look on where those stand.`\
-https://www.nytimes.com/2026/04/10/nyregion/mamdani-campaign-promises.html
+**Eying 2028, Ambitious Democrats Court Black Voters**\
+`At a gathering in New York, potential candidates made overtures to a vital Democratic constituency.`\
+https://www.nytimes.com/2026/04/10/us/politics/eying-2028-ambitious-democrats-court-black-voters.html
 
-**Mayor Mamdani Answers Questions From New Yorkers**\
-`As Zohran Mamdani completes his first 100 days in office, we asked New York City residents what questions they have for their mayor.`\
-https://www.nytimes.com/video/nyregion/100000010829966/zohran-mamdani-new-yorkers.html
+**9 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://www.nytimes.com/2026/04/10/movies/new-movies-this-week-critics.html
 
-**Oil Goes Higher and Stocks Rise Ahead of U.S. Inflation Report**\
-`A temporary cease-fire in the war on Iran faces multiple hurdles and investors are watching the release of U.S. government data on inflation.`\
-https://www.nytimes.com/2026/04/10/business/oil-stocks-gas-prices-iran.html
+**Trump Administration Returns to Court for Yet Another Tariff Lawsuit**\
+`States and small businesses challenged the 10 percent tax on many imports that President Trump imposed after the Supreme Court struck down a previous slate of tariffs.`\
+https://www.nytimes.com/2026/04/10/business/trump-tariffs-lawsuit-hearing.html
 
-**Las escritoras de novela erótica que eluden a los censores religiosos en Nigeria**\
-`Jóvenes mujeres obtienen ganancias de sus atrevidos textos que comparten a través de grupos de WhatsApp para esquivar a la policía moral.`\
-https://www.nytimes.com/es/2026/04/10/espanol/mundo/novelas-eroticas-nigeria-censura.html
+**Why Beauty and Ugliness Go Hand in Hand**\
+`A new exhibition explores Renaissance views on what is attractive and what is hideous, and how one can’t exist without the other.`\
+https://www.nytimes.com/2026/04/10/arts/beauty-ugliness-renaissance-bozar-center-for-fine-arts.html
 
-**Palabra del día: ‘transaction’**\
-`Esta palabra ha aparecido en 801 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
-https://www.nytimes.com/es/2026/04/10/espanol/que-significa-transaction.html
+**Is the T.S.A. Ordeal Really Over?**\
+`Security lines are shorter, but the shutdown continues and pay is unresolved. With the World Cup around the corner, T.S.A. agents are tempering their expectations.`\
+https://www.nytimes.com/2026/04/10/travel/tsa-lines-shutdown-pay-world-cup.html
 
-**Word of the Day: transaction**\
-`This word has appeared in 801 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/04/10/learning/word-of-the-day-transaction.html
+**Consumer Spending, Engine of the U.S. Economy, Is Under Strain**\
+`Higher fuel costs are raising food and travel prices, while a shaky stock market tamps down free spenders.`\
+https://www.nytimes.com/2026/04/10/business/economy/consumer-spending-economy.html
 
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/04/10/world/iran-war-trump-israel-lebanon/heres-the-latest
+**Why Republicans Will Not Run Away From Trump**\
+`Without Trump on the midterms ballot, how will his party fare?`\
+https://www.nytimes.com/2026/04/10/opinion/trump-republicans-midterms-iran.html
 
-**Jimmy Kimmel Salutes Melania’s White House Surprise**\
-`The first lady addressed her relationship with Jeffrey Epstein in a prepared statement that the talk show host called “better than her movie.”`\
-https://www.nytimes.com/2026/04/10/arts/television/jimmy-kimmel-melania-epstein.html
+**This Hungarian Town Explains Why Orban Could Lose on Sunday**\
+`Lake Balaton was beloved as a vacation spot. Now, luxury real estate projects serve many friends of Prime Minister Viktor Orban, and the locals are fed up.`\
+https://www.nytimes.com/2026/04/10/world/europe/hungary-corruption-orban-magyar-election.html
 
-**Después del alto al fuego, los iraníes viven una mezcla de alivio y conmoción**\
-`Los iraníes reflexionaron sobre lo que los ataques les habían hecho pasar y a lo que podrían enfrentarse a continuación.`\
-https://www.nytimes.com/es/2026/04/10/espanol/mundo/iranies-testimonios-alto-fuego.html
+**These Masked Men in San Francisco Want One Thing: Your Signature**\
+`California’s ballot initiative wars are so lucrative that signature gatherers are offering cash and pizza for names on a petition. The exchange is illegal, and state officials say they are investigating.`\
+https://www.nytimes.com/2026/04/10/us/san-francisco-ballot-signatures-california-masks.html
 
-**Las películas de pesos pesados del cine dominan la programación de Cannes**\
-`La 79ª edición del festival incluye películas de directores de cine de autor tan reconocidos como Pedro Almodóvar y Pawel Pawlikowski, pero cuenta con pocos títulos de Hollywood.`\
-https://www.nytimes.com/es/2026/04/10/espanol/cultura/festival-cannes-2026-peliculas.html
+**Trump Is Turning America Into a Psychotic State**\
+`What are the implications if the administration of the world’s most powerful country is chaotic in its thinking and not reliably in touch with reality?`\
+https://www.nytimes.com/2026/04/10/opinion/trump-iran-psychotic-state-institutions.html
 
