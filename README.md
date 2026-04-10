@@ -1,3 +1,7 @@
+**NASA is closely watching a storm in California not far from the Artemis landing.**\
+``\
+https://www.nytimes.com/live/2026/04/10/science/nasa-artemis-ii-splashdown-return/san-deigo-weather-artemis
+
 **Fred Drasner, a Feisty Leader of The Daily News, Is Dead at 83**\
 `A former New York cabdriver who never lost his edge, he was co-publisher alongside Mort Zuckerman as he took on rival papers in the so-called tabloid wars.`\
 https://www.nytimes.com/2026/04/10/business/media/fred-drasner-dead.html
@@ -50,7 +54,7 @@ https://www.nytimes.com/es/2026/04/10/espanol/estados-unidos/servicio-militar.ht
 `Democrats in Congress have assiduously avoided talk of a third impeachment of President Trump, concerned that it would distract from their midterm campaign message. That tide seems to have turned.`\
 https://www.nytimes.com/2026/04/10/us/politics/trump-impeachment-democrats.html
 
-**Why the Inflation Numbers Might Not Be Quite So Scary as They Seem**\
+**Prices Are High. Here’s One Reason Not to Panic.**\
 `I believe the gas tank is half full.`\
 https://www.nytimes.com/2026/04/10/opinion/inflation-prices-data-economy.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/10/realestate/mariah-carey-tribeca-penthouse-sal
 **Officials Release Design for 250-Foot Arch in Washington, as Trump Seeks Another Imprint**\
 `The president has proposed the arch, which would rise on a Washington roundabout across from the Lincoln Memorial, as a way to celebrate America’s 250th anniversary.`\
 https://www.nytimes.com/2026/04/10/us/politics/arch-washington-trump.html
-
-**Molotov Cocktail Is Hurled at Home of OpenAI C.E.O. Sam Altman**\
-`The device burned an exterior gate of the house, in San Francisco, the police said, and it was unclear whether the artificial intelligence executive was home. The authorities arrested a suspect.`\
-https://www.nytimes.com/2026/04/10/us/open-ai-sam-altman-molotov-cocktail.html
 
