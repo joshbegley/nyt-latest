@@ -1,3 +1,7 @@
+**Should Churches Remove Art by a Priest Accused of Sexual Abuse?**\
+`The Rev. Marko Ivan Rupnik has installed mosaics across the Roman Catholic world, including at the Vatican. After nuns accused him of abuse, some want his work removed.`\
+https://www.nytimes.com/2026/04/10/world/europe/father-rupnik-priest-abuse-mosaics.html
+
 **Bob Law, Trailblazing Talk-Radio Host, Dies at 86**\
 `His wee-hours show “Night Talk” was a nationally syndicated stalwart, examining tough issues and spotlighting Black cultural and political stars.`\
 https://www.nytimes.com/2026/04/10/business/media/bob-law-dead.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/10/opinion/artemis-apollo-moon.html
 **Islamabad, Pakistan’s quiet capital, steps into the diplomatic spotlight.**\
 ``\
 https://www.nytimes.com/live/2026/04/10/world/iran-war-trump-israel-lebanon/islamabad-pakistan-talks
-
-**Lo que vive el pueblo iraní**\
-`Cuando EE. UU. e Israel lanzaron su ataque, algunos iraníes sintieron algo parecido a la esperanza. No duró mucho.`\
-https://www.nytimes.com/es/2026/04/10/espanol/mundo/iran-guerra-que-pasa.html
 
