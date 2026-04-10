@@ -1,3 +1,7 @@
+**Muchos venezolanos quieren irse de EE. UU. Pero no consiguen pasaportes**\
+`Estados Unidos les ha imposibilitado quedarse legalmente, y su propio país les dificulta el regreso.`\
+https://www.nytimes.com/es/2026/04/10/espanol/america-latina/venezuela-salir-eeuu-pasaportes.html
+
 **Lebanon: A Nation Uprooted by War**\
 `A million people in Lebanon have fled their homes as Israel clashes anew with Hezbollah. This is what their lives look now.`\
 https://www.nytimes.com/2026/04/10/world/middleeast/lebanon-displaced-photos.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/10/world/europe/hungary-corruption-orban-magyar-
 **These Masked Men in San Francisco Want One Thing: Your Signature**\
 `California’s ballot initiative wars are so lucrative that signature gatherers are offering cash and pizza for names on a petition. The exchange is illegal, and state officials say they are investigating.`\
 https://www.nytimes.com/2026/04/10/us/san-francisco-ballot-signatures-california-masks.html
-
-**Trump Is Turning America Into a Psychotic State**\
-`What are the implications if the administration of the world’s most powerful country is chaotic in its thinking and not reliably in touch with reality?`\
-https://www.nytimes.com/2026/04/10/opinion/trump-iran-psychotic-state-institutions.html
 
