@@ -1,3 +1,7 @@
+**Here’s what the astronauts did for 10 days in space.**\
+``\
+https://www.nytimes.com/live/2026/04/10/science/nasa-artemis-ii-splashdown-return/heres-what-the-astronauts-did-for-10-days-in-space
+
 **Workout Clothes That Offer Support, Sun Protection — and Even Probiotics**\
 `Five cross-functional activewear brands to put on your radar.`\
 https://www.nytimes.com/2026/04/10/t-magazine/workout-activewear-clothes.html
