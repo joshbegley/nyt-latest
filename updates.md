@@ -1,3 +1,7 @@
+**Pentagon Appeals Court Decisions Gutting Its Press Restrictions**\
+`The Defense Department filed a formal notice that it intended to fight a federal judge’s recent rulings that its press restrictions were unconstitutional.`\
+https://www.nytimes.com/2026/04/10/business/media/pentagon-press-restrictions-appeal.html
+
 **Fred Drasner, a Feisty Leader of The Daily News, Is Dead at 83**\
 `A former New York cabdriver who never lost his edge, he was co-publisher alongside Mort Zuckerman as he took on rival papers in the so-called tabloid wars.`\
 https://www.nytimes.com/2026/04/10/business/media/fred-drasner-dead.html
