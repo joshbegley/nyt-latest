@@ -1,3 +1,11 @@
+**F.A.A. Says Military Can Use Anti-Drone Lasers in U.S. Airspace**\
+`An interagency dispute over the use of high-energy lasers near airports led the Federal Aviation Administration to temporarily close the airspace twice in Texas this year.`\
+https://www.nytimes.com/2026/04/10/us/politics/faa-military-anti-drone-lasers.html
+
+**Iran Unable to Find Mines in Strait of Hormuz, U.S. Says**\
+`The lost mines have prevented Iran from quickly complying with President Trump’s demand to allow more ships to pass through the waterway.`\
+https://www.nytimes.com/2026/04/10/us/politics/iran-mines-strait.html
+
 **Harris Signals Potential Third Presidential Run In 2028**\
 `Former Vice President Kamala Harris signaled a potential third run for the presidency in 2028 at a gathering of the National Action Network on Friday. More than a half-dozen other potential Democratic candidates also appeared at the event.`\
 https://www.nytimes.com/video/us/politics/100000010835247/kamala-harris-2028-democrats.html
@@ -66,15 +74,7 @@ https://www.nytimes.com/2026/04/10/science/thomas-s-langner-dead.html
 `After defeating a Democratic fixture in a 1988 primary, he rose to lead the House Foreign Affairs Committee, then was toppled himself in 2020, undone by an overheard comment.`\
 https://www.nytimes.com/2026/04/10/nyregion/eliot-engel-dead.html
 
-**With Peace Talks Set to Begin, Prospects for Long-Term Deal Uncertain**\
-`As U.S. and Iranian leaders head to Pakistan for negotiations amid a two-week cease-fire, the two sides must resolve major differences on Lebanon, the Strait of Hormuz and frozen Iranian assets.`\
+**As Peace Talks Open, Prospects for Lasting Deal Are Uncertain**\
+`With U.S. and Iranian leaders heading to Pakistan for negotiations amid a two-week cease-fire, the two sides must resolve major differences on Lebanon, the Strait of Hormuz and frozen Iranian assets.`\
 https://www.nytimes.com/2026/04/10/world/middleeast/iran-us-peace-talks-pakistan.html
-
-**Trump Says First Lady ‘Had a Right’ to Talk About Epstein**\
-`President Trump said in an interview that he had known his wife wanted to address rumors about the late sex offender at some point, but that he had not known exactly what she would say.`\
-https://www.nytimes.com/2026/04/10/us/politics/trump-melania-epstein.html
-
-**Drafting a Presidential Son? The Manosphere Wants to Talk About It**\
-`With news of a change to the Selective Service, memes and social media chatter abound about who would be sent to war.`\
-https://www.nytimes.com/2026/04/10/style/draft-barron-trump-army-iran-war-memes.html
 

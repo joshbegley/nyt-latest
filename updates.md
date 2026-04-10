@@ -1,3 +1,15 @@
+**F.A.A. Says Military Can Use Anti-Drone Lasers in U.S. Airspace**\
+`An interagency dispute over the use of high-energy lasers near airports led the Federal Aviation Administration to temporarily close the airspace twice in Texas this year.`\
+https://www.nytimes.com/2026/04/10/us/politics/faa-military-anti-drone-lasers.html
+
+**Iran Unable to Find Mines in Strait of Hormuz, U.S. Says**\
+`The lost mines have prevented Iran from quickly complying with President Trump’s demand to allow more ships to pass through the waterway.`\
+https://www.nytimes.com/2026/04/10/us/politics/iran-mines-strait.html
+
+**As Peace Talks Open, Prospects for Lasting Deal Are Uncertain**\
+`With U.S. and Iranian leaders heading to Pakistan for negotiations amid a two-week cease-fire, the two sides must resolve major differences on Lebanon, the Strait of Hormuz and frozen Iranian assets.`\
+https://www.nytimes.com/2026/04/10/world/middleeast/iran-us-peace-talks-pakistan.html
+
 **Harris Signals Potential Third Presidential Run In 2028**\
 `Former Vice President Kamala Harris signaled a potential third run for the presidency in 2028 at a gathering of the National Action Network on Friday. More than a half-dozen other potential Democratic candidates also appeared at the event.`\
 https://www.nytimes.com/video/us/politics/100000010835247/kamala-harris-2028-democrats.html
