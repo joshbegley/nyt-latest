@@ -1,3 +1,11 @@
+**How and When to Watch NASA’s Artemis II Splash Down in Pacific Ocean**\
+`Here’s what you need to know about Artemis II and the splashdown of the Orion capsule.`\
+https://www.nytimes.com/2026/04/10/science/nasa-artemis-ii-splash-down-watch-time-stream.html
+
+**Bessent and Powell’s A.I. Anxiety**\
+`The Treasury secretary and the Fed chairman reportedly summoned banking leaders to discuss the potential systemic risks of Anthropic’s new model.`\
+https://www.nytimes.com/2026/04/10/business/dealbook/bessent-powell-anthropic-banking-risks.html
+
 **A Record Jump in U.S. Gasoline Prices Is Squeezing Consumers**\
 `The cost at the pump made its biggest monthly percentage increase in decades amid lingering tensions over the war in Iran.`\
 https://www.nytimes.com/2026/04/10/business/economy/gasoline-price-rise.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/10/world/middleeast/lebanon-displaced-photos.htm
 **See You in Pyongyang: Russia Pushes Its People to Embrace North Korea**\
 `Through art, food, tourism and academics, an increasingly isolated Moscow is seeking to cement lasting ties with Pyongyang.`\
 https://www.nytimes.com/2026/04/10/world/europe/russia-north-korea.html
-
-**El misterioso síndrome de la embriaguez espontánea**\
-`Detenciones por conducir bajo los efectos del alcohol, problemas de pareja, acusaciones de beber en secreto: el síndrome de autocervecería puede causar estragos en la vida y la reputación de las personas.`\
-https://www.nytimes.com/es/2026/04/10/espanol/estilos-de-vida/sindrome-embriaguez-espontanea.html
-
-**La pastilla contra la calvicie que está redefiniendo la masculinidad**\
-`La finasterida, un fármaco para frenar la caída del cabello, está cambiando la forma en que los hombres envejecen y cómo se perciben a sí mismos.`\
-https://www.nytimes.com/es/2026/04/10/espanol/calvicie-finasterida-pastilla-medicamento-hombres.html
 
