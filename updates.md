@@ -1,3 +1,19 @@
+**Oil Ticks Higher and Stocks Rise Ahead of U.S. Inflation Report**\
+`A temporary cease-fire in the war on Iran faces multiple hurdles and investors are watching the release of U.S. government data on inflation.`\
+https://www.nytimes.com/2026/04/10/business/oil-stocks-gas-prices-iran.html
+
+**Las escritoras de novela erótica que eluden a los censores religiosos en Nigeria**\
+`Jóvenes mujeres obtienen ganancias de sus atrevidos textos que comparten a través de grupos de WhatsApp para esquivar a la policía moral.`\
+https://www.nytimes.com/es/2026/04/10/espanol/mundo/novelas-eroticas-nigeria-censura.html
+
+**Palabra del día: ‘transaction’**\
+`Esta palabra ha aparecido en 801 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/04/10/espanol/que-significa-transaction.html
+
+**Word of the Day: transaction**\
+`This word has appeared in 801 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/04/10/learning/word-of-the-day-transaction.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/10/world/iran-war-trump-israel-lebanon/heres-the-latest
