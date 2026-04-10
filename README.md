@@ -16,7 +16,7 @@ https://www.nytimes.com/es/2026/04/10/espanol/estados-unidos/servicio-militar.ht
 
 **Burned Before, Democrats Abruptly Revive the Idea of Impeaching Trump**\
 `Democrats in Congress have assiduously avoided talk of a third impeachment of President Trump, concerned that it would distract from their midterm campaign message. That tide seems to have turned.`\
-https://www.nytimes.com/2026/04/10/us/politics/burned-before-democrats-abruptly-revive-the-idea-of-impeaching-trump.html
+https://www.nytimes.com/2026/04/10/us/politics/trump-impeachment-democrats.html
 
 **Why the Scary Inflation Numbers Might Not Be Quite So Scary as They Seem**\
 `I believe the gas tank is half full. `\
