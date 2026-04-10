@@ -1,3 +1,27 @@
+**Trump Moves Top Aide James Blair to Political Operation Ahead of Midterms**\
+`Mr. Blair will “lead the charge from the outside,” the president said on social media. The move comes as Republicans are bracing for a potentially difficult November election.`\
+https://www.nytimes.com/2026/04/10/us/politics/trump-moves-top-aide-james-blair-to-political-operation-ahead-of-midterms.html
+
+**Swalwell Faces Sex Assault Accusation as He Runs for California Governor**\
+`Eric Swalwell, a Democratic congressman, denied the account of a former staff member published by The San Francisco Chronicle. Supporters began to withdraw their endorsements, and several campaign officials have quit.`\
+https://www.nytimes.com/2026/04/10/us/politics/eric-swalwell-allegations-california-governor.html
+
+**Trump-Ally Orbán Trails in Polls Ahead of Hungary’s Election**\
+`After 16 years in power, Prime Minister Viktor Orbán’s party is trailing in most independent polls behind the opposition leader Peter Magyar as Sunday’s election draws nearer.`\
+https://www.nytimes.com/video/world/europe/100000010833976/orban-magyar-hungary-election.html
+
+**Eric Adams, Citizen of the World, Becomes an Actual Citizen of Albania**\
+`Mr. Adams, the former mayor of New York City, has expressed fondness for Albania, visiting the country in his last weeks in office.`\
+https://www.nytimes.com/2026/04/10/nyregion/eric-adams-albania-citizen.html
+
+**Trump Is Racing to Redefine ‘America First’ in a Time of War**\
+`Washington has been debating the thrust of Mr. Trump’s foreign policy for more than a decade, with the only consensus being that “America First” means whatever the president says it does.`\
+https://www.nytimes.com/2026/04/10/world/europe/trump-redefine-foreign-policy.html
+
+**Artemis II Astronauts Are Set to Arrive Home**\
+`Also, Iran adds a new condition as JD Vance heads to peace talks. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/04/10/briefing/artemis-ii-astronauts-splashdown-jd-vance-iran.html
+
 **Here’s what the astronauts did for 10 days in space.**\
 ``\
 https://www.nytimes.com/live/2026/04/10/science/nasa-artemis-ii-splashdown-return/heres-what-the-astronauts-did-for-10-days-in-space
