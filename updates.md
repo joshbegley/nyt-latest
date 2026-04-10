@@ -1,3 +1,31 @@
+**Middle East War Triggers Higher Prices in China**\
+`Three and a half years of deflationary pressure on Chinese factories reversed course last month as higher energy prices cycled into the economy.`\
+https://www.nytimes.com/2026/04/10/business/china-deflation-iran-war.html
+
+**Brain Exercise**\
+`What do you think this image is communicating?`\
+https://www.nytimes.com/2026/04/10/learning/brain-exercise.html
+
+**How to Be Mayor in 100 Days: Mamdani Grapples With a Learning Curve**\
+`Zohran Mamdani has accrued a long list of quick accomplishments as mayor of New York City, but he has also abandoned some key campaign promises.`\
+https://www.nytimes.com/2026/04/10/nyregion/mamdani-100-days.html
+
+**Mamdani’s New York: Chronicling His First 100 Days as Mayor**\
+`Zohran Mamdani has pushed to deliver tangible improvements to New Yorkers’ lives, amid larger challenges like a blizzard and a deficit-laden budget.`\
+https://www.nytimes.com/interactive/2026/04/10/nyregion/zohran-mamdani-nyc-mayor-first-100-days.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/10/crosswords/spelling-bee-forum.html
+
+**How to Steal a Subway Train: First, Get Yourself a $10 Skeleton Key.**\
+`Inside the world of “conquesting,” where vandals break into the operator’s booth, fool around with the control panel — and maybe take a quick joyride.`\
+https://www.nytimes.com/2026/04/10/nyregion/nyc-subway-conquesting-joyride.html
+
+**Tracking 7 of Mamdani’s Biggest Campaign Promises**\
+`Zohran Mamdani based his successful campaign for mayor of New York City on several central pledges. Here’s an early look on where those stand.`\
+https://www.nytimes.com/2026/04/10/nyregion/mamdani-campaign-promises.html
+
 **Mayor Mamdani Answers Questions From New Yorkers**\
 `As Zohran Mamdani completes his first 100 days in office, we asked New York City residents what questions they have for their mayor.`\
 https://www.nytimes.com/video/nyregion/100000010829966/zohran-mamdani-new-yorkers.html
