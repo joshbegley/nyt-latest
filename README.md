@@ -1,3 +1,7 @@
+**Review: The Philharmonic Surrounds a Premiere With a Motley Crowd**\
+`George Lewis’s new piece brought in the percussion and piano quartet Yarn/Wire, in an evening that also featured the soprano Golda Schultz.`\
+https://www.nytimes.com/2026/04/10/arts/music/new-york-philharmonic-george-lewis-review.html
+
 **European Airports Warn of Fuel Shortages if Gulf Supplies Remain Shut**\
 `An association of airports told European Union officials that fuel shipments through the Strait of Hormuz had to restart within three weeks to avoid a “systemic” shortage.`\
 https://www.nytimes.com/2026/04/10/business/europe-airports-jet-fuel-shortage.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/10/podcasts/hardfork-mythos-cybersecurity.html
 **Europe Braces for a Spike in Inflation**\
 `Investors are betting that the European Central Bank and the Bank of England will raise interest rates this year.`\
 https://www.nytimes.com/2026/04/10/business/europe-inflation-iran-war.html
-
-**U.S. Inflation Surged in March as Iran War Pushed Up Prices**\
-`Soaring energy costs led to the biggest monthly increase in the Consumer Price Index since the peak of the post-pandemic inflation crisis in June 2022.`\
-https://www.nytimes.com/2026/04/10/business/economy/what-to-know-about-the-report.html
 
