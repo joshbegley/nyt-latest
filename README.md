@@ -1,3 +1,7 @@
+**Hilde Limondjian, Met Museum’s Longtime Concert Impresario, Dies at 89**\
+`She gave New York debuts to artists like Cecilia Bartoli and Peter Serkin, and introduced new music by Philip Glass and others.`\
+https://www.nytimes.com/2026/04/10/arts/music/hilde-limondjian-dead.html
+
 **The Enduring Body and Soul of Martha Graham at 100**\
 `Her dance company, the oldest in the United States, celebrates its centennial in a series of mixed bills. But why aren’t all the dances by Graham?`\
 https://www.nytimes.com/2026/04/10/arts/dance/martha-graham-centennial-city-center.html
@@ -68,13 +72,9 @@ https://www.nytimes.com/2026/04/10/business/europe-inflation-iran-war.html
 
 **U.S. Inflation Surged in March as Iran War Pushed Up Prices**\
 `Soaring energy costs led to the biggest monthly increase in the Consumer Price Index since the peak of the post-pandemic inflation crisis in June 2022.`\
-https://www.nytimes.com/live/2026/04/10/business/inflation-cpi-report/what-to-know-about-the-report
+https://www.nytimes.com/2026/04/10/business/economy/what-to-know-about-the-report.html
 
 **You Can’t Use This A.I.**\
 `Claude Mythos Preview is dangerous, Anthropic said. We explain the risks.`\
 https://www.nytimes.com/2026/04/10/briefing/claude-mythos-preview.html
-
-**Fly Me to the Moon**\
-`Remembering the Apollo missions.`\
-https://www.nytimes.com/2026/04/10/opinion/artemis-apollo-moon.html
 

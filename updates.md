@@ -1,3 +1,7 @@
+**The Enduring Body and Soul of Martha Graham at 100**\
+`Her dance company, the oldest in the United States, celebrates its centennial in a series of mixed bills. But why aren’t all the dances by Graham?`\
+https://www.nytimes.com/2026/04/10/arts/dance/martha-graham-centennial-city-center.html
+
 **Should Churches Remove Art by a Priest Accused of Sexual Abuse?**\
 `The Rev. Marko Ivan Rupnik has installed mosaics across the Roman Catholic world, including at the Vatican. After nuns accused him of abuse, some want his work removed.`\
 https://www.nytimes.com/2026/04/10/world/europe/father-rupnik-priest-abuse-mosaics.html
