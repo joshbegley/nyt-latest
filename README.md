@@ -1,5 +1,5 @@
 **What’s Inside NASA’s Mission Control**\
-`Take a tour of the room in Houston where the team behind the Artemis II mission works day and night.`\
+`Take a tour of the room where the team behind the Artemis II mission works day and night.`\
 https://www.nytimes.com/interactive/2026/04/09/science/space/nasa-mission-control-room.html
 
 **‘The Pitt’ Season 2, Episode 14 Recap: Physician, Heal Thyself**\
