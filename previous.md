@@ -1,3 +1,15 @@
+**White House Warned Staff Not to Engage in Insider Trading Amid War With Iran**\
+`The directive came amid a surge of suspiciously well-timed trades on oil and prediction markets just ahead of crucial moments in the conflict.`\
+https://www.nytimes.com/2026/04/09/us/politics/white-house-prediction-markets.html
+
+**U.S. Government Moves Toward Automatic Registration for Military Draft**\
+`For decades, draft-eligible men ages 18 to 25 have been required to register with the Selective Service System. Most states offer a registration option on driver’s license applications.`\
+https://www.nytimes.com/2026/04/09/us/us-military-draft-automatic-registration-war.html
+
+**Patrick Radden Keefe on the Mystery at the Center of ‘London Falling’**\
+`The author discusses his newest book, about a 19-year-old’s curious death and the investigation that followed.`\
+https://www.nytimes.com/video/podcasts/100000010833269/patrick-radden-keefe-on-the-mystery-at-the-center-of-london-falling.html
+
 **Erick Valencia Salazar, exsocio del Mencho, se declara culpable en EE. UU.**\
 `Cofundador del Cártel Jalisco Nueva Generación, Valencia Salazar se enfrenta a penas de entre 10 años y cadena perpetua tras llegar a un acuerdo de culpabilidad en un tribunal de Washington.`\
 https://www.nytimes.com/es/2026/04/09/espanol/america-latina/erick-valencia-85-culpable-mexico.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/es/2026/04/09/espanol/estados-unidos/trump-antifa-terror
 **Rodolfo Acuña, 93, Forthright Scholar at Forefront of Chicano Studies, Dies**\
 `An activist in the academy, he wrote a foundational text in the field, “Occupied America: A History of Chicanos.” It is still in print and still assigned to students.`\
 https://www.nytimes.com/2026/04/09/us/rodolfo-acuna-dead.html
-
-**Florida Investigates Whether ChatGPT Helped a Campus Shooting Suspect**\
-`The state’s attorney general, James Uthmeier, said ChatGPT “may likely have been used to assist” the suspect in last year’s shooting at Florida State University.`\
-https://www.nytimes.com/2026/04/09/us/florida-openai-chatgpt-fsu-shooting-investigation.html
-
-**Israel Agrees to Hold Talks With Lebanon**\
-`Also, vegetative patients may be more aware than we thought. Here’s the latest at the end of Thursday.`\
-https://www.nytimes.com/2026/04/09/briefing/israel-agrees-to-hold-talks-with-lebanon.html
-
-**In a Boost to Coal, E.P.A. Moves to End Biden’s Toxic Ash Disposal Rules**\
-`Lee Zeldin, the E.P.A. administrator, said the changes would help U.S. “energy dominance.” Environmentalists said they threaten drinking water.`\
-https://www.nytimes.com/2026/04/09/climate/epa-coal-rules-biden.html
 

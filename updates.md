@@ -1,3 +1,15 @@
+**White House Warned Staff Not to Engage in Insider Trading Amid War With Iran**\
+`The directive came amid a surge of suspiciously well-timed trades on oil and prediction markets just ahead of crucial moments in the conflict.`\
+https://www.nytimes.com/2026/04/09/us/politics/white-house-prediction-markets.html
+
+**U.S. Government Moves Toward Automatic Registration for Military Draft**\
+`For decades, draft-eligible men ages 18 to 25 have been required to register with the Selective Service System. Most states offer a registration option on driver’s license applications.`\
+https://www.nytimes.com/2026/04/09/us/us-military-draft-automatic-registration-war.html
+
+**Patrick Radden Keefe on the Mystery at the Center of ‘London Falling’**\
+`The author discusses his newest book, about a 19-year-old’s curious death and the investigation that followed.`\
+https://www.nytimes.com/video/podcasts/100000010833269/patrick-radden-keefe-on-the-mystery-at-the-center-of-london-falling.html
+
 **Erick Valencia Salazar, exsocio del Mencho, se declara culpable en EE. UU.**\
 `Cofundador del Cártel Jalisco Nueva Generación, Valencia Salazar se enfrenta a penas de entre 10 años y cadena perpetua tras llegar a un acuerdo de culpabilidad en un tribunal de Washington.`\
 https://www.nytimes.com/es/2026/04/09/espanol/america-latina/erick-valencia-85-culpable-mexico.html
