@@ -1,3 +1,19 @@
+**Anthropic’s Cybersecurity Shock Wave + Ronan Farrow and Andrew Marantz on Their Sam Altman Investigation + One Good Thing**\
+`The new Anthropic model that’s too dangerous to be released is already revealing thousands of software vulnerabilities.`\
+https://www.nytimes.com/2026/04/10/podcasts/hardfork-mythos-cybersecurity.html
+
+**Europe Braces for a Spike in Inflation**\
+`Investors are betting that the European Central Bank and the Bank of England will raise interest rates this year.`\
+https://www.nytimes.com/2026/04/10/business/europe-inflation-iran-war.html
+
+**What to know about the report.**\
+``\
+https://www.nytimes.com/live/2026/04/10/business/inflation-cpi-report/what-to-know-about-the-report
+
+**You Can’t Use This A.I.**\
+`Claude Mythos Preview is dangerous, Anthropic said. We explain the risks.`\
+https://www.nytimes.com/2026/04/10/briefing/claude-mythos-preview.html
+
 **Fly Me to the Moon**\
 `Remembering the Apollo missions.`\
 https://www.nytimes.com/2026/04/10/opinion/artemis-apollo-moon.html

@@ -1,3 +1,19 @@
+**Anthropic’s Cybersecurity Shock Wave + Ronan Farrow and Andrew Marantz on Their Sam Altman Investigation + One Good Thing**\
+`The new Anthropic model that’s too dangerous to be released is already revealing thousands of software vulnerabilities.`\
+https://www.nytimes.com/2026/04/10/podcasts/hardfork-mythos-cybersecurity.html
+
+**Europe Braces for a Spike in Inflation**\
+`Investors are betting that the European Central Bank and the Bank of England will raise interest rates this year.`\
+https://www.nytimes.com/2026/04/10/business/europe-inflation-iran-war.html
+
+**What to know about the report.**\
+``\
+https://www.nytimes.com/live/2026/04/10/business/inflation-cpi-report/what-to-know-about-the-report
+
+**You Can’t Use This A.I.**\
+`Claude Mythos Preview is dangerous, Anthropic said. We explain the risks.`\
+https://www.nytimes.com/2026/04/10/briefing/claude-mythos-preview.html
+
 **Fly Me to the Moon**\
 `Remembering the Apollo missions.`\
 https://www.nytimes.com/2026/04/10/opinion/artemis-apollo-moon.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/interactive/2026/04/10/briefing/quiz-iran-moon-michigan-
 **Forks in the Dishwasher — Tines Up or Down?**\
 `A ruling on a timeless marital dispute.`\
 https://www.nytimes.com/interactive/2026/04/10/magazine/silverware-dishwasher-hodgman-quiz.html
-
-**Vance Faces a High-Profile Test of His Negotiating Skills With Iran Talks**\
-`Vice President JD Vance is leading negotiations this weekend toward an end to a war that he had opposed starting.`\
-https://www.nytimes.com/2026/04/10/us/politics/vance-iran-talks.html
-
-**To Fill Air Traffic Controller Shortage, F.A.A. Turns to Gamers**\
-`Avid players of video games have emerged as a target demographic for recruiters at range of federal agencies, including the military and the Department of Homeland Security.`\
-https://www.nytimes.com/2026/04/10/us/politics/air-traffic-controller-gamer.html
-
-**Contemplating Trump at 80**\
-`The president is giving old people a bad name.`\
-https://www.nytimes.com/2026/04/10/opinion/trump-presidents-aging-80.html
-
-**Eying 2028, Ambitious Democrats Court Black Voters**\
-`At a gathering in New York, potential candidates made overtures to a vital Democratic constituency.`\
-https://www.nytimes.com/2026/04/10/us/politics/eying-2028-ambitious-democrats-court-black-voters.html
 
