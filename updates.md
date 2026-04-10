@@ -1,3 +1,7 @@
+**Trump Shares Video of Graphic Attack and Rails Against Haitians**\
+`The man seen beating a woman is from Haiti and faces a murder charge in Florida, officials said. President Trump has fought to end protections for Haitian immigrants.`\
+https://www.nytimes.com/2026/04/10/us/politics/trump-hammer-video-florida-attack-immigration.html
+
 **Review: The Philharmonic Surrounds a Premiere With a Motley Crowd**\
 `George Lewis’s new piece brought in the percussion and piano quartet Yarn/Wire, in an evening that also featured the soprano Golda Schultz.`\
 https://www.nytimes.com/2026/04/10/arts/music/new-york-philharmonic-george-lewis-review.html

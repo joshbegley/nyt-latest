@@ -1,3 +1,7 @@
+**Trump Shares Video of Graphic Attack and Rails Against Haitians**\
+`The man seen beating a woman is from Haiti and faces a murder charge in Florida, officials said. President Trump has fought to end protections for Haitian immigrants.`\
+https://www.nytimes.com/2026/04/10/us/politics/trump-hammer-video-florida-attack-immigration.html
+
 **Review: The Philharmonic Surrounds a Premiere With a Motley Crowd**\
 `George Lewis’s new piece brought in the percussion and piano quartet Yarn/Wire, in an evening that also featured the soprano Golda Schultz.`\
 https://www.nytimes.com/2026/04/10/arts/music/new-york-philharmonic-george-lewis-review.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/10/podcasts/the-headlines/the-headlines-news-qui
 **Anthropic’s Cybersecurity Shock Wave + Ronan Farrow and Andrew Marantz on Their Sam Altman Investigation + One Good Thing**\
 `The new Anthropic model that’s too dangerous to be released is already revealing thousands of software vulnerabilities.`\
 https://www.nytimes.com/2026/04/10/podcasts/hardfork-mythos-cybersecurity.html
-
-**Europe Braces for a Spike in Inflation**\
-`Investors are betting that the European Central Bank and the Bank of England will raise interest rates this year.`\
-https://www.nytimes.com/2026/04/10/business/europe-inflation-iran-war.html
 
