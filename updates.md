@@ -1,3 +1,7 @@
+**Mayor Mamdani Answers Questions From New Yorkers**\
+`As Zohran Mamdani completes his first 100 days in office, we asked New York City residents what questions they have for their mayor.`\
+https://www.nytimes.com/video/nyregion/100000010829966/zohran-mamdani-new-yorkers.html
+
 **Oil Ticks Higher and Stocks Rise Ahead of U.S. Inflation Report**\
 `A temporary cease-fire in the war on Iran faces multiple hurdles and investors are watching the release of U.S. government data on inflation.`\
 https://www.nytimes.com/2026/04/10/business/oil-stocks-gas-prices-iran.html

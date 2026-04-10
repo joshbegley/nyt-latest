@@ -1,3 +1,7 @@
+**Mayor Mamdani Answers Questions From New Yorkers**\
+`As Zohran Mamdani completes his first 100 days in office, we asked New York City residents what questions they have for their mayor.`\
+https://www.nytimes.com/video/nyregion/100000010829966/zohran-mamdani-new-yorkers.html
+
 **Oil Ticks Higher and Stocks Rise Ahead of U.S. Inflation Report**\
 `A temporary cease-fire in the war on Iran faces multiple hurdles and investors are watching the release of U.S. government data on inflation.`\
 https://www.nytimes.com/2026/04/10/business/oil-stocks-gas-prices-iran.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/10/style/ivan-gilkes-shawn-miller.html
 **The Stranger Who Invited Me Into My Own Bed**\
 `It was more rom-com than horror movie.`\
 https://www.nytimes.com/2026/04/10/style/modern-love-a-stranger-invited-me-into-my-own-bed.html
-
-**They Met at the Grammys and Eventually Hit the Right Note**\
-`It was music that bonded Ross Scarano, the editorial director of Complex Media, and Nina Lee, a publicist, and writing that reunited them.`\
-https://www.nytimes.com/2026/04/10/style/nina-lee-ross-scarano-wedding.html
 
