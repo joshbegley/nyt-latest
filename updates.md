@@ -1,3 +1,15 @@
+**Ahora cualquiera puede ser ‘biohacker’**\
+`Con semillas, suplementos y dispositivos electrónicos (pero con poca guía de expertos), estadounidenses de todos los perfiles buscan mejorar su bienestar con lo que comen.`\
+https://www.nytimes.com/es/2026/04/10/espanol/estilos-de-vida/hack-dieta.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/admin/100000010833570/10vid-tyre-bridge-70689.html
+
+**Oil Goes Higher and Stocks Rise Ahead of U.S. Inflation Report**\
+`A temporary cease-fire in the war on Iran faces multiple hurdles and investors are watching the release of U.S. government data on inflation.`\
+https://www.nytimes.com/2026/04/10/business/oil-stocks-gas-prices-iran.html
+
 **Middle East War Triggers Higher Prices in China**\
 `Three and a half years of deflationary pressure on Chinese factories reversed course last month as higher energy prices cycled into the economy.`\
 https://www.nytimes.com/2026/04/10/business/china-deflation-iran-war.html

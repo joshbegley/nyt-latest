@@ -1,3 +1,11 @@
+**Ahora cualquiera puede ser ‘biohacker’**\
+`Con semillas, suplementos y dispositivos electrónicos (pero con poca guía de expertos), estadounidenses de todos los perfiles buscan mejorar su bienestar con lo que comen.`\
+https://www.nytimes.com/es/2026/04/10/espanol/estilos-de-vida/hack-dieta.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/admin/100000010833570/10vid-tyre-bridge-70689.html
+
 **Middle East War Triggers Higher Prices in China**\
 `Three and a half years of deflationary pressure on Chinese factories reversed course last month as higher energy prices cycled into the economy.`\
 https://www.nytimes.com/2026/04/10/business/china-deflation-iran-war.html
@@ -30,7 +38,7 @@ https://www.nytimes.com/2026/04/10/nyregion/mamdani-campaign-promises.html
 `As Zohran Mamdani completes his first 100 days in office, we asked New York City residents what questions they have for their mayor.`\
 https://www.nytimes.com/video/nyregion/100000010829966/zohran-mamdani-new-yorkers.html
 
-**Oil Ticks Higher and Stocks Rise Ahead of U.S. Inflation Report**\
+**Oil Goes Higher and Stocks Rise Ahead of U.S. Inflation Report**\
 `A temporary cease-fire in the war on Iran faces multiple hurdles and investors are watching the release of U.S. government data on inflation.`\
 https://www.nytimes.com/2026/04/10/business/oil-stocks-gas-prices-iran.html
 
@@ -65,14 +73,6 @@ https://www.nytimes.com/es/2026/04/10/espanol/cultura/festival-cannes-2026-pelic
 **Xi Seeks to Sway Taiwan, and Trump, With Message of Stability**\
 `Ahead of a summit with Donald Trump, the Chinese leader is using a rare meeting with a Taiwanese politician to cast Beijing as a peacemaker and squeeze the island’s president.`\
 https://www.nytimes.com/2026/04/10/world/asia/taiwan-china-xi-cheng.html
-
-**TK**\
-`TK`\
-https://static01.nyt.com/slideshow/2026/04/10/t-magazine/tk.html
-
-**TK**\
-`TK`\
-https://static01.nyt.com/slideshow/2026/04/10/t-magazine/tk.html
 
 **TK**\
 `TK`\
