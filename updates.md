@@ -1,3 +1,15 @@
+**Fly Me to the Moon**\
+`Remembering the Apollo missions.`\
+https://www.nytimes.com/2026/04/10/opinion/artemis-apollo-moon.html
+
+**Islamabad, Pakistan’s quiet capital, steps into the diplomatic spotlight.**\
+``\
+https://www.nytimes.com/live/2026/04/10/world/iran-war-trump-israel-lebanon/islamabad-pakistan-talks
+
+**Lo que vive el pueblo iraní**\
+`Cuando EE. UU. e Israel lanzaron su ataque, algunos iraníes sintieron algo parecido a la esperanza. No duró mucho.`\
+https://www.nytimes.com/es/2026/04/10/espanol/mundo/iran-guerra-que-pasa.html
+
 **The Miracle Unfolding in Mississippi Schools**\
 `Since 2013, performance on national tests in Mississippi has skyrocketed, while scores in blue states have lagged. What is it doing right?`\
 https://www.nytimes.com/2026/04/10/podcasts/the-daily/mississippi-schools-test-scores.html

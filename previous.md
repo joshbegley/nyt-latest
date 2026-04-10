@@ -1,3 +1,15 @@
+**Fly Me to the Moon**\
+`Remembering the Apollo missions.`\
+https://www.nytimes.com/2026/04/10/opinion/artemis-apollo-moon.html
+
+**Islamabad, Pakistan’s quiet capital, steps into the diplomatic spotlight.**\
+``\
+https://www.nytimes.com/live/2026/04/10/world/iran-war-trump-israel-lebanon/islamabad-pakistan-talks
+
+**Lo que vive el pueblo iraní**\
+`Cuando EE. UU. e Israel lanzaron su ataque, algunos iraníes sintieron algo parecido a la esperanza. No duró mucho.`\
+https://www.nytimes.com/es/2026/04/10/espanol/mundo/iran-guerra-que-pasa.html
+
 **The Miracle Unfolding in Mississippi Schools**\
 `Since 2013, performance on national tests in Mississippi has skyrocketed, while scores in blue states have lagged. What is it doing right?`\
 https://www.nytimes.com/2026/04/10/podcasts/the-daily/mississippi-schools-test-scores.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/10/opinion/trump-presidents-aging-80.html
 **Eying 2028, Ambitious Democrats Court Black Voters**\
 `At a gathering in New York, potential candidates made overtures to a vital Democratic constituency.`\
 https://www.nytimes.com/2026/04/10/us/politics/eying-2028-ambitious-democrats-court-black-voters.html
-
-**9 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/04/10/movies/new-movies-this-week-critics.html
-
-**Trump Administration Returns to Court for Yet Another Tariff Lawsuit**\
-`States and small businesses challenged the 10 percent tax on many imports that President Trump imposed after the Supreme Court struck down a previous slate of tariffs.`\
-https://www.nytimes.com/2026/04/10/business/trump-tariffs-lawsuit-hearing.html
-
-**Why Beauty and Ugliness Go Hand in Hand**\
-`A new exhibition explores Renaissance views on what is attractive and what is hideous, and how one can’t exist without the other.`\
-https://www.nytimes.com/2026/04/10/arts/beauty-ugliness-renaissance-bozar-center-for-fine-arts.html
 
