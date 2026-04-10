@@ -1,3 +1,11 @@
+**Iran’s Schools and Hospitals in Ruins From U.S.-Israeli Strikes**\
+`The Times has verified strikes on at least 39 schools and hospitals, a fraction of the devastation so far.`\
+https://www.nytimes.com/interactive/2026/04/09/world/middleeast/us-israel-strikes-iran-structures-damage.html
+
+**What’s Inside NASA’s Mission Control**\
+`Take a tour of the room where the team behind the Artemis II mission works day and night.`\
+https://www.nytimes.com/interactive/2026/04/09/science/space/nasa-mission-control-room.html
+
 **What’s Inside NASA’s Mission Control**\
 `Take a tour of the room in Houston where the team behind the Artemis II mission works day and night.`\
 https://www.nytimes.com/interactive/2026/04/09/science/space/nasa-mission-control-room.html

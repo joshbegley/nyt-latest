@@ -1,5 +1,9 @@
+**Iran’s Schools and Hospitals in Ruins From U.S.-Israeli Strikes**\
+`The Times has verified strikes on at least 39 schools and hospitals, a fraction of the devastation so far.`\
+https://www.nytimes.com/interactive/2026/04/09/world/middleeast/us-israel-strikes-iran-structures-damage.html
+
 **What’s Inside NASA’s Mission Control**\
-`Take a tour of the room in Houston where the team behind the Artemis II mission works day and night.`\
+`Take a tour of the room where the team behind the Artemis II mission works day and night.`\
 https://www.nytimes.com/interactive/2026/04/09/science/space/nasa-mission-control-room.html
 
 **‘The Pitt’ Season 2, Episode 14 Recap: Physician, Heal Thyself**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/us/100000010832546/melania-trump-epstein-maxwell-v
 **Venezuela aprueba una nueva ley para abrir la minería a los inversionistas extranjeros**\
 `La medida sigue a una ley similar aprobada recientemente por los legisladores venezolanos que pretende abrir el sector petrolero del país a la inversión extranjera.`\
 https://www.nytimes.com/es/2026/04/09/espanol/america-latina/venezuela-mineria-inversion-extranjera-ley.html
-
-**Student Hit by Projectile During ‘No Kings’ Protest Lost an Eye, Lawyer Says**\
-`The student, Tucker Collins, 18, was observing demonstrators in Los Angeles when he was struck, the lawyer said.`\
-https://www.nytimes.com/2026/04/09/us/usc-student-loses-eye-no-kings-protest.html
 
