@@ -1,3 +1,7 @@
+**Trump comparte un video explícito de un ataque y arremete contra los haitianos**\
+`El hombre al que se ve golpeando a una mujer es de Haití y se enfrenta a un cargo de asesinato en Florida, dijeron las autoridades. El presidente ha buscado eliminar el Estatus de Protección Temporal para los migrantes de origen haitiano.`\
+https://www.nytimes.com/es/2026/04/10/espanol/estados-unidos/trump-video-haitianos.html
+
 **Homeland Security Workers Get Paid, but the Next Check Is Uncertain**\
 `The lack of clarity has frustrated employees as Congress battles over how to fund the department.`\
 https://www.nytimes.com/2026/04/10/us/politics/homeland-security-funding.html
