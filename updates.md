@@ -1,3 +1,7 @@
+**Pakistan Prepares for U.S.-Iran Peace Talks**\
+`Security has been ramped up in Islamabad, Pakistan’s capital, ahead of peace talks between the United States and Iran, which are set to start on Saturday. Vice President JD Vance will lead the U.S. delegation.`\
+https://www.nytimes.com/video/world/middleeast/100000010833530/pakistan-iran-us-ceasefire-talks.html
+
 **At 82, the ‘Jump Rope Queen of Beverly Hills’ Is Still Going**\
 `For Annie Judis, 82, defending her title as the world’s oldest competitive rope skipper — and sharing her journey on social media — has given her a sense of purpose.`\
 https://www.nytimes.com/video/well/100000010826077/at-82-the-jump-rope-queen-of-beverly-hills-is-still-going.html
