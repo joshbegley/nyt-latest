@@ -1,3 +1,7 @@
+**European Airports Warn of Fuel Shortages if Gulf Supplies Remain Shut**\
+`An association of airports told European Union officials that fuel shipments through the Strait of Hormuz had to restart within three weeks to avoid a “systemic” shortage.`\
+https://www.nytimes.com/2026/04/10/business/europe-airports-jet-fuel-shortage.html
+
 **Hilde Limondjian, Met Museum’s Longtime Concert Impresario, Dies at 89**\
 `She gave New York debuts to artists like Cecilia Bartoli and Peter Serkin, and introduced new music by Philip Glass and others.`\
 https://www.nytimes.com/2026/04/10/arts/music/hilde-limondjian-dead.html
