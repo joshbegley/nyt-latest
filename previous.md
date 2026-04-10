@@ -1,3 +1,7 @@
+**Potential Democratic 2028 Candidates Condemn Trump’s ‘War of Choice’ in Iran**\
+`At a convention in New York, several Democrats mulling presidential bids rallied around opposition to President Trump’s decision to attack Iran.`\
+https://www.nytimes.com/2026/04/10/us/politics/iran-war-democrats-2028-election.html
+
 **‘His Legacy Is Complex’: Grappling With Afrika Bambaataa**\
 `The tributes to one of hip-hop’s founders were complicated by allegations of sexual abuse made against him in recent years.`\
 https://www.nytimes.com/2026/04/10/style/frika-bambaataa-legacy.html
@@ -12,7 +16,7 @@ https://www.nytimes.com/es/2026/04/10/espanol/estados-unidos/servicio-militar.ht
 
 **Burned Before, Democrats Abruptly Revive the Idea of Impeaching Trump**\
 `Democrats in Congress have assiduously avoided talk of a third impeachment of President Trump, concerned that it would distract from their midterm campaign message. That tide seems to have turned.`\
-https://www.nytimes.com/2026/04/10/us/politics/burned-before-democrats-abruptly-revive-the-idea-of-impeaching-trump.html
+https://www.nytimes.com/2026/04/10/us/politics/trump-impeachment-democrats.html
 
 **Why the Scary Inflation Numbers Might Not Be Quite So Scary as They Seem**\
 `I believe the gas tank is half full. `\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/10/well/eat/ai-chatbots-nutrition.html
 **‘I’m Fed Up.’ Frustrated With Trump, Starmer Embraces Other Allies.**\
 `Prime Minister Keir Starmer of Britain is strengthening ties in Europe and the Middle East as the once-special relationship with America sours.`\
 https://www.nytimes.com/2026/04/10/world/europe/trump-starmer-fed-up-iran-war.html
-
-**Judge Declines to Order Trump Administration to Adjust Somali Deportation Policies**\
-`Acknowledging that the government may have recently stepped up the pace of removal proceedings, a federal judge wrote that he could not immediately intervene.`\
-https://www.nytimes.com/2026/04/10/us/politics/trump-somali-deportation-judge-decision.html
 

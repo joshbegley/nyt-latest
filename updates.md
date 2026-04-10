@@ -1,3 +1,11 @@
+**Potential Democratic 2028 Candidates Condemn Trump’s ‘War of Choice’ in Iran**\
+`At a convention in New York, several Democrats mulling presidential bids rallied around opposition to President Trump’s decision to attack Iran.`\
+https://www.nytimes.com/2026/04/10/us/politics/iran-war-democrats-2028-election.html
+
+**Burned Before, Democrats Abruptly Revive the Idea of Impeaching Trump**\
+`Democrats in Congress have assiduously avoided talk of a third impeachment of President Trump, concerned that it would distract from their midterm campaign message. That tide seems to have turned.`\
+https://www.nytimes.com/2026/04/10/us/politics/trump-impeachment-democrats.html
+
 **‘His Legacy Is Complex’: Grappling With Afrika Bambaataa**\
 `The tributes to one of hip-hop’s founders were complicated by allegations of sexual abuse made against him in recent years.`\
 https://www.nytimes.com/2026/04/10/style/frika-bambaataa-legacy.html
