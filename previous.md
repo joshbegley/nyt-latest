@@ -1,3 +1,7 @@
+**‘Hello to the New World Superpower’: Iran’s Africa Missions Troll Trump**\
+`Official social media accounts for Iranian embassies have engaged in information warfare, but the ones in Africa appear to have taken the lead on the attacks.`\
+https://www.nytimes.com/2026/04/10/world/africa/iran-south-africa-trump-war-ceasefire.html
+
 **The Oil Shock Is Worse Than You Think**\
 `The war with Iran is preventing huge amounts of oil from flowing out of the Persian Gulf, but the prices that many people track don’t fully capture the scale of the disruption.`\
 https://www.nytimes.com/2026/04/10/business/energy-environment/iran-oil-prices.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/10/crosswords/wordle-review-1757.html
 **Muchos venezolanos quieren irse de EE. UU. Pero no consiguen pasaportes**\
 `Estados Unidos les ha imposibilitado quedarse legalmente, y su propio país les dificulta el regreso.`\
 https://www.nytimes.com/es/2026/04/10/espanol/america-latina/venezuela-salir-eeuu-pasaportes.html
-
-**Lebanon: A Nation Uprooted by War**\
-`A million people in Lebanon have fled their homes as Israel clashes anew with Hezbollah. This is what their lives look now.`\
-https://www.nytimes.com/2026/04/10/world/middleeast/lebanon-displaced-photos.html
 
