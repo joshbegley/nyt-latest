@@ -1,3 +1,11 @@
+**‘I’m Fed Up.’ Frustrated With Trump, Starmer Embraces Other Allies.**\
+`Prime Minister Keir Starmer of Britain is strengthening ties in Europe and the Middle East as the once-special relationship with America sours.`\
+https://www.nytimes.com/2026/04/10/world/europe/trump-starmer-fed-up-iran-war.html
+
+**Judge Declines to Order Trump Administration to Adjust Somali Deportation Policies**\
+`Acknowledging that the government may have recently stepped up the pace of removal proceedings, a federal judge wrote that he could not immediately intervene.`\
+https://www.nytimes.com/2026/04/10/us/politics/trump-somali-deportation-judge-decision.html
+
 **Trump Shares Video of Graphic Attack and Rails Against Haitians**\
 `The man seen beating a woman is from Haiti and faces a murder charge in Florida, officials said. President Trump has fought to end protections for Haitian immigrants.`\
 https://www.nytimes.com/2026/04/10/us/politics/trump-hammer-video-florida-attack-immigration.html
