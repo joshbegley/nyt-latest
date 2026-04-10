@@ -1,3 +1,27 @@
+**Trump Moves Top Aide James Blair to Political Operation Ahead of Midterms**\
+`Mr. Blair will “lead the charge from the outside,” the president said on social media. The move comes as Republicans are bracing for a potentially difficult November election.`\
+https://www.nytimes.com/2026/04/10/us/politics/trump-moves-top-aide-james-blair-to-political-operation-ahead-of-midterms.html
+
+**Swalwell Faces Sex Assault Accusation as He Runs for California Governor**\
+`Eric Swalwell, a Democratic congressman, denied the account of a former staff member published by The San Francisco Chronicle. Supporters began to withdraw their endorsements, and several campaign officials have quit.`\
+https://www.nytimes.com/2026/04/10/us/politics/eric-swalwell-allegations-california-governor.html
+
+**Trump-Ally Orbán Trails in Polls Ahead of Hungary’s Election**\
+`After 16 years in power, Prime Minister Viktor Orbán’s party is trailing in most independent polls behind the opposition leader Peter Magyar as Sunday’s election draws nearer.`\
+https://www.nytimes.com/video/world/europe/100000010833976/orban-magyar-hungary-election.html
+
+**Eric Adams, Citizen of the World, Becomes an Actual Citizen of Albania**\
+`Mr. Adams, the former mayor of New York City, has expressed fondness for Albania, visiting the country in his last weeks in office.`\
+https://www.nytimes.com/2026/04/10/nyregion/eric-adams-albania-citizen.html
+
+**Trump Is Racing to Redefine ‘America First’ in a Time of War**\
+`Washington has been debating the thrust of Mr. Trump’s foreign policy for more than a decade, with the only consensus being that “America First” means whatever the president says it does.`\
+https://www.nytimes.com/2026/04/10/world/europe/trump-redefine-foreign-policy.html
+
+**Artemis II Astronauts Are Set to Arrive Home**\
+`Also, Iran adds a new condition as JD Vance heads to peace talks. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/04/10/briefing/artemis-ii-astronauts-splashdown-jd-vance-iran.html
+
 **Here’s what the astronauts did for 10 days in space.**\
 ``\
 https://www.nytimes.com/live/2026/04/10/science/nasa-artemis-ii-splashdown-return/heres-what-the-astronauts-did-for-10-days-in-space
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/04/10/business/media/pentagon-press-restrictions-ap
 **Artemis II vuelve a la Tierra: cómo y cuándo ver el amerizaje**\
 `Los cuatro astronautas a bordo de la cápsula Orión se disponen a amerizar en el océano Pacífico el viernes. Esto es lo que debes saber.`\
 https://www.nytimes.com/es/2026/04/10/espanol/ciencia-y-tecnologia/artemis-ii-amerizaje.html
-
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/04/10/science/nasa-artemis-ii-splashdown-return/heres-the-latest
-
-**Why Opening the Strait of Hormuz Won’t Immediately Lower Gas Prices**\
-`Our energy reporter Rebecca F. Elliott explains why, even if the flow of energy is restored through the Persian Gulf, it will take months to carry out repairs across dozens of energy sites in the region.`\
-https://www.nytimes.com/video/world/middleeast/100000010830114/why-opening-the-hormuz-wont-lower-gas-prices.html
-
-**Prince Harry Is Sued for Libel by a Charity He Founded**\
-`Sentebale filed a defamation lawsuit against the Duke of Sussex, who resigned as patron last year after a clash between the board of trustees and the board’s chair.`\
-https://www.nytimes.com/2026/04/10/world/europe/prince-harry-sentebale-libel-lawsuit.html
-
-**Only two ships passed through the Strait of Hormuz on Friday.**\
-``\
-https://www.nytimes.com/live/2026/04/10/world/iran-war-trump-israel-lebanon/only-two-ships-passed-through-the-strait-of-hormuz-on-friday
-
-**Fareed Zakaria on the Moral Cost of Trump’s War**\
-`The foreign policy analyst Fareed Zakaria explains how the Iran war has been a turning point in America’s standing in the world.`\
-https://www.nytimes.com/video/opinion/100000010825200/fareed-zakaria-on-the-moral-cost-of-trumps-war.html
-
-**Potential Democratic 2028 Candidates Condemn Trump’s ‘War of Choice’ in Iran**\
-`At a convention in New York, several Democrats mulling presidential bids rallied around opposition to President Trump’s decision to attack Iran.`\
-https://www.nytimes.com/2026/04/10/us/politics/iran-war-democrats-2028-election.html
 
