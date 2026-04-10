@@ -1,3 +1,11 @@
+**Artemis II vuelve a la Tierra: cómo y cuándo ver el amerizaje**\
+`Los cuatro astronautas a bordo de la cápsula Orión se disponen a amerizar en el océano Pacífico el viernes. Esto es lo que debes saber.`\
+https://www.nytimes.com/es/2026/04/10/espanol/ciencia-y-tecnologia/artemis-ii-amerizaje.html
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/10/science/nasa-artemis-ii-splashdown-return/heres-the-latest
+
 **Why Opening the Hormuz Won’t Lower Gas Prices**\
 `Our energy reporter Rebecca F. Elliott explains why, even if the flow of energy is restored through the Persian Gulf, it will take months to carry out repairs across dozens of energy sites in the region.`\
 https://www.nytimes.com/video/world/middleeast/100000010830114/why-opening-the-hormuz-wont-lower-gas-prices.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/10/science/nasa-artemis-ii-moon-mission-photos-e
 **Trump ataca a destacados conservadores que se oponen a la guerra en Irán**\
 `El presidente de EE. UU. atacó a Tucker Carlson, Megyn Kelly y otros en términos muy personales en una larga publicación en las redes sociales.`\
 https://www.nytimes.com/es/2026/04/10/espanol/estados-unidos/trump-ataca-conservadores-iran.html
-
-**Vance Should Stand Up to Trump**\
-`Responses to Dana Milbank’s Opinion guest essay about Vice President JD Vance. Also: Melania Trump’s lament; a lost childhood; propaganda and facts.`\
-https://www.nytimes.com/2026/04/10/opinion/vance-trump.html
-
-**Democrats Denounce Trump’s Plan to Use Foreign Steel in White House Ballroom**\
-`A New York Times report that the president was accepting a donation of foreign steel for the ballroom was seized on by Democrats.`\
-https://www.nytimes.com/2026/04/10/us/politics/democrats-trump-steel-white-house-ballroom.html
 
