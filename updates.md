@@ -1,3 +1,11 @@
+**NASA is closely watching a storm in California not far from the Artemis landing.**\
+``\
+https://www.nytimes.com/live/2026/04/10/science/nasa-artemis-ii-splashdown-return/san-deigo-weather-artemis
+
+**Prices Are High. Here’s One Reason Not to Panic.**\
+`I believe the gas tank is half full.`\
+https://www.nytimes.com/2026/04/10/opinion/inflation-prices-data-economy.html
+
 **Pentagon Appeals Court Decisions Gutting Its Press Restrictions**\
 `The Defense Department filed a formal notice that it intended to fight a federal judge’s recent rulings that its press restrictions were unconstitutional.`\
 https://www.nytimes.com/2026/04/10/business/media/pentagon-press-restrictions-appeal.html
