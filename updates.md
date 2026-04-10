@@ -1,3 +1,7 @@
+**Facing Many Crises, Pakistan Tries to End a Big One — in Iran**\
+`A nation with a stalled economy, a terrorism problem and two hostile neighbors is set to host the first formal U.S.-Iranian talks since the war began.`\
+https://www.nytimes.com/2026/04/10/world/middleeast/pakistan-iran-talks-islamabad.html
+
 **NASA is closely watching a storm in California not far from the Artemis landing.**\
 ``\
 https://www.nytimes.com/live/2026/04/10/science/nasa-artemis-ii-splashdown-return/san-deigo-weather-artemis

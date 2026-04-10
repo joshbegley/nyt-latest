@@ -1,3 +1,7 @@
+**Facing Many Crises, Pakistan Tries to End a Big One — in Iran**\
+`A nation with a stalled economy, a terrorism problem and two hostile neighbors is set to host the first formal U.S.-Iranian talks since the war began.`\
+https://www.nytimes.com/2026/04/10/world/middleeast/pakistan-iran-talks-islamabad.html
+
 **NASA is closely watching a storm in California not far from the Artemis landing.**\
 ``\
 https://www.nytimes.com/live/2026/04/10/science/nasa-artemis-ii-splashdown-return/san-deigo-weather-artemis
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/10/world/middleeast/israel-lebanon-ceasefire-tal
 **Mariah Carey Lists Her TriBeCa Penthouse for $27 Million**\
 `The pop icon bought the home and onetime “Cribs” subject in 1999 for $9 million.`\
 https://www.nytimes.com/2026/04/10/realestate/mariah-carey-tribeca-penthouse-sale.html
-
-**Officials Release Design for 250-Foot Arch in Washington, as Trump Seeks Another Imprint**\
-`The president has proposed the arch, which would rise on a Washington roundabout across from the Lincoln Memorial, as a way to celebrate America’s 250th anniversary.`\
-https://www.nytimes.com/2026/04/10/us/politics/arch-washington-trump.html
 
