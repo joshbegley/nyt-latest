@@ -1,3 +1,23 @@
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/04/10/t-magazine/tk.html
+
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/04/10/t-magazine/tk.html
+
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/04/10/t-magazine/tk.html
+
+**Gaza’s Rubble Is the Grave of Our Future**\
+`Six month’s after the cease-fire, ordinary Gazans contemplate their future while living with the wounds of war.`\
+https://www.nytimes.com/2026/04/10/opinion/gaza-cease-fire-death-israel.html
+
+**For Putin, Iran Is Something Close to Irreplaceable**\
+`Vladimir Putin has spent years building a coalition of the discontented on the premise that authoritarian states can outlast Western pressure. Iran is his proof of concept.`\
+https://www.nytimes.com/2026/04/10/opinion/putin-russia-iran.html
+
 **He Changed How Blackness Was Viewed in South Africa. Now He Gets Personal.**\
 `Mfundi Vundla spent 21 years in exile and created the popular television show “Generations.” His latest project is a play that explores the imperfections of the fight against apartheid.`\
 https://www.nytimes.com/2026/04/10/world/africa/south-africa-theater-generations-mfundi-vundla.html
