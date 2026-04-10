@@ -1,3 +1,7 @@
+**Officials Release Design for 250-Foot Arch in Washington, as Trump Seeks Another Imprint**\
+`The president has proposed the arch, which would rise on a Washington roundabout across from the Lincoln Memorial, as a way to celebrate America’s 250th anniversary.`\
+https://www.nytimes.com/2026/04/10/us/politics/arch-washington-trump.html
+
 **Molotov Cocktail Is Hurled at Home of OpenAI Chief Executive Sam Altman**\
 `The device burned an exterior gate of the house in San Francisco, the police said, and it was unclear whether the artificial intelligence executive was home. The authorities arrested a suspect.`\
 https://www.nytimes.com/2026/04/10/us/open-ai-sam-altman-molotov-cocktail.html
