@@ -1,3 +1,11 @@
+**Harris Signals Potential Third Presidential Run In 2028**\
+`Former Vice President Kamala Harris signaled a potential third run for the presidency in 2028 at a gathering of the National Action Network on Friday. More than a half-dozen other potential Democratic candidates also appeared at the event.`\
+https://www.nytimes.com/video/us/politics/100000010835247/kamala-harris-2028-democrats.html
+
+**What will happen during the final hours of the Artemis II mission?**\
+``\
+https://www.nytimes.com/live/2026/04/10/science/nasa-artemis-ii-splashdown-return/what-will-happen-during-the-final-hours-of-the-artemis-ii-mission
+
 **University of Ottawa in Lockdown Amid ‘Violent Incident’**\
 `The authorities urged students to stay away from the downtown campus, to hide quietly if they were on the premises, and to defend themselves if needed.`\
 https://www.nytimes.com/2026/04/10/world/canada/ottawa-university-campus-lockdown-canada.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/10/us/politics/trump-melania-epstein.html
 **Drafting a Presidential Son? The Manosphere Wants to Talk About It**\
 `With news of a change to the Selective Service, memes and social media chatter abound about who would be sent to war.`\
 https://www.nytimes.com/2026/04/10/style/draft-barron-trump-army-iran-war-memes.html
-
-**Facing Many Crises, Pakistan Tries to End a Big One — in Iran**\
-`A nation with a stalled economy, a terrorism problem and two hostile neighbors is set to host the first formal U.S.-Iranian talks since the war began.`\
-https://www.nytimes.com/2026/04/10/world/middleeast/pakistan-iran-talks-islamabad.html
-
-**NASA is closely watching a storm in California not far from the Artemis landing.**\
-``\
-https://www.nytimes.com/live/2026/04/10/science/nasa-artemis-ii-splashdown-return/san-deigo-weather-artemis
 
