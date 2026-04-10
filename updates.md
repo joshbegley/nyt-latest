@@ -1,3 +1,11 @@
+**Banks Warned About Anthropic’s New, Powerful A.I. Technology**\
+`In an unusual move, the Treasury secretary and the Federal Reserve chair gathered bank executives to caution about cyberthreats posed by artificial intelligence.`\
+https://www.nytimes.com/2026/04/10/business/anthropic-claude-mythos-preview-banks.html
+
+**What the Cease-Fire Means for Iran**\
+`Emerging from weeks of U.S. and Israeli airstrikes, an emboldened Iran has 10 demands for talks during the tenuous cease-fire, according to Iranian state media. Our reporter Erika Solomon assesses Iran’s position.`\
+https://www.nytimes.com/video/world/middleeast/100000010831941/what-the-cease-fire-means-for-iran.html
+
 **F.A.A. Says Military Can Use Anti-Drone Lasers in U.S. Airspace**\
 `An interagency dispute over the use of high-energy lasers near airports led the Federal Aviation Administration to temporarily close the airspace twice in Texas this year.`\
 https://www.nytimes.com/2026/04/10/us/politics/faa-military-anti-drone-lasers.html
