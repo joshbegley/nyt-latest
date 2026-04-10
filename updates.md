@@ -1,3 +1,7 @@
+**At 82, the ‘Jump Rope Queen of Beverly Hills’ Is Still Going**\
+`For Annie Judis, 82, defending her title as the world’s oldest competitive rope skipper — and sharing her journey on social media — has given her a sense of purpose.`\
+https://www.nytimes.com/video/well/100000010826077/at-82-the-jump-rope-queen-of-beverly-hills-is-still-going.html
+
 **Ahora cualquiera puede ser ‘biohacker’**\
 `Con semillas, suplementos y dispositivos electrónicos (pero con poca guía de expertos), estadounidenses de todos los perfiles buscan mejorar su bienestar con lo que comen.`\
 https://www.nytimes.com/es/2026/04/10/espanol/estilos-de-vida/hack-dieta.html
