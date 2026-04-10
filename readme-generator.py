@@ -1,27 +1,21 @@
+import os
 import requests
-from bs4 import BeautifulSoup
-import csv
 
-url = "https://www.nytimes.com/search?query=&sort=newest"
+API_KEY = os.environ.get("NYT_API_KEY", "")
 
-page = requests.get(url)
+url = "https://api.nytimes.com/svc/search/v2/articlesearch.json"
+params = {"sort": "newest", "api-key": API_KEY}
 
-soup = BeautifulSoup(page.text, "html.parser")
+r = requests.get(url, params=params)
+data = r.json()
 
-for a in soup.find_all("a", href=True):
-    if "ResultPosition=" in a["href"]:
-        if "cooking.nytimes.com" in a["href"]:
-            continue
-        
-        cleaned_href = a["href"].split("?")[0]
-
-        title = a.find("h4")
-        description = a.find("p")
-
-        title_text = title.text.encode("utf-8") if title else b"(No title)"
-        description_text = description.text.encode("utf-8") if description else b"(No description)"
-
-        print("**" + title_text.decode("utf-8") + "**" + "\\")
-        print("`" + description_text.decode("utf-8") + "`" + "\\")
-        print("https://nytimes.com" + cleaned_href + "\n")
+for doc in data["response"]["docs"]:
+    if "cooking.nytimes.com" in doc["web_url"]:
+        continue
+    headline = doc["headline"]["main"]
+    abstract = doc.get("abstract", "(No description)")
+    web_url = doc["web_url"]
+    print(f"**{headline}**\\")
+    print(f"`{abstract}`\\")
+    print(f"{web_url}\n")
 
