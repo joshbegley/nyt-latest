@@ -1,3 +1,7 @@
+**Only two ships passed through the Strait of Hormuz on Friday.**\
+``\
+https://www.nytimes.com/live/2026/04/10/world/iran-war-trump-israel-lebanon/only-two-ships-passed-through-the-strait-of-hormuz-on-friday
+
 **Fareed Zakaria on the Moral Cost of Trump’s War**\
 `The foreign policy analyst Fareed Zakaria explains how the Iran war has been a turning point in America’s standing in the world.`\
 https://www.nytimes.com/video/opinion/100000010825200/fareed-zakaria-on-the-moral-cost-of-trumps-war.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/04/10/world/iran-war-trump-israel-lebanon/a-se
 **Flashback: Your Weekly History Quiz, April 11, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/04/10/upshot/flashback.html
-
-**Have You Used A.I. Chatbots for Nutrition Advice?**\
-`Whether you’re looking to manage a health condition, lose weight or simply eat better, we want to hear from you.`\
-https://www.nytimes.com/2026/04/10/well/eat/ai-chatbots-nutrition.html
 
