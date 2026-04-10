@@ -1,13 +1,21 @@
+**New Evidence Further Implicates U.S. Missiles in Strikes That Killed 21 Civilians in Iran**\
+`Additional images and video build on earlier analysis, which the Pentagon has disputed, showing Precision Strike Missiles, or PrSMs, hit a sports hall and residential areas in the Iranian city of Lamerd.`\
+https://www.nytimes.com/2026/04/10/world/middleeast/iran-us-missle-strike-civilians-lamerd.html
+
+**Watch Live: Artemis II Crew Returns to Earth**\
+`The Artemis II crew returns to Earth after a historic lunar flyby.`\
+https://www.nytimes.com/video/science/space/100000010834732/watch-live-artemis-ii-splashdown.html
+
 **Trump Moves Top Aide James Blair to Political Operation Ahead of Midterms**\
 `Mr. Blair will “lead the charge from the outside,” the president said on social media. The move comes as Republicans are bracing for a potentially difficult November election.`\
-https://www.nytimes.com/2026/04/10/us/politics/trump-moves-top-aide-james-blair-to-political-operation-ahead-of-midterms.html
+https://www.nytimes.com/2026/04/10/us/politics/james-blair-trump-midterms.html
 
 **Swalwell Faces Sex Assault Accusation as He Runs for California Governor**\
 `Eric Swalwell, a Democratic congressman, denied the account of a former staff member published by The San Francisco Chronicle. Supporters began to withdraw their endorsements, and several campaign officials have quit.`\
 https://www.nytimes.com/2026/04/10/us/politics/eric-swalwell-allegations-california-governor.html
 
-**Trump-Ally Orbán Trails in Polls Ahead of Hungary’s Election**\
-`After 16 years in power, Prime Minister Viktor Orbán’s party is trailing in most independent polls behind the opposition leader Peter Magyar as Sunday’s election draws nearer.`\
+**Trump-Ally Orban Trails in Polls Ahead of Hungary’s Election**\
+`After 16 years in power, Prime Minister Viktor Orban party is trailing in most independent polls behind the opposition leader Peter Magyar as Sunday’s election draws nearer.`\
 https://www.nytimes.com/video/world/europe/100000010833976/orban-magyar-hungary-election.html
 
 **Eric Adams, Citizen of the World, Becomes an Actual Citizen of Albania**\
@@ -69,12 +77,4 @@ https://www.nytimes.com/live/2026/04/10/science/nasa-artemis-ii-splashdown-retur
 **Fred Drasner, a Feisty Leader of The Daily News, Is Dead at 83**\
 `A former New York cabdriver who never lost his edge, he was co-publisher alongside Mort Zuckerman as he took on rival papers in the so-called tabloid wars.`\
 https://www.nytimes.com/2026/04/10/business/media/fred-drasner-dead.html
-
-**Pentagon Appeals Court Decisions Gutting Its Press Restrictions**\
-`The Defense Department filed a formal notice that it intended to fight a federal judge’s recent rulings that its press restrictions were unconstitutional.`\
-https://www.nytimes.com/2026/04/10/business/media/pentagon-press-restrictions-appeal.html
-
-**Artemis II vuelve a la Tierra: cómo y cuándo ver el amerizaje**\
-`Los cuatro astronautas a bordo de la cápsula Orión se disponen a amerizar en el océano Pacífico el viernes. Esto es lo que debes saber.`\
-https://www.nytimes.com/es/2026/04/10/espanol/ciencia-y-tecnologia/artemis-ii-amerizaje.html
 

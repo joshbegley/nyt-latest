@@ -1,3 +1,19 @@
+**New Evidence Further Implicates U.S. Missiles in Strikes That Killed 21 Civilians in Iran**\
+`Additional images and video build on earlier analysis, which the Pentagon has disputed, showing Precision Strike Missiles, or PrSMs, hit a sports hall and residential areas in the Iranian city of Lamerd.`\
+https://www.nytimes.com/2026/04/10/world/middleeast/iran-us-missle-strike-civilians-lamerd.html
+
+**Watch Live: Artemis II Crew Returns to Earth**\
+`The Artemis II crew returns to Earth after a historic lunar flyby.`\
+https://www.nytimes.com/video/science/space/100000010834732/watch-live-artemis-ii-splashdown.html
+
+**Trump Moves Top Aide James Blair to Political Operation Ahead of Midterms**\
+`Mr. Blair will “lead the charge from the outside,” the president said on social media. The move comes as Republicans are bracing for a potentially difficult November election.`\
+https://www.nytimes.com/2026/04/10/us/politics/james-blair-trump-midterms.html
+
+**Trump-Ally Orban Trails in Polls Ahead of Hungary’s Election**\
+`After 16 years in power, Prime Minister Viktor Orban party is trailing in most independent polls behind the opposition leader Peter Magyar as Sunday’s election draws nearer.`\
+https://www.nytimes.com/video/world/europe/100000010833976/orban-magyar-hungary-election.html
+
 **Trump Moves Top Aide James Blair to Political Operation Ahead of Midterms**\
 `Mr. Blair will “lead the charge from the outside,” the president said on social media. The move comes as Republicans are bracing for a potentially difficult November election.`\
 https://www.nytimes.com/2026/04/10/us/politics/trump-moves-top-aide-james-blair-to-political-operation-ahead-of-midterms.html
