@@ -1,3 +1,23 @@
+**‘His Legacy Is Complex’: Grappling With Afrika Bambaataa**\
+`The tributes to one of hip-hop’s founders were complicated by allegations of sexual abuse made against him in recent years.`\
+https://www.nytimes.com/2026/04/10/style/frika-bambaataa-legacy.html
+
+**Democratic Socialists Win Court Battle as Elections Near**\
+`The ruling in New York rescinds a $212,000 fine issued to the Democratic Socialists of America over its fund-raising tactics in the 2022 elections.`\
+https://www.nytimes.com/2026/04/10/nyregion/dsa-fine-lawsuit.html
+
+**EE. UU. busca reforzar la lista del servicio militar. Esto hay que saber**\
+`A finales de año, el Sistema de Servicio Selectivo de EE. UU. comenzará a registrar automáticamente los nombres de quienes cumplen los requisitos para ser llamados a filas.`\
+https://www.nytimes.com/es/2026/04/10/espanol/estados-unidos/servicio-militar.html
+
+**Burned Before, Democrats Abruptly Revive the Idea of Impeaching Trump**\
+`Democrats in Congress have assiduously avoided talk of a third impeachment of President Trump, concerned that it would distract from their midterm campaign message. That tide seems to have turned.`\
+https://www.nytimes.com/2026/04/10/us/politics/burned-before-democrats-abruptly-revive-the-idea-of-impeaching-trump.html
+
+**Why the Scary Inflation Numbers Might Not Be Quite So Scary as They Seem**\
+`I believe the gas tank is half full. `\
+https://www.nytimes.com/2026/04/10/opinion/inflation-prices-data-economy.html
+
 **Trump comparte un video explícito de un ataque y arremete contra los haitianos**\
 `El hombre al que se ve golpeando a una mujer es de Haití y se enfrenta a un cargo de asesinato en Florida, dijeron las autoridades. El presidente ha buscado eliminar el Estatus de Protección Temporal para los migrantes de origen haitiano.`\
 https://www.nytimes.com/es/2026/04/10/espanol/estados-unidos/trump-video-haitianos.html

@@ -1,3 +1,23 @@
+**‘His Legacy Is Complex’: Grappling With Afrika Bambaataa**\
+`The tributes to one of hip-hop’s founders were complicated by allegations of sexual abuse made against him in recent years.`\
+https://www.nytimes.com/2026/04/10/style/frika-bambaataa-legacy.html
+
+**Democratic Socialists Win Court Battle as Elections Near**\
+`The ruling in New York rescinds a $212,000 fine issued to the Democratic Socialists of America over its fund-raising tactics in the 2022 elections.`\
+https://www.nytimes.com/2026/04/10/nyregion/dsa-fine-lawsuit.html
+
+**EE. UU. busca reforzar la lista del servicio militar. Esto hay que saber**\
+`A finales de año, el Sistema de Servicio Selectivo de EE. UU. comenzará a registrar automáticamente los nombres de quienes cumplen los requisitos para ser llamados a filas.`\
+https://www.nytimes.com/es/2026/04/10/espanol/estados-unidos/servicio-militar.html
+
+**Burned Before, Democrats Abruptly Revive the Idea of Impeaching Trump**\
+`Democrats in Congress have assiduously avoided talk of a third impeachment of President Trump, concerned that it would distract from their midterm campaign message. That tide seems to have turned.`\
+https://www.nytimes.com/2026/04/10/us/politics/burned-before-democrats-abruptly-revive-the-idea-of-impeaching-trump.html
+
+**Why the Scary Inflation Numbers Might Not Be Quite So Scary as They Seem**\
+`I believe the gas tank is half full. `\
+https://www.nytimes.com/2026/04/10/opinion/inflation-prices-data-economy.html
+
 **Trump comparte un video explícito de un ataque y arremete contra los haitianos**\
 `El hombre al que se ve golpeando a una mujer es de Haití y se enfrenta a un cargo de asesinato en Florida, dijeron las autoridades. El presidente ha buscado eliminar el Estatus de Protección Temporal para los migrantes de origen haitiano.`\
 https://www.nytimes.com/es/2026/04/10/espanol/estados-unidos/trump-video-haitianos.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/04/10/world/europe/trump-starmer-fed-up-iran-war.ht
 **Judge Declines to Order Trump Administration to Adjust Somali Deportation Policies**\
 `Acknowledging that the government may have recently stepped up the pace of removal proceedings, a federal judge wrote that he could not immediately intervene.`\
 https://www.nytimes.com/2026/04/10/us/politics/trump-somali-deportation-judge-decision.html
-
-**Trump Shares Video of Graphic Attack and Rails Against Haitians**\
-`The man seen beating a woman is from Haiti and faces a murder charge in Florida, officials said. President Trump has fought to end protections for Haitian immigrants.`\
-https://www.nytimes.com/2026/04/10/us/politics/trump-hammer-video-florida-attack-immigration.html
-
-**Review: The Philharmonic Surrounds a Premiere With a Motley Crowd**\
-`George Lewis’s new piece brought in the percussion and piano quartet Yarn/Wire, in an evening that also featured the soprano Golda Schultz.`\
-https://www.nytimes.com/2026/04/10/arts/music/new-york-philharmonic-george-lewis-review.html
-
-**European Airports Warn of Fuel Shortages if Gulf Supplies Remain Shut**\
-`An association of airports told European Union officials that fuel shipments through the Strait of Hormuz had to restart within three weeks to avoid a “systemic” shortage.`\
-https://www.nytimes.com/2026/04/10/business/europe-airports-jet-fuel-shortage.html
-
-**Hilde Limondjian, Met Museum’s Longtime Concert Impresario, Dies at 89**\
-`She gave New York debuts to artists like Cecilia Bartoli and Peter Serkin, and introduced new music by Philip Glass and others.`\
-https://www.nytimes.com/2026/04/10/arts/music/hilde-limondjian-dead.html
-
-**The Enduring Body and Soul of Martha Graham at 100**\
-`Her dance company, the oldest in the United States, celebrates its centennial in a series of mixed bills. But why aren’t all the dances by Graham?`\
-https://www.nytimes.com/2026/04/10/arts/dance/martha-graham-centennial-city-center.html
 
