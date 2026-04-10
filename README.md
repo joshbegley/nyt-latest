@@ -1,8 +1,12 @@
+**Vance Should Stand Up to Trump**\
+`Responses to Dana Milbank’s Opinion guest essay about Vice President JD Vance. Also: Melania Trump’s lament; a lost childhood; propaganda and facts.`\
+https://www.nytimes.com/2026/04/10/opinion/vance-trump.html
+
 **Democrats Denounce Trump’s Plan to Use Foreign Steel in White House Ballroom**\
 `A New York Times report that the president was accepting a donation of foreign steel for the ballroom was seized on by Democrats.`\
 https://www.nytimes.com/2026/04/10/us/politics/democrats-trump-steel-white-house-ballroom.html
 
-**A senior Iranian official says ‘blocked assets’ must be released before talks with the U.S. can begin.**\
+**A senior Iranian official says ‘blocked assets’ must be released before peace talks can begin.**\
 `In what appeared to be a new condition, Iran’s parliament speaker said that negotiations set for Saturday in Pakistan would not go ahead unless unspecified Iranian funds were released.`\
 https://www.nytimes.com/live/2026/04/10/world/iran-war-trump-israel-lebanon/a-senior-iranian-official-says-blocked-assets-must-be-released-before-talks-with-the-us-can-begin
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/10/climate/europe-energy-crisis-iran-war.html
 **‘Hello to the New World Superpower’: Iran’s Africa Missions Troll Trump**\
 `Official social media accounts for Iranian embassies have engaged in information warfare, but the ones in Africa appear to have taken the lead on the attacks.`\
 https://www.nytimes.com/2026/04/10/world/africa/iran-south-africa-trump-war-ceasefire.html
-
-**The Oil Shock Is Worse Than You Think**\
-`The war with Iran is preventing huge amounts of oil from flowing out of the Persian Gulf, but the prices that many people track don’t fully capture the scale of the disruption.`\
-https://www.nytimes.com/2026/04/10/business/energy-environment/iran-oil-prices.html
 

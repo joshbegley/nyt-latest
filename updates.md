@@ -1,3 +1,19 @@
+**Democrats Denounce Trump’s Plan to Use Foreign Steel in White House Ballroom**\
+`A New York Times report that the president was accepting a donation of foreign steel for the ballroom was seized on by Democrats.`\
+https://www.nytimes.com/2026/04/10/us/politics/democrats-trump-steel-white-house-ballroom.html
+
+**A senior Iranian official says ‘blocked assets’ must be released before talks with the U.S. can begin.**\
+`In what appeared to be a new condition, Iran’s parliament speaker said that negotiations set for Saturday in Pakistan would not go ahead unless unspecified Iranian funds were released.`\
+https://www.nytimes.com/live/2026/04/10/world/iran-war-trump-israel-lebanon/a-senior-iranian-official-says-blocked-assets-must-be-released-before-talks-with-the-us-can-begin
+
+**Flashback: Your Weekly History Quiz, April 11, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/04/10/upshot/flashback.html
+
+**Have You Used A.I. Chatbots for Nutrition Advice?**\
+`Whether you’re looking to manage a health condition, lose weight or simply eat better, we want to hear from you.`\
+https://www.nytimes.com/2026/04/10/well/eat/ai-chatbots-nutrition.html
+
 **‘I’m Fed Up.’ Frustrated With Trump, Starmer Embraces Other Allies.**\
 `Prime Minister Keir Starmer of Britain is strengthening ties in Europe and the Middle East as the once-special relationship with America sours.`\
 https://www.nytimes.com/2026/04/10/world/europe/trump-starmer-fed-up-iran-war.html
