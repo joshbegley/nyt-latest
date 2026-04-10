@@ -1,3 +1,7 @@
+**Fareed Zakaria on the Moral Cost of Trump’s War**\
+`The foreign policy analyst Fareed Zakaria explains how the Iran war has been a turning point in America’s standing in the world.`\
+https://www.nytimes.com/video/opinion/100000010825200/fareed-zakaria-on-the-moral-cost-of-trumps-war.html
+
 **Potential Democratic 2028 Candidates Condemn Trump’s ‘War of Choice’ in Iran**\
 `At a convention in New York, several Democrats mulling presidential bids rallied around opposition to President Trump’s decision to attack Iran.`\
 https://www.nytimes.com/2026/04/10/us/politics/iran-war-democrats-2028-election.html
@@ -42,8 +46,8 @@ https://www.nytimes.com/2026/04/10/realestate/mariah-carey-tribeca-penthouse-sal
 `The president has proposed the arch, which would rise on a Washington roundabout across from the Lincoln Memorial, as a way to celebrate America’s 250th anniversary.`\
 https://www.nytimes.com/2026/04/10/us/politics/arch-washington-trump.html
 
-**Molotov Cocktail Is Hurled at Home of OpenAI Chief Executive Sam Altman**\
-`The device burned an exterior gate of the house in San Francisco, the police said, and it was unclear whether the artificial intelligence executive was home. The authorities arrested a suspect.`\
+**Molotov Cocktail Is Hurled at Home of OpenAI C.E.O. Sam Altman**\
+`The device burned an exterior gate of the house, in San Francisco, the police said, and it was unclear whether the artificial intelligence executive was home. The authorities arrested a suspect.`\
 https://www.nytimes.com/2026/04/10/us/open-ai-sam-altman-molotov-cocktail.html
 
 **Artemis II’s New Views of the Moon**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/04/10/upshot/flashback.html
 **Have You Used A.I. Chatbots for Nutrition Advice?**\
 `Whether you’re looking to manage a health condition, lose weight or simply eat better, we want to hear from you.`\
 https://www.nytimes.com/2026/04/10/well/eat/ai-chatbots-nutrition.html
-
-**‘I’m Fed Up.’ Frustrated With Trump, Starmer Embraces Other Allies.**\
-`Prime Minister Keir Starmer of Britain is strengthening ties in Europe and the Middle East as the once-special relationship with America sours.`\
-https://www.nytimes.com/2026/04/10/world/europe/trump-starmer-fed-up-iran-war.html
 

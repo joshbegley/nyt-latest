@@ -1,3 +1,11 @@
+**Fareed Zakaria on the Moral Cost of Trump’s War**\
+`The foreign policy analyst Fareed Zakaria explains how the Iran war has been a turning point in America’s standing in the world.`\
+https://www.nytimes.com/video/opinion/100000010825200/fareed-zakaria-on-the-moral-cost-of-trumps-war.html
+
+**Molotov Cocktail Is Hurled at Home of OpenAI C.E.O. Sam Altman**\
+`The device burned an exterior gate of the house, in San Francisco, the police said, and it was unclear whether the artificial intelligence executive was home. The authorities arrested a suspect.`\
+https://www.nytimes.com/2026/04/10/us/open-ai-sam-altman-molotov-cocktail.html
+
 **Potential Democratic 2028 Candidates Condemn Trump’s ‘War of Choice’ in Iran**\
 `At a convention in New York, several Democrats mulling presidential bids rallied around opposition to President Trump’s decision to attack Iran.`\
 https://www.nytimes.com/2026/04/10/us/politics/iran-war-democrats-2028-election.html
