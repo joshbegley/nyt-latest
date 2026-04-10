@@ -1,3 +1,7 @@
+**A Record Jump in U.S. Gasoline Prices Is Squeezing Consumers**\
+`The cost at the pump made its biggest monthly percentage increase in decades amid lingering tensions over the war in Iran.`\
+https://www.nytimes.com/2026/04/10/business/economy/gasoline-price-rise.html
+
 **The Iran War Has Prompted Some Companies to Raise Prices**\
 `Delta Air Lines, Amazon, the United States Postal Service and others have said they are raising prices because of higher energy costs connected to the war in Iran.`\
 https://www.nytimes.com/2026/04/10/business/economy/iran-war-inflation-company-prices.html
