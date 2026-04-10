@@ -1,3 +1,11 @@
+**‘I’m Fed Up.’ Frustrated With Trump, Starmer Embraces Other Allies.**\
+`Prime Minister Keir Starmer of Britain is strengthening ties in Europe and the Middle East as the once-special relationship with America sours.`\
+https://www.nytimes.com/2026/04/10/world/europe/trump-starmer-fed-up-iran-war.html
+
+**Judge Declines to Order Trump Administration to Adjust Somali Deportation Policies**\
+`Acknowledging that the government may have recently stepped up the pace of removal proceedings, a federal judge wrote that he could not immediately intervene.`\
+https://www.nytimes.com/2026/04/10/us/politics/trump-somali-deportation-judge-decision.html
+
 **Trump Shares Video of Graphic Attack and Rails Against Haitians**\
 `The man seen beating a woman is from Haiti and faces a murder charge in Florida, officials said. President Trump has fought to end protections for Haitian immigrants.`\
 https://www.nytimes.com/2026/04/10/us/politics/trump-hammer-video-florida-attack-immigration.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/10/business/economy/gasoline-price-rise.html
 **The Iran War Has Prompted Some Companies to Raise Prices**\
 `Delta Air Lines, Amazon, the United States Postal Service and others have said they are raising prices amid higher energy costs connected to the war in Iran.`\
 https://www.nytimes.com/2026/04/10/business/economy/iran-war-inflation-company-prices.html
-
-**‘The Headlines’ News Quiz: Apr. 10, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/04/10/podcasts/the-headlines/the-headlines-news-quiz-apr-10-2026.html
-
-**Anthropic’s Cybersecurity Shock Wave + Ronan Farrow and Andrew Marantz on Their Sam Altman Investigation + One Good Thing**\
-`The new Anthropic model that’s too dangerous to be released is already revealing thousands of software vulnerabilities.`\
-https://www.nytimes.com/2026/04/10/podcasts/hardfork-mythos-cybersecurity.html
 
