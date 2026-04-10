@@ -1,3 +1,7 @@
+**Pakistan Prepares for U.S.-Iran Peace Talks**\
+`Security has been ramped up in Islamabad, Pakistan’s capital, ahead of peace talks between the United States and Iran, which are set to start on Saturday. Vice President JD Vance will lead the U.S. delegation.`\
+https://www.nytimes.com/video/world/middleeast/100000010833530/pakistan-iran-us-ceasefire-talks.html
+
 **At 82, the ‘Jump Rope Queen of Beverly Hills’ Is Still Going**\
 `For Annie Judis, 82, defending her title as the world’s oldest competitive rope skipper — and sharing her journey on social media — has given her a sense of purpose.`\
 https://www.nytimes.com/video/well/100000010826077/at-82-the-jump-rope-queen-of-beverly-hills-is-still-going.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/10/espanol/mundo/iranies-testimonios-alto-fue
 **Las películas de pesos pesados del cine dominan la programación de Cannes**\
 `La 79ª edición del festival incluye películas de directores de cine de autor tan reconocidos como Pedro Almodóvar y Pawel Pawlikowski, pero cuenta con pocos títulos de Hollywood.`\
 https://www.nytimes.com/es/2026/04/10/espanol/cultura/festival-cannes-2026-peliculas.html
-
-**Xi Seeks to Sway Taiwan, and Trump, With Message of Stability**\
-`Ahead of a summit with Donald Trump, the Chinese leader is using a rare meeting with a Taiwanese politician to cast Beijing as a peacemaker and squeeze the island’s president.`\
-https://www.nytimes.com/2026/04/10/world/asia/taiwan-china-xi-cheng.html
 
