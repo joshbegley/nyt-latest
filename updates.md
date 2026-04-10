@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/10/world/iran-war-trump-israel-lebanon/heres-the-latest
+
 **Jimmy Kimmel Salutes Melania’s White House Surprise**\
 `The first lady addressed her relationship with Jeffrey Epstein in a prepared statement that the talk show host called “better than her movie.”`\
 https://www.nytimes.com/2026/04/10/arts/television/jimmy-kimmel-melania-epstein.html

@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/10/world/iran-war-trump-israel-lebanon/heres-the-latest
+
 **Jimmy Kimmel Salutes Melania’s White House Surprise**\
 `The first lady addressed her relationship with Jeffrey Epstein in a prepared statement that the talk show host called “better than her movie.”`\
 https://www.nytimes.com/2026/04/10/arts/television/jimmy-kimmel-melania-epstein.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/04/09/world/middleeast/us-israel-strike
 **What’s Inside NASA’s Mission Control**\
 `Take a tour of the room where the team behind the Artemis II mission works day and night.`\
 https://www.nytimes.com/interactive/2026/04/09/science/space/nasa-mission-control-room.html
-
-**‘The Pitt’ Season 2, Episode 14 Recap: Physician, Heal Thyself**\
-`Dr. Robby may be stressed out by the constant demands of the E.R., but the work may also be the only thing saving him from himself.`\
-https://www.nytimes.com/2026/04/09/arts/television/the-pitt-recap-season-2-episode-14.html
 
