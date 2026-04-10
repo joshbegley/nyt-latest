@@ -1,3 +1,7 @@
+**Drafting a Presidential Son? The Manosphere Wants to Talk About It**\
+`With news of a change to the Selective Service, memes and social media chatter abound about who would be sent to war.`\
+https://www.nytimes.com/2026/04/10/style/draft-barron-trump-army-iran-war-memes.html
+
 **Facing Many Crises, Pakistan Tries to End a Big One — in Iran**\
 `A nation with a stalled economy, a terrorism problem and two hostile neighbors is set to host the first formal U.S.-Iranian talks since the war began.`\
 https://www.nytimes.com/2026/04/10/world/middleeast/pakistan-iran-talks-islamabad.html
