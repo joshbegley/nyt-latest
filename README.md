@@ -1,3 +1,11 @@
+**Why Opening the Hormuz Won’t Lower Gas Prices**\
+`Our energy reporter Rebecca F. Elliott explains why, even if the flow of energy is restored through the Persian Gulf, it will take months to carry out repairs across dozens of energy sites in the region.`\
+https://www.nytimes.com/video/world/middleeast/100000010830114/why-opening-the-hormuz-wont-lower-gas-prices.html
+
+**Prince Harry Is Sued for Libel by a Charity He Founded**\
+`Sentebale filed a defamation lawsuit against the Duke of Sussex, who resigned as patron last year after a clash between the board of trustees and the board’s chair.`\
+https://www.nytimes.com/2026/04/10/world/europe/prince-harry-sentebale-libel-lawsuit.html
+
 **Only two ships passed through the Strait of Hormuz on Friday.**\
 ``\
 https://www.nytimes.com/live/2026/04/10/world/iran-war-trump-israel-lebanon/only-two-ships-passed-through-the-strait-of-hormuz-on-friday
@@ -26,8 +34,8 @@ https://www.nytimes.com/es/2026/04/10/espanol/estados-unidos/servicio-militar.ht
 `Democrats in Congress have assiduously avoided talk of a third impeachment of President Trump, concerned that it would distract from their midterm campaign message. That tide seems to have turned.`\
 https://www.nytimes.com/2026/04/10/us/politics/trump-impeachment-democrats.html
 
-**Why the Scary Inflation Numbers Might Not Be Quite So Scary as They Seem**\
-`I believe the gas tank is half full. `\
+**Why the Inflation Numbers Might Not Be Quite So Scary as They Seem**\
+`I believe the gas tank is half full.`\
 https://www.nytimes.com/2026/04/10/opinion/inflation-prices-data-economy.html
 
 **Trump comparte un video explícito de un ataque y arremete contra los haitianos**\
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/10/opinion/vance-trump.html
 **Democrats Denounce Trump’s Plan to Use Foreign Steel in White House Ballroom**\
 `A New York Times report that the president was accepting a donation of foreign steel for the ballroom was seized on by Democrats.`\
 https://www.nytimes.com/2026/04/10/us/politics/democrats-trump-steel-white-house-ballroom.html
-
-**A senior Iranian official says ‘blocked assets’ must be released before peace talks can begin.**\
-`In what appeared to be a new condition, Iran’s parliament speaker said that negotiations set for Saturday in Pakistan would not go ahead unless unspecified Iranian funds were released.`\
-https://www.nytimes.com/live/2026/04/10/world/iran-war-trump-israel-lebanon/a-senior-iranian-official-says-blocked-assets-must-be-released-before-talks-with-the-us-can-begin
-
-**Flashback: Your Weekly History Quiz, April 11, 2026**\
-`Can you sort 8 historical events?`\
-https://www.nytimes.com/interactive/2026/04/10/upshot/flashback.html
 

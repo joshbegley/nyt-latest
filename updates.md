@@ -1,3 +1,7 @@
+**Only two ships passed through the Strait of Hormuz on Friday.**\
+``\
+https://www.nytimes.com/live/2026/04/10/world/iran-war-trump-israel-lebanon/only-two-ships-passed-through-the-strait-of-hormuz-on-friday
+
 **Fareed Zakaria on the Moral Cost of Trump’s War**\
 `The foreign policy analyst Fareed Zakaria explains how the Iran war has been a turning point in America’s standing in the world.`\
 https://www.nytimes.com/video/opinion/100000010825200/fareed-zakaria-on-the-moral-cost-of-trumps-war.html
