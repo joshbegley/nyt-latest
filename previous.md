@@ -1,3 +1,7 @@
+**Trump ataca a destacados conservadores que se oponen a la guerra en Irán**\
+`El presidente de EE. UU. atacó a Tucker Carlson, Megyn Kelly y otros en términos muy personales en una larga publicación en las redes sociales.`\
+https://www.nytimes.com/es/2026/04/10/espanol/estados-unidos/trump-ataca-conservadores-iran.html
+
 **Vance Should Stand Up to Trump**\
 `Responses to Dana Milbank’s Opinion guest essay about Vice President JD Vance. Also: Melania Trump’s lament; a lost childhood; propaganda and facts.`\
 https://www.nytimes.com/2026/04/10/opinion/vance-trump.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/10/world/europe/ireland-fuel-protests-oil-prices
 **Why Investing in Wind and Solar to Avoid Gas Shocks Hasn’t Added Up for Some**\
 `Renewable energy is cheaper to run than fossil fuels, especially with war choking oil supply. But it hasn’t turned out that way for some European countries, and the reason is complex.`\
 https://www.nytimes.com/2026/04/10/climate/europe-energy-crisis-iran-war.html
-
-**‘Hello to the New World Superpower’: Iran’s Africa Missions Troll Trump**\
-`Official social media accounts for Iranian embassies have engaged in information warfare, but the ones in Africa appear to have taken the lead on the attacks.`\
-https://www.nytimes.com/2026/04/10/world/africa/iran-south-africa-trump-war-ceasefire.html
 

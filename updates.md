@@ -1,3 +1,7 @@
+**Trump ataca a destacados conservadores que se oponen a la guerra en Irán**\
+`El presidente de EE. UU. atacó a Tucker Carlson, Megyn Kelly y otros en términos muy personales en una larga publicación en las redes sociales.`\
+https://www.nytimes.com/es/2026/04/10/espanol/estados-unidos/trump-ataca-conservadores-iran.html
+
 **Vance Should Stand Up to Trump**\
 `Responses to Dana Milbank’s Opinion guest essay about Vice President JD Vance. Also: Melania Trump’s lament; a lost childhood; propaganda and facts.`\
 https://www.nytimes.com/2026/04/10/opinion/vance-trump.html
