@@ -1,3 +1,7 @@
+**The Oil Shock Is Worse Than You Think**\
+`The war with Iran is preventing huge amounts of oil from flowing out of the Persian Gulf, but the prices that many people track don’t fully capture the scale of the disruption.`\
+https://www.nytimes.com/2026/04/10/business/energy-environment/iran-oil-prices.html
+
 **How and When to Watch NASA’s Artemis II Splash Down in Pacific Ocean**\
 `Here’s what you need to know about Artemis II and the splashdown of the Orion capsule.`\
 https://www.nytimes.com/2026/04/10/science/nasa-artemis-ii-splash-down-watch-time-stream.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/10/espanol/america-latina/venezuela-salir-eeu
 **Lebanon: A Nation Uprooted by War**\
 `A million people in Lebanon have fled their homes as Israel clashes anew with Hezbollah. This is what their lives look now.`\
 https://www.nytimes.com/2026/04/10/world/middleeast/lebanon-displaced-photos.html
-
-**See You in Pyongyang: Russia Pushes Its People to Embrace North Korea**\
-`Through art, food, tourism and academics, an increasingly isolated Moscow is seeking to cement lasting ties with Pyongyang.`\
-https://www.nytimes.com/2026/04/10/world/europe/russia-north-korea.html
 
