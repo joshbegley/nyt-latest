@@ -1,3 +1,7 @@
+**Bob Law, Trailblazing Talk-Radio Host, Dies at 86**\
+`His wee-hours show “Night Talk” was a nationally syndicated stalwart, examining tough issues and spotlighting Black cultural and political stars.`\
+https://www.nytimes.com/2026/04/10/business/media/bob-law-dead.html
+
 **Chicken Manchurian for Your Friday**\
 `And more of our most popular recipes from the week.`\
 https://www.nytimes.com/2026/04/10/dining/chicken-manchurian-for-your-friday.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/2026/04/10/movies/science-fiction-movies-streaming.html
 `The Irish government said it had called in the army after protesters blocked highways, ports and an oil refinery, causing widespread disruption.`\
 https://www.nytimes.com/2026/04/10/world/europe/ireland-fuel-protests-oil-prices-iran-war.html
 
-**Why Investing in Wind and Solar to Avoid Oil Shocks Hasn’t Added Up for Some**\
+**Why Investing in Wind and Solar to Avoid Gas Shocks Hasn’t Added Up for Some**\
 `Renewable energy is cheaper to run than fossil fuels, especially with war choking oil supply. But it hasn’t turned out that way for some European countries, and the reason is complex.`\
 https://www.nytimes.com/2026/04/10/climate/europe-energy-crisis-iran-war.html
 
@@ -54,8 +58,8 @@ https://www.nytimes.com/2026/04/10/podcasts/hardfork-mythos-cybersecurity.html
 `Investors are betting that the European Central Bank and the Bank of England will raise interest rates this year.`\
 https://www.nytimes.com/2026/04/10/business/europe-inflation-iran-war.html
 
-**What to know about the report.**\
-``\
+**U.S. Inflation Surged in March as Iran War Pushed Up Prices**\
+`Soaring energy costs led to the biggest monthly increase in the Consumer Price Index since the peak of the post-pandemic inflation crisis in June 2022.`\
 https://www.nytimes.com/live/2026/04/10/business/inflation-cpi-report/what-to-know-about-the-report
 
 **You Can’t Use This A.I.**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/04/10/world/iran-war-trump-israel-lebanon/isla
 **Lo que vive el pueblo iraní**\
 `Cuando EE. UU. e Israel lanzaron su ataque, algunos iraníes sintieron algo parecido a la esperanza. No duró mucho.`\
 https://www.nytimes.com/es/2026/04/10/espanol/mundo/iran-guerra-que-pasa.html
-
-**The Miracle Unfolding in Mississippi Schools**\
-`Since 2013, performance on national tests in Mississippi has skyrocketed, while scores in blue states have lagged. What is it doing right?`\
-https://www.nytimes.com/2026/04/10/podcasts/the-daily/mississippi-schools-test-scores.html
 

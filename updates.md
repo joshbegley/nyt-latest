@@ -1,3 +1,19 @@
+**Chicken Manchurian for Your Friday**\
+`And more of our most popular recipes from the week.`\
+https://www.nytimes.com/2026/04/10/dining/chicken-manchurian-for-your-friday.html
+
+**There’s a Way Out of Haiti’s Nightmare**\
+`Force alone can’t stabilize a country in chaos.`\
+https://www.nytimes.com/2026/04/10/opinion/haiti-gangs-drones-massacre.html
+
+**Five Science Fiction Movies to Stream Now**\
+`This month’s picks will have you seeing double, including a film in which Vince Vaughn plays current and future versions of a character.`\
+https://www.nytimes.com/2026/04/10/movies/science-fiction-movies-streaming.html
+
+**Fuel Protests Cause Transport Chaos in Ireland as Iran War Spikes Prices**\
+`The Irish government said it had called in the army after protesters blocked highways, ports and an oil refinery, causing widespread disruption.`\
+https://www.nytimes.com/2026/04/10/world/europe/ireland-fuel-protests-oil-prices-iran-war.html
+
 **Why Investing in Wind and Solar to Avoid Oil Shocks Hasn’t Added Up for Some**\
 `Renewable energy is cheaper to run than fossil fuels, especially with war choking oil supply. But it hasn’t turned out that way for some European countries, and the reason is complex.`\
 https://www.nytimes.com/2026/04/10/climate/europe-energy-crisis-iran-war.html
