@@ -1,3 +1,19 @@
+**Workout Clothes That Offer Support, Sun Protection — and Even Probiotics**\
+`Five cross-functional activewear brands to put on your radar.`\
+https://www.nytimes.com/2026/04/10/t-magazine/workout-activewear-clothes.html
+
+**Democrats’ Fight for Black Support in 2028 Is Starting. It’s Wide Open.**\
+`Possible presidential candidates are already courting a crucial Democratic constituency.`\
+https://www.nytimes.com/2026/04/10/us/politics/black-voters-democrats-2028.html
+
+**Davey Lopes, Base-Stealing Maestro, Is Dead at 80**\
+`He was one of baseball’s most efficient thieves, and part of a storied infield quartet with the Los Angeles Dodgers, playing in four World Series.`\
+https://www.nytimes.com/2026/04/10/sports/baseball/davey-lopes-dead.html
+
+**Thomas S. Langner, Who Linked Social Ills to Mental Illness, Dies at 102**\
+`He helped lead what became known as the Midtown Manhattan Study, which showed that mental impairment is highly correlated with low socioeconomic status.`\
+https://www.nytimes.com/2026/04/10/science/thomas-s-langner-dead.html
+
 **Eliot Engel, a 16-Term Bronx Liberal in Congress, Dies at 79**\
 `After defeating a Democratic fixture in a 1988 primary, he rose to lead the House Foreign Affairs Committee, then was toppled himself in 2020, undone by an overheard comment.`\
 https://www.nytimes.com/2026/04/10/nyregion/eliot-engel-dead.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/10/us/politics/iran-war-democrats-2028-election.
 **‘His Legacy Is Complex’: Grappling With Afrika Bambaataa**\
 `The tributes to one of hip-hop’s founders were complicated by allegations of sexual abuse made against him in recent years.`\
 https://www.nytimes.com/2026/04/10/style/frika-bambaataa-legacy.html
-
-**Democratic Socialists Win Court Battle as Elections Near**\
-`The ruling in New York rescinds a $212,000 fine issued to the Democratic Socialists of America over its fund-raising tactics in the 2022 elections.`\
-https://www.nytimes.com/2026/04/10/nyregion/dsa-fine-lawsuit.html
-
-**EE. UU. busca reforzar la lista del servicio militar. Esto hay que saber**\
-`A finales de año, el Sistema de Servicio Selectivo de EE. UU. comenzará a registrar automáticamente los nombres de quienes cumplen los requisitos para ser llamados a filas.`\
-https://www.nytimes.com/es/2026/04/10/espanol/estados-unidos/servicio-militar.html
-
-**Burned Before, Democrats Abruptly Revive the Idea of Impeaching Trump**\
-`Democrats in Congress have assiduously avoided talk of a third impeachment of President Trump, concerned that it would distract from their midterm campaign message. That tide seems to have turned.`\
-https://www.nytimes.com/2026/04/10/us/politics/trump-impeachment-democrats.html
-
-**Prices Are High. Here’s One Reason Not to Panic.**\
-`I believe the gas tank is half full.`\
-https://www.nytimes.com/2026/04/10/opinion/inflation-prices-data-economy.html
 

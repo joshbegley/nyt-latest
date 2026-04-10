@@ -1,3 +1,19 @@
+**Workout Clothes That Offer Support, Sun Protection — and Even Probiotics**\
+`Five cross-functional activewear brands to put on your radar.`\
+https://www.nytimes.com/2026/04/10/t-magazine/workout-activewear-clothes.html
+
+**Democrats’ Fight for Black Support in 2028 Is Starting. It’s Wide Open.**\
+`Possible presidential candidates are already courting a crucial Democratic constituency.`\
+https://www.nytimes.com/2026/04/10/us/politics/black-voters-democrats-2028.html
+
+**Davey Lopes, Base-Stealing Maestro, Is Dead at 80**\
+`He was one of baseball’s most efficient thieves, and part of a storied infield quartet with the Los Angeles Dodgers, playing in four World Series.`\
+https://www.nytimes.com/2026/04/10/sports/baseball/davey-lopes-dead.html
+
+**Thomas S. Langner, Who Linked Social Ills to Mental Illness, Dies at 102**\
+`He helped lead what became known as the Midtown Manhattan Study, which showed that mental impairment is highly correlated with low socioeconomic status.`\
+https://www.nytimes.com/2026/04/10/science/thomas-s-langner-dead.html
+
 **Eliot Engel, a 16-Term Bronx Liberal in Congress, Dies at 79**\
 `After defeating a Democratic fixture in a 1988 primary, he rose to lead the House Foreign Affairs Committee, then was toppled himself in 2020, undone by an overheard comment.`\
 https://www.nytimes.com/2026/04/10/nyregion/eliot-engel-dead.html
