@@ -1,3 +1,23 @@
+**The Miracle Unfolding in Mississippi Schools**\
+`Since 2013, performance on national tests in Mississippi has skyrocketed, while scores in blue states have lagged. What is it doing right?`\
+https://www.nytimes.com/2026/04/10/podcasts/the-daily/mississippi-schools-test-scores.html
+
+**The Mass Purge of Immigration Judges, and Melania Trump’s Surprise Epstein Remarks**\
+`Plus, your Friday news quiz.`\
+https://www.nytimes.com/2026/04/10/podcasts/the-headlines/immigration-judges-melania-trumps-epstein-remarks.html
+
+**Connections Companion No. 1,035**\
+`Scroll down for hints and conversation about the puzzle for Saturday, April 11, 2026.`\
+https://www.nytimes.com/2026/04/10/crosswords/connections-companion-1035.html
+
+**Strands Sidekick No. 769**\
+`Scroll down for hints and conversation about the puzzle for Saturday, April 11, 2026.`\
+https://www.nytimes.com/2026/04/10/crosswords/strands-sidekick-769.html
+
+**Wordle Review No. 1,757**\
+`Scroll down for hints and conversation about the puzzle for Saturday, April 11, 2026.`\
+https://www.nytimes.com/2026/04/10/crosswords/wordle-review-1757.html
+
 **Muchos venezolanos quieren irse de EE. UU. Pero no consiguen pasaportes**\
 `Estados Unidos les ha imposibilitado quedarse legalmente, y su propio país les dificulta el regreso.`\
 https://www.nytimes.com/es/2026/04/10/espanol/america-latina/venezuela-salir-eeuu-pasaportes.html
