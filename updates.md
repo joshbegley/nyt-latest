@@ -1,3 +1,11 @@
+**Why Investing in Wind and Solar to Avoid Oil Shocks Hasn’t Added Up for Some**\
+`Renewable energy is cheaper to run than fossil fuels, especially with war choking oil supply. But it hasn’t turned out that way for some European countries, and the reason is complex.`\
+https://www.nytimes.com/2026/04/10/climate/europe-energy-crisis-iran-war.html
+
+**The Iran War Has Prompted Some Companies to Raise Prices**\
+`Delta Air Lines, Amazon, the United States Postal Service and others have said they are raising prices amid higher energy costs connected to the war in Iran.`\
+https://www.nytimes.com/2026/04/10/business/economy/iran-war-inflation-company-prices.html
+
 **‘Hello to the New World Superpower’: Iran’s Africa Missions Troll Trump**\
 `Official social media accounts for Iranian embassies have engaged in information warfare, but the ones in Africa appear to have taken the lead on the attacks.`\
 https://www.nytimes.com/2026/04/10/world/africa/iran-south-africa-trump-war-ceasefire.html
