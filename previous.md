@@ -1,3 +1,15 @@
+**Eliot Engel, a 16-Term Bronx Liberal in Congress, Dies at 79**\
+`After defeating a Democratic fixture in a 1988 primary, he rose to lead the House Foreign Affairs Committee, then was toppled himself in 2020, undone by an overheard comment.`\
+https://www.nytimes.com/2026/04/10/nyregion/eliot-engel-dead.html
+
+**With Peace Talks Set to Begin, Prospects for Long-Term Deal Uncertain**\
+`As U.S. and Iranian leaders head to Pakistan for negotiations amid a two-week cease-fire, the two sides must resolve major differences on Lebanon, the Strait of Hormuz and frozen Iranian assets.`\
+https://www.nytimes.com/2026/04/10/world/middleeast/iran-us-peace-talks-pakistan.html
+
+**Trump Says First Lady ‘Had a Right’ to Talk About Epstein**\
+`President Trump said in an interview that he had known his wife wanted to address rumors about the late sex offender at some point, but that he had not known exactly what she would say.`\
+https://www.nytimes.com/2026/04/10/us/politics/trump-melania-epstein.html
+
 **Drafting a Presidential Son? The Manosphere Wants to Talk About It**\
 `With news of a change to the Selective Service, memes and social media chatter abound about who would be sent to war.`\
 https://www.nytimes.com/2026/04/10/style/draft-barron-trump-army-iran-war-memes.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/10/us/politics/trump-impeachment-democrats.html
 **Prices Are High. Here’s One Reason Not to Panic.**\
 `I believe the gas tank is half full.`\
 https://www.nytimes.com/2026/04/10/opinion/inflation-prices-data-economy.html
-
-**Trump comparte un video explícito de un ataque y arremete contra los haitianos**\
-`El hombre al que se ve golpeando a una mujer es de Haití y se enfrenta a un cargo de asesinato en Florida, dijeron las autoridades. El presidente ha buscado eliminar el Estatus de Protección Temporal para los migrantes de origen haitiano.`\
-https://www.nytimes.com/es/2026/04/10/espanol/estados-unidos/trump-video-haitianos.html
-
-**Homeland Security Workers Get Paid, but the Next Check Is Uncertain**\
-`The lack of clarity has frustrated employees as Congress battles over how to fund the department.`\
-https://www.nytimes.com/2026/04/10/us/politics/homeland-security-funding.html
-
-**Israel and Lebanon Plan Talks in Washington as War Threatens U.S.-Iran Deal**\
-`Whether Israel’s conflict with Hezbollah, the Iran-backed militant group in Lebanon, is included in the Iran cease-fire is one of the major disputes rattling the truce.`\
-https://www.nytimes.com/2026/04/10/world/middleeast/israel-lebanon-ceasefire-talks-iran-war.html
 
