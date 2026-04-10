@@ -1,3 +1,11 @@
+**University of Ottawa in Lockdown Amid ‘Violent Incident’**\
+`The authorities urged students to stay away from the downtown campus, to hide quietly if they were on the premises, and to defend themselves if needed.`\
+https://www.nytimes.com/2026/04/10/world/canada/ottawa-university-campus-lockdown-canada.html
+
+**New Evidence Further Implicates U.S. Missiles in Strikes That Killed 21 Civilians in Iran**\
+`Additional images and video build on an earlier analysis, which the Pentagon has disputed, showing Precision Strike Missiles, or PrSMs, hit a sports hall and residential areas in the Iranian city of Lamerd.`\
+https://www.nytimes.com/2026/04/10/world/middleeast/iran-us-missle-strike-civilians-lamerd.html
+
 **New Evidence Further Implicates U.S. Missiles in Strikes That Killed 21 Civilians in Iran**\
 `Additional images and video build on earlier analysis, which the Pentagon has disputed, showing Precision Strike Missiles, or PrSMs, hit a sports hall and residential areas in the Iranian city of Lamerd.`\
 https://www.nytimes.com/2026/04/10/world/middleeast/iran-us-missle-strike-civilians-lamerd.html

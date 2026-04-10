@@ -1,5 +1,9 @@
+**University of Ottawa in Lockdown Amid ‘Violent Incident’**\
+`The authorities urged students to stay away from the downtown campus, to hide quietly if they were on the premises, and to defend themselves if needed.`\
+https://www.nytimes.com/2026/04/10/world/canada/ottawa-university-campus-lockdown-canada.html
+
 **New Evidence Further Implicates U.S. Missiles in Strikes That Killed 21 Civilians in Iran**\
-`Additional images and video build on earlier analysis, which the Pentagon has disputed, showing Precision Strike Missiles, or PrSMs, hit a sports hall and residential areas in the Iranian city of Lamerd.`\
+`Additional images and video build on an earlier analysis, which the Pentagon has disputed, showing Precision Strike Missiles, or PrSMs, hit a sports hall and residential areas in the Iranian city of Lamerd.`\
 https://www.nytimes.com/2026/04/10/world/middleeast/iran-us-missle-strike-civilians-lamerd.html
 
 **Watch Live: Artemis II Crew Returns to Earth**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/10/world/middleeast/pakistan-iran-talks-islamaba
 **NASA is closely watching a storm in California not far from the Artemis landing.**\
 ``\
 https://www.nytimes.com/live/2026/04/10/science/nasa-artemis-ii-splashdown-return/san-deigo-weather-artemis
-
-**Fred Drasner, a Feisty Leader of The Daily News, Is Dead at 83**\
-`A former New York cabdriver who never lost his edge, he was co-publisher alongside Mort Zuckerman as he took on rival papers in the so-called tabloid wars.`\
-https://www.nytimes.com/2026/04/10/business/media/fred-drasner-dead.html
 
