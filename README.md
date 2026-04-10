@@ -1,3 +1,7 @@
+**Trump comparte un video explícito de un ataque y arremete contra los haitianos**\
+`El hombre al que se ve golpeando a una mujer es de Haití y se enfrenta a un cargo de asesinato en Florida, dijeron las autoridades. El presidente ha buscado eliminar el Estatus de Protección Temporal para los migrantes de origen haitiano.`\
+https://www.nytimes.com/es/2026/04/10/espanol/estados-unidos/trump-video-haitianos.html
+
 **Homeland Security Workers Get Paid, but the Next Check Is Uncertain**\
 `The lack of clarity has frustrated employees as Congress battles over how to fund the department.`\
 https://www.nytimes.com/2026/04/10/us/politics/homeland-security-funding.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/10/arts/music/hilde-limondjian-dead.html
 **The Enduring Body and Soul of Martha Graham at 100**\
 `Her dance company, the oldest in the United States, celebrates its centennial in a series of mixed bills. But why aren’t all the dances by Graham?`\
 https://www.nytimes.com/2026/04/10/arts/dance/martha-graham-centennial-city-center.html
-
-**Should Churches Remove Art by a Priest Accused of Sexual Abuse?**\
-`The Rev. Marko Ivan Rupnik has installed mosaics across the Roman Catholic world, including at the Vatican. After nuns accused him of abuse, some want his work removed.`\
-https://www.nytimes.com/2026/04/10/world/europe/father-rupnik-priest-abuse-mosaics.html
 

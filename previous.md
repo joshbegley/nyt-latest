@@ -1,3 +1,11 @@
+**Homeland Security Workers Get Paid, but the Next Check Is Uncertain**\
+`The lack of clarity has frustrated employees as Congress battles over how to fund the department.`\
+https://www.nytimes.com/2026/04/10/us/politics/homeland-security-funding.html
+
+**Israel and Lebanon Plan Talks in Washington as War Threatens U.S.-Iran Deal**\
+`Whether Israel’s conflict with Hezbollah, the Iran-backed militant group in Lebanon, is included in the Iran cease-fire is one of the major disputes rattling the truce.`\
+https://www.nytimes.com/2026/04/10/world/middleeast/israel-lebanon-ceasefire-talks-iran-war.html
+
 **Mariah Carey Lists Her TriBeCa Penthouse for $27 Million**\
 `The pop icon bought the home and onetime “Cribs” subject in 1999 for $9 million.`\
 https://www.nytimes.com/2026/04/10/realestate/mariah-carey-tribeca-penthouse-sale.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/10/arts/dance/martha-graham-centennial-city-cent
 **Should Churches Remove Art by a Priest Accused of Sexual Abuse?**\
 `The Rev. Marko Ivan Rupnik has installed mosaics across the Roman Catholic world, including at the Vatican. After nuns accused him of abuse, some want his work removed.`\
 https://www.nytimes.com/2026/04/10/world/europe/father-rupnik-priest-abuse-mosaics.html
-
-**Bob Law, Trailblazing Talk-Radio Host, Dies at 86**\
-`His wee-hours show “Night Talk” was a nationally syndicated stalwart, examining tough issues and spotlighting Black cultural and political stars.`\
-https://www.nytimes.com/2026/04/10/business/media/bob-law-dead.html
-
-**Chicken Manchurian for Your Friday**\
-`And more of our most popular recipes from the week.`\
-https://www.nytimes.com/2026/04/10/dining/chicken-manchurian-for-your-friday.html
 

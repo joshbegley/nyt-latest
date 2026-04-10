@@ -1,3 +1,11 @@
+**Homeland Security Workers Get Paid, but the Next Check Is Uncertain**\
+`The lack of clarity has frustrated employees as Congress battles over how to fund the department.`\
+https://www.nytimes.com/2026/04/10/us/politics/homeland-security-funding.html
+
+**Israel and Lebanon Plan Talks in Washington as War Threatens U.S.-Iran Deal**\
+`Whether Israel’s conflict with Hezbollah, the Iran-backed militant group in Lebanon, is included in the Iran cease-fire is one of the major disputes rattling the truce.`\
+https://www.nytimes.com/2026/04/10/world/middleeast/israel-lebanon-ceasefire-talks-iran-war.html
+
 **Mariah Carey Lists Her TriBeCa Penthouse for $27 Million**\
 `The pop icon bought the home and onetime “Cribs” subject in 1999 for $9 million.`\
 https://www.nytimes.com/2026/04/10/realestate/mariah-carey-tribeca-penthouse-sale.html
