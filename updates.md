@@ -1,3 +1,7 @@
+**Mariah Carey Lists Her TriBeCa Penthouse for $27 Million**\
+`The pop icon bought the home and onetime “Cribs” subject in 1999 for $9 million.`\
+https://www.nytimes.com/2026/04/10/realestate/mariah-carey-tribeca-penthouse-sale.html
+
 **Officials Release Design for 250-Foot Arch in Washington, as Trump Seeks Another Imprint**\
 `The president has proposed the arch, which would rise on a Washington roundabout across from the Lincoln Memorial, as a way to celebrate America’s 250th anniversary.`\
 https://www.nytimes.com/2026/04/10/us/politics/arch-washington-trump.html
