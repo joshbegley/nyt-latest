@@ -1,3 +1,7 @@
+**Review: The Philharmonic Surrounds a Premiere With a Motley Crowd**\
+`George Lewis’s new piece brought in the percussion and piano quartet Yarn/Wire, in an evening that also featured the soprano Golda Schultz.`\
+https://www.nytimes.com/2026/04/10/arts/music/new-york-philharmonic-george-lewis-review.html
+
 **European Airports Warn of Fuel Shortages if Gulf Supplies Remain Shut**\
 `An association of airports told European Union officials that fuel shipments through the Strait of Hormuz had to restart within three weeks to avoid a “systemic” shortage.`\
 https://www.nytimes.com/2026/04/10/business/europe-airports-jet-fuel-shortage.html
