@@ -1,3 +1,11 @@
+**How and When to Watch NASA’s Artemis II Splash Down in Pacific Ocean**\
+`Here’s what you need to know about Artemis II and the splashdown of the Orion capsule.`\
+https://www.nytimes.com/2026/04/10/science/nasa-artemis-ii-splash-down-watch-time-stream.html
+
+**Bessent and Powell’s A.I. Anxiety**\
+`The Treasury secretary and the Fed chairman reportedly summoned banking leaders to discuss the potential systemic risks of Anthropic’s new model.`\
+https://www.nytimes.com/2026/04/10/business/dealbook/bessent-powell-anthropic-banking-risks.html
+
 **A Record Jump in U.S. Gasoline Prices Is Squeezing Consumers**\
 `The cost at the pump made its biggest monthly percentage increase in decades amid lingering tensions over the war in Iran.`\
 https://www.nytimes.com/2026/04/10/business/economy/gasoline-price-rise.html
