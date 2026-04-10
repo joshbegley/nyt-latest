@@ -1,3 +1,19 @@
+**Should Churches Remove Art by a Priest Accused of Sexual Abuse?**\
+`The Rev. Marko Ivan Rupnik has installed mosaics across the Roman Catholic world, including at the Vatican. After nuns accused him of abuse, some want his work removed.`\
+https://www.nytimes.com/2026/04/10/world/europe/father-rupnik-priest-abuse-mosaics.html
+
+**Bob Law, Trailblazing Talk-Radio Host, Dies at 86**\
+`His wee-hours show “Night Talk” was a nationally syndicated stalwart, examining tough issues and spotlighting Black cultural and political stars.`\
+https://www.nytimes.com/2026/04/10/business/media/bob-law-dead.html
+
+**Why Investing in Wind and Solar to Avoid Gas Shocks Hasn’t Added Up for Some**\
+`Renewable energy is cheaper to run than fossil fuels, especially with war choking oil supply. But it hasn’t turned out that way for some European countries, and the reason is complex.`\
+https://www.nytimes.com/2026/04/10/climate/europe-energy-crisis-iran-war.html
+
+**U.S. Inflation Surged in March as Iran War Pushed Up Prices**\
+`Soaring energy costs led to the biggest monthly increase in the Consumer Price Index since the peak of the post-pandemic inflation crisis in June 2022.`\
+https://www.nytimes.com/live/2026/04/10/business/inflation-cpi-report/what-to-know-about-the-report
+
 **Chicken Manchurian for Your Friday**\
 `And more of our most popular recipes from the week.`\
 https://www.nytimes.com/2026/04/10/dining/chicken-manchurian-for-your-friday.html
