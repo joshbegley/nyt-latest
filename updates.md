@@ -1,3 +1,15 @@
+**Why Opening the Hormuz Won’t Lower Gas Prices**\
+`Our energy reporter Rebecca F. Elliott explains why, even if the flow of energy is restored through the Persian Gulf, it will take months to carry out repairs across dozens of energy sites in the region.`\
+https://www.nytimes.com/video/world/middleeast/100000010830114/why-opening-the-hormuz-wont-lower-gas-prices.html
+
+**Prince Harry Is Sued for Libel by a Charity He Founded**\
+`Sentebale filed a defamation lawsuit against the Duke of Sussex, who resigned as patron last year after a clash between the board of trustees and the board’s chair.`\
+https://www.nytimes.com/2026/04/10/world/europe/prince-harry-sentebale-libel-lawsuit.html
+
+**Why the Inflation Numbers Might Not Be Quite So Scary as They Seem**\
+`I believe the gas tank is half full.`\
+https://www.nytimes.com/2026/04/10/opinion/inflation-prices-data-economy.html
+
 **Only two ships passed through the Strait of Hormuz on Friday.**\
 ``\
 https://www.nytimes.com/live/2026/04/10/world/iran-war-trump-israel-lebanon/only-two-ships-passed-through-the-strait-of-hormuz-on-friday
