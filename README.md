@@ -1,3 +1,11 @@
+**‘His Legacy Is Complex’: Grappling With Afrika Bambaataa**\
+`The tributes to one of hip-hop’s founders were complicated by allegations of sexual abuse made against him in recent years.`\
+https://www.nytimes.com/2026/04/10/style/frika-bambaataa-legacy.html
+
+**Democratic Socialists Win Court Battle as Elections Near**\
+`The ruling in New York rescinds a $212,000 fine issued to the Democratic Socialists of America over its fund-raising tactics in the 2022 elections.`\
+https://www.nytimes.com/2026/04/10/nyregion/dsa-fine-lawsuit.html
+
 **EE. UU. busca reforzar la lista del servicio militar. Esto hay que saber**\
 `A finales de año, el Sistema de Servicio Selectivo de EE. UU. comenzará a registrar automáticamente los nombres de quienes cumplen los requisitos para ser llamados a filas.`\
 https://www.nytimes.com/es/2026/04/10/espanol/estados-unidos/servicio-militar.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/10/world/europe/trump-starmer-fed-up-iran-war.ht
 **Judge Declines to Order Trump Administration to Adjust Somali Deportation Policies**\
 `Acknowledging that the government may have recently stepped up the pace of removal proceedings, a federal judge wrote that he could not immediately intervene.`\
 https://www.nytimes.com/2026/04/10/us/politics/trump-somali-deportation-judge-decision.html
-
-**Trump Shares Video of Graphic Attack and Rails Against Haitians**\
-`The man seen beating a woman is from Haiti and faces a murder charge in Florida, officials said. President Trump has fought to end protections for Haitian immigrants.`\
-https://www.nytimes.com/2026/04/10/us/politics/trump-hammer-video-florida-attack-immigration.html
-
-**Review: The Philharmonic Surrounds a Premiere With a Motley Crowd**\
-`George Lewis’s new piece brought in the percussion and piano quartet Yarn/Wire, in an evening that also featured the soprano Golda Schultz.`\
-https://www.nytimes.com/2026/04/10/arts/music/new-york-philharmonic-george-lewis-review.html
 
