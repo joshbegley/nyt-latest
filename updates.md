@@ -1,3 +1,19 @@
+**Jimmy Kimmel Salutes Melania’s White House Surprise**\
+`The first lady addressed her relationship with Jeffrey Epstein in a prepared statement that the talk show host called “better than her movie.”`\
+https://www.nytimes.com/2026/04/10/arts/television/jimmy-kimmel-melania-epstein.html
+
+**Después del alto al fuego, los iraníes viven una mezcla de alivio y conmoción**\
+`Los iraníes reflexionaron sobre lo que los ataques les habían hecho pasar y a lo que podrían enfrentarse a continuación.`\
+https://www.nytimes.com/es/2026/04/10/espanol/mundo/iranies-testimonios-alto-fuego.html
+
+**Las películas de pesos pesados del cine dominan la programación de Cannes**\
+`La 79ª edición del festival incluye películas de directores de cine de autor tan reconocidos como Pedro Almodóvar y Pawel Pawlikowski, pero cuenta con pocos títulos de Hollywood.`\
+https://www.nytimes.com/es/2026/04/10/espanol/cultura/festival-cannes-2026-peliculas.html
+
+**Xi Seeks to Sway Taiwan, and Trump, With Message of Stability**\
+`Ahead of a summit with Donald Trump, the Chinese leader is using a rare meeting with a Taiwanese politician to cast Beijing as a peacemaker and squeeze the island’s president.`\
+https://www.nytimes.com/2026/04/10/world/asia/taiwan-china-xi-cheng.html
+
 **TK**\
 `TK`\
 https://static01.nyt.com/slideshow/2026/04/10/t-magazine/tk.html

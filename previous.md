@@ -1,3 +1,19 @@
+**Jimmy Kimmel Salutes Melania’s White House Surprise**\
+`The first lady addressed her relationship with Jeffrey Epstein in a prepared statement that the talk show host called “better than her movie.”`\
+https://www.nytimes.com/2026/04/10/arts/television/jimmy-kimmel-melania-epstein.html
+
+**Después del alto al fuego, los iraníes viven una mezcla de alivio y conmoción**\
+`Los iraníes reflexionaron sobre lo que los ataques les habían hecho pasar y a lo que podrían enfrentarse a continuación.`\
+https://www.nytimes.com/es/2026/04/10/espanol/mundo/iranies-testimonios-alto-fuego.html
+
+**Las películas de pesos pesados del cine dominan la programación de Cannes**\
+`La 79ª edición del festival incluye películas de directores de cine de autor tan reconocidos como Pedro Almodóvar y Pawel Pawlikowski, pero cuenta con pocos títulos de Hollywood.`\
+https://www.nytimes.com/es/2026/04/10/espanol/cultura/festival-cannes-2026-peliculas.html
+
+**Xi Seeks to Sway Taiwan, and Trump, With Message of Stability**\
+`Ahead of a summit with Donald Trump, the Chinese leader is using a rare meeting with a Taiwanese politician to cast Beijing as a peacemaker and squeeze the island’s president.`\
+https://www.nytimes.com/2026/04/10/world/asia/taiwan-china-xi-cheng.html
+
 **TK**\
 `TK`\
 https://static01.nyt.com/slideshow/2026/04/10/t-magazine/tk.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/interactive/2026/04/09/science/space/nasa-mission-contro
 **‘The Pitt’ Season 2, Episode 14 Recap: Physician, Heal Thyself**\
 `Dr. Robby may be stressed out by the constant demands of the E.R., but the work may also be the only thing saving him from himself.`\
 https://www.nytimes.com/2026/04/09/arts/television/the-pitt-recap-season-2-episode-14.html
-
-**Review: A Cold, Perfect ‘Death of a Salesman’ for Our Time**\
-`Arthur Miller’s classic tragedy returns to Broadway, starring Nathan Lane and Laurie Metcalf. Yet again, it is a triumph.`\
-https://www.nytimes.com/2026/04/09/theater/death-of-a-salesman-review-broadway-lane-metcalf.html
-
-**Drift Off**\
-`Erica Hsiung Wojcik returns to open our solving weekend.`\
-https://www.nytimes.com/2026/04/09/crosswords/daily-puzzle-2026-04-10.html
-
-**White House Warned Staff Not to Engage in Insider Trading Amid War With Iran**\
-`The directive came amid a surge of suspiciously well-timed trades on oil and prediction markets just ahead of crucial moments in the conflict.`\
-https://www.nytimes.com/2026/04/09/us/politics/white-house-prediction-markets.html
-
-**U.S. Government Moves Toward Automatic Registration for Military Draft**\
-`For decades, draft-eligible men ages 18 to 25 have been required to register with the Selective Service System. Most states offer a registration option on driver’s license applications.`\
-https://www.nytimes.com/2026/04/09/us/us-military-draft-automatic-registration-war.html
 
