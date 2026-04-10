@@ -1,3 +1,19 @@
+**Oil Ticks Higher and Stocks Rise Ahead of U.S. Inflation Report**\
+`A temporary cease-fire in the war on Iran faces multiple hurdles and investors are watching the release of U.S. government data on inflation.`\
+https://www.nytimes.com/2026/04/10/business/oil-stocks-gas-prices-iran.html
+
+**Las escritoras de novela erótica que eluden a los censores religiosos en Nigeria**\
+`Jóvenes mujeres obtienen ganancias de sus atrevidos textos que comparten a través de grupos de WhatsApp para esquivar a la policía moral.`\
+https://www.nytimes.com/es/2026/04/10/espanol/mundo/novelas-eroticas-nigeria-censura.html
+
+**Palabra del día: ‘transaction’**\
+`Esta palabra ha aparecido en 801 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/04/10/espanol/que-significa-transaction.html
+
+**Word of the Day: transaction**\
+`This word has appeared in 801 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/04/10/learning/word-of-the-day-transaction.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/10/world/iran-war-trump-israel-lebanon/heres-the-latest
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/10/style/modern-love-a-stranger-invited-me-into-
 **They Met at the Grammys and Eventually Hit the Right Note**\
 `It was music that bonded Ross Scarano, the editorial director of Complex Media, and Nina Lee, a publicist, and writing that reunited them.`\
 https://www.nytimes.com/2026/04/10/style/nina-lee-ross-scarano-wedding.html
-
-**They Clicked Over Scrabble in the High School Cafeteria**\
-`Sarah Luciano and Samuel Bobley have “been crazy about each other since we were 16 years old,” when they met in Long Island, she said.`\
-https://www.nytimes.com/2026/04/10/style/sarah-luciano-samuel-bobley-wedding.html
-
-**Quote of the Day: Suez Signaled Britain’s Slide. Could Iran Do That for U.S.?**\
-`Quotation of the Day for Friday, April 10, 2026.`\
-https://www.nytimes.com/2026/04/09/pageoneplus/quote-of-the-day-suez-signaled-britains-slide-could-iran-do-that-for-us.html
-
-**Iran’s Schools and Hospitals in Ruins From U.S.-Israeli Strikes**\
-`The Times has verified strikes on at least 39 schools and hospitals, a fraction of the devastation so far.`\
-https://www.nytimes.com/interactive/2026/04/09/world/middleeast/us-israel-strikes-iran-structures-damage.html
-
-**What’s Inside NASA’s Mission Control**\
-`Take a tour of the room where the team behind the Artemis II mission works day and night.`\
-https://www.nytimes.com/interactive/2026/04/09/science/space/nasa-mission-control-room.html
 
