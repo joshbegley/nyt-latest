@@ -1,3 +1,7 @@
+**Drafting a Presidential Son? The Manosphere Wants to Talk About It**\
+`With news of a change to the Selective Service, memes and social media chatter abound about who would be sent to war.`\
+https://www.nytimes.com/2026/04/10/style/draft-barron-trump-army-iran-war-memes.html
+
 **Facing Many Crises, Pakistan Tries to End a Big One — in Iran**\
 `A nation with a stalled economy, a terrorism problem and two hostile neighbors is set to host the first formal U.S.-Iranian talks since the war began.`\
 https://www.nytimes.com/2026/04/10/world/middleeast/pakistan-iran-talks-islamabad.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/10/us/politics/homeland-security-funding.html
 **Israel and Lebanon Plan Talks in Washington as War Threatens U.S.-Iran Deal**\
 `Whether Israel’s conflict with Hezbollah, the Iran-backed militant group in Lebanon, is included in the Iran cease-fire is one of the major disputes rattling the truce.`\
 https://www.nytimes.com/2026/04/10/world/middleeast/israel-lebanon-ceasefire-talks-iran-war.html
-
-**Mariah Carey Lists Her TriBeCa Penthouse for $27 Million**\
-`The pop icon bought the home and onetime “Cribs” subject in 1999 for $9 million.`\
-https://www.nytimes.com/2026/04/10/realestate/mariah-carey-tribeca-penthouse-sale.html
 
