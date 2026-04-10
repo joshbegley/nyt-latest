@@ -1,3 +1,11 @@
+**Reseña de ‘Malcolm el de en medio’: ahora la nostalgia reina en la TV**\
+`Dos décadas después, la serie recupera su esencia y demuestra que algunas dinámicas familiares —y frustraciones— nunca cambian.`\
+https://www.nytimes.com/es/2026/04/10/espanol/cultura/resena-malcolm-2026.html
+
+**Here’s the Story… of a House Named Brady**\
+`While only its exterior ever appeared in “The Brady Bunch,” stepping into the real-life Brady house now is like going back in time. Here’s a look.`\
+https://www.nytimes.com/2026/04/10/us/brady-bunch-house.html
+
 **Banks Warned About Anthropic’s New, Powerful A.I. Technology**\
 `In an unusual move, the Treasury secretary and the Federal Reserve chair gathered bank executives to caution about cyberthreats posed by artificial intelligence.`\
 https://www.nytimes.com/2026/04/10/business/anthropic-claude-mythos-preview-banks.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/10/t-magazine/workout-activewear-clothes.html
 **Democrats’ Fight for Black Support in 2028 Is Starting. It’s Wide Open.**\
 `Possible presidential candidates are already courting a crucial Democratic constituency.`\
 https://www.nytimes.com/2026/04/10/us/politics/black-voters-democrats-2028.html
-
-**Davey Lopes, Base-Stealing Maestro, Is Dead at 80**\
-`He was one of baseball’s most efficient thieves, and part of a storied infield quartet with the Los Angeles Dodgers, playing in four World Series.`\
-https://www.nytimes.com/2026/04/10/sports/baseball/davey-lopes-dead.html
-
-**Thomas S. Langner, Who Linked Social Ills to Mental Illness, Dies at 102**\
-`He helped lead what became known as the Midtown Manhattan Study, which showed that mental impairment is highly correlated with low socioeconomic status.`\
-https://www.nytimes.com/2026/04/10/science/thomas-s-langner-dead.html
 
