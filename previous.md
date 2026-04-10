@@ -1,3 +1,11 @@
+**Molotov Cocktail Is Hurled at Home of OpenAI Chief Executive Sam Altman**\
+`The device burned an exterior gate of the house in San Francisco, the police said, and it was unclear whether the artificial intelligence executive was home. The authorities arrested a suspect.`\
+https://www.nytimes.com/2026/04/10/us/open-ai-sam-altman-molotov-cocktail.html
+
+**Artemis II’s New Views of the Moon**\
+`Over 10 days, the astronauts of NASA’s lunar flyby mission have achieved the near impossible.`\
+https://www.nytimes.com/2026/04/10/science/nasa-artemis-ii-moon-mission-photos-earth-eclipse.html
+
 **Trump ataca a destacados conservadores que se oponen a la guerra en Irán**\
 `El presidente de EE. UU. atacó a Tucker Carlson, Megyn Kelly y otros en términos muy personales en una larga publicación en las redes sociales.`\
 https://www.nytimes.com/es/2026/04/10/espanol/estados-unidos/trump-ataca-conservadores-iran.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/10/opinion/haiti-gangs-drones-massacre.html
 **Five Science Fiction Movies to Stream Now**\
 `This month’s picks will have you seeing double, including a film in which Vince Vaughn plays current and future versions of a character.`\
 https://www.nytimes.com/2026/04/10/movies/science-fiction-movies-streaming.html
-
-**Fuel Protests Cause Transport Chaos in Ireland as Iran War Spikes Prices**\
-`The Irish government said it had called in the army after protesters blocked highways, ports and an oil refinery, causing widespread disruption.`\
-https://www.nytimes.com/2026/04/10/world/europe/ireland-fuel-protests-oil-prices-iran-war.html
-
-**Why Investing in Wind and Solar to Avoid Gas Shocks Hasn’t Added Up for Some**\
-`Renewable energy is cheaper to run than fossil fuels, especially with war choking oil supply. But it hasn’t turned out that way for some European countries, and the reason is complex.`\
-https://www.nytimes.com/2026/04/10/climate/europe-energy-crisis-iran-war.html
 

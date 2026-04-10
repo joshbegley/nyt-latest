@@ -1,3 +1,11 @@
+**Molotov Cocktail Is Hurled at Home of OpenAI Chief Executive Sam Altman**\
+`The device burned an exterior gate of the house in San Francisco, the police said, and it was unclear whether the artificial intelligence executive was home. The authorities arrested a suspect.`\
+https://www.nytimes.com/2026/04/10/us/open-ai-sam-altman-molotov-cocktail.html
+
+**Artemis II’s New Views of the Moon**\
+`Over 10 days, the astronauts of NASA’s lunar flyby mission have achieved the near impossible.`\
+https://www.nytimes.com/2026/04/10/science/nasa-artemis-ii-moon-mission-photos-earth-eclipse.html
+
 **Trump ataca a destacados conservadores que se oponen a la guerra en Irán**\
 `El presidente de EE. UU. atacó a Tucker Carlson, Megyn Kelly y otros en términos muy personales en una larga publicación en las redes sociales.`\
 https://www.nytimes.com/es/2026/04/10/espanol/estados-unidos/trump-ataca-conservadores-iran.html
