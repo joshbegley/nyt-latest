@@ -1,3 +1,7 @@
+**The Oil Shock Is Worse Than You Think**\
+`The war with Iran is preventing huge amounts of oil from flowing out of the Persian Gulf, but the prices that many people track don’t fully capture the scale of the disruption.`\
+https://www.nytimes.com/2026/04/10/business/energy-environment/iran-oil-prices.html
+
 **How and When to Watch NASA’s Artemis II Splash Down in Pacific Ocean**\
 `Here’s what you need to know about Artemis II and the splashdown of the Orion capsule.`\
 https://www.nytimes.com/2026/04/10/science/nasa-artemis-ii-splash-down-watch-time-stream.html
