@@ -1,3 +1,27 @@
+**How David Cross Gets Ready for a Night of ‘Dangerous’ Comedy**\
+`Mr. Cross, known for “Arrested Development” and “Mr. Show,” isn’t afraid to say what should not be said.`\
+https://www.nytimes.com/interactive/2026/04/11/nyregion/met-routine-david-cross.html
+
+**How David Cross Gets Ready for a Night of ‘Dangerous’ Comedy**\
+`Mr. Cross, known for “Arrested Development” and “Mr. Show,” isn’t afraid to say what should not be said.`\
+https://www.nytimes.com/2026/04/11/nyregion/routine-david-cross-nyc.html
+
+**Para derrocar al patriarcado, estas mujeres tienen sexo con vegetales**\
+`El superventas polaco “Hexes of the Deadwood Forest” es como un sueño febril posporno de realismo mágico de Europa del Este mezclado con “El placer de amar” pero con plantas.`\
+https://www.nytimes.com/es/2026/04/11/espanol/cultura/resena-szpila-sexo-vegetales.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/11/crosswords/spelling-bee-forum.html
+
+**In a Restaurant’s Name, a Message of Grief and Hope for Palestinians**\
+`Hinds Hall near Columbia University is a place to find Palestinian cuisine and to remember a 5-year-old killed in Gaza.`\
+https://www.nytimes.com/2026/04/11/nyregion/hinds-hall-restaurant-columbia.html
+
+**Mamdani, Leaning Into ‘Sewer Socialism,’ Gets His Hands Dirty**\
+`The mayor has embraced the decades-old concept of “sewer socialism,” hoping to improve New Yorkers’ lives by focusing on public services.`\
+https://www.nytimes.com/2026/04/11/nyregion/mamdani-sewer-socialism.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/11/world/iran-war-trump-talks-pakistan/heres-the-latest
@@ -53,28 +77,4 @@ https://www.nytimes.com/video/science/space/100000010830901/nasa-artemis-astrona
 **Gabbed, Gabbed, Gabbed**\
 `Kareem Ayas charms solvers with a chatty themeless puzzle.`\
 https://www.nytimes.com/2026/04/10/crosswords/daily-puzzle-2026-04-11.html
-
-**La misión de Artemis II de la NASA regresa a la Tierra con éxito**\
-`La tripulación de la NASA amerizó en el océano Pacífico, cerca de San Diego, con lo que finaliza un viaje que llevó a los seres humanos al espacio sideral por primera vez desde 1972.`\
-https://www.nytimes.com/es/2026/04/10/espanol/ciencia-y-tecnologia/nasa-artemis-tierra.html
-
-**Eight Arrested in Connection With Deadly California Fireworks Explosion**\
-`The explosion last July in Esparto, Calif., killed seven people. Five of the eight arrested, including a former local police officer, have been charged with murder.`\
-https://www.nytimes.com/2026/04/10/us/fireworks-explosion-california-murder-charges.html
-
-**Man Accused of Warehouse Arson Invoked Mangione, Court Files Say**\
-`The suspect in a fire at a paper company facility in California complained about pay and raged against capitalism in videos posted to social media as he lit the blaze, prosecutors say.`\
-https://www.nytimes.com/2026/04/10/us/kimberly-clark-warehouse-fire-suspect-mangione.html
-
-**“It Was Survival Mode”: The Lunar Mission That Nearly Ended in Disaster**\
-`Fifty-six years ago, after a tense race to save the Apollo 13 crew, the astronauts finally splashed down safely. Here’s what flight directors who got them home remember.`\
-https://www.nytimes.com/interactive/2026/04/10/magazine/apollo-13-return-nasa-flight-directors.html
-
-**After Splashdown, Bring in the Navy Divers**\
-`As the spacecraft bobs in the Pacific Ocean, recovery personnel from NASA and the U.S. Navy are out at sea, tracking the capsule and other pieces of jettisoned hardware.`\
-https://www.nytimes.com/2026/04/10/science/artemis-ii-splashdown-recovery.html
-
-**World Leaders Push to Save Iran Talks Amid Israel’s Attacks in Lebanon**\
-`President Trump’s cease-fire with Iran appears at risk as Vice President JD Vance heads to Pakistan for discussions with Iranian officials.`\
-https://www.nytimes.com/2026/04/10/us/politics/iran-israel-lebanon-trump-talks.html
 
