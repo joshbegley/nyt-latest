@@ -1,3 +1,7 @@
+**World Leaders Push to Save Iran Talks Amid Israel’s Attacks in Lebanon**\
+`President Trump’s cease-fire with Iran appears at risk as Vice President JD Vance heads to Pakistan for discussions with Iranian officials.`\
+https://www.nytimes.com/2026/04/10/us/politics/iran-israel-lebanon-trump-talks.html
+
 **Reseña de ‘Malcolm el de en medio’: ahora la nostalgia reina en la TV**\
 `Dos décadas después, la serie recupera su esencia y demuestra que algunas dinámicas familiares —y frustraciones— nunca cambian.`\
 https://www.nytimes.com/es/2026/04/10/espanol/cultura/resena-malcolm-2026.html
@@ -18,7 +22,7 @@ https://www.nytimes.com/video/world/middleeast/100000010831941/what-the-cease-fi
 `An interagency dispute over the use of high-energy lasers near airports led the Federal Aviation Administration to temporarily close the airspace twice in Texas this year.`\
 https://www.nytimes.com/2026/04/10/us/politics/faa-military-anti-drone-lasers.html
 
-**Iran Unable to Find Mines in Strait of Hormuz, U.S. Says**\
+**Iran Unable to Find Mines It Planted in Strait of Hormuz, U.S. Says**\
 `The lost mines have prevented Iran from quickly complying with President Trump’s demand to allow more ships to pass through the waterway.`\
 https://www.nytimes.com/2026/04/10/us/politics/iran-mines-strait.html
 
@@ -46,8 +50,8 @@ https://www.nytimes.com/video/science/space/100000010834732/watch-live-artemis-i
 `Mr. Blair will “lead the charge from the outside,” the president said on social media. The move comes as Republicans are bracing for a potentially difficult November election.`\
 https://www.nytimes.com/2026/04/10/us/politics/james-blair-trump-midterms.html
 
-**Swalwell Faces Sex Assault Accusation as He Runs for California Governor**\
-`Eric Swalwell, a Democratic congressman, denied the account of a former staff member published by CNN and The San Francisco Chronicle. Nancy Pelosi called on him to withdraw from the governor’s race.`\
+**Swalwell Faces Sex Assault Accusations as He Runs for California Governor**\
+`Eric Swalwell, a Democratic congressman, denied the accounts published by CNN and The San Francisco Chronicle. Nancy Pelosi called on him to withdraw from the governor’s race.`\
 https://www.nytimes.com/2026/04/10/us/politics/eric-swalwell-allegations-california-governor.html
 
 **Trump-Ally Orban Trails in Polls Ahead of Hungary’s Election**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/04/10/science/nasa-artemis-ii-splashdown-retur
 **Workout Clothes That Offer Support, Sun Protection — and Even Probiotics**\
 `Five cross-functional activewear brands to put on your radar.`\
 https://www.nytimes.com/2026/04/10/t-magazine/workout-activewear-clothes.html
-
-**Democrats’ Fight for Black Support in 2028 Is Starting. It’s Wide Open.**\
-`Possible presidential candidates are already courting a crucial Democratic constituency.`\
-https://www.nytimes.com/2026/04/10/us/politics/black-voters-democrats-2028.html
 

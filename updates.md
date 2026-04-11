@@ -1,3 +1,15 @@
+**World Leaders Push to Save Iran Talks Amid Israel’s Attacks in Lebanon**\
+`President Trump’s cease-fire with Iran appears at risk as Vice President JD Vance heads to Pakistan for discussions with Iranian officials.`\
+https://www.nytimes.com/2026/04/10/us/politics/iran-israel-lebanon-trump-talks.html
+
+**Iran Unable to Find Mines It Planted in Strait of Hormuz, U.S. Says**\
+`The lost mines have prevented Iran from quickly complying with President Trump’s demand to allow more ships to pass through the waterway.`\
+https://www.nytimes.com/2026/04/10/us/politics/iran-mines-strait.html
+
+**Swalwell Faces Sex Assault Accusations as He Runs for California Governor**\
+`Eric Swalwell, a Democratic congressman, denied the accounts published by CNN and The San Francisco Chronicle. Nancy Pelosi called on him to withdraw from the governor’s race.`\
+https://www.nytimes.com/2026/04/10/us/politics/eric-swalwell-allegations-california-governor.html
+
 **Swalwell Faces Sex Assault Accusation as He Runs for California Governor**\
 `Eric Swalwell, a Democratic congressman, denied the account of a former staff member published by CNN and The San Francisco Chronicle. Nancy Pelosi called on him to withdraw from the governor’s race.`\
 https://www.nytimes.com/2026/04/10/us/politics/eric-swalwell-allegations-california-governor.html
