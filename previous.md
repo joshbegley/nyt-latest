@@ -70,8 +70,8 @@ https://www.nytimes.com/video/science/space/100000010834732/watch-live-artemis-i
 `Mr. Blair will “lead the charge from the outside,” the president said on social media. The move comes as Republicans are bracing for a potentially difficult November election.`\
 https://www.nytimes.com/2026/04/10/us/politics/james-blair-trump-midterms.html
 
-**Swalwell Faces Sex Assault Accusations as He Runs for California Governor**\
-`Eric Swalwell, a Democratic congressman, denied the accounts published by CNN and The San Francisco Chronicle. Nancy Pelosi called on him to withdraw from the governor’s race.`\
+**Swalwell Faces Sex Assault Accusations and Calls to Leave Governor’s Race**\
+`Eric Swalwell, a Democratic congressman, denied the accounts published by CNN and The San Francisco Chronicle. Nancy Pelosi was among those who said he should withdraw from the governor’s race.`\
 https://www.nytimes.com/2026/04/10/us/politics/eric-swalwell-allegations-california-governor.html
 
 **Trump-Ally Orban Trails in Polls Ahead of Hungary’s Election**\

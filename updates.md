@@ -1,3 +1,7 @@
+**Swalwell Faces Sex Assault Accusations and Calls to Leave Governor’s Race**\
+`Eric Swalwell, a Democratic congressman, denied the accounts published by CNN and The San Francisco Chronicle. Nancy Pelosi was among those who said he should withdraw from the governor’s race.`\
+https://www.nytimes.com/2026/04/10/us/politics/eric-swalwell-allegations-california-governor.html
+
 **Banks Are Warned About Anthropic’s New, Powerful A.I. Technology**\
 `In an unusual move, the Treasury secretary and the Federal Reserve chair gathered bank executives to caution about cyberthreats posed by artificial intelligence.`\
 https://www.nytimes.com/2026/04/10/business/anthropic-claude-mythos-preview-banks.html
