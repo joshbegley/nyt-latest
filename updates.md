@@ -1,3 +1,7 @@
+**Trump les da mala fama a los ancianos**\
+`El presidente de Estados Unidos, a sus casi 80 años, sigue compitiendo vigorosamente por el título de ser el peor mandatario de la historia del país.`\
+https://www.nytimes.com/es/2026/04/11/espanol/opinion/donald-trump-edad.html
+
 **How David Cross Gets Ready for a Night of ‘Dangerous’ Comedy**\
 `Mr. Cross, known for “Arrested Development” and “Mr. Show,” isn’t afraid to say what should not be said.`\
 https://www.nytimes.com/interactive/2026/04/11/nyregion/met-routine-david-cross.html
