@@ -1,3 +1,7 @@
+**How the Iran War Is Affecting Inflation**\
+`Ben Casselman, our chief economics correspondent, describes how the increase in prices as a result of the war in Iran is beginning to show up in the data, and what could come next.`\
+https://www.nytimes.com/video/business/100000010832795/how-the-iran-war-is-affecting-inflation.html
+
 **Bake Without Judgment, and Buy a Scale**\
 `Yewande Komolafe takes the Bake Time questionnaire.`\
 https://www.nytimes.com/2026/04/11/dining/bake-without-judgment-and-buy-a-scale.html
