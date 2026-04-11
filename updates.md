@@ -1,3 +1,7 @@
+**Artemis Astronauts Splash Down After Historic Lunar Flyby**\
+`The four astronauts aboard Artemis II splashed down at 8:07 p.m. Eastern time in the Pacific Ocean near San Diego on Friday, concluding their historic 10-day mission, the first to send humans to the moon in more than 50 years.`\
+https://www.nytimes.com/video/science/space/100000010830901/nasa-artemis-astronauts-splash-down.html
+
 **Gabbed, Gabbed, Gabbed**\
 `Kareem Ayas charms solvers with a chatty themeless puzzle.`\
 https://www.nytimes.com/2026/04/10/crosswords/daily-puzzle-2026-04-11.html
