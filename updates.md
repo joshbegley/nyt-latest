@@ -1,3 +1,11 @@
+**Britain Puts Chagos Islands Deal on Hold, Citing U.S. Opposition**\
+`The plan to give Mauritius formal control of the islands, home to a U.S.-British military base, was called “an act of great stupidity” by President Trump.`\
+https://www.nytimes.com/2026/04/11/world/europe/britain-chagos-islands-uk.html
+
+**Why Employers May Be Wary of Adding Crypto or Private Equity to 401(k)s**\
+`A proposed federal rule aims to clear the way for retirement savings plans to include alternative assets. But it may not be enough to protect employers from lawsuits.`\
+https://www.nytimes.com/2026/04/11/business/dealbook/crypto-private-equity-401ks.html
+
 **Trump Has Fallen Into a Familiar U.S. Foreign Policy Trap**\
 `American power can survive America’s recurring overreach.`\
 https://www.nytimes.com/2026/04/11/opinion/trump-iran-war-middle-east.html
