@@ -1,3 +1,7 @@
+**There are few public details about the high-level talks — not even the timing.**\
+``\
+https://www.nytimes.com/live/2026/04/11/world/iran-war-trump-talks-pakistan/vance-talks-details
+
 **Is It OK to Lie in Order to Feed Hungry Families?**\
 `I worry that taking extra food for the people our organization serves means that others won’t get what they need.`\
 https://www.nytimes.com/2026/04/11/magazine/lie-feed-hungry-families-ethics.html
