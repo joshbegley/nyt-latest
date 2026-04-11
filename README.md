@@ -1,3 +1,7 @@
+**Southwest Airlines Imposes Further Limits on Portable Chargers on Flights**\
+`Starting on April 20, the airline will limit passengers to one lithium battery-powered portable charger per person.`\
+https://www.nytimes.com/2026/04/11/travel/southwest-airlines-portable-chargers.html
+
 **Judges Fired After Blocking Deportations of Pro-Palestinian Students**\
 `The immigration judges’ abrupt dismissals marked the latest efforts by the Trump administration to reshape the country’s immigration courts.`\
 https://www.nytimes.com/2026/04/11/us/politics/immigration-judges-deportations-students.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/11/arts/design/pearl-fryar-dead.html
 **U.S.-Iran Talks Timeline: Key Moments Between Two Adversaries**\
 `From sanctions relief to nuclear talks, here’s a look at how negotiations between Washington and Tehran have gone over the decades.`\
 https://www.nytimes.com/2026/04/11/world/middleeast/us-iran-talks-timeline-key-moments.html
-
-**Man Stabs 3 With Machete at Grand Central and Is Fatally Shot by Officer**\
-`The victims, two older men and an older woman, were expected to survive after the subway platform attacks. The assailant was shot after he repeatedly refused to drop his weapon, the police said.`\
-https://www.nytimes.com/2026/04/11/nyregion/stabbing-nypd-shooting-grand-central.html
 
