@@ -1,3 +1,11 @@
+**La misión de Artemis II de la NASA regresa a la Tierra con éxito**\
+`La tripulación de la NASA amerizó en el océano Pacífico, cerca de San Diego, con lo que finaliza un viaje que llevó a los seres humanos al espacio sideral por primera vez desde 1972.`\
+https://www.nytimes.com/es/2026/04/10/espanol/ciencia-y-tecnologia/nasa-artemis-tierra.html
+
+**“It Was Survival Mode”: The Lunar Mission That Nearly Ended in Disaster**\
+`Fifty-six years ago, after a tense race to save the Apollo 13 crew, the astronauts finally splashed down safely. Here’s what flight directors who got them home remember.`\
+https://www.nytimes.com/interactive/2026/04/10/magazine/apollo-13-return-nasa-flight-directors.html
+
 **After Splashdown, Bring in the Navy Divers**\
 `As the spacecraft bobs in the Pacific Ocean, recovery personnel from NASA and the U.S. Navy are out at sea, tracking the capsule and other pieces of jettisoned hardware.`\
 https://www.nytimes.com/2026/04/10/science/artemis-ii-splashdown-recovery.html
