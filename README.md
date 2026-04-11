@@ -20,7 +20,7 @@ https://www.nytimes.com/2026/04/11/crosswords/strands-sidekick-770.html
 
 **There are few public details about the high-level talks — not even the timing.**\
 ``\
-https://www.nytimes.com/live/2026/04/11/world/iran-war-trump-talks-pakistan/there-are-few-public-details-about-the-high-level-talks-not-even-the-timing
+https://www.nytimes.com/live/2026/04/11/world/iran-war-trump-talks-pakistan/vance-talks-details
 
 **Many Iranians Are Glad the Fighting Has Paused. Some Hard-liners Aren’t.**\
 `The most fervent backers of the Islamic republic believe pausing the war for negotiations risks squandering what they see as a hard-won upper hand.`\
