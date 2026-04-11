@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/11/world/iran-war-trump-talks-pakistan/heres-the-latest
+
+**Iran Looks to Project Unity With Large Delegation to Peace Talks**\
+`At least 70 people are in the team that is scheduled to negotiate with the American side in Pakistan on Saturday.`\
+https://www.nytimes.com/2026/04/11/world/middleeast/iran-delegation-pakistan-us.html
+
 **Los líderes de Irán consideran que su posición en la guerra con EE. UU. ha mejorado**\
 `Para los dirigentes teocráticos iraníes, sobrevivir al ataque estadounidense-israelí significa una victoria. Pero es posible que su próxima crisis ya se esté gestando.`\
 https://www.nytimes.com/es/2026/04/11/espanol/mundo/los-lideres-de-iran-consideran-que-su-posicion-en-la-guerra-con-ee-uu-ha-mejorado.html
