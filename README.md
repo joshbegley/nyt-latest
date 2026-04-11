@@ -1,3 +1,7 @@
+**Gabbed, Gabbed, Gabbed**\
+`Kareem Ayas charms solvers with a chatty themeless puzzle.`\
+https://www.nytimes.com/2026/04/10/crosswords/daily-puzzle-2026-04-11.html
+
 **La misión de Artemis II de la NASA regresa a la Tierra con éxito**\
 `La tripulación de la NASA amerizó en el océano Pacífico, cerca de San Diego, con lo que finaliza un viaje que llevó a los seres humanos al espacio sideral por primera vez desde 1972.`\
 https://www.nytimes.com/es/2026/04/10/espanol/ciencia-y-tecnologia/nasa-artemis-tierra.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/10/us/politics/james-blair-trump-midterms.html
 **Swalwell Faces Sex Assault Accusations and Calls to Leave Governor’s Race**\
 `Eric Swalwell, a Democratic congressman, denied the accounts published by CNN and The San Francisco Chronicle. Nancy Pelosi was among those who said he should withdraw from the California governor’s race.`\
 https://www.nytimes.com/2026/04/10/us/politics/eric-swalwell-allegations-california-governor.html
-
-**Trump-Ally Orban Trails in Polls Ahead of Hungary’s Election**\
-`After 16 years in power, Prime Minister Viktor Orban party is trailing in most independent polls behind the opposition leader Peter Magyar as Sunday’s election draws nearer.`\
-https://www.nytimes.com/video/world/europe/100000010833976/orban-magyar-hungary-election.html
 
