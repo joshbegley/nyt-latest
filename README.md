@@ -22,7 +22,7 @@ https://www.nytimes.com/video/world/middleeast/100000010831941/what-the-cease-fi
 `An interagency dispute over the use of high-energy lasers near airports led the Federal Aviation Administration to temporarily close the airspace twice in Texas this year.`\
 https://www.nytimes.com/2026/04/10/us/politics/faa-military-anti-drone-lasers.html
 
-**Iran Unable to Find Mines in Strait of Hormuz, U.S. Says**\
+**Iran Unable to Find Mines It Planted in Strait of Hormuz, U.S. Says**\
 `The lost mines have prevented Iran from quickly complying with President Trump’s demand to allow more ships to pass through the waterway.`\
 https://www.nytimes.com/2026/04/10/us/politics/iran-mines-strait.html
 
