@@ -1,3 +1,11 @@
+**The Tester Called This ‘a Perfect Recipe’**\
+`Meet Ali Slagle’s new cottage cheese basil pasta.`\
+https://www.nytimes.com/2026/04/11/dining/the-tester-called-this-a-perfect-recipe.html
+
+**He Was ‘Trump Before Trump.’ Now He’s in Trouble.**\
+`An Orban defeat would have serious implications for the conservative movement worldwide.`\
+https://www.nytimes.com/2026/04/11/opinion/viktor-orban-donald-trump-hungary-right.html
+
 **Overlooked No More: Margaret Gipsy Moth, Fearless CNN Camera Operator**\
 `She covered conflicts across the globe, joking after she was injured in Sarajevo that she would be returning to find her missing teeth.`\
 https://www.nytimes.com/2026/04/11/obituaries/margaret-gipsy-moth-overlooked.html
