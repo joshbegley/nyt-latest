@@ -1,3 +1,27 @@
+**Is It OK to Lie in Order to Feed Hungry Families?**\
+`I worry that taking extra food for the people our organization serves means that others won’t get what they need.`\
+https://www.nytimes.com/2026/04/11/magazine/lie-feed-hungry-families-ethics.html
+
+**Connections Companion No. 1,036**\
+`Scroll down for hints and conversation about the puzzle for Sunday, April 12, 2026.`\
+https://www.nytimes.com/2026/04/11/crosswords/connections-companion-1036.html
+
+**Wordle Review No. 1,758**\
+`Scroll down for hints and conversation about the puzzle for Sunday, April 12, 2026.`\
+https://www.nytimes.com/2026/04/11/crosswords/wordle-review-1758.html
+
+**When the Moon Met Canada**\
+`Canada’s technical expertise in space robotics got the country a seat to the moon, and then its cultural identity took center stage on the Artemis II mission.`\
+https://www.nytimes.com/2026/04/11/world/canada/artemis-moon-jeremy-hansen-nasa-space-canada.html
+
+**Strands Sidekick No. 770**\
+`Scroll down for hints and conversation about the puzzle for Sunday, April 12, 2026.`\
+https://www.nytimes.com/2026/04/11/crosswords/strands-sidekick-770.html
+
+**There are few public details about the high-level talks — not even the timing.**\
+``\
+https://www.nytimes.com/live/2026/04/11/world/iran-war-trump-talks-pakistan/there-are-few-public-details-about-the-high-level-talks-not-even-the-timing
+
 **Many Iranians Are Glad the Fighting Has Paused. Some Hard-liners Aren’t.**\
 `The most fervent backers of the Islamic republic believe pausing the war for negotiations risks squandering what they see as a hard-won upper hand.`\
 https://www.nytimes.com/2026/04/11/world/middleeast/iranians-hardliners-ceasefire.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/04/11/your-money/college-scholarships-social-media.
 **Maybe You’ve Seen This Hat**\
 `It’s green and cream and basic all over.`\
 https://www.nytimes.com/2026/04/11/style/ball-caps-mens-fashion-trend.html
-
-**In Houston, One Person’s Trashed Car Becomes Everyone’s Treasure**\
-`Texans spend a lot of time in their cars. But once a year, they converge at the Art Car Parade to celebrate those who transform rundown vehicles into masterpieces on wheels.`\
-https://www.nytimes.com/2026/04/11/style/art-car-parade-houston.html
-
-**Movie Review: You, Me & Tuscany**\
-`The New York Times film critic Alissa Wilkinson reviews “You, Me & Tuscany.”`\
-https://www.nytimes.com/video/movies/100000010826287/you-me-tuscany-italy.html
-
-**Fees, Fees Fees! Do I Have to Pay All These Extras for Utilities?**\
-`Landlords often use third-party billing services that tack on extra costs. Can you just go around them?`\
-https://www.nytimes.com/2026/04/11/realestate/extra-fees-water-bills.html
-
-**Why Brides Are Saying Yes to the Off-the-Rack Dress**\
-`They offer shorter turnaround times, sometimes with immediate availability, and are typically priced lower than custom couture gowns.`\
-https://www.nytimes.com/2026/04/11/fashion/weddings/off-the-rack-wedding-dress.html
-
-**Your Finances (and Mind) Probably Need a Spring Cleaning Right Now**\
-`When the world feels uncertain, spend the season of renewal taking charge of what you can control: your budget.`\
-https://www.nytimes.com/2026/04/11/business/finances-spring-cleaning-spending-saving-tips.html
-
-**No Doors, No Roof, No Worries: A Tiny Racecar Sets Its Sights on the U.S.**\
-`The British company Caterham is making a push into the American market with the lone car in its catalog, the Seven, based on the original Lotus Seven.`\
-https://www.nytimes.com/2026/04/11/business/caterham-seven-racecar.html
 
