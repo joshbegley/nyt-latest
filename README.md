@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/11/world/iran-war-trump-talks-pakistan/heres-the-latest
+
+**Iran Looks to Project Unity With Large Delegation to Peace Talks**\
+`At least 70 people are in the team that is scheduled to negotiate with the American side in Pakistan on Saturday.`\
+https://www.nytimes.com/2026/04/11/world/middleeast/iran-delegation-pakistan-us.html
+
 **Los líderes de Irán consideran que su posición en la guerra con EE. UU. ha mejorado**\
 `Para los dirigentes teocráticos iraníes, sobrevivir al ataque estadounidense-israelí significa una victoria. Pero es posible que su próxima crisis ya se esté gestando.`\
 https://www.nytimes.com/es/2026/04/11/espanol/mundo/los-lideres-de-iran-consideran-que-su-posicion-en-la-guerra-con-ee-uu-ha-mejorado.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/10/science/artemis-ii-splashdown-recovery.html
 **World Leaders Push to Save Iran Talks Amid Israel’s Attacks in Lebanon**\
 `President Trump’s cease-fire with Iran appears at risk as Vice President JD Vance heads to Pakistan for discussions with Iranian officials.`\
 https://www.nytimes.com/2026/04/10/us/politics/iran-israel-lebanon-trump-talks.html
-
-**Reseña de ‘Malcolm el de en medio’: ahora la nostalgia reina en la TV**\
-`Dos décadas después, la serie recupera su esencia y demuestra que algunas dinámicas familiares —y frustraciones— nunca cambian.`\
-https://www.nytimes.com/es/2026/04/10/espanol/cultura/resena-malcolm-2026.html
-
-**Here’s the Story… of a House Named Brady**\
-`While only its exterior ever appeared in “The Brady Bunch,” stepping into the real-life Brady house now is like going back in time. Here’s a look.`\
-https://www.nytimes.com/2026/04/10/us/brady-bunch-house.html
 

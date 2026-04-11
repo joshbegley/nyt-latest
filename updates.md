@@ -1,3 +1,15 @@
+**Los líderes de Irán consideran que su posición en la guerra con EE. UU. ha mejorado**\
+`Para los dirigentes teocráticos iraníes, sobrevivir al ataque estadounidense-israelí significa una victoria. Pero es posible que su próxima crisis ya se esté gestando.`\
+https://www.nytimes.com/es/2026/04/11/espanol/mundo/los-lideres-de-iran-consideran-que-su-posicion-en-la-guerra-con-ee-uu-ha-mejorado.html
+
+**El taller de Herzog: cine, caos y 10.000 dólares**\
+`En las Azores, 50 artistas rodaron cortos con Werner Herzog en un curso intensivo de 11 días; una oportunidad única que implicaba pagar miles de dólares y adaptarse a lo imposible.`\
+https://www.nytimes.com/es/2026/04/11/espanol/cultura/werner-herzog-cine-taller.html
+
+**El caso Minerliz: 20 años sin respuestas**\
+`El crimen de una adolescente en el Bronx quedó sin resolver durante dos décadas, hasta que una maniobra ingeniosa de detectives produjo una pista decisiva.`\
+https://www.nytimes.com/es/2026/04/11/espanol/estados-unidos/adn-muestras-abandonadas-crimen-bronx-minerliz-soriano.html
+
 **Growing List of Orban Loyalists Defecting Before Critical Election**\
 `With Prime Minister Viktor Orban seeming vulnerable before Sunday’s vote, criticism is growing from within institutions his party once counted on for support.`\
 https://www.nytimes.com/2026/04/11/world/europe/orban-loyalists-defect.html
