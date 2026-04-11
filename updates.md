@@ -1,3 +1,11 @@
+**Many Iranians Are Glad the Fighting Has Paused. Some Hard-liners Aren’t.**\
+`The most fervent backers of the Islamic republic believe pausing the war for negotiations risks squandering what they see as a hard-won upper hand.`\
+https://www.nytimes.com/2026/04/11/world/middleeast/iranians-hardliners-ceasefire.html
+
+**Lena Dunham Is Still Trying to Figure Out Why People Hated Her So Much**\
+`The writer, actor and lightning rod is not done sharing yet.`\
+https://www.nytimes.com/2026/04/11/magazine/lena-dunham-interview.html
+
 **¿Puedo acabar con mi vida en tu casa?**\
 `Mi amiga tomó la decisión más importante posible cuando se alojaba conmigo. A mí me fue muy difícil aceptar lo que eso significaba.`\
 https://www.nytimes.com/es/2026/04/11/espanol/estilos-de-vida/modern-love-sindrome-fatiga-cronica-encefalomielitis-malgica.html
