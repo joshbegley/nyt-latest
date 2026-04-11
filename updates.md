@@ -1,3 +1,7 @@
+**Pearl Fryar, a Picasso of Plants, Dies at 86**\
+`A self-taught topiary artist, he discovered a talent for carving trees and shrubs into extraordinary shapes, creating a world-famous garden in a tiny South Carolina town.`\
+https://www.nytimes.com/2026/04/11/arts/design/pearl-fryar-dead.html
+
 **U.S.-Iran Talks Timeline: Key Moments Between Two Adversaries**\
 `From sanctions relief to nuclear talks, here’s a look at how negotiations between Washington and Tehran have gone over the decades.`\
 https://www.nytimes.com/2026/04/11/world/middleeast/us-iran-talks-timeline-key-moments.html
