@@ -1,3 +1,7 @@
+**Monthly Report**\
+`What can we learn from April, a month of contradictions that never cleanly resolve themselves?`\
+https://www.nytimes.com/2026/04/11/briefing/monthly-report.html
+
 **There are few public details about the high-level talks — not even the timing.**\
 ``\
 https://www.nytimes.com/live/2026/04/11/world/iran-war-trump-talks-pakistan/vance-talks-details
