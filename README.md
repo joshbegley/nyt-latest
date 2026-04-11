@@ -1,3 +1,7 @@
+**Monthly Report**\
+`What can we learn from April, a month of contradictions that never cleanly resolve themselves?`\
+https://www.nytimes.com/2026/04/11/briefing/monthly-report.html
+
 **Is It OK to Lie in Order to Feed Hungry Families?**\
 `I worry that taking extra food for the people our organization serves means that others won’t get what they need.`\
 https://www.nytimes.com/2026/04/11/magazine/lie-feed-hungry-families-ethics.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/11/realestate/tsunami-shelters-earthquakes.html
 **Looking for a College Scholarship on Social Media Sites? Buyer, Beware.**\
 `Students say they trust their peers’ advice more than financial advisers’, a new survey found. But experts say students need to do their own research.`\
 https://www.nytimes.com/2026/04/11/your-money/college-scholarships-social-media.html
-
-**Maybe You’ve Seen This Hat**\
-`It’s green and cream and basic all over.`\
-https://www.nytimes.com/2026/04/11/style/ball-caps-mens-fashion-trend.html
 
