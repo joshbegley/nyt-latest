@@ -1,3 +1,7 @@
+**Banks Are Warned About Anthropic’s New, Powerful A.I. Technology**\
+`In an unusual move, the Treasury secretary and the Federal Reserve chair gathered bank executives to caution about cyberthreats posed by artificial intelligence.`\
+https://www.nytimes.com/2026/04/10/business/anthropic-claude-mythos-preview-banks.html
+
 **La misión de Artemis II de la NASA regresa a la Tierra con éxito**\
 `La tripulación de la NASA amerizó en el océano Pacífico, cerca de San Diego, con lo que finaliza un viaje que llevó a los seres humanos al espacio sideral por primera vez desde 1972.`\
 https://www.nytimes.com/es/2026/04/10/espanol/ciencia-y-tecnologia/nasa-artemis-tierra.html
