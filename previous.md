@@ -1,3 +1,19 @@
+**Eight Arrested in Connection With Deadly California Fireworks Explosion**\
+`The explosion last July in Esparto, Calif., killed seven people. Five of the eight arrested, including a former local police officer, have been charged with murder.`\
+https://www.nytimes.com/2026/04/10/us/fireworks-explosion-california-murder-charges.html
+
+**Man Accused of Warehouse Arson Invoked Mangione, Court Files Say**\
+`The suspect in a fire at a paper company facility in California complained about pay and raged against capitalism in videos posted to social media as he lit the blaze, prosecutors say.`\
+https://www.nytimes.com/2026/04/10/us/kimberly-clark-warehouse-fire-suspect-mangione.html
+
+**‘It Was Survival Mode’: Inside the Dramatic Rescue of Apollo 13**\
+`Fifty-six years later, we asked two flight directors what they were thinking when they finally got the astronauts home.`\
+https://www.nytimes.com/interactive/2026/04/10/magazine/apollo-13-return-nasa-flight-directors.html
+
+**After splashdown, bring in the Navy divers.**\
+``\
+https://www.nytimes.com/live/2026/04/10/science/nasa-artemis-ii-splashdown-return/after-splashdown-bring-in-the-navy-divers
+
 **World Leaders Push to Save Iran Talks Amid Israel’s Attacks in Lebanon**\
 `President Trump’s cease-fire with Iran appears at risk as Vice President JD Vance heads to Pakistan for discussions with Iranian officials.`\
 https://www.nytimes.com/2026/04/10/us/politics/iran-israel-lebanon-trump-talks.html
@@ -34,8 +50,8 @@ https://www.nytimes.com/video/us/politics/100000010835247/kamala-harris-2028-dem
 ``\
 https://www.nytimes.com/live/2026/04/10/science/nasa-artemis-ii-splashdown-return/what-will-happen-during-the-final-hours-of-the-artemis-ii-mission
 
-**University of Ottawa in Lockdown Amid ‘Violent Incident’**\
-`The authorities urged students to stay away from the downtown campus, to hide quietly if they were on the premises, and to defend themselves if needed.`\
+**University of Ottawa Lockdown Lifted After a Man Is Arrested**\
+`The university locked down the campus for several hours on Friday after reports that a man was acting suspiciously nearby. Police would not say if he was armed.`\
 https://www.nytimes.com/2026/04/10/world/canada/ottawa-university-campus-lockdown-canada.html
 
 **New Evidence Further Implicates U.S. Missiles in Strikes That Killed 21 Civilians in Iran**\
@@ -61,20 +77,4 @@ https://www.nytimes.com/video/world/europe/100000010833976/orban-magyar-hungary-
 **Eric Adams, Citizen of the World, Becomes an Actual Citizen of Albania**\
 `Mr. Adams, the former mayor of New York City, has expressed fondness for Albania, visiting the country in his last weeks in office.`\
 https://www.nytimes.com/2026/04/10/nyregion/eric-adams-albania-citizen.html
-
-**Trump Is Racing to Redefine ‘America First’ in a Time of War**\
-`Washington has been debating the thrust of Mr. Trump’s foreign policy for more than a decade, with the only consensus being that “America First” means whatever the president says it does.`\
-https://www.nytimes.com/2026/04/10/world/europe/trump-redefine-foreign-policy.html
-
-**Artemis II Astronauts Are Set to Arrive Home**\
-`Also, Iran adds a new condition as JD Vance heads to peace talks. Here’s the latest at the end of Friday.`\
-https://www.nytimes.com/2026/04/10/briefing/artemis-ii-astronauts-splashdown-jd-vance-iran.html
-
-**Here’s what the astronauts did for 10 days in space.**\
-``\
-https://www.nytimes.com/live/2026/04/10/science/nasa-artemis-ii-splashdown-return/heres-what-the-astronauts-did-for-10-days-in-space
-
-**Workout Clothes That Offer Support, Sun Protection — and Even Probiotics**\
-`Five cross-functional activewear brands to put on your radar.`\
-https://www.nytimes.com/2026/04/10/t-magazine/workout-activewear-clothes.html
 

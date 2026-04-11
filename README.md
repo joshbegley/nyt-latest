@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/04/10/us/fireworks-explosion-california-murder-char
 `The suspect in a fire at a paper company facility in California complained about pay and raged against capitalism in videos posted to social media as he lit the blaze, prosecutors say.`\
 https://www.nytimes.com/2026/04/10/us/kimberly-clark-warehouse-fire-suspect-mangione.html
 
-**‘It Was Survival Mode’: Inside the Dramatic Rescue of Apollo 13**\
+**“It Was Survival Mode”: The Lunar Mission That Nearly Ended in Disaster**\
 `Fifty-six years later, we asked two flight directors what they were thinking when they finally got the astronauts home.`\
 https://www.nytimes.com/interactive/2026/04/10/magazine/apollo-13-return-nasa-flight-directors.html
 
