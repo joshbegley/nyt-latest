@@ -1,3 +1,7 @@
+**Police Fatally Shoot Man After Stabbings at Grand Central Subway Station**\
+`A man with a large knife was shot by police after stabbing three people at Grand Central subway station on Saturday.`\
+https://www.nytimes.com/video/us/100000010835997/police-fatally-shoot-man-with-machete-after-stabbings-at-grand-central-subway-station.html
+
 **Someone Has to Be Happy. Why Not Lauren Sánchez Bezos?**\
 `As half of an unfathomably powerful couple, Mrs. Sánchez Bezos seems to have influenced the uber-rich to stop apologizing, and start enjoying themselves.`\
 https://www.nytimes.com/2026/04/11/business/lauren-sanchez-bezos-jeff-bezos.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/11/dining/the-tester-called-this-a-perfect-recip
 **Overlooked No More: Margaret Gipsy Moth, Fearless CNN Camera Operator**\
 `She covered conflicts across the globe, joking after she was injured in Sarajevo that she would be returning to find her missing teeth.`\
 https://www.nytimes.com/2026/04/11/obituaries/margaret-gipsy-moth-overlooked.html
-
-**How the Iran War Is Affecting Inflation**\
-`Ben Casselman, our chief economics correspondent, describes how the increase in prices as a result of the war in Iran is beginning to show up in the data, and what could come next.`\
-https://www.nytimes.com/video/business/100000010832795/how-the-iran-war-is-affecting-inflation.html
 
