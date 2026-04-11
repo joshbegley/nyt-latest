@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/04/11/arts/design/pearl-fryar-dead.html
 https://www.nytimes.com/2026/04/11/world/middleeast/us-iran-talks-timeline-key-moments.html
 
 **Man Stabs 3 With Machete at Grand Central and Is Fatally Shot by Officer**\
-`The stabbing victims, two men and a woman, were expected to survive after the attacks on a northbound subway platform, officials said.`\
+`The stabbing victims, two men and a woman, were expected to survive after the attacks on two subway platforms, officials said.`\
 https://www.nytimes.com/2026/04/11/nyregion/stabbing-nypd-shooting-grand-central.html
 
 **The Tester Called This ‘a Perfect Recipe’**\

@@ -1,3 +1,7 @@
+**Man Stabs 3 With Machete at Grand Central and Is Fatally Shot by Officer**\
+`The stabbing victims, two men and a woman, were expected to survive after the attacks on a northbound subway platform, officials said.`\
+https://www.nytimes.com/2026/04/11/nyregion/stabbing-nypd-shooting-grand-central.html
+
 **Pentagon Asks Court to Keep Its Restrictions on Journalists**\
 `The Defense Department wants to keep in place a policy requiring escorts for journalists in the building while it appeals a court decision that tossed out broader restrictions on the media.`\
 https://www.nytimes.com/2026/04/11/business/media/pentagon-escorts-reporter-restrictions.html
