@@ -1,3 +1,11 @@
+**Bake Without Judgment, and Buy a Scale**\
+`Yewande Komolafe takes the Bake Time questionnaire.`\
+https://www.nytimes.com/2026/04/11/dining/bake-without-judgment-and-buy-a-scale.html
+
+**U.S. Intelligence Shows China Taking a More Active Role in Iran War**\
+`China may have shipped missiles to Iran, and Beijing is allowing some companies to sell Tehran supplies that can be used in military production, American officials said.`\
+https://www.nytimes.com/2026/04/11/us/politics/china-iran-war-missiles-supplies.html
+
 **He Was ‘Trump Before Trump.’ Now He’s in Trouble.**\
 `Orban defeat would have serious implications for the conservative movement worldwide.`\
 https://www.nytimes.com/2026/04/11/opinion/viktor-orban-donald-trump-hungary-right.html
