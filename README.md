@@ -10,9 +10,9 @@ https://www.nytimes.com/2026/04/10/us/kimberly-clark-warehouse-fire-suspect-mang
 `Fifty-six years later, we asked two flight directors what they were thinking when they finally got the astronauts home.`\
 https://www.nytimes.com/interactive/2026/04/10/magazine/apollo-13-return-nasa-flight-directors.html
 
-**After splashdown, bring in the Navy divers.**\
-``\
-https://www.nytimes.com/2026/04/10/science/after-splashdown-bring-in-the-navy-divers.html
+**After Splashdown, Bring in the Navy Divers**\
+`As the spacecraft bobs in the Pacific Ocean, recovery personnel from NASA and the U.S. Navy are out at sea, tracking the capsule and other pieces of jettisoned hardware.`\
+https://www.nytimes.com/2026/04/10/science/artemis-ii-splashdown-recovery.html
 
 **World Leaders Push to Save Iran Talks Amid Israel’s Attacks in Lebanon**\
 `President Trump’s cease-fire with Iran appears at risk as Vice President JD Vance heads to Pakistan for discussions with Iranian officials.`\
