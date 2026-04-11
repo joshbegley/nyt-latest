@@ -1,3 +1,7 @@
+**“It Was Survival Mode”: The Lunar Mission That Nearly Ended in Disaster**\
+`Fifty-six years later, we asked two flight directors what they were thinking when they finally got the astronauts home.`\
+https://www.nytimes.com/interactive/2026/04/10/magazine/apollo-13-return-nasa-flight-directors.html
+
 **Eight Arrested in Connection With Deadly California Fireworks Explosion**\
 `The explosion last July in Esparto, Calif., killed seven people. Five of the eight arrested, including a former local police officer, have been charged with murder.`\
 https://www.nytimes.com/2026/04/10/us/fireworks-explosion-california-murder-charges.html
