@@ -1,4 +1,8 @@
 **Man Stabs 3 With Machete at Grand Central and Is Fatally Shot by Officer**\
+`The stabbing victims, two older men and an older woman, were expected to survive after the attacks on two subway platforms. The police responded after a passenger flagged down detectives.`\
+https://www.nytimes.com/2026/04/11/nyregion/stabbing-nypd-shooting-grand-central.html
+
+**Man Stabs 3 With Machete at Grand Central and Is Fatally Shot by Officer**\
 `The stabbing victims, two men and a woman, were expected to survive after the attacks on two subway platforms. The police responded after a passenger flagged down detectives.`\
 https://www.nytimes.com/2026/04/11/nyregion/stabbing-nypd-shooting-grand-central.html
 
