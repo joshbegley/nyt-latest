@@ -1,3 +1,11 @@
+**Judges Fired After Blocking Deportations of Pro-Palestinian Students**\
+`The immigration judges’ abrupt dismissals marked the latest efforts by the Trump administration to reshape the country’s immigration courts.`\
+https://www.nytimes.com/2026/04/11/us/politics/immigration-judges-deportations-students.html
+
+**Initial Thoughts**\
+`Lance Enfinger and John Kugelman team up for an extended challenge that’s full of abbreviations.`\
+https://www.nytimes.com/2026/04/11/crosswords/daily-puzzle-2026-04-12.html
+
 **Police Fatally Shoot Man After Stabbings at Grand Central Subway Station**\
 `A man with a large knife was shot by police after stabbing three people at Grand Central subway station on Saturday.`\
 https://www.nytimes.com/video/us/100000010835997/police-fatally-shoot-man-with-machete-after-stabbings-at-grand-central-subway-station.html

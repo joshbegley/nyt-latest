@@ -1,3 +1,11 @@
+**Judges Fired After Blocking Deportations of Pro-Palestinian Students**\
+`The immigration judges’ abrupt dismissals marked the latest efforts by the Trump administration to reshape the country’s immigration courts.`\
+https://www.nytimes.com/2026/04/11/us/politics/immigration-judges-deportations-students.html
+
+**Initial Thoughts**\
+`Lance Enfinger and John Kugelman team up for an extended challenge that’s full of abbreviations.`\
+https://www.nytimes.com/2026/04/11/crosswords/daily-puzzle-2026-04-12.html
+
 **Police Fatally Shoot Man After Stabbings at Grand Central Subway Station**\
 `A man with a large knife was shot by police after stabbing three people at Grand Central subway station on Saturday.`\
 https://www.nytimes.com/video/us/100000010835997/police-fatally-shoot-man-with-machete-after-stabbings-at-grand-central-subway-station.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/11/world/middleeast/us-iran-talks-timeline-key-m
 **Man Stabs 3 With Machete at Grand Central and Is Fatally Shot by Officer**\
 `The victims, two older men and an older woman, were expected to survive after the subway platform attacks. The assailant was shot after he repeatedly refused to drop his weapon, the police said.`\
 https://www.nytimes.com/2026/04/11/nyregion/stabbing-nypd-shooting-grand-central.html
-
-**The Tester Called This ‘a Perfect Recipe’**\
-`Meet Ali Slagle’s new cottage cheese basil pasta.`\
-https://www.nytimes.com/2026/04/11/dining/the-tester-called-this-a-perfect-recipe.html
-
-**Overlooked No More: Margaret Gipsy Moth, Fearless CNN Camera Operator**\
-`She covered conflicts across the globe, joking after she was injured in Sarajevo that she would be returning to find her missing teeth.`\
-https://www.nytimes.com/2026/04/11/obituaries/margaret-gipsy-moth-overlooked.html
 
