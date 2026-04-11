@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/04/11/business/dealbook/crypto-private-equity-401ks
 `American power can survive America’s recurring overreach.`\
 https://www.nytimes.com/2026/04/11/opinion/trump-iran-war-middle-east.html
 
-**First There Was Viktor Orban. Then Donald Trump. Now Both Are Flailing.**\
+**He Was ‘Trump Before Trump.’ Now He’s in Trouble.**\
 `Orban defeat would have serious implications for the conservative movement worldwide.`\
 https://www.nytimes.com/2026/04/11/opinion/viktor-orban-donald-trump-hungary-right.html
 

@@ -1,3 +1,7 @@
+**He Was ‘Trump Before Trump.’ Now He’s in Trouble.**\
+`Orban defeat would have serious implications for the conservative movement worldwide.`\
+https://www.nytimes.com/2026/04/11/opinion/viktor-orban-donald-trump-hungary-right.html
+
 **Britain Puts Chagos Islands Deal on Hold, Citing U.S. Opposition**\
 `The plan to give Mauritius formal control of the islands, home to a U.S.-British military base, was called “an act of great stupidity” by President Trump.`\
 https://www.nytimes.com/2026/04/11/world/europe/britain-chagos-islands-uk.html
