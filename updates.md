@@ -1,3 +1,7 @@
+**Swalwell Faces Sex Assault Accusation as He Runs for California Governor**\
+`Eric Swalwell, a Democratic congressman, denied the account of a former staff member published by CNN and The San Francisco Chronicle. Nancy Pelosi called on him to withdraw from the governor’s race.`\
+https://www.nytimes.com/2026/04/10/us/politics/eric-swalwell-allegations-california-governor.html
+
 **Reseña de ‘Malcolm el de en medio’: ahora la nostalgia reina en la TV**\
 `Dos décadas después, la serie recupera su esencia y demuestra que algunas dinámicas familiares —y frustraciones— nunca cambian.`\
 https://www.nytimes.com/es/2026/04/10/espanol/cultura/resena-malcolm-2026.html

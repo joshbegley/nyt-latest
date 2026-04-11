@@ -47,7 +47,7 @@ https://www.nytimes.com/video/science/space/100000010834732/watch-live-artemis-i
 https://www.nytimes.com/2026/04/10/us/politics/james-blair-trump-midterms.html
 
 **Swalwell Faces Sex Assault Accusation as He Runs for California Governor**\
-`Eric Swalwell, a Democratic congressman, denied the account of a former staff member published by The San Francisco Chronicle. Supporters began to withdraw their endorsements, and several campaign officials have quit.`\
+`Eric Swalwell, a Democratic congressman, denied the account of a former staff member published by CNN and The San Francisco Chronicle. Nancy Pelosi called on him to withdraw from the governor’s race.`\
 https://www.nytimes.com/2026/04/10/us/politics/eric-swalwell-allegations-california-governor.html
 
 **Trump-Ally Orban Trails in Polls Ahead of Hungary’s Election**\
