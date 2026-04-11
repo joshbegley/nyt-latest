@@ -1,3 +1,19 @@
+**Appeals Court Seeks Clarity on Scope of Trump’s Ballroom Project**\
+`A three-judge panel allowed construction on the ballroom to proceed until April 17, but asked a lower court to untangle the details of the president’s plans.`\
+https://www.nytimes.com/2026/04/11/us/politics/appeals-court-trump-ballroom.html
+
+**David Sklansky, ‘Mathematician’ of High-Stakes Poker, Dies at 78**\
+`As “the first nerd to enter poker,” he helped transform a game long ruled by intuition into one based on game theory, probability and logic.`\
+https://www.nytimes.com/2026/04/11/us/david-sklansky-dead.html
+
+**The Athletic Investigates Conduct of Reporter Photographed With N.F.L. Coach**\
+`Photographs of the reporter, Dianna Russini, and Mike Vrabel of the New England Patriots appeared in The New York Post.`\
+https://www.nytimes.com/2026/04/11/business/media/the-athletic-reporter-dianna-russini-nfl-coach-mike-vrabel.html
+
+**Investigation Opened Into Sexual Assault Allegation Against Swalwell**\
+`The Manhattan district attorney’s office is examining a claim that Representative Eric Swalwell, a candidate for governor in California, assaulted a woman in New York City in 2024.`\
+https://www.nytimes.com/2026/04/11/us/politics/eric-swalwell-california-governor-sexual-misconduct.html
+
 **Man Stabs 3 With Machete at Grand Central and Is Fatally Shot by Officer**\
 `The stabbing victims, two older men and an older woman, were expected to survive after the attacks on two subway platforms. The police responded after a passenger flagged down detectives.`\
 https://www.nytimes.com/2026/04/11/nyregion/stabbing-nypd-shooting-grand-central.html
