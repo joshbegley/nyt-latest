@@ -1,3 +1,7 @@
+**Officer Shoots Attacker After Stabbings at Grand Central Subway Station**\
+`At least two people were taken to Bellevue Hospital in critical condition after the episode on a train platform, officials said. The victims were expected to survive.`\
+https://www.nytimes.com/2026/04/11/nyregion/stabbing-nypd-shooting-grand-central.html
+
 **Pearl Fryar, a Picasso of Plants, Dies at 86**\
 `A self-taught topiary artist, he discovered a talent for carving trees and shrubs into extraordinary shapes, creating a world-famous garden in a tiny South Carolina town.`\
 https://www.nytimes.com/2026/04/11/arts/design/pearl-fryar-dead.html
