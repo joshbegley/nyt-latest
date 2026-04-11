@@ -1,3 +1,11 @@
+**Britain Puts Chagos Islands Deal on Hold, Citing U.S. Opposition**\
+`The plan to give Mauritius formal control of the islands, home to a U.S.-British military base, was called “an act of great stupidity” by President Trump.`\
+https://www.nytimes.com/2026/04/11/world/europe/britain-chagos-islands-uk.html
+
+**Why Employers May Be Wary of Adding Crypto or Private Equity to 401(k)s**\
+`A proposed federal rule aims to clear the way for retirement savings plans to include alternative assets. But it may not be enough to protect employers from lawsuits.`\
+https://www.nytimes.com/2026/04/11/business/dealbook/crypto-private-equity-401ks.html
+
 **Trump Has Fallen Into a Familiar U.S. Foreign Policy Trap**\
 `American power can survive America’s recurring overreach.`\
 https://www.nytimes.com/2026/04/11/opinion/trump-iran-war-middle-east.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/11/world/middleeast/iranians-hardliners-ceasefir
 **Lena Dunham Is Still Trying to Figure Out Why People Hated Her So Much**\
 `The writer, actor and lightning rod is not done sharing yet.`\
 https://www.nytimes.com/2026/04/11/magazine/lena-dunham-interview.html
-
-**¿Puedo acabar con mi vida en tu casa?**\
-`Mi amiga tomó la decisión más importante posible cuando se alojaba conmigo. A mí me fue muy difícil aceptar lo que eso significaba.`\
-https://www.nytimes.com/es/2026/04/11/espanol/estilos-de-vida/modern-love-sindrome-fatiga-cronica-encefalomielitis-malgica.html
-
-**8 Weeks of Failed D.H.S. Shutdown Negotiations in 1 Chart**\
-`The shutdown that began with Democrats and Republicans disagreeing over ICE restrictions has continued for nearly two months.`\
-https://www.nytimes.com/interactive/2026/04/11/us/politics/dhs-shutdown-timeline.html
 
