@@ -1,3 +1,7 @@
+**Southwest Airlines Imposes Further Limits on Portable Chargers on Flights**\
+`Starting on April 20, the airline will limit passengers to one lithium battery-powered portable charger per person.`\
+https://www.nytimes.com/2026/04/11/travel/southwest-airlines-portable-chargers.html
+
 **Judges Fired After Blocking Deportations of Pro-Palestinian Students**\
 `The immigration judges’ abrupt dismissals marked the latest efforts by the Trump administration to reshape the country’s immigration courts.`\
 https://www.nytimes.com/2026/04/11/us/politics/immigration-judges-deportations-students.html
