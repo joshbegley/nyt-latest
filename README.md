@@ -6,8 +6,8 @@ https://www.nytimes.com/2026/04/11/arts/design/pearl-fryar-dead.html
 `From sanctions relief to nuclear talks, here’s a look at how negotiations between Washington and Tehran have gone over the decades.`\
 https://www.nytimes.com/2026/04/11/world/middleeast/us-iran-talks-timeline-key-moments.html
 
-**Officer Shoots Attacker After a Stabbing at Grand Central Subway Station**\
-`At least two people were taken to Bellevue Hospital in critical condition after the episode on a subway platform, the Fire Department said.`\
+**Officer Shoots Attacker After Stabbings at Grand Central Subway Station**\
+`At least two people were taken to Bellevue Hospital in critical condition after the episode on a train platform, officials said. The victims were expected to survive.`\
 https://www.nytimes.com/2026/04/11/nyregion/stabbing-nypd-shooting-grand-central.html
 
 **The Tester Called This ‘a Perfect Recipe’**\
