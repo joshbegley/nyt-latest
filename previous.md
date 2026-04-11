@@ -1,3 +1,11 @@
+**3 Men Are Arrested in $1 Million Lego Theft in California**\
+`Sheriff’s deputies spotted the men fleeing in two box trucks on Wednesday. Deputies searching the cargo discovered a large amount of Lego products, the authorities said.`\
+https://www.nytimes.com/2026/04/11/us/california-lego-heist-arrest.html
+
+**Forest Hills Homeowners Win $150,000 in Battle Over Concert Noise**\
+`The Queens residents have long complained that concerts at nearby Forest Hills Stadium are degrading their quality of life. Last month, they won a small settlement from the city in a related dispute.`\
+https://www.nytimes.com/2026/04/11/nyregion/forest-hills-concert-noise-settlement.html
+
 **4 Takeaways From the First Big Gathering of Potential 2028 Democratic Candidates**\
 `The National Action Network convention showcased similarities and some differences in a wide open field of possible contenders.`\
 https://www.nytimes.com/2026/04/11/us/politics/democrats-president-2028-sharpton-convention-takeaways.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/business/100000010832795/how-the-iran-war-is-affec
 **Bake Without Judgment, and Buy a Scale**\
 `Yewande Komolafe takes the Bake Time questionnaire.`\
 https://www.nytimes.com/2026/04/11/dining/bake-without-judgment-and-buy-a-scale.html
-
-**U.S. Intelligence Shows China Taking a More Active Role in Iran War**\
-`China may have shipped missiles to Iran, and Beijing is allowing some companies to sell Tehran supplies that can be used in military production, American officials said.`\
-https://www.nytimes.com/2026/04/11/us/politics/china-iran-war-missiles-supplies.html
-
-**Britain Puts Chagos Islands Deal on Hold, Citing U.S. Opposition**\
-`The plan to give Mauritius formal control of the islands, home to a U.S.-British military base, was called “an act of great stupidity” by President Trump.`\
-https://www.nytimes.com/2026/04/11/world/europe/britain-chagos-islands-uk.html
 

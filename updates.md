@@ -1,3 +1,11 @@
+**3 Men Are Arrested in $1 Million Lego Theft in California**\
+`Sheriff’s deputies spotted the men fleeing in two box trucks on Wednesday. Deputies searching the cargo discovered a large amount of Lego products, the authorities said.`\
+https://www.nytimes.com/2026/04/11/us/california-lego-heist-arrest.html
+
+**Forest Hills Homeowners Win $150,000 in Battle Over Concert Noise**\
+`The Queens residents have long complained that concerts at nearby Forest Hills Stadium are degrading their quality of life. Last month, they won a small settlement from the city in a related dispute.`\
+https://www.nytimes.com/2026/04/11/nyregion/forest-hills-concert-noise-settlement.html
+
 **Ballroom? Bunker? Court Allows Work for Now on Trump Project.**\
 `A three-judge panel allowed construction on the ballroom to proceed until April 17, but asked a lower court to untangle the details of the president’s plans.`\
 https://www.nytimes.com/2026/04/11/us/politics/appeals-court-trump-ballroom.html
