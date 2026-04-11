@@ -1,3 +1,11 @@
+**The Postal Service Is in Trouble. Here’s How It Could Affect Your Mail.**\
+`Despite numerous attempts to reform the Postal Service, the agency’s business model has not changed significantly since 1970. Officials are proposing to decrease service and increase prices.`\
+https://www.nytimes.com/2026/04/11/us/politics/postal-service-finances-mail.html
+
+**Postal Service, Already Under Pressure, Now Faces Trump’s Mail Ballot Order**\
+`President Trump’s executive order, which has been challenged as unconstitutional, would limit the Postal Service to sending only the ballots of voters deemed eligible.`\
+https://www.nytimes.com/2026/04/11/us/politics/postal-service-budget-mail-ballots.html
+
 **Artemis II nos mostró nuevas imágenes de la Luna**\
 `Durante 10 días, los astronautas de la misión de sobrevuelo lunar de la NASA han logrado algo casi imposible.`\
 https://www.nytimes.com/es/2026/04/11/espanol/ciencia-y-tecnologia/artemis-nasa-luna-fotos-videos.html
