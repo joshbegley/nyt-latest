@@ -1,3 +1,7 @@
+**Man Stabs 3 With Machete at Grand Central and Is Fatally Shot by Officer**\
+`The stabbing victims, two men and a woman, were expected to survive after the attacks on two subway platforms. The police responded after a passenger flagged down detectives.`\
+https://www.nytimes.com/2026/04/11/nyregion/stabbing-nypd-shooting-grand-central.html
+
 **The Postal Service Is in Trouble. Here’s How It Could Affect Your Mail.**\
 `Despite numerous attempts to reform the Postal Service, the agency’s business model has not changed significantly since 1970. Officials are proposing to decrease service and increase prices.`\
 https://www.nytimes.com/2026/04/11/us/politics/postal-service-finances-mail.html
