@@ -1,3 +1,7 @@
+**The Tester Called This ‘a Perfect Recipe’**\
+`Meet Ali Slagle’s new cottage cheese basil pasta.`\
+https://www.nytimes.com/2026/04/11/dining/the-tester-called-this-a-perfect-recipe.html
+
 **Overlooked No More: Margaret Gipsy Moth, Fearless CNN Camera Operator**\
 `She covered conflicts across the globe, joking after she was injured in Sarajevo that she would be returning to find her missing teeth.`\
 https://www.nytimes.com/2026/04/11/obituaries/margaret-gipsy-moth-overlooked.html
@@ -27,7 +31,7 @@ https://www.nytimes.com/2026/04/11/business/dealbook/crypto-private-equity-401ks
 https://www.nytimes.com/2026/04/11/opinion/trump-iran-war-middle-east.html
 
 **He Was ‘Trump Before Trump.’ Now He’s in Trouble.**\
-`Orban defeat would have serious implications for the conservative movement worldwide.`\
+`An Orban defeat would have serious implications for the conservative movement worldwide.`\
 https://www.nytimes.com/2026/04/11/opinion/viktor-orban-donald-trump-hungary-right.html
 
 **Trump’s War of Choice Will Become a War of Regret**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/11/crosswords/connections-companion-1036.html
 **Wordle Review No. 1,758**\
 `Scroll down for hints and conversation about the puzzle for Sunday, April 12, 2026.`\
 https://www.nytimes.com/2026/04/11/crosswords/wordle-review-1758.html
-
-**When the Moon Met Canada**\
-`Canada’s technical expertise in space robotics got the country a seat to the moon, and then its cultural identity took center stage on the Artemis II mission.`\
-https://www.nytimes.com/2026/04/11/world/canada/artemis-moon-jeremy-hansen-nasa-space-canada.html
 
