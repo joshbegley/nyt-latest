@@ -1,3 +1,7 @@
+**Police Fatally Shoot Man After Stabbings at Grand Central Subway Station**\
+`A man with a large knife was shot by police after stabbing three people at Grand Central subway station on Saturday.`\
+https://www.nytimes.com/video/us/100000010835997/police-fatally-shoot-man-with-machete-after-stabbings-at-grand-central-subway-station.html
+
 **Someone Has to Be Happy. Why Not Lauren Sánchez Bezos?**\
 `As half of an unfathomably powerful couple, Mrs. Sánchez Bezos seems to have influenced the uber-rich to stop apologizing, and start enjoying themselves.`\
 https://www.nytimes.com/2026/04/11/business/lauren-sanchez-bezos-jeff-bezos.html
