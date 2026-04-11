@@ -1,3 +1,7 @@
+**Artemis II Crew Reunites With Families and Fellow NASA Astronauts**\
+`The four astronauts made an emotional return to Houston a day after splashing down in the Pacific Ocean at the end of their 10-day lunar journey.`\
+https://www.nytimes.com/2026/04/11/science/nasa-artemis-moon-astronauts-houston.html
+
 **Southwest Airlines Imposes Further Limits on Portable Chargers on Flights**\
 `Starting on April 20, the airline will limit passengers to one lithium battery-powered portable charger per person.`\
 https://www.nytimes.com/2026/04/11/travel/southwest-airlines-portable-chargers.html
@@ -27,7 +31,7 @@ https://www.nytimes.com/2026/04/11/us/california-lego-heist-arrest.html
 https://www.nytimes.com/2026/04/11/nyregion/forest-hills-concert-noise-settlement.html
 
 **4 Takeaways From the First Big Gathering of Potential 2028 Democratic Candidates**\
-`The National Action Network convention showcased similarities and some differences in a wide open field of possible contenders.`\
+`The National Action Network convention showcased similarities and some differences in a wide-open field of possible contenders.`\
 https://www.nytimes.com/2026/04/11/us/politics/democrats-president-2028-sharpton-convention-takeaways.html
 
 **Navy Warships Cross Hormuz Strait for Mine-Clearing Work, U.S. Says**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/11/business/media/pentagon-escorts-reporter-rest
 **Pearl Fryar, a Picasso of Plants, Dies at 86**\
 `A self-taught topiary artist, he discovered a talent for carving trees and shrubs into extraordinary shapes, creating a world-famous garden in a tiny South Carolina town.`\
 https://www.nytimes.com/2026/04/11/arts/design/pearl-fryar-dead.html
-
-**U.S.-Iran Talks Timeline: Key Moments Between Two Adversaries**\
-`From sanctions relief to nuclear talks, here’s a look at how negotiations between Washington and Tehran have gone over the decades.`\
-https://www.nytimes.com/2026/04/11/world/middleeast/us-iran-talks-timeline-key-moments.html
 
