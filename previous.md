@@ -1,3 +1,7 @@
+**Pentagon Asks Court to Keep Its Restrictions on Journalists**\
+`The Defense Department wants to keep in place a policy requiring escorts for journalists in the building while it appeals a court decision that tossed out broader restrictions on the media.`\
+https://www.nytimes.com/2026/04/11/business/media/pentagon-escorts-reporter-restrictions.html
+
 **Pearl Fryar, a Picasso of Plants, Dies at 86**\
 `A self-taught topiary artist, he discovered a talent for carving trees and shrubs into extraordinary shapes, creating a world-famous garden in a tiny South Carolina town.`\
 https://www.nytimes.com/2026/04/11/arts/design/pearl-fryar-dead.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/11/opinion/iran-war-literature-ethics.html
 **Trump’s War of Choice Will Become a War of Regret**\
 `America may be losing more than just the conflict in Iran.`\
 https://www.nytimes.com/video/opinion/100000010832222/trumps-war-of-choice-will-become-a-war-of-regret.html
-
-**Monthly Report**\
-`What can we learn from April, a month of contradictions that never cleanly resolve themselves?`\
-https://www.nytimes.com/2026/04/11/briefing/monthly-report.html
 

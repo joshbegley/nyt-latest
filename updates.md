@@ -1,3 +1,7 @@
+**Pentagon Asks Court to Keep Its Restrictions on Journalists**\
+`The Defense Department wants to keep in place a policy requiring escorts for journalists in the building while it appeals a court decision that tossed out broader restrictions on the media.`\
+https://www.nytimes.com/2026/04/11/business/media/pentagon-escorts-reporter-restrictions.html
+
 **Officer Shoots Attacker After Stabbings at Grand Central Subway Station**\
 `At least two people were taken to Bellevue Hospital in critical condition after the episode on a train platform, officials said. The victims were expected to survive.`\
 https://www.nytimes.com/2026/04/11/nyregion/stabbing-nypd-shooting-grand-central.html
