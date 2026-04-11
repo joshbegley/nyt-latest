@@ -1,3 +1,7 @@
+**Someone Has to Be Happy. Why Not Lauren Sánchez Bezos?**\
+`As half of an unfathomably powerful couple, Mrs. Sánchez Bezos seems to have influenced the uber-rich to stop apologizing, and start enjoying themselves.`\
+https://www.nytimes.com/2026/04/11/business/lauren-sanchez-bezos-jeff-bezos.html
+
 **3 Men Are Arrested in $1 Million Lego Theft in California**\
 `Sheriff’s deputies spotted the men fleeing in two box trucks on Wednesday. Deputies searching the cargo discovered a large amount of Lego products, the authorities said.`\
 https://www.nytimes.com/2026/04/11/us/california-lego-heist-arrest.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/11/obituaries/margaret-gipsy-moth-overlooked.htm
 **How the Iran War Is Affecting Inflation**\
 `Ben Casselman, our chief economics correspondent, describes how the increase in prices as a result of the war in Iran is beginning to show up in the data, and what could come next.`\
 https://www.nytimes.com/video/business/100000010832795/how-the-iran-war-is-affecting-inflation.html
-
-**Bake Without Judgment, and Buy a Scale**\
-`Yewande Komolafe takes the Bake Time questionnaire.`\
-https://www.nytimes.com/2026/04/11/dining/bake-without-judgment-and-buy-a-scale.html
 
