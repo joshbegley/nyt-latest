@@ -1,3 +1,11 @@
+**Artemis II nos mostró nuevas imágenes de la Luna**\
+`Durante 10 días, los astronautas de la misión de sobrevuelo lunar de la NASA han logrado algo casi imposible.`\
+https://www.nytimes.com/es/2026/04/11/espanol/ciencia-y-tecnologia/artemis-nasa-luna-fotos-videos.html
+
+**U.S. Moves to Deport Son of Prominent Figure in Iranian Revolution**\
+`Federal agents arrested a man whose mother served as a spokeswoman for the Islamist embassy captors during the hostage crisis that began in 1979.`\
+https://www.nytimes.com/2026/04/11/us/politics/deportation-iranian-revolution.html
+
 **Pentagon Asks Court to Keep Its Restrictions on Journalists**\
 `The Defense Department wants to keep in place a policy requiring escorts for journalists in the building while it appeals a court decision that tossed out broader restrictions on the media.`\
 https://www.nytimes.com/2026/04/11/business/media/pentagon-escorts-reporter-restrictions.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/11/opinion/mary-todd-lincoln-feminist-history.ht
 **Iran Is Losing the Cyberwar, Not the Real War**\
 `Tehran’s efforts have been underwhelming, but its conventional military successes have been significant enough that it may not matter.`\
 https://www.nytimes.com/2026/04/11/opinion/iran-war-cyber-warfare-attacks.html
-
-**When Technology Outstrips Morality in War**\
-`Readers respond to a guest essay about the U.S. and Israeli missteps in the conflict in Iran.`\
-https://www.nytimes.com/2026/04/11/opinion/iran-war-literature-ethics.html
-
-**Trump’s War of Choice Will Become a War of Regret**\
-`America may be losing more than just the conflict in Iran.`\
-https://www.nytimes.com/video/opinion/100000010832222/trumps-war-of-choice-will-become-a-war-of-regret.html
 
