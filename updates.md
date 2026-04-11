@@ -1,3 +1,31 @@
+**Growing List of Orban Loyalists Defecting Before Critical Election**\
+`With Prime Minister Viktor Orban seeming vulnerable before Sunday’s vote, criticism is growing from within institutions his party once counted on for support.`\
+https://www.nytimes.com/2026/04/11/world/europe/orban-loyalists-defect.html
+
+**Iran Has Been Consistent in War. Will It Be Consistent in Peace Talks?**\
+`While President Trump’s war aims have changed by the moment, Iran has stuck to firm demands. The question is whether it will compromise in peace negotiations.`\
+https://www.nytimes.com/2026/04/11/world/middleeast/iran-peace-talks-demands.html
+
+**China’s Most Famous Modern Writer: From Fiery Rebel to Cute Communist Mascot**\
+`The Chinese Communist Party has turned Lu Xun, a Mao-era hero who excoriated the establishment, into a bland, Disney-style character.`\
+https://www.nytimes.com/2026/04/11/world/asia/lu-xun-chinese-writer-communist-mascot.html
+
+**In New War With Israel, Hezbollah Defies Notion That It Was Crippled**\
+`The Iran-backed Lebanese militant group surprised many with the intensity of its attacks on Israel in the current conflict.`\
+https://www.nytimes.com/2026/04/11/world/middleeast/hezbollah-israel.html
+
+**Fallout of War Piles Economic Pain Onto Europe’s Political Stress**\
+`Europe is finding itself on the outs with Russia, China and the U.S., in what’s amounting to its very own “Mean Girls” moment.`\
+https://www.nytimes.com/2026/04/11/business/europe-economy-trump-trade-iran.html
+
+**Editors’ Note: April 11, 2026**\
+`The following Editors’ Note and corrections appeared in print on Saturday, April 11, 2026.`\
+https://www.nytimes.com/2026/04/11/pageoneplus/editors-note-april-11-2026.html
+
+**Quote of the Day: Generator Of Economy Is Feeling The Pressure**\
+`Quotation of the Day for Saturday, April 11, 2026.`\
+https://www.nytimes.com/2026/04/10/pageoneplus/quote-of-the-day-generator-of-economy-is-feeling-the-pressure.html
+
 **Artemis Astronauts Splash Down After Historic Lunar Flyby**\
 `The four astronauts aboard Artemis II splashed down at 8:07 p.m. Eastern time in the Pacific Ocean near San Diego on Friday, concluding their historic 10-day mission, the first to send humans to the moon in more than 50 years.`\
 https://www.nytimes.com/video/science/space/100000010830901/nasa-artemis-astronauts-splash-down.html

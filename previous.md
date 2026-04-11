@@ -1,3 +1,31 @@
+**Growing List of Orban Loyalists Defecting Before Critical Election**\
+`With Prime Minister Viktor Orban seeming vulnerable before Sunday’s vote, criticism is growing from within institutions his party once counted on for support.`\
+https://www.nytimes.com/2026/04/11/world/europe/orban-loyalists-defect.html
+
+**Iran Has Been Consistent in War. Will It Be Consistent in Peace Talks?**\
+`While President Trump’s war aims have changed by the moment, Iran has stuck to firm demands. The question is whether it will compromise in peace negotiations.`\
+https://www.nytimes.com/2026/04/11/world/middleeast/iran-peace-talks-demands.html
+
+**China’s Most Famous Modern Writer: From Fiery Rebel to Cute Communist Mascot**\
+`The Chinese Communist Party has turned Lu Xun, a Mao-era hero who excoriated the establishment, into a bland, Disney-style character.`\
+https://www.nytimes.com/2026/04/11/world/asia/lu-xun-chinese-writer-communist-mascot.html
+
+**In New War With Israel, Hezbollah Defies Notion That It Was Crippled**\
+`The Iran-backed Lebanese militant group surprised many with the intensity of its attacks on Israel in the current conflict.`\
+https://www.nytimes.com/2026/04/11/world/middleeast/hezbollah-israel.html
+
+**Fallout of War Piles Economic Pain Onto Europe’s Political Stress**\
+`Europe is finding itself on the outs with Russia, China and the U.S., in what’s amounting to its very own “Mean Girls” moment.`\
+https://www.nytimes.com/2026/04/11/business/europe-economy-trump-trade-iran.html
+
+**Editors’ Note: April 11, 2026**\
+`The following Editors’ Note and corrections appeared in print on Saturday, April 11, 2026.`\
+https://www.nytimes.com/2026/04/11/pageoneplus/editors-note-april-11-2026.html
+
+**Quote of the Day: Generator Of Economy Is Feeling The Pressure**\
+`Quotation of the Day for Saturday, April 11, 2026.`\
+https://www.nytimes.com/2026/04/10/pageoneplus/quote-of-the-day-generator-of-economy-is-feeling-the-pressure.html
+
 **Artemis Astronauts Splash Down After Historic Lunar Flyby**\
 `The four astronauts aboard Artemis II splashed down at 8:07 p.m. Eastern time in the Pacific Ocean near San Diego on Friday, concluding their historic 10-day mission, the first to send humans to the moon in more than 50 years.`\
 https://www.nytimes.com/video/science/space/100000010830901/nasa-artemis-astronauts-splash-down.html
@@ -49,32 +77,4 @@ https://www.nytimes.com/video/world/middleeast/100000010831941/what-the-cease-fi
 **F.A.A. Says Military Can Use Anti-Drone Lasers in U.S. Airspace**\
 `An interagency dispute over the use of high-energy lasers near airports led the Federal Aviation Administration to temporarily close the airspace twice in Texas this year.`\
 https://www.nytimes.com/2026/04/10/us/politics/faa-military-anti-drone-lasers.html
-
-**Iran Unable to Find Mines It Planted in Strait of Hormuz, U.S. Says**\
-`The lost mines have prevented Iran from quickly complying with President Trump’s demand to allow more ships to pass through the waterway.`\
-https://www.nytimes.com/2026/04/10/us/politics/iran-mines-strait.html
-
-**Harris Signals Potential Third Presidential Run In 2028**\
-`Former Vice President Kamala Harris signaled a potential third run for the presidency in 2028 at a gathering of the National Action Network on Friday. More than a half-dozen other potential Democratic candidates also appeared at the event.`\
-https://www.nytimes.com/video/us/politics/100000010835247/kamala-harris-2028-democrats.html
-
-**What will happen during the final hours of the Artemis II mission?**\
-``\
-https://www.nytimes.com/live/2026/04/10/science/nasa-artemis-ii-splashdown-return/what-will-happen-during-the-final-hours-of-the-artemis-ii-mission
-
-**University of Ottawa Lockdown Lifted After a Man Is Arrested**\
-`The university locked down the campus for just under two hours on Friday after reports that a man was acting suspiciously nearby. Police would not say if he was armed.`\
-https://www.nytimes.com/2026/04/10/world/canada/ottawa-university-campus-lockdown-canada.html
-
-**New Evidence Further Implicates U.S. Missiles in Strikes That Killed 21 Civilians in Iran**\
-`Additional images and video build on an earlier analysis, which the Pentagon has disputed, showing Precision Strike Missiles, or PrSMs, hit a sports hall and residential areas in the Iranian city of Lamerd.`\
-https://www.nytimes.com/2026/04/10/world/middleeast/iran-us-missle-strike-civilians-lamerd.html
-
-**Watch Live: Artemis II Crew Returns to Earth**\
-`The Artemis II crew returns to Earth after a historic lunar flyby.`\
-https://www.nytimes.com/video/science/space/100000010834732/watch-live-artemis-ii-splashdown.html
-
-**Trump Moves Top Aide James Blair to Political Operation Ahead of Midterms**\
-`Mr. Blair will “lead the charge from the outside,” the president said on social media. The move comes as Republicans are bracing for a potentially difficult November election.`\
-https://www.nytimes.com/2026/04/10/us/politics/james-blair-trump-midterms.html
 
