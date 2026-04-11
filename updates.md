@@ -1,3 +1,11 @@
+**Second Venezuelan Doctor Detained in South Texas by Immigration Agents**\
+`An ER doctor was detained Saturday, just days after a family physician had been detained. Both were traveling when immigration agents took them into custody.`\
+https://www.nytimes.com/2026/04/11/us/second-venezuelan-doctor-detained-in-south-texas-by-immigration-agents.html
+
+**U.S. and Iran Hold Peace Talks in Pakistan**\
+`At a historic meeting in Islamabad, Vice President JD Vance and senior Iranian officials were seeking to make a fragile truce permanent.`\
+https://www.nytimes.com/video/world/middleeast/100000010835967/iran-us-negotiations-war.html
+
 **Artemis II Crew Reunites With Families and Fellow NASA Astronauts**\
 `The four astronauts made an emotional return to Houston a day after splashing down in the Pacific Ocean at the end of their 10-day lunar journey.`\
 https://www.nytimes.com/2026/04/11/science/nasa-artemis-moon-astronauts-houston.html
