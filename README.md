@@ -1,3 +1,11 @@
+**Many Iranians Are Glad the Fighting Has Paused. Some Hard-liners Aren’t.**\
+`The most fervent backers of the Islamic republic believe pausing the war for negotiations risks squandering what they see as a hard-won upper hand.`\
+https://www.nytimes.com/2026/04/11/world/middleeast/iranians-hardliners-ceasefire.html
+
+**Lena Dunham Is Still Trying to Figure Out Why People Hated Her So Much**\
+`The writer, actor and lightning rod is not done sharing yet.`\
+https://www.nytimes.com/2026/04/11/magazine/lena-dunham-interview.html
+
 **¿Puedo acabar con mi vida en tu casa?**\
 `Mi amiga tomó la decisión más importante posible cuando se alojaba conmigo. A mí me fue muy difícil aceptar lo que eso significaba.`\
 https://www.nytimes.com/es/2026/04/11/espanol/estilos-de-vida/modern-love-sindrome-fatiga-cronica-encefalomielitis-malgica.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/11/business/finances-spring-cleaning-spending-sa
 **No Doors, No Roof, No Worries: A Tiny Racecar Sets Its Sights on the U.S.**\
 `The British company Caterham is making a push into the American market with the lone car in its catalog, the Seven, based on the original Lotus Seven.`\
 https://www.nytimes.com/2026/04/11/business/caterham-seven-racecar.html
-
-**Exercise Used to Bore Bob Odenkirk. Now He’s Doing Stunts.**\
-`The “Better Call Saul” actor stars in “Normal,” his third action film. He finds it freeing: “You let all that rage go in a pretend fight.”`\
-https://www.nytimes.com/2026/04/11/movies/bob-odenkirk-normal.html
-
-**Factories That Do More Than Make Watches; They Sell Stories**\
-`Watchmakers are investing in new manufacturing sites to signal expertise and court clients.`\
-https://www.nytimes.com/2026/04/11/fashion/watch-factories-sell-stories.html
 
