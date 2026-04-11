@@ -1,3 +1,27 @@
+**How David Cross Gets Ready for a Night of ‘Dangerous’ Comedy**\
+`Mr. Cross, known for “Arrested Development” and “Mr. Show,” isn’t afraid to say what should not be said.`\
+https://www.nytimes.com/interactive/2026/04/11/nyregion/met-routine-david-cross.html
+
+**How David Cross Gets Ready for a Night of ‘Dangerous’ Comedy**\
+`Mr. Cross, known for “Arrested Development” and “Mr. Show,” isn’t afraid to say what should not be said.`\
+https://www.nytimes.com/2026/04/11/nyregion/routine-david-cross-nyc.html
+
+**Para derrocar al patriarcado, estas mujeres tienen sexo con vegetales**\
+`El superventas polaco “Hexes of the Deadwood Forest” es como un sueño febril posporno de realismo mágico de Europa del Este mezclado con “El placer de amar” pero con plantas.`\
+https://www.nytimes.com/es/2026/04/11/espanol/cultura/resena-szpila-sexo-vegetales.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/11/crosswords/spelling-bee-forum.html
+
+**In a Restaurant’s Name, a Message of Grief and Hope for Palestinians**\
+`Hinds Hall near Columbia University is a place to find Palestinian cuisine and to remember a 5-year-old killed in Gaza.`\
+https://www.nytimes.com/2026/04/11/nyregion/hinds-hall-restaurant-columbia.html
+
+**Mamdani, Leaning Into ‘Sewer Socialism,’ Gets His Hands Dirty**\
+`The mayor has embraced the decades-old concept of “sewer socialism,” hoping to improve New Yorkers’ lives by focusing on public services.`\
+https://www.nytimes.com/2026/04/11/nyregion/mamdani-sewer-socialism.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/11/world/iran-war-trump-talks-pakistan/heres-the-latest
