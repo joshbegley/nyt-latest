@@ -1,3 +1,11 @@
+**Artemis II Crew Reunites With Families and Fellow NASA Astronauts**\
+`The four astronauts made an emotional return to Houston a day after splashing down in the Pacific Ocean at the end of their 10-day lunar journey.`\
+https://www.nytimes.com/2026/04/11/science/nasa-artemis-moon-astronauts-houston.html
+
+**4 Takeaways From the First Big Gathering of Potential 2028 Democratic Candidates**\
+`The National Action Network convention showcased similarities and some differences in a wide-open field of possible contenders.`\
+https://www.nytimes.com/2026/04/11/us/politics/democrats-president-2028-sharpton-convention-takeaways.html
+
 **Southwest Airlines Imposes Further Limits on Portable Chargers on Flights**\
 `Starting on April 20, the airline will limit passengers to one lithium battery-powered portable charger per person.`\
 https://www.nytimes.com/2026/04/11/travel/southwest-airlines-portable-chargers.html
