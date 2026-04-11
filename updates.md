@@ -1,3 +1,39 @@
+**Trump’s Iran War Is a Familiar Middle Eastern Folly**\
+`American power can survive America’s recurring overreach.`\
+https://www.nytimes.com/2026/04/11/opinion/trump-iran-war-middle-east.html
+
+**First There Was Viktor Orban. Then Donald Trump. Now Both Are Flailing.**\
+`Orban defeat would have serious implications for the conservative movement worldwide.`\
+https://www.nytimes.com/2026/04/11/opinion/viktor-orban-donald-trump-hungary-right.html
+
+**Trump’s War of Choice Will Become a War of Regret**\
+`America may be losing more than just the conflict in Iran.`\
+https://www.nytimes.com/2026/04/11/opinion/us-iran-war-trump-american-credibility.html
+
+**Who, Exactly, Still Likes Ye?**\
+`Ye’s rage against the machine has seemingly come to epitomize badass for many young people.`\
+https://www.nytimes.com/2026/04/11/opinion/ye-kanye-west-wireless-canceled-racism.html
+
+**The Sphinx Thinks It Stinks**\
+`Melania creates another mystery with a surprise statement.`\
+https://www.nytimes.com/2026/04/11/opinion/melania-trump-epstein-statement.html
+
+**The Truth About Mary Todd Lincoln**\
+`Retelling the story of a woman today requires a motivation to correct the historical record.`\
+https://www.nytimes.com/2026/04/11/opinion/mary-todd-lincoln-feminist-history.html
+
+**Iran Is Losing the Cyberwar, Not the Real War**\
+`Tehran’s efforts have been underwhelming, but its conventional military successes have been significant enough that it may not matter.`\
+https://www.nytimes.com/2026/04/11/opinion/iran-war-cyber-warfare-attacks.html
+
+**When Technology Outstrips Morality in War**\
+`Readers respond to a guest essay about the U.S. and Israeli missteps in the conflict in Iran.`\
+https://www.nytimes.com/2026/04/11/opinion/iran-war-literature-ethics.html
+
+**Trump’s War of Choice Will Become a War of Regret**\
+`America may be losing more than just the conflict in Iran.`\
+https://www.nytimes.com/video/opinion/100000010832222/trumps-war-of-choice-will-become-a-war-of-regret.html
+
 **Monthly Report**\
 `What can we learn from April, a month of contradictions that never cleanly resolve themselves?`\
 https://www.nytimes.com/2026/04/11/briefing/monthly-report.html
