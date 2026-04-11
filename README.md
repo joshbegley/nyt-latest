@@ -30,7 +30,7 @@ https://www.nytimes.com/es/2026/04/10/espanol/cultura/resena-malcolm-2026.html
 `While only its exterior ever appeared in “The Brady Bunch,” stepping into the real-life Brady house now is like going back in time. Here’s a look.`\
 https://www.nytimes.com/2026/04/10/us/brady-bunch-house.html
 
-**Banks Warned About Anthropic’s New, Powerful A.I. Technology**\
+**Banks Are Warned About Anthropic’s New, Powerful A.I. Technology**\
 `In an unusual move, the Treasury secretary and the Federal Reserve chair gathered bank executives to caution about cyberthreats posed by artificial intelligence.`\
 https://www.nytimes.com/2026/04/10/business/anthropic-claude-mythos-preview-banks.html
 
