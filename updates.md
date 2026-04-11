@@ -1,3 +1,7 @@
+**Trump Has Fallen Into a Familiar U.S. Foreign Policy Trap**\
+`American power can survive America’s recurring overreach.`\
+https://www.nytimes.com/2026/04/11/opinion/trump-iran-war-middle-east.html
+
 **Trump’s Iran War Is a Familiar Middle Eastern Folly**\
 `American power can survive America’s recurring overreach.`\
 https://www.nytimes.com/2026/04/11/opinion/trump-iran-war-middle-east.html
