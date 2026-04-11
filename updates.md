@@ -1,3 +1,7 @@
+**Overlooked No More: Margaret Gipsy Moth, Fearless CNN Camera Operator**\
+`She covered conflicts across the globe, joking after she was injured in Sarajevo that she would be returning to find her missing teeth.`\
+https://www.nytimes.com/2026/04/11/obituaries/margaret-gipsy-moth-overlooked.html
+
 **How the Iran War Is Affecting Inflation**\
 `Ben Casselman, our chief economics correspondent, describes how the increase in prices as a result of the war in Iran is beginning to show up in the data, and what could come next.`\
 https://www.nytimes.com/video/business/100000010832795/how-the-iran-war-is-affecting-inflation.html
