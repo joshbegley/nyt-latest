@@ -1,3 +1,7 @@
+**Man Stabs 3 With Machete at Grand Central and Is Fatally Shot by Officer**\
+`The victims, two older men and an older woman, were expected to survive after the subway platform attacks. The assailant was shot after he repeatedly refused to drop his weapon, the police said.`\
+https://www.nytimes.com/2026/04/11/nyregion/stabbing-nypd-shooting-grand-central.html
+
 **4 Takeaways From the First Big Gathering of Potential 2028 Democratic Candidates**\
 `The National Action Network convention showcased similarities and some differences in a wide open field of possible contenders.`\
 https://www.nytimes.com/2026/04/11/us/politics/democrats-president-2028-sharpton-convention-takeaways.html

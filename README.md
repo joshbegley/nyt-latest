@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/04/11/us/politics/democrats-president-2028-sharpton
 `American destroyers began work to make the strait safe for commercial traffic, U.S. officials said, as negotiators discussed conditions for an extended cease-fire. Iran denied that any warships had passed through.`\
 https://www.nytimes.com/2026/04/11/us/politics/us-navy-warships-strait-of-hormuz-iran-mines.html
 
-**Appeals Court Seeks Clarity on Scope of Trump’s Ballroom Project**\
+**Ballroom? Bunker? Court Allows Work for Now on Trump Project.**\
 `A three-judge panel allowed construction on the ballroom to proceed until April 17, but asked a lower court to untangle the details of the president’s plans.`\
 https://www.nytimes.com/2026/04/11/us/politics/appeals-court-trump-ballroom.html
 
