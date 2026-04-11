@@ -1,3 +1,7 @@
+**Artemis Astronauts Splash Down After Historic Lunar Flyby**\
+`The four astronauts aboard Artemis II splashed down at 8:07 p.m. Eastern time in the Pacific Ocean near San Diego on Friday, concluding their historic 10-day mission, the first to send humans to the moon in more than 50 years.`\
+https://www.nytimes.com/video/science/space/100000010830901/nasa-artemis-astronauts-splash-down.html
+
 **Gabbed, Gabbed, Gabbed**\
 `Kareem Ayas charms solvers with a chatty themeless puzzle.`\
 https://www.nytimes.com/2026/04/10/crosswords/daily-puzzle-2026-04-11.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/science/space/100000010834732/watch-live-artemis-i
 **Trump Moves Top Aide James Blair to Political Operation Ahead of Midterms**\
 `Mr. Blair will “lead the charge from the outside,” the president said on social media. The move comes as Republicans are bracing for a potentially difficult November election.`\
 https://www.nytimes.com/2026/04/10/us/politics/james-blair-trump-midterms.html
-
-**Swalwell Faces Sex Assault Accusations and Calls to Leave Governor’s Race**\
-`Eric Swalwell, a Democratic congressman, denied the accounts published by CNN and The San Francisco Chronicle. Nancy Pelosi was among those who said he should withdraw from the California governor’s race.`\
-https://www.nytimes.com/2026/04/10/us/politics/eric-swalwell-allegations-california-governor.html
 
