@@ -1,3 +1,7 @@
+**Ballroom? Bunker? Court Allows Work for Now on Trump Project.**\
+`A three-judge panel allowed construction on the ballroom to proceed until April 17, but asked a lower court to untangle the details of the president’s plans.`\
+https://www.nytimes.com/2026/04/11/us/politics/appeals-court-trump-ballroom.html
+
 **Man Stabs 3 With Machete at Grand Central and Is Fatally Shot by Officer**\
 `The victims, two older men and an older woman, were expected to survive after the subway platform attacks. The assailant was shot after he repeatedly refused to drop his weapon, the police said.`\
 https://www.nytimes.com/2026/04/11/nyregion/stabbing-nypd-shooting-grand-central.html
