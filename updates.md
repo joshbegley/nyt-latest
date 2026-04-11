@@ -1,3 +1,27 @@
+**Is It OK to Lie in Order to Feed Hungry Families?**\
+`I worry that taking extra food for the people our organization serves means that others won’t get what they need.`\
+https://www.nytimes.com/2026/04/11/magazine/lie-feed-hungry-families-ethics.html
+
+**Connections Companion No. 1,036**\
+`Scroll down for hints and conversation about the puzzle for Sunday, April 12, 2026.`\
+https://www.nytimes.com/2026/04/11/crosswords/connections-companion-1036.html
+
+**Wordle Review No. 1,758**\
+`Scroll down for hints and conversation about the puzzle for Sunday, April 12, 2026.`\
+https://www.nytimes.com/2026/04/11/crosswords/wordle-review-1758.html
+
+**When the Moon Met Canada**\
+`Canada’s technical expertise in space robotics got the country a seat to the moon, and then its cultural identity took center stage on the Artemis II mission.`\
+https://www.nytimes.com/2026/04/11/world/canada/artemis-moon-jeremy-hansen-nasa-space-canada.html
+
+**Strands Sidekick No. 770**\
+`Scroll down for hints and conversation about the puzzle for Sunday, April 12, 2026.`\
+https://www.nytimes.com/2026/04/11/crosswords/strands-sidekick-770.html
+
+**There are few public details about the high-level talks — not even the timing.**\
+``\
+https://www.nytimes.com/live/2026/04/11/world/iran-war-trump-talks-pakistan/there-are-few-public-details-about-the-high-level-talks-not-even-the-timing
+
 **Many Iranians Are Glad the Fighting Has Paused. Some Hard-liners Aren’t.**\
 `The most fervent backers of the Islamic republic believe pausing the war for negotiations risks squandering what they see as a hard-won upper hand.`\
 https://www.nytimes.com/2026/04/11/world/middleeast/iranians-hardliners-ceasefire.html
