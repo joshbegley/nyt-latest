@@ -1,3 +1,7 @@
+**Trump les da mala fama a los ancianos**\
+`El presidente de Estados Unidos, a sus casi 80 años, sigue compitiendo vigorosamente por el título de ser el peor mandatario de la historia del país.`\
+https://www.nytimes.com/es/2026/04/11/espanol/opinion/donald-trump-edad.html
+
 **How David Cross Gets Ready for a Night of ‘Dangerous’ Comedy**\
 `Mr. Cross, known for “Arrested Development” and “Mr. Show,” isn’t afraid to say what should not be said.`\
 https://www.nytimes.com/interactive/2026/04/11/nyregion/met-routine-david-cross.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/10/pageoneplus/quote-of-the-day-generator-of-eco
 **Artemis Astronauts Splash Down After Historic Lunar Flyby**\
 `The four astronauts aboard Artemis II splashed down at 8:07 p.m. Eastern time in the Pacific Ocean near San Diego on Friday, concluding their historic 10-day mission, the first to send humans to the moon in more than 50 years.`\
 https://www.nytimes.com/video/science/space/100000010830901/nasa-artemis-astronauts-splash-down.html
-
-**Gabbed, Gabbed, Gabbed**\
-`Kareem Ayas charms solvers with a chatty themeless puzzle.`\
-https://www.nytimes.com/2026/04/10/crosswords/daily-puzzle-2026-04-11.html
 
