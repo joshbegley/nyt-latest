@@ -1,3 +1,11 @@
+**Bake Without Judgment, and Buy a Scale**\
+`Yewande Komolafe takes the Bake Time questionnaire.`\
+https://www.nytimes.com/2026/04/11/dining/bake-without-judgment-and-buy-a-scale.html
+
+**U.S. Intelligence Shows China Taking a More Active Role in Iran War**\
+`China may have shipped missiles to Iran, and Beijing is allowing some companies to sell Tehran supplies that can be used in military production, American officials said.`\
+https://www.nytimes.com/2026/04/11/us/politics/china-iran-war-missiles-supplies.html
+
 **Britain Puts Chagos Islands Deal on Hold, Citing U.S. Opposition**\
 `The plan to give Mauritius formal control of the islands, home to a U.S.-British military base, was called “an act of great stupidity” by President Trump.`\
 https://www.nytimes.com/2026/04/11/world/europe/britain-chagos-islands-uk.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/11/crosswords/strands-sidekick-770.html
 **There are few public details about the high-level talks — not even the timing.**\
 ``\
 https://www.nytimes.com/live/2026/04/11/world/iran-war-trump-talks-pakistan/vance-talks-details
-
-**Many Iranians Are Glad the Fighting Has Paused. Some Hard-liners Aren’t.**\
-`The most fervent backers of the Islamic republic believe pausing the war for negotiations risks squandering what they see as a hard-won upper hand.`\
-https://www.nytimes.com/2026/04/11/world/middleeast/iranians-hardliners-ceasefire.html
-
-**Lena Dunham Is Still Trying to Figure Out Why People Hated Her So Much**\
-`The writer, actor and lightning rod is not done sharing yet.`\
-https://www.nytimes.com/2026/04/11/magazine/lena-dunham-interview.html
 
