@@ -1,3 +1,11 @@
+**After Splashdown, Bring in the Navy Divers**\
+`As the spacecraft bobs in the Pacific Ocean, recovery personnel from NASA and the U.S. Navy are out at sea, tracking the capsule and other pieces of jettisoned hardware.`\
+https://www.nytimes.com/2026/04/10/science/artemis-ii-splashdown-recovery.html
+
+**University of Ottawa Lockdown Lifted After a Man Is Arrested**\
+`The university locked down the campus for just under two hours on Friday after reports that a man was acting suspiciously nearby. Police would not say if he was armed.`\
+https://www.nytimes.com/2026/04/10/world/canada/ottawa-university-campus-lockdown-canada.html
+
 **“It Was Survival Mode”: The Lunar Mission That Nearly Ended in Disaster**\
 `Fifty-six years later, we asked two flight directors what they were thinking when they finally got the astronauts home.`\
 https://www.nytimes.com/interactive/2026/04/10/magazine/apollo-13-return-nasa-flight-directors.html

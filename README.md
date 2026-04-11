@@ -1,3 +1,7 @@
+**La misión de Artemis II de la NASA regresa a la Tierra con éxito**\
+`La tripulación de la NASA amerizó en el océano Pacífico, cerca de San Diego, con lo que finaliza un viaje que llevó a los seres humanos al espacio sideral por primera vez desde 1972.`\
+https://www.nytimes.com/es/2026/04/10/espanol/ciencia-y-tecnologia/nasa-artemis-tierra.html
+
 **Eight Arrested in Connection With Deadly California Fireworks Explosion**\
 `The explosion last July in Esparto, Calif., killed seven people. Five of the eight arrested, including a former local police officer, have been charged with murder.`\
 https://www.nytimes.com/2026/04/10/us/fireworks-explosion-california-murder-charges.html
@@ -7,7 +11,7 @@ https://www.nytimes.com/2026/04/10/us/fireworks-explosion-california-murder-char
 https://www.nytimes.com/2026/04/10/us/kimberly-clark-warehouse-fire-suspect-mangione.html
 
 **“It Was Survival Mode”: The Lunar Mission That Nearly Ended in Disaster**\
-`Fifty-six years later, we asked two flight directors what they were thinking when they finally got the astronauts home.`\
+`Fifty-six years ago, after a tense race to save the Apollo 13 crew, the astronauts finally splashed down safely. Here’s what flight directors who got them home remember.`\
 https://www.nytimes.com/interactive/2026/04/10/magazine/apollo-13-return-nasa-flight-directors.html
 
 **After Splashdown, Bring in the Navy Divers**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/10/us/politics/eric-swalwell-allegations-califor
 **Trump-Ally Orban Trails in Polls Ahead of Hungary’s Election**\
 `After 16 years in power, Prime Minister Viktor Orban party is trailing in most independent polls behind the opposition leader Peter Magyar as Sunday’s election draws nearer.`\
 https://www.nytimes.com/video/world/europe/100000010833976/orban-magyar-hungary-election.html
-
-**Eric Adams, Citizen of the World, Becomes an Actual Citizen of Albania**\
-`Mr. Adams, the former mayor of New York City, has expressed fondness for Albania, visiting the country in his last weeks in office.`\
-https://www.nytimes.com/2026/04/10/nyregion/eric-adams-albania-citizen.html
 

@@ -10,9 +10,9 @@ https://www.nytimes.com/2026/04/10/us/kimberly-clark-warehouse-fire-suspect-mang
 `Fifty-six years later, we asked two flight directors what they were thinking when they finally got the astronauts home.`\
 https://www.nytimes.com/interactive/2026/04/10/magazine/apollo-13-return-nasa-flight-directors.html
 
-**After splashdown, bring in the Navy divers.**\
-``\
-https://www.nytimes.com/live/2026/04/10/science/nasa-artemis-ii-splashdown-return/after-splashdown-bring-in-the-navy-divers
+**After Splashdown, Bring in the Navy Divers**\
+`As the spacecraft bobs in the Pacific Ocean, recovery personnel from NASA and the U.S. Navy are out at sea, tracking the capsule and other pieces of jettisoned hardware.`\
+https://www.nytimes.com/2026/04/10/science/artemis-ii-splashdown-recovery.html
 
 **World Leaders Push to Save Iran Talks Amid Israel’s Attacks in Lebanon**\
 `President Trump’s cease-fire with Iran appears at risk as Vice President JD Vance heads to Pakistan for discussions with Iranian officials.`\
@@ -51,7 +51,7 @@ https://www.nytimes.com/video/us/politics/100000010835247/kamala-harris-2028-dem
 https://www.nytimes.com/live/2026/04/10/science/nasa-artemis-ii-splashdown-return/what-will-happen-during-the-final-hours-of-the-artemis-ii-mission
 
 **University of Ottawa Lockdown Lifted After a Man Is Arrested**\
-`The university locked down the campus for several hours on Friday after reports that a man was acting suspiciously nearby. Police would not say if he was armed.`\
+`The university locked down the campus for just under two hours on Friday after reports that a man was acting suspiciously nearby. Police would not say if he was armed.`\
 https://www.nytimes.com/2026/04/10/world/canada/ottawa-university-campus-lockdown-canada.html
 
 **New Evidence Further Implicates U.S. Missiles in Strikes That Killed 21 Civilians in Iran**\
