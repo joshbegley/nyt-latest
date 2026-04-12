@@ -50,8 +50,8 @@ https://www.nytimes.com/video/science/space/100000010836658/nasa-artemis-returns
 `Surging inflation and rising prices have some people re-evaluating date nights and how much of their splurges they can share with friends.`\
 https://www.nytimes.com/2026/04/12/nyregion/nyc-inflation-prices.html
 
-**Mamdani Plans to Open First City-Owned Grocery Store in East Harlem**\
-`Mayor Zohran Mamdani will announce plans for a city-owned grocery store at La Marqueta, moving to deliver on a campaign pledge.`\
+**Mamdani Plans to Open City-Owned Grocery Store in East Harlem**\
+`Mayor Zohran Mamdani announced plans for a city-owned grocery store at La Marqueta, moving to deliver on a campaign pledge.`\
 https://www.nytimes.com/2026/04/12/nyregion/mamdani-city-owned-grocery-store-la-marqueta.html
 
 **Iran’s Underground Air Force Base Was Hit Earlier in the War**\
