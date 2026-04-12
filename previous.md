@@ -1,3 +1,11 @@
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/04/12/t-magazine/tk.html
+
+**Control of the Strait of Hormuz and Iran’s Uranium Stockpiles Were Sticking Points**\
+`The U.S. had demanded that Iran immediately reopen the strait to all maritime traffic, but Iran said it would do so only after a final peace deal, according to Iranian officials.`\
+https://www.nytimes.com/2026/04/11/world/control-of-the-strait-of-hormuz-and-irans-uranium-stockpiles-were-sticking-points.html
+
 **Mass Stampede at Haitian Tourist Site Leaves Dozens Dead**\
 `The tragedy took place at the Citadelle Laferrière, a historic fortress in northern Haiti and one of the country’s defining symbols.`\
 https://www.nytimes.com/2026/04/12/world/americas/haiti-stampede-citadelle-laferriere-deaths.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/11/us/politics/immigration-judges-deportations-s
 **Initial Thoughts**\
 `Lance Enfinger and John Kugelman team up for an extended challenge that’s full of abbreviations.`\
 https://www.nytimes.com/2026/04/11/crosswords/daily-puzzle-2026-04-12.html
-
-**Police Fatally Shoot Man After Stabbings at Grand Central Subway Station**\
-`A man with a large knife was shot by police after stabbing three people at Grand Central subway station on Saturday.`\
-https://www.nytimes.com/video/us/100000010835997/police-fatally-shoot-man-with-machete-after-stabbings-at-grand-central-subway-station.html
-
-**Someone Has to Be Happy. Why Not Lauren Sánchez Bezos?**\
-`As half of an unfathomably powerful couple, Mrs. Sánchez Bezos seems to have influenced the uber-rich to stop apologizing, and start enjoying themselves.`\
-https://www.nytimes.com/2026/04/11/business/lauren-sanchez-bezos-jeff-bezos.html
 

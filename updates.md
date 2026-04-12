@@ -1,3 +1,11 @@
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/04/12/t-magazine/tk.html
+
+**Control of the Strait of Hormuz and Iran’s Uranium Stockpiles Were Sticking Points**\
+`The U.S. had demanded that Iran immediately reopen the strait to all maritime traffic, but Iran said it would do so only after a final peace deal, according to Iranian officials.`\
+https://www.nytimes.com/2026/04/11/world/control-of-the-strait-of-hormuz-and-irans-uranium-stockpiles-were-sticking-points.html
+
 **Mass Stampede at Haitian Tourist Site Leaves Dozens Dead**\
 `The tragedy took place at the Citadelle Laferrière, a historic fortress in northern Haiti and one of the country’s defining symbols.`\
 https://www.nytimes.com/2026/04/12/world/americas/haiti-stampede-citadelle-laferriere-deaths.html
