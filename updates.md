@@ -1,3 +1,7 @@
+**Edna Foa, Who Pioneered Exposure Therapy to Treat PTSD, Dies at 88**\
+`A psychologist, she urged patients to confront the things that frightened them, revolutionizing her field’s approach to post-traumatic stress disorder.`\
+https://www.nytimes.com/2026/04/12/health/edna-foa-dead.html
+
 **These Lettuce Wraps Are a Joy to Cook and Eat**\
 `I love the shwoop-shwoop chopping of crisp celery and water chestnuts, the smoky hiss of browning meat and the light snap of iceberg leaves.`\
 https://www.nytimes.com/2026/04/12/dining/these-lettuce-wraps-are-a-joy-to-cook-and-eat.html

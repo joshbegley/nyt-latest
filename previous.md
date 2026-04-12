@@ -1,3 +1,7 @@
+**Edna Foa, Who Pioneered Exposure Therapy to Treat PTSD, Dies at 88**\
+`A psychologist, she urged patients to confront the things that frightened them, revolutionizing her field’s approach to post-traumatic stress disorder.`\
+https://www.nytimes.com/2026/04/12/health/edna-foa-dead.html
+
 **These Lettuce Wraps Are a Joy to Cook and Eat**\
 `I love the shwoop-shwoop chopping of crisp celery and water chestnuts, the smoky hiss of browning meat and the light snap of iceberg leaves.`\
 https://www.nytimes.com/2026/04/12/dining/these-lettuce-wraps-are-a-joy-to-cook-and-eat.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/12/crosswords/wordle-review-1759.html
 **En las elecciones de Perú, 35 candidatos se disputan la presidencia**\
 `Las elecciones presidenciales de este domingo son una de las contiendas más inciertas de los últimos años, marcadas por una extrema fragmentación del electorado.`\
 https://www.nytimes.com/es/2026/04/12/espanol/america-latina/peru-elecciones-presidenciales.html
-
-**What We Know About the Eric Swalwell Sexual Misconduct Allegations**\
-`Accusations that Mr. Swalwell, a congressman running for governor in California, sexually assaulted a former staffer and behaved inappropriately with other women have upended the race.`\
-https://www.nytimes.com/2026/04/12/us/eric-swalwell-sexual-misconduct.html
 
