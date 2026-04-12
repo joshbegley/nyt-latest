@@ -1,3 +1,7 @@
+**How Do People Cope During War?**\
+`We explore how the rituals of religion persist — even as war alters the world.`\
+https://www.nytimes.com/2026/04/12/briefing/iran-peace-talks-lebanon-war.html
+
 **When Should Judges Sound the Alarm?**\
 `A retired judge and a law professor respond to a Page A1 article. Also: Censoring college professors; executive power after President Trump.`\
 https://www.nytimes.com/2026/04/12/opinion/judges-trump.html
@@ -34,7 +38,7 @@ https://www.nytimes.com/2026/04/12/opinion/hasan-piker-democrats.html
 `The most monstrous pictures of God come from the Christian tradition just as the most radiant images of God come from what Christians believe.`\
 https://www.nytimes.com/2026/04/12/opinion/jesus-christianity-atheism.html
 
-**Don’t Expect Gas Prices to Go Down Anytime Soon**\
+**High Gas Prices Won’t End Even if the War Does**\
 `Why a cease-fire in Iran won’t bring gasoline prices down.`\
 https://www.nytimes.com/2026/04/12/opinion/gas-prices-iran.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/12/style/coachella-influencers-brand-trips.html
 **At a World War II Internment Camp, History Blows Away Wind Energy**\
 `A coalition of the descendants of a Japanese American internment camp and Trump-aligned wind power opponents helped kill an Idaho wind farm, but A.I.-driven energy demand keeps rising.`\
 https://www.nytimes.com/2026/04/12/us/japanese-internment-camp-idaho-wind-energy.html
-
-**‘I Can’t Endure This’: Inside a Bombarded City in Southern Lebanon**\
-`In Tyre, a city on Lebanon’s coast, near-daily bombardments by Israel have killed and injured civilians, and left many searching for shelter.`\
-https://www.nytimes.com/2026/04/12/world/middleeast/lebanon-hezbollah-israel-iran-war-tyre.html
 

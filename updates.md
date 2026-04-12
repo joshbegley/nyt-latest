@@ -1,3 +1,11 @@
+**How Do People Cope During War?**\
+`We explore how the rituals of religion persist — even as war alters the world.`\
+https://www.nytimes.com/2026/04/12/briefing/iran-peace-talks-lebanon-war.html
+
+**High Gas Prices Won’t End Even if the War Does**\
+`Why a cease-fire in Iran won’t bring gasoline prices down.`\
+https://www.nytimes.com/2026/04/12/opinion/gas-prices-iran.html
+
 **When Should Judges Sound the Alarm?**\
 `A retired judge and a law professor respond to a Page A1 article. Also: Censoring college professors; executive power after President Trump.`\
 https://www.nytimes.com/2026/04/12/opinion/judges-trump.html
