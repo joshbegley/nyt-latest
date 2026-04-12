@@ -1,3 +1,11 @@
+**U.S.-Iran Negotiations End With No Deal**\
+`Marathon peace talks between the United States and Iran failed to produce a deal to fully reopen the Strait of Hormuz and end the war. President Trump said on social media Sunday that the U.S. would enforce a naval blockade of the Strait, potentially imperiling the already fragile two-week ceasefire.`\
+https://www.nytimes.com/video/world/middleeast/100000010836654/iran-united-states-war-negotiations.html
+
+**Cuba’s President Projects Defiance in Standoff With the U.S.**\
+`Miguel Díaz-Canel’s stance on “Meet the Press” reflected how Cuba is digging in against pressure from a Trump administration distracted by the war in Iran.`\
+https://www.nytimes.com/2026/04/12/world/americas/cuba-president-meet-the-press.html
+
 **‘Paddington’ Wins Big at the Olivier Awards**\
 `The hit musical about the beloved bear won seven awards at Britain’s equivalent of the Tonys. “Evita,” starring Rachel Zegler, took home two prizes.`\
 https://www.nytimes.com/2026/04/12/theater/olivier-awards-winners.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/12/world/middleeast/iran-united-states-negotiati
 **Netanyahu Says War With Iran Is ‘Not Yet Over’**\
 `In a televised address, Prime Minister Benjamin Netanyahu of Israel sought to placate critics at home who say the war failed to achieve its goals.`\
 https://www.nytimes.com/2026/04/12/world/middleeast/netanyahu-israel-iran-war.html
-
-**This Is Why There’s No Liberal Joe Rogan**\
-`Conversation is not a reward to be bestowed on those with whom we agree; it’s a base line practice.`\
-https://www.nytimes.com/2026/04/12/opinion/hasan-piker-democrats.html
-
-**‘The Reason I’m Not an Atheist Is That I Think the Philosophical Arguments Against It Are Unanswerable’**\
-`The most monstrous pictures of God come from the Christian tradition just as the most radiant images of God come from what Christians believe.`\
-https://www.nytimes.com/2026/04/12/opinion/jesus-christianity-atheism.html
 

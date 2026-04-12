@@ -1,3 +1,11 @@
+**U.S.-Iran Negotiations End With No Deal**\
+`Marathon peace talks between the United States and Iran failed to produce a deal to fully reopen the Strait of Hormuz and end the war. President Trump said on social media Sunday that the U.S. would enforce a naval blockade of the Strait, potentially imperiling the already fragile two-week ceasefire.`\
+https://www.nytimes.com/video/world/middleeast/100000010836654/iran-united-states-war-negotiations.html
+
+**Cuba’s President Projects Defiance in Standoff With the U.S.**\
+`Miguel Díaz-Canel’s stance on “Meet the Press” reflected how Cuba is digging in against pressure from a Trump administration distracted by the war in Iran.`\
+https://www.nytimes.com/2026/04/12/world/americas/cuba-president-meet-the-press.html
+
 **‘Paddington’ Wins Big at the Olivier Awards**\
 `The hit musical about the beloved bear won seven awards at Britain’s equivalent of the Tonys. “Evita,” starring Rachel Zegler, took home two prizes.`\
 https://www.nytimes.com/2026/04/12/theater/olivier-awards-winners.html
