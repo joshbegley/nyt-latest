@@ -1,3 +1,43 @@
+**What Now? Vance Leaves Iran Talks Without a Deal.**\
+`The lack of a breakthrough after 21 hours of negotiations leaves the Trump administration facing several unpalatable options.`\
+https://www.nytimes.com/2026/04/12/us/politics/vance-iran-talks.html
+
+**What to Know as Hungary Votes in Elections Watched by the World**\
+`With Prime Minister Viktor Orban, a standard-bearer for global populism, in political peril, the vote on Sunday could have far-reaching implications.`\
+https://www.nytimes.com/2026/04/12/world/europe/hungary-election-what-to-know.html
+
+**Many Polls Say Orban Will Lose. But He Has an Edge Even Before Voting Begins.**\
+`Over 16 years, Prime Minister Viktor Orban’s party has repeatedly tweaked the electoral system to its advantage, making the vote free, but not entirely fair.`\
+https://www.nytimes.com/2026/04/12/world/europe/hungary-election-polls.html
+
+**Celebrities Need Passport Photos, Too**\
+`In 10 minutes or less, this mom-and-pop London institution produced stylish snapshots for some of the world’s biggest stars.`\
+https://www.nytimes.com/2026/04/12/books/review/passport-photo-service-philip-sharkey.html
+
+**Who Is Peter Magyar, the Main Rival of Viktor Orban?**\
+`Mr. Magyar’s challenge in the Hungarian election is fueled in large part by widespread public anger at corruption and concern about sluggish economic growth.`\
+https://www.nytimes.com/2026/04/12/world/europe/who-peter-magyar-hungary-election-opposition-orban.html
+
+**Who Is Viktor Orban?**\
+`Hungary’s prime minister, once a liberal activist, has governed for the past 16 years as a champion of “illiberal democracy.”`\
+https://www.nytimes.com/2026/04/12/world/europe/who-is-viktor-orban.html
+
+**Jailed for Love Songs? Yes, and Still Singing.**\
+`Nguyen Van Loc was persecuted for performing Hanoi’s old romantic music during (and after) the Vietnam War. He can’t stop. He won’t stop.`\
+https://www.nytimes.com/2026/04/12/world/asia/vietnam-singer-prisoner.html
+
+**‘Every Brilliant Thing,’ Now Starring Daniel Radcliffe and You**\
+`Before each performance, the actor sprints around the Hudson Theater enlisting audience members to take part in the interactive show.`\
+https://www.nytimes.com/2026/04/12/theater/daniel-radcliffe-every-brilliant-thing.html
+
+**Corrections: April 12, 2026**\
+`Corrections that appeared in print on Sunday, April 12, 2026.`\
+https://www.nytimes.com/2026/04/12/pageoneplus/corrections-april-12-2026.html
+
+**Trump Was Watching a U.F.C. Fight in Miami While Iran Talks Collapsed**\
+`On his way to Florida, President Trump said it did not matter to him if a deal with Iran was reached or not: “We win, regardless,” he said.`\
+https://www.nytimes.com/2026/04/11/us/politics/trump-ufc-iran-war.html
+
 **Push to Expel Swalwell Could Touch Off Chain Reaction of House Removal Votes**\
 `The House could move within days to consider expelling Representative Eric Swalwell, Democrat of California, in light of sexual assault allegations against him. There could be more to come for both parties.`\
 https://www.nytimes.com/2026/04/11/us/swalwell-house-removal-votes.html
@@ -37,44 +77,4 @@ https://www.nytimes.com/2026/04/11/business/lauren-sanchez-bezos-jeff-bezos.html
 **3 Men Are Arrested in $1 Million Lego Theft in California**\
 `Sheriff’s deputies spotted the men fleeing in two box trucks on Wednesday. Deputies searching the cargo discovered a large amount of Lego products, the authorities said.`\
 https://www.nytimes.com/2026/04/11/us/california-lego-heist-arrest.html
-
-**Forest Hills Homeowners Win $150,000 in Battle Over Concert Noise**\
-`The Queens residents have long complained that concerts at nearby Forest Hills Stadium are degrading their quality of life. Last month, they won a settlement from the city in a related dispute.`\
-https://www.nytimes.com/2026/04/11/nyregion/forest-hills-concert-noise-settlement.html
-
-**4 Takeaways From the First Big Gathering of Potential 2028 Democratic Candidates**\
-`The National Action Network convention showcased similarities and some differences in a wide-open field of possible contenders.`\
-https://www.nytimes.com/2026/04/11/us/politics/democrats-president-2028-sharpton-convention-takeaways.html
-
-**Navy Enters Hormuz, Exits After Destroying Drone, U.S. Officials Say**\
-`Iran denied that the American destroyers had entered the strait, as negotiations for an extended cease-fire continued in Islamabad.`\
-https://www.nytimes.com/2026/04/11/us/politics/us-navy-warships-strait-of-hormuz-iran-mines.html
-
-**Ballroom? Bunker? Court Allows Work for Now on Trump Project.**\
-`A three-judge panel allowed construction on the ballroom to proceed until April 17, but asked a lower court to untangle the details of the president’s plans.`\
-https://www.nytimes.com/2026/04/11/us/politics/appeals-court-trump-ballroom.html
-
-**David Sklansky, ‘Mathematician’ of High-Stakes Poker, Dies at 78**\
-`As “the first nerd to enter poker,” he helped transform a game long ruled by intuition into one based on game theory, probability and logic.`\
-https://www.nytimes.com/2026/04/11/us/david-sklansky-dead.html
-
-**The Athletic Investigates Conduct of Reporter Photographed With N.F.L. Coach**\
-`Photographs of the reporter, Dianna Russini, and Mike Vrabel of the New England Patriots appeared in The New York Post.`\
-https://www.nytimes.com/2026/04/11/business/media/the-athletic-reporter-dianna-russini-nfl-coach-mike-vrabel.html
-
-**Investigation Opened Into Sexual Assault Allegation Against Swalwell**\
-`The Manhattan district attorney’s office is examining a claim that Representative Eric Swalwell, a candidate for governor in California, assaulted a woman in New York City in 2024.`\
-https://www.nytimes.com/2026/04/11/us/politics/eric-swalwell-california-governor-sexual-misconduct.html
-
-**The Postal Service Is in Trouble. Here’s How It Could Affect Your Mail.**\
-`Despite numerous attempts to reform the Postal Service, the agency’s business model has not changed significantly since 1970. Officials are proposing to decrease service and increase prices.`\
-https://www.nytimes.com/2026/04/11/us/politics/postal-service-finances-mail.html
-
-**Postal Service, Already Under Pressure, Now Faces Trump’s Mail Ballot Order**\
-`President Trump’s executive order, which has been challenged as unconstitutional, would limit the Postal Service to sending only the ballots of voters deemed eligible.`\
-https://www.nytimes.com/2026/04/11/us/politics/postal-service-budget-mail-ballots.html
-
-**Artemis II nos mostró nuevas imágenes de la Luna**\
-`Durante 10 días, los astronautas de la misión de sobrevuelo lunar de la NASA han logrado algo casi imposible.`\
-https://www.nytimes.com/es/2026/04/11/espanol/ciencia-y-tecnologia/artemis-nasa-luna-fotos-videos.html
 
