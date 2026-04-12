@@ -1,3 +1,11 @@
+**Asha Bhosle, One of India’s Most Beloved Singers, Dies at 92**\
+`Her distinctive and adventurous voice was the soundtrack for generations of Bollywood films.`\
+https://www.nytimes.com/2026/04/12/world/asia/asha-bhosle-india-singer-bollywood.html
+
+**This Is Why There’s No Liberal Joe Rogan**\
+`Conversation is not a reward to be bestowed on those with whom we agree; it’s a base line practice.`\
+https://www.nytimes.com/2026/04/12/opinion/hasan-piker-democrats.html
+
 **Sabrina Carpenter Apologizes for Mocking Arabic Call at Coachella**\
 `“I don’t like it,” the pop singer had said from the festival stage, after mistaking a celebratory Middle Eastern cry as a form of yodeling.`\
 https://www.nytimes.com/2026/04/12/arts/music/sabrina-carpenter-coachella-apology.html

@@ -1,3 +1,7 @@
+**Asha Bhosle, One of India’s Most Beloved Singers, Dies at 92**\
+`Her distinctive and adventurous voice was the soundtrack for generations of Bollywood films.`\
+https://www.nytimes.com/2026/04/12/world/asia/asha-bhosle-india-singer-bollywood.html
+
 **Sabrina Carpenter Apologizes for Mocking Arabic Call at Coachella**\
 `“I don’t like it,” the pop singer had said from the festival stage, after mistaking a celebratory Middle Eastern cry as a form of yodeling.`\
 https://www.nytimes.com/2026/04/12/arts/music/sabrina-carpenter-coachella-apology.html
@@ -50,7 +54,7 @@ https://www.nytimes.com/2026/04/12/world/middleeast/iran-united-states-negotiati
 `In a televised address, Prime Minister Benjamin Netanyahu of Israel sought to placate critics at home who say the war failed to achieve its goals.`\
 https://www.nytimes.com/2026/04/12/world/middleeast/netanyahu-israel-iran-war.html
 
-**Hasan Piker Is Not the Enemy**\
+**This Is Why There’s No Liberal Joe Rogan**\
 `Conversation is not a reward to be bestowed on those with whom we agree; it’s a base line practice.`\
 https://www.nytimes.com/2026/04/12/opinion/hasan-piker-democrats.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/12/crosswords/connections-companion-1037.html
 **Strands Sidekick No. 771**\
 `Scroll down for hints and conversation about the puzzle for Monday, April 13, 2026.`\
 https://www.nytimes.com/2026/04/12/crosswords/strands-sidekick-771.html
-
-**Wordle Review No. 1,759**\
-`Scroll down for hints and conversation about the puzzle for Monday, April 13, 2026.`\
-https://www.nytimes.com/2026/04/12/crosswords/wordle-review-1759.html
 
