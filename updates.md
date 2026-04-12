@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/12/world/iran-war-trump-talks-pakistan/heres-the-latest
+
 **La inteligencia de EE. UU. muestra que China tiene un papel más activo en la guerra de Irán**\
 `China podría haber enviado misiles a Irán, y Pekín está permitiendo que empresas vendan a Teherán suministros que pueden usarse en la producción militar, según funcionarios estadounidenses.`\
 https://www.nytimes.com/es/2026/04/12/espanol/estados-unidos/china-rol-guerra-iran.html

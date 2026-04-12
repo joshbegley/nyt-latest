@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/12/world/iran-war-trump-talks-pakistan/heres-the-latest
+
 **La inteligencia de EE. UU. muestra que China tiene un papel más activo en la guerra de Irán**\
 `China podría haber enviado misiles a Irán, y Pekín está permitiendo que empresas vendan a Teherán suministros que pueden usarse en la producción militar, según funcionarios estadounidenses.`\
 https://www.nytimes.com/es/2026/04/12/espanol/estados-unidos/china-rol-guerra-iran.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/11/us/politics/trump-ufc-iran-war.html
 **Push to Expel Swalwell Could Touch Off Chain Reaction of House Removal Votes**\
 `The House could move within days to consider expelling Representative Eric Swalwell, Democrat of California, in light of sexual assault allegations against him. There could be more to come for both parties.`\
 https://www.nytimes.com/2026/04/11/us/swalwell-house-removal-votes.html
-
-**Second Venezuelan Doctor Detained in South Texas by Immigration Agents**\
-`An E.R. doctor was detained Saturday, just days after a family physician had been detained. Both were traveling when immigration agents took them into custody.`\
-https://www.nytimes.com/2026/04/11/us/second-venezuelan-doctor-detained-in-south-texas-by-immigration-agents.html
 
