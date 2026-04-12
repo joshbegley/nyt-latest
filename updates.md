@@ -1,3 +1,31 @@
+**Hungary’s Orban Concedes Election Defeat**\
+`Hungary’s prime minister, Viktor Orban, who has inspired populist movements globally, conceded defeat on Sunday in a general election.`\
+https://www.nytimes.com/video/world/europe/100000010836655/hungary-election-viktor-orban-concedes.html
+
+**Scores Killed in Nigerian Military Strikes as Clashes With Militants Intensify**\
+`Nigerian officials said they attacked a terrorist enclave, but locals and rights groups said the airstrikes hit a popular market, killing many civilians.`\
+https://www.nytimes.com/2026/04/12/world/africa/snigerian-airstrike-insurgents-civilians.html
+
+**Oil Prices Surge Above $100 After Peace Talks Fail and Trump Threatens Blockade**\
+`Oil prices surged as markets reopened on Sunday following news that U.S. peace talks with Iran had ended without a deal.`\
+https://www.nytimes.com/2026/04/12/business/oil-prices-surge-above-100-after-peace-talks-fail-and-trump-threatens-blockade.html
+
+**An Underwater Phantom Is Killing Fish and Breaking Hearts**\
+`A mysterious algal bloom has haunted South Australia’s coast for more than a year, killing marine life and unsettling communities that cherish the ocean.`\
+https://www.nytimes.com/2026/04/12/world/australia/south-australia-algal-bloom.html
+
+**Pleasingly Round**\
+`Brad Wiegmann gives us a puzzle worth celebrating.`\
+https://www.nytimes.com/2026/04/12/crosswords/daily-puzzle-2026-04-13.html
+
+**Former Economy Minister Is Chosen as Quebec Premier Ahead of Elections**\
+`Far behind in the polls, Quebec’s governing party chose Christine Fréchette to succeed François Legault and to lead it in a vote this fall.`\
+https://www.nytimes.com/2026/04/12/world/americas/canada-quebec-premier-christine-frechette.html
+
+**How Lee Zeldin Shifted the Mission — And the Message — of the E.P.A.**\
+`More than any administrator in decades, Lee Zeldin talks about the Environmental Protection Agency's work in economic terms, reflecting President Trump’s desire to boost industry while downplaying environmental consequences.`\
+https://www.nytimes.com/interactive/2026/04/12/climate/lee-zeldin-epa-mission-language.html
+
 **Potential 2028 Democrats Flocked to His Convention. Here’s How He Sized Them Up.**\
 `In an interview with The New York Times, the Rev. Al Sharpton reflected on the performances of 10 Democrats who spoke and explained why two did not.`\
 https://www.nytimes.com/2026/04/12/us/politics/2028-democrats-presidential-sharpton.html
