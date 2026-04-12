@@ -46,8 +46,8 @@ https://www.nytimes.com/2026/04/11/nyregion/forest-hills-concert-noise-settlemen
 `The National Action Network convention showcased similarities and some differences in a wide-open field of possible contenders.`\
 https://www.nytimes.com/2026/04/11/us/politics/democrats-president-2028-sharpton-convention-takeaways.html
 
-**Navy Warships Cross Hormuz Strait for Mine-Clearing Work, U.S. Says**\
-`American destroyers began work to make the strait safe for commercial traffic, U.S. officials said, as negotiators discussed conditions for an extended cease-fire. Iran denied that any warships had passed through.`\
+**Navy Enters Hormuz, Exits After Destroying Drone, U.S. Officials Say**\
+`Iran denied that the American destroyers had entered the strait, as negotiations for an extended cease-fire continued in Islamabad.`\
 https://www.nytimes.com/2026/04/11/us/politics/us-navy-warships-strait-of-hormuz-iran-mines.html
 
 **Ballroom? Bunker? Court Allows Work for Now on Trump Project.**\
