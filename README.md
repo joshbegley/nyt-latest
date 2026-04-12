@@ -1,3 +1,31 @@
+**En las elecciones de Perú, 35 candidatos se disputan la presidencia**\
+`Las elecciones presidenciales de este domingo son una de las contiendas más inciertas de los últimos años, marcadas por una extrema fragmentación del electorado.`\
+https://www.nytimes.com/es/2026/04/12/espanol/america-latina/peru-elecciones-presidenciales.html
+
+**What We Know About the Eric Swalwell Sexual Misconduct Allegations**\
+`Accusations that Mr. Swalwell, a congressman running for governor in California, sexually assaulted a former staffer and behaved inappropriately with other women have upended the race.`\
+https://www.nytimes.com/2026/04/12/us/eric-swalwell-sexual-misconduct.html
+
+**Peru Votes for President, With 35 Names on the Ballot**\
+`Few expect the vote to resolve the political instability that has plagued the country for years. Three presidents have come and gone since 2021.`\
+https://www.nytimes.com/2026/04/12/world/americas/peru-presidential-election.html
+
+**Begging, Manifesting and Dumb Luck: How Influencers Get Free Trips to Coachella**\
+`The California music festival has become the “influencer Olympics.”`\
+https://www.nytimes.com/2026/04/12/style/coachella-influencers-brand-trips.html
+
+**At a World War II Internment Camp, History Blows Away Wind Energy**\
+`A coalition of the descendants of a Japanese American internment camp and Trump-aligned wind power opponents helped kill an Idaho wind farm, but A.I.-driven energy demand keeps rising.`\
+https://www.nytimes.com/2026/04/12/us/japanese-internment-camp-idaho-wind-energy.html
+
+**‘I Can’t Endure This’: Inside a Bombarded City in Southern Lebanon**\
+`In Tyre, a city on Lebanon’s coast, near-daily bombardments by Israel have killed and injured civilians, and left many searching for shelter.`\
+https://www.nytimes.com/2026/04/12/world/middleeast/lebanon-hezbollah-israel-iran-war-tyre.html
+
+**She Invented a Dark Tale About Fame, Fandom and Young Women**\
+`In her new book “STAR,” Petra Collins, a photographer who helped shape the millennial aesthetic, lets us peek through her diffuse lens.`\
+https://www.nytimes.com/2026/04/12/style/she-invented-a-dark-tale-about-fame-fandom-and-young-women.html
+
 **If He Leaves You on a Mountain, End Your Relationship**\
 `The “Alpine divorce,” in which one partner leaves another stranded while hiking, is more serious than the name implies.`\
 https://www.nytimes.com/2026/04/12/style/alpine-divorce-relationships-hike.html
@@ -49,32 +77,4 @@ https://www.nytimes.com/2026/04/12/us/cue-the-record-nyc-vinyl-listening-club.ht
 **A Very Old-Fashioned Novel Has Made a Star Out of a Very Young Writer**\
 `Just 22 and still a student, Nelio Biedermann has been compared to Thomas Mann thanks to “Lázár,” his sweeping family saga.`\
 https://www.nytimes.com/2026/04/12/books/review/nelio-biedermann-interview-lazar.html
-
-**A Blue-Blooded Dynasty Falls to a ‘Blood-Red’ Century in This Novel**\
-`“Lázár,” by Nelio Biedermann, is a multigenerational novel that spans the collapse of a monarchy, two world wars and a revolution.`\
-https://www.nytimes.com/2026/04/12/books/review/nelio-biedermann-lazar.html
-
-**Las mujeres están siendo borradas del relato estadounidense**\
-`Borrar a las mujeres del relato de una nación ha sido una estrategia que los líderes autoritarios usan para destruir las democracias.`\
-https://www.nytimes.com/es/2026/04/12/espanol/opinion/mujeres-trabajo-desigualdad.html
-
-**A pesar de las malas críticas, ‘Super Mario Galaxy: la película’ es un megahit**\
-`La secuela animada recaudó unos 373 millones de dólares en todo el mundo durante sus primeros cinco días en los cines. “A los niños les encanta la película”, dijo un analista de taquilla.`\
-https://www.nytimes.com/es/2026/04/12/espanol/cultura/super-mario-galaxy-pelicula-taquilla.html
-
-**Este puede ser el acontecimiento médico más importante de la década**\
-`Los nuevos tratamientos para enfermedades raras podrían ser el logro médico más revolucionario de una década.`\
-https://www.nytimes.com/es/2026/04/12/espanol/opinion/enfermedades-raras-diagnostico.html
-
-**How the Gilgo Beach Killings Fueled a Mania for Prestige True Crime**\
-`With its lurid details and eerily desolate crime scene, the Long Island serial killer case invited rampant speculation. The reality was more mundane, and much worse.`\
-https://www.nytimes.com/2026/04/12/nyregion/gilgo-beach-murders-true-crime.html
-
-**What Happened to Shannan?**\
-`The death of 23-year-old Shannan Gilbert remains the great unsolved mystery surrounding the Gilgo Beach serial killer case.`\
-https://www.nytimes.com/2026/04/12/nyregion/shannan-gilbert-gilgo-beach-murders.html
-
-**De repente arrastraba los pies al andar. ¿Por qué?**\
-`La hidrocefalia normotensiva puede manifestarse con incontinencia urinaria, demencia o cambios en la forma de caminar y afecta a más de uno de cada 20 adultos mayores de 80 años.`\
-https://www.nytimes.com/es/2026/04/12/espanol/hidrocefalia-normotensiva-sintomas-incontinencia-caminar-adultos.html
 
