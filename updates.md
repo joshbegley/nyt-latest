@@ -1,3 +1,11 @@
+**A pesar de las malas críticas, ‘Super Mario Galaxy: la película’ es un megahit**\
+`La secuela animada recaudó unos 373 millones de dólares en todo el mundo durante sus primeros cinco días en los cines. “A los niños les encanta la película”, dijo un analista de taquilla.`\
+https://www.nytimes.com/es/2026/04/12/espanol/cultura/super-mario-galaxy-pelicula-taquilla.html
+
+**Este puede ser el acontecimiento médico más importante de la década**\
+`Los nuevos tratamientos para enfermedades raras podrían ser el logro médico más revolucionario de una década.`\
+https://www.nytimes.com/es/2026/04/12/espanol/opinion/enfermedades-raras-diagnostico.html
+
 **How the Gilgo Beach Killings Fueled a Mania for Prestige True Crime**\
 `With its lurid details and eerily desolate crime scene, the Long Island serial killer case invited rampant speculation. The reality was more mundane, and much worse.`\
 https://www.nytimes.com/2026/04/12/nyregion/gilgo-beach-murders-true-crime.html
