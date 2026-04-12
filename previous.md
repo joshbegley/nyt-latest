@@ -1,3 +1,15 @@
+**The ‘Islamabad Peace Talks’ Are Over. What Now for Pakistan?**\
+`With the U.S. and Iranian delegations gone from Islamabad and the cease-fire uncertain, Pakistan faces its own economic and diplomatic challenges.`\
+https://www.nytimes.com/2026/04/12/world/asia/iran-peace-talks-pakistan.html
+
+**Israel Launches New Attacks in Lebanon, Days Ahead of Rare Direct Talks**\
+`Israel’s campaign targeting Hezbollah in Lebanon has been a source of tension in the U.S.-Iran cease-fire. Israeli and Lebanese officials plan to meet for rare talks in Washington this week.`\
+https://www.nytimes.com/2026/04/12/world/middleeast/israel-lebanon-attacks-talks.html
+
+**What Do Vegetative Patients Know?**\
+`They may have more awareness than we thought.`\
+https://www.nytimes.com/2026/04/12/briefing/what-do-vegetative-patients-know.html
+
 **In Pakistan Talks, Iran Saw a U.S. Trying to Dictate, Not Negotiate**\
 `Iran sees American demands as reaching far beyond what it achieved in war. Tehran is gambling that it can withstand further bombardment more than Washington is willing to sustain economic chaos, experts say.`\
 https://www.nytimes.com/2026/04/12/world/middleeast/iran-united-states-negotiations.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/12/style/she-invented-a-dark-tale-about-fame-fan
 **If He Leaves You on a Mountain, End Your Relationship**\
 `The “Alpine divorce,” in which one partner leaves another stranded while hiking, is more serious than the name implies.`\
 https://www.nytimes.com/2026/04/12/style/alpine-divorce-relationships-hike.html
-
-**Cómo apoyar a quien ha perdido a una mascota**\
-`La muerte de un animal de compañía puede ser tan devastadora como otros tipos de pérdida.`\
-https://www.nytimes.com/es/2026/04/12/espanol/estilos-de-vida/duelo-mascota-consuelo.html
-
-**How Christopher John Rogers Became a Go-To for Stylish Brides**\
-`The designer didn’t set out to dress brides. After designing looks for Kamala Harris, Michelle Obama and other celebrities, his voluminous designs are now gracing wedding aisles.`\
-https://www.nytimes.com/2026/04/12/fashion/weddings/christopher-john-rogers-bridal-fashion.html
-
-**The Soundtrack to Philly’s Waning Gun Violence**\
-`Teens in Philadelphia are trying to make safer neighborhoods. Many are starting with music.`\
-https://www.nytimes.com/2026/04/12/headway/philly-teens-neighborhood-safety-music.html
 

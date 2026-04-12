@@ -1,3 +1,15 @@
+**The ‘Islamabad Peace Talks’ Are Over. What Now for Pakistan?**\
+`With the U.S. and Iranian delegations gone from Islamabad and the cease-fire uncertain, Pakistan faces its own economic and diplomatic challenges.`\
+https://www.nytimes.com/2026/04/12/world/asia/iran-peace-talks-pakistan.html
+
+**Israel Launches New Attacks in Lebanon, Days Ahead of Rare Direct Talks**\
+`Israel’s campaign targeting Hezbollah in Lebanon has been a source of tension in the U.S.-Iran cease-fire. Israeli and Lebanese officials plan to meet for rare talks in Washington this week.`\
+https://www.nytimes.com/2026/04/12/world/middleeast/israel-lebanon-attacks-talks.html
+
+**What Do Vegetative Patients Know?**\
+`They may have more awareness than we thought.`\
+https://www.nytimes.com/2026/04/12/briefing/what-do-vegetative-patients-know.html
+
 **In Pakistan Talks, Iran Saw a U.S. Trying to Dictate, Not Negotiate**\
 `Iran sees American demands as reaching far beyond what it achieved in war. Tehran is gambling that it can withstand further bombardment more than Washington is willing to sustain economic chaos, experts say.`\
 https://www.nytimes.com/2026/04/12/world/middleeast/iran-united-states-negotiations.html
