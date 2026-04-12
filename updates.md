@@ -1,3 +1,11 @@
+**More Than 50 Former Staffers Call on Swalwell to Quit Campaign and Resign from House**\
+`In a signed letter, they called on law enforcement officials to “open a full and thorough investigation” of the California representative.`\
+https://www.nytimes.com/2026/04/12/us/former-staffers-call-on-swalwell-to-quit-campaign-and-resign-from-house.html
+
+**Mamdani Plans to Open City-Owned Grocery Store in East Harlem**\
+`Mayor Zohran Mamdani announced plans for a city-owned grocery store at La Marqueta, moving to deliver on a campaign pledge.`\
+https://www.nytimes.com/2026/04/12/nyregion/mamdani-city-owned-grocery-store-la-marqueta.html
+
 **Hungary’s Orban Concedes Election Defeat**\
 `Hungary’s prime minister, Viktor Orban, who has inspired populist movements globally, conceded defeat on Sunday in a general election.`\
 https://www.nytimes.com/video/world/europe/100000010836655/hungary-election-viktor-orban-concedes.html
