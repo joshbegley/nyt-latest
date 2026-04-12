@@ -1,3 +1,11 @@
+**When Should Judges Sound the Alarm?**\
+`A retired judge and a law professor respond to a Page A1 article. Also: Censoring college professors; executive power after President Trump.`\
+https://www.nytimes.com/2026/04/12/opinion/judges-trump.html
+
+**On ‘S.N.L.,’ Trump Makes ‘Urgent’ Calls (Like, to Tiger Woods)**\
+`“Saturday Night Live” also satirized the Artemis II space mission in an episode hosted by Colman Domingo, while “S.N.L. UK” joined in lampooning Melania Trump.`\
+https://www.nytimes.com/2026/04/12/arts/television/on-snl-trump-urgently-calls-a-friend-or-two.html
+
 **Netanyahu Says War With Iran Is ‘Not Yet Over’**\
 `In a televised address, Prime Minister Benjamin Netanyahu of Israel sought to placate critics at home who say the war failed to achieve its goals.`\
 https://www.nytimes.com/2026/04/12/world/middleeast/netanyahu-israel-iran-war.html

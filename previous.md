@@ -1,3 +1,11 @@
+**When Should Judges Sound the Alarm?**\
+`A retired judge and a law professor respond to a Page A1 article. Also: Censoring college professors; executive power after President Trump.`\
+https://www.nytimes.com/2026/04/12/opinion/judges-trump.html
+
+**On ‘S.N.L.,’ Trump Makes ‘Urgent’ Calls (Like, to Tiger Woods)**\
+`“Saturday Night Live” also satirized the Artemis II space mission in an episode hosted by Colman Domingo, while “S.N.L. UK” joined in lampooning Melania Trump.`\
+https://www.nytimes.com/2026/04/12/arts/television/on-snl-trump-urgently-calls-a-friend-or-two.html
+
 **The ‘Islamabad Peace Talks’ Are Over. What Now for Pakistan?**\
 `With the U.S. and Iranian delegations gone from Islamabad and the cease-fire uncertain, Pakistan faces its own economic and diplomatic challenges.`\
 https://www.nytimes.com/2026/04/12/world/asia/iran-peace-talks-pakistan.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/12/us/japanese-internment-camp-idaho-wind-energy
 **‘I Can’t Endure This’: Inside a Bombarded City in Southern Lebanon**\
 `In Tyre, a city on Lebanon’s coast, near-daily bombardments by Israel have killed and injured civilians, and left many searching for shelter.`\
 https://www.nytimes.com/2026/04/12/world/middleeast/lebanon-hezbollah-israel-iran-war-tyre.html
-
-**She Invented a Dark Tale About Fame, Fandom and Young Women**\
-`In her new book “STAR,” Petra Collins, a photographer who helped shape the millennial aesthetic, lets us peek through her diffuse lens.`\
-https://www.nytimes.com/2026/04/12/style/she-invented-a-dark-tale-about-fame-fandom-and-young-women.html
-
-**If He Leaves You on a Mountain, End Your Relationship**\
-`The “Alpine divorce,” in which one partner leaves another stranded while hiking, is more serious than the name implies.`\
-https://www.nytimes.com/2026/04/12/style/alpine-divorce-relationships-hike.html
 
