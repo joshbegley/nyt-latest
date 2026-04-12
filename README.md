@@ -1,3 +1,7 @@
+**In Pakistan Talks, Iran Saw a U.S. Trying to Dictate, Not Negotiate**\
+`Iran sees American demands as reaching far beyond what it achieved in war. Tehran is gambling that it can withstand further bombardment more than Washington is willing to sustain economic chaos, experts say.`\
+https://www.nytimes.com/2026/04/12/world/middleeast/iran-united-states-negotiations.html
+
 **Netanyahu Says War With Iran is ‘Not Yet Over’**\
 `In a televised address, Prime Minister Benjamin Netanyahu of Israel sought to placate critics at home who say the war failed to achieve its goals.`\
 https://www.nytimes.com/2026/04/12/world/middleeast/netanyahu-israel-iran-war.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/12/fashion/weddings/christopher-john-rogers-brid
 **The Soundtrack to Philly’s Waning Gun Violence**\
 `Teens in Philadelphia are trying to make safer neighborhoods. Many are starting with music.`\
 https://www.nytimes.com/2026/04/12/headway/philly-teens-neighborhood-safety-music.html
-
-**The ‘Annoyance Economy’ Is More Than Just Annoying**\
-`A new estimate puts the cost of dealing with robocalls, hidden fees and customer service chatbots that can’t solve most problems at $165 billion.`\
-https://www.nytimes.com/2026/04/12/business/annoyance-economy-costs.html
 
