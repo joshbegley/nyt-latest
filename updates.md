@@ -1,3 +1,11 @@
+**Elon Musk, Who Owns X, Appears to Post on TikTok**\
+`A verified account with the @elonmusk handle also recently showed up on Instagram, as the billionaire prepares to take his rocket company SpaceX public.`\
+https://www.nytimes.com/2026/04/12/technology/elon-musk-tiktok.html
+
+**More Than 50 Former Staffers Call on Swalwell to Quit Campaign and Resign from House**\
+`In a signed letter, they called on law enforcement officials to “open a full and thorough investigation” of the California representative.`\
+https://www.nytimes.com/2026/04/12/us/eric-swalwell-staffers-campaign-governor-resign-house.html
+
 **More Than 50 Former Staffers Call on Swalwell to Quit Campaign and Resign from House**\
 `In a signed letter, they called on law enforcement officials to “open a full and thorough investigation” of the California representative.`\
 https://www.nytimes.com/2026/04/12/us/former-staffers-call-on-swalwell-to-quit-campaign-and-resign-from-house.html

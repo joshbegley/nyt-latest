@@ -1,6 +1,10 @@
+**Elon Musk, Who Owns X, Appears to Post on TikTok**\
+`A verified account with the @elonmusk handle also recently showed up on Instagram, as the billionaire prepares to take his rocket company SpaceX public.`\
+https://www.nytimes.com/2026/04/12/technology/elon-musk-tiktok.html
+
 **More Than 50 Former Staffers Call on Swalwell to Quit Campaign and Resign from House**\
 `In a signed letter, they called on law enforcement officials to “open a full and thorough investigation” of the California representative.`\
-https://www.nytimes.com/2026/04/12/us/former-staffers-call-on-swalwell-to-quit-campaign-and-resign-from-house.html
+https://www.nytimes.com/2026/04/12/us/eric-swalwell-staffers-campaign-governor-resign-house.html
 
 **Hungary’s Orban Concedes Election Defeat**\
 `Hungary’s prime minister, Viktor Orban, who has inspired populist movements globally, conceded defeat on Sunday in a general election.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/12/world/europe/hungary-election-orban-magyar.ht
 **A New Watch Fair Arrives in Geneva**\
 `A cohort of younger brand leaders has teamed up to present ‘a new wave of horology’ at Chronopolis.`\
 https://www.nytimes.com/2026/04/12/fashion/watch-fair-geneva.html
-
-**A Watch Brand With a Decidedly French Swagger**\
-`March LA.B, founded in 2009 to fill a gap in the market between “the small guys and big guys,” is making its Watches and Wonders Geneva debut.`\
-https://www.nytimes.com/2026/04/12/fashion/march-lab-watches.html
 
