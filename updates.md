@@ -1,3 +1,7 @@
+**Navy Enters Hormuz, Exits After Destroying Drone, U.S. Officials Say**\
+`Iran denied that the American destroyers had entered the strait, as negotiations for an extended cease-fire continued in Islamabad.`\
+https://www.nytimes.com/2026/04/11/us/politics/us-navy-warships-strait-of-hormuz-iran-mines.html
+
 **Push to Expel Swalwell Could Touch Off Chain Reaction of House Removal Votes**\
 `The House could move within days to consider expelling Representative Eric Swalwell, Democrat of California, in light of sexual assault allegations against him. There could be more to come for both parties.`\
 https://www.nytimes.com/2026/04/11/us/swalwell-house-removal-votes.html
