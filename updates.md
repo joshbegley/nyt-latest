@@ -1,3 +1,19 @@
+**NASA’s Artemis II Crew Returns to Houston After Lunar Mission**\
+`After splashing down in the Pacific Ocean, the Artemis II crew members reunited with their friends, families and fellow NASA astronauts in Houston on Saturday. Their voyage was the first trip by humans into deep space in more than half a century.`\
+https://www.nytimes.com/video/science/space/100000010836658/nasa-artemis-returns-lunar-mission.html
+
+**How 6 People in New York City Are Coping With Higher Costs**\
+`Surging inflation and rising prices have some people re-evaluating date nights and how much of their splurges they can share with friends.`\
+https://www.nytimes.com/2026/04/12/nyregion/nyc-inflation-prices.html
+
+**Mamdani Plans to Open First City-Owned Grocery Store in East Harlem**\
+`Mayor Zohran Mamdani will announce plans for a city-owned grocery store at La Marqueta, moving to deliver on a campaign pledge.`\
+https://www.nytimes.com/2026/04/12/nyregion/mamdani-city-owned-grocery-store-la-marqueta.html
+
+**Hungary’s Orban, Beacon to the Right, Concedes Election Defeat**\
+`Prime Minister Viktor Orban, who has inspired stpopulist movements globally, could not overcome the growing dissatisfaction of his own citizens.`\
+https://www.nytimes.com/2026/04/12/world/europe/hungary-election-orban-magyar.html
+
 **Iran’s Underground Air Force Base Was Hit Earlier in the War**\
 `Satellite imagery shows impact craters at and near the tunnel entrances to aircraft shelters at Iran’s remote “Eagle 44” base.`\
 https://www.nytimes.com/2026/04/12/world/middleeast/iran-underground-air-force-base.html
