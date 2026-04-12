@@ -1,3 +1,11 @@
+**Israel’s War**\
+`Prime Minister Benjamin Netanyahu was instrumental in taking the U.S. to war with Iran. Now, he is trying to prolong the fighting.`\
+https://www.nytimes.com/2026/04/12/world/israel-lebanon-iran-hungary-orban.html
+
+**Shaping the New Look of ‘Euphoria’**\
+`Natasha Newman-Thomas has stepped in as the new costume designer for the third season of HBO’s chaotic megahit. It’s a lofty task.`\
+https://www.nytimes.com/2026/04/12/style/euphoria-costumes.html
+
 **NASA’s Artemis II Crew Returns to Houston After Lunar Mission**\
 `After splashing down in the Pacific Ocean, the Artemis II crew members reunited with their friends, families and fellow NASA astronauts in Houston on Saturday. Their voyage was the first trip by humans into deep space in more than half a century.`\
 https://www.nytimes.com/video/science/space/100000010836658/nasa-artemis-returns-lunar-mission.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/12/world/asia/asha-bhosle-india-singer-bollywood
 **Sabrina Carpenter Apologizes for Mocking Arabic Call at Coachella**\
 `“I don’t like it,” the pop singer had said from the festival stage, after mistaking a celebratory Middle Eastern cry as a form of yodeling.`\
 https://www.nytimes.com/2026/04/12/arts/music/sabrina-carpenter-coachella-apology.html
-
-**Edna Foa, Who Pioneered Exposure Therapy to Treat PTSD, Dies at 88**\
-`A psychologist, she urged patients to confront the things that frightened them, revolutionizing her field’s approach to post-traumatic stress disorder.`\
-https://www.nytimes.com/2026/04/12/health/edna-foa-dead.html
-
-**These Lettuce Wraps Are a Joy to Cook and Eat**\
-`I love the shwoop-shwoop chopping of crisp celery and water chestnuts, the smoky hiss of browning meat and the light snap of iceberg leaves.`\
-https://www.nytimes.com/2026/04/12/dining/these-lettuce-wraps-are-a-joy-to-cook-and-eat.html
 
