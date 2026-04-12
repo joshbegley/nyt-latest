@@ -1,3 +1,11 @@
+**Iran’s Underground Air Force Base Was Hit Earlier in the War**\
+`Satellite imagery shows impact craters at and near the tunnel entrances to aircraft shelters at Iran’s remote “Eagle 44” base.`\
+https://www.nytimes.com/2026/04/12/world/middleeast/iran-underground-air-force-base.html
+
+**Hungary’s Orban, a Beacon to the Right Wing, Concedes Election Defeat**\
+`Prime Minister Viktor Orban, who has inspired populist movements globally, could not overcome the growing dissatisfaction of his own citizens.`\
+https://www.nytimes.com/2026/04/12/world/europe/hungary-election-orban-magyar.html
+
 **One Dead and 6 Injured in Shooting at Suburban Chick-fil-A**\
 `There have been no arrests in the Saturday night shooting in New Jersey. The authorities said it was not a random attack.`\
 https://www.nytimes.com/2026/04/12/nyregion/new-jersey-chick-fil-a-shooting.html

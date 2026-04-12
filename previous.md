@@ -1,3 +1,7 @@
+**Iran’s Underground Air Force Base Was Hit Earlier in the War**\
+`Satellite imagery shows impact craters at and near the tunnel entrances to aircraft shelters at Iran’s remote “Eagle 44” base.`\
+https://www.nytimes.com/2026/04/12/world/middleeast/iran-underground-air-force-base.html
+
 **One Dead and 6 Injured in Shooting at Suburban Chick-fil-A**\
 `There have been no arrests in the Saturday night shooting in New Jersey. The authorities said it was not a random attack.`\
 https://www.nytimes.com/2026/04/12/nyregion/new-jersey-chick-fil-a-shooting.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/04/12/nyregion/new-jersey-chick-fil-a-shooting.html
 `At least 30 people were killed when a crushing crowd formed at the entrance to the fortress in northern Haiti. The Citadelle is one of the country’s most famous sites.`\
 https://www.nytimes.com/2026/04/12/us/haiti-stampede-citadelle-laferriere.html
 
-**Hungary’s Orban, Beacon to the Right, Concedes Election Defeat**\
+**Hungary’s Orban, a Beacon to the Right Wing, Concedes Election Defeat**\
 `Prime Minister Viktor Orban, who has inspired populist movements globally, could not overcome the growing dissatisfaction of his own citizens.`\
 https://www.nytimes.com/2026/04/12/world/europe/hungary-election-orban-magyar.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/12/us/jd-vance-pakistan-iran-war-talks.html
 **How Do People Cope During War?**\
 `We explore how the rituals of religion persist — even as war alters the world.`\
 https://www.nytimes.com/2026/04/12/briefing/iran-peace-talks-lebanon-war.html
-
-**When Should Judges Sound the Alarm?**\
-`A retired judge and a law professor respond to a Page A1 article. Also: Censoring college professors; executive power after President Trump.`\
-https://www.nytimes.com/2026/04/12/opinion/judges-trump.html
 

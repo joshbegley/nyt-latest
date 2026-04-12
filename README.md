@@ -1,3 +1,11 @@
+**How 6 People in New York City Are Coping With Higher Costs**\
+`Surging inflation and rising prices have some people re-evaluating date nights and how much of their splurges they can share with friends.`\
+https://www.nytimes.com/2026/04/12/nyregion/nyc-inflation-prices.html
+
+**Mamdani Plans to Open First City-Owned Grocery Store in East Harlem**\
+`Mayor Zohran Mamdani will announce plans for a city-owned grocery store at La Marqueta, moving to deliver on a campaign pledge.`\
+https://www.nytimes.com/2026/04/12/nyregion/mamdani-city-owned-grocery-store-la-marqueta.html
+
 **Iran’s Underground Air Force Base Was Hit Earlier in the War**\
 `Satellite imagery shows impact craters at and near the tunnel entrances to aircraft shelters at Iran’s remote “Eagle 44” base.`\
 https://www.nytimes.com/2026/04/12/world/middleeast/iran-underground-air-force-base.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/12/dining/these-lettuce-wraps-are-a-joy-to-cook-
 **Clearing naval mines is painstaking, dangerous work.**\
 ``\
 https://www.nytimes.com/live/2026/04/12/world/iran-war-trump-talks-pakistan/clearing-naval-mines-is-painstaking-dangerous-work
-
-**21 Hours in Pakistan: How Vance Tried and Failed to End a War He Opposed**\
-`Vice President JD Vance led the highest-level talks between the United States and Iran in nearly 50 years.`\
-https://www.nytimes.com/2026/04/12/us/jd-vance-pakistan-iran-war-talks.html
-
-**How Do People Cope During War?**\
-`We explore how the rituals of religion persist — even as war alters the world.`\
-https://www.nytimes.com/2026/04/12/briefing/iran-peace-talks-lebanon-war.html
 
