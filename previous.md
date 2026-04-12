@@ -1,3 +1,23 @@
+**How the Gilgo Beach Killings Fueled a Mania for Prestige True Crime**\
+`With its lurid details and eerily desolate crime scene, the Long Island serial killer case invited rampant speculation. The reality was more mundane, and much worse.`\
+https://www.nytimes.com/2026/04/12/nyregion/gilgo-beach-murders-true-crime.html
+
+**What Happened to Shannan?**\
+`The death of 23-year-old Shannan Gilbert remains the great unsolved mystery surrounding the Gilgo Beach serial killer case.`\
+https://www.nytimes.com/2026/04/12/nyregion/shannan-gilbert-gilgo-beach-murders.html
+
+**De repente arrastraba los pies al andar. ¿Por qué?**\
+`La hidrocefalia normotensiva puede manifestarse con incontinencia urinaria, demencia o cambios en la forma de caminar y afecta a más de uno de cada 20 adultos mayores de 80 años.`\
+https://www.nytimes.com/es/2026/04/12/espanol/hidrocefalia-normotensiva-sintomas-incontinencia-caminar-adultos.html
+
+**‘I Saw a Buzzard on a Dead Tree Branch No More Than 20 Feet Away’**\
+`A bird of prey in Morningside Park, reflections on the urban bustle and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/04/12/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/12/crosswords/spelling-bee-forum.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/12/world/iran-war-trump-talks-pakistan/heres-the-latest
@@ -6,7 +26,7 @@ https://www.nytimes.com/live/2026/04/12/world/iran-war-trump-talks-pakistan/here
 `China podría haber enviado misiles a Irán, y Pekín está permitiendo que empresas vendan a Teherán suministros que pueden usarse en la producción militar, según funcionarios estadounidenses.`\
 https://www.nytimes.com/es/2026/04/12/espanol/estados-unidos/china-rol-guerra-iran.html
 
-**Trump’s War Has Weakened America**\
+**Four Ways Trump’s War Is Weakening America**\
 `The president should at long last recognize the ineptitude of his impulsive, go-it-alone approach.`\
 https://www.nytimes.com/2026/04/12/opinion/trump-iran-war-incompetence-america.html
 
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/04/12/world/europe/who-peter-magyar-hungary-electio
 **Who Is Viktor Orban?**\
 `Hungary’s prime minister, once a liberal activist, has governed for the past 16 years as a champion of “illiberal democracy.”`\
 https://www.nytimes.com/2026/04/12/world/europe/who-is-viktor-orban.html
-
-**Jailed for Love Songs? Yes, and Still Singing.**\
-`Nguyen Van Loc was persecuted for performing Hanoi’s old romantic music during (and after) the Vietnam War. He can’t stop. He won’t stop.`\
-https://www.nytimes.com/2026/04/12/world/asia/vietnam-singer-prisoner.html
-
-**‘Every Brilliant Thing,’ Now Starring Daniel Radcliffe and You**\
-`Before each performance, the actor sprints around the Hudson Theater enlisting audience members to take part in the interactive show.`\
-https://www.nytimes.com/2026/04/12/theater/daniel-radcliffe-every-brilliant-thing.html
-
-**Corrections: April 12, 2026**\
-`Corrections that appeared in print on Sunday, April 12, 2026.`\
-https://www.nytimes.com/2026/04/12/pageoneplus/corrections-april-12-2026.html
-
-**Trump Was Watching a U.F.C. Fight in Miami While Iran Talks Collapsed**\
-`On his way to Florida, President Trump said it did not matter to him if a deal with Iran was reached or not: “We win, regardless,” he said.`\
-https://www.nytimes.com/2026/04/11/us/politics/trump-ufc-iran-war.html
-
-**Push to Expel Swalwell Could Touch Off Chain Reaction of House Removal Votes**\
-`The House could move within days to consider expelling Representative Eric Swalwell, Democrat of California, in light of sexual assault allegations against him. There could be more to come for both parties.`\
-https://www.nytimes.com/2026/04/11/us/swalwell-house-removal-votes.html
 

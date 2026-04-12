@@ -1,3 +1,27 @@
+**How the Gilgo Beach Killings Fueled a Mania for Prestige True Crime**\
+`With its lurid details and eerily desolate crime scene, the Long Island serial killer case invited rampant speculation. The reality was more mundane, and much worse.`\
+https://www.nytimes.com/2026/04/12/nyregion/gilgo-beach-murders-true-crime.html
+
+**What Happened to Shannan?**\
+`The death of 23-year-old Shannan Gilbert remains the great unsolved mystery surrounding the Gilgo Beach serial killer case.`\
+https://www.nytimes.com/2026/04/12/nyregion/shannan-gilbert-gilgo-beach-murders.html
+
+**De repente arrastraba los pies al andar. ¿Por qué?**\
+`La hidrocefalia normotensiva puede manifestarse con incontinencia urinaria, demencia o cambios en la forma de caminar y afecta a más de uno de cada 20 adultos mayores de 80 años.`\
+https://www.nytimes.com/es/2026/04/12/espanol/hidrocefalia-normotensiva-sintomas-incontinencia-caminar-adultos.html
+
+**‘I Saw a Buzzard on a Dead Tree Branch No More Than 20 Feet Away’**\
+`A bird of prey in Morningside Park, reflections on the urban bustle and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/04/12/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/12/crosswords/spelling-bee-forum.html
+
+**Four Ways Trump’s War Is Weakening America**\
+`The president should at long last recognize the ineptitude of his impulsive, go-it-alone approach.`\
+https://www.nytimes.com/2026/04/12/opinion/trump-iran-war-incompetence-america.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/12/world/iran-war-trump-talks-pakistan/heres-the-latest
