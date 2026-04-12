@@ -1,3 +1,7 @@
+**Hungary’s Orban, Beacon to the Right, Concedes Election Defeat**\
+`Prime Minister Viktor Orban, who has inspired populist movements globally, could not overcome the growing dissatisfaction of his own citizens.`\
+https://www.nytimes.com/2026/04/12/world/europe/hungary-election-orban-magyar.html
+
 **NASA’s Artemis II Crew Returns to Houston After Lunar Mission**\
 `After splashing down in the Pacific Ocean, the Artemis II crew members reunited with their friends, families and fellow NASA astronauts in Houston on Saturday. Their voyage was the first trip by humans into deep space in more than half a century.`\
 https://www.nytimes.com/video/science/space/100000010836658/nasa-artemis-returns-lunar-mission.html

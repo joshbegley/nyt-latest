@@ -23,7 +23,7 @@ https://www.nytimes.com/2026/04/12/nyregion/new-jersey-chick-fil-a-shooting.html
 https://www.nytimes.com/2026/04/12/us/haiti-stampede-citadelle-laferriere.html
 
 **Hungary’s Orban, Beacon to the Right, Concedes Election Defeat**\
-`Prime Minister Viktor Orban, who has inspired stpopulist movements globally, could not overcome the growing dissatisfaction of his own citizens.`\
+`Prime Minister Viktor Orban, who has inspired populist movements globally, could not overcome the growing dissatisfaction of his own citizens.`\
 https://www.nytimes.com/2026/04/12/world/europe/hungary-election-orban-magyar.html
 
 **A New Watch Fair Arrives in Geneva**\
