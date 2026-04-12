@@ -1,3 +1,7 @@
+**Las mujeres están siendo borradas del relato estadounidense**\
+`Borrar a las mujeres del relato de una nación ha sido una estrategia que los líderes autoritarios usan para destruir las democracias.`\
+https://www.nytimes.com/es/2026/04/12/espanol/opinion/mujeres-trabajo-desigualdad.html
+
 **A pesar de las malas críticas, ‘Super Mario Galaxy: la película’ es un megahit**\
 `La secuela animada recaudó unos 373 millones de dólares en todo el mundo durante sus primeros cinco días en los cines. “A los niños les encanta la película”, dijo un analista de taquilla.`\
 https://www.nytimes.com/es/2026/04/12/espanol/cultura/super-mario-galaxy-pelicula-taquilla.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/12/world/europe/hungary-election-what-to-know.ht
 **Many Polls Say Orban Will Lose. But He Has an Edge Even Before Voting Begins.**\
 `Over 16 years, Prime Minister Viktor Orban’s party has repeatedly tweaked the electoral system to its advantage, making the vote free, but not entirely fair.`\
 https://www.nytimes.com/2026/04/12/world/europe/hungary-election-polls.html
-
-**Celebrities Need Passport Photos, Too**\
-`In 10 minutes or less, this mom-and-pop London institution produced stylish snapshots for some of the world’s biggest stars.`\
-https://www.nytimes.com/2026/04/12/books/review/passport-photo-service-philip-sharkey.html
 
