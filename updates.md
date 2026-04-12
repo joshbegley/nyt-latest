@@ -1,3 +1,23 @@
+**La inteligencia de EE. UU. muestra que China tiene un papel más activo en la guerra de Irán**\
+`China podría haber enviado misiles a Irán, y Pekín está permitiendo que empresas vendan a Teherán suministros que pueden usarse en la producción militar, según funcionarios estadounidenses.`\
+https://www.nytimes.com/es/2026/04/12/espanol/estados-unidos/china-rol-guerra-iran.html
+
+**Trump’s War Has Weakened America**\
+`The president should at long last recognize the ineptitude of his impulsive, go-it-alone approach.`\
+https://www.nytimes.com/2026/04/12/opinion/trump-iran-war-incompetence-america.html
+
+**¿Qué es exactamente la medicina de la longevidad?**\
+`Este campo está lleno de oportunidades y charlatanería. He aquí cómo navegarlo según expertos.`\
+https://www.nytimes.com/es/2026/04/12/espanol/estilos-de-vida/medicina-longevidad.html
+
+**A New Era of World War Has Arrived**\
+`As the conflicts in Ukraine and the Middle East drag on, the world war is returning.`\
+https://www.nytimes.com/2026/04/12/opinion/international-world/iran-ukraine-world-war.html
+
+**Parents, Consider Underachieving**\
+`I am just so tired, and so bad at crafts.`\
+https://www.nytimes.com/2026/04/12/opinion/parenting-kids-burn-out.html
+
 **TK**\
 `TK`\
 https://static01.nyt.com/slideshow/2026/04/12/t-magazine/tk.html
