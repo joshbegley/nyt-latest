@@ -1,3 +1,7 @@
+**Potential 2028 Democrats Flocked to His Convention. Here’s How He Sized Them Up.**\
+`In an interview with The New York Times, the Rev. Al Sharpton reflected on the performances of 10 Democrats who spoke and explained why two did not.`\
+https://www.nytimes.com/2026/04/12/us/politics/2028-democrats-presidential-sharpton.html
+
 **Israel’s War**\
 `Prime Minister Benjamin Netanyahu was instrumental in taking the U.S. to war with Iran. Now, he is trying to prolong the fighting.`\
 https://www.nytimes.com/2026/04/12/world/israel-lebanon-iran-hungary-orban.html
