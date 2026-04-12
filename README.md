@@ -1,3 +1,7 @@
+**Netanyahu Says War With Iran is ‘Not Yet Over’**\
+`In a televised address, Prime Minister Benjamin Netanyahu of Israel sought to placate critics at home who say the war failed to achieve its goals.`\
+https://www.nytimes.com/2026/04/12/world/middleeast/netanyahu-israel-iran-war.html
+
 **Hasan Piker Is Not the Enemy**\
 `Conversation is not a reward to be bestowed on those with whom we agree; it’s a base line practice.`\
 https://www.nytimes.com/2026/04/12/opinion/hasan-piker-democrats.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/12/headway/philly-teens-neighborhood-safety-musi
 **The ‘Annoyance Economy’ Is More Than Just Annoying**\
 `A new estimate puts the cost of dealing with robocalls, hidden fees and customer service chatbots that can’t solve most problems at $165 billion.`\
 https://www.nytimes.com/2026/04/12/business/annoyance-economy-costs.html
-
-**What Our Reporter Saw in Southern Lebanon**\
-`Our Beirut bureau chief, Christina Goldbaum, reports from the city of Tyre in Lebanon amid widespread evacuation warnings and incoming Israeli strikes in Israel’s war with Hezbollah.`\
-https://www.nytimes.com/video/world/middleeast/100000010810422/what-our-reporter-saw-in-southern-lebanon.html
 
