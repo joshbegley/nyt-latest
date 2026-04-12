@@ -1,3 +1,15 @@
+**A New Watch Fair Arrives in Geneva**\
+`A cohort of younger brand leaders has teamed up to present ‘a new wave of horology’ at Chronopolis.`\
+https://www.nytimes.com/2026/04/12/fashion/watch-fair-geneva.html
+
+**A Watch Brand With a Decidedly French Swagger**\
+`March LA.B, founded in 2009 to fill a gap in the market between “the small guys and big guys,” is making its Watches and Wonders Geneva debut.`\
+https://www.nytimes.com/2026/04/12/fashion/march-lab-watches.html
+
+**He Taught Himself Watchmaking and Left the Factory Floor Behind**\
+`Qian GuoBiao started repairing watches while working in a factory in China. Now, he is presenting his brand in Geneva for the first time.`\
+https://www.nytimes.com/2026/04/12/fashion/chinese-watchmaker-qian-guobiao.html
+
 **U.S.-Iran Negotiations End With No Deal**\
 `Marathon peace talks between the United States and Iran failed to produce a deal to fully reopen the Strait of Hormuz and end the war. President Trump said on social media Sunday that the U.S. would enforce a naval blockade of the Strait, potentially imperiling the already fragile two-week ceasefire.`\
 https://www.nytimes.com/video/world/middleeast/100000010836654/iran-united-states-war-negotiations.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/12/world/asia/iran-peace-talks-pakistan.html
 **Israel Launches New Attacks in Lebanon, Days Ahead of Rare Direct Talks**\
 `Israel’s campaign targeting Hezbollah in Lebanon has been a source of tension in the U.S.-Iran cease-fire. Israeli and Lebanese officials plan to meet for rare talks in Washington this week.`\
 https://www.nytimes.com/2026/04/12/world/middleeast/israel-lebanon-attacks-talks.html
-
-**What Do Vegetative Patients Know?**\
-`They may have more awareness than we thought.`\
-https://www.nytimes.com/2026/04/12/briefing/what-do-vegetative-patients-know.html
-
-**In Pakistan Talks, Iran Saw a U.S. Trying to Dictate, Not Negotiate**\
-`Iran sees American demands as reaching far beyond what the United States achieved in war. Tehran is gambling that it can withstand further bombardment more than Washington is willing to sustain economic chaos, experts say.`\
-https://www.nytimes.com/2026/04/12/world/middleeast/iran-united-states-negotiations.html
-
-**Netanyahu Says War With Iran Is ‘Not Yet Over’**\
-`In a televised address, Prime Minister Benjamin Netanyahu of Israel sought to placate critics at home who say the war failed to achieve its goals.`\
-https://www.nytimes.com/2026/04/12/world/middleeast/netanyahu-israel-iran-war.html
 
