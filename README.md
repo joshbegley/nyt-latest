@@ -1,3 +1,23 @@
+**La inteligencia de EE. UU. muestra que China tiene un papel más activo en la guerra de Irán**\
+`China podría haber enviado misiles a Irán, y Pekín está permitiendo que empresas vendan a Teherán suministros que pueden usarse en la producción militar, según funcionarios estadounidenses.`\
+https://www.nytimes.com/es/2026/04/12/espanol/estados-unidos/china-rol-guerra-iran.html
+
+**Trump’s War Has Weakened America**\
+`The president should at long last recognize the ineptitude of his impulsive, go-it-alone approach.`\
+https://www.nytimes.com/2026/04/12/opinion/trump-iran-war-incompetence-america.html
+
+**¿Qué es exactamente la medicina de la longevidad?**\
+`Este campo está lleno de oportunidades y charlatanería. He aquí cómo navegarlo según expertos.`\
+https://www.nytimes.com/es/2026/04/12/espanol/estilos-de-vida/medicina-longevidad.html
+
+**A New Era of World War Has Arrived**\
+`As the conflicts in Ukraine and the Middle East drag on, the world war is returning.`\
+https://www.nytimes.com/2026/04/12/opinion/international-world/iran-ukraine-world-war.html
+
+**Parents, Consider Underachieving**\
+`I am just so tired, and so bad at crafts.`\
+https://www.nytimes.com/2026/04/12/opinion/parenting-kids-burn-out.html
+
 **TK**\
 `TK`\
 https://static01.nyt.com/slideshow/2026/04/12/t-magazine/tk.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/04/11/us/swalwell-house-removal-votes.html
 **Second Venezuelan Doctor Detained in South Texas by Immigration Agents**\
 `An E.R. doctor was detained Saturday, just days after a family physician had been detained. Both were traveling when immigration agents took them into custody.`\
 https://www.nytimes.com/2026/04/11/us/second-venezuelan-doctor-detained-in-south-texas-by-immigration-agents.html
-
-**U.S. and Iran Hold Peace Talks in Pakistan**\
-`At a historic meeting in Islamabad, Vice President JD Vance and senior Iranian officials were seeking to make a fragile truce permanent.`\
-https://www.nytimes.com/video/world/middleeast/100000010835967/iran-us-negotiations-war.html
-
-**Artemis II Crew Reunites With Families and Fellow NASA Astronauts**\
-`The four astronauts made an emotional return to Houston a day after splashing down in the Pacific Ocean at the end of their 10-day lunar journey.`\
-https://www.nytimes.com/2026/04/11/science/nasa-artemis-moon-astronauts-houston.html
-
-**Southwest Airlines Imposes Further Limits on Portable Chargers on Flights**\
-`Starting on April 20, the airline will limit passengers to one lithium battery-powered portable charger per person.`\
-https://www.nytimes.com/2026/04/11/travel/southwest-airlines-portable-chargers.html
-
-**Judges Fired After Blocking Deportations of Pro-Palestinian Students**\
-`The immigration judges’ abrupt dismissals marked the latest efforts by the Trump administration to reshape the country’s immigration courts.`\
-https://www.nytimes.com/2026/04/11/us/politics/immigration-judges-deportations-students.html
-
-**Initial Thoughts**\
-`Lance Enfinger and John Kugelman team up for an extended challenge that’s full of abbreviations.`\
-https://www.nytimes.com/2026/04/11/crosswords/daily-puzzle-2026-04-12.html
 
