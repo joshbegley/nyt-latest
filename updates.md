@@ -1,3 +1,7 @@
+**How California Democrats Got Behind Swalwell — and Quickly Abandoned Him**\
+`Representative Eric Swalwell, a Washington figure, was largely unknown in the California State Capitol. But influential groups began backing him for governor in the weeks before he was publicly accused of sexual assault.`\
+https://www.nytimes.com/2026/04/12/us/california-democrats-eric-swalwell.html
+
 **Trump Fires Board That Oversees Presidio in San Francisco**\
 `All six board members that oversee the national historic landmark were terminated, part of the administration’s efforts to reshape the federal bureaucracy.`\
 https://www.nytimes.com/2026/04/12/us/trump-presidio-landmark-board-fired.html
