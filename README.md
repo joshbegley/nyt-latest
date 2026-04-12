@@ -1,3 +1,11 @@
+**Hungary’s Orban Concedes Election Defeat**\
+`Hungary’s prime minister, Viktor Orban, who has inspired populist movements globally, conceded defeat on Sunday in a general election.`\
+https://www.nytimes.com/video/world/europe/100000010836655/hungary-election-viktor-orban-concedes.html
+
+**Scores Killed in Nigerian Military Strikes as Clashes With Militants Intensify**\
+`Nigerian officials said they attacked a terrorist enclave, but locals and rights groups said the airstrikes hit a popular market, killing many civilians.`\
+https://www.nytimes.com/2026/04/12/world/africa/snigerian-airstrike-insurgents-civilians.html
+
 **Oil Prices Surge Above $100 After Peace Talks Fail and Trump Threatens Blockade**\
 `Oil prices surged as markets reopened on Sunday following news that U.S. peace talks with Iran had ended without a deal.`\
 https://www.nytimes.com/2026/04/12/business/oil-prices-surge-above-100-after-peace-talks-fail-and-trump-threatens-blockade.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/12/fashion/march-lab-watches.html
 **He Taught Himself Watchmaking and Left the Factory Floor Behind**\
 `Qian GuoBiao started repairing watches while working in a factory in China. Now, he is presenting his brand in Geneva for the first time.`\
 https://www.nytimes.com/2026/04/12/fashion/chinese-watchmaker-qian-guobiao.html
-
-**U.S.-Iran Negotiations End With No Deal**\
-`Marathon peace talks between the United States and Iran failed to produce a deal to fully reopen the Strait of Hormuz and end the war. President Trump said on social media Sunday that the U.S. would enforce a naval blockade of the Strait, potentially imperiling the already fragile two-week ceasefire.`\
-https://www.nytimes.com/video/world/middleeast/100000010836654/iran-united-states-war-negotiations.html
-
-**Cuba’s President Projects Defiance in Standoff With the U.S.**\
-`Miguel Díaz-Canel’s stance on “Meet the Press” reflected how Cuba is digging in against pressure from a Trump administration distracted by the war in Iran.`\
-https://www.nytimes.com/2026/04/12/world/americas/cuba-president-meet-the-press.html
 
