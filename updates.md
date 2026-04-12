@@ -1,3 +1,7 @@
+**Mass Stampede at Haitian Tourist Site Leaves Dozens Dead**\
+`The tragedy took place at the Citadelle Laferrière, a historic fortress in northern Haiti and one of the country’s defining symbols.`\
+https://www.nytimes.com/2026/04/12/world/americas/haiti-stampede-citadelle-laferriere-deaths.html
+
 **What Now? Vance Leaves Iran Talks Without a Deal.**\
 `The lack of a breakthrough after 21 hours of negotiations leaves the Trump administration facing several unpalatable options.`\
 https://www.nytimes.com/2026/04/12/us/politics/vance-iran-talks.html
