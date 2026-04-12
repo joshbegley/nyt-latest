@@ -1,3 +1,7 @@
+**Orban, Beacon to the Right, Concedes Defeat in Hungary’s Election**\
+`Prime Minister Viktor Orban, who has inspired populist movements globally, could not overcome the growing dissatisfaction of his own citizens.`\
+https://www.nytimes.com/2026/04/12/world/europe/hungary-election-orban-magyar.html
+
 **Hungary’s Orban, Beacon to the Right, Concedes Election**\
 `Prime Minister Viktor Orban, who has inspired populist movements globally, could not overcome the growing dissatisfaction of his own citizens.`\
 https://www.nytimes.com/2026/04/12/world/europe/hungary-election-orban-magyar.html
