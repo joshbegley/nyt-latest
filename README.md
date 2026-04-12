@@ -1,3 +1,7 @@
+**Push to Expel Swalwell Could Touch Off Chain Reaction of House Removal Votes**\
+`The House could move within days to consider expelling Representative Eric Swalwell, Democrat of California, in light of sexual assault allegations against him. There could be more to come for both parties.`\
+https://www.nytimes.com/2026/04/11/us/swalwell-house-removal-votes.html
+
 **Second Venezuelan Doctor Detained in South Texas by Immigration Agents**\
 `An ER doctor was detained Saturday, just days after a family physician had been detained. Both were traveling when immigration agents took them into custody.`\
 https://www.nytimes.com/2026/04/11/us/second-venezuelan-doctor-detained-in-south-texas-by-immigration-agents.html
@@ -35,7 +39,7 @@ https://www.nytimes.com/2026/04/11/business/lauren-sanchez-bezos-jeff-bezos.html
 https://www.nytimes.com/2026/04/11/us/california-lego-heist-arrest.html
 
 **Forest Hills Homeowners Win $150,000 in Battle Over Concert Noise**\
-`The Queens residents have long complained that concerts at nearby Forest Hills Stadium are degrading their quality of life. Last month, they won a small settlement from the city in a related dispute.`\
+`The Queens residents have long complained that concerts at nearby Forest Hills Stadium are degrading their quality of life. Last month, they won a settlement from the city in a related dispute.`\
 https://www.nytimes.com/2026/04/11/nyregion/forest-hills-concert-noise-settlement.html
 
 **4 Takeaways From the First Big Gathering of Potential 2028 Democratic Candidates**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/11/us/politics/postal-service-budget-mail-ballot
 **Artemis II nos mostró nuevas imágenes de la Luna**\
 `Durante 10 días, los astronautas de la misión de sobrevuelo lunar de la NASA han logrado algo casi imposible.`\
 https://www.nytimes.com/es/2026/04/11/espanol/ciencia-y-tecnologia/artemis-nasa-luna-fotos-videos.html
-
-**U.S. Moves to Deport Son of Prominent Figure in Iranian Revolution**\
-`Federal agents arrested a man whose mother served as a spokeswoman for the Islamist embassy captors during the hostage crisis that began in 1979.`\
-https://www.nytimes.com/2026/04/11/us/politics/deportation-iranian-revolution.html
 
