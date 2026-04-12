@@ -1,3 +1,11 @@
+**Push to Expel Swalwell Could Touch Off Chain Reaction of House Removal Votes**\
+`The House could move within days to consider expelling Representative Eric Swalwell, Democrat of California, in light of sexual assault allegations against him. There could be more to come for both parties.`\
+https://www.nytimes.com/2026/04/11/us/swalwell-house-removal-votes.html
+
+**Forest Hills Homeowners Win $150,000 in Battle Over Concert Noise**\
+`The Queens residents have long complained that concerts at nearby Forest Hills Stadium are degrading their quality of life. Last month, they won a settlement from the city in a related dispute.`\
+https://www.nytimes.com/2026/04/11/nyregion/forest-hills-concert-noise-settlement.html
+
 **Second Venezuelan Doctor Detained in South Texas by Immigration Agents**\
 `An ER doctor was detained Saturday, just days after a family physician had been detained. Both were traveling when immigration agents took them into custody.`\
 https://www.nytimes.com/2026/04/11/us/second-venezuelan-doctor-detained-in-south-texas-by-immigration-agents.html
