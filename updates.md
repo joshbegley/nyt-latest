@@ -1,3 +1,11 @@
+**‘Paddington’ Wins Big at the Olivier Awards**\
+`The hit musical about the beloved bear won seven awards at Britain’s equivalent of the Tonys. “Evita,” starring Rachel Zegler, took home two prizes.`\
+https://www.nytimes.com/2026/04/12/theater/olivier-awards-winners.html
+
+**Iran’s Top Negotiator Says Talks Failed Because U.S. Failed to Win Trust**\
+`Iranian officials said that while Iran had approached the negotiations in good faith, the U.S. team had failed to gain the Iranian delegation’s trust.`\
+https://www.nytimes.com/2026/04/12/world/middleeast/us-iran-negotiations.html
+
 **U.S. Must Decide Whether It Can Win Iran’s Trust, Iran’s Top Negotiator Says**\
 `Iranian officials said that while Iran had approached the negotiations in good faith, the U.S. team had failed to gain the Iranian delegation’s trust.`\
 https://www.nytimes.com/2026/04/12/world/middleeast/us-iran-negotiations.html
