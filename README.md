@@ -1,3 +1,15 @@
+**One Dead and 6 Injured in Shooting at Suburban Chick-fil-A**\
+`There have been no arrests in the Saturday night shooting in New Jersey. The authorities said it was not a random attack.`\
+https://www.nytimes.com/2026/04/12/nyregion/new-jersey-chick-fil-a-shooting.html
+
+**For Haitians, Stampede at Citadelle Laferrière Mars a Bright Spot**\
+`At least 30 people were killed when a crushing crowd formed at the entrance to the fortress in northern Haiti. The Citadelle is one of the country’s most famous sites.`\
+https://www.nytimes.com/2026/04/12/us/haiti-stampede-citadelle-laferriere.html
+
+**Hungary’s Orban, Beacon to the Right, Concedes Election Defeat**\
+`Prime Minister Viktor Orban, who has inspired populist movements globally, could not overcome the growing dissatisfaction of his own citizens.`\
+https://www.nytimes.com/2026/04/12/world/europe/hungary-election-orban-magyar.html
+
 **A New Watch Fair Arrives in Geneva**\
 `A cohort of younger brand leaders has teamed up to present ‘a new wave of horology’ at Chronopolis.`\
 https://www.nytimes.com/2026/04/12/fashion/watch-fair-geneva.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/12/briefing/iran-peace-talks-lebanon-war.html
 **When Should Judges Sound the Alarm?**\
 `A retired judge and a law professor respond to a Page A1 article. Also: Censoring college professors; executive power after President Trump.`\
 https://www.nytimes.com/2026/04/12/opinion/judges-trump.html
-
-**On ‘S.N.L.,’ Trump Makes ‘Urgent’ Calls (Like, to Tiger Woods)**\
-`“Saturday Night Live” also satirized the Artemis II space mission in an episode hosted by Colman Domingo, while “S.N.L. UK” joined in lampooning Melania Trump.`\
-https://www.nytimes.com/2026/04/12/arts/television/on-snl-trump-urgently-calls-a-friend-or-two.html
-
-**The ‘Islamabad Peace Talks’ Are Over. What Now for Pakistan?**\
-`With the U.S. and Iranian delegations gone from Islamabad and the cease-fire uncertain, Pakistan faces its own economic and diplomatic challenges.`\
-https://www.nytimes.com/2026/04/12/world/asia/iran-peace-talks-pakistan.html
-
-**Israel Launches New Attacks in Lebanon, Days Ahead of Rare Direct Talks**\
-`Israel’s campaign targeting Hezbollah in Lebanon has been a source of tension in the U.S.-Iran cease-fire. Israeli and Lebanese officials plan to meet for rare talks in Washington this week.`\
-https://www.nytimes.com/2026/04/12/world/middleeast/israel-lebanon-attacks-talks.html
 
