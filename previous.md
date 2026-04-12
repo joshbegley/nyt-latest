@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/04/11/us/swalwell-house-removal-votes.html
 
 **Second Venezuelan Doctor Detained in South Texas by Immigration Agents**\
-`An ER doctor was detained Saturday, just days after a family physician had been detained. Both were traveling when immigration agents took them into custody.`\
+`An E.R. doctor was detained Saturday, just days after a family physician had been detained. Both were traveling when immigration agents took them into custody.`\
 https://www.nytimes.com/2026/04/11/us/second-venezuelan-doctor-detained-in-south-texas-by-immigration-agents.html
 
 **U.S. and Iran Hold Peace Talks in Pakistan**\

@@ -1,3 +1,7 @@
+**Second Venezuelan Doctor Detained in South Texas by Immigration Agents**\
+`An E.R. doctor was detained Saturday, just days after a family physician had been detained. Both were traveling when immigration agents took them into custody.`\
+https://www.nytimes.com/2026/04/11/us/second-venezuelan-doctor-detained-in-south-texas-by-immigration-agents.html
+
 **Navy Enters Hormuz, Exits After Destroying Drone, U.S. Officials Say**\
 `Iran denied that the American destroyers had entered the strait, as negotiations for an extended cease-fire continued in Islamabad.`\
 https://www.nytimes.com/2026/04/11/us/politics/us-navy-warships-strait-of-hormuz-iran-mines.html
