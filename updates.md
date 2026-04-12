@@ -1,3 +1,7 @@
+**21 Hours in Pakistan: How Vance Tried and Failed to End a War He Opposed**\
+`Vice President JD Vance led the highest-level talks between the United States and Iran in nearly 50 years.`\
+https://www.nytimes.com/2026/04/12/us/jd-vance-pakistan-iran-war-talks.html
+
 **In Pakistan Talks, Iran Saw a U.S. Trying to Dictate, Not Negotiate**\
 `Iran sees American demands as reaching far beyond what the United States achieved in war. Tehran is gambling that it can withstand further bombardment more than Washington is willing to sustain economic chaos, experts say.`\
 https://www.nytimes.com/2026/04/12/world/middleeast/iran-united-states-negotiations.html

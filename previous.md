@@ -1,3 +1,7 @@
+**21 Hours in Pakistan: How Vance Tried and Failed to End a War He Opposed**\
+`Vice President JD Vance led the highest-level talks between the United States and Iran in nearly 50 years.`\
+https://www.nytimes.com/2026/04/12/us/jd-vance-pakistan-iran-war-talks.html
+
 **How Do People Cope During War?**\
 `We explore how the rituals of religion persist — even as war alters the world.`\
 https://www.nytimes.com/2026/04/12/briefing/iran-peace-talks-lebanon-war.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/12/world/americas/peru-presidential-election.htm
 **Begging, Manifesting and Dumb Luck: How Influencers Get Free Trips to Coachella**\
 `The California music festival has become the “influencer Olympics.”`\
 https://www.nytimes.com/2026/04/12/style/coachella-influencers-brand-trips.html
-
-**At a World War II Internment Camp, History Blows Away Wind Energy**\
-`A coalition of the descendants of a Japanese American internment camp and Trump-aligned wind power opponents helped kill an Idaho wind farm, but A.I.-driven energy demand keeps rising.`\
-https://www.nytimes.com/2026/04/12/us/japanese-internment-camp-idaho-wind-energy.html
 
