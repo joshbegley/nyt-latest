@@ -1,3 +1,15 @@
+**One Dead and 6 Injured in Shooting at Suburban Chick-fil-A**\
+`There have been no arrests in the Saturday night shooting in New Jersey. The authorities said it was not a random attack.`\
+https://www.nytimes.com/2026/04/12/nyregion/new-jersey-chick-fil-a-shooting.html
+
+**For Haitians, Stampede at Citadelle Laferrière Mars a Bright Spot**\
+`At least 30 people were killed when a crushing crowd formed at the entrance to the fortress in northern Haiti. The Citadelle is one of the country’s most famous sites.`\
+https://www.nytimes.com/2026/04/12/us/haiti-stampede-citadelle-laferriere.html
+
+**Hungary’s Orban, Beacon to the Right, Concedes Election Defeat**\
+`Prime Minister Viktor Orban, who has inspired populist movements globally, could not overcome the growing dissatisfaction of his own citizens.`\
+https://www.nytimes.com/2026/04/12/world/europe/hungary-election-orban-magyar.html
+
 **A New Watch Fair Arrives in Geneva**\
 `A cohort of younger brand leaders has teamed up to present ‘a new wave of horology’ at Chronopolis.`\
 https://www.nytimes.com/2026/04/12/fashion/watch-fair-geneva.html
