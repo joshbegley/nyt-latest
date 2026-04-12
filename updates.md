@@ -1,3 +1,7 @@
+**Control of the Strait of Hormuz and Iran’s Uranium Stockpiles Were Sticking Points**\
+`The U.S. had demanded that Iran immediately reopen the strait to all maritime traffic, but Iran said it would do so only after a final peace deal, according to Iranian officials.`\
+https://www.nytimes.com/2026/04/11/world/middleeast/iran-strait-of-hormuz-uranium-stockpile-sticking-points.html
+
 **Las mujeres están siendo borradas del relato estadounidense**\
 `Borrar a las mujeres del relato de una nación ha sido una estrategia que los líderes autoritarios usan para destruir las democracias.`\
 https://www.nytimes.com/es/2026/04/12/espanol/opinion/mujeres-trabajo-desigualdad.html
