@@ -1,3 +1,7 @@
+**Netanyahu Says War With Iran Is ‘Not Yet Over’**\
+`In a televised address, Prime Minister Benjamin Netanyahu of Israel sought to placate critics at home who say the war failed to achieve its goals.`\
+https://www.nytimes.com/2026/04/12/world/middleeast/netanyahu-israel-iran-war.html
+
 **The ‘Islamabad Peace Talks’ Are Over. What Now for Pakistan?**\
 `With the U.S. and Iranian delegations gone from Islamabad and the cease-fire uncertain, Pakistan faces its own economic and diplomatic challenges.`\
 https://www.nytimes.com/2026/04/12/world/asia/iran-peace-talks-pakistan.html
