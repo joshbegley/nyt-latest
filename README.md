@@ -1,3 +1,7 @@
+**NASA’s Artemis II Crew Returns to Houston After Lunar Mission**\
+`After splashing down in the Pacific Ocean, the Artemis II crew members reunited with their friends, families and fellow NASA astronauts in Houston on Saturday. Their voyage was the first trip by humans into deep space in more than half a century.`\
+https://www.nytimes.com/video/science/space/100000010836658/nasa-artemis-returns-lunar-mission.html
+
 **How 6 People in New York City Are Coping With Higher Costs**\
 `Surging inflation and rising prices have some people re-evaluating date nights and how much of their splurges they can share with friends.`\
 https://www.nytimes.com/2026/04/12/nyregion/nyc-inflation-prices.html
@@ -18,8 +22,8 @@ https://www.nytimes.com/2026/04/12/nyregion/new-jersey-chick-fil-a-shooting.html
 `At least 30 people were killed when a crushing crowd formed at the entrance to the fortress in northern Haiti. The Citadelle is one of the country’s most famous sites.`\
 https://www.nytimes.com/2026/04/12/us/haiti-stampede-citadelle-laferriere.html
 
-**Hungary’s Orban, a Beacon to the Right Wing, Concedes Election Defeat**\
-`Prime Minister Viktor Orban, who has inspired populist movements globally, could not overcome the growing dissatisfaction of his own citizens.`\
+**Hungary’s Orban, Beacon to the Right, Concedes Election Defeat**\
+`Prime Minister Viktor Orban, who has inspired stpopulist movements globally, could not overcome the growing dissatisfaction of his own citizens.`\
 https://www.nytimes.com/2026/04/12/world/europe/hungary-election-orban-magyar.html
 
 **A New Watch Fair Arrives in Geneva**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/12/health/edna-foa-dead.html
 **These Lettuce Wraps Are a Joy to Cook and Eat**\
 `I love the shwoop-shwoop chopping of crisp celery and water chestnuts, the smoky hiss of browning meat and the light snap of iceberg leaves.`\
 https://www.nytimes.com/2026/04/12/dining/these-lettuce-wraps-are-a-joy-to-cook-and-eat.html
-
-**Clearing naval mines is painstaking, dangerous work.**\
-``\
-https://www.nytimes.com/live/2026/04/12/world/iran-war-trump-talks-pakistan/clearing-naval-mines-is-painstaking-dangerous-work
 
