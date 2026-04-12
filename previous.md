@@ -1,3 +1,11 @@
+**These Lettuce Wraps Are a Joy to Cook and Eat**\
+`I love the shwoop-shwoop chopping of crisp celery and water chestnuts, the smoky hiss of browning meat and the light snap of iceberg leaves.`\
+https://www.nytimes.com/2026/04/12/dining/these-lettuce-wraps-are-a-joy-to-cook-and-eat.html
+
+**Clearing naval mines is painstaking, dangerous work.**\
+``\
+https://www.nytimes.com/live/2026/04/12/world/iran-war-trump-talks-pakistan/clearing-naval-mines-is-painstaking-dangerous-work
+
 **21 Hours in Pakistan: How Vance Tried and Failed to End a War He Opposed**\
 `Vice President JD Vance led the highest-level talks between the United States and Iran in nearly 50 years.`\
 https://www.nytimes.com/2026/04/12/us/jd-vance-pakistan-iran-war-talks.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/es/2026/04/12/espanol/america-latina/peru-elecciones-pre
 **What We Know About the Eric Swalwell Sexual Misconduct Allegations**\
 `Accusations that Mr. Swalwell, a congressman running for governor in California, sexually assaulted a former staffer and behaved inappropriately with other women have upended the race.`\
 https://www.nytimes.com/2026/04/12/us/eric-swalwell-sexual-misconduct.html
-
-**Peru Votes for President, With 35 Names on the Ballot**\
-`Few expect the vote to resolve the political instability that has plagued the country for years. Three presidents have come and gone since 2021.`\
-https://www.nytimes.com/2026/04/12/world/americas/peru-presidential-election.html
-
-**Begging, Manifesting and Dumb Luck: How Influencers Get Free Trips to Coachella**\
-`The California music festival has become the “influencer Olympics.”`\
-https://www.nytimes.com/2026/04/12/style/coachella-influencers-brand-trips.html
 

@@ -1,3 +1,11 @@
+**These Lettuce Wraps Are a Joy to Cook and Eat**\
+`I love the shwoop-shwoop chopping of crisp celery and water chestnuts, the smoky hiss of browning meat and the light snap of iceberg leaves.`\
+https://www.nytimes.com/2026/04/12/dining/these-lettuce-wraps-are-a-joy-to-cook-and-eat.html
+
+**Clearing naval mines is painstaking, dangerous work.**\
+``\
+https://www.nytimes.com/live/2026/04/12/world/iran-war-trump-talks-pakistan/clearing-naval-mines-is-painstaking-dangerous-work
+
 **21 Hours in Pakistan: How Vance Tried and Failed to End a War He Opposed**\
 `Vice President JD Vance led the highest-level talks between the United States and Iran in nearly 50 years.`\
 https://www.nytimes.com/2026/04/12/us/jd-vance-pakistan-iran-war-talks.html
