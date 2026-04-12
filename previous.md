@@ -1,3 +1,7 @@
+**Sabrina Carpenter Apologizes for Mocking Arabic Call at Coachella**\
+`“I don’t like it,” the pop singer had said from the festival stage, after mistaking a celebratory Middle Eastern cry as a form of yodeling.`\
+https://www.nytimes.com/2026/04/12/arts/music/sabrina-carpenter-coachella-apology.html
+
 **Edna Foa, Who Pioneered Exposure Therapy to Treat PTSD, Dies at 88**\
 `A psychologist, she urged patients to confront the things that frightened them, revolutionizing her field’s approach to post-traumatic stress disorder.`\
 https://www.nytimes.com/2026/04/12/health/edna-foa-dead.html
@@ -50,7 +54,7 @@ https://www.nytimes.com/2026/04/12/world/middleeast/netanyahu-israel-iran-war.ht
 `Conversation is not a reward to be bestowed on those with whom we agree; it’s a base line practice.`\
 https://www.nytimes.com/2026/04/12/opinion/hasan-piker-democrats.html
 
-**‘A Light That’s Both Historical and Eternal’**\
+**‘The Reason I’m Not an Atheist Is That I Think the Philosophical Arguments Against It Are Unanswerable’**\
 `The most monstrous pictures of God come from the Christian tradition just as the most radiant images of God come from what Christians believe.`\
 https://www.nytimes.com/2026/04/12/opinion/jesus-christianity-atheism.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/12/crosswords/strands-sidekick-771.html
 **Wordle Review No. 1,759**\
 `Scroll down for hints and conversation about the puzzle for Monday, April 13, 2026.`\
 https://www.nytimes.com/2026/04/12/crosswords/wordle-review-1759.html
-
-**En las elecciones de Perú, 35 candidatos se disputan la presidencia**\
-`Las elecciones presidenciales de este domingo son una de las contiendas más inciertas de los últimos años, marcadas por una extrema fragmentación del electorado.`\
-https://www.nytimes.com/es/2026/04/12/espanol/america-latina/peru-elecciones-presidenciales.html
 

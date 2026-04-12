@@ -1,3 +1,11 @@
+**Sabrina Carpenter Apologizes for Mocking Arabic Call at Coachella**\
+`“I don’t like it,” the pop singer had said from the festival stage, after mistaking a celebratory Middle Eastern cry as a form of yodeling.`\
+https://www.nytimes.com/2026/04/12/arts/music/sabrina-carpenter-coachella-apology.html
+
+**‘The Reason I’m Not an Atheist Is That I Think the Philosophical Arguments Against It Are Unanswerable’**\
+`The most monstrous pictures of God come from the Christian tradition just as the most radiant images of God come from what Christians believe.`\
+https://www.nytimes.com/2026/04/12/opinion/jesus-christianity-atheism.html
+
 **Edna Foa, Who Pioneered Exposure Therapy to Treat PTSD, Dies at 88**\
 `A psychologist, she urged patients to confront the things that frightened them, revolutionizing her field’s approach to post-traumatic stress disorder.`\
 https://www.nytimes.com/2026/04/12/health/edna-foa-dead.html
