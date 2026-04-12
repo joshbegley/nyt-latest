@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/04/12/nyregion/new-jersey-chick-fil-a-shooting.html
 `At least 30 people were killed when a crushing crowd formed at the entrance to the fortress in northern Haiti. The Citadelle is one of the country’s most famous sites.`\
 https://www.nytimes.com/2026/04/12/us/haiti-stampede-citadelle-laferriere.html
 
-**Hungary’s Orban, Beacon to the Right, Concedes Election Defeat**\
+**Hungary’s Orban, Beacon to the Right, Concedes Election**\
 `Prime Minister Viktor Orban, who has inspired populist movements globally, could not overcome the growing dissatisfaction of his own citizens.`\
 https://www.nytimes.com/2026/04/12/world/europe/hungary-election-orban-magyar.html
 
