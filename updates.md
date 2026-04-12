@@ -1,3 +1,7 @@
+**Netanyahu Says War With Iran is ‘Not Yet Over’**\
+`In a televised address, Prime Minister Benjamin Netanyahu of Israel sought to placate critics at home who say the war failed to achieve its goals.`\
+https://www.nytimes.com/2026/04/12/world/middleeast/netanyahu-israel-iran-war.html
+
 **Hasan Piker Is Not the Enemy**\
 `Conversation is not a reward to be bestowed on those with whom we agree; it’s a base line practice.`\
 https://www.nytimes.com/2026/04/12/opinion/hasan-piker-democrats.html
