@@ -1,3 +1,7 @@
+**Potential 2028 Democrats Flocked to His Convention. Here’s How He Sized Them Up.**\
+`In an interview with The New York Times, the Rev. Al Sharpton reflected on the performances of 10 Democrats who spoke and explained why two did not.`\
+https://www.nytimes.com/2026/04/12/us/politics/2028-democrats-presidential-sharpton.html
+
 **Israel’s War**\
 `Prime Minister Benjamin Netanyahu was instrumental in taking the U.S. to war with Iran. Now, he is trying to prolong the fighting.`\
 https://www.nytimes.com/2026/04/12/world/israel-lebanon-iran-hungary-orban.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/12/us/trump-presidio-landmark-board-fired.html
 **Asha Bhosle, One of India’s Most Beloved Singers, Dies at 92**\
 `Her distinctive and adventurous voice was the soundtrack for generations of Bollywood films.`\
 https://www.nytimes.com/2026/04/12/world/asia/asha-bhosle-india-singer-bollywood.html
-
-**Sabrina Carpenter Apologizes for Mocking Arabic Call at Coachella**\
-`“I don’t like it,” the pop singer had said from the festival stage, after mistaking a celebratory Middle Eastern cry as a form of yodeling.`\
-https://www.nytimes.com/2026/04/12/arts/music/sabrina-carpenter-coachella-apology.html
 
