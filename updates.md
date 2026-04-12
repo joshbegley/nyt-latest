@@ -1,3 +1,7 @@
+**Trump Fires Board That Oversees Presidio in San Francisco**\
+`All six board members that oversee the national historic landmark were terminated, part of the administration’s efforts to reshape the federal bureaucracy.`\
+https://www.nytimes.com/2026/04/12/us/trump-presidio-landmark-board-fired.html
+
 **Asha Bhosle, One of India’s Most Beloved Singers, Dies at 92**\
 `Her distinctive and adventurous voice was the soundtrack for generations of Bollywood films.`\
 https://www.nytimes.com/2026/04/12/world/asia/asha-bhosle-india-singer-bollywood.html
