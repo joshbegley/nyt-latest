@@ -1,3 +1,7 @@
+**Mass Stampede at Haitian Tourist Site Leaves Dozens Dead**\
+`The tragedy took place at the Citadelle Laferrière, a historic fortress in northern Haiti and one of the country’s defining symbols.`\
+https://www.nytimes.com/2026/04/12/world/americas/haiti-stampede-citadelle-laferriere-deaths.html
+
 **What Now? Vance Leaves Iran Talks Without a Deal.**\
 `The lack of a breakthrough after 21 hours of negotiations leaves the Trump administration facing several unpalatable options.`\
 https://www.nytimes.com/2026/04/12/us/politics/vance-iran-talks.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/us/100000010835997/police-fatally-shoot-man-with-m
 **Someone Has to Be Happy. Why Not Lauren Sánchez Bezos?**\
 `As half of an unfathomably powerful couple, Mrs. Sánchez Bezos seems to have influenced the uber-rich to stop apologizing, and start enjoying themselves.`\
 https://www.nytimes.com/2026/04/11/business/lauren-sanchez-bezos-jeff-bezos.html
-
-**3 Men Are Arrested in $1 Million Lego Theft in California**\
-`Sheriff’s deputies spotted the men fleeing in two box trucks on Wednesday. Deputies searching the cargo discovered a large amount of Lego products, the authorities said.`\
-https://www.nytimes.com/2026/04/11/us/california-lego-heist-arrest.html
 
