@@ -1,3 +1,7 @@
+**U.S. Must Decide Whether It Can Win Iran’s Trust, Iran’s Top Negotiator Says**\
+`Iranian officials said that while Iran had approached the negotiations in good faith, the U.S. team had failed to gain the Iranian delegation’s trust.`\
+https://www.nytimes.com/2026/04/12/world/middleeast/us-iran-negotiations.html
+
 **How California Democrats Got Behind Swalwell — and Quickly Abandoned Him**\
 `Representative Eric Swalwell, a Washington figure, was largely unknown in the California State Capitol. But influential groups began backing him for governor in the weeks before he was publicly accused of sexual assault.`\
 https://www.nytimes.com/2026/04/12/us/california-democrats-eric-swalwell.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/12/opinion/jesus-christianity-atheism.html
 **High Gas Prices Won’t End Even if the War Does**\
 `Why a cease-fire in Iran won’t bring gasoline prices down.`\
 https://www.nytimes.com/2026/04/12/opinion/gas-prices-iran.html
-
-**One Reporter’s Life-Altering Psychedelic Trip**\
-`Early studies show that the obscure drug ibogaine can help treat trauma. Could it help our correspondent?`\
-https://www.nytimes.com/2026/04/12/podcasts/the-daily/ibogaine-drug-trip.html
 

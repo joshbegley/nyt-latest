@@ -1,4 +1,8 @@
-**U.S. Must Decide Whether It Can Win Iran’s Trust, Iran’s Top Negotiator Says**\
+**‘Paddington’ Wins Big at the Olivier Awards**\
+`The hit musical about the beloved bear won seven awards at Britain’s equivalent of the Tonys. “Evita,” starring Rachel Zegler, took home two prizes.`\
+https://www.nytimes.com/2026/04/12/theater/olivier-awards-winners.html
+
+**Iran’s Top Negotiator Says Talks Failed Because U.S. Failed to Win Trust**\
 `Iranian officials said that while Iran had approached the negotiations in good faith, the U.S. team had failed to gain the Iranian delegation’s trust.`\
 https://www.nytimes.com/2026/04/12/world/middleeast/us-iran-negotiations.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/12/opinion/hasan-piker-democrats.html
 **‘The Reason I’m Not an Atheist Is That I Think the Philosophical Arguments Against It Are Unanswerable’**\
 `The most monstrous pictures of God come from the Christian tradition just as the most radiant images of God come from what Christians believe.`\
 https://www.nytimes.com/2026/04/12/opinion/jesus-christianity-atheism.html
-
-**High Gas Prices Won’t End Even if the War Does**\
-`Why a cease-fire in Iran won’t bring gasoline prices down.`\
-https://www.nytimes.com/2026/04/12/opinion/gas-prices-iran.html
 
