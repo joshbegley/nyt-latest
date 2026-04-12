@@ -1,3 +1,31 @@
+**Hasan Piker Is Not the Enemy**\
+`Conversation is not a reward to be bestowed on those with whom we agree; it’s a base line practice.`\
+https://www.nytimes.com/2026/04/12/opinion/hasan-piker-democrats.html
+
+**‘A Light That’s Both Historical and Eternal’**\
+`The most monstrous pictures of God come from the Christian tradition just as the most radiant images of God come from what Christians believe.`\
+https://www.nytimes.com/2026/04/12/opinion/jesus-christianity-atheism.html
+
+**Don’t Expect Gas Prices to Go Down Anytime Soon**\
+`Why a cease-fire in Iran won’t bring gasoline prices down.`\
+https://www.nytimes.com/2026/04/12/opinion/gas-prices-iran.html
+
+**One Reporter’s Life-Altering Psychedelic Trip**\
+`Early studies show that the obscure drug ibogaine can help treat trauma. Could it help our correspondent?`\
+https://www.nytimes.com/2026/04/12/podcasts/the-daily/ibogaine-drug-trip.html
+
+**Connections Companion No. 1,037**\
+`Scroll down for hints and conversation about the puzzle for Monday, April 13, 2026.`\
+https://www.nytimes.com/2026/04/12/crosswords/connections-companion-1037.html
+
+**Strands Sidekick No. 771**\
+`Scroll down for hints and conversation about the puzzle for Monday, April 13, 2026.`\
+https://www.nytimes.com/2026/04/12/crosswords/strands-sidekick-771.html
+
+**Wordle Review No. 1,759**\
+`Scroll down for hints and conversation about the puzzle for Monday, April 13, 2026.`\
+https://www.nytimes.com/2026/04/12/crosswords/wordle-review-1759.html
+
 **En las elecciones de Perú, 35 candidatos se disputan la presidencia**\
 `Las elecciones presidenciales de este domingo son una de las contiendas más inciertas de los últimos años, marcadas por una extrema fragmentación del electorado.`\
 https://www.nytimes.com/es/2026/04/12/espanol/america-latina/peru-elecciones-presidenciales.html

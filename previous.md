@@ -1,3 +1,31 @@
+**Hasan Piker Is Not the Enemy**\
+`Conversation is not a reward to be bestowed on those with whom we agree; it’s a base line practice.`\
+https://www.nytimes.com/2026/04/12/opinion/hasan-piker-democrats.html
+
+**‘A Light That’s Both Historical and Eternal’**\
+`The most monstrous pictures of God come from the Christian tradition just as the most radiant images of God come from what Christians believe.`\
+https://www.nytimes.com/2026/04/12/opinion/jesus-christianity-atheism.html
+
+**Don’t Expect Gas Prices to Go Down Anytime Soon**\
+`Why a cease-fire in Iran won’t bring gasoline prices down.`\
+https://www.nytimes.com/2026/04/12/opinion/gas-prices-iran.html
+
+**One Reporter’s Life-Altering Psychedelic Trip**\
+`Early studies show that the obscure drug ibogaine can help treat trauma. Could it help our correspondent?`\
+https://www.nytimes.com/2026/04/12/podcasts/the-daily/ibogaine-drug-trip.html
+
+**Connections Companion No. 1,037**\
+`Scroll down for hints and conversation about the puzzle for Monday, April 13, 2026.`\
+https://www.nytimes.com/2026/04/12/crosswords/connections-companion-1037.html
+
+**Strands Sidekick No. 771**\
+`Scroll down for hints and conversation about the puzzle for Monday, April 13, 2026.`\
+https://www.nytimes.com/2026/04/12/crosswords/strands-sidekick-771.html
+
+**Wordle Review No. 1,759**\
+`Scroll down for hints and conversation about the puzzle for Monday, April 13, 2026.`\
+https://www.nytimes.com/2026/04/12/crosswords/wordle-review-1759.html
+
 **En las elecciones de Perú, 35 candidatos se disputan la presidencia**\
 `Las elecciones presidenciales de este domingo son una de las contiendas más inciertas de los últimos años, marcadas por una extrema fragmentación del electorado.`\
 https://www.nytimes.com/es/2026/04/12/espanol/america-latina/peru-elecciones-presidenciales.html
@@ -49,32 +77,4 @@ https://www.nytimes.com/2026/04/12/business/annoyance-economy-costs.html
 **What Our Reporter Saw in Southern Lebanon**\
 `Our Beirut bureau chief, Christina Goldbaum, reports from the city of Tyre in Lebanon amid widespread evacuation warnings and incoming Israeli strikes in Israel’s war with Hezbollah.`\
 https://www.nytimes.com/video/world/middleeast/100000010810422/what-our-reporter-saw-in-southern-lebanon.html
-
-**America’s Fastest-Growing County Wonders if ‘Paradise’ Is Growing Too Fast**\
-`Jasper County, S.C., along the coast, has seen a crush of newcomers in recent years, drawn by its proximity to beaches and low taxes. Locals fear they may be losing their rural way of life.`\
-https://www.nytimes.com/2026/04/12/us/jasper-county-south-carolina-population-growth.html
-
-**Peloton’s Latest Leader Thinks He Can Coach It Back to Health**\
-`The fitness company has fallen to a small fraction of its value at its pandemic peak, but Peter Stern says Peloton is headed in the right direction.`\
-https://www.nytimes.com/2026/04/12/business/peloton-peter-stern.html
-
-**Mutually Automated Destruction: The Escalating Global A.I. Arms Race**\
-`China, the U.S., Russia and others have ramped up their contest over artificial-intelligence-backed weapons and military systems. The buildup has been compared to the dawn of the nuclear weapons age.`\
-https://www.nytimes.com/2026/04/12/technology/china-russia-us-ai-weapons.html
-
-**‘Housewives’ and Lawmakers See a Congress Devolving Into Reality TV Drama**\
-`A visit to the Capitol by stars of the “Real Housewives” offered a glimpse into how the nation’s elected representatives mimic the gossipy world of reality TV. Nobody appears to relish the similarities.`\
-https://www.nytimes.com/2026/04/12/us/politics/real-housewives-congress.html
-
-**Rejected by Dozens of Emergency Rooms: South Korea’s Medical Crisis**\
-`Hundreds of patients every year have trouble finding emergency care, even though the country has a world-class medical system. For some, the delays have been fatal.`\
-https://www.nytimes.com/2026/04/12/world/asia/south-korea-emergency-room-medical-crisis.html
-
-**This Vinyl-Listening Club in Brooklyn Slows Down for the Whole Album**\
-`At Cue the Record gatherings, people treat iconic albums like literature, while still feeling the beat.`\
-https://www.nytimes.com/2026/04/12/us/cue-the-record-nyc-vinyl-listening-club.html
-
-**A Very Old-Fashioned Novel Has Made a Star Out of a Very Young Writer**\
-`Just 22 and still a student, Nelio Biedermann has been compared to Thomas Mann thanks to “Lázár,” his sweeping family saga.`\
-https://www.nytimes.com/2026/04/12/books/review/nelio-biedermann-interview-lazar.html
 
