@@ -23,7 +23,7 @@ https://www.nytimes.com/2026/04/12/world/middleeast/israel-lebanon-attacks-talks
 https://www.nytimes.com/2026/04/12/briefing/what-do-vegetative-patients-know.html
 
 **In Pakistan Talks, Iran Saw a U.S. Trying to Dictate, Not Negotiate**\
-`Iran sees American demands as reaching far beyond what it achieved in war. Tehran is gambling that it can withstand further bombardment more than Washington is willing to sustain economic chaos, experts say.`\
+`Iran sees American demands as reaching far beyond what the United States achieved in war. Tehran is gambling that it can withstand further bombardment more than Washington is willing to sustain economic chaos, experts say.`\
 https://www.nytimes.com/2026/04/12/world/middleeast/iran-united-states-negotiations.html
 
 **Netanyahu Says War With Iran Is ‘Not Yet Over’**\

@@ -1,3 +1,7 @@
+**In Pakistan Talks, Iran Saw a U.S. Trying to Dictate, Not Negotiate**\
+`Iran sees American demands as reaching far beyond what the United States achieved in war. Tehran is gambling that it can withstand further bombardment more than Washington is willing to sustain economic chaos, experts say.`\
+https://www.nytimes.com/2026/04/12/world/middleeast/iran-united-states-negotiations.html
+
 **How Do People Cope During War?**\
 `We explore how the rituals of religion persist — even as war alters the world.`\
 https://www.nytimes.com/2026/04/12/briefing/iran-peace-talks-lebanon-war.html
