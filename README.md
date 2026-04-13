@@ -1,3 +1,11 @@
+**What’s Next in the Volatile California Governor’s Race?**\
+`For Democrats, the drama is reverberating well beyond the state.`\
+https://www.nytimes.com/2026/04/13/us/politics/swalwell-california-governor.html
+
+**11 Unforgettable Looks at Coachella**\
+`The fashion at the festival is rarely rooted in reality. That’s what makes it fun.`\
+https://www.nytimes.com/2026/04/13/style/coachella-fashion-justin-bieber.html
+
 **The U.S. Blockades Iran’s Ports**\
 `Also, Trump clashes with the pope. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/04/13/briefing/the-us-blockades-irans-ports.html
@@ -7,7 +15,7 @@ https://www.nytimes.com/2026/04/13/briefing/the-us-blockades-irans-ports.html
 https://www.nytimes.com/2026/04/13/world/asia/concert-venue-shortage-south-korea.html
 
 **Lena Dunham Is Still Trying to Figure Out Why People Hated Her So Much**\
-`Lena Dunham sits down with The Interview co-host, David Marchese, to discuss her new memoir “Famesick.”`\
+`Lena Dunham sits down with The Interview co-host, David Marchese, to discuss her new memoir “Famesick.” Editors’ Note: This conversation omitted the outcome of rape allegations against the “Girls” writer Murray Miller. The Los Angeles District Attorney’s Office did not press charges against Mr. Miller, who denied the accusation.`\
 https://www.nytimes.com/video/podcasts/100000010838823/lena-dunham-is-still-trying-to-figure-out-why-people-hated-her-so-much.html
 
 **What the Naval Blockade of Iran Might Look Like**\
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/opinion/100000010825220/no-trump-is-not-a-genius-n
 **Police Arrest Woman Accused of Stalking Fleetwood Mac Guitarist**\
 `The guitarist, Lindsey Buckingham, had obtained a restraining order against the woman two years ago, but the police said she continued to follow him in March.`\
 https://www.nytimes.com/2026/04/13/us/fleetwood-mac-lindsey-buckingham-stalker-arrest.html
-
-**Threats to Library Funding End With Settlement by Trump Administration**\
-`The American Library Association filed a lawsuit arguing that cuts ordered by President Trump were illegal because they did not have congressional approval.`\
-https://www.nytimes.com/2026/04/13/arts/library-agency-trump-settlement.html
-
-**Teen Is Charged With Murdering His Stepsister on a Carnival Cruise**\
-`The 16-year-old boy, identified only as T.H. in court papers, was charged with murder and sexual abuse in the death of Anna Kepner, 18.`\
-https://www.nytimes.com/2026/04/13/us/carnival-cruise-murder-abuse-charged.html
 
