@@ -1,3 +1,19 @@
+**So Much for Springtime: The East Coast Braces for Summer Heat**\
+`Washington could hit 90 or higher. New York won’t be far behind. But it won’t last long.`\
+https://www.nytimes.com/2026/04/13/weather/nyc-dc-atlanta-east-coast-heat-wave-forecast.html
+
+**Prosecutors Investigate ICE Agents Who Detained a Minnesota Man in His Underwear**\
+`ChongLy Scott Thao, a naturalized U.S. citizen, was briefly detained during a federal immigration crackdown in Minnesota in January.`\
+https://www.nytimes.com/2026/04/13/us/ice-minnesota-arrest-immigration-investigation.html
+
+**Trump retira una publicación con una imagen de sí mismo como una figura similar a Jesús**\
+`La imagen, que se publicó en Truth Social y desapareció la mañana del lunes, provocó una reacción negativa incluso entre algunos destacados conservadores.`\
+https://www.nytimes.com/es/2026/04/13/espanol/estados-unidos/trump-papa-jesus-ia-imagen.html
+
+**As Internet Blackout Hits Day 45, Iranians Bemoan State Hypocrisy and Economic Risks**\
+`Iranians enduring the latest communications shutdown warn that it’s crippling businesses. Critics say officials flagrantly use the internet they block citizens from.`\
+https://www.nytimes.com/2026/04/13/world/middleeast/iran-internet-blackout.html
+
 **Tucker Carlson Is Starting a Publishing Imprint**\
 `Tucker Carlson Books, a joint venture between Carlson’s media company and Skyhorse Publishing, will put out books by Russell Brand, Milo Yiannopoulos and more.`\
 https://www.nytimes.com/2026/04/13/books/tucker-carlson-book-publisher.html
@@ -34,8 +50,8 @@ https://www.nytimes.com/2026/04/13/us/politics/trump-mental-fitness-25th-amendme
 `The vessels exited the Strait of Hormuz on Monday, hours before a U.S. naval blockade took effect.`\
 https://www.nytimes.com/2026/04/13/world/middleeast/strait-hormuz-shipping-iran-blockade-trump.html
 
-**Catholic Leaders Defend Pope and Criticize Trump After Harsh Attacks**\
-`A prominent conservative bishop who serves on President Trump’s Religious Liberty Commission was among those who called on the president to apologize.`\
+**Trump Attack on Pope and Posting of Jesus Image Draw Widespread Criticism**\
+`A prominent conservative bishop was among the Catholic leaders who jumped to the pope’s defense.`\
 https://www.nytimes.com/2026/04/13/us/trump-pope-leo.html
 
 **Palabra del día: ‘irrevocable’**\
@@ -61,20 +77,4 @@ https://www.nytimes.com/es/2026/04/13/espanol/america-latina/elecciones-peru-res
 **¿Qué tan saludable es la avena?**\
 `Una superestrella nutricional que realmente marca la diferencia.`\
 https://www.nytimes.com/es/2026/04/13/espanol/estilos-de-vida/avena-salud-beneficios.html
-
-**Man Arrested After U.S. Military Aircraft Damaged in Ireland**\
-`A man was arrested on Saturday and accused of criminal damage at Shannon Airport in western Ireland, police said.`\
-https://www.nytimes.com/2026/04/13/us/shannon-airport-c-130-damage-man-breaks-in.html
-
-**NATO Is Imperfect but Necessary, World War II Veterans Say**\
-`As President Trump renews threats to pull the United States from NATO, veterans reflect on the alliance that has existed more than 75 years.`\
-https://www.nytimes.com/2026/04/13/us/world-war-ii-veterans-nato-trump.html
-
-**Swalwell’s Fall Punctuates Woes of Democrats in California, of All Places**\
-`Democrats have struggled to find a candidate for governor who can capture the imagination of voters in one of their most important strongholds.`\
-https://www.nytimes.com/2026/04/13/us/politics/eric-swalwell-democrats-california.html
-
-**Tikka in no Time**\
-`Zainab Shah’s sheet-pan shrimp tikka, redolent with cumin, coriander, turmeric and mild Kashmiri chile, is on the table in under an hour.`\
-https://www.nytimes.com/2026/04/13/dining/tikka-in-no-time.html
 
