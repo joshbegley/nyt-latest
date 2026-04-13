@@ -1,3 +1,7 @@
+**La industria eléctrica de China podría salir beneficiada de la guerra en Medio Oriente**\
+`Un grupo de empresas chinas está a punto de ganar a lo grande con la crisis energética desencadenada por la guerra en Irán, gracias al auge de la inversión en inteligencia artificial.`\
+https://www.nytimes.com/es/2026/04/13/espanol/negocios/china-industria-electrica-guerra-beneficio.html
+
 **La visita de los reyes de los Países Bajos a la Casa Blanca crea polémica**\
 `El rey y la reina de los Países Bajos se alojarán en la Casa Blanca el lunes por la noche. En un momento de tensión transatlántica, los neerlandeses no están seguros de cómo se sienten al respecto.`\
 https://www.nytimes.com/es/2026/04/13/espanol/mundo/reyes-paises-bajos-maxima-trump-visita.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/13/espanol/que-significa-irrevocable.html
 **Pride Flag Can Fly at Stonewall After Trump Administration Reversal**\
 `The settlement ends a symbolic attack on the L.G.B.T.Q. rights movement and deals a blow to the administration’s assault on diversity initiatives.`\
 https://www.nytimes.com/2026/04/13/nyregion/pride-flag-stonewall-trump.html
-
-**Shipping Companies Remain Reluctant to Sail Through Strait of Hormuz**\
-`The United States said it has started to block vessels doing business with Iran from the strait. Details on how that would work are unclear.`\
-https://www.nytimes.com/2026/04/13/business/shipping-iran-strait-of-hormuz.html
 
