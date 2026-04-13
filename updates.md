@@ -1,3 +1,15 @@
+**Britain Will Not Join U.S. Blockade of Strait of Hormuz, Starmer Says**\
+`Prime Minister Keir Starmer said the U.K.’s diplomatic efforts are directed at keeping the vital waterway “open, not shut.”`\
+https://www.nytimes.com/2026/04/13/world/europe/iran-blockade-strait-hormuz-uk-starmer-trump.html
+
+**Pope Leo, Hours After Trump Criticism, Says He Has ‘No Fear’**\
+`President Trump lashed out on Sunday night at Pope Leo XIV, who responded hours later by saying he would continue to oppose war.`\
+https://www.nytimes.com/2026/04/13/us/politics/pope-leo-trump-response.html
+
+**Trump Said Other Countries Would Help Blockade Iran. So Far, There Are No Takers.**\
+`President Trump’s announcement of a complete U.S. blockade was his latest effort to pressure Iran to negotiate after direct talks over the weekend did not yield an agreement.`\
+https://www.nytimes.com/2026/04/13/world/middleeast/trump-iran-blockade-strait-of-hormuz.html
+
 **Israelis Don’t Feel Much Like Victors in War With Iran**\
 `The regime in Iran has not changed and the nuclear and missile threats have not been eliminated, leaving many Israelis to wonder what this was all for.`\
 https://www.nytimes.com/2026/04/13/world/israeli-iran-war-polls.html
