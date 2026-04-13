@@ -1,3 +1,7 @@
+**Trump Attack on Pope and Posting of Jesus Image Draw Widespread Criticism**\
+`A prominent conservative bishop who serves on President Trump’s Religious Liberty Commission was among those who called on the president to apologize.`\
+https://www.nytimes.com/2026/04/13/us/trump-pope-leo.html
+
 **Trump, Unchecked and Unpredictable**\
 `Readers respond to a guest essay, “Trump Is Turning America Into a Psychotic State.” Also: Viktor Orban’s defeat in Hungary.`\
 https://www.nytimes.com/2026/04/13/opinion/trump-unchecked-unpredictable.html

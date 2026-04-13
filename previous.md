@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/04/13/us/politics/trump-mental-fitness-25th-amendme
 `The vessels exited the Strait of Hormuz on Monday, hours before a U.S. naval blockade took effect.`\
 https://www.nytimes.com/2026/04/13/world/middleeast/strait-hormuz-shipping-iran-blockade-trump.html
 
-**Trump Attack on Pope and Posting of Jesus Image Draws Widespread Criticism**\
+**Trump Attack on Pope and Posting of Jesus Image Draw Widespread Criticism**\
 `A prominent conservative bishop who serves on President Trump’s Religious Liberty Commission was among those who called on the president to apologize.`\
 https://www.nytimes.com/2026/04/13/us/trump-pope-leo.html
 
