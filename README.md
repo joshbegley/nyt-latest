@@ -1,3 +1,7 @@
+**Sid Krofft, 96, a Creator of Trippy Kids’ Shows Like ‘H.R. Pufnstuf,’ Dies**\
+`With his brother Marty, he released a string of zany children’s programs. Some became cult favorites (even among adults) and others flopped.`\
+https://www.nytimes.com/2026/04/13/arts/television/sid-krofft-dead.html
+
 **La industria eléctrica de China podría salir beneficiada de la guerra en Medio Oriente**\
 `Un grupo de empresas chinas está a punto de ganar a lo grande con la crisis energética desencadenada por la guerra en Irán, gracias al auge de la inversión en inteligencia artificial.`\
 https://www.nytimes.com/es/2026/04/13/espanol/negocios/china-industria-electrica-guerra-beneficio.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/13/us/trump-pope-leo.html
 **Palabra del día: ‘irrevocable’**\
 `Esta palabra ha aparecido en 37 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/04/13/espanol/que-significa-irrevocable.html
-
-**Pride Flag Can Fly at Stonewall After Trump Administration Reversal**\
-`The settlement ends a symbolic attack on the L.G.B.T.Q. rights movement and deals a blow to the administration’s assault on diversity initiatives.`\
-https://www.nytimes.com/2026/04/13/nyregion/pride-flag-stonewall-trump.html
 
