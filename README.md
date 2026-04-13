@@ -1,3 +1,7 @@
+**As London Celebrates the Best of Theater, Musicals Are All the Rage**\
+`Critics reflect on the 2026 Olivier Awards, which recognized homegrown British talent and some productions headed for New York.`\
+https://www.nytimes.com/2026/04/13/arts/olivier-awards-winners-critics.html
+
 **Hollywood Heavyweights Sign Letter Opposing Paramount’s Deal for Warner Bros.**\
 `The letter warns that the deal will result in fewer jobs for creatives, along with higher costs and less choice for audiences.`\
 https://www.nytimes.com/2026/04/13/business/media/hollywood-letter-opposing-paramount-warner-bros-deal.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/13/world/europe/hungary-orban-ukraine-zelensky.h
 **Film Club: ‘Buckle Up, Women. Cars Still Aren’t Built for You.’**\
 `An Opinion video argues that auto safety standards have ignored women for over a half a century. What should be done to change that?`\
 https://www.nytimes.com/2026/04/13/learning/film-club-buckle-up-women-cars-still-arent-built-for-you.html
-
-**4 Takeaways From Viktor Orban’s Defeat in Hungary’s Election**\
-`Economics and unhappiness with endemic corruption helped Peter Magyar, the challenger, secure victory. A visit by the U.S. vice president in support of Mr. Orban didn’t change things.`\
-https://www.nytimes.com/2026/04/13/world/europe/hungary-election-results-orban-magyar.html
 
