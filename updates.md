@@ -1,3 +1,7 @@
+**La guerra de Trump está debilitando a EE. UU. de 4 maneras**\
+`El presidente debería reconocer la ineptitud de su enfoque impulsivo y egoísta.`\
+https://www.nytimes.com/es/2026/04/13/espanol/opinion/trump-guerra-iran-eeuu.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/13/world/iran-war-trump-news/heres-the-latest
