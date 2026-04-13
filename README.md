@@ -4,7 +4,7 @@ https://www.nytimes.com/2026/04/13/well/fda-clinical-trials.html
 
 **Judge Dismisses Trump’s Suit Against The Wall Street Journal**\
 `The judge said Mr. Trump had not “plausibly alleged” that The Journal published the article with actual malice.`\
-https://www.nytimes.com/2026/04/13/business/media/judge-dismisses-trumps-suit-against-the-wall-street-journal.html
+https://www.nytimes.com/2026/04/13/business/media/trump-wall-street-journal-lawsuit-dismissed-epstein.html
 
 **Iran Blockade Sets Up a Test of Which Side Can Endure More Pain**\
 `President Trump is trying to choke off the country’s lifeline with a blockade of the Strait of Hormuz. But the Iranians are betting that his tolerance for political pain is limited.`\
