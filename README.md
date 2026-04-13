@@ -1,4 +1,4 @@
-**The Next Test in the Iran War: Which Side Can Endure More Economic Pain?**\
+**Iran Blockade Sets Up a Test of Which Side Can Endure More Pain**\
 `President Trump is trying to choke off the country’s lifeline with a blockade of the Strait of Hormuz. But the Iranians are betting that his tolerance for political pain is limited.`\
 https://www.nytimes.com/2026/04/13/us/politics/iran-war-strait-of-hormuz-blockade-economy.html
 
