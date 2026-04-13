@@ -1,3 +1,11 @@
+**Mocking the N.F.L. Draft, M.L.B.’s Robot Umps and N.B.A. Play-In Pressure**\
+`Austin, Robert and Jason play “Mock with Mock,” and more.`\
+https://www.nytimes.com/2026/04/13/podcasts/mocking-nfl-draft-mlbs-robot-umps-nba-play-in-pressure.html
+
+**Trump Attacks Pope Leo: ‘I’m Not a Big Fan’**\
+`President Trump lashed out at Pope Leo XIV and took credit for his ascension to the papacy. Leo had issued a rare direct criticism of a threat by Mr. Trump last week.`\
+https://www.nytimes.com/video/world/100000010837240/trump-pope-truth-social.html
+
 **The Iran War Has Made Clear the Old Arrangements Are Over**\
 `For decades, the U.S.-Gulf relationship was based on oil for security. That framework is obsolete.`\
 https://www.nytimes.com/2026/04/13/opinion/uae-iran-war-trump-gulf-oil-dubai.html

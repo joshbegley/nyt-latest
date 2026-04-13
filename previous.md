@@ -1,3 +1,11 @@
+**Mocking the N.F.L. Draft, M.L.B.’s Robot Umps and N.B.A. Play-In Pressure**\
+`Austin, Robert and Jason play “Mock with Mock,” and more.`\
+https://www.nytimes.com/2026/04/13/podcasts/mocking-nfl-draft-mlbs-robot-umps-nba-play-in-pressure.html
+
+**Trump Attacks Pope Leo: ‘I’m Not a Big Fan’**\
+`President Trump lashed out at Pope Leo XIV and took credit for his ascension to the papacy. Leo had issued a rare direct criticism of a threat by Mr. Trump last week.`\
+https://www.nytimes.com/video/world/100000010837240/trump-pope-truth-social.html
+
 **What Orban’s Defeat Means for the Rest of the World**\
 `The Hungarian prime minister’s defeat demonstrates that opposition to his party was so strong it was able to overwhelm all the structures Viktor Orban put in place to protect his rule.`\
 https://www.nytimes.com/2026/04/13/opinion/orbans-defeat-hungary-trump-world.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/13/world/europe/what-to-know-pope-africa.html
 **Pope Leo Heads to Africa to Meet the Future of Catholicism**\
 `On a four-country tour of the continent, where the faith is growing faster than anywhere else, the pontiff will be greeted by enthusiastic crowds and authoritarian leaders.`\
 https://www.nytimes.com/2026/04/13/world/europe/pope-leo-africa-future.html
-
-**China’s Electrostate Is Poised to Win From War in the Middle East**\
-`A cluster of Chinese firms is poised to win big from the energy crisis set off by the war in the Middle East, building on booming investment in artificial intelligence.`\
-https://www.nytimes.com/2026/04/13/business/energy-environment/china-energy-battery-grid.html
-
-**Aiming at China, Malaysia Puts New Restrictions on Electric Cars**\
-`The move was a tacit acknowledgment of China’s dominance in the global market and the power of its automakers to keep prices low.`\
-https://www.nytimes.com/2026/04/13/world/asia/malaysia-electric-cars-china.html
 
