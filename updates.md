@@ -1,3 +1,7 @@
+**Effects of Iran War Emerge in Company Earnings, Starting With Goldman Sachs**\
+`It will be a tricky earnings season, as the investment banking giant became the first to show on Monday.`\
+https://www.nytimes.com/2026/04/13/business/goldman-sachs-earnings.html
+
 **Defeat of Orban Removes Ukraine’s Biggest Nemesis in Europe**\
 `The Hungarian leader’s pro-Moscow tilt cemented his reputation in Kyiv as a spoiler. Now, Ukraine hopes a 90-billion-euro loan he blocked will be disbursed.`\
 https://www.nytimes.com/2026/04/13/world/europe/hungary-orban-ukraine-zelensky.html

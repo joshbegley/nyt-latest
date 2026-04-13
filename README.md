@@ -1,3 +1,7 @@
+**Hollywood Heavyweights Sign Letter Opposing Paramount’s Deal for Warner Bros.**\
+`The letter warns that the deal will result in fewer jobs for creatives, along with higher costs and less choice for audiences.`\
+https://www.nytimes.com/2026/04/13/business/media/hollywood-letter-opposing-paramount-warner-bros-deal.html
+
 **Effects of Iran War Emerge in Company Earnings, Starting With Goldman Sachs**\
 `It will be a tricky earnings season, as the investment banking giant became the first to show on Monday.`\
 https://www.nytimes.com/2026/04/13/business/goldman-sachs-earnings.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/13/learning/film-club-buckle-up-women-cars-still
 **4 Takeaways From Viktor Orban’s Defeat in Hungary’s Election**\
 `Economics and unhappiness with endemic corruption helped Peter Magyar, the challenger, secure victory. A visit by the U.S. vice president in support of Mr. Orban didn’t change things.`\
 https://www.nytimes.com/2026/04/13/world/europe/hungary-election-results-orban-magyar.html
-
-**Pete Hegseth’s Gospel of Carnage**\
-`The defense secretary thinks he’s commanding God’s army`\
-https://www.nytimes.com/2026/04/13/opinion/pete-hegseths-religious-war.html
 
