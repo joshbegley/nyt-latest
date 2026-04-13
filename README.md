@@ -1,3 +1,15 @@
+**Britain Will Not Join U.S. Blockade of Strait of Hormuz, Starmer Says**\
+`Prime Minister Keir Starmer said the U.K.’s diplomatic efforts are directed at keeping the vital waterway “open, not shut.”`\
+https://www.nytimes.com/2026/04/13/world/europe/iran-blockade-strait-hormuz-uk-starmer-trump.html
+
+**Pope Leo, Hours After Trump Criticism, Says He Has ‘No Fear’**\
+`President Trump lashed out on Sunday night at Pope Leo XIV, who responded hours later by saying he would continue to oppose war.`\
+https://www.nytimes.com/2026/04/13/us/politics/pope-leo-trump-response.html
+
+**Trump Said Other Countries Would Help Blockade Iran. So Far, There Are No Takers.**\
+`President Trump’s announcement of a complete U.S. blockade was his latest effort to pressure Iran to negotiate after direct talks over the weekend did not yield an agreement.`\
+https://www.nytimes.com/2026/04/13/world/middleeast/trump-iran-blockade-strait-of-hormuz.html
+
 **Israelis Don’t Feel Much Like Victors in War With Iran**\
 `The regime in Iran has not changed and the nuclear and missile threats have not been eliminated, leaving many Israelis to wonder what this was all for.`\
 https://www.nytimes.com/2026/04/13/world/israeli-iran-war-polls.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/13/books/review/see-you-on-the-other-side-jay-mc
 **In Michigan, a Wrong Turn and a Decades-Long Labor of Love**\
 `Two designers from Chicago stumbled on a farmhouse that needed a lot of attention. Over the years, they turned the project into their primary residence.`\
 https://www.nytimes.com/2026/04/13/realestate/in-michigan-a-wrong-turn-and-a-decades-long-labor-of-love.html
-
-**To Fill Drone Force Ranks, Russia Targets a New Demographic: Students**\
-`Recruitment sessions have taken place at hundreds of universities and colleges across the country.`\
-https://www.nytimes.com/2026/04/13/world/europe/russia-.html
-
-**A Wellness Center for Young Ballet Students (Snacks Included)**\
-`At the School of American Ballet’s new health and wellness center, bodies and minds share equal billing and everyone gets the help they need.`\
-https://www.nytimes.com/2026/04/13/arts/dance/wellness-center-school-of-american-ballet.html
-
-**We Can’t Stop China From Building Powerful A.I. Here’s What We Can Do.**\
-`American leaders should be trying to cooperate with China on A.I.`\
-https://www.nytimes.com/2026/04/13/opinion/china-ai-america-chipmakers.html
 
