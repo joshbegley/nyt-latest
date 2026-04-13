@@ -1,3 +1,7 @@
+**Pride Flag Can Fly at Stonewall After Trump Administration Reversal**\
+`The settlement ends a symbolic attack on the L.G.B.T.Q. rights movement and deals a blow to the administration’s assault on diversity initiatives.`\
+https://www.nytimes.com/2026/04/13/nyregion/pride-flag-stonewall-trump.html
+
 **Shipping Companies Remain Reluctant to Sail Through Strait of Hormuz**\
 `The United States said it would begin blocking vessels doing business with Iran. Details on how that would work are unclear.`\
 https://www.nytimes.com/2026/04/13/business/shipping-iran-strait-of-hormuz.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/13/business/media/hollywood-letter-opposing-para
 **Effects of Iran War Emerge in Company Earnings, Starting With Goldman Sachs**\
 `It will be a tricky earnings season, as the investment banking giant became the first to show on Monday.`\
 https://www.nytimes.com/2026/04/13/business/goldman-sachs-earnings.html
-
-**Trump Says U.S. Will Blockade Iranian Ports in Strait of Hormuz**\
-`After peace talks between U.S. and Iranian officials ended without a deal, President Trump announced that the U.S. military would begin a blockade in the Strait of Hormuz starting Monday morning.`\
-https://www.nytimes.com/video/world/middleeast/100000010837508/trump-strait-hormuz-blockade-iran.html
 

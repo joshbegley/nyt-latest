@@ -1,3 +1,7 @@
+**Shipping Companies Remain Reluctant to Sail Through Strait of Hormuz**\
+`The United States said it would begin blocking vessels doing business with Iran. Details on how that would work are unclear.`\
+https://www.nytimes.com/2026/04/13/business/shipping-iran-strait-of-hormuz.html
+
 **Trump Administration’s Temporary Reprieve on Russian Oil Expires**\
 `A sanctions waiver aimed at keeping global oil prices down had allowed Moscow to sell oil currently at sea.`\
 https://www.nytimes.com/2026/04/13/business/trump-iran-russia-oil-sanctions.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/13/business/goldman-sachs-earnings.html
 **Trump Says U.S. Will Blockade Iranian Ports in Strait of Hormuz**\
 `After peace talks between U.S. and Iranian officials ended without a deal, President Trump announced that the U.S. military would begin a blockade in the Strait of Hormuz starting Monday morning.`\
 https://www.nytimes.com/video/world/middleeast/100000010837508/trump-strait-hormuz-blockade-iran.html
-
-**After Criticizing Pope, Trump Posts Image of Himself as a Jesus-Like Figure**\
-`The image, which was posted on Truth Social and had disappeared by Monday morning, depicted the president as a divine leader healing the sick. The post prompted an immediate backlash.`\
-https://www.nytimes.com/2026/04/13/us/politics/trump-jesus-pope-leo-truth-social-post.html
 

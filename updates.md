@@ -1,3 +1,7 @@
+**Shipping Companies Remain Reluctant to Sail Through Strait of Hormuz**\
+`The United States said it would begin blocking vessels doing business with Iran. Details on how that would work are unclear.`\
+https://www.nytimes.com/2026/04/13/business/shipping-iran-strait-of-hormuz.html
+
 **Many Popes Have Been Entangled in Politics. Here Are 5 of Them.**\
 `Leo XIV, under fire from President Trump, has joined predecessors like Francis and John Paul II in confronting political issues.`\
 https://www.nytimes.com/2026/04/13/world/europe/pope-leo-trump-dispute.html
