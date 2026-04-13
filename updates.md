@@ -1,3 +1,7 @@
+**How Orban, a Wizard of Populism, Lost His Magic Touch**\
+`The election defeat for Prime Minister Viktor Orban is less the result of an ideological shift in Hungary, and more the playing out of a fundamental rule of politics.`\
+https://www.nytimes.com/2026/04/13/world/europe/orban-hungary-election-magyar-populism.html
+
 **Judge Dismisses Trump’s Suit Against The Wall Street Journal**\
 `The judge said President Trump had not “plausibly alleged” that The Journal published the article with actual malice.`\
 https://www.nytimes.com/2026/04/13/business/media/trump-wall-street-journal-lawsuit-dismissed-epstein.html

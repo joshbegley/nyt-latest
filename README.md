@@ -1,3 +1,7 @@
+**Do You Know Which Books Featured These Sharp Lines?**\
+`Try this short quiz on memorably snarky retorts and observations from five literary works.`\
+https://www.nytimes.com/interactive/2026/04/13/books/review/snappy-book-quotes.html
+
 **How Orban, a Wizard of Populism, Lost His Magic Touch**\
 `The election defeat for Prime Minister Viktor Orban is less the result of an ideological shift in Hungary, and more the playing out of a fundamental rule of politics.`\
 https://www.nytimes.com/2026/04/13/world/europe/orban-hungary-election-magyar-populism.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/13/podcasts/the-daily/us-iran-negotiations.html
 **U.S. Prepares to Blockade Strait of Hormuz, and a MAGA Hero Is Defeated in Europe**\
 `Plus, Eric Swalwell suspended his campaign after sexual assault allegations.`\
 https://www.nytimes.com/2026/04/13/podcasts/the-headlines/us-strait-of-hormuz-orban-defeated.html
-
-**Connections Companion No. 1,038**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, April 14, 2026.`\
-https://www.nytimes.com/2026/04/13/crosswords/connections-companion-1038.html
 

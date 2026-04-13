@@ -1,3 +1,7 @@
+**How Orban, a Wizard of Populism, Lost His Magic Touch**\
+`The election defeat for Prime Minister Viktor Orban is less the result of an ideological shift in Hungary, and more the playing out of a fundamental rule of politics.`\
+https://www.nytimes.com/2026/04/13/world/europe/orban-hungary-election-magyar-populism.html
+
 **F.D.A. Pushes Drug Developers to Report Clinical Trial Results**\
 `Many unfavorable results go unreported, skewing the available data on medical treatments.`\
 https://www.nytimes.com/2026/04/13/well/fda-clinical-trials.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/13/podcasts/the-headlines/us-strait-of-hormuz-or
 **Connections Companion No. 1,038**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, April 14, 2026.`\
 https://www.nytimes.com/2026/04/13/crosswords/connections-companion-1038.html
-
-**Strands Sidekick No. 772**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, April 14, 2026.`\
-https://www.nytimes.com/2026/04/13/crosswords/strands-sidekick-772.html
 
