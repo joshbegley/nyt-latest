@@ -1,3 +1,7 @@
+**Tony Gonzales, a Texas Congressman, Says He Will Resign**\
+`The third term Republican lawmaker is accused of coercing a staff member into a sexual relationship.`\
+https://www.nytimes.com/2026/04/13/us/texas-representative-tony-gonzales-resigns.html
+
 **What’s Next in the Volatile California Governor’s Race?**\
 `For Democrats, the drama is reverberating well beyond the state.`\
 https://www.nytimes.com/2026/04/13/us/politics/swalwell-california-governor.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/13/espanol/negocios/hollywood-carta-paramount
 **No, Trump Is Not a Genius Negotiator**\
 `Were President Trump’s recent posts about Iran a masterstroke of negotiation or the “willful, reckless destruction” of America’s reputation? The foreign policy analyst Fareed Zakaria tells the columnist Ezra Klein that the administration’s pursuit of spectacle has left the U.S. weaker and Iran more capable of holding the global economy hostage.`\
 https://www.nytimes.com/video/opinion/100000010825220/no-trump-is-not-a-genius-negotiator.html
-
-**Police Arrest Woman Accused of Stalking Fleetwood Mac Guitarist**\
-`The guitarist, Lindsey Buckingham, had obtained a restraining order against the woman two years ago, but the police said she continued to follow him in March.`\
-https://www.nytimes.com/2026/04/13/us/fleetwood-mac-lindsey-buckingham-stalker-arrest.html
 
