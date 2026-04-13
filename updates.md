@@ -1,3 +1,19 @@
+**Two Iran-linked Ships Passed Through Strait of Hormuz Ahead of U.S. Blockade**\
+`The vessels exited the Strait of Hormuz on Monday, hours before a U.S. naval blockade took effect.`\
+https://www.nytimes.com/2026/04/13/world/middleeast/strait-hormuz-shipping-iran-blockade-trump.html
+
+**Trump Attack on Pope and Posting of Jesus Image Draws Widespread Criticism**\
+`A prominent conservative bishop who serves on President Trump’s Religious Liberty Commission was among those who called on the president to apologize.`\
+https://www.nytimes.com/2026/04/13/us/trump-pope-leo.html
+
+**Palabra del día: ‘irrevocable’**\
+`Esta palabra ha aparecido en 37 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/04/13/espanol/que-significa-irrevocable.html
+
+**Shipping Companies Remain Reluctant to Sail Through Strait of Hormuz**\
+`The United States said it has started to block vessels doing business with Iran from the strait. Details on how that would work are unclear.`\
+https://www.nytimes.com/2026/04/13/business/shipping-iran-strait-of-hormuz.html
+
 **Pride Flag Can Fly at Stonewall After Trump Administration Reversal**\
 `The settlement ends a symbolic attack on the L.G.B.T.Q. rights movement and deals a blow to the administration’s assault on diversity initiatives.`\
 https://www.nytimes.com/2026/04/13/nyregion/pride-flag-stonewall-trump.html

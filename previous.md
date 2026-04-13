@@ -1,9 +1,21 @@
+**Two Iran-linked Ships Passed Through Strait of Hormuz Ahead of U.S. Blockade**\
+`The vessels exited the Strait of Hormuz on Monday, hours before a U.S. naval blockade took effect.`\
+https://www.nytimes.com/2026/04/13/world/middleeast/strait-hormuz-shipping-iran-blockade-trump.html
+
+**Trump Attack on Pope and Posting of Jesus Image Draws Widespread Criticism**\
+`A prominent conservative bishop who serves on President Trump’s Religious Liberty Commission was among those who called on the president to apologize.`\
+https://www.nytimes.com/2026/04/13/us/trump-pope-leo.html
+
+**Palabra del día: ‘irrevocable’**\
+`Esta palabra ha aparecido en 37 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/04/13/espanol/que-significa-irrevocable.html
+
 **Pride Flag Can Fly at Stonewall After Trump Administration Reversal**\
 `The settlement ends a symbolic attack on the L.G.B.T.Q. rights movement and deals a blow to the administration’s assault on diversity initiatives.`\
 https://www.nytimes.com/2026/04/13/nyregion/pride-flag-stonewall-trump.html
 
 **Shipping Companies Remain Reluctant to Sail Through Strait of Hormuz**\
-`The United States said it would begin blocking vessels doing business with Iran. Details on how that would work are unclear.`\
+`The United States said it has started to block vessels doing business with Iran from the strait. Details on how that would work are unclear.`\
 https://www.nytimes.com/2026/04/13/business/shipping-iran-strait-of-hormuz.html
 
 **Trump Administration’s Temporary Reprieve on Russian Oil Expires**\
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/13/business/media/trump-wall-street-journal-laws
 **Iran Blockade Sets Up a Test of Which Side Can Endure More Pain**\
 `President Trump is trying to choke off the country’s lifeline with a blockade of the Strait of Hormuz. But the Iranians are betting that his tolerance for political pain is limited.`\
 https://www.nytimes.com/2026/04/13/us/politics/iran-war-strait-of-hormuz-blockade-economy.html
-
-**As London Celebrates the Best of Theater, Musicals Are All the Rage**\
-`Critics reflect on the 2026 Olivier Awards, which recognized homegrown British talent and some productions headed for New York.`\
-https://www.nytimes.com/2026/04/13/arts/olivier-awards-winners-critics.html
-
-**Hollywood Heavyweights Sign Letter Opposing Paramount’s Deal for Warner Bros.**\
-`The letter warns that the deal will result in fewer jobs for creatives, along with higher costs and less choice for audiences.`\
-https://www.nytimes.com/2026/04/13/business/media/hollywood-letter-opposing-paramount-warner-bros-deal.html
-
-**Effects of Iran War Emerge in Company Earnings, Starting With Goldman Sachs**\
-`It will be a tricky earnings season, as the investment banking giant became the first to show on Monday.`\
-https://www.nytimes.com/2026/04/13/business/goldman-sachs-earnings.html
 
