@@ -1,3 +1,7 @@
+**Tony Gonzales, a Texas Congressman, Says He Will Resign**\
+`The third term Republican lawmaker is accused of coercing a staff member into a sexual relationship.`\
+https://www.nytimes.com/2026/04/13/us/texas-representative-tony-gonzales-resigns.html
+
 **What’s Next in the Volatile California Governor’s Race?**\
 `For Democrats, the drama is reverberating well beyond the state.`\
 https://www.nytimes.com/2026/04/13/us/politics/swalwell-california-governor.html
