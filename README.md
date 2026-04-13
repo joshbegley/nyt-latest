@@ -1,3 +1,15 @@
+**Trump Administration’s Temporary Reprieve on Russian Oil Expires**\
+`A sanctions waiver aimed at keeping global oil prices down had allowed Moscow to sell oil currently at sea.`\
+https://www.nytimes.com/2026/04/13/business/trump-iran-russia-oil-sanctions.html
+
+**Elecciones en Perú: algunas zonas de Lima tendrán un segundo día de votación**\
+`Miles de votantes frustrados en largas filas no pudieron votar en algunas zonas de Lima, la capital, debido a fallas logísticas, lo que, para algunos, minó la confianza en el proceso.`\
+https://www.nytimes.com/es/2026/04/13/espanol/america-latina/elecciones-peru-resultados.html
+
+**¿Qué tan saludable es la avena?**\
+`Una superestrella nutricional que realmente marca la diferencia.`\
+https://www.nytimes.com/es/2026/04/13/espanol/estilos-de-vida/avena-salud-beneficios.html
+
 **Man Arrested After U.S. Military Aircraft Damaged in Ireland**\
 `A man was arrested on Saturday and accused of criminal damage at Shannon Airport in western Ireland, police said.`\
 https://www.nytimes.com/2026/04/13/us/shannon-airport-c-130-damage-man-breaks-in.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/video/world/middleeast/100000010837508/trump-strait-horm
 **After Criticizing Pope, Trump Posts Image of Himself as a Jesus-Like Figure**\
 `The image, posted on Truth Social, appeared to be A.I.-generated and depicted the president as a divine leader healing the sick. The post prompted backlash from some prominent Catholics and conservatives.`\
 https://www.nytimes.com/2026/04/13/us/politics/trump-jesus-pope-leo-truth-social-post.html
-
-**Investors Brace for a New Hormuz Blockade Threat**\
-`President Trump’s plan to bar ships from entering or leaving Iranian ports has put markets on edge and added to global economic uncertainty.`\
-https://www.nytimes.com/2026/04/13/business/dealbook/trump-iran-hormuz-blockade.html
-
-**Eric Swalwell Suspends Campaign for California Governor**\
-`In a social media post, Representative Eric Swalwell announced that he was suspending his campaign for California governor after two news outlets published accusations of sexual assault and misconduct against him.`\
-https://www.nytimes.com/video/us/politics/100000010837456/swalwell-suspends-california-governor-allegations.html
-
-**Hungary May No Longer Be Putin’s Ally, but It Can’t Afford a Full Break**\
-`Prime Minister Viktor Orban’s defeat will make it harder for the Kremlin to divide Europe, but Moscow retains leverage through energy sales.`\
-https://www.nytimes.com/2026/04/13/world/europe/russia-hungary-putin-orban.html
 

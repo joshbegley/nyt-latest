@@ -1,3 +1,11 @@
+**Man Arrested After U.S. Military Aircraft Damaged in Ireland**\
+`A man was arrested on Saturday and accused of criminal damage at Shannon Airport in western Ireland, police said.`\
+https://www.nytimes.com/2026/04/13/us/shannon-airport-c-130-damage-man-breaks-in.html
+
+**NATO Is Imperfect but Necessary, World War II Veterans Say**\
+`As President Trump renews threats to pull the United States from NATO, veterans reflect on the alliance that has existed more than 75 years.`\
+https://www.nytimes.com/2026/04/13/us/world-war-ii-veterans-nato-trump.html
+
 **Swalwell’s Fall Punctuates Woes of Democrats in California, of All Places**\
 `Democrats have struggled to find a candidate for governor who can capture the imagination of voters in one of their most important strongholds.`\
 https://www.nytimes.com/2026/04/13/us/politics/eric-swalwell-democrats-california.html
