@@ -1,3 +1,7 @@
+**Ye Wants Forgiveness, Again. But How Many Times Will Fans Grant It?**\
+`Attempting a comeback after years of antisemitic statements, the artist formerly known as Kanye West is facing consequences while trying to navigate a test of his own making.`\
+https://www.nytimes.com/2026/04/13/arts/music/ye-kanye-west-comeback-bully.html
+
 **Killer’s Parents Could Have Prevented Southport Attack in U.K., Report Says**\
 `An official inquiry said the perpetrator’s parents, as well as government agencies, had missed several chances to avert the deadly attack.`\
 https://www.nytimes.com/2026/04/13/world/europe/southport-attack-killers-parents-report.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/13/dining/tikka-in-no-time.html
 **El papa León, horas después de las críticas de Trump, dice que ‘no le temo’**\
 `El presidente Trump arremetió el domingo por la noche contra el papa León XIV en redes sociales. El pontífice aseguró que seguiría oponiéndose a la guerra.`\
 https://www.nytimes.com/es/2026/04/13/espanol/mundo/papa-leon-trump-respuesta.html
-
-**Many Popes Have Been Entangled in Politics. Here Are 5 of Them.**\
-`Leo XIV, under fire from President Trump, has joined predecessors like Francis and John Paul II in confronting political issues.`\
-https://www.nytimes.com/2026/04/13/world/europe/pope-leo-trump-dispute.html
 

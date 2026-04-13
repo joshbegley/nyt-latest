@@ -1,3 +1,7 @@
+**Ye Wants Forgiveness, Again. But How Many Times Will Fans Grant It?**\
+`Attempting a comeback after years of antisemitic statements, the artist formerly known as Kanye West is facing consequences while trying to navigate a test of his own making.`\
+https://www.nytimes.com/2026/04/13/arts/music/ye-kanye-west-comeback-bully.html
+
 **Killer’s Parents Could Have Prevented Southport Attack in U.K., Report Says**\
 `An official inquiry said the perpetrator’s parents, as well as government agencies, had missed several chances to avert the deadly attack.`\
 https://www.nytimes.com/2026/04/13/world/europe/southport-attack-killers-parents-report.html
