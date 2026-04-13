@@ -1,3 +1,35 @@
+**‘The Strangest Sleepover Ever’: Dutch Skeptical as Their Royals Visit Trump**\
+`The Dutch king and queen are set to stay at the White House on Monday night. At a time of trans-Atlantic tension, the Netherlands isn’t sure how it feels about that.`\
+https://www.nytimes.com/2026/04/13/world/europe/trump-dutch-royal-visit-white-house.html
+
+**Quote of the Day: However Real the Issues, Congress More Resembles ‘The Real Housewives’**\
+`Quotation of the Day for Monday, April 13, 2025`\
+https://www.nytimes.com/2026/04/13/pageoneplus/quote-of-the-day-however-real-the-issues-congress-more-resembles-the-real-housewives.html
+
+**What to Know About Pope Leo’s Voyage to Africa**\
+`The pontiff will visit four countries on the world’s poorest continent, demonstrating his urgent focus on the most vulnerable members of the Church.`\
+https://www.nytimes.com/2026/04/13/world/europe/what-to-know-pope-africa.html
+
+**Pope Leo Heads to Africa to Meet the Future of Catholicism**\
+`On a four-country tour of the continent, where the faith is growing faster than anywhere else, the pontiff will be greeted by enthusiastic crowds and authoritarian leaders.`\
+https://www.nytimes.com/2026/04/13/world/europe/pope-leo-africa-future.html
+
+**China’s Electrostate Is Poised to Win From War in the Middle East**\
+`A cluster of Chinese firms is poised to win big from the energy crisis set off by the war in the Middle East, building on booming investment in artificial intelligence.`\
+https://www.nytimes.com/2026/04/13/business/energy-environment/china-energy-battery-grid.html
+
+**Aiming at China, Malaysia Puts New Restrictions on Electric Cars**\
+`The move was a tacit acknowledgment of China’s dominance in the global market and the power of its automakers to keep prices low.`\
+https://www.nytimes.com/2026/04/13/world/asia/malaysia-electric-cars-china.html
+
+**Orban Loss in Hungary Is a Big Moment for the E.U. Here’s Why.**\
+`Prime Minister Viktor Orban has stymied the European Union for years, and particularly in recent months. Peter Magyar’s election could change that, if only so much.`\
+https://www.nytimes.com/2026/04/13/world/europe/hungary-eu-orban-magyar.html
+
+**No Corrections: April 13, 2025**\
+`No corrections appeared in print on Monday, April 13, 2025.`\
+https://www.nytimes.com/2026/04/13/corrections/no-corrections-april-13-2025.html
+
 **Trump Attacks Pope Leo as Too Liberal and ‘Weak on Crime’**\
 `President Trump’s lengthy post on social media showed there were really no boundaries when it comes to people he might target, including the leader of the world’s 1.4 billion Catholics.`\
 https://www.nytimes.com/2026/04/12/us/politics/trump-attacks-pope-leo.html
