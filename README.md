@@ -1,3 +1,15 @@
+**La visita de los reyes de los Países Bajos a la Casa Blanca crea polémica**\
+`El rey y la reina de los Países Bajos se alojarán en la Casa Blanca el lunes por la noche. En un momento de tensión transatlántica, los neerlandeses no están seguros de cómo se sienten al respecto.`\
+https://www.nytimes.com/es/2026/04/13/espanol/mundo/reyes-paises-bajos-maxima-trump-visita.html
+
+**Trump quiere bloquear Irán para abrir el estrecho de Ormuz. Los expertos tienen sus dudas**\
+`El anuncio del presidente Trump de un bloqueo estadounidense a Irán es su esfuerzo más reciente por presionarlo para negociar, después de que en las conversaciones del fin de semana no se llegara a un acuerdo.`\
+https://www.nytimes.com/es/2026/04/13/espanol/mundo/iran-trump-estrecho-ormuz-bloqueo.html
+
+**Trump Posted a Picture of Himself as Jesus. Now He’s Trying to Explain It Away.**\
+`The image showed President Trump bathed in divine light and clad in religious robes. His interpretation was that the image depicted him as a doctor, not Jesus Christ.`\
+https://www.nytimes.com/2026/04/13/us/politics/trump-jesus-picture-pope-leo.html
+
 **So Much for Springtime: The East Coast Braces for Summer Heat**\
 `Washington could hit 90 or higher. New York won’t be far behind. But it won’t last long.`\
 https://www.nytimes.com/2026/04/13/weather/nyc-dc-atlanta-east-coast-heat-wave-forecast.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/13/nyregion/pride-flag-stonewall-trump.html
 **Shipping Companies Remain Reluctant to Sail Through Strait of Hormuz**\
 `The United States said it has started to block vessels doing business with Iran from the strait. Details on how that would work are unclear.`\
 https://www.nytimes.com/2026/04/13/business/shipping-iran-strait-of-hormuz.html
-
-**Trump Administration’s Temporary Reprieve on Russian Oil Expires**\
-`A sanctions waiver aimed at keeping global oil prices down had allowed Moscow to sell oil currently at sea.`\
-https://www.nytimes.com/2026/04/13/business/trump-iran-russia-oil-sanctions.html
-
-**Elecciones en Perú: algunas zonas de Lima tendrán un segundo día de votación**\
-`Miles de votantes frustrados en largas filas no pudieron votar en algunas zonas de Lima, la capital, debido a fallas logísticas, lo que, para algunos, minó la confianza en el proceso.`\
-https://www.nytimes.com/es/2026/04/13/espanol/america-latina/elecciones-peru-resultados.html
-
-**¿Qué tan saludable es la avena?**\
-`Una superestrella nutricional que realmente marca la diferencia.`\
-https://www.nytimes.com/es/2026/04/13/espanol/estilos-de-vida/avena-salud-beneficios.html
 
