@@ -1,3 +1,7 @@
+**A Stormy Week Is in Store for the Central U.S. Here’s What to Know.**\
+`Tens of millions of people from Texas to the Great Lakes could face heavy rain and hail — and possibly tornadoes — as spring storms move through.`\
+https://www.nytimes.com/2026/04/13/weather/storms-forecast-midwest.html
+
 **Trump Attack on Pope and Posting of Jesus Image Draw Widespread Criticism**\
 `A prominent conservative bishop who serves on President Trump’s Religious Liberty Commission was among those who called on the president to apologize.`\
 https://www.nytimes.com/2026/04/13/us/trump-pope-leo.html
