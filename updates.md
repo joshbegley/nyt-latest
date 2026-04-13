@@ -1,3 +1,7 @@
+**Why Are New York Restaurants Starting to Look Like Offices?**\
+`With more people resuming their commutes post-pandemic, the fantasy of a well-designed, well-run workplace beckons.`\
+https://www.nytimes.com/2026/04/13/t-magazine/nyc-restaurants-offices-modernist-design.html
+
 **Amid War, G.O.P. Puts Off Testimony From Senior Pentagon Commanders**\
 `House lawmakers had been scheduled to hear testimony next week from the head of military operations in the Middle East, but the Republican majority postponed the hearing until late May.`\
 https://www.nytimes.com/2026/04/13/world/middleeast/iran-war-pentagon-officials-testimony-trump.html
