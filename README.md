@@ -1,3 +1,7 @@
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/04/13/t-magazine/tk.html
+
 **My Mother Taught Me to Cook Like a Somali. I Want to Teach the World.**\
 `The cookbook author and chef Ifrah F. Ahmed turned her mom’s mission — preserving a culinary tradition — into her own.`\
 https://www.nytimes.com/2026/04/13/dining/chef-ifrah-f-ahmed-somali-cooking-family-recipes.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/13/opinion/trump-unchecked-unpredictable.html
 **‘We Finally Have Democracy’: Hungarians Erupt in Joy and Relief**\
 `Many Hungarians, exhausted by a struggling economy and worried about a move away from the European Union, were jubilant after Prime Minister Viktor Orban conceded. Some had wondered if he would.`\
 https://www.nytimes.com/2026/04/13/world/europe/hungary-voters-reaction-election-orban-magyar.html
-
-**La derrota de Orbán en Hungría es un gran momento para la Unión Europea. ¿Por qué?**\
-`El primer ministro Viktor Orbán ha obstaculizado a la UE durante años. La elección de Péter Magyar podría cambiar esta situación.`\
-https://www.nytimes.com/es/2026/04/13/espanol/mundo/viktor-orban-hungria-derrota-europa.html
 
