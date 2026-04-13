@@ -1,80 +1,80 @@
-**Mocking the N.F.L. Draft, M.L.B.’s Robot Umps and N.B.A. Play-In Pressure**\
-`Austin, Robert and Jason play “Mock with Mock,” and more.`\
-https://www.nytimes.com/2026/04/13/podcasts/mocking-nfl-draft-mlbs-robot-umps-nba-play-in-pressure.html
+**Pete Hegseth’s Gospel of Carnage**\
+`The defense secretary thinks he’s commanding God’s army`\
+https://www.nytimes.com/2026/04/13/opinion/pete-hegseths-religious-war.html
 
-**Trump Attacks Pope Leo: ‘I’m Not a Big Fan’**\
-`President Trump lashed out at Pope Leo XIV and took credit for his ascension to the papacy. Leo had issued a rare direct criticism of a threat by Mr. Trump last week.`\
-https://www.nytimes.com/video/world/100000010837240/trump-pope-truth-social.html
+**What’s With the Two-Button Rule?**\
+`When wearing a two-button suit jacket, one is generally advised to leave the bottom button open. Our critic explains the reasoning behind the rule.`\
+https://www.nytimes.com/2026/04/13/fashion/suit-two-button-rule.html
 
-**What Orban’s Defeat Means for the Rest of the World**\
-`The Hungarian prime minister’s defeat demonstrates that opposition to his party was so strong it was able to overwhelm all the structures Viktor Orban put in place to protect his rule.`\
-https://www.nytimes.com/2026/04/13/opinion/orbans-defeat-hungary-trump-world.html
+**From a Wedding to a School in 90 Seconds: Backstage Magic at the Met**\
+`The set of Kaija Saariaho’s opera “Innocence” transforms with astonishing speed. It takes a big, nimble team to make that possible.`\
+https://www.nytimes.com/2026/04/13/arts/music/innocence-met-opera-revolving-set.html
 
-**21 horas en Pakistán: el intento y fracaso de la paz entre EE. UU. e Irán**\
-`Aliados y adversarios de Estados Unidos habían puesto sus esperanzas en el vicepresidente JD Vance para intentar encontrar una salida a un conflicto que ha trastornado la economía mundial.`\
-https://www.nytimes.com/es/2026/04/13/espanol/estados-unidos/iran-negociaciones-vance-paz-trump.html
+**A Mermaid, a Ballplayer: This Mural Salutes Coney Island**\
+`The mural, which surrounds a construction site, is part of an effort to decorate unsightly sidewalk sheds.`\
+https://www.nytimes.com/2026/04/13/nyregion/mural-coney-island-construction-site.html
 
-**Can This Chaotic Brooklyn Plaza Be Car-Free? Mamdani Says Yes.**\
-`Mayor Zohran Mamdani is expected to propose linking Grand Army Plaza with Prospect Park by closing a dangerous stretch of road between them.`\
-https://www.nytimes.com/2026/04/13/nyregion/grand-army-plaza-prospect-park-brooklyn.html
+**The Affordable Car Is Dead. What Happened?**\
+`This is how cars got so ridiculously, forbiddingly expensive.`\
+https://www.nytimes.com/interactive/2026/04/13/opinion/affordable-car-cost.html
 
-**A Famed Brooklyn Cemetery Wants You to Come Visit … Before You Die**\
-`Green-Wood Cemetery in Brooklyn is opening a $43 million visitor’s center to attract the living by making it easier to navigate the rambling grounds.`\
-https://www.nytimes.com/2026/04/13/nyregion/green-wood-brookl.html
+**The Battle Over Refreshers Heats Up as McDonald’s Enters the Mix**\
+`The fast-food giant will add fruit-flavored drinks to its menus next month as chains like Dunkin’ and Starbucks sell more cold drinks than hot ones.`\
+https://www.nytimes.com/2026/04/13/business/the-battle-over-refreshers-heats-up-as-mcdonalds-enters-the-mix.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/04/13/crosswords/spelling-bee-forum.html
+**A Brand-Name Novelist Revisits His Old Friend and Alter Ego**\
+`Jay McInerney has written about the literary party boy Russell Calloway once a decade since the 1990s. He returns in the Covid novel “See You on the Other Side.”`\
+https://www.nytimes.com/2026/04/13/books/review/see-you-on-the-other-side-jay-mcinerney.html
 
-**La guerra de Trump está debilitando a EE. UU. de 4 maneras**\
-`El presidente debería reconocer la ineptitud de su enfoque impulsivo y egoísta.`\
-https://www.nytimes.com/es/2026/04/13/espanol/opinion/trump-guerra-iran-eeuu.html
+**In Michigan, a Wrong Turn and a Decades-Long Labor of Love**\
+`Two designers from Chicago stumbled on a farmhouse that needed a lot of attention. Over the years, they turned the project into their primary residence.`\
+https://www.nytimes.com/2026/04/13/realestate/in-michigan-a-wrong-turn-and-a-decades-long-labor-of-love.html
 
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/04/13/world/iran-war-trump-news/heres-the-latest
+**To Fill Drone Force Ranks, Russia Targets a New Demographic: Students**\
+`Recruitment sessions have taken place at hundreds of universities and colleges across the country.`\
+https://www.nytimes.com/2026/04/13/world/europe/russia-.html
 
-**Word of the Day: irrevocable**\
-`This word has appeared in 37 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/04/13/learning/word-of-the-day-irrevocable.html
+**A Wellness Center for Young Ballet Students (Snacks Included)**\
+`At the School of American Ballet’s new health and wellness center, bodies and minds share equal billing and everyone gets the help they need.`\
+https://www.nytimes.com/2026/04/13/arts/dance/wellness-center-school-of-american-ballet.html
 
-**Mamdani Announces City-Owned Grocery Store**\
-`At a rally on Sunday marking his first 100 days as the mayor of New York City, Zohran Mamdani announced that it would open a city-owned grocery store in East Harlem.`\
-https://www.nytimes.com/video/nyregion/100000010837309/mamdani-city-owned-grocery-store.html
+**We Can’t Stop China From Building Powerful A.I. Here’s What We Can Do.**\
+`American leaders should be trying to cooperate with China on A.I.`\
+https://www.nytimes.com/2026/04/13/opinion/china-ai-america-chipmakers.html
 
-**After Chaotic Election Day, Peru Orders 2nd Day of Voting for Some Areas**\
-`Frustrated voters in long lines were unable to cast ballots in parts of the capital, Lima, due to logistical failures, eroding trust for some in the process.`\
-https://www.nytimes.com/2026/04/13/world/americas/peru-election-extended-voting.html
+**Trump’s ‘Deal Makers in Peace’ Are Anything But**\
+`Jared Kushner and Steve Witkoff thought they could broker peace like a business deal. The war in Iran proves how wrong they were.`\
+https://www.nytimes.com/2026/04/13/opinion/iranwar-kushner-witkoff-failures.html
 
-**For Ants, a ‘Cleaning Station’ in the Desert**\
-`A unique “choreography” between two ant species suggests a distinctive partnership in which one provides a carwash service to the other.`\
-https://www.nytimes.com/2026/04/13/science/harvester-cone-ants-cleaning.html
+**‘DTF St. Louis’ and the Complex Tragedy of the Straight-ish Man**\
+`The relationship between characters played by Jason Bateman and David Harbour went places that most TV shows avoid.`\
+https://www.nytimes.com/2026/04/13/arts/television/dtf-st-louis-finale.html
 
-**The Iran War Has Made Clear the Old Arrangements Are Over**\
-`For decades, the U.S.-Gulf relationship was based on oil for security. That framework is obsolete.`\
-https://www.nytimes.com/2026/04/13/opinion/uae-iran-war-trump-gulf-oil-dubai.html
+**The Economist Is Putting Names (and Faces) to Its Magazine**\
+`Nameless no more, writers for The Economist are mixing it up on video from its studio in London.`\
+https://www.nytimes.com/2026/04/13/business/media/economist-magazine-videos.html
 
-**‘Margo’s Got Money Troubles,’ Plus 5 Things to Watch on TV This Week**\
-`This adaptation of a novel comes to Apple TV, and the second season of “Beef” premieres on Netflix.`\
-https://www.nytimes.com/2026/04/13/arts/television/margos-got-money-troubles-what-to-watch-this-week.html
+**Do You Want to Get Married Someday?**\
+`More people are dismissing marriage. Do you think you’ll be part of this trend? Or would you like to be married in the future?`\
+https://www.nytimes.com/2026/04/13/learning/do-you-want-to-get-married-someday.html
 
-**Where Even Flowers Stoke Fear**\
-`Myanmar’s generals have brutalized the country for decades. But they have come to dread garlands as a sign of resistance.`\
-https://www.nytimes.com/2026/04/13/world/asia/myanmar-war-military-fear.html
+**How a Geologist Lives on $200,000 in Bushwick, Brooklyn**\
+`After starting a new job, Daniel Babin can afford to shop for a pricey vintage guitar and rethink living with 17 roommates.`\
+https://www.nytimes.com/interactive/2026/04/13/nyregion/nyc-budgeting-affordability-babin.html
 
-**‘The Strangest Sleepover Ever’: Dutch Skeptical as Their Royals Visit Trump**\
-`The Dutch king and queen are set to stay at the White House on Monday night. At a time of trans-Atlantic tension, the Netherlands isn’t sure how it feels about that.`\
-https://www.nytimes.com/2026/04/13/world/europe/trump-dutch-royal-visit-white-house.html
+**That Eyeliner Makes You Look So … Millennial**\
+`In contrast to Gen Z’s “clean girl aesthetic,” the cat eye of yesteryear has become a generational signifier.`\
+https://www.nytimes.com/2026/04/13/style/winged-eyeliner-cat-eye-millennial.html
 
-**Quote of the Day: However Real the Issues, Congress More Resembles ‘The Real Housewives’**\
-`Quotation of the Day for Monday, April 13, 2025`\
-https://www.nytimes.com/2026/04/13/pageoneplus/quote-of-the-day-however-real-the-issues-congress-more-resembles-the-real-housewives.html
+**How Iran, Suffering Under Sanctions, Diversified Its Economy**\
+`As the nation contended with high inflation, high unemployment and unrest before the war, it became more than just an oil exporter.`\
+https://www.nytimes.com/2026/04/13/business/economy/iran-imports-exports-china.html
 
-**What to Know About Pope Leo’s Voyage to Africa**\
-`The pontiff will visit four countries on the world’s poorest continent, demonstrating his urgent focus on the most vulnerable members of the Church.`\
-https://www.nytimes.com/2026/04/13/world/europe/what-to-know-pope-africa.html
+**After Charlie Kirk’s Death, a Fight for the Youth Vote**\
+`A fledgling Democratic group and the far-right white nationalist Nick Fuentes seek to make gains on college campuses that have recently been dominated by Turning Point USA.`\
+https://www.nytimes.com/2026/04/13/us/politics/charlie-kirk-turning-point-youth-democrats-fuentes.html
 
-**Pope Leo Heads to Africa to Meet the Future of Catholicism**\
-`On a four-country tour of the continent, where the faith is growing faster than anywhere else, the pontiff will be greeted by enthusiastic crowds and authoritarian leaders.`\
-https://www.nytimes.com/2026/04/13/world/europe/pope-leo-africa-future.html
+**More Gray Whales Are Visiting San Francisco Bay, and Many Die There**\
+`The animals might be entering the Bay in search of food as climate change disrupts traditional sources. They face huge risks from ships in the area.`\
+https://www.nytimes.com/2026/04/13/climate/gray-whales-san-francisco-bay.html
 
