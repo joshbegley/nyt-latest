@@ -1,3 +1,7 @@
+**Swalwell’s Fall Punctuates Woes of Democrats in California, of All Places**\
+`Democrats have struggled to find a candidate for governor who can capture the imagination of voters in one of their most important strongholds.`\
+https://www.nytimes.com/2026/04/13/us/politics/eric-swalwell-democrats-california.html
+
 **Tikka in no Time**\
 `Zainab Shah’s sheet-pan shrimp tikka, redolent with cumin, coriander, turmeric and mild Kashmiri chile, is on the table in under an hour.`\
 https://www.nytimes.com/2026/04/13/dining/tikka-in-no-time.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/13/briefing/your-questions-answered.html
 **Britain Will Not Join U.S. Blockade of Strait of Hormuz, Starmer Says**\
 `Prime Minister Keir Starmer said the U.K.’s diplomatic efforts are directed at keeping the vital waterway “open, not shut.”`\
 https://www.nytimes.com/2026/04/13/world/europe/iran-blockade-strait-hormuz-uk-starmer-trump.html
-
-**Pope Leo, Hours After Trump Criticism, Says He Has ‘No Fear’**\
-`President Trump lashed out on Sunday night at Pope Leo XIV, who responded hours later by saying he would continue to oppose war.`\
-https://www.nytimes.com/2026/04/13/us/politics/pope-leo-trump-response.html
 

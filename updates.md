@@ -1,3 +1,7 @@
+**Tikka in no Time**\
+`Zainab Shah’s sheet-pan shrimp tikka, redolent with cumin, coriander, turmeric and mild Kashmiri chile, is on the table in under an hour.`\
+https://www.nytimes.com/2026/04/13/dining/tikka-in-no-time.html
+
 **El papa León, horas después de las críticas de Trump, dice que ‘no le temo’**\
 `El presidente Trump arremetió el domingo por la noche contra el papa León XIV en redes sociales. El pontífice aseguró que seguiría oponiéndose a la guerra.`\
 https://www.nytimes.com/es/2026/04/13/espanol/mundo/papa-leon-trump-respuesta.html
