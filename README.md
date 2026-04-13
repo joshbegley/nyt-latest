@@ -31,7 +31,7 @@ https://www.nytimes.com/2026/04/13/dining/tikka-in-no-time.html
 https://www.nytimes.com/es/2026/04/13/espanol/mundo/papa-leon-trump-respuesta.html
 
 **Many Popes Have Been Entangled in Politics. Here Are 5 of Them.**\
-`Leo XIV, under fire from President Trump, has joined predecessors including Francis and John Paul II in confronting political issues.`\
+`Leo XIV, under fire from President Trump, has joined predecessors like Francis and John Paul II in confronting political issues.`\
 https://www.nytimes.com/2026/04/13/world/europe/pope-leo-trump-dispute.html
 
 **Halle Bailey and Regé-Jean Page on Embracing ‘Cheesy’ Rom-Coms**\
@@ -75,6 +75,6 @@ https://www.nytimes.com/2026/04/13/business/goldman-sachs-earnings.html
 https://www.nytimes.com/video/world/middleeast/100000010837508/trump-strait-hormuz-blockade-iran.html
 
 **After Criticizing Pope, Trump Posts Image of Himself as a Jesus-Like Figure**\
-`The image, posted on Truth Social, appeared to be A.I.-generated and depicted the president as a divine leader healing the sick. The post prompted backlash from some prominent Catholics and conservatives.`\
+`The image, which was posted on Truth Social and had disappeared by Monday morning, depicted the president as a divine leader healing the sick. The post prompted an immediate backlash.`\
 https://www.nytimes.com/2026/04/13/us/politics/trump-jesus-pope-leo-truth-social-post.html
 

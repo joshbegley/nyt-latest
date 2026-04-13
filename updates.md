@@ -1,3 +1,15 @@
+**Trump Administration’s Temporary Reprieve on Russian Oil Expires**\
+`A sanctions waiver aimed at keeping global oil prices down had allowed Moscow to sell oil currently at sea.`\
+https://www.nytimes.com/2026/04/13/business/trump-iran-russia-oil-sanctions.html
+
+**Elecciones en Perú: algunas zonas de Lima tendrán un segundo día de votación**\
+`Miles de votantes frustrados en largas filas no pudieron votar en algunas zonas de Lima, la capital, debido a fallas logísticas, lo que, para algunos, minó la confianza en el proceso.`\
+https://www.nytimes.com/es/2026/04/13/espanol/america-latina/elecciones-peru-resultados.html
+
+**¿Qué tan saludable es la avena?**\
+`Una superestrella nutricional que realmente marca la diferencia.`\
+https://www.nytimes.com/es/2026/04/13/espanol/estilos-de-vida/avena-salud-beneficios.html
+
 **Man Arrested After U.S. Military Aircraft Damaged in Ireland**\
 `A man was arrested on Saturday and accused of criminal damage at Shannon Airport in western Ireland, police said.`\
 https://www.nytimes.com/2026/04/13/us/shannon-airport-c-130-damage-man-breaks-in.html
