@@ -1,3 +1,7 @@
+**Personalidades de Hollywood firman una carta contra el acuerdo de Paramount y Warner Bros.**\
+`La carta advierte que el acuerdo supondrá menos puestos de trabajo para los creativos, además de mayores costos y menos opciones para el público.`\
+https://www.nytimes.com/es/2026/04/13/espanol/negocios/hollywood-carta-paramount-warner-bros.html
+
 **No, Trump Is Not a Genius Negotiator**\
 `Were President Trump’s recent posts about Iran a masterstroke of negotiation or the “willful, reckless destruction” of America’s reputation? The foreign policy analyst Fareed Zakaria tells the columnist Ezra Klein that the administration’s pursuit of spectacle has left the U.S. weaker and Iran more capable of holding the global economy hostage.`\
 https://www.nytimes.com/video/opinion/100000010825220/no-trump-is-not-a-genius-negotiator.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/13/espanol/mundo/reyes-paises-bajos-maxima-tr
 **Trump quiere bloquear Irán para abrir el estrecho de Ormuz. Los expertos tienen sus dudas**\
 `El anuncio del presidente Trump de un bloqueo estadounidense a Irán es su esfuerzo más reciente por presionarlo para negociar, después de que en las conversaciones del fin de semana no se llegara a un acuerdo.`\
 https://www.nytimes.com/es/2026/04/13/espanol/mundo/iran-trump-estrecho-ormuz-bloqueo.html
-
-**Trump Posted a Picture of Himself as Jesus. Now He’s Trying to Explain It Away.**\
-`The image showed President Trump bathed in divine light and clad in religious robes. His interpretation was that the image depicted him as a doctor, not Jesus Christ.`\
-https://www.nytimes.com/2026/04/13/us/politics/trump-jesus-picture-pope-leo.html
 
