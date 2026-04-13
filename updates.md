@@ -1,3 +1,19 @@
+**21 horas en Pakistán: el intento y fracaso de la paz entre EE. UU. e Irán**\
+`Aliados y adversarios de Estados Unidos habían puesto sus esperanzas en el vicepresidente JD Vance para intentar encontrar una salida a un conflicto que ha trastornado la economía mundial.`\
+https://www.nytimes.com/es/2026/04/13/espanol/estados-unidos/iran-negociaciones-vance-paz-trump.html
+
+**Can This Chaotic Brooklyn Plaza Be Car-Free? Mamdani Says Yes.**\
+`Mayor Zohran Mamdani is expected to propose linking Grand Army Plaza with Prospect Park by closing a dangerous stretch of road between them.`\
+https://www.nytimes.com/2026/04/13/nyregion/grand-army-plaza-prospect-park-brooklyn.html
+
+**A Famed Brooklyn Cemetery Wants You to Come Visit … Before You Die**\
+`Green-Wood Cemetery in Brooklyn is opening a $43 million visitor’s center to attract the living by making it easier to navigate the rambling grounds.`\
+https://www.nytimes.com/2026/04/13/nyregion/green-wood-brookl.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/13/crosswords/spelling-bee-forum.html
+
 **La guerra de Trump está debilitando a EE. UU. de 4 maneras**\
 `El presidente debería reconocer la ineptitud de su enfoque impulsivo y egoísta.`\
 https://www.nytimes.com/es/2026/04/13/espanol/opinion/trump-guerra-iran-eeuu.html
