@@ -1,3 +1,7 @@
+**El papa León, horas después de las críticas de Trump, dice que ‘no le temo’**\
+`El presidente Trump arremetió el domingo por la noche contra el papa León XIV en redes sociales. El pontífice aseguró que seguiría oponiéndose a la guerra.`\
+https://www.nytimes.com/es/2026/04/13/espanol/mundo/papa-leon-trump-respuesta.html
+
 **Many Popes Have Been Entangled in Politics. Here Are 5 of Them.**\
 `Leo XIV, under fire from President Trump, has joined predecessors including Francis and John Paul II in confronting political issues.`\
 https://www.nytimes.com/2026/04/13/world/europe/pope-leo-trump-dispute.html
@@ -43,7 +47,7 @@ https://www.nytimes.com/2026/04/13/business/goldman-sachs-earnings.html
 https://www.nytimes.com/video/world/middleeast/100000010837508/trump-strait-hormuz-blockade-iran.html
 
 **After Criticizing Pope, Trump Posts Image of Himself as a Jesus-Like Figure**\
-`The image, posted on Truth Social, appeared to be A.I.-generated and depicts the president as a divine leader healing the sick.`\
+`The image, posted on Truth Social, appeared to be A.I.-generated and depicted the president as a divine leader healing the sick. The post prompted backlash from some prominent Catholics and conservatives.`\
 https://www.nytimes.com/2026/04/13/us/politics/trump-jesus-pope-leo-truth-social-post.html
 
 **Investors Brace for a New Hormuz Blockade Threat**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/13/us/politics/pope-leo-trump-response.html
 **Trump Said Other Countries Would Help Blockade Iran. So Far, There Are No Takers.**\
 `President Trump’s announcement of a complete U.S. blockade was his latest effort to pressure Iran to negotiate after direct talks over the weekend did not yield an agreement.`\
 https://www.nytimes.com/2026/04/13/world/middleeast/trump-iran-blockade-strait-of-hormuz.html
-
-**Israelis Don’t Feel Much Like Victors in War With Iran**\
-`The regime in Iran has not changed and the nuclear and missile threats have not been eliminated, leaving many Israelis to wonder what this was all for.`\
-https://www.nytimes.com/2026/04/13/world/israeli-iran-war-polls.html
 

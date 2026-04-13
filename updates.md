@@ -1,3 +1,11 @@
+**El papa León, horas después de las críticas de Trump, dice que ‘no le temo’**\
+`El presidente Trump arremetió el domingo por la noche contra el papa León XIV en redes sociales. El pontífice aseguró que seguiría oponiéndose a la guerra.`\
+https://www.nytimes.com/es/2026/04/13/espanol/mundo/papa-leon-trump-respuesta.html
+
+**After Criticizing Pope, Trump Posts Image of Himself as a Jesus-Like Figure**\
+`The image, posted on Truth Social, appeared to be A.I.-generated and depicted the president as a divine leader healing the sick. The post prompted backlash from some prominent Catholics and conservatives.`\
+https://www.nytimes.com/2026/04/13/us/politics/trump-jesus-pope-leo-truth-social-post.html
+
 **Do You Know Which Books Feature These Sharp Lines?**\
 `Try this short quiz on memorably snarky retorts and observations from five literary works.`\
 https://www.nytimes.com/interactive/2026/04/13/books/review/snappy-book-quotes.html
