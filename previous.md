@@ -1,3 +1,7 @@
+**What Orban’s Defeat Means for the Rest of the World**\
+`The Hungarian prime minister’s defeat demonstrates that opposition to his party was so strong it was able to overwhelm all the structures Viktor Orban put in place to protect his rule.`\
+https://www.nytimes.com/2026/04/13/opinion/orbans-defeat-hungary-trump-world.html
+
 **21 horas en Pakistán: el intento y fracaso de la paz entre EE. UU. e Irán**\
 `Aliados y adversarios de Estados Unidos habían puesto sus esperanzas en el vicepresidente JD Vance para intentar encontrar una salida a un conflicto que ha trastornado la economía mundial.`\
 https://www.nytimes.com/es/2026/04/13/espanol/estados-unidos/iran-negociaciones-vance-paz-trump.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/13/business/energy-environment/china-energy-batt
 **Aiming at China, Malaysia Puts New Restrictions on Electric Cars**\
 `The move was a tacit acknowledgment of China’s dominance in the global market and the power of its automakers to keep prices low.`\
 https://www.nytimes.com/2026/04/13/world/asia/malaysia-electric-cars-china.html
-
-**Orban Loss in Hungary Is a Big Moment for the E.U. Here’s Why.**\
-`Prime Minister Viktor Orban has stymied the European Union for years, and particularly in recent months. Peter Magyar’s election could change that, if only so much.`\
-https://www.nytimes.com/2026/04/13/world/europe/hungary-eu-orban-magyar.html
 
