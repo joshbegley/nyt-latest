@@ -1,3 +1,7 @@
+**La ‘economía de las molestias’ es más que una molestia**\
+`Una nueva estimación cifra en 165.000 millones de dólares el costo de hacerle frente a las llamadas automatizadas, las tarifas ocultas y los chatbots de atención al cliente.`\
+https://www.nytimes.com/es/2026/04/13/espanol/negocios/llamadas-correos-no-deseados-costo.html
+
 **U.S. Begins a Blockade of the Strait of Hormuz**\
 `European countries declined to take part in the action, which is designed to pressure Iran into making concessions by cutting off its oil income.`\
 https://www.nytimes.com/2026/04/13/world/middleeast/blockade-hormuz-iran-united-states.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/world/europe/100000010837643/hungary-election-orba
 **New from Serial: ‘The Idiot’**\
 `Listen to the trailer today.`\
 https://www.nytimes.com/2026/04/13/podcasts/new-from-serial-the-idiot.html
-
-**Serial: ‘The Idiot’ is out now**\
-`Listen to the whole series today.`\
-https://www.nytimes.com/2026/04/13/podcasts/serial-the-idiot-is-out-now.html
 
