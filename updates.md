@@ -1,3 +1,7 @@
+**The Iran War Has Made Clear the Old Arrangements Are Over**\
+`For decades, the U.S.-Gulf relationship was based on oil for security. That framework is obsolete.`\
+https://www.nytimes.com/2026/04/13/opinion/uae-iran-war-trump-gulf-oil-dubai.html
+
 **What Orban’s Defeat Means for the Rest of the World**\
 `The Hungarian prime minister’s defeat demonstrates that opposition to his party was so strong it was able to overwhelm all the structures Viktor Orban put in place to protect his rule.`\
 https://www.nytimes.com/2026/04/13/opinion/orbans-defeat-hungary-trump-world.html

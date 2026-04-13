@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/04/13/world/americas/peru-election-extended-voting.
 `A unique “choreography” between two ant species suggests a distinctive partnership in which one provides a carwash service to the other.`\
 https://www.nytimes.com/2026/04/13/science/harvester-cone-ants-cleaning.html
 
-**The Relationship Between America and the U.A.E. Needs an Upgrade**\
+**The Iran War Has Made Clear the Old Arrangements Are Over**\
 `For decades, the U.S.-Gulf relationship was based on oil for security. That framework is obsolete.`\
 https://www.nytimes.com/2026/04/13/opinion/uae-iran-war-trump-gulf-oil-dubai.html
 
