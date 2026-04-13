@@ -1,3 +1,7 @@
+**The Battle Over Refreshers Heats Up as McDonald’s Enters the Mix**\
+`The fast-food giant will add fruit-flavored drinks to its menus next month as chains like Dunkin’ and Starbucks sell more cold drinks than hot ones.`\
+https://www.nytimes.com/2026/04/13/business/mcdonalds-drinks-refreshers-dirty-soda.html
+
 **Your Questions, Answered**\
 `You asked about mail-in ballots, oil in the Middle East, manufacturing jobs and more.`\
 https://www.nytimes.com/2026/04/13/briefing/your-questions-answered.html

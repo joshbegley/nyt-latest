@@ -72,7 +72,7 @@ https://www.nytimes.com/interactive/2026/04/13/opinion/affordable-car-cost.html
 
 **The Battle Over Refreshers Heats Up as McDonald’s Enters the Mix**\
 `The fast-food giant will add fruit-flavored drinks to its menus next month as chains like Dunkin’ and Starbucks sell more cold drinks than hot ones.`\
-https://www.nytimes.com/2026/04/13/business/the-battle-over-refreshers-heats-up-as-mcdonalds-enters-the-mix.html
+https://www.nytimes.com/2026/04/13/business/mcdonalds-drinks-refreshers-dirty-soda.html
 
 **A Brand-Name Novelist Revisits His Old Friend and Alter Ego**\
 `Jay McInerney has written about the literary party boy Russell Calloway once a decade since the 1990s. He returns in the Covid novel “See You on the Other Side.”`\
