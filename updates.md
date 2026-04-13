@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/13/world/iran-war-trump-news/heres-the-latest
+
+**Word of the Day: irrevocable**\
+`This word has appeared in 37 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/04/13/learning/word-of-the-day-irrevocable.html
+
 **Mamdani Announces City-Owned Grocery Store**\
 `At a rally on Sunday marking his first 100 days as the mayor of New York City, Zohran Mamdani announced that it would open a city-owned grocery store in East Harlem.`\
 https://www.nytimes.com/video/nyregion/100000010837309/mamdani-city-owned-grocery-store.html

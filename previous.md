@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/13/world/iran-war-trump-news/heres-the-latest
+
+**Word of the Day: irrevocable**\
+`This word has appeared in 37 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/04/13/learning/word-of-the-day-irrevocable.html
+
 **Mamdani Announces City-Owned Grocery Store**\
 `At a rally on Sunday marking his first 100 days as the mayor of New York City, Zohran Mamdani announced that it would open a city-owned grocery store in East Harlem.`\
 https://www.nytimes.com/video/nyregion/100000010837309/mamdani-city-owned-grocery-store.html
@@ -69,12 +77,4 @@ https://static01.nyt.com/slideshow/2026/04/12/t-magazine/tk.html
 **‘Titaníque’ Review: A Wild Joyride With Celine Dion as Our Kooky Guide**\
 `This “Titanic” parody fueled by Dion’s hits, silly ad-libs and pop culture references had the humblest of beginnings. Now the show has docked on Broadway.`\
 https://www.nytimes.com/2026/04/12/theater/titanique-review-broadway-dion.html
-
-**Mamdani Returns to the Stage to Tell the Story of His First 100 Days**\
-`Mayor Zohran Mamdani delivered his 100-day address at a concert venue in Queens. He highlighted his accomplishments and was joined by a not-so-surprising guest.`\
-https://www.nytimes.com/2026/04/12/nyregion/mamdani-speech-100-days.html
-
-**Díaz-Canel desafía a EE. UU. en un momento crítico**\
-`En “Meet the Press”, el presidente cubano reafirma su postura mientras el foco de Washington sigue puesto en Irán.`\
-https://www.nytimes.com/es/2026/04/12/espanol/america-latina/cuba-diaz-canel-meet-press.html
 
