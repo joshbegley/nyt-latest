@@ -1,3 +1,7 @@
+**Defeat of Orban Removes Ukraine’s Biggest Nemesis in Europe**\
+`The Hungarian leader’s pro-Moscow tilt cemented his reputation in Kyiv as a spoiler. Now, Ukraine hopes a 90-billion-euro loan he blocked will be disbursed.`\
+https://www.nytimes.com/2026/04/13/world/europe/hungary-orban-ukraine-zelensky.html
+
 **Trump Says U.S. Will Blockade Iranian Ports in Strait of Hormuz**\
 `After peace talks between U.S. and Iranian officials ended without a deal, President Trump announced that the U.S. military would begin a blockade in the Strait of Hormuz starting Monday morning.`\
 https://www.nytimes.com/video/world/middleeast/100000010837508/trump-strait-hormuz-blockade-iran.html

@@ -59,7 +59,7 @@ https://www.nytimes.com/2026/04/13/crosswords/strands-sidekick-772.html
 https://www.nytimes.com/2026/04/13/crosswords/wordle-review-1760.html
 
 **Defeat of Orban Removes Ukraine’s Biggest Nemesis in Europe**\
-`The Hungarian leader’s pro-Moscow tilt cemented his reputation in Kyiv as a spoiler. Now, Ukraine hopes a 90 billion euro loan he blocked will be disbursed.`\
+`The Hungarian leader’s pro-Moscow tilt cemented his reputation in Kyiv as a spoiler. Now, Ukraine hopes a 90-billion-euro loan he blocked will be disbursed.`\
 https://www.nytimes.com/2026/04/13/world/europe/hungary-orban-ukraine-zelensky.html
 
 **Film Club: ‘Buckle Up, Women. Cars Still Aren’t Built for You.’**\
