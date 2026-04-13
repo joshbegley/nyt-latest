@@ -1,3 +1,11 @@
+**My Mother Taught Me to Cook Like a Somali. I Want to Teach the World.**\
+`The cookbook author and chef Ifrah F. Ahmed turned her mom’s mission — preserving a culinary tradition — into her own.`\
+https://www.nytimes.com/2026/04/13/dining/chef-ifrah-f-ahmed-somali-cooking-family-recipes.html
+
+**Hungarian Voters Express Joy and Disbelief After Orban Defeat**\
+`Hungarians reacted with joy, disbelief and disappointment after the former prime minister, Viktor Orban, was defeated by Peter Magyar in an election on Sunday.`\
+https://www.nytimes.com/video/world/europe/100000010837643/hungary-election-orban-magyar-budapest.html
+
 **New from Serial: ‘The Idiot’**\
 `Listen to the trailer today.`\
 https://www.nytimes.com/2026/04/13/podcasts/new-from-serial-the-idiot.html

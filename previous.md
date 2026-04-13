@@ -1,3 +1,11 @@
+**My Mother Taught Me to Cook Like a Somali. I Want to Teach the World.**\
+`The cookbook author and chef Ifrah F. Ahmed turned her mom’s mission — preserving a culinary tradition — into her own.`\
+https://www.nytimes.com/2026/04/13/dining/chef-ifrah-f-ahmed-somali-cooking-family-recipes.html
+
+**Hungarian Voters Express Joy and Disbelief After Orban Defeat**\
+`Hungarians reacted with joy, disbelief and disappointment after the former prime minister, Viktor Orban, was defeated by Peter Magyar in an election on Sunday.`\
+https://www.nytimes.com/video/world/europe/100000010837643/hungary-election-orban-magyar-budapest.html
+
 **New from Serial: ‘The Idiot’**\
 `Listen to the trailer today.`\
 https://www.nytimes.com/2026/04/13/podcasts/new-from-serial-the-idiot.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/13/world/europe/hungary-voters-reaction-election
 **La derrota de Orbán en Hungría es un gran momento para la Unión Europea. ¿Por qué?**\
 `El primer ministro Viktor Orbán ha obstaculizado a la UE durante años. La elección de Péter Magyar podría cambiar esta situación.`\
 https://www.nytimes.com/es/2026/04/13/espanol/mundo/viktor-orban-hungria-derrota-europa.html
-
-**Trump’s Erratic Behavior and Extreme Comments Revive Mental Health Debate**\
-`As the president threatens to wipe out Iran and attacks the pope, even some former allies and advisers are questioning whether he has grown increasingly unbalanced, describing him as “lunatic” and “clearly insane.”`\
-https://www.nytimes.com/2026/04/13/us/politics/trump-mental-fitness-25th-amendment.html
-
-**Two Iran-linked Ships Passed Through Strait of Hormuz Ahead of U.S. Blockade**\
-`The vessels exited the Strait of Hormuz on Monday, hours before a U.S. naval blockade took effect.`\
-https://www.nytimes.com/2026/04/13/world/middleeast/strait-hormuz-shipping-iran-blockade-trump.html
 
