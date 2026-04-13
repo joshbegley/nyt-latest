@@ -1,3 +1,15 @@
+**‘Titaníque’ Review: A Wild Joyride With Celine Dion as Our Kooky Guide**\
+`This “Titanic” parody fueled by Dion’s hits, silly ad-libs and pop culture references had the humblest of beginnings. Now the show has docked on Broadway.`\
+https://www.nytimes.com/2026/04/12/theater/titanique-review-broadway-dion.html
+
+**Mamdani Returns to the Stage to Tell the Story of His First 100 Days**\
+`Mayor Zohran Mamdani delivered his 100-day address at a concert venue in Queens. He highlighted his accomplishments and was joined by a not-so-surprising guest.`\
+https://www.nytimes.com/2026/04/12/nyregion/mamdani-speech-100-days.html
+
+**Díaz-Canel desafía a EE. UU. en un momento crítico**\
+`En “Meet the Press”, el presidente cubano reafirma su postura mientras el foco de Washington sigue puesto en Irán.`\
+https://www.nytimes.com/es/2026/04/12/espanol/america-latina/cuba-diaz-canel-meet-press.html
+
 **Trump Says Gas Prices Might Not Drop By Midterms, Underscoring G.O.P. Peril**\
 `The president has sent mixed messages on how long he expects costs to be high. Some in his party voiced fresh concern after his comments on Sunday.`\
 https://www.nytimes.com/2026/04/12/us/politics/trump-gas-prices-high-midterms-republicans.html

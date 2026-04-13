@@ -1,3 +1,15 @@
+**‘Titaníque’ Review: A Wild Joyride With Celine Dion as Our Kooky Guide**\
+`This “Titanic” parody fueled by Dion’s hits, silly ad-libs and pop culture references had the humblest of beginnings. Now the show has docked on Broadway.`\
+https://www.nytimes.com/2026/04/12/theater/titanique-review-broadway-dion.html
+
+**Mamdani Returns to the Stage to Tell the Story of His First 100 Days**\
+`Mayor Zohran Mamdani delivered his 100-day address at a concert venue in Queens. He highlighted his accomplishments and was joined by a not-so-surprising guest.`\
+https://www.nytimes.com/2026/04/12/nyregion/mamdani-speech-100-days.html
+
+**Díaz-Canel desafía a EE. UU. en un momento crítico**\
+`En “Meet the Press”, el presidente cubano reafirma su postura mientras el foco de Washington sigue puesto en Irán.`\
+https://www.nytimes.com/es/2026/04/12/espanol/america-latina/cuba-diaz-canel-meet-press.html
+
 **Trump Says Gas Prices Might Not Drop By Midterms, Underscoring G.O.P. Peril**\
 `The president has sent mixed messages on how long he expects costs to be high. Some in his party voiced fresh concern after his comments on Sunday.`\
 https://www.nytimes.com/2026/04/12/us/politics/trump-gas-prices-high-midterms-republicans.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/12/us/politics/2028-democrats-presidential-sharp
 **Israel’s War**\
 `Prime Minister Benjamin Netanyahu was instrumental in taking the U.S. to war with Iran. Now, he is trying to prolong the fighting.`\
 https://www.nytimes.com/2026/04/12/world/israel-lebanon-iran-hungary-orban.html
-
-**Shaping the New Look of ‘Euphoria’**\
-`Natasha Newman-Thomas has stepped in as the new costume designer for the third season of HBO’s chaotic megahit. It’s a lofty task.`\
-https://www.nytimes.com/2026/04/12/style/euphoria-costumes.html
-
-**NASA’s Artemis II Crew Returns to Houston After Lunar Mission**\
-`After splashing down in the Pacific Ocean, the Artemis II crew members reunited with their friends, families and fellow NASA astronauts in Houston on Saturday. Their voyage was the first trip by humans into deep space in more than half a century.`\
-https://www.nytimes.com/video/science/space/100000010836658/nasa-artemis-returns-lunar-mission.html
-
-**How 6 People in New York City Are Coping With Higher Costs**\
-`Surging inflation and rising prices have some people re-evaluating date nights and how much of their splurges they can share with friends.`\
-https://www.nytimes.com/2026/04/12/nyregion/nyc-inflation-prices.html
 
