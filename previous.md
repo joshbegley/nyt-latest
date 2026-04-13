@@ -1,3 +1,11 @@
+**Student News Quiz for April 6-13**\
+`Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
+https://www.nytimes.com/interactive/2026/04/13/learning/13StudentNewsQuiz.html
+
+**Youths Who Sued Trump Over Orders to ‘Unleash’ Energy Try to Revive Case**\
+`Appealing the dismissal of their suit, they argued that executive orders to promote fossil fuels endangered their futures and violated their constitutional rights.`\
+https://www.nytimes.com/2026/04/13/climate/trump-climate-youth-lawsuit.html
+
 **La ‘economía de las molestias’ es más que una molestia**\
 `Una nueva estimación cifra en 165.000 millones de dólares el costo de hacerle frente a las llamadas automatizadas, las tarifas ocultas y los chatbots de atención al cliente.`\
 https://www.nytimes.com/es/2026/04/13/espanol/negocios/llamadas-correos-no-deseados-costo.html
@@ -69,12 +77,4 @@ https://static01.nyt.com/slideshow/2026/04/13/t-magazine/tk.html
 **My Mother Taught Me to Cook Like a Somali. I Want to Teach the World.**\
 `The cookbook author and chef Ifrah F. Ahmed turned her mom’s mission — preserving a culinary tradition — into her own.`\
 https://www.nytimes.com/2026/04/13/dining/chef-ifrah-f-ahmed-somali-cooking-family-recipes.html
-
-**Hungarian Voters Express Joy and Disbelief After Orban Defeat**\
-`Hungarians reacted with joy, disbelief and disappointment after the former prime minister, Viktor Orban, was defeated by Peter Magyar in an election on Sunday.`\
-https://www.nytimes.com/video/world/europe/100000010837643/hungary-election-orban-magyar-budapest.html
-
-**New from Serial: ‘The Idiot’**\
-`Listen to the trailer today.`\
-https://www.nytimes.com/2026/04/13/podcasts/new-from-serial-the-idiot.html
 
