@@ -1,3 +1,7 @@
+**Effects of Iran War Emerge in Company Earnings, Starting With Goldman Sachs**\
+`It will be a tricky earnings season, as the investment banking giant became the first to show on Monday.`\
+https://www.nytimes.com/2026/04/13/business/goldman-sachs-earnings.html
+
 **Trump Says U.S. Will Blockade Iranian Ports in Strait of Hormuz**\
 `After peace talks between U.S. and Iranian officials ended without a deal, President Trump announced that the U.S. military would begin a blockade in the Strait of Hormuz starting Monday morning.`\
 https://www.nytimes.com/video/world/middleeast/100000010837508/trump-strait-hormuz-blockade-iran.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/13/world/europe/hungary-election-results-orban-m
 **Pete Hegseth’s Gospel of Carnage**\
 `The defense secretary thinks he’s commanding God’s army`\
 https://www.nytimes.com/2026/04/13/opinion/pete-hegseths-religious-war.html
-
-**What’s With the Two-Button Rule?**\
-`When wearing a two-button suit jacket, one is generally advised to leave the bottom button open. Our critic explains the reasoning behind the rule.`\
-https://www.nytimes.com/2026/04/13/fashion/suit-two-button-rule.html
 
