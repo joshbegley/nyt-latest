@@ -1,3 +1,19 @@
+**After Criticizing Pope, Trump Posts Image of Himself as a Jesus-Like Figure**\
+`The image, posted on Truth Social, appeared to be A.I.-generated and depicts the president as a divine leader healing the sick.`\
+https://www.nytimes.com/2026/04/13/us/politics/trump-jesus-pope-leo-truth-social-post.html
+
+**Investors Brace for a New Hormuz Blockade Threat**\
+`President Trump’s plan to bar ships from entering or leaving Iranian ports has put markets on edge and added to global economic uncertainty.`\
+https://www.nytimes.com/2026/04/13/business/dealbook/trump-iran-hormuz-blockade.html
+
+**Eric Swalwell Suspends Campaign for California Governor**\
+`In a social media post, Representative Eric Swalwell announced that he was suspending his campaign for California governor after two news outlets published accusations of sexual assault and misconduct against him.`\
+https://www.nytimes.com/video/us/politics/100000010837456/swalwell-suspends-california-governor-allegations.html
+
+**Hungary May No Longer Be Putin’s Ally, but It Can’t Afford a Full Break**\
+`Prime Minister Viktor Orban’s defeat will make it harder for the Kremlin to divide Europe, but Moscow retains leverage through energy sales.`\
+https://www.nytimes.com/2026/04/13/world/europe/russia-hungary-putin-orban.html
+
 **The Battle Over Refreshers Heats Up as McDonald’s Enters the Mix**\
 `The fast-food giant will add fruit-flavored drinks to its menus next month as chains like Dunkin’ and Starbucks sell more cold drinks than hot ones.`\
 https://www.nytimes.com/2026/04/13/business/mcdonalds-drinks-refreshers-dirty-soda.html

@@ -1,3 +1,19 @@
+**After Criticizing Pope, Trump Posts Image of Himself as a Jesus-Like Figure**\
+`The image, posted on Truth Social, appeared to be A.I.-generated and depicts the president as a divine leader healing the sick.`\
+https://www.nytimes.com/2026/04/13/us/politics/trump-jesus-pope-leo-truth-social-post.html
+
+**Investors Brace for a New Hormuz Blockade Threat**\
+`President Trump’s plan to bar ships from entering or leaving Iranian ports has put markets on edge and added to global economic uncertainty.`\
+https://www.nytimes.com/2026/04/13/business/dealbook/trump-iran-hormuz-blockade.html
+
+**Eric Swalwell Suspends Campaign for California Governor**\
+`In a social media post, Representative Eric Swalwell announced that he was suspending his campaign for California governor after two news outlets published accusations of sexual assault and misconduct against him.`\
+https://www.nytimes.com/video/us/politics/100000010837456/swalwell-suspends-california-governor-allegations.html
+
+**Hungary May No Longer Be Putin’s Ally, but It Can’t Afford a Full Break**\
+`Prime Minister Viktor Orban’s defeat will make it harder for the Kremlin to divide Europe, but Moscow retains leverage through energy sales.`\
+https://www.nytimes.com/2026/04/13/world/europe/russia-hungary-putin-orban.html
+
 **Your Questions, Answered**\
 `You asked about mail-in ballots, oil in the Middle East, manufacturing jobs and more.`\
 https://www.nytimes.com/2026/04/13/briefing/your-questions-answered.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/13/fashion/suit-two-button-rule.html
 **From a Wedding to a School in 90 Seconds: Backstage Magic at the Met**\
 `The set of Kaija Saariaho’s opera “Innocence” transforms with astonishing speed. It takes a big, nimble team to make that possible.`\
 https://www.nytimes.com/2026/04/13/arts/music/innocence-met-opera-revolving-set.html
-
-**A Mermaid, a Ballplayer: This Mural Salutes Coney Island**\
-`The mural, which surrounds a construction site, is part of an effort to decorate unsightly sidewalk sheds.`\
-https://www.nytimes.com/2026/04/13/nyregion/mural-coney-island-construction-site.html
-
-**The Affordable Car Is Dead. What Happened?**\
-`This is how cars got so ridiculously, forbiddingly expensive.`\
-https://www.nytimes.com/interactive/2026/04/13/opinion/affordable-car-cost.html
-
-**The Battle Over Refreshers Heats Up as McDonald’s Enters the Mix**\
-`The fast-food giant will add fruit-flavored drinks to its menus next month as chains like Dunkin’ and Starbucks sell more cold drinks than hot ones.`\
-https://www.nytimes.com/2026/04/13/business/mcdonalds-drinks-refreshers-dirty-soda.html
-
-**A Brand-Name Novelist Revisits His Old Friend and Alter Ego**\
-`Jay McInerney has written about the literary party boy Russell Calloway once a decade since the 1990s. He returns in the Covid novel “See You on the Other Side.”`\
-https://www.nytimes.com/2026/04/13/books/review/see-you-on-the-other-side-jay-mcinerney.html
 
