@@ -1,3 +1,7 @@
+**Trump Says U.S. Will Blockade Iranian Ports in Strait of Hormuz**\
+`After peace talks between U.S. and Iranian officials ended without a deal, President Trump announced that the U.S. military would begin a blockade in the Strait of Hormuz starting Monday morning.`\
+https://www.nytimes.com/video/world/middleeast/100000010837508/trump-strait-hormuz-blockade-iran.html
+
 **After Criticizing Pope, Trump Posts Image of Himself as a Jesus-Like Figure**\
 `The image, posted on Truth Social, appeared to be A.I.-generated and depicts the president as a divine leader healing the sick.`\
 https://www.nytimes.com/2026/04/13/us/politics/trump-jesus-pope-leo-truth-social-post.html
