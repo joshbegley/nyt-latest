@@ -1,3 +1,27 @@
+**Israelis Don’t Feel Much Like Victors in War With Iran**\
+`The regime in Iran has not changed and the nuclear and missile threats have not been eliminated, leaving many Israelis to wonder what this was all for.`\
+https://www.nytimes.com/2026/04/13/world/israeli-iran-war-polls.html
+
+**Why U.S.-Iran Negotiations Failed**\
+`After 21 hours of talks, Vice President JD Vance said Washington and Tehran had not reached a deal to end the war.`\
+https://www.nytimes.com/2026/04/13/podcasts/the-daily/us-iran-negotiations.html
+
+**U.S. Prepares to Blockade Strait of Hormuz, and a MAGA Hero Is Defeated in Europe**\
+`Plus, Eric Swalwell suspended his campaign after sexual assault allegations.`\
+https://www.nytimes.com/2026/04/13/podcasts/the-headlines/us-strait-of-hormuz-orban-defeated.html
+
+**Connections Companion No. 1,038**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, April 14, 2026.`\
+https://www.nytimes.com/2026/04/13/crosswords/connections-companion-1038.html
+
+**Strands Sidekick No. 772**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, April 14, 2026.`\
+https://www.nytimes.com/2026/04/13/crosswords/strands-sidekick-772.html
+
+**Wordle Review No. 1,760**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, April 14, 2026.`\
+https://www.nytimes.com/2026/04/13/crosswords/wordle-review-1760.html
+
 **Defeat of Orban Removes Ukraine’s Biggest Nemesis in Europe**\
 `The Hungarian leader’s pro-Moscow tilt cemented his reputation in Kyiv as a spoiler. Now, Ukraine hopes a 90 billion euro loan he blocked will be disbursed.`\
 https://www.nytimes.com/2026/04/13/world/europe/hungary-orban-ukraine-zelensky.html
