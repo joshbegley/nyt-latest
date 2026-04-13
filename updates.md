@@ -1,3 +1,11 @@
+**As London Celebrates the Best of Theater, Musicals Are All the Rage**\
+`Critics reflect on the 2026 Olivier Awards, which recognized homegrown British talent and some productions headed for New York.`\
+https://www.nytimes.com/2026/04/13/arts/olivier-awards-winners-critics.html
+
+**Hollywood Heavyweights Sign Letter Opposing Paramount’s Deal for Warner Bros.**\
+`The letter warns that the deal will result in fewer jobs for creatives, along with higher costs and less choice for audiences.`\
+https://www.nytimes.com/2026/04/13/business/media/hollywood-letter-opposing-paramount-warner-bros-deal.html
+
 **Effects of Iran War Emerge in Company Earnings, Starting With Goldman Sachs**\
 `It will be a tricky earnings season, as the investment banking giant became the first to show on Monday.`\
 https://www.nytimes.com/2026/04/13/business/goldman-sachs-earnings.html
