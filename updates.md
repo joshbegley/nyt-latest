@@ -1,3 +1,7 @@
+**Killer’s Parents Could Have Prevented Southport Attack in U.K., Report Says**\
+`An official inquiry said the perpetrator’s parents, as well as government agencies, had missed several chances to avert the deadly attack.`\
+https://www.nytimes.com/2026/04/13/world/europe/southport-attack-killers-parents-report.html
+
 **A Stormy Week Is in Store for the Central U.S. Here’s What to Know.**\
 `Tens of millions of people from Texas to the Great Lakes could face heavy rain and hail — and possibly tornadoes — as spring storms move through.`\
 https://www.nytimes.com/2026/04/13/weather/storms-forecast-midwest.html
