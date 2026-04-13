@@ -1,3 +1,7 @@
+**The Next Test in the Iran War: Which Side Can Endure More Economic Pain?**\
+`President Trump is trying to choke off the country’s lifeline with a blockade of the Strait of Hormuz. But the Iranians are betting that his tolerance for political pain is limited.`\
+https://www.nytimes.com/2026/04/13/us/politics/iran-war-strait-of-hormuz-blockade-economy.html
+
 **As London Celebrates the Best of Theater, Musicals Are All the Rage**\
 `Critics reflect on the 2026 Olivier Awards, which recognized homegrown British talent and some productions headed for New York.`\
 https://www.nytimes.com/2026/04/13/arts/olivier-awards-winners-critics.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/13/crosswords/wordle-review-1760.html
 **Defeat of Orban Removes Ukraine’s Biggest Nemesis in Europe**\
 `The Hungarian leader’s pro-Moscow tilt cemented his reputation in Kyiv as a spoiler. Now, Ukraine hopes a 90-billion-euro loan he blocked will be disbursed.`\
 https://www.nytimes.com/2026/04/13/world/europe/hungary-orban-ukraine-zelensky.html
-
-**Film Club: ‘Buckle Up, Women. Cars Still Aren’t Built for You.’**\
-`An Opinion video argues that auto safety standards have ignored women for over a half a century. What should be done to change that?`\
-https://www.nytimes.com/2026/04/13/learning/film-club-buckle-up-women-cars-still-arent-built-for-you.html
 
