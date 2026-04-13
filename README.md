@@ -1,3 +1,7 @@
+**Trump Says U.S. Will Blockade Iranian Ports in Strait of Hormuz**\
+`After peace talks between U.S. and Iranian officials ended without a deal, President Trump announced that the U.S. military would begin a blockade in the Strait of Hormuz starting Monday morning.`\
+https://www.nytimes.com/video/world/middleeast/100000010837508/trump-strait-hormuz-blockade-iran.html
+
 **After Criticizing Pope, Trump Posts Image of Himself as a Jesus-Like Figure**\
 `The image, posted on Truth Social, appeared to be A.I.-generated and depicts the president as a divine leader healing the sick.`\
 https://www.nytimes.com/2026/04/13/us/politics/trump-jesus-pope-leo-truth-social-post.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/13/opinion/pete-hegseths-religious-war.html
 **What’s With the Two-Button Rule?**\
 `When wearing a two-button suit jacket, one is generally advised to leave the bottom button open. Our critic explains the reasoning behind the rule.`\
 https://www.nytimes.com/2026/04/13/fashion/suit-two-button-rule.html
-
-**From a Wedding to a School in 90 Seconds: Backstage Magic at the Met**\
-`The set of Kaija Saariaho’s opera “Innocence” transforms with astonishing speed. It takes a big, nimble team to make that possible.`\
-https://www.nytimes.com/2026/04/13/arts/music/innocence-met-opera-revolving-set.html
 
