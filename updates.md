@@ -1,3 +1,7 @@
+**Do You Know Which Books Featured These Sharp Lines?**\
+`Try this short quiz on memorably snarky retorts and observations from five literary works.`\
+https://www.nytimes.com/interactive/2026/04/13/books/review/snappy-book-quotes.html
+
 **How Orban, a Wizard of Populism, Lost His Magic Touch**\
 `The election defeat for Prime Minister Viktor Orban is less the result of an ideological shift in Hungary, and more the playing out of a fundamental rule of politics.`\
 https://www.nytimes.com/2026/04/13/world/europe/orban-hungary-election-magyar-populism.html
