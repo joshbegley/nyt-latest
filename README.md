@@ -1,3 +1,7 @@
+**A Stormy Week Is in Store for the Central U.S. Here’s What to Know.**\
+`Tens of millions of people from Texas to the Great Lakes could face heavy rain and hail — and possibly tornadoes — as spring storms move through.`\
+https://www.nytimes.com/2026/04/13/weather/storms-forecast-midwest.html
+
 **Trump, Unchecked and Unpredictable**\
 `Readers respond to a guest essay, “Trump Is Turning America Into a Psychotic State.” Also: Viktor Orban’s defeat in Hungary.`\
 https://www.nytimes.com/2026/04/13/opinion/trump-unchecked-unpredictable.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/13/world/europe/pope-leo-trump-dispute.html
 **Halle Bailey and Regé-Jean Page on Embracing ‘Cheesy’ Rom-Coms**\
 `The stars of “You, Me & Tuscany” make the case for messy, vulnerable and sometimes awkward romance. “I want to give people the freedom to cringe again,” Mr. Page said.`\
 https://www.nytimes.com/2026/04/13/style/halle-bailey-rege-jean-page-you-me-tuscany-rom-com.html
-
-**Do You Know Which Books Feature These Sharp Lines?**\
-`Try this short quiz on memorably snarky retorts and observations from five literary works.`\
-https://www.nytimes.com/interactive/2026/04/13/books/review/snappy-book-quotes.html
 
