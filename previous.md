@@ -1,3 +1,11 @@
+**The $40 Half Chicken That Ruffled Brooklyn**\
+`A New York City councilman’s Instagram post is just the latest entry in a fierce debate about the price of dining out.`\
+https://www.nytimes.com/2026/04/13/dining/rotisserie-chicken-prices.html
+
+**Luna Calls for Quick Expulsion of Swalwell as Ethics Panel Opens Inquiry**\
+`Representative Anna Paulina Luna, Republican of Florida, said she wanted votes as early as Wednesday on expelling Representatives Eric Swalwell and Tony Gonzales over sexual misconduct accusations.`\
+https://www.nytimes.com/2026/04/13/us/politics/eric-swalwell-tony-gonzales-luna-house-expel.html
+
 **TK**\
 `TK`\
 https://static01.nyt.com/slideshow/2026/04/13/t-magazine/tk.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/13/world/europe/southport-attack-killers-parents
 **A Stormy Week Is in Store for the Central U.S. Here’s What to Know.**\
 `Tens of millions of people from Texas to the Great Lakes could face heavy rain and hail — and possibly tornadoes — as spring storms move through.`\
 https://www.nytimes.com/2026/04/13/weather/storms-forecast-midwest.html
-
-**Trump, Unchecked and Unpredictable**\
-`Readers respond to a guest essay, “Trump Is Turning America Into a Psychotic State.” Also: Viktor Orban’s defeat in Hungary.`\
-https://www.nytimes.com/2026/04/13/opinion/trump-unchecked-unpredictable.html
-
-**‘We Finally Have Democracy’: Hungarians Erupt in Joy and Relief**\
-`Many Hungarians, exhausted by a struggling economy and worried about a move away from the European Union, were jubilant after Prime Minister Viktor Orban conceded. Some had wondered if he would.`\
-https://www.nytimes.com/2026/04/13/world/europe/hungary-voters-reaction-election-orban-magyar.html
 

@@ -1,3 +1,11 @@
+**The $40 Half Chicken That Ruffled Brooklyn**\
+`A New York City councilman’s Instagram post is just the latest entry in a fierce debate about the price of dining out.`\
+https://www.nytimes.com/2026/04/13/dining/rotisserie-chicken-prices.html
+
+**Luna Calls for Quick Expulsion of Swalwell as Ethics Panel Opens Inquiry**\
+`Representative Anna Paulina Luna, Republican of Florida, said she wanted votes as early as Wednesday on expelling Representatives Eric Swalwell and Tony Gonzales over sexual misconduct accusations.`\
+https://www.nytimes.com/2026/04/13/us/politics/eric-swalwell-tony-gonzales-luna-house-expel.html
+
 **TK**\
 `TK`\
 https://static01.nyt.com/slideshow/2026/04/13/t-magazine/tk.html
