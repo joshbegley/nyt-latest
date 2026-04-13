@@ -1,3 +1,11 @@
+**Many Popes Have Been Entangled in Politics. Here Are 5 of Them.**\
+`Leo XIV, under fire from President Trump, has joined predecessors like Francis and John Paul II in confronting political issues.`\
+https://www.nytimes.com/2026/04/13/world/europe/pope-leo-trump-dispute.html
+
+**After Criticizing Pope, Trump Posts Image of Himself as a Jesus-Like Figure**\
+`The image, which was posted on Truth Social and had disappeared by Monday morning, depicted the president as a divine leader healing the sick. The post prompted an immediate backlash.`\
+https://www.nytimes.com/2026/04/13/us/politics/trump-jesus-pope-leo-truth-social-post.html
+
 **Trump Administration’s Temporary Reprieve on Russian Oil Expires**\
 `A sanctions waiver aimed at keeping global oil prices down had allowed Moscow to sell oil currently at sea.`\
 https://www.nytimes.com/2026/04/13/business/trump-iran-russia-oil-sanctions.html
