@@ -1,3 +1,19 @@
+**Trump, Unchecked and Unpredictable**\
+`Readers respond to a guest essay, “Trump Is Turning America Into a Psychotic State.” Also: Viktor Orban’s defeat in Hungary.`\
+https://www.nytimes.com/2026/04/13/opinion/trump-unchecked-unpredictable.html
+
+**‘We Finally Have Democracy’: Hungarians Erupt in Joy and Relief**\
+`Many Hungarians, exhausted by a struggling economy and worried about a move away from the European Union, were jubilant after Prime Minister Viktor Orban conceded. Some had wondered if he would.`\
+https://www.nytimes.com/2026/04/13/world/europe/hungary-voters-reaction-election-orban-magyar.html
+
+**La derrota de Orbán en Hungría es un gran momento para la Unión Europea. ¿Por qué?**\
+`El primer ministro Viktor Orbán ha obstaculizado a la UE durante años. La elección de Péter Magyar podría cambiar esta situación.`\
+https://www.nytimes.com/es/2026/04/13/espanol/mundo/viktor-orban-hungria-derrota-europa.html
+
+**Trump’s Erratic Behavior and Extreme Comments Revive Mental Health Debate**\
+`As the president threatens to wipe out Iran and attacks the pope, even some former allies and advisers are questioning whether he has grown increasingly unbalanced, describing him as “lunatic” and “clearly insane.”`\
+https://www.nytimes.com/2026/04/13/us/politics/trump-mental-fitness-25th-amendment.html
+
 **Two Iran-linked Ships Passed Through Strait of Hormuz Ahead of U.S. Blockade**\
 `The vessels exited the Strait of Hormuz on Monday, hours before a U.S. naval blockade took effect.`\
 https://www.nytimes.com/2026/04/13/world/middleeast/strait-hormuz-shipping-iran-blockade-trump.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/13/style/halle-bailey-rege-jean-page-you-me-tusc
 **Do You Know Which Books Feature These Sharp Lines?**\
 `Try this short quiz on memorably snarky retorts and observations from five literary works.`\
 https://www.nytimes.com/interactive/2026/04/13/books/review/snappy-book-quotes.html
-
-**How Orban, a Wizard of Populism, Lost His Magic Touch**\
-`The election defeat for Prime Minister Viktor Orban is less the result of an ideological shift in Hungary, and more the playing out of a fundamental rule of politics.`\
-https://www.nytimes.com/2026/04/13/world/europe/orban-hungary-election-magyar-populism.html
-
-**F.D.A. Pushes Drug Developers to Report Clinical Trial Results**\
-`Many unfavorable results go unreported, skewing the available data on medical treatments.`\
-https://www.nytimes.com/2026/04/13/well/fda-clinical-trials.html
-
-**Judge Dismisses Trump’s Suit Against The Wall Street Journal**\
-`The judge said President Trump had not “plausibly alleged” that The Journal published the article with actual malice.`\
-https://www.nytimes.com/2026/04/13/business/media/trump-wall-street-journal-lawsuit-dismissed-epstein.html
-
-**Iran Blockade Sets Up a Test of Which Side Can Endure More Pain**\
-`President Trump is trying to choke off the country’s lifeline with a blockade of the Strait of Hormuz. But the Iranians are betting that his tolerance for political pain is limited.`\
-https://www.nytimes.com/2026/04/13/us/politics/iran-war-strait-of-hormuz-blockade-economy.html
 
