@@ -1,3 +1,35 @@
+**The U.S. Blockades Iran’s Ports**\
+`Also, Trump clashes with the pope. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/04/13/briefing/the-us-blockades-irans-ports.html
+
+**South Korea Can’t Build Enough Stadiums to Host Its K-Pop Stars**\
+`South Korea doesn’t have enough arenas to show off its own A-list talent. That’s why BTS began its world tour in a once-neglected, 22-year-old soccer stadium.`\
+https://www.nytimes.com/2026/04/13/world/asia/concert-venue-shortage-south-korea.html
+
+**Lena Dunham Is Still Trying to Figure Out Why People Hated Her So Much**\
+`Lena Dunham sits down with The Interview co-host, David Marchese, to discuss her new memoir “Famesick.”`\
+https://www.nytimes.com/video/podcasts/100000010838823/lena-dunham-is-still-trying-to-figure-out-why-people-hated-her-so-much.html
+
+**What the Naval Blockade of Iran Might Look Like**\
+`The U.S. military has provided few details on how it might carry out President Trump’s orders as he seeks to pressure Tehran on a peace deal. But history and established practices offer some clues.`\
+https://www.nytimes.com/2026/04/13/us/politics/strait-of-hormuz-blockade-iran-trump.html
+
+**Swalwell Says He Will Resign From Congress After Sex Abuse Accusations**\
+`The California lawmaker said in a social media post Monday that he would quit. He has denied accounts of abusing women.`\
+https://www.nytimes.com/2026/04/13/us/eric-swalwell-resignation-sex-abuse-accusations.html
+
+**Six Spas Where You Can Tune Out the World**\
+`Whether you want to sink into a geothermal bath or indulge in some serious skin care, these destinations offer a place to get away from it all.`\
+https://www.nytimes.com/2026/04/13/t-magazine/spa-wellness-vacation-travel.html
+
+**Harvard Says Trump Lawsuit Rehashes a Battle the School Already Won**\
+`The government has accused Harvard of harboring antisemitism. Harvard says it prevailed in a similar case last year, and wants the lawsuit moved to the judge who ruled in its favor.`\
+https://www.nytimes.com/2026/04/13/us/harvard-trump-lawsuit-antisemitism.html
+
+**The End of Pax Americana**\
+`America is still a global force, says the Opinion columnist Carlos Lozada. But Trump’s desire to “wield superpowers” without behaving like a superpower is putting its reputation as a reliable leader for peace at risk.`\
+https://www.nytimes.com/video/opinion/100000010832503/the-end-of-pax-americana.html
+
 **Student News Quiz for April 6-13**\
 `Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
 https://www.nytimes.com/interactive/2026/04/13/learning/13StudentNewsQuiz.html
@@ -45,36 +77,4 @@ https://www.nytimes.com/2026/04/13/arts/library-agency-trump-settlement.html
 **Teen Is Charged With Murdering His Stepsister on a Carnival Cruise**\
 `The 16-year-old boy, identified only as T.H. in court papers, was charged with murder and sexual abuse in the death of Anna Kepner, 18.`\
 https://www.nytimes.com/2026/04/13/us/carnival-cruise-murder-abuse-charged.html
-
-**The Moral Cost of Trump’s War**\
-`The president’s recent posts about Iran may signal the end of America’s reputation as a country guided by morality, the columnist Ezra Klein argues. The foreign policy expert Fareed Zakaria joins Ezra to unpack how we got here, and where we’re headed next.`\
-https://www.nytimes.com/video/opinion/100000010825210/the-moral-cost-of-trumps-war.html
-
-**TK**\
-`Tk`\
-https://static01.nyt.com/slideshow/2026/04/13/t-magazine/tk.html
-
-**TK**\
-`TK`\
-https://static01.nyt.com/slideshow/2026/04/13/t-magazine/tk.html
-
-**U.S. Begins Blockade in the Strait of Hormuz**\
-`President Trump said the U.S. began its blockade in the Straight of Hormuz on Monday. The blockade comes as talks between American and Iranian negotiators ended without a breakthrough over the weekend.`\
-https://www.nytimes.com/video/world/middleeast/100000010838649/trump-iran-strait-hormuz-blockade.html
-
-**The $40 Half Chicken That Ruffled Brooklyn**\
-`A New York City councilman’s Instagram post is just the latest entry in a fierce debate about the price of dining out.`\
-https://www.nytimes.com/2026/04/13/dining/rotisserie-chicken-prices.html
-
-**Luna Calls for Quick Expulsion of Swalwell as Ethics Panel Opens Inquiry**\
-`Representative Anna Paulina Luna, Republican of Florida, said she wanted votes as early as Wednesday on expelling Representatives Eric Swalwell and Tony Gonzales over sexual misconduct accusations.`\
-https://www.nytimes.com/2026/04/13/us/politics/eric-swalwell-tony-gonzales-luna-house-expel.html
-
-**TK**\
-`TK`\
-https://static01.nyt.com/slideshow/2026/04/13/t-magazine/tk.html
-
-**My Mother Taught Me to Cook Like a Somali. I Want to Teach the World.**\
-`The cookbook author and chef Ifrah F. Ahmed turned her mom’s mission — preserving a culinary tradition — into her own.`\
-https://www.nytimes.com/2026/04/13/dining/chef-ifrah-f-ahmed-somali-cooking-family-recipes.html
 
