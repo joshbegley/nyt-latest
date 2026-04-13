@@ -1,3 +1,11 @@
+**La ‘economía de las molestias’ es más que una molestia**\
+`Una nueva estimación cifra en 165.000 millones de dólares el costo de hacerle frente a las llamadas automatizadas, las tarifas ocultas y los chatbots de atención al cliente.`\
+https://www.nytimes.com/es/2026/04/13/espanol/negocios/llamadas-correos-no-deseados-costo.html
+
+**U.S. Begins a Blockade of the Strait of Hormuz**\
+`European countries declined to take part in the action, which is designed to pressure Iran into making concessions by cutting off its oil income.`\
+https://www.nytimes.com/2026/04/13/world/middleeast/blockade-hormuz-iran-united-states.html
+
 **The Venezuela Model**\
 `President Trump calls the removal of Nicolás Maduro “the perfect scenario.” But not everything is going right for the U.S. in Venezuela.`\
 https://www.nytimes.com/2026/04/13/world/venezuela-oil-us-blockade-hormuz-pope-leo.html
