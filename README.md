@@ -1,3 +1,11 @@
+**About 100 People Detained at N.Y.C. Protest Over Arms Sales to Israel**\
+`The protesters sat in the middle of Third Avenue in Midtown Manhattan and blocked traffic for about an hour.`\
+https://www.nytimes.com/2026/04/13/nyregion/nyc-protest-arrests-israel-arms.html
+
+**The New Aesthetic of ‘Euphoria’**\
+`“Euphoria,” the HBO Max show depicting Gen Z, has released its final season. Three of our Style reporters — Gina Cherelus, Jacob Gallagher and Callie Holtermann — discuss the show’s new western aesthetic.`\
+https://www.nytimes.com/video/style/100000010815337/euphoria-aesthetics-styles-review-pilot.html
+
 **Why Are New York Restaurants Starting to Look Like Offices?**\
 `With more people resuming their commutes post-pandemic, the fantasy of a well-designed, well-run workplace beckons.`\
 https://www.nytimes.com/2026/04/13/t-magazine/nyc-restaurants-offices-modernist-design.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/13/world/middleeast/blockade-hormuz-iran-united-
 **The Venezuela Model**\
 `President Trump calls the removal of Nicolás Maduro “the perfect scenario.” But not everything is going right for the U.S. in Venezuela.`\
 https://www.nytimes.com/2026/04/13/world/venezuela-oil-us-blockade-hormuz-pope-leo.html
-
-**For Israel, War Is the Only Answer**\
-`If war is the status quo, the job is never done, and you can never lose.`\
-https://www.nytimes.com/2026/04/13/opinion/international-world/israel-war-strategy.html
-
-**Orban’s Fall Is an Astounding Achievement**\
-`Voters seized the chance to leave behind his 16-year rule.`\
-https://www.nytimes.com/2026/04/13/opinion/orban-hungary-election-magyar.html
 
