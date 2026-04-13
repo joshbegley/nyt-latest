@@ -1,3 +1,23 @@
+**So Much for Springtime: The East Coast Braces for Summer Heat**\
+`Washington could hit 90 or higher. New York won’t be far behind. But it won’t last long.`\
+https://www.nytimes.com/2026/04/13/weather/nyc-dc-atlanta-east-coast-heat-wave-forecast.html
+
+**Prosecutors Investigate ICE Agents Who Detained a Minnesota Man in His Underwear**\
+`ChongLy Scott Thao, a naturalized U.S. citizen, was briefly detained during a federal immigration crackdown in Minnesota in January.`\
+https://www.nytimes.com/2026/04/13/us/ice-minnesota-arrest-immigration-investigation.html
+
+**Trump retira una publicación con una imagen de sí mismo como una figura similar a Jesús**\
+`La imagen, que se publicó en Truth Social y desapareció la mañana del lunes, provocó una reacción negativa incluso entre algunos destacados conservadores.`\
+https://www.nytimes.com/es/2026/04/13/espanol/estados-unidos/trump-papa-jesus-ia-imagen.html
+
+**As Internet Blackout Hits Day 45, Iranians Bemoan State Hypocrisy and Economic Risks**\
+`Iranians enduring the latest communications shutdown warn that it’s crippling businesses. Critics say officials flagrantly use the internet they block citizens from.`\
+https://www.nytimes.com/2026/04/13/world/middleeast/iran-internet-blackout.html
+
+**Trump Attack on Pope and Posting of Jesus Image Draw Widespread Criticism**\
+`A prominent conservative bishop was among the Catholic leaders who jumped to the pope’s defense.`\
+https://www.nytimes.com/2026/04/13/us/trump-pope-leo.html
+
 **Tucker Carlson Is Starting a Publishing Imprint**\
 `Tucker Carlson Books, a joint venture between Carlson’s media company and Skyhorse Publishing, will put out books by Russell Brand, Milo Yiannopoulos and more.`\
 https://www.nytimes.com/2026/04/13/books/tucker-carlson-book-publisher.html
