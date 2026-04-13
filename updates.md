@@ -1,3 +1,7 @@
+**Your Questions, Answered**\
+`You asked about mail-in ballots, oil in the Middle East, manufacturing jobs and more.`\
+https://www.nytimes.com/2026/04/13/briefing/your-questions-answered.html
+
 **Britain Will Not Join U.S. Blockade of Strait of Hormuz, Starmer Says**\
 `Prime Minister Keir Starmer said the U.K.’s diplomatic efforts are directed at keeping the vital waterway “open, not shut.”`\
 https://www.nytimes.com/2026/04/13/world/europe/iran-blockade-strait-hormuz-uk-starmer-trump.html
