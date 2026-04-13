@@ -1,3 +1,7 @@
+**Tucker Carlson Is Starting a Publishing Imprint**\
+`Tucker Carlson Books, a joint venture between Carlson’s media company and Skyhorse Publishing, will put out books by Russell Brand, Milo Yiannopoulos and more.`\
+https://www.nytimes.com/2026/04/13/books/tucker-carlson-book-publisher.html
+
 **Ye Wants Forgiveness, Again. But How Many Times Will Fans Grant It?**\
 `Attempting a comeback after years of antisemitic statements, the artist formerly known as Kanye West is facing consequences while trying to navigate a test of his own making.`\
 https://www.nytimes.com/2026/04/13/arts/music/ye-kanye-west-comeback-bully.html
@@ -30,7 +34,7 @@ https://www.nytimes.com/2026/04/13/us/politics/trump-mental-fitness-25th-amendme
 `The vessels exited the Strait of Hormuz on Monday, hours before a U.S. naval blockade took effect.`\
 https://www.nytimes.com/2026/04/13/world/middleeast/strait-hormuz-shipping-iran-blockade-trump.html
 
-**Trump Attack on Pope and Posting of Jesus Image Draw Widespread Criticism**\
+**Catholic Leaders Defend Pope and Criticize Trump After Harsh Attacks**\
 `A prominent conservative bishop who serves on President Trump’s Religious Liberty Commission was among those who called on the president to apologize.`\
 https://www.nytimes.com/2026/04/13/us/trump-pope-leo.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/13/us/politics/eric-swalwell-democrats-californi
 **Tikka in no Time**\
 `Zainab Shah’s sheet-pan shrimp tikka, redolent with cumin, coriander, turmeric and mild Kashmiri chile, is on the table in under an hour.`\
 https://www.nytimes.com/2026/04/13/dining/tikka-in-no-time.html
-
-**El papa León, horas después de las críticas de Trump, dice que ‘no le temo’**\
-`El presidente Trump arremetió el domingo por la noche contra el papa León XIV en redes sociales. El pontífice aseguró que seguiría oponiéndose a la guerra.`\
-https://www.nytimes.com/es/2026/04/13/espanol/mundo/papa-leon-trump-respuesta.html
 

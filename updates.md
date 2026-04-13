@@ -1,3 +1,11 @@
+**Tucker Carlson Is Starting a Publishing Imprint**\
+`Tucker Carlson Books, a joint venture between Carlson’s media company and Skyhorse Publishing, will put out books by Russell Brand, Milo Yiannopoulos and more.`\
+https://www.nytimes.com/2026/04/13/books/tucker-carlson-book-publisher.html
+
+**Catholic Leaders Defend Pope and Criticize Trump After Harsh Attacks**\
+`A prominent conservative bishop who serves on President Trump’s Religious Liberty Commission was among those who called on the president to apologize.`\
+https://www.nytimes.com/2026/04/13/us/trump-pope-leo.html
+
 **Ye Wants Forgiveness, Again. But How Many Times Will Fans Grant It?**\
 `Attempting a comeback after years of antisemitic statements, the artist formerly known as Kanye West is facing consequences while trying to navigate a test of his own making.`\
 https://www.nytimes.com/2026/04/13/arts/music/ye-kanye-west-comeback-bully.html
