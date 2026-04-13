@@ -1,3 +1,7 @@
+**Do You Know Which Books Feature These Sharp Lines?**\
+`Try this short quiz on memorably snarky retorts and observations from five literary works.`\
+https://www.nytimes.com/interactive/2026/04/13/books/review/snappy-book-quotes.html
+
 **Many Popes Have Been Entangled in Politics. Here Are 5 of Them.**\
 `Leo XIV, under fire from President Trump, has joined predecessors including Francis and John Paul II in confronting political issues.`\
 https://www.nytimes.com/2026/04/13/world/europe/pope-leo-trump-dispute.html
