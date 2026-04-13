@@ -1,3 +1,7 @@
+**Your Questions, Answered**\
+`You asked about mail-in ballots, oil in the Middle East, manufacturing jobs and more.`\
+https://www.nytimes.com/2026/04/13/briefing/your-questions-answered.html
+
 **Britain Will Not Join U.S. Blockade of Strait of Hormuz, Starmer Says**\
 `Prime Minister Keir Starmer said the U.K.’s diplomatic efforts are directed at keeping the vital waterway “open, not shut.”`\
 https://www.nytimes.com/2026/04/13/world/europe/iran-blockade-strait-hormuz-uk-starmer-trump.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/13/business/the-battle-over-refreshers-heats-up-
 **A Brand-Name Novelist Revisits His Old Friend and Alter Ego**\
 `Jay McInerney has written about the literary party boy Russell Calloway once a decade since the 1990s. He returns in the Covid novel “See You on the Other Side.”`\
 https://www.nytimes.com/2026/04/13/books/review/see-you-on-the-other-side-jay-mcinerney.html
-
-**In Michigan, a Wrong Turn and a Decades-Long Labor of Love**\
-`Two designers from Chicago stumbled on a farmhouse that needed a lot of attention. Over the years, they turned the project into their primary residence.`\
-https://www.nytimes.com/2026/04/13/realestate/in-michigan-a-wrong-turn-and-a-decades-long-labor-of-love.html
 
