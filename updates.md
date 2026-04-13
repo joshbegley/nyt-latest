@@ -1,3 +1,11 @@
+**Trump Attacks Pope Leo as Too Liberal and ‘Weak on Crime’**\
+`President Trump’s lengthy post on social media showed there were really no boundaries when it comes to people he might target, including the leader of the world’s 1.4 billion Catholics.`\
+https://www.nytimes.com/2026/04/12/us/politics/trump-attacks-pope-leo.html
+
+**‘The Comeback’ Season 3, Episode 4: The Blow-Up**\
+`Valerie is losing her patience and self-control. Who can blame her?`\
+https://www.nytimes.com/2026/04/12/arts/television/the-comeback-recap-season-3-episode-4.html
+
 **‘Titaníque’ Review: A Wild Joyride With Celine Dion as Our Kooky Guide**\
 `This “Titanic” parody fueled by Dion’s hits, silly ad-libs and pop culture references had the humblest of beginnings. Now the show has docked on Broadway.`\
 https://www.nytimes.com/2026/04/12/theater/titanique-review-broadway-dion.html
