@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/04/13/world/europe/pope-leo-trump-dispute.html
 `The stars of “You, Me & Tuscany” make the case for messy, vulnerable and sometimes awkward romance. “I want to give people the freedom to cringe again,” Mr. Page said.`\
 https://www.nytimes.com/2026/04/13/style/halle-bailey-rege-jean-page-you-me-tuscany-rom-com.html
 
-**Do You Know Which Books Featured These Sharp Lines?**\
+**Do You Know Which Books Feature These Sharp Lines?**\
 `Try this short quiz on memorably snarky retorts and observations from five literary works.`\
 https://www.nytimes.com/interactive/2026/04/13/books/review/snappy-book-quotes.html
 

@@ -1,3 +1,11 @@
+**Many Popes Have Been Entangled in Politics. Here Are 5 of Them.**\
+`Leo XIV, under fire from President Trump, has joined predecessors including Francis and John Paul II in confronting political issues.`\
+https://www.nytimes.com/2026/04/13/world/europe/pope-leo-trump-dispute.html
+
+**Halle Bailey and Regé-Jean Page on Embracing ‘Cheesy’ Rom-Coms**\
+`The stars of “You, Me & Tuscany” make the case for messy, vulnerable and sometimes awkward romance. “I want to give people the freedom to cringe again,” Mr. Page said.`\
+https://www.nytimes.com/2026/04/13/style/halle-bailey-rege-jean-page-you-me-tuscany-rom-com.html
+
 **Do You Know Which Books Featured These Sharp Lines?**\
 `Try this short quiz on memorably snarky retorts and observations from five literary works.`\
 https://www.nytimes.com/interactive/2026/04/13/books/review/snappy-book-quotes.html

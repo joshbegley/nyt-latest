@@ -1,3 +1,11 @@
+**Many Popes Have Been Entangled in Politics. Here Are 5 of Them.**\
+`Leo XIV, under fire from President Trump, has joined predecessors including Francis and John Paul II in confronting political issues.`\
+https://www.nytimes.com/2026/04/13/world/europe/pope-leo-trump-dispute.html
+
+**Halle Bailey and Regé-Jean Page on Embracing ‘Cheesy’ Rom-Coms**\
+`The stars of “You, Me & Tuscany” make the case for messy, vulnerable and sometimes awkward romance. “I want to give people the freedom to cringe again,” Mr. Page said.`\
+https://www.nytimes.com/2026/04/13/style/halle-bailey-rege-jean-page-you-me-tuscany-rom-com.html
+
 **Do You Know Which Books Featured These Sharp Lines?**\
 `Try this short quiz on memorably snarky retorts and observations from five literary works.`\
 https://www.nytimes.com/interactive/2026/04/13/books/review/snappy-book-quotes.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/13/world/middleeast/trump-iran-blockade-strait-o
 **Israelis Don’t Feel Much Like Victors in War With Iran**\
 `The regime in Iran has not changed and the nuclear and missile threats have not been eliminated, leaving many Israelis to wonder what this was all for.`\
 https://www.nytimes.com/2026/04/13/world/israeli-iran-war-polls.html
-
-**Why U.S.-Iran Negotiations Failed**\
-`After 21 hours of talks, Vice President JD Vance said Washington and Tehran had not reached a deal to end the war.`\
-https://www.nytimes.com/2026/04/13/podcasts/the-daily/us-iran-negotiations.html
-
-**U.S. Prepares to Blockade Strait of Hormuz, and a MAGA Hero Is Defeated in Europe**\
-`Plus, Eric Swalwell suspended his campaign after sexual assault allegations.`\
-https://www.nytimes.com/2026/04/13/podcasts/the-headlines/us-strait-of-hormuz-orban-defeated.html
 
