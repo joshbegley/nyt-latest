@@ -1,3 +1,15 @@
+**For Ants, a ‘Cleaning Station’ in the Desert**\
+`A unique “choreography” between two ant species suggests a distinctive partnership in which one provides a carwash service to the other.`\
+https://www.nytimes.com/2026/04/13/science/harvester-cone-ants-cleaning.html
+
+**The Relationship Between America and the U.A.E. Needs an Upgrade**\
+`For decades, the U.S.-Gulf relationship was based on oil for security. That framework is obsolete.`\
+https://www.nytimes.com/2026/04/13/opinion/uae-iran-war-trump-gulf-oil-dubai.html
+
+**‘Margo’s Got Money Troubles,’ Plus 5 Things to Watch on TV This Week**\
+`This adaptation of a novel comes to Apple TV, and the second season of “Beef” premieres on Netflix.`\
+https://www.nytimes.com/2026/04/13/arts/television/margos-got-money-troubles-what-to-watch-this-week.html
+
 **Where Even Flowers Stoke Fear**\
 `Myanmar’s generals have brutalized the country for decades. But they have come to dread garlands as a sign of resistance.`\
 https://www.nytimes.com/2026/04/13/world/asia/myanmar-war-military-fear.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/12/us/politics/trump-gas-prices-high-midterms-re
 **How Would a Blockade of the Strait of Hormuz Work? Here Are Some Possibilities.**\
 `The goal of the naval operation ordered by ordered by President Trump is to deny Iran the revenues it needs to fund its military, but there are many unknowns.`\
 https://www.nytimes.com/2026/04/12/world/middleeast/hormuz-us-blockade.html
-
-**Swalwell Suspends Campaign for California Governor Amid Sexual Assault Accusations**\
-`In a social media post, the representative said he was “deeply sorry for mistakes in judgment I’ve made in my past,” but promised to fight what he called “false allegations.”`\
-https://www.nytimes.com/2026/04/12/us/eric-swalwell-suspends-california-governor-campaign.html
-
-**Una estampida masiva en Haití deja decenas de muertos**\
-`La tragedia tuvo lugar en la Citadelle Laferrière, fortaleza histórica del norte de Haití y uno de los símbolos más característicos del país.`\
-https://www.nytimes.com/es/2026/04/12/espanol/america-latina/haiti-estampida-masiva.html
-
-**TK**\
-`TK`\
-https://static01.nyt.com/slideshow/2026/04/12/t-magazine/tk.html
 

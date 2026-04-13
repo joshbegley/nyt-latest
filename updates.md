@@ -1,3 +1,15 @@
+**For Ants, a ‘Cleaning Station’ in the Desert**\
+`A unique “choreography” between two ant species suggests a distinctive partnership in which one provides a carwash service to the other.`\
+https://www.nytimes.com/2026/04/13/science/harvester-cone-ants-cleaning.html
+
+**The Relationship Between America and the U.A.E. Needs an Upgrade**\
+`For decades, the U.S.-Gulf relationship was based on oil for security. That framework is obsolete.`\
+https://www.nytimes.com/2026/04/13/opinion/uae-iran-war-trump-gulf-oil-dubai.html
+
+**‘Margo’s Got Money Troubles,’ Plus 5 Things to Watch on TV This Week**\
+`This adaptation of a novel comes to Apple TV, and the second season of “Beef” premieres on Netflix.`\
+https://www.nytimes.com/2026/04/13/arts/television/margos-got-money-troubles-what-to-watch-this-week.html
+
 **Where Even Flowers Stoke Fear**\
 `Myanmar’s generals have brutalized the country for decades. But they have come to dread garlands as a sign of resistance.`\
 https://www.nytimes.com/2026/04/13/world/asia/myanmar-war-military-fear.html
