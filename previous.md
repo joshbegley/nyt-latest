@@ -1,3 +1,11 @@
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/04/12/t-magazine/tk.html
+
+**El amerizaje del Artemis II da impulso a la NASA en la renovada carrera lunar**\
+`Los astronautas rompieron varios récords y pudieron estudiar partes de la cara oculta de la Luna.`\
+https://www.nytimes.com/es/2026/04/12/espanol/ciencia-y-tecnologia/artemis-ii-nasa-luna.html
+
 **Elon Musk, Who Owns X, Appears to Post on TikTok**\
 `A verified account with the @elonmusk handle also recently showed up on Instagram, as the billionaire prepares to take his rocket company SpaceX public.`\
 https://www.nytimes.com/2026/04/12/technology/elon-musk-tiktok.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/12/nyregion/new-jersey-chick-fil-a-shooting.html
 **For Haitians, Stampede at Citadelle Laferrière Mars a Bright Spot**\
 `At least 30 people were killed when a crushing crowd formed at the entrance to the fortress in northern Haiti. The Citadelle is one of the country’s most famous sites.`\
 https://www.nytimes.com/2026/04/12/us/haiti-stampede-citadelle-laferriere.html
-
-**Orban, Beacon to the Right, Concedes Defeat in Hungary’s Election**\
-`Prime Minister Viktor Orban, who has inspired populist movements globally, could not overcome the growing dissatisfaction of his own citizens.`\
-https://www.nytimes.com/2026/04/12/world/europe/hungary-election-orban-magyar.html
-
-**A New Watch Fair Arrives in Geneva**\
-`A cohort of younger brand leaders has teamed up to present ‘a new wave of horology’ at Chronopolis.`\
-https://www.nytimes.com/2026/04/12/fashion/watch-fair-geneva.html
 

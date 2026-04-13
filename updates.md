@@ -1,3 +1,11 @@
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/04/12/t-magazine/tk.html
+
+**El amerizaje del Artemis II da impulso a la NASA en la renovada carrera lunar**\
+`Los astronautas rompieron varios récords y pudieron estudiar partes de la cara oculta de la Luna.`\
+https://www.nytimes.com/es/2026/04/12/espanol/ciencia-y-tecnologia/artemis-ii-nasa-luna.html
+
 **Elon Musk, Who Owns X, Appears to Post on TikTok**\
 `A verified account with the @elonmusk handle also recently showed up on Instagram, as the billionaire prepares to take his rocket company SpaceX public.`\
 https://www.nytimes.com/2026/04/12/technology/elon-musk-tiktok.html
