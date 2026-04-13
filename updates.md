@@ -1,3 +1,15 @@
+**F.D.A. Pushes Drug Developers to Report Clinical Trial Results**\
+`Many unfavorable results go unreported, skewing the available data on medical treatments.`\
+https://www.nytimes.com/2026/04/13/well/fda-clinical-trials.html
+
+**Judge Dismisses Trump’s Suit Against The Wall Street Journal**\
+`The judge said Mr. Trump had not “plausibly alleged” that The Journal published the article with actual malice.`\
+https://www.nytimes.com/2026/04/13/business/media/judge-dismisses-trumps-suit-against-the-wall-street-journal.html
+
+**Iran Blockade Sets Up a Test of Which Side Can Endure More Pain**\
+`President Trump is trying to choke off the country’s lifeline with a blockade of the Strait of Hormuz. But the Iranians are betting that his tolerance for political pain is limited.`\
+https://www.nytimes.com/2026/04/13/us/politics/iran-war-strait-of-hormuz-blockade-economy.html
+
 **The Next Test in the Iran War: Which Side Can Endure More Economic Pain?**\
 `President Trump is trying to choke off the country’s lifeline with a blockade of the Strait of Hormuz. But the Iranians are betting that his tolerance for political pain is limited.`\
 https://www.nytimes.com/2026/04/13/us/politics/iran-war-strait-of-hormuz-blockade-economy.html
