@@ -1,3 +1,11 @@
+**Trump Attacks Pope Leo as Too Liberal and ‘Weak on Crime’**\
+`President Trump’s lengthy post on social media showed there were really no boundaries when it comes to people he might target, including the leader of the world’s 1.4 billion Catholics.`\
+https://www.nytimes.com/2026/04/12/us/politics/trump-attacks-pope-leo.html
+
+**‘The Comeback’ Season 3, Episode 4: The Blow-Up**\
+`Valerie is losing her patience and self-control. Who can blame her?`\
+https://www.nytimes.com/2026/04/12/arts/television/the-comeback-recap-season-3-episode-4.html
+
 **TK**\
 `TK`\
 https://static01.nyt.com/slideshow/2026/04/12/t-magazine/tk.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/12/crosswords/daily-puzzle-2026-04-13.html
 **Former Economy Minister Is Chosen as Quebec Premier Ahead of Elections**\
 `Far behind in the polls, Quebec’s governing party chose Christine Fréchette to succeed François Legault and to lead it in a vote this fall.`\
 https://www.nytimes.com/2026/04/12/world/americas/canada-quebec-premier-christine-frechette.html
-
-**How Lee Zeldin Shifted the Mission — And the Message — of the E.P.A.**\
-`More than any administrator in decades, Lee Zeldin talks about the Environmental Protection Agency's work in economic terms, reflecting President Trump’s desire to boost industry while downplaying environmental consequences.`\
-https://www.nytimes.com/interactive/2026/04/12/climate/lee-zeldin-epa-mission-language.html
-
-**Potential 2028 Democrats Flocked to His Convention. Here’s How He Sized Them Up.**\
-`In an interview with The New York Times, the Rev. Al Sharpton reflected on the performances of 10 Democrats who spoke and explained why two did not.`\
-https://www.nytimes.com/2026/04/12/us/politics/2028-democrats-presidential-sharpton.html
 
