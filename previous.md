@@ -1,3 +1,15 @@
+**How Would a Blockade the Strait of Hormuz Work? Here Are Some Possibilities.**\
+`The goal of the naval operation ordered by ordered by President Trump is to deny Iran the revenues it needs to fund its military, but there are many unknowns.`\
+https://www.nytimes.com/2026/04/12/world/middleeast/hormuz-us-blockade.html
+
+**Swalwell Suspends Campaign for California Governor Amid Sexual Assault Accusations**\
+`In a social media post, the representative said he was “deeply sorry for mistakes in judgment I’ve made in my past,” but promised to fight what he called “false allegations.”`\
+https://www.nytimes.com/2026/04/12/us/eric-swalwell-suspends-california-governor-campaign.html
+
+**Una estampida masiva en Haití deja decenas de muertos**\
+`La tragedia tuvo lugar en la Citadelle Laferrière, fortaleza histórica del norte de Haití y uno de los símbolos más característicos del país.`\
+https://www.nytimes.com/es/2026/04/12/espanol/america-latina/haiti-estampida-masiva.html
+
 **TK**\
 `TK`\
 https://static01.nyt.com/slideshow/2026/04/12/t-magazine/tk.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/12/nyregion/nyc-inflation-prices.html
 **Mamdani Plans to Open City-Owned Grocery Store in East Harlem**\
 `Mayor Zohran Mamdani announced plans for a city-owned grocery store at La Marqueta, moving to deliver on a campaign pledge.`\
 https://www.nytimes.com/2026/04/12/nyregion/mamdani-city-owned-grocery-store-la-marqueta.html
-
-**Iran’s Underground Air Force Base Was Hit Earlier in the War**\
-`Satellite imagery shows impact craters at and near the tunnel entrances to aircraft shelters at Iran’s remote “Eagle 44” base.`\
-https://www.nytimes.com/2026/04/12/world/middleeast/iran-underground-air-force-base.html
-
-**One Dead and 6 Injured in Shooting at Suburban Chick-fil-A**\
-`There have been no arrests in the Saturday night shooting in New Jersey. The authorities said it was not a random attack.`\
-https://www.nytimes.com/2026/04/12/nyregion/new-jersey-chick-fil-a-shooting.html
-
-**For Haitians, Stampede at Citadelle Laferrière Mars a Bright Spot**\
-`At least 30 people were killed when a crushing crowd formed at the entrance to the fortress in northern Haiti. The Citadelle is one of the country’s most famous sites.`\
-https://www.nytimes.com/2026/04/12/us/haiti-stampede-citadelle-laferriere.html
 

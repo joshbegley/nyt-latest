@@ -1,4 +1,8 @@
-**How Would a Blockade the Strait of Hormuz Work? Here Are Some Possibilities.**\
+**Trump Says Gas Prices Might Not Drop By Midterms, Underscoring G.O.P. Peril**\
+`The president has sent mixed messages on how long he expects costs to be high. Some in his party voiced fresh concern after his comments on Sunday.`\
+https://www.nytimes.com/2026/04/12/us/politics/trump-gas-prices-high-midterms-republicans.html
+
+**How Would a Blockade of the Strait of Hormuz Work? Here Are Some Possibilities.**\
 `The goal of the naval operation ordered by ordered by President Trump is to deny Iran the revenues it needs to fund its military, but there are many unknowns.`\
 https://www.nytimes.com/2026/04/12/world/middleeast/hormuz-us-blockade.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/science/space/100000010836658/nasa-artemis-returns
 **How 6 People in New York City Are Coping With Higher Costs**\
 `Surging inflation and rising prices have some people re-evaluating date nights and how much of their splurges they can share with friends.`\
 https://www.nytimes.com/2026/04/12/nyregion/nyc-inflation-prices.html
-
-**Mamdani Plans to Open City-Owned Grocery Store in East Harlem**\
-`Mayor Zohran Mamdani announced plans for a city-owned grocery store at La Marqueta, moving to deliver on a campaign pledge.`\
-https://www.nytimes.com/2026/04/12/nyregion/mamdani-city-owned-grocery-store-la-marqueta.html
 

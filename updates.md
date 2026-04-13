@@ -1,3 +1,15 @@
+**How Would a Blockade the Strait of Hormuz Work? Here Are Some Possibilities.**\
+`The goal of the naval operation ordered by ordered by President Trump is to deny Iran the revenues it needs to fund its military, but there are many unknowns.`\
+https://www.nytimes.com/2026/04/12/world/middleeast/hormuz-us-blockade.html
+
+**Swalwell Suspends Campaign for California Governor Amid Sexual Assault Accusations**\
+`In a social media post, the representative said he was “deeply sorry for mistakes in judgment I’ve made in my past,” but promised to fight what he called “false allegations.”`\
+https://www.nytimes.com/2026/04/12/us/eric-swalwell-suspends-california-governor-campaign.html
+
+**Una estampida masiva en Haití deja decenas de muertos**\
+`La tragedia tuvo lugar en la Citadelle Laferrière, fortaleza histórica del norte de Haití y uno de los símbolos más característicos del país.`\
+https://www.nytimes.com/es/2026/04/12/espanol/america-latina/haiti-estampida-masiva.html
+
 **TK**\
 `TK`\
 https://static01.nyt.com/slideshow/2026/04/12/t-magazine/tk.html
