@@ -1,3 +1,7 @@
+**Amid War, G.O.P. Puts Off Testimony From Senior Pentagon Commanders**\
+`House lawmakers had been scheduled to hear testimony next week from the head of military operations in the Middle East, but the Republican majority postponed the hearing until late May.`\
+https://www.nytimes.com/2026/04/13/world/middleeast/iran-war-pentagon-officials-testimony-trump.html
+
 **Tony Gonzales, a Texas Congressman, Says He Will Resign**\
 `The third term Republican lawmaker is accused of coercing a staff member into a sexual relationship.`\
 https://www.nytimes.com/2026/04/13/us/texas-representative-tony-gonzales-resigns.html
