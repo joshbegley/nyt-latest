@@ -1,3 +1,7 @@
+**U.S. Begins a Blockade of the Strait of Hormuz**\
+`European countries declined to take part in the action, which is designed to pressure Iran into making concessions by cutting off its oil income.`\
+https://www.nytimes.com/2026/04/13/world/middleeast/blockade-hormuz-iran-united-states.html
+
 **The Venezuela Model**\
 `President Trump calls the removal of Nicolás Maduro “the perfect scenario.” But not everything is going right for the U.S. in Venezuela.`\
 https://www.nytimes.com/2026/04/13/world/venezuela-oil-us-blockade-hormuz-pope-leo.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/13/podcasts/new-from-serial-the-idiot.html
 **Serial: ‘The Idiot’ is out now**\
 `Listen to the whole series today.`\
 https://www.nytimes.com/2026/04/13/podcasts/serial-the-idiot-is-out-now.html
-
-**Sid Krofft, 96, a Creator of Trippy Kids’ Shows Like ‘H.R. Pufnstuf,’ Dies**\
-`With his brother Marty, he released a string of zany children’s programs. Some became cult favorites (even among adults) and others flopped.`\
-https://www.nytimes.com/2026/04/13/arts/television/sid-krofft-dead.html
 

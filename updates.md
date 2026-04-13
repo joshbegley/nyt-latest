@@ -1,3 +1,15 @@
+**The Venezuela Model**\
+`President Trump calls the removal of Nicolás Maduro “the perfect scenario.” But not everything is going right for the U.S. in Venezuela.`\
+https://www.nytimes.com/2026/04/13/world/venezuela-oil-us-blockade-hormuz-pope-leo.html
+
+**For Israel, War Is the Only Answer**\
+`If war is the status quo, the job is never done, and you can never lose.`\
+https://www.nytimes.com/2026/04/13/opinion/international-world/israel-war-strategy.html
+
+**Orban’s Fall Is an Astounding Achievement**\
+`Voters seized the chance to leave behind his 16-year rule.`\
+https://www.nytimes.com/2026/04/13/opinion/orban-hungary-election-magyar.html
+
 **Personalidades de Hollywood firman una carta contra el acuerdo de Paramount y Warner Bros.**\
 `La carta advierte que el acuerdo supondrá menos puestos de trabajo para los creativos, además de mayores costos y menos opciones para el público.`\
 https://www.nytimes.com/es/2026/04/13/espanol/negocios/hollywood-carta-paramount-warner-bros.html
