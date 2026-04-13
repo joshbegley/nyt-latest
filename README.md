@@ -1,3 +1,11 @@
+**Man Arrested After U.S. Military Aircraft Damaged in Ireland**\
+`A man was arrested on Saturday and accused of criminal damage at Shannon Airport in western Ireland, police said.`\
+https://www.nytimes.com/2026/04/13/us/shannon-airport-c-130-damage-man-breaks-in.html
+
+**NATO Is Imperfect but Necessary, World War II Veterans Say**\
+`As President Trump renews threats to pull the United States from NATO, veterans reflect on the alliance that has existed more than 75 years.`\
+https://www.nytimes.com/2026/04/13/us/world-war-ii-veterans-nato-trump.html
+
 **Swalwell’s Fall Punctuates Woes of Democrats in California, of All Places**\
 `Democrats have struggled to find a candidate for governor who can capture the imagination of voters in one of their most important strongholds.`\
 https://www.nytimes.com/2026/04/13/us/politics/eric-swalwell-democrats-california.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/us/politics/100000010837456/swalwell-suspends-cali
 **Hungary May No Longer Be Putin’s Ally, but It Can’t Afford a Full Break**\
 `Prime Minister Viktor Orban’s defeat will make it harder for the Kremlin to divide Europe, but Moscow retains leverage through energy sales.`\
 https://www.nytimes.com/2026/04/13/world/europe/russia-hungary-putin-orban.html
-
-**Your Questions, Answered**\
-`You asked about mail-in ballots, oil in the Middle East, manufacturing jobs and more.`\
-https://www.nytimes.com/2026/04/13/briefing/your-questions-answered.html
-
-**Britain Will Not Join U.S. Blockade of Strait of Hormuz, Starmer Says**\
-`Prime Minister Keir Starmer said the U.K.’s diplomatic efforts are directed at keeping the vital waterway “open, not shut.”`\
-https://www.nytimes.com/2026/04/13/world/europe/iran-blockade-strait-hormuz-uk-starmer-trump.html
 
