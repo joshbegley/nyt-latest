@@ -1,3 +1,19 @@
+**21 horas en Pakistán: el intento y fracaso de la paz entre EE. UU. e Irán**\
+`Aliados y adversarios de Estados Unidos habían puesto sus esperanzas en el vicepresidente JD Vance para intentar encontrar una salida a un conflicto que ha trastornado la economía mundial.`\
+https://www.nytimes.com/es/2026/04/13/espanol/estados-unidos/iran-negociaciones-vance-paz-trump.html
+
+**Can This Chaotic Brooklyn Plaza Be Car-Free? Mamdani Says Yes.**\
+`Mayor Zohran Mamdani is expected to propose linking Grand Army Plaza with Prospect Park by closing a dangerous stretch of road between them.`\
+https://www.nytimes.com/2026/04/13/nyregion/grand-army-plaza-prospect-park-brooklyn.html
+
+**A Famed Brooklyn Cemetery Wants You to Come Visit … Before You Die**\
+`Green-Wood Cemetery in Brooklyn is opening a $43 million visitor’s center to attract the living by making it easier to navigate the rambling grounds.`\
+https://www.nytimes.com/2026/04/13/nyregion/green-wood-brookl.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/13/crosswords/spelling-bee-forum.html
+
 **La guerra de Trump está debilitando a EE. UU. de 4 maneras**\
 `El presidente debería reconocer la ineptitud de su enfoque impulsivo y egoísta.`\
 https://www.nytimes.com/es/2026/04/13/espanol/opinion/trump-guerra-iran-eeuu.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/13/world/asia/malaysia-electric-cars-china.html
 **Orban Loss in Hungary Is a Big Moment for the E.U. Here’s Why.**\
 `Prime Minister Viktor Orban has stymied the European Union for years, and particularly in recent months. Peter Magyar’s election could change that, if only so much.`\
 https://www.nytimes.com/2026/04/13/world/europe/hungary-eu-orban-magyar.html
-
-**No Corrections: April 13, 2025**\
-`No corrections appeared in print on Monday, April 13, 2025.`\
-https://www.nytimes.com/2026/04/13/corrections/no-corrections-april-13-2025.html
-
-**Trump Attacks Pope Leo as Too Liberal and ‘Weak on Crime’**\
-`President Trump’s lengthy post on social media showed there were really no boundaries when it comes to people he might target, including the leader of the world’s 1.4 billion Catholics.`\
-https://www.nytimes.com/2026/04/12/us/politics/trump-attacks-pope-leo.html
-
-**‘The Comeback’ Season 3, Episode 4: The Blow-Up**\
-`Valerie is losing her patience and self-control. Who can blame her?`\
-https://www.nytimes.com/2026/04/12/arts/television/the-comeback-recap-season-3-episode-4.html
-
-**TK**\
-`TK`\
-https://static01.nyt.com/slideshow/2026/04/12/t-magazine/tk.html
 
