@@ -1,3 +1,27 @@
+**Israelis Don’t Feel Much Like Victors in War With Iran**\
+`The regime in Iran has not changed and the nuclear and missile threats have not been eliminated, leaving many Israelis to wonder what this was all for.`\
+https://www.nytimes.com/2026/04/13/world/israeli-iran-war-polls.html
+
+**Why U.S.-Iran Negotiations Failed**\
+`After 21 hours of talks, Vice President JD Vance said Washington and Tehran had not reached a deal to end the war.`\
+https://www.nytimes.com/2026/04/13/podcasts/the-daily/us-iran-negotiations.html
+
+**U.S. Prepares to Blockade Strait of Hormuz, and a MAGA Hero Is Defeated in Europe**\
+`Plus, Eric Swalwell suspended his campaign after sexual assault allegations.`\
+https://www.nytimes.com/2026/04/13/podcasts/the-headlines/us-strait-of-hormuz-orban-defeated.html
+
+**Connections Companion No. 1,038**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, April 14, 2026.`\
+https://www.nytimes.com/2026/04/13/crosswords/connections-companion-1038.html
+
+**Strands Sidekick No. 772**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, April 14, 2026.`\
+https://www.nytimes.com/2026/04/13/crosswords/strands-sidekick-772.html
+
+**Wordle Review No. 1,760**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, April 14, 2026.`\
+https://www.nytimes.com/2026/04/13/crosswords/wordle-review-1760.html
+
 **Defeat of Orban Removes Ukraine’s Biggest Nemesis in Europe**\
 `The Hungarian leader’s pro-Moscow tilt cemented his reputation in Kyiv as a spoiler. Now, Ukraine hopes a 90 billion euro loan he blocked will be disbursed.`\
 https://www.nytimes.com/2026/04/13/world/europe/hungary-orban-ukraine-zelensky.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/04/13/arts/dance/wellness-center-school-of-american
 **We Can’t Stop China From Building Powerful A.I. Here’s What We Can Do.**\
 `American leaders should be trying to cooperate with China on A.I.`\
 https://www.nytimes.com/2026/04/13/opinion/china-ai-america-chipmakers.html
-
-**Trump’s ‘Deal Makers in Peace’ Are Anything But**\
-`Jared Kushner and Steve Witkoff thought they could broker peace like a business deal. The war in Iran proves how wrong they were.`\
-https://www.nytimes.com/2026/04/13/opinion/iranwar-kushner-witkoff-failures.html
-
-**‘DTF St. Louis’ and the Complex Tragedy of the Straight-ish Man**\
-`The relationship between characters played by Jason Bateman and David Harbour went places that most TV shows avoid.`\
-https://www.nytimes.com/2026/04/13/arts/television/dtf-st-louis-finale.html
-
-**The Economist Is Putting Names (and Faces) to Its Magazine**\
-`Nameless no more, writers for The Economist are mixing it up on video from its studio in London.`\
-https://www.nytimes.com/2026/04/13/business/media/economist-magazine-videos.html
-
-**Do You Want to Get Married Someday?**\
-`More people are dismissing marriage. Do you think you’ll be part of this trend? Or would you like to be married in the future?`\
-https://www.nytimes.com/2026/04/13/learning/do-you-want-to-get-married-someday.html
-
-**How a Geologist Lives on $200,000 in Bushwick, Brooklyn**\
-`After starting a new job, Daniel Babin can afford to shop for a pricey vintage guitar and rethink living with 17 roommates.`\
-https://www.nytimes.com/interactive/2026/04/13/nyregion/nyc-budgeting-affordability-babin.html
-
-**That Eyeliner Makes You Look So … Millennial**\
-`In contrast to Gen Z’s “clean girl aesthetic,” the cat eye of yesteryear has become a generational signifier.`\
-https://www.nytimes.com/2026/04/13/style/winged-eyeliner-cat-eye-millennial.html
 
