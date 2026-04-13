@@ -1,3 +1,15 @@
+**What’s Next in the Volatile California Governor’s Race?**\
+`For Democrats, the drama is reverberating well beyond the state.`\
+https://www.nytimes.com/2026/04/13/us/politics/swalwell-california-governor.html
+
+**11 Unforgettable Looks at Coachella**\
+`The fashion at the festival is rarely rooted in reality. That’s what makes it fun.`\
+https://www.nytimes.com/2026/04/13/style/coachella-fashion-justin-bieber.html
+
+**Lena Dunham Is Still Trying to Figure Out Why People Hated Her So Much**\
+`Lena Dunham sits down with The Interview co-host, David Marchese, to discuss her new memoir “Famesick.” Editors’ Note: This conversation omitted the outcome of rape allegations against the “Girls” writer Murray Miller. The Los Angeles District Attorney’s Office did not press charges against Mr. Miller, who denied the accusation.`\
+https://www.nytimes.com/video/podcasts/100000010838823/lena-dunham-is-still-trying-to-figure-out-why-people-hated-her-so-much.html
+
 **The U.S. Blockades Iran’s Ports**\
 `Also, Trump clashes with the pope. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/04/13/briefing/the-us-blockades-irans-ports.html
