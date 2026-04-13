@@ -1,3 +1,7 @@
+**Minnesota Investigates ICE Arrest of Man in His Underwear on Frigid Day**\
+`ChongLy Scott Thao, a naturalized U.S. citizen, was briefly detained during a federal immigration crackdown in Minnesota in January.`\
+https://www.nytimes.com/2026/04/13/us/ice-minnesota-arrest-immigration-investigation.html
+
 **Teen Is Charged With Murdering His Stepsister on a Carnival Cruise**\
 `The 16-year-old boy, identified only as T.H. in court papers, was charged with murder and sexual abuse in the death of Anna Kepner, 18.`\
 https://www.nytimes.com/2026/04/13/us/carnival-cruise-murder-abuse-charged.html

@@ -1,3 +1,15 @@
+**No, Trump Is Not a Genius Negotiator**\
+`Were President Trump’s recent posts about Iran a masterstroke of negotiation or the “willful, reckless destruction” of America’s reputation? The foreign policy analyst Fareed Zakaria tells the columnist Ezra Klein that the administration’s pursuit of spectacle has left the U.S. weaker and Iran more capable of holding the global economy hostage.`\
+https://www.nytimes.com/video/opinion/100000010825220/no-trump-is-not-a-genius-negotiator.html
+
+**Police Arrest Woman Accused of Stalking Fleetwood Mac Guitarist**\
+`The guitarist, Lindsey Buckingham, had obtained a restraining order against the woman two years ago, but the police said she continued to follow him in March.`\
+https://www.nytimes.com/2026/04/13/us/fleetwood-mac-lindsey-buckingham-stalker-arrest.html
+
+**Threats to Library Funding End With Settlement by Trump Administration**\
+`The American Library Association filed a lawsuit arguing that cuts ordered by President Trump were illegal because they did not have congressional approval.`\
+https://www.nytimes.com/2026/04/13/arts/library-agency-trump-settlement.html
+
 **Teen Is Charged With Murdering His Stepsister on a Carnival Cruise**\
 `The 16-year-old boy, identified only as T.H. in court papers, was charged with murder and sexual abuse in the death of Anna Kepner, 18.`\
 https://www.nytimes.com/2026/04/13/us/carnival-cruise-murder-abuse-charged.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/es/2026/04/13/espanol/mundo/iran-trump-estrecho-ormuz-bl
 **Trump Posted a Picture of Himself as Jesus. Now He’s Trying to Explain It Away.**\
 `The image showed President Trump bathed in divine light and clad in religious robes. His interpretation was that the image depicted him as a doctor, not Jesus Christ.`\
 https://www.nytimes.com/2026/04/13/us/politics/trump-jesus-picture-pope-leo.html
-
-**So Much for Springtime: The East Coast Braces for Summer Heat**\
-`Washington could hit 90 or higher. New York won’t be far behind. But it won’t last long.`\
-https://www.nytimes.com/2026/04/13/weather/nyc-dc-atlanta-east-coast-heat-wave-forecast.html
-
-**Minnesota Investigates ICE Arrest of Man in His Underwear on Frigid Day**\
-`ChongLy Scott Thao, a naturalized U.S. citizen, was briefly detained during a federal immigration crackdown in Minnesota in January.`\
-https://www.nytimes.com/2026/04/13/us/ice-minnesota-arrest-immigration-investigation.html
-
-**Trump retira una publicación con una imagen de sí mismo como una figura similar a Jesús**\
-`La imagen, que se publicó en Truth Social y desapareció la mañana del lunes, provocó una reacción negativa incluso entre algunos destacados conservadores.`\
-https://www.nytimes.com/es/2026/04/13/espanol/estados-unidos/trump-papa-jesus-ia-imagen.html
 
