@@ -1,3 +1,11 @@
+**Sid Krofft, 96, a Creator of Trippy Kids’ Shows Like ‘H.R. Pufnstuf,’ Dies**\
+`With his brother Marty, he released a string of zany children’s programs. Some became cult favorites (even among adults) and others flopped.`\
+https://www.nytimes.com/2026/04/13/arts/television/sid-krofft-dead.html
+
+**La industria eléctrica de China podría salir beneficiada de la guerra en Medio Oriente**\
+`Un grupo de empresas chinas está a punto de ganar a lo grande con la crisis energética desencadenada por la guerra en Irán, gracias al auge de la inversión en inteligencia artificial.`\
+https://www.nytimes.com/es/2026/04/13/espanol/negocios/china-industria-electrica-guerra-beneficio.html
+
 **La visita de los reyes de los Países Bajos a la Casa Blanca crea polémica**\
 `El rey y la reina de los Países Bajos se alojarán en la Casa Blanca el lunes por la noche. En un momento de tensión transatlántica, los neerlandeses no están seguros de cómo se sienten al respecto.`\
 https://www.nytimes.com/es/2026/04/13/espanol/mundo/reyes-paises-bajos-maxima-trump-visita.html
