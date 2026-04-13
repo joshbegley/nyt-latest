@@ -1,3 +1,19 @@
+**Teen Is Charged With Murdering His Stepsister on a Carnival Cruise**\
+`The 16-year-old boy, identified only as T.H. in court papers, was charged with murder and sexual abuse in the death of Anna Kepner, 18.`\
+https://www.nytimes.com/2026/04/13/us/carnival-cruise-murder-abuse-charged.html
+
+**The Moral Cost of Trump’s War**\
+`The president’s recent posts about Iran may signal the end of America’s reputation as a country guided by morality, the columnist Ezra Klein argues. The foreign policy expert Fareed Zakaria joins Ezra to unpack how we got here, and where we’re headed next.`\
+https://www.nytimes.com/video/opinion/100000010825210/the-moral-cost-of-trumps-war.html
+
+**TK**\
+`Tk`\
+https://static01.nyt.com/slideshow/2026/04/13/t-magazine/tk.html
+
+**U.S. Begins Blockade in the Strait of Hormuz**\
+`President Trump said the U.S. began its blockade in the Straight of Hormuz on Monday. The blockade comes as talks between American and Iranian negotiators ended without a breakthrough over the weekend.`\
+https://www.nytimes.com/video/world/middleeast/100000010838649/trump-iran-strait-hormuz-blockade.html
+
 **The $40 Half Chicken That Ruffled Brooklyn**\
 `A New York City councilman’s Instagram post is just the latest entry in a fierce debate about the price of dining out.`\
 https://www.nytimes.com/2026/04/13/dining/rotisserie-chicken-prices.html

@@ -1,3 +1,23 @@
+**Teen Is Charged With Murdering His Stepsister on a Carnival Cruise**\
+`The 16-year-old boy, identified only as T.H. in court papers, was charged with murder and sexual abuse in the death of Anna Kepner, 18.`\
+https://www.nytimes.com/2026/04/13/us/carnival-cruise-murder-abuse-charged.html
+
+**The Moral Cost of Trump’s War**\
+`The president’s recent posts about Iran may signal the end of America’s reputation as a country guided by morality, the columnist Ezra Klein argues. The foreign policy expert Fareed Zakaria joins Ezra to unpack how we got here, and where we’re headed next.`\
+https://www.nytimes.com/video/opinion/100000010825210/the-moral-cost-of-trumps-war.html
+
+**TK**\
+`Tk`\
+https://static01.nyt.com/slideshow/2026/04/13/t-magazine/tk.html
+
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/04/13/t-magazine/tk.html
+
+**U.S. Begins Blockade in the Strait of Hormuz**\
+`President Trump said the U.S. began its blockade in the Straight of Hormuz on Monday. The blockade comes as talks between American and Iranian negotiators ended without a breakthrough over the weekend.`\
+https://www.nytimes.com/video/world/middleeast/100000010838649/trump-iran-strait-hormuz-blockade.html
+
 **The $40 Half Chicken That Ruffled Brooklyn**\
 `A New York City councilman’s Instagram post is just the latest entry in a fierce debate about the price of dining out.`\
 https://www.nytimes.com/2026/04/13/dining/rotisserie-chicken-prices.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/04/13/us/ice-minnesota-arrest-immigration-investiga
 **Trump retira una publicación con una imagen de sí mismo como una figura similar a Jesús**\
 `La imagen, que se publicó en Truth Social y desapareció la mañana del lunes, provocó una reacción negativa incluso entre algunos destacados conservadores.`\
 https://www.nytimes.com/es/2026/04/13/espanol/estados-unidos/trump-papa-jesus-ia-imagen.html
-
-**As Internet Blackout Hits Day 45, Iranians Bemoan State Hypocrisy and Economic Risks**\
-`Iranians enduring the latest communications shutdown warn that it’s crippling businesses. Critics say officials flagrantly use the internet they block citizens from.`\
-https://www.nytimes.com/2026/04/13/world/middleeast/iran-internet-blackout.html
-
-**Tucker Carlson Is Starting a Publishing Imprint**\
-`Tucker Carlson Books, a joint venture between Carlson’s media company and Skyhorse Publishing, will put out books by Russell Brand, Milo Yiannopoulos and more.`\
-https://www.nytimes.com/2026/04/13/books/tucker-carlson-book-publisher.html
-
-**Ye Wants Forgiveness, Again. But How Many Times Will Fans Grant It?**\
-`Attempting a comeback after years of antisemitic statements, the artist formerly known as Kanye West is facing consequences while trying to navigate a test of his own making.`\
-https://www.nytimes.com/2026/04/13/arts/music/ye-kanye-west-comeback-bully.html
-
-**Killer’s Parents Could Have Prevented Southport Attack in U.K., Report Says**\
-`An official inquiry said the perpetrator’s parents, as well as government agencies, had missed several chances to avert the deadly attack.`\
-https://www.nytimes.com/2026/04/13/world/europe/southport-attack-killers-parents-report.html
-
-**A Stormy Week Is in Store for the Central U.S. Here’s What to Know.**\
-`Tens of millions of people from Texas to the Great Lakes could face heavy rain and hail — and possibly tornadoes — as spring storms move through.`\
-https://www.nytimes.com/2026/04/13/weather/storms-forecast-midwest.html
 

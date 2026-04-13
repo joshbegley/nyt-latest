@@ -70,7 +70,7 @@ https://www.nytimes.com/2026/04/13/us/politics/trump-jesus-picture-pope-leo.html
 `Washington could hit 90 or higher. New York won’t be far behind. But it won’t last long.`\
 https://www.nytimes.com/2026/04/13/weather/nyc-dc-atlanta-east-coast-heat-wave-forecast.html
 
-**Prosecutors Investigate ICE Agents Who Detained a Minnesota Man in His Underwear**\
+**Minnesota Investigates ICE Arrest of Man in His Underwear on Frigid Day**\
 `ChongLy Scott Thao, a naturalized U.S. citizen, was briefly detained during a federal immigration crackdown in Minnesota in January.`\
 https://www.nytimes.com/2026/04/13/us/ice-minnesota-arrest-immigration-investigation.html
 
