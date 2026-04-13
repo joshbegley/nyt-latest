@@ -1,3 +1,7 @@
+**Pride Flag Can Fly at Stonewall After Trump Administration Reversal**\
+`The settlement ends a symbolic attack on the L.G.B.T.Q. rights movement and deals a blow to the administration’s assault on diversity initiatives.`\
+https://www.nytimes.com/2026/04/13/nyregion/pride-flag-stonewall-trump.html
+
 **Shipping Companies Remain Reluctant to Sail Through Strait of Hormuz**\
 `The United States said it would begin blocking vessels doing business with Iran. Details on how that would work are unclear.`\
 https://www.nytimes.com/2026/04/13/business/shipping-iran-strait-of-hormuz.html
