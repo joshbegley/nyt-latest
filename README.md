@@ -1,3 +1,7 @@
+**La guerra de Trump está debilitando a EE. UU. de 4 maneras**\
+`El presidente debería reconocer la ineptitud de su enfoque impulsivo y egoísta.`\
+https://www.nytimes.com/es/2026/04/13/espanol/opinion/trump-guerra-iran-eeuu.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/13/world/iran-war-trump-news/heres-the-latest
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/12/arts/television/the-comeback-recap-season-3-e
 **TK**\
 `TK`\
 https://static01.nyt.com/slideshow/2026/04/12/t-magazine/tk.html
-
-**‘Titaníque’ Review: A Wild Joyride With Celine Dion as Our Kooky Guide**\
-`This “Titanic” parody fueled by Dion’s hits, silly ad-libs and pop culture references had the humblest of beginnings. Now the show has docked on Broadway.`\
-https://www.nytimes.com/2026/04/12/theater/titanique-review-broadway-dion.html
 
