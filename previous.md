@@ -1,3 +1,11 @@
+**Mamdani Announces City-Owned Grocery Store**\
+`At a rally on Sunday marking his first 100 days as the mayor of New York City, Zohran Mamdani announced that it would open a city-owned grocery store in East Harlem.`\
+https://www.nytimes.com/video/nyregion/100000010837309/mamdani-city-owned-grocery-store.html
+
+**After Chaotic Election Day, Peru Orders 2nd Day of Voting for Some Areas**\
+`Frustrated voters in long lines were unable to cast ballots in parts of the capital, Lima, due to logistical failures, eroding trust for some in the process.`\
+https://www.nytimes.com/2026/04/13/world/americas/peru-election-extended-voting.html
+
 **For Ants, a ‘Cleaning Station’ in the Desert**\
 `A unique “choreography” between two ant species suggests a distinctive partnership in which one provides a carwash service to the other.`\
 https://www.nytimes.com/2026/04/13/science/harvester-cone-ants-cleaning.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/12/nyregion/mamdani-speech-100-days.html
 **Díaz-Canel desafía a EE. UU. en un momento crítico**\
 `En “Meet the Press”, el presidente cubano reafirma su postura mientras el foco de Washington sigue puesto en Irán.`\
 https://www.nytimes.com/es/2026/04/12/espanol/america-latina/cuba-diaz-canel-meet-press.html
-
-**Trump Says Gas Prices Might Not Drop By Midterms, Underscoring G.O.P. Peril**\
-`The president has sent mixed messages on how long he expects costs to be high. Some in his party voiced fresh concern after his comments on Sunday.`\
-https://www.nytimes.com/2026/04/12/us/politics/trump-gas-prices-high-midterms-republicans.html
-
-**How Would a Blockade of the Strait of Hormuz Work? Here Are Some Possibilities.**\
-`The goal of the naval operation ordered by ordered by President Trump is to deny Iran the revenues it needs to fund its military, but there are many unknowns.`\
-https://www.nytimes.com/2026/04/12/world/middleeast/hormuz-us-blockade.html
 

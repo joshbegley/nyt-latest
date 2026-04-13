@@ -1,3 +1,11 @@
+**Mamdani Announces City-Owned Grocery Store**\
+`At a rally on Sunday marking his first 100 days as the mayor of New York City, Zohran Mamdani announced that it would open a city-owned grocery store in East Harlem.`\
+https://www.nytimes.com/video/nyregion/100000010837309/mamdani-city-owned-grocery-store.html
+
+**After Chaotic Election Day, Peru Orders 2nd Day of Voting for Some Areas**\
+`Frustrated voters in long lines were unable to cast ballots in parts of the capital, Lima, due to logistical failures, eroding trust for some in the process.`\
+https://www.nytimes.com/2026/04/13/world/americas/peru-election-extended-voting.html
+
 **For Ants, a ‘Cleaning Station’ in the Desert**\
 `A unique “choreography” between two ant species suggests a distinctive partnership in which one provides a carwash service to the other.`\
 https://www.nytimes.com/2026/04/13/science/harvester-cone-ants-cleaning.html
