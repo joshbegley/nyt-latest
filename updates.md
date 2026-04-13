@@ -1,3 +1,11 @@
+**Defeat of Orban Removes Ukraine’s Biggest Nemesis in Europe**\
+`The Hungarian leader’s pro-Moscow tilt cemented his reputation in Kyiv as a spoiler. Now, Ukraine hopes a 90 billion euro loan he blocked will be disbursed.`\
+https://www.nytimes.com/2026/04/13/world/europe/hungary-orban-ukraine-zelensky.html
+
+**4 Takeaways From Viktor Orban’s Defeat in Hungary’s Election**\
+`Economics and unhappiness with endemic corruption helped Peter Magyar, the challenger, secure victory. A visit by the U.S. vice president in support of Mr. Orban didn’t change things.`\
+https://www.nytimes.com/2026/04/13/world/europe/hungary-election-results-orban-magyar.html
+
 **Film Club: ‘Buckle Up, Women. Cars Still Aren’t Built for You.’**\
 `An Opinion video argues that auto safety standards have ignored women for over a half a century. What should be done to change that?`\
 https://www.nytimes.com/2026/04/13/learning/film-club-buckle-up-women-cars-still-arent-built-for-you.html
