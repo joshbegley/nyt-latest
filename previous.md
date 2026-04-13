@@ -1,3 +1,11 @@
+**New from Serial: ‘The Idiot’**\
+`Listen to the trailer today.`\
+https://www.nytimes.com/2026/04/13/podcasts/new-from-serial-the-idiot.html
+
+**Serial: ‘The Idiot’ is out now**\
+`Listen to the whole series today.`\
+https://www.nytimes.com/2026/04/13/podcasts/serial-the-idiot-is-out-now.html
+
 **Sid Krofft, 96, a Creator of Trippy Kids’ Shows Like ‘H.R. Pufnstuf,’ Dies**\
 `With his brother Marty, he released a string of zany children’s programs. Some became cult favorites (even among adults) and others flopped.`\
 https://www.nytimes.com/2026/04/13/arts/television/sid-krofft-dead.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/13/us/politics/trump-mental-fitness-25th-amendme
 **Two Iran-linked Ships Passed Through Strait of Hormuz Ahead of U.S. Blockade**\
 `The vessels exited the Strait of Hormuz on Monday, hours before a U.S. naval blockade took effect.`\
 https://www.nytimes.com/2026/04/13/world/middleeast/strait-hormuz-shipping-iran-blockade-trump.html
-
-**Trump Attack on Pope and Posting of Jesus Image Draw Widespread Criticism**\
-`A prominent conservative bishop was among the Catholic leaders who jumped to the pope’s defense.`\
-https://www.nytimes.com/2026/04/13/us/trump-pope-leo.html
-
-**Palabra del día: ‘irrevocable’**\
-`Esta palabra ha aparecido en 37 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
-https://www.nytimes.com/es/2026/04/13/espanol/que-significa-irrevocable.html
 

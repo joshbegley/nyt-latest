@@ -1,3 +1,11 @@
+**New from Serial: ‘The Idiot’**\
+`Listen to the trailer today.`\
+https://www.nytimes.com/2026/04/13/podcasts/new-from-serial-the-idiot.html
+
+**Serial: ‘The Idiot’ is out now**\
+`Listen to the whole series today.`\
+https://www.nytimes.com/2026/04/13/podcasts/serial-the-idiot-is-out-now.html
+
 **Sid Krofft, 96, a Creator of Trippy Kids’ Shows Like ‘H.R. Pufnstuf,’ Dies**\
 `With his brother Marty, he released a string of zany children’s programs. Some became cult favorites (even among adults) and others flopped.`\
 https://www.nytimes.com/2026/04/13/arts/television/sid-krofft-dead.html
