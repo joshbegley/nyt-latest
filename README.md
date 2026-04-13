@@ -1,3 +1,15 @@
+**The Venezuela Model**\
+`President Trump calls the removal of Nicolás Maduro “the perfect scenario.” But not everything is going right for the U.S. in Venezuela.`\
+https://www.nytimes.com/2026/04/13/world/venezuela-oil-us-blockade-hormuz-pope-leo.html
+
+**For Israel, War Is the Only Answer**\
+`If war is the status quo, the job is never done, and you can never lose.`\
+https://www.nytimes.com/2026/04/13/opinion/international-world/israel-war-strategy.html
+
+**Orban’s Fall Is an Astounding Achievement**\
+`Voters seized the chance to leave behind his 16-year rule.`\
+https://www.nytimes.com/2026/04/13/opinion/orban-hungary-election-magyar.html
+
 **Personalidades de Hollywood firman una carta contra el acuerdo de Paramount y Warner Bros.**\
 `La carta advierte que el acuerdo supondrá menos puestos de trabajo para los creativos, además de mayores costos y menos opciones para el público.`\
 https://www.nytimes.com/es/2026/04/13/espanol/negocios/hollywood-carta-paramount-warner-bros.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/13/podcasts/serial-the-idiot-is-out-now.html
 **Sid Krofft, 96, a Creator of Trippy Kids’ Shows Like ‘H.R. Pufnstuf,’ Dies**\
 `With his brother Marty, he released a string of zany children’s programs. Some became cult favorites (even among adults) and others flopped.`\
 https://www.nytimes.com/2026/04/13/arts/television/sid-krofft-dead.html
-
-**La industria eléctrica de China podría salir beneficiada de la guerra en Medio Oriente**\
-`Un grupo de empresas chinas está a punto de ganar a lo grande con la crisis energética desencadenada por la guerra en Irán, gracias al auge de la inversión en inteligencia artificial.`\
-https://www.nytimes.com/es/2026/04/13/espanol/negocios/china-industria-electrica-guerra-beneficio.html
-
-**La visita de los reyes de los Países Bajos a la Casa Blanca crea polémica**\
-`El rey y la reina de los Países Bajos se alojarán en la Casa Blanca el lunes por la noche. En un momento de tensión transatlántica, los neerlandeses no están seguros de cómo se sienten al respecto.`\
-https://www.nytimes.com/es/2026/04/13/espanol/mundo/reyes-paises-bajos-maxima-trump-visita.html
-
-**Trump quiere bloquear Irán para abrir el estrecho de Ormuz. Los expertos tienen sus dudas**\
-`El anuncio del presidente Trump de un bloqueo estadounidense a Irán es su esfuerzo más reciente por presionarlo para negociar, después de que en las conversaciones del fin de semana no se llegara a un acuerdo.`\
-https://www.nytimes.com/es/2026/04/13/espanol/mundo/iran-trump-estrecho-ormuz-bloqueo.html
 
