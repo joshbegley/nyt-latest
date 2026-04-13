@@ -1,3 +1,11 @@
+**Film Club: ‘Buckle Up, Women. Cars Still Aren’t Built for You.’**\
+`An Opinion video argues that auto safety standards have ignored women for over a half a century. What should be done to change that?`\
+https://www.nytimes.com/2026/04/13/learning/film-club-buckle-up-women-cars-still-arent-built-for-you.html
+
+**4 Takeaways From Viktor Orban’s Defeat in Hungary’s Election**\
+`Economics and unhappiness with endemic corruption helped Peter Magyar, the challenger, take his party to victory. A visit by the American vice president in support of Mr. Orban didn’t help him.`\
+https://www.nytimes.com/2026/04/13/world/europe/hungary-election-results-orban-magyar.html
+
 **Pete Hegseth’s Gospel of Carnage**\
 `The defense secretary thinks he’s commanding God’s army`\
 https://www.nytimes.com/2026/04/13/opinion/pete-hegseths-religious-war.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/13/style/winged-eyeliner-cat-eye-millennial.html
 **How Iran, Suffering Under Sanctions, Diversified Its Economy**\
 `As the nation contended with high inflation, high unemployment and unrest before the war, it became more than just an oil exporter.`\
 https://www.nytimes.com/2026/04/13/business/economy/iran-imports-exports-china.html
-
-**After Charlie Kirk’s Death, a Fight for the Youth Vote**\
-`A fledgling Democratic group and the far-right white nationalist Nick Fuentes seek to make gains on college campuses that have recently been dominated by Turning Point USA.`\
-https://www.nytimes.com/2026/04/13/us/politics/charlie-kirk-turning-point-youth-democrats-fuentes.html
-
-**More Gray Whales Are Visiting San Francisco Bay, and Many Die There**\
-`The animals might be entering the Bay in search of food as climate change disrupts traditional sources. They face huge risks from ships in the area.`\
-https://www.nytimes.com/2026/04/13/climate/gray-whales-san-francisco-bay.html
 
