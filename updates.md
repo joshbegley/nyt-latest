@@ -1,3 +1,11 @@
+**Trump Says Gas Prices Might Not Drop By Midterms, Underscoring G.O.P. Peril**\
+`The president has sent mixed messages on how long he expects costs to be high. Some in his party voiced fresh concern after his comments on Sunday.`\
+https://www.nytimes.com/2026/04/12/us/politics/trump-gas-prices-high-midterms-republicans.html
+
+**How Would a Blockade of the Strait of Hormuz Work? Here Are Some Possibilities.**\
+`The goal of the naval operation ordered by ordered by President Trump is to deny Iran the revenues it needs to fund its military, but there are many unknowns.`\
+https://www.nytimes.com/2026/04/12/world/middleeast/hormuz-us-blockade.html
+
 **How Would a Blockade the Strait of Hormuz Work? Here Are Some Possibilities.**\
 `The goal of the naval operation ordered by ordered by President Trump is to deny Iran the revenues it needs to fund its military, but there are many unknowns.`\
 https://www.nytimes.com/2026/04/12/world/middleeast/hormuz-us-blockade.html
