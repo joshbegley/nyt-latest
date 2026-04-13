@@ -1,3 +1,7 @@
+**Where Even Flowers Stoke Fear**\
+`Myanmar’s generals have brutalized the country for decades. But they have come to dread garlands as a sign of resistance.`\
+https://www.nytimes.com/2026/04/13/world/asia/myanmar-war-military-fear.html
+
 **‘The Strangest Sleepover Ever’: Dutch Skeptical as Their Royals Visit Trump**\
 `The Dutch king and queen are set to stay at the White House on Monday night. At a time of trans-Atlantic tension, the Netherlands isn’t sure how it feels about that.`\
 https://www.nytimes.com/2026/04/13/world/europe/trump-dutch-royal-visit-white-house.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/12/espanol/america-latina/haiti-estampida-mas
 **TK**\
 `TK`\
 https://static01.nyt.com/slideshow/2026/04/12/t-magazine/tk.html
-
-**El amerizaje del Artemis II da impulso a la NASA en la renovada carrera lunar**\
-`Los astronautas rompieron varios récords y pudieron estudiar partes de la cara oculta de la Luna.`\
-https://www.nytimes.com/es/2026/04/12/espanol/ciencia-y-tecnologia/artemis-ii-nasa-luna.html
 
