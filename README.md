@@ -1,3 +1,7 @@
+**Trump’s Fed Pick Discloses Vast Wealth Ahead of Confirmation Hearing**\
+`Kevin M. Warsh vowed to divest a substantial amount of his more than $100 million in assets as he faces a complicated path to becoming the next chair of the Federal Reserve.`\
+https://www.nytimes.com/2026/04/14/business/trump-federal-reserve-warsh.html
+
 **Xi Offers Veiled Critique of U.S. in Rare Comments on War in Iran**\
 `China’s leader, Xi Jinping, said that the world cannot risk reverting “to the law of the jungle.” Beijing has taken a more active role diplomatically as the crisis in the Strait of Hormuz persists.`\
 https://www.nytimes.com/2026/04/14/world/middleeast/xi-iran-war-china.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/us/politics/100000010839676/trump-pope-leo-attack-
 **Los Angeles Schools Strike Narrowly Averted in Last-Minute Deal**\
 `The strike would have shut down classes on Tuesday for hundreds of thousands of students in the nation’s second-largest school district.`\
 https://www.nytimes.com/2026/04/14/us/los-angeles-schools-strike-deal.html
-
-**‘I Don’t Know If We Can Come Back From This’: The View From Inside Trump’s D.H.S.**\
-`Dozens of agents and officials share their stories about working in the Department of Homeland Security during the harsh crackdown on illegal immigration.`\
-https://www.nytimes.com/interactive/2026/04/14/magazine/trump-dhs-ice-officers-immigration-deportations.html
 
