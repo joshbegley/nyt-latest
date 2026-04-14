@@ -1,3 +1,27 @@
+**Can Sam Altman Be Trusted?**\
+`The journalists Ronan Farrow and Andrew Marantz investigated some of the doubts surrounding Altman, the leader of OpenAI, in a recent article for The New Yorker. They discuss their findings with Casey Newton and Kevin Roose, the hosts of the “Hard Fork” podcast.`\
+https://www.nytimes.com/video/podcasts/100000010840628/can-sam-altman-be-trusted.html
+
+**En Canadá, los liberales liderados por Carney obtienen la mayoría legislativa**\
+`El primer ministro Mark Carney, limitado por dirigir un gobierno en minoría durante el último año, obtuvo la mayoría en la Cámara de los Comunes tras las elecciones extraordinarias celebradas el lunes.`\
+https://www.nytimes.com/es/2026/04/14/espanol/mundo/canada-elecciones-resultados.html
+
+**Vance dice que el papa León debe mantenerse al margen de los asuntos de EE. UU.**\
+`El vicepresidente estadounidense defendió al presidente Trump, quien había acusado al papa de ser demasiado liberal y “débil ante el crimen”. El pontífice ha dicho que no le teme al gobierno de Trump.`\
+https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/papa-politica-trump-vance.html
+
+**Marcel Brings Luxurious Continental Dining to Sotheby’s**\
+`The Cote and Coqodaq team plan for a three restaurants on three levels in Midtown, and Ferdinando’s Focacceria gains a second life from the Cafe Spaghetti owner.`\
+https://www.nytimes.com/2026/04/14/dining/nyc-restaurant-news.html
+
+**Para Trump, León es un oponente papal diferente**\
+`Como el primer papa de origen estadounidense, el liderazgo de León XIV cuenta con el apoyo de amplios sectores de la Iglesia en EE. UU.`\
+https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/trump-papa-leon.html
+
+**Trump, Jesus and the Pope**\
+`Readers respond to front-page articles about President Trump’s erratic behavior.`\
+https://www.nytimes.com/2026/04/14/opinion/trump-jesus-pope.html
+
 **La guerra en Medio Oriente frenará el crecimiento económico mundial, advierte el FMI**\
 `El Fondo Monetario Internacional también planteó la posibilidad de una recesión mundial y otro brote de inflación.`\
 https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/guerra-economia-petroleo-fmi.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/04/14/world/africa/benin-election-president-romuald
 **Palabra del día: ‘hierarchy’**\
 `Esta palabra ha aparecido en 1333 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/04/14/espanol/que-significa-hierarchy.html
-
-**Virginia Governor Ends Tax Breaks for Confederate Groups**\
-`The new law signed by Gov. Abigail Spanberger is the culmination of a long, Democrat-led push to distance Virginia from its Confederate past.`\
-https://www.nytimes.com/2026/04/14/us/virginia-tax-breaks-confederate.html
-
-**Shooting at High School in Turkey Wounds 16 People**\
-`A former student opened fire at a vocational high school in southeastern Turkey, wounding at least 16 people, officials said. The attacker killed himself after being cornered by the police.`\
-https://www.nytimes.com/video/world/middleeast/100000010839972/turkey-high-school-shooting-former-student.html
-
-**Have Mental Health Concerns Influenced Your Choice to Have Children?**\
-`If you are on the fence, or have already made a decision, we want to hear about it.`\
-https://www.nytimes.com/2026/04/14/well/mind/mental-health-children-fertility.html
-
-**3 Years After a Landmark Law, Some Pregnant Workers Still Don’t Get Basic Accommodations**\
-`Companies have denied requests from women asking to sit during work or take extra breaks, leading some of them to develop health complications or take unpaid leave.`\
-https://www.nytimes.com/2026/04/14/well/live/pregnant-workers-amazon-speedway.html
-
-**Pittsburgh Post-Gazette Saved From Closure by Nonprofit**\
-`The Venetoulis Institute of Local Journalism, which operates The Baltimore Banner, has bought The Post-Gazette. The newspaper was set to shut down next month.`\
-https://www.nytimes.com/2026/04/14/business/media/pittsburgh-post-gazette-bought-venetoulis-institute.html
-
-**A Dinner to Keep the Vacation Vibes Going**\
-`A quick escovitch, a timeless sheet-pan chicken and a surprising tofu flex help to keep that spring break glow.`\
-https://www.nytimes.com/2026/04/14/dining/a-dinner-to-keep-the-vacation-vibes-going.html
 

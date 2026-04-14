@@ -1,3 +1,27 @@
+**Can Sam Altman Be Trusted?**\
+`The journalists Ronan Farrow and Andrew Marantz investigated some of the doubts surrounding Altman, the leader of OpenAI, in a recent article for The New Yorker. They discuss their findings with Casey Newton and Kevin Roose, the hosts of the “Hard Fork” podcast.`\
+https://www.nytimes.com/video/podcasts/100000010840628/can-sam-altman-be-trusted.html
+
+**En Canadá, los liberales liderados por Carney obtienen la mayoría legislativa**\
+`El primer ministro Mark Carney, limitado por dirigir un gobierno en minoría durante el último año, obtuvo la mayoría en la Cámara de los Comunes tras las elecciones extraordinarias celebradas el lunes.`\
+https://www.nytimes.com/es/2026/04/14/espanol/mundo/canada-elecciones-resultados.html
+
+**Vance dice que el papa León debe mantenerse al margen de los asuntos de EE. UU.**\
+`El vicepresidente estadounidense defendió al presidente Trump, quien había acusado al papa de ser demasiado liberal y “débil ante el crimen”. El pontífice ha dicho que no le teme al gobierno de Trump.`\
+https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/papa-politica-trump-vance.html
+
+**Marcel Brings Luxurious Continental Dining to Sotheby’s**\
+`The Cote and Coqodaq team plan for a three restaurants on three levels in Midtown, and Ferdinando’s Focacceria gains a second life from the Cafe Spaghetti owner.`\
+https://www.nytimes.com/2026/04/14/dining/nyc-restaurant-news.html
+
+**Para Trump, León es un oponente papal diferente**\
+`Como el primer papa de origen estadounidense, el liderazgo de León XIV cuenta con el apoyo de amplios sectores de la Iglesia en EE. UU.`\
+https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/trump-papa-leon.html
+
+**Trump, Jesus and the Pope**\
+`Readers respond to front-page articles about President Trump’s erratic behavior.`\
+https://www.nytimes.com/2026/04/14/opinion/trump-jesus-pope.html
+
 **La guerra en Medio Oriente frenará el crecimiento económico mundial, advierte el FMI**\
 `El Fondo Monetario Internacional también planteó la posibilidad de una recesión mundial y otro brote de inflación.`\
 https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/guerra-economia-petroleo-fmi.html
