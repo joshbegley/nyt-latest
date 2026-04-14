@@ -2,7 +2,7 @@
 `Fashion brands have taken note of the WNBA draft, described by Lauren Betts, the No. 4 draft pick, as the Met Gala of women’s basketball. Vanessa Friedman, our chief fashion critic, was there.`\
 https://www.nytimes.com/video//100000010832658/wnba-draft-fashion-basketball.html
 
-**Another Woman Accuses Eric Swalwell of Sexually Assaulting Her**\
+**A New Accuser Says Eric Swalwell Sexually Assaulted Her**\
 `The woman said Mr. Swalwell, who resigned from Congress on Tuesday afternoon, raped her in a West Hollywood hotel room in 2018. She said she believed she was drugged.`\
 https://www.nytimes.com/2026/04/14/us/lonna-drewes-eric-swalwell-sexual-assault.html
 
