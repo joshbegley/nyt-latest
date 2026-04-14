@@ -1,3 +1,11 @@
+**Los Angeles Schools Strike Narrowly Averted in Last-Minute Deal**\
+`The strike would have shut down classes on Tuesday for hundreds of thousands of students in the nation’s second-largest school district.`\
+https://www.nytimes.com/2026/04/14/us/los-angeles-schools-strike-deal.html
+
+**Here’s How to Defeat Trumpism**\
+`The free world should take an honest look at how Hungary’s opposition party defeated a far-right giant.`\
+https://www.nytimes.com/2026/04/14/opinion/magyar-orban-hungary-trump-defeat.html
+
 **How Do You Make a Medieval Film on a Shoestring Budget?**\
 `Caroline Golum used a crowdfunding site and a credit card to raise funds for her movie about a 14th-century mystic. Then she started filming in Queens.`\
 https://www.nytimes.com/2026/04/14/style/revelations-of-divine-love-caroline-golum-movie.html

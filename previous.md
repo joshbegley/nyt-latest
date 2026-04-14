@@ -54,7 +54,7 @@ https://www.nytimes.com/2026/04/14/world/middleeast/turkey-school-shooting-siver
 `Vice President JD Vance weighed in on the tension between President Trump and Pope Leo XIV as Catholics expressed dismay about Mr. Trump’s attacks.`\
 https://www.nytimes.com/video/us/politics/100000010839676/trump-pope-leo-attack-vance-catholics.html
 
-**Los Angeles Schools Strike Narrowly Averted In Last-Minute Deal**\
+**Los Angeles Schools Strike Narrowly Averted in Last-Minute Deal**\
 `The strike would have shut down classes on Tuesday for hundreds of thousands of students in the nation’s second-largest school district.`\
 https://www.nytimes.com/2026/04/14/us/los-angeles-schools-strike-deal.html
 
@@ -66,7 +66,7 @@ https://www.nytimes.com/interactive/2026/04/14/magazine/trump-dhs-ice-officers-i
 `Investors saw a possible path to peace, with the United States and Iran trading proposals for Iran to suspend nuclear activity.`\
 https://www.nytimes.com/2026/04/14/business/oil-gas-stocks-prices.html
 
-**A Road Map for Defeating Trumpism**\
+**Here’s How to Defeat Trumpism**\
 `The free world should take an honest look at how Hungary’s opposition party defeated a far-right giant.`\
 https://www.nytimes.com/2026/04/14/opinion/magyar-orban-hungary-trump-defeat.html
 
