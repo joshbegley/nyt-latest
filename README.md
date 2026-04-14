@@ -1,3 +1,11 @@
+**Remembering Cars Without Seatbelts and Athletes Who Smoked**\
+`Ricky Cobb has built a big online following with his irreverent postings about the absurdities of the 1970s.`\
+https://www.nytimes.com/2026/04/14/business/ricky-cobb-1970s-super70ssports.html
+
+**J.P. Morgan Sees Resiliency in U.S. Economy Despite Iran War**\
+`The nation’s largest bank said it earned record trading profits in the first quarter but tempered expectations overall for its business.`\
+https://www.nytimes.com/2026/04/14/business/jpmorgan-wells-fargo-citi-earnings.html
+
 **Trump’s Fed Pick Discloses Vast Wealth Ahead of Confirmation Hearing**\
 `Kevin M. Warsh vowed to divest a substantial amount of his more than $100 million in assets as he faces a complicated path to becoming the next chair of the Federal Reserve.`\
 https://www.nytimes.com/2026/04/14/business/trump-federal-reserve-warsh.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/14/crosswords/wordle-review-1761.html
 **Ex-Student Opens Fire at High School in Turkey, Wounding 16**\
 `Officials said the teenage attacker killed himself when cornered by the police. The authorities are investigating possible motives.`\
 https://www.nytimes.com/2026/04/14/world/middleeast/turkey-school-shooting-siverek.html
-
-**Vance Says Pope Should Stay Out of U.S. Affairs**\
-`Vice President JD Vance weighed in on the tension between President Trump and Pope Leo XIV as Catholics expressed dismay about Mr. Trump’s attacks.`\
-https://www.nytimes.com/video/us/politics/100000010839676/trump-pope-leo-attack-vance-catholics.html
-
-**Los Angeles Schools Strike Narrowly Averted in Last-Minute Deal**\
-`The strike would have shut down classes on Tuesday for hundreds of thousands of students in the nation’s second-largest school district.`\
-https://www.nytimes.com/2026/04/14/us/los-angeles-schools-strike-deal.html
 
