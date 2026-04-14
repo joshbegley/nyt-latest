@@ -1,80 +1,80 @@
-**In Rare Direct Talks, Israeli and Lebanese Officials Look for Way Forward**\
-`The talks, set for Tuesday in Washington, were not expected to produce an immediate breakthrough in the war between Hezbollah and Israel.`\
-https://www.nytimes.com/2026/04/14/world/middleeast/israel-lebanon-talks-dc.html
+**Trump’s Friction With Pope Leo Draws Criticism From Catholics**\
+`Vice President JD Vance weighed in on the tension between President Trump and Pope Leo XIV as Catholics expressed dismay about Mr. Trump’s attacks.`\
+https://www.nytimes.com/video/us/politics/100000010839676/trump-pope-leo-attack-vance-catholics.html
 
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/04/14/world/iran-war-oil-hormuz/heres-the-latest
+**Los Angeles Schools Strike Narrowly Averted In Last-Minute Deal**\
+`The strike would have shut down classes on Tuesday for hundreds of thousands of students in the nation’s second-largest school district.`\
+https://www.nytimes.com/2026/04/14/us/los-angeles-schools-strike-deal.html
 
-**‘Extremely Dangerous’ Super Typhoon Barrels Toward Northern Mariana Islands**\
-`The storm, named Sinlaku, was expected to make landfall on Tuesday evening in Tinian and Saipan, where tens of thousands of people were urged to shelter in place.`\
-https://www.nytimes.com/2026/04/14/world/asia/typhoon-sinlaku-guam-mariana.html
+**‘I Don’t Know If We Can Come Back From This’: The View From Inside Trump’s D.H.S.**\
+`Dozens of agents and officials share their stories about working in the Department of Homeland Security during the violent crackdown on illegal immigration.`\
+https://www.nytimes.com/interactive/2026/04/14/magazine/trump-dhs-ice-officers-immigration-deportations.html
 
-**Alguien tiene que ser feliz. ¿Por qué no Lauren Sánchez Bezos?**\
-`Como la mitad de una pareja mega poderosa, Sánchez Bezos parece haber influido en los superricos para que dejen de disculparse y empiecen a disfrutar.`\
-https://www.nytimes.com/es/2026/04/14/espanol/negocios/lauren-sanchez-bezos.html
+**Oil Prices Slip and Stocks Gain as Investors Eye Possible Path to Peace**\
+`Investors saw a possible path to peace, with the United States and Iran trading proposals for Iran to suspend nuclear activity.`\
+https://www.nytimes.com/2026/04/14/business/oil-gas-stocks-prices.html
 
-**Pete Hegseth y su evangelio de destrucción**\
-`El secretario de Defensa cree que está comandando el ejército de Dios.`\
-https://www.nytimes.com/es/2026/04/14/espanol/opinion/pete-hegseth-guerra-iran-dios-cristianismo.html
+**A Road Map for Defeating Trumpism**\
+`The free world should take an honest look at how Hungary’s opposition party defeated a far-right giant.`\
+https://www.nytimes.com/2026/04/14/opinion/magyar-orban-hungary-trump-defeat.html
 
-**Su devoción por las canciones de amor lo llevó a la cárcel, pero no lo silenció**\
-`La prisión no pudo conseguir que Nguyen Van Loc, perseguido por interpretar la vieja música romántica de Hanói durante la guerra de Vietnam, dejara de cantar.`\
-https://www.nytimes.com/es/2026/04/14/espanol/mundo/nguyen-van-loc-cantante-vietnam.html
+**10 minutos de yoga en silla para principiantes**\
+`Si tienes movilidad limitada o problemas de equilibrio, estas posturas modificadas pueden hacer que la práctica sea más accesible.`\
+https://www.nytimes.com/es/2026/04/14/espanol/yoga-silla-principiantes-movimientos.html
 
-**‘Euphoria’ Returns**\
-`Are you a fan? Did you watch the season 3 premiere?`\
-https://www.nytimes.com/2026/04/14/learning/euphoria-returns.html
+**Why Is No Kings So Old?**\
+`The lack of a thriving youth movement in opposition to Trump is a canary-in-the-coal-mine warning of the deterioration of American exceptionalism.`\
+https://www.nytimes.com/2026/04/14/opinion/trump-protest-ai-phones-social-media.html
 
-**80s Tomorrow, 50s Next Week? New York Rides a Weather Roller Coaster.**\
-`Although Monday wasn’t as springlike as expected, people still were drawn to the beach. By midweek, the city is likely to see summer temperatures.`\
-https://www.nytimes.com/2026/04/14/nyregion/weather-nyc-hot-cold.html
+**In Leo, Trump Faces a Different Kind of Papal Opponent**\
+`Unlike his predecessor, Pope Leo XIV enjoys growing support from a broad swath of conservative Catholics.`\
+https://www.nytimes.com/2026/04/14/us/politics/trump-pope-leo.html
 
-**Here’s What to Know About Weinstein’s Third Rape Trial in New York**\
-`Harvey Weinstein is scheduled to go on trial for a third time in six years on the same charge. An appeals court overturned his first conviction, and the second trial ended in a hung jury.`\
-https://www.nytimes.com/2026/04/14/nyregion/harvey-weinstein-what-to-know-trial.html
+**How Many People Heard About Swalwell and Did Nothing?**\
+`Why no one is surprised when another member of Congress is accused of sexual misconduct.`\
+https://www.nytimes.com/2026/04/14/opinion/swalwell-did-nothing.html
 
-**Trump and New York Are in a Tug of War Over Medicaid Coverage**\
-`With tough new regulations looming in the president’s domestic policy bill, officials are coming up with plans to keep New Yorkers insured.`\
-https://www.nytimes.com/2026/04/14/nyregion/nyc-medicaid-cuts.html
+**Reckoning With Israel’s ‘One-State Reality’**\
+`The political scientists Shibley Telhami and Marc Lynch discuss Israel’s continued expansion into the West Bank, Gaza and Lebanon.`\
+https://www.nytimes.com/2026/04/14/opinion/ezra-klein-podcast-lynch-telhami.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/04/14/crosswords/spelling-bee-forum.html
+**Trump Has Pope Derangement Syndrome**\
+`Leo XIV isn’t the president’s political rival. He’s God’s messenger.`\
+https://www.nytimes.com/2026/04/14/opinion/pope-president-war-immigration.html
 
-**‘It’s on the App’: A Police Chief’s $4.5 Million Gambling Secret**\
-`New Haven’s police chief, Karl Jacobson, resigned abruptly after his deputies saw red flags, including missing money. He has pleaded not guilty to embezzling city money to gamble on sports.`\
-https://www.nytimes.com/2026/04/14/nyregion/police-chief-sports-gambling-new-haven.html
+**Trump’s Latest Oil Blockade Brings Bigger Economic Risks**\
+`Oil markets shrugged it off, but the effort to hurt Iran could provoke retaliation that inflicts more damage on energy assets and the global economy.`\
+https://www.nytimes.com/2026/04/14/business/energy-environment/iran-trump-blockade-oil-prices.html
 
-**Is the Jewish Defense League Making a Comeback?**\
-`The Jewish Defense League had long been considered inactive. But an arrest in a plot to kill a Palestinian activist shed light on an apparent resurgence of far-right Zionism.`\
-https://www.nytimes.com/2026/04/14/nyregion/jewish-defense-league-murder-plot.html
+**Carney Seals a Majority and Remakes Canada’s Liberal Party**\
+`The rising star in global centrist politics has secured a majority in the Canadian Parliament. Critics are crying foul.`\
+https://www.nytimes.com/2026/04/14/world/canada/election-carney-liberal-party.html
 
-**Geneva Watch Week Seeks to Brighten Watchmaking’s Future**\
-`At Watches and Wonders, dozens of brands will be introducing new collections.`\
-https://www.nytimes.com/2026/04/14/fashion/geneva-watches-wonders.html
+**Trump’s Attacks on Pope Leo Create Fresh Midterm Headaches for G.O.P.**\
+`Republicans are counting on the votes of Catholics to maintain control of Congress.`\
+https://www.nytimes.com/2026/04/14/us/politics/trump-attacks-pope-midterms.html
 
-**The TAG Heuer Monaco Evergraph Sparks a Revolution**\
-`The timepiece updates the square-cased watch design from the 1960s with an inventive chronograph movement.`\
-https://www.nytimes.com/2026/04/14/fashion/tag-heuer-monaco.html
+**The Cost of Living Weighs on New Yorkers’ Minds**\
+`People are cooking at home and cutting back on luxuries as inflation makes it harder to get by.`\
+https://www.nytimes.com/2026/04/14/nyregion/the-cost-of-living-weighs-on-new-yorkers-minds.html
 
-**Late Night Takes Sides in the President vs. the Pope**\
-`Jimmy Kimmel said President Trump’s social media post aimed at Pope Leo XIV “is what happens when you sell Bibles instead of reading them.”`\
-https://www.nytimes.com/2026/04/14/arts/television/late-night-trump-pope.html
+**How Should Schools Respond to Antisemitism and Islamophobia?**\
+`New York City is rolling out lessons on Jewish and Muslim American history to counter a rise in hateful harassment, vandalism and rhetoric. Would all students benefit from a similar program?`\
+https://www.nytimes.com/2026/04/14/learning/how-should-schools-respond-to-antisemitism-and-islamophobia.html
 
-**Word of the Day: hierarchy**\
-`This word has appeared in 1,333 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/04/14/learning/word-of-the-day-hierarchy.html
+**Daring and Dazzling, a New LACMA Floats Above Los Angeles**\
+`After $724 million and a decade of battles, the pugnacious David Geffen Galleries reassert the city’s role as a petri dish for experimental design.`\
+https://www.nytimes.com/2026/04/14/arts/design/lacma-peter-zumthor-los-angeles.html
 
-**¿El tema del momento en la manosfera? El servicio militar de Barron Trump**\
-`Casi tan pronto como comenzaron los bombardeos a Irán a finales de febrero, empezaron a circular memes e imágenes generadas por IA que insinuaban que el hijo de Donald Trump debería ir a la guerra.`\
-https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/barron-trump-servicio-militar.html
+**Two Resignations in Congress, and the Pope’s Back-and-Forth With Trump**\
+`Plus, the rise of big bagel.`\
+https://www.nytimes.com/2026/04/14/podcasts/the-headlines/congress-resignations-pope-trump.html
 
-**Lo que las alergias estacionales le hacen a tu cuerpo**\
-`Un desglose de por qué tu sistema inmunitario trata al polen como a un parásito, y qué ocurre a continuación.`\
-https://www.nytimes.com/es/2026/04/14/espanol/alergias-estacionales-efectos.html
+**‘Planet Money’ Is Now a Book. And a Game. And a Record Label.**\
+`The long-running economics show on NPR is mining whimsical product experiments for content (and revenue) in a financially challenging environment.`\
+https://www.nytimes.com/2026/04/14/arts/planet-money-npr-book.html
 
-**La salud mental de Trump entra a debate por sus comentarios sobre Irán y el papa**\
-`El comportamiento imprevisible y los comentarios extremos del presidente de EE. UU. en los últimos días han acelerado la discusión sobre si solo es errático o si tiene temas de salud más serios.`\
-https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/trump-salud-mental-enmienda-25-constitucion.html
+**How Stephen Miller Is Adjusting Trump’s Immigration Agenda**\
+`After the chaos and death that ensued during the deportation raids in Minneapolis, Stephen Miller, the architect of President Trump’s mass deportation campaign, is changing course on immigration. Our White House correspondent Zolan Kanno-Youngs explains how the administration’s strategy is shifting.`\
+https://www.nytimes.com/video/us/politics/100000010832126/stephen-miller-trump-immigration-crackdown.html
 
