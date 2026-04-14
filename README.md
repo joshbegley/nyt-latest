@@ -1,3 +1,7 @@
+**In Rare Talks, Israeli and Lebanese Officials Look for Way Forward**\
+`Officials from the two countries were expected to meet in Washington on Tuesday. The talks were not expected to produce an immediate breakthrough in the war between Hezbollah and Israel.`\
+https://www.nytimes.com/2026/04/14/world/middleeast/israel-lebanon-talks-dc.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/14/world/iran-war-oil-hormuz/heres-the-latest
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/14/espanol/alergias-estacionales-efectos.html
 **La salud mental de Trump entra a debate por sus comentarios sobre Irán y el papa**\
 `El comportamiento imprevisible y los comentarios extremos del presidente de EE. UU. en los últimos días han acelerado la discusión sobre si solo es errático o si tiene temas de salud más serios.`\
 https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/trump-salud-mental-enmienda-25-constitucion.html
-
-**Is It Too Much to Ask to Care About Sudan?**\
-`I have seen what can happen when Americans care about a wrong in the world.`\
-https://www.nytimes.com/2026/04/14/opinion/international-world/sudan-war-anniversary-refugees.html
 
