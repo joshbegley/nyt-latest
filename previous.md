@@ -1,3 +1,7 @@
+**Youths Who Sued Trump Over Orders to ‘Unleash’ Energy Try to Revive Case**\
+`Appealing the dismissal of their suit, they argued that executive orders to promote fossil fuels endangered their futures and violated their constitutional rights.`\
+https://www.nytimes.com/2026/04/13/climate/trump-climate-youth-lawsuit.html
+
 **About 100 People Detained at N.Y.C. Protest Over Arms Sales to Israel**\
 `The protesters sat in the middle of Third Avenue in Midtown Manhattan and blocked traffic for about an hour.`\
 https://www.nytimes.com/2026/04/13/nyregion/nyc-protest-arrests-israel-arms.html
@@ -61,10 +65,6 @@ https://www.nytimes.com/video/opinion/100000010832503/the-end-of-pax-americana.h
 **Student News Quiz for April 6-13**\
 `Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
 https://www.nytimes.com/interactive/2026/04/13/learning/13StudentNewsQuiz.html
-
-**Youths Who Sued Trump Over Orders to ‘Unleash’ Energy Try to Revive Case**\
-`Appealing the dismissal of their suit, they argued that executive orders to promote fossil fuels endangered their futures and violated their constitutional rights.`\
-https://www.nytimes.com/2026/04/13/climate/trump-climate-youth-lawsuit.html
 
 **La ‘economía de las molestias’ es más que una molestia**\
 `Una nueva estimación cifra en 165.000 millones de dólares el costo de hacerle frente a las llamadas automatizadas, las tarifas ocultas y los chatbots de atención al cliente.`\
