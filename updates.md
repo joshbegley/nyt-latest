@@ -1,3 +1,11 @@
+**L.G.B.T.Q. Community Expresses Hesitancy About Hungary’s New Leader**\
+`After years of anti-L.G.B.T.Q. policies, members of the queer community in Hungary were cautiously hopeful that Peter Magyar’s win over Viktor Orban’s Fidesz party could bring about change.`\
+https://www.nytimes.com/video/world/europe/100000010839921/hungary-lgbtq-community-peter-magyar.html
+
+**Surgeon Who Removed Wrong Organ From Patient Is Charged in His Death**\
+`Dr. Thomas Shaknovsky tried to persuade his colleagues in the operating room that the liver he removed from a 70-year-old patient was a spleen, according to Florida’s Health Department.`\
+https://www.nytimes.com/2026/04/14/us/florida-surgeon-manslaughter-organ-removal.html
+
 **Lebanon and Israel Hold First In-Person Talks in Decades**\
 `While the talks between Israel and Lebanon in Washington did not yield a cease-fire agreement, both sides agreed to “launch direct negotiations” after having “productive discussions,” according to a statement from the U.S. State Department.`\
 https://www.nytimes.com/video/world/middleeast/100000010841136/us-israel-lebanon-talks.html
