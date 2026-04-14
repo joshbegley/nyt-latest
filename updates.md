@@ -1,3 +1,7 @@
+**Word of the Day: hierarchy**\
+`This word has appeared in 1,333 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/04/14/learning/word-of-the-day-hierarchy.html
+
 **¿El tema del momento en la manosfera? El servicio militar de Barron Trump**\
 `Casi tan pronto como comenzaron los bombardeos a Irán a finales de febrero, empezaron a circular memes e imágenes generadas por IA que insinuaban que el hijo de Donald Trump debería ir a la guerra.`\
 https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/barron-trump-servicio-militar.html
