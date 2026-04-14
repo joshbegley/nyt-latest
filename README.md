@@ -1,3 +1,11 @@
+**Will Viktor Orban’s Legacy Live On in Brussels, Even Without Him?**\
+`Viktor Orban, Hungary’s newly ousted prime minister, helped to finance a Brussels think tank that pushes his populist vision. It will outlast him, at least for a while.`\
+https://www.nytimes.com/2026/04/14/world/europe/orban-brussels-hungary.html
+
+**Olivia Troye, Ex-Pence Aide, Runs for the House as a Democrat**\
+`After spending most of her Washington career as a Republican, she joins a crowded field of Democrats running in a Virginia district that doesn’t exist yet.`\
+https://www.nytimes.com/2026/04/14/us/politics/olivia-troye-virginia-congress.html
+
 **The Pope and the President**\
 `The two most powerful Americans in the world are clashing.`\
 https://www.nytimes.com/2026/04/14/briefing/the-pope-and-the-president.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/14/opinion/swalwell-did-nothing.html
 **Reckoning With Israel’s ‘One-State Reality’**\
 `The political scientists Shibley Telhami and Marc Lynch discuss Israel’s continued expansion into the West Bank, Gaza and Lebanon.`\
 https://www.nytimes.com/2026/04/14/opinion/ezra-klein-podcast-lynch-telhami.html
-
-**Trump Has Pope Derangement Syndrome**\
-`Leo XIV isn’t the president’s political rival. He’s God’s messenger.`\
-https://www.nytimes.com/2026/04/14/opinion/pope-president-war-immigration.html
-
-**Trump’s Latest Oil Blockade Brings Bigger Economic Risks**\
-`Oil markets shrugged it off, but the effort to hurt Iran could provoke retaliation that inflicts more damage on energy assets and the global economy.`\
-https://www.nytimes.com/2026/04/14/business/energy-environment/iran-trump-blockade-oil-prices.html
 
