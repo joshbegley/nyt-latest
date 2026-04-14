@@ -1,3 +1,7 @@
+**In Setback for G.O.P., Trump Appointee Will Not Run for Swing House Seat**\
+`Anthony D’Esposito, a Republican, decided not to seek his former seat, which will hurt his party’s chances of unseating Representative Laura Gillen on Long Island.`\
+https://www.nytimes.com/2026/04/14/nyregion/desposito-gillen-driscoll-election.html
+
 **With Gonzales and Swalwell Out, a Scramble for House Seats Begins**\
 `Aides to Greg Abbott and Gavin Newsom were weighing whether to call quick elections to replace two House members accused of sexual misconduct.`\
 https://www.nytimes.com/2026/04/14/us/swalwell-gonzales-resignations-texas-california-special-elections.html

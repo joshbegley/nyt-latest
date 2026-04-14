@@ -1,3 +1,7 @@
+**In Setback for G.O.P., Trump Appointee Will Not Run for Swing House Seat**\
+`Anthony D’Esposito, a Republican, decided not to seek his former seat, which will hurt his party’s chances of unseating Representative Laura Gillen on Long Island.`\
+https://www.nytimes.com/2026/04/14/nyregion/desposito-gillen-driscoll-election.html
+
 **Israel’s Spy Chief Addresses Criticism About the War With Iran**\
 `The Mossad head said Israel’s mission would not be complete until the Iranian regime was replaced, after criticism that the war has left Iran’s theocratic government in place.`\
 https://www.nytimes.com/2026/04/14/world/middleeast/israel-barnea-mossad-iran.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/podcasts/100000010840693/why-is-everyone-spooked-b
 **Amazon Buys Globalstar for $10.8 Billion to Build Its Efforts in Space**\
 `The e-commerce giant is buying Globalstar, a satellite communications company, as it aims to expand its own satellite internet service to compete with Elon Musk’s Starlink.`\
 https://www.nytimes.com/2026/04/14/technology/amazon-buys-globalstar-space-internet.html
-
-**Appeals Court Ends Contempt Inquiry Into Deportation Flights**\
-`A federal judge’s nearly yearlong effort to investigate whether the Trump administration had violated his order had become a point of contention in the president’s battles with the courts.`\
-https://www.nytimes.com/2026/04/14/us/politics/deportation-flights-trump-contempt.html
 
