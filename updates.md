@@ -1,3 +1,7 @@
+**Man Who Attacked OpenAI C.E.O.’s Home Had List of Other A.I. Executives**\
+`The authorities said a 20-year-old Texas man charged with throwing a homemade bomb at the gate of Sam Altman’s home had written at length about the threat of A.I.`\
+https://www.nytimes.com/2026/04/13/technology/man-who-attacked-openai-ceos-home-had-list-of-other-ai-executives.html
+
 **U.S. Is Negotiating an Iran Deal That Would Buy Time, Again**\
 `The United States proposed a 20-year “suspension” of all nuclear activity, even as President Trump demands assurances that Iran can never build a nuclear weapon.`\
 https://www.nytimes.com/2026/04/13/us/politics/us-iran-deal.html
