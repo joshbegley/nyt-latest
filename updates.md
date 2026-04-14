@@ -1,3 +1,11 @@
+**Have Mental Health Concerns Influenced Your Choice to Have Children?**\
+`If you are on the fence, or have already made a decision, we want to hear about it.`\
+https://www.nytimes.com/2026/04/14/well/mind/mental-health-children-fertility.html
+
+**Pittsburgh Post-Gazette Saved From Closure by Nonprofit**\
+`The Venetoulis Institute of Local Journalism, which operates The Baltimore Banner, has bought The Post-Gazette. The newspaper was set to shut down next month.`\
+https://www.nytimes.com/2026/04/14/business/media/pittsburgh-post-gazette-bought-venetoulis-institute.html
+
 **3 Years After a Landmark Law, Some Pregnant Workers Still Don’t Get Basic Accommodations**\
 `Companies have denied requests from women asking to sit during work or take extra breaks, leading some of them to develop health complications or take unpaid leave.`\
 https://www.nytimes.com/2026/04/14/well/live/pregnant-workers-amazon-speedway.html

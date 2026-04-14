@@ -1,3 +1,7 @@
+**Shooting at High School in Turkey Wounds 16 People**\
+`A former student opened fire at a vocational high school in southeastern Turkey, wounding at least 16 people, officials said. The attacker killed himself after being cornered by the police.`\
+https://www.nytimes.com/video/world/middleeast/100000010839972/turkey-high-school-shooting-former-student.html
+
 **Have Mental Health Concerns Influenced Your Choice to Have Children?**\
 `If you are on the fence, or have already made a decision, we want to hear about it.`\
 https://www.nytimes.com/2026/04/14/well/mind/mental-health-children-fertility.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/14/us/politics/olivia-troye-virginia-congress.ht
 **The Pope and the President**\
 `The two most powerful Americans in the world are clashing.`\
 https://www.nytimes.com/2026/04/14/briefing/the-pope-and-the-president.html
-
-**¿El modelo Venezuela?**\
-`El presidente Trump califica la destitución de Nicolás Maduro como “el escenario perfecto”. Pero no todo va bien para Estados Unidos en Venezuela.`\
-https://www.nytimes.com/es/2026/04/14/espanol/mundo/trump-modelo-venezuela.html
 
