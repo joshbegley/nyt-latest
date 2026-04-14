@@ -1,3 +1,7 @@
+**Tears and Testimony as Camp Mystic Reckons With Its Flood Response**\
+`Testimony at a hearing this week has focused on what camp leaders knew and did as floodwaters rose in July, killing at least 116 people.`\
+https://www.nytimes.com/2026/04/14/us/camp-mystic-hearing-texas-reopening-deadly-flooding.html
+
 **Ishmael Jaffree, Who Won Case Rejecting School Prayer, Dies at 80**\
 `An Alabama parent, he objected to prayer in his children’s classrooms. The Supreme Court ruled for him, a high-water mark in the push for the strict separation of church and state.`\
 https://www.nytimes.com/2026/04/14/us/ishmael-jaffree-dead.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/14/t-magazine/cartier-roadster.html
 **Bessent Questions the Cause of Climate Change and Its Economic Toll**\
 `The Treasury secretary said it is “difficult to deconstruct” the reasons for global warming, which he described as a belief of the “elite.”`\
 https://www.nytimes.com/2026/04/14/business/scott-bessent-climate-change-trump.html
-
-**Texas A&M Picks an Insider for President After Months of Conflict**\
-`Debates over how to teach about gender, sexuality and other topics have shaken the school, and lead to the ouster of the previous president at the College Station campus last summer.`\
-https://www.nytimes.com/2026/04/14/us/texas-am-president.html
 

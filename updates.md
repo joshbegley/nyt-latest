@@ -1,3 +1,7 @@
+**Tears and Testimony as Camp Mystic Reckons With Its Flood Response**\
+`Testimony at a hearing this week has focused on what camp leaders knew and did as floodwaters rose in July, killing at least 116 people.`\
+https://www.nytimes.com/2026/04/14/us/camp-mystic-hearing-texas-reopening-deadly-flooding.html
+
 **Ishmael Jaffree, Who Won Case Rejecting School Prayer, Dies at 80**\
 `An Alabama parent, he objected to prayer in his children’s classrooms. The Supreme Court ruled for him, a high-water mark in the push for the strict separation of church and state.`\
 https://www.nytimes.com/2026/04/14/us/ishmael-jaffree-dead.html
