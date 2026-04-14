@@ -1,3 +1,11 @@
+**Amazon Buys Globalstar for $10.8 Billion to Build Its Efforts in Space**\
+`The e-commerce giant is buying Globalstar, a satellite communications company, as it aims to expand its own satellite internet service to compete with Elon Musk’s Starlink.`\
+https://www.nytimes.com/2026/04/14/technology/amazon-buys-globalstar-space-internet.html
+
+**Appeals Court Ends Contempt Inquiry Into Deportation Flights**\
+`A federal judge’s nearly yearlong effort to investigate whether the Trump administration had violated his order had become a flashpoint in the president’s battles with the courts.`\
+https://www.nytimes.com/2026/04/14/us/politics/deportation-flights-trump-contempt.html
+
 **Can Sam Altman Be Trusted?**\
 `The journalists Ronan Farrow and Andrew Marantz investigated some of the doubts surrounding Altman, the leader of OpenAI, in a recent article for The New Yorker. They discuss their findings with Casey Newton and Kevin Roose, the hosts of the “Hard Fork” podcast.`\
 https://www.nytimes.com/video/podcasts/100000010840628/can-sam-altman-be-trusted.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/14/fashion/adriano-goldschmied-dead.html
 **House Republicans Step Up Scrutiny of ActBlue Over Foreign Donations**\
 `Three Republican-led committees, responding to a New York Times report this month, accused the Democratic fund-raising organization of withholding documents from a subpoena request.`\
 https://www.nytimes.com/2026/04/14/us/politics/actblue-republicans-foreign-donations.html
-
-**Benin’s Finance Minister Wins Presidential Election in Landslide**\
-`Romuald Wadagni received 94 percent of the vote, according to provisional results. He faces the challenge of a growing jihadist insurgency in the region.`\
-https://www.nytimes.com/2026/04/14/world/africa/benin-election-president-romuald-wadagni.html
-
-**Palabra del día: ‘hierarchy’**\
-`Esta palabra ha aparecido en 1333 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
-https://www.nytimes.com/es/2026/04/14/espanol/que-significa-hierarchy.html
 
