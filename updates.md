@@ -1,3 +1,15 @@
+**Xi Offers Veiled Critique of U.S. in Rare Comments on War in Iran**\
+`China’s leader, Xi Jinping, said that the world cannot risk reverting “to the law of the jungle.” Beijing has taken a more active role diplomatically as the crisis in the Strait of Hormuz persists.`\
+https://www.nytimes.com/2026/04/14/world/middleeast/xi-iran-war-china.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/world/middleeast/100000010839999/14vid-lebanon-blog-33150.html
+
+**‘I Don’t Know If We Can Come Back From This’: The View From Inside Trump’s D.H.S.**\
+`Dozens of agents and officials share their stories about working in the Department of Homeland Security during the harsh crackdown on illegal immigration.`\
+https://www.nytimes.com/interactive/2026/04/14/magazine/trump-dhs-ice-officers-immigration-deportations.html
+
 **Middle East War Will Slow Global Economic Growth, I.M.F. Warns**\
 `The conflict could also fuel another bout of inflation, according to the International Monetary Fund.`\
 https://www.nytimes.com/2026/04/14/business/iran-war-imf-economic-growth.html
