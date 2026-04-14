@@ -1,3 +1,7 @@
+**Palabra del día: ‘hierarchy’**\
+`Esta palabra ha aparecido en 1333 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/04/14/espanol/que-significa-hierarchy.html
+
 **Virginia Governor Ends Tax Breaks for Confederate Groups**\
 `The new law signed by Gov. Abigail Spanberger is the culmination of a long, Democrat-led push to distance Virginia from its Confederate past.`\
 https://www.nytimes.com/2026/04/14/us/virginia-tax-breaks-confederate.html

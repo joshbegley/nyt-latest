@@ -1,3 +1,7 @@
+**Benin’s Finance Minister Wins Presidential Election in Landslide**\
+`Romuald Wadagni received 94 percent of the vote, according to provisional results. He faces the challenge of a growing jihadist insurgency in the region.`\
+https://www.nytimes.com/2026/04/14/world/africa/benin-election-president-romuald-wadagni.html
+
 **Palabra del día: ‘hierarchy’**\
 `Esta palabra ha aparecido en 1333 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/04/14/espanol/que-significa-hierarchy.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/14/world/middleeast/us-blockade-strait-hormuz-ir
 **What’s Driving the Wartime Stock Rebound**\
 `The S&P 500 has recouped all its losses since the Middle East war started on Feb. 28, as a bullish “vibe shift” takes hold among some investors.`\
 https://www.nytimes.com/2026/04/14/business/dealbook/stocks-us-iran-war.html
-
-**Will Viktor Orban’s Legacy Live On in Brussels, Even Without Him?**\
-`Viktor Orban, Hungary’s newly ousted prime minister, helped to finance a Brussels think tank that pushes his populist vision. It will outlast him, at least for a while.`\
-https://www.nytimes.com/2026/04/14/world/europe/orban-brussels-hungary.html
 
