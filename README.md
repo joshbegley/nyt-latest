@@ -1,3 +1,11 @@
+**Geneva Watch Week Seeks to Brighten Watchmaking’s Future**\
+`At Watches and Wonders, dozens of brands will be introducing new collections.`\
+https://www.nytimes.com/2026/04/14/fashion/geneva-watches-wonders.html
+
+**The TAG Heuer Monaco Evergraph Sparks a Revolution**\
+`The timepiece updates the square-cased watch design from the 1960s with an inventive chronograph movement.`\
+https://www.nytimes.com/2026/04/14/fashion/tag-heuer-monaco.html
+
 **Late Night Takes Sides in the President vs. the Pope**\
 `Jimmy Kimmel said President Trump’s social media post aimed at Pope Leo XIV “is what happens when you sell Bibles instead of reading them.”`\
 https://www.nytimes.com/2026/04/14/arts/television/late-night-trump-pope.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/interactive/2026/04/13/us/quake-tracker-nevada.html
 **Man Held in Attack on OpenAI Chief’s Home Had List of A.I. Leaders, Officials Say**\
 `The authorities said a 20-year-old Texas man charged with throwing a homemade bomb at the gate of Sam Altman’s home had written at length about the threat of A.I.`\
 https://www.nytimes.com/2026/04/13/technology/man-who-attacked-openai-ceos-home-had-list-of-other-ai-executives.html
-
-**U.S. Is Negotiating an Iran Deal That Would Buy Time, Again**\
-`The United States proposed a 20-year “suspension” of all nuclear activity, even as President Trump demands assurances that Iran can never build a nuclear weapon.`\
-https://www.nytimes.com/2026/04/13/us/politics/us-iran-deal.html
-
-**U.S. Military Strikes Another Boat in Pacific, Killing 2**\
-`The attack was the 49th since the campaign against vessels in the Caribbean and the eastern Pacific started in early September.`\
-https://www.nytimes.com/2026/04/13/us/politics/military-strike-boat-eastern-pacific.html
 
