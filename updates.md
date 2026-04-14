@@ -1,3 +1,7 @@
+**Vance Says Pope Leo Should Stay Out of U.S. Affairs**\
+`The vice president, a Catholic, defended President Trump, who had accused the pope of being too liberal and “weak on crime.” The pontiff has said that he has “no fear of the Trump administration.”`\
+https://www.nytimes.com/2026/04/13/us/politics/jd-vance-pope-leo-trump.html
+
 **MAGA Absorbs the Loss of Orban, a Kindred Spirit to Trump’s Movement**\
 `Viktor Orban, the Hungarian prime minister, and his right-wing playbook were embraced by parts of the American right. Now some are worried by his defeat.`\
 https://www.nytimes.com/2026/04/13/us/politics/orban-trump-maga.html
