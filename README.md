@@ -1,3 +1,7 @@
+**House Republicans Step Up Scrutiny of ActBlue Over Foreign Donations**\
+`Three Republican-led committees, responding to a New York Times report this month, accused the Democratic fund-raising organization of withholding documents from a subpoena request.`\
+https://www.nytimes.com/2026/04/14/us/politics/actblue-republicans-foreign-donations.html
+
 **Benin’s Finance Minister Wins Presidential Election in Landslide**\
 `Romuald Wadagni received 94 percent of the vote, according to provisional results. He faces the challenge of a growing jihadist insurgency in the region.`\
 https://www.nytimes.com/2026/04/14/world/africa/benin-election-president-romuald-wadagni.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/14/style/revelations-of-divine-love-caroline-gol
 **State of U.S. Blockade Is Unclear as Some Ships Transit Strait of Hormuz**\
 `Ship-tracking data showed that several vessels, including some that had been docked at Iranian ports, had moved through the strait as the U.S. military began its blockade.`\
 https://www.nytimes.com/2026/04/14/world/middleeast/us-blockade-strait-hormuz-iran-ships-traffic.html
-
-**What’s Driving the Wartime Stock Rebound**\
-`The S&P 500 has recouped all its losses since the Middle East war started on Feb. 28, as a bullish “vibe shift” takes hold among some investors.`\
-https://www.nytimes.com/2026/04/14/business/dealbook/stocks-us-iran-war.html
 
