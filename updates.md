@@ -1,3 +1,7 @@
+**Map: 5.7-Magnitude Earthquake Shakes Nevada**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/04/13/world/13wea-quake-tracker-nevada-nyt6k6vb.html
+
 **Man Who Attacked OpenAI C.E.O.’s Home Had List of Other A.I. Executives**\
 `The authorities said a 20-year-old Texas man charged with throwing a homemade bomb at the gate of Sam Altman’s home had written at length about the threat of A.I.`\
 https://www.nytimes.com/2026/04/13/technology/man-who-attacked-openai-ceos-home-had-list-of-other-ai-executives.html
