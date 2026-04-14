@@ -1,3 +1,11 @@
+**N.F.L. Reporter Resigns From The Athletic Amid an Investigation**\
+`The publication, which is owned by The New York Times, was investigating the conduct of Dianna Russini after photographs showed her with the head coach of the New England Patriots.`\
+https://www.nytimes.com/2026/04/14/business/media/dianna-russini-athletic-resigns.html
+
+**Our Favorite Indoor Gardens**\
+`Homes that have successfully brought the outside in.`\
+https://www.nytimes.com/2026/04/14/t-magazine/best-indoor-garden-design.html
+
 **In Setback for G.O.P., Trump Appointee Will Not Run for Swing House Seat**\
 `Anthony D’Esposito, a Republican, decided not to seek his former seat, which will hurt his party’s chances of unseating Representative Laura Gillen on Long Island.`\
 https://www.nytimes.com/2026/04/14/nyregion/desposito-gillen-driscoll-election.html
