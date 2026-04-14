@@ -1,3 +1,15 @@
+**Listen to the trailer for ‘The Good Whale’**\
+`Our new show drops Nov. 14.`\
+https://www.nytimes.com/2026/04/14/podcasts/listen-to-the-trailer-for-the-good-whale.html
+
+**Central U.S. Braces for Yet Another Wave of Severe Storms**\
+`More than 125 million people face some risk of severe weather on Tuesday, forecasters warned, amid a multiday outbreak of storms.`\
+https://www.nytimes.com/2026/04/14/weather/tornado-storm-forecast-midwest-oklahoma-updates.html
+
+**Russian Oil Revenues Nearly Doubled in March**\
+`The surge in revenue provided a critical lifeline for Moscow, which has struggled to fund the war in Ukraine amid record-high deficits.`\
+https://www.nytimes.com/2026/04/14/world/europe/russian-oil-revenues-doubled.html
+
 **Tears and Testimony as Camp Mystic Reckons With Its Flood Response**\
 `Testimony at a hearing this week has focused on what camp leaders knew and did as floodwaters rose in July, killing at least 116 people.`\
 https://www.nytimes.com/2026/04/14/us/camp-mystic-hearing-texas-reopening-deadly-flooding.html
