@@ -1,3 +1,19 @@
+**¿El tema del momento en la manosfera? El servicio militar de Barron Trump**\
+`Casi tan pronto como comenzaron los bombardeos a Irán a finales de febrero, empezaron a circular memes e imágenes generadas por IA que insinuaban que el hijo de Donald Trump debería ir a la guerra.`\
+https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/barron-trump-servicio-militar.html
+
+**Lo que las alergias estacionales le hacen a tu cuerpo**\
+`Un desglose de por qué tu sistema inmunitario trata al polen como a un parásito, y qué ocurre a continuación.`\
+https://www.nytimes.com/es/2026/04/14/espanol/alergias-estacionales-efectos.html
+
+**La salud mental de Trump entra a debate por sus comentarios sobre Irán y el papa**\
+`El comportamiento imprevisible y los comentarios extremos del presidente de EE. UU. en los últimos días han acelerado la discusión sobre si solo es errático o si tiene temas de salud más serios.`\
+https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/trump-salud-mental-enmienda-25-constitucion.html
+
+**Is It Too Much to Ask to Care About Sudan?**\
+`I have seen what can happen when Americans care about a wrong in the world.`\
+https://www.nytimes.com/2026/04/14/opinion/international-world/sudan-war-anniversary-refugees.html
+
 **China Imposes New Rules to Block Foreign Companies From ‘Decoupling’**\
 `Multinationals in China are concerned that the regulations could allow authorities to penalize companies and executives for shifting supply chains away from the country.`\
 https://www.nytimes.com/2026/04/14/business/china-foreign-companies-supply-chain.html

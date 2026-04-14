@@ -1,3 +1,19 @@
+**¿El tema del momento en la manosfera? El servicio militar de Barron Trump**\
+`Casi tan pronto como comenzaron los bombardeos a Irán a finales de febrero, empezaron a circular memes e imágenes generadas por IA que insinuaban que el hijo de Donald Trump debería ir a la guerra.`\
+https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/barron-trump-servicio-militar.html
+
+**Lo que las alergias estacionales le hacen a tu cuerpo**\
+`Un desglose de por qué tu sistema inmunitario trata al polen como a un parásito, y qué ocurre a continuación.`\
+https://www.nytimes.com/es/2026/04/14/espanol/alergias-estacionales-efectos.html
+
+**La salud mental de Trump entra a debate por sus comentarios sobre Irán y el papa**\
+`El comportamiento imprevisible y los comentarios extremos del presidente de EE. UU. en los últimos días han acelerado la discusión sobre si solo es errático o si tiene temas de salud más serios.`\
+https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/trump-salud-mental-enmienda-25-constitucion.html
+
+**Is It Too Much to Ask to Care About Sudan?**\
+`I have seen what can happen when Americans care about a wrong in the world.`\
+https://www.nytimes.com/2026/04/14/opinion/international-world/sudan-war-anniversary-refugees.html
+
 **China Imposes New Rules to Block Foreign Companies From ‘Decoupling’**\
 `Multinationals in China are concerned that the regulations could allow authorities to penalize companies and executives for shifting supply chains away from the country.`\
 https://www.nytimes.com/2026/04/14/business/china-foreign-companies-supply-chain.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/13/arts/music/rock-and-roll-hall-of-fame-oasis-p
 **Michigan Man Is Released in Wife’s Disappearance in the Bahamas**\
 `Brian Hooker had been in police custody since April 8 after he said his wife fell off their boat and was swept away by strong currents.`\
 https://www.nytimes.com/2026/04/13/us/brian-hooker-bahamas-wife-boat.html
-
-**MAGA Absorbs the Loss of Orban, a Kindred Spirit to Trump’s Movement**\
-`Viktor Orban, the Hungarian prime minister, and his right-wing playbook were embraced by parts of the American right. Now some are worried by his defeat.`\
-https://www.nytimes.com/2026/04/13/us/politics/orban-trump-maga.html
-
-**Sign Up for the Book Review’s 2026 Challenge**\
-`(It’s about poetry. And you’ll love it.)`\
-https://www.nytimes.com/interactive/2026/04/13/books/poetry-week-newsletter-signup.html
-
-**Vance Says Pope Leo Should Stay Out of U.S. Affairs**\
-`The vice president, a Catholic, defended President Trump, who had accused the pope of being too liberal and “weak on crime.” The pontiff has said that he has “no fear of the Trump administration.”`\
-https://www.nytimes.com/2026/04/13/us/politics/jd-vance-pope-leo-trump.html
-
-**Youths Who Sued Trump Over Orders to ‘Unleash’ Energy Try to Revive Case**\
-`Appealing the dismissal of their suit, they argued that executive orders to promote fossil fuels endangered their futures and violated their constitutional rights.`\
-https://www.nytimes.com/2026/04/13/climate/trump-climate-youth-lawsuit.html
 
