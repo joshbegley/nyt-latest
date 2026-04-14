@@ -1,3 +1,35 @@
+**Su devoción por las canciones de amor lo llevó a la cárcel, pero no lo silenció**\
+`La prisión no pudo conseguir que Nguyen Van Loc, perseguido por interpretar la vieja música romántica de Hanói durante la guerra de Vietnam, dejara de cantar.`\
+https://www.nytimes.com/es/2026/04/14/espanol/mundo/nguyen-van-loc-cantante-vietnam.html
+
+**‘Euphoria’ Returns**\
+`Are you a fan? Did you watch the season 3 premiere?`\
+https://www.nytimes.com/2026/04/14/learning/euphoria-returns.html
+
+**80s Tomorrow, 50s Next Week? New York Rides a Weather Roller Coaster.**\
+`Although Monday wasn’t as springlike as expected, people still were drawn to the beach. By midweek, the city is likely to see summer temperatures.`\
+https://www.nytimes.com/2026/04/14/nyregion/weather-nyc-hot-cold.html
+
+**Here’s What to Know About Weinstein’s Third Rape Trial in New York**\
+`Harvey Weinstein is scheduled to go on trial for a third time in six years on the same charge. An appeals court overturned his first conviction, and the second trial ended in a hung jury.`\
+https://www.nytimes.com/2026/04/14/nyregion/harvey-weinstein-what-to-know-trial.html
+
+**Trump and New York Are in a Tug of War Over Medicaid Coverage**\
+`With tough new regulations looming in the president’s domestic policy bill, officials are coming up with plans to keep New Yorkers insured.`\
+https://www.nytimes.com/2026/04/14/nyregion/nyc-medicaid-cuts.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/14/crosswords/spelling-bee-forum.html
+
+**‘It’s on the App’: A Police Chief’s $4.5 Million Gambling Secret**\
+`New Haven’s police chief, Karl Jacobson, resigned abruptly after his deputies saw red flags, including missing money. He has pleaded not guilty to embezzling city money to gamble on sports.`\
+https://www.nytimes.com/2026/04/14/nyregion/police-chief-sports-gambling-new-haven.html
+
+**Is the Jewish Defense League Making a Comeback?**\
+`The Jewish Defense League had long been considered inactive. But an arrest in a plot to kill a Palestinian activist shed light on an apparent resurgence of far-right Zionism.`\
+https://www.nytimes.com/2026/04/14/nyregion/jewish-defense-league-murder-plot.html
+
 **Geneva Watch Week Seeks to Brighten Watchmaking’s Future**\
 `At Watches and Wonders, dozens of brands will be introducing new collections.`\
 https://www.nytimes.com/2026/04/14/fashion/geneva-watches-wonders.html
@@ -45,36 +77,4 @@ https://www.nytimes.com/2026/04/14/business/media/netflix-sarandos-cinema-owners
 **With Algeria Visit, Pope Leo Returns to His Augustinian Roots**\
 `Some theologians say the pontiff’s understanding of Augustine’s teachings helped inform his response to President Trump’s negative comments about him.`\
 https://www.nytimes.com/2026/04/14/world/africa/pope-leo-algeria-africa-visit.html
-
-**Corrections: April 14, 2026**\
-`Corrections that appeared in print on Tuesday, April 14, 2026.`\
-https://www.nytimes.com/2026/04/14/pageoneplus/corrections-april-14-2026.html
-
-**Quote of the Day: Viktor Orban, Populist, Lost His Popularity**\
-`Quotation of the Day for Tuesday, April 14, 2026.`\
-https://www.nytimes.com/2026/04/13/pageoneplus/quote-of-the-day-viktor-orban-populist-lost-his-popularity.html
-
-**Texas Governor Threatens to Cut Funding for Houston Police Over ICE**\
-`The office of Gov. Greg Abbott wants the city to stop enforcing a new ordinance governing how its officers engage with ICE.`\
-https://www.nytimes.com/2026/04/13/us/abbott-threatens-houston-police-funding-ice.html
-
-**Storms Leave a Trail of Warnings Across the Midwest**\
-`A tornado hit a city in Kansas, and forecasters warned of severe weather from Texas to New England as storms move through this week.`\
-https://www.nytimes.com/2026/04/13/weather/kansas-wisconsin-michigan-tornado-storm-forecast.html
-
-**Lab Work**\
-`High-fives all around for Mark Diehl’s puzzle.`\
-https://www.nytimes.com/2026/04/13/crosswords/daily-puzzle-2026-04-14.html
-
-**Mapa: un terremoto de magnitud 5,7 sacude Nevada**\
-`Mira la localización del epicentro del sismo y el área de movimiento.`\
-https://www.nytimes.com/es/interactive/2026/04/13/espanol/terremoto-nevada.html
-
-**Map: 5.7-Magnitude Earthquake Shakes Nevada**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/04/13/us/quake-tracker-nevada.html
-
-**Man Held in Attack on OpenAI Chief’s Home Had List of A.I. Leaders, Officials Say**\
-`The authorities said a 20-year-old Texas man charged with throwing a homemade bomb at the gate of Sam Altman’s home had written at length about the threat of A.I.`\
-https://www.nytimes.com/2026/04/13/technology/man-who-attacked-openai-ceos-home-had-list-of-other-ai-executives.html
 
