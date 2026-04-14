@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/04/13/us/politics/jd-vance-pope-leo-trump.html
 `Appealing the dismissal of their suit, they argued that executive orders to promote fossil fuels endangered their futures and violated their constitutional rights.`\
 https://www.nytimes.com/2026/04/13/climate/trump-climate-youth-lawsuit.html
 
-**About 100 People Detained at N.Y.C. Protest Over Arms Sales to Israel**\
+**About 90 People Detained at N.Y.C. Protest Over Arms Sales to Israel**\
 `The protesters sat in the middle of Third Avenue in Midtown Manhattan and blocked traffic for about an hour.`\
 https://www.nytimes.com/2026/04/13/nyregion/nyc-protest-arrests-israel-arms.html
 
