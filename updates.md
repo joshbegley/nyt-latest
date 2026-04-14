@@ -1,3 +1,7 @@
+**Why Is Everyone Spooked by Claude Mythos Preview?**\
+`This week on “Hard Fork” from The New York Times, the hosts Casey Newton and Kevin Roose discuss the new A.I. model from Anthropic, Claude Mythos Preview.`\
+https://www.nytimes.com/video/podcasts/100000010840693/why-is-everyone-spooked-by-claude-mythos-preview.html
+
 **Amazon Buys Globalstar for $10.8 Billion to Build Its Efforts in Space**\
 `The e-commerce giant is buying Globalstar, a satellite communications company, as it aims to expand its own satellite internet service to compete with Elon Musk’s Starlink.`\
 https://www.nytimes.com/2026/04/14/technology/amazon-buys-globalstar-space-internet.html

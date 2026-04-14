@@ -1,3 +1,7 @@
+**Why Is Everyone Spooked by Claude Mythos Preview?**\
+`This week on “Hard Fork” from The New York Times, the hosts Casey Newton and Kevin Roose discuss the new A.I. model from Anthropic, Claude Mythos Preview.`\
+https://www.nytimes.com/video/podcasts/100000010840693/why-is-everyone-spooked-by-claude-mythos-preview.html
+
 **Amazon Buys Globalstar for $10.8 Billion to Build Its Efforts in Space**\
 `The e-commerce giant is buying Globalstar, a satellite communications company, as it aims to expand its own satellite internet service to compete with Elon Musk’s Starlink.`\
 https://www.nytimes.com/2026/04/14/technology/amazon-buys-globalstar-space-internet.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/guerra-iran-acuerdo
 **Adriano Goldschmied, ‘Godfather’ of Modern Denim, Dies at 82**\
 `An energetic entrepreneur, he developed more than 50 brands of jeans, including Gap 1969 and other cult classics.`\
 https://www.nytimes.com/2026/04/14/fashion/adriano-goldschmied-dead.html
-
-**House Republicans Step Up Scrutiny of ActBlue Over Foreign Donations**\
-`Three Republican-led committees, responding to a New York Times report this month, accused the Democratic fund-raising organization of withholding documents from a subpoena request.`\
-https://www.nytimes.com/2026/04/14/us/politics/actblue-republicans-foreign-donations.html
 
