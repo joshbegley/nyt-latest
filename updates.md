@@ -1,3 +1,11 @@
+**Virginia Governor Ends Tax Breaks for Confederate Groups**\
+`The new law signed by Gov. Abigail Spanberger is the culmination of a long, Democrat-led push to distance Virginia from its Confederate past.`\
+https://www.nytimes.com/2026/04/14/us/virginia-tax-breaks-confederate.html
+
+**Shooting at High School in Turkey Wounds 16 People**\
+`A former student opened fire at a vocational high school in southeastern Turkey, wounding at least 16 people, officials said. The attacker killed himself after being cornered by the police.`\
+https://www.nytimes.com/video/world/middleeast/100000010839972/turkey-high-school-shooting-former-student.html
+
 **Have Mental Health Concerns Influenced Your Choice to Have Children?**\
 `If you are on the fence, or have already made a decision, we want to hear about it.`\
 https://www.nytimes.com/2026/04/14/well/mind/mental-health-children-fertility.html
