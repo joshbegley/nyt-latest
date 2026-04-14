@@ -1,6 +1,14 @@
+**51 Percent of Americans Think the War in Iran Has Not Been Worthwhile.**\
+`A survey from Ipsos and Reuters, released on Tuesday, found few Americans — 24 percent — think the war in Iran has been worth the costs and benefits.`\
+https://www.nytimes.com/2026/04/14/us/politics/iran-military-action-americans-poll.html
+
+**More U.S.-Iran Peace Talks Could Happen Soon, Officials Say**\
+`Pakistani officials told The New York Times that the country was pushing to organize a second round of peace talks between the United States and Iran this week. President Trump told The New York Post that it could happen over the next two days.`\
+https://www.nytimes.com/video/world/middleeast/100000010839914/us-iran-peace-talks-pakistan.html
+
 **Designer Fashion Hits the 2026 WNBA Draft**\
 `Fashion brands have taken note of the WNBA draft, described by Lauren Betts, the No. 4 draft pick, as the Met Gala of women’s basketball. Vanessa Friedman, our chief fashion critic, was there.`\
-https://www.nytimes.com/video//100000010832658/wnba-draft-fashion-basketball.html
+https://www.nytimes.com/video/style/100000010832658/wnba-draft-fashion-basketball.html
 
 **A New Accuser Says Eric Swalwell Sexually Assaulted Her**\
 `The woman said Mr. Swalwell, who resigned from Congress on Tuesday afternoon, raped her in a West Hollywood hotel room in 2018. She said she believed she was drugged.`\
@@ -69,12 +77,4 @@ https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/papa-politica-trump
 **Marcel Brings Luxurious Continental Dining to Sotheby’s**\
 `The Cote and Coqodaq team plan for a three restaurants on three levels in Midtown, and Ferdinando’s Focacceria gains a second life from the Cafe Spaghetti owner.`\
 https://www.nytimes.com/2026/04/14/dining/nyc-restaurant-news.html
-
-**Para Trump, León es un oponente papal diferente**\
-`Como el primer papa de origen estadounidense, el liderazgo de León XIV cuenta con el apoyo de amplios sectores de la Iglesia en EE. UU.`\
-https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/trump-papa-leon.html
-
-**Trump, Jesus and the Pope**\
-`Readers respond to front-page articles about President Trump’s erratic behavior.`\
-https://www.nytimes.com/2026/04/14/opinion/trump-jesus-pope.html
 
