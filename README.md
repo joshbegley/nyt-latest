@@ -1,3 +1,7 @@
+**Xi Offers Veiled Critique of U.S. in Rare Comments on War in Iran**\
+`China’s leader, Xi Jinping, said that the world cannot risk reverting “to the law of the jungle.” Beijing has taken a more active role diplomatically as the crisis in the Strait of Hormuz persists.`\
+https://www.nytimes.com/2026/04/14/world/middleeast/xi-iran-war-china.html
+
 ****\
 ``\
 https://www.nytimes.com/video/embedded/world/middleeast/100000010839999/14vid-lebanon-blog-33150.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/14/us/los-angeles-schools-strike-deal.html
 **‘I Don’t Know If We Can Come Back From This’: The View From Inside Trump’s D.H.S.**\
 `Dozens of agents and officials share their stories about working in the Department of Homeland Security during the harsh crackdown on illegal immigration.`\
 https://www.nytimes.com/interactive/2026/04/14/magazine/trump-dhs-ice-officers-immigration-deportations.html
-
-**Oil Prices Slip and Stocks Gain as Investors Eye Possible Path to Peace**\
-`Investors saw a possible path to peace, with the United States and Iran trading proposals for Iran to suspend nuclear activity.`\
-https://www.nytimes.com/2026/04/14/business/oil-gas-stocks-prices.html
 
