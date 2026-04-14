@@ -1,3 +1,7 @@
+**Map: 5.7-Magnitude Earthquake Shakes Nevada**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/04/13/world/13wea-quake-tracker-nevada-nyt6k6vb.html
+
 **Man Who Attacked OpenAI C.E.O.’s Home Had List of Other A.I. Executives**\
 `The authorities said a 20-year-old Texas man charged with throwing a homemade bomb at the gate of Sam Altman’s home had written at length about the threat of A.I.`\
 https://www.nytimes.com/2026/04/13/technology/man-who-attacked-openai-ceos-home-had-list-of-other-ai-executives.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/13/world/asia/concert-venue-shortage-south-korea
 **Lena Dunham Is Still Trying to Figure Out Why People Hated Her So Much**\
 `Lena Dunham sits down with The Interview co-host, David Marchese, to discuss her new memoir “Famesick.” Editors’ Note: This conversation omitted the outcome of rape allegations against the “Girls” writer Murray Miller. The Los Angeles District Attorney’s Office did not press charges against Mr. Miller, who denied the accusation.`\
 https://www.nytimes.com/video/podcasts/100000010838823/lena-dunham-is-still-trying-to-figure-out-why-people-hated-her-so-much.html
-
-**What the Naval Blockade of Iran Might Look Like**\
-`The U.S. military has provided few details on how it might carry out President Trump’s orders as he seeks to pressure Tehran on a peace deal. But history and established practices offer some clues.`\
-https://www.nytimes.com/2026/04/13/us/politics/strait-of-hormuz-blockade-iran-trump.html
 
