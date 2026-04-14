@@ -1,3 +1,15 @@
+**3 Years After a Landmark Law, Some Pregnant Workers Still Don’t Get Basic Accommodations**\
+`Companies have denied requests from women asking to sit during work or take extra breaks, leading some of them to develop health complications or take unpaid leave.`\
+https://www.nytimes.com/2026/04/14/well/live/pregnant-workers-amazon-speedway.html
+
+**Pittsburgh Post-Gazette Saved From Closure by Nonprofit**\
+`The Venetoulis Institute of Local Journalism, which operates The Baltimore Banner, has bought The Post-Gazette. The newspaper was set to shut down next month.`\
+https://www.nytimes.com/2026/04/14/business/media/pittsburgh-post-gazette-saved-from-closure-by-nonprofit.html
+
+**A Dinner to Keep the Vacation Vibes Going**\
+`A quick escovitch, a timeless sheet-pan chicken and a surprising tofu flex help to keep that spring break glow.`\
+https://www.nytimes.com/2026/04/14/dining/a-dinner-to-keep-the-vacation-vibes-going.html
+
 **Italy Suspends Defense Pact With Israel, Further Straining Ties**\
 `The move by Italy, once considered a strong ally of Israel, reflected growing anger over Israeli aggression in the Middle East. President Trump criticized Italy’s stance on the war.`\
 https://www.nytimes.com/2026/04/14/world/middleeast/italy-israel-defense-pact.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/es/2026/04/14/espanol/mundo/trump-modelo-venezuela.html
 ****\
 ``\
 https://www.nytimes.com/video/embedded/world/middleeast/100000010839919/14vid-lebanon-tyre-strike-ru-97512.html
-
-**The Workers Letting A.I. Do Their Jobs**\
-`In an era of agents powered by artificial intelligence, many programmers are barely programming.`\
-https://www.nytimes.com/2026/04/14/podcasts/the-daily/ai-coders.html
-
-**Connections Companion No. 1,039**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, April 15, 2026.`\
-https://www.nytimes.com/2026/04/14/crosswords/connections-companion-1039.html
-
-**Strands Sidekick No. 773**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, April 15, 2026.`\
-https://www.nytimes.com/2026/04/14/crosswords/strands-sidekick-773.html
 
