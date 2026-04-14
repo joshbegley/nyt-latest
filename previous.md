@@ -1,3 +1,7 @@
+**Trump publicó una foto suya como Jesús, la borró y ahora busca justificarse**\
+`La imagen mostraba al presidente Trump bañado en luz divina y vestido con túnicas religiosas. Su interpretación fue que la imagen lo representaba como un médico, no como Jesucristo.`\
+https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/trump-borra-imagen-jesus.html
+
 **Netflix Leader Makes Rare Overture to Cinema Owners**\
 `Ted Sarandos attended a major movie theater conference for the first time and met with domestic and international owners, people familiar with the meetings said.`\
 https://www.nytimes.com/2026/04/14/business/media/netflix-sarandos-cinema-owners-cinemacon.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/13/climate/trump-climate-youth-lawsuit.html
 **About 90 People Detained at N.Y.C. Protest Over Arms Sales to Israel**\
 `The protesters sat in the middle of Third Avenue in Midtown Manhattan and blocked traffic for about an hour.`\
 https://www.nytimes.com/2026/04/13/nyregion/nyc-protest-arrests-israel-arms.html
-
-**The New Aesthetic of ‘Euphoria’**\
-`“Euphoria,” the HBO Max show depicting Gen Z, has released its final season. Three of our Style reporters — Gina Cherelus, Jacob Gallagher and Callie Holtermann — discuss the show’s new western aesthetic.`\
-https://www.nytimes.com/video/style/100000010815337/euphoria-aesthetics-styles-review-pilot.html
 

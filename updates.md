@@ -1,3 +1,7 @@
+**Trump publicó una foto suya como Jesús, la borró y ahora busca justificarse**\
+`La imagen mostraba al presidente Trump bañado en luz divina y vestido con túnicas religiosas. Su interpretación fue que la imagen lo representaba como un médico, no como Jesucristo.`\
+https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/trump-borra-imagen-jesus.html
+
 **Netflix Leader Makes Rare Overture to Cinema Owners**\
 `Ted Sarandos attended a major movie theater conference for the first time and met with domestic and international owners, people familiar with the meetings said.`\
 https://www.nytimes.com/2026/04/14/business/media/netflix-sarandos-cinema-owners-cinemacon.html
