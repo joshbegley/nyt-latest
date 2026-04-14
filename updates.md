@@ -1,3 +1,15 @@
+**Trump’s Blasphemy Is a Warning**\
+`Presidents can fight with popes. God is another matter.`\
+https://www.nytimes.com/2026/04/14/opinion/trump-pope.html
+
+**Justice Dept. Moves to Vacate Jan. 6 Convictions for Far-Right Extremists**\
+`Defending the convictions would likely have required administration officials to assert that far-right groups were acting on behalf of President Trump on Jan. 6, 2021.`\
+https://www.nytimes.com/2026/04/14/us/politics/justice-dept-vacate-jan-6-convictions.html
+
+**Carney Suspends Gas Tax in Canada as War Drives Up Fuel Costs**\
+`The prime minister said that his government was also investing in ways to boost oil and gas production.`\
+https://www.nytimes.com/2026/04/14/world/middleeast/carney-suspends-fuel-tax.html
+
 **Israel and Lebanon Talk, but Fighting Continues**\
 `Also, a Ukrainian city is bouncing back with Denmark’s help. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/04/14/briefing/israel-lebanon-talks-bagels-private-equity.html

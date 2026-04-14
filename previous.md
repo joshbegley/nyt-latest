@@ -1,3 +1,15 @@
+**Trump’s Blasphemy Is a Warning**\
+`Presidents can fight with popes. God is another matter.`\
+https://www.nytimes.com/2026/04/14/opinion/trump-pope.html
+
+**Justice Dept. Moves to Vacate Jan. 6 Convictions for Far-Right Extremists**\
+`Defending the convictions would likely have required administration officials to assert that far-right groups were acting on behalf of President Trump on Jan. 6, 2021.`\
+https://www.nytimes.com/2026/04/14/us/politics/justice-dept-vacate-jan-6-convictions.html
+
+**Carney Suspends Gas Tax in Canada as War Drives Up Fuel Costs**\
+`The prime minister said that his government was also investing in ways to boost oil and gas production.`\
+https://www.nytimes.com/2026/04/14/world/middleeast/carney-suspends-fuel-tax.html
+
 **Israel and Lebanon Talk, but Fighting Continues**\
 `Also, a Ukrainian city is bouncing back with Denmark’s help. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/04/14/briefing/israel-lebanon-talks-bagels-private-equity.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/14/t-magazine/best-indoor-garden-design.html
 **In Setback for G.O.P., Trump Appointee Will Not Run for Swing House Seat**\
 `Anthony D’Esposito, a Republican, decided not to seek his former seat, which will hurt his party’s chances of unseating Representative Laura Gillen on Long Island.`\
 https://www.nytimes.com/2026/04/14/nyregion/desposito-gillen-driscoll-election.html
-
-**Israel’s Spy Chief Addresses Criticism About the War With Iran**\
-`The Mossad head said Israel’s mission would not be complete until the Iranian regime was replaced, after criticism that the war has left Iran’s theocratic government in place.`\
-https://www.nytimes.com/2026/04/14/world/middleeast/israel-barnea-mossad-iran.html
-
-**With Gonzales and Swalwell Out, a Scramble for House Seats Begins**\
-`Aides to Greg Abbott and Gavin Newsom were weighing whether to call quick elections to replace two House members accused of sexual misconduct.`\
-https://www.nytimes.com/2026/04/14/us/swalwell-gonzales-resignations-texas-california-special-elections.html
-
-**The Podcaster Recho Omondi Has No Hang-Ups About Dining Alone**\
-`The designer and host of “The Cutting Room Floor” fashion podcast answers the Where to Eat questionnaire.`\
-https://www.nytimes.com/2026/04/14/dining/podcaster-recho-omondi.html
 
