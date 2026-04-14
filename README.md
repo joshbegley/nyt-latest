@@ -1,3 +1,7 @@
+**Virginia Governor Ends Tax Breaks for Confederate Groups**\
+`The new law signed by Gov. Abigail Spanberger is the culmination of a long, Democrat-led push to distance Virginia from its Confederate past.`\
+https://www.nytimes.com/2026/04/14/us/virginia-tax-breaks-confederate.html
+
 **Shooting at High School in Turkey Wounds 16 People**\
 `A former student opened fire at a vocational high school in southeastern Turkey, wounding at least 16 people, officials said. The attacker killed himself after being cornered by the police.`\
 https://www.nytimes.com/video/world/middleeast/100000010839972/turkey-high-school-shooting-former-student.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/14/world/europe/orban-brussels-hungary.html
 **Olivia Troye, Ex-Pence Aide, Runs for the House as a Democrat**\
 `After spending most of her Washington career as a Republican, she joins a crowded field of Democrats running in a Virginia district that doesn’t exist yet.`\
 https://www.nytimes.com/2026/04/14/us/politics/olivia-troye-virginia-congress.html
-
-**The Pope and the President**\
-`The two most powerful Americans in the world are clashing.`\
-https://www.nytimes.com/2026/04/14/briefing/the-pope-and-the-president.html
 
