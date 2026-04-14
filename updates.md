@@ -1,3 +1,15 @@
+**Mapa: un terremoto de magnitud 5,7 sacude Nevada**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/es/interactive/2026/04/13/espanol/terremoto-nevada.html
+
+**Map: 5.7-Magnitude Earthquake Shakes Nevada**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/04/13/us/quake-tracker-nevada.html
+
+**Man Held in Attack on OpenAI Chief’s Home Had List of A.I. Leaders, Officials Say**\
+`The authorities said a 20-year-old Texas man charged with throwing a homemade bomb at the gate of Sam Altman’s home had written at length about the threat of A.I.`\
+https://www.nytimes.com/2026/04/13/technology/man-who-attacked-openai-ceos-home-had-list-of-other-ai-executives.html
+
 **Map: 5.7-Magnitude Earthquake Shakes Nevada**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/04/13/world/13wea-quake-tracker-nevada-nyt6k6vb.html
