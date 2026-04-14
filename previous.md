@@ -1,3 +1,11 @@
+**Middle East War Will Slow Global Economic Growth, I.M.F. Warns**\
+`The conflict could also fuel another bout of inflation, according to the International Monetary Fund.`\
+https://www.nytimes.com/2026/04/14/business/iran-war-imf-economic-growth.html
+
+**A Caramel Jacket That’s ‘a Little Bit Cowboy’**\
+`A worn, leathery jacket was the centerpiece of a thoughtfully accessorized ensemble.`\
+https://www.nytimes.com/2026/04/14/style/street-style-look-caramel-leather-jacket.html
+
 **How Do You Make a Medieval Film on a Shoestring Budget?**\
 `Caroline Golum used a crowdfunding site and a credit card to raise funds for her movie about a 14th-century mystic. Then she started filming in Queens.`\
 https://www.nytimes.com/2026/04/14/style/revelations-of-divine-love-caroline-golum-movie.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/14/business/oil-gas-stocks-prices.html
 **Here’s How to Defeat Trumpism**\
 `The free world should take an honest look at how Hungary’s opposition party defeated a far-right giant.`\
 https://www.nytimes.com/2026/04/14/opinion/magyar-orban-hungary-trump-defeat.html
-
-**10 minutos de yoga en silla para principiantes**\
-`Si tienes movilidad limitada o problemas de equilibrio, estas posturas modificadas pueden hacer que la práctica sea más accesible.`\
-https://www.nytimes.com/es/2026/04/14/espanol/yoga-silla-principiantes-movimientos.html
-
-**Why Is No Kings So Old?**\
-`The lack of a thriving youth movement in opposition to Trump is a canary-in-the-coal-mine warning of the deterioration of American exceptionalism.`\
-https://www.nytimes.com/2026/04/14/opinion/trump-protest-ai-phones-social-media.html
 

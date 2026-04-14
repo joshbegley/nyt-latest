@@ -1,3 +1,11 @@
+**Middle East War Will Slow Global Economic Growth, I.M.F. Warns**\
+`The conflict could also fuel another bout of inflation, according to the International Monetary Fund.`\
+https://www.nytimes.com/2026/04/14/business/iran-war-imf-economic-growth.html
+
+**A Caramel Jacket That’s ‘a Little Bit Cowboy’**\
+`A worn, leathery jacket was the centerpiece of a thoughtfully accessorized ensemble.`\
+https://www.nytimes.com/2026/04/14/style/street-style-look-caramel-leather-jacket.html
+
 **Los Angeles Schools Strike Narrowly Averted in Last-Minute Deal**\
 `The strike would have shut down classes on Tuesday for hundreds of thousands of students in the nation’s second-largest school district.`\
 https://www.nytimes.com/2026/04/14/us/los-angeles-schools-strike-deal.html
