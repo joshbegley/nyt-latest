@@ -1,3 +1,23 @@
+**Hungary’s Populist Paradox**\
+`We look at what Viktor Orban’s defeat tells us about a model of government in which politics are more important than the economy.`\
+https://www.nytimes.com/2026/04/14/world/hungary-orban-populism-magyar-war-imf.html
+
+**Hard Fork Episode #189**\
+`Full episode of Hard Fork`\
+https://www.nytimes.com/video/podcasts/100000010838172/hard-fork-episode-189.html
+
+**Hampshire College Will Close Amid Student Enrollment Declines**\
+`Hundreds of small private colleges like Hampshire have closed in recent years as financial pressures and competition for students increase.`\
+https://www.nytimes.com/2026/04/14/us/hampshire-college-closing-amherst-massachusetts-enrollment.html
+
+**King Charles III and Queen Camilla Will Visit D.C., New York and Virginia**\
+`The planned four-day state visit comes at a fraught time in the U.S.-U.K. relationship, following President Trump’s frequent belittling of the British prime minister.`\
+https://www.nytimes.com/2026/04/14/world/europe/king-charles-queen-camilla-us-visit.html
+
+**How Trump Can Wrap Up the War**\
+`He can offer the regime a series of fundamental choices.`\
+https://www.nytimes.com/2026/04/14/opinion/trump-iran-war-regime.html
+
 **N.F.L. Reporter Resigns From The Athletic Amid an Investigation**\
 `The publication, which is owned by The New York Times, was investigating the conduct of Dianna Russini after photographs showed her with the head coach of the New England Patriots.`\
 https://www.nytimes.com/2026/04/14/business/media/dianna-russini-athletic-resigns.html

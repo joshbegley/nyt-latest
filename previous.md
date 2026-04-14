@@ -1,3 +1,23 @@
+**Hungary’s Populist Paradox**\
+`We look at what Viktor Orban’s defeat tells us about a model of government in which politics are more important than the economy.`\
+https://www.nytimes.com/2026/04/14/world/hungary-orban-populism-magyar-war-imf.html
+
+**Hard Fork Episode #189**\
+`Full episode of Hard Fork`\
+https://www.nytimes.com/video/podcasts/100000010838172/hard-fork-episode-189.html
+
+**Hampshire College Will Close Amid Student Enrollment Declines**\
+`Hundreds of small private colleges like Hampshire have closed in recent years as financial pressures and competition for students increase.`\
+https://www.nytimes.com/2026/04/14/us/hampshire-college-closing-amherst-massachusetts-enrollment.html
+
+**King Charles III and Queen Camilla Will Visit D.C., New York and Virginia**\
+`The planned four-day state visit comes at a fraught time in the U.S.-U.K. relationship, following President Trump’s frequent belittling of the British prime minister.`\
+https://www.nytimes.com/2026/04/14/world/europe/king-charles-queen-camilla-us-visit.html
+
+**How Trump Can Wrap Up the War**\
+`He can offer the regime a series of fundamental choices.`\
+https://www.nytimes.com/2026/04/14/opinion/trump-iran-war-regime.html
+
 **N.F.L. Reporter Resigns From The Athletic Amid an Investigation**\
 `The publication, which is owned by The New York Times, was investigating the conduct of Dianna Russini after photographs showed her with the head coach of the New England Patriots.`\
 https://www.nytimes.com/2026/04/14/business/media/dianna-russini-athletic-resigns.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/04/14/weather/tornado-storm-forecast-midwest-oklaho
 **Russian Oil Revenues Nearly Doubled in March**\
 `The surge in revenue provided a critical lifeline for Moscow, which has struggled to fund the war in Ukraine amid record-high deficits.`\
 https://www.nytimes.com/2026/04/14/world/europe/russian-oil-revenues-doubled.html
-
-**Tears and Testimony as Camp Mystic Reckons With Its Flood Response**\
-`Testimony at a hearing this week has focused on what camp leaders knew and did as floodwaters rose in July, killing at least 116 people.`\
-https://www.nytimes.com/2026/04/14/us/camp-mystic-hearing-texas-reopening-deadly-flooding.html
-
-**Ishmael Jaffree, Who Won Case Rejecting School Prayer, Dies at 80**\
-`An Alabama parent, he objected to prayer in his children’s classrooms. The Supreme Court ruled for him, a high-water mark in the push for the strict separation of church and state.`\
-https://www.nytimes.com/2026/04/14/us/ishmael-jaffree-dead.html
-
-**Sam Altman and Dario Amodei’s First Meeting**\
-`This week on “Hard Fork, the hosts Casey Newton and Kevin Roose talk with Ronan Farrow and Andrew Marantz about their recent New Yorker piece on Sam Altman, and the circumstances of his first meeting with Dario Amodei, the former OpenAI executive and current Anthropic C.E.O.`\
-https://www.nytimes.com/video/podcasts/100000010840757/sam-altman-and-dario-amodeis-first-meeting.html
-
-**Moon Rocks! 9 Lunar Songs for the Artemis Crew**\
-`Hear from David Bowie, Neko Case, Arthur Russell and more artists inspired by our poetic, mysterious satellite.`\
-https://www.nytimes.com/2026/04/14/arts/music/amplifier-newsletter-moon-songs.html
-
-**The Man Who Defeated Viktor Orban**\
-`For years, Peter Magyar was a loyal ally of Viktor Orban, the far-right Hungarian leader. Then he changed sides — and defeated his former boss in a landslide victory on Sunday. Does he represent real change?`\
-https://www.nytimes.com/2026/04/14/world/europe/viktor-orban-peter-magyar-election.html
 
