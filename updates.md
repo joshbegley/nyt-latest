@@ -1,3 +1,11 @@
+**Geneva Watch Week Seeks to Brighten Watchmaking’s Future**\
+`At Watches and Wonders, dozens of brands will be introducing new collections.`\
+https://www.nytimes.com/2026/04/14/fashion/geneva-watches-wonders.html
+
+**The TAG Heuer Monaco Evergraph Sparks a Revolution**\
+`The timepiece updates the square-cased watch design from the 1960s with an inventive chronograph movement.`\
+https://www.nytimes.com/2026/04/14/fashion/tag-heuer-monaco.html
+
 **Late Night Takes Sides in the President vs. the Pope**\
 `Jimmy Kimmel said President Trump’s social media post aimed at Pope Leo XIV “is what happens when you sell Bibles instead of reading them.”`\
 https://www.nytimes.com/2026/04/14/arts/television/late-night-trump-pope.html
