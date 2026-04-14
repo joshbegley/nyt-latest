@@ -1,3 +1,7 @@
+**Late Night Takes Sides in the President vs. the Pope**\
+`Jimmy Kimmel said President Trump’s social media post aimed at Pope Leo XIV “is what happens when you sell Bibles instead of reading them.”`\
+https://www.nytimes.com/2026/04/14/arts/television/late-night-trump-pope.html
+
 **Word of the Day: hierarchy**\
 `This word has appeared in 1,333 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/04/14/learning/word-of-the-day-hierarchy.html

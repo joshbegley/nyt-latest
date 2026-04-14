@@ -1,3 +1,7 @@
+**Late Night Takes Sides in the President vs. the Pope**\
+`Jimmy Kimmel said President Trump’s social media post aimed at Pope Leo XIV “is what happens when you sell Bibles instead of reading them.”`\
+https://www.nytimes.com/2026/04/14/arts/television/late-night-trump-pope.html
+
 **Word of the Day: hierarchy**\
 `This word has appeared in 1,333 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/04/14/learning/word-of-the-day-hierarchy.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/13/us/politics/us-iran-deal.html
 **U.S. Military Strikes Another Boat in Pacific, Killing 2**\
 `The attack was the 49th since the campaign against vessels in the Caribbean and the eastern Pacific started in early September.`\
 https://www.nytimes.com/2026/04/13/us/politics/military-strike-boat-eastern-pacific.html
-
-**Oasis, Phil Collins and Sade to Join Rock & Roll Hall of Fame**\
-`Billy Idol, Luther Vandross and Wu-Tang Clan will also be inducted, while New Edition, Mariah Carey and Melissa Etheridge failed to make the final cut.`\
-https://www.nytimes.com/2026/04/13/arts/music/rock-and-roll-hall-of-fame-oasis-phil-collins-sade.html
 
