@@ -1,3 +1,27 @@
+**Trump Officials Pledge Swift Completion of Controversial Gas Pipeline**\
+`The $1 billion project will run for about 23 miles under Raritan Bay in New Jersey and New York Harbor. Environmental groups oppose it.`\
+https://www.nytimes.com/2026/04/14/nyregion/gas-pipeline-underwater-nyc-new-jersey.html
+
+**Pentagon Says It Attacked Another Boat in the Pacific, Killing 4**\
+`It was the second strike in two days, in a campaign against those the United States accuses of drug smuggling.`\
+https://www.nytimes.com/2026/04/14/us/politics/pentagon-boat-strike-pacific.html
+
+**U.S. Blocks Iranian-Linked Ships From Sailing Through the Strait of Hormuz**\
+`U.S. Central Command said that six vessels had complied with directions to turn around and re-enter an Iranian port.`\
+https://www.nytimes.com/2026/04/14/business/strait-of-hormuz-blockade.html
+
+**Gallego Dismissed Rumors of a ‘Flirty’ Swalwell, Highlighting a Culture of Silence**\
+`The admission by Senator Ruben Gallego that he had heard, but disbelieved, rumors about Eric Swalwell and women showed the attitude on Capitol Hill toward men accused of behaving badly.`\
+https://www.nytimes.com/2026/04/14/us/politics/gallego-swalwell-congress-culture.html
+
+**Lebanon and Israel Hold Rare In-Person Talks**\
+`While the talks between Israel and Lebanon in Washington did not yield a cease-fire agreement, both sides agreed to “launch direct negotiations” after having “productive discussions,” according to a statement from the U.S. State Department.`\
+https://www.nytimes.com/video/world/middleeast/100000010841136/us-israel-lebanon-talks.html
+
+**Rare Direct Talks Between Israel and Lebanon Focus on Hezbollah**\
+`A meeting between Israeli and Lebanese officials in Washington came as the U.S. blockade of Iranian ports entered its second day.`\
+https://www.nytimes.com/2026/04/14/world/middleeast/israell-lebanon-talks.html
+
 **L.G.B.T.Q. Community Expresses Hesitancy About Hungary’s New Leader**\
 `After years of anti-L.G.B.T.Q. policies, members of the queer community in Hungary were cautiously hopeful that Peter Magyar’s win over Viktor Orban’s Fidesz party could bring about change.`\
 https://www.nytimes.com/video/world/europe/100000010839921/hungary-lgbtq-community-peter-magyar.html
