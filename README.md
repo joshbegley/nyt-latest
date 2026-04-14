@@ -1,3 +1,7 @@
+**Trump’s Friction With Pope Leo Draws Criticism From Catholics**\
+`Vice President JD Vance weighed in on the tension between President Trump and Pope Leo XIV as Catholics expressed dismay about Mr. Trump’s attacks.`\
+https://www.nytimes.com/video/us/politics/100000010839676/trump-pope-leo-attack-vance-catholics.html
+
 **Los Angeles Schools Strike Narrowly Averted In Last-Minute Deal**\
 `The strike would have shut down classes on Tuesday for hundreds of thousands of students in the nation’s second-largest school district.`\
 https://www.nytimes.com/2026/04/14/us/los-angeles-schools-strike-deal.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/14/arts/planet-money-npr-book.html
 **How Stephen Miller Is Adjusting Trump’s Immigration Agenda**\
 `After the chaos and death that ensued during the deportation raids in Minneapolis, Stephen Miller, the architect of President Trump’s mass deportation campaign, is changing course on immigration. Our White House correspondent Zolan Kanno-Youngs explains how the administration’s strategy is shifting.`\
 https://www.nytimes.com/video/us/politics/100000010832126/stephen-miller-trump-immigration-crackdown.html
-
-**At a House Republican’s New York Event, Flashes of an Iran Backlash**\
-`Representative Mike Lawler, who is seeking re-election in a swing district in the Hudson Valley, faced tough questions from constituents about his stance on the war in Iran.`\
-https://www.nytimes.com/2026/04/14/us/politics/at-a-house-republicans-new-york-event-flashes-of-an-iran-backlash.html
 
