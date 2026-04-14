@@ -1,3 +1,15 @@
+**‘Extremely Dangerous’ Super Typhoon Barrels Toward Northern Mariana Islands**\
+`The storm, named Sinlaku, was expected to make landfall on Tuesday evening in Tinian and Saipan, where tens of thousands of people were urged to shelter in place.`\
+https://www.nytimes.com/2026/04/14/world/asia/typhoon-sinlaku-guam-mariana.html
+
+**Alguien tiene que ser feliz. ¿Por qué no Lauren Sánchez Bezos?**\
+`Como la mitad de una pareja mega poderosa, Sánchez Bezos parece haber influido en los superricos para que dejen de disculparse y empiecen a disfrutar.`\
+https://www.nytimes.com/es/2026/04/14/espanol/negocios/lauren-sanchez-bezos.html
+
+**Pete Hegseth y su evangelio de destrucción**\
+`El secretario de Defensa cree que está comandando el ejército de Dios.`\
+https://www.nytimes.com/es/2026/04/14/espanol/opinion/pete-hegseth-guerra-iran-dios-cristianismo.html
+
 **Su devoción por las canciones de amor lo llevó a la cárcel, pero no lo silenció**\
 `La prisión no pudo conseguir que Nguyen Van Loc, perseguido por interpretar la vieja música romántica de Hanói durante la guerra de Vietnam, dejara de cantar.`\
 https://www.nytimes.com/es/2026/04/14/espanol/mundo/nguyen-van-loc-cantante-vietnam.html
