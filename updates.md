@@ -1,3 +1,19 @@
+**Texas A&M Picks an Insider for President After Months of Conflict**\
+`Debates over how to teach about gender, sexuality and other topics have shaken the school, and lead to the ouster of the previous president at the College Station campus last summer.`\
+https://www.nytimes.com/2026/04/14/us/texas-am-president.html
+
+**At a Difficult Time, a Minnesota Museum Offers Respite to Somalis**\
+`As one of the few institutions of its kind in the world, the Somali Museum of Minnesota has become a center of the immigrant community.`\
+https://www.nytimes.com/2026/04/14/arts/design/somali-museum-minnesota.html
+
+**A Benefactor Gets Personal at the Museum She Founded 25 Years Ago**\
+`Emily Rauh Pulitzer, a veteran curator and collector, leans heavily on sculpture and drawing in a show of some 85 works.`\
+https://www.nytimes.com/2026/04/14/arts/design/emily-pulitzer-st-louis.html
+
+**Adriano Goldschmied, ‘Godfather’ of Modern Denim, Dies at 82**\
+`An energetic entrepreneur, he developed more than 50 brands of jeans, including Gap 1969 and other cult classics.`\
+https://www.nytimes.com/2026/04/14/fashion/adriano-goldschmied-dead.html
+
 **EE. UU. está negociando un acuerdo con Irán que permitiría ganar tiempo, otra vez**\
 `Estados Unidos propuso una “suspensión” de 20 años de toda actividad nuclear, mientras el presidente Trump exige garantías de que Irán nunca podrá construir un arma nuclear.`\
 https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/guerra-iran-acuerdo.html
