@@ -1,3 +1,11 @@
+**¿El modelo Venezuela?**\
+`El presidente Trump califica la destitución de Nicolás Maduro como “el escenario perfecto”. Pero no todo va bien para Estados Unidos en Venezuela.`\
+https://www.nytimes.com/es/2026/04/14/espanol/mundo/trump-modelo-venezuela.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/world/middleeast/100000010839919/14vid-lebanon-tyre-strike-ru-97512.html
+
 **The Workers Letting A.I. Do Their Jobs**\
 `In an era of agents powered by artificial intelligence, many programmers are barely programming.`\
 https://www.nytimes.com/2026/04/14/podcasts/the-daily/ai-coders.html
