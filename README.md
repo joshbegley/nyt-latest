@@ -1,3 +1,7 @@
+**The Podcaster Recho Omondi Has No Hang-Ups About Dining Alone**\
+`The designer and host of “The Cutting Room Floor” fashion podcast answers the Where to Eat questionnaire.`\
+https://www.nytimes.com/2026/04/14/dining/podcaster-recho-omondi.html
+
 **Pirate’s Booty Corrects a Myth About West African Gold**\
 `Centuries-old European tales about Gold Coast traders adulterating precious metals hundreds of years ago are challenged by the famous Whydah Gally shipwreck.`\
 https://www.nytimes.com/2026/04/14/science/pirates-gold-africa.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/podcasts/100000010840628/can-sam-altman-be-trusted
 **En Canadá, los liberales liderados por Carney obtienen la mayoría legislativa**\
 `El primer ministro Mark Carney, limitado por dirigir un gobierno en minoría durante el último año, obtuvo la mayoría en la Cámara de los Comunes tras las elecciones extraordinarias celebradas el lunes.`\
 https://www.nytimes.com/es/2026/04/14/espanol/mundo/canada-elecciones-resultados.html
-
-**Vance dice que el papa León debe mantenerse al margen de los asuntos de EE. UU.**\
-`El vicepresidente estadounidense defendió al presidente Trump, quien había acusado al papa de ser demasiado liberal y “débil ante el crimen”. El pontífice ha dicho que no le teme al gobierno de Trump.`\
-https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/papa-politica-trump-vance.html
 
