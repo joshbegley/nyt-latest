@@ -1,3 +1,11 @@
+**China Imposes New Rules to Block Foreign Companies From ‘Decoupling’**\
+`Multinationals in China are concerned that the regulations could allow authorities to penalize companies and executives for shifting supply chains away from the country.`\
+https://www.nytimes.com/2026/04/14/business/china-foreign-companies-supply-chain.html
+
+**Storms Leave a Trail of Warnings Across the Midwest**\
+`A tornado hit a city in Kansas, and forecasters warned of severe weather from Texas to New England as storms move through this week.`\
+https://www.nytimes.com/2026/04/13/weather/kansas-wisconsin-michigan-tornado-storm-forecast.html
+
 **Trump publicó una foto suya como Jesús, la borró y ahora busca justificarse**\
 `La imagen mostraba al presidente Trump bañado en luz divina y vestido con túnicas religiosas. Su interpretación fue que la imagen lo representaba como un médico, no como Jesucristo.`\
 https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/trump-borra-imagen-jesus.html

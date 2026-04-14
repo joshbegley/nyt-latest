@@ -1,3 +1,7 @@
+**China Imposes New Rules to Block Foreign Companies From ‘Decoupling’**\
+`Multinationals in China are concerned that the regulations could allow authorities to penalize companies and executives for shifting supply chains away from the country.`\
+https://www.nytimes.com/2026/04/14/business/china-foreign-companies-supply-chain.html
+
 **Trump publicó una foto suya como Jesús, la borró y ahora busca justificarse**\
 `La imagen mostraba al presidente Trump bañado en luz divina y vestido con túnicas religiosas. Su interpretación fue que la imagen lo representaba como un médico, no como Jesucristo.`\
 https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/trump-borra-imagen-jesus.html
@@ -23,7 +27,7 @@ https://www.nytimes.com/2026/04/13/pageoneplus/quote-of-the-day-viktor-orban-pop
 https://www.nytimes.com/2026/04/13/us/abbott-threatens-houston-police-funding-ice.html
 
 **Storms Leave a Trail of Warnings Across the Midwest**\
-`Forecasters have warned that tens of millions of people from Texas to New England could see some form of severe weather this week as storms move through.`\
+`A tornado hit a city in Kansas, and forecasters warned of severe weather from Texas to New England as storms move through this week.`\
 https://www.nytimes.com/2026/04/13/weather/kansas-wisconsin-michigan-tornado-storm-forecast.html
 
 **Lab Work**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/13/us/politics/jd-vance-pope-leo-trump.html
 **Youths Who Sued Trump Over Orders to ‘Unleash’ Energy Try to Revive Case**\
 `Appealing the dismissal of their suit, they argued that executive orders to promote fossil fuels endangered their futures and violated their constitutional rights.`\
 https://www.nytimes.com/2026/04/13/climate/trump-climate-youth-lawsuit.html
-
-**About 90 People Detained at N.Y.C. Protest Over Arms Sales to Israel**\
-`The protesters sat in the middle of Third Avenue in Midtown Manhattan and blocked traffic for about an hour.`\
-https://www.nytimes.com/2026/04/13/nyregion/nyc-protest-arrests-israel-arms.html
 
