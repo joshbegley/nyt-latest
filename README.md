@@ -1,3 +1,7 @@
+**Word of the Day: hierarchy**\
+`This word has appeared in 1,333 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/04/14/learning/word-of-the-day-hierarchy.html
+
 **¿El tema del momento en la manosfera? El servicio militar de Barron Trump**\
 `Casi tan pronto como comenzaron los bombardeos a Irán a finales de febrero, empezaron a circular memes e imágenes generadas por IA que insinuaban que el hijo de Donald Trump debería ir a la guerra.`\
 https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/barron-trump-servicio-militar.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/13/us/politics/military-strike-boat-eastern-paci
 **Oasis, Phil Collins and Sade to Join Rock & Roll Hall of Fame**\
 `Billy Idol, Luther Vandross and Wu-Tang Clan will also be inducted, while New Edition, Mariah Carey and Melissa Etheridge failed to make the final cut.`\
 https://www.nytimes.com/2026/04/13/arts/music/rock-and-roll-hall-of-fame-oasis-phil-collins-sade.html
-
-**Michigan Man Is Released in Wife’s Disappearance in the Bahamas**\
-`Brian Hooker had been in police custody since April 8 after he said his wife fell off their boat and was swept away by strong currents.`\
-https://www.nytimes.com/2026/04/13/us/brian-hooker-bahamas-wife-boat.html
 
