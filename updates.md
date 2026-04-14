@@ -1,3 +1,11 @@
+**Vance Says Pope Leo Should Stay Out of U.S. Affairs**\
+`The vice president, a Catholic, defended President Trump, who had accused the pope of being too liberal and “weak on crime.” The pontiff responded that he had “no fear of the Trump administration.”`\
+https://www.nytimes.com/2026/04/13/us/politics/jd-vance-pope-leo-trump.html
+
+**About 90 People Detained at N.Y.C. Protest Over Arms Sales to Israel**\
+`The protesters sat in the middle of Third Avenue in Midtown Manhattan and blocked traffic for about an hour.`\
+https://www.nytimes.com/2026/04/13/nyregion/nyc-protest-arrests-israel-arms.html
+
 **Sign Up for the Book Review’s 2026 Challenge**\
 `(It’s about poetry. And you’ll love it.)`\
 https://www.nytimes.com/interactive/2026/04/13/books/poetry-week-newsletter-signup.html
