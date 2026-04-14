@@ -1,3 +1,7 @@
+**You’ve Heard of the Sky Couch. Meet the Skynest.**\
+`Air New Zealand will begin offering economy passengers four-hour naps in private pods on certain long-haul flights. Will other carriers follow its lead?`\
+https://www.nytimes.com/2026/04/14/travel/air-new-zealand-skynest-economy-sleep-pods.html
+
 **A New York Museum Honors Its Real-Life ‘Indiana Jones’ Dinosaur Hunters**\
 `In a new and ongoing exhibition, the American Museum of Natural History highlights the findings of Mark Norell and other fossil hunters responsible for its most important discoveries.`\
 https://www.nytimes.com/2026/04/14/arts/design/american-natural-history-museum-fossils.html

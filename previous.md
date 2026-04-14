@@ -1,3 +1,7 @@
+**You’ve Heard of the Sky Couch. Meet the Skynest.**\
+`Air New Zealand will begin offering economy passengers four-hour naps in private pods on certain long-haul flights. Will other carriers follow its lead?`\
+https://www.nytimes.com/2026/04/14/travel/air-new-zealand-skynest-economy-sleep-pods.html
+
 **A New York Museum Honors Its Real-Life ‘Indiana Jones’ Dinosaur Hunters**\
 `In a new and ongoing exhibition, the American Museum of Natural History highlights the findings of Mark Norell and other fossil hunters responsible for its most important discoveries.`\
 https://www.nytimes.com/2026/04/14/arts/design/american-natural-history-museum-fossils.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/14/us/politics/iran-military-action-americans-po
 **More U.S.-Iran Peace Talks Could Happen Soon, Officials Say**\
 `Pakistani officials told The New York Times that the country was pushing to organize a second round of peace talks between the United States and Iran this week. President Trump told The New York Post that it could happen over the next two days.`\
 https://www.nytimes.com/video/world/middleeast/100000010839914/us-iran-peace-talks-pakistan.html
-
-**Designer Fashion Hits the 2026 WNBA Draft**\
-`Fashion brands have taken note of the WNBA draft, described by Lauren Betts, the No. 4 draft pick, as the Met Gala of women’s basketball. Vanessa Friedman, our chief fashion critic, was there.`\
-https://www.nytimes.com/video/style/100000010832658/wnba-draft-fashion-basketball.html
 

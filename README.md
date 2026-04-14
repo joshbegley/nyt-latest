@@ -1,3 +1,7 @@
+**Trump Says 2nd Round of Iran Talks Could Take Place This Week**\
+`The president did not say who would represent the United States in a potential next round of direct talks, though he ruled out being personally involved.`\
+https://www.nytimes.com/2026/04/14/world/middleeast/us-iran-talks-trump.html
+
 **You’ve Heard of the Sky Couch. Meet the Skynest.**\
 `Air New Zealand will begin offering economy passengers four-hour naps in private pods on certain long-haul flights. Will other carriers follow its lead?`\
 https://www.nytimes.com/2026/04/14/travel/air-new-zealand-skynest-economy-sleep-pods.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/14/science/pirates-gold-africa.html
 **51 Percent of Americans Think the War in Iran Has Not Been Worthwhile.**\
 `A survey from Ipsos and Reuters, released on Tuesday, found few Americans — 24 percent — think the war in Iran has been worth the costs and benefits.`\
 https://www.nytimes.com/2026/04/14/us/politics/iran-military-action-americans-poll.html
-
-**More U.S.-Iran Peace Talks Could Happen Soon, Officials Say**\
-`Pakistani officials told The New York Times that the country was pushing to organize a second round of peace talks between the United States and Iran this week. President Trump told The New York Post that it could happen over the next two days.`\
-https://www.nytimes.com/video/world/middleeast/100000010839914/us-iran-peace-talks-pakistan.html
 
