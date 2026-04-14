@@ -1,3 +1,7 @@
+**How Do You Make a Medieval Film on a Shoestring Budget?**\
+`Caroline Golum used a crowdfunding site and a credit card to raise funds for her movie about a 14th-century mystic. Then she started filming in Queens.`\
+https://www.nytimes.com/2026/04/14/style/revelations-of-divine-love-caroline-golum-movie.html
+
 **State of U.S. Blockade Is Unclear as Some Ships Transit Strait of Hormuz**\
 `Ship-tracking data showed that several vessels, including some that had been docked at Iranian ports, had moved through the strait as the U.S. military began its blockade.`\
 https://www.nytimes.com/2026/04/14/world/middleeast/us-blockade-strait-hormuz-iran-ships-traffic.html
