@@ -1,3 +1,11 @@
+**EE. UU. está negociando un acuerdo con Irán que permitiría ganar tiempo, otra vez**\
+`Estados Unidos propuso una “suspensión” de 20 años de toda actividad nuclear, mientras el presidente Trump exige garantías de que Irán nunca podrá construir un arma nuclear.`\
+https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/guerra-iran-acuerdo.html
+
+**Adriano Goldschmied, ‘Godfather’ of Modern Denim, Dies at 82**\
+`An Italian entrepreneur, he developed more than 50 brands of jeans, including Gap 1969 and other cult classics.`\
+https://www.nytimes.com/2026/04/14/fashion/adriano-goldschmied-dead.html
+
 **House Republicans Step Up Scrutiny of ActBlue Over Foreign Donations**\
 `Three Republican-led committees, responding to a New York Times report this month, accused the Democratic fund-raising organization of withholding documents from a subpoena request.`\
 https://www.nytimes.com/2026/04/14/us/politics/actblue-republicans-foreign-donations.html

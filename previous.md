@@ -1,3 +1,11 @@
+**EE. UU. está negociando un acuerdo con Irán que permitiría ganar tiempo, otra vez**\
+`Estados Unidos propuso una “suspensión” de 20 años de toda actividad nuclear, mientras el presidente Trump exige garantías de que Irán nunca podrá construir un arma nuclear.`\
+https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/guerra-iran-acuerdo.html
+
+**Adriano Goldschmied, ‘Godfather’ of Modern Denim, Dies at 82**\
+`An Italian entrepreneur, he developed more than 50 brands of jeans, including Gap 1969 and other cult classics.`\
+https://www.nytimes.com/2026/04/14/fashion/adriano-goldschmied-dead.html
+
 **House Republicans Step Up Scrutiny of ActBlue Over Foreign Donations**\
 `Three Republican-led committees, responding to a New York Times report this month, accused the Democratic fund-raising organization of withholding documents from a subpoena request.`\
 https://www.nytimes.com/2026/04/14/us/politics/actblue-republicans-foreign-donations.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/14/business/iran-war-imf-economic-growth.html
 **A Caramel Jacket That’s ‘a Little Bit Cowboy’**\
 `A worn, leathery jacket was the centerpiece of a thoughtfully accessorized ensemble.`\
 https://www.nytimes.com/2026/04/14/style/street-style-look-caramel-leather-jacket.html
-
-**How Do You Make a Medieval Film on a Shoestring Budget?**\
-`Caroline Golum used a crowdfunding site and a credit card to raise funds for her movie about a 14th-century mystic. Then she started filming in Queens.`\
-https://www.nytimes.com/2026/04/14/style/revelations-of-divine-love-caroline-golum-movie.html
-
-**State of U.S. Blockade Is Unclear as Some Ships Transit Strait of Hormuz**\
-`Ship-tracking data showed that several vessels, including some that had been docked at Iranian ports, had moved through the strait as the U.S. military began its blockade.`\
-https://www.nytimes.com/2026/04/14/world/middleeast/us-blockade-strait-hormuz-iran-ships-traffic.html
 
