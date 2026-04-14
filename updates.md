@@ -1,3 +1,7 @@
+**Storms Leave a Trail of Warnings Across the Midwest**\
+`Forecasters have warned that tens of millions of people from Texas to New England could see some form of severe weather this week as storms move through.`\
+https://www.nytimes.com/2026/04/13/weather/kansas-wisconsin-michigan-tornado-storm-forecast.html
+
 **Mapa: un terremoto de magnitud 5,7 sacude Nevada**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/es/interactive/2026/04/13/espanol/terremoto-nevada.html
