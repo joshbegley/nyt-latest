@@ -3,7 +3,7 @@
 https://www.nytimes.com/interactive/2026/04/13/books/poetry-week-newsletter-signup.html
 
 **Vance Says Pope Leo Should Stay Out of U.S. Affairs**\
-`The vice president, a Catholic, defended President Trump, who had accused the pope of being too liberal and “weak on crime.”The pontiff responded that he had “no fear of the Trump administration.”`\
+`The vice president, a Catholic, defended President Trump, who had accused the pope of being too liberal and “weak on crime.” The pontiff responded that he had “no fear of the Trump administration.”`\
 https://www.nytimes.com/2026/04/13/us/politics/jd-vance-pope-leo-trump.html
 
 **Youths Who Sued Trump Over Orders to ‘Unleash’ Energy Try to Revive Case**\
