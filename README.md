@@ -1,3 +1,7 @@
+**Palabra del día: ‘hierarchy’**\
+`Esta palabra ha aparecido en 1333 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/04/14/espanol/que-significa-hierarchy.html
+
 **Virginia Governor Ends Tax Breaks for Confederate Groups**\
 `The new law signed by Gov. Abigail Spanberger is the culmination of a long, Democrat-led push to distance Virginia from its Confederate past.`\
 https://www.nytimes.com/2026/04/14/us/virginia-tax-breaks-confederate.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/14/business/dealbook/stocks-us-iran-war.html
 **Will Viktor Orban’s Legacy Live On in Brussels, Even Without Him?**\
 `Viktor Orban, Hungary’s newly ousted prime minister, helped to finance a Brussels think tank that pushes his populist vision. It will outlast him, at least for a while.`\
 https://www.nytimes.com/2026/04/14/world/europe/orban-brussels-hungary.html
-
-**Olivia Troye, Ex-Pence Aide, Runs for the House as a Democrat**\
-`After spending most of her Washington career as a Republican, she joins a crowded field of Democrats running in a Virginia district that doesn’t exist yet.`\
-https://www.nytimes.com/2026/04/14/us/politics/olivia-troye-virginia-congress.html
 
