@@ -1,3 +1,11 @@
+**The Podcaster Recho Omondi Has No Hang-Ups About Dining Alone**\
+`The designer and host of “The Cutting Room Floor” fashion podcast answers the Where to Eat questionnaire.`\
+https://www.nytimes.com/2026/04/14/dining/podcaster-recho-omondi.html
+
+**Pirate’s Booty Corrects a Myth About West African Gold**\
+`Centuries-old European tales about Gold Coast traders adulterating precious metals hundreds of years ago are challenged by the famous Whydah Gally shipwreck.`\
+https://www.nytimes.com/2026/04/14/science/pirates-gold-africa.html
+
 **51 Percent of Americans Think the War in Iran Has Not Been Worthwhile.**\
 `A survey from Ipsos and Reuters, released on Tuesday, found few Americans — 24 percent — think the war in Iran has been worth the costs and benefits.`\
 https://www.nytimes.com/2026/04/14/us/politics/iran-military-action-americans-poll.html
