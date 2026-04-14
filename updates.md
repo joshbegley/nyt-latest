@@ -1,3 +1,19 @@
+**U.S. Is Negotiating an Iran Deal That Would Buy Time, Again**\
+`The United States proposed a 20-year “suspension” of all nuclear activity, even as President Trump demands assurances that Iran can never build a nuclear weapon.`\
+https://www.nytimes.com/2026/04/13/us/politics/us-iran-deal.html
+
+**U.S. Military Strikes Another Boat in Pacific, Killing 2**\
+`The attack was the 49th since the campaign against vessels in the Caribbean and the eastern Pacific started in early September.`\
+https://www.nytimes.com/2026/04/13/us/politics/military-strike-boat-eastern-pacific.html
+
+**Oasis, Phil Collins and Sade to Join Rock & Roll Hall of Fame**\
+`Billy Idol, Luther Vandross and Wu-Tang Clan will also be inducted, while New Edition, Mariah Carey and Melissa Etheridge failed to make the final cut.`\
+https://www.nytimes.com/2026/04/13/arts/music/rock-and-roll-hall-of-fame-oasis-phil-collins-sade.html
+
+**Michigan Man Is Released in Wife’s Disappearance in the Bahamas**\
+`Brian Hooker had been in police custody since April 8 after he said his wife fell off their boat and was swept away by strong currents.`\
+https://www.nytimes.com/2026/04/13/us/brian-hooker-bahamas-wife-boat.html
+
 **Vance Says Pope Leo Should Stay Out of U.S. Affairs**\
 `The vice president, a Catholic, defended President Trump, who had accused the pope of being too liberal and “weak on crime.” The pontiff has said that he has “no fear of the Trump administration.”`\
 https://www.nytimes.com/2026/04/13/us/politics/jd-vance-pope-leo-trump.html
