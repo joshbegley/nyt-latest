@@ -1,3 +1,7 @@
+**Italy Suspends Defense Pact With Israel, Further Straining Ties**\
+`The move by Italy, once considered a strong ally of Israel, reflected growing anger over Israeli aggression in the Middle East. President Trump criticized Italy’s stance on the war.`\
+https://www.nytimes.com/2026/04/14/world/middleeast/italy-israel-defense-pact.html
+
 **After 10 Years, She’s Still Waking Up on the Same Day**\
 `Solvej Balle’s cult hit series about a woman trapped in a time loop continues with a fourth volume.`\
 https://www.nytimes.com/2026/04/14/books/review/solvej-balle-calculation-of-volume-iv.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/14/crosswords/connections-companion-1039.html
 **Strands Sidekick No. 773**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, April 15, 2026.`\
 https://www.nytimes.com/2026/04/14/crosswords/strands-sidekick-773.html
-
-**Wordle Review No. 1,761**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, April 15, 2026.`\
-https://www.nytimes.com/2026/04/14/crosswords/wordle-review-1761.html
 
