@@ -1,3 +1,11 @@
+**State of U.S. Blockade Is Unclear as Some Ships Transit Strait of Hormuz**\
+`Ship-tracking data showed that several vessels, including some that had been docked at Iranian ports, had moved through the strait as the U.S. military began its blockade.`\
+https://www.nytimes.com/2026/04/14/world/middleeast/us-blockade-strait-hormuz-iran-ships-traffic.html
+
+**What’s Driving the Wartime Stock Rebound**\
+`The S&P 500 has recouped all its losses since the Middle East war started on Feb. 28, as a bullish “vibe shift” takes hold among some investors.`\
+https://www.nytimes.com/2026/04/14/business/dealbook/stocks-us-iran-war.html
+
 **Will Viktor Orban’s Legacy Live On in Brussels, Even Without Him?**\
 `Viktor Orban, Hungary’s newly ousted prime minister, helped to finance a Brussels think tank that pushes his populist vision. It will outlast him, at least for a while.`\
 https://www.nytimes.com/2026/04/14/world/europe/orban-brussels-hungary.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/14/opinion/trump-protest-ai-phones-social-media.
 **In Leo, Trump Faces a Different Kind of Papal Opponent**\
 `Unlike his predecessor, Pope Leo XIV enjoys growing support from a broad swath of conservative Catholics.`\
 https://www.nytimes.com/2026/04/14/us/politics/trump-pope-leo.html
-
-**How Many People Heard About Swalwell and Did Nothing?**\
-`Why no one is surprised when another member of Congress is accused of sexual misconduct.`\
-https://www.nytimes.com/2026/04/14/opinion/swalwell-did-nothing.html
-
-**Reckoning With Israel’s ‘One-State Reality’**\
-`The political scientists Shibley Telhami and Marc Lynch discuss Israel’s continued expansion into the West Bank, Gaza and Lebanon.`\
-https://www.nytimes.com/2026/04/14/opinion/ezra-klein-podcast-lynch-telhami.html
 
