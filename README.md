@@ -1,3 +1,7 @@
+****\
+``\
+https://www.nytimes.com/video/embedded/world/middleeast/100000010839999/14vid-lebanon-blog-33150.html
+
 **Middle East War Will Slow Global Economic Growth, I.M.F. Warns**\
 `The conflict could also fuel another bout of inflation, according to the International Monetary Fund.`\
 https://www.nytimes.com/2026/04/14/business/iran-war-imf-economic-growth.html
@@ -67,14 +71,10 @@ https://www.nytimes.com/video/us/politics/100000010839676/trump-pope-leo-attack-
 https://www.nytimes.com/2026/04/14/us/los-angeles-schools-strike-deal.html
 
 **‘I Don’t Know If We Can Come Back From This’: The View From Inside Trump’s D.H.S.**\
-`Dozens of agents and officials share their stories about working in the Department of Homeland Security during the violent crackdown on illegal immigration.`\
+`Dozens of agents and officials share their stories about working in the Department of Homeland Security during the harsh crackdown on illegal immigration.`\
 https://www.nytimes.com/interactive/2026/04/14/magazine/trump-dhs-ice-officers-immigration-deportations.html
 
 **Oil Prices Slip and Stocks Gain as Investors Eye Possible Path to Peace**\
 `Investors saw a possible path to peace, with the United States and Iran trading proposals for Iran to suspend nuclear activity.`\
 https://www.nytimes.com/2026/04/14/business/oil-gas-stocks-prices.html
-
-**Here’s How to Defeat Trumpism**\
-`The free world should take an honest look at how Hungary’s opposition party defeated a far-right giant.`\
-https://www.nytimes.com/2026/04/14/opinion/magyar-orban-hungary-trump-defeat.html
 
