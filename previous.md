@@ -66,7 +66,7 @@ https://www.nytimes.com/2026/04/14/books/review/solvej-balle-calculation-of-volu
 `Ricky Cobb has built a big online following with his irreverent postings about the absurdities of the 1970s.`\
 https://www.nytimes.com/2026/04/14/business/ricky-cobb-1970s-super70ssports.html
 
-**J.P. Morgan Sees Resiliency in U.S. Economy Despite Iran War**\
+**JPMorgan Sees Resiliency in U.S. Economy Despite Iran War**\
 `The nation’s largest bank said it earned record trading profits in the first quarter but tempered expectations overall for its business.`\
 https://www.nytimes.com/2026/04/14/business/jpmorgan-wells-fargo-citi-earnings.html
 

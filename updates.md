@@ -1,3 +1,7 @@
+**JPMorgan Sees Resiliency in U.S. Economy Despite Iran War**\
+`The nation’s largest bank said it earned record trading profits in the first quarter but tempered expectations overall for its business.`\
+https://www.nytimes.com/2026/04/14/business/jpmorgan-wells-fargo-citi-earnings.html
+
 **Texas A&M Picks an Insider for President After Months of Conflict**\
 `Debates over how to teach about gender, sexuality and other topics have shaken the school, and lead to the ouster of the previous president at the College Station campus last summer.`\
 https://www.nytimes.com/2026/04/14/us/texas-am-president.html
