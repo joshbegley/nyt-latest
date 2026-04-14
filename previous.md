@@ -1,3 +1,11 @@
+**Another Woman Accuses Eric Swalwell of Sexually Assaulting Her**\
+`The woman said Mr. Swalwell, who resigned from Congress on Tuesday afternoon, raped her in a West Hollywood hotel room in 2018. She said she believed she was drugged.`\
+https://www.nytimes.com/2026/04/14/us/lonna-drewes-eric-swalwell-sexual-assault.html
+
+**The Treasury Secretary vs. Climate Science**\
+`In comments on Tuesday, Treasury Secretary Scott Bessent dismissed the scientific consensus on the causes of climate change.`\
+https://www.nytimes.com/2026/04/14/climate/scott-bessent-climate-change-science.html
+
 **Listen to the trailer for ‘The Good Whale’**\
 `Our new show drops Nov. 14.`\
 https://www.nytimes.com/2026/04/14/podcasts/listen-to-the-trailer-for-the-good-whale.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/14/opinion/trump-jesus-pope.html
 **La guerra en Medio Oriente frenará el crecimiento económico mundial, advierte el FMI**\
 `El Fondo Monetario Internacional también planteó la posibilidad de una recesión mundial y otro brote de inflación.`\
 https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/guerra-economia-petroleo-fmi.html
-
-**Democrats’ Redistricting Effort in Maryland Runs Out of Time**\
-`State Democrats butted heads over a gerrymandering plan that could have eliminated the state’s lone Republican seat in the U.S. House.`\
-https://www.nytimes.com/2026/04/14/us/politics/democrat-redistricting-effort-maryland-fails.html
-
-**Trump Administration Issues First ‘Weaponization’ Report, Claiming Bias Under Biden**\
-`The report is part of the president’s effort to claim anti-conservative and anti-Christian biases in federal law enforcement, even as he pushes to wield the legal system against his political enemies.`\
-https://www.nytimes.com/2026/04/14/us/politics/trump-weaponization-report-biden-doj-abortion.html
 

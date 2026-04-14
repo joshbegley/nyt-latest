@@ -1,3 +1,11 @@
+**Another Woman Accuses Eric Swalwell of Sexually Assaulting Her**\
+`The woman said Mr. Swalwell, who resigned from Congress on Tuesday afternoon, raped her in a West Hollywood hotel room in 2018. She said she believed she was drugged.`\
+https://www.nytimes.com/2026/04/14/us/lonna-drewes-eric-swalwell-sexual-assault.html
+
+**The Treasury Secretary vs. Climate Science**\
+`In comments on Tuesday, Treasury Secretary Scott Bessent dismissed the scientific consensus on the causes of climate change.`\
+https://www.nytimes.com/2026/04/14/climate/scott-bessent-climate-change-science.html
+
 **Listen to the trailer for ‘The Good Whale’**\
 `Our new show drops Nov. 14.`\
 https://www.nytimes.com/2026/04/14/podcasts/listen-to-the-trailer-for-the-good-whale.html

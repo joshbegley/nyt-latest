@@ -1,3 +1,7 @@
+**Designer Fashion Hits the 2026 WNBA Draft**\
+`Fashion brands have taken note of the WNBA draft, described by Lauren Betts, the No. 4 draft pick, as the Met Gala of women’s basketball. Vanessa Friedman, our chief fashion critic, was there.`\
+https://www.nytimes.com/video//100000010832658/wnba-draft-fashion-basketball.html
+
 **Another Woman Accuses Eric Swalwell of Sexually Assaulting Her**\
 `The woman said Mr. Swalwell, who resigned from Congress on Tuesday afternoon, raped her in a West Hollywood hotel room in 2018. She said she believed she was drugged.`\
 https://www.nytimes.com/2026/04/14/us/lonna-drewes-eric-swalwell-sexual-assault.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/trump-papa-leon.htm
 **Trump, Jesus and the Pope**\
 `Readers respond to front-page articles about President Trump’s erratic behavior.`\
 https://www.nytimes.com/2026/04/14/opinion/trump-jesus-pope.html
-
-**La guerra en Medio Oriente frenará el crecimiento económico mundial, advierte el FMI**\
-`El Fondo Monetario Internacional también planteó la posibilidad de una recesión mundial y otro brote de inflación.`\
-https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/guerra-economia-petroleo-fmi.html
 
