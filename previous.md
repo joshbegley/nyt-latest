@@ -1,3 +1,7 @@
+**MAGA Absorbs the Loss of Orban, a Kindred Spirit to Trump’s Movement**\
+`Viktor Orban, the Hungarian prime minister, and his right-wing playbook were embraced by parts of the American right. Now some are worried by his defeat.`\
+https://www.nytimes.com/2026/04/13/us/politics/orban-trump-maga.html
+
 **Sign Up for the Book Review’s 2026 Challenge**\
 `(It’s about poetry. And you’ll love it.)`\
 https://www.nytimes.com/interactive/2026/04/13/books/poetry-week-newsletter-signup.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/opinion/100000010832503/the-end-of-pax-americana.h
 **Student News Quiz for April 6-13**\
 `Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
 https://www.nytimes.com/interactive/2026/04/13/learning/13StudentNewsQuiz.html
-
-**La ‘economía de las molestias’ es más que una molestia**\
-`Una nueva estimación cifra en 165.000 millones de dólares el costo de hacerle frente a las llamadas automatizadas, las tarifas ocultas y los chatbots de atención al cliente.`\
-https://www.nytimes.com/es/2026/04/13/espanol/negocios/llamadas-correos-no-deseados-costo.html
 
