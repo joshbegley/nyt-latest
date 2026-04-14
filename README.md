@@ -54,7 +54,7 @@ https://www.nytimes.com/2026/04/14/world/middleeast/turkey-school-shooting-siver
 `Vice President JD Vance weighed in on the tension between President Trump and Pope Leo XIV as Catholics expressed dismay about Mr. Trump’s attacks.`\
 https://www.nytimes.com/video/us/politics/100000010839676/trump-pope-leo-attack-vance-catholics.html
 
-**Los Angeles Schools Strike Narrowly Averted In Last-Minute Deal**\
+**Los Angeles Schools Strike Narrowly Averted in Last-Minute Deal**\
 `The strike would have shut down classes on Tuesday for hundreds of thousands of students in the nation’s second-largest school district.`\
 https://www.nytimes.com/2026/04/14/us/los-angeles-schools-strike-deal.html
 
