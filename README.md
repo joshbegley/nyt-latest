@@ -1,3 +1,7 @@
+**A New York Museum Honors Its Real-Life ‘Indiana Jones’ Dinosaur Hunters**\
+`In a new and ongoing exhibition, the American Museum of Natural History highlights the findings of Mark Norell and other fossil hunters responsible for its most important discoveries.`\
+https://www.nytimes.com/2026/04/14/arts/design/american-natural-history-museum-fossils.html
+
 **Mario Ríos Montt, Bishop and Brother of Genocidal General, Dies at 94**\
 `In Guatemala, he led the Catholic Church’s human rights office. His brother, a dictator who took power in a coup, was convicted of crimes against humanity.`\
 https://www.nytimes.com/2026/04/14/world/americas/mario-rios-montt-dead.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/world/middleeast/100000010839914/us-iran-peace-tal
 **Designer Fashion Hits the 2026 WNBA Draft**\
 `Fashion brands have taken note of the WNBA draft, described by Lauren Betts, the No. 4 draft pick, as the Met Gala of women’s basketball. Vanessa Friedman, our chief fashion critic, was there.`\
 https://www.nytimes.com/video/style/100000010832658/wnba-draft-fashion-basketball.html
-
-**A New Accuser Says Eric Swalwell Sexually Assaulted Her**\
-`The woman said Mr. Swalwell, who resigned from Congress on Tuesday afternoon, raped her in a West Hollywood hotel room in 2018. She said she believed she was drugged.`\
-https://www.nytimes.com/2026/04/14/us/lonna-drewes-eric-swalwell-sexual-assault.html
 
