@@ -1,3 +1,11 @@
+**Amazon Buys Globalstar for $10.8 Billion to Build Its Efforts in Space**\
+`The e-commerce giant is buying Globalstar, a satellite communications company, as it aims to expand its own satellite internet service to compete with Elon Musk’s Starlink.`\
+https://www.nytimes.com/2026/04/14/technology/amazon-buys-globalstar-space-internet.html
+
+**Appeals Court Ends Contempt Inquiry Into Deportation Flights**\
+`A federal judge’s nearly yearlong effort to investigate whether the Trump administration had violated his order had become a flashpoint in the president’s battles with the courts.`\
+https://www.nytimes.com/2026/04/14/us/politics/deportation-flights-trump-contempt.html
+
 **Can Sam Altman Be Trusted?**\
 `The journalists Ronan Farrow and Andrew Marantz investigated some of the doubts surrounding Altman, the leader of OpenAI, in a recent article for The New Yorker. They discuss their findings with Casey Newton and Kevin Roose, the hosts of the “Hard Fork” podcast.`\
 https://www.nytimes.com/video/podcasts/100000010840628/can-sam-altman-be-trusted.html
