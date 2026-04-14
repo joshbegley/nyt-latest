@@ -1,3 +1,35 @@
+**Su devoción por las canciones de amor lo llevó a la cárcel, pero no lo silenció**\
+`La prisión no pudo conseguir que Nguyen Van Loc, perseguido por interpretar la vieja música romántica de Hanói durante la guerra de Vietnam, dejara de cantar.`\
+https://www.nytimes.com/es/2026/04/14/espanol/mundo/nguyen-van-loc-cantante-vietnam.html
+
+**‘Euphoria’ Returns**\
+`Are you a fan? Did you watch the season 3 premiere?`\
+https://www.nytimes.com/2026/04/14/learning/euphoria-returns.html
+
+**80s Tomorrow, 50s Next Week? New York Rides a Weather Roller Coaster.**\
+`Although Monday wasn’t as springlike as expected, people still were drawn to the beach. By midweek, the city is likely to see summer temperatures.`\
+https://www.nytimes.com/2026/04/14/nyregion/weather-nyc-hot-cold.html
+
+**Here’s What to Know About Weinstein’s Third Rape Trial in New York**\
+`Harvey Weinstein is scheduled to go on trial for a third time in six years on the same charge. An appeals court overturned his first conviction, and the second trial ended in a hung jury.`\
+https://www.nytimes.com/2026/04/14/nyregion/harvey-weinstein-what-to-know-trial.html
+
+**Trump and New York Are in a Tug of War Over Medicaid Coverage**\
+`With tough new regulations looming in the president’s domestic policy bill, officials are coming up with plans to keep New Yorkers insured.`\
+https://www.nytimes.com/2026/04/14/nyregion/nyc-medicaid-cuts.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/14/crosswords/spelling-bee-forum.html
+
+**‘It’s on the App’: A Police Chief’s $4.5 Million Gambling Secret**\
+`New Haven’s police chief, Karl Jacobson, resigned abruptly after his deputies saw red flags, including missing money. He has pleaded not guilty to embezzling city money to gamble on sports.`\
+https://www.nytimes.com/2026/04/14/nyregion/police-chief-sports-gambling-new-haven.html
+
+**Is the Jewish Defense League Making a Comeback?**\
+`The Jewish Defense League had long been considered inactive. But an arrest in a plot to kill a Palestinian activist shed light on an apparent resurgence of far-right Zionism.`\
+https://www.nytimes.com/2026/04/14/nyregion/jewish-defense-league-murder-plot.html
+
 **Geneva Watch Week Seeks to Brighten Watchmaking’s Future**\
 `At Watches and Wonders, dozens of brands will be introducing new collections.`\
 https://www.nytimes.com/2026/04/14/fashion/geneva-watches-wonders.html
