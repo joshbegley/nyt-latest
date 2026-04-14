@@ -1,3 +1,7 @@
+**With Gonzales and Swalwell Out, a Scramble for House Seats Begins**\
+`Aides to Greg Abbott and Gavin Newsom were weighing whether to call quick elections to replace two House members accused of sexual misconduct.`\
+https://www.nytimes.com/2026/04/14/us/swalwell-gonzales-resignations-texas-california-special-elections.html
+
 **Abrupt Departures Could Set Off Scramble for House Seats in California and Texas**\
 `Aides to Gavin Newsom and Greg Abbott were weighing whether to call quick elections to replace two House members accused of sexual misconduct.`\
 https://www.nytimes.com/2026/04/14/us/swalwell-gonzales-resignations-texas-california-special-elections.html
