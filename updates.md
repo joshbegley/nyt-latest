@@ -1,3 +1,7 @@
+**In Rare Talks, Israeli and Lebanese Officials Look for Way Forward**\
+`Officials from the two countries were expected to meet in Washington on Tuesday. The talks were not expected to produce an immediate breakthrough in the war between Hezbollah and Israel.`\
+https://www.nytimes.com/2026/04/14/world/middleeast/israel-lebanon-talks-dc.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/14/world/iran-war-oil-hormuz/heres-the-latest
