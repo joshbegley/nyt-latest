@@ -1,3 +1,15 @@
+**Israel and Lebanon Talk, but Fighting Continues**\
+`Also, a Ukrainian city is bouncing back with Denmark’s help. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/04/14/briefing/israel-lebanon-talks-bagels-private-equity.html
+
+**The Museums That Helped Power Atlanta’s Rise Are Still Pushing Ahead**\
+`For 100 years, the Atlanta History Center and the High Museum of Art have expanded and diversified, not unlike the metropolis itself.`\
+https://www.nytimes.com/2026/04/14/arts/atlanta-museums.html
+
+**Trump Says 2nd Round of Iran Talks Could Take Place This Week**\
+`The president did not say who would represent the United States in a potential next round of direct talks, though he ruled out being personally involved.`\
+https://www.nytimes.com/2026/04/14/world/middleeast/us-iran-talks-trump.html
+
 **You’ve Heard of the Sky Couch. Meet the Skynest.**\
 `Air New Zealand will begin offering economy passengers four-hour naps in private pods on certain long-haul flights. Will other carriers follow its lead?`\
 https://www.nytimes.com/2026/04/14/travel/air-new-zealand-skynest-economy-sleep-pods.html
