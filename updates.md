@@ -1,3 +1,7 @@
+**The Pope and the President**\
+`The two most powerful Americans in the world are clashing.`\
+https://www.nytimes.com/2026/04/14/briefing/the-pope-and-the-president.html
+
 **¿El modelo Venezuela?**\
 `El presidente Trump califica la destitución de Nicolás Maduro como “el escenario perfecto”. Pero no todo va bien para Estados Unidos en Venezuela.`\
 https://www.nytimes.com/es/2026/04/14/espanol/mundo/trump-modelo-venezuela.html

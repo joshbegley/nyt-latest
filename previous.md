@@ -1,3 +1,7 @@
+**The Pope and the President**\
+`The two most powerful Americans in the world are clashing.`\
+https://www.nytimes.com/2026/04/14/briefing/the-pope-and-the-president.html
+
 **¿El modelo Venezuela?**\
 `El presidente Trump califica la destitución de Nicolás Maduro como “el escenario perfecto”. Pero no todo va bien para Estados Unidos en Venezuela.`\
 https://www.nytimes.com/es/2026/04/14/espanol/mundo/trump-modelo-venezuela.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/14/opinion/pope-president-war-immigration.html
 **Trump’s Latest Oil Blockade Brings Bigger Economic Risks**\
 `Oil markets shrugged it off, but the effort to hurt Iran could provoke retaliation that inflicts more damage on energy assets and the global economy.`\
 https://www.nytimes.com/2026/04/14/business/energy-environment/iran-trump-blockade-oil-prices.html
-
-**Carney Seals a Majority and Remakes Canada’s Liberal Party**\
-`The rising star in global centrist politics has secured a majority in the Canadian Parliament. Critics are crying foul.`\
-https://www.nytimes.com/2026/04/14/world/canada/election-carney-liberal-party.html
 
