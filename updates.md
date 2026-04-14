@@ -1,3 +1,7 @@
+**Lebanon and Israel Hold First In-Person Talks in Decades**\
+`While the talks between Israel and Lebanon in Washington did not yield a cease-fire agreement, both sides agreed to “launch direct negotiations” after having “productive discussions,” according to a statement from the U.S. State Department.`\
+https://www.nytimes.com/video/world/middleeast/100000010841136/us-israel-lebanon-talks.html
+
 **Trump’s Blasphemy Is a Warning**\
 `Presidents can fight with popes. God is another matter.`\
 https://www.nytimes.com/2026/04/14/opinion/trump-pope.html
