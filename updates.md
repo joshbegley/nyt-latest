@@ -1,3 +1,11 @@
+**House Republicans Step Up Scrutiny of ActBlue Over Foreign Donations**\
+`Three Republican-led committees, responding to a New York Times report this month, accused the Democratic fund-raising organization of withholding documents from a subpoena request.`\
+https://www.nytimes.com/2026/04/14/us/politics/actblue-republicans-foreign-donations.html
+
+**Benin’s Finance Minister Wins Presidential Election in Landslide**\
+`Romuald Wadagni received 94 percent of the vote, according to provisional results. He faces the challenge of a growing jihadist insurgency in the region.`\
+https://www.nytimes.com/2026/04/14/world/africa/benin-election-president-romuald-wadagni.html
+
 **Palabra del día: ‘hierarchy’**\
 `Esta palabra ha aparecido en 1333 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/04/14/espanol/que-significa-hierarchy.html
