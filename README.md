@@ -1,3 +1,7 @@
+**Netflix Leader Makes Rare Overture to Cinema Owners**\
+`Ted Sarandos attended a major movie theater conference for the first time and met with domestic and international owners, people familiar with the meetings said.`\
+https://www.nytimes.com/2026/04/14/business/media/netflix-sarandos-cinema-owners-cinemacon.html
+
 **With Algeria Visit, Pope Leo Returns to His Augustinian Roots**\
 `Some theologians say the pontiff’s understanding of Augustine’s teachings helped inform his response to President Trump’s negative comments about him.`\
 https://www.nytimes.com/2026/04/14/world/africa/pope-leo-algeria-africa-visit.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/13/nyregion/nyc-protest-arrests-israel-arms.html
 **The New Aesthetic of ‘Euphoria’**\
 `“Euphoria,” the HBO Max show depicting Gen Z, has released its final season. Three of our Style reporters — Gina Cherelus, Jacob Gallagher and Callie Holtermann — discuss the show’s new western aesthetic.`\
 https://www.nytimes.com/video/style/100000010815337/euphoria-aesthetics-styles-review-pilot.html
-
-**Why Are New York Restaurants Starting to Look Like Offices?**\
-`With more people resuming their commutes post-pandemic, the fantasy of a well-designed, well-run workplace beckons.`\
-https://www.nytimes.com/2026/04/13/t-magazine/nyc-restaurants-offices-modernist-design.html
 
