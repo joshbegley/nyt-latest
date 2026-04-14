@@ -1,4 +1,24 @@
-**Trump’s Friction With Pope Leo Draws Criticism From Catholics**\
+**The Workers Letting A.I. Do Their Jobs**\
+`In an era of agents powered by artificial intelligence, many programmers are barely programming.`\
+https://www.nytimes.com/2026/04/14/podcasts/the-daily/ai-coders.html
+
+**Connections Companion No. 1,039**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, April 15, 2026.`\
+https://www.nytimes.com/2026/04/14/crosswords/connections-companion-1039.html
+
+**Strands Sidekick No. 773**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, April 15, 2026.`\
+https://www.nytimes.com/2026/04/14/crosswords/strands-sidekick-773.html
+
+**Wordle Review No. 1,761**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, April 15, 2026.`\
+https://www.nytimes.com/2026/04/14/crosswords/wordle-review-1761.html
+
+**Ex-Student Opens Fire at High School in Turkey, Wounding 16**\
+`Officials said the teenage attacker killed himself when cornered by the police. The authorities are investigating possible motives.`\
+https://www.nytimes.com/2026/04/14/world/middleeast/turkey-school-shooting-siverek.html
+
+**Vance Says Pope Should Stay Out of U.S. Affairs**\
 `Vice President JD Vance weighed in on the tension between President Trump and Pope Leo XIV as Catholics expressed dismay about Mr. Trump’s attacks.`\
 https://www.nytimes.com/video/us/politics/100000010839676/trump-pope-leo-attack-vance-catholics.html
 
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/04/14/us/politics/trump-attacks-pope-midterms.html
 **The Cost of Living Weighs on New Yorkers’ Minds**\
 `People are cooking at home and cutting back on luxuries as inflation makes it harder to get by.`\
 https://www.nytimes.com/2026/04/14/nyregion/the-cost-of-living-weighs-on-new-yorkers-minds.html
-
-**How Should Schools Respond to Antisemitism and Islamophobia?**\
-`New York City is rolling out lessons on Jewish and Muslim American history to counter a rise in hateful harassment, vandalism and rhetoric. Would all students benefit from a similar program?`\
-https://www.nytimes.com/2026/04/14/learning/how-should-schools-respond-to-antisemitism-and-islamophobia.html
-
-**Daring and Dazzling, a New LACMA Floats Above Los Angeles**\
-`After $724 million and a decade of battles, the pugnacious David Geffen Galleries reassert the city’s role as a petri dish for experimental design.`\
-https://www.nytimes.com/2026/04/14/arts/design/lacma-peter-zumthor-los-angeles.html
-
-**Two Resignations in Congress, and the Pope’s Back-and-Forth With Trump**\
-`Plus, the rise of big bagel.`\
-https://www.nytimes.com/2026/04/14/podcasts/the-headlines/congress-resignations-pope-trump.html
-
-**‘Planet Money’ Is Now a Book. And a Game. And a Record Label.**\
-`The long-running economics show on NPR is mining whimsical product experiments for content (and revenue) in a financially challenging environment.`\
-https://www.nytimes.com/2026/04/14/arts/planet-money-npr-book.html
-
-**How Stephen Miller Is Adjusting Trump’s Immigration Agenda**\
-`After the chaos and death that ensued during the deportation raids in Minneapolis, Stephen Miller, the architect of President Trump’s mass deportation campaign, is changing course on immigration. Our White House correspondent Zolan Kanno-Youngs explains how the administration’s strategy is shifting.`\
-https://www.nytimes.com/video/us/politics/100000010832126/stephen-miller-trump-immigration-crackdown.html
 

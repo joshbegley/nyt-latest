@@ -1,3 +1,27 @@
+**The Workers Letting A.I. Do Their Jobs**\
+`In an era of agents powered by artificial intelligence, many programmers are barely programming.`\
+https://www.nytimes.com/2026/04/14/podcasts/the-daily/ai-coders.html
+
+**Connections Companion No. 1,039**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, April 15, 2026.`\
+https://www.nytimes.com/2026/04/14/crosswords/connections-companion-1039.html
+
+**Strands Sidekick No. 773**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, April 15, 2026.`\
+https://www.nytimes.com/2026/04/14/crosswords/strands-sidekick-773.html
+
+**Wordle Review No. 1,761**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, April 15, 2026.`\
+https://www.nytimes.com/2026/04/14/crosswords/wordle-review-1761.html
+
+**Ex-Student Opens Fire at High School in Turkey, Wounding 16**\
+`Officials said the teenage attacker killed himself when cornered by the police. The authorities are investigating possible motives.`\
+https://www.nytimes.com/2026/04/14/world/middleeast/turkey-school-shooting-siverek.html
+
+**Vance Says Pope Should Stay Out of U.S. Affairs**\
+`Vice President JD Vance weighed in on the tension between President Trump and Pope Leo XIV as Catholics expressed dismay about Mr. Trump’s attacks.`\
+https://www.nytimes.com/video/us/politics/100000010839676/trump-pope-leo-attack-vance-catholics.html
+
 **Trump’s Friction With Pope Leo Draws Criticism From Catholics**\
 `Vice President JD Vance weighed in on the tension between President Trump and Pope Leo XIV as Catholics expressed dismay about Mr. Trump’s attacks.`\
 https://www.nytimes.com/video/us/politics/100000010839676/trump-pope-leo-attack-vance-catholics.html
