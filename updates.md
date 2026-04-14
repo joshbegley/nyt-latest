@@ -1,3 +1,7 @@
+**Lab Work**\
+`High-fives all around for Mark Diehl’s puzzle.`\
+https://www.nytimes.com/2026/04/13/crosswords/daily-puzzle-2026-04-14.html
+
 **Mapa: un terremoto de magnitud 5,7 sacude Nevada**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/es/interactive/2026/04/13/espanol/terremoto-nevada.html

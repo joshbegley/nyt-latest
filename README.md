@@ -2,11 +2,11 @@
 `High-fives all around for Mark Diehl’s puzzle.`\
 https://www.nytimes.com/2026/04/13/crosswords/daily-puzzle-2026-04-14.html
 
-**Mapa: un terremoto de magnitud 5,7 sacude Nevada**\
+**Mapa: un terremoto de magnitud 5,5 sacude Nevada**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/es/interactive/2026/04/13/espanol/terremoto-nevada.html
 
-**Map: 5.7-Magnitude Earthquake Shakes Nevada**\
+**Map: 5.5-Magnitude Earthquake Shakes Nevada**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/04/13/us/quake-tracker-nevada.html
 

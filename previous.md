@@ -1,3 +1,7 @@
+**Lab Work**\
+`High-fives all around for Mark Diehl’s puzzle.`\
+https://www.nytimes.com/2026/04/13/crosswords/daily-puzzle-2026-04-14.html
+
 **Mapa: un terremoto de magnitud 5,7 sacude Nevada**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/es/interactive/2026/04/13/espanol/terremoto-nevada.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/13/style/coachella-fashion-justin-bieber.html
 **The U.S. Blockades Iran’s Ports**\
 `Also, Trump clashes with the pope. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/04/13/briefing/the-us-blockades-irans-ports.html
-
-**South Korea Can’t Build Enough Stadiums to Host Its K-Pop Stars**\
-`South Korea doesn’t have enough arenas to show off its own A-list talent. That’s why BTS began its world tour in a once-neglected, 22-year-old soccer stadium.`\
-https://www.nytimes.com/2026/04/13/world/asia/concert-venue-shortage-south-korea.html
 
