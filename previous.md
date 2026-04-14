@@ -1,3 +1,7 @@
+**Former U.C.L.A. Gynecologist Is Sentenced to 11 Years for Sexual Abuse**\
+`James M. Heaps pleaded guilty on Tuesday to sexually abusing patients, sparing them from having to testify at another trial after his conviction was overturned in February.`\
+https://www.nytimes.com/2026/04/14/us/ucla-obgyn-sentenced-sexual-abuse.html
+
 **Hungary’s Populist Paradox**\
 `We look at what Viktor Orban’s defeat tells us about a model of government in which politics are more important than the economy.`\
 https://www.nytimes.com/2026/04/14/world/hungary-orban-populism-magyar-war-imf.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/14/podcasts/listen-to-the-trailer-for-the-good-w
 **Central U.S. Braces for Yet Another Wave of Severe Storms**\
 `More than 125 million people face some risk of severe weather on Tuesday, forecasters warned, amid a multiday outbreak of storms.`\
 https://www.nytimes.com/2026/04/14/weather/tornado-storm-forecast-midwest-oklahoma-updates.html
-
-**Russian Oil Revenues Nearly Doubled in March**\
-`The surge in revenue provided a critical lifeline for Moscow, which has struggled to fund the war in Ukraine amid record-high deficits.`\
-https://www.nytimes.com/2026/04/14/world/europe/russian-oil-revenues-doubled.html
 
