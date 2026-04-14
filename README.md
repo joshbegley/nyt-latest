@@ -1,3 +1,15 @@
+**‘Extremely Dangerous’ Super Typhoon Barrels Toward Northern Mariana Islands**\
+`The storm, named Sinlaku, was expected to make landfall on Tuesday evening in Tinian and Saipan, where tens of thousands of people were urged to shelter in place.`\
+https://www.nytimes.com/2026/04/14/world/asia/typhoon-sinlaku-guam-mariana.html
+
+**Alguien tiene que ser feliz. ¿Por qué no Lauren Sánchez Bezos?**\
+`Como la mitad de una pareja mega poderosa, Sánchez Bezos parece haber influido en los superricos para que dejen de disculparse y empiecen a disfrutar.`\
+https://www.nytimes.com/es/2026/04/14/espanol/negocios/lauren-sanchez-bezos.html
+
+**Pete Hegseth y su evangelio de destrucción**\
+`El secretario de Defensa cree que está comandando el ejército de Dios.`\
+https://www.nytimes.com/es/2026/04/14/espanol/opinion/pete-hegseth-guerra-iran-dios-cristianismo.html
+
 **Su devoción por las canciones de amor lo llevó a la cárcel, pero no lo silenció**\
 `La prisión no pudo conseguir que Nguyen Van Loc, perseguido por interpretar la vieja música romántica de Hanói durante la guerra de Vietnam, dejara de cantar.`\
 https://www.nytimes.com/es/2026/04/14/espanol/mundo/nguyen-van-loc-cantante-vietnam.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/14/opinion/international-world/sudan-war-anniver
 **China Imposes New Rules to Block Foreign Companies From ‘Decoupling’**\
 `Multinationals in China are concerned that the regulations could allow authorities to penalize companies and executives for shifting supply chains away from the country.`\
 https://www.nytimes.com/2026/04/14/business/china-foreign-companies-supply-chain.html
-
-**Trump publicó una foto suya como Jesús, la borró y ahora busca justificarse**\
-`La imagen mostraba al presidente Trump bañado en luz divina y vestido con túnicas religiosas. Su interpretación fue que la imagen lo representaba como un médico, no como Jesucristo.`\
-https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/trump-borra-imagen-jesus.html
-
-**Netflix Leader Makes Rare Overture to Cinema Owners**\
-`Ted Sarandos attended a major movie theater conference for the first time and met with domestic and international owners, people familiar with the meetings said.`\
-https://www.nytimes.com/2026/04/14/business/media/netflix-sarandos-cinema-owners-cinemacon.html
-
-**With Algeria Visit, Pope Leo Returns to His Augustinian Roots**\
-`Some theologians say the pontiff’s understanding of Augustine’s teachings helped inform his response to President Trump’s negative comments about him.`\
-https://www.nytimes.com/2026/04/14/world/africa/pope-leo-algeria-africa-visit.html
 
