@@ -1,3 +1,7 @@
+**Storms Leave a Trail of Warnings Across the Midwest**\
+`Forecasters have warned that tens of millions of people from Texas to New England could see some form of severe weather this week as storms move through.`\
+https://www.nytimes.com/2026/04/13/weather/kansas-wisconsin-michigan-tornado-storm-forecast.html
+
 **Lab Work**\
 `High-fives all around for Mark Diehl’s puzzle.`\
 https://www.nytimes.com/2026/04/13/crosswords/daily-puzzle-2026-04-14.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/13/us/politics/swalwell-california-governor.html
 **11 Unforgettable Looks at Coachella**\
 `The fashion at the festival is rarely rooted in reality. That’s what makes it fun.`\
 https://www.nytimes.com/2026/04/13/style/coachella-fashion-justin-bieber.html
-
-**The U.S. Blockades Iran’s Ports**\
-`Also, Trump clashes with the pope. Here’s the latest at the end of Monday.`\
-https://www.nytimes.com/2026/04/13/briefing/the-us-blockades-irans-ports.html
 
