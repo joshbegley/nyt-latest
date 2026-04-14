@@ -1,3 +1,7 @@
+**After 10 Years, She’s Still Waking Up on the Same Day**\
+`Solvej Balle’s cult hit series about a woman trapped in a time loop continues with a fourth volume.`\
+https://www.nytimes.com/2026/04/14/books/review/solvej-balle-calculation-of-volume-iv.html
+
 **Remembering Cars Without Seatbelts and Athletes Who Smoked**\
 `Ricky Cobb has built a big online following with his irreverent postings about the absurdities of the 1970s.`\
 https://www.nytimes.com/2026/04/14/business/ricky-cobb-1970s-super70ssports.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/14/crosswords/strands-sidekick-773.html
 **Wordle Review No. 1,761**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, April 15, 2026.`\
 https://www.nytimes.com/2026/04/14/crosswords/wordle-review-1761.html
-
-**Ex-Student Opens Fire at High School in Turkey, Wounding 16**\
-`Officials said the teenage attacker killed himself when cornered by the police. The authorities are investigating possible motives.`\
-https://www.nytimes.com/2026/04/14/world/middleeast/turkey-school-shooting-siverek.html
 
