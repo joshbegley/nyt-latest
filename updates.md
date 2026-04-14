@@ -1,3 +1,11 @@
+**Israel’s Spy Chief Addresses Criticism About the War With Iran**\
+`The Mossad head said Israel’s mission would not be complete until the Iranian regime was replaced, after criticism that the war has left Iran’s theocratic government in place.`\
+https://www.nytimes.com/2026/04/14/world/middleeast/israel-barnea-mossad-iran.html
+
+**Abrupt Departures Could Set Off Scramble for House Seats in California and Texas**\
+`Aides to Gavin Newsom and Greg Abbott were weighing to call quick elections to replace two House members accused of sexual misconduct.`\
+https://www.nytimes.com/2026/04/14/us/swalwell-gonzales-resignations-texas-california-special-elections.html
+
 **The Podcaster Recho Omondi Has No Hang-Ups About Dining Alone**\
 `The designer and host of “The Cutting Room Floor” fashion podcast answers the Where to Eat questionnaire.`\
 https://www.nytimes.com/2026/04/14/dining/podcaster-recho-omondi.html

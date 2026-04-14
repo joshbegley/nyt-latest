@@ -1,3 +1,11 @@
+**Israel’s Spy Chief Addresses Criticism About the War With Iran**\
+`The Mossad head said Israel’s mission would not be complete until the Iranian regime was replaced, after criticism that the war has left Iran’s theocratic government in place.`\
+https://www.nytimes.com/2026/04/14/world/middleeast/israel-barnea-mossad-iran.html
+
+**Abrupt Departures Could Set Off Scramble for House Seats in California and Texas**\
+`Aides to Gavin Newsom and Greg Abbott were weighing to call quick elections to replace two House members accused of sexual misconduct.`\
+https://www.nytimes.com/2026/04/14/us/swalwell-gonzales-resignations-texas-california-special-elections.html
+
 **The Podcaster Recho Omondi Has No Hang-Ups About Dining Alone**\
 `The designer and host of “The Cutting Room Floor” fashion podcast answers the Where to Eat questionnaire.`\
 https://www.nytimes.com/2026/04/14/dining/podcaster-recho-omondi.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/14/technology/amazon-buys-globalstar-space-inter
 **Appeals Court Ends Contempt Inquiry Into Deportation Flights**\
 `A federal judge’s nearly yearlong effort to investigate whether the Trump administration had violated his order had become a point of contention in the president’s battles with the courts.`\
 https://www.nytimes.com/2026/04/14/us/politics/deportation-flights-trump-contempt.html
-
-**Can Sam Altman Be Trusted?**\
-`The journalists Ronan Farrow and Andrew Marantz investigated some of the doubts surrounding Altman, the leader of OpenAI, in a recent article for The New Yorker. They discuss their findings with Casey Newton and Kevin Roose, the hosts of the “Hard Fork” podcast.`\
-https://www.nytimes.com/video/podcasts/100000010840628/can-sam-altman-be-trusted.html
-
-**En Canadá, los liberales liderados por Carney obtienen la mayoría legislativa**\
-`El primer ministro Mark Carney, limitado por dirigir un gobierno en minoría durante el último año, obtuvo la mayoría en la Cámara de los Comunes tras las elecciones extraordinarias celebradas el lunes.`\
-https://www.nytimes.com/es/2026/04/14/espanol/mundo/canada-elecciones-resultados.html
 
