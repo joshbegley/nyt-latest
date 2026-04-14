@@ -1,3 +1,7 @@
+**Netflix Leader Makes Rare Overture to Cinema Owners**\
+`Ted Sarandos attended a major movie theater conference for the first time and met with domestic and international owners, people familiar with the meetings said.`\
+https://www.nytimes.com/2026/04/14/business/media/netflix-sarandos-cinema-owners-cinemacon.html
+
 **With Algeria Visit, Pope Leo Returns to His Augustinian Roots**\
 `Some theologians say the pontiff’s understanding of Augustine’s teachings helped inform his response to President Trump’s negative comments about him.`\
 https://www.nytimes.com/2026/04/14/world/africa/pope-leo-algeria-africa-visit.html
