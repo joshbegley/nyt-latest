@@ -1,3 +1,11 @@
+**Will Viktor Orban’s Legacy Live On in Brussels, Even Without Him?**\
+`Viktor Orban, Hungary’s newly ousted prime minister, helped to finance a Brussels think tank that pushes his populist vision. It will outlast him, at least for a while.`\
+https://www.nytimes.com/2026/04/14/world/europe/orban-brussels-hungary.html
+
+**Olivia Troye, Ex-Pence Aide, Runs for the House as a Democrat**\
+`After spending most of her Washington career as a Republican, she joins a crowded field of Democrats running in a Virginia district that doesn’t exist yet.`\
+https://www.nytimes.com/2026/04/14/us/politics/olivia-troye-virginia-congress.html
+
 **The Pope and the President**\
 `The two most powerful Americans in the world are clashing.`\
 https://www.nytimes.com/2026/04/14/briefing/the-pope-and-the-president.html
