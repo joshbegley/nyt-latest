@@ -1,3 +1,11 @@
+**¿El modelo Venezuela?**\
+`El presidente Trump califica la destitución de Nicolás Maduro como “el escenario perfecto”. Pero no todo va bien para Estados Unidos en Venezuela.`\
+https://www.nytimes.com/es/2026/04/14/espanol/mundo/trump-modelo-venezuela.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/world/middleeast/100000010839919/14vid-lebanon-tyre-strike-ru-97512.html
+
 **The Workers Letting A.I. Do Their Jobs**\
 `In an era of agents powered by artificial intelligence, many programmers are barely programming.`\
 https://www.nytimes.com/2026/04/14/podcasts/the-daily/ai-coders.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/14/business/energy-environment/iran-trump-blocka
 **Carney Seals a Majority and Remakes Canada’s Liberal Party**\
 `The rising star in global centrist politics has secured a majority in the Canadian Parliament. Critics are crying foul.`\
 https://www.nytimes.com/2026/04/14/world/canada/election-carney-liberal-party.html
-
-**Trump’s Attacks on Pope Leo Create Fresh Midterm Headaches for G.O.P.**\
-`Republicans are counting on the votes of Catholics to maintain control of Congress.`\
-https://www.nytimes.com/2026/04/14/us/politics/trump-attacks-pope-midterms.html
-
-**The Cost of Living Weighs on New Yorkers’ Minds**\
-`People are cooking at home and cutting back on luxuries as inflation makes it harder to get by.`\
-https://www.nytimes.com/2026/04/14/nyregion/the-cost-of-living-weighs-on-new-yorkers-minds.html
 
