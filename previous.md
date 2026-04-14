@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/14/world/iran-war-oil-hormuz/heres-the-latest
+
 **‘Extremely Dangerous’ Super Typhoon Barrels Toward Northern Mariana Islands**\
 `The storm, named Sinlaku, was expected to make landfall on Tuesday evening in Tinian and Saipan, where tens of thousands of people were urged to shelter in place.`\
 https://www.nytimes.com/2026/04/14/world/asia/typhoon-sinlaku-guam-mariana.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/trump-salud-mental-
 **Is It Too Much to Ask to Care About Sudan?**\
 `I have seen what can happen when Americans care about a wrong in the world.`\
 https://www.nytimes.com/2026/04/14/opinion/international-world/sudan-war-anniversary-refugees.html
-
-**China Imposes New Rules to Block Foreign Companies From ‘Decoupling’**\
-`Multinationals in China are concerned that the regulations could allow authorities to penalize companies and executives for shifting supply chains away from the country.`\
-https://www.nytimes.com/2026/04/14/business/china-foreign-companies-supply-chain.html
 

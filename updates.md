@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/14/world/iran-war-oil-hormuz/heres-the-latest
+
 **‘Extremely Dangerous’ Super Typhoon Barrels Toward Northern Mariana Islands**\
 `The storm, named Sinlaku, was expected to make landfall on Tuesday evening in Tinian and Saipan, where tens of thousands of people were urged to shelter in place.`\
 https://www.nytimes.com/2026/04/14/world/asia/typhoon-sinlaku-guam-mariana.html
