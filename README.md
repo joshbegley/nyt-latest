@@ -1,10 +1,14 @@
+**Have Mental Health Concerns Influenced Your Choice to Have Children?**\
+`If you are on the fence, or have already made a decision, we want to hear about it.`\
+https://www.nytimes.com/2026/04/14/well/mind/mental-health-children-fertility.html
+
 **3 Years After a Landmark Law, Some Pregnant Workers Still Don’t Get Basic Accommodations**\
 `Companies have denied requests from women asking to sit during work or take extra breaks, leading some of them to develop health complications or take unpaid leave.`\
 https://www.nytimes.com/2026/04/14/well/live/pregnant-workers-amazon-speedway.html
 
 **Pittsburgh Post-Gazette Saved From Closure by Nonprofit**\
 `The Venetoulis Institute of Local Journalism, which operates The Baltimore Banner, has bought The Post-Gazette. The newspaper was set to shut down next month.`\
-https://www.nytimes.com/2026/04/14/business/media/pittsburgh-post-gazette-saved-from-closure-by-nonprofit.html
+https://www.nytimes.com/2026/04/14/business/media/pittsburgh-post-gazette-bought-venetoulis-institute.html
 
 **A Dinner to Keep the Vacation Vibes Going**\
 `A quick escovitch, a timeless sheet-pan chicken and a surprising tofu flex help to keep that spring break glow.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/14/briefing/the-pope-and-the-president.html
 **¿El modelo Venezuela?**\
 `El presidente Trump califica la destitución de Nicolás Maduro como “el escenario perfecto”. Pero no todo va bien para Estados Unidos en Venezuela.`\
 https://www.nytimes.com/es/2026/04/14/espanol/mundo/trump-modelo-venezuela.html
-
-****\
-``\
-https://www.nytimes.com/video/embedded/world/middleeast/100000010839919/14vid-lebanon-tyre-strike-ru-97512.html
 
