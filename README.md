@@ -1,3 +1,7 @@
+**Texas Governor Threatens to Cut Funding for Houston Police Over ICE**\
+`The office of Gov. Greg Abbott wants the city to stop enforcing a new ordinance governing how its officers engage with ICE.`\
+https://www.nytimes.com/2026/04/13/us/abbott-threatens-houston-police-funding-ice.html
+
 **Storms Leave a Trail of Warnings Across the Midwest**\
 `Forecasters have warned that tens of millions of people from Texas to New England could see some form of severe weather this week as storms move through.`\
 https://www.nytimes.com/2026/04/13/weather/kansas-wisconsin-michigan-tornado-storm-forecast.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/13/us/texas-representative-tony-gonzales-resigns
 **What’s Next in the Volatile California Governor’s Race?**\
 `For Democrats, the drama is reverberating well beyond the state.`\
 https://www.nytimes.com/2026/04/13/us/politics/swalwell-california-governor.html
-
-**11 Unforgettable Looks at Coachella**\
-`The fashion at the festival is rarely rooted in reality. That’s what makes it fun.`\
-https://www.nytimes.com/2026/04/13/style/coachella-fashion-justin-bieber.html
 
