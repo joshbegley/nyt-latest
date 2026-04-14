@@ -1,3 +1,19 @@
+**With Algeria Visit, Pope Leo Returns to His Augustinian Roots**\
+`Some theologians say the pontiff’s understanding of Augustine’s teachings helped inform his response to President Trump’s negative comments about him.`\
+https://www.nytimes.com/2026/04/14/world/africa/pope-leo-algeria-africa-visit.html
+
+**Corrections: April 14, 2026**\
+`Corrections that appeared in print on Tuesday, April 14, 2026.`\
+https://www.nytimes.com/2026/04/14/pageoneplus/corrections-april-14-2026.html
+
+**Quote of the Day: Viktor Orban, Populist, Lost His Popularity**\
+`Quotation of the Day for Tuesday, April 14, 2026.`\
+https://www.nytimes.com/2026/04/13/pageoneplus/quote-of-the-day-viktor-orban-populist-lost-his-popularity.html
+
+**Texas Governor Threatens to Cut Funding for Houston Police Over ICE**\
+`The office of Gov. Greg Abbott wants the city to stop enforcing a new ordinance governing how its officers engage with ICE.`\
+https://www.nytimes.com/2026/04/13/us/abbott-threatens-houston-police-funding-ice.html
+
 **Storms Leave a Trail of Warnings Across the Midwest**\
 `Forecasters have warned that tens of millions of people from Texas to New England could see some form of severe weather this week as storms move through.`\
 https://www.nytimes.com/2026/04/13/weather/kansas-wisconsin-michigan-tornado-storm-forecast.html

@@ -1,3 +1,19 @@
+**With Algeria Visit, Pope Leo Returns to His Augustinian Roots**\
+`Some theologians say the pontiff’s understanding of Augustine’s teachings helped inform his response to President Trump’s negative comments about him.`\
+https://www.nytimes.com/2026/04/14/world/africa/pope-leo-algeria-africa-visit.html
+
+**Corrections: April 14, 2026**\
+`Corrections that appeared in print on Tuesday, April 14, 2026.`\
+https://www.nytimes.com/2026/04/14/pageoneplus/corrections-april-14-2026.html
+
+**Quote of the Day: Viktor Orban, Populist, Lost His Popularity**\
+`Quotation of the Day for Tuesday, April 14, 2026.`\
+https://www.nytimes.com/2026/04/13/pageoneplus/quote-of-the-day-viktor-orban-populist-lost-his-popularity.html
+
+**Texas Governor Threatens to Cut Funding for Houston Police Over ICE**\
+`The office of Gov. Greg Abbott wants the city to stop enforcing a new ordinance governing how its officers engage with ICE.`\
+https://www.nytimes.com/2026/04/13/us/abbott-threatens-houston-police-funding-ice.html
+
 **Storms Leave a Trail of Warnings Across the Midwest**\
 `Forecasters have warned that tens of millions of people from Texas to New England could see some form of severe weather this week as storms move through.`\
 https://www.nytimes.com/2026/04/13/weather/kansas-wisconsin-michigan-tornado-storm-forecast.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/video/style/100000010815337/euphoria-aesthetics-styles-r
 **Why Are New York Restaurants Starting to Look Like Offices?**\
 `With more people resuming their commutes post-pandemic, the fantasy of a well-designed, well-run workplace beckons.`\
 https://www.nytimes.com/2026/04/13/t-magazine/nyc-restaurants-offices-modernist-design.html
-
-**Amid War, G.O.P. Puts Off Testimony From Senior Pentagon Commanders**\
-`House lawmakers had been scheduled to hear testimony next week from the head of military operations in the Middle East, but the Republican majority postponed the hearing until late May.`\
-https://www.nytimes.com/2026/04/13/world/middleeast/iran-war-pentagon-officials-testimony-trump.html
-
-**Tony Gonzales, a Texas Congressman, Says He Will Resign**\
-`The third-term Republican lawmaker is accused of coercing a staff member into a sexual relationship.`\
-https://www.nytimes.com/2026/04/13/us/texas-representative-tony-gonzales-resigns.html
-
-**What’s Next in the Volatile California Governor’s Race?**\
-`For Democrats, the drama is reverberating well beyond the state.`\
-https://www.nytimes.com/2026/04/13/us/politics/swalwell-california-governor.html
-
-**11 Unforgettable Looks at Coachella**\
-`The fashion at the festival is rarely rooted in reality. That’s what makes it fun.`\
-https://www.nytimes.com/2026/04/13/style/coachella-fashion-justin-bieber.html
 
