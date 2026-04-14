@@ -1,3 +1,11 @@
+**Moon Rocks! 9 Lunar Songs for the Artemis Crew**\
+`Hear from David Bowie, Neko Case, Arthur Russell and more artists inspired by our poetic, mysterious satellite.`\
+https://www.nytimes.com/2026/04/14/arts/music/amplifier-newsletter-moon-songs.html
+
+**The Man Who Defeated Viktor Orban**\
+`For years, Peter Magyar was a loyal ally of Viktor Orban, the far-right Hungarian leader. Then he changed sides — and defeated his former boss in a landslide victory on Sunday. Does he represent real change?`\
+https://www.nytimes.com/2026/04/14/world/europe/viktor-orban-peter-magyar-election.html
+
 **Why Is Everyone Spooked by Claude Mythos Preview?**\
 `This week on “Hard Fork” from The New York Times, the hosts Casey Newton and Kevin Roose discuss the new A.I. model from Anthropic, Claude Mythos Preview.`\
 https://www.nytimes.com/video/podcasts/100000010840693/why-is-everyone-spooked-by-claude-mythos-preview.html
@@ -7,7 +15,7 @@ https://www.nytimes.com/video/podcasts/100000010840693/why-is-everyone-spooked-b
 https://www.nytimes.com/2026/04/14/technology/amazon-buys-globalstar-space-internet.html
 
 **Appeals Court Ends Contempt Inquiry Into Deportation Flights**\
-`A federal judge’s nearly yearlong effort to investigate whether the Trump administration had violated his order had become a flashpoint in the president’s battles with the courts.`\
+`A federal judge’s nearly yearlong effort to investigate whether the Trump administration had violated his order had become a point of contention in the president’s battles with the courts.`\
 https://www.nytimes.com/2026/04/14/us/politics/deportation-flights-trump-contempt.html
 
 **Can Sam Altman Be Trusted?**\
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/14/arts/design/somali-museum-minnesota.html
 **A Benefactor Gets Personal at the Museum She Founded 25 Years Ago**\
 `Emily Rauh Pulitzer, a veteran curator and collector, leans heavily on sculpture and drawing in a show of some 85 works.`\
 https://www.nytimes.com/2026/04/14/arts/design/emily-pulitzer-st-louis.html
-
-**EE. UU. está negociando un acuerdo con Irán que permitiría ganar tiempo, otra vez**\
-`Estados Unidos propuso una “suspensión” de 20 años de toda actividad nuclear, mientras el presidente Trump exige garantías de que Irán nunca podrá construir un arma nuclear.`\
-https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/guerra-iran-acuerdo.html
-
-**Adriano Goldschmied, ‘Godfather’ of Modern Denim, Dies at 82**\
-`An energetic entrepreneur, he developed more than 50 brands of jeans, including Gap 1969 and other cult classics.`\
-https://www.nytimes.com/2026/04/14/fashion/adriano-goldschmied-dead.html
 
