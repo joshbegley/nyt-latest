@@ -66,7 +66,7 @@ https://www.nytimes.com/interactive/2026/04/14/magazine/trump-dhs-ice-officers-i
 `Investors saw a possible path to peace, with the United States and Iran trading proposals for Iran to suspend nuclear activity.`\
 https://www.nytimes.com/2026/04/14/business/oil-gas-stocks-prices.html
 
-**A Road Map for Defeating Trumpism**\
+**Here’s How to Defeat Trumpism**\
 `The free world should take an honest look at how Hungary’s opposition party defeated a far-right giant.`\
 https://www.nytimes.com/2026/04/14/opinion/magyar-orban-hungary-trump-defeat.html
 
