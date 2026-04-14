@@ -1,3 +1,7 @@
+**A New York Museum Honors Its Real-Life ‘Indiana Jones’ Dinosaur Hunters**\
+`In a new and ongoing exhibition, the American Museum of Natural History highlights the findings of Mark Norell and other fossil hunters responsible for its most important discoveries.`\
+https://www.nytimes.com/2026/04/14/arts/design/american-natural-history-museum-fossils.html
+
 **Mario Ríos Montt, Bishop and Brother of Genocidal General, Dies at 94**\
 `In Guatemala, he led the Catholic Church’s human rights office. His brother, a dictator who took power in a coup, was convicted of crimes against humanity.`\
 https://www.nytimes.com/2026/04/14/world/americas/mario-rios-montt-dead.html
