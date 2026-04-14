@@ -1,3 +1,11 @@
+**N.F.L. Reporter Resigns From The Athletic Amid an Investigation**\
+`The publication, which is owned by The New York Times, was investigating the conduct of Dianna Russini after photographs showed her with the head coach of the New England Patriots.`\
+https://www.nytimes.com/2026/04/14/business/media/dianna-russini-athletic-resigns.html
+
+**Our Favorite Indoor Gardens**\
+`Homes that have successfully brought the outside in.`\
+https://www.nytimes.com/2026/04/14/t-magazine/best-indoor-garden-design.html
+
 **In Setback for G.O.P., Trump Appointee Will Not Run for Swing House Seat**\
 `Anthony D’Esposito, a Republican, decided not to seek his former seat, which will hurt his party’s chances of unseating Representative Laura Gillen on Long Island.`\
 https://www.nytimes.com/2026/04/14/nyregion/desposito-gillen-driscoll-election.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/14/arts/music/amplifier-newsletter-moon-songs.ht
 **The Man Who Defeated Viktor Orban**\
 `For years, Peter Magyar was a loyal ally of Viktor Orban, the far-right Hungarian leader. Then he changed sides — and defeated his former boss in a landslide victory on Sunday. Does he represent real change?`\
 https://www.nytimes.com/2026/04/14/world/europe/viktor-orban-peter-magyar-election.html
-
-**Why Is Everyone Spooked by Claude Mythos Preview?**\
-`This week on “Hard Fork” from The New York Times, the hosts Casey Newton and Kevin Roose discuss the new A.I. model from Anthropic, Claude Mythos Preview.`\
-https://www.nytimes.com/video/podcasts/100000010840693/why-is-everyone-spooked-by-claude-mythos-preview.html
-
-**Amazon Buys Globalstar for $10.8 Billion to Build Its Efforts in Space**\
-`The e-commerce giant is buying Globalstar, a satellite communications company, as it aims to expand its own satellite internet service to compete with Elon Musk’s Starlink.`\
-https://www.nytimes.com/2026/04/14/technology/amazon-buys-globalstar-space-internet.html
 
