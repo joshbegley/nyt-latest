@@ -1,3 +1,11 @@
+**Ishmael Jaffree, Who Won Case Rejecting School Prayer, Dies at 80**\
+`An Alabama parent, he objected to prayer in his children’s classrooms. The Supreme Court ruled for him, a high-water mark in the push for the strict separation of church and state.`\
+https://www.nytimes.com/2026/04/14/us/ishmael-jaffree-dead.html
+
+**Sam Altman and Dario Amodei’s First Meeting**\
+`This week on “Hard Fork, the hosts Casey Newton and Kevin Roose talk with Ronan Farrow and Andrew Marantz about their recent New Yorker piece on Sam Altman, and the circumstances of his first meeting with Dario Amodei, the former OpenAI executive and current Anthropic C.E.O.`\
+https://www.nytimes.com/video/podcasts/100000010840757/sam-altman-and-dario-amodeis-first-meeting.html
+
 **Moon Rocks! 9 Lunar Songs for the Artemis Crew**\
 `Hear from David Bowie, Neko Case, Arthur Russell and more artists inspired by our poetic, mysterious satellite.`\
 https://www.nytimes.com/2026/04/14/arts/music/amplifier-newsletter-moon-songs.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/14/business/scott-bessent-climate-change-trump.h
 **Texas A&M Picks an Insider for President After Months of Conflict**\
 `Debates over how to teach about gender, sexuality and other topics have shaken the school, and lead to the ouster of the previous president at the College Station campus last summer.`\
 https://www.nytimes.com/2026/04/14/us/texas-am-president.html
-
-**At a Difficult Time, a Minnesota Museum Offers Respite to Somalis**\
-`As one of the few institutions of its kind in the world, the Somali Museum of Minnesota has become a center of the immigrant community.`\
-https://www.nytimes.com/2026/04/14/arts/design/somali-museum-minnesota.html
-
-**A Benefactor Gets Personal at the Museum She Founded 25 Years Ago**\
-`Emily Rauh Pulitzer, a veteran curator and collector, leans heavily on sculpture and drawing in a show of some 85 works.`\
-https://www.nytimes.com/2026/04/14/arts/design/emily-pulitzer-st-louis.html
 

@@ -1,3 +1,11 @@
+**Ishmael Jaffree, Who Won Case Rejecting School Prayer, Dies at 80**\
+`An Alabama parent, he objected to prayer in his children’s classrooms. The Supreme Court ruled for him, a high-water mark in the push for the strict separation of church and state.`\
+https://www.nytimes.com/2026/04/14/us/ishmael-jaffree-dead.html
+
+**Sam Altman and Dario Amodei’s First Meeting**\
+`This week on “Hard Fork, the hosts Casey Newton and Kevin Roose talk with Ronan Farrow and Andrew Marantz about their recent New Yorker piece on Sam Altman, and the circumstances of his first meeting with Dario Amodei, the former OpenAI executive and current Anthropic C.E.O.`\
+https://www.nytimes.com/video/podcasts/100000010840757/sam-altman-and-dario-amodeis-first-meeting.html
+
 **Moon Rocks! 9 Lunar Songs for the Artemis Crew**\
 `Hear from David Bowie, Neko Case, Arthur Russell and more artists inspired by our poetic, mysterious satellite.`\
 https://www.nytimes.com/2026/04/14/arts/music/amplifier-newsletter-moon-songs.html
