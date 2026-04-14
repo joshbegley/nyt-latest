@@ -1,3 +1,27 @@
+**La guerra en Medio Oriente frenará el crecimiento económico mundial, advierte el FMI**\
+`El Fondo Monetario Internacional también planteó la posibilidad de una recesión mundial y otro brote de inflación.`\
+https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/guerra-economia-petroleo-fmi.html
+
+**Democrats’ Redistricting Effort in Maryland Runs Out of Time**\
+`State Democrats butted heads over a gerrymandering plan that could have eliminated the state’s lone Republican seat in the U.S. House.`\
+https://www.nytimes.com/2026/04/14/us/politics/democrat-redistricting-effort-maryland-fails.html
+
+**Trump Administration Issues First ‘Weaponization’ Report, Claiming Bias Under Biden**\
+`The report is part of the president’s effort to claim anti-conservative and anti-Christian biases in federal law enforcement, even as he pushes to wield the legal system against his political enemies.`\
+https://www.nytimes.com/2026/04/14/us/politics/trump-weaponization-report-biden-doj-abortion.html
+
+**See the Moment the Artemis II Astronauts Exit the Orion Capsule**\
+`New video shows the moment the Orion capsule opened after landing last week. Inside were the Artemis II astronauts who had completed a 10-day mission around the moon.`\
+https://www.nytimes.com/video/science/space/100000010840190/artemis-ii-astronauts-capsule-earth-return.html
+
+**From Cartier, a Watch Like a Sports Car**\
+`The Roadster, which first launched in the early aughts and takes inspiration from midcentury convertibles, has looped back around.`\
+https://www.nytimes.com/2026/04/14/t-magazine/cartier-roadster.html
+
+**Bessent Questions the Cause of Climate Change and Its Economic Toll**\
+`The Treasury secretary said it is “difficult to deconstruct” the reasons for global warming, which he described as a belief of the “elite.”`\
+https://www.nytimes.com/2026/04/14/business/scott-bessent-climate-change-trump.html
+
 **Texas A&M Picks an Insider for President After Months of Conflict**\
 `Debates over how to teach about gender, sexuality and other topics have shaken the school, and lead to the ouster of the previous president at the College Station campus last summer.`\
 https://www.nytimes.com/2026/04/14/us/texas-am-president.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/04/14/business/media/pittsburgh-post-gazette-bought
 **A Dinner to Keep the Vacation Vibes Going**\
 `A quick escovitch, a timeless sheet-pan chicken and a surprising tofu flex help to keep that spring break glow.`\
 https://www.nytimes.com/2026/04/14/dining/a-dinner-to-keep-the-vacation-vibes-going.html
-
-**Italy Suspends Defense Pact With Israel, Further Straining Ties**\
-`The move by Italy, once considered a strong ally of Israel, reflected growing anger over Israeli aggression in the Middle East. President Trump criticized Italy’s stance on the war.`\
-https://www.nytimes.com/2026/04/14/world/middleeast/italy-israel-defense-pact.html
-
-**After 10 Years, She’s Still Waking Up on the Same Day**\
-`Solvej Balle’s cult hit series about a woman trapped in a time loop continues with a fourth volume.`\
-https://www.nytimes.com/2026/04/14/books/review/solvej-balle-calculation-of-volume-iv.html
-
-**Remembering Cars Without Seatbelts and Athletes Who Smoked**\
-`Ricky Cobb has built a big online following with his irreverent postings about the absurdities of the 1970s.`\
-https://www.nytimes.com/2026/04/14/business/ricky-cobb-1970s-super70ssports.html
-
-**JPMorgan Sees Resiliency in U.S. Economy Despite Iran War**\
-`The nation’s largest bank said it earned record trading profits in the first quarter but tempered expectations overall for its business.`\
-https://www.nytimes.com/2026/04/14/business/jpmorgan-wells-fargo-citi-earnings.html
-
-**Trump’s Fed Pick Discloses Vast Wealth Ahead of Confirmation Hearing**\
-`Kevin M. Warsh vowed to divest a substantial amount of his more than $100 million in assets as he faces a complicated path to becoming the next chair of the Federal Reserve.`\
-https://www.nytimes.com/2026/04/14/business/trump-federal-reserve-warsh.html
-
-**Xi Offers Veiled Critique of U.S. in Rare Comments on War in Iran**\
-`China’s leader, Xi Jinping, said that the world cannot risk reverting “to the law of the jungle.” Beijing has taken a more active role diplomatically as the crisis in the Strait of Hormuz persists.`\
-https://www.nytimes.com/2026/04/14/world/middleeast/xi-iran-war-china.html
 

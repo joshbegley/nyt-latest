@@ -1,3 +1,27 @@
+**La guerra en Medio Oriente frenará el crecimiento económico mundial, advierte el FMI**\
+`El Fondo Monetario Internacional también planteó la posibilidad de una recesión mundial y otro brote de inflación.`\
+https://www.nytimes.com/es/2026/04/14/espanol/estados-unidos/guerra-economia-petroleo-fmi.html
+
+**Democrats’ Redistricting Effort in Maryland Runs Out of Time**\
+`State Democrats butted heads over a gerrymandering plan that could have eliminated the state’s lone Republican seat in the U.S. House.`\
+https://www.nytimes.com/2026/04/14/us/politics/democrat-redistricting-effort-maryland-fails.html
+
+**Trump Administration Issues First ‘Weaponization’ Report, Claiming Bias Under Biden**\
+`The report is part of the president’s effort to claim anti-conservative and anti-Christian biases in federal law enforcement, even as he pushes to wield the legal system against his political enemies.`\
+https://www.nytimes.com/2026/04/14/us/politics/trump-weaponization-report-biden-doj-abortion.html
+
+**See the Moment the Artemis II Astronauts Exit the Orion Capsule**\
+`New video shows the moment the Orion capsule opened after landing last week. Inside were the Artemis II astronauts who had completed a 10-day mission around the moon.`\
+https://www.nytimes.com/video/science/space/100000010840190/artemis-ii-astronauts-capsule-earth-return.html
+
+**From Cartier, a Watch Like a Sports Car**\
+`The Roadster, which first launched in the early aughts and takes inspiration from midcentury convertibles, has looped back around.`\
+https://www.nytimes.com/2026/04/14/t-magazine/cartier-roadster.html
+
+**Bessent Questions the Cause of Climate Change and Its Economic Toll**\
+`The Treasury secretary said it is “difficult to deconstruct” the reasons for global warming, which he described as a belief of the “elite.”`\
+https://www.nytimes.com/2026/04/14/business/scott-bessent-climate-change-trump.html
+
 **JPMorgan Sees Resiliency in U.S. Economy Despite Iran War**\
 `The nation’s largest bank said it earned record trading profits in the first quarter but tempered expectations overall for its business.`\
 https://www.nytimes.com/2026/04/14/business/jpmorgan-wells-fargo-citi-earnings.html
