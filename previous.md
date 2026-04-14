@@ -1,3 +1,15 @@
+**Mario Ríos Montt, Prelate and Brother of Genocidal General, Dies at 94**\
+`In Guatemala, he led the Catholic Church’s human rights office. His brother, a dictator who took power in a coup, was convicted of crimes against humanity.`\
+https://www.nytimes.com/2026/04/14/world/americas/mario-rios-montt-dead.html
+
+**Rare Direct Talks Between Israel and Lebanon Focus on Hezbollah**\
+`A meeting between Israeli and Lebanese officials, the first in decades, came as the U.S. blockade of Iranian ports entered its second day.`\
+https://www.nytimes.com/2026/04/14/world/middleeast/israell-lebanon-talks.html
+
+**Residents Told to Evacuate After Michigan Levee Breached**\
+`Officials have been worried for days about potential flooding and dam failures around Cheboygan.`\
+https://www.nytimes.com/2026/04/14/weather/cheboygan-dam-flood-michigan.html
+
 **Former U.C.L.A. Gynecologist Is Sentenced to 11 Years for Sexual Abuse**\
 `James M. Heaps pleaded guilty on Tuesday to sexually abusing patients, sparing them from having to testify at another trial after his conviction was overturned in February.`\
 https://www.nytimes.com/2026/04/14/us/ucla-obgyn-sentenced-sexual-abuse.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/video/style/100000010832658/wnba-draft-fashion-basketbal
 **A New Accuser Says Eric Swalwell Sexually Assaulted Her**\
 `The woman said Mr. Swalwell, who resigned from Congress on Tuesday afternoon, raped her in a West Hollywood hotel room in 2018. She said she believed she was drugged.`\
 https://www.nytimes.com/2026/04/14/us/lonna-drewes-eric-swalwell-sexual-assault.html
-
-**The Treasury Secretary vs. Climate Science**\
-`In comments on Tuesday, Treasury Secretary Scott Bessent dismissed the scientific consensus on the causes of climate change.`\
-https://www.nytimes.com/2026/04/14/climate/scott-bessent-climate-change-science.html
-
-**Listen to the trailer for ‘The Good Whale’**\
-`Our new show drops Nov. 14.`\
-https://www.nytimes.com/2026/04/14/podcasts/listen-to-the-trailer-for-the-good-whale.html
-
-**Central U.S. Braces for Yet Another Wave of Severe Storms**\
-`More than 125 million people face some risk of severe weather on Tuesday, forecasters warned, amid a multiday outbreak of storms.`\
-https://www.nytimes.com/2026/04/14/weather/tornado-storm-forecast-midwest-oklahoma-updates.html
 

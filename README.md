@@ -1,4 +1,4 @@
-**Mario Ríos Montt, Prelate and Brother of Genocidal General, Dies at 94**\
+**Mario Ríos Montt, Bishop and Brother of Genocidal General, Dies at 94**\
 `In Guatemala, he led the Catholic Church’s human rights office. His brother, a dictator who took power in a coup, was convicted of crimes against humanity.`\
 https://www.nytimes.com/2026/04/14/world/americas/mario-rios-montt-dead.html
 
