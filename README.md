@@ -1,3 +1,11 @@
+**Sign Up for the Book Review’s 2026 Challenge**\
+`(It’s about poetry. And you’ll love it.)`\
+https://www.nytimes.com/interactive/2026/04/13/books/poetry-week-newsletter-signup.html
+
+**Vance Says Pope Leo Should Stay Out of U.S. Affairs**\
+`The vice president, a Catholic, defended President Trump, who had accused the pope of being too liberal and “weak on crime.”The pontiff responded that he had “no fear of the Trump administration.”`\
+https://www.nytimes.com/2026/04/13/us/politics/jd-vance-pope-leo-trump.html
+
 **Youths Who Sued Trump Over Orders to ‘Unleash’ Energy Try to Revive Case**\
 `Appealing the dismissal of their suit, they argued that executive orders to promote fossil fuels endangered their futures and violated their constitutional rights.`\
 https://www.nytimes.com/2026/04/13/climate/trump-climate-youth-lawsuit.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/interactive/2026/04/13/learning/13StudentNewsQuiz.html
 **La ‘economía de las molestias’ es más que una molestia**\
 `Una nueva estimación cifra en 165.000 millones de dólares el costo de hacerle frente a las llamadas automatizadas, las tarifas ocultas y los chatbots de atención al cliente.`\
 https://www.nytimes.com/es/2026/04/13/espanol/negocios/llamadas-correos-no-deseados-costo.html
-
-**U.S. Begins a Blockade of the Strait of Hormuz**\
-`European countries declined to take part in the action, which is designed to pressure Iran into making concessions by cutting off its oil income.`\
-https://www.nytimes.com/2026/04/13/world/middleeast/blockade-hormuz-iran-united-states.html
-
-**The Venezuela Model**\
-`President Trump calls the removal of Nicolás Maduro “the perfect scenario.” But not everything is going right for the U.S. in Venezuela.`\
-https://www.nytimes.com/2026/04/13/world/venezuela-oil-us-blockade-hormuz-pope-leo.html
 
