@@ -1,3 +1,19 @@
+**La caída de Orbán es una oportunidad de oro**\
+`Los votantes demostraron que la democracia puede ser restaurada pacíficamente por el pueblo.`\
+https://www.nytimes.com/es/2026/04/15/espanol/opinion/hungria-orban-derrota-democracia.html
+
+**Pope Leo’s Challenge in Cameroon: Show African Catholics How Much They Matter**\
+`Catholicism is growing fast on the continent, yet Africans play a comparatively small role in church leadership. Cameroon, which Leo XIV will visit Wednesday, shows the divide.`\
+https://www.nytimes.com/2026/04/15/world/africa/pope-leo-cameroon-africa.html
+
+**War Exposes Gaps in India’s Clean Energy Push**\
+`The country’s creaking electricity grid is lagging behind its push for renewable sources — just as its growing economy hungers for oil stranded by war.`\
+https://www.nytimes.com/2026/04/15/business/india-solar-energy-problems.html
+
+**Billy Crystal Lost His House in the L.A. Fires. He’s Made a Show About It.**\
+`The actor-comedian said he will return to Broadway this fall with a new solo show called “860,” named for the address of his destroyed family home.`\
+https://www.nytimes.com/2026/04/15/theater/billy-crystal-broadway-860.html
+
 **Quote of the Day: A Police Chief’s $4.5 Million Gambling Secret: ‘It’s on the App’**\
 `Quotation of the Day for Wednesday, April 15, 2026.`\
 https://www.nytimes.com/2026/04/14/pageoneplus/quote-of-the-day-a-police-chiefs-4-5-million-gambling-secret-its-on-the-app.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/14/arts/television/taylor-frankie-paul-charges-d
 **Trump’s Blockade Risks Upending an Emerging Détente With China**\
 `In a thinly veiled critique of the war in Iran, China’s leader said the world could not risk reverting “to the law of the jungle.”`\
 https://www.nytimes.com/2026/04/14/us/politics/trump-iran-blockade-china.html
-
-**Hochul Proposes Tax on N.Y.C. Second Homes That Are Worth $5 Million**\
-`Gov. Kathy Hochul, who has opposed raising some taxes, favored a “pied-à-terre” luxury tax because it largely targets the ultrawealthy who primarily live outside New York City.`\
-https://www.nytimes.com/2026/04/14/nyregion/hochul-pied-terre-tax.html
-
-**Like Anthropic, OpenAI Will Share Latest Technology Only With Trusted Companies**\
-`The maker of ChatGPT announced the limited release of GPT-5.4-Cyber, a technology designed to find security holes in software.`\
-https://www.nytimes.com/2026/04/14/technology/openai-cybersecurity-gpt54-cyber.html
-
-**Trump Officials Pledge Swift Completion of Controversial Gas Pipeline**\
-`The $1 billion project will run for about 23 miles under Raritan Bay in New Jersey and New York Harbor. Environmental groups oppose it.`\
-https://www.nytimes.com/2026/04/14/nyregion/gas-pipeline-underwater-nyc-new-jersey.html
-
-**Pentagon Says It Attacked Another Boat in the Pacific, Killing 4**\
-`It was the second strike in two days, in a campaign against those the United States accuses of drug smuggling.`\
-https://www.nytimes.com/2026/04/14/us/politics/pentagon-boat-strike-pacific.html
 
