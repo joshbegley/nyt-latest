@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/04/14/arts/television/taylor-frankie-paul-charges-d
 https://www.nytimes.com/2026/04/14/us/politics/trump-iran-blockade-china.html
 
 **Hochul Proposes Tax on N.Y.C. Second Homes That Are Worth $5 Million**\
-`Gov. Kathy Hochul, who has opposed raising taxes, favored a “pied-à-terre” luxury tax because it largely targets the ultrawealthy who primarily live outside New York City.`\
+`Gov. Kathy Hochul, who has opposed raising some taxes, favored a “pied-à-terre” luxury tax because it largely targets the ultrawealthy who primarily live outside New York City.`\
 https://www.nytimes.com/2026/04/14/nyregion/hochul-pied-terre-tax.html
 
 **Like Anthropic, OpenAI Will Share Latest Technology Only With Trusted Companies**\

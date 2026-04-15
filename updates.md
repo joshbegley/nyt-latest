@@ -1,3 +1,7 @@
+**Alex Cooper and Alix Earle Are Fighting. Or Are They?**\
+`Two popular influencers have exchanged jabs on social media.`\
+https://www.nytimes.com/2026/04/14/style/alex-cooper-alix-earle-drama-feud.html
+
 **Vance Heckled in Antiwar Protest at Turning Point USA Event**\
 `Vice President JD Vance appeared to express sympathy with critics of the war with Iran: “I recognize that young voters do not love the policy we have in the Middle East, OK. I understand.”`\
 https://www.nytimes.com/2026/04/14/us/politics/jd-vance-turning-point-usa-protest.html

@@ -1,3 +1,7 @@
+**Alex Cooper and Alix Earle Are Fighting. Or Are They?**\
+`Two popular influencers have exchanged jabs on social media.`\
+https://www.nytimes.com/2026/04/14/style/alex-cooper-alix-earle-drama-feud.html
+
 **Vance Heckled in Antiwar Protest at Turning Point USA Event**\
 `Vice President JD Vance appeared to express sympathy with critics of the war with Iran: “I recognize that young voters do not love the policy we have in the Middle East, OK. I understand.”`\
 https://www.nytimes.com/2026/04/14/us/politics/jd-vance-turning-point-usa-protest.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/14/us/florida-surgeon-manslaughter-organ-removal
 **Lebanon and Israel Hold Rare In-Person Talks**\
 `While the talks between Israel and Lebanon in Washington did not yield a cease-fire agreement, both sides agreed to “launch direct negotiations” after having “productive discussions,” according to a statement from the U.S. State Department.`\
 https://www.nytimes.com/video/world/middleeast/100000010841136/us-israel-lebanon-talks.html
-
-**Trump’s Blasphemy Is a Warning**\
-`Presidents can fight with popes. God is another matter.`\
-https://www.nytimes.com/2026/04/14/opinion/trump-pope.html
 
