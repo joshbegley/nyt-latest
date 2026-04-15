@@ -1,3 +1,27 @@
+**Listen to all six episodes of ‘The Good Whale’**\
+`A great story for the new year.`\
+https://www.nytimes.com/2026/04/15/podcasts/listen-to-all-six-episodes-of-the-good-whale.html
+
+**Your stories of ‘The Good Whale’**\
+`Here’s what you told us.`\
+https://www.nytimes.com/2026/04/15/podcasts/your-stories-of-the-good-whale.html
+
+**Our first-ever music video**\
+`Meet the director.`\
+https://www.nytimes.com/2026/04/15/podcasts/our-first-ever-music-video.html
+
+**Keiko gets a new team**\
+`How will he respond to its hard-line approach?`\
+https://www.nytimes.com/2026/04/15/podcasts/keiko-gets-a-new-team.html
+
+**Photos of Keiko’s Iceland home**\
+`Take a look inside.`\
+https://www.nytimes.com/2026/04/15/podcasts/photos-of-keikos-iceland-home.html
+
+**A movie-star whale sees a different world**\
+`Photos from Episode 2.`\
+https://www.nytimes.com/2026/04/15/podcasts/a-movie-star-whale-sees-a-different-world.html
+
 **The Whisper Network, #MeToo and the Downfall of Powerful Men**\
 `Eric Swalwell and Tony Gonzales are now being held accountable thanks in part to the feminism of the 2010s.`\
 https://www.nytimes.com/2026/04/15/opinion/swalwell-gonzales-metoo.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/video/arts/100000010839985/lena-dunham-adam-drivers-char
 **Lena Dunham on Why Her Dad Didn’t Want to Vote With Her**\
 `During the height of her fame, Lena Dunham’s name became synonymous with certain millennial clichés. On “The Interview,” she talks about that experience and how her dad tried to avoid the media attention she attracted.`\
 https://www.nytimes.com/video/arts/100000010839986/lena-dunham-on-why-her-dad-didnt-want-to-vote-with-her.html
-
-**Hungría y la paradoja populista**\
-`Analizamos lo que la derrota de Viktor Orbán nos dice sobre un modelo de gobierno en el que la política es más importante que la economía.`\
-https://www.nytimes.com/es/2026/04/15/espanol/mundo/hungria-paradoja-populista.html
-
-**The Republicans Who Disapprove of the War, and a Wave of College Closures**\
-`Plus, will the World Cup bring tourists back to the U.S.?`\
-https://www.nytimes.com/2026/04/15/podcasts/the-headlines/republicans-disapprove-iran-war-college-closures.html
-
-**Trump’s Risky Strategy to Blockade Iran’s Blockade**\
-`The United States has enforced a naval blockade of Iran that is intended to end the war on American terms.`\
-https://www.nytimes.com/2026/04/15/podcasts/the-daily/trump-iran-blockade-strait-of-hormuz.html
-
-**Connections Companion No. 1,040**\
-`Scroll down for hints and conversation about the puzzle for Thursday, April 16, 2026.`\
-https://www.nytimes.com/2026/04/15/crosswords/connections-companion-1040.html
-
-**Wordle Review No. 1,762**\
-`Scroll down for hints and conversation about the puzzle for Thursday, April 16, 2026.`\
-https://www.nytimes.com/2026/04/15/crosswords/wordle-review-1762.html
-
-**Strands Sidekick No. 774**\
-`Scroll down for hints and conversation about the puzzle for Thursday, April 16, 2026.`\
-https://www.nytimes.com/2026/04/15/crosswords/strands-sidekick-774.html
 
