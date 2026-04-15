@@ -1,3 +1,11 @@
+**Sudan Enters Fourth Year of War Amid World’s Most Severe Humanitarian Crisis**\
+`Fighting that erupted in 2023 has forced millions from their homes and left widespread hunger that is now being compounded by strife in the Middle East.`\
+https://www.nytimes.com/2026/04/15/world/africa/sudan-war-hunger-crisis.html
+
+**Done and Dusted? Trump’s Portrayal of the War in Iran Collides With Reality.**\
+`President Trump is confronting a crisis that is not bending to his narrative of a “pretty reasonable” new regime in Iran and all-but-assured victory for the United States.`\
+https://www.nytimes.com/2026/04/15/us/politics/trump-iran-war.html
+
 **Un funcionario brasileño incluyó a BYD en una lista de mano de obra esclava. Después, fue despedido**\
 `La salida del principal inspector de trabajo de Brasil ha puesto al gobierno del presidente Lula, político de izquierda y exdirigente sindical, en una situación incómoda.`\
 https://www.nytimes.com/es/2026/04/15/espanol/mundo/brasil-china-byd-esclavitud.html
