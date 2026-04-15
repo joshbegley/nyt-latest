@@ -1,3 +1,7 @@
+**Labor Department Investigates Texts Among Secretary’s Family and Staff**\
+`Labor Secretary Lori Chavez-DeRemer asked staffers to bring wine to her hotel room, and to keep in touch with her husband and father.`\
+https://www.nytimes.com/2026/04/15/us/politics/labor-secretary-text-messages.html
+
 **He Preached the Gospel on the Subway. Then He Pulled Out a Machete.**\
 `Anthony Griffin was a popular battle rapper who turned toward religious rhetoric. The police say he slashed three people with a machete before they killed him.`\
 https://www.nytimes.com/2026/04/15/nyregion/machete-attack-grand-central.html

@@ -1,3 +1,7 @@
+**Pakistani Mediators Arrive in Iran in Bid to Keep Peace Talks Alive**\
+`The diplomacy came as the U.S. Navy locked down trade to Iranian ports, and Iran responded by threatening critical shipping routes across the region.`\
+https://www.nytimes.com/2026/04/15/world/middleeast/pakistani-peace-talks-blockade.html
+
 **Labor Department Investigates Texts Among Secretary’s Family and Staff**\
 `Labor Secretary Lori Chavez-DeRemer asked staffers to bring wine to her hotel room, and to keep in touch with her husband and father.`\
 https://www.nytimes.com/2026/04/15/us/politics/labor-secretary-text-messages.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/15/nyregion/mamdani-menin-deal-department-invest
 **How The Times Covers Attackers, Suspects and Victims of Violence**\
 `Reporting on the people who upend life and those whose lives are upended can bring surprising and uncomfortable details to light.`\
 https://www.nytimes.com/2026/04/15/insider/nyt-approach-naming-attackers-suspects-victims.html
-
-**Iran Is Teaching Us Something About the American War Machine**\
-`The future of war belongs to “flying lawn mowers”`\
-https://www.nytimes.com/2026/04/15/opinion/iran-drone-war.html
 
