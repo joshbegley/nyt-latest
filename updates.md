@@ -1,3 +1,7 @@
+**Super Typhoon Slams Northern Mariana Islands, Causing Widespread Damage**\
+`But there were no early reports of casualties from the storm, which was named Sinlaku and was moving northwest of the region.`\
+https://www.nytimes.com/2026/04/15/world/asia/typhoon-sinlaku-saipan-damage.html
+
 **Late Night Laughs at Explanations of Trump’s Jesus ‘Joke’**\
 `Ronny Chieng poked fun at JD Vance’s defense of President Trump posting an image of himself as a Christ-like figure.`\
 https://www.nytimes.com/2026/04/15/arts/television/late-night-trump-jesus.html
