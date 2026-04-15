@@ -1,3 +1,11 @@
+**The Whisper Network, #MeToo and the Downfall of Powerful Men**\
+`Eric Swalwell and Tony Gonzales are now being held accountable thanks in part to the feminism of the 2010s.`\
+https://www.nytimes.com/2026/04/15/opinion/swalwell-gonzales-metoo.html
+
+**My Sister Excluded Me From Our Family Holiday. Help!**\
+`After years of having to miss faraway holiday get-togethers, a reader was finally denied an invitation to his sister’s Easter gathering altogether.`\
+https://www.nytimes.com/2026/04/15/style/family-gatherings-exclusion.html
+
 **At Least 4 Dead in Second School Shooting in Turkey in Two Days**\
 `The attack, in the southern province of Kahramanmaras, left 20 others wounded.`\
 https://www.nytimes.com/2026/04/15/world/europe/turkey-school-shooting-kahramanmaras-province.html
