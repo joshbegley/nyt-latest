@@ -1,3 +1,7 @@
+**Executive Who Led Ford’s Electric Car Push Is Leaving**\
+`Doug Field, a former Tesla and Apple executive, had returned to Ford Motor in 2021 to help develop new electric models and software.`\
+https://www.nytimes.com/2026/04/15/business/ford-electric-vehicles-doug-field.html
+
 **Pakistani Mediators Arrive in Iran in Bid to Keep Peace Talks Alive**\
 `The diplomacy came as the U.S. Navy locked down trade to Iranian ports, and Iran responded by threatening critical shipping routes across the region.`\
 https://www.nytimes.com/2026/04/15/world/middleeast/pakistani-peace-talks-blockade.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/15/us/yale-report-colleges-unversities-trust.htm
 **Mamdani and N.Y.C. Council Speaker Reach Truce Over Key Appointment**\
 `The speaker, Julie Menin, privately agreed to not block Nadia Shihata’s appointment to lead the Department of Investigation as a sign of peace with Mayor Zohran Mamdani.`\
 https://www.nytimes.com/2026/04/15/nyregion/mamdani-menin-deal-department-investigation.html
-
-**How The Times Covers Attackers, Suspects and Victims of Violence**\
-`Reporting on the people who upend life and those whose lives are upended can bring surprising and uncomfortable details to light.`\
-https://www.nytimes.com/2026/04/15/insider/nyt-approach-naming-attackers-suspects-victims.html
 

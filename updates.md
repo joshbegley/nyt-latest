@@ -1,3 +1,7 @@
+**Executive Who Led Ford’s Electric Car Push Is Leaving**\
+`Doug Field, a former Tesla and Apple executive, had returned to Ford Motor in 2021 to help develop new electric models and software.`\
+https://www.nytimes.com/2026/04/15/business/ford-electric-vehicles-doug-field.html
+
 **Pakistani Mediators Arrive in Iran in Bid to Keep Peace Talks Alive**\
 `The diplomacy came as the U.S. Navy locked down trade to Iranian ports, and Iran responded by threatening critical shipping routes across the region.`\
 https://www.nytimes.com/2026/04/15/world/middleeast/pakistani-peace-talks-blockade.html
