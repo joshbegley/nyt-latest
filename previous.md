@@ -1,3 +1,11 @@
+**Review: Here’s Johnny! (And Bach and 4 Choreographers)**\
+`The violinist Johnny Gandelsman wanted his music to move. In the overly winsome “Johnny Loves Johann,” he performs Bach’s cello suites alongside four dance artists.`\
+https://www.nytimes.com/2026/04/15/arts/dance/review-johnny-gandlesman-bach-jamar-roberts.html
+
+**Kuwait Detained Journalist After Comments on Iran War Images, Watchdog Says**\
+`The country has not commented publicly about Ahmed Shihab-Eldin, who the Committee to Protect Journalists said had been charged with spreading false information.`\
+https://www.nytimes.com/2026/04/15/world/middleeast/kuwait-shihab-eldin-journalist-detained.html
+
 **How to Win a $1.2 Million Picasso Without Really Trying**\
 `A Parisian software salesman entered a charity raffle and came away with a piece of history: “I have some paintings, but not like a Picasso.”`\
 https://www.nytimes.com/2026/04/15/arts/design/picasso-raffle-paris-100-euros.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/15/business/economy/companies-profits-prices-ira
 **Trump’s Go-To Justification for Contentious Decisions: National Security**\
 `The administration has invoked national security in a variety of matters, including the White House ballroom and offshore wind farms, drawing rebukes from some judges.`\
 https://www.nytimes.com/2026/04/15/us/white-house-ballroom-trump-national-security.html
-
-**Trump and Meloni Split Amid Growing Dispute Over Pope and Iran**\
-`Prime Minister Giorgia Meloni was once considered one of President Trump’s closest European allies. Their friendship now appears in danger.`\
-https://www.nytimes.com/2026/04/15/world/europe/trump-meloni-italy-iran-pope.html
-
-**In Defense of Dumb Dogs**\
-`Your pet is (probably) not a genius, and that’s OK.`\
-https://www.nytimes.com/2026/04/15/science/pets-dogs-intelligence.html
 

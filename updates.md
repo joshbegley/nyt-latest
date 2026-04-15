@@ -1,3 +1,11 @@
+**Review: Here’s Johnny! (And Bach and 4 Choreographers)**\
+`The violinist Johnny Gandelsman wanted his music to move. In the overly winsome “Johnny Loves Johann,” he performs Bach’s cello suites alongside four dance artists.`\
+https://www.nytimes.com/2026/04/15/arts/dance/review-johnny-gandlesman-bach-jamar-roberts.html
+
+**Kuwait Detained Journalist After Comments on Iran War Images, Watchdog Says**\
+`The country has not commented publicly about Ahmed Shihab-Eldin, who the Committee to Protect Journalists said had been charged with spreading false information.`\
+https://www.nytimes.com/2026/04/15/world/middleeast/kuwait-shihab-eldin-journalist-detained.html
+
 **How to Win a $1.2 Million Picasso Without Really Trying**\
 `A Parisian software salesman entered a charity raffle and came away with a piece of history: “I have some paintings, but not like a Picasso.”`\
 https://www.nytimes.com/2026/04/15/arts/design/picasso-raffle-paris-100-euros.html
