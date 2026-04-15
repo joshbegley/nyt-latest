@@ -1,3 +1,11 @@
+**Sudan Enters Fourth Year of War Amid World’s Most Severe Humanitarian Crisis**\
+`Fighting that erupted in 2023 has forced millions from their homes and left widespread hunger that is now being compounded by strife in the Middle East.`\
+https://www.nytimes.com/2026/04/15/world/africa/sudan-war-hunger-crisis.html
+
+**Done and Dusted? Trump’s Portrayal of the War in Iran Collides With Reality.**\
+`President Trump is confronting a crisis that is not bending to his narrative of a “pretty reasonable” new regime in Iran and all-but-assured victory for the United States.`\
+https://www.nytimes.com/2026/04/15/us/politics/trump-iran-war.html
+
 **Un funcionario brasileño incluyó a BYD en una lista de mano de obra esclava. Después, fue despedido**\
 `La salida del principal inspector de trabajo de Brasil ha puesto al gobierno del presidente Lula, político de izquierda y exdirigente sindical, en una situación incómoda.`\
 https://www.nytimes.com/es/2026/04/15/espanol/mundo/brasil-china-byd-esclavitud.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/dining/100000010840686/carrot-maqluba.html
 **What Was the Deal With Jack Harlow’s Giant Hat?**\
 `Also, fashion can’t quit Anna Wintour.`\
 https://www.nytimes.com/2026/04/15/style/jack-harlow-hat.html
-
-**It’s the End of the Internet as We Know It**\
-`In the race to patch up cybersecurity holes found by the newest A.I. models, we risk leaving too many people to fend for themselves.`\
-https://www.nytimes.com/2026/04/15/opinion/mythos-open-souce-internet.html
-
-**Executive Who Led Ford’s Electric Car Push Is Leaving**\
-`Doug Field, a former Tesla and Apple executive, had returned to Ford Motor in 2021 to help develop new electric models and software.`\
-https://www.nytimes.com/2026/04/15/business/ford-electric-vehicles-doug-field.html
 
