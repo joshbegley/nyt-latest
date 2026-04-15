@@ -1,3 +1,7 @@
+**Quote of the Day: A Police Chief’s $4.5 Million Gambling Secret: ‘It’s on the App’**\
+`Quotation of the Day for Wednesday, April 15, 2026.`\
+https://www.nytimes.com/2026/04/14/pageoneplus/quote-of-the-day-a-police-chiefs-4-5-million-gambling-secret-its-on-the-app.html
+
 **Prosecutors Make Surprise Visit to Fed as Pirro Defends Investigation**\
 `The Justice Department’s criminal inquiry into the Federal Reserve threatens to delay the confirmation of the next chair.`\
 https://www.nytimes.com/2026/04/14/us/politics/pirro-federal-reserve-investigation.html

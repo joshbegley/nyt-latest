@@ -1,3 +1,7 @@
+**Quote of the Day: A Police Chief’s $4.5 Million Gambling Secret: ‘It’s on the App’**\
+`Quotation of the Day for Wednesday, April 15, 2026.`\
+https://www.nytimes.com/2026/04/14/pageoneplus/quote-of-the-day-a-police-chiefs-4-5-million-gambling-secret-its-on-the-app.html
+
 **Prosecutors Make Surprise Visit to Fed as Pirro Defends Investigation**\
 `The Justice Department’s criminal inquiry into the Federal Reserve threatens to delay the confirmation of the next chair.`\
 https://www.nytimes.com/2026/04/14/us/politics/pirro-federal-reserve-investigation.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/14/nyregion/gas-pipeline-underwater-nyc-new-jers
 **Pentagon Says It Attacked Another Boat in the Pacific, Killing 4**\
 `It was the second strike in two days, in a campaign against those the United States accuses of drug smuggling.`\
 https://www.nytimes.com/2026/04/14/us/politics/pentagon-boat-strike-pacific.html
-
-**U.S. Blocks Iranian-Linked Ships From Sailing Through the Strait of Hormuz**\
-`U.S. Central Command said that six vessels had complied with directions to turn around and re-enter an Iranian port.`\
-https://www.nytimes.com/2026/04/14/business/strait-of-hormuz-blockade.html
 
