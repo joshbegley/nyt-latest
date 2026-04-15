@@ -1,3 +1,31 @@
+**Justice Sotomayor Apologizes for Highly Personal Criticism of Justice Kavanaugh**\
+`At the University of Kansas School of Law last week, she criticized her colleague while discussing his views in an immigration-related case.`\
+https://www.nytimes.com/2026/04/15/us/politics/supreme-court-sotomayor-kavanaugh.html
+
+**The Pied-à-Terre Tax Has Failed Before. Could This Year Be Different?**\
+`Amid calls from the left to tax the rich, a tax proposal on multimillion-dollar second homes in New York City, backed by Gov. Kathy Hochul, seems to have better odds of passing than in years past.`\
+https://www.nytimes.com/2026/04/15/nyregion/pied-a-terre-tax.html
+
+**Stocks Hit a Record High**\
+`Also, Pakistani mediators arrive in Iran. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/04/15/briefing/stocks-hit-a-record-high.html
+
+**Trump’s ‘Triumphal Arch’ Draws Backlash, Even From an Expert Who Proposed It**\
+`The story of how President Trump quadrupled the size of the original proposal for the arch follows a now-familiar pattern.`\
+https://www.nytimes.com/2026/04/15/us/politics/trump-arch-dc.html
+
+**Can Trump and Republicans Get Back on Message on the Economy?**\
+`It’s Tax Day, but much of the country’s focus has been on an unpopular war.`\
+https://www.nytimes.com/2026/04/15/us/politics/trump-taxes-economy-iran-war.html
+
+**In the House, Republican Plans Go Awry Amid Party Divides**\
+`Fresh off a two-week break, lawmakers returned to turmoil in the House, where legislation to reopen the Department of Homeland Security is stalled and the G.O.P. is struggling to keep its agenda on track.`\
+https://www.nytimes.com/2026/04/15/us/politics/house-republican-divides.html
+
+**Starmer Summons U.S. Social Media Companies Over Child Safety Online**\
+`The British prime minister will meet with executives from Meta, Google and other companies on Thursday as his government explores how to protect children from online harms.`\
+https://www.nytimes.com/2026/04/15/world/europe/starmer-social-media-child-safety-meta-google.html
+
 **Iran could struggle to enforce all of its latest shipping threats, experts say.**\
 ``\
 https://www.nytimes.com/live/2026/04/15/world/iran-war-trump-us-israel/iran-could-struggle-to-enforce-all-of-its-latest-shipping-threats-experts-say
@@ -49,32 +77,4 @@ https://www.nytimes.com/2026/04/15/world/middleeast/pakistani-peace-talks-blocka
 **Labor Dept. Investigates Texts Among Secretary’s Family and Staff**\
 `Secretary Lori Chavez-DeRemer asked staff members to bring wine to her hotel room, and to keep in touch with her husband and father.`\
 https://www.nytimes.com/2026/04/15/us/politics/labor-secretary-text-messages.html
-
-**He Preached the Gospel on the Subway. Then He Pulled Out a Machete.**\
-`Anthony Griffin was a popular battle rapper who turned toward religious rhetoric. The police say he slashed three people with a machete before they killed him.`\
-https://www.nytimes.com/2026/04/15/nyregion/machete-attack-grand-central.html
-
-**What the Iran War Means for China**\
-`Our national security correspondent David E. Sanger examines what the Iran war means to China, which is the world’s biggest importer of Iranian oil.`\
-https://www.nytimes.com/video/us/100000010840169/what-the-iran-war-means-for-china.html
-
-**Frenchman Wins $1.2 Million Picasso Painting**\
-`A 58-year-old Parisian man won Pablo Picasso’s 1941 “Tête de Femme” in a charity raffle on Tuesday. He purchased his two raffle tickets for 100 euros each, and walked away with a $1.2 million painting. The charity raffle raised roughly $11 million for Alzheimers research.`\
-https://www.nytimes.com/video/arts/100000010842531/pablo-picasso-painting-raffle-winner.html
-
-**La guerra de Sheinbaum contra el crimen enfrenta un balance sombrío: 133.000 desaparecidos**\
-`La presidenta de México, Claudia Sheinbaum, está bajo presión para poner fin a una de las tragedias más dolorosas del país: la desaparición de más de 133.000 personas.`\
-https://www.nytimes.com/es/2026/04/15/espanol/america-latina/mexico-desaparecidos-sheinbaum.html
-
-**Sports Betting Industry Spends $41 Million to Influence Elections**\
-`With a well-funded super PAC, the betting platforms DraftKings, FanDuel and Fanatics are aiming to shape future regulation of their rapidly growing industry.`\
-https://www.nytimes.com/2026/04/15/us/politics/draftkings-fanduel-midterm-elections.html
-
-**Saudi Fund to Back Away From LIV Golf Under Mounting Financial Pressures**\
-`The Saudi league, established in 2022, attracted some of the sport’s biggest stars with huge contracts.`\
-https://www.nytimes.com/2026/04/15/world/middleeast/saudi-soverign-fund-liv-golf.html
-
-**Julio Torres in ‘Color Theories,’ and More Theater to Stream**\
-`Other picks include the historical hip-hop musical “Mexodus,” an Anne Carson radio play and a century-old play about machines replacing humans.`\
-https://www.nytimes.com/2026/04/15/theater/julio-torres-mexodus-theater-streaming.html
 

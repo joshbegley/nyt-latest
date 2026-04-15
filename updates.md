@@ -1,3 +1,31 @@
+**Justice Sotomayor Apologizes for Highly Personal Criticism of Justice Kavanaugh**\
+`At the University of Kansas School of Law last week, she criticized her colleague while discussing his views in an immigration-related case.`\
+https://www.nytimes.com/2026/04/15/us/politics/supreme-court-sotomayor-kavanaugh.html
+
+**The Pied-à-Terre Tax Has Failed Before. Could This Year Be Different?**\
+`Amid calls from the left to tax the rich, a tax proposal on multimillion-dollar second homes in New York City, backed by Gov. Kathy Hochul, seems to have better odds of passing than in years past.`\
+https://www.nytimes.com/2026/04/15/nyregion/pied-a-terre-tax.html
+
+**Stocks Hit a Record High**\
+`Also, Pakistani mediators arrive in Iran. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/04/15/briefing/stocks-hit-a-record-high.html
+
+**Trump’s ‘Triumphal Arch’ Draws Backlash, Even From an Expert Who Proposed It**\
+`The story of how President Trump quadrupled the size of the original proposal for the arch follows a now-familiar pattern.`\
+https://www.nytimes.com/2026/04/15/us/politics/trump-arch-dc.html
+
+**Can Trump and Republicans Get Back on Message on the Economy?**\
+`It’s Tax Day, but much of the country’s focus has been on an unpopular war.`\
+https://www.nytimes.com/2026/04/15/us/politics/trump-taxes-economy-iran-war.html
+
+**In the House, Republican Plans Go Awry Amid Party Divides**\
+`Fresh off a two-week break, lawmakers returned to turmoil in the House, where legislation to reopen the Department of Homeland Security is stalled and the G.O.P. is struggling to keep its agenda on track.`\
+https://www.nytimes.com/2026/04/15/us/politics/house-republican-divides.html
+
+**Starmer Summons U.S. Social Media Companies Over Child Safety Online**\
+`The British prime minister will meet with executives from Meta, Google and other companies on Thursday as his government explores how to protect children from online harms.`\
+https://www.nytimes.com/2026/04/15/world/europe/starmer-social-media-child-safety-meta-google.html
+
 **Iran could struggle to enforce all of its latest shipping threats, experts say.**\
 ``\
 https://www.nytimes.com/live/2026/04/15/world/iran-war-trump-us-israel/iran-could-struggle-to-enforce-all-of-its-latest-shipping-threats-experts-say
