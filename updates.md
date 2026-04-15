@@ -1,3 +1,7 @@
+**5 Takeaways From the Live Nation Antitrust Trial**\
+`A jury found that the concert giant operated as a monopoly, a verdict that could have major reverberations in the music industry.`\
+https://www.nytimes.com/2026/04/15/arts/music/live-nation-antitrust-trial-monopoly-takeaways.html
+
 **5 Things to Know About New York’s Proposed Second Home Tax**\
 `Gov. Kathy Hochul wants to tax second homes in New York City that are worth $5 million or more. Here’s how the proposal might work.`\
 https://www.nytimes.com/2026/04/15/realestate/pied-a-terre-tax-nyc-hochul-mamdani.html
