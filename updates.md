@@ -1,3 +1,19 @@
+**How to Win a $1.2 Million Picasso Without Really Trying**\
+`A Parisian software salesman entered a charity raffle and came away with a piece of history: “I have some paintings, but not like a Picasso.”`\
+https://www.nytimes.com/2026/04/15/arts/design/picasso-raffle-paris-100-euros.html
+
+**At Least 9 Killed in Second School Shooting in Turkey in 2 Days**\
+`A student opened fire at a middle school in southern Turkey, killing at least nine people and wounding several others, officials said.`\
+https://www.nytimes.com/video/world/middleeast/100000010842273/turkey-school-shooting-kahramanmaras.html
+
+**Putting Connecticut Artists in the Spotlight**\
+`The Aldrich Contemporary Art Museum in Ridgefield will showcase works by people who live and work in New York’s shadow.`\
+https://www.nytimes.com/2026/04/15/arts/design/connecticut-aldrich-contemporary-art-museum.html
+
+**Map: 3.2-Magnitude Earthquake Shakes Southern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/04/15/us/earthquake-sourthern-california.html
+
 **In the Tech Heart of Texas, an Art Show Built on Data, Code and A.I.**\
 `The showcase features works that change from hour to hour, invite interaction and interrogate the idea of creativity itself.`\
 https://www.nytimes.com/2026/04/15/arts/design/blanton-museum-austin-technology-art.html
