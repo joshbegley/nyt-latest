@@ -1,3 +1,15 @@
+**Iran could struggle to enforce all of its latest shipping threats, experts say.**\
+``\
+https://www.nytimes.com/live/2026/04/15/world/iran-war-trump-us-israel/iran-could-struggle-to-enforce-all-of-its-latest-shipping-threats-experts-say
+
+**The Pope in Africa**\
+`The continent is crucial to the future of the church, but it’s also the center of long-running tensions over some of Catholicism’s most charged issues.`\
+https://www.nytimes.com/2026/04/15/world/pope-leo-africa-trump-iran-pakistan.html
+
+**It’s the End of the Internet as We Know It**\
+`In the race to patch up cybersecurity holes found by the newest A.I. models, we risk leaving too many people to fend for themselves.`\
+https://www.nytimes.com/2026/04/15/opinion/mythos-open-souce-internet.html
+
 **One-Pot White Wine Pasta**\
 `While this pasta is reminiscent of scampi, piccata and vongole, it delivers something more — a hard-to-pin-down complexity that comes from cooking the pasta not in water but in wine.`\
 https://www.nytimes.com/video/dining/100000010840690/one-pot-white-wine-pasta.html
