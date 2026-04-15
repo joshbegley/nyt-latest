@@ -1,3 +1,15 @@
+**Trump says he’s willing to ‘risk’ giving up rights as he pushes to extend a surveillance law.**\
+``\
+https://www.nytimes.com/live/2026/04/15/us/trump-news/trump-says-hes-willing-to-risk-giving-up-rights-as-he-pushes-to-extend-a-surveillance-law
+
+**Debt Alarms Ring as Countries Rack Up More Emergency Spending**\
+`Amid signs of a prolonged period of high energy costs, policymakers are urging restraint as governments open up the public till to protect households and businesses.`\
+https://www.nytimes.com/2026/04/15/business/iran-war-fiscal-debt-impact.html
+
+**Israel Considering Cease-fire With Lebanon, Officials Say**\
+`Talk of a truce that would pause the war between Israel and Iran-backed Hezbollah in Lebanon followed rare direct talks between Israel and Lebanon in Washington on Tuesday.`\
+https://www.nytimes.com/2026/04/15/world/middleeast/israel-lebanon-ceasefire-preparations-hezbollah.html
+
 **Así han evolucionado las transferencias de armas de China a Irán por décadas**\
 `China ha negado las afirmaciones de los servicios de inteligencia de EE. UU. de que podría haber enviado armas a Irán. En los últimos años, China ha apoyado a Irán con piezas de doble uso.`\
 https://www.nytimes.com/es/2026/04/15/espanol/mundo/china-armas-iran-guerra-estados-unidos.html
