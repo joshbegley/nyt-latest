@@ -1,3 +1,7 @@
+**Donde hasta las flores provocan miedo**\
+`Los generales de Birmania han brutalizado al país durante décadas. Pero han llegado a temer las guirnaldas como signo de resistencia.`\
+https://www.nytimes.com/es/2026/04/15/espanol/mundo/birmania-guerra-civil.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/15/world/iran-war-trump-us-israel/heres-the-latest
