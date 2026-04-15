@@ -1,3 +1,7 @@
+**‘The Adding Machine’ Review: A Man Is Made Redundant**\
+`Daphne Rubin-Vega stars as a laid-off office worker who spins into a murderous rage in this update of Elmer L. Rice’s 1923 classic.`\
+https://www.nytimes.com/2026/04/15/theater/the-adding-machine-review-daphne-rubin-vega.html
+
 **Vance, the Pope and ‘Matters of Morality’**\
 `Readers respond to Vice President JD Vance’s remarks critical of Pope Leo XIV. Also: Mr. Trump, try kindness; a tax solution that wasn’t.`\
 https://www.nytimes.com/2026/04/15/opinion/vance-pope-leo-morality.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/15/arts/design/blanton-museum-austin-technology-
 **Honoring Frederic Church: Beyond the Hudson River School**\
 `His many achievements have been obscured, some believe, by his reputation as a provincial landscape painter.`\
 https://www.nytimes.com/2026/04/15/arts/design/frederic-church-hudson-river-school.html
-
-**Iran-Linked Ships Slow or Stop as U.S. Blockade Is ‘Fully Implemented’**\
-`More than a dozen U.S. Navy warships are enforcing a blockade on all vessels from all nations entering or leaving coastal areas or ports in Iran.`\
-https://www.nytimes.com/2026/04/15/world/middleeast/iran-ships-strait-hormuz-blockade.html
 
