@@ -1,3 +1,7 @@
+**En Corea del Sur hay una crisis en la medicina de urgencias**\
+`Cada año, cientos de pacientes tienen dificultades para acceder a la atención de urgencias, a pesar de que el país cuenta con un sistema de salud de primera clase. Para algunos, los retrasos han sido fatales.`\
+https://www.nytimes.com/es/2026/04/15/espanol/corea-del-sur-crisis-medicina.html
+
 **How China’s Weapons Transfers to Iran Have Evolved Over Decades**\
 `China has denied claims this month by U.S. intelligence that it might have shipped arms to Iran. In recent years, China has supported Iran with dual-use parts.`\
 https://www.nytimes.com/2026/04/15/world/asia/china-iran-weapons-sales.html
