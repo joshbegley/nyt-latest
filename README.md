@@ -1,3 +1,7 @@
+**Shakespeare Bought One Property in London. Now We Know Exactly Where.**\
+`In confirming the precise location of William Shakespeare’s Blackfriars house, a British scholar raises fresh questions about what he intended to do with it.`\
+https://www.nytimes.com/2026/04/15/world/europe/shakespeare-london-property-house.html
+
 **La principal diplomática de EE. UU. en Venezuela deja su cargo tras haber llegado en enero**\
 `Laura Dogu, quien reabrió la embajada de Estados Unidos en Venezuela, vuelve a su rol como asesora del oficial de mayor rango del ejército estadounidense mientras continúa la guerra con Irán.`\
 https://www.nytimes.com/es/2026/04/15/espanol/america-latina/venezuela-usa-laura-dogu.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/dining/100000010840678/spaghetti-allassassina.html
 **Coconut-Miso Salmon Curry**\
 `This light, delicate weeknight curry comes together in less than 30 minutes and is defined by its deep miso flavor.`\
 https://www.nytimes.com/video/dining/100000010840680/coconut-miso-salmon-curry.html
-
-**Loaded Sweet Potatoes With Kimchi and Bacon**\
-`For effort-to-flavor ratio, you can’t really beat a jar of kimchi and a pack of bacon. This five-ingredient dinner is a riot of deliciousness: Sweet potatoes roasted in bacon fat provide a sturdy base for bacon-enriched kimchi and pillowy mozzarella.`\
-https://www.nytimes.com/video/dining/100000010840683/loaded-sweet-potatoes-with-kimchi-and-bacon.html
 
