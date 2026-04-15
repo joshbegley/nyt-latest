@@ -1,3 +1,7 @@
+**Cuando liberan a los presos de El Salvador, ella está allí para recogerlos**\
+`El hermano de Sugey Amaya fue detenido durante la campaña de detenciones masivas en El Salvador hace cuatro años. Ella ha dedicado su vida a ayudar a presos como él.`\
+https://www.nytimes.com/es/2026/04/15/espanol/america-latina/presos-el-salvador-ayuda.html
+
 **¿La Copa Mundial logrará que los turistas regresen a EE. UU.?**\
 `Las restricciones de viaje, la posible revisión de redes sociales y los elevadísimos precios de las entradas están ahuyentando a los aficionados internacionales al fútbol, pero las ciudades anfitrionas siguen esperando un auge.`\
 https://www.nytimes.com/es/2026/04/15/espanol/estilos-de-vida/turismo-copa-mundial.html
