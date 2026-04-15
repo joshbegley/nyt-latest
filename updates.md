@@ -1,3 +1,7 @@
+**House Passes Air Safety Bill, Setting Up Clash with Senate**\
+`Senate leaders say key provisions fall short of what is necessary to prevent aircraft from midair collisions.`\
+https://www.nytimes.com/2026/04/14/us/politics/house-air-safety-bill.html
+
 **Mario Ríos Montt, prelado defensor de los derechos humanos, muere a los 94 años**\
 `Lideró la oficina de derechos humanos de la Iglesia católica en Guatemala incluso cuando su hermano, el ex dictador militar del país, era investigado por genocidio.`\
 https://www.nytimes.com/es/2026/04/14/espanol/america-latina/mario-rios-montt-muere.html
