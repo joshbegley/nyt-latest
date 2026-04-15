@@ -1,3 +1,19 @@
+**Getting the Pope to Answer a Pointed Question at 30,000 Feet**\
+`The Times’s Rome bureau chief is still getting a feel for a pontiff who is willing to challenge President Trump and use his sense of humor.`\
+https://www.nytimes.com/2026/04/15/world/europe/pope-leo-papal-plane.html
+
+**South Africa Names Roelf Meyer as New Ambassador to Trump’s Washington**\
+`The move comes as the country looks to strengthen diplomatic ties with the United States after months of hostility between the two nations.`\
+https://www.nytimes.com/2026/04/15/world/africa/south-africa-us-ambassador-roelf-meyer.html
+
+**Barbara Gordon, Who Wrote Memoir of Pill Addiction, Dies at 90**\
+`“I’m Dancing as Fast as I Can,” which became a best seller, detailed her years of prescription drug abuse and offered an indictment of American psychiatry.`\
+https://www.nytimes.com/2026/04/15/books/barbara-gordon-dead.html
+
+**SantaCon Leader Ran His Own $1 Million Con Game, U.S. Says**\
+`Stefan Pildes “siphoned” more than half of the money donated over five years for the outing, a raucous New York City bar crawl promoted as a charitable event, prosecutors said.`\
+https://www.nytimes.com/2026/04/15/nyregion/santacon-wire-fraud-stefan-pildes.html
+
 **Omaha Police Fatally Shoot Woman Who Cut 3-Year-Old Boy With Knife at Walmart**\
 `The woman forced the child, who was sitting in a cart, and his babysitter out of the store at knife point. She had the boy when police arrived, the department said. The shooting is under investigation.`\
 https://www.nytimes.com/2026/04/15/us/omaha-walmart-child-stabbing-police-shooting.html

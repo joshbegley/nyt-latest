@@ -1,3 +1,15 @@
+**Getting the Pope to Answer a Pointed Question at 30,000 Feet**\
+`The Times’s Rome bureau chief is still getting a feel for a pontiff who is willing to challenge President Trump and use his sense of humor.`\
+https://www.nytimes.com/2026/04/15/world/europe/pope-leo-papal-plane.html
+
+**South Africa Names Roelf Meyer as New Ambassador to Trump’s Washington**\
+`The move comes as the country looks to strengthen diplomatic ties with the United States after months of hostility between the two nations.`\
+https://www.nytimes.com/2026/04/15/world/africa/south-africa-us-ambassador-roelf-meyer.html
+
+**Barbara Gordon, Who Wrote Memoir of Pill Addiction, Dies at 90**\
+`“I’m Dancing as Fast as I Can,” which became a best seller, detailed her years of prescription drug abuse and offered an indictment of American psychiatry.`\
+https://www.nytimes.com/2026/04/15/books/barbara-gordon-dead.html
+
 **Omaha Police Fatally Shoot Woman Who Cut 3-Year-Old Boy With Knife at Walmart**\
 `The woman forced the child, who was sitting in a cart, and his babysitter out of the store at knife point. She had the boy when police arrived, the department said. The shooting is under investigation.`\
 https://www.nytimes.com/2026/04/15/us/omaha-walmart-child-stabbing-police-shooting.html
@@ -59,22 +71,10 @@ https://www.nytimes.com/2026/04/15/world/europe/europe-ukraine-aid-iran.html
 https://www.nytimes.com/2026/04/15/learning/learning-network-limited-series-media-literacy.html
 
 **SantaCon Leader Ran His Own $1 Million Con Game, U.S. Says**\
-`Stefan Pildes “siphoned” more than half of the money donated over five years for the event, a raucous New York City bar crawl promoted as a charitable event, prosecutors said.`\
+`Stefan Pildes “siphoned” more than half of the money donated over five years for the outing, a raucous New York City bar crawl promoted as a charitable event, prosecutors said.`\
 https://www.nytimes.com/2026/04/15/nyregion/santacon-wire-fraud-stefan-pildes.html
 
 **Ad Companies Settle With F.T.C. Over Claims of Harm to Conservative Sites**\
 `WPP, Dentsu and Publicis settled claims they colluded on policies to combat misinformation, denying ad revenue to publishers on the right.`\
 https://www.nytimes.com/2026/04/15/technology/ftc-ad-companies-settlement.html
-
-**Why Is Child Care So Expensive?**\
-`Plus, why the industry is a “market failure.”`\
-https://www.nytimes.com/2026/04/15/headway/newsletter-cost-child-care.html
-
-**Sheinbaum’s War on Crime Faces a Grim Reckoning: 133,000 Missing**\
-`President Claudia Sheinbaum of Mexico is under pressure to end one of her country’s most painful tragedies: the disappearance of more than 133,000 people.`\
-https://www.nytimes.com/2026/04/15/world/americas/claudia-sheinbaum-mexico-crime-missing-people.html
-
-**JD Vance dice que el papa debería ser más cuidadoso al hablar de teología**\
-`El vicepresidente, que es católico, discrepó con la afirmación del papa León XIV de que un discípulo de Cristo “nunca se pone del lado de quienes ayer empuñaban la espada y hoy lanzan bombas”.`\
-https://www.nytimes.com/es/2026/04/15/espanol/estados-unidos/papa-leon-trump-vance.html
 

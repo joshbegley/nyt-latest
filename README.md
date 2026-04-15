@@ -1,3 +1,11 @@
+**Julio Torres in ‘Color Theories,’ and More Theater to Stream**\
+`Other picks include the historical hip-hop musical “Mexodus,” an Anne Carson radio play and a century-old play about machines replacing humans.`\
+https://www.nytimes.com/2026/04/15/theater/julio-torres-mexodus-theater-streaming.html
+
+**Kacey Musgraves Returns, Cheeky as Ever**\
+`Kacey Musgraves is back with her latest single, “Dry Spell.” Our critic Jon Caramanica explains how the song’s double entendres and parched guitar signal a return to form for the country star.`\
+https://www.nytimes.com/video/podcasts/100000010841429/kacey-musgraves-returns-cheeky-as-ever.html
+
 **Getting the Pope to Answer a Pointed Question at 30,000 Feet**\
 `The Times’s Rome bureau chief is still getting a feel for a pontiff who is willing to challenge President Trump and use his sense of humor.`\
 https://www.nytimes.com/2026/04/15/world/europe/pope-leo-papal-plane.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/15/world/europe/europe-ukraine-aid-iran.html
 **Journalism Essentials: A Limited Series on Media Literacy**\
 `Our first bite-size teachings on fundamentals from The School of The New York Times look at journalism’s role in society.`\
 https://www.nytimes.com/2026/04/15/learning/learning-network-limited-series-media-literacy.html
-
-**SantaCon Leader Ran His Own $1 Million Con Game, U.S. Says**\
-`Stefan Pildes “siphoned” more than half of the money donated over five years for the outing, a raucous New York City bar crawl promoted as a charitable event, prosecutors said.`\
-https://www.nytimes.com/2026/04/15/nyregion/santacon-wire-fraud-stefan-pildes.html
-
-**Ad Companies Settle With F.T.C. Over Claims of Harm to Conservative Sites**\
-`WPP, Dentsu and Publicis settled claims they colluded on policies to combat misinformation, denying ad revenue to publishers on the right.`\
-https://www.nytimes.com/2026/04/15/technology/ftc-ad-companies-settlement.html
 
