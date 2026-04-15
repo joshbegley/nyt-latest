@@ -1,3 +1,7 @@
+**Honoring Frederic Church: Beyond the Hudson River School**\
+`His many achievements have been obscured, some believe, by his reputation as a provincial landscape painter.`\
+https://www.nytimes.com/2026/04/15/arts/design/frederic-church-hudson-river-school.html
+
 **Iran-Linked Ships Slow or Stop as U.S. Blockade Is ‘Fully Implemented’**\
 `More than a dozen U.S. Navy warships are enforcing a blockade on all vessels from all nations entering or leaving coastal areas or ports in Iran.`\
 https://www.nytimes.com/2026/04/15/world/middleeast/iran-ships-strait-hormuz-blockade.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/04/15/world/iran-war-trump-us-israel/heres-how
 **Listen to all six episodes of ‘The Good Whale’**\
 `A great story for the new year.`\
 https://www.nytimes.com/2026/04/15/podcasts/listen-to-all-six-episodes-of-the-good-whale.html
-
-**Your stories of ‘The Good Whale’**\
-`Here’s what you told us.`\
-https://www.nytimes.com/2026/04/15/podcasts/your-stories-of-the-good-whale.html
 
