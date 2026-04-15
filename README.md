@@ -1,3 +1,7 @@
+**5 Things to Know About New York’s Proposed Second Home Tax**\
+`Gov. Kathy Hochul wants to tax second homes in New York City that are worth $5 million or more. Here’s how the proposal might work.`\
+https://www.nytimes.com/2026/04/15/realestate/pied-a-terre-tax-nyc-hochul-mamdani.html
+
 **Shakespeare Bought One Property in London. Now We Know Exactly Where.**\
 `In confirming the precise location of William Shakespeare’s Blackfriars house, a British scholar raises fresh questions about what he intended to do with it.`\
 https://www.nytimes.com/2026/04/15/world/europe/shakespeare-london-property-house.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/dining/100000010840690/one-pot-white-wine-pasta.ht
 **Spaghetti all’Assassina**\
 `This spicy one-pot pasta dish is common on menus in Bari, Italy, but can easily be prepared at home.`\
 https://www.nytimes.com/video/dining/100000010840678/spaghetti-allassassina.html
-
-**Coconut-Miso Salmon Curry**\
-`This light, delicate weeknight curry comes together in less than 30 minutes and is defined by its deep miso flavor.`\
-https://www.nytimes.com/video/dining/100000010840680/coconut-miso-salmon-curry.html
 
