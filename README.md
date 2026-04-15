@@ -1,3 +1,7 @@
+**Super Typhoon Slams Northern Mariana Islands, Causing Widespread Damage**\
+`But there were no early reports of casualties from the storm, which was named Sinlaku and was moving northwest of the region.`\
+https://www.nytimes.com/2026/04/15/world/asia/typhoon-sinlaku-saipan-damage.html
+
 **Late Night Laughs at Explanations of Trump’s Jesus ‘Joke’**\
 `Ronny Chieng poked fun at JD Vance’s defense of President Trump posting an image of himself as a Christ-like figure.`\
 https://www.nytimes.com/2026/04/15/arts/television/late-night-trump-jesus.html
@@ -18,13 +22,13 @@ https://www.nytimes.com/es/2026/04/15/espanol/corea-del-sur-crisis-medicina.html
 `China has denied claims this month by U.S. intelligence that it might have shipped arms to Iran. In recent years, China has supported Iran with dual-use parts.`\
 https://www.nytimes.com/2026/04/15/world/asia/china-iran-weapons-sales.html
 
-**The World Has Forgotten My Country, but I Haven’t**\
-`The spirit of the Sudanese people cannot be crushed.`\
-https://www.nytimes.com/2026/04/15/opinion/sudan-war-rsf-darfur.html
-
 **Pope Leo to Trump: ‘I Have No Fear’**\
 `A harsh attack by the president drew a quick response from the pontiff, a reminder of his uniquely moral voice.`\
 https://www.nytimes.com/2026/04/15/opinion/pope-leo-trump-iran-war.html
+
+**The World Has Forgotten My Country, but I Haven’t**\
+`The spirit of the Sudanese people cannot be crushed.`\
+https://www.nytimes.com/2026/04/15/opinion/sudan-war-rsf-darfur.html
 
 **La caída de Orbán es una oportunidad de oro**\
 `Los votantes demostraron que la democracia puede ser restaurada pacíficamente por el pueblo.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/14/us/politics/jd-vance-turning-point-usa-protes
 **Vance Says the Pope Should Be More Careful When Talking About Theology**\
 `The vice president, who is Catholic, took issue with Pope Leo XIV’s statement that disciples of Christ are “never on the side of those who once wielded the sword and today drop bombs.”`\
 https://www.nytimes.com/2026/04/14/us/politics/vance-pope-trump-georgia.html
-
-**Ship ‘Spoofing’ in Strait of Hormuz May Compound Confusion**\
-`A new pattern of deceptive activity by some vessels around the critical waterway suggests the new American blockade is changing how some ships linked to Iran are behaving.`\
-https://www.nytimes.com/2026/04/14/world/middleeast/strait-of-hormuz-naval-blockade-ship-spoofing.html
 

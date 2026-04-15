@@ -1,3 +1,11 @@
+**Late Night Laughs at Explanations of Trump’s Jesus ‘Joke’**\
+`Ronny Chieng poked fun at JD Vance’s defense of President Trump posting an image of himself as a Christ-like figure.`\
+https://www.nytimes.com/2026/04/15/arts/television/late-night-trump-jesus.html
+
+**Pope Leo to Trump: ‘I Have No Fear’**\
+`A harsh attack by the president drew a quick response from the pontiff, a reminder of his uniquely moral voice.`\
+https://www.nytimes.com/2026/04/15/opinion/pope-leo-trump-iran-war.html
+
 **Palabra del día: ‘effervescence’**\
 `Esta palabra ha aparecido en 27 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/04/15/espanol/que-significa-effervescence.html
