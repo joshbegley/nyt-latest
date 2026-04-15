@@ -1,3 +1,7 @@
+**He Preached the Gospel on the Subway. Then He Pulled Out a Machete.**\
+`Anthony Griffin was a popular battle rapper who turned toward religious rhetoric. The police say he slashed three people with a machete before they killed him.`\
+https://www.nytimes.com/2026/04/15/nyregion/machete-attack-grand-central.html
+
 **What the Iran War Means for China**\
 `Our national security correspondent David E. Sanger examines what the Iran war means to China, which is the world’s biggest importer of Iranian oil.`\
 https://www.nytimes.com/video/us/100000010840169/what-the-iran-war-means-for-china.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/15/opinion/iran-drone-war.html
 **Jury Finds Live Nation Acts as a Monopoly in a Victory for States**\
 `In a verdict that could have far-reaching consequences in the music industry, the live colossus that includes Ticketmaster was found to have violated antitrust laws.`\
 https://www.nytimes.com/2026/04/15/arts/music/live-nation-antitrust-trial-verdict-monopoly.html
-
-**Senate Republicans Again Block Bid to Limit Trump’s Iran War Powers**\
-`For the fourth time since the war began, G.O.P. senators successfully fended off an effort to constrain the president. But there were signs of growing unease among Republicans.`\
-https://www.nytimes.com/2026/04/15/us/politics/trumps-iran-war-powers-vote-senate.html
 
