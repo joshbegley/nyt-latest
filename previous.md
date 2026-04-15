@@ -44,14 +44,14 @@ https://www.nytimes.com/2026/04/15/style/tiny-modern-love-stories-embarrassed-ye
 
 **Stocks Approach Record High as Wall St. Looks Beyond War**\
 `Investors appear to be treating an end to the U.S.-Israeli war with Iran as a foregone conclusion.`\
-https://www.nytimes.com/2026/04/15/business/stocks-approach-record-high-as-wall-st-looks-beyond-war.html
+https://www.nytimes.com/2026/04/15/business/stocks-record-iran-war.html
 
 **Dam Failure Could Imperil Thousands in Northern Michigan**\
 `A levee breach near Cheboygan had forced evacuations and officials continue to monitor a nearby dam. Rain and snowmelt have affected the area.`\
 https://www.nytimes.com/2026/04/15/us/floods-michigan-cheboygan-dams-evacuation.html
 
 **Snap Is Laying Off 16% of Full-Time Staff as It Embraces A.I.**\
-`The company, which owns the social media app Snapchat, said it was laying off about 1,000 employees as it increases its reliance on artificial intelligence.`\
+`The company, which owns the social media app Snapchat, said it was laying off about 1,000 employees as it increased its reliance on artificial intelligence.`\
 https://www.nytimes.com/2026/04/15/business/snap-layoffs-snapchat.html
 
 **El bloqueo de Trump al estrecho de Ormuz puede poner en riesgo la relación con China**\

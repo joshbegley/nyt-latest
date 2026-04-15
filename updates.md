@@ -1,3 +1,11 @@
+**Stocks Approach Record High as Wall St. Looks Beyond War**\
+`Investors appear to be treating an end to the U.S.-Israeli war with Iran as a foregone conclusion.`\
+https://www.nytimes.com/2026/04/15/business/stocks-record-iran-war.html
+
+**Snap Is Laying Off 16% of Full-Time Staff as It Embraces A.I.**\
+`The company, which owns the social media app Snapchat, said it was laying off about 1,000 employees as it increased its reliance on artificial intelligence.`\
+https://www.nytimes.com/2026/04/15/business/snap-layoffs-snapchat.html
+
 **‘We Cannot Lose Sight of Ukraine.’ Europeans Promise More Aid to Kyiv.**\
 `The focus in recent weeks has been on the conflict in Iran, but European leaders said it was crucial to keep aid flowing to Ukraine.`\
 https://www.nytimes.com/2026/04/15/world/europe/europe-ukraine-aid-iran.html
