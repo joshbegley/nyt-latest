@@ -1,3 +1,7 @@
+**Prosecutors Make Surprise Visit to Fed as Pirro Defends Investigation**\
+`The Justice Department’s criminal inquiry into the Federal Reserve threatens to delay the confirmation of the next chair.`\
+https://www.nytimes.com/2026/04/14/us/politics/pirro-federal-reserve-investigation.html
+
 **Works Out**\
 `Adam Wagner’s Wednesday puzzle coalesces into a fun solve.`\
 https://www.nytimes.com/2026/04/14/crosswords/daily-puzzle-2026-04-15.html
