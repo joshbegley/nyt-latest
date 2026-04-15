@@ -1,3 +1,11 @@
+**Omaha Police Fatally Shoot Woman Who Cut 3-Year-Old Boy With Knife at Walmart**\
+`The woman forced the child, who was sitting in a cart, and his babysitter out of the store at knife point. She had the boy when police arrived, the department said. The shooting is under investigation.`\
+https://www.nytimes.com/2026/04/15/us/omaha-walmart-child-stabbing-police-shooting.html
+
+**‘The Pitt’ Perfectly Captures the Stress of 2026**\
+`Before the Season 2 finale of “The Pitt,” The Times’s critic, Wesley Morris, realized that the show has been playing the same trick on him again and again. Every time this medical drama lulls you into complacency, it jolts you awake with a new emergency — which is exactly what it feels like to be alive in 2026.`\
+https://www.nytimes.com/video/podcasts/100000010834683/the-pitt-perfectly-captures-the-stress-of-2026.html
+
 **With Iran War on Pause, Political Battle Resumes Over Israeli Democracy**\
 `A court fight over Itamar Ben-Gvir, an extremist who oversees the police, pits the attorney general against Benjamin Netanyahu and his right-wing government.`\
 https://www.nytimes.com/2026/04/15/world/middleeast/israel-ben-gvir-hearing.html
