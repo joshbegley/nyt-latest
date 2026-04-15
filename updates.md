@@ -1,3 +1,15 @@
+**Así han evolucionado las transferencias de armas de China a Irán por décadas**\
+`China ha negado las afirmaciones de los servicios de inteligencia de EE. UU. de que podría haber enviado armas a Irán. En los últimos años, China ha apoyado a Irán con piezas de doble uso.`\
+https://www.nytimes.com/es/2026/04/15/espanol/mundo/china-armas-iran-guerra-estados-unidos.html
+
+**U.S. Blockade in Strait of Hormuz Appears to Hold**\
+`The U.S. blockade of the Strait of Hormuz appeared to be working on Wednesday, as marine trackers reported no Iran-linked ships entering or exiting the strait since the blockade began on Monday.`\
+https://www.nytimes.com/video/world/middleeast/100000010842198/us-blockade-strait-hormuz-iran-ships.html
+
+**My Longtime Housekeeper’s Work Is Slipping. What Should I Do?**\
+`We know she depends on this income, and we have hesitated to raise the issue with her.`\
+https://www.nytimes.com/2026/04/15/magazine/housekeeper-work-slipping-ethics.html
+
 **Review: Here’s Johnny! (And Bach and 4 Choreographers)**\
 `The violinist Johnny Gandelsman wanted his music to move. In the overly winsome “Johnny Loves Johann,” he performs Bach’s cello suites alongside four dance artists.`\
 https://www.nytimes.com/2026/04/15/arts/dance/review-johnny-gandlesman-bach-jamar-roberts.html
