@@ -1,3 +1,7 @@
+**Yale Report on Universities’ Problems Finds Culprit: Schools Like Yale**\
+`A 10-member committee offered a brutal assessment of academia’s role in creating the forces challenging American colleges and universities.`\
+https://www.nytimes.com/2026/04/15/us/yale-report-colleges-unversities-trust.html
+
 **Mamdani and N.Y.C. Council Speaker Reach Truce Over Key Appointment**\
 `The speaker, Julie Menin, privately agreed to not block Nadia Shihata’s appointment to lead the Department of Investigation as a sign of peace with Mayor Zohran Mamdani.`\
 https://www.nytimes.com/2026/04/15/nyregion/mamdani-menin-deal-department-investigation.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/15/opinion/vance-pope-leo-morality.html
 **Tiny Love Stories: ‘Embarrassed Yet Unable to Stop’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/04/15/style/tiny-modern-love-stories-embarrassed-yet-unable-to-stop.html
-
-**Stocks Approach Record High as Wall St. Looks Beyond War**\
-`Investors appear to be treating an end to the U.S.-Israeli war with Iran as a foregone conclusion.`\
-https://www.nytimes.com/2026/04/15/business/stocks-record-iran-war.html
 

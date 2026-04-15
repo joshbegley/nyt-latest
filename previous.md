@@ -1,3 +1,31 @@
+**Mamdani and N.Y.C. Council Speaker Reach Truce Over Key Appointment**\
+`The speaker, Julie Menin, privately agreed to not block Nadia Shihata’s appointment to lead the Department of Investigation as a sign of peace with Mayor Zohran Mamdani.`\
+https://www.nytimes.com/2026/04/15/nyregion/mamdani-menin-deal-department-investigation.html
+
+**How The Times Covers Attackers, Suspects and Victims of Violence**\
+`Reporting on the people who upend life and those whose lives are upended can bring surprising and uncomfortable details to light.`\
+https://www.nytimes.com/2026/04/15/insider/nyt-approach-naming-attackers-suspects-victims.html
+
+**Iran Is Teaching Us Something About the American War Machine**\
+`The future of war belongs to “flying lawn mowers”`\
+https://www.nytimes.com/2026/04/15/opinion/iran-drone-war.html
+
+**Jury Finds Live Nation Acts as a Monopoly in a Victory for States**\
+`The music industry colossus that includes Ticketmaster was found to have violated antitrust laws by using its dominance in the industry to stifle competition.`\
+https://www.nytimes.com/2026/04/15/arts/music/live-nation-antitrust-trial-verdict-monopoly.html
+
+**Senate Republicans Again Block Bid to Limit Trump’s Iran War Powers**\
+`For the fourth time since the war began, G.O.P. senators successfully fended off an effort to constrain the president. But there were signs of growing unease among Republicans.`\
+https://www.nytimes.com/2026/04/15/us/politics/trumps-iran-war-powers-vote-senate.html
+
+**Trump’s Quest for More Sway Over Fed Faces Fresh Hurdles**\
+`Jerome H. Powell’s term as chair of the Federal Reserve ends on May 15, but it appears increasingly likely that he will stay on in some capacity at the central bank after that.`\
+https://www.nytimes.com/2026/04/15/business/trump-federal-bank-fresh-hurdles.html
+
+**Top U.S. Diplomat in Venezuela Leaves Post After Arriving in January**\
+`Laura Dogu, who reopened the U.S. Embassy in Venezuela, returns to advising Gen. Dan Caine, the highest ranking U.S. military officer, as the war with Iran continues.`\
+https://www.nytimes.com/2026/04/15/world/americas/venezuela-us-diplomat-laura-dogu-leaves.html
+
 **Brazilian Official Put China’s BYD on Slave Labor List. Then He Was Fired.**\
 `The dismissal of Brazil’s top labor inspector has landed the leftist government of President Lula, a former union leader, in an awkward spot.`\
 https://www.nytimes.com/2026/04/15/world/americas/brazil-lula-workers-rights-labor-abuse.html
@@ -49,32 +77,4 @@ https://www.nytimes.com/2026/04/15/style/tiny-modern-love-stories-embarrassed-ye
 **Stocks Approach Record High as Wall St. Looks Beyond War**\
 `Investors appear to be treating an end to the U.S.-Israeli war with Iran as a foregone conclusion.`\
 https://www.nytimes.com/2026/04/15/business/stocks-record-iran-war.html
-
-**Dam Failure Could Imperil Thousands in Northern Michigan**\
-`A levee breach near Cheboygan had forced evacuations and officials continue to monitor a nearby dam. Rain and snowmelt have affected the area.`\
-https://www.nytimes.com/2026/04/15/us/floods-michigan-cheboygan-dams-evacuation.html
-
-**Snap Is Laying Off 16% of Full-Time Staff as It Embraces A.I.**\
-`The company, which owns the social media app Snapchat, said it was laying off about 1,000 employees as it increased its reliance on artificial intelligence.`\
-https://www.nytimes.com/2026/04/15/business/snap-layoffs-snapchat.html
-
-**El bloqueo de Trump al estrecho de Ormuz puede poner en riesgo la relación con China**\
-`El reto más reciente al que se enfrenta el presidente Trump es cómo evitar que el conflicto con Irán haga tambalear la incipiente distensión con China.`\
-https://www.nytimes.com/es/2026/04/15/espanol/mundo/china-trump-xi-bloqueo-estrecho-ormuz.html
-
-**Trump says he’s willing to ‘risk’ giving up rights as he pushes to extend a surveillance law.**\
-``\
-https://www.nytimes.com/live/2026/04/15/us/trump-news/trump-says-hes-willing-to-risk-giving-up-rights-as-he-pushes-to-extend-a-surveillance-law
-
-**Debt Alarms Ring as Countries Rack Up More Emergency Spending**\
-`Amid signs of a prolonged period of high energy costs, policymakers are urging restraint as governments open up the public till to protect households and businesses.`\
-https://www.nytimes.com/2026/04/15/business/iran-war-fiscal-debt-impact.html
-
-**Israel Considering Cease-fire With Lebanon, Officials Say**\
-`Talk of a truce that would pause the war between Israel and Iran-backed Hezbollah in Lebanon followed rare direct talks between Israel and Lebanon in Washington on Tuesday.`\
-https://www.nytimes.com/2026/04/15/world/middleeast/israel-lebanon-ceasefire-preparations-hezbollah.html
-
-**Así han evolucionado las transferencias de armas de China a Irán por décadas**\
-`China ha negado las afirmaciones de los servicios de inteligencia de EE. UU. de que podría haber enviado armas a Irán. En los últimos años, China ha apoyado a Irán con piezas de doble uso.`\
-https://www.nytimes.com/es/2026/04/15/espanol/mundo/china-armas-iran-guerra-estados-unidos.html
 
