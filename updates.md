@@ -1,3 +1,35 @@
+**One-Pot White Wine Pasta**\
+`While this pasta is reminiscent of scampi, piccata and vongole, it delivers something more — a hard-to-pin-down complexity that comes from cooking the pasta not in water but in wine.`\
+https://www.nytimes.com/video/dining/100000010840690/one-pot-white-wine-pasta.html
+
+**Spaghetti all’Assassina**\
+`This spicy one-pot pasta dish is common on menus in Bari, Italy, but can easily be prepared at home.`\
+https://www.nytimes.com/video/dining/100000010840678/spaghetti-allassassina.html
+
+**Coconut-Miso Salmon Curry**\
+`This light, delicate weeknight curry comes together in less than 30 minutes and is defined by its deep miso flavor.`\
+https://www.nytimes.com/video/dining/100000010840680/coconut-miso-salmon-curry.html
+
+**Loaded Sweet Potatoes With Kimchi and Bacon**\
+`For effort-to-flavor ratio, you can’t really beat a jar of kimchi and a pack of bacon. This five-ingredient dinner is a riot of deliciousness: Sweet potatoes roasted in bacon fat provide a sturdy base for bacon-enriched kimchi and pillowy mozzarella.`\
+https://www.nytimes.com/video/dining/100000010840683/loaded-sweet-potatoes-with-kimchi-and-bacon.html
+
+**Skillet Gnocchi With Miso Butter and Asparagus**\
+`This skillet gnocchi recipe has a spring in its step: It takes just 10 minutes to cook and is loaded with sweet springtime asparagus and baby greens.`\
+https://www.nytimes.com/video/dining/100000010841014/skillet-gnocchi-with-miso-butter-and-asparagus.html
+
+**Carrot Maqluba**\
+`Maqluba is a traditional Palestinian dish made of rice, meat and fried vegetables, most often eggplants (in summer) or cauliflower (in winter), although some like to combine both, and add carrots as well.`\
+https://www.nytimes.com/video/dining/100000010840686/carrot-maqluba.html
+
+**What Was the Deal With Jack Harlow’s Giant Hat?**\
+`Also, fashion can’t quit Anna Wintour.`\
+https://www.nytimes.com/2026/04/15/style/jack-harlow-hat.html
+
+**The Social Contract That Held the Internet Together Is Collapsing**\
+`In the race to patch up cybersecurity holes found by the newest A.I. models, we risk leaving too many people to fend for themselves.`\
+https://www.nytimes.com/2026/04/15/opinion/mythos-open-souce-internet.html
+
 **Labor Dept. Investigates Texts Among Secretary’s Family and Staff**\
 `Secretary Lori Chavez-DeRemer asked staff members to bring wine to her hotel room, and to keep in touch with her husband and father.`\
 https://www.nytimes.com/2026/04/15/us/politics/labor-secretary-text-messages.html
