@@ -1,3 +1,15 @@
+**Lena Dunham: Adam Driver’s Character on ‘Girls’ Wasn’t Meant to Be a Hero**\
+`On “The Interivew,” Lena Dunham talks about recreating some uncomfortable moments in her life onscreen, and how audiences responded in unexpected ways.`\
+https://www.nytimes.com/video/arts/100000010839985/lena-dunham-adam-drivers-character-on-girls-wasnt-meant-to-be-a-hero.html
+
+**Lena Dunham on Why Her Dad Didn’t Want to Vote With Her**\
+`During the height of her fame, Lena Dunham’s name became synonymous with certain millennial clichés. On “The Interview,” she talks about that experience and how her dad tried to avoid the media attention she attracted.`\
+https://www.nytimes.com/video/arts/100000010839986/lena-dunham-on-why-her-dad-didnt-want-to-vote-with-her.html
+
+**Hungría y la paradoja populista**\
+`Analizamos lo que la derrota de Viktor Orbán nos dice sobre un modelo de gobierno en el que la política es más importante que la economía.`\
+https://www.nytimes.com/es/2026/04/15/espanol/mundo/hungria-paradoja-populista.html
+
 **The Republicans Who Disapprove of the War, and a Wave of College Closures**\
 `Plus, will the World Cup bring tourists back to the U.S.?`\
 https://www.nytimes.com/2026/04/15/podcasts/the-headlines/republicans-disapprove-iran-war-college-closures.html
