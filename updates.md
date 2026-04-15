@@ -1,3 +1,23 @@
+**Tiny Love Stories: ‘Embarrassed Yet Unable to Stop’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/04/15/style/tiny-modern-love-stories-embarrassed-yet-unable-to-stop.html
+
+**Stocks Approach Record High as Wall St. Looks Beyond War**\
+`Investors appear to be treating an end to the U.S.-Israeli war with Iran as a foregone conclusion.`\
+https://www.nytimes.com/2026/04/15/business/stocks-approach-record-high-as-wall-st-looks-beyond-war.html
+
+**Floodwaters Strain Dams in Northern Michigan With Thousands Downstream**\
+`A levee breach near Cheboygan has already forced evacuations. Engineers were monitoring dams taxed by rain and snowmelt.`\
+https://www.nytimes.com/2026/04/15/us/floods-michigan-cheboygan-dams-evacuation.html
+
+**Snap Is Laying Off 16% of Full-Time Staff as It Embraces A.I.**\
+`The company, which owns the social media app Snapchat, said it was laying off about 1,000 employees as it increases its reliance on artificial intelligence.`\
+https://www.nytimes.com/2026/04/15/business/snap-layoffs-snapchat.html
+
+**El bloqueo de Trump al estrecho de Ormuz puede poner en riesgo la relación con China**\
+`El reto más reciente al que se enfrenta el presidente Trump es cómo evitar que el conflicto con Irán haga tambalear la incipiente distensión con China.`\
+https://www.nytimes.com/es/2026/04/15/espanol/mundo/china-trump-xi-bloqueo-estrecho-ormuz.html
+
 **Trump says he’s willing to ‘risk’ giving up rights as he pushes to extend a surveillance law.**\
 ``\
 https://www.nytimes.com/live/2026/04/15/us/trump-news/trump-says-hes-willing-to-risk-giving-up-rights-as-he-pushes-to-extend-a-surveillance-law

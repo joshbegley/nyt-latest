@@ -1,3 +1,7 @@
+**Vance, the Pope and ‘Matters of Morality’**\
+`Readers respond to Vice President JD Vance’s remarks critical of Pope Leo XIV. Also: Mr. Trump, try kindness; a tax solution that wasn’t.`\
+https://www.nytimes.com/2026/04/15/opinion/vance-pope-leo-morality.html
+
 **Tiny Love Stories: ‘Embarrassed Yet Unable to Stop’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/04/15/style/tiny-modern-love-stories-embarrassed-yet-unable-to-stop.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/15/arts/design/frederic-church-hudson-river-scho
 **Iran-Linked Ships Slow or Stop as U.S. Blockade Is ‘Fully Implemented’**\
 `More than a dozen U.S. Navy warships are enforcing a blockade on all vessels from all nations entering or leaving coastal areas or ports in Iran.`\
 https://www.nytimes.com/2026/04/15/world/middleeast/iran-ships-strait-hormuz-blockade.html
-
-**‘Giant’ and Roald Dahl’s Antisemitism: What’s Fact and Fiction?**\
-`Mark Rosenblatt’s Broadway play, starring John Lithgow as the British children’s book author, draws from Dahl’s comments over the years.`\
-https://www.nytimes.com/2026/04/15/theater/roald-dahl-controversies-giant.html
 
