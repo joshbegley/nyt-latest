@@ -1,3 +1,7 @@
+**Getting the Pope to Answer a Pointed Question at 30,000 Feet**\
+`The Times’s Rome bureau chief is still getting a feel for a pontiff who is willing to challenge President Trump and use his sense of humor.`\
+https://www.nytimes.com/2026/04/15/world/europe/pope-leo-papal-plane.html
+
 **South Africa Names Roelf Meyer as New Ambassador to Trump’s Washington**\
 `The move comes as the country looks to strengthen diplomatic ties with the United States after months of hostility between the two nations.`\
 https://www.nytimes.com/2026/04/15/world/africa/south-africa-us-ambassador-roelf-meyer.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/15/nyregion/santacon-wire-fraud-stefan-pildes.ht
 **Ad Companies Settle With F.T.C. Over Claims of Harm to Conservative Sites**\
 `WPP, Dentsu and Publicis settled claims they colluded on policies to combat misinformation, denying ad revenue to publishers on the right.`\
 https://www.nytimes.com/2026/04/15/technology/ftc-ad-companies-settlement.html
-
-**Why Is Child Care So Expensive?**\
-`Plus, why the industry is a “market failure.”`\
-https://www.nytimes.com/2026/04/15/headway/newsletter-cost-child-care.html
 
