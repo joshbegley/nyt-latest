@@ -1,3 +1,63 @@
+**¿La Copa Mundial logrará que los turistas regresen a EE. UU.?**\
+`Las restricciones de viaje, la posible revisión de redes sociales y los elevadísimos precios de las entradas están ahuyentando a los aficionados internacionales al fútbol, pero las ciudades anfitrionas siguen esperando un auge.`\
+https://www.nytimes.com/es/2026/04/15/espanol/estilos-de-vida/turismo-copa-mundial.html
+
+**Una novela histórica ha convertido a un escritor muy joven en estrella**\
+`Nelio Biedermann, un estudiante de apenas 22 años, ha sido comparado con Thomas Mann gracias a “Lázár”, su arrolladora saga familiar.`\
+https://www.nytimes.com/es/2026/04/15/espanol/cultura/nelie-biedermann-lazar.html
+
+**Elizabeth Banks Married Her College Sweetheart. They’re Still in Love.**\
+`The “Miniature Wife” star on why she and her husband have chosen each other, over and over again.`\
+https://www.nytimes.com/2026/04/15/podcasts/elizabeth-banks-married-her-college-sweetheart-theyre-still-in-love.html
+
+**The Great American GLP-1 Experiment**\
+`Millions of Americans are experimenting with the drugs. Science can’t keep up.`\
+https://www.nytimes.com/interactive/2026/04/15/opinion/glp1-health-effects.html
+
+**A Progressive Group Rolls Out a Campus Competitor to Turning Point**\
+`More Perfect Union, a left-wing media organization, hopes to win back young voters and build a new generation of college influencers with its More Perfect University program.`\
+https://www.nytimes.com/2026/04/15/us/politics/a-progressive-group-rolls-out-a-campus-competitor-to-turning-point.html
+
+**Trump Is in Over His Head**\
+`This is not a man in control of himself.`\
+https://www.nytimes.com/2026/04/15/opinion/trump-iran-power-unitary-executive.html
+
+**A Design Editor Applies Color and Restraint in His Madrid Apartment**\
+`Enric Pastor takes an editor’s eye to his 900-square-foot home.`\
+https://www.nytimes.com/2026/04/15/realestate/a-design-editor-applies-color-and-restraint-in-his-madrid-apartment.html
+
+**Review: ‘Margo’s Got Money Troubles’ Will Make an OnlyFan of You**\
+`Elle Fanning stars in a big-hearted, open-minded dramedy about online exposure and its complications.`\
+https://www.nytimes.com/2026/04/15/arts/television/margos-got-money-troubles-review.html
+
+**Thousands of N.Y.C. Doormen Seeking Better Pay Are Set to Vote on Strike**\
+`It would be the first walkout by the apartment building workers in more than three decades.`\
+https://www.nytimes.com/2026/04/15/nyregion/nyc-doorman-strike.html
+
+**‘No Picnic’ Is a Walk Down Mean Street Memory Lane**\
+`This Philip Hartman movie, shot in the East Village in 1985 and now restored, shows at Film Forum through April 23.`\
+https://www.nytimes.com/2026/04/15/movies/no-picnic-philip-hartman.html
+
+**Spice Up Your Cooking Skills With Help From Your Phone**\
+`Recipe apps and artificial intelligence can give you a boost, but free tools already on your device can also assist with meal planning and preparation.`\
+https://www.nytimes.com/2026/04/15/technology/personaltech/recipes-cooking-ai.html
+
+**Window Guards Started Saving Lives 50 Years Ago**\
+`The health department began to require the guards in apartments with children under age 10 in 1976. They have had a remarkable impact.`\
+https://www.nytimes.com/2026/04/15/nyregion/window-guards-nyc-50-years.html
+
+**New York Calls for Accountability for Firm Accused of Ignoring Assaults**\
+`The state comptroller said the real estate brokerage eXp, two of whose former agents have been accused of sexual assault, should fix its company culture instead of moving to Texas.`\
+https://www.nytimes.com/2026/04/15/nyregion/exp-abuse-lawsuit-shareholders.html
+
+**The Budget Side of Burgundy**\
+`While $50 a bottle is nobody’s idea of cheap, in the context of Burgundy, it can be a good deal. Here are 12 bottles for $50 and under.`\
+https://www.nytimes.com/2026/04/15/dining/drinks/burgundy-prices.html
+
+**$500,000 Homes in Alabama, Maine and Oregon**\
+`A bungalow in Mobile, Ala., a condominium above a storefront in Portland, Maine, and a Craftsman in Astoria, Ore.`\
+https://www.nytimes.com/2026/04/15/realestate/mobile-alabama-portland-maine-astoria-oregon-homes-sale.html
+
 **Why American Jews Still Weep for Willy Loman**\
 `A revival of “Death of a Salesman” comes as the “Zionist consensus” is openly fracturing.`\
 https://www.nytimes.com/2026/04/15/opinion/american-jews-death-of-a-salesman.html
@@ -17,64 +77,4 @@ https://www.nytimes.com/interactive/2026/travel/amsterdam-netherlands-guide.html
 **Just Because I Wrote This Doesn’t Mean I’ll Be On Your Panel About A.I.**\
 `People are usually surprised when I admit that I love A.I.`\
 https://www.nytimes.com/2026/04/15/opinion/art-artificial-intelligence.html
-
-**Why It’s Crucial We Understand How A.I. ‘Thinks’**\
-`For us to trust it on certain subjects, researchers in the growing field of interpretability might need to learn how to open the black box of its brain.`\
-https://www.nytimes.com/2026/04/15/magazine/ai-black-box-interpretability-research.html
-
-**Has the Rise of A.I. Changed Your Career Plans?**\
-`Interest in the trades is surging among young people. Could developing a special skill lead to job security and personal satisfaction for you?`\
-https://www.nytimes.com/2026/04/15/learning/has-the-rise-of-ai-changed-your-career-plans.html
-
-**Oscar Isaac and Carey Mulligan Have a Generational ‘Beef’**\
-`The actors play a married couple on the brink in the second season of the Netflix anthology series.`\
-https://www.nytimes.com/2026/04/15/arts/television/beef-oscar-isaac-carey-mulligan-netflix.html
-
-**11 Electric Cars Worth a Look as Gas Prices Soar**\
-`The war in Iran has auto shoppers sizing up electrics. Many strong cars are on the market, and there are bargains to be had when buying used.`\
-https://www.nytimes.com/2026/04/15/business/electric-cars-evs-used-gas-prices.html
-
-**He Reinvented the Hoodie. (Good Luck Getting One.)**\
-`Jake Burt sells his wares at a single shop that he staffs himself, stoking interest through scarcity.`\
-https://www.nytimes.com/2026/04/15/style/he-reinvented-the-hoodie-good-luck-getting-one.html
-
-**When El Salvador’s Prisoners Go Free, She’s There to Pick Them Up**\
-`Sugey Amaya’s brother was detained in El Salvador’s mass arrest campaign four years ago. She has devoted her life to helping prisoners like him.`\
-https://www.nytimes.com/2026/04/15/world/americas/sugey-amaya-el-salvadors-prisoners.html
-
-**How ‘Muskism’ Is Changing the Way America Works**\
-`In a new book, Quinn Slobodian and Ben Tarnoff argue that Elon Musk’s disruptive approach to business is transforming both politics and the economy.`\
-https://www.nytimes.com/2026/04/15/books/review/muskism-quinn-slobodian-ben-tarnoff.html
-
-**Russia’s Greatest Love Machine? Probably Not.**\
-`In “Rasputin,” the biographer Antony Beevor delves into the mysterious life of the last czarina’s mystic adviser.`\
-https://www.nytimes.com/2026/04/15/books/review/rasputin-antony-beevor.html
-
-**In Kannywood, a Film Scene Thrives Despite a Censorship Board**\
-`A city in Northern Nigeria has turned into a moviemaking machine, churning out hundreds of productions a year.`\
-https://www.nytimes.com/2026/04/15/movies/in-kannywood-a-film-scene-thrives-despite-a-censorship-board.html
-
-**Will Sister Mary Kay Turn Out the Lights?**\
-`An influential order of nuns decided to complete its mission when the last sister dies. The only question left is how to finish well.`\
-https://www.nytimes.com/2026/04/15/us/sister-mary-kay.html
-
-**What It Was Like Inside U.S.A.I.D. Before He Blew the Whistle**\
-`Nicholas Enrich’s tell-all memoir, “Into the Wood Chipper,” has advice for others caught between their conscience and their government.`\
-https://www.nytimes.com/2026/04/15/books/review/into-the-wood-chipper-nicholas-enrich.html
-
-**Dodging Bombs and Drones, This Postman Still Delivers**\
-`Oleksiy Klochkovsky has driven mail and parcels around the front line in Ukraine for four years. He keeps one ear tuned for danger from above.`\
-https://www.nytimes.com/2026/04/15/world/europe/ukraine-russia-war-kharkiv-nova-poshta.html
-
-**At Cape Town’s Stunning Gardens, Change Is in Bloom**\
-`Visits to three green spaces in and around the South African city reveal a shift in the country’s botanical world, which has long been seen as the province of the white population.`\
-https://www.nytimes.com/2026/04/15/travel/cape-town-south-africa-gardens.html
-
-**He Has a War Chest and an ‘R’ by His Name. Will Enough Voters Like Him?**\
-`Vivek Ramaswamy has all but cleared the field ahead of the May primary for Ohio governor, but whether a finance and pharma billionaire is the man for the moment is another question.`\
-https://www.nytimes.com/2026/04/15/us/politics/vivek-ramaswamy-governors-race-ohio.html
-
-**Tennis vs. Pickleball: What’s a Better Workout?**\
-`Both are great ways to get out and get moving, and both can cause injuries. But there are a few important differences.`\
-https://www.nytimes.com/2026/04/15/well/move/tennis-pickleball-health-benefits.html
 
