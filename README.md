@@ -1,80 +1,80 @@
-**Las celebridades también necesitan fotos de pasaporte**\
-`Durante décadas, un estudio fotográfico en Londres tomo las fotos de pasaporte de algunas de las personalidades más importantes de su época.`\
-https://www.nytimes.com/es/2026/04/15/espanol/cultura/fotos-famosos-pasaporte.html
+**Why American Jews Still Weep for Willy Loman**\
+`A revival of “Death of a Salesman” comes as the “Zionist consensus” is openly fracturing.`\
+https://www.nytimes.com/2026/04/15/opinion/american-jews-death-of-a-salesman.html
 
-**Donde hasta las flores provocan miedo**\
-`Los generales de Birmania han brutalizado al país durante décadas. Pero han llegado a temer las guirnaldas como signo de resistencia.`\
-https://www.nytimes.com/es/2026/04/15/espanol/mundo/birmania-guerra-civil.html
+**Why Is Everyone Wicked Obsessed With This Boston Globe Reporter?**\
+`Emily Sweeney, a veteran journalist at the newspaper, is a social media sensation, bringing joy to all with her “hahd” Boston accent.`\
+https://www.nytimes.com/2026/04/15/style/emily-sweeney-boston-globe-reporter.html
 
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/04/15/world/iran-war-trump-us-israel/heres-the-latest
+**Drew Barrymore and Pete Davidson List Homes in Westchester County**\
+`Ms. Barrymore put her house on the market for nearly $5 million; Mr. Davidson wants almost $2.3 million for his. Also, a purchase from Pink.`\
+https://www.nytimes.com/2026/04/15/realestate/drew-barrymore-and-pete-davidson-list-homes-in-westchester-county.html
 
-**Running a 5K in a Van**\
-`Influencers go to great lengths — even in small spaces — to get views? How far would you go?`\
-https://www.nytimes.com/2026/04/15/learning/running-a-5k-in-a-van.html
+**Your Guide to Amsterdam**\
+`From the top attractions to the most frequently asked questions, our guide has all you need to plan your next visit.`\
+https://www.nytimes.com/interactive/2026/travel/amsterdam-netherlands-guide.html
 
-**How a Times Reporter Has Covered a Turbulent Period in Latin America**\
-`Frances Robles, an international correspondent for The New York Times, has reported on the region for more than 25 years.`\
-https://www.nytimes.com/2026/04/15/insider/frances-robles-new-york-times.html
+**Just Because I Wrote This Doesn’t Mean I’ll Be On Your Panel About A.I.**\
+`People are usually surprised when I admit that I love A.I.`\
+https://www.nytimes.com/2026/04/15/opinion/art-artificial-intelligence.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/04/15/crosswords/spelling-bee-forum.html
+**Why It’s Crucial We Understand How A.I. ‘Thinks’**\
+`For us to trust it on certain subjects, researchers in the growing field of interpretability might need to learn how to open the black box of its brain.`\
+https://www.nytimes.com/2026/04/15/magazine/ai-black-box-interpretability-research.html
 
-**Super Typhoon Slams Northern Mariana Islands, Causing Widespread Damage**\
-`But there were no early reports of casualties from the storm, which was named Sinlaku and was moving northwest of the region.`\
-https://www.nytimes.com/2026/04/15/world/asia/typhoon-sinlaku-saipan-damage.html
+**Has the Rise of A.I. Changed Your Career Plans?**\
+`Interest in the trades is surging among young people. Could developing a special skill lead to job security and personal satisfaction for you?`\
+https://www.nytimes.com/2026/04/15/learning/has-the-rise-of-ai-changed-your-career-plans.html
 
-**Late Night Laughs at Explanations of Trump’s Jesus ‘Joke’**\
-`Ronny Chieng poked fun at JD Vance’s defense of President Trump posting an image of himself as a Christ-like figure.`\
-https://www.nytimes.com/2026/04/15/arts/television/late-night-trump-jesus.html
+**Oscar Isaac and Carey Mulligan Have a Generational ‘Beef’**\
+`The actors play a married couple on the brink in the second season of the Netflix anthology series.`\
+https://www.nytimes.com/2026/04/15/arts/television/beef-oscar-isaac-carey-mulligan-netflix.html
 
-**Palabra del día: ‘effervescence’**\
-`Esta palabra ha aparecido en 27 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
-https://www.nytimes.com/es/2026/04/15/espanol/que-significa-effervescence.html
+**11 Electric Cars Worth a Look as Gas Prices Soar**\
+`The war in Iran has auto shoppers sizing up electrics. Many strong cars are on the market, and there are bargains to be had when buying used.`\
+https://www.nytimes.com/2026/04/15/business/electric-cars-evs-used-gas-prices.html
 
-**Word of the Day: effervescence**\
-`This word has appeared in 27 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/04/15/learning/word-of-the-day-effervescence.html
+**He Reinvented the Hoodie. (Good Luck Getting One.)**\
+`Jake Burt sells his wares at a single shop that he staffs himself, stoking interest through scarcity.`\
+https://www.nytimes.com/2026/04/15/style/he-reinvented-the-hoodie-good-luck-getting-one.html
 
-**En Corea del Sur hay una crisis en la medicina de urgencias**\
-`Cada año, cientos de pacientes tienen dificultades para acceder a la atención de urgencias, a pesar de que el país cuenta con un sistema de salud de primera clase. Para algunos, los retrasos han sido fatales.`\
-https://www.nytimes.com/es/2026/04/15/espanol/corea-del-sur-crisis-medicina.html
+**When El Salvador’s Prisoners Go Free, She’s There to Pick Them Up**\
+`Sugey Amaya’s brother was detained in El Salvador’s mass arrest campaign four years ago. She has devoted her life to helping prisoners like him.`\
+https://www.nytimes.com/2026/04/15/world/americas/sugey-amaya-el-salvadors-prisoners.html
 
-**How China’s Weapons Transfers to Iran Have Evolved Over Decades**\
-`China has denied claims this month by U.S. intelligence that it might have shipped arms to Iran. In recent years, China has supported Iran with dual-use parts.`\
-https://www.nytimes.com/2026/04/15/world/asia/china-iran-weapons-sales.html
+**How ‘Muskism’ Is Changing the Way America Works**\
+`In a new book, Quinn Slobodian and Ben Tarnoff argue that Elon Musk’s disruptive approach to business is transforming both politics and the economy.`\
+https://www.nytimes.com/2026/04/15/books/review/muskism-quinn-slobodian-ben-tarnoff.html
 
-**The World Has Forgotten My Country, but I Haven’t**\
-`The spirit of the Sudanese people cannot be crushed.`\
-https://www.nytimes.com/2026/04/15/opinion/sudan-war-rsf-darfur.html
+**Russia’s Greatest Love Machine? Probably Not.**\
+`In “Rasputin,” the biographer Antony Beevor delves into the mysterious life of the last czarina’s mystic adviser.`\
+https://www.nytimes.com/2026/04/15/books/review/rasputin-antony-beevor.html
 
-**Pope Leo to Trump: ‘I Have No Fear’**\
-`A harsh attack by the president drew a quick response from the pontiff, a reminder of his uniquely moral voice.`\
-https://www.nytimes.com/2026/04/15/opinion/pope-leo-trump-iran-war.html
+**In Kannywood, a Film Scene Thrives Despite a Censorship Board**\
+`A city in Northern Nigeria has turned into a moviemaking machine, churning out hundreds of productions a year.`\
+https://www.nytimes.com/2026/04/15/movies/in-kannywood-a-film-scene-thrives-despite-a-censorship-board.html
 
-**La caída de Orbán es una oportunidad de oro**\
-`Los votantes demostraron que la democracia puede ser restaurada pacíficamente por el pueblo.`\
-https://www.nytimes.com/es/2026/04/15/espanol/opinion/hungria-orban-derrota-democracia.html
+**Will Sister Mary Kay Turn Out the Lights?**\
+`An influential order of nuns decided to complete its mission when the last sister dies. The only question left is how to finish well.`\
+https://www.nytimes.com/2026/04/15/us/sister-mary-kay.html
 
-**Pope Leo’s Challenge in Cameroon: Show African Catholics How Much They Matter**\
-`Catholicism is growing fast on the continent, yet Africans play a comparatively small role in church leadership. Cameroon, which Leo XIV will visit Wednesday, shows the divide.`\
-https://www.nytimes.com/2026/04/15/world/africa/pope-leo-cameroon-africa.html
+**What It Was Like Inside U.S.A.I.D. Before He Blew the Whistle**\
+`Nicholas Enrich’s tell-all memoir, “Into the Wood Chipper,” has advice for others caught between their conscience and their government.`\
+https://www.nytimes.com/2026/04/15/books/review/into-the-wood-chipper-nicholas-enrich.html
 
-**War Exposes Gaps in India’s Clean Energy Push**\
-`The country’s creaking electricity grid is lagging behind its push for renewable sources — just as its growing economy hungers for oil stranded by war.`\
-https://www.nytimes.com/2026/04/15/business/india-solar-energy-problems.html
+**Dodging Bombs and Drones, This Postman Still Delivers**\
+`Oleksiy Klochkovsky has driven mail and parcels around the front line in Ukraine for four years. He keeps one ear tuned for danger from above.`\
+https://www.nytimes.com/2026/04/15/world/europe/ukraine-russia-war-kharkiv-nova-poshta.html
 
-**Billy Crystal Lost His House in the L.A. Fires. He’s Made a Show About It.**\
-`The actor-comedian said he will return to Broadway this fall with a new solo show called “860,” named for the address of his destroyed family home.`\
-https://www.nytimes.com/2026/04/15/theater/billy-crystal-broadway-860.html
+**At Cape Town’s Stunning Gardens, Change Is in Bloom**\
+`Visits to three green spaces in and around the South African city reveal a shift in the country’s botanical world, which has long been seen as the province of the white population.`\
+https://www.nytimes.com/2026/04/15/travel/cape-town-south-africa-gardens.html
 
-**Quote of the Day: A Police Chief’s $4.5 Million Gambling Secret: ‘It’s on the App’**\
-`Quotation of the Day for Wednesday, April 15, 2026.`\
-https://www.nytimes.com/2026/04/14/pageoneplus/quote-of-the-day-a-police-chiefs-4-5-million-gambling-secret-its-on-the-app.html
+**He Has a War Chest and an ‘R’ by His Name. Will Enough Voters Like Him?**\
+`Vivek Ramaswamy has all but cleared the field ahead of the May primary for Ohio governor, but whether a finance and pharma billionaire is the man for the moment is another question.`\
+https://www.nytimes.com/2026/04/15/us/politics/vivek-ramaswamy-governors-race-ohio.html
 
-**Prosecutors Make Surprise Visit to Fed as Pirro Defends Investigation**\
-`The Justice Department’s criminal inquiry into the Federal Reserve threatens to delay the confirmation of the next chair.`\
-https://www.nytimes.com/2026/04/14/us/politics/pirro-federal-reserve-investigation.html
+**Tennis vs. Pickleball: What’s a Better Workout?**\
+`Both are great ways to get out and get moving, and both can cause injuries. But there are a few important differences.`\
+https://www.nytimes.com/2026/04/15/well/move/tennis-pickleball-health-benefits.html
 
