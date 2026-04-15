@@ -1,3 +1,11 @@
+**Hochul Proposes Tax on N.Y.C. Second Homes That Are Worth $5 Million**\
+`Gov. Kathy Hochul, who has opposed raising taxes, favored a “pied-à-terre” luxury tax because it largely targets the ultrawealthy who primarily live outside New York City.`\
+https://www.nytimes.com/2026/04/14/nyregion/hochul-pied-terre-tax.html
+
+**Like Anthropic, OpenAI to Share Latest Technology With Only Trusted Companies**\
+`The maker of ChatGPT announced the limited release of GPT-5.4-Cyber, a technology designed to find security holes in software.`\
+https://www.nytimes.com/2026/04/14/technology/openai-cybersecurity-gpt54-cyber.html
+
 **Trump Officials Pledge Swift Completion of Controversial Gas Pipeline**\
 `The $1 billion project will run for about 23 miles under Raritan Bay in New Jersey and New York Harbor. Environmental groups oppose it.`\
 https://www.nytimes.com/2026/04/14/nyregion/gas-pipeline-underwater-nyc-new-jersey.html
