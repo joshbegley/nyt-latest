@@ -1,3 +1,7 @@
+**House Passes Air Safety Bill, Setting Up Clash with Senate**\
+`Senate leaders say key provisions fall short of what is necessary to prevent aircraft from midair collisions.`\
+https://www.nytimes.com/2026/04/14/us/politics/house-air-safety-bill.html
+
 **Mario Ríos Montt, prelado defensor de los derechos humanos, muere a los 94 años**\
 `Lideró la oficina de derechos humanos de la Iglesia católica en Guatemala incluso cuando su hermano, el ex dictador militar del país, era investigado por genocidio.`\
 https://www.nytimes.com/es/2026/04/14/espanol/america-latina/mario-rios-montt-muere.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/14/briefing/israel-lebanon-talks-bagels-private-
 **The Museums That Helped Power Atlanta’s Rise Are Still Pushing Ahead**\
 `For 100 years, the Atlanta History Center and the High Museum of Art have expanded and diversified, not unlike the metropolis itself.`\
 https://www.nytimes.com/2026/04/14/arts/atlanta-museums.html
-
-**Trump Says 2nd Round of Iran Talks Could Take Place This Week**\
-`The president did not say who would represent the United States in a potential next round of direct talks, though he ruled out being personally involved.`\
-https://www.nytimes.com/2026/04/14/world/middleeast/us-iran-talks-trump.html
 

@@ -1,3 +1,7 @@
+**Mario Ríos Montt, prelado defensor de los derechos humanos, muere a los 94 años**\
+`Lideró la oficina de derechos humanos de la Iglesia católica en Guatemala incluso cuando su hermano, el ex dictador militar del país, era investigado por genocidio.`\
+https://www.nytimes.com/es/2026/04/14/espanol/america-latina/mario-rios-montt-muere.html
+
 **Swalwell’s Exit Injects ‘Chaos’ Into California Governor’s Race**\
 `Democratic candidates see sudden voter interest in the sleepy contest as a campaign opportunity. All are scrambling for support from former backers of Eric Swalwell.`\
 https://www.nytimes.com/2026/04/14/us/california-governor-race-swalwell.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/14/arts/atlanta-museums.html
 **Trump Says 2nd Round of Iran Talks Could Take Place This Week**\
 `The president did not say who would represent the United States in a potential next round of direct talks, though he ruled out being personally involved.`\
 https://www.nytimes.com/2026/04/14/world/middleeast/us-iran-talks-trump.html
-
-**You’ve Heard of the Sky Couch. Meet the Skynest.**\
-`Air New Zealand will begin offering economy passengers four-hour naps in private pods on certain long-haul flights. Will other carriers follow its lead?`\
-https://www.nytimes.com/2026/04/14/travel/air-new-zealand-skynest-economy-sleep-pods.html
 
