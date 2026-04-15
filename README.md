@@ -1,3 +1,7 @@
+**5 Takeaways From the Live Nation Antitrust Trial**\
+`A jury found that the concert giant operated as a monopoly, a verdict that could have major reverberations in the music industry.`\
+https://www.nytimes.com/2026/04/15/arts/music/live-nation-antitrust-trial-monopoly-takeaways.html
+
 **5 Things to Know About New York’s Proposed Second Home Tax**\
 `Gov. Kathy Hochul wants to tax second homes in New York City that are worth $5 million or more. Here’s how the proposal might work.`\
 https://www.nytimes.com/2026/04/15/realestate/pied-a-terre-tax-nyc-hochul-mamdani.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/15/world/pope-leo-africa-trump-iran-pakistan.htm
 **One-Pot White Wine Pasta**\
 `While this pasta is reminiscent of scampi, piccata and vongole, it delivers something more — a hard-to-pin-down complexity that comes from cooking the pasta not in water but in wine.`\
 https://www.nytimes.com/video/dining/100000010840690/one-pot-white-wine-pasta.html
-
-**Spaghetti all’Assassina**\
-`This spicy one-pot pasta dish is common on menus in Bari, Italy, but can easily be prepared at home.`\
-https://www.nytimes.com/video/dining/100000010840678/spaghetti-allassassina.html
 
