@@ -1,3 +1,15 @@
+**Works Out**\
+`Adam Wagner’s Wednesday puzzle coalesces into a fun solve.`\
+https://www.nytimes.com/2026/04/14/crosswords/daily-puzzle-2026-04-15.html
+
+**Corrections: April 15, 2026**\
+`Corrections that appeared in print on Wednesday, April 15, 2026.`\
+https://www.nytimes.com/2026/04/14/pageoneplus/corrections-april-15-2026.html
+
+**Israel’s ‘One-State Reality’**\
+`Hope for a two-state solution between Israel and Palestine is preventing the world from reckoning with the “one-state reality” of the present, the Opinion columnist Ezra Klein argues.`\
+https://www.nytimes.com/video/opinion/100000010830068/israels-one-state-reality.html
+
 **Hochul Proposes Tax on N.Y.C. Second Homes That Are Worth $5 Million**\
 `Gov. Kathy Hochul, who has opposed raising some taxes, favored a “pied-à-terre” luxury tax because it largely targets the ultrawealthy who primarily live outside New York City.`\
 https://www.nytimes.com/2026/04/14/nyregion/hochul-pied-terre-tax.html
