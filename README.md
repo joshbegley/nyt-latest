@@ -62,8 +62,8 @@ https://www.nytimes.com/interactive/2026/04/15/opinion/glp1-health-effects.html
 `More Perfect Union, a left-wing media organization, hopes to win back young voters and build a new generation of college influencers with its More Perfect University program.`\
 https://www.nytimes.com/2026/04/15/us/politics/a-progressive-group-rolls-out-a-campus-competitor-to-turning-point.html
 
-**Trump Is in Over His Head**\
-`This is not a man in control of himself.`\
+**This Is Not a Man in Control of Himself**\
+`President Trump is in over his head.`\
 https://www.nytimes.com/2026/04/15/opinion/trump-iran-power-unitary-executive.html
 
 **A Design Editor Applies Color and Restraint in His Madrid Apartment**\

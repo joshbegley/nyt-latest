@@ -1,3 +1,15 @@
+**Así cubre las turbulencias de América Latina una reportera del Times**\
+`Frances Robles, corresponsal internacional de The New York Times compartió sus experiencias de más de 25 años cubriendo la región.`\
+https://www.nytimes.com/es/2026/04/15/espanol/frances-robles-periodista.html
+
+**It’s Tax Day**\
+`We’re looking at who is filing and what they’re paying.`\
+https://www.nytimes.com/2026/04/15/briefing/its-tax-day.html
+
+**Lena Dunham: Adam Driver’s Character on ‘Girls’ Wasn’t Meant to Be a Hero**\
+`On “The Interview,” Lena Dunham talks about recreating some uncomfortable moments in her life onscreen, and how audiences responded in unexpected ways.`\
+https://www.nytimes.com/video/arts/100000010839985/lena-dunham-adam-drivers-character-on-girls-wasnt-meant-to-be-a-hero.html
+
 **Lena Dunham: Adam Driver’s Character on ‘Girls’ Wasn’t Meant to Be a Hero**\
 `On “The Interivew,” Lena Dunham talks about recreating some uncomfortable moments in her life onscreen, and how audiences responded in unexpected ways.`\
 https://www.nytimes.com/video/arts/100000010839985/lena-dunham-adam-drivers-character-on-girls-wasnt-meant-to-be-a-hero.html

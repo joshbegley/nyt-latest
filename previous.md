@@ -1,5 +1,13 @@
+**Así cubre las turbulencias de América Latina una reportera del Times**\
+`Frances Robles, corresponsal internacional de The New York Times compartió sus experiencias de más de 25 años cubriendo la región.`\
+https://www.nytimes.com/es/2026/04/15/espanol/frances-robles-periodista.html
+
+**It’s Tax Day**\
+`We’re looking at who is filing and what they’re paying.`\
+https://www.nytimes.com/2026/04/15/briefing/its-tax-day.html
+
 **Lena Dunham: Adam Driver’s Character on ‘Girls’ Wasn’t Meant to Be a Hero**\
-`On “The Interivew,” Lena Dunham talks about recreating some uncomfortable moments in her life onscreen, and how audiences responded in unexpected ways.`\
+`On “The Interview,” Lena Dunham talks about recreating some uncomfortable moments in her life onscreen, and how audiences responded in unexpected ways.`\
 https://www.nytimes.com/video/arts/100000010839985/lena-dunham-adam-drivers-character-on-girls-wasnt-meant-to-be-a-hero.html
 
 **Lena Dunham on Why Her Dad Didn’t Want to Vote With Her**\
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/15/arts/television/margos-got-money-troubles-rev
 **Thousands of N.Y.C. Doormen Seeking Better Pay Are Set to Vote on Strike**\
 `It would be the first walkout by the apartment building workers in more than three decades.`\
 https://www.nytimes.com/2026/04/15/nyregion/nyc-doorman-strike.html
-
-**‘No Picnic’ Is a Walk Down Mean Street Memory Lane**\
-`This Philip Hartman movie, shot in the East Village in 1985 and now restored, shows at Film Forum through April 23.`\
-https://www.nytimes.com/2026/04/15/movies/no-picnic-philip-hartman.html
-
-**Spice Up Your Cooking Skills With Help From Your Phone**\
-`Recipe apps and artificial intelligence can give you a boost, but free tools already on your device can also assist with meal planning and preparation.`\
-https://www.nytimes.com/2026/04/15/technology/personaltech/recipes-cooking-ai.html
 
