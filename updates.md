@@ -1,3 +1,15 @@
+**‘Rethinking, Reimagining and Reinstalling’ the Metropolitan Museum of Art**\
+`A $1.5 billion project will transform the nation’s most-visited art museum, with renovations involving a quarter of the galleries and public spaces.`\
+https://www.nytimes.com/2026/04/15/arts/design/metropolitan-museum-art-renovations.html
+
+**5 Books to Lift You Up During Life’s Hardest Times**\
+`Experts share the literature that has helped them cope with death, illness and despair.`\
+https://www.nytimes.com/2026/04/15/well/uplifting-books.html
+
+**What to See This Spring at Museums Across the Country**\
+`The season includes a Duchamp retrospective at MoMA, a window on Etruscan civilization at the de Young in San Francisco and a fashion celebration at the Phoenix Art Museum.`\
+https://www.nytimes.com/2026/04/15/arts/design/museum-exhibitions-united-states.html
+
 **Nature Is Still Molding Human Genes, Study Finds**\
 `Some researchers hold that evolution hasn’t much altered humans in the past 10,000 years. A new analysis of ancient DNA indicates that natural selection continued to shape hundreds of genes.`\
 https://www.nytimes.com/2026/04/15/science/human-genes-natural-selection.html
