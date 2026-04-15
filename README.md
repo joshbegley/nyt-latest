@@ -1,3 +1,15 @@
+**‘Rethinking, Reimagining and Reinstalling’ the Metropolitan Museum of Art**\
+`A $1.5 billion project will transform the nation’s most-visited art museum, with renovations involving a quarter of the galleries and public spaces.`\
+https://www.nytimes.com/2026/04/15/arts/design/metropolitan-museum-art-renovations.html
+
+**5 Books to Lift You Up During Life’s Hardest Times**\
+`Experts share the literature that has helped them cope with death, illness and despair.`\
+https://www.nytimes.com/2026/04/15/well/uplifting-books.html
+
+**What to See This Spring at Museums Across the Country**\
+`The season includes a Duchamp retrospective at MoMA, a window on Etruscan civilization at the de Young in San Francisco and a fashion celebration at the Phoenix Art Museum.`\
+https://www.nytimes.com/2026/04/15/arts/design/museum-exhibitions-united-states.html
+
 **Nature Is Still Molding Human Genes, Study Finds**\
 `Some researchers hold that evolution hasn’t much altered humans in the past 10,000 years. A new analysis of ancient DNA indicates that natural selection continued to shape hundreds of genes.`\
 https://www.nytimes.com/2026/04/15/science/human-genes-natural-selection.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/15/podcasts/a-movie-star-whale-sees-a-different-
 **The Whisper Network, #MeToo and the Downfall of Powerful Men**\
 `Eric Swalwell and Tony Gonzales are now being held accountable thanks in part to the feminism of the 2010s.`\
 https://www.nytimes.com/2026/04/15/opinion/swalwell-gonzales-metoo.html
-
-**My Sister Excluded Me From Our Family Holiday. Help!**\
-`After years of having to miss faraway holiday get-togethers, a reader was finally denied an invitation to his sister’s Easter gathering altogether.`\
-https://www.nytimes.com/2026/04/15/style/family-gatherings-exclusion.html
-
-**At Least 4 Dead in Second School Shooting in Turkey in Two Days**\
-`The attack, in the southern province of Kahramanmaras, left 20 others wounded.`\
-https://www.nytimes.com/2026/04/15/world/europe/turkey-school-shooting-kahramanmaras-province.html
-
-**Trump Threatens to Fire Powell if He Does Not Resign From Fed**\
-`Although Jerome H. Powell’s term as Fed chair officially ends on May 15, he can stay on as a governor until 2028 and said he would not leave until a criminal investigation was over.`\
-https://www.nytimes.com/2026/04/15/business/trump-powell-fed-fire.html
 

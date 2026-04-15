@@ -1,3 +1,27 @@
+**Nature Is Still Molding Human Genes, Study Finds**\
+`Some researchers hold that evolution hasn’t much altered humans in the past 10,000 years. A new analysis of ancient DNA indicates that natural selection continued to shape hundreds of genes.`\
+https://www.nytimes.com/2026/04/15/science/human-genes-natural-selection.html
+
+**How to Cook the Perfect Egg for You**\
+`A new recipe from Yotam Ottolenghi has us contemplating the best ways to cook an egg.`\
+https://www.nytimes.com/2026/04/15/dining/how-to-cook-the-perfect-egg-for-you.html
+
+**Large Hail Pelts Midwest Amid Severe Weather Outbreak**\
+`Several states in the Midwest have experienced large hail amid severe weather that also brought heavy rain and tornado risks. Forecasters expected the multiday breakout of storms to last through the weekend.`\
+https://www.nytimes.com/video/weather/100000010842151/hail-tornadoes-storms-midwest-weather.html
+
+**Corporate America Aims to Preserve Profit Streak During Iran War**\
+`Higher inflation is leading companies to raise prices without sacrificing margins.`\
+https://www.nytimes.com/2026/04/15/business/economy/companies-profits-prices-iran-war.html
+
+**Trump’s Go-To Justification for Contentious Decisions: National Security**\
+`The administration has invoked national security in a variety of matters, including the White House ballroom and offshore wind farms, drawing rebukes from some judges.`\
+https://www.nytimes.com/2026/04/15/us/white-house-ballroom-trump-national-security.html
+
+**Trump and Meloni Split Amid Growing Dispute Over Pope and Iran**\
+`Prime Minister Giorgia Meloni was once considered one of President Trump’s closest European allies. Their friendship now appears in danger.`\
+https://www.nytimes.com/2026/04/15/world/europe/trump-meloni-italy-iran-pope.html
+
 **U.S. Puts Little Pressure on Israel to Stop Attacks on Lebanon**\
 `Despite hailing negotiations between the two sides as a “historic milestone,” Washington did not call for a halt to Israeli strikes or for a withdrawal from Lebanese territory.`\
 https://www.nytimes.com/2026/04/15/world/asia/israel-lebanon-us-talks-trump.html
