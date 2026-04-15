@@ -1,3 +1,19 @@
+**With Iran War on Pause, Political Battle Resumes Over Israeli Democracy**\
+`A court fight over Itamar Ben-Gvir, an extremist who oversees the police, pits the attorney general against Benjamin Netanyahu and his right-wing government.`\
+https://www.nytimes.com/2026/04/15/world/middleeast/israel-ben-gvir-hearing.html
+
+**The Good List: 7 Things to Add Some Delight to Your Day**\
+`Train jazz, the “Brady Bunch” house and the gift of time.`\
+https://www.nytimes.com/2026/04/15/briefing/15-the-good-list-brady-house-trains.html
+
+**Yale Report on Universities’ Problems Finds Culprit: Schools Like Yale**\
+`A 10-member committee offered a brutal assessment of academia’s role in creating the forces challenging American colleges and universities.`\
+https://www.nytimes.com/2026/04/15/us/yale-report-colleges-unversities-trust.html
+
+**Jury Finds Live Nation Acts as a Monopoly in a Victory for States**\
+`In a verdict that could have far-reaching consequences in the music industry, the live colossus that includes Ticketmaster was found to have violated antitrust laws.`\
+https://www.nytimes.com/2026/04/15/arts/music/live-nation-antitrust-trial-verdict-monopoly.html
+
 **Mamdani and N.Y.C. Council Speaker Reach Truce Over Key Appointment**\
 `The speaker, Julie Menin, privately agreed to not block Nadia Shihata’s appointment to lead the Department of Investigation as a sign of peace with Mayor Zohran Mamdani.`\
 https://www.nytimes.com/2026/04/15/nyregion/mamdani-menin-deal-department-investigation.html

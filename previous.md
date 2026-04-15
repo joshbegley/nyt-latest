@@ -1,3 +1,15 @@
+**With Iran War on Pause, Political Battle Resumes Over Israeli Democracy**\
+`A court fight over Itamar Ben-Gvir, an extremist who oversees the police, pits the attorney general against Benjamin Netanyahu and his right-wing government.`\
+https://www.nytimes.com/2026/04/15/world/middleeast/israel-ben-gvir-hearing.html
+
+**The Good List: 7 Things to Add Some Delight to Your Day**\
+`Train jazz, the “Brady Bunch” house and the gift of time.`\
+https://www.nytimes.com/2026/04/15/briefing/15-the-good-list-brady-house-trains.html
+
+**Yale Report on Universities’ Problems Finds Culprit: Schools Like Yale**\
+`A 10-member committee offered a brutal assessment of academia’s role in creating the forces challenging American colleges and universities.`\
+https://www.nytimes.com/2026/04/15/us/yale-report-colleges-unversities-trust.html
+
 **Mamdani and N.Y.C. Council Speaker Reach Truce Over Key Appointment**\
 `The speaker, Julie Menin, privately agreed to not block Nadia Shihata’s appointment to lead the Department of Investigation as a sign of peace with Mayor Zohran Mamdani.`\
 https://www.nytimes.com/2026/04/15/nyregion/mamdani-menin-deal-department-investigation.html
@@ -11,7 +23,7 @@ https://www.nytimes.com/2026/04/15/insider/nyt-approach-naming-attackers-suspect
 https://www.nytimes.com/2026/04/15/opinion/iran-drone-war.html
 
 **Jury Finds Live Nation Acts as a Monopoly in a Victory for States**\
-`The music industry colossus that includes Ticketmaster was found to have violated antitrust laws by using its dominance in the industry to stifle competition.`\
+`In a verdict that could have far-reaching consequences in the music industry, the live colossus that includes Ticketmaster was found to have violated antitrust laws.`\
 https://www.nytimes.com/2026/04/15/arts/music/live-nation-antitrust-trial-verdict-monopoly.html
 
 **Senate Republicans Again Block Bid to Limit Trump’s Iran War Powers**\
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/15/world/europe/bbc-job-cuts.html
 **‘The Adding Machine’ Review: A Man Is Made Redundant**\
 `Daphne Rubin-Vega stars as a laid-off office worker who spins into a murderous rage in this update of Elmer L. Rice’s 1923 classic.`\
 https://www.nytimes.com/2026/04/15/theater/the-adding-machine-review-daphne-rubin-vega.html
-
-**Vance, the Pope and ‘Matters of Morality’**\
-`Readers respond to Vice President JD Vance’s remarks critical of Pope Leo XIV. Also: Mr. Trump, try kindness; a tax solution that wasn’t.`\
-https://www.nytimes.com/2026/04/15/opinion/vance-pope-leo-morality.html
-
-**Tiny Love Stories: ‘Embarrassed Yet Unable to Stop’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://www.nytimes.com/2026/04/15/style/tiny-modern-love-stories-embarrassed-yet-unable-to-stop.html
-
-**Stocks Approach Record High as Wall St. Looks Beyond War**\
-`Investors appear to be treating an end to the U.S.-Israeli war with Iran as a foregone conclusion.`\
-https://www.nytimes.com/2026/04/15/business/stocks-record-iran-war.html
 
