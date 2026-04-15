@@ -1,3 +1,7 @@
+**Vance Heckled in Antiwar Protest at Turning Point USA Event**\
+`Vice President JD Vance appeared to express sympathy with critics of the war with Iran: “I recognize that young voters do not love the policy we have in the Middle East, OK. I understand.”`\
+https://www.nytimes.com/2026/04/14/us/politics/jd-vance-turning-point-usa-protest.html
+
 **Vance Says the Pope Should Be More Careful When Talking About Theology**\
 `The vice president, who is Catholic, took issue with Pope Leo XIV’s statement that disciples of Christ are “never on the side of those who once wielded the sword and today drop bombs.”`\
 https://www.nytimes.com/2026/04/14/us/politics/vance-pope-trump-georgia.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/world/middleeast/100000010841136/us-israel-lebanon
 **Trump’s Blasphemy Is a Warning**\
 `Presidents can fight with popes. God is another matter.`\
 https://www.nytimes.com/2026/04/14/opinion/trump-pope.html
-
-**Justice Dept. Moves to Vacate Jan. 6 Convictions for Far-Right Extremists**\
-`Defending the convictions would likely have required administration officials to assert that far-right groups were acting on behalf of President Trump on Jan. 6, 2021.`\
-https://www.nytimes.com/2026/04/14/us/politics/justice-dept-vacate-jan-6-convictions.html
 
