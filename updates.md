@@ -1,3 +1,23 @@
+**In Defense of Dumb Dogs**\
+`Your pet is (probably) not a genius, and that’s OK.`\
+https://www.nytimes.com/2026/04/15/science/pets-dogs-intelligence.html
+
+**Adrien Brody and Tessa Thompson Act, and Sparks Fly**\
+`The pair performed a scene from ‘The Fear of 13’ at The New York Times.`\
+https://www.nytimes.com/2026/04/15/t-magazine/adrien-brody-tessa-thompson-fear-of-13.html
+
+**Live From the 10th Floor | A Scene From ‘The Fear of 13’**\
+`In this scene from the play “The Fear of 13,” performed in T Magazine’s office, Tessa Thompson’s character, Jacki, visits Adrien Brody’s Nick in prison.`\
+https://www.nytimes.com/video/t-magazine/100000010839180/live-from-the-10th-floor-a-scene-from-the-fear-of-13.html
+
+**Here’s how the U.S. blockade of Iranian shipping is taking shape.**\
+`The military’s blockade of Iranian ports aims to suppress sea traffic to and from Iran, while leaving the strait itself open.`\
+https://www.nytimes.com/live/2026/04/15/world/iran-war-trump-us-israel/heres-how-the-us-blockade-of-iranian-shipping-is-taking-shape
+
+**Trump Threatens to Fire Powell, Again**\
+`The new threat against the Fed chair comes ahead of a Senate confirmation hearing for Kevin Warsh, President Trump’s pick to lead the central bank.`\
+https://www.nytimes.com/2026/04/15/business/dealbook/trump-fire-powell-fed.html
+
 **Listen to all six episodes of ‘The Good Whale’**\
 `A great story for the new year.`\
 https://www.nytimes.com/2026/04/15/podcasts/listen-to-all-six-episodes-of-the-good-whale.html

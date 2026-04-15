@@ -1,3 +1,19 @@
+**In Defense of Dumb Dogs**\
+`Your pet is (probably) not a genius, and that’s OK.`\
+https://www.nytimes.com/2026/04/15/science/pets-dogs-intelligence.html
+
+**Adrien Brody and Tessa Thompson Act, and Sparks Fly**\
+`The pair performed a scene from ‘The Fear of 13’ at The New York Times.`\
+https://www.nytimes.com/2026/04/15/t-magazine/adrien-brody-tessa-thompson-fear-of-13.html
+
+**Live From the 10th Floor | A Scene From ‘The Fear of 13’**\
+`In this scene from the play “The Fear of 13,” performed in T Magazine’s office, Tessa Thompson’s character, Jacki, visits Adrien Brody’s Nick in prison.`\
+https://www.nytimes.com/video/t-magazine/100000010839180/live-from-the-10th-floor-a-scene-from-the-fear-of-13.html
+
+**Here’s how the U.S. blockade of Iranian shipping is taking shape.**\
+`The military’s blockade of Iranian ports aims to suppress sea traffic to and from Iran, while leaving the strait itself open.`\
+https://www.nytimes.com/live/2026/04/15/world/iran-war-trump-us-israel/heres-how-the-us-blockade-of-iranian-shipping-is-taking-shape
+
 **Listen to all six episodes of ‘The Good Whale’**\
 `A great story for the new year.`\
 https://www.nytimes.com/2026/04/15/podcasts/listen-to-all-six-episodes-of-the-good-whale.html
@@ -39,7 +55,7 @@ https://www.nytimes.com/2026/04/15/world/europe/turkey-school-shooting-kahramanm
 https://www.nytimes.com/2026/04/15/business/trump-powell-fed-fire.html
 
 **Trump Threatens to Fire Powell, Again**\
-`The new threat against the Fed chair comes ahead of a Senate confirmation hearing for Kevin Warsh, Trump’s pick to lead the central bank.`\
+`The new threat against the Fed chair comes ahead of a Senate confirmation hearing for Kevin Warsh, President Trump’s pick to lead the central bank.`\
 https://www.nytimes.com/2026/04/15/business/dealbook/trump-fire-powell-fed.html
 
 **Trump Increased Tax Refunds, but a Political Challenge Still Looms**\
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/15/world/asia/johnny-somali-youtube-prison-korea
 **As talks begin, U.S. applies little pressure to Israel to stop the fighting in Lebanon.**\
 `Despite hailing the negotiations as a “historic milestone,” Washington did not call for a halt to Israeli strikes or for a withdrawal from Lebanese territory.`\
 https://www.nytimes.com/live/2026/04/15/world/iran-war-trump-us-israel/israel-lebanon-us-talks
-
-**Así cubre las turbulencias de América Latina una reportera del Times**\
-`Frances Robles, corresponsal internacional de The New York Times compartió sus experiencias de más de 25 años cubriendo la región.`\
-https://www.nytimes.com/es/2026/04/15/espanol/frances-robles-periodista.html
-
-**It’s Tax Day**\
-`We’re looking at who is filing and what they’re paying.`\
-https://www.nytimes.com/2026/04/15/briefing/its-tax-day.html
-
-**Lena Dunham: Adam Driver’s Character on ‘Girls’ Wasn’t Meant to Be a Hero**\
-`On “The Interview,” Lena Dunham talks about recreating some uncomfortable moments in her life onscreen, and how audiences responded in unexpected ways.`\
-https://www.nytimes.com/video/arts/100000010839985/lena-dunham-adam-drivers-character-on-girls-wasnt-meant-to-be-a-hero.html
-
-**Lena Dunham on Why Her Dad Didn’t Want to Vote With Her**\
-`During the height of her fame, Lena Dunham’s name became synonymous with certain millennial clichés. On “The Interview,” she talks about that experience and how her dad tried to avoid the media attention she attracted.`\
-https://www.nytimes.com/video/arts/100000010839986/lena-dunham-on-why-her-dad-didnt-want-to-vote-with-her.html
 
