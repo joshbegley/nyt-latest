@@ -1,3 +1,15 @@
+**At Least 4 Dead in Second School Shooting in Turkey in Two Days**\
+`The attack, in the southern province of Kahramanmaras, left 20 others wounded.`\
+https://www.nytimes.com/2026/04/15/world/europe/turkey-school-shooting-kahramanmaras-province.html
+
+**Trump Threatens to Fire Powell if He Does Not Resign From Fed**\
+`Although Jerome H. Powell’s term as Fed chair officially ends on May 15, he can stay on as a governor until 2028 and said he would not leave until a criminal investigation was over.`\
+https://www.nytimes.com/2026/04/15/business/trump-powell-fed-fire.html
+
+**Trump Threatens to Fire Powell, Again**\
+`The new threat against the Fed chair comes ahead of a Senate confirmation hearing for Kevin Warsh, Trump’s pick to lead the central bank.`\
+https://www.nytimes.com/2026/04/15/business/dealbook/trump-fire-powell-fed.html
+
 **Trump Increased Tax Refunds, but a Political Challenge Still Looms**\
 `While last year’s tax law has raised the average I.R.S. refund, the boost is less than the White House expected — and may not have much impact on voters.`\
 https://www.nytimes.com/2026/04/15/business/trump-tax-law-refunds-voters.html
