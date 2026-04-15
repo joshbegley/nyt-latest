@@ -1,3 +1,7 @@
+**In the Tech Heart of Texas, an Art Show Built on Data, Code and A.I.**\
+`The showcase features works that change from hour to hour, invite interaction and interrogate the idea of creativity itself.`\
+https://www.nytimes.com/2026/04/15/arts/design/blanton-museum-austin-technology-art.html
+
 **Honoring Frederic Church: Beyond the Hudson River School**\
 `His many achievements have been obscured, some believe, by his reputation as a provincial landscape painter.`\
 https://www.nytimes.com/2026/04/15/arts/design/frederic-church-hudson-river-school.html
