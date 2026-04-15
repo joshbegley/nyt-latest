@@ -1,3 +1,11 @@
+**Swalwell’s Exit Injects ‘Chaos’ Into California Governor’s Race**\
+`Democratic candidates see sudden voter interest in the sleepy contest as a campaign opportunity. All are scrambling for support from former backers of Eric Swalwell.`\
+https://www.nytimes.com/2026/04/14/us/california-governor-race-swalwell.html
+
+**Captains of Boat That Capsized Near San Diego Plead Guilty to 4 Deaths**\
+`The boat was carrying 19 migrants from Mexico to Southern California when it overturned in May 2025, the authorities said. Two of the victims were children.`\
+https://www.nytimes.com/2026/04/14/us/human-smuggling-boat-capsize-california-guilty.html
+
 **Taylor Frankie Paul Will Not Face New Domestic Violence Charges**\
 `Prosecutors in Utah investigated after the reality star’s ex-boyfriend told the police she had scratched, shoved and struck him during a fight in February.`\
 https://www.nytimes.com/2026/04/14/arts/television/taylor-frankie-paul-charges-domestic-violence.html
