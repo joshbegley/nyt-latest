@@ -1,3 +1,7 @@
+**In the Tech Heart of Texas, an Art Show Built on Data, Code and A.I.**\
+`The showcase features works that change from hour to hour, invite interaction and interrogate the idea of creativity itself.`\
+https://www.nytimes.com/2026/04/15/arts/design/blanton-museum-austin-technology-art.html
+
 **Honoring Frederic Church: Beyond the Hudson River School**\
 `His many achievements have been obscured, some believe, by his reputation as a provincial landscape painter.`\
 https://www.nytimes.com/2026/04/15/arts/design/frederic-church-hudson-river-school.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/t-magazine/100000010839180/live-from-the-10th-floo
 **Here’s how the U.S. blockade of Iranian shipping is taking shape.**\
 `The military’s blockade of Iranian ports aims to suppress sea traffic to and from Iran, while leaving the strait itself open.`\
 https://www.nytimes.com/live/2026/04/15/world/iran-war-trump-us-israel/heres-how-the-us-blockade-of-iranian-shipping-is-taking-shape
-
-**Listen to all six episodes of ‘The Good Whale’**\
-`A great story for the new year.`\
-https://www.nytimes.com/2026/04/15/podcasts/listen-to-all-six-episodes-of-the-good-whale.html
 
