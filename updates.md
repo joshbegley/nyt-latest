@@ -1,3 +1,11 @@
+**5 Things to Know About New York’s Proposed Second Home Tax**\
+`Gov. Kathy Hochul wants to tax second homes in New York City that are worth $5 million or more. Here’s how the proposal might work.`\
+https://www.nytimes.com/2026/04/15/realestate/pied-a-terre-tax-nyc-hochul-mamdani.html
+
+**Shakespeare Bought One Property in London. Now We Know Exactly Where.**\
+`In confirming the precise location of William Shakespeare’s Blackfriars house, a British scholar raises fresh questions about what he intended to do with it.`\
+https://www.nytimes.com/2026/04/15/world/europe/shakespeare-london-property-house.html
+
 **La principal diplomática de EE. UU. en Venezuela deja su cargo tras haber llegado en enero**\
 `Laura Dogu, quien reabrió la embajada de Estados Unidos en Venezuela, vuelve a su rol como asesora del oficial de mayor rango del ejército estadounidense mientras continúa la guerra con Irán.`\
 https://www.nytimes.com/es/2026/04/15/espanol/america-latina/venezuela-usa-laura-dogu.html
