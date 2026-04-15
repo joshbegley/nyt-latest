@@ -1,3 +1,7 @@
+**Labor Dept. Investigates Texts Among Secretary’s Family and Staff**\
+`Secretary Lori Chavez-DeRemer asked staff members to bring wine to her hotel room, and to keep in touch with her husband and father.`\
+https://www.nytimes.com/2026/04/15/us/politics/labor-secretary-text-messages.html
+
 **Executive Who Led Ford’s Electric Car Push Is Leaving**\
 `Doug Field, a former Tesla and Apple executive, had returned to Ford Motor in 2021 to help develop new electric models and software.`\
 https://www.nytimes.com/2026/04/15/business/ford-electric-vehicles-doug-field.html
