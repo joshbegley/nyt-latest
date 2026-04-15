@@ -1,3 +1,7 @@
+**My Longtime Housekeeper’s Work Is Slipping. What Should I Do?**\
+`We know she depends on this income, and we have hesitated to raise the issue with her.`\
+https://www.nytimes.com/2026/04/15/magazine/housekeeper-work-slipping-ethics.html
+
 **Review: Here’s Johnny! (And Bach and 4 Choreographers)**\
 `The violinist Johnny Gandelsman wanted his music to move. In the overly winsome “Johnny Loves Johann,” he performs Bach’s cello suites alongside four dance artists.`\
 https://www.nytimes.com/2026/04/15/arts/dance/review-johnny-gandlesman-bach-jamar-roberts.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/weather/100000010842151/hail-tornadoes-storms-midw
 **Corporate America Aims to Preserve Profit Streak During War in Iran**\
 `Higher inflation is leading companies to raise prices without sacrificing margins.`\
 https://www.nytimes.com/2026/04/15/business/economy/companies-profits-prices-iran-war.html
-
-**Trump’s Go-To Justification for Contentious Decisions: National Security**\
-`The administration has invoked national security in a variety of matters, including the White House ballroom and offshore wind farms, drawing rebukes from some judges.`\
-https://www.nytimes.com/2026/04/15/us/white-house-ballroom-trump-national-security.html
 
