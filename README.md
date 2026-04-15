@@ -7,7 +7,7 @@ https://www.nytimes.com/es/2026/04/15/espanol/frances-robles-periodista.html
 https://www.nytimes.com/2026/04/15/briefing/its-tax-day.html
 
 **Lena Dunham: Adam Driver’s Character on ‘Girls’ Wasn’t Meant to Be a Hero**\
-`On “The Interivew,” Lena Dunham talks about recreating some uncomfortable moments in her life onscreen, and how audiences responded in unexpected ways.`\
+`On “The Interview,” Lena Dunham talks about recreating some uncomfortable moments in her life onscreen, and how audiences responded in unexpected ways.`\
 https://www.nytimes.com/video/arts/100000010839985/lena-dunham-adam-drivers-character-on-girls-wasnt-meant-to-be-a-hero.html
 
 **Lena Dunham on Why Her Dad Didn’t Want to Vote With Her**\
