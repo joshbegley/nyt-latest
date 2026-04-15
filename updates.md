@@ -1,3 +1,19 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/15/world/iran-war-trump-us-israel/heres-the-latest
+
+**Running a 5K in a Van**\
+`Influencers go to great lengths — even in small spaces — to get views? How far would you go?`\
+https://www.nytimes.com/2026/04/15/learning/running-a-5k-in-a-van.html
+
+**How a Times Reporter Has Covered a Turbulent Period in Latin America**\
+`Frances Robles, an international correspondent for The New York Times, has reported on the region for more than 25 years.`\
+https://www.nytimes.com/2026/04/15/insider/francine-robles-new-york-times.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/15/crosswords/spelling-bee-forum.html
+
 **Super Typhoon Slams Northern Mariana Islands, Causing Widespread Damage**\
 `But there were no early reports of casualties from the storm, which was named Sinlaku and was moving northwest of the region.`\
 https://www.nytimes.com/2026/04/15/world/asia/typhoon-sinlaku-saipan-damage.html
