@@ -1,3 +1,11 @@
+**The Whisper Network, #MeToo and the Downfall of Powerful Men**\
+`Eric Swalwell and Tony Gonzales are now being held accountable thanks in part to the feminism of the 2010s.`\
+https://www.nytimes.com/2026/04/15/opinion/swalwell-gonzales-metoo.html
+
+**My Sister Excluded Me From Our Family Holiday. Help!**\
+`After years of having to miss faraway holiday get-togethers, a reader was finally denied an invitation to his sister’s Easter gathering altogether.`\
+https://www.nytimes.com/2026/04/15/style/family-gatherings-exclusion.html
+
 **At Least 4 Dead in Second School Shooting in Turkey in Two Days**\
 `The attack, in the southern province of Kahramanmaras, left 20 others wounded.`\
 https://www.nytimes.com/2026/04/15/world/europe/turkey-school-shooting-kahramanmaras-province.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/15/crosswords/wordle-review-1762.html
 **Strands Sidekick No. 774**\
 `Scroll down for hints and conversation about the puzzle for Thursday, April 16, 2026.`\
 https://www.nytimes.com/2026/04/15/crosswords/strands-sidekick-774.html
-
-**Cuando liberan a los presos de El Salvador, ella está allí para recogerlos**\
-`El hermano de Sugey Amaya fue detenido durante la campaña de detenciones masivas en El Salvador hace cuatro años. Ella ha dedicado su vida a ayudar a presos como él.`\
-https://www.nytimes.com/es/2026/04/15/espanol/america-latina/presos-el-salvador-ayuda.html
-
-**¿La Copa Mundial logrará que los turistas regresen a EE. UU.?**\
-`Las restricciones de viaje, la posible revisión de redes sociales y los elevadísimos precios de las entradas están ahuyentando a los aficionados internacionales al fútbol, pero las ciudades anfitrionas siguen esperando un auge.`\
-https://www.nytimes.com/es/2026/04/15/espanol/estilos-de-vida/turismo-copa-mundial.html
 
