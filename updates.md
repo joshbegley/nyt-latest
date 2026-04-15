@@ -1,3 +1,7 @@
+**U.S. Puts Little Pressure on Israel to Stop Attacks on Lebanon**\
+`Despite hailing negotiations between the two sides as a “historic milestone,” Washington did not call for a halt to Israeli strikes or for a withdrawal from Lebanese territory.`\
+https://www.nytimes.com/2026/04/15/world/asia/israel-lebanon-us-talks-trump.html
+
 **The U.S. applies little pressure on Israel to stop the fighting in Lebanon.**\
 `Despite hailing negotiations between the two sides as a “historic milestone,” Washington did not call for a halt to Israeli strikes or for a withdrawal from Lebanese territory.`\
 https://www.nytimes.com/live/2026/04/15/world/iran-war-trump-us-israel/israel-lebanon-us-talks-trump
