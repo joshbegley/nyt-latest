@@ -1,3 +1,11 @@
+**‘We Cannot Lose Sight of Ukraine.’ Europeans Promise More Aid to Kyiv.**\
+`The focus in recent weeks has been on the conflict in Iran, but European leaders said it was crucial to keep aid flowing to Ukraine.`\
+https://www.nytimes.com/2026/04/15/world/europe/europe-ukraine-aid-iran.html
+
+**Dam Failure Could Imperil Thousands in Northern Michigan**\
+`A levee breach near Cheboygan had forced evacuations and officials continue to monitor a nearby dam. Rain and snowmelt have affected the area.`\
+https://www.nytimes.com/2026/04/15/us/floods-michigan-cheboygan-dams-evacuation.html
+
 **Journalism Essentials: A Limited Series on Media Literacy**\
 `Our first bite-size teachings on fundamentals from The School of The New York Times look at journalism’s role in society.`\
 https://www.nytimes.com/2026/04/15/learning/learning-network-limited-series-media-literacy.html

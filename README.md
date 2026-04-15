@@ -44,7 +44,7 @@ https://www.nytimes.com/2026/04/15/style/tiny-modern-love-stories-embarrassed-ye
 
 **Stocks Approach Record High as Wall St. Looks Beyond War**\
 `Investors appear to be treating an end to the U.S.-Israeli war with Iran as a foregone conclusion.`\
-https://www.nytimes.com/2026/04/15/business/stocks-approach-record-high-as-wall-st-looks-beyond-war.html
+https://www.nytimes.com/2026/04/15/business/stocks-record-iran-war.html
 
 **Dam Failure Could Imperil Thousands in Northern Michigan**\
 `A levee breach near Cheboygan had forced evacuations and officials continue to monitor a nearby dam. Rain and snowmelt have affected the area.`\
