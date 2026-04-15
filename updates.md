@@ -1,3 +1,7 @@
+**The U.S. applies little pressure on Israel to stop the fighting in Lebanon.**\
+`Despite hailing negotiations between the two sides as a “historic milestone,” Washington did not call for a halt to Israeli strikes or for a withdrawal from Lebanese territory.`\
+https://www.nytimes.com/live/2026/04/15/world/iran-war-trump-us-israel/israel-lebanon-us-talks-trump
+
 **In Defense of Dumb Dogs**\
 `Your pet is (probably) not a genius, and that’s OK.`\
 https://www.nytimes.com/2026/04/15/science/pets-dogs-intelligence.html
