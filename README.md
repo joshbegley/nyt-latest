@@ -1,5 +1,9 @@
+**Sports Betting Industry Spends $41 Million to Influence Elections**\
+`With a well-funded super PAC, the betting platforms DraftKings, FanDuel and Fanatics are aiming to shape future regulation of their rapidly growing industry.`\
+https://www.nytimes.com/2026/04/15/us/politics/draftkings-fanduel-midterm-elections.html
+
 **Saudi Fund to Back Away From LIV Golf Under Mounting Financial Pressures**\
-`The Saudi league, established in 2022, attracted some of the sports biggest stars with huge contracts.`\
+`The Saudi league, established in 2022, attracted some of the sport’s biggest stars with huge contracts.`\
 https://www.nytimes.com/2026/04/15/world/middleeast/saudi-soverign-fund-liv-golf.html
 
 **Julio Torres in ‘Color Theories,’ and More Theater to Stream**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/15/world/americas/venezuela-us-diplomat-laura-do
 **Brazilian Official Put China’s BYD on Slave Labor List. Then He Was Fired.**\
 `The dismissal of Brazil’s top labor inspector has landed the leftist government of President Lula, a former union leader, in an awkward spot.`\
 https://www.nytimes.com/2026/04/15/world/americas/brazil-lula-workers-rights-labor-abuse.html
-
-**‘We Cannot Lose Sight of Ukraine.’ Europeans Promise More Aid to Kyiv.**\
-`The focus in recent weeks has been on the conflict in Iran, but European leaders said it was crucial to keep aid flowing to Ukraine.`\
-https://www.nytimes.com/2026/04/15/world/europe/europe-ukraine-aid-iran.html
 
