@@ -1,3 +1,7 @@
+**BBC Announces Plan to Cut Around 2,000 Jobs**\
+`The cuts amount to about 10 percent of the work force at the British public broadcaster, which is facing financial pressures.`\
+https://www.nytimes.com/2026/04/15/world/europe/bbc-job-cuts.html
+
 **‘The Adding Machine’ Review: A Man Is Made Redundant**\
 `Daphne Rubin-Vega stars as a laid-off office worker who spins into a murderous rage in this update of Elmer L. Rice’s 1923 classic.`\
 https://www.nytimes.com/2026/04/15/theater/the-adding-machine-review-daphne-rubin-vega.html

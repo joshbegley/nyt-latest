@@ -1,3 +1,7 @@
+**JD Vance dice que el papa debería ser más cuidadoso al hablar de teología**\
+`El vicepresidente, que es católico, discrepó con la afirmación del papa León XIV de que un discípulo de Cristo “nunca se pone del lado de quienes ayer empuñaban la espada y hoy lanzan bombas”.`\
+https://www.nytimes.com/es/2026/04/15/espanol/estados-unidos/papa-leon-trump-vance.html
+
 **BBC Announces Plan to Cut Around 2,000 Jobs**\
 `The cuts amount to about 10 percent of the work force at the British public broadcaster, which is facing financial pressures.`\
 https://www.nytimes.com/2026/04/15/world/europe/bbc-job-cuts.html
@@ -18,7 +22,7 @@ https://www.nytimes.com/2026/04/15/style/tiny-modern-love-stories-embarrassed-ye
 `Investors appear to be treating an end to the U.S.-Israeli war with Iran as a foregone conclusion.`\
 https://www.nytimes.com/2026/04/15/business/stocks-approach-record-high-as-wall-st-looks-beyond-war.html
 
-**Floodwaters Strain Dams in Northern Michigan With Thousands Downstream**\
+**Dam Failure Could Imperil Thousands in Northern Michigan**\
 `A levee breach near Cheboygan has already forced evacuations. Engineers were monitoring dams taxed by rain and snowmelt.`\
 https://www.nytimes.com/2026/04/15/us/floods-michigan-cheboygan-dams-evacuation.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/world/middleeast/100000010842273/turkey-school-sho
 **Putting Connecticut Artists in the Spotlight**\
 `The Aldrich Contemporary Art Museum in Ridgefield will showcase works by people who live and work in New York’s shadow.`\
 https://www.nytimes.com/2026/04/15/arts/design/connecticut-aldrich-contemporary-art-museum.html
-
-**In the Tech Heart of Texas, an Art Show Built on Data, Code and A.I.**\
-`The showcase features works that change from hour to hour, invite interaction and interrogate the idea of creativity itself.`\
-https://www.nytimes.com/2026/04/15/arts/design/blanton-museum-austin-technology-art.html
 
