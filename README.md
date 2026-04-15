@@ -1,3 +1,23 @@
+**Tiny Love Stories: ‘Embarrassed Yet Unable to Stop’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/04/15/style/tiny-modern-love-stories-embarrassed-yet-unable-to-stop.html
+
+**Stocks Approach Record High as Wall St. Looks Beyond War**\
+`Investors appear to be treating an end to the U.S.-Israeli war with Iran as a foregone conclusion.`\
+https://www.nytimes.com/2026/04/15/business/stocks-approach-record-high-as-wall-st-looks-beyond-war.html
+
+**Floodwaters Strain Dams in Northern Michigan With Thousands Downstream**\
+`A levee breach near Cheboygan has already forced evacuations. Engineers were monitoring dams taxed by rain and snowmelt.`\
+https://www.nytimes.com/2026/04/15/us/floods-michigan-cheboygan-dams-evacuation.html
+
+**Snap Is Laying Off 16% of Full-Time Staff as It Embraces A.I.**\
+`The company, which owns the social media app Snapchat, said it was laying off about 1,000 employees as it increases its reliance on artificial intelligence.`\
+https://www.nytimes.com/2026/04/15/business/snap-layoffs-snapchat.html
+
+**El bloqueo de Trump al estrecho de Ormuz puede poner en riesgo la relación con China**\
+`El reto más reciente al que se enfrenta el presidente Trump es cómo evitar que el conflicto con Irán haga tambalear la incipiente distensión con China.`\
+https://www.nytimes.com/es/2026/04/15/espanol/mundo/china-trump-xi-bloqueo-estrecho-ormuz.html
+
 **Trump says he’s willing to ‘risk’ giving up rights as he pushes to extend a surveillance law.**\
 ``\
 https://www.nytimes.com/live/2026/04/15/us/trump-news/trump-says-hes-willing-to-risk-giving-up-rights-as-he-pushes-to-extend-a-surveillance-law
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/04/15/world/middleeast/iran-ships-strait-hormuz-blo
 **‘Giant’ and Roald Dahl’s Antisemitism: What’s Fact and Fiction?**\
 `Mark Rosenblatt’s Broadway play, starring John Lithgow as the British children’s book author, draws from Dahl’s comments over the years.`\
 https://www.nytimes.com/2026/04/15/theater/roald-dahl-controversies-giant.html
-
-**Map: 3.2-Magnitude Earthquake Shakes Southern California**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/04/15/us/earthquake-sourthern-california.html
-
-**That Meeting You Hate May Keep A.I. From Stealing Your Job**\
-`As artificial intelligence makes many tasks easier, the human work of cajoling, arm-twisting and reassuring appears to be rising in importance.`\
-https://www.nytimes.com/2026/04/15/business/ai-jobs-human-work.html
-
-**How ‘Jagged Intelligence’ Can Reframe the A.I. Debate**\
-`A.I. has always been compared to human intelligence, but that may not be the right way to think about it. What it does well can help predict what jobs it may replace.`\
-https://www.nytimes.com/2026/04/15/technology/how-jagged-intelligence-can-reframe-the-ai-debate.html
-
-**‘Rethinking, Reimagining and Reinstalling’ the Metropolitan Museum of Art**\
-`A $1.5 billion project will transform the nation’s most-visited art museum, with renovations involving a quarter of the galleries and public spaces.`\
-https://www.nytimes.com/2026/04/15/arts/design/metropolitan-museum-art-renovations.html
-
-**5 Books to Lift You Up During Life’s Hardest Times**\
-`Experts share the literature that has helped them cope with death, illness and despair.`\
-https://www.nytimes.com/2026/04/15/well/uplifting-books.html
 
