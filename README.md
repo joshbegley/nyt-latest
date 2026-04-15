@@ -1,3 +1,15 @@
+**Works Out**\
+`Adam Wagner’s Wednesday puzzle coalesces into a fun solve.`\
+https://www.nytimes.com/2026/04/14/crosswords/daily-puzzle-2026-04-15.html
+
+**Corrections: April 15, 2026**\
+`Corrections that appeared in print on Wednesday, April 15, 2026.`\
+https://www.nytimes.com/2026/04/14/pageoneplus/corrections-april-15-2026.html
+
+**Israel’s ‘One-State Reality’**\
+`Hope for a two-state solution between Israel and Palestine is preventing the world from reckoning with the “one-state reality” of the present, the Opinion columnist Ezra Klein argues.`\
+https://www.nytimes.com/video/opinion/100000010830068/israels-one-state-reality.html
+
 **Alex Cooper and Alix Earle Are Fighting. Or Are They?**\
 `Two popular influencers have exchanged jabs on social media.`\
 https://www.nytimes.com/2026/04/14/style/alex-cooper-alix-earle-drama-feud.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/14/business/strait-of-hormuz-blockade.html
 **Gallego Dismissed Rumors of a ‘Flirty’ Swalwell, Highlighting a Culture of Silence**\
 `The admission by Senator Ruben Gallego that he had heard, but disbelieved, rumors about Eric Swalwell and women showed the attitude on Capitol Hill toward men accused of behaving badly.`\
 https://www.nytimes.com/2026/04/14/us/politics/gallego-swalwell-congress-culture.html
-
-**L.G.B.T.Q. Community Expresses Hesitancy About Hungary’s New Leader**\
-`After years of anti-L.G.B.T.Q. policies, members of the queer community in Hungary were cautiously hopeful that Peter Magyar’s win over Viktor Orban’s Fidesz party could bring about change.`\
-https://www.nytimes.com/video/world/europe/100000010839921/hungary-lgbtq-community-peter-magyar.html
-
-**Surgeon Who Removed Wrong Organ From Patient Is Charged in His Death**\
-`Dr. Thomas Shaknovsky tried to persuade his colleagues in the operating room that the liver he removed from a 70-year-old patient was a spleen, according to Florida’s Health Department.`\
-https://www.nytimes.com/2026/04/14/us/florida-surgeon-manslaughter-organ-removal.html
-
-**Lebanon and Israel Hold Rare In-Person Talks**\
-`While the talks between Israel and Lebanon in Washington did not yield a cease-fire agreement, both sides agreed to “launch direct negotiations” after having “productive discussions,” according to a statement from the U.S. State Department.`\
-https://www.nytimes.com/video/world/middleeast/100000010841136/us-israel-lebanon-talks.html
 
