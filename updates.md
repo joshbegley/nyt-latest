@@ -1,3 +1,7 @@
+**La guerra de Sheinbaum contra el crimen enfrenta un balance sombrío: 133.000 desaparecidos**\
+`La presidenta de México, Claudia Sheinbaum, está bajo presión para poner fin a una de las tragedias más dolorosas del país: la desaparición de más de 133.000 personas.`\
+https://www.nytimes.com/es/2026/04/15/espanol/america-latina/mexico-desaparecidos-sheinbaum.html
+
 **Sports Betting Industry Spends $41 Million to Influence Elections**\
 `With a well-funded super PAC, the betting platforms DraftKings, FanDuel and Fanatics are aiming to shape future regulation of their rapidly growing industry.`\
 https://www.nytimes.com/2026/04/15/us/politics/draftkings-fanduel-midterm-elections.html
