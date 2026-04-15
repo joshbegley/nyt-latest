@@ -1,3 +1,11 @@
+**Palabra del día: ‘effervescence’**\
+`Esta palabra ha aparecido en 27 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/04/15/espanol/que-significa-effervescence.html
+
+**Word of the Day: effervescence**\
+`This word has appeared in 27 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/04/15/learning/word-of-the-day-effervescence.html
+
 **En Corea del Sur hay una crisis en la medicina de urgencias**\
 `Cada año, cientos de pacientes tienen dificultades para acceder a la atención de urgencias, a pesar de que el país cuenta con un sistema de salud de primera clase. Para algunos, los retrasos han sido fatales.`\
 https://www.nytimes.com/es/2026/04/15/espanol/corea-del-sur-crisis-medicina.html
