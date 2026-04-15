@@ -1,3 +1,15 @@
+**Ye Postpones Concert in France as Government Considers Banning It**\
+`The rapper formerly known as Kanye West had been scheduled to perform in Marseille, France, in June. The city’s mayor had said he did not want it to be “a showcase for those who promote hatred.”`\
+https://www.nytimes.com/2026/04/15/world/europe/kanye-west-ye-france-concert.html
+
+**Johnny Somali, American Online Provocateur, Is Sentenced to Prison in South Korea**\
+`Known for desecrating a monument to victims of sexual slavery, the former YouTuber was convicted on multiple charges and given a six-month sentence.`\
+https://www.nytimes.com/2026/04/15/world/asia/johnny-somali-youtube-prison-korea.html
+
+**As talks begin, U.S. applies little pressure to Israel to stop the fighting in Lebanon.**\
+`Despite hailing the negotiations as a “historic milestone,” Washington did not call for a halt to Israeli strikes or for a withdrawal from Lebanese territory.`\
+https://www.nytimes.com/live/2026/04/15/world/iran-war-trump-us-israel/israel-lebanon-us-talks
+
 **This Is Not a Man in Control of Himself**\
 `President Trump is in over his head.`\
 https://www.nytimes.com/2026/04/15/opinion/trump-iran-power-unitary-executive.html
