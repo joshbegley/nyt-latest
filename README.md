@@ -1,3 +1,27 @@
+**Nature Is Still Molding Human Genes, Study Finds**\
+`Some researchers hold that evolution hasn’t much altered humans in the past 10,000 years. A new analysis of ancient DNA indicates that natural selection continued to shape hundreds of genes.`\
+https://www.nytimes.com/2026/04/15/science/human-genes-natural-selection.html
+
+**How to Cook the Perfect Egg for You**\
+`A new recipe from Yotam Ottolenghi has us contemplating the best ways to cook an egg.`\
+https://www.nytimes.com/2026/04/15/dining/how-to-cook-the-perfect-egg-for-you.html
+
+**Large Hail Pelts Midwest Amid Severe Weather Outbreak**\
+`Several states in the Midwest have experienced large hail amid severe weather that also brought heavy rain and tornado risks. Forecasters expected the multiday breakout of storms to last through the weekend.`\
+https://www.nytimes.com/video/weather/100000010842151/hail-tornadoes-storms-midwest-weather.html
+
+**Corporate America Aims to Preserve Profit Streak During Iran War**\
+`Higher inflation is leading companies to raise prices without sacrificing margins.`\
+https://www.nytimes.com/2026/04/15/business/economy/companies-profits-prices-iran-war.html
+
+**Trump’s Go-To Justification for Contentious Decisions: National Security**\
+`The administration has invoked national security in a variety of matters, including the White House ballroom and offshore wind farms, drawing rebukes from some judges.`\
+https://www.nytimes.com/2026/04/15/us/white-house-ballroom-trump-national-security.html
+
+**Trump and Meloni Split Amid Growing Dispute Over Pope and Iran**\
+`Prime Minister Giorgia Meloni was once considered one of President Trump’s closest European allies. Their friendship now appears in danger.`\
+https://www.nytimes.com/2026/04/15/world/europe/trump-meloni-italy-iran-pope.html
+
 **In Defense of Dumb Dogs**\
 `Your pet is (probably) not a genius, and that’s OK.`\
 https://www.nytimes.com/2026/04/15/science/pets-dogs-intelligence.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/04/15/world/europe/turkey-school-shooting-kahramanm
 **Trump Threatens to Fire Powell if He Does Not Resign From Fed**\
 `Although Jerome H. Powell’s term as Fed chair officially ends on May 15, he can stay on as a governor until 2028 and said he would not leave until a criminal investigation was over.`\
 https://www.nytimes.com/2026/04/15/business/trump-powell-fed-fire.html
-
-**Trump Threatens to Fire Powell, Again**\
-`The new threat against the Fed chair comes ahead of a Senate confirmation hearing for Kevin Warsh, President Trump’s pick to lead the central bank.`\
-https://www.nytimes.com/2026/04/15/business/dealbook/trump-fire-powell-fed.html
-
-**Trump Increased Tax Refunds, but a Political Challenge Still Looms**\
-`While last year’s tax law has raised the average I.R.S. refund, the boost is less than the White House expected — and may not have much impact on voters.`\
-https://www.nytimes.com/2026/04/15/business/trump-tax-law-refunds-voters.html
-
-**Japan Pledges $10 Billion to Help Countries Cope With Oil Prices**\
-`With supply chains at risk, the aid to Southeast Asian nations is aimed at securing the availability of oil-based products, including medical equipment.`\
-https://www.nytimes.com/2026/04/15/business/japan-aid-asia-oil.html
-
-**Ye Postpones Concert in France as Government Considers Banning It**\
-`The rapper formerly known as Kanye West had been scheduled to perform in Marseille, France, in June. The city’s mayor had said he did not want it to be “a showcase for those who promote hatred.”`\
-https://www.nytimes.com/2026/04/15/world/europe/kanye-west-ye-france-concert.html
-
-**Johnny Somali, American Online Provocateur, Is Sentenced to Prison in South Korea**\
-`Known for desecrating a monument to victims of sexual slavery, the former YouTuber was convicted on multiple charges and given a six-month sentence.`\
-https://www.nytimes.com/2026/04/15/world/asia/johnny-somali-youtube-prison-korea.html
-
-**U.S. Puts Little Pressure on Israel to Stop Attacks on Lebanon**\
-`Despite hailing negotiations between the two sides as a “historic milestone,” Washington did not call for a halt to Israeli strikes or for a withdrawal from Lebanese territory.`\
-https://www.nytimes.com/2026/04/15/world/asia/israel-lebanon-us-talks-trump.html
 
