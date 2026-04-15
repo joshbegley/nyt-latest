@@ -1,3 +1,15 @@
+**Vance Says the Pope Should Be More Careful When Talking About Theology**\
+`The vice president, who is Catholic, took issue with Pope Leo XIV’s statement that disciples of Christ are “never on the side of those who once wielded the sword and today drop bombs.”`\
+https://www.nytimes.com/2026/04/14/us/politics/vance-pope-trump-georgia.html
+
+**Ship ‘Spoofing’ in Strait of Hormuz May Compound Confusion**\
+`A new pattern of deceptive activity by some vessels around the critical waterway suggests the new American blockade is changing how some ships linked to Iran are behaving.`\
+https://www.nytimes.com/2026/04/14/world/middleeast/strait-of-hormuz-naval-blockade-ship-spoofing.html
+
+**Rubio Hosts Israel and Lebanon for Rare Meeting Shadowed by U.S.-Iran War**\
+`The gathering ended with encouraging words, even as Israel continued to refuse to halt its military campaign against Iran-backed Hezbollah in Lebanon.`\
+https://www.nytimes.com/2026/04/14/us/politics/israel-lebanon-talks.html
+
 **House Passes Air Safety Bill, Setting Up Clash with Senate**\
 `Senate leaders say key provisions fall short of what is necessary to prevent aircraft from midair collisions.`\
 https://www.nytimes.com/2026/04/14/us/politics/house-air-safety-bill.html
