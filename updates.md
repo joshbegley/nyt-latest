@@ -1,3 +1,11 @@
+**Why Is Child Care So Expensive?**\
+`Plus, why the industry is a “market failure.”`\
+https://www.nytimes.com/2026/04/15/headway/newsletter-cost-child-care.html
+
+**Sheinbaum’s War on Crime Faces a Grim Reckoning: 133,000 Missing**\
+`President Claudia Sheinbaum of Mexico is under pressure to end one of her country’s most painful tragedies: the disappearance of more than 133,000 people.`\
+https://www.nytimes.com/2026/04/15/world/americas/claudia-sheinbaum-mexico-crime-missing-people.html
+
 **JD Vance dice que el papa debería ser más cuidadoso al hablar de teología**\
 `El vicepresidente, que es católico, discrepó con la afirmación del papa León XIV de que un discípulo de Cristo “nunca se pone del lado de quienes ayer empuñaban la espada y hoy lanzan bombas”.`\
 https://www.nytimes.com/es/2026/04/15/espanol/estados-unidos/papa-leon-trump-vance.html
