@@ -1,3 +1,7 @@
+**Brazilian Official Put China’s BYD on Slave Labor List. Then He Was Fired.**\
+`The dismissal of Brazil’s top labor inspector has landed the leftist government of President Lula, a former union leader, in an awkward spot.`\
+https://www.nytimes.com/2026/04/15/world/americas/brazil-lula-workers-rights-labor-abuse.html
+
 **‘We Cannot Lose Sight of Ukraine.’ Europeans Promise More Aid to Kyiv.**\
 `The focus in recent weeks has been on the conflict in Iran, but European leaders said it was crucial to keep aid flowing to Ukraine.`\
 https://www.nytimes.com/2026/04/15/world/europe/europe-ukraine-aid-iran.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/15/world/middleeast/israel-lebanon-ceasefire-pre
 **Así han evolucionado las transferencias de armas de China a Irán por décadas**\
 `China ha negado las afirmaciones de los servicios de inteligencia de EE. UU. de que podría haber enviado armas a Irán. En los últimos años, China ha apoyado a Irán con piezas de doble uso.`\
 https://www.nytimes.com/es/2026/04/15/espanol/mundo/china-armas-iran-guerra-estados-unidos.html
-
-**U.S. Blockade in Strait of Hormuz Appears to Hold**\
-`The U.S. blockade of the Strait of Hormuz appeared to be working on Wednesday, as marine trackers reported no Iran-linked ships entering or exiting the strait since the blockade began on Monday.`\
-https://www.nytimes.com/video/world/middleeast/100000010842198/us-blockade-strait-hormuz-iran-ships.html
 

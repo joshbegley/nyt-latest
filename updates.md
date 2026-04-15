@@ -1,3 +1,7 @@
+**Brazilian Official Put China’s BYD on Slave Labor List. Then He Was Fired.**\
+`The dismissal of Brazil’s top labor inspector has landed the leftist government of President Lula, a former union leader, in an awkward spot.`\
+https://www.nytimes.com/2026/04/15/world/americas/brazil-lula-workers-rights-labor-abuse.html
+
 **Stocks Approach Record High as Wall St. Looks Beyond War**\
 `Investors appear to be treating an end to the U.S.-Israeli war with Iran as a foregone conclusion.`\
 https://www.nytimes.com/2026/04/15/business/stocks-record-iran-war.html
