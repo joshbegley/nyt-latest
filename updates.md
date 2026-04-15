@@ -1,3 +1,19 @@
+**La caída de Orbán es una oportunidad de oro**\
+`Los votantes demostraron que la democracia puede ser restaurada pacíficamente por el pueblo.`\
+https://www.nytimes.com/es/2026/04/15/espanol/opinion/hungria-orban-derrota-democracia.html
+
+**Pope Leo’s Challenge in Cameroon: Show African Catholics How Much They Matter**\
+`Catholicism is growing fast on the continent, yet Africans play a comparatively small role in church leadership. Cameroon, which Leo XIV will visit Wednesday, shows the divide.`\
+https://www.nytimes.com/2026/04/15/world/africa/pope-leo-cameroon-africa.html
+
+**War Exposes Gaps in India’s Clean Energy Push**\
+`The country’s creaking electricity grid is lagging behind its push for renewable sources — just as its growing economy hungers for oil stranded by war.`\
+https://www.nytimes.com/2026/04/15/business/india-solar-energy-problems.html
+
+**Billy Crystal Lost His House in the L.A. Fires. He’s Made a Show About It.**\
+`The actor-comedian said he will return to Broadway this fall with a new solo show called “860,” named for the address of his destroyed family home.`\
+https://www.nytimes.com/2026/04/15/theater/billy-crystal-broadway-860.html
+
 **Quote of the Day: A Police Chief’s $4.5 Million Gambling Secret: ‘It’s on the App’**\
 `Quotation of the Day for Wednesday, April 15, 2026.`\
 https://www.nytimes.com/2026/04/14/pageoneplus/quote-of-the-day-a-police-chiefs-4-5-million-gambling-secret-its-on-the-app.html
