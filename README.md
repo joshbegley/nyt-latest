@@ -1,3 +1,35 @@
+**One-Pot White Wine Pasta**\
+`While this pasta is reminiscent of scampi, piccata and vongole, it delivers something more — a hard-to-pin-down complexity that comes from cooking the pasta not in water but in wine.`\
+https://www.nytimes.com/video/dining/100000010840690/one-pot-white-wine-pasta.html
+
+**Spaghetti all’Assassina**\
+`This spicy one-pot pasta dish is common on menus in Bari, Italy, but can easily be prepared at home.`\
+https://www.nytimes.com/video/dining/100000010840678/spaghetti-allassassina.html
+
+**Coconut-Miso Salmon Curry**\
+`This light, delicate weeknight curry comes together in less than 30 minutes and is defined by its deep miso flavor.`\
+https://www.nytimes.com/video/dining/100000010840680/coconut-miso-salmon-curry.html
+
+**Loaded Sweet Potatoes With Kimchi and Bacon**\
+`For effort-to-flavor ratio, you can’t really beat a jar of kimchi and a pack of bacon. This five-ingredient dinner is a riot of deliciousness: Sweet potatoes roasted in bacon fat provide a sturdy base for bacon-enriched kimchi and pillowy mozzarella.`\
+https://www.nytimes.com/video/dining/100000010840683/loaded-sweet-potatoes-with-kimchi-and-bacon.html
+
+**Skillet Gnocchi With Miso Butter and Asparagus**\
+`This skillet gnocchi recipe has a spring in its step: It takes just 10 minutes to cook and is loaded with sweet springtime asparagus and baby greens.`\
+https://www.nytimes.com/video/dining/100000010841014/skillet-gnocchi-with-miso-butter-and-asparagus.html
+
+**Carrot Maqluba**\
+`Maqluba is a traditional Palestinian dish made of rice, meat and fried vegetables, most often eggplants (in summer) or cauliflower (in winter), although some like to combine both, and add carrots as well.`\
+https://www.nytimes.com/video/dining/100000010840686/carrot-maqluba.html
+
+**What Was the Deal With Jack Harlow’s Giant Hat?**\
+`Also, fashion can’t quit Anna Wintour.`\
+https://www.nytimes.com/2026/04/15/style/jack-harlow-hat.html
+
+**The Social Contract That Held the Internet Together Is Collapsing**\
+`In the race to patch up cybersecurity holes found by the newest A.I. models, we risk leaving too many people to fend for themselves.`\
+https://www.nytimes.com/2026/04/15/opinion/mythos-open-souce-internet.html
+
 **Executive Who Led Ford’s Electric Car Push Is Leaving**\
 `Doug Field, a former Tesla and Apple executive, had returned to Ford Motor in 2021 to help develop new electric models and software.`\
 https://www.nytimes.com/2026/04/15/business/ford-electric-vehicles-doug-field.html
@@ -45,36 +77,4 @@ https://www.nytimes.com/video/podcasts/100000010841429/kacey-musgraves-returns-c
 **Getting the Pope to Answer a Pointed Question at 30,000 Feet**\
 `The Times’s Rome bureau chief is still getting a feel for a pontiff who is willing to challenge President Trump and use his sense of humor.`\
 https://www.nytimes.com/2026/04/15/world/europe/pope-leo-papal-plane.html
-
-**South Africa Names Roelf Meyer as New Ambassador to Trump’s Washington**\
-`The move comes as the country looks to strengthen diplomatic ties with the United States after months of hostility between the two nations.`\
-https://www.nytimes.com/2026/04/15/world/africa/south-africa-us-ambassador-roelf-meyer.html
-
-**Barbara Gordon, Who Wrote Memoir of Pill Addiction, Dies at 90**\
-`“I’m Dancing as Fast as I Can,” which became a best seller, detailed her years of prescription drug abuse and offered an indictment of American psychiatry.`\
-https://www.nytimes.com/2026/04/15/books/barbara-gordon-dead.html
-
-**Omaha Police Fatally Shoot Woman Who Cut 3-Year-Old Boy With Knife at Walmart**\
-`The woman forced the child, who was sitting in a cart, and his babysitter out of the store at knife point. She had the boy when police arrived, the department said. The shooting is under investigation.`\
-https://www.nytimes.com/2026/04/15/us/omaha-walmart-child-stabbing-police-shooting.html
-
-**‘The Pitt’ Perfectly Captures the Stress of 2026**\
-`Before the Season 2 finale of “The Pitt,” The Times’s critic, Wesley Morris, realized that the show has been playing the same trick on him again and again. Every time this medical drama lulls you into complacency, it jolts you awake with a new emergency — which is exactly what it feels like to be alive in 2026.`\
-https://www.nytimes.com/video/podcasts/100000010834683/the-pitt-perfectly-captures-the-stress-of-2026.html
-
-**With Iran War on Pause, Political Battle Resumes Over Israeli Democracy**\
-`A court fight over Itamar Ben-Gvir, an extremist who oversees the police, pits the attorney general against Benjamin Netanyahu and his right-wing government.`\
-https://www.nytimes.com/2026/04/15/world/middleeast/israel-ben-gvir-hearing.html
-
-**The Good List: 7 Things to Add Some Delight to Your Day**\
-`Train jazz, the “Brady Bunch” house and the gift of time.`\
-https://www.nytimes.com/2026/04/15/briefing/15-the-good-list-brady-house-trains.html
-
-**Yale Report Finds Colleges Deserve Blame for Higher Education’s Problems**\
-`A 10-member committee offered a brutal assessment of academia’s role in creating the forces challenging American colleges and universities.`\
-https://www.nytimes.com/2026/04/15/us/yale-report-colleges-unversities-trust.html
-
-**Mamdani and N.Y.C. Council Speaker Reach Truce Over Key Appointment**\
-`The speaker, Julie Menin, privately agreed to not block Nadia Shihata’s appointment to lead the Department of Investigation as a sign of peace with Mayor Zohran Mamdani.`\
-https://www.nytimes.com/2026/04/15/nyregion/mamdani-menin-deal-department-investigation.html
 
