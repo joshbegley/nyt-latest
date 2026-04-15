@@ -1,3 +1,19 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/15/world/iran-war-trump-us-israel/heres-the-latest
+
+**Running a 5K in a Van**\
+`Influencers go to great lengths — even in small spaces — to get views? How far would you go?`\
+https://www.nytimes.com/2026/04/15/learning/running-a-5k-in-a-van.html
+
+**How a Times Reporter Has Covered a Turbulent Period in Latin America**\
+`Frances Robles, an international correspondent for The New York Times, has reported on the region for more than 25 years.`\
+https://www.nytimes.com/2026/04/15/insider/francine-robles-new-york-times.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/15/crosswords/spelling-bee-forum.html
+
 **Super Typhoon Slams Northern Mariana Islands, Causing Widespread Damage**\
 `But there were no early reports of casualties from the storm, which was named Sinlaku and was moving northwest of the region.`\
 https://www.nytimes.com/2026/04/15/world/asia/typhoon-sinlaku-saipan-damage.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/14/crosswords/daily-puzzle-2026-04-15.html
 **Corrections: April 15, 2026**\
 `Corrections that appeared in print on Wednesday, April 15, 2026.`\
 https://www.nytimes.com/2026/04/14/pageoneplus/corrections-april-15-2026.html
-
-**Israel’s ‘One-State Reality’**\
-`Hope for a two-state solution between Israel and Palestine is preventing the world from reckoning with the “one-state reality” of the present, the Opinion columnist Ezra Klein argues.`\
-https://www.nytimes.com/video/opinion/100000010830068/israels-one-state-reality.html
-
-**Alex Cooper and Alix Earle Are Fighting. Or Are They?**\
-`Two popular influencers have exchanged jabs on social media.`\
-https://www.nytimes.com/2026/04/14/style/alex-cooper-alix-earle-drama-feud.html
-
-**Vance Heckled in Antiwar Protest at Turning Point USA Event**\
-`Vice President JD Vance appeared to express sympathy with critics of the war with Iran: “I recognize that young voters do not love the policy we have in the Middle East, OK. I understand.”`\
-https://www.nytimes.com/2026/04/14/us/politics/jd-vance-turning-point-usa-protest.html
-
-**Vance Says the Pope Should Be More Careful When Talking About Theology**\
-`The vice president, who is Catholic, took issue with Pope Leo XIV’s statement that disciples of Christ are “never on the side of those who once wielded the sword and today drop bombs.”`\
-https://www.nytimes.com/2026/04/14/us/politics/vance-pope-trump-georgia.html
 
