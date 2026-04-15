@@ -1,3 +1,7 @@
+**Las celebridades también necesitan fotos de pasaporte**\
+`Durante décadas, un estudio fotográfico en Londres tomo las fotos de pasaporte de algunas de las personalidades más importantes de su época.`\
+https://www.nytimes.com/es/2026/04/15/espanol/cultura/fotos-famosos-pasaporte.html
+
 **Donde hasta las flores provocan miedo**\
 `Los generales de Birmania han brutalizado al país durante décadas. Pero han llegado a temer las guirnaldas como signo de resistencia.`\
 https://www.nytimes.com/es/2026/04/15/espanol/mundo/birmania-guerra-civil.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/14/pageoneplus/quote-of-the-day-a-police-chiefs-
 **Prosecutors Make Surprise Visit to Fed as Pirro Defends Investigation**\
 `The Justice Department’s criminal inquiry into the Federal Reserve threatens to delay the confirmation of the next chair.`\
 https://www.nytimes.com/2026/04/14/us/politics/pirro-federal-reserve-investigation.html
-
-**Works Out**\
-`Adam Wagner’s Wednesday puzzle coalesces into a fun solve.`\
-https://www.nytimes.com/2026/04/14/crosswords/daily-puzzle-2026-04-15.html
 
