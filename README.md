@@ -1,3 +1,7 @@
+**‘We Cannot Lose Sight of Ukraine.’ Europeans Promise More Aid to Kyiv.**\
+`The focus in recent weeks has been on the conflict in Iran, but European leaders said it was crucial to keep aid flowing to Ukraine.`\
+https://www.nytimes.com/2026/04/15/world/europe/europe-ukraine-aid-iran.html
+
 **Journalism Essentials: A Limited Series on Media Literacy**\
 `Our first bite-size teachings on fundamentals from The School of The New York Times look at journalism’s role in society.`\
 https://www.nytimes.com/2026/04/15/learning/learning-network-limited-series-media-literacy.html
@@ -43,7 +47,7 @@ https://www.nytimes.com/2026/04/15/style/tiny-modern-love-stories-embarrassed-ye
 https://www.nytimes.com/2026/04/15/business/stocks-approach-record-high-as-wall-st-looks-beyond-war.html
 
 **Dam Failure Could Imperil Thousands in Northern Michigan**\
-`A levee breach near Cheboygan has already forced evacuations. Engineers were monitoring dams taxed by rain and snowmelt.`\
+`A levee breach near Cheboygan had forced evacuations and officials continue to monitor a nearby dam. Rain and snowmelt have affected the area.`\
 https://www.nytimes.com/2026/04/15/us/floods-michigan-cheboygan-dams-evacuation.html
 
 **Snap Is Laying Off 16% of Full-Time Staff as It Embraces A.I.**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/15/espanol/mundo/china-armas-iran-guerra-esta
 **U.S. Blockade in Strait of Hormuz Appears to Hold**\
 `The U.S. blockade of the Strait of Hormuz appeared to be working on Wednesday, as marine trackers reported no Iran-linked ships entering or exiting the strait since the blockade began on Monday.`\
 https://www.nytimes.com/video/world/middleeast/100000010842198/us-blockade-strait-hormuz-iran-ships.html
-
-**My Longtime Housekeeper’s Work Is Slipping. What Should I Do?**\
-`We know she depends on this income, and we have hesitated to raise the issue with her.`\
-https://www.nytimes.com/2026/04/15/magazine/housekeeper-work-slipping-ethics.html
 

@@ -1,3 +1,15 @@
+**Journalism Essentials: A Limited Series on Media Literacy**\
+`Our first bite-size teachings on fundamentals from The School of The New York Times look at journalism’s role in society.`\
+https://www.nytimes.com/2026/04/15/learning/learning-network-limited-series-media-literacy.html
+
+**SantaCon Leader Ran His Own $1 Million Con Game, U.S. Says**\
+`Stefan Pildes “siphoned” more than half of the money donated over five years for the event, a raucous New York City bar crawl promoted as a charitable event, prosecutors said.`\
+https://www.nytimes.com/2026/04/15/nyregion/santacon-wire-fraud-stefan-pildes.html
+
+**Ad Companies Settle With F.T.C. Over Claims of Harm to Conservative Sites**\
+`WPP, Dentsu and Publicis settled claims they colluded on policies to combat misinformation, denying ad revenue to publishers on the right.`\
+https://www.nytimes.com/2026/04/15/technology/ftc-ad-companies-settlement.html
+
 **Why Is Child Care So Expensive?**\
 `Plus, why the industry is a “market failure.”`\
 https://www.nytimes.com/2026/04/15/headway/newsletter-cost-child-care.html

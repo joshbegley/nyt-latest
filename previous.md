@@ -1,3 +1,15 @@
+**Journalism Essentials: A Limited Series on Media Literacy**\
+`Our first bite-size teachings on fundamentals from The School of The New York Times look at journalism’s role in society.`\
+https://www.nytimes.com/2026/04/15/learning/learning-network-limited-series-media-literacy.html
+
+**SantaCon Leader Ran His Own $1 Million Con Game, U.S. Says**\
+`Stefan Pildes “siphoned” more than half of the money donated over five years for the event, a raucous New York City bar crawl promoted as a charitable event, prosecutors said.`\
+https://www.nytimes.com/2026/04/15/nyregion/santacon-wire-fraud-stefan-pildes.html
+
+**Ad Companies Settle With F.T.C. Over Claims of Harm to Conservative Sites**\
+`WPP, Dentsu and Publicis settled claims they colluded on policies to combat misinformation, denying ad revenue to publishers on the right.`\
+https://www.nytimes.com/2026/04/15/technology/ftc-ad-companies-settlement.html
+
 **Why Is Child Care So Expensive?**\
 `Plus, why the industry is a “market failure.”`\
 https://www.nytimes.com/2026/04/15/headway/newsletter-cost-child-care.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/video/world/middleeast/100000010842198/us-blockade-strai
 **My Longtime Housekeeper’s Work Is Slipping. What Should I Do?**\
 `We know she depends on this income, and we have hesitated to raise the issue with her.`\
 https://www.nytimes.com/2026/04/15/magazine/housekeeper-work-slipping-ethics.html
-
-**Review: Here’s Johnny! (And Bach and 4 Choreographers)**\
-`The violinist Johnny Gandelsman wanted his music to move. In the overly winsome “Johnny Loves Johann,” he performs Bach’s cello suites alongside four dance artists.`\
-https://www.nytimes.com/2026/04/15/arts/dance/review-johnny-gandlesman-bach-jamar-roberts.html
-
-**Kuwait Detained Journalist After Comments on Iran War Images, Watchdog Says**\
-`The country has not commented publicly about Ahmed Shihab-Eldin, who the Committee to Protect Journalists said had been charged with spreading false information.`\
-https://www.nytimes.com/2026/04/15/world/middleeast/kuwait-shihab-eldin-journalist-detained.html
-
-**How to Win a $1.2 Million Picasso Without Really Trying**\
-`A Parisian software salesman entered a charity raffle and came away with a piece of history: “I have some paintings, but not like a Picasso.”`\
-https://www.nytimes.com/2026/04/15/arts/design/picasso-raffle-paris-100-euros.html
 
