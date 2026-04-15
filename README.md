@@ -1,3 +1,15 @@
+**Lena Dunham: Adam Driver’s Character on ‘Girls’ Wasn’t Meant to Be a Hero**\
+`On “The Interivew,” Lena Dunham talks about recreating some uncomfortable moments in her life onscreen, and how audiences responded in unexpected ways.`\
+https://www.nytimes.com/video/arts/100000010839985/lena-dunham-adam-drivers-character-on-girls-wasnt-meant-to-be-a-hero.html
+
+**Lena Dunham on Why Her Dad Didn’t Want to Vote With Her**\
+`During the height of her fame, Lena Dunham’s name became synonymous with certain millennial clichés. On “The Interview,” she talks about that experience and how her dad tried to avoid the media attention she attracted.`\
+https://www.nytimes.com/video/arts/100000010839986/lena-dunham-on-why-her-dad-didnt-want-to-vote-with-her.html
+
+**Hungría y la paradoja populista**\
+`Analizamos lo que la derrota de Viktor Orbán nos dice sobre un modelo de gobierno en el que la política es más importante que la economía.`\
+https://www.nytimes.com/es/2026/04/15/espanol/mundo/hungria-paradoja-populista.html
+
 **The Republicans Who Disapprove of the War, and a Wave of College Closures**\
 `Plus, will the World Cup bring tourists back to the U.S.?`\
 https://www.nytimes.com/2026/04/15/podcasts/the-headlines/republicans-disapprove-iran-war-college-closures.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/15/movies/no-picnic-philip-hartman.html
 **Spice Up Your Cooking Skills With Help From Your Phone**\
 `Recipe apps and artificial intelligence can give you a boost, but free tools already on your device can also assist with meal planning and preparation.`\
 https://www.nytimes.com/2026/04/15/technology/personaltech/recipes-cooking-ai.html
-
-**Window Guards Started Saving Lives 50 Years Ago**\
-`The health department began to require the guards in apartments with children under age 10 in 1976. They have had a remarkable impact.`\
-https://www.nytimes.com/2026/04/15/nyregion/window-guards-nyc-50-years.html
-
-**New York Calls for Accountability for Firm Accused of Ignoring Assaults**\
-`The state comptroller said the real estate brokerage eXp, two of whose former agents have been accused of sexual assault, should fix its company culture instead of moving to Texas.`\
-https://www.nytimes.com/2026/04/15/nyregion/exp-abuse-lawsuit-shareholders.html
-
-**The Budget Side of Burgundy**\
-`While $50 a bottle is nobody’s idea of cheap, in the context of Burgundy, it can be a good deal. Here are 12 bottles for $50 and under.`\
-https://www.nytimes.com/2026/04/15/dining/drinks/burgundy-prices.html
 
