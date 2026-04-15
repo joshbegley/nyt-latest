@@ -1,3 +1,7 @@
+**Un funcionario brasileño incluyó a BYD en una lista de mano de obra esclava. Después, fue despedido**\
+`La salida del principal inspector de trabajo de Brasil ha puesto al gobierno del presidente Lula, político de izquierda y exdirigente sindical, en una situación incómoda.`\
+https://www.nytimes.com/es/2026/04/15/espanol/mundo/brasil-china-byd-esclavitud.html
+
 **2 Men Plead Not Guilty to Supporting ISIS in Gracie Mansion Attack**\
 `The defendants, Emir Balat, 18, and Ibrahim Kayumi, 19, face federal charges in the homemade-bomb attack on an anti-Muslim protest in March. No one was injured.`\
 https://www.nytimes.com/2026/04/15/nyregion/mamdani-gracie-mansion-attack-isis.html
