@@ -1,3 +1,7 @@
+**Vance Heckled in Antiwar Protest at Turning Point USA Event**\
+`Vice President JD Vance appeared to express sympathy with critics of the war with Iran: “I recognize that young voters do not love the policy we have in the Middle East, OK. I understand.”`\
+https://www.nytimes.com/2026/04/14/us/politics/jd-vance-turning-point-usa-protest.html
+
 **Vance Says the Pope Should Be More Careful When Talking About Theology**\
 `The vice president, who is Catholic, took issue with Pope Leo XIV’s statement that disciples of Christ are “never on the side of those who once wielded the sword and today drop bombs.”`\
 https://www.nytimes.com/2026/04/14/us/politics/vance-pope-trump-georgia.html
