@@ -1,3 +1,15 @@
+**How China’s Weapons Transfers to Iran Have Evolved Over Decades**\
+`China has denied claims this month by U.S. intelligence that it might have shipped arms to Iran. In recent years, China has supported Iran with dual-use parts.`\
+https://www.nytimes.com/2026/04/15/world/asia/china-iran-weapons-sales.html
+
+**Pope Leo to Trump: ‘There Is a Better Way’**\
+`A harsh attack by the president drew a quick response from the pontiff, a reminder of his uniquely moral voice.`\
+https://www.nytimes.com/2026/04/15/opinion/pope-leo-trump-iran-war.html
+
+**The World Has Forgotten My Country, but I Haven’t**\
+`The spirit of the Sudanese people cannot be crushed.`\
+https://www.nytimes.com/2026/04/15/opinion/sudan-war-rsf-darfur.html
+
 **La caída de Orbán es una oportunidad de oro**\
 `Los votantes demostraron que la democracia puede ser restaurada pacíficamente por el pueblo.`\
 https://www.nytimes.com/es/2026/04/15/espanol/opinion/hungria-orban-derrota-democracia.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/es/2026/04/14/espanol/america-latina/mario-rios-montt-mu
 **Swalwell’s Exit Injects ‘Chaos’ Into California Governor’s Race**\
 `Democratic candidates see sudden voter interest in the sleepy contest as a campaign opportunity. All are scrambling for support from former backers of Eric Swalwell.`\
 https://www.nytimes.com/2026/04/14/us/california-governor-race-swalwell.html
-
-**Captains of Boat That Capsized Near San Diego Plead Guilty to 4 Deaths**\
-`The boat was carrying 19 migrants from Mexico to Southern California when it overturned in May 2025, the authorities said. Two of the victims were children.`\
-https://www.nytimes.com/2026/04/14/us/human-smuggling-boat-capsize-california-guilty.html
-
-**Taylor Frankie Paul Will Not Face New Domestic Violence Charges**\
-`Prosecutors in Utah investigated after the reality star’s ex-boyfriend told the police she had scratched, shoved and struck him during a fight in February.`\
-https://www.nytimes.com/2026/04/14/arts/television/taylor-frankie-paul-charges-domestic-violence.html
-
-**Trump’s Blockade Risks Upending an Emerging Détente With China**\
-`In a thinly veiled critique of the war in Iran, China’s leader said the world could not risk reverting “to the law of the jungle.”`\
-https://www.nytimes.com/2026/04/14/us/politics/trump-iran-blockade-china.html
 

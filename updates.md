@@ -1,3 +1,15 @@
+**How China’s Weapons Transfers to Iran Have Evolved Over Decades**\
+`China has denied claims this month by U.S. intelligence that it might have shipped arms to Iran. In recent years, China has supported Iran with dual-use parts.`\
+https://www.nytimes.com/2026/04/15/world/asia/china-iran-weapons-sales.html
+
+**Pope Leo to Trump: ‘There Is a Better Way’**\
+`A harsh attack by the president drew a quick response from the pontiff, a reminder of his uniquely moral voice.`\
+https://www.nytimes.com/2026/04/15/opinion/pope-leo-trump-iran-war.html
+
+**The World Has Forgotten My Country, but I Haven’t**\
+`The spirit of the Sudanese people cannot be crushed.`\
+https://www.nytimes.com/2026/04/15/opinion/sudan-war-rsf-darfur.html
+
 **La caída de Orbán es una oportunidad de oro**\
 `Los votantes demostraron que la democracia puede ser restaurada pacíficamente por el pueblo.`\
 https://www.nytimes.com/es/2026/04/15/espanol/opinion/hungria-orban-derrota-democracia.html
