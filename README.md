@@ -51,7 +51,7 @@ https://www.nytimes.com/2026/04/15/business/stocks-record-iran-war.html
 https://www.nytimes.com/2026/04/15/us/floods-michigan-cheboygan-dams-evacuation.html
 
 **Snap Is Laying Off 16% of Full-Time Staff as It Embraces A.I.**\
-`The company, which owns the social media app Snapchat, said it was laying off about 1,000 employees as it increases its reliance on artificial intelligence.`\
+`The company, which owns the social media app Snapchat, said it was laying off about 1,000 employees as it increased its reliance on artificial intelligence.`\
 https://www.nytimes.com/2026/04/15/business/snap-layoffs-snapchat.html
 
 **El bloqueo de Trump al estrecho de Ormuz puede poner en riesgo la relación con China**\
