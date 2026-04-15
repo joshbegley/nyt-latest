@@ -1,3 +1,15 @@
+**La principal diplomática de EE. UU. en Venezuela deja su cargo tras haber llegado en enero**\
+`Laura Dogu, quien reabrió la embajada de Estados Unidos en Venezuela, vuelve a su rol como asesora del oficial de mayor rango del ejército estadounidense mientras continúa la guerra con Irán.`\
+https://www.nytimes.com/es/2026/04/15/espanol/america-latina/venezuela-usa-laura-dogu.html
+
+**Videos Show Officers Beating Man During Arrest in Brooklyn**\
+`Two officers were placed under investigation after the videos surfaced. Mayor Zohran Mamdani called them disturbing. The Police Department said officers incorrectly identified the man.`\
+https://www.nytimes.com/2026/04/15/nyregion/nypd-beating-officers-brooklyn.html
+
+**Carol Greitzer, Tireless Defender of Greenwich Village, Dies at 101**\
+`A lifelong New Yorker and longtime City Council member, she opposed Robert Moses’s wrecking ball, championed historic preservation and fought for women’s and gay rights.`\
+https://www.nytimes.com/2026/04/15/nyregion/carol-greitzer-dead.html
+
 **Sudan Enters Fourth Year of War Amid World’s Most Severe Humanitarian Crisis**\
 `Fighting that erupted in 2023 has forced millions from their homes and left widespread hunger that is now being compounded by strife in the Middle East.`\
 https://www.nytimes.com/2026/04/15/world/africa/sudan-war-hunger-crisis.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/video/dining/100000010840680/coconut-miso-salmon-curry.h
 **Loaded Sweet Potatoes With Kimchi and Bacon**\
 `For effort-to-flavor ratio, you can’t really beat a jar of kimchi and a pack of bacon. This five-ingredient dinner is a riot of deliciousness: Sweet potatoes roasted in bacon fat provide a sturdy base for bacon-enriched kimchi and pillowy mozzarella.`\
 https://www.nytimes.com/video/dining/100000010840683/loaded-sweet-potatoes-with-kimchi-and-bacon.html
-
-**Skillet Gnocchi With Miso Butter and Asparagus**\
-`This skillet gnocchi recipe has a spring in its step: It takes just 10 minutes to cook and is loaded with sweet springtime asparagus and baby greens.`\
-https://www.nytimes.com/video/dining/100000010841014/skillet-gnocchi-with-miso-butter-and-asparagus.html
-
-**Carrot Maqluba**\
-`Maqluba is a traditional Palestinian dish made of rice, meat and fried vegetables, most often eggplants (in summer) or cauliflower (in winter), although some like to combine both, and add carrots as well.`\
-https://www.nytimes.com/video/dining/100000010840686/carrot-maqluba.html
-
-**What Was the Deal With Jack Harlow’s Giant Hat?**\
-`Also, fashion can’t quit Anna Wintour.`\
-https://www.nytimes.com/2026/04/15/style/jack-harlow-hat.html
 
