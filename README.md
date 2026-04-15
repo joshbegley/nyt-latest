@@ -2,7 +2,7 @@
 `Our first bite-size teachings on fundamentals from The School of The New York Times look at journalism’s role in society.`\
 https://www.nytimes.com/2026/04/15/learning/learning-network-limited-series-media-literacy.html
 
-**SantaCon Leader Took More Than $1 Million for Own Luxuries, U.S. Says**\
+**SantaCon Leader Ran His Own $1 Million Con Game, U.S. Says**\
 `Stefan Pildes “siphoned” more than half of the money donated over five years for the event, a raucous New York City bar crawl promoted as a charitable event, prosecutors said.`\
 https://www.nytimes.com/2026/04/15/nyregion/santacon-wire-fraud-stefan-pildes.html
 
