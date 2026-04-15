@@ -1,3 +1,7 @@
+**Hochul Proposes Tax on N.Y.C. Second Homes That Are Worth $5 Million**\
+`Gov. Kathy Hochul, who has opposed raising some taxes, favored a “pied-à-terre” luxury tax because it largely targets the ultrawealthy who primarily live outside New York City.`\
+https://www.nytimes.com/2026/04/14/nyregion/hochul-pied-terre-tax.html
+
 **Alex Cooper and Alix Earle Are Fighting. Or Are They?**\
 `Two popular influencers have exchanged jabs on social media.`\
 https://www.nytimes.com/2026/04/14/style/alex-cooper-alix-earle-drama-feud.html
