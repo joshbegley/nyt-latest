@@ -1,3 +1,11 @@
+**Trump Increased Tax Refunds, but a Political Challenge Still Looms**\
+`While last year’s tax law has raised the average I.R.S. refund, the boost is less than the White House expected — and may not have much impact on voters.`\
+https://www.nytimes.com/2026/04/15/business/trump-tax-law-refunds-voters.html
+
+**Japan Pledges $10 Billion to Help Countries Cope With Oil Prices**\
+`With supply chains at risk, the aid to Southeast Asian nations is aimed at securing the availability of oil-based products, including medical equipment.`\
+https://www.nytimes.com/2026/04/15/business/japan-aid-asia-oil.html
+
 **Ye Postpones Concert in France as Government Considers Banning It**\
 `The rapper formerly known as Kanye West had been scheduled to perform in Marseille, France, in June. The city’s mayor had said he did not want it to be “a showcase for those who promote hatred.”`\
 https://www.nytimes.com/2026/04/15/world/europe/kanye-west-ye-france-concert.html
