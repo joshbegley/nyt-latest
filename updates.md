@@ -1,3 +1,23 @@
+**The Republicans Who Disapprove of the War, and a Wave of College Closures**\
+`Plus, will the World Cup bring tourists back to the U.S.?`\
+https://www.nytimes.com/2026/04/15/podcasts/the-headlines/republicans-disapprove-iran-war-college-closures.html
+
+**Trump’s Risky Strategy to Blockade Iran’s Blockade**\
+`The United States has enforced a naval blockade of Iran that is intended to end the war on American terms.`\
+https://www.nytimes.com/2026/04/15/podcasts/the-daily/trump-iran-blockade-strait-of-hormuz.html
+
+**Connections Companion No. 1,040**\
+`Scroll down for hints and conversation about the puzzle for Thursday, April 16, 2026.`\
+https://www.nytimes.com/2026/04/15/crosswords/connections-companion-1040.html
+
+**Wordle Review No. 1,762**\
+`Scroll down for hints and conversation about the puzzle for Thursday, April 16, 2026.`\
+https://www.nytimes.com/2026/04/15/crosswords/wordle-review-1762.html
+
+**Strands Sidekick No. 774**\
+`Scroll down for hints and conversation about the puzzle for Thursday, April 16, 2026.`\
+https://www.nytimes.com/2026/04/15/crosswords/strands-sidekick-774.html
+
 **Cuando liberan a los presos de El Salvador, ella está allí para recogerlos**\
 `El hermano de Sugey Amaya fue detenido durante la campaña de detenciones masivas en El Salvador hace cuatro años. Ella ha dedicado su vida a ayudar a presos como él.`\
 https://www.nytimes.com/es/2026/04/15/espanol/america-latina/presos-el-salvador-ayuda.html
