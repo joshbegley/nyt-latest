@@ -1,3 +1,11 @@
+**Why Is Child Care So Expensive?**\
+`Plus, why the industry is a “market failure.”`\
+https://www.nytimes.com/2026/04/15/headway/newsletter-cost-child-care.html
+
+**Sheinbaum’s War on Crime Faces a Grim Reckoning: 133,000 Missing**\
+`President Claudia Sheinbaum of Mexico is under pressure to end one of her country’s most painful tragedies: the disappearance of more than 133,000 people.`\
+https://www.nytimes.com/2026/04/15/world/americas/claudia-sheinbaum-mexico-crime-missing-people.html
+
 **JD Vance dice que el papa debería ser más cuidadoso al hablar de teología**\
 `El vicepresidente, que es católico, discrepó con la afirmación del papa León XIV de que un discípulo de Cristo “nunca se pone del lado de quienes ayer empuñaban la espada y hoy lanzan bombas”.`\
 https://www.nytimes.com/es/2026/04/15/espanol/estados-unidos/papa-leon-trump-vance.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/15/world/middleeast/kuwait-shihab-eldin-journali
 **How to Win a $1.2 Million Picasso Without Really Trying**\
 `A Parisian software salesman entered a charity raffle and came away with a piece of history: “I have some paintings, but not like a Picasso.”`\
 https://www.nytimes.com/2026/04/15/arts/design/picasso-raffle-paris-100-euros.html
-
-**At Least 9 Killed in Second School Shooting in Turkey in 2 Days**\
-`A student opened fire at a middle school in southern Turkey, killing at least nine people and wounding several others, officials said.`\
-https://www.nytimes.com/video/world/middleeast/100000010842273/turkey-school-shooting-kahramanmaras.html
-
-**Putting Connecticut Artists in the Spotlight**\
-`The Aldrich Contemporary Art Museum in Ridgefield will showcase works by people who live and work in New York’s shadow.`\
-https://www.nytimes.com/2026/04/15/arts/design/connecticut-aldrich-contemporary-art-museum.html
 
