@@ -1,3 +1,7 @@
+**Las celebridades también necesitan fotos de pasaporte**\
+`Durante décadas, un estudio fotográfico en Londres tomo las fotos de pasaporte de algunas de las personalidades más importantes de su época.`\
+https://www.nytimes.com/es/2026/04/15/espanol/cultura/fotos-famosos-pasaporte.html
+
 **Donde hasta las flores provocan miedo**\
 `Los generales de Birmania han brutalizado al país durante décadas. Pero han llegado a temer las guirnaldas como signo de resistencia.`\
 https://www.nytimes.com/es/2026/04/15/espanol/mundo/birmania-guerra-civil.html
@@ -42,13 +46,13 @@ https://www.nytimes.com/es/2026/04/15/espanol/corea-del-sur-crisis-medicina.html
 `China has denied claims this month by U.S. intelligence that it might have shipped arms to Iran. In recent years, China has supported Iran with dual-use parts.`\
 https://www.nytimes.com/2026/04/15/world/asia/china-iran-weapons-sales.html
 
-**The World Has Forgotten My Country, but I Haven’t**\
-`The spirit of the Sudanese people cannot be crushed.`\
-https://www.nytimes.com/2026/04/15/opinion/sudan-war-rsf-darfur.html
-
 **Pope Leo to Trump: ‘I Have No Fear’**\
 `A harsh attack by the president drew a quick response from the pontiff, a reminder of his uniquely moral voice.`\
 https://www.nytimes.com/2026/04/15/opinion/pope-leo-trump-iran-war.html
+
+**The World Has Forgotten My Country, but I Haven’t**\
+`The spirit of the Sudanese people cannot be crushed.`\
+https://www.nytimes.com/2026/04/15/opinion/sudan-war-rsf-darfur.html
 
 **La caída de Orbán es una oportunidad de oro**\
 `Los votantes demostraron que la democracia puede ser restaurada pacíficamente por el pueblo.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/14/pageoneplus/quote-of-the-day-a-police-chiefs-
 **Prosecutors Make Surprise Visit to Fed as Pirro Defends Investigation**\
 `The Justice Department’s criminal inquiry into the Federal Reserve threatens to delay the confirmation of the next chair.`\
 https://www.nytimes.com/2026/04/14/us/politics/pirro-federal-reserve-investigation.html
-
-**Works Out**\
-`Adam Wagner’s Wednesday puzzle coalesces into a fun solve.`\
-https://www.nytimes.com/2026/04/14/crosswords/daily-puzzle-2026-04-15.html
 

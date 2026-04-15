@@ -1,3 +1,7 @@
+**Las celebridades también necesitan fotos de pasaporte**\
+`Durante décadas, un estudio fotográfico en Londres tomo las fotos de pasaporte de algunas de las personalidades más importantes de su época.`\
+https://www.nytimes.com/es/2026/04/15/espanol/cultura/fotos-famosos-pasaporte.html
+
 **How a Times Reporter Has Covered a Turbulent Period in Latin America**\
 `Frances Robles, an international correspondent for The New York Times, has reported on the region for more than 25 years.`\
 https://www.nytimes.com/2026/04/15/insider/frances-robles-new-york-times.html
