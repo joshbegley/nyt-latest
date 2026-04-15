@@ -1,3 +1,7 @@
+**2 Men Plead Not Guilty to Supporting ISIS in Gracie Mansion Attack**\
+`The defendants, Emir Balat, 18, and Ibrahim Kayumi, 19, face federal charges in the homemade-bomb attack on an anti-Muslim protest in March. No one was injured.`\
+https://www.nytimes.com/2026/04/15/nyregion/mamdani-gracie-mansion-attack-isis.html
+
 **Justice Sotomayor Apologizes for Highly Personal Criticism of Justice Kavanaugh**\
 `At the University of Kansas School of Law last week, she criticized her colleague while discussing his views in an immigration-related case.`\
 https://www.nytimes.com/2026/04/15/us/politics/supreme-court-sotomayor-kavanaugh.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/15/business/ford-electric-vehicles-doug-field.ht
 **Pakistani Mediators Arrive in Iran in Bid to Keep Peace Talks Alive**\
 `The diplomacy came as the U.S. Navy locked down trade to Iranian ports, and Iran responded by threatening critical shipping routes across the region.`\
 https://www.nytimes.com/2026/04/15/world/middleeast/pakistani-peace-talks-blockade.html
-
-**Labor Dept. Investigates Texts Among Secretary’s Family and Staff**\
-`Secretary Lori Chavez-DeRemer asked staff members to bring wine to her hotel room, and to keep in touch with her husband and father.`\
-https://www.nytimes.com/2026/04/15/us/politics/labor-secretary-text-messages.html
 

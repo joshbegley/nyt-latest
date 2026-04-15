@@ -1,3 +1,7 @@
+**2 Men Plead Not Guilty to Supporting ISIS in Gracie Mansion Attack**\
+`The defendants, Emir Balat, 18, and Ibrahim Kayumi, 19, face federal charges in the homemade-bomb attack on an anti-Muslim protest in March. No one was injured.`\
+https://www.nytimes.com/2026/04/15/nyregion/mamdani-gracie-mansion-attack-isis.html
+
 **Justice Sotomayor Apologizes for Highly Personal Criticism of Justice Kavanaugh**\
 `At the University of Kansas School of Law last week, she criticized her colleague while discussing his views in an immigration-related case.`\
 https://www.nytimes.com/2026/04/15/us/politics/supreme-court-sotomayor-kavanaugh.html
