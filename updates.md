@@ -1,3 +1,11 @@
+**‘The Adding Machine’ Review: A Man Is Made Redundant**\
+`Daphne Rubin-Vega stars as a laid-off office worker who spins into a murderous rage in this update of Elmer L. Rice’s 1923 classic.`\
+https://www.nytimes.com/2026/04/15/theater/the-adding-machine-review-daphne-rubin-vega.html
+
+**Vance, the Pope and ‘Matters of Morality’**\
+`Readers respond to Vice President JD Vance’s remarks critical of Pope Leo XIV. Also: Mr. Trump, try kindness; a tax solution that wasn’t.`\
+https://www.nytimes.com/2026/04/15/opinion/vance-pope-leo-morality.html
+
 **Tiny Love Stories: ‘Embarrassed Yet Unable to Stop’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/04/15/style/tiny-modern-love-stories-embarrassed-yet-unable-to-stop.html
