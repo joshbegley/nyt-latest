@@ -1,3 +1,15 @@
+**Ye Postpones Concert in France as Government Considers Banning It**\
+`The rapper formerly known as Kanye West had been scheduled to perform in Marseille, France, in June. The city’s mayor had said he did not want it to be “a showcase for those who promote hatred.”`\
+https://www.nytimes.com/2026/04/15/world/europe/kanye-west-ye-france-concert.html
+
+**Johnny Somali, American Online Provocateur, Is Sentenced to Prison in South Korea**\
+`Known for desecrating a monument to victims of sexual slavery, the former YouTuber was convicted on multiple charges and given a six-month sentence.`\
+https://www.nytimes.com/2026/04/15/world/asia/johnny-somali-youtube-prison-korea.html
+
+**As talks begin, U.S. applies little pressure to Israel to stop the fighting in Lebanon.**\
+`Despite hailing the negotiations as a “historic milestone,” Washington did not call for a halt to Israeli strikes or for a withdrawal from Lebanese territory.`\
+https://www.nytimes.com/live/2026/04/15/world/iran-war-trump-us-israel/israel-lebanon-us-talks
+
 **Así cubre las turbulencias de América Latina una reportera del Times**\
 `Frances Robles, corresponsal internacional de The New York Times compartió sus experiencias de más de 25 años cubriendo la región.`\
 https://www.nytimes.com/es/2026/04/15/espanol/frances-robles-periodista.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/15/us/politics/a-progressive-group-rolls-out-a-c
 **This Is Not a Man in Control of Himself**\
 `President Trump is in over his head.`\
 https://www.nytimes.com/2026/04/15/opinion/trump-iran-power-unitary-executive.html
-
-**A Design Editor Applies Color and Restraint in His Madrid Apartment**\
-`Enric Pastor takes an editor’s eye to his 900-square-foot home.`\
-https://www.nytimes.com/2026/04/15/realestate/a-design-editor-applies-color-and-restraint-in-his-madrid-apartment.html
-
-**Review: ‘Margo’s Got Money Troubles’ Will Make an OnlyFan of You**\
-`Elle Fanning stars in a big-hearted, open-minded dramedy about online exposure and its complications.`\
-https://www.nytimes.com/2026/04/15/arts/television/margos-got-money-troubles-review.html
-
-**Thousands of N.Y.C. Doormen Seeking Better Pay Are Set to Vote on Strike**\
-`It would be the first walkout by the apartment building workers in more than three decades.`\
-https://www.nytimes.com/2026/04/15/nyregion/nyc-doorman-strike.html
 
