@@ -1,3 +1,11 @@
+**Julio Torres in ‘Color Theories,’ and More Theater to Stream**\
+`Other picks include the historical hip-hop musical “Mexodus,” an Anne Carson radio play and a century-old play about machines replacing humans.`\
+https://www.nytimes.com/2026/04/15/theater/julio-torres-mexodus-theater-streaming.html
+
+**Kacey Musgraves Returns, Cheeky as Ever**\
+`Kacey Musgraves is back with her latest single, “Dry Spell.” Our critic Jon Caramanica explains how the song’s double entendres and parched guitar signal a return to form for the country star.`\
+https://www.nytimes.com/video/podcasts/100000010841429/kacey-musgraves-returns-cheeky-as-ever.html
+
 **Getting the Pope to Answer a Pointed Question at 30,000 Feet**\
 `The Times’s Rome bureau chief is still getting a feel for a pontiff who is willing to challenge President Trump and use his sense of humor.`\
 https://www.nytimes.com/2026/04/15/world/europe/pope-leo-papal-plane.html
