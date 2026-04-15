@@ -1,3 +1,15 @@
+**He Preached the Gospel on the Subway. Then He Pulled Out a Machete.**\
+`Anthony Griffin was a popular battle rapper who turned toward religious rhetoric. The police say he slashed three people with a machete before they killed him.`\
+https://www.nytimes.com/2026/04/15/nyregion/machete-attack-grand-central.html
+
+**What the Iran War Means for China**\
+`Our national security correspondent David E. Sanger examines what the Iran war means to China, which is the world’s biggest importer of Iranian oil.`\
+https://www.nytimes.com/video/us/100000010840169/what-the-iran-war-means-for-china.html
+
+**Frenchman Wins $1.2 Million Picasso Painting**\
+`A 58-year-old Parisian man won Pablo Picasso’s 1941 “Tête de Femme” in a charity raffle on Tuesday. He purchased his two raffle tickets for 100 euros each, and walked away with a $1.2 million painting. The charity raffle raised roughly $11 million for Alzheimers research.`\
+https://www.nytimes.com/video/arts/100000010842531/pablo-picasso-painting-raffle-winner.html
+
 **La guerra de Sheinbaum contra el crimen enfrenta un balance sombrío: 133.000 desaparecidos**\
 `La presidenta de México, Claudia Sheinbaum, está bajo presión para poner fin a una de las tragedias más dolorosas del país: la desaparición de más de 133.000 personas.`\
 https://www.nytimes.com/es/2026/04/15/espanol/america-latina/mexico-desaparecidos-sheinbaum.html

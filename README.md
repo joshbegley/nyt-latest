@@ -1,3 +1,7 @@
+**Labor Department Investigates Texts Among Secretary’s Family and Staff**\
+`Labor Secretary Lori Chavez-DeRemer asked staffers to bring wine to her hotel room, and to keep in touch with her husband and father.`\
+https://www.nytimes.com/2026/04/15/us/politics/labor-secretary-text-messages.html
+
 **He Preached the Gospel on the Subway. Then He Pulled Out a Machete.**\
 `Anthony Griffin was a popular battle rapper who turned toward religious rhetoric. The police say he slashed three people with a machete before they killed him.`\
 https://www.nytimes.com/2026/04/15/nyregion/machete-attack-grand-central.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/15/insider/nyt-approach-naming-attackers-suspect
 **Iran Is Teaching Us Something About the American War Machine**\
 `The future of war belongs to “flying lawn mowers”`\
 https://www.nytimes.com/2026/04/15/opinion/iran-drone-war.html
-
-**Jury Finds Live Nation Acts as a Monopoly in a Victory for States**\
-`In a verdict that could have far-reaching consequences in the music industry, the live colossus that includes Ticketmaster was found to have violated antitrust laws.`\
-https://www.nytimes.com/2026/04/15/arts/music/live-nation-antitrust-trial-verdict-monopoly.html
 
