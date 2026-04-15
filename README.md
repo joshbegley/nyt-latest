@@ -1,3 +1,15 @@
+**Vance Says the Pope Should Be More Careful When Talking About Theology**\
+`The vice president, who is Catholic, took issue with Pope Leo XIV’s statement that disciples of Christ are “never on the side of those who once wielded the sword and today drop bombs.”`\
+https://www.nytimes.com/2026/04/14/us/politics/vance-pope-trump-georgia.html
+
+**Ship ‘Spoofing’ in Strait of Hormuz May Compound Confusion**\
+`A new pattern of deceptive activity by some vessels around the critical waterway suggests the new American blockade is changing how some ships linked to Iran are behaving.`\
+https://www.nytimes.com/2026/04/14/world/middleeast/strait-of-hormuz-naval-blockade-ship-spoofing.html
+
+**Rubio Hosts Israel and Lebanon for Rare Meeting Shadowed by U.S.-Iran War**\
+`The gathering ended with encouraging words, even as Israel continued to refuse to halt its military campaign against Iran-backed Hezbollah in Lebanon.`\
+https://www.nytimes.com/2026/04/14/us/politics/israel-lebanon-talks.html
+
 **House Passes Air Safety Bill, Setting Up Clash with Senate**\
 `Senate leaders say key provisions fall short of what is necessary to prevent aircraft from midair collisions.`\
 https://www.nytimes.com/2026/04/14/us/politics/house-air-safety-bill.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/14/opinion/trump-pope.html
 **Justice Dept. Moves to Vacate Jan. 6 Convictions for Far-Right Extremists**\
 `Defending the convictions would likely have required administration officials to assert that far-right groups were acting on behalf of President Trump on Jan. 6, 2021.`\
 https://www.nytimes.com/2026/04/14/us/politics/justice-dept-vacate-jan-6-convictions.html
-
-**Carney Suspends Gas Tax in Canada as War Drives Up Fuel Costs**\
-`The prime minister said that his government was also investing in ways to boost oil and gas production.`\
-https://www.nytimes.com/2026/04/14/world/middleeast/carney-suspends-fuel-tax.html
-
-**Israel and Lebanon Talk, but Fighting Continues**\
-`Also, a Ukrainian city is bouncing back with Denmark’s help. Here’s the latest at the end of Tuesday.`\
-https://www.nytimes.com/2026/04/14/briefing/israel-lebanon-talks-bagels-private-equity.html
-
-**The Museums That Helped Power Atlanta’s Rise Are Still Pushing Ahead**\
-`For 100 years, the Atlanta History Center and the High Museum of Art have expanded and diversified, not unlike the metropolis itself.`\
-https://www.nytimes.com/2026/04/14/arts/atlanta-museums.html
 
