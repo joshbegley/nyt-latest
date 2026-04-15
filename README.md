@@ -1,3 +1,23 @@
+**The Republicans Who Disapprove of the War, and a Wave of College Closures**\
+`Plus, will the World Cup bring tourists back to the U.S.?`\
+https://www.nytimes.com/2026/04/15/podcasts/the-headlines/republicans-disapprove-iran-war-college-closures.html
+
+**Trump’s Risky Strategy to Blockade Iran’s Blockade**\
+`The United States has enforced a naval blockade of Iran that is intended to end the war on American terms.`\
+https://www.nytimes.com/2026/04/15/podcasts/the-daily/trump-iran-blockade-strait-of-hormuz.html
+
+**Connections Companion No. 1,040**\
+`Scroll down for hints and conversation about the puzzle for Thursday, April 16, 2026.`\
+https://www.nytimes.com/2026/04/15/crosswords/connections-companion-1040.html
+
+**Wordle Review No. 1,762**\
+`Scroll down for hints and conversation about the puzzle for Thursday, April 16, 2026.`\
+https://www.nytimes.com/2026/04/15/crosswords/wordle-review-1762.html
+
+**Strands Sidekick No. 774**\
+`Scroll down for hints and conversation about the puzzle for Thursday, April 16, 2026.`\
+https://www.nytimes.com/2026/04/15/crosswords/strands-sidekick-774.html
+
 **Cuando liberan a los presos de El Salvador, ella está allí para recogerlos**\
 `El hermano de Sugey Amaya fue detenido durante la campaña de detenciones masivas en El Salvador hace cuatro años. Ella ha dedicado su vida a ayudar a presos como él.`\
 https://www.nytimes.com/es/2026/04/15/espanol/america-latina/presos-el-salvador-ayuda.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/04/15/nyregion/exp-abuse-lawsuit-shareholders.html
 **The Budget Side of Burgundy**\
 `While $50 a bottle is nobody’s idea of cheap, in the context of Burgundy, it can be a good deal. Here are 12 bottles for $50 and under.`\
 https://www.nytimes.com/2026/04/15/dining/drinks/burgundy-prices.html
-
-**$500,000 Homes in Alabama, Maine and Oregon**\
-`A bungalow in Mobile, Ala., a condominium above a storefront in Portland, Maine, and a Craftsman in Astoria, Ore.`\
-https://www.nytimes.com/2026/04/15/realestate/mobile-alabama-portland-maine-astoria-oregon-homes-sale.html
-
-**Why American Jews Still Weep for Willy Loman**\
-`A revival of “Death of a Salesman” comes as the “Zionist consensus” is openly fracturing.`\
-https://www.nytimes.com/2026/04/15/opinion/american-jews-death-of-a-salesman.html
-
-**Why Is Everyone Wicked Obsessed With This Boston Globe Reporter?**\
-`Emily Sweeney, a veteran journalist at the newspaper, is a social media sensation, bringing joy to all with her “hahd” Boston accent.`\
-https://www.nytimes.com/2026/04/15/style/emily-sweeney-boston-globe-reporter.html
-
-**Drew Barrymore and Pete Davidson List Homes in Westchester County**\
-`Ms. Barrymore put her house on the market for nearly $5 million; Mr. Davidson wants almost $2.3 million for his. Also, a purchase from Pink.`\
-https://www.nytimes.com/2026/04/15/realestate/drew-barrymore-and-pete-davidson-list-homes-in-westchester-county.html
-
-**Your Guide to Amsterdam**\
-`From the top attractions to the most frequently asked questions, our guide has all you need to plan your next visit.`\
-https://www.nytimes.com/interactive/2026/travel/amsterdam-netherlands-guide.html
 
