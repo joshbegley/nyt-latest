@@ -1,3 +1,11 @@
+**Sports Betting Industry Spends $41 Million to Influence Elections**\
+`With a well-funded super PAC, the betting platforms DraftKings, FanDuel and Fanatics are aiming to shape future regulation of their rapidly growing industry.`\
+https://www.nytimes.com/2026/04/15/us/politics/draftkings-fanduel-midterm-elections.html
+
+**Saudi Fund to Back Away From LIV Golf Under Mounting Financial Pressures**\
+`The Saudi league, established in 2022, attracted some of the sport’s biggest stars with huge contracts.`\
+https://www.nytimes.com/2026/04/15/world/middleeast/saudi-soverign-fund-liv-golf.html
+
 **Julio Torres in ‘Color Theories,’ and More Theater to Stream**\
 `Other picks include the historical hip-hop musical “Mexodus,” an Anne Carson radio play and a century-old play about machines replacing humans.`\
 https://www.nytimes.com/2026/04/15/theater/julio-torres-mexodus-theater-streaming.html
@@ -34,7 +42,7 @@ https://www.nytimes.com/2026/04/15/world/middleeast/israel-ben-gvir-hearing.html
 `Train jazz, the “Brady Bunch” house and the gift of time.`\
 https://www.nytimes.com/2026/04/15/briefing/15-the-good-list-brady-house-trains.html
 
-**Yale Report on Universities’ Problems Finds Culprit: Schools Like Yale**\
+**Yale Report Finds Colleges Deserve Blame for Higher Education’s Problems**\
 `A 10-member committee offered a brutal assessment of academia’s role in creating the forces challenging American colleges and universities.`\
 https://www.nytimes.com/2026/04/15/us/yale-report-colleges-unversities-trust.html
 
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/15/world/americas/venezuela-us-diplomat-laura-do
 **Brazilian Official Put China’s BYD on Slave Labor List. Then He Was Fired.**\
 `The dismissal of Brazil’s top labor inspector has landed the leftist government of President Lula, a former union leader, in an awkward spot.`\
 https://www.nytimes.com/2026/04/15/world/americas/brazil-lula-workers-rights-labor-abuse.html
-
-**‘We Cannot Lose Sight of Ukraine.’ Europeans Promise More Aid to Kyiv.**\
-`The focus in recent weeks has been on the conflict in Iran, but European leaders said it was crucial to keep aid flowing to Ukraine.`\
-https://www.nytimes.com/2026/04/15/world/europe/europe-ukraine-aid-iran.html
-
-**Journalism Essentials: A Limited Series on Media Literacy**\
-`Our first bite-size teachings on fundamentals from The School of The New York Times look at journalism’s role in society.`\
-https://www.nytimes.com/2026/04/15/learning/learning-network-limited-series-media-literacy.html
 

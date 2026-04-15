@@ -1,3 +1,7 @@
+**La guerra de Sheinbaum contra el crimen enfrenta un balance sombrío: 133.000 desaparecidos**\
+`La presidenta de México, Claudia Sheinbaum, está bajo presión para poner fin a una de las tragedias más dolorosas del país: la desaparición de más de 133.000 personas.`\
+https://www.nytimes.com/es/2026/04/15/espanol/america-latina/mexico-desaparecidos-sheinbaum.html
+
 **Sports Betting Industry Spends $41 Million to Influence Elections**\
 `With a well-funded super PAC, the betting platforms DraftKings, FanDuel and Fanatics are aiming to shape future regulation of their rapidly growing industry.`\
 https://www.nytimes.com/2026/04/15/us/politics/draftkings-fanduel-midterm-elections.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/15/business/trump-federal-bank-fresh-hurdles.htm
 **Top U.S. Diplomat in Venezuela Leaves Post After Arriving in January**\
 `Laura Dogu, who reopened the U.S. Embassy in Venezuela, returns to advising Gen. Dan Caine, the highest ranking U.S. military officer, as the war with Iran continues.`\
 https://www.nytimes.com/2026/04/15/world/americas/venezuela-us-diplomat-laura-dogu-leaves.html
-
-**Brazilian Official Put China’s BYD on Slave Labor List. Then He Was Fired.**\
-`The dismissal of Brazil’s top labor inspector has landed the leftist government of President Lula, a former union leader, in an awkward spot.`\
-https://www.nytimes.com/2026/04/15/world/americas/brazil-lula-workers-rights-labor-abuse.html
 

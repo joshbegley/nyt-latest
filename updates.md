@@ -1,3 +1,15 @@
+**Sports Betting Industry Spends $41 Million to Influence Elections**\
+`With a well-funded super PAC, the betting platforms DraftKings, FanDuel and Fanatics are aiming to shape future regulation of their rapidly growing industry.`\
+https://www.nytimes.com/2026/04/15/us/politics/draftkings-fanduel-midterm-elections.html
+
+**Saudi Fund to Back Away From LIV Golf Under Mounting Financial Pressures**\
+`The Saudi league, established in 2022, attracted some of the sport’s biggest stars with huge contracts.`\
+https://www.nytimes.com/2026/04/15/world/middleeast/saudi-soverign-fund-liv-golf.html
+
+**Yale Report Finds Colleges Deserve Blame for Higher Education’s Problems**\
+`A 10-member committee offered a brutal assessment of academia’s role in creating the forces challenging American colleges and universities.`\
+https://www.nytimes.com/2026/04/15/us/yale-report-colleges-unversities-trust.html
+
 **Julio Torres in ‘Color Theories,’ and More Theater to Stream**\
 `Other picks include the historical hip-hop musical “Mexodus,” an Anne Carson radio play and a century-old play about machines replacing humans.`\
 https://www.nytimes.com/2026/04/15/theater/julio-torres-mexodus-theater-streaming.html
