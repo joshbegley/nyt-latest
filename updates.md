@@ -1,3 +1,7 @@
+**How a Times Reporter Has Covered a Turbulent Period in Latin America**\
+`Frances Robles, an international correspondent for The New York Times, has reported on the region for more than 25 years.`\
+https://www.nytimes.com/2026/04/15/insider/frances-robles-new-york-times.html
+
 **Donde hasta las flores provocan miedo**\
 `Los generales de Birmania han brutalizado al país durante décadas. Pero han llegado a temer las guirnaldas como signo de resistencia.`\
 https://www.nytimes.com/es/2026/04/15/espanol/mundo/birmania-guerra-civil.html

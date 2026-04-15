@@ -12,7 +12,7 @@ https://www.nytimes.com/2026/04/15/learning/running-a-5k-in-a-van.html
 
 **How a Times Reporter Has Covered a Turbulent Period in Latin America**\
 `Frances Robles, an international correspondent for The New York Times, has reported on the region for more than 25 years.`\
-https://www.nytimes.com/2026/04/15/insider/francine-robles-new-york-times.html
+https://www.nytimes.com/2026/04/15/insider/frances-robles-new-york-times.html
 
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
