@@ -1,3 +1,15 @@
+**Taylor Frankie Paul Will Not Face New Domestic Violence Charges**\
+`Prosecutors in Utah investigated after the reality star’s ex-boyfriend told the police she had scratched, shoved and struck him during a fight in February.`\
+https://www.nytimes.com/2026/04/14/arts/television/taylor-frankie-paul-charges-domestic-violence.html
+
+**Trump’s Blockade Risks Upending an Emerging Détente With China**\
+`In a thinly veiled critique of the war in Iran, China’s leader said the world could not risk reverting “to the law of the jungle.”`\
+https://www.nytimes.com/2026/04/14/us/politics/trump-iran-blockade-china.html
+
+**Like Anthropic, OpenAI Will Share Latest Technology Only With Trusted Companies**\
+`The maker of ChatGPT announced the limited release of GPT-5.4-Cyber, a technology designed to find security holes in software.`\
+https://www.nytimes.com/2026/04/14/technology/openai-cybersecurity-gpt54-cyber.html
+
 **Hochul Proposes Tax on N.Y.C. Second Homes That Are Worth $5 Million**\
 `Gov. Kathy Hochul, who has opposed raising taxes, favored a “pied-à-terre” luxury tax because it largely targets the ultrawealthy who primarily live outside New York City.`\
 https://www.nytimes.com/2026/04/14/nyregion/hochul-pied-terre-tax.html
