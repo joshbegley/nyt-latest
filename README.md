@@ -74,7 +74,7 @@ https://www.nytimes.com/2026/04/15/world/europe/kanye-west-ye-france-concert.htm
 `Known for desecrating a monument to victims of sexual slavery, the former YouTuber was convicted on multiple charges and given a six-month sentence.`\
 https://www.nytimes.com/2026/04/15/world/asia/johnny-somali-youtube-prison-korea.html
 
-**As talks begin, U.S. applies little pressure to Israel to stop the fighting in Lebanon.**\
-`Despite hailing the negotiations as a “historic milestone,” Washington did not call for a halt to Israeli strikes or for a withdrawal from Lebanese territory.`\
-https://www.nytimes.com/live/2026/04/15/world/iran-war-trump-us-israel/israel-lebanon-us-talks
+**The U.S. applies little pressure on Israel to stop the fighting in Lebanon.**\
+`Despite hailing negotiations between the two sides as a “historic milestone,” Washington did not call for a halt to Israeli strikes or for a withdrawal from Lebanese territory.`\
+https://www.nytimes.com/live/2026/04/15/world/iran-war-trump-us-israel/israel-lebanon-us-talks-trump
 
