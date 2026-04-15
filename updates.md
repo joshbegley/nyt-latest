@@ -1,3 +1,7 @@
+**This Is Not a Man in Control of Himself**\
+`President Trump is in over his head.`\
+https://www.nytimes.com/2026/04/15/opinion/trump-iran-power-unitary-executive.html
+
 **Así cubre las turbulencias de América Latina una reportera del Times**\
 `Frances Robles, corresponsal internacional de The New York Times compartió sus experiencias de más de 25 años cubriendo la región.`\
 https://www.nytimes.com/es/2026/04/15/espanol/frances-robles-periodista.html
