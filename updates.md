@@ -1,3 +1,11 @@
+**A Timeline of the Lebanon-Israel Relationship**\
+`Israeli and Lebanese officials this week met in Washington for direct talks between two nations, which have technically been at war since 1948.`\
+https://www.nytimes.com/2026/04/16/world/middleeast/lebanon-israel-tensions-relations-timeline.html
+
+**A Powerful Health Task Force Is in Kennedy’s Cross Hairs**\
+`The health secretary said he would reform the panel, which determines whether insurance will cover preventive services like mammograms and colonoscopies.`\
+https://www.nytimes.com/2026/04/16/well/rfk-jr-health-screenings-services-uspstf.html
+
 **Court Rejects Trump Administration Climate Lawsuit Against Hawaii**\
 `In a setback for federal efforts to thwart climate litigation, the judge ruled that the suit, which tried to block the state from suing oil companies, was too speculative.`\
 https://www.nytimes.com/2026/04/16/climate/hawaii-climate-lawsuit-dismissed.html
