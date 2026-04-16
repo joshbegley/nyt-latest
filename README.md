@@ -1,3 +1,19 @@
+**Israel y Líbano acuerdan un alto al fuego de 10 días**\
+`La pausa en los combates entre las fuerzas israelíes y los militantes de Hizbulá, aliados de Irán, ayudaría a allanar el camino hacia un acuerdo de paz entre EE. UU e Irán.`\
+https://www.nytimes.com/es/2026/04/16/espanol/mundo/israel-libano-tregua.html
+
+**Officials Investigate Bomb Threat at Home of Pope’s Brother**\
+`The police in suburban Chicago said they found no explosive devices. The investigation comes amid a public dispute between the pope and President Trump over the Iran war.`\
+https://www.nytimes.com/2026/04/16/us/pope-brother-bomb-threat.html
+
+**An Arrest in the Streets of New York, on Horseback**\
+`An officer from the Police Department’s Mounted Unit raced through the Upper West Side of Manhattan, chasing a woman accused of snatching a purse.`\
+https://www.nytimes.com/2026/04/16/nyregion/nypd-chase-horseback-mounted.html
+
+**Lebanon-Israel Cease-Fire Goes Into Effect**\
+`A 10-day cease-fire went into effect at midnight Thursday in Lebanon. The truce was brokered by the U.S. government and announced by President Trump.`\
+https://www.nytimes.com/video/world/middleeast/100000010845876/lebanon-israel-cease-fire.html
+
 **TK**\
 `TK`\
 https://static01.nyt.com/slideshow/2026/04/16/t-magazine/tk.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/16/arts/design/academy-arts-letters-articles.htm
 **Bitcoin’s Greatest Mystery**\
 `The creator of Bitcoin has hidden behind the pseudonym Satoshi Nakamoto for 17 years.`\
 https://www.nytimes.com/2026/04/16/world/bitcoin-satoshi-adam-back-israel-lebanon-ceasefire.html
-
-**Mamdani’s Tax Return: $1,600 From Rapping and $131,000 From Politics**\
-`In their 2025 joint tax return, Mayor Zohran Mamdani and his wife, Rama Duwaji, reported a combined income of roughly $145,000, including about $10,000 that she earned from art work.`\
-https://www.nytimes.com/2026/04/16/nyregion/mamdani-tax-return.html
-
-**The cease-fire goes into effect after Israel and Hezbollah exchange fire.**\
-`Israeli and Lebanese officials had confirmed they would implement the truce. Hezbollah acknowledged the cease-fire, but did not directly address whether it would follow it.`\
-https://www.nytimes.com/2026/04/16/world/middleeast/cease-fire-in-lebanon-set-to-take-effect.html
-
-**Why Chefs Are Picking Up a Stinging Plant**\
-`Plus: lightweight lip oils, a hotel on a Danish island and more recommendations from T Magazine.`\
-https://www.nytimes.com/2026/04/16/t-magazine/nettles-cooking-chefs.html
-
-**Forced into a corner by the U.S., Netanyahu agrees to a cease-fire in Lebanon.**\
-``\
-https://www.nytimes.com/live/2026/04/16/world/iran-war-trump-lebanon-news/forced-into-a-corner-by-the-us-netanyahu-agrees-to-a-cease-fire-in-lebanon
 
