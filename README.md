@@ -1,3 +1,11 @@
+**A Timeline of the Lebanon-Israel Relationship**\
+`Israeli and Lebanese officials this week met in Washington for direct talks between two nations, which have technically been at war since 1948.`\
+https://www.nytimes.com/2026/04/16/world/middleeast/lebanon-israel-tensions-relations-timeline.html
+
+**A Powerful Health Task Force Is in Kennedy’s Cross Hairs**\
+`The health secretary said he would reform the panel, which determines whether insurance will cover preventive services like mammograms and colonoscopies.`\
+https://www.nytimes.com/2026/04/16/well/rfk-jr-health-screenings-services-uspstf.html
+
 **Court Rejects Trump Administration Climate Lawsuit Against Hawaii**\
 `In a setback for federal efforts to thwart climate litigation, the judge ruled that the suit, which tried to block the state from suing oil companies, was too speculative.`\
 https://www.nytimes.com/2026/04/16/climate/hawaii-climate-lawsuit-dismissed.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/es/2026/04/16/espanol/estados-unidos/encuesta-guerra-ira
 **A Snappy Tofu Dinner**\
 `Yewande Komolafe’s crispy tofu with cashews and blistered snap peas is quick to make and a textural delight to eat.`\
 https://www.nytimes.com/2026/04/16/dining/tofu-dinner-recipe.html
-
-**He Was Among Dozens Crammed Into a Trawler’s Cargo Hold. Then It Capsized.**\
-`Hundreds of migrants from Bangladesh, including Rohingya refugees, are feared dead after a boat to Malaysia overturned.`\
-https://www.nytimes.com/2026/04/16/world/asia/rohingya-bangladesh-migrants-boat-capsizing.html
-
-**Consumers Are Still Spending on Snacks Despite War’s Effects, PepsiCo Says**\
-`Executives at the food and drink giant announced a rise in sales of drinks and snacks but warned that “inflation will come.”`\
-https://www.nytimes.com/2026/04/16/business/pepsico-earnings-inflation-consumers.html
 
