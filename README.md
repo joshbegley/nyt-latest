@@ -1,3 +1,15 @@
+**Trump amenaza con despedir al presidente de la Reserva Federal**\
+`El mandato de Jerome Powell como presidente de la Fed termina el 15 de mayo, pero puede permanecer como gobernador hasta 2028. Dijo que no se iría hasta que terminara una investigación criminal.`\
+https://www.nytimes.com/es/2026/04/16/espanol/estados-unidos/trump-amenaza-despedir-powell-fed.html
+
+**What We Lose When Everything Is ‘-Coded’**\
+`On the social internet, our fascination with analyzing the hidden messages in our culture has been flattened into one word.`\
+https://www.nytimes.com/2026/04/16/magazine/coded-secret-messages-language.html
+
+**Where Has All of New York City’s Outdoor Dining Gone?**\
+`The number of eateries with permits for sidewalk and roadway tables has dwindled to about a third of its pandemic-era peak.`\
+https://www.nytimes.com/2026/04/16/nyregion/nyc-outdoor-dining.html
+
 **El 51% de los estadounidenses piensa que la guerra en Irán no ha valido la pena**\
 `Una encuesta de Ipsos y Reuters, publicada el martes, reveló que pocos estadounidenses —el 24 por ciento— consideran que la guerra en Irán ha valido la pena por sus costos y beneficios.`\
 https://www.nytimes.com/es/2026/04/16/espanol/estados-unidos/encuesta-guerra-iran-trump.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/video/embedded/admin/100000010844596/Hegseth-3-80920.htm
 ****\
 ``\
 https://www.nytimes.com/video/embedded/admin/100000010844575/Hegseth-2-18438.html
-
-**Virginia Ex-Lt. Gov. Justin Fairfax Kills Wife and Self, Police Say**\
-`Mr. Fairfax, a Democrat, served as lieutenant governor from 2018 to 2022.`\
-https://www.nytimes.com/2026/04/16/us/virginia-lt-governor-justin-fairfax-murder-wife-suicide.html
-
-**A Huge Statue of a Black Woman Opens a New Door to London’s V&A**\
-`Thomas J Price’s bronze figures present anonymous Black people at heroic scale. After an installation in Times Square sparked a furor, his latest work welcomes visitors to a new museum outpost.`\
-https://www.nytimes.com/2026/04/16/arts/design/thomas-j-price-v-and-a-east.html
-
-**‘Lee Cronin’s The Mummy’ Review: Fresh From the Sarcophagus**\
-`The movie revives one of cinema’s unforgettable monsters with a macabre makeover, but it spins out in the attempt.`\
-https://www.nytimes.com/2026/04/16/movies/lee-cronins-the-mummy-review.html
 

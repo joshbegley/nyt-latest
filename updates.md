@@ -1,3 +1,27 @@
+**El 51% de los estadounidenses piensa que la guerra en Irán no ha valido la pena**\
+`Una encuesta de Ipsos y Reuters, publicada el martes, reveló que pocos estadounidenses —el 24 por ciento— consideran que la guerra en Irán ha valido la pena por sus costos y beneficios.`\
+https://www.nytimes.com/es/2026/04/16/espanol/estados-unidos/encuesta-guerra-iran-trump.html
+
+**A Snappy Tofu Dinner**\
+`Yewande Komolafe’s crispy tofu with cashews and blistered snap peas is quick to make and a textural delight to eat.`\
+https://www.nytimes.com/2026/04/16/dining/tofu-dinner-recipe.html
+
+**He Was Among Dozens Crammed Into a Trawler’s Cargo Hold. Then It Capsized.**\
+`Hundreds of migrants from Bangladesh, including Rohingya refugees, are feared dead after a boat to Malaysia overturned.`\
+https://www.nytimes.com/2026/04/16/world/asia/rohingya-bangladesh-migrants-boat-capsizing.html
+
+**Consumers Are Still Spending on Snacks Despite War’s Effects, PepsiCo Says**\
+`Executives at the food and drink giant announced a rise in sales of drinks and snacks but warned that “inflation will come.”`\
+https://www.nytimes.com/2026/04/16/business/pepsico-earnings-inflation-consumers.html
+
+**Xanax Maker Recalls One Batch of Common Anxiety Drug**\
+`The affected pills were sold nationwide under the brand name Xanax XR.`\
+https://www.nytimes.com/2026/04/16/well/xanax-recall-fda-anxiety.html
+
+**Can Webcams Help Solve New York’s Restaurant Line Problem?**\
+`With carefully positioned cameras and user input, the website Damn Lines hopes to address the worst part of visiting popular restaurants.`\
+https://www.nytimes.com/2026/04/16/dining/damn-lines-new-york.html
+
 **White House Shrugs Off Shaky Economy as War Exceeds Trump’s Timeline**\
 `Stocks may be soaring again, but the war in Iran has started to pinch the finances of many Americans.`\
 https://www.nytimes.com/2026/04/16/us/politics/trump-economy-iran-war.html
