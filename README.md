@@ -1,9 +1,13 @@
+**Panel Advances Trump’s Triumphal Arch, Even as Key Member Suggests Changes**\
+`The Commission of Fine Arts, a Trump-aligned advisory body, granted preliminary approval. But its vice chairman suggested losing statues atop the structure and other revisions before a final vote.`\
+https://www.nytimes.com/2026/04/16/us/politics/trump-triumphal-arch.html
+
 **Por qué China no presionará a Irán**\
 `A pesar de los riesgos económicos de la guerra, es probable que Pekín se mantenga al margen. No quiere verse envuelto en un conflicto al que se opone y sobre el que tiene poca influencia.`\
 https://www.nytimes.com/es/2026/04/16/espanol/mundo/china-trump-iran-guerra.html
 
 **Trump anuncia un alto al fuego entre Líbano e Israel**\
-`Israel y Hizbulá aún no han hecho comentarios sobre la pausa en las hostilidades que se espera que comience a las 5 p. m., hora del Este. He aquí una cronología de la relación entre Líbano e Israel.`\
+`Se espera que la pausa en las hostilidades entre a Israel y Hizbulá comience a las 5 p. m., hora del Este. He aquí una cronología de la relación entre Líbano e Israel.`\
 https://www.nytimes.com/es/2026/04/16/espanol/mundo/israel-libano-alto-fuego-trump.html
 
 **Clavicular y su peligrosa dedicación al ‘looksmaxxing’**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/16/nyregion/damon-jones-nba-gambling.html
 **Would You Wear Your Bed to Work?**\
 `This season, fashion designers have gone all in on what‘s been called bedcore, whether it’s bedwear as outerwear, underwear or something in between. T Magazine‘s Nick Haramis traces its evolution for a new video series called Anatomy of a Trend.`\
 https://www.nytimes.com/video/t-magazine/100000010838543/would-you-wear-your-bed-to-work.html
-
-**New Jersey 11th Congressional District Special Election Results**\
-`Get live results and maps from the 2026 New Jersey 11th Congressional District special election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-new-jersey-us-house-11-special.html
 

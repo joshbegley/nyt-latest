@@ -1,3 +1,7 @@
+**Por qué China no presionará a Irán**\
+`A pesar de los riesgos económicos de la guerra, es probable que Pekín se mantenga al margen. No quiere verse envuelto en un conflicto al que se opone y sobre el que tiene poca influencia.`\
+https://www.nytimes.com/es/2026/04/16/espanol/mundo/china-trump-iran-guerra.html
+
 **Trump anuncia un alto al fuego entre Líbano e Israel**\
 `Israel y Hizbulá aún no han hecho comentarios sobre la pausa en las hostilidades que se espera que comience a las 5 p. m., hora del Este. He aquí una cronología de la relación entre Líbano e Israel.`\
 https://www.nytimes.com/es/2026/04/16/espanol/mundo/israel-libano-alto-fuego-trump.html
