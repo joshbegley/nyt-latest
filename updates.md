@@ -1,3 +1,15 @@
+**Analysis of Alzheimer’s Drugs Stirs Debate About Their Effectiveness**\
+`The review said a certain class of drugs had little clinical benefit, but many Alzheimer’s experts criticized the analysis, saying it unfairly lumped failed drugs with two recently approved treatments.`\
+https://www.nytimes.com/2026/04/15/health/alzheimers-drugs-benefit-anti-amyloid.html
+
+**Just War Doctrine: The Pope, JD Vance and a Theological Debate**\
+`President Trump’s attack on Pope Leo has touched off an argument about a framework for determining when war is justified.`\
+https://www.nytimes.com/2026/04/15/us/just-war-vance-pope.html
+
+**Mamdani’s Wife Admits ‘Shame’ Over Social Media Posts From Her Teens**\
+`Rama Duwaji apologized for using what she said was “harmful” language as a teenager, in her first interview since her husband, Zohran Mamdani, took office.`\
+https://www.nytimes.com/2026/04/15/nyregion/duwaji-interview-mamdani-wife.html
+
 **5 Takeaways From the Live Nation Antitrust Trial**\
 `A jury found that the concert giant operated as a monopoly, a verdict that could have major reverberations in the music industry.`\
 https://www.nytimes.com/2026/04/15/arts/music/live-nation-antitrust-trial-monopoly-takeaways.html

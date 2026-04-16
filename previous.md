@@ -1,3 +1,15 @@
+**Analysis of Alzheimer’s Drugs Stirs Debate About Their Effectiveness**\
+`The review said a certain class of drugs had little clinical benefit, but many Alzheimer’s experts criticized the analysis, saying it unfairly lumped failed drugs with two recently approved treatments.`\
+https://www.nytimes.com/2026/04/15/health/alzheimers-drugs-benefit-anti-amyloid.html
+
+**Just War Doctrine: The Pope, JD Vance and a Theological Debate**\
+`President Trump’s attack on Pope Leo has touched off an argument about a framework for determining when war is justified.`\
+https://www.nytimes.com/2026/04/15/us/just-war-vance-pope.html
+
+**Mamdani’s Wife Admits ‘Shame’ Over Social Media Posts From Her Teens**\
+`Rama Duwaji apologized for using what she said was “harmful” language as a teenager, in her first interview since her husband, Zohran Mamdani, took office.`\
+https://www.nytimes.com/2026/04/15/nyregion/duwaji-interview-mamdani-wife.html
+
 **5 Takeaways From the Live Nation Antitrust Trial**\
 `A jury found that the concert giant operated as a monopoly, a verdict that could have major reverberations in the music industry.`\
 https://www.nytimes.com/2026/04/15/arts/music/live-nation-antitrust-trial-monopoly-takeaways.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/15/us/politics/house-republican-divides.html
 **Starmer Summons U.S. Social Media Companies Over Child Safety Online**\
 `The British prime minister will meet with executives from Meta, Google and other companies on Thursday as his government explores how to protect children from online harms.`\
 https://www.nytimes.com/2026/04/15/world/europe/starmer-social-media-child-safety-meta-google.html
-
-**Iran could struggle to enforce all of its latest shipping threats, experts say.**\
-``\
-https://www.nytimes.com/live/2026/04/15/world/iran-war-trump-us-israel/iran-could-struggle-to-enforce-all-of-its-latest-shipping-threats-experts-say
-
-**The Pope in Africa**\
-`The continent is crucial to the future of the church, but it’s also the center of long-running tensions over some of Catholicism’s most charged issues.`\
-https://www.nytimes.com/2026/04/15/world/pope-leo-africa-trump-iran-pakistan.html
-
-**One-Pot White Wine Pasta**\
-`While this pasta is reminiscent of scampi, piccata and vongole, it delivers something more — a hard-to-pin-down complexity that comes from cooking the pasta not in water but in wine.`\
-https://www.nytimes.com/video/dining/100000010840690/one-pot-white-wine-pasta.html
 
