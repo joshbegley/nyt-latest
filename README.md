@@ -22,8 +22,8 @@ https://www.nytimes.com/2026/04/16/theater/moliere-morisseau-full-monty-broadway
 `A harrowing incident involving Clavicular, ambassador to the “looksmaxxing” community, was captured on the same platforms that made him a star.`\
 https://www.nytimes.com/2026/04/16/style/clavicular-overdose-braden-peters.html
 
-**Venezuelan Doctor in South Texas Is Released From Immigration Custody**\
-`Dr. Ezequiel Veliz, a family physician who worked in an area that has a doctor shortage, was detained for 10 days. Another Venezuelan doctor remains locked up.`\
+**Venezuelan Doctor in South Texas Expected to Be Released From Immigration Custody**\
+`Dr. Ezequiel Veliz, a family physician who worked in an area that has a doctor shortage, has been detained for 10 days.`\
 https://www.nytimes.com/2026/04/16/us/texas-detained-venezuelan-doctor-released.html
 
 **White House Declines to Offer Congress an Estimate of Iran War Cost**\
