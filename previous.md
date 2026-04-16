@@ -1,3 +1,7 @@
+**Taking the Train to a Single World Cup Match Could Cost $150**\
+`The extraordinary price for a round-trip train ticket from New York City to New Jersey would offset the $48 million in expected extra transit costs during the FIFA World Cup games, according to people familiar with the plan.`\
+https://www.nytimes.com/2026/04/16/nyregion/nj-transit-ticket-price-world-cup.html
+
 **Hegseth Again Threatens Attacks on Iran’s Civilian Infrastructure**\
 `The U.S. blockade of shipments through the Strait of Hormuz would last “for as long as it takes,” the defense secretary said.`\
 https://www.nytimes.com/2026/04/16/us/politics/hegseth-military-iran-blockade.html
@@ -18,8 +22,8 @@ https://www.nytimes.com/2026/04/16/theater/moliere-morisseau-full-monty-broadway
 `A harrowing incident involving Clavicular, ambassador to the “looksmaxxing” community, was captured on the same platforms that made him a star.`\
 https://www.nytimes.com/2026/04/16/style/clavicular-overdose-braden-peters.html
 
-**Venezuelan Doctor in South Texas Is Released From Immigration Custody**\
-`Dr. Ezequiel Veliz, a family physician who worked in an area that has a doctor shortage, was detained for 10 days. Another Venezuelan doctor remains locked up.`\
+**Venezuelan Doctor in South Texas Expected to Be Released From Immigration Custody**\
+`Dr. Ezequiel Veliz, a family physician who worked in an area that has a doctor shortage, has been detained for 10 days.`\
 https://www.nytimes.com/2026/04/16/us/texas-detained-venezuelan-doctor-released.html
 
 **White House Declines to Offer Congress an Estimate of Iran War Cost**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/16/us/ice-detention-alabama-french-woman.html
 **Two Magicians Warn the Supreme Court About Junk Science**\
 `Penn & Teller filed a Supreme Court brief questioning the use of “investigative hypnosis” in a death-penalty case in Texas.`\
 https://www.nytimes.com/2026/04/16/us/politics/the-docket-supreme-court-penn-teller.html
-
-**Senate Votes to Allow Mining Near Minnesota Wilderness**\
-`The move was a victory for a Chilean company that wants to build a copper and nickel mine, which environmentalists say could devastate fragile lakes and forests.`\
-https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote.html
 

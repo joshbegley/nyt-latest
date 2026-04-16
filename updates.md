@@ -1,3 +1,11 @@
+**Taking the Train to a Single World Cup Match Could Cost $150**\
+`The extraordinary price for a round-trip train ticket from New York City to New Jersey would offset the $48 million in expected extra transit costs during the FIFA World Cup games, according to people familiar with the plan.`\
+https://www.nytimes.com/2026/04/16/nyregion/nj-transit-ticket-price-world-cup.html
+
+**Venezuelan Doctor in South Texas Expected to Be Released From Immigration Custody**\
+`Dr. Ezequiel Veliz, a family physician who worked in an area that has a doctor shortage, has been detained for 10 days.`\
+https://www.nytimes.com/2026/04/16/us/texas-detained-venezuelan-doctor-released.html
+
 **Hegseth Again Threatens Attacks on Iran’s Civilian Infrastructure**\
 `The U.S. blockade of shipments through the Strait of Hormuz would last “for as long as it takes,” the defense secretary said.`\
 https://www.nytimes.com/2026/04/16/us/politics/hegseth-military-iran-blockade.html
