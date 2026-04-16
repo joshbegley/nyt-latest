@@ -1,3 +1,7 @@
+**Word of the Day: punctual**\
+`This word has appeared in 19 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/04/16/learning/word-of-the-day-punctual.html
+
 **Stephen Colbert Wants the Vice President to Lay Off the Pope**\
 `The “Late Show” host scolded JD Vance for suggesting that Pope Leo XIV “be careful when he talks about matters of theology.”`\
 https://www.nytimes.com/2026/04/16/arts/television/stephen-colbert-vance-pope.html
