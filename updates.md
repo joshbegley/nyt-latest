@@ -1,3 +1,7 @@
+**3 ejercicios para prevenir el dolor de pies**\
+`La fascitis plantar puede ser increíblemente incómoda. Pero unos sencillos movimientos pueden aliviarla y prevenirla.`\
+https://www.nytimes.com/es/2026/04/16/espanol/estilos-de-vida/ejercicios-dolor-pie.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/16/world/iran-war-trump-lebanon-news/heres-the-latest
