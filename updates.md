@@ -1,3 +1,11 @@
+**Why Young Men Want to Be With Older Women**\
+`Age-gap dating is everywhere right now — especially younger men seeking out older women. On “The Opinions,” men share why they’re drawn to the maturity, stability and clarity they can’t find elsewhere.`\
+https://www.nytimes.com/video/opinion/100000010840121/why-young-men-want-to-be-with-older-women.html
+
+**When Older Women Date Younger Men**\
+`There’s a growing trend of younger men dating older women — and unlike the backlash older men face, this shift can be perceived as women reclaiming their power, Emily Leibert argues on “The Opinions.”`\
+https://www.nytimes.com/video/opinion/100000010844671/when-older-women-date-younger-men.html
+
 **5 New Books We Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/04/16/books/review/new-recommended-books.html

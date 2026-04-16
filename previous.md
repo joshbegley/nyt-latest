@@ -1,3 +1,11 @@
+**Why Young Men Want to Be With Older Women**\
+`Age-gap dating is everywhere right now — especially younger men seeking out older women. On “The Opinions,” men share why they’re drawn to the maturity, stability and clarity they can’t find elsewhere.`\
+https://www.nytimes.com/video/opinion/100000010840121/why-young-men-want-to-be-with-older-women.html
+
+**When Older Women Date Younger Men**\
+`There’s a growing trend of younger men dating older women — and unlike the backlash older men face, this shift can be perceived as women reclaiming their power, Emily Leibert argues on “The Opinions.”`\
+https://www.nytimes.com/video/opinion/100000010844671/when-older-women-date-younger-men.html
+
 **5 New Books We Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/04/16/books/review/new-recommended-books.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/16/well/rfk-jr-health-screenings-services-uspstf
 **Court Rejects Trump Administration Climate Lawsuit Against Hawaii**\
 `In a setback for federal efforts to thwart climate litigation, the judge ruled that the suit, which tried to block the state from suing oil companies, was too speculative.`\
 https://www.nytimes.com/2026/04/16/climate/hawaii-climate-lawsuit-dismissed.html
-
-**House Again Thwarts Bid to Halt Iran War Unless Congress Approves It**\
-`Republicans narrowly blocked a Democratic war powers resolution that would have prevented President Trump from continuing to wage war in Iran until he won authorization from Congress to do so.`\
-https://www.nytimes.com/2026/04/16/us/politics/house-war-powers-iran.html
-
-**Este es el fin de internet tal y como lo conocemos**\
-`En la carrera por poner parches en los agujeros de ciberseguridad encontrados por los modelos de IA más recientes, corremos el riesgo de dejar a demasiadas personas a su suerte.`\
-https://www.nytimes.com/es/2026/04/16/espanol/opinion/internet-ia-fallos-codigo.html
 
