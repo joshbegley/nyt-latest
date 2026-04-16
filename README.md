@@ -26,7 +26,7 @@ https://www.nytimes.com/video/opinion/100000010844671/when-older-women-date-youn
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/04/16/books/review/new-recommended-books.html
 
-**Artemis II Crew to Discuss NASA Moon Mission and What Comes Next**\
+**Artemis II Crew Discuss NASA Moon Mission and What Comes Next**\
 `The four astronauts, who last spoke to the public on Sunday, will speak at a news conference Thursday afternoon at Johnson Space Center in Houston.`\
 https://www.nytimes.com/2026/04/16/science/artemis-ii-astronauts-moon-mission-press-conference.html
 

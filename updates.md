@@ -1,3 +1,11 @@
+**Panel Advances Trump’s Triumphal Arch, Even as Key Member Suggests Changes**\
+`The Commission of Fine Arts, a Trump-aligned advisory body, granted preliminary approval. But its vice chairman suggested losing statues atop the structure and other revisions before a final vote.`\
+https://www.nytimes.com/2026/04/16/us/politics/trump-triumphal-arch.html
+
+**Trump anuncia un alto al fuego entre Líbano e Israel**\
+`Se espera que la pausa en las hostilidades entre a Israel y Hizbulá comience a las 5 p. m., hora del Este. He aquí una cronología de la relación entre Líbano e Israel.`\
+https://www.nytimes.com/es/2026/04/16/espanol/mundo/israel-libano-alto-fuego-trump.html
+
 **Por qué China no presionará a Irán**\
 `A pesar de los riesgos económicos de la guerra, es probable que Pekín se mantenga al margen. No quiere verse envuelto en un conflicto al que se opone y sobre el que tiene poca influencia.`\
 https://www.nytimes.com/es/2026/04/16/espanol/mundo/china-trump-iran-guerra.html
