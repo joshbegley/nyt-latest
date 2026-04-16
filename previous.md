@@ -1,3 +1,19 @@
+**Virginia Ex-Lt. Gov. Justin Fairfax Kills Wife and Self, Police Say**\
+`Mr. Fairfax, a Democrat, served as lieutenant governor from 2018 to 2022.`\
+https://www.nytimes.com/2026/04/16/us/virginia-lt-governor-justin-fairfax-murder-wife-suicide.html
+
+**An 18-Foot Black Woman Opens a New Door to London’s V&A**\
+`Thomas J Price’s bronze figures present anonymous Black people at heroic scale. After an installation in Times Square sparked a furor, his latest work welcomes visitors to a new museum outpost.`\
+https://www.nytimes.com/2026/04/16/arts/design/thomas-j-price-v-and-a-east.html
+
+**‘Lee Cronin’s The Mummy’ Review: Fresh From the Sarcophagus**\
+`The movie revives one of cinema’s unforgettable monsters with a macabre makeover, but it spins out in the attempt.`\
+https://www.nytimes.com/2026/04/16/movies/lee-cronins-the-mummy-review.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/admin/100000010844573/Hegseth-1-27533.html
+
 **Watch Live: Defense Officials Brief Reporters on Iran**\
 `Defense Secretary Pete Hegseth and Gen. Dan Caine, chairman of the Joint Chiefs of Staff, speak at the Pentagon about the war in the Middle East.`\
 https://www.nytimes.com/video/embedded/world/middleeast/100000010844494/watch-live-defense-officials-brief-reporters-on-iran.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/16/podcasts/the-headlines/trump-scattershot-week
 **The Slow-Motion Battle for Hormuz**\
 `Iran’s stranglehold over the waterway completely reshaped shipping during the war. The U.S. naval blockade is an attempt to stop that.`\
 https://www.nytimes.com/interactive/2026/04/16/world/middleeast/iran-us-strait-of-hormuz-blockade-map-ships.html
-
-**A Look at the Plans for Trump’s ‘Triumphal Arch’**\
-`The structure proposed for President Trump’s arch would be 250 feet, more than twice the height of the Lincoln Memorial. It would sit near Arlington National Cemetery. A commission filled with Trump appointees is to review plans on Thursday.`\
-https://www.nytimes.com/video/us/politics/100000010844205/a-look-at-the-plans-for-trumps-triumphal-arch.html
-
-**The Right-Wing Takeover of Combat Sports Is Upon Us**\
-`Pablo on TKO’s rise and how Dana White’s alliances may favor profits over fighters and fans.`\
-https://www.nytimes.com/2026/04/16/podcasts/right-wing-takeover-combat-sports-mma-ufc.html
-
-**Israeli and Lebanese Leaders Will Speak Thursday, Trump Says**\
-`Neither side confirmed a meeting. Israeli and Lebanese officials have said a cease-fire in the war against Hezbollah is under consideration.`\
-https://www.nytimes.com/2026/04/16/world/middleeast/israel-lebanon-talks-trump.html
-
-**Xi Alludes to Trump’s Policies to Make a Case for Closer Ties to Vietnam**\
-`China used a visit by the Vietnamese leader to show a deepening of security ties that analysts say far outpaces U.S. defense ties in the region.`\
-https://www.nytimes.com/2026/04/16/world/asia/xi-china-vietnam-security.html
 
