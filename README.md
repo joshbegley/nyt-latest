@@ -1,3 +1,7 @@
+**This Is Where Donald Trump Loses**\
+`President Trump won’t be able to defy the courts if he loses his Supreme Court case on birthright citizenship, which he is likely to do, the conservative court watcher Sarah Isgur argues on “Interesting Times.”`\
+https://www.nytimes.com/video/opinion/100000010835254/this-is-where-donald-trump-loses.html
+
 **Democrats Confront RFK Jr. on Vaccines and Health Care Fraud**\
 `Lawmakers confronted Robert F. Kennedy Jr. on vaccine messaging and the Trump administration’s handling of health care fraud. The health secretary was also criticized over comments he made about psychiatric medications and Black children, which he denied.`\
 https://www.nytimes.com/video/us/politics/100000010845645/rfk-jr-congress-hearing-democrats.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/video/us/politics/100000010845645/rfk-jr-congress-hearin
 `President Trump’s efforts to rule through executive order on issues like tariffs and birthright citizenship have largely failed — and will continue to fail — the conservative court watcher Sarah Isgur argues on “Interesting Times.”`\
 https://www.nytimes.com/video/opinion/100000010835252/the-failure-of-donald-trump.html
 
-**Israel and Lebanon Agree to a Cease-Fire**\
+**Israel and Lebanon Agree to a Cease-Fire Deal**\
 `Also, Utah is now the epicenter of U.S. measles cases. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/04/16/briefing/israel-lebanon-cease-fire.html
 
@@ -47,7 +51,7 @@ https://www.nytimes.com/2026/04/16/world/bitcoin-satoshi-adam-back-israel-lebano
 https://www.nytimes.com/2026/04/16/nyregion/mamdani-tax-return.html
 
 **The cease-fire goes into effect after Israel and Hezbollah exchange fire.**\
-``\
+`Israeli and Lebanese officials had confirmed they would implement the truce. Hezbollah acknowledged the cease-fire, but did not directly address whether it would follow it.`\
 https://www.nytimes.com/2026/04/16/world/middleeast/cease-fire-in-lebanon-set-to-take-effect.html
 
 **Why Chefs Are Picking Up a Stinging Plant**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/16/business/media/notus-news-to-become-the-star.
 **Mandelson Became Britain’s Ambassador to U.S. Despite Failing Security Vetting**\
 `Britain’s foreign office overruled vetting officials in granting Peter Mandelson, a friend of Jeffrey Epstein, the highest level of security clearance, the government said.`\
 https://www.nytimes.com/2026/04/16/world/europe/peter-mandelson-epstein-starmer-security.html
-
-**Despite Cease-Fire, Iran’s Hackers Haven’t Logged Off**\
-`Tehran’s digital warriors have continued to seek ways to gain an advantage in the conflict in a new phase of cyberspace operations.`\
-https://www.nytimes.com/2026/04/16/us/politics/iran-war-hacking-cyberattacks.html
 
