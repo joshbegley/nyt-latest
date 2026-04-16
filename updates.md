@@ -1,3 +1,7 @@
+**Summer in April? Temperatures Hit 90 Along the East Coast.**\
+`Remember those grimy snow piles that just wouldn’t melt? They’re gone now.`\
+https://www.nytimes.com/2026/04/15/weather/nyc-dc-heat-temperatures-forecast.html
+
 **Iran War Deepens Divide Among Democrats Over Arming Israel**\
 `Concerns over the Iran war led several Democratic senators who had rejected past bids to curb weapons transfers to Israel to vote to block the sale of bulldozers and bombs.`\
 https://www.nytimes.com/2026/04/15/us/politics/senate-israel-arms-vote-iran-war.html
