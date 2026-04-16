@@ -1,3 +1,23 @@
+**Politics News Site NOTUS to Become ‘The Star’**\
+`The Washington publication is rebranding as it expands its local news and sports coverage in the wake of substantial layoffs at The Washington Post.`\
+https://www.nytimes.com/2026/04/16/business/media/notus-news-to-become-the-star.html
+
+**Mandelson Became Britain’s Ambassador to U.S. Despite Failing Security Vetting**\
+`Britain’s foreign office overruled vetting officials in granting Peter Mandelson, a friend of Jeffrey Epstein, the highest level of security clearance, the government said.`\
+https://www.nytimes.com/2026/04/16/world/europe/peter-mandelson-epstein-starmer-security.html
+
+**Despite Cease-Fire, Iran’s Hackers Haven’t Logged Off**\
+`Tehran’s digital warriors have continued to seek ways to gain an advantage in the conflict in a new phase of cyberspace operations.`\
+https://www.nytimes.com/2026/04/16/us/politics/iran-war-hacking-cyberattacks.html
+
+**Pentagon Seeks Help From Ford and G.M.**\
+`Concerned about the slow pace and high cost of weapons production, Pentagon officials have begun talks with General Motors and Ford Motor about producing certain parts.`\
+https://www.nytimes.com/2026/04/16/business/pentagon-ford-general-motors-defense-production.html
+
+**Reed Hastings to Step Down as Netflix Chair**\
+`The co-founder of the streaming giant will leave its board in June, the company said.`\
+https://www.nytimes.com/2026/04/16/business/media/reed-hastings-netflix-chair.html
+
 **NPR Receives $133 Million From 2 Gifts**\
 `The donations, from the philanthropist Connie Ballmer and an anonymous donor, will support the network’s long-term strategy.`\
 https://www.nytimes.com/2026/04/16/business/media/npr-133-million-donation-ballmer.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/04/16/world/middleeast/bahrain-detainee-death-charg
 **How Death Doulas Support the Living**\
 `Nicole Kidman recently said she wanted to become a death doula after wishing for more support at the end of her mother’s life.`\
 https://www.nytimes.com/2026/04/16/well/death-doulas-nicole-kidman.html
-
-**House Votes to Preserve Deportation Protections for Haitians, Rebuking Trump**\
-`The action was largely symbolic since the president would be all but certain to veto the bill, but the bipartisan vote reflected resistance within his own ranks on his signature issue.`\
-https://www.nytimes.com/2026/04/16/us/politics/house-deportation-protections-haitians-trump.html
-
-**U.S. Completes Handover of Military Bases in Syria**\
-`The transition signals the end of a formal U.S. military presence in Syria for the first time in more than a decade.`\
-https://www.nytimes.com/2026/04/16/world/middleeast/us-handover-military-bases-syria.html
-
-**How Trump’s Blockade of the Strait of Hormuz Works**\
-`Our business reporter Peter Eavis breaks down how American military ships have blocked Iranian-linked vessels from using the Strait of Hormuz as the U.S. encourages other vessels to make the passage.`\
-https://www.nytimes.com/video/world/middleeast/100000010840310/how-trumps-blockade-of-the-strait-of-hormuz-works.html
-
-**Panel Advances Trump’s Triumphal Arch, Even as Key Member Suggests Changes**\
-`The Commission of Fine Arts, a Trump-aligned advisory body, granted preliminary approval. But its vice chairman suggested losing statues atop the structure and other revisions before a final vote.`\
-https://www.nytimes.com/2026/04/16/us/politics/trump-triumphal-arch.html
-
-**Por qué China no presionará a Irán**\
-`A pesar de los riesgos económicos de la guerra, es probable que Pekín se mantenga al margen. No quiere verse envuelto en un conflicto al que se opone y sobre el que tiene poca influencia.`\
-https://www.nytimes.com/es/2026/04/16/espanol/mundo/china-trump-iran-guerra.html
 
