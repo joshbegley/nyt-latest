@@ -1,3 +1,11 @@
+**‘One Flew Over the Cuckoo’s Nest’ Returns With Contemporary Bite**\
+`A new London production highlights the story’s racial element and shows how much has changed since the play’s 1963 premiere.`\
+https://www.nytimes.com/2026/04/16/theater/one-flew-over-the-cuckoos-nest-old-vic-london.html
+
+**Why China Won’t Lean Hard on Iran**\
+`Despite the economic risks from the war, Beijing will likely stick to a hands-off approach. It is wary of being entangled in a conflict it opposed and has little sway over.`\
+https://www.nytimes.com/2026/04/16/world/asia/china-iran-trump-diplomacy-hormuz.html
+
 **Utah Becomes the New Center of U.S. Measles Cases**\
 `Nearly 600 people have been sickened across the state, which has seen an increase in vaccine exemptions among children in recent years.`\
 https://www.nytimes.com/2026/04/16/well/measles-cases-utah.html

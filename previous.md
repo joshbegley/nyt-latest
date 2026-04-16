@@ -1,3 +1,11 @@
+**‘One Flew Over the Cuckoo’s Nest’ Returns With Contemporary Bite**\
+`A new London production highlights the story’s racial element and shows how much has changed since the play’s 1963 premiere.`\
+https://www.nytimes.com/2026/04/16/theater/one-flew-over-the-cuckoos-nest-old-vic-london.html
+
+**Why China Won’t Lean Hard on Iran**\
+`Despite the economic risks from the war, Beijing will likely stick to a hands-off approach. It is wary of being entangled in a conflict it opposed and has little sway over.`\
+https://www.nytimes.com/2026/04/16/world/asia/china-iran-trump-diplomacy-hormuz.html
+
 **Utah Becomes the New Center of U.S. Measles Cases**\
 `Nearly 600 people have been sickened across the state, which has seen an increase in vaccine exemptions among children in recent years.`\
 https://www.nytimes.com/2026/04/16/well/measles-cases-utah.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/es/2026/04/16/espanol/mundo/papa-leon-africa.html
 **Pakistan Looks to Play Peacemaker Between U.S. and Iran, Again**\
 `After talks in Islamabad last weekend led to a two-week cease-fire, Pakistan is offering to host another round in an attempt to sustain ongoing peace efforts.`\
 https://www.nytimes.com/2026/04/16/world/asia/iran-pakistan-diplomacy.html
-
-**What the U.S. Blockade Means for Iran’s Economy**\
-`Putting a stop to Iranian shipping will further add to Iran’s economic pain, analysts said, but it might not be enough to force concessions or lessen the global energy crunch.`\
-https://www.nytimes.com/2026/04/16/business/economy/iran-oil-blockade.html
-
-**Trump vs. the Pope**\
-`Pope Leo XIV responds to President Trump’s lashing out over the war in Iran.`\
-https://www.nytimes.com/2026/04/16/podcasts/the-daily/trump-pope-leo-iran-war.html
 
