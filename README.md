@@ -1,3 +1,11 @@
+**Muchos migrantes en EE. UU. temen declarar impuestos, y eso podría causarle problemas al fisco**\
+`El temor a que el IRS comparta sus datos con el ICE ha convertido la temporada de la declaración de la renta en una apuesta arriesgada para muchos migrantes. El Laboratorio Presupuestario de Yale prevé una pérdida de unos 300.000 millones de dólares en una década.`\
+https://www.nytimes.com/es/2026/04/16/espanol/estados-unidos/migrantes-miedo-irs-impuestos.html
+
+**This Law Consistently Bedevils Trump**\
+`This immigration case is really about procedure.`\
+https://www.nytimes.com/2026/04/16/opinion/supreme-court-trump-immigration.html
+
 **Drivers Stranded as Flooding Closes Major Highway in Milwaukee**\
 `Severe storms moving across the Midwest were bringing heavy rain and raising the risk of flash flooding, tornadoes and large hail.`\
 https://www.nytimes.com/2026/04/16/weather/milwaukee-weather-rain-flooding-cars.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/15/us/just-war-vance-pope.html
 **Mamdani’s Wife Admits ‘Shame’ Over Social Media Posts From Her Teens**\
 `Rama Duwaji apologized for using what she said was “harmful” language as a teenager, in her first interview since her husband, Zohran Mamdani, took office.`\
 https://www.nytimes.com/2026/04/15/nyregion/duwaji-interview-mamdani-wife.html
-
-**5 Takeaways From the Live Nation Antitrust Trial**\
-`A jury found that the concert giant operated as a monopoly, a verdict that could have major reverberations in the music industry.`\
-https://www.nytimes.com/2026/04/15/arts/music/live-nation-antitrust-trial-monopoly-takeaways.html
-
-**5 Things to Know About New York’s Proposed Second Home Tax**\
-`Gov. Kathy Hochul wants to tax second homes in New York City that are worth $5 million or more. Here’s how the proposal might work.`\
-https://www.nytimes.com/2026/04/15/realestate/pied-a-terre-tax-nyc-hochul-mamdani.html
 

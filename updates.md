@@ -1,3 +1,7 @@
+**Drivers Stranded as Flooding Closes Major Highway in Milwaukee**\
+`Severe storms moving across the Midwest were bringing heavy rain and raising the risk of flash flooding, tornadoes and large hail.`\
+https://www.nytimes.com/2026/04/16/weather/milwaukee-weather-rain-flooding-cars.html
+
 **3 Killed in Boat Strike in the Pacific, Pentagon Says**\
 `It was the third such attack by the U.S. military in three days, and the 51st attack in a campaign against people who the United States has accused of smuggling drugs.`\
 https://www.nytimes.com/2026/04/16/us/politics/us-military-boat-strike-pacific-drugs.html
