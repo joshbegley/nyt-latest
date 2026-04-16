@@ -1,3 +1,11 @@
+**5 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/04/16/books/review/new-recommended-books.html
+
+**Venezuelan Doctor in South Texas Is Released from Immigration Custody**\
+`Dr. Ezequiel Veliz, a family physician who worked in an area that has a doctor shortage, was detained for 10 days. Another Venezuelan doctor remains locked up.`\
+https://www.nytimes.com/2026/04/16/us/texas-detained-venezuelan-doctor-released.html
+
 **Artemis II Crew to Discuss NASA Moon Mission and What Comes Next**\
 `The four astronauts, who last spoke to the public on Sunday, will speak at a news conference Thursday afternoon at Johnson Space Center in Houston.`\
 https://www.nytimes.com/2026/04/16/science/artemis-ii-astronauts-moon-mission-press-conference.html
