@@ -1,3 +1,7 @@
+**Trump to Nominate Doctor Who Has Publicly Supported Vaccines as C.D.C. Director**\
+`Dr. Erica Schwartz is seen as a highly qualified traditional choice and tapping her the strongest signal yet that the administration is veering away from vaccine skepticism this election year.`\
+https://www.nytimes.com/2026/04/16/health/erica-schwartz-cdc-director-trump.html
+
 **The Long-Term Plan to Scrub Carbon From the Sky**\
 `Microsoft is pulling back from efforts to remove carbon from the atmosphere. But the nascent industry’s proponents say they are thinking in decades, not years.`\
 https://www.nytimes.com/2026/04/16/climate/the-long-term-plan-to-scrub-carbon-from-the-sky.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/16/espanol/cultura/clavicular-influencer-sobr
 **Why Young Men Want to Be With Older Women**\
 `Age-gap dating is everywhere right now — especially younger men seeking out older women. On “The Opinions,” men share why they’re drawn to the maturity, stability and clarity they can’t find elsewhere.`\
 https://www.nytimes.com/video/opinion/100000010840121/why-young-men-want-to-be-with-older-women.html
-
-**When Older Women Date Younger Men**\
-`There’s a growing trend of younger men dating older women — and unlike the backlash older men face, this shift can be perceived as women reclaiming their power, Emily Leibert argues on “The Opinions.”`\
-https://www.nytimes.com/video/opinion/100000010844671/when-older-women-date-younger-men.html
 
