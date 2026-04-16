@@ -1,3 +1,27 @@
+**Two Magicians Warn the Supreme Court About Junk Science**\
+`Penn & Teller filed a Supreme Court brief questioning the use of “investigative hypnosis” in a death-penalty case in Texas.`\
+https://www.nytimes.com/2026/04/16/us/politics/the-docket-supreme-court-penn-teller.html
+
+**Senate Votes to Allow Mining Near Minnesota Wilderness**\
+`The move was a victory for a Chilean company that wants to build a copper and nickel mine, which environmentalists say could devastate fragile lakes and forests.`\
+https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote.html
+
+**Science Practice | A Study on Why Falling Cats Always Seem to Land on Their Feet**\
+`New research suggests that cats have a highly flexible segment of their spines, allowing them to correct their orientation midair.`\
+https://www.nytimes.com/2026/04/16/learning/science-practice-a-study-on-why-falling-cats-always-seem-to-land-on-their-feet.html
+
+**A Baker, Cardamom Buns and Allegations of a $3.8 Million Scam**\
+`A baker at the church’s popular cafe in Midtown Manhattan was accused of swindling nearly $4 million from the church’s donations and bequests.`\
+https://www.nytimes.com/2026/04/16/nyregion/church-sweden-coffee-shop.html
+
+**Condé Nast Shutters Self Magazine**\
+`The publishing giant is also closing the international editions of Glamour Magazine in Germany, Spain and Mexico.`\
+https://www.nytimes.com/2026/04/16/business/media/conde-nast-self-glamour-magazine.html
+
+**Justice Dept. Appealing Surveillance Court Ruling Amid Congressional Impasse**\
+`The court had barred national security agencies from using certain tools to process Americans’ data gathered under Section 702 of the Foreign Intelligence Surveillance Act, which expires on Monday.`\
+https://www.nytimes.com/2026/04/16/us/politics/fisa-ruling-appeal.html
+
 ****\
 ``\
 https://www.nytimes.com/video/embedded/us/politics/100000010844838/16vid-RFK-Jr-Hearing-22869.html
