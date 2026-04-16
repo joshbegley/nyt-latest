@@ -1,3 +1,7 @@
+**Word of the Day: punctual**\
+`This word has appeared in 19 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/04/16/learning/word-of-the-day-punctual.html
+
 **Stephen Colbert Wants the Vice President to Lay Off the Pope**\
 `The “Late Show” host scolded JD Vance for suggesting that Pope Leo XIV “be careful when he talks about matters of theology.”`\
 https://www.nytimes.com/2026/04/16/arts/television/stephen-colbert-vance-pope.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/15/us/desantis-redistricting-session-vaccine-bil
 **Analysis of Alzheimer’s Drugs Stirs Debate About Their Effectiveness**\
 `The review said a certain class of drugs had little clinical benefit, but many Alzheimer’s experts criticized the analysis, saying it unfairly lumped failed drugs with two recently approved treatments.`\
 https://www.nytimes.com/2026/04/15/health/alzheimers-drugs-benefit-anti-amyloid.html
-
-**Just War Doctrine: The Pope, JD Vance and a Theological Debate**\
-`President Trump’s attack on Pope Leo has touched off an argument about a framework for determining when war is justified.`\
-https://www.nytimes.com/2026/04/15/us/just-war-vance-pope.html
 
