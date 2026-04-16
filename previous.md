@@ -1,3 +1,15 @@
+**Former N.B.A. Player Is Expected to Plead Guilty in Gambling Scandal**\
+`Damon Jones, who spent more than a decade in the N.B.A., was accused of providing inside information about injured players to professional gamblers.`\
+https://www.nytimes.com/2026/04/16/nyregion/damon-jones-nba-gambling.html
+
+**Would You Wear Your Bed to Work?**\
+`This season, fashion designers have gone all in on what‘s been called bedcore, whether it’s bedwear as outerwear, underwear or something in between. T Magazine‘s Nick Haramis traces its evolution for a new video series called Anatomy of a Trend.`\
+https://www.nytimes.com/video/t-magazine/100000010838543/would-you-wear-your-bed-to-work.html
+
+**New Jersey 11th Congressional District Special Election Results**\
+`Get live results and maps from the 2026 New Jersey 11th Congressional District special election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-jersey-us-house-11-special.html
+
 **A Timeline of the Lebanon-Israel Relationship**\
 `Israeli and Lebanese officials this week met in Washington for direct talks between two nations, which have technically been at war since 1948.`\
 https://www.nytimes.com/2026/04/16/world/middleeast/lebanon-israel-tensions-relations-timeline.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/es/2026/04/16/espanol/estados-unidos/trump-amenaza-despe
 **What We Lose When Everything Is ‘-Coded’**\
 `On the social internet, our fascination with analyzing the hidden messages in our culture has been flattened into one word.`\
 https://www.nytimes.com/2026/04/16/magazine/coded-secret-messages-language.html
-
-**Where Has All of New York City’s Outdoor Dining Gone?**\
-`The number of eateries with permits for sidewalk and roadway tables has dwindled to about a third of its pandemic-era peak.`\
-https://www.nytimes.com/2026/04/16/nyregion/nyc-outdoor-dining.html
-
-**El 51% de los estadounidenses piensa que la guerra en Irán no ha valido la pena**\
-`Una encuesta de Ipsos y Reuters, publicada el martes, reveló que pocos estadounidenses —el 24 por ciento— consideran que la guerra en Irán ha valido la pena por sus costos y beneficios.`\
-https://www.nytimes.com/es/2026/04/16/espanol/estados-unidos/encuesta-guerra-iran-trump.html
-
-**A Snappy Tofu Dinner**\
-`Yewande Komolafe’s crispy tofu with cashews and blistered snap peas is quick to make and a textural delight to eat.`\
-https://www.nytimes.com/2026/04/16/dining/tofu-dinner-recipe.html
 

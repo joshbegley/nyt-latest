@@ -1,3 +1,15 @@
+**Former N.B.A. Player Is Expected to Plead Guilty in Gambling Scandal**\
+`Damon Jones, who spent more than a decade in the N.B.A., was accused of providing inside information about injured players to professional gamblers.`\
+https://www.nytimes.com/2026/04/16/nyregion/damon-jones-nba-gambling.html
+
+**Would You Wear Your Bed to Work?**\
+`This season, fashion designers have gone all in on what‘s been called bedcore, whether it’s bedwear as outerwear, underwear or something in between. T Magazine‘s Nick Haramis traces its evolution for a new video series called Anatomy of a Trend.`\
+https://www.nytimes.com/video/t-magazine/100000010838543/would-you-wear-your-bed-to-work.html
+
+**New Jersey 11th Congressional District Special Election Results**\
+`Get live results and maps from the 2026 New Jersey 11th Congressional District special election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-new-jersey-us-house-11-special.html
+
 **A Timeline of the Lebanon-Israel Relationship**\
 `Israeli and Lebanese officials this week met in Washington for direct talks between two nations, which have technically been at war since 1948.`\
 https://www.nytimes.com/2026/04/16/world/middleeast/lebanon-israel-tensions-relations-timeline.html
