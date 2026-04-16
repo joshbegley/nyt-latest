@@ -1,3 +1,19 @@
+**NPR Receives $133 Million From 2 Gifts**\
+`The donations, from the philanthropist Connie Ballmer and an anonymous donor, will support the network’s long-term strategy.`\
+https://www.nytimes.com/2026/04/16/business/media/npr-133-million-donation-ballmer.html
+
+**Heavy Rain Brings Flooding to Michigan and Milwaukee**\
+`Heavy rain and melting snow flooded parts of northern Michigan, closing roads and filling dams to near capacity. In Milwaukee, heavy rainfall forced freeway closures and left vehicles stuck in rising water.`\
+https://www.nytimes.com/video/weather/100000010845070/heavy-rain-flood-milwaukee.html
+
+**Where to Grab a Quick Snack on the Way to the Gym and More Reader Questions**\
+`Becky Hughes answers three of our readers’ hyperspecific questions.`\
+https://www.nytimes.com/2026/04/16/dining/where-to-grab-a-quick-snack-on-the-way-to-the-gym-and-more-reader-questions.html
+
+**Trump to Nominate Doctor Who Has Publicly Supported Vaccines as C.D.C. Director**\
+`Dr. Erica Schwartz is seen as a highly qualified traditional choice and tapping her is the strongest signal yet that the administration is veering away from vaccine skepticism this election year.`\
+https://www.nytimes.com/2026/04/16/health/erica-schwartz-cdc-director-trump.html
+
 **The Long-Term Plan to Scrub Carbon From the Sky**\
 `Microsoft is pulling back from efforts to remove carbon from the atmosphere. But the nascent industry’s proponents say they are thinking in decades, not years.`\
 https://www.nytimes.com/2026/04/16/climate/the-long-term-plan-to-scrub-carbon-from-the-sky.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/16/us/politics/trump-triumphal-arch.html
 **Por qué China no presionará a Irán**\
 `A pesar de los riesgos económicos de la guerra, es probable que Pekín se mantenga al margen. No quiere verse envuelto en un conflicto al que se opone y sobre el que tiene poca influencia.`\
 https://www.nytimes.com/es/2026/04/16/espanol/mundo/china-trump-iran-guerra.html
-
-**Trump anuncia un alto al fuego entre Líbano e Israel**\
-`Se espera que la pausa en las hostilidades entre a Israel y Hizbulá comience a las 5 p. m., hora del Este. He aquí una cronología de la relación entre Líbano e Israel.`\
-https://www.nytimes.com/es/2026/04/16/espanol/mundo/israel-libano-alto-fuego-trump.html
-
-**Clavicular y su peligrosa dedicación al ‘looksmaxxing’**\
-`Braden Peters, el influente mejor conocido como Clavicular, ha hablado de tomar metanfetamina para mantenerse delgado. El martes fue hospitalizado en Miami tras lucir desorientado.`\
-https://www.nytimes.com/es/2026/04/16/espanol/cultura/clavicular-influencer-sobredosis.html
-
-**Why Young Men Want to Be With Older Women**\
-`Age-gap dating is everywhere right now — especially younger men seeking out older women. On “The Opinions,” men share why they’re drawn to the maturity, stability and clarity they can’t find elsewhere.`\
-https://www.nytimes.com/video/opinion/100000010840121/why-young-men-want-to-be-with-older-women.html
-
-**When Older Women Date Younger Men**\
-`There’s a growing trend of younger men dating older women — and unlike the backlash older men face, this shift can be perceived as women reclaiming their power, Emily Leibert argues on “The Opinions.”`\
-https://www.nytimes.com/video/opinion/100000010844671/when-older-women-date-younger-men.html
 
