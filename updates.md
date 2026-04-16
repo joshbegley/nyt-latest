@@ -1,3 +1,11 @@
+**Sneaker Company Allbirds Plans to Pivot to A.I. Yes, A.I.**\
+`After selling its business for $39 million last month, the company said it planned to buy powerful computer chips and rebrand itself NewBird AI.`\
+https://www.nytimes.com/2026/04/15/us/allbirds-shoes-ai-pivot.html
+
+**DeSantis Delays Redistricting Special Session and Adds a Vaccine Bill**\
+`The Florida governor is expected to propose a congressional map that could result in up to five new Republican-leaning seats. Some in the party fear it could backfire.`\
+https://www.nytimes.com/2026/04/15/us/desantis-redistricting-session-vaccine-bill.html
+
 **Analysis of Alzheimer’s Drugs Stirs Debate About Their Effectiveness**\
 `The review said a certain class of drugs had little clinical benefit, but many Alzheimer’s experts criticized the analysis, saying it unfairly lumped failed drugs with two recently approved treatments.`\
 https://www.nytimes.com/2026/04/15/health/alzheimers-drugs-benefit-anti-amyloid.html

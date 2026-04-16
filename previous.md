@@ -1,3 +1,11 @@
+**Sneaker Company Allbirds Plans to Pivot to A.I. Yes, A.I.**\
+`After selling its business for $39 million last month, the company said it planned to buy powerful computer chips and rebrand itself NewBird AI.`\
+https://www.nytimes.com/2026/04/15/us/allbirds-shoes-ai-pivot.html
+
+**DeSantis Delays Redistricting Special Session and Adds a Vaccine Bill**\
+`The Florida governor is expected to propose a congressional map that could result in up to five new Republican-leaning seats. Some in the party fear it could backfire.`\
+https://www.nytimes.com/2026/04/15/us/desantis-redistricting-session-vaccine-bill.html
+
 **Analysis of Alzheimer’s Drugs Stirs Debate About Their Effectiveness**\
 `The review said a certain class of drugs had little clinical benefit, but many Alzheimer’s experts criticized the analysis, saying it unfairly lumped failed drugs with two recently approved treatments.`\
 https://www.nytimes.com/2026/04/15/health/alzheimers-drugs-benefit-anti-amyloid.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/15/us/politics/trump-arch-dc.html
 **Can Trump and Republicans Get Back on Message on the Economy?**\
 `It’s Tax Day, but much of the country’s focus has been on an unpopular war.`\
 https://www.nytimes.com/2026/04/15/us/politics/trump-taxes-economy-iran-war.html
-
-**In the House, Republican Plans Go Awry Amid Party Divides**\
-`Fresh off a two-week break, lawmakers returned to turmoil in the House, where legislation to reopen the Department of Homeland Security is stalled and the G.O.P. is struggling to keep its agenda on track.`\
-https://www.nytimes.com/2026/04/15/us/politics/house-republican-divides.html
-
-**Starmer Summons U.S. Social Media Companies Over Child Safety Online**\
-`The British prime minister will meet with executives from Meta, Google and other companies on Thursday as his government explores how to protect children from online harms.`\
-https://www.nytimes.com/2026/04/15/world/europe/starmer-social-media-child-safety-meta-google.html
 
