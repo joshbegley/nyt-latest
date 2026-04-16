@@ -1,3 +1,11 @@
+**What Heelys Taught Me About Momentum**\
+`Heelys, the sneakers with wheels that were a fad in the 2000s, helped me form my first friendships. Recently, I decided to tap into that joy again.`\
+https://www.nytimes.com/2026/04/16/style/heelys-joy-friendship.html
+
+**Roger Adams Dies at 71; Invented the Rolling Sneakers Known as Heelys**\
+`You could walk in them like gym shoes, but if you rocked back on your heels the wheels emerged, turning them into roller skates. In the early 2000s, the company sold millions.`\
+https://www.nytimes.com/2026/04/16/business/roger-adams-dead.html
+
 **Israel and Lebanon Reach Deal on a 10-Day Cease-Fire**\
 `A pause in the fighting between Israeli forces and Iranian-allied Hezbollah militants may help smooth the way to a peace deal between the U.S. and Iran.`\
 https://www.nytimes.com/2026/04/16/world/middleeast/israel-lebanon-cease-fire.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/weather/100000010845070/heavy-rain-flood-milwaukee
 **Where to Grab a Quick Snack on the Way to the Gym and More Reader Questions**\
 `Becky Hughes answers three of our readers’ hyperspecific questions.`\
 https://www.nytimes.com/2026/04/16/dining/where-to-grab-a-quick-snack-on-the-way-to-the-gym-and-more-reader-questions.html
-
-**Trump to Nominate Doctor Who Has Publicly Supported Vaccines as C.D.C. Director**\
-`Dr. Erica Schwartz is seen as a highly qualified traditional choice and tapping her is the strongest signal yet that the administration is veering away from vaccine skepticism this election year.`\
-https://www.nytimes.com/2026/04/16/health/erica-schwartz-cdc-director-trump.html
-
-**The Long-Term Plan to Scrub Carbon From the Sky**\
-`Microsoft is pulling back from efforts to remove carbon from the atmosphere. But the nascent industry’s proponents say they are thinking in decades, not years.`\
-https://www.nytimes.com/2026/04/16/climate/the-long-term-plan-to-scrub-carbon-from-the-sky.html
 
