@@ -1,3 +1,23 @@
+**Woman Who Took 15 Tequila Shots on Carnival Cruise Gets $300,000 in Damages**\
+`The woman, who fell and injured herself, said in a lawsuit that bartenders had been negligent for serving her while she was visibly intoxicated.`\
+https://www.nytimes.com/2026/04/16/us/carnival-cruise-lawsuit-damages-tequila-shots.html
+
+**Bahrain Charges Intelligence Officer in the Death of a Detainee**\
+`The officer was charged with assault leading to death, in the case of a man who was accused by Bahraini authorities of espionage during a domestic crackdown tied to the war in Iran.`\
+https://www.nytimes.com/2026/04/16/world/middleeast/bahrain-detainee-death-charges.html
+
+**How Death Doulas Support the Living**\
+`Nicole Kidman recently said she wanted to become a death doula after wishing for more support at the end of her mother’s life.`\
+https://www.nytimes.com/2026/04/16/well/death-doulas-nicole-kidman.html
+
+**House Votes to Preserve Deportation Protections for Haitians, Rebuking Trump**\
+`The action was largely symbolic since the president would be all but certain to veto the bill, but the bipartisan vote reflected resistance within his own ranks on his signature issue.`\
+https://www.nytimes.com/2026/04/16/us/politics/house-deportation-protections-haitians-trump.html
+
+**U.S. Completes Handover of Military Bases in Syria**\
+`The transition signals the end of a formal U.S. military presence in Syria for the first time in more than a decade.`\
+https://www.nytimes.com/2026/04/16/world/middleeast/us-handover-military-bases-syria.html
+
 **How Trump’s Blockade of the Strait of Hormuz Works**\
 `Our business reporter Peter Eavis breaks down how American military ships have blocked Iranian-linked vessels from using the Strait of Hormuz as the U.S. encourages other vessels to make the passage.`\
 https://www.nytimes.com/video/world/middleeast/100000010840310/how-trumps-blockade-of-the-strait-of-hormuz-works.html
