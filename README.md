@@ -1,3 +1,7 @@
+**Summer in April? Temperatures Hit 90 Along the East Coast.**\
+`Remember those grimy snow piles that just wouldn’t melt? They’re gone now.`\
+https://www.nytimes.com/2026/04/15/weather/nyc-dc-heat-temperatures-forecast.html
+
 **Iran War Deepens Divide Among Democrats Over Arming Israel**\
 `Concerns over the Iran war led several Democratic senators who had rejected past bids to curb weapons transfers to Israel to vote to block the sale of bulldozers and bombs.`\
 https://www.nytimes.com/2026/04/15/us/politics/senate-israel-arms-vote-iran-war.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/15/nyregion/pied-a-terre-tax.html
 **Stocks Hit a Record High**\
 `Also, Pakistani mediators arrive in Iran. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/04/15/briefing/stocks-hit-a-record-high.html
-
-**Trump’s ‘Triumphal Arch’ Draws Backlash, Even From an Expert Who Proposed It**\
-`The story of how President Trump quadrupled the size of the original proposal for the arch follows a now-familiar pattern.`\
-https://www.nytimes.com/2026/04/15/us/politics/trump-arch-dc.html
 
