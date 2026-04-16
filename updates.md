@@ -1,3 +1,11 @@
+**Lo que pasó luego de que Dinamarca adoptara una ciudad en ruinas de Ucrania**\
+`Mykolaiv fue adoptada por el gobierno danés al mes de empezar la guerra. Desde entonces, Dinamarca ha destinado el 60 por ciento de toda su ayuda a la reconstrucción de Ucrania a esta ciudad.`\
+https://www.nytimes.com/es/2026/04/16/espanol/mundo/dinamarca-adopto-ciudad-ucrania.html
+
+**More Young Men Say Religion Is ‘Very Important’ to Them, Poll Finds**\
+`“I wanted something new and something traditional and something that felt holy.”`\
+https://www.nytimes.com/2026/04/16/us/politics/young-men-religion-importance-poll.html
+
 **3 ejercicios para prevenir el dolor de pies**\
 `La fascitis plantar puede ser increíblemente incómoda. Pero unos sencillos movimientos pueden aliviarla y prevenirla.`\
 https://www.nytimes.com/es/2026/04/16/espanol/estilos-de-vida/ejercicios-dolor-pie.html

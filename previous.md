@@ -1,3 +1,11 @@
+**Lo que pasó luego de que Dinamarca adoptara una ciudad en ruinas de Ucrania**\
+`Mykolaiv fue adoptada por el gobierno danés al mes de empezar la guerra. Desde entonces, Dinamarca ha destinado el 60 por ciento de toda su ayuda a la reconstrucción de Ucrania a esta ciudad.`\
+https://www.nytimes.com/es/2026/04/16/espanol/mundo/dinamarca-adopto-ciudad-ucrania.html
+
+**More Young Men Say Religion Is ‘Very Important’ to Them, Poll Finds**\
+`“I wanted something new and something traditional and something that felt holy.”`\
+https://www.nytimes.com/2026/04/16/us/politics/young-men-religion-importance-poll.html
+
 **3 ejercicios para prevenir el dolor de pies**\
 `La fascitis plantar puede ser increíblemente incómoda. Pero unos sencillos movimientos pueden aliviarla y prevenirla.`\
 https://www.nytimes.com/es/2026/04/16/espanol/estilos-de-vida/ejercicios-dolor-pie.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/15/business/china-economy-growth.html
 **Lawyer John Eastman Disbarred for Efforts to Overturn 2020 Election**\
 `The California Supreme Court upheld a lower court’s decision that said Mr. Eastman, had violated the rules of professional ethics.`\
 https://www.nytimes.com/2026/04/15/us/john-eastman-disbarred-2020-election.html
-
-**Iran Will Be in U.S. for World Cup, FIFA Leader Says**\
-`The comments come as peace talks between Iran and the United States have not yet resumed and a cease-fire is set to expire next week.`\
-https://www.nytimes.com/2026/04/15/world/middleeast/iran-world-cup-fifa-us.html
-
-**Trump’s Proposed ‘Triumphal Arch’ Would Be Among the World’s Tallest**\
-`See how the 250-foot structure would dwarf other monumental arches, including the Arc de Triomphe in Paris.`\
-https://www.nytimes.com/interactive/2026/04/15/us/politics/trump-dc-usa-triumphal-arch.html
 
