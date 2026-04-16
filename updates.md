@@ -1,3 +1,7 @@
+**Xi Alludes to Trump’s Policies to Make a Case for Closer Ties to Vietnam**\
+`China used a visit by the Vietnamese leader to show a deepening of security ties that analysts say far outpaces U.S. defense ties in the region.`\
+https://www.nytimes.com/2026/04/16/world/asia/xi-china-vietnam-security.html
+
 **Watch Live: Defense Officials Brief Reporters on Iran**\
 `Defense Secretary Pete Hegseth and Gen. Dan Caine, chairman of the Joint Chiefs of Staff, speak at the Pentagon about the war in the Middle East.`\
 https://www.nytimes.com/video/embedded/world/middleeast/100000010844494/watch-live-defense-officials-brief-reporters-on-iran.html

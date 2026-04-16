@@ -74,7 +74,7 @@ https://www.nytimes.com/2026/04/16/podcasts/right-wing-takeover-combat-sports-mm
 `Neither side confirmed a meeting. Israeli and Lebanese officials have said a cease-fire in the war against Hezbollah is under consideration.`\
 https://www.nytimes.com/2026/04/16/world/middleeast/israel-lebanon-talks-trump.html
 
-**Xi Courts Vietnam With His Authoritarian Vision of Security**\
+**Xi Alludes to Trump’s Policies to Make a Case for Closer Ties to Vietnam**\
 `China used a visit by the Vietnamese leader to show a deepening of security ties that analysts say far outpaces U.S. defense ties in the region.`\
 https://www.nytimes.com/2026/04/16/world/asia/xi-china-vietnam-security.html
 
