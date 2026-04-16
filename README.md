@@ -1,3 +1,7 @@
+**The Slow-Motion Battle for Hormuz**\
+`Iran’s stranglehold over the waterway completely reshaped shipping during the war. The U.S. naval blockade is an attempt to stop that.`\
+https://www.nytimes.com/interactive/2026/04/16/world/middleeast/iran-us-strait-of-hormuz-blockade-map-ships.html
+
 **A Look at the Plans for Trump’s ‘Triumphal Arch’**\
 `The structure proposed for President Trump’s arch would be 250 feet, more than twice the height of the Lincoln Memorial. It would sit near Arlington National Cemetery. A commission filled with Trump appointees is to review plans on Thursday.`\
 https://www.nytimes.com/video/us/politics/100000010844205/a-look-at-the-plans-for-trumps-triumphal-arch.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/16/opinion/younger-men-dating-older-women.html
 **Mamdani Announces Plan to Lower Insurance Costs for Landlords**\
 `Mayor Zohran Mamdani of New York, acknowledging that landlords are struggling with rising costs, said a cheaper “publicly backed” program would aim to insure 100,000 homes by 2030.`\
 https://www.nytimes.com/2026/04/16/nyregion/mamdani-landlords-insurance.html
-
-**Mamdani Enlists Philanthropists to Raise $20 Million for Child Care**\
-`Mayor Zohran Mamdani of New York will announce a campaign to raise money from private donors through a city-run nonprofit to support his child care plan. He already has raised $3.5 million.`\
-https://www.nytimes.com/2026/04/16/nyregion/mamdani-child-care-donations-nonprofit.html
 
