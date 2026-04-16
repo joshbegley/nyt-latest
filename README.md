@@ -1,5 +1,9 @@
 ****\
 ``\
+https://www.nytimes.com/video/embedded/admin/100000010844596/Hegseth-3-80920.html
+
+****\
+``\
 https://www.nytimes.com/video/embedded/admin/100000010844575/Hegseth-2-18438.html
 
 **Virginia Ex-Lt. Gov. Justin Fairfax Kills Wife and Self, Police Say**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/16/crosswords/strands-sidekick-775.html
 **Wordle Review No. 1,763**\
 `Scroll down for hints and conversation about the puzzle for Friday, April 17, 2026.`\
 https://www.nytimes.com/2026/04/16/crosswords/wordle-review-1763.html
-
-**Trump’s Scattershot Week, and a Stock Market Record**\
-`Plus, forget sneakers — Allbirds is going A.I.`\
-https://www.nytimes.com/2026/04/16/podcasts/the-headlines/trump-scattershot-week-stock-market-record-allbirds.html
 
