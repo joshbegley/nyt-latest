@@ -1,3 +1,19 @@
+**3 Killed in Boat Strike in the Pacific, Pentagon Says**\
+`It was the third such attack by the U.S. military in three days, and the 51st attack in a campaign against people who the United States has accused of smuggling drugs.`\
+https://www.nytimes.com/2026/04/16/us/politics/us-military-boat-strike-pacific-drugs.html
+
+**El bloqueo de EE. UU. frena el comercio de Irán**\
+`Más de una decena de buques de guerra de la Marina estadounidense están aplicando un bloqueo a los buques de todas las naciones que entren o salgan de zonas costeras o puertos iraníes.`\
+https://www.nytimes.com/es/2026/04/16/espanol/negocios/el-bloqueo-de-ee-uu-frena-el-comercio-de-iran.html
+
+**Corrections: April 16, 2026**\
+`Corrections that appeared in print on Thursday, April 16, 2026.`\
+https://www.nytimes.com/2026/04/16/pageoneplus/corrections-april-16-2026.html
+
+**Quote of the Day: Amid War, U.S. Businesses Aim to Sustain Profit Streak**\
+`Quotation of the Day for Thursday, April 16, 2026.`\
+https://www.nytimes.com/2026/04/15/pageoneplus/quote-of-the-day-amid-war-us-businesses-aim-to-sustain-profit-streak.html
+
 **Review: ‘The Fear of 13’ Doesn’t Entirely Add Up**\
 `Adrien Brody and Tessa Thompson make confident Broadway debuts, but the uneven script makes for a narratively slippery prison drama.`\
 https://www.nytimes.com/2026/04/15/theater/fear-of-13-review-brody-thompson-broadway.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/15/realestate/pied-a-terre-tax-nyc-hochul-mamdan
 **Shakespeare Bought One Property in London. Now We Know Exactly Where.**\
 `In confirming the precise location of William Shakespeare’s Blackfriars house, a British scholar raises fresh questions about what he intended to do with it.`\
 https://www.nytimes.com/2026/04/15/world/europe/shakespeare-london-property-house.html
-
-**La principal diplomática de EE. UU. en Venezuela deja su cargo tras haber llegado en enero**\
-`Laura Dogu, quien reabrió la embajada de Estados Unidos en Venezuela, vuelve a su rol como asesora del oficial de mayor rango del ejército estadounidense mientras continúa la guerra con Irán.`\
-https://www.nytimes.com/es/2026/04/15/espanol/america-latina/venezuela-usa-laura-dogu.html
-
-**Videos Show Officers Beating Man During Arrest in Brooklyn**\
-`Two officers were placed under investigation after the videos surfaced. Mayor Zohran Mamdani called them disturbing. The Police Department said officers incorrectly identified the man.`\
-https://www.nytimes.com/2026/04/15/nyregion/nypd-beating-officers-brooklyn.html
-
-**Carol Greitzer, Tireless Defender of Greenwich Village, Dies at 101**\
-`A lifelong New Yorker and longtime City Council member, she opposed Robert Moses’s wrecking ball, championed historic preservation and fought for women’s and gay rights.`\
-https://www.nytimes.com/2026/04/15/nyregion/carol-greitzer-dead.html
-
-**Sudan Enters Fourth Year of War Amid World’s Most Severe Humanitarian Crisis**\
-`Fighting that erupted in 2023 has forced millions from their homes and left widespread hunger that is now being compounded by strife in the Middle East.`\
-https://www.nytimes.com/2026/04/15/world/africa/sudan-war-hunger-crisis.html
 
