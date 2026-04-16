@@ -1,3 +1,7 @@
+**Mamdani Says He Plans to Skip the Met Gala**\
+`In an interview with the local news outfit Hell Gate, Mayor Mamdani framed his decision to avoid the glitzy fund-raiser as a way to keep his focus on affordability.`\
+https://www.nytimes.com/2026/04/16/style/met-gala-mayor-mamdani-nyc.html
+
 **Firefighters Likely Had Limited View of Approaching Plane in LaGuardia Crash**\
 `The Times created a 3-D model to visualize the sight lines from inside the fire truck seconds before it crashed with a passenger jet.`\
 https://www.nytimes.com/interactive/2026/04/16/us/laguardia-plane-crash-fire-truck-why.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/16/business/media/reed-hastings-netflix-chair.ht
 **NPR Receives $113 Million From 2 Gifts**\
 `The donations, from the philanthropist Connie Ballmer and an anonymous donor, will support the network’s long-term strategy.`\
 https://www.nytimes.com/2026/04/16/business/media/npr-133-million-donation-ballmer.html
-
-**Heavy Rain Brings Flooding to Michigan and Milwaukee**\
-`Heavy rain and melting snow flooded parts of northern Michigan, closing roads and filling dams to near capacity. In Milwaukee, heavy rainfall forced freeway closures and left vehicles stuck in rising water.`\
-https://www.nytimes.com/video/weather/100000010845070/heavy-rain-flood-milwaukee.html
 

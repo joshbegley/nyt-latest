@@ -1,3 +1,11 @@
+**Firefighters Likely Had Limited View of Approaching Plane in LaGuardia Crash**\
+`The Times created a 3-D model to visualize the sight lines from inside the fire truck seconds before it crashed with a passenger jet.`\
+https://www.nytimes.com/interactive/2026/04/16/us/laguardia-plane-crash-fire-truck-why.html
+
+**NPR Receives $113 Million From 2 Gifts**\
+`The donations, from the philanthropist Connie Ballmer and an anonymous donor, will support the network’s long-term strategy.`\
+https://www.nytimes.com/2026/04/16/business/media/npr-133-million-donation-ballmer.html
+
 **What Heelys Taught Me About Momentum**\
 `Heelys, the sneakers with wheels that were a fad in the 2000s, helped me form my first friendships. Recently, I decided to tap into that joy again.`\
 https://www.nytimes.com/2026/04/16/style/heelys-joy-friendship.html
