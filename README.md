@@ -1,3 +1,7 @@
+**Stocks Extend Rally and Oil Prices Stabilize as Investor Optimism Grows**\
+`Oil prices stabilized and stocks rose on optimism that diplomatic talks could yield a permanent peace deal.`\
+https://www.nytimes.com/2026/04/16/business/oil-prices-gas-stocks.html
+
 **Lo que pasó luego de que Dinamarca adoptara una ciudad en ruinas de Ucrania**\
 `Mykolaiv fue adoptada por el gobierno danés al mes de empezar la guerra. Desde entonces, Dinamarca ha destinado el 60 por ciento de toda su ayuda a la reconstrucción de Ucrania a esta ciudad.`\
 https://www.nytimes.com/es/2026/04/16/espanol/mundo/dinamarca-adopto-ciudad-ucrania.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/15/theater/fear-of-13-review-brody-thompson-broa
 **China’s G.D.P. Stronger Than Expected, Led by Infrastructure Spending**\
 `A steep slide in housing prices has left consumers less prosperous and less willing to spend, but the government is pouring money into new rail lines and other projects.`\
 https://www.nytimes.com/2026/04/15/business/china-economy-growth.html
-
-**Lawyer John Eastman Disbarred for Efforts to Overturn 2020 Election**\
-`The California Supreme Court upheld a lower court’s decision that said Mr. Eastman, had violated the rules of professional ethics.`\
-https://www.nytimes.com/2026/04/15/us/john-eastman-disbarred-2020-election.html
 
