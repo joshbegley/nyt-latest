@@ -1,3 +1,7 @@
+**Stephen Colbert Wants the Vice President to Lay Off the Pope**\
+`The “Late Show” host scolded JD Vance for suggesting that Pope Leo XIV “be careful when he talks about matters of theology.”`\
+https://www.nytimes.com/2026/04/16/arts/television/stephen-colbert-vance-pope.html
+
 **Muchos migrantes en EE. UU. temen declarar impuestos, y eso podría causarle problemas al fisco**\
 `El temor a que el IRS comparta sus datos con el ICE ha convertido la temporada de la declaración de la renta en una apuesta arriesgada para muchos migrantes. El Laboratorio Presupuestario de Yale prevé una pérdida de unos 300.000 millones de dólares en una década.`\
 https://www.nytimes.com/es/2026/04/16/espanol/estados-unidos/migrantes-miedo-irs-impuestos.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/15/health/alzheimers-drugs-benefit-anti-amyloid.
 **Just War Doctrine: The Pope, JD Vance and a Theological Debate**\
 `President Trump’s attack on Pope Leo has touched off an argument about a framework for determining when war is justified.`\
 https://www.nytimes.com/2026/04/15/us/just-war-vance-pope.html
-
-**Mamdani’s Wife Admits ‘Shame’ Over Social Media Posts From Her Teens**\
-`Rama Duwaji apologized for using what she said was “harmful” language as a teenager, in her first interview since her husband, Zohran Mamdani, took office.`\
-https://www.nytimes.com/2026/04/15/nyregion/duwaji-interview-mamdani-wife.html
 
