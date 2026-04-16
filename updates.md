@@ -1,3 +1,7 @@
+**Mamdani Says He Plans to Skip the Met Gala**\
+`In an interview with the local news outfit Hell Gate, Mayor Mamdani framed his decision to avoid the glitzy fund-raiser as a way to keep his focus on affordability.`\
+https://www.nytimes.com/2026/04/16/style/met-gala-mayor-mamdani-nyc.html
+
 **Firefighters Likely Had Limited View of Approaching Plane in LaGuardia Crash**\
 `The Times created a 3-D model to visualize the sight lines from inside the fire truck seconds before it crashed with a passenger jet.`\
 https://www.nytimes.com/interactive/2026/04/16/us/laguardia-plane-crash-fire-truck-why.html
