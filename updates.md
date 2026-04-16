@@ -1,3 +1,7 @@
+**Iran War Deepens Divide Among Democrats Over Arming Israel**\
+`Concerns over the Iran war led several Democratic senators who had rejected past bids to curb weapons transfers to Israel to vote to block the sale of bulldozers and bombs.`\
+https://www.nytimes.com/2026/04/15/us/politics/senate-israel-arms-vote-iran-war.html
+
 **Sneaker Company Allbirds Plans to Pivot to A.I. Yes, A.I.**\
 `After selling its business for $39 million last month, the company said it planned to buy powerful computer chips and rebrand itself NewBird AI.`\
 https://www.nytimes.com/2026/04/15/us/allbirds-shoes-ai-pivot.html
