@@ -1,3 +1,23 @@
+**Court Rejects Trump Administration Climate Lawsuit Against Hawaii**\
+`In a setback for federal efforts to thwart climate litigation, the judge ruled that the suit, which tried to block the state from suing oil companies, was too speculative.`\
+https://www.nytimes.com/2026/04/16/climate/hawaii-climate-lawsuit-dismissed.html
+
+**House Again Thwarts Bid to Halt Iran War Unless Congress Approves It**\
+`Republicans narrowly blocked a Democratic war powers resolution that would have prevented President Trump from continuing to wage war in Iran until he won authorization from Congress to do so.`\
+https://www.nytimes.com/2026/04/16/us/politics/house-war-powers-iran.html
+
+**Este es el fin de internet tal y como lo conocemos**\
+`En la carrera por poner parches en los agujeros de ciberseguridad encontrados por los modelos de IA más recientes, corremos el riesgo de dejar a demasiadas personas a su suerte.`\
+https://www.nytimes.com/es/2026/04/16/espanol/opinion/internet-ia-fallos-codigo.html
+
+**Diplomacy Efforts to End the Wars in the Middle East Intensify**\
+`A flurry of diplomatic efforts was underway to halt the fighting in the Middle East.`\
+https://www.nytimes.com/video/world/middleeast/100000010844521/iran-war-peace-talks-diplomacy.html
+
+**ICE Arrested an 85-Year-Old French Widow. A Judge Blames Her Stepson.**\
+`Marie-Thérèse Ross-Mahé moved to Alabama to wed a long-lost friend. But after her new husband died, an inheritance battle exploded and his son used his influence to have her arrested, a probate judge said.`\
+https://www.nytimes.com/2026/04/16/us/ice-detention-alabama-french-woman.html
+
 **Two Magicians Warn the Supreme Court About Junk Science**\
 `Penn & Teller filed a Supreme Court brief questioning the use of “investigative hypnosis” in a death-penalty case in Texas.`\
 https://www.nytimes.com/2026/04/16/us/politics/the-docket-supreme-court-penn-teller.html
@@ -11,7 +31,7 @@ https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote.html
 https://www.nytimes.com/2026/04/16/learning/science-practice-a-study-on-why-falling-cats-always-seem-to-land-on-their-feet.html
 
 **A Baker, Cardamom Buns and Allegations of a $3.8 Million Scam**\
-`A baker at the church’s popular cafe in Midtown Manhattan was accused of swindling nearly $4 million from the church’s donations and bequests.`\
+`A baker at the Church of Sweden’s popular cafe in Midtown Manhattan was accused of swindling nearly $4 million from the church’s donations and bequests.`\
 https://www.nytimes.com/2026/04/16/nyregion/church-sweden-coffee-shop.html
 
 **Condé Nast Shutters Self Magazine**\
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/04/16/world/asia/rohingya-bangladesh-migrants-boat-
 **Consumers Are Still Spending on Snacks Despite War’s Effects, PepsiCo Says**\
 `Executives at the food and drink giant announced a rise in sales of drinks and snacks but warned that “inflation will come.”`\
 https://www.nytimes.com/2026/04/16/business/pepsico-earnings-inflation-consumers.html
-
-**Xanax Maker Recalls One Batch of Common Anxiety Drug**\
-`The affected pills were sold nationwide under the brand name Xanax XR.`\
-https://www.nytimes.com/2026/04/16/well/xanax-recall-fda-anxiety.html
-
-**White House Shrugs Off Shaky Economy as War Exceeds Trump’s Timeline**\
-`Stocks may be soaring again, but the war in Iran has started to pinch the finances of many Americans.`\
-https://www.nytimes.com/2026/04/16/us/politics/trump-economy-iran-war.html
-
-**Teachers Union Push to Cancel Class for May Day Irks Chicago Parents**\
-`Mayor Brandon Johnson, whose ties to the Chicago Teachers Union helped him win office, has signaled support. The school district and some parents object.`\
-https://www.nytimes.com/2026/04/16/us/chicago-teachers-union-protests-brandon-johnson.html
-
-**Homes for Sale in Manhattan and Brooklyn**\
-`This week’s properties are in Chelsea, Gramercy Park and Downtown Brooklyn.`\
-https://www.nytimes.com/2026/04/16/realestate/homes-for-sale-manhattan-brooklyn.html
-
-**Can Webcams Help Solve New York’s Restaurant Line Problem?**\
-`With carefully positioned cameras and user input, the website Damn Lines hopes to address the worst part of visiting popular restaurants.`\
-https://www.nytimes.com/2026/04/16/dining/damn-lines-new-york.html
 
