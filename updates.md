@@ -1,3 +1,7 @@
+**‘Blessed Are the Peacemakers,’ Pope Says Amid Standoff With Trump**\
+`For days, Pope Leo XIV has attracted criticism from President Trump and his allies for refusing to back the war in Iran. On Thursday, he reiterated his calls for peace.`\
+https://www.nytimes.com/2026/04/16/world/africa/pope-leo-trump-peace.html
+
 **National Security. Artificial Intelligence. And Your Dumb Dog.**\
 `We’re covering today’s top stories.`\
 https://www.nytimes.com/2026/04/16/briefing/national-security-artificial-intelligence-and-your-dumb-dog.html

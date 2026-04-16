@@ -1,3 +1,7 @@
+**‘Blessed Are the Peacemakers,’ Pope Says Amid Standoff With Trump**\
+`For days, Pope Leo XIV has attracted criticism from President Trump and his allies for refusing to back the war in Iran. On Thursday, he reiterated his calls for peace.`\
+https://www.nytimes.com/2026/04/16/world/africa/pope-leo-trump-peace.html
+
 **National Security. Artificial Intelligence. And Your Dumb Dog.**\
 `We’re covering today’s top stories.`\
 https://www.nytimes.com/2026/04/16/briefing/national-security-artificial-intelligence-and-your-dumb-dog.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/16/us/politics/which-senate-candidates-most-mone
 **Talarico Leads a Democratic Cash Surge: 7 Takeaways From 2026 Filings**\
 `Democrats in key Senate races out-raised their Republican rivals, but super PACs on the right are poised to play a powerful role in the midterms, new campaign finance filings showed.`\
 https://www.nytimes.com/2026/04/16/us/politics/talarico-democrats-fundraising-republicans-takeaways.html
-
-**European Airlines Face Fuel Shortages Within Weeks**\
-`If tankers do not soon begin crossing the Strait of Hormuz, airlines in Europe may not have enough jet fuel to operate all of their flights.`\
-https://www.nytimes.com/2026/04/16/business/europe-airlines-jet-fuel-strait-hormuz.html
 
