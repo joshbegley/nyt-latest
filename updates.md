@@ -1,3 +1,7 @@
+**Democrats Make Final Push to Delay Confirmation Hearing of Trump’s Fed Pick**\
+`Kevin M. Warsh is scheduled to testify on Tuesday despite an ongoing criminal investigation into the chair of the Federal Reserve that stands in the way of a smooth transition.`\
+https://www.nytimes.com/2026/04/16/business/warsh-fed-democrats-confirmation.html
+
 **‘One Flew Over the Cuckoo’s Nest’ Returns With Contemporary Bite**\
 `A new London production highlights the story’s racial element and shows how much has changed since the play’s 1963 premiere.`\
 https://www.nytimes.com/2026/04/16/theater/one-flew-over-the-cuckoos-nest-old-vic-london.html

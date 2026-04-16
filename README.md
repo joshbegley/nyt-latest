@@ -34,7 +34,7 @@ https://www.nytimes.com/video/embedded/admin/100000010844575/Hegseth-2-18438.htm
 `Mr. Fairfax, a Democrat, served as lieutenant governor from 2018 to 2022.`\
 https://www.nytimes.com/2026/04/16/us/virginia-lt-governor-justin-fairfax-murder-wife-suicide.html
 
-**An 18-Foot Black Woman Opens a New Door to London’s V&A**\
+**A Huge Statue of a Black Woman Opens a New Door to London’s V&A**\
 `Thomas J Price’s bronze figures present anonymous Black people at heroic scale. After an installation in Times Square sparked a furor, his latest work welcomes visitors to a new museum outpost.`\
 https://www.nytimes.com/2026/04/16/arts/design/thomas-j-price-v-and-a-east.html
 

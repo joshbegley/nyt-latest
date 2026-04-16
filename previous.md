@@ -1,3 +1,7 @@
+**Democrats Make Final Push to Delay Confirmation Hearing of Trump’s Fed Pick**\
+`Kevin M. Warsh is scheduled to testify on Tuesday despite an ongoing criminal investigation into the chair of the Federal Reserve that stands in the way of a smooth transition.`\
+https://www.nytimes.com/2026/04/16/business/warsh-fed-democrats-confirmation.html
+
 **‘One Flew Over the Cuckoo’s Nest’ Returns With Contemporary Bite**\
 `A new London production highlights the story’s racial element and shows how much has changed since the play’s 1963 premiere.`\
 https://www.nytimes.com/2026/04/16/theater/one-flew-over-the-cuckoos-nest-old-vic-london.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/world/europe/100000010844325/russia-ukraine-attack
 **El papa en África**\
 `El continente es crucial para el futuro de la Iglesia, pero también es el foco de tensiones de larga data en torno a algunos de los temas más delicados del catolicismo.`\
 https://www.nytimes.com/es/2026/04/16/espanol/mundo/papa-leon-africa.html
-
-**Pakistan Looks to Play Peacemaker Between U.S. and Iran, Again**\
-`After talks in Islamabad last weekend led to a two-week cease-fire, Pakistan is offering to host another round in an attempt to sustain ongoing peace efforts.`\
-https://www.nytimes.com/2026/04/16/world/asia/iran-pakistan-diplomacy.html
 
