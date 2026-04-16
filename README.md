@@ -1,3 +1,7 @@
+**3 ejercicios para prevenir el dolor de pies**\
+`La fascitis plantar puede ser increíblemente incómoda. Pero unos sencillos movimientos pueden aliviarla y prevenirla.`\
+https://www.nytimes.com/es/2026/04/16/espanol/estilos-de-vida/ejercicios-dolor-pie.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/16/world/iran-war-trump-lebanon-news/heres-the-latest
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/15/world/middleeast/iran-world-cup-fifa-us.html
 **Trump’s Proposed ‘Triumphal Arch’ Would Be Among the World’s Tallest**\
 `See how the 250-foot structure would dwarf other monumental arches, including the Arc de Triomphe in Paris.`\
 https://www.nytimes.com/interactive/2026/04/15/us/politics/trump-dc-usa-triumphal-arch.html
-
-**Fast Fliers**\
-`Rafael Musa and Sala Wanetick tag-team this tremendous Thursday.`\
-https://www.nytimes.com/2026/04/15/crosswords/daily-puzzle-2026-04-16.html
 
