@@ -1,3 +1,7 @@
+**El papa en África**\
+`El continente es crucial para el futuro de la Iglesia, pero también es el foco de tensiones de larga data en torno a algunos de los temas más delicados del catolicismo.`\
+https://www.nytimes.com/es/2026/04/16/espanol/mundo/papa-leon-africa.html
+
 **Pakistan Looks to Play Peacemaker Between U.S. and Iran, Again**\
 `After talks in Islamabad last weekend led to a two-week cease-fire, Pakistan is offering to host another round in an attempt to sustain ongoing peace efforts.`\
 https://www.nytimes.com/2026/04/16/world/asia/iran-pakistan-diplomacy.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/16/opinion/trump-jesus-.html
 **Kennedy to Testify Before Congress for First Time This Year**\
 `Robert F. Kennedy Jr. is expected to defend staff and funding cuts at the Health and Human Services Department he oversees.`\
 https://www.nytimes.com/2026/04/16/us/politics/rfk-jr-congress-budget-hearing.html
-
-**Downtown Tower or Tree-Lined Street? A New Brooklynite Weighed Her Options.**\
-`Looking for prime subway access and proximity to green space, a longtime renter considered newer buildings in various shapes and sizes.`\
-https://www.nytimes.com/interactive/2026/04/16/realestate/brooklyn-downtown-fort-greene-apartments.html
 
