@@ -1,3 +1,7 @@
+**La descripción de Trump de la guerra en Irán no refleja la realidad**\
+`El presidente Trump se enfrenta a una crisis que no encaja con su mensaje de un nuevo régimen “bastante razonable” en Irán y una victoria casi segura para Estados Unidos.`\
+https://www.nytimes.com/es/2026/04/16/espanol/estados-unidos/trump-guerra-iran.html
+
 **Trump amenaza con despedir al presidente de la Reserva Federal**\
 `El mandato de Jerome Powell como presidente de la Fed termina el 15 de mayo, pero puede permanecer como gobernador hasta 2028. Dijo que no se iría hasta que terminara una investigación criminal.`\
 https://www.nytimes.com/es/2026/04/16/espanol/estados-unidos/trump-amenaza-despedir-powell-fed.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/16/us/pilots-meow-bark-air-traffic-control-faa.h
 ****\
 ``\
 https://www.nytimes.com/video/embedded/admin/100000010844596/Hegseth-3-80920.html
-
-****\
-``\
-https://www.nytimes.com/video/embedded/admin/100000010844575/Hegseth-2-18438.html
 
