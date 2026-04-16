@@ -1,3 +1,15 @@
+**National Security. Artificial Intelligence. And Your Dumb Dog.**\
+`We’re covering today’s top stories.`\
+https://www.nytimes.com/2026/04/16/briefing/national-security-artificial-intelligence-and-your-dumb-dog.html
+
+**South African Politician Julius Malema Is Sentenced to 5 Years in Prison**\
+`The leftist lawmaker has been a prime target of President Trump’s attacks on South Africa. The ruling, handed down after a conviction on gun charges, leaves Mr. Malema’s political future in doubt.`\
+https://www.nytimes.com/2026/04/16/world/africa/south-africa-malema-sentencing-prison.html
+
+**Russia Launches Largest Barrage on Ukrainian Cities in Months**\
+`At least 15 people died after Russia flew more than 700 drones and missiles across Ukrainian cities, according to the Ukrainian Air Force.`\
+https://www.nytimes.com/video/world/europe/100000010844325/russia-ukraine-attacks.html
+
 **El papa en África**\
 `El continente es crucial para el futuro de la Iglesia, pero también es el foco de tensiones de larga data en torno a algunos de los temas más delicados del catolicismo.`\
 https://www.nytimes.com/es/2026/04/16/espanol/mundo/papa-leon-africa.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/16/us/politics/talarico-democrats-fundraising-re
 **European Airlines Face Fuel Shortages Within Weeks**\
 `If tankers do not soon begin crossing the Strait of Hormuz, airlines in Europe may not have enough jet fuel to operate all of their flights.`\
 https://www.nytimes.com/2026/04/16/business/europe-airlines-jet-fuel-strait-hormuz.html
-
-**We Are Gambling Away Our Future**\
-`America’s view of liberty is upside down.`\
-https://www.nytimes.com/2026/04/16/opinion/gambling-young-men-porn-society.html
-
-**Who Doesn’t Get Trump Mixed Up With Jesus?**\
-`In a strange era, a stranger turn.`\
-https://www.nytimes.com/2026/04/16/opinion/trump-jesus-.html
-
-**Kennedy to Testify Before Congress for First Time This Year**\
-`Robert F. Kennedy Jr. is expected to defend staff and funding cuts at the Health and Human Services Department he oversees.`\
-https://www.nytimes.com/2026/04/16/us/politics/rfk-jr-congress-budget-hearing.html
 
