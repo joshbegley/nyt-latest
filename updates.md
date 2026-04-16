@@ -1,3 +1,7 @@
+**A Huge Statue of a Black Woman Opens a New Door to London’s V&A**\
+`Thomas J Price’s bronze figures present anonymous Black people at heroic scale. After an installation in Times Square sparked a furor, his latest work welcomes visitors to a new museum outpost.`\
+https://www.nytimes.com/2026/04/16/arts/design/thomas-j-price-v-and-a-east.html
+
 **Democrats Make Final Push to Delay Confirmation Hearing of Trump’s Fed Pick**\
 `Kevin M. Warsh is scheduled to testify on Tuesday despite an ongoing criminal investigation into the chair of the Federal Reserve that stands in the way of a smooth transition.`\
 https://www.nytimes.com/2026/04/16/business/warsh-fed-democrats-confirmation.html
