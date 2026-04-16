@@ -1,3 +1,11 @@
+**Russian Strikes Kill at Least 15 in Biggest Barrage on Ukrainian Cities in Months**\
+`Moscow is again ramping up missile and drone attacks on civilian targets, dispelling any notion that a temporary cease-fire for Orthodox Easter might become more lasting.`\
+https://www.nytimes.com/2026/04/16/world/europe/russia-ukraine-missile-drone-attacks.html
+
+**The Rise of the Sugar Mama Economy**\
+`What a shift in the dating preferences of younger men reveals about our changing norms.`\
+https://www.nytimes.com/video/opinion/100000010840113/the-rise-of-the-sugar-mama-economy.html
+
 **Stocks Extend Rally and Oil Prices Stabilize as Investor Optimism Grows**\
 `Oil prices stabilized and stocks rose on optimism that diplomatic talks could yield a permanent peace deal.`\
 https://www.nytimes.com/2026/04/16/business/oil-prices-gas-stocks.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/16/pageoneplus/corrections-april-16-2026.html
 **Quote of the Day: Amid War, U.S. Businesses Aim to Sustain Profit Streak**\
 `Quotation of the Day for Thursday, April 16, 2026.`\
 https://www.nytimes.com/2026/04/15/pageoneplus/quote-of-the-day-amid-war-us-businesses-aim-to-sustain-profit-streak.html
-
-**Review: ‘The Fear of 13’ Doesn’t Entirely Add Up**\
-`Adrien Brody and Tessa Thompson make confident Broadway debuts, but the uneven script makes for a narratively slippery prison drama.`\
-https://www.nytimes.com/2026/04/15/theater/fear-of-13-review-brody-thompson-broadway.html
-
-**China’s G.D.P. Stronger Than Expected, Led by Infrastructure Spending**\
-`A steep slide in housing prices has left consumers less prosperous and less willing to spend, but the government is pouring money into new rail lines and other projects.`\
-https://www.nytimes.com/2026/04/15/business/china-economy-growth.html
 

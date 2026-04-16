@@ -1,3 +1,11 @@
+**Russian Strikes Kill at Least 15 in Biggest Barrage on Ukrainian Cities in Months**\
+`Moscow is again ramping up missile and drone attacks on civilian targets, dispelling any notion that a temporary cease-fire for Orthodox Easter might become more lasting.`\
+https://www.nytimes.com/2026/04/16/world/europe/russia-ukraine-missile-drone-attacks.html
+
+**The Rise of the Sugar Mama Economy**\
+`What a shift in the dating preferences of younger men reveals about our changing norms.`\
+https://www.nytimes.com/video/opinion/100000010840113/the-rise-of-the-sugar-mama-economy.html
+
 **Stocks Extend Rally and Oil Prices Stabilize as Investor Optimism Grows**\
 `Oil prices stabilized and stocks rose on optimism that diplomatic talks could yield a permanent peace deal.`\
 https://www.nytimes.com/2026/04/16/business/oil-prices-gas-stocks.html
