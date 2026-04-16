@@ -1,3 +1,15 @@
+**Trump anuncia un alto al fuego entre Líbano e Israel**\
+`Israel y Hizbulá aún no han hecho comentarios sobre la pausa en las hostilidades que se espera que comience a las 5 p. m., hora del Este. He aquí una cronología de la relación entre Líbano e Israel.`\
+https://www.nytimes.com/es/2026/04/16/espanol/mundo/israel-libano-alto-fuego-trump.html
+
+**Clavicular y su peligrosa dedicación al ‘looksmaxxing’**\
+`Braden Peters, el influente mejor conocido como Clavicular, ha hablado de tomar metanfetamina para mantenerse delgado. El martes fue hospitalizado en Miami tras lucir desorientado.`\
+https://www.nytimes.com/es/2026/04/16/espanol/cultura/clavicular-influencer-sobredosis.html
+
+**After Apparent Overdose, Clavicular Is Back at a Club**\
+`A harrowing incident involving Clavicular, ambassador to the “looksmaxxing” community, was captured on the same platforms that made him a star.`\
+https://www.nytimes.com/2026/04/16/style/clavicular-overdose-braden-peters.html
+
 **Why Young Men Want to Be With Older Women**\
 `Age-gap dating is everywhere right now — especially younger men seeking out older women. On “The Opinions,” men share why they’re drawn to the maturity, stability and clarity they can’t find elsewhere.`\
 https://www.nytimes.com/video/opinion/100000010840121/why-young-men-want-to-be-with-older-women.html

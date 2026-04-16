@@ -1,3 +1,11 @@
+**Trump anuncia un alto al fuego entre Líbano e Israel**\
+`Israel y Hizbulá aún no han hecho comentarios sobre la pausa en las hostilidades que se espera que comience a las 5 p. m., hora del Este. He aquí una cronología de la relación entre Líbano e Israel.`\
+https://www.nytimes.com/es/2026/04/16/espanol/mundo/israel-libano-alto-fuego-trump.html
+
+**Clavicular y su peligrosa dedicación al ‘looksmaxxing’**\
+`Braden Peters, el influente mejor conocido como Clavicular, ha hablado de tomar metanfetamina para mantenerse delgado. El martes fue hospitalizado en Miami tras lucir desorientado.`\
+https://www.nytimes.com/es/2026/04/16/espanol/cultura/clavicular-influencer-sobredosis.html
+
 **Why Young Men Want to Be With Older Women**\
 `Age-gap dating is everywhere right now — especially younger men seeking out older women. On “The Opinions,” men share why they’re drawn to the maturity, stability and clarity they can’t find elsewhere.`\
 https://www.nytimes.com/video/opinion/100000010840121/why-young-men-want-to-be-with-older-women.html
@@ -38,7 +46,7 @@ https://www.nytimes.com/2026/04/16/dining/broccoli-for-dinner-strawberries-for-d
 `Roundabout Theater Company, one of the four nonprofits with Broadway houses, plans three Broadway shows next season.`\
 https://www.nytimes.com/2026/04/16/theater/moliere-morisseau-full-monty-broadway-roundabout-theater-company.html
 
-**An Apparent Overdose, a Hospitalization and a Club Opening**\
+**After Apparent Overdose, Clavicular Is Back at a Club**\
 `A harrowing incident involving Clavicular, ambassador to the “looksmaxxing” community, was captured on the same platforms that made him a star.`\
 https://www.nytimes.com/2026/04/16/style/clavicular-overdose-braden-peters.html
 
@@ -69,12 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-new-jersey-us-hous
 **A Timeline of the Lebanon-Israel Relationship**\
 `Israeli and Lebanese officials this week met in Washington for direct talks between two nations, which have technically been at war since 1948.`\
 https://www.nytimes.com/2026/04/16/world/middleeast/lebanon-israel-tensions-relations-timeline.html
-
-**A Powerful Health Task Force Is in Kennedy’s Cross Hairs**\
-`The health secretary said he would reform the panel, which determines whether insurance will cover preventive services like mammograms and colonoscopies.`\
-https://www.nytimes.com/2026/04/16/well/rfk-jr-health-screenings-services-uspstf.html
-
-**Court Rejects Trump Administration Climate Lawsuit Against Hawaii**\
-`In a setback for federal efforts to thwart climate litigation, the judge ruled that the suit, which tried to block the state from suing oil companies, was too speculative.`\
-https://www.nytimes.com/2026/04/16/climate/hawaii-climate-lawsuit-dismissed.html
 
