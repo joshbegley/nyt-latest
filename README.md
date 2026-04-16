@@ -1,3 +1,7 @@
+**Israel and Lebanon Reach Deal on a 10-Day Cease-Fire**\
+`A pause in the fighting between Israeli forces and Iranian-allied Hezbollah militants may help smooth the way to a peace deal between the U.S. and Iran.`\
+https://www.nytimes.com/2026/04/16/world/middleeast/israel-lebanon-cease-fire.html
+
 **Pittsburgh’s Children’s Museum Satisfies a Hunger for Eric Carle**\
 `The institution will feature five of the beloved author’s collage-based books in a series of interactive exhibits meant to engage children.`\
 https://www.nytimes.com/2026/04/16/arts/design/pittsburgh-childrens-museum-eric-carle.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/16/health/erica-schwartz-cdc-director-trump.html
 **The Long-Term Plan to Scrub Carbon From the Sky**\
 `Microsoft is pulling back from efforts to remove carbon from the atmosphere. But the nascent industry’s proponents say they are thinking in decades, not years.`\
 https://www.nytimes.com/2026/04/16/climate/the-long-term-plan-to-scrub-carbon-from-the-sky.html
-
-**Trump Administration Will Release 2nd Ave. Subway Funding, in Reversal**\
-`The Metropolitan Transportation Authority, which runs New York City’s subway system, had sued the federal government for withholding nearly $60 million in funding.`\
-https://www.nytimes.com/2026/04/16/nyregion/2nd-avenue-subway-mta-trump.html
 
