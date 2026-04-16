@@ -1,3 +1,15 @@
+**Utah Becomes the New Center of U.S. Measles Cases**\
+`Nearly 600 people have been sickened across the state, which has seen an increase in vaccine exemptions among children in recent years.`\
+https://www.nytimes.com/2026/04/16/well/measles-cases-utah.html
+
+**A Sculptor’s Life, in Constant Motion**\
+`A career-spanning Alexander Calder exhibition in Paris turns the viewer into a collaborator and lifts the soul.`\
+https://www.nytimes.com/2026/04/16/arts/design/alexander-calder-fondation-louis-vuitton.html
+
+**Pilots Went Viral for Meowing on the Radio. The F.A.A. Was Not Amused.**\
+`The Federal Aviation Administration said that it was investigating the interaction, and that pilots were banned from “nonessential communication” below a certain altitude.`\
+https://www.nytimes.com/2026/04/16/us/pilots-meow-bark-air-traffic-control-faa.html
+
 ****\
 ``\
 https://www.nytimes.com/video/embedded/admin/100000010844596/Hegseth-3-80920.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/16/business/economy/iran-oil-blockade.html
 **Trump vs. the Pope**\
 `Pope Leo XIV responds to President Trump’s lashing out over the war in Iran.`\
 https://www.nytimes.com/2026/04/16/podcasts/the-daily/trump-pope-leo-iran-war.html
-
-**Connections Companion No. 1,041**\
-`Scroll down for hints and conversation about the puzzle for Friday, April 17, 2026.`\
-https://www.nytimes.com/2026/04/16/crosswords/connections-companion-1041.html
-
-**Strands Sidekick No. 775**\
-`Scroll down for hints and conversation about the puzzle for Friday, April 17, 2026.`\
-https://www.nytimes.com/2026/04/16/crosswords/strands-sidekick-775.html
-
-**Wordle Review No. 1,763**\
-`Scroll down for hints and conversation about the puzzle for Friday, April 17, 2026.`\
-https://www.nytimes.com/2026/04/16/crosswords/wordle-review-1763.html
 

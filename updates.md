@@ -1,3 +1,15 @@
+**Utah Becomes the New Center of U.S. Measles Cases**\
+`Nearly 600 people have been sickened across the state, which has seen an increase in vaccine exemptions among children in recent years.`\
+https://www.nytimes.com/2026/04/16/well/measles-cases-utah.html
+
+**A Sculptor’s Life, in Constant Motion**\
+`A career-spanning Alexander Calder exhibition in Paris turns the viewer into a collaborator and lifts the soul.`\
+https://www.nytimes.com/2026/04/16/arts/design/alexander-calder-fondation-louis-vuitton.html
+
+**Pilots Went Viral for Meowing on the Radio. The F.A.A. Was Not Amused.**\
+`The Federal Aviation Administration said that it was investigating the interaction, and that pilots were banned from “nonessential communication” below a certain altitude.`\
+https://www.nytimes.com/2026/04/16/us/pilots-meow-bark-air-traffic-control-faa.html
+
 ****\
 ``\
 https://www.nytimes.com/video/embedded/admin/100000010844596/Hegseth-3-80920.html
