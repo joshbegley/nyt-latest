@@ -1,3 +1,7 @@
+**Drivers Stranded as Flooding Closes Major Highway in Milwaukee**\
+`Severe storms moving across the Midwest were bringing heavy rain and raising the risk of flash flooding, tornadoes and large hail.`\
+https://www.nytimes.com/2026/04/16/weather/milwaukee-weather-rain-flooding-cars.html
+
 **3 Killed in Boat Strike in the Pacific, Pentagon Says**\
 `It was the third such attack by the U.S. military in three days, and the 51st attack in a campaign against people who the United States has accused of smuggling drugs.`\
 https://www.nytimes.com/2026/04/16/us/politics/us-military-boat-strike-pacific-drugs.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/15/arts/music/live-nation-antitrust-trial-monopo
 **5 Things to Know About New York’s Proposed Second Home Tax**\
 `Gov. Kathy Hochul wants to tax second homes in New York City that are worth $5 million or more. Here’s how the proposal might work.`\
 https://www.nytimes.com/2026/04/15/realestate/pied-a-terre-tax-nyc-hochul-mamdani.html
-
-**Shakespeare Bought One Property in London. Now We Know Exactly Where.**\
-`In confirming the precise location of William Shakespeare’s Blackfriars house, a British scholar raises fresh questions about what he intended to do with it.`\
-https://www.nytimes.com/2026/04/15/world/europe/shakespeare-london-property-house.html
 
