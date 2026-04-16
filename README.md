@@ -1,3 +1,7 @@
+**Ellison Pledges at Least 30 Paramount-Warner Movies a Year**\
+`His remarks at a movie theater convention were part of a campaign to win Hollywood support for his bid to buy Warner Bros. Discovery.`\
+https://www.nytimes.com/2026/04/16/business/media/david-ellison-paramount-warner-movies-theaters.html
+
 **Michigan’s Dam Crisis Shows Decay of U.S. Infrastructure, Whitmer Says**\
 `Workers in Cheboygan hurried to shore up a dam in danger of being overtopped, part of a “slow-moving disaster” threatening communities across the state.`\
 https://www.nytimes.com/2026/04/16/us/michigan-dam-height-cheboygan.html
@@ -38,8 +42,8 @@ https://www.nytimes.com/2026/04/16/style/heelys-joy-friendship.html
 `You could walk in them like gym shoes, but if you rocked back on your heels the wheels emerged, turning them into roller skates. In the early 2000s, the company sold millions.`\
 https://www.nytimes.com/2026/04/16/business/roger-adams-dead.html
 
-**Israel and Lebanon Reach Deal on a 10-Day Cease-Fire**\
-`A pause in the fighting between Israeli forces and Iranian-allied Hezbollah militants may help smooth the way to a peace deal between the U.S. and Iran.`\
+**10-Day Cease-Fire Between Israel and Lebanon Goes Into Effect**\
+`The pause in the fighting between Israeli forces and Iranian-allied Hezbollah militants may help smooth the way to a peace deal between the U.S. and Iran.`\
 https://www.nytimes.com/2026/04/16/world/middleeast/israel-lebanon-cease-fire.html
 
 **Pittsburgh’s Children’s Museum Satisfies a Hunger for Eric Carle**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/04/16/world/iran-war-trump-lebanon-news/forced
 **How Newsom Boosted His Book Sales With $1.5 Million From His PAC**\
 `Gov. Gavin Newsom offered supporters who gave any amount a copy of his book. Roughly 67,000 donors received the memoir, accounting for roughly two-thirds of its total print sales.`\
 https://www.nytimes.com/2026/04/16/us/politics/newsom-book-donors.html
-
-**In Its ‘Greater New York’ Show, MoMA PS1 Focuses on the Here and Now**\
-`Even as the institution has grown and changed, it has continued to be a launchpad for emerging artists. This spring, it is putting 53 in the spotlight.`\
-https://www.nytimes.com/2026/04/16/arts/design/momaps1-greater-new-york.html
 

@@ -1,3 +1,7 @@
+**Michigan’s Dam Crisis Shows Decay of U.S. Infrastructure, Whitmer Says**\
+`Workers in Cheboygan hurried to shore up a dam in danger of being overtopped, part of a “slow-moving disaster” threatening communities across the state.`\
+https://www.nytimes.com/2026/04/16/us/michigan-dam-height-cheboygan.html
+
 **Trump to Pick Ousted FEMA Head to Lead Agency Again**\
 `Cameron Hamilton is a former Navy SEAL who ran unsuccessfully for Congress.`\
 https://www.nytimes.com/2026/04/16/us/trump-fema-cameron-hamilton.html
