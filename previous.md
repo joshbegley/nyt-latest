@@ -1,3 +1,7 @@
+****\
+``\
+https://www.nytimes.com/video/embedded/us/politics/100000010844838/16vid-RFK-Jr-Hearing-22869.html
+
 **La descripción de Trump de la guerra en Irán no refleja la realidad**\
 `El presidente Trump se enfrenta a una crisis que no encaja con su mensaje de un nuevo régimen “bastante razonable” en Irán y una victoria casi segura para Estados Unidos.`\
 https://www.nytimes.com/es/2026/04/16/espanol/estados-unidos/trump-guerra-iran.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/16/arts/design/alexander-calder-fondation-louis-
 **Pilots Went Viral for Meowing on the Radio. The F.A.A. Was Not Amused.**\
 `The Federal Aviation Administration said that it was investigating the interaction, and that pilots were banned from “nonessential communication” below a certain altitude.`\
 https://www.nytimes.com/2026/04/16/us/pilots-meow-bark-air-traffic-control-faa.html
-
-****\
-``\
-https://www.nytimes.com/video/embedded/admin/100000010844596/Hegseth-3-80920.html
 

@@ -1,3 +1,7 @@
+****\
+``\
+https://www.nytimes.com/video/embedded/us/politics/100000010844838/16vid-RFK-Jr-Hearing-22869.html
+
 **La descripción de Trump de la guerra en Irán no refleja la realidad**\
 `El presidente Trump se enfrenta a una crisis que no encaja con su mensaje de un nuevo régimen “bastante razonable” en Irán y una victoria casi segura para Estados Unidos.`\
 https://www.nytimes.com/es/2026/04/16/espanol/estados-unidos/trump-guerra-iran.html
