@@ -1,3 +1,7 @@
+**Artemis II Crew to Discuss NASA Moon Mission and What Comes Next**\
+`The four astronauts, who last spoke to the public on Sunday, will speak at a news conference Thursday afternoon at Johnson Space Center in Houston.`\
+https://www.nytimes.com/2026/04/16/science/artemis-ii-astronauts-moon-mission-press-conference.html
+
 **Hillary Clinton’s Plan to Help Families**\
 `Readers respond to “How to Fix Affordability,” an Opinion guest essay by Hillary Clinton. Also: President Trump’s arch; protests and litigation.`\
 https://www.nytimes.com/2026/04/16/opinion/hillary-clinton-plan-families.html

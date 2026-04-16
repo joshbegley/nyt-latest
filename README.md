@@ -1,3 +1,7 @@
+**5 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/04/16/books/review/new-recommended-books.html
+
 **Artemis II Crew to Discuss NASA Moon Mission and What Comes Next**\
 `The four astronauts, who last spoke to the public on Sunday, will speak at a news conference Thursday afternoon at Johnson Space Center in Houston.`\
 https://www.nytimes.com/2026/04/16/science/artemis-ii-astronauts-moon-mission-press-conference.html
@@ -30,8 +34,8 @@ https://www.nytimes.com/2026/04/16/theater/moliere-morisseau-full-monty-broadway
 `A harrowing incident involving Clavicular, ambassador to the “looksmaxxing” community, was captured on the same platforms that made him a star.`\
 https://www.nytimes.com/2026/04/16/style/clavicular-overdose-braden-peters.html
 
-**Venezuelan Doctor in South Texas Expected to Be Released From Immigration Custody**\
-`Dr. Ezequiel Veliz, a family physician who worked in an area that has a doctor shortage, has been detained for 10 days.`\
+**Venezuelan Doctor in South Texas Is Released from Immigration Custody**\
+`Dr. Ezequiel Veliz, a family physician who worked in an area that has a doctor shortage, was detained for 10 days. Another Venezuelan doctor remains locked up.`\
 https://www.nytimes.com/2026/04/16/us/texas-detained-venezuelan-doctor-released.html
 
 **White House Declines to Offer Congress an Estimate of Iran War Cost**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/16/us/politics/house-war-powers-iran.html
 **Este es el fin de internet tal y como lo conocemos**\
 `En la carrera por poner parches en los agujeros de ciberseguridad encontrados por los modelos de IA más recientes, corremos el riesgo de dejar a demasiadas personas a su suerte.`\
 https://www.nytimes.com/es/2026/04/16/espanol/opinion/internet-ia-fallos-codigo.html
-
-**Diplomacy Efforts to End the Wars in the Middle East Intensify**\
-`A flurry of diplomatic efforts was underway to halt the fighting in the Middle East.`\
-https://www.nytimes.com/video/world/middleeast/100000010844521/iran-war-peace-talks-diplomacy.html
 
