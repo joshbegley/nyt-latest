@@ -50,8 +50,8 @@ https://www.nytimes.com/es/2026/04/16/espanol/opinion/internet-ia-fallos-codigo.
 `A flurry of diplomatic efforts was underway to halt the fighting in the Middle East.`\
 https://www.nytimes.com/video/world/middleeast/100000010844521/iran-war-peace-talks-diplomacy.html
 
-**ICE Arrested an 85-Year-Old French Widow. A Judge Blames Her Stepson.**\
-`Marie-Thérèse Ross-Mahé moved to Alabama to wed a long-lost friend. But after her new husband died, an inheritance battle exploded and his son used his influence to have her arrested, a probate judge said.`\
+**ICE Arrests 85-Year-Old French Widow Who Married Her G.I. Sweetheart**\
+`After Marie-Thérèse Ross-Mahé’s husband died, an inheritance battle exploded. Her stepson then used his influence to have her arrested, an Alabama probate judge said.`\
 https://www.nytimes.com/2026/04/16/us/ice-detention-alabama-french-woman.html
 
 **Two Magicians Warn the Supreme Court About Junk Science**\
