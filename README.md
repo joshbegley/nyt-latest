@@ -1,3 +1,23 @@
+**El 51% de los estadounidenses piensa que la guerra en Irán no ha valido la pena**\
+`Una encuesta de Ipsos y Reuters, publicada el martes, reveló que pocos estadounidenses —el 24 por ciento— consideran que la guerra en Irán ha valido la pena por sus costos y beneficios.`\
+https://www.nytimes.com/es/2026/04/16/espanol/estados-unidos/encuesta-guerra-iran-trump.html
+
+**A Snappy Tofu Dinner**\
+`Yewande Komolafe’s crispy tofu with cashews and blistered snap peas is quick to make and a textural delight to eat.`\
+https://www.nytimes.com/2026/04/16/dining/tofu-dinner-recipe.html
+
+**He Was Among Dozens Crammed Into a Trawler’s Cargo Hold. Then It Capsized.**\
+`Hundreds of migrants from Bangladesh, including Rohingya refugees, are feared dead after a boat to Malaysia overturned.`\
+https://www.nytimes.com/2026/04/16/world/asia/rohingya-bangladesh-migrants-boat-capsizing.html
+
+**Consumers Are Still Spending on Snacks Despite War’s Effects, PepsiCo Says**\
+`Executives at the food and drink giant announced a rise in sales of drinks and snacks but warned that “inflation will come.”`\
+https://www.nytimes.com/2026/04/16/business/pepsico-earnings-inflation-consumers.html
+
+**Xanax Maker Recalls One Batch of Common Anxiety Drug**\
+`The affected pills were sold nationwide under the brand name Xanax XR.`\
+https://www.nytimes.com/2026/04/16/well/xanax-recall-fda-anxiety.html
+
 **White House Shrugs Off Shaky Economy as War Exceeds Trump’s Timeline**\
 `Stocks may be soaring again, but the war in Iran has started to pinch the finances of many Americans.`\
 https://www.nytimes.com/2026/04/16/us/politics/trump-economy-iran-war.html
@@ -10,7 +30,7 @@ https://www.nytimes.com/2026/04/16/us/chicago-teachers-union-protests-brandon-jo
 `This week’s properties are in Chelsea, Gramercy Park and Downtown Brooklyn.`\
 https://www.nytimes.com/2026/04/16/realestate/homes-for-sale-manhattan-brooklyn.html
 
-**These Webcams Aim to Solve New York’s Restaurant Line Problem**\
+**Can Webcams Help Solve New York’s Restaurant Line Problem?**\
 `With carefully positioned cameras and user input, the website Damn Lines hopes to address the worst part of visiting popular restaurants.`\
 https://www.nytimes.com/2026/04/16/dining/damn-lines-new-york.html
 
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/04/16/arts/design/thomas-j-price-v-and-a-east.html
 **‘Lee Cronin’s The Mummy’ Review: Fresh From the Sarcophagus**\
 `The movie revives one of cinema’s unforgettable monsters with a macabre makeover, but it spins out in the attempt.`\
 https://www.nytimes.com/2026/04/16/movies/lee-cronins-the-mummy-review.html
-
-****\
-``\
-https://www.nytimes.com/video/embedded/admin/100000010844573/Hegseth-1-27533.html
-
-**Watch Live: Defense Officials Brief Reporters on Iran**\
-`Defense Secretary Pete Hegseth and Gen. Dan Caine, chairman of the Joint Chiefs of Staff, speak at the Pentagon about the war in the Middle East.`\
-https://www.nytimes.com/video/embedded/world/middleeast/100000010844494/watch-live-defense-officials-brief-reporters-on-iran.html
-
-**Sri Lanka Uses U.S.-Iran Cease-Fire to Repatriate Iranian Sailors**\
-`Sri Lanka had been refusing to send back the Iranian Navy personnel, including survivors from a warship that the United States torpedoed, during active hostilities.`\
-https://www.nytimes.com/2026/04/16/world/asia/iran-sri-lanka-sailors.html
-
-**What LIV Golf’s Demise Means for Saudi Influence**\
-`The upstart golf circuit couldn’t conquer the sport, despite big spending by Saudi Arabia. Its end signals limits to how much the country will spend.`\
-https://www.nytimes.com/2026/04/16/business/dealbook/liv-golf-saudi-arabia.html
-
-**‘Blessed Are the Peacemakers,’ Pope Says Amid Standoff With Trump**\
-`For days, Pope Leo XIV has attracted criticism from President Trump and his allies for refusing to back the war in Iran. On Thursday, he reiterated his calls for peace.`\
-https://www.nytimes.com/2026/04/16/world/africa/pope-leo-trump-peace.html
 
