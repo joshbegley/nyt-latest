@@ -1,3 +1,15 @@
+**A Look at the Plans for Trump’s ‘Triumphal Arch’**\
+`The structure proposed for President Trump’s arch would be 250 feet, more than twice the height of the Lincoln Memorial. It would sit near Arlington National Cemetery. A commission filled with Trump appointees is to review plans on Thursday.`\
+https://www.nytimes.com/video/us/politics/100000010844205/a-look-at-the-plans-for-trumps-triumphal-arch.html
+
+**The Right-Wing Takeover of Combat Sports Is Upon Us**\
+`Pablo on TKO’s rise and how Dana White’s alliances may favor profits over fighters and fans.`\
+https://www.nytimes.com/2026/04/16/podcasts/right-wing-takeover-combat-sports-mma-ufc.html
+
+**Israeli and Lebanese Leaders Will Speak Thursday, Trump Says**\
+`Neither side confirmed a meeting. Israeli and Lebanese officials have said a cease-fire in the war against Hezbollah is under consideration.`\
+https://www.nytimes.com/2026/04/16/world/middleeast/israel-lebanon-talks-trump.html
+
 **Xi Courts Vietnam With His Authoritarian Vision of Security**\
 `China used a visit by the Vietnamese leader to show a deepening of security ties that analysts say far outpaces U.S. defense ties in the region.`\
 https://www.nytimes.com/2026/04/16/world/asia/xi-china-vietnam-security.html

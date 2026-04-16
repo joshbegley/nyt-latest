@@ -1,3 +1,15 @@
+**A Look at the Plans for Trump’s ‘Triumphal Arch’**\
+`The structure proposed for President Trump’s arch would be 250 feet, more than twice the height of the Lincoln Memorial. It would sit near Arlington National Cemetery. A commission filled with Trump appointees is to review plans on Thursday.`\
+https://www.nytimes.com/video/us/politics/100000010844205/a-look-at-the-plans-for-trumps-triumphal-arch.html
+
+**The Right-Wing Takeover of Combat Sports Is Upon Us**\
+`Pablo on TKO’s rise and how Dana White’s alliances may favor profits over fighters and fans.`\
+https://www.nytimes.com/2026/04/16/podcasts/right-wing-takeover-combat-sports-mma-ufc.html
+
+**Israeli and Lebanese Leaders Will Speak Thursday, Trump Says**\
+`Neither side confirmed a meeting. Israeli and Lebanese officials have said a cease-fire in the war against Hezbollah is under consideration.`\
+https://www.nytimes.com/2026/04/16/world/middleeast/israel-lebanon-talks-trump.html
+
 **Xi Courts Vietnam With His Authoritarian Vision of Security**\
 `China used a visit by the Vietnamese leader to show a deepening of security ties that analysts say far outpaces U.S. defense ties in the region.`\
 https://www.nytimes.com/2026/04/16/world/asia/xi-china-vietnam-security.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/16/nyregion/mamdani-landlords-insurance.html
 **Mamdani Enlists Philanthropists to Raise $20 Million for Child Care**\
 `Mayor Zohran Mamdani of New York will announce a campaign to raise money from private donors through a city-run nonprofit to support his child care plan. He already has raised $3.5 million.`\
 https://www.nytimes.com/2026/04/16/nyregion/mamdani-child-care-donations-nonprofit.html
-
-**New York City to Spend $4 Billion From Pension Funds on Affordable Homes**\
-`The money could jump-start affordable housing projects across the metropolitan region.`\
-https://www.nytimes.com/2026/04/16/nyregion/nyc-pension-funds-affordable-housing.html
-
-**Jesus Memes, Threats and a War in Iran: A Portrait of Trump Under Pressure**\
-`President Trump has lashed out at enemies, allies and even the pope, and made it harder for Republicans to keep the focus on economic issues in a midterm election year.`\
-https://www.nytimes.com/2026/04/16/us/politics/trump-under-pressure.html
-
-**Homes for Sale in New York and New Jersey**\
-`This week’s properties are four-bedroom homes in Oyster Bay Cove, N.Y., and Plainsboro, N.J.`\
-https://www.nytimes.com/2026/04/16/realestate/housing-market-near-nyc.html
 
