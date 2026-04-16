@@ -1,3 +1,7 @@
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/04/16/t-magazine/tk.html
+
 **Ellison Pledges at Least 30 Paramount-Warner Movies a Year**\
 `His remarks at a movie theater convention were part of a campaign to win Hollywood support for his bid to buy Warner Bros. Discovery.`\
 https://www.nytimes.com/2026/04/16/business/media/david-ellison-paramount-warner-movies-theaters.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/16/t-magazine/nettles-cooking-chefs.html
 **Forced into a corner by the U.S., Netanyahu agrees to a cease-fire in Lebanon.**\
 ``\
 https://www.nytimes.com/live/2026/04/16/world/iran-war-trump-lebanon-news/forced-into-a-corner-by-the-us-netanyahu-agrees-to-a-cease-fire-in-lebanon
-
-**How Newsom Boosted His Book Sales With $1.5 Million From His PAC**\
-`Gov. Gavin Newsom offered supporters who gave any amount a copy of his book. Roughly 67,000 donors received the memoir, accounting for roughly two-thirds of its total print sales.`\
-https://www.nytimes.com/2026/04/16/us/politics/newsom-book-donors.html
 
