@@ -1,3 +1,11 @@
+**The Long-Term Plan to Scrub Carbon From the Sky**\
+`Microsoft is pulling back from efforts to remove carbon from the atmosphere. But the nascent industry’s proponents say they are thinking in decades, not years.`\
+https://www.nytimes.com/2026/04/16/climate/the-long-term-plan-to-scrub-carbon-from-the-sky.html
+
+**Trump Administration Will Release 2nd Ave. Subway Funding, in Reversal**\
+`The Metropolitan Transportation Authority, which runs New York City’s subway system, had sued the federal government for withholding nearly $60 million in funding.`\
+https://www.nytimes.com/2026/04/16/nyregion/2nd-avenue-subway-mta-trump.html
+
 **‘Ay de quienes manipulan la religión’, dice el papa en su enfrentamiento con Trump**\
 `Durante días, el papa León XIV ha suscitado las críticas del presidente y sus aliados por negarse a respaldar la guerra en Irán. El jueves, volvió a llamar a la paz.`\
 https://www.nytimes.com/es/2026/04/16/espanol/mundo/papa-trump-religion-paz.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/opinion/100000010840121/why-young-men-want-to-be-w
 **When Older Women Date Younger Men**\
 `There’s a growing trend of younger men dating older women — and unlike the backlash older men face, this shift can be perceived as women reclaiming their power, Emily Leibert argues on “The Opinions.”`\
 https://www.nytimes.com/video/opinion/100000010844671/when-older-women-date-younger-men.html
-
-**5 New Books We Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://www.nytimes.com/2026/04/16/books/review/new-recommended-books.html
-
-**Artemis II Crew Discusses NASA Moon Mission and What Comes Next**\
-`The four astronauts, who last spoke to the public on Sunday, are speaking at a news conference Thursday afternoon at Johnson Space Center in Houston.`\
-https://www.nytimes.com/2026/04/16/science/artemis-ii-astronauts-moon-mission-press-conference.html
 

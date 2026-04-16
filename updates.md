@@ -1,3 +1,11 @@
+**The Long-Term Plan to Scrub Carbon From the Sky**\
+`Microsoft is pulling back from efforts to remove carbon from the atmosphere. But the nascent industry’s proponents say they are thinking in decades, not years.`\
+https://www.nytimes.com/2026/04/16/climate/the-long-term-plan-to-scrub-carbon-from-the-sky.html
+
+**Trump Administration Will Release 2nd Ave. Subway Funding, in Reversal**\
+`The Metropolitan Transportation Authority, which runs New York City’s subway system, had sued the federal government for withholding nearly $60 million in funding.`\
+https://www.nytimes.com/2026/04/16/nyregion/2nd-avenue-subway-mta-trump.html
+
 **‘Ay de quienes manipulan la religión’, dice el papa en su enfrentamiento con Trump**\
 `Durante días, el papa León XIV ha suscitado las críticas del presidente y sus aliados por negarse a respaldar la guerra en Irán. El jueves, volvió a llamar a la paz.`\
 https://www.nytimes.com/es/2026/04/16/espanol/mundo/papa-trump-religion-paz.html
