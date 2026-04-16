@@ -1,3 +1,7 @@
+**Hegseth Again Threatens Attacks on Iran’s Civilian Infrastructure**\
+`The U.S. blockade of shipments through the Strait of Hormuz would last “for as long as it takes,” the defense secretary said.`\
+https://www.nytimes.com/2026/04/16/us/politics/hegseth-military-iran-blockade.html
+
 **Judge Again Halts Aboveground Construction on Trump’s Ballroom**\
 `A federal judge wrote that an exception he made for work on security features did not cover most of the construction on the larger ballroom project Trump has proposed.`\
 https://www.nytimes.com/2026/04/16/us/politics/trump-ballroom-judge-halt.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/16/us/politics/the-docket-supreme-court-penn-tel
 **Senate Votes to Allow Mining Near Minnesota Wilderness**\
 `The move was a victory for a Chilean company that wants to build a copper and nickel mine, which environmentalists say could devastate fragile lakes and forests.`\
 https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote.html
-
-**Science Practice | A Study on Why Falling Cats Always Seem to Land on Their Feet**\
-`New research suggests that cats have a highly flexible segment of their spines, allowing them to correct their orientation midair.`\
-https://www.nytimes.com/2026/04/16/learning/science-practice-a-study-on-why-falling-cats-always-seem-to-land-on-their-feet.html
 
