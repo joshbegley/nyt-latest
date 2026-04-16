@@ -1,3 +1,7 @@
+**I Almost Never Predict Supreme Court Outcomes. Trump Will Lose This Case.**\
+`This immigration case is really about procedure.`\
+https://www.nytimes.com/2026/04/16/opinion/supreme-court-trump-immigration.html
+
 **Muchos migrantes en EE. UU. temen declarar impuestos, y eso podría causarle problemas al fisco**\
 `El temor a que el IRS comparta sus datos con el ICE ha convertido la temporada de la declaración de la renta en una apuesta arriesgada para muchos migrantes. El Laboratorio Presupuestario de Yale prevé una pérdida de unos 300.000 millones de dólares en una década.`\
 https://www.nytimes.com/es/2026/04/16/espanol/estados-unidos/migrantes-miedo-irs-impuestos.html
