@@ -1,3 +1,27 @@
+**Two Magicians Warn the Supreme Court About Junk Science**\
+`Penn & Teller filed a Supreme Court brief questioning the use of “investigative hypnosis” in a death-penalty case in Texas.`\
+https://www.nytimes.com/2026/04/16/us/politics/the-docket-supreme-court-penn-teller.html
+
+**Senate Votes to Allow Mining Near Minnesota Wilderness**\
+`The move was a victory for a Chilean company that wants to build a copper and nickel mine, which environmentalists say could devastate fragile lakes and forests.`\
+https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote.html
+
+**Science Practice | A Study on Why Falling Cats Always Seem to Land on Their Feet**\
+`New research suggests that cats have a highly flexible segment of their spines, allowing them to correct their orientation midair.`\
+https://www.nytimes.com/2026/04/16/learning/science-practice-a-study-on-why-falling-cats-always-seem-to-land-on-their-feet.html
+
+**A Baker, Cardamom Buns and Allegations of a $3.8 Million Scam**\
+`A baker at the church’s popular cafe in Midtown Manhattan was accused of swindling nearly $4 million from the church’s donations and bequests.`\
+https://www.nytimes.com/2026/04/16/nyregion/church-sweden-coffee-shop.html
+
+**Condé Nast Shutters Self Magazine**\
+`The publishing giant is also closing the international editions of Glamour Magazine in Germany, Spain and Mexico.`\
+https://www.nytimes.com/2026/04/16/business/media/conde-nast-self-glamour-magazine.html
+
+**Justice Dept. Appealing Surveillance Court Ruling Amid Congressional Impasse**\
+`The court had barred national security agencies from using certain tools to process Americans’ data gathered under Section 702 of the Foreign Intelligence Surveillance Act, which expires on Monday.`\
+https://www.nytimes.com/2026/04/16/us/politics/fisa-ruling-appeal.html
+
 ****\
 ``\
 https://www.nytimes.com/video/embedded/us/politics/100000010844838/16vid-RFK-Jr-Hearing-22869.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/04/16/realestate/homes-for-sale-manhattan-brooklyn.
 **Can Webcams Help Solve New York’s Restaurant Line Problem?**\
 `With carefully positioned cameras and user input, the website Damn Lines hopes to address the worst part of visiting popular restaurants.`\
 https://www.nytimes.com/2026/04/16/dining/damn-lines-new-york.html
-
-**Democrats Make Final Push to Delay Confirmation Hearing of Trump’s Fed Pick**\
-`Kevin M. Warsh is scheduled to testify on Tuesday despite an ongoing criminal investigation into the chair of the Federal Reserve that stands in the way of a smooth transition.`\
-https://www.nytimes.com/2026/04/16/business/warsh-fed-democrats-confirmation.html
-
-**‘One Flew Over the Cuckoo’s Nest’ Returns With Contemporary Bite**\
-`A new London production highlights the story’s racial element and shows how much has changed since the play’s 1963 premiere.`\
-https://www.nytimes.com/2026/04/16/theater/one-flew-over-the-cuckoos-nest-old-vic-london.html
-
-**Why China Won’t Lean Hard on Iran**\
-`Despite the economic risks from the war, Beijing will likely stick to a hands-off approach. It is wary of being entangled in a conflict it opposed and has little sway over.`\
-https://www.nytimes.com/2026/04/16/world/asia/china-iran-trump-diplomacy-hormuz.html
-
-**Utah Becomes the New Center of U.S. Measles Cases**\
-`Nearly 600 people have been sickened across the state, which has seen an increase in vaccine exemptions among children in recent years.`\
-https://www.nytimes.com/2026/04/16/well/measles-cases-utah.html
-
-**A Sculptor’s Life, in Constant Motion**\
-`A career-spanning Alexander Calder exhibition in Paris turns the viewer into a collaborator and lifts the soul.`\
-https://www.nytimes.com/2026/04/16/arts/design/alexander-calder-fondation-louis-vuitton.html
-
-**Pilots Went Viral for Meowing on the Radio. The F.A.A. Was Not Amused.**\
-`The Federal Aviation Administration said that it was investigating the interaction, and that pilots were banned from “nonessential communication” below a certain altitude.`\
-https://www.nytimes.com/2026/04/16/us/pilots-meow-bark-air-traffic-control-faa.html
 
