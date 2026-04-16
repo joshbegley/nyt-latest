@@ -1,3 +1,15 @@
+**Judge Again Halts Aboveground Construction on Trump’s Ballroom**\
+`A federal judge wrote that an exception he made for work on security features did not cover most of the construction on the larger ballroom project Trump has proposed.`\
+https://www.nytimes.com/2026/04/16/us/politics/trump-ballroom-judge-halt.html
+
+**Broccoli For Dinner, Strawberries for Dessert**\
+`Follow this vegan broccoli rabe pasta with a five-star spoon cake.`\
+https://www.nytimes.com/2026/04/16/dining/broccoli-for-dinner-strawberries-for-dessert.html
+
+**Coming to Broadway: Molière, ‘The Full Monty’ and a Play About D.J.s**\
+`Roundabout Theater Company, one of the four nonprofits with Broadway houses, plans three Broadway shows next season.`\
+https://www.nytimes.com/2026/04/16/theater/moliere-morisseau-full-monty-broadway-roundabout-theater-company.html
+
 **An Apparent Overdose, a Hospitalization and a Club Opening**\
 `A harrowing incident involving Clavicular, ambassador to the “looksmaxxing” community, was captured on the same platforms that made him a star.`\
 https://www.nytimes.com/2026/04/16/style/clavicular-overdose-braden-peters.html

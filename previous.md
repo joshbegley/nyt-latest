@@ -1,3 +1,15 @@
+**Judge Again Halts Aboveground Construction on Trump’s Ballroom**\
+`A federal judge wrote that an exception he made for work on security features did not cover most of the construction on the larger ballroom project Trump has proposed.`\
+https://www.nytimes.com/2026/04/16/us/politics/trump-ballroom-judge-halt.html
+
+**Broccoli For Dinner, Strawberries for Dessert**\
+`Follow this vegan broccoli rabe pasta with a five-star spoon cake.`\
+https://www.nytimes.com/2026/04/16/dining/broccoli-for-dinner-strawberries-for-dessert.html
+
+**Coming to Broadway: Molière, ‘The Full Monty’ and a Play About D.J.s**\
+`Roundabout Theater Company, one of the four nonprofits with Broadway houses, plans three Broadway shows next season.`\
+https://www.nytimes.com/2026/04/16/theater/moliere-morisseau-full-monty-broadway-roundabout-theater-company.html
+
 **An Apparent Overdose, a Hospitalization and a Club Opening**\
 `A harrowing incident involving Clavicular, ambassador to the “looksmaxxing” community, was captured on the same platforms that made him a star.`\
 https://www.nytimes.com/2026/04/16/style/clavicular-overdose-braden-peters.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote.html
 **Science Practice | A Study on Why Falling Cats Always Seem to Land on Their Feet**\
 `New research suggests that cats have a highly flexible segment of their spines, allowing them to correct their orientation midair.`\
 https://www.nytimes.com/2026/04/16/learning/science-practice-a-study-on-why-falling-cats-always-seem-to-land-on-their-feet.html
-
-**A Baker, Cardamom Buns and Allegations of a $3.8 Million Scam**\
-`A baker at the Church of Sweden’s popular cafe in Midtown Manhattan was accused of swindling nearly $4 million from the church’s donations and bequests.`\
-https://www.nytimes.com/2026/04/16/nyregion/church-sweden-coffee-shop.html
-
-**Condé Nast Shutters Self Magazine**\
-`The publishing giant is also closing the international editions of Glamour Magazine in Germany, Spain and Mexico.`\
-https://www.nytimes.com/2026/04/16/business/media/conde-nast-self-glamour-magazine.html
-
-**Justice Dept. Appealing Surveillance Court Ruling Amid Congressional Impasse**\
-`The court had barred national security agencies from using certain tools to process Americans’ data gathered under Section 702 of the Foreign Intelligence Surveillance Act, which expires on Monday.`\
-https://www.nytimes.com/2026/04/16/us/politics/fisa-ruling-appeal.html
 
