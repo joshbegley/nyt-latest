@@ -1,3 +1,15 @@
+**Democrats Confront RFK Jr. on Vaccines and Health Care Fraud**\
+`Lawmakers confronted Robert F. Kennedy Jr. on vaccine messaging and the Trump administration’s handling of health care fraud. The health secretary was also criticized over comments he made about psychiatric medications and Black children, which he denied.`\
+https://www.nytimes.com/video/us/politics/100000010845645/rfk-jr-congress-hearing-democrats.html
+
+**The Failure of Donald Trump**\
+`President Trump’s efforts to rule through executive order on issues like tariffs and birthright citizenship have largely failed — and will continue to fail — the conservative court watcher Sarah Isgur argues on “Interesting Times.”`\
+https://www.nytimes.com/video/opinion/100000010835252/the-failure-of-donald-trump.html
+
+**Israel and Lebanon Agree to a Cease-Fire**\
+`Also, Utah is now the epicenter of U.S. measles cases. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/04/16/briefing/israel-lebanon-cease-fire.html
+
 **Mamdani Says He Plans to Skip the Met Gala**\
 `In an interview with the local news outfit Hell Gate, Mayor Mamdani framed his decision to avoid the glitzy fund-raiser as a way to keep his focus on affordability.`\
 https://www.nytimes.com/2026/04/16/style/met-gala-mayor-mamdani-nyc.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/16/world/europe/peter-mandelson-epstein-starmer-
 **Despite Cease-Fire, Iran’s Hackers Haven’t Logged Off**\
 `Tehran’s digital warriors have continued to seek ways to gain an advantage in the conflict in a new phase of cyberspace operations.`\
 https://www.nytimes.com/2026/04/16/us/politics/iran-war-hacking-cyberattacks.html
-
-**Pentagon Seeks Help From Ford and G.M.**\
-`Concerned about the slow pace and high cost of weapons production, Pentagon officials have begun talks with General Motors and Ford Motor about producing certain parts.`\
-https://www.nytimes.com/2026/04/16/business/pentagon-ford-general-motors-defense-production.html
-
-**Reed Hastings to Step Down as Netflix Chair**\
-`The co-founder of the streaming giant will leave its board in June, the company said.`\
-https://www.nytimes.com/2026/04/16/business/media/reed-hastings-netflix-chair.html
-
-**NPR Receives $113 Million From 2 Gifts**\
-`The donations, from the philanthropist Connie Ballmer and an anonymous donor, will support the network’s long-term strategy.`\
-https://www.nytimes.com/2026/04/16/business/media/npr-133-million-donation-ballmer.html
 
