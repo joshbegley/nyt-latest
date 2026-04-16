@@ -1,3 +1,7 @@
+**Hillary Clinton’s Plan to Help Families**\
+`Readers respond to “How to Fix Affordability,” an Opinion guest essay by Hillary Clinton. Also: President Trump’s arch; protests and litigation.`\
+https://www.nytimes.com/2026/04/16/opinion/hillary-clinton-plan-families.html
+
 **Taking the Train to a Single World Cup Match Could Cost $150**\
 `The extraordinary price for a round-trip train ticket from New York City to New Jersey would offset the $48 million in expected extra transit costs during the FIFA World Cup games, according to people familiar with the plan.`\
 https://www.nytimes.com/2026/04/16/nyregion/nj-transit-ticket-price-world-cup.html

@@ -1,3 +1,7 @@
+**Hillary Clinton’s Plan to Help Families**\
+`Readers respond to “How to Fix Affordability,” an Opinion guest essay by Hillary Clinton. Also: President Trump’s arch; protests and litigation.`\
+https://www.nytimes.com/2026/04/16/opinion/hillary-clinton-plan-families.html
+
 **Taking the Train to a Single World Cup Match Could Cost $150**\
 `The extraordinary price for a round-trip train ticket from New York City to New Jersey would offset the $48 million in expected extra transit costs during the FIFA World Cup games, according to people familiar with the plan.`\
 https://www.nytimes.com/2026/04/16/nyregion/nj-transit-ticket-price-world-cup.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/world/middleeast/100000010844521/iran-war-peace-ta
 **ICE Arrests 85-Year-Old French Widow Who Married Her G.I. Sweetheart**\
 `After Marie-Thérèse Ross-Mahé’s husband died, an inheritance battle exploded. Her stepson then used his influence to have her arrested, an Alabama probate judge said.`\
 https://www.nytimes.com/2026/04/16/us/ice-detention-alabama-french-woman.html
-
-**Two Magicians Warn the Supreme Court About Junk Science**\
-`Penn & Teller filed a Supreme Court brief questioning the use of “investigative hypnosis” in a death-penalty case in Texas.`\
-https://www.nytimes.com/2026/04/16/us/politics/the-docket-supreme-court-penn-teller.html
 
