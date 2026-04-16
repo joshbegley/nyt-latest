@@ -1,3 +1,7 @@
+**How Trump’s Blockade of the Strait of Hormuz Works**\
+`Our business reporter Peter Eavis breaks down how American military ships have blocked Iranian-linked vessels from using the Strait of Hormuz as the U.S. encourages other vessels to make the passage.`\
+https://www.nytimes.com/video/world/middleeast/100000010840310/how-trumps-blockade-of-the-strait-of-hormuz-works.html
+
 **Panel Advances Trump’s Triumphal Arch, Even as Key Member Suggests Changes**\
 `The Commission of Fine Arts, a Trump-aligned advisory body, granted preliminary approval. But its vice chairman suggested losing statues atop the structure and other revisions before a final vote.`\
 https://www.nytimes.com/2026/04/16/us/politics/trump-triumphal-arch.html
@@ -26,8 +30,8 @@ https://www.nytimes.com/video/opinion/100000010844671/when-older-women-date-youn
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/04/16/books/review/new-recommended-books.html
 
-**Artemis II Crew Discuss NASA Moon Mission and What Comes Next**\
-`The four astronauts, who last spoke to the public on Sunday, will speak at a news conference Thursday afternoon at Johnson Space Center in Houston.`\
+**Artemis II Crew Discusses NASA Moon Mission and What Comes Next**\
+`The four astronauts, who last spoke to the public on Sunday, are speaking at a news conference Thursday afternoon at Johnson Space Center in Houston.`\
 https://www.nytimes.com/2026/04/16/science/artemis-ii-astronauts-moon-mission-press-conference.html
 
 **Hillary Clinton’s Plan to Help Families**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/16/us/minnesota-prosecution-ice-agent.html
 **Former N.B.A. Player Is Expected to Plead Guilty in Gambling Scandal**\
 `Damon Jones, who spent more than a decade in the N.B.A., was accused of providing inside information about injured players to professional gamblers.`\
 https://www.nytimes.com/2026/04/16/nyregion/damon-jones-nba-gambling.html
-
-**Would You Wear Your Bed to Work?**\
-`This season, fashion designers have gone all in on what‘s been called bedcore, whether it’s bedwear as outerwear, underwear or something in between. T Magazine‘s Nick Haramis traces its evolution for a new video series called Anatomy of a Trend.`\
-https://www.nytimes.com/video/t-magazine/100000010838543/would-you-wear-your-bed-to-work.html
 
