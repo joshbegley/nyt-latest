@@ -1,3 +1,15 @@
+**This Is Where Donald Trump Loses**\
+`President Trump won’t be able to defy the courts if he loses his Supreme Court case on birthright citizenship, which he is likely to do, the conservative court watcher Sarah Isgur argues on “Interesting Times.”`\
+https://www.nytimes.com/video/opinion/100000010835254/this-is-where-donald-trump-loses.html
+
+**Israel and Lebanon Agree to a Cease-Fire Deal**\
+`Also, Utah is now the epicenter of U.S. measles cases. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/04/16/briefing/israel-lebanon-cease-fire.html
+
+**The cease-fire goes into effect after Israel and Hezbollah exchange fire.**\
+`Israeli and Lebanese officials had confirmed they would implement the truce. Hezbollah acknowledged the cease-fire, but did not directly address whether it would follow it.`\
+https://www.nytimes.com/2026/04/16/world/middleeast/cease-fire-in-lebanon-set-to-take-effect.html
+
 **Democrats Confront RFK Jr. on Vaccines and Health Care Fraud**\
 `Lawmakers confronted Robert F. Kennedy Jr. on vaccine messaging and the Trump administration’s handling of health care fraud. The health secretary was also criticized over comments he made about psychiatric medications and Black children, which he denied.`\
 https://www.nytimes.com/video/us/politics/100000010845645/rfk-jr-congress-hearing-democrats.html
