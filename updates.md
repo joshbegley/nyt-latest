@@ -1,3 +1,15 @@
+**National Security. Artificial Intelligence. And Your Dumb Dog.**\
+`We’re covering today’s top stories.`\
+https://www.nytimes.com/2026/04/16/briefing/national-security-artificial-intelligence-and-your-dumb-dog.html
+
+**South African Politician Julius Malema Is Sentenced to 5 Years in Prison**\
+`The leftist lawmaker has been a prime target of President Trump’s attacks on South Africa. The ruling, handed down after a conviction on gun charges, leaves Mr. Malema’s political future in doubt.`\
+https://www.nytimes.com/2026/04/16/world/africa/south-africa-malema-sentencing-prison.html
+
+**Russia Launches Largest Barrage on Ukrainian Cities in Months**\
+`At least 15 people died after Russia flew more than 700 drones and missiles across Ukrainian cities, according to the Ukrainian Air Force.`\
+https://www.nytimes.com/video/world/europe/100000010844325/russia-ukraine-attacks.html
+
 **El papa en África**\
 `El continente es crucial para el futuro de la Iglesia, pero también es el foco de tensiones de larga data en torno a algunos de los temas más delicados del catolicismo.`\
 https://www.nytimes.com/es/2026/04/16/espanol/mundo/papa-leon-africa.html
