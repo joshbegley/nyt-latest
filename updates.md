@@ -1,3 +1,7 @@
+**Hegseth Again Threatens Attacks on Iran’s Civilian Infrastructure**\
+`The U.S. blockade of shipments through the Strait of Hormuz would last “for as long as it takes,” the defense secretary said.`\
+https://www.nytimes.com/2026/04/16/us/politics/hegseth-military-iran-blockade.html
+
 **Judge Again Halts Aboveground Construction on Trump’s Ballroom**\
 `A federal judge wrote that an exception he made for work on security features did not cover most of the construction on the larger ballroom project Trump has proposed.`\
 https://www.nytimes.com/2026/04/16/us/politics/trump-ballroom-judge-halt.html
