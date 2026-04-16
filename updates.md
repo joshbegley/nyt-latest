@@ -1,3 +1,7 @@
+**Fast Fliers**\
+`Rafael Musa and Sala Wanetick tag-team this tremendous Thursday.`\
+https://www.nytimes.com/2026/04/15/crosswords/daily-puzzle-2026-04-16.html
+
 **Summer in April? Temperatures Hit 90 Along the East Coast.**\
 `Remember those grimy snow piles that just wouldn’t melt? They’re gone now.`\
 https://www.nytimes.com/2026/04/15/weather/nyc-dc-heat-temperatures-forecast.html

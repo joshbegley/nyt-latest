@@ -1,3 +1,7 @@
+**Fast Fliers**\
+`Rafael Musa and Sala Wanetick tag-team this tremendous Thursday.`\
+https://www.nytimes.com/2026/04/15/crosswords/daily-puzzle-2026-04-16.html
+
 **Summer in April? Temperatures Hit 90 Along the East Coast.**\
 `Remember those grimy snow piles that just wouldn’t melt? They’re gone now.`\
 https://www.nytimes.com/2026/04/15/weather/nyc-dc-heat-temperatures-forecast.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/15/us/politics/supreme-court-sotomayor-kavanaugh
 **The Pied-à-Terre Tax Has Failed Before. Could This Year Be Different?**\
 `Amid calls from the left to tax the rich, a tax proposal on multimillion-dollar second homes in New York City, backed by Gov. Kathy Hochul, seems to have better odds of passing than in years past.`\
 https://www.nytimes.com/2026/04/15/nyregion/pied-a-terre-tax.html
-
-**Stocks Hit a Record High**\
-`Also, Pakistani mediators arrive in Iran. Here’s the latest at the end of Wednesday.`\
-https://www.nytimes.com/2026/04/15/briefing/stocks-hit-a-record-high.html
 
