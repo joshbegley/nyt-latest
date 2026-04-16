@@ -1,3 +1,11 @@
+****\
+``\
+https://www.nytimes.com/video/embedded/admin/100000010844596/Hegseth-3-80920.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/admin/100000010844575/Hegseth-2-18438.html
+
 **Virginia Ex-Lt. Gov. Justin Fairfax Kills Wife and Self, Police Say**\
 `Mr. Fairfax, a Democrat, served as lieutenant governor from 2018 to 2022.`\
 https://www.nytimes.com/2026/04/16/us/virginia-lt-governor-justin-fairfax-murder-wife-suicide.html
