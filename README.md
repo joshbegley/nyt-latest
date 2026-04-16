@@ -1,3 +1,27 @@
+**What the U.S. Blockade Means for Iran’s Economy**\
+`Putting a stop to Iranian shipping will further add to Iran’s economic pain, analysts said, but it might not be enough to force concessions or lessen the global energy crunch.`\
+https://www.nytimes.com/2026/04/16/business/economy/iran-oil-blockade.html
+
+**Trump vs. the Pope**\
+`Pope Leo XIV responds to President Trump’s lashing out over the war in Iran.`\
+https://www.nytimes.com/2026/04/16/podcasts/the-daily/trump-pope-leo-iran-war.html
+
+**Connections Companion No. 1,041**\
+`Scroll down for hints and conversation about the puzzle for Friday, April 17, 2026.`\
+https://www.nytimes.com/2026/04/16/crosswords/connections-companion-1041.html
+
+**Strands Sidekick No. 775**\
+`Scroll down for hints and conversation about the puzzle for Friday, April 17, 2026.`\
+https://www.nytimes.com/2026/04/16/crosswords/strands-sidekick-775.html
+
+**Wordle Review No. 1,763**\
+`Scroll down for hints and conversation about the puzzle for Friday, April 17, 2026.`\
+https://www.nytimes.com/2026/04/16/crosswords/wordle-review-1763.html
+
+**Trump’s Scattershot Week, and a Stock Market Record**\
+`Plus, forget sneakers — Allbirds is going A.I.`\
+https://www.nytimes.com/2026/04/16/podcasts/the-headlines/trump-scattershot-week-stock-market-record-allbirds.html
+
 **The Slow-Motion Battle for Hormuz**\
 `Iran’s stranglehold over the waterway completely reshaped shipping during the war. The U.S. naval blockade is an attempt to stop that.`\
 https://www.nytimes.com/interactive/2026/04/16/world/middleeast/iran-us-strait-of-hormuz-blockade-map-ships.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/interactive/2026/04/16/realestate/brooklyn-downtown-fort
 **Maine Would Be First State to Pause New Data Centers, if Governor Signs Bill**\
 `The Democrat-controlled legislature passed the measure on Tuesday, but Gov. Janet Mills, a Democrat running for Senate, has yet to say whether she will sign it.`\
 https://www.nytimes.com/2026/04/16/us/maines-moratorium-data-centers.html
-
-**Orban’s Defeat Punctures Europe’s Far Right, but Also Offers It a Road Map**\
-`Corruption and economic mismanagement brought down Hungary’s authoritarian leader. Will his political disciples avoid those pitfalls?`\
-https://www.nytimes.com/2026/04/16/world/europe/orban-europe-trump-far-right.html
-
-**‘Greater New York’ Brings the Noisy, Messy Vitality of 53 Artists**\
-`The signature survey by MoMA PS 1 of  artists living and working in the city highlights those whose talent is often hidden in plain sight.`\
-https://www.nytimes.com/2026/04/16/arts/design/greater-new-york-moma-ps-1-queens-art.html
-
-**How the Supreme Court Defeated Trump**\
-`A conservative court watcher explains why the president has failed to bend the judicial branch to his will.`\
-https://www.nytimes.com/2026/04/16/opinion/supreme-court-trump.html
-
-**Are Parents Doing Too Much?**\
-`A guest essay argues that in an age of helicopter parenting, parents should consider “underachieving.” Do you agree?`\
-https://www.nytimes.com/2026/04/16/learning/are-parents-doing-too-much.html
-
-**The Rise of the Sugar Mommy Economy**\
-`What a shift in the dating preferences of younger men reveals about our changing norms.`\
-https://www.nytimes.com/2026/04/16/opinion/younger-men-dating-older-women.html
-
-**Mamdani Announces Plan to Lower Insurance Costs for Landlords**\
-`Mayor Zohran Mamdani of New York, acknowledging that landlords are struggling with rising costs, said a cheaper “publicly backed” program would aim to insure 100,000 homes by 2030.`\
-https://www.nytimes.com/2026/04/16/nyregion/mamdani-landlords-insurance.html
 
