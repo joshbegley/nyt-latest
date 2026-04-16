@@ -1,3 +1,7 @@
+**Stocks Extend Rally and Oil Prices Stabilize as Investor Optimism Grows**\
+`Oil prices stabilized and stocks rose on optimism that diplomatic talks could yield a permanent peace deal.`\
+https://www.nytimes.com/2026/04/16/business/oil-prices-gas-stocks.html
+
 **Lo que pasó luego de que Dinamarca adoptara una ciudad en ruinas de Ucrania**\
 `Mykolaiv fue adoptada por el gobierno danés al mes de empezar la guerra. Desde entonces, Dinamarca ha destinado el 60 por ciento de toda su ayuda a la reconstrucción de Ucrania a esta ciudad.`\
 https://www.nytimes.com/es/2026/04/16/espanol/mundo/dinamarca-adopto-ciudad-ucrania.html
