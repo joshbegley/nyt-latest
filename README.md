@@ -1,3 +1,11 @@
+**China’s Economy Leans on Infrastructure as Consumers Pull Back**\
+`A steep slide in housing prices has left consumers less prosperous and less willing to spend, but the government is pouring money into new rail lines and other projects.`\
+https://www.nytimes.com/2026/04/15/business/china-economy-growth.html
+
+**Lawyer John Eastman Disbarred for Efforts to Overturn 2020 Election**\
+`The California Supreme Court upheld a lower court’s decision that said Mr. Eastman, had violated the rules of professional ethics.`\
+https://www.nytimes.com/2026/04/15/us/john-eastman-disbarred-2020-election.html
+
 **Iran Will Be in U.S. for World Cup, FIFA Leader Says**\
 `The comments come as peace talks between Iran and the United States have not yet resumed and a cease-fire is set to expire next week.`\
 https://www.nytimes.com/2026/04/15/world/middleeast/iran-world-cup-fifa-us.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/15/world/africa/sudan-war-hunger-crisis.html
 **Done and Dusted? Trump’s Portrayal of the War in Iran Collides With Reality.**\
 `President Trump is confronting a crisis that is not bending to his narrative of a “pretty reasonable” new regime in Iran and all-but-assured victory for the United States.`\
 https://www.nytimes.com/2026/04/15/us/politics/trump-iran-war.html
-
-**Un funcionario brasileño incluyó a BYD en una lista de mano de obra esclava. Después, fue despedido**\
-`La salida del principal inspector de trabajo de Brasil ha puesto al gobierno del presidente Lula, político de izquierda y exdirigente sindical, en una situación incómoda.`\
-https://www.nytimes.com/es/2026/04/15/espanol/mundo/brasil-china-byd-esclavitud.html
-
-**2 Men Plead Not Guilty to Supporting ISIS in Gracie Mansion Attack**\
-`The defendants, Emir Balat, 18, and Ibrahim Kayumi, 19, face federal charges in the homemade-bomb attack on an anti-Muslim protest in March. No one was injured.`\
-https://www.nytimes.com/2026/04/15/nyregion/mamdani-gracie-mansion-attack-isis.html
 
