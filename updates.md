@@ -1,3 +1,11 @@
+**Review: ‘The Fear of 13’ Doesn’t Entirely Add Up**\
+`Adrien Brody and Tessa Thompson make confident Broadway debuts, but the uneven script makes for a narratively slippery prison drama.`\
+https://www.nytimes.com/2026/04/15/theater/fear-of-13-review-brody-thompson-broadway.html
+
+**China’s G.D.P. Stronger Than Expected, Led by Infrastructure Spending**\
+`A steep slide in housing prices has left consumers less prosperous and less willing to spend, but the government is pouring money into new rail lines and other projects.`\
+https://www.nytimes.com/2026/04/15/business/china-economy-growth.html
+
 **China’s Economy Leans on Infrastructure as Consumers Pull Back**\
 `A steep slide in housing prices has left consumers less prosperous and less willing to spend, but the government is pouring money into new rail lines and other projects.`\
 https://www.nytimes.com/2026/04/15/business/china-economy-growth.html
