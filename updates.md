@@ -1,3 +1,19 @@
+**White House Shrugs Off Shaky Economy as War Exceeds Trump’s Timeline**\
+`Stocks may be soaring again, but the war in Iran has started to pinch the finances of many Americans.`\
+https://www.nytimes.com/2026/04/16/us/politics/trump-economy-iran-war.html
+
+**Teachers Union Push to Cancel Class for May Day Irks Chicago Parents**\
+`Mayor Brandon Johnson, whose ties to the Chicago Teachers Union helped him win office, has signaled support. The school district and some parents object.`\
+https://www.nytimes.com/2026/04/16/us/chicago-teachers-union-protests-brandon-johnson.html
+
+**Homes for Sale in Manhattan and Brooklyn**\
+`This week’s properties are in Chelsea, Gramercy Park and Downtown Brooklyn.`\
+https://www.nytimes.com/2026/04/16/realestate/homes-for-sale-manhattan-brooklyn.html
+
+**These Webcams Aim to Solve New York’s Restaurant Line Problem**\
+`With carefully positioned cameras and user input, the website Damn Lines hopes to address the worst part of visiting popular restaurants.`\
+https://www.nytimes.com/2026/04/16/dining/damn-lines-new-york.html
+
 **A Huge Statue of a Black Woman Opens a New Door to London’s V&A**\
 `Thomas J Price’s bronze figures present anonymous Black people at heroic scale. After an installation in Times Square sparked a furor, his latest work welcomes visitors to a new museum outpost.`\
 https://www.nytimes.com/2026/04/16/arts/design/thomas-j-price-v-and-a-east.html
