@@ -1,3 +1,7 @@
+**Stephen Colbert Wants the Vice President to Lay Off the Pope**\
+`The “Late Show” host scolded JD Vance for suggesting that Pope Leo XIV “be careful when he talks about matters of theology.”`\
+https://www.nytimes.com/2026/04/16/arts/television/stephen-colbert-vance-pope.html
+
 **I Almost Never Predict Supreme Court Outcomes. Trump Will Lose This Case.**\
 `This immigration case is really about procedure.`\
 https://www.nytimes.com/2026/04/16/opinion/supreme-court-trump-immigration.html
