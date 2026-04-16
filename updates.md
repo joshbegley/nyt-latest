@@ -1,3 +1,11 @@
+**Muchos migrantes en EE. UU. temen declarar impuestos, y eso podría causarle problemas al fisco**\
+`El temor a que el IRS comparta sus datos con el ICE ha convertido la temporada de la declaración de la renta en una apuesta arriesgada para muchos migrantes. El Laboratorio Presupuestario de Yale prevé una pérdida de unos 300.000 millones de dólares en una década.`\
+https://www.nytimes.com/es/2026/04/16/espanol/estados-unidos/migrantes-miedo-irs-impuestos.html
+
+**This Law Consistently Bedevils Trump**\
+`This immigration case is really about procedure.`\
+https://www.nytimes.com/2026/04/16/opinion/supreme-court-trump-immigration.html
+
 **Drivers Stranded as Flooding Closes Major Highway in Milwaukee**\
 `Severe storms moving across the Midwest were bringing heavy rain and raising the risk of flash flooding, tornadoes and large hail.`\
 https://www.nytimes.com/2026/04/16/weather/milwaukee-weather-rain-flooding-cars.html
