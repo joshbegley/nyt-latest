@@ -1,3 +1,19 @@
+**Why Chefs Are Picking Up a Stinging Plant**\
+`Plus: lightweight lip oils, a hotel on a Danish island and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/04/16/t-magazine/nettles-cooking-chefs.html
+
+**Forced into a corner by the U.S., Netanyahu agrees to a cease-fire in Lebanon.**\
+``\
+https://www.nytimes.com/live/2026/04/16/world/iran-war-trump-lebanon-news/forced-into-a-corner-by-the-us-netanyahu-agrees-to-a-cease-fire-in-lebanon
+
+**How Newsom Boosted His Book Sales With $1.5 Million From His PAC**\
+`Gov. Gavin Newsom offered supporters who gave any amount a copy of his book. Roughly 67,000 donors received the memoir, accounting for roughly two-thirds of its total print sales.`\
+https://www.nytimes.com/2026/04/16/us/politics/newsom-book-donors.html
+
+**In Its ‘Greater New York’ Show, MoMA PS1 Focuses on the Here and Now**\
+`Even as the institution has grown and changed, it has continued to be a launchpad for emerging artists. This spring, it is putting 53 in the spotlight.`\
+https://www.nytimes.com/2026/04/16/arts/design/momaps1-greater-new-york.html
+
 **Politics News Site NOTUS to Become ‘The Star’**\
 `The Washington publication is rebranding as it expands its local news and sports coverage in the wake of substantial layoffs at The Washington Post.`\
 https://www.nytimes.com/2026/04/16/business/media/notus-news-to-become-the-star.html

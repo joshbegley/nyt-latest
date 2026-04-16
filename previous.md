@@ -1,3 +1,19 @@
+**Why Chefs Are Picking Up a Stinging Plant**\
+`Plus: lightweight lip oils, a hotel on a Danish island and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/04/16/t-magazine/nettles-cooking-chefs.html
+
+**Forced into a corner by the U.S., Netanyahu agrees to a cease-fire in Lebanon.**\
+``\
+https://www.nytimes.com/live/2026/04/16/world/iran-war-trump-lebanon-news/forced-into-a-corner-by-the-us-netanyahu-agrees-to-a-cease-fire-in-lebanon
+
+**How Newsom Boosted His Book Sales With $1.5 Million From His PAC**\
+`Gov. Gavin Newsom offered supporters who gave any amount a copy of his book. Roughly 67,000 donors received the memoir, accounting for roughly two-thirds of its total print sales.`\
+https://www.nytimes.com/2026/04/16/us/politics/newsom-book-donors.html
+
+**In Its ‘Greater New York’ Show, MoMA PS1 Focuses on the Here and Now**\
+`Even as the institution has grown and changed, it has continued to be a launchpad for emerging artists. This spring, it is putting 53 in the spotlight.`\
+https://www.nytimes.com/2026/04/16/arts/design/momaps1-greater-new-york.html
+
 **Politics News Site NOTUS to Become ‘The Star’**\
 `The Washington publication is rebranding as it expands its local news and sports coverage in the wake of substantial layoffs at The Washington Post.`\
 https://www.nytimes.com/2026/04/16/business/media/notus-news-to-become-the-star.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/16/opinion/english-grammar-elitism.html
 **What’s Going On in This Graph? | April 29, 2026**\
 `What relationship, if any, do these graphs suggest between gas prices and presidential approval ratings?`\
 https://www.nytimes.com/2026/04/16/learning/whats-going-on-in-this-graph-april-29-2026.html
-
-**Are You an International Student Looking for Work?**\
-`We want to understand how international students are navigating the current job market in the United States.`\
-https://www.nytimes.com/2026/04/16/us/international-students-callout.html
-
-**Woman Who Took 15 Tequila Shots on Carnival Cruise Gets $300,000 in Damages**\
-`The woman, who fell and injured herself, said in a lawsuit that bartenders had been negligent for serving her while she was visibly intoxicated.`\
-https://www.nytimes.com/2026/04/16/us/carnival-cruise-lawsuit-damages-tequila-shots.html
-
-**Bahrain Charges Intelligence Officer in the Death of a Detainee**\
-`The officer was charged with assault leading to death, in the case of a man who was accused by Bahraini authorities of espionage during a domestic crackdown tied to the war in Iran.`\
-https://www.nytimes.com/2026/04/16/world/middleeast/bahrain-detainee-death-charges.html
-
-**How Death Doulas Support the Living**\
-`Nicole Kidman recently said she wanted to become a death doula after wishing for more support at the end of her mother’s life.`\
-https://www.nytimes.com/2026/04/16/well/death-doulas-nicole-kidman.html
 
