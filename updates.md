@@ -1,3 +1,23 @@
+**An Apparent Overdose, a Hospitalization and a Club Opening**\
+`A harrowing incident involving Clavicular, ambassador to the “looksmaxxing” community, was captured on the same platforms that made him a star.`\
+https://www.nytimes.com/2026/04/16/style/clavicular-overdose-braden-peters.html
+
+**Venezuelan Doctor in South Texas Is Released From Immigration Custody**\
+`Dr. Ezequiel Veliz, a family physician who worked in an area that has a doctor shortage, was detained for 10 days. Another Venezuelan doctor remains locked up.`\
+https://www.nytimes.com/2026/04/16/us/texas-detained-venezuelan-doctor-released.html
+
+**White House Declines to Offer Congress an Estimate of Iran War Cost**\
+`Russell T. Vought, the White House budget director, said the fluctuating nature of the U.S.-Israeli war made it difficult to pinpoint expenses.`\
+https://www.nytimes.com/2026/04/16/world/middleeast/iran-war-cost-congress.html
+
+**ICE Agent Charged With Assault in Rare State Prosecution**\
+`Minnesota prosecutors have spent weeks investigating the conduct of immigration agents who took part in an immigration crackdown in the Twin Cities.`\
+https://www.nytimes.com/2026/04/16/us/minnesota-prosecution-ice-agent.html
+
+**ICE Arrests 85-Year-Old French Widow Who Married Her G.I. Sweetheart**\
+`After Marie-Thérèse Ross-Mahé’s husband died, an inheritance battle exploded. Her stepson then used his influence to have her arrested, an Alabama probate judge said.`\
+https://www.nytimes.com/2026/04/16/us/ice-detention-alabama-french-woman.html
+
 **Former N.B.A. Player Is Expected to Plead Guilty in Gambling Scandal**\
 `Damon Jones, who spent more than a decade in the N.B.A., was accused of providing inside information about injured players to professional gamblers.`\
 https://www.nytimes.com/2026/04/16/nyregion/damon-jones-nba-gambling.html
