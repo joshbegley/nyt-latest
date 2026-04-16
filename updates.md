@@ -1,3 +1,11 @@
+**China’s Economy Leans on Infrastructure as Consumers Pull Back**\
+`A steep slide in housing prices has left consumers less prosperous and less willing to spend, but the government is pouring money into new rail lines and other projects.`\
+https://www.nytimes.com/2026/04/15/business/china-economy-growth.html
+
+**Lawyer John Eastman Disbarred for Efforts to Overturn 2020 Election**\
+`The California Supreme Court upheld a lower court’s decision that said Mr. Eastman, had violated the rules of professional ethics.`\
+https://www.nytimes.com/2026/04/15/us/john-eastman-disbarred-2020-election.html
+
 **Iran Will Be in U.S. for World Cup, FIFA Leader Says**\
 `The comments come as peace talks between Iran and the United States have not yet resumed and a cease-fire is set to expire next week.`\
 https://www.nytimes.com/2026/04/15/world/middleeast/iran-world-cup-fifa-us.html
