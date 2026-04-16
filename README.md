@@ -1,3 +1,7 @@
+**Artemis II Crew to Discuss NASA Moon Mission and What Comes Next**\
+`The four astronauts, who last spoke to the public on Sunday, will speak at a news conference Thursday afternoon at Johnson Space Center in Houston.`\
+https://www.nytimes.com/2026/04/16/science/artemis-ii-astronauts-moon-mission-press-conference.html
+
 **Hillary Clinton’s Plan to Help Families**\
 `Readers respond to “How to Fix Affordability,” an Opinion guest essay by Hillary Clinton. Also: President Trump’s arch; protests and litigation.`\
 https://www.nytimes.com/2026/04/16/opinion/hillary-clinton-plan-families.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/16/espanol/opinion/internet-ia-fallos-codigo.
 **Diplomacy Efforts to End the Wars in the Middle East Intensify**\
 `A flurry of diplomatic efforts was underway to halt the fighting in the Middle East.`\
 https://www.nytimes.com/video/world/middleeast/100000010844521/iran-war-peace-talks-diplomacy.html
-
-**ICE Arrests 85-Year-Old French Widow Who Married Her G.I. Sweetheart**\
-`After Marie-Thérèse Ross-Mahé’s husband died, an inheritance battle exploded. Her stepson then used his influence to have her arrested, an Alabama probate judge said.`\
-https://www.nytimes.com/2026/04/16/us/ice-detention-alabama-french-woman.html
 
