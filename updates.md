@@ -1,3 +1,15 @@
+**Watch Live: Defense Officials Brief Reporters on Iran**\
+`Defense Secretary Pete Hegseth and Gen. Dan Caine, chairman of the Joint Chiefs of Staff, speak at the Pentagon about the war in the Middle East.`\
+https://www.nytimes.com/video/embedded/world/middleeast/100000010844494/watch-live-defense-officials-brief-reporters-on-iran.html
+
+**Sri Lanka Uses U.S.-Iran Cease-Fire to Repatriate Iranian Sailors**\
+`Sri Lanka had been refusing to send back the Iranian Navy personnel, including survivors from a warship that the United States torpedoed, during active hostilities.`\
+https://www.nytimes.com/2026/04/16/world/asia/iran-sri-lanka-sailors.html
+
+**What LIV Golf’s Demise Means for Saudi Influence**\
+`The upstart golf circuit couldn’t conquer the sport, despite big spending by Saudi Arabia. Its end signals limits to how much the country will spend.`\
+https://www.nytimes.com/2026/04/16/business/dealbook/liv-golf-saudi-arabia.html
+
 **‘Blessed Are the Peacemakers,’ Pope Says Amid Standoff With Trump**\
 `For days, Pope Leo XIV has attracted criticism from President Trump and his allies for refusing to back the war in Iran. On Thursday, he reiterated his calls for peace.`\
 https://www.nytimes.com/2026/04/16/world/africa/pope-leo-trump-peace.html
