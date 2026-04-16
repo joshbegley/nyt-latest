@@ -1,3 +1,7 @@
+**Trump to Pick Ousted FEMA Head to Lead Agency Again**\
+`Cameron Hamilton is a former Navy SEAL who ran unsuccessfully for Congress.`\
+https://www.nytimes.com/2026/04/16/us/trump-fema-cameron-hamilton.html
+
 **This Is Where Donald Trump Loses**\
 `President Trump won’t be able to defy the courts if he loses his Supreme Court case on birthright citizenship, which he is likely to do, the conservative court watcher Sarah Isgur argues on “Interesting Times.”`\
 https://www.nytimes.com/video/opinion/100000010835254/this-is-where-donald-trump-loses.html

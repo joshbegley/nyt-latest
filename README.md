@@ -1,3 +1,7 @@
+**Michigan’s Dam Crisis Shows Decay of U.S. Infrastructure, Whitmer Says**\
+`Workers in Cheboygan hurried to shore up a dam in danger of being overtopped, part of a “slow-moving disaster” threatening communities across the state.`\
+https://www.nytimes.com/2026/04/16/us/michigan-dam-height-cheboygan.html
+
 **Trump to Pick Ousted FEMA Head to Lead Agency Again**\
 `Cameron Hamilton is a former Navy SEAL who ran unsuccessfully for Congress.`\
 https://www.nytimes.com/2026/04/16/us/trump-fema-cameron-hamilton.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/16/us/politics/newsom-book-donors.html
 **In Its ‘Greater New York’ Show, MoMA PS1 Focuses on the Here and Now**\
 `Even as the institution has grown and changed, it has continued to be a launchpad for emerging artists. This spring, it is putting 53 in the spotlight.`\
 https://www.nytimes.com/2026/04/16/arts/design/momaps1-greater-new-york.html
-
-**Politics News Site NOTUS to Become ‘The Star’**\
-`The Washington publication is rebranding as it expands its local news and sports coverage in the wake of substantial layoffs at The Washington Post.`\
-https://www.nytimes.com/2026/04/16/business/media/notus-news-to-become-the-star.html
 

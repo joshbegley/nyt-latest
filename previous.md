@@ -1,3 +1,7 @@
+**Trump to Pick Ousted FEMA Head to Lead Agency Again**\
+`Cameron Hamilton is a former Navy SEAL who ran unsuccessfully for Congress.`\
+https://www.nytimes.com/2026/04/16/us/trump-fema-cameron-hamilton.html
+
 **This Is Where Donald Trump Loses**\
 `President Trump won’t be able to defy the courts if he loses his Supreme Court case on birthright citizenship, which he is likely to do, the conservative court watcher Sarah Isgur argues on “Interesting Times.”`\
 https://www.nytimes.com/video/opinion/100000010835254/this-is-where-donald-trump-loses.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/16/arts/design/momaps1-greater-new-york.html
 **Politics News Site NOTUS to Become ‘The Star’**\
 `The Washington publication is rebranding as it expands its local news and sports coverage in the wake of substantial layoffs at The Washington Post.`\
 https://www.nytimes.com/2026/04/16/business/media/notus-news-to-become-the-star.html
-
-**Mandelson Became Britain’s Ambassador to U.S. Despite Failing Security Vetting**\
-`Britain’s foreign office overruled vetting officials in granting Peter Mandelson, a friend of Jeffrey Epstein, the highest level of security clearance, the government said.`\
-https://www.nytimes.com/2026/04/16/world/europe/peter-mandelson-epstein-starmer-security.html
 
