@@ -1,3 +1,11 @@
+**Israel and Lebanon Reach Deal on a 10-Day Cease-Fire**\
+`A pause in the fighting between Israeli forces and Iranian-allied Hezbollah militants may help smooth the way to a peace deal between the U.S. and Iran.`\
+https://www.nytimes.com/2026/04/16/world/middleeast/israel-lebanon-cease-fire.html
+
+**Pittsburgh’s Children’s Museum Satisfies a Hunger for Eric Carle**\
+`The institution will feature five of the beloved author’s collage-based books in a series of interactive exhibits meant to engage children.`\
+https://www.nytimes.com/2026/04/16/arts/design/pittsburgh-childrens-museum-eric-carle.html
+
 **A ‘Cabinet of Wonders’ on Show at the American Academy of Arts and Letters**\
 `Current members of the museum have created a show that draws from, and comments on, the institution’s curious collections.`\
 https://www.nytimes.com/2026/04/16/arts/design/academy-arts-letters-articles.html
