@@ -1,3 +1,23 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/16/world/iran-war-trump-lebanon-news/heres-the-latest
+
+**La creciente disputa sobre el papa e Irán aleja a Meloni de Trump**\
+`La primera ministra italiana fue considerada en su día una de las aliadas europeas más cercanas del presidente Trump. Su amistad parece ahora estar en peligro.`\
+https://www.nytimes.com/es/2026/04/16/espanol/mundo/trump-meloni-disputa-papa-leon.html
+
+**Elogio de los perros tontos**\
+`No pasa nada si tu mascota no es un genio.`\
+https://www.nytimes.com/es/2026/04/16/espanol/ciencia-y-tecnologia/inteligencia-perros.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/16/crosswords/spelling-bee-forum.html
+
+**Statue of Liberty**\
+`What do you think this image is communicating?`\
+https://www.nytimes.com/2026/04/16/learning/statue-of-liberty.html
+
 **Word of the Day: punctual**\
 `This word has appeared in 19 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/04/16/learning/word-of-the-day-punctual.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/interactive/2026/04/15/us/politics/trump-dc-usa-triumpha
 **Fast Fliers**\
 `Rafael Musa and Sala Wanetick tag-team this tremendous Thursday.`\
 https://www.nytimes.com/2026/04/15/crosswords/daily-puzzle-2026-04-16.html
-
-**Summer in April? Temperatures Hit 90 Along the East Coast.**\
-`Remember those grimy snow piles that just wouldn’t melt? They’re gone now.`\
-https://www.nytimes.com/2026/04/15/weather/nyc-dc-heat-temperatures-forecast.html
-
-**Iran War Deepens Divide Among Democrats Over Arming Israel**\
-`Concerns over the Iran war led several Democratic senators who had rejected past bids to curb weapons transfers to Israel to vote to block the sale of bulldozers and bombs.`\
-https://www.nytimes.com/2026/04/15/us/politics/senate-israel-arms-vote-iran-war.html
-
-**Sneaker Company Allbirds Plans to Pivot to A.I. Yes, A.I.**\
-`After selling its business for $39 million last month, the company said it planned to buy powerful computer chips and rebrand itself NewBird AI.`\
-https://www.nytimes.com/2026/04/15/us/allbirds-shoes-ai-pivot.html
-
-**DeSantis Delays Redistricting Special Session and Adds a Vaccine Bill**\
-`The Florida governor is expected to propose a congressional map that could result in up to five new Republican-leaning seats. Some in the party fear it could backfire.`\
-https://www.nytimes.com/2026/04/15/us/desantis-redistricting-session-vaccine-bill.html
-
-**Analysis of Alzheimer’s Drugs Stirs Debate About Their Effectiveness**\
-`The review said a certain class of drugs had little clinical benefit, but many Alzheimer’s experts criticized the analysis, saying it unfairly lumped failed drugs with two recently approved treatments.`\
-https://www.nytimes.com/2026/04/15/health/alzheimers-drugs-benefit-anti-amyloid.html
 

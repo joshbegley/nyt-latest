@@ -1,3 +1,23 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/16/world/iran-war-trump-lebanon-news/heres-the-latest
+
+**La creciente disputa sobre el papa e Irán aleja a Meloni de Trump**\
+`La primera ministra italiana fue considerada en su día una de las aliadas europeas más cercanas del presidente Trump. Su amistad parece ahora estar en peligro.`\
+https://www.nytimes.com/es/2026/04/16/espanol/mundo/trump-meloni-disputa-papa-leon.html
+
+**Elogio de los perros tontos**\
+`No pasa nada si tu mascota no es un genio.`\
+https://www.nytimes.com/es/2026/04/16/espanol/ciencia-y-tecnologia/inteligencia-perros.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/16/crosswords/spelling-bee-forum.html
+
+**Statue of Liberty**\
+`What do you think this image is communicating?`\
+https://www.nytimes.com/2026/04/16/learning/statue-of-liberty.html
+
 **Word of the Day: punctual**\
 `This word has appeared in 19 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/04/16/learning/word-of-the-day-punctual.html
