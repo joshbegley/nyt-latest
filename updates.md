@@ -1,3 +1,23 @@
+**What’s Going On in This Picture? | April 20, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://www.nytimes.com/2026/04/16/learning/whats-going-on-in-this-picture-april-20-2026.html
+
+**When Good Grammar Gets Snobbish**\
+`Rules don’t always lead to good sense.`\
+https://www.nytimes.com/2026/04/16/opinion/english-grammar-elitism.html
+
+**What’s Going On in This Graph? | April 29, 2026**\
+`What relationship, if any, do these graphs suggest between gas prices and presidential approval ratings?`\
+https://www.nytimes.com/2026/04/16/learning/whats-going-on-in-this-graph-april-29-2026.html
+
+**Are You an International Student Looking for Work?**\
+`We want to understand how international students are navigating the current job market in the United States.`\
+https://www.nytimes.com/2026/04/16/us/international-students-callout.html
+
+**Will It Cost $150 to Take the Train to a Single World Cup Match?**\
+`The extraordinary price for a round-trip train ticket from New York City to New Jersey would offset the $48 million in expected extra transit costs during the FIFA World Cup games, according to people familiar with the plan.`\
+https://www.nytimes.com/2026/04/16/nyregion/nj-transit-ticket-price-world-cup.html
+
 **Woman Who Took 15 Tequila Shots on Carnival Cruise Gets $300,000 in Damages**\
 `The woman, who fell and injured herself, said in a lawsuit that bartenders had been negligent for serving her while she was visibly intoxicated.`\
 https://www.nytimes.com/2026/04/16/us/carnival-cruise-lawsuit-damages-tequila-shots.html

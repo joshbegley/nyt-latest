@@ -1,3 +1,19 @@
+**What’s Going On in This Picture? | April 20, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://www.nytimes.com/2026/04/16/learning/whats-going-on-in-this-picture-april-20-2026.html
+
+**When Good Grammar Gets Snobbish**\
+`Rules don’t always lead to good sense.`\
+https://www.nytimes.com/2026/04/16/opinion/english-grammar-elitism.html
+
+**What’s Going On in This Graph? | April 29, 2026**\
+`What relationship, if any, do these graphs suggest between gas prices and presidential approval ratings?`\
+https://www.nytimes.com/2026/04/16/learning/whats-going-on-in-this-graph-april-29-2026.html
+
+**Are You an International Student Looking for Work?**\
+`We want to understand how international students are navigating the current job market in the United States.`\
+https://www.nytimes.com/2026/04/16/us/international-students-callout.html
+
 **Woman Who Took 15 Tequila Shots on Carnival Cruise Gets $300,000 in Damages**\
 `The woman, who fell and injured herself, said in a lawsuit that bartenders had been negligent for serving her while she was visibly intoxicated.`\
 https://www.nytimes.com/2026/04/16/us/carnival-cruise-lawsuit-damages-tequila-shots.html
@@ -58,23 +74,7 @@ https://www.nytimes.com/2026/04/16/science/artemis-ii-astronauts-moon-mission-pr
 `Readers respond to “How to Fix Affordability,” an Opinion guest essay by Hillary Clinton. Also: President Trump’s arch; protests and litigation.`\
 https://www.nytimes.com/2026/04/16/opinion/hillary-clinton-plan-families.html
 
-**Taking the Train to a Single World Cup Match Could Cost $150**\
+**Will It Cost $150 to Take the Train to a Single World Cup Match?**\
 `The extraordinary price for a round-trip train ticket from New York City to New Jersey would offset the $48 million in expected extra transit costs during the FIFA World Cup games, according to people familiar with the plan.`\
 https://www.nytimes.com/2026/04/16/nyregion/nj-transit-ticket-price-world-cup.html
-
-**Hegseth Again Threatens Attacks on Iran’s Civilian Infrastructure**\
-`The U.S. blockade of shipments through the Strait of Hormuz would last “for as long as it takes,” the defense secretary said.`\
-https://www.nytimes.com/2026/04/16/us/politics/hegseth-military-iran-blockade.html
-
-**Judge Again Halts Aboveground Construction on Trump’s Ballroom**\
-`A federal judge wrote that an exception he made for work on security features did not cover most of the construction on the larger ballroom project Trump has proposed.`\
-https://www.nytimes.com/2026/04/16/us/politics/trump-ballroom-judge-halt.html
-
-**Broccoli For Dinner, Strawberries for Dessert**\
-`Follow this vegan broccoli rabe pasta with a five-star spoon cake.`\
-https://www.nytimes.com/2026/04/16/dining/broccoli-for-dinner-strawberries-for-dessert.html
-
-**Coming to Broadway: Molière, ‘The Full Monty’ and a Play About D.J.s**\
-`Roundabout Theater Company, one of the four nonprofits with Broadway houses, plans three Broadway shows next season.`\
-https://www.nytimes.com/2026/04/16/theater/moliere-morisseau-full-monty-broadway-roundabout-theater-company.html
 

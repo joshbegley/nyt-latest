@@ -1,3 +1,11 @@
+**‘Ay de quienes manipulan la religión’, dice el papa en su enfrentamiento con Trump**\
+`Durante días, el papa León XIV ha suscitado las críticas del presidente y sus aliados por negarse a respaldar la guerra en Irán. El jueves, volvió a llamar a la paz.`\
+https://www.nytimes.com/es/2026/04/16/espanol/mundo/papa-trump-religion-paz.html
+
+**Virginia Politician Justin Fairfax Kills Wife and Self, According To Police**\
+`Justin Fairfax, a former lieutenant governor of Virginia, fatally shot his wife, Cerina Fairfax, and then killed himself at their home in Annandale, Va., shortly after midnight on Thursday, according to the county police. Mr. Fairfax had been a rising star in the state before he was accused of sexual assault by two women in 2019. Fairfax denied the allegations, finished his term and later ran unsuccessfully for governor.`\
+https://www.nytimes.com/video/us/100000010844865/virginia-fairfax-murder-suicide.html
+
 **What’s Going On in This Picture? | April 20, 2026**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://www.nytimes.com/2026/04/16/learning/whats-going-on-in-this-picture-april-20-2026.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/16/books/review/new-recommended-books.html
 **Artemis II Crew Discusses NASA Moon Mission and What Comes Next**\
 `The four astronauts, who last spoke to the public on Sunday, are speaking at a news conference Thursday afternoon at Johnson Space Center in Houston.`\
 https://www.nytimes.com/2026/04/16/science/artemis-ii-astronauts-moon-mission-press-conference.html
-
-**Hillary Clinton’s Plan to Help Families**\
-`Readers respond to “How to Fix Affordability,” an Opinion guest essay by Hillary Clinton. Also: President Trump’s arch; protests and litigation.`\
-https://www.nytimes.com/2026/04/16/opinion/hillary-clinton-plan-families.html
-
-**Will It Cost $150 to Take the Train to a Single World Cup Match?**\
-`The extraordinary price for a round-trip train ticket from New York City to New Jersey would offset the $48 million in expected extra transit costs during the FIFA World Cup games, according to people familiar with the plan.`\
-https://www.nytimes.com/2026/04/16/nyregion/nj-transit-ticket-price-world-cup.html
 
