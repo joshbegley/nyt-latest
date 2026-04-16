@@ -1,3 +1,7 @@
+**White House Shrugs Off Shaky Economy as War Exceeds Trump’s Timeline**\
+`Stocks may be soaring again, but the war in Iran has started to pinch the finances of many Americans.`\
+https://www.nytimes.com/2026/04/16/us/politics/trump-economy-iran-war.html
+
 **Teachers Union Push to Cancel Class for May Day Irks Chicago Parents**\
 `Mayor Brandon Johnson, whose ties to the Chicago Teachers Union helped him win office, has signaled support. The school district and some parents object.`\
 https://www.nytimes.com/2026/04/16/us/chicago-teachers-union-protests-brandon-johnson.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/16/business/dealbook/liv-golf-saudi-arabia.html
 **‘Blessed Are the Peacemakers,’ Pope Says Amid Standoff With Trump**\
 `For days, Pope Leo XIV has attracted criticism from President Trump and his allies for refusing to back the war in Iran. On Thursday, he reiterated his calls for peace.`\
 https://www.nytimes.com/2026/04/16/world/africa/pope-leo-trump-peace.html
-
-**National Security. Artificial Intelligence. And Your Dumb Dog.**\
-`We’re covering today’s top stories.`\
-https://www.nytimes.com/2026/04/16/briefing/national-security-artificial-intelligence-and-your-dumb-dog.html
 
