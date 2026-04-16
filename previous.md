@@ -1,3 +1,11 @@
+**Mamdani’s Tax Return: $1,600 From Rapping and $131,000 From Politics**\
+`In their 2025 joint tax return, Mayor Zohran Mamdani and his wife, Rama Duwaji, reported a combined income of roughly $145,000, including about $10,000 that she earned from art work.`\
+https://www.nytimes.com/2026/04/16/nyregion/mamdani-tax-return.html
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/16/world/iran-war-trump-lebanon-news/cease-fire-in-lebanon-set-to-take-effect
+
 **Why Chefs Are Picking Up a Stinging Plant**\
 `Plus: lightweight lip oils, a hotel on a Danish island and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/04/16/t-magazine/nettles-cooking-chefs.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/us/100000010844865/virginia-fairfax-murder-suicide
 **What’s Going On in This Picture? | April 20, 2026**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://www.nytimes.com/2026/04/16/learning/whats-going-on-in-this-picture-april-20-2026.html
-
-**When Good Grammar Gets Snobbish**\
-`Rules don’t always lead to good sense.`\
-https://www.nytimes.com/2026/04/16/opinion/english-grammar-elitism.html
-
-**What’s Going On in This Graph? | April 29, 2026**\
-`What relationship, if any, do these graphs suggest between gas prices and presidential approval ratings?`\
-https://www.nytimes.com/2026/04/16/learning/whats-going-on-in-this-graph-april-29-2026.html
 
