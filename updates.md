@@ -1,3 +1,11 @@
+**How Trump’s Blockade of the Strait of Hormuz Works**\
+`Our business reporter Peter Eavis breaks down how American military ships have blocked Iranian-linked vessels from using the Strait of Hormuz as the U.S. encourages other vessels to make the passage.`\
+https://www.nytimes.com/video/world/middleeast/100000010840310/how-trumps-blockade-of-the-strait-of-hormuz-works.html
+
+**Artemis II Crew Discusses NASA Moon Mission and What Comes Next**\
+`The four astronauts, who last spoke to the public on Sunday, are speaking at a news conference Thursday afternoon at Johnson Space Center in Houston.`\
+https://www.nytimes.com/2026/04/16/science/artemis-ii-astronauts-moon-mission-press-conference.html
+
 **Panel Advances Trump’s Triumphal Arch, Even as Key Member Suggests Changes**\
 `The Commission of Fine Arts, a Trump-aligned advisory body, granted preliminary approval. But its vice chairman suggested losing statues atop the structure and other revisions before a final vote.`\
 https://www.nytimes.com/2026/04/16/us/politics/trump-triumphal-arch.html

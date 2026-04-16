@@ -1,3 +1,23 @@
+**Woman Who Took 15 Tequila Shots on Carnival Cruise Gets $300,000 in Damages**\
+`The woman, who fell and injured herself, said in a lawsuit that bartenders had been negligent for serving her while she was visibly intoxicated.`\
+https://www.nytimes.com/2026/04/16/us/carnival-cruise-lawsuit-damages-tequila-shots.html
+
+**Bahrain Charges Intelligence Officer in the Death of a Detainee**\
+`The officer was charged with assault leading to death, in the case of a man who was accused by Bahraini authorities of espionage during a domestic crackdown tied to the war in Iran.`\
+https://www.nytimes.com/2026/04/16/world/middleeast/bahrain-detainee-death-charges.html
+
+**How Death Doulas Support the Living**\
+`Nicole Kidman recently said she wanted to become a death doula after wishing for more support at the end of her mother’s life.`\
+https://www.nytimes.com/2026/04/16/well/death-doulas-nicole-kidman.html
+
+**House Votes to Preserve Deportation Protections for Haitians, Rebuking Trump**\
+`The action was largely symbolic since the president would be all but certain to veto the bill, but the bipartisan vote reflected resistance within his own ranks on his signature issue.`\
+https://www.nytimes.com/2026/04/16/us/politics/house-deportation-protections-haitians-trump.html
+
+**U.S. Completes Handover of Military Bases in Syria**\
+`The transition signals the end of a formal U.S. military presence in Syria for the first time in more than a decade.`\
+https://www.nytimes.com/2026/04/16/world/middleeast/us-handover-military-bases-syria.html
+
 **How Trump’s Blockade of the Strait of Hormuz Works**\
 `Our business reporter Peter Eavis breaks down how American military ships have blocked Iranian-linked vessels from using the Strait of Hormuz as the U.S. encourages other vessels to make the passage.`\
 https://www.nytimes.com/video/world/middleeast/100000010840310/how-trumps-blockade-of-the-strait-of-hormuz-works.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/04/16/dining/broccoli-for-dinner-strawberries-for-d
 **Coming to Broadway: Molière, ‘The Full Monty’ and a Play About D.J.s**\
 `Roundabout Theater Company, one of the four nonprofits with Broadway houses, plans three Broadway shows next season.`\
 https://www.nytimes.com/2026/04/16/theater/moliere-morisseau-full-monty-broadway-roundabout-theater-company.html
-
-**After Apparent Overdose, Clavicular Is Back at a Club**\
-`A harrowing incident involving Clavicular, ambassador to the “looksmaxxing” community, was captured on the same platforms that made him a star.`\
-https://www.nytimes.com/2026/04/16/style/clavicular-overdose-braden-peters.html
-
-**Venezuelan Doctor in South Texas Is Released from Immigration Custody**\
-`Dr. Ezequiel Veliz, a family physician who worked in an area that has a doctor shortage, was detained for 10 days. Another Venezuelan doctor remains locked up.`\
-https://www.nytimes.com/2026/04/16/us/texas-detained-venezuelan-doctor-released.html
-
-**White House Declines to Offer Congress an Estimate of Iran War Cost**\
-`Russell T. Vought, the White House budget director, said the fluctuating nature of the U.S.-Israeli war made it difficult to pinpoint expenses.`\
-https://www.nytimes.com/2026/04/16/world/middleeast/iran-war-cost-congress.html
-
-**ICE Agent Charged With Assault in Rare State Prosecution**\
-`Minnesota prosecutors have spent weeks investigating the conduct of immigration agents who took part in an immigration crackdown in the Twin Cities.`\
-https://www.nytimes.com/2026/04/16/us/minnesota-prosecution-ice-agent.html
-
-**Former N.B.A. Player Is Expected to Plead Guilty in Gambling Scandal**\
-`Damon Jones, who spent more than a decade in the N.B.A., was accused of providing inside information about injured players to professional gamblers.`\
-https://www.nytimes.com/2026/04/16/nyregion/damon-jones-nba-gambling.html
 
