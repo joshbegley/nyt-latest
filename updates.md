@@ -1,3 +1,11 @@
+**What Heelys Taught Me About Momentum**\
+`Heelys, the sneakers with wheels that were a fad in the 2000s, helped me form my first friendships. Recently, I decided to tap into that joy again.`\
+https://www.nytimes.com/2026/04/16/style/heelys-joy-friendship.html
+
+**Roger Adams Dies at 71; Invented the Rolling Sneakers Known as Heelys**\
+`You could walk in them like gym shoes, but if you rocked back on your heels the wheels emerged, turning them into roller skates. In the early 2000s, the company sold millions.`\
+https://www.nytimes.com/2026/04/16/business/roger-adams-dead.html
+
 **Israel and Lebanon Reach Deal on a 10-Day Cease-Fire**\
 `A pause in the fighting between Israeli forces and Iranian-allied Hezbollah militants may help smooth the way to a peace deal between the U.S. and Iran.`\
 https://www.nytimes.com/2026/04/16/world/middleeast/israel-lebanon-cease-fire.html
