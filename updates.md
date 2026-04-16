@@ -1,3 +1,7 @@
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/04/16/t-magazine/tk.html
+
 **Ellison Pledges at Least 30 Paramount-Warner Movies a Year**\
 `His remarks at a movie theater convention were part of a campaign to win Hollywood support for his bid to buy Warner Bros. Discovery.`\
 https://www.nytimes.com/2026/04/16/business/media/david-ellison-paramount-warner-movies-theaters.html
