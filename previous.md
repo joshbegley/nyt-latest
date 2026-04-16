@@ -1,10 +1,18 @@
+**A ‘Cabinet of Wonders’ on Show at the American Academy of Arts and Letters**\
+`Current members of the museum have created a show that draws from, and comments on, the institution’s curious collections.`\
+https://www.nytimes.com/2026/04/16/arts/design/academy-arts-letters-articles.html
+
+**Bitcoin’s Greatest Mystery**\
+`The creator of Bitcoin has hidden behind the pseudonym Satoshi Nakamoto for 17 years.`\
+https://www.nytimes.com/2026/04/16/world/bitcoin-satoshi-adam-back-israel-lebanon-ceasefire.html
+
 **Mamdani’s Tax Return: $1,600 From Rapping and $131,000 From Politics**\
 `In their 2025 joint tax return, Mayor Zohran Mamdani and his wife, Rama Duwaji, reported a combined income of roughly $145,000, including about $10,000 that she earned from art work.`\
 https://www.nytimes.com/2026/04/16/nyregion/mamdani-tax-return.html
 
-**Here’s the latest.**\
+**The cease-fire goes into effect after Israel and Hezbollah exchange fire.**\
 ``\
-https://www.nytimes.com/live/2026/04/16/world/iran-war-trump-lebanon-news/cease-fire-in-lebanon-set-to-take-effect
+https://www.nytimes.com/2026/04/16/world/middleeast/cease-fire-in-lebanon-set-to-take-effect.html
 
 **Why Chefs Are Picking Up a Stinging Plant**\
 `Plus: lightweight lip oils, a hotel on a Danish island and more recommendations from T Magazine.`\
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/16/nyregion/2nd-avenue-subway-mta-trump.html
 **‘Ay de quienes manipulan la religión’, dice el papa en su enfrentamiento con Trump**\
 `Durante días, el papa León XIV ha suscitado las críticas del presidente y sus aliados por negarse a respaldar la guerra en Irán. El jueves, volvió a llamar a la paz.`\
 https://www.nytimes.com/es/2026/04/16/espanol/mundo/papa-trump-religion-paz.html
-
-**Virginia Politician Justin Fairfax Kills Wife and Self, According To Police**\
-`Justin Fairfax, a former lieutenant governor of Virginia, fatally shot his wife, Cerina Fairfax, and then killed himself at their home in Annandale, Va., shortly after midnight on Thursday, according to the county police. Mr. Fairfax had been a rising star in the state before he was accused of sexual assault by two women in 2019. Fairfax denied the allegations, finished his term and later ran unsuccessfully for governor.`\
-https://www.nytimes.com/video/us/100000010844865/virginia-fairfax-murder-suicide.html
-
-**What’s Going On in This Picture? | April 20, 2026**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://www.nytimes.com/2026/04/16/learning/whats-going-on-in-this-picture-april-20-2026.html
 

@@ -1,3 +1,15 @@
+**A ‘Cabinet of Wonders’ on Show at the American Academy of Arts and Letters**\
+`Current members of the museum have created a show that draws from, and comments on, the institution’s curious collections.`\
+https://www.nytimes.com/2026/04/16/arts/design/academy-arts-letters-articles.html
+
+**Bitcoin’s Greatest Mystery**\
+`The creator of Bitcoin has hidden behind the pseudonym Satoshi Nakamoto for 17 years.`\
+https://www.nytimes.com/2026/04/16/world/bitcoin-satoshi-adam-back-israel-lebanon-ceasefire.html
+
+**The cease-fire goes into effect after Israel and Hezbollah exchange fire.**\
+``\
+https://www.nytimes.com/2026/04/16/world/middleeast/cease-fire-in-lebanon-set-to-take-effect.html
+
 **Mamdani’s Tax Return: $1,600 From Rapping and $131,000 From Politics**\
 `In their 2025 joint tax return, Mayor Zohran Mamdani and his wife, Rama Duwaji, reported a combined income of roughly $145,000, including about $10,000 that she earned from art work.`\
 https://www.nytimes.com/2026/04/16/nyregion/mamdani-tax-return.html
