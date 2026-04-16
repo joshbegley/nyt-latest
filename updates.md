@@ -1,3 +1,7 @@
+**The Slow-Motion Battle for Hormuz**\
+`Iran’s stranglehold over the waterway completely reshaped shipping during the war. The U.S. naval blockade is an attempt to stop that.`\
+https://www.nytimes.com/interactive/2026/04/16/world/middleeast/iran-us-strait-of-hormuz-blockade-map-ships.html
+
 **A Look at the Plans for Trump’s ‘Triumphal Arch’**\
 `The structure proposed for President Trump’s arch would be 250 feet, more than twice the height of the Lincoln Memorial. It would sit near Arlington National Cemetery. A commission filled with Trump appointees is to review plans on Thursday.`\
 https://www.nytimes.com/video/us/politics/100000010844205/a-look-at-the-plans-for-trumps-triumphal-arch.html
