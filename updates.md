@@ -1,3 +1,11 @@
+**Ellison Pledges at Least 30 Paramount-Warner Movies a Year**\
+`His remarks at a movie theater convention were part of a campaign to win Hollywood support for his bid to buy Warner Bros. Discovery.`\
+https://www.nytimes.com/2026/04/16/business/media/david-ellison-paramount-warner-movies-theaters.html
+
+**10-Day Cease-Fire Between Israel and Lebanon Goes Into Effect**\
+`The pause in the fighting between Israeli forces and Iranian-allied Hezbollah militants may help smooth the way to a peace deal between the U.S. and Iran.`\
+https://www.nytimes.com/2026/04/16/world/middleeast/israel-lebanon-cease-fire.html
+
 **Michigan’s Dam Crisis Shows Decay of U.S. Infrastructure, Whitmer Says**\
 `Workers in Cheboygan hurried to shore up a dam in danger of being overtopped, part of a “slow-moving disaster” threatening communities across the state.`\
 https://www.nytimes.com/2026/04/16/us/michigan-dam-height-cheboygan.html
