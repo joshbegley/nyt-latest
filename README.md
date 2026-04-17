@@ -1,3 +1,11 @@
+**New PEPFAR Data Show Worrying Declines in Testing and Treatment for H.I.V.**\
+`The numbers are the first to quantify the effect of the Trump administration’s shutdown and restarting of a program that has saved millions of lives worldwide.`\
+https://www.nytimes.com/2026/04/17/health/hiv-testing-treatment-data-pepfar.html
+
+**On Bright Red Posters Around New York, a Call to Boycott the Met Gala**\
+`A guerrilla activist group is papering the city with posters criticizing the billionaire Jeff Bezos’ involvement in the starry fund-raiser.`\
+https://www.nytimes.com/2026/04/17/style/bezos-met-gala-boycott-posters.html
+
 **Mississippi Liquor Stores Run Dry Amid State Distribution Delays**\
 `The state liquor agency has been struggling to make timely deliveries to restaurants, bars and liquor stores since it got rid of outdated conveyor belts at a warehouse in January.`\
 https://www.nytimes.com/2026/04/17/business/mississippi-liquor-shortage.html
@@ -26,7 +34,7 @@ https://www.nytimes.com/2026/04/17/briefing/the-strait-of-hormuz-college-cookies
 `As state leaders determine how much owners of high-priced second homes in New York City may have to pay, they are also wrestling with opaque L.L.C.-ownership issues.`\
 https://www.nytimes.com/2026/04/17/nyregion/second-home-tax.html
 
-**Trump Frames Iran War as All But Over in Optimistic Social Media Flurry**\
+**Trump Frames Iran War as All but Over in Optimistic Social Media Flurry**\
 `Iranian officials did not confirm most of Mr. Trump’s claims and disputed several of them.`\
 https://www.nytimes.com/2026/04/17/world/middleeast/trump-iran-war-truth-social-posts.html
 
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/17/nyregion/nyc-doorman-strike-averted.html
 **An Explosion Rattles a Toronto Neighborhood. Was a Drake Video to Blame?**\
 `A blast on Thursday night turned out to be for a film shoot, but it unnerved residents who had lived through a propane plant explosion in 2008.`\
 https://www.nytimes.com/2026/04/17/world/canada/toronto-downsview-explosion-drake.html
-
-**Prosecutor Withdraws From Trump Team’s Investigation of Ex-C.I.A. Chief**\
-`A career Justice Department lawyer, Maria Medetis Long, in Miami is said to have raised concerns about whether the evidence justified moving forward with a bid to prosecute John O. Brennan.`\
-https://www.nytimes.com/2026/04/17/us/justice-dept-trump-investigation-cia-brennan.html
-
-**Federal Appeals Court Opens Door to Moving Trans Inmates Under Trump Gender Order**\
-`A three-judge panel gave a group of 17 transgender women a few weeks to seek further recourse in court before their transfer to men’s facilities could take effect.`\
-https://www.nytimes.com/2026/04/17/us/politics/transgender-prisoners-appeals-court.html
 
