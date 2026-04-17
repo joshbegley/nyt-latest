@@ -1,3 +1,15 @@
+**New PEPFAR Data Show Worrying Declines in Testing and Treatment for H.I.V.**\
+`The numbers are the first to quantify the effect of the Trump administration’s shutdown and restarting of a program that has saved millions of lives worldwide.`\
+https://www.nytimes.com/2026/04/17/health/hiv-testing-treatment-data-pepfar.html
+
+**On Bright Red Posters Around New York, a Call to Boycott the Met Gala**\
+`A guerrilla activist group is papering the city with posters criticizing the billionaire Jeff Bezos’ involvement in the starry fund-raiser.`\
+https://www.nytimes.com/2026/04/17/style/bezos-met-gala-boycott-posters.html
+
+**Trump Frames Iran War as All but Over in Optimistic Social Media Flurry**\
+`Iranian officials did not confirm most of Mr. Trump’s claims and disputed several of them.`\
+https://www.nytimes.com/2026/04/17/world/middleeast/trump-iran-war-truth-social-posts.html
+
 **Mississippi Liquor Stores Run Dry Amid State Distribution Delays**\
 `The state liquor agency has been struggling to make timely deliveries to restaurants, bars and liquor stores since it got rid of outdated conveyor belts at a warehouse in January.`\
 https://www.nytimes.com/2026/04/17/business/mississippi-liquor-shortage.html
