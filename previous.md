@@ -1,5 +1,5 @@
-**Trump Brushes Off High Fuel Costs as ‘Fake’ in Economic Speech in Las Vegas**\
-`The president sought to downplay the financial hardship that has followed his war with Iran, amid a tourism downturn in the city.`\
+**In Las Vegas, Trump Brushes Off Rising Fuel Prices**\
+`At an economic event, the president sought to downplay the financial hardship that has followed his war with Iran, saying that “we’re having some fake inflation because of the fuel, the energy prices.”`\
 https://www.nytimes.com/2026/04/16/us/politics/trump-taxes-fuel-las-vegas.html
 
 **‘The Pitt’ Season 2 Finale Recap: Jagged Little Pills**\
