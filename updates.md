@@ -1,3 +1,7 @@
+**Trump’s Dispute With Pope Leo Deepens Divisions on the Right**\
+`Sean Hannity criticized the pope. Tucker Carlson attacked Mr. Hannity. And President Trump suggested ranking MAGA figures: “good, bad, and somewhere in the middle.”`\
+https://www.nytimes.com/2026/04/17/us/politics/republicans-trump-pope-midterms.html
+
 **Tornadoes Reported Across the Midwest as Powerful Storms Slam the Region**\
 `One reported tornado downed trees and damaged cars in Lena, Ill., an official said.`\
 https://www.nytimes.com/2026/04/17/weather/tornadoes-lena-illinois-missouri-kansas-forecast.html
