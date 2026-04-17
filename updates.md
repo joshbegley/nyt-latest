@@ -1,3 +1,35 @@
+**Memes de Jesús, amenazas, guerra en Irán: un retrato de Trump bajo presión**\
+`El presidente de EE. UU. arremete contra enemigos, aliados e incluso el papa. Mientras tanto, los republicanos intentan concentrarse en la economía previo a las elecciones intermedias.`\
+https://www.nytimes.com/es/2026/04/17/espanol/estados-unidos/trump-imagenes-jesus-papa-criticias.html
+
+**No Corrections: April 17, 2026**\
+`No corrections appeared in print on Friday, April 17, 2026.`\
+https://www.nytimes.com/2026/04/17/pageoneplus/no-corrections-april-17-2026.html
+
+**Before They Met, Their Parents Had Already Known Each Other**\
+`When Emily Wiser first met Griffin Lear, she was excited to tell her father that she was dating a Dartmouth grad like him. Then they shared some history of their own about Mr. Lear’s parents.`\
+https://www.nytimes.com/2026/04/17/style/emily-wiser-griffin-lear-wedding.html
+
+**Painting Over My Painful Past**\
+`My father treated me more like a wife than a child. It took me decades to face the truth of what happened.`\
+https://www.nytimes.com/2026/04/17/style/modern-love-painting-over-my-painful-past.html
+
+**A Duet Decades in the Making**\
+`After meeting for a website project in 2020, James Squires and Jacqui Agostinelli bonded over their love of music, forming both a marriage and their musical duo, Sweet Basil.`\
+https://www.nytimes.com/2026/04/17/style/jacqui-agostinelli-james-squires-wedding.html
+
+**Her Grandmother Told Her ‘Maybe You’ll Marry Him One Day’**\
+`After Ben Sweeney and Lauren Fogel debarked their plane at 3 a.m., he invited her to stay at his parents’ house nearby. Her grandmother was impressed.`\
+https://www.nytimes.com/2026/04/17/style/lauren-fogel-ben-sweeney-wedding.html
+
+**It Took a Persistent Friend and a Dave Matthews Concert to Seal the Deal**\
+`Daniel Martinez Clavijo and Johanna Mele finally met in 2021, thanks to their mutual friend, who had been trying to set them up for almost a decade, and a chance encounter at Madison Square Garden.`\
+https://www.nytimes.com/2026/04/17/style/johanna-mele-daniel-martinez-clavijo-wedding.html
+
+**Quote of the Day: A Huge Russian Barrage Kills 18 in Ukrainian Cities**\
+`Quotation of the Day for Friday, April 17, 2026.`\
+https://www.nytimes.com/2026/04/16/pageoneplus/quote-of-the-day-a-huge-russian-barrage-kills-18-in-ukrainian-cities.html
+
 **L.A.P.D. Arrests D4vd Months After Finding Teen’s Remains in His Tesla**\
 `The singer was detained in connection with the death of Celeste Rivas Hernandez, who died before her 15th birthday. D4vd’s lawyers said they would vigorously defend his innocence.`\
 https://www.nytimes.com/2026/04/16/arts/music/d4vd-charged-teen-death-tesla.html
