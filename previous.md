@@ -1,3 +1,7 @@
+**Strait of Hormuz Is Declared ‘Open,’ Boosting Hope for a Deal**\
+`Also, a college with a cookie house. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/04/17/briefing/the-strait-of-hormuz-college-cookies.html
+
 **Contours of Pied-à-Terre Tax in New York City Begin to Take Shape**\
 `As state leaders determine how much owners of high-priced second homes in New York City may have to pay, they are also wrestling with opaque L.L.C.-ownership issues.`\
 https://www.nytimes.com/2026/04/17/nyregion/second-home-tax.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/17/arts/music/ye-poland-concert-canceled.html
 **Seeking 1 Trillion Dollars, Carney Invites Investors Summit to Canada**\
 `Prime Minister Mark Carney has set up a meeting and a new office to speed project approvals and make Canada more attractive to investors.`\
 https://www.nytimes.com/2026/04/17/world/canada/carney-investors-summit-canada-us-trade.html
-
-**How Theater Can Still Challenge Us**\
-`The director Ivo van Hove and others share essential avant-garde productions.`\
-https://www.nytimes.com/interactive/2026/04/17/t-magazine/avant-garde-experimental-theater.html
 
