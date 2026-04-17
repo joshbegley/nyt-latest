@@ -1,3 +1,11 @@
+**What You Taught Me About Maine**\
+`Our readers in the state tell us about its high-stakes Senate race.`\
+https://www.nytimes.com/2026/04/17/us/politics/maine-senate-election-collins-platner-mills.html
+
+**Lawsuit Against Alec Baldwin for ‘Rust’ Shooting Heads Toward Trial**\
+`Although the criminal case against Mr. Baldwin was thrown out, the actor still faces civil cases about the fatal shooting of a cinematographer in 2021.`\
+https://www.nytimes.com/2026/04/17/movies/alec-baldwin-rust-civil-trial.html
+
 **Man Accused of Killing Charlie Kirk Wants to Ban Cameras From Court**\
 `Lawyers for the man, Tyler Robinson, have argued that filming the court hearings threatens his right to a fair trial.`\
 https://www.nytimes.com/2026/04/17/us/charlie-kirk-tyler-robinson-murder-utah-court.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/17/health/iris-long-dead.html
 **The Politically Charged Art of Celeste Dupuy-Spencer**\
 `Her vivid paintings examined religious fundamentalism and events like the Jan. 6 riots at the U.S. Capitol. She died this month at 46.`\
 https://www.nytimes.com/2026/04/17/arts/the-politically-charged-art-of-celeste-dupuy-spencer.html
-
-**Celeste Dupuy-Spencer, Painter of Hotly Topical Images, Dies at 46**\
-`Her vibrant yet brooding work explored the crises of the Trump era, with paintings depicting the Jan. 6 riots and a mangled Confederate monument.`\
-https://www.nytimes.com/2026/04/17/arts/design/celeste-dupuy-spencer-dead.html
-
-**Suspect Accused of Hacking Climate Activists Appears in Court**\
-`Amit Forlit is accused of running a hacking operation that aimed to thwart climate litigation at the behest of a lobbying firm working for an oil giant.`\
-https://www.nytimes.com/2026/04/17/climate/amit-forlit-hacking-court.html
 
