@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/04/17/science/lost-science-eisenman-violence.html
 `Marie-Thérèse Ross-Mahé, 85, who was arrested amid an inheritance dispute, has returned to France, its foreign affairs minister said. She came to America last year after reconnecting with and marrying a former G.I.`\
 https://www.nytimes.com/2026/04/17/us/french-woman-release-alabama-ice.html
 
-**Strait of Hormuz Open During Lebanon Cease-fire, but U.S. Blockade on Iran Remains**\
+**Strait of Hormuz Open During Lebanon Cease-Fire, but U.S. Blockade on Iran Remains**\
 `Friday’s statements that the strait is now open raised investors’ hopes that oil and gas would start flowing out of the Persian Gulf in significant volumes again.`\
 https://www.nytimes.com/2026/04/17/world/middleeast/strait-hormuz-open-iran-lebanon-ceasefire.html
 
