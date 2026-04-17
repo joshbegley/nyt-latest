@@ -1,3 +1,7 @@
+**Tufts Student Who Was Held in Immigration Detention Returns to Turkey**\
+`Rumeysa Ozturk, who was detained for weeks by the Trump administration after co-writing a pro-Palestinian opinion essay, has graduated and returned home.`\
+https://www.nytimes.com/2026/04/17/us/tufts-student-rumeysa-ozturk-returns-turkey.html
+
 **El alto al fuego en Líbano deja a Benjamín Netanyahu en una posición incómoda**\
 `La mayoría de los israelíes querían que continuara la lucha contra Hizbulá. Pero los críticos del primer ministro de Israel dicen que está demostrando que no puede, o no quiere, enfrentarse al presidente Trump.`\
 https://www.nytimes.com/es/2026/04/17/espanol/mundo/israel-libano-alto-fuego-netanyahu.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/17/arts/design/metropolitan-opera-moma-frida-kah
 **Recalling When Lower Manhattan Was New Amsterdam**\
 `An exhibition at the New York Historical focuses on the city’s 17th-century roots as a Dutch settlement.`\
 https://www.nytimes.com/2026/04/17/arts/design/new-amsterdam-manhattan-dutch.html
-
-**New York New Jersey Stadium? Why MetLife Is Changing Its Name for the World Cup**\
-`This summer, FIFA is putting its stamp on the venue for the World Cup.`\
-https://www.nytimes.com/2026/04/17/nyregion/fifa-world-cup-stadium-names-sponsors.html
 
