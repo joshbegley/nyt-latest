@@ -1,3 +1,7 @@
+**F.B.I. Launches Manhunt for Youth Volleyball Coach Accused of Sex Abuse**\
+`The bureau has informed high schools, colleges and volleyball clubs in the New York City area that the coach, Edgar Lazaro Castillo, is being investigated in connection with sexual assault.`\
+https://www.nytimes.com/2026/04/17/nyregion/edgar-lazaro-castillo-volleyball-manhunt.html
+
 **Strait of Hormuz Is Declared ‘Open,’ Boosting Hope for a Deal**\
 `Also, a college with a cookie house. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/04/17/briefing/the-strait-of-hormuz-college-cookies.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/04/17/world/iran-us-war-trump/the-us-military-
 **Ye Concert in Poland Is Canceled**\
 `The announcement came a day after a government official said, “In a country marked by the history of the Holocaust, we cannot pretend that this is just entertainment.”`\
 https://www.nytimes.com/2026/04/17/arts/music/ye-poland-concert-canceled.html
-
-**Seeking 1 Trillion Dollars, Carney Invites Investors Summit to Canada**\
-`Prime Minister Mark Carney has set up a meeting and a new office to speed project approvals and make Canada more attractive to investors.`\
-https://www.nytimes.com/2026/04/17/world/canada/carney-investors-summit-canada-us-trade.html
 
