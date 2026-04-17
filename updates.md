@@ -1,3 +1,11 @@
+**Washington’s Scramble to Get Anthropic’s Powerful New Model**\
+`Federal agencies have requested access to Claude Mythos Preview, which Anthropic says can rapidly identify — and potentially create — new cyberthreats.`\
+https://www.nytimes.com/2026/04/17/business/dealbook/washington-anthropic-mythos.html
+
+**‘I Just Want to Be Back’: Thousands Rush South in Lebanon Under Cease-Fire**\
+`Stuck in standstill traffic, Lebanese people who had been displaced by fighting expressed a mix of excitement and uncertainty about a pause in Israel’s campaign against Hezbollah.`\
+https://www.nytimes.com/2026/04/17/world/middleeast/lebanon-cease-fire-traffic-south.html
+
 **In northern Israel, relief at the cease-fire is overshadowed by unease.**\
 `Residents are wary that the truce may offer only a temporary reprieve after weeks of rocket fire by Hezbollah.`\
 https://www.nytimes.com/live/2026/04/17/world/israel-lebanon-ceasefire-hezbollah/israel-residents-ceasefire-lebanon-hezbollah
