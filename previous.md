@@ -1,3 +1,11 @@
+**Contours of Pied-à-Terre Tax in New York City Begin to Take Shape**\
+`As state leaders determine how much owners of high-priced second homes in New York City may have to pay, they are also wrestling with opaque L.L.C.-ownership issues.`\
+https://www.nytimes.com/2026/04/17/nyregion/second-home-tax.html
+
+**Trump frames war in Iran as all but over in a flurry of optimistic social media posts.**\
+`Iranian officials did not confirm most of Mr. Trump’s claims and disputed several of them.`\
+https://www.nytimes.com/live/2026/04/17/world/iran-us-war-trump/trump-frames-war-in-iran-as-all-but-over-in-a-flurry-of-optimistic-social-media-posts
+
 **Iran says the Strait of Hormuz is open, but adds that it is still under Tehran’s supervision.**\
 `Ab`\
 https://www.nytimes.com/live/2026/04/17/world/iran-us-war-trump/iran-says-the-strait-of-hormuz-is-open-but-adds-that-it-is-still-under-tehrans-supervision
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/17/world/canada/carney-investors-summit-canada-u
 **How Theater Can Still Challenge Us**\
 `The director Ivo van Hove and others share essential avant-garde productions.`\
 https://www.nytimes.com/interactive/2026/04/17/t-magazine/avant-garde-experimental-theater.html
-
-**Irán abre el estrecho de Ormuz, pero EE. UU. mantiene el bloqueo**\
-`Las declaraciones del viernes sobre la apertura del estrecho de Ormuz elevaron las esperanzas de que el petróleo y el gas del golfo Pérsico vuelvan a circular en volúmenes significativos.`\
-https://www.nytimes.com/es/2026/04/17/espanol/mundo/estrecho-ormuz-iran-trump-bloqueo.html
-
-**How Cultured Are You? Take Our Quiz.**\
-`Test your knowledge, before or after reading T’s Culture issue.`\
-https://www.nytimes.com/interactive/2026/04/17/t-magazine/art-film-music-books-culture-fashion-quiz.html
 
