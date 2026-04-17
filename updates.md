@@ -1,3 +1,7 @@
+**The Long, Slow Race to Save Timmy, Germany’s Favorite Whale**\
+`A month of efforts to help a stranded humpback escape the Baltic Sea have culminated in a tourist and media spectacle, with no guarantee of success.`\
+https://www.nytimes.com/2026/04/17/world/europe/timmy-whale-stranded-rescue-germany.html
+
 **The U.S. military blockade on ships entering or leaving Iran will continue until Trump ends it.**\
 ``\
 https://www.nytimes.com/live/2026/04/17/world/iran-us-war-trump/the-us-military-blockade-on-ships-entering-or-leaving-iran-will-continue-until-trump-ends-it
