@@ -1,3 +1,7 @@
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/04/17/t-magazine/tk.html
+
 **Lutnick Blasts Canada Ahead of Trade Talks**\
 `Howard Lutnick, President Trump’s commerce secretary, derided Canada’s trade strategy and said a North American deal needed to be reworked.`\
 https://www.nytimes.com/2026/04/17/world/canada/trump-lutnick-canada-us-talks-trade-deal.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/embedded/world/middleeast/100000010847812/17vid-mi
 **U.K. Police Investigate Claims Drones Targeted Israeli Embassy in London**\
 `The Metropolitan Police said that the building had not been attacked but that they were assessing “discarded items” in Kensington Gardens, a nearby park, which was cordoned off.`\
 https://www.nytimes.com/2026/04/17/world/europe/london-israeli-embassy-drone-threat.html
-
-**Five Action Movies to Stream Now**\
-`This month’s picks include killer sharks, unlikely gangsters, and defiant ballerinas.`\
-https://www.nytimes.com/2026/04/17/movies/action-movies-streaming.html
 
