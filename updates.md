@@ -1,3 +1,31 @@
+**House Votes to Extend Expiring Law on Warrantless Surveillance for 10 Days**\
+`The Senate would need to also approve the stopgap measure that passed the House early Friday. Libertarian-leaning House Republicans had balked at a long-term extension.`\
+https://www.nytimes.com/2026/04/17/us/politics/fisa-702-surveillance-house-vote-trump.html
+
+**Con ustedes, el sándwich de fruta**\
+`En esta delicia japonesa, las joyas maduras de temporada se envuelven en crema y se colocan entre rebanadas de pan de leche.`\
+https://www.nytimes.com/es/2026/04/17/espanol/estilos-de-vida/sandwich-fruta-japon.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/17/crosswords/spelling-bee-forum.html
+
+**Two Dogs**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://www.nytimes.com/2026/04/17/learning/two-dogs.html
+
+**Iran War Forces America’s Friends in Asia to Court Its Rivals**\
+`The severe disruption of oil supplies from the Middle East as a result of the war has prompted South Korea and the Philippines to make deals with Russia and Iran.`\
+https://www.nytimes.com/2026/04/17/world/asia/iran-war-us-asia-russia.html
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/17/world/israel-lebanon-ceasefire-hezbollah/heres-the-latest
+
+**Hope and Caution as Lebanon-Israel Cease-Fire Begins**\
+`Celebrations broke out in Lebanon after its government agreed to a 10-day cease-fire with Israel. In both Israel and Lebanon, some people remained wary that the truce would hold.`\
+https://www.nytimes.com/video/world/middleeast/100000010847067/lebanon-israel-ceasefire.html
+
 **A Stunning New Verdict Rewrites the Rules of Corporate Morality**\
 `The profit motive was on trial. The verdict was scathing.`\
 https://www.nytimes.com/2026/04/17/opinion/lafarge-corporate-terrorism-syria-france.html

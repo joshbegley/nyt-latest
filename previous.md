@@ -1,3 +1,31 @@
+**House Votes to Extend Expiring Law on Warrantless Surveillance for 10 Days**\
+`The Senate would need to also approve the stopgap measure that passed the House early Friday. Libertarian-leaning House Republicans had balked at a long-term extension.`\
+https://www.nytimes.com/2026/04/17/us/politics/fisa-702-surveillance-house-vote-trump.html
+
+**Con ustedes, el sándwich de fruta**\
+`En esta delicia japonesa, las joyas maduras de temporada se envuelven en crema y se colocan entre rebanadas de pan de leche.`\
+https://www.nytimes.com/es/2026/04/17/espanol/estilos-de-vida/sandwich-fruta-japon.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/17/crosswords/spelling-bee-forum.html
+
+**Two Dogs**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://www.nytimes.com/2026/04/17/learning/two-dogs.html
+
+**Iran War Forces America’s Friends in Asia to Court Its Rivals**\
+`The severe disruption of oil supplies from the Middle East as a result of the war has prompted South Korea and the Philippines to make deals with Russia and Iran.`\
+https://www.nytimes.com/2026/04/17/world/asia/iran-war-us-asia-russia.html
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/17/world/israel-lebanon-ceasefire-hezbollah/heres-the-latest
+
+**Hope and Caution as Lebanon-Israel Cease-Fire Begins**\
+`Celebrations broke out in Lebanon after its government agreed to a 10-day cease-fire with Israel. In both Israel and Lebanon, some people remained wary that the truce would hold.`\
+https://www.nytimes.com/video/world/middleeast/100000010847067/lebanon-israel-ceasefire.html
+
 **Palabra del día: ‘emulate’**\
 `Esta palabra ha aparecido en 406 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/04/17/espanol/que-significa-emulate.html
@@ -49,32 +77,4 @@ https://www.nytimes.com/2026/04/17/style/lauren-fogel-ben-sweeney-wedding.html
 **It Took a Persistent Friend and a Dave Matthews Concert to Seal the Deal**\
 `Daniel Martinez Clavijo and Johanna Mele finally met in 2021, thanks to their mutual friend, who had been trying to set them up for almost a decade, and a chance encounter at Madison Square Garden.`\
 https://www.nytimes.com/2026/04/17/style/johanna-mele-daniel-martinez-clavijo-wedding.html
-
-**Quote of the Day: A Huge Russian Barrage Kills 18 in Ukrainian Cities**\
-`Quotation of the Day for Friday, April 17, 2026.`\
-https://www.nytimes.com/2026/04/16/pageoneplus/quote-of-the-day-a-huge-russian-barrage-kills-18-in-ukrainian-cities.html
-
-**In Las Vegas, Trump Brushes Off Rising Fuel Prices**\
-`At an economic event, the president sought to downplay the financial hardship that has followed his war with Iran, saying that “we’re having some fake inflation because of the fuel, the energy prices.”`\
-https://www.nytimes.com/2026/04/16/us/politics/trump-taxes-fuel-las-vegas.html
-
-**‘The Pitt’ Season 2 Finale Recap: Jagged Little Pills**\
-`For all the death and darkness the Pitt crew had to swallow this season, the finale also offered profound moments of hope and renewal.`\
-https://www.nytimes.com/2026/04/16/arts/television/the-pitt-recap-season-2-finale.html
-
-**‘Proof’ Review: Ayo Edebiri as a Math Girl, Interrupted**\
-`The actress stars as a haunted genius opposite Don Cheadle as her father in David Auburn’s 2001 drama. This revival, though, exposes the play’s lack of rigor.`\
-https://www.nytimes.com/2026/04/16/theater/proof-review-ayo-edebiri-don-cheadle.html
-
-**Half a Chocolate Bar**\
-`Rachel Fabi returns to open our solving weekend.`\
-https://www.nytimes.com/2026/04/16/crosswords/daily-puzzle-2026-04-17.html
-
-**Acting ICE Director Says He Plans to Resign in May**\
-`Todd Lyons said he would leave to spend more time with his family. He has spoken about a surge in threats against ICE officers, saying that he knew the reality firsthand.`\
-https://www.nytimes.com/2026/04/16/us/politics/lyons-ice-director-resigns.html
-
-**On ‘The Pitt,’ the Lingering Effects of Trauma Take the Spotlight**\
-`On top of the daily toll of treating patients, the show’s medical providers bring their own scars to the E.R.`\
-https://www.nytimes.com/2026/04/16/well/mind/the-pitt-trauma-ptsd.html
 
