@@ -1,3 +1,7 @@
+**Un licor tradicional prohibido en Irán resurge en Nueva York**\
+`Mientras la guerra asola su patria, cuatro expatriados destilan “aragh sagi”, una bebida persa que se está poniendo de moda en bares, restaurantes y tiendas estadounidenses.`\
+https://www.nytimes.com/es/2026/04/17/espanol/mundo/licor-iran.html
+
 **House Votes to Extend Expiring Law on Warrantless Surveillance for 10 Days**\
 `The Senate would need to also approve the stopgap measure that passed the House early Friday. Libertarian-leaning House Republicans had balked at a long-term extension.`\
 https://www.nytimes.com/2026/04/17/us/politics/fisa-702-surveillance-house-vote-trump.html

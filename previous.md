@@ -1,3 +1,7 @@
+**Un licor tradicional prohibido en Irán resurge en Nueva York**\
+`Mientras la guerra asola su patria, cuatro expatriados destilan “aragh sagi”, una bebida persa que se está poniendo de moda en bares, restaurantes y tiendas estadounidenses.`\
+https://www.nytimes.com/es/2026/04/17/espanol/mundo/licor-iran.html
+
 **House Votes to Extend Expiring Law on Warrantless Surveillance for 10 Days**\
 `The Senate would need to also approve the stopgap measure that passed the House early Friday. Libertarian-leaning House Republicans had balked at a long-term extension.`\
 https://www.nytimes.com/2026/04/17/us/politics/fisa-702-surveillance-house-vote-trump.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/17/style/jacqui-agostinelli-james-squires-weddin
 **Her Grandmother Told Her ‘Maybe You’ll Marry Him One Day’**\
 `After Ben Sweeney and Lauren Fogel debarked their plane at 3 a.m., he invited her to stay at his parents’ house nearby. Her grandmother was impressed.`\
 https://www.nytimes.com/2026/04/17/style/lauren-fogel-ben-sweeney-wedding.html
-
-**It Took a Persistent Friend and a Dave Matthews Concert to Seal the Deal**\
-`Daniel Martinez Clavijo and Johanna Mele finally met in 2021, thanks to their mutual friend, who had been trying to set them up for almost a decade, and a chance encounter at Madison Square Garden.`\
-https://www.nytimes.com/2026/04/17/style/johanna-mele-daniel-martinez-clavijo-wedding.html
 
