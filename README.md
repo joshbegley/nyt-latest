@@ -1,3 +1,7 @@
+**Mississippi Liquor Stores Run Dry Amid State Distribution Delays**\
+`The state liquor agency has been struggling to make timely deliveries to restaurants, bars and liquor stores since it got rid of outdated conveyor belts at a warehouse in January.`\
+https://www.nytimes.com/2026/04/17/business/mississippi-liquor-shortage.html
+
 **Cerebras, an A.I. Chip Maker, Files to Go Public as Tech Offerings Ramp Up**\
 `The Silicon Valley chip maker filed a prospectus just as SpaceX, Anthropic and OpenAI prepare for their own listings, in what is shaping up to be a wave of enormous initial public offerings.`\
 https://www.nytimes.com/2026/04/17/technology/cerebras-public-offering-ai.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/04/17/technology/cerebras-public-offering-ai.html
 `San Diego County is shopping a surplus of desalinated seawater to Western states that are facing increasingly urgent drought and short supplies.`\
 https://www.nytimes.com/2026/04/17/climate/how-pacific-ocean-water-could-help-the-colorado-river-crisis.html
 
-**Sazerac Prepares $15 Billion Cash Offer for Maker of Jack Daniels**\
+**Sazerac Prepares $15 Billion Cash Offer for Maker of Jack Daniel’s**\
 `The Kentucky spirits company’s bid for Brown-Forman comes as the industry is being buffeted by a decline in alcohol consumption.`\
 https://www.nytimes.com/2026/04/17/business/sazerac-brown-forman-jack-daniels.html
 
@@ -22,9 +26,9 @@ https://www.nytimes.com/2026/04/17/briefing/the-strait-of-hormuz-college-cookies
 `As state leaders determine how much owners of high-priced second homes in New York City may have to pay, they are also wrestling with opaque L.L.C.-ownership issues.`\
 https://www.nytimes.com/2026/04/17/nyregion/second-home-tax.html
 
-**Trump frames war in Iran as all but over in a flurry of optimistic social media posts.**\
+**Trump Frames Iran War as All But Over in Optimistic Social Media Flurry**\
 `Iranian officials did not confirm most of Mr. Trump’s claims and disputed several of them.`\
-https://www.nytimes.com/2026/04/17/world/middleeast/trump-frames-war-in-iran-as-all-but-over-in-a-flurry-of-optimistic-social-media-posts.html
+https://www.nytimes.com/2026/04/17/world/middleeast/trump-iran-war-truth-social-posts.html
 
 **Iran says the Strait of Hormuz is open, but adds that it is still under Tehran’s supervision.**\
 `Ab`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/17/us/justice-dept-trump-investigation-cia-brenn
 **Federal Appeals Court Opens Door to Moving Trans Inmates Under Trump Gender Order**\
 `A three-judge panel gave a group of 17 transgender women a few weeks to seek further recourse in court before their transfer to men’s facilities could take effect.`\
 https://www.nytimes.com/2026/04/17/us/politics/transgender-prisoners-appeals-court.html
-
-**Optimism Rises for Iran Talks, but Hard Work Awaits**\
-`President Trump said the process of clinching a final peace deal with Iran would now “go very quickly.” But analysts called that unlikely.`\
-https://www.nytimes.com/2026/04/17/us/strait-of-hormuz-open-iran-talks-negotiations.html
 
