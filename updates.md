@@ -1,3 +1,7 @@
+**Rescuers Mount a Likely Final Push to Save a Stranded Whale**\
+`Rescue crews mounted a likely final push to save a stranded humpback whale off the coast of Northern Germany on Friday. The large mammal, nicknamed “Timmy,” captivated the nation after it was stranded in shallow waters for weeks.`\
+https://www.nytimes.com/video/science/earth/100000010847664/timmy-whale-stranded-rescue-germany.html
+
 **Western States Need Water. San Diego Has Extra. Will They Make A Deal?**\
 `San Diego County is shopping a surplus of desalinated seawater to Western states that are facing increasingly urgent drought and short supplies.`\
 https://www.nytimes.com/2026/04/17/climate/how-pacific-ocean-water-could-help-the-colorado-river-crisis.html

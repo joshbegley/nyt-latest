@@ -1,3 +1,7 @@
+**Man Accused of Killing Charlie Kirk Wants to Ban Cameras From Court**\
+`Lawyers for the man, Tyler Robinson, have argued that filming the court hearings threatens his right to a fair trial.`\
+https://www.nytimes.com/2026/04/17/us/charlie-kirk-tyler-robinson-murder-utah-court.html
+
 **Rescuers Mount a Likely Final Push to Save a Stranded Whale**\
 `Rescue crews mounted a likely final push to save a stranded humpback whale off the coast of Northern Germany on Friday. The large mammal, nicknamed “Timmy,” captivated the nation after it was stranded in shallow waters for weeks.`\
 https://www.nytimes.com/video/science/earth/100000010847664/timmy-whale-stranded-rescue-germany.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/17/arts/design/celeste-dupuy-spencer-dead.html
 **Suspect Accused of Hacking Climate Activists Appears in Court**\
 `Amit Forlit is accused of running a hacking operation that aimed to thwart climate litigation at the behest of a lobbying firm working for an oil giant.`\
 https://www.nytimes.com/2026/04/17/climate/amit-forlit-hacking-court.html
-
-**N.Y.C. Doormen and Building Owners Reach an Agreement to Avert a Strike**\
-`The deal would provide pay raises and maintain free health insurance for about 34,000 apartment building workers.`\
-https://www.nytimes.com/2026/04/17/nyregion/nyc-doorman-strike-averted.html
 
