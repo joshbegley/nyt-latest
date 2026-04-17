@@ -1,3 +1,7 @@
+**You Have Some Options for Dealing With Rising Property Taxes**\
+`The average bill rose 3 percent last year, in part because of higher tax rates. There are ways to try to reduce what you owe, experts say.`\
+https://www.nytimes.com/2026/04/17/your-money/property-taxes-appeals.html
+
 **Washington’s Scramble to Get Anthropic’s Powerful New Model**\
 `Federal agencies have requested access to Claude Mythos Preview, which Anthropic says can rapidly identify — and potentially create — new cyberthreats.`\
 https://www.nytimes.com/2026/04/17/business/dealbook/washington-anthropic-mythos.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/17/world/europe/trump-samson-europe.html
 **Trump quiere detener el tráfico de drogas originado en Sudamérica. ¿Eso es posible?**\
 `Las autoridades emplean drones, tropas e IA para combatir el contrabando de cocaína. Pero las bandas hallan nuevas formas de transportar cantidades récord de drogas por todo el mundo.`\
 https://www.nytimes.com/es/2026/04/17/espanol/america-latina/detener-trafico-drogas-sudamerica.html
-
-**Our Tax System Should Make You Furious**\
-`The tax expert Ray Madoff explains why the American tax system is broken, and how to make it fairer.`\
-https://www.nytimes.com/2026/04/17/opinion/ezra-klein-podcast-ray-madoff.html
 

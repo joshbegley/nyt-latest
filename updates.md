@@ -1,3 +1,7 @@
+**You Have Some Options for Dealing With Rising Property Taxes**\
+`The average bill rose 3 percent last year, in part because of higher tax rates. There are ways to try to reduce what you owe, experts say.`\
+https://www.nytimes.com/2026/04/17/your-money/property-taxes-appeals.html
+
 **We Got Inside Knicks Surveillance — and M.S.G.’s Deep State Is Stranger Than You Think**\
 `A WIRED investigation — revealed in collaboration with PTFO.`\
 https://www.nytimes.com/2026/04/17/podcasts/knicks-surveillance-msg-wired-investigation.html
