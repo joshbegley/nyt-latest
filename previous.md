@@ -1,3 +1,11 @@
+**Lutnick Blasts Canada Ahead of Trade Talks**\
+`Howard Lutnick, President Trump’s commerce secretary, derided Canada’s trade strategy and said a North American deal needed to be reworked.`\
+https://www.nytimes.com/2026/04/17/world/canada/trump-lutnick-canada-us-talks-trade-deal.html
+
+**Olivia Rodrigo’s ‘Drop Dead’ Is a Heavenly Fakeout**\
+`The first taste of the pop star’s third album isn’t a bloodthirsty kiss-off, but a dreamy ode to losing herself in love.`\
+https://www.nytimes.com/2026/04/17/arts/music/olivia-rodrigo-drop-dead.html
+
 **D4vd y la muerte de Celeste Rivas Hernández: lo que hay que saber**\
 `El músico, creador del himno de Fortnite, ha sido detenido en relación con la muerte de Rivas Hernández, cuyo cadáver fue encontrado en el maletero de su Tesla el pasado septiembre.`\
 https://www.nytimes.com/es/2026/04/17/espanol/cultura/d4vd-celeste-rivas-hernandez-tesla-asesinato.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/17/world/europe/london-israeli-embassy-drone-thr
 **Five Action Movies to Stream Now**\
 `This month’s picks include killer sharks, unlikely gangsters, and defiant ballerinas.`\
 https://www.nytimes.com/2026/04/17/movies/action-movies-streaming.html
-
-**Is the Movie Star Back? Sort Of.**\
-`Box office earnings seem no longer won by name alone. From “Project Hail Mary” to “F1,” celebrities are campaigning overtime on screens large and small to lead to hits.`\
-https://www.nytimes.com/2026/04/17/movies/ryan-gosling-sydney-sweeney-box-office.html
-
-**It’s the 1970s Again. Democrats Should Study Up on Reagan.**\
-`Good politicians play the hand they’re dealt.`\
-https://www.nytimes.com/2026/04/17/opinion/its-the-1970s-again-democrats-should-study-up-on-reagan.html
 
