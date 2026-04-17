@@ -1,3 +1,11 @@
+**Palabra del día: ‘emulate’**\
+`Esta palabra ha aparecido en 406 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/04/17/espanol/que-significa-emulate.html
+
+**Stephen Colbert Delights in Trump’s ‘Ongoing Papal Feud’**\
+`The host of “The Late Show” recapped what he called “yet another day when the entire world is on edge over President Trump’s senseless and elective war — with the pope.”`\
+https://www.nytimes.com/2026/04/17/arts/television/colbert-trump-papal-feud.html
+
 **Word of the Day: emulate**\
 `This word has appeared in 406 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/04/17/learning/word-of-the-day-emulate.html
