@@ -1,3 +1,7 @@
+**Oil Prices Fall Sharply After Iran Says Strait of Hormuz Is Open**\
+`But analysts said it was not clear how quickly the oil industry in the Persian Gulf would be able to get back to normal.`\
+https://www.nytimes.com/2026/04/17/business/energy-environment/oil-prices-iran-hormuz.html
+
 **How Do You Measure an A.I. Boom?**\
 `A chart created by METR, a nonprofit A.I. organization, has become an industrywide obsession as it measures the rapid development of big A.I. systems.`\
 https://www.nytimes.com/2026/04/17/technology/how-do-you-measure-an-ai-boom.html

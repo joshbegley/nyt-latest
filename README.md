@@ -1,3 +1,7 @@
+**Ella se aseguró de que su bebé naciera en EE. UU. Luego las autoridades los separaron**\
+`Diana Acosta Verde, quien entró de forma ilegal en EE. UU. cuando estaba embarazada de seis meses, tuvo que dejar a su bebé en un hospital mientras regresaba a un centro de detención.`\
+https://www.nytimes.com/es/2026/04/17/espanol/estados-unidos/migracion-ciudadania-nacimiento-detencion.html
+
 **Oil Prices Fall Sharply After Iran Says Strait of Hormuz Is Open**\
 `But analysts said it was not clear how quickly the oil industry in the Persian Gulf would be able to get back to normal.`\
 https://www.nytimes.com/2026/04/17/business/energy-environment/oil-prices-iran-hormuz.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/17/world/middleeast/strait-hormuz-open-iran-leba
 **You Have Some Options for Dealing With Rising Property Taxes**\
 `The average bill rose 3 percent last year, in part because of higher tax rates. There are ways to try to reduce what you owe, experts say.`\
 https://www.nytimes.com/2026/04/17/your-money/property-taxes-appeals.html
-
-**Washington’s Scramble to Get Anthropic’s Powerful New Model**\
-`Federal agencies have requested access to Claude Mythos Preview, which Anthropic says can rapidly identify — and potentially create — new cyberthreats.`\
-https://www.nytimes.com/2026/04/17/business/dealbook/washington-anthropic-mythos.html
 
