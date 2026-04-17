@@ -1,3 +1,7 @@
+**Word of the Day: emulate**\
+`This word has appeared in 406 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/04/17/learning/word-of-the-day-emulate.html
+
 **‘The Pitt’ Season 2 Finale Recap: Jagged Little Pills**\
 `For all the death and darkness the Pitt crew had to swallow this season, the finale also offered profound moments of hope and renewal.`\
 https://www.nytimes.com/2026/04/16/arts/television/the-pitt-recap-season-2-finale.html

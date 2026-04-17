@@ -1,3 +1,7 @@
+**Word of the Day: emulate**\
+`This word has appeared in 406 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/04/17/learning/word-of-the-day-emulate.html
+
 **Trump says he might go to Pakistan if an Iran deal were signed there.**\
 ``\
 https://www.nytimes.com/2026/04/16/world/middleeast/trump-says-he-might-go-to-pakistan-if-an-iran-deal-were-signed-there.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/16/arts/music/d4vd-charged-teen-death-tesla.html
 **Former Navy Service Member Charged in Georgia Killing Spree**\
 `The suspect is accused of carrying out a string of attacks in the Atlanta area that killed two women and injured a homeless man. The authorities described the attacks as random.`\
 https://www.nytimes.com/2026/04/16/us/atlanta-killings-attacks-charges.html
-
-**F.A.A. Caps Flights at O’Hare Airport in Chicago to Cut Delays**\
-`Set to be in place throughout the summer, the limit aims to ease congestion after less than 60 percent of flights ran on schedule.`\
-https://www.nytimes.com/2026/04/16/us/flights-cap-chicago-ohare-airport.html
 
