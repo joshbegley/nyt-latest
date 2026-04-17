@@ -1,3 +1,15 @@
+**Trump says he might go to Pakistan if an Iran deal were signed there.**\
+``\
+https://www.nytimes.com/2026/04/16/world/middleeast/trump-says-he-might-go-to-pakistan-if-an-iran-deal-were-signed-there.html
+
+**A Stunning New Verdict Rewrites the Rules of Corporate Morality**\
+`The profit motive was on trial. The verdict was scathing.`\
+https://www.nytimes.com/2026/04/17/opinion/a-stunning-new-verdict-rewrites-the-rules-of-corporate-morality.html
+
+**El ‘arco del triunfo’ de Trump suscita reacciones en contra, incluso de quien lo propuso**\
+`La historia de cómo el presidente Trump cuadruplicó el tamaño de la propuesta original del arco sigue un patrón ya conocido.`\
+https://www.nytimes.com/es/2026/04/17/espanol/estados-unidos/trump-arco-triunfo-diseno.html
+
 **Memes de Jesús, amenazas, guerra en Irán: un retrato de Trump bajo presión**\
 `El presidente de EE. UU. arremete contra enemigos, aliados e incluso el papa. Mientras tanto, los republicanos intentan concentrarse en la economía previo a las elecciones intermedias.`\
 https://www.nytimes.com/es/2026/04/17/espanol/estados-unidos/trump-imagenes-jesus-papa-criticias.html

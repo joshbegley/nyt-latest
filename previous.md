@@ -1,3 +1,15 @@
+**Trump says he might go to Pakistan if an Iran deal were signed there.**\
+``\
+https://www.nytimes.com/2026/04/16/world/middleeast/trump-says-he-might-go-to-pakistan-if-an-iran-deal-were-signed-there.html
+
+**A Stunning New Verdict Rewrites the Rules of Corporate Morality**\
+`The profit motive was on trial. The verdict was scathing.`\
+https://www.nytimes.com/2026/04/17/opinion/a-stunning-new-verdict-rewrites-the-rules-of-corporate-morality.html
+
+**El ‘arco del triunfo’ de Trump suscita reacciones en contra, incluso de quien lo propuso**\
+`La historia de cómo el presidente Trump cuadruplicó el tamaño de la propuesta original del arco sigue un patrón ya conocido.`\
+https://www.nytimes.com/es/2026/04/17/espanol/estados-unidos/trump-arco-triunfo-diseno.html
+
 **Memes de Jesús, amenazas, guerra en Irán: un retrato de Trump bajo presión**\
 `El presidente de EE. UU. arremete contra enemigos, aliados e incluso el papa. Mientras tanto, los republicanos intentan concentrarse en la economía previo a las elecciones intermedias.`\
 https://www.nytimes.com/es/2026/04/17/espanol/estados-unidos/trump-imagenes-jesus-papa-criticias.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/16/us/atlanta-killings-attacks-charges.html
 **F.A.A. Caps Flights at O’Hare Airport in Chicago to Cut Delays**\
 `Set to be in place throughout the summer, the limit aims to ease congestion after less than 60 percent of flights ran on schedule.`\
 https://www.nytimes.com/2026/04/16/us/flights-cap-chicago-ohare-airport.html
-
-**Israel y Líbano acuerdan un alto al fuego de 10 días**\
-`La pausa en los combates entre las fuerzas israelíes y los militantes de Hizbulá, aliados de Irán, ayudaría a allanar el camino hacia un acuerdo de paz entre EE. UU e Irán.`\
-https://www.nytimes.com/es/2026/04/16/espanol/mundo/israel-libano-tregua.html
-
-**Officials Investigate Bomb Threat at Home of Pope’s Brother**\
-`The police in suburban Chicago said they found no explosive devices. The investigation comes amid a public dispute between the pope and President Trump over the Iran war.`\
-https://www.nytimes.com/2026/04/16/us/pope-brother-bomb-threat.html
-
-**An Arrest in the Streets of New York, on Horseback**\
-`An officer from the Police Department’s Mounted Unit raced through the Upper West Side of Manhattan, chasing a woman accused of snatching a purse.`\
-https://www.nytimes.com/2026/04/16/nyregion/nypd-chase-horseback-mounted.html
 
