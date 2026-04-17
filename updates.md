@@ -1,3 +1,19 @@
+**With Vaccines Widely Popular, Kennedy Changes Tone, but Maybe Not His Plans**\
+`Several moves suggest Health Secretary Robert F. Kennedy could revive his campaign to question the safety and effectiveness of the shots after the midterm elections.`\
+https://www.nytimes.com/2026/04/17/us/politics/vaccines-kennedy-cdc.html
+
+**Displaced Family Returns Home Following Truce Between Israel and Lebanon**\
+`Ghia Hajo, 25, returned to her home in Tyre, a city in southern Lebanon that Israel has bombarded with strikes, following the announcement of a 10-day cease-fire.`\
+https://www.nytimes.com/video/world/middleeast/100000010847401/lebanon-return-home-cease-fire.html
+
+**Tornados Reported Across the Midwest as Powerful Storms Slam the Region**\
+`One reported tornado downed trees and damaged cars in Lena, Ill., an official said.`\
+https://www.nytimes.com/2026/04/17/weather/tornadoes-lena-illinois-missouri-kansas-forecast.html
+
+**White House and Anthropic Hold ‘Productive’ Meeting, Aiming for a Compromise**\
+`Friday’s meeting at the White House followed the introduction of Anthropic’s powerful new artificial intelligence model, Mythos, which U.S. officials believe could be critical for security.`\
+https://www.nytimes.com/2026/04/17/technology/white-house-anthropic-artificial-intelligence.html
+
 **Homeland Security Expands Deportation Fleet With High-End Jets**\
 `The contract for five planes doubles the Department of Homeland Security’s fleet of jets to expel immigrants, and includes two Gulfstream planes, according to documents and interviews.`\
 https://www.nytimes.com/2026/04/17/us/politics/homeland-security-gulfstream.html

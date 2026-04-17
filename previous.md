@@ -1,3 +1,19 @@
+**With Vaccines Widely Popular, Kennedy Changes Tone, but Maybe Not His Plans**\
+`Several moves suggest Health Secretary Robert F. Kennedy could revive his campaign to question the safety and effectiveness of the shots after the midterm elections.`\
+https://www.nytimes.com/2026/04/17/us/politics/vaccines-kennedy-cdc.html
+
+**Displaced Family Returns Home Following Truce Between Israel and Lebanon**\
+`Ghia Hajo, 25, returned to her home in Tyre, a city in southern Lebanon that Israel has bombarded with strikes, following the announcement of a 10-day cease-fire.`\
+https://www.nytimes.com/video/world/middleeast/100000010847401/lebanon-return-home-cease-fire.html
+
+**Tornados Reported Across the Midwest as Powerful Storms Slam the Region**\
+`One reported tornado downed trees and damaged cars in Lena, Ill., an official said.`\
+https://www.nytimes.com/2026/04/17/weather/tornadoes-lena-illinois-missouri-kansas-forecast.html
+
+**White House and Anthropic Hold ‘Productive’ Meeting, Aiming for a Compromise**\
+`Friday’s meeting at the White House followed the introduction of Anthropic’s powerful new artificial intelligence model, Mythos, which U.S. officials believe could be critical for security.`\
+https://www.nytimes.com/2026/04/17/technology/white-house-anthropic-artificial-intelligence.html
+
 **Homeland Security Expands Deportation Fleet With High-End Jets**\
 `The contract for five planes doubles the Department of Homeland Security’s fleet of jets to expel immigrants, and includes two Gulfstream planes, according to documents and interviews.`\
 https://www.nytimes.com/2026/04/17/us/politics/homeland-security-gulfstream.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/17/world/middleeast/trump-iran-war-truth-social-
 **Iran says the Strait of Hormuz is open, but adds that it is still under Tehran’s supervision.**\
 `Ab`\
 https://www.nytimes.com/live/2026/04/17/world/iran-us-war-trump/iran-says-the-strait-of-hormuz-is-open-but-adds-that-it-is-still-under-tehrans-supervision
-
-**Amid Conflicting Messages, Optimism for Peace Deal Emerges**\
-`On a day when both Iran and the United States declared the Strait of Hormuz opened, hopes for an agreement rose. But statements from President Trump and Iranian leaders about negotiations were sometimes at odds.`\
-https://www.nytimes.com/2026/04/17/world/middleeast/trump-iran-hormuz-peace-deal.html
-
-**‘Salaries Are for Suckers’**\
-`How is it possible that a billionaire like Jeff Bezos has a lower tax rate than the average American? The tax expert Ray Madoff joins the Opinion columnist Ezra Klein to explain how the ultra-wealthy pay a disproportionately low amount of federal income taxes in comparison to their overall wealth.`\
-https://www.nytimes.com/video/opinion/100000010839393/salaries-are-for-suckers.html
-
-**Kevin Klose, Who Made NPR a Reporting Powerhouse, Dies at 85**\
-`A longtime journalist at The Washington Post, he used his unexpected fund-raising talents to greatly expand the radio organization’s coverage.`\
-https://www.nytimes.com/2026/04/17/business/media/kevin-klose-dead.html
-
-**Iris Long, Scientific Mentor to AIDS Activists, Dies at 92**\
-`A chemist, she lent her expertise in drug research to ACT UP, an organization known for its street protests, and helped accelerate the approval of H.I.V. and AIDS treatments.`\
-https://www.nytimes.com/2026/04/17/health/iris-long-dead.html
 
