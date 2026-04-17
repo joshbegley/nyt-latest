@@ -1,3 +1,11 @@
+**Federal Appeals Court Opens Door to Moving Trans Inmates Under Trump Gender Order**\
+`A three-judge panel gave a group of 17 transgender women a few weeks to seek further recourse in court before their transfer to men’s facilities could take effect.`\
+https://www.nytimes.com/2026/04/17/us/politics/transgender-prisoners-appeals-court.html
+
+**Optimism Rises for Iran Talks, but Hard Work Awaits**\
+`President Trump said the process of clinching a final peace deal with Iran would now “go very quickly.” But analysts called that unlikely.`\
+https://www.nytimes.com/2026/04/17/us/strait-of-hormuz-open-iran-talks-negotiations.html
+
 **The Long, Slow Race to Save Timmy, Germany’s Favorite Whale**\
 `A month of efforts to help a stranded humpback escape the Baltic Sea have culminated in a tourist and media spectacle, with no guarantee of success.`\
 https://www.nytimes.com/2026/04/17/world/europe/timmy-whale-stranded-rescue-germany.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/interactive/2026/04/17/t-magazine/controversy-buildings-
 **What’s the Difference Between Art Deco and Art Nouveau?**\
 `Easily confused design terms explained.`\
 https://www.nytimes.com/interactive/2026/04/17/t-magazine/design-terms-art-deco-nouveau-baroque.html
-
-**Is This Table a Fake?**\
-`Take T’s quiz to determine whether a furniture piece is original or not.`\
-https://www.nytimes.com/interactive/2026/04/17/t-magazine/fake-original-furniture-design.html
-
-**Stone, Glass, Earth, Steel: A History of Architecture**\
-`The most consequential building materials throughout time.`\
-https://www.nytimes.com/interactive/2026/04/17/t-magazine/architecture-materials-brick-stone.html
 

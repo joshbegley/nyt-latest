@@ -1,3 +1,7 @@
+**Prosecutor Withdraws From Trump Team’s Investigation of Ex-C.I.A. Chief**\
+`A career Justice Department lawyer, Maria Medetis Long, in Miami is said to have raised concerns about whether the evidence justified moving forward with a bid to prosecute John O. Brennan.`\
+https://www.nytimes.com/2026/04/17/us/justice-dept-trump-investigation-cia-brennan.html
+
 **Federal Appeals Court Opens Door to Moving Trans Inmates Under Trump Gender Order**\
 `A three-judge panel gave a group of 17 transgender women a few weeks to seek further recourse in court before their transfer to men’s facilities could take effect.`\
 https://www.nytimes.com/2026/04/17/us/politics/transgender-prisoners-appeals-court.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/04/17/t-magazine/garden-design-style.ht
 **From the Tower of Babel to the White House Ballroom**\
 `History’s most controversial buildings, selected by two architects and a critic.`\
 https://www.nytimes.com/interactive/2026/04/17/t-magazine/controversy-buildings-architecture.html
-
-**What’s the Difference Between Art Deco and Art Nouveau?**\
-`Easily confused design terms explained.`\
-https://www.nytimes.com/interactive/2026/04/17/t-magazine/design-terms-art-deco-nouveau-baroque.html
 
