@@ -8,7 +8,7 @@ https://www.nytimes.com/2026/04/17/us/french-woman-release-alabama-ice.html
 
 **The Strait of Hormuz is open during the cease-fire in Lebanon, U.S. and Iran say.**\
 ``\
-https://www.nytimes.com/live/2026/04/17/world/iran-us-war-trump/strait-hormuz-open-iran-lebanon-ceasefire
+https://www.nytimes.com/2026/04/17/world/middleeast/strait-hormuz-open-iran-lebanon-ceasefire.html
 
 **You Have Some Options for Dealing With Rising Property Taxes**\
 `The average bill rose 3 percent last year, in part because of higher tax rates. There are ways to try to reduce what you owe, experts say.`\

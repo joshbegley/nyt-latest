@@ -1,3 +1,7 @@
+**The Strait of Hormuz is open during the cease-fire in Lebanon, U.S. and Iran say.**\
+``\
+https://www.nytimes.com/2026/04/17/world/middleeast/strait-hormuz-open-iran-lebanon-ceasefire.html
+
 **He Looked for Ways to Stop Mass Violence**\
 `David Eisenman sought to better understand how to prevent school shootings and other targeted violence, until the Department of Homeland Security halted the research.`\
 https://www.nytimes.com/2026/04/17/science/lost-science-eisenman-violence.html
