@@ -1,3 +1,11 @@
+**After a Week of Tornadoes and Floods, Friday May Bring the Strongest Storms Yet**\
+`The Midwest has faced day after day of weather warnings this week. More are expected on Friday.`\
+https://www.nytimes.com/2026/04/17/weather/kansas-missouri-iowa-wisconsin-storms-forecast.html
+
+**The 27-Year-Old Diplomat Waging Trump’s Cultural War With Europe**\
+`Five years out of college, Samuel Samson has driven the Trump administration’s push to upend America’s postwar relationship with Europe.`\
+https://www.nytimes.com/2026/04/17/world/europe/trump-samson-europe.html
+
 **Trump quiere detener el tráfico de drogas originado en Sudamérica. ¿Eso es posible?**\
 `Las autoridades emplean drones, tropas e IA para combatir el contrabando de cocaína. Pero las bandas hallan nuevas formas de transportar cantidades récord de drogas por todo el mundo.`\
 https://www.nytimes.com/es/2026/04/17/espanol/america-latina/detener-trafico-drogas-sudamerica.html
