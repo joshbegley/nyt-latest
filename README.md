@@ -1,3 +1,7 @@
+**What to Know About the Israel-Lebanon Cease-Fire**\
+`The pause in fighting would remove a major hindrance to the U.S.-Iran peace talks, if it holds.`\
+https://www.nytimes.com/2026/04/17/world/middleeast/israel-lebanon-ceasefire.html
+
 **A.I. Backlash Turns Violent + Kara Swisher on Healthmaxxing + The Zuck Bot Is Coming**\
 `Is anti-A.I. radicalization a growing trend?`\
 https://www.nytimes.com/2026/04/17/podcasts/hardfork-ai-backlash.html
@@ -62,7 +66,7 @@ https://www.nytimes.com/2026/04/17/world/europe/trump-samson-europe.html
 `Las autoridades emplean drones, tropas e IA para combatir el contrabando de cocaína. Pero las bandas hallan nuevas formas de transportar cantidades récord de drogas por todo el mundo.`\
 https://www.nytimes.com/es/2026/04/17/espanol/america-latina/detener-trafico-drogas-sudamerica.html
 
-**Why Jeff Bezos’ Tax Rate Is Lower Than Yours**\
+**Our Tax System Should Make You Furious**\
 `The tax expert Ray Madoff explains why the American tax system is broken, and how to make it fairer.`\
 https://www.nytimes.com/2026/04/17/opinion/ezra-klein-podcast-ray-madoff.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/04/17/briefing/quiz-pope-ceasefire-swal
 **Conversation Starters That Aren’t ‘How’s It Going?’**\
 `“What’s up?” is a conversational dead end, too. Here are some alternatives to spark a satisfying chat.`\
 https://www.nytimes.com/2026/04/17/well/conversation-starters-openers.html
-
-**Have You Ever Turned Another Person’s Trash Into Your Own Treasure?**\
-`What’s the most memorable or valuable thing you have ever salvaged?`\
-https://www.nytimes.com/2026/04/17/learning/have-you-ever-turned-another-persons-trash-into-your-own-treasure.html
 
