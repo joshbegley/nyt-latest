@@ -1,3 +1,15 @@
+**The U.S. military blockade on ships entering or leaving Iran will continue until Trump ends it.**\
+``\
+https://www.nytimes.com/live/2026/04/17/world/iran-us-war-trump/the-us-military-blockade-on-ships-entering-or-leaving-iran-will-continue-until-trump-ends-it
+
+**Ye Concert in Poland Is Canceled**\
+`The announcement came a day after a government official said, “In a country marked by the history of the Holocaust, we cannot pretend that this is just entertainment.”`\
+https://www.nytimes.com/2026/04/17/arts/music/ye-poland-concert-canceled.html
+
+**Seeking 1 Trillion Dollars, Carney Invites Investors Summit to Canada**\
+`Prime Minister Mark Carney has set up a meeting and a new office to speed project approvals and make Canada more attractive to investors.`\
+https://www.nytimes.com/2026/04/17/world/canada/carney-investors-summit-canada-us-trade.html
+
 **How Theater Can Still Challenge Us**\
 `The director Ivo van Hove and others share essential avant-garde productions.`\
 https://www.nytimes.com/interactive/2026/04/17/t-magazine/avant-garde-experimental-theater.html

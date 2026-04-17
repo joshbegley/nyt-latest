@@ -1,3 +1,15 @@
+**The U.S. military blockade on ships entering or leaving Iran will continue until Trump ends it.**\
+``\
+https://www.nytimes.com/live/2026/04/17/world/iran-us-war-trump/the-us-military-blockade-on-ships-entering-or-leaving-iran-will-continue-until-trump-ends-it
+
+**Ye Concert in Poland Is Canceled**\
+`The announcement came a day after a government official said, “In a country marked by the history of the Holocaust, we cannot pretend that this is just entertainment.”`\
+https://www.nytimes.com/2026/04/17/arts/music/ye-poland-concert-canceled.html
+
+**Seeking 1 Trillion Dollars, Carney Invites Investors Summit to Canada**\
+`Prime Minister Mark Carney has set up a meeting and a new office to speed project approvals and make Canada more attractive to investors.`\
+https://www.nytimes.com/2026/04/17/world/canada/carney-investors-summit-canada-us-trade.html
+
 **How Theater Can Still Challenge Us**\
 `The director Ivo van Hove and others share essential avant-garde productions.`\
 https://www.nytimes.com/interactive/2026/04/17/t-magazine/avant-garde-experimental-theater.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/interactive/2026/04/17/t-magazine/architecture-materials
 **The 10 Most Important Chairs**\
 `By combining utility and style in novel ways, these seats have changed the way we think about how furniture is made — and who it’s for.`\
 https://www.nytimes.com/interactive/2026/04/17/t-magazine/chairs-furniture-influential.html
-
-**Starmer’s Credibility Just Took Another Body Blow Over the Mandelson Scandal**\
-`Prime Minister Keir Starmer appears to have been kept in the dark repeatedly over Peter Mandelson, the Jeffrey Epstein associate — fueling an image of weakness.`\
-https://www.nytimes.com/2026/04/17/world/europe/starmer-credibility-mandelson-epstein-scandal.html
-
-**Modernism for Dummies**\
-`Ten must-know texts and aesthetic philosophies of the 20th-century European architecture and design movement.`\
-https://www.nytimes.com/interactive/2026/04/17/t-magazine/modernism-movement-design-architecture.html
-
-**Is That Column Doric or Corinthian?**\
-`A primer on columns from the architect Gil Schafer.`\
-https://www.nytimes.com/interactive/2026/04/17/t-magazine/column-architecture-classical.html
 
