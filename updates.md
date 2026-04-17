@@ -1,3 +1,11 @@
+**How JD Vance Is Being Tested as Trump’s Chief Defender**\
+`Vice President JD Vance has been tasked with defending the Iran war and President Trump’s attacks on Pope Leo XIV. Our White House correspondent Zolan Kanno-Youngs describes how that’s put Vance in a particularly difficult position.`\
+https://www.nytimes.com/video/us/politics/100000010843196/vance-defends-trump-pope-iran.html
+
+**European leaders discuss an international mission to restore shipping in Strait of Hormuz.**\
+``\
+https://www.nytimes.com/live/2026/04/17/world/iran-us-war-trump/european-leaders-discuss-an-international-mission-to-restore-shipping-in-strait-of-hormuz
+
 **Why Lebanon Has Long Struggled to Contain Hezbollah**\
 `Lebanon’s government has been caught between Western demands to disarm the Shiite Muslim militant group and fears of inflaming sectarian tensions.`\
 https://www.nytimes.com/2026/04/17/world/middleeast/lebanon-hezbollah-ceasefire.html
