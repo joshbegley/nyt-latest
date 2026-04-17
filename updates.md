@@ -1,3 +1,7 @@
+**Tufts Student Who Was Held in Immigration Detention Returns to Turkey**\
+`Rumeysa Ozturk, who was detained for weeks by the Trump administration after co-writing a pro-Palestinian opinion essay, has graduated and returned home.`\
+https://www.nytimes.com/2026/04/17/us/tufts-student-rumeysa-ozturk-returns-turkey.html
+
 **El alto al fuego en Líbano deja a Benjamín Netanyahu en una posición incómoda**\
 `La mayoría de los israelíes querían que continuara la lucha contra Hizbulá. Pero los críticos del primer ministro de Israel dicen que está demostrando que no puede, o no quiere, enfrentarse al presidente Trump.`\
 https://www.nytimes.com/es/2026/04/17/espanol/mundo/israel-libano-alto-fuego-netanyahu.html
