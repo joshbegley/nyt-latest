@@ -11,7 +11,7 @@ https://www.nytimes.com/video/science/earth/100000010847664/timmy-whale-stranded
 https://www.nytimes.com/2026/04/17/health/hiv-testing-treatment-data-pepfar.html
 
 **On Bright Red Posters Around New York, a Call to Boycott the Met Gala**\
-`A guerrilla activist group is papering the city with posters criticizing the billionaire Jeff Bezos’ involvement in the starry fund-raiser.`\
+`A guerrilla activist group is papering the city with posters criticizing the billionaire Jeff Bezos’ involvement in the event, a fund-raiser for the Metropolitan Museum.`\
 https://www.nytimes.com/2026/04/17/style/bezos-met-gala-boycott-posters.html
 
 **Mississippi Liquor Stores Run Dry Amid State Distribution Delays**\

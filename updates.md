@@ -1,3 +1,7 @@
+**Man Accused of Killing Charlie Kirk Wants to Ban Cameras From Court**\
+`Lawyers for the man, Tyler Robinson, have argued that filming the court hearings threatens his right to a fair trial.`\
+https://www.nytimes.com/2026/04/17/us/charlie-kirk-tyler-robinson-murder-utah-court.html
+
 **Rescuers Mount a Likely Final Push to Save a Stranded Whale**\
 `Rescue crews mounted a likely final push to save a stranded humpback whale off the coast of Northern Germany on Friday. The large mammal, nicknamed “Timmy,” captivated the nation after it was stranded in shallow waters for weeks.`\
 https://www.nytimes.com/video/science/earth/100000010847664/timmy-whale-stranded-rescue-germany.html
