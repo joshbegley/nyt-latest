@@ -1,3 +1,7 @@
+**New York New Jersey Stadium? Why MetLife Is Changing Its Name for the World Cup**\
+`This summer, FIFA is putting its stamp on the venue for the World Cup.`\
+https://www.nytimes.com/2026/04/17/nyregion/fifa-world-cup-stadium-names-sponsors.html
+
 **Pop Art Engages With Art of the Present at the Guggenheim**\
 `An exhibition explores examples of Pop Art from the 1960s in dialogue with recent acquisitions by contemporary artists.`\
 https://www.nytimes.com/2026/04/17/arts/design/guggenheim-pop-art.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/17/podcasts/the-headlines/israel-lebanon-cease-f
 **Connections Companion No. 1,042**\
 `Scroll down for hints and conversation about the puzzle for Saturday, April 18, 2026`\
 https://www.nytimes.com/2026/04/17/crosswords/connections-companion-1042.html
-
-**Strands Sidekick No. 776**\
-`Scroll down for hints and conversation about the puzzle for Saturday, April 18, 2026.`\
-https://www.nytimes.com/2026/04/17/crosswords/strands-sidekick-776.html
 

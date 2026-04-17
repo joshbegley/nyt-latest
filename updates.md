@@ -1,3 +1,7 @@
+**Pop Art Engages With Art of the Present at the Guggenheim**\
+`An exhibition explores examples of Pop Art from the 1960s in dialogue with recent acquisitions by contemporary artists.`\
+https://www.nytimes.com/2026/04/17/arts/design/guggenheim-pop-art.html
+
 **Strait of Hormuz Open During Lebanon Cease-Fire, but U.S. Blockade on Iran Remains**\
 `Friday’s statements that the strait is now open raised investors’ hopes that oil and gas would start flowing out of the Persian Gulf in significant volumes again.`\
 https://www.nytimes.com/2026/04/17/world/middleeast/strait-hormuz-open-iran-lebanon-ceasefire.html
