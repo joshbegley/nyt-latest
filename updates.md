@@ -1,3 +1,7 @@
+**In northern Israel, relief at the cease-fire is overshadowed by unease.**\
+`Residents are wary that the truce may offer only a temporary reprieve after weeks of rocket fire by Hezbollah.`\
+https://www.nytimes.com/live/2026/04/17/world/israel-lebanon-ceasefire-hezbollah/israel-residents-ceasefire-lebanon-hezbollah
+
 **What to Know About the Israel-Lebanon Cease-Fire**\
 `The pause in fighting would remove a major hindrance to the U.S.-Iran peace talks, if it holds.`\
 https://www.nytimes.com/2026/04/17/world/middleeast/israel-lebanon-ceasefire.html

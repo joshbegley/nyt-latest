@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/04/17/podcasts/hardfork-ai-backlash.html
 `President Trump wants to build one, but he’s getting pushback.`\
 https://www.nytimes.com/2026/04/17/briefing/a-huge-arch.html
 
-**In northern Israel, relief at cease-fire is overshadowed by unease**\
+**In northern Israel, relief at the cease-fire is overshadowed by unease.**\
 `Residents are wary that the truce may offer only a temporary reprieve after weeks of rocket fire by Hezbollah.`\
 https://www.nytimes.com/live/2026/04/17/world/israel-lebanon-ceasefire-hezbollah/israel-residents-ceasefire-lebanon-hezbollah
 
