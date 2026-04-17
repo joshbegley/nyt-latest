@@ -1,3 +1,11 @@
+**Kevin Klose, Who Made NPR a Reporting Powerhouse, Dies at 85**\
+`A longtime journalist at The Washington Post, he used his unexpected fund-raising talents to greatly expand the radio organization’s coverage.`\
+https://www.nytimes.com/2026/04/17/business/media/kevin-klose-dead.html
+
+**Iris Long, Scientific Mentor to AIDS Activists, Dies at 92**\
+`A chemist, she lent her expertise in drug research to ACT UP, an organization known for its street protests, and helped accelerate the approval of H.I.V. and AIDS treatments.`\
+https://www.nytimes.com/2026/04/17/health/iris-long-dead.html
+
 **The Politically Charged Art of Celeste Dupuy-Spencer**\
 `Her vivid paintings examined religious fundamentalism and events like the Jan. 6 riots at the U.S. Capitol. She died this month at 46.`\
 https://www.nytimes.com/2026/04/17/arts/the-politically-charged-art-of-celeste-dupuy-spencer.html
