@@ -1,3 +1,7 @@
+**On Bright Red Posters Around New York, a Call to Boycott the Met Gala**\
+`A guerrilla activist group is papering the city with posters criticizing the billionaire Jeff Bezos’ involvement in the event, a fund-raiser for the Metropolitan Museum.`\
+https://www.nytimes.com/2026/04/17/style/bezos-met-gala-boycott-posters.html
+
 **Man Accused of Killing Charlie Kirk Wants to Ban Cameras From Court**\
 `Lawyers for the man, Tyler Robinson, have argued that filming the court hearings threatens his right to a fair trial.`\
 https://www.nytimes.com/2026/04/17/us/charlie-kirk-tyler-robinson-murder-utah-court.html
