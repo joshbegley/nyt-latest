@@ -1,5 +1,9 @@
 **L.A.P.D. Arrests D4vd Months After Finding Teen’s Remains in His Tesla**\
 `The singer was detained in connection with the death of Celeste Rivas Hernandez, who died before her 15th birthday. D4vd’s lawyers said they would vigorously defend his innocence.`\
+https://www.nytimes.com/2026/04/16/arts/music/d4vd-charged-teen-death-tesla.html
+
+**L.A.P.D. Arrests D4vd Months After Finding Teen’s Remains in His Tesla**\
+`The singer was detained in connection with the death of Celeste Rivas Hernandez, who died before her 15th birthday. D4vd’s lawyers said they would vigorously defend his innocence.`\
 https://www.nytimes.com/2026/04/16/us/d4vd-charged-teen-death-tesla.html
 
 **In Las Vegas, Trump Brushes Off Rising Fuel Prices**\
