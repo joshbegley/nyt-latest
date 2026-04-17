@@ -1,3 +1,7 @@
+**Tornadoes Reported Across the Midwest as Powerful Storms Slam the Region**\
+`One reported tornado downed trees and damaged cars in Lena, Ill., an official said.`\
+https://www.nytimes.com/2026/04/17/weather/tornadoes-lena-illinois-missouri-kansas-forecast.html
+
 **American Airlines Says It Won’t Merge With United**\
 `American issued the statement after news reports that United Airlines’ chief executive had discussed the idea with the Trump administration.`\
 https://www.nytimes.com/2026/04/17/business/american-airlines-united-merger.html

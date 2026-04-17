@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/04/17/us/politics/vaccines-kennedy-cdc.html
 `Ghia Hajo, 25, returned to her home in Tyre, a city in southern Lebanon that Israel has bombarded with strikes, following the announcement of a 10-day cease-fire.`\
 https://www.nytimes.com/video/world/middleeast/100000010847401/lebanon-return-home-cease-fire.html
 
-**Tornados Reported Across the Midwest as Powerful Storms Slam the Region**\
+**Tornadoes Reported Across the Midwest as Powerful Storms Slam the Region**\
 `One reported tornado downed trees and damaged cars in Lena, Ill., an official said.`\
 https://www.nytimes.com/2026/04/17/weather/tornadoes-lena-illinois-missouri-kansas-forecast.html
 

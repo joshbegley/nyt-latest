@@ -1,3 +1,7 @@
+**Trump’s Dispute With Pope Leo Deepens Divisions on the Right**\
+`Sean Hannity criticized the pope. Tucker Carlson attacked Mr. Hannity. And President Trump suggested ranking MAGA figures: “good, bad, and somewhere in the middle.”`\
+https://www.nytimes.com/2026/04/17/us/politics/republicans-trump-pope-midterms.html
+
 **American Airlines Says It Won’t Merge With United**\
 `American issued the statement after news reports that United Airlines’ chief executive had discussed the idea with the Trump administration.`\
 https://www.nytimes.com/2026/04/17/business/american-airlines-united-merger.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/17/briefing/the-strait-of-hormuz-college-cookies
 **Contours of Pied-à-Terre Tax in New York City Begin to Take Shape**\
 `As state leaders determine how much owners of high-priced second homes in New York City may have to pay, they are also wrestling with opaque L.L.C.-ownership issues.`\
 https://www.nytimes.com/2026/04/17/nyregion/second-home-tax.html
-
-**Trump Frames Iran War as All but Over in Optimistic Social Media Flurry**\
-`Iranian officials did not confirm most of Mr. Trump’s claims and disputed several of them.`\
-https://www.nytimes.com/2026/04/17/world/middleeast/trump-iran-war-truth-social-posts.html
 
