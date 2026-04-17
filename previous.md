@@ -1,3 +1,11 @@
+**We Got Inside Knicks Surveillance — and MSG’s Deep State Is Stranger Than You Think**\
+`A WIRED investigation — revealed in collaboration with PTFO.`\
+https://www.nytimes.com/2026/04/17/podcasts/knicks-surveillance-msg-wired-investigation.html
+
+**Lebanon’s Cease-Fire Buys Time, Not a Way Out**\
+`The country’s leaders secured a truce through risky talks with Israel, but the government now finds itself caught between competing pressures.`\
+https://www.nytimes.com/2026/04/17/world/middleeast/lebanon-israel-ceasefire-hezbollah.html
+
 **El ascenso, la caída y el resurgimiento de Michael Jackson**\
 `Una nueva película biográfica es el intento más reciente de una campaña de rehabilitación póstuma —y lucrativa— del patrimonio de Michael Jackson.`\
 https://www.nytimes.com/es/2026/04/17/espanol/cultura/michael-jackson-pelicula.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/interactive/2026/04/17/magazine/procrastination-producti
 **9 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://www.nytimes.com/2026/04/17/movies/new-movie-reviews.html
-
-**At Coachella, L.A.’s Beloved Puppets Make Their Debut**\
-`After years of struggling to keep the doors open, the Bob Baker Marionette Theater joined a lineup that included Justin Bieber and Katseye.`\
-https://www.nytimes.com/2026/04/17/style/coachella-bob-baker-puppet-theater.html
-
-**Orban Lost. But Populism Is Very Much Alive.**\
-`Critics of populists need to do more than thrive off the missteps of their opponents.`\
-https://www.nytimes.com/2026/04/17/opinion/populism-orban-trump.html
 

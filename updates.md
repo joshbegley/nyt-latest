@@ -1,3 +1,11 @@
+**We Got Inside Knicks Surveillance — and MSG’s Deep State Is Stranger Than You Think**\
+`A WIRED investigation — revealed in collaboration with PTFO.`\
+https://www.nytimes.com/2026/04/17/podcasts/knicks-surveillance-msg-wired-investigation.html
+
+**Lebanon’s Cease-Fire Buys Time, Not a Way Out**\
+`The country’s leaders secured a truce through risky talks with Israel, but the government now finds itself caught between competing pressures.`\
+https://www.nytimes.com/2026/04/17/world/middleeast/lebanon-israel-ceasefire-hezbollah.html
+
 **El ascenso, la caída y el resurgimiento de Michael Jackson**\
 `Una nueva película biográfica es el intento más reciente de una campaña de rehabilitación póstuma —y lucrativa— del patrimonio de Michael Jackson.`\
 https://www.nytimes.com/es/2026/04/17/espanol/cultura/michael-jackson-pelicula.html
