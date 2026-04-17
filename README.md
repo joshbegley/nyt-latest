@@ -1,3 +1,11 @@
+**9 Shows Our Theater Critics Are Talking About**\
+`John Lithgow in “Giant,” a triumphant revival of “Death of a Salesman” and vogueing cats at “The Jellicle Ball”: These productions are worth knowing about.`\
+https://www.nytimes.com/2026/04/17/theater/salesman-giant-cats-becky-shaw-proof-broadway.html
+
+**Supreme Court Sides With Oil Companies in Louisiana Coastal Lawsuits**\
+`The companies had asked the justices to clear the way to move environmental lawsuits out of state courts, to friendlier federal venues.`\
+https://www.nytimes.com/2026/04/17/us/politics/supreme-court-oil-louisiana.html
+
 **Mamdani Endorses Lindsey Boylan, Who Accused Cuomo of Sexual Harassment**\
 `The endorsement, in a special election for a City Council seat on Manhattan’s West Side, comes as the mayor seeks to build influence within the Council.`\
 https://www.nytimes.com/2026/04/17/nyregion/lindsay-boylan-mamdani-endorsement-city-council.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/17/world/middleeast/israel-lebanon-ceasefire.htm
 **A.I. Backlash Turns Violent + Kara Swisher on Healthmaxxing + The Zuck Bot Is Coming**\
 `Is anti-A.I. radicalization a growing trend?`\
 https://www.nytimes.com/2026/04/17/podcasts/hardfork-ai-backlash.html
-
-**A Huge Arch**\
-`President Trump wants to build one, but he’s getting pushback.`\
-https://www.nytimes.com/2026/04/17/briefing/a-huge-arch.html
-
-**In northern Israel, relief at the cease-fire is overshadowed by unease.**\
-`Residents are wary that the truce may offer only a temporary reprieve after weeks of rocket fire by Hezbollah.`\
-https://www.nytimes.com/live/2026/04/17/world/israel-lebanon-ceasefire-hezbollah/israel-residents-ceasefire-lebanon-hezbollah
 
