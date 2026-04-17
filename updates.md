@@ -1,3 +1,7 @@
+**A Stunning New Verdict Rewrites the Rules of Corporate Morality**\
+`The profit motive was on trial. The verdict was scathing.`\
+https://www.nytimes.com/2026/04/17/opinion/lafarge-corporate-terrorism-syria-france.html
+
 **Palabra del día: ‘emulate’**\
 `Esta palabra ha aparecido en 406 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/04/17/espanol/que-significa-emulate.html

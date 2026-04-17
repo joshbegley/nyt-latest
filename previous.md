@@ -16,7 +16,7 @@ https://www.nytimes.com/2026/04/16/world/middleeast/trump-says-he-might-go-to-pa
 
 **A Stunning New Verdict Rewrites the Rules of Corporate Morality**\
 `The profit motive was on trial. The verdict was scathing.`\
-https://www.nytimes.com/2026/04/17/opinion/a-stunning-new-verdict-rewrites-the-rules-of-corporate-morality.html
+https://www.nytimes.com/2026/04/17/opinion/lafarge-corporate-terrorism-syria-france.html
 
 **El ‘arco del triunfo’ de Trump suscita reacciones en contra, incluso de quien lo propuso**\
 `La historia de cómo el presidente Trump cuadruplicó el tamaño de la propuesta original del arco sigue un patrón ya conocido.`\
