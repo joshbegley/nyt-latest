@@ -1,3 +1,11 @@
+**Cerebras, an A.I. Chip Maker, Files to Go Public as Tech Offerings Ramp Up**\
+`The Silicon Valley chip maker filed a prospectus just as SpaceX, Anthropic and OpenAI prepared for their own listings, in what is shaping up to be a wave of enormous initial public offerings.`\
+https://www.nytimes.com/2026/04/17/technology/cerebras-public-offering-ai.html
+
+**N.Y.C. Doormen and Building Owners Reach an Agreement to Avert a Strike**\
+`The deal would provide pay raises and maintain free health insurance for about 34,000 apartment building workers.`\
+https://www.nytimes.com/2026/04/17/nyregion/nyc-doorman-strike-averted.html
+
 **New PEPFAR Data Show Worrying Declines in Testing and Treatment for H.I.V.**\
 `The numbers are the first to quantify the effect of the Trump administration’s shutdown and restarting of a program that has saved millions of lives worldwide.`\
 https://www.nytimes.com/2026/04/17/health/hiv-testing-treatment-data-pepfar.html
