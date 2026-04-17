@@ -1,3 +1,7 @@
+**Homeland Security Expands Deportation Fleet With High-End Jets**\
+`The contract for five planes doubles the Department of Homeland Security’s fleet of jets to expel immigrants, and includes two Gulfstream planes, according to documents and interviews.`\
+https://www.nytimes.com/2026/04/17/us/politics/homeland-security-gulfstream.html
+
 **What You Taught Me About Maine**\
 `Our readers in the state tell us about its high-stakes Senate race.`\
 https://www.nytimes.com/2026/04/17/us/politics/maine-senate-election-collins-platner-mills.html
