@@ -1,3 +1,15 @@
+**Cerebras, an A.I. Chip Maker, Files to Go Public as Tech Offerings Ramp Up**\
+`The Silicon Valley chip maker filed a prospectus just as SpaceX, Anthropic and OpenAI prepare for their own listings, in what is shaping up to be a wave of enormous initial public offerings.`\
+https://www.nytimes.com/2026/04/17/technology/cerebras-public-offering-ai.html
+
+**How Pacific Ocean Water Could Help the Colorado River Crisis**\
+`San Diego County is shopping a surplus of desalinated seawater to Western states that are facing increasingly urgent drought and short supplies.`\
+https://www.nytimes.com/2026/04/17/climate/how-pacific-ocean-water-could-help-the-colorado-river-crisis.html
+
+**Sazerac Prepares $15 Billion Cash Offer for Maker of Jack Daniels**\
+`The Kentucky spirits company’s bid for Brown-Forman comes as the industry is being buffeted by a decline in alcohol consumption.`\
+https://www.nytimes.com/2026/04/17/business/sazerac-brown-forman-jack-daniels.html
+
 **F.B.I. Launches Manhunt for Youth Volleyball Coach Accused of Sex Abuse**\
 `The bureau has informed high schools, colleges and volleyball clubs in the New York City area that the coach, Edgar Lazaro Castillo, is being investigated in connection with sexual assault.`\
 https://www.nytimes.com/2026/04/17/nyregion/edgar-lazaro-castillo-volleyball-manhunt.html
@@ -12,7 +24,7 @@ https://www.nytimes.com/2026/04/17/nyregion/second-home-tax.html
 
 **Trump frames war in Iran as all but over in a flurry of optimistic social media posts.**\
 `Iranian officials did not confirm most of Mr. Trump’s claims and disputed several of them.`\
-https://www.nytimes.com/live/2026/04/17/world/iran-us-war-trump/trump-frames-war-in-iran-as-all-but-over-in-a-flurry-of-optimistic-social-media-posts
+https://www.nytimes.com/2026/04/17/world/middleeast/trump-frames-war-in-iran-as-all-but-over-in-a-flurry-of-optimistic-social-media-posts.html
 
 **Iran says the Strait of Hormuz is open, but adds that it is still under Tehran’s supervision.**\
 `Ab`\
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/17/us/politics/transgender-prisoners-appeals-cou
 **Optimism Rises for Iran Talks, but Hard Work Awaits**\
 `President Trump said the process of clinching a final peace deal with Iran would now “go very quickly.” But analysts called that unlikely.`\
 https://www.nytimes.com/2026/04/17/us/strait-of-hormuz-open-iran-talks-negotiations.html
-
-**The Long, Slow Race to Save Timmy, Germany’s Favorite Whale**\
-`A month of efforts to help a stranded humpback escape the Baltic Sea have culminated in a tourist and media spectacle, with no guarantee of success.`\
-https://www.nytimes.com/2026/04/17/world/europe/timmy-whale-stranded-rescue-germany.html
-
-**The U.S. military blockade on ships entering or leaving Iran will continue until Trump ends it.**\
-``\
-https://www.nytimes.com/live/2026/04/17/world/iran-us-war-trump/the-us-military-blockade-on-ships-entering-or-leaving-iran-will-continue-until-trump-ends-it
-
-**Ye Concert in Poland Is Canceled**\
-`The announcement came a day after a government official said, “In a country marked by the history of the Holocaust, we cannot pretend that this is just entertainment.”`\
-https://www.nytimes.com/2026/04/17/arts/music/ye-poland-concert-canceled.html
 
