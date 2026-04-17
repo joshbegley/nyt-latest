@@ -1,3 +1,7 @@
+**On ‘The Pitt,’ the Lingering Effects of Trauma Take the Spotlight**\
+`On top of the daily toll of treating patients, the show’s medical providers bring their own scars to the E.R.`\
+https://www.nytimes.com/2026/04/16/well/mind/the-pitt-trauma-ptsd.html
+
 **L.A.P.D. Arrests D4vd Months After Finding Teen’s Remains in His Tesla**\
 `The singer was charged in the death of Celeste Rivas Hernandez, who died before her 15th birthday.`\
 https://www.nytimes.com/2026/04/16/us/d4vd-charged-teen-death-tesla.html
