@@ -1,3 +1,23 @@
+**Five Action Movies to Stream Now**\
+`This month’s picks include killer sharks, unlikely gangsters, and defiant ballerinas.`\
+https://www.nytimes.com/2026/04/17/movies/action-movies-streaming.html
+
+**Is the Movie Star Back? Sort Of.**\
+`Box office earnings seem no longer won by name alone. From “Project Hail Mary” to “F1,” celebrities are campaigning overtime on screens large and small to lead to hits.`\
+https://www.nytimes.com/2026/04/17/movies/ryan-gosling-sydney-sweeney-box-office.html
+
+**It’s the 1970s Again. Democrats Should Study Up on Reagan.**\
+`Good politicians play the hand they’re dealt.`\
+https://www.nytimes.com/2026/04/17/opinion/its-the-1970s-again-democrats-should-study-up-on-reagan.html
+
+**The Metropolitan Opera Is Bringing Frida Kahlo to the Stage**\
+`In an unusual collaboration for the Met, the opera’s set designer has conceived a companion exhibition, mounted at MoMA.`\
+https://www.nytimes.com/2026/04/17/arts/design/metropolitan-opera-moma-frida-kahlo.html
+
+**Recalling When Lower Manhattan Was New Amsterdam**\
+`An exhibition at the New York Historical focuses on the city’s 17th-century roots as a Dutch settlement.`\
+https://www.nytimes.com/2026/04/17/arts/design/new-amsterdam-manhattan-dutch.html
+
 **New York New Jersey Stadium? Why MetLife Is Changing Its Name for the World Cup**\
 `This summer, FIFA is putting its stamp on the venue for the World Cup.`\
 https://www.nytimes.com/2026/04/17/nyregion/fifa-world-cup-stadium-names-sponsors.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/es/2026/04/17/espanol/mundo/misterio-creador-bitcoin.htm
 **We Got Inside Knicks Surveillance — and M.S.G.’s Deep State Is Stranger Than You Think**\
 `A WIRED investigation — revealed in collaboration with PTFO.`\
 https://www.nytimes.com/2026/04/17/podcasts/knicks-surveillance-msg-wired-investigation.html
-
-**Lebanon’s Cease-Fire Buys Time, Not a Way Out**\
-`The country’s leaders secured a truce through risky talks with Israel, but the government now finds itself caught between competing pressures.`\
-https://www.nytimes.com/2026/04/17/world/middleeast/lebanon-israel-ceasefire-hezbollah.html
-
-**El ascenso, la caída y el resurgimiento de Michael Jackson**\
-`Una nueva película biográfica es el intento más reciente de una campaña de rehabilitación póstuma —y lucrativa— del patrimonio de Michael Jackson.`\
-https://www.nytimes.com/es/2026/04/17/espanol/cultura/michael-jackson-pelicula.html
-
-**A Week of Scandal, Reckoning and Resignations in Congress**\
-`Following several allegations, including serious sexual misconduct claims, two members of Congress resigned.`\
-https://www.nytimes.com/2026/04/17/podcasts/the-daily/swalwell-congress-resignations-misconduct.html
-
-**What to Know About the Israel-Lebanon Cease-Fire, and R.F.K. Jr.’s Shifting Tone on Vaccines**\
-`Plus, the Friday news quiz.`\
-https://www.nytimes.com/2026/04/17/podcasts/the-headlines/israel-lebanon-cease-fire-rfk-jr-vaccines-heelys.html
-
-**Connections Companion No. 1,042**\
-`Scroll down for hints and conversation about the puzzle for Saturday, April 18, 2026`\
-https://www.nytimes.com/2026/04/17/crosswords/connections-companion-1042.html
 
