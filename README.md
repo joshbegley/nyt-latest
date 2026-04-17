@@ -1,3 +1,7 @@
+**Pop Art Engages With Art of the Present at the Guggenheim**\
+`An exhibition explores examples of Pop Art from the 1960s in dialogue with recent acquisitions by contemporary artists.`\
+https://www.nytimes.com/2026/04/17/arts/design/guggenheim-pop-art.html
+
 **He Looked for Ways to Stop Mass Violence**\
 `David Eisenman sought to better understand how to prevent school shootings and other targeted violence, until the Department of Homeland Security halted the research.`\
 https://www.nytimes.com/2026/04/17/science/lost-science-eisenman-violence.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/17/crosswords/connections-companion-1042.html
 **Strands Sidekick No. 776**\
 `Scroll down for hints and conversation about the puzzle for Saturday, April 18, 2026.`\
 https://www.nytimes.com/2026/04/17/crosswords/strands-sidekick-776.html
-
-**Wordle Review No. 1,764**\
-`Scroll down for hints and conversation about the puzzle for Saturday, April 18, 2026.`\
-https://www.nytimes.com/2026/04/17/crosswords/wordle-review-1764.html
 
