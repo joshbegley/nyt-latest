@@ -1,3 +1,11 @@
+**D4vd y la muerte de Celeste Rivas Hernández: lo que hay que saber**\
+`El músico, creador del himno de Fortnite, ha sido detenido en relación con la muerte de Rivas Hernández, cuyo cadáver fue encontrado en el maletero de su Tesla el pasado septiembre.`\
+https://www.nytimes.com/es/2026/04/17/espanol/cultura/d4vd-celeste-rivas-hernandez-tesla-asesinato.html
+
+**Review: Kyle Abraham Embraces the Big Perm and Boombox Era**\
+`His “Cassette Vol. 1” has a 1980s mix tape soundtrack and nods to postmodern American dance vocabulary.`\
+https://www.nytimes.com/2026/04/17/arts/dance/review-kyle-abraham-cassette-vol-1.html
+
 **Tufts Student Who Was Held in Immigration Detention Returns to Turkey**\
 `Rumeysa Ozturk, who was detained for weeks by the Trump administration after co-writing a pro-Palestinian opinion essay, has graduated and returned home.`\
 https://www.nytimes.com/2026/04/17/us/tufts-student-rumeysa-ozturk-returns-turkey.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/17/movies/ryan-gosling-sydney-sweeney-box-office
 **It’s the 1970s Again. Democrats Should Study Up on Reagan.**\
 `Good politicians play the hand they’re dealt.`\
 https://www.nytimes.com/2026/04/17/opinion/its-the-1970s-again-democrats-should-study-up-on-reagan.html
-
-**The Metropolitan Opera Is Bringing Frida Kahlo to the Stage**\
-`In an unusual collaboration for the Met, the opera’s set designer has conceived a companion exhibition, mounted at MoMA.`\
-https://www.nytimes.com/2026/04/17/arts/design/metropolitan-opera-moma-frida-kahlo.html
-
-**Recalling When Lower Manhattan Was New Amsterdam**\
-`An exhibition at the New York Historical focuses on the city’s 17th-century roots as a Dutch settlement.`\
-https://www.nytimes.com/2026/04/17/arts/design/new-amsterdam-manhattan-dutch.html
 
