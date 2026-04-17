@@ -1,3 +1,11 @@
+**Suspect Accused of Hacking Climate Activists Appears in Court**\
+`Amit Forlit is accused of running a hacking operation that aimed to thwart climate litigation at the behest of a lobbying firm working for an oil giant.`\
+https://www.nytimes.com/2026/04/17/climate/amit-forlit-hacking-court.html
+
+**N.Y.C. Doormen and Building Owners Reach an Agreement to Avert a Strike**\
+`The deal affects about 34,000 apartment building workers. The last time they had staged a walkout was in 1991.`\
+https://www.nytimes.com/2026/04/17/nyregion/nyc-doorman-strike-averted.html
+
 **An Explosion Rattles a Toronto Neighborhood. Was a Drake Video to Blame?**\
 `A blast on Thursday night turned out to be for a film shoot, but it unnerved residents who had lived through a propane plant explosion in 2008.`\
 https://www.nytimes.com/2026/04/17/world/canada/toronto-downsview-explosion-drake.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/interactive/2026/04/17/t-magazine/white-button-up-shirts
 **Rébé, Intarsia, Agrafe: The Fashion Terms to Know**\
 `A glossary of clothing terms and techniques.`\
 https://www.nytimes.com/interactive/2026/04/17/t-magazine/fashion-terms-glossary.html
-
-**The Fabrics That Shaped Fashion**\
-`How linen, cashmere and other textiles changed the way we dress.`\
-https://www.nytimes.com/interactive/2026/04/17/t-magazine/fabric-textile-fashion.html
-
-**The 10 Most Influential Gardening Styles**\
-`Landscape designers and botanists on the legacy of different movements.`\
-https://www.nytimes.com/interactive/2026/04/17/t-magazine/garden-design-style.html
 
