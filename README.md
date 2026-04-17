@@ -1,3 +1,11 @@
+**How JD Vance Is Being Tested as Trump’s Chief Defender**\
+`Vice President JD Vance has been tasked with defending the Iran war and President Trump’s attacks on Pope Leo XIV. Our White House correspondent Zolan Kanno-Youngs describes how that’s put Vance in a particularly difficult position.`\
+https://www.nytimes.com/video/us/politics/100000010843196/vance-defends-trump-pope-iran.html
+
+**European leaders discuss an international mission to restore shipping in Strait of Hormuz.**\
+``\
+https://www.nytimes.com/live/2026/04/17/world/iran-us-war-trump/european-leaders-discuss-an-international-mission-to-restore-shipping-in-strait-of-hormuz
+
 **Why Lebanon Has Long Struggled to Contain Hezbollah**\
 `Lebanon’s government has been caught between Western demands to disarm the Shiite Muslim militant group and fears of inflaming sectarian tensions.`\
 https://www.nytimes.com/2026/04/17/world/middleeast/lebanon-hezbollah-ceasefire.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/17/nyregion/fifa-world-cup-stadium-names-sponsor
 **Pop Art Engages With Art of the Present at the Guggenheim**\
 `An exhibition explores examples of Pop Art from the 1960s in dialogue with recent acquisitions by contemporary artists.`\
 https://www.nytimes.com/2026/04/17/arts/design/guggenheim-pop-art.html
-
-**He Looked for Ways to Stop Mass Violence**\
-`David Eisenman sought to better understand how to prevent school shootings and other targeted violence, until the Department of Homeland Security halted the research.`\
-https://www.nytimes.com/2026/04/17/science/lost-science-eisenman-violence.html
-
-**French Widow Detained by ICE in Alabama Is Released After 16 Days**\
-`Marie-Thérèse Ross-Mahé, 85, who was arrested amid an inheritance dispute, has returned to France, its foreign affairs minister said. She came to America last year after reconnecting with and marrying a former G.I.`\
-https://www.nytimes.com/2026/04/17/us/french-woman-release-alabama-ice.html
 

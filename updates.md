@@ -1,3 +1,15 @@
+**Why Lebanon Has Long Struggled to Contain Hezbollah**\
+`Lebanon’s government has been caught between Western demands to disarm the Shiite Muslim militant group and fears of inflaming sectarian tensions.`\
+https://www.nytimes.com/2026/04/17/world/middleeast/lebanon-hezbollah-ceasefire.html
+
+**Mexico’s police focus on the World Cup while thousands remain missing.**\
+``\
+https://www.nytimes.com/live/2026/04/17/us/fifa-world-cup/mexicos-police-focus-on-the-world-cup-while-thousands-remain-missing
+
+**Ella se aseguró de que su bebé naciera en EE. UU. Luego las autoridades los separaron**\
+`Diana Acosta Verde, quien entró de forma ilegal en EE. UU. cuando estaba embarazada de seis meses, tuvo que dejar a su bebé en un hospital mientras regresaba a un centro de detención.`\
+https://www.nytimes.com/es/2026/04/17/espanol/estados-unidos/migracion-ciudadania-nacimiento-detencion.html
+
 **Oil Prices Fall Sharply After Iran Says Strait of Hormuz Is Open**\
 `But analysts said it was not clear how quickly the oil industry in the Persian Gulf would be able to get back to normal.`\
 https://www.nytimes.com/2026/04/17/business/energy-environment/oil-prices-iran-hormuz.html

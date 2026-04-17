@@ -1,3 +1,15 @@
+**Why Lebanon Has Long Struggled to Contain Hezbollah**\
+`Lebanon’s government has been caught between Western demands to disarm the Shiite Muslim militant group and fears of inflaming sectarian tensions.`\
+https://www.nytimes.com/2026/04/17/world/middleeast/lebanon-hezbollah-ceasefire.html
+
+**Mexico’s police focus on the World Cup while thousands remain missing.**\
+``\
+https://www.nytimes.com/live/2026/04/17/us/fifa-world-cup/mexicos-police-focus-on-the-world-cup-while-thousands-remain-missing
+
+**Ella se aseguró de que su bebé naciera en EE. UU. Luego las autoridades los separaron**\
+`Diana Acosta Verde, quien entró de forma ilegal en EE. UU. cuando estaba embarazada de seis meses, tuvo que dejar a su bebé en un hospital mientras regresaba a un centro de detención.`\
+https://www.nytimes.com/es/2026/04/17/espanol/estados-unidos/migracion-ciudadania-nacimiento-detencion.html
+
 **Oil Prices Fall Sharply After Iran Says Strait of Hormuz Is Open**\
 `But analysts said it was not clear how quickly the oil industry in the Persian Gulf would be able to get back to normal.`\
 https://www.nytimes.com/2026/04/17/business/energy-environment/oil-prices-iran-hormuz.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/17/science/lost-science-eisenman-violence.html
 **French Widow Detained by ICE in Alabama Is Released After 16 Days**\
 `Marie-Thérèse Ross-Mahé, 85, who was arrested amid an inheritance dispute, has returned to France, its foreign affairs minister said. She came to America last year after reconnecting with and marrying a former G.I.`\
 https://www.nytimes.com/2026/04/17/us/french-woman-release-alabama-ice.html
-
-**Strait of Hormuz Open During Lebanon Cease-Fire, but U.S. Blockade on Iran Remains**\
-`Friday’s statements that the strait is now open raised investors’ hopes that oil and gas would start flowing out of the Persian Gulf in significant volumes again.`\
-https://www.nytimes.com/2026/04/17/world/middleeast/strait-hormuz-open-iran-lebanon-ceasefire.html
-
-**You Have Some Options for Dealing With Rising Property Taxes**\
-`The average bill rose 3 percent last year, in part because of higher tax rates. There are ways to try to reduce what you owe, experts say.`\
-https://www.nytimes.com/2026/04/17/your-money/property-taxes-appeals.html
-
-**Washington’s Scramble to Get Anthropic’s Powerful New Model**\
-`Federal agencies have requested access to Claude Mythos Preview, which Anthropic says can rapidly identify — and potentially create — new cyberthreats.`\
-https://www.nytimes.com/2026/04/17/business/dealbook/washington-anthropic-mythos.html
 
