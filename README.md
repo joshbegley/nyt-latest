@@ -1,3 +1,7 @@
+**A.I. Backlash Turns Violent + Kara Swisher on Healthmaxxing + The Zuck Bot Is Coming**\
+`Is anti-A.I. radicalization a growing trend?`\
+https://www.nytimes.com/2026/04/17/podcasts/hardfork-ai-backlash.html
+
 **A Huge Arch**\
 `President Trump wants to build one, but he’s getting pushback.`\
 https://www.nytimes.com/2026/04/17/briefing/a-huge-arch.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/17/well/conversation-starters-openers.html
 **Have You Ever Turned Another Person’s Trash Into Your Own Treasure?**\
 `What’s the most memorable or valuable thing you have ever salvaged?`\
 https://www.nytimes.com/2026/04/17/learning/have-you-ever-turned-another-persons-trash-into-your-own-treasure.html
-
-**Myanmar Frees Ousted President, but Not Daw Aung San Suu Kyi**\
-`U Win Myint is a close ally of Ms. Aung San Suu Kyi, the country’s civilian leader. Both were forced from power by the military in a 2021 coup and imprisoned.`\
-https://www.nytimes.com/2026/04/17/world/asia/myanmar-president-amnesty.html
 
