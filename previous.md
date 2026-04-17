@@ -1,3 +1,11 @@
+**Starmer Fires Senior U.K. Civil Servant Over Mandelson Revelations**\
+`Prime Minister Keir Starmer’s office confirmed that Peter Mandelson, the former envoy to the United States, had been appointed despite failing to pass security vetting checks.`\
+https://www.nytimes.com/2026/04/17/world/europe/uk-starmer-mandelson-foreign-office-robbins-fired.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/admin/100000010847288/17vid-bridge-RU-89562.html
+
 ****\
 ``\
 https://www.nytimes.com/video/embedded/admin/100000010847284/17vid-returns-carousel-76529.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/es/2026/04/17/espanol/estados-unidos/trump-imagenes-jesu
 **No Corrections: April 17, 2026**\
 `No corrections appeared in print on Friday, April 17, 2026.`\
 https://www.nytimes.com/2026/04/17/pageoneplus/no-corrections-april-17-2026.html
-
-**Before They Met, Their Parents Had Already Known Each Other**\
-`When Emily Wiser first met Griffin Lear, she was excited to tell her father that she was dating a Dartmouth grad like him. Then they shared some history of their own about Mr. Lear’s parents.`\
-https://www.nytimes.com/2026/04/17/style/emily-wiser-griffin-lear-wedding.html
-
-**Painting Over My Painful Past**\
-`My father treated me more like a wife than a child. It took me decades to face the truth of what happened.`\
-https://www.nytimes.com/2026/04/17/style/modern-love-painting-over-my-painful-past.html
 
