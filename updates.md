@@ -1,3 +1,7 @@
+**Iran says the Strait of Hormuz is open, but adds that it is still under Tehran’s supervision.**\
+`Ab`\
+https://www.nytimes.com/live/2026/04/17/world/iran-us-war-trump/iran-says-the-strait-of-hormuz-is-open-but-adds-that-it-is-still-under-tehrans-supervision
+
 **Amid Conflicting Messages, Optimism for Peace Deal Emerges**\
 `On a day when both Iran and the United States declared the Strait of Hormuz opened, hopes for an agreement rose. But statements from President Trump and Iranian leaders about negotiations were sometimes at odds.`\
 https://www.nytimes.com/2026/04/17/world/middleeast/trump-iran-hormuz-peace-deal.html
