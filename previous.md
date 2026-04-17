@@ -1,3 +1,7 @@
+**Acting ICE Director Says He Plans to Resign in May**\
+`Todd Lyons said he would leave to spend more time with his family. He has spoken about a surge in threats against ICE officers, saying that he knew the reality firsthand.`\
+https://www.nytimes.com/2026/04/16/us/politics/lyons-ice-director-resigns.html
+
 **On ‘The Pitt,’ the Lingering Effects of Trauma Take the Spotlight**\
 `On top of the daily toll of treating patients, the show’s medical providers bring their own scars to the E.R.`\
 https://www.nytimes.com/2026/04/16/well/mind/the-pitt-trauma-ptsd.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/04/16/us/laguardia-plane-crash-fire-tru
 **What Heelys Taught Me About Momentum**\
 `Heelys, the sneakers with wheels that were a fad in the 2000s, helped me form my first friendships. Recently, I decided to tap into that joy again.`\
 https://www.nytimes.com/2026/04/16/style/heelys-joy-friendship.html
-
-**Roger Adams Dies at 71; Invented the Rolling Sneakers Known as Heelys**\
-`You could walk in them like gym shoes, but if you rocked back on your heels the wheels emerged, turning them into roller skates. In the early 2000s, the company sold millions.`\
-https://www.nytimes.com/2026/04/16/business/roger-adams-dead.html
 

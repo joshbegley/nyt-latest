@@ -1,3 +1,7 @@
+**Acting ICE Director Says He Plans to Resign in May**\
+`Todd Lyons said he would leave to spend more time with his family. He has spoken about a surge in threats against ICE officers, saying that he knew the reality firsthand.`\
+https://www.nytimes.com/2026/04/16/us/politics/lyons-ice-director-resigns.html
+
 **On ‘The Pitt,’ the Lingering Effects of Trauma Take the Spotlight**\
 `On top of the daily toll of treating patients, the show’s medical providers bring their own scars to the E.R.`\
 https://www.nytimes.com/2026/04/16/well/mind/the-pitt-trauma-ptsd.html
