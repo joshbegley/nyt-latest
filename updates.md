@@ -1,3 +1,11 @@
+**What to Know About the Israel-Lebanon Cease-Fire**\
+`The pause in fighting would remove a major hindrance to the U.S.-Iran peace talks, if it holds.`\
+https://www.nytimes.com/2026/04/17/world/middleeast/israel-lebanon-ceasefire.html
+
+**Our Tax System Should Make You Furious**\
+`The tax expert Ray Madoff explains why the American tax system is broken, and how to make it fairer.`\
+https://www.nytimes.com/2026/04/17/opinion/ezra-klein-podcast-ray-madoff.html
+
 **‘The Headlines’ News Quiz: Apr. 17, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/04/17/podcasts/the-headlines/the-headlines-news-quiz-jan-16-2026.html
