@@ -1,3 +1,23 @@
+**9 Shows Our Theater Critics Are Talking About**\
+`John Lithgow in “Giant,” a triumphant revival of “Death of a Salesman” and vogueing cats at “The Jellicle Ball”: These productions are worth knowing about.`\
+https://www.nytimes.com/2026/04/17/theater/salesman-giant-cats-becky-shaw-proof-broadway.html
+
+**Supreme Court Sides With Oil Companies in Louisiana Coastal Lawsuits**\
+`The companies had asked the justices to clear the way to move environmental lawsuits out of state courts, to friendlier federal venues.`\
+https://www.nytimes.com/2026/04/17/us/politics/supreme-court-oil-louisiana.html
+
+**Mamdani Endorses Lindsey Boylan, Who Accused Cuomo of Sexual Harassment**\
+`The endorsement, in a special election for a City Council seat on Manhattan’s West Side, comes as the mayor seeks to build influence within the Council.`\
+https://www.nytimes.com/2026/04/17/nyregion/lindsay-boylan-mamdani-endorsement-city-council.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/world/middleeast/100000010847812/17vid-mideast-blogs-70193.html
+
+**U.K. Police Investigate Claims Drones Targeted Israeli Embassy in London**\
+`The Metropolitan Police said that the building had not been attacked but that they were assessing “discarded items” in Kensington Gardens, a nearby park, which was cordoned off.`\
+https://www.nytimes.com/2026/04/17/world/europe/london-israeli-embassy-drone-threat.html
+
 **Five Action Movies to Stream Now**\
 `This month’s picks include killer sharks, unlikely gangsters, and defiant ballerinas.`\
 https://www.nytimes.com/2026/04/17/movies/action-movies-streaming.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/04/17/world/middleeast/israel-lebanon-ceasefire.htm
 **A.I. Backlash Turns Violent + Kara Swisher on Healthmaxxing + The Zuck Bot Is Coming**\
 `Is anti-A.I. radicalization a growing trend?`\
 https://www.nytimes.com/2026/04/17/podcasts/hardfork-ai-backlash.html
-
-**A Huge Arch**\
-`President Trump wants to build one, but he’s getting pushback.`\
-https://www.nytimes.com/2026/04/17/briefing/a-huge-arch.html
-
-**In northern Israel, relief at the cease-fire is overshadowed by unease.**\
-`Residents are wary that the truce may offer only a temporary reprieve after weeks of rocket fire by Hezbollah.`\
-https://www.nytimes.com/live/2026/04/17/world/israel-lebanon-ceasefire-hezbollah/israel-residents-ceasefire-lebanon-hezbollah
-
-**‘The Headlines’ News Quiz: Apr. 17, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/04/17/podcasts/the-headlines/the-headlines-news-quiz-jan-16-2026.html
-
-**El misterio del bitcóin**\
-`El creador del bitcóin lleva 17 años oculto tras el seudónimo Satoshi Nakamoto.`\
-https://www.nytimes.com/es/2026/04/17/espanol/mundo/misterio-creador-bitcoin.html
-
-**We Got Inside Knicks Surveillance — and M.S.G.’s Deep State Is Stranger Than You Think**\
-`A WIRED investigation — revealed in collaboration with PTFO.`\
-https://www.nytimes.com/2026/04/17/podcasts/knicks-surveillance-msg-wired-investigation.html
 
