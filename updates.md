@@ -1,3 +1,7 @@
+**El alto al fuego en Líbano deja a Benjamín Netanyahu en una posición incómoda**\
+`La mayoría de los israelíes querían que continuara la lucha contra Hizbulá. Pero los críticos del primer ministro de Israel dicen que está demostrando que no puede, o no quiere, enfrentarse al presidente Trump.`\
+https://www.nytimes.com/es/2026/04/17/espanol/mundo/israel-libano-alto-fuego-netanyahu.html
+
 **How JD Vance Is Being Tested as Trump’s Chief Defender**\
 `Vice President JD Vance has been tasked with defending the Iran war and President Trump’s attacks on Pope Leo XIV. Our White House correspondent Zolan Kanno-Youngs describes how that’s put Vance in a particularly difficult position.`\
 https://www.nytimes.com/video/us/politics/100000010843196/vance-defends-trump-pope-iran.html
