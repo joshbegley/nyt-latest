@@ -1,3 +1,35 @@
+**Mark Mobius, Pioneering Investor in Emerging Markets, Dies at 89**\
+`Gaining a reputation as the brilliant, risk-taking “Indiana Jones” of his field, he encouraged investors to take chances on Asia, Africa, Latin America and Eastern Europe.`\
+https://www.nytimes.com/2026/04/17/business/mark-mobius-dead.html
+
+**A Timeline of Classical Music’s Evolution**\
+`A primer on medieval chants, minimalist opera and everything in between.`\
+https://www.nytimes.com/interactive/2026/04/17/t-magazine/classical-music-timeline-movements.html
+
+**Minimalist Music, Explained**\
+`The experimental composer Daniel Lopatin names several key works that define the genre.`\
+https://www.nytimes.com/interactive/2026/04/17/t-magazine/minimalist-music-oneohtrix-point-never.html
+
+**8 of the Most Important Animated Films**\
+`The director of “Lilo & Stitch” (2002) and “The Wild Robot” (2024) shares a list of movies that changed the medium.`\
+https://www.nytimes.com/interactive/2026/04/17/t-magazine/great-animated-films.html
+
+**If You See Only 3 Operas in Your Life, Make It These**\
+`The mezzo-sopranos Joyce DiDonato and Denyce Graves and the countertenor Anthony Roth Costanzo share their picks of essential productions.`\
+https://www.nytimes.com/interactive/2026/04/17/t-magazine/great-opera-picks.html
+
+**The Most Difficult Pieces of Classical Music**\
+`A composer, a conductor and a pianist share the most difficult pieces they brought to life.`\
+https://www.nytimes.com/interactive/2026/04/17/t-magazine/classical-music-difficult.html
+
+**The Albums That Have Defined Each Decade of Hip-Hop**\
+`Rappers Slick Rick, Trina and Tierra Whack share five albums that have captured the spirit of the medium over the years.`\
+https://www.nytimes.com/interactive/2026/04/17/t-magazine/hip-hop-great-albums.html
+
+**Jesse Eisenberg on Why Show Tunes Matter**\
+`The actor shares five essential songs from musicals.`\
+https://www.nytimes.com/interactive/2026/04/17/t-magazine/best-show-tunes-musicals.html
+
 **Iran, India, Brazil and Nigeria Onscreen**\
 `Four directors share the movies that capture each country.`\
 https://www.nytimes.com/interactive/2026/04/17/t-magazine/indian-iranian-brazilian-nigerian-film.html
