@@ -1,3 +1,7 @@
+**A.I.: Creativity Killer or Companion?**\
+`Readers respond to a column by Ezra Klein. Also: Reflections on Pope Leo XIV; the healing power of nurses in the I.C.U.`\
+https://www.nytimes.com/2026/04/17/opinion/ai-creativity.html
+
 **Bob Hall, First Wheelchair Champion of the Boston Marathon, Dies at 74**\
 `His accomplishment in 1975 inspired thousands of disabled athletes to participate in races around the world.`\
 https://www.nytimes.com/2026/04/17/sports/bob-hall-dead.html

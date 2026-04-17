@@ -1,3 +1,7 @@
+**A.I.: Creativity Killer or Companion?**\
+`Readers respond to a column by Ezra Klein. Also: Reflections on Pope Leo XIV; the healing power of nurses in the I.C.U.`\
+https://www.nytimes.com/2026/04/17/opinion/ai-creativity.html
+
 **Bob Hall, First Wheelchair Champion of the Boston Marathon, Dies at 74**\
 `His accomplishment in 1975 inspired thousands of disabled athletes to participate in races around the world.`\
 https://www.nytimes.com/2026/04/17/sports/bob-hall-dead.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/17/espanol/estados-unidos/ice-mujer-detenida-
 **9 Shows Our Theater Critics Are Talking About**\
 `John Lithgow in “Giant,” a triumphant revival of “Death of a Salesman” and vogueing cats at “The Jellicle Ball”: These productions are worth knowing about.`\
 https://www.nytimes.com/2026/04/17/theater/salesman-giant-cats-becky-shaw-proof-broadway.html
-
-**Supreme Court Sides With Oil Companies in Louisiana Coastal Lawsuits**\
-`The companies had asked the justices to clear the way to move environmental lawsuits out of state courts, to friendlier federal venues.`\
-https://www.nytimes.com/2026/04/17/us/politics/supreme-court-oil-louisiana.html
 
