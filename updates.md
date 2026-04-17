@@ -1,3 +1,11 @@
+**L.A.P.D. Arrests D4vd Months After Finding Teen’s Remains in His Tesla**\
+`The singer was charged in the death of Celeste Rivas Hernandez, who died before her 15th birthday.`\
+https://www.nytimes.com/2026/04/16/us/d4vd-charged-teen-death-tesla.html
+
+**Former Navy Service Member Charged in Georgia Killing Spree**\
+`The suspect is accused of carrying out a string of attacks in the Atlanta area that killed two women and injured a homeless man. The authorities described the attacks as random.`\
+https://www.nytimes.com/2026/04/16/us/atlanta-killings-attacks-charges.html
+
 **Former Navy Service Member Charged in Georgia Killing Spree**\
 `The suspect is accused of carrying out a string of attacks in the Atlanta area that killed two women and injured a homeless man. The authorities described the attacks as random.`\
 https://www.nytimes.com/2026/04/16/us/former-navy-service-member-charged-in-georgia-killing-spree.html

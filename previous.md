@@ -1,6 +1,10 @@
+**L.A.P.D. Arrests D4vd Months After Finding Teen’s Remains in His Tesla**\
+`The singer was charged in the death of Celeste Rivas Hernandez, who died before her 15th birthday.`\
+https://www.nytimes.com/2026/04/16/us/d4vd-charged-teen-death-tesla.html
+
 **Former Navy Service Member Charged in Georgia Killing Spree**\
 `The suspect is accused of carrying out a string of attacks in the Atlanta area that killed two women and injured a homeless man. The authorities described the attacks as random.`\
-https://www.nytimes.com/2026/04/16/us/former-navy-service-member-charged-in-georgia-killing-spree.html
+https://www.nytimes.com/2026/04/16/us/atlanta-killings-attacks-charges.html
 
 **F.A.A. Caps Flights at O’Hare Airport in Chicago to Cut Delays**\
 `Set to be in place throughout the summer, the limit aims to ease congestion after less than 60 percent of flights ran on schedule.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/16/business/roger-adams-dead.html
 **10-Day Cease-Fire Between Israel and Lebanon Goes Into Effect**\
 `The pause in the fighting between Israeli forces and Iranian-allied Hezbollah militants may help smooth the way to a peace deal between the U.S. and Iran.`\
 https://www.nytimes.com/2026/04/16/world/middleeast/israel-lebanon-cease-fire.html
-
-**Pittsburgh’s Children’s Museum Satisfies a Hunger for Eric Carle**\
-`The institution will feature five of the beloved author’s collage-based books in a series of interactive exhibits meant to engage children.`\
-https://www.nytimes.com/2026/04/16/arts/design/pittsburgh-childrens-museum-eric-carle.html
 
