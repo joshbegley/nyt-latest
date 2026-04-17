@@ -1,3 +1,7 @@
+**Homeland Security Expands Deportation Fleet With High-End Jets**\
+`The contract for five planes doubles the Department of Homeland Security’s fleet of jets to expel immigrants, and includes two Gulfstream planes, according to documents and interviews.`\
+https://www.nytimes.com/2026/04/17/us/politics/homeland-security-gulfstream.html
+
 **What You Taught Me About Maine**\
 `Our readers in the state tell us about its high-stakes Senate race.`\
 https://www.nytimes.com/2026/04/17/us/politics/maine-senate-election-collins-platner-mills.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/17/business/media/kevin-klose-dead.html
 **Iris Long, Scientific Mentor to AIDS Activists, Dies at 92**\
 `A chemist, she lent her expertise in drug research to ACT UP, an organization known for its street protests, and helped accelerate the approval of H.I.V. and AIDS treatments.`\
 https://www.nytimes.com/2026/04/17/health/iris-long-dead.html
-
-**The Politically Charged Art of Celeste Dupuy-Spencer**\
-`Her vivid paintings examined religious fundamentalism and events like the Jan. 6 riots at the U.S. Capitol. She died this month at 46.`\
-https://www.nytimes.com/2026/04/17/arts/the-politically-charged-art-of-celeste-dupuy-spencer.html
 

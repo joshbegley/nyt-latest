@@ -1,3 +1,11 @@
+**What You Taught Me About Maine**\
+`Our readers in the state tell us about its high-stakes Senate race.`\
+https://www.nytimes.com/2026/04/17/us/politics/maine-senate-election-collins-platner-mills.html
+
+**Lawsuit Against Alec Baldwin for ‘Rust’ Shooting Heads Toward Trial**\
+`Although the criminal case against Mr. Baldwin was thrown out, the actor still faces civil cases about the fatal shooting of a cinematographer in 2021.`\
+https://www.nytimes.com/2026/04/17/movies/alec-baldwin-rust-civil-trial.html
+
 **On Bright Red Posters Around New York, a Call to Boycott the Met Gala**\
 `A guerrilla activist group is papering the city with posters criticizing the billionaire Jeff Bezos’ involvement in the event, a fund-raiser for the Metropolitan Museum.`\
 https://www.nytimes.com/2026/04/17/style/bezos-met-gala-boycott-posters.html
