@@ -1,3 +1,27 @@
+**Five Action Movies to Stream Now**\
+`This month’s picks include killer sharks, unlikely gangsters, and defiant ballerinas.`\
+https://www.nytimes.com/2026/04/17/movies/action-movies-streaming.html
+
+**Is the Movie Star Back? Sort Of.**\
+`Box office earnings seem no longer won by name alone. From “Project Hail Mary” to “F1,” celebrities are campaigning overtime on screens large and small to lead to hits.`\
+https://www.nytimes.com/2026/04/17/movies/ryan-gosling-sydney-sweeney-box-office.html
+
+**It’s the 1970s Again. Democrats Should Study Up on Reagan.**\
+`Good politicians play the hand they’re dealt.`\
+https://www.nytimes.com/2026/04/17/opinion/its-the-1970s-again-democrats-should-study-up-on-reagan.html
+
+**The Metropolitan Opera Is Bringing Frida Kahlo to the Stage**\
+`In an unusual collaboration for the Met, the opera’s set designer has conceived a companion exhibition, mounted at MoMA.`\
+https://www.nytimes.com/2026/04/17/arts/design/metropolitan-opera-moma-frida-kahlo.html
+
+**Recalling When Lower Manhattan Was New Amsterdam**\
+`An exhibition at the New York Historical focuses on the city’s 17th-century roots as a Dutch settlement.`\
+https://www.nytimes.com/2026/04/17/arts/design/new-amsterdam-manhattan-dutch.html
+
+**New York New Jersey Stadium? Why MetLife Is Changing Its Name for the World Cup**\
+`This summer, FIFA is putting its stamp on the venue for the World Cup.`\
+https://www.nytimes.com/2026/04/17/nyregion/fifa-world-cup-stadium-names-sponsors.html
+
 **Pop Art Engages With Art of the Present at the Guggenheim**\
 `An exhibition explores examples of Pop Art from the 1960s in dialogue with recent acquisitions by contemporary artists.`\
 https://www.nytimes.com/2026/04/17/arts/design/guggenheim-pop-art.html
