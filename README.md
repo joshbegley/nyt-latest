@@ -1,3 +1,11 @@
+**Palabra del día: ‘emulate’**\
+`Esta palabra ha aparecido en 406 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/04/17/espanol/que-significa-emulate.html
+
+**Stephen Colbert Delights in Trump’s ‘Ongoing Papal Feud’**\
+`The host of “The Late Show” recapped what he called “yet another day when the entire world is on edge over President Trump’s senseless and elective war — with the pope.”`\
+https://www.nytimes.com/2026/04/17/arts/television/colbert-trump-papal-feud.html
+
 **Word of the Day: emulate**\
 `This word has appeared in 406 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/04/17/learning/word-of-the-day-emulate.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/16/us/politics/lyons-ice-director-resigns.html
 **On ‘The Pitt,’ the Lingering Effects of Trauma Take the Spotlight**\
 `On top of the daily toll of treating patients, the show’s medical providers bring their own scars to the E.R.`\
 https://www.nytimes.com/2026/04/16/well/mind/the-pitt-trauma-ptsd.html
-
-**L.A.P.D. Arrests D4vd Months After Finding Teen’s Remains in His Tesla**\
-`The singer was detained in connection with the death of Celeste Rivas Hernandez, who died before her 15th birthday. D4vd’s lawyers said they would vigorously defend his innocence.`\
-https://www.nytimes.com/2026/04/16/arts/music/d4vd-charged-teen-death-tesla.html
-
-**Former Navy Service Member Charged in Georgia Killing Spree**\
-`The suspect is accused of carrying out a string of attacks in the Atlanta area that killed two women and injured a homeless man. The authorities described the attacks as random.`\
-https://www.nytimes.com/2026/04/16/us/atlanta-killings-attacks-charges.html
 
