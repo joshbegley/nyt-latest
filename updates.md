@@ -1,3 +1,23 @@
+**My Favorite Song | Greta Lee**\
+`The actress reveals the song that played while she walked down the aisle at her wedding.`\
+https://www.nytimes.com/video/t-magazine/100000010817714/my-favorite-song-greta-lee.html
+
+**My Favorite Song | Jeffrey Wright**\
+`The actor marvels at the beauty of a beloved jazz classic.`\
+https://www.nytimes.com/video/t-magazine/100000010817705/my-favorite-song-jeffrey-wright.html
+
+**My Favorite Song | Barry Keoghan**\
+`The actor discusses the ’90s rock anthem he sings with his three-year-old son.`\
+https://www.nytimes.com/video/t-magazine/100000010817711/my-favorite-song-barry-keoghan.html
+
+**Japan’s Cherry Blossom Database, 1,200 Years Old, Has a New Keeper**\
+`The remarkable catalog of dates is one of the longest-running records of climate change. Its creator died, setting off a search for a successor.`\
+https://www.nytimes.com/2026/04/17/climate/japan-cherry-blossom-database-scientist.html
+
+**D4vd y la muerte de Celeste Rivas Hernández: lo que hay que saber**\
+`El músico, creador del himno de Fortnite, ha sido detenido en relación con la muerte de Rivas Hernández, cuyos restos fueron encontrados en el maletero de su Tesla el pasado septiembre.`\
+https://www.nytimes.com/es/2026/04/17/espanol/cultura/d4vd-celeste-rivas-hernandez-tesla-asesinato.html
+
 **A.I.: Creativity Killer or Companion?**\
 `Readers respond to a column by Ezra Klein. Also: Reflections on Pope Leo XIV; the healing power of nurses in the I.C.U.`\
 https://www.nytimes.com/2026/04/17/opinion/ai-creativity.html
