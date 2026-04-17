@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/04/17/business/mississippi-liquor-shortage.html
 `The Silicon Valley chip maker filed a prospectus just as SpaceX, Anthropic and OpenAI prepared for their own listings, in what is shaping up to be a wave of enormous initial public offerings.`\
 https://www.nytimes.com/2026/04/17/technology/cerebras-public-offering-ai.html
 
-**How Pacific Ocean Water Could Help the Colorado River Crisis**\
+**Western States Need Water. San Diego Has Extra. Will They Make A Deal?**\
 `San Diego County is shopping a surplus of desalinated seawater to Western states that are facing increasingly urgent drought and short supplies.`\
 https://www.nytimes.com/2026/04/17/climate/how-pacific-ocean-water-could-help-the-colorado-river-crisis.html
 

@@ -1,3 +1,7 @@
+**Rescuers Mount a Likely Final Push to Save a Stranded Whale**\
+`Rescue crews mounted a likely final push to save a stranded humpback whale off the coast of Northern Germany on Friday. The large mammal, nicknamed “Timmy,” captivated the nation after it was stranded in shallow waters for weeks.`\
+https://www.nytimes.com/video/science/earth/100000010847664/timmy-whale-stranded-rescue-germany.html
+
 **New PEPFAR Data Show Worrying Declines in Testing and Treatment for H.I.V.**\
 `The numbers are the first to quantify the effect of the Trump administration’s shutdown and restarting of a program that has saved millions of lives worldwide.`\
 https://www.nytimes.com/2026/04/17/health/hiv-testing-treatment-data-pepfar.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/17/climate/amit-forlit-hacking-court.html
 **N.Y.C. Doormen and Building Owners Reach an Agreement to Avert a Strike**\
 `The deal would provide pay raises and maintain free health insurance for about 34,000 apartment building workers.`\
 https://www.nytimes.com/2026/04/17/nyregion/nyc-doorman-strike-averted.html
-
-**An Explosion Rattles a Toronto Neighborhood. Was a Drake Video to Blame?**\
-`A blast on Thursday night turned out to be for a film shoot, but it unnerved residents who had lived through a propane plant explosion in 2008.`\
-https://www.nytimes.com/2026/04/17/world/canada/toronto-downsview-explosion-drake.html
 
