@@ -1,3 +1,7 @@
+**We Got Inside Knicks Surveillance — and M.S.G.’s Deep State Is Stranger Than You Think**\
+`A WIRED investigation — revealed in collaboration with PTFO.`\
+https://www.nytimes.com/2026/04/17/podcasts/knicks-surveillance-msg-wired-investigation.html
+
 **Washington’s Scramble to Get Anthropic’s Powerful New Model**\
 `Federal agencies have requested access to Claude Mythos Preview, which Anthropic says can rapidly identify — and potentially create — new cyberthreats.`\
 https://www.nytimes.com/2026/04/17/business/dealbook/washington-anthropic-mythos.html
