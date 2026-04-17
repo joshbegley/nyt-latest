@@ -1,3 +1,7 @@
+**Iris Long, Scientific Mentor to AIDS Activists, Dies at 92**\
+`A chemist, she lent her expertise in drug research to ACT UP, an organization known for its street protests, and helped accelerate the approval of H.I.V. and AIDS treatments.`\
+https://www.nytimes.com/2026/04/17/health/iris-long-dead.html
+
 **The Politically Charged Art of Celeste Dupuy-Spencer**\
 `Her vivid paintings examined religious fundamentalism and events like the Jan. 6 riots at the U.S. Capitol. She died this month at 46.`\
 https://www.nytimes.com/2026/04/17/arts/the-politically-charged-art-of-celeste-dupuy-spencer.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/04/17/t-magazine/greta-lee-films-food-b
 **13 Garments That Altered the History of Clothing**\
 `The looks that revolutionized fashion.`\
 https://www.nytimes.com/interactive/2026/04/17/t-magazine/most-important-fashion-outfits.html
-
-**The Suit, in 8 Reinventions**\
-`Four men’s wear designers share the history of the garment.`\
-https://www.nytimes.com/interactive/2026/04/17/t-magazine/suit-design-mens-fashion.html
 

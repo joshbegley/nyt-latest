@@ -1,3 +1,11 @@
+**The Politically Charged Art of Celeste Dupuy-Spencer**\
+`Her vivid paintings examined religious fundamentalism and events like the Jan. 6 riots at the U.S. Capitol. She died this month at 46.`\
+https://www.nytimes.com/2026/04/17/arts/the-politically-charged-art-of-celeste-dupuy-spencer.html
+
+**Celeste Dupuy-Spencer, Painter of Hotly Topical Images, Dies at 46**\
+`Her vibrant yet brooding work explored the crises of the Trump era, with paintings depicting the Jan. 6 riots and a mangled Confederate monument.`\
+https://www.nytimes.com/2026/04/17/arts/design/celeste-dupuy-spencer-dead.html
+
 **Suspect Accused of Hacking Climate Activists Appears in Court**\
 `Amit Forlit is accused of running a hacking operation that aimed to thwart climate litigation at the behest of a lobbying firm working for an oil giant.`\
 https://www.nytimes.com/2026/04/17/climate/amit-forlit-hacking-court.html
