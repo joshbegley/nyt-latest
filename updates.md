@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: Apr. 17, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/04/17/podcasts/the-headlines/the-headlines-news-quiz-jan-16-2026.html
+
 **A.I. Backlash Turns Violent + Kara Swisher on Healthmaxxing + The Zuck Bot Is Coming**\
 `Is anti-A.I. radicalization a growing trend?`\
 https://www.nytimes.com/2026/04/17/podcasts/hardfork-ai-backlash.html

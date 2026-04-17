@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/04/17/briefing/a-huge-arch.html
 `Residents are wary that the truce may offer only a temporary reprieve after weeks of rocket fire by Hezbollah.`\
 https://www.nytimes.com/live/2026/04/17/world/israel-lebanon-ceasefire-hezbollah/israel-residents-ceasefire-lebanon-hezbollah
 
-**‘The Headlines’ News Quiz: Jan. 16, 2026**\
+**‘The Headlines’ News Quiz: Apr. 17, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/04/17/podcasts/the-headlines/the-headlines-news-quiz-jan-16-2026.html
 
