@@ -1,3 +1,35 @@
+**Memes de Jesús, amenazas, guerra en Irán: un retrato de Trump bajo presión**\
+`El presidente de EE. UU. arremete contra enemigos, aliados e incluso el papa. Mientras tanto, los republicanos intentan concentrarse en la economía previo a las elecciones intermedias.`\
+https://www.nytimes.com/es/2026/04/17/espanol/estados-unidos/trump-imagenes-jesus-papa-criticias.html
+
+**No Corrections: April 17, 2026**\
+`No corrections appeared in print on Friday, April 17, 2026.`\
+https://www.nytimes.com/2026/04/17/pageoneplus/no-corrections-april-17-2026.html
+
+**Before They Met, Their Parents Had Already Known Each Other**\
+`When Emily Wiser first met Griffin Lear, she was excited to tell her father that she was dating a Dartmouth grad like him. Then they shared some history of their own about Mr. Lear’s parents.`\
+https://www.nytimes.com/2026/04/17/style/emily-wiser-griffin-lear-wedding.html
+
+**Painting Over My Painful Past**\
+`My father treated me more like a wife than a child. It took me decades to face the truth of what happened.`\
+https://www.nytimes.com/2026/04/17/style/modern-love-painting-over-my-painful-past.html
+
+**A Duet Decades in the Making**\
+`After meeting for a website project in 2020, James Squires and Jacqui Agostinelli bonded over their love of music, forming both a marriage and their musical duo, Sweet Basil.`\
+https://www.nytimes.com/2026/04/17/style/jacqui-agostinelli-james-squires-wedding.html
+
+**Her Grandmother Told Her ‘Maybe You’ll Marry Him One Day’**\
+`After Ben Sweeney and Lauren Fogel debarked their plane at 3 a.m., he invited her to stay at his parents’ house nearby. Her grandmother was impressed.`\
+https://www.nytimes.com/2026/04/17/style/lauren-fogel-ben-sweeney-wedding.html
+
+**It Took a Persistent Friend and a Dave Matthews Concert to Seal the Deal**\
+`Daniel Martinez Clavijo and Johanna Mele finally met in 2021, thanks to their mutual friend, who had been trying to set them up for almost a decade, and a chance encounter at Madison Square Garden.`\
+https://www.nytimes.com/2026/04/17/style/johanna-mele-daniel-martinez-clavijo-wedding.html
+
+**Quote of the Day: A Huge Russian Barrage Kills 18 in Ukrainian Cities**\
+`Quotation of the Day for Friday, April 17, 2026.`\
+https://www.nytimes.com/2026/04/16/pageoneplus/quote-of-the-day-a-huge-russian-barrage-kills-18-in-ukrainian-cities.html
+
 **In Las Vegas, Trump Brushes Off Rising Fuel Prices**\
 `At an economic event, the president sought to downplay the financial hardship that has followed his war with Iran, saying that “we’re having some fake inflation because of the fuel, the energy prices.”`\
 https://www.nytimes.com/2026/04/16/us/politics/trump-taxes-fuel-las-vegas.html
@@ -45,36 +77,4 @@ https://www.nytimes.com/2026/04/16/us/pope-brother-bomb-threat.html
 **An Arrest in the Streets of New York, on Horseback**\
 `An officer from the Police Department’s Mounted Unit raced through the Upper West Side of Manhattan, chasing a woman accused of snatching a purse.`\
 https://www.nytimes.com/2026/04/16/nyregion/nypd-chase-horseback-mounted.html
-
-**Lebanon-Israel Cease-Fire Goes Into Effect**\
-`A 10-day cease-fire went into effect at midnight Thursday in Lebanon. The truce was brokered by the U.S. government and announced by President Trump.`\
-https://www.nytimes.com/video/world/middleeast/100000010845876/lebanon-israel-cease-fire.html
-
-**TK**\
-`TK`\
-https://static01.nyt.com/slideshow/2026/04/16/t-magazine/tk.html
-
-**Ellison Pledges at Least 30 Paramount-Warner Movies a Year**\
-`His remarks at a movie theater convention were part of a campaign to win Hollywood support for his bid to buy Warner Bros. Discovery.`\
-https://www.nytimes.com/2026/04/16/business/media/david-ellison-paramount-warner-movies-theaters.html
-
-**Michigan’s Dam Crisis Shows Decay of U.S. Infrastructure, Whitmer Says**\
-`Workers in Cheboygan hurried to shore up a dam in danger of being overtopped, part of a “slow-moving disaster” threatening communities across the state.`\
-https://www.nytimes.com/2026/04/16/us/michigan-dam-height-cheboygan.html
-
-**Trump to Pick Ousted FEMA Head to Lead Agency Again**\
-`Cameron Hamilton is a former Navy SEAL who ran unsuccessfully for Congress.`\
-https://www.nytimes.com/2026/04/16/us/trump-fema-cameron-hamilton.html
-
-**This Is Where Donald Trump Loses**\
-`President Trump won’t be able to defy the courts if he loses his Supreme Court case on birthright citizenship, which he is likely to do, the conservative court watcher Sarah Isgur argues on “Interesting Times.”`\
-https://www.nytimes.com/video/opinion/100000010835254/this-is-where-donald-trump-loses.html
-
-**Democrats Confront RFK Jr. on Vaccines and Health Care Fraud**\
-`Lawmakers confronted Robert F. Kennedy Jr. on vaccine messaging and the Trump administration’s handling of health care fraud. The health secretary was also criticized over comments he made about psychiatric medications and Black children, which he denied.`\
-https://www.nytimes.com/video/us/politics/100000010845645/rfk-jr-congress-hearing-democrats.html
-
-**The Failure of Donald Trump**\
-`President Trump’s efforts to rule through executive order on issues like tariffs and birthright citizenship have largely failed — and will continue to fail — the conservative court watcher Sarah Isgur argues on “Interesting Times.”`\
-https://www.nytimes.com/video/opinion/100000010835252/the-failure-of-donald-trump.html
 
