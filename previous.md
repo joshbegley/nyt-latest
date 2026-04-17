@@ -1,3 +1,7 @@
+**American Airlines Says It Won’t Merge With United**\
+`American issued the statement after news reports that United Airlines’ chief executive had discussed the idea with the Trump administration.`\
+https://www.nytimes.com/2026/04/17/business/american-airlines-united-merger.html
+
 **With Vaccines Widely Popular, Kennedy Changes Tone, but Maybe Not His Plans**\
 `Several moves suggest Health Secretary Robert F. Kennedy could revive his campaign to question the safety and effectiveness of the shots after the midterm elections.`\
 https://www.nytimes.com/2026/04/17/us/politics/vaccines-kennedy-cdc.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/17/nyregion/second-home-tax.html
 **Trump Frames Iran War as All but Over in Optimistic Social Media Flurry**\
 `Iranian officials did not confirm most of Mr. Trump’s claims and disputed several of them.`\
 https://www.nytimes.com/2026/04/17/world/middleeast/trump-iran-war-truth-social-posts.html
-
-**Iran says the Strait of Hormuz is open, but adds that it is still under Tehran’s supervision.**\
-`Ab`\
-https://www.nytimes.com/live/2026/04/17/world/iran-us-war-trump/iran-says-the-strait-of-hormuz-is-open-but-adds-that-it-is-still-under-tehrans-supervision
 
