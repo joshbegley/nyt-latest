@@ -1,3 +1,27 @@
+**How Theater Can Still Challenge Us**\
+`The director Ivo van Hove and others share essential avant-garde productions.`\
+https://www.nytimes.com/interactive/2026/04/17/t-magazine/avant-garde-experimental-theater.html
+
+**Irán abre el estrecho de Ormuz, pero EE. UU. mantiene el bloqueo**\
+`Las declaraciones del viernes sobre la apertura del estrecho de Ormuz elevaron las esperanzas de que el petróleo y el gas del golfo Pérsico vuelvan a circular en volúmenes significativos.`\
+https://www.nytimes.com/es/2026/04/17/espanol/mundo/estrecho-ormuz-iran-trump-bloqueo.html
+
+**How Cultured Are You? Take Our Quiz.**\
+`Test your knowledge, before or after reading T’s Culture issue.`\
+https://www.nytimes.com/interactive/2026/04/17/t-magazine/art-film-music-books-culture-fashion-quiz.html
+
+**Barry Keoghan Takes Our Culture Questionnaire**\
+`The actor shares his favorite performances, films, meals and more.`\
+https://www.nytimes.com/interactive/2026/04/17/t-magazine/barry-keoghan-films-food-books-music-art.html
+
+**Jeffrey Wright Takes Our Culture Questionnaire**\
+`The actor shares his favorite performances, films, meals and more.`\
+https://www.nytimes.com/interactive/2026/04/17/t-magazine/jeffrey-wright-films-food-books-music-art.html
+
+**Greta Lee Takes Our Culture Questionnaire**\
+`The actress shares her favorite performances, films, meals and more.`\
+https://www.nytimes.com/interactive/2026/04/17/t-magazine/greta-lee-films-food-books-music-art.html
+
 **13 Garments That Altered the History of Clothing**\
 `The looks that revolutionized fashion.`\
 https://www.nytimes.com/interactive/2026/04/17/t-magazine/most-important-fashion-outfits.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/interactive/2026/04/17/t-magazine/modernism-movement-des
 **Is That Column Doric or Corinthian?**\
 `A primer on columns from the architect Gil Schafer.`\
 https://www.nytimes.com/interactive/2026/04/17/t-magazine/column-architecture-classical.html
-
-**How Many Flowers Can You Identify?**\
-`The most culturally important flora in the world — and how to spot them.`\
-https://www.nytimes.com/interactive/2026/04/17/t-magazine/flowers-plants-identification-names.html
-
-**Actors to See Onstage No Matter What They’re In**\
-`13 stars of the New York theater scene who elevate every production.`\
-https://www.nytimes.com/interactive/2026/04/17/t-magazine/actors-theater-new-york-broadway.html
-
-**How Puppets Explain Culture**\
-`A look at six enduring traditions around the world.`\
-https://www.nytimes.com/interactive/2026/04/17/t-magazine/puppetry-theater-global.html
-
-**The Most Moving Onstage Monologues**\
-`Actors Nathan Lane, Joel Grey, Kara Young and Mark Strong on seven speeches they can’t forget.`\
-https://www.nytimes.com/interactive/2026/04/17/t-magazine/moving-theater-monologues-speeches.html
-
-**The Plays You Need to Know From the Last 100 Years**\
-`Cole Escola, Lynn Nottage and others choose the plays that define contemporary theater.`\
-https://www.nytimes.com/interactive/2026/04/17/t-magazine/theater-great-plays.html
-
-**The Shakespeare Plays You Must See**\
-`The actors Judi Dench and Paapa Essiedu and director Saheem Ali share their favorite works.`\
-https://www.nytimes.com/interactive/2026/04/17/t-magazine/shakespeare-plays-actors.html
 
