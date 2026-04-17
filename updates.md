@@ -1,3 +1,7 @@
+**‘The Pitt’ Season 2 Finale Recap: Jagged Little Pills**\
+`For all the death and darkness the Pitt crew had to swallow this season, the finale also offered profound moments of hope and renewal.`\
+https://www.nytimes.com/2026/04/16/arts/television/the-pitt-recap-season-2-finale.html
+
 **Trump says he might go to Pakistan if an Iran deal were signed there.**\
 ``\
 https://www.nytimes.com/2026/04/16/world/middleeast/trump-says-he-might-go-to-pakistan-if-an-iran-deal-were-signed-there.html

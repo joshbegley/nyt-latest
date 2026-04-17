@@ -47,7 +47,7 @@ https://www.nytimes.com/2026/04/16/pageoneplus/quote-of-the-day-a-huge-russian-b
 https://www.nytimes.com/2026/04/16/us/politics/trump-taxes-fuel-las-vegas.html
 
 **‘The Pitt’ Season 2 Finale Recap: Jagged Little Pills**\
-`For all the death and darkness the Pitt crew had to swallow this season, finale also offered profound moments of hope and renewal.`\
+`For all the death and darkness the Pitt crew had to swallow this season, the finale also offered profound moments of hope and renewal.`\
 https://www.nytimes.com/2026/04/16/arts/television/the-pitt-recap-season-2-finale.html
 
 **‘Proof’ Review: Ayo Edebiri as a Math Girl, Interrupted**\
