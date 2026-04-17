@@ -1,3 +1,11 @@
+**Washington’s Scramble to Get Anthropic’s Powerful New Model**\
+`Federal agencies have requested access to Claude Mythos Preview, which Anthropic says can rapidly identify — and potentially create — new cyberthreats.`\
+https://www.nytimes.com/2026/04/17/business/dealbook/washington-anthropic-mythos.html
+
+**‘I Just Want to Be Back’: Thousands Rush South in Lebanon Under Cease-Fire**\
+`Stuck in standstill traffic, Lebanese people who had been displaced by fighting expressed a mix of excitement and uncertainty about a pause in Israel’s campaign against Hezbollah.`\
+https://www.nytimes.com/2026/04/17/world/middleeast/lebanon-cease-fire-traffic-south.html
+
 **What to Know About the Israel-Lebanon Cease-Fire**\
 `The pause in fighting would remove a major hindrance to the U.S.-Iran peace talks, if it holds.`\
 https://www.nytimes.com/2026/04/17/world/middleeast/israel-lebanon-ceasefire.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/es/2026/04/17/espanol/america-latina/detener-trafico-dro
 **Our Tax System Should Make You Furious**\
 `The tax expert Ray Madoff explains why the American tax system is broken, and how to make it fairer.`\
 https://www.nytimes.com/2026/04/17/opinion/ezra-klein-podcast-ray-madoff.html
-
-**The New York Times News Quiz, April 17, 2026**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://www.nytimes.com/interactive/2026/04/17/briefing/quiz-pope-ceasefire-swalwell-hungary.html
-
-**Conversation Starters That Aren’t ‘How’s It Going?’**\
-`“What’s up?” is a conversational dead end, too. Here are some alternatives to spark a satisfying chat.`\
-https://www.nytimes.com/2026/04/17/well/conversation-starters-openers.html
 
