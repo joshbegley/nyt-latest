@@ -1,3 +1,19 @@
+**A Huge Arch**\
+`President Trump wants to build one, but he’s getting pushback.`\
+https://www.nytimes.com/2026/04/17/briefing/a-huge-arch.html
+
+**In northern Israel, relief at cease-fire is overshadowed by unease**\
+`Residents are wary that the truce may offer only a temporary reprieve after weeks of rocket fire by Hezbollah.`\
+https://www.nytimes.com/live/2026/04/17/world/israel-lebanon-ceasefire-hezbollah/israel-residents-ceasefire-lebanon-hezbollah
+
+**‘The Headlines’ News Quiz: Jan. 16, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/04/17/podcasts/the-headlines/the-headlines-news-quiz-jan-16-2026.html
+
+**El misterio del bitcóin**\
+`El creador del bitcóin lleva 17 años oculto tras el seudónimo Satoshi Nakamoto.`\
+https://www.nytimes.com/es/2026/04/17/espanol/mundo/misterio-creador-bitcoin.html
+
 **We Got Inside Knicks Surveillance — and MSG’s Deep State Is Stranger Than You Think**\
 `A WIRED investigation — revealed in collaboration with PTFO.`\
 https://www.nytimes.com/2026/04/17/podcasts/knicks-surveillance-msg-wired-investigation.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/17/learning/have-you-ever-turned-another-persons
 **Myanmar Frees Ousted President, but Not Daw Aung San Suu Kyi**\
 `U Win Myint is a close ally of Ms. Aung San Suu Kyi, the country’s civilian leader. Both were forced from power by the military in a 2021 coup and imprisoned.`\
 https://www.nytimes.com/2026/04/17/world/asia/myanmar-president-amnesty.html
-
-**In Texas Senate Race, Talarico Is Out-Raising His G.O.P. Opponents**\
-`James Talarico, the Democratic nominee, has been amassing campaign cash as Senator John Cornyn and Attorney General Ken Paxton still battle each other.`\
-https://www.nytimes.com/2026/04/17/us/politics/talarico-cornyn-paxton-texas-senate-fundraising.html
-
-**How Female Anglerfish Evolved to Have It All**\
-`The deep-sea fish ended up with glowing lures not just to snag meals, but also to attract mates, a new study finds.`\
-https://www.nytimes.com/2026/04/17/science/anglerfish-lure-evolution.html
-
-**Should You Procrastinate Productively — or by Having Fun?**\
-`A ruling on a dispute over the proper method of avoidance.`\
-https://www.nytimes.com/interactive/2026/04/17/magazine/procrastination-productivity-hodgman-quiz.html
-
-**9 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/04/17/movies/new-movie-reviews.html
 
