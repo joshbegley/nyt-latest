@@ -1,3 +1,11 @@
+****\
+``\
+https://www.nytimes.com/video/embedded/admin/100000010847284/17vid-returns-carousel-76529.html
+
+**With A.I. Glasses, Korea’s Theaters Hope for a K-Pop Moment**\
+`Producers and the cultural authorities hope that technology can overcome a language barrier and take the country’s shows to the world.`\
+https://www.nytimes.com/2026/04/17/arts/korean-theater-ai-glasses-translation.html
+
 **Un licor tradicional prohibido en Irán resurge en Nueva York**\
 `Mientras la guerra asola su patria, cuatro expatriados destilan “aragh sagi”, una bebida persa que se está poniendo de moda en bares, restaurantes y tiendas estadounidenses.`\
 https://www.nytimes.com/es/2026/04/17/espanol/mundo/licor-iran.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/17/style/emily-wiser-griffin-lear-wedding.html
 **Painting Over My Painful Past**\
 `My father treated me more like a wife than a child. It took me decades to face the truth of what happened.`\
 https://www.nytimes.com/2026/04/17/style/modern-love-painting-over-my-painful-past.html
-
-**A Duet Decades in the Making**\
-`After meeting for a website project in 2020, James Squires and Jacqui Agostinelli bonded over their love of music, forming both a marriage and their musical duo, Sweet Basil.`\
-https://www.nytimes.com/2026/04/17/style/jacqui-agostinelli-james-squires-wedding.html
-
-**Her Grandmother Told Her ‘Maybe You’ll Marry Him One Day’**\
-`After Ben Sweeney and Lauren Fogel debarked their plane at 3 a.m., he invited her to stay at his parents’ house nearby. Her grandmother was impressed.`\
-https://www.nytimes.com/2026/04/17/style/lauren-fogel-ben-sweeney-wedding.html
 
