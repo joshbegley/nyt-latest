@@ -1,3 +1,15 @@
+**Bob Hall, First Wheelchair Champion of the Boston Marathon, Dies at 74**\
+`His accomplishment in 1975 inspired thousands of disabled athletes to participate in races around the world.`\
+https://www.nytimes.com/2026/04/17/sports/bob-hall-dead.html
+
+**Stocks Extend ‘Astonishing’ Rally as Middle East Tensions Ease Further**\
+`The S&P 500’s rise on Friday caps a striking three-week streak, powered by investors’ optimism about the reopening of the Strait of Hormuz and strong corporate earnings.`\
+https://www.nytimes.com/2026/04/17/business/stocks-oil-iran-war-strait-of-hormuz.html
+
+**World Cup Transit Prices Are Set: $150 by Train and $80 for Shuttles**\
+`Tens of thousands of people are expected to attend matches at MetLife Stadium in New Jersey this summer, but most will not be allowed to drive there.`\
+https://www.nytimes.com/2026/04/17/nyregion/nj-transit-world-cup-ticket-prices.html
+
 **TK**\
 `TK`\
 https://static01.nyt.com/slideshow/2026/04/17/t-magazine/tk.html

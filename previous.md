@@ -1,3 +1,15 @@
+**Bob Hall, First Wheelchair Champion of the Boston Marathon, Dies at 74**\
+`His accomplishment in 1975 inspired thousands of disabled athletes to participate in races around the world.`\
+https://www.nytimes.com/2026/04/17/sports/bob-hall-dead.html
+
+**Stocks Extend ‘Astonishing’ Rally as Middle East Tensions Ease Further**\
+`The S&P 500’s rise on Friday caps a striking three-week streak, powered by investors’ optimism about the reopening of the Strait of Hormuz and strong corporate earnings.`\
+https://www.nytimes.com/2026/04/17/business/stocks-oil-iran-war-strait-of-hormuz.html
+
+**World Cup Transit Prices Are Set: $150 by Train and $80 for Shuttles**\
+`Tens of thousands of people are expected to attend matches at MetLife Stadium in New Jersey this summer, but most will not be allowed to drive there.`\
+https://www.nytimes.com/2026/04/17/nyregion/nj-transit-world-cup-ticket-prices.html
+
 **TK**\
 `TK`\
 https://static01.nyt.com/slideshow/2026/04/17/t-magazine/tk.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/17/theater/salesman-giant-cats-becky-shaw-proof-
 **Supreme Court Sides With Oil Companies in Louisiana Coastal Lawsuits**\
 `The companies had asked the justices to clear the way to move environmental lawsuits out of state courts, to friendlier federal venues.`\
 https://www.nytimes.com/2026/04/17/us/politics/supreme-court-oil-louisiana.html
-
-**Mamdani Endorses Lindsey Boylan, Who Accused Cuomo of Sexual Harassment**\
-`The endorsement, in a special election for a City Council seat on Manhattan’s West Side, comes as the mayor seeks to build influence within the Council.`\
-https://www.nytimes.com/2026/04/17/nyregion/lindsay-boylan-mamdani-endorsement-city-council.html
-
-****\
-``\
-https://www.nytimes.com/video/embedded/world/middleeast/100000010847812/17vid-mideast-blogs-70193.html
-
-**U.K. Police Investigate Claims Drones Targeted Israeli Embassy in London**\
-`The Metropolitan Police said that the building had not been attacked but that they were assessing “discarded items” in Kensington Gardens, a nearby park, which was cordoned off.`\
-https://www.nytimes.com/2026/04/17/world/europe/london-israeli-embassy-drone-threat.html
 
