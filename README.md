@@ -1,3 +1,11 @@
+**The Politically Charged Art of Celeste Dupuy-Spencer**\
+`Her vivid paintings examined religious fundamentalism and events like the Jan. 6 riots at the U.S. Capitol. She died this month at 46.`\
+https://www.nytimes.com/2026/04/17/arts/the-politically-charged-art-of-celeste-dupuy-spencer.html
+
+**Celeste Dupuy-Spencer, Painter of Hotly Topical Images, Dies at 46**\
+`Her vibrant yet brooding work explored the crises of the Trump era, with paintings depicting the Jan. 6 riots and a mangled Confederate monument.`\
+https://www.nytimes.com/2026/04/17/arts/design/celeste-dupuy-spencer-dead.html
+
 **Suspect Accused of Hacking Climate Activists Appears in Court**\
 `Amit Forlit is accused of running a hacking operation that aimed to thwart climate litigation at the behest of a lobbying firm working for an oil giant.`\
 https://www.nytimes.com/2026/04/17/climate/amit-forlit-hacking-court.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/interactive/2026/04/17/t-magazine/most-important-fashion
 **The Suit, in 8 Reinventions**\
 `Four men’s wear designers share the history of the garment.`\
 https://www.nytimes.com/interactive/2026/04/17/t-magazine/suit-design-mens-fashion.html
-
-**The Essential White Shirts**\
-`A selection of the very best of fashion’s most enduring garment, according to the people who make them.`\
-https://www.nytimes.com/interactive/2026/04/17/t-magazine/white-button-up-shirts.html
-
-**Rébé, Intarsia, Agrafe: The Fashion Terms to Know**\
-`A glossary of clothing terms and techniques.`\
-https://www.nytimes.com/interactive/2026/04/17/t-magazine/fashion-terms-glossary.html
 
