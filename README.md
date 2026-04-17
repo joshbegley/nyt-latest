@@ -1,3 +1,7 @@
+**On ‘The Pitt,’ the Lingering Effects of Trauma Take the Spotlight**\
+`On top of the daily toll of treating patients, the show’s medical providers bring their own scars to the E.R.`\
+https://www.nytimes.com/2026/04/16/well/mind/the-pitt-trauma-ptsd.html
+
 **L.A.P.D. Arrests D4vd Months After Finding Teen’s Remains in His Tesla**\
 `The singer was charged in the death of Celeste Rivas Hernandez, who died before her 15th birthday.`\
 https://www.nytimes.com/2026/04/16/us/d4vd-charged-teen-death-tesla.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/16/style/heelys-joy-friendship.html
 **Roger Adams Dies at 71; Invented the Rolling Sneakers Known as Heelys**\
 `You could walk in them like gym shoes, but if you rocked back on your heels the wheels emerged, turning them into roller skates. In the early 2000s, the company sold millions.`\
 https://www.nytimes.com/2026/04/16/business/roger-adams-dead.html
-
-**10-Day Cease-Fire Between Israel and Lebanon Goes Into Effect**\
-`The pause in the fighting between Israeli forces and Iranian-allied Hezbollah militants may help smooth the way to a peace deal between the U.S. and Iran.`\
-https://www.nytimes.com/2026/04/16/world/middleeast/israel-lebanon-cease-fire.html
 
