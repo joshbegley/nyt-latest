@@ -1,3 +1,7 @@
+**The Strait of Hormuz is ‘completely open’ during the cease-fire in Lebanon, U.S. and Iran say.**\
+``\
+https://www.nytimes.com/live/2026/04/17/world/iran-us-war-trump/strait-hormuz-open-iran-lebanon-ceasefire
+
 **You Have Some Options for Dealing With Rising Property Taxes**\
 `The average bill rose 3 percent last year, in part because of higher tax rates. There are ways to try to reduce what you owe, experts say.`\
 https://www.nytimes.com/2026/04/17/your-money/property-taxes-appeals.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/17/weather/kansas-missouri-iowa-wisconsin-storms
 **The 27-Year-Old Diplomat Waging Trump’s Cultural War With Europe**\
 `Five years out of college, Samuel Samson has driven the Trump administration’s push to upend America’s postwar relationship with Europe.`\
 https://www.nytimes.com/2026/04/17/world/europe/trump-samson-europe.html
-
-**Trump quiere detener el tráfico de drogas originado en Sudamérica. ¿Eso es posible?**\
-`Las autoridades emplean drones, tropas e IA para combatir el contrabando de cocaína. Pero las bandas hallan nuevas formas de transportar cantidades récord de drogas por todo el mundo.`\
-https://www.nytimes.com/es/2026/04/17/espanol/america-latina/detener-trafico-drogas-sudamerica.html
 
