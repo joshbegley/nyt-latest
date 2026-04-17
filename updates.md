@@ -1,3 +1,19 @@
+**Trump Brushes Off High Fuel Costs as ‘Fake’ in Economic Speech in Las Vegas**\
+`The president sought to downplay the financial hardship that has followed his war with Iran, amid a tourism downturn in the city.`\
+https://www.nytimes.com/2026/04/16/us/politics/trump-taxes-fuel-las-vegas.html
+
+**‘The Pitt’ Season 2 Finale Recap: Jagged Little Pills**\
+`For all the death and darkness the Pitt crew had to swallow this season, finale also offered profound moments of hope and renewal.`\
+https://www.nytimes.com/2026/04/16/arts/television/the-pitt-recap-season-2-finale.html
+
+**‘Proof’ Review: Ayo Edebiri as a Math Girl, Interrupted**\
+`The actress stars as a haunted genius opposite Don Cheadle as her father in David Auburn’s 2001 drama. This revival, though, exposes the play’s lack of rigor.`\
+https://www.nytimes.com/2026/04/16/theater/proof-review-ayo-edebiri-don-cheadle.html
+
+**Half a Chocolate Bar**\
+`Rachel Fabi returns to open our solving weekend.`\
+https://www.nytimes.com/2026/04/16/crosswords/daily-puzzle-2026-04-17.html
+
 **Acting ICE Director Says He Plans to Resign in May**\
 `Todd Lyons said he would leave to spend more time with his family. He has spoken about a surge in threats against ICE officers, saying that he knew the reality firsthand.`\
 https://www.nytimes.com/2026/04/16/us/politics/lyons-ice-director-resigns.html

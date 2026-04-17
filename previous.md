@@ -1,3 +1,19 @@
+**Trump Brushes Off High Fuel Costs as ‘Fake’ in Economic Speech in Las Vegas**\
+`The president sought to downplay the financial hardship that has followed his war with Iran, amid a tourism downturn in the city.`\
+https://www.nytimes.com/2026/04/16/us/politics/trump-taxes-fuel-las-vegas.html
+
+**‘The Pitt’ Season 2 Finale Recap: Jagged Little Pills**\
+`For all the death and darkness the Pitt crew had to swallow this season, finale also offered profound moments of hope and renewal.`\
+https://www.nytimes.com/2026/04/16/arts/television/the-pitt-recap-season-2-finale.html
+
+**‘Proof’ Review: Ayo Edebiri as a Math Girl, Interrupted**\
+`The actress stars as a haunted genius opposite Don Cheadle as her father in David Auburn’s 2001 drama. This revival, though, exposes the play’s lack of rigor.`\
+https://www.nytimes.com/2026/04/16/theater/proof-review-ayo-edebiri-don-cheadle.html
+
+**Half a Chocolate Bar**\
+`Rachel Fabi returns to open our solving weekend.`\
+https://www.nytimes.com/2026/04/16/crosswords/daily-puzzle-2026-04-17.html
+
 **Acting ICE Director Says He Plans to Resign in May**\
 `Todd Lyons said he would leave to spend more time with his family. He has spoken about a surge in threats against ICE officers, saying that he knew the reality firsthand.`\
 https://www.nytimes.com/2026/04/16/us/politics/lyons-ice-director-resigns.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/video/us/politics/100000010845645/rfk-jr-congress-hearin
 **The Failure of Donald Trump**\
 `President Trump’s efforts to rule through executive order on issues like tariffs and birthright citizenship have largely failed — and will continue to fail — the conservative court watcher Sarah Isgur argues on “Interesting Times.”`\
 https://www.nytimes.com/video/opinion/100000010835252/the-failure-of-donald-trump.html
-
-**Israel and Lebanon Agree to a Cease-Fire Deal**\
-`Also, Utah is now the epicenter of U.S. measles cases. Here’s the latest at the end of Thursday.`\
-https://www.nytimes.com/2026/04/16/briefing/israel-lebanon-cease-fire.html
-
-**Mamdani Says He Plans to Skip the Met Gala**\
-`In an interview with the local news outfit Hell Gate, Mayor Mamdani framed his decision to avoid the glitzy fund-raiser as a way to keep his focus on affordability.`\
-https://www.nytimes.com/2026/04/16/style/met-gala-mayor-mamdani-nyc.html
-
-**Firefighters Likely Had Limited View of Approaching Plane in LaGuardia Crash**\
-`The Times created a 3-D model to visualize the sight lines from inside the fire truck seconds before it crashed with a passenger jet.`\
-https://www.nytimes.com/interactive/2026/04/16/us/laguardia-plane-crash-fire-truck-why.html
-
-**What Heelys Taught Me About Momentum**\
-`Heelys, the sneakers with wheels that were a fad in the 2000s, helped me form my first friendships. Recently, I decided to tap into that joy again.`\
-https://www.nytimes.com/2026/04/16/style/heelys-joy-friendship.html
 
