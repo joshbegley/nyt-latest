@@ -1,3 +1,7 @@
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/04/17/t-magazine/tk.html
+
 **Lutnick Blasts Canada Ahead of Trade Talks**\
 `Howard Lutnick, President Trump’s commerce secretary, derided Canada’s trade strategy and said a North American deal needed to be reworked.`\
 https://www.nytimes.com/2026/04/17/world/canada/trump-lutnick-canada-us-talks-trade-deal.html
