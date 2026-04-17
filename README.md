@@ -1,3 +1,7 @@
+**‘Salaries Are for Suckers’**\
+`How is it possible that a billionaire like Jeff Bezos has a lower tax rate than the average American? The tax expert Ray Madoff joins the Opinion columnist Ezra Klein to explain how the ultra-wealthy pay a disproportionately low amount of federal income taxes in comparison to their overall wealth.`\
+https://www.nytimes.com/video/opinion/100000010839393/salaries-are-for-suckers.html
+
 **Kevin Klose, Who Made NPR a Reporting Powerhouse, Dies at 85**\
 `A longtime journalist at The Washington Post, he used his unexpected fund-raising talents to greatly expand the radio organization’s coverage.`\
 https://www.nytimes.com/2026/04/17/business/media/kevin-klose-dead.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/04/17/t-magazine/barry-keoghan-films-fo
 **Jeffrey Wright Takes Our Culture Questionnaire**\
 `The actor shares his favorite performances, films, meals and more.`\
 https://www.nytimes.com/interactive/2026/04/17/t-magazine/jeffrey-wright-films-food-books-music-art.html
-
-**Greta Lee Takes Our Culture Questionnaire**\
-`The actress shares her favorite performances, films, meals and more.`\
-https://www.nytimes.com/interactive/2026/04/17/t-magazine/greta-lee-films-food-books-music-art.html
 
