@@ -1,4 +1,4 @@
-**The Strait of Hormuz is ‘completely open’ during the cease-fire in Lebanon, U.S. and Iran say.**\
+**The Strait of Hormuz is open during the cease-fire in Lebanon, U.S. and Iran say.**\
 ``\
 https://www.nytimes.com/live/2026/04/17/world/iran-us-war-trump/strait-hormuz-open-iran-lebanon-ceasefire
 
