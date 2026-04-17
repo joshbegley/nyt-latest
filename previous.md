@@ -1,3 +1,11 @@
+**Former Navy Service Member Charged in Georgia Killing Spree**\
+`The suspect is accused of carrying out a string of attacks in the Atlanta area that killed two women and injured a homeless man. The authorities described the attacks as random.`\
+https://www.nytimes.com/2026/04/16/us/former-navy-service-member-charged-in-georgia-killing-spree.html
+
+**F.A.A. Caps Flights at O’Hare Airport in Chicago to Cut Delays**\
+`Set to be in place throughout the summer, the limit aims to ease congestion after less than 60 percent of flights ran on schedule.`\
+https://www.nytimes.com/2026/04/16/us/flights-cap-chicago-ohare-airport.html
+
 **Israel y Líbano acuerdan un alto al fuego de 10 días**\
 `La pausa en los combates entre las fuerzas israelíes y los militantes de Hizbulá, aliados de Irán, ayudaría a allanar el camino hacia un acuerdo de paz entre EE. UU e Irán.`\
 https://www.nytimes.com/es/2026/04/16/espanol/mundo/israel-libano-tregua.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/16/world/middleeast/israel-lebanon-cease-fire.ht
 **Pittsburgh’s Children’s Museum Satisfies a Hunger for Eric Carle**\
 `The institution will feature five of the beloved author’s collage-based books in a series of interactive exhibits meant to engage children.`\
 https://www.nytimes.com/2026/04/16/arts/design/pittsburgh-childrens-museum-eric-carle.html
-
-**A ‘Cabinet of Wonders’ on Show at the American Academy of Arts and Letters**\
-`Current members of the museum have created a show that draws from, and comments on, the institution’s curious collections.`\
-https://www.nytimes.com/2026/04/16/arts/design/academy-arts-letters-articles.html
-
-**Bitcoin’s Greatest Mystery**\
-`The creator of Bitcoin has hidden behind the pseudonym Satoshi Nakamoto for 17 years.`\
-https://www.nytimes.com/2026/04/16/world/bitcoin-satoshi-adam-back-israel-lebanon-ceasefire.html
 
