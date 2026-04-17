@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/04/17/style/bezos-met-gala-boycott-posters.html
 https://www.nytimes.com/2026/04/17/business/mississippi-liquor-shortage.html
 
 **Cerebras, an A.I. Chip Maker, Files to Go Public as Tech Offerings Ramp Up**\
-`The Silicon Valley chip maker filed a prospectus just as SpaceX, Anthropic and OpenAI prepare for their own listings, in what is shaping up to be a wave of enormous initial public offerings.`\
+`The Silicon Valley chip maker filed a prospectus just as SpaceX, Anthropic and OpenAI prepared for their own listings, in what is shaping up to be a wave of enormous initial public offerings.`\
 https://www.nytimes.com/2026/04/17/technology/cerebras-public-offering-ai.html
 
 **How Pacific Ocean Water Could Help the Colorado River Crisis**\
@@ -71,7 +71,7 @@ https://www.nytimes.com/2026/04/17/arts/design/celeste-dupuy-spencer-dead.html
 https://www.nytimes.com/2026/04/17/climate/amit-forlit-hacking-court.html
 
 **N.Y.C. Doormen and Building Owners Reach an Agreement to Avert a Strike**\
-`The deal affects about 34,000 apartment building workers. The last time they had staged a walkout was in 1991.`\
+`The deal would provide pay raises and maintain free health insurance for about 34,000 apartment building workers.`\
 https://www.nytimes.com/2026/04/17/nyregion/nyc-doorman-strike-averted.html
 
 **An Explosion Rattles a Toronto Neighborhood. Was a Drake Video to Blame?**\
