@@ -1,3 +1,7 @@
+**He Looked for Ways to Stop Mass Violence**\
+`David Eisenman sought to better understand how to prevent school shootings and other targeted violence, until the Department of Homeland Security halted the research.`\
+https://www.nytimes.com/2026/04/17/science/lost-science-eisenman-violence.html
+
 **French Widow Detained by ICE in Alabama Is Released After 16 Days**\
 `Marie-Thérèse Ross-Mahé, 85, who was arrested amid an inheritance dispute, has returned to France, its foreign affairs minister said. She came to America last year after reconnecting with and marrying a former G.I.`\
 https://www.nytimes.com/2026/04/17/us/french-woman-release-alabama-ice.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/17/crosswords/strands-sidekick-776.html
 **Wordle Review No. 1,764**\
 `Scroll down for hints and conversation about the puzzle for Saturday, April 18, 2026.`\
 https://www.nytimes.com/2026/04/17/crosswords/wordle-review-1764.html
-
-**After a Week of Tornadoes and Floods, Friday May Bring the Strongest Storms Yet**\
-`The Midwest has faced day after day of weather warnings this week. More are expected on Friday.`\
-https://www.nytimes.com/2026/04/17/weather/kansas-missouri-iowa-wisconsin-storms-forecast.html
 

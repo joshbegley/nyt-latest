@@ -1,3 +1,7 @@
+**He Looked for Ways to Stop Mass Violence**\
+`David Eisenman sought to better understand how to prevent school shootings and other targeted violence, until the Department of Homeland Security halted the research.`\
+https://www.nytimes.com/2026/04/17/science/lost-science-eisenman-violence.html
+
 **French Widow Detained by ICE in Alabama Is Released After 16 Days**\
 `Marie-Thérèse Ross-Mahé, 85, who was arrested amid an inheritance dispute, has returned to France, its foreign affairs minister said. She came to America last year after reconnecting with and marrying a former G.I.`\
 https://www.nytimes.com/2026/04/17/us/french-woman-release-alabama-ice.html
