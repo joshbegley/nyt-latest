@@ -1,3 +1,11 @@
+**How Do You Measure an A.I. Boom?**\
+`A chart created by METR, a nonprofit A.I. organization, has become an industrywide obsession as it measures the rapid development of big A.I. systems.`\
+https://www.nytimes.com/2026/04/17/technology/how-do-you-measure-an-ai-boom.html
+
+**Una viuda francesa de 85 años fue detenida por el ICE tras una disputa de herencia**\
+`Después de la muerte de su esposo, Marie-Thérèse Ross-Mahé enfrentó una batalla patrimonial con sus hijastros. Una jueza dijo que uno de ellos usó su posición como empleado federal para detenerla. Tras 16 días, fue liberada y regresó a Francia.`\
+https://www.nytimes.com/es/2026/04/17/espanol/estados-unidos/ice-mujer-detenida-francia.html
+
 **9 Shows Our Theater Critics Are Talking About**\
 `John Lithgow in “Giant,” a triumphant revival of “Death of a Salesman” and vogueing cats at “The Jellicle Ball”: These productions are worth knowing about.`\
 https://www.nytimes.com/2026/04/17/theater/salesman-giant-cats-becky-shaw-proof-broadway.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/17/business/dealbook/washington-anthropic-mythos
 **‘I Just Want to Be Back’: Thousands Rush South in Lebanon Under Cease-Fire**\
 `Stuck in standstill traffic, Lebanese people who had been displaced by fighting expressed a mix of excitement and uncertainty about a pause in Israel’s campaign against Hezbollah.`\
 https://www.nytimes.com/2026/04/17/world/middleeast/lebanon-cease-fire-traffic-south.html
-
-**What to Know About the Israel-Lebanon Cease-Fire**\
-`The pause in fighting would remove a major hindrance to the U.S.-Iran peace talks, if it holds.`\
-https://www.nytimes.com/2026/04/17/world/middleeast/israel-lebanon-ceasefire.html
-
-**A.I. Backlash Turns Violent + Kara Swisher on Healthmaxxing + The Zuck Bot Is Coming**\
-`Is anti-A.I. radicalization a growing trend?`\
-https://www.nytimes.com/2026/04/17/podcasts/hardfork-ai-backlash.html
 
