@@ -30,7 +30,7 @@ https://www.nytimes.com/2026/04/17/podcasts/the-headlines/the-headlines-news-qui
 `El creador del bitcóin lleva 17 años oculto tras el seudónimo Satoshi Nakamoto.`\
 https://www.nytimes.com/es/2026/04/17/espanol/mundo/misterio-creador-bitcoin.html
 
-**We Got Inside Knicks Surveillance — and MSG’s Deep State Is Stranger Than You Think**\
+**We Got Inside Knicks Surveillance — and M.S.G.’s Deep State Is Stranger Than You Think**\
 `A WIRED investigation — revealed in collaboration with PTFO.`\
 https://www.nytimes.com/2026/04/17/podcasts/knicks-surveillance-msg-wired-investigation.html
 
