@@ -1,3 +1,11 @@
+****\
+``\
+https://www.nytimes.com/video/embedded/admin/100000010847284/17vid-returns-carousel-76529.html
+
+**With A.I. Glasses, Korea’s Theaters Hope for a K-Pop Moment**\
+`Producers and the cultural authorities hope that technology can overcome a language barrier and take the country’s shows to the world.`\
+https://www.nytimes.com/2026/04/17/arts/korean-theater-ai-glasses-translation.html
+
 **Un licor tradicional prohibido en Irán resurge en Nueva York**\
 `Mientras la guerra asola su patria, cuatro expatriados destilan “aragh sagi”, una bebida persa que se está poniendo de moda en bares, restaurantes y tiendas estadounidenses.`\
 https://www.nytimes.com/es/2026/04/17/espanol/mundo/licor-iran.html
