@@ -1,3 +1,7 @@
+**Amid Conflicting Messages, Optimism for Peace Deal Emerges**\
+`On a day when both Iran and the United States declared the Strait of Hormuz opened, hopes for an agreement rose. But statements from President Trump and Iranian leaders about negotiations were sometimes at odds.`\
+https://www.nytimes.com/2026/04/17/world/middleeast/trump-iran-hormuz-peace-deal.html
+
 **‘Salaries Are for Suckers’**\
 `How is it possible that a billionaire like Jeff Bezos has a lower tax rate than the average American? The tax expert Ray Madoff joins the Opinion columnist Ezra Klein to explain how the ultra-wealthy pay a disproportionately low amount of federal income taxes in comparison to their overall wealth.`\
 https://www.nytimes.com/video/opinion/100000010839393/salaries-are-for-suckers.html
