@@ -1,3 +1,23 @@
+**A.I. Backlash Turns Violent + Kara Swisher on Healthmaxxing + The Zuck Bot Is Coming**\
+`Is anti-A.I. radicalization a growing trend?`\
+https://www.nytimes.com/2026/04/17/podcasts/hardfork-ai-backlash.html
+
+**A Huge Arch**\
+`President Trump wants to build one, but he’s getting pushback.`\
+https://www.nytimes.com/2026/04/17/briefing/a-huge-arch.html
+
+**In northern Israel, relief at cease-fire is overshadowed by unease**\
+`Residents are wary that the truce may offer only a temporary reprieve after weeks of rocket fire by Hezbollah.`\
+https://www.nytimes.com/live/2026/04/17/world/israel-lebanon-ceasefire-hezbollah/israel-residents-ceasefire-lebanon-hezbollah
+
+**‘The Headlines’ News Quiz: Jan. 16, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/04/17/podcasts/the-headlines/the-headlines-news-quiz-jan-16-2026.html
+
+**El misterio del bitcóin**\
+`El creador del bitcóin lleva 17 años oculto tras el seudónimo Satoshi Nakamoto.`\
+https://www.nytimes.com/es/2026/04/17/espanol/mundo/misterio-creador-bitcoin.html
+
 **We Got Inside Knicks Surveillance — and MSG’s Deep State Is Stranger Than You Think**\
 `A WIRED investigation — revealed in collaboration with PTFO.`\
 https://www.nytimes.com/2026/04/17/podcasts/knicks-surveillance-msg-wired-investigation.html
