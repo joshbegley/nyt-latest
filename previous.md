@@ -1,3 +1,19 @@
+**Trump Is Urged to Act on Iranian Site Feared Impervious to Airstrikes**\
+`Little is known about Pickaxe Mountain, but some experts say it illustrates the impossibility of relying on force alone to prevent Iran from acquiring a nuclear bomb.`\
+https://www.nytimes.com/2026/04/17/us/politics/trump-iran-nuclear-site.html
+
+**Former Police Sergeant Granted Bail as He Appeals Manslaughter Conviction**\
+`The order from an appeals court judge will allow Erik Duran, the former sergeant, to be released on $300,000 bail while he challenges his manslaughter conviction.`\
+https://www.nytimes.com/2026/04/17/nyregion/duran-bail-bronx-cooler.html
+
+**Trump Asks for Longer Timeline in Suit Against I.R.S.**\
+`The Justice Department has not responded to the president’s suit, which has created a conflict of interest for the government’s lawyers.`\
+https://www.nytimes.com/2026/04/17/business/economy/trump-irs-justice-lawsuit.html
+
+**Hundreds of Fake Pro-Trump Avatars Emerge on Social Media**\
+`The artificial-intelligence-generated fake influencers have surged on TikTok, Instagram, Facebook and YouTube in an apparent bid to hook conservative voters.`\
+https://www.nytimes.com/2026/04/17/business/media/artificial-intelligence-trump-social-media.html
+
 **My Favorite Song | Greta Lee**\
 `The actress reveals the song that played while she walked down the aisle at her wedding.`\
 https://www.nytimes.com/video/t-magazine/100000010817714/my-favorite-song-greta-lee.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/es/2026/04/17/espanol/mundo/israel-libano-alto-fuego-net
 **How JD Vance Is Being Tested as Trump’s Chief Defender**\
 `Vice President JD Vance has been tasked with defending the Iran war and President Trump’s attacks on Pope Leo XIV. Our White House correspondent Zolan Kanno-Youngs describes how that’s put Vance in a particularly difficult position.`\
 https://www.nytimes.com/video/us/politics/100000010843196/vance-defends-trump-pope-iran.html
-
-**European leaders discuss an international mission to restore shipping in Strait of Hormuz.**\
-``\
-https://www.nytimes.com/live/2026/04/17/world/iran-us-war-trump/european-leaders-discuss-an-international-mission-to-restore-shipping-in-strait-of-hormuz
-
-**Why Lebanon Has Long Struggled to Contain Hezbollah**\
-`Lebanon’s government has been caught between Western demands to disarm the Shiite Muslim militant group and fears of inflaming sectarian tensions.`\
-https://www.nytimes.com/2026/04/17/world/middleeast/lebanon-hezbollah-ceasefire.html
-
-**Mexico’s police focus on the World Cup while thousands remain missing.**\
-``\
-https://www.nytimes.com/live/2026/04/17/us/fifa-world-cup/mexicos-police-focus-on-the-world-cup-while-thousands-remain-missing
-
-**Ella se aseguró de que su bebé naciera en EE. UU. Luego las autoridades los separaron**\
-`Diana Acosta Verde, quien entró de forma ilegal en EE. UU. cuando estaba embarazada de seis meses, tuvo que dejar a su bebé en un hospital mientras regresaba a un centro de detención.`\
-https://www.nytimes.com/es/2026/04/17/espanol/estados-unidos/migracion-ciudadania-nacimiento-detencion.html
 

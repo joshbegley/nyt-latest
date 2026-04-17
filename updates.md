@@ -1,3 +1,19 @@
+**Trump Is Urged to Act on Iranian Site Feared Impervious to Airstrikes**\
+`Little is known about Pickaxe Mountain, but some experts say it illustrates the impossibility of relying on force alone to prevent Iran from acquiring a nuclear bomb.`\
+https://www.nytimes.com/2026/04/17/us/politics/trump-iran-nuclear-site.html
+
+**Former Police Sergeant Granted Bail as He Appeals Manslaughter Conviction**\
+`The order from an appeals court judge will allow Erik Duran, the former sergeant, to be released on $300,000 bail while he challenges his manslaughter conviction.`\
+https://www.nytimes.com/2026/04/17/nyregion/duran-bail-bronx-cooler.html
+
+**Trump Asks for Longer Timeline in Suit Against I.R.S.**\
+`The Justice Department has not responded to the president’s suit, which has created a conflict of interest for the government’s lawyers.`\
+https://www.nytimes.com/2026/04/17/business/economy/trump-irs-justice-lawsuit.html
+
+**Hundreds of Fake Pro-Trump Avatars Emerge on Social Media**\
+`The artificial-intelligence-generated fake influencers have surged on TikTok, Instagram, Facebook and YouTube in an apparent bid to hook conservative voters.`\
+https://www.nytimes.com/2026/04/17/business/media/artificial-intelligence-trump-social-media.html
+
 **My Favorite Song | Greta Lee**\
 `The actress reveals the song that played while she walked down the aisle at her wedding.`\
 https://www.nytimes.com/video/t-magazine/100000010817714/my-favorite-song-greta-lee.html
