@@ -1,3 +1,27 @@
+**El ascenso, la caída y el resurgimiento de Michael Jackson**\
+`Una nueva película biográfica es el intento más reciente de una campaña de rehabilitación póstuma —y lucrativa— del patrimonio de Michael Jackson.`\
+https://www.nytimes.com/es/2026/04/17/espanol/cultura/michael-jackson-pelicula.html
+
+**A Week of Scandal, Reckoning and Resignations in Congress**\
+`Following several allegations, including serious sexual misconduct claims, two members of Congress resigned.`\
+https://www.nytimes.com/2026/04/17/podcasts/the-daily/swalwell-congress-resignations-misconduct.html
+
+**What to Know About the Israel-Lebanon Cease-Fire, and R.F.K. Jr.’s Shifting Tone on Vaccines**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/04/17/podcasts/the-headlines/israel-lebanon-cease-fire-rfk-jr-vaccines-heelys.html
+
+**Connections Companion No. 1,042**\
+`Scroll down for hints and conversation about the puzzle for Saturday, April 18, 2026`\
+https://www.nytimes.com/2026/04/17/crosswords/connections-companion-1042.html
+
+**Strands Sidekick No. 776**\
+`Scroll down for hints and conversation about the puzzle for Saturday, April 18, 2026.`\
+https://www.nytimes.com/2026/04/17/crosswords/strands-sidekick-776.html
+
+**Wordle Review No. 1,764**\
+`Scroll down for hints and conversation about the puzzle for Saturday, April 18, 2026.`\
+https://www.nytimes.com/2026/04/17/crosswords/wordle-review-1764.html
+
 **After a Week of Tornadoes and Floods, Friday May Bring the Strongest Storms Yet**\
 `The Midwest has faced day after day of weather warnings this week. More are expected on Friday.`\
 https://www.nytimes.com/2026/04/17/weather/kansas-missouri-iowa-wisconsin-storms-forecast.html

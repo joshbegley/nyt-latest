@@ -1,3 +1,27 @@
+**El ascenso, la caída y el resurgimiento de Michael Jackson**\
+`Una nueva película biográfica es el intento más reciente de una campaña de rehabilitación póstuma —y lucrativa— del patrimonio de Michael Jackson.`\
+https://www.nytimes.com/es/2026/04/17/espanol/cultura/michael-jackson-pelicula.html
+
+**A Week of Scandal, Reckoning and Resignations in Congress**\
+`Following several allegations, including serious sexual misconduct claims, two members of Congress resigned.`\
+https://www.nytimes.com/2026/04/17/podcasts/the-daily/swalwell-congress-resignations-misconduct.html
+
+**What to Know About the Israel-Lebanon Cease-Fire, and R.F.K. Jr.’s Shifting Tone on Vaccines**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/04/17/podcasts/the-headlines/israel-lebanon-cease-fire-rfk-jr-vaccines-heelys.html
+
+**Connections Companion No. 1,042**\
+`Scroll down for hints and conversation about the puzzle for Saturday, April 18, 2026`\
+https://www.nytimes.com/2026/04/17/crosswords/connections-companion-1042.html
+
+**Strands Sidekick No. 776**\
+`Scroll down for hints and conversation about the puzzle for Saturday, April 18, 2026.`\
+https://www.nytimes.com/2026/04/17/crosswords/strands-sidekick-776.html
+
+**Wordle Review No. 1,764**\
+`Scroll down for hints and conversation about the puzzle for Saturday, April 18, 2026.`\
+https://www.nytimes.com/2026/04/17/crosswords/wordle-review-1764.html
+
 **After a Week of Tornadoes and Floods, Friday May Bring the Strongest Storms Yet**\
 `The Midwest has faced day after day of weather warnings this week. More are expected on Friday.`\
 https://www.nytimes.com/2026/04/17/weather/kansas-missouri-iowa-wisconsin-storms-forecast.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/04/17/style/coachella-bob-baker-puppet-theater.html
 **Orban Lost. But Populism Is Very Much Alive.**\
 `Critics of populists need to do more than thrive off the missteps of their opponents.`\
 https://www.nytimes.com/2026/04/17/opinion/populism-orban-trump.html
-
-**New Treatment Lets 3 Transplant Patients Halt Anti-Rejection Drugs**\
-`Researchers at the University of Pittsburgh gave transplant recipients certain immune cells from their organ donors. It didn’t always work.`\
-https://www.nytimes.com/2026/04/17/health/liver-transplants-antirejection-drugs.html
-
-**¿Cómo puedo quitar las asperezas de mis pies?**\
-`Las callosidades en los pies pueden llegar a doler o agrietarse, pero prevenirlas es sencillo. Aquí te dejamos algunos consejos de los expertos.`\
-https://www.nytimes.com/es/2026/04/17/espanol/estilos-de-vida/eliminar-callos.html
-
-**Designing for a Pop Star (Who Happens to Be Anne Hathaway)**\
-`A costume designer and a couturier teamed up to create ethereal looks for Ms. Hathaway’s titular pop star in the new film “Mother Mary.”`\
-https://www.nytimes.com/2026/04/17/style/mother-mary-costumes-iris-van-herpen.html
-
-**Five Free Movies to Stream Now**\
-`This month’s picks make up a quintet of paranoia that speaks to the ethos of unease and dread endemic to the modern moment`\
-https://www.nytimes.com/2026/04/17/arts/five-free-movies-to-stream-now.html
-
-**Other Colleges Have Frat Houses. This One Has a Cookie House.**\
-`For nearly 80 years, Carleton College in Minnesota has kept a place where students and others can come, bake and share. After a recent renovation, we checked in.`\
-https://www.nytimes.com/2026/04/17/dining/carleton-college-minnesota-cookie-house.html
-
-**Why Jeff Bezos’ Tax Rate Is Lower Than Yours**\
-`The tax expert Ray Madoff explains why the American tax system is broken, and how to make it fairer.`\
-https://www.nytimes.com/video/opinion/100000010839386/why-jeff-bezos-tax-rate-is-lower-than-yours.html
 
