@@ -1,3 +1,35 @@
+**Para Pedro Sánchez, la disputa con Donald Trump ha sido un salvavidas político**\
+`Para los políticos de izquierda en el mundo, el mandatario español es un héroe por enfrentarse al presidente de EE. UU. En España, la confrontación con Trump es vista como un rescate de los desafíos internos.`\
+https://www.nytimes.com/es/2026/04/18/espanol/mundo/espana-pedro-sanchez-trump.html
+
+**In Angola, Pope Faces the Legacy of Colonialism**\
+`His visit includes a trip to a shrine where enslaved Africans were baptized before being forced into the treacherous voyage across the Atlantic Ocean.`\
+https://www.nytimes.com/2026/04/18/world/africa/pope-leo-slavery-africa-angola.html
+
+**Why Iran’s ‘Mosquito Fleet’ Remains a Potent Threat in the Strait of Hormuz**\
+`Separate from the regular Iranian Navy, with boats that often go more than 115 miles per hour, it’s what a retired U.S. official calls a “disruptive force.”`\
+https://www.nytimes.com/2026/04/18/world/middleeast/iran-irgc-navy-strait-of-hormuz.html
+
+**How a Fight With Trump Threw Spain’s Leader a Political Lifeline**\
+`To leftists abroad, Prime Minister Pedro Sánchez of Spain is a hero for standing up to President Trump. At home, Mr. Trump is seen as Mr. Sánchez’s political savior from thorny domestic challenges.`\
+https://www.nytimes.com/2026/04/18/world/europe/pedro-sanchez-donald-trump-lifeline.html
+
+**How Trump Helped Pope Leo Find His Voice**\
+`After his election last year, Leo XIV developed a reputation as a mild-mannered mediator. President Trump’s attacks have made him more combative.`\
+https://www.nytimes.com/2026/04/18/world/europe/trump-pope-leo-iran.html
+
+**Corrections: April 19, 2026**\
+`Corrections that appeared in print on Sunday, April 19, 2026.`\
+https://www.nytimes.com/2026/04/18/pageoneplus/corrections-april-19-2026.html
+
+**Corrections: April 18, 2026**\
+`Corrections that appeared in print on Saturday, April 18, 2026.`\
+https://www.nytimes.com/2026/04/18/pageoneplus/corrections-april-18-2026.html
+
+**Quote of the Day: Luke Tennie Stirs the Pot**\
+`Quotation of the Day for Saturday, April 18, 2026.`\
+https://www.nytimes.com/2026/04/17/pageoneplus/quote-of-the-day-luke-tennie-stirs-the-pot.html
+
 **Federal Court Temporarily Freezes Nexstar’s Merger With Tegna**\
 `The judge said the two television companies could not combine operations while an antitrust lawsuit proceeded. Nexstar said its deal was already done.`\
 https://www.nytimes.com/2026/04/17/business/media/nexstar-tegna-merger-freeze.html
