@@ -1,3 +1,7 @@
+**Pope Leo Says News Outlets Misunderstood Recent Remarks as Trump Criticism**\
+`Pope Leo XIV said that news outlets misinterpreted his recent remarks as criticism of President Trump. The pontiff has called for an end to the violence in the Middle East but told reporters on Saturday he had no interest in debating the president.`\
+https://www.nytimes.com/video/world/africa/100000010849760/pope-news-media-trump-africa.html
+
 **Mamdani Meets With Obama at Bronx Child Care Center**\
 `The meeting on Saturday, the men’s first public appearance together, showcased a critical part of Mayor Zohran Mamdani’s agenda: universal child care.`\
 https://www.nytimes.com/2026/04/18/nyregion/mamdani-obama-meeting-bronx-child-care.html
