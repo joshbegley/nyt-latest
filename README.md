@@ -1,3 +1,7 @@
+**‘Wait Just a Sec’**\
+`Jesse Cohn delivers a coldblooded killer of a Saturday puzzle.`\
+https://www.nytimes.com/2026/04/17/crosswords/daily-puzzle-2026-04-18.html
+
 **Trump Will Participate in a Marathon Bible Reading**\
 `He will read a passage from the Old Testament that his Christian supporters cite as a call to national repentance and divine blessing.`\
 https://www.nytimes.com/2026/04/17/us/trump-bible.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/17/climate/how-pacific-ocean-water-could-help-th
 **Sazerac Prepares $15 Billion Cash Offer for Maker of Jack Daniel’s**\
 `The Kentucky spirits company’s bid for Brown-Forman comes as the industry is being buffeted by a decline in alcohol consumption.`\
 https://www.nytimes.com/2026/04/17/business/sazerac-brown-forman-jack-daniels.html
-
-**F.B.I. Launches Manhunt for Youth Volleyball Coach Accused of Sex Abuse**\
-`The bureau has informed high schools, colleges and volleyball clubs in the New York City area that the coach, Edgar Lazaro Castillo, is being investigated in connection with sexual assault.`\
-https://www.nytimes.com/2026/04/17/nyregion/edgar-lazaro-castillo-volleyball-manhunt.html
 
