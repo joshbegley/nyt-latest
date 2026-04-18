@@ -1,3 +1,15 @@
+**Finding a New Approach to Displaying a Museum Collection**\
+`At the Chazen Museum of Art in Wisconsin, each gallery will now have a single “focus object,” with “a constellation of other artworks” helping to draw out particular themes.`\
+https://www.nytimes.com/2026/04/18/arts/design/museums-chazen-wisconsin-makeover.html
+
+**Man Charged in Lego Theft Scheme of Replacing Pieces With Pasta, Police Say**\
+`A California man was charged with grand theft after the police said he reaped about $34,000 in what an official called an “off the charts” pasta-and-switch scheme involving Lego kits.`\
+https://www.nytimes.com/2026/04/18/us/lego-theft-pasta-california.html
+
+**After the Heists: Securing Museums Without Closing Them Off**\
+`The bold robbery at the Louvre shocked the world, but all museums face the challenge of protecting art and historical treasures.`\
+https://www.nytimes.com/2026/04/18/arts/design/museums-security.html
+
 **Pope Leo Says News Outlets Misunderstood Recent Remarks as Trump Criticism**\
 `Pope Leo XIV said that news outlets misinterpreted his recent remarks as criticism of President Trump. The pontiff has called for an end to the violence in the Middle East but told reporters on Saturday he had no interest in debating the president.`\
 https://www.nytimes.com/video/world/africa/100000010849760/pope-news-media-trump-africa.html
