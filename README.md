@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/18/world/iran-us-war-trump-hormuz/heres-the-latest
+
 **Para Pedro Sánchez, la disputa con Donald Trump ha sido un salvavidas político**\
 `Para los políticos de izquierda en el mundo, el mandatario español es un héroe por enfrentarse al presidente de EE. UU. En España, la confrontación con Trump es vista como un rescate de los desafíos internos.`\
 https://www.nytimes.com/es/2026/04/18/espanol/mundo/espana-pedro-sanchez-trump.html
@@ -6,13 +10,13 @@ https://www.nytimes.com/es/2026/04/18/espanol/mundo/espana-pedro-sanchez-trump.h
 `His visit includes a trip to a shrine where enslaved Africans were baptized before being forced into the treacherous voyage across the Atlantic Ocean.`\
 https://www.nytimes.com/2026/04/18/world/africa/pope-leo-slavery-africa-angola.html
 
-**Why Iran’s ‘Mosquito Fleet’ Remains a Potent Threat in the Strait of Hormuz**\
-`Separate from the regular Iranian Navy, with boats that often go more than 115 miles per hour, it’s what a retired U.S. official calls a “disruptive force.”`\
-https://www.nytimes.com/2026/04/18/world/middleeast/iran-irgc-navy-strait-of-hormuz.html
-
 **How a Fight With Trump Threw Spain’s Leader a Political Lifeline**\
 `To leftists abroad, Prime Minister Pedro Sánchez of Spain is a hero for standing up to President Trump. At home, Mr. Trump is seen as Mr. Sánchez’s political savior from thorny domestic challenges.`\
 https://www.nytimes.com/2026/04/18/world/europe/pedro-sanchez-donald-trump-lifeline.html
+
+**Why Iran’s ‘Mosquito Fleet’ Remains a Potent Threat in the Strait of Hormuz**\
+`Separate from the regular Iranian Navy, with boats that often go more than 115 miles per hour, it’s what a retired U.S. official calls a “disruptive force.”`\
+https://www.nytimes.com/2026/04/18/world/middleeast/iran-irgc-navy-strait-of-hormuz.html
 
 **How Trump Helped Pope Leo Find His Voice**\
 `After his election last year, Leo XIV developed a reputation as a mild-mannered mediator. President Trump’s attacks have made him more combative.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/17/us/politics/vaccines-kennedy-cdc.html
 **Displaced Family Returns Home Following Truce Between Israel and Lebanon**\
 `Ghia Hajo, 25, returned to her home in Tyre, a city in southern Lebanon that Israel has bombarded with strikes, following the announcement of a 10-day cease-fire.`\
 https://www.nytimes.com/video/world/middleeast/100000010847401/lebanon-return-home-cease-fire.html
-
-**Tornadoes Reported Across the Midwest as Powerful Storms Slam the Region**\
-`One reported tornado downed trees and damaged cars in Lena, Ill., an official said.`\
-https://www.nytimes.com/2026/04/17/weather/tornadoes-lena-illinois-missouri-kansas-forecast.html
 
