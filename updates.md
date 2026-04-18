@@ -1,3 +1,7 @@
+**Gunman Kills at Least 6 in Kyiv, Taking Hostages in Grocery**\
+`It was the deadliest mass shooting in Ukraine in years, where firearms have proliferated since the war with Russia began.`\
+https://www.nytimes.com/2026/04/18/world/europe/kyiv-ukraine-mass-shooting-hostages.html
+
 **U.S. Officials Visited Havana to Lay Out Proposals for Cuban Reforms**\
 `The delegation told Cuba’s leadership that it had only a narrow window of time to make the economic and political changes demanded by the Trump administration.`\
 https://www.nytimes.com/2026/04/18/world/americas/us-officials-cuba-trump.html
