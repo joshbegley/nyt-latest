@@ -1,3 +1,7 @@
+**Funcionarios de EE. UU. viajaron a La Habana para discutir reformas en Cuba**\
+`La delegación les dijo a los líderes de Cuba que solo tenían un estrecho margen de tiempo para realizar los cambios económicos y políticos exigidos por el gobierno de Trump.`\
+https://www.nytimes.com/es/2026/04/18/espanol/america-latina/visita-funcionarios-eeuu-cuba-cambios.html
+
 **Nuclear Fusion**\
 `Michael Lieberman brings us a Sunday puzzle with some things different (and some things the same).`\
 https://www.nytimes.com/2026/04/18/crosswords/daily-puzzle-2026-04-19.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/18/arts/design/paul-waldman-dead.html
 **A Big Beautiful Chopped Salad**\
 `All the hits are here: salty bacon, creamy avocado, funky blue cheese, sweet tomato, crisp romaine.`\
 https://www.nytimes.com/2026/04/18/dining/a-big-beautiful-chopped-salad.html
-
-**More Displaced Lebanese Head Home as Cease-Fire Is Tested**\
-`The truce appeared to mostly hold even as Israel said it had carried out strikes on what it called “terrorists” approaching its forces in southern Lebanon. Separately, a U.N. peacekeeper was killed.`\
-https://www.nytimes.com/2026/04/18/world/middleeast/lebanon-israel-cease-fire-hezbollah-un.html
 
