@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/04/18/opinion/orban-liberals-lessons.html
 `A higher authority finally tells Trump he’s no messiah.`\
 https://www.nytimes.com/2026/04/18/opinion/pope-trump-hegseth-iran.html
 
-**From Hungary to the Pope, the Right’s Very Bad Week**\
+**JD Vance’s Very Bad Week**\
 `What recent events in Europe can tell us about the future of Trumpism.`\
 https://www.nytimes.com/2026/04/18/opinion/hungary-election-orban-loses-trump-maga.html
 

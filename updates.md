@@ -1,3 +1,7 @@
+**JD Vance’s Very Bad Week**\
+`What recent events in Europe can tell us about the future of Trumpism.`\
+https://www.nytimes.com/2026/04/18/opinion/hungary-election-orban-loses-trump-maga.html
+
 **Corporate Profits Are at Record Highs. These 4 Factors Could Sink Them.**\
 `Experts have different theories about what’s driving steep gains. But many agree the window for growth is shrinking.`\
 https://www.nytimes.com/2026/04/18/business/dealbook/corporate-profits-record.html
