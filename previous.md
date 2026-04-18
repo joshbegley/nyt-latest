@@ -1,3 +1,7 @@
+**U.S. Officials Visited Havana to Lay Out Proposals for Cuban Reforms**\
+`The delegation told Cuba’s leadership that it had only a narrow window of time to make the economic and political changes demanded by the Trump administration.`\
+https://www.nytimes.com/2026/04/18/world/americas/us-officials-cuba-trump.html
+
 **Mamdani Meets With Obama at Bronx Child Care Center**\
 `It was the leaders’ first public appearance together since Mayor Zohran Mamdani’s meteoric rise. Former President Barack Obama called Mr. Mamdani in November shortly before his victory.`\
 https://www.nytimes.com/2026/04/18/nyregion/mamdani-obama-meeting-bronx-child-care.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/18/dining/three-perfect-and-riffable-brownie-rec
 **In Trump’s Orbit, Women Aren’t the Only Ones Concerned About Their Looks**\
 `In Trump world, the male ego is often evident — and their appearance scrutinized — under a president’s gaze.`\
 https://www.nytimes.com/2026/04/18/style/trump-men-appearance.html
-
-**Corporate Profits Are at Record Highs. These 4 Factors Could Sink Them.**\
-`Experts have different theories about what’s driving steep gains. But many agree the window for growth is shrinking.`\
-https://www.nytimes.com/2026/04/18/business/dealbook/corporate-profits-record.html
 
