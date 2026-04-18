@@ -1,3 +1,27 @@
+**My Husband’s Illness Has Me Feeling Trapped. Do I Have to Stay?**\
+`I don’t feel morally that I could leave. But I have healthy years ahead and I wish to enjoy what’s left of my life.`\
+https://www.nytimes.com/2026/04/18/magazine/husband-illness-trapped-ethics.html
+
+**Connections Companion No. 1,043**\
+`Scroll down for hints and conversation about the puzzle for Sunday, April 19, 2026.`\
+https://www.nytimes.com/2026/04/18/crosswords/connections-companion-1043.html
+
+**Strands Sidekick No. 777**\
+`Scroll down for hints and conversation about the puzzle for Sunday, April 19, 2026.`\
+https://www.nytimes.com/2026/04/18/crosswords/strands-sidekick-777.html
+
+**Wordle Review No. 1,765**\
+`Scroll down for hints and conversation about the puzzle for Sunday, April 19, 2026.`\
+https://www.nytimes.com/2026/04/18/crosswords/wordle-review-1765.html
+
+**Carney’s Liberal Majority Reshapes Fortunes to the Left and the Right**\
+`Mark Carney’s brand of centrist politics and his invitation to floor crossers with conservative convictions into the Liberal Party’s ranks have reshaped the country’s political economy.`\
+https://www.nytimes.com/2026/04/18/world/canada/carney-poilievre-lewis-canada-politics.html
+
+**Reopening Strait of Hormuz Would Ease Oil Crisis but Only So Much**\
+`Analysts said energy and shipping companies would be reluctant to fully restore operations until they were confident that hostilities were over.`\
+https://www.nytimes.com/2026/04/18/business/energy-environment/starit-hormuz-oil-natural-gas-supplies-prices.html
+
 **Violence Shaped Charlize Theron. It Doesn’t Define Her.**\
 `The Oscar-winning actress on pain, healing and becoming an action hero.`\
 https://www.nytimes.com/2026/04/18/magazine/charlize-theron-interview.html

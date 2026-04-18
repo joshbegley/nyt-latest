@@ -1,3 +1,27 @@
+**My Husband’s Illness Has Me Feeling Trapped. Do I Have to Stay?**\
+`I don’t feel morally that I could leave. But I have healthy years ahead and I wish to enjoy what’s left of my life.`\
+https://www.nytimes.com/2026/04/18/magazine/husband-illness-trapped-ethics.html
+
+**Connections Companion No. 1,043**\
+`Scroll down for hints and conversation about the puzzle for Sunday, April 19, 2026.`\
+https://www.nytimes.com/2026/04/18/crosswords/connections-companion-1043.html
+
+**Strands Sidekick No. 777**\
+`Scroll down for hints and conversation about the puzzle for Sunday, April 19, 2026.`\
+https://www.nytimes.com/2026/04/18/crosswords/strands-sidekick-777.html
+
+**Wordle Review No. 1,765**\
+`Scroll down for hints and conversation about the puzzle for Sunday, April 19, 2026.`\
+https://www.nytimes.com/2026/04/18/crosswords/wordle-review-1765.html
+
+**Carney’s Liberal Majority Reshapes Fortunes to the Left and the Right**\
+`Mark Carney’s brand of centrist politics and his invitation to floor crossers with conservative convictions into the Liberal Party’s ranks have reshaped the country’s political economy.`\
+https://www.nytimes.com/2026/04/18/world/canada/carney-poilievre-lewis-canada-politics.html
+
+**Reopening Strait of Hormuz Would Ease Oil Crisis but Only So Much**\
+`Analysts said energy and shipping companies would be reluctant to fully restore operations until they were confident that hostilities were over.`\
+https://www.nytimes.com/2026/04/18/business/energy-environment/starit-hormuz-oil-natural-gas-supplies-prices.html
+
 **Violence Shaped Charlize Theron. It Doesn’t Define Her.**\
 `The Oscar-winning actress on pain, healing and becoming an action hero.`\
 https://www.nytimes.com/2026/04/18/magazine/charlize-theron-interview.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/04/18/health/community-health-care-workers.html
 **Read the Supreme Court’s Shadow Papers**\
 `Read 16 pages of internal deliberations from the Supreme Court that the New York Times has obtained, bringing the origins of the court’s “shadow docket” into the light.`\
 https://www.nytimes.com/interactive/2026/04/18/us/politics/supreme-court-shadow-docket-papers.html
-
-**A Chicago Man’s 10,000 Concerts on Tape Are Becoming Digital History**\
-`From the mid-1980s until just a few years ago, Aadam Jacobs recorded thousands of club shows, including an early Nirvana performance. Volunteers are adding them to an online archive.`\
-https://www.nytimes.com/2026/04/18/arts/music/10000-concerts-tape-recordings-chicago.html
-
-**Who Is the New Leader of Hungary?**\
-`Our reporter Andrew Higgins describes why Hungary’s voters chose Peter Magyar over Viktor Orban in a landslide, ending Orban’s 16 years in power.`\
-https://www.nytimes.com/video/world/europe/100000010842261/who-is-the-new-leader-of-hungary.html
-
-**Can Your Co-op Make You Carry an ID Card?**\
-`Co-op boards are responsible for protecting the building and its residents. But is checking IDs going too far?`\
-https://www.nytimes.com/2026/04/18/realestate/can-your-co-op-make-you-carry-an-id-card.html
-
-**The Doctor Will Seek Your Vote Now**\
-`Dozens of Democratic doctors are running for office in the midterms, including some spurred by opposition to Robert F. Kennedy Jr. and his anti-vaccine stance.`\
-https://www.nytimes.com/2026/04/18/us/politics/democratic-doctors-running-for-congress.html
-
-**Takeaways From the Supreme Court’s Shadow Papers**\
-`Confidential memos written by the justices shed light on how they came to issue emergency orders in cases about the scope of presidential power.`\
-https://www.nytimes.com/2026/04/18/us/politics/supreme-court-shadow-docket-takeaways.html
-
-**The Origins of the Supreme Court’s Shadow Docket**\
-`Secret memos obtained by The New York Times illuminate the origins of the Supreme Court’s shadow docket. Our reporter Jodi Kantor explains what these documents reveal about the court.`\
-https://www.nytimes.com/video/us/100000010835178/the-origins-of-the-supreme-courts-shadow-docket.html
 
