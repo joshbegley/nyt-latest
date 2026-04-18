@@ -1,3 +1,7 @@
+**With Vaccines Widely Popular, Kennedy Changes Tone, but Maybe Not His Plans**\
+`Several moves suggest Health Secretary Robert F. Kennedy Jr. could revive his campaign to question the safety and effectiveness of the shots after the midterm elections.`\
+https://www.nytimes.com/2026/04/17/us/politics/vaccines-kennedy-cdc.html
+
 **Our Tax System Is Bad for America**\
 `Our current tax system isn’t fair, and that is bad for social solidarity, argues the Opinion columnist Ezra Klein. The tax expert Ray Madoff joins him to discuss how a fairer system is a moral necessity.`\
 https://www.nytimes.com/video/opinion/100000010839394/our-tax-system-is-bad-for-america.html
