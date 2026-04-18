@@ -1,3 +1,7 @@
+**In Trump’s Orbit, Women Aren’t the Only Ones Concerned About Their Looks**\
+`Women’s appearances in the administration have long been critiqued, but in Trump world, men are also not immune to the gaze, especially from their own boss.`\
+https://www.nytimes.com/2026/04/18/style/in-trumps-orbit-women-arent-the-only-ones-concerned-about-their-looks.html
+
 **Corporate Profits Are at Record Highs. These 4 Factors Could Sink Them.**\
 `Experts have different theories about what’s driving steep gains. But many agree the window for growth is shrinking.`\
 https://www.nytimes.com/2026/04/18/business/dealbook/corporate-profits-record.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/18/espanol/america-latina/venezuela-maduro-de
 **Laila Gohar Thinks Beauty Can Save Us**\
 `The artist and designer discusses world building, enchantment and wonder.`\
 https://www.nytimes.com/2026/04/18/briefing/laila-gohar-thinks-beauty-can-save-us.html
-
-**El extraño que me invitó a mi propia cama**\
-`La experiencia era más comedia romántica que película de terror.`\
-https://www.nytimes.com/es/2026/04/18/espanol/estilos-de-vida/modern-love-desconocido-cama.html
 

@@ -1,3 +1,7 @@
+**In Trump’s Orbit, Women Aren’t the Only Ones Concerned About Their Looks**\
+`Women’s appearances in the administration have long been critiqued, but in Trump world, men are also not immune to the gaze, especially from their own boss.`\
+https://www.nytimes.com/2026/04/18/style/in-trumps-orbit-women-arent-the-only-ones-concerned-about-their-looks.html
+
 **JD Vance’s Very Bad Week**\
 `What recent events in Europe can tell us about the future of Trumpism.`\
 https://www.nytimes.com/2026/04/18/opinion/hungary-election-orban-loses-trump-maga.html
