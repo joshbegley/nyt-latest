@@ -1,3 +1,7 @@
+**Mamdani and Obama Lead Preschool Singalong to Promote Free Child Care**\
+`In their fist public appearance together, Mayor Zohran Mamdani and former President Barack Obama met up for some joking and singing on Saturday at a Bronx child care center.`\
+https://www.nytimes.com/2026/04/18/nyregion/mamdani-obama-meeting-bronx-child-care.html
+
 **Universal Genève Returns to the Watch World With New Models**\
 `The brand has undergone a two-year rebuilding after it was acquired by Breitling in 2023.`\
 https://www.nytimes.com/2026/04/18/fashion/universal-geneve-watches.html

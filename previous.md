@@ -62,8 +62,8 @@ https://www.nytimes.com/video/world/africa/100000010849760/pope-news-media-trump
 `The delegation told Cuba’s leadership that it had only a narrow window of time to make the economic and political changes demanded by the Trump administration.`\
 https://www.nytimes.com/2026/04/18/world/americas/us-officials-cuba-trump.html
 
-**Mamdani Meets With Obama at Bronx Child Care Center**\
-`The meeting on Saturday, the men’s first public appearance together, showcased a critical part of Mayor Zohran Mamdani’s agenda: universal child care.`\
+**Mamdani and Obama Lead Preschool Singalong to Promote Free Child Care**\
+`In their fist public appearance together, Mayor Zohran Mamdani and former President Barack Obama met up for some joking and singing on Saturday at a Bronx child care center.`\
 https://www.nytimes.com/2026/04/18/nyregion/mamdani-obama-meeting-bronx-child-care.html
 
 **Hollywood Talent Giant Draws Suitors Amid Epstein Fallout**\
