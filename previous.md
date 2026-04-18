@@ -1,3 +1,11 @@
+**Universal Genève Returns to the Watch World With New Models**\
+`The brand has undergone a two-year rebuilding after it was acquired by Breitling in 2023.`\
+https://www.nytimes.com/2026/04/18/fashion/universal-geneve-watches.html
+
+**Watches and Wonders Geneva: A Week in Time**\
+`A look at what’s new at the Geneva fair.`\
+https://www.nytimes.com/2026/04/18/fashion/watches-wonders-geneva.html
+
 **At Tiffany, Watch Design Inspired by Its Own Jewelry Icons**\
 `The house has translated its paillonné enamel bangle, once favored by Jacqueline Kennedy Onassis, into a limited-edition timepiece.`\
 https://www.nytimes.com/2026/04/18/fashion/tiffany-watch-jackie-bracelet.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/es/2026/04/18/espanol/mundo/papa-leon-donald-trump.html
 **How to Give Yourself a Sun-Kissed Glow**\
 `The singer Victoria Monét, the former Miss World Lisa Hanna and the makeup artist Sir John share their body makeup tips.`\
 https://www.nytimes.com/2026/04/18/t-magazine/body-makeup-glow.html
-
-**Gunman Kills at Least 6 in Kyiv, Taking Hostages in Grocery**\
-`It was the deadliest mass shooting in Ukraine in years, where firearms have proliferated since the war with Russia began.`\
-https://www.nytimes.com/2026/04/18/world/europe/kyiv-ukraine-mass-shooting-hostages.html
-
-**Remains Linked to Submerged Car Solve 1958 Mystery of Missing Oregon Family**\
-`The case of the missing Martin family was unsolved until a diver found a car in an Oregon river in 2024. Officials, relying on DNA tests, said Thursday that they had identified the remains of three people.`\
-https://www.nytimes.com/2026/04/18/us/martin-family-missing-identified.html
 

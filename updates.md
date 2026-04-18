@@ -1,3 +1,11 @@
+**Universal Genève Returns to the Watch World With New Models**\
+`The brand has undergone a two-year rebuilding after it was acquired by Breitling in 2023.`\
+https://www.nytimes.com/2026/04/18/fashion/universal-geneve-watches.html
+
+**Watches and Wonders Geneva: A Week in Time**\
+`A look at what’s new at the Geneva fair.`\
+https://www.nytimes.com/2026/04/18/fashion/watches-wonders-geneva.html
+
 **At Tiffany, Watch Design Inspired by Its Own Jewelry Icons**\
 `The house has translated its paillonné enamel bangle, once favored by Jacqueline Kennedy Onassis, into a limited-edition timepiece.`\
 https://www.nytimes.com/2026/04/18/fashion/tiffany-watch-jackie-bracelet.html
