@@ -1,3 +1,7 @@
+**Pope Leo Says News Outlets Misunderstood Recent Remarks as Trump Criticism**\
+`Pope Leo XIV said that news outlets misinterpreted his recent remarks as criticism of President Trump. The pontiff has called for an end to the violence in the Middle East but told reporters on Saturday he had no interest in debating the president.`\
+https://www.nytimes.com/video/world/africa/100000010849760/pope-news-media-trump-africa.html
+
 **U.S. Officials Visited Havana to Lay Out Proposals for Cuban Reforms**\
 `The delegation told Cuba’s leadership that it had only a narrow window of time to make the economic and political changes demanded by the Trump administration.`\
 https://www.nytimes.com/2026/04/18/world/americas/us-officials-cuba-trump.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/18/us/politics/trump-ballroom-appeals-court.html
 **Three Perfect and Riffable Brownie Recipes**\
 `Fudgy, freezer-friendly brownies are easier than cake and vanish just as fast.`\
 https://www.nytimes.com/2026/04/18/dining/three-perfect-and-riffable-brownie-recipes.html
-
-**In Trump’s Orbit, Women Aren’t the Only Ones Concerned About Their Looks**\
-`In Trump world, the male ego is often evident — and their appearance scrutinized — under a president’s gaze.`\
-https://www.nytimes.com/2026/04/18/style/trump-men-appearance.html
 
