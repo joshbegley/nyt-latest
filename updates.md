@@ -1,3 +1,7 @@
+**Funcionarios de EE. UU. viajaron a La Habana para discutir reformas en Cuba**\
+`La delegación les dijo a los líderes de Cuba que solo tenían un estrecho margen de tiempo para realizar los cambios económicos y políticos exigidos por el gobierno de Trump.`\
+https://www.nytimes.com/es/2026/04/18/espanol/america-latina/visita-funcionarios-eeuu-cuba-cambios.html
+
 **Nuclear Fusion**\
 `Michael Lieberman brings us a Sunday puzzle with some things different (and some things the same).`\
 https://www.nytimes.com/2026/04/18/crosswords/daily-puzzle-2026-04-19.html
