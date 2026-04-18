@@ -1,3 +1,11 @@
+**Nuclear Fusion**\
+`Michael Lieberman brings us a Sunday puzzle with some things different (and some things the same).`\
+https://www.nytimes.com/2026/04/18/crosswords/daily-puzzle-2026-04-19.html
+
+**Iran Says the Strait of Hormuz Is Closed Again**\
+`Iran’s Revolutionary Guards said they were closing the Strait of Hormuz until the U.S. blockade was lifted. Two Indian-flagged ships reported being hit as they tried to cross the passage.`\
+https://www.nytimes.com/video/world/middleeast/100000010849733/iran-says-the-strait-of-hormuz-is-closed-again.html
+
 **Finding a New Approach to Displaying a Museum Collection**\
 `At the Chazen Museum of Art in Wisconsin, each gallery will now have a single “focus object,” with “a constellation of other artworks” helping to draw out particular themes.`\
 https://www.nytimes.com/2026/04/18/arts/design/museums-chazen-wisconsin-makeover.html
