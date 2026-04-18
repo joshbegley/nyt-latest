@@ -1,6 +1,6 @@
 **In Trump’s Orbit, Women Aren’t the Only Ones Concerned About Their Looks**\
 `Women’s appearances in the administration have long been critiqued, but in Trump world, men are also not immune to the gaze, especially from their own boss.`\
-https://www.nytimes.com/2026/04/18/style/in-trumps-orbit-women-arent-the-only-ones-concerned-about-their-looks.html
+https://www.nytimes.com/2026/04/18/style/trump-men-appearance.html
 
 **Corporate Profits Are at Record Highs. These 4 Factors Could Sink Them.**\
 `Experts have different theories about what’s driving steep gains. But many agree the window for growth is shrinking.`\
@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/04/18/business/dealbook/corporate-profits-record.ht
 `It will always be saved.`\
 https://www.nytimes.com/2026/04/18/opinion/wall-street-markets-iran-ai.html
 
-**What Liberals Should Learn From the End of Orbanism**\
+**The Four Lessons Liberals Should Consider After Orban’s Defeat**\
 `Four lessons to consider.`\
 https://www.nytimes.com/2026/04/18/opinion/orban-liberals-lessons.html
 
