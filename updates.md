@@ -1,3 +1,15 @@
+**At Tiffany, Watch Design Inspired by Its Own Jewelry Icons**\
+`The house has translated its paillonné enamel bangle, once favored by Jacqueline Kennedy Onassis, into a limited-edition timepiece.`\
+https://www.nytimes.com/2026/04/18/fashion/tiffany-watch-jackie-bracelet.html
+
+**Humans Who Used a Bear Suit to Defraud Car Insurers Are Sentenced to Jail**\
+`The California residents collected more than $141,000 in insurance payouts after staging bear attacks on their luxury cars, state officials said.`\
+https://www.nytimes.com/2026/04/18/us/bear-suit-insurance-fraud-california.html
+
+**Potential 2028 Democrats Audition in Michigan, With a Focus on Trump**\
+`Former Vice President Kamala Harris, Senator Cory Booker of New Jersey and Gov. Andy Beshear of Kentucky spoke at a gathering of party insiders in Detroit, fueling presidential speculation.`\
+https://www.nytimes.com/2026/04/18/us/politics/harris-booker-beshear-2028-president-democrats.html
+
 **These Watches Are Personal, Unique and Made to Keep**\
 `For the ultimate in high-level luxury, buyers are commissioning timepieces that are special enough to be passed down through generations.`\
 https://www.nytimes.com/2026/04/18/fashion/customized-luxury-watches.html

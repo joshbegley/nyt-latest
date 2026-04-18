@@ -1,3 +1,15 @@
+**At Tiffany, Watch Design Inspired by Its Own Jewelry Icons**\
+`The house has translated its paillonné enamel bangle, once favored by Jacqueline Kennedy Onassis, into a limited-edition timepiece.`\
+https://www.nytimes.com/2026/04/18/fashion/tiffany-watch-jackie-bracelet.html
+
+**Humans Who Used a Bear Suit to Defraud Car Insurers Are Sentenced to Jail**\
+`The California residents collected more than $141,000 in insurance payouts after staging bear attacks on their luxury cars, state officials said.`\
+https://www.nytimes.com/2026/04/18/us/bear-suit-insurance-fraud-california.html
+
+**Potential 2028 Democrats Audition in Michigan, With a Focus on Trump**\
+`Former Vice President Kamala Harris, Senator Cory Booker of New Jersey and Gov. Andy Beshear of Kentucky spoke at a gathering of party insiders in Detroit, fueling presidential speculation.`\
+https://www.nytimes.com/2026/04/18/us/politics/harris-booker-beshear-2028-president-democrats.html
+
 **These Watches Are Personal, Unique and Made to Keep**\
 `For the ultimate in high-level luxury, buyers are commissioning timepieces that are special enough to be passed down through generations.`\
 https://www.nytimes.com/2026/04/18/fashion/customized-luxury-watches.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/18/world/europe/kyiv-ukraine-mass-shooting-hosta
 **Remains Linked to Submerged Car Solve 1958 Mystery of Missing Oregon Family**\
 `The case of the missing Martin family was unsolved until a diver found a car in an Oregon river in 2024. Officials, relying on DNA tests, said Thursday that they had identified the remains of three people.`\
 https://www.nytimes.com/2026/04/18/us/martin-family-missing-identified.html
-
-**Ships in Strait of Hormuz Turn Back as 2 Are Said to Be Hit**\
-`The day after Iran declared the vital waterway open, it reversed course, injecting new peril into navigation there.`\
-https://www.nytimes.com/2026/04/18/world/middleeast/iran-tanker-strait-of-hormuz.html
-
-**Six Are Missing After Cargo Ship Is Found Overturned Near Guam**\
-`The ship, the Mariana, was found overturned days after the Coast Guard lost contact with its crew, after a super typhoon struck.`\
-https://www.nytimes.com/2026/04/18/us/super-typhoon-sinklau-coast-guard-search.html
-
-**A Fevered Dance Party for Martha Graham With Ariana DeBose and Padma Lakshmi**\
-`Stars and luminaries honored the dance company’s 100th anniversary with dinner, performances and a champagne toast at the New York Public Library.`\
-https://www.nytimes.com/2026/04/18/style/martha-graham-dance-company-100.html
 
