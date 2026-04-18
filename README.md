@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/04/17/us/politics/republicans-trump-pope-midterms.h
 https://www.nytimes.com/2026/04/17/business/american-airlines-united-merger.html
 
 **With Vaccines Widely Popular, Kennedy Changes Tone, but Maybe Not His Plans**\
-`Several moves suggest Health Secretary Robert F. Kennedy could revive his campaign to question the safety and effectiveness of the shots after the midterm elections.`\
+`Several moves suggest Health Secretary Robert F. Kennedy Jr. could revive his campaign to question the safety and effectiveness of the shots after the midterm elections.`\
 https://www.nytimes.com/2026/04/17/us/politics/vaccines-kennedy-cdc.html
 
 **Displaced Family Returns Home Following Truce Between Israel and Lebanon**\
