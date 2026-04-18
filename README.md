@@ -1,3 +1,11 @@
+**Nuclear Fusion**\
+`Michael Lieberman brings us a Sunday puzzle with some things different (and some things the same).`\
+https://www.nytimes.com/2026/04/18/crosswords/daily-puzzle-2026-04-19.html
+
+**Iran Says the Strait of Hormuz Is Closed Again**\
+`Iran’s Revolutionary Guards said they were closing the Strait of Hormuz until the U.S. blockade was lifted. Two Indian-flagged ships reported being hit as they tried to cross the passage.`\
+https://www.nytimes.com/video/world/middleeast/100000010849733/iran-says-the-strait-of-hormuz-is-closed-again.html
+
 **Finding a New Approach to Displaying a Museum Collection**\
 `At the Chazen Museum of Art in Wisconsin, each gallery will now have a single “focus object,” with “a constellation of other artworks” helping to draw out particular themes.`\
 https://www.nytimes.com/2026/04/18/arts/design/museums-chazen-wisconsin-makeover.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/18/dining/a-big-beautiful-chopped-salad.html
 **More Displaced Lebanese Head Home as Cease-Fire Is Tested**\
 `The truce appeared to mostly hold even as Israel said it had carried out strikes on what it called “terrorists” approaching its forces in southern Lebanon. Separately, a U.N. peacekeeper was killed.`\
 https://www.nytimes.com/2026/04/18/world/middleeast/lebanon-israel-cease-fire-hezbollah-un.html
-
-**Why Your Paycheck Feels Smaller**\
-`Ben Casselman, our chief economics correspondent, explains why wages are not keeping up with inflation and what that means for American workers and the economy.`\
-https://www.nytimes.com/video/business/100000010843347/why-your-paycheck-feels-smaller.html
-
-**How Iran’s Cheap, Low-Tech Drones Have Cost the U.S.**\
-`The United States and its allies have historically prioritized accurate but expensive defense solutions. Drones challenge that math.`\
-https://www.nytimes.com/interactive/2026/04/18/world/middleeast/iran-us-war-drones-cost.html
 
