@@ -1,3 +1,7 @@
+**Trump Will Participate in a Marathon Bible Reading**\
+`He will read a passage from the Old Testament that his Christian supporters cite as a call to national repentance and divine blessing.`\
+https://www.nytimes.com/2026/04/17/us/trump-bible.html
+
 **Our Tax System Is Bad for America**\
 `Our current tax system isn’t fair, and that is bad for social solidarity, argues the Opinion columnist Ezra Klein. The tax expert Ray Madoff joins him to discuss how a fairer system is a moral necessity.`\
 https://www.nytimes.com/video/opinion/100000010839394/our-tax-system-is-bad-for-america.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/17/business/sazerac-brown-forman-jack-daniels.ht
 **F.B.I. Launches Manhunt for Youth Volleyball Coach Accused of Sex Abuse**\
 `The bureau has informed high schools, colleges and volleyball clubs in the New York City area that the coach, Edgar Lazaro Castillo, is being investigated in connection with sexual assault.`\
 https://www.nytimes.com/2026/04/17/nyregion/edgar-lazaro-castillo-volleyball-manhunt.html
-
-**Strait of Hormuz Is Declared ‘Open,’ Boosting Hope for a Deal**\
-`Also, a college with a cookie house. Here’s the latest at the end of Friday.`\
-https://www.nytimes.com/2026/04/17/briefing/the-strait-of-hormuz-college-cookies.html
 

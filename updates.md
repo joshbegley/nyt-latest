@@ -1,3 +1,7 @@
+**Trump Will Participate in a Marathon Bible Reading**\
+`He will read a passage from the Old Testament that his Christian supporters cite as a call to national repentance and divine blessing.`\
+https://www.nytimes.com/2026/04/17/us/trump-bible.html
+
 **With Vaccines Widely Popular, Kennedy Changes Tone, but Maybe Not His Plans**\
 `Several moves suggest Health Secretary Robert F. Kennedy Jr. could revive his campaign to question the safety and effectiveness of the shots after the midterm elections.`\
 https://www.nytimes.com/2026/04/17/us/politics/vaccines-kennedy-cdc.html
