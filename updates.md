@@ -1,3 +1,11 @@
+**Trump Still Hearts McKinley**\
+`The president loves the 19th century. But why?`\
+https://www.nytimes.com/2026/04/18/opinion/trump-pope-vance.html
+
+**In Trump’s Orbit, Women Aren’t the Only Ones Concerned About Their Looks**\
+`In Trump world, the male ego is often evident — and their appearance scrutinized — under a president’s gaze.`\
+https://www.nytimes.com/2026/04/18/style/trump-men-appearance.html
+
 **Paul Waldman, Creator and Curator of Art Museum for Birds, Dies at 89**\
 `A dyslexic teenager, he reinvented himself as a bodybuilder. Then he turned to art, producing transgressive paintings and elaborate birdhouses.`\
 https://www.nytimes.com/2026/04/18/arts/design/paul-waldman-dead.html
