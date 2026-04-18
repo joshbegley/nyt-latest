@@ -14,13 +14,13 @@ https://www.nytimes.com/2026/04/18/opinion/wall-street-markets-iran-ai.html
 `Four lessons to consider.`\
 https://www.nytimes.com/2026/04/18/opinion/orban-liberals-lessons.html
 
-**The Pope Bedevils Trump**\
-`A higher authority finally tells Trump he’s no messiah.`\
-https://www.nytimes.com/2026/04/18/opinion/pope-trump-hegseth-iran.html
-
 **JD Vance’s Very Bad Week**\
 `What recent events in Europe can tell us about the future of Trumpism.`\
 https://www.nytimes.com/2026/04/18/opinion/hungary-election-orban-loses-trump-maga.html
+
+**The Pope Bedevils Trump**\
+`A higher authority finally tells Trump he’s no messiah.`\
+https://www.nytimes.com/2026/04/18/opinion/pope-trump-hegseth-iran.html
 
 **How to Relieve Suffering on the Streets of San Francisco**\
 `Readers respond to a guest essay about the city’s recent efforts to reduce drug use and homelessness.`\
