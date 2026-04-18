@@ -1,3 +1,11 @@
+**Six Are Missing After Cargo Ship Is Found Overturned Near Guam**\
+`The ship, the Mariana, was found overturned days after the Coast Guard lost contact with its crew, after a super typhoon struck.`\
+https://www.nytimes.com/2026/04/18/us/super-typhoon-sinklau-coast-guard-search.html
+
+**A Fevered Dance Party for Martha Graham With Ariana DeBose and Padma Lakshmi**\
+`Stars and luminaries honored the dance company’s 100th anniversary with dinner, performances and a champagne toast at the New York Public Library.`\
+https://www.nytimes.com/2026/04/18/style/martha-graham-dance-company-100.html
+
 **Trump Still Hearts McKinley**\
 `The president loves the 19th century. But why?`\
 https://www.nytimes.com/2026/04/18/opinion/trump-pope-vance.html

@@ -1,3 +1,7 @@
+**Ships in Strait of Hormuz Turn Back as 2 Are Said to Be Hit**\
+`The day after Iran declared the vital waterway open, it reversed course, injecting new peril into navigation there.`\
+https://www.nytimes.com/2026/04/18/world/middleeast/iran-tanker-strait-of-hormuz.html
+
 **Six Are Missing After Cargo Ship Is Found Overturned Near Guam**\
 `The ship, the Mariana, was found overturned days after the Coast Guard lost contact with its crew, after a super typhoon struck.`\
 https://www.nytimes.com/2026/04/18/us/super-typhoon-sinklau-coast-guard-search.html
@@ -70,11 +74,7 @@ https://www.nytimes.com/2026/04/18/opinion/pope-trump-hegseth-iran.html
 `Readers respond to a guest essay about the city’s recent efforts to reduce drug use and homelessness.`\
 https://www.nytimes.com/2026/04/18/opinion/san-francisco-addiction-homeless.html
 
-**You Can Only Get This Beautiful With Time**\
+**My Wife Is 85. She Takes My Breath Away.**\
 `The old ladies that I know have a grace and stature that only long years of hoping and striving — and living — can bestow.`\
 https://www.nytimes.com/2026/04/18/opinion/aging-women-beauty.html
-
-**This War Has Not Gone Putin’s Way**\
-`The war in Iran is taking a huge toll on Russia.`\
-https://www.nytimes.com/2026/04/18/opinion/russia-iran-us-putin-trump-ukraine.html
 
