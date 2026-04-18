@@ -1,3 +1,15 @@
+**El papa dice que los medios malinterpretaron algunos de sus comentarios como críticas a Trump**\
+`El papa León respondió directamente el lunes a un ataque presidencial. Pero desde entonces, dijo, se han malinterpretado algunas de sus declaraciones durante su viaje a África.`\
+https://www.nytimes.com/es/2026/04/18/espanol/mundo/papa-leon-donald-trump.html
+
+**How to Give Yourself a Sun-Kissed Glow**\
+`The singer Victoria Monét, the former Miss World Lisa Hanna and the makeup artist Sir John share their body makeup tips.`\
+https://www.nytimes.com/2026/04/18/t-magazine/body-makeup-glow.html
+
+**Trump Is Fixated on 1896**\
+`The president loves the 19th century. But why?`\
+https://www.nytimes.com/2026/04/18/opinion/trump-pope-vance.html
+
 **Gunman Kills at Least 6 in Kyiv, Taking Hostages in Grocery**\
 `The attacker fatally shot four people on the street before barricading himself inside a nearby supermarket, a prosecutor said.`\
 https://www.nytimes.com/2026/04/18/world/europe/kyiv-ukraine-mass-shooting-hostages.html

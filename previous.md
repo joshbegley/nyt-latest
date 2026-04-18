@@ -1,3 +1,11 @@
+**El papa dice que los medios malinterpretaron algunos de sus comentarios como críticas a Trump**\
+`El papa León respondió directamente el lunes a un ataque presidencial. Pero desde entonces, dijo, se han malinterpretado algunas de sus declaraciones durante su viaje a África.`\
+https://www.nytimes.com/es/2026/04/18/espanol/mundo/papa-leon-donald-trump.html
+
+**How to Give Yourself a Sun-Kissed Glow**\
+`The singer Victoria Monét, the former Miss World Lisa Hanna and the makeup artist Sir John share their body makeup tips.`\
+https://www.nytimes.com/2026/04/18/t-magazine/body-makeup-glow.html
+
 **Gunman Kills at Least 6 in Kyiv, Taking Hostages in Grocery**\
 `The attacker fatally shot four people on the street before barricading himself inside a nearby supermarket, a prosecutor said.`\
 https://www.nytimes.com/2026/04/18/world/europe/kyiv-ukraine-mass-shooting-hostages.html
@@ -18,7 +26,7 @@ https://www.nytimes.com/2026/04/18/us/super-typhoon-sinklau-coast-guard-search.h
 `Stars and luminaries honored the dance company’s 100th anniversary with dinner, performances and a champagne toast at the New York Public Library.`\
 https://www.nytimes.com/2026/04/18/style/martha-graham-dance-company-100.html
 
-**Trump Still Hearts McKinley**\
+**Trump Is Fixated on 1896**\
 `The president loves the 19th century. But why?`\
 https://www.nytimes.com/2026/04/18/opinion/trump-pope-vance.html
 
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/18/opinion/wall-street-markets-iran-ai.html
 **The Four Lessons Liberals Should Consider After Orban’s Defeat**\
 `The lesson for Republicans comes too late, but liberals can still learn from the end of Orbanism.`\
 https://www.nytimes.com/2026/04/18/opinion/orban-liberals-lessons.html
-
-**JD Vance’s Very Bad Week**\
-`What recent events in Europe can tell us about the future of Trumpism.`\
-https://www.nytimes.com/2026/04/18/opinion/hungary-election-orban-loses-trump-maga.html
-
-**The Pope Bedevils Trump**\
-`A higher authority finally tells Trump he’s no messiah.`\
-https://www.nytimes.com/2026/04/18/opinion/pope-trump-hegseth-iran.html
 
