@@ -1,3 +1,7 @@
+**Three Perfect and Riffable Brownie Recipes**\
+`Fudgy, freezer-friendly brownies are easier than cake and vanish just as fast.`\
+https://www.nytimes.com/2026/04/18/dining/three-perfect-and-riffable-brownie-recipes.html
+
 **In Trump’s Orbit, Women Aren’t the Only Ones Concerned About Their Looks**\
 `Women’s appearances in the administration have long been critiqued, but in Trump world, men are also not immune to the gaze, especially from their own boss.`\
 https://www.nytimes.com/2026/04/18/style/trump-men-appearance.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/18/magazine/charlize-theron-interview.html
 **Nicolás Maduro está fuera y la purga ha comenzado**\
 `Delcy Rodríguez, sucesora del líder autoritario de Venezuela capturado en enero, está desmantelando a la camarilla que lo mantuvo en el poder.`\
 https://www.nytimes.com/es/2026/04/18/espanol/america-latina/venezuela-maduro-delcy-chavismo.html
-
-**Laila Gohar Thinks Beauty Can Save Us**\
-`The artist and designer discusses world building, enchantment and wonder.`\
-https://www.nytimes.com/2026/04/18/briefing/laila-gohar-thinks-beauty-can-save-us.html
 

@@ -1,3 +1,7 @@
+**Three Perfect and Riffable Brownie Recipes**\
+`Fudgy, freezer-friendly brownies are easier than cake and vanish just as fast.`\
+https://www.nytimes.com/2026/04/18/dining/three-perfect-and-riffable-brownie-recipes.html
+
 **In Trump’s Orbit, Women Aren’t the Only Ones Concerned About Their Looks**\
 `Women’s appearances in the administration have long been critiqued, but in Trump world, men are also not immune to the gaze, especially from their own boss.`\
 https://www.nytimes.com/2026/04/18/style/trump-men-appearance.html
