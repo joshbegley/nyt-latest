@@ -1,3 +1,11 @@
+**Violence Shaped Charlize Theron. It Doesn’t Define Her.**\
+`The Oscar-winning actress on pain, healing and becoming an action hero.`\
+https://www.nytimes.com/2026/04/18/magazine/charlize-theron-interview.html
+
+**Nicolás Maduro está fuera y la purga ha comenzado**\
+`Delcy Rodríguez, sucesora del líder autoritario de Venezuela capturado en enero, está desmantelando a la camarilla que lo mantuvo en el poder.`\
+https://www.nytimes.com/es/2026/04/18/espanol/america-latina/venezuela-maduro-delcy-chavismo.html
+
 **Laila Gohar Thinks Beauty Can Save Us**\
 `The artist and designer discusses world building, enchantment and wonder.`\
 https://www.nytimes.com/2026/04/18/briefing/laila-gohar-thinks-beauty-can-save-us.html

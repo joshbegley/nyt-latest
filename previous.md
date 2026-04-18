@@ -1,3 +1,11 @@
+**Violence Shaped Charlize Theron. It Doesn’t Define Her.**\
+`The Oscar-winning actress on pain, healing and becoming an action hero.`\
+https://www.nytimes.com/2026/04/18/magazine/charlize-theron-interview.html
+
+**Nicolás Maduro está fuera y la purga ha comenzado**\
+`Delcy Rodríguez, sucesora del líder autoritario de Venezuela capturado en enero, está desmantelando a la camarilla que lo mantuvo en el poder.`\
+https://www.nytimes.com/es/2026/04/18/espanol/america-latina/venezuela-maduro-delcy-chavismo.html
+
 **Laila Gohar Thinks Beauty Can Save Us**\
 `The artist and designer discusses world building, enchantment and wonder.`\
 https://www.nytimes.com/2026/04/18/briefing/laila-gohar-thinks-beauty-can-save-us.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/18/us/politics/supreme-court-shadow-docket-takea
 **The Origins of the Supreme Court’s Shadow Docket**\
 `Secret memos obtained by The New York Times illuminate the origins of the Supreme Court’s shadow docket. Our reporter Jodi Kantor explains what these documents reveal about the court.`\
 https://www.nytimes.com/video/us/100000010835178/the-origins-of-the-supreme-courts-shadow-docket.html
-
-**Is There a Right Way to Rebel?**\
-`In “How to Be a Dissident,” Gal Beckerman offers an inspiring tour of famous renegades with lessons for the rabble-rousers of today.`\
-https://www.nytimes.com/2026/04/18/books/review/how-to-be-a-dissident-gal-beckerman.html
-
-**10 Songs We’re Talking About This Week**\
-`Lana Del Rey reveals a dramatic theme for a James Bond video game, and a look back at the chart from 40 years ago, when Prince reigned supreme.`\
-https://www.nytimes.com/2026/04/18/arts/music/lana-del-rey-anitta-new-songs.html
 
