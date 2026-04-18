@@ -1,3 +1,19 @@
+**Federal Court Temporarily Freezes Nexstar’s Merger With Tegna**\
+`The judge said the two television companies could not combine operations while an antitrust lawsuit proceeded. Nexstar said its deal was already done.`\
+https://www.nytimes.com/2026/04/17/business/media/nexstar-tegna-merger-freeze.html
+
+**Trump Extends Sanctions Exemption on Some Russian Oil as High Gas Prices Persist**\
+`The Trump administration made the announcement hours after Iran said that the Strait of Hormuz was open to commercial ships.`\
+https://www.nytimes.com/2026/04/17/world/middleeast/russia-us-oil-sanctions.html
+
+**Trump Expected to Loosen Restrictions on Psychedelic Drugs**\
+`An upcoming executive order is intended to accelerate research into the compounds’ efficacy in treating PTSD, depression and other mental health problems, officials said.`\
+https://www.nytimes.com/2026/04/17/health/trump-psychedelics-ibogaine.html
+
+**In Phoenix, Trump Eyes Lower Gas Prices and Frets About the Midterms**\
+`President Trump told a crowd of supporters that the price of oil and gas was coming down, part of an effort in recent days to present a rosier picture of the nearly two-month-long Iran war.`\
+https://www.nytimes.com/2026/04/17/us/politics/trump-phoenix-iran-prices.html
+
 **‘Wait Just a Sec’**\
 `Jesse Cohn delivers a coldblooded killer of a Saturday puzzle.`\
 https://www.nytimes.com/2026/04/17/crosswords/daily-puzzle-2026-04-18.html
