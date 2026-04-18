@@ -1,5 +1,5 @@
-**Mamdani to Meet With Obama at Bronx Child-Care Center**\
-`It will be the leaders’ first public appearance together since Mayor Zohran Mamdani’s meteoric rise. Former President Barack Obama called Mr. Mamdani in November shortly before his victory.`\
+**Mamdani Meets With Obama at Bronx Child Care Center**\
+`It was the leaders’ first public appearance together since Mayor Zohran Mamdani’s meteoric rise. Former President Barack Obama called Mr. Mamdani in November shortly before his victory.`\
 https://www.nytimes.com/2026/04/18/nyregion/mamdani-obama-meeting-bronx-child-care.html
 
 **Hollywood Talent Giant Draws Suitors Amid Epstein Fallout**\
