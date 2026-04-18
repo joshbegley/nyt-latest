@@ -1,3 +1,11 @@
+**Mamdani to Meet With Obama at Bronx Child-Care Center**\
+`It will be the leaders’ first public appearance together since Mayor Zohran Mamdani’s meteoric rise. Former President Barack Obama called Mr. Mamdani in November shortly before his victory.`\
+https://www.nytimes.com/2026/04/18/nyregion/mamdani-obama-meeting-bronx-child-care.html
+
+**Hollywood Talent Giant Draws Suitors Amid Epstein Fallout**\
+`Formerly known as Wasserman, the agency that has changed its name to The Team put itself up for sale after its founder’s emails surfaced in the Epstein files.`\
+https://www.nytimes.com/2026/04/18/business/media/hollywood-talent-agency-casey-wasserman-epstein.html
+
 **El papa dice que los medios malinterpretaron algunos de sus comentarios como críticas a Trump**\
 `El papa León respondió directamente el lunes a un ataque presidencial. Pero desde entonces, dijo, se han malinterpretado algunas de sus declaraciones durante su viaje a África.`\
 https://www.nytimes.com/es/2026/04/18/espanol/mundo/papa-leon-donald-trump.html
