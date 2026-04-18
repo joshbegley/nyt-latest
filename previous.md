@@ -1,3 +1,27 @@
+**A Big Beautiful Chopped Salad**\
+`All the hits are here: salty bacon, creamy avocado, funky blue cheese, sweet tomato, crisp romaine.`\
+https://www.nytimes.com/2026/04/18/dining/a-big-beautiful-chopped-salad.html
+
+**More Displaced Lebanese Head Home as Cease-Fire Is Tested**\
+`The truce appeared to mostly hold even as Israel said it had carried out strikes on what it called “terrorists” approaching its forces in southern Lebanon. Separately, a U.N. peacekeeper was killed.`\
+https://www.nytimes.com/2026/04/18/world/middleeast/lebanon-israel-cease-fire-hezbollah-un.html
+
+**Why Your Paycheck Feels Smaller**\
+`Ben Casselman, our chief economics correspondent, explains why wages are not keeping up with inflation and what that means for American workers and the economy.`\
+https://www.nytimes.com/video/business/100000010843347/why-your-paycheck-feels-smaller.html
+
+**How Iran’s Cheap, Low-Tech Drones Have Cost the U.S.**\
+`The United States and its allies have historically prioritized accurate but expensive defense solutions. Drones challenge that math.`\
+https://www.nytimes.com/interactive/2026/04/18/world/middleeast/iran-us-war-drones-cost.html
+
+**Pope Says News Outlets Misread Some of His Remarks as Criticism of Trump**\
+`Pope Leo responded directly on Monday to a presidential attack. But since then, he said, some of his statements during his Africa trip have been misconstrued.`\
+https://www.nytimes.com/2026/04/18/world/africa/pope-news-media-trump-africa.html
+
+**Appeals Court Again Allows Ballroom Construction to Go On, for Now**\
+`In the latest ruling, an appeals court in Washington allowed construction to continue until at least June while it considered the case.`\
+https://www.nytimes.com/2026/04/18/us/politics/trump-ballroom-appeals-court.html
+
 **Three Perfect and Riffable Brownie Recipes**\
 `Fudgy, freezer-friendly brownies are easier than cake and vanish just as fast.`\
 https://www.nytimes.com/2026/04/18/dining/three-perfect-and-riffable-brownie-recipes.html
@@ -15,7 +39,7 @@ https://www.nytimes.com/2026/04/18/business/dealbook/corporate-profits-record.ht
 https://www.nytimes.com/2026/04/18/opinion/wall-street-markets-iran-ai.html
 
 **The Four Lessons Liberals Should Consider After Orban’s Defeat**\
-`Four lessons to consider.`\
+`The lesson for Republicans comes too late, but liberals can still learn from the end of Orbanism.`\
 https://www.nytimes.com/2026/04/18/opinion/orban-liberals-lessons.html
 
 **JD Vance’s Very Bad Week**\
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/04/18/magazine/husband-illness-trapped-ethics.html
 **Connections Companion No. 1,043**\
 `Scroll down for hints and conversation about the puzzle for Sunday, April 19, 2026.`\
 https://www.nytimes.com/2026/04/18/crosswords/connections-companion-1043.html
-
-**Strands Sidekick No. 777**\
-`Scroll down for hints and conversation about the puzzle for Sunday, April 19, 2026.`\
-https://www.nytimes.com/2026/04/18/crosswords/strands-sidekick-777.html
-
-**Wordle Review No. 1,765**\
-`Scroll down for hints and conversation about the puzzle for Sunday, April 19, 2026.`\
-https://www.nytimes.com/2026/04/18/crosswords/wordle-review-1765.html
-
-**Carney’s Liberal Majority Reshapes Fortunes to the Left and the Right**\
-`Mark Carney’s brand of centrist politics and his invitation to floor crossers with conservative convictions into the Liberal Party’s ranks have reshaped the country’s political economy.`\
-https://www.nytimes.com/2026/04/18/world/canada/carney-poilievre-lewis-canada-politics.html
-
-**Reopening Strait of Hormuz Would Ease Oil Crisis but Only So Much**\
-`Analysts said energy and shipping companies would be reluctant to fully restore operations until they were confident that hostilities were over.`\
-https://www.nytimes.com/2026/04/18/business/energy-environment/starit-hormuz-oil-natural-gas-supplies-prices.html
-
-**Violence Shaped Charlize Theron. It Doesn’t Define Her.**\
-`The Oscar-winning actress on pain, healing and becoming an action hero.`\
-https://www.nytimes.com/2026/04/18/magazine/charlize-theron-interview.html
-
-**Nicolás Maduro está fuera y la purga ha comenzado**\
-`Delcy Rodríguez, sucesora del líder autoritario de Venezuela capturado en enero, está desmantelando a la camarilla que lo mantuvo en el poder.`\
-https://www.nytimes.com/es/2026/04/18/espanol/america-latina/venezuela-maduro-delcy-chavismo.html
 
