@@ -1,3 +1,15 @@
+**These Watches Are Personal, Unique and Made to Keep**\
+`For the ultimate in high-level luxury, buyers are commissioning timepieces that are special enough to be passed down through generations.`\
+https://www.nytimes.com/2026/04/18/fashion/customized-luxury-watches.html
+
+**U.S. Installs a Trump Loyalist to Lead ‘Grand Conspiracy’ Case Into Trump Foes**\
+`A former lawyer for President Trump’s campaign, Joseph diGenova, is said to be planning to split time between Miami and Fort Pierce, where a grand jury overseen by a Trump-favored judge sits.`\
+https://www.nytimes.com/2026/04/18/us/politics/digenova-trump-lawyer-conspiracy.html
+
+**Activists Tear-Gassed at Failed Raid of Beagle Research Facility**\
+`Some 1,000 protesters tried to storm a private breeding and lab facility in Wisconsin in an effort to steal thousands of beagles that are bred for medical experimentation.`\
+https://www.nytimes.com/2026/04/18/us/beagle-facility-wisconsin-protests-tear-gas.html
+
 **Funcionarios de EE. UU. viajaron a La Habana para discutir reformas en Cuba**\
 `La delegación les dijo a los líderes de Cuba que solo tenían un estrecho margen de tiempo para realizar los cambios económicos y políticos exigidos por el gobierno de Trump.`\
 https://www.nytimes.com/es/2026/04/18/espanol/america-latina/visita-funcionarios-eeuu-cuba-cambios.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/18/us/super-typhoon-sinklau-coast-guard-search.h
 **A Fevered Dance Party for Martha Graham With Ariana DeBose and Padma Lakshmi**\
 `Stars and luminaries honored the dance company’s 100th anniversary with dinner, performances and a champagne toast at the New York Public Library.`\
 https://www.nytimes.com/2026/04/18/style/martha-graham-dance-company-100.html
-
-**Trump Is Fixated on 1896**\
-`The president loves the 19th century. But why?`\
-https://www.nytimes.com/2026/04/18/opinion/trump-pope-vance.html
-
-**Paul Waldman, Creator and Curator of Art Museum for Birds, Dies at 89**\
-`A dyslexic teenager, he reinvented himself as a bodybuilder. Then he turned to art, producing transgressive paintings and elaborate birdhouses.`\
-https://www.nytimes.com/2026/04/18/arts/design/paul-waldman-dead.html
-
-**A Big Beautiful Chopped Salad**\
-`All the hits are here: salty bacon, creamy avocado, funky blue cheese, sweet tomato, crisp romaine.`\
-https://www.nytimes.com/2026/04/18/dining/a-big-beautiful-chopped-salad.html
 
