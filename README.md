@@ -1,3 +1,19 @@
+**Federal Court Temporarily Freezes Nexstar’s Merger With Tegna**\
+`The judge said the two television companies could not combine operations while an antitrust lawsuit proceeded. Nexstar said its deal was already done.`\
+https://www.nytimes.com/2026/04/17/business/media/nexstar-tegna-merger-freeze.html
+
+**Trump Extends Sanctions Exemption on Some Russian Oil as High Gas Prices Persist**\
+`The Trump administration made the announcement hours after Iran said that the Strait of Hormuz was open to commercial ships.`\
+https://www.nytimes.com/2026/04/17/world/middleeast/russia-us-oil-sanctions.html
+
+**Trump Expected to Loosen Restrictions on Psychedelic Drugs**\
+`An upcoming executive order is intended to accelerate research into the compounds’ efficacy in treating PTSD, depression and other mental health problems, officials said.`\
+https://www.nytimes.com/2026/04/17/health/trump-psychedelics-ibogaine.html
+
+**In Phoenix, Trump Eyes Lower Gas Prices and Frets About the Midterms**\
+`President Trump told a crowd of supporters that the price of oil and gas was coming down, part of an effort in recent days to present a rosier picture of the nearly two-month-long Iran war.`\
+https://www.nytimes.com/2026/04/17/us/politics/trump-phoenix-iran-prices.html
+
 **‘Wait Just a Sec’**\
 `Jesse Cohn delivers a coldblooded killer of a Saturday puzzle.`\
 https://www.nytimes.com/2026/04/17/crosswords/daily-puzzle-2026-04-18.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/17/health/hiv-testing-treatment-data-pepfar.html
 **On Bright Red Posters Around New York, a Call to Boycott the Met Gala**\
 `A guerrilla activist group is papering the city with posters criticizing the billionaire Jeff Bezos’ involvement in the event, a fund-raiser for the Metropolitan Museum.`\
 https://www.nytimes.com/2026/04/17/style/bezos-met-gala-boycott-posters.html
-
-**Mississippi Liquor Stores Run Dry Amid State Distribution Delays**\
-`The state liquor agency has been struggling to make timely deliveries to restaurants, bars and liquor stores since it got rid of outdated conveyor belts at a warehouse in January.`\
-https://www.nytimes.com/2026/04/17/business/mississippi-liquor-shortage.html
-
-**Cerebras, an A.I. Chip Maker, Files to Go Public as Tech Offerings Ramp Up**\
-`The Silicon Valley chip maker filed a prospectus just as SpaceX, Anthropic and OpenAI prepared for their own listings, in what is shaping up to be a wave of enormous initial public offerings.`\
-https://www.nytimes.com/2026/04/17/technology/cerebras-public-offering-ai.html
-
-**Western States Need Water. San Diego Has Extra. Will They Make A Deal?**\
-`San Diego County is shopping a surplus of desalinated seawater to Western states that are facing increasingly urgent drought and short supplies.`\
-https://www.nytimes.com/2026/04/17/climate/how-pacific-ocean-water-could-help-the-colorado-river-crisis.html
-
-**Sazerac Prepares $15 Billion Cash Offer for Maker of Jack Daniel’s**\
-`The Kentucky spirits company’s bid for Brown-Forman comes as the industry is being buffeted by a decline in alcohol consumption.`\
-https://www.nytimes.com/2026/04/17/business/sazerac-brown-forman-jack-daniels.html
 
