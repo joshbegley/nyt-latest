@@ -1,3 +1,7 @@
+**Corporate Profits Are at Record Highs. These 4 Factors Could Sink Them.**\
+`Experts have different theories about what’s driving steep gains. But many agree the window for growth is shrinking.`\
+https://www.nytimes.com/2026/04/18/business/dealbook/corporate-profits-record.html
+
 **Why the Stock Market Makes No Sense Right Now**\
 `It will always be saved.`\
 https://www.nytimes.com/2026/04/18/opinion/wall-street-markets-iran-ai.html

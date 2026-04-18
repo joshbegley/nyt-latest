@@ -1,3 +1,7 @@
+**Corporate Profits Are at Record Highs. These 4 Factors Could Sink Them.**\
+`Experts have different theories about what’s driving steep gains. But many agree the window for growth is shrinking.`\
+https://www.nytimes.com/2026/04/18/business/dealbook/corporate-profits-record.html
+
 **Why the Stock Market Makes No Sense Right Now**\
 `It will always be saved.`\
 https://www.nytimes.com/2026/04/18/opinion/wall-street-markets-iran-ai.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/18/briefing/laila-gohar-thinks-beauty-can-save-u
 **El extraño que me invitó a mi propia cama**\
 `La experiencia era más comedia romántica que película de terror.`\
 https://www.nytimes.com/es/2026/04/18/espanol/estilos-de-vida/modern-love-desconocido-cama.html
-
-**New York’s Anti-Rich Current Reaches Crescendo With Second-Home Tax Plan**\
-`With a new tax proposal, the threat of a building workers’ strike and Mayor Zohran Mamdani’s shunning of the Met Gala, the city’s wealth gap was on full display.`\
-https://www.nytimes.com/2026/04/18/nyregion/new-york-inequality-second-home-tax.html
 
