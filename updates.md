@@ -1,3 +1,7 @@
+**Paul Waldman, Creator and Curator of Art Museum for Birds, Dies at 89**\
+`A dyslexic teenager, he reinvented himself as a bodybuilder. Then he turned to art, producing transgressive paintings and elaborate birdhouses.`\
+https://www.nytimes.com/2026/04/18/arts/design/paul-waldman-dead.html
+
 **A Big Beautiful Chopped Salad**\
 `All the hits are here: salty bacon, creamy avocado, funky blue cheese, sweet tomato, crisp romaine.`\
 https://www.nytimes.com/2026/04/18/dining/a-big-beautiful-chopped-salad.html
