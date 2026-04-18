@@ -1,3 +1,35 @@
+**Para Pedro Sánchez, la disputa con Donald Trump ha sido un salvavidas político**\
+`Para los políticos de izquierda en el mundo, el mandatario español es un héroe por enfrentarse al presidente de EE. UU. En España, la confrontación con Trump es vista como un rescate de los desafíos internos.`\
+https://www.nytimes.com/es/2026/04/18/espanol/mundo/espana-pedro-sanchez-trump.html
+
+**In Angola, Pope Faces the Legacy of Colonialism**\
+`His visit includes a trip to a shrine where enslaved Africans were baptized before being forced into the treacherous voyage across the Atlantic Ocean.`\
+https://www.nytimes.com/2026/04/18/world/africa/pope-leo-slavery-africa-angola.html
+
+**Why Iran’s ‘Mosquito Fleet’ Remains a Potent Threat in the Strait of Hormuz**\
+`Separate from the regular Iranian Navy, with boats that often go more than 115 miles per hour, it’s what a retired U.S. official calls a “disruptive force.”`\
+https://www.nytimes.com/2026/04/18/world/middleeast/iran-irgc-navy-strait-of-hormuz.html
+
+**How a Fight With Trump Threw Spain’s Leader a Political Lifeline**\
+`To leftists abroad, Prime Minister Pedro Sánchez of Spain is a hero for standing up to President Trump. At home, Mr. Trump is seen as Mr. Sánchez’s political savior from thorny domestic challenges.`\
+https://www.nytimes.com/2026/04/18/world/europe/pedro-sanchez-donald-trump-lifeline.html
+
+**How Trump Helped Pope Leo Find His Voice**\
+`After his election last year, Leo XIV developed a reputation as a mild-mannered mediator. President Trump’s attacks have made him more combative.`\
+https://www.nytimes.com/2026/04/18/world/europe/trump-pope-leo-iran.html
+
+**Corrections: April 19, 2026**\
+`Corrections that appeared in print on Sunday, April 19, 2026.`\
+https://www.nytimes.com/2026/04/18/pageoneplus/corrections-april-19-2026.html
+
+**Corrections: April 18, 2026**\
+`Corrections that appeared in print on Saturday, April 18, 2026.`\
+https://www.nytimes.com/2026/04/18/pageoneplus/corrections-april-18-2026.html
+
+**Quote of the Day: Luke Tennie Stirs the Pot**\
+`Quotation of the Day for Saturday, April 18, 2026.`\
+https://www.nytimes.com/2026/04/17/pageoneplus/quote-of-the-day-luke-tennie-stirs-the-pot.html
+
 **Federal Court Temporarily Freezes Nexstar’s Merger With Tegna**\
 `The judge said the two television companies could not combine operations while an antitrust lawsuit proceeded. Nexstar said its deal was already done.`\
 https://www.nytimes.com/2026/04/17/business/media/nexstar-tegna-merger-freeze.html
@@ -45,36 +77,4 @@ https://www.nytimes.com/video/world/middleeast/100000010847401/lebanon-return-ho
 **Tornadoes Reported Across the Midwest as Powerful Storms Slam the Region**\
 `One reported tornado downed trees and damaged cars in Lena, Ill., an official said.`\
 https://www.nytimes.com/2026/04/17/weather/tornadoes-lena-illinois-missouri-kansas-forecast.html
-
-**White House and Anthropic Hold ‘Productive’ Meeting, Aiming for a Compromise**\
-`Friday’s meeting at the White House followed the introduction of Anthropic’s powerful new artificial intelligence model, Mythos, which U.S. officials believe could be critical for security.`\
-https://www.nytimes.com/2026/04/17/technology/white-house-anthropic-artificial-intelligence.html
-
-**Homeland Security Expands Deportation Fleet With High-End Jets**\
-`The contract for five planes doubles the Department of Homeland Security’s fleet of jets to expel immigrants, and includes two Gulfstream planes, according to documents and interviews.`\
-https://www.nytimes.com/2026/04/17/us/politics/homeland-security-gulfstream.html
-
-**What You Taught Me About Maine**\
-`Our readers in the state tell us about its high-stakes Senate race.`\
-https://www.nytimes.com/2026/04/17/us/politics/maine-senate-election-collins-platner-mills.html
-
-**Lawsuit Against Alec Baldwin for ‘Rust’ Shooting Heads Toward Trial**\
-`Although the criminal case against Mr. Baldwin was thrown out, the actor still faces civil cases about the fatal shooting of a cinematographer in 2021.`\
-https://www.nytimes.com/2026/04/17/movies/alec-baldwin-rust-civil-trial.html
-
-**Man Accused of Killing Charlie Kirk Wants to Ban Cameras From Court**\
-`Lawyers for the man, Tyler Robinson, have argued that filming the court hearings threatens his right to a fair trial.`\
-https://www.nytimes.com/2026/04/17/us/charlie-kirk-tyler-robinson-murder-utah-court.html
-
-**Rescuers Mount a Likely Final Push to Save a Stranded Whale**\
-`Rescue crews mounted a likely final push to save a stranded humpback whale off the coast of Northern Germany on Friday. The large mammal, nicknamed “Timmy,” captivated the nation after it was stranded in shallow waters for weeks.`\
-https://www.nytimes.com/video/science/earth/100000010847664/timmy-whale-stranded-rescue-germany.html
-
-**New PEPFAR Data Show Worrying Declines in Testing and Treatment for H.I.V.**\
-`The numbers are the first to quantify the effect of the Trump administration’s shutdown and restarting of a program that has saved millions of lives worldwide.`\
-https://www.nytimes.com/2026/04/17/health/hiv-testing-treatment-data-pepfar.html
-
-**On Bright Red Posters Around New York, a Call to Boycott the Met Gala**\
-`A guerrilla activist group is papering the city with posters criticizing the billionaire Jeff Bezos’ involvement in the event, a fund-raiser for the Metropolitan Museum.`\
-https://www.nytimes.com/2026/04/17/style/bezos-met-gala-boycott-posters.html
 
