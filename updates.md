@@ -1,3 +1,7 @@
+**‘Wait Just a Sec’**\
+`Jesse Cohn delivers a coldblooded killer of a Saturday puzzle.`\
+https://www.nytimes.com/2026/04/17/crosswords/daily-puzzle-2026-04-18.html
+
 **Trump Will Participate in a Marathon Bible Reading**\
 `He will read a passage from the Old Testament that his Christian supporters cite as a call to national repentance and divine blessing.`\
 https://www.nytimes.com/2026/04/17/us/trump-bible.html
