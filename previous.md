@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/04/18/world/americas/us-officials-cuba-trump.html
 
 **Mamdani Meets With Obama at Bronx Child Care Center**\
-`It was the leaders’ first public appearance together since Mayor Zohran Mamdani’s meteoric rise. Former President Barack Obama called Mr. Mamdani in November shortly before his victory.`\
+`The meeting on Saturday, the men’s first public appearance together, showcased a critical part of Mayor Zohran Mamdani’s agenda: universal child care.`\
 https://www.nytimes.com/2026/04/18/nyregion/mamdani-obama-meeting-bronx-child-care.html
 
 **Hollywood Talent Giant Draws Suitors Amid Epstein Fallout**\

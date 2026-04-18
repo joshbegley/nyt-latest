@@ -1,3 +1,7 @@
+**Mamdani Meets With Obama at Bronx Child Care Center**\
+`The meeting on Saturday, the men’s first public appearance together, showcased a critical part of Mayor Zohran Mamdani’s agenda: universal child care.`\
+https://www.nytimes.com/2026/04/18/nyregion/mamdani-obama-meeting-bronx-child-care.html
+
 **Gunman Kills at Least 6 in Kyiv, Taking Hostages in Grocery**\
 `It was the deadliest mass shooting in Ukraine in years, where firearms have proliferated since the war with Russia began.`\
 https://www.nytimes.com/2026/04/18/world/europe/kyiv-ukraine-mass-shooting-hostages.html
