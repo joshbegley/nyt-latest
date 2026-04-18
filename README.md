@@ -1,3 +1,7 @@
+****\
+`A clip from Kenneth Anger’s short film “Eaux d’Artifice” (1953).`\
+https://www.nytimes.com/video/embedded/t-magazine/entertainment/100000010843654/17tmag-Anger.html
+
 **Estamos apostando en contra de nuestro futuro**\
 `En Estados Unidos dificultamos la virtud y facilitamos el acceso al vicio, como el juego y la pornografía.`\
 https://www.nytimes.com/es/2026/04/18/espanol/opinion/hombres-jovenes-porno-apuestas-sociedad.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/17/crosswords/daily-puzzle-2026-04-18.html
 **Trump Will Participate in a Marathon Bible Reading**\
 `He will read a passage from the Old Testament that his Christian supporters cite as a call to national repentance and divine blessing.`\
 https://www.nytimes.com/2026/04/17/us/trump-bible.html
-
-**Our Tax System Is Bad for America**\
-`Our current tax system isn’t fair, and that is bad for social solidarity, argues the Opinion columnist Ezra Klein. The tax expert Ray Madoff joins him to discuss how a fairer system is a moral necessity.`\
-https://www.nytimes.com/video/opinion/100000010839394/our-tax-system-is-bad-for-america.html
 
