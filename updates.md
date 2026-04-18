@@ -1,3 +1,19 @@
+**Estamos apostando en contra de nuestro futuro**\
+`En Estados Unidos dificultamos la virtud y facilitamos el acceso al vicio, como el juego y la pornografía.`\
+https://www.nytimes.com/es/2026/04/18/espanol/opinion/hombres-jovenes-porno-apuestas-sociedad.html
+
+**Tenis vs. pickleball. ¿Cuál es mejor ejercicio?**\
+`Con raqueta o pala en mano, cualquiera de estos deportes mejoran tu perspectiva cardiovascular.`\
+https://www.nytimes.com/es/2026/04/18/espanol/tenis-pickleball-beneficios-riesgos.html
+
+**La reina del salto de cuerda vive en Beverly Hills y tiene 82 años**\
+`Annie Judis dice que el propósito de su vida es desafiar las expectativas que se tienen sobre la gente de su edad.`\
+https://www.nytimes.com/es/2026/04/18/espanol/salto-cuerda-record-guiness.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/18/crosswords/spelling-bee-forum.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/18/world/iran-us-war-trump-hormuz/heres-the-latest

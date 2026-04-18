@@ -1,3 +1,19 @@
+**Estamos apostando en contra de nuestro futuro**\
+`En Estados Unidos dificultamos la virtud y facilitamos el acceso al vicio, como el juego y la pornografía.`\
+https://www.nytimes.com/es/2026/04/18/espanol/opinion/hombres-jovenes-porno-apuestas-sociedad.html
+
+**Tenis vs. pickleball. ¿Cuál es mejor ejercicio?**\
+`Con raqueta o pala en mano, cualquiera de estos deportes mejoran tu perspectiva cardiovascular.`\
+https://www.nytimes.com/es/2026/04/18/espanol/tenis-pickleball-beneficios-riesgos.html
+
+**La reina del salto de cuerda vive en Beverly Hills y tiene 82 años**\
+`Annie Judis dice que el propósito de su vida es desafiar las expectativas que se tienen sobre la gente de su edad.`\
+https://www.nytimes.com/es/2026/04/18/espanol/salto-cuerda-record-guiness.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/18/crosswords/spelling-bee-forum.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/18/world/iran-us-war-trump-hormuz/heres-the-latest
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/17/us/trump-bible.html
 **Our Tax System Is Bad for America**\
 `Our current tax system isn’t fair, and that is bad for social solidarity, argues the Opinion columnist Ezra Klein. The tax expert Ray Madoff joins him to discuss how a fairer system is a moral necessity.`\
 https://www.nytimes.com/video/opinion/100000010839394/our-tax-system-is-bad-for-america.html
-
-**Trump’s Dispute With Pope Leo Deepens Divisions on the Right**\
-`Sean Hannity criticized the pope. Tucker Carlson attacked Mr. Hannity. And President Trump suggested ranking MAGA figures: “good, bad, and somewhere in the middle.”`\
-https://www.nytimes.com/2026/04/17/us/politics/republicans-trump-pope-midterms.html
-
-**American Airlines Says It Won’t Merge With United**\
-`American issued the statement after news reports that United Airlines’ chief executive had discussed the idea with the Trump administration.`\
-https://www.nytimes.com/2026/04/17/business/american-airlines-united-merger.html
-
-**With Vaccines Widely Popular, Kennedy Changes Tone, but Maybe Not His Plans**\
-`Several moves suggest Health Secretary Robert F. Kennedy Jr. could revive his campaign to question the safety and effectiveness of the shots after the midterm elections.`\
-https://www.nytimes.com/2026/04/17/us/politics/vaccines-kennedy-cdc.html
-
-**Displaced Family Returns Home Following Truce Between Israel and Lebanon**\
-`Ghia Hajo, 25, returned to her home in Tyre, a city in southern Lebanon that Israel has bombarded with strikes, following the announcement of a 10-day cease-fire.`\
-https://www.nytimes.com/video/world/middleeast/100000010847401/lebanon-return-home-cease-fire.html
 
