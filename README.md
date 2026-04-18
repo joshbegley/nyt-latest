@@ -1,3 +1,7 @@
+**Our Tax System Is Bad for America**\
+`Our current tax system isn’t fair, and that is bad for social solidarity, argues the Opinion columnist Ezra Klein. The tax expert Ray Madoff joins him to discuss how a fairer system is a moral necessity.`\
+https://www.nytimes.com/video/opinion/100000010839394/our-tax-system-is-bad-for-america.html
+
 **Trump’s Dispute With Pope Leo Deepens Divisions on the Right**\
 `Sean Hannity criticized the pope. Tucker Carlson attacked Mr. Hannity. And President Trump suggested ranking MAGA figures: “good, bad, and somewhere in the middle.”`\
 https://www.nytimes.com/2026/04/17/us/politics/republicans-trump-pope-midterms.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/17/nyregion/edgar-lazaro-castillo-volleyball-man
 **Strait of Hormuz Is Declared ‘Open,’ Boosting Hope for a Deal**\
 `Also, a college with a cookie house. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/04/17/briefing/the-strait-of-hormuz-college-cookies.html
-
-**Contours of Pied-à-Terre Tax in New York City Begin to Take Shape**\
-`As state leaders determine how much owners of high-priced second homes in New York City may have to pay, they are also wrestling with opaque L.L.C.-ownership issues.`\
-https://www.nytimes.com/2026/04/17/nyregion/second-home-tax.html
 
