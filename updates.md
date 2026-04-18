@@ -1,3 +1,7 @@
+**Gunman Kills at Least 6 in Kyiv, Taking Hostages in Grocery**\
+`The attacker fatally shot four people on the street before barricading himself inside a nearby supermarket, a prosecutor said.`\
+https://www.nytimes.com/2026/04/18/world/europe/kyiv-ukraine-mass-shooting-hostages.html
+
 **Remains Linked to Submerged Car Solve 1958 Mystery of Missing Oregon Family**\
 `The case of the missing Martin family was unsolved until a diver found a car in an Oregon river in 2024. Officials, relying on DNA tests, said Thursday that they had identified the remains of three people.`\
 https://www.nytimes.com/2026/04/18/us/martin-family-missing-identified.html
