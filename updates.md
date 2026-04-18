@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/18/world/iran-us-war-trump-hormuz/heres-the-latest
+
 **Para Pedro Sánchez, la disputa con Donald Trump ha sido un salvavidas político**\
 `Para los políticos de izquierda en el mundo, el mandatario español es un héroe por enfrentarse al presidente de EE. UU. En España, la confrontación con Trump es vista como un rescate de los desafíos internos.`\
 https://www.nytimes.com/es/2026/04/18/espanol/mundo/espana-pedro-sanchez-trump.html
