@@ -1,3 +1,35 @@
+**Why the Stock Market Makes No Sense Right Now**\
+`It will always be saved.`\
+https://www.nytimes.com/2026/04/18/opinion/wall-street-markets-iran-ai.html
+
+**What Liberals Should Learn From the End of Orbanism**\
+`Four lessons to consider.`\
+https://www.nytimes.com/2026/04/18/opinion/orban-liberals-lessons.html
+
+**The Pope Bedevils Trump**\
+`A higher authority finally tells Trump he’s no messiah.`\
+https://www.nytimes.com/2026/04/18/opinion/pope-trump-hegseth-iran.html
+
+**From Hungary to the Pope, the Right’s Very Bad Week**\
+`What recent events in Europe can tell us about the future of Trumpism.`\
+https://www.nytimes.com/2026/04/18/opinion/hungary-election-orban-loses-trump-maga.html
+
+**How to Relieve Suffering on the Streets of San Francisco**\
+`Readers respond to a guest essay about the city’s recent efforts to reduce drug use and homelessness.`\
+https://www.nytimes.com/2026/04/18/opinion/san-francisco-addiction-homeless.html
+
+**You Can Only Get This Beautiful With Time**\
+`The old ladies that I know have a grace and stature that only long years of hoping and striving — and living — can bestow.`\
+https://www.nytimes.com/2026/04/18/opinion/aging-women-beauty.html
+
+**This War Has Not Gone Putin’s Way**\
+`The war in Iran is taking a huge toll on Russia.`\
+https://www.nytimes.com/2026/04/18/opinion/russia-iran-us-putin-trump-ukraine.html
+
+**From Hungary to the Pope, the Right’s Very Bad Week**\
+`What recent events in Europe can tell us about the future of Trumpism.`\
+https://www.nytimes.com/video/opinion/100000010844772/from-hungary-to-the-pope-the-rights-very-bad-week.html
+
 **Trading Spaces**\
 `With spring comes the urge to spring-clean. It’s about so much more than just organizing your closet.`\
 https://www.nytimes.com/2026/04/18/briefing/trading-spaces.html
@@ -45,36 +77,4 @@ https://www.nytimes.com/es/2026/04/18/espanol/estilos-de-vida/modern-love-descon
 **New York’s Anti-Rich Current Reaches Crescendo With Second-Home Tax Plan**\
 `With a new tax proposal, the threat of a building workers’ strike and Mayor Zohran Mamdani’s shunning of the Met Gala, the city’s wealth gap was on full display.`\
 https://www.nytimes.com/2026/04/18/nyregion/new-york-inequality-second-home-tax.html
-
-**After D4vd’s Arrest, Many Still Mourn the Girl Who Never Came Home**\
-`Celeste Rivas Hernandez went missing from Lake Elsinore, Calif., at age 13. The musician known as D4vd has been detained in connection with her death.`\
-https://www.nytimes.com/2026/04/18/us/d4vd-arrest-celeste-hernandez-death.html
-
-**For Iran, Flexing Control Over Waterway Is New Deterrent**\
-`Iran’s government could emerge from the conflict with a blueprint to keep adversaries at bay, regardless of any restrictions on its nuclear program.`\
-https://www.nytimes.com/2026/04/18/us/politics/iran-hormuz-strait-trump.html
-
-**Cómo empezar una conversación**\
-`Con algunos ajustes, puedes hacer que tu forma de iniciar una charla sea más animada y atractiva.`\
-https://www.nytimes.com/es/2026/04/18/espanol/estilos-de-vida/formas-iniciar-conversacion.html
-
-**6 cosas que los hombres deberían saber sobre su salud mental**\
-`Para algunos hombres puede ser difícil darse cuenta de cuándo la están pasando mal y cuándo tienen que buscar ayuda.`\
-https://www.nytimes.com/es/2026/04/18/espanol/6-cosas-que-los-hombres-deberian-saber-sobre-su-salud-mental.html
-
-**Migrant Children Removed From New York Shelter After Abuse Allegations**\
-`Federal officials received complaints about the treatment of children and adolescents at a facility in Westchester County, N.Y.`\
-https://www.nytimes.com/2026/04/18/nyregion/migrant-children-shelter-abuse.html
-
-**‘Turning Point Was Charlie Kirk’: Why This Student Group Moved On**\
-`Students at the University of Arkansas disagreed with Turning Point’s direction, pointing to challenges ahead for the conservative group.`\
-https://www.nytimes.com/2026/04/18/us/politics/turning-point-university-arkansas-disbands.html
-
-**Luca Guadagnino Wants a Difficult Opera to Break Free of Polemics**\
-`The Italian filmmaker hopes his staging of John Adams’s “The Death of Klinghoffer” will help audiences look past the controversies surrounding the work.`\
-https://www.nytimes.com/2026/04/18/arts/music/luca-guadagnino-death-of-klinghoffer-maggio-musicale.html
-
-**The Help That Many Older Americans Need Most**\
-`With shortages of medical professionals and an aging population, thousands of community health care workers prevent older adults from falling through the cracks.`\
-https://www.nytimes.com/2026/04/18/health/community-health-care-workers.html
 
