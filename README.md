@@ -1,3 +1,11 @@
+**Six Are Missing After Cargo Ship Is Found Overturned Near Guam**\
+`The ship, the Mariana, was found overturned days after the Coast Guard lost contact with its crew, after a super typhoon struck.`\
+https://www.nytimes.com/2026/04/18/us/super-typhoon-sinklau-coast-guard-search.html
+
+**A Fevered Dance Party for Martha Graham With Ariana DeBose and Padma Lakshmi**\
+`Stars and luminaries honored the dance company’s 100th anniversary with dinner, performances and a champagne toast at the New York Public Library.`\
+https://www.nytimes.com/2026/04/18/style/martha-graham-dance-company-100.html
+
 **Trump Still Hearts McKinley**\
 `The president loves the 19th century. But why?`\
 https://www.nytimes.com/2026/04/18/opinion/trump-pope-vance.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/18/opinion/aging-women-beauty.html
 **This War Has Not Gone Putin’s Way**\
 `The war in Iran is taking a huge toll on Russia.`\
 https://www.nytimes.com/2026/04/18/opinion/russia-iran-us-putin-trump-ukraine.html
-
-**From Hungary to the Pope, the Right’s Very Bad Week**\
-`What recent events in Europe can tell us about the future of Trumpism.`\
-https://www.nytimes.com/video/opinion/100000010844772/from-hungary-to-the-pope-the-rights-very-bad-week.html
-
-**Trading Spaces**\
-`With spring comes the urge to spring-clean. It’s about so much more than just organizing your closet.`\
-https://www.nytimes.com/2026/04/18/briefing/trading-spaces.html
 
