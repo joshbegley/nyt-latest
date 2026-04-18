@@ -1,3 +1,7 @@
+**Trading Spaces**\
+`With spring comes the urge to spring-clean. It’s about so much more than just organizing your closet.`\
+https://www.nytimes.com/2026/04/18/briefing/trading-spaces.html
+
 **My Husband’s Illness Has Me Feeling Trapped. Do I Have to Stay?**\
 `I don’t feel morally that I could leave. But I have healthy years ahead and I wish to enjoy what’s left of my life.`\
 https://www.nytimes.com/2026/04/18/magazine/husband-illness-trapped-ethics.html
