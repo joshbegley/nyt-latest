@@ -1,3 +1,7 @@
+****\
+`A clip from Kenneth Anger’s short film “Eaux d’Artifice” (1953).`\
+https://www.nytimes.com/video/embedded/t-magazine/entertainment/100000010843654/17tmag-Anger.html
+
 **Estamos apostando en contra de nuestro futuro**\
 `En Estados Unidos dificultamos la virtud y facilitamos el acceso al vicio, como el juego y la pornografía.`\
 https://www.nytimes.com/es/2026/04/18/espanol/opinion/hombres-jovenes-porno-apuestas-sociedad.html
