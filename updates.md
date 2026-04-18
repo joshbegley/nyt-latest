@@ -1,3 +1,7 @@
+**Remains Linked to Submerged Car Solve 1958 Mystery of Missing Oregon Family**\
+`The case of the missing Martin family was unsolved until a diver found a car in an Oregon river in 2024. Officials, relying on DNA tests, said Thursday that they had identified the remains of three people.`\
+https://www.nytimes.com/2026/04/18/us/martin-family-missing-identified.html
+
 **Ships in Strait of Hormuz Turn Back as 2 Are Said to Be Hit**\
 `The day after Iran declared the vital waterway open, it reversed course, injecting new peril into navigation there.`\
 https://www.nytimes.com/2026/04/18/world/middleeast/iran-tanker-strait-of-hormuz.html

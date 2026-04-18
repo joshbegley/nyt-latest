@@ -1,3 +1,7 @@
+**Remains Linked to Submerged Car Solve 1958 Mystery of Missing Oregon Family**\
+`The case of the missing Martin family was unsolved until a diver found a car in an Oregon river in 2024. Officials, relying on DNA tests, said Thursday that they had identified the remains of three people.`\
+https://www.nytimes.com/2026/04/18/us/martin-family-missing-identified.html
+
 **Ships in Strait of Hormuz Turn Back as 2 Are Said to Be Hit**\
 `The day after Iran declared the vital waterway open, it reversed course, injecting new peril into navigation there.`\
 https://www.nytimes.com/2026/04/18/world/middleeast/iran-tanker-strait-of-hormuz.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/18/opinion/pope-trump-hegseth-iran.html
 **How to Relieve Suffering on the Streets of San Francisco**\
 `Readers respond to a guest essay about the city’s recent efforts to reduce drug use and homelessness.`\
 https://www.nytimes.com/2026/04/18/opinion/san-francisco-addiction-homeless.html
-
-**My Wife Is 85. She Takes My Breath Away.**\
-`The old ladies that I know have a grace and stature that only long years of hoping and striving — and living — can bestow.`\
-https://www.nytimes.com/2026/04/18/opinion/aging-women-beauty.html
 
