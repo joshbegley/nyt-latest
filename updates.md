@@ -1,3 +1,7 @@
+**British Counterterrorism Police Investigating Attacks Against Jewish Sites**\
+`The police say they are focusing on a shadowy Islamic group that may have links to Iran and which has claimed responsibility for several recent arson attacks.`\
+https://www.nytimes.com/2026/04/19/world/europe/arson-london-synagogue-antisemitism.html
+
 **8 Children Killed in Domestic Violence Shooting in Louisiana, Police Say**\
 `The authorities said a total of 10 people had been shot in a crime scene in Shreveport that involved multiple sites. The gunman was fatally shot by officers, the police said.`\
 https://www.nytimes.com/2026/04/19/us/shreveport-mass-shooting-dead-children.html
