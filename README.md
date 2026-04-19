@@ -1,3 +1,7 @@
+**Iran Eases Some Internet Restrictions, as Wider Blackout Passes 50th Day**\
+`Critics say Iran may be creating a “tiered internet” model, where access is limited to the politically and economically privileged.`\
+https://www.nytimes.com/2026/04/19/world/middleeast/iran-internet-blackout-50th-day.html
+
 **Times Are Hard. What’s a Teacher to Do?**\
 `Readers respond to an Opinion essay by Frank Bruni. Also: An arch near Arlington; cuts in mental health care; transformation in prison.`\
 https://www.nytimes.com/2026/04/19/opinion/teachers.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/19/espanol/mundo/guerra-ucrania-entrega-paque
 **¿Qué es real y qué ficción sobre el antisemitismo de Roald Dahl representado en ‘Gigante’?**\
 `La obra de Broadway sobre el autor británico de libros populares como ‘Matilda’ o ‘Charlie y la fábrica de chocolate’ se basa en los comentarios de Dahl a lo largo de los años.`\
 https://www.nytimes.com/es/2026/04/19/espanol/cultura/que-es-real-y-que-ficcion-sobre-el-antisemitismo-de-roald-dahl-representado-en-gigante.html
-
-**They Went Abroad to Save Money. Moving Back Seems Unaffordable.**\
-`Americans have enjoyed lifestyles that would normally be out of reach to them by working remotely in countries with lower living costs.`\
-https://www.nytimes.com/2026/04/19/business/americans-abroad-cheaper-living-costs.html
 
