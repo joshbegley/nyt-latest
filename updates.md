@@ -1,3 +1,7 @@
+**Trump Administration Demand for Ballot Info Rebuffed by Michigan**\
+`The Department of Justice is seeking ballots and other materials from the 2024 election. Michigan officials call it election interference.`\
+https://www.nytimes.com/2026/04/19/us/michigan-trump-ballots-election.html
+
 **Don Schlitz, Prolific Writer of Country Music Hits, Dies at 73**\
 `He won a Grammy for the Kenny Rogers song “The Gambler,” and also wrote for Randy Travis, the Judds and Mary Chapin Carpenter.`\
 https://www.nytimes.com/2026/04/19/obituaries/don-schlitz-dead.html
