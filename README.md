@@ -1,3 +1,11 @@
+**From Pulpits to Pews, Trump and the Pope Are on the Minds of Catholics**\
+`At churches with connections to Pope Leo and the Trump administration, pastors and parishioners speak out on the feud between the president and the pontiff.`\
+https://www.nytimes.com/2026/04/19/us/trump-pope-catholics.html
+
+**Oil Prices Jumped and Stock Futures Fell on Renewed Iran Conflict**\
+`Traders, hopeful on Friday that a peace deal was near, were digesting the developments over the weekend.`\
+https://www.nytimes.com/2026/04/19/business/oil-stocks-gas-iran.html
+
 **8 Children Killed in Louisiana Shooting, Police Say**\
 `A gunman shot 10 people, killing eight children, in a domestic violence shooting at multiple locations in Shreveport, La., the police said. The victims ranged in age from 1 to 14. The gunman was later fatally shot by officers.`\
 https://www.nytimes.com/video/us/100000010850678/shreveport-louisiana-shooting.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/19/world/asia/coastal-village-fire-borneo-malays
 **5 Injured During a Shooting Near University of Iowa Campus**\
 `Three students were among those wounded in the shooting, which took place shortly before 2 a.m. as a fight broke out at the downtown pedestrian mall.`\
 https://www.nytimes.com/2026/04/19/us/university-of-iowa-shooting.html
-
-**Salsa macha pork noodles to transport you to spring in Los Angeles**\
-`You don’t have to live in Southern California to recreate the way cuisines come together. Start with these 30-minute spicy pork noodles.`\
-https://www.nytimes.com/2026/04/19/dining/salsa-macha-pork-noodles-to-transport-you-to-spring-in-los-angeles.html
-
-**Iran Eases Some Internet Restrictions, as Wider Blackout Passes 50th Day**\
-`Critics say Iran may be creating a “tiered internet” model, where access is limited to the politically and economically privileged.`\
-https://www.nytimes.com/2026/04/19/world/middleeast/iran-internet-blackout-50th-day.html
 
