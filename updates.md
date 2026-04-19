@@ -1,3 +1,19 @@
+**Group Efforts Succeed During Milan Design Week**\
+`Collaborations among designers allow for new creations during the event.`\
+https://www.nytimes.com/2026/04/19/arts/design/milan-design-week-inspired-collaborations.html
+
+**6 medicamentos comunes que pueden reducir el riesgo de demencia**\
+`Algunos estudios han descubierto que ciertos fármacos contra la inflamación, la hipertensión y otros padecimientos, podrían tener un impacto protector. Esto es lo que sabemos.`\
+https://www.nytimes.com/es/2026/04/19/espanol/medicamentos-demencia.html
+
+**At Milan Design Week, Function and Form Take on New Meanings**\
+`From a spinning Christmas tree to tables that resemble flowers are among the pieces on display this week.`\
+https://www.nytimes.com/2026/04/19/arts/design/milan-design-week-group-dynamics.html
+
+**Vintage Designs Take on New Lives at Milan Design Week**\
+`Revived pieces, including a 1950s table by Carlo Mollino and a 1960s lamp by Carlo Nason, are on display at the annual festival of furnishings.`\
+https://www.nytimes.com/2026/04/19/arts/design/milan-design-week-revivals.html
+
 **At Milan Design Week, Creative Seating Brings Fresh Ideas to the Table**\
 `A crisp couch, a monolithic chair and a playful pouf highlight the ways designers are reimagining how we recline.`\
 https://www.nytimes.com/2026/04/19/arts/design/milan-design-week-seating.html
