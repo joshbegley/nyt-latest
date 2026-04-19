@@ -1,3 +1,11 @@
+**U.S. Fires on Iranian Cargo Ship in Arabian Sea**\
+`The military said it had disabled the vessel after it ignored repeated warnings to stop, amid a U.S. blockade of Iranian ports. Marines boarded the ship and seized it.`\
+https://www.nytimes.com/2026/04/19/us/us-military-iranian-ship.html
+
+**Moya Brennan, Whose Gaelic Pop Band Won Worldwide Fame, Dies at 73**\
+`Clannad consisted of her uncles, siblings and, briefly, her sister Enya. In a memoir, Ms. Brennan described a stormy youth followed by a Christian reawakening.`\
+https://www.nytimes.com/2026/04/19/obituaries/moya-brennan-dead.html
+
 **Trump Says U.S. Attacked Iranian Cargo Ship**\
 `President Trump said a Navy destroyer had attacked and seized an Iranian-flagged vessel in the Gulf of Oman. The White House said it was dispatching a high-level delegation, including Vice President JD Vance, to Pakistan for negotiations.`\
 https://www.nytimes.com/video/world/middleeast/100000010850501/us-iran-war-strait-of-hormuz-negotiations.html
