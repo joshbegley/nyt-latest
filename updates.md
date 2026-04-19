@@ -1,3 +1,7 @@
+**Hamas Officials Say Group Is Ready to Hand Over Some Weapons**\
+`Two senior Hamas officials in Gaza said the group was prepared to relinquish some automatic rifles and other arms, a concession that falls short of Israeli-U.S. demands.`\
+https://www.nytimes.com/2026/04/19/world/middleeast/hamas-weapons-israel.html
+
 **Trump Administration Demand for Ballot Info Rebuffed by Michigan**\
 `The Department of Justice is seeking ballots and other materials from the 2024 election. Michigan officials call it election interference.`\
 https://www.nytimes.com/2026/04/19/us/michigan-trump-ballots-election.html
