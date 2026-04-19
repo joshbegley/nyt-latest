@@ -1,3 +1,15 @@
+**Can U.S. Blockade Iranian-Linked Ships Anywhere in the World? Yes, But …**\
+`Maritime and military law experts say an expansion of the naval blockade announced last week raises legal and practical questions but has ample historical precedent.`\
+https://www.nytimes.com/2026/04/19/world/middleeast/us-iran-blockade-expansion.html
+
+**Energy Secretary Says Gas Prices May Stay Above $3 Until 2027**\
+`Secretary of Energy Chris Wright’s acknowledgment in a TV interview undercut President Trump’s earlier claim that price increases would be “short-term.”`\
+https://www.nytimes.com/2026/04/19/world/middleeast/energy-secretary-gas-prices.html
+
+**U.S. Attacks Iranian Cargo Ship as Both Countries Claim Cease-Fire Violations**\
+`President Trump said the United States attacked an Iranian ship that tried to get past the U.S. blockade, hours after Iran said the blockade was a war crime that violated the cease-fire.`\
+https://www.nytimes.com/2026/04/19/world/middleeast/us-iran-cease-fire-violations-strait-of-hormuz.html
+
 **U.S. Seizes Iranian Cargo Ship After Accusations of Cease-Fire Violations in Strait of Hormuz**\
 `President Trump said the United States attacked an Iranian ship that tried to get past the U.S. blockade, hours after Iran said the blockade was a war crime that violated the cease-fire.`\
 https://www.nytimes.com/2026/04/19/world/middleeast/us-iran-cease-fire-violations-strait-of-hormuz.html

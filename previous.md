@@ -1,3 +1,11 @@
+**Can U.S. Blockade Iranian-Linked Ships Anywhere in the World? Yes, But …**\
+`Maritime and military law experts say an expansion of the naval blockade announced last week raises legal and practical questions but has ample historical precedent.`\
+https://www.nytimes.com/2026/04/19/world/middleeast/us-iran-blockade-expansion.html
+
+**Energy Secretary Says Gas Prices May Stay Above $3 Until 2027**\
+`Secretary of Energy Chris Wright’s acknowledgment in a TV interview undercut President Trump’s earlier claim that price increases would be “short-term.”`\
+https://www.nytimes.com/2026/04/19/world/middleeast/energy-secretary-gas-prices.html
+
 **Elaine Ingham, Who Taught That Soil Is Alive, Dies at 73**\
 `A scientist and leader in the organic farming movement, she popularized the “soil food web,” an understanding that soil is a complex realm of microorganisms.`\
 https://www.nytimes.com/2026/04/19/science/earth/elaine-ingham-dead.html
@@ -6,7 +14,7 @@ https://www.nytimes.com/2026/04/19/science/earth/elaine-ingham-dead.html
 `He was one of 5 University of Buffalo faculty members fired for not signing loyalty oaths. In a landmark decision, the Supreme Court ruled in their favor.`\
 https://www.nytimes.com/2026/04/19/us/harry-keyishian-dead.html
 
-**U.S. Seizes Iranian Cargo Ship After Accusations of Cease-Fire Violations in Strait of Hormuz**\
+**U.S. Attacks Iranian Cargo Ship as Both Countries Claim Cease-Fire Violations**\
 `President Trump said the United States attacked an Iranian ship that tried to get past the U.S. blockade, hours after Iran said the blockade was a war crime that violated the cease-fire.`\
 https://www.nytimes.com/2026/04/19/world/middleeast/us-iran-cease-fire-violations-strait-of-hormuz.html
 
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/19/crosswords/connections-companion-1044.html
 **The Founding Father Has Issues With the Office of the Presidency**\
 `He couldn’t get out of political office fast enough.`\
 https://www.nytimes.com/2026/04/19/opinion/george-washington-term-limits.html
-
-**The Warmongers Are Getting History All Wrong**\
-`As in Thucydides’ time, the Trump administration’s war posture promises short-term gains but long-run disaster.`\
-https://www.nytimes.com/2026/04/19/opinion/trump-war-thucydides.html
-
-**Wordle Review No. 1,766**\
-`Scroll down for hints and conversation about the puzzle for Monday, April 20, 2026.`\
-https://www.nytimes.com/2026/04/19/crosswords/wordle-review-1766.html
 
