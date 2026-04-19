@@ -1,3 +1,7 @@
+**Trump Says U.S. Attacked Iranian Cargo Ship**\
+`President Trump said a Navy destroyer had attacked and seized an Iranian-flagged vessel in the Gulf of Oman. The White House said it was dispatching a high-level delegation, including Vice President JD Vance, to Pakistan for negotiations.`\
+https://www.nytimes.com/video/world/middleeast/100000010850501/us-iran-war-strait-of-hormuz-negotiations.html
+
 **It Was No Sweat: A Humanoid Robot Races to a Record Finish**\
 `The android won a half-marathon for robots (and humans) on Sunday in Beijing, achieving a technological milestone while finishing faster than any person in history.`\
 https://www.nytimes.com/2026/04/19/world/asia/running-robot-sets-record.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/19/us/shreveport-mass-shooting-dead-children.htm
 **British Counterterrorism Police Investigating Attacks Against Jewish Sites**\
 `The police say they are focusing on a shadowy Islamic group that may have links to Iran and which has claimed responsibility for several recent arson attacks.`\
 https://www.nytimes.com/2026/04/19/world/europe/arson-london-synagogue-antisemitism.html
-
-**Fire Destroys Most of Coastal Village in Malaysia**\
-`A community of stilt homes on the island of Borneo was reduced to ash in an overnight blaze.`\
-https://www.nytimes.com/2026/04/19/world/asia/coastal-village-fire-borneo-malaysia.html
 
