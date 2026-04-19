@@ -1,3 +1,7 @@
+**U.S. and Iran Accuse Each Other of Cease-Fire Violations in Strait of Hormuz**\
+`President Trump accused Iran of firing on ships passing through the strait, while Iran said the U.S. blockade violated their deal and amounted to a war crime.`\
+https://www.nytimes.com/2026/04/19/world/middleeast/us-iran-cease-fire-violations-strait-of-hormuz.html
+
 **Hamas Officials Say Group Is Ready to Hand Over Some Weapons**\
 `Two senior Hamas officials in Gaza said the group was prepared to relinquish some automatic rifles and other arms, a concession that falls short of Israeli-U.S. demands.`\
 https://www.nytimes.com/2026/04/19/world/middleeast/hamas-weapons-israel.html

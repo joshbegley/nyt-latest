@@ -1,3 +1,7 @@
+**U.S. and Iran Accuse Each Other of Cease-Fire Violations in Strait of Hormuz**\
+`President Trump accused Iran of firing on ships passing through the strait, while Iran said the U.S. blockade violated their deal and amounted to a war crime.`\
+https://www.nytimes.com/2026/04/19/world/middleeast/us-iran-cease-fire-violations-strait-of-hormuz.html
+
 **Hamas Officials Say Group Is Ready to Hand Over Some Weapons**\
 `Two senior Hamas officials in Gaza said the group was prepared to relinquish some automatic rifles and other arms, a concession that falls short of Israeli-U.S. demands.`\
 https://www.nytimes.com/2026/04/19/world/middleeast/hamas-weapons-israel.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/19/crosswords/strands-sidekick-778.html
 **Group Efforts Succeed During Milan Design Week**\
 `Collaborations among designers allow for new creations during the event.`\
 https://www.nytimes.com/2026/04/19/arts/design/milan-design-week-inspired-collaborations.html
-
-**6 medicamentos comunes que pueden reducir el riesgo de demencia**\
-`Algunos estudios han descubierto que ciertos fármacos contra la inflamación, la hipertensión y otros padecimientos, podrían tener un impacto protector. Esto es lo que sabemos.`\
-https://www.nytimes.com/es/2026/04/19/espanol/medicamentos-demencia.html
 
