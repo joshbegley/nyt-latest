@@ -1,3 +1,15 @@
+**Quote of the Day: After Artemis II, Astronauts and NASA Look to Moon Landing**\
+`Quotation of the Day for Sunday, April 19, 2026.`\
+https://www.nytimes.com/2026/04/19/pageoneplus/quote-of-the-day-after-artemis-ii-astronauts-and-nasa-look-to-moon-landing.html
+
+**Why Fashion Suddenly Loves Older Women**\
+`Representation of women of a certain age has never been higher. What’s going on?`\
+https://www.nytimes.com/2026/04/19/style/age-women-fashion.html
+
+**What to Know About the Bulgarian Election**\
+`The Black Sea country is holding its eighth election in five years, with Bulgarians yearning for the kind of prosperous life enjoyed by other Europeans.`\
+https://www.nytimes.com/2026/04/19/world/europe/bulgaria-elections-what-to-know.html
+
 **Hezbollah is Willing to Cooperate With a Cease-Fire with Israel. For Now.**\
 `The leader of the Iran-backed militia said that a more durable peace with Israel would require the fulfillment of a list of long-standing demands.`\
 https://www.nytimes.com/2026/04/18/world/middleeast/hezbollah-cease-fire-israel-lebanon.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/video/world/africa/100000010849760/pope-news-media-trump
 **U.S. Officials Visited Havana to Lay Out Proposals for Cuban Reforms**\
 `The delegation told Cuba’s leadership that it had only a narrow window of time to make the economic and political changes demanded by the Trump administration.`\
 https://www.nytimes.com/2026/04/18/world/americas/us-officials-cuba-trump.html
-
-**Mamdani and Obama Lead Preschool Singalong to Promote Free Child Care**\
-`In their first public appearance together, Mayor Zohran Mamdani and former President Barack Obama met up for some joking and singing on Saturday at a Bronx child care center.`\
-https://www.nytimes.com/2026/04/18/nyregion/mamdani-obama-meeting-bronx-child-care.html
-
-**Hollywood Talent Giant Draws Suitors Amid Epstein Fallout**\
-`Formerly known as Wasserman, the agency that has changed its name to The Team put itself up for sale after its founder’s emails surfaced in the Epstein files.`\
-https://www.nytimes.com/2026/04/18/business/media/hollywood-talent-agency-casey-wasserman-epstein.html
-
-**El papa dice que los medios malinterpretaron algunos de sus comentarios como críticas a Trump**\
-`El papa León respondió directamente el lunes a un ataque presidencial. Pero desde entonces, dijo, se han malinterpretado algunas de sus declaraciones durante su viaje a África.`\
-https://www.nytimes.com/es/2026/04/18/espanol/mundo/papa-leon-donald-trump.html
 
