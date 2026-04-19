@@ -1,3 +1,7 @@
+**El joven diplomático que lidera la guerra cultural de Trump contra Europa**\
+`A cinco años de haber salido de la universidad, Samuel Samson ha impulsado la campaña del gobierno de Trump para redefinir la relación de EE. UU. con Europa y estrechar vínculos con la extrema derecha.`\
+https://www.nytimes.com/es/2026/04/19/espanol/mundo/samuel-samson-donald-trump.html
+
 **Las hembras de los peces rape evolucionaron para tenerlo todo**\
 `Según un nuevo estudio, estos peces de aguas profundas acabaron utilizando señuelos brillantes no solo para pescar, sino también para atraer a sus parejas.`\
 https://www.nytimes.com/es/2026/04/19/espanol/ciencia-y-tecnologia/las-hembras-de-los-peces-rape-evolucionaron-para-tenerlo-todo.html
