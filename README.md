@@ -1,3 +1,7 @@
+**It Was No Sweat: A Humanoid Robot Races to a Record Finish**\
+`The android won a half-marathon for robots (and humans) on Sunday in Beijing, achieving a technological milestone while finishing faster than any person in history.`\
+https://www.nytimes.com/2026/04/19/world/asia/running-robot-sets-record.html
+
 **From Pulpits to Pews, Trump and the Pope Are on the Minds of Catholics**\
 `At churches with connections to Pope Leo and the Trump administration, pastors and parishioners speak out on the feud between the president and the pontiff.`\
 https://www.nytimes.com/2026/04/19/us/trump-pope-catholics.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/19/world/europe/arson-london-synagogue-antisemit
 **Fire Destroys Most of Coastal Village in Malaysia**\
 `A community of stilt homes on the island of Borneo was reduced to ash in an overnight blaze.`\
 https://www.nytimes.com/2026/04/19/world/asia/coastal-village-fire-borneo-malaysia.html
-
-**5 Injured During a Shooting Near University of Iowa Campus**\
-`Three students were among those wounded in the shooting, which took place shortly before 2 a.m. as a fight broke out at the downtown pedestrian mall.`\
-https://www.nytimes.com/2026/04/19/us/university-of-iowa-shooting.html
 

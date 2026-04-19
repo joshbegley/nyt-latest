@@ -1,3 +1,11 @@
+**From Pulpits to Pews, Trump and the Pope Are on the Minds of Catholics**\
+`At churches with connections to Pope Leo and the Trump administration, pastors and parishioners speak out on the feud between the president and the pontiff.`\
+https://www.nytimes.com/2026/04/19/us/trump-pope-catholics.html
+
+**Oil Prices Jumped and Stock Futures Fell on Renewed Iran Conflict**\
+`Traders, hopeful on Friday that a peace deal was near, were digesting the developments over the weekend.`\
+https://www.nytimes.com/2026/04/19/business/oil-stocks-gas-iran.html
+
 **8 Children Killed in Louisiana Shooting, Police Say**\
 `A gunman shot 10 people, killing eight children, in a domestic violence shooting at multiple locations in Shreveport, La., the police said. The victims ranged in age from 1 to 14. The gunman was later fatally shot by officers.`\
 https://www.nytimes.com/video/us/100000010850678/shreveport-louisiana-shooting.html
