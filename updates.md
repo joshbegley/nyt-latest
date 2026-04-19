@@ -1,3 +1,11 @@
+**You Can’t Game Your Way to a Real Education**\
+`Technology must return to its proper place in the classroom — as a supplemental tool rather than the source and summit of education.`\
+https://www.nytimes.com/2026/04/19/opinion/schools-edtech-laptops-games-learning.html
+
+**Change Your Dreams. Change Your Life.**\
+`Few people experience lucid dreams, yet those who do are able to appreciate as much asleep as the rest of us do awake.`\
+https://www.nytimes.com/2026/04/19/opinion/lucid-dreams.html
+
 **Quote of the Day: After Artemis II, Astronauts and NASA Look to Moon Landing**\
 `Quotation of the Day for Sunday, April 19, 2026.`\
 https://www.nytimes.com/2026/04/19/pageoneplus/quote-of-the-day-after-artemis-ii-astronauts-and-nasa-look-to-moon-landing.html

@@ -1,3 +1,11 @@
+**You Can’t Game Your Way to a Real Education**\
+`Technology must return to its proper place in the classroom — as a supplemental tool rather than the source and summit of education.`\
+https://www.nytimes.com/2026/04/19/opinion/schools-edtech-laptops-games-learning.html
+
+**Change Your Dreams. Change Your Life.**\
+`Few people experience lucid dreams, yet those who do are able to appreciate as much asleep as the rest of us do awake.`\
+https://www.nytimes.com/2026/04/19/opinion/lucid-dreams.html
+
 **Quote of the Day: After Artemis II, Astronauts and NASA Look to Moon Landing**\
 `Quotation of the Day for Sunday, April 19, 2026.`\
 https://www.nytimes.com/2026/04/19/pageoneplus/quote-of-the-day-after-artemis-ii-astronauts-and-nasa-look-to-moon-landing.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/18/us/lego-theft-pasta-california.html
 **After the Heists: Securing Museums Without Closing Them Off**\
 `The bold robbery at the Louvre shocked the world, but all museums face the challenge of protecting art and historical treasures.`\
 https://www.nytimes.com/2026/04/18/arts/design/museums-security.html
-
-**Pope Leo Says News Outlets Misunderstood Recent Remarks as Trump Criticism**\
-`Pope Leo XIV said that news outlets misinterpreted his recent remarks as criticism of President Trump. The pontiff has called for an end to the violence in the Middle East but told reporters on Saturday he had no interest in debating the president.`\
-https://www.nytimes.com/video/world/africa/100000010849760/pope-news-media-trump-africa.html
-
-**U.S. Officials Visited Havana to Lay Out Proposals for Cuban Reforms**\
-`The delegation told Cuba’s leadership that it had only a narrow window of time to make the economic and political changes demanded by the Trump administration.`\
-https://www.nytimes.com/2026/04/18/world/americas/us-officials-cuba-trump.html
 
