@@ -1,3 +1,7 @@
+**Times Are Hard. What’s a Teacher to Do?**\
+`Readers respond to an Opinion essay by Frank Bruni. Also: An arch near Arlington; cuts in mental health care; transformation in prison.`\
+https://www.nytimes.com/2026/04/19/opinion/teachers.html
+
 **Ageless Beauty**\
 `We examine a surprising trend on the runways of Paris.`\
 https://www.nytimes.com/2026/04/19/briefing/ageless-beauty.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/19/espanol/cultura/que-es-real-y-que-ficcion-
 **They Went Abroad to Save Money. Moving Back Seems Unaffordable.**\
 `Americans have enjoyed lifestyles that would normally be out of reach to them by working remotely in countries with lower living costs.`\
 https://www.nytimes.com/2026/04/19/business/americans-abroad-cheaper-living-costs.html
-
-**Are Democrats Becoming a Party of Tax Cuts?**\
-`As Democrats try to find a way back to power in Washington, some see tax cuts as a quick and easy way to address affordability. The wonks are freaking out.`\
-https://www.nytimes.com/2026/04/19/business/democrats-tax-cuts-affordability.html
 
