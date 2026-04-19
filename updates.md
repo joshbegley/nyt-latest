@@ -1,3 +1,11 @@
+**The Founding Father Has Issues With the Office of the Presidency**\
+`He couldn’t get out of political office fast enough.`\
+https://www.nytimes.com/2026/04/19/opinion/george-washington-term-limits.html
+
+**The Warmongers Are Getting History All Wrong**\
+`As in Thucydides’ time, the Trump administration’s war posture promises short-term gains but long-run disaster.`\
+https://www.nytimes.com/2026/04/19/opinion/trump-war-thucydides.html
+
 **Ageless Beauty**\
 `We examine a surprising trend on the runways of Paris.`\
 https://www.nytimes.com/2026/04/19/briefing/ageless-beauty.html

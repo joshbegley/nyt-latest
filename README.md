@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/04/19/briefing/ageless-beauty.html
 `Inside the making of Netflix’s hit “Love on the Spectrum.”`\
 https://www.nytimes.com/2026/04/19/podcasts/the-daily/dating-on-the-spectrum.html
 
-**The Divine Right of … Presidents?**\
+**I Missed the Part About the Divine Right of Presidents**\
 `It didn’t work out too well for kings, either.`\
 https://www.nytimes.com/2026/04/19/opinion/trum-christ-pope-image.html
 
