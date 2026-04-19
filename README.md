@@ -1,3 +1,7 @@
+**Ageless Beauty**\
+`We examine a surprising trend on the runways of Paris.`\
+https://www.nytimes.com/2026/04/19/briefing/ageless-beauty.html
+
 **Dating on the Spectrum**\
 `Inside the making of Netflix’s hit “Love on the Spectrum.”`\
 https://www.nytimes.com/2026/04/19/podcasts/the-daily/dating-on-the-spectrum.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/19/business/americans-abroad-cheaper-living-cost
 **Are Democrats Becoming a Party of Tax Cuts?**\
 `As Democrats try to find a way back to power in Washington, some see tax cuts as a quick and easy way to address affordability. The wonks are freaking out.`\
 https://www.nytimes.com/2026/04/19/business/democrats-tax-cuts-affordability.html
-
-**A Mother Remembers One of the ‘Beautiful Six,’ Abducted on Oct. 7**\
-`Rachel Goldberg-Polin’s precise and devastating memoir chronicles the 328 days her son was held hostage in Gaza, and what came after.`\
-https://www.nytimes.com/2026/04/19/books/review/rachel-goldberg-polin-when-we-see-you-again.html
 
