@@ -1,3 +1,11 @@
+**3 University of Iowa Students Injured During a Shooting Near Campus**\
+`Shortly before 2 a.m., a fight broke out at the downtown pedestrian mall. When police officers arrived, they heard gunshots.`\
+https://www.nytimes.com/2026/04/19/us/university-of-iowa-shooting.html
+
+**Salsa macha pork noodles to transport you to spring in Los Angeles**\
+`You don’t have to live in Southern California to recreate the way cuisines come together. Start with these 30-minute spicy pork noodles.`\
+https://www.nytimes.com/2026/04/19/dining/salsa-macha-pork-noodles-to-transport-you-to-spring-in-los-angeles.html
+
 **Iran Eases Some Internet Restrictions, as Wider Blackout Passes 50th Day**\
 `Critics say Iran may be creating a “tiered internet” model, where access is limited to the politically and economically privileged.`\
 https://www.nytimes.com/2026/04/19/world/middleeast/iran-internet-blackout-50th-day.html

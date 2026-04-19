@@ -1,3 +1,11 @@
+**3 University of Iowa Students Injured During a Shooting Near Campus**\
+`Shortly before 2 a.m., a fight broke out at the downtown pedestrian mall. When police officers arrived, they heard gunshots.`\
+https://www.nytimes.com/2026/04/19/us/university-of-iowa-shooting.html
+
+**Salsa macha pork noodles to transport you to spring in Los Angeles**\
+`You don’t have to live in Southern California to recreate the way cuisines come together. Start with these 30-minute spicy pork noodles.`\
+https://www.nytimes.com/2026/04/19/dining/salsa-macha-pork-noodles-to-transport-you-to-spring-in-los-angeles.html
+
 **Iran Eases Some Internet Restrictions, as Wider Blackout Passes 50th Day**\
 `Critics say Iran may be creating a “tiered internet” model, where access is limited to the politically and economically privileged.`\
 https://www.nytimes.com/2026/04/19/world/middleeast/iran-internet-blackout-50th-day.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/19/business/ai-at-work-creativity-ageism.html
 **Luxury Brands Bet on the Middle East. War Has Damaged Their Plans.**\
 `High-end brands such as Louis Vuitton and Hermès are looking to other regions as sales in Persian Gulf nations plummet.`\
 https://www.nytimes.com/2026/04/19/business/luxury-brands-bet-on-the-middle-east-war-has-damaged-their-plans.html
-
-**El cartero ucraniano que desafía la guerra para entregar paquetes**\
-`Oleksiy Klochkovsky lleva cuatro años repartiendo en la línea del frente de Ucrania. Mantiene un oído siempre alerta para detectar el peligro de drones y misiles.`\
-https://www.nytimes.com/es/2026/04/19/espanol/mundo/guerra-ucrania-entrega-paquetes.html
-
-**¿Qué es real y qué ficción sobre el antisemitismo de Roald Dahl representado en ‘Gigante’?**\
-`La obra de Broadway sobre el autor británico de libros populares como ‘Matilda’ o ‘Charlie y la fábrica de chocolate’ se basa en los comentarios de Dahl a lo largo de los años.`\
-https://www.nytimes.com/es/2026/04/19/espanol/cultura/que-es-real-y-que-ficcion-sobre-el-antisemitismo-de-roald-dahl-representado-en-gigante.html
 
