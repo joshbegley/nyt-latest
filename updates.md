@@ -1,3 +1,7 @@
+**The Mind-Altering Power of Lucid Dreaming**\
+`Few people experience lucid dreams, yet those who do are able to appreciate as much asleep as the rest of us do awake.`\
+https://www.nytimes.com/2026/04/19/opinion/lucid-dreams.html
+
 **Esta vez Lena Dunham decide quedarse en cama**\
 `En “Famesick”, su segundo libro de memorias, Dunham explora, con detalles ingeniosos y desgarradores, los estragos de la fama temprana y de vivir con una enfermedad crónica.`\
 https://www.nytimes.com/es/2026/04/19/espanol/cultura/lena-dunham-famesick-presentacion-libro.html
