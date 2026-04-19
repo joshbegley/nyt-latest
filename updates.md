@@ -1,3 +1,11 @@
+**Times Are Hard. What’s a Teacher to Do?**\
+`Readers respond to an Opinion essay by Frank Bruni. Also: An arch near Arlington; cuts in mental health care; transformation in prison.`\
+https://www.nytimes.com/2026/04/19/opinion/teachers.html
+
+**I Missed the Part About the Divine Right of Presidents**\
+`It didn’t work out too well for kings, either.`\
+https://www.nytimes.com/2026/04/19/opinion/trum-christ-pope-image.html
+
 **The Founding Father Has Issues With the Office of the Presidency**\
 `He couldn’t get out of political office fast enough.`\
 https://www.nytimes.com/2026/04/19/opinion/george-washington-term-limits.html
