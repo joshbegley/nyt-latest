@@ -1,3 +1,7 @@
+**Ageless Beauty**\
+`We examine a surprising trend on the runways of Paris.`\
+https://www.nytimes.com/2026/04/19/briefing/ageless-beauty.html
+
 **Dating on the Spectrum**\
 `Inside the making of Netflix’s hit “Love on the Spectrum.”`\
 https://www.nytimes.com/2026/04/19/podcasts/the-daily/dating-on-the-spectrum.html
