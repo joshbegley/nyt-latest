@@ -1,3 +1,7 @@
+**U.S. Seizes Iranian Cargo Ship After Accusations of Cease-Fire Violations in Strait of Hormuz**\
+`President Trump said the United States attacked an Iranian ship that tried to get past the U.S. blockade, hours after Iran said the blockade was a war crime that violated the cease-fire.`\
+https://www.nytimes.com/2026/04/19/world/middleeast/us-iran-cease-fire-violations-strait-of-hormuz.html
+
 **Elaine Ingham, Who Taught That Soil Is Alive, Dies at 73**\
 `A scientist and leader in the organic farming movement, she popularized the “soil food web,” an understanding that soil is a complex realm of microorganisms.`\
 https://www.nytimes.com/2026/04/19/science/earth/elaine-ingham-dead.html

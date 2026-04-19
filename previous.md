@@ -6,8 +6,8 @@ https://www.nytimes.com/2026/04/19/science/earth/elaine-ingham-dead.html
 `He was one of 5 University of Buffalo faculty members fired for not signing loyalty oaths. In a landmark decision, the Supreme Court ruled in their favor.`\
 https://www.nytimes.com/2026/04/19/us/harry-keyishian-dead.html
 
-**U.S. and Iran Accuse Each Other of Cease-Fire Violations in Strait of Hormuz**\
-`President Trump accused Iran of firing on ships passing through the strait, while Iran said the U.S. blockade violated their deal and amounted to a war crime.`\
+**U.S. Seizes Iranian Cargo Ship After Accusations of Cease-Fire Violations in Strait of Hormuz**\
+`President Trump said the United States attacked an Iranian ship that tried to get past the U.S. blockade, hours after Iran said the blockade was a war crime that violated the cease-fire.`\
 https://www.nytimes.com/2026/04/19/world/middleeast/us-iran-cease-fire-violations-strait-of-hormuz.html
 
 **Hamas Officials Say Group Is Ready to Hand Over Some Weapons**\
