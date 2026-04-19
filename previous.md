@@ -1,3 +1,7 @@
+**Don Schlitz, Prolific Writer of Country Music Hits, Dies at 73**\
+`He won a Grammy for the Kenny Rogers song “The Gambler,” and also wrote for Randy Travis, the Judds and Mary Chapin Carpenter.`\
+https://www.nytimes.com/2026/04/19/obituaries/don-schlitz-dead.html
+
 **8 Children Killed in Domestic Violence Shooting in Louisiana, Police Say**\
 `The authorities said a total of 10 people had been shot in a crime scene in Shreveport that involved multiple sites. The gunman was fatally shot by officers.`\
 https://www.nytimes.com/2026/04/19/us/shreveport-mass-shooting-dead-children.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/19/arts/design/milan-design-week-group-dynamics.
 **Vintage Designs Take on New Lives at Milan Design Week**\
 `Revived pieces, including a 1950s table by Carlo Mollino and a 1960s lamp by Carlo Nason, are on display at the annual festival of furnishings.`\
 https://www.nytimes.com/2026/04/19/arts/design/milan-design-week-revivals.html
-
-**At Milan Design Week, Creative Seating Brings Fresh Ideas to the Table**\
-`A crisp couch, a monolithic chair and a playful pouf highlight the ways designers are reimagining how we recline.`\
-https://www.nytimes.com/2026/04/19/arts/design/milan-design-week-seating.html
 
