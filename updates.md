@@ -1,3 +1,11 @@
+**Hezbollah is Willing to Cooperate With a Cease-Fire with Israel. For Now.**\
+`The leader of the Iran-backed militia said that a more durable peace with Israel would require the fulfillment of a list of long-standing demands.`\
+https://www.nytimes.com/2026/04/18/world/middleeast/hezbollah-cease-fire-israel-lebanon.html
+
+**Mamdani and Obama Lead Preschool Singalong to Promote Free Child Care**\
+`In their first public appearance together, Mayor Zohran Mamdani and former President Barack Obama met up for some joking and singing on Saturday at a Bronx child care center.`\
+https://www.nytimes.com/2026/04/18/nyregion/mamdani-obama-meeting-bronx-child-care.html
+
 **Universal Genève Returns to the Watch World With New Models**\
 `The brand has undergone a two-year rebuilding after it was acquired by Breitling in 2023.`\
 https://www.nytimes.com/2026/04/18/fashion/universal-geneve-watches.html
