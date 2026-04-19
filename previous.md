@@ -1,3 +1,15 @@
+**Las hembras de los peces rape evolucionaron para tenerlo todo**\
+`Según un nuevo estudio, estos peces de aguas profundas acabaron utilizando señuelos brillantes no solo para pescar, sino también para atraer a sus parejas.`\
+https://www.nytimes.com/es/2026/04/19/espanol/ciencia-y-tecnologia/las-hembras-de-los-peces-rape-evolucionaron-para-tenerlo-todo.html
+
+**Reseña de ‘Margo tiene problemas de dinero’: te convertirá en un OnlyFan**\
+`Elle Fanning protagoniza una comedia dramática llena de corazón y mente abierta sobre la exposición en internet y sus complicaciones.`\
+https://www.nytimes.com/es/2026/04/19/espanol/cultura/margo-elle-fanning-onlyfan.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/19/crosswords/spelling-bee-forum.html
+
 **Esta vez Lena Dunham decide quedarse en cama**\
 `En “Famesick”, su segundo libro de memorias, Dunham explora, con detalles ingeniosos y desgarradores, los estragos de la fama temprana y de vivir con una enfermedad crónica.`\
 https://www.nytimes.com/es/2026/04/19/espanol/cultura/lena-dunham-famesick-presentacion-libro.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/18/us/beagle-facility-wisconsin-protests-tear-ga
 **Funcionarios de EE. UU. viajaron a La Habana para discutir reformas en Cuba**\
 `La delegación les dijo a los líderes de Cuba que solo tenían un estrecho margen de tiempo para realizar los cambios económicos y políticos exigidos por el gobierno de Trump.`\
 https://www.nytimes.com/es/2026/04/18/espanol/america-latina/visita-funcionarios-eeuu-cuba-cambios.html
-
-**Nuclear Fusion**\
-`Michael Lieberman brings us a Sunday puzzle with some things different (and some things the same).`\
-https://www.nytimes.com/2026/04/18/crosswords/daily-puzzle-2026-04-19.html
-
-**Iran Says the Strait of Hormuz Is Closed Again**\
-`Iran’s Revolutionary Guards said they were closing the Strait of Hormuz until the U.S. blockade was lifted. Two Indian-flagged ships reported being hit as they tried to cross the passage.`\
-https://www.nytimes.com/video/world/middleeast/100000010849733/iran-says-the-strait-of-hormuz-is-closed-again.html
-
-**Finding a New Approach to Displaying a Museum Collection**\
-`At the Chazen Museum of Art in Wisconsin, each gallery will now have a single “focus object,” with “a constellation of other artworks” helping to draw out particular themes.`\
-https://www.nytimes.com/2026/04/18/arts/design/museums-chazen-wisconsin-makeover.html
 

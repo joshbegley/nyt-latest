@@ -1,3 +1,15 @@
+**Las hembras de los peces rape evolucionaron para tenerlo todo**\
+`Según un nuevo estudio, estos peces de aguas profundas acabaron utilizando señuelos brillantes no solo para pescar, sino también para atraer a sus parejas.`\
+https://www.nytimes.com/es/2026/04/19/espanol/ciencia-y-tecnologia/las-hembras-de-los-peces-rape-evolucionaron-para-tenerlo-todo.html
+
+**Reseña de ‘Margo tiene problemas de dinero’: te convertirá en un OnlyFan**\
+`Elle Fanning protagoniza una comedia dramática llena de corazón y mente abierta sobre la exposición en internet y sus complicaciones.`\
+https://www.nytimes.com/es/2026/04/19/espanol/cultura/margo-elle-fanning-onlyfan.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/19/crosswords/spelling-bee-forum.html
+
 **The Mind-Altering Power of Lucid Dreaming**\
 `Few people experience lucid dreams, yet those who do are able to appreciate as much asleep as the rest of us do awake.`\
 https://www.nytimes.com/2026/04/19/opinion/lucid-dreams.html
