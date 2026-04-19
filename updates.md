@@ -1,3 +1,15 @@
+**Quote of the Day: After Artemis II, Astronauts and NASA Look to Moon Landing**\
+`Quotation of the Day for Sunday, April 19, 2026.`\
+https://www.nytimes.com/2026/04/19/pageoneplus/quote-of-the-day-after-artemis-ii-astronauts-and-nasa-look-to-moon-landing.html
+
+**Why Fashion Suddenly Loves Older Women**\
+`Representation of women of a certain age has never been higher. What’s going on?`\
+https://www.nytimes.com/2026/04/19/style/age-women-fashion.html
+
+**What to Know About the Bulgarian Election**\
+`The Black Sea country is holding its eighth election in five years, with Bulgarians yearning for the kind of prosperous life enjoyed by other Europeans.`\
+https://www.nytimes.com/2026/04/19/world/europe/bulgaria-elections-what-to-know.html
+
 **Hezbollah is Willing to Cooperate With a Cease-Fire with Israel. For Now.**\
 `The leader of the Iran-backed militia said that a more durable peace with Israel would require the fulfillment of a list of long-standing demands.`\
 https://www.nytimes.com/2026/04/18/world/middleeast/hezbollah-cease-fire-israel-lebanon.html
