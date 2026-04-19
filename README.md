@@ -1,3 +1,7 @@
+**Trump Administration Demand for Ballot Info Rebuffed by Michigan**\
+`The Department of Justice is seeking ballots and other materials from the 2024 election. Michigan officials call it election interference.`\
+https://www.nytimes.com/2026/04/19/us/michigan-trump-ballots-election.html
+
 **Don Schlitz, Prolific Writer of Country Music Hits, Dies at 73**\
 `He won a Grammy for the Kenny Rogers song “The Gambler,” and also wrote for Randy Travis, the Judds and Mary Chapin Carpenter.`\
 https://www.nytimes.com/2026/04/19/obituaries/don-schlitz-dead.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/19/espanol/medicamentos-demencia.html
 **At Milan Design Week, Function and Form Take on New Meanings**\
 `From a spinning Christmas tree to tables that resemble flowers are among the pieces on display this week.`\
 https://www.nytimes.com/2026/04/19/arts/design/milan-design-week-group-dynamics.html
-
-**Vintage Designs Take on New Lives at Milan Design Week**\
-`Revived pieces, including a 1950s table by Carlo Mollino and a 1960s lamp by Carlo Nason, are on display at the annual festival of furnishings.`\
-https://www.nytimes.com/2026/04/19/arts/design/milan-design-week-revivals.html
 
