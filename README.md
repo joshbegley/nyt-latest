@@ -1,3 +1,7 @@
+**Hamas Officials Say Group Is Ready to Hand Over Some Weapons**\
+`Two senior Hamas officials in Gaza said the group was prepared to relinquish some automatic rifles and other arms, a concession that falls short of Israeli-U.S. demands.`\
+https://www.nytimes.com/2026/04/19/world/middleeast/hamas-weapons-israel.html
+
 **Trump Administration Demand for Ballot Info Rebuffed by Michigan**\
 `The Department of Justice is seeking ballots and other materials from the 2024 election. Michigan officials call it election interference.`\
 https://www.nytimes.com/2026/04/19/us/michigan-trump-ballots-election.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/19/arts/design/milan-design-week-inspired-collab
 **6 medicamentos comunes que pueden reducir el riesgo de demencia**\
 `Algunos estudios han descubierto que ciertos fármacos contra la inflamación, la hipertensión y otros padecimientos, podrían tener un impacto protector. Esto es lo que sabemos.`\
 https://www.nytimes.com/es/2026/04/19/espanol/medicamentos-demencia.html
-
-**At Milan Design Week, Function and Form Take on New Meanings**\
-`From a spinning Christmas tree to tables that resemble flowers are among the pieces on display this week.`\
-https://www.nytimes.com/2026/04/19/arts/design/milan-design-week-group-dynamics.html
 
