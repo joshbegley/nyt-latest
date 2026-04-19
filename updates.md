@@ -1,3 +1,7 @@
+**Esta vez Lena Dunham decide quedarse en cama**\
+`En “Famesick”, su segundo libro de memorias, Dunham explora, con detalles ingeniosos y desgarradores, los estragos de la fama temprana y de vivir con una enfermedad crónica.`\
+https://www.nytimes.com/es/2026/04/19/espanol/cultura/lena-dunham-famesick-presentacion-libro.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/19/world/iran-us-war-trump-hormuz/heres-the-latest
