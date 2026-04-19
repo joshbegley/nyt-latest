@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/19/world/iran-us-war-trump-hormuz/heres-the-latest
+
 **You Can’t Game Your Way to a Real Education**\
 `Technology must return to its proper place in the classroom — as a supplemental tool rather than the source and summit of education.`\
 https://www.nytimes.com/2026/04/19/opinion/schools-edtech-laptops-games-learning.html

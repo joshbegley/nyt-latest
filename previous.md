@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/19/world/iran-us-war-trump-hormuz/heres-the-latest
+
 **You Can’t Game Your Way to a Real Education**\
 `Technology must return to its proper place in the classroom — as a supplemental tool rather than the source and summit of education.`\
 https://www.nytimes.com/2026/04/19/opinion/schools-edtech-laptops-games-learning.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/18/arts/design/museums-chazen-wisconsin-makeover
 **Man Charged in Lego Theft Scheme of Replacing Pieces With Pasta, Police Say**\
 `A California man was charged with grand theft after the police said he reaped about $34,000 in what an official called an “off the charts” pasta-and-switch scheme involving Lego kits.`\
 https://www.nytimes.com/2026/04/18/us/lego-theft-pasta-california.html
-
-**After the Heists: Securing Museums Without Closing Them Off**\
-`The bold robbery at the Louvre shocked the world, but all museums face the challenge of protecting art and historical treasures.`\
-https://www.nytimes.com/2026/04/18/arts/design/museums-security.html
 
