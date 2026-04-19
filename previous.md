@@ -1,3 +1,11 @@
+**8 Children Killed in Louisiana Shooting, Police Say**\
+`A gunman shot 10 people, killing eight children, in a domestic violence shooting at multiple locations in Shreveport, La., the police said. The victims ranged in age from 1 to 14. The gunman was later fatally shot by officers.`\
+https://www.nytimes.com/video/us/100000010850678/shreveport-louisiana-shooting.html
+
+**Full of Know-How**\
+`Freddie Cheng’s puzzle brings us into the wild.`\
+https://www.nytimes.com/2026/04/19/crosswords/daily-puzzle-2026-04-20.html
+
 **Michigan Gas Clerk Helps Save Kidnapped Teen Girl Who Mouthed ‘Help’**\
 `A fellow student who had witnessed the kidnapping called the police, and other students helped track the girl to a gas station.`\
 https://www.nytimes.com/2026/04/19/us/michigan-gas-clerk-saves-teen.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/19/dining/salsa-macha-pork-noodles-to-transport-
 **Iran Eases Some Internet Restrictions, as Wider Blackout Passes 50th Day**\
 `Critics say Iran may be creating a “tiered internet” model, where access is limited to the politically and economically privileged.`\
 https://www.nytimes.com/2026/04/19/world/middleeast/iran-internet-blackout-50th-day.html
-
-**Times Are Hard. What’s a Teacher to Do?**\
-`Readers respond to an Opinion essay by Frank Bruni. Also: An arch near Arlington; cuts in mental health care; transformation in prison.`\
-https://www.nytimes.com/2026/04/19/opinion/teachers.html
-
-**Ageless Beauty**\
-`We examine a surprising trend on the runways of Paris.`\
-https://www.nytimes.com/2026/04/19/briefing/ageless-beauty.html
 
