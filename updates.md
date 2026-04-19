@@ -1,3 +1,7 @@
+**Iran Eases Some Internet Restrictions, as Wider Blackout Passes 50th Day**\
+`Critics say Iran may be creating a “tiered internet” model, where access is limited to the politically and economically privileged.`\
+https://www.nytimes.com/2026/04/19/world/middleeast/iran-internet-blackout-50th-day.html
+
 **Times Are Hard. What’s a Teacher to Do?**\
 `Readers respond to an Opinion essay by Frank Bruni. Also: An arch near Arlington; cuts in mental health care; transformation in prison.`\
 https://www.nytimes.com/2026/04/19/opinion/teachers.html
