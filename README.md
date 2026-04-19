@@ -1,3 +1,31 @@
+**Dating on the Spectrum**\
+`Inside the making of Netflix’s hit “Love on the Spectrum.”`\
+https://www.nytimes.com/2026/04/19/podcasts/the-daily/dating-on-the-spectrum.html
+
+**The Divine Right of … Presidents?**\
+`It didn’t work out too well for kings, either.`\
+https://www.nytimes.com/2026/04/19/opinion/trum-christ-pope-image.html
+
+**Connections Companion No. 1,044**\
+`Scroll down for hints and conversation about the puzzle for Monday, April 20, 2026.`\
+https://www.nytimes.com/2026/04/19/crosswords/connections-companion-1044.html
+
+**George Washington Understood the Perils of the Office**\
+`He couldn’t get out of political office fast enough.`\
+https://www.nytimes.com/2026/04/19/opinion/george-washington-term-limits.html
+
+**The Warmongers Have Their Greek History All Wrong**\
+`As in Thucydides’ time, the Trump administration’s war posture promises short-term gains but long-run disaster.`\
+https://www.nytimes.com/2026/04/19/opinion/trump-war-thucydides.html
+
+**Wordle Review No. 1,766**\
+`Scroll down for hints and conversation about the puzzle for Monday, April 20, 2026.`\
+https://www.nytimes.com/2026/04/19/crosswords/wordle-review-1766.html
+
+**Strands Sidekick No. 778**\
+`Scroll down for hints and conversation about the puzzle for Monday, April 20, 2026.`\
+https://www.nytimes.com/2026/04/19/crosswords/strands-sidekick-778.html
+
 **Group Efforts Succeed During Milan Design Week**\
 `Collaborations among designers allow for new creations during the event.`\
 https://www.nytimes.com/2026/04/19/arts/design/milan-design-week-inspired-collaborations.html
@@ -49,32 +77,4 @@ https://www.nytimes.com/2026/04/19/business/democrats-tax-cuts-affordability.htm
 **A Mother Remembers One of the ‘Beautiful Six,’ Abducted on Oct. 7**\
 `Rachel Goldberg-Polin’s precise and devastating memoir chronicles the 328 days her son was held hostage in Gaza, and what came after.`\
 https://www.nytimes.com/2026/04/19/books/review/rachel-goldberg-polin-when-we-see-you-again.html
-
-**‘I Was a Young Suburbanite and Scared of Big Cities at the Time’**\
-`A reluctant move to Manhattan, an inside joke at a Bronx coffee cart and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://www.nytimes.com/2026/04/19/nyregion/metropolitan-diary.html
-
-**They’re Young. They’re Conservative. And They’re Split Over the War.**\
-`On college campuses from the Northeast to the Southwest, the conflict in Iran is testing the fealty of young Republicans during the second Trump administration.`\
-https://www.nytimes.com/2026/04/19/nyregion/theyre-young-theyre-conservative-and-theyre-split-over-the-war.html
-
-**When a Friend Dates the One You Loved First**\
-`From reality TV to real life, the emotional fallout of a friend dating an ex can last long after a relationship ends.`\
-https://www.nytimes.com/2026/04/19/style/friend-dates-ex-summer-house-amanda-batula-west-wilson.html
-
-**This Is a Hard Time to Start a Career. These Two Words Can Help.**\
-`Advice on building a rewarding work life, even amid employment gloom.`\
-https://www.nytimes.com/2026/04/19/business/career-graduation-jobs-gen-z.html
-
-**This Design Duo Loves a Challenge**\
-`When tastemakers are having a décor emergency, they bring in Adam Charlap Hyman and Andre Herrero.`\
-https://www.nytimes.com/2026/04/19/style/charlap-hyman-herrero-designers.html
-
-**The Latest Trend in Wedding Fashion: the Bouquet ‘Purse’**\
-`Once popular in the Victorian era, flower “purses,” crafted of faux and real flowers, are being carried down the aisle with a handle or grasped like a clutch.`\
-https://www.nytimes.com/2026/04/19/style/wedding-fashion-bouquet-purse.html
-
-**In Qatar, Trapped Between the U.S. and Iran, War Forced a Reckoning**\
-`The gas-rich Gulf nation is in a state of “strategic shock” after the war dealt a serious blow to its economy, sending ripples around the world.`\
-https://www.nytimes.com/2026/04/19/world/middleeast/qatar-iran-us-war.html
 
