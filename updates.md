@@ -1,3 +1,7 @@
+**8 Children Killed in Domestic Violence Shooting in Louisiana, Police Say**\
+`The authorities said a total of 10 people had been shot in a crime scene in Shreveport that involved multiple sites. The gunman was fatally shot by officers, the police said.`\
+https://www.nytimes.com/2026/04/19/us/shreveport-mass-shooting-dead-children.html
+
 **Can U.S. Blockade Iranian-Linked Ships Anywhere in the World? Yes, But …**\
 `Maritime and military law experts say an expansion of the naval blockade announced last week raises legal and practical questions but has ample historical precedent.`\
 https://www.nytimes.com/2026/04/19/world/middleeast/us-iran-blockade-expansion.html
