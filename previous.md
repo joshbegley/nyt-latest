@@ -1,80 +1,80 @@
-**El joven diplomático que lidera la guerra cultural de Trump contra Europa**\
-`A cinco años de haber salido de la universidad, Samuel Samson ha impulsado la campaña del gobierno de Trump para redefinir la relación de EE. UU. con Europa y estrechar vínculos con la extrema derecha.`\
-https://www.nytimes.com/es/2026/04/19/espanol/mundo/samuel-samson-donald-trump.html
+**At Milan Design Week, Creative Seating Brings Fresh Ideas to the Table**\
+`A crisp couch, a monolithic chair and a playful pouf highlight the ways designers are reimagining how we recline.`\
+https://www.nytimes.com/2026/04/19/arts/design/milan-design-week-seating.html
 
-**Las hembras de los peces rape evolucionaron para tenerlo todo**\
-`Según un nuevo estudio, estos peces de aguas profundas acabaron utilizando señuelos brillantes no solo para pescar, sino también para atraer a sus parejas.`\
-https://www.nytimes.com/es/2026/04/19/espanol/ciencia-y-tecnologia/las-hembras-de-los-peces-rape-evolucionaron-para-tenerlo-todo.html
+**New Yorkers Warm to Mamdani’s Redesign Plan for Iconic Brooklyn Plaza**\
+`The new proposal would make Grand Army Plaza more friendly to pedestrians. It was all the talk at the local farmers’ market on Saturday.`\
+https://www.nytimes.com/2026/04/19/nyregion/grand-army-plaza-mamdani-brooklyn.html
 
-**Reseña de ‘Margo tiene problemas de dinero’: te convertirá en un OnlyFan**\
-`Elle Fanning protagoniza una comedia dramática llena de corazón y mente abierta sobre la exposición en internet y sus complicaciones.`\
-https://www.nytimes.com/es/2026/04/19/espanol/cultura/margo-elle-fanning-onlyfan.html
+**My Boss Is Addled by ChatGPT. Do I Have to Play Along?**\
+`Plus, if you’re feeling old and sidelined at work, this is the fictional character to channel.`\
+https://www.nytimes.com/2026/04/19/business/ai-at-work-creativity-ageism.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/04/19/crosswords/spelling-bee-forum.html
+**Luxury Brands Bet on the Middle East. War Has Damaged Their Plans.**\
+`High-end brands such as Louis Vuitton and Hermès are looking to other regions as sales in Persian Gulf nations plummet.`\
+https://www.nytimes.com/2026/04/19/business/luxury-brands-bet-on-the-middle-east-war-has-damaged-their-plans.html
 
-**Esta vez Lena Dunham decide quedarse en cama**\
-`En “Famesick”, su segundo libro de memorias, Dunham explora, con detalles ingeniosos y desgarradores, los estragos de la fama temprana y de vivir con una enfermedad crónica.`\
-https://www.nytimes.com/es/2026/04/19/espanol/cultura/lena-dunham-famesick-presentacion-libro.html
+**El cartero ucraniano que desafía la guerra para entregar paquetes**\
+`Oleksiy Klochkovsky lleva cuatro años repartiendo en la línea del frente de Ucrania. Mantiene un oído siempre alerta para detectar el peligro de drones y misiles.`\
+https://www.nytimes.com/es/2026/04/19/espanol/mundo/guerra-ucrania-entrega-paquetes.html
 
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/04/19/world/iran-us-war-trump-hormuz/heres-the-latest
+**¿Qué es real y qué ficción sobre el antisemitismo de Roald Dahl representado en ‘Gigante’?**\
+`La obra de Broadway sobre el autor británico de libros populares como ‘Matilda’ o ‘Charlie y la fábrica de chocolate’ se basa en los comentarios de Dahl a lo largo de los años.`\
+https://www.nytimes.com/es/2026/04/19/espanol/cultura/que-es-real-y-que-ficcion-sobre-el-antisemitismo-de-roald-dahl-representado-en-gigante.html
 
-**You Can’t Game Your Way to a Real Education**\
-`Technology must return to its proper place in the classroom — as a supplemental tool rather than the source and summit of education.`\
-https://www.nytimes.com/2026/04/19/opinion/schools-edtech-laptops-games-learning.html
+**They Went Abroad to Save Money. Moving Back Seems Unaffordable.**\
+`Americans have enjoyed lifestyles that would normally be out of reach to them by working remotely in countries with lower living costs.`\
+https://www.nytimes.com/2026/04/19/business/americans-abroad-cheaper-living-costs.html
 
-**The Mind-Altering Power of Lucid Dreaming**\
-`Few people experience lucid dreams, yet those who do are able to appreciate as much asleep as the rest of us do awake.`\
-https://www.nytimes.com/2026/04/19/opinion/lucid-dreams.html
+**Are Democrats Becoming a Party of Tax Cuts?**\
+`As Democrats try to find a way back to power in Washington, some see tax cuts as a quick and easy way to address affordability. The wonks are freaking out.`\
+https://www.nytimes.com/2026/04/19/business/democrats-tax-cuts-affordability.html
 
-**Quote of the Day: After Artemis II, Astronauts and NASA Look to Moon Landing**\
-`Quotation of the Day for Sunday, April 19, 2026.`\
-https://www.nytimes.com/2026/04/19/pageoneplus/quote-of-the-day-after-artemis-ii-astronauts-and-nasa-look-to-moon-landing.html
+**A Mother Remembers One of the ‘Beautiful Six,’ Abducted on Oct. 7**\
+`Rachel Goldberg-Polin’s precise and devastating memoir chronicles the 328 days her son was held hostage in Gaza, and what came after.`\
+https://www.nytimes.com/2026/04/19/books/review/rachel-goldberg-polin-when-we-see-you-again.html
 
-**Why Fashion Suddenly Loves Older Women**\
-`Representation of women of a certain age has never been higher. What’s going on?`\
-https://www.nytimes.com/2026/04/19/style/age-women-fashion.html
+**‘I Was a Young Suburbanite and Scared of Big Cities at the Time’**\
+`A reluctant move to Manhattan, an inside joke at a Bronx coffee cart and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/04/19/nyregion/metropolitan-diary.html
 
-**What to Know About the Bulgarian Election**\
-`The Black Sea country is holding its eighth election in five years, with Bulgarians yearning for the kind of prosperous life enjoyed by other Europeans.`\
-https://www.nytimes.com/2026/04/19/world/europe/bulgaria-elections-what-to-know.html
+**They’re Young. They’re Conservative. And They’re Split Over the War.**\
+`On college campuses from the Northeast to the Southwest, the conflict in Iran is testing the fealty of young Republicans during the second Trump administration.`\
+https://www.nytimes.com/2026/04/19/nyregion/theyre-young-theyre-conservative-and-theyre-split-over-the-war.html
 
-**Hezbollah is Willing to Cooperate With a Cease-Fire with Israel. For Now.**\
-`The leader of the Iran-backed militia said that a more durable peace with Israel would require the fulfillment of a list of long-standing demands.`\
-https://www.nytimes.com/2026/04/18/world/middleeast/hezbollah-cease-fire-israel-lebanon.html
+**When a Friend Dates the One You Loved First**\
+`From reality TV to real life, the emotional fallout of a friend dating an ex can last long after a relationship ends.`\
+https://www.nytimes.com/2026/04/19/style/friend-dates-ex-summer-house-amanda-batula-west-wilson.html
 
-**Universal Genève Returns to the Watch World With New Models**\
-`The brand has undergone a two-year rebuilding after it was acquired by Breitling in 2023.`\
-https://www.nytimes.com/2026/04/18/fashion/universal-geneve-watches.html
+**This Is a Hard Time to Start a Career. These Two Words Can Help.**\
+`Advice on building a rewarding work life, even amid employment gloom.`\
+https://www.nytimes.com/2026/04/19/business/career-graduation-jobs-gen-z.html
 
-**Watches and Wonders Geneva: A Week in Time**\
-`A look at what’s new at the Geneva fair.`\
-https://www.nytimes.com/2026/04/18/fashion/watches-wonders-geneva.html
+**This Design Duo Loves a Challenge**\
+`When tastemakers are having a décor emergency, they bring in Adam Charlap Hyman and Andre Herrero.`\
+https://www.nytimes.com/2026/04/19/style/charlap-hyman-herrero-designers.html
 
-**At Tiffany, Watch Design Inspired by Its Own Jewelry Icons**\
-`The house has translated its paillonné enamel bangle, once favored by Jacqueline Kennedy Onassis, into a limited-edition timepiece.`\
-https://www.nytimes.com/2026/04/18/fashion/tiffany-watch-jackie-bracelet.html
+**The Latest Trend in Wedding Fashion: the Bouquet ‘Purse’**\
+`Once popular in the Victorian era, flower “purses,” crafted of faux and real flowers, are being carried down the aisle with a handle or grasped like a clutch.`\
+https://www.nytimes.com/2026/04/19/style/wedding-fashion-bouquet-purse.html
 
-**Humans Who Used a Bear Suit to Defraud Car Insurers Are Sentenced to Jail**\
-`The California residents collected more than $141,000 in insurance payouts after staging bear attacks on their luxury cars, state officials said.`\
-https://www.nytimes.com/2026/04/18/us/bear-suit-insurance-fraud-california.html
+**In Qatar, Trapped Between the U.S. and Iran, War Forced a Reckoning**\
+`The gas-rich Gulf nation is in a state of “strategic shock” after the war dealt a serious blow to its economy, sending ripples around the world.`\
+https://www.nytimes.com/2026/04/19/world/middleeast/qatar-iran-us-war.html
 
-**Potential 2028 Democrats Audition in Michigan, With a Focus on Trump**\
-`Former Vice President Kamala Harris, Senator Cory Booker of New Jersey and Gov. Andy Beshear of Kentucky spoke at a gathering of party insiders in Detroit, fueling presidential speculation.`\
-https://www.nytimes.com/2026/04/18/us/politics/harris-booker-beshear-2028-president-democrats.html
+**Tackling the Trust Factor in the Secondary Market**\
+`Online start-ups aim to clarify pricing and authenticity for pre-owned and vintage watches.`\
+https://www.nytimes.com/2026/04/19/fashion/secondary-watch-market.html
 
-**These Watches Are Personal, Unique and Made to Keep**\
-`For the ultimate in high-level luxury, buyers are commissioning timepieces that are special enough to be passed down through generations.`\
-https://www.nytimes.com/2026/04/18/fashion/customized-luxury-watches.html
+**Gen Z Protests Around the World: Success or Epic Fail?**\
+`Over the past year or so, young people have rallied across continents to oust old-guard governments. What’s happened since?`\
+https://www.nytimes.com/2026/04/19/world/asia/gen-z-protests-success-fail-nepal-morocco-bangladesh.html
 
-**U.S. Installs a Trump Loyalist to Lead ‘Grand Conspiracy’ Case Into Trump Foes**\
-`A former lawyer for President Trump’s campaign, Joseph diGenova, is said to be planning to split time between Miami and Fort Pierce, where a grand jury overseen by a Trump-favored judge sits.`\
-https://www.nytimes.com/2026/04/18/us/politics/digenova-trump-lawyer-conspiracy.html
+**A Fountain of Creativity from Arid Uzbekistan**\
+`A design exhibition inspired by the Central Asian republic’s cultural traditions makes its debut in the heart of Milan.`\
+https://www.nytimes.com/2026/04/19/arts/uzbekistan-milan-design-week.html
 
-**Activists Tear-Gassed at Failed Raid of Beagle Research Facility**\
-`Some 1,000 protesters tried to storm a private breeding and lab facility in Wisconsin in an effort to steal thousands of beagles that are bred for medical experimentation.`\
-https://www.nytimes.com/2026/04/18/us/beagle-facility-wisconsin-protests-tear-gas.html
+**For this British Watch Brand, the Next Stop Is the Moon**\
+`The billionaire Bill Ackman’s investment in the company might not yet have vastly altered its fortunes, but he’s concerned with more than earthly riches.`\
+https://www.nytimes.com/2026/04/19/fashion/bremont-bill-ackman.html
 
