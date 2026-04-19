@@ -1,7 +1,3 @@
-**Hezbollah is Willing to Cooperate With a Cease-Fire with Israel. For Now.**\
-`The leader of the Iran-backed militia said that a more durable peace with Israel would require the fulfillment of a list of long-standing demands.`\
-https://www.nytimes.com/2026/04/18/world/middleeast/hezbollah-cease-fire-israel-lebanon.html
-
 **Universal Genève Returns to the Watch World With New Models**\
 `The brand has undergone a two-year rebuilding after it was acquired by Breitling in 2023.`\
 https://www.nytimes.com/2026/04/18/fashion/universal-geneve-watches.html
@@ -67,7 +63,7 @@ https://www.nytimes.com/video/world/africa/100000010849760/pope-news-media-trump
 https://www.nytimes.com/2026/04/18/world/americas/us-officials-cuba-trump.html
 
 **Mamdani and Obama Lead Preschool Singalong to Promote Free Child Care**\
-`In their first public appearance together, Mayor Zohran Mamdani and former President Barack Obama met up for some joking and singing on Saturday at a Bronx child care center.`\
+`In their fist public appearance together, Mayor Zohran Mamdani and former President Barack Obama met up for some joking and singing on Saturday at a Bronx child care center.`\
 https://www.nytimes.com/2026/04/18/nyregion/mamdani-obama-meeting-bronx-child-care.html
 
 **Hollywood Talent Giant Draws Suitors Amid Epstein Fallout**\
@@ -77,4 +73,8 @@ https://www.nytimes.com/2026/04/18/business/media/hollywood-talent-agency-casey-
 **El papa dice que los medios malinterpretaron algunos de sus comentarios como críticas a Trump**\
 `El papa León respondió directamente el lunes a un ataque presidencial. Pero desde entonces, dijo, se han malinterpretado algunas de sus declaraciones durante su viaje a África.`\
 https://www.nytimes.com/es/2026/04/18/espanol/mundo/papa-leon-donald-trump.html
+
+**How to Give Yourself a Sun-Kissed Glow**\
+`The singer Victoria Monét, the former Miss World Lisa Hanna and the makeup artist Sir John share their body makeup tips.`\
+https://www.nytimes.com/2026/04/18/t-magazine/body-makeup-glow.html
 
