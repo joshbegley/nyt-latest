@@ -1,3 +1,31 @@
+**Dating on the Spectrum**\
+`Inside the making of Netflix’s hit “Love on the Spectrum.”`\
+https://www.nytimes.com/2026/04/19/podcasts/the-daily/dating-on-the-spectrum.html
+
+**The Divine Right of … Presidents?**\
+`It didn’t work out too well for kings, either.`\
+https://www.nytimes.com/2026/04/19/opinion/trum-christ-pope-image.html
+
+**Connections Companion No. 1,044**\
+`Scroll down for hints and conversation about the puzzle for Monday, April 20, 2026.`\
+https://www.nytimes.com/2026/04/19/crosswords/connections-companion-1044.html
+
+**George Washington Understood the Perils of the Office**\
+`He couldn’t get out of political office fast enough.`\
+https://www.nytimes.com/2026/04/19/opinion/george-washington-term-limits.html
+
+**The Warmongers Have Their Greek History All Wrong**\
+`As in Thucydides’ time, the Trump administration’s war posture promises short-term gains but long-run disaster.`\
+https://www.nytimes.com/2026/04/19/opinion/trump-war-thucydides.html
+
+**Wordle Review No. 1,766**\
+`Scroll down for hints and conversation about the puzzle for Monday, April 20, 2026.`\
+https://www.nytimes.com/2026/04/19/crosswords/wordle-review-1766.html
+
+**Strands Sidekick No. 778**\
+`Scroll down for hints and conversation about the puzzle for Monday, April 20, 2026.`\
+https://www.nytimes.com/2026/04/19/crosswords/strands-sidekick-778.html
+
 **Group Efforts Succeed During Milan Design Week**\
 `Collaborations among designers allow for new creations during the event.`\
 https://www.nytimes.com/2026/04/19/arts/design/milan-design-week-inspired-collaborations.html
