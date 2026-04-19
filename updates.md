@@ -1,3 +1,11 @@
+**Fire Destroys Most of Coastal Village in Malaysia**\
+`A community of stilt homes on the island of Borneo was reduced to ash in an overnight blaze.`\
+https://www.nytimes.com/2026/04/19/world/asia/coastal-village-fire-borneo-malaysia.html
+
+**5 Injured During a Shooting Near University of Iowa Campus**\
+`Three students were among those wounded in the shooting, which took place shortly before 2 a.m. as a fight broke out at the downtown pedestrian mall.`\
+https://www.nytimes.com/2026/04/19/us/university-of-iowa-shooting.html
+
 **3 University of Iowa Students Injured During a Shooting Near Campus**\
 `Shortly before 2 a.m., a fight broke out at the downtown pedestrian mall. When police officers arrived, they heard gunshots.`\
 https://www.nytimes.com/2026/04/19/us/university-of-iowa-shooting.html

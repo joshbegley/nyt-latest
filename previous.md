@@ -1,5 +1,9 @@
-**3 University of Iowa Students Injured During a Shooting Near Campus**\
-`Shortly before 2 a.m., a fight broke out at the downtown pedestrian mall. When police officers arrived, they heard gunshots.`\
+**Fire Destroys Most of Coastal Village in Malaysia**\
+`A community of stilt homes on the island of Borneo was reduced to ash in an overnight blaze.`\
+https://www.nytimes.com/2026/04/19/world/asia/coastal-village-fire-borneo-malaysia.html
+
+**5 Injured During a Shooting Near University of Iowa Campus**\
+`Three students were among those wounded in the shooting, which took place shortly before 2 a.m. as a fight broke out at the downtown pedestrian mall.`\
 https://www.nytimes.com/2026/04/19/us/university-of-iowa-shooting.html
 
 **Salsa macha pork noodles to transport you to spring in Los Angeles**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/19/nyregion/grand-army-plaza-mamdani-brooklyn.ht
 **My Boss Is Addled by ChatGPT. Do I Have to Play Along?**\
 `Plus, if you’re feeling old and sidelined at work, this is the fictional character to channel.`\
 https://www.nytimes.com/2026/04/19/business/ai-at-work-creativity-ageism.html
-
-**Luxury Brands Bet on the Middle East. War Has Damaged Their Plans.**\
-`High-end brands such as Louis Vuitton and Hermès are looking to other regions as sales in Persian Gulf nations plummet.`\
-https://www.nytimes.com/2026/04/19/business/luxury-brands-bet-on-the-middle-east-war-has-damaged-their-plans.html
 
