@@ -1,3 +1,7 @@
+**Elaine Ingham, Who Taught That Soil Is Alive, Dies at 73**\
+`A scientist and leader in the organic farming movement, she popularized the “soil food web,” an understanding that soil is a complex realm of microorganisms.`\
+https://www.nytimes.com/2026/04/19/science/earth/elaine-ingham-dead.html
+
 **Harry Keyishian, Lead Plaintiff in Academic Freedom Case, Dies at 92**\
 `He was one of 5 University of Buffalo faculty members fired for not signing loyalty oaths. In a landmark decision, the Supreme Court ruled in their favor.`\
 https://www.nytimes.com/2026/04/19/us/harry-keyishian-dead.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/19/opinion/trump-war-thucydides.html
 **Wordle Review No. 1,766**\
 `Scroll down for hints and conversation about the puzzle for Monday, April 20, 2026.`\
 https://www.nytimes.com/2026/04/19/crosswords/wordle-review-1766.html
-
-**Strands Sidekick No. 778**\
-`Scroll down for hints and conversation about the puzzle for Monday, April 20, 2026.`\
-https://www.nytimes.com/2026/04/19/crosswords/strands-sidekick-778.html
 
