@@ -1,3 +1,19 @@
+**Democrats Eye a Broader Battlefield to Capture Congress in November**\
+`Weighed down by President Trump’s approval ratings, some Republican incumbents are struggling to raise money while Democrats look for targets like a Tennessee seat south of Nashville.`\
+https://www.nytimes.com/2026/04/19/us/politics/house-battleground-midterms-tennessee.html
+
+**Messy War, Happy Stock Markets**\
+`On the surface, the recent rally doesn’t seem to make sense: Oil prices are high and a peace deal with Iran remains elusive. Here’s what’s going on.`\
+https://www.nytimes.com/2026/04/19/world/iran-war-stock-market-hormuz-attack.html
+
+**Gwendolyn Chisolm, Who Rhymed on Rap’s First Female Hit, Dies at 66**\
+`A chance encounter led to overnight success for the Sequence, a seminal trio whose “Funk You Up” broke barriers.`\
+https://www.nytimes.com/2026/04/19/arts/music/gwendolyn-chisolm-who-rhymed-on-raps-first-female-hit-dies-at-66.html
+
+**Harry Keyishian, Lead Plaintiff in Academic Freedom Case, Dies at 93**\
+`He was one of 5 University of Buffalo faculty members fired for not signing loyalty oaths. In a landmark decision, the Supreme Court ruled in their favor.`\
+https://www.nytimes.com/2026/04/19/us/harry-keyishian-dead.html
+
 **British Counterterrorism Police Investigating Attacks Against Jewish Sites**\
 `The police say they are focusing on a shadowy Islamic group that may have links to Iran and which has claimed responsibility for several recent arson attacks.`\
 https://www.nytimes.com/2026/04/19/world/europe/arson-london-synagogue-antisemitism.html

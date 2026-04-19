@@ -1,3 +1,7 @@
+**Michigan Gas Clerk Helps Save Kidnapped Teen Girl Who Mouthed ‘Help’**\
+`A fellow student who had witnessed the kidnapping called the police, and other students helped track the girl to a gas station.`\
+https://www.nytimes.com/2026/04/19/us/michigan-gas-clerk-saves-teen.html
+
 **Democrats Eye a Broader Battlefield to Capture Congress in November**\
 `Weighed down by President Trump’s approval ratings, some Republican incumbents are struggling to raise money while Democrats look for targets like a Tennessee seat south of Nashville.`\
 https://www.nytimes.com/2026/04/19/us/politics/house-battleground-midterms-tennessee.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/19/opinion/teachers.html
 **Ageless Beauty**\
 `We examine a surprising trend on the runways of Paris.`\
 https://www.nytimes.com/2026/04/19/briefing/ageless-beauty.html
-
-**Dating on the Spectrum**\
-`Inside the making of Netflix’s hit “Love on the Spectrum.”`\
-https://www.nytimes.com/2026/04/19/podcasts/the-daily/dating-on-the-spectrum.html
 

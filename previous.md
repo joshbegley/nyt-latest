@@ -1,3 +1,15 @@
+**Democrats Eye a Broader Battlefield to Capture Congress in November**\
+`Weighed down by President Trump’s approval ratings, some Republican incumbents are struggling to raise money while Democrats look for targets like a Tennessee seat south of Nashville.`\
+https://www.nytimes.com/2026/04/19/us/politics/house-battleground-midterms-tennessee.html
+
+**Messy War, Happy Stock Markets**\
+`On the surface, the recent rally doesn’t seem to make sense: Oil prices are high and a peace deal with Iran remains elusive. Here’s what’s going on.`\
+https://www.nytimes.com/2026/04/19/world/iran-war-stock-market-hormuz-attack.html
+
+**Gwendolyn Chisolm, Who Rhymed on Rap’s First Female Hit, Dies at 66**\
+`A chance encounter led to overnight success for the Sequence, a seminal trio whose “Funk You Up” broke barriers.`\
+https://www.nytimes.com/2026/04/19/arts/music/gwendolyn-chisolm-who-rhymed-on-raps-first-female-hit-dies-at-66.html
+
 **Can U.S. Blockade Iranian-Linked Ships Anywhere in the World? Yes, But …**\
 `Maritime and military law experts say an expansion of the naval blockade announced last week raises legal and practical questions but has ample historical precedent.`\
 https://www.nytimes.com/2026/04/19/world/middleeast/us-iran-blockade-expansion.html
@@ -10,7 +22,7 @@ https://www.nytimes.com/2026/04/19/world/middleeast/energy-secretary-gas-prices.
 `A scientist and leader in the organic farming movement, she popularized the “soil food web,” an understanding that soil is a complex realm of microorganisms.`\
 https://www.nytimes.com/2026/04/19/science/earth/elaine-ingham-dead.html
 
-**Harry Keyishian, Lead Plaintiff in Academic Freedom Case, Dies at 92**\
+**Harry Keyishian, Lead Plaintiff in Academic Freedom Case, Dies at 93**\
 `He was one of 5 University of Buffalo faculty members fired for not signing loyalty oaths. In a landmark decision, the Supreme Court ruled in their favor.`\
 https://www.nytimes.com/2026/04/19/us/harry-keyishian-dead.html
 
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/19/briefing/ageless-beauty.html
 **Dating on the Spectrum**\
 `Inside the making of Netflix’s hit “Love on the Spectrum.”`\
 https://www.nytimes.com/2026/04/19/podcasts/the-daily/dating-on-the-spectrum.html
-
-**I Missed the Part About the Divine Right of Presidents**\
-`It didn’t work out too well for kings, either.`\
-https://www.nytimes.com/2026/04/19/opinion/trum-christ-pope-image.html
-
-**Connections Companion No. 1,044**\
-`Scroll down for hints and conversation about the puzzle for Monday, April 20, 2026.`\
-https://www.nytimes.com/2026/04/19/crosswords/connections-companion-1044.html
-
-**The Founding Father Has Issues With the Office of the Presidency**\
-`He couldn’t get out of political office fast enough.`\
-https://www.nytimes.com/2026/04/19/opinion/george-washington-term-limits.html
 
