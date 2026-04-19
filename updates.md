@@ -1,3 +1,7 @@
+**Harry Keyishian, Lead Plaintiff in Academic Freedom Case, Dies at 92**\
+`He was one of 5 University of Buffalo faculty members fired for not signing loyalty oaths. In a landmark decision, the Supreme Court ruled in their favor.`\
+https://www.nytimes.com/2026/04/19/us/harry-keyishian-dead.html
+
 **U.S. and Iran Accuse Each Other of Cease-Fire Violations in Strait of Hormuz**\
 `President Trump accused Iran of firing on ships passing through the strait, while Iran said the U.S. blockade violated their deal and amounted to a war crime.`\
 https://www.nytimes.com/2026/04/19/world/middleeast/us-iran-cease-fire-violations-strait-of-hormuz.html
