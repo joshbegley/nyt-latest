@@ -1,3 +1,11 @@
+**8 Children Killed in Louisiana Domestic Violence Shooting, Police Say**\
+`The authorities said a total of 10 people had been shot in a crime scene in Shreveport that involved multiple sites. The gunman was fatally shot by officers.`\
+https://www.nytimes.com/2026/04/19/us/shreveport-mass-shooting-dead-children.html
+
+**British Counterterrorism Police Investigating Attacks Against Jewish Sites**\
+`The police say they are focusing on a shadowy Islamic group that may have links to Iran and which has claimed responsibility for several recent arson attacks.`\
+https://www.nytimes.com/2026/04/19/world/europe/arson-london-synagogue-jew-antsemitism.html
+
 **Fire Destroys Most of Coastal Village in Malaysia**\
 `A community of stilt homes on the island of Borneo was reduced to ash in an overnight blaze.`\
 https://www.nytimes.com/2026/04/19/world/asia/coastal-village-fire-borneo-malaysia.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/19/arts/design/milan-design-week-revivals.html
 **At Milan Design Week, Creative Seating Brings Fresh Ideas to the Table**\
 `A crisp couch, a monolithic chair and a playful pouf highlight the ways designers are reimagining how we recline.`\
 https://www.nytimes.com/2026/04/19/arts/design/milan-design-week-seating.html
-
-**New Yorkers Warm to Mamdani’s Redesign Plan for Iconic Brooklyn Plaza**\
-`The new proposal would make Grand Army Plaza more friendly to pedestrians. It was all the talk at the local farmers’ market on Saturday.`\
-https://www.nytimes.com/2026/04/19/nyregion/grand-army-plaza-mamdani-brooklyn.html
-
-**My Boss Is Addled by ChatGPT. Do I Have to Play Along?**\
-`Plus, if you’re feeling old and sidelined at work, this is the fictional character to channel.`\
-https://www.nytimes.com/2026/04/19/business/ai-at-work-creativity-ageism.html
 

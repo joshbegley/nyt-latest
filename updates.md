@@ -1,3 +1,11 @@
+**8 Children Killed in Louisiana Domestic Violence Shooting, Police Say**\
+`The authorities said a total of 10 people had been shot in a crime scene in Shreveport that involved multiple sites. The gunman was fatally shot by officers.`\
+https://www.nytimes.com/2026/04/19/us/shreveport-mass-shooting-dead-children.html
+
+**British Counterterrorism Police Investigating Attacks Against Jewish Sites**\
+`The police say they are focusing on a shadowy Islamic group that may have links to Iran and which has claimed responsibility for several recent arson attacks.`\
+https://www.nytimes.com/2026/04/19/world/europe/arson-london-synagogue-jew-antsemitism.html
+
 **Fire Destroys Most of Coastal Village in Malaysia**\
 `A community of stilt homes on the island of Borneo was reduced to ash in an overnight blaze.`\
 https://www.nytimes.com/2026/04/19/world/asia/coastal-village-fire-borneo-malaysia.html
