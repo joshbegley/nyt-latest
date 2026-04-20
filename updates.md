@@ -1,3 +1,19 @@
+**U.S. Has Turned Back 27 Ships Since Strait of Hormuz Blockade Started**\
+`Marines are searching thousands of containers aboard the Touska, an Iranian cargo ship that the Navy disabled and seized on Sunday.`\
+https://www.nytimes.com/2026/04/20/us/politics/military-blockade-iran-strait-hormuz.html
+
+**With Orban Out, the Pianist András Schiff Plans a Return to Hungary**\
+`Schiff has said he won’t perform in countries with what he calls strongmen leaders, a list that still includes the United States and Russia.`\
+https://www.nytimes.com/2026/04/20/arts/music/andras-schiff-piano-viktor-orban-hungary.html
+
+**House Ethics Panel Defends Handling of Sexual Misconduct Allegations**\
+`In urging victims to step forward, the secretive panel in charge of investigating charges of misconduct by members of Congress acknowledged limits that could allow offenses to go unaddressed.`\
+https://www.nytimes.com/2026/04/20/us/politics/house-ethics-sexual-misconduct.html
+
+**D4vd Charged With Murder of Girl Whose Remains Were Found in His Car**\
+`The singer is accused of committing unlawful sexual acts against Celeste Rivas Hernandez, killing her because she was a witness to an investigation, and mutilating her body.`\
+https://www.nytimes.com/2026/04/20/arts/music/d4vd-murder-charges-celeste-rivas-hernandez.html
+
 **Surprise! Coachella Finds a New Identity**\
 `What started in the late ’90s as a rock and dance-music festival has evolved into a platform where social media, spectacle and unexpected guests make the headlines.`\
 https://www.nytimes.com/2026/04/20/arts/music/coachella-guests-madonna-sabrina-carpenter.html
