@@ -1,3 +1,19 @@
+**Un soldado israelí en Líbano destrozó una estatua de Jesús**\
+`El ejército de Israel está investigando al soldado. El primer ministro israelí, Benjamín Netanyahu, lamentó cualquier daño causado a “los creyentes de Líbano y de todo el mundo”.`\
+https://www.nytimes.com/es/2026/04/20/espanol/mundo/soldado-israel-jesus-libano.html
+
+**Blue Origin’s Failure May Hamstring NASA’s Moon Plans**\
+`The space agency is counting on Jeff Bezos’ company to deliver equipment essential to the next moon landing, only two years away.`\
+https://www.nytimes.com/2026/04/20/science/blue-origins-moon-nasa.html
+
+**Scientist Irritated by Lab Colleague Accused in Poisoning Attempt**\
+`The scientist, at the University of Wisconsin-Madison, had built up grievances against his co-worker after five years of working together, court documents said.`\
+https://www.nytimes.com/2026/04/20/us/university-wisconsin-coworkers-poison.html
+
+**Labor Secretary Steps Down Amid Internal Investigation**\
+`Lori Chavez-DeRemer was facing multiple scandals and an internal inquiry into charges of misconduct.`\
+https://www.nytimes.com/2026/04/20/us/politics/lori-chavez-deremer-labor-secretary-steps-down.html
+
 **Amazon Plans to Invest Up to $25 Billion in Anthropic**\
 `Anthropic also committed to spending $100 billion on Amazon technologies that can help build and deploy A.I. systems.`\
 https://www.nytimes.com/2026/04/20/technology/amazon-anthropic-investment.html

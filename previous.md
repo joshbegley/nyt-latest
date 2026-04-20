@@ -1,3 +1,11 @@
+**Un soldado israelí en Líbano destrozó una estatua de Jesús**\
+`El ejército de Israel está investigando al soldado. El primer ministro israelí, Benjamín Netanyahu, lamentó cualquier daño causado a “los creyentes de Líbano y de todo el mundo”.`\
+https://www.nytimes.com/es/2026/04/20/espanol/mundo/soldado-israel-jesus-libano.html
+
+**Blue Origin’s Failure May Hamstring NASA’s Moon Plans**\
+`The space agency is counting on Jeff Bezos’ company to deliver equipment essential to the next moon landing, only two years away.`\
+https://www.nytimes.com/2026/04/20/science/blue-origins-moon-nasa.html
+
 **Amazon Plans to Invest Up to $25 Billion in Anthropic**\
 `Anthropic also committed to spending $100 billion on Amazon technologies that can help build and deploy A.I. systems.`\
 https://www.nytimes.com/2026/04/20/technology/amazon-anthropic-investment.html
@@ -34,7 +42,7 @@ https://www.nytimes.com/es/2026/04/20/espanol/america-latina/mexico-accidente-in
 `Also, JD Vance is set to travel to Pakistan for peace talks. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/04/20/briefing/a-new-apple-ceo.html
 
-**Scientist Charged With Trying to Poison University Lab Colleague**\
+**Scientist Irritated by Lab Colleague Accused in Poisoning Attempt**\
 `The scientist, at the University of Wisconsin-Madison, had built up grievances against his co-worker after five years of working together, court documents said.`\
 https://www.nytimes.com/2026/04/20/us/university-wisconsin-coworkers-poison.html
 
@@ -59,7 +67,7 @@ https://www.nytimes.com/video/science/earth/100000010852236/parrot-disabled-beak
 https://www.nytimes.com/2026/04/20/technology/apple-ceos-photos.html
 
 **Labor Secretary Steps Down Amid Internal Investigation**\
-`Lori Chavez-DeRemer, President Trump’s labor secretary, was facing multiple scandals and an internal inquiry into charges of misconduct.`\
+`Lori Chavez-DeRemer was facing multiple scandals and an internal inquiry into charges of misconduct.`\
 https://www.nytimes.com/2026/04/20/us/politics/lori-chavez-deremer-labor-secretary-steps-down.html
 
 **Democrats Once Loathed Gerrymandering. Now They’re Pushing for It.**\
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/20/us/politics/virginia-gerrymandering-referendu
 **Iran’s Nonnuclear Deterrent**\
 `Disrupting the Strait of Hormuz turned out to be a powerful weapon. It might be a new way for Iran to keep adversaries at bay, even without a nuclear program.`\
 https://www.nytimes.com/2026/04/20/world/iran-hormuz-talks-saudi.html
-
-**Facing Hard-Liners at Home and Bluster From Trump, Iran Sends Mixed Signals on Peace Talks**\
-`Publicly, Iranian officials refuse to confirm a second round of negotiations with the United States, even as they privately say they are making plans to attend.`\
-https://www.nytimes.com/2026/04/20/world/middleeast/facing-hard-liners-at-home-and-bluster-from-trump-iran-sends-mixed-signals-on-peace-talks.html
-
-**No Nation Is Spared in This War**\
-`The Iran war is just the latest setback in the past several years to low-income and lower-middle-income countries.`\
-https://www.nytimes.com/2026/04/20/opinion/trade-poor-countries-imf-iran-war.html
 
