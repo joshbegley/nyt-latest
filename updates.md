@@ -1,3 +1,19 @@
+**México investigará el rol de seguridad de 2 funcionarios de EE. UU. que murieron en un accidente**\
+`La presidenta Claudia Sheinbaum señaló que la investigación se centraría en determinar si la participación de los estadounidenses en una operación violaba las leyes de seguridad de México, no en el accidente.`\
+https://www.nytimes.com/es/2026/04/20/espanol/america-latina/mexico-accidente-investigadores-laboratorio-drogas.html
+
+**A New Apple C.E.O.**\
+`Also, JD Vance is set to travel to Pakistan for peace talks. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/04/20/briefing/a-new-apple-ceo.html
+
+**Scientist Charged With Trying to Poison University Lab Colleague**\
+`The scientist, at the University of Wisconsin-Madison, had built up grievances against his co-worker after five years of working together, court documents said.`\
+https://www.nytimes.com/2026/04/20/us/university-wisconsin-coworkers-poison.html
+
+**Gunman Kills Canadian Tourist and Wounds Others at Mexico’s Teotihuacán Pyramids**\
+`The gunman opened fire at the famous archaeological site just outside Mexico City before killing himself, the authorities said.`\
+https://www.nytimes.com/2026/04/20/world/americas/mexico-shooting-pyramids-teotihuacan.html
+
 **George Ariyoshi, 100, America’s First Governor of Asian Descent, Dies**\
 `A Democrat, he served three terms as Hawaii’s governor (1974-86), rising out of a tough district of Honolulu. He tried to diversify an economy heavily dependent on tourism.`\
 https://www.nytimes.com/2026/04/20/us/politics/george-ariyoshi-dead.html

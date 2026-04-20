@@ -1,3 +1,15 @@
+**México investigará el rol de seguridad de 2 funcionarios de EE. UU. que murieron en un accidente**\
+`La presidenta Claudia Sheinbaum señaló que la investigación se centraría en determinar si la participación de los estadounidenses en una operación violaba las leyes de seguridad de México, no en el accidente.`\
+https://www.nytimes.com/es/2026/04/20/espanol/america-latina/mexico-accidente-investigadores-laboratorio-drogas.html
+
+**A New Apple C.E.O.**\
+`Also, JD Vance is set to travel to Pakistan for peace talks. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/04/20/briefing/a-new-apple-ceo.html
+
+**Scientist Charged With Trying to Poison University Lab Colleague**\
+`The scientist, at the University of Wisconsin-Madison, had built up grievances against his co-worker after five years of working together, court documents said.`\
+https://www.nytimes.com/2026/04/20/us/university-wisconsin-coworkers-poison.html
+
 **George Ariyoshi, 100, America’s First Governor of Asian Descent, Dies**\
 `A Democrat, he served three terms as Hawaii’s governor (1974-86), rising out of a tough district of Honolulu. He tried to diversify an economy heavily dependent on tourism.`\
 https://www.nytimes.com/2026/04/20/us/politics/george-ariyoshi-dead.html
@@ -58,19 +70,7 @@ https://www.nytimes.com/2026/04/20/arts/design/sandy-rodriguez-painting.html
 `Recently, as artists and architects have turned their attention outdoors, they have started putting their creative chops to work — for the avians among us.`\
 https://www.nytimes.com/2026/04/20/arts/design/design-birdhouse.html
 
-**Canadian Tourist Is Shot Dead at Mexico’s Teotihuacán Pyramids, Officials Say**\
-`The gunman opened fire at the famous archaeological site just outside Mexico City, wounding at least six others, before killing himself, the authorities said.`\
+**Gunman Kills Canadian Tourist and Wounds Others at Mexico’s Teotihuacán Pyramids**\
+`The gunman opened fire at the famous archaeological site just outside Mexico City before killing himself, the authorities said.`\
 https://www.nytimes.com/2026/04/20/world/americas/mexico-shooting-pyramids-teotihuacan.html
-
-**Journalism Essentials: How to Gather and Verify Facts**\
-`In the second installment of our media literacy newsletter from The School of The New York Times, we explain how journalists track down facts.`\
-https://www.nytimes.com/2026/04/20/learning/journalism-essentials-how-to-gather-and-verify-facts.html
-
-**U.S. and Iran Peace Talks Appear on Track to Resume**\
-`With the two-week cease-fire almost over, Vice President JD Vance was expected to head to Pakistan on Tuesday for the second round of negotiations.`\
-https://www.nytimes.com/2026/04/20/world/middleeast/iran-us-talks.html
-
-**Barbara Hatch Rosenberg, Who Joined Hunt for Anthrax Culprit, Dies at 97**\
-`An expert on biological weapons, she emerged as an influential voice during the F.B.I.’s rocky search for a suspect after the deadly anthrax attacks of 2001.`\
-https://www.nytimes.com/2026/04/20/us/barbara-hatch-rosenberg-dead.html
 
