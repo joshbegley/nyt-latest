@@ -1,3 +1,7 @@
+**To Play a Man With Tourette’s, He Swapped the Script for Real Life**\
+`Robert Aramayo immersed himself in John Davidson’s life to prepare for the movie “I Swear.” It earned Aramayo a BAFTA, but Davidson’s tics became the talking point.`\
+https://www.nytimes.com/2026/04/20/movies/robert-aramayo-i-swear.html
+
 **The Peace Rally Gets Derailed**\
 `Oil prices are climbing and global stocks are falling as investors worry about the prospects for a speedy end to the war in the Middle East.`\
 https://www.nytimes.com/2026/04/20/business/dealbook/iran-peace-rally-stocks.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/20/upshot/democrats-senate-midterms-chances.html
 **Why Gas Prices Go Up Fast and Take So Long to Fall**\
 `Fuel station owners take some of the hit for consumers when oil prices surge. On the way down, they try to get their money back.`\
 https://www.nytimes.com/2026/04/20/business/economy/gas-stations-pricing.html
-
-**Northeast Swings From 90 Degrees to Freezing Cold in Just a Few Days**\
-`Central Park and other spots around the region set record-high temperatures last week. Freeze watches were in place on Monday. What’s going on?`\
-https://www.nytimes.com/2026/04/20/weather/cold-temperatures-forecast.html
 
