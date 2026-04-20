@@ -1,3 +1,7 @@
+**A Rocky (and Muddy) Ski Season Concludes in Colorado**\
+`Faced with a devastating snow drought and record-high March temperatures, some resorts closed early. But at Aspen Mountain, die-hards celebrated the last day of the season on Sunday.`\
+https://www.nytimes.com/2026/04/20/us/aspen-mountain-closing-day.html
+
 **Opponents Sue to Block Mayor’s Plan to Move Shelter to East Village**\
 `A lawsuit challenges the Mamdani administration’s declaration that closing the 30th Street Shelter was an emergency and was not subject to public notice and other requirements.`\
 https://www.nytimes.com/2026/04/20/nyregion/bellevue-homeless-shelter-lawsuit.html
@@ -38,7 +42,7 @@ https://www.nytimes.com/video/science/earth/100000010852236/parrot-disabled-beak
 `Apple’s corner office has been a seat from which executives like Steve Jobs changed how we interact with technology.`\
 https://www.nytimes.com/2026/04/20/technology/apple-ceos-photos.html
 
-**Labor Secretary Steps Down Amid Internal Investigation**\
+**n Labor Secretary Steps Down Amid Internal Investigation**\
 `Lori Chavez-DeRemer, President Trump’s labor secretary, was facing multiple scandals and an internal inquiry into charges of misconduct.`\
 https://www.nytimes.com/2026/04/20/us/politics/lori-chavez-deremer-labor-secretary-steps-down.html
 
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/04/20/business/uber-sexual-assault-verdict-bellweth
 **Tim Cook Will Step Down as Apple C.E.O.**\
 `The longtime leader of the iPhone maker will be replaced by John Ternus, the company’s head of hardware engineering.`\
 https://www.nytimes.com/2026/04/20/technology/tim-cook-apple-ceo-steps-down.html
-
-**An Artist Devoted to the Origins of Paints**\
-`Sandy Rodriguez is a painter but also, on some level, a scientist, an art historian, a botanist, an outdoorswoman, and maybe even an alchemist.`\
-https://www.nytimes.com/2026/04/20/arts/design/sandy-rodriguez-painting.html
 

@@ -1,3 +1,11 @@
+**A Rocky (and Muddy) Ski Season Concludes in Colorado**\
+`Faced with a devastating snow drought and record-high March temperatures, some resorts closed early. But at Aspen Mountain, die-hards celebrated the last day of the season on Sunday.`\
+https://www.nytimes.com/2026/04/20/us/aspen-mountain-closing-day.html
+
+**n Labor Secretary Steps Down Amid Internal Investigation**\
+`Lori Chavez-DeRemer, President Trump’s labor secretary, was facing multiple scandals and an internal inquiry into charges of misconduct.`\
+https://www.nytimes.com/2026/04/20/us/politics/lori-chavez-deremer-labor-secretary-steps-down.html
+
 **Opponents Sue to Block Mayor’s Plan to Move Shelter to East Village**\
 `A lawsuit challenges the Mamdani administration’s declaration that closing the 30th Street Shelter was an emergency and was not subject to public notice and other requirements.`\
 https://www.nytimes.com/2026/04/20/nyregion/bellevue-homeless-shelter-lawsuit.html
