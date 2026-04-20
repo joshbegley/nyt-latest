@@ -1,3 +1,7 @@
+**A Leaner Saudi Arabia Turns From Grandiose Plans to Pragmatism**\
+`A decade after Mohammed bin Salman unveiled his “Vision 2030” program to transform the country’s economy, the kingdom is facing financial strains and reassessing its trajectory.`\
+https://www.nytimes.com/2026/04/20/world/middleeast/saudi-arabia-vision-pragmatism.html
+
 **Javier Milei quiere cambiar la mentalidad de los argentinos**\
 `El presidente de derecha de Argentina ha logrado controlar la inflación descontrolada del país. Ahora quiere transformar sus valores.`\
 https://www.nytimes.com/es/2026/04/20/espanol/america-latina/argentina-milei-ideologia-mentalidad.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/04/20/nyregion/nyc-budgeting-affordabil
 **Pakistan’s Leaders Try to Contain Rising Anger Over Iran War at Home**\
 `With deep spiritual ties to Iran, Pakistan’s minority Shiites are angry about the killing of Iran’s top clerics in U.S.-Israeli strikes, complicating Pakistan’s role as mediator.`\
 https://www.nytimes.com/2026/04/20/world/asia/pakistan-shiites-iran-diplomacy.html
-
-**Big Names Wait in the Wings as Virginians Decide Their House Maps**\
-`With Virginians voting Tuesday to accept or reject redistricting, candidates from both parties await the voters’ judgment to decide whether — or where — to run for Congress.`\
-https://www.nytimes.com/2026/04/20/us/elections/virginia-redistricting-candidates.html
 
