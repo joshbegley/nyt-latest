@@ -1,3 +1,11 @@
+**California Accuses Amazon of Price Fixing in Legal Filing**\
+`The state claimed the e-commerce giant pressured brands like Levi’s and Hanes to ask competing retailers to raise prices on certain products.`\
+https://www.nytimes.com/2026/04/20/technology/amazon-antitrust-suit-california.html
+
+**The Onion Has a New Plan to Take Over Infowars**\
+`A new deal, which would allow The Onion to use the Infowars name and website address, must be approved by a Texas judge.`\
+https://www.nytimes.com/2026/04/20/business/infowars-alex-jones-the-onion.html
+
 **Prosecutors Will Charge D4vd With Murder of Teenage Girl**\
 `The singer was arrested last week in connection with the death of Celeste Rivas Hernandez, whose remains were found in the trunk of his Tesla.`\
 https://www.nytimes.com/2026/04/20/arts/music/d4vd-murder-charges-celeste-rivas-hernandez.html

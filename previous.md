@@ -1,3 +1,11 @@
+**California Accuses Amazon of Price Fixing in Legal Filing**\
+`The state claimed the e-commerce giant pressured brands like Levi’s and Hanes to ask competing retailers to raise prices on certain products.`\
+https://www.nytimes.com/2026/04/20/technology/amazon-antitrust-suit-california.html
+
+**The Onion Has a New Plan to Take Over Infowars**\
+`A new deal, which would allow The Onion to use the Infowars name and website address, must be approved by a Texas judge.`\
+https://www.nytimes.com/2026/04/20/business/infowars-alex-jones-the-onion.html
+
 **Prosecutors Will Charge D4vd With Murder of Teenage Girl**\
 `The singer was arrested last week in connection with the death of Celeste Rivas Hernandez, whose remains were found in the trunk of his Tesla.`\
 https://www.nytimes.com/2026/04/20/arts/music/d4vd-murder-charges-celeste-rivas-hernandez.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/interactive/2026/04/20/books/review/added-lines-quiz.htm
 **How Bruce the Parrot Landed Atop the Pecking Order, Without a Beak**\
 `The kea gained fame for learning to use a pebble to groom himself. Scientists were astounded by his next innovation.`\
 https://www.nytimes.com/2026/04/20/science/bruce-kea-beak-alpha.html
-
-**Justices to Hear Case on Catholic Preschools That Reject Children of Gay Parents**\
-`Catholic preschools in Colorado that decline to enroll families with L.G.B.T.Q. children or parents sued to participate in a state-funded program.`\
-https://www.nytimes.com/2026/04/20/us/politics/supreme-court-catholic-preschools.html
-
-**A Decisive Win Raises Bulgarians’ Hopes for Change**\
-`An election victory by a former president, Rumen Radev, gives the country a chance for stability and to clean out the corruption that has stymied its growth.`\
-https://www.nytimes.com/2026/04/20/world/europe/bulgaria-election-result-rumen-radev.html
 
