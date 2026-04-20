@@ -1,3 +1,19 @@
+**Mother and 6 Children Die in Explosion at Their Pennsylvania Home**\
+`The blast on Sunday morning led to a fire that consumed the residence in a rural community northwest of Harrisburg, the authorities said.`\
+https://www.nytimes.com/2026/04/20/us/mother-six-children-explosion-pennsylvania.html
+
+**Una turista canadiense muere en un tiroteo en las pirámides de Teotihuacán**\
+`El hombre armado abrió fuego en el yacimiento arqueológico de Teotihuacán, a las afueras de Ciudad de México, antes de quitarse la vida.`\
+https://www.nytimes.com/es/2026/04/20/espanol/america-latina/teotihuacan-tiroteo-balacera-mexico.html
+
+**Labor Secretary Steps Down Amid Internal Investigation**\
+`Lori Chavez-DeRemer, President Trump’s labor secretary, was facing multiple scandals and an internal inquiry into charges of misconduct.`\
+https://www.nytimes.com/2026/04/20/us/politics/lori-chavez-deremer-labor-secretary-steps-down.html
+
+**Facing Hard-Liners at Home and Bluster From Trump, Iran Sends Mixed Signals on Peace Talks**\
+`Publicly, Iranian officials refuse to confirm a second round of negotiations with the United States, even as they privately say they are making plans to attend.`\
+https://www.nytimes.com/2026/04/20/world/middleeast/facing-hard-liners-at-home-and-bluster-from-trump-iran-sends-mixed-signals-on-peace-talks.html
+
 **Four Cabinet and other senior officials have now stepped down from Trump’s Cabinet.**\
 ``\
 https://www.nytimes.com/live/2026/04/20/us/trump-news/four-cabinet-and-other-senior-officials-have-now-stepped-down-from-trumps-cabinet
