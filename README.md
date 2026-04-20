@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/20/crosswords/spelling-bee-forum.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/20/world/iran-us-war-trump-hormuz/heres-the-latest
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/world/asia/100000010850406/running-robot-half-mara
 **U.S. Fires on Iranian Cargo Ship in Arabian Sea**\
 `The military said it had disabled the vessel after it ignored repeated warnings to stop, amid a U.S. blockade of Iranian ports. Marines boarded the ship and seized it.`\
 https://www.nytimes.com/2026/04/19/us/us-military-iranian-ship.html
-
-**Moya Brennan, Whose Gaelic Pop Band Won Worldwide Fame, Dies at 73**\
-`Clannad consisted of her uncles, siblings and, briefly, her sister Enya. In a memoir, Ms. Brennan described a stormy youth followed by a Christian reawakening.`\
-https://www.nytimes.com/2026/04/19/obituaries/moya-brennan-dead.html
 
