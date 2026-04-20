@@ -1,3 +1,7 @@
+**Prosecutors Will Charge D4vd With Murder of Teenage Girl**\
+`The singer was arrested last week in connection with the death of Celeste Rivas Hernandez, whose remains were found in the trunk of his Tesla.`\
+https://www.nytimes.com/2026/04/20/arts/music/d4vd-murder-charges-celeste-rivas-hernandez.html
+
 **In Lebanon, residents of the south make their way home over signs of war.**\
 `Some of the million people displaced by the latest war between Israel and Hezbollah in Lebanon are flooding back home since a 10-day truce between Israel and Lebanon took hold.`\
 https://www.nytimes.com/live/2026/04/20/world/iran-us-war-trump-hormuz/in-lebanon-residents-of-the-south-make-their-way-home-over-signs-of-war
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/20/us/politics/supreme-court-catholic-preschools
 **A Decisive Win Raises Bulgarians’ Hopes for Change**\
 `An election victory by a former president, Rumen Radev, gives the country a chance for stability and to clean out the corruption that has stymied its growth.`\
 https://www.nytimes.com/2026/04/20/world/europe/bulgaria-election-result-rumen-radev.html
-
-**Strait of Hormuz Traffic Is at a Standstill Again**\
-`Few vessels are crossing after Iran reversed course on reopening the vital waterway and ships came under attack.`\
-https://www.nytimes.com/2026/04/20/world/middleeast/strait-hormuz-traffic-ships-iran-us.html
 
