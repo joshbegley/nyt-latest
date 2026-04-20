@@ -1,3 +1,7 @@
+**A Brisk Day in Boston, for the Weather and Runners Alike**\
+`Boston held its 130th Marathon on an unseasonably chilly day that was endured by the crowd and relished by the athletes.`\
+https://www.nytimes.com/2026/04/20/us/boston-marathon-2026.html
+
 **Prosecutors to Charge D4vd With Murder of Teenage Girl**\
 `The singer is accused of committing unlawful sexual acts against Celeste Rivas Hernandez, killing her because she was a witness into an investigation, and mutilating her body.`\
 https://www.nytimes.com/2026/04/20/arts/music/d4vd-murder-charges-celeste-rivas-hernandez.html
