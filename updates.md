@@ -1,3 +1,7 @@
+**Iranian-Flagged Ship Seized by U.S. Forces Was Under Sanctions**\
+`The container ship, the Touska, was sanctioned by the U.S. Treasury over links to Iranian weapons programs.`\
+https://www.nytimes.com/2026/04/20/world/middleeast/touska-iran-ship-sanctions.html
+
 **Patrick Muldoon, Actor on ‘Days of Our Lives’ and ‘Melrose Place,’ Dies at 57**\
 `He played the handsome Austin Reed on the NBC daytime soap opera “Days of Our Lives” in more than 400 episodes.`\
 https://www.nytimes.com/2026/04/20/arts/television/patrick-muldoon-dead.html
