@@ -1,3 +1,15 @@
+**What We Know About the Killing of 8 Children in Louisiana**\
+`The shooting spree on Sunday also left two adults wounded.`\
+https://www.nytimes.com/2026/04/20/us/shreveport-louisiana-killings-shamar-elkins.html
+
+**Gotti Grandson Is Sentenced to 15 Months for Covid Relief Fraud**\
+`Carmine G. Agnello Jr. had pleaded guilty to fraudulently collecting more than $1 million in small-business loans, some of which he invested in cryptocurrency.`\
+https://www.nytimes.com/2026/04/20/nyregion/carmine-agnello-john-gotti-sentenced-fraud.html
+
+**#MeToo and the Fight to End Sex Abuse in Congress**\
+`Readers discuss Eric Swalwell and sexual abuse in Congress. Also: Waning MAGA pride; ice cream and a lap cat as distractions.`\
+https://www.nytimes.com/2026/04/20/opinion/eric-swalwell-metoo.html
+
 **#MeToo and the Fight to End Sex Abuse in Congress**\
 `Readers discuss Eric Swalwell and #MeToo. Also: Waning MAGA pride; ice cream and a lap cat as distractions.`\
 https://www.nytimes.com/2026/04/20/opinion/eric-swalwell-metoo.html

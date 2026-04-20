@@ -1,3 +1,7 @@
+**¿EE. UU. puede bloquear barcos vinculados a Irán en cualquier parte del mundo?**\
+`Expertos en derecho marítimo y militar afirman que la ampliación del bloqueo naval anunciada la semana pasada plantea interrogantes jurídicas y prácticas, pero tiene precedentes históricos.`\
+https://www.nytimes.com/es/2026/04/20/espanol/mundo/eeuu-bloqueo-estrecho-ormuz-iran.html
+
 **What We Know About the Killing of 8 Children in Louisiana**\
 `The shooting spree on Sunday also left two adults wounded.`\
 https://www.nytimes.com/2026/04/20/us/shreveport-louisiana-killings-shamar-elkins.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/20/business/dealbook/iran-peace-rally-stocks.htm
 **Stolen Letters That John Keats Sent to His Beloved Are Found**\
 `The eight letters by the 19th-century Romantic poet to his fiancée, Fanny Brawne, were taken decades ago from a Whitney family estate on Long Island.`\
 https://www.nytimes.com/2026/04/20/arts/john-keats-letters-fanny-brawne-stolen.html
-
-**A Supreme Court Scoop**\
-`We go behind the scenes at the nation’s highest court.`\
-https://www.nytimes.com/2026/04/20/briefing/a-supreme-court-scoop.html
 

@@ -1,5 +1,13 @@
+**What We Know About the Killing of 8 Children in Louisiana**\
+`The shooting spree on Sunday also left two adults wounded.`\
+https://www.nytimes.com/2026/04/20/us/shreveport-louisiana-killings-shamar-elkins.html
+
+**Gotti Grandson Is Sentenced to 15 Months for Covid Relief Fraud**\
+`Carmine G. Agnello Jr. had pleaded guilty to fraudulently collecting more than $1 million in small-business loans, some of which he invested in cryptocurrency.`\
+https://www.nytimes.com/2026/04/20/nyregion/carmine-agnello-john-gotti-sentenced-fraud.html
+
 **#MeToo and the Fight to End Sex Abuse in Congress**\
-`Readers discuss Eric Swalwell and #MeToo. Also: Waning MAGA pride; ice cream and a lap cat as distractions.`\
+`Readers discuss Eric Swalwell and sexual abuse in Congress. Also: Waning MAGA pride; ice cream and a lap cat as distractions.`\
 https://www.nytimes.com/2026/04/20/opinion/eric-swalwell-metoo.html
 
 **Israeli Soldier in Lebanon Sledgehammered a Statue of Jesus**\
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/20/arts/john-keats-letters-fanny-brawne-stolen.h
 **A Supreme Court Scoop**\
 `We go behind the scenes at the nation’s highest court.`\
 https://www.nytimes.com/2026/04/20/briefing/a-supreme-court-scoop.html
-
-**Starmer Tells Parliament He Was Kept in the Dark on Mandelson Vetting**\
-`Prime Minister Keir Starmer addressed British lawmakers on Monday after it emerged that Peter Mandelson, his onetime ambassador to the United States, was rejected for top security clearances.`\
-https://www.nytimes.com/2026/04/20/world/europe/uk-starmer-mandelson-statement-parliament.html
-
-**Hey, Washington: Guess Who’s Coming to Dinner**\
-`A president who relishes attacking the news media is set to break his boycott of an event celebrating the news media. What could go wrong?`\
-https://www.nytimes.com/2026/04/20/business/media/white-house-correspondents-dinner-trump.html
 
