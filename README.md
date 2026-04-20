@@ -1,3 +1,11 @@
+**Lena Dunham nos hacía mucha falta**\
+`La era de “Girls” acabó hace tiempo. Pero su creadora aún tiene mucho que decir y enseñarnos.`\
+https://www.nytimes.com/es/2026/04/20/espanol/cultura/lena-dunham-girls.html
+
+**El gobierno de Trump está malinterpretando la historia**\
+`Como en tiempos de Tucídides, la postura bélica del gobierno de Estados Unidos promete beneficios a corto plazo pero desastre a largo plazo.`\
+https://www.nytimes.com/es/2026/04/20/espanol/opinion/trump-guerra.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/04/20/crosswords/spelling-bee-forum.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/19/arts/design/museums-250th-united-states.html
 **Review: They May Be ‘Fallen Angels,’ but This Comic Duo Is Heavenly**\
 `Lust is the comic engine driving the action of a riotous revival of one of Noël Coward’s early plays, with Rose Byrne and Kelli O’Hara, at Todd Haimes Theater.`\
 https://www.nytimes.com/2026/04/19/theater/fallen-angels-review-byrne-kelli-ohara-broadway.html
-
-**Robot Finishes Half Marathon Faster Than Human World Record**\
-`A humanoid robot named Lightning ran a half-marathon race in Beijing in 50 minutes and 26 seconds — faster than the human world record for the distance.`\
-https://www.nytimes.com/video/world/asia/100000010850406/running-robot-half-marathon-record-china.html
-
-**U.S. Fires on Iranian Cargo Ship in Arabian Sea**\
-`The military said it had disabled the vessel after it ignored repeated warnings to stop, amid a U.S. blockade of Iranian ports. Marines boarded the ship and seized it.`\
-https://www.nytimes.com/2026/04/19/us/us-military-iranian-ship.html
 
