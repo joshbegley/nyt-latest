@@ -1,3 +1,11 @@
+**Environmental Groups Sue to Block BP’s Plan to Drill in Deep Gulf Waters**\
+`Opponents of the project, known as Kaskida, say an accident could be even worse than the Deepwater Horizon spill. The company says it’s learned from the past.`\
+https://www.nytimes.com/2026/04/20/climate/bp-kaskida-drilling-lawsuit.html
+
+**Un hombre mata a 8 niños en Luisiana**\
+`Siete de los ocho niños eran hijos del tirador, quien murió en un enfrentamiento con la policía. Tenía problemas de salud mental y estaba estresado por la relación con su esposa, según familiares.`\
+https://www.nytimes.com/es/2026/04/20/espanol/estados-unidos/padre-tiroteo-ninos-luisiana.html
+
 **F.B.I. Director Sues The Atlantic Over Article Claiming Excessive Drinking**\
 `Mr. Patel sued the publication for defamation, asking for $250 million in damages. A spokeswoman for The Atlantic called the suit “meritless.”`\
 https://www.nytimes.com/2026/04/20/us/politics/kash-patel-atlantic-article-alcohol-drinking-fbi-lawsuit.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/20/podcasts/the-headlines/us-iran-tariff-refunds
 **Connections Companion No. 1,045**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, April 21, 2026.`\
 https://www.nytimes.com/2026/04/20/crosswords/connections-companion-1045.html
-
-**Wordle Review No. 1,767**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, April 21, 2026.`\
-https://www.nytimes.com/2026/04/20/crosswords/wordle-review-1767.html
-
-**Strands Sidekick No. 779**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, April 21, 2026.`\
-https://www.nytimes.com/2026/04/20/crosswords/strands-sidekick-779.html
 
