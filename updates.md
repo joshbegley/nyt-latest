@@ -1,3 +1,11 @@
+**U.S. Museums Reach Deep into America’s Past**\
+`Museums around the country are celebrating the nation’s heritage in ways that go beyond what might be considered traditional.`\
+https://www.nytimes.com/2026/04/19/arts/design/museums-250th-united-states.html
+
+**Harry Keyishian, Lead Plaintiff in Academic Freedom Case, Dies at 93**\
+`He was one of five University of Buffalo faculty members fired for not signing loyalty oaths. In a landmark decision, the Supreme Court ruled in their favor.`\
+https://www.nytimes.com/2026/04/19/us/harry-keyishian-dead.html
+
 **Review: They May Be ‘Fallen Angels,’ but This Comic Duo Is Heavenly**\
 `Lust is the comic engine driving the action of a riotous revival of one of Noël Coward’s early plays, with Rose Byrne and Kelli O’Hara, at Todd Haimes Theater.`\
 https://www.nytimes.com/2026/04/19/theater/fallen-angels-review-byrne-kelli-ohara-broadway.html
