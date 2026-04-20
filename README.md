@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/20/world/iran-us-war-trump-hormuz/heres-the-latest
+
+**Palabra del día: ‘tacit’**\
+`Esta palabra ha aparecido en 106 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/04/20/espanol/palabra-del-dia-tacit.html
+
+**Word of the Day: tacit**\
+`This word has appeared in 106 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/04/20/learning/word-of-the-day-tacit.html
+
 **The Forces of Scarcity Hitting Asia May Soon Spread Across the World**\
 `The Asia-Pacific was hit hard and quick by the war in Iran and its energy bottlenecks. Scenes of crisis there indicate that problems are multiplying and spreading.`\
 https://www.nytimes.com/2026/04/20/world/asia/asia-pacific-iran-war-oil.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/19/us/us-military-iranian-ship.html
 **Moya Brennan, Whose Gaelic Pop Band Won Worldwide Fame, Dies at 73**\
 `Clannad consisted of her uncles, siblings and, briefly, her sister Enya. In a memoir, Ms. Brennan described a stormy youth followed by a Christian reawakening.`\
 https://www.nytimes.com/2026/04/19/obituaries/moya-brennan-dead.html
-
-**Trump Says U.S. Attacked Iranian Cargo Ship**\
-`President Trump said a Navy destroyer had attacked and seized an Iranian-flagged vessel in the Gulf of Oman. The White House said it was dispatching a high-level delegation, including Vice President JD Vance, to Pakistan for negotiations.`\
-https://www.nytimes.com/video/world/middleeast/100000010850501/us-iran-war-strait-of-hormuz-negotiations.html
-
-**It Was No Sweat: A Humanoid Robot Races to a Record Finish**\
-`The android won a half-marathon for robots (and humans) on Sunday in Beijing, achieving a technological milestone while finishing faster than any person in history.`\
-https://www.nytimes.com/2026/04/19/world/asia/running-robot-sets-record.html
-
-**From Pulpits to Pews, Trump and the Pope Are on the Minds of Catholics**\
-`At churches with connections to Pope Leo and the Trump administration, pastors and parishioners speak out on the feud between the president and the pontiff.`\
-https://www.nytimes.com/2026/04/19/us/trump-pope-catholics.html
 
