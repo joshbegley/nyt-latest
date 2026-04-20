@@ -1,3 +1,7 @@
+**Amazon Plans to Invest Up to $25 Billion in Anthropic**\
+`Anthropic also committed to spending $100 billion on Amazon technologies that can help build and deploy A.I. systems.`\
+https://www.nytimes.com/2026/04/20/technology/amazon-anthropic-investment.html
+
 **Mother and 6 Children Die in Explosion at Their Pennsylvania Home**\
 `The blast on Sunday morning led to a fire that consumed the residence in a rural community northwest of Harrisburg, the authorities said.`\
 https://www.nytimes.com/2026/04/20/us/mother-six-children-explosion-pennsylvania.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/20/world/middleeast/facing-hard-liners-at-home-a
 **No Nation Is Spared in This War**\
 `The Iran war is just the latest setback in the past several years to low-income and lower-middle-income countries.`\
 https://www.nytimes.com/2026/04/20/opinion/trade-poor-countries-imf-iran-war.html
-
-**Today, In Short**\
-`“CoachGPT.” A college “cookie house.” And the latest from Iran.`\
-https://www.nytimes.com/2026/04/20/briefing/today-in-short.html
 
