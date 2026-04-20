@@ -1,3 +1,7 @@
+**Scientist Charged With Trying to Poison University Lab Colleague**\
+`The scientist, at the University of Wisconsin-Madison, had built up grievances against his co-worker after five years of working together, court documents said.`\
+https://www.nytimes.com/2026/04/20/us/university-wisconsin-coworkers-poison.html
+
 **George Ariyoshi, 100, America’s First Governor of Asian Descent, Dies**\
 `A Democrat, he served three terms as Hawaii’s governor (1974-86), rising out of a tough district of Honolulu. He tried to diversify an economy heavily dependent on tourism.`\
 https://www.nytimes.com/2026/04/20/us/politics/george-ariyoshi-dead.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/04/20/learning/journalism-essentials-how-to-gather-
 **U.S. and Iran Peace Talks Appear on Track to Resume**\
 `With the two-week cease-fire almost over, Vice President JD Vance was expected to head to Pakistan on Tuesday for the second round of negotiations.`\
 https://www.nytimes.com/2026/04/20/world/middleeast/iran-us-talks.html
-
-**Barbara Hatch Rosenberg, Who Joined Hunt for Anthrax Culprit, Dies at 97**\
-`An expert on biological weapons, she emerged as an influential voice during the F.B.I.’s rocky search for a suspect after the deadly anthrax attacks of 2001.`\
-https://www.nytimes.com/2026/04/20/us/barbara-hatch-rosenberg-dead.html
 

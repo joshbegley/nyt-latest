@@ -1,3 +1,23 @@
+**George Ariyoshi, 100, America’s First Governor of Asian Descent, Dies**\
+`A Democrat, he served three terms as Hawaii’s governor (1974-86), rising out of a tough district of Honolulu. He tried to diversify an economy heavily dependent on tourism.`\
+https://www.nytimes.com/2026/04/20/us/politics/george-ariyoshi-dead.html
+
+**New Details in the Mass Shooting That Left 8 Dead in Louisiana**\
+`On Monday, city and state officials gave updates on a mass shooting in Shreveport, La., in which a gunman opened fire on his family, killing eight children and injuring two others.`\
+https://www.nytimes.com/video/us/100000010852189/shreveport-louisiana-shooting-update.html
+
+**Una turista canadiense muere en un tiroteo en las pirámides de Teotihuacán, dicen las autoridades**\
+`El hombre armado abrió fuego en el yacimiento arqueológico de Teotihuacán, a las afueras de Ciudad de México, antes de quitarse la vida.`\
+https://www.nytimes.com/es/2026/04/20/espanol/america-latina/teotihuacan-tiroteo-balacera-mexico.html
+
+**This Parrot Has No Beak, But Is at the Top of the Pecking Order**\
+`Bruce, a disabled kea parrot, is missing his top beak. The bird uses tools to keep himself healthy and developed a jousting technique that has made him the alpha male of his group.`\
+https://www.nytimes.com/video/science/earth/100000010852236/parrot-disabled-beak-new-zealand.html
+
+**Apple C.E.O.s Through the Years: From Michael Scott (Not That One) to John Ternus**\
+`Apple’s corner office has been a seat from which executives like Steve Jobs changed how we interact with technology.`\
+https://www.nytimes.com/2026/04/20/technology/apple-ceos-photos.html
+
 **Labor Secretary Steps Down Amid Internal Investigation**\
 `Lori Chavez-DeRemer, President Trump’s labor secretary, was facing multiple scandals and an internal inquiry into charges of misconduct.`\
 https://www.nytimes.com/2026/04/20/us/politics/lori-chavez-deremer-labor-secretary-steps-down.html
