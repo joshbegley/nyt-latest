@@ -1,3 +1,7 @@
+**Trump’s Fed Pick to Defend Central Bank’s Independence on Rate Setting**\
+`Kevin M. Warsh is set to testify at the Senate Banking Committee on Tuesday even as a criminal investigation into the central bank risks delaying his ascension to become the next chair.`\
+https://www.nytimes.com/2026/04/20/us/politics/kevin-warsh-fed-senate-banking-committee-hearing.html
+
 **La escasez en Asia por la guerra en Irán podría extenderse pronto por el mundo**\
 `La guerra de Irán y sus cuellos de botella energéticos golpearon fuerte y rápidamente a Asia-Pacífico. El escenario de crisis allí indica que los problemas se multiplican y se extienden.`\
 https://www.nytimes.com/es/2026/04/20/espanol/mundo/guerra-iran-escasez-asia.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/20/us/politics/kash-patel-atlantic-article-alcoh
 **Stir-Fried Honey Ginger Chicken, Fish Cakes and Other Rut Busters**\
 `I rarely think to put carrots in a stir-fry, but these are sliced so thinly that they cook in a flash.`\
 https://www.nytimes.com/2026/04/20/dining/stir-fried-honey-ginger-chicken-fish-cakes-and-other-rut-busters.html
-
-**These Salmon Got High on Cocaine. That Wasn’t the Craziest Part.**\
-`Scientists in Sweden made an unexpected discovery when they exposed the fish to the illegal drug as well as another substance.`\
-https://www.nytimes.com/2026/04/20/science/cocaine-salmon-sweden.html
 
