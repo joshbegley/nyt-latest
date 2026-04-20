@@ -1,3 +1,11 @@
+**With Orban Out, the Pianist András Schiff Plans a Return to Hungary**\
+`Schiff has said he won’t perform in countries with what he calls strongmen leaders, a list that still includes the United States and Russia.`\
+https://www.nytimes.com/2026/04/20/arts/music/andras-schiff-piano-viktor-orban-hungary.html
+
+**House Ethics Panel Defends Handling of Sexual Misconduct Allegations**\
+`In urging victims to step forward, the secretive panel in charge of investigating charges of misconduct by members of Congress acknowledged limits that could allow offenses to go unaddressed.`\
+https://www.nytimes.com/2026/04/20/us/politics/house-ethics-sexual-misconduct.html
+
 **Surprise! Coachella Finds a New Identity**\
 `What started in the late ’90s as a rock and dance-music festival has evolved into a platform where social media, spectacle and unexpected guests make the headlines.`\
 https://www.nytimes.com/2026/04/20/arts/music/coachella-guests-madonna-sabrina-carpenter.html
@@ -42,7 +50,7 @@ https://www.nytimes.com/2026/04/20/technology/amazon-antitrust-suit-california.h
 `A new deal, which would allow The Onion to use the Infowars name and website address, must be approved by a Texas judge.`\
 https://www.nytimes.com/2026/04/20/business/infowars-alex-jones-the-onion.html
 
-**Prosecutors to Charge D4vd With Murder of Teenage Girl**\
+**D4vd Charged With Murder of Girl Whose Remains Were Found in His Car**\
 `The singer is accused of committing unlawful sexual acts against Celeste Rivas Hernandez, killing her because she was a witness to an investigation, and mutilating her body.`\
 https://www.nytimes.com/2026/04/20/arts/music/d4vd-murder-charges-celeste-rivas-hernandez.html
 
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/20/us/shreveport-louisiana-killings-shamar-elkin
 **Gotti Grandson Is Sentenced to 15 Months for Covid Relief Fraud**\
 `Carmine G. Agnello Jr. had pleaded guilty to fraudulently collecting more than $1 million in small-business loans, some of which he invested in cryptocurrency.`\
 https://www.nytimes.com/2026/04/20/nyregion/carmine-agnello-john-gotti-sentenced-fraud.html
-
-**#MeToo and the Fight to End Sex Abuse in Congress**\
-`Readers discuss Eric Swalwell and sexual abuse in Congress. Also: Waning MAGA pride; ice cream and a lap cat as distractions.`\
-https://www.nytimes.com/2026/04/20/opinion/eric-swalwell-metoo.html
-
-**Israeli Soldier in Lebanon Sledgehammered a Statue of Jesus**\
-`The military is investigating the soldier. Prime Minister Benjamin Netanyahu expressed regret for any hurt caused to “believers in Lebanon and around the world.”`\
-https://www.nytimes.com/2026/04/20/world/middleeast/israeli-soldier-lebanon-sledgehammer-jesus.html
 
