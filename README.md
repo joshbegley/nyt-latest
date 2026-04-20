@@ -1,3 +1,11 @@
+**In Lebanon, residents of the south make their way home over signs of war.**\
+`Some of the million people displaced by the latest war between Israel and Hezbollah in Lebanon are flooding back home since a 10-day truce between Israel and Lebanon took hold.`\
+https://www.nytimes.com/live/2026/04/20/world/iran-us-war-trump-hormuz/in-lebanon-residents-of-the-south-make-their-way-home-over-signs-of-war
+
+**Desmond Morris, 98, Dies; Explored Humans’ Animal Instincts in ‘The Naked Ape’**\
+`An English zoologist, he wrote an immensely popular 1967 book arguing that ancient genes, shared with apes, shape our lives. Objections in the scientific world ensued.`\
+https://www.nytimes.com/2026/04/20/science/desmond-morris-dead.html
+
 **Democratic Senators Fault Hegseth’s Leadership on Iran**\
 `In a letter, the 11 senators questioned the defense secretary’s decision to gut programs intended to protect civilians and said his orders endangered U.S. troops.`\
 https://www.nytimes.com/2026/04/20/us/politics/democrats-criticism-hegseth-iran.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/20/world/europe/bulgaria-election-result-rumen-r
 **Strait of Hormuz Traffic Is at a Standstill Again**\
 `Few vessels are crossing after Iran reversed course on reopening the vital waterway and ships came under attack.`\
 https://www.nytimes.com/2026/04/20/world/middleeast/strait-hormuz-traffic-ships-iran-us.html
-
-**To Play a Man With Tourette’s, He Swapped the Script for Real Life**\
-`Robert Aramayo immersed himself in John Davidson’s life to prepare for the movie “I Swear.” It earned Aramayo a BAFTA, but Davidson’s tics became the talking point.`\
-https://www.nytimes.com/2026/04/20/movies/robert-aramayo-i-swear.html
-
-**The Peace Rally Gets Derailed**\
-`Oil prices are climbing and global stocks are falling as investors worry about the prospects for a speedy end to the war in the Middle East.`\
-https://www.nytimes.com/2026/04/20/business/dealbook/iran-peace-rally-stocks.html
 
