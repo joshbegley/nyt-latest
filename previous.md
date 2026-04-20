@@ -1,3 +1,7 @@
+**La escasez en Asia por la guerra en Irán podría extenderse pronto por el mundo**\
+`La guerra de Irán y sus cuellos de botella energéticos golpearon fuerte y rápidamente a Asia-Pacífico. El escenario de crisis allí indica que los problemas se multiplican y se extienden.`\
+https://www.nytimes.com/es/2026/04/20/espanol/mundo/guerra-iran-escasez-asia.html
+
 **What Can A.I. Companies Do to Win Public Trust?**\
 `This week on “Hard Fork” from The New York Times, the hosts Casey Newton and Kevin Roose talk about polls that show A.I. companies have lost the public trust, and what the companies could do to try to win it back.`\
 https://www.nytimes.com/video/podcasts/100000010852136/what-can-ai-companies-do-to-win-public-trust.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/20/dining/stir-fried-honey-ginger-chicken-fish-c
 **These Salmon Got High on Cocaine. That Wasn’t the Craziest Part.**\
 `Scientists in Sweden made an unexpected discovery when they exposed the fish to the illegal drug as well as another substance.`\
 https://www.nytimes.com/2026/04/20/science/cocaine-salmon-sweden.html
-
-**Anthropic Wants Claude to Be Moral. Is Religion Really the Answer?**\
-`A.I. cannot meditate, fast or prostrate itself in prayer.`\
-https://www.nytimes.com/2026/04/20/opinion/ai-religion-morality.html
 
