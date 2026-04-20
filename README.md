@@ -1,3 +1,7 @@
+**A Decisive Win Raises Bulgarians’ Hopes for Change**\
+`An election victory by a former president, Rumen Radev, gives the country a chance for stability and to clean out the corruption that has stymied its growth.`\
+https://www.nytimes.com/2026/04/20/world/europe/bulgaria-election-result-rumen-radev.html
+
 **Strait of Hormuz Traffic Is at a Standstill Again**\
 `Few vessels are crossing after Iran reversed course on reopening the vital waterway and ships came under attack.`\
 https://www.nytimes.com/2026/04/20/world/middleeast/strait-hormuz-traffic-ships-iran-us.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/20/opinion/antitrust-jury-live-nation-amazon.htm
 **Trump Administration to Begin Refunding $166 Billion in Tariffs**\
 `The government will debut a system to repay importers two months after the Supreme Court struck down tariffs at the heart of the president’s trade policy.`\
 https://www.nytimes.com/2026/04/20/business/trump-administration-tariff-refunds.html
-
-**Why a Democratic Senate, Once Unthinkable, Is a Real Possibility**\
-`Helped by a favorable national environment and strong candidate recruitment, Democrats are tied or ahead in four Republican-held seats, polls show.`\
-https://www.nytimes.com/2026/04/20/upshot/democrats-senate-midterms-chances.html
 
