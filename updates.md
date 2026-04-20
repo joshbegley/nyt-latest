@@ -1,3 +1,35 @@
+**No Nation Is Spared in This War**\
+`The Iran war is just the latest setback in the past several years to low-income and lower-middle-income countries.`\
+https://www.nytimes.com/2026/04/20/opinion/trade-poor-countries-imf-iran-war.html
+
+**Today, In Short**\
+`“CoachGPT.” A college “cookie house.” And the latest from Iran.`\
+https://www.nytimes.com/2026/04/20/briefing/today-in-short.html
+
+**Second Jury Finds Uber Responsible for Sexual Assault by a Driver**\
+`The ride-hailing giant has now lost the first two of more than 3,000 pending federal lawsuits.`\
+https://www.nytimes.com/2026/04/20/business/uber-sexual-assault-verdict-bellwether.html
+
+**Tim Cook Will Step Down as Apple C.E.O.**\
+`The longtime leader of the iPhone maker will be replaced by John Ternus, the company’s head of hardware engineering.`\
+https://www.nytimes.com/2026/04/20/technology/tim-cook-apple-ceo-steps-down.html
+
+**An Artist Devoted to the Origins of Paints**\
+`Sandy Rodriguez is a painter but also, on some level, a scientist, an art historian, a botanist, an outdoorswoman, and maybe even an alchemist.`\
+https://www.nytimes.com/2026/04/20/arts/design/sandy-rodriguez-painting.html
+
+**The Next Frontier in Design? The Humble Birdhouse.**\
+`Recently, as artists and architects have turned their attention outdoors, they have started putting their creative chops to work — for the avians among us.`\
+https://www.nytimes.com/2026/04/20/arts/design/design-birdhouse.html
+
+**Canadian Tourist Is Shot Dead at Mexico’s Teotihuacán Pyramids, Officials Say**\
+`The gunman opened fire at the famous archaeological site just outside Mexico City, wounding at least six others, before killing himself, the authorities said.`\
+https://www.nytimes.com/2026/04/20/world/americas/mexico-shooting-pyramids-teotihuacan.html
+
+**Journalism Essentials: How to Gather and Verify Facts**\
+`In the second installment of our media literacy newsletter from The School of The New York Times, we explain how journalists track down facts.`\
+https://www.nytimes.com/2026/04/20/learning/journalism-essentials-how-to-gather-and-verify-facts.html
+
 **Kansas Mayor Who Voted Illegally Will Not Serve Time in Prison**\
 `Joe Ceballos, a green card holder who resigned as Coldwater’s mayor after being charged, said he did not know that he had to be a citizen to vote.`\
 https://www.nytimes.com/2026/04/20/us/kansas-mayor-noncitizen-voting-case-guilty-plea.html

@@ -1,3 +1,35 @@
+**No Nation Is Spared in This War**\
+`The Iran war is just the latest setback in the past several years to low-income and lower-middle-income countries.`\
+https://www.nytimes.com/2026/04/20/opinion/trade-poor-countries-imf-iran-war.html
+
+**Today, In Short**\
+`“CoachGPT.” A college “cookie house.” And the latest from Iran.`\
+https://www.nytimes.com/2026/04/20/briefing/today-in-short.html
+
+**Second Jury Finds Uber Responsible for Sexual Assault by a Driver**\
+`The ride-hailing giant has now lost the first two of more than 3,000 pending federal lawsuits.`\
+https://www.nytimes.com/2026/04/20/business/uber-sexual-assault-verdict-bellwether.html
+
+**Tim Cook Will Step Down as Apple C.E.O.**\
+`The longtime leader of the iPhone maker will be replaced by John Ternus, the company’s head of hardware engineering.`\
+https://www.nytimes.com/2026/04/20/technology/tim-cook-apple-ceo-steps-down.html
+
+**An Artist Devoted to the Origins of Paints**\
+`Sandy Rodriguez is a painter but also, on some level, a scientist, an art historian, a botanist, an outdoorswoman, and maybe even an alchemist.`\
+https://www.nytimes.com/2026/04/20/arts/design/sandy-rodriguez-painting.html
+
+**The Next Frontier in Design? The Humble Birdhouse.**\
+`Recently, as artists and architects have turned their attention outdoors, they have started putting their creative chops to work — for the avians among us.`\
+https://www.nytimes.com/2026/04/20/arts/design/design-birdhouse.html
+
+**Canadian Tourist Is Shot Dead at Mexico’s Teotihuacán Pyramids, Officials Say**\
+`The gunman opened fire at the famous archaeological site just outside Mexico City, wounding at least six others, before killing himself, the authorities said.`\
+https://www.nytimes.com/2026/04/20/world/americas/mexico-shooting-pyramids-teotihuacan.html
+
+**Journalism Essentials: How to Gather and Verify Facts**\
+`In the second installment of our media literacy newsletter from The School of The New York Times, we explain how journalists track down facts.`\
+https://www.nytimes.com/2026/04/20/learning/journalism-essentials-how-to-gather-and-verify-facts.html
+
 **U.S. and Iran Peace Talks Appear on Track to Resume**\
 `With the two-week cease-fire almost over, Vice President JD Vance was expected to head to Pakistan on Tuesday for the second round of negotiations.`\
 https://www.nytimes.com/2026/04/20/world/middleeast/iran-us-talks.html
@@ -41,40 +73,4 @@ https://www.nytimes.com/2026/04/20/arts/music/andras-schiff-piano-viktor-orban-h
 **House Ethics Panel Defends Handling of Sexual Misconduct Allegations**\
 `In urging victims to step forward, the secretive panel in charge of investigating charges of misconduct by members of Congress acknowledged limits that could allow offenses to go unaddressed.`\
 https://www.nytimes.com/2026/04/20/us/politics/house-ethics-sexual-misconduct.html
-
-**Surprise! Coachella Finds a New Identity**\
-`What started in the late ’90s as a rock and dance-music festival has evolved into a platform where social media, spectacle and unexpected guests make the headlines.`\
-https://www.nytimes.com/2026/04/20/arts/music/coachella-guests-madonna-sabrina-carpenter.html
-
-**En Ucrania, los robots transforman el campo de batalla**\
-`Kiev está utilizando vehículos terrestres no tripulados armados con bombas, cañones o cohetes para llevar a cabo ataques y mantener a sus soldados fuera de peligro.`\
-https://www.nytimes.com/es/2026/04/20/espanol/mundo/ucrania-robots-guerra.html
-
-**Kansas Mayor Who Voted Illegally Will Not Serve Time in Prison**\
-`Joe Ceballos, a green card holder who resigned as Coldwater’s mayor after being charged, said he did not know that he had to be a citizen to vote.`\
-https://www.nytimes.com/2026/04/20/us/kansas-mayor-noncitizen-voting-case-guilty-plea.html
-
-**Elon Musk Ignores French Prosecutors, Widening Tech Rift With Europe**\
-`Prosecutors investigating his social media company, X, had summoned him for a meeting. His no-show reflected a broader dispute over regulation.`\
-https://www.nytimes.com/2026/04/20/world/europe/elon-musk-ignores-french-summons.html
-
-**Another Democrat Leaves the California Governor’s Race**\
-`Betty Yee, the former state controller, had faced pressure to drop out after hovering near the bottom of polls for months. The move could help Democrats begin to unify behind a front-runner.`\
-https://www.nytimes.com/2026/04/20/us/california-governor-democrat-betty-yee.html
-
-**Trump’s Fed Pick to Defend Central Bank’s Independence on Rate Setting**\
-`Kevin M. Warsh is set to testify at the Senate Banking Committee on Tuesday even as a criminal investigation into the central bank risks delaying his ascension to become the next chair.`\
-https://www.nytimes.com/2026/04/20/us/politics/kevin-warsh-fed-senate-banking-committee-hearing.html
-
-**La escasez en Asia por la guerra en Irán podría extenderse pronto por el mundo**\
-`La guerra de Irán y sus cuellos de botella energéticos golpearon fuerte y rápidamente a Asia-Pacífico. El escenario de crisis allí indica que los problemas se multiplican y se extienden.`\
-https://www.nytimes.com/es/2026/04/20/espanol/mundo/guerra-iran-escasez-asia.html
-
-**What Can A.I. Companies Do to Win Public Trust?**\
-`This week on “Hard Fork” from The New York Times, the hosts Casey Newton and Kevin Roose talk about polls that show A.I. companies have lost the public trust, and what the companies could do to try to win it back.`\
-https://www.nytimes.com/video/podcasts/100000010852136/what-can-ai-companies-do-to-win-public-trust.html
-
-**A Brisk Day in Boston, for the Weather and Runners Alike**\
-`Boston held its 130th Marathon on a chilly day that was the crowd endured and the athletes relished.`\
-https://www.nytimes.com/2026/04/20/us/boston-marathon-2026.html
 
