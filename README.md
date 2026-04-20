@@ -1,3 +1,15 @@
+**Louisiana Killer’s Threats to Himself and Others Hinted at Future Violence**\
+`Shamar Elkins had been suffering severe mental health problems, his family said. His deadly rampage, which killed eight children, has profoundly scarred a community facing rising domestic violence.`\
+https://www.nytimes.com/2026/04/20/us/louisiana-killer-history-violent-threats.html
+
+**‘Immediate Results’ vs. ‘The Long Game’: Iran and the U.S. Face Off**\
+`As the United States and Iran make a second attempt at a deal, their negotiating styles are on a collision course.`\
+https://www.nytimes.com/2026/04/20/us/politics/us-iran-negotiation-style.html
+
+**2 Teens Killed and 5 Injured in North Carolina Shooting**\
+`The young people, planning for a fight, had arranged to meet off school grounds at a park in Winston-Salem, N.C., when gunfire broke out on Monday morning.`\
+https://www.nytimes.com/2026/04/20/us/winston-salem-shooting-north-carolina.html
+
 **Un soldado israelí en Líbano destrozó una estatua de Jesús**\
 `El ejército de Israel está investigando al soldado. El primer ministro israelí, Benjamín Netanyahu, lamentó cualquier daño causado a “los creyentes de Líbano y de todo el mundo”.`\
 https://www.nytimes.com/es/2026/04/20/espanol/mundo/soldado-israel-jesus-libano.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/video/science/earth/100000010852236/parrot-disabled-beak
 **Apple C.E.O.s Through the Years: From Michael Scott (Not That One) to John Ternus**\
 `Apple’s corner office has been a seat from which executives like Steve Jobs changed how we interact with technology.`\
 https://www.nytimes.com/2026/04/20/technology/apple-ceos-photos.html
-
-**Labor Secretary Steps Down Amid Internal Investigation**\
-`Lori Chavez-DeRemer was facing multiple scandals and an internal inquiry into charges of misconduct.`\
-https://www.nytimes.com/2026/04/20/us/politics/lori-chavez-deremer-labor-secretary-steps-down.html
-
-**Democrats Once Loathed Gerrymandering. Now They’re Pushing for It.**\
-`The party is seeking an extra edge in Virginia at a time when its thinking has changed on the partisan drawing of political maps — in large part, leaders say, because of President Trump’s tactics.`\
-https://www.nytimes.com/2026/04/20/us/politics/virginia-gerrymandering-referendum.html
-
-**Iran’s Nonnuclear Deterrent**\
-`Disrupting the Strait of Hormuz turned out to be a powerful weapon. It might be a new way for Iran to keep adversaries at bay, even without a nuclear program.`\
-https://www.nytimes.com/2026/04/20/world/iran-hormuz-talks-saudi.html
 
