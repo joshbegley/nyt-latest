@@ -1,3 +1,11 @@
+**Review: They May Be ‘Fallen Angels,’ but This Comic Duo Is Heavenly**\
+`Lust is the comic engine driving the action of a riotous revival of one of Noël Coward’s early plays, with Rose Byrne and Kelli O’Hara, at Todd Haimes Theater.`\
+https://www.nytimes.com/2026/04/19/theater/fallen-angels-review-byrne-kelli-ohara-broadway.html
+
+**Robot Finishes Half Marathon Faster Than Human World Record**\
+`A humanoid robot named Lightning ran a half-marathon race in Beijing in 50 minutes and 26 seconds — faster than the human world record for the distance.`\
+https://www.nytimes.com/video/world/asia/100000010850406/running-robot-half-marathon-record-china.html
+
 **U.S. Fires on Iranian Cargo Ship in Arabian Sea**\
 `The military said it had disabled the vessel after it ignored repeated warnings to stop, amid a U.S. blockade of Iranian ports. Marines boarded the ship and seized it.`\
 https://www.nytimes.com/2026/04/19/us/us-military-iranian-ship.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/19/world/middleeast/us-iran-cease-fire-violation
 **Hamas Officials Say Group Is Ready to Hand Over Some Weapons**\
 `Two senior Hamas officials in Gaza said the group was prepared to relinquish some automatic rifles and other arms, a concession that falls short of Israeli-U.S. demands.`\
 https://www.nytimes.com/2026/04/19/world/middleeast/hamas-weapons-israel.html
-
-**Trump Administration Demand for Ballot Info Rebuffed by Michigan**\
-`The Department of Justice is seeking ballots and other materials from the 2024 election. Michigan officials call it election interference.`\
-https://www.nytimes.com/2026/04/19/us/michigan-trump-ballots-election.html
-
-**Don Schlitz, Prolific Writer of Country Music Hits, Dies at 73**\
-`He won a Grammy for the Kenny Rogers song “The Gambler,” and also wrote for Randy Travis, the Judds and Mary Chapin Carpenter.`\
-https://www.nytimes.com/2026/04/19/obituaries/don-schlitz-dead.html
 
