@@ -1,5 +1,5 @@
 **#MeToo and the Fight to End Sex Abuse in Congress**\
-`Readers discuss Eric Swalwell and #MeToo. Also: Waning MAGA pride; ice cream and a lap cat as distractions.`\
+`Readers discuss Eric Swalwell and sexual abuse in Congress. Also: Waning MAGA pride; ice cream and a lap cat as distractions.`\
 https://www.nytimes.com/2026/04/20/opinion/eric-swalwell-metoo.html
 
 **Israeli Soldier in Lebanon Sledgehammered a Statue of Jesus**\

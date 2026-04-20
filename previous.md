@@ -1,3 +1,7 @@
+**#MeToo and the Fight to End Sex Abuse in Congress**\
+`Readers discuss Eric Swalwell and #MeToo. Also: Waning MAGA pride; ice cream and a lap cat as distractions.`\
+https://www.nytimes.com/2026/04/20/opinion/eric-swalwell-metoo.html
+
 **Israeli Soldier in Lebanon Sledgehammered a Statue of Jesus**\
 `The military is investigating the soldier. Prime Minister Benjamin Netanyahu expressed regret for any hurt caused to “believers in Lebanon and around the world.”`\
 https://www.nytimes.com/2026/04/20/world/middleeast/israeli-soldier-lebanon-sledgehammer-jesus.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/20/world/europe/uk-starmer-mandelson-statement-p
 **Hey, Washington: Guess Who’s Coming to Dinner**\
 `A president who relishes attacking the news media is set to break his boycott of an event celebrating the news media. What could go wrong?`\
 https://www.nytimes.com/2026/04/20/business/media/white-house-correspondents-dinner-trump.html
-
-**Inside the Five Days That Remade the Supreme Court**\
-`Secret memos obtained by The New York Times illuminate the origins of the court’s now-routine “shadow docket” rulings on presidential power.`\
-https://www.nytimes.com/2026/04/20/podcasts/the-daily/supreme-court-investigation.html
 
