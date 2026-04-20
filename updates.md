@@ -1,3 +1,7 @@
+**A Decisive Win Raises Bulgarians’ Hopes for Change**\
+`An election victory by a former president, Rumen Radev, gives the country a chance for stability and to clean out the corruption that has stymied its growth.`\
+https://www.nytimes.com/2026/04/20/world/europe/bulgaria-election-result-rumen-radev.html
+
 **Americans Are Stepping Up to Stop Our Corporate Goliaths**\
 `Lina Khan and Doha Mekki on three court rulings that illustrate the power juries and local officials have to enforce antitrust laws.`\
 https://www.nytimes.com/2026/04/20/opinion/antitrust-jury-live-nation-amazon.html
