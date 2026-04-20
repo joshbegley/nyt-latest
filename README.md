@@ -1,3 +1,67 @@
+**The Unlikely Recovery of America’s China-Shocked Towns**\
+`The jobs are coming back, despite President Trump’s tariffs and harsh immigration enforcement.`\
+https://www.nytimes.com/2026/04/20/opinion/america-manufacturing-recovery-china.html
+
+**In Detroit, a Family Builds a Home ‘Extension’ — a 7-Minute Drive Away**\
+`Designed by Dash Marshall, this bedroom-free experimental courtyard house serves as an office, a place to entertain and a weekend retreat.`\
+https://www.nytimes.com/2026/04/20/realestate/detroit-home-extension-courtyard-house.html
+
+**‘Reefer Madness,’ the P.S.A. That Backfired Spectacularly**\
+`The comically self-serious and outrageous 1936 morality tale, which warned the public about marijuana, became an unintentional parody and midnight-movie classic decades later.`\
+https://www.nytimes.com/2026/04/20/movies/reefer-madness-psa-1936.html
+
+**His Watch Brand Is ‘Doing It the Traditional Way’**\
+`Love Hunter has been drawn to timepieces since he was a child. Now, after years of selling and repairing them, it’s time for his own creations to take center stage.`\
+https://www.nytimes.com/2026/04/20/fashion/love-hunter-watches.html
+
+**A Squabble in D.C. Yields Chaos in El Paso**\
+`A high-energy laser weapon and quarrels between federal agencies brought a night of hassles to the city.`\
+https://www.nytimes.com/2026/04/20/business/a-squabble-in-dc-yields-chaos-in-el-paso.html
+
+**C.E.O.s Are the Heads of Companies. Should They Also Be the Face?**\
+`Most chief executives are not recognizable to their customers. But when they step into the limelight, the rewards — and the risks — can be great.`\
+https://www.nytimes.com/2026/04/20/business/ceo-commercials-advertising.html
+
+**With These Watches, It’s Not Just What’s on the Inside That Counts**\
+`A look at the new skeleton watch models unveiled by Hermès, Piaget and Panerai.`\
+https://www.nytimes.com/2026/04/20/fashion/skeleton-watches.html
+
+**They Put Their Tool Watches to the Test**\
+`For these wearers of rugged timepieces, form follows function.`\
+https://www.nytimes.com/2026/04/20/fashion/watches-extreme-work.html
+
+**Influencers Are Spinning Nicotine as a ‘Natural’ Health Hack**\
+`The influencers, many of them aligned with the Make America Healthy Again Movement, say the medical establishment has unfairly demonized the compound.`\
+https://www.nytimes.com/2026/04/20/well/nicotine-health-maha.html
+
+**The M.T.A. Is Updating How It Powers the Subway**\
+`We toured one of the Metropolitan Transportation Authority’s oldest substations along with one of its newest to learn how the subway is powered, and how its power system could be improved.`\
+https://www.nytimes.com/video/nyregion/100000010785110/the-mta-is-updating-how-it-powers-the-subway.html
+
+**What to Care About When You Care About Ballet: Dancers**\
+`New York City Ballet opens its spring season with classic works by George Balanchine and more. Here are some dancers who will surely stand out.`\
+https://www.nytimes.com/2026/04/20/arts/dance/new-york-city-ballet-spring-season-2026-dancers-guide.html
+
+**Epstein Craved Harvard Connections. Many There Were Eager to Help.**\
+`New documents reveal what professors did to help Jeffrey Epstein get inside Harvard’s gates.`\
+https://www.nytimes.com/2026/04/20/us/epstein-files-harvard-university-faculty.html
+
+**Javier Milei Wants to Rewire the Argentine Mind**\
+`Argentina’s right-wing president has tamed the country’s runaway inflation. Now he wants to transform its values.`\
+https://www.nytimes.com/2026/04/20/world/americas/argentina-president-milei-inflation-economic-reforms.html
+
+**Does Dry Needling Really Relieve Pain?**\
+`Having tiny needles poked into a painful muscle knot is unnerving. But can it help?`\
+https://www.nytimes.com/2026/04/20/well/live/dry-needling-benefits-safety.html
+
+**Tsunami Warning in Japan After Strong Earthquake Strikes Offshore**\
+`The 7.5-magnitude undersea quake occurred off Iwate Prefecture, on the northeastern coast of Japan’s main island, Honshu.`\
+https://www.nytimes.com/2026/04/20/world/asia/tsunami-warning-japan-earthquake.html
+
+**Map: 7.4-Magnitude Earthquake Strikes Near Japan**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/04/20/world/asia/quake-tracker-japan-north-pacific-ocean.html
+
 **Lena Dunham nos hacía mucha falta**\
 `La era de “Girls” acabó hace tiempo. Pero su creadora aún tiene mucho que decir y enseñarnos.`\
 https://www.nytimes.com/es/2026/04/20/espanol/cultura/lena-dunham-girls.html
@@ -13,68 +77,4 @@ https://www.nytimes.com/2026/04/20/crosswords/spelling-bee-forum.html
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/20/world/iran-us-war-trump-hormuz/heres-the-latest
-
-**Palabra del día: ‘tacit’**\
-`Esta palabra ha aparecido en 106 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
-https://www.nytimes.com/es/2026/04/20/espanol/palabra-del-dia-tacit.html
-
-**Word of the Day: tacit**\
-`This word has appeared in 106 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/04/20/learning/word-of-the-day-tacit.html
-
-**The Forces of Scarcity Hitting Asia May Soon Spread Across the World**\
-`The Asia-Pacific was hit hard and quick by the war in Iran and its energy bottlenecks. Scenes of crisis there indicate that problems are multiplying and spreading.`\
-https://www.nytimes.com/2026/04/20/world/asia/asia-pacific-iran-war-oil.html
-
-**Se fueron de EE. UU. para ahorrar dinero. Volver parece inasequible**\
-`Algunos estadounidenses que viven en el extranjero se han dado cuenta de que no pueden reproducir en EE. UU. el mismo estilo de vida cómodo que han tenido en otros países.`\
-https://www.nytimes.com/es/2026/04/20/espanol/estados-unidos/estadounidenses-migrantes-dinero.html
-
-**‘Half Man,’ and 5 More Things to Watch on TV This Week**\
-`This new series, starring, written and directed by Richard Gadd of “Baby Reindeer,” comes to HBO, and Hulu observes 420 with a cavalcade of cannabis series.`\
-https://www.nytimes.com/2026/04/20/arts/television/half-man-things-to-watch-on-tv-this-week.html
-
-**Does the Trump Administration Really Want More Teen Pregnancies?**\
-`The new Title X guidance from the Trump administration mentions contraception only once.`\
-https://www.nytimes.com/2026/04/20/opinion/trump-birth-control.html
-
-**Quote of the Day: Rohingya Refugee’s Voyage to Seek Better Life Was Almost His Last**\
-`Quotation of the Day for Monday, April 20, 2026.`\
-https://www.nytimes.com/2026/04/20/pageoneplus/quote-of-the-day-rohingya-refugees-voyage-to-seek-better-life-was-almost-his-last.html
-
-**Mueren 4 investigadores de un laboratorio de drogas en un accidente carretero en México**\
-`Dos de las víctimas eran personal de la embajada de EE. UU. y dos eran agentes antidroga de México, según las autoridades de Chihuahua.`\
-https://www.nytimes.com/es/2026/04/20/espanol/america-latina/accidente-investigadores-droga-mexico.html
-
-**In Turkey, Middle Powers Ponder Diplomacy With a Rogue U.S.**\
-`The U.S. remains an essential player. The problem, one analyst said, is how to deal effectively with a power that is “indispensable, coercive and unpredictable at the same time.”`\
-https://www.nytimes.com/2026/04/20/world/middleeast/turkey-diplomacy-antalya.html
-
-**No Corrections: April 20, 2026**\
-`No corrections appeared in print on Monday, April 20, 2026.`\
-https://www.nytimes.com/2026/04/20/corrections/no-corrections-april-20-2026.html
-
-**‘The Comeback’ Season 3, Episode 5 Recap: No Captain**\
-`“How’s That?!” needs a real leader. The guys surrounding Valerie right now clearly aren’t up to the task.`\
-https://www.nytimes.com/2026/04/19/arts/television/the-comeback-recap-season-3-episode-5.html
-
-**U.S. Military Strikes a Boat in the Caribbean, Killing 3**\
-`The latest attack raised the death toll to at least 180 in the campaign by the United States against people it accuses of smuggling drugs at sea.`\
-https://www.nytimes.com/2026/04/19/us/politics/us-military-strike-boat-strike-caribbean.html
-
-**The Poetry Challenge Day 1: Let’s learn one poem together this week.**\
-`It’s about love, the cosmos and everything in between. And all week we’ll have games and readings by poets laureate, beloved authors and an Oscar winner to help you memorize it.`\
-https://www.nytimes.com/interactive/2026/books/wh-auden-the-more-loving-one-poetry-challenge.html
-
-**4 Drug Lab Investigators Die in Car Crash in Mexico**\
-`Two of the victims were American and two were Mexican, the authorities in Chihuahua said. The accident took place on a treacherous mountain road.`\
-https://www.nytimes.com/2026/04/19/world/americas/mexico-investigator-crash.html
-
-**U.S. Museums Reach Deep into America’s Past**\
-`Museums around the country are celebrating the nation’s heritage in ways that go beyond what might be considered traditional.`\
-https://www.nytimes.com/2026/04/19/arts/design/museums-250th-united-states.html
-
-**Review: They May Be ‘Fallen Angels,’ but This Comic Duo Is Heavenly**\
-`Lust is the comic engine driving the action of a riotous revival of one of Noël Coward’s early plays, with Rose Byrne and Kelli O’Hara, at Todd Haimes Theater.`\
-https://www.nytimes.com/2026/04/19/theater/fallen-angels-review-byrne-kelli-ohara-broadway.html
 
