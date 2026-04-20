@@ -1,3 +1,19 @@
+**Mexico to Investigate Security Role of 2 U.S. Officials Killed in Crash**\
+`President Claudia Sheinbaum said the inquiry would focus on whether the involvement of the Americans in a drug-fighting operation violated Mexico’s national security laws and sovereignty.`\
+https://www.nytimes.com/2026/04/20/world/americas/mexico-investigate-crash-americans.html
+
+**‘Earthset’ Is Captured on Video for First Time**\
+`The Earth slips behind the moon in an iPhone video taken by Reid Wiseman during NASA’s Artemis II mission, a sequel to the iconic Earthrise photo taken by Apollo 8.`\
+https://www.nytimes.com/2026/04/20/science/reid-wiseman-earthset-photo-artemis-2.html
+
+**El gobierno de Trump comenzará a reembolsar 166.000 millones de dólares de aranceles**\
+`El gobierno de EE. UU. presentará un sistema para reembolsar a importadores dos meses después de que la Corte Suprema anulara los aranceles al centro de la política comercial del presidente.`\
+https://www.nytimes.com/es/2026/04/20/espanol/estados-unidos/trump-aranceles-reembolso.html
+
+**You Can’t Defend a Nation When Soldiers Don’t Have Child Care**\
+`Trump wants to pay for the military, not child care. History shows that the armed services are at their best only when soldiers’ kids are cared for.`\
+https://www.nytimes.com/2026/04/20/opinion/military-child-care-cuts.html
+
 **A Brisk Day in Boston, for the Weather and Runners Alike**\
 `Boston held its 130th Marathon on a chilly day that was the crowd endured and the athletes relished.`\
 https://www.nytimes.com/2026/04/20/us/boston-marathon-2026.html

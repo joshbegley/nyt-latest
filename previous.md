@@ -1,3 +1,19 @@
+**Mexico to Investigate Security Role of 2 U.S. Officials Killed in Crash**\
+`President Claudia Sheinbaum said the inquiry would focus on whether the involvement of the Americans in a drug-fighting operation violated Mexico’s national security laws and sovereignty.`\
+https://www.nytimes.com/2026/04/20/world/americas/mexico-investigate-crash-americans.html
+
+**‘Earthset’ Is Captured on Video for First Time**\
+`The Earth slips behind the moon in an iPhone video taken by Reid Wiseman during NASA’s Artemis II mission, a sequel to the iconic Earthrise photo taken by Apollo 8.`\
+https://www.nytimes.com/2026/04/20/science/reid-wiseman-earthset-photo-artemis-2.html
+
+**El gobierno de Trump comenzará a reembolsar 166.000 millones de dólares de aranceles**\
+`El gobierno de EE. UU. presentará un sistema para reembolsar a importadores dos meses después de que la Corte Suprema anulara los aranceles al centro de la política comercial del presidente.`\
+https://www.nytimes.com/es/2026/04/20/espanol/estados-unidos/trump-aranceles-reembolso.html
+
+**You Can’t Defend a Nation When Soldiers Don’t Have Child Care**\
+`Trump wants to pay for the military, not child care. History shows that the armed services are at their best only when soldiers’ kids are cared for.`\
+https://www.nytimes.com/2026/04/20/opinion/military-child-care-cuts.html
+
 **U.S. Has Turned Back 27 Ships Since Strait of Hormuz Blockade Started**\
 `Marines are searching thousands of containers aboard the Touska, an Iranian cargo ship that the Navy disabled and seized on Sunday.`\
 https://www.nytimes.com/2026/04/20/us/politics/military-blockade-iran-strait-hormuz.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/20/arts/music/d4vd-murder-charges-celeste-rivas-
 **In Lebanon, residents of the south make their way home over signs of war.**\
 `Some of the million people displaced by the latest war between Israel and Hezbollah in Lebanon are flooding back home since a 10-day truce between Israel and Lebanon took hold.`\
 https://www.nytimes.com/live/2026/04/20/world/iran-us-war-trump-hormuz/in-lebanon-residents-of-the-south-make-their-way-home-over-signs-of-war
-
-**Desmond Morris, 98, Dies; Explored Humans’ Animal Instincts in ‘The Naked Ape’**\
-`An English zoologist, he wrote an immensely popular 1967 book arguing that ancient genes, shared with apes, shape our lives. Objections in the scientific world ensued.`\
-https://www.nytimes.com/2026/04/20/science/desmond-morris-dead.html
-
-**Democratic Senators Fault Hegseth’s Leadership on Iran**\
-`In a letter, the 11 senators questioned the defense secretary’s decision to gut programs intended to protect civilians and said his orders endangered U.S. troops.`\
-https://www.nytimes.com/2026/04/20/us/politics/democrats-criticism-hegseth-iran.html
-
-**¿EE. UU. puede bloquear barcos vinculados a Irán en cualquier parte del mundo?**\
-`Expertos en derecho marítimo y militar afirman que la ampliación del bloqueo naval anunciada la semana pasada plantea interrogantes jurídicas y prácticas, pero tiene precedentes históricos.`\
-https://www.nytimes.com/es/2026/04/20/espanol/mundo/eeuu-bloqueo-estrecho-ormuz-iran.html
-
-**What We Know About the Killing of 8 Children in Louisiana**\
-`The shooting spree on Sunday also left two adults wounded.`\
-https://www.nytimes.com/2026/04/20/us/shreveport-louisiana-killings-shamar-elkins.html
 
