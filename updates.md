@@ -1,3 +1,7 @@
+**Patrick Muldoon, Actor on ‘Days of Our Lives’ and ‘Melrose Place,’ Dies at 57**\
+`He played the handsome Austin Reed on the NBC daytime soap opera “Days of Our Lives” in more than 400 episodes.`\
+https://www.nytimes.com/2026/04/20/arts/television/patrick-muldoon-dead.html
+
 **Mexico to Investigate Security Role of 2 U.S. Officials Killed in Crash**\
 `President Claudia Sheinbaum said the inquiry would focus on whether the involvement of the Americans in a drug-fighting operation violated Mexico’s national security laws and sovereignty.`\
 https://www.nytimes.com/2026/04/20/world/americas/mexico-investigate-crash-americans.html

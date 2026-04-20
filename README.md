@@ -1,3 +1,7 @@
+**Iranian-Flagged Ship Seized by U.S. Forces Was Under Sanctions**\
+`The container ship, the Touska, was sanctioned by the U.S. Treasury over links to Iranian weapons programs.`\
+https://www.nytimes.com/2026/04/20/world/middleeast/touska-iran-ship-sanctions.html
+
 **Patrick Muldoon, Actor on ‘Days of Our Lives’ and ‘Melrose Place,’ Dies at 57**\
 `He played the handsome Austin Reed on the NBC daytime soap opera “Days of Our Lives” in more than 400 episodes.`\
 https://www.nytimes.com/2026/04/20/arts/television/patrick-muldoon-dead.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/20/technology/amazon-antitrust-suit-california.h
 **The Onion Has a New Plan to Take Over Infowars**\
 `A new deal, which would allow The Onion to use the Infowars name and website address, must be approved by a Texas judge.`\
 https://www.nytimes.com/2026/04/20/business/infowars-alex-jones-the-onion.html
-
-**D4vd Charged With Murder of Girl Whose Remains Were Found in His Car**\
-`The singer is accused of committing unlawful sexual acts against Celeste Rivas Hernandez, killing her because she was a witness to an investigation, and mutilating her body.`\
-https://www.nytimes.com/2026/04/20/arts/music/d4vd-murder-charges-celeste-rivas-hernandez.html
 
