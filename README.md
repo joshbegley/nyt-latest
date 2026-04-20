@@ -43,7 +43,7 @@ https://www.nytimes.com/es/2026/04/20/espanol/mundo/guerra-iran-escasez-asia.htm
 https://www.nytimes.com/video/podcasts/100000010852136/what-can-ai-companies-do-to-win-public-trust.html
 
 **A Brisk Day in Boston, for the Weather and Runners Alike**\
-`Boston held its 130th Marathon on an unseasonably chilly day that was endured by the crowd and relished by the athletes.`\
+`Boston held its 130th Marathon on a chilly day that was the crowd endured and the athletes relished.`\
 https://www.nytimes.com/2026/04/20/us/boston-marathon-2026.html
 
 **California Accuses Amazon of Price Fixing in Legal Filing**\
