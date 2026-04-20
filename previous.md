@@ -50,7 +50,7 @@ https://www.nytimes.com/2026/04/20/arts/music/coachella-guests-madonna-sabrina-c
 `Kiev está utilizando vehículos terrestres no tripulados armados con bombas, cañones o cohetes para llevar a cabo ataques y mantener a sus soldados fuera de peligro.`\
 https://www.nytimes.com/es/2026/04/20/espanol/mundo/ucrania-robots-guerra.html
 
-**Former Kansas Mayor Accused of Illegal Voting Pleads Guilty to Lesser Charges**\
+**Kansas Mayor Who Voted Illegally Will Not Serve Time in Prison**\
 `Joe Ceballos, a green card holder who resigned as Coldwater’s mayor after being charged, said he did not know that he had to be a citizen to vote.`\
 https://www.nytimes.com/2026/04/20/us/kansas-mayor-noncitizen-voting-case-guilty-plea.html
 

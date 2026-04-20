@@ -1,3 +1,7 @@
+**Kansas Mayor Who Voted Illegally Will Not Serve Time in Prison**\
+`Joe Ceballos, a green card holder who resigned as Coldwater’s mayor after being charged, said he did not know that he had to be a citizen to vote.`\
+https://www.nytimes.com/2026/04/20/us/kansas-mayor-noncitizen-voting-case-guilty-plea.html
+
 **U.S. and Iran Peace Talks Appear on Track to Resume**\
 `With the two-week cease-fire almost over, Vice President JD Vance was expected to head to Pakistan on Tuesday for the second round of negotiations.`\
 https://www.nytimes.com/2026/04/20/world/middleeast/iran-us-talks.html
