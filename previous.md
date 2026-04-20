@@ -1,3 +1,27 @@
+**Stir-Fried Honey Ginger Chicken, Fish Cakes and Other Rut Busters**\
+`I rarely think to put carrots in a stir-fry, but these are sliced so thinly that they cook in a flash.`\
+https://www.nytimes.com/2026/04/20/dining/stir-fried-honey-ginger-chicken-fish-cakes-and-other-rut-busters.html
+
+**These Salmon Got High on Cocaine. That Wasn’t the Craziest Part.**\
+`Scientists in Sweden made an unexpected discovery when they exposed the fish to the illegal drug as well as another substance.`\
+https://www.nytimes.com/2026/04/20/science/cocaine-salmon-sweden.html
+
+**Anthropic Wants Claude to Be Moral. Is Religion Really the Answer?**\
+`A.I. cannot meditate, fast or prostrate itself in prayer.`\
+https://www.nytimes.com/2026/04/20/opinion/ai-religion-morality.html
+
+**Do You Know Which Lines Were Added to a Book’s Movie Version?**\
+`Film adaptations often vary from their original source material, and this short quiz challenges you to identify certain words on the screen that were not in the novel.`\
+https://www.nytimes.com/interactive/2026/04/20/books/review/added-lines-quiz.html
+
+**How Bruce the Parrot Landed Atop the Pecking Order — Without a Beak**\
+`The kea gained fame for learning to use a pebble to groom himself. Scientists were astounded by his next innovation.`\
+https://www.nytimes.com/2026/04/20/science/bruce-kea-beak-alpha.html
+
+**Justices to Hear Case on Catholic Preschools That Reject Children of Gay Parents**\
+`Catholic preschools in Colorado that decline to enroll families with L.G.B.T.Q. children or parents sued to participate in a state-funded program.`\
+https://www.nytimes.com/2026/04/20/us/politics/supreme-court-catholic-preschools.html
+
 **A Decisive Win Raises Bulgarians’ Hopes for Change**\
 `An election victory by a former president, Rumen Radev, gives the country a chance for stability and to clean out the corruption that has stymied its growth.`\
 https://www.nytimes.com/2026/04/20/world/europe/bulgaria-election-result-rumen-radev.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/04/20/crosswords/strands-sidekick-779.html
 **A Leaner Saudi Arabia Turns From Grandiose Plans to Pragmatism**\
 `A decade after Mohammed bin Salman unveiled his “Vision 2030” program to transform the country’s economy, the kingdom is facing financial strains and reassessing its trajectory.`\
 https://www.nytimes.com/2026/04/20/world/middleeast/saudi-arabia-vision-pragmatism.html
-
-**Javier Milei quiere cambiar la mentalidad de los argentinos**\
-`El presidente de derecha de Argentina ha logrado controlar la inflación descontrolada del país. Ahora quiere transformar sus valores.`\
-https://www.nytimes.com/es/2026/04/20/espanol/america-latina/argentina-milei-ideologia-mentalidad.html
-
-**Shakespeare compró una propiedad en Londres. Ahora sabemos exactamente dónde**\
-`Al confirmar la ubicación precisa de la casa de William Shakespeare en Blackfriars, una académica británica plantea nuevas preguntas sobre qué pretendía hacer con ella.`\
-https://www.nytimes.com/es/2026/04/20/espanol/cultura/shakespeare-propiedad-londres.html
-
-**Vance Heads to New Talks With Iran. At Stake: Peace and His Own Standing.**\
-`The vice president is again center stage, after abruptly leaving the first round of high-level Iranian peace talks without an agreement.`\
-https://www.nytimes.com/2026/04/20/us/politics/vance-iran-peace-negotiations.html
-
-**Put the Movies on Ozempic**\
-`“Project Hail Mary” is just the latest bloated blockbuster.`\
-https://www.nytimes.com/2026/04/20/opinion/movies-runtime-long.html
-
-**Americans Are Stepping Up to Stop Our Corporate Goliaths**\
-`Lina Khan and Doha Mekki on three court rulings that illustrate the power juries and local officials have to enforce antitrust laws.`\
-https://www.nytimes.com/2026/04/20/opinion/antitrust-jury-live-nation-amazon.html
-
-**Trump Administration to Begin Refunding $166 Billion in Tariffs**\
-`The government will debut a system to repay importers two months after the Supreme Court struck down tariffs at the heart of the president’s trade policy.`\
-https://www.nytimes.com/2026/04/20/business/trump-administration-tariff-refunds.html
 
