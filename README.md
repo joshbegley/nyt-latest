@@ -1,3 +1,11 @@
+**The Forces of Scarcity Hitting Asia May Soon Spread Across the World**\
+`The Asia-Pacific was hit hard and quick by the war in Iran and its energy bottlenecks. Scenes of crisis there indicate that problems are multiplying and spreading.`\
+https://www.nytimes.com/2026/04/20/world/asia/asia-pacific-iran-war-oil.html
+
+**Se fueron de EE. UU. para ahorrar dinero. Volver parece inasequible**\
+`Algunos estadounidenses que viven en el extranjero se han dado cuenta de que no pueden reproducir en EE. UU. el mismo estilo de vida cómodo que han tenido en otros países.`\
+https://www.nytimes.com/es/2026/04/20/espanol/estados-unidos/estadounidenses-migrantes-dinero.html
+
 **‘Half Man,’ and 5 More Things to Watch on TV This Week**\
 `This new series, starring, written and directed by Richard Gadd of “Baby Reindeer,” comes to HBO, and Hulu observes 420 with a cavalcade of cannabis series.`\
 https://www.nytimes.com/2026/04/20/arts/television/half-man-things-to-watch-on-tv-this-week.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/19/world/asia/running-robot-sets-record.html
 **From Pulpits to Pews, Trump and the Pope Are on the Minds of Catholics**\
 `At churches with connections to Pope Leo and the Trump administration, pastors and parishioners speak out on the feud between the president and the pontiff.`\
 https://www.nytimes.com/2026/04/19/us/trump-pope-catholics.html
-
-**Oil Prices Jumped and Stock Futures Fell on Renewed Iran Conflict**\
-`Traders, hopeful on Friday that a peace deal was near, were digesting the developments over the weekend.`\
-https://www.nytimes.com/2026/04/19/business/oil-stocks-gas-iran.html
-
-**8 Children Killed in Louisiana Shooting, Police Say**\
-`A gunman shot 10 people, killing eight children, in a domestic violence shooting at multiple locations in Shreveport, La., the police said. The victims ranged in age from 1 to 14. The gunman was later fatally shot by officers.`\
-https://www.nytimes.com/video/us/100000010850678/shreveport-louisiana-shooting.html
 
