@@ -1,10 +1,18 @@
+**No Nation Is Spared in This War**\
+`The Iran war is just the latest setback in the past several years to low-income and lower-middle-income countries.`\
+https://www.nytimes.com/2026/04/20/opinion/trade-poor-countries-imf-iran-war.html
+
+**Today, In Short**\
+`“CoachGPT.” A college “cookie house.” And the latest from Iran.`\
+https://www.nytimes.com/2026/04/20/briefing/today-in-short.html
+
 **Second Jury Finds Uber Responsible for Sexual Assault by a Driver**\
 `The ride-hailing giant has now lost the first two of more than 3,000 pending federal lawsuits.`\
 https://www.nytimes.com/2026/04/20/business/uber-sexual-assault-verdict-bellwether.html
 
 **Tim Cook Will Step Down as Apple C.E.O.**\
 `The longtime leader of the iPhone maker will be replaced by John Ternus, the company’s head of hardware engineering.`\
-https://www.nytimes.com/2026/04/20/technology/tim-cook-will-step-down-as-apple-ceo.html
+https://www.nytimes.com/2026/04/20/technology/tim-cook-apple-ceo-steps-down.html
 
 **An Artist Devoted to the Origins of Paints**\
 `Sandy Rodriguez is a painter but also, on some level, a scientist, an art historian, a botanist, an outdoorswoman, and maybe even an alchemist.`\
@@ -65,12 +73,4 @@ https://www.nytimes.com/2026/04/20/arts/music/andras-schiff-piano-viktor-orban-h
 **House Ethics Panel Defends Handling of Sexual Misconduct Allegations**\
 `In urging victims to step forward, the secretive panel in charge of investigating charges of misconduct by members of Congress acknowledged limits that could allow offenses to go unaddressed.`\
 https://www.nytimes.com/2026/04/20/us/politics/house-ethics-sexual-misconduct.html
-
-**Surprise! Coachella Finds a New Identity**\
-`What started in the late ’90s as a rock and dance-music festival has evolved into a platform where social media, spectacle and unexpected guests make the headlines.`\
-https://www.nytimes.com/2026/04/20/arts/music/coachella-guests-madonna-sabrina-carpenter.html
-
-**En Ucrania, los robots transforman el campo de batalla**\
-`Kiev está utilizando vehículos terrestres no tripulados armados con bombas, cañones o cohetes para llevar a cabo ataques y mantener a sus soldados fuera de peligro.`\
-https://www.nytimes.com/es/2026/04/20/espanol/mundo/ucrania-robots-guerra.html
 
