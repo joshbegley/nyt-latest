@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/20/world/iran-us-war-trump-hormuz/heres-the-latest
+
+**Palabra del día: ‘tacit’**\
+`Esta palabra ha aparecido en 106 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/04/20/espanol/palabra-del-dia-tacit.html
+
+**Word of the Day: tacit**\
+`This word has appeared in 106 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/04/20/learning/word-of-the-day-tacit.html
+
 **The Forces of Scarcity Hitting Asia May Soon Spread Across the World**\
 `The Asia-Pacific was hit hard and quick by the war in Iran and its energy bottlenecks. Scenes of crisis there indicate that problems are multiplying and spreading.`\
 https://www.nytimes.com/2026/04/20/world/asia/asia-pacific-iran-war-oil.html
