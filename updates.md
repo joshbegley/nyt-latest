@@ -1,3 +1,7 @@
+**Facing Hard-liners at Home and Bluster from Trump, Iran Sends Mixed Signals on Peace Talks**\
+`Publicly, Iran officials refuse to confirm a second round of negotiations with the United States, even as they privately say they are making plans to attend.`\
+https://www.nytimes.com/live/2026/04/20/world/iran-us-war-trump-hormuz/facing-hard-liners-at-home-and-bluster-from-trump-iran-sends-mixed-signals-on-peace-talks
+
 **No Nation Is Spared in This War**\
 `The Iran war is just the latest setback in the past several years to low-income and lower-middle-income countries.`\
 https://www.nytimes.com/2026/04/20/opinion/trade-poor-countries-imf-iran-war.html

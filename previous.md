@@ -1,3 +1,7 @@
+**Facing Hard-liners at Home and Bluster from Trump, Iran Sends Mixed Signals on Peace Talks**\
+`Publicly, Iran officials refuse to confirm a second round of negotiations with the United States, even as they privately say they are making plans to attend.`\
+https://www.nytimes.com/live/2026/04/20/world/iran-us-war-trump-hormuz/facing-hard-liners-at-home-and-bluster-from-trump-iran-sends-mixed-signals-on-peace-talks
+
 **No Nation Is Spared in This War**\
 `The Iran war is just the latest setback in the past several years to low-income and lower-middle-income countries.`\
 https://www.nytimes.com/2026/04/20/opinion/trade-poor-countries-imf-iran-war.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/04/20/us/politics/military-blockade-iran-strait-hor
 **With Orban Out, the Pianist András Schiff Plans a Return to Hungary**\
 `Schiff has said he won’t perform in countries with what he calls strongmen leaders, a list that still includes the United States and Russia.`\
 https://www.nytimes.com/2026/04/20/arts/music/andras-schiff-piano-viktor-orban-hungary.html
-
-**House Ethics Panel Defends Handling of Sexual Misconduct Allegations**\
-`In urging victims to step forward, the secretive panel in charge of investigating charges of misconduct by members of Congress acknowledged limits that could allow offenses to go unaddressed.`\
-https://www.nytimes.com/2026/04/20/us/politics/house-ethics-sexual-misconduct.html
 
