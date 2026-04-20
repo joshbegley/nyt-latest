@@ -1,3 +1,7 @@
+**Apple C.E.O.s Through the Years: From Michael Scott (Not That One) to John Ternus**\
+`Apple’s corner office has been a seat from which executives like Steve Jobs changed how we interact with technology.`\
+https://www.nytimes.com/2026/04/20/technology/apple-ceos-photos.html
+
 **Labor Secretary Steps Down Amid Internal Investigation**\
 `Lori Chavez-DeRemer, President Trump’s labor secretary, was facing multiple scandals and an internal inquiry into charges of misconduct.`\
 https://www.nytimes.com/2026/04/20/us/politics/lori-chavez-deremer-labor-secretary-steps-down.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/04/20/world/americas/mexico-investigate-crash-ameri
 **‘Earthset’ Is Captured on Video for First Time**\
 `The Earth slips behind the moon in an iPhone video taken by Reid Wiseman during NASA’s Artemis II mission, a sequel to the iconic Earthrise photo taken by Apollo 8.`\
 https://www.nytimes.com/2026/04/20/science/reid-wiseman-earthset-photo-artemis-2.html
-
-**El gobierno de Trump comenzará a reembolsar 166.000 millones de dólares de aranceles**\
-`El gobierno de EE. UU. presentará un sistema para reembolsar a importadores dos meses después de que la Corte Suprema anulara los aranceles al centro de la política comercial del presidente.`\
-https://www.nytimes.com/es/2026/04/20/espanol/estados-unidos/trump-aranceles-reembolso.html
 

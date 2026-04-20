@@ -1,6 +1,6 @@
 **Labor Secretary Steps Down Amid Internal Investigation**\
-`Lori Chavez-DeRemer, President Trump’s Labor Secretary, was facing multiple scandals and an internal inquiry into charges of misconduct.`\
-https://www.nytimes.com/2026/04/20/us/politics/labor-secretary-steps-down-amid-internal-investigation.html
+`Lori Chavez-DeRemer, President Trump’s labor secretary, was facing multiple scandals and an internal inquiry into charges of misconduct.`\
+https://www.nytimes.com/2026/04/20/us/politics/lori-chavez-deremer-labor-secretary-steps-down.html
 
 **Democrats Once Loathed Gerrymandering. Now They’re Pushing for It.**\
 `The party is seeking an extra edge in Virginia at a time when its thinking has changed on the partisan drawing of political maps — in large part, leaders say, because of President Trump’s tactics.`\

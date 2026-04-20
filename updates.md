@@ -1,4 +1,8 @@
 **Labor Secretary Steps Down Amid Internal Investigation**\
+`Lori Chavez-DeRemer, President Trump’s labor secretary, was facing multiple scandals and an internal inquiry into charges of misconduct.`\
+https://www.nytimes.com/2026/04/20/us/politics/lori-chavez-deremer-labor-secretary-steps-down.html
+
+**Labor Secretary Steps Down Amid Internal Investigation**\
 `Lori Chavez-DeRemer, President Trump’s Labor Secretary, was facing multiple scandals and an internal inquiry into charges of misconduct.`\
 https://www.nytimes.com/2026/04/20/us/politics/labor-secretary-steps-down-amid-internal-investigation.html
 
