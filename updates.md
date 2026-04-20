@@ -1,3 +1,11 @@
+**Lena Dunham nos hacía mucha falta**\
+`La era de “Girls” acabó hace tiempo. Pero su creadora aún tiene mucho que decir y enseñarnos.`\
+https://www.nytimes.com/es/2026/04/20/espanol/cultura/lena-dunham-girls.html
+
+**El gobierno de Trump está malinterpretando la historia**\
+`Como en tiempos de Tucídides, la postura bélica del gobierno de Estados Unidos promete beneficios a corto plazo pero desastre a largo plazo.`\
+https://www.nytimes.com/es/2026/04/20/espanol/opinion/trump-guerra.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/04/20/crosswords/spelling-bee-forum.html
