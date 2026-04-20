@@ -1,3 +1,19 @@
+**Quote of the Day: Rohingya Refugee’s Voyage to Seek Better Life Was Almost His Last**\
+`Quotation of the Day for Monday, April 20, 2026.`\
+https://www.nytimes.com/2026/04/20/pageoneplus/quote-of-the-day-rohingya-refugees-voyage-to-seek-better-life-was-almost-his-last.html
+
+**Mueren 4 investigadores de un laboratorio de drogas en un accidente carretero en México**\
+`Dos de las víctimas eran personal de la embajada de EE. UU. y dos eran agentes antidroga de México, según las autoridades de Chihuahua.`\
+https://www.nytimes.com/es/2026/04/20/espanol/america-latina/accidente-investigadores-droga-mexico.html
+
+**In Turkey, Middle Powers Ponder Diplomacy With a Rogue U.S.**\
+`The U.S. remains an essential player. The problem, one analyst said, is how to deal effectively with a power that is “indispensable, coercive and unpredictable at the same time.”`\
+https://www.nytimes.com/2026/04/20/world/middleeast/turkey-diplomacy-antalya.html
+
+**No Corrections: April 20, 2026**\
+`No corrections appeared in print on Monday, April 20, 2026.`\
+https://www.nytimes.com/2026/04/20/corrections/no-corrections-april-20-2026.html
+
 **‘The Comeback’ Season 3, Episode 5 Recap: No Captain**\
 `“How’s That?!” needs a real leader. The guys surrounding Valerie right now clearly aren’t up to the task.`\
 https://www.nytimes.com/2026/04/19/arts/television/the-comeback-recap-season-3-episode-5.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/19/crosswords/daily-puzzle-2026-04-20.html
 **Michigan Gas Clerk Helps Save Kidnapped Teen Girl Who Mouthed ‘Help’**\
 `A fellow student who had witnessed the kidnapping called the police, and other students helped track the girl to a gas station.`\
 https://www.nytimes.com/2026/04/19/us/michigan-gas-clerk-saves-teen.html
-
-**Democrats Eye a Broader Battlefield to Capture Congress in November**\
-`Weighed down by President Trump’s approval ratings, some Republican incumbents are struggling to raise money while Democrats look for targets like a Tennessee seat south of Nashville.`\
-https://www.nytimes.com/2026/04/19/us/politics/house-battleground-midterms-tennessee.html
-
-**Messy War, Happy Stock Markets**\
-`On the surface, the recent rally doesn’t seem to make sense: Oil prices are high and a peace deal with Iran remains elusive. Here’s what’s going on.`\
-https://www.nytimes.com/2026/04/19/world/iran-war-stock-market-hormuz-attack.html
-
-**Gwendolyn Chisolm, Who Rhymed on Rap’s First Female Hit, Dies at 66**\
-`A chance encounter led to overnight success for the Sequence, a seminal trio whose “Funk You Up” broke barriers.`\
-https://www.nytimes.com/2026/04/19/arts/music/gwendolyn-chisolm-who-rhymed-on-raps-first-female-hit-dies-at-66.html
-
-**Can U.S. Blockade Iranian-Linked Ships Anywhere in the World? Yes, But …**\
-`Maritime and military law experts say an expansion of the naval blockade announced last week raises legal and practical questions but has ample historical precedent.`\
-https://www.nytimes.com/2026/04/19/world/middleeast/us-iran-blockade-expansion.html
 
