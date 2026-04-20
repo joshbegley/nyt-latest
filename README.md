@@ -1,8 +1,12 @@
+**Javier Milei quiere cambiar la mentalidad de los argentinos**\
+`El presidente de derecha de Argentina ha logrado controlar la inflación descontrolada del país. Ahora quiere transformar sus valores.`\
+https://www.nytimes.com/es/2026/04/20/espanol/america-latina/argentina-milei-ideologia-mentalidad.html
+
 **Shakespeare compró una propiedad en Londres. Ahora sabemos exactamente dónde**\
 `Al confirmar la ubicación precisa de la casa de William Shakespeare en Blackfriars, una académica británica plantea nuevas preguntas sobre qué pretendía hacer con ella.`\
 https://www.nytimes.com/es/2026/04/20/espanol/cultura/shakespeare-propiedad-londres.html
 
-**Vance Heads to New Talks With Iran. At Stake: Peace and His Own Standing**\
+**Vance Heads to New Talks With Iran. At Stake: Peace and His Own Standing.**\
 `The vice president is again center stage, after abruptly leaving the first round of high-level Iranian peace talks without an agreement.`\
 https://www.nytimes.com/2026/04/20/us/politics/vance-iran-peace-negotiations.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/20/world/asia/pakistan-shiites-iran-diplomacy.ht
 **Big Names Wait in the Wings as Virginians Decide Their House Maps**\
 `With Virginians voting Tuesday to accept or reject redistricting, candidates from both parties await the voters’ judgment to decide whether — or where — to run for Congress.`\
 https://www.nytimes.com/2026/04/20/us/elections/virginia-redistricting-candidates.html
-
-**Could ‘A River Runs Through It’ Have Been a Hit Today?**\
-`The autobiographical novella, first published 50 years ago, arguably created a new type of guy: the literary fly fisherman.`\
-https://www.nytimes.com/2026/04/20/books/could-a-river-runs-through-it-have-been-a-hit-today.html
 
