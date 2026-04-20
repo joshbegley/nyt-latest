@@ -1,3 +1,19 @@
+**George Ariyoshi, 100, America’s First Governor of Asian Descent, Dies**\
+`A Democrat, he served three terms as Hawaii’s governor (1974-86), rising out of a tough district of Honolulu. He tried to diversify an economy heavily dependent on tourism.`\
+https://www.nytimes.com/2026/04/20/us/politics/george-ariyoshi-dead.html
+
+**New Details in the Mass Shooting That Left 8 Dead in Louisiana**\
+`On Monday, city and state officials gave updates on a mass shooting in Shreveport, La., in which a gunman opened fire on his family, killing eight children and injuring two others.`\
+https://www.nytimes.com/video/us/100000010852189/shreveport-louisiana-shooting-update.html
+
+**Una turista canadiense muere en un tiroteo en las pirámides de Teotihuacán, dicen las autoridades**\
+`El hombre armado abrió fuego en el yacimiento arqueológico de Teotihuacán, a las afueras de Ciudad de México, antes de quitarse la vida.`\
+https://www.nytimes.com/es/2026/04/20/espanol/america-latina/teotihuacan-tiroteo-balacera-mexico.html
+
+**This Parrot Has No Beak, But Is at the Top of the Pecking Order**\
+`Bruce, a disabled kea parrot, is missing his top beak. The bird uses tools to keep himself healthy and developed a jousting technique that has made him the alpha male of his group.`\
+https://www.nytimes.com/video/science/earth/100000010852236/parrot-disabled-beak-new-zealand.html
+
 **Apple C.E.O.s Through the Years: From Michael Scott (Not That One) to John Ternus**\
 `Apple’s corner office has been a seat from which executives like Steve Jobs changed how we interact with technology.`\
 https://www.nytimes.com/2026/04/20/technology/apple-ceos-photos.html
@@ -57,20 +73,4 @@ https://www.nytimes.com/2026/04/20/world/middleeast/iran-us-talks.html
 **Barbara Hatch Rosenberg, Who Joined Hunt for Anthrax Culprit, Dies at 97**\
 `An expert on biological weapons, she emerged as an influential voice during the F.B.I.’s rocky search for a suspect after the deadly anthrax attacks of 2001.`\
 https://www.nytimes.com/2026/04/20/us/barbara-hatch-rosenberg-dead.html
-
-**Iranian-Flagged Ship Seized by U.S. Forces Was Under Sanctions**\
-`The container ship, the Touska, was sanctioned by the U.S. Treasury over links to Iranian weapons programs.`\
-https://www.nytimes.com/2026/04/20/world/middleeast/touska-iran-ship-sanctions.html
-
-**Patrick Muldoon, Actor on ‘Days of Our Lives’ and ‘Melrose Place,’ Dies at 57**\
-`He played the handsome Austin Reed on the NBC daytime soap opera “Days of Our Lives” in more than 400 episodes.`\
-https://www.nytimes.com/2026/04/20/arts/television/patrick-muldoon-dead.html
-
-**Mexico to Investigate Security Role of 2 U.S. Officials Killed in Crash**\
-`President Claudia Sheinbaum said the inquiry would focus on whether the involvement of the Americans in a drug-fighting operation violated Mexico’s national security laws and sovereignty.`\
-https://www.nytimes.com/2026/04/20/world/americas/mexico-investigate-crash-americans.html
-
-**‘Earthset’ Is Captured on Video for First Time**\
-`The Earth slips behind the moon in an iPhone video taken by Reid Wiseman during NASA’s Artemis II mission, a sequel to the iconic Earthrise photo taken by Apollo 8.`\
-https://www.nytimes.com/2026/04/20/science/reid-wiseman-earthset-photo-artemis-2.html
 
