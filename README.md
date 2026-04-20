@@ -1,3 +1,7 @@
+**Opponents Sue to Block Mayor’s Plan to Move Shelter to East Village**\
+`A lawsuit challenges the Mamdani administration’s declaration that closing the 30th Street Shelter was an emergency and was not subject to public notice and other requirements.`\
+https://www.nytimes.com/2026/04/20/nyregion/bellevue-homeless-shelter-lawsuit.html
+
 **Student News Quiz: Cease-Fire, Concert Giant, Religion**\
 `Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
 https://www.nytimes.com/interactive/2026/04/20/learning/20StudentNewsQuiz.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/04/20/technology/tim-cook-apple-ceo-steps-down.html
 **An Artist Devoted to the Origins of Paints**\
 `Sandy Rodriguez is a painter but also, on some level, a scientist, an art historian, a botanist, an outdoorswoman, and maybe even an alchemist.`\
 https://www.nytimes.com/2026/04/20/arts/design/sandy-rodriguez-painting.html
-
-**The Next Frontier in Design? The Humble Birdhouse.**\
-`Recently, as artists and architects have turned their attention outdoors, they have started putting their creative chops to work — for the avians among us.`\
-https://www.nytimes.com/2026/04/20/arts/design/design-birdhouse.html
 
