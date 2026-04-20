@@ -1,3 +1,11 @@
+**Surprise! Coachella Finds a New Identity**\
+`What started in the late ’90s as a rock and dance-music festival has evolved into a platform where social media, spectacle and unexpected guests make the headlines.`\
+https://www.nytimes.com/2026/04/20/arts/music/coachella-guests-madonna-sabrina-carpenter.html
+
+**En Ucrania, los robots transforman el campo de batalla**\
+`Kiev está utilizando vehículos terrestres no tripulados armados con bombas, cañones o cohetes para llevar a cabo ataques y mantener a sus soldados fuera de peligro.`\
+https://www.nytimes.com/es/2026/04/20/espanol/mundo/ucrania-robots-guerra.html
+
 **Former Kansas Mayor Accused of Illegal Voting Pleads Guilty to Lesser Charges**\
 `Joe Ceballos, a green card holder who resigned as Coldwater’s mayor after being charged, said he did not know that he had to be a citizen to vote.`\
 https://www.nytimes.com/2026/04/20/us/kansas-mayor-noncitizen-voting-case-guilty-plea.html
@@ -35,7 +43,7 @@ https://www.nytimes.com/2026/04/20/technology/amazon-antitrust-suit-california.h
 https://www.nytimes.com/2026/04/20/business/infowars-alex-jones-the-onion.html
 
 **Prosecutors to Charge D4vd With Murder of Teenage Girl**\
-`The singer is accused of committing unlawful sexual acts against Celeste Rivas Hernandez, killing her because she was a witness into an investigation, and mutilating her body.`\
+`The singer is accused of committing unlawful sexual acts against Celeste Rivas Hernandez, killing her because she was a witness to an investigation, and mutilating her body.`\
 https://www.nytimes.com/2026/04/20/arts/music/d4vd-murder-charges-celeste-rivas-hernandez.html
 
 **In Lebanon, residents of the south make their way home over signs of war.**\
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/20/opinion/eric-swalwell-metoo.html
 **Israeli Soldier in Lebanon Sledgehammered a Statue of Jesus**\
 `The military is investigating the soldier. Prime Minister Benjamin Netanyahu expressed regret for any hurt caused to “believers in Lebanon and around the world.”`\
 https://www.nytimes.com/2026/04/20/world/middleeast/israeli-soldier-lebanon-sledgehammer-jesus.html
-
-**California Woman Is Arrested at LAX and Accused of Selling Weapons for Iran**\
-`Prosecutors said that Shamim Mafi, a legal permanent resident of the United States, helped facilitate millions of dollars in arms transfers from Iran.`\
-https://www.nytimes.com/2026/04/20/us/la-iran-trafficking-arrest-shamim-mafi.html
-
-**Environmental Groups Sue to Block BP’s Plan to Drill in Deep Gulf Waters**\
-`Opponents of the project, known as Kaskida, say an accident could be even worse than the Deepwater Horizon spill. The company says it’s learned from the past.`\
-https://www.nytimes.com/2026/04/20/climate/bp-kaskida-drilling-lawsuit.html
 

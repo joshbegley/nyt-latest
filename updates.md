@@ -1,3 +1,11 @@
+**Former Kansas Mayor Accused of Illegal Voting Pleads Guilty to Lesser Charges**\
+`Joe Ceballos, a green card holder who resigned as Coldwater’s mayor after being charged, said he did not know that he had to be a citizen to vote.`\
+https://www.nytimes.com/2026/04/20/us/kansas-mayor-noncitizen-voting-case-guilty-plea.html
+
+**Elon Musk Ignores French Prosecutors, Widening Tech Rift With Europe**\
+`Prosecutors investigating his social media company, X, had summoned him for a meeting. His no-show reflected a broader dispute over regulation.`\
+https://www.nytimes.com/2026/04/20/world/europe/elon-musk-ignores-french-summons.html
+
 **Another Democrat Leaves the California Governor’s Race**\
 `Betty Yee, the former state controller, had faced pressure to drop out after hovering near the bottom of polls for months. The move could help Democrats begin to unify behind a front-runner.`\
 https://www.nytimes.com/2026/04/20/us/california-governor-democrat-betty-yee.html
