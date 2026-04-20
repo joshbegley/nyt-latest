@@ -1,3 +1,11 @@
+**U.S. and Iran Peace Talks Appear on Track to Resume**\
+`With the two-week cease-fire almost over, Vice President JD Vance was expected to head to Pakistan on Tuesday for the second round of negotiations.`\
+https://www.nytimes.com/2026/04/20/world/middleeast/iran-us-talks.html
+
+**Barbara Hatch Rosenberg, Who Joined Hunt for Anthrax Culprit, Dies at 97**\
+`An expert on biological weapons, she emerged as an influential voice during the F.B.I.’s rocky search for a suspect after the deadly anthrax attacks of 2001.`\
+https://www.nytimes.com/2026/04/20/us/barbara-hatch-rosenberg-dead.html
+
 **Iranian-Flagged Ship Seized by U.S. Forces Was Under Sanctions**\
 `The container ship, the Touska, was sanctioned by the U.S. Treasury over links to Iranian weapons programs.`\
 https://www.nytimes.com/2026/04/20/world/middleeast/touska-iran-ship-sanctions.html
