@@ -1,3 +1,11 @@
+**‘Half Man,’ and 5 More Things to Watch on TV This Week**\
+`This new series, starring, written and directed by Richard Gadd of “Baby Reindeer,” comes to HBO, and Hulu observes 420 with a cavalcade of cannabis series.`\
+https://www.nytimes.com/2026/04/20/arts/television/half-man-things-to-watch-on-tv-this-week.html
+
+**Does the Trump Administration Really Want More Teen Pregnancies?**\
+`The new Title X guidance from the Trump administration mentions contraception only once.`\
+https://www.nytimes.com/2026/04/20/opinion/trump-birth-control.html
+
 **Quote of the Day: Rohingya Refugee’s Voyage to Seek Better Life Was Almost His Last**\
 `Quotation of the Day for Monday, April 20, 2026.`\
 https://www.nytimes.com/2026/04/20/pageoneplus/quote-of-the-day-rohingya-refugees-voyage-to-seek-better-life-was-almost-his-last.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/19/business/oil-stocks-gas-iran.html
 **8 Children Killed in Louisiana Shooting, Police Say**\
 `A gunman shot 10 people, killing eight children, in a domestic violence shooting at multiple locations in Shreveport, La., the police said. The victims ranged in age from 1 to 14. The gunman was later fatally shot by officers.`\
 https://www.nytimes.com/video/us/100000010850678/shreveport-louisiana-shooting.html
-
-**Full of Know-How**\
-`Freddie Cheng’s puzzle brings us into the wild.`\
-https://www.nytimes.com/2026/04/19/crosswords/daily-puzzle-2026-04-20.html
-
-**Michigan Gas Clerk Helps Save Kidnapped Teen Girl Who Mouthed ‘Help’**\
-`A fellow student who had witnessed the kidnapping called the police, and other students helped track the girl to a gas station.`\
-https://www.nytimes.com/2026/04/19/us/michigan-gas-clerk-saves-teen.html
 
