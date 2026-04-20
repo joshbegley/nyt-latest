@@ -1,3 +1,7 @@
+**Americans Are Stepping Up to Stop Our Corporate Goliaths**\
+`Lina Khan and Doha Mekki on three court rulings that illustrate the power juries and local officials have to enforce antitrust laws.`\
+https://www.nytimes.com/2026/04/20/opinion/antitrust-jury-live-nation-amazon.html
+
 **Strait of Hormuz Traffic Is at a Standstill Again**\
 `Few vessels are crossing after Iran reversed course on reopening the vital waterway and ships came under attack.`\
 https://www.nytimes.com/2026/04/20/world/middleeast/strait-hormuz-traffic-ships-iran-us.html

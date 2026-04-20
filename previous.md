@@ -66,7 +66,7 @@ https://www.nytimes.com/2026/04/20/us/politics/vance-iran-peace-negotiations.htm
 `“Project Hail Mary” is just the latest bloated blockbuster.`\
 https://www.nytimes.com/2026/04/20/opinion/movies-runtime-long.html
 
-**Live Nation. Amazon. Americans Are Standing Up to Corporate Lawbreaking.**\
+**Americans Are Stepping Up to Stop Our Corporate Goliaths**\
 `Lina Khan and Doha Mekki on three court rulings that illustrate the power juries and local officials have to enforce antitrust laws.`\
 https://www.nytimes.com/2026/04/20/opinion/antitrust-jury-live-nation-amazon.html
 
