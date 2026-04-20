@@ -1,3 +1,11 @@
+**The Peace Rally Gets Derailed**\
+`Oil prices are climbing and global stocks are falling as investors worry about the prospects for a speedy end to the war in the Middle East.`\
+https://www.nytimes.com/2026/04/20/business/dealbook/iran-peace-rally-stocks.html
+
+**Stolen Letters That John Keats Sent to His Beloved Are Found**\
+`The eight letters by the 19th-century Romantic poet to his fiancée, Fanny Brawne, were taken decades ago from a Whitney family estate on Long Island.`\
+https://www.nytimes.com/2026/04/20/arts/john-keats-letters-fanny-brawne-stolen.html
+
 **A Supreme Court Scoop**\
 `We go behind the scenes at the nation’s highest court.`\
 https://www.nytimes.com/2026/04/20/briefing/a-supreme-court-scoop.html

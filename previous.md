@@ -1,3 +1,11 @@
+**The Peace Rally Gets Derailed**\
+`Oil prices are climbing and global stocks are falling as investors worry about the prospects for a speedy end to the war in the Middle East.`\
+https://www.nytimes.com/2026/04/20/business/dealbook/iran-peace-rally-stocks.html
+
+**Stolen Letters That John Keats Sent to His Beloved Are Found**\
+`The eight letters by the 19th-century Romantic poet to his fiancée, Fanny Brawne, were taken decades ago from a Whitney family estate on Long Island.`\
+https://www.nytimes.com/2026/04/20/arts/john-keats-letters-fanny-brawne-stolen.html
+
 **A Supreme Court Scoop**\
 `We go behind the scenes at the nation’s highest court.`\
 https://www.nytimes.com/2026/04/20/briefing/a-supreme-court-scoop.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/20/business/economy/gas-stations-pricing.html
 **Northeast Swings From 90 Degrees to Freezing Cold in Just a Few Days**\
 `Central Park and other spots around the region set record-high temperatures last week. Freeze watches were in place on Monday. What’s going on?`\
 https://www.nytimes.com/2026/04/20/weather/cold-temperatures-forecast.html
-
-**Inside the Power Stations That Keep the Subways Moving, or Bring Them to a Halt**\
-`Transit officials are spending billions of dollars to upgrade New York City’s aging electrical substations, the mostly invisible backbone of the subway system.`\
-https://www.nytimes.com/interactive/2026/04/20/nyregion/nyc-subway-power-electricity-train-delays.html
-
-**What’s the Best Way to Wear Boots in Warm Weather?**\
-`Even as the weather heats up, many are still lacing up their boots. Our critic explains the trend and offers styling tips.`\
-https://www.nytimes.com/2026/04/20/fashion/boots-spring-summer.html
 
