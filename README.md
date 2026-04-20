@@ -1,3 +1,31 @@
+**Starmer Will Tell Parliament He Was Kept in the Dark on Mandelson Vetting**\
+`Prime Minister Keir Starmer will address British lawmakers on Monday after it emerged that Peter Mandelson, his onetime ambassador to the United States, was rejected for top security clearances.`\
+https://www.nytimes.com/2026/04/20/world/europe/uk-starmer-mandelson-statement-parliament.html
+
+**Hey, Washington: Guess Who’s Coming to Dinner?**\
+`A president who relishes attacking the news media is set to break his boycott of an event celebrating the news media. What could go wrong?`\
+https://www.nytimes.com/2026/04/20/business/media/white-house-correspondents-dinner-trump.html
+
+**Inside the Five Days That Remade the Supreme Court**\
+`Secret memos obtained by The New York Times illuminate the origins of the court’s now-routine “shadow docket” rulings on presidential power.`\
+https://www.nytimes.com/2026/04/20/podcasts/the-daily/supreme-court-investigation.html
+
+**U.S. Attacks and Seizes Cargo Ship Near Iran, and a First Step Toward Tariff Refunds**\
+`Plus, Lego crime.`\
+https://www.nytimes.com/2026/04/20/podcasts/the-headlines/us-iran-tariff-refunds.html
+
+**Connections Companion No. 1,045**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, April 21, 2026.`\
+https://www.nytimes.com/2026/04/20/crosswords/connections-companion-1045.html
+
+**Wordle Review No. 1,767**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, April 21, 2026.`\
+https://www.nytimes.com/2026/04/20/crosswords/wordle-review-1767.html
+
+**Strands Sidekick No. 779**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, April 21, 2026.`\
+https://www.nytimes.com/2026/04/20/crosswords/strands-sidekick-779.html
+
 **A Leaner Saudi Arabia Turns From Grandiose Plans to Pragmatism**\
 `A decade after Mohammed bin Salman unveiled his “Vision 2030” program to transform the country’s economy, the kingdom is facing financial strains and reassessing its trajectory.`\
 https://www.nytimes.com/2026/04/20/world/middleeast/saudi-arabia-vision-pragmatism.html
@@ -49,32 +77,4 @@ https://www.nytimes.com/2026/04/20/fashion/boots-spring-summer.html
 **The Man Who Ate Hollywood**\
 `As the sale of Warner Bros. Discovery to Paramount Skydance hurtles toward board approval, David Zaslav is about to be more than an accidental mogul.`\
 https://www.nytimes.com/2026/04/20/opinion/warner-bros-paramount-skydance-david-ellison.html
-
-**Daniel Craig and Lily Allen Sell Their Brooklyn Brownstones**\
-`Mr. Craig and Rachel Weisz had owned their Cobble Hill home for almost a decade. Ms. Allen’s sale in Carroll Gardens comes amid the breakup of her marriage.`\
-https://www.nytimes.com/2026/04/20/realestate/daniel-craig-lily-allen-sell-brooklyn-brownstones.html
-
-**What Role Does Music Play in Your Life?**\
-`Teens in Philadelphia are trying to make safer neighborhoods. Many are starting with music.`\
-https://www.nytimes.com/2026/04/20/learning/what-role-does-music-play-in-your-life.html
-
-**The Killer Robots Are Coming. The Battlefield Will Never Look the Same.**\
-`Ukraine is using unmanned ground vehicles armed with bombs, guns or rockets to carry out attacks and keep its soldiers out of harm’s way.`\
-https://www.nytimes.com/2026/04/20/world/europe/ukraine-russia-war-robots-drones.html
-
-**She Saw Herself as a Woman, Not a Trans Woman**\
-`A new biography of Jan Morris shows why the journalist, world traveler, historian and essayist was far more than a trailblazer.`\
-https://www.nytimes.com/2026/04/20/books/review/jan-morris-sara-wheeler.html
-
-**Mi esposo se niega a ir al médico. ¿Qué debo hacer?**\
-`Nuestra columnista de Pregúntale a la Terapeuta, Lori Gottlieb, aconseja a una lectora que no puede contar con su cónyuge para cuidar de sí mismo, ni de su futuro económico.`\
-https://www.nytimes.com/es/2026/04/20/espanol/estilos-de-vida/esposo-no-quiere-ir-medico.html
-
-**How a Fashion Disrupter Lives on $50,000 a Year in the South Bronx**\
-`To make a living off his designs, Ari Serrano combs through thrift stores for supplies and finds opportunities for those who can make a name online.`\
-https://www.nytimes.com/interactive/2026/04/20/nyregion/nyc-budgeting-affordability-serrano.html
-
-**Pakistan’s Leaders Try to Contain Rising Anger Over Iran War at Home**\
-`With deep spiritual ties to Iran, Pakistan’s minority Shiites are angry about the killing of Iran’s top clerics in U.S.-Israeli strikes, complicating Pakistan’s role as mediator.`\
-https://www.nytimes.com/2026/04/20/world/asia/pakistan-shiites-iran-diplomacy.html
 
