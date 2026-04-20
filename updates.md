@@ -1,3 +1,11 @@
+**‘Half Man,’ and 5 More Things to Watch on TV This Week**\
+`This new series, starring, written and directed by Richard Gadd of “Baby Reindeer,” comes to HBO, and Hulu observes 420 with a cavalcade of cannabis series.`\
+https://www.nytimes.com/2026/04/20/arts/television/half-man-things-to-watch-on-tv-this-week.html
+
+**Does the Trump Administration Really Want More Teen Pregnancies?**\
+`The new Title X guidance from the Trump administration mentions contraception only once.`\
+https://www.nytimes.com/2026/04/20/opinion/trump-birth-control.html
+
 **Quote of the Day: Rohingya Refugee’s Voyage to Seek Better Life Was Almost His Last**\
 `Quotation of the Day for Monday, April 20, 2026.`\
 https://www.nytimes.com/2026/04/20/pageoneplus/quote-of-the-day-rohingya-refugees-voyage-to-seek-better-life-was-almost-his-last.html
