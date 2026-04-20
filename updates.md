@@ -1,3 +1,31 @@
+**Starmer Will Tell Parliament He Was Kept in the Dark on Mandelson Vetting**\
+`Prime Minister Keir Starmer will address British lawmakers on Monday after it emerged that Peter Mandelson, his onetime ambassador to the United States, was rejected for top security clearances.`\
+https://www.nytimes.com/2026/04/20/world/europe/uk-starmer-mandelson-statement-parliament.html
+
+**Hey, Washington: Guess Who’s Coming to Dinner?**\
+`A president who relishes attacking the news media is set to break his boycott of an event celebrating the news media. What could go wrong?`\
+https://www.nytimes.com/2026/04/20/business/media/white-house-correspondents-dinner-trump.html
+
+**Inside the Five Days That Remade the Supreme Court**\
+`Secret memos obtained by The New York Times illuminate the origins of the court’s now-routine “shadow docket” rulings on presidential power.`\
+https://www.nytimes.com/2026/04/20/podcasts/the-daily/supreme-court-investigation.html
+
+**U.S. Attacks and Seizes Cargo Ship Near Iran, and a First Step Toward Tariff Refunds**\
+`Plus, Lego crime.`\
+https://www.nytimes.com/2026/04/20/podcasts/the-headlines/us-iran-tariff-refunds.html
+
+**Connections Companion No. 1,045**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, April 21, 2026.`\
+https://www.nytimes.com/2026/04/20/crosswords/connections-companion-1045.html
+
+**Wordle Review No. 1,767**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, April 21, 2026.`\
+https://www.nytimes.com/2026/04/20/crosswords/wordle-review-1767.html
+
+**Strands Sidekick No. 779**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, April 21, 2026.`\
+https://www.nytimes.com/2026/04/20/crosswords/strands-sidekick-779.html
+
 **A Leaner Saudi Arabia Turns From Grandiose Plans to Pragmatism**\
 `A decade after Mohammed bin Salman unveiled his “Vision 2030” program to transform the country’s economy, the kingdom is facing financial strains and reassessing its trajectory.`\
 https://www.nytimes.com/2026/04/20/world/middleeast/saudi-arabia-vision-pragmatism.html
