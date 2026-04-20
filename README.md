@@ -1,3 +1,7 @@
+**U.S. Has Turned Back 27 Ships Since Strait of Hormuz Blockade Started**\
+`Marines are searching thousands of containers aboard the Touska, an Iranian cargo ship that the Navy disabled and seized on Sunday.`\
+https://www.nytimes.com/2026/04/20/us/politics/military-blockade-iran-strait-hormuz.html
+
 **With Orban Out, the Pianist András Schiff Plans a Return to Hungary**\
 `Schiff has said he won’t perform in countries with what he calls strongmen leaders, a list that still includes the United States and Russia.`\
 https://www.nytimes.com/2026/04/20/arts/music/andras-schiff-piano-viktor-orban-hungary.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/20/espanol/mundo/eeuu-bloqueo-estrecho-ormuz-
 **What We Know About the Killing of 8 Children in Louisiana**\
 `The shooting spree on Sunday also left two adults wounded.`\
 https://www.nytimes.com/2026/04/20/us/shreveport-louisiana-killings-shamar-elkins.html
-
-**Gotti Grandson Is Sentenced to 15 Months for Covid Relief Fraud**\
-`Carmine G. Agnello Jr. had pleaded guilty to fraudulently collecting more than $1 million in small-business loans, some of which he invested in cryptocurrency.`\
-https://www.nytimes.com/2026/04/20/nyregion/carmine-agnello-john-gotti-sentenced-fraud.html
 
