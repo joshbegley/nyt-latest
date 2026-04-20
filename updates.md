@@ -1,3 +1,15 @@
+**Louisiana Killer’s Threats to Himself and Others Hinted at Future Violence**\
+`Shamar Elkins had been suffering severe mental health problems, his family said. His deadly rampage, which killed eight children, has profoundly scarred a community facing rising domestic violence.`\
+https://www.nytimes.com/2026/04/20/us/louisiana-killer-history-violent-threats.html
+
+**‘Immediate Results’ vs. ‘The Long Game’: Iran and the U.S. Face Off**\
+`As the United States and Iran make a second attempt at a deal, their negotiating styles are on a collision course.`\
+https://www.nytimes.com/2026/04/20/us/politics/us-iran-negotiation-style.html
+
+**2 Teens Killed and 5 Injured in North Carolina Shooting**\
+`The young people, planning for a fight, had arranged to meet off school grounds at a park in Winston-Salem, N.C., when gunfire broke out on Monday morning.`\
+https://www.nytimes.com/2026/04/20/us/winston-salem-shooting-north-carolina.html
+
 **Un soldado israelí en Líbano destrozó una estatua de Jesús**\
 `El ejército de Israel está investigando al soldado. El primer ministro israelí, Benjamín Netanyahu, lamentó cualquier daño causado a “los creyentes de Líbano y de todo el mundo”.`\
 https://www.nytimes.com/es/2026/04/20/espanol/mundo/soldado-israel-jesus-libano.html
