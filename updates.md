@@ -1,3 +1,11 @@
+**Democratic Senators Fault Hegseth’s Leadership on Iran**\
+`In a letter, the 11 senators questioned the defense secretary’s decision to gut programs intended to protect civilians and said his orders endangered U.S. troops.`\
+https://www.nytimes.com/2026/04/20/us/politics/democrats-criticism-hegseth-iran.html
+
+**F.B.I. Director Sues The Atlantic Over Article Claiming Excessive Drinking**\
+`Mr. Patel accused the publication of defamation, asking for $250 million in damages. A spokeswoman for The Atlantic called the suit “meritless.”`\
+https://www.nytimes.com/2026/04/20/us/politics/kash-patel-atlantic-article-alcohol-drinking-fbi-lawsuit.html
+
 **¿EE. UU. puede bloquear barcos vinculados a Irán en cualquier parte del mundo?**\
 `Expertos en derecho marítimo y militar afirman que la ampliación del bloqueo naval anunciada la semana pasada plantea interrogantes jurídicas y prácticas, pero tiene precedentes históricos.`\
 https://www.nytimes.com/es/2026/04/20/espanol/mundo/eeuu-bloqueo-estrecho-ormuz-iran.html
