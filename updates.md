@@ -1,3 +1,19 @@
+**Quote of the Day: Rohingya Refugee’s Voyage to Seek Better Life Was Almost His Last**\
+`Quotation of the Day for Monday, April 20, 2026.`\
+https://www.nytimes.com/2026/04/20/pageoneplus/quote-of-the-day-rohingya-refugees-voyage-to-seek-better-life-was-almost-his-last.html
+
+**Mueren 4 investigadores de un laboratorio de drogas en un accidente carretero en México**\
+`Dos de las víctimas eran personal de la embajada de EE. UU. y dos eran agentes antidroga de México, según las autoridades de Chihuahua.`\
+https://www.nytimes.com/es/2026/04/20/espanol/america-latina/accidente-investigadores-droga-mexico.html
+
+**In Turkey, Middle Powers Ponder Diplomacy With a Rogue U.S.**\
+`The U.S. remains an essential player. The problem, one analyst said, is how to deal effectively with a power that is “indispensable, coercive and unpredictable at the same time.”`\
+https://www.nytimes.com/2026/04/20/world/middleeast/turkey-diplomacy-antalya.html
+
+**No Corrections: April 20, 2026**\
+`No corrections appeared in print on Monday, April 20, 2026.`\
+https://www.nytimes.com/2026/04/20/corrections/no-corrections-april-20-2026.html
+
 **‘The Comeback’ Season 3, Episode 5 Recap: No Captain**\
 `“How’s That?!” needs a real leader. The guys surrounding Valerie right now clearly aren’t up to the task.`\
 https://www.nytimes.com/2026/04/19/arts/television/the-comeback-recap-season-3-episode-5.html
