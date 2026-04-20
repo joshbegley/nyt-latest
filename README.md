@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/04/20/us/politics/george-ariyoshi-dead.html
 `On Monday, city and state officials gave updates on a mass shooting in Shreveport, La., in which a gunman opened fire on his family, killing eight children and injuring two others.`\
 https://www.nytimes.com/video/us/100000010852189/shreveport-louisiana-shooting-update.html
 
-**Una turista canadiense muere en un tiroteo en las pirámides de Teotihuacán, dicen las autoridades**\
+**Una turista canadiense muere en un tiroteo en las pirámides de Teotihuacán**\
 `El hombre armado abrió fuego en el yacimiento arqueológico de Teotihuacán, a las afueras de Ciudad de México, antes de quitarse la vida.`\
 https://www.nytimes.com/es/2026/04/20/espanol/america-latina/teotihuacan-tiroteo-balacera-mexico.html
 
