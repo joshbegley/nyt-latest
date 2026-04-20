@@ -1,3 +1,11 @@
+**Former Kansas Mayor Accused of Illegal Voting Pleads Guilty to Lesser Charges**\
+`Joe Ceballos, a green card holder who resigned as Coldwater’s mayor after being charged, said he did not know that he had to be a citizen to vote.`\
+https://www.nytimes.com/2026/04/20/us/kansas-mayor-noncitizen-voting-case-guilty-plea.html
+
+**Elon Musk Ignores French Prosecutors, Widening Tech Rift With Europe**\
+`Prosecutors investigating his social media company, X, had summoned him for a meeting. His no-show reflected a broader dispute over regulation.`\
+https://www.nytimes.com/2026/04/20/world/europe/elon-musk-ignores-french-summons.html
+
 **Another Democrat Leaves the California Governor’s Race**\
 `Betty Yee, the former state controller, had faced pressure to drop out after hovering near the bottom of polls for months. The move could help Democrats begin to unify behind a front-runner.`\
 https://www.nytimes.com/2026/04/20/us/california-governor-democrat-betty-yee.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/20/us/la-iran-trafficking-arrest-shamim-mafi.htm
 **Environmental Groups Sue to Block BP’s Plan to Drill in Deep Gulf Waters**\
 `Opponents of the project, known as Kaskida, say an accident could be even worse than the Deepwater Horizon spill. The company says it’s learned from the past.`\
 https://www.nytimes.com/2026/04/20/climate/bp-kaskida-drilling-lawsuit.html
-
-**Un hombre mata a 8 niños en Luisiana**\
-`Siete de los ocho niños eran hijos del tirador, quien murió en un enfrentamiento con la policía. Tenía problemas de salud mental y estaba estresado por la relación con su esposa, según familiares.`\
-https://www.nytimes.com/es/2026/04/20/espanol/estados-unidos/padre-tiroteo-ninos-luisiana.html
-
-**F.B.I. Director Sues The Atlantic Over Article Claiming Excessive Drinking**\
-`Mr. Patel accused the publication of defamation, asking for $250 million in damages. A spokeswoman for The Atlantic called the suit “meritless.”`\
-https://www.nytimes.com/2026/04/20/us/politics/kash-patel-atlantic-article-alcohol-drinking-fbi-lawsuit.html
 
