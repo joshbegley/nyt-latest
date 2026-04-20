@@ -1,3 +1,11 @@
+**Opponents Sue to Block Mayor’s Plan to Move Shelter to East Village**\
+`A lawsuit challenges the Mamdani administration’s declaration that closing the 30th Street Shelter was an emergency and was not subject to public notice and other requirements.`\
+https://www.nytimes.com/2026/04/20/nyregion/bellevue-homeless-shelter-lawsuit.html
+
+**Student News Quiz: Cease-Fire, Concert Giant, Religion**\
+`Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
+https://www.nytimes.com/interactive/2026/04/20/learning/20StudentNewsQuiz.html
+
 **México investigará el rol de seguridad de 2 funcionarios de EE. UU. que murieron en un accidente**\
 `La presidenta Claudia Sheinbaum señaló que la investigación se centraría en determinar si la participación de los estadounidenses en una operación violaba las leyes de seguridad de México, no en el accidente.`\
 https://www.nytimes.com/es/2026/04/20/espanol/america-latina/mexico-accidente-investigadores-laboratorio-drogas.html

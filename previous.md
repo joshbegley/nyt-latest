@@ -1,3 +1,11 @@
+**Opponents Sue to Block Mayor’s Plan to Move Shelter to East Village**\
+`A lawsuit challenges the Mamdani administration’s declaration that closing the 30th Street Shelter was an emergency and was not subject to public notice and other requirements.`\
+https://www.nytimes.com/2026/04/20/nyregion/bellevue-homeless-shelter-lawsuit.html
+
+**Student News Quiz: Cease-Fire, Concert Giant, Religion**\
+`Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
+https://www.nytimes.com/interactive/2026/04/20/learning/20StudentNewsQuiz.html
+
 **México investigará el rol de seguridad de 2 funcionarios de EE. UU. que murieron en un accidente**\
 `La presidenta Claudia Sheinbaum señaló que la investigación se centraría en determinar si la participación de los estadounidenses en una operación violaba las leyes de seguridad de México, no en el accidente.`\
 https://www.nytimes.com/es/2026/04/20/espanol/america-latina/mexico-accidente-investigadores-laboratorio-drogas.html
@@ -65,12 +73,4 @@ https://www.nytimes.com/2026/04/20/technology/tim-cook-apple-ceo-steps-down.html
 **An Artist Devoted to the Origins of Paints**\
 `Sandy Rodriguez is a painter but also, on some level, a scientist, an art historian, a botanist, an outdoorswoman, and maybe even an alchemist.`\
 https://www.nytimes.com/2026/04/20/arts/design/sandy-rodriguez-painting.html
-
-**The Next Frontier in Design? The Humble Birdhouse.**\
-`Recently, as artists and architects have turned their attention outdoors, they have started putting their creative chops to work — for the avians among us.`\
-https://www.nytimes.com/2026/04/20/arts/design/design-birdhouse.html
-
-**Gunman Kills Canadian Tourist and Wounds Others at Mexico’s Teotihuacán Pyramids**\
-`The gunman opened fire at the famous archaeological site just outside Mexico City before killing himself, the authorities said.`\
-https://www.nytimes.com/2026/04/20/world/americas/mexico-shooting-pyramids-teotihuacan.html
 
