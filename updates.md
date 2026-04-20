@@ -1,3 +1,11 @@
+**‘The Comeback’ Season 3, Episode 5 Recap: No Captain**\
+`“How’s That?!” needs a real leader. The guys surrounding Valerie right now clearly aren’t up to the task.`\
+https://www.nytimes.com/2026/04/19/arts/television/the-comeback-recap-season-3-episode-5.html
+
+**U.S. Military Strikes a Boat in the Caribbean, Killing 3**\
+`The latest attack raised the death toll to at least 180 in the campaign by the United States against people it accuses of smuggling drugs at sea.`\
+https://www.nytimes.com/2026/04/19/us/politics/us-military-strike-boat-strike-caribbean.html
+
 **The Poetry Challenge Day 1: Let’s learn one poem together this week.**\
 `It’s about love, the cosmos and everything in between. And all week we’ll have games and readings by poets laureate, beloved authors and an Oscar winner to help you memorize it.`\
 https://www.nytimes.com/interactive/2026/books/wh-auden-the-more-loving-one-poetry-challenge.html
