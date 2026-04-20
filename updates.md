@@ -1,3 +1,15 @@
+**Israeli Soldier in Lebanon Sledgehammered a Statue of Jesus**\
+`The military is investigating the soldier. Prime Minister Benjamin Netanyahu expressed regret for any hurt caused to “believers in Lebanon and around the world.”`\
+https://www.nytimes.com/2026/04/20/world/middleeast/israeli-soldier-lebanon-sledgehammer-jesus.html
+
+**California Woman Is Arrested at LAX and Accused of Selling Weapons for Iran**\
+`Prosecutors said that Shamim Mafi, a legal permanent resident of the United States, helped facilitate millions of dollars in arms transfers from Iran.`\
+https://www.nytimes.com/2026/04/20/us/la-iran-trafficking-arrest-shamim-mafi.html
+
+**How Bruce the Parrot Landed Atop the Pecking Order, Without a Beak**\
+`The kea gained fame for learning to use a pebble to groom himself. Scientists were astounded by his next innovation.`\
+https://www.nytimes.com/2026/04/20/science/bruce-kea-beak-alpha.html
+
 **Environmental Groups Sue to Block BP’s Plan to Drill in Deep Gulf Waters**\
 `Opponents of the project, known as Kaskida, say an accident could be even worse than the Deepwater Horizon spill. The company says it’s learned from the past.`\
 https://www.nytimes.com/2026/04/20/climate/bp-kaskida-drilling-lawsuit.html

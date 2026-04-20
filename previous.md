@@ -1,3 +1,11 @@
+**Israeli Soldier in Lebanon Sledgehammered a Statue of Jesus**\
+`The military is investigating the soldier. Prime Minister Benjamin Netanyahu expressed regret for any hurt caused to “believers in Lebanon and around the world.”`\
+https://www.nytimes.com/2026/04/20/world/middleeast/israeli-soldier-lebanon-sledgehammer-jesus.html
+
+**California Woman Is Arrested at LAX and Accused of Selling Weapons for Iran**\
+`Prosecutors said that Shamim Mafi, a legal permanent resident of the United States, helped facilitate millions of dollars in arms transfers from Iran.`\
+https://www.nytimes.com/2026/04/20/us/la-iran-trafficking-arrest-shamim-mafi.html
+
 **Environmental Groups Sue to Block BP’s Plan to Drill in Deep Gulf Waters**\
 `Opponents of the project, known as Kaskida, say an accident could be even worse than the Deepwater Horizon spill. The company says it’s learned from the past.`\
 https://www.nytimes.com/2026/04/20/climate/bp-kaskida-drilling-lawsuit.html
@@ -26,7 +34,7 @@ https://www.nytimes.com/2026/04/20/opinion/ai-religion-morality.html
 `Film adaptations often vary from their original source material, and this short quiz challenges you to identify certain words on the screen that were not in the novel.`\
 https://www.nytimes.com/interactive/2026/04/20/books/review/added-lines-quiz.html
 
-**How Bruce the Parrot Landed Atop the Pecking Order — Without a Beak**\
+**How Bruce the Parrot Landed Atop the Pecking Order, Without a Beak**\
 `The kea gained fame for learning to use a pebble to groom himself. Scientists were astounded by his next innovation.`\
 https://www.nytimes.com/2026/04/20/science/bruce-kea-beak-alpha.html
 
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/20/business/media/white-house-correspondents-din
 **Inside the Five Days That Remade the Supreme Court**\
 `Secret memos obtained by The New York Times illuminate the origins of the court’s now-routine “shadow docket” rulings on presidential power.`\
 https://www.nytimes.com/2026/04/20/podcasts/the-daily/supreme-court-investigation.html
-
-**U.S. Attacks and Seizes Cargo Ship Near Iran, and a First Step Toward Tariff Refunds**\
-`Plus, Lego crime.`\
-https://www.nytimes.com/2026/04/20/podcasts/the-headlines/us-iran-tariff-refunds.html
-
-**Connections Companion No. 1,045**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, April 21, 2026.`\
-https://www.nytimes.com/2026/04/20/crosswords/connections-companion-1045.html
 
