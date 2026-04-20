@@ -1,3 +1,7 @@
+**¿EE. UU. puede bloquear barcos vinculados a Irán en cualquier parte del mundo?**\
+`Expertos en derecho marítimo y militar afirman que la ampliación del bloqueo naval anunciada la semana pasada plantea interrogantes jurídicas y prácticas, pero tiene precedentes históricos.`\
+https://www.nytimes.com/es/2026/04/20/espanol/mundo/eeuu-bloqueo-estrecho-ormuz-iran.html
+
 **What We Know About the Killing of 8 Children in Louisiana**\
 `The shooting spree on Sunday also left two adults wounded.`\
 https://www.nytimes.com/2026/04/20/us/shreveport-louisiana-killings-shamar-elkins.html
