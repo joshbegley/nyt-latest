@@ -1,3 +1,7 @@
+**Environmental Groups Sue to Block BP’s Plan to Drill in Deep Gulf Waters**\
+`Opponents of the project, known as Kaskida, say an accident could be even worse than the Deepwater Horizon spill. The company says it’s learned from the past.`\
+https://www.nytimes.com/2026/04/20/climate/bp-kaskida-drilling-lawsuit.html
+
 **Un hombre mata a 8 niños en Luisiana**\
 `Siete de los ocho niños eran hijos del tirador, quien murió en un enfrentamiento con la policía. Tenía problemas de salud mental y estaba estresado por la relación con su esposa, según familiares.`\
 https://www.nytimes.com/es/2026/04/20/espanol/estados-unidos/padre-tiroteo-ninos-luisiana.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/20/podcasts/the-headlines/us-iran-tariff-refunds
 **Connections Companion No. 1,045**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, April 21, 2026.`\
 https://www.nytimes.com/2026/04/20/crosswords/connections-companion-1045.html
-
-**Wordle Review No. 1,767**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, April 21, 2026.`\
-https://www.nytimes.com/2026/04/20/crosswords/wordle-review-1767.html
 
