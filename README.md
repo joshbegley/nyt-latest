@@ -1,3 +1,7 @@
+**4 Drug Lab Investigators Die in Car Crash in Mexico**\
+`Two of the victims were American and two were Mexican, the authorities in Chihuahua said. The accident took place on a treacherous mountain road.`\
+https://www.nytimes.com/2026/04/19/world/americas/mexico-investigator-crash.html
+
 **U.S. Museums Reach Deep into America’s Past**\
 `Museums around the country are celebrating the nation’s heritage in ways that go beyond what might be considered traditional.`\
 https://www.nytimes.com/2026/04/19/arts/design/museums-250th-united-states.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/19/science/earth/elaine-ingham-dead.html
 **Harry Keyishian, Lead Plaintiff in Academic Freedom Case, Dies at 93**\
 `He was one of five University of Buffalo faculty members fired for not signing loyalty oaths. In a landmark decision, the Supreme Court ruled in their favor.`\
 https://www.nytimes.com/2026/04/19/us/harry-keyishian-dead.html
-
-**U.S. Attacks Iranian Cargo Ship as Both Countries Claim Cease-Fire Violations**\
-`President Trump said the United States attacked an Iranian ship that tried to get past the U.S. blockade, hours after Iran said the blockade was a war crime that violated the cease-fire.`\
-https://www.nytimes.com/2026/04/19/world/middleeast/us-iran-cease-fire-violations-strait-of-hormuz.html
 
