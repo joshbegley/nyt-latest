@@ -1,3 +1,15 @@
+**Prosecutors Will Charge D4vd With Murder of Teenage Girl**\
+`The singer was arrested last week in connection with the death of Celeste Rivas Hernandez, whose remains were found in the trunk of his Tesla.`\
+https://www.nytimes.com/2026/04/20/arts/music/d4vd-murder-charges-celeste-rivas-hernandez.html
+
+**In Lebanon, residents of the south make their way home over signs of war.**\
+`Some of the million people displaced by the latest war between Israel and Hezbollah in Lebanon are flooding back home since a 10-day truce between Israel and Lebanon took hold.`\
+https://www.nytimes.com/live/2026/04/20/world/iran-us-war-trump-hormuz/in-lebanon-residents-of-the-south-make-their-way-home-over-signs-of-war
+
+**Desmond Morris, 98, Dies; Explored Humans’ Animal Instincts in ‘The Naked Ape’**\
+`An English zoologist, he wrote an immensely popular 1967 book arguing that ancient genes, shared with apes, shape our lives. Objections in the scientific world ensued.`\
+https://www.nytimes.com/2026/04/20/science/desmond-morris-dead.html
+
 **Democratic Senators Fault Hegseth’s Leadership on Iran**\
 `In a letter, the 11 senators questioned the defense secretary’s decision to gut programs intended to protect civilians and said his orders endangered U.S. troops.`\
 https://www.nytimes.com/2026/04/20/us/politics/democrats-criticism-hegseth-iran.html
