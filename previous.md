@@ -1,8 +1,12 @@
+**A Supreme Court Scoop**\
+`We go behind the scenes at the nation’s highest court.`\
+https://www.nytimes.com/2026/04/20/briefing/a-supreme-court-scoop.html
+
 **Starmer Will Tell Parliament He Was Kept in the Dark on Mandelson Vetting**\
 `Prime Minister Keir Starmer will address British lawmakers on Monday after it emerged that Peter Mandelson, his onetime ambassador to the United States, was rejected for top security clearances.`\
 https://www.nytimes.com/2026/04/20/world/europe/uk-starmer-mandelson-statement-parliament.html
 
-**Hey, Washington: Guess Who’s Coming to Dinner?**\
+**Hey, Washington: Guess Who’s Coming to Dinner**\
 `A president who relishes attacking the news media is set to break his boycott of an event celebrating the news media. What could go wrong?`\
 https://www.nytimes.com/2026/04/20/business/media/white-house-correspondents-dinner-trump.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/04/20/nyregion/nyc-subway-power-electri
 **What’s the Best Way to Wear Boots in Warm Weather?**\
 `Even as the weather heats up, many are still lacing up their boots. Our critic explains the trend and offers styling tips.`\
 https://www.nytimes.com/2026/04/20/fashion/boots-spring-summer.html
-
-**The Man Who Ate Hollywood**\
-`As the sale of Warner Bros. Discovery to Paramount Skydance hurtles toward board approval, David Zaslav is about to be more than an accidental mogul.`\
-https://www.nytimes.com/2026/04/20/opinion/warner-bros-paramount-skydance-david-ellison.html
 
