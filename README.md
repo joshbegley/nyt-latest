@@ -1,3 +1,7 @@
+**What Can A.I. Companies Do to Win Public Trust?**\
+`This week on “Hard Fork” from The New York Times, the hosts Casey Newton and Kevin Roose talk about polls that show A.I. companies have lost the public trust, and what the companies could do to try to win it back.`\
+https://www.nytimes.com/video/podcasts/100000010852136/what-can-ai-companies-do-to-win-public-trust.html
+
 **A Brisk Day in Boston, for the Weather and Runners Alike**\
 `Boston held its 130th Marathon on an unseasonably chilly day that was endured by the crowd and relished by the athletes.`\
 https://www.nytimes.com/2026/04/20/us/boston-marathon-2026.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/20/science/cocaine-salmon-sweden.html
 **Anthropic Wants Claude to Be Moral. Is Religion Really the Answer?**\
 `A.I. cannot meditate, fast or prostrate itself in prayer.`\
 https://www.nytimes.com/2026/04/20/opinion/ai-religion-morality.html
-
-**Do You Know Which Lines Were Added to a Book’s Movie Version?**\
-`Film adaptations often vary from their original source material, and this short quiz challenges you to identify certain words on the screen that were not in the novel.`\
-https://www.nytimes.com/interactive/2026/04/20/books/review/added-lines-quiz.html
 
