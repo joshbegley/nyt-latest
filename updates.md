@@ -1,3 +1,11 @@
+**F.B.I. Director Sues The Atlantic Over Article Claiming Excessive Drinking**\
+`Mr. Patel sued the publication for defamation, asking for $250 million in damages. A spokeswoman for The Atlantic called the suit “meritless.”`\
+https://www.nytimes.com/2026/04/20/us/politics/kash-patel-atlantic-article-alcohol-drinking-fbi-lawsuit.html
+
+**Starmer Tells Parliament He Was Kept in the Dark on Mandelson Vetting**\
+`Prime Minister Keir Starmer addressed British lawmakers on Monday after it emerged that Peter Mandelson, his onetime ambassador to the United States, was rejected for top security clearances.`\
+https://www.nytimes.com/2026/04/20/world/europe/uk-starmer-mandelson-statement-parliament.html
+
 **Stir-Fried Honey Ginger Chicken, Fish Cakes and Other Rut Busters**\
 `I rarely think to put carrots in a stir-fry, but these are sliced so thinly that they cook in a flash.`\
 https://www.nytimes.com/2026/04/20/dining/stir-fried-honey-ginger-chicken-fish-cakes-and-other-rut-busters.html
