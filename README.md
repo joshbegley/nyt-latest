@@ -1,3 +1,7 @@
+**Labor Secretary Steps Down Amid Internal Investigation**\
+`Lori Chavez-DeRemer, President Trump’s Labor Secretary, was facing multiple scandals and an internal inquiry into charges of misconduct.`\
+https://www.nytimes.com/2026/04/20/us/politics/labor-secretary-steps-down-amid-internal-investigation.html
+
 **Democrats Once Loathed Gerrymandering. Now They’re Pushing for It.**\
 `The party is seeking an extra edge in Virginia at a time when its thinking has changed on the partisan drawing of political maps — in large part, leaders say, because of President Trump’s tactics.`\
 https://www.nytimes.com/2026/04/20/us/politics/virginia-gerrymandering-referendum.html
@@ -6,9 +10,9 @@ https://www.nytimes.com/2026/04/20/us/politics/virginia-gerrymandering-referendu
 `Disrupting the Strait of Hormuz turned out to be a powerful weapon. It might be a new way for Iran to keep adversaries at bay, even without a nuclear program.`\
 https://www.nytimes.com/2026/04/20/world/iran-hormuz-talks-saudi.html
 
-**Facing Hard-liners at Home and Bluster from Trump, Iran Sends Mixed Signals on Peace Talks**\
+**Facing Hard-liners at Home and Bluster From Trump, Iran Sends Mixed Signals on Peace Talks**\
 `Publicly, Iran officials refuse to confirm a second round of negotiations with the United States, even as they privately say they are making plans to attend.`\
-https://www.nytimes.com/live/2026/04/20/world/iran-us-war-trump-hormuz/facing-hard-liners-at-home-and-bluster-from-trump-iran-sends-mixed-signals-on-peace-talks
+https://www.nytimes.com/2026/04/20/world/middleeast/facing-hard-liners-at-home-and-bluster-from-trump-iran-sends-mixed-signals-on-peace-talks.html
 
 **No Nation Is Spared in This War**\
 `The Iran war is just the latest setback in the past several years to low-income and lower-middle-income countries.`\
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/04/20/science/reid-wiseman-earthset-photo-artemis-2
 **El gobierno de Trump comenzará a reembolsar 166.000 millones de dólares de aranceles**\
 `El gobierno de EE. UU. presentará un sistema para reembolsar a importadores dos meses después de que la Corte Suprema anulara los aranceles al centro de la política comercial del presidente.`\
 https://www.nytimes.com/es/2026/04/20/espanol/estados-unidos/trump-aranceles-reembolso.html
-
-**You Can’t Defend a Nation When Soldiers Don’t Have Child Care**\
-`Trump wants to pay for the military, not child care. History shows that the armed services are at their best only when soldiers’ kids are cared for.`\
-https://www.nytimes.com/2026/04/20/opinion/military-child-care-cuts.html
 
