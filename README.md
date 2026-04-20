@@ -1,3 +1,7 @@
+**A Brisk Day in Boston, for the Weather and Runners Alike**\
+`Boston held its 130th Marathon on an unseasonably chilly day that was endured by the crowd and relished by the athletes.`\
+https://www.nytimes.com/2026/04/20/us/boston-marathon-2026.html
+
 **California Accuses Amazon of Price Fixing in Legal Filing**\
 `The state claimed the e-commerce giant pressured brands like Levi’s and Hanes to ask competing retailers to raise prices on certain products.`\
 https://www.nytimes.com/2026/04/20/technology/amazon-antitrust-suit-california.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/20/opinion/ai-religion-morality.html
 **Do You Know Which Lines Were Added to a Book’s Movie Version?**\
 `Film adaptations often vary from their original source material, and this short quiz challenges you to identify certain words on the screen that were not in the novel.`\
 https://www.nytimes.com/interactive/2026/04/20/books/review/added-lines-quiz.html
-
-**How Bruce the Parrot Landed Atop the Pecking Order, Without a Beak**\
-`The kea gained fame for learning to use a pebble to groom himself. Scientists were astounded by his next innovation.`\
-https://www.nytimes.com/2026/04/20/science/bruce-kea-beak-alpha.html
 

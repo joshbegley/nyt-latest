@@ -1,3 +1,7 @@
+**Prosecutors to Charge D4vd With Murder of Teenage Girl**\
+`The singer is accused of committing unlawful sexual acts against Celeste Rivas Hernandez, killing her because she was a witness into an investigation, and mutilating her body.`\
+https://www.nytimes.com/2026/04/20/arts/music/d4vd-murder-charges-celeste-rivas-hernandez.html
+
 **California Accuses Amazon of Price Fixing in Legal Filing**\
 `The state claimed the e-commerce giant pressured brands like Levi’s and Hanes to ask competing retailers to raise prices on certain products.`\
 https://www.nytimes.com/2026/04/20/technology/amazon-antitrust-suit-california.html

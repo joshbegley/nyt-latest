@@ -6,8 +6,8 @@ https://www.nytimes.com/2026/04/20/technology/amazon-antitrust-suit-california.h
 `A new deal, which would allow The Onion to use the Infowars name and website address, must be approved by a Texas judge.`\
 https://www.nytimes.com/2026/04/20/business/infowars-alex-jones-the-onion.html
 
-**Prosecutors Will Charge D4vd With Murder of Teenage Girl**\
-`The singer was arrested last week in connection with the death of Celeste Rivas Hernandez, whose remains were found in the trunk of his Tesla.`\
+**Prosecutors to Charge D4vd With Murder of Teenage Girl**\
+`The singer is accused of committing unlawful sexual acts against Celeste Rivas Hernandez, killing her because she was a witness into an investigation, and mutilating her body.`\
 https://www.nytimes.com/2026/04/20/arts/music/d4vd-murder-charges-celeste-rivas-hernandez.html
 
 **In Lebanon, residents of the south make their way home over signs of war.**\
