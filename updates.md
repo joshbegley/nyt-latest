@@ -1,3 +1,7 @@
+**A Leaner Saudi Arabia Turns From Grandiose Plans to Pragmatism**\
+`A decade after Mohammed bin Salman unveiled his “Vision 2030” program to transform the country’s economy, the kingdom is facing financial strains and reassessing its trajectory.`\
+https://www.nytimes.com/2026/04/20/world/middleeast/saudi-arabia-vision-pragmatism.html
+
 **Javier Milei quiere cambiar la mentalidad de los argentinos**\
 `El presidente de derecha de Argentina ha logrado controlar la inflación descontrolada del país. Ahora quiere transformar sus valores.`\
 https://www.nytimes.com/es/2026/04/20/espanol/america-latina/argentina-milei-ideologia-mentalidad.html
