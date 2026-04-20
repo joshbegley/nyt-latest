@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/20/crosswords/spelling-bee-forum.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/20/world/iran-us-war-trump-hormuz/heres-the-latest
