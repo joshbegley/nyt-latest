@@ -1,80 +1,80 @@
-**The Unlikely Recovery of America’s China-Shocked Towns**\
-`The jobs are coming back, despite President Trump’s tariffs and harsh immigration enforcement.`\
-https://www.nytimes.com/2026/04/20/opinion/america-manufacturing-recovery-china.html
+**Javier Milei quiere cambiar la mentalidad de los argentinos**\
+`El presidente de derecha de Argentina ha logrado controlar la inflación descontrolada del país. Ahora quiere transformar sus valores.`\
+https://www.nytimes.com/es/2026/04/20/espanol/america-latina/argentina-milei-ideologia-mentalidad.html
 
-**In Detroit, a Family Builds a Home ‘Extension’ — a 7-Minute Drive Away**\
-`Designed by Dash Marshall, this bedroom-free experimental courtyard house serves as an office, a place to entertain and a weekend retreat.`\
-https://www.nytimes.com/2026/04/20/realestate/detroit-home-extension-courtyard-house.html
+**Shakespeare compró una propiedad en Londres. Ahora sabemos exactamente dónde**\
+`Al confirmar la ubicación precisa de la casa de William Shakespeare en Blackfriars, una académica británica plantea nuevas preguntas sobre qué pretendía hacer con ella.`\
+https://www.nytimes.com/es/2026/04/20/espanol/cultura/shakespeare-propiedad-londres.html
 
-**‘Reefer Madness,’ the P.S.A. That Backfired Spectacularly**\
-`The comically self-serious and outrageous 1936 morality tale, which warned the public about marijuana, became an unintentional parody and midnight-movie classic decades later.`\
-https://www.nytimes.com/2026/04/20/movies/reefer-madness-psa-1936.html
+**Vance Heads to New Talks With Iran. At Stake: Peace and His Own Standing.**\
+`The vice president is again center stage, after abruptly leaving the first round of high-level Iranian peace talks without an agreement.`\
+https://www.nytimes.com/2026/04/20/us/politics/vance-iran-peace-negotiations.html
 
-**His Watch Brand Is ‘Doing It the Traditional Way’**\
-`Love Hunter has been drawn to timepieces since he was a child. Now, after years of selling and repairing them, it’s time for his own creations to take center stage.`\
-https://www.nytimes.com/2026/04/20/fashion/love-hunter-watches.html
+**Put the Movies on Ozempic**\
+`“Project Hail Mary” is just the latest bloated blockbuster.`\
+https://www.nytimes.com/2026/04/20/opinion/movies-runtime-long.html
 
-**A Squabble in D.C. Yields Chaos in El Paso**\
-`A high-energy laser weapon and quarrels between federal agencies brought a night of hassles to the city.`\
-https://www.nytimes.com/2026/04/20/business/a-squabble-in-dc-yields-chaos-in-el-paso.html
+**Live Nation. Amazon. Americans Are Standing Up to Corporate Lawbreaking.**\
+`Lina Khan and Doha Mekki on three court rulings that illustrate the power juries and local officials have to enforce antitrust laws.`\
+https://www.nytimes.com/2026/04/20/opinion/antitrust-jury-live-nation-amazon.html
 
-**C.E.O.s Are the Heads of Companies. Should They Also Be the Face?**\
-`Most chief executives are not recognizable to their customers. But when they step into the limelight, the rewards — and the risks — can be great.`\
-https://www.nytimes.com/2026/04/20/business/ceo-commercials-advertising.html
+**Trump Administration to Begin Refunding $166 Billion in Tariffs**\
+`The government will debut a system to repay importers two months after the Supreme Court struck down tariffs at the heart of the president’s trade policy.`\
+https://www.nytimes.com/2026/04/20/business/trump-administration-tariff-refunds.html
 
-**With These Watches, It’s Not Just What’s on the Inside That Counts**\
-`A look at the new skeleton watch models unveiled by Hermès, Piaget and Panerai.`\
-https://www.nytimes.com/2026/04/20/fashion/skeleton-watches.html
+**Why a Democratic Senate, Once Unthinkable, Is a Real Possibility**\
+`Helped by a favorable national environment and strong candidate recruitment, Democrats are tied or ahead in four Republican-held seats, polls show.`\
+https://www.nytimes.com/2026/04/20/upshot/democrats-senate-midterms-chances.html
 
-**They Put Their Tool Watches to the Test**\
-`For these wearers of rugged timepieces, form follows function.`\
-https://www.nytimes.com/2026/04/20/fashion/watches-extreme-work.html
+**Why Gas Prices Go Up Fast and Take So Long to Fall**\
+`Fuel station owners take some of the hit for consumers when oil prices surge. On the way down, they try to get their money back.`\
+https://www.nytimes.com/2026/04/20/business/economy/gas-stations-pricing.html
 
-**Influencers Are Spinning Nicotine as a ‘Natural’ Health Hack**\
-`The influencers, many of them aligned with the Make America Healthy Again Movement, say the medical establishment has unfairly demonized the compound.`\
-https://www.nytimes.com/2026/04/20/well/nicotine-health-maha.html
+**Northeast Swings From 90 Degrees to Freezing Cold in Just a Few Days**\
+`Central Park and other spots around the region set record-high temperatures last week. Freeze watches were in place on Monday. What’s going on?`\
+https://www.nytimes.com/2026/04/20/weather/cold-temperatures-forecast.html
 
-**The M.T.A. Is Updating How It Powers the Subway**\
-`We toured one of the Metropolitan Transportation Authority’s oldest substations along with one of its newest to learn how the subway is powered, and how its power system could be improved.`\
-https://www.nytimes.com/video/nyregion/100000010785110/the-mta-is-updating-how-it-powers-the-subway.html
+**Inside the Power Stations That Keep the Subways Moving, or Bring Them to a Halt**\
+`Transit officials are spending billions of dollars to upgrade New York City’s aging electrical substations, the mostly invisible backbone of the subway system.`\
+https://www.nytimes.com/interactive/2026/04/20/nyregion/nyc-subway-power-electricity-train-delays.html
 
-**What to Care About When You Care About Ballet: Dancers**\
-`New York City Ballet opens its spring season with classic works by George Balanchine and more. Here are some dancers who will surely stand out.`\
-https://www.nytimes.com/2026/04/20/arts/dance/new-york-city-ballet-spring-season-2026-dancers-guide.html
+**What’s the Best Way to Wear Boots in Warm Weather?**\
+`Even as the weather heats up, many are still lacing up their boots. Our critic explains the trend and offers styling tips.`\
+https://www.nytimes.com/2026/04/20/fashion/boots-spring-summer.html
 
-**Epstein Craved Harvard Connections. Many There Were Eager to Help.**\
-`New documents reveal what professors did to help Jeffrey Epstein get inside Harvard’s gates.`\
-https://www.nytimes.com/2026/04/20/us/epstein-files-harvard-university-faculty.html
+**The Man Who Ate Hollywood**\
+`As the sale of Warner Bros. Discovery to Paramount Skydance hurtles toward board approval, David Zaslav is about to be more than an accidental mogul.`\
+https://www.nytimes.com/2026/04/20/opinion/warner-bros-paramount-skydance-david-ellison.html
 
-**Javier Milei Wants to Rewire the Argentine Mind**\
-`Argentina’s right-wing president has tamed the country’s runaway inflation. Now he wants to transform its values.`\
-https://www.nytimes.com/2026/04/20/world/americas/argentina-president-milei-inflation-economic-reforms.html
+**Daniel Craig and Lily Allen Sell Their Brooklyn Brownstones**\
+`Mr. Craig and Rachel Weisz had owned their Cobble Hill home for almost a decade. Ms. Allen’s sale in Carroll Gardens comes amid the breakup of her marriage.`\
+https://www.nytimes.com/2026/04/20/realestate/daniel-craig-lily-allen-sell-brooklyn-brownstones.html
 
-**Does Dry Needling Really Relieve Pain?**\
-`Having tiny needles poked into a painful muscle knot is unnerving. But can it help?`\
-https://www.nytimes.com/2026/04/20/well/live/dry-needling-benefits-safety.html
+**What Role Does Music Play in Your Life?**\
+`Teens in Philadelphia are trying to make safer neighborhoods. Many are starting with music.`\
+https://www.nytimes.com/2026/04/20/learning/what-role-does-music-play-in-your-life.html
 
-**Tsunami Warning in Japan After Strong Earthquake Strikes Offshore**\
-`The 7.5-magnitude undersea quake occurred off Iwate Prefecture, on the northeastern coast of Japan’s main island, Honshu.`\
-https://www.nytimes.com/2026/04/20/world/asia/tsunami-warning-japan-earthquake.html
+**The Killer Robots Are Coming. The Battlefield Will Never Look the Same.**\
+`Ukraine is using unmanned ground vehicles armed with bombs, guns or rockets to carry out attacks and keep its soldiers out of harm’s way.`\
+https://www.nytimes.com/2026/04/20/world/europe/ukraine-russia-war-robots-drones.html
 
-**Map: 7.4-Magnitude Earthquake Strikes Near Japan**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/04/20/world/asia/quake-tracker-japan-north-pacific-ocean.html
+**She Saw Herself as a Woman, Not a Trans Woman**\
+`A new biography of Jan Morris shows why the journalist, world traveler, historian and essayist was far more than a trailblazer.`\
+https://www.nytimes.com/2026/04/20/books/review/jan-morris-sara-wheeler.html
 
-**Lena Dunham nos hacía mucha falta**\
-`La era de “Girls” acabó hace tiempo. Pero su creadora aún tiene mucho que decir y enseñarnos.`\
-https://www.nytimes.com/es/2026/04/20/espanol/cultura/lena-dunham-girls.html
+**Mi esposo se niega a ir al médico. ¿Qué debo hacer?**\
+`Nuestra columnista de Pregúntale a la Terapeuta, Lori Gottlieb, aconseja a una lectora que no puede contar con su cónyuge para cuidar de sí mismo, ni de su futuro económico.`\
+https://www.nytimes.com/es/2026/04/20/espanol/estilos-de-vida/esposo-no-quiere-ir-medico.html
 
-**El gobierno de Trump está malinterpretando la historia**\
-`Como en tiempos de Tucídides, la postura bélica del gobierno de Estados Unidos promete beneficios a corto plazo pero desastre a largo plazo.`\
-https://www.nytimes.com/es/2026/04/20/espanol/opinion/trump-guerra.html
+**How a Fashion Disrupter Lives on $50,000 a Year in the South Bronx**\
+`To make a living off his designs, Ari Serrano combs through thrift stores for supplies and finds opportunities for those who can make a name online.`\
+https://www.nytimes.com/interactive/2026/04/20/nyregion/nyc-budgeting-affordability-serrano.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/04/20/crosswords/spelling-bee-forum.html
+**Pakistan’s Leaders Try to Contain Rising Anger Over Iran War at Home**\
+`With deep spiritual ties to Iran, Pakistan’s minority Shiites are angry about the killing of Iran’s top clerics in U.S.-Israeli strikes, complicating Pakistan’s role as mediator.`\
+https://www.nytimes.com/2026/04/20/world/asia/pakistan-shiites-iran-diplomacy.html
 
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/04/20/world/iran-us-war-trump-hormuz/heres-the-latest
+**Big Names Wait in the Wings as Virginians Decide Their House Maps**\
+`With Virginians voting Tuesday to accept or reject redistricting, candidates from both parties await the voters’ judgment to decide whether — or where — to run for Congress.`\
+https://www.nytimes.com/2026/04/20/us/elections/virginia-redistricting-candidates.html
 
