@@ -1,3 +1,7 @@
+**Strait of Hormuz Traffic Is at a Standstill Again**\
+`Few vessels are crossing after Iran reversed course on reopening the vital waterway and ships came under attack.`\
+https://www.nytimes.com/2026/04/20/world/middleeast/strait-hormuz-traffic-ships-iran-us.html
+
 **To Play a Man With Tourette’s, He Swapped the Script for Real Life**\
 `Robert Aramayo immersed himself in John Davidson’s life to prepare for the movie “I Swear.” It earned Aramayo a BAFTA, but Davidson’s tics became the talking point.`\
 https://www.nytimes.com/2026/04/20/movies/robert-aramayo-i-swear.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/20/business/trump-administration-tariff-refunds.
 **Why a Democratic Senate, Once Unthinkable, Is a Real Possibility**\
 `Helped by a favorable national environment and strong candidate recruitment, Democrats are tied or ahead in four Republican-held seats, polls show.`\
 https://www.nytimes.com/2026/04/20/upshot/democrats-senate-midterms-chances.html
-
-**Why Gas Prices Go Up Fast and Take So Long to Fall**\
-`Fuel station owners take some of the hit for consumers when oil prices surge. On the way down, they try to get their money back.`\
-https://www.nytimes.com/2026/04/20/business/economy/gas-stations-pricing.html
 

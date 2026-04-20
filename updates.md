@@ -1,3 +1,7 @@
+**Strait of Hormuz Traffic Is at a Standstill Again**\
+`Few vessels are crossing after Iran reversed course on reopening the vital waterway and ships came under attack.`\
+https://www.nytimes.com/2026/04/20/world/middleeast/strait-hormuz-traffic-ships-iran-us.html
+
 **To Play a Man With Tourette’s, He Swapped the Script for Real Life**\
 `Robert Aramayo immersed himself in John Davidson’s life to prepare for the movie “I Swear.” It earned Aramayo a BAFTA, but Davidson’s tics became the talking point.`\
 https://www.nytimes.com/2026/04/20/movies/robert-aramayo-i-swear.html
