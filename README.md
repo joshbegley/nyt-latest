@@ -1,3 +1,11 @@
+**Four Cabinet and other senior officials have now stepped down from Trump’s Cabinet.**\
+``\
+https://www.nytimes.com/live/2026/04/20/us/trump-news/four-cabinet-and-other-senior-officials-have-now-stepped-down-from-trumps-cabinet
+
+**Trump Is Losing His Cheerleaders**\
+`The columnist Michelle Goldberg normally doesn’t see much hope in the Trump era, but on “The Opinions,” she says the cracks in MAGA’s media machine are real — and explains what they could mean for Trump’s future.`\
+https://www.nytimes.com/video/opinion/100000010844781/trump-is-losing-his-cheerleaders.html
+
 **A Rocky (and Muddy) Ski Season Concludes in Colorado**\
 `Faced with a devastating snow drought and record-high March temperatures, some resorts closed early. But at Aspen Mountain, die-hards celebrated the last day of the season on Sunday.`\
 https://www.nytimes.com/2026/04/20/us/aspen-mountain-closing-day.html
@@ -55,7 +63,7 @@ https://www.nytimes.com/2026/04/20/us/politics/virginia-gerrymandering-referendu
 https://www.nytimes.com/2026/04/20/world/iran-hormuz-talks-saudi.html
 
 **Facing Hard-liners at Home and Bluster From Trump, Iran Sends Mixed Signals on Peace Talks**\
-`Publicly, Iran officials refuse to confirm a second round of negotiations with the United States, even as they privately say they are making plans to attend.`\
+`Publicly, Iranian officials refuse to confirm a second round of negotiations with the United States, even as they privately say they are making plans to attend.`\
 https://www.nytimes.com/2026/04/20/world/middleeast/facing-hard-liners-at-home-and-bluster-from-trump-iran-sends-mixed-signals-on-peace-talks.html
 
 **No Nation Is Spared in This War**\
@@ -65,12 +73,4 @@ https://www.nytimes.com/2026/04/20/opinion/trade-poor-countries-imf-iran-war.htm
 **Today, In Short**\
 `“CoachGPT.” A college “cookie house.” And the latest from Iran.`\
 https://www.nytimes.com/2026/04/20/briefing/today-in-short.html
-
-**Second Jury Finds Uber Responsible for Sexual Assault by a Driver**\
-`The ride-hailing giant has now lost the first two of more than 3,000 pending federal lawsuits.`\
-https://www.nytimes.com/2026/04/20/business/uber-sexual-assault-verdict-bellwether.html
-
-**Tim Cook Will Step Down as Apple C.E.O.**\
-`The longtime leader of the iPhone maker will be replaced by John Ternus, the company’s head of hardware engineering.`\
-https://www.nytimes.com/2026/04/20/technology/tim-cook-apple-ceo-steps-down.html
 
