@@ -1,3 +1,15 @@
+**Four Cabinet and other senior officials have now stepped down from Trump’s Cabinet.**\
+``\
+https://www.nytimes.com/live/2026/04/20/us/trump-news/four-cabinet-and-other-senior-officials-have-now-stepped-down-from-trumps-cabinet
+
+**Trump Is Losing His Cheerleaders**\
+`The columnist Michelle Goldberg normally doesn’t see much hope in the Trump era, but on “The Opinions,” she says the cracks in MAGA’s media machine are real — and explains what they could mean for Trump’s future.`\
+https://www.nytimes.com/video/opinion/100000010844781/trump-is-losing-his-cheerleaders.html
+
+**Facing Hard-liners at Home and Bluster From Trump, Iran Sends Mixed Signals on Peace Talks**\
+`Publicly, Iranian officials refuse to confirm a second round of negotiations with the United States, even as they privately say they are making plans to attend.`\
+https://www.nytimes.com/2026/04/20/world/middleeast/facing-hard-liners-at-home-and-bluster-from-trump-iran-sends-mixed-signals-on-peace-talks.html
+
 **A Rocky (and Muddy) Ski Season Concludes in Colorado**\
 `Faced with a devastating snow drought and record-high March temperatures, some resorts closed early. But at Aspen Mountain, die-hards celebrated the last day of the season on Sunday.`\
 https://www.nytimes.com/2026/04/20/us/aspen-mountain-closing-day.html

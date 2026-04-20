@@ -1,3 +1,7 @@
+**Mother and 6 Children Die in Explosion at Their Pennsylvania Home**\
+`The blast on Sunday morning led to a fire that consumed the residence in a rural community northwest of Harrisburg, the authorities said.`\
+https://www.nytimes.com/2026/04/20/us/mother-six-children-explosion-pennsylvania.html
+
 **Four Cabinet and other senior officials have now stepped down from Trump’s Cabinet.**\
 ``\
 https://www.nytimes.com/live/2026/04/20/us/trump-news/four-cabinet-and-other-senior-officials-have-now-stepped-down-from-trumps-cabinet
@@ -50,7 +54,7 @@ https://www.nytimes.com/video/science/earth/100000010852236/parrot-disabled-beak
 `Apple’s corner office has been a seat from which executives like Steve Jobs changed how we interact with technology.`\
 https://www.nytimes.com/2026/04/20/technology/apple-ceos-photos.html
 
-**n Labor Secretary Steps Down Amid Internal Investigation**\
+**Labor Secretary Steps Down Amid Internal Investigation**\
 `Lori Chavez-DeRemer, President Trump’s labor secretary, was facing multiple scandals and an internal inquiry into charges of misconduct.`\
 https://www.nytimes.com/2026/04/20/us/politics/lori-chavez-deremer-labor-secretary-steps-down.html
 
@@ -62,7 +66,7 @@ https://www.nytimes.com/2026/04/20/us/politics/virginia-gerrymandering-referendu
 `Disrupting the Strait of Hormuz turned out to be a powerful weapon. It might be a new way for Iran to keep adversaries at bay, even without a nuclear program.`\
 https://www.nytimes.com/2026/04/20/world/iran-hormuz-talks-saudi.html
 
-**Facing Hard-liners at Home and Bluster From Trump, Iran Sends Mixed Signals on Peace Talks**\
+**Facing Hard-Liners at Home and Bluster From Trump, Iran Sends Mixed Signals on Peace Talks**\
 `Publicly, Iranian officials refuse to confirm a second round of negotiations with the United States, even as they privately say they are making plans to attend.`\
 https://www.nytimes.com/2026/04/20/world/middleeast/facing-hard-liners-at-home-and-bluster-from-trump-iran-sends-mixed-signals-on-peace-talks.html
 
