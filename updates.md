@@ -1,3 +1,7 @@
+**To Play a Man With Tourette’s, He Swapped the Script for Real Life**\
+`Robert Aramayo immersed himself in John Davidson’s life to prepare for the movie “I Swear.” It earned Aramayo a BAFTA, but Davidson’s tics became the talking point.`\
+https://www.nytimes.com/2026/04/20/movies/robert-aramayo-i-swear.html
+
 **The Peace Rally Gets Derailed**\
 `Oil prices are climbing and global stocks are falling as investors worry about the prospects for a speedy end to the war in the Middle East.`\
 https://www.nytimes.com/2026/04/20/business/dealbook/iran-peace-rally-stocks.html
