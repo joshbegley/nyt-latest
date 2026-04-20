@@ -1,3 +1,7 @@
+**F.B.I. Director Sues The Atlantic Over Article Claiming Excessive Drinking**\
+`Mr. Patel sued the publication for defamation, asking for $250 million in damages. A spokeswoman for The Atlantic called the suit “meritless.”`\
+https://www.nytimes.com/2026/04/20/us/politics/kash-patel-atlantic-article-alcohol-drinking-fbi-lawsuit.html
+
 **Stir-Fried Honey Ginger Chicken, Fish Cakes and Other Rut Busters**\
 `I rarely think to put carrots in a stir-fry, but these are sliced so thinly that they cook in a flash.`\
 https://www.nytimes.com/2026/04/20/dining/stir-fried-honey-ginger-chicken-fish-cakes-and-other-rut-busters.html
@@ -46,8 +50,8 @@ https://www.nytimes.com/2026/04/20/arts/john-keats-letters-fanny-brawne-stolen.h
 `We go behind the scenes at the nation’s highest court.`\
 https://www.nytimes.com/2026/04/20/briefing/a-supreme-court-scoop.html
 
-**Starmer Will Tell Parliament He Was Kept in the Dark on Mandelson Vetting**\
-`Prime Minister Keir Starmer will address British lawmakers on Monday after it emerged that Peter Mandelson, his onetime ambassador to the United States, was rejected for top security clearances.`\
+**Starmer Tells Parliament He Was Kept in the Dark on Mandelson Vetting**\
+`Prime Minister Keir Starmer addressed British lawmakers on Monday after it emerged that Peter Mandelson, his onetime ambassador to the United States, was rejected for top security clearances.`\
 https://www.nytimes.com/2026/04/20/world/europe/uk-starmer-mandelson-statement-parliament.html
 
 **Hey, Washington: Guess Who’s Coming to Dinner**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/20/crosswords/wordle-review-1767.html
 **Strands Sidekick No. 779**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, April 21, 2026.`\
 https://www.nytimes.com/2026/04/20/crosswords/strands-sidekick-779.html
-
-**A Leaner Saudi Arabia Turns From Grandiose Plans to Pragmatism**\
-`A decade after Mohammed bin Salman unveiled his “Vision 2030” program to transform the country’s economy, the kingdom is facing financial strains and reassessing its trajectory.`\
-https://www.nytimes.com/2026/04/20/world/middleeast/saudi-arabia-vision-pragmatism.html
 
