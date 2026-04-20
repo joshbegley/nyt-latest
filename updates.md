@@ -1,3 +1,7 @@
+**A Brisk Day in Boston, for the Weather and Runners Alike**\
+`Boston held its 130th Marathon on a chilly day that was the crowd endured and the athletes relished.`\
+https://www.nytimes.com/2026/04/20/us/boston-marathon-2026.html
+
 **U.S. Has Turned Back 27 Ships Since Strait of Hormuz Blockade Started**\
 `Marines are searching thousands of containers aboard the Touska, an Iranian cargo ship that the Navy disabled and seized on Sunday.`\
 https://www.nytimes.com/2026/04/20/us/politics/military-blockade-iran-strait-hormuz.html
