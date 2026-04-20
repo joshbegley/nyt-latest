@@ -1,3 +1,11 @@
+**The Poetry Challenge Day 1: Let’s learn one poem together this week.**\
+`It’s about love, the cosmos and everything in between. And all week we’ll have games and readings by poets laureate, beloved authors and an Oscar winner to help you memorize it.`\
+https://www.nytimes.com/interactive/2026/books/wh-auden-the-more-loving-one-poetry-challenge.html
+
+**4 Drug Lab Investigators Die in Car Crash in Mexico**\
+`Two of the victims were American and two were Mexican, the authorities in Chihuahua said. The accident took place on a treacherous mountain road.`\
+https://www.nytimes.com/2026/04/19/world/americas/mexico-investigator-crash.html
+
 **U.S. Museums Reach Deep into America’s Past**\
 `Museums around the country are celebrating the nation’s heritage in ways that go beyond what might be considered traditional.`\
 https://www.nytimes.com/2026/04/19/arts/design/museums-250th-united-states.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/19/world/middleeast/energy-secretary-gas-prices.
 **Elaine Ingham, Who Taught That Soil Is Alive, Dies at 73**\
 `A scientist and leader in the organic farming movement, she popularized the “soil food web,” an understanding that soil is a complex realm of microorganisms.`\
 https://www.nytimes.com/2026/04/19/science/earth/elaine-ingham-dead.html
-
-**Harry Keyishian, Lead Plaintiff in Academic Freedom Case, Dies at 93**\
-`He was one of five University of Buffalo faculty members fired for not signing loyalty oaths. In a landmark decision, the Supreme Court ruled in their favor.`\
-https://www.nytimes.com/2026/04/19/us/harry-keyishian-dead.html
-
-**U.S. Attacks Iranian Cargo Ship as Both Countries Claim Cease-Fire Violations**\
-`President Trump said the United States attacked an Iranian ship that tried to get past the U.S. blockade, hours after Iran said the blockade was a war crime that violated the cease-fire.`\
-https://www.nytimes.com/2026/04/19/world/middleeast/us-iran-cease-fire-violations-strait-of-hormuz.html
 

@@ -1,3 +1,11 @@
+**The Poetry Challenge Day 1: Let’s learn one poem together this week.**\
+`It’s about love, the cosmos and everything in between. And all week we’ll have games and readings by poets laureate, beloved authors and an Oscar winner to help you memorize it.`\
+https://www.nytimes.com/interactive/2026/books/wh-auden-the-more-loving-one-poetry-challenge.html
+
+**4 Drug Lab Investigators Die in Car Crash in Mexico**\
+`Two of the victims were American and two were Mexican, the authorities in Chihuahua said. The accident took place on a treacherous mountain road.`\
+https://www.nytimes.com/2026/04/19/world/americas/mexico-investigator-crash.html
+
 **U.S. Museums Reach Deep into America’s Past**\
 `Museums around the country are celebrating the nation’s heritage in ways that go beyond what might be considered traditional.`\
 https://www.nytimes.com/2026/04/19/arts/design/museums-250th-united-states.html
