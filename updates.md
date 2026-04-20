@@ -1,3 +1,7 @@
+**Another Democrat Leaves the California Governor’s Race**\
+`Betty Yee, the former state controller, had faced pressure to drop out after hovering near the bottom of polls for months. The move could help Democrats begin to unify behind a front-runner.`\
+https://www.nytimes.com/2026/04/20/us/california-governor-democrat-betty-yee.html
+
 **Trump’s Fed Pick to Defend Central Bank’s Independence on Rate Setting**\
 `Kevin M. Warsh is set to testify at the Senate Banking Committee on Tuesday even as a criminal investigation into the central bank risks delaying his ascension to become the next chair.`\
 https://www.nytimes.com/2026/04/20/us/politics/kevin-warsh-fed-senate-banking-committee-hearing.html

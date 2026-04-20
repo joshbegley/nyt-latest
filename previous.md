@@ -1,3 +1,7 @@
+**Another Democrat Leaves the California Governor’s Race**\
+`Betty Yee, the former state controller, had faced pressure to drop out after hovering near the bottom of polls for months. The move could help Democrats begin to unify behind a front-runner.`\
+https://www.nytimes.com/2026/04/20/us/california-governor-democrat-betty-yee.html
+
 **Trump’s Fed Pick to Defend Central Bank’s Independence on Rate Setting**\
 `Kevin M. Warsh is set to testify at the Senate Banking Committee on Tuesday even as a criminal investigation into the central bank risks delaying his ascension to become the next chair.`\
 https://www.nytimes.com/2026/04/20/us/politics/kevin-warsh-fed-senate-banking-committee-hearing.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/20/espanol/estados-unidos/padre-tiroteo-ninos
 **F.B.I. Director Sues The Atlantic Over Article Claiming Excessive Drinking**\
 `Mr. Patel accused the publication of defamation, asking for $250 million in damages. A spokeswoman for The Atlantic called the suit “meritless.”`\
 https://www.nytimes.com/2026/04/20/us/politics/kash-patel-atlantic-article-alcohol-drinking-fbi-lawsuit.html
-
-**Stir-Fried Honey Ginger Chicken, Fish Cakes and Other Rut Busters**\
-`I rarely think to put carrots in a stir-fry, but these are sliced so thinly that they cook in a flash.`\
-https://www.nytimes.com/2026/04/20/dining/stir-fried-honey-ginger-chicken-fish-cakes-and-other-rut-busters.html
 
