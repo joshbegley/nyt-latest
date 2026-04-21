@@ -1,3 +1,7 @@
+**Tim Cook dejará de ser director ejecutivo de Apple**\
+`El líder del fabricante de los iPhone será sustituido por John Ternus, jefe de ingeniería de hardware de la empresa.`\
+https://www.nytimes.com/es/2026/04/20/espanol/negocios/tim-cook-apple-ceo.html
+
 **Singer D4vd Is Charged With Murder of Celeste Rivas Hernandez**\
 `The musician D4vd was charged with murder on Monday, seven months after the police said that the body of a teenage girl, Celeste Rivas Hernandez, had been found in the trunk of his Tesla. D4vd, whose real name is David Burke, pleaded not guilty to the charges.`\
 https://www.nytimes.com/video/us/100000010852260/d4vd-celeste-rivas-murder.html
