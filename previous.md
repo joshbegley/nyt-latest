@@ -1,3 +1,7 @@
+**Kash Patel, director del FBI, demanda por un artículo que asegura que bebe alcohol en exceso**\
+`Patel acusó a The Atlantic de difamación y pidió 250 millones de dólares por daños y perjuicios. Una portavoz de la publicación calificó la demanda de “infundada”.`\
+https://www.nytimes.com/es/2026/04/21/espanol/estados-unidos/kash-patel-fbi-bebida-the-atlantic.html
+
 **Pain at the Pump**\
 `We look at the changes in gas prices.`\
 https://www.nytimes.com/2026/04/21/briefing/pain-at-the-pump.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/21/nyregion/soccer-deserts-children-nyc.html
 **Trump’s Pick to Lead Fed Will Face Senators at a Tricky Moment**\
 `Kevin M. Warsh has enough support to become the next chair of the Federal Reserve, but a criminal investigation into the central bank stands in his way.`\
 https://www.nytimes.com/2026/04/21/business/kevin-warsh-federal-reserve-confirmation-hearing.html
-
-**Want to Speak to the Manager? At a New San Francisco Store, That’s A.I.**\
-`Andon Market in San Francisco is billed as the first retail boutique run by an artificial intelligence agent. So far, the inventory seems random, and there are too many candles.`\
-https://www.nytimes.com/2026/04/21/us/san-francisco-store-managed-ai-agent.html
 
