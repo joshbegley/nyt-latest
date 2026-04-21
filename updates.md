@@ -1,3 +1,31 @@
+**How Iranians See the War**\
+`Very little has been heard about the war from Iranians. We spoke to some.`\
+https://www.nytimes.com/2026/04/21/podcasts/the-daily/how-iranians-see-the-war.html
+
+**Labor Secretary Resigns Amid Scandals, and F.B.I. Director Sues Over Drinking Claims**\
+`Plus, what to know about Apple’s next C.E.O.`\
+https://www.nytimes.com/2026/04/21/podcasts/the-headlines/labor-secretary-resigns-patel-excessive-drinking-atlantic.html
+
+**Connections Companion No. 1,046**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, April 22, 2026.`\
+https://www.nytimes.com/2026/04/21/crosswords/connections-companion-1046.html
+
+**Strands Sidekick No. 780**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, April 22, 2026.`\
+https://www.nytimes.com/2026/04/21/crosswords/strands-sidekick-780.html
+
+**Wordle Review No. 1,768**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, April 22, 2026.`\
+https://www.nytimes.com/2026/04/21/crosswords/wordle-review-1768.html
+
+**UnitedHealth Group Reports Flat First-Quarter Earnings**\
+`One of the nation’s largest insurers, the company’s profits were higher than analysts’ expectations but still fell short of showing a significant comeback.`\
+https://www.nytimes.com/2026/04/21/business/united-health-group-earnings.html
+
+**Fired U.K. Official Describes ‘Pressure’ From Starmer’s Office for Envoy’s Appointment**\
+`The prime minister’s office was “dismissive” of security concerns about Peter Mandelson, a Jeffrey Epstein associate who became ambassador to Washington, the official said.`\
+https://www.nytimes.com/2026/04/21/world/europe/starmer-mandelson-olly-robbins.html
+
 **How The Onion Finally Shut Up Alex Jones for Good**\
 `What happened when America’s finest (fake) news source decided to troll the world’s greatest troll.`\
 https://www.nytimes.com/2026/04/21/podcasts/the-onion-alex-jones.html

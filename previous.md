@@ -1,3 +1,31 @@
+**How Iranians See the War**\
+`Very little has been heard about the war from Iranians. We spoke to some.`\
+https://www.nytimes.com/2026/04/21/podcasts/the-daily/how-iranians-see-the-war.html
+
+**Labor Secretary Resigns Amid Scandals, and F.B.I. Director Sues Over Drinking Claims**\
+`Plus, what to know about Apple’s next C.E.O.`\
+https://www.nytimes.com/2026/04/21/podcasts/the-headlines/labor-secretary-resigns-patel-excessive-drinking-atlantic.html
+
+**Connections Companion No. 1,046**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, April 22, 2026.`\
+https://www.nytimes.com/2026/04/21/crosswords/connections-companion-1046.html
+
+**Strands Sidekick No. 780**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, April 22, 2026.`\
+https://www.nytimes.com/2026/04/21/crosswords/strands-sidekick-780.html
+
+**Wordle Review No. 1,768**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, April 22, 2026.`\
+https://www.nytimes.com/2026/04/21/crosswords/wordle-review-1768.html
+
+**UnitedHealth Group Reports Flat First-Quarter Earnings**\
+`One of the nation’s largest insurers, the company’s profits were higher than analysts’ expectations but still fell short of showing a significant comeback.`\
+https://www.nytimes.com/2026/04/21/business/united-health-group-earnings.html
+
+**Fired U.K. Official Describes ‘Pressure’ From Starmer’s Office for Envoy’s Appointment**\
+`The prime minister’s office was “dismissive” of security concerns about Peter Mandelson, a Jeffrey Epstein associate who became ambassador to Washington, the official said.`\
+https://www.nytimes.com/2026/04/21/world/europe/starmer-mandelson-olly-robbins.html
+
 **How The Onion Finally Shut Up Alex Jones for Good**\
 `What happened when America’s finest (fake) news source decided to troll the world’s greatest troll.`\
 https://www.nytimes.com/2026/04/21/podcasts/the-onion-alex-jones.html
@@ -49,32 +77,4 @@ https://www.nytimes.com/2026/04/21/nyregion/weinstein-jessica-mann-trial.html
 **Supreme Court Reviews F.C.C.’s Enforcement Power Against Communications Companies**\
 `AT&T and Verizon were penalized millions of dollars for what the agency said was a failure to protect consumer information. The companies say they were deprived of their right to a jury trial.`\
 https://www.nytimes.com/2026/04/21/us/politics/supreme-court-fcc-fines.html
-
-**Russia Is Building Tomorrow’s War Machine**\
-`Freed from ethical constraints and hardened by years of war, a country long seen as a bureaucratic giant has become an entrepreneurial one.`\
-https://www.nytimes.com/2026/04/21/opinion/russia-drones-putin-ukraine-war.html
-
-**America Is Anxious About Its 250th Birthday. So Are Historians.**\
-`At the annual meeting of the Organization of American Historians, scholars wrestled with what people want from national anniversaries — and whether historians can give it to them.`\
-https://www.nytimes.com/2026/04/21/arts/history-america-250-trump.html
-
-**How John Dowland Built a Music Career on Tearful Melancholy**\
-`Dowland, who died 400 years ago, spun out sad songs that were popular in his time and continue to influence artists today.`\
-https://www.nytimes.com/2026/04/21/arts/music/john-dowland-400.html
-
-**On ‘This Is a Gardening Show,’ Zach Galifianakis Plays Dirty**\
-`The actor and comedian digs into one of his greatest passions in this new Netflix series.`\
-https://www.nytimes.com/2026/04/21/arts/television/this-is-a-gardening-show-zach-galifianakis.html
-
-**For Italy’s Art Pioneer, a New Bronze Age**\
-`Giuseppe Penone, veteran of the Arte Povera movement, with his curator Adam Weinberg, former director of the Whitney, are recasting the natural world for a show at Gagosian.`\
-https://www.nytimes.com/2026/04/21/arts/for-italys-art-pioneer-a-new-bronze-age.html
-
-**Why Are Palantir and OpenAI Scared of Alex Bores?**\
-`Alex Bores is trying to win a congressional seat to represent part of New York City. Here’s why A.I. executives are funding the effort to stop him.`\
-https://www.nytimes.com/video/opinion/100000010844890/why-are-palantir-and-openai-scared-of-alex-bores.html
-
-**Esa junta odiosa podría ser el antídoto para que la IA no se quede con tu trabajo**\
-`A medida que la inteligencia artificial facilita muchas tareas, el trabajo humano de convencer, presionar y tranquilizar parece estar cobrando mayor importancia.`\
-https://www.nytimes.com/es/2026/04/21/espanol/negocios/trabajo-ia-juntas.html
 
