@@ -1,3 +1,23 @@
+**Black Sesame Rice Krispies Treats**\
+`The combination of butter-fried black sesame seeds and toasted sesame oil creates an aromatic whammy of nutty sesame flavor in otherwise classic Rice Krispies treats.`\
+https://www.nytimes.com/video/dining/100000010854238/black-sesame-rice-krispies-treats.html
+
+**Chocolate Crunch Cake**\
+`This rich, chocolate confection, with its fudgy Nutella sauce and crunchy chocolate topping, is one with countless renditions across social media platforms and bakeries alike. Get the recipe for this version by Kayla Hoang, a New York Times Cooking contributor, in the link below.`\
+https://www.nytimes.com/video/dining/100000010854229/chocolate-crunch-cake.html
+
+**Turtle Bars**\
+`This bake-sale classic features a sandy soft crust, a layer of caramel and pecans, and a final chocolate topping.`\
+https://www.nytimes.com/video/dining/100000010854282/turtle-bars.html
+
+**tk**\
+`tk`\
+https://static01.nyt.com/slideshow/2026/04/21/t-magazine/tk.html
+
+**Silken Tofu-Miso Dressing**\
+`At the restaurant RVR (pronounced “river”), the chefs Travis Lett and Ian Robinson toss this silken tofu-miso dressing with winter chicories from the local farmers’ market.`\
+https://www.nytimes.com/video/dining/100000010854248/silken-tofu-miso-dressing.html
+
 **Guava and Cream Cheese Danish Cookie**\
 `This guava and cream cheese danish cookie recipe from Jerrelle Guy, a New York Times Cooking contributor, fulfills all the wildest dessert desires. It’s sort of a cookie, but also a cake and Danish all in one.`\
 https://www.nytimes.com/video/dining/100000010854233/guava-and-cream-cheese-danish-cookie.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/video/podcasts/100000010851962/violence-shaped-charlize-
 **7 New Songs You Should Hear Now**\
 `Nine Inch Nails’ LP with Boys Noize, Raye’s collaboration with Al Green, the latest from a Black Midi member and more.`\
 https://www.nytimes.com/2026/04/21/arts/music/amplifier-newsletter-new-songs-nine-inch-noize.html
-
-**Two Palestinians Killed in Israeli Shooting Near West Bank School**\
-`A child was among the dead, according to the Palestinian health ministry. The Israeli military said it had attempted to break up clashes in Al Mughayir, which has seen a surge of Israeli settler violence.`\
-https://www.nytimes.com/2026/04/21/world/middleeast/palestinians-killed-israeli-shooting-west-bank-school.html
-
-**Trust Trump? Iran’s Doubts Shadow Peace Talks.**\
-`Iranian leaders fear being burned again by President Trump, who tore up a nuclear agreement reached during the Obama administration after lengthy negotiations.`\
-https://www.nytimes.com/2026/04/21/us/politics/trust-trump-iran.html
-
-**Israeli Soldiers Sentenced to Jail for Damaging Jesus Statue in Lebanon**\
-`A statue of the crucifixion of Christ has been replaced after one soldier photographed another swinging what looked like a sledgehammer at its head.`\
-https://www.nytimes.com/2026/04/21/world/middleeast/israel-soldiers-statue-lebanon-replaced.html
-
-**Ohio State Details Relationship That Led to President’s Resignation**\
-`The university released a report that said the president, Walter Carter Jr., took trips with a podcaster and suggested that the university hire her.`\
-https://www.nytimes.com/2026/04/21/us/ohio-state-walter-carter-relationship-president-resignation.html
-
-**Senate Republicans Release Budget Measure to Fund ICE Through 2029**\
-`The resolution would pave the way for Republicans to push through a $70 billion infusion to pay for immigration enforcement for the remainder of President Trump’s tenure.`\
-https://www.nytimes.com/2026/04/21/us/politics/senate-republicans-budget-ice.html
 
