@@ -1,3 +1,7 @@
+**Labor Secretary’s Departure Provides Trump an Agenda Reset**\
+`President Trump accepted Labor Secretary Lori Chavez-DeRemer’s resignation ahead of an internal investigation into her conduct at the department.`\
+https://www.nytimes.com/2026/04/21/business/economy/labor-secretary-trump.html
+
 **Labor Secretary’s Departure Gives Trump an Opening to Focus on His Agenda**\
 `President Trump accepted Labor Secretary Lori Chavez-DeRemer’s resignation ahead of an internal investigation into her conduct at the department.`\
 https://www.nytimes.com/2026/04/21/business/economy/labor-secretary-trump.html

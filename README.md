@@ -1,3 +1,7 @@
+**JD Vance suspende su viaje para las negociaciones de paz entre EE. UU. e Irán**\
+`El retraso marca un nuevo obstáculo en el esfuerzo del gobierno de Trump por lograr un acuerdo que frene el programa nuclear iraní.`\
+https://www.nytimes.com/es/2026/04/21/espanol/estados-unidos/iran-trump-vance-negociaciones-paz.html
+
 **Labor Secretary’s Departure Provides Trump an Agenda Reset**\
 `President Trump accepted Labor Secretary Lori Chavez-DeRemer’s resignation ahead of an internal investigation into her conduct at the department.`\
 https://www.nytimes.com/2026/04/21/business/economy/labor-secretary-trump.html
@@ -11,7 +15,7 @@ https://www.nytimes.com/2026/04/21/theater/what-happened-was-review.html
 https://www.nytimes.com/es/2026/04/21/espanol/america-latina/teotihuacan-tirador-agresor-quien-es.html
 
 **Nigeria Charges Six With Treason Over Coup Plot**\
-`The group is accused of a failed coup attempt in October.`\
+`The group, made up of civilians and former members of the country’s armed forces, is accused of treason linked to a failed coup attempt in October.`\
 https://www.nytimes.com/2026/04/21/world/africa/nigeria-coup-plot-treason-charges.html
 
 **Black Sesame Rice Krispies Treats**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/21/world/middleeast/lebanon-villages-funerals.ht
 **Kennedy Refuses to Commit to Backing New C.D.C. Director on Vaccines**\
 `In a tense congressional hearing, the health secretary also said he bore no responsibility for the measles outbreak in the United States.`\
 https://www.nytimes.com/2026/04/21/us/politics/rfk-jr-vaccines-erica-schwartz.html
-
-**Teotihuacán Gunman Carried Notes Related to Past U.S. Mass Shootings**\
-`The man who killed one tourist at a Mexican pyramid and wounded several others had materials in his backpack tied to a 1999 U.S. attack, a possible reference to the Columbine High School massacre.`\
-https://www.nytimes.com/2026/04/21/world/americas/mexico-shooting-tourists-teotihuacan-pyramids.html
 
