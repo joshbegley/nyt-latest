@@ -1,3 +1,31 @@
+**Andrew Hacker, Provocative Political Scientist, Dies at 96**\
+`In a host of books he attacked conventional ideas on subjects including the battle of the sexes and the usefulness of high school math.`\
+https://www.nytimes.com/2026/04/21/books/andrew-hacker-dead.html
+
+**An Academic Miracle**\
+`A Yale report offers some honest self-reflection on where the university went wrong.`\
+https://www.nytimes.com/2026/04/21/opinion/yale-report-academia.html
+
+**How Israel Lost Its Way and How Trump Can Save Lebanon**\
+`The smashing of a statue of Jesus by an Israeli soldier and the founding of four provocative settlements together show Israel’s thoughtless path forward.`\
+https://www.nytimes.com/2026/04/21/opinion/israel-lebanon-netanyahu-hezbollah-friedman.html
+
+**Judge Halts Trump Actions Aimed at Throttling Renewable Energy**\
+`The Interior Department had imposed restrictions on wind and solar projects across the country, prompting developers to sue.`\
+https://www.nytimes.com/2026/04/21/climate/solar-wind-trump-judge.html
+
+**How to Watch the Lyrids Streak Across the Night Sky**\
+`Active since last week, the Lyrids meteor shower is expected to reach peak viewing tonight.`\
+https://www.nytimes.com/2026/04/21/science/astronomy-lyrid-meteors.html
+
+**Is a ‘Curse of the Mambino’ Plaguing the Mets? Mamdani, Say It Ain’t So.**\
+`On April 9, Zohran Mamdani posed for a picture with the New York Mets mascots. Since the joyous photo op, the Mets have not won a game.`\
+https://www.nytimes.com/2026/04/21/nyregion/mets-mamdani-curse.html
+
+**Labor Secretary’s Departure Provides Trump an Agenda Reset**\
+`President Trump’s second-term goals to foster apprenticeships and manufacturing work rely on a Labor Department that has been distracted by internal turmoil.`\
+https://www.nytimes.com/2026/04/21/business/economy/labor-secretary-trump.html
+
 **Judge Bars Imminent Removal of D.C. Bike Lanes**\
 `A federal judge found the National Park Service had improperly rushed plans to strip out bike lanes connecting downtown Washington to the Tidal Basin.`\
 https://www.nytimes.com/2026/04/21/us/politics/judge-dc-bike-lanes.html

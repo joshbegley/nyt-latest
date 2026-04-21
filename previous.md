@@ -1,3 +1,27 @@
+**Andrew Hacker, Provocative Political Scientist, Dies at 96**\
+`In a host of books he attacked conventional ideas on subjects including the battle of the sexes and the usefulness of high school math.`\
+https://www.nytimes.com/2026/04/21/books/andrew-hacker-dead.html
+
+**An Academic Miracle**\
+`A Yale report offers some honest self-reflection on where the university went wrong.`\
+https://www.nytimes.com/2026/04/21/opinion/yale-report-academia.html
+
+**How Israel Lost Its Way and How Trump Can Save Lebanon**\
+`The smashing of a statue of Jesus by an Israeli soldier and the founding of four provocative settlements together show Israel’s thoughtless path forward.`\
+https://www.nytimes.com/2026/04/21/opinion/israel-lebanon-netanyahu-hezbollah-friedman.html
+
+**Judge Halts Trump Actions Aimed at Throttling Renewable Energy**\
+`The Interior Department had imposed restrictions on wind and solar projects across the country, prompting developers to sue.`\
+https://www.nytimes.com/2026/04/21/climate/solar-wind-trump-judge.html
+
+**How to Watch the Lyrids Streak Across the Night Sky**\
+`Active since last week, the Lyrids meteor shower is expected to reach peak viewing tonight.`\
+https://www.nytimes.com/2026/04/21/science/astronomy-lyrid-meteors.html
+
+**Is a ‘Curse of the Mambino’ Plaguing the Mets? Mamdani, Say It Ain’t So.**\
+`On April 9, Zohran Mamdani posed for a picture with the New York Mets mascots. Since the joyous photo op, the Mets have not won a game.`\
+https://www.nytimes.com/2026/04/21/nyregion/mets-mamdani-curse.html
+
 **Judge Bars Imminent Removal of D.C. Bike Lanes**\
 `A federal judge found the National Park Service had improperly rushed plans to strip out bike lanes connecting downtown Washington to the Tidal Basin.`\
 https://www.nytimes.com/2026/04/21/us/politics/judge-dc-bike-lanes.html
@@ -19,7 +43,7 @@ https://www.nytimes.com/2026/04/21/us/politics/justice-dept-john-brennan-subpoen
 https://www.nytimes.com/es/2026/04/21/espanol/estados-unidos/iran-trump-vance-negociaciones-paz.html
 
 **Labor Secretary’s Departure Provides Trump an Agenda Reset**\
-`President Trump accepted Labor Secretary Lori Chavez-DeRemer’s resignation ahead of an internal investigation into her conduct at the department.`\
+`President Trump’s second-term goals to foster apprenticeships and manufacturing work rely on a Labor Department that has been distracted by internal turmoil.`\
 https://www.nytimes.com/2026/04/21/business/economy/labor-secretary-trump.html
 
 **‘What Happened Was …’ Review: Alone in New York, Together at Dinner**\
@@ -53,28 +77,4 @@ https://static01.nyt.com/slideshow/2026/04/21/t-magazine/tk.html
 **Silken Tofu-Miso Dressing**\
 `At the restaurant RVR (pronounced “river”), the chefs Travis Lett and Ian Robinson toss this silken tofu-miso dressing with winter chicories from the local farmers’ market.`\
 https://www.nytimes.com/video/dining/100000010854248/silken-tofu-miso-dressing.html
-
-**Guava and Cream Cheese Danish Cookie**\
-`This guava and cream cheese danish cookie recipe from Jerrelle Guy, a New York Times Cooking contributor, fulfills all the wildest dessert desires. It’s sort of a cookie, but also a cake and Danish all in one.`\
-https://www.nytimes.com/video/dining/100000010854233/guava-and-cream-cheese-danish-cookie.html
-
-**Cheesy Chile Crisp White Beans**\
-`Cheesy bean bakes, a molten staple of pantry cooking, get a fiery glow-up in this easy weeknight recipe from Melissa Clark, a food reporter for The New York Times.`\
-https://www.nytimes.com/video/dining/100000010854219/cheesy-chile-crisp-white-beans.html
-
-**Spaghetti With Garlicky Bread Crumbs and Anchovies**\
-`This is a take on a classic dish from southern Italy that tosses pasta with toasted, seasoned bread crumbs called pangrattatto.`\
-https://www.nytimes.com/video/dining/100000010854267/spaghetti-with-garlicky-bread-crumbs-and-anchovies.html
-
-**‘Michael’ Review: A Jackson Biopic Leaves Too Much Unsaid**\
-`A biographical film produced by the estate of Michael Jackson flattens its subject to scrub his reputation.`\
-https://www.nytimes.com/2026/04/21/movies/michael-review.html
-
-**Trump Is Said to Be in Talks to Send Afghans Who Aided U.S. Forces to Congo**\
-`A U.S. aid worker said that the Afghans, who were evacuated to Qatar, would face a choice between moving to the Democratic Republic of Congo and living under the Taliban.`\
-https://www.nytimes.com/2026/04/21/world/europe/afghan-refugees-congo-us.html
-
-**A Spring Challenge to Get Your Students Ready for Our Summer Reading Contest**\
-`Teens, choose a free article, photo, video or podcast from three different sections of The New York Times, then tell us what you thought. We’ll publish a selection of your responses in June. (Deadline: May 31)`\
-https://www.nytimes.com/2026/04/21/learning/a-spring-challenge-to-get-your-students-ready-for-our-summer-reading-contest.html
 
