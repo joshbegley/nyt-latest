@@ -1,3 +1,11 @@
+**Violence Shaped Charlize Theron. It Doesn’t Define Her.**\
+`Charlize Theron sits down with “The Interview” co-host, Lulu Garcia-Navarro, to talk about how she overcame her dark family past.`\
+https://www.nytimes.com/video/podcasts/100000010851962/violence-shaped-charlize-theron-it-doesnt-define-her.html
+
+**Vance’s Trip to Islamabad on Hold as U.S. Says Iran Failed to Respond to Its Terms**\
+`The delay is another hurdle in the Trump administration’s push to secure an agreement that would curb Iran’s nuclear program.`\
+https://www.nytimes.com/2026/04/21/us/politics/vance-islamabad-iran-peace-talks.html
+
 **7 New Songs You Should Hear Now**\
 `Nine Inch Nails’ LP with Boys Noize, Raye’s collaboration with Al Green, the latest from a Black Midi member and more.`\
 https://www.nytimes.com/2026/04/21/arts/music/amplifier-newsletter-new-songs-nine-inch-noize.html

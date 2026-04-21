@@ -1,3 +1,11 @@
+**Florida Democrat Resigns From Congress 20 Minutes Before Expulsion Vote**\
+`Sheila Cherfilus-McCormick, a Florida Democrat, had been charged with stealing $5 million in federal funds. The House Ethics Committee was to take up her case Tuesday.`\
+https://www.nytimes.com/2026/04/21/us/cherfilus-mccormick-florida.html
+
+**U.S. Turns Up Pressure on Iraq to Distance Itself From Iran**\
+`Washington is demanding that the Baghdad government dismantle Iran-backed Iraqi militias that have been attacking Americans and U.S. sites there recently.`\
+https://www.nytimes.com/2026/04/21/world/middleeast/us-iraq-security-cooperation.html
+
 **Violence Shaped Charlize Theron. It Doesn’t Define Her.**\
 `Charlize Theron sits down with “The Interview” co-host, Lulu Garcia-Navarro, to talk about how she overcame her dark family past.`\
 https://www.nytimes.com/video/podcasts/100000010851962/violence-shaped-charlize-theron-it-doesnt-define-her.html
@@ -10,7 +18,7 @@ https://www.nytimes.com/2026/04/21/arts/music/amplifier-newsletter-new-songs-nin
 `A child was among the dead, according to the Palestinian health ministry. The Israeli military said it had attempted to break up clashes in Al Mughayir, which has seen a surge of Israeli settler violence.`\
 https://www.nytimes.com/2026/04/21/world/middleeast/palestinians-killed-israeli-shooting-west-bank-school.html
 
-**Trust Trump? Iran’s Doubts Shadow Peace Talks**\
+**Trust Trump? Iran’s Doubts Shadow Peace Talks.**\
 `Iranian leaders fear being burned again by President Trump, who tore up a nuclear agreement reached during the Obama administration after lengthy negotiations.`\
 https://www.nytimes.com/2026/04/21/us/politics/trust-trump-iran.html
 
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/us/elections/100000010843881/the-redistricting-war
 **U.S. Considers Financial Support for Oil-Rich U.A.E.**\
 `President Trump acknowledged that the Gulf state has incurred significant damage during the war with Iran.`\
 https://www.nytimes.com/2026/04/21/business/economy/us-uae-financial-support.html
-
-**Armani Goes Back to the Archive**\
-`A new collection dusts off decades-old creations, plus a dispatch from a Brunello Cucinelli movie premiere and the Political Tie Tracker.`\
-https://www.nytimes.com/2026/04/21/style/armani-archivio.html
-
-**Democrats Look for a New Campaign Script**\
-`Readers respond to an Opinion guest essay by David Plouffe. Also: Why mothers are burned out; national referendums.`\
-https://www.nytimes.com/2026/04/21/opinion/democrats-elections.html
 
