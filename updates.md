@@ -1,3 +1,7 @@
+**Tim Cook to Step Down as Apple C.E.O.**\
+`Tim Cook said on Monday that he would step down as the chief executive of Apple after nearly 15 years. John Ternus, the head of Apple’s hardware engineering, will take over in September.`\
+https://www.nytimes.com/video/technology/100000010853387/tim-cook-apple-ceo-steps-down.html
+
 **New Zealand Declares Emergency in Capital After It Was Battered by Torrential Rain**\
 `There were landslides, flash floods and the closure of more than 100 schools in Wellington and the surrounding region.`\
 https://www.nytimes.com/2026/04/21/world/australia/wellington-new-zealand-emergency-flooding.html

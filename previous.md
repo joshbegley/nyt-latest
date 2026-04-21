@@ -1,3 +1,7 @@
+**Tim Cook to Step Down as Apple C.E.O.**\
+`Tim Cook said on Monday that he would step down as the chief executive of Apple after nearly 15 years. John Ternus, the head of Apple’s hardware engineering, will take over in September.`\
+https://www.nytimes.com/video/technology/100000010853387/tim-cook-apple-ceo-steps-down.html
+
 **New Zealand Declares Emergency in Capital After It Was Battered by Torrential Rain**\
 `There were landslides, flash floods and the closure of more than 100 schools in Wellington and the surrounding region.`\
 https://www.nytimes.com/2026/04/21/world/australia/wellington-new-zealand-emergency-flooding.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/21/world/europe/london-underground-tube-strike.h
 **Quote of the Day: Nepalis Ask if a Revolution Can Deliver on Hope**\
 `Quotation of the Day for Tuesday, April 21, 2026.`\
 https://www.nytimes.com/2026/04/20/pageoneplus/quote-of-the-day-nepalis-ask-if-a-revolution-can-deliver-on-hope.html
-
-**What It Takes to Dress the ‘Devil’**\
-`The press tour for “The Devil Wears Prada 2” has been a fashion show for its stars and their stylists, who have relied on group chats, sweatpants and camaraderie to pull it off.`\
-https://www.nytimes.com/2026/04/20/style/the-devil-wears-prada-2-press-tour-fashion.html
 
