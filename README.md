@@ -2,7 +2,7 @@
 `Shamar Elkins had been suffering severe mental health problems, his family said. His deadly rampage, which killed eight children, has profoundly scarred a community facing rising domestic violence.`\
 https://www.nytimes.com/2026/04/20/us/louisiana-killer-history-violent-threats.html
 
-**‘Immediate Results’ vs. ‘The Long Game’: Iran and the U.S. Face Off**\
+**‘Immediate Results’ vs. ‘The Long Game’: the U.S. and Iran Face Off**\
 `As the United States and Iran make a second attempt at a deal, their negotiating styles are on a collision course.`\
 https://www.nytimes.com/2026/04/20/us/politics/us-iran-negotiation-style.html
 
