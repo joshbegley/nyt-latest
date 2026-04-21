@@ -1,3 +1,7 @@
+**The Resistance to New Technologies**\
+`This week on “Hard Fork” from The New York Times, the hosts Casey Newton and Kevin Roose discuss how this current moment of deep skepticism and suspicion towards the major A.I. companies arose, and the tensions between our democracy and the Silicon Valley elite.`\
+https://www.nytimes.com/video/podcasts/100000010853211/the-resistance-to-new-technologies.html
+
 **Louisiana Killer’s Threats to Himself and Others Hinted at Future Violence**\
 `Shamar Elkins had been suffering severe mental health problems, his family said. His deadly rampage, which killed eight children, has profoundly scarred a community facing rising domestic violence.`\
 https://www.nytimes.com/2026/04/20/us/louisiana-shooter-shamar-elkins-shreveport.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/20/espanol/america-latina/teotihuacan-tiroteo
 **This Parrot Has No Beak, But Is at the Top of the Pecking Order**\
 `Bruce, a disabled kea parrot, is missing his top beak. The bird uses tools to keep himself healthy and developed a jousting technique that has made him the alpha male of his group.`\
 https://www.nytimes.com/video/science/earth/100000010852236/parrot-disabled-beak-new-zealand.html
-
-**Apple C.E.O.s Through the Years: From Michael Scott (Not That One) to John Ternus**\
-`Apple’s corner office has been a seat from which executives like Steve Jobs changed how we interact with technology.`\
-https://www.nytimes.com/2026/04/20/technology/apple-ceos-photos.html
 
