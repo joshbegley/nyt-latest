@@ -1,3 +1,7 @@
+**Why Negotiations With Iran Might Take a While**\
+`The Iranians are notoriously slow negotiators. Our reporter David E. Sanger explains what the history of U.S.-Iran negotiations could mean for the latest round of talks.`\
+https://www.nytimes.com/video/world/middleeast/100000010853017/why-negotiations-with-iran-might-take-a-while.html
+
 **U.S. Abruptly Rescinds Subpoenas It Had Just Issued in John Brennan Inquiry**\
 `The vacillation came after the Justice Department replaced a career prosecutor with a loyalist to President Trump in the administration’s effort to charge the former C.I.A. chief with a crime.`\
 https://www.nytimes.com/2026/04/21/us/politics/justice-dept-john-brennan-subpoenas.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/21/climate/earth-day-climate-change-hope.html
 **Our 17th Annual Summer Reading Contest**\
 `Students are invited to tell us what they’re reading in The Times and why, in writing OR via a 90-second video. Contest dates: June 5 to Aug. 14, 2026.`\
 https://www.nytimes.com/2026/04/21/learning/our-17th-annual-summer-reading-contest.html
-
-**Lebanese Bury Their Dead Amid a Lull in Fighting**\
-`Mass funerals for Hezbollah fighters and civilians were happening across southern Lebanon.`\
-https://www.nytimes.com/2026/04/21/world/middleeast/lebanon-villages-funerals.html
 
