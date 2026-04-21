@@ -1,3 +1,15 @@
+**D.H.S. Will Run Out of Money for Paychecks in May, Secretary Says**\
+`The issue threatens to renew chaos at airports as lawmakers remain divided over a deal to end the two-month shutdown of the Department of Homeland Security.`\
+https://www.nytimes.com/2026/04/21/us/politics/homeland-security-tsa-paychecks-mullin.html
+
+**Trump Extends Cease-Fire, Even as Peace Talks Are Put on Hold**\
+`With the cease-fire on the verge of ending, President Trump said on Tuesday that he would keep it in place until Iran’s “proposal is submitted, and discussions are concluded, one way or the other.”`\
+https://www.nytimes.com/2026/04/21/world/middleeast/trump-extends-iran-ceasefire.html
+
+**Andrew Hacker, Provocative Political Scientist, Dies at 96**\
+`In a host of books and articles, he attacked conventional ideas on subjects including the battle of the sexes and the usefulness of high school math.`\
+https://www.nytimes.com/2026/04/21/books/andrew-hacker-dead.html
+
 **War Shock in Asia**\
 `The damage to a region that has driven global economic growth for decades may be hard to contain.`\
 https://www.nytimes.com/2026/04/21/world/iran-cease-fire-extended-asia-impact.html
