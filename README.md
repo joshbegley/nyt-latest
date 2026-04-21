@@ -40,7 +40,7 @@ https://www.nytimes.com/2026/04/21/us/politics/southern-poverty-law-center-doj-i
 
 **Kennedy Says the Carnivore Diet Can Eliminate Dangerous Body Fat**\
 `He claimed in a video on social media that the diet could quickly eradicate visceral fat, which accumulates around the organs. Is that true?`\
-https://www.nytimes.com/2026/04/21/well/eat/carnivore-diet-visceral-fat-kennedy.html
+https://www.nytimes.com/2026/04/21/well/eat/carnivore-diet-visceral-fat-rfk-jr.html
 
 **These Are the Very Best Scrambled Eggs**\
 `Kenji López-Alt’s extra-creamy scrambled eggs are the perfect dinner for busy, scrambled weeknights.`\
