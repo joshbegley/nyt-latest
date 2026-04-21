@@ -1,3 +1,7 @@
+**For Earth Day, a Few Signs of Hope for Our Planet**\
+`In a year of grim climate and environment news, we’ve compiled several hopeful signs about our planet’s future.`\
+https://www.nytimes.com/2026/04/21/climate/earth-day-climate-change-hope.html
+
 **Our 17th Annual Summer Reading Contest**\
 `Students are invited to tell us what they’re reading in The Times and why, in writing OR via a 90-second video. Contest dates: June 5 to Aug. 14, 2026.`\
 https://www.nytimes.com/2026/04/21/learning/our-17th-annual-summer-reading-contest.html

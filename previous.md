@@ -1,3 +1,7 @@
+**For Earth Day, a Few Signs of Hope for Our Planet**\
+`In a year of grim climate and environment news, we’ve compiled several hopeful signs about our planet’s future.`\
+https://www.nytimes.com/2026/04/21/climate/earth-day-climate-change-hope.html
+
 **Our 17th Annual Summer Reading Contest**\
 `Students are invited to tell us what they’re reading in The Times and why, in writing OR via a 90-second video. Contest dates: June 5 to Aug. 14, 2026.`\
 https://www.nytimes.com/2026/04/21/learning/our-17th-annual-summer-reading-contest.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/21/arts/music/nate-smith-newport-jazz-festival-l
 **A Welcoming Neighborhood Hangout on the Upper East Side**\
 `Wainwright’s Tavern brings comforts and house accounts to Third Avenue, Cleo offers a new spot for rotisserie chicken downtown and more restaurant news.`\
 https://www.nytimes.com/2026/04/21/dining/wainwrights-tavern-cleo.html
-
-**Virginia Redistricting Referendum Results**\
-`Get live results and maps from the 2026 Virginia redistricting referendum.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-virginia-redistricting.html
 
