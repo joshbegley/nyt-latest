@@ -1,3 +1,11 @@
+**Our 17th Annual Summer Reading Contest**\
+`Students are invited to tell us what they’re reading in The Times and why, in writing OR via a 90-second video. Contest dates: June 5 to Aug. 14, 2026.`\
+https://www.nytimes.com/2026/04/21/learning/our-17th-annual-summer-reading-contest.html
+
+**Lebanese Bury Their Dead Amid a Lull in Fighting**\
+`Mass funerals for Hezbollah fighters and civilians were happening across southern Lebanon.`\
+https://www.nytimes.com/2026/04/21/world/middleeast/lebanon-villages-funerals.html
+
 **Kennedy Refuses to Commit to Backing New C.D.C. Director on Vaccines**\
 `In a tense congressional hearing, the health secretary also said he bore no responsibility for the measles outbreak in the United States.`\
 https://www.nytimes.com/2026/04/21/us/politics/rfk-jr-vaccines-erica-schwartz.html

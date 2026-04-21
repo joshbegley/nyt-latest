@@ -1,3 +1,11 @@
+**Our 17th Annual Summer Reading Contest**\
+`Students are invited to tell us what they’re reading in The Times and why, in writing OR via a 90-second video. Contest dates: June 5 to Aug. 14, 2026.`\
+https://www.nytimes.com/2026/04/21/learning/our-17th-annual-summer-reading-contest.html
+
+**Lebanese Bury Their Dead Amid a Lull in Fighting**\
+`Mass funerals for Hezbollah fighters and civilians were happening across southern Lebanon.`\
+https://www.nytimes.com/2026/04/21/world/middleeast/lebanon-villages-funerals.html
+
 **Kennedy Refuses to Commit to Backing New C.D.C. Director on Vaccines**\
 `In a tense congressional hearing, the health secretary also said he bore no responsibility for the measles outbreak in the United States.`\
 https://www.nytimes.com/2026/04/21/us/politics/rfk-jr-vaccines-erica-schwartz.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/21/dining/wainwrights-tavern-cleo.html
 **Virginia Redistricting Referendum Results**\
 `Get live results and maps from the 2026 Virginia redistricting referendum.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-virginia-redistricting.html
-
-**E.P.A. and Maryland Sue D.C. Utility Over Potomac River Sewage Spill**\
-`In separate lawsuits, environmental regulators said D.C. Water failed to prevent and contain a massive spill of raw sewage upstream of Washington.`\
-https://www.nytimes.com/2026/04/21/climate/potomac-river-sewage-spill-lawsuit.html
-
-**EE. UU. busca un acuerdo rápido, pero Irán se resiste**\
-`En el segundo intento de acuerdo entre Estados Unidos e Irán, los estilos de negociación de ambos países están destinados a chocar frontalmente.`\
-https://www.nytimes.com/es/2026/04/21/espanol/estados-unidos/iran-negociaciones-trump.html
 
