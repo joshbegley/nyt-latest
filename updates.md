@@ -1,3 +1,11 @@
+**Armani Goes Back to the Archive**\
+`A new collection dusts off decades-old creations, plus a dispatch from a Brunello Cucinelli movie premiere and the Political Tie Tracker.`\
+https://www.nytimes.com/2026/04/21/style/armani-archivio.html
+
+**Florida Opens Criminal Inquiry Into ChatGPT Tied to Fatal School Shooting**\
+`The investigation focuses on messages between the chatbot and the man accused of killing two people at Florida State University last year.`\
+https://www.nytimes.com/2026/04/21/us/florida-criminal-investigation-openai-chatgpt-fsu-shooting.html
+
 **Florida Begins Criminal Inquiry Into ChatGPT**\
 `The investigation focuses on messages between the chatbot and the man accused of killing two people at Florida State University last year.`\
 https://www.nytimes.com/2026/04/21/us/florida-criminal-investigation-openai-chatgpt-fsu-shooting.html

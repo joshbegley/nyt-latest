@@ -1,3 +1,7 @@
+**Armani Goes Back to the Archive**\
+`A new collection dusts off decades-old creations, plus a dispatch from a Brunello Cucinelli movie premiere and the Political Tie Tracker.`\
+https://www.nytimes.com/2026/04/21/style/armani-archivio.html
+
 **Democrats Look for a New Campaign Script**\
 `Readers respond to an Opinion guest essay by David Plouffe. Also: Why mothers are burned out; national referendums.`\
 https://www.nytimes.com/2026/04/21/opinion/democrats-elections.html
@@ -26,7 +30,7 @@ https://www.nytimes.com/2026/04/21/business/ai-job-cuts-wall-street.html
 `Gregory Spears is bringing his uncanny sense of genre and eras of music to the “Sleeping Beauty” story with his new opera, “Sleepers Awake.”`\
 https://www.nytimes.com/2026/04/21/arts/music/gregory-spears-sleepers-awake.html
 
-**Florida Begins Criminal Inquiry Into ChatGPT**\
+**Florida Opens Criminal Inquiry Into ChatGPT Tied to Fatal School Shooting**\
 `The investigation focuses on messages between the chatbot and the man accused of killing two people at Florida State University last year.`\
 https://www.nytimes.com/2026/04/21/us/florida-criminal-investigation-openai-chatgpt-fsu-shooting.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/21/business/trump-spirit-airlines-united-america
 **A Year After U.S.A.I.D.’s Death, Fired Workers Find Few Jobs and Much Loss**\
 `People have plowed through savings, cashed out retirement funds and moved in with relatives. Former U.S.A.I.D. workers estimate that less than half have found full-time work.`\
 https://www.nytimes.com/2026/04/21/us/politics/usaid-former-employees.html
-
-**Los 2 estadounidenses que murieron en el accidente en México eran funcionarios de la CIA**\
-`Los dos estadounidenses murieron el domingo cuando regresaban de una operación dirigida por las fuerzas armadas de México para desmantelar laboratorios de droga en el estado de Chihuahua.`\
-https://www.nytimes.com/es/2026/04/21/espanol/america-latina/mexico-accidente-investigadores-cia.html
 
