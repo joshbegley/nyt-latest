@@ -1,3 +1,23 @@
+**Florida Inquiry Into ChatGPT Shifts to Criminal Investigation**\
+`The investigation focuses on messages between the chatbot and the man accused of killing two people at Florida State University last year.`\
+https://www.nytimes.com/2026/04/21/us/florida-criminal-investigation-openai-chatgpt-fsu-shooting.html
+
+**A Composer Who Loops Musical Time and History**\
+`Gregory Spears is bringing his uncanny sense of genre and eras of music to the “Sleeping Beauty” story with his new opera, “Sleepers Awake.”`\
+https://www.nytimes.com/2026/04/21/arts/music/gregory-spears-sleepers-awake.html
+
+**Today, In Short**\
+`Heelys. A fast robot. And a new C.E.O. at Apple.`\
+https://www.nytimes.com/2026/04/21/briefing/today-in-short.html
+
+**Civil Rights Group Says It Is Under Investigation by Justice Dept.**\
+`The Southern Poverty Law Center, which is best known for investigating hate groups, has been accused by Republicans of unfairly targeting conservative and Christian organizations.`\
+https://www.nytimes.com/2026/04/21/us/politics/southern-poverty-law-center-doj-investigation.html
+
+**Silicon Valley Needs to Notice That Molotov Cocktail**\
+`The attack against Sam Altman reflects how badly Silicon Valley needs to address the societal consequences of its products.`\
+https://www.nytimes.com/2026/04/21/opinion/sam-altman-attack-ai-silicon-valley.html
+
 **Kennedy Says the Carnivore Diet Can Eliminate Dangerous Body Fat**\
 `He claimed in a video on social media that the diet could quickly eradicate visceral fat, which accumulates around the organs. Is that true?`\
 https://www.nytimes.com/2026/04/21/well/eat/carnivore-diet-visceral-fat-kennedy.html
