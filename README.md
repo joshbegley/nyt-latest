@@ -1,3 +1,11 @@
+**Los 2 estadounidenses que murieron en el accidente en México pertenecían a la CIA**\
+`Los dos estadounidenses murieron el domingo cuando regresaban de una operación dirigida por las fuerzas armadas de México para desmantelar laboratorios de droga en el estado de Chihuahua.`\
+https://www.nytimes.com/es/2026/04/21/espanol/america-latina/mexico-accidente-investigadores-cia.html
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/21/business/kevin-warsh-fed-chair-hearing/heres-the-latest
+
 **Where Are All These Meteors Coming From?**\
 `The frequency of fireballs in our planet’s skies seemed to grow in recent months. NASA and other meteor experts can’t agree on what explains it.`\
 https://www.nytimes.com/2026/04/21/science/march-fireballs-meteors-astronomy.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/21/crosswords/connections-companion-1046.html
 **Strands Sidekick No. 780**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, April 22, 2026.`\
 https://www.nytimes.com/2026/04/21/crosswords/strands-sidekick-780.html
-
-**Wordle Review No. 1,768**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, April 22, 2026.`\
-https://www.nytimes.com/2026/04/21/crosswords/wordle-review-1768.html
-
-**UnitedHealth Group Reports Flat First-Quarter Earnings**\
-`One of the nation’s largest insurers, the company’s profits were higher than analysts’ expectations but still fell short of showing a significant comeback.`\
-https://www.nytimes.com/2026/04/21/business/united-health-group-earnings.html
 
