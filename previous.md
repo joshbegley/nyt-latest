@@ -1,3 +1,15 @@
+**Dark Money Dominates Fund-Raising in the Virginia Referendum Vote**\
+`Of the $98 million raised by the three groups that have bought the most advertising, at least 96 percent has come from nonprofit groups that do not disclose their donors.`\
+https://www.nytimes.com/2026/04/21/us/elections/virginia-referendum-dark-money.html
+
+**What I Saw Crossing Into South Lebanon**\
+`Our visual journalist David Guttenfelder traveled with displaced people returning to their homes in southern Lebanon, as a cease-fire paused the fighting between Israel and Hezbollah.`\
+https://www.nytimes.com/video/world/middleeast/100000010848993/what-i-saw-crossing-into-south-lebanon.html
+
+**Serial Rapist Pleads Guilty to 2 Murders After Chewed Gum Links DNA to Crimes**\
+`Mitchell A. Gaff, 68, acknowledged killing two women who were sexually assaulted before being found dead in their Washington State apartments in the 1980s.`\
+https://www.nytimes.com/2026/04/21/us/washington-gum-cold-case-allen-gaff.html
+
 **Japón venderá más armas al extranjero, rompiendo con el pacifismo de posguerra**\
 `La primera ministra Sanae Takaichi revocó los límites a las exportaciones de armas mientras Japón se enfrenta a las crecientes amenazas de China y a la imprevisibilidad de Estados Unidos.`\
 https://www.nytimes.com/es/2026/04/21/espanol/mundo/japon-venta-armas.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/21/us/politics/homeland-security-tsa-paychecks-m
 **Trump Extends Cease-Fire, Even as Peace Talks Are Put on Hold**\
 `With the cease-fire on the verge of ending, President Trump said on Tuesday that he would keep it in place until Iran’s “proposal is submitted, and discussions are concluded, one way or the other.”`\
 https://www.nytimes.com/2026/04/21/world/middleeast/trump-extends-iran-ceasefire.html
-
-**War Shock in Asia**\
-`The damage to a region that has driven global economic growth for decades may be hard to contain.`\
-https://www.nytimes.com/2026/04/21/world/iran-cease-fire-extended-asia-impact.html
-
-**Does Israel Want to Be Saudi Arabia?**\
-`Americans hold Israel to a higher standard than their other allies. That’s a good thing.`\
-https://www.nytimes.com/2026/04/21/opinion/israel-us-public-opinion.html
-
-**Andrew Hacker, Provocative Political Scientist, Dies at 96**\
-`In a host of books and articles, he attacked conventional ideas on subjects including the battle of the sexes and the usefulness of high school math.`\
-https://www.nytimes.com/2026/04/21/books/andrew-hacker-dead.html
 
