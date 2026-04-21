@@ -1,3 +1,11 @@
+**Airy Clothes in a Beachy Palette**\
+`A couple stood out in Upper Manhattan for wearing billowy attire the colors of water and sand.`\
+https://www.nytimes.com/2026/04/21/style/street-style-look-airy-beachy-clothes.html
+
+**A Turkish Love Story, With Prison, Poetry and an Airplane Exploit**\
+`After a forced confession and a death sentence, a Kurdish poet spent 30 years in jail, where he discovered his voice. His literary champion, to everyone’s surprise, became his life partner.`\
+https://www.nytimes.com/2026/04/21/world/europe/turkey-kurdish-poet-comak.html
+
 **2 Cruise Ships Exit Strait of Hormuz After Being Stranded for Weeks**\
 `The ships carried skeleton crews and no passengers, the cruise company said.`\
 https://www.nytimes.com/2026/04/21/world/middleeast/cruise-ships-strait-hormuz-iran.html
