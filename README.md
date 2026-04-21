@@ -1,3 +1,7 @@
+**Smithsonian American Art Museum Names a New Director**\
+`Lynda Roscoe Hartigan is returning to the museum as its leader after previously serving as its chief curator.`\
+https://www.nytimes.com/2026/04/21/arts/design/smithsonian-director-lynda-roscoe-hartigan.html
+
 **‘My Brother the Minotaur’ Is a Visually Stunning Animated Series**\
 `The Apple TV series leans into the natural splendor of its wild, rustic setting, with a painterliness that recalls Celtic and medieval traditions.`\
 https://www.nytimes.com/2026/04/21/arts/television/my-brother-the-minotaur-apple-tv.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/21/espanol/america-latina/mexico-accidente-in
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/21/business/kevin-warsh-fed-chair-hearing/heres-the-latest
-
-**Where Are All These Meteors Coming From?**\
-`The frequency of fireballs in our planet’s skies seemed to grow in recent months. NASA and other meteor experts can’t agree on what explains it.`\
-https://www.nytimes.com/2026/04/21/science/march-fireballs-meteors-astronomy.html
 
