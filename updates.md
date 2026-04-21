@@ -1,3 +1,15 @@
+**U.S. Military Stops Tanker Carrying Iranian Oil, Pentagon Says**\
+`The seizure was the latest U.S. effort to squeeze Iran’s oil-reliant economy, and came days after the Navy boarded an Iranian cargo ship near the Strait of Hormuz.`\
+https://www.nytimes.com/2026/04/21/world/middleeast/iran-oil-tanker-mt-tifani-us-indian-ocean.html
+
+**Criminal inquiry into Fed looms large over Warsh hearing.**\
+``\
+https://www.nytimes.com/live/2026/04/21/business/kevin-warsh-fed-chair-hearing/criminal-inquiry-into-fed-looms-large-over-warsh-hearing
+
+**Europe Wanted a Say on the Iran War, but It’s Still on the Sidelines**\
+`A British-French plan to secure the Strait of Hormuz would give the continent a role. But Tehran and Washington are still calling the shots.`\
+https://www.nytimes.com/2026/04/21/world/middleeast/iran-war-europe-macron-france.html
+
 **Trump Dismisses a Merger While Seeking Suitors for Spirit Airlines**\
 `As he rejected the idea of a merger of United Airlines and American Airlines, President Trump said someone, including possibly the federal government, should buy or help Spirit.`\
 https://www.nytimes.com/2026/04/21/business/trump-spirit-airlines-united-american.html
