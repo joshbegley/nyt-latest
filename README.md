@@ -1,3 +1,7 @@
+**How The Onion Finally Shut Up Alex Jones for Good**\
+`What happened when America’s finest (fake) news source decided to troll the world’s greatest troll.`\
+https://www.nytimes.com/2026/04/21/podcasts/the-onion-alex-jones.html
+
 **Xi Calls For Hormuz to Reopen as China Balances Its Gulf Interests**\
 `The comments on the Strait of Hormuz by China’s leader, Xi Jinping, reflect Beijing’s complex relations with Iran and other Persian Gulf nations.`\
 https://www.nytimes.com/2026/04/21/world/middleeast/iran-china-hormuz-xi-jinping-oil.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/opinion/100000010844890/why-are-palantir-and-opena
 **Esa junta odiosa podría ser el antídoto para que la IA no se quede con tu trabajo**\
 `A medida que la inteligencia artificial facilita muchas tareas, el trabajo humano de convencer, presionar y tranquilizar parece estar cobrando mayor importancia.`\
 https://www.nytimes.com/es/2026/04/21/espanol/negocios/trabajo-ia-juntas.html
-
-**This True Story Brought Adrien Brody and Tessa Thompson to Broadway**\
-`“The Fear of 13,” about a man who spent two decades on death row for a murder he didn’t commit, is a story that the playwright says she “couldn’t shake.”`\
-https://www.nytimes.com/2026/04/21/theater/adrien-brody-tessa-thompson-broadway-fear-of-13.html
 
