@@ -1,3 +1,7 @@
+**Japan to Sell More Weapons Abroad, Breaking With Postwar Pacifism**\
+`Prime Minister Sanae Takaichi reversed limits on arms exports as Japan faces rising threats from China and unpredictability from its main ally, the United States.`\
+https://www.nytimes.com/2026/04/20/world/asia/japan-weapons-arms-sale-nato.html
+
 **Tim Cook dejará de ser director ejecutivo de Apple**\
 `El líder del fabricante de los iPhone será sustituido por John Ternus, jefe de ingeniería de hardware de la empresa.`\
 https://www.nytimes.com/es/2026/04/20/espanol/negocios/tim-cook-apple-ceo.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/20/espanol/america-latina/mexico-accidente-in
 **A New Apple C.E.O.**\
 `Also, JD Vance is set to travel to Pakistan for peace talks. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/04/20/briefing/a-new-apple-ceo.html
-
-**Scientist Irritated by Lab Colleague Accused in Poisoning Attempt**\
-`The scientist, at the University of Wisconsin-Madison, had built up grievances against his co-worker after five years of working together, court documents said.`\
-https://www.nytimes.com/2026/04/20/us/university-wisconsin-coworkers-poison.html
 

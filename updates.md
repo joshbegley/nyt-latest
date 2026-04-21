@@ -1,3 +1,7 @@
+**Japan to Sell More Weapons Abroad, Breaking With Postwar Pacifism**\
+`Prime Minister Sanae Takaichi reversed limits on arms exports as Japan faces rising threats from China and unpredictability from its main ally, the United States.`\
+https://www.nytimes.com/2026/04/20/world/asia/japan-weapons-arms-sale-nato.html
+
 **Tim Cook dejará de ser director ejecutivo de Apple**\
 `El líder del fabricante de los iPhone será sustituido por John Ternus, jefe de ingeniería de hardware de la empresa.`\
 https://www.nytimes.com/es/2026/04/20/espanol/negocios/tim-cook-apple-ceo.html
