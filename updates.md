@@ -1,3 +1,7 @@
+**Nigeria Charges Six With Treason Over Coup Plot**\
+`The group is accused of a failed coup attempt in October.`\
+https://www.nytimes.com/2026/04/21/world/africa/nigeria-coup-plot-treason-charges.html
+
 **Black Sesame Rice Krispies Treats**\
 `The combination of butter-fried black sesame seeds and toasted sesame oil creates an aromatic whammy of nutty sesame flavor in otherwise classic Rice Krispies treats.`\
 https://www.nytimes.com/video/dining/100000010854238/black-sesame-rice-krispies-treats.html
