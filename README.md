@@ -1,3 +1,11 @@
+**Quote of the Day: Nepalis Ask if a Revolution Can Deliver on Hope**\
+`Quotation of the Day for Tuesday, April 21, 2026.`\
+https://www.nytimes.com/2026/04/20/pageoneplus/quote-of-the-day-nepalis-ask-if-a-revolution-can-deliver-on-hope.html
+
+**What It Takes to Dress the ‘Devil’**\
+`The press tour for “The Devil Wears Prada 2” has been a fashion show for its stars and their stylists, who have relied on group chats, sweatpants and camaraderie to pull it off.`\
+https://www.nytimes.com/2026/04/20/style/the-devil-wears-prada-2-press-tour-fashion.html
+
 **How an Art Event in the California Desert Became a Community**\
 `As High Desert Test Sites looks toward its 25th anniversary, its founder, and various participants, look back.`\
 https://www.nytimes.com/2026/04/20/arts/design/joshua-tree-art-high-desert-test-sites.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/20/science/blue-origins-moon-nasa.html
 **Amazon Plans to Invest Up to $25 Billion in Anthropic**\
 `Anthropic also committed to spending $100 billion on Amazon technologies that can help build and deploy A.I. systems.`\
 https://www.nytimes.com/2026/04/20/technology/amazon-anthropic-investment.html
-
-**Mother and 6 Children Die in Explosion at Their Pennsylvania Home**\
-`The blast on Sunday morning led to a fire that consumed the residence in a rural community northwest of Harrisburg, the authorities said.`\
-https://www.nytimes.com/2026/04/20/us/mother-six-children-explosion-pennsylvania.html
-
-**Four Cabinet and other senior officials have now stepped down from Trump’s Cabinet.**\
-``\
-https://www.nytimes.com/live/2026/04/20/us/trump-news/four-cabinet-and-other-senior-officials-have-now-stepped-down-from-trumps-cabinet
 
