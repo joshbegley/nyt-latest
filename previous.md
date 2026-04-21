@@ -1,3 +1,7 @@
+**London Braces for Disruption From Tube Drivers’ Strike**\
+`The dispute over working conditions and hours is expected to cause widespread delays, stopping service on two lines.`\
+https://www.nytimes.com/2026/04/21/world/europe/london-underground-tube-strike.html
+
 **Quote of the Day: Nepalis Ask if a Revolution Can Deliver on Hope**\
 `Quotation of the Day for Tuesday, April 21, 2026.`\
 https://www.nytimes.com/2026/04/20/pageoneplus/quote-of-the-day-nepalis-ask-if-a-revolution-can-deliver-on-hope.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/20/espanol/mundo/soldado-israel-jesus-libano.
 **Blue Origin’s Failure May Hamstring NASA’s Moon Plans**\
 `The space agency is counting on Jeff Bezos’ company to deliver equipment essential to the next moon landing, only two years away.`\
 https://www.nytimes.com/2026/04/20/science/blue-origins-moon-nasa.html
-
-**Amazon Plans to Invest Up to $25 Billion in Anthropic**\
-`Anthropic also committed to spending $100 billion on Amazon technologies that can help build and deploy A.I. systems.`\
-https://www.nytimes.com/2026/04/20/technology/amazon-anthropic-investment.html
 

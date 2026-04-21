@@ -1,3 +1,7 @@
+**London Braces for Disruption From Tube Drivers’ Strike**\
+`The dispute over working conditions and hours is expected to cause widespread delays, stopping service on two lines.`\
+https://www.nytimes.com/2026/04/21/world/europe/london-underground-tube-strike.html
+
 **Quote of the Day: Nepalis Ask if a Revolution Can Deliver on Hope**\
 `Quotation of the Day for Tuesday, April 21, 2026.`\
 https://www.nytimes.com/2026/04/20/pageoneplus/quote-of-the-day-nepalis-ask-if-a-revolution-can-deliver-on-hope.html
