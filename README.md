@@ -1,3 +1,7 @@
+**Virginia Redistricting Referendum Results**\
+`Get live results and maps from the 2026 Virginia redistricting referendum.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-virginia-redistricting.html
+
 **E.P.A. and Maryland Sue D.C. Utility Over Potomac River Sewage Spill**\
 `In separate lawsuits, environmental regulators said D.C. Water failed to prevent and contain a massive spill of raw sewage upstream of Washington.`\
 https://www.nytimes.com/2026/04/21/climate/potomac-river-sewage-spill-lawsuit.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/21/opinion/sam-altman-attack-ai-silicon-valley.h
 **Open or Shut, the Strait of Hormuz May Not Go Back to Normal**\
 `The energy industry is planning for a future where the choke point on Iran’s southern coast is a lot less important.`\
 https://www.nytimes.com/2026/04/21/business/energy-environment/strait-hormuz-oil-natural-gas.html
-
-**U.S. Military Stops Tanker Carrying Iranian Oil, Pentagon Says**\
-`The seizure was the latest U.S. effort to squeeze Iran’s oil-reliant economy, and came days after the Navy boarded an Iranian cargo ship near the Strait of Hormuz.`\
-https://www.nytimes.com/2026/04/21/world/middleeast/iran-oil-tanker-mt-tifani-us-indian-ocean.html
 
