@@ -1,3 +1,15 @@
+**Labor Secretary’s Departure Gives Trump an Opening to Focus on His Agenda**\
+`President Trump accepted Labor Secretary Lori Chavez-DeRemer’s resignation ahead of an internal investigation into her conduct at the department.`\
+https://www.nytimes.com/2026/04/21/business/economy/labor-secretary-trump.html
+
+**‘What Happened Was …’ Review: Alone in New York, Together at Dinner**\
+`Cecily Strong and Corey Stoll star in this two-hander about connecting over a meal that becomes much deeper than two colleagues socializing out-of-office.`\
+https://www.nytimes.com/2026/04/21/theater/what-happened-was-review.html
+
+**El tirador en Teotihuacán llevaba notas relacionadas con tiroteos masivos de EE. UU.**\
+`El hombre que mató a una turista en una pirámide en México e hirió a varios más llevaba material relacionado con un atentado en 1999, una posible referencia a la masacre de Columbine.`\
+https://www.nytimes.com/es/2026/04/21/espanol/america-latina/teotihuacan-tirador-agresor-quien-es.html
+
 **Nigeria Charges Six With Treason Over Coup Plot**\
 `The group is accused of a failed coup attempt in October.`\
 https://www.nytimes.com/2026/04/21/world/africa/nigeria-coup-plot-treason-charges.html
