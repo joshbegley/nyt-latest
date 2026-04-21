@@ -1,3 +1,19 @@
+**‘Oh, My Baby’: Mother Mourns Son, 15, Whose Killing Was Filmed on Video**\
+`Jaden Pierre was fatally shot at a Queens park in broad daylight, and bystanders captured the shooting on video. Hundreds attended a vigil for him on Monday night.`\
+https://www.nytimes.com/2026/04/20/nyregion/queens-teen-shooting.html
+
+**Corrections: April 21, 2026**\
+`Corrections that appeared in print on Tuesday, April 21, 2026.`\
+https://www.nytimes.com/2026/04/20/pageoneplus/corrections-april-21-2026.html
+
+**‘Schmigadoon!’ Review: Oh, What a Beautiful Sendup**\
+`Cinco Paul’s loving spoof of Golden Age musicals, adapted from a TV series, comes to Broadway, where its charming musical numbers can really shine.`\
+https://www.nytimes.com/2026/04/20/theater/schmigadoon-review-brightman-broadway.html
+
+**Song and Dance**\
+`Victoria Fernandez Grande looks to the skies.`\
+https://www.nytimes.com/2026/04/20/crosswords/daily-puzzle-2026-04-21.html
+
 **Japan to Sell More Weapons Abroad, Breaking With Postwar Pacifism**\
 `Prime Minister Sanae Takaichi reversed limits on arms exports as Japan faces rising threats from China and unpredictability from its main ally, the United States.`\
 https://www.nytimes.com/2026/04/20/world/asia/japan-weapons-arms-sale-nato.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/video/opinion/100000010844781/trump-is-losing-his-cheerl
 **A Rocky (and Muddy) Ski Season Concludes in Colorado**\
 `Faced with a devastating snow drought and record-high March temperatures, some resorts closed early. But at Aspen Mountain, die-hards celebrated the last day of the season on Sunday.`\
 https://www.nytimes.com/2026/04/20/us/aspen-mountain-closing-day.html
-
-**Opponents Sue to Block Mayor’s Plan to Move Shelter to East Village**\
-`A lawsuit challenges the Mamdani administration’s declaration that closing the 30th Street Shelter was an emergency and was not subject to public notice and other requirements.`\
-https://www.nytimes.com/2026/04/20/nyregion/bellevue-homeless-shelter-lawsuit.html
-
-**Student News Quiz: Cease-Fire, Concert Giant, Religion**\
-`Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
-https://www.nytimes.com/interactive/2026/04/20/learning/20StudentNewsQuiz.html
-
-**México investigará el rol de seguridad de 2 funcionarios de EE. UU. que murieron en un accidente**\
-`La presidenta Claudia Sheinbaum señaló que la investigación se centraría en determinar si la participación de los estadounidenses en una operación violaba las leyes de seguridad de México, no en el accidente.`\
-https://www.nytimes.com/es/2026/04/20/espanol/america-latina/mexico-accidente-investigadores-laboratorio-drogas.html
-
-**A New Apple C.E.O.**\
-`Also, JD Vance is set to travel to Pakistan for peace talks. Here’s the latest at the end of Monday.`\
-https://www.nytimes.com/2026/04/20/briefing/a-new-apple-ceo.html
 
