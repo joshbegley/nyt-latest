@@ -1,3 +1,11 @@
+**Florida Inquiry Into ChatGPT Shifts to Criminal Investigation**\
+`The investigation focuses on messages between the chatbot and the man accused of killing two people at Florida State University last year.`\
+https://www.nytimes.com/2026/04/21/us/florida-criminal-investigation-openai-chatgpt-fsu-shooting.html
+
+**A Composer Who Loops Musical Time and History**\
+`Gregory Spears is bringing his uncanny sense of genre and eras of music to the “Sleeping Beauty” story with his new opera, “Sleepers Awake.”`\
+https://www.nytimes.com/2026/04/21/arts/music/gregory-spears-sleepers-awake.html
+
 **Today, In Short**\
 `Heelys. A fast robot. And a new C.E.O. at Apple.`\
 https://www.nytimes.com/2026/04/21/briefing/today-in-short.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/21/world/americas/americans-cia-mexico-crash.htm
 **Madonna Says Her Vintage Outfit Is Missing After Coachella Performance**\
 `The pop star said she was “hoping and praying” for someone to find the ensemble, from her personal collection, after her surprise performance at the music festival.`\
 https://www.nytimes.com/2026/04/21/arts/music/madonna-coachella-outfits-missing-reward.html
-
-**Meryl Streep, Anna Wintour and Lady Gaga Toast ‘The Devil Wears Prada 2’**\
-`At a starry premiere at Lincoln Center, fashion industry figures reflected on just how much the original film got right.`\
-https://www.nytimes.com/2026/04/21/style/the-devil-wears-prada-2-premiere.html
-
-**Airy Clothes in a Beachy Palette**\
-`A couple stood out in Upper Manhattan for wearing billowy attire the colors of water and sand.`\
-https://www.nytimes.com/2026/04/21/style/street-style-look-airy-beachy-clothes.html
 
