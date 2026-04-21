@@ -1,9 +1,13 @@
+**A.I. ‘Hallucinations’ Created Errors in Court Filing, Top Law Firm Says**\
+`Sullivan & Cromwell apologized for submitting a court document that had fake citations created by artificial intelligence.`\
+https://www.nytimes.com/2026/04/21/nyregion/sullivan-cromwell-ai-hallucination.html
+
 **Polls in Virginia Show Close Margins and Few Undecided Voters**\
 `A redistricting measure is asking voters to temporarily reverse a decision they made less than six years ago.`\
 https://www.nytimes.com/2026/04/21/us/elections/virginia-redistricting-measure-polls.html
 
-**SpaceX Said to Agree to Buy Cursor for More Than $50 Billion**\
-`The agreement comes as Elon Musk’s rocket and satellite maker, which has been emphasizing artificial intelligence, is preparing to go public.`\
+**SpaceX Strikes Deal With Cursor for $60 Billion**\
+`The potential acquisition comes as Elon Musk’s rocket and satellite maker, which has been emphasizing artificial intelligence, is preparing to go public.`\
 https://www.nytimes.com/2026/04/21/business/spacex-cursor-deal.html
 
 **La ciudad que revela todas las malas ideas económicas de Trump**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/21/climate/solar-wind-trump-judge.html
 **How to Watch the Lyrids Streak Across the Night Sky**\
 `Active since last week, the Lyrids meteor shower is expected to reach peak viewing tonight.`\
 https://www.nytimes.com/2026/04/21/science/astronomy-lyrid-meteors.html
-
-**Is a ‘Curse of the Mambino’ Plaguing the Mets? Mamdani, Say It Ain’t So.**\
-`On April 9, Zohran Mamdani posed for a picture with the New York Mets mascots. Since the joyous photo op, the Mets have not won a game.`\
-https://www.nytimes.com/2026/04/21/nyregion/mets-mamdani-curse.html
 

@@ -1,3 +1,7 @@
+**Polls in Virginia Show Close Margins and Few Undecided Voters**\
+`A redistricting measure is asking voters to temporarily reverse a decision they made less than six years ago.`\
+https://www.nytimes.com/2026/04/21/us/elections/virginia-redistricting-measure-polls.html
+
 **SpaceX Said to Agree to Buy Cursor for More Than $50 Billion**\
 `The agreement comes as Elon Musk’s rocket and satellite maker, which has been emphasizing artificial intelligence, is preparing to go public.`\
 https://www.nytimes.com/2026/04/21/business/spacex-cursor-deal.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/21/science/astronomy-lyrid-meteors.html
 **Is a ‘Curse of the Mambino’ Plaguing the Mets? Mamdani, Say It Ain’t So.**\
 `On April 9, Zohran Mamdani posed for a picture with the New York Mets mascots. Since the joyous photo op, the Mets have not won a game.`\
 https://www.nytimes.com/2026/04/21/nyregion/mets-mamdani-curse.html
-
-**Judge Bars Imminent Removal of D.C. Bike Lanes**\
-`A federal judge found the National Park Service had improperly rushed plans to strip out bike lanes connecting downtown Washington to the Tidal Basin.`\
-https://www.nytimes.com/2026/04/21/us/politics/judge-dc-bike-lanes.html
 
