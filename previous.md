@@ -1,6 +1,6 @@
 **SpaceX Said to Agree to Buy Cursor for More Than $50 Billion**\
 `The agreement comes as Elon Musk’s rocket and satellite maker, which has been emphasizing artificial intelligence, is preparing to go public.`\
-https://www.nytimes.com/2026/04/21/business/spacex-cursor.html
+https://www.nytimes.com/2026/04/21/business/spacex-cursor-deal.html
 
 **La ciudad que revela todas las malas ideas económicas de Trump**\
 `El presidente de EE. UU. ha intentado restaurar la industria manufacturera al imponer aranceles exorbitantes y una fuerza de deportación agresiva. Pero estas medidas resultan contraproducentes.`\
