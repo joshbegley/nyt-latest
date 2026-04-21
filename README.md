@@ -1,3 +1,27 @@
+**Jimmy Kimmel Refers to Kash Patel’s Job in the Past Tense**\
+`The late night host called him “our soon-to-be former F.B.I. director” after publication of an article in The Atlantic alleging excessive drinking and unexplained absences.`\
+https://www.nytimes.com/2026/04/21/arts/television/jimmy-kimmel-kash-patel.html
+
+**Las mujeres mayores toman el mundo de la moda**\
+`La representación de las mujeres de cierta edad nunca había sido tan alta. ¿Qué está ocurriendo?`\
+https://www.nytimes.com/es/2026/04/21/espanol/cultura/moda-mujeres-mayores.html
+
+**New Anime**\
+`Are you a fan? What new shows are you watching or looking forward to?`\
+https://www.nytimes.com/2026/04/21/learning/new-anime.html
+
+**What’s in a Name? For These Snails, Legal Protection**\
+`Scientists are debating the classification of threatened mollusks that an Indigenous community relies on for their way of life.`\
+https://www.nytimes.com/2026/04/21/science/marine-snails-mexico-indigenous-textiles.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/21/crosswords/spelling-bee-forum.html
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/21/world/iran-us-war-trump-news/heres-the-latest
+
 **Pakistan Prepares Again for U.S.-Iran Peace Talks**\
 `Islamabad, the capital of Pakistan, geared up to host a possible second round of talks between the U.S. and Iran. Some Pakistanis expressed frustration about the heavy security while others said it’s an opportunity for the nation.`\
 https://www.nytimes.com/video/world/middleeast/100000010853359/pakistan-iran-war-us-peace-talks.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/04/20/nyregion/queens-teen-shooting.html
 **Corrections: April 21, 2026**\
 `Corrections that appeared in print on Tuesday, April 21, 2026.`\
 https://www.nytimes.com/2026/04/20/pageoneplus/corrections-april-21-2026.html
-
-**‘Schmigadoon!’ Review: Oh, What a Beautiful Sendup**\
-`Cinco Paul’s loving spoof of Golden Age musicals, adapted from a TV series, comes to Broadway, where its charming musical numbers can really shine.`\
-https://www.nytimes.com/2026/04/20/theater/schmigadoon-review-brightman-broadway.html
-
-**Song and Dance**\
-`Victoria Fernandez Grande looks to the skies.`\
-https://www.nytimes.com/2026/04/20/crosswords/daily-puzzle-2026-04-21.html
-
-**Japan to Sell More Weapons Abroad, Breaking With Postwar Pacifism**\
-`Prime Minister Sanae Takaichi reversed limits on arms exports as Japan faces rising threats from China and unpredictability from its main ally, the United States.`\
-https://www.nytimes.com/2026/04/20/world/asia/japan-weapons-arms-sale-nato.html
-
-**Tim Cook dejará de ser director ejecutivo de Apple**\
-`El líder del fabricante de los iPhone será sustituido por John Ternus, jefe de ingeniería de hardware de la empresa.`\
-https://www.nytimes.com/es/2026/04/20/espanol/negocios/tim-cook-apple-ceo.html
-
-**Singer D4vd Is Charged With Murder of Celeste Rivas Hernandez**\
-`The musician D4vd was charged with murder on Monday, seven months after the police said that the body of a teenage girl, Celeste Rivas Hernandez, had been found in the trunk of his Tesla. D4vd, whose real name is David Burke, pleaded not guilty to the charges.`\
-https://www.nytimes.com/video/us/100000010852260/d4vd-celeste-rivas-murder.html
-
-**The Poetry Challenge Day 2: What’s love got to do with it?**\
-`In short, everything. Today, learn the second stanza, which gives us the poem’s most memorable phrase: “Let the more loving one be me.” Practice this line, and the others, with help from our game.`\
-https://www.nytimes.com/interactive/2026/books/wh-auden-poetry-challenge-love.html
 
