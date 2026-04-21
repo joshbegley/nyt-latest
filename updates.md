@@ -1,3 +1,15 @@
+**Two Palestinians Killed in Israeli Shooting Near West Bank School**\
+`A child was among the dead, according to the Palestinian health ministry. The Israeli military said it had attempted to break up clashes in Al Mughayir, which has seen a surge of Israeli settler violence.`\
+https://www.nytimes.com/2026/04/21/world/middleeast/palestinians-killed-israeli-shooting-west-bank-school.html
+
+**Trust Trump? Iran’s Doubts Shadow Peace Talks**\
+`Iranian leaders fear being burned again by President Trump, who tore up a nuclear agreement reached during the Obama administration after lengthy negotiations.`\
+https://www.nytimes.com/2026/04/21/us/politics/trust-trump-iran.html
+
+**Vance’s Trip to Islamabad on Hold as U.S. Says Iran Failed to Respond to Its Terms**\
+`The delay is another hurdle in the Trump administration’s push to secure an agreement that would curb Iran’s nuclear program.`\
+https://www.nytimes.com/2026/04/21/us/politics/vances-trip-to-islamabad-on-hold-as-iran-fails-to-respond-to-us-terms.html
+
 **Israeli Soldiers Sentenced to Jail for Damaging Jesus Statue in Lebanon**\
 `A statue of the crucifixion of Christ has been replaced after one soldier photographed another swinging what looked like a sledgehammer at its head.`\
 https://www.nytimes.com/2026/04/21/world/middleeast/israel-soldiers-statue-lebanon-replaced.html

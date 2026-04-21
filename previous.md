@@ -1,3 +1,11 @@
+**Two Palestinians Killed in Israeli Shooting Near West Bank School**\
+`A child was among the dead, according to the Palestinian health ministry. The Israeli military said it had attempted to break up clashes in Al Mughayir, which has seen a surge of Israeli settler violence.`\
+https://www.nytimes.com/2026/04/21/world/middleeast/palestinians-killed-israeli-shooting-west-bank-school.html
+
+**Trust Trump? Iran’s Doubts Shadow Peace Talks**\
+`Iranian leaders fear being burned again by President Trump, who tore up a nuclear agreement reached during the Obama administration after lengthy negotiations.`\
+https://www.nytimes.com/2026/04/21/us/politics/trust-trump-iran.html
+
 **Israeli Soldiers Sentenced to Jail for Damaging Jesus Statue in Lebanon**\
 `A statue of the crucifixion of Christ has been replaced after one soldier photographed another swinging what looked like a sledgehammer at its head.`\
 https://www.nytimes.com/2026/04/21/world/middleeast/israel-soldiers-statue-lebanon-replaced.html
@@ -20,7 +28,7 @@ https://www.nytimes.com/2026/04/21/climate/rainforests-deforestation-fast-recove
 
 **Vance’s Trip to Islamabad on Hold as U.S. Says Iran Failed to Respond to Its Terms**\
 `The delay is another hurdle in the Trump administration’s push to secure an agreement that would curb Iran’s nuclear program.`\
-https://www.nytimes.com/live/2026/04/21/world/iran-us-war-trump-news/vances-trip-to-islamabad-on-hold-as-iran-fails-to-respond-to-us-terms
+https://www.nytimes.com/2026/04/21/us/politics/vances-trip-to-islamabad-on-hold-as-iran-fails-to-respond-to-us-terms.html
 
 **Pentagon to Stop Requiring Members of Military to Get Flu Vaccines**\
 `Defense Secretary Pete Hegseth called the mandate “overreaching” in announcing the policy change. The vaccine will remain available to service members who want to be inoculated.`\
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/21/arts/design/smithsonian-director-lynda-roscoe
 **‘My Brother the Minotaur’ Is a Visually Stunning Animated Series**\
 `The Apple TV series leans into the natural splendor of its wild, rustic setting, with a painterliness that recalls Celtic and medieval traditions.`\
 https://www.nytimes.com/2026/04/21/arts/television/my-brother-the-minotaur-apple-tv.html
-
-**Crossing the Divide**\
-`What one image tells us about the road back to southern Lebanon.`\
-https://www.nytimes.com/2026/04/21/world/middleeast/southern-lebanon-israel-hezbollah-cease-fire.html
-
-**Aftershocks from ‘The Shadow Papers’**\
-`Publication of a trove of confidential Supreme Court memos ignited debates in the legal academy.`\
-https://www.nytimes.com/2026/04/21/us/politics/the-docket-aftershocks-shadow-papers.html
 
