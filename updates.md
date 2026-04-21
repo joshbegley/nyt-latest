@@ -1,3 +1,15 @@
+**En ‘The Pitt’, los traumas físicos y emocionales llegan a la sala de urgencias**\
+`Además de la carga diaria que supone tratar a los pacientes, los médicos de la serie llevan sus propias cicatrices a la sala de urgencias.`\
+https://www.nytimes.com/es/2026/04/21/espanol/estilos-de-vida/the-pitt-final-segunda-temporada.html
+
+**Palabra del día: ‘impeccable’**\
+`Esta palabra ha aparecido en 109 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/04/21/espanol/palabra-del-dia-impeccable.html
+
+**Word of the Day: impeccable**\
+`This word has appeared in 109 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/04/21/learning/word-of-the-day-impeccable.html
+
 **El programa ‘Visión 2030’ de Arabia Saudita reevalúa sus prioridades**\
 `Las autoridades de Arabia Saudita anunciaron una nueva estrategia para el fondo soberano del país, de aproximadamente 1 billón de dólares, y enfatizaron que en el futuro se centrarán en la “eficiencia”.`\
 https://www.nytimes.com/es/2026/04/21/espanol/mundo/arabia-saudita-planes-fondo-soberano.html
