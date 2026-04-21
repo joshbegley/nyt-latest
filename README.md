@@ -1,3 +1,7 @@
+**Where Are All These Meteors Coming From?**\
+`The frequency of fireballs in our planet’s skies seemed to grow in recent months. NASA and other meteor experts can’t agree on what explains it.`\
+https://www.nytimes.com/2026/04/21/science/march-fireballs-meteors-astronomy.html
+
 **F.A.A. Investigates Close Call Between Southwest Planes in Nashville**\
 `An aborted landing at Nashville International Airport on Saturday put one of the planes on a potential collision course with another plane taking off.`\
 https://www.nytimes.com/2026/04/21/us/southwest-planes-nashville-near-collision.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/21/crosswords/wordle-review-1768.html
 **UnitedHealth Group Reports Flat First-Quarter Earnings**\
 `One of the nation’s largest insurers, the company’s profits were higher than analysts’ expectations but still fell short of showing a significant comeback.`\
 https://www.nytimes.com/2026/04/21/business/united-health-group-earnings.html
-
-**Fired U.K. Official Describes ‘Pressure’ From Starmer’s Office for Envoy’s Appointment**\
-`The prime minister’s office was “dismissive” of security concerns about Peter Mandelson, a Jeffrey Epstein associate who became ambassador to Washington, the official said.`\
-https://www.nytimes.com/2026/04/21/world/europe/starmer-mandelson-olly-robbins.html
 

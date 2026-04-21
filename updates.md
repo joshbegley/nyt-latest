@@ -1,3 +1,7 @@
+**F.A.A. Investigates Close Call Between Southwest Planes in Nashville**\
+`An aborted landing at Nashville International Airport on Saturday put one of the planes on a potential collision course with another plane taking off.`\
+https://www.nytimes.com/2026/04/21/us/southwest-planes-nashville-near-collision.html
+
 **‘Donnyland’? Ukraine Proposes Renaming Part of the Donbas in Trump’s Honor**\
 `The proposal reflects a global reality in which governments appeal to President Trump’s vanity in order to get American might on their side.`\
 https://www.nytimes.com/2026/04/21/world/europe/donnyland-ukraine-donbas-trump.html

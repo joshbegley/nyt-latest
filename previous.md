@@ -1,3 +1,7 @@
+**F.A.A. Investigates Close Call Between Southwest Planes in Nashville**\
+`An aborted landing at Nashville International Airport on Saturday put one of the planes on a potential collision course with another plane taking off.`\
+https://www.nytimes.com/2026/04/21/us/southwest-planes-nashville-near-collision.html
+
 **‘Donnyland’? Ukraine Proposes Renaming Part of the Donbas in Trump’s Honor**\
 `The proposal reflects a global reality in which governments appeal to President Trump’s vanity in order to get American might on their side.`\
 https://www.nytimes.com/2026/04/21/world/europe/donnyland-ukraine-donbas-trump.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/21/business/united-health-group-earnings.html
 **Fired U.K. Official Describes ‘Pressure’ From Starmer’s Office for Envoy’s Appointment**\
 `The prime minister’s office was “dismissive” of security concerns about Peter Mandelson, a Jeffrey Epstein associate who became ambassador to Washington, the official said.`\
 https://www.nytimes.com/2026/04/21/world/europe/starmer-mandelson-olly-robbins.html
-
-**How The Onion Finally Shut Up Alex Jones for Good**\
-`What happened when America’s finest (fake) news source decided to troll the world’s greatest troll.`\
-https://www.nytimes.com/2026/04/21/podcasts/the-onion-alex-jones.html
 
