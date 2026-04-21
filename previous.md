@@ -1,3 +1,31 @@
+**SpaceX Said to Agree to Buy Cursor for More Than $50 Billion**\
+`The agreement comes as Elon Musk’s rocket and satellite maker, which has been emphasizing artificial intelligence, is preparing to go public.`\
+https://www.nytimes.com/2026/04/21/business/spacex-cursor.html
+
+**La ciudad que revela todas las malas ideas económicas de Trump**\
+`El presidente de EE. UU. ha intentado restaurar la industria manufacturera al imponer aranceles exorbitantes y una fuerza de deportación agresiva. Pero estas medidas resultan contraproducentes.`\
+https://www.nytimes.com/es/2026/04/21/espanol/opinion/trump-economia-estados-unidos-aranceles-deportacion.html
+
+**Virginia’s Vote Is Crucial in the Fight for Control of Congress**\
+`Also, Trump extends the cease-fire with Iran. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/04/21/briefing/virginia-vote-trump-cease-fire.html
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/21/us/virginia-redistricting-election/heres-the-latest
+
+**Rare Tornado Reported Near Fresno as Storm Moves Through California**\
+`There were no immediate reports of damage.`\
+https://www.nytimes.com/2026/04/21/weather/fresno-tornado-california.html
+
+**Election Day Turnout in Virginia Is Down Significantly From 2025, After Strong Early Voting**\
+`In-person turnout on Tuesday is trailing far behind that of last year’s governor’s race, which set a state record in a nonpresidential election.`\
+https://www.nytimes.com/2026/04/21/us/elections/virginia-redistricting-election-day-turnout.html
+
+**Gates Foundation Is Conducting an External Review of Its Epstein Ties**\
+`The action comes after the release of the Epstein files, in which Bill Gates and some former advisers figure prominently.`\
+https://www.nytimes.com/2026/04/21/business/gates-foundation-jeffrey-epstein.html
+
 **A Party That Channeled Jaipur in Milan**\
 `This year at T’s annual celebration of Salone del Mobile, Milan’s Villa Necchi Campiglio was transformed with nods to India.`\
 https://www.nytimes.com/2026/04/21/t-magazine/salone-del-mobile-t-magazine-party.html
@@ -49,32 +77,4 @@ https://www.nytimes.com/2026/04/21/nyregion/mets-mamdani-curse.html
 **Judge Bars Imminent Removal of D.C. Bike Lanes**\
 `A federal judge found the National Park Service had improperly rushed plans to strip out bike lanes connecting downtown Washington to the Tidal Basin.`\
 https://www.nytimes.com/2026/04/21/us/politics/judge-dc-bike-lanes.html
-
-**N.Y.P.D. Narcotics Unit Under Review After a Beating Is Caught on Tape**\
-`The police also disbanded a team within the unit after two of its detectives were seen on tape beating a man in Brooklyn last week.`\
-https://www.nytimes.com/2026/04/21/nyregion/nypd-beating-video.html
-
-**Why Negotiations With Iran Might Take a While**\
-`The Iranians are notoriously slow negotiators. Our reporter David E. Sanger explains what the history of U.S.-Iran negotiations could mean for the latest round of talks.`\
-https://www.nytimes.com/video/world/middleeast/100000010853017/why-negotiations-with-iran-might-take-a-while.html
-
-**U.S. Abruptly Rescinds Subpoenas It Had Just Issued in John Brennan Inquiry**\
-`The reversal came after the Justice Department replaced a career prosecutor with a loyalist to President Trump in the administration’s effort to charge the former C.I.A. chief with a crime.`\
-https://www.nytimes.com/2026/04/21/us/politics/justice-dept-john-brennan-subpoenas.html
-
-**JD Vance suspende su viaje para las negociaciones de paz entre EE. UU. e Irán**\
-`El retraso marca un nuevo obstáculo en el esfuerzo del gobierno de Trump por lograr un acuerdo que frene el programa nuclear iraní.`\
-https://www.nytimes.com/es/2026/04/21/espanol/estados-unidos/iran-trump-vance-negociaciones-paz.html
-
-**Labor Secretary’s Departure Provides Trump an Agenda Reset**\
-`President Trump’s second-term goals to foster apprenticeships and manufacturing work rely on a Labor Department that has been distracted by internal turmoil.`\
-https://www.nytimes.com/2026/04/21/business/economy/labor-secretary-trump.html
-
-**‘What Happened Was …’ Review: Alone in New York, Together at Dinner**\
-`Cecily Strong and Corey Stoll star in this two-hander about connecting over a meal that becomes much deeper than two colleagues socializing out-of-office.`\
-https://www.nytimes.com/2026/04/21/theater/what-happened-was-review.html
-
-**El tirador en Teotihuacán llevaba notas relacionadas con tiroteos masivos de EE. UU.**\
-`El hombre que mató a una turista en una pirámide en México e hirió a varios más llevaba material relacionado con un atentado en 1999, una posible referencia a la masacre de Columbine.`\
-https://www.nytimes.com/es/2026/04/21/espanol/america-latina/teotihuacan-tirador-agresor-quien-es.html
 

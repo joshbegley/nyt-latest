@@ -1,3 +1,31 @@
+**SpaceX Said to Agree to Buy Cursor for More Than $50 Billion**\
+`The agreement comes as Elon Musk’s rocket and satellite maker, which has been emphasizing artificial intelligence, is preparing to go public.`\
+https://www.nytimes.com/2026/04/21/business/spacex-cursor.html
+
+**La ciudad que revela todas las malas ideas económicas de Trump**\
+`El presidente de EE. UU. ha intentado restaurar la industria manufacturera al imponer aranceles exorbitantes y una fuerza de deportación agresiva. Pero estas medidas resultan contraproducentes.`\
+https://www.nytimes.com/es/2026/04/21/espanol/opinion/trump-economia-estados-unidos-aranceles-deportacion.html
+
+**Virginia’s Vote Is Crucial in the Fight for Control of Congress**\
+`Also, Trump extends the cease-fire with Iran. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/04/21/briefing/virginia-vote-trump-cease-fire.html
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/21/us/virginia-redistricting-election/heres-the-latest
+
+**Rare Tornado Reported Near Fresno as Storm Moves Through California**\
+`There were no immediate reports of damage.`\
+https://www.nytimes.com/2026/04/21/weather/fresno-tornado-california.html
+
+**Election Day Turnout in Virginia Is Down Significantly From 2025, After Strong Early Voting**\
+`In-person turnout on Tuesday is trailing far behind that of last year’s governor’s race, which set a state record in a nonpresidential election.`\
+https://www.nytimes.com/2026/04/21/us/elections/virginia-redistricting-election-day-turnout.html
+
+**Gates Foundation Is Conducting an External Review of Its Epstein Ties**\
+`The action comes after the release of the Epstein files, in which Bill Gates and some former advisers figure prominently.`\
+https://www.nytimes.com/2026/04/21/business/gates-foundation-jeffrey-epstein.html
+
 **A Party That Channeled Jaipur in Milan**\
 `This year at T’s annual celebration of Salone del Mobile, Milan’s Villa Necchi Campiglio was transformed with nods to India.`\
 https://www.nytimes.com/2026/04/21/t-magazine/salone-del-mobile-t-magazine-party.html
