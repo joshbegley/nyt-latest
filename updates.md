@@ -1,3 +1,11 @@
+**Open or Shut, the Strait of Hormuz May Not Go Back to Normal**\
+`The energy industry is planning for a future where the choke point on Iran’s southern coast is a lot less important.`\
+https://www.nytimes.com/2026/04/21/business/energy-environment/strait-hormuz-oil-natural-gas.html
+
+**Los 2 estadounidenses que murieron en el accidente en México eran funcionarios de la CIA**\
+`Los dos estadounidenses murieron el domingo cuando regresaban de una operación dirigida por las fuerzas armadas de México para desmantelar laboratorios de droga en el estado de Chihuahua.`\
+https://www.nytimes.com/es/2026/04/21/espanol/america-latina/mexico-accidente-investigadores-cia.html
+
 **A criminal inquiry into the Fed looms large over the Warsh hearing.**\
 ``\
 https://www.nytimes.com/live/2026/04/21/business/kevin-warsh-fed-chair-hearing/criminal-inquiry-into-fed-looms-large-over-warsh-hearing
