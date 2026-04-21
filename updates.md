@@ -1,3 +1,19 @@
+**‘Donnyland’? Ukraine Proposes Renaming Part of the Donbas in Trump’s Honor**\
+`The proposal reflects a global reality in which governments appeal to President Trump’s vanity in order to get American might on their side.`\
+https://www.nytimes.com/2026/04/21/world/europe/donnyland-ukraine-donbas-trump.html
+
+**2 Americans Killed in Mexico Crash Were C.I.A. Members**\
+`The two Americans were killed Sunday when their vehicle crashed while returning from an operation led by Mexico’s armed forces to dismantle drug labs in Chihuahua state.`\
+https://www.nytimes.com/2026/04/21/world/americas/americans-cia-mexico-crash.html
+
+**Madonna Says Her Vintage Outfit Is Missing After Coachella Performance**\
+`The pop star said she was “hoping and praying” for someone to find the ensemble, from her personal collection, after her surprise performance at the music festival.`\
+https://www.nytimes.com/2026/04/21/arts/music/madonna-coachella-outfits-missing-reward.html
+
+**Meryl Streep, Anna Wintour and Lady Gaga Toast ‘The Devil Wears Prada 2’**\
+`At a starry premiere at Lincoln Center, fashion industry figures reflected on just how much the original film got right.`\
+https://www.nytimes.com/2026/04/21/style/the-devil-wears-prada-2-premiere.html
+
 **Airy Clothes in a Beachy Palette**\
 `A couple stood out in Upper Manhattan for wearing billowy attire the colors of water and sand.`\
 https://www.nytimes.com/2026/04/21/style/street-style-look-airy-beachy-clothes.html

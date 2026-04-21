@@ -1,3 +1,19 @@
+**‘Donnyland’? Ukraine Proposes Renaming Part of the Donbas in Trump’s Honor**\
+`The proposal reflects a global reality in which governments appeal to President Trump’s vanity in order to get American might on their side.`\
+https://www.nytimes.com/2026/04/21/world/europe/donnyland-ukraine-donbas-trump.html
+
+**2 Americans Killed in Mexico Crash Were C.I.A. Members**\
+`The two Americans were killed Sunday when their vehicle crashed while returning from an operation led by Mexico’s armed forces to dismantle drug labs in Chihuahua state.`\
+https://www.nytimes.com/2026/04/21/world/americas/americans-cia-mexico-crash.html
+
+**Madonna Says Her Vintage Outfit Is Missing After Coachella Performance**\
+`The pop star said she was “hoping and praying” for someone to find the ensemble, from her personal collection, after her surprise performance at the music festival.`\
+https://www.nytimes.com/2026/04/21/arts/music/madonna-coachella-outfits-missing-reward.html
+
+**Meryl Streep, Anna Wintour and Lady Gaga Toast ‘The Devil Wears Prada 2’**\
+`At a starry premiere at Lincoln Center, fashion industry figures reflected on just how much the original film got right.`\
+https://www.nytimes.com/2026/04/21/style/the-devil-wears-prada-2-premiere.html
+
 **Airy Clothes in a Beachy Palette**\
 `A couple stood out in Upper Manhattan for wearing billowy attire the colors of water and sand.`\
 https://www.nytimes.com/2026/04/21/style/street-style-look-airy-beachy-clothes.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/21/world/europe/starmer-mandelson-olly-robbins.h
 **How The Onion Finally Shut Up Alex Jones for Good**\
 `What happened when America’s finest (fake) news source decided to troll the world’s greatest troll.`\
 https://www.nytimes.com/2026/04/21/podcasts/the-onion-alex-jones.html
-
-**Xi Calls For Hormuz to Reopen as China Balances Its Gulf Interests**\
-`The comments on the Strait of Hormuz by China’s leader, Xi Jinping, reflect Beijing’s complex relations with Iran and other Persian Gulf nations.`\
-https://www.nytimes.com/2026/04/21/world/middleeast/iran-china-hormuz-xi-jinping-oil.html
-
-**Why Are Palantir and OpenAI Scared of Alex Bores?**\
-`Alex Bores is trying to win a congressional seat to represent part of New York City. Here’s why A.I. executives are funding the effort to stop him.`\
-https://www.nytimes.com/2026/04/21/opinion/ezra-klein-podcast-alex-bores.html
-
-**How Apple Became a $4 Trillion Company Under Tim Cook**\
-`If the Steve Jobs era was defined by technological innovation, the Tim Cook period was one of exceptional financial growth.`\
-https://www.nytimes.com/2026/04/21/business/how-apple-became-a-4-trillion-company-under-tim-cook.html
-
-**A Wish List for the Man Replacing Tim Cook as Apple’s C.E.O.**\
-`John Ternus, an Apple veteran who runs hardware engineering, will take over an extraordinarily profitable company in need of new ideas.`\
-https://www.nytimes.com/2026/04/21/technology/apple-cook-ternus-wish-list.html
 
