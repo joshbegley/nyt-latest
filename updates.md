@@ -1,3 +1,11 @@
+**War Shock in Asia**\
+`The damage to a region that has driven global economic growth for decades may be hard to contain.`\
+https://www.nytimes.com/2026/04/21/world/iran-cease-fire-extended-asia-impact.html
+
+**Does Israel Want to Be Saudi Arabia?**\
+`Americans hold Israel to a higher standard than their other allies. That’s a good thing.`\
+https://www.nytimes.com/2026/04/21/opinion/israel-us-public-opinion.html
+
 **Andrew Hacker, Provocative Political Scientist, Dies at 96**\
 `In a host of books he attacked conventional ideas on subjects including the battle of the sexes and the usefulness of high school math.`\
 https://www.nytimes.com/2026/04/21/books/andrew-hacker-dead.html

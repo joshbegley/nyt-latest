@@ -1,3 +1,11 @@
+**War Shock in Asia**\
+`The damage to a region that has driven global economic growth for decades may be hard to contain.`\
+https://www.nytimes.com/2026/04/21/world/iran-cease-fire-extended-asia-impact.html
+
+**Does Israel Want to Be Saudi Arabia?**\
+`Americans hold Israel to a higher standard than their other allies. That’s a good thing.`\
+https://www.nytimes.com/2026/04/21/opinion/israel-us-public-opinion.html
+
 **Andrew Hacker, Provocative Political Scientist, Dies at 96**\
 `In a host of books he attacked conventional ideas on subjects including the battle of the sexes and the usefulness of high school math.`\
 https://www.nytimes.com/2026/04/21/books/andrew-hacker-dead.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/dining/100000010854229/chocolate-crunch-cake.html
 **Turtle Bars**\
 `This bake-sale classic features a sandy soft crust, a layer of caramel and pecans, and a final chocolate topping.`\
 https://www.nytimes.com/video/dining/100000010854282/turtle-bars.html
-
-**tk**\
-`tk`\
-https://static01.nyt.com/slideshow/2026/04/21/t-magazine/tk.html
-
-**Silken Tofu-Miso Dressing**\
-`At the restaurant RVR (pronounced “river”), the chefs Travis Lett and Ian Robinson toss this silken tofu-miso dressing with winter chicories from the local farmers’ market.`\
-https://www.nytimes.com/video/dining/100000010854248/silken-tofu-miso-dressing.html
 
