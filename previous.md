@@ -1,3 +1,7 @@
+**2 Cruise Ships Exit Strait of Hormuz After Being Stranded for Weeks**\
+`The ships carried skeleton crews and no passengers, the cruise company said.`\
+https://www.nytimes.com/2026/04/21/world/middleeast/cruise-ships-strait-hormuz-iran.html
+
 **Read the Wisconsin Criminal Complaint**\
 `A scientist at the University of Wisconsin tampered with his coworker’s water bottle using chemicals, the authorities in Dane County, Wis., said. Read the criminal complaint.`\
 https://www.nytimes.com/interactive/2026/04/21/us/university-wisconsin-poison-coworkers-complaint.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/04/21/us/politics/congress-redistrictin
 **There Is a Contest Trump Is Winning**\
 `“Trump is among the most consequential presidents in U.S. history, and not in a good way.”`\
 https://www.nytimes.com/2026/04/21/opinion/trump-legacy-history-presidents.html
-
-**Would You Want to Be a Farmer?**\
-`A guest essayist writes about why fewer young people are going into farming. What will we lose if we lose small farms?`\
-https://www.nytimes.com/2026/04/21/learning/would-you-want-to-be-a-farmer.html
 
