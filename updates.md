@@ -1,3 +1,19 @@
+**‘Oh, My Baby’: Mother Mourns Son, 15, Whose Killing Was Filmed on Video**\
+`Jaden Pierre was fatally shot at a Queens park in broad daylight, and bystanders captured the shooting on video. Hundreds attended a vigil for him on Monday night.`\
+https://www.nytimes.com/2026/04/20/nyregion/queens-teen-shooting.html
+
+**Corrections: April 21, 2026**\
+`Corrections that appeared in print on Tuesday, April 21, 2026.`\
+https://www.nytimes.com/2026/04/20/pageoneplus/corrections-april-21-2026.html
+
+**‘Schmigadoon!’ Review: Oh, What a Beautiful Sendup**\
+`Cinco Paul’s loving spoof of Golden Age musicals, adapted from a TV series, comes to Broadway, where its charming musical numbers can really shine.`\
+https://www.nytimes.com/2026/04/20/theater/schmigadoon-review-brightman-broadway.html
+
+**Song and Dance**\
+`Victoria Fernandez Grande looks to the skies.`\
+https://www.nytimes.com/2026/04/20/crosswords/daily-puzzle-2026-04-21.html
+
 **Japan to Sell More Weapons Abroad, Breaking With Postwar Pacifism**\
 `Prime Minister Sanae Takaichi reversed limits on arms exports as Japan faces rising threats from China and unpredictability from its main ally, the United States.`\
 https://www.nytimes.com/2026/04/20/world/asia/japan-weapons-arms-sale-nato.html
