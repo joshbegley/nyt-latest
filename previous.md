@@ -1,3 +1,7 @@
+**Areas to Watch in the Virginia Redistricting Election**\
+`Suburbs to the north and large cities to the south could offer insight into how support for the amendment to the state constitution is unfolding.`\
+https://www.nytimes.com/2026/04/21/us/elections/virginia-redistricting-election-counties-cities.html
+
 **Tucker Carlson Says He Is ‘Tormented’ by His Past Support for Trump**\
 `“I want to say I’m sorry for misleading people,” said the conservative commentator, who has broken sharply with the president over the war with Iran.`\
 https://www.nytimes.com/2026/04/21/us/politics/tucker-carlson-trump-apology.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/21/books/andrew-hacker-dead.html
 **An Academic Miracle**\
 `A Yale report offers some honest self-reflection on where the university went wrong.`\
 https://www.nytimes.com/2026/04/21/opinion/yale-report-academia.html
-
-**How Israel Lost Its Way and How Trump Can Save Lebanon**\
-`The smashing of a statue of Jesus by an Israeli soldier and the founding of four provocative settlements together show Israel’s thoughtless path forward.`\
-https://www.nytimes.com/2026/04/21/opinion/israel-lebanon-netanyahu-hezbollah-friedman.html
 
