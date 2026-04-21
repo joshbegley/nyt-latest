@@ -1,3 +1,7 @@
+**Israeli Soldiers Sentenced to Jail for Damaging Jesus Statue in Lebanon**\
+`A statue of the crucifixion of Christ has been replaced after one soldier photographed another swinging what looked like a sledgehammer at its head.`\
+https://www.nytimes.com/2026/04/21/world/middleeast/israel-soldiers-statue-lebanon-replaced.html
+
 **Ohio State Details Relationship That Led to President’s Resignation**\
 `The university released a report that said the president, Walter Carter Jr., took trips with a podcaster and suggested that the university hire her.`\
 https://www.nytimes.com/2026/04/21/us/ohio-state-walter-carter-relationship-president-resignation.html
@@ -18,7 +22,7 @@ https://www.nytimes.com/2026/04/21/climate/rainforests-deforestation-fast-recove
 `The delay is another hurdle in the Trump administration’s push to secure an agreement that would curb Iran’s nuclear program.`\
 https://www.nytimes.com/live/2026/04/21/world/iran-us-war-trump-news/vances-trip-to-islamabad-on-hold-as-iran-fails-to-respond-to-us-terms
 
-**Pentagon to Stop Requiring Members of Military Get Flu Vaccines**\
+**Pentagon to Stop Requiring Members of Military to Get Flu Vaccines**\
 `Defense Secretary Pete Hegseth called the mandate “overreaching” in announcing the policy change. The vaccine will remain available to service members who want to be inoculated.`\
 https://www.nytimes.com/2026/04/21/us/politics/pentagon-to-stop-requiring-members-of-military-get-flu-vaccines.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/21/world/middleeast/southern-lebanon-israel-hezb
 **Aftershocks from ‘The Shadow Papers’**\
 `Publication of a trove of confidential Supreme Court memos ignited debates in the legal academy.`\
 https://www.nytimes.com/2026/04/21/us/politics/the-docket-aftershocks-shadow-papers.html
-
-**Job Cuts Driven by A.I. Are Rising on Wall Street**\
-`“A.I. gives us places to go we haven’t gone,” said one bank’s chief executive.`\
-https://www.nytimes.com/2026/04/21/business/ai-job-cuts-wall-street.html
 
