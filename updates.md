@@ -1,3 +1,11 @@
+**A.I. ‘Hallucinations’ Created Errors in Court Filing, Top Law Firm Says**\
+`Sullivan & Cromwell apologized for submitting a court document that had fake citations created by artificial intelligence.`\
+https://www.nytimes.com/2026/04/21/nyregion/sullivan-cromwell-ai-hallucination.html
+
+**SpaceX Strikes Deal With Cursor for $60 Billion**\
+`The potential acquisition comes as Elon Musk’s rocket and satellite maker, which has been emphasizing artificial intelligence, is preparing to go public.`\
+https://www.nytimes.com/2026/04/21/business/spacex-cursor-deal.html
+
 **Polls in Virginia Show Close Margins and Few Undecided Voters**\
 `A redistricting measure is asking voters to temporarily reverse a decision they made less than six years ago.`\
 https://www.nytimes.com/2026/04/21/us/elections/virginia-redistricting-measure-polls.html
