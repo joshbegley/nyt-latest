@@ -1,3 +1,7 @@
+**The Poetry Challenge Day 2: What’s love got to do with it?**\
+`In short, everything. Today, learn the second stanza, which gives us the poem’s most memorable phrase: “Let the more loving one be me.” Practice this line, and the others, with help from our game.`\
+https://www.nytimes.com/interactive/2026/books/wh-auden-poetry-challenge-love.html
+
 **Gilgo Beach Killer Told His Wife That He Murdered 7 Women in Their Home**\
 `Rex Heuermann, who pleaded guilty to murdering eight women, told his wife that he killed seven of the victims in a downstairs room in their Long Island home, she said in a Peacock documentary.`\
 https://www.nytimes.com/2026/04/20/nyregion/gilgo-beach-killer-wife-peacock-documentary.html

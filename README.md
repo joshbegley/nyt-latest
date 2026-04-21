@@ -1,3 +1,7 @@
+**Singer D4vd Is Charged With Murder of Celeste Rivas Hernandez**\
+`The musician D4vd was charged with murder on Monday, seven months after the police said that the body of a teenage girl, Celeste Rivas Hernandez, had been found in the trunk of his Tesla. D4vd, whose real name is David Burke, pleaded not guilty to the charges.`\
+https://www.nytimes.com/video/us/100000010852260/d4vd-celeste-rivas-murder.html
+
 **The Poetry Challenge Day 2: What’s love got to do with it?**\
 `In short, everything. Today, learn the second stanza, which gives us the poem’s most memorable phrase: “Let the more loving one be me.” Practice this line, and the others, with help from our game.`\
 https://www.nytimes.com/interactive/2026/books/wh-auden-poetry-challenge-love.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/video/podcasts/100000010853211/the-resistance-to-new-tec
 `Shamar Elkins had been suffering severe mental health problems, his family said. His deadly rampage, which killed eight children, has profoundly scarred a community facing rising domestic violence.`\
 https://www.nytimes.com/2026/04/20/us/louisiana-shooter-shamar-elkins-shreveport.html
 
-**‘Immediate Results’ vs. ‘The Long Game’: the U.S. and Iran Face Off**\
+**‘Immediate Results’ vs. ‘The Long Game’: The U.S. and Iran Face Off**\
 `As the United States and Iran make a second attempt at a deal, their negotiating styles are on a collision course.`\
 https://www.nytimes.com/2026/04/20/us/politics/us-iran-negotiation-style.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/20/us/university-wisconsin-coworkers-poison.html
 **George Ariyoshi, 100, America’s First Governor of Asian Descent, Dies**\
 `A Democrat, he served three terms as Hawaii’s governor (1974-86), rising out of a tough district of Honolulu. He tried to diversify an economy heavily dependent on tourism.`\
 https://www.nytimes.com/2026/04/20/us/politics/george-ariyoshi-dead.html
-
-**New Details in the Mass Shooting That Left 8 Dead in Louisiana**\
-`On Monday, city and state officials gave updates on a mass shooting in Shreveport, La., in which a gunman opened fire on his family, killing eight children and injuring two others.`\
-https://www.nytimes.com/video/us/100000010852189/shreveport-louisiana-shooting-update.html
 
