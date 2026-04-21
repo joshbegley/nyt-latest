@@ -52,7 +52,7 @@ https://www.nytimes.com/2026/04/21/arts/television/my-brother-the-minotaur-apple
 
 **Crossing the Divide**\
 `What one image tells us about the road back to southern Lebanon.`\
-https://www.nytimes.com/2026/04/21/world/middleeast/crossing-the-divide.html
+https://www.nytimes.com/2026/04/21/world/middleeast/southern-lebanon-israel-hezbollah-cease-fire.html
 
 **Aftershocks from ‘The Shadow Papers’**\
 `Publication of a trove of confidential Supreme Court memos ignited debates in the legal academy.`\
