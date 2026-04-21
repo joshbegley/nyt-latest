@@ -1,3 +1,7 @@
+**Open or Shut, the Strait of Hormuz May Not Go Back to Normal**\
+`The energy industry is planning for a future where the choke point on Iran’s southern coast is a lot less important.`\
+https://www.nytimes.com/2026/04/21/business/energy-environment/strait-hormuz-oil-natural-gas.html
+
 **U.S. Military Stops Tanker Carrying Iranian Oil, Pentagon Says**\
 `The seizure was the latest U.S. effort to squeeze Iran’s oil-reliant economy, and came days after the Navy boarded an Iranian cargo ship near the Strait of Hormuz.`\
 https://www.nytimes.com/2026/04/21/world/middleeast/iran-oil-tanker-mt-tifani-us-indian-ocean.html
@@ -18,7 +22,7 @@ https://www.nytimes.com/2026/04/21/business/trump-spirit-airlines-united-america
 `People have plowed through savings, cashed out retirement funds and moved in with relatives. Former U.S.A.I.D. workers estimate that less than half have found full-time work.`\
 https://www.nytimes.com/2026/04/21/us/politics/usaid-former-employees.html
 
-**Los 2 estadounidenses que murieron en el accidente en México pertenecían a la CIA**\
+**Los 2 estadounidenses que murieron en el accidente en México eran funcionarios de la CIA**\
 `Los dos estadounidenses murieron el domingo cuando regresaban de una operación dirigida por las fuerzas armadas de México para desmantelar laboratorios de droga en el estado de Chihuahua.`\
 https://www.nytimes.com/es/2026/04/21/espanol/america-latina/mexico-accidente-investigadores-cia.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/21/business/dealbook/apple-succession-cook-ternu
 **Kash Patel, director del FBI, demanda por un artículo que asegura que bebe alcohol en exceso**\
 `Patel acusó a The Atlantic de difamación y pidió 250 millones de dólares por daños y perjuicios. Una portavoz de la publicación calificó la demanda de “infundada”.`\
 https://www.nytimes.com/es/2026/04/21/espanol/estados-unidos/kash-patel-fbi-bebida-the-atlantic.html
-
-**Pain at the Pump**\
-`We look at the changes in gas prices.`\
-https://www.nytimes.com/2026/04/21/briefing/pain-at-the-pump.html
 
