@@ -1,3 +1,7 @@
+**Rainforests Can Bounce Back Much Faster Than Thought, Researchers Say**\
+`Scientists long believed it would take more than a century for animals to return to deforested land. New research shows that’s not always the case.`\
+https://www.nytimes.com/2026/04/21/climate/rainforests-deforestation-fast-recovery.html
+
 **Vance’s Trip to Islamabad on Hold as U.S. Says Iran Failed to Respond to Its Terms**\
 `The delay is another hurdle in the Trump administration’s push to secure an agreement that would curb Iran’s nuclear program.`\
 https://www.nytimes.com/live/2026/04/21/world/iran-us-war-trump-news/vances-trip-to-islamabad-on-hold-as-iran-fails-to-respond-to-us-terms
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/21/us/florida-criminal-investigation-openai-chat
 **Today, In Short**\
 `Heelys. A fast robot. And a new C.E.O. at Apple.`\
 https://www.nytimes.com/2026/04/21/briefing/today-in-short.html
-
-**Civil Rights Group Says It Is Under Investigation by Justice Dept.**\
-`The Southern Poverty Law Center, which is best known for investigating hate groups, has been accused by Republicans of unfairly targeting conservative and Christian organizations.`\
-https://www.nytimes.com/2026/04/21/us/politics/southern-poverty-law-center-doj-investigation.html
 
