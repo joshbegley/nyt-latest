@@ -1,3 +1,7 @@
+**Xi Calls For Hormuz to Reopen as China Balances Its Gulf Interests**\
+`The comments on the Strait of Hormuz by China’s leader, Xi Jinping, reflect Beijing’s complex relations with Iran and other Persian Gulf nations.`\
+https://www.nytimes.com/2026/04/21/world/middleeast/iran-china-hormuz-xi-jinping-oil.html
+
 **Why Are Palantir and OpenAI Scared of Alex Bores?**\
 `Alex Bores is trying to win a congressional seat to represent part of New York City. Here’s why A.I. executives are funding the effort to stop him.`\
 https://www.nytimes.com/2026/04/21/opinion/ezra-klein-podcast-alex-bores.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/21/espanol/negocios/trabajo-ia-juntas.html
 **This True Story Brought Adrien Brody and Tessa Thompson to Broadway**\
 `“The Fear of 13,” about a man who spent two decades on death row for a murder he didn’t commit, is a story that the playwright says she “couldn’t shake.”`\
 https://www.nytimes.com/2026/04/21/theater/adrien-brody-tessa-thompson-broadway-fear-of-13.html
-
-**Baggage Fees Are Up. Here’s How to Avoid Them.**\
-`Airline passengers are feeling the pain in rising fees, as the war in Iran weighs on the price of jet fuel. Loyalty programs and certain credit cards can help ease the burden.`\
-https://www.nytimes.com/2026/04/21/travel/airline-baggage-fees.html
 

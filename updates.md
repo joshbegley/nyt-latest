@@ -1,3 +1,7 @@
+**Xi Calls For Hormuz to Reopen as China Balances Its Gulf Interests**\
+`The comments on the Strait of Hormuz by China’s leader, Xi Jinping, reflect Beijing’s complex relations with Iran and other Persian Gulf nations.`\
+https://www.nytimes.com/2026/04/21/world/middleeast/iran-china-hormuz-xi-jinping-oil.html
+
 **Why Are Palantir and OpenAI Scared of Alex Bores?**\
 `Alex Bores is trying to win a congressional seat to represent part of New York City. Here’s why A.I. executives are funding the effort to stop him.`\
 https://www.nytimes.com/2026/04/21/opinion/ezra-klein-podcast-alex-bores.html
