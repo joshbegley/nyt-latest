@@ -1,3 +1,11 @@
+**A Party That Channeled Jaipur in Milan**\
+`This year at T’s annual celebration of Salone del Mobile, Milan’s Villa Necchi Campiglio was transformed with nods to India.`\
+https://www.nytimes.com/2026/04/21/t-magazine/salone-del-mobile-t-magazine-party.html
+
+**Was Tim Cook Stylish?**\
+`The unassuming look of the outgoing Apple chief executive was an asset, as he navigated pop culture, the president and following Steve Jobs.`\
+https://www.nytimes.com/2026/04/21/style/tim-cook-apple-ceo-fashion.html
+
 **D.H.S. Will Run Out of Money for Paychecks in May, Secretary Says**\
 `The issue threatens to renew chaos at airports as lawmakers remain divided over a deal to end the two-month shutdown of the Department of Homeland Security.`\
 https://www.nytimes.com/2026/04/21/us/politics/homeland-security-tsa-paychecks-mullin.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/21/theater/what-happened-was-review.html
 **El tirador en Teotihuacán llevaba notas relacionadas con tiroteos masivos de EE. UU.**\
 `El hombre que mató a una turista en una pirámide en México e hirió a varios más llevaba material relacionado con un atentado en 1999, una posible referencia a la masacre de Columbine.`\
 https://www.nytimes.com/es/2026/04/21/espanol/america-latina/teotihuacan-tirador-agresor-quien-es.html
-
-**Nigeria Charges Six With Treason Over Coup Plot**\
-`The group, made up of civilians and former members of the country’s armed forces, is accused of treason linked to a failed coup attempt in October.`\
-https://www.nytimes.com/2026/04/21/world/africa/nigeria-coup-plot-treason-charges.html
-
-**Black Sesame Rice Krispies Treats**\
-`The combination of butter-fried black sesame seeds and toasted sesame oil creates an aromatic whammy of nutty sesame flavor in otherwise classic Rice Krispies treats.`\
-https://www.nytimes.com/video/dining/100000010854238/black-sesame-rice-krispies-treats.html
 

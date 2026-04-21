@@ -1,3 +1,11 @@
+**A Party That Channeled Jaipur in Milan**\
+`This year at T’s annual celebration of Salone del Mobile, Milan’s Villa Necchi Campiglio was transformed with nods to India.`\
+https://www.nytimes.com/2026/04/21/t-magazine/salone-del-mobile-t-magazine-party.html
+
+**Was Tim Cook Stylish?**\
+`The unassuming look of the outgoing Apple chief executive was an asset, as he navigated pop culture, the president and following Steve Jobs.`\
+https://www.nytimes.com/2026/04/21/style/tim-cook-apple-ceo-fashion.html
+
 **D.H.S. Will Run Out of Money for Paychecks in May, Secretary Says**\
 `The issue threatens to renew chaos at airports as lawmakers remain divided over a deal to end the two-month shutdown of the Department of Homeland Security.`\
 https://www.nytimes.com/2026/04/21/us/politics/homeland-security-tsa-paychecks-mullin.html
