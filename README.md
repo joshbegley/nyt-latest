@@ -1,3 +1,15 @@
+**Labor Secretary’s Departure Gives Trump an Opening to Focus on His Agenda**\
+`President Trump accepted Labor Secretary Lori Chavez-DeRemer’s resignation ahead of an internal investigation into her conduct at the department.`\
+https://www.nytimes.com/2026/04/21/business/economy/labor-secretary-trump.html
+
+**‘What Happened Was …’ Review: Alone in New York, Together at Dinner**\
+`Cecily Strong and Corey Stoll star in this two-hander about connecting over a meal that becomes much deeper than two colleagues socializing out-of-office.`\
+https://www.nytimes.com/2026/04/21/theater/what-happened-was-review.html
+
+**El tirador en Teotihuacán llevaba notas relacionadas con tiroteos masivos de EE. UU.**\
+`El hombre que mató a una turista en una pirámide en México e hirió a varios más llevaba material relacionado con un atentado en 1999, una posible referencia a la masacre de Columbine.`\
+https://www.nytimes.com/es/2026/04/21/espanol/america-latina/teotihuacan-tirador-agresor-quien-es.html
+
 **Nigeria Charges Six With Treason Over Coup Plot**\
 `The group is accused of a failed coup attempt in October.`\
 https://www.nytimes.com/2026/04/21/world/africa/nigeria-coup-plot-treason-charges.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/21/us/politics/rfk-jr-vaccines-erica-schwartz.ht
 **Teotihuacán Gunman Carried Notes Related to Past U.S. Mass Shootings**\
 `The man who killed one tourist at a Mexican pyramid and wounded several others had materials in his backpack tied to a 1999 U.S. attack, a possible reference to the Columbine High School massacre.`\
 https://www.nytimes.com/2026/04/21/world/americas/mexico-shooting-tourists-teotihuacan-pyramids.html
-
-**Florida Democrat Resigns From Congress Just as Panel Weighs Expelling Her**\
-`Sheila Cherfilus-McCormick stands accused of stealing $5 million in federal funds. She announced she would step down minutes before the House Ethics Committee was to vote on a recommendation to expel her.`\
-https://www.nytimes.com/2026/04/21/us/cherfilus-mccormick-florida.html
-
-**U.S. Turns Up Pressure on Iraq to Distance Itself From Iran**\
-`Washington is demanding that the Baghdad government dismantle Iran-backed Iraqi militias that have been attacking Americans and U.S. sites there recently.`\
-https://www.nytimes.com/2026/04/21/world/middleeast/us-iraq-security-cooperation.html
-
-**Violence Shaped Charlize Theron. It Doesn’t Define Her.**\
-`Charlize Theron sits down with “The Interview” co-host, Lulu Garcia-Navarro, to talk about how she overcame her dark family past.`\
-https://www.nytimes.com/video/podcasts/100000010851962/violence-shaped-charlize-theron-it-doesnt-define-her.html
 
