@@ -1,3 +1,11 @@
+**Today, In Short**\
+`Heelys. A fast robot. And a new C.E.O. at Apple.`\
+https://www.nytimes.com/2026/04/21/briefing/today-in-short.html
+
+**Civil Rights Group Says It Is Under Investigation by Justice Dept.**\
+`The Southern Poverty Law Center, which is best known for investigating hate groups, has been accused by Republicans of unfairly targeting conservative and Christian organizations.`\
+https://www.nytimes.com/2026/04/21/us/politics/southern-poverty-law-center-doj-investigation.html
+
 **Kennedy Says the Carnivore Diet Can Eliminate Dangerous Body Fat**\
 `He claimed in a video on social media that the diet could quickly eradicate visceral fat, which accumulates around the organs. Is that true?`\
 https://www.nytimes.com/2026/04/21/well/eat/carnivore-diet-visceral-fat-kennedy.html
@@ -7,7 +15,7 @@ https://www.nytimes.com/2026/04/21/well/eat/carnivore-diet-visceral-fat-kennedy.
 https://www.nytimes.com/2026/04/21/dining/these-are-the-very-best-scrambled-eggs.html
 
 **Silicon Valley Needs to Notice That Molotov Cocktail**\
-`Aaron Zamost argues that the attack against Sam Altman reflects how badly Silicon Valley needs to address the societal consequences of its products.`\
+`The attack against Sam Altman reflects how badly Silicon Valley needs to address the societal consequences of its products.`\
 https://www.nytimes.com/2026/04/21/opinion/sam-altman-attack-ai-silicon-valley.html
 
 **Open or Shut, the Strait of Hormuz May Not Go Back to Normal**\
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/21/style/the-devil-wears-prada-2-premiere.html
 **Airy Clothes in a Beachy Palette**\
 `A couple stood out in Upper Manhattan for wearing billowy attire the colors of water and sand.`\
 https://www.nytimes.com/2026/04/21/style/street-style-look-airy-beachy-clothes.html
-
-**A Turkish Love Story, With Prison, Poetry and an Airplane Exploit**\
-`After a forced confession and a death sentence, a Kurdish poet spent 30 years in jail, where he discovered his voice. His literary champion, to everyone’s surprise, became his life partner.`\
-https://www.nytimes.com/2026/04/21/world/europe/turkey-kurdish-poet-comak.html
-
-**2 Cruise Ships Exit Strait of Hormuz After Being Stranded for Weeks**\
-`The ships carried skeleton crews and no passengers, the cruise company said.`\
-https://www.nytimes.com/2026/04/21/world/middleeast/cruise-ships-strait-hormuz-iran.html
 

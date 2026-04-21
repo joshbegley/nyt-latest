@@ -1,3 +1,15 @@
+**Kennedy Says the Carnivore Diet Can Eliminate Dangerous Body Fat**\
+`He claimed in a video on social media that the diet could quickly eradicate visceral fat, which accumulates around the organs. Is that true?`\
+https://www.nytimes.com/2026/04/21/well/eat/carnivore-diet-visceral-fat-kennedy.html
+
+**These Are the Very Best Scrambled Eggs**\
+`Kenji López-Alt’s extra-creamy scrambled eggs are the perfect dinner for busy, scrambled weeknights.`\
+https://www.nytimes.com/2026/04/21/dining/these-are-the-very-best-scrambled-eggs.html
+
+**Silicon Valley Needs to Notice That Molotov Cocktail**\
+`Aaron Zamost argues that the attack against Sam Altman reflects how badly Silicon Valley needs to address the societal consequences of its products.`\
+https://www.nytimes.com/2026/04/21/opinion/sam-altman-attack-ai-silicon-valley.html
+
 **Open or Shut, the Strait of Hormuz May Not Go Back to Normal**\
 `The energy industry is planning for a future where the choke point on Iran’s southern coast is a lot less important.`\
 https://www.nytimes.com/2026/04/21/business/energy-environment/strait-hormuz-oil-natural-gas.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/21/world/europe/turkey-kurdish-poet-comak.html
 **2 Cruise Ships Exit Strait of Hormuz After Being Stranded for Weeks**\
 `The ships carried skeleton crews and no passengers, the cruise company said.`\
 https://www.nytimes.com/2026/04/21/world/middleeast/cruise-ships-strait-hormuz-iran.html
-
-**Read the Wisconsin Criminal Complaint**\
-`A scientist at the University of Wisconsin tampered with his coworker’s water bottle using chemicals, the authorities in Dane County, Wis., said. Read the criminal complaint.`\
-https://www.nytimes.com/interactive/2026/04/21/us/university-wisconsin-poison-coworkers-complaint.html
-
-**What to Expect in Apple’s New Era**\
-`Tim Cook’s replacement as chief executive, John Ternus, knows hardware engineering. Can he be a product visionary and a global diplomat?`\
-https://www.nytimes.com/2026/04/21/business/dealbook/apple-succession-cook-ternus.html
-
-**Kash Patel, director del FBI, demanda por un artículo que asegura que bebe alcohol en exceso**\
-`Patel acusó a The Atlantic de difamación y pidió 250 millones de dólares por daños y perjuicios. Una portavoz de la publicación calificó la demanda de “infundada”.`\
-https://www.nytimes.com/es/2026/04/21/espanol/estados-unidos/kash-patel-fbi-bebida-the-atlantic.html
 

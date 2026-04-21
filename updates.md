@@ -1,3 +1,15 @@
+**Kennedy Says the Carnivore Diet Can Eliminate Dangerous Body Fat**\
+`He claimed in a video on social media that the diet could quickly eradicate visceral fat, which accumulates around the organs. Is that true?`\
+https://www.nytimes.com/2026/04/21/well/eat/carnivore-diet-visceral-fat-kennedy.html
+
+**These Are the Very Best Scrambled Eggs**\
+`Kenji López-Alt’s extra-creamy scrambled eggs are the perfect dinner for busy, scrambled weeknights.`\
+https://www.nytimes.com/2026/04/21/dining/these-are-the-very-best-scrambled-eggs.html
+
+**Silicon Valley Needs to Notice That Molotov Cocktail**\
+`Aaron Zamost argues that the attack against Sam Altman reflects how badly Silicon Valley needs to address the societal consequences of its products.`\
+https://www.nytimes.com/2026/04/21/opinion/sam-altman-attack-ai-silicon-valley.html
+
 **Open or Shut, the Strait of Hormuz May Not Go Back to Normal**\
 `The energy industry is planning for a future where the choke point on Iran’s southern coast is a lot less important.`\
 https://www.nytimes.com/2026/04/21/business/energy-environment/strait-hormuz-oil-natural-gas.html
