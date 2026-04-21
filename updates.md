@@ -1,3 +1,19 @@
+**Judge Bars Imminent Removal of D.C. Bike Lanes**\
+`A federal judge found the National Park Service had improperly rushed plans to strip out bike lanes connecting downtown Washington to the Tidal Basin.`\
+https://www.nytimes.com/2026/04/21/us/politics/judge-dc-bike-lanes.html
+
+**N.Y.P.D. Narcotics Unit Under Review After a Beating Is Caught on Tape**\
+`The police also disbanded a team within the unit after two of its detectives were seen on tape beating a man in Brooklyn last week.`\
+https://www.nytimes.com/2026/04/21/nyregion/nypd-beating-video.html
+
+**Why Negotiations With Iran Might Take a While**\
+`The Iranians are notoriously slow negotiators. Our reporter David E. Sanger explains what the history of U.S.-Iran negotiations could mean for the latest round of talks.`\
+https://www.nytimes.com/video/world/middleeast/100000010853017/why-negotiations-with-iran-might-take-a-while.html
+
+**U.S. Abruptly Rescinds Subpoenas It Had Just Issued in John Brennan Inquiry**\
+`The reversal came after the Justice Department replaced a career prosecutor with a loyalist to President Trump in the administration’s effort to charge the former C.I.A. chief with a crime.`\
+https://www.nytimes.com/2026/04/21/us/politics/justice-dept-john-brennan-subpoenas.html
+
 **U.S. Abruptly Rescinds Subpoenas It Had Just Issued in John Brennan Inquiry**\
 `The vacillation came after the Justice Department replaced a career prosecutor with a loyalist to President Trump in the administration’s effort to charge the former C.I.A. chief with a crime.`\
 https://www.nytimes.com/2026/04/21/us/politics/justice-dept-john-brennan-subpoenas.html
