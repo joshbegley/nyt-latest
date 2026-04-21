@@ -1,3 +1,7 @@
+**7 New Songs You Should Hear Now**\
+`Nine Inch Nails’ LP with Boys Noize, Raye’s collaboration with Al Green, the latest from a Black Midi member and more.`\
+https://www.nytimes.com/2026/04/21/arts/music/amplifier-newsletter-new-songs-nine-inch-noize.html
+
 **Two Palestinians Killed in Israeli Shooting Near West Bank School**\
 `A child was among the dead, according to the Palestinian health ministry. The Israeli military said it had attempted to break up clashes in Al Mughayir, which has seen a surge of Israeli settler violence.`\
 https://www.nytimes.com/2026/04/21/world/middleeast/palestinians-killed-israeli-shooting-west-bank-school.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/21/opinion/democrats-elections.html
 **Smithsonian American Art Museum Names a New Director**\
 `Lynda Roscoe Hartigan is returning to the museum as its leader after previously serving as its chief curator.`\
 https://www.nytimes.com/2026/04/21/arts/design/smithsonian-director-lynda-roscoe-hartigan.html
-
-**‘My Brother the Minotaur’ Is a Visually Stunning Animated Series**\
-`The Apple TV series leans into the natural splendor of its wild, rustic setting, with a painterliness that recalls Celtic and medieval traditions.`\
-https://www.nytimes.com/2026/04/21/arts/television/my-brother-the-minotaur-apple-tv.html
 
