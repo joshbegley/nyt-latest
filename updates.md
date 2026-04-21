@@ -1,3 +1,11 @@
+**Quote of the Day: Nepalis Ask if a Revolution Can Deliver on Hope**\
+`Quotation of the Day for Tuesday, April 21, 2026.`\
+https://www.nytimes.com/2026/04/20/pageoneplus/quote-of-the-day-nepalis-ask-if-a-revolution-can-deliver-on-hope.html
+
+**What It Takes to Dress the ‘Devil’**\
+`The press tour for “The Devil Wears Prada 2” has been a fashion show for its stars and their stylists, who have relied on group chats, sweatpants and camaraderie to pull it off.`\
+https://www.nytimes.com/2026/04/20/style/the-devil-wears-prada-2-press-tour-fashion.html
+
 **How an Art Event in the California Desert Became a Community**\
 `As High Desert Test Sites looks toward its 25th anniversary, its founder, and various participants, look back.`\
 https://www.nytimes.com/2026/04/20/arts/design/joshua-tree-art-high-desert-test-sites.html
