@@ -1,3 +1,11 @@
+**EE. UU. busca un acuerdo rápido, pero Irán se resiste**\
+`En el segundo intento de acuerdo entre Estados Unidos e Irán, los estilos de negociación de ambos países están destinados a chocar frontalmente.`\
+https://www.nytimes.com/es/2026/04/21/espanol/estados-unidos/iran-negociaciones-trump.html
+
+**The Redistricting War Has Come to Virginia**\
+`Voters in Virginia are deciding whether to adopt a new gerrymandered congressional map that benefits Democrats. Nick Corasaniti, a politics reporter, explains the role Virginia’s new map is playing in the nationwide redistricting battle and its potential implications for the midterm elections.`\
+https://www.nytimes.com/video/us/elections/100000010843881/the-redistricting-war-has-come-to-virginia.html
+
 **U.S. Considers Financial Support for Oil-Rich U.A.E.**\
 `President Trump acknowledged that the Gulf state has incurred significant damage during the war with Iran.`\
 https://www.nytimes.com/2026/04/21/business/economy/us-uae-financial-support.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/21/world/middleeast/iran-oil-tanker-mt-tifani-us
 **A criminal inquiry into the Fed looms large over the Warsh hearing.**\
 ``\
 https://www.nytimes.com/live/2026/04/21/business/kevin-warsh-fed-chair-hearing/criminal-inquiry-into-fed-looms-large-over-warsh-hearing
-
-**Europe Wanted a Say on the Iran War, but It’s Still on the Sidelines**\
-`A British-French plan to secure the Strait of Hormuz would give the continent a role. But Tehran and Washington are still calling the shots.`\
-https://www.nytimes.com/2026/04/21/world/middleeast/iran-war-europe-macron-france.html
-
-**Trump Dismisses a Merger While Seeking Suitors for Spirit Airlines**\
-`As he rejected the idea of a merger of United Airlines and American Airlines, President Trump said someone, including possibly the federal government, should buy or help Spirit.`\
-https://www.nytimes.com/2026/04/21/business/trump-spirit-airlines-united-american.html
 

@@ -1,3 +1,7 @@
+**U.S. Considers Financial Support for Oil-Rich U.A.E.**\
+`President Trump acknowledged that the Gulf state has incurred significant damage during the war with Iran.`\
+https://www.nytimes.com/2026/04/21/business/economy/us-uae-financial-support.html
+
 **Armani Goes Back to the Archive**\
 `A new collection dusts off decades-old creations, plus a dispatch from a Brunello Cucinelli movie premiere and the Political Tie Tracker.`\
 https://www.nytimes.com/2026/04/21/style/armani-archivio.html
