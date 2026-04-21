@@ -1,3 +1,7 @@
+**E.P.A. and Maryland Sue D.C. Utility Over Potomac River Sewage Spill**\
+`In separate lawsuits, environmental regulators said D.C. Water failed to prevent and contain a massive spill of raw sewage upstream of Washington.`\
+https://www.nytimes.com/2026/04/21/climate/potomac-river-sewage-spill-lawsuit.html
+
 **EE. UU. busca un acuerdo rápido, pero Irán se resiste**\
 `En el segundo intento de acuerdo entre Estados Unidos e Irán, los estilos de negociación de ambos países están destinados a chocar frontalmente.`\
 https://www.nytimes.com/es/2026/04/21/espanol/estados-unidos/iran-negociaciones-trump.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/21/business/energy-environment/strait-hormuz-oil
 **U.S. Military Stops Tanker Carrying Iranian Oil, Pentagon Says**\
 `The seizure was the latest U.S. effort to squeeze Iran’s oil-reliant economy, and came days after the Navy boarded an Iranian cargo ship near the Strait of Hormuz.`\
 https://www.nytimes.com/2026/04/21/world/middleeast/iran-oil-tanker-mt-tifani-us-indian-ocean.html
-
-**A criminal inquiry into the Fed looms large over the Warsh hearing.**\
-``\
-https://www.nytimes.com/live/2026/04/21/business/kevin-warsh-fed-chair-hearing/criminal-inquiry-into-fed-looms-large-over-warsh-hearing
 
