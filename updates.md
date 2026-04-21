@@ -1,3 +1,7 @@
+**A criminal inquiry into the Fed looms large over the Warsh hearing.**\
+``\
+https://www.nytimes.com/live/2026/04/21/business/kevin-warsh-fed-chair-hearing/criminal-inquiry-into-fed-looms-large-over-warsh-hearing
+
 **U.S. Military Stops Tanker Carrying Iranian Oil, Pentagon Says**\
 `The seizure was the latest U.S. effort to squeeze Iran’s oil-reliant economy, and came days after the Navy boarded an Iranian cargo ship near the Strait of Hormuz.`\
 https://www.nytimes.com/2026/04/21/world/middleeast/iran-oil-tanker-mt-tifani-us-indian-ocean.html
