@@ -1,3 +1,7 @@
+**Crossing the Divide**\
+``\
+https://www.nytimes.com/2026/04/21/world/europe/crossing-the-divide.html
+
 **Aftershocks from ‘The Shadow Papers’**\
 `Publication of a trove of confidential Supreme Court memos ignited debates in the legal academy.`\
 https://www.nytimes.com/2026/04/21/us/politics/the-docket-aftershocks-shadow-papers.html
@@ -6,13 +10,13 @@ https://www.nytimes.com/2026/04/21/us/politics/the-docket-aftershocks-shadow-pap
 `“A.I. gives us places to go we haven’t gone,” said one bank’s chief executive.`\
 https://www.nytimes.com/2026/04/21/business/ai-job-cuts-wall-street.html
 
-**Florida Inquiry Into ChatGPT Shifts to Criminal Investigation**\
-`The investigation focuses on messages between the chatbot and the man accused of killing two people at Florida State University last year.`\
-https://www.nytimes.com/2026/04/21/us/florida-criminal-investigation-openai-chatgpt-fsu-shooting.html
-
 **A Composer Who Loops Musical Time and History**\
 `Gregory Spears is bringing his uncanny sense of genre and eras of music to the “Sleeping Beauty” story with his new opera, “Sleepers Awake.”`\
 https://www.nytimes.com/2026/04/21/arts/music/gregory-spears-sleepers-awake.html
+
+**Florida Inquiry Into ChatGPT Shifts to Criminal Investigation**\
+`The investigation focuses on messages between the chatbot and the man accused of killing two people at Florida State University last year.`\
+https://www.nytimes.com/2026/04/21/us/florida-criminal-investigation-openai-chatgpt-fsu-shooting.html
 
 **Today, In Short**\
 `Heelys. A fast robot. And a new C.E.O. at Apple.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/21/science/march-fireballs-meteors-astronomy.htm
 **F.A.A. Investigates Close Call Between Southwest Planes in Nashville**\
 `An aborted landing at Nashville International Airport on Saturday put one of the planes on a potential collision course with another plane taking off.`\
 https://www.nytimes.com/2026/04/21/us/southwest-planes-nashville-near-collision.html
-
-**‘Donnyland’? Ukraine Proposes Renaming Part of the Donbas in Trump’s Honor**\
-`The proposal reflects a global reality in which governments appeal to President Trump’s vanity in order to get American might on their side.`\
-https://www.nytimes.com/2026/04/21/world/europe/donnyland-ukraine-donbas-trump.html
 

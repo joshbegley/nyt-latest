@@ -1,3 +1,11 @@
+**Aftershocks from ‘The Shadow Papers’**\
+`Publication of a trove of confidential Supreme Court memos ignited debates in the legal academy.`\
+https://www.nytimes.com/2026/04/21/us/politics/the-docket-aftershocks-shadow-papers.html
+
+**Job Cuts Driven by A.I. Are Rising on Wall Street**\
+`“A.I. gives us places to go we haven’t gone,” said one bank’s chief executive.`\
+https://www.nytimes.com/2026/04/21/business/ai-job-cuts-wall-street.html
+
 **Florida Inquiry Into ChatGPT Shifts to Criminal Investigation**\
 `The investigation focuses on messages between the chatbot and the man accused of killing two people at Florida State University last year.`\
 https://www.nytimes.com/2026/04/21/us/florida-criminal-investigation-openai-chatgpt-fsu-shooting.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/21/us/southwest-planes-nashville-near-collision.
 **‘Donnyland’? Ukraine Proposes Renaming Part of the Donbas in Trump’s Honor**\
 `The proposal reflects a global reality in which governments appeal to President Trump’s vanity in order to get American might on their side.`\
 https://www.nytimes.com/2026/04/21/world/europe/donnyland-ukraine-donbas-trump.html
-
-**2 Americans Killed in Mexico Crash Were C.I.A. Officers**\
-`The two Americans were killed on Sunday when their vehicle crashed while returning from an operation led by Mexico’s armed forces to dismantle drug labs in Chihuahua state.`\
-https://www.nytimes.com/2026/04/21/world/americas/americans-cia-mexico-crash.html
-
-**Madonna Says Her Vintage Outfit Is Missing After Coachella Performance**\
-`The pop star said she was “hoping and praying” for someone to find the ensemble, from her personal collection, after her surprise performance at the music festival.`\
-https://www.nytimes.com/2026/04/21/arts/music/madonna-coachella-outfits-missing-reward.html
 

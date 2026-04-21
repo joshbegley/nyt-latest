@@ -1,3 +1,11 @@
+**Aftershocks from ‘The Shadow Papers’**\
+`Publication of a trove of confidential Supreme Court memos ignited debates in the legal academy.`\
+https://www.nytimes.com/2026/04/21/us/politics/the-docket-aftershocks-shadow-papers.html
+
+**Job Cuts Driven by A.I. Are Rising on Wall Street**\
+`“A.I. gives us places to go we haven’t gone,” said one bank’s chief executive.`\
+https://www.nytimes.com/2026/04/21/business/ai-job-cuts-wall-street.html
+
 **Florida Inquiry Into ChatGPT Shifts to Criminal Investigation**\
 `The investigation focuses on messages between the chatbot and the man accused of killing two people at Florida State University last year.`\
 https://www.nytimes.com/2026/04/21/us/florida-criminal-investigation-openai-chatgpt-fsu-shooting.html
