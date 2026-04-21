@@ -1,3 +1,11 @@
+**Airy Clothes in a Beachy Palette**\
+`A couple stood out in Upper Manhattan for wearing billowy attire the colors of water and sand.`\
+https://www.nytimes.com/2026/04/21/style/street-style-look-airy-beachy-clothes.html
+
+**A Turkish Love Story, With Prison, Poetry and an Airplane Exploit**\
+`After a forced confession and a death sentence, a Kurdish poet spent 30 years in jail, where he discovered his voice. His literary champion, to everyone’s surprise, became his life partner.`\
+https://www.nytimes.com/2026/04/21/world/europe/turkey-kurdish-poet-comak.html
+
 **2 Cruise Ships Exit Strait of Hormuz After Being Stranded for Weeks**\
 `The ships carried skeleton crews and no passengers, the cruise company said.`\
 https://www.nytimes.com/2026/04/21/world/middleeast/cruise-ships-strait-hormuz-iran.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/21/business/how-apple-became-a-4-trillion-compan
 **A Wish List for the Man Replacing Tim Cook as Apple’s C.E.O.**\
 `John Ternus, an Apple veteran who runs hardware engineering, will take over an extraordinarily profitable company in need of new ideas.`\
 https://www.nytimes.com/2026/04/21/technology/apple-cook-ternus-wish-list.html
-
-**How Both Parties Are Slicing Urban Areas to Tilt the House**\
-`American cities — densely populated and overwhelmingly Democratic — have been powerful tools in helping Republicans and Democrats propose aggressive gerrymanders.`\
-https://www.nytimes.com/interactive/2026/04/21/us/politics/congress-redistricting-virginia-missouri-texas.html
-
-**There Is a Contest Trump Is Winning**\
-`“Trump is among the most consequential presidents in U.S. history, and not in a good way.”`\
-https://www.nytimes.com/2026/04/21/opinion/trump-legacy-history-presidents.html
 
