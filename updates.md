@@ -1,3 +1,7 @@
+**Pakistan Prepares Again for U.S.-Iran Peace Talks**\
+`Islamabad, the capital of Pakistan, geared up to host a possible second round of talks between the U.S. and Iran. Some Pakistanis expressed frustration about the heavy security while others said it’s an opportunity for the nation.`\
+https://www.nytimes.com/video/world/middleeast/100000010853359/pakistan-iran-war-us-peace-talks.html
+
 **En ‘The Pitt’, los traumas físicos y emocionales llegan a la sala de urgencias**\
 `Además de la carga diaria que supone tratar a los pacientes, los médicos de la serie llevan sus propias cicatrices a la sala de urgencias.`\
 https://www.nytimes.com/es/2026/04/21/espanol/estilos-de-vida/the-pitt-final-segunda-temporada.html
