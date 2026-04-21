@@ -1,3 +1,39 @@
+**Black Sesame Rice Krispies Treats**\
+`The combination of butter-fried black sesame seeds and toasted sesame oil creates an aromatic whammy of nutty sesame flavor in otherwise classic Rice Krispies treats.`\
+https://www.nytimes.com/video/dining/100000010854238/black-sesame-rice-krispies-treats.html
+
+**Chocolate Crunch Cake**\
+`This rich, chocolate confection, with its fudgy Nutella sauce and crunchy chocolate topping, is one with countless renditions across social media platforms and bakeries alike. Get the recipe for this version by Kayla Hoang, a New York Times Cooking contributor, in the link below.`\
+https://www.nytimes.com/video/dining/100000010854229/chocolate-crunch-cake.html
+
+**Turtle Bars**\
+`This bake-sale classic features a sandy soft crust, a layer of caramel and pecans, and a final chocolate topping.`\
+https://www.nytimes.com/video/dining/100000010854282/turtle-bars.html
+
+**tk**\
+`tk`\
+https://static01.nyt.com/slideshow/2026/04/21/t-magazine/tk.html
+
+**Silken Tofu-Miso Dressing**\
+`At the restaurant RVR (pronounced “river”), the chefs Travis Lett and Ian Robinson toss this silken tofu-miso dressing with winter chicories from the local farmers’ market.`\
+https://www.nytimes.com/video/dining/100000010854248/silken-tofu-miso-dressing.html
+
+**Guava and Cream Cheese Danish Cookie**\
+`This guava and cream cheese danish cookie recipe from Jerrelle Guy, a New York Times Cooking contributor, fulfills all the wildest dessert desires. It’s sort of a cookie, but also a cake and Danish all in one.`\
+https://www.nytimes.com/video/dining/100000010854233/guava-and-cream-cheese-danish-cookie.html
+
+**Cheesy Chile Crisp White Beans**\
+`Cheesy bean bakes, a molten staple of pantry cooking, get a fiery glow-up in this easy weeknight recipe from Melissa Clark, a food reporter for The New York Times.`\
+https://www.nytimes.com/video/dining/100000010854219/cheesy-chile-crisp-white-beans.html
+
+**Spaghetti With Garlicky Bread Crumbs and Anchovies**\
+`This is a take on a classic dish from southern Italy that tosses pasta with toasted, seasoned bread crumbs called pangrattatto.`\
+https://www.nytimes.com/video/dining/100000010854267/spaghetti-with-garlicky-bread-crumbs-and-anchovies.html
+
+**‘Michael’ Review: A Jackson Biopic Leaves Too Much Unsaid**\
+`A biographical film produced by the estate of Michael Jackson flattens its subject to scrub his reputation.`\
+https://www.nytimes.com/2026/04/21/movies/michael-review.html
+
 **Trump Is Said to Be in Talks to Send Afghans Who Aided U.S. Forces to Congo**\
 `A U.S. aid worker said that the Afghans, who were evacuated to Qatar, would face a choice between moving to the Democratic Republic of Congo and living under the Taliban.`\
 https://www.nytimes.com/2026/04/21/world/europe/afghan-refugees-congo-us.html
@@ -26,8 +62,8 @@ https://www.nytimes.com/2026/04/21/us/politics/rfk-jr-vaccines-erica-schwartz.ht
 `The man who killed one tourist at a Mexican pyramid and wounded several others had materials in his backpack tied to a 1999 U.S. attack, a possible reference to the Columbine High School massacre.`\
 https://www.nytimes.com/2026/04/21/world/americas/mexico-shooting-tourists-teotihuacan-pyramids.html
 
-**Florida Democrat Resigns From Congress 20 Minutes Before Expulsion Vote**\
-`Sheila Cherfilus-McCormick, a Florida Democrat, had been charged with stealing $5 million in federal funds. The House Ethics Committee was to take up her case Tuesday.`\
+**Florida Democrat Resigns From Congress Just as Panel Weighs Expelling Her**\
+`Sheila Cherfilus-McCormick stands accused of stealing $5 million in federal funds. She announced she would step down minutes before the House Ethics Committee was to vote on a recommendation to expel her.`\
 https://www.nytimes.com/2026/04/21/us/cherfilus-mccormick-florida.html
 
 **U.S. Turns Up Pressure on Iraq to Distance Itself From Iran**\
@@ -41,40 +77,4 @@ https://www.nytimes.com/video/podcasts/100000010851962/violence-shaped-charlize-
 **7 New Songs You Should Hear Now**\
 `Nine Inch Nails’ LP with Boys Noize, Raye’s collaboration with Al Green, the latest from a Black Midi member and more.`\
 https://www.nytimes.com/2026/04/21/arts/music/amplifier-newsletter-new-songs-nine-inch-noize.html
-
-**Two Palestinians Killed in Israeli Shooting Near West Bank School**\
-`A child was among the dead, according to the Palestinian health ministry. The Israeli military said it had attempted to break up clashes in Al Mughayir, which has seen a surge of Israeli settler violence.`\
-https://www.nytimes.com/2026/04/21/world/middleeast/palestinians-killed-israeli-shooting-west-bank-school.html
-
-**Trust Trump? Iran’s Doubts Shadow Peace Talks.**\
-`Iranian leaders fear being burned again by President Trump, who tore up a nuclear agreement reached during the Obama administration after lengthy negotiations.`\
-https://www.nytimes.com/2026/04/21/us/politics/trust-trump-iran.html
-
-**Israeli Soldiers Sentenced to Jail for Damaging Jesus Statue in Lebanon**\
-`A statue of the crucifixion of Christ has been replaced after one soldier photographed another swinging what looked like a sledgehammer at its head.`\
-https://www.nytimes.com/2026/04/21/world/middleeast/israel-soldiers-statue-lebanon-replaced.html
-
-**Ohio State Details Relationship That Led to President’s Resignation**\
-`The university released a report that said the president, Walter Carter Jr., took trips with a podcaster and suggested that the university hire her.`\
-https://www.nytimes.com/2026/04/21/us/ohio-state-walter-carter-relationship-president-resignation.html
-
-**Senate Republicans Release Budget Measure to Fund ICE Through 2029**\
-`The resolution would pave the way for Republicans to push through a $70 billion infusion to pay for immigration enforcement for the remainder of President Trump’s tenure.`\
-https://www.nytimes.com/2026/04/21/us/politics/senate-republicans-budget-ice.html
-
-**Could the Next Football Hall of Famer Be … Teddy Roosevelt?**\
-`A cabinet secretary made the case for the hero of San Juan Hill to be inducted into the Pro Football Hall of Fame. Here’s why.`\
-https://www.nytimes.com/2026/04/21/us/teddy-roosevelt-football-hall-of-fame.html
-
-**Rainforests Can Bounce Back Much Faster Than Thought, Researchers Say**\
-`Scientists long believed it would take more than a century for animals to return to deforested land. New research shows that’s not always the case.`\
-https://www.nytimes.com/2026/04/21/climate/rainforests-deforestation-fast-recovery.html
-
-**Vance’s Trip to Islamabad on Hold as U.S. Says Iran Failed to Respond to Its Terms**\
-`The delay is another hurdle in the Trump administration’s push to secure an agreement that would curb Iran’s nuclear program.`\
-https://www.nytimes.com/2026/04/21/us/politics/vance-islamabad-iran-peace-talks.html
-
-**Pentagon to Stop Requiring Members of Military to Get Flu Vaccines**\
-`Defense Secretary Pete Hegseth called the mandate “overreaching” in announcing the policy change. The vaccine will remain available to service members who want to be inoculated.`\
-https://www.nytimes.com/2026/04/21/us/politics/pentagon-to-stop-requiring-members-of-military-get-flu-vaccines.html
 
