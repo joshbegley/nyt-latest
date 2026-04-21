@@ -1,3 +1,7 @@
+**Pain at the Pump**\
+`We look at the changes in gas prices.`\
+https://www.nytimes.com/2026/04/21/briefing/pain-at-the-pump.html
+
 **La mejor arma de Irán no es nuclear**\
 `Cortar la circulación del estrecho de Ormuz resultó ser un arma poderosa. Para Irán, podría ser una nueva forma de mantener control sobre sus adversarios.`\
 https://www.nytimes.com/es/2026/04/21/espanol/mundo/iran-estrecho-ormuz.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/21/business/kevin-warsh-federal-reserve-confirma
 **Want to Speak to the Manager? At a New San Francisco Store, That’s A.I.**\
 `Andon Market in San Francisco is billed as the first retail boutique run by an artificial intelligence agent. So far, the inventory seems random, and there are too many candles.`\
 https://www.nytimes.com/2026/04/21/us/san-francisco-store-managed-ai-agent.html
-
-**Harvey Weinstein’s Third Trial on Rape Charge Opens in Manhattan**\
-`Harvey Weinstein is accused of raping an actress in a Manhattan hotel more than a decade ago. After an overturned conviction and a hung jury, he will face the charge once again.`\
-https://www.nytimes.com/2026/04/21/nyregion/weinstein-jessica-mann-trial.html
 

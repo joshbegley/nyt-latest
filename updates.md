@@ -1,3 +1,7 @@
+**Pain at the Pump**\
+`We look at the changes in gas prices.`\
+https://www.nytimes.com/2026/04/21/briefing/pain-at-the-pump.html
+
 **La mejor arma de Irán no es nuclear**\
 `Cortar la circulación del estrecho de Ormuz resultó ser un arma poderosa. Para Irán, podría ser una nueva forma de mantener control sobre sus adversarios.`\
 https://www.nytimes.com/es/2026/04/21/espanol/mundo/iran-estrecho-ormuz.html
