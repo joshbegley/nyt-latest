@@ -1,3 +1,11 @@
+**How an Art Event in the California Desert Became a Community**\
+`As High Desert Test Sites looks toward its 25th anniversary, its founder, and various participants, look back.`\
+https://www.nytimes.com/2026/04/20/arts/design/joshua-tree-art-high-desert-test-sites.html
+
+**An Artist Asks: Without Darkness, Who Are We?**\
+`After gathering ideas from entomologists, neurobiologists and others, Jan Tichy created an exhibition responding to the effects of our disappearing nights.`\
+https://www.nytimes.com/2026/04/20/arts/design/msu-broad-museum-darkness-jan-tichy.html
+
 **‘Oh, My Baby’: Mother Mourns Son, 15, Whose Killing Was Filmed on Video**\
 `Jaden Pierre was fatally shot at a Queens park in broad daylight, and bystanders captured the shooting on video. Hundreds attended a vigil for him on Monday night.`\
 https://www.nytimes.com/2026/04/20/nyregion/queens-teen-shooting.html

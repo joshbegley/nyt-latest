@@ -1,3 +1,11 @@
+**How an Art Event in the California Desert Became a Community**\
+`As High Desert Test Sites looks toward its 25th anniversary, its founder, and various participants, look back.`\
+https://www.nytimes.com/2026/04/20/arts/design/joshua-tree-art-high-desert-test-sites.html
+
+**An Artist Asks: Without Darkness, Who Are We?**\
+`After gathering ideas from entomologists, neurobiologists and others, Jan Tichy created an exhibition responding to the effects of our disappearing nights.`\
+https://www.nytimes.com/2026/04/20/arts/design/msu-broad-museum-darkness-jan-tichy.html
+
 **‘Oh, My Baby’: Mother Mourns Son, 15, Whose Killing Was Filmed on Video**\
 `Jaden Pierre was fatally shot at a Queens park in broad daylight, and bystanders captured the shooting on video. Hundreds attended a vigil for him on Monday night.`\
 https://www.nytimes.com/2026/04/20/nyregion/queens-teen-shooting.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/20/us/mother-six-children-explosion-pennsylvania
 **Four Cabinet and other senior officials have now stepped down from Trump’s Cabinet.**\
 ``\
 https://www.nytimes.com/live/2026/04/20/us/trump-news/four-cabinet-and-other-senior-officials-have-now-stepped-down-from-trumps-cabinet
-
-**Trump Is Losing His Cheerleaders**\
-`The columnist Michelle Goldberg normally doesn’t see much hope in the Trump era, but on “The Opinions,” she says the cracks in MAGA’s media machine are real — and explains what they could mean for Trump’s future.`\
-https://www.nytimes.com/video/opinion/100000010844781/trump-is-losing-his-cheerleaders.html
-
-**A Rocky (and Muddy) Ski Season Concludes in Colorado**\
-`Faced with a devastating snow drought and record-high March temperatures, some resorts closed early. But at Aspen Mountain, die-hards celebrated the last day of the season on Sunday.`\
-https://www.nytimes.com/2026/04/20/us/aspen-mountain-closing-day.html
 
