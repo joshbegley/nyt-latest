@@ -1,3 +1,11 @@
+**Virginia Redistricting Referendum Results**\
+`Get live results and maps from the 2026 Virginia redistricting referendum.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-virginia-redistricting.html
+
+**E.P.A. and Maryland Sue D.C. Utility Over Potomac River Sewage Spill**\
+`In separate lawsuits, environmental regulators said D.C. Water failed to prevent and contain a massive spill of raw sewage upstream of Washington.`\
+https://www.nytimes.com/2026/04/21/climate/potomac-river-sewage-spill-lawsuit.html
+
 **EE. UU. busca un acuerdo rápido, pero Irán se resiste**\
 `En el segundo intento de acuerdo entre Estados Unidos e Irán, los estilos de negociación de ambos países están destinados a chocar frontalmente.`\
 https://www.nytimes.com/es/2026/04/21/espanol/estados-unidos/iran-negociaciones-trump.html
