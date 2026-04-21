@@ -1,3 +1,11 @@
+**Read the Wisconsin Criminal Complaint**\
+`A scientist at the University of Wisconsin tampered with his coworker’s water bottle using chemicals, the authorities in Dane County, Wis., said. Read the criminal complaint.`\
+https://www.nytimes.com/interactive/2026/04/21/us/university-wisconsin-poison-coworkers-complaint.html
+
+**What to Expect in Apple’s New Era**\
+`Tim Cook’s replacement as chief executive, John Ternus, knows hardware engineering. Can he be a product visionary and a global diplomat?`\
+https://www.nytimes.com/2026/04/21/business/dealbook/apple-succession-cook-ternus.html
+
 **Kash Patel, director del FBI, demanda por un artículo que asegura que bebe alcohol en exceso**\
 `Patel acusó a The Atlantic de difamación y pidió 250 millones de dólares por daños y perjuicios. Una portavoz de la publicación calificó la demanda de “infundada”.`\
 https://www.nytimes.com/es/2026/04/21/espanol/estados-unidos/kash-patel-fbi-bebida-the-atlantic.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/21/opinion/trump-legacy-history-presidents.html
 **Would You Want to Be a Farmer?**\
 `A guest essayist writes about why fewer young people are going into farming. What will we lose if we lose small farms?`\
 https://www.nytimes.com/2026/04/21/learning/would-you-want-to-be-a-farmer.html
-
-**‘Soccer Deserts’ in New York Keep Children From Playing**\
-`A report from the Aspen Institute has found that the demand to play soccer is soaring, but parts of Brooklyn, the Bronx and Queens lack access to fields.`\
-https://www.nytimes.com/2026/04/21/nyregion/soccer-deserts-children-nyc.html
-
-**Trump’s Pick to Lead Fed Will Face Senators at a Tricky Moment**\
-`Kevin M. Warsh has enough support to become the next chair of the Federal Reserve, but a criminal investigation into the central bank stands in his way.`\
-https://www.nytimes.com/2026/04/21/business/kevin-warsh-federal-reserve-confirmation-hearing.html
 
