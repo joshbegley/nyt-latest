@@ -1,3 +1,15 @@
+**Vance’s Trip to Islamabad on Hold as U.S. Says Iran Failed to Respond to Its Terms**\
+`The delay is another hurdle in the Trump administration’s push to secure an agreement that would curb Iran’s nuclear program.`\
+https://www.nytimes.com/live/2026/04/21/world/iran-us-war-trump-news/vances-trip-to-islamabad-on-hold-as-iran-fails-to-respond-to-us-terms
+
+**Pentagon to Stop Requiring Members of Military Get Flu Vaccines**\
+`Defense Secretary Pete Hegseth called the mandate “overreaching” in announcing the policy change. The vaccine will remain available to service members who want to be inoculated.`\
+https://www.nytimes.com/2026/04/21/us/politics/pentagon-to-stop-requiring-members-of-military-get-flu-vaccines.html
+
+**Crossing the Divide**\
+`What one image tells us about the road back to southern Lebanon.`\
+https://www.nytimes.com/2026/04/21/world/middleeast/southern-lebanon-israel-hezbollah-cease-fire.html
+
 **Nate Smith Is Bringing a Big-Tent Approach to the Newport Jazz Festival**\
 `The Grammy-winning drummer — and the event’s latest artistic director — uses new-school methods to maintain the genre’s essential tradition: live collaboration.`\
 https://www.nytimes.com/2026/04/21/arts/music/nate-smith-newport-jazz-festival-lineup.html

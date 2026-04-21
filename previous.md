@@ -1,3 +1,11 @@
+**Vance’s Trip to Islamabad on Hold as U.S. Says Iran Failed to Respond to Its Terms**\
+`The delay is another hurdle in the Trump administration’s push to secure an agreement that would curb Iran’s nuclear program.`\
+https://www.nytimes.com/live/2026/04/21/world/iran-us-war-trump-news/vances-trip-to-islamabad-on-hold-as-iran-fails-to-respond-to-us-terms
+
+**Pentagon to Stop Requiring Members of Military Get Flu Vaccines**\
+`Defense Secretary Pete Hegseth called the mandate “overreaching” in announcing the policy change. The vaccine will remain available to service members who want to be inoculated.`\
+https://www.nytimes.com/2026/04/21/us/politics/pentagon-to-stop-requiring-members-of-military-get-flu-vaccines.html
+
 **Nate Smith Is Bringing a Big-Tent Approach to the Newport Jazz Festival**\
 `The Grammy-winning drummer — and the event’s latest artistic director — uses new-school methods to maintain the genre’s essential tradition: live collaboration.`\
 https://www.nytimes.com/2026/04/21/arts/music/nate-smith-newport-jazz-festival-lineup.html
@@ -44,7 +52,7 @@ https://www.nytimes.com/2026/04/21/arts/television/my-brother-the-minotaur-apple
 
 **Crossing the Divide**\
 `What one image tells us about the road back to southern Lebanon.`\
-https://www.nytimes.com/2026/04/21/world/middleeast/crossing-the-divide.html
+https://www.nytimes.com/2026/04/21/world/middleeast/southern-lebanon-israel-hezbollah-cease-fire.html
 
 **Aftershocks from ‘The Shadow Papers’**\
 `Publication of a trove of confidential Supreme Court memos ignited debates in the legal academy.`\
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/21/briefing/today-in-short.html
 **Civil Rights Group Says It Is Under Investigation by Justice Dept.**\
 `The Southern Poverty Law Center, which is best known for investigating hate groups, has been accused by Republicans of unfairly targeting conservative and Christian organizations.`\
 https://www.nytimes.com/2026/04/21/us/politics/southern-poverty-law-center-doj-investigation.html
-
-**Kennedy Says the Carnivore Diet Can Eliminate Dangerous Body Fat**\
-`He claimed in a video on social media that the diet could quickly eradicate visceral fat, which accumulates around the organs. Is that true?`\
-https://www.nytimes.com/2026/04/21/well/eat/carnivore-diet-visceral-fat-rfk-jr.html
-
-**These Are the Very Best Scrambled Eggs**\
-`Kenji López-Alt’s extra-creamy scrambled eggs are the perfect dinner for busy, scrambled weeknights.`\
-https://www.nytimes.com/2026/04/21/dining/these-are-the-very-best-scrambled-eggs.html
 
