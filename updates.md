@@ -1,3 +1,15 @@
+**Los 2 estadounidenses que murieron en el accidente en México pertenecían a la CIA**\
+`Los dos estadounidenses murieron el domingo cuando regresaban de una operación dirigida por las fuerzas armadas de México para desmantelar laboratorios de droga en el estado de Chihuahua.`\
+https://www.nytimes.com/es/2026/04/21/espanol/america-latina/mexico-accidente-investigadores-cia.html
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/21/business/kevin-warsh-fed-chair-hearing/heres-the-latest
+
+**Where Are All These Meteors Coming From?**\
+`The frequency of fireballs in our planet’s skies seemed to grow in recent months. NASA and other meteor experts can’t agree on what explains it.`\
+https://www.nytimes.com/2026/04/21/science/march-fireballs-meteors-astronomy.html
+
 **F.A.A. Investigates Close Call Between Southwest Planes in Nashville**\
 `An aborted landing at Nashville International Airport on Saturday put one of the planes on a potential collision course with another plane taking off.`\
 https://www.nytimes.com/2026/04/21/us/southwest-planes-nashville-near-collision.html

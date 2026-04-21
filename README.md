@@ -1,3 +1,7 @@
+**A Year After U.S.A.I.D.’s Death, Fired Workers Find Few Jobs and Much Loss**\
+`People have plowed through savings, cashed out retirement funds and moved in with relatives. Former U.S.A.I.D. workers estimate that less than half have found full-time work.`\
+https://www.nytimes.com/2026/04/21/us/politics/usaid-former-employees.html
+
 **Los 2 estadounidenses que murieron en el accidente en México pertenecían a la CIA**\
 `Los dos estadounidenses murieron el domingo cuando regresaban de una operación dirigida por las fuerzas armadas de México para desmantelar laboratorios de droga en el estado de Chihuahua.`\
 https://www.nytimes.com/es/2026/04/21/espanol/america-latina/mexico-accidente-investigadores-cia.html
@@ -18,8 +22,8 @@ https://www.nytimes.com/2026/04/21/us/southwest-planes-nashville-near-collision.
 `The proposal reflects a global reality in which governments appeal to President Trump’s vanity in order to get American might on their side.`\
 https://www.nytimes.com/2026/04/21/world/europe/donnyland-ukraine-donbas-trump.html
 
-**2 Americans Killed in Mexico Crash Were C.I.A. Members**\
-`The two Americans were killed Sunday when their vehicle crashed while returning from an operation led by Mexico’s armed forces to dismantle drug labs in Chihuahua state.`\
+**2 Americans Killed in Mexico Crash Were C.I.A. Officers**\
+`The two Americans were killed on Sunday when their vehicle crashed while returning from an operation led by Mexico’s armed forces to dismantle drug labs in Chihuahua state.`\
 https://www.nytimes.com/2026/04/21/world/americas/americans-cia-mexico-crash.html
 
 **Madonna Says Her Vintage Outfit Is Missing After Coachella Performance**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/21/podcasts/the-headlines/labor-secretary-resign
 **Connections Companion No. 1,046**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, April 22, 2026.`\
 https://www.nytimes.com/2026/04/21/crosswords/connections-companion-1046.html
-
-**Strands Sidekick No. 780**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, April 22, 2026.`\
-https://www.nytimes.com/2026/04/21/crosswords/strands-sidekick-780.html
 
