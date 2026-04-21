@@ -1,3 +1,19 @@
+**New Zealand Declares Emergency in Capital After It Was Battered by Torrential Rain**\
+`There were landslides, flash floods and the closure of more than 100 schools in Wellington and the surrounding region.`\
+https://www.nytimes.com/2026/04/21/world/australia/wellington-new-zealand-emergency-flooding.html
+
+**Oil Prices Recede and Stocks Gain as Investors Eye Peace Talks**\
+`Oil prices pulled back and stocks inched higher as investors looked to the possibility of a second round of peace talks between the United States and Iran.`\
+https://www.nytimes.com/2026/04/21/business/oil-stocks-gas-iran.html
+
+**¿Cuál es la nueva arma de Irán? El estrecho de Ormuz**\
+`La decisión de Irán de ejercer su control sobre el estrecho de Ormuz, el estratégico punto geográfico por el que fluye el 20 por ciento del suministro mundial de petróleo, ha provocado un problema económico global.`\
+https://www.nytimes.com/es/2026/04/21/espanol/estados-unidos/iran-armamento-estrecho-ormuz.html
+
+**La nueva canción de Olivia Rodrigo rompe con su tradición de venganza**\
+`‘Drop Dead’, el primer sencillo del tercer álbum de la estrella pop no es el himno de ruptura que prometía, sino una evocación soñadora de perderse en el enamoramiento.`\
+https://www.nytimes.com/es/2026/04/21/espanol/cultura/olivia-rodrigo-drop-dead.html
+
 **Jimmy Kimmel Refers to Kash Patel’s Job in the Past Tense**\
 `The late night host called him “our soon-to-be former F.B.I. director” after publication of an article in The Atlantic alleging excessive drinking and unexplained absences.`\
 https://www.nytimes.com/2026/04/21/arts/television/jimmy-kimmel-kash-patel.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/20/pageoneplus/quote-of-the-day-nepalis-ask-if-a
 **What It Takes to Dress the ‘Devil’**\
 `The press tour for “The Devil Wears Prada 2” has been a fashion show for its stars and their stylists, who have relied on group chats, sweatpants and camaraderie to pull it off.`\
 https://www.nytimes.com/2026/04/20/style/the-devil-wears-prada-2-press-tour-fashion.html
-
-**How an Art Event in the California Desert Became a Community**\
-`As High Desert Test Sites looks toward its 25th anniversary, its founder, and various participants, look back.`\
-https://www.nytimes.com/2026/04/20/arts/design/joshua-tree-art-high-desert-test-sites.html
-
-**An Artist Asks: Without Darkness, Who Are We?**\
-`After gathering ideas from entomologists, neurobiologists and others, Jan Tichy created an exhibition responding to the effects of our disappearing nights.`\
-https://www.nytimes.com/2026/04/20/arts/design/msu-broad-museum-darkness-jan-tichy.html
-
-**‘Oh, My Baby’: Mother Mourns Son, 15, Whose Killing Was Filmed on Video**\
-`Jaden Pierre was fatally shot at a Queens park in broad daylight, and bystanders captured the shooting on video. Hundreds attended a vigil for him on Monday night.`\
-https://www.nytimes.com/2026/04/20/nyregion/queens-teen-shooting.html
-
-**Corrections: April 21, 2026**\
-`Corrections that appeared in print on Tuesday, April 21, 2026.`\
-https://www.nytimes.com/2026/04/20/pageoneplus/corrections-april-21-2026.html
 
