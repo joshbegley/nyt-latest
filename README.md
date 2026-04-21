@@ -1,3 +1,15 @@
+**En ‘The Pitt’, los traumas físicos y emocionales llegan a la sala de urgencias**\
+`Además de la carga diaria que supone tratar a los pacientes, los médicos de la serie llevan sus propias cicatrices a la sala de urgencias.`\
+https://www.nytimes.com/es/2026/04/21/espanol/estilos-de-vida/the-pitt-final-segunda-temporada.html
+
+**Palabra del día: ‘impeccable’**\
+`Esta palabra ha aparecido en 109 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/04/21/espanol/palabra-del-dia-impeccable.html
+
+**Word of the Day: impeccable**\
+`This word has appeared in 109 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/04/21/learning/word-of-the-day-impeccable.html
+
 **El programa ‘Visión 2030’ de Arabia Saudita reevalúa sus prioridades**\
 `Las autoridades de Arabia Saudita anunciaron una nueva estrategia para el fondo soberano del país, de aproximadamente 1 billón de dólares, y enfatizaron que en el futuro se centrarán en la “eficiencia”.`\
 https://www.nytimes.com/es/2026/04/21/espanol/mundo/arabia-saudita-planes-fondo-soberano.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/interactive/2026/books/wh-auden-poetry-challenge-love.ht
 **Gilgo Beach Killer Told His Wife That He Murdered 7 Women in Their Home**\
 `Rex Heuermann, who pleaded guilty to murdering eight women, told his wife that he killed seven of the victims in a downstairs room in their Long Island home, she said in a Peacock documentary.`\
 https://www.nytimes.com/2026/04/20/nyregion/gilgo-beach-killer-wife-peacock-documentary.html
-
-**The Resistance to New Technologies**\
-`This week on “Hard Fork” from The New York Times, the hosts Casey Newton and Kevin Roose discuss how this current moment of deep skepticism and suspicion towards the major A.I. companies arose, and the tensions between our democracy and the Silicon Valley elite.`\
-https://www.nytimes.com/video/podcasts/100000010853211/the-resistance-to-new-technologies.html
-
-**Louisiana Killer’s Threats to Himself and Others Hinted at Future Violence**\
-`Shamar Elkins had been suffering severe mental health problems, his family said. His deadly rampage, which killed eight children, has profoundly scarred a community facing rising domestic violence.`\
-https://www.nytimes.com/2026/04/20/us/louisiana-shooter-shamar-elkins-shreveport.html
-
-**‘Immediate Results’ vs. ‘The Long Game’: The U.S. and Iran Face Off**\
-`As the United States and Iran make a second attempt at a deal, their negotiating styles are on a collision course.`\
-https://www.nytimes.com/2026/04/20/us/politics/us-iran-negotiation-style.html
 
