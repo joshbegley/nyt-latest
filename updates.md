@@ -1,3 +1,7 @@
+**Japón venderá más armas al extranjero, rompiendo con el pacifismo de posguerra**\
+`La primera ministra Sanae Takaichi revocó los límites a las exportaciones de armas mientras Japón se enfrenta a las crecientes amenazas de China y a la imprevisibilidad de Estados Unidos.`\
+https://www.nytimes.com/es/2026/04/21/espanol/mundo/japon-venta-armas.html
+
 **Areas to Watch in the Virginia Redistricting Election**\
 `Suburbs to the north and large cities to the south could offer insight into how support for the amendment to the state constitution is unfolding.`\
 https://www.nytimes.com/2026/04/21/us/elections/virginia-redistricting-election-counties-cities.html
