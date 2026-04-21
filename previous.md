@@ -26,7 +26,7 @@ https://www.nytimes.com/2026/04/21/business/ai-job-cuts-wall-street.html
 `Gregory Spears is bringing his uncanny sense of genre and eras of music to the “Sleeping Beauty” story with his new opera, “Sleepers Awake.”`\
 https://www.nytimes.com/2026/04/21/arts/music/gregory-spears-sleepers-awake.html
 
-**Florida Inquiry Into ChatGPT Shifts to Criminal Investigation**\
+**Florida Begins Criminal Inquiry Into ChatGPT**\
 `The investigation focuses on messages between the chatbot and the man accused of killing two people at Florida State University last year.`\
 https://www.nytimes.com/2026/04/21/us/florida-criminal-investigation-openai-chatgpt-fsu-shooting.html
 

@@ -1,3 +1,7 @@
+**Florida Begins Criminal Inquiry Into ChatGPT**\
+`The investigation focuses on messages between the chatbot and the man accused of killing two people at Florida State University last year.`\
+https://www.nytimes.com/2026/04/21/us/florida-criminal-investigation-openai-chatgpt-fsu-shooting.html
+
 **Democrats Look for a New Campaign Script**\
 `Readers respond to an Opinion guest essay by David Plouffe. Also: Why mothers are burned out; national referendums.`\
 https://www.nytimes.com/2026/04/21/opinion/democrats-elections.html
