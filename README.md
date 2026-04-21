@@ -1,3 +1,11 @@
+**Tucker Carlson Says He Is ‘Tormented’ by His Past Support for Trump**\
+`“I want to say I’m sorry for misleading people,” said the conservative commentator, who has broken sharply with the president over the war with Iran.`\
+https://www.nytimes.com/2026/04/21/us/politics/tucker-carlson-trump-apology.html
+
+**Teotihuacán Gunman Had Materials About U.S. Mass Shooting, Officials Say**\
+`The gunman who killed a Canadian tourist and wounded 13 other people at the Teotihuacán pyramids had materials in his backpack referencing a 1999 mass shooting in the United States, Mexican officials said.`\
+https://www.nytimes.com/video/world/americas/100000010853856/mexico-pyramids-teotihuacan-shooting.html
+
 **A.I. ‘Hallucinations’ Created Errors in Court Filing, Top Law Firm Says**\
 `Sullivan & Cromwell apologized for submitting a court document that had fake citations created by artificial intelligence.`\
 https://www.nytimes.com/2026/04/21/nyregion/sullivan-cromwell-ai-hallucination.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/21/opinion/yale-report-academia.html
 **How Israel Lost Its Way and How Trump Can Save Lebanon**\
 `The smashing of a statue of Jesus by an Israeli soldier and the founding of four provocative settlements together show Israel’s thoughtless path forward.`\
 https://www.nytimes.com/2026/04/21/opinion/israel-lebanon-netanyahu-hezbollah-friedman.html
-
-**Judge Halts Trump Actions Aimed at Throttling Renewable Energy**\
-`The Interior Department had imposed restrictions on wind and solar projects across the country, prompting developers to sue.`\
-https://www.nytimes.com/2026/04/21/climate/solar-wind-trump-judge.html
-
-**How to Watch the Lyrids Streak Across the Night Sky**\
-`Active since last week, the Lyrids meteor shower is expected to reach peak viewing tonight.`\
-https://www.nytimes.com/2026/04/21/science/astronomy-lyrid-meteors.html
 
