@@ -1,3 +1,7 @@
+**Democrats Look for a New Campaign Script**\
+`Readers respond to an Opinion guest essay by David Plouffe. Also: Why mothers are burned out; national referendums.`\
+https://www.nytimes.com/2026/04/21/opinion/democrats-elections.html
+
 **Smithsonian American Art Museum Names a New Director**\
 `Lynda Roscoe Hartigan is returning to the museum as its leader after previously serving as its chief curator.`\
 https://www.nytimes.com/2026/04/21/arts/design/smithsonian-director-lynda-roscoe-hartigan.html
@@ -36,13 +40,13 @@ https://www.nytimes.com/2026/04/21/us/politics/southern-poverty-law-center-doj-i
 
 **Kennedy Says the Carnivore Diet Can Eliminate Dangerous Body Fat**\
 `He claimed in a video on social media that the diet could quickly eradicate visceral fat, which accumulates around the organs. Is that true?`\
-https://www.nytimes.com/2026/04/21/well/eat/carnivore-diet-visceral-fat-kennedy.html
+https://www.nytimes.com/2026/04/21/well/eat/carnivore-diet-visceral-fat-rfk-jr.html
 
 **These Are the Very Best Scrambled Eggs**\
 `Kenji López-Alt’s extra-creamy scrambled eggs are the perfect dinner for busy, scrambled weeknights.`\
 https://www.nytimes.com/2026/04/21/dining/these-are-the-very-best-scrambled-eggs.html
 
-**Silicon Valley Needs to Notice That Molotov Cocktail**\
+**An Attack on Sam Altman Sends a Terrifying Message**\
 `The attack against Sam Altman reflects how badly Silicon Valley needs to address the societal consequences of its products.`\
 https://www.nytimes.com/2026/04/21/opinion/sam-altman-attack-ai-silicon-valley.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/21/us/politics/usaid-former-employees.html
 **Los 2 estadounidenses que murieron en el accidente en México eran funcionarios de la CIA**\
 `Los dos estadounidenses murieron el domingo cuando regresaban de una operación dirigida por las fuerzas armadas de México para desmantelar laboratorios de droga en el estado de Chihuahua.`\
 https://www.nytimes.com/es/2026/04/21/espanol/america-latina/mexico-accidente-investigadores-cia.html
-
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/04/21/business/kevin-warsh-fed-chair-hearing/heres-the-latest
 

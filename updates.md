@@ -1,3 +1,15 @@
+**Democrats Look for a New Campaign Script**\
+`Readers respond to an Opinion guest essay by David Plouffe. Also: Why mothers are burned out; national referendums.`\
+https://www.nytimes.com/2026/04/21/opinion/democrats-elections.html
+
+**Kennedy Says the Carnivore Diet Can Eliminate Dangerous Body Fat**\
+`He claimed in a video on social media that the diet could quickly eradicate visceral fat, which accumulates around the organs. Is that true?`\
+https://www.nytimes.com/2026/04/21/well/eat/carnivore-diet-visceral-fat-rfk-jr.html
+
+**An Attack on Sam Altman Sends a Terrifying Message**\
+`The attack against Sam Altman reflects how badly Silicon Valley needs to address the societal consequences of its products.`\
+https://www.nytimes.com/2026/04/21/opinion/sam-altman-attack-ai-silicon-valley.html
+
 **Smithsonian American Art Museum Names a New Director**\
 `Lynda Roscoe Hartigan is returning to the museum as its leader after previously serving as its chief curator.`\
 https://www.nytimes.com/2026/04/21/arts/design/smithsonian-director-lynda-roscoe-hartigan.html
