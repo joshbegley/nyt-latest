@@ -1,3 +1,11 @@
+**SpaceX Said to Agree to Buy Cursor for More Than $50 Billion**\
+`The agreement comes as Elon Musk’s rocket and satellite maker, which has been emphasizing artificial intelligence, is preparing to go public.`\
+https://www.nytimes.com/2026/04/21/business/spacex-cursor.html
+
+**La ciudad que revela todas las malas ideas económicas de Trump**\
+`El presidente de EE. UU. ha intentado restaurar la industria manufacturera al imponer aranceles exorbitantes y una fuerza de deportación agresiva. Pero estas medidas resultan contraproducentes.`\
+https://www.nytimes.com/es/2026/04/21/espanol/opinion/trump-economia-estados-unidos-aranceles-deportacion.html
+
 **Virginia’s Vote Is Crucial in the Fight for Control of Congress**\
 `Also, Trump extends the cease-fire with Iran. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/04/21/briefing/virginia-vote-trump-cease-fire.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/21/nyregion/mets-mamdani-curse.html
 **Judge Bars Imminent Removal of D.C. Bike Lanes**\
 `A federal judge found the National Park Service had improperly rushed plans to strip out bike lanes connecting downtown Washington to the Tidal Basin.`\
 https://www.nytimes.com/2026/04/21/us/politics/judge-dc-bike-lanes.html
-
-**N.Y.P.D. Narcotics Unit Under Review After a Beating Is Caught on Tape**\
-`The police also disbanded a team within the unit after two of its detectives were seen on tape beating a man in Brooklyn last week.`\
-https://www.nytimes.com/2026/04/21/nyregion/nypd-beating-video.html
-
-**Why Negotiations With Iran Might Take a While**\
-`The Iranians are notoriously slow negotiators. Our reporter David E. Sanger explains what the history of U.S.-Iran negotiations could mean for the latest round of talks.`\
-https://www.nytimes.com/video/world/middleeast/100000010853017/why-negotiations-with-iran-might-take-a-while.html
 
