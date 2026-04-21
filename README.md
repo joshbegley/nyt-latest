@@ -1,5 +1,5 @@
 **Ohio State Details Relationship That Led to President’s Resignation**\
-`The university released a report that said the president, Walter Carter Jr., took with trips with a podcaster and suggested that the university hire her.`\
+`The university released a report that said the president, Walter Carter Jr., took trips with a podcaster and suggested that the university hire her.`\
 https://www.nytimes.com/2026/04/21/us/ohio-state-walter-carter-relationship-president-resignation.html
 
 **Senate Republicans Release Budget Measure to Fund ICE Through 2029**\
