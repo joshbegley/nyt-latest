@@ -1,3 +1,11 @@
+**Nate Smith Is Bringing a Big-Tent Approach to the Newport Jazz Festival**\
+`The Grammy-winning drummer — and the event’s latest artistic director — uses new-school methods to maintain the genre’s essential tradition: live collaboration.`\
+https://www.nytimes.com/2026/04/21/arts/music/nate-smith-newport-jazz-festival-lineup.html
+
+**A Welcoming Neighborhood Hangout on the Upper East Side**\
+`Wainwright’s Tavern brings comforts and house accounts to Third Avenue, Cleo offers a new spot for rotisserie chicken downtown and more restaurant news.`\
+https://www.nytimes.com/2026/04/21/dining/wainwrights-tavern-cleo.html
+
 **Virginia Redistricting Referendum Results**\
 `Get live results and maps from the 2026 Virginia redistricting referendum.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-virginia-redistricting.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/21/well/eat/carnivore-diet-visceral-fat-rfk-jr.h
 **These Are the Very Best Scrambled Eggs**\
 `Kenji López-Alt’s extra-creamy scrambled eggs are the perfect dinner for busy, scrambled weeknights.`\
 https://www.nytimes.com/2026/04/21/dining/these-are-the-very-best-scrambled-eggs.html
-
-**An Attack on Sam Altman Sends a Terrifying Message**\
-`The attack against Sam Altman reflects how badly Silicon Valley needs to address the societal consequences of its products.`\
-https://www.nytimes.com/2026/04/21/opinion/sam-altman-attack-ai-silicon-valley.html
-
-**Open or Shut, the Strait of Hormuz May Not Go Back to Normal**\
-`The energy industry is planning for a future where the choke point on Iran’s southern coast is a lot less important.`\
-https://www.nytimes.com/2026/04/21/business/energy-environment/strait-hormuz-oil-natural-gas.html
 

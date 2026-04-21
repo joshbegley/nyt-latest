@@ -1,3 +1,11 @@
+**Nate Smith Is Bringing a Big-Tent Approach to the Newport Jazz Festival**\
+`The Grammy-winning drummer — and the event’s latest artistic director — uses new-school methods to maintain the genre’s essential tradition: live collaboration.`\
+https://www.nytimes.com/2026/04/21/arts/music/nate-smith-newport-jazz-festival-lineup.html
+
+**A Welcoming Neighborhood Hangout on the Upper East Side**\
+`Wainwright’s Tavern brings comforts and house accounts to Third Avenue, Cleo offers a new spot for rotisserie chicken downtown and more restaurant news.`\
+https://www.nytimes.com/2026/04/21/dining/wainwrights-tavern-cleo.html
+
 **Virginia Redistricting Referendum Results**\
 `Get live results and maps from the 2026 Virginia redistricting referendum.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-virginia-redistricting.html
