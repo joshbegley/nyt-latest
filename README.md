@@ -1,3 +1,7 @@
+**U.S. Abruptly Rescinds Subpoenas It Had Just Issued in John Brennan Inquiry**\
+`The vacillation came after the Justice Department replaced a career prosecutor with a loyalist to President Trump in the administration’s effort to charge the former C.I.A. chief with a crime.`\
+https://www.nytimes.com/2026/04/21/us/politics/justice-dept-john-brennan-subpoenas.html
+
 **JD Vance suspende su viaje para las negociaciones de paz entre EE. UU. e Irán**\
 `El retraso marca un nuevo obstáculo en el esfuerzo del gobierno de Trump por lograr un acuerdo que frene el programa nuclear iraní.`\
 https://www.nytimes.com/es/2026/04/21/espanol/estados-unidos/iran-trump-vance-negociaciones-paz.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/21/learning/our-17th-annual-summer-reading-conte
 **Lebanese Bury Their Dead Amid a Lull in Fighting**\
 `Mass funerals for Hezbollah fighters and civilians were happening across southern Lebanon.`\
 https://www.nytimes.com/2026/04/21/world/middleeast/lebanon-villages-funerals.html
-
-**Kennedy Refuses to Commit to Backing New C.D.C. Director on Vaccines**\
-`In a tense congressional hearing, the health secretary also said he bore no responsibility for the measles outbreak in the United States.`\
-https://www.nytimes.com/2026/04/21/us/politics/rfk-jr-vaccines-erica-schwartz.html
 
