@@ -1,3 +1,7 @@
+**La larga y lenta carrera para salvar a Timmy, la ballena favorita de Alemania**\
+`Las autoridades y esfuerzos privados llevan casi un mes trabajando en conjunto para ayudar a una ballena a salir del mar Báltico. Aún no está claro si tendrán éxito.`\
+https://www.nytimes.com/es/2026/04/21/espanol/mundo/timmy-ballena-varada-alemania.html
+
 **London Braces for Disruption From Tube Drivers’ Strike**\
 `The dispute over working conditions and hours is expected to cause widespread delays, stopping service on two lines.`\
 https://www.nytimes.com/2026/04/21/world/europe/london-underground-tube-strike.html
