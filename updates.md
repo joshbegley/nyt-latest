@@ -1,3 +1,11 @@
+**Could the Next Football Hall of Famer Be … Teddy Roosevelt?**\
+`A cabinet secretary made the case for the hero of San Juan Hill to be inducted into the Pro Football Hall of Fame. Here’s why.`\
+https://www.nytimes.com/2026/04/21/us/teddy-roosevelt-football-hall-of-fame.html
+
+**Rainforests Can Bounce Back Much Faster Than Thought, Researchers Say**\
+`Scientists long believed it would take more than a century for animals to return to deforested land. New research shows that’s not always the case.`\
+https://www.nytimes.com/2026/04/21/climate/rainforests-deforestation-fast-recovery.html
+
 **Vance’s Trip to Islamabad on Hold as U.S. Says Iran Failed to Respond to Its Terms**\
 `The delay is another hurdle in the Trump administration’s push to secure an agreement that would curb Iran’s nuclear program.`\
 https://www.nytimes.com/live/2026/04/21/world/iran-us-war-trump-news/vances-trip-to-islamabad-on-hold-as-iran-fails-to-respond-to-us-terms
