@@ -1,3 +1,7 @@
+**Crossing the Divide**\
+``\
+https://www.nytimes.com/2026/04/21/world/europe/crossing-the-divide.html
+
 **Aftershocks from ‘The Shadow Papers’**\
 `Publication of a trove of confidential Supreme Court memos ignited debates in the legal academy.`\
 https://www.nytimes.com/2026/04/21/us/politics/the-docket-aftershocks-shadow-papers.html
