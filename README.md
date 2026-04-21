@@ -1,3 +1,7 @@
+**Could the Next Football Hall of Famer Be … Teddy Roosevelt?**\
+`A cabinet secretary made the case for the hero of San Juan Hill to be inducted into the Pro Football Hall of Fame. Here’s why.`\
+https://www.nytimes.com/2026/04/21/us/teddy-roosevelt-football-hall-of-fame.html
+
 **Rainforests Can Bounce Back Much Faster Than Thought, Researchers Say**\
 `Scientists long believed it would take more than a century for animals to return to deforested land. New research shows that’s not always the case.`\
 https://www.nytimes.com/2026/04/21/climate/rainforests-deforestation-fast-recovery.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/21/arts/music/gregory-spears-sleepers-awake.html
 **Florida Opens Criminal Inquiry Into ChatGPT Tied to Fatal School Shooting**\
 `The investigation focuses on messages between the chatbot and the man accused of killing two people at Florida State University last year.`\
 https://www.nytimes.com/2026/04/21/us/florida-criminal-investigation-openai-chatgpt-fsu-shooting.html
-
-**Today, In Short**\
-`Heelys. A fast robot. And a new C.E.O. at Apple.`\
-https://www.nytimes.com/2026/04/21/briefing/today-in-short.html
 
