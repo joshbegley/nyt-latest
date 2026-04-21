@@ -1,3 +1,7 @@
+**Trump Dismisses a Merger While Seeking Suitors for Spirit Airlines**\
+`As he rejected the idea of a merger of United Airlines and American Airlines, President Trump said someone, including possibly the federal government, should buy or help Spirit.`\
+https://www.nytimes.com/2026/04/21/business/trump-spirit-airlines-united-american.html
+
 **A Year After U.S.A.I.D.’s Death, Fired Workers Find Few Jobs and Much Loss**\
 `People have plowed through savings, cashed out retirement funds and moved in with relatives. Former U.S.A.I.D. workers estimate that less than half have found full-time work.`\
 https://www.nytimes.com/2026/04/21/us/politics/usaid-former-employees.html

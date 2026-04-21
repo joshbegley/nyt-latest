@@ -1,3 +1,15 @@
+**U.S. Military Stops Tanker Carrying Iranian Oil, Pentagon Says**\
+`The seizure was the latest U.S. effort to squeeze Iran’s oil-reliant economy, and came days after the Navy boarded an Iranian cargo ship near the Strait of Hormuz.`\
+https://www.nytimes.com/2026/04/21/world/middleeast/iran-oil-tanker-mt-tifani-us-indian-ocean.html
+
+**Criminal inquiry into Fed looms large over Warsh hearing.**\
+``\
+https://www.nytimes.com/live/2026/04/21/business/kevin-warsh-fed-chair-hearing/criminal-inquiry-into-fed-looms-large-over-warsh-hearing
+
+**Europe Wanted a Say on the Iran War, but It’s Still on the Sidelines**\
+`A British-French plan to secure the Strait of Hormuz would give the continent a role. But Tehran and Washington are still calling the shots.`\
+https://www.nytimes.com/2026/04/21/world/middleeast/iran-war-europe-macron-france.html
+
 **Trump Dismisses a Merger While Seeking Suitors for Spirit Airlines**\
 `As he rejected the idea of a merger of United Airlines and American Airlines, President Trump said someone, including possibly the federal government, should buy or help Spirit.`\
 https://www.nytimes.com/2026/04/21/business/trump-spirit-airlines-united-american.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/es/2026/04/21/espanol/estados-unidos/kash-patel-fbi-bebi
 **Pain at the Pump**\
 `We look at the changes in gas prices.`\
 https://www.nytimes.com/2026/04/21/briefing/pain-at-the-pump.html
-
-**La mejor arma de Irán no es nuclear**\
-`Cortar la circulación del estrecho de Ormuz resultó ser un arma poderosa. Para Irán, podría ser una nueva forma de mantener control sobre sus adversarios.`\
-https://www.nytimes.com/es/2026/04/21/espanol/mundo/iran-estrecho-ormuz.html
-
-**How Iranians See the War**\
-`Very little has been heard about the war from Iranians. We spoke to some.`\
-https://www.nytimes.com/2026/04/21/podcasts/the-daily/how-iranians-see-the-war.html
-
-**Labor Secretary Resigns Amid Scandals, and F.B.I. Director Sues Over Drinking Claims**\
-`Plus, what to know about Apple’s next C.E.O.`\
-https://www.nytimes.com/2026/04/21/podcasts/the-headlines/labor-secretary-resigns-patel-excessive-drinking-atlantic.html
 
