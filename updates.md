@@ -1,3 +1,15 @@
+**Smithsonian American Art Museum Names a New Director**\
+`Lynda Roscoe Hartigan is returning to the museum as its leader after previously serving as its chief curator.`\
+https://www.nytimes.com/2026/04/21/arts/design/smithsonian-director-lynda-roscoe-hartigan.html
+
+**‘My Brother the Minotaur’ Is a Visually Stunning Animated Series**\
+`The Apple TV series leans into the natural splendor of its wild, rustic setting, with a painterliness that recalls Celtic and medieval traditions.`\
+https://www.nytimes.com/2026/04/21/arts/television/my-brother-the-minotaur-apple-tv.html
+
+**Crossing the Divide**\
+`What one image tells us about the road back to southern Lebanon.`\
+https://www.nytimes.com/2026/04/21/world/middleeast/crossing-the-divide.html
+
 **Crossing the Divide**\
 ``\
 https://www.nytimes.com/2026/04/21/world/europe/crossing-the-divide.html
