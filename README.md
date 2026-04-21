@@ -1,3 +1,7 @@
+**La larga y lenta carrera para salvar a Timmy, la ballena favorita de Alemania**\
+`Las autoridades y esfuerzos privados llevan casi un mes trabajando en conjunto para ayudar a una ballena a salir del mar Báltico. Aún no está claro si tendrán éxito.`\
+https://www.nytimes.com/es/2026/04/21/espanol/mundo/timmy-ballena-varada-alemania.html
+
 **London Braces for Disruption From Tube Drivers’ Strike**\
 `The dispute over working conditions and hours is expected to cause widespread delays, stopping service on two lines.`\
 https://www.nytimes.com/2026/04/21/world/europe/london-underground-tube-strike.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/20/us/winston-salem-shooting-north-carolina.html
 **Un soldado israelí en Líbano destrozó una estatua de Jesús**\
 `El ejército de Israel está investigando al soldado. El primer ministro israelí, Benjamín Netanyahu, lamentó cualquier daño causado a “los creyentes de Líbano y de todo el mundo”.`\
 https://www.nytimes.com/es/2026/04/20/espanol/mundo/soldado-israel-jesus-libano.html
-
-**Blue Origin’s Failure May Hamstring NASA’s Moon Plans**\
-`The space agency is counting on Jeff Bezos’ company to deliver equipment essential to the next moon landing, only two years away.`\
-https://www.nytimes.com/2026/04/20/science/blue-origins-moon-nasa.html
 
