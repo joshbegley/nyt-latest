@@ -1,3 +1,11 @@
+**JD Vance suspende su viaje para las negociaciones de paz entre EE. UU. e Irán**\
+`El retraso marca un nuevo obstáculo en el esfuerzo del gobierno de Trump por lograr un acuerdo que frene el programa nuclear iraní.`\
+https://www.nytimes.com/es/2026/04/21/espanol/estados-unidos/iran-trump-vance-negociaciones-paz.html
+
+**Nigeria Charges Six With Treason Over Coup Plot**\
+`The group, made up of civilians and former members of the country’s armed forces, is accused of treason linked to a failed coup attempt in October.`\
+https://www.nytimes.com/2026/04/21/world/africa/nigeria-coup-plot-treason-charges.html
+
 **Labor Secretary’s Departure Provides Trump an Agenda Reset**\
 `President Trump accepted Labor Secretary Lori Chavez-DeRemer’s resignation ahead of an internal investigation into her conduct at the department.`\
 https://www.nytimes.com/2026/04/21/business/economy/labor-secretary-trump.html
