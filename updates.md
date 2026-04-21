@@ -1,3 +1,7 @@
+**How The Onion Finally Shut Up Alex Jones for Good**\
+`What happened when America’s finest (fake) news source decided to troll the world’s greatest troll.`\
+https://www.nytimes.com/2026/04/21/podcasts/the-onion-alex-jones.html
+
 **Xi Calls For Hormuz to Reopen as China Balances Its Gulf Interests**\
 `The comments on the Strait of Hormuz by China’s leader, Xi Jinping, reflect Beijing’s complex relations with Iran and other Persian Gulf nations.`\
 https://www.nytimes.com/2026/04/21/world/middleeast/iran-china-hormuz-xi-jinping-oil.html
