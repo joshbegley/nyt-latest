@@ -1,3 +1,11 @@
+**El programa ‘Visión 2030’ de Arabia Saudita reevalúa sus prioridades**\
+`Las autoridades de Arabia Saudita anunciaron una nueva estrategia para el fondo soberano del país, de aproximadamente 1 billón de dólares, y enfatizaron que en el futuro se centrarán en la “eficiencia”.`\
+https://www.nytimes.com/es/2026/04/21/espanol/mundo/arabia-saudita-planes-fondo-soberano.html
+
+**Jerome Powell Stood Up to Trump. Will the Next Guy?**\
+`The question of the central bank’s independence looms over the economy.`\
+https://www.nytimes.com/2026/04/21/opinion/jerome-powell-fed-kevin-warsh-hearings.html
+
 **La larga y lenta carrera para salvar a Timmy, la ballena favorita de Alemania**\
 `Las autoridades y esfuerzos privados llevan casi un mes trabajando en conjunto para ayudar a una ballena a salir del mar Báltico. Aún no está claro si tendrán éxito.`\
 https://www.nytimes.com/es/2026/04/21/espanol/mundo/timmy-ballena-varada-alemania.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/20/us/louisiana-shooter-shamar-elkins-shreveport
 **‘Immediate Results’ vs. ‘The Long Game’: The U.S. and Iran Face Off**\
 `As the United States and Iran make a second attempt at a deal, their negotiating styles are on a collision course.`\
 https://www.nytimes.com/2026/04/20/us/politics/us-iran-negotiation-style.html
-
-**2 Teens Killed and 5 Injured in North Carolina Shooting**\
-`The young people, planning for a fight, had arranged to meet off school grounds at a park in Winston-Salem, N.C., when gunfire broke out on Monday morning.`\
-https://www.nytimes.com/2026/04/20/us/winston-salem-shooting-north-carolina.html
-
-**Un soldado israelí en Líbano destrozó una estatua de Jesús**\
-`El ejército de Israel está investigando al soldado. El primer ministro israelí, Benjamín Netanyahu, lamentó cualquier daño causado a “los creyentes de Líbano y de todo el mundo”.`\
-https://www.nytimes.com/es/2026/04/20/espanol/mundo/soldado-israel-jesus-libano.html
 
