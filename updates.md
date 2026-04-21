@@ -1,3 +1,11 @@
+**A Year After U.S.A.I.D.’s Death, Fired Workers Find Few Jobs and Much Loss**\
+`People have plowed through savings, cashed out retirement funds and moved in with relatives. Former U.S.A.I.D. workers estimate that less than half have found full-time work.`\
+https://www.nytimes.com/2026/04/21/us/politics/usaid-former-employees.html
+
+**2 Americans Killed in Mexico Crash Were C.I.A. Officers**\
+`The two Americans were killed on Sunday when their vehicle crashed while returning from an operation led by Mexico’s armed forces to dismantle drug labs in Chihuahua state.`\
+https://www.nytimes.com/2026/04/21/world/americas/americans-cia-mexico-crash.html
+
 **Los 2 estadounidenses que murieron en el accidente en México pertenecían a la CIA**\
 `Los dos estadounidenses murieron el domingo cuando regresaban de una operación dirigida por las fuerzas armadas de México para desmantelar laboratorios de droga en el estado de Chihuahua.`\
 https://www.nytimes.com/es/2026/04/21/espanol/america-latina/mexico-accidente-investigadores-cia.html
