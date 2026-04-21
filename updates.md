@@ -1,3 +1,7 @@
+**Gilgo Beach Killer Told His Wife That He Murdered 7 Women in Their Home**\
+`Rex Heuermann, who pleaded guilty to murdering eight women, told his wife that he killed seven of the victims in a downstairs room in their Long Island home, she said in a Peacock documentary.`\
+https://www.nytimes.com/2026/04/20/nyregion/gilgo-beach-killer-wife-peacock-documentary.html
+
 **The Resistance to New Technologies**\
 `This week on “Hard Fork” from The New York Times, the hosts Casey Newton and Kevin Roose discuss how this current moment of deep skepticism and suspicion towards the major A.I. companies arose, and the tensions between our democracy and the Silicon Valley elite.`\
 https://www.nytimes.com/video/podcasts/100000010853211/the-resistance-to-new-technologies.html
