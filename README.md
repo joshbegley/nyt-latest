@@ -1,3 +1,7 @@
+**U.S. Considers Financial Support for Oil-Rich U.A.E.**\
+`President Trump acknowledged that the Gulf state has incurred significant damage during the war with Iran.`\
+https://www.nytimes.com/2026/04/21/business/economy/us-uae-financial-support.html
+
 **Armani Goes Back to the Archive**\
 `A new collection dusts off decades-old creations, plus a dispatch from a Brunello Cucinelli movie premiere and the Political Tie Tracker.`\
 https://www.nytimes.com/2026/04/21/style/armani-archivio.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/21/world/middleeast/iran-war-europe-macron-franc
 **Trump Dismisses a Merger While Seeking Suitors for Spirit Airlines**\
 `As he rejected the idea of a merger of United Airlines and American Airlines, President Trump said someone, including possibly the federal government, should buy or help Spirit.`\
 https://www.nytimes.com/2026/04/21/business/trump-spirit-airlines-united-american.html
-
-**A Year After U.S.A.I.D.’s Death, Fired Workers Find Few Jobs and Much Loss**\
-`People have plowed through savings, cashed out retirement funds and moved in with relatives. Former U.S.A.I.D. workers estimate that less than half have found full-time work.`\
-https://www.nytimes.com/2026/04/21/us/politics/usaid-former-employees.html
 
