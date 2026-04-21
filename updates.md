@@ -1,3 +1,11 @@
+**Tucker Carlson Says He Is ‘Tormented’ by His Past Support for Trump**\
+`“I want to say I’m sorry for misleading people,” said the conservative commentator, who has broken sharply with the president over the war with Iran.`\
+https://www.nytimes.com/2026/04/21/us/politics/tucker-carlson-trump-apology.html
+
+**Teotihuacán Gunman Had Materials About U.S. Mass Shooting, Officials Say**\
+`The gunman who killed a Canadian tourist and wounded 13 other people at the Teotihuacán pyramids had materials in his backpack referencing a 1999 mass shooting in the United States, Mexican officials said.`\
+https://www.nytimes.com/video/world/americas/100000010853856/mexico-pyramids-teotihuacan-shooting.html
+
 **A.I. ‘Hallucinations’ Created Errors in Court Filing, Top Law Firm Says**\
 `Sullivan & Cromwell apologized for submitting a court document that had fake citations created by artificial intelligence.`\
 https://www.nytimes.com/2026/04/21/nyregion/sullivan-cromwell-ai-hallucination.html
