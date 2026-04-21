@@ -1,3 +1,11 @@
+**Read the Wisconsin Criminal Complaint**\
+`A scientist at the University of Wisconsin tampered with his coworker’s water bottle using chemicals, the authorities in Dane County, Wis., said. Read the criminal complaint.`\
+https://www.nytimes.com/interactive/2026/04/21/us/university-wisconsin-poison-coworkers-complaint.html
+
+**What to Expect in Apple’s New Era**\
+`Tim Cook’s replacement as chief executive, John Ternus, knows hardware engineering. Can he be a product visionary and a global diplomat?`\
+https://www.nytimes.com/2026/04/21/business/dealbook/apple-succession-cook-ternus.html
+
 **Kash Patel, director del FBI, demanda por un artículo que asegura que bebe alcohol en exceso**\
 `Patel acusó a The Atlantic de difamación y pidió 250 millones de dólares por daños y perjuicios. Una portavoz de la publicación calificó la demanda de “infundada”.`\
 https://www.nytimes.com/es/2026/04/21/espanol/estados-unidos/kash-patel-fbi-bebida-the-atlantic.html
