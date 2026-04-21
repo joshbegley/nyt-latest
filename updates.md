@@ -1,3 +1,15 @@
+**Israeli Soldiers Sentenced to Jail for Damaging Jesus Statue in Lebanon**\
+`A statue of the crucifixion of Christ has been replaced after one soldier photographed another swinging what looked like a sledgehammer at its head.`\
+https://www.nytimes.com/2026/04/21/world/middleeast/israel-soldiers-statue-lebanon-replaced.html
+
+**Ohio State Details Relationship That Led to President’s Resignation**\
+`The university released a report that said the president, Walter Carter Jr., took trips with a podcaster and suggested that the university hire her.`\
+https://www.nytimes.com/2026/04/21/us/ohio-state-walter-carter-relationship-president-resignation.html
+
+**Pentagon to Stop Requiring Members of Military to Get Flu Vaccines**\
+`Defense Secretary Pete Hegseth called the mandate “overreaching” in announcing the policy change. The vaccine will remain available to service members who want to be inoculated.`\
+https://www.nytimes.com/2026/04/21/us/politics/pentagon-to-stop-requiring-members-of-military-get-flu-vaccines.html
+
 **Ohio State Details Relationship That Led to President’s Resignation**\
 `The university released a report that said the president, Walter Carter Jr., took with trips with a podcaster and suggested that the university hire her.`\
 https://www.nytimes.com/2026/04/21/us/ohio-state-walter-carter-relationship-president-resignation.html
