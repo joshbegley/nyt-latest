@@ -1,3 +1,7 @@
+**La mejor arma de Irán no es nuclear**\
+`Cortar la circulación del estrecho de Ormuz resultó ser un arma poderosa. Para Irán, podría ser una nueva forma de mantener control sobre sus adversarios.`\
+https://www.nytimes.com/es/2026/04/21/espanol/mundo/iran-estrecho-ormuz.html
+
 **How Iranians See the War**\
 `Very little has been heard about the war from Iranians. We spoke to some.`\
 https://www.nytimes.com/2026/04/21/podcasts/the-daily/how-iranians-see-the-war.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/21/us/san-francisco-store-managed-ai-agent.html
 **Harvey Weinstein’s Third Trial on Rape Charge Opens in Manhattan**\
 `Harvey Weinstein is accused of raping an actress in a Manhattan hotel more than a decade ago. After an overturned conviction and a hung jury, he will face the charge once again.`\
 https://www.nytimes.com/2026/04/21/nyregion/weinstein-jessica-mann-trial.html
-
-**Supreme Court Reviews F.C.C.’s Enforcement Power Against Communications Companies**\
-`AT&T and Verizon were penalized millions of dollars for what the agency said was a failure to protect consumer information. The companies say they were deprived of their right to a jury trial.`\
-https://www.nytimes.com/2026/04/21/us/politics/supreme-court-fcc-fines.html
 
