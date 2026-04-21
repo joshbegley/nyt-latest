@@ -1,3 +1,11 @@
+**Trump Is Said to Be in Talks to Send Afghans Who Aided U.S. Forces to Congo**\
+`A U.S. aid worker said that the Afghans, who were evacuated to Qatar, would face a choice between moving to the Democratic Republic of Congo and living under the Taliban.`\
+https://www.nytimes.com/2026/04/21/world/europe/afghan-refugees-congo-us.html
+
+**A Spring Challenge to Get Your Students Ready for Our Summer Reading Contest**\
+`Teens, choose a free article, photo, video or podcast from three different sections of The New York Times, then tell us what you thought. We’ll publish a selection of your responses in June. (Deadline: May 31)`\
+https://www.nytimes.com/2026/04/21/learning/a-spring-challenge-to-get-your-students-ready-for-our-summer-reading-contest.html
+
 **For Earth Day, a Few Signs of Hope for Our Planet**\
 `In a year of grim climate and environment news, we’ve compiled several hopeful signs about our planet’s future.`\
 https://www.nytimes.com/2026/04/21/climate/earth-day-climate-change-hope.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/21/us/politics/vance-islamabad-iran-peace-talks.
 **Pentagon to Stop Requiring Members of Military to Get Flu Vaccines**\
 `Defense Secretary Pete Hegseth called the mandate “overreaching” in announcing the policy change. The vaccine will remain available to service members who want to be inoculated.`\
 https://www.nytimes.com/2026/04/21/us/politics/pentagon-to-stop-requiring-members-of-military-get-flu-vaccines.html
-
-**Nate Smith Is Bringing a Big-Tent Approach to the Newport Jazz Festival**\
-`The Grammy-winning drummer — and the event’s latest artistic director — uses new-school methods to maintain the genre’s essential tradition: live collaboration.`\
-https://www.nytimes.com/2026/04/21/arts/music/nate-smith-newport-jazz-festival-lineup.html
-
-**A Welcoming Neighborhood Hangout on the Upper East Side**\
-`Wainwright’s Tavern brings comforts and house accounts to Third Avenue, Cleo offers a new spot for rotisserie chicken downtown and more restaurant news.`\
-https://www.nytimes.com/2026/04/21/dining/wainwrights-tavern-cleo.html
 

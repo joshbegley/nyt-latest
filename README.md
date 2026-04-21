@@ -1,3 +1,19 @@
+**Guava and Cream Cheese Danish Cookie**\
+`This guava and cream cheese danish cookie recipe from Jerrelle Guy, a New York Times Cooking contributor, fulfills all the wildest dessert desires. It’s sort of a cookie, but also a cake and Danish all in one.`\
+https://www.nytimes.com/video/dining/100000010854233/guava-and-cream-cheese-danish-cookie.html
+
+**Cheesy Chile Crisp White Beans**\
+`Cheesy bean bakes, a molten staple of pantry cooking, get a fiery glow-up in this easy weeknight recipe from Melissa Clark, a food reporter for The New York Times.`\
+https://www.nytimes.com/video/dining/100000010854219/cheesy-chile-crisp-white-beans.html
+
+**Spaghetti With Garlicky Bread Crumbs and Anchovies**\
+`This is a take on a classic dish from southern Italy that tosses pasta with toasted, seasoned bread crumbs called pangrattatto.`\
+https://www.nytimes.com/video/dining/100000010854267/spaghetti-with-garlicky-bread-crumbs-and-anchovies.html
+
+**‘Michael’ Review: A Jackson Biopic Leaves Too Much Unsaid**\
+`A biographical film produced by the estate of Michael Jackson flattens its subject to scrub his reputation.`\
+https://www.nytimes.com/2026/04/21/movies/michael-review.html
+
 **Trump Is Said to Be in Talks to Send Afghans Who Aided U.S. Forces to Congo**\
 `A U.S. aid worker said that the Afghans, who were evacuated to Qatar, would face a choice between moving to the Democratic Republic of Congo and living under the Taliban.`\
 https://www.nytimes.com/2026/04/21/world/europe/afghan-refugees-congo-us.html
@@ -26,8 +42,8 @@ https://www.nytimes.com/2026/04/21/us/politics/rfk-jr-vaccines-erica-schwartz.ht
 `The man who killed one tourist at a Mexican pyramid and wounded several others had materials in his backpack tied to a 1999 U.S. attack, a possible reference to the Columbine High School massacre.`\
 https://www.nytimes.com/2026/04/21/world/americas/mexico-shooting-tourists-teotihuacan-pyramids.html
 
-**Florida Democrat Resigns From Congress 20 Minutes Before Expulsion Vote**\
-`Sheila Cherfilus-McCormick, a Florida Democrat, had been charged with stealing $5 million in federal funds. The House Ethics Committee was to take up her case Tuesday.`\
+**Florida Democrat Resigns From Congress Just as Panel Weighs Expelling Her**\
+`Sheila Cherfilus-McCormick stands accused of stealing $5 million in federal funds. She announced she would step down minutes before the House Ethics Committee was to vote on a recommendation to expel her.`\
 https://www.nytimes.com/2026/04/21/us/cherfilus-mccormick-florida.html
 
 **U.S. Turns Up Pressure on Iraq to Distance Itself From Iran**\
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/21/us/ohio-state-walter-carter-relationship-pres
 **Senate Republicans Release Budget Measure to Fund ICE Through 2029**\
 `The resolution would pave the way for Republicans to push through a $70 billion infusion to pay for immigration enforcement for the remainder of President Trump’s tenure.`\
 https://www.nytimes.com/2026/04/21/us/politics/senate-republicans-budget-ice.html
-
-**Could the Next Football Hall of Famer Be … Teddy Roosevelt?**\
-`A cabinet secretary made the case for the hero of San Juan Hill to be inducted into the Pro Football Hall of Fame. Here’s why.`\
-https://www.nytimes.com/2026/04/21/us/teddy-roosevelt-football-hall-of-fame.html
-
-**Rainforests Can Bounce Back Much Faster Than Thought, Researchers Say**\
-`Scientists long believed it would take more than a century for animals to return to deforested land. New research shows that’s not always the case.`\
-https://www.nytimes.com/2026/04/21/climate/rainforests-deforestation-fast-recovery.html
-
-**Vance’s Trip to Islamabad on Hold as U.S. Says Iran Failed to Respond to Its Terms**\
-`The delay is another hurdle in the Trump administration’s push to secure an agreement that would curb Iran’s nuclear program.`\
-https://www.nytimes.com/2026/04/21/us/politics/vance-islamabad-iran-peace-talks.html
-
-**Pentagon to Stop Requiring Members of Military to Get Flu Vaccines**\
-`Defense Secretary Pete Hegseth called the mandate “overreaching” in announcing the policy change. The vaccine will remain available to service members who want to be inoculated.`\
-https://www.nytimes.com/2026/04/21/us/politics/pentagon-to-stop-requiring-members-of-military-get-flu-vaccines.html
 
