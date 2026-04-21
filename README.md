@@ -1,3 +1,7 @@
+**Nigeria Charges Six With Treason Over Coup Plot**\
+`The group is accused of a failed coup attempt in October.`\
+https://www.nytimes.com/2026/04/21/world/africa/nigeria-coup-plot-treason-charges.html
+
 **Black Sesame Rice Krispies Treats**\
 `The combination of butter-fried black sesame seeds and toasted sesame oil creates an aromatic whammy of nutty sesame flavor in otherwise classic Rice Krispies treats.`\
 https://www.nytimes.com/video/dining/100000010854238/black-sesame-rice-krispies-treats.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/21/world/middleeast/us-iraq-security-cooperation
 **Violence Shaped Charlize Theron. It Doesn’t Define Her.**\
 `Charlize Theron sits down with “The Interview” co-host, Lulu Garcia-Navarro, to talk about how she overcame her dark family past.`\
 https://www.nytimes.com/video/podcasts/100000010851962/violence-shaped-charlize-theron-it-doesnt-define-her.html
-
-**7 New Songs You Should Hear Now**\
-`Nine Inch Nails’ LP with Boys Noize, Raye’s collaboration with Al Green, the latest from a Black Midi member and more.`\
-https://www.nytimes.com/2026/04/21/arts/music/amplifier-newsletter-new-songs-nine-inch-noize.html
 
