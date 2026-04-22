@@ -1,3 +1,15 @@
+**Gunman Who Killed Baby in Brooklyn Was Targeting Her Father, Police Say**\
+`A 7-month-old girl, Kaori Patterson-Moore, was fatally shot on a sidewalk in Williamsburg, Brooklyn, on April 1. The bullet was meant for her father, the police said.`\
+https://www.nytimes.com/2026/04/22/nyregion/infant-fatal-shooting-gangs-brooklyn.html
+
+**Four Old Women Share Their Wisdom**\
+`Readers respond to an Opinion guest essay by Roger Rosenblatt. Also: The pianist András Schiff shows a way to protest.`\
+https://www.nytimes.com/2026/04/22/opinion/old-women-aging.html
+
+**Several Arrested, Including Councilman, at Protest Against Deed Theft**\
+`City Councilman Chi Ossé and others were detained in Brooklyn at a demonstration against a practice that has led to the eviction of many longtime homeowners.`\
+https://www.nytimes.com/2026/04/22/nyregion/chi-osse-arrested-deed-theft.html
+
 **Ohio Ninth Congressional District 2026: Latest Polls**\
 `Track the latest polls in Ohio's 9th Congressional District.`\
 https://www.nytimes.com/interactive/polls/ohio-us-house-9-polls-2026.html

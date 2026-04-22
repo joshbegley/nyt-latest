@@ -1,3 +1,11 @@
+**Pakistani Officials Remain Hopeful About U.S.-Iran Talks**\
+`The seizure of two cargo vessels by Iran in the Strait of Hormuz on Wednesday cast doubt on plans for a second round of talks in Pakistan’s capital.`\
+https://www.nytimes.com/2026/04/22/world/asia/pakistan-iran-us-talks-islamabad.html
+
+**U.S. Nears Loan to Rescue Spirit Airlines**\
+`The Trump administration is negotiating a deal that would provide as much as $500 million to the struggling company, which is in its second bankruptcy in two years.`\
+https://www.nytimes.com/2026/04/22/business/trump-spirit-airlines-loan.html
+
 **Gunman Who Killed Baby in Brooklyn Was Targeting Her Father, Police Say**\
 `A 7-month-old girl, Kaori Patterson-Moore, was fatally shot on a sidewalk in Williamsburg, Brooklyn, on April 1. The bullet was meant for her father, the police said.`\
 https://www.nytimes.com/2026/04/22/nyregion/infant-fatal-shooting-gangs-brooklyn.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/22/opinion/international-world/iran-war-blockade
 **‘Half Man’ Review: Bloody Brothers**\
 `The creator of “Baby Reindeer” is back with more anger, repression and violence (and jokes) in a new series for HBO.`\
 https://www.nytimes.com/2026/04/22/arts/television/half-man-review-richard-gadd.html
-
-**C.D.C. Cancels Publication of Study Showing Benefits of Covid Vaccines**\
-`The report found that the shots cut the likelihood of hospitalizations, but the agency’s acting head said it gave an inaccurate picture of the vaccines’ effectiveness.`\
-https://www.nytimes.com/2026/04/22/us/politics/cdc-covid-vaccine-study.html
-
-**Today, In Short**\
-`“The Devil Wears Prada 2” premiere. Day-in-my-life videos. And a smoking ban in Britain.`\
-https://www.nytimes.com/2026/04/22/briefing/today-in-short.html
 
