@@ -1,3 +1,7 @@
+**Pope Leo, Visiting African Prison, Urges Inmates to Find Hope Amid Despair**\
+`“Life is not defined solely by one’s mistakes,” the pope told inmates being held in a port city of Equatorial Guinea.`\
+https://www.nytimes.com/2026/04/22/world/africa/pope-leo-equatorial-guinea.html
+
 **Man Accused of Killing 3 in Spree Near Atlanta Dies in Jail**\
 `Olaolukitan Adon Abel, a 26-year-old Navy veteran, had been charged with killing a man and two women in a series of attacks across suburban Atlanta.`\
 https://www.nytimes.com/2026/04/22/us/atlanta-killings-suspect-jail-death.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/22/business/mrbeast-lawsuit-harassment-claims.ht
 **Tiny Love Stories: ‘Even Our Waitress Was Bored’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/04/22/style/tiny-modern-love-stories-even-our-waitress-was-bored.html
-
-**Republicans Have One Midterm Edge, and It’s Worth $600 Million**\
-`Even as the party faces a worrisome political environment and its candidates are outraised by Democratic ones, powerful Republican groups and super PACs have built a colossal advantage.`\
-https://www.nytimes.com/2026/04/22/us/politics/democrat-republican-midterm-election-fundraising.html
 
