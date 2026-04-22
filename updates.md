@@ -1,3 +1,23 @@
+**Inside Kash Patel’s F.B.I.**\
+`Current and former employees discussed the changes under the Trump administration they say are undermining the agency and making America less safe.`\
+https://www.nytimes.com/2026/04/22/podcasts/the-daily/kash-patel-fbi.html
+
+**Democrats Win Big in Election Map Fight, and Influencers Push Nicotine as a Health Hack**\
+`Plus, how rainforests can bounce back.`\
+https://www.nytimes.com/2026/04/22/podcasts/the-headlines/virginia-referendum-influencers-nicotine.html
+
+**Connections Companion No. 1,047**\
+`Scroll down for hints and conversation about the puzzle for Thursday, April 23, 2026.`\
+https://www.nytimes.com/2026/04/22/crosswords/connections-companion-1047.html
+
+**Strands Sidekick No. 781**\
+`Scroll down for hints and conversation about the puzzle for Thursday, April 23, 2026.`\
+https://www.nytimes.com/2026/04/22/crosswords/strands-sidekick-781.html
+
+**Wordle Review No. 1,769**\
+`Scroll down for hints and conversation about the puzzle for Thursday, April 23, 2026.`\
+https://www.nytimes.com/2026/04/22/crosswords/wordle-review-1769.html
+
 **Oil Prices Creep Up as Investors Weigh Cease-Fire Extension**\
 `Oil prices stablized as investors scrambled to make sense of President Trump’s decision to extend the cease-fire with Iran`\
 https://www.nytimes.com/2026/04/22/business/oi-gas-stocks-iran.html

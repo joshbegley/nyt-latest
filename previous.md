@@ -1,3 +1,23 @@
+**Inside Kash Patel’s F.B.I.**\
+`Current and former employees discussed the changes under the Trump administration they say are undermining the agency and making America less safe.`\
+https://www.nytimes.com/2026/04/22/podcasts/the-daily/kash-patel-fbi.html
+
+**Democrats Win Big in Election Map Fight, and Influencers Push Nicotine as a Health Hack**\
+`Plus, how rainforests can bounce back.`\
+https://www.nytimes.com/2026/04/22/podcasts/the-headlines/virginia-referendum-influencers-nicotine.html
+
+**Connections Companion No. 1,047**\
+`Scroll down for hints and conversation about the puzzle for Thursday, April 23, 2026.`\
+https://www.nytimes.com/2026/04/22/crosswords/connections-companion-1047.html
+
+**Strands Sidekick No. 781**\
+`Scroll down for hints and conversation about the puzzle for Thursday, April 23, 2026.`\
+https://www.nytimes.com/2026/04/22/crosswords/strands-sidekick-781.html
+
+**Wordle Review No. 1,769**\
+`Scroll down for hints and conversation about the puzzle for Thursday, April 23, 2026.`\
+https://www.nytimes.com/2026/04/22/crosswords/wordle-review-1769.html
+
 **Oil Prices Creep Up as Investors Weigh Cease-Fire Extension**\
 `Oil prices stablized as investors scrambled to make sense of President Trump’s decision to extend the cease-fire with Iran`\
 https://www.nytimes.com/2026/04/22/business/oi-gas-stocks-iran.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/04/22/science/astronomy-hetdex-dark-sky-energy.html
 **College Where Charlie Kirk Was Killed Cancels Speech**\
 `Utah Valley University was thrilled that Sharon McMahon, a best-selling author, would speak at its graduation. And then her old posts resurfaced.`\
 https://www.nytimes.com/2026/04/22/us/politics/sharon-mcmahon-utah-valley-university-charlie-kirk.html
-
-**A Modern Living Room With Reminders of the Past**\
-`Sarah Zames blends contemporary designs with family treasures in her Brooklyn apartment.`\
-https://www.nytimes.com/2026/04/22/realestate/sarah-zames-living-room-design-details.html
-
-**In Senegal, a Dance School Where ‘Everything Is Alive’**\
-`The École des Sables has established itself as Africa’s premier dance-training hub. Yet money concerns, and a new port nearby, make its future precarious.`\
-https://www.nytimes.com/2026/04/22/arts/dance/ecole-des-sables-germaine-acogny.html
-
-**California Is Rife With Hospice Fraud. But Whose Fault Is It?**\
-`The Trump administration and Democratic state leaders are blaming each other for what everyone agrees is a big problem. The president has targeted California and Gov. Gavin Newsom in particular.`\
-https://www.nytimes.com/2026/04/22/us/california-hospice-fraud.html
-
-**Texas Governor Uses Trump-Style Tactics in Fight With Texas Cities Over ICE**\
-`Gov. Greg Abbott gave the leaders of Houston, Dallas and Austin until Wednesday to amend their policies to his liking, or return over $150 million in police funding.`\
-https://www.nytimes.com/2026/04/22/us/texas-abbott-trump-ice-cities-funding.html
-
-**$900,000 Homes in West Virginia, Illinois and Arizona**\
-`A 1792 Federal-style house in Shepherdstown, W.Va., an 1894 Arts & Crafts house in Wilmette, Ill., and a 1940s cottage in Phoenix.`\
-https://www.nytimes.com/2026/04/22/realestate/homes-for-sale-shepherdstown-wilmette-phoenix.html
 
