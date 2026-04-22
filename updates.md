@@ -1,3 +1,7 @@
+**2 Are Dead After ‘Chemical Emergency’ at a West Virginia Plant**\
+`As many as 30 others were treated at a hospital and at the scene after a “chemical release” of hydrogen sulfide at a plant in Nitro, W.Va., the authorities said.`\
+https://www.nytimes.com/2026/04/22/us/chemical-emergency-west-virginia-deaths.html
+
 **F.B.I. Said to Have Investigated Times Reporter After Article on Patel’s Girlfriend**\
 `The bureau said it is not pursuing a case, but the scrutiny is an example of the Trump administration weighing whether to criminalize routine news gathering.`\
 https://www.nytimes.com/2026/04/22/us/politics/fbi-times-reporter.html
