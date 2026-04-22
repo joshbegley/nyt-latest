@@ -1,3 +1,11 @@
+**A Hot Mess in Congress**\
+`We look at the dysfunction on Capitol Hill.`\
+https://www.nytimes.com/2026/04/22/briefing/a-hot-mess-in-congress.html
+
+**Dutch Panel Designs Plan to Deal With ‘Orphaned’ Nazi-Looted Art**\
+`The panel says a new Jewish foundation, not the government, should take over a massive collection of artworks whose owners have yet to be found.`\
+https://www.nytimes.com/2026/04/22/arts/design/netherlands-nazi-looted-art-jewish.html
+
 **Dutch Panel Designs Plan to Deal With ‘Orphaned’ Nazi-Looted Art**\
 `The panel says a new Jewish foundation, not the government, should take over a massive collection of artworks whose owners have yet to be found.`\
 https://www.nytimes.com/2026/04/22/arts/design/dutch-panel-designs-plan-to-deal-with-orphaned-nazi-looted-art.html

@@ -1,6 +1,10 @@
+**A Hot Mess in Congress**\
+`We look at the dysfunction on Capitol Hill.`\
+https://www.nytimes.com/2026/04/22/briefing/a-hot-mess-in-congress.html
+
 **Dutch Panel Designs Plan to Deal With ‘Orphaned’ Nazi-Looted Art**\
 `The panel says a new Jewish foundation, not the government, should take over a massive collection of artworks whose owners have yet to be found.`\
-https://www.nytimes.com/2026/04/22/arts/design/dutch-panel-designs-plan-to-deal-with-orphaned-nazi-looted-art.html
+https://www.nytimes.com/2026/04/22/arts/design/netherlands-nazi-looted-art-jewish.html
 
 **Lufthansa Cuts 20,000 Flights to Save Fuel as Iran War Fallout Spreads**\
 `Global jet fuel prices have jumped more than 70 percent since the start of the war, pressuring airlines in Europe, the largest consumers of jet fuel shipped through the Strait of Hormuz.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/22/movies/lorne-michaels-movie-documentary-snl.h
 **No, I Won’t Be Your Bridesmaid**\
 `The writer Ruhama Wolle is done with the role and its expectations. But for anyone facing a wave of weddings, she has tips.`\
 https://www.nytimes.com/2026/04/22/podcasts/modern-love-bridesmaid-tips-ruhama-wolle.html
-
-**A New Yorker Rediscovers Her City, in a Wheelchair**\
-`After losing her legs, a New York Times food writer began to feel like a tourist in her home city. So, facing her fears, she met it like one.`\
-https://www.nytimes.com/interactive/2026/04/22/travel/nyc-wheelchair-getting-around-tourism.html
 
