@@ -1,3 +1,11 @@
+**Nebraska Governor Election 2026: Latest Polls**\
+`Track the latest polls in the Nebraska governor election.`\
+https://www.nytimes.com/interactive/polls/nebraska-governor-election-polls-2026.html
+
+**¿Irán puede confiar en Trump? Las dudas dificultan las negociaciones de paz**\
+`Los dirigentes iraníes temen sufrir otro revés a manos del presidente Trump, quien desechó el acuerdo nuclear alcanzado durante el mandato de Obama tras largas negociaciones.`\
+https://www.nytimes.com/es/2026/04/22/espanol/estados-unidos/iran-trump-negociaciones-paz.html
+
 **Pilot Was Taking Pictures Before South Korean Fighter Jets Collided**\
 `A member of the other plane’s crew was making a video to commemorate the mission, the government said in a report on the 2021 crash. No one was hurt.`\
 https://www.nytimes.com/2026/04/22/world/asia/south-korean-fighter-jets-photos-phones.html
