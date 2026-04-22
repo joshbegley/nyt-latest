@@ -1,3 +1,7 @@
+**Lufthansa Cuts 20,000 Flights to Save Fuel as Iran War Fallout Spreads**\
+`Global jet fuel prices have jumped more than 70 percent since the start of the war, pressuring airlines in Europe, the largest consumers of jet fuel shipped through the Strait of Hormuz.`\
+https://www.nytimes.com/2026/04/22/business/lufthansa-cancels-flights-iran-jet-fuel.html
+
 **La guerra golpea a Asia**\
 `El daño causado a una región que durante décadas ha sido motor del crecimiento económico mundial podría ser difícil de contener.`\
 https://www.nytimes.com/es/2026/04/22/espanol/mundo/guerra-iran-asia.html

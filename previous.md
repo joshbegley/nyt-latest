@@ -1,3 +1,7 @@
+**Lufthansa Cuts 20,000 Flights to Save Fuel as Iran War Fallout Spreads**\
+`Global jet fuel prices have jumped more than 70 percent since the start of the war, pressuring airlines in Europe, the largest consumers of jet fuel shipped through the Strait of Hormuz.`\
+https://www.nytimes.com/2026/04/22/business/lufthansa-cancels-flights-iran-jet-fuel.html
+
 **La guerra golpea a Asia**\
 `El daño causado a una región que durante décadas ha sido motor del crecimiento económico mundial podría ser difícil de contener.`\
 https://www.nytimes.com/es/2026/04/22/espanol/mundo/guerra-iran-asia.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/04/22/travel/nyc-wheelchair-getting-aro
 **Inside LACMA’s Eye-Popping New Home, How Do You Find the Art?**\
 `Our critic calls the David Geffen Galleries “a beacon of glam with brains.” As a space to show art, it has problems. The Latino art is a revelation (if you can navigate the maze).`\
 https://www.nytimes.com/2026/04/22/arts/design/lacma-david-geffen-galleries.html
-
-**Dark Skies and Dark Energy Converge at a West Texas Star Party**\
-`In the Big Bend region, a portal to the early universe is enabled by the largest dark-sky reserve on Earth.`\
-https://www.nytimes.com/2026/04/22/science/astronomy-hetdex-dark-sky-energy.html
 
