@@ -1,3 +1,7 @@
+**Michael Kosta Introduces Former Labor Secretary Lori Chavez-DeRemer**\
+`“It’s always the ones you never heard of,” the late night host said on Tuesday’s “The Daily Show.”`\
+https://www.nytimes.com/2026/04/22/arts/television/michael-kosta-chavez-deremer.html
+
 **Virginia Voters Approve New Map Favoring Democrats**\
 `Virginia voters approved a new map that could flip four House seats away from Republicans going into the 2026 midterm elections. It was the latest fight in the national redistricting war.`\
 https://www.nytimes.com/video/us/politics/100000010855962/virginia-redistricting-election-map.html
