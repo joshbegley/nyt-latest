@@ -1,8 +1,12 @@
+**F.A.A. Investigates Near Miss Between Passenger Jets at J.F.K. Airport**\
+`An American Airlines regional jet flew close to an Air Canada regional jet after aborting its landing. It was the second such incident in recent days at a major U.S. airport.`\
+https://www.nytimes.com/2026/04/22/us/jfk-airport-jets-near-collision.html
+
 **Attacks along the Israel-Lebanon border put a cease-fire under strain.**\
 ``\
 https://www.nytimes.com/live/2026/04/22/world/iran-war-trump-ceasefire-talks/attacks-along-the-israel-lebanon-border-put-a-cease-fire-under-strain
 
-**The ‘Complete Collapse’ of the Job Ladder for Gen Z**\
+**There’s Another Reason Gen Z Can’t Find Work**\
 `It’s not just because of A.I. This started 40 years ago.`\
 https://www.nytimes.com/2026/04/22/opinion/gen-z-job-ladder.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/22/arts/design/manosphere-exhibition-stedelijk.h
 **Hoarding Is Driving Energy Prices Higher Everywhere**\
 `As wealthy nations scramble to secure stocks of oil, the result is higher prices for all and shortages in vulnerable countries.`\
 https://www.nytimes.com/2026/04/22/business/iran-war-oil-hoarding.html
-
-**Japan Is Used to Earthquakes, but What About a Big One?**\
-`For many people in Japan, the country’s regular tremors are not a big deal. Officials are urging them to prepare for the next catastrophic quake.`\
-https://www.nytimes.com/2026/04/22/world/asia/japan-earthquake-megaquake-tsunami.html
 

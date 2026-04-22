@@ -1,3 +1,11 @@
+**F.A.A. Investigates Near Miss Between Passenger Jets at J.F.K. Airport**\
+`An American Airlines regional jet flew close to an Air Canada regional jet after aborting its landing. It was the second such incident in recent days at a major U.S. airport.`\
+https://www.nytimes.com/2026/04/22/us/jfk-airport-jets-near-collision.html
+
+**There’s Another Reason Gen Z Can’t Find Work**\
+`It’s not just because of A.I. This started 40 years ago.`\
+https://www.nytimes.com/2026/04/22/opinion/gen-z-job-ladder.html
+
 **Attacks along the Israel-Lebanon border put a cease-fire under strain.**\
 ``\
 https://www.nytimes.com/live/2026/04/22/world/iran-war-trump-ceasefire-talks/attacks-along-the-israel-lebanon-border-put-a-cease-fire-under-strain
