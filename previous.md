@@ -1,3 +1,7 @@
+**Attacks along the Israel-Lebanon border put a cease-fire under strain.**\
+``\
+https://www.nytimes.com/live/2026/04/22/world/iran-war-trump-ceasefire-talks/attacks-along-the-israel-lebanon-border-put-a-cease-fire-under-strain
+
 **The ‘Complete Collapse’ of the Job Ladder for Gen Z**\
 `It’s not just because of A.I. This started 40 years ago.`\
 https://www.nytimes.com/2026/04/22/opinion/gen-z-job-ladder.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/22/business/iran-war-oil-hoarding.html
 **Japan Is Used to Earthquakes, but What About a Big One?**\
 `For many people in Japan, the country’s regular tremors are not a big deal. Officials are urging them to prepare for the next catastrophic quake.`\
 https://www.nytimes.com/2026/04/22/world/asia/japan-earthquake-megaquake-tsunami.html
-
-**How Good Are You at Starting Conversations?**\
-`Do you find yourself stuck after asking “How’s it going?” The Well newsletter shares alternatives to our most common conversational dead ends.`\
-https://www.nytimes.com/2026/04/22/learning/how-good-are-you-at-starting-conversations.html
 

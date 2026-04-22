@@ -1,3 +1,7 @@
+**Attacks along the Israel-Lebanon border put a cease-fire under strain.**\
+``\
+https://www.nytimes.com/live/2026/04/22/world/iran-war-trump-ceasefire-talks/attacks-along-the-israel-lebanon-border-put-a-cease-fire-under-strain
+
 **The ‘Complete Collapse’ of the Job Ladder for Gen Z**\
 `It’s not just because of A.I. This started 40 years ago.`\
 https://www.nytimes.com/2026/04/22/opinion/gen-z-job-ladder.html
