@@ -1,3 +1,11 @@
+**The Haas Brothers’ Creative Creations Are on Tour**\
+`A midcareer survey of the work by the twins Simon Haas and Nikolai Haas is touring the country.`\
+https://www.nytimes.com/2026/04/21/arts/design/haas-brothers-twins.html
+
+**Immigration Agent Is Charged With Assaulting a Protester**\
+`The officer faces a misdemeanor charge after an encounter in Colorado, becoming one of the few federal agents to be prosecuted by local officials during the immigration crackdown.`\
+https://www.nytimes.com/2026/04/21/us/durango-colorado-immigration-officer-charged-assault.html
+
 **Read the document**\
 `New York utilities present their findings concerning new statewide heat protection rules.`\
 https://www.nytimes.com/interactive/2026/04/21/us/extreme-heat-reply-comments.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/21/world/europe/uk-smoking-ban-2009.html
 **Dark Money Dominates Fund-Raising in the Virginia Referendum Vote**\
 `Of the $98 million raised by the three groups that have bought the most advertising, at least 96 percent has come from nonprofit groups that do not disclose their donors.`\
 https://www.nytimes.com/2026/04/21/us/elections/virginia-referendum-dark-money.html
-
-**What I Saw Crossing Into South Lebanon**\
-`Our visual journalist David Guttenfelder traveled with displaced people returning to their homes in southern Lebanon, as a cease-fire paused the fighting between Israel and Hezbollah.`\
-https://www.nytimes.com/video/world/middleeast/100000010848993/what-i-saw-crossing-into-south-lebanon.html
-
-**Serial Rapist Pleads Guilty to 2 Murders After Chewed Gum Links DNA to Crimes**\
-`Mitchell A. Gaff, 68, acknowledged killing two women who were sexually assaulted before being found dead in their Washington State apartments in the 1980s.`\
-https://www.nytimes.com/2026/04/21/us/washington-gum-cold-case-gaff.html
 
