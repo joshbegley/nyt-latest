@@ -1,3 +1,11 @@
+**Ice Sculpture Promoting Drake Album Melted by Fire Crews**\
+`Fire crews in Toronto hosed down a 25-foot tall ice sculpture that had been installed to promote a new album by the rapper Drake.`\
+https://www.nytimes.com/video/world/americas/100000010856788/drake-ice-sculpture-toronto.html
+
+**Not a Deal-Breaker: White House Downplays Iranian Action Near the Strait**\
+`President Trump’s threats have given way (for the moment, at least) to a more conciliatory tone about Iran’s actions in the Strait of Hormuz.`\
+https://www.nytimes.com/2026/04/22/us/politics/trump-iran-strait-of-hormuz-ships.html
+
 **Not a Deal-Breaker: White House Downplays Iranian Strikes Near the Strait**\
 `President Trump’s threats have given way (for the moment, at least) to a more conciliatory tone about Iran’s actions in the Strait of Hormuz.`\
 https://www.nytimes.com/2026/04/22/us/politics/trump-iran-strait-of-hormuz-ships.html

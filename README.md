@@ -1,3 +1,7 @@
+**Navy Secretary Is Out, Pentagon Says**\
+`John Phelan is leaving the Pentagon and the Trump administration after months of infighting with senior Pentagon leaders.`\
+https://www.nytimes.com/2026/04/22/us/politics/navy-secretary-john-phelan.html
+
 **Ice Sculpture Promoting Drake Album Melted by Fire Crews**\
 `Fire crews in Toronto hosed down a 25-foot tall ice sculpture that had been installed to promote a new album by the rapper Drake.`\
 https://www.nytimes.com/video/world/americas/100000010856788/drake-ice-sculpture-toronto.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/22/us/politics/plankey-cisa-trump-withdraws.html
 **Man Accused of Execution-Style Killing Arrested 33 Years After Double Murder**\
 `William Antonio Solis was indicted this week on three charges, including two murders from 1993 in the Bronx during a drug deal.`\
 https://www.nytimes.com/interactive/2026/04/22/nyregion/bronxcoldcase.html
-
-**Anti-Trumpism Unites Europe**\
-`Trump’s brand has sunk so low that conservatives are now joining leftist politicians in opposing him.`\
-https://www.nytimes.com/2026/04/22/world/anti-trumpism-europe-spain-italy-ukraine.html
 

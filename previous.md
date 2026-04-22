@@ -1,8 +1,12 @@
+**Ice Sculpture Promoting Drake Album Melted by Fire Crews**\
+`Fire crews in Toronto hosed down a 25-foot tall ice sculpture that had been installed to promote a new album by the rapper Drake.`\
+https://www.nytimes.com/video/world/americas/100000010856788/drake-ice-sculpture-toronto.html
+
 **Joy Harmon, Car-Washing Temptress in ‘Cool Hand Luke,’ Dies at 87**\
 `All it took was a bucket of soapy water and a slinky housedress for her to achieve movie immortality in the 1967 Paul Newman classic.`\
 https://www.nytimes.com/2026/04/22/movies/joy-harmon-dead.html
 
-**Not a Deal-Breaker: White House Downplays Iranian Strikes Near the Strait**\
+**Not a Deal-Breaker: White House Downplays Iranian Action Near the Strait**\
 `President Trump’s threats have given way (for the moment, at least) to a more conciliatory tone about Iran’s actions in the Strait of Hormuz.`\
 https://www.nytimes.com/2026/04/22/us/politics/trump-iran-strait-of-hormuz-ships.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/04/22/nyregion/bronxcoldcase.html
 **Anti-Trumpism Unites Europe**\
 `Trump’s brand has sunk so low that conservatives are now joining leftist politicians in opposing him.`\
 https://www.nytimes.com/2026/04/22/world/anti-trumpism-europe-spain-italy-ukraine.html
-
-**Yale Has Come Up With a Surefire Way to Make a Terrible Situation Worse**\
-`Don’t retreat from the world; engage it. `\
-https://www.nytimes.com/2026/04/22/opinion/yale-has-come-up-with-a-surefire-way-to-make-a-terrible-situation-worse.html
 
