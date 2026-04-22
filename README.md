@@ -1,3 +1,23 @@
+**Devin Nunes Departs Trump Media After 4 Years as C.E.O.**\
+`The former congressman said it was an “appropriate time” for a leadership change at Truth Social’s parent company, whose share price has floundered.`\
+https://www.nytimes.com/2026/04/21/business/devin-nunes-leaves-trump-media-ceo.html
+
+**The Hypocrisy of OpenAI and Palantir**\
+`A super PAC that’s funded by co-founders of Palantir, OpenAI and Andreessen Horowitz is spending millions on attack ads opposing Alex Bores’s campaign for Congress. On “The Ezra Klein Show,” the New York state assemblyman explains how tech companies have targeted his pro-regulation positions, despite publicly claiming to welcome A.I. oversight.`\
+https://www.nytimes.com/video/opinion/100000010844899/the-hypocrisy-of-openai-and-palantir.html
+
+**A Real Plan for A.I. Job Losses**\
+`What if the A.I. boom takes not just your job, but most jobs? The congressional candidate Alex Bores joins the Opinion columnist Ezra Klein to pitch an “A.I. Dividend” — a policy devised to fund a universal basic income if A.I. begins to outmatch human labor.`\
+https://www.nytimes.com/video/opinion/100000010844893/a-real-plan-for-ai-job-losses.html
+
+**The New Virginia Map Could Add Four Democratic Seats**\
+`The party now holds six of the state’s 11 seats in the U.S. House, but the proposed map could allow Democrats to win 10 of them.`\
+https://www.nytimes.com/2026/04/21/us/elections/virginia-house-map-new-districts.html
+
+**Proposed Lifetime Smoking Ban to Become Law in Britain**\
+`The proposal, which was approved by Parliament on Tuesday, will ban the supply or sale of tobacco products to anyone born in 2009 or after, permanently.`\
+https://www.nytimes.com/2026/04/21/world/europe/uk-smoking-ban-2009.html
+
 **Dark Money Dominates Fund-Raising in the Virginia Referendum Vote**\
 `Of the $98 million raised by the three groups that have bought the most advertising, at least 96 percent has come from nonprofit groups that do not disclose their donors.`\
 https://www.nytimes.com/2026/04/21/us/elections/virginia-referendum-dark-money.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/04/21/weather/fresno-tornado-california.html
 **Election Day Turnout in Virginia Is Down Significantly From 2025, After Strong Early Voting**\
 `In-person turnout on Tuesday is trailing far behind that of last year’s governor’s race, which set a state record in a nonpresidential election.`\
 https://www.nytimes.com/2026/04/21/us/elections/virginia-redistricting-election-day-turnout.html
-
-**Gates Foundation Is Conducting an External Review of Its Epstein Ties**\
-`The action comes after the release of the Epstein files, in which Bill Gates and some former advisers figure prominently.`\
-https://www.nytimes.com/2026/04/21/business/gates-foundation-jeffrey-epstein.html
-
-**A Party That Channeled Jaipur in Milan**\
-`This year at T’s annual celebration of Salone del Mobile, Milan’s Villa Necchi Campiglio was transformed with nods to India.`\
-https://www.nytimes.com/2026/04/21/t-magazine/salone-del-mobile-t-magazine-party.html
-
-**Was Tim Cook Stylish?**\
-`The unassuming look of the outgoing Apple chief executive was an asset, as he navigated pop culture, the president and following Steve Jobs.`\
-https://www.nytimes.com/2026/04/21/style/tim-cook-apple-ceo-fashion.html
-
-**D.H.S. Will Run Out of Money for Paychecks in May, Secretary Says**\
-`The issue threatens to renew chaos at airports as lawmakers remain divided over a deal to end the two-month shutdown of the Department of Homeland Security.`\
-https://www.nytimes.com/2026/04/21/us/politics/homeland-security-tsa-paychecks-mullin.html
-
-**Trump Extends Cease-Fire, Even as Peace Talks Are Put on Hold**\
-`With the cease-fire on the verge of ending, President Trump said on Tuesday that he would keep it in place until Iran’s “proposal is submitted, and discussions are concluded, one way or the other.”`\
-https://www.nytimes.com/2026/04/21/world/middleeast/trump-extends-iran-ceasefire.html
 
