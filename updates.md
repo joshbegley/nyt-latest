@@ -1,3 +1,19 @@
+**Clowning Around With Fascists, in ‘The Resistible Rise of Arturo Ui’**\
+`Mark Gatiss plays a Charlie Chaplin-like dictator in a timely Royal Shakespeare Company revival.`\
+https://www.nytimes.com/2026/04/22/theater/the-resistible-rise-of-arturo-ui-rsc-mark-gatiss.html
+
+**Supreme Court Finds Soldier Injured in Suicide Bombing Can Sue**\
+`An American soldier was injured in a 2016 suicide bombing in Afghanistan. The justices cleared the way for the soldier to proceed with a lawsuit against a military contractor.`\
+https://www.nytimes.com/2026/04/22/us/supreme-court-afghanistan-bombing.html
+
+**In Central Java, an Eco-Resort Aims to Build Sustainability Through Creativity**\
+`When an Indonesian and Australian couple bought Yabbiekayu, their first visitors were foreigners. Now, they aim to be part of a “cultural awakening” in the region.`\
+https://www.nytimes.com/2026/04/22/arts/design/eco-resort-indonesia.html
+
+**Trump’s Fed Pick Faces Tough Task Shedding ‘Sock Puppet’ Label**\
+`Kevin M. Warsh, at his confirmation hearing to lead the Federal Reserve, sought to dispel doubts that he would yield to President Trump’s demand for lower rates.`\
+https://www.nytimes.com/2026/04/22/business/trumps-warsh-fed-sock-puppet.html
+
 **With Midterms Coming Up, G.O.P. Is Bogged Down in Congress**\
 `Republican majorities are at odds on big issues as the Senate resorts to extraordinary measures to pass homeland security funding over a Democratic blockade.`\
 https://www.nytimes.com/2026/04/22/us/republicans-congress-midterm-elections.html
