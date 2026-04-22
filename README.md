@@ -1,3 +1,15 @@
+**U.S. Withholds Iraq’s Own Money Over Ties to Iran**\
+`The United States has halted dollar shipments to Iraq’s cash-based economy in an effort to force the Baghdad government to distance itself from Iran. The money comes from Iraq’s oil revenues.`\
+https://www.nytimes.com/2026/04/22/world/middleeast/iraq-us-dollars-shipment-iran.html
+
+**Plan to Move Men’s Shelter Is Temporarily Blocked by N.Y.C. Judge**\
+`The order pauses New York City’s plan to shift the intake center for homeless men from a building near Bellevue Hospital to one in the East Village.`\
+https://www.nytimes.com/2026/04/22/nyregion/nyc-homeless-shelter-east-village-order.html
+
+**Former Employee Sues MrBeast’s Company Over Harassment Claims**\
+`The former employee of the YouTube star’s production company said in a federal lawsuit that she had experienced sexual harassment and pregnancy discrimination. Beast Industries denies all of the claims.`\
+https://www.nytimes.com/2026/04/22/business/mrbeast-lawsuit-harassment-claims.html
+
 **Tiny Love Stories: ‘Even Our Waitress Was Bored’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/04/22/style/tiny-modern-love-stories-even-our-waitress-was-bored.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/22/magazine/affair-friends-wife-ethics.html
 **Whether for or Against the War, Iranians Say They’re Feeling Economic Pain**\
 `At a border crossing in Turkey, one Iranian woman said her friends struggled to afford food because there was no work to be found and strikes had forced factories to close.`\
 https://www.nytimes.com/2026/04/22/world/middleeast/iran-turkey-border.html
-
-**Crypto Entrepreneur Files Fraud Suit Against Trump Family Firm**\
-`Justin Sun, one of the largest backers of World Liberty Financial, sued the Trump family’s crypto start-up, accusing it of a fraudulent scheme to pressure him into buying digital coins.`\
-https://www.nytimes.com/2026/04/22/technology/justin-sun-crypto-world-liberty-trump.html
-
-**On Independence Day, Israel Honors Rabbi Who Called to ‘Flatten’ Gaza**\
-`Avraham Zarbiv became known on Israel’s right for demolishing buildings in Gaza. He lit a torch at a national ceremony on Tuesday evening.`\
-https://www.nytimes.com/2026/04/22/world/middleeast/israel-gaza-independence-day-rabbi-avraham-zarbiv.html
-
-**EE. UU. envía un avión a Cuba para recoger a un menor de edad en un caso de custodia transgénero**\
-`El FBI creía que el menor había sido secuestrado por un progenitor trans para potencialmente someterlo a una operación de transición de género, según los expedientes judiciales.`\
-https://www.nytimes.com/es/2026/04/22/espanol/america-latina/cuba-estados-unidos-nino-custodia-fbi.html
 
