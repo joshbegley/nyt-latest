@@ -1,3 +1,7 @@
+**Read the document**\
+`New York utilities present their findings concerning new statewide heat protection rules.`\
+https://www.nytimes.com/interactive/2026/04/21/us/extreme-heat-reply-comments.html
+
 **Small Advancement**\
 `Hoang-Kim Vu brings us an awesome Wednesday puzzle.`\
 https://www.nytimes.com/2026/04/21/crosswords/daily-puzzle-2026-04-22.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/world/middleeast/100000010848993/what-i-saw-crossi
 **Serial Rapist Pleads Guilty to 2 Murders After Chewed Gum Links DNA to Crimes**\
 `Mitchell A. Gaff, 68, acknowledged killing two women who were sexually assaulted before being found dead in their Washington State apartments in the 1980s.`\
 https://www.nytimes.com/2026/04/21/us/washington-gum-cold-case-gaff.html
-
-**Japón venderá más armas al extranjero, rompiendo con el pacifismo de posguerra**\
-`La primera ministra Sanae Takaichi revocó los límites a las exportaciones de armas mientras Japón se enfrenta a las crecientes amenazas de China y a la imprevisibilidad de Estados Unidos.`\
-https://www.nytimes.com/es/2026/04/21/espanol/mundo/japon-venta-armas.html
 

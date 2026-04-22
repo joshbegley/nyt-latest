@@ -1,3 +1,7 @@
+**Read the document**\
+`New York utilities present their findings concerning new statewide heat protection rules.`\
+https://www.nytimes.com/interactive/2026/04/21/us/extreme-heat-reply-comments.html
+
 **Small Advancement**\
 `Hoang-Kim Vu brings us an awesome Wednesday puzzle.`\
 https://www.nytimes.com/2026/04/21/crosswords/daily-puzzle-2026-04-22.html
