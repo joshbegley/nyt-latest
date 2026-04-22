@@ -1,3 +1,11 @@
+**Review: In ‘The Balusters,’ Neighborly Dysfunction Is on the Agenda**\
+`David Lindsay-Abaire’s comedy about a wealthy homeowners association thrown into disarray makes a case for the same social compact it skewers.`\
+https://www.nytimes.com/2026/04/21/theater/the-balusters-review.html
+
+**Soldados israelíes condenados a prisión por dañar una estatua de Jesús en Líbano**\
+`Una estatua de la crucifixión de Cristo fue sustituida después de que un soldado fotografiara a otro que parecía estar golpeando la cabeza de la imagen con un mazo.`\
+https://www.nytimes.com/es/2026/04/21/espanol/mundo/soldados-israel-jesus-sancion.html
+
 **What Was the 2015 Iran Nuclear Deal?**\
 `President Trump has ridiculed President Barack Obama and the agreement, which he withdrew from during his first term. His critics say he could have avoided a war had he left it in place.`\
 https://www.nytimes.com/2026/04/21/us/politics/2015-iran-nuclear-deal.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/21/us/politics/tucker-carlson-trump-apology.html
 **Teotihuacán Gunman Had Materials About U.S. Mass Shooting, Officials Say**\
 `The gunman who killed a Canadian tourist and wounded 13 other people at the Teotihuacán pyramids had materials in his backpack referencing a 1999 mass shooting in the United States, Mexican officials said.`\
 https://www.nytimes.com/video/world/americas/100000010853856/mexico-pyramids-teotihuacan-shooting.html
-
-**A.I. ‘Hallucinations’ Created Errors in Court Filing, Top Law Firm Says**\
-`Sullivan & Cromwell apologized for submitting a court document that had fake citations created by artificial intelligence.`\
-https://www.nytimes.com/2026/04/21/nyregion/sullivan-cromwell-ai-hallucination.html
-
-**Polls in Virginia Show Close Margins and Few Undecided Voters**\
-`A redistricting measure is asking voters to temporarily reverse a decision they made less than six years ago.`\
-https://www.nytimes.com/2026/04/21/us/elections/virginia-redistricting-measure-polls.html
 
