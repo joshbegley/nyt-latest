@@ -1,3 +1,19 @@
+**Pilot Was Taking Pictures Before South Korean Fighter Jets Collided**\
+`A member of the other plane’s crew was making a video to commemorate the mission, the government said in a report on the 2021 crash. No one was hurt.`\
+https://www.nytimes.com/2026/04/22/world/asia/south-korean-fighter-jets-photos-phones.html
+
+**Bessent Backs Financial Support for Oil-Rich U.A.E.**\
+`The Treasury secretary said that currency swap line would benefit both the United Arab Emirates and the United States.`\
+https://www.nytimes.com/2026/04/22/us/politics/bessent-support-emirates.html
+
+**I Had an Affair With My Friend’s Wife. Should I Tell Him?**\
+`I didn’t even know he was married, let alone to her.`\
+https://www.nytimes.com/2026/04/22/magazine/affair-friends-wife-ethics.html
+
+**Whether for or against the war, Iranians say they’re feeling economic pain.**\
+``\
+https://www.nytimes.com/live/2026/04/22/world/iran-war-trump-ceasefire-talks/iran-turkey-border
+
 **Crypto Entrepreneur Files Fraud Suit Against Trump Family Firm**\
 `Justin Sun, one of the largest backers of World Liberty Financial, sued the Trump family’s crypto start-up, accusing it of a fraudulent scheme to pressure him into buying digital coins.`\
 https://www.nytimes.com/2026/04/22/technology/justin-sun-crypto-world-liberty-trump.html
