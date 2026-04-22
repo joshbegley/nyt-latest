@@ -1,3 +1,15 @@
+**Charlize Theron on the Night Her Mother Killed Her Father in Self-Defense**\
+`The actor Charlize Theron grew up with an alcoholic father. When she was 15, he tried to kill her and her mother, shooting through her bedroom door. Her mother shot and killed him in an act that was found to be self-defense. On “The Interview,” she talks about her childhood, her early career, her new movie, “Apex” and more.`\
+https://www.nytimes.com/video/magazine/100000010857921/charlize-theron-on-the-night-her-mother-killed-her-father-in-self-defense.html
+
+**Trump’s Nominee to Lead Cyber Agency Withdraws After Languishing in Senate**\
+`Confirmation for the nominee, Sean Plankey, had been pending in the Senate for over a year.`\
+https://www.nytimes.com/2026/04/22/us/politics/plankey-cisa-trump-withdraws.html
+
+**Man Accused of Execution-Style Killing Arrested 33 Years After Double Murder**\
+`William Antonio Solis was indicted this week on three charges, including two murders from 1993 in the Bronx during a drug deal.`\
+https://www.nytimes.com/interactive/2026/04/22/nyregion/bronxcoldcase.html
+
 **Anti-Trumpism Unites Europe**\
 `Trump’s brand has sunk so low that conservatives are now joining leftist politicians in opposing him.`\
 https://www.nytimes.com/2026/04/22/world/anti-trumpism-europe-spain-italy-ukraine.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/22/movies/nathalie-baye-dead.html
 **2 Are Dead After ‘Chemical Emergency’ at a West Virginia Plant**\
 `As many as 30 others were treated at a hospital and at the scene after a “chemical release” of hydrogen sulfide at a plant in Nitro, W.Va., the authorities said.`\
 https://www.nytimes.com/2026/04/22/us/chemical-emergency-west-virginia-deaths.html
-
-**The Only Good News From Iran**\
-`How the war’s disruptions are accelerating the shift to green energy.`\
-https://www.nytimes.com/2026/04/22/opinion/iran-energy-climate.html
-
-**How the Southern Poverty Law Center Drew the Ire of Conservatives**\
-`Before the Justice Department filed charges against it, the group had faced scandal and critiques from both the left and the right.`\
-https://www.nytimes.com/2026/04/22/us/southern-poverty-law-center-doj.html
-
-**Celeste Rivas Hernandez Died of ‘Multiple Penetrating Injuries,’ Medical Examiner Says**\
-`The Los Angeles police sought to keep the findings secret for months as they investigated the singer D4vd, who was charged this week with the murder of the teenager.`\
-https://www.nytimes.com/2026/04/22/arts/music/d4vd-celeste-rivas-hernandez-cause-of-death.html
 
