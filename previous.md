@@ -1,3 +1,7 @@
+**To Iran, Trump Blinked First by Extending the Cease-Fire**\
+`Iran’s leaders believe that they can withstand an enduring standoff longer than President Trump. The strategy could be economically devastating for average Iranians.`\
+https://www.nytimes.com/2026/04/22/world/europe/iran-trump-ceasefire.html
+
 **A Hot Mess in Congress**\
 `We look at the dysfunction on Capitol Hill.`\
 https://www.nytimes.com/2026/04/22/briefing/a-hot-mess-in-congress.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/22/opinion/trump-crypto-pardons-corruption.html
 **4 Takeaways From ‘Lorne,’ About the ‘S.N.L.’ Creator Lorne Michaels**\
 `The documentary offers a rare behind-the-scenes look at a producer even his cast members say is hard to know.`\
 https://www.nytimes.com/2026/04/22/movies/lorne-michaels-movie-documentary-snl.html
-
-**No, I Won’t Be Your Bridesmaid**\
-`The writer Ruhama Wolle is done with the role and its expectations. But for anyone facing a wave of weddings, she has tips.`\
-https://www.nytimes.com/2026/04/22/podcasts/modern-love-bridesmaid-tips-ruhama-wolle.html
 

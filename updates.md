@@ -1,3 +1,7 @@
+**To Iran, Trump Blinked First by Extending the Cease-Fire**\
+`Iran’s leaders believe that they can withstand an enduring standoff longer than President Trump. The strategy could be economically devastating for average Iranians.`\
+https://www.nytimes.com/2026/04/22/world/europe/iran-trump-ceasefire.html
+
 **A Hot Mess in Congress**\
 `We look at the dysfunction on Capitol Hill.`\
 https://www.nytimes.com/2026/04/22/briefing/a-hot-mess-in-congress.html
