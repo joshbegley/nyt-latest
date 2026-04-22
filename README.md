@@ -31,7 +31,7 @@ https://www.nytimes.com/2026/04/21/business/pancreas-cancer-experimental-drugs.h
 https://www.nytimes.com/2026/04/21/arts/design/olafur-eliasson-sphere-salt-lake.html
 
 **Man Is Charged With Providing Gun to Louisiana Shooter**\
-`Investigators said they were trying to determine how the man who carried out a shooting spree that left eight children dead in Shreveport, La., obtained a weapon despite a prior conviction.`\
+`The arrest came two days after a gunman carried out a rampage that left eight children dead in Shreveport and injured two adults.`\
 https://www.nytimes.com/2026/04/21/us/man-charged-providing-gun-shreveport-shooter.html
 
 **The Vienna Climate Biennale Contrasts Chaos with Hope**\
