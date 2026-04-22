@@ -1,3 +1,11 @@
+**Review: In ‘The Balusters,’ Neighborly Dysfunction Is on the Agenda**\
+`David Lindsay-Abaire’s comedy about a wealthy homeowners association thrown into disarray makes a case for the same social compact it skewers.`\
+https://www.nytimes.com/2026/04/21/theater/the-balusters-review.html
+
+**Soldados israelíes condenados a prisión por dañar una estatua de Jesús en Líbano**\
+`Una estatua de la crucifixión de Cristo fue sustituida después de que un soldado fotografiara a otro que parecía estar golpeando la cabeza de la imagen con un mazo.`\
+https://www.nytimes.com/es/2026/04/21/espanol/mundo/soldados-israel-jesus-sancion.html
+
 **What Was the 2015 Iran Nuclear Deal?**\
 `President Trump has ridiculed President Barack Obama and the agreement, which he withdrew from during his first term. His critics say he could have avoided a war had he left it in place.`\
 https://www.nytimes.com/2026/04/21/us/politics/2015-iran-nuclear-deal.html
