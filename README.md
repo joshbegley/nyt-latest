@@ -1,3 +1,7 @@
+**La guerra golpea a Asia**\
+`El daño causado a una región que durante décadas ha sido motor del crecimiento económico mundial podría ser difícil de contener.`\
+https://www.nytimes.com/es/2026/04/22/espanol/mundo/guerra-iran-asia.html
+
 **Inside Kash Patel’s F.B.I.**\
 `Current and former employees discussed the changes under the Trump administration they say are undermining the agency and making America less safe.`\
 https://www.nytimes.com/2026/04/22/podcasts/the-daily/kash-patel-fbi.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/22/arts/design/lacma-david-geffen-galleries.html
 **Dark Skies and Dark Energy Converge at a West Texas Star Party**\
 `In the Big Bend region, a portal to the early universe is enabled by the largest dark-sky reserve on Earth.`\
 https://www.nytimes.com/2026/04/22/science/astronomy-hetdex-dark-sky-energy.html
-
-**College Where Charlie Kirk Was Killed Cancels Speech**\
-`Utah Valley University was thrilled that Sharon McMahon, a best-selling author, would speak at its graduation. And then her old posts resurfaced.`\
-https://www.nytimes.com/2026/04/22/us/politics/sharon-mcmahon-utah-valley-university-charlie-kirk.html
 
