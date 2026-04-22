@@ -1,3 +1,23 @@
+**With G.O.P. in Dismay, Redistricting Fight Turns to Florida and the Courtroom**\
+`A victory for Democrats in Virginia has left Republicans grumbling about their strategy and looking to the next phase of a coast-to-coast battle.`\
+https://www.nytimes.com/2026/04/22/us/redistricting-republicans-democrats-florida-virginia.html
+
+**Lululemon Names Former Nike Executive as Its Next C.E.O.**\
+`Heidi O’Neill will join the maker of yoga pants and other athletic clothing in September.`\
+https://www.nytimes.com/2026/04/22/business/lululemon-new-ceo-heidi-oneill.html
+
+**Charlize Theron on the Night Her Mother Killed Her Father in Self-Defense**\
+`The actor Charlize Theron grew up with an alcoholic father. When she was 15, he tried to kill her and her mother, shooting through her bedroom door. Her mother shot and killed him in an act that was found to be self-defense. On “The Interview,” she talks about her childhood, her early career, her new movie, “Apex” and more.`\
+https://www.nytimes.com/video/magazine/100000010857921/charlize-theron-on-the-night-her-mother-killed-her-father-in-self-defense.html
+
+**Trump’s Nominee to Lead Cyber Agency Withdraws After Languishing in Senate**\
+`Confirmation for the nominee, Sean Plankey, had been pending in the Senate for over a year.`\
+https://www.nytimes.com/2026/04/22/us/politics/plankey-cisa-trump-withdraws.html
+
+**Man Accused of Execution-Style Killing Arrested 33 Years After Double Murder**\
+`William Antonio Solis was indicted this week on three charges, including two murders from 1993 in the Bronx during a drug deal.`\
+https://www.nytimes.com/interactive/2026/04/22/nyregion/bronxcoldcase.html
+
 **Anti-Trumpism Unites Europe**\
 `Trump’s brand has sunk so low that conservatives are now joining leftist politicians in opposing him.`\
 https://www.nytimes.com/2026/04/22/world/anti-trumpism-europe-spain-italy-ukraine.html
