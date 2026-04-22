@@ -1,3 +1,11 @@
+**Ohio Ninth Congressional District 2026: Latest Polls**\
+`Track the latest polls in Ohio's 9th Congressional District.`\
+https://www.nytimes.com/interactive/polls/ohio-us-house-9-polls-2026.html
+
+**Louisiana Fifth Congressional District 2026: Latest Polls**\
+`Track the latest polls in Louisiana's 5th Congressional District.`\
+https://www.nytimes.com/interactive/polls/louisiana-us-house-5-polls-2026.html
+
 **Nebraska Governor Election 2026: Latest Polls**\
 `Track the latest polls in the Nebraska governor election.`\
 https://www.nytimes.com/interactive/polls/nebraska-governor-election-polls-2026.html
