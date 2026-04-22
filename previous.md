@@ -16,7 +16,7 @@ https://www.nytimes.com/2026/04/22/business/trumps-warsh-fed-sock-puppet.html
 
 **With Midterms Coming Up, G.O.P. Is Bogged Down in Congress**\
 `Republican majorities are at odds on big issues as the Senate resorts to extraordinary measures to pass homeland security funding over a Democratic blockade.`\
-https://www.nytimes.com/2026/04/22/us/with-midterms-coming-up-gop-is-bogged-down-in-congress.html
+https://www.nytimes.com/2026/04/22/us/republicans-congress-midterm-elections.html
 
 **She Wanted a ‘Free Birth.’ It Put Her and Her Baby in Grave Danger.**\
 `Promoters of free birthing reject any type of medical intervention during pregnancy or delivery. The movement has been trending on social media, but critics warn it poses serious risks.`\

@@ -1,3 +1,7 @@
+**With Midterms Coming Up, G.O.P. Is Bogged Down in Congress**\
+`Republican majorities are at odds on big issues as the Senate resorts to extraordinary measures to pass homeland security funding over a Democratic blockade.`\
+https://www.nytimes.com/2026/04/22/us/republicans-congress-midterm-elections.html
+
 **In 1968, They Saw Earth From the Moon for the First Time**\
 `It’s the most iconic image of our planet. Decades before the Artemis II mission, a group of astronauts experienced an Earth rising for the first time. This Earth Day, hear their story and the story of a photograph that changed the way we think about our place in the universe.`\
 https://www.nytimes.com/video/opinion/100000010851813/in-1968-they-saw-earth-from-the-moon-for-the-first-time.html
