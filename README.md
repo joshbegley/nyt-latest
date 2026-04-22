@@ -1,3 +1,7 @@
+**What Was the 2015 Iran Nuclear Deal?**\
+`President Trump has ridiculed President Barack Obama and the agreement, which he withdrew from during his first term. His critics say he could have avoided a war had he left it in place.`\
+https://www.nytimes.com/2026/04/21/us/politics/2015-iran-nuclear-deal.html
+
 **The Poetry Challenge Day 3: How do you write about love?**\
 `It helps to be a little heartsick — and the best poet of your time. Our weeklong poetry challenge continues, including W.H. Auden himself reading “The More Loving One.”`\
 https://www.nytimes.com/interactive/2026/books/wh-auden-poetry-challenge-bio.html
@@ -48,7 +52,7 @@ https://www.nytimes.com/video/world/middleeast/100000010848993/what-i-saw-crossi
 
 **Serial Rapist Pleads Guilty to 2 Murders After Chewed Gum Links DNA to Crimes**\
 `Mitchell A. Gaff, 68, acknowledged killing two women who were sexually assaulted before being found dead in their Washington State apartments in the 1980s.`\
-https://www.nytimes.com/2026/04/21/us/washington-gum-cold-case-allen-gaff.html
+https://www.nytimes.com/2026/04/21/us/washington-gum-cold-case-gaff.html
 
 **Japón venderá más armas al extranjero, rompiendo con el pacifismo de posguerra**\
 `La primera ministra Sanae Takaichi revocó los límites a las exportaciones de armas mientras Japón se enfrenta a las crecientes amenazas de China y a la imprevisibilidad de Estados Unidos.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/21/nyregion/sullivan-cromwell-ai-hallucination.h
 **Polls in Virginia Show Close Margins and Few Undecided Voters**\
 `A redistricting measure is asking voters to temporarily reverse a decision they made less than six years ago.`\
 https://www.nytimes.com/2026/04/21/us/elections/virginia-redistricting-measure-polls.html
-
-**SpaceX Strikes Deal With Cursor for $60 Billion**\
-`The potential acquisition comes as Elon Musk’s rocket and satellite maker, which has been emphasizing artificial intelligence, is preparing to go public.`\
-https://www.nytimes.com/2026/04/21/business/spacex-cursor-deal.html
 
