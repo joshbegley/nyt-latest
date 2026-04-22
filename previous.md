@@ -1,3 +1,27 @@
+**Olafur Eliasson Uses Art and Sound to Raise Climate Awareness in Utah**\
+`The Danish Icelandic artist reflects on his childhood and how it influenced and empowered his art.`\
+https://www.nytimes.com/2026/04/21/arts/design/olafur-eliasson-sphere-salt-lake.html
+
+**Man Is Charged With Providing Gun to Louisiana Shooter**\
+`Investigators said they were trying to determine how the man who carried out a shooting spree that left eight children dead in Shreveport, La., obtained a weapon despite a prior conviction.`\
+https://www.nytimes.com/2026/04/21/us/man-charged-providing-gun-shreveport-shooter.html
+
+**The Vienna Climate Biennale Contrasts Chaos with Hope**\
+`In a world marked by ecological, social and political crises, the art festival aims to get people talking, thinking and ready to imagine a better world.`\
+https://www.nytimes.com/2026/04/21/arts/design/vienna-climate-biennale-2026.html
+
+**A Rural Mural’s Transition From Artifact to Art**\
+`Grant Wood’s 1926 “Corn Room” has been restored and will anchor an exhibition celebrating its centennial at the Sioux City Art Center in Iowa.`\
+https://www.nytimes.com/2026/04/21/arts/design/grant-wood-corn-room-mural.html
+
+**Democrats Win a Big Battle in the Fight Over Midterm Maps: 4 Takeaways**\
+`Virginia’s approval of an aggressive gerrymander could give Democrats up to four additional House seats as they seek to win back Congress.`\
+https://www.nytimes.com/2026/04/21/us/elections/redistricting-gerrymandering-virginia-takeaways.html
+
+**An Installation in Nature has Climate Lessons for Humans**\
+`With lichen, mechanical artwork and a barrel of snowflakes, “Climate Clock” will wind along a trail through the forests outside Oulu, Finland.`\
+https://www.nytimes.com/2026/04/21/arts/design/finland-climate-clock.html
+
 **The Haas Brothers’ Creative Creations Are on Tour**\
 `A midcareer survey of the work by the twins Simon Haas and Nikolai Haas is touring the country.`\
 https://www.nytimes.com/2026/04/21/arts/design/haas-brothers-twins.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/04/21/us/appeals-court-upholds-texas-ten-commandmen
 **Anger Evident in Red Areas as Virginians Cast Their Votes**\
 `“It’s just unfair for the Democrats to have 10 seats and the Republicans to have one,” one voter said of the proposed House map. But others in the state’s blue northern areas were more supportive.`\
 https://www.nytimes.com/2026/04/21/us/elections/virginia-voters-referendum.html
-
-**Devin Nunes Departs Trump Media After 4 Years as C.E.O.**\
-`The former congressman said it was an “appropriate time” for a leadership change at Truth Social’s parent company, whose share price has floundered.`\
-https://www.nytimes.com/2026/04/21/business/devin-nunes-leaves-trump-media-ceo.html
-
-**The Hypocrisy of OpenAI and Palantir**\
-`A super PAC that’s funded by co-founders of Palantir, OpenAI and Andreessen Horowitz is spending millions on attack ads opposing Alex Bores’s campaign for Congress. On “The Ezra Klein Show,” the New York state assemblyman explains how tech companies have targeted his pro-regulation positions, despite publicly claiming to welcome A.I. oversight.`\
-https://www.nytimes.com/video/opinion/100000010844899/the-hypocrisy-of-openai-and-palantir.html
-
-**A Real Plan for A.I. Job Losses**\
-`What if the A.I. boom takes not just your job, but most jobs? The congressional candidate Alex Bores joins the Opinion columnist Ezra Klein to pitch an “A.I. Dividend” — a policy devised to fund a universal basic income if A.I. begins to outmatch human labor.`\
-https://www.nytimes.com/video/opinion/100000010844893/a-real-plan-for-ai-job-losses.html
-
-**The New Virginia Map Could Add Four Democratic Seats**\
-`The party now holds six of the state’s 11 seats in the U.S. House, but the proposed map could allow Democrats to win 10 of them.`\
-https://www.nytimes.com/2026/04/21/us/elections/virginia-house-map-new-districts.html
-
-**Proposed Lifetime Smoking Ban to Become Law in Britain**\
-`The proposal, which was approved by Parliament on Tuesday, will ban the supply or sale of tobacco products to anyone born in 2009 or after, permanently.`\
-https://www.nytimes.com/2026/04/21/world/europe/uk-smoking-ban-2009.html
-
-**Dark Money Dominates Fund-Raising in the Virginia Referendum Vote**\
-`Of the $98 million raised by the three groups that have bought the most advertising, at least 96 percent has come from nonprofit groups that do not disclose their donors.`\
-https://www.nytimes.com/2026/04/21/us/elections/virginia-referendum-dark-money.html
 

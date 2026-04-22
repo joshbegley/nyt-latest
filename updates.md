@@ -1,3 +1,27 @@
+**Olafur Eliasson Uses Art and Sound to Raise Climate Awareness in Utah**\
+`The Danish Icelandic artist reflects on his childhood and how it influenced and empowered his art.`\
+https://www.nytimes.com/2026/04/21/arts/design/olafur-eliasson-sphere-salt-lake.html
+
+**Man Is Charged With Providing Gun to Louisiana Shooter**\
+`Investigators said they were trying to determine how the man who carried out a shooting spree that left eight children dead in Shreveport, La., obtained a weapon despite a prior conviction.`\
+https://www.nytimes.com/2026/04/21/us/man-charged-providing-gun-shreveport-shooter.html
+
+**The Vienna Climate Biennale Contrasts Chaos with Hope**\
+`In a world marked by ecological, social and political crises, the art festival aims to get people talking, thinking and ready to imagine a better world.`\
+https://www.nytimes.com/2026/04/21/arts/design/vienna-climate-biennale-2026.html
+
+**A Rural Mural’s Transition From Artifact to Art**\
+`Grant Wood’s 1926 “Corn Room” has been restored and will anchor an exhibition celebrating its centennial at the Sioux City Art Center in Iowa.`\
+https://www.nytimes.com/2026/04/21/arts/design/grant-wood-corn-room-mural.html
+
+**Democrats Win a Big Battle in the Fight Over Midterm Maps: 4 Takeaways**\
+`Virginia’s approval of an aggressive gerrymander could give Democrats up to four additional House seats as they seek to win back Congress.`\
+https://www.nytimes.com/2026/04/21/us/elections/redistricting-gerrymandering-virginia-takeaways.html
+
+**An Installation in Nature has Climate Lessons for Humans**\
+`With lichen, mechanical artwork and a barrel of snowflakes, “Climate Clock” will wind along a trail through the forests outside Oulu, Finland.`\
+https://www.nytimes.com/2026/04/21/arts/design/finland-climate-clock.html
+
 **The Haas Brothers’ Creative Creations Are on Tour**\
 `A midcareer survey of the work by the twins Simon Haas and Nikolai Haas is touring the country.`\
 https://www.nytimes.com/2026/04/21/arts/design/haas-brothers-twins.html
