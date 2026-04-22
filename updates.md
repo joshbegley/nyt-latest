@@ -1,3 +1,7 @@
+**La guerra golpea a Asia**\
+`El daño causado a una región que durante décadas ha sido motor del crecimiento económico mundial podría ser difícil de contener.`\
+https://www.nytimes.com/es/2026/04/22/espanol/mundo/guerra-iran-asia.html
+
 **Inside Kash Patel’s F.B.I.**\
 `Current and former employees discussed the changes under the Trump administration they say are undermining the agency and making America less safe.`\
 https://www.nytimes.com/2026/04/22/podcasts/the-daily/kash-patel-fbi.html
