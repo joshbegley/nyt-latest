@@ -1,3 +1,23 @@
+**Anthropic’s New A.I. Model Sets Off Global Alarms**\
+`Mythos has triggered emergency responses from central banks and intelligence agencies globally, as Anthropic decides who has access to the powerful model.`\
+https://www.nytimes.com/2026/04/22/technology/anthropics-mythos-ai.html
+
+**Anthropic’s Leaked Code Tests Copyright Challenges in A.I. Era**\
+`Artificial intelligence tools are making it faster than ever to reproduce creative work. Does copyright even matter anymore?`\
+https://www.nytimes.com/2026/04/22/technology/anthropic-code-leak-copyright.html
+
+**Trump’s Fed Pick Faces Tough Task Shedding ‘Sock Puppet’ Label**\
+`Kevin M. Warsh, at his confirmation hearing to be the next chair of the Federal Reserve, repeatedly sought to dispel doubts that he would be pliant to President Trump’s demand for lower interest rates.`\
+https://www.nytimes.com/2026/04/22/business/trumps-warsh-fed-sock-puppet.html
+
+**With Midterms Coming Up, G.O.P. Is Bogged Down in Congress**\
+`Republican majorities are at odds on big issues as the Senate resorts to extraordinary measures to pass homeland security funding over a Democratic blockade.`\
+https://www.nytimes.com/2026/04/22/us/with-midterms-coming-up-gop-is-bogged-down-in-congress.html
+
+**She Wanted a ‘Free Birth.’ It Put Her and Her Baby in Grave Danger.**\
+`Promoters of free birthing reject any type of medical intervention during pregnancy or delivery. The movement has been trending on social media, but critics warn it poses serious risks.`\
+https://www.nytimes.com/2026/04/22/science/free-birth-wild-pregancy-risks-home-birth.html
+
 **California Candidates to Appear in First Major Debate After Swalwell**\
 `Six candidates for governor will face off Wednesday night in a race that has been upended by Eric Swalwell’s sudden departure.`\
 https://www.nytimes.com/2026/04/22/us/california-gubernatorial-debate-swalwell.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/es/2026/04/22/espanol/mundo/guerra-iran-asia.html
 **Inside Kash Patel’s F.B.I.**\
 `Current and former employees discussed the changes under the Trump administration they say are undermining the agency and making America less safe.`\
 https://www.nytimes.com/2026/04/22/podcasts/the-daily/kash-patel-fbi.html
-
-**Democrats Win Big in Election Map Fight, and Influencers Push Nicotine as a Health Hack**\
-`Plus, how rainforests can bounce back.`\
-https://www.nytimes.com/2026/04/22/podcasts/the-headlines/virginia-referendum-influencers-nicotine.html
-
-**Connections Companion No. 1,047**\
-`Scroll down for hints and conversation about the puzzle for Thursday, April 23, 2026.`\
-https://www.nytimes.com/2026/04/22/crosswords/connections-companion-1047.html
-
-**Strands Sidekick No. 781**\
-`Scroll down for hints and conversation about the puzzle for Thursday, April 23, 2026.`\
-https://www.nytimes.com/2026/04/22/crosswords/strands-sidekick-781.html
-
-**Wordle Review No. 1,769**\
-`Scroll down for hints and conversation about the puzzle for Thursday, April 23, 2026.`\
-https://www.nytimes.com/2026/04/22/crosswords/wordle-review-1769.html
-
-**Oil Prices Rise as Investors Weigh Cease-Fire Extension**\
-`Oil prices stablized as investors scrambled to make sense of President Trump’s decision to extend the cease-fire with Iran`\
-https://www.nytimes.com/2026/04/22/business/oi-gas-stocks-iran.html
 
