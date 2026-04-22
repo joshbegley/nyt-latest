@@ -1,3 +1,19 @@
+**¿’Donnyland’? Ucrania propone rebautizar parte del Donbás en honor a Trump**\
+`La propuesta refleja una realidad global en la que los gobiernos apelan a la vanidad del presidente Trump para poner el poderío estadounidense de su parte.`\
+https://www.nytimes.com/es/2026/04/22/espanol/estados-unidos/donnyland-ucrania-trump.html
+
+**36 Hours in Your Hometown**\
+`If you were writing a travel guide to the place where you live, what would you recommend people do?`\
+https://www.nytimes.com/2026/04/22/learning/36-hours-in-your-hometown.html
+
+**Business as Usual at T Magazine, Aside From the Dancing on the Desks**\
+`“Live From the 10th Floor,” a video series, invites actors, musicians and other artists to perform at The Times’s Midtown Manhattan headquarters.`\
+https://www.nytimes.com/2026/04/22/insider/t-magazine-live-from-the-10th-floor.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/22/crosswords/spelling-bee-forum.html
+
 **Michael Kosta Introduces Former Labor Secretary Lori Chavez-DeRemer**\
 `“It’s always the ones you never heard of,” the late night host said on Tuesday’s “The Daily Show.”`\
 https://www.nytimes.com/2026/04/22/arts/television/michael-kosta-chavez-deremer.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/21/arts/design/olafur-eliasson-sphere-salt-lake.
 **Man Is Charged With Providing Gun to Louisiana Shooter**\
 `The arrest came two days after a gunman carried out a rampage that left eight children dead in Shreveport and injured two adults.`\
 https://www.nytimes.com/2026/04/21/us/man-charged-providing-gun-shreveport-shooter.html
-
-**The Vienna Climate Biennale Contrasts Chaos with Hope**\
-`In a world marked by ecological, social and political crises, the art festival aims to get people talking, thinking and ready to imagine a better world.`\
-https://www.nytimes.com/2026/04/21/arts/design/vienna-climate-biennale-2026.html
-
-**A Rural Mural’s Transition From Artifact to Art**\
-`Grant Wood’s 1926 “Corn Room” has been restored and will anchor an exhibition celebrating its centennial at the Sioux City Art Center in Iowa.`\
-https://www.nytimes.com/2026/04/21/arts/design/grant-wood-corn-room-mural.html
-
-**Democrats Win a Big Battle in the Fight Over Midterm Maps: 4 Takeaways**\
-`Virginia’s approval of an aggressive gerrymander could give Democrats up to four additional House seats as they seek to win back Congress.`\
-https://www.nytimes.com/2026/04/21/us/elections/redistricting-gerrymandering-virginia-takeaways.html
-
-**An Installation in Nature has Climate Lessons for Humans**\
-`With lichen, mechanical artwork and a barrel of snowflakes, “Climate Clock” will wind along a trail through the forests outside Oulu, Finland.`\
-https://www.nytimes.com/2026/04/21/arts/design/finland-climate-clock.html
 
