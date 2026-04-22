@@ -1,3 +1,15 @@
+**Imagining the Manosphere as a Kinder, Gentler Place**\
+`Two art exhibitions examining hypermasculine online content and its impact argue that sensitivity and vulnerability are also manly virtues.`\
+https://www.nytimes.com/2026/04/22/arts/design/manosphere-exhibition-stedelijk.html
+
+**Hoarding Is Driving Energy Prices Higher Everywhere**\
+`As wealthy nations scramble to secure stocks of oil, the result is higher prices for all and shortages in vulnerable countries.`\
+https://www.nytimes.com/2026/04/22/business/iran-war-oil-hoarding.html
+
+**Japan Is Used to Earthquakes, but What About a Big One?**\
+`For many people in Japan, the country’s regular tremors are not a big deal. Officials are urging them to prepare for the next catastrophic quake.`\
+https://www.nytimes.com/2026/04/22/world/asia/japan-earthquake-megaquake-tsunami.html
+
 **How Good Are You at Starting Conversations?**\
 `Do you find yourself stuck after asking “How’s it going?” The Well newsletter shares alternatives to our most common conversational dead ends.`\
 https://www.nytimes.com/2026/04/22/learning/how-good-are-you-at-starting-conversations.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/22/realestate/homes-for-sale-shepherdstown-wilme
 **A $440,000 Breast Reduction: How Doctors Cashed In on a Consumer Protection Law**\
 `A law meant to end surprise medical billing accidentally created a multibillion-dollar industry that is making doctors richer.`\
 https://www.nytimes.com/2026/04/22/us/politics/doctors-insurers-arbitration.html
-
-**Mars or the Moon or A.I.? Elon Musk’s Changing Goals for SpaceX.**\
-`As SpaceX prepares to go public, Mr. Musk has proposed moonshots that differ from the company’s original aim of reaching Mars.`\
-https://www.nytimes.com/2026/04/22/technology/elon-musk-spacex-ipo-goals.html
-
-**In Virginia Redistricting Win, Democrats Play Hardball to Thwart Trump**\
-`“We cannot bring a stick to a knife fight”: Democrats are increasingly open to extreme measures, including gerrymandering, when the stakes are high.`\
-https://www.nytimes.com/2026/04/22/us/elections/virginia-redistricting-trump-democrats.html
-
-**4 Drugs That May Increase Your Dementia Risk**\
-`Experts have flagged several over-the-counter and prescription medications.`\
-https://www.nytimes.com/2026/04/22/well/mind/medications-dementia-risk-increase.html
 

@@ -1,3 +1,15 @@
+**Imagining the Manosphere as a Kinder, Gentler Place**\
+`Two art exhibitions examining hypermasculine online content and its impact argue that sensitivity and vulnerability are also manly virtues.`\
+https://www.nytimes.com/2026/04/22/arts/design/manosphere-exhibition-stedelijk.html
+
+**Hoarding Is Driving Energy Prices Higher Everywhere**\
+`As wealthy nations scramble to secure stocks of oil, the result is higher prices for all and shortages in vulnerable countries.`\
+https://www.nytimes.com/2026/04/22/business/iran-war-oil-hoarding.html
+
+**Japan Is Used to Earthquakes, but What About a Big One?**\
+`For many people in Japan, the country’s regular tremors are not a big deal. Officials are urging them to prepare for the next catastrophic quake.`\
+https://www.nytimes.com/2026/04/22/world/asia/japan-earthquake-megaquake-tsunami.html
+
 **How Good Are You at Starting Conversations?**\
 `Do you find yourself stuck after asking “How’s it going?” The Well newsletter shares alternatives to our most common conversational dead ends.`\
 https://www.nytimes.com/2026/04/22/learning/how-good-are-you-at-starting-conversations.html
