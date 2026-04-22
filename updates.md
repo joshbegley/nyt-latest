@@ -1,3 +1,7 @@
+**Talking Talmud on TikTok**\
+`Rabbi Shalom Landau has found a large new audience online, some of which isn’t Jewish. He sticks to ancient wisdom and hopes for the best.`\
+https://www.nytimes.com/2026/04/22/style/rabbi-landau-tiktok-instagram.html
+
 **Pakistani Officials Remain Hopeful About U.S.-Iran Talks**\
 `The seizure of two cargo vessels by Iran in the Strait of Hormuz on Wednesday cast doubt on plans for a second round of talks in Pakistan’s capital.`\
 https://www.nytimes.com/2026/04/22/world/asia/pakistan-iran-us-talks-islamabad.html

@@ -1,3 +1,7 @@
+**Talking Talmud on TikTok**\
+`Rabbi Shalom Landau has found a large new audience online, some of which isn’t Jewish. He sticks to ancient wisdom and hopes for the best.`\
+https://www.nytimes.com/2026/04/22/style/rabbi-landau-tiktok-instagram.html
+
 **Pakistani Officials Remain Hopeful About U.S.-Iran Talks**\
 `The seizure of two cargo vessels by Iran in the Strait of Hormuz on Wednesday cast doubt on plans for a second round of talks in Pakistan’s capital.`\
 https://www.nytimes.com/2026/04/22/world/asia/pakistan-iran-us-talks-islamabad.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/22/arts/music/review-eugene-onegin-asmik-grigori
 **Iran’s Leaders Can Afford to Be Patient**\
 `Trump is betting on a quick victory, but Iran’s higher pain threshold means his blockade will prolong the war.`\
 https://www.nytimes.com/2026/04/22/opinion/international-world/iran-war-blockade-trump.html
-
-**‘Half Man’ Review: Bloody Brothers**\
-`The creator of “Baby Reindeer” is back with more anger, repression and violence (and jokes) in a new series for HBO.`\
-https://www.nytimes.com/2026/04/22/arts/television/half-man-review-richard-gadd.html
 
