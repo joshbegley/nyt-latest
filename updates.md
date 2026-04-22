@@ -1,3 +1,11 @@
+**Federal Appeals Court Upholds Texas Ten Commandments Law**\
+`The U.S. Court of Appeals for the Fifth Circuit said the law does not violate the Constitution. The plaintiffs said they planned to ask the Supreme Court to reverse the decision.`\
+https://www.nytimes.com/2026/04/21/us/appeals-court-upholds-texas-ten-commandments-law.html
+
+**Anger Evident in Red Areas as Virginians Cast Their Votes**\
+`“It’s just unfair for the Democrats to have 10 seats and the Republicans to have one,” one voter said of the proposed House map. But others in the state’s blue northern areas were more supportive.`\
+https://www.nytimes.com/2026/04/21/us/elections/virginia-voters-referendum.html
+
 **Devin Nunes Departs Trump Media After 4 Years as C.E.O.**\
 `The former congressman said it was an “appropriate time” for a leadership change at Truth Social’s parent company, whose share price has floundered.`\
 https://www.nytimes.com/2026/04/21/business/devin-nunes-leaves-trump-media-ceo.html
