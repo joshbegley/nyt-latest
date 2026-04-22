@@ -1,3 +1,31 @@
+**‘Sin duda, el peor presidente de la historia de EE. UU.’**\
+`El daño que el presidente Donald Trump le ha infligido a Estados Unidos, y al mundo, es tan enorme y amplio que resulta difícil de comprender.`\
+https://www.nytimes.com/es/2026/04/22/espanol/opinion/donald-trump-peor-presidente.html
+
+**Pesca urbana en los canales de la ‘Pequeña Venecia’**\
+`Los canales de Treviso, Italia, están repletos de carpas, cachos y truchas, que invitan a los pescadores a vadear y descubrir un mundo sereno oculto en el corazón de una ciudad.`\
+https://www.nytimes.com/es/2026/04/22/espanol/mundo/pesca-urbana-treviso.html
+
+**Bruce, el loro sin pico que se convirtió en macho alfa**\
+`La kea se hizo famosa por aprender a usar guijarros para limpiarse. Su siguiente innovación dejó atónitos a los científicos.`\
+https://www.nytimes.com/es/2026/04/22/espanol/ciencia-y-tecnologia/bruce-loro-sin-pico.html
+
+**El sarampión se llevó a mi hija. Quiero que todos sepan esto**\
+`Si más gente se hubiera vacunado, ella aún podría estar aquí.`\
+https://www.nytimes.com/es/2026/04/22/espanol/opinion/sarampion-brotes-peligros.html
+
+**Advirtió sobre los peligros de la IA. Ojalá su padre hubiera hecho caso**\
+`Ben Riley, quien escribe un boletín sobre los riesgos de los chatbots, no supo qué hacer cuando su padre empezó a confiar en la inteligencia artificial para manejar su diagnóstico de cáncer.`\
+https://www.nytimes.com/es/2026/04/22/espanol/estilos-de-vida/ia-chatbot-peligros-diagnostico-medico.html
+
+**Un tesoro musical: 10.000 conciertos grabados en Chicago ahora en línea**\
+`Aadam Jacobs grabó miles de shows desde la década de 1980, entre ellos de Nirvana antes de la fama. Ahora unos voluntarios digitalizan su colección para convertirla en un archivo histórico de libre acceso.`\
+https://www.nytimes.com/es/2026/04/22/espanol/cultura/conciertos-grabados-chicago.html
+
+**Así se viste al ‘diablo’ a la moda**\
+`La gira de prensa de El diablo viste a la moda 2 ha sido un desfile de moda para sus estrellas y sus estilistas, quienes han confiado en los chats grupales, los pantalones deportivos y el trabajo en equipo para lograrlo.`\
+https://www.nytimes.com/es/2026/04/22/espanol/estilos-de-vida/estilistas-diablo-a-la-moda-2.html
+
 **¿’Donnyland’? Ucrania propone rebautizar parte del Donbás en honor a Trump**\
 `La propuesta refleja una realidad global en la que los gobiernos apelan a la vanidad del presidente Trump para poner el poderío estadounidense de su parte.`\
 https://www.nytimes.com/es/2026/04/22/espanol/estados-unidos/donnyland-ucrania-trump.html
