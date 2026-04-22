@@ -1,3 +1,7 @@
+**Tesla Profit Rises but Remains Below Earlier Highs**\
+`The company is investing in robots and self-driving taxis that are not yet generating significant sales.`\
+https://www.nytimes.com/2026/04/22/business/tesla-earnings-report.html
+
 **Kennedy Says His Department Advises All Children to Get Measles Vaccine**\
 `Testifying on Capitol Hill, Robert F. Kennedy Jr. continued to back away from his criticism of the measles shot. But he spoke on behalf of his department, not himself.`\
 https://www.nytimes.com/2026/04/22/us/politics/kennedy-measles-vaccine.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/22/books/review/new-mystery-novels.html
 **Coinbase and Gemini Accused of Illegal Gambling in N.Y. Lawsuits**\
 `Attorney General Letitia James said the cryptocurrency giants were illegally running gambling platforms in the state after they expanded into prediction markets, which are loosely regulated.`\
 https://www.nytimes.com/2026/04/22/nyregion/coinbase-crypto-prediction-markets-lawsuit.html
-
-**Tucker Carlson lamenta haber apoyado a Trump: ‘Engañé a la gente’**\
-`El comentarista conservador dice que lo “atormentará” haber ayudado a Trump a regresar a la Casa Blanca. Ha roto con el presidente por la guerra con Irán.`\
-https://www.nytimes.com/es/2026/04/22/espanol/estados-unidos/trump-tucker-carlson.html
 
