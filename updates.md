@@ -1,3 +1,15 @@
+**EE. UU. envía un avión a Cuba para recoger a un menor de edad en un caso de custodia transgénero**\
+`El FBI creía que el menor había sido secuestrado por un progenitor trans para potencialmente someterlo a una operación de transición de género, según los expedientes judiciales.`\
+https://www.nytimes.com/es/2026/04/22/espanol/america-latina/cuba-estados-unidos-nino-custodia-fbi.html
+
+**Supreme Court Rejects Oil Company Argument in Fight Over Great Lakes Pipeline**\
+`The justices sided with Michigan officials, who have raised environmental alarms and pushed to decommission an aging section of the pipeline.`\
+https://www.nytimes.com/2026/04/22/us/supreme-court-michigan-pipeline.html
+
+**Review: At the Met, a Polished and Polite ‘Onegin’ Returns**\
+`A strong cast led by the soprano Asmik Grigorian lifts Deborah Warner’s production, which never quite convinces.`\
+https://www.nytimes.com/2026/04/22/arts/music/review-eugene-onegin-asmik-grigorian-deborah-warner.html
+
 **Iran’s Leaders Can Afford to Be Patient**\
 `Trump is betting on a quick victory, but Iran’s higher pain threshold means his blockade will prolong the war.`\
 https://www.nytimes.com/2026/04/22/opinion/international-world/iran-war-blockade-trump.html
