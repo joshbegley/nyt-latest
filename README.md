@@ -1,3 +1,7 @@
+**With peace talks postponed, Pakistanis feel the cost of the war in Iran.**\
+``\
+https://www.nytimes.com/live/2026/04/22/world/iran-war-trump-ceasefire-talks/with-peace-talks-postponed-pakistanis-feel-the-cost-of-the-war-in-iran
+
 **Oscar Schmidt, Brazilian Superstar Who Spurned the N.B.A., Dies at 68**\
 `A Hall of Fame forward, he was a scoring machine, shooting from all over the court, and an early master of the three-pointer. “There was not a shot I didn’t like,” he said.`\
 https://www.nytimes.com/2026/04/22/sports/basketball/oscar-schmidt-dead.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/22/nyregion/infant-fatal-shooting-gangs-brooklyn
 **Four Old Women Share Their Wisdom**\
 `Readers respond to an Opinion guest essay by Roger Rosenblatt. Also: The pianist András Schiff shows a way to protest.`\
 https://www.nytimes.com/2026/04/22/opinion/old-women-aging.html
-
-**Several Arrested, Including Councilman, at Protest Against Deed Theft**\
-`City Councilman Chi Ossé and others were detained in Brooklyn at a demonstration against a practice that has led to the eviction of many longtime homeowners.`\
-https://www.nytimes.com/2026/04/22/nyregion/chi-osse-arrested-deed-theft.html
 
