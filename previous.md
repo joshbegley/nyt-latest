@@ -1,3 +1,15 @@
+**At Least 2 Dead in West Virginia Chemical Spill, Officials Say**\
+`A “chemical release” of hydrogen sulfide in Nitro, W.Va., left at least two people dead, officials said.`\
+https://www.nytimes.com/video/us/100000010857484/west-virginia-chemical-spill.html
+
+**Making an Omelet Without Breaking the Bank**\
+`Plus, why eggs in California are more expensive.`\
+https://www.nytimes.com/2026/04/22/headway/newsletter-eggs-cost-economy.html
+
+**Restrictions on Transgender Students Violated Law, New York Finds**\
+`Two school districts had similar policies that required students to use facilities that were gender neutral or aligned with their sex assigned at birth.`\
+https://www.nytimes.com/2026/04/22/nyregion/transgender-schools-restrictions-long-island.html
+
 **F.B.I. Said to Have Investigated Times Reporter After Article on Patel’s Girlfriend**\
 `The bureau said it is not pursuing a case, but the scrutiny is an example of the Trump administration weighing whether to criminalize routine news gathering.`\
 https://www.nytimes.com/2026/04/22/us/politics/fbi-times-reporter.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/22/briefing/22-the-good-list-bears-ritual.html
 **Republicans Had an Earth Day Plan to Limit Species Protections. It Flopped.**\
 `House leaders abruptly canceled a vote on the measure when support started to look shaky.`\
 https://www.nytimes.com/2026/04/22/climate/house-vote-endangered-species-earth-day.html
-
-**Para Irán, Trump cedió primero al extender el alto al fuego**\
-`Los dirigentes iraníes creen que pueden resistir un enfrentamiento durante más tiempo que el presidente Trump. Esta estrategia podría tener consecuencias económicas devastadoras para los iraníes de a pie.`\
-https://www.nytimes.com/es/2026/04/22/espanol/mundo/iran-estados-unidos-guerra-alto-fuego.html
-
-**A 60-Day Deadline Could Pressure Trump on Ending the Iran War**\
-`A decades-old law allows the president to wage war without congressional approval for 60 days, then limits his options for continuing. President Trump may seek to get around it.`\
-https://www.nytimes.com/2026/04/22/us/politics/war-powers-act-explanation.html
-
-**This Is the Noir Novel for Our Times**\
-`Our columnist says Jordan Harper’s “A Violent Masterpiece” is just that: a violent masterpiece.`\
-https://www.nytimes.com/2026/04/22/books/review/new-mystery-novels.html
 

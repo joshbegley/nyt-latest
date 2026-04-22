@@ -1,3 +1,15 @@
+**At Least 2 Dead in West Virginia Chemical Spill, Officials Say**\
+`A “chemical release” of hydrogen sulfide in Nitro, W.Va., left at least two people dead, officials said.`\
+https://www.nytimes.com/video/us/100000010857484/west-virginia-chemical-spill.html
+
+**Making an Omelet Without Breaking the Bank**\
+`Plus, why eggs in California are more expensive.`\
+https://www.nytimes.com/2026/04/22/headway/newsletter-eggs-cost-economy.html
+
+**Restrictions on Transgender Students Violated Law, New York Finds**\
+`Two school districts had similar policies that required students to use facilities that were gender neutral or aligned with their sex assigned at birth.`\
+https://www.nytimes.com/2026/04/22/nyregion/transgender-schools-restrictions-long-island.html
+
 **2 Are Dead After ‘Chemical Emergency’ at a West Virginia Plant**\
 `As many as 30 others were treated at a hospital and at the scene after a “chemical release” of hydrogen sulfide at a plant in Nitro, W.Va., the authorities said.`\
 https://www.nytimes.com/2026/04/22/us/chemical-emergency-west-virginia-deaths.html
