@@ -1,3 +1,23 @@
+**Virginia Voters Approve New Map Favoring Democrats**\
+`Virginia voters approved a new map that could flip four House seats away from Republicans going into the 2026 midterm elections. It was the latest fight in the national redistricting war.`\
+https://www.nytimes.com/video/us/politics/100000010855962/virginia-redistricting-election-map.html
+
+****\
+`People carried on with grocery shopping as a strong earthquake shook a store in Hachinohe, a city in northern Japan, on Monday.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010853562/21vid-xp-quake-72486.html
+
+**Palabra del día: ‘propensity’**\
+`Esta palabra ha aparecido en 77 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/04/22/espanol/que-significa-propensity.html
+
+**Word of the Day: propensity**\
+`This word has appeared in 77 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/04/22/learning/word-of-the-day-propensity.html
+
+**Dave Mason, Songwriter Who Co-Founded Traffic, Dies at 79**\
+`The English singer and guitarist wrote mainstays of the classic-rock canon like “Feelin’ Alright?” and “Only You Know and I Know.” He also had a successful solo career.`\
+https://www.nytimes.com/2026/04/22/arts/music/mason-dave-dead.html
+
 **How China Is Building Its Next Outpost at Sea**\
 `China has been quietly and quickly building an island in disputed waters off of the coast of Vietnam over the last few months.`\
 https://www.nytimes.com/interactive/2026/04/22/world/asia/south-china-sea-island.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/04/21/arts/design/finland-climate-clock.html
 **The Haas Brothers’ Creative Creations Are on Tour**\
 `A midcareer survey of the work by the twins Simon Haas and Nikolai Haas is touring the country.`\
 https://www.nytimes.com/2026/04/21/arts/design/haas-brothers-twins.html
-
-**Immigration Agent Is Charged With Assaulting a Protester**\
-`The officer faces a misdemeanor charge after an encounter in Colorado, becoming one of the few federal agents to be prosecuted by local officials during the immigration crackdown.`\
-https://www.nytimes.com/2026/04/21/us/durango-colorado-immigration-officer-charged-assault.html
-
-**Read the document**\
-`New York utilities present their findings concerning new statewide heat protection rules.`\
-https://www.nytimes.com/interactive/2026/04/21/us/extreme-heat-reply-comments.html
-
-**Small Advancement**\
-`Hoang-Kim Vu brings us an awesome Wednesday puzzle.`\
-https://www.nytimes.com/2026/04/21/crosswords/daily-puzzle-2026-04-22.html
-
-**Here’s What the New Virginia House Map Looks Like**\
-`Democrats now hold six of the state’s 11 seats in the U.S. House, but the new map could allow the party to win 10 of them.`\
-https://www.nytimes.com/2026/04/21/us/elections/heres-what-the-new-virginia-house-map-looks-like.html
-
-**Here’s Where the National Fight Over Gerrymandered Maps Stands**\
-`With Virginia’s vote on Tuesday, Democrats pulled close to even with Republicans, who may have further cards to play in the race to gain extra House seats.`\
-https://www.nytimes.com/2026/04/21/us/elections/democrats-republicans-gerrymandering-maps.html
 
