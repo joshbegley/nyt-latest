@@ -1,3 +1,11 @@
+**How the Southern Poverty Law Center Drew the Ire of Conservatives**\
+`Before the Justice Department filed charges against it, the group had faced scandal and critiques from both the left and the right.`\
+https://www.nytimes.com/2026/04/22/us/southern-poverty-law-center-doj.html
+
+**Celeste Rivas Hernandez Died of ‘Multiple Penetrating Injuries,’ Medical Examiner Says**\
+`The Los Angeles police sought to keep the findings secret for months as they investigated the singer D4vd, who was charged this week with the murder of the teenager.`\
+https://www.nytimes.com/2026/04/22/arts/music/d4vd-celeste-rivas-hernandez-cause-of-death.html
+
 **With peace talks postponed, Pakistanis feel the cost of the war in Iran.**\
 ``\
 https://www.nytimes.com/live/2026/04/22/world/iran-war-trump-ceasefire-talks/with-peace-talks-postponed-pakistanis-feel-the-cost-of-the-war-in-iran

@@ -1,3 +1,11 @@
+**How the Southern Poverty Law Center Drew the Ire of Conservatives**\
+`Before the Justice Department filed charges against it, the group had faced scandal and critiques from both the left and the right.`\
+https://www.nytimes.com/2026/04/22/us/southern-poverty-law-center-doj.html
+
+**Celeste Rivas Hernandez Died of ‘Multiple Penetrating Injuries,’ Medical Examiner Says**\
+`The Los Angeles police sought to keep the findings secret for months as they investigated the singer D4vd, who was charged this week with the murder of the teenager.`\
+https://www.nytimes.com/2026/04/22/arts/music/d4vd-celeste-rivas-hernandez-cause-of-death.html
+
 **With peace talks postponed, Pakistanis feel the cost of the war in Iran.**\
 ``\
 https://www.nytimes.com/live/2026/04/22/world/iran-war-trump-ceasefire-talks/with-peace-talks-postponed-pakistanis-feel-the-cost-of-the-war-in-iran
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/22/world/asia/pakistan-iran-us-talks-islamabad.h
 **U.S. Weighs $500 Million Lifeline for Spirit Airlines**\
 `The Trump administration is negotiating a deal with the struggling company, which is in its second bankruptcy in two years.`\
 https://www.nytimes.com/2026/04/22/business/trump-spirit-airlines-loan.html
-
-**Gunman Who Killed Baby in Brooklyn Was Targeting Her Father, Police Say**\
-`A 7-month-old girl, Kaori Patterson-Moore, was fatally shot on a sidewalk in Williamsburg, Brooklyn, on April 1. The bullet was meant for her father, the police said.`\
-https://www.nytimes.com/2026/04/22/nyregion/infant-fatal-shooting-gangs-brooklyn.html
-
-**Four Old Women Share Their Wisdom**\
-`Readers respond to an Opinion guest essay by Roger Rosenblatt. Also: The pianist András Schiff shows a way to protest.`\
-https://www.nytimes.com/2026/04/22/opinion/old-women-aging.html
 
