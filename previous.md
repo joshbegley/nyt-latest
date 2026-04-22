@@ -1,3 +1,7 @@
+**Iran’s Leaders Can Afford to Be Patient**\
+`Trump is betting on a quick victory, but Iran’s higher pain threshold means his blockade will prolong the war.`\
+https://www.nytimes.com/2026/04/22/opinion/international-world/iran-war-blockade-trump.html
+
 **‘Half Man’ Review: Bloody Brothers**\
 `The creator of “Baby Reindeer” is back with more anger, repression and violence (and jokes) in a new series for HBO.`\
 https://www.nytimes.com/2026/04/22/arts/television/half-man-review-richard-gadd.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/22/science/trump-nih-funding-research.html
 **F.A.A. Investigates Near Miss Between Passenger Jets at J.F.K. Airport**\
 `An American Airlines regional jet flew close to an Air Canada regional jet after aborting its landing. It was the second such incident in recent days at a major U.S. airport.`\
 https://www.nytimes.com/2026/04/22/us/jfk-airport-jets-near-collision.html
-
-**Attacks along the Israel-Lebanon border put a cease-fire under strain.**\
-``\
-https://www.nytimes.com/live/2026/04/22/world/iran-war-trump-ceasefire-talks/attacks-along-the-israel-lebanon-border-put-a-cease-fire-under-strain
 

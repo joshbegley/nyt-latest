@@ -1,3 +1,7 @@
+**Iran’s Leaders Can Afford to Be Patient**\
+`Trump is betting on a quick victory, but Iran’s higher pain threshold means his blockade will prolong the war.`\
+https://www.nytimes.com/2026/04/22/opinion/international-world/iran-war-blockade-trump.html
+
 **‘Half Man’ Review: Bloody Brothers**\
 `The creator of “Baby Reindeer” is back with more anger, repression and violence (and jokes) in a new series for HBO.`\
 https://www.nytimes.com/2026/04/22/arts/television/half-man-review-richard-gadd.html
