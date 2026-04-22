@@ -1,3 +1,15 @@
+**Olivia Rodrigo Is Falling, Hard**\
+`Is Olivia Rodrigo’s new single a lovelorn head fake? Our critic Jon Caramanica explains how “Drop Dead” captures the first-blush rush of falling for someone – and why he suspects that feeling may not last.`\
+https://www.nytimes.com/video/podcasts/100000010855591/olivia-rodrigo-is-falling-hard.html
+
+**Kalshi Fines and Suspends 3 Political Candidates for Betting on Their Races**\
+`The prediction market said the candidates violated new rules as it faces growing scrutiny from lawmakers and regulators over how political betting is policed.`\
+https://www.nytimes.com/2026/04/22/us/kalshi-suspends-politicians-trading-elections.html
+
+**Judge Dismisses Sean Combs’s $100 Million Defamation Suit Against NBC**\
+`The music mogul, now imprisoned, had sued after NBCUniversal’s streaming service, Peacock aired the documentary “Diddy: The Making of a Bad Boy” last year.`\
+https://www.nytimes.com/2026/04/22/arts/music/sean-combs-defamation-lawsuit-nbc-peacock.html
+
 **Man Who Stole Kristi Noem’s Purse Gets 3 Years in Prison**\
 `Ms. Noem, the homeland security secretary at the time, was at a restaurant in Washington with her family when her bag was taken with $3,000 and her security badge inside.`\
 https://www.nytimes.com/2026/04/22/us/kristi-noem-purse-thief-sentenced.html

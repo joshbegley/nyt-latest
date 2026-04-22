@@ -1,3 +1,11 @@
+**Olivia Rodrigo Is Falling, Hard**\
+`Is Olivia Rodrigo’s new single a lovelorn head fake? Our critic Jon Caramanica explains how “Drop Dead” captures the first-blush rush of falling for someone – and why he suspects that feeling may not last.`\
+https://www.nytimes.com/video/podcasts/100000010855591/olivia-rodrigo-is-falling-hard.html
+
+**Kalshi Fines and Suspends 3 Political Candidates for Betting on Their Races**\
+`The prediction market said the candidates violated new rules as it faces growing scrutiny from lawmakers and regulators over how political betting is policed.`\
+https://www.nytimes.com/2026/04/22/us/kalshi-suspends-politicians-trading-elections.html
+
 **Man Who Stole Kristi Noem’s Purse Gets 3 Years in Prison**\
 `Ms. Noem, the homeland security secretary at the time, was at a restaurant in Washington with her family when her bag was taken with $3,000 and her security badge inside.`\
 https://www.nytimes.com/2026/04/22/us/kristi-noem-purse-thief-sentenced.html
@@ -39,7 +47,7 @@ https://www.nytimes.com/video/us/100000010854852/how-kevin-warsh-is-distancing-h
 https://www.nytimes.com/2026/04/22/arts/music/alan-osmond-dead.html
 
 **Judge Dismisses Sean Combs’s $100 Million Defamation Suit Against NBC**\
-`The now imprisoned music mogul had sued after NBCUniversal’s streaming service, Peacock aired the documentary “Diddy: The Making of a Bad Boy” last year.`\
+`The music mogul, now imprisoned, had sued after NBCUniversal’s streaming service, Peacock aired the documentary “Diddy: The Making of a Bad Boy” last year.`\
 https://www.nytimes.com/2026/04/22/arts/music/sean-combs-defamation-lawsuit-nbc-peacock.html
 
 **Iran Says It Seized Two Ships**\
@@ -69,12 +77,4 @@ https://www.nytimes.com/interactive/2026/04/22/magazine/longevity-health-quiz-nu
 **Would You Steal From Whole Foods?**\
 `Would you steal from Whole Foods? On “The Opinions,” Jia Tolentino and Hasan Piker join the Opinion culture editor Nadja Spiegelman for a candid conversation about microlooting, petty theft and the moral lines people draw, from shoplifting from big corporations to whether they’d ever dine and dash.`\
 https://www.nytimes.com/video/opinion/100000010849062/would-you-steal-from-whole-foods.html
-
-**With G.O.P. in Dismay, Redistricting Fight Turns to Florida and the Courtroom**\
-`A victory for Democrats in Virginia has left Republicans grumbling about their strategy and looking to the next phase of a coast-to-coast battle.`\
-https://www.nytimes.com/2026/04/22/us/redistricting-republicans-democrats-florida-virginia.html
-
-**Lululemon Names Former Nike Executive as Its Next C.E.O.**\
-`Heidi O’Neill will join the maker of yoga pants and other athletic clothing in September.`\
-https://www.nytimes.com/2026/04/22/business/lululemon-new-ceo-heidi-oneill.html
 
