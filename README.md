@@ -1,3 +1,15 @@
+**Yale Has Come Up With a Surefire Way to Make a Terrible Situation Worse**\
+`Don’t retreat from the world; engage it. `\
+https://www.nytimes.com/2026/04/22/opinion/yale-has-come-up-with-a-surefire-way-to-make-a-terrible-situation-worse.html
+
+**Why Virginia’s New Map Matters for the Midterms, and What’s Next**\
+`Attention now turns to Florida, and the Supreme Court.`\
+https://www.nytimes.com/2026/04/22/us/politics/virginia-redistricting-map-democrats-midterms.html
+
+**Drake’s Publicity Stunt Brings Ice, Blowtorches and Headaches to Toronto**\
+`Fire crews melted a 25-foot-tall ice structure erected to promote the rapper’s forthcoming album, “Iceman,” less than a week after an explosion for a Drake music video shook part of the city.`\
+https://www.nytimes.com/2026/04/22/world/canada/drake-album-ice-block-toronto.html
+
 **At Least 2 Dead in West Virginia Chemical Spill, Officials Say**\
 `A “chemical release” of hydrogen sulfide in Nitro, W.Va., left at least two people dead, officials said.`\
 https://www.nytimes.com/video/us/100000010857484/west-virginia-chemical-spill.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/22/arts/music/d4vd-celeste-rivas-hernandez-cause
 **With peace talks postponed, Pakistanis feel the cost of the war in Iran.**\
 ``\
 https://www.nytimes.com/live/2026/04/22/world/iran-war-trump-ceasefire-talks/with-peace-talks-postponed-pakistanis-feel-the-cost-of-the-war-in-iran
-
-**Oscar Schmidt, Brazilian Superstar Who Spurned the N.B.A., Dies at 68**\
-`A Hall of Fame forward, he was a scoring machine, shooting from all over the court, and an early master of the three-pointer. “There was not a shot I didn’t like,” he said.`\
-https://www.nytimes.com/2026/04/22/sports/basketball/oscar-schmidt-dead.html
-
-**The Good List: 6 Things to Add Delight to Your Day**\
-`Mapping happiness, Monday dinners and the rise of the scapebear.`\
-https://www.nytimes.com/2026/04/22/briefing/22-the-good-list-bears-ritual.html
-
-**Republicans Had an Earth Day Plan to Limit Species Protections. It Flopped.**\
-`House leaders abruptly canceled a vote on the measure when support started to look shaky.`\
-https://www.nytimes.com/2026/04/22/climate/house-vote-endangered-species-earth-day.html
 
