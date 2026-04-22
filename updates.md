@@ -1,3 +1,11 @@
+**The Haas Brothers’ Creative Creations Are on Tour**\
+`A midcareer survey of the work by the twins Simon Haas and Nikolai Haas is touring the country.`\
+https://www.nytimes.com/2026/04/21/arts/design/haas-brothers-twins.html
+
+**Immigration Agent Is Charged With Assaulting a Protester**\
+`The officer faces a misdemeanor charge after an encounter in Colorado, becoming one of the few federal agents to be prosecuted by local officials during the immigration crackdown.`\
+https://www.nytimes.com/2026/04/21/us/durango-colorado-immigration-officer-charged-assault.html
+
 **Read the document**\
 `New York utilities present their findings concerning new statewide heat protection rules.`\
 https://www.nytimes.com/interactive/2026/04/21/us/extreme-heat-reply-comments.html
