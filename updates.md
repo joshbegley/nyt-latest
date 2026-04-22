@@ -1,3 +1,11 @@
+**California Candidates to Appear in First Major Debate After Swalwell**\
+`Six candidates for governor will face off Wednesday night in a race that has been upended by Eric Swalwell’s sudden departure.`\
+https://www.nytimes.com/2026/04/22/us/california-gubernatorial-debate-swalwell.html
+
+**Pace of N.I.H. Funding Slows Further in Trump’s Second Year**\
+`The agency has approved far fewer new grants than it did in years past. A renewed effort to screen for disfavored terms and a loss of personnel are contributing.`\
+https://www.nytimes.com/2026/04/22/science/trump-nih-funding-research.html
+
 **Oil Prices Rise as Investors Weigh Cease-Fire Extension**\
 `Oil prices stablized as investors scrambled to make sense of President Trump’s decision to extend the cease-fire with Iran`\
 https://www.nytimes.com/2026/04/22/business/oi-gas-stocks-iran.html
