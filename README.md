@@ -1,3 +1,11 @@
+**Crypto Entrepreneur Files Fraud Suit Against Trump Family Firm**\
+`Justin Sun, one of the largest backers of World Liberty Financial, sued the Trump family’s crypto start-up, accusing it of a fraudulent scheme to pressure him into buying digital coins.`\
+https://www.nytimes.com/2026/04/22/technology/justin-sun-crypto-world-liberty-trump.html
+
+**On Independence Day, Israel Honors Rabbi Who Called to ‘Flatten’ Gaza**\
+`Avraham Zarbiv became known on Israel’s right for demolishing buildings in Gaza. He lit a torch at a national ceremony on Tuesday evening.`\
+https://www.nytimes.com/2026/04/22/world/middleeast/israel-gaza-independence-day-rabbi-avraham-zarbiv.html
+
 **EE. UU. envía un avión a Cuba para recoger a un menor de edad en un caso de custodia transgénero**\
 `El FBI creía que el menor había sido secuestrado por un progenitor trans para potencialmente someterlo a una operación de transición de género, según los expedientes judiciales.`\
 https://www.nytimes.com/es/2026/04/22/espanol/america-latina/cuba-estados-unidos-nino-custodia-fbi.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/22/technology/anthropic-code-leak-copyright.html
 **Trump’s Fed Pick Faces Tough Task Shedding ‘Sock Puppet’ Label**\
 `Kevin M. Warsh, at his confirmation hearing to lead the Federal Reserve, sought to dispel doubts that he would yield to President Trump’s demand for lower rates.`\
 https://www.nytimes.com/2026/04/22/business/trumps-warsh-fed-sock-puppet.html
-
-**With Midterms Coming Up, G.O.P. Is Bogged Down in Congress**\
-`Republican majorities are at odds on big issues as the Senate resorts to extraordinary measures to pass homeland security funding over a Democratic blockade.`\
-https://www.nytimes.com/2026/04/22/us/republicans-congress-midterm-elections.html
-
-**She Wanted a ‘Free Birth.’ It Put Her and Her Baby in Grave Danger.**\
-`Promoters of free birthing reject any type of medical intervention during pregnancy or delivery. The movement has been trending on social media, but critics warn it poses serious risks.`\
-https://www.nytimes.com/2026/04/22/science/free-birth-wild-pregancy-risks-home-birth.html
 
