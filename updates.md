@@ -1,3 +1,11 @@
+**Small Advancement**\
+`Hoang-Kim Vu brings us an awesome Wednesday puzzle.`\
+https://www.nytimes.com/2026/04/21/crosswords/daily-puzzle-2026-04-22.html
+
+**Here’s What the New Virginia House Map Looks Like**\
+`Democrats now hold six of the state’s 11 seats in the U.S. House, but the new map could allow the party to win 10 of them.`\
+https://www.nytimes.com/2026/04/21/us/elections/heres-what-the-new-virginia-house-map-looks-like.html
+
 **Here’s Where the National Fight Over Gerrymandered Maps Stands**\
 `With Virginia’s vote on Tuesday, Democrats pulled close to even with Republicans, who may have further cards to play in the race to gain extra House seats.`\
 https://www.nytimes.com/2026/04/21/us/elections/democrats-republicans-gerrymandering-maps.html

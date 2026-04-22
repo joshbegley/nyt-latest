@@ -1,3 +1,11 @@
+**Small Advancement**\
+`Hoang-Kim Vu brings us an awesome Wednesday puzzle.`\
+https://www.nytimes.com/2026/04/21/crosswords/daily-puzzle-2026-04-22.html
+
+**Here’s What the New Virginia House Map Looks Like**\
+`Democrats now hold six of the state’s 11 seats in the U.S. House, but the new map could allow the party to win 10 of them.`\
+https://www.nytimes.com/2026/04/21/us/elections/heres-what-the-new-virginia-house-map-looks-like.html
+
 **Here’s Where the National Fight Over Gerrymandered Maps Stands**\
 `With Virginia’s vote on Tuesday, Democrats pulled close to even with Republicans, who may have further cards to play in the race to gain extra House seats.`\
 https://www.nytimes.com/2026/04/21/us/elections/democrats-republicans-gerrymandering-maps.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/21/us/washington-gum-cold-case-gaff.html
 **Japón venderá más armas al extranjero, rompiendo con el pacifismo de posguerra**\
 `La primera ministra Sanae Takaichi revocó los límites a las exportaciones de armas mientras Japón se enfrenta a las crecientes amenazas de China y a la imprevisibilidad de Estados Unidos.`\
 https://www.nytimes.com/es/2026/04/21/espanol/mundo/japon-venta-armas.html
-
-**Areas to Watch in the Virginia Redistricting Election**\
-`Suburbs to the north and large cities to the south could offer insight into how support for the amendment to the state constitution is unfolding.`\
-https://www.nytimes.com/2026/04/21/us/elections/virginia-redistricting-election-counties-cities.html
-
-**Tucker Carlson Says He Is ‘Tormented’ by His Past Support for Trump**\
-`“I want to say I’m sorry for misleading people,” said the conservative commentator, who has broken sharply with the president over the war with Iran.`\
-https://www.nytimes.com/2026/04/21/us/politics/tucker-carlson-trump-apology.html
 
