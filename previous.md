@@ -1,3 +1,19 @@
+**With peace talks postponed, Pakistanis feel the cost of the war in Iran.**\
+``\
+https://www.nytimes.com/live/2026/04/22/world/iran-war-trump-ceasefire-talks/with-peace-talks-postponed-pakistanis-feel-the-cost-of-the-war-in-iran
+
+**Oscar Schmidt, Brazilian Superstar Who Spurned the N.B.A., Dies at 68**\
+`A Hall of Fame forward, he was a scoring machine, shooting from all over the court, and an early master of the three-pointer. “There was not a shot I didn’t like,” he said.`\
+https://www.nytimes.com/2026/04/22/sports/basketball/oscar-schmidt-dead.html
+
+**The Good List: 6 Things to Add Delight to Your Day**\
+`Mapping happiness, Monday dinners and the rise of the scapebear.`\
+https://www.nytimes.com/2026/04/22/briefing/22-the-good-list-bears-ritual.html
+
+**Republicans Had an Earth Day Plan to Limit Species Protections. It Flopped.**\
+`House leaders abruptly canceled a vote on the measure when support started to look shaky.`\
+https://www.nytimes.com/2026/04/22/climate/house-vote-endangered-species-earth-day.html
+
 **Para Irán, Trump cedió primero al extender el alto al fuego**\
 `Los dirigentes iraníes creen que pueden resistir un enfrentamiento durante más tiempo que el presidente Trump. Esta estrategia podría tener consecuencias económicas devastadoras para los iraníes de a pie.`\
 https://www.nytimes.com/es/2026/04/22/espanol/mundo/iran-estados-unidos-guerra-alto-fuego.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/22/nyregion/infant-fatal-shooting-gangs-brooklyn
 **Four Old Women Share Their Wisdom**\
 `Readers respond to an Opinion guest essay by Roger Rosenblatt. Also: The pianist András Schiff shows a way to protest.`\
 https://www.nytimes.com/2026/04/22/opinion/old-women-aging.html
-
-**Several Arrested, Including Councilman, at Protest Against Deed Theft**\
-`City Councilman Chi Ossé and others were detained in Brooklyn at a demonstration against a practice that has led to the eviction of many longtime homeowners.`\
-https://www.nytimes.com/2026/04/22/nyregion/chi-osse-arrested-deed-theft.html
-
-**Ohio Ninth Congressional District 2026: Latest Polls**\
-`Track the latest polls in Ohio's 9th Congressional District.`\
-https://www.nytimes.com/interactive/polls/ohio-us-house-9-polls-2026.html
-
-**Louisiana Fifth Congressional District 2026: Latest Polls**\
-`Track the latest polls in Louisiana's 5th Congressional District.`\
-https://www.nytimes.com/interactive/polls/louisiana-us-house-5-polls-2026.html
-
-**Nebraska Governor Election 2026: Latest Polls**\
-`Track the latest polls in the Nebraska governor election.`\
-https://www.nytimes.com/interactive/polls/nebraska-governor-election-polls-2026.html
 
