@@ -1,3 +1,15 @@
+**Man Who Stole Kristi Noem’s Purse Gets 3 Years in Prison**\
+`Ms. Noem, the homeland security secretary at the time, was at a restaurant in Washington with her family when her bag was taken with $3,000 and her security badge inside.`\
+https://www.nytimes.com/2026/04/22/us/kristi-noem-purse-thief-sentenced.html
+
+**King Charles Will Not Meet Epstein Victims During U.S. State Visit**\
+`Representative Ro Khanna had asked Buckingham Palace for a private meeting between the victims and King Charles during his planned visit to the U.S. next week.`\
+https://www.nytimes.com/2026/04/22/us/politics/king-charles-epstein-victims.html
+
+**Man Is Sentenced to 20 Years in 1983 Killing of Oregon Woman**\
+`Teresa Peroni, 27, was last seen on July 4, 1983, in Selma, Ore. Marcus Sanfratello, the man seen with her that day, pleaded guilty to first-degree manslaughter after his arrest last year.`\
+https://www.nytimes.com/2026/04/22/us/oregon-murder-sentenced-prison.html
+
 **Navy Secretary Is Out, Pentagon Says**\
 `John Phelan is leaving the Pentagon and the Trump administration after months of infighting with senior Pentagon leaders.`\
 https://www.nytimes.com/2026/04/22/us/politics/navy-secretary-john-phelan.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/22/us/redistricting-republicans-democrats-florid
 **Lululemon Names Former Nike Executive as Its Next C.E.O.**\
 `Heidi O’Neill will join the maker of yoga pants and other athletic clothing in September.`\
 https://www.nytimes.com/2026/04/22/business/lululemon-new-ceo-heidi-oneill.html
-
-**Charlize Theron on the Night Her Mother Killed Her Father in Self-Defense**\
-`The actor Charlize Theron grew up with an alcoholic father. When she was 15, he tried to kill her and her mother, shooting through her bedroom door. Her mother shot and killed him in an act that was found to be self-defense. On “The Interview,” she talks about her childhood, her early career, her new movie, “Apex” and more.`\
-https://www.nytimes.com/video/magazine/100000010857921/charlize-theron-on-the-night-her-mother-killed-her-father-in-self-defense.html
-
-**Trump’s Nominee to Lead Cyber Agency Withdraws After Languishing in Senate**\
-`Confirmation for the nominee, Sean Plankey, had been pending in the Senate for over a year.`\
-https://www.nytimes.com/2026/04/22/us/politics/plankey-cisa-trump-withdraws.html
-
-**Man Accused of Execution-Style Killing Arrested 33 Years After Double Murder**\
-`William Antonio Solis was indicted this week on three charges, including two murders from 1993 in the Bronx during a drug deal.`\
-https://www.nytimes.com/interactive/2026/04/22/nyregion/bronxcoldcase.html
 
