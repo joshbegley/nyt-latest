@@ -1,3 +1,7 @@
+**Oil Prices Creep Up as Investors Weigh Cease-Fire Extension**\
+`Oil prices stablized as investors scrambled to make sense of President Trump’s decision to extend the cease-fire with Iran`\
+https://www.nytimes.com/2026/04/22/business/oi-gas-stocks-iran.html
+
 **Imagining the Manosphere as a Kinder, Gentler Place**\
 `Two art exhibitions examining hypermasculine online content and its impact argue that sensitivity and vulnerability are also manly virtues.`\
 https://www.nytimes.com/2026/04/22/arts/design/manosphere-exhibition-stedelijk.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/22/us/texas-abbott-trump-ice-cities-funding.html
 **$900,000 Homes in West Virginia, Illinois and Arizona**\
 `A 1792 Federal-style house in Shepherdstown, W.Va., an 1894 Arts & Crafts house in Wilmette, Ill., and a 1940s cottage in Phoenix.`\
 https://www.nytimes.com/2026/04/22/realestate/homes-for-sale-shepherdstown-wilmette-phoenix.html
-
-**A $440,000 Breast Reduction: How Doctors Cashed In on a Consumer Protection Law**\
-`A law meant to end surprise medical billing accidentally created a multibillion-dollar industry that is making doctors richer.`\
-https://www.nytimes.com/2026/04/22/us/politics/doctors-insurers-arbitration.html
 
