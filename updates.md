@@ -1,3 +1,15 @@
+**Nathalie Baye, Versatile and Admired French Actress, Dies at 77**\
+`In films like “Day for Night,” “La Balance” and “The Return of Martin Guerre,” she was adept at portraying sensual, reflective or excitable characters.`\
+https://www.nytimes.com/2026/04/22/movies/nathalie-baye-dead.html
+
+**2 Are Dead After ‘Chemical Emergency’ at a West Virginia Plant**\
+`As many as 21 others were treated at a hospital and at the scene after a “chemical release” of hydrogen sulfide at a plant in Nitro, W. Va., the authorities said.`\
+https://www.nytimes.com/2026/04/22/us/chemical-emergency-west-virginia-deaths.html
+
+**The Only Good News From Iran**\
+`How the war’s disruptions are accelerating the shift to green energy.`\
+https://www.nytimes.com/2026/04/22/opinion/iran-energy-climate.html
+
 **How the Southern Poverty Law Center Drew the Ire of Conservatives**\
 `Before the Justice Department filed charges against it, the group had faced scandal and critiques from both the left and the right.`\
 https://www.nytimes.com/2026/04/22/us/southern-poverty-law-center-doj.html
