@@ -1,3 +1,11 @@
+**The Consequences of SpaceX’s Latest A.I. Moonshot**\
+`Elon Musk’s rocket and satellite internet titan may pay $60 billion for an A.I. coding start-up. It further clouds SpaceX’s once-simple business plan.`\
+https://www.nytimes.com/2026/04/22/business/dealbook/spacex-ai-cursor.html
+
+**Special Episode: Your Questions About the Iran War, Answered**\
+`How much does the conflict cost? And where is Secretary of State Marco Rubio?`\
+https://www.nytimes.com/2026/04/22/podcasts/the-headlines/special-episode-your-questions-about-the-iran-war-answered.html
+
 **To Iran, Trump Blinked First by Extending the Cease-Fire**\
 `Iran’s leaders believe that they can withstand an enduring standoff longer than President Trump. The strategy could be economically devastating for average Iranians.`\
 https://www.nytimes.com/2026/04/22/world/middleeast/iran-trump-ceasefire.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/22/nyregion/the-secret-rooms-that-the-subway-sys
 **Her Voice Is Unlike Anything in Opera**\
 `Vilma Jää, a Finnish folk and pop singer, is bringing her eerie and affecting traditional music to the Metropolitan Opera.`\
 https://www.nytimes.com/2026/04/22/arts/music/vilma-jaa-innocence-met-opera.html
-
-**Trump Corrupts, and Absolute Trump Corrupts Absolutely**\
-`The president is one of a kind.`\
-https://www.nytimes.com/2026/04/22/opinion/trump-crypto-pardons-corruption.html
-
-**4 Takeaways From ‘Lorne,’ About the ‘S.N.L.’ Creator Lorne Michaels**\
-`The documentary offers a rare behind-the-scenes look at a producer even his cast members say is hard to know.`\
-https://www.nytimes.com/2026/04/22/movies/lorne-michaels-movie-documentary-snl.html
 
