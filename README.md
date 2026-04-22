@@ -1,3 +1,19 @@
+**Iran Says It Seized Two Ships Near the Strait of Hormuz**\
+`A British naval agency said the two vessels had come under attack near the strait, as a U.S. blockade on Iran’s ports continued.`\
+https://www.nytimes.com/2026/04/22/world/middleeast/iran-ships-strait-of-hormuz.html
+
+**The Wealthy Steal, Too — Just Differently**\
+`America’s social contract has broken down, Hasan Piker argues, and the wealthy steal, too — just in ways that the system protects. So can shoplifting by the 99 percent be a form of political protest? Watch this episode of “The Opinions” to hear the debate.`\
+https://www.nytimes.com/video/opinion/100000010856693/the-wealthy-steal-too-just-differently.html
+
+**How Well Will You Age? Take Our Quiz.**\
+`The little daily decisions we make add up — and ultimately shape our longevity.`\
+https://www.nytimes.com/interactive/2026/04/22/magazine/longevity-health-quiz-nutrition-sleep-exercise-aging.html
+
+**Would You Steal From Whole Foods?**\
+`Would you steal from Whole Foods? On “The Opinions,” Jia Tolentino and Hasan Piker join the Opinion culture editor Nadja Spiegelman for a candid conversation about microlooting, petty theft and the moral lines people draw, from shoplifting from big corporations to whether they’d ever dine and dash.`\
+https://www.nytimes.com/video/opinion/100000010849062/would-you-steal-from-whole-foods.html
+
 **With G.O.P. in Dismay, Redistricting Fight Turns to Florida and the Courtroom**\
 `A victory for Democrats in Virginia has left Republicans grumbling about their strategy and looking to the next phase of a coast-to-coast battle.`\
 https://www.nytimes.com/2026/04/22/us/redistricting-republicans-democrats-florida-virginia.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/22/us/politics/kennedy-measles-vaccine.html
 **Iran Again Tightens Its Grip on Shipping in the Strait of Hormuz**\
 `Traffic in the strait has all but halted as Iran renews its attacks, striking two vessels on Wednesday. More than 300 ships linked to Iran have passed through the strait since the war began.`\
 https://www.nytimes.com/2026/04/22/business/strait-of-hormuz-traffic-iran.html
-
-**The Nerve Center of This Art Fair Isn’t Painting. It’s Couture.**\
-`The Independent fair will push boundaries, featuring designs by Rei Kawakubo and Comme des Garçons that blur the line between fashion and sculpture.`\
-https://www.nytimes.com/2026/04/22/arts/design/rei-kawakubo-comme-des-garcons-independent-art-fair.html
-
-**Wildfires in Georgia Destroy Homes and Set Off Evacuations**\
-`The fires are also causing poor air quality, expected to last into at least Thursday, for a corner of the Southeast.`\
-https://www.nytimes.com/2026/04/22/us/georgia-wildfires-evacuations-homes-destroyed-smoke.html
-
-**Pope Leo, Visiting African Prison, Urges Inmates to Find Hope Amid Despair**\
-`“Life is not defined solely by one’s mistakes,” the pope told inmates being held in a port city of Equatorial Guinea.`\
-https://www.nytimes.com/2026/04/22/world/africa/pope-leo-equatorial-guinea.html
-
-**Man Accused of Killing 3 in Spree Near Atlanta Dies in Jail**\
-`Olaolukitan Adon Abel, a 26-year-old Navy veteran, had been charged with killing a man and two women in a series of attacks across suburban Atlanta.`\
-https://www.nytimes.com/2026/04/22/us/atlanta-killings-suspect-jail-death.html
 
