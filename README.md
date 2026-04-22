@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘Even Our Waitress Was Bored’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/04/22/style/tiny-modern-love-stories-even-our-waitress-was-bored.html
+
+**Republicans Have One Midterm Edge, and It’s Worth $600 Million**\
+`Even as the party faces a worrisome political environment and its candidates are outraised by Democratic ones, powerful Republican groups and super PACs have built a colossal advantage.`\
+https://www.nytimes.com/2026/04/22/us/politics/democrat-republican-midterm-election-fundraising.html
+
 **Rep. David Scott, Longtime Georgia Lawmaker, Dies at 80**\
 `The former Georgia state lawmaker was an advocate for issues that affected Black communities. He drew attention for his refusal to exit politics amid health problems.`\
 https://www.nytimes.com/2026/04/22/us/politics/david-scott-dead-georgia-congress.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/22/world/middleeast/israel-gaza-independence-day
 **EE. UU. envía un avión a Cuba para recoger a un menor de edad en un caso de custodia transgénero**\
 `El FBI creía que el menor había sido secuestrado por un progenitor trans para potencialmente someterlo a una operación de transición de género, según los expedientes judiciales.`\
 https://www.nytimes.com/es/2026/04/22/espanol/america-latina/cuba-estados-unidos-nino-custodia-fbi.html
-
-**Supreme Court Rejects Oil Company Argument in Fight Over Great Lakes Pipeline**\
-`The justices sided with Michigan officials, who have raised environmental alarms and pushed to decommission an aging section of the pipeline.`\
-https://www.nytimes.com/2026/04/22/us/supreme-court-michigan-pipeline.html
-
-**Review: At the Met, a Polished and Polite ‘Onegin’ Returns**\
-`A strong cast led by the soprano Asmik Grigorian lifts Deborah Warner’s production, which never quite convinces.`\
-https://www.nytimes.com/2026/04/22/arts/music/review-eugene-onegin-asmik-grigorian-deborah-warner.html
 

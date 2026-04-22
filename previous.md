@@ -1,3 +1,7 @@
+**Rep. David Scott, Longtime Georgia Lawmaker, Dies at 80**\
+`The former Georgia state lawmaker was an advocate for issues that affected Black communities. He drew attention for his refusal to exit politics amid health problems.`\
+https://www.nytimes.com/2026/04/22/us/politics/david-scott-dead-georgia-congress.html
+
 **Talking Talmud on TikTok**\
 `Rabbi Shalom Landau has found a large new audience online, some of which isn’t Jewish. He sticks to ancient wisdom and hopes for the best.`\
 https://www.nytimes.com/2026/04/22/style/rabbi-landau-tiktok-instagram.html
@@ -50,8 +54,8 @@ https://www.nytimes.com/2026/04/22/us/politics/bessent-support-emirates.html
 `I didn’t even know he was married, let alone to her.`\
 https://www.nytimes.com/2026/04/22/magazine/affair-friends-wife-ethics.html
 
-**Whether for or against the war, Iranians say they’re feeling economic pain.**\
-``\
+**Whether for or Against the War, Iranians Say They’re Feeling Economic Pain**\
+`At a border crossing in Turkey, one Iranian woman said her friends struggled to afford food because there was no work to be found and strikes had forced factories to close.`\
 https://www.nytimes.com/2026/04/22/world/middleeast/iran-turkey-border.html
 
 **Crypto Entrepreneur Files Fraud Suit Against Trump Family Firm**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/22/us/supreme-court-michigan-pipeline.html
 **Review: At the Met, a Polished and Polite ‘Onegin’ Returns**\
 `A strong cast led by the soprano Asmik Grigorian lifts Deborah Warner’s production, which never quite convinces.`\
 https://www.nytimes.com/2026/04/22/arts/music/review-eugene-onegin-asmik-grigorian-deborah-warner.html
-
-**Iran’s Leaders Can Afford to Be Patient**\
-`Trump is betting on a quick victory, but Iran’s higher pain threshold means his blockade will prolong the war.`\
-https://www.nytimes.com/2026/04/22/opinion/international-world/iran-war-blockade-trump.html
 

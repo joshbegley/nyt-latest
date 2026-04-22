@@ -1,3 +1,11 @@
+**Rep. David Scott, Longtime Georgia Lawmaker, Dies at 80**\
+`The former Georgia state lawmaker was an advocate for issues that affected Black communities. He drew attention for his refusal to exit politics amid health problems.`\
+https://www.nytimes.com/2026/04/22/us/politics/david-scott-dead-georgia-congress.html
+
+**Whether for or Against the War, Iranians Say They’re Feeling Economic Pain**\
+`At a border crossing in Turkey, one Iranian woman said her friends struggled to afford food because there was no work to be found and strikes had forced factories to close.`\
+https://www.nytimes.com/2026/04/22/world/middleeast/iran-turkey-border.html
+
 **Whether for or against the war, Iranians say they’re feeling economic pain.**\
 ``\
 https://www.nytimes.com/2026/04/22/world/middleeast/iran-turkey-border.html
