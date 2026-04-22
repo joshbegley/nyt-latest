@@ -1,3 +1,15 @@
+**Coinbase and Gemini Accused of Illegal Gambling in N.Y. Lawsuits**\
+`Attorney General Letitia James said the cryptocurrency giants were illegally running gambling platforms in the state after they expanded into prediction markets, which are loosely regulated.`\
+https://www.nytimes.com/2026/04/22/nyregion/coinbase-crypto-prediction-markets-lawsuit.html
+
+**Tucker Carlson lamenta haber apoyado a Trump: ‘Engañé a la gente’**\
+`El comentarista conservador dice que lo “atormentará” haber ayudado a Trump a regresar a la Casa Blanca. Ha roto con el presidente por la guerra con Irán.`\
+https://www.nytimes.com/es/2026/04/22/espanol/estados-unidos/trump-tucker-carlson.html
+
+**U.S. Weighs $500 Million Lifeline for Spirit Airlines**\
+`The Trump administration is negotiating a deal with the struggling company, which is in its second bankruptcy in two years.`\
+https://www.nytimes.com/2026/04/22/business/trump-spirit-airlines-loan.html
+
 **U.S. Withholds Iraq’s Own Money Over Ties to Iran**\
 `The United States has halted dollar shipments to Iraq’s cash-based economy in an effort to force the Baghdad government to distance itself from Iran. The money comes from Iraq’s oil revenues.`\
 https://www.nytimes.com/2026/04/22/world/middleeast/iraq-us-dollars-shipment-iran.html
