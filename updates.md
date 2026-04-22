@@ -1,3 +1,11 @@
+**¿De dónde vienen todos estos meteoros?**\
+`La frecuencia de los bólidos en los cielos de nuestro planeta parece haber aumentado en los últimos meses. La NASA y otros expertos en meteoros no se ponen de acuerdo sobre qué lo explica.`\
+https://www.nytimes.com/es/2026/04/22/espanol/ciencia-y-tecnologia/meteoros-cantidad.html
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/22/world/iran-war-trump-ceasefire-talks/heres-the-latest
+
 **‘Sin duda, el peor presidente de la historia de EE. UU.’**\
 `El daño que el presidente Donald Trump le ha infligido a Estados Unidos, y al mundo, es tan enorme y amplio que resulta difícil de comprender.`\
 https://www.nytimes.com/es/2026/04/22/espanol/opinion/donald-trump-peor-presidente.html
