@@ -1,3 +1,19 @@
+**Judge Dismisses Sean Combs’s $100 Million Defamation Suit Against NBC**\
+`The now imprisoned music mogul had sued after NBCUniversal’s streaming service, Peacock aired the documentary “Diddy: The Making of a Bad Boy” last year.`\
+https://www.nytimes.com/2026/04/22/arts/music/sean-combs-defamation-lawsuit-nbc-peacock.html
+
+**Iran Says It Seized Two Ships**\
+`Also, China quietly builds an island in disputed waters. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/04/22/briefing/iran-says-it-seized-two-ships.html
+
+**Hundreds of Mothballs Spread on Florida Beach, Wildlife Officials Say**\
+`The mothballs, which are toxic to wildlife, appeared on St. Pete Beach this week, according to the state’s Fish and Wildlife Conservation Commission. Officials are investigating the episode.`\
+https://www.nytimes.com/2026/04/22/us/mothballs-florida-st-pete-beach.html
+
+**Man Arrested in Florida 33 Years After Double Murder in the Bronx**\
+`Police had recovered fingerprints after the murders in 1993, which took place while the victims’ child was in the next room. But they identified William Antonio Solis as a suspect only last year.`\
+https://www.nytimes.com/2026/04/22/nyregion/arrest-double-murder-bronx-1993.html
+
 **Iran Says It Seized Two Ships Near the Strait of Hormuz**\
 `A British naval agency said the two vessels had come under attack near the strait, as a U.S. blockade on Iran’s ports continued.`\
 https://www.nytimes.com/2026/04/22/world/middleeast/iran-ships-strait-of-hormuz.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/22/headway/newsletter-eggs-cost-economy.html
 **Restrictions on Transgender Students Violated Law, New York Finds**\
 `Two school districts had similar policies that required students to use facilities that were gender neutral or aligned with their sex assigned at birth.`\
 https://www.nytimes.com/2026/04/22/nyregion/transgender-schools-restrictions-long-island.html
-
-**F.B.I. Said to Have Investigated Times Reporter After Article on Patel’s Girlfriend**\
-`The bureau said it is not pursuing a case, but the scrutiny is an example of the Trump administration weighing whether to criminalize routine news gathering.`\
-https://www.nytimes.com/2026/04/22/us/politics/fbi-times-reporter.html
-
-**Tesla Profit Rises but Remains Below Earlier Highs**\
-`The company is investing in robots and self-driving taxis that are not yet generating significant sales.`\
-https://www.nytimes.com/2026/04/22/business/tesla-earnings-report.html
-
-**Kennedy Says His Department Advises All Children to Get Measles Vaccine**\
-`Testifying on Capitol Hill, Robert F. Kennedy Jr. continued to back away from his criticism of the measles shot. But he spoke on behalf of his department, not himself.`\
-https://www.nytimes.com/2026/04/22/us/politics/kennedy-measles-vaccine.html
-
-**Iran Again Tightens Its Grip on Shipping in the Strait of Hormuz**\
-`Traffic in the strait has all but halted as Iran renews its attacks, striking two vessels on Wednesday. More than 300 ships linked to Iran have passed through the strait since the war began.`\
-https://www.nytimes.com/2026/04/22/business/strait-of-hormuz-traffic-iran.html
 
