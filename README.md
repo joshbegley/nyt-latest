@@ -1,3 +1,15 @@
+**Clowning Around With Fascists, in ‘The Resistible Rise of Arturo Ui’**\
+`Mark Gatiss plays a Charlie Chaplin-like dictator in a timely Royal Shakespeare Company revival.`\
+https://www.nytimes.com/2026/04/22/theater/the-resistible-rise-of-arturo-ui-rsc-mark-gatiss.html
+
+**Supreme Court Finds Soldier Injured in Suicide Bombing Can Sue**\
+`An American soldier was injured in a 2016 suicide bombing in Afghanistan. The justices cleared the way for the soldier to proceed with a lawsuit against a military contractor.`\
+https://www.nytimes.com/2026/04/22/us/supreme-court-afghanistan-bombing.html
+
+**In Central Java, an Eco-Resort Aims to Build Sustainability Through Creativity**\
+`When an Indonesian and Australian couple bought Yabbiekayu, their first visitors were foreigners. Now, they aim to be part of a “cultural awakening” in the region.`\
+https://www.nytimes.com/2026/04/22/arts/design/eco-resort-indonesia.html
+
 **In 1968, They Saw Earth From the Moon for the First Time**\
 `It’s the most iconic image of our planet. Decades before the Artemis II mission, a group of astronauts experienced an Earth rising for the first time. This Earth Day, hear their story and the story of a photograph that changed the way we think about our place in the universe.`\
 https://www.nytimes.com/video/opinion/100000010851813/in-1968-they-saw-earth-from-the-moon-for-the-first-time.html
@@ -11,7 +23,7 @@ https://www.nytimes.com/2026/04/22/technology/anthropics-mythos-ai.html
 https://www.nytimes.com/2026/04/22/technology/anthropic-code-leak-copyright.html
 
 **Trump’s Fed Pick Faces Tough Task Shedding ‘Sock Puppet’ Label**\
-`Kevin M. Warsh, at his confirmation hearing to be the next chair of the Federal Reserve, repeatedly sought to dispel doubts that he would be pliant to President Trump’s demand for lower interest rates.`\
+`Kevin M. Warsh, at his confirmation hearing to lead the Federal Reserve, sought to dispel doubts that he would yield to President Trump’s demand for lower rates.`\
 https://www.nytimes.com/2026/04/22/business/trumps-warsh-fed-sock-puppet.html
 
 **With Midterms Coming Up, G.O.P. Is Bogged Down in Congress**\
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/22/world/middleeast/iran-trump-ceasefire.html
 **A Hot Mess in Congress**\
 `We look at the dysfunction on Capitol Hill.`\
 https://www.nytimes.com/2026/04/22/briefing/a-hot-mess-in-congress.html
-
-**Dutch Panel Designs Plan to Deal With ‘Orphaned’ Nazi-Looted Art**\
-`The panel says a new Jewish foundation, not the government, should take over a massive collection of artworks whose owners have yet to be found.`\
-https://www.nytimes.com/2026/04/22/arts/design/netherlands-nazi-looted-art-jewish.html
-
-**Lufthansa Cuts 20,000 Flights to Save Fuel as Iran War Fallout Spreads**\
-`Global jet fuel prices have jumped more than 70 percent since the start of the war, pressuring airlines in Europe, the largest consumers of jet fuel shipped through the Strait of Hormuz.`\
-https://www.nytimes.com/2026/04/22/business/lufthansa-cancels-flights-iran-jet-fuel.html
-
-**La guerra golpea a Asia**\
-`El daño causado a una región que durante décadas ha sido motor del crecimiento económico mundial podría ser difícil de contener.`\
-https://www.nytimes.com/es/2026/04/22/espanol/mundo/guerra-iran-asia.html
 
