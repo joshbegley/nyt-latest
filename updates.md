@@ -1,3 +1,7 @@
+**Man Is Charged With Providing Gun to Louisiana Shooter**\
+`The arrest came two days after a gunman carried out a rampage that left eight children dead in Shreveport and injured two adults.`\
+https://www.nytimes.com/2026/04/21/us/man-charged-providing-gun-shreveport-shooter.html
+
 **Pope Leo Is Skipping Some of Africa’s Biggest Catholic Nations**\
 `As the pontiff arrives in the tiny authoritarian nation of Equatorial Guinea, some Catholics in Africa say they are excited about his visit but are feeling a little left out.`\
 https://www.nytimes.com/2026/04/22/world/africa/pope-leo-visit-snubbed.html
