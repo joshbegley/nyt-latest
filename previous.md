@@ -1,3 +1,19 @@
+**Kennedy Says His Department Advises All Children to Get Measles Vaccine**\
+`Testifying on Capitol Hill, Robert F. Kennedy Jr. continued to back away from his criticism of the measles shot. But he spoke on behalf of his department, not himself.`\
+https://www.nytimes.com/2026/04/22/us/politics/kennedy-measles-vaccine.html
+
+**Iran Again Tightens Its Grip on Shipping in the Strait of Hormuz**\
+`Traffic in the strait has all but halted as Iran renews its attacks, striking two vessels on Wednesday. More than 300 ships linked to Iran have passed through the strait since the war began.`\
+https://www.nytimes.com/2026/04/22/business/strait-of-hormuz-traffic-iran.html
+
+**The Nerve Center of This Art Fair Isn’t Painting. It’s Couture.**\
+`The Independent fair will push boundaries, featuring designs by Rei Kawakubo and Comme des Garçons that blur the line between fashion and sculpture.`\
+https://www.nytimes.com/2026/04/22/arts/design/rei-kawakubo-comme-des-garcons-independent-art-fair.html
+
+**Wildfires in Georgia Destroy Homes and Set Off Evacuations**\
+`The fires are also causing poor air quality, expected to last into at least Thursday, for a corner of the Southeast.`\
+https://www.nytimes.com/2026/04/22/us/georgia-wildfires-evacuations-homes-destroyed-smoke.html
+
 **Pope Leo, Visiting African Prison, Urges Inmates to Find Hope Amid Despair**\
 `“Life is not defined solely by one’s mistakes,” the pope told inmates being held in a port city of Equatorial Guinea.`\
 https://www.nytimes.com/2026/04/22/world/africa/pope-leo-equatorial-guinea.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/22/nyregion/coinbase-crypto-prediction-markets-l
 **Tucker Carlson lamenta haber apoyado a Trump: ‘Engañé a la gente’**\
 `El comentarista conservador dice que lo “atormentará” haber ayudado a Trump a regresar a la Casa Blanca. Ha roto con el presidente por la guerra con Irán.`\
 https://www.nytimes.com/es/2026/04/22/espanol/estados-unidos/trump-tucker-carlson.html
-
-**U.S. Withholds Iraq’s Own Money Over Ties to Iran**\
-`The United States has halted dollar shipments to Iraq’s cash-based economy in an effort to force the Baghdad government to distance itself from Iran. The money comes from Iraq’s oil revenues.`\
-https://www.nytimes.com/2026/04/22/world/middleeast/iraq-us-dollars-shipment-iran.html
-
-**Plan to Move Men’s Shelter Is Temporarily Blocked by N.Y.C. Judge**\
-`The order pauses New York City’s plan to shift the intake center for homeless men from a building near Bellevue Hospital to one in the East Village.`\
-https://www.nytimes.com/2026/04/22/nyregion/nyc-homeless-shelter-east-village-order.html
-
-**Former Employee Sues MrBeast’s Company Over Harassment Claims**\
-`The former employee of the YouTube star’s production company said in a federal lawsuit that she had experienced sexual harassment and pregnancy discrimination. Beast Industries denies all of the claims.`\
-https://www.nytimes.com/2026/04/22/business/mrbeast-lawsuit-harassment-claims.html
-
-**Tiny Love Stories: ‘Even Our Waitress Was Bored’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://www.nytimes.com/2026/04/22/style/tiny-modern-love-stories-even-our-waitress-was-bored.html
 

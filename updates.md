@@ -1,3 +1,19 @@
+**Kennedy Says His Department Advises All Children to Get Measles Vaccine**\
+`Testifying on Capitol Hill, Robert F. Kennedy Jr. continued to back away from his criticism of the measles shot. But he spoke on behalf of his department, not himself.`\
+https://www.nytimes.com/2026/04/22/us/politics/kennedy-measles-vaccine.html
+
+**Iran Again Tightens Its Grip on Shipping in the Strait of Hormuz**\
+`Traffic in the strait has all but halted as Iran renews its attacks, striking two vessels on Wednesday. More than 300 ships linked to Iran have passed through the strait since the war began.`\
+https://www.nytimes.com/2026/04/22/business/strait-of-hormuz-traffic-iran.html
+
+**The Nerve Center of This Art Fair Isn’t Painting. It’s Couture.**\
+`The Independent fair will push boundaries, featuring designs by Rei Kawakubo and Comme des Garçons that blur the line between fashion and sculpture.`\
+https://www.nytimes.com/2026/04/22/arts/design/rei-kawakubo-comme-des-garcons-independent-art-fair.html
+
+**Wildfires in Georgia Destroy Homes and Set Off Evacuations**\
+`The fires are also causing poor air quality, expected to last into at least Thursday, for a corner of the Southeast.`\
+https://www.nytimes.com/2026/04/22/us/georgia-wildfires-evacuations-homes-destroyed-smoke.html
+
 **Pope Leo, Visiting African Prison, Urges Inmates to Find Hope Amid Despair**\
 `“Life is not defined solely by one’s mistakes,” the pope told inmates being held in a port city of Equatorial Guinea.`\
 https://www.nytimes.com/2026/04/22/world/africa/pope-leo-equatorial-guinea.html
