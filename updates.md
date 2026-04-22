@@ -1,3 +1,7 @@
+**Dutch Panel Designs Plan to Deal With ‘Orphaned’ Nazi-Looted Art**\
+`The panel says a new Jewish foundation, not the government, should take over a massive collection of artworks whose owners have yet to be found.`\
+https://www.nytimes.com/2026/04/22/arts/design/dutch-panel-designs-plan-to-deal-with-orphaned-nazi-looted-art.html
+
 **Lufthansa Cuts 20,000 Flights to Save Fuel as Iran War Fallout Spreads**\
 `Global jet fuel prices have jumped more than 70 percent since the start of the war, pressuring airlines in Europe, the largest consumers of jet fuel shipped through the Strait of Hormuz.`\
 https://www.nytimes.com/2026/04/22/business/lufthansa-cancels-flights-iran-jet-fuel.html
