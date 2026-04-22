@@ -1,3 +1,7 @@
+**How China Is Building Its Next Outpost at Sea**\
+`China has been quietly and quickly building an island in disputed waters off of the coast of Vietnam over the last few months.`\
+https://www.nytimes.com/interactive/2026/04/22/world/asia/south-china-sea-island.html
+
 **Pope Leo Is Skipping Some of Africa’s Biggest Catholic Nations**\
 `As the pontiff arrives in the tiny authoritarian nation of Equatorial Guinea, some Catholics in Africa say they are excited about his visit but are feeling a little left out.`\
 https://www.nytimes.com/2026/04/22/world/africa/pope-leo-visit-snubbed.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/21/us/elections/heres-what-the-new-virginia-hous
 **Here’s Where the National Fight Over Gerrymandered Maps Stands**\
 `With Virginia’s vote on Tuesday, Democrats pulled close to even with Republicans, who may have further cards to play in the race to gain extra House seats.`\
 https://www.nytimes.com/2026/04/21/us/elections/democrats-republicans-gerrymandering-maps.html
-
-**Review: In ‘The Balusters,’ Neighborly Dysfunction Is on the Agenda**\
-`David Lindsay-Abaire’s comedy about a wealthy homeowners association thrown into disarray makes a case for the same social compact it skewers.`\
-https://www.nytimes.com/2026/04/21/theater/the-balusters-review.html
 
