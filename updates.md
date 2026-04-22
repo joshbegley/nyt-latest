@@ -1,3 +1,39 @@
+**Joy Harmon, Car-Washing Temptress in ‘Cool Hand Luke,’ Dies at 87**\
+`All it took was a bucket of soapy water and a slinky housedress for her to achieve movie immortality in the 1967 Paul Newman classic.`\
+https://www.nytimes.com/2026/04/22/movies/joy-harmon-dead.html
+
+**Not a Deal-Breaker: White House Downplays Iranian Strikes Near the Strait**\
+`President Trump’s threats have given way (for the moment, at least) to a more conciliatory tone about Iran’s actions in the Strait of Hormuz.`\
+https://www.nytimes.com/2026/04/22/us/politics/white-house-downplays-iranian-strikes-near-the-strait.html
+
+**RFK Jr. Defends Trump’s Mathematically Impossible Drug Discount Claims**\
+`President Trump has claimed that he has secured discounts of 400 to 1,500 percent on prescription drugs. A price discount cannot be more than 100 percent because that would lower the price to zero.`\
+https://www.nytimes.com/2026/04/22/us/politics/rfk-jr-trump-impossible-drug-discounts.html
+
+**How Kevin Warsh Is Distancing Himself From Trump**\
+`Lawmakers questioned the ability of Kevin Warsh, President Trump’s pick for Fed chair, to lead the central bank independently. Colby Smith explains how Mr. Warsh tried to distance himself from the president.`\
+https://www.nytimes.com/video/us/100000010854852/how-kevin-warsh-is-distancing-himself-from-trump.html
+
+**Alan Osmond, Who Led His Brothers in a Boy Band, Dies at 76**\
+`He was the eldest original member of the Osmonds, a family singing group that hit it big in the 1970s with songs like “One Bad Apple.”`\
+https://www.nytimes.com/2026/04/22/arts/music/alan-osmond-dead.html
+
+**Judge Dismisses Sean Combs’s $100 Million Defamation Suit Against NBC**\
+`The now imprisoned music mogul had sued after NBCUniversal’s streaming service, Peacock aired the documentary “Diddy: The Making of a Bad Boy” last year.`\
+https://www.nytimes.com/2026/04/22/arts/music/sean-combs-defamation-lawsuit-nbc-peacock.html
+
+**Iran Says It Seized Two Ships**\
+`Also, China quietly builds an island in disputed waters. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/04/22/briefing/iran-says-it-seized-two-ships.html
+
+**Hundreds of Mothballs Spread on Florida Beach, Wildlife Officials Say**\
+`The mothballs, which are toxic to wildlife, appeared on St. Pete Beach this week, according to the state’s Fish and Wildlife Conservation Commission. Officials are investigating the episode.`\
+https://www.nytimes.com/2026/04/22/us/mothballs-florida-st-pete-beach.html
+
+**Man Arrested in Florida 33 Years After Double Murder in the Bronx**\
+`Police had recovered fingerprints after the murders in 1993, which took place while the victims’ child was in the next room. But they identified William Antonio Solis as a suspect only last year.`\
+https://www.nytimes.com/2026/04/22/nyregion/arrest-double-murder-bronx-1993.html
+
 **Iran Says It Seized Two Ships Near the Strait of Hormuz**\
 `A British naval agency said the two vessels had come under attack near the strait, as a U.S. blockade on Iran’s ports continued.`\
 https://www.nytimes.com/2026/04/22/world/middleeast/iran-ships-strait-of-hormuz.html

@@ -1,3 +1,39 @@
+**Joy Harmon, Car-Washing Temptress in ‘Cool Hand Luke,’ Dies at 87**\
+`All it took was a bucket of soapy water and a slinky housedress for her to achieve movie immortality in the 1967 Paul Newman classic.`\
+https://www.nytimes.com/2026/04/22/movies/joy-harmon-dead.html
+
+**Not a Deal-Breaker: White House Downplays Iranian Strikes Near the Strait**\
+`President Trump’s threats have given way (for the moment, at least) to a more conciliatory tone about Iran’s actions in the Strait of Hormuz.`\
+https://www.nytimes.com/2026/04/22/us/politics/white-house-downplays-iranian-strikes-near-the-strait.html
+
+**RFK Jr. Defends Trump’s Mathematically Impossible Drug Discount Claims**\
+`President Trump has claimed that he has secured discounts of 400 to 1,500 percent on prescription drugs. A price discount cannot be more than 100 percent because that would lower the price to zero.`\
+https://www.nytimes.com/2026/04/22/us/politics/rfk-jr-trump-impossible-drug-discounts.html
+
+**How Kevin Warsh Is Distancing Himself From Trump**\
+`Lawmakers questioned the ability of Kevin Warsh, President Trump’s pick for Fed chair, to lead the central bank independently. Colby Smith explains how Mr. Warsh tried to distance himself from the president.`\
+https://www.nytimes.com/video/us/100000010854852/how-kevin-warsh-is-distancing-himself-from-trump.html
+
+**Alan Osmond, Who Led His Brothers in a Boy Band, Dies at 76**\
+`He was the eldest original member of the Osmonds, a family singing group that hit it big in the 1970s with songs like “One Bad Apple.”`\
+https://www.nytimes.com/2026/04/22/arts/music/alan-osmond-dead.html
+
+**Judge Dismisses Sean Combs’s $100 Million Defamation Suit Against NBC**\
+`The now imprisoned music mogul had sued after NBCUniversal’s streaming service, Peacock aired the documentary “Diddy: The Making of a Bad Boy” last year.`\
+https://www.nytimes.com/2026/04/22/arts/music/sean-combs-defamation-lawsuit-nbc-peacock.html
+
+**Iran Says It Seized Two Ships**\
+`Also, China quietly builds an island in disputed waters. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/04/22/briefing/iran-says-it-seized-two-ships.html
+
+**Hundreds of Mothballs Spread on Florida Beach, Wildlife Officials Say**\
+`The mothballs, which are toxic to wildlife, appeared on St. Pete Beach this week, according to the state’s Fish and Wildlife Conservation Commission. Officials are investigating the episode.`\
+https://www.nytimes.com/2026/04/22/us/mothballs-florida-st-pete-beach.html
+
+**Man Arrested in Florida 33 Years After Double Murder in the Bronx**\
+`Police had recovered fingerprints after the murders in 1993, which took place while the victims’ child was in the next room. But they identified William Antonio Solis as a suspect only last year.`\
+https://www.nytimes.com/2026/04/22/nyregion/arrest-double-murder-bronx-1993.html
+
 **Iran Says It Seized Two Ships Near the Strait of Hormuz**\
 `A British naval agency said the two vessels had come under attack near the strait, as a U.S. blockade on Iran’s ports continued.`\
 https://www.nytimes.com/2026/04/22/world/middleeast/iran-ships-strait-of-hormuz.html
@@ -41,40 +77,4 @@ https://www.nytimes.com/2026/04/22/world/anti-trumpism-europe-spain-italy-ukrain
 **Yale Has Come Up With a Surefire Way to Make a Terrible Situation Worse**\
 `Don’t retreat from the world; engage it. `\
 https://www.nytimes.com/2026/04/22/opinion/yale-has-come-up-with-a-surefire-way-to-make-a-terrible-situation-worse.html
-
-**Why Virginia’s New Map Matters for the Midterms, and What’s Next**\
-`Attention now turns to Florida, and the Supreme Court.`\
-https://www.nytimes.com/2026/04/22/us/politics/virginia-redistricting-map-democrats-midterms.html
-
-**Drake’s Publicity Stunt Brings Ice, Blowtorches and Headaches to Toronto**\
-`Fire crews melted a 25-foot-tall ice structure erected to promote the rapper’s forthcoming album, “Iceman,” less than a week after an explosion for a Drake music video shook part of the city.`\
-https://www.nytimes.com/2026/04/22/world/canada/drake-album-ice-block-toronto.html
-
-**At Least 2 Dead in West Virginia Chemical Spill, Officials Say**\
-`A “chemical release” of hydrogen sulfide in Nitro, W.Va., left at least two people dead, officials said.`\
-https://www.nytimes.com/video/us/100000010857484/west-virginia-chemical-spill.html
-
-**Making an Omelet Without Breaking the Bank**\
-`Plus, why eggs in California are more expensive.`\
-https://www.nytimes.com/2026/04/22/headway/newsletter-eggs-cost-economy.html
-
-**Restrictions on Transgender Students Violated Law, New York Finds**\
-`Two school districts had similar policies that required students to use facilities that were gender neutral or aligned with their sex assigned at birth.`\
-https://www.nytimes.com/2026/04/22/nyregion/transgender-schools-restrictions-long-island.html
-
-**F.B.I. Said to Have Investigated Times Reporter After Article on Patel’s Girlfriend**\
-`The bureau said it is not pursuing a case, but the scrutiny is an example of the Trump administration weighing whether to criminalize routine news gathering.`\
-https://www.nytimes.com/2026/04/22/us/politics/fbi-times-reporter.html
-
-**Tesla Profit Rises but Remains Below Earlier Highs**\
-`The company is investing in robots and self-driving taxis that are not yet generating significant sales.`\
-https://www.nytimes.com/2026/04/22/business/tesla-earnings-report.html
-
-**Kennedy Says His Department Advises All Children to Get Measles Vaccine**\
-`Testifying on Capitol Hill, Robert F. Kennedy Jr. continued to back away from his criticism of the measles shot. But he spoke on behalf of his department, not himself.`\
-https://www.nytimes.com/2026/04/22/us/politics/kennedy-measles-vaccine.html
-
-**Iran Again Tightens Its Grip on Shipping in the Strait of Hormuz**\
-`Traffic in the strait has all but halted as Iran renews its attacks, striking two vessels on Wednesday. More than 300 ships linked to Iran have passed through the strait since the war began.`\
-https://www.nytimes.com/2026/04/22/business/strait-of-hormuz-traffic-iran.html
 
