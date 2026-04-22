@@ -1,3 +1,11 @@
+**Nebraska Governor Election 2026: Latest Polls**\
+`Track the latest polls in the Nebraska governor election.`\
+https://www.nytimes.com/interactive/polls/nebraska-governor-election-polls-2026.html
+
+**¿Irán puede confiar en Trump? Las dudas dificultan las negociaciones de paz**\
+`Los dirigentes iraníes temen sufrir otro revés a manos del presidente Trump, quien desechó el acuerdo nuclear alcanzado durante el mandato de Obama tras largas negociaciones.`\
+https://www.nytimes.com/es/2026/04/22/espanol/estados-unidos/iran-trump-negociaciones-paz.html
+
 **Pilot Was Taking Pictures Before South Korean Fighter Jets Collided**\
 `A member of the other plane’s crew was making a video to commemorate the mission, the government said in a report on the 2021 crash. No one was hurt.`\
 https://www.nytimes.com/2026/04/22/world/asia/south-korean-fighter-jets-photos-phones.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/opinion/100000010849055/the-rich-dont-play-by-the-
 **Clowning Around With Fascists, in ‘The Resistible Rise of Arturo Ui’**\
 `Mark Gatiss plays a Charlie Chaplin-like dictator in a timely Royal Shakespeare Company revival.`\
 https://www.nytimes.com/2026/04/22/theater/the-resistible-rise-of-arturo-ui-rsc-mark-gatiss.html
-
-**Supreme Court Finds Soldier Injured in Suicide Bombing Can Sue**\
-`An American soldier was injured in a 2016 suicide bombing in Afghanistan. The justices cleared the way for the soldier to proceed with a lawsuit against a military contractor.`\
-https://www.nytimes.com/2026/04/22/us/supreme-court-afghanistan-bombing.html
-
-**In Central Java, an Eco-Resort Aims to Build Sustainability Through Creativity**\
-`When an Indonesian and Australian couple bought Yabbiekayu, their first visitors were foreigners. Now, they aim to be part of a “cultural awakening” in the region.`\
-https://www.nytimes.com/2026/04/22/arts/design/eco-resort-indonesia.html
 
