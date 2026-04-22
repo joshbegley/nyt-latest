@@ -1,3 +1,11 @@
+**What Was the 2015 Iran Nuclear Deal?**\
+`President Trump has ridiculed President Barack Obama and the agreement, which he withdrew from during his first term. His critics say he could have avoided a war had he left it in place.`\
+https://www.nytimes.com/2026/04/21/us/politics/2015-iran-nuclear-deal.html
+
+**Serial Rapist Pleads Guilty to 2 Murders After Chewed Gum Links DNA to Crimes**\
+`Mitchell A. Gaff, 68, acknowledged killing two women who were sexually assaulted before being found dead in their Washington State apartments in the 1980s.`\
+https://www.nytimes.com/2026/04/21/us/washington-gum-cold-case-gaff.html
+
 **The Poetry Challenge Day 3: How do you write about love?**\
 `It helps to be a little heartsick — and the best poet of your time. Our weeklong poetry challenge continues, including W.H. Auden himself reading “The More Loving One.”`\
 https://www.nytimes.com/interactive/2026/books/wh-auden-poetry-challenge-bio.html
