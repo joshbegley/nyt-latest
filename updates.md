@@ -1,3 +1,7 @@
+**Anti-Trumpism Unites Europe**\
+`Trump’s brand has sunk so low that conservatives are now joining leftist politicians in opposing him.`\
+https://www.nytimes.com/2026/04/22/world/anti-trumpism-europe-spain-italy-ukraine.html
+
 **Yale Has Come Up With a Surefire Way to Make a Terrible Situation Worse**\
 `Don’t retreat from the world; engage it. `\
 https://www.nytimes.com/2026/04/22/opinion/yale-has-come-up-with-a-surefire-way-to-make-a-terrible-situation-worse.html
