@@ -1,3 +1,7 @@
+**Anthropic’s New A.I. Model Sets Off Global Alarms**\
+`Mythos has triggered emergency responses from central banks and intelligence agencies globally, as Anthropic decides who has access to the powerful model.`\
+https://www.nytimes.com/2026/04/22/technology/anthropics-mythos-ai.html
+
 **Anthropic’s Leaked Code Tests Copyright Challenges in A.I. Era**\
 `Artificial intelligence tools are making it faster than ever to reproduce creative work. Does copyright even matter anymore?`\
 https://www.nytimes.com/2026/04/22/technology/anthropic-code-leak-copyright.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/22/espanol/mundo/guerra-iran-asia.html
 **Inside Kash Patel’s F.B.I.**\
 `Current and former employees discussed the changes under the Trump administration they say are undermining the agency and making America less safe.`\
 https://www.nytimes.com/2026/04/22/podcasts/the-daily/kash-patel-fbi.html
-
-**Democrats Win Big in Election Map Fight, and Influencers Push Nicotine as a Health Hack**\
-`Plus, how rainforests can bounce back.`\
-https://www.nytimes.com/2026/04/22/podcasts/the-headlines/virginia-referendum-influencers-nicotine.html
 
