@@ -1,3 +1,15 @@
+**Para Irán, Trump cedió primero al extender el alto al fuego**\
+`Los dirigentes iraníes creen que pueden resistir un enfrentamiento durante más tiempo que el presidente Trump. Esta estrategia podría tener consecuencias económicas devastadoras para los iraníes de a pie.`\
+https://www.nytimes.com/es/2026/04/22/espanol/mundo/iran-estados-unidos-guerra-alto-fuego.html
+
+**A 60-Day Deadline Could Pressure Trump on Ending the Iran War**\
+`A decades-old law allows the president to wage war without congressional approval for 60 days, then limits his options for continuing. President Trump may seek to get around it.`\
+https://www.nytimes.com/2026/04/22/us/politics/war-powers-act-explanation.html
+
+**This Is the Noir Novel for Our Times**\
+`Our columnist says Jordan Harper’s “A Violent Masterpiece” is just that: a violent masterpiece.`\
+https://www.nytimes.com/2026/04/22/books/review/new-mystery-novels.html
+
 **Coinbase and Gemini Accused of Illegal Gambling in N.Y. Lawsuits**\
 `Attorney General Letitia James said the cryptocurrency giants were illegally running gambling platforms in the state after they expanded into prediction markets, which are loosely regulated.`\
 https://www.nytimes.com/2026/04/22/nyregion/coinbase-crypto-prediction-markets-lawsuit.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/interactive/polls/louisiana-us-house-5-polls-2026.html
 **Nebraska Governor Election 2026: Latest Polls**\
 `Track the latest polls in the Nebraska governor election.`\
 https://www.nytimes.com/interactive/polls/nebraska-governor-election-polls-2026.html
-
-**¿Irán puede confiar en Trump? Las dudas dificultan las negociaciones de paz**\
-`Los dirigentes iraníes temen sufrir otro revés a manos del presidente Trump, quien desechó el acuerdo nuclear alcanzado durante el mandato de Obama tras largas negociaciones.`\
-https://www.nytimes.com/es/2026/04/22/espanol/estados-unidos/iran-trump-negociaciones-paz.html
-
-**Pilot Was Taking Pictures Before South Korean Fighter Jets Collided**\
-`A member of the other plane’s crew was making a video to commemorate the mission, the government said in a report on the 2021 crash. No one was hurt.`\
-https://www.nytimes.com/2026/04/22/world/asia/south-korean-fighter-jets-photos-phones.html
-
-**Bessent Backs Financial Support for Oil-Rich U.A.E.**\
-`The Treasury secretary said that currency swap line would benefit both the United Arab Emirates and the United States.`\
-https://www.nytimes.com/2026/04/22/us/politics/bessent-support-emirates.html
 
