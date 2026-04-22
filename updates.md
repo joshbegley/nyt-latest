@@ -1,3 +1,15 @@
+**The ‘Complete Collapse’ of the Job Ladder for Gen Z**\
+`It’s not just because of A.I. This started 40 years ago.`\
+https://www.nytimes.com/2026/04/22/opinion/gen-z-job-ladder.html
+
+**My Parents Are Obsessed With Food and Weight. Help!**\
+`A reader fears that her parents’ decades-long food fixation could jeopardize her efforts to keep her own eating disorder under control.`\
+https://www.nytimes.com/2026/04/22/style/eating-disorder-food-obsession-family-support.html
+
+**Danger Escalates in Strait of Hormuz as Iran Says It Seized 2 Cargo Ships**\
+`Hours after President Trump extended a cease-fire, Tehran appeared to be exerting its authority in the contested waters near the strait.`\
+https://www.nytimes.com/2026/04/22/world/middleeast/iran-ships-attacked-strait-hormuz.html
+
 **The Consequences of SpaceX’s Latest A.I. Moonshot**\
 `Elon Musk’s rocket and satellite internet titan may pay $60 billion for an A.I. coding start-up. It further clouds SpaceX’s once-simple business plan.`\
 https://www.nytimes.com/2026/04/22/business/dealbook/spacex-ai-cursor.html
