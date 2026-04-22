@@ -1,3 +1,7 @@
+**Oil Prices Creep Up as Investors Weigh Cease-Fire Extension**\
+`Oil prices stablized as investors scrambled to make sense of President Trump’s decision to extend the cease-fire with Iran`\
+https://www.nytimes.com/2026/04/22/business/oi-gas-stocks-iran.html
+
 **Imagining the Manosphere as a Kinder, Gentler Place**\
 `Two art exhibitions examining hypermasculine online content and its impact argue that sensitivity and vulnerability are also manly virtues.`\
 https://www.nytimes.com/2026/04/22/arts/design/manosphere-exhibition-stedelijk.html
