@@ -1,3 +1,7 @@
+**F.B.I. Said to Have Investigated Times Reporter After Article on Patel’s Girlfriend**\
+`The bureau said it is not pursuing a case, but the scrutiny is an example of the Trump administration weighing whether to criminalize routine news gathering.`\
+https://www.nytimes.com/2026/04/22/us/politics/fbi-times-reporter.html
+
 **Tesla Profit Rises but Remains Below Earlier Highs**\
 `The company is investing in robots and self-driving taxis that are not yet generating significant sales.`\
 https://www.nytimes.com/2026/04/22/business/tesla-earnings-report.html

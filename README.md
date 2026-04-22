@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/04/22/us/atlanta-killings-suspect-jail-death.html
 https://www.nytimes.com/2026/04/22/movies/nathalie-baye-dead.html
 
 **2 Are Dead After ‘Chemical Emergency’ at a West Virginia Plant**\
-`As many as 21 others were treated at a hospital and at the scene after a “chemical release” of hydrogen sulfide at a plant in Nitro, W. Va., the authorities said.`\
+`As many as 30 others were treated at a hospital and at the scene after a “chemical release” of hydrogen sulfide at a plant in Nitro, W.Va., the authorities said.`\
 https://www.nytimes.com/2026/04/22/us/chemical-emergency-west-virginia-deaths.html
 
 **The Only Good News From Iran**\
