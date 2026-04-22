@@ -1,3 +1,15 @@
+**Nathalie Baye, Versatile and Admired French Actress, Dies at 77**\
+`In films like “Day for Night,” “La Balance” and “The Return of Martin Guerre,” she was adept at portraying sensual, reflective or excitable characters.`\
+https://www.nytimes.com/2026/04/22/movies/nathalie-baye-dead.html
+
+**2 Are Dead After ‘Chemical Emergency’ at a West Virginia Plant**\
+`As many as 21 others were treated at a hospital and at the scene after a “chemical release” of hydrogen sulfide at a plant in Nitro, W. Va., the authorities said.`\
+https://www.nytimes.com/2026/04/22/us/chemical-emergency-west-virginia-deaths.html
+
+**The Only Good News From Iran**\
+`How the war’s disruptions are accelerating the shift to green energy.`\
+https://www.nytimes.com/2026/04/22/opinion/iran-energy-climate.html
+
 **How the Southern Poverty Law Center Drew the Ire of Conservatives**\
 `Before the Justice Department filed charges against it, the group had faced scandal and critiques from both the left and the right.`\
 https://www.nytimes.com/2026/04/22/us/southern-poverty-law-center-doj.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/22/us/politics/democrat-republican-midterm-elect
 **Rep. David Scott, Longtime Georgia Lawmaker, Dies at 80**\
 `The former Georgia state lawmaker was an advocate for issues that affected Black communities. He drew attention for his refusal to exit politics amid health problems.`\
 https://www.nytimes.com/2026/04/22/us/politics/david-scott-dead-georgia-congress.html
-
-**Talking Talmud on TikTok**\
-`Rabbi Shalom Landau has found a large new audience online, some of which isn’t Jewish. He sticks to ancient wisdom and hopes for the best.`\
-https://www.nytimes.com/2026/04/22/style/rabbi-landau-tiktok-instagram.html
-
-**Pakistani Officials Remain Hopeful About U.S.-Iran Talks**\
-`The seizure of two cargo vessels by Iran in the Strait of Hormuz on Wednesday cast doubt on plans for a second round of talks in Pakistan’s capital.`\
-https://www.nytimes.com/2026/04/22/world/asia/pakistan-iran-us-talks-islamabad.html
-
-**U.S. Weighs $500 Million Lifeline for Spirit Airlines**\
-`The Trump administration is negotiating a deal with the struggling company, which is in its second bankruptcy in two years.`\
-https://www.nytimes.com/2026/04/22/business/trump-spirit-airlines-loan.html
 
