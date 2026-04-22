@@ -1,3 +1,7 @@
+**F.B.I. Said to Have Investigated Times Reporter After Article on Patel’s Girlfriend**\
+`The bureau said it is not pursuing a case, but the scrutiny is an example of the Trump administration weighing whether to criminalize routine news gathering.`\
+https://www.nytimes.com/2026/04/22/us/politics/fbi-times-reporter.html
+
 **Tesla Profit Rises but Remains Below Earlier Highs**\
 `The company is investing in robots and self-driving taxis that are not yet generating significant sales.`\
 https://www.nytimes.com/2026/04/22/business/tesla-earnings-report.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/22/us/politics/war-powers-act-explanation.html
 **This Is the Noir Novel for Our Times**\
 `Our columnist says Jordan Harper’s “A Violent Masterpiece” is just that: a violent masterpiece.`\
 https://www.nytimes.com/2026/04/22/books/review/new-mystery-novels.html
-
-**Coinbase and Gemini Accused of Illegal Gambling in N.Y. Lawsuits**\
-`Attorney General Letitia James said the cryptocurrency giants were illegally running gambling platforms in the state after they expanded into prediction markets, which are loosely regulated.`\
-https://www.nytimes.com/2026/04/22/nyregion/coinbase-crypto-prediction-markets-lawsuit.html
 
