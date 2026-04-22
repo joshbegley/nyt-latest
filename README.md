@@ -1,3 +1,7 @@
+**Anti-Trumpism Unites Europe**\
+`Trump’s brand has sunk so low that conservatives are now joining leftist politicians in opposing him.`\
+https://www.nytimes.com/2026/04/22/world/anti-trumpism-europe-spain-italy-ukraine.html
+
 **Yale Has Come Up With a Surefire Way to Make a Terrible Situation Worse**\
 `Don’t retreat from the world; engage it. `\
 https://www.nytimes.com/2026/04/22/opinion/yale-has-come-up-with-a-surefire-way-to-make-a-terrible-situation-worse.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/22/us/southern-poverty-law-center-doj.html
 **Celeste Rivas Hernandez Died of ‘Multiple Penetrating Injuries,’ Medical Examiner Says**\
 `The Los Angeles police sought to keep the findings secret for months as they investigated the singer D4vd, who was charged this week with the murder of the teenager.`\
 https://www.nytimes.com/2026/04/22/arts/music/d4vd-celeste-rivas-hernandez-cause-of-death.html
-
-**With peace talks postponed, Pakistanis feel the cost of the war in Iran.**\
-``\
-https://www.nytimes.com/live/2026/04/22/world/iran-war-trump-ceasefire-talks/with-peace-talks-postponed-pakistanis-feel-the-cost-of-the-war-in-iran
 

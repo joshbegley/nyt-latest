@@ -1,3 +1,15 @@
+**Yale Has Come Up With a Surefire Way to Make a Terrible Situation Worse**\
+`Don’t retreat from the world; engage it. `\
+https://www.nytimes.com/2026/04/22/opinion/yale-has-come-up-with-a-surefire-way-to-make-a-terrible-situation-worse.html
+
+**Why Virginia’s New Map Matters for the Midterms, and What’s Next**\
+`Attention now turns to Florida, and the Supreme Court.`\
+https://www.nytimes.com/2026/04/22/us/politics/virginia-redistricting-map-democrats-midterms.html
+
+**Drake’s Publicity Stunt Brings Ice, Blowtorches and Headaches to Toronto**\
+`Fire crews melted a 25-foot-tall ice structure erected to promote the rapper’s forthcoming album, “Iceman,” less than a week after an explosion for a Drake music video shook part of the city.`\
+https://www.nytimes.com/2026/04/22/world/canada/drake-album-ice-block-toronto.html
+
 **At Least 2 Dead in West Virginia Chemical Spill, Officials Say**\
 `A “chemical release” of hydrogen sulfide in Nitro, W.Va., left at least two people dead, officials said.`\
 https://www.nytimes.com/video/us/100000010857484/west-virginia-chemical-spill.html
