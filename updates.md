@@ -1,3 +1,23 @@
+**Virginia Voters Approve New Map Favoring Democrats**\
+`Virginia voters approved a new map that could flip four House seats away from Republicans going into the 2026 midterm elections. It was the latest fight in the national redistricting war.`\
+https://www.nytimes.com/video/us/politics/100000010855962/virginia-redistricting-election-map.html
+
+****\
+`People carried on with grocery shopping as a strong earthquake shook a store in Hachinohe, a city in northern Japan, on Monday.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010853562/21vid-xp-quake-72486.html
+
+**Palabra del día: ‘propensity’**\
+`Esta palabra ha aparecido en 77 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/04/22/espanol/que-significa-propensity.html
+
+**Word of the Day: propensity**\
+`This word has appeared in 77 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/04/22/learning/word-of-the-day-propensity.html
+
+**Dave Mason, Songwriter Who Co-Founded Traffic, Dies at 79**\
+`The English singer and guitarist wrote mainstays of the classic-rock canon like “Feelin’ Alright?” and “Only You Know and I Know.” He also had a successful solo career.`\
+https://www.nytimes.com/2026/04/22/arts/music/mason-dave-dead.html
+
 **How China Is Building Its Next Outpost at Sea**\
 `China has been quietly and quickly building an island in disputed waters off of the coast of Vietnam over the last few months.`\
 https://www.nytimes.com/interactive/2026/04/22/world/asia/south-china-sea-island.html
