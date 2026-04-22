@@ -52,7 +52,7 @@ https://www.nytimes.com/2026/04/22/magazine/affair-friends-wife-ethics.html
 
 **Whether for or against the war, Iranians say they’re feeling economic pain.**\
 ``\
-https://www.nytimes.com/live/2026/04/22/world/iran-war-trump-ceasefire-talks/iran-turkey-border
+https://www.nytimes.com/2026/04/22/world/middleeast/iran-turkey-border.html
 
 **Crypto Entrepreneur Files Fraud Suit Against Trump Family Firm**\
 `Justin Sun, one of the largest backers of World Liberty Financial, sued the Trump family’s crypto start-up, accusing it of a fraudulent scheme to pressure him into buying digital coins.`\

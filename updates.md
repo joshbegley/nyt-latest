@@ -1,3 +1,7 @@
+**Whether for or against the war, Iranians say they’re feeling economic pain.**\
+``\
+https://www.nytimes.com/2026/04/22/world/middleeast/iran-turkey-border.html
+
 **Talking Talmud on TikTok**\
 `Rabbi Shalom Landau has found a large new audience online, some of which isn’t Jewish. He sticks to ancient wisdom and hopes for the best.`\
 https://www.nytimes.com/2026/04/22/style/rabbi-landau-tiktok-instagram.html
