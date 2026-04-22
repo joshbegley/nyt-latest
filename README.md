@@ -1,3 +1,15 @@
+**The ‘Complete Collapse’ of the Job Ladder for Gen Z**\
+`It’s not just because of A.I. This started 40 years ago.`\
+https://www.nytimes.com/2026/04/22/opinion/gen-z-job-ladder.html
+
+**My Parents Are Obsessed With Food and Weight. Help!**\
+`A reader fears that her parents’ decades-long food fixation could jeopardize her efforts to keep her own eating disorder under control.`\
+https://www.nytimes.com/2026/04/22/style/eating-disorder-food-obsession-family-support.html
+
+**Danger Escalates in Strait of Hormuz as Iran Says It Seized 2 Cargo Ships**\
+`Hours after President Trump extended a cease-fire, Tehran appeared to be exerting its authority in the contested waters near the strait.`\
+https://www.nytimes.com/2026/04/22/world/middleeast/iran-ships-attacked-strait-hormuz.html
+
 **The Consequences of SpaceX’s Latest A.I. Moonshot**\
 `Elon Musk’s rocket and satellite internet titan may pay $60 billion for an A.I. coding start-up. It further clouds SpaceX’s once-simple business plan.`\
 https://www.nytimes.com/2026/04/22/business/dealbook/spacex-ai-cursor.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/22/world/asia/japan-earthquake-megaquake-tsunami
 **How Good Are You at Starting Conversations?**\
 `Do you find yourself stuck after asking “How’s it going?” The Well newsletter shares alternatives to our most common conversational dead ends.`\
 https://www.nytimes.com/2026/04/22/learning/how-good-are-you-at-starting-conversations.html
-
-**The Uncertain Future of Life Undocumented**\
-`Considering college — and the future — while undocumented.`\
-https://www.nytimes.com/interactive/2026/04/22/opinion/ice-separation-future-chapter6.html
-
-**The Secret Rooms That the Subway System Depends On**\
-`There are 225 electrical substations in the subway system. Some of them have been around for close to 100 years.`\
-https://www.nytimes.com/2026/04/22/nyregion/the-secret-rooms-that-the-subway-system-depends-on.html
-
-**Her Voice Is Unlike Anything in Opera**\
-`Vilma Jää, a Finnish folk and pop singer, is bringing her eerie and affecting traditional music to the Metropolitan Opera.`\
-https://www.nytimes.com/2026/04/22/arts/music/vilma-jaa-innocence-met-opera.html
 
