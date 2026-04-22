@@ -1,3 +1,31 @@
+**‘Half Man’ Review: Bloody Brothers**\
+`The creator of “Baby Reindeer” is back with more anger, repression and violence (and jokes) in a new series for HBO.`\
+https://www.nytimes.com/2026/04/22/arts/television/half-man-review-richard-gadd.html
+
+**C.D.C. Cancels Publication of Study Showing Benefits of Covid Vaccines**\
+`The report found that the shots cut the likelihood of hospitalizations, but the agency’s acting head said it gave an inaccurate picture of the vaccines’ effectiveness.`\
+https://www.nytimes.com/2026/04/22/us/politics/cdc-covid-vaccine-study.html
+
+**Today, In Short**\
+`“The Devil Wears Prada 2” premiere. Day-in-my-life videos. And a smoking ban in Britain.`\
+https://www.nytimes.com/2026/04/22/briefing/today-in-short.html
+
+**Music to My Ears: Sheet-Pan Instant Ramen**\
+`Crisped up until golden and laden with glazed tofu and soft bok choy.`\
+https://www.nytimes.com/2026/04/22/dining/music-to-my-ears-sheet-pan-instant-ramen.html
+
+**Youth Suicides Declined After Creation of National Hotline**\
+`Suicides among young adults dropped most sharply in states that actively embraced the 988 crisis line, new research has found.`\
+https://www.nytimes.com/2026/04/22/science/988-youth-suicides-decline.html
+
+**‘The Rich Don’t Play by the Rules. So Why Should I?’**\
+`Why petty theft might be the new political protest.`\
+https://www.nytimes.com/2026/04/22/opinion/shoplifting-political-protest-microlooting-whole-foods.html
+
+**‘The Rich Don’t Play by the Rules. So Why Should I?’**\
+`Why petty theft might be the new political protest.`\
+https://www.nytimes.com/video/opinion/100000010849055/the-rich-dont-play-by-the-rules-so-why-should-i.html
+
 **Clowning Around With Fascists, in ‘The Resistible Rise of Arturo Ui’**\
 `Mark Gatiss plays a Charlie Chaplin-like dictator in a timely Royal Shakespeare Company revival.`\
 https://www.nytimes.com/2026/04/22/theater/the-resistible-rise-of-arturo-ui-rsc-mark-gatiss.html

@@ -1,3 +1,31 @@
+**‘Half Man’ Review: Bloody Brothers**\
+`The creator of “Baby Reindeer” is back with more anger, repression and violence (and jokes) in a new series for HBO.`\
+https://www.nytimes.com/2026/04/22/arts/television/half-man-review-richard-gadd.html
+
+**C.D.C. Cancels Publication of Study Showing Benefits of Covid Vaccines**\
+`The report found that the shots cut the likelihood of hospitalizations, but the agency’s acting head said it gave an inaccurate picture of the vaccines’ effectiveness.`\
+https://www.nytimes.com/2026/04/22/us/politics/cdc-covid-vaccine-study.html
+
+**Today, In Short**\
+`“The Devil Wears Prada 2” premiere. Day-in-my-life videos. And a smoking ban in Britain.`\
+https://www.nytimes.com/2026/04/22/briefing/today-in-short.html
+
+**Music to My Ears: Sheet-Pan Instant Ramen**\
+`Crisped up until golden and laden with glazed tofu and soft bok choy.`\
+https://www.nytimes.com/2026/04/22/dining/music-to-my-ears-sheet-pan-instant-ramen.html
+
+**Youth Suicides Declined After Creation of National Hotline**\
+`Suicides among young adults dropped most sharply in states that actively embraced the 988 crisis line, new research has found.`\
+https://www.nytimes.com/2026/04/22/science/988-youth-suicides-decline.html
+
+**‘The Rich Don’t Play by the Rules. So Why Should I?’**\
+`Why petty theft might be the new political protest.`\
+https://www.nytimes.com/2026/04/22/opinion/shoplifting-political-protest-microlooting-whole-foods.html
+
+**‘The Rich Don’t Play by the Rules. So Why Should I?’**\
+`Why petty theft might be the new political protest.`\
+https://www.nytimes.com/video/opinion/100000010849055/the-rich-dont-play-by-the-rules-so-why-should-i.html
+
 **Clowning Around With Fascists, in ‘The Resistible Rise of Arturo Ui’**\
 `Mark Gatiss plays a Charlie Chaplin-like dictator in a timely Royal Shakespeare Company revival.`\
 https://www.nytimes.com/2026/04/22/theater/the-resistible-rise-of-arturo-ui-rsc-mark-gatiss.html
@@ -49,32 +77,4 @@ https://www.nytimes.com/2026/04/22/us/jfk-airport-jets-near-collision.html
 **Attacks along the Israel-Lebanon border put a cease-fire under strain.**\
 ``\
 https://www.nytimes.com/live/2026/04/22/world/iran-war-trump-ceasefire-talks/attacks-along-the-israel-lebanon-border-put-a-cease-fire-under-strain
-
-**There’s Another Reason Gen Z Can’t Find Work**\
-`It’s not just because of A.I. This started 40 years ago.`\
-https://www.nytimes.com/2026/04/22/opinion/gen-z-job-ladder.html
-
-**My Parents Are Obsessed With Food and Weight. Help!**\
-`A reader fears that her parents’ decades-long food fixation could jeopardize her efforts to keep her own eating disorder under control.`\
-https://www.nytimes.com/2026/04/22/style/eating-disorder-food-obsession-family-support.html
-
-**Danger Escalates in Strait of Hormuz as Iran Says It Seized 2 Cargo Ships**\
-`Hours after President Trump extended a cease-fire, Tehran appeared to be exerting its authority in the contested waters near the strait.`\
-https://www.nytimes.com/2026/04/22/world/middleeast/iran-ships-attacked-strait-hormuz.html
-
-**The Consequences of SpaceX’s Latest A.I. Moonshot**\
-`Elon Musk’s rocket and satellite internet titan may pay $60 billion for an A.I. coding start-up. It further clouds SpaceX’s once-simple business plan.`\
-https://www.nytimes.com/2026/04/22/business/dealbook/spacex-ai-cursor.html
-
-**Special Episode: Your Questions About the Iran War, Answered**\
-`How much does the conflict cost? And where is Secretary of State Marco Rubio?`\
-https://www.nytimes.com/2026/04/22/podcasts/the-headlines/special-episode-your-questions-about-the-iran-war-answered.html
-
-**To Iran, Trump Blinked First by Extending the Cease-Fire**\
-`Iran’s leaders believe that they can withstand an enduring standoff longer than President Trump. The strategy could be economically devastating for average Iranians.`\
-https://www.nytimes.com/2026/04/22/world/middleeast/iran-trump-ceasefire.html
-
-**A Hot Mess in Congress**\
-`We look at the dysfunction on Capitol Hill.`\
-https://www.nytimes.com/2026/04/22/briefing/a-hot-mess-in-congress.html
 
