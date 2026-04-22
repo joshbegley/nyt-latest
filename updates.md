@@ -1,3 +1,11 @@
+**Weather Service Survey Confirms Three Rare Tornadoes in Central California**\
+`Tornadoes are uncommon in the state, but a storm system caused three near Fresno on Tuesday.`\
+https://www.nytimes.com/2026/04/22/weather/fresno-california-tornadoes.html
+
+**How ‘Yes’ Won a Narrow Victory in Virginia’s Redistricting Battle**\
+`Northern Virginia carried the measure to victory even as turnout in Democratic areas lagged and nearly all of the state shifted right from last year’s governor’s race.`\
+https://www.nytimes.com/2026/04/22/us/elections/virginia-redistricting-voter-data-election.html
+
 **Olivia Rodrigo Is Falling, Hard**\
 `Is Olivia Rodrigo’s new single a lovelorn head fake? Our critic Jon Caramanica explains how “Drop Dead” captures the first-blush rush of falling for someone – and why he suspects that feeling may not last.`\
 https://www.nytimes.com/video/podcasts/100000010855591/olivia-rodrigo-is-falling-hard.html
