@@ -1,3 +1,11 @@
+**Crypto Entrepreneur Files Fraud Suit Against Trump Family Firm**\
+`Justin Sun, one of the largest backers of World Liberty Financial, sued the Trump family’s crypto start-up, accusing it of a fraudulent scheme to pressure him into buying digital coins.`\
+https://www.nytimes.com/2026/04/22/technology/justin-sun-crypto-world-liberty-trump.html
+
+**On Independence Day, Israel Honors Rabbi Who Called to ‘Flatten’ Gaza**\
+`Avraham Zarbiv became known on Israel’s right for demolishing buildings in Gaza. He lit a torch at a national ceremony on Tuesday evening.`\
+https://www.nytimes.com/2026/04/22/world/middleeast/israel-gaza-independence-day-rabbi-avraham-zarbiv.html
+
 **EE. UU. envía un avión a Cuba para recoger a un menor de edad en un caso de custodia transgénero**\
 `El FBI creía que el menor había sido secuestrado por un progenitor trans para potencialmente someterlo a una operación de transición de género, según los expedientes judiciales.`\
 https://www.nytimes.com/es/2026/04/22/espanol/america-latina/cuba-estados-unidos-nino-custodia-fbi.html
