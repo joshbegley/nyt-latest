@@ -1,3 +1,7 @@
+**How China Is Building Its Next Outpost at Sea**\
+`China has been quietly and quickly building an island in disputed waters off of the coast of Vietnam over the last few months.`\
+https://www.nytimes.com/interactive/2026/04/22/world/asia/south-china-sea-island.html
+
 **Man Is Charged With Providing Gun to Louisiana Shooter**\
 `The arrest came two days after a gunman carried out a rampage that left eight children dead in Shreveport and injured two adults.`\
 https://www.nytimes.com/2026/04/21/us/man-charged-providing-gun-shreveport-shooter.html
