@@ -66,7 +66,7 @@ https://www.nytimes.com/2026/04/22/crosswords/strands-sidekick-781.html
 `Scroll down for hints and conversation about the puzzle for Thursday, April 23, 2026.`\
 https://www.nytimes.com/2026/04/22/crosswords/wordle-review-1769.html
 
-**Oil Prices Creep Up as Investors Weigh Cease-Fire Extension**\
+**Oil Prices Rise as Investors Weigh Cease-Fire Extension**\
 `Oil prices stablized as investors scrambled to make sense of President Trump’s decision to extend the cease-fire with Iran`\
 https://www.nytimes.com/2026/04/22/business/oi-gas-stocks-iran.html
 
