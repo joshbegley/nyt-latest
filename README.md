@@ -1,3 +1,7 @@
+**Several Arrested, Including Councilman, at Protest Against Deed Theft**\
+`City Councilman Chi Ossé and others were detained in Brooklyn at a demonstration against a practice that has led to the eviction of many longtime homeowners.`\
+https://www.nytimes.com/2026/04/22/nyregion/chi-osse-arrested-deed-theft.html
+
 **Ohio Ninth Congressional District 2026: Latest Polls**\
 `Track the latest polls in Ohio's 9th Congressional District.`\
 https://www.nytimes.com/interactive/polls/ohio-us-house-9-polls-2026.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/22/dining/music-to-my-ears-sheet-pan-instant-ram
 **Youth Suicides Declined After Creation of National Hotline**\
 `Suicides among young adults dropped most sharply in states that actively embraced the 988 crisis line, new research has found.`\
 https://www.nytimes.com/2026/04/22/science/988-youth-suicides-decline.html
-
-**‘The Rich Don’t Play by the Rules. So Why Should I?’**\
-`Why petty theft might be the new political protest.`\
-https://www.nytimes.com/2026/04/22/opinion/shoplifting-political-protest-microlooting-whole-foods.html
 
