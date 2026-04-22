@@ -1,3 +1,11 @@
+**Ohio Ninth Congressional District 2026: Latest Polls**\
+`Track the latest polls in Ohio's 9th Congressional District.`\
+https://www.nytimes.com/interactive/polls/ohio-us-house-9-polls-2026.html
+
+**Louisiana Fifth Congressional District 2026: Latest Polls**\
+`Track the latest polls in Louisiana's 5th Congressional District.`\
+https://www.nytimes.com/interactive/polls/louisiana-us-house-5-polls-2026.html
+
 **Nebraska Governor Election 2026: Latest Polls**\
 `Track the latest polls in the Nebraska governor election.`\
 https://www.nytimes.com/interactive/polls/nebraska-governor-election-polls-2026.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/22/science/988-youth-suicides-decline.html
 **‘The Rich Don’t Play by the Rules. So Why Should I?’**\
 `Why petty theft might be the new political protest.`\
 https://www.nytimes.com/2026/04/22/opinion/shoplifting-political-protest-microlooting-whole-foods.html
-
-**‘The Rich Don’t Play by the Rules. So Why Should I?’**\
-`Why petty theft might be the new political protest.`\
-https://www.nytimes.com/video/opinion/100000010849055/the-rich-dont-play-by-the-rules-so-why-should-i.html
-
-**Clowning Around With Fascists, in ‘The Resistible Rise of Arturo Ui’**\
-`Mark Gatiss plays a Charlie Chaplin-like dictator in a timely Royal Shakespeare Company revival.`\
-https://www.nytimes.com/2026/04/22/theater/the-resistible-rise-of-arturo-ui-rsc-mark-gatiss.html
 
