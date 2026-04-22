@@ -2,7 +2,7 @@
 `All it took was a bucket of soapy water and a slinky housedress for her to achieve movie immortality in the 1967 Paul Newman classic.`\
 https://www.nytimes.com/2026/04/22/movies/joy-harmon-dead.html
 
-**Not a Deal-Breaker: White House Downplays Iranian Strikes Near the Strait**\
+**Not a Deal-Breaker: White House Downplays Iranian Action Near the Strait**\
 `President Trump’s threats have given way (for the moment, at least) to a more conciliatory tone about Iran’s actions in the Strait of Hormuz.`\
 https://www.nytimes.com/2026/04/22/us/politics/trump-iran-strait-of-hormuz-ships.html
 
