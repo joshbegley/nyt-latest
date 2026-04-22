@@ -1,3 +1,11 @@
+**Pakistani Officials Remain Hopeful About U.S.-Iran Talks**\
+`The seizure of two cargo vessels by Iran in the Strait of Hormuz on Wednesday cast doubt on plans for a second round of talks in Pakistan’s capital.`\
+https://www.nytimes.com/2026/04/22/world/asia/pakistan-iran-us-talks-islamabad.html
+
+**U.S. Nears Loan to Rescue Spirit Airlines**\
+`The Trump administration is negotiating a deal that would provide as much as $500 million to the struggling company, which is in its second bankruptcy in two years.`\
+https://www.nytimes.com/2026/04/22/business/trump-spirit-airlines-loan.html
+
 **Gunman Who Killed Baby in Brooklyn Was Targeting Her Father, Police Say**\
 `A 7-month-old girl, Kaori Patterson-Moore, was fatally shot on a sidewalk in Williamsburg, Brooklyn, on April 1. The bullet was meant for her father, the police said.`\
 https://www.nytimes.com/2026/04/22/nyregion/infant-fatal-shooting-gangs-brooklyn.html
