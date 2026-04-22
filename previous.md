@@ -1,3 +1,7 @@
+**In 1968, They Saw Earth From the Moon for the First Time**\
+`It’s the most iconic image of our planet. Decades before the Artemis II mission, a group of astronauts experienced an Earth rising for the first time. This Earth Day, hear their story and the story of a photograph that changed the way we think about our place in the universe.`\
+https://www.nytimes.com/video/opinion/100000010851813/in-1968-they-saw-earth-from-the-moon-for-the-first-time.html
+
 **Anthropic’s New A.I. Model Sets Off Global Alarms**\
 `Mythos has triggered emergency responses from central banks and intelligence agencies globally, as Anthropic decides who has access to the powerful model.`\
 https://www.nytimes.com/2026/04/22/technology/anthropics-mythos-ai.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/22/business/lufthansa-cancels-flights-iran-jet-f
 **La guerra golpea a Asia**\
 `El daño causado a una región que durante décadas ha sido motor del crecimiento económico mundial podría ser difícil de contener.`\
 https://www.nytimes.com/es/2026/04/22/espanol/mundo/guerra-iran-asia.html
-
-**Inside Kash Patel’s F.B.I.**\
-`Current and former employees discussed the changes under the Trump administration they say are undermining the agency and making America less safe.`\
-https://www.nytimes.com/2026/04/22/podcasts/the-daily/kash-patel-fbi.html
 
