@@ -1,3 +1,11 @@
+**With G.O.P. in Dismay, Redistricting Fight Turns to Florida and the Courtroom**\
+`A victory for Democrats in Virginia has left Republicans grumbling about their strategy and looking to the next phase of a coast-to-coast battle.`\
+https://www.nytimes.com/2026/04/22/us/redistricting-republicans-democrats-florida-virginia.html
+
+**Lululemon Names Former Nike Executive as Its Next C.E.O.**\
+`Heidi O’Neill will join the maker of yoga pants and other athletic clothing in September.`\
+https://www.nytimes.com/2026/04/22/business/lululemon-new-ceo-heidi-oneill.html
+
 **Charlize Theron on the Night Her Mother Killed Her Father in Self-Defense**\
 `The actor Charlize Theron grew up with an alcoholic father. When she was 15, he tried to kill her and her mother, shooting through her bedroom door. Her mother shot and killed him in an act that was found to be self-defense. On “The Interview,” she talks about her childhood, her early career, her new movie, “Apex” and more.`\
 https://www.nytimes.com/video/magazine/100000010857921/charlize-theron-on-the-night-her-mother-killed-her-father-in-self-defense.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/22/world/africa/pope-leo-equatorial-guinea.html
 **Man Accused of Killing 3 in Spree Near Atlanta Dies in Jail**\
 `Olaolukitan Adon Abel, a 26-year-old Navy veteran, had been charged with killing a man and two women in a series of attacks across suburban Atlanta.`\
 https://www.nytimes.com/2026/04/22/us/atlanta-killings-suspect-jail-death.html
-
-**Nathalie Baye, Versatile and Admired French Actress, Dies at 77**\
-`In films like “Day for Night,” “La Balance” and “The Return of Martin Guerre,” she was adept at portraying sensual, reflective or excitable characters.`\
-https://www.nytimes.com/2026/04/22/movies/nathalie-baye-dead.html
-
-**2 Are Dead After ‘Chemical Emergency’ at a West Virginia Plant**\
-`As many as 30 others were treated at a hospital and at the scene after a “chemical release” of hydrogen sulfide at a plant in Nitro, W.Va., the authorities said.`\
-https://www.nytimes.com/2026/04/22/us/chemical-emergency-west-virginia-deaths.html
 
