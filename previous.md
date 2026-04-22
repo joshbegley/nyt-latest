@@ -1,3 +1,7 @@
+**Man Accused of Killing 3 in Spree Near Atlanta Dies in Jail**\
+`Olaolukitan Adon Abel, a 26-year-old Navy veteran, had been charged with killing a man and two women in a series of attacks across suburban Atlanta.`\
+https://www.nytimes.com/2026/04/22/us/atlanta-killings-suspect-jail-death.html
+
 **Nathalie Baye, Versatile and Admired French Actress, Dies at 77**\
 `In films like “Day for Night,” “La Balance” and “The Return of Martin Guerre,” she was adept at portraying sensual, reflective or excitable characters.`\
 https://www.nytimes.com/2026/04/22/movies/nathalie-baye-dead.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/22/style/tiny-modern-love-stories-even-our-waitr
 **Republicans Have One Midterm Edge, and It’s Worth $600 Million**\
 `Even as the party faces a worrisome political environment and its candidates are outraised by Democratic ones, powerful Republican groups and super PACs have built a colossal advantage.`\
 https://www.nytimes.com/2026/04/22/us/politics/democrat-republican-midterm-election-fundraising.html
-
-**Rep. David Scott, Longtime Georgia Lawmaker, Dies at 80**\
-`The former Georgia state lawmaker was an advocate for issues that affected Black communities. He drew attention for his refusal to exit politics amid health problems.`\
-https://www.nytimes.com/2026/04/22/us/politics/david-scott-dead-georgia-congress.html
 
