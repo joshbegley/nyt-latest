@@ -1,3 +1,7 @@
+**At Least 2 Dead in West Virginia Chemical Spill, Officials Say**\
+`A “chemical release” of hydrogen sulfide in Nitro, W.Va., left at least two people dead, officials said.`\
+https://www.nytimes.com/video/us/100000010857484/west-virginia-chemical-spill.html
+
 **Making an Omelet Without Breaking the Bank**\
 `Plus, why eggs in California are more expensive.`\
 https://www.nytimes.com/2026/04/22/headway/newsletter-eggs-cost-economy.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/22/briefing/22-the-good-list-bears-ritual.html
 **Republicans Had an Earth Day Plan to Limit Species Protections. It Flopped.**\
 `House leaders abruptly canceled a vote on the measure when support started to look shaky.`\
 https://www.nytimes.com/2026/04/22/climate/house-vote-endangered-species-earth-day.html
-
-**Para Irán, Trump cedió primero al extender el alto al fuego**\
-`Los dirigentes iraníes creen que pueden resistir un enfrentamiento durante más tiempo que el presidente Trump. Esta estrategia podría tener consecuencias económicas devastadoras para los iraníes de a pie.`\
-https://www.nytimes.com/es/2026/04/22/espanol/mundo/iran-estados-unidos-guerra-alto-fuego.html
 
