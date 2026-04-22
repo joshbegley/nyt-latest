@@ -1,3 +1,23 @@
+**U.S. Withholds Iraq’s Own Money Over Ties to Iran**\
+`The United States has halted dollar shipments to Iraq’s cash-based economy in an effort to force the Baghdad government to distance itself from Iran. The money comes from Iraq’s oil revenues.`\
+https://www.nytimes.com/2026/04/22/world/middleeast/iraq-us-dollars-shipment-iran.html
+
+**Plan to Move Men’s Shelter Is Temporarily Blocked by N.Y.C. Judge**\
+`The order pauses New York City’s plan to shift the intake center for homeless men from a building near Bellevue Hospital to one in the East Village.`\
+https://www.nytimes.com/2026/04/22/nyregion/nyc-homeless-shelter-east-village-order.html
+
+**Former Employee Sues MrBeast’s Company Over Harassment Claims**\
+`The former employee of the YouTube star’s production company said in a federal lawsuit that she had experienced sexual harassment and pregnancy discrimination. Beast Industries denies all of the claims.`\
+https://www.nytimes.com/2026/04/22/business/mrbeast-lawsuit-harassment-claims.html
+
+**Tiny Love Stories: ‘Even Our Waitress Was Bored’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/04/22/style/tiny-modern-love-stories-even-our-waitress-was-bored.html
+
+**Republicans Have One Midterm Edge, and It’s Worth $600 Million**\
+`Even as the party faces a worrisome political environment and its candidates are outraised by Democratic ones, powerful Republican groups and super PACs have built a colossal advantage.`\
+https://www.nytimes.com/2026/04/22/us/politics/democrat-republican-midterm-election-fundraising.html
+
 **Rep. David Scott, Longtime Georgia Lawmaker, Dies at 80**\
 `The former Georgia state lawmaker was an advocate for issues that affected Black communities. He drew attention for his refusal to exit politics amid health problems.`\
 https://www.nytimes.com/2026/04/22/us/politics/david-scott-dead-georgia-congress.html
