@@ -1,3 +1,31 @@
+**Pope Leo Is Skipping Some of Africa’s Biggest Catholic Nations**\
+`As the pontiff arrives in the tiny authoritarian nation of Equatorial Guinea, some Catholics in Africa say they are excited about his visit but are feeling a little left out.`\
+https://www.nytimes.com/2026/04/22/world/africa/pope-leo-visit-snubbed.html
+
+**Hey, Bampot! Can You Tell Real British Insults From Fakes in This Quiz?**\
+`Researchers in the U.K. are working to document the country’s array of obscure invective.`\
+https://www.nytimes.com/interactive/2026/04/22/world/europe/british-insults-quiz.html
+
+**A Year After Terrorist Attack, a Kashmir Town Longs for Tourists**\
+`Pahalgam, with steep ravines, grassy hillsides and pine forests, is a base for Hindu pilgrimages that business operators hope will revive visitors.`\
+https://www.nytimes.com/2026/04/22/world/asia/kashmir-attacks-kashmir-india.html
+
+**Corrections: April 22, 2026**\
+`Corrections that appeared in print on Wednesday, April 22, 2026.`\
+https://www.nytimes.com/2026/04/22/pageoneplus/corrections-april-22-2026.html
+
+**Quote of the Day: Tender Are the Notes: 8 Keats Letters Reappear**\
+`Quotation of the Day for Wednesday, April 22, 2026.`\
+https://www.nytimes.com/2026/04/21/pageoneplus/quote-of-the-day-tender-are-the-notes-8-keats-letters-reappear.html
+
+**U.S. Sends Plane to Cuba to Get Child in Transgender Custody Case**\
+`The F.B.I. believed the child was kidnapped by a transgender parent to potentially undergo gender transition surgery, according to court filings.`\
+https://www.nytimes.com/2026/04/21/world/americas/cuba-us-child-justice-department-transgender.html
+
+**Two Drugs Stir Hope for Treatment of Deadly Pancreatic Cancer**\
+`In separate small clinical trials, two treatments showed promise that they could help patients with one of the most dire diagnoses in oncology.`\
+https://www.nytimes.com/2026/04/21/business/pancreas-cancer-experimental-drugs.html
+
 **Olafur Eliasson Uses Art and Sound to Raise Climate Awareness in Utah**\
 `The Danish Icelandic artist reflects on his childhood and how it influenced and empowered his art.`\
 https://www.nytimes.com/2026/04/21/arts/design/olafur-eliasson-sphere-salt-lake.html
