@@ -1,3 +1,7 @@
+**Michael Kosta Introduces Former Labor Secretary Lori Chavez-DeRemer**\
+`“It’s always the ones you never heard of,” the late night host said on Tuesday’s “The Daily Show.”`\
+https://www.nytimes.com/2026/04/22/arts/television/michael-kosta-chavez-deremer.html
+
 **Virginia Voters Approve New Map Favoring Democrats**\
 `Virginia voters approved a new map that could flip four House seats away from Republicans going into the 2026 midterm elections. It was the latest fight in the national redistricting war.`\
 https://www.nytimes.com/video/us/politics/100000010855962/virginia-redistricting-election-map.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/21/us/elections/redistricting-gerrymandering-vir
 **An Installation in Nature has Climate Lessons for Humans**\
 `With lichen, mechanical artwork and a barrel of snowflakes, “Climate Clock” will wind along a trail through the forests outside Oulu, Finland.`\
 https://www.nytimes.com/2026/04/21/arts/design/finland-climate-clock.html
-
-**The Haas Brothers’ Creative Creations Are on Tour**\
-`A midcareer survey of the work by the twins Simon Haas and Nikolai Haas is touring the country.`\
-https://www.nytimes.com/2026/04/21/arts/design/haas-brothers-twins.html
 
