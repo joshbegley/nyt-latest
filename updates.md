@@ -1,3 +1,7 @@
+**Oil Prices Rise as Investors Weigh Cease-Fire Extension**\
+`Oil prices stablized as investors scrambled to make sense of President Trump’s decision to extend the cease-fire with Iran`\
+https://www.nytimes.com/2026/04/22/business/oi-gas-stocks-iran.html
+
 **F.A.A. Investigates Near Miss Between Passenger Jets at J.F.K. Airport**\
 `An American Airlines regional jet flew close to an Air Canada regional jet after aborting its landing. It was the second such incident in recent days at a major U.S. airport.`\
 https://www.nytimes.com/2026/04/22/us/jfk-airport-jets-near-collision.html

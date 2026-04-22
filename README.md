@@ -1,3 +1,11 @@
+**California Candidates to Appear in First Major Debate After Swalwell**\
+`Six candidates for governor will face off Wednesday night in a race that has been upended by Eric Swalwell’s sudden departure.`\
+https://www.nytimes.com/2026/04/22/us/california-gubernatorial-debate-swalwell.html
+
+**Pace of N.I.H. Funding Slows Further in Trump’s Second Year**\
+`The agency has approved far fewer new grants than it did in years past. A renewed effort to screen for disfavored terms and a loss of personnel are contributing.`\
+https://www.nytimes.com/2026/04/22/science/trump-nih-funding-research.html
+
 **F.A.A. Investigates Near Miss Between Passenger Jets at J.F.K. Airport**\
 `An American Airlines regional jet flew close to an Air Canada regional jet after aborting its landing. It was the second such incident in recent days at a major U.S. airport.`\
 https://www.nytimes.com/2026/04/22/us/jfk-airport-jets-near-collision.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/22/crosswords/wordle-review-1769.html
 **Oil Prices Rise as Investors Weigh Cease-Fire Extension**\
 `Oil prices stablized as investors scrambled to make sense of President Trump’s decision to extend the cease-fire with Iran`\
 https://www.nytimes.com/2026/04/22/business/oi-gas-stocks-iran.html
-
-**Imagining the Manosphere as a Kinder, Gentler Place**\
-`Two art exhibitions examining hypermasculine online content and its impact argue that sensitivity and vulnerability are also manly virtues.`\
-https://www.nytimes.com/2026/04/22/arts/design/manosphere-exhibition-stedelijk.html
-
-**Hoarding Is Driving Energy Prices Higher Everywhere**\
-`As wealthy nations scramble to secure stocks of oil, the result is higher prices for all and shortages in vulnerable countries.`\
-https://www.nytimes.com/2026/04/22/business/iran-war-oil-hoarding.html
 
