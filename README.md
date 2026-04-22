@@ -1,3 +1,19 @@
+**Pilot Was Taking Pictures Before South Korean Fighter Jets Collided**\
+`A member of the other plane’s crew was making a video to commemorate the mission, the government said in a report on the 2021 crash. No one was hurt.`\
+https://www.nytimes.com/2026/04/22/world/asia/south-korean-fighter-jets-photos-phones.html
+
+**Bessent Backs Financial Support for Oil-Rich U.A.E.**\
+`The Treasury secretary said that currency swap line would benefit both the United Arab Emirates and the United States.`\
+https://www.nytimes.com/2026/04/22/us/politics/bessent-support-emirates.html
+
+**I Had an Affair With My Friend’s Wife. Should I Tell Him?**\
+`I didn’t even know he was married, let alone to her.`\
+https://www.nytimes.com/2026/04/22/magazine/affair-friends-wife-ethics.html
+
+**Whether for or against the war, Iranians say they’re feeling economic pain.**\
+``\
+https://www.nytimes.com/live/2026/04/22/world/iran-war-trump-ceasefire-talks/iran-turkey-border
+
 **Crypto Entrepreneur Files Fraud Suit Against Trump Family Firm**\
 `Justin Sun, one of the largest backers of World Liberty Financial, sued the Trump family’s crypto start-up, accusing it of a fraudulent scheme to pressure him into buying digital coins.`\
 https://www.nytimes.com/2026/04/22/technology/justin-sun-crypto-world-liberty-trump.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/22/us/supreme-court-afghanistan-bombing.html
 **In Central Java, an Eco-Resort Aims to Build Sustainability Through Creativity**\
 `When an Indonesian and Australian couple bought Yabbiekayu, their first visitors were foreigners. Now, they aim to be part of a “cultural awakening” in the region.`\
 https://www.nytimes.com/2026/04/22/arts/design/eco-resort-indonesia.html
-
-**In 1968, They Saw Earth From the Moon for the First Time**\
-`It’s the most iconic image of our planet. Decades before the Artemis II mission, a group of astronauts experienced an Earth rising for the first time. This Earth Day, hear their story and the story of a photograph that changed the way we think about our place in the universe.`\
-https://www.nytimes.com/video/opinion/100000010851813/in-1968-they-saw-earth-from-the-moon-for-the-first-time.html
-
-**Anthropic’s New A.I. Model Sets Off Global Alarms**\
-`Mythos has triggered emergency responses from central banks and intelligence agencies globally, as Anthropic decides who has access to the powerful model.`\
-https://www.nytimes.com/2026/04/22/technology/anthropics-mythos-ai.html
-
-**Anthropic’s Leaked Code Tests Copyright Challenges in A.I. Era**\
-`Artificial intelligence tools are making it faster than ever to reproduce creative work. Does copyright even matter anymore?`\
-https://www.nytimes.com/2026/04/22/technology/anthropic-code-leak-copyright.html
-
-**Trump’s Fed Pick Faces Tough Task Shedding ‘Sock Puppet’ Label**\
-`Kevin M. Warsh, at his confirmation hearing to lead the Federal Reserve, sought to dispel doubts that he would yield to President Trump’s demand for lower rates.`\
-https://www.nytimes.com/2026/04/22/business/trumps-warsh-fed-sock-puppet.html
 
