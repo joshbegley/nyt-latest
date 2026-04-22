@@ -1,3 +1,23 @@
+**Joy Harmon, Car-Washing Temptress in ‘Cool Hand Luke,’ Dies at 87**\
+`All it took was a bucket of soapy water and a slinky housedress for her to achieve movie immortality in the 1967 Paul Newman classic.`\
+https://www.nytimes.com/2026/04/22/movies/joy-harmon-dead.html
+
+**Not a Deal-Breaker: White House Downplays Iranian Strikes Near the Strait**\
+`President Trump’s threats have given way (for the moment, at least) to a more conciliatory tone about Iran’s actions in the Strait of Hormuz.`\
+https://www.nytimes.com/2026/04/22/us/politics/white-house-downplays-iranian-strikes-near-the-strait.html
+
+**RFK Jr. Defends Trump’s Mathematically Impossible Drug Discount Claims**\
+`President Trump has claimed that he has secured discounts of 400 to 1,500 percent on prescription drugs. A price discount cannot be more than 100 percent because that would lower the price to zero.`\
+https://www.nytimes.com/2026/04/22/us/politics/rfk-jr-trump-impossible-drug-discounts.html
+
+**How Kevin Warsh Is Distancing Himself From Trump**\
+`Lawmakers questioned the ability of Kevin Warsh, President Trump’s pick for Fed chair, to lead the central bank independently. Colby Smith explains how Mr. Warsh tried to distance himself from the president.`\
+https://www.nytimes.com/video/us/100000010854852/how-kevin-warsh-is-distancing-himself-from-trump.html
+
+**Alan Osmond, Who Led His Brothers in a Boy Band, Dies at 76**\
+`He was the eldest original member of the Osmonds, a family singing group that hit it big in the 1970s with songs like “One Bad Apple.”`\
+https://www.nytimes.com/2026/04/22/arts/music/alan-osmond-dead.html
+
 **Judge Dismisses Sean Combs’s $100 Million Defamation Suit Against NBC**\
 `The now imprisoned music mogul had sued after NBCUniversal’s streaming service, Peacock aired the documentary “Diddy: The Making of a Bad Boy” last year.`\
 https://www.nytimes.com/2026/04/22/arts/music/sean-combs-defamation-lawsuit-nbc-peacock.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/04/22/world/anti-trumpism-europe-spain-italy-ukrain
 **Yale Has Come Up With a Surefire Way to Make a Terrible Situation Worse**\
 `Don’t retreat from the world; engage it. `\
 https://www.nytimes.com/2026/04/22/opinion/yale-has-come-up-with-a-surefire-way-to-make-a-terrible-situation-worse.html
-
-**Why Virginia’s New Map Matters for the Midterms, and What’s Next**\
-`Attention now turns to Florida, and the Supreme Court.`\
-https://www.nytimes.com/2026/04/22/us/politics/virginia-redistricting-map-democrats-midterms.html
-
-**Drake’s Publicity Stunt Brings Ice, Blowtorches and Headaches to Toronto**\
-`Fire crews melted a 25-foot-tall ice structure erected to promote the rapper’s forthcoming album, “Iceman,” less than a week after an explosion for a Drake music video shook part of the city.`\
-https://www.nytimes.com/2026/04/22/world/canada/drake-album-ice-block-toronto.html
-
-**At Least 2 Dead in West Virginia Chemical Spill, Officials Say**\
-`A “chemical release” of hydrogen sulfide in Nitro, W.Va., left at least two people dead, officials said.`\
-https://www.nytimes.com/video/us/100000010857484/west-virginia-chemical-spill.html
-
-**Making an Omelet Without Breaking the Bank**\
-`Plus, why eggs in California are more expensive.`\
-https://www.nytimes.com/2026/04/22/headway/newsletter-eggs-cost-economy.html
-
-**Restrictions on Transgender Students Violated Law, New York Finds**\
-`Two school districts had similar policies that required students to use facilities that were gender neutral or aligned with their sex assigned at birth.`\
-https://www.nytimes.com/2026/04/22/nyregion/transgender-schools-restrictions-long-island.html
 
