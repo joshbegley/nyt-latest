@@ -1,3 +1,7 @@
+**Mississippi U.S. Senate Election 2026: Latest Polls**\
+`Track the latest polls in the Mississippi U.S. Senate election.`\
+https://www.nytimes.com/interactive/polls/mississippi-us-senate-election-polls-2026.html
+
 **Kansas U.S. Senate Election 2026: Latest Polls**\
 `Track the latest polls in the Kansas U.S. Senate election.`\
 https://www.nytimes.com/interactive/polls/kansas-us-senate-election-polls-2026.html
