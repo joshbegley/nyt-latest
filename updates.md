@@ -1,3 +1,19 @@
+**U.S. forces stop a second tanker they say is carrying Iranian oil.**\
+``\
+https://www.nytimes.com/live/2026/04/23/world/iran-war-trump-news/us-forces-stop-a-second-tanker-they-say-is-carrying-iranian-oil
+
+**Michael Tilson Thomas, Celebrated American Conductor, Dies at 81**\
+`A galvanizing force in classical music as a conductor, composer, pianist and evangelist, he spent 25 years as music director of the San Francisco Symphony.`\
+https://www.nytimes.com/2026/04/23/arts/music/michael-tilson-thomas-dead.html
+
+**Colorado U.S. Senate Election 2026: Latest Polls**\
+`Track the latest polls in the Colorado U.S. Senate election.`\
+https://www.nytimes.com/interactive/polls/colorado-us-senate-election-polls-2026.html
+
+**Oklahoma U.S. Senate Election 2026: Latest Polls**\
+`Track the latest polls in the Oklahoma U.S. Senate election.`\
+https://www.nytimes.com/interactive/polls/oklahoma-us-senate-election-polls-2026.html
+
 **House Republicans, Investigating ActBlue, Ask Its C.E.O. to Testify**\
 `The request is a significant escalation of G.O.P. pressure on the liberal fund-raising organization over its vetting of donations.`\
 https://www.nytimes.com/2026/04/23/us/politics/actblue-republicans-regina-wallace-jones.html
