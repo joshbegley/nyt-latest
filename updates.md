@@ -1,3 +1,19 @@
+**Why Has ‘Christ Is King’ Become a Controversial Statement?**\
+`For some, the three words have become encoded with a message of hate.`\
+https://www.nytimes.com/2026/04/23/style/christ-is-king-nick-fuentes-candace-owens.html
+
+**They Were Tattooed and Trafficked. Dermatologists Are Removing the Scars.**\
+`People who are sex trafficked are often branded with names and symbols. Free removal programs are helping them move on.`\
+https://www.nytimes.com/2026/04/23/well/tattoo-removal-sex-trafficking.html
+
+**It’s Shrimp Taco Time**\
+`Garlicky shrimp tacos, to be exact, with pico de gallo, sliced radishes, avocado and lots of lime.`\
+https://www.nytimes.com/2026/04/23/dining/its-shrimp-taco-time.html
+
+**After a Hero’s Fall, What to Do With the Art That Honored Him?**\
+`Artists who created public depictions of the civil rights icon Cesar Chavez have had to revisit their works after accusations emerged of Mr. Chavez’s sexual abuse of girls in the movement.`\
+https://www.nytimes.com/2026/04/23/us/cesar-chavez-art-changes.html
+
 **Trump Administration Loosens Restrictions on Medical Marijuana**\
 `The rule moves F.D.A.-approved marijuana and state-regulated marijuana out of the Schedule I category, which includes drugs like heroin.`\
 https://www.nytimes.com/2026/04/23/us/politics/trump-medical-marijuana-classification-drug-reschedule.html

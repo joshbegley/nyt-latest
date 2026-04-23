@@ -1,3 +1,15 @@
+**Why Has ‘Christ Is King’ Become a Controversial Statement?**\
+`For some, the three words have become encoded with a message of hate.`\
+https://www.nytimes.com/2026/04/23/style/christ-is-king-nick-fuentes-candace-owens.html
+
+**They Were Tattooed and Trafficked. Dermatologists Are Removing the Scars.**\
+`People who are sex trafficked are often branded with names and symbols. Free removal programs are helping them move on.`\
+https://www.nytimes.com/2026/04/23/well/tattoo-removal-sex-trafficking.html
+
+**It’s Shrimp Taco Time**\
+`Garlicky shrimp tacos, to be exact, with pico de gallo, sliced radishes, avocado and lots of lime.`\
+https://www.nytimes.com/2026/04/23/dining/its-shrimp-taco-time.html
+
 **Trump Administration Loosens Restrictions on Medical Marijuana**\
 `The rule moves F.D.A.-approved marijuana and state-regulated marijuana out of the Schedule I category, which includes drugs like heroin.`\
 https://www.nytimes.com/2026/04/23/us/politics/trump-medical-marijuana-classification-drug-reschedule.html
@@ -31,7 +43,7 @@ https://www.nytimes.com/interactive/polls/mississippi-us-senate-election-polls-2
 https://www.nytimes.com/interactive/polls/kansas-us-senate-election-polls-2026.html
 
 **After a Hero’s Fall, What to Do With the Art That Honored Him?**\
-`Artists who created public depictions of the civil rights icon Cesar Chavez have had revisit their works after accusations emerged of Mr. Chavez’s sexual abuse of girls in the movement.`\
+`Artists who created public depictions of the civil rights icon Cesar Chavez have had to revisit their works after accusations emerged of Mr. Chavez’s sexual abuse of girls in the movement.`\
 https://www.nytimes.com/2026/04/23/us/cesar-chavez-art-changes.html
 
 **Iowa Governor Election 2026: Latest Polls**\
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/23/arts/music/michael-tilson-thomas-dead.html
 **Colorado U.S. Senate Election 2026: Latest Polls**\
 `Track the latest polls in the Colorado U.S. Senate election.`\
 https://www.nytimes.com/interactive/polls/colorado-us-senate-election-polls-2026.html
-
-**Oklahoma U.S. Senate Election 2026: Latest Polls**\
-`Track the latest polls in the Oklahoma U.S. Senate election.`\
-https://www.nytimes.com/interactive/polls/oklahoma-us-senate-election-polls-2026.html
-
-**House Republicans, Investigating ActBlue, Ask Its C.E.O. to Testify**\
-`The request is a significant escalation of G.O.P. pressure on the liberal fund-raising organization over its vetting of donations.`\
-https://www.nytimes.com/2026/04/23/us/politics/actblue-republicans-regina-wallace-jones.html
-
-**Investors Fret Over Tesla’s $25 Billion A.I. Bet**\
-`Elon Musk’s electric vehicle company said that it needs to spend big on artificial intelligence and robots. Wall Street is worried about the bill.`\
-https://www.nytimes.com/2026/04/23/business/dealbook/tesla-musk-ai-bet.html
 
