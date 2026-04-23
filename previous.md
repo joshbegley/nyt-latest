@@ -1,3 +1,7 @@
+**Una nueva era y el nuevo liderazgo en Irán**\
+`En los ataques de EE. UU. e Israel, Irán perdió a sus principales líderes. Hoy, el poder real está en manos de los generales de la Guardia Revolucionaria.`\
+https://www.nytimes.com/es/2026/04/23/espanol/mundo/nuevos-lideres-iran.html
+
 **Why Has ‘Christ Is King’ Become a Controversial Statement?**\
 `For some, the three words have become encoded with a message of hate.`\
 https://www.nytimes.com/2026/04/23/style/christ-is-king-nick-fuentes-candace-owens.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/23/world/middleeast/us-iran-oil-tanker-indian-oc
 **Michael Tilson Thomas, Celebrated American Conductor, Dies at 81**\
 `A galvanizing force in classical music as a conductor, composer, pianist and evangelist, he spent 25 years as music director of the San Francisco Symphony.`\
 https://www.nytimes.com/2026/04/23/arts/music/michael-tilson-thomas-dead.html
-
-**Colorado U.S. Senate Election 2026: Latest Polls**\
-`Track the latest polls in the Colorado U.S. Senate election.`\
-https://www.nytimes.com/interactive/polls/colorado-us-senate-election-polls-2026.html
 

@@ -1,3 +1,7 @@
+**Una nueva era y el nuevo liderazgo en Irán**\
+`En los ataques de EE. UU. e Israel, Irán perdió a sus principales líderes. Hoy, el poder real está en manos de los generales de la Guardia Revolucionaria.`\
+https://www.nytimes.com/es/2026/04/23/espanol/mundo/nuevos-lideres-iran.html
+
 **Why Has ‘Christ Is King’ Become a Controversial Statement?**\
 `For some, the three words have become encoded with a message of hate.`\
 https://www.nytimes.com/2026/04/23/style/christ-is-king-nick-fuentes-candace-owens.html
