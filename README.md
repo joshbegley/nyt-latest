@@ -1,3 +1,7 @@
+**U.S. Seizes Second Tanker Carrying Iranian Oil**\
+`Navy destroyers are also shadowing several other vessels that left from an Iranian port before the U.S.-imposed blockade began, a U.S. military official said.`\
+https://www.nytimes.com/2026/04/23/us/politics/us-seizes-tanker-iran.html
+
 **Warner Bros. Investors Approve Deal With Paramount**\
 `The vote brings the tech scion David Ellison one step closer to uniting some of the world’s biggest news and entertainment properties.`\
 https://www.nytimes.com/2026/04/23/business/media/warner-bros-investors-paramount-vote.html
@@ -26,7 +30,7 @@ https://www.nytimes.com/interactive/polls/iowa-governor-election-polls-2026.html
 `Since Ukraine attacked the refinery in Tuapse, starting a huge fire, residents have reported drops of dark, oily toxins falling from the sky.`\
 https://www.nytimes.com/2026/04/23/world/europe/russia-oil-refinery-black-rain.html
 
-**Zelensky detailed deals Ukraine signed to bolster Gulf nations’ defense against Iranian drones.**\
+**Zelensky details deals Ukraine signed to bolster Gulf nations’ defense against Iranian drones.**\
 ``\
 https://www.nytimes.com/live/2026/04/23/world/iran-war-trump-news/zelensky-deals-ukraine-gulf-drones
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/23/arts/design/turner-prize-shortlist.html
 **The Iran War, in Numbers**\
 `Here are some statistics to give context to the conflict.`\
 https://www.nytimes.com/2026/04/23/briefing/the-iran-war-in-numbers.html
-
-**El antitrumpismo une a Europa**\
-`La toxicidad de Trump ha hecho que distanciarse de él sea una necesidad para líderes de todo el espectro político.`\
-https://www.nytimes.com/es/2026/04/23/espanol/mundo/antitrumpismo-europa.html
 
