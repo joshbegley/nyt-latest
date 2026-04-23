@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/23/world/iran-war-trump-news/heres-the-latest
+
+**Trains Collide in Denmark, Leaving 4 Seriously Hurt**\
+`Officials said that a total of 17 were hospitalized after the head-on crash in the Copenhagen area.`\
+https://www.nytimes.com/2026/04/23/world/europe/denmark-trains-collision-copenhagen.html
+
 **¿Qué tan auténtico es ese wagyu que te vas a comer?**\
 `El corte original viene de Japón, pero criadores alrededor del mundo han combinado otros linajes de reses en la carrera por obtener el jugoso manjar.`\
 https://www.nytimes.com/es/2026/04/23/espanol/estilos-de-vida/wagyu-carne-calidad.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/embedded/world/asia/100000010853466/00INT-india-lo
 **Corrections: April 23, 2026**\
 `Corrections that appeared in print on Thursday, April 23, 2026.`\
 https://www.nytimes.com/2026/04/23/pageoneplus/corrections-april-23-2026.html
-
-**Quote of the Day: In Virginia Redistricting Win, Democrats Play Hardball to Thwart Trump**\
-`Quotation of the Day for Thursday, April 23, 2026.`\
-https://www.nytimes.com/2026/04/22/pageoneplus/quote-of-the-day-in-virginia-redistricting-win-democrats-play-hardball-to-thwart-trump.html
-
-**‘Beaches’ Review: A Classic Weepie Dries Its Tears**\
-`A new musical version of the 1980s tear-jerker comes to Broadway, but the production is too muddled to make an emotional impact.`\
-https://www.nytimes.com/2026/04/22/theater/beaches-review-broadway.html
 
