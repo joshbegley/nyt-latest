@@ -1,3 +1,7 @@
+**Doug Allan, Polar Cameraman for David Attenborough’s Films, Dies at 74**\
+`He was renowned for his skill at capturing candid scenes of penguins, polar bears and other cold-weather creatures — and for his ability to tolerate extreme discomfort.`\
+https://www.nytimes.com/2026/04/23/science/doug-allan-dead.html
+
 **Court Revives D.C.’s Ban on High-Capacity Gun Magazines, for Now**\
 `The Trump administration and D.C. officials, normally at odds over the city’s strict gun laws, had both asked the court to reconsider the case.`\
 https://www.nytimes.com/2026/04/23/us/politics/dc-ban-gun-magazines.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/23/us/shooting-mall-of-louisiana-baton-rouge.htm
 **Microsoft Targets About 7% of Its U.S. Workers With Buyout Offer**\
 `The tech giant is offering long-serving employees early retirements as it continues to invest aggressively in artificial intelligence.`\
 https://www.nytimes.com/2026/04/23/business/microsoft-layoffs-artificial-intelligence.html
-
-**What Is YouTube’s Dominance Doing to Us? We Asked Its C.E.O.**\
-`YouTube’s chief executive, Neal Mohan, has led the company since 2023. He talks about overseeing the platform’s rapid growth.`\
-https://www.nytimes.com/video/podcasts/100000010805137/what-is-youtubes-dominance-doing-to-us-we-asked-its-ceo.html
 
