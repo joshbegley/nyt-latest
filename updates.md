@@ -1,3 +1,15 @@
+**Trump Says He’s Renovating ‘Filthy’ Reflecting Pool on the National Mall**\
+`The pool, which is more than 2,000 feet long, was the site of Martin Luther King Jr.’s “I Have a Dream” speech and other events.`\
+https://www.nytimes.com/2026/04/23/us/politics/trump-reflecting-pool-renovation.html
+
+**Soldier Used Classified Information to Bet on Maduro’s Ouster, U.S. Says**\
+`Federal prosecutors say that Sgt. Gannon Ken Van Dyke, who was involved in planning to oust Nicolás Maduro from power in Venezuela, used the information to place bets on a prediction market.`\
+https://www.nytimes.com/2026/04/23/nyregion/polymarket-maduro-indictment-soldier.html
+
+**Trump Keeps Talking About Iran’s ‘Nuclear Dust.’ What Is It?**\
+`First of all, it isn’t dust. It’s Iran’s stockpile of near-bomb-grade uranium, which is stored in large canisters about the size of scuba tanks.`\
+https://www.nytimes.com/live/2026/04/23/world/iran-war-trump-news/trump-iran-nuclear-dust-uranium
+
 **Un choque mortal muestra los profundos lazos entre EE. UU. y México en materia de seguridad**\
 `El suceso reabrió el debate sobre la soberanía y la cooperación entre dos naciones que comparten mucho más que una larga frontera.`\
 https://www.nytimes.com/es/2026/04/23/espanol/america-latina/mexico-accidente-investigadores-cia.html
