@@ -1,4 +1,8 @@
 **Top Condom Producer to Increase Prices Due to War in Iran**\
+`The world’s top condom maker is raising prices of its products by up to 30 percent, warning that shortages of raw materials and chemicals because of the war in Iran could disrupt production.`\
+https://www.nytimes.com/video/world/asia/100000010858682/iran-war-condom-prices-increase.html
+
+**Top Condom Producer to Increase Prices Due to War in Iran**\
 `The world’s largest condom maker is raising prices of its products by up to 30 percent, warning that shortages of raw materials and chemicals because of the war in Iran could disrupt production.`\
 https://www.nytimes.com/video/world/asia/100000010858682/iran-war-condom-prices-increase.html
 
