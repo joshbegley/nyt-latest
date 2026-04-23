@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/04/23/us/politics/california-governor-debate-takeaw
 `Navy Secretary John Phelan was fired on Wednesday after months of infighting with senior Pentagon leaders. He championed a major investment in new ships, including a “Trump-class” battleship.`\
 https://www.nytimes.com/video/us/100000010858340/navy-secretary-john-phelan-fired.html
 
-**My Years Capturing the Global Fight for Democracy**\
+**I’ve Photographed Protests Around the World. This Still Surprises Me.**\
 `Scenes from life in a global era increasingly shaped by confrontations with authoritarian power.`\
 https://www.nytimes.com/2026/04/23/opinion/matthew-connors-photos-protest-authoritarianism.html
 

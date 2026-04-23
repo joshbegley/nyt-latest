@@ -1,3 +1,7 @@
+**I’ve Photographed Protests Around the World. This Still Surprises Me.**\
+`Scenes from life in a global era increasingly shaped by confrontations with authoritarian power.`\
+https://www.nytimes.com/2026/04/23/opinion/matthew-connors-photos-protest-authoritarianism.html
+
 **Palabra del día: ‘extant’**\
 `Esta palabra ha aparecido en 28 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/04/23/espanol/que-significa-extant.html
