@@ -1,3 +1,7 @@
+**‘Beaches’ Review: A Classic Weepie Dries Its Tears**\
+`A new musical version of the 1980s tear-jerker comes to Broadway, but the production is too muddled to make an emotional impact.`\
+https://www.nytimes.com/2026/04/22/theater/beaches-review-broadway.html
+
 **Ring Combo**\
 `Zhou Zhang and Kevin Curry’s second collaboration is a family affair.`\
 https://www.nytimes.com/2026/04/22/crosswords/daily-puzzle-2026-04-23.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/22/movies/joy-harmon-dead.html
 **Not a Deal-Breaker: White House Downplays Iranian Action Near the Strait**\
 `President Trump’s threats have given way (for the moment, at least) to a more conciliatory tone about Iran’s actions in the Strait of Hormuz.`\
 https://www.nytimes.com/2026/04/22/us/politics/trump-iran-strait-of-hormuz-ships.html
-
-**RFK Jr. Defends Trump’s Mathematically Impossible Drug Discount Claims**\
-`President Trump has claimed that he has secured discounts of 400 to 1,500 percent on prescription drugs. A price discount cannot be more than 100 percent because that would lower the price to zero.`\
-https://www.nytimes.com/2026/04/22/us/politics/rfk-jr-trump-impossible-drug-discounts.html
 
