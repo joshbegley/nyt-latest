@@ -1,3 +1,7 @@
+**The ‘Make America Healthy Again’ Movement Is Cooling on Trump and Republicans**\
+`Vaccine skeptics, ‘organic moms’ and environmental activists came together toelect President Trump. Butsome voters are disillusioned and might not turn out again.`\
+https://www.nytimes.com/2026/04/23/us/politics/maha-voters-midterms.html
+
 **Justice Dept. Targets Hundreds of Citizens in New Push for Denaturalization**\
 `The Trump administration is assigning denaturalization cases to regular prosecutors, which could lead to a surge of people stripped of U.S. citizenship.`\
 https://www.nytimes.com/2026/04/23/us/politics/justice-dept-citizens-denaturalization.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/04/23/business/media/warner-bros-investors-paramoun
 **Anne Hathaway Is Ready for Her Personal ‘Eras Tour’**\
 `On “Popcast,” Anne Hathaway spoke with our hosts, Joe Coscarelli and Jon Caramanica, about why she’s returning to her classic characters from “The Devil Wears Prada” and “The Princess Diaries.”`\
 https://www.nytimes.com/video/podcasts/100000010858832/anne-hathaway-is-ready-for-her-personal-eras-tour.html
-
-**Mississippi U.S. Senate Election 2026: Latest Polls**\
-`Track the latest polls in the Mississippi U.S. Senate election.`\
-https://www.nytimes.com/interactive/polls/mississippi-us-senate-election-polls-2026.html
 

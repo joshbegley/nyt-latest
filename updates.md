@@ -1,3 +1,7 @@
+**The ‘Make America Healthy Again’ Movement Is Cooling on Trump and Republicans**\
+`Vaccine skeptics, ‘organic moms’ and environmental activists came together toelect President Trump. Butsome voters are disillusioned and might not turn out again.`\
+https://www.nytimes.com/2026/04/23/us/politics/maha-voters-midterms.html
+
 **Justice Dept. Targets Hundreds of Citizens in New Push for Denaturalization**\
 `The Trump administration is assigning denaturalization cases to regular prosecutors, which could lead to a surge of people stripped of U.S. citizenship.`\
 https://www.nytimes.com/2026/04/23/us/politics/justice-dept-citizens-denaturalization.html
