@@ -1,3 +1,11 @@
+**Several People Are Shot at a Mall in Louisiana**\
+`The state attorney general said on social media that “a weapon or weapons” had been discharged in the food court at the Mall of Louisiana in Baton Rouge.`\
+https://www.nytimes.com/2026/04/23/us/shooting-mall-of-louisiana-baton-rouge.html
+
+**Microsoft Targets About 7% of Its U.S. Workers With Buyout Offer**\
+`The tech giant is offering long-serving employees early retirements as it continues to invest aggressively in artificial intelligence.`\
+https://www.nytimes.com/2026/04/23/business/microsoft-layoffs-artificial-intelligence.html
+
 **What Is YouTube’s Dominance Doing to Us? We Asked Its C.E.O.**\
 `YouTube’s chief executive, Neal Mohan, has led the company since 2023. He talks about overseeing the platform’s rapid growth.`\
 https://www.nytimes.com/video/podcasts/100000010805137/what-is-youtubes-dominance-doing-to-us-we-asked-its-ceo.html
@@ -20,7 +28,7 @@ https://www.nytimes.com/2026/04/23/nyregion/thomas-kean-jr-republican-missing.ht
 
 **Two Litigation Partners Depart Paul Weiss**\
 `The departure of Kannon Shanmugam and Masha Hansford is the latest in a string of litigators who have left the influential New York law firm.`\
-https://www.nytimes.com/2026/04/23/business/two-litigation-partners-depart-paul-weiss.html
+https://www.nytimes.com/2026/04/23/business/paul-weiss-law-firm-departures.html
 
 **Stream These Movies and TV Shows Before They Leave Netflix in May**\
 `Dozens of titles leave the streaming service for U.S. subscribers every month. Here’s a roundup of the best ones leaving soon.`\
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/23/opinion/english-linguistics-pronunciation.htm
 **What’s Going On in This Picture? | April 27, 2026**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://www.nytimes.com/2026/04/23/learning/whats-going-on-in-this-picture-april-27-2026.html
-
-**Tanzania Blames Outsiders and Government Foes for Election Violence**\
-`The findings in a new report by a commission appointed by the government were at odds with details from human rights groups, which estimate that hundreds and possibly thousands of people were killed.`\
-https://www.nytimes.com/2026/04/23/world/africa/tanzania-election-violence-report.html
-
-**A Deadly Crash Is a Reminder of the Depth of U.S. Security Ties in Mexico**\
-`The deaths of two C.I.A. officers in a crash in northern Mexico sparked questions about authorization and sovereignty, but also reflected a longstanding, sensitive security partnership between the two countries.`\
-https://www.nytimes.com/2026/04/23/world/americas/mexico-crash-us-security-cia.html
 

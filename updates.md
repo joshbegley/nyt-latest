@@ -1,3 +1,15 @@
+**Several People Are Shot at a Mall in Louisiana**\
+`The state attorney general said on social media that “a weapon or weapons” had been discharged in the food court at the Mall of Louisiana in Baton Rouge.`\
+https://www.nytimes.com/2026/04/23/us/shooting-mall-of-louisiana-baton-rouge.html
+
+**Microsoft Targets About 7% of Its U.S. Workers With Buyout Offer**\
+`The tech giant is offering long-serving employees early retirements as it continues to invest aggressively in artificial intelligence.`\
+https://www.nytimes.com/2026/04/23/business/microsoft-layoffs-artificial-intelligence.html
+
+**Two Litigation Partners Depart Paul Weiss**\
+`The departure of Kannon Shanmugam and Masha Hansford is the latest in a string of litigators who have left the influential New York law firm.`\
+https://www.nytimes.com/2026/04/23/business/paul-weiss-law-firm-departures.html
+
 **What Is YouTube’s Dominance Doing to Us? We Asked Its C.E.O.**\
 `YouTube’s chief executive, Neal Mohan, has led the company since 2023. He talks about overseeing the platform’s rapid growth.`\
 https://www.nytimes.com/video/podcasts/100000010805137/what-is-youtubes-dominance-doing-to-us-we-asked-its-ceo.html
