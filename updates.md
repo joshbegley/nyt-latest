@@ -1,3 +1,7 @@
+**How We Cover the White House Correspondents’ Dinner**\
+`The annual black-tie event attracts Hollywood stars, reporters and politicians for an irreverent night celebrating press freedom.`\
+https://www.nytimes.com/2026/04/23/insider/white-house-correspondents-dinner-trump.html
+
 **After a Hero’s Fall, What to Do With the Art That Honored Him?**\
 `Artists who created public depictions of the civil rights icon Cesar Chavez have had revisit their works after accusations emerged of Mr. Chavez’s sexual abuse of girls in the movement.`\
 https://www.nytimes.com/2026/04/23/us/cesar-chavez-art-changes.html
