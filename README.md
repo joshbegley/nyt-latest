@@ -1,3 +1,7 @@
+**A New Bureau Will Oversee Both Offshore Drilling and Seabed Mining**\
+`The new federal office will undo a change made after the 2010 Deepwater Horizon oil disaster. Critics say it could reduce environmental oversight.`\
+https://www.nytimes.com/2026/04/23/climate/seabed-mining-interior-department.html
+
 **Bones of 3 Children Found in Woods May Have Been There for Years**\
 `The Memphis police chief said a chance discovery led investigators to more than a dozen bones belonging to three children between the ages of 3 and 7.`\
 https://www.nytimes.com/2026/04/23/us/children-remains-memphis-woods-investigation.html
@@ -65,12 +69,4 @@ https://www.nytimes.com/2026/04/23/us/calvin-duncan-new-orleans-election.html
 **Una nueva era y el nuevo liderazgo en Irán**\
 `En los ataques de EE. UU. e Israel, Irán perdió a sus principales líderes. Hoy, el poder real está en manos de los generales de la Guardia Revolucionaria.`\
 https://www.nytimes.com/es/2026/04/23/espanol/mundo/nuevos-lideres-iran.html
-
-**Why Has ‘Christ Is King’ Become a Controversial Statement?**\
-`For some, the three words have become encoded with a message of hate.`\
-https://www.nytimes.com/2026/04/23/style/christ-is-king-nick-fuentes-candace-owens.html
-
-**They Were Tattooed and Trafficked. Dermatologists Are Removing the Scars.**\
-`People who are sex trafficked are often branded with names and symbols. Free removal programs are helping them move on.`\
-https://www.nytimes.com/2026/04/23/well/tattoo-removal-sex-trafficking.html
 
