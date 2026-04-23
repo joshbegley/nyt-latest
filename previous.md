@@ -1,3 +1,7 @@
+**Ruth Slenczynska, 101, Dies; Piano Prodigy Overcame Father’s Abuse**\
+`Treated brutally, she went from celebrated child star to 15-year-old “burned-out candle.” Against the odds, she later resumed performing.`\
+https://www.nytimes.com/2026/04/23/arts/music/ruth-slenczynska-dead.html
+
 **Elon Musk and Sam Altman’s Epic Fight Heads to Court**\
 `A jury trial that is set to start on Monday could shift the course of the A.I. race, with Mr. Musk seeking billions of dollars in damages from Mr. Altman’s OpenAI.`\
 https://www.nytimes.com/2026/04/23/technology/elon-musk-sam-altman-openai-trial.html
@@ -35,7 +39,7 @@ https://www.nytimes.com/2026/04/23/briefing/today-in-short.html
 https://www.nytimes.com/2026/04/23/world/middleeast/karex-condom-price-increase-iran-war.html
 
 **He Was Exonerated in a Murder and Elected to Office. He May Never Serve.**\
-`Calvin Duncan, who became a lawyer and an advocate for incarcerated people, was recently elected criminal court clerk in New Orleans. Lawmakers are racing to abolish the job.`\
+`Calvin Duncan, who became a lawyer and an advocate for incarcerated people, was recently elected criminal court clerk in New Orleans. Lawmakers are racing to eliminate the role.`\
 https://www.nytimes.com/2026/04/23/us/calvin-duncan-new-orleans-election.html
 
 **Una nueva era y el nuevo liderazgo en Irán**\
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/04/23/insider/white-house-correspondents-dinner-tru
 **U.S. Seizes Second Tanker Carrying Iranian Oil**\
 `Navy destroyers are also shadowing several other vessels that left from an Iranian port before the U.S.-imposed blockade began, a U.S. military official said.`\
 https://www.nytimes.com/2026/04/23/us/politics/us-seizes-tanker-iran.html
-
-**Warner Bros. Investors Approve Deal With Paramount**\
-`The vote brings the tech scion David Ellison one step closer to uniting some of the world’s biggest news and entertainment properties.`\
-https://www.nytimes.com/2026/04/23/business/media/warner-bros-investors-paramount-vote.html
 

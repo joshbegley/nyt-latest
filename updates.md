@@ -1,3 +1,11 @@
+**Ruth Slenczynska, 101, Dies; Piano Prodigy Overcame Father’s Abuse**\
+`Treated brutally, she went from celebrated child star to 15-year-old “burned-out candle.” Against the odds, she later resumed performing.`\
+https://www.nytimes.com/2026/04/23/arts/music/ruth-slenczynska-dead.html
+
+**He Was Exonerated in a Murder and Elected to Office. He May Never Serve.**\
+`Calvin Duncan, who became a lawyer and an advocate for incarcerated people, was recently elected criminal court clerk in New Orleans. Lawmakers are racing to eliminate the role.`\
+https://www.nytimes.com/2026/04/23/us/calvin-duncan-new-orleans-election.html
+
 **Elon Musk and Sam Altman’s Epic Fight Heads to Court**\
 `A jury trial that is set to start on Monday could shift the course of the A.I. race, with Mr. Musk seeking billions of dollars in damages from Mr. Altman’s OpenAI.`\
 https://www.nytimes.com/2026/04/23/technology/elon-musk-sam-altman-openai-trial.html
