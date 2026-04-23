@@ -1,3 +1,11 @@
+**The Actress Greta Lee Walked Down the Aisle to This Song**\
+`For T Magazine’s video series “My Favorite Song,” the actress Greta Lee reveals the Beck song that played while she walked down the aisle at her wedding.`\
+https://www.nytimes.com/video/t-magazine/100000010857422/the-actress-greta-lee-walked-down-the-aisle-to-this-song.html
+
+**Judging the Supreme Court’s Shadow Docket**\
+`Readers respond to The Times’s front-page investigation of the court. Also: Lee Zeldin and the E.P.A.; talking to Iran.`\
+https://www.nytimes.com/2026/04/23/opinion/supreme-court-shadow-docket.html
+
 **Congress May Finally Recognize That Mobile Homes Aren’t Really That Mobile**\
 `An obscure federal rule requires manufactured homes to be built on a chassis, making them more costly. A bill in Congress would remove the mandate, enacted five decades ago.`\
 https://www.nytimes.com/2026/04/23/business/manufactured-homes-chassis.html
@@ -65,12 +73,4 @@ https://www.nytimes.com/es/2026/04/23/espanol/demencia-medicinas-aumenta-riesgo.
 **Today, In Short**\
 `British insults. The art of sake. And an N.F.L. draft guide.`\
 https://www.nytimes.com/2026/04/23/briefing/today-in-short.html
-
-**World’s Biggest Condom Maker Raises Prices as Iran War Rattles Supply Chains**\
-`The Malaysian company Karex, which produces about five billion condoms a year, said it was raising prices by 30 percent because of higher raw material prices and global shipping disruptions.`\
-https://www.nytimes.com/2026/04/23/world/middleeast/karex-condom-price-increase-iran-war.html
-
-**He Was Exonerated in a Murder and Elected to Office. He May Never Serve.**\
-`Calvin Duncan, who became a lawyer and an advocate for incarcerated people, was recently elected criminal court clerk in New Orleans. Lawmakers are racing to eliminate the role.`\
-https://www.nytimes.com/2026/04/23/us/calvin-duncan-new-orleans-election.html
 
