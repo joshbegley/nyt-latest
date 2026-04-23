@@ -1,80 +1,80 @@
-**‘This Is What I Think’**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://www.nytimes.com/2026/04/23/learning/this-is-what-i-think.html
+**After U.S. Aid Fell by 99%, E.U. Pledges $106 Billion Loan to Ukraine**\
+`Unlike previous European assistance packages, the latest one is heavily weighted toward military spending, reflecting a view that the war is far from over.`\
+https://www.nytimes.com/2026/04/23/world/europe/eu-loan-ukraine.html
 
-**Oil Prices Climb as Cease-Fire Uncertainty Deepens**\
-`Investors wrestled with uncertainty about the cease-fire between the United States and Iran.`\
-https://www.nytimes.com/2026/04/23/business/oil-stocks-gas-iran.html
+**Private Assets May Be Coming to Your 401(k). You Should Know the Risks.**\
+`Alternative investments could appear on some 401(k) menus in the year ahead. Here’s what that means for investors.`\
+https://www.nytimes.com/2026/04/23/your-money/401ks-and-similar-plans/401k-private-credit-crypto.html
 
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/04/23/world/iran-war-trump-news/heres-the-latest
+**What Gives You Hope That Your Generation Can Change the World for the Better?**\
+`Last year, Gen Z rose up in protest around the world. What have you seen, recently and in history, that helps you believe young people can make positive change?`\
+https://www.nytimes.com/2026/04/23/learning/what-gives-you-hope-that-your-generation-can-change-the-world-for-the-better.html
 
-**Trains Collide in Denmark, Leaving 4 Seriously Hurt**\
-`Officials said that a total of 17 were hospitalized after the head-on crash in the Copenhagen area.`\
-https://www.nytimes.com/2026/04/23/world/europe/denmark-trains-collision-copenhagen.html
+**A Bitcoin Evangelist Tries to Convert Me**\
+`What the crypto currency promises that the dollar doesn’t.`\
+https://www.nytimes.com/2026/04/23/opinion/bitcoin-crypto-anthony-pompliano.html
 
-**¿Qué tan auténtico es ese wagyu que te vas a comer?**\
-`El corte original viene de Japón, pero criadores alrededor del mundo han combinado otros linajes de reses en la carrera por obtener el jugoso manjar.`\
-https://www.nytimes.com/es/2026/04/23/espanol/estilos-de-vida/wagyu-carne-calidad.html
+**There Is Much More to Pope vs. President Than Meets the Eye**\
+`What fighting an unjust war really means.`\
+https://www.nytimes.com/2026/04/23/opinion/trump-iran-unjust-war-catholicism.html
 
-**Mythos, el nuevo modelo de IA de Anthropic, activa las alarmas globales**\
-`La conmoción por Mythos se produce en un momento en el que existe una mínima cooperación internacional en materia de IA. No existe un equivalente del Tratado sobre la No Proliferación de las Armas Nucleares, ni inspecciones compartidas, ni normas acordadas.`\
-https://www.nytimes.com/es/2026/04/23/espanol/negocios/anthropic-claude-mythos-modelo-ia-peligros.html
+**In the English Countryside, a Regency-Era Parsonage With a Walled Garden**\
+`Plus: a bohemian hotel in Madrid, a fashion designer’s first perfumes and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/04/23/t-magazine/english-countryside-vacation-rental.html
 
-**Hasta Michael Jordan se sentó a hablar de esta leyenda del baloncesto**\
-`Un nuevo documental del creador de ‘Black-ish’, Kenya Barris, repasa el legado de Jerry West, una figura tan crucial para la historia de la NBA que es el logotipo de la liga.`\
-https://www.nytimes.com/es/2026/04/23/espanol/cultura/jerry-west-nba-documental.html
+**Two Sisters, Two Husbands, a Toddler and a House in the Bay Area**\
+`Kinship and a notoriously expensive housing market spurred a family to join forces and buy a multifamily house in California. Here’s what they found.`\
+https://www.nytimes.com/interactive/2026/04/23/realestate/bay-area-oakland-berkeley-real-estate.html
 
-**¿La punción seca realmente alivia el dolor?**\
-`Que te inserten agujas diminutas en un nudo muscular doloroso es desconcertante. ¿Pero puede ayudar?`\
-https://www.nytimes.com/es/2026/04/23/espanol/dolor-alivio-acupuntura-puncion-seca-fisioterapia.html
+**Anne Hathaway, Queen of Effort, Is Finally Ready to Vibe**\
+`Known best for tightly wound characters in generational hit films, the actress is a tortured pop star in “Mother Mary” and returns to playful form in “The Devil Wears Prada 2.”`\
+https://www.nytimes.com/2026/04/23/movies/anne-hathaway-interview-popcast.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/04/23/crosswords/spelling-bee-forum.html
+**Tim Cook: Great for Apple Investors. Not as Great for America.**\
+`Tim Cook made Apple a juggernaut, but he did so by risking America’s economic and political security.`\
+https://www.nytimes.com/2026/04/23/opinion/apple-tim-cook-outsourcing-china.html
 
-**Stephen Colbert Sends Jimmy Kimmel a Box of ‘Iran War Jokes’**\
-`Colbert said he was “beginning to think this war might not be over before Memorial Day,” when “The Late Show” will have ended its run.`\
-https://www.nytimes.com/2026/04/23/arts/television/stephen-colbert-jimmy-kimmel-iran.html
+**A Huge Sewage Spill Is Over, but Contamination Lingers in the Potomac**\
+`Though river monitoring shows bacteria levels have declined, scientists and environmentalists said a full recovery isn’t yet assured.`\
+https://www.nytimes.com/2026/04/23/climate/potomac-river-sewage-contamination.html
 
-**Palabra del día: ‘extant’**\
-`Esta palabra ha aparecido en 28 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
-https://www.nytimes.com/es/2026/04/23/espanol/que-significa-extant.html
+**A Newborn Falcon Makes a Debut in a Nest 14 Stories High**\
+`Falcon Cam at a Manhattan office building revealed the first peregrine falcon to hatch there in years.`\
+https://www.nytimes.com/2026/04/23/nyregion/newborn-peregrine-falcon-manhattan.html
 
-**Word of the Day: extant**\
-`This word has appeared in 28 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/04/23/learning/word-of-the-day-extant.html
+**And Then There Were None, Trump Administration Edition**\
+`Normal language is inadequate and precedents are irrelevant when it comes to appraising the senior administration officials of the president’s second term.`\
+https://www.nytimes.com/2026/04/23/opinion/trump-cabinet-patel-noem-labor-hegseth.html
 
-**Candidates for California Governor Debate: 5 Takeaways**\
-`The nonpartisan primary remains volatile after the departure of Eric Swalwell. A televised debate featured six leading candidates, but produced few fireworks.`\
-https://www.nytimes.com/2026/04/23/us/politics/california-governor-debate-takeaways.html
+**Bragging Rights in Brooklyn Heights**\
+`Two homes, both described as the area’s oldest, are up for sale. A search through 200 years of deeds reveals their true origins.`\
+https://www.nytimes.com/2026/04/23/realestate/brooklyn-heights-historic-house.html
 
-**Pentagon Fires Navy Secretary**\
-`Navy Secretary John Phelan was fired on Wednesday after months of infighting with senior Pentagon leaders. He championed a major investment in new ships, including a “Trump-class” battleship.`\
-https://www.nytimes.com/video/us/100000010858340/navy-secretary-john-phelan-fired.html
+**Mamdani Considers Delaying Pension-Fund Payments to Ease Budget Gap**\
+`With New York City facing a multibillion-dollar deficit, Mayor Zohran Mamdani is exploring ways to delay the city’s payments to municipal pension funds.`\
+https://www.nytimes.com/2026/04/23/nyregion/mamdani-pension-funds.html
 
-**I’ve Photographed Protests Around the World. This Still Surprises Me.**\
-`Scenes from life in a global era increasingly shaped by confrontations with authoritarian power.`\
-https://www.nytimes.com/2026/04/23/opinion/matthew-connors-photos-protest-authoritarianism.html
+**Does ‘The Drama’ Know Zendaya Is Black?**\
+`Seriously though. Does it?`\
+https://www.nytimes.com/2026/04/23/podcasts/cannonball-zendaya-interracial-relationships.html
 
-**Para trabajar más músculos en menos tiempo, combina movimientos**\
-`Los ejercicios combinados pueden ayudarte a ejercitar todo el cuerpo rápidamente.`\
-https://www.nytimes.com/es/2026/04/23/espanol/estilos-de-vida/-trabajar-mas-musculos-menos-tiempo.html
+**Does ‘The Drama’ Know Zendaya is Black?**\
+`Wesley Morris and Gina Cherelus, the New York Times Styles reporter, exchange thoughts on “The Drama” and its misuse of Zendaya.`\
+https://www.nytimes.com/video/podcasts/100000010857679/does-the-drama-know-zendaya-is-black.html
 
-**Senate Adopts G.O.P. Budget, Defeating Democrats’ Affordability Proposals**\
-`Republicans pushed through a budget plan with a $70 billion increase for immigration enforcement after an overnight session in which they beat back Democratic proposals aimed at lowering costs.`\
-https://www.nytimes.com/2026/04/23/us/politics/senate-plunges-into-vote-marathon-as-gop-advances-ice-funding-boost.html
+**A New Era and New Leadership: The Generals Who Are Running Iran**\
+`The killing of Ayatollah Ali Khamenei ushered in a new form of collective leadership in the country, with more power for the Revolutionary Guards.`\
+https://www.nytimes.com/2026/04/23/world/middleeast/iran-new-leadership-generals.html
 
-**Los precios de la energía aumentan en varios países por el acaparamiento**\
-`A medida que los países ricos se apresuran a asegurar reservas de petróleo, se produce un aumento de los precios para todos y escasez en los países vulnerables.`\
-https://www.nytimes.com/es/2026/04/23/espanol/negocios/precios-petroleo-guerra-estrecho.html
+**Two Brothers, One Art Gallery, Infinite Feuds**\
+`For a decade and a half, Prajit and Projjal Dutta have led the market for South Asian art in the United States. Now they rarely speak to each other, except through lawyers.`\
+https://www.nytimes.com/2026/04/23/style/aicon-art-gallery-dutta-prajit-projjal-nyc.html
 
-**War in Iran Gives New Fuel to a Tax Debate in Australia**\
-`The world’s third-largest exporter of natural gas, Australia has been too lenient in taxing lucrative gas exports, many in the country argue.`\
-https://www.nytimes.com/2026/04/23/world/asia/iran-australia-natural-gas-tax.html
+**How Bobby Pulido Could Bring Texas Latinos Back to the Democrats**\
+`Big parts of the Rio Grande Valley turned against the party in recent years. One candidate is trying to win it back, one quinceañera at a time.`\
+https://www.nytimes.com/2026/04/23/opinion/bobby-pulido-texas-latinos-democrats.html
 
-**A Lost Tribe in India Makes Its Exodus to Israel**\
-`The B’nei Menashe believe they are the children of Manasseh, a king of Judah exiled about 2,800 years ago. Evidence is thin, but Israel is welcoming them ‘home.’`\
-https://www.nytimes.com/2026/04/23/world/asia/india-jewish-tribe-israel-bnei-menashe.html
+**Why Diesel Has Become a Much Bigger Economic Problem Than Gasoline**\
+`The war in Iran has disrupted supplies of diesel, used to power trucks and heavy equipment, much more than gasoline, which is primarily used in passenger cars.`\
+https://www.nytimes.com/2026/04/23/business/energy-environment/iran-war-diesel-prices-gasoline.html
 
