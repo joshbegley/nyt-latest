@@ -1,3 +1,7 @@
+**Stream These Movies and TV Shows Before They Leave Netflix in May**\
+`Dozens of titles leave the streaming service for U.S. subscribers every month. Here’s a roundup of the best ones leaving soon.`\
+https://www.nytimes.com/2026/04/23/arts/television/netflix-expiring-may.html
+
 **A Hit-and-Run Driver Is Killing Geese on Long Island**\
 `The authorities are looking for a driver who they believe intentionally struck and killed about a dozen geese in Hauppauge this month.`\
 https://www.nytimes.com/2026/04/23/nyregion/geese-killer-investigation-long-island.html

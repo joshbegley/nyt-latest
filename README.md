@@ -1,3 +1,15 @@
+**Justice Dept. Watchdog Begins Review of Release of Epstein Files**\
+`The department’s inspector general said it would audit the release of millions of pages of files to determine whether the agency had followed the law.`\
+https://www.nytimes.com/2026/04/23/us/politics/epstein-files-release-doj-watchdog.html
+
+**Concern Grows Over Republican Congressman’s Mysterious Absence**\
+`A spokesman for Representative Thomas Kean Jr. said an unspecified “personal medical issue” has led the New Jersey Republican to miss House votes.`\
+https://www.nytimes.com/2026/04/23/nyregion/thomas-kean-jr-republican-missing.html
+
+**Two Litigation Partners Depart Paul Weiss**\
+`The departure of Kannon Shanmugam and Masha Hansford is the latest in a string of litigators who have left the influential New York law firm.`\
+https://www.nytimes.com/2026/04/23/business/two-litigation-partners-depart-paul-weiss.html
+
 **Stream These Movies and TV Shows Before They Leave Netflix in May**\
 `Dozens of titles leave the streaming service for U.S. subscribers every month. Here’s a roundup of the best ones leaving soon.`\
 https://www.nytimes.com/2026/04/23/arts/television/netflix-expiring-may.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/23/learning/robot-teachers-teenagers-weigh-in.ht
 **Read the Preliminary Report on the LaGuardia Crash**\
 `The National Transportation Safety Board has released a preliminary report on its investigation into the fatal collision between an Air Canada regional jet and a fire truck on a runway at LaGuardia Airport in March.`\
 https://www.nytimes.com/interactive/2026/04/23/nyregion/laguardia-crash-NTSB-report.html
-
-**Top Condom Producer to Increase Prices Due to War in Iran**\
-`The world’s top condom maker is raising prices of its products by up to 30 percent, warning that shortages of raw materials and chemicals because of the war in Iran could disrupt production.`\
-https://www.nytimes.com/video/world/asia/100000010858682/iran-war-condom-prices-increase.html
-
-**Candidates for California Governor Debate as Election Nears**\
-`No clear front-runner has emerged in the nonpartisan primary for California governor just weeks before voters head to the polls.`\
-https://www.nytimes.com/video/us/politics/100000010859004/california-governor-election-debate.html
-
-**A Second Chance at the World Cup? Italy Fans Say, ‘No, Thanks.’**\
-`A Trump official proposed that the Italian team take Iran’s spot at the World Cup this summer. The supporters didn’t appreciate the pity invite.`\
-https://www.nytimes.com/2026/04/23/sports/soccer/italy-world-cup-iran-replacement-reactions.html
 
