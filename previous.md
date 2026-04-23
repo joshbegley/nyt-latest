@@ -74,7 +74,3 @@ https://www.nytimes.com/2026/04/23/world/middleeast/israel-lebanon-hezbollah-tal
 `It was the second such action this week, as the Trump administration ramps up pressure on Tehran.`\
 https://www.nytimes.com/2026/04/23/world/middleeast/us-iran-oil-tanker-indian-ocean-mt-majestic-x.html
 
-**Michael Tilson Thomas, Celebrated American Conductor, Dies at 81**\
-`A galvanizing force in classical music as a conductor, composer, pianist and evangelist, he spent 25 years as music director of the San Francisco Symphony.`\
-https://www.nytimes.com/2026/04/23/arts/music/michael-tilson-thomas-dead.html
-
