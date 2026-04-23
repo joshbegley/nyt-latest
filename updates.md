@@ -1,3 +1,7 @@
+**Senate Adopts G.O.P. Budget, Defeating Democrats’ Affordability Proposals**\
+`Republicans pushed through a budget plan with a $70 billion increase for immigration enforcement after an overnight session in which they beat back Democratic proposals aimed at lowering costs.`\
+https://www.nytimes.com/2026/04/23/us/politics/senate-plunges-into-vote-marathon-as-gop-advances-ice-funding-boost.html
+
 **¿Qué tan auténtico es ese wagyu que te vas a comer?**\
 `El corte original viene de Japón, pero criadores alrededor del mundo han combinado otros linajes de reses en la carrera por obtener el jugoso manjar.`\
 https://www.nytimes.com/es/2026/04/23/espanol/estilos-de-vida/wagyu-carne-calidad.html
