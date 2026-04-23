@@ -1,3 +1,23 @@
+**Communication Failures Played Role in Deadly Crash at LaGuardia, N.T.S.B. Says**\
+`The report focuses on the lack of transponders in the fire trucks, which investigators suggested could have allowed an automatic warning system to alert the controller of an imminent collision.`\
+https://www.nytimes.com/2026/04/23/nyregion/laguardia-crash-ntsb-report.html
+
+**Disapproval of Trump Hits Highest Level of His Second Term**\
+`The president’s weakening poll numbers come as the war in Iran has driven up gas prices, and more Americans are expressing concerns about the economy.`\
+https://www.nytimes.com/2026/04/23/us/politics/trump-approval-rating-poll.html
+
+**Map: 4.0-Magnitude Earthquake Shakes Southeastern Missouri**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/04/23/us/earthquake-missouri-memphis-tennessee.html
+
+**What’s Better Left Unsaid**\
+`Complications of spelling in English can lead to complications in pronunciation.`\
+https://www.nytimes.com/2026/04/23/opinion/english-linguistics-pronunciation.html
+
+**What’s Going On in This Picture? | April 27, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://www.nytimes.com/2026/04/23/learning/whats-going-on-in-this-picture-april-27-2026.html
+
 **Tanzania Blames Outsiders and Government Foes for Election Violence**\
 `The findings in a new report by a commission appointed by the government were at odds with details from human rights groups, which estimate that hundreds and possibly thousands of people were killed.`\
 https://www.nytimes.com/2026/04/23/world/africa/tanzania-election-violence-report.html
@@ -57,20 +77,4 @@ https://www.nytimes.com/2026/04/23/opinion/supreme-court-shadow-docket.html
 **Congress May Finally Recognize That Mobile Homes Aren’t Really That Mobile**\
 `An obscure federal rule requires manufactured homes to be built on a chassis, making them more costly. A bill in Congress would remove the mandate, enacted five decades ago.`\
 https://www.nytimes.com/2026/04/23/business/manufactured-homes-chassis.html
-
-**Duterte to Stand Trial for Crimes Against Humanity at I.C.C.**\
-`The International Criminal Court found there was enough evidence to try Rodrigo Duterte, the former Philippine president, for killings carried out during his crackdown on drugs.`\
-https://www.nytimes.com/2026/04/23/world/asia/duterte-icc-trial-drug-war.html
-
-**A New Bureau Will Oversee Both Offshore Drilling and Seabed Mining**\
-`The new federal office will undo a change made after the 2010 Deepwater Horizon oil disaster. Critics say it could reduce environmental oversight.`\
-https://www.nytimes.com/2026/04/23/climate/seabed-mining-interior-department.html
-
-**Bones of 3 Children Found in Woods May Have Been There for Years**\
-`The Memphis police chief said a chance discovery led investigators to more than a dozen bones belonging to three children between the ages of 3 and 7.`\
-https://www.nytimes.com/2026/04/23/us/children-remains-memphis-woods-investigation.html
-
-**Mamdani Faces Pressure to Cancel $2 Billion Deal to Expand Hudson Yards**\
-`Related Companies struck a deal with Eric Adams to have New York City finance a costly platform to facilitate new housing. Mayor Zohran Mamdani said advancing the deal was not a priority.`\
-https://www.nytimes.com/2026/04/23/nyregion/hudson-yards-platform.html
 
