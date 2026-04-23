@@ -1,3 +1,7 @@
+**The Artist Making Work About Sweat, Ghosts and the Rivers of Pittsburgh**\
+`With Project Blue Space, the sculptor and image maker Shikeith brings the city’s Black history to the surface.`\
+https://www.nytimes.com/2026/04/23/t-magazine/shikeith-project-blue-space.html
+
 **Trump Keeps Talking About Iran’s ‘Nuclear Dust.’ What Is It?**\
 `First of all, it isn’t dust. It’s Iran’s stockpile of near-bomb-grade uranium, which is stored in large canisters about the size of scuba tanks.`\
 https://www.nytimes.com/2026/04/23/us/politics/trump-iran-nuclear-dust-uranium.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/23/nyregion/thomas-kean-jr-republican-missing.ht
 **Two Litigation Partners Depart Paul Weiss**\
 `Kannon Shanmugam and Masha Hansford are the latest in a string of litigators who have left the influential New York law firm.`\
 https://www.nytimes.com/2026/04/23/business/paul-weiss-law-firm-departures.html
-
-**Stream These Movies and TV Shows Before They Leave Netflix in May**\
-`Dozens of titles leave the streaming service for U.S. subscribers every month. Here’s a roundup of the best ones leaving soon.`\
-https://www.nytimes.com/2026/04/23/arts/television/netflix-expiring-may.html
 
