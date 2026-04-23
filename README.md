@@ -20,7 +20,7 @@ https://www.nytimes.com/2026/04/23/nyregion/thomas-kean-jr-republican-missing.ht
 
 **Two Litigation Partners Depart Paul Weiss**\
 `The departure of Kannon Shanmugam and Masha Hansford is the latest in a string of litigators who have left the influential New York law firm.`\
-https://www.nytimes.com/2026/04/23/business/two-litigation-partners-depart-paul-weiss.html
+https://www.nytimes.com/2026/04/23/business/paul-weiss-law-firm-departures.html
 
 **Stream These Movies and TV Shows Before They Leave Netflix in May**\
 `Dozens of titles leave the streaming service for U.S. subscribers every month. Here’s a roundup of the best ones leaving soon.`\
