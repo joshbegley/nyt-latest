@@ -1,3 +1,7 @@
+**Trump Talks on Sending Afghans to Congo Draw Bipartisan Ire**\
+`Lawmakers in both parties said President Trump should continue allowing Afghans who worked alongside American troops to settle safely in the United States.`\
+https://www.nytimes.com/2026/04/23/us/politics/trump-afghans-congo-refugees.html
+
 **Communication Failures Played Role in Deadly Crash at LaGuardia, N.T.S.B. Says**\
 `The report focuses on the lack of transponders in the fire trucks, which investigators suggested could have allowed an automatic warning system to alert the controller of an imminent collision.`\
 https://www.nytimes.com/2026/04/23/nyregion/laguardia-crash-ntsb-report.html

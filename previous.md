@@ -1,3 +1,7 @@
+**Trump Talks on Sending Afghans to Congo Draw Bipartisan Ire**\
+`Lawmakers in both parties said President Trump should continue allowing Afghans who worked alongside American troops to settle safely in the United States.`\
+https://www.nytimes.com/2026/04/23/us/politics/trump-afghans-congo-refugees.html
+
 **Communication Failures Played Role in Deadly Crash at LaGuardia, N.T.S.B. Says**\
 `The report focuses on the lack of transponders in the fire trucks, which investigators suggested could have allowed an automatic warning system to alert the controller of an imminent collision.`\
 https://www.nytimes.com/2026/04/23/nyregion/laguardia-crash-ntsb-report.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/t-magazine/100000010857422/the-actress-greta-lee-w
 **Judging the Supreme Court’s Shadow Docket**\
 `Readers respond to The Times’s front-page investigation of the court. Also: Lee Zeldin and the E.P.A.; talking to Iran.`\
 https://www.nytimes.com/2026/04/23/opinion/supreme-court-shadow-docket.html
-
-**Congress May Finally Recognize That Mobile Homes Aren’t Really That Mobile**\
-`An obscure federal rule requires manufactured homes to be built on a chassis, making them more costly. A bill in Congress would remove the mandate, enacted five decades ago.`\
-https://www.nytimes.com/2026/04/23/business/manufactured-homes-chassis.html
 
