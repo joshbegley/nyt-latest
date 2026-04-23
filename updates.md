@@ -1,3 +1,27 @@
+**What Is YouTube’s Dominance Doing to Us? We Asked Its C.E.O.**\
+`YouTube’s chief executive, Neal Mohan, has led the company since 2023. He talks about overseeing the platform’s rapid growth.`\
+https://www.nytimes.com/video/podcasts/100000010805137/what-is-youtubes-dominance-doing-to-us-we-asked-its-ceo.html
+
+**French Fries: Fully Loaded**\
+`Fries are perfectly good on their own, but they’re even better with toppings. Here are three places to get yours loaded.`\
+https://www.nytimes.com/2026/04/23/dining/french-fries-fully-loaded.html
+
+**Met Opera’s Multimillion-Dollar Deal With Saudis Falls Through**\
+`The arrangement would have brought up to $200 million to the Metropolitan Opera, which has suffered a series of financial setbacks.`\
+https://www.nytimes.com/2026/04/23/arts/music/met-opera-saudi-deal-funding.html
+
+**Justice Dept. Watchdog Begins Review of Release of Epstein Files**\
+`The department’s inspector general said it would audit the release of millions of pages of files to determine whether the agency had followed the law.`\
+https://www.nytimes.com/2026/04/23/us/politics/epstein-files-release-doj-watchdog.html
+
+**Concern Grows Over Republican Congressman’s Mysterious Absence**\
+`A spokesman for Representative Thomas Kean Jr. said an unspecified “personal medical issue” has led the New Jersey Republican to miss House votes.`\
+https://www.nytimes.com/2026/04/23/nyregion/thomas-kean-jr-republican-missing.html
+
+**Two Litigation Partners Depart Paul Weiss**\
+`The departure of Kannon Shanmugam and Masha Hansford is the latest in a string of litigators who have left the influential New York law firm.`\
+https://www.nytimes.com/2026/04/23/business/two-litigation-partners-depart-paul-weiss.html
+
 **Stream These Movies and TV Shows Before They Leave Netflix in May**\
 `Dozens of titles leave the streaming service for U.S. subscribers every month. Here’s a roundup of the best ones leaving soon.`\
 https://www.nytimes.com/2026/04/23/arts/television/netflix-expiring-may.html
