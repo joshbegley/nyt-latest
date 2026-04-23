@@ -1,3 +1,11 @@
+**EE. UU. busca revocar la ciudadanía de 384 personas**\
+`El gobierno de Trump está asignando casos de desnaturalización a fiscales ordinarios, lo que podría provocar una oleada de personas que serían despojadas de la ciudadanía estadounidense.`\
+https://www.nytimes.com/es/2026/04/23/espanol/estados-unidos/trump-revocar-ciudadania.html
+
+**Trump Keeps Talking About Iran’s ‘Nuclear Dust.’ What Is It?**\
+`First of all, it isn’t dust. It’s Iran’s stockpile of near-bomb-grade uranium, which is stored in large canisters about the size of scuba tanks.`\
+https://www.nytimes.com/2026/04/23/us/politics/trump-iran-nuclear-dust-uranium.html
+
 **Trump Says He’s Renovating ‘Filthy’ Reflecting Pool on the National Mall**\
 `The pool, which is more than 2,000 feet long, was the site of Martin Luther King Jr.’s “I Have a Dream” speech and other events.`\
 https://www.nytimes.com/2026/04/23/us/politics/trump-reflecting-pool-renovation.html
