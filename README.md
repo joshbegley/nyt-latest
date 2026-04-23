@@ -1,4 +1,12 @@
-**A Second Chance at the World Cup? Italy Fans Say, ‘No, Thanks’**\
+**Top Condom Producer to Increase Prices Due to War in Iran**\
+`The world’s largest condom maker is raising prices of its products by up to 30 percent, warning that shortages of raw materials and chemicals because of the war in Iran could disrupt production.`\
+https://www.nytimes.com/video/world/asia/100000010858682/iran-war-condom-prices-increase.html
+
+**Candidates for California Governor Debate as Election Nears**\
+`No clear front-runner has emerged in the nonpartisan primary for California governor just weeks before voters head to the polls.`\
+https://www.nytimes.com/video/us/politics/100000010859004/california-governor-election-debate.html
+
+**A Second Chance at the World Cup? Italy Fans Say, ‘No, Thanks.’**\
 `A Trump official proposed that the Italian team take Iran’s spot at the World Cup this summer. The supporters didn’t appreciate the pity invite.`\
 https://www.nytimes.com/2026/04/23/sports/soccer/italy-world-cup-iran-replacement-reactions.html
 
@@ -65,12 +73,4 @@ https://www.nytimes.com/2026/04/23/arts/music/ruth-slenczynska-dead.html
 **Elon Musk and Sam Altman’s Epic Fight Heads to Court**\
 `A jury trial that is set to start on Monday could shift the course of the A.I. race, with Mr. Musk seeking billions of dollars in damages from Mr. Altman’s OpenAI.`\
 https://www.nytimes.com/2026/04/23/technology/elon-musk-sam-altman-openai-trial.html
-
-**The ‘Make America Healthy Again’ Movement Is Cooling on Trump and Republicans**\
-`Vaccine skeptics, ‘organic moms’ and environmental activists came together to elect President Trump. But some voters are disillusioned and might not turn out again.`\
-https://www.nytimes.com/2026/04/23/us/politics/maha-voters-midterms.html
-
-**Justice Dept. Targets Hundreds of Citizens in New Push for Denaturalization**\
-`The Trump administration is assigning denaturalization cases to regular prosecutors, which could lead to a surge of people stripped of U.S. citizenship.`\
-https://www.nytimes.com/2026/04/23/us/politics/justice-dept-citizens-denaturalization.html
 
