@@ -1,3 +1,7 @@
+**Stephen Colbert Sends Jimmy Kimmel a Box of ‘Iran War Jokes’**\
+`Colbert said he was “beginning to think this war might not be over before Memorial Day,” when “The Late Show” will have ended its run.`\
+https://www.nytimes.com/2026/04/23/arts/television/stephen-colbert-jimmy-kimmel-iran.html
+
 **Palabra del día: ‘extant’**\
 `Esta palabra ha aparecido en 28 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/04/23/espanol/que-significa-extant.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/22/us/politics/rfk-vaccines-measles-testimony.ht
 **The Poetry Challenge Day 4: Are we alone in the universe? Does it matter?**\
 `Writers have been pondering the sky for centuries, but this poem helps us feel a little less solitary. Brush up on its last lines today, and tomorrow we’ll talk about the whole thing.`\
 https://www.nytimes.com/interactive/2026/books/wh-auden-poetry-challenge-stars.html
-
-**Perfect Planters for Any Patio or Sunlit Room**\
-`When it comes to freshening up a space, these pots pull their weight.`\
-https://www.nytimes.com/2026/04/22/t-magazine/indoor-planters-pots.html
 

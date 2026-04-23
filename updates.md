@@ -1,3 +1,7 @@
+**Stephen Colbert Sends Jimmy Kimmel a Box of ‘Iran War Jokes’**\
+`Colbert said he was “beginning to think this war might not be over before Memorial Day,” when “The Late Show” will have ended its run.`\
+https://www.nytimes.com/2026/04/23/arts/television/stephen-colbert-jimmy-kimmel-iran.html
+
 **I’ve Photographed Protests Around the World. This Still Surprises Me.**\
 `Scenes from life in a global era increasingly shaped by confrontations with authoritarian power.`\
 https://www.nytimes.com/2026/04/23/opinion/matthew-connors-photos-protest-authoritarianism.html
