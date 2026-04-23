@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/23/world/iran-war-trump-news/heres-the-latest
+
+**Trains Collide in Denmark, Leaving 4 Seriously Hurt**\
+`Officials said that a total of 17 were hospitalized after the head-on crash in the Copenhagen area.`\
+https://www.nytimes.com/2026/04/23/world/europe/denmark-trains-collision-copenhagen.html
+
 **Senate Adopts G.O.P. Budget, Defeating Democrats’ Affordability Proposals**\
 `Republicans pushed through a budget plan with a $70 billion increase for immigration enforcement after an overnight session in which they beat back Democratic proposals aimed at lowering costs.`\
 https://www.nytimes.com/2026/04/23/us/politics/senate-plunges-into-vote-marathon-as-gop-advances-ice-funding-boost.html
