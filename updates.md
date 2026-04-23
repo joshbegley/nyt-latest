@@ -1,3 +1,23 @@
+**Ex-Police Officer Planned Mass Shooting in New Orleans, Officials Say**\
+`Christopher Gillum had targeted a large festival there, the authorities said. He was arrested on Wednesday in a Florida hotel room before he could carry out his plans.`\
+https://www.nytimes.com/2026/04/23/us/mass-shooting-arrest-new-orleans-festival.html
+
+**How ‘Will You Be My Bridesmaid?’ Became a Loaded Question**\
+`Ruhama Wolle, the author of “I Hope You Elope: A Bridesmaid Survival Guide,” sits down with the “Modern Love” host Anna Martin to discuss the bridesmaid dynamics that made her call it quits and tips for navigating the ask with authenticity.`\
+https://www.nytimes.com/video/podcasts/100000010859983/how-will-you-be-my-bridesmaid-became-a-loaded-question.html
+
+**Maps Show Smoke From Georgia Wildfires Spreading Across the Southeast**\
+`The smoke has spread to nearby states. Here’s how to track its path and its effect on nearby air quality.`\
+https://www.nytimes.com/2026/04/23/weather/georgia-fires-sc-nc-alabama-air-quality-smoke.html
+
+**Trump’s Dreams for a Battleship Led to His Navy Secretary’s Ouster**\
+`The Navy secretary, John Phelan, was supposed to deliver the first of the president’s ships by 2028. The timeline was nearly impossible.`\
+https://www.nytimes.com/2026/04/23/us/politics/trump-navy-secretary.html
+
+**Darrell Sheets, Auction Bidder Who Starred on ‘Storage Wars,’ Dies at 67**\
+`He appeared in 13 seasons of the long-running reality television show about storage-unit auctions. He later opened an antique shop in Arizona.`\
+https://www.nytimes.com/2026/04/23/arts/television/darrell-sheets-storage-wars-dead.html
+
 ****\
 ``\
 https://www.nytimes.com/video/embedded/us/100000010860211/21vid-trumpnuclear-mideast-40800.html
