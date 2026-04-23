@@ -1,3 +1,27 @@
+**Ticketmaster’s Big Loss in Court**\
+`After years of scrutiny and complaints, Live Nation, the concert giant that includes Ticketmaster, has been found to be a monopoly.`\
+https://www.nytimes.com/2026/04/23/podcasts/the-daily/ticketmaster-live-nation-trial.html
+
+**Who Is Running Iran, and How Doctors Cashed In on a Consumer Protection Law**\
+`Plus, the Labubus linked to forced labor.`\
+https://www.nytimes.com/2026/04/23/podcasts/the-headlines/iran-breast-reductions.html
+
+**Connections Companion No. 1,048**\
+`Scroll down for hints and conversation about the puzzle for day, April 24, 2026.`\
+https://www.nytimes.com/2026/04/23/crosswords/connections-companion-1048.html
+
+**Strands Sidekick No. 782**\
+`Scroll down for hints and conversation about the puzzle for Friday, April 24, 2026.`\
+https://www.nytimes.com/2026/04/23/crosswords/strands-sidekick-782.html
+
+**Wordle Review No. 1,770**\
+`Scroll down for hints and conversation about the puzzle for Friday, April 24, 2026.`\
+https://www.nytimes.com/2026/04/23/crosswords/wordle-review-1770.html
+
+**‘Celebrity Jeopardy!’ Film Study: Share & Buzz & Tell with Mina Kimes and Timothy Simons**\
+`Pablo, Mina and Timothy take “Celebrity Jeopardy! All-Stars” 2026 game tape very seriously.`\
+https://www.nytimes.com/2026/04/23/podcasts/celebrity-jeopardy-film-study-share-buzz-tell-with-mina-kimes-and-timothy-simons.html
+
 **After U.S. Aid Fell by 99%, E.U. Pledges $106 Billion Loan to Ukraine**\
 `Unlike previous European assistance packages, the latest one is heavily weighted toward military spending, reflecting a view that the war is far from over.`\
 https://www.nytimes.com/2026/04/23/world/europe/eu-loan-ukraine.html
