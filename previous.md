@@ -1,3 +1,7 @@
+**U.S. Settles Carter Page Wiretap Lawsuit for $1.25 Million**\
+`F.B.I. applications to surveil Mr. Page, a 2016 Trump campaign adviser, during the investigation into Russia’s interference in the election had myriad errors and omissions, an inspector general found.`\
+https://www.nytimes.com/2026/04/22/us/politics/trump-settles-carter-page-lawsuit.html
+
 **Weather Service Survey Confirms Three Rare Tornadoes in Central California**\
 `Tornadoes are uncommon in the state, but a storm system caused three near Fresno on Tuesday.`\
 https://www.nytimes.com/2026/04/22/weather/fresno-california-tornadoes.html
@@ -11,7 +15,7 @@ https://www.nytimes.com/2026/04/22/us/elections/virginia-redistricting-voter-dat
 https://www.nytimes.com/video/podcasts/100000010855591/olivia-rodrigo-is-falling-hard.html
 
 **Kalshi Fines and Suspends 3 Political Candidates for Betting on Their Races**\
-`The prediction market said the candidates violated new rules as it faces growing scrutiny from lawmakers and regulators over how political betting is policed.`\
+`The prediction market said the candidates violated new rules. The platform and its competitors face growing scrutiny from lawmakers and regulators over how political betting is policed.`\
 https://www.nytimes.com/2026/04/22/us/kalshi-suspends-politicians-trading-elections.html
 
 **Man Who Stole Kristi Noem’s Purse Gets 3 Years in Prison**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/22/nyregion/arrest-double-murder-bronx-1993.html
 **Iran Says It Seized Two Ships Near the Strait of Hormuz**\
 `A British naval agency said the two vessels had come under attack near the strait, as a U.S. blockade on Iran’s ports continued.`\
 https://www.nytimes.com/2026/04/22/world/middleeast/iran-ships-strait-of-hormuz.html
-
-**The Wealthy Steal, Too — Just Differently**\
-`America’s social contract has broken down, Hasan Piker argues, and the wealthy steal, too — just in ways that the system protects. So can shoplifting by the 99 percent be a form of political protest? Watch this episode of “The Opinions” to hear the debate.`\
-https://www.nytimes.com/video/opinion/100000010856693/the-wealthy-steal-too-just-differently.html
 

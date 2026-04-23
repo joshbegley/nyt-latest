@@ -1,3 +1,11 @@
+**U.S. Settles Carter Page Wiretap Lawsuit for $1.25 Million**\
+`F.B.I. applications to surveil Mr. Page, a 2016 Trump campaign adviser, during the investigation into Russia’s interference in the election had myriad errors and omissions, an inspector general found.`\
+https://www.nytimes.com/2026/04/22/us/politics/trump-settles-carter-page-lawsuit.html
+
+**Kalshi Fines and Suspends 3 Political Candidates for Betting on Their Races**\
+`The prediction market said the candidates violated new rules. The platform and its competitors face growing scrutiny from lawmakers and regulators over how political betting is policed.`\
+https://www.nytimes.com/2026/04/22/us/kalshi-suspends-politicians-trading-elections.html
+
 **Weather Service Survey Confirms Three Rare Tornadoes in Central California**\
 `Tornadoes are uncommon in the state, but a storm system caused three near Fresno on Tuesday.`\
 https://www.nytimes.com/2026/04/22/weather/fresno-california-tornadoes.html
