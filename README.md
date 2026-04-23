@@ -1,3 +1,7 @@
+**Ring Combo**\
+`Zhou Zhang and Kevin Curry’s second collaboration is a family affair.`\
+https://www.nytimes.com/2026/04/22/crosswords/daily-puzzle-2026-04-23.html
+
 **The Japanese Designers Changing Men’s Wear**\
 `How a new vanguard of labels from Japan became the most-talked about thing in fashion.`\
 https://www.nytimes.com/interactive/2026/04/22/style/the-japanese-designers-changing-mens-wear.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/22/us/politics/trump-iran-strait-of-hormuz-ships
 **RFK Jr. Defends Trump’s Mathematically Impossible Drug Discount Claims**\
 `President Trump has claimed that he has secured discounts of 400 to 1,500 percent on prescription drugs. A price discount cannot be more than 100 percent because that would lower the price to zero.`\
 https://www.nytimes.com/2026/04/22/us/politics/rfk-jr-trump-impossible-drug-discounts.html
-
-**How Kevin Warsh Is Distancing Himself From Trump**\
-`Lawmakers questioned the ability of Kevin Warsh, President Trump’s pick for Fed chair, to lead the central bank independently. Colby Smith explains how Mr. Warsh tried to distance himself from the president.`\
-https://www.nytimes.com/video/us/100000010854852/how-kevin-warsh-is-distancing-himself-from-trump.html
 
