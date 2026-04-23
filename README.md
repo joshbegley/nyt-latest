@@ -1,3 +1,15 @@
+**Iowa Governor Election 2026: Latest Polls**\
+`Track the latest polls in the Iowa governor election.`\
+https://www.nytimes.com/interactive/polls/iowa-governor-election-polls-2026.html
+
+**Russian Officials Say Town’s Air Is Toxic, Days After Strike on Oil Refinery**\
+`Since Ukraine attacked the refinery in Tuapse, starting a huge fire, residents have reported drops of dark, oily toxins falling from the sky.`\
+https://www.nytimes.com/2026/04/23/world/europe/russia-oil-refinery-black-rain.html
+
+**Zelensky detailed deals Ukraine signed to bolster Gulf nations’ defense against Iranian drones.**\
+``\
+https://www.nytimes.com/live/2026/04/23/world/iran-war-trump-news/zelensky-deals-ukraine-gulf-drones
+
 **Kansas Governor Election 2026: Latest Polls**\
 `Track the latest polls in the Kansas governor election.`\
 https://www.nytimes.com/interactive/polls/kansas-governor-election-polls-2026.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/23/crosswords/strands-sidekick-782.html
 **Wordle Review No. 1,770**\
 `Scroll down for hints and conversation about the puzzle for Friday, April 24, 2026.`\
 https://www.nytimes.com/2026/04/23/crosswords/wordle-review-1770.html
-
-**‘Celebrity Jeopardy!’ Film Study: Share & Buzz & Tell with Mina Kimes and Timothy Simons**\
-`Pablo, Mina and Timothy take “Celebrity Jeopardy! All-Stars” 2026 game tape very seriously.`\
-https://www.nytimes.com/2026/04/23/podcasts/celebrity-jeopardy-film-study-share-buzz-tell-with-mina-kimes-and-timothy-simons.html
-
-**$106 Billion Loan Reflects E.U.’s View That Peace in Ukraine Is Far Away**\
-`The delayed funding, which was approved on Thursday, is heavily weighted toward military spending, unlike previous European packages.`\
-https://www.nytimes.com/2026/04/23/world/europe/eu-loan-ukraine.html
-
-**Private Assets May Be Coming to Your 401(k). You Should Know the Risks.**\
-`Alternative investments could appear on some 401(k) menus in the year ahead. Here’s what that means for investors.`\
-https://www.nytimes.com/2026/04/23/your-money/401ks-and-similar-plans/401k-private-credit-crypto.html
 
