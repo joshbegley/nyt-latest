@@ -1,3 +1,11 @@
+**The Iran War, in Numbers**\
+`Here are some statistics to give context to the conflict.`\
+https://www.nytimes.com/2026/04/23/briefing/the-iran-war-in-numbers.html
+
+**El antitrumpismo une a Europa**\
+`La toxicidad de Trump ha hecho que distanciarse de él sea una necesidad para líderes de todo el espectro político.`\
+https://www.nytimes.com/es/2026/04/23/espanol/mundo/antitrumpismo-europa.html
+
 **Ticketmaster’s Big Loss in Court**\
 `After years of scrutiny and complaints, Live Nation, the concert giant that includes Ticketmaster, has been found to be a monopoly.`\
 https://www.nytimes.com/2026/04/23/podcasts/the-daily/ticketmaster-live-nation-trial.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/23/nyregion/newborn-peregrine-falcon-manhattan.h
 **And Then There Were None, Trump Administration Edition**\
 `Normal language is inadequate and precedents are irrelevant when it comes to appraising the senior administration officials of the president’s second term.`\
 https://www.nytimes.com/2026/04/23/opinion/trump-cabinet-patel-noem-labor-hegseth.html
-
-**Bragging Rights in Brooklyn Heights**\
-`Two homes, both described as the area’s oldest, are up for sale. A search through 200 years of deeds reveals their true origins.`\
-https://www.nytimes.com/2026/04/23/realestate/brooklyn-heights-historic-house.html
-
-**Mamdani Considers Delaying Pension-Fund Payments to Ease Budget Gap**\
-`With New York City facing a multibillion-dollar deficit, Mayor Zohran Mamdani is exploring ways to delay the city’s payments to municipal pension funds.`\
-https://www.nytimes.com/2026/04/23/nyregion/mamdani-pension-funds.html
 
