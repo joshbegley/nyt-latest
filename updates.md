@@ -1,3 +1,11 @@
+**Elon Musk and Sam Altman’s Epic Fight Heads to Court**\
+`A jury trial that is set to start on Monday could shift the course of the A.I. race, with Mr. Musk seeking billions of dollars in damages from Mr. Altman’s OpenAI.`\
+https://www.nytimes.com/2026/04/23/technology/elon-musk-sam-altman-openai-trial.html
+
+**The ‘Make America Healthy Again’ Movement Is Cooling on Trump and Republicans**\
+`Vaccine skeptics, ‘organic moms’ and environmental activists came together to elect President Trump. But some voters are disillusioned and might not turn out again.`\
+https://www.nytimes.com/2026/04/23/us/politics/maha-voters-midterms.html
+
 **The ‘Make America Healthy Again’ Movement Is Cooling on Trump and Republicans**\
 `Vaccine skeptics, ‘organic moms’ and environmental activists came together toelect President Trump. Butsome voters are disillusioned and might not turn out again.`\
 https://www.nytimes.com/2026/04/23/us/politics/maha-voters-midterms.html

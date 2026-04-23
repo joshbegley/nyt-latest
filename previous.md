@@ -1,5 +1,9 @@
+**Elon Musk and Sam Altman’s Epic Fight Heads to Court**\
+`A jury trial that is set to start on Monday could shift the course of the A.I. race, with Mr. Musk seeking billions of dollars in damages from Mr. Altman’s OpenAI.`\
+https://www.nytimes.com/2026/04/23/technology/elon-musk-sam-altman-openai-trial.html
+
 **The ‘Make America Healthy Again’ Movement Is Cooling on Trump and Republicans**\
-`Vaccine skeptics, ‘organic moms’ and environmental activists came together toelect President Trump. Butsome voters are disillusioned and might not turn out again.`\
+`Vaccine skeptics, ‘organic moms’ and environmental activists came together to elect President Trump. But some voters are disillusioned and might not turn out again.`\
 https://www.nytimes.com/2026/04/23/us/politics/maha-voters-midterms.html
 
 **Justice Dept. Targets Hundreds of Citizens in New Push for Denaturalization**\
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/04/23/us/politics/us-seizes-tanker-iran.html
 **Warner Bros. Investors Approve Deal With Paramount**\
 `The vote brings the tech scion David Ellison one step closer to uniting some of the world’s biggest news and entertainment properties.`\
 https://www.nytimes.com/2026/04/23/business/media/warner-bros-investors-paramount-vote.html
-
-**Anne Hathaway Is Ready for Her Personal ‘Eras Tour’**\
-`On “Popcast,” Anne Hathaway spoke with our hosts, Joe Coscarelli and Jon Caramanica, about why she’s returning to her classic characters from “The Devil Wears Prada” and “The Princess Diaries.”`\
-https://www.nytimes.com/video/podcasts/100000010858832/anne-hathaway-is-ready-for-her-personal-eras-tour.html
 
