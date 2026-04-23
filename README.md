@@ -1,3 +1,7 @@
+**Trump’s Dreams for a Battleship Led to His Navy Secretary’s Ouster**\
+`The Navy secretary, John Phelan, was supposed to deliver the first of the president’s ships by 2028. The timeline was nearly impossible.`\
+https://www.nytimes.com/2026/04/23/us/politics/trump-navy-secretary.html
+
 ****\
 ``\
 https://www.nytimes.com/video/embedded/us/100000010860211/21vid-trumpnuclear-mideast-40800.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/23/us/politics/trump-approval-rating-poll.html
 **Map: 4.0-Magnitude Earthquake Shakes Southeastern Missouri**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/04/23/us/earthquake-missouri-memphis-tennessee.html
-
-**What’s Better Left Unsaid**\
-`Complications of spelling in English can lead to complications in pronunciation.`\
-https://www.nytimes.com/2026/04/23/opinion/english-linguistics-pronunciation.html
 

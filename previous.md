@@ -1,5 +1,9 @@
-**Several People Are Shot at a Mall in Louisiana**\
-`The state attorney general said on social media that “a weapon or weapons” had been discharged in the food court at the Mall of Louisiana in Baton Rouge.`\
+****\
+``\
+https://www.nytimes.com/video/embedded/us/100000010860211/21vid-trumpnuclear-mideast-40800.html
+
+**10 Injured as Shooting Erupts at Mall in Louisiana**\
+`The chief of the Baton Rouge Police Department said during a brief news conference on Thursday that the shooting appeared “targeted.”`\
 https://www.nytimes.com/2026/04/23/us/shooting-mall-of-louisiana-baton-rouge.html
 
 **Microsoft Targets About 7% of Its U.S. Workers With Buyout Offer**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/04/23/us/earthquake-missouri-memphis-te
 **What’s Better Left Unsaid**\
 `Complications of spelling in English can lead to complications in pronunciation.`\
 https://www.nytimes.com/2026/04/23/opinion/english-linguistics-pronunciation.html
-
-**What’s Going On in This Picture? | April 27, 2026**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://www.nytimes.com/2026/04/23/learning/whats-going-on-in-this-picture-april-27-2026.html
 

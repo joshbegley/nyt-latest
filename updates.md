@@ -1,3 +1,11 @@
+****\
+``\
+https://www.nytimes.com/video/embedded/us/100000010860211/21vid-trumpnuclear-mideast-40800.html
+
+**10 Injured as Shooting Erupts at Mall in Louisiana**\
+`The chief of the Baton Rouge Police Department said during a brief news conference on Thursday that the shooting appeared “targeted.”`\
+https://www.nytimes.com/2026/04/23/us/shooting-mall-of-louisiana-baton-rouge.html
+
 **Two Litigation Partners Depart Paul Weiss**\
 `Kannon Shanmugam and Masha Hansford are the latest in a string of litigators who have left the influential New York law firm.`\
 https://www.nytimes.com/2026/04/23/business/paul-weiss-law-firm-departures.html
