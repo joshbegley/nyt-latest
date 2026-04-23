@@ -1,3 +1,7 @@
+**A Hit-and-Run Driver Is Killing Geese on Long Island**\
+`The authorities are looking for a driver who they believe intentionally struck and killed about a dozen geese in Hauppauge this month.`\
+https://www.nytimes.com/2026/04/23/nyregion/geese-killer-investigation-long-island.html
+
 **Lebanese Journalist Killed in Israeli Strike Was Known for Being Intrepid**\
 `Mourners paid respects to Amal Khalil, who remained trapped under rubble for hours before emergency medics recovered her body.`\
 https://www.nytimes.com/2026/04/23/world/middleeast/lebanese-journalist-amal-khalil-killed-israeli-strike.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/23/sports/soccer/italy-world-cup-iran-replacemen
 **New Gene Therapy Enables Children With a Rare Form of Deafness to Hear**\
 `The treatment, the first of its kind, was approved by the Food and Drug Administration on Thursday. “Our baby was born deaf, and now he can hear,” said one parent.`\
 https://www.nytimes.com/2026/04/23/science/deaf-gene-therapy.html
-
-**Meta to Cut 10% of Work Force in A.I. Push**\
-`The layoffs affect about 8,000 employees, with Meta also planning to close 6,000 open roles, as the company focuses on artificial intelligence.`\
-https://www.nytimes.com/2026/04/23/technology/meta-layoffs.html
 
