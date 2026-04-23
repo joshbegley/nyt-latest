@@ -1,3 +1,11 @@
+**World’s Biggest Condom Maker Raises Prices as Iran War Rattles Supply Chains**\
+`The Malaysian company Karex, which produces about five billion condoms a year, said it was raising prices by 30 percent because of higher raw material prices and global shipping disruptions.`\
+https://www.nytimes.com/2026/04/23/world/middleeast/karex-condom-price-increase-iran-war.html
+
+**He Was Exonerated in a Murder and Elected to Office. He May Never Serve.**\
+`Calvin Duncan, who became a lawyer and an advocate for incarcerated people, was recently elected criminal court clerk in New Orleans. Lawmakers are racing to abolish the job.`\
+https://www.nytimes.com/2026/04/23/us/calvin-duncan-new-orleans-election.html
+
 **Una nueva era y el nuevo liderazgo en Irán**\
 `En los ataques de EE. UU. e Israel, Irán perdió a sus principales líderes. Hoy, el poder real está en manos de los generales de la Guardia Revolucionaria.`\
 https://www.nytimes.com/es/2026/04/23/espanol/mundo/nuevos-lideres-iran.html
