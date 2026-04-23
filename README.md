@@ -1,3 +1,11 @@
+**Trump Says He’s Renovating ‘Filthy’ Reflecting Pool on the National Mall**\
+`The pool, which is more than 2,000 feet long, was the site of Martin Luther King Jr.’s “I Have a Dream” speech and other events.`\
+https://www.nytimes.com/2026/04/23/us/politics/trump-reflecting-pool-renovation.html
+
+**Soldier Used Classified Information to Bet on Maduro’s Ouster, U.S. Says**\
+`Federal prosecutors say that Sgt. Gannon Ken Van Dyke, who was involved in planning to oust Nicolás Maduro from power in Venezuela, used the information to place bets on a prediction market.`\
+https://www.nytimes.com/2026/04/23/nyregion/polymarket-maduro-indictment-soldier.html
+
 **Un choque mortal muestra los profundos lazos entre EE. UU. y México en materia de seguridad**\
 `El suceso reabrió el debate sobre la soberanía y la cooperación entre dos naciones que comparten mucho más que una larga frontera.`\
 https://www.nytimes.com/es/2026/04/23/espanol/america-latina/mexico-accidente-investigadores-cia.html
@@ -36,7 +44,7 @@ https://www.nytimes.com/2026/04/23/t-magazine/shikeith-project-blue-space.html
 
 **Trump Keeps Talking About Iran’s ‘Nuclear Dust.’ What Is It?**\
 `First of all, it isn’t dust. It’s Iran’s stockpile of near-bomb-grade uranium, which is stored in large canisters about the size of scuba tanks.`\
-https://www.nytimes.com/2026/04/23/us/politics/trump-iran-nuclear-dust-uranium.html
+https://www.nytimes.com/live/2026/04/23/world/iran-war-trump-news/trump-iran-nuclear-dust-uranium
 
 **Do We All Need a Little Bitcoin?**\
 `Stability is the single biggest lie in financial markets, the investor and Bitcoin evangelist Anthony Pompliano tells the columnist Ross Douthat on “Interesting Times.” The “volatility generation” is embracing Bitcoin because traditional assets like Treasuries are actually designed to lose money, he argues.`\
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/podcasts/100000010859983/how-will-you-be-my-brides
 **Maps Show Smoke From Georgia Wildfires Spreading Across the Southeast**\
 `The smoke has spread to nearby states. Here’s how to track its path and its effect on nearby air quality.`\
 https://www.nytimes.com/2026/04/23/weather/georgia-fires-sc-nc-alabama-air-quality-smoke.html
-
-**Trump’s Dreams for a Battleship Led to His Navy Secretary’s Ouster**\
-`The Navy secretary, John Phelan, was supposed to deliver the first of the president’s ships by 2028. The timeline was nearly impossible.`\
-https://www.nytimes.com/2026/04/23/us/politics/trump-navy-secretary.html
-
-****\
-``\
-https://www.nytimes.com/video/embedded/us/100000010860211/21vid-trumpnuclear-mideast-40800.html
 

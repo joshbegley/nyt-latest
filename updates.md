@@ -1,3 +1,11 @@
+**Un choque mortal muestra los profundos lazos entre EE. UU. y México en materia de seguridad**\
+`El suceso reabrió el debate sobre la soberanía y la cooperación entre dos naciones que comparten mucho más que una larga frontera.`\
+https://www.nytimes.com/es/2026/04/23/espanol/america-latina/mexico-accidente-investigadores-cia.html
+
+**Intel’s Revenues Soar, Aided by A.I. Boom**\
+`The chip maker reported a 7 percent rise to $13.6 billion in its latest quarter, more than $1 billion more than Wall Street expected.`\
+https://www.nytimes.com/2026/04/23/technology/intel-ai-earnings.html
+
 **Doug Allan, Polar Cameraman for David Attenborough’s Films, Dies at 74**\
 `He was renowned for his skill at capturing candid scenes of penguins, polar bears and other cold-weather creatures — and for his ability to tolerate extreme discomfort.`\
 https://www.nytimes.com/2026/04/23/science/doug-allan-dead.html
