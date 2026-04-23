@@ -1,3 +1,7 @@
+**Robot Teachers? Teenagers Weigh In.**\
+`Students react to a recent article about the first lady, Melania Trump, promoting the use of “humanoid educators” to teach children.`\
+https://www.nytimes.com/2026/04/23/learning/robot-teachers-teenagers-weigh-in.html
+
 **Read the Preliminary Report on the LaGuardia Crash**\
 `The National Transportation Safety Board has released a preliminary report on its investigation into the fatal collision between an Air Canada regional jet and a fire truck on a runway at LaGuardia Airport in March.`\
 https://www.nytimes.com/interactive/2026/04/23/nyregion/laguardia-crash-NTSB-report.html
