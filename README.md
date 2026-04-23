@@ -1,3 +1,7 @@
+**Investors Fret Over Tesla’s $25 Billion A.I. Bet**\
+`Elon Musk’s electric vehicle company said that it needs to spend big on artificial intelligence and robots. Wall Street is worried about the bill.`\
+https://www.nytimes.com/2026/04/23/business/dealbook/tesla-musk-ai-bet.html
+
 **Germany, a Steadfast Ally of Israel, Now Voices Some Frustration**\
 `In recent weeks, German officials have issued critical comments about Israel that convey Berlin’s recent frustration with its longtime ally.`\
 https://www.nytimes.com/2026/04/23/world/europe/germany-israel-iran-war-support.html
@@ -38,8 +42,8 @@ https://www.nytimes.com/2026/04/23/crosswords/wordle-review-1770.html
 `Pablo, Mina and Timothy take “Celebrity Jeopardy! All-Stars” 2026 game tape very seriously.`\
 https://www.nytimes.com/2026/04/23/podcasts/celebrity-jeopardy-film-study-share-buzz-tell-with-mina-kimes-and-timothy-simons.html
 
-**After U.S. Aid Fell by 99%, E.U. Pledges $106 Billion Loan to Ukraine**\
-`Unlike previous European assistance packages, the latest one is heavily weighted toward military spending, reflecting a view that the war is far from over.`\
+**$106 Billion Loan Reflects E.U.’s View That Peace in Ukraine Is Far Away**\
+`The delayed funding, which was approved on Thursday, is heavily weighted toward military spending, unlike previous European packages.`\
 https://www.nytimes.com/2026/04/23/world/europe/eu-loan-ukraine.html
 
 **Private Assets May Be Coming to Your 401(k). You Should Know the Risks.**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/23/movies/anne-hathaway-interview-popcast.html
 **Tim Cook: Great for Apple Investors. Not as Great for America.**\
 `Tim Cook made Apple a juggernaut, but he did so by risking America’s economic and political security.`\
 https://www.nytimes.com/2026/04/23/opinion/apple-tim-cook-outsourcing-china.html
-
-**A Huge Sewage Spill Is Over, but Contamination Lingers in the Potomac**\
-`Though river monitoring shows bacteria levels have declined, scientists and environmentalists said a full recovery isn’t yet assured.`\
-https://www.nytimes.com/2026/04/23/climate/potomac-river-sewage-contamination.html
 
