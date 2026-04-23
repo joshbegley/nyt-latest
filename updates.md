@@ -1,3 +1,11 @@
+**Investors Fret Over Tesla’s $25 Billion A.I. Bet**\
+`Elon Musk’s electric vehicle company said that it needs to spend big on artificial intelligence and robots. Wall Street is worried about the bill.`\
+https://www.nytimes.com/2026/04/23/business/dealbook/tesla-musk-ai-bet.html
+
+**$106 Billion Loan Reflects E.U.’s View That Peace in Ukraine Is Far Away**\
+`The delayed funding, which was approved on Thursday, is heavily weighted toward military spending, unlike previous European packages.`\
+https://www.nytimes.com/2026/04/23/world/europe/eu-loan-ukraine.html
+
 **Germany, a Steadfast Ally of Israel, Now Voices Some Frustration**\
 `In recent weeks, German officials have issued critical comments about Israel that convey Berlin’s recent frustration with its longtime ally.`\
 https://www.nytimes.com/2026/04/23/world/europe/germany-israel-iran-war-support.html
