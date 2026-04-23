@@ -1,3 +1,7 @@
+**Trump Administration Loosens Restrictions on Medical Marijuana**\
+`The rule moves F.D.A.-approved marijuana and state-regulated marijuana out of the Schedule I category, which includes drugs like heroin.`\
+https://www.nytimes.com/2026/04/23/us/politics/trump-medical-marijuana-classification-drug-reschedule.html
+
 **‘God Will Never Abandon You,’ Pope Tells Prisoners in Equatorial Guinea**\
 `Pope Leo XIV offered words of encouragement at a prison in the tiny authoritarian nation of Equatorial Guinea, one of four countries he visited during a tour of Africa.`\
 https://www.nytimes.com/video/world/africa/100000010858713/pope-leo-prison-africa-equatorial-guinea.html
