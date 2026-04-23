@@ -1,3 +1,7 @@
+**Why Has ‘Christ Is King’ Become a Controversial Statement?**\
+`For some, the three words have become encoded with a message of hate.`\
+https://www.nytimes.com/2026/04/23/style/christ-is-king-nick-fuentes-candace-owens.html
+
 **They Were Tattooed and Trafficked. Dermatologists Are Removing the Scars.**\
 `People who are sex trafficked are often branded with names and symbols. Free removal programs are helping them move on.`\
 https://www.nytimes.com/2026/04/23/well/tattoo-removal-sex-trafficking.html
@@ -39,7 +43,7 @@ https://www.nytimes.com/interactive/polls/mississippi-us-senate-election-polls-2
 https://www.nytimes.com/interactive/polls/kansas-us-senate-election-polls-2026.html
 
 **After a Hero’s Fall, What to Do With the Art That Honored Him?**\
-`Artists who created public depictions of the civil rights icon Cesar Chavez have had revisit their works after accusations emerged of Mr. Chavez’s sexual abuse of girls in the movement.`\
+`Artists who created public depictions of the civil rights icon Cesar Chavez have had to revisit their works after accusations emerged of Mr. Chavez’s sexual abuse of girls in the movement.`\
 https://www.nytimes.com/2026/04/23/us/cesar-chavez-art-changes.html
 
 **Iowa Governor Election 2026: Latest Polls**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/23/arts/music/michael-tilson-thomas-dead.html
 **Colorado U.S. Senate Election 2026: Latest Polls**\
 `Track the latest polls in the Colorado U.S. Senate election.`\
 https://www.nytimes.com/interactive/polls/colorado-us-senate-election-polls-2026.html
-
-**Oklahoma U.S. Senate Election 2026: Latest Polls**\
-`Track the latest polls in the Oklahoma U.S. Senate election.`\
-https://www.nytimes.com/interactive/polls/oklahoma-us-senate-election-polls-2026.html
 
