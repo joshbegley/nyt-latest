@@ -1,3 +1,23 @@
+**Bones of 3 Children Found in Woods May Have Been There for Years**\
+`The Memphis police chief said a chance discovery led investigators to more than a dozen bones belonging to three children between the ages of 3 and 7.`\
+https://www.nytimes.com/2026/04/23/us/children-remains-memphis-woods-investigation.html
+
+**Mamdani Faces Pressure to Cancel $2 Billion Deal to Expand Hudson Yards**\
+`Related Companies struck a deal with Eric Adams to have New York City finance a costly platform to facilitate new housing. Mayor Zohran Mamdani said advancing the deal was not a priority.`\
+https://www.nytimes.com/2026/04/23/nyregion/hudson-yards-platform.html
+
+**Irán vuelve a endurecer su control sobre el estrecho de Ormuz**\
+`Aunque EE. UU. e Israel han dicho que su intención era acabar con el programa nuclear iraní y deponer a sus líderes, Teherán ha convertido la guerra en un conflicto del transporte marítimo.`\
+https://www.nytimes.com/es/2026/04/23/espanol/iran-ataques-estrecho-ormuz-petroleo.html
+
+**Afghans Who Helped U.S. Forces Say They’re Being Pushed Back to the Taliban**\
+`Once promised a move to the United States, Afghan refugees who helped U.S. forces say they face ‘bad or worse’ options: resettlement to Congo or returning home to live under the Taliban.`\
+https://www.nytimes.com/2026/04/23/world/asia/afghans-qatar-refugees-congo.html
+
+**Journalist Detained in Kuwait After Posting About Iran War Is Acquitted**\
+`Ahmed Shihab-Eldin, a Kuwaiti-American journalist, is expected to be released soon, after 52 days in detention, a lawyer for two of his family members said.`\
+https://www.nytimes.com/2026/04/23/world/middleeast/kuwait-journalist-acquitted.html
+
 **Ruth Slenczynska, 101, Dies; Piano Prodigy Overcame Father’s Abuse**\
 `Treated brutally, she went from celebrated child star to 15-year-old “burned-out candle.” Against the odds, she later resumed performing.`\
 https://www.nytimes.com/2026/04/23/arts/music/ruth-slenczynska-dead.html
