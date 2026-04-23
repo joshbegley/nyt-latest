@@ -1,3 +1,11 @@
+**The Iran War, in Numbers**\
+`Here are some statistics to give context to the conflict.`\
+https://www.nytimes.com/2026/04/23/briefing/the-iran-war-in-numbers.html
+
+**El antitrumpismo une a Europa**\
+`La toxicidad de Trump ha hecho que distanciarse de él sea una necesidad para líderes de todo el espectro político.`\
+https://www.nytimes.com/es/2026/04/23/espanol/mundo/antitrumpismo-europa.html
+
 **Ticketmaster’s Big Loss in Court**\
 `After years of scrutiny and complaints, Live Nation, the concert giant that includes Ticketmaster, has been found to be a monopoly.`\
 https://www.nytimes.com/2026/04/23/podcasts/the-daily/ticketmaster-live-nation-trial.html
