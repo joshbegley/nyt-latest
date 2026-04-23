@@ -1,3 +1,11 @@
+**Kansas U.S. Senate Election 2026: Latest Polls**\
+`Track the latest polls in the Kansas U.S. Senate election.`\
+https://www.nytimes.com/interactive/polls/kansas-us-senate-election-polls-2026.html
+
+**After a Hero’s Fall, What to Do With the Art That Honored Him?**\
+`Artists who created public depictions of the civil rights icon Cesar Chavez have had revisit their works after revelations emerged of Mr. Chavez’s sexual abuse of girls in the movement.`\
+https://www.nytimes.com/2026/04/23/us/cesar-chavez-art-changes.html
+
 **Iowa Governor Election 2026: Latest Polls**\
 `Track the latest polls in the Iowa governor election.`\
 https://www.nytimes.com/interactive/polls/iowa-governor-election-polls-2026.html
@@ -20,7 +28,7 @@ https://www.nytimes.com/2026/04/23/world/middleeast/israel-lebanon-hezbollah-tal
 
 **U.S. forces stop a second tanker they say is carrying Iranian oil.**\
 ``\
-https://www.nytimes.com/live/2026/04/23/world/iran-war-trump-news/us-forces-stop-a-second-tanker-they-say-is-carrying-iranian-oil
+https://www.nytimes.com/2026/04/23/world/middleeast/oil-tanker-iran-us-indian-ocean-mt-majestic-x.html
 
 **Michael Tilson Thomas, Celebrated American Conductor, Dies at 81**\
 `A galvanizing force in classical music as a conductor, composer, pianist and evangelist, he spent 25 years as music director of the San Francisco Symphony.`\
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/23/podcasts/the-headlines/iran-breast-reductions
 **Connections Companion No. 1,048**\
 `Scroll down for hints and conversation about the puzzle for day, April 24, 2026.`\
 https://www.nytimes.com/2026/04/23/crosswords/connections-companion-1048.html
-
-**Strands Sidekick No. 782**\
-`Scroll down for hints and conversation about the puzzle for Friday, April 24, 2026.`\
-https://www.nytimes.com/2026/04/23/crosswords/strands-sidekick-782.html
-
-**Wordle Review No. 1,770**\
-`Scroll down for hints and conversation about the puzzle for Friday, April 24, 2026.`\
-https://www.nytimes.com/2026/04/23/crosswords/wordle-review-1770.html
 
