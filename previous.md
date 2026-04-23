@@ -1,3 +1,7 @@
+**Israeli Strikes Kill a Journalist and Injure Another in Lebanon**\
+`Lebanese officials say rescue teams came under fire while trying to aid Amal Khalil, a reporter for a Lebanese newspaper, and Zeinab Faraj, a photojournalist.`\
+https://www.nytimes.com/2026/04/22/world/middleeast/journalist-killed-israel-lebanon-strikes.html
+
 **U.S. Settles Carter Page Wiretap Lawsuit for $1.25 Million**\
 `F.B.I. applications to surveil Mr. Page, a 2016 Trump campaign adviser, during the investigation into Russia’s interference in the election had myriad errors and omissions, an inspector general found.`\
 https://www.nytimes.com/2026/04/22/us/politics/trump-settles-carter-page-lawsuit.html
@@ -30,7 +34,7 @@ https://www.nytimes.com/2026/04/22/us/politics/king-charles-epstein-victims.html
 `Teresa Peroni, 27, was last seen on July 4, 1983, in Selma, Ore. Marcus Sanfratello, the man seen with her that day, pleaded guilty to first-degree manslaughter after his arrest last year.`\
 https://www.nytimes.com/2026/04/22/us/oregon-murder-sentenced-prison.html
 
-**Navy Secretary Is Out, Pentagon Says**\
+**Navy Secretary Is Fired Amid Pentagon Infighting**\
 `John Phelan is leaving the Pentagon and the Trump administration after months of infighting with senior Pentagon leaders.`\
 https://www.nytimes.com/2026/04/22/us/politics/navy-secretary-john-phelan.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/22/us/mothballs-florida-st-pete-beach.html
 **Man Arrested in Florida 33 Years After Double Murder in the Bronx**\
 `Police had recovered fingerprints after the murders in 1993, which took place while the victims’ child was in the next room. But they identified William Antonio Solis as a suspect only last year.`\
 https://www.nytimes.com/2026/04/22/nyregion/arrest-double-murder-bronx-1993.html
-
-**Iran Says It Seized Two Ships Near the Strait of Hormuz**\
-`A British naval agency said the two vessels had come under attack near the strait, as a U.S. blockade on Iran’s ports continued.`\
-https://www.nytimes.com/2026/04/22/world/middleeast/iran-ships-strait-of-hormuz.html
 

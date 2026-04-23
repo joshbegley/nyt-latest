@@ -1,3 +1,11 @@
+**Israeli Strikes Kill a Journalist and Injure Another in Lebanon**\
+`Lebanese officials say rescue teams came under fire while trying to aid Amal Khalil, a reporter for a Lebanese newspaper, and Zeinab Faraj, a photojournalist.`\
+https://www.nytimes.com/2026/04/22/world/middleeast/journalist-killed-israel-lebanon-strikes.html
+
+**Navy Secretary Is Fired Amid Pentagon Infighting**\
+`John Phelan is leaving the Pentagon and the Trump administration after months of infighting with senior Pentagon leaders.`\
+https://www.nytimes.com/2026/04/22/us/politics/navy-secretary-john-phelan.html
+
 **U.S. Settles Carter Page Wiretap Lawsuit for $1.25 Million**\
 `F.B.I. applications to surveil Mr. Page, a 2016 Trump campaign adviser, during the investigation into Russia’s interference in the election had myriad errors and omissions, an inspector general found.`\
 https://www.nytimes.com/2026/04/22/us/politics/trump-settles-carter-page-lawsuit.html
