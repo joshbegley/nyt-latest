@@ -1,3 +1,7 @@
+**Israeli Strikes Kill Journalist in Southern Lebanon**\
+`Amal Khalil, a journalist for the Lebanese newspaper Al-Akhbar, was killed and a photojournalist, Zeinab Faraj, was injured in Israeli strikes in the town of Tayri. Rescue crews also came under fire while attempting to aid the journalists, Lebanese officials said.`\
+https://www.nytimes.com/video/world/middleeast/100000010858857/israel-lebanon-journalist-killed-amal-khalil.html
+
 **Ex-Police Officer Planned Mass Shooting in New Orleans, Officials Say**\
 `Christopher Gillum had targeted a large festival there, the authorities said. He was arrested on Wednesday in a Florida hotel room before he could carry out his plans.`\
 https://www.nytimes.com/2026/04/23/us/mass-shooting-arrest-new-orleans-festival.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/podcasts/100000010859209/anne-hathaway-knows-her-m
 **How the Supreme Court’s Shadow Docket Upended Climate Policy**\
 `The Times unearthed memos that signaled a major shift in the court’s operations, in a decision that critics say was rushed and flawed.`\
 https://www.nytimes.com/2026/04/23/climate/supreme-court-climate-shadow-docket.html
-
-**Trump Talks on Sending Afghans to Congo Draw Bipartisan Ire**\
-`Lawmakers in both parties said President Trump should continue allowing Afghans who worked alongside American troops to settle safely in the United States.`\
-https://www.nytimes.com/2026/04/23/us/politics/trump-afghans-congo-refugees.html
 
