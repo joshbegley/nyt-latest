@@ -1,3 +1,7 @@
+**Senate Plunges Into Vote Marathon as G.O.P. Advances ICE Funding Boost**\
+`Republicans pressed to pass a budget plan with a $70 billion increase for immigration enforcement. But first, in an overnight session, they beat back Democratic proposals aimed at lowering costs.`\
+https://www.nytimes.com/2026/04/23/us/politics/senate-plunges-into-vote-marathon-as-gop-advances-ice-funding-boost.html
+
 **Los precios de la energía aumentan en varios países por el acaparamiento**\
 `A medida que los países ricos se apresuran a asegurar reservas de petróleo, se produce un aumento de los precios para todos y escasez en los países vulnerables.`\
 https://www.nytimes.com/es/2026/04/23/espanol/negocios/precios-petroleo-guerra-estrecho.html
