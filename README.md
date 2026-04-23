@@ -1,3 +1,7 @@
+**Turner Prize Nominees Take Viewers on ‘Extraordinary Journeys’**\
+`This year’s shortlist for the major British art award includes an artist who stages spoken-word performances and another who makes art using oil company merch bought off eBay.`\
+https://www.nytimes.com/2026/04/23/arts/design/turner-prize-shortlist.html
+
 **The Iran War, in Numbers**\
 `Here are some statistics to give context to the conflict.`\
 https://www.nytimes.com/2026/04/23/briefing/the-iran-war-in-numbers.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/23/climate/potomac-river-sewage-contamination.ht
 **A Newborn Falcon Makes a Debut in a Nest 14 Stories High**\
 `Falcon Cam at a Manhattan office building revealed the first peregrine falcon to hatch there in years.`\
 https://www.nytimes.com/2026/04/23/nyregion/newborn-peregrine-falcon-manhattan.html
-
-**And Then There Were None, Trump Administration Edition**\
-`Normal language is inadequate and precedents are irrelevant when it comes to appraising the senior administration officials of the president’s second term.`\
-https://www.nytimes.com/2026/04/23/opinion/trump-cabinet-patel-noem-labor-hegseth.html
 
