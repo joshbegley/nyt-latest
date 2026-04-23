@@ -1,3 +1,23 @@
+**Trump Keeps Talking About Iran’s ‘Nuclear Dust.’ What Is It?**\
+`First of all, it isn’t dust. It’s Iran’s stockpile of near-bomb-grade uranium, which is stored in large canisters about the size of scuba tanks.`\
+https://www.nytimes.com/2026/04/23/us/politics/trump-iran-nuclear-dust-uranium.html
+
+**Do We All Need a Little Bitcoin?**\
+`Stability is the single biggest lie in financial markets, the investor and Bitcoin evangelist Anthony Pompliano tells the columnist Ross Douthat on “Interesting Times.” The “volatility generation” is embracing Bitcoin because traditional assets like Treasuries are actually designed to lose money, he argues.`\
+https://www.nytimes.com/video/opinion/100000010848698/do-we-all-need-a-little-bitcoin.html
+
+**A Bad Investment in Trump Vibes**\
+`Is there inherent corruption in Trump’s approach to cryptocurrency? Ross Douthat unpacks the Trump family’s crypto holdings with Bitcoin investor Anthony Pompliano and debates whether crypto is just an “investment in vibes” that’s “bound up in Trump’s political fortunes.”`\
+https://www.nytimes.com/video/opinion/100000010848707/a-bad-investment-in-trump-vibes.html
+
+**The Generals Running Iran**\
+`The war has empowered the Revolutionary Guards and seems to be shifting the theocratic republic toward something more like a military regime.`\
+https://www.nytimes.com/2026/04/23/world/iran-guards-military-israel-lebanon.html
+
+**Rescue Effort for Russian Tanker Fails, in a New Era of Maritime Peril**\
+`The ship, which carried fuel and natural gas, has been adrift for weeks in the Mediterranean Sea after a drone attack, alarming officials who fear an environmental disaster.`\
+https://www.nytimes.com/2026/04/23/world/europe/russian-tanker-mediterranean.html
+
 **Israeli Strikes Kill Journalist in Southern Lebanon**\
 `Amal Khalil, a journalist for the Lebanese newspaper Al-Akhbar, was killed and a photojournalist, Zeinab Faraj, was injured in Israeli strikes in the town of Tayri. Rescue crews also came under fire while attempting to aid the journalists, Lebanese officials said.`\
 https://www.nytimes.com/video/world/middleeast/100000010858857/israel-lebanon-journalist-killed-amal-khalil.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/04/23/business/paul-weiss-law-firm-departures.html
 **Stream These Movies and TV Shows Before They Leave Netflix in May**\
 `Dozens of titles leave the streaming service for U.S. subscribers every month. Here’s a roundup of the best ones leaving soon.`\
 https://www.nytimes.com/2026/04/23/arts/television/netflix-expiring-may.html
-
-**A Hit-and-Run Driver Is Killing Geese on Long Island**\
-`The authorities are looking for a driver who they believe intentionally struck and killed about a dozen geese in Hauppauge this month.`\
-https://www.nytimes.com/2026/04/23/nyregion/geese-killer-investigation-long-island.html
-
-**Lebanese Journalist Killed in Israeli Strike Was Known for Being Intrepid**\
-`Mourners paid respects to Amal Khalil, who remained trapped under rubble for hours before emergency medics recovered her body.`\
-https://www.nytimes.com/2026/04/23/world/middleeast/lebanese-journalist-amal-khalil-killed-israeli-strike.html
-
-**Darrell Sheets, Auction Bidder Who Starred on ‘Storage Wars,’ Dies at 67**\
-`He appeared in 13 seasons of the long-running reality television show about storage-unit auctions. He later opened an antique shop in Arizona.`\
-https://www.nytimes.com/2026/04/23/arts/television/darrell-sheets-storage-wars-dead.html
-
-**Anne Hathaway Knows Her ‘Mother’ Era Won’t Last Forever**\
-`With five movies dropping in 2026, Anne Hathaway is about to be everywhere. On “Popcast,” the actress discusses the plot twist of receiving online adoration and what it’s like to make it to the other side of internet backlash.`\
-https://www.nytimes.com/video/podcasts/100000010859209/anne-hathaway-knows-her-mother-era-wont-last-forever.html
-
-**How the Supreme Court’s Shadow Docket Upended Climate Policy**\
-`The Times unearthed memos that signaled a major shift in the court’s operations, in a decision that critics say was rushed and flawed.`\
-https://www.nytimes.com/2026/04/23/climate/supreme-court-climate-shadow-docket.html
 

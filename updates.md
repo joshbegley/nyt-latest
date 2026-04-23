@@ -1,3 +1,23 @@
+**Trump Keeps Talking About Iran’s ‘Nuclear Dust.’ What Is It?**\
+`First of all, it isn’t dust. It’s Iran’s stockpile of near-bomb-grade uranium, which is stored in large canisters about the size of scuba tanks.`\
+https://www.nytimes.com/2026/04/23/us/politics/trump-iran-nuclear-dust-uranium.html
+
+**Do We All Need a Little Bitcoin?**\
+`Stability is the single biggest lie in financial markets, the investor and Bitcoin evangelist Anthony Pompliano tells the columnist Ross Douthat on “Interesting Times.” The “volatility generation” is embracing Bitcoin because traditional assets like Treasuries are actually designed to lose money, he argues.`\
+https://www.nytimes.com/video/opinion/100000010848698/do-we-all-need-a-little-bitcoin.html
+
+**A Bad Investment in Trump Vibes**\
+`Is there inherent corruption in Trump’s approach to cryptocurrency? Ross Douthat unpacks the Trump family’s crypto holdings with Bitcoin investor Anthony Pompliano and debates whether crypto is just an “investment in vibes” that’s “bound up in Trump’s political fortunes.”`\
+https://www.nytimes.com/video/opinion/100000010848707/a-bad-investment-in-trump-vibes.html
+
+**The Generals Running Iran**\
+`The war has empowered the Revolutionary Guards and seems to be shifting the theocratic republic toward something more like a military regime.`\
+https://www.nytimes.com/2026/04/23/world/iran-guards-military-israel-lebanon.html
+
+**Rescue Effort for Russian Tanker Fails, in a New Era of Maritime Peril**\
+`The ship, which carried fuel and natural gas, has been adrift for weeks in the Mediterranean Sea after a drone attack, alarming officials who fear an environmental disaster.`\
+https://www.nytimes.com/2026/04/23/world/europe/russian-tanker-mediterranean.html
+
 **Israeli Strikes Kill Journalist in Southern Lebanon**\
 `Amal Khalil, a journalist for the Lebanese newspaper Al-Akhbar, was killed and a photojournalist, Zeinab Faraj, was injured in Israeli strikes in the town of Tayri. Rescue crews also came under fire while attempting to aid the journalists, Lebanese officials said.`\
 https://www.nytimes.com/video/world/middleeast/100000010858857/israel-lebanon-journalist-killed-amal-khalil.html
