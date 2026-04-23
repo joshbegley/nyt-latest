@@ -1,3 +1,11 @@
+**¿La punción seca realmente alivia el dolor?**\
+`Que te inserten agujas diminutas en un nudo muscular doloroso es desconcertante. ¿Pero puede ayudar?`\
+https://www.nytimes.com/es/2026/04/23/espanol/dolor-alivio-acupuntura-puncion-seca-fisioterapia.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/23/crosswords/spelling-bee-forum.html
+
 **Stephen Colbert Sends Jimmy Kimmel a Box of ‘Iran War Jokes’**\
 `Colbert said he was “beginning to think this war might not be over before Memorial Day,” when “The Late Show” will have ended its run.`\
 https://www.nytimes.com/2026/04/23/arts/television/stephen-colbert-jimmy-kimmel-iran.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/interactive/2026/04/22/style/the-japanese-designers-chan
 **El FBI investiga a una periodista del Times, luego de publicar un artículo sobre la novia del director de esa agencia**\
 `El escrutinio de Elizabeth Williamson es un ejemplo de cómo el gobierno de Donald Trump examina la posibilidad de criminalizar prácticas rutinarias de recopilación de noticias que, en general, se consideran protegidas por la Primera Enmienda.`\
 https://www.nytimes.com/es/2026/04/22/espanol/estados-unidos/fbi-investiga-periodista-kash-patel.html
-
-**Combative, Defensive and Occasionally Contrite, Kennedy Walks a Fine Line**\
-`In four days of congressional testimony, the health secretary sought to please the White House and his MAHA base at the same time.`\
-https://www.nytimes.com/2026/04/22/us/politics/rfk-vaccines-measles-testimony.html
-
-**The Poetry Challenge Day 4: Are we alone in the universe? Does it matter?**\
-`Writers have been pondering the sky for centuries, but this poem helps us feel a little less solitary. Brush up on its last lines today, and tomorrow we’ll talk about the whole thing.`\
-https://www.nytimes.com/interactive/2026/books/wh-auden-poetry-challenge-stars.html
 
