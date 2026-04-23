@@ -1,3 +1,7 @@
+**Oklahoma U.S. Senate Election 2026: Latest Polls**\
+`Track the latest polls in the Oklahoma U.S. Senate election.`\
+https://www.nytimes.com/interactive/polls/oklahoma-us-senate-election-polls-2026.html
+
 **House Republicans, Investigating ActBlue, Ask Its C.E.O. to Testify**\
 `The request is a significant escalation of G.O.P. pressure on the liberal fund-raising organization over its vetting of donations.`\
 https://www.nytimes.com/2026/04/23/us/politics/actblue-republicans-regina-wallace-jones.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/23/t-magazine/english-countryside-vacation-renta
 **Two Sisters, Two Husbands, a Toddler and a House in the Bay Area**\
 `Kinship and a notoriously expensive housing market spurred a family to join forces and buy a multifamily house in California. Here’s what they found.`\
 https://www.nytimes.com/interactive/2026/04/23/realestate/bay-area-oakland-berkeley-real-estate.html
-
-**Anne Hathaway, Queen of Effort, Is Finally Ready to Vibe**\
-`Known best for tightly wound characters in generational hit films, the actress is a tortured pop star in “Mother Mary” and returns to playful form in “The Devil Wears Prada 2.”`\
-https://www.nytimes.com/2026/04/23/movies/anne-hathaway-interview-popcast.html
 
