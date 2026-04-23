@@ -1,3 +1,7 @@
+**El secretario de la Marina de EE. UU. es despedido en medio de luchas internas en el Pentágono**\
+`John Phelan deja el Pentágono tras meses de tensiones con Pete Hegseth y otros dirigentes de la institución.`\
+https://www.nytimes.com/es/2026/04/23/espanol/estados-unidos/secretario-marina-despedido.html
+
 **4 medicamentos que pueden aumentar el riesgo de demencia**\
 `Los expertos han señalado varios medicamentos de venta libre o con receta.`\
 https://www.nytimes.com/es/2026/04/23/espanol/demencia-medicinas-aumenta-riesgo.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/04/23/us/cesar-chavez-art-changes.html
 **Iowa Governor Election 2026: Latest Polls**\
 `Track the latest polls in the Iowa governor election.`\
 https://www.nytimes.com/interactive/polls/iowa-governor-election-polls-2026.html
-
-**Russian Officials Say Town’s Air Is Toxic, Days After Strike on Oil Refinery**\
-`Since Ukraine attacked the refinery in Tuapse, starting a huge fire, residents have reported drops of dark, oily toxins falling from the sky.`\
-https://www.nytimes.com/2026/04/23/world/europe/russia-oil-refinery-black-rain.html
 

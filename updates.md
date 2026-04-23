@@ -1,3 +1,7 @@
+**El secretario de la Marina de EE. UU. es despedido en medio de luchas internas en el Pentágono**\
+`John Phelan deja el Pentágono tras meses de tensiones con Pete Hegseth y otros dirigentes de la institución.`\
+https://www.nytimes.com/es/2026/04/23/espanol/estados-unidos/secretario-marina-despedido.html
+
 **4 medicamentos que pueden aumentar el riesgo de demencia**\
 `Los expertos han señalado varios medicamentos de venta libre o con receta.`\
 https://www.nytimes.com/es/2026/04/23/espanol/demencia-medicinas-aumenta-riesgo.html
