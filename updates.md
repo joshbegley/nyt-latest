@@ -1,3 +1,7 @@
+**Two Litigation Partners Depart Paul Weiss**\
+`Kannon Shanmugam and Masha Hansford are the latest in a string of litigators who have left the influential New York law firm.`\
+https://www.nytimes.com/2026/04/23/business/paul-weiss-law-firm-departures.html
+
 **Several People Are Shot at a Mall in Louisiana**\
 `The state attorney general said on social media that “a weapon or weapons” had been discharged in the food court at the Mall of Louisiana in Baton Rouge.`\
 https://www.nytimes.com/2026/04/23/us/shooting-mall-of-louisiana-baton-rouge.html
