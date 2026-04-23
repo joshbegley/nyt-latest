@@ -1,3 +1,15 @@
+**Palabra del día: ‘extant’**\
+`Esta palabra ha aparecido en 28 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/04/23/espanol/que-significa-extant.html
+
+**Word of the Day: extant**\
+`This word has appeared in 28 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/04/23/learning/word-of-the-day-extant.html
+
+**Candidates for California Governor Debate: 5 Takeaways**\
+`The nonpartisan primary remains volatile after the departure of Eric Swalwell. A televised debate featured six leading candidates, but produced few fireworks.`\
+https://www.nytimes.com/2026/04/23/us/politics/california-governor-debate-takeaways.html
+
 **Pentagon Fires Navy Secretary**\
 `Navy Secretary John Phelan was fired on Wednesday after months of infighting with senior Pentagon leaders. He championed a major investment in new ships, including a “Trump-class” battleship.`\
 https://www.nytimes.com/video/us/100000010858340/navy-secretary-john-phelan-fired.html
