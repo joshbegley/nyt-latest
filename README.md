@@ -1,3 +1,7 @@
+**Stream These Movies and TV Shows Before They Leave Netflix in May**\
+`Dozens of titles leave the streaming service for U.S. subscribers every month. Here’s a roundup of the best ones leaving soon.`\
+https://www.nytimes.com/2026/04/23/arts/television/netflix-expiring-may.html
+
 **A Hit-and-Run Driver Is Killing Geese on Long Island**\
 `The authorities are looking for a driver who they believe intentionally struck and killed about a dozen geese in Hauppauge this month.`\
 https://www.nytimes.com/2026/04/23/nyregion/geese-killer-investigation-long-island.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/us/politics/100000010859004/california-governor-el
 **A Second Chance at the World Cup? Italy Fans Say, ‘No, Thanks.’**\
 `A Trump official proposed that the Italian team take Iran’s spot at the World Cup this summer. The supporters didn’t appreciate the pity invite.`\
 https://www.nytimes.com/2026/04/23/sports/soccer/italy-world-cup-iran-replacement-reactions.html
-
-**New Gene Therapy Enables Children With a Rare Form of Deafness to Hear**\
-`The treatment, the first of its kind, was approved by the Food and Drug Administration on Thursday. “Our baby was born deaf, and now he can hear,” said one parent.`\
-https://www.nytimes.com/2026/04/23/science/deaf-gene-therapy.html
 
