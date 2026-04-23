@@ -1,3 +1,7 @@
+**Senate Plunges Into Vote Marathon as G.O.P. Advances ICE Funding Boost**\
+`Republicans pressed to pass a budget plan with a $70 billion increase for immigration enforcement. But first, in an overnight session, they beat back Democratic proposals aimed at lowering costs.`\
+https://www.nytimes.com/2026/04/23/us/politics/senate-plunges-into-vote-marathon-as-gop-advances-ice-funding-boost.html
+
 **Los precios de la energía aumentan en varios países por el acaparamiento**\
 `A medida que los países ricos se apresuran a asegurar reservas de petróleo, se produce un aumento de los precios para todos y escasez en los países vulnerables.`\
 https://www.nytimes.com/es/2026/04/23/espanol/negocios/precios-petroleo-guerra-estrecho.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/podcasts/100000010855591/olivia-rodrigo-is-falling
 **Kalshi Fines and Suspends 3 Political Candidates for Betting on Their Races**\
 `The prediction market said the candidates violated new rules. The platform and its competitors face growing scrutiny from lawmakers and regulators over how political betting is policed.`\
 https://www.nytimes.com/2026/04/22/us/kalshi-suspends-politicians-trading-elections.html
-
-**Man Who Stole Kristi Noem’s Purse Gets 3 Years in Prison**\
-`Ms. Noem, the homeland security secretary at the time, was at a restaurant in Washington with her family when her bag was taken with $3,000 and her security badge inside.`\
-https://www.nytimes.com/2026/04/22/us/kristi-noem-purse-thief-sentenced.html
 
