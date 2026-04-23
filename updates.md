@@ -1,3 +1,11 @@
+**Doug Allan, Polar Cameraman for David Attenborough’s Films, Dies at 74**\
+`He was renowned for his skill at capturing candid scenes of penguins, polar bears and other cold-weather creatures — and for his ability to tolerate extreme discomfort.`\
+https://www.nytimes.com/2026/04/23/science/doug-allan-dead.html
+
+**Court Revives D.C.’s Ban on High-Capacity Gun Magazines, for Now**\
+`The Trump administration and D.C. officials, normally at odds over the city’s strict gun laws, had both asked the court to reconsider the case.`\
+https://www.nytimes.com/2026/04/23/us/politics/dc-ban-gun-magazines.html
+
 **How the War in Iran Is Shifting From Bombardment to a Test of Wills**\
 `The conflict has morphed into a volatile standoff in the Strait of Hormuz, as the economic costs mount and President Trump faces a political backlash at home.`\
 https://www.nytimes.com/2026/04/23/us/politics/strait-iran-willpower.html
