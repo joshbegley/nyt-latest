@@ -1,3 +1,19 @@
+**How the War in Iran Is Shifting From Bombardment to a Test of Wills**\
+`The conflict has morphed into a volatile standoff in the Strait of Hormuz, as the economic costs mount and President Trump faces a political backlash at home.`\
+https://www.nytimes.com/2026/04/23/us/politics/strait-iran-willpower.html
+
+**Without Formal Trade Talks, Canada and the U.S. Go Public With Their Grievances**\
+`Prime Minister Mark Carney shot back at Trump administration officials, saying Canada is not ‘taking instructions from the United States.’`\
+https://www.nytimes.com/2026/04/23/world/canada/carney-trump-canada-us-trade.html
+
+**Trump Says Israel-Lebanon Cease-Fire Is Extended**\
+`Also, America’s premier opera company has money troubles. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/04/23/briefing/trump-says-israel-lebanon-cease-fire-is-extended.html
+
+**Nike to Cut 1,400 Jobs as Part of Its Turnaround Plan**\
+`Most of the layoffs will affect tech workers as the athletic giant tries to reverse a yearslong sales slump. It’s the second round of cuts this year.`\
+https://www.nytimes.com/2026/04/23/business/nike-layoffs-turnaround.html
+
 **The Artist Making Work About Sweat, Ghosts and the Rivers of Pittsburgh**\
 `With Project Blue Space, the sculptor and image maker Shikeith brings the city’s Black history to the surface.`\
 https://www.nytimes.com/2026/04/23/t-magazine/shikeith-project-blue-space.html

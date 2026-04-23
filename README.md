@@ -1,3 +1,7 @@
+**Court Revives D.C.’s Ban on High-Capacity Gun Magazines, for Now**\
+`The Trump administration and D.C. officials, normally at odds over the city’s strict gun laws, had both asked the court to reconsider the case.`\
+https://www.nytimes.com/2026/04/23/us/politics/dc-ban-gun-magazines.html
+
 **How the War in Iran Is Shifting From Bombardment to a Test of Wills**\
 `The conflict has morphed into a volatile standoff in the Strait of Hormuz, as the economic costs mount and President Trump faces a political backlash at home.`\
 https://www.nytimes.com/2026/04/23/us/politics/strait-iran-willpower.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/23/business/microsoft-layoffs-artificial-intelli
 **What Is YouTube’s Dominance Doing to Us? We Asked Its C.E.O.**\
 `YouTube’s chief executive, Neal Mohan, has led the company since 2023. He talks about overseeing the platform’s rapid growth.`\
 https://www.nytimes.com/video/podcasts/100000010805137/what-is-youtubes-dominance-doing-to-us-we-asked-its-ceo.html
-
-**French Fries: Fully Loaded**\
-`Fries are perfectly good on their own, but they’re even better with toppings. Here are three places to get yours loaded.`\
-https://www.nytimes.com/2026/04/23/dining/french-fries-fully-loaded.html
 
