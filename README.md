@@ -1,3 +1,7 @@
+**A Second Chance at the World Cup? Italy Fans Say, ‘No, Thanks’**\
+`A Trump official proposed that the Italian team take Iran’s spot at the World Cup this summer. The supporters didn’t appreciate the pity invite.`\
+https://www.nytimes.com/2026/04/23/sports/soccer/italy-world-cup-iran-replacement-reactions.html
+
 **New Gene Therapy Enables Children With a Rare Form of Deafness to Hear**\
 `The treatment, the first of its kind, was approved by the Food and Drug Administration on Thursday. “Our baby was born deaf, and now he can hear,” said one parent.`\
 https://www.nytimes.com/2026/04/23/science/deaf-gene-therapy.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/04/23/us/politics/maha-voters-midterms.html
 **Justice Dept. Targets Hundreds of Citizens in New Push for Denaturalization**\
 `The Trump administration is assigning denaturalization cases to regular prosecutors, which could lead to a surge of people stripped of U.S. citizenship.`\
 https://www.nytimes.com/2026/04/23/us/politics/justice-dept-citizens-denaturalization.html
-
-**What Questions Do You Have About the Trump-Xi Summit?**\
-`“Ask a Correspondent” will take your questions to David Pierson, who covers China’s foreign policy for The Times.`\
-https://www.nytimes.com/2026/04/23/world/trump-xi-china-reader-callout.html
 

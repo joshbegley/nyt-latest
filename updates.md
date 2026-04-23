@@ -1,3 +1,19 @@
+**New Gene Therapy Enables Children With a Rare Form of Deafness to Hear**\
+`The treatment, the first of its kind, was approved by the Food and Drug Administration on Thursday. “Our baby was born deaf, and now he can hear,” said one parent.`\
+https://www.nytimes.com/2026/04/23/science/deaf-gene-therapy.html
+
+**Meta to Cut 10 Percent of Work Force**\
+`The layoffs affect about 8,000 employees, with Meta also planning to close 6,000 open roles, as the company focuses on artificial intelligence.`\
+https://www.nytimes.com/2026/04/23/technology/meta-layoffs.html
+
+**OpenAI Unveils Its New, More Powerful Model**\
+`The maker of ChatGPT is taking a more open approach to cybersecurity than its chief rival, Anthropic.`\
+https://www.nytimes.com/2026/04/23/technology/openai-new-model.html
+
+**6 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/04/23/books/review/new-recommended-books.html
+
 **The Actress Greta Lee Walked Down the Aisle to This Song**\
 `For T Magazine’s video series “My Favorite Song,” the actress Greta Lee reveals the Beck song that played while she walked down the aisle at her wedding.`\
 https://www.nytimes.com/video/t-magazine/100000010857422/the-actress-greta-lee-walked-down-the-aisle-to-this-song.html
