@@ -1,3 +1,15 @@
+**What Is YouTube’s Dominance Doing to Us? We Asked Its C.E.O.**\
+`YouTube’s chief executive, Neal Mohan, has led the company since 2023. He talks about overseeing the platform’s rapid growth.`\
+https://www.nytimes.com/video/podcasts/100000010805137/what-is-youtubes-dominance-doing-to-us-we-asked-its-ceo.html
+
+**French Fries: Fully Loaded**\
+`Fries are perfectly good on their own, but they’re even better with toppings. Here are three places to get yours loaded.`\
+https://www.nytimes.com/2026/04/23/dining/french-fries-fully-loaded.html
+
+**Met Opera’s Multimillion-Dollar Deal With Saudis Falls Through**\
+`The arrangement would have brought up to $200 million to the Metropolitan Opera, which has suffered a series of financial setbacks.`\
+https://www.nytimes.com/2026/04/23/arts/music/met-opera-saudi-deal-funding.html
+
 **Justice Dept. Watchdog Begins Review of Release of Epstein Files**\
 `The department’s inspector general said it would audit the release of millions of pages of files to determine whether the agency had followed the law.`\
 https://www.nytimes.com/2026/04/23/us/politics/epstein-files-release-doj-watchdog.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/23/world/africa/tanzania-election-violence-repor
 **A Deadly Crash Is a Reminder of the Depth of U.S. Security Ties in Mexico**\
 `The deaths of two C.I.A. officers in a crash in northern Mexico sparked questions about authorization and sovereignty, but also reflected a longstanding, sensitive security partnership between the two countries.`\
 https://www.nytimes.com/2026/04/23/world/americas/mexico-crash-us-security-cia.html
-
-**Touring Africa, Pope Leo Raised His Voice, but Didn’t Like the Echo**\
-`On his recent trip abroad, Leo XIV made some of his most forthright comments since becoming pope last year, but grew uncomfortable at how that criticism was interpreted.`\
-https://www.nytimes.com/2026/04/23/world/europe/pope-leo-africa-trump.html
-
-**Robot Teachers? Teenagers Weigh In.**\
-`Students react to a recent article about the first lady, Melania Trump, promoting the use of “humanoid educators” to teach children.`\
-https://www.nytimes.com/2026/04/23/learning/robot-teachers-teenagers-weigh-in.html
-
-**Read the Preliminary Report on the LaGuardia Crash**\
-`The National Transportation Safety Board has released a preliminary report on its investigation into the fatal collision between an Air Canada regional jet and a fire truck on a runway at LaGuardia Airport in March.`\
-https://www.nytimes.com/interactive/2026/04/23/nyregion/laguardia-crash-NTSB-report.html
 
