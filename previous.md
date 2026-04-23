@@ -1,3 +1,7 @@
+**House Republicans, Investigating ActBlue, Ask Its C.E.O. to Testify**\
+`The request is a significant escalation of G.O.P. pressure on the liberal fund-raising organization over its vetting of donations.`\
+https://www.nytimes.com/2026/04/23/us/politics/actblue-republicans-regina-wallace-jones.html
+
 **Investors Fret Over Tesla’s $25 Billion A.I. Bet**\
 `Elon Musk’s electric vehicle company said that it needs to spend big on artificial intelligence and robots. Wall Street is worried about the bill.`\
 https://www.nytimes.com/2026/04/23/business/dealbook/tesla-musk-ai-bet.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/04/23/realestate/bay-area-oakland-berke
 **Anne Hathaway, Queen of Effort, Is Finally Ready to Vibe**\
 `Known best for tightly wound characters in generational hit films, the actress is a tortured pop star in “Mother Mary” and returns to playful form in “The Devil Wears Prada 2.”`\
 https://www.nytimes.com/2026/04/23/movies/anne-hathaway-interview-popcast.html
-
-**Tim Cook: Great for Apple Investors. Not as Great for America.**\
-`Tim Cook made Apple a juggernaut, but he did so by risking America’s economic and political security.`\
-https://www.nytimes.com/2026/04/23/opinion/apple-tim-cook-outsourcing-china.html
 

@@ -1,3 +1,7 @@
+**House Republicans, Investigating ActBlue, Ask Its C.E.O. to Testify**\
+`The request is a significant escalation of G.O.P. pressure on the liberal fund-raising organization over its vetting of donations.`\
+https://www.nytimes.com/2026/04/23/us/politics/actblue-republicans-regina-wallace-jones.html
+
 **Investors Fret Over Tesla’s $25 Billion A.I. Bet**\
 `Elon Musk’s electric vehicle company said that it needs to spend big on artificial intelligence and robots. Wall Street is worried about the bill.`\
 https://www.nytimes.com/2026/04/23/business/dealbook/tesla-musk-ai-bet.html
