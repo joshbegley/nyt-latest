@@ -1,3 +1,7 @@
+**‘Beaches’ Review: A Classic Weepie Dries Its Tears**\
+`A new musical version of the 1980s tear-jerker comes to Broadway, but the production is too muddled to make an emotional impact.`\
+https://www.nytimes.com/2026/04/22/theater/beaches-review-broadway.html
+
 **Ring Combo**\
 `Zhou Zhang and Kevin Curry’s second collaboration is a family affair.`\
 https://www.nytimes.com/2026/04/22/crosswords/daily-puzzle-2026-04-23.html
