@@ -1,3 +1,27 @@
+**Ticketmaster’s Big Loss in Court**\
+`After years of scrutiny and complaints, Live Nation, the concert giant that includes Ticketmaster, has been found to be a monopoly.`\
+https://www.nytimes.com/2026/04/23/podcasts/the-daily/ticketmaster-live-nation-trial.html
+
+**Who Is Running Iran, and How Doctors Cashed In on a Consumer Protection Law**\
+`Plus, the Labubus linked to forced labor.`\
+https://www.nytimes.com/2026/04/23/podcasts/the-headlines/iran-breast-reductions.html
+
+**Connections Companion No. 1,048**\
+`Scroll down for hints and conversation about the puzzle for day, April 24, 2026.`\
+https://www.nytimes.com/2026/04/23/crosswords/connections-companion-1048.html
+
+**Strands Sidekick No. 782**\
+`Scroll down for hints and conversation about the puzzle for Friday, April 24, 2026.`\
+https://www.nytimes.com/2026/04/23/crosswords/strands-sidekick-782.html
+
+**Wordle Review No. 1,770**\
+`Scroll down for hints and conversation about the puzzle for Friday, April 24, 2026.`\
+https://www.nytimes.com/2026/04/23/crosswords/wordle-review-1770.html
+
+**‘Celebrity Jeopardy!’ Film Study: Share & Buzz & Tell with Mina Kimes and Timothy Simons**\
+`Pablo, Mina and Timothy take “Celebrity Jeopardy! All-Stars” 2026 game tape very seriously.`\
+https://www.nytimes.com/2026/04/23/podcasts/celebrity-jeopardy-film-study-share-buzz-tell-with-mina-kimes-and-timothy-simons.html
+
 **After U.S. Aid Fell by 99%, E.U. Pledges $106 Billion Loan to Ukraine**\
 `Unlike previous European assistance packages, the latest one is heavily weighted toward military spending, reflecting a view that the war is far from over.`\
 https://www.nytimes.com/2026/04/23/world/europe/eu-loan-ukraine.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/04/23/realestate/brooklyn-heights-historic-house.ht
 **Mamdani Considers Delaying Pension-Fund Payments to Ease Budget Gap**\
 `With New York City facing a multibillion-dollar deficit, Mayor Zohran Mamdani is exploring ways to delay the city’s payments to municipal pension funds.`\
 https://www.nytimes.com/2026/04/23/nyregion/mamdani-pension-funds.html
-
-**Does ‘The Drama’ Know Zendaya Is Black?**\
-`Seriously though. Does it?`\
-https://www.nytimes.com/2026/04/23/podcasts/cannonball-zendaya-interracial-relationships.html
-
-**Does ‘The Drama’ Know Zendaya is Black?**\
-`Wesley Morris and Gina Cherelus, the New York Times Styles reporter, exchange thoughts on “The Drama” and its misuse of Zendaya.`\
-https://www.nytimes.com/video/podcasts/100000010857679/does-the-drama-know-zendaya-is-black.html
-
-**A New Era and New Leadership: The Generals Who Are Running Iran**\
-`The killing of Ayatollah Ali Khamenei ushered in a new form of collective leadership in the country, with more power for the Revolutionary Guards.`\
-https://www.nytimes.com/2026/04/23/world/middleeast/iran-new-leadership-generals.html
-
-**Two Brothers, One Art Gallery, Infinite Feuds**\
-`For a decade and a half, Prajit and Projjal Dutta have led the market for South Asian art in the United States. Now they rarely speak to each other, except through lawyers.`\
-https://www.nytimes.com/2026/04/23/style/aicon-art-gallery-dutta-prajit-projjal-nyc.html
-
-**How Bobby Pulido Could Bring Texas Latinos Back to the Democrats**\
-`Big parts of the Rio Grande Valley turned against the party in recent years. One candidate is trying to win it back, one quinceañera at a time.`\
-https://www.nytimes.com/2026/04/23/opinion/bobby-pulido-texas-latinos-democrats.html
-
-**Why Diesel Has Become a Much Bigger Economic Problem Than Gasoline**\
-`The war in Iran has disrupted supplies of diesel, used to power trucks and heavy equipment, much more than gasoline, which is primarily used in passenger cars.`\
-https://www.nytimes.com/2026/04/23/business/energy-environment/iran-war-diesel-prices-gasoline.html
 
