@@ -1,3 +1,15 @@
+**Ex-Police Officer Planned Mass Shooting in New Orleans, Officials Say**\
+`Christopher Gillum had targeted a large festival there, the authorities said. He was arrested on Wednesday in a Florida hotel room before he could carry out his plans.`\
+https://www.nytimes.com/2026/04/23/us/mass-shooting-arrest-new-orleans-festival.html
+
+**How ‘Will You Be My Bridesmaid?’ Became a Loaded Question**\
+`Ruhama Wolle, the author of “I Hope You Elope: A Bridesmaid Survival Guide,” sits down with the “Modern Love” host Anna Martin to discuss the bridesmaid dynamics that made her call it quits and tips for navigating the ask with authenticity.`\
+https://www.nytimes.com/video/podcasts/100000010859983/how-will-you-be-my-bridesmaid-became-a-loaded-question.html
+
+**Maps Show Smoke From Georgia Wildfires Spreading Across the Southeast**\
+`The smoke has spread to nearby states. Here’s how to track its path and its effect on nearby air quality.`\
+https://www.nytimes.com/2026/04/23/weather/georgia-fires-sc-nc-alabama-air-quality-smoke.html
+
 **Trump’s Dreams for a Battleship Led to His Navy Secretary’s Ouster**\
 `The Navy secretary, John Phelan, was supposed to deliver the first of the president’s ships by 2028. The timeline was nearly impossible.`\
 https://www.nytimes.com/2026/04/23/us/politics/trump-navy-secretary.html
@@ -52,7 +64,7 @@ https://www.nytimes.com/2026/04/23/world/middleeast/lebanese-journalist-amal-kha
 
 **Darrell Sheets, Auction Bidder Who Starred on ‘Storage Wars,’ Dies at 67**\
 `He appeared in 13 seasons of the long-running reality television show about storage-unit auctions. He later opened an antique shop in Arizona.`\
-https://www.nytimes.com/2026/04/23/world/asia/darrell-sheets-storage-wars-dead.html
+https://www.nytimes.com/2026/04/23/arts/television/darrell-sheets-storage-wars-dead.html
 
 **Anne Hathaway Knows Her ‘Mother’ Era Won’t Last Forever**\
 `With five movies dropping in 2026, Anne Hathaway is about to be everywhere. On “Popcast,” the actress discusses the plot twist of receiving online adoration and what it’s like to make it to the other side of internet backlash.`\
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/23/climate/supreme-court-climate-shadow-docket.h
 **Trump Talks on Sending Afghans to Congo Draw Bipartisan Ire**\
 `Lawmakers in both parties said President Trump should continue allowing Afghans who worked alongside American troops to settle safely in the United States.`\
 https://www.nytimes.com/2026/04/23/us/politics/trump-afghans-congo-refugees.html
-
-**Communication Failures Played Role in Deadly Crash at LaGuardia, N.T.S.B. Says**\
-`The report focuses on the lack of transponders in the fire trucks, which investigators suggested could have allowed an automatic warning system to alert the controller of an imminent collision.`\
-https://www.nytimes.com/2026/04/23/nyregion/laguardia-crash-ntsb-report.html
-
-**Disapproval of Trump Hits Highest Level of His Second Term**\
-`The president’s weakening poll numbers come as the war in Iran has driven up gas prices, and more Americans are expressing concerns about the economy.`\
-https://www.nytimes.com/2026/04/23/us/politics/trump-approval-rating-poll.html
-
-**Map: 4.0-Magnitude Earthquake Shakes Southeastern Missouri**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/04/23/us/earthquake-missouri-memphis-tennessee.html
 
