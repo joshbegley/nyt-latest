@@ -1,3 +1,11 @@
+**Congress May Finally Recognize That Mobile Homes Aren’t Really That Mobile**\
+`An obscure federal rule requires manufactured homes to be built on a chassis, making them more costly. A bill in Congress would remove the mandate, enacted five decades ago.`\
+https://www.nytimes.com/2026/04/23/business/manufactured-homes-chassis.html
+
+**Duterte to Stand Trial for Crimes Against Humanity at I.C.C.**\
+`The International Criminal Court found there was enough evidence to try Rodrigo Duterte, the former Philippine president, for killings carried out during his crackdown on drugs.`\
+https://www.nytimes.com/2026/04/23/world/asia/duterte-icc-trial-drug-war.html
+
 **A New Bureau Will Oversee Both Offshore Drilling and Seabed Mining**\
 `The new federal office will undo a change made after the 2010 Deepwater Horizon oil disaster. Critics say it could reduce environmental oversight.`\
 https://www.nytimes.com/2026/04/23/climate/seabed-mining-interior-department.html
@@ -65,8 +73,4 @@ https://www.nytimes.com/2026/04/23/world/middleeast/karex-condom-price-increase-
 **He Was Exonerated in a Murder and Elected to Office. He May Never Serve.**\
 `Calvin Duncan, who became a lawyer and an advocate for incarcerated people, was recently elected criminal court clerk in New Orleans. Lawmakers are racing to eliminate the role.`\
 https://www.nytimes.com/2026/04/23/us/calvin-duncan-new-orleans-election.html
-
-**Una nueva era y el nuevo liderazgo en Irán**\
-`En los ataques de EE. UU. e Israel, Irán perdió a sus principales líderes. Hoy, el poder real está en manos de los generales de la Guardia Revolucionaria.`\
-https://www.nytimes.com/es/2026/04/23/espanol/mundo/nuevos-lideres-iran.html
 

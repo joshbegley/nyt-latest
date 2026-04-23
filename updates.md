@@ -1,3 +1,7 @@
+**A New Bureau Will Oversee Both Offshore Drilling and Seabed Mining**\
+`The new federal office will undo a change made after the 2010 Deepwater Horizon oil disaster. Critics say it could reduce environmental oversight.`\
+https://www.nytimes.com/2026/04/23/climate/seabed-mining-interior-department.html
+
 **Bones of 3 Children Found in Woods May Have Been There for Years**\
 `The Memphis police chief said a chance discovery led investigators to more than a dozen bones belonging to three children between the ages of 3 and 7.`\
 https://www.nytimes.com/2026/04/23/us/children-remains-memphis-woods-investigation.html
