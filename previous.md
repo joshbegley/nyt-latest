@@ -1,3 +1,15 @@
+**Pentagon Fires Navy Secretary**\
+`Navy Secretary John Phelan was fired on Wednesday after months of infighting with senior Pentagon leaders. He championed a major investment in new ships, including a “Trump-class” battleship.`\
+https://www.nytimes.com/video/us/100000010858340/navy-secretary-john-phelan-fired.html
+
+**My Years Capturing the Global Fight for Democracy**\
+`Scenes from life in a global era increasingly shaped by confrontations with authoritarian power.`\
+https://www.nytimes.com/2026/04/23/opinion/matthew-connors-photos-protest-authoritarianism.html
+
+**Para trabajar más músculos en menos tiempo, combina movimientos**\
+`Los ejercicios combinados pueden ayudarte a ejercitar todo el cuerpo rápidamente.`\
+https://www.nytimes.com/es/2026/04/23/espanol/estilos-de-vida/-trabajar-mas-musculos-menos-tiempo.html
+
 **Senate Plunges Into Vote Marathon as G.O.P. Advances ICE Funding Boost**\
 `Republicans pressed to pass a budget plan with a $70 billion increase for immigration enforcement. But first, in an overnight session, they beat back Democratic proposals aimed at lowering costs.`\
 https://www.nytimes.com/2026/04/23/us/politics/senate-plunges-into-vote-marathon-as-gop-advances-ice-funding-boost.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/22/us/politics/trump-settles-carter-page-lawsuit
 **Weather Service Survey Confirms Three Rare Tornadoes in Central California**\
 `Tornadoes are uncommon in the state, but a storm system caused three near Fresno on Tuesday.`\
 https://www.nytimes.com/2026/04/22/weather/fresno-california-tornadoes.html
-
-**How ‘Yes’ Won a Narrow Victory in Virginia’s Redistricting Battle**\
-`Northern Virginia carried the measure to victory even as turnout in Democratic areas lagged and nearly all of the state shifted right from last year’s governor’s race.`\
-https://www.nytimes.com/2026/04/22/us/elections/virginia-redistricting-voter-data-election.html
-
-**Olivia Rodrigo Is Falling, Hard**\
-`Is Olivia Rodrigo’s new single a lovelorn head fake? Our critic Jon Caramanica explains how “Drop Dead” captures the first-blush rush of falling for someone – and why he suspects that feeling may not last.`\
-https://www.nytimes.com/video/podcasts/100000010855591/olivia-rodrigo-is-falling-hard.html
-
-**Kalshi Fines and Suspends 3 Political Candidates for Betting on Their Races**\
-`The prediction market said the candidates violated new rules. The platform and its competitors face growing scrutiny from lawmakers and regulators over how political betting is policed.`\
-https://www.nytimes.com/2026/04/22/us/kalshi-suspends-politicians-trading-elections.html
 

@@ -1,3 +1,15 @@
+**Pentagon Fires Navy Secretary**\
+`Navy Secretary John Phelan was fired on Wednesday after months of infighting with senior Pentagon leaders. He championed a major investment in new ships, including a “Trump-class” battleship.`\
+https://www.nytimes.com/video/us/100000010858340/navy-secretary-john-phelan-fired.html
+
+**My Years Capturing the Global Fight for Democracy**\
+`Scenes from life in a global era increasingly shaped by confrontations with authoritarian power.`\
+https://www.nytimes.com/2026/04/23/opinion/matthew-connors-photos-protest-authoritarianism.html
+
+**Para trabajar más músculos en menos tiempo, combina movimientos**\
+`Los ejercicios combinados pueden ayudarte a ejercitar todo el cuerpo rápidamente.`\
+https://www.nytimes.com/es/2026/04/23/espanol/estilos-de-vida/-trabajar-mas-musculos-menos-tiempo.html
+
 **Senate Plunges Into Vote Marathon as G.O.P. Advances ICE Funding Boost**\
 `Republicans pressed to pass a budget plan with a $70 billion increase for immigration enforcement. But first, in an overnight session, they beat back Democratic proposals aimed at lowering costs.`\
 https://www.nytimes.com/2026/04/23/us/politics/senate-plunges-into-vote-marathon-as-gop-advances-ice-funding-boost.html
