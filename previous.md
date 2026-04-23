@@ -1,3 +1,11 @@
+**The Poetry Challenge Day 4: Are we alone in the universe? Does it matter?**\
+`Writers have been pondering the sky for centuries, but this poem helps us feel a little less solitary. Brush up on its last lines today, and tomorrow we’ll talk about the whole thing.`\
+https://www.nytimes.com/interactive/2026/books/wh-auden-poetry-challenge-stars.html
+
+**Perfect Planters for Any Patio or Sunlit Room**\
+`When it comes to freshening up a space, these pots pull their weight.`\
+https://www.nytimes.com/2026/04/22/t-magazine/indoor-planters-pots.html
+
 **Israeli Strikes Kill a Journalist and Injure Another in Lebanon**\
 `Lebanese officials say rescue teams came under fire while trying to aid Amal Khalil, a reporter for a Lebanese newspaper, and Zeinab Faraj, a photojournalist.`\
 https://www.nytimes.com/2026/04/22/world/middleeast/journalist-killed-israel-lebanon-strikes.html
@@ -34,8 +42,8 @@ https://www.nytimes.com/2026/04/22/us/politics/king-charles-epstein-victims.html
 `Teresa Peroni, 27, was last seen on July 4, 1983, in Selma, Ore. Marcus Sanfratello, the man seen with her that day, pleaded guilty to first-degree manslaughter after his arrest last year.`\
 https://www.nytimes.com/2026/04/22/us/oregon-murder-sentenced-prison.html
 
-**Navy Secretary Is Fired Amid Pentagon Infighting**\
-`John Phelan is leaving the Pentagon and the Trump administration after months of infighting with senior Pentagon leaders.`\
+**Navy Secretary Is Fired as Infighting Roils Pentagon**\
+`John Phelan is leaving the Pentagon after months of tension with Pete Hegseth and other Pentagon leaders. The tumult comes as the Navy has been engaged in war with Iran.`\
 https://www.nytimes.com/2026/04/22/us/politics/navy-secretary-john-phelan.html
 
 **Ice Sculpture Promoting Drake Album Melted by Fire Crews**\
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/22/arts/music/sean-combs-defamation-lawsuit-nbc-
 **Iran Says It Seized Two Ships**\
 `Also, China quietly builds an island in disputed waters. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/04/22/briefing/iran-says-it-seized-two-ships.html
-
-**Hundreds of Mothballs Spread on Florida Beach, Wildlife Officials Say**\
-`The mothballs, which are toxic to wildlife, appeared on St. Pete Beach this week, according to the state’s Fish and Wildlife Conservation Commission. Officials are investigating the episode.`\
-https://www.nytimes.com/2026/04/22/us/mothballs-florida-st-pete-beach.html
-
-**Man Arrested in Florida 33 Years After Double Murder in the Bronx**\
-`Police had recovered fingerprints after the murders in 1993, which took place while the victims’ child was in the next room. But they identified William Antonio Solis as a suspect only last year.`\
-https://www.nytimes.com/2026/04/22/nyregion/arrest-double-murder-bronx-1993.html
 

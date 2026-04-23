@@ -1,3 +1,15 @@
+**The Poetry Challenge Day 4: Are we alone in the universe? Does it matter?**\
+`Writers have been pondering the sky for centuries, but this poem helps us feel a little less solitary. Brush up on its last lines today, and tomorrow we’ll talk about the whole thing.`\
+https://www.nytimes.com/interactive/2026/books/wh-auden-poetry-challenge-stars.html
+
+**Perfect Planters for Any Patio or Sunlit Room**\
+`When it comes to freshening up a space, these pots pull their weight.`\
+https://www.nytimes.com/2026/04/22/t-magazine/indoor-planters-pots.html
+
+**Navy Secretary Is Fired as Infighting Roils Pentagon**\
+`John Phelan is leaving the Pentagon after months of tension with Pete Hegseth and other Pentagon leaders. The tumult comes as the Navy has been engaged in war with Iran.`\
+https://www.nytimes.com/2026/04/22/us/politics/navy-secretary-john-phelan.html
+
 **Israeli Strikes Kill a Journalist and Injure Another in Lebanon**\
 `Lebanese officials say rescue teams came under fire while trying to aid Amal Khalil, a reporter for a Lebanese newspaper, and Zeinab Faraj, a photojournalist.`\
 https://www.nytimes.com/2026/04/22/world/middleeast/journalist-killed-israel-lebanon-strikes.html
