@@ -1,3 +1,7 @@
+**Read the Preliminary Report on the LaGuardia Crash**\
+`The National Transportation Safety Board has released a preliminary report on its investigation into the fatal collision between an Air Canada regional jet and a fire truck on a runway at LaGuardia Airport in March.`\
+https://www.nytimes.com/interactive/2026/04/23/nyregion/laguardia-crash-NTSB-report.html
+
 **Top Condom Producer to Increase Prices Due to War in Iran**\
 `The world’s top condom maker is raising prices of its products by up to 30 percent, warning that shortages of raw materials and chemicals because of the war in Iran could disrupt production.`\
 https://www.nytimes.com/video/world/asia/100000010858682/iran-war-condom-prices-increase.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/2026/04/23/sports/soccer/italy-world-cup-iran-replacemen
 `The treatment, the first of its kind, was approved by the Food and Drug Administration on Thursday. “Our baby was born deaf, and now he can hear,” said one parent.`\
 https://www.nytimes.com/2026/04/23/science/deaf-gene-therapy.html
 
-**Meta to Cut 10 Percent of Work Force**\
+**Meta to Cut 10 Percent of Work Force in A.I. Push**\
 `The layoffs affect about 8,000 employees, with Meta also planning to close 6,000 open roles, as the company focuses on artificial intelligence.`\
 https://www.nytimes.com/2026/04/23/technology/meta-layoffs.html
 
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/04/23/world/middleeast/kuwait-journalist-acquitted.
 **Ruth Slenczynska, 101, Dies; Piano Prodigy Overcame Father’s Abuse**\
 `Treated brutally, she went from celebrated child star to 15-year-old “burned-out candle.” Against the odds, she later resumed performing.`\
 https://www.nytimes.com/2026/04/23/arts/music/ruth-slenczynska-dead.html
-
-**Elon Musk and Sam Altman’s Epic Fight Heads to Court**\
-`A jury trial that is set to start on Monday could shift the course of the A.I. race, with Mr. Musk seeking billions of dollars in damages from Mr. Altman’s OpenAI.`\
-https://www.nytimes.com/2026/04/23/technology/elon-musk-sam-altman-openai-trial.html
 

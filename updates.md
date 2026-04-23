@@ -1,3 +1,11 @@
+**Read the Preliminary Report on the LaGuardia Crash**\
+`The National Transportation Safety Board has released a preliminary report on its investigation into the fatal collision between an Air Canada regional jet and a fire truck on a runway at LaGuardia Airport in March.`\
+https://www.nytimes.com/interactive/2026/04/23/nyregion/laguardia-crash-NTSB-report.html
+
+**Meta to Cut 10 Percent of Work Force in A.I. Push**\
+`The layoffs affect about 8,000 employees, with Meta also planning to close 6,000 open roles, as the company focuses on artificial intelligence.`\
+https://www.nytimes.com/2026/04/23/technology/meta-layoffs.html
+
 **Top Condom Producer to Increase Prices Due to War in Iran**\
 `The world’s top condom maker is raising prices of its products by up to 30 percent, warning that shortages of raw materials and chemicals because of the war in Iran could disrupt production.`\
 https://www.nytimes.com/video/world/asia/100000010858682/iran-war-condom-prices-increase.html

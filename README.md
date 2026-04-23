@@ -1,3 +1,7 @@
+**Robot Teachers? Teenagers Weigh In.**\
+`Students react to a recent article about the first lady, Melania Trump, promoting the use of “humanoid educators” to teach children.`\
+https://www.nytimes.com/2026/04/23/learning/robot-teachers-teenagers-weigh-in.html
+
 **Read the Preliminary Report on the LaGuardia Crash**\
 `The National Transportation Safety Board has released a preliminary report on its investigation into the fatal collision between an Air Canada regional jet and a fire truck on a runway at LaGuardia Airport in March.`\
 https://www.nytimes.com/interactive/2026/04/23/nyregion/laguardia-crash-NTSB-report.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/04/23/world/asia/afghans-qatar-refugees-congo.html
 **Journalist Detained in Kuwait After Posting About Iran War Is Acquitted**\
 `Ahmed Shihab-Eldin, a Kuwaiti-American journalist, is expected to be released soon, after 52 days in detention, a lawyer for two of his family members said.`\
 https://www.nytimes.com/2026/04/23/world/middleeast/kuwait-journalist-acquitted.html
-
-**Ruth Slenczynska, 101, Dies; Piano Prodigy Overcame Father’s Abuse**\
-`Treated brutally, she went from celebrated child star to 15-year-old “burned-out candle.” Against the odds, she later resumed performing.`\
-https://www.nytimes.com/2026/04/23/arts/music/ruth-slenczynska-dead.html
 
