@@ -1,3 +1,11 @@
+**‘Apex’ Review: Predator and Prey**\
+`Taron Egerton descends into full-tilt madness as a killer hunting Charlize Theron in this Netflix thriller set in southeastern Australia.`\
+https://www.nytimes.com/2026/04/23/movies/apex-review.html
+
+**The Small Changes You’ve Made for Better Health**\
+`We asked. Over 800 of you answered.`\
+https://www.nytimes.com/2026/04/23/well/small-changes-for-better-health.html
+
 **EE. UU. busca revocar la ciudadanía de 384 personas**\
 `El gobierno de Trump está asignando casos de desnaturalización a fiscales ordinarios, lo que podría provocar una oleada de personas que serían despojadas de la ciudadanía estadounidense.`\
 https://www.nytimes.com/es/2026/04/23/espanol/estados-unidos/trump-revocar-ciudadania.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/23/world/europe/russian-tanker-mediterranean.htm
 **Israeli Strikes Kill Journalist in Southern Lebanon**\
 `Amal Khalil, a journalist for the Lebanese newspaper Al-Akhbar, was killed and a photojournalist, Zeinab Faraj, was injured in Israeli strikes in the town of Tayri. Rescue crews also came under fire while attempting to aid the journalists, Lebanese officials said.`\
 https://www.nytimes.com/video/world/middleeast/100000010858857/israel-lebanon-journalist-killed-amal-khalil.html
-
-**Ex-Police Officer Planned Mass Shooting in New Orleans, Officials Say**\
-`Christopher Gillum had targeted a large festival there, the authorities said. He was arrested on Wednesday in a Florida hotel room before he could carry out his plans.`\
-https://www.nytimes.com/2026/04/23/us/mass-shooting-arrest-new-orleans-festival.html
-
-**How ‘Will You Be My Bridesmaid?’ Became a Loaded Question**\
-`Ruhama Wolle, the author of “I Hope You Elope: A Bridesmaid Survival Guide,” sits down with the “Modern Love” host Anna Martin to discuss the bridesmaid dynamics that made her call it quits and tips for navigating the ask with authenticity.`\
-https://www.nytimes.com/video/podcasts/100000010859983/how-will-you-be-my-bridesmaid-became-a-loaded-question.html
 

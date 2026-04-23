@@ -1,3 +1,11 @@
+**‘Apex’ Review: Predator and Prey**\
+`Taron Egerton descends into full-tilt madness as a killer hunting Charlize Theron in this Netflix thriller set in southeastern Australia.`\
+https://www.nytimes.com/2026/04/23/movies/apex-review.html
+
+**The Small Changes You’ve Made for Better Health**\
+`We asked. Over 800 of you answered.`\
+https://www.nytimes.com/2026/04/23/well/small-changes-for-better-health.html
+
 **EE. UU. busca revocar la ciudadanía de 384 personas**\
 `El gobierno de Trump está asignando casos de desnaturalización a fiscales ordinarios, lo que podría provocar una oleada de personas que serían despojadas de la ciudadanía estadounidense.`\
 https://www.nytimes.com/es/2026/04/23/espanol/estados-unidos/trump-revocar-ciudadania.html
