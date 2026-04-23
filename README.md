@@ -1,3 +1,7 @@
+**Mississippi U.S. Senate Election 2026: Latest Polls**\
+`Track the latest polls in the Mississippi U.S. Senate election.`\
+https://www.nytimes.com/interactive/polls/mississippi-us-senate-election-polls-2026.html
+
 **Kansas U.S. Senate Election 2026: Latest Polls**\
 `Track the latest polls in the Kansas U.S. Senate election.`\
 https://www.nytimes.com/interactive/polls/kansas-us-senate-election-polls-2026.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/23/podcasts/the-daily/ticketmaster-live-nation-t
 **Who Is Running Iran, and How Doctors Cashed In on a Consumer Protection Law**\
 `Plus, the Labubus linked to forced labor.`\
 https://www.nytimes.com/2026/04/23/podcasts/the-headlines/iran-breast-reductions.html
-
-**Connections Companion No. 1,048**\
-`Scroll down for hints and conversation about the puzzle for day, April 24, 2026.`\
-https://www.nytimes.com/2026/04/23/crosswords/connections-companion-1048.html
 

@@ -1,3 +1,15 @@
+**Kansas U.S. Senate Election 2026: Latest Polls**\
+`Track the latest polls in the Kansas U.S. Senate election.`\
+https://www.nytimes.com/interactive/polls/kansas-us-senate-election-polls-2026.html
+
+**After a Hero’s Fall, What to Do With the Art That Honored Him?**\
+`Artists who created public depictions of the civil rights icon Cesar Chavez have had revisit their works after revelations emerged of Mr. Chavez’s sexual abuse of girls in the movement.`\
+https://www.nytimes.com/2026/04/23/us/cesar-chavez-art-changes.html
+
+**U.S. forces stop a second tanker they say is carrying Iranian oil.**\
+``\
+https://www.nytimes.com/2026/04/23/world/middleeast/oil-tanker-iran-us-indian-ocean-mt-majestic-x.html
+
 **Iowa Governor Election 2026: Latest Polls**\
 `Track the latest polls in the Iowa governor election.`\
 https://www.nytimes.com/interactive/polls/iowa-governor-election-polls-2026.html
