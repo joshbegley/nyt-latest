@@ -1,3 +1,7 @@
+**Trump Officials Investigate N.Y.C. Schools Over Pro-Palestinian Group**\
+`The federal Department of Education said it would begin a civil rights investigation, reviewing teachings by a group known as N.Y.C. Educators for Palestine.`\
+https://www.nytimes.com/2026/04/23/nyregion/nyc-schools-trump-civil-rights-investigation.html
+
 **‘Apex’ Review: Predator and Prey**\
 `Taron Egerton descends into full-tilt madness as a killer hunting Charlize Theron in this Netflix thriller set in southeastern Australia.`\
 https://www.nytimes.com/2026/04/23/movies/apex-review.html

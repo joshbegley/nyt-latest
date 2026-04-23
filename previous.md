@@ -1,3 +1,7 @@
+**Trump Officials Investigate N.Y.C. Schools Over Pro-Palestinian Group**\
+`The federal Department of Education said it would begin a civil rights investigation, reviewing teachings by a group known as N.Y.C. Educators for Palestine.`\
+https://www.nytimes.com/2026/04/23/nyregion/nyc-schools-trump-civil-rights-investigation.html
+
 **‘Apex’ Review: Predator and Prey**\
 `Taron Egerton descends into full-tilt madness as a killer hunting Charlize Theron in this Netflix thriller set in southeastern Australia.`\
 https://www.nytimes.com/2026/04/23/movies/apex-review.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/23/world/iran-guards-military-israel-lebanon.htm
 **Rescue Effort for Russian Tanker Fails, in a New Era of Maritime Peril**\
 `The ship, which carried fuel and natural gas, has been adrift for weeks in the Mediterranean Sea after a drone attack, alarming officials who fear an environmental disaster.`\
 https://www.nytimes.com/2026/04/23/world/europe/russian-tanker-mediterranean.html
-
-**Israeli Strikes Kill Journalist in Southern Lebanon**\
-`Amal Khalil, a journalist for the Lebanese newspaper Al-Akhbar, was killed and a photojournalist, Zeinab Faraj, was injured in Israeli strikes in the town of Tayri. Rescue crews also came under fire while attempting to aid the journalists, Lebanese officials said.`\
-https://www.nytimes.com/video/world/middleeast/100000010858857/israel-lebanon-journalist-killed-amal-khalil.html
 
