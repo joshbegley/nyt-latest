@@ -1,3 +1,15 @@
+**Justice Dept. Targets Hundreds of Citizens in New Push for Denaturalization**\
+`The Trump administration is assigning denaturalization cases to regular prosecutors, which could lead to a surge of people stripped of U.S. citizenship.`\
+https://www.nytimes.com/2026/04/23/us/politics/justice-dept-citizens-denaturalization.html
+
+**What Questions Do You Have About the Trump-Xi Summit?**\
+`“Ask a Correspondent” will take your questions to David Pierson, who covers China’s foreign policy for The Times.`\
+https://www.nytimes.com/2026/04/23/world/trump-xi-china-reader-callout.html
+
+**China Publishes Maps Detailing Minerals on the Ocean Floor**\
+`The new deep-sea atlas underscores Beijing’s interest in ocean mining, its military ambitions and its claims to disputed waters.`\
+https://www.nytimes.com/2026/04/23/climate/china-seabed-mining-maps-rare-earths.html
+
 **El secretario de la Marina de EE. UU. es despedido en medio de luchas internas en el Pentágono**\
 `John Phelan deja el Pentágono tras meses de tensiones con Pete Hegseth y otros dirigentes de la institución.`\
 https://www.nytimes.com/es/2026/04/23/espanol/estados-unidos/secretario-marina-despedido.html
