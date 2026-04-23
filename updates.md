@@ -1,3 +1,27 @@
+**Los precios de la energía aumentan en varios países por el acaparamiento**\
+`A medida que los países ricos se apresuran a asegurar reservas de petróleo, se produce un aumento de los precios para todos y escasez en los países vulnerables.`\
+https://www.nytimes.com/es/2026/04/23/espanol/negocios/precios-petroleo-guerra-estrecho.html
+
+**War in Iran Gives New Fuel to a Tax Debate in Australia**\
+`The world’s third-largest exporter of natural gas, Australia has been too lenient in taxing lucrative gas exports, many in the country argue.`\
+https://www.nytimes.com/2026/04/23/world/asia/iran-australia-natural-gas-tax.html
+
+**A Lost Tribe in India Makes Its Exodus to Israel**\
+`The B’nei Menashe believe they are the children of Manasseh, a king of Judah exiled about 2,800 years ago. Evidence is thin, but Israel is welcoming them ‘home.’`\
+https://www.nytimes.com/2026/04/23/world/asia/india-jewish-tribe-israel-bnei-menashe.html
+
+****\
+`Displaying the Torah during prayers.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010853466/00INT-india-losttribe-israel-10037.html
+
+**Corrections: April 23, 2026**\
+`Corrections that appeared in print on Thursday, April 23, 2026.`\
+https://www.nytimes.com/2026/04/23/pageoneplus/corrections-april-23-2026.html
+
+**Quote of the Day: In Virginia Redistricting Win, Democrats Play Hardball to Thwart Trump**\
+`Quotation of the Day for Thursday, April 23, 2026.`\
+https://www.nytimes.com/2026/04/22/pageoneplus/quote-of-the-day-in-virginia-redistricting-win-democrats-play-hardball-to-thwart-trump.html
+
 **‘Beaches’ Review: A Classic Weepie Dries Its Tears**\
 `A new musical version of the 1980s tear-jerker comes to Broadway, but the production is too muddled to make an emotional impact.`\
 https://www.nytimes.com/2026/04/22/theater/beaches-review-broadway.html
