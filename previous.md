@@ -1,3 +1,15 @@
+**The Japanese Designers Changing Men’s Wear**\
+`How a new vanguard of labels from Japan became the most-talked about thing in fashion.`\
+https://www.nytimes.com/interactive/2026/04/22/style/the-japanese-designers-changing-mens-wear.html
+
+**El FBI investiga a una periodista del Times, luego de publicar un artículo sobre la novia del director de esa agencia**\
+`El escrutinio de Elizabeth Williamson es un ejemplo de cómo el gobierno de Donald Trump examina la posibilidad de criminalizar prácticas rutinarias de recopilación de noticias que, en general, se consideran protegidas por la Primera Enmienda.`\
+https://www.nytimes.com/es/2026/04/22/espanol/estados-unidos/fbi-investiga-periodista-kash-patel.html
+
+**Combative, Defensive and Occasionally Contrite, Kennedy Walks a Fine Line**\
+`In four days of congressional testimony, the health secretary sought to please the White House and his MAHA base at the same time.`\
+https://www.nytimes.com/2026/04/22/us/politics/rfk-vaccines-measles-testimony.html
+
 **The Poetry Challenge Day 4: Are we alone in the universe? Does it matter?**\
 `Writers have been pondering the sky for centuries, but this poem helps us feel a little less solitary. Brush up on its last lines today, and tomorrow we’ll talk about the whole thing.`\
 https://www.nytimes.com/interactive/2026/books/wh-auden-poetry-challenge-stars.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/22/us/politics/rfk-jr-trump-impossible-drug-disc
 **How Kevin Warsh Is Distancing Himself From Trump**\
 `Lawmakers questioned the ability of Kevin Warsh, President Trump’s pick for Fed chair, to lead the central bank independently. Colby Smith explains how Mr. Warsh tried to distance himself from the president.`\
 https://www.nytimes.com/video/us/100000010854852/how-kevin-warsh-is-distancing-himself-from-trump.html
-
-**Alan Osmond, Who Led His Brothers in a Boy Band, Dies at 76**\
-`He was the eldest original member of the Osmonds, a family singing group that hit it big in the 1970s with songs like “One Bad Apple.”`\
-https://www.nytimes.com/2026/04/22/arts/music/alan-osmond-dead.html
-
-**Judge Dismisses Sean Combs’s $100 Million Defamation Suit Against NBC**\
-`The music mogul, now imprisoned, had sued after NBCUniversal’s streaming service, Peacock aired the documentary “Diddy: The Making of a Bad Boy” last year.`\
-https://www.nytimes.com/2026/04/22/arts/music/sean-combs-defamation-lawsuit-nbc-peacock.html
-
-**Iran Says It Seized Two Ships**\
-`Also, China quietly builds an island in disputed waters. Here’s the latest at the end of Wednesday.`\
-https://www.nytimes.com/2026/04/22/briefing/iran-says-it-seized-two-ships.html
 

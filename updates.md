@@ -1,3 +1,15 @@
+**The Japanese Designers Changing Men’s Wear**\
+`How a new vanguard of labels from Japan became the most-talked about thing in fashion.`\
+https://www.nytimes.com/interactive/2026/04/22/style/the-japanese-designers-changing-mens-wear.html
+
+**El FBI investiga a una periodista del Times, luego de publicar un artículo sobre la novia del director de esa agencia**\
+`El escrutinio de Elizabeth Williamson es un ejemplo de cómo el gobierno de Donald Trump examina la posibilidad de criminalizar prácticas rutinarias de recopilación de noticias que, en general, se consideran protegidas por la Primera Enmienda.`\
+https://www.nytimes.com/es/2026/04/22/espanol/estados-unidos/fbi-investiga-periodista-kash-patel.html
+
+**Combative, Defensive and Occasionally Contrite, Kennedy Walks a Fine Line**\
+`In four days of congressional testimony, the health secretary sought to please the White House and his MAHA base at the same time.`\
+https://www.nytimes.com/2026/04/22/us/politics/rfk-vaccines-measles-testimony.html
+
 **The Poetry Challenge Day 4: Are we alone in the universe? Does it matter?**\
 `Writers have been pondering the sky for centuries, but this poem helps us feel a little less solitary. Brush up on its last lines today, and tomorrow we’ll talk about the whole thing.`\
 https://www.nytimes.com/interactive/2026/books/wh-auden-poetry-challenge-stars.html
