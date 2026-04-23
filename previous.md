@@ -1,3 +1,15 @@
+**Tanzania Blames Outsiders and Government Foes for Election Violence**\
+`The findings in a new report by a commission appointed by the government were at odds with details from human rights groups, which estimate that hundreds and possibly thousands of people were killed.`\
+https://www.nytimes.com/2026/04/23/world/africa/tanzania-election-violence-report.html
+
+**A Deadly Crash Is a Reminder of the Depth of U.S. Security Ties in Mexico**\
+`The deaths of two C.I.A. officers in a crash in northern Mexico sparked questions about authorization and sovereignty, but also reflected a longstanding, sensitive security partnership between the two countries.`\
+https://www.nytimes.com/2026/04/23/world/americas/mexico-crash-us-security-cia.html
+
+**Touring Africa, Pope Leo Raised His Voice, but Didn’t Like the Echo**\
+`On his recent trip abroad, Leo XIV made some of his most forthright comments since becoming pope last year, but grew uncomfortable at how that criticism was interpreted.`\
+https://www.nytimes.com/2026/04/23/world/europe/pope-leo-africa-trump.html
+
 **Robot Teachers? Teenagers Weigh In.**\
 `Students react to a recent article about the first lady, Melania Trump, promoting the use of “humanoid educators” to teach children.`\
 https://www.nytimes.com/2026/04/23/learning/robot-teachers-teenagers-weigh-in.html
@@ -61,16 +73,4 @@ https://www.nytimes.com/2026/04/23/us/children-remains-memphis-woods-investigati
 **Mamdani Faces Pressure to Cancel $2 Billion Deal to Expand Hudson Yards**\
 `Related Companies struck a deal with Eric Adams to have New York City finance a costly platform to facilitate new housing. Mayor Zohran Mamdani said advancing the deal was not a priority.`\
 https://www.nytimes.com/2026/04/23/nyregion/hudson-yards-platform.html
-
-**Irán vuelve a endurecer su control sobre el estrecho de Ormuz**\
-`Aunque EE. UU. e Israel han dicho que su intención era acabar con el programa nuclear iraní y deponer a sus líderes, Teherán ha convertido la guerra en un conflicto del transporte marítimo.`\
-https://www.nytimes.com/es/2026/04/23/espanol/iran-ataques-estrecho-ormuz-petroleo.html
-
-**Afghans Who Helped U.S. Forces Say They’re Being Pushed Back to the Taliban**\
-`Once promised a move to the United States, Afghan refugees who helped U.S. forces say they face ‘bad or worse’ options: resettlement to Congo or returning home to live under the Taliban.`\
-https://www.nytimes.com/2026/04/23/world/asia/afghans-qatar-refugees-congo.html
-
-**Journalist Detained in Kuwait After Posting About Iran War Is Acquitted**\
-`Ahmed Shihab-Eldin, a Kuwaiti-American journalist, is expected to be released soon, after 52 days in detention, a lawyer for two of his family members said.`\
-https://www.nytimes.com/2026/04/23/world/middleeast/kuwait-journalist-acquitted.html
 

@@ -1,3 +1,15 @@
+**Tanzania Blames Outsiders and Government Foes for Election Violence**\
+`The findings in a new report by a commission appointed by the government were at odds with details from human rights groups, which estimate that hundreds and possibly thousands of people were killed.`\
+https://www.nytimes.com/2026/04/23/world/africa/tanzania-election-violence-report.html
+
+**A Deadly Crash Is a Reminder of the Depth of U.S. Security Ties in Mexico**\
+`The deaths of two C.I.A. officers in a crash in northern Mexico sparked questions about authorization and sovereignty, but also reflected a longstanding, sensitive security partnership between the two countries.`\
+https://www.nytimes.com/2026/04/23/world/americas/mexico-crash-us-security-cia.html
+
+**Touring Africa, Pope Leo Raised His Voice, but Didn’t Like the Echo**\
+`On his recent trip abroad, Leo XIV made some of his most forthright comments since becoming pope last year, but grew uncomfortable at how that criticism was interpreted.`\
+https://www.nytimes.com/2026/04/23/world/europe/pope-leo-africa-trump.html
+
 **Robot Teachers? Teenagers Weigh In.**\
 `Students react to a recent article about the first lady, Melania Trump, promoting the use of “humanoid educators” to teach children.`\
 https://www.nytimes.com/2026/04/23/learning/robot-teachers-teenagers-weigh-in.html
