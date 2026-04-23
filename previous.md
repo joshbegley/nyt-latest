@@ -1,3 +1,11 @@
+**4 medicamentos que pueden aumentar el riesgo de demencia**\
+`Los expertos han señalado varios medicamentos de venta libre o con receta.`\
+https://www.nytimes.com/es/2026/04/23/espanol/demencia-medicinas-aumenta-riesgo.html
+
+**Today, In Short**\
+`British insults. The art of sake. And an N.F.L. draft guide.`\
+https://www.nytimes.com/2026/04/23/briefing/today-in-short.html
+
 **World’s Biggest Condom Maker Raises Prices as Iran War Rattles Supply Chains**\
 `The Malaysian company Karex, which produces about five billion condoms a year, said it was raising prices by 30 percent because of higher raw material prices and global shipping disruptions.`\
 https://www.nytimes.com/2026/04/23/world/middleeast/karex-condom-price-increase-iran-war.html
@@ -65,12 +73,4 @@ https://www.nytimes.com/interactive/polls/iowa-governor-election-polls-2026.html
 **Russian Officials Say Town’s Air Is Toxic, Days After Strike on Oil Refinery**\
 `Since Ukraine attacked the refinery in Tuapse, starting a huge fire, residents have reported drops of dark, oily toxins falling from the sky.`\
 https://www.nytimes.com/2026/04/23/world/europe/russia-oil-refinery-black-rain.html
-
-**Zelensky details deals Ukraine signed to bolster Gulf nations’ defense against Iranian drones.**\
-``\
-https://www.nytimes.com/live/2026/04/23/world/iran-war-trump-news/zelensky-deals-ukraine-gulf-drones
-
-**Kansas Governor Election 2026: Latest Polls**\
-`Track the latest polls in the Kansas governor election.`\
-https://www.nytimes.com/interactive/polls/kansas-governor-election-polls-2026.html
 
