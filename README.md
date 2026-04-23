@@ -1,3 +1,7 @@
+**Germany, a Steadfast Ally of Israel, Now Voices Some Frustration**\
+`In recent weeks, German officials have issued critical comments about Israel that convey Berlin’s recent frustration with its longtime ally.`\
+https://www.nytimes.com/2026/04/23/world/europe/germany-israel-iran-war-support.html
+
 **Turner Prize Nominees Take Viewers on ‘Extraordinary Journeys’**\
 `This year’s shortlist for the major British art award includes an artist who stages spoken-word performances and another who makes art using oil company merch bought off eBay.`\
 https://www.nytimes.com/2026/04/23/arts/design/turner-prize-shortlist.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/23/opinion/apple-tim-cook-outsourcing-china.html
 **A Huge Sewage Spill Is Over, but Contamination Lingers in the Potomac**\
 `Though river monitoring shows bacteria levels have declined, scientists and environmentalists said a full recovery isn’t yet assured.`\
 https://www.nytimes.com/2026/04/23/climate/potomac-river-sewage-contamination.html
-
-**A Newborn Falcon Makes a Debut in a Nest 14 Stories High**\
-`Falcon Cam at a Manhattan office building revealed the first peregrine falcon to hatch there in years.`\
-https://www.nytimes.com/2026/04/23/nyregion/newborn-peregrine-falcon-manhattan.html
 
