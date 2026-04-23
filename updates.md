@@ -1,3 +1,11 @@
+**The Actress Greta Lee Walked Down the Aisle to This Song**\
+`For T Magazine’s video series “My Favorite Song,” the actress Greta Lee reveals the Beck song that played while she walked down the aisle at her wedding.`\
+https://www.nytimes.com/video/t-magazine/100000010857422/the-actress-greta-lee-walked-down-the-aisle-to-this-song.html
+
+**Judging the Supreme Court’s Shadow Docket**\
+`Readers respond to The Times’s front-page investigation of the court. Also: Lee Zeldin and the E.P.A.; talking to Iran.`\
+https://www.nytimes.com/2026/04/23/opinion/supreme-court-shadow-docket.html
+
 **Congress May Finally Recognize That Mobile Homes Aren’t Really That Mobile**\
 `An obscure federal rule requires manufactured homes to be built on a chassis, making them more costly. A bill in Congress would remove the mandate, enacted five decades ago.`\
 https://www.nytimes.com/2026/04/23/business/manufactured-homes-chassis.html

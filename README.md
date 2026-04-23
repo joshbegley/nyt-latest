@@ -1,3 +1,19 @@
+**New Gene Therapy Enables Children With a Rare Form of Deafness to Hear**\
+`The treatment, the first of its kind, was approved by the Food and Drug Administration on Thursday. “Our baby was born deaf, and now he can hear,” said one parent.`\
+https://www.nytimes.com/2026/04/23/science/deaf-gene-therapy.html
+
+**Meta to Cut 10 Percent of Work Force**\
+`The layoffs affect about 8,000 employees, with Meta also planning to close 6,000 open roles, as the company focuses on artificial intelligence.`\
+https://www.nytimes.com/2026/04/23/technology/meta-layoffs.html
+
+**OpenAI Unveils Its New, More Powerful Model**\
+`The maker of ChatGPT is taking a more open approach to cybersecurity than its chief rival, Anthropic.`\
+https://www.nytimes.com/2026/04/23/technology/openai-new-model.html
+
+**6 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/04/23/books/review/new-recommended-books.html
+
 **The Actress Greta Lee Walked Down the Aisle to This Song**\
 `For T Magazine’s video series “My Favorite Song,” the actress Greta Lee reveals the Beck song that played while she walked down the aisle at her wedding.`\
 https://www.nytimes.com/video/t-magazine/100000010857422/the-actress-greta-lee-walked-down-the-aisle-to-this-song.html
@@ -57,20 +73,4 @@ https://www.nytimes.com/2026/04/23/us/politics/justice-dept-citizens-denaturaliz
 **What Questions Do You Have About the Trump-Xi Summit?**\
 `“Ask a Correspondent” will take your questions to David Pierson, who covers China’s foreign policy for The Times.`\
 https://www.nytimes.com/2026/04/23/world/trump-xi-china-reader-callout.html
-
-**China Publishes Maps Detailing Minerals on the Ocean Floor**\
-`The new deep-sea atlas underscores Beijing’s interest in ocean mining, its military ambitions and its claims to disputed waters.`\
-https://www.nytimes.com/2026/04/23/climate/china-seabed-mining-maps-rare-earths.html
-
-**El secretario de la Marina de EE. UU. es despedido en medio de luchas internas en el Pentágono**\
-`John Phelan deja el Pentágono tras meses de tensiones con Pete Hegseth y otros dirigentes de la institución.`\
-https://www.nytimes.com/es/2026/04/23/espanol/estados-unidos/secretario-marina-despedido.html
-
-**4 medicamentos que pueden aumentar el riesgo de demencia**\
-`Los expertos han señalado varios medicamentos de venta libre o con receta.`\
-https://www.nytimes.com/es/2026/04/23/espanol/demencia-medicinas-aumenta-riesgo.html
-
-**Today, In Short**\
-`British insults. The art of sake. And an N.F.L. draft guide.`\
-https://www.nytimes.com/2026/04/23/briefing/today-in-short.html
 
