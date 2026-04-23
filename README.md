@@ -1,3 +1,27 @@
+**Los precios de la energía aumentan en varios países por el acaparamiento**\
+`A medida que los países ricos se apresuran a asegurar reservas de petróleo, se produce un aumento de los precios para todos y escasez en los países vulnerables.`\
+https://www.nytimes.com/es/2026/04/23/espanol/negocios/precios-petroleo-guerra-estrecho.html
+
+**War in Iran Gives New Fuel to a Tax Debate in Australia**\
+`The world’s third-largest exporter of natural gas, Australia has been too lenient in taxing lucrative gas exports, many in the country argue.`\
+https://www.nytimes.com/2026/04/23/world/asia/iran-australia-natural-gas-tax.html
+
+**A Lost Tribe in India Makes Its Exodus to Israel**\
+`The B’nei Menashe believe they are the children of Manasseh, a king of Judah exiled about 2,800 years ago. Evidence is thin, but Israel is welcoming them ‘home.’`\
+https://www.nytimes.com/2026/04/23/world/asia/india-jewish-tribe-israel-bnei-menashe.html
+
+****\
+`Displaying the Torah during prayers.`\
+https://www.nytimes.com/video/embedded/world/asia/100000010853466/00INT-india-losttribe-israel-10037.html
+
+**Corrections: April 23, 2026**\
+`Corrections that appeared in print on Thursday, April 23, 2026.`\
+https://www.nytimes.com/2026/04/23/pageoneplus/corrections-april-23-2026.html
+
+**Quote of the Day: In Virginia Redistricting Win, Democrats Play Hardball to Thwart Trump**\
+`Quotation of the Day for Thursday, April 23, 2026.`\
+https://www.nytimes.com/2026/04/22/pageoneplus/quote-of-the-day-in-virginia-redistricting-win-democrats-play-hardball-to-thwart-trump.html
+
 **‘Beaches’ Review: A Classic Weepie Dries Its Tears**\
 `A new musical version of the 1980s tear-jerker comes to Broadway, but the production is too muddled to make an emotional impact.`\
 https://www.nytimes.com/2026/04/22/theater/beaches-review-broadway.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/04/22/us/kalshi-suspends-politicians-trading-electi
 **Man Who Stole Kristi Noem’s Purse Gets 3 Years in Prison**\
 `Ms. Noem, the homeland security secretary at the time, was at a restaurant in Washington with her family when her bag was taken with $3,000 and her security badge inside.`\
 https://www.nytimes.com/2026/04/22/us/kristi-noem-purse-thief-sentenced.html
-
-**King Charles Will Not Meet Epstein Victims During U.S. State Visit**\
-`Representative Ro Khanna had asked Buckingham Palace for a private meeting between the victims and King Charles during his planned visit to the U.S. next week.`\
-https://www.nytimes.com/2026/04/22/us/politics/king-charles-epstein-victims.html
-
-**Man Is Sentenced to 20 Years in 1983 Killing of Oregon Woman**\
-`Teresa Peroni, 27, was last seen on July 4, 1983, in Selma, Ore. Marcus Sanfratello, the man seen with her that day, pleaded guilty to first-degree manslaughter after his arrest last year.`\
-https://www.nytimes.com/2026/04/22/us/oregon-murder-sentenced-prison.html
-
-**Navy Secretary Is Fired as Infighting Roils Pentagon**\
-`John Phelan is leaving the Pentagon after months of tension with Pete Hegseth and other Pentagon leaders. The tumult comes as the Navy has been engaged in war with Iran.`\
-https://www.nytimes.com/2026/04/22/us/politics/navy-secretary-john-phelan.html
-
-**Ice Sculpture Promoting Drake Album Melted by Fire Crews**\
-`Fire crews in Toronto hosed down a 25-foot tall ice sculpture that had been installed to promote a new album by the rapper Drake.`\
-https://www.nytimes.com/video/world/americas/100000010856788/drake-ice-sculpture-toronto.html
-
-**Joy Harmon, Car-Washing Temptress in ‘Cool Hand Luke,’ Dies at 87**\
-`All it took was a bucket of soapy water and a slinky housedress for her to achieve movie immortality in the 1967 Paul Newman classic.`\
-https://www.nytimes.com/2026/04/22/movies/joy-harmon-dead.html
-
-**Not a Deal-Breaker: White House Downplays Iranian Action Near the Strait**\
-`President Trump’s threats have given way (for the moment, at least) to a more conciliatory tone about Iran’s actions in the Strait of Hormuz.`\
-https://www.nytimes.com/2026/04/22/us/politics/trump-iran-strait-of-hormuz-ships.html
 
