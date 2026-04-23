@@ -1,3 +1,11 @@
+**A Hit-and-Run Driver Is Killing Geese on Long Island**\
+`The authorities are looking for a driver who they believe intentionally struck and killed about a dozen geese in Hauppauge this month.`\
+https://www.nytimes.com/2026/04/23/nyregion/geese-killer-investigation-long-island.html
+
+**Lebanese Journalist Killed in Israeli Strike Was Known for Being Intrepid**\
+`Mourners paid respects to Amal Khalil, who remained trapped under rubble for hours before emergency medics recovered her body.`\
+https://www.nytimes.com/2026/04/23/world/middleeast/lebanese-journalist-amal-khalil-killed-israeli-strike.html
+
 **Darrell Sheets, Auction Bidder Who Starred on ‘Storage Wars,’ Dies at 67**\
 `He appeared in 13 seasons of the long-running reality television show about storage-unit auctions. He later opened an antique shop in Arizona.`\
 https://www.nytimes.com/2026/04/23/world/asia/darrell-sheets-storage-wars-dead.html
