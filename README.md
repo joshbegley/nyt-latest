@@ -1,3 +1,7 @@
+**In Lebanon, Talks With Israel Stir Mix of Anger, Unease and Faint Hope**\
+`The Lebanese are deeply divided over whether rare direct talks with Israel are a good thing.`\
+https://www.nytimes.com/2026/04/23/world/middleeast/israel-lebanon-hezbollah-talks-ceasefire.html
+
 **U.S. forces stop a second tanker they say is carrying Iranian oil.**\
 ``\
 https://www.nytimes.com/live/2026/04/23/world/iran-war-trump-news/us-forces-stop-a-second-tanker-they-say-is-carrying-iranian-oil
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/23/your-money/401ks-and-similar-plans/401k-priva
 **What Gives You Hope That Your Generation Can Change the World for the Better?**\
 `Last year, Gen Z rose up in protest around the world. What have you seen, recently and in history, that helps you believe young people can make positive change?`\
 https://www.nytimes.com/2026/04/23/learning/what-gives-you-hope-that-your-generation-can-change-the-world-for-the-better.html
-
-**A Bitcoin Evangelist Tries to Convert Me**\
-`What the crypto currency promises that the dollar doesn’t.`\
-https://www.nytimes.com/2026/04/23/opinion/bitcoin-crypto-anthony-pompliano.html
 
