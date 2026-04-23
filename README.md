@@ -1,3 +1,15 @@
+**Palabra del día: ‘extant’**\
+`Esta palabra ha aparecido en 28 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/04/23/espanol/que-significa-extant.html
+
+**Word of the Day: extant**\
+`This word has appeared in 28 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/04/23/learning/word-of-the-day-extant.html
+
+**Candidates for California Governor Debate: 5 Takeaways**\
+`The nonpartisan primary remains volatile after the departure of Eric Swalwell. A televised debate featured six leading candidates, but produced few fireworks.`\
+https://www.nytimes.com/2026/04/23/us/politics/california-governor-debate-takeaways.html
+
 **Pentagon Fires Navy Secretary**\
 `Navy Secretary John Phelan was fired on Wednesday after months of infighting with senior Pentagon leaders. He championed a major investment in new ships, including a “Trump-class” battleship.`\
 https://www.nytimes.com/video/us/100000010858340/navy-secretary-john-phelan-fired.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/interactive/2026/books/wh-auden-poetry-challenge-stars.h
 **Perfect Planters for Any Patio or Sunlit Room**\
 `When it comes to freshening up a space, these pots pull their weight.`\
 https://www.nytimes.com/2026/04/22/t-magazine/indoor-planters-pots.html
-
-**Israeli Strikes Kill a Journalist and Injure Another in Lebanon**\
-`Lebanese officials say rescue teams came under fire while trying to aid Amal Khalil, a reporter for a Lebanese newspaper, and Zeinab Faraj, a photojournalist.`\
-https://www.nytimes.com/2026/04/22/world/middleeast/journalist-killed-israel-lebanon-strikes.html
-
-**U.S. Settles Carter Page Wiretap Lawsuit for $1.25 Million**\
-`F.B.I. applications to surveil Mr. Page, a 2016 Trump campaign adviser, during the investigation into Russia’s interference in the election had myriad errors and omissions, an inspector general found.`\
-https://www.nytimes.com/2026/04/22/us/politics/trump-settles-carter-page-lawsuit.html
-
-**Weather Service Survey Confirms Three Rare Tornadoes in Central California**\
-`Tornadoes are uncommon in the state, but a storm system caused three near Fresno on Tuesday.`\
-https://www.nytimes.com/2026/04/22/weather/fresno-california-tornadoes.html
 
