@@ -1,3 +1,15 @@
+**Iowa Governor Election 2026: Latest Polls**\
+`Track the latest polls in the Iowa governor election.`\
+https://www.nytimes.com/interactive/polls/iowa-governor-election-polls-2026.html
+
+**Russian Officials Say Town’s Air Is Toxic, Days After Strike on Oil Refinery**\
+`Since Ukraine attacked the refinery in Tuapse, starting a huge fire, residents have reported drops of dark, oily toxins falling from the sky.`\
+https://www.nytimes.com/2026/04/23/world/europe/russia-oil-refinery-black-rain.html
+
+**Zelensky detailed deals Ukraine signed to bolster Gulf nations’ defense against Iranian drones.**\
+``\
+https://www.nytimes.com/live/2026/04/23/world/iran-war-trump-news/zelensky-deals-ukraine-gulf-drones
+
 **Kansas Governor Election 2026: Latest Polls**\
 `Track the latest polls in the Kansas governor election.`\
 https://www.nytimes.com/interactive/polls/kansas-governor-election-polls-2026.html
