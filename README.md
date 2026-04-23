@@ -1,3 +1,19 @@
+**How the War in Iran Is Shifting From Bombardment to a Test of Wills**\
+`The conflict has morphed into a volatile standoff in the Strait of Hormuz, as the economic costs mount and President Trump faces a political backlash at home.`\
+https://www.nytimes.com/2026/04/23/us/politics/strait-iran-willpower.html
+
+**Without Formal Trade Talks, Canada and the U.S. Go Public With Their Grievances**\
+`Prime Minister Mark Carney shot back at Trump administration officials, saying Canada is not ‘taking instructions from the United States.’`\
+https://www.nytimes.com/2026/04/23/world/canada/carney-trump-canada-us-trade.html
+
+**Trump Says Israel-Lebanon Cease-Fire Is Extended**\
+`Also, America’s premier opera company has money troubles. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/04/23/briefing/trump-says-israel-lebanon-cease-fire-is-extended.html
+
+**Nike to Cut 1,400 Jobs as Part of Its Turnaround Plan**\
+`Most of the layoffs will affect tech workers as the athletic giant tries to reverse a yearslong sales slump. It’s the second round of cuts this year.`\
+https://www.nytimes.com/2026/04/23/business/nike-layoffs-turnaround.html
+
 **The Artist Making Work About Sweat, Ghosts and the Rivers of Pittsburgh**\
 `With Project Blue Space, the sculptor and image maker Shikeith brings the city’s Black history to the surface.`\
 https://www.nytimes.com/2026/04/23/t-magazine/shikeith-project-blue-space.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/video/podcasts/100000010805137/what-is-youtubes-dominanc
 **French Fries: Fully Loaded**\
 `Fries are perfectly good on their own, but they’re even better with toppings. Here are three places to get yours loaded.`\
 https://www.nytimes.com/2026/04/23/dining/french-fries-fully-loaded.html
-
-**Met Opera’s Multimillion-Dollar Deal With Saudis Falls Through**\
-`The arrangement would have brought up to $200 million to the Metropolitan Opera, which has suffered a series of financial setbacks.`\
-https://www.nytimes.com/2026/04/23/arts/music/met-opera-saudi-deal-funding.html
-
-**Justice Dept. Watchdog Begins Review of Release of Epstein Files**\
-`The department’s inspector general said it would audit the release of millions of pages of files to determine whether the agency had followed the law.`\
-https://www.nytimes.com/2026/04/23/us/politics/epstein-files-release-doj-watchdog.html
-
-**Concern Grows Over Republican Congressman’s Mysterious Absence**\
-`A spokesman for Representative Thomas Kean Jr. said an unspecified “personal medical issue” has led the New Jersey Republican to miss House votes.`\
-https://www.nytimes.com/2026/04/23/nyregion/thomas-kean-jr-republican-missing.html
-
-**Two Litigation Partners Depart Paul Weiss**\
-`Kannon Shanmugam and Masha Hansford are the latest in a string of litigators who have left the influential New York law firm.`\
-https://www.nytimes.com/2026/04/23/business/paul-weiss-law-firm-departures.html
 
