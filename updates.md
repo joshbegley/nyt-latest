@@ -1,3 +1,7 @@
+**Turner Prize Nominees Take Viewers on ‘Extraordinary Journeys’**\
+`This year’s shortlist for the major British art award includes an artist who stages spoken-word performances and another who makes art using oil company merch bought off eBay.`\
+https://www.nytimes.com/2026/04/23/arts/design/turner-prize-shortlist.html
+
 **The Iran War, in Numbers**\
 `Here are some statistics to give context to the conflict.`\
 https://www.nytimes.com/2026/04/23/briefing/the-iran-war-in-numbers.html
