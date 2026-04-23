@@ -1,3 +1,11 @@
+**Kansas Governor Election 2026: Latest Polls**\
+`Track the latest polls in the Kansas governor election.`\
+https://www.nytimes.com/interactive/polls/kansas-governor-election-polls-2026.html
+
+**In Lebanon, Talks With Israel Stir Mix of Anger, Unease and Faint Hope**\
+`The Lebanese are deeply divided over whether rare direct talks with Israel are a good thing.`\
+https://www.nytimes.com/2026/04/23/world/middleeast/israel-lebanon-hezbollah-talks-ceasefire.html
+
 **U.S. forces stop a second tanker they say is carrying Iranian oil.**\
 ``\
 https://www.nytimes.com/live/2026/04/23/world/iran-war-trump-news/us-forces-stop-a-second-tanker-they-say-is-carrying-iranian-oil
