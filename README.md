@@ -1,3 +1,7 @@
+**Lebanese Journalist Killed in Israeli Strike Was Known for Being Intrepid**\
+`Mourners paid respects to Amal Khalil, who remained trapped under rubble for hours before emergency medics recovered her body.`\
+https://www.nytimes.com/2026/04/23/world/middleeast/lebanese-journalist-amal-khalil-killed-israeli-strike.html
+
 **Darrell Sheets, Auction Bidder Who Starred on ‘Storage Wars,’ Dies at 67**\
 `He appeared in 13 seasons of the long-running reality television show about storage-unit auctions. He later opened an antique shop in Arizona.`\
 https://www.nytimes.com/2026/04/23/world/asia/darrell-sheets-storage-wars-dead.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/23/science/deaf-gene-therapy.html
 **Meta to Cut 10% of Work Force in A.I. Push**\
 `The layoffs affect about 8,000 employees, with Meta also planning to close 6,000 open roles, as the company focuses on artificial intelligence.`\
 https://www.nytimes.com/2026/04/23/technology/meta-layoffs.html
-
-**OpenAI Unveils Its New, More Powerful Model**\
-`The maker of ChatGPT is taking a more open approach to cybersecurity than its chief rival, Anthropic.`\
-https://www.nytimes.com/2026/04/23/technology/openai-new-model.html
 

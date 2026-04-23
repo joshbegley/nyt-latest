@@ -1,3 +1,19 @@
+**Darrell Sheets, Auction Bidder Who Starred on ‘Storage Wars,’ Dies at 67**\
+`He appeared in 13 seasons of the long-running reality television show about storage-unit auctions. He later opened an antique shop in Arizona.`\
+https://www.nytimes.com/2026/04/23/world/asia/darrell-sheets-storage-wars-dead.html
+
+**Anne Hathaway Knows Her ‘Mother’ Era Won’t Last Forever**\
+`With five movies dropping in 2026, Anne Hathaway is about to be everywhere. On “Popcast,” the actress discusses the plot twist of receiving online adoration and what it’s like to make it to the other side of internet backlash.`\
+https://www.nytimes.com/video/podcasts/100000010859209/anne-hathaway-knows-her-mother-era-wont-last-forever.html
+
+**How the Supreme Court’s Shadow Docket Upended Climate Policy**\
+`The Times unearthed memos that signaled a major shift in the court’s operations, in a decision that critics say was rushed and flawed.`\
+https://www.nytimes.com/2026/04/23/climate/supreme-court-climate-shadow-docket.html
+
+**Meta to Cut 10% of Work Force in A.I. Push**\
+`The layoffs affect about 8,000 employees, with Meta also planning to close 6,000 open roles, as the company focuses on artificial intelligence.`\
+https://www.nytimes.com/2026/04/23/technology/meta-layoffs.html
+
 **Trump Talks on Sending Afghans to Congo Draw Bipartisan Ire**\
 `Lawmakers in both parties said President Trump should continue allowing Afghans who worked alongside American troops to settle safely in the United States.`\
 https://www.nytimes.com/2026/04/23/us/politics/trump-afghans-congo-refugees.html
