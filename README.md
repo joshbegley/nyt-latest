@@ -46,8 +46,8 @@ https://www.nytimes.com/2026/04/23/opinion/matthew-connors-photos-protest-author
 `Los ejercicios combinados pueden ayudarte a ejercitar todo el cuerpo rápidamente.`\
 https://www.nytimes.com/es/2026/04/23/espanol/estilos-de-vida/-trabajar-mas-musculos-menos-tiempo.html
 
-**Senate Plunges Into Vote Marathon as G.O.P. Advances ICE Funding Boost**\
-`Republicans pressed to pass a budget plan with a $70 billion increase for immigration enforcement. But first, in an overnight session, they beat back Democratic proposals aimed at lowering costs.`\
+**Senate Adopts G.O.P. Budget, Defeating Democrats’ Affordability Proposals**\
+`Republicans pushed through a budget plan with a $70 billion increase for immigration enforcement after an overnight session in which they beat back Democratic proposals aimed at lowering costs.`\
 https://www.nytimes.com/2026/04/23/us/politics/senate-plunges-into-vote-marathon-as-gop-advances-ice-funding-boost.html
 
 **Los precios de la energía aumentan en varios países por el acaparamiento**\
