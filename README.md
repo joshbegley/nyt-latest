@@ -1,3 +1,7 @@
+**Trump Administration Loosens Restrictions on Medical Marijuana**\
+`The rule moves F.D.A.-approved marijuana and state-regulated marijuana out of the Schedule I category, which includes drugs like heroin.`\
+https://www.nytimes.com/2026/04/23/us/politics/trump-medical-marijuana-classification-drug-reschedule.html
+
 **‘God Will Never Abandon You,’ Pope Tells Prisoners in Equatorial Guinea**\
 `Pope Leo XIV offered words of encouragement at a prison in the tiny authoritarian nation of Equatorial Guinea, one of four countries he visited during a tour of Africa.`\
 https://www.nytimes.com/video/world/africa/100000010858713/pope-leo-prison-africa-equatorial-guinea.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/23/us/politics/actblue-republicans-regina-wallac
 **Investors Fret Over Tesla’s $25 Billion A.I. Bet**\
 `Elon Musk’s electric vehicle company said that it needs to spend big on artificial intelligence and robots. Wall Street is worried about the bill.`\
 https://www.nytimes.com/2026/04/23/business/dealbook/tesla-musk-ai-bet.html
-
-**Germany, a Steadfast Ally of Israel, Now Voices Some Frustration**\
-`In recent weeks, German officials have issued critical comments about Israel that convey Berlin’s recent frustration with its longtime ally.`\
-https://www.nytimes.com/2026/04/23/world/europe/germany-israel-iran-war-support.html
 

@@ -1,3 +1,11 @@
+**‘God Will Never Abandon You,’ Pope Tells Prisoners in Equatorial Guinea**\
+`Pope Leo XIV offered words of encouragement at a prison in the tiny authoritarian nation of Equatorial Guinea, one of four countries he visited during a tour of Africa.`\
+https://www.nytimes.com/video/world/africa/100000010858713/pope-leo-prison-africa-equatorial-guinea.html
+
+**U.S. Forces Stop 2nd Tanker They Say Is Carrying Oil From Iran**\
+`It was the second such action this week, as the Trump administration ramps up pressure on Tehran.`\
+https://www.nytimes.com/2026/04/23/world/middleeast/us-iran-oil-tanker-indian-ocean-mt-majestic-x.html
+
 **How We Cover the White House Correspondents’ Dinner**\
 `The annual black-tie event attracts Hollywood stars, reporters and politicians for an irreverent night celebrating press freedom.`\
 https://www.nytimes.com/2026/04/23/insider/white-house-correspondents-dinner-trump.html

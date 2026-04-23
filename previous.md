@@ -1,3 +1,7 @@
+**‘God Will Never Abandon You,’ Pope Tells Prisoners in Equatorial Guinea**\
+`Pope Leo XIV offered words of encouragement at a prison in the tiny authoritarian nation of Equatorial Guinea, one of four countries he visited during a tour of Africa.`\
+https://www.nytimes.com/video/world/africa/100000010858713/pope-leo-prison-africa-equatorial-guinea.html
+
 **How We Cover the White House Correspondents’ Dinner**\
 `The annual black-tie event attracts Hollywood stars, reporters and politicians for an irreverent night celebrating press freedom.`\
 https://www.nytimes.com/2026/04/23/insider/white-house-correspondents-dinner-trump.html
@@ -46,9 +50,9 @@ https://www.nytimes.com/interactive/polls/kansas-governor-election-polls-2026.ht
 `The Lebanese are deeply divided over whether rare direct talks with Israel are a good thing.`\
 https://www.nytimes.com/2026/04/23/world/middleeast/israel-lebanon-hezbollah-talks-ceasefire.html
 
-**U.S. Seizes Second Tanker Carrying Iranian Oil**\
-`Navy destroyers are also shadowing several other vessels that left from an Iranian port before the U.S.-imposed blockade began, a U.S. military official said.`\
-https://www.nytimes.com/2026/04/23/us/politics/us-seizes-tanker-iran.html
+**U.S. Forces Stop 2nd Tanker They Say Is Carrying Oil From Iran**\
+`It was the second such action this week, as the Trump administration ramps up pressure on Tehran.`\
+https://www.nytimes.com/2026/04/23/world/middleeast/us-iran-oil-tanker-indian-ocean-mt-majestic-x.html
 
 **Michael Tilson Thomas, Celebrated American Conductor, Dies at 81**\
 `A galvanizing force in classical music as a conductor, composer, pianist and evangelist, he spent 25 years as music director of the San Francisco Symphony.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/23/business/dealbook/tesla-musk-ai-bet.html
 **Germany, a Steadfast Ally of Israel, Now Voices Some Frustration**\
 `In recent weeks, German officials have issued critical comments about Israel that convey Berlin’s recent frustration with its longtime ally.`\
 https://www.nytimes.com/2026/04/23/world/europe/germany-israel-iran-war-support.html
-
-**Turner Prize Nominees Take Viewers on ‘Extraordinary Journeys’**\
-`This year’s shortlist for the major British art award includes an artist who stages spoken-word performances and another who makes art using oil company merch bought off eBay.`\
-https://www.nytimes.com/2026/04/23/arts/design/turner-prize-shortlist.html
 
