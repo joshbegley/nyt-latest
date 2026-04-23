@@ -1,3 +1,7 @@
+**After a Hero’s Fall, What to Do With the Art That Honored Him?**\
+`Artists who created public depictions of the civil rights icon Cesar Chavez have had revisit their works after accusations emerged of Mr. Chavez’s sexual abuse of girls in the movement.`\
+https://www.nytimes.com/2026/04/23/us/cesar-chavez-art-changes.html
+
 **U.S. Seizes Second Tanker Carrying Iranian Oil**\
 `Navy destroyers are also shadowing several other vessels that left from an Iranian port before the U.S.-imposed blockade began, a U.S. military official said.`\
 https://www.nytimes.com/2026/04/23/us/politics/us-seizes-tanker-iran.html
