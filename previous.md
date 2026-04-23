@@ -1,3 +1,11 @@
+**‘This Is What I Think’**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://www.nytimes.com/2026/04/23/learning/this-is-what-i-think.html
+
+**Oil Prices Climb as Cease-Fire Uncertainty Deepens**\
+`Investors wrestled with uncertainty about the cease-fire between the United States and Iran.`\
+https://www.nytimes.com/2026/04/23/business/oil-stocks-gas-iran.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/23/world/iran-war-trump-news/heres-the-latest
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/23/world/asia/iran-australia-natural-gas-tax.htm
 **A Lost Tribe in India Makes Its Exodus to Israel**\
 `The B’nei Menashe believe they are the children of Manasseh, a king of Judah exiled about 2,800 years ago. Evidence is thin, but Israel is welcoming them ‘home.’`\
 https://www.nytimes.com/2026/04/23/world/asia/india-jewish-tribe-israel-bnei-menashe.html
-
-****\
-`Displaying the Torah during prayers.`\
-https://www.nytimes.com/video/embedded/world/asia/100000010853466/00INT-india-losttribe-israel-10037.html
-
-**Corrections: April 23, 2026**\
-`Corrections that appeared in print on Thursday, April 23, 2026.`\
-https://www.nytimes.com/2026/04/23/pageoneplus/corrections-april-23-2026.html
 

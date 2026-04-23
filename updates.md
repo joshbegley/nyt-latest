@@ -1,3 +1,11 @@
+**‘This Is What I Think’**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://www.nytimes.com/2026/04/23/learning/this-is-what-i-think.html
+
+**Oil Prices Climb as Cease-Fire Uncertainty Deepens**\
+`Investors wrestled with uncertainty about the cease-fire between the United States and Iran.`\
+https://www.nytimes.com/2026/04/23/business/oil-stocks-gas-iran.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/23/world/iran-war-trump-news/heres-the-latest
