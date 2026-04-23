@@ -19,7 +19,7 @@ https://www.nytimes.com/interactive/polls/mississippi-us-senate-election-polls-2
 https://www.nytimes.com/interactive/polls/kansas-us-senate-election-polls-2026.html
 
 **After a Hero’s Fall, What to Do With the Art That Honored Him?**\
-`Artists who created public depictions of the civil rights icon Cesar Chavez have had revisit their works after revelations emerged of Mr. Chavez’s sexual abuse of girls in the movement.`\
+`Artists who created public depictions of the civil rights icon Cesar Chavez have had revisit their works after accusations emerged of Mr. Chavez’s sexual abuse of girls in the movement.`\
 https://www.nytimes.com/2026/04/23/us/cesar-chavez-art-changes.html
 
 **Iowa Governor Election 2026: Latest Polls**\
@@ -42,9 +42,9 @@ https://www.nytimes.com/interactive/polls/kansas-governor-election-polls-2026.ht
 `The Lebanese are deeply divided over whether rare direct talks with Israel are a good thing.`\
 https://www.nytimes.com/2026/04/23/world/middleeast/israel-lebanon-hezbollah-talks-ceasefire.html
 
-**U.S. Forces Stop 2nd Tanker They Say Is Carrying Oil From Iran**\
-`It was the second such action this week, as the Trump administration ramps up pressure on Tehran.`\
-https://www.nytimes.com/2026/04/23/world/middleeast/us-iran-oil-tanker-indian-ocean-mt-majestic-x.html
+**U.S. Seizes Second Tanker Carrying Iranian Oil**\
+`Navy destroyers are also shadowing several other vessels that left from an Iranian port before the U.S.-imposed blockade began, a U.S. military official said.`\
+https://www.nytimes.com/2026/04/23/us/politics/us-seizes-tanker-iran.html
 
 **Michael Tilson Thomas, Celebrated American Conductor, Dies at 81**\
 `A galvanizing force in classical music as a conductor, composer, pianist and evangelist, he spent 25 years as music director of the San Francisco Symphony.`\

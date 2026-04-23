@@ -1,3 +1,15 @@
+**U.S. Seizes Second Tanker Carrying Iranian Oil**\
+`Navy destroyers are also shadowing several other vessels that left from an Iranian port before the U.S.-imposed blockade began, a U.S. military official said.`\
+https://www.nytimes.com/2026/04/23/us/politics/us-seizes-tanker-iran.html
+
+**Warner Bros. Investors Approve Deal With Paramount**\
+`The vote brings the tech scion David Ellison one step closer to uniting some of the world’s biggest news and entertainment properties.`\
+https://www.nytimes.com/2026/04/23/business/media/warner-bros-investors-paramount-vote.html
+
+**Anne Hathaway Is Ready for Her Personal ‘Eras Tour’**\
+`On “Popcast,” Anne Hathaway spoke with our hosts, Joe Coscarelli and Jon Caramanica, about why she’s returning to her classic characters from “The Devil Wears Prada” and “The Princess Diaries.”`\
+https://www.nytimes.com/video/podcasts/100000010858832/anne-hathaway-is-ready-for-her-personal-eras-tour.html
+
 **Mississippi U.S. Senate Election 2026: Latest Polls**\
 `Track the latest polls in the Mississippi U.S. Senate election.`\
 https://www.nytimes.com/interactive/polls/mississippi-us-senate-election-polls-2026.html
@@ -18,7 +30,7 @@ https://www.nytimes.com/interactive/polls/iowa-governor-election-polls-2026.html
 `Since Ukraine attacked the refinery in Tuapse, starting a huge fire, residents have reported drops of dark, oily toxins falling from the sky.`\
 https://www.nytimes.com/2026/04/23/world/europe/russia-oil-refinery-black-rain.html
 
-**Zelensky detailed deals Ukraine signed to bolster Gulf nations’ defense against Iranian drones.**\
+**Zelensky details deals Ukraine signed to bolster Gulf nations’ defense against Iranian drones.**\
 ``\
 https://www.nytimes.com/live/2026/04/23/world/iran-war-trump-news/zelensky-deals-ukraine-gulf-drones
 
@@ -30,9 +42,9 @@ https://www.nytimes.com/interactive/polls/kansas-governor-election-polls-2026.ht
 `The Lebanese are deeply divided over whether rare direct talks with Israel are a good thing.`\
 https://www.nytimes.com/2026/04/23/world/middleeast/israel-lebanon-hezbollah-talks-ceasefire.html
 
-**U.S. forces stop a second tanker they say is carrying Iranian oil.**\
-``\
-https://www.nytimes.com/2026/04/23/world/middleeast/oil-tanker-iran-us-indian-ocean-mt-majestic-x.html
+**U.S. Forces Stop 2nd Tanker They Say Is Carrying Oil From Iran**\
+`It was the second such action this week, as the Trump administration ramps up pressure on Tehran.`\
+https://www.nytimes.com/2026/04/23/world/middleeast/us-iran-oil-tanker-indian-ocean-mt-majestic-x.html
 
 **Michael Tilson Thomas, Celebrated American Conductor, Dies at 81**\
 `A galvanizing force in classical music as a conductor, composer, pianist and evangelist, he spent 25 years as music director of the San Francisco Symphony.`\
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/23/arts/design/turner-prize-shortlist.html
 **The Iran War, in Numbers**\
 `Here are some statistics to give context to the conflict.`\
 https://www.nytimes.com/2026/04/23/briefing/the-iran-war-in-numbers.html
-
-**El antitrumpismo une a Europa**\
-`La toxicidad de Trump ha hecho que distanciarse de él sea una necesidad para líderes de todo el espectro político.`\
-https://www.nytimes.com/es/2026/04/23/espanol/mundo/antitrumpismo-europa.html
-
-**Ticketmaster’s Big Loss in Court**\
-`After years of scrutiny and complaints, Live Nation, the concert giant that includes Ticketmaster, has been found to be a monopoly.`\
-https://www.nytimes.com/2026/04/23/podcasts/the-daily/ticketmaster-live-nation-trial.html
-
-**Who Is Running Iran, and How Doctors Cashed In on a Consumer Protection Law**\
-`Plus, the Labubus linked to forced labor.`\
-https://www.nytimes.com/2026/04/23/podcasts/the-headlines/iran-breast-reductions.html
 

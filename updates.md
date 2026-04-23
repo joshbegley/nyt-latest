@@ -1,3 +1,23 @@
+**U.S. Seizes Second Tanker Carrying Iranian Oil**\
+`Navy destroyers are also shadowing several other vessels that left from an Iranian port before the U.S.-imposed blockade began, a U.S. military official said.`\
+https://www.nytimes.com/2026/04/23/us/politics/us-seizes-tanker-iran.html
+
+**Warner Bros. Investors Approve Deal With Paramount**\
+`The vote brings the tech scion David Ellison one step closer to uniting some of the world’s biggest news and entertainment properties.`\
+https://www.nytimes.com/2026/04/23/business/media/warner-bros-investors-paramount-vote.html
+
+**Anne Hathaway Is Ready for Her Personal ‘Eras Tour’**\
+`On “Popcast,” Anne Hathaway spoke with our hosts, Joe Coscarelli and Jon Caramanica, about why she’s returning to her classic characters from “The Devil Wears Prada” and “The Princess Diaries.”`\
+https://www.nytimes.com/video/podcasts/100000010858832/anne-hathaway-is-ready-for-her-personal-eras-tour.html
+
+**Zelensky details deals Ukraine signed to bolster Gulf nations’ defense against Iranian drones.**\
+``\
+https://www.nytimes.com/live/2026/04/23/world/iran-war-trump-news/zelensky-deals-ukraine-gulf-drones
+
+**U.S. Forces Stop 2nd Tanker They Say Is Carrying Oil From Iran**\
+`It was the second such action this week, as the Trump administration ramps up pressure on Tehran.`\
+https://www.nytimes.com/2026/04/23/world/middleeast/us-iran-oil-tanker-indian-ocean-mt-majestic-x.html
+
 **Mississippi U.S. Senate Election 2026: Latest Polls**\
 `Track the latest polls in the Mississippi U.S. Senate election.`\
 https://www.nytimes.com/interactive/polls/mississippi-us-senate-election-polls-2026.html
