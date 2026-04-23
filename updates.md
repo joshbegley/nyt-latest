@@ -1,3 +1,7 @@
+**Germany, a Steadfast Ally of Israel, Now Voices Some Frustration**\
+`In recent weeks, German officials have issued critical comments about Israel that convey Berlin’s recent frustration with its longtime ally.`\
+https://www.nytimes.com/2026/04/23/world/europe/germany-israel-iran-war-support.html
+
 **Turner Prize Nominees Take Viewers on ‘Extraordinary Journeys’**\
 `This year’s shortlist for the major British art award includes an artist who stages spoken-word performances and another who makes art using oil company merch bought off eBay.`\
 https://www.nytimes.com/2026/04/23/arts/design/turner-prize-shortlist.html
