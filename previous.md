@@ -1,3 +1,15 @@
+**Did an Acid Trip Inspire the First Photo of Earth?**\
+`How did looking back at the Earth for the first time change humanity’s perspective? The legendary thinker Stewart Brand tells the Opinion columnist Ezra Klein why we need to shift our focus from “looking outward” to the essential, constant work of maintaining our civilizations and the planet itself.`\
+https://www.nytimes.com/video/opinion/100000010857817/did-an-acid-trip-inspire-the-first-photo-of-earth.html
+
+**The Prophet of Silicon Valley**\
+`Stewart Brand, an author and visionary, deeply influenced the internet era from the 1960s onward. Yet the systems he inspired have become fundamentally unintelligible to their creators. The Opinion columnist Ezra Klein explores the tension between Brand’s “how to” philosophy and the black-box reality of modern A.I. on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000010857809/the-prophet-of-silicon-valley.html
+
+**Two Men Plead Guilty in Harvard Medical School Explosion**\
+`Logan David Patterson, 18, and Dominick Frank Cardoza, 21, pleaded guilty for the November incident in which they set off a commercial firework in a research lab.`\
+https://www.nytimes.com/2026/04/24/us/two-men-guilty-harvard-medical-school-explosion.html
+
 **Wildfires Destroy Dozens of Structures in Georgia, Governor Says**\
 `Fires fueled by drought have burned tens of thousands of acres in southern Georgia and northern Florida, where officials said one blaze was blamed for the death of a volunteer firefighter.`\
 https://www.nytimes.com/2026/04/24/us/georgia-wildfires-homes-destroyed.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/video/podcasts/100000010862391/does-the-drama-know-zenda
 **The World According to Aldwyth**\
 `In paint, bricolage and collage, she explored the history of art, ideas and the human species.`\
 https://www.nytimes.com/2026/04/24/arts/design/aldwyth-art-dead.html
-
-**Aldwyth, Ascetic Whose Artwork Reordered the World, Dies at 90**\
-`An austere lifestyle allowed her to make epic collages and Joseph Cornell-like contraptions that told stories about art history and her place in — and outside — it.`\
-https://www.nytimes.com/2026/04/24/arts/design/aldwyth-dead.html
-
-**6 Shows Our Theater Critics Are Talking About**\
-`Rose Byrne in “Fallen Angels,” a couple trapped in the musical village of “Schmigadoon!” and “The Rocky Horror Show” at Studio 54: These productions are worth seeing.`\
-https://www.nytimes.com/2026/04/24/theater/6-shows-our-theater-critics-are-talking-about.html
-
-**Trump and David Ellison Fete Each Other, and CBS, as a Megadeal Looms**\
-`The president spoke for nearly an hour at a Paramount-hosted event that raised questions about journalistic and regulatory conflicts of interest.`\
-https://www.nytimes.com/2026/04/24/business/media/david-ellison-trump-cbs-news.html
 
