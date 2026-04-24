@@ -1,3 +1,7 @@
+**The ‘Lasting Damage’ of Pirro’s Abandoned Fed Investigation**\
+`The Trump administration’s attacks on the Federal Reserve have rattled confidence in the central bank’s ability to operate independently before a leadership transition.`\
+https://www.nytimes.com/2026/04/24/us/politics/federal-reserve-powell-pirro-investigation.html
+
 **The Looming Scorched-Earth Midterm Campaign**\
 `Republicans are likely to fall back on a tried-and-tested strategy for the midterms: Going negative.`\
 https://www.nytimes.com/2026/04/24/us/politics/republicans-midterms-campaign.html
