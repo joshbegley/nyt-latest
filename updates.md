@@ -1,3 +1,11 @@
+**Pentagon Fires Stars and Stripes’ Advocate for Independence**\
+`The newspaper’s ombudsman, Jacqueline Smith, said she had been given no reason for her dismissal.`\
+https://www.nytimes.com/2026/04/23/business/pentagon-fires-stars-and-stripes-ombudsman.html
+
+**Acrobat’s Display**\
+`Andrew Spooner returns to open our solving weekend.`\
+https://www.nytimes.com/2026/04/23/crosswords/daily-puzzle-2026-04-24.html
+
 **Soldier Used Classified Information to Bet on Maduro’s Ouster, U.S. Says**\
 `Federal prosecutors say that Sgt. Gannon Ken Van Dyke, who was involved in the operation to oust Nicolás Maduro from power in Venezuela, used the information to place bets on a prediction market.`\
 https://www.nytimes.com/2026/04/23/nyregion/polymarket-maduro-indictment-soldier.html
