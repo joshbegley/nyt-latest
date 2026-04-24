@@ -1,3 +1,7 @@
+**One of Two Missing Florida Doctoral Students Is Found Dead, Officials Say**\
+`The University of South Florida students were reported missing last week. A roommate of the student whose body was found was charged in connection with his disappearance.`\
+https://www.nytimes.com/2026/04/24/us/usf-students-missing-body-found.html
+
 **Kenyan Court Strikes Down Ruling Protecting Right to Abortion**\
 `The decision, in a country where thousands of women die yearly from unsafe abortions, held that abortions deprive unborn children of the “right to life.”`\
 https://www.nytimes.com/2026/04/24/world/africa/kenya-court-abortion-ruling.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/world/middleeast/100000010837758/no-warnings-how-i
 **U.S. Unveils More Sanctions Targeting Iran’s Shadow Fleet**\
 `The Treasury Department also targeted a top independent Chinese refinery that it said was a major buyer of Iranian petroleum.`\
 https://www.nytimes.com/2026/04/24/world/middleeast/iran-sanctions-oil-tankers-shadow-fleet.html
-
-**A Dinner in Honolulu That Included an Impromptu Ukulele Jam Session**\
-`The chef Sheldon Simeon celebrated his new cookbook with a low-key feast at an over-the-top venue.`\
-https://www.nytimes.com/2026/04/24/t-magazine/sheldon-simeon-cookbook-dinner.html
 
