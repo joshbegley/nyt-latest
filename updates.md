@@ -1,3 +1,11 @@
+**While Advising Kennedy, Top Aide Had More Than $25 Million Stake in Wellness Company**\
+`Calley Means remained president of a company that relied on health savings accounts last year as the Trump administration developed policies to expand them.`\
+https://www.nytimes.com/2026/04/24/health/calley-means-truemed-trump-health-savings.html
+
+**It Was Just a Podcast. Now, It’s Kelce Land.**\
+`When Amazon gutted its podcast company, it built a new department that made creators kings, starting with the football stars Jason and Travis Kelce.`\
+https://www.nytimes.com/2026/04/24/business/media/jason-travis-kelce-amazon-podcast.html
+
 **Justice Department Drops Criminal Investigation Into the Fed**\
 `The decision to end the inquiry into Jerome H. Powell’s handling of the Federal Reserve’s renovation could allow Kevin M. Warsh, the president’s pick for Fed chair, to be confirmed.`\
 https://www.nytimes.com/2026/04/24/business/doj-investigation-federal-reserve-powell.html
