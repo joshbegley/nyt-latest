@@ -1,3 +1,7 @@
+**Jimmy Kimmel Roasts Trump at a Mock White House Correspondents’ Dinner**\
+`The late night host took “a page from the Kid Rock alternative halftime show,” which aired during the Super Bowl, in offering his own “all-American” version of the Washington tradition.`\
+https://www.nytimes.com/2026/04/24/arts/television/jimmy-kimmel-roasts-trump.html
+
 **Los sueños de Trump de un acorazado llevaron a la destitución de su secretario de Marina**\
 `El secretario de Marina, John Phelan, debía entregar el primero de los barcos del presidente en 2028. El plazo era casi imposible.`\
 https://www.nytimes.com/es/2026/04/24/espanol/estados-unidos/trump-acorazado-destitucion-secretario-marina.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/24/style/marian-lurio-jonathan-nguyen-wedding.ht
 **‘Sparks Flew’ When Two Crushes Reunited After Three Decades**\
 `Elizabeth Maresca and Nicholas Magarelli liked each other in high school, but they never dated. They reconnected in 2017. Both were divorced. Neither was looking for love.`\
 https://www.nytimes.com/2026/04/24/style/elizabeth-maresca-nicholas-magarelli-wedding.html
-
-**Quote of the Day: Iranian Expats in Dubai Feel Caught Between Home and Homeland**\
-`Quotation of the Day for Friday, April 24, 2026.`\
-https://www.nytimes.com/2026/04/23/pageoneplus/quote-of-the-day-iranian-expats-in-dubai-feel-caught-between-home-and-homeland.html
 
