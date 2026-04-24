@@ -1,3 +1,7 @@
+**Scientists Solve ‘Golden Orb’ Mystery**\
+`After more than two years of investigation, the U.S. National Oceanic and Atmospheric Administration have identified an unknown creature dubbed the “golden orb.” The orb perplexed researchers and enthusiasts of the deep sea around the world after it was found in 2023 near Alaska.`\
+https://www.nytimes.com/video/science/100000010861480/deep-sea-golden-orb.html
+
 **N.F.L. Style Will Never Beat N.B.A. Style**\
 `Plus: some great Japanese designers and a final thought on the press tour for “The Devil Wears Prada 2.”`\
 https://www.nytimes.com/2026/04/24/style/nfl-draft-style.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/24/nyregion/isis-bomb-attack-nyc-appeal.html
 **Escalating Clashes Test Newly Extended Israel-Lebanon Truce**\
 `The U.S.-mediated cease-fire halted an all-out war between Israel and Hezbollah, but their intensifying attacks on each other could put the truce at risk.`\
 https://www.nytimes.com/2026/04/24/world/middleeast/israel-lebanon-fighting-ceasefire.html
-
-**Review: She’s Conducting an Opera While Singing Its Starring Role**\
-`The soprano Barbara Hannigan, who also directed, is multitasking at the New York Philharmonic in a disturbingly resonant take on “La Voix Humaine.”`\
-https://www.nytimes.com/2026/04/24/arts/music/barbara-hannigan-la-voix-humaine-philharmonic-review.html
 
