@@ -1,3 +1,7 @@
+**‘Didi vs. Modi’: A Test for the Hindu Right in India’s Bengali Heartland**\
+`The party of Prime Minister Narendra Modi has been making gains in a state once beyond its grasp, but many decry an audit that removed nine million voters, many of them Muslim.`\
+https://www.nytimes.com/2026/04/24/world/asia/india-elections-modi-bengal.html
+
 **In Britain, 7 Unelected Lords Are Helping to Block an Assisted Dying Bill**\
 `A small group in the House of Lords has proposed hundreds of amendments that are helping stymie a bill that was meant to legalize medically assisted death for the terminally ill.`\
 https://www.nytimes.com/2026/04/24/world/europe/uk-assisted-dying-bill-lords.html
@@ -43,7 +47,7 @@ https://www.nytimes.com/2026/04/23/pageoneplus/quote-of-the-day-iranian-expats-i
 https://www.nytimes.com/video/world/middleeast/100000010860715/trump-ceasefire-israel-lebanon-hezbollah.html
 
 **Tornado Hits City in Oklahoma**\
-`The tornado damaged homes and struck an Air Force base in Enid, Okla., the local sheriff said. There were no immediate reports of injuries.`\
+`The tornado damaged homes and struck an Air Force base in Enid, Okla., the local sheriff said. Some people were injured.`\
 https://www.nytimes.com/2026/04/23/weather/tornado-oklahoma-enid.html
 
 **Congressman’s Gambit to Save Seat: He’ll Personally Match Each Donation**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/23/us/politics/trump-china-india-immigrants.html
 **Read the Indictment Charging a U.S. Solider With Insider Trading**\
 `The soldier, Master Sgt. Gannon Ken Van Dyke, who was stationed at Fort Bragg in North Carolina, made more than $400,000 by betting on different outcomes related to Venezuela after learning of the operation, federal prosecutors and the F.B.I. said.`\
 https://www.nytimes.com/interactive/2026/04/23/nyregion/maduro-betting-polymarket-soldier.html
-
-**Un soldado usó información clasificada para apostar por la captura de Maduro, según EE. UU.**\
-`Los fiscales federales afirman que el sargento Gannon Ken Van Dyke, quien participó en la operación para capturar a Nicolás Maduro, usó la información para hacer apuestas en un mercado de predicciones.`\
-https://www.nytimes.com/es/2026/04/23/espanol/estados-unidos/soldado-apuesta-captura-maduro.html
 
