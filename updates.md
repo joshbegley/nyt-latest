@@ -1,3 +1,15 @@
+**Trump Says Israel and Lebanon Agree to Extend Cease-Fire by Three Weeks**\
+`The president made the announcement after he hosted a meeting at the White House of Israeli and Lebanese diplomats.`\
+https://www.nytimes.com/2026/04/23/us/politics/israel-lebanon-ceasefire-trump.html
+
+**Conservative Lobbyist Hired Man to Violently Extort Client, U.S. Says**\
+`Before his arrest last month, Josh Nass, a lawyer, used his connections to lobby the Trump administration, including for a client seeking clemency.`\
+https://www.nytimes.com/2026/04/23/nyregion/conservative-lobbyist-indictment.html
+
+**U.S. Blew Through Expensive Weapons in Iran War**\
+`Commanders are concerned about the Pentagon’s shift of long-range precision weapons from the Asia-Pacific region to the Middle East, congressional officials say.`\
+https://www.nytimes.com/2026/04/23/us/politics/iran-war-cost-military.html
+
 **Trump Officials Investigate N.Y.C. Schools Over Pro-Palestinian Group**\
 `The federal Department of Education said it would begin a civil rights investigation, reviewing teachings by a group known as N.Y.C. Educators for Palestine.`\
 https://www.nytimes.com/2026/04/23/nyregion/nyc-schools-trump-civil-rights-investigation.html
