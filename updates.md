@@ -1,3 +1,11 @@
+**Read the Indictment Charging a U.S. Solider With Insider Trading**\
+`The soldier, Master Sgt. Gannon Ken Van Dyke, who was stationed at Fort Bragg in North Carolina, made more than $400,000 by betting on different outcomes related to Venezuela after learning of the operation, federal prosecutors and the F.B.I. said.`\
+https://www.nytimes.com/interactive/2026/04/23/nyregion/23met-maduro-betting.html
+
+**Un soldado usó información clasificada para apostar por la captura de Maduro, según EE. UU.**\
+`Un soldado del ejército de EE. UU. que participó en la operación para capturar a Nicolás Maduro ha sido acusado de usar información clasificada para apostar en Polymarket, según dijeron las autoridades federales el jueves por la noche.`\
+https://www.nytimes.com/es/2026/04/23/espanol/estados-unidos/soldado-apuesta-captura-maduro.html
+
 **Trump Says Israel and Lebanon Agree to Extend Cease-Fire by Three Weeks**\
 `The president made the announcement after he hosted a meeting at the White House of Israeli and Lebanese diplomats.`\
 https://www.nytimes.com/2026/04/23/us/politics/israel-lebanon-ceasefire-trump.html

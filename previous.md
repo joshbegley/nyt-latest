@@ -1,3 +1,11 @@
+**Read the Indictment Charging a U.S. Solider With Insider Trading**\
+`The soldier, Master Sgt. Gannon Ken Van Dyke, who was stationed at Fort Bragg in North Carolina, made more than $400,000 by betting on different outcomes related to Venezuela after learning of the operation, federal prosecutors and the F.B.I. said.`\
+https://www.nytimes.com/interactive/2026/04/23/nyregion/23met-maduro-betting.html
+
+**Un soldado usó información clasificada para apostar por la captura de Maduro, según EE. UU.**\
+`Un soldado del ejército de EE. UU. que participó en la operación para capturar a Nicolás Maduro ha sido acusado de usar información clasificada para apostar en Polymarket, según dijeron las autoridades federales el jueves por la noche.`\
+https://www.nytimes.com/es/2026/04/23/espanol/estados-unidos/soldado-apuesta-captura-maduro.html
+
 **Trump Says Israel and Lebanon Agree to Extend Cease-Fire by Three Weeks**\
 `The president made the announcement after he hosted a meeting at the White House of Israeli and Lebanese diplomats.`\
 https://www.nytimes.com/2026/04/23/us/politics/israel-lebanon-ceasefire-trump.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/23/business/nike-layoffs-turnaround.html
 **The Artist Making Work About Sweat, Ghosts and the Rivers of Pittsburgh**\
 `With Project Blue Space, the sculptor and image maker Shikeith brings the city’s Black history to the surface.`\
 https://www.nytimes.com/2026/04/23/t-magazine/shikeith-project-blue-space.html
-
-**Trump Keeps Talking About Iran’s ‘Nuclear Dust.’ What Is It?**\
-`First of all, it isn’t dust. It’s Iran’s stockpile of near-bomb-grade uranium, which is stored in large canisters about the size of scuba tanks.`\
-https://www.nytimes.com/2026/04/23/us/politics/trump-iran-nuclear-dust-uranium.html
-
-**Do We All Need a Little Bitcoin?**\
-`Stability is the single biggest lie in financial markets, the investor and Bitcoin evangelist Anthony Pompliano tells the columnist Ross Douthat on “Interesting Times.” The “volatility generation” is embracing Bitcoin because traditional assets like Treasuries are actually designed to lose money, he argues.`\
-https://www.nytimes.com/video/opinion/100000010848698/do-we-all-need-a-little-bitcoin.html
 
