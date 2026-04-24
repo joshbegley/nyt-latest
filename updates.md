@@ -1,3 +1,15 @@
+**Scientists Solve ‘Golden Orb’ Mystery**\
+`After more than two years of investigation, the U.S. National Oceanic and Atmospheric Administration have identified an unknown creature dubbed the “golden orb.” The orb perplexed researchers and enthusiasts of the deep sea around the world after it was found in 2023 near Alaska.`\
+https://www.nytimes.com/video/science/100000010861480/deep-sea-golden-orb.html
+
+**N.F.L. Style Will Never Beat N.B.A. Style**\
+`Plus: some great Japanese designers and a final thought on the press tour for “The Devil Wears Prada 2.”`\
+https://www.nytimes.com/2026/04/24/style/nfl-draft-style.html
+
+**Turkey Passes Legislation Barring Children Under 15 From Social Media**\
+`The government says the measure, which must be signed into law by the president, will protect minors. Critics worry it will threaten free speech and privacy online.`\
+https://www.nytimes.com/2026/04/24/world/europe/turkey-ban-children-social-media.html
+
 **La guerra contra Irán ha reducido el arsenal de EE. UU.**\
 `La prisa del Pentágono por rearmar sus fuerzas en Medio Oriente lo deja menos preparado para enfrentarse a adversarios potenciales como Rusia y China, afirman funcionarios.`\
 https://www.nytimes.com/es/2026/04/24/espanol/estados-unidos/armas-ejercito-pentagono-guerra-iran.html
