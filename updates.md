@@ -1,3 +1,15 @@
+**Trump Administration Approves Firing Squad Executions for Death Penalty**\
+`The Justice Department also reauthorized the use of a death penalty drug, and will seek to shorten the length of some legal appeals.`\
+https://www.nytimes.com/2026/04/24/us/politics/trump-firing-squad-executions-death-penalty.html
+
+**Britain and Spain Reject Reported Plans by Trump to Punish Them**\
+`An internal Pentagon email, reported by the Reuters news agency, suggested Washington was reviewing options to penalize the two nations for insufficiently supporting the war in Iran.`\
+https://www.nytimes.com/2026/04/24/world/europe/trump-britain-spain-falklands.html
+
+**The Warning Signs Were There in Louisiana. Why Did We Miss Them?**\
+`Two recent fatal shootings underscore the need to encourage the use of an assessment tool.`\
+https://www.nytimes.com/2026/04/24/opinion/the-20-questions-that-can-prevent-domestic-violence-homicide.html
+
 **He Said ISIS Inspired His Attack. Does That Count as Supporting Terrorists?**\
 `A federal appeals court threw out a conviction that said Akayed Ullah provided “material support” to ISIS, putting a prosecutorial tool under the microscope.`\
 https://www.nytimes.com/2026/04/24/nyregion/isis-bomb-attack-nyc-appeal.html

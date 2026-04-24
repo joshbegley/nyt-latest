@@ -1,3 +1,11 @@
+**Trump Administration Approves Firing Squad Executions for Death Penalty**\
+`The Justice Department also reauthorized the use of a death penalty drug, and will seek to shorten the length of some legal appeals.`\
+https://www.nytimes.com/2026/04/24/us/politics/trump-firing-squad-executions-death-penalty.html
+
+**Britain and Spain Reject Reported Plans by Trump to Punish Them**\
+`An internal Pentagon email, reported by the Reuters news agency, suggested Washington was reviewing options to penalize the two nations for insufficiently supporting the war in Iran.`\
+https://www.nytimes.com/2026/04/24/world/europe/trump-britain-spain-falklands.html
+
 **He Said ISIS Inspired His Attack. Does That Count as Supporting Terrorists?**\
 `A federal appeals court threw out a conviction that said Akayed Ullah provided “material support” to ISIS, putting a prosecutorial tool under the microscope.`\
 https://www.nytimes.com/2026/04/24/nyregion/isis-bomb-attack-nyc-appeal.html
@@ -54,7 +62,7 @@ https://www.nytimes.com/2026/04/24/health/calley-means-truemed-trump-health-savi
 `When Amazon gutted its podcast company, it built a new department that made creators kings, starting with the football stars Jason and Travis Kelce.`\
 https://www.nytimes.com/2026/04/24/business/media/jason-travis-kelce-amazon-podcast.html
 
-**The 20 Questions That Can Prevent Domestic Violence Homicide**\
+**The Warning Signs Were There in Louisiana. Why Did We Miss Them?**\
 `Two recent fatal shootings underscore the need to encourage the use of an assessment tool.`\
 https://www.nytimes.com/2026/04/24/opinion/the-20-questions-that-can-prevent-domestic-violence-homicide.html
 
@@ -65,12 +73,4 @@ https://www.nytimes.com/2026/04/24/nyregion/buffalo-murder-guilty-trial.html
 **Noah Kahan Is Caught in the In-Between on ‘The Great Divide’**\
 `The singer-songwriter’s “Stick Season” was an unexpected smash. On its follow-up he sings about fame, complex relationships and the future with a sharper perspective.`\
 https://www.nytimes.com/2026/04/24/arts/music/noah-kahan-the-great-divide-review.html
-
-**The California City With Tiny Oranges and Pink Sunsets**\
-`Surrounded by citrus groves and hiking trails, Ojai is an irresistible escape for nature enthusiasts, spiritual seekers and fans of giant tortoises.`\
-https://www.nytimes.com/2026/04/24/t-magazine/ojai-california-tiny-oranges-pink-sunsets.html
-
-**This May Just Be the Springiest Gnocchi**\
-`Skillet gnocchi with miso butter and asparagus, and more of our most popular recipes from the week.`\
-https://www.nytimes.com/2026/04/24/dining/this-may-just-be-the-springiest-gnocchi.html
 
