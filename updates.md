@@ -1,3 +1,11 @@
+**$450 Million Worth of Newhouse Trophies Come to Christie’s**\
+`A special May evening sale will feature 16 artworks from the museum-quality collection of the Condé Nast chief S.I. Newhouse Jr.`\
+https://www.nytimes.com/2026/04/24/arts/design/newhouse-art-collection-christies-sale.html
+
+**Both Iran and U.S. Blockade Strait of Hormuz**\
+`The foes are trying to exert control over the narrow passageway. Most ships aren’t moving. Here’s what to know.`\
+https://www.nytimes.com/2026/04/24/world/middleeast/iran-us-strait-of-hormuz-blockade.html
+
 **The California City With Tiny Oranges and Pink Sunsets**\
 `Surrounded by citrus groves and hiking trails, Ojai is an irresistible escape for nature enthusiasts, spiritual seekers and fans of giant tortoises.`\
 https://www.nytimes.com/2026/04/24/t-magazine/ojai-california-tiny-oranges-pink-sunsets.html
