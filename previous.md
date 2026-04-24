@@ -1,3 +1,7 @@
+**La guerra contra Irán ha reducido el arsenal de EE. UU.**\
+`La prisa del Pentágono por rearmar sus fuerzas en Medio Oriente lo deja menos preparado para enfrentarse a adversarios potenciales como Rusia y China, afirman funcionarios.`\
+https://www.nytimes.com/es/2026/04/24/espanol/estados-unidos/armas-ejercito-pentagono-guerra-iran.html
+
 **¿Cómo evitar las caídas en casa?**\
 `Los tropiezos y resbalones en casa pueden ocurrirle a cualquiera, pero pueden evitarse con unas cuantas medidas sencillas.`\
 https://www.nytimes.com/es/2026/04/24/espanol/estilos-de-vida/caidas-como-prevenir.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/24/us/politics/white-house-texts-records-lawsuit
 **$450 Million Worth of Newhouse Trophies Come to Christie’s**\
 `A special May evening sale will feature 16 artworks from the museum-quality collection of the Condé Nast chief S.I. Newhouse Jr.`\
 https://www.nytimes.com/2026/04/24/arts/design/newhouse-art-collection-christies-sale.html
-
-**Both Iran and U.S. Blockade Strait of Hormuz**\
-`The foes are trying to exert control over the narrow passageway. Most ships aren’t moving. Here’s what to know.`\
-https://www.nytimes.com/2026/04/24/world/middleeast/iran-us-strait-of-hormuz-blockade.html
 

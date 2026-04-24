@@ -1,3 +1,7 @@
+**La guerra contra Irán ha reducido el arsenal de EE. UU.**\
+`La prisa del Pentágono por rearmar sus fuerzas en Medio Oriente lo deja menos preparado para enfrentarse a adversarios potenciales como Rusia y China, afirman funcionarios.`\
+https://www.nytimes.com/es/2026/04/24/espanol/estados-unidos/armas-ejercito-pentagono-guerra-iran.html
+
 **¿Cómo evitar las caídas en casa?**\
 `Los tropiezos y resbalones en casa pueden ocurrirle a cualquiera, pero pueden evitarse con unas cuantas medidas sencillas.`\
 https://www.nytimes.com/es/2026/04/24/espanol/estilos-de-vida/caidas-como-prevenir.html
