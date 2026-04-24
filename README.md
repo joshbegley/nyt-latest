@@ -1,3 +1,11 @@
+**$100 Million Award Made in Suit Over Unlicensed Robert Indiana Art**\
+`A New York jury found that an art publisher who made works derived from Indiana’s images had infringed on the rights of a company that had been the artist’s partner.`\
+https://www.nytimes.com/2026/04/24/arts/design/robert-indiana-lawsuit-verdict.html
+
+**31 Sloths Acquired by an Orlando Animal Attraction Died, Officials Say**\
+`Many of the deaths were attributed to a lack of heat at an unauthorized warehouse that Sloth World was using, officials said.`\
+https://www.nytimes.com/2026/04/24/us/sloth-deaths-orlando.html
+
 **The ‘Lasting Damage’ of Pirro’s Abandoned Fed Investigation**\
 `The Trump administration’s attacks on the Federal Reserve have rattled confidence in the central bank’s ability to operate independently before a leadership transition.`\
 https://www.nytimes.com/2026/04/24/us/politics/federal-reserve-powell-pirro-investigation.html
@@ -14,7 +22,7 @@ https://www.nytimes.com/2026/04/24/arts/music/wayne-moss-dead.html
 `Guidelines for the art contest, sponsored by the group Freedom 250, include material about abolitionists and civil rights leaders, but little mention of what they fought against.`\
 https://www.nytimes.com/2026/04/24/arts/trump-garden-heroes-king.html
 
-**U.S. Sending Kushner and Witkoff to Pakistan to Resume Talks With Iran**\
+**U.S. Sending Kushner and Witkoff to Pakistan to Resume Iran Talks**\
 `Iran’s foreign minister has already arrived in the country, state media reported. He was believed to be carrying a written response to a U.S. proposal to end the war.`\
 https://www.nytimes.com/2026/04/24/world/middleeast/kushner-witkoff-pakistan-iran.html
 
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/24/business/media/david-ellison-trump-cbs-news.h
 **Judge Imposes Sanctions on Woman and Her Lawyer in Suit Against Leon Black**\
 `A federal judge said the lawyer representing an unnamed plaintiff who accused the billionaire investor of abusing her had “lied repeatedly to the court.”`\
 https://www.nytimes.com/2026/04/24/business/lawsuit-leon-black-plaintiff-sanctions-epstein.html
-
-**11 Standout Moments From Salone del Mobile**\
-`Milan’s annual design fair showcased contemporary creations, as well as midcentury homes not typically open to the public.`\
-https://www.nytimes.com/2026/04/24/t-magazine/salone-del-mobile-highlights-milan-design.html
-
-**Why Are Politicians Dropping So Many F-Bombs?**\
-`Times reporters had a hunch that politicians were using the F-word more than ever. So they analyzed the data and found an interesting trend: Democrats are swearing far more than Republicans. Our reporter Kellen Browning breaks down why.`\
-https://www.nytimes.com/video/us/politics/100000010838842/why-are-politicians-dropping-so-many-f-bombs.html
 
