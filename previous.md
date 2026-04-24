@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/24/world/iran-war-trump-hormuz/heres-the-latest
+
 **De productos baratos a símbolo de innovación: China gana terreno en Indonesia**\
 `Para muchos consumidores, “hecho en China” ya no significa bajo costo, sino tecnología y modernidad.`\
 https://www.nytimes.com/es/2026/04/24/espanol/negocios/china-marcas-exito-indonesia.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/24/pageoneplus/corrections-april-24-2026.html
 **Instead of the Bouquet, She Caught a Groomsman’s Attention**\
 `Krystal Miller and Brandon Manning’s first meeting at a wedding was a bit awkward. But by their second date, their chemistry was undeniable, and Ms. Miller knew she was falling in love.`\
 https://www.nytimes.com/2026/04/24/style/brandon-manning-krystal-miller-wedding.html
-
-**From Kissing One Guy in 20 Years to 11 in a Month**\
-`My husband leaving nearly broke me. I tried to put myself back together by dating for the first time in my life.`\
-https://www.nytimes.com/2026/04/24/style/modern-love-divorce-hinge-kissing-one-guy-for-20-years-11-in-a-month.html
 
