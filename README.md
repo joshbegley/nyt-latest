@@ -1,3 +1,15 @@
+**Trump Extends Waiver Allowing Foreign Ships to Move Goods Between U.S. Ports**\
+`The move was intended to ensure the flow of fuel in the United States, but some economists say it might reduce gas prices for consumers only a small amount.`\
+https://www.nytimes.com/2026/04/24/world/middleeast/trump-extends-waiver-allowing-foreign-ships-to-move-goods-between-us-ports.html
+
+**How Kevin Warsh Could Shrink the Fed’s Footprint in Financial Markets**\
+`President Trump’s nominee to become the next chair of the Federal Reserve wants to overhaul the central bank, including its more than $6 trillion balance sheet.`\
+https://www.nytimes.com/2026/04/24/us/politics/kevin-warsh-fed-rates-balance-sheet.html
+
+**California 40th Congressional District 2026: Latest Polls**\
+`Track the latest polls in California's 40th Congressional District.`\
+https://www.nytimes.com/interactive/polls/california-us-house-40-polls-2026.html
+
 **Soy uno de los presos políticos de Cuba. ¿Cuándo seré libre?**\
 `Casi cinco años en una cárcel cubana me han enseñado que el gobierno no cederá en su control del poder.`\
 https://www.nytimes.com/es/2026/04/24/espanol/opinion/cuba-presos-politicos-trump.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/24/podcasts/the-daily/trump-iran-war.html
 **Trump’s Approval Drops to New Low, and Condom Prices Rise Because of the War**\
 `Plus, your Friday news quiz.`\
 https://www.nytimes.com/2026/04/24/podcasts/the-headlines/trump-approval-rating-war-condom-prices.html
-
-**Wordle Review No. 1,771**\
-`Scroll down for hints and conversation about the puzzle for Saturday, April 25, 2026.`\
-https://www.nytimes.com/2026/04/24/crosswords/wordle-review-1771.html
-
-**Strands Sidekick No. 783**\
-`Scroll down for hints and conversation about the puzzle for Saturday, April 25, 2026.`\
-https://www.nytimes.com/2026/04/24/crosswords/strands-sidekick-783.html
-
-**Connections Companion No. 1,049**\
-`Scroll down for hints and conversation about the puzzle for Saturday, April 25, 2026.`\
-https://www.nytimes.com/2026/04/24/crosswords/connections-companion-1049.html
 
