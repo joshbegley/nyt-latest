@@ -1,3 +1,7 @@
+**Trump and David Ellison Fete Each Other, and CBS, as a Megadeal Looms**\
+`The president spoke for nearly an hour at a Paramount-hosted event that raised questions about journalistic and regulatory conflicts of interest.`\
+https://www.nytimes.com/2026/04/24/business/media/david-ellison-trump-cbs-news.html
+
 **Judge Imposes Sanctions on Woman and Her Lawyer in Suit Against Leon Black**\
 `A federal judge said that the lawyer representing an unnamed plaintiff who accused the billionaire investor of abusing her had “lied repeatedly to the Court.”`\
 https://www.nytimes.com/2026/04/24/business/lawsuit-leon-black-plaintiff-sanctions-epstein.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/science/100000010861480/deep-sea-golden-orb.html
 **N.F.L. Style Will Never Beat N.B.A. Style**\
 `Plus: some great Japanese designers and a final thought on the press tour for “The Devil Wears Prada 2.”`\
 https://www.nytimes.com/2026/04/24/style/nfl-draft-style.html
-
-**Turkey Passes Legislation Barring Children Under 15 From Social Media**\
-`The government says the measure, which must be signed into law by the president, will protect minors. Critics worry it will threaten free speech and privacy online.`\
-https://www.nytimes.com/2026/04/24/world/europe/turkey-ban-children-social-media.html
 
