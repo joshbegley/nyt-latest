@@ -38,8 +38,8 @@ https://www.nytimes.com/2026/04/24/business/strait-hormuz-ship-captain.html
 `The former interior secretary seemed to have an easy path to becoming the first woman and Native American to be New Mexico’s governor — until Sam Bregman challenged her.`\
 https://www.nytimes.com/2026/04/24/us/elections/deb-haaland-sam-bregman-new-mexico-governor.html
 
-**Justice Department Drops Criminal Investigation Into Fed**\
-`The decision to end the investigation into Jerome H. Powell’s handling of the Federal Reserve’s renovation will allow Kevin M. Warsh, President Trump’s pick for Fed chair, to win confirmation.`\
+**Justice Department Drops Criminal Investigation Into the Fed**\
+`The decision to end the inquiry into Jerome H. Powell’s handling of the Federal Reserve’s renovation could allow Kevin M. Warsh, the president’s pick for Fed chair, to be confirmed.`\
 https://www.nytimes.com/2026/04/24/business/doj-investigation-federal-reserve-powell.html
 
 **Trump Extends Waiver Allowing Foreign Ships to Move Goods Between U.S. Ports**\

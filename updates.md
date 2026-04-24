@@ -1,3 +1,7 @@
+**The 20 Questions That Can Prevent Domestic Violence Homicide**\
+`Two recent fatal shootings underscore the need to encourage the use of an assessment tool.`\
+https://www.nytimes.com/2026/04/24/opinion/the-20-questions-that-can-prevent-domestic-violence-homicide.html
+
 **After 33 Years and Three Trials, a Conviction in a Grisly Murder**\
 `Brian Scott Lorenz was convicted of murdering Deborah Meindl, a 33-year-old nursing student who walked into her Tonawanda, N.Y., home on a cold February afternoon and never walked out.`\
 https://www.nytimes.com/2026/04/24/nyregion/buffalo-murder-guilty-trial.html
