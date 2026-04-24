@@ -1,3 +1,7 @@
+**Mamdani Expected to Reject Bill Involving Police at School Protests**\
+`The bill would compel the police to release plans on how it intends to manage protesters by educational facilities. It passed without a veto-proof majority.`\
+https://www.nytimes.com/2026/04/24/nyregion/mamdani-buffer-zones-veto.html
+
 **Ignoring the War Has Been Working for Long-Term Investors**\
 `The U.S. stock market’s quick rebound this month may be fragile, but riding out the market’s disconcerting waves has been a sound strategy.`\
 https://www.nytimes.com/2026/04/24/business/iran-war-stocks-bonds-investing.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/24/opinion/ezra-klein-podcast-stewart-brand.html
 **The New York Times News Quiz, April 24, 2026**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://www.nytimes.com/interactive/2026/04/24/briefing/news-quiz-trump-warsh.html
-
-**The Conspiracy Theory Behind Tucker Carlson’s Apology**\
-`Rather than honestly reckoning with their role in America’s derangement, MAGA apostates are creating a scapegoat to explain it away.`\
-https://www.nytimes.com/2026/04/24/opinion/conspiracy-theory-tucker-antisemitism.html
 
