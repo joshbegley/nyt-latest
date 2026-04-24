@@ -1,3 +1,7 @@
+**Rubio Says Iran’s Soccer Team Can Attend World Cup**\
+`Secretary of State Marco Rubio said that while the players were welcome, anyone accompanying them who has links to the Iranian military would be denied entry.`\
+https://www.nytimes.com/2026/04/24/us/politics/trump-rubio-iran-world-cup.html
+
 **De los bombardeos a las tensas negociaciones: el estado de la guerra en Irán**\
 `El conflicto se ha transformado en un enfrentamiento volátil en el estrecho de Ormuz, a medida que aumentan los costes económicos y el presidente Trump se enfrenta a una reacción política interna.`\
 https://www.nytimes.com/es/2026/04/24/espanol/mundo/estrecho-ormuz-iran-guerra.html
