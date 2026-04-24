@@ -1,3 +1,7 @@
+**Gambling Companies Celebrate Indictments as Pressure Grows**\
+`Gambling companies have cited recent federal charges as proof that illegal activity is being rooted out. The companies’ critics say the cases do not address widespread illicit activity.`\
+https://www.nytimes.com/2026/04/24/nyregion/gambling-companies-indictments-regulation.html
+
 **‘No Warnings’: How Israel’s Deadly Airstrikes Unfolded in Central Beirut**\
 `On April 8, just hours into a ceasefire agreement between the U.S. and Iran, the Israeli military carried out its most intense bombing campaign in Lebanon this year. The New York Times took a closer look at the deadly strikes in Beirut.`\
 https://www.nytimes.com/video/world/middleeast/100000010837758/no-warnings-how-israels-deadly-airstrikes-unfolded-in-central-beirut.html
