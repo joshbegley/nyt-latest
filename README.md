@@ -1,3 +1,11 @@
+**While Advising Kennedy, Top Aide Had More Than $25 Million Stake in Wellness Company**\
+`Calley Means remained president of a company that relied on health savings accounts last year as the Trump administration developed policies to expand them.`\
+https://www.nytimes.com/2026/04/24/health/calley-means-truemed-trump-health-savings.html
+
+**It Was Just a Podcast. Now, It’s Kelce Land.**\
+`When Amazon gutted its podcast company, it built a new department that made creators kings, starting with the football stars Jason and Travis Kelce.`\
+https://www.nytimes.com/2026/04/24/business/media/jason-travis-kelce-amazon-podcast.html
+
 **The 20 Questions That Can Prevent Domestic Violence Homicide**\
 `Two recent fatal shootings underscore the need to encourage the use of an assessment tool.`\
 https://www.nytimes.com/2026/04/24/opinion/the-20-questions-that-can-prevent-domestic-violence-homicide.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/24/nyregion/mamdani-nyc-deed-theft.html
 **California Seventh Congressional District 2026: Latest Polls**\
 `Track the latest polls in California's 7th Congressional District.`\
 https://www.nytimes.com/interactive/polls/california-us-house-7-polls-2026.html
-
-**Mamdani Rejects Bill Involving Police at School Protests**\
-`The veto, Zohran Mamdani’s first as mayor, scraps a bill that would have compelled the Police Department to release plans on how it intends to manage protesters near educational facilities.`\
-https://www.nytimes.com/2026/04/24/nyregion/mamdani-buffer-zones-veto.html
-
-**Ignoring the War Has Been Working for Long-Term Investors**\
-`The U.S. stock market’s quick rebound this month may be fragile, but riding out the market’s disconcerting waves has been a sound strategy.`\
-https://www.nytimes.com/2026/04/24/business/iran-war-stocks-bonds-investing.html
 

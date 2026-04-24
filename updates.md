@@ -1,3 +1,7 @@
+**Justice Department Drops Criminal Investigation Into the Fed**\
+`The decision to end the inquiry into Jerome H. Powell’s handling of the Federal Reserve’s renovation could allow Kevin M. Warsh, the president’s pick for Fed chair, to be confirmed.`\
+https://www.nytimes.com/2026/04/24/business/doj-investigation-federal-reserve-powell.html
+
 **The 20 Questions That Can Prevent Domestic Violence Homicide**\
 `Two recent fatal shootings underscore the need to encourage the use of an assessment tool.`\
 https://www.nytimes.com/2026/04/24/opinion/the-20-questions-that-can-prevent-domestic-violence-homicide.html
