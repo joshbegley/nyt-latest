@@ -1,3 +1,19 @@
+**He Said ISIS Inspired His Attack. Does That Count as Supporting Terrorists?**\
+`A federal appeals court threw out a conviction that said Akayed Ullah provided “material support” to ISIS, putting a prosecutorial tool under the microscope.`\
+https://www.nytimes.com/2026/04/24/nyregion/isis-bomb-attack-nyc-appeal.html
+
+**Escalating Clashes Test Newly Extended Israel-Lebanon Truce**\
+`The U.S.-mediated cease-fire halted an all-out war between Israel and Hezbollah, but their intensifying attacks on each other could put the truce at risk.`\
+https://www.nytimes.com/2026/04/24/world/middleeast/escalating-clashes-test-newly-extended-israel-lebanon-truce.html
+
+**Review: She’s Conducting an Opera While Singing Its Starring Role**\
+`The soprano Barbara Hannigan, who also directed, is multitasking at the New York Philharmonic in a disturbingly resonant take on “La Voix Humaine.”`\
+https://www.nytimes.com/2026/04/24/arts/music/barbara-hannigan-la-voix-humaine-philharmonic-review.html
+
+**White House Allowed Officials’ Text Messages to Be Deleted, Lawsuit Says**\
+`Two watchdogs say internal White House guidance that text messages need not be preserved unless “they are the sole record of official decision-making” contradicted the law.`\
+https://www.nytimes.com/2026/04/24/us/politics/white-house-texts-records-lawsuit.html
+
 **$450 Million Worth of Newhouse Trophies Come to Christie’s**\
 `A special May evening sale will feature 16 artworks from the museum-quality collection of the Condé Nast chief S.I. Newhouse Jr.`\
 https://www.nytimes.com/2026/04/24/arts/design/newhouse-art-collection-christies-sale.html
@@ -57,20 +73,4 @@ https://www.nytimes.com/2026/04/24/t-magazine/ojai-california-tiny-oranges-pink-
 **This May Just Be the Springiest Gnocchi**\
 `Skillet gnocchi with miso butter and asparagus, and more of our most popular recipes from the week.`\
 https://www.nytimes.com/2026/04/24/dining/this-may-just-be-the-springiest-gnocchi.html
-
-**Five Horror Movies to Stream Now**\
-`This month’s terrors include a monkey gone mad, a boundary-pushing robot and a playground with a thirst for babysitter blood.`\
-https://www.nytimes.com/2026/04/24/movies/five-horror-movies-to-stream-now.html
-
-**5 Tall Tasks for Apple’s New C.E.O.**\
-`John Ternus will face many of the same issues that Tim Cook has grappled with for years.`\
-https://www.nytimes.com/2026/04/24/technology/john-ternus-apple-challenges.html
-
-**France Investigates Temperature Spikes That Led to Big Payouts on Polymarket**\
-`The authorities said a Paris airport weather sensor may have been tampered with as large wagers were placed on the betting site.`\
-https://www.nytimes.com/2026/04/24/world/europe/polymarket-bets-france-paris-temperature-weather.html
-
-**The Peril of Piloting Ships Through the Strait of Hormuz**\
-`Controllers for shipping companies face a daunting decision as they try to free vessels trapped in the Persian Gulf: “Basically you’re sending someone unarmed into war.”`\
-https://www.nytimes.com/2026/04/24/business/strait-hormuz-ship-captain.html
 

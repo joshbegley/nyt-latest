@@ -1,3 +1,19 @@
+**He Said ISIS Inspired His Attack. Does That Count as Supporting Terrorists?**\
+`A federal appeals court threw out a conviction that said Akayed Ullah provided “material support” to ISIS, putting a prosecutorial tool under the microscope.`\
+https://www.nytimes.com/2026/04/24/nyregion/isis-bomb-attack-nyc-appeal.html
+
+**Escalating Clashes Test Newly Extended Israel-Lebanon Truce**\
+`The U.S.-mediated cease-fire halted an all-out war between Israel and Hezbollah, but their intensifying attacks on each other could put the truce at risk.`\
+https://www.nytimes.com/2026/04/24/world/middleeast/escalating-clashes-test-newly-extended-israel-lebanon-truce.html
+
+**Review: She’s Conducting an Opera While Singing Its Starring Role**\
+`The soprano Barbara Hannigan, who also directed, is multitasking at the New York Philharmonic in a disturbingly resonant take on “La Voix Humaine.”`\
+https://www.nytimes.com/2026/04/24/arts/music/barbara-hannigan-la-voix-humaine-philharmonic-review.html
+
+**White House Allowed Officials’ Text Messages to Be Deleted, Lawsuit Says**\
+`Two watchdogs say internal White House guidance that text messages need not be preserved unless “they are the sole record of official decision-making” contradicted the law.`\
+https://www.nytimes.com/2026/04/24/us/politics/white-house-texts-records-lawsuit.html
+
 **$450 Million Worth of Newhouse Trophies Come to Christie’s**\
 `A special May evening sale will feature 16 artworks from the museum-quality collection of the Condé Nast chief S.I. Newhouse Jr.`\
 https://www.nytimes.com/2026/04/24/arts/design/newhouse-art-collection-christies-sale.html
