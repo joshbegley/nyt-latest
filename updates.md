@@ -1,3 +1,11 @@
+**Ignoring the War Has Been Working for Long-Term Investors**\
+`The U.S. stock market’s quick rebound this month may be fragile, but riding out the market’s disconcerting waves has been a sound strategy.`\
+https://www.nytimes.com/2026/04/24/business/iran-war-stocks-bonds-investing.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/us/politics/100000010861274/24vid-Hegseth-26416.html
+
 **Tornado Strikes an Air Force Base in Oklahoma**\
 `A large tornado in Oklahoma damaged homes and struck Vance Air Force Base in the city of Enid, officials said. The tornado came as severe weather threatened the central United States.`\
 https://www.nytimes.com/video/weather/100000010861081/tornado-oklahoma-damage-enid.html
