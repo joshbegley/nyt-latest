@@ -1,3 +1,7 @@
+**History of Domestic Abuse Can be Considered in Sentencing, Court Rules**\
+`The court ruled that prosecutors cannot make defendants who take a plea deal waive their right to a hearing that would allow their history of domestic abuse to be considered during sentencing.`\
+https://www.nytimes.com/2026/04/24/nyregion/domestic-abuse-sentencing.html
+
 **Did an Acid Trip Inspire the First Photo of Earth?**\
 `How did looking back at the Earth for the first time change humanity’s perspective? The legendary thinker Stewart Brand tells the Opinion columnist Ezra Klein why we need to shift our focus from “looking outward” to the essential, constant work of maintaining our civilizations and the planet itself.`\
 https://www.nytimes.com/video/opinion/100000010857817/did-an-acid-trip-inspire-the-first-photo-of-earth.html
