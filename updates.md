@@ -1,3 +1,7 @@
+**The Looming Scorched-Earth Midterm Campaign**\
+`Republicans are likely to fall back on a tried-and-tested strategy for the midterms: Going negative.`\
+https://www.nytimes.com/2026/04/24/us/politics/republicans-midterms-campaign.html
+
 **Wayne Moss, Guitarist Who Helped Broaden Country Sound, Dies at 88**\
 `A top Nashville musician, he played for Bob Dylan and on “Oh, Pretty Woman” and “Jolene,” and was in the country-rock groups Area Code 615 and Barefoot Jerry.`\
 https://www.nytimes.com/2026/04/24/arts/music/wayne-moss-dead.html

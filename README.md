@@ -1,3 +1,7 @@
+**The ‘Lasting Damage’ of Pirro’s Abandoned Fed Investigation**\
+`The Trump administration’s attacks on the Federal Reserve have rattled confidence in the central bank’s ability to operate independently before a leadership transition.`\
+https://www.nytimes.com/2026/04/24/us/politics/federal-reserve-powell-pirro-investigation.html
+
 **The Looming Scorched-Earth Midterm Campaign**\
 `Republicans are likely to fall back on a tried-and-tested strategy for the midterms: Going negative.`\
 https://www.nytimes.com/2026/04/24/us/politics/republicans-midterms-campaign.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/24/t-magazine/salone-del-mobile-highlights-milan
 **Why Are Politicians Dropping So Many F-Bombs?**\
 `Times reporters had a hunch that politicians were using the F-word more than ever. So they analyzed the data and found an interesting trend: Democrats are swearing far more than Republicans. Our reporter Kellen Browning breaks down why.`\
 https://www.nytimes.com/video/us/politics/100000010838842/why-are-politicians-dropping-so-many-f-bombs.html
-
-**Jet Fuel Shortages Could Make Travel a ‘Total Mess’ This Summer**\
-`Facing sky-high fuel costs linked to the war in Iran, airlines are cutting routes and raising prices. European vacations are looking a lot less affordable.`\
-https://www.nytimes.com/2026/04/24/travel/flight-cancellations-europe-summer-vacation.html
 
