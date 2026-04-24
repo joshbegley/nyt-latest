@@ -1,3 +1,11 @@
+**Tim Cook’s Legacy + The Future of U.B.I. With Andrew Yang + HatGPT**\
+`The highlights, the lowlights, and how Apple changed in the years since Tim Cook took over as chief executive.`\
+https://www.nytimes.com/2026/04/24/podcasts/hardfork-tim-cook-yang-ubi.html
+
+**Youth Suicides Drop**\
+`We are covering a success story today.`\
+https://www.nytimes.com/2026/04/24/briefing/youth-suicides-drop.html
+
 **This ‘Sustainable’ Island Is Venice’s Newest Art Oasis**\
 `Patrizia Sandretto Re Rebaudengo has turned a former gunpowder store into a showcase for her contemporary art collection.`\
 https://www.nytimes.com/2026/04/24/arts/san-giacomo-in-paludo-island-venice.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/es/2026/04/24/espanol/estilos-de-vida/ejercicio-rutina-c
 **Stewart Brand, Silicon Valley’s Favorite Prophet, on Life’s Most Important Principle**\
 `The counterculture icon is advocating values that are more countercultural than ever.`\
 https://www.nytimes.com/video/opinion/100000010857805/stewart-brand-silicon-valleys-favorite-prophet-on-lifes-most-important-principle.html
-
-**The Law on Metal Gates That Nearly Everyone Forgot About**\
-`In 2009, the City Council decided that roll-down metal gates could no longer be solid. The law goes into effect this summer, after 17 years.`\
-https://www.nytimes.com/2026/04/24/nyregion/metal-gates-city-council-law.html
-
-**Companies, Not Consumers, to Cash In Big From Tariff Refunds**\
-`Many families felt the sting of the president’s now-illegal tariffs, but companies have said little about whether they will share the $166 billion coming back to them.`\
-https://www.nytimes.com/2026/04/24/business/companies-consumers-tariff-refunds.html
 
