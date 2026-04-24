@@ -1,3 +1,11 @@
+**Venice Biennale Bars Awards for Art From Countries Accused of War Crimes**\
+`The jury said it would “refrain from considering” countries whose leaders are facing charges of crimes against humanity, which would affect Israel and Russia.`\
+https://www.nytimes.com/2026/04/24/arts/venice-biennale-russia-israel.html
+
+**Book Club: Let’s Talk About ‘The Renovation,’ by Kenan Orhan**\
+`The protagonist of this debut novel wants to get her bathroom upgraded. It becomes a portal to a Turkish prison cell instead.`\
+https://www.nytimes.com/2026/04/24/books/review/podcast-book-club-renovation-kenan-orhan.html
+
 **A Disputed Jet Deal and U.S. Influence Shake Peru’s Government**\
 `Pressure from Washington helped drive a disputed deal forward, triggering resignations and raising questions about sovereignty.`\
 https://www.nytimes.com/2026/04/24/world/americas/us-fighter-jet-deal-peru-government.html
