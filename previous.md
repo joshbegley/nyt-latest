@@ -1,3 +1,11 @@
+**Over 200,000 Heated Socks Sold at Costco Recalled After Reports of Burns**\
+`The socks, from the brand 32 Degrees, were linked to reports of first- and second-degree burns, according to U.S. product safety regulators.`\
+https://www.nytimes.com/2026/04/24/us/costco-recall-heated-socks-burn.html
+
+**Justice Dept. Closes Criminal Investigation of Fed Chair**\
+`Also, the U.S. is sending top envoys to Pakistan for Iran peace talks. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/04/24/briefing/fed-investigation-us-iran-peace-talks.html
+
 **‘No Warnings’: How Israel’s Deadly Airstrikes Unfolded in Central Beirut**\
 `On April 8, just hours into a ceasefire agreement between the U.S. and Iran, the Israeli military carried out its most intense bombing campaign in Lebanon this year. The New York Times took a closer look at the deadly strikes in Beirut.`\
 https://www.nytimes.com/video/world/middleeast/100000010837758/no-warnings-how-israels-deadly-airstrikes-unfolded-in-central-beirut.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/24/nyregion/mamdani-king-visit-new-york.html
 **Screens**\
 `What do you think this image is communicating?`\
 https://www.nytimes.com/2026/04/24/learning/screens.html
-
-**A Common Stomach Bug Has Become Harder to Treat**\
-`A growing share of shigella infections are drug-resistant, the C.D.C. warns in a new report.`\
-https://www.nytimes.com/2026/04/24/well/drug-resistant-shigella-xdr.html
-
-**Maine Governor Vetoes Bill That Would Have Paused New Data Centers**\
-`Gov. Janet Mills said she rejected what would have been the nation’s first moratorium on data centers because it failed to exempt a project in a distressed mill town.`\
-https://www.nytimes.com/2026/04/24/us/maine-moratorium-data-center-vetoed.html
 

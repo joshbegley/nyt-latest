@@ -1,3 +1,11 @@
+**Over 200,000 Heated Socks Sold at Costco Recalled After Reports of Burns**\
+`The socks, from the brand 32 Degrees, were linked to reports of first- and second-degree burns, according to U.S. product safety regulators.`\
+https://www.nytimes.com/2026/04/24/us/costco-recall-heated-socks-burn.html
+
+**Justice Dept. Closes Criminal Investigation of Fed Chair**\
+`Also, the U.S. is sending top envoys to Pakistan for Iran peace talks. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/04/24/briefing/fed-investigation-us-iran-peace-talks.html
+
 **Gambling Companies Celebrate Indictments as Pressure Grows**\
 `Gambling companies have cited recent federal charges as proof that illegal activity is being rooted out. The companies’ critics say the cases do not address widespread illicit activity.`\
 https://www.nytimes.com/2026/04/24/nyregion/gambling-companies-indictments-regulation.html
