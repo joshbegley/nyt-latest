@@ -1,3 +1,7 @@
+**Trump Says He Dislikes Prediction Markets. His Family Invests in Them.**\
+`The White House has warned staff not to wager on government decisions, but his family’s involvement with these firms undermines the president’s message.`\
+https://www.nytimes.com/2026/04/24/us/politics/trump-prediction-markets.html
+
 **Michael Harrison, 67, Dies; Composer (and Inventor) Played With Tuning**\
 `Influenced by Indian raga and nontraditional tuning systems, he created hypnotic works with a spiritual bent and created an unconventional piano.`\
 https://www.nytimes.com/2026/04/24/arts/music/michael-harrison-dead.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/interactive/2026/04/24/upshot/flashback.html
 `The indictment of a soldier who bet on the U.S. operation to capture President Nicolás Maduro of Venezuela put renewed focus on a new way to gamble, and a new way to cheat.`\
 https://www.nytimes.com/2026/04/24/business/what-are-prediction-markets.html
 
-**Inside the Time 100 Gala: Where Victoria and David Beckham Dine with MrBeast**\
+**Inside the Time 100 Gala: Where Victoria and David Beckham Dine With MrBeast**\
 `Titans of influence filled the Deutsche Bank Center in Manhattan on Thursday night for an evening of selfies and self-congratulation.`\
 https://www.nytimes.com/2026/04/24/style/time-100-gala.html
 
@@ -69,8 +73,4 @@ https://www.nytimes.com/interactive/polls/california-us-house-6-polls-2026.html
 **Today, In Short**\
 `Cherry blossoms. A TikTok rabbi. And how to organize your freezer.`\
 https://www.nytimes.com/2026/04/24/briefing/today-in-short.html
-
-**California Third Congressional District 2026: Latest Polls**\
-`Track the latest polls in California's 3rd Congressional District.`\
-https://www.nytimes.com/interactive/polls/california-us-house-3-polls-2026.html
 
