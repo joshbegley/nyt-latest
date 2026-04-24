@@ -1,3 +1,7 @@
+**Netanyahu Reveals He Had Prostate Cancer and Underwent Radiation Therapy**\
+`The Israeli leader had surgery in 2024 for an enlarged prostate. More recently, follow-up care detected a tumor, his office disclosed on Friday.`\
+https://www.nytimes.com/2026/04/24/world/middleeast/netanyahu-cancer-treatment.html
+
 **While Advising Kennedy, Top Aide Had More Than $25 Million Stake in Wellness Company**\
 `Calley Means remained president of a company that relied on health savings accounts last year as the Trump administration developed policies to expand them.`\
 https://www.nytimes.com/2026/04/24/health/calley-means-truemed-trump-health-savings.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/24/business/trump-airline-mergers-bailouts.html
 **Mamdani Creates Office to Fight Deed Theft in New York City**\
 `The office will seek to crack down on the practice, in which people fraudulently take ownership of others’ homes.`\
 https://www.nytimes.com/2026/04/24/nyregion/mamdani-nyc-deed-theft.html
-
-**California Seventh Congressional District 2026: Latest Polls**\
-`Track the latest polls in California's 7th Congressional District.`\
-https://www.nytimes.com/interactive/polls/california-us-house-7-polls-2026.html
 
