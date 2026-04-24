@@ -1,3 +1,7 @@
+**Tornado Hits City in Oklahoma**\
+`The tornado damaged homes and struck an Air Force base in Enid, Okla., the local sheriff said. There were no immediate reports of injuries.`\
+https://www.nytimes.com/2026/04/23/weather/tornado-oklahoma-enid.html
+
 **Trump Announces Cease-Fire Between Israel and Lebanon**\
 `President Trump said on Thursday that Israel and Lebanon had agreed to a three-week extension to a cease-fire. Hezbollah did not comment on the announcement.`\
 https://www.nytimes.com/video/world/middleeast/100000010860715/trump-ceasefire-israel-lebanon-hezbollah.html
