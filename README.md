@@ -1,3 +1,7 @@
+**Tornado Hits Eastern Oklahoma**\
+`The tornado damaged homes and struck an Air Force base in Enid, Okla., the local sheriff said. There were no immediate reports of injuries.`\
+https://www.nytimes.com/2026/04/23/weather/tornado-oklahoma-enid.html
+
 **Congressman’s Gambit to Save Seat: He’ll Personally Match Each Donation**\
 `Daniel Goldman is pledging at least $1 million of his own money, and possibly millions more, in hopes of fighting off a primary challenge from Brad Lander in New York City.`\
 https://www.nytimes.com/2026/04/23/nyregion/dan-goldman-brad-lander-congress.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/23/espanol/america-latina/mexico-accidente-in
 **Intel’s Revenues Soar, Aided by A.I. Boom**\
 `The chip maker reported a 7 percent rise to $13.6 billion in its latest quarter, more than $1 billion more than Wall Street expected.`\
 https://www.nytimes.com/2026/04/23/technology/intel-ai-earnings.html
-
-**Doug Allan, Polar Cameraman for David Attenborough’s Films, Dies at 74**\
-`He was renowned for his skill at capturing candid scenes of penguins, polar bears and other cold-weather creatures — and for his ability to tolerate extreme discomfort.`\
-https://www.nytimes.com/2026/04/23/science/doug-allan-dead.html
 
