@@ -1,3 +1,11 @@
+**‘Didi vs. Modi’: A Test for the Hindu Right in India’s Bengali Heartland**\
+`The party of Prime Minister Narendra Modi has been making gains in a state once beyond its grasp, but many decry an audit that removed nine million voters, many of them Muslim.`\
+https://www.nytimes.com/2026/04/24/world/asia/india-elections-modi-bengal.html
+
+**Tornado Hits City in Oklahoma**\
+`The tornado damaged homes and struck an Air Force base in Enid, Okla., the local sheriff said. Some people were injured.`\
+https://www.nytimes.com/2026/04/23/weather/tornado-oklahoma-enid.html
+
 **In Britain, 7 Unelected Lords Are Helping to Block an Assisted Dying Bill**\
 `A small group in the House of Lords has proposed hundreds of amendments that are helping stymie a bill that was meant to legalize medically assisted death for the terminally ill.`\
 https://www.nytimes.com/2026/04/24/world/europe/uk-assisted-dying-bill-lords.html
