@@ -1,3 +1,7 @@
+**The Athletic Football Show: 2026 N.F.L. Draft First Round Recap**\
+`Robert, Derrik and Dave break down what you missed.`\
+https://www.nytimes.com/2026/04/24/podcasts/football-2026-nfl-draft-recap.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/24/world/iran-war-trump-hormuz/heres-the-latest

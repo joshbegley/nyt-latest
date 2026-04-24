@@ -1,3 +1,7 @@
+**The Athletic Football Show: 2026 N.F.L. Draft First Round Recap**\
+`Robert, Derrik and Dave break down what you missed.`\
+https://www.nytimes.com/2026/04/24/podcasts/football-2026-nfl-draft-recap.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/24/world/iran-war-trump-hormuz/heres-the-latest
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/24/world/europe/europe-defense-nato-trump-eu.htm
 **Corrections: April 24, 2026**\
 `Corrections that appeared in print on Friday, April 24, 2026.`\
 https://www.nytimes.com/2026/04/24/pageoneplus/corrections-april-24-2026.html
-
-**Instead of the Bouquet, She Caught a Groomsman’s Attention**\
-`Krystal Miller and Brandon Manning’s first meeting at a wedding was a bit awkward. But by their second date, their chemistry was undeniable, and Ms. Miller knew she was falling in love.`\
-https://www.nytimes.com/2026/04/24/style/brandon-manning-krystal-miller-wedding.html
 
