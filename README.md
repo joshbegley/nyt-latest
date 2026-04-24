@@ -1,3 +1,7 @@
+**La desaprobación de Trump alcanza el nivel más alto de su segundo mandato**\
+`La caída del presidente en las encuestas se produce cuando la guerra de Irán ha elevado los precios de la gasolina y cada vez más estadounidenses están preocupados por la economía.`\
+https://www.nytimes.com/es/2026/04/24/espanol/estados-unidos/trump-aprobacion-desaprobacion-encuestas.html
+
 **Google Commits to Invest Up to $40 Billion in Anthropic**\
 `The investment comes as the A.I. start-up looks to keep up with accelerating demand for its business and coding products.`\
 https://www.nytimes.com/2026/04/24/technology/google-anthropic-investment-artificial-intelligence.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/04/24/arts/design/newhouse-art-collection-christies
 **Both Iran and U.S. Blockade Strait of Hormuz**\
 `The foes are trying to exert control over the narrow passageway. Most ships aren’t moving. Here’s what to know.`\
 https://www.nytimes.com/2026/04/24/world/middleeast/iran-us-strait-of-hormuz-blockade.html
-
-**California First Congressional District 2026: Latest Polls**\
-`Track the latest polls in California's 1st Congressional District.`\
-https://www.nytimes.com/interactive/polls/california-us-house-1-polls-2026.html
 
