@@ -1,3 +1,7 @@
+**The Looming Scorched-Earth Midterm Campaign**\
+`Republicans are likely to fall back on a tried-and-tested strategy for the midterms: Going negative.`\
+https://www.nytimes.com/2026/04/24/us/politics/republicans-midterms-campaign.html
+
 **Wayne Moss, Guitarist Who Helped Broaden Country Sound, Dies at 88**\
 `A top Nashville musician, he played for Bob Dylan and on “Oh, Pretty Woman” and “Jolene,” and was in the country-rock groups Area Code 615 and Barefoot Jerry.`\
 https://www.nytimes.com/2026/04/24/arts/music/wayne-moss-dead.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/us/politics/100000010838842/why-are-politicians-dr
 **Jet Fuel Shortages Could Make Travel a ‘Total Mess’ This Summer**\
 `Facing sky-high fuel costs linked to the war in Iran, airlines are cutting routes and raising prices. European vacations are looking a lot less affordable.`\
 https://www.nytimes.com/2026/04/24/travel/flight-cancellations-europe-summer-vacation.html
-
-**Charlize Theron: ‘I Think Life Is So Beautiful’**\
-`On “The Interview,” the actor Charlize Theron says she may have a “tough” reputation, but at home her children tease her because she can cry at the drop of a hat.`\
-https://www.nytimes.com/video/magazine/100000010861573/charlize-theron-i-think-life-is-so-beautiful.html
 

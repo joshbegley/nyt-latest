@@ -1,3 +1,11 @@
+**Wayne Moss, Guitarist Who Helped Broaden Country Sound, Dies at 88**\
+`A top Nashville musician, he played for Bob Dylan and on “Oh, Pretty Woman” and “Jolene,” and was in the country-rock groups Area Code 615 and Barefoot Jerry.`\
+https://www.nytimes.com/2026/04/24/arts/music/wayne-moss-dead.html
+
+**Student Contest Based on Trump’s Garden of Heroes Downplays Darker History**\
+`Guidelines for the art contest, sponsored by the group Freedom 250, include material about abolitionists and civil rights leaders, but little mention of what they fought against.`\
+https://www.nytimes.com/2026/04/24/arts/trump-garden-heroes-king.html
+
 **U.S. Sending Kushner and Witkoff to Pakistan to Resume Talks With Iran**\
 `Iran’s foreign minister has already arrived in the country, state media reported. He was believed to be carrying a written response to a U.S. proposal to end the war.`\
 https://www.nytimes.com/2026/04/24/world/middleeast/kushner-witkoff-pakistan-iran.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/24/travel/flight-cancellations-europe-summer-vac
 **Charlize Theron: ‘I Think Life Is So Beautiful’**\
 `On “The Interview,” the actor Charlize Theron says she may have a “tough” reputation, but at home her children tease her because she can cry at the drop of a hat.`\
 https://www.nytimes.com/video/magazine/100000010861573/charlize-theron-i-think-life-is-so-beautiful.html
-
-**Charlize Theron on Growing Up With an Alcoholic Father**\
-`The actor Charlize Theron grew up in South Africa with a father she describes as “a full-blown functioning drunk.” She talks about that experience on “The Interview.”`\
-https://www.nytimes.com/video/magazine/100000010861569/charlize-theron-on-growing-up-with-an-alcoholic-father.html
-
-**King Charles’s Visit Will Not Include Private Meeting With Mamdani**\
-`Mayor Zohran Mamdani has been invited to join King Charles III during his visit to New York, but the mayor’s office has not confirmed if they will appear together.`\
-https://www.nytimes.com/2026/04/24/nyregion/mamdani-king-visit-new-york.html
 

@@ -1,3 +1,11 @@
+**Wayne Moss, Guitarist Who Helped Broaden Country Sound, Dies at 88**\
+`A top Nashville musician, he played for Bob Dylan and on “Oh, Pretty Woman” and “Jolene,” and was in the country-rock groups Area Code 615 and Barefoot Jerry.`\
+https://www.nytimes.com/2026/04/24/arts/music/wayne-moss-dead.html
+
+**Student Contest Based on Trump’s Garden of Heroes Downplays Darker History**\
+`Guidelines for the art contest, sponsored by the group Freedom 250, include material about abolitionists and civil rights leaders, but little mention of what they fought against.`\
+https://www.nytimes.com/2026/04/24/arts/trump-garden-heroes-king.html
+
 **U.S. Sending Kushner and Witkoff to Pakistan to Resume Talks With Iran**\
 `Iran’s foreign minister has already arrived in the country, state media reported. He was believed to be carrying a written response to a U.S. proposal to end the war.`\
 https://www.nytimes.com/2026/04/24/world/middleeast/kushner-witkoff-pakistan-iran.html
