@@ -1,3 +1,11 @@
+**Venice Biennale Bars Awards for Art From Countries Accused of War Crimes**\
+`The jury said it would “refrain from considering” countries whose leaders are facing charges of crimes against humanity, which would affect Israel and Russia.`\
+https://www.nytimes.com/2026/04/24/arts/venice-biennale-russia-israel.html
+
+**Book Club: Let’s Talk About ‘The Renovation,’ by Kenan Orhan**\
+`The protagonist of this debut novel wants to get her bathroom upgraded. It becomes a portal to a Turkish prison cell instead.`\
+https://www.nytimes.com/2026/04/24/books/review/podcast-book-club-renovation-kenan-orhan.html
+
 **A Disputed Jet Deal and U.S. Influence Shake Peru’s Government**\
 `Pressure from Washington helped drive a disputed deal forward, triggering resignations and raising questions about sovereignty.`\
 https://www.nytimes.com/2026/04/24/world/americas/us-fighter-jet-deal-peru-government.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/interactive/2026/04/24/upshot/flashback.html
 **What Are Prediction Markets, and Why Are They Causing Controversy?**\
 `The indictment of a soldier who bet on the U.S. operation to capture President Nicolás Maduro of Venezuela put renewed focus on a new way to gamble, and a new way to cheat.`\
 https://www.nytimes.com/2026/04/24/business/what-are-prediction-markets.html
-
-**Inside the Time 100 Gala: Where Victoria and David Beckham Dine With MrBeast**\
-`Titans of influence filled the Deutsche Bank Center in Manhattan on Thursday night for an evening of selfies and self-congratulation.`\
-https://www.nytimes.com/2026/04/24/style/time-100-gala.html
-
-**Some Young People Think No Kings Is Old News**\
-`Readers discuss why there are relatively few young people protesting against President Trump. Also: Psychotherapy for a change; Denmark and Ukraine.`\
-https://www.nytimes.com/2026/04/24/opinion/trump-protests-young-no-kings.html
 
