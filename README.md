@@ -1,3 +1,7 @@
+**The 20 Questions That Can Prevent Domestic Violence Homicide**\
+`Two recent fatal shootings underscore the need to encourage the use of an assessment tool.`\
+https://www.nytimes.com/2026/04/24/opinion/the-20-questions-that-can-prevent-domestic-violence-homicide.html
+
 **After 33 Years and Three Trials, a Conviction in a Grisly Murder**\
 `Brian Scott Lorenz was convicted of murdering Deborah Meindl, a 33-year-old nursing student who walked into her Tonawanda, N.Y., home on a cold February afternoon and never walked out.`\
 https://www.nytimes.com/2026/04/24/nyregion/buffalo-murder-guilty-trial.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/24/nyregion/mamdani-buffer-zones-veto.html
 **Ignoring the War Has Been Working for Long-Term Investors**\
 `The U.S. stock market’s quick rebound this month may be fragile, but riding out the market’s disconcerting waves has been a sound strategy.`\
 https://www.nytimes.com/2026/04/24/business/iran-war-stocks-bonds-investing.html
-
-****\
-``\
-https://www.nytimes.com/video/embedded/us/politics/100000010861274/24vid-Hegseth-26416.html
 
