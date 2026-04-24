@@ -1,3 +1,15 @@
+**This ‘Sustainable’ Island Is Venice’s Newest Art Oasis**\
+`Patrizia Sandretto Re Rebaudengo has turned a former gunpowder store into a showcase for her contemporary art collection.`\
+https://www.nytimes.com/2026/04/24/arts/san-giacomo-in-paludo-island-venice.html
+
+**Golden Blob, a Mystery From the Deep Sea, Is Identified**\
+`The strange, shiny discovery, retrieved from the ocean near Alaska in 2023, turned out to be part of an anemone, scientists said.`\
+https://www.nytimes.com/2026/04/24/science/alaska-ocean-golden-orb.html
+
+**Los generales que dirigen Irán**\
+`La guerra ha dado más poder a la Guardia Revolucionaria y parece estar transformando la república teocrática en algo más parecido a un régimen militar.`\
+https://www.nytimes.com/es/2026/04/24/espanol/mundo/generales-lideres-iran.html
+
 **Trump’s View of the War**\
 `The cease-fire with Iran was extended this week, but negotiations were put on hold.`\
 https://www.nytimes.com/2026/04/24/podcasts/the-daily/trump-iran-war.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/24/nyregion/metal-gates-city-council-law.html
 **Companies, Not Consumers, to Cash In Big From Tariff Refunds**\
 `Many families felt the sting of the president’s now-illegal tariffs, but companies have said little about whether they will share the $166 billion coming back to them.`\
 https://www.nytimes.com/2026/04/24/business/companies-consumers-tariff-refunds.html
-
-**What Have You Learned From Playing Games?**\
-`The New York Times recently featured young stars in the world of chess. Are you a fan of the centuries-old board game?`\
-https://www.nytimes.com/2026/04/24/learning/what-have-you-learned-from-playing-games.html
-
-**Book Club: Read ‘Transcription,’ by Ben Lerner, With the Book Review**\
-`In May, the Book Review Book Club will read and discuss Lerner’s new novel, a cerebral exploration of technology, family, truth and existence.`\
-https://www.nytimes.com/2026/04/24/books/review/transcription-ben-lerner-book-club.html
-
-**Could an Earthly Fungus Contaminate Mars? NASA May Have Found One Hardy Enough.**\
-`Researchers identified a species that can survive radiation, extreme heat and simulated Martian soil, posing a new challenge for protocols intended to keep the red planet pristine.`\
-https://www.nytimes.com/2026/04/24/science/space/mars-nasa-fungus-contamination.html
 
