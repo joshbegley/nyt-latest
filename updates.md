@@ -1,3 +1,7 @@
+**Soldier Used Classified Information to Bet on Maduro’s Ouster, U.S. Says**\
+`Federal prosecutors say that Sgt. Gannon Ken Van Dyke, who was involved in the operation to oust Nicolás Maduro from power in Venezuela, used the information to place bets on a prediction market.`\
+https://www.nytimes.com/2026/04/23/nyregion/polymarket-maduro-indictment-soldier.html
+
 **Review: ‘The Rocky Horror Show’ Rewards Your Sense of Antici…pation**\
 `Sam Pinkleton’s new revival at Studio 54 gives us the big gay mayhem we want while also maintaining some order via Rachel Dratch’s droll Narrator.`\
 https://www.nytimes.com/2026/04/23/theater/rocky-horror-show-review.html
