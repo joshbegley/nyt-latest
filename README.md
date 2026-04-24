@@ -1,3 +1,19 @@
+**De productos baratos a símbolo de innovación: China gana terreno en Indonesia**\
+`Para muchos consumidores, “hecho en China” ya no significa bajo costo, sino tecnología y modernidad.`\
+https://www.nytimes.com/es/2026/04/24/espanol/negocios/china-marcas-exito-indonesia.html
+
+**Algunos Labubus contienen algodón que podría ser producto de trabajos forzados**\
+`Una prueba verificada por The New York Times descubrió que la ropa de algunos de los muñecos virales contenía algodón procedente de la región china de Sinkiang, que está prohibido en EE. UU.`\
+https://www.nytimes.com/es/2026/04/24/espanol/negocios/labubu-china.html
+
+**Cómo los médicos de EE. UU. se aprovechan de una ley de protección al consumidor**\
+`El mecanismo diseñado para eliminar las facturas sorpresa ha abierto la puerta a reclamaciones millonarias y a una nueva dinámica en el sistema de salud.`\
+https://www.nytimes.com/es/2026/04/24/espanol/estados-unidos/medicos-ley-proteccion-consumidor.html
+
+**¿Qué pasa cuando la IA está a cargo de una tienda?**\
+`En San Francisco, Andon Market se anuncia como la primera boutique minorista gestionada por un agente de inteligencia artificial. Hasta ahora, el inventario parece arbitrario y hay demasiadas velas.`\
+https://www.nytimes.com/es/2026/04/24/espanol/estados-unidos/tienda-ia-andon-market.html
+
 **Jimmy Kimmel Roasts Trump at a Mock White House Correspondents’ Dinner**\
 `The late night host took “a page from the Kid Rock alternative halftime show,” which aired during the Super Bowl, in offering his own “all-American” version of the Washington tradition.`\
 https://www.nytimes.com/2026/04/24/arts/television/jimmy-kimmel-roasts-trump.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/24/style/brandon-manning-krystal-miller-wedding.
 **From Kissing One Guy in 20 Years to 11 in a Month**\
 `My husband leaving nearly broke me. I tried to put myself back together by dating for the first time in my life.`\
 https://www.nytimes.com/2026/04/24/style/modern-love-divorce-hinge-kissing-one-guy-for-20-years-11-in-a-month.html
-
-**War and Sanctions Accelerate China’s Currency Push**\
-`China’s bid to build a renminbi-based financial system beyond the U.S. dollar’s reach is gaining traction as a way to sidestep sanctions.`\
-https://www.nytimes.com/2026/04/24/business/china-currency-iran.html
-
-**Once a Soloist, a Ballerina Finds Her Partner for Life**\
-`Soon after they started dating nearly three years ago, Olivia MacKinnon, a dancer with the New York City Ballet, discovered Bill Keenan’s genuine passion for ballet.`\
-https://www.nytimes.com/2026/04/24/style/olivia-mackinnon-bill-keenan-wedding.html
-
-**It Started with a Midnight Swim and a Kiss Under the Stars**\
-`Marian Lurio and Jonathan Nguyen met at a mutual friend’s wedding four years ago and felt an immediate attraction.`\
-https://www.nytimes.com/2026/04/24/style/marian-lurio-jonathan-nguyen-wedding.html
-
-**‘Sparks Flew’ When Two Crushes Reunited After Three Decades**\
-`Elizabeth Maresca and Nicholas Magarelli liked each other in high school, but they never dated. They reconnected in 2017. Both were divorced. Neither was looking for love.`\
-https://www.nytimes.com/2026/04/24/style/elizabeth-maresca-nicholas-magarelli-wedding.html
 
