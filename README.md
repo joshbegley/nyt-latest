@@ -10,8 +10,8 @@ https://www.nytimes.com/2026/04/24/world/middleeast/iran-sanctions-oil-tankers-s
 `The chef Sheldon Simeon celebrated his new cookbook with a low-key feast at an over-the-top venue.`\
 https://www.nytimes.com/2026/04/24/t-magazine/sheldon-simeon-cookbook-dinner.html
 
-**Gambling Companies Laud Indictments to Push Back on Pressure to Regulate**\
-`Sports betting companies and prediction markets have cited recent federal charges related to insider trading as proof that illegal activity is being rooted out. Critics say the cases do not address widespread illicit activity.`\
+**Gambling Companies Celebrate Indictments as Pressure Grows**\
+`Gambling companies have cited recent federal charges as proof that illegal activity is being rooted out. The companies’ critics say the cases do not address widespread illicit activity.`\
 https://www.nytimes.com/2026/04/24/nyregion/gambling-companies-indictments-regulation.html
 
 **Does ‘The Drama’ Know Zendaya is Black?**\
