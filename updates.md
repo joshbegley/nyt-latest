@@ -1,3 +1,11 @@
+**Both Iran and U.S. Blockade Strait of Hormuz**\
+`The foes are trying to exert control over the narrow passageway. Most ships aren’t moving. Here’s what to know.`\
+https://www.nytimes.com/2026/04/24/world/middleeast/both-iran-and-us-blockade-strait-of-hormuz.html
+
+**California First Congressional District 2026: Latest Polls**\
+`Track the latest polls in California's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/california-us-house-1-polls-2026.html
+
 **Were Neanderthals Able to Hunt Elephants? The Proof Is in an Ancient Bone**\
 `A new study found that a pachyderm skeleton, dismissed for decades as unimportant, offers evidence of careful planning, teamwork and a calculated kill.`\
 https://www.nytimes.com/2026/04/24/science/lehringen-lakebed-elephant-neanderthals.html

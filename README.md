@@ -48,7 +48,7 @@ https://www.nytimes.com/2026/04/24/arts/music/noah-kahan-the-great-divide-review
 
 **The California City With Tiny Oranges and Pink Sunsets**\
 `Surrounded by citrus groves and hiking trails, Ojai is an irresistible escape for nature enthusiasts, spiritual seekers and fans of giant tortoises.`\
-https://www.nytimes.com/2026/04/24/t-magazine/the-california-city-with-tiny-oranges-and-pink-sunsets.html
+https://www.nytimes.com/2026/04/24/t-magazine/ojai-california-tiny-oranges-pink-sunsets.html
 
 **This May Just Be the Springiest Gnocchi**\
 `Skillet gnocchi with miso butter and asparagus, and more of our most popular recipes from the week.`\

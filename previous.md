@@ -1,3 +1,11 @@
+**Both Iran and U.S. Blockade Strait of Hormuz**\
+`The foes are trying to exert control over the narrow passageway. Most ships aren’t moving. Here’s what to know.`\
+https://www.nytimes.com/2026/04/24/world/middleeast/both-iran-and-us-blockade-strait-of-hormuz.html
+
+**California First Congressional District 2026: Latest Polls**\
+`Track the latest polls in California's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/california-us-house-1-polls-2026.html
+
 **Were Neanderthals Able to Hunt Elephants? The Proof Is in an Ancient Bone**\
 `A new study found that a pachyderm skeleton, dismissed for decades as unimportant, offers evidence of careful planning, teamwork and a calculated kill.`\
 https://www.nytimes.com/2026/04/24/science/lehringen-lakebed-elephant-neanderthals.html
@@ -65,16 +73,4 @@ https://www.nytimes.com/2026/04/24/business/strait-hormuz-ship-captain.html
 **Deb Haaland’s Historic Run for Governor Hits a Primary Snag**\
 `The former interior secretary seemed to have an easy path to becoming the first woman and Native American to be New Mexico’s governor — until Sam Bregman challenged her.`\
 https://www.nytimes.com/2026/04/24/us/elections/deb-haaland-sam-bregman-new-mexico-governor.html
-
-**Justice Department Drops Criminal Investigation Into the Fed**\
-`The decision to end the inquiry into Jerome H. Powell’s handling of the Federal Reserve’s renovation could allow Kevin M. Warsh, the president’s pick for Fed chair, to be confirmed.`\
-https://www.nytimes.com/2026/04/24/business/doj-investigation-federal-reserve-powell.html
-
-**Trump Extends Waiver Allowing Foreign Ships to Move Goods Between U.S. Ports**\
-`The move was intended to ensure the flow of fuel in the United States, but some economists say it might reduce gas prices for consumers only a small amount.`\
-https://www.nytimes.com/2026/04/24/world/middleeast/trump-extends-waiver-allowing-foreign-ships-to-move-goods-between-us-ports.html
-
-**How Kevin Warsh Could Shrink the Fed’s Footprint in Financial Markets**\
-`President Trump’s nominee to become the next chair of the Federal Reserve wants to overhaul the central bank, including its more than $6 trillion balance sheet.`\
-https://www.nytimes.com/2026/04/24/us/politics/kevin-warsh-fed-rates-balance-sheet.html
 
