@@ -1,3 +1,7 @@
+**U.S. Sending Kushner and Witkoff to Pakistan to Resume Talks With Iran**\
+`Iran’s foreign minister has already arrived in the country, state media reported. He was believed to be carrying a written response to a U.S. proposal to end the war.`\
+https://www.nytimes.com/2026/04/24/world/middleeast/kushner-witkoff-pakistan-iran.html
+
 **Over 200,000 Heated Socks Sold at Costco Recalled After Reports of Burns**\
 `The socks, from the brand 32 Degrees, were linked to reports of first- and second-degree burns, according to U.S. product safety regulators.`\
 https://www.nytimes.com/2026/04/24/us/costco-recall-heated-socks-burn.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/magazine/100000010861569/charlize-theron-on-growin
 **King Charles’s Visit Will Not Include Private Meeting With Mamdani**\
 `Mayor Zohran Mamdani has been invited to join King Charles III during his visit to New York, but the mayor’s office has not confirmed if they will appear together.`\
 https://www.nytimes.com/2026/04/24/nyregion/mamdani-king-visit-new-york.html
-
-**Screens**\
-`What do you think this image is communicating?`\
-https://www.nytimes.com/2026/04/24/learning/screens.html
 
