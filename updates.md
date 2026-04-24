@@ -1,3 +1,11 @@
+**Inside the Time 100 Gala: Where Victoria and David Beckham Dine with MrBeast**\
+`Titans of influence filled the Deutsche Bank Center in Manhattan on Thursday night for an evening of selfies and self-congratulation.`\
+https://www.nytimes.com/2026/04/24/style/time-100-gala.html
+
+**Some Young People Think No Kings Is Old News**\
+`Readers discuss why there are relatively few young people protesting against President Trump. Also: Psychotherapy for a change; Denmark and Ukraine.`\
+https://www.nytimes.com/2026/04/24/opinion/trump-protests-young-no-kings.html
+
 **As Putin Orders That the Economy Be Fixed, Russia Grasps for Solutions**\
 `Another interest-rate cut highlights the narrowing path for the country’s central bank amid the strains of immense wartime spending.`\
 https://www.nytimes.com/2026/04/24/world/europe/russia-economy.html

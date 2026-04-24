@@ -1,3 +1,11 @@
+**Inside the Time 100 Gala: Where Victoria and David Beckham Dine with MrBeast**\
+`Titans of influence filled the Deutsche Bank Center in Manhattan on Thursday night for an evening of selfies and self-congratulation.`\
+https://www.nytimes.com/2026/04/24/style/time-100-gala.html
+
+**Some Young People Think No Kings Is Old News**\
+`Readers discuss why there are relatively few young people protesting against President Trump. Also: Psychotherapy for a change; Denmark and Ukraine.`\
+https://www.nytimes.com/2026/04/24/opinion/trump-protests-young-no-kings.html
+
 **As Putin Orders That the Economy Be Fixed, Russia Grasps for Solutions**\
 `Another interest-rate cut highlights the narrowing path for the country’s central bank amid the strains of immense wartime spending.`\
 https://www.nytimes.com/2026/04/24/world/europe/russia-economy.html
@@ -65,12 +73,4 @@ https://www.nytimes.com/2026/04/24/health/calley-means-truemed-trump-health-savi
 **It Was Just a Podcast. Now, It’s Kelce Land.**\
 `When Amazon gutted its podcast company, it built a new department that made creators kings, starting with the football stars Jason and Travis Kelce.`\
 https://www.nytimes.com/2026/04/24/business/media/jason-travis-kelce-amazon-podcast.html
-
-**The Warning Signs Were There in Louisiana. Why Did We Miss Them?**\
-`Two recent fatal shootings underscore the need to encourage the use of an assessment tool.`\
-https://www.nytimes.com/2026/04/24/opinion/the-20-questions-that-can-prevent-domestic-violence-homicide.html
-
-**After 33 Years and Three Trials, a Conviction in a Grisly Murder**\
-`Brian Scott Lorenz was convicted of murdering Deborah Meindl, a 33-year-old nursing student who walked into her Tonawanda, N.Y., home on a cold February afternoon and never walked out.`\
-https://www.nytimes.com/2026/04/24/nyregion/buffalo-murder-guilty-trial.html
 
