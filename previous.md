@@ -1,3 +1,7 @@
+**A.I. Is Forcing More Belt-Tightening at Big Tech**\
+`The growing expense of keeping up in the artificial intelligence race is driving technology companies, young and old, to costs.`\
+https://www.nytimes.com/2026/04/24/business/dealbook/ai-tech-cost-cuts.html
+
 **‘The Headlines’ News Quiz: Apr. 24, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/04/24/podcasts/the-headlines/the-headlines-news-quiz-apr-24-2026.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/24/opinion/international-world/iran-war-trump-de
 **A ‘KPop Demon Hunters’ Where You’re on the Mic**\
 `People of Note has a pleasant music-themed twist on turn-based gameplay.`\
 https://www.nytimes.com/2026/04/24/arts/people-of-note-review.html
-
-**El entrenador de moda es un chatbot de IA**\
-`Algunos atletas recurren a los chatbots para que los asesoren sobre sus rutinas de entrenamiento. ¿Qué tal funciona?`\
-https://www.nytimes.com/es/2026/04/24/espanol/estilos-de-vida/ejercicio-rutina-chatgpt-ai.html
 

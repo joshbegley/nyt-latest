@@ -1,3 +1,7 @@
+**A.I. Is Forcing More Belt-Tightening at Big Tech**\
+`The growing expense of keeping up in the artificial intelligence race is driving technology companies, young and old, to costs.`\
+https://www.nytimes.com/2026/04/24/business/dealbook/ai-tech-cost-cuts.html
+
 **Here’s How Trump Can Get Us Out of the Mess in Iran**\
 `To salvage a decent peace with Iran, President Trump must learn the lessons of his war.`\
 https://www.nytimes.com/2026/04/24/opinion/international-world/iran-war-trump-deal.html
