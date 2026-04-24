@@ -1,3 +1,7 @@
+**A.I. Start-Ups From Canada and Germany Merge to Take On Silicon Valley**\
+`Cohere is acquiring Aleph Alpha in a deal aimed at customers uneasy about the dominance of American companies in artificial intelligence.`\
+https://www.nytimes.com/2026/04/24/business/cohere-aleph-alpha-ai-merger.html
+
 **Gaza Set to Hold First Local Election in Two Decades**\
 `Hamas said it was not participating in the municipal elections in Deir al-Balah, set for this weekend. Residents said it was a long-awaited opportunity to address the city’s problems`\
 https://www.nytimes.com/2026/04/24/world/middleeast/gaza-elections-deir-al-balah.html
