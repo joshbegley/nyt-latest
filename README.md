@@ -1,3 +1,27 @@
+**After 33 Years and Three Trials, a Conviction in a Grisly Murder**\
+`Brian Scott Lorenz was convicted of murdering Deborah Meindl, a 33-year-old nursing student who walked into her Tonawanda, N.Y., home on a cold February afternoon and never walked out.`\
+https://www.nytimes.com/2026/04/24/nyregion/buffalo-murder-guilty-trial.html
+
+**Noah Kahan Is Caught in the In-Between on ‘The Great Divide’**\
+`The singer-songwriter’s “Stick Season” was an unexpected smash. On its follow-up he sings about fame, complex relationships and the future with a sharper perspective.`\
+https://www.nytimes.com/2026/04/24/arts/music/noah-kahan-the-great-divide-review.html
+
+**The California City With Tiny Oranges and Pink Sunsets**\
+`Surrounded by citrus groves and hiking trails, Ojai is an irresistible escape for nature enthusiasts, spiritual seekers and fans of giant tortoises.`\
+https://www.nytimes.com/2026/04/24/t-magazine/the-california-city-with-tiny-oranges-and-pink-sunsets.html
+
+**This May Just Be the Springiest Gnocchi**\
+`Skillet gnocchi with miso butter and asparagus, and more of our most popular recipes from the week.`\
+https://www.nytimes.com/2026/04/24/dining/this-may-just-be-the-springiest-gnocchi.html
+
+**Five Horror Movies to Stream Now**\
+`This month’s terrors include a monkey gone mad, a boundary-pushing robot and a playground with a thirst for babysitter blood.`\
+https://www.nytimes.com/2026/04/24/movies/five-horror-movies-to-stream-now.html
+
+**5 Tall Tasks for Apple’s New C.E.O.**\
+`John Ternus will face many of the same issues that Tim Cook has grappled with for years.`\
+https://www.nytimes.com/2026/04/24/technology/john-ternus-apple-challenges.html
+
 **France Investigates Temperature Spikes That Led to Big Payouts on Polymarket**\
 `The authorities said a Paris airport weather sensor may have been tampered with as large wagers were placed on the betting site.`\
 https://www.nytimes.com/2026/04/24/world/europe/polymarket-bets-france-paris-temperature-weather.html
@@ -7,7 +31,7 @@ https://www.nytimes.com/2026/04/24/world/europe/polymarket-bets-france-paris-tem
 https://www.nytimes.com/2026/04/24/business/strait-hormuz-ship-captain.html
 
 **Deb Haaland’s Historic Run for Governor Hits a Primary Snag**\
-`The former interior secretary seemed to have an easy path to becoming New Mexico’s first Native American woman governor — until Sam Bregman challenged her.`\
+`The former interior secretary seemed to have an easy path to becoming the first woman and Native American to be New Mexico’s governor — until Sam Bregman challenged her.`\
 https://www.nytimes.com/2026/04/24/us/elections/deb-haaland-sam-bregman-new-mexico-governor.html
 
 **Justice Department Drops Criminal Investigation Into Fed**\
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/04/24/business/iran-war-stocks-bonds-investing.html
 ****\
 ``\
 https://www.nytimes.com/video/embedded/us/politics/100000010861274/24vid-Hegseth-26416.html
-
-**Tornado Strikes an Air Force Base in Oklahoma**\
-`A large tornado in Oklahoma damaged homes and struck Vance Air Force Base in the city of Enid, officials said. The tornado came as severe weather threatened the central United States.`\
-https://www.nytimes.com/video/weather/100000010861081/tornado-oklahoma-damage-enid.html
-
-**A.I. Is Forcing More Belt-Tightening at Big Tech**\
-`The growing expense of keeping up in the artificial intelligence race is driving technology companies, young and old, to cut costs.`\
-https://www.nytimes.com/2026/04/24/business/dealbook/ai-tech-cost-cuts.html
-
-**‘The Headlines’ News Quiz: Apr. 24, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/04/24/podcasts/the-headlines/the-headlines-news-quiz-apr-24-2026.html
-
-**Tim Cook’s Legacy + The Future of U.B.I. With Andrew Yang + HatGPT**\
-`The highlights, the lowlights, and how Apple changed in the years since Tim Cook took over as chief executive.`\
-https://www.nytimes.com/2026/04/24/podcasts/hardfork-tim-cook-yang-ubi.html
-
-**Youth Suicides Drop**\
-`We are covering a success story today.`\
-https://www.nytimes.com/2026/04/24/briefing/youth-suicides-drop.html
-
-**This ‘Sustainable’ Island Is Venice’s Newest Art Oasis**\
-`Patrizia Sandretto Re Rebaudengo has turned a former gunpowder store into a showcase for her contemporary art collection.`\
-https://www.nytimes.com/2026/04/24/arts/design/san-giacomo-in-paludo-island-venice.html
 
