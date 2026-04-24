@@ -1,3 +1,43 @@
+**In Britain, 7 Unelected Lords Are Helping to Block an Assisted Dying Bill**\
+`A small group in the House of Lords has proposed hundreds of amendments that are helping stymie a bill that was meant to legalize medically assisted death for the terminally ill.`\
+https://www.nytimes.com/2026/04/24/world/europe/uk-assisted-dying-bill-lords.html
+
+**Europe Mulls What Mutual Defense Looks Like Outside NATO**\
+`European Union nations have a little-known obligation to protect one another. Experts caution it is no replacement for NATO.`\
+https://www.nytimes.com/2026/04/24/world/europe/europe-defense-nato-trump-eu.html
+
+**Corrections: April 24, 2026**\
+`Corrections that appeared in print on Friday, April 24, 2026.`\
+https://www.nytimes.com/2026/04/24/pageoneplus/corrections-april-24-2026.html
+
+**Instead of the Bouquet, She Caught a Groomsman’s Attention**\
+`Krystal Miller and Brandon Manning’s first meeting at a wedding was a bit awkward. But by their second date, their chemistry was undeniable, and Ms. Miller knew she was falling in love.`\
+https://www.nytimes.com/2026/04/24/style/brandon-manning-krystal-miller-wedding.html
+
+**From Kissing One Guy in 20 Years to 11 in a Month**\
+`My husband leaving nearly broke me. I tried to put myself back together by dating for the first time in my life.`\
+https://www.nytimes.com/2026/04/24/style/modern-love-divorce-hinge-kissing-one-guy-for-20-years-11-in-a-month.html
+
+**War and Sanctions Accelerate China’s Currency Push**\
+`China’s bid to build a renminbi-based financial system beyond the U.S. dollar’s reach is gaining traction as a way to sidestep sanctions.`\
+https://www.nytimes.com/2026/04/24/business/china-currency-iran.html
+
+**Once a Soloist, a Ballerina Finds Her Partner for Life**\
+`Soon after they started dating nearly three years ago, Olivia MacKinnon, a dancer with the New York City Ballet, discovered Bill Keenan’s genuine passion for ballet.`\
+https://www.nytimes.com/2026/04/24/style/olivia-mackinnon-bill-keenan-wedding.html
+
+**It Started with a Midnight Swim and a Kiss Under the Stars**\
+`Marian Lurio and Jonathan Nguyen met at a mutual friend’s wedding four years ago and felt an immediate attraction.`\
+https://www.nytimes.com/2026/04/24/style/marian-lurio-jonathan-nguyen-wedding.html
+
+**‘Sparks Flew’ When Two Crushes Reunited After Three Decades**\
+`Elizabeth Maresca and Nicholas Magarelli liked each other in high school, but they never dated. They reconnected in 2017. Both were divorced. Neither was looking for love.`\
+https://www.nytimes.com/2026/04/24/style/elizabeth-maresca-nicholas-magarelli-wedding.html
+
+**Quote of the Day: Iranian Expats in Dubai Feel Caught Between Home and Homeland**\
+`Quotation of the Day for Friday, April 24, 2026.`\
+https://www.nytimes.com/2026/04/23/pageoneplus/quote-of-the-day-iranian-expats-in-dubai-feel-caught-between-home-and-homeland.html
+
 **Trump Announces Cease-Fire Between Israel and Lebanon**\
 `President Trump said on Thursday that Israel and Lebanon had agreed to a three-week extension to a cease-fire. Hezbollah did not comment on the announcement.`\
 https://www.nytimes.com/video/world/middleeast/100000010860715/trump-ceasefire-israel-lebanon-hezbollah.html
@@ -37,44 +77,4 @@ https://www.nytimes.com/interactive/2026/04/23/nyregion/maduro-betting-polymarke
 **Un soldado usó información clasificada para apostar por la captura de Maduro, según EE. UU.**\
 `Los fiscales federales afirman que el sargento Gannon Ken Van Dyke, quien participó en la operación para capturar a Nicolás Maduro, usó la información para hacer apuestas en un mercado de predicciones.`\
 https://www.nytimes.com/es/2026/04/23/espanol/estados-unidos/soldado-apuesta-captura-maduro.html
-
-**Trump Says Israel and Lebanon Agree to Extend Cease-Fire by Three Weeks**\
-`The president made the announcement after he hosted a meeting at the White House of Israeli and Lebanese diplomats.`\
-https://www.nytimes.com/2026/04/23/us/politics/israel-lebanon-ceasefire-trump.html
-
-**Conservative Lobbyist Hired Man to Violently Extort Client, U.S. Says**\
-`Before his arrest last month, Josh Nass, a lawyer, used his connections to lobby the Trump administration, including for a client seeking clemency.`\
-https://www.nytimes.com/2026/04/23/nyregion/conservative-lobbyist-indictment.html
-
-**Iran War Has Drained U.S. Supplies of Critical, Costly Weapons**\
-`The Pentagon’s rush to rearm its Mideast forces makes it less ready to confront potential adversaries like Russia and China, administration and congressional officials say.`\
-https://www.nytimes.com/2026/04/23/us/politics/iran-war-cost-military.html
-
-**Trump Officials Investigate N.Y.C. Schools Over Pro-Palestinian Group**\
-`The federal Department of Education said it would begin a civil rights investigation, reviewing teachings by a group known as N.Y.C. Educators for Palestine.`\
-https://www.nytimes.com/2026/04/23/nyregion/nyc-schools-trump-civil-rights-investigation.html
-
-**‘Apex’ Review: Predator and Prey**\
-`Taron Egerton descends into full-tilt madness as a killer hunting Charlize Theron in this Netflix thriller set in southeastern Australia.`\
-https://www.nytimes.com/2026/04/23/movies/apex-review.html
-
-**The Small Changes You’ve Made for Better Health**\
-`We asked. Over 800 of you answered.`\
-https://www.nytimes.com/2026/04/23/well/small-changes-for-better-health.html
-
-**EE. UU. busca revocar la ciudadanía de 384 personas**\
-`El gobierno de Trump está asignando casos de desnaturalización a fiscales ordinarios, lo que podría provocar una oleada de personas que serían despojadas de la ciudadanía estadounidense.`\
-https://www.nytimes.com/es/2026/04/23/espanol/estados-unidos/trump-revocar-ciudadania.html
-
-**Trump Says He’s Renovating ‘Filthy’ Reflecting Pool on the National Mall**\
-`The pool, which is more than 2,000 feet long, was the site of Martin Luther King Jr.’s “I Have a Dream” speech and other events.`\
-https://www.nytimes.com/2026/04/23/us/politics/trump-reflecting-pool-renovation.html
-
-**Soldier Used Classified Information to Bet on Maduro’s Ouster, U.S. Says**\
-`Federal prosecutors say that Sgt. Gannon Ken Van Dyke, who was involved in the operation to oust Nicolás Maduro from power in Venezuela, used the information to place bets on a prediction market.`\
-https://www.nytimes.com/2026/04/23/nyregion/polymarket-maduro-indictment-soldier.html
-
-**Un choque mortal muestra los profundos lazos entre EE. UU. y México en materia de seguridad**\
-`El suceso reabrió el debate sobre la soberanía y la cooperación entre dos naciones que comparten mucho más que una larga frontera.`\
-https://www.nytimes.com/es/2026/04/23/espanol/america-latina/mexico-accidente-investigadores-cia.html
 

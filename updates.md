@@ -1,3 +1,43 @@
+**In Britain, 7 Unelected Lords Are Helping to Block an Assisted Dying Bill**\
+`A small group in the House of Lords has proposed hundreds of amendments that are helping stymie a bill that was meant to legalize medically assisted death for the terminally ill.`\
+https://www.nytimes.com/2026/04/24/world/europe/uk-assisted-dying-bill-lords.html
+
+**Europe Mulls What Mutual Defense Looks Like Outside NATO**\
+`European Union nations have a little-known obligation to protect one another. Experts caution it is no replacement for NATO.`\
+https://www.nytimes.com/2026/04/24/world/europe/europe-defense-nato-trump-eu.html
+
+**Corrections: April 24, 2026**\
+`Corrections that appeared in print on Friday, April 24, 2026.`\
+https://www.nytimes.com/2026/04/24/pageoneplus/corrections-april-24-2026.html
+
+**Instead of the Bouquet, She Caught a Groomsman’s Attention**\
+`Krystal Miller and Brandon Manning’s first meeting at a wedding was a bit awkward. But by their second date, their chemistry was undeniable, and Ms. Miller knew she was falling in love.`\
+https://www.nytimes.com/2026/04/24/style/brandon-manning-krystal-miller-wedding.html
+
+**From Kissing One Guy in 20 Years to 11 in a Month**\
+`My husband leaving nearly broke me. I tried to put myself back together by dating for the first time in my life.`\
+https://www.nytimes.com/2026/04/24/style/modern-love-divorce-hinge-kissing-one-guy-for-20-years-11-in-a-month.html
+
+**War and Sanctions Accelerate China’s Currency Push**\
+`China’s bid to build a renminbi-based financial system beyond the U.S. dollar’s reach is gaining traction as a way to sidestep sanctions.`\
+https://www.nytimes.com/2026/04/24/business/china-currency-iran.html
+
+**Once a Soloist, a Ballerina Finds Her Partner for Life**\
+`Soon after they started dating nearly three years ago, Olivia MacKinnon, a dancer with the New York City Ballet, discovered Bill Keenan’s genuine passion for ballet.`\
+https://www.nytimes.com/2026/04/24/style/olivia-mackinnon-bill-keenan-wedding.html
+
+**It Started with a Midnight Swim and a Kiss Under the Stars**\
+`Marian Lurio and Jonathan Nguyen met at a mutual friend’s wedding four years ago and felt an immediate attraction.`\
+https://www.nytimes.com/2026/04/24/style/marian-lurio-jonathan-nguyen-wedding.html
+
+**‘Sparks Flew’ When Two Crushes Reunited After Three Decades**\
+`Elizabeth Maresca and Nicholas Magarelli liked each other in high school, but they never dated. They reconnected in 2017. Both were divorced. Neither was looking for love.`\
+https://www.nytimes.com/2026/04/24/style/elizabeth-maresca-nicholas-magarelli-wedding.html
+
+**Quote of the Day: Iranian Expats in Dubai Feel Caught Between Home and Homeland**\
+`Quotation of the Day for Friday, April 24, 2026.`\
+https://www.nytimes.com/2026/04/23/pageoneplus/quote-of-the-day-iranian-expats-in-dubai-feel-caught-between-home-and-homeland.html
+
 **Tornado Hits City in Oklahoma**\
 `The tornado damaged homes and struck an Air Force base in Enid, Okla., the local sheriff said. There were no immediate reports of injuries.`\
 https://www.nytimes.com/2026/04/23/weather/tornado-oklahoma-enid.html
