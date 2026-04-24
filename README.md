@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/04/24/climate/amoc-bering-strait-dam.html
 `The White House has warned staff not to wager on government decisions, but his family’s involvement with these firms undermines the president’s message.`\
 https://www.nytimes.com/2026/04/24/us/politics/trump-prediction-markets.html
 
-**Michael Harrison, 67, Dies; Composer (and Inventor) Played With Tuning**\
+**Michael Harrison, 67, Dies; Inventive Composer Who Played With Tuning**\
 `Influenced by Indian raga and nontraditional tuning systems, he created hypnotic works with a spiritual bent and created an unconventional piano.`\
 https://www.nytimes.com/2026/04/24/arts/music/michael-harrison-dead.html
 
