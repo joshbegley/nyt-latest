@@ -34,8 +34,8 @@ https://www.nytimes.com/2026/04/24/nyregion/mamdani-nyc-deed-theft.html
 `Track the latest polls in California's 7th Congressional District.`\
 https://www.nytimes.com/interactive/polls/california-us-house-7-polls-2026.html
 
-**Mamdani Expected to Reject Bill Involving Police at School Protests**\
-`The bill, which is on track to receive Zohran Mamdani’s first veto as mayor, would compel the Police Department to release plans on how it intends to manage protesters near educational facilities.`\
+**Mamdani Rejects Bill Involving Police at School Protests**\
+`The veto, Zohran Mamdani’s first as mayor, scraps a bill that would have compelled the Police Department to release plans on how it intends to manage protesters near educational facilities.`\
 https://www.nytimes.com/2026/04/24/nyregion/mamdani-buffer-zones-veto.html
 
 **Ignoring the War Has Been Working for Long-Term Investors**\
