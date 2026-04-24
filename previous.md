@@ -1,3 +1,15 @@
+**Jet Fuel Shortages Could Make Travel a ‘Total Mess’ This Summer**\
+`Facing sky-high fuel costs linked to the war in Iran, airlines are cutting routes and raising prices. European vacations are looking a lot less affordable.`\
+https://www.nytimes.com/2026/04/24/travel/flight-cancellations-europe-summer-vacation.html
+
+**Charlize Theron: ‘I Think Life Is So Beautiful’**\
+`On “The Interview,” the actor Charlize Theron says she may have a “tough” reputation, but at home her children tease her because she can cry at the drop of a hat.`\
+https://www.nytimes.com/video/magazine/100000010861573/charlize-theron-i-think-life-is-so-beautiful.html
+
+**Charlize Theron on Growing Up With an Alcoholic Father**\
+`The actor Charlize Theron grew up in South Africa with a father she describes as “a full-blown functioning drunk.” She talks about that experience on “The Interview.”`\
+https://www.nytimes.com/video/magazine/100000010861569/charlize-theron-on-growing-up-with-an-alcoholic-father.html
+
 **King Charles’s Visit Will Not Include Private Meeting With Mamdani**\
 `Mayor Zohran Mamdani has been invited to join King Charles III during his visit to New York, but the mayor’s office has not confirmed if they will appear together.`\
 https://www.nytimes.com/2026/04/24/nyregion/mamdani-king-visit-new-york.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/es/2026/04/24/espanol/estilos-de-vida/caidas-como-preven
 **La desaprobación de Trump alcanza el nivel más alto de su segundo mandato**\
 `La caída del presidente en las encuestas se produce cuando la guerra de Irán ha elevado los precios de la gasolina y cada vez más estadounidenses están preocupados por la economía.`\
 https://www.nytimes.com/es/2026/04/24/espanol/estados-unidos/trump-aprobacion-desaprobacion-encuestas.html
-
-**Google Commits to Invest Up to $40 Billion in Anthropic**\
-`The investment comes as the A.I. start-up looks to keep up with accelerating demand for its business and coding products.`\
-https://www.nytimes.com/2026/04/24/technology/google-anthropic-investment-artificial-intelligence.html
-
-**California 11th Congressional District 2026: Latest Polls**\
-`Track the latest polls in California's 11th Congressional District.`\
-https://www.nytimes.com/interactive/polls/california-us-house-11-polls-2026.html
-
-**A New Idea to Save the Climate? Dam the Bering Strait.**\
-`Blocking the narrow waterway between Russia and Alaska could help stabilize a vulnerable system of ocean currents, scientists found in a study.`\
-https://www.nytimes.com/2026/04/24/climate/amoc-bering-strait-dam.html
 
