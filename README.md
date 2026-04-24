@@ -1,3 +1,7 @@
+**DeepSeek’s Sequel Set to Extend China’s Reach in Open-Source A.I.**\
+`Chinese companies have embraced making their most advanced artificial intelligence models available to all.`\
+https://www.nytimes.com/2026/04/24/business/china-ai-deepseek-open-source.html
+
 **‘Didi vs. Modi’: A Test for the Hindu Right in India’s Bengali Heartland**\
 `The party of Prime Minister Narendra Modi has been making gains in a state once beyond its grasp, but many decry an audit that removed nine million voters, many of them Muslim.`\
 https://www.nytimes.com/2026/04/24/world/asia/india-elections-modi-bengal.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/books/wh-auden-poetry-challenge-solitud
 **Trump Reposts Tirade Against Chinese and Indian Immigrants**\
 `The president touched off a furor with his post sharing a podcast episode in which the host referred to China and India as “hellhole” places.`\
 https://www.nytimes.com/2026/04/23/us/politics/trump-china-india-immigrants.html
-
-**Read the Indictment Charging a U.S. Solider With Insider Trading**\
-`The soldier, Master Sgt. Gannon Ken Van Dyke, who was stationed at Fort Bragg in North Carolina, made more than $400,000 by betting on different outcomes related to Venezuela after learning of the operation, federal prosecutors and the F.B.I. said.`\
-https://www.nytimes.com/interactive/2026/04/23/nyregion/maduro-betting-polymarket-soldier.html
 
