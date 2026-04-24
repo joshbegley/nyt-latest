@@ -1,3 +1,15 @@
+**France Investigates Temperature Spikes That Led to Big Payouts on Polymarket**\
+`The authorities said a Paris airport weather sensor may have been tampered with as large wagers were placed on the betting site.`\
+https://www.nytimes.com/2026/04/24/world/europe/polymarket-bets-france-paris-temperature-weather.html
+
+**The Peril of Piloting Ships Through the Strait of Hormuz**\
+`Controllers for shipping companies face a daunting decision as they try to free vessels trapped in the Persian Gulf: “Basically you’re sending someone unarmed into war.”`\
+https://www.nytimes.com/2026/04/24/business/strait-hormuz-ship-captain.html
+
+**Justice Department Drops Criminal Investigation Into Fed**\
+`The decision to end the investigation into Jerome H. Powell’s handling of the Federal Reserve’s renovation will allow Kevin M. Warsh, President Trump’s pick for Fed chair, to win confirmation.`\
+https://www.nytimes.com/2026/04/24/business/doj-investigation-federal-reserve-powell.html
+
 **Justice Department Drops Criminal Investigation into Fed**\
 `The decision to end the investigation into Jerome H. Powell’s handling of the Federal Reserve’s renovation will allow Kevin M. Warsh, President Trump’s pick for Fed chair, to win confirmation.`\
 https://www.nytimes.com/2026/04/24/business/doj-investigation-federal-reserve-powell.html

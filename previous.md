@@ -1,8 +1,16 @@
+**France Investigates Temperature Spikes That Led to Big Payouts on Polymarket**\
+`The authorities said a Paris airport weather sensor may have been tampered with as large wagers were placed on the betting site.`\
+https://www.nytimes.com/2026/04/24/world/europe/polymarket-bets-france-paris-temperature-weather.html
+
+**The Peril of Piloting Ships Through the Strait of Hormuz**\
+`Controllers for shipping companies face a daunting decision as they try to free vessels trapped in the Persian Gulf: “Basically you’re sending someone unarmed into war.”`\
+https://www.nytimes.com/2026/04/24/business/strait-hormuz-ship-captain.html
+
 **Deb Haaland’s Historic Run for Governor Hits a Primary Snag**\
 `The former interior secretary seemed to have an easy path to becoming New Mexico’s first Native American woman governor — until Sam Bregman challenged her.`\
 https://www.nytimes.com/2026/04/24/us/elections/deb-haaland-sam-bregman-new-mexico-governor.html
 
-**Justice Department Drops Criminal Investigation into Fed**\
+**Justice Department Drops Criminal Investigation Into Fed**\
 `The decision to end the investigation into Jerome H. Powell’s handling of the Federal Reserve’s renovation will allow Kevin M. Warsh, President Trump’s pick for Fed chair, to win confirmation.`\
 https://www.nytimes.com/2026/04/24/business/doj-investigation-federal-reserve-powell.html
 
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/24/briefing/youth-suicides-drop.html
 **This ‘Sustainable’ Island Is Venice’s Newest Art Oasis**\
 `Patrizia Sandretto Re Rebaudengo has turned a former gunpowder store into a showcase for her contemporary art collection.`\
 https://www.nytimes.com/2026/04/24/arts/design/san-giacomo-in-paludo-island-venice.html
-
-**Golden Blob, a Mystery From the Deep Sea, Is Identified**\
-`The strange, shiny discovery, retrieved from the ocean near Alaska in 2023, turned out to be part of an anemone, scientists said.`\
-https://www.nytimes.com/2026/04/24/science/alaska-ocean-golden-orb.html
-
-**Los generales que dirigen Irán**\
-`La guerra ha dado más poder a la Guardia Revolucionaria y parece estar transformando la república teocrática en algo más parecido a un régimen militar.`\
-https://www.nytimes.com/es/2026/04/24/espanol/mundo/generales-lideres-iran.html
 
