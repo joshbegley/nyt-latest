@@ -1,3 +1,7 @@
+**As Putin Orders That the Economy Be Fixed, Russia Grasps for Solutions**\
+`Another interest-rate cut highlights the narrowing path for the country’s central bank amid the strains of immense wartime spending.`\
+https://www.nytimes.com/2026/04/24/world/europe/russia-economy.html
+
 **Trump Administration Approves Firing Squad Executions for Death Penalty**\
 `The Justice Department also reauthorized the use of a death penalty drug, and will seek to shorten the length of some legal appeals.`\
 https://www.nytimes.com/2026/04/24/us/politics/trump-firing-squad-executions-death-penalty.html

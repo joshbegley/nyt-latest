@@ -1,3 +1,7 @@
+**As Putin Orders That the Economy Be Fixed, Russia Grasps for Solutions**\
+`Another interest-rate cut highlights the narrowing path for the country’s central bank amid the strains of immense wartime spending.`\
+https://www.nytimes.com/2026/04/24/world/europe/russia-economy.html
+
 **Trump Administration Approves Firing Squad Executions for Death Penalty**\
 `The Justice Department also reauthorized the use of a death penalty drug, and will seek to shorten the length of some legal appeals.`\
 https://www.nytimes.com/2026/04/24/us/politics/trump-firing-squad-executions-death-penalty.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/04/24/opinion/the-20-questions-that-can-prevent-dom
 **After 33 Years and Three Trials, a Conviction in a Grisly Murder**\
 `Brian Scott Lorenz was convicted of murdering Deborah Meindl, a 33-year-old nursing student who walked into her Tonawanda, N.Y., home on a cold February afternoon and never walked out.`\
 https://www.nytimes.com/2026/04/24/nyregion/buffalo-murder-guilty-trial.html
-
-**Noah Kahan Is Caught in the In-Between on ‘The Great Divide’**\
-`The singer-songwriter’s “Stick Season” was an unexpected smash. On its follow-up he sings about fame, complex relationships and the future with a sharper perspective.`\
-https://www.nytimes.com/2026/04/24/arts/music/noah-kahan-the-great-divide-review.html
 
