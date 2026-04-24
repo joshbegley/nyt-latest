@@ -1,3 +1,19 @@
+**One of Two Missing Florida Doctoral Students Is Found Dead, Officials Say**\
+`The University of South Florida students were reported missing last week. A roommate of the student whose body was found was charged in connection with his disappearance.`\
+https://www.nytimes.com/2026/04/24/us/usf-students-missing-body-found.html
+
+**Kenyan Court Strikes Down Ruling Protecting Right to Abortion**\
+`The decision, in a country where thousands of women die yearly from unsafe abortions, held that abortions deprive unborn children of the “right to life.”`\
+https://www.nytimes.com/2026/04/24/world/africa/kenya-court-abortion-ruling.html
+
+**Snowstorm Strands 300 Vehicles Overnight on Alberta, Canada, Highways**\
+`The Royal Canadian Mounted Police said they were working to rescue those stranded and deliver supplies like food, fuel and medicine.`\
+https://www.nytimes.com/2026/04/24/world/canada/snow-storm-canada-alberta-stranded.html
+
+**Wildfires in Georgia Destroy 120 structures**\
+`Two large wildfires in southeast Georgia had destroyed more than 120 structures and scorched tens of thousands of acres of drought-stricken land, according to state officials. The fires were among dozens that have been burning in the state.`\
+https://www.nytimes.com/video/weather/100000010859511/georgia-wildfires-evacuations.html
+
 **History of Domestic Abuse Can be Considered in Sentencing, Court Rules**\
 `The court ruled that prosecutors cannot make defendants who take a plea deal waive their right to a hearing that would allow their history of domestic abuse to be considered during sentencing.`\
 https://www.nytimes.com/2026/04/24/nyregion/domestic-abuse-sentencing.html
