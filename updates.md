@@ -1,3 +1,7 @@
+**Camp Mystic Notified That It May Not Receive License to Reopen**\
+`A review by state officials in Texas said the camp, hit by catastrophic flooding last year, was not in compliance with safety requirements.`\
+https://www.nytimes.com/2026/04/24/us/camp-mystic-texas-flood-safety-license.html
+
 **An Unthinkable Extreme of Domestic Violence: Killing Multiple Relatives**\
 `The Shreveport, La., slaying of eight children was an example of what experts call family annihilation.`\
 https://www.nytimes.com/2026/04/24/us/family-annihilation-murder-suicide-shreveport.html
