@@ -1,3 +1,7 @@
+**Trump Announces Cease-Fire Between Israel and Lebanon**\
+`President Trump said on Thursday that Israel and Lebanon had agreed to a three-week extension to a cease-fire. Hezbollah did not comment on the announcement.`\
+https://www.nytimes.com/video/world/middleeast/100000010860715/trump-ceasefire-israel-lebanon-hezbollah.html
+
 **Tornado Hits Eastern Oklahoma**\
 `The tornado damaged homes and struck an Air Force base in Enid, Okla., the local sheriff said. There were no immediate reports of injuries.`\
 https://www.nytimes.com/2026/04/23/weather/tornado-oklahoma-enid.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/23/nyregion/polymarket-maduro-indictment-soldier
 **Un choque mortal muestra los profundos lazos entre EE. UU. y México en materia de seguridad**\
 `El suceso reabrió el debate sobre la soberanía y la cooperación entre dos naciones que comparten mucho más que una larga frontera.`\
 https://www.nytimes.com/es/2026/04/23/espanol/america-latina/mexico-accidente-investigadores-cia.html
-
-**Intel’s Revenues Soar, Aided by A.I. Boom**\
-`The chip maker reported a 7 percent rise to $13.6 billion in its latest quarter, more than $1 billion more than Wall Street expected.`\
-https://www.nytimes.com/2026/04/23/technology/intel-ai-earnings.html
 
