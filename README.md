@@ -1,3 +1,15 @@
+**A Disputed Jet Deal and U.S. Influence Shake Peru’s Government**\
+`Pressure from Washington helped drive a disputed deal forward, triggering resignations and raising questions about sovereignty.`\
+https://www.nytimes.com/2026/04/24/world/americas/us-fighter-jet-deal-peru-government.html
+
+**New York Sues Trump Administration to Reclaim $73 Million in Highway Aid**\
+`Attorney General Letitia James filed a suit against the Trump administration, which canceled the funding because it said New York had illegally issued trucking licenses.`\
+https://www.nytimes.com/2026/04/24/nyregion/letitia-james-lawsuit-highway-funding.html
+
+**Appeals Court Says Trump’s Ban on Asylum Claims at Border Is Illegal**\
+`The ruling could force the Trump administration to begin processing new applications from asylum seekers at the southern border.`\
+https://www.nytimes.com/2026/04/24/us/politics/appeals-court-trump-asylum-claims.html
+
 **Camp Mystic Notified That It May Not Receive License to Reopen**\
 `A review by state officials in Texas said the camp, hit by catastrophic flooding last year, was not in compliance with safety requirements.`\
 https://www.nytimes.com/2026/04/24/us/camp-mystic-texas-flood-safety-license.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/24/style/time-100-gala.html
 **Some Young People Think No Kings Is Old News**\
 `Readers discuss why there are relatively few young people protesting against President Trump. Also: Psychotherapy for a change; Denmark and Ukraine.`\
 https://www.nytimes.com/2026/04/24/opinion/trump-protests-young-no-kings.html
-
-**As Putin Orders That the Economy Be Fixed, Russia Grasps for Solutions**\
-`Another interest-rate cut highlights the narrowing path for the country’s central bank amid the strains of immense wartime spending.`\
-https://www.nytimes.com/2026/04/24/world/europe/russia-economy.html
-
-**Trump Administration Approves Firing Squad Executions for Death Penalty**\
-`The Justice Department also reauthorized the use of a death penalty drug, and will seek to shorten the length of some legal appeals.`\
-https://www.nytimes.com/2026/04/24/us/politics/trump-firing-squad-executions-death-penalty.html
-
-**Britain and Spain Reject Reported Plans by Trump to Punish Them**\
-`An internal Pentagon email, reported by the Reuters news agency, suggested Washington was reviewing options to penalize the two nations for insufficiently supporting the war in Iran.`\
-https://www.nytimes.com/2026/04/24/world/europe/trump-britain-spain-falklands.html
 
