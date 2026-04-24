@@ -1,3 +1,7 @@
+**Here’s How Trump Can Get Us Out of the Mess in Iran**\
+`To salvage a decent peace with Iran, President Trump must learn the lessons of his war.`\
+https://www.nytimes.com/2026/04/24/opinion/international-world/iran-war-trump-deal.html
+
 **‘The Headlines’ News Quiz: Apr. 24, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/04/24/podcasts/the-headlines/the-headlines-news-quiz-apr-24-2026.html

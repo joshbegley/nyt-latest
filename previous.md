@@ -66,8 +66,8 @@ https://www.nytimes.com/2026/04/24/opinion/conspiracy-theory-tucker-antisemitism
 `A ruling on a dispute over a tedious cup of coffee.`\
 https://www.nytimes.com/interactive/2026/04/24/magazine/pour-over-coffee-hodgman-quiz.html
 
-**This Is How Trump Can Salvage a Deal With Iran**\
-`Here’s how President Trump can get us out of the mess in Iran.`\
+**Here’s How Trump Can Get Us Out of the Mess in Iran**\
+`To salvage a decent peace with Iran, President Trump must learn the lessons of his war.`\
 https://www.nytimes.com/2026/04/24/opinion/international-world/iran-war-trump-deal.html
 
 **A ‘KPop Demon Hunters’ Where You’re on the Mic**\
