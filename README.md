@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: Apr. 24, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/04/24/podcasts/the-headlines/the-headlines-news-quiz-apr-24-2026.html
+
 **Tim Cook’s Legacy + The Future of U.B.I. With Andrew Yang + HatGPT**\
 `The highlights, the lowlights, and how Apple changed in the years since Tim Cook took over as chief executive.`\
 https://www.nytimes.com/2026/04/24/podcasts/hardfork-tim-cook-yang-ubi.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/24/arts/people-of-note-review.html
 **El entrenador de moda es un chatbot de IA**\
 `Algunos atletas recurren a los chatbots para que los asesoren sobre sus rutinas de entrenamiento. ¿Qué tal funciona?`\
 https://www.nytimes.com/es/2026/04/24/espanol/estilos-de-vida/ejercicio-rutina-chatgpt-ai.html
-
-**Stewart Brand, Silicon Valley’s Favorite Prophet, on Life’s Most Important Principle**\
-`The counterculture icon is advocating values that are more countercultural than ever.`\
-https://www.nytimes.com/video/opinion/100000010857805/stewart-brand-silicon-valleys-favorite-prophet-on-lifes-most-important-principle.html
 
