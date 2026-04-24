@@ -1,3 +1,19 @@
+**King Charles’s Visit Will Not Include Private Meeting With Mamdani**\
+`Mayor Zohran Mamdani has been invited to join King Charles III during his visit to New York, but the mayor’s office has not confirmed if they will appear together.`\
+https://www.nytimes.com/2026/04/24/nyregion/mamdani-king-visit-new-york.html
+
+**Screens**\
+`What do you think this image is communicating?`\
+https://www.nytimes.com/2026/04/24/learning/screens.html
+
+**A Common Stomach Bug Has Become Harder to Treat**\
+`A growing share of shigella infections are drug-resistant, the C.D.C. warns in a new report.`\
+https://www.nytimes.com/2026/04/24/well/drug-resistant-shigella-xdr.html
+
+**Maine Governor Vetoes Bill That Would Have Paused New Data Centers**\
+`Gov. Janet Mills said she rejected what would have been the nation’s first moratorium on data centers because it failed to exempt a project in a distressed mill town.`\
+https://www.nytimes.com/2026/04/24/us/maine-moratorium-data-center-vetoed.html
+
 **Venice Biennale Bars Awards for Art From Countries Accused of War Crimes**\
 `The jury said it would “refrain from considering” countries whose leaders are facing charges of crimes against humanity, which would affect Israel and Russia.`\
 https://www.nytimes.com/2026/04/24/arts/venice-biennale-russia-israel.html
