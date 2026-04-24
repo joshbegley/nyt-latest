@@ -1,3 +1,15 @@
+**Google Commits to Invest Up to $40 Billion in Anthropic**\
+`The investment comes as the A.I. start-up looks to keep up with accelerating demand for its business and coding products.`\
+https://www.nytimes.com/2026/04/24/technology/google-anthropic-investment-artificial-intelligence.html
+
+**California 11th Congressional District 2026: Latest Polls**\
+`Track the latest polls in California's 11th Congressional District.`\
+https://www.nytimes.com/interactive/polls/california-us-house-11-polls-2026.html
+
+**A New Idea to Save the Climate? Dam the Bering Strait.**\
+`Blocking the narrow waterway between Russia and Alaska could help stabilize a vulnerable system of ocean currents, scientists found in a study.`\
+https://www.nytimes.com/2026/04/24/climate/amoc-bering-strait-dam.html
+
 **Trump Says He Dislikes Prediction Markets. His Family Invests in Them.**\
 `The White House has warned staff not to wager on government decisions, but his family’s involvement with these firms undermines the president’s message.`\
 https://www.nytimes.com/2026/04/24/us/politics/trump-prediction-markets.html
@@ -61,16 +73,4 @@ https://www.nytimes.com/2026/04/24/world/middleeast/iran-us-strait-of-hormuz-blo
 **California First Congressional District 2026: Latest Polls**\
 `Track the latest polls in California's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/california-us-house-1-polls-2026.html
-
-**Were Neanderthals Able to Hunt Elephants? The Proof Is in an Ancient Bone**\
-`A new study found that a pachyderm skeleton, dismissed for decades as unimportant, offers evidence of careful planning, teamwork and a calculated kill.`\
-https://www.nytimes.com/2026/04/24/science/lehringen-lakebed-elephant-neanderthals.html
-
-**California Sixth Congressional District 2026: Latest Polls**\
-`Track the latest polls in California's 6th Congressional District.`\
-https://www.nytimes.com/interactive/polls/california-us-house-6-polls-2026.html
-
-**Today, In Short**\
-`Cherry blossoms. A TikTok rabbi. And how to organize your freezer.`\
-https://www.nytimes.com/2026/04/24/briefing/today-in-short.html
 
