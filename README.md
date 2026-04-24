@@ -1,3 +1,7 @@
+**Trump Administration Approves Firing Squad Executions for Death Penalty**\
+`The Justice Department also reauthorized the use of a death penalty drug, and will seek to shorten the length of some legal appeals.`\
+https://www.nytimes.com/2026/04/24/us/politics/trump-firing-squad-executions-death-penalty.html
+
 **Britain and Spain Reject Reported Plans by Trump to Punish Them**\
 `An internal Pentagon email, reported by the Reuters news agency, suggested Washington was reviewing options to penalize the two nations for insufficiently supporting the war in Iran.`\
 https://www.nytimes.com/2026/04/24/world/europe/trump-britain-spain-falklands.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/04/24/nyregion/buffalo-murder-guilty-trial.html
 **Noah Kahan Is Caught in the In-Between on ‘The Great Divide’**\
 `The singer-songwriter’s “Stick Season” was an unexpected smash. On its follow-up he sings about fame, complex relationships and the future with a sharper perspective.`\
 https://www.nytimes.com/2026/04/24/arts/music/noah-kahan-the-great-divide-review.html
-
-**The California City With Tiny Oranges and Pink Sunsets**\
-`Surrounded by citrus groves and hiking trails, Ojai is an irresistible escape for nature enthusiasts, spiritual seekers and fans of giant tortoises.`\
-https://www.nytimes.com/2026/04/24/t-magazine/ojai-california-tiny-oranges-pink-sunsets.html
 
