@@ -1,3 +1,19 @@
+**The World According to Aldwyth**\
+`In paint, bricolage and collage, she explored the history of art, ideas and the human species.`\
+https://www.nytimes.com/2026/04/24/arts/design/aldwyth-art-dead.html
+
+**Aldwyth, Ascetic Whose Artwork Reordered the World, Dies at 90**\
+`An austere lifestyle allowed her to make epic collages and Joseph Cornell-like contraptions that told stories about art history and her place in — and outside — it.`\
+https://www.nytimes.com/2026/04/24/arts/design/aldwyth-dead.html
+
+**6 Shows Our Theater Critics Are Talking About**\
+`Rose Byrne in “Fallen Angels,” a couple trapped in the musical village of “Schmigadoon!” and “The Rocky Horror Show” at Studio 54: These productions are worth seeing.`\
+https://www.nytimes.com/2026/04/24/theater/6-shows-our-theater-critics-are-talking-about.html
+
+**Judge Imposes Sanctions on Woman and Her Lawyer in Suit Against Leon Black**\
+`A federal judge said the lawyer representing an unnamed plaintiff who accused the billionaire investor of abusing her had “lied repeatedly to the court.”`\
+https://www.nytimes.com/2026/04/24/business/lawsuit-leon-black-plaintiff-sanctions-epstein.html
+
 **Trump and David Ellison Fete Each Other, and CBS, as a Megadeal Looms**\
 `The president spoke for nearly an hour at a Paramount-hosted event that raised questions about journalistic and regulatory conflicts of interest.`\
 https://www.nytimes.com/2026/04/24/business/media/david-ellison-trump-cbs-news.html

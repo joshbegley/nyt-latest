@@ -1,9 +1,21 @@
+**The World According to Aldwyth**\
+`In paint, bricolage and collage, she explored the history of art, ideas and the human species.`\
+https://www.nytimes.com/2026/04/24/arts/design/aldwyth-art-dead.html
+
+**Aldwyth, Ascetic Whose Artwork Reordered the World, Dies at 90**\
+`An austere lifestyle allowed her to make epic collages and Joseph Cornell-like contraptions that told stories about art history and her place in — and outside — it.`\
+https://www.nytimes.com/2026/04/24/arts/design/aldwyth-dead.html
+
+**6 Shows Our Theater Critics Are Talking About**\
+`Rose Byrne in “Fallen Angels,” a couple trapped in the musical village of “Schmigadoon!” and “The Rocky Horror Show” at Studio 54: These productions are worth seeing.`\
+https://www.nytimes.com/2026/04/24/theater/6-shows-our-theater-critics-are-talking-about.html
+
 **Trump and David Ellison Fete Each Other, and CBS, as a Megadeal Looms**\
 `The president spoke for nearly an hour at a Paramount-hosted event that raised questions about journalistic and regulatory conflicts of interest.`\
 https://www.nytimes.com/2026/04/24/business/media/david-ellison-trump-cbs-news.html
 
 **Judge Imposes Sanctions on Woman and Her Lawyer in Suit Against Leon Black**\
-`A federal judge said that the lawyer representing an unnamed plaintiff who accused the billionaire investor of abusing her had “lied repeatedly to the Court.”`\
+`A federal judge said the lawyer representing an unnamed plaintiff who accused the billionaire investor of abusing her had “lied repeatedly to the court.”`\
 https://www.nytimes.com/2026/04/24/business/lawsuit-leon-black-plaintiff-sanctions-epstein.html
 
 **11 Standout Moments From Salone del Mobile**\
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/24/us/politics/appeals-court-trump-asylum-claims
 **Camp Mystic Notified That It May Not Receive License to Reopen**\
 `A review by state officials in Texas said the camp, hit by catastrophic flooding last year, was not in compliance with safety requirements.`\
 https://www.nytimes.com/2026/04/24/us/camp-mystic-texas-flood-safety-license.html
-
-**An Unthinkable Extreme of Domestic Violence: Killing Multiple Relatives**\
-`The Shreveport, La., slaying of eight children was an example of what experts call family annihilation.`\
-https://www.nytimes.com/2026/04/24/us/family-annihilation-murder-suicide-shreveport.html
-
-**Scientists Solve ‘Golden Orb’ Mystery**\
-`After more than two years of investigation, the U.S. National Oceanic and Atmospheric Administration have identified an unknown creature dubbed the “golden orb.” The orb perplexed researchers and enthusiasts of the deep sea around the world after it was found in 2023 near Alaska.`\
-https://www.nytimes.com/video/science/100000010861480/deep-sea-golden-orb.html
-
-**N.F.L. Style Will Never Beat N.B.A. Style**\
-`Plus: some great Japanese designers and a final thought on the press tour for “The Devil Wears Prada 2.”`\
-https://www.nytimes.com/2026/04/24/style/nfl-draft-style.html
 
