@@ -1,3 +1,7 @@
+**Review: ‘The Rocky Horror Show’ Rewards Your Sense of Antici…pation**\
+`Sam Pinkleton’s new revival at Studio 54 gives us the big gay mayhem we want while also maintaining some order via Rachel Dratch’s droll Narrator.`\
+https://www.nytimes.com/2026/04/23/theater/rocky-horror-show-review.html
+
 **The Poetry Challenge Day 5: You did it! You’re a star.**\
 `Now you can join Matthew McConaughey, Ada Limón, David Sedaris and other luminaries in bringing these lines to life. You’ll never look at the night sky the same way again.`\
 https://www.nytimes.com/interactive/2026/books/wh-auden-poetry-challenge-solitude.html
@@ -8,7 +12,7 @@ https://www.nytimes.com/2026/04/23/us/politics/trump-china-india-immigrants.html
 
 **Read the Indictment Charging a U.S. Solider With Insider Trading**\
 `The soldier, Master Sgt. Gannon Ken Van Dyke, who was stationed at Fort Bragg in North Carolina, made more than $400,000 by betting on different outcomes related to Venezuela after learning of the operation, federal prosecutors and the F.B.I. said.`\
-https://www.nytimes.com/interactive/2026/04/23/nyregion/23met-maduro-betting.html
+https://www.nytimes.com/interactive/2026/04/23/nyregion/maduro-betting-polymarket-soldier.html
 
 **Un soldado usó información clasificada para apostar por la captura de Maduro, según EE. UU.**\
 `Los fiscales federales afirman que el sargento Gannon Ken Van Dyke, quien participó en la operación para capturar a Nicolás Maduro, usó la información para hacer apuestas en un mercado de predicciones.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/23/us/politics/strait-iran-willpower.html
 **Without Formal Trade Talks, Canada and the U.S. Go Public With Their Grievances**\
 `Prime Minister Mark Carney shot back at Trump administration officials, saying Canada is not ‘taking instructions from the United States.’`\
 https://www.nytimes.com/2026/04/23/world/canada/carney-trump-canada-us-trade.html
-
-**Trump Says Israel-Lebanon Cease-Fire Is Extended**\
-`Also, America’s premier opera company has money troubles. Here’s the latest at the end of Thursday.`\
-https://www.nytimes.com/2026/04/23/briefing/trump-says-israel-lebanon-cease-fire-is-extended.html
 
