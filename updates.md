@@ -1,3 +1,19 @@
+**Were Neanderthals Able to Hunt Elephants? The Proof Is in an Ancient Bone**\
+`A new study found that a pachyderm skeleton, dismissed for decades as unimportant, offers evidence of careful planning, teamwork and a calculated kill.`\
+https://www.nytimes.com/2026/04/24/science/lehringen-lakebed-elephant-neanderthals.html
+
+**California Sixth Congressional District 2026: Latest Polls**\
+`Track the latest polls in California's 6th Congressional District.`\
+https://www.nytimes.com/interactive/polls/california-us-house-6-polls-2026.html
+
+**Today, In Short**\
+`Cherry blossoms. A TikTok rabbi. And how to organize your freezer.`\
+https://www.nytimes.com/2026/04/24/briefing/today-in-short.html
+
+**California Third Congressional District 2026: Latest Polls**\
+`Track the latest polls in California's 3rd Congressional District.`\
+https://www.nytimes.com/interactive/polls/california-us-house-3-polls-2026.html
+
 **Netanyahu Reveals He Had Prostate Cancer and Underwent Radiation Therapy**\
 `The Israeli leader had surgery in 2024 for an enlarged prostate. More recently, follow-up care detected a tumor, his office disclosed on Friday.`\
 https://www.nytimes.com/2026/04/24/world/middleeast/netanyahu-cancer-treatment.html

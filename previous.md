@@ -1,3 +1,19 @@
+**Were Neanderthals Able to Hunt Elephants? The Proof Is in an Ancient Bone**\
+`A new study found that a pachyderm skeleton, dismissed for decades as unimportant, offers evidence of careful planning, teamwork and a calculated kill.`\
+https://www.nytimes.com/2026/04/24/science/lehringen-lakebed-elephant-neanderthals.html
+
+**California Sixth Congressional District 2026: Latest Polls**\
+`Track the latest polls in California's 6th Congressional District.`\
+https://www.nytimes.com/interactive/polls/california-us-house-6-polls-2026.html
+
+**Today, In Short**\
+`Cherry blossoms. A TikTok rabbi. And how to organize your freezer.`\
+https://www.nytimes.com/2026/04/24/briefing/today-in-short.html
+
+**California Third Congressional District 2026: Latest Polls**\
+`Track the latest polls in California's 3rd Congressional District.`\
+https://www.nytimes.com/interactive/polls/california-us-house-3-polls-2026.html
+
 **Netanyahu Reveals He Had Prostate Cancer and Underwent Radiation Therapy**\
 `The Israeli leader had surgery in 2024 for an enlarged prostate. More recently, follow-up care detected a tumor, his office disclosed on Friday.`\
 https://www.nytimes.com/2026/04/24/world/middleeast/netanyahu-cancer-treatment.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/24/world/middleeast/trump-extends-waiver-allowin
 **How Kevin Warsh Could Shrink the Fed’s Footprint in Financial Markets**\
 `President Trump’s nominee to become the next chair of the Federal Reserve wants to overhaul the central bank, including its more than $6 trillion balance sheet.`\
 https://www.nytimes.com/2026/04/24/us/politics/kevin-warsh-fed-rates-balance-sheet.html
-
-**California 40th Congressional District 2026: Latest Polls**\
-`Track the latest polls in California's 40th Congressional District.`\
-https://www.nytimes.com/interactive/polls/california-us-house-40-polls-2026.html
-
-**Soy uno de los presos políticos de Cuba. ¿Cuándo seré libre?**\
-`Casi cinco años en una cárcel cubana me han enseñado que el gobierno no cederá en su control del poder.`\
-https://www.nytimes.com/es/2026/04/24/espanol/opinion/cuba-presos-politicos-trump.html
-
-**Why Everyone, Including Trump, Is Talking About Airline Mergers**\
-`A few carriers are making a lot of money while many are struggling. President Trump and industry executives seem to think mergers may be the answer.`\
-https://www.nytimes.com/2026/04/24/business/trump-airline-mergers-bailouts.html
-
-**Mamdani Creates Office to Fight Deed Theft in New York City**\
-`The office will seek to crack down on the practice, in which people fraudulently take ownership of others’ homes.`\
-https://www.nytimes.com/2026/04/24/nyregion/mamdani-nyc-deed-theft.html
 
