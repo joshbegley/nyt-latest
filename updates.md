@@ -1,3 +1,15 @@
+**Trump and David Ellison Fete Each Other, and CBS, as a Megadeal Looms**\
+`The president spoke for nearly an hour at a Paramount-hosted event that raised questions about journalistic and regulatory conflicts of interest.`\
+https://www.nytimes.com/2026/04/24/business/media/david-ellison-trump-cbs-news.html
+
+**Judge Imposes Sanctions on Woman and Her Lawyer in Suit Against Leon Black**\
+`A federal judge said that the lawyer representing an unnamed plaintiff who accused the billionaire investor of abusing her had “lied repeatedly to the Court.”`\
+https://www.nytimes.com/2026/04/24/business/lawsuit-leon-black-plaintiff-sanctions-epstein.html
+
+**11 Standout Moments From Salone del Mobile**\
+`Milan’s annual design fair showcased contemporary creations, as well as midcentury homes not typically open to the public.`\
+https://www.nytimes.com/2026/04/24/t-magazine/salone-del-mobile-highlights-milan-design.html
+
 **Why Are Politicians Dropping So Many F-Bombs?**\
 `Times reporters had a hunch that politicians were using the F-word more than ever. So they analyzed the data and found an interesting trend: Democrats are swearing far more than Republicans. Our reporter Kellen Browning breaks down why.`\
 https://www.nytimes.com/video/us/politics/100000010838842/why-are-politicians-dropping-so-many-f-bombs.html
