@@ -1,6 +1,10 @@
+**$450 Million Worth of Newhouse Trophies Come to Christie’s**\
+`A special May evening sale will feature 16 artworks from the museum-quality collection of the Condé Nast chief S.I. Newhouse Jr.`\
+https://www.nytimes.com/2026/04/24/arts/design/newhouse-art-collection-christies-sale.html
+
 **Both Iran and U.S. Blockade Strait of Hormuz**\
 `The foes are trying to exert control over the narrow passageway. Most ships aren’t moving. Here’s what to know.`\
-https://www.nytimes.com/2026/04/24/world/middleeast/both-iran-and-us-blockade-strait-of-hormuz.html
+https://www.nytimes.com/2026/04/24/world/middleeast/iran-us-strait-of-hormuz-blockade.html
 
 **California First Congressional District 2026: Latest Polls**\
 `Track the latest polls in California's 1st Congressional District.`\
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/04/24/world/europe/polymarket-bets-france-paris-tem
 **The Peril of Piloting Ships Through the Strait of Hormuz**\
 `Controllers for shipping companies face a daunting decision as they try to free vessels trapped in the Persian Gulf: “Basically you’re sending someone unarmed into war.”`\
 https://www.nytimes.com/2026/04/24/business/strait-hormuz-ship-captain.html
-
-**Deb Haaland’s Historic Run for Governor Hits a Primary Snag**\
-`The former interior secretary seemed to have an easy path to becoming the first woman and Native American to be New Mexico’s governor — until Sam Bregman challenged her.`\
-https://www.nytimes.com/2026/04/24/us/elections/deb-haaland-sam-bregman-new-mexico-governor.html
 
