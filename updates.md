@@ -1,3 +1,7 @@
+**Justice Department Drops Criminal Investigation into Fed**\
+`The decision to end the investigation into Jerome H. Powell’s handling of the Federal Reserve’s renovation will allow Kevin M. Warsh, President Trump’s pick for Fed chair, to win confirmation`\
+https://www.nytimes.com/2026/04/24/business/justice-department-drops-criminal-investigation-into-fed.html
+
 **Trump Extends Waiver Allowing Foreign Ships to Move Goods Between U.S. Ports**\
 `The move was intended to ensure the flow of fuel in the United States, but some economists say it might reduce gas prices for consumers only a small amount.`\
 https://www.nytimes.com/2026/04/24/world/middleeast/trump-extends-waiver-allowing-foreign-ships-to-move-goods-between-us-ports.html

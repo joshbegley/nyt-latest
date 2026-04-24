@@ -1,6 +1,10 @@
+**Deb Haaland’s Historic Run for Governor Hits a Primary Snag**\
+`The former interior secretary seemed to have an easy path to becoming New Mexico’s first Native American woman governor — until Sam Bregman challenged her.`\
+https://www.nytimes.com/2026/04/24/us/elections/deb-haaland-sam-bregman-new-mexico-governor.html
+
 **Justice Department Drops Criminal Investigation into Fed**\
 `The decision to end the investigation into Jerome H. Powell’s handling of the Federal Reserve’s renovation will allow Kevin M. Warsh, President Trump’s pick for Fed chair, to win confirmation`\
-https://www.nytimes.com/2026/04/24/business/justice-department-drops-criminal-investigation-into-fed.html
+https://www.nytimes.com/2026/04/24/business/doj-investigation-federal-reserve-powell.html
 
 **Trump Extends Waiver Allowing Foreign Ships to Move Goods Between U.S. Ports**\
 `The move was intended to ensure the flow of fuel in the United States, but some economists say it might reduce gas prices for consumers only a small amount.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/24/science/alaska-ocean-golden-orb.html
 **Los generales que dirigen Irán**\
 `La guerra ha dado más poder a la Guardia Revolucionaria y parece estar transformando la república teocrática en algo más parecido a un régimen militar.`\
 https://www.nytimes.com/es/2026/04/24/espanol/mundo/generales-lideres-iran.html
-
-**Trump’s View of the War**\
-`The cease-fire with Iran was extended this week, but negotiations were put on hold.`\
-https://www.nytimes.com/2026/04/24/podcasts/the-daily/trump-iran-war.html
 
