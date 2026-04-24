@@ -1,3 +1,23 @@
+**Trump’s View of the War**\
+`The cease-fire with Iran was extended this week, but negotiations were put on hold.`\
+https://www.nytimes.com/2026/04/24/podcasts/the-daily/trump-iran-war.html
+
+**Trump’s Approval Drops to New Low, and Condom Prices Rise Because of the War**\
+`Plus, your Friday news quiz.`\
+https://www.nytimes.com/2026/04/24/podcasts/the-headlines/trump-approval-rating-war-condom-prices.html
+
+**Wordle Review No. 1,771**\
+`Scroll down for hints and conversation about the puzzle for Saturday, April 25, 2026.`\
+https://www.nytimes.com/2026/04/24/crosswords/wordle-review-1771.html
+
+**Strands Sidekick No. 783**\
+`Scroll down for hints and conversation about the puzzle for Saturday, April 25, 2026.`\
+https://www.nytimes.com/2026/04/24/crosswords/strands-sidekick-783.html
+
+**Connections Companion No. 1,049**\
+`Scroll down for hints and conversation about the puzzle for Saturday, April 25, 2026.`\
+https://www.nytimes.com/2026/04/24/crosswords/connections-companion-1049.html
+
 **A.I. Start-Ups From Canada and Germany Merge to Take On Silicon Valley**\
 `Cohere is acquiring Aleph Alpha in a deal aimed at customers uneasy about the dominance of American companies in artificial intelligence.`\
 https://www.nytimes.com/2026/04/24/business/cohere-aleph-alpha-ai-merger.html
