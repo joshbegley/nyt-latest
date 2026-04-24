@@ -1,3 +1,15 @@
+**Michael Harrison, 67, Dies; Composer (and Inventor) Played With Tuning**\
+`Influenced by Indian raga and nontraditional tuning systems, he created hypnotic works with a spiritual bent and created an unconventional piano.`\
+https://www.nytimes.com/2026/04/24/arts/music/michael-harrison-dead.html
+
+**Flashback: Your Weekly History Quiz, April 25, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/04/24/upshot/flashback.html
+
+**What Are Prediction Markets, and Why Are They Causing Controversy?**\
+`The indictment of a soldier who bet on the U.S. operation to capture President Nicolás Maduro of Venezuela put renewed focus on a new way to gamble, and a new way to cheat.`\
+https://www.nytimes.com/2026/04/24/business/what-are-prediction-markets.html
+
 **Inside the Time 100 Gala: Where Victoria and David Beckham Dine with MrBeast**\
 `Titans of influence filled the Deutsche Bank Center in Manhattan on Thursday night for an evening of selfies and self-congratulation.`\
 https://www.nytimes.com/2026/04/24/style/time-100-gala.html
@@ -61,16 +73,4 @@ https://www.nytimes.com/2026/04/24/briefing/today-in-short.html
 **California Third Congressional District 2026: Latest Polls**\
 `Track the latest polls in California's 3rd Congressional District.`\
 https://www.nytimes.com/interactive/polls/california-us-house-3-polls-2026.html
-
-**Netanyahu Reveals He Had Prostate Cancer and Underwent Radiation Therapy**\
-`The Israeli leader had surgery in 2024 for an enlarged prostate. More recently, follow-up care detected a tumor, his office disclosed on Friday.`\
-https://www.nytimes.com/2026/04/24/world/middleeast/netanyahu-cancer-treatment.html
-
-**While Advising Kennedy, Top Aide Had More Than $25 Million Stake in Wellness Company**\
-`Calley Means remained president of a company that relied on health savings accounts last year as the Trump administration developed policies to expand them.`\
-https://www.nytimes.com/2026/04/24/health/calley-means-truemed-trump-health-savings.html
-
-**It Was Just a Podcast. Now, It’s Kelce Land.**\
-`When Amazon gutted its podcast company, it built a new department that made creators kings, starting with the football stars Jason and Travis Kelce.`\
-https://www.nytimes.com/2026/04/24/business/media/jason-travis-kelce-amazon-podcast.html
 
