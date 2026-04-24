@@ -1,3 +1,19 @@
+**De productos baratos a símbolo de innovación: China gana terreno en Indonesia**\
+`Para muchos consumidores, “hecho en China” ya no significa bajo costo, sino tecnología y modernidad.`\
+https://www.nytimes.com/es/2026/04/24/espanol/negocios/china-marcas-exito-indonesia.html
+
+**Algunos Labubus contienen algodón que podría ser producto de trabajos forzados**\
+`Una prueba verificada por The New York Times descubrió que la ropa de algunos de los muñecos virales contenía algodón procedente de la región china de Sinkiang, que está prohibido en EE. UU.`\
+https://www.nytimes.com/es/2026/04/24/espanol/negocios/labubu-china.html
+
+**Cómo los médicos de EE. UU. se aprovechan de una ley de protección al consumidor**\
+`El mecanismo diseñado para eliminar las facturas sorpresa ha abierto la puerta a reclamaciones millonarias y a una nueva dinámica en el sistema de salud.`\
+https://www.nytimes.com/es/2026/04/24/espanol/estados-unidos/medicos-ley-proteccion-consumidor.html
+
+**¿Qué pasa cuando la IA está a cargo de una tienda?**\
+`En San Francisco, Andon Market se anuncia como la primera boutique minorista gestionada por un agente de inteligencia artificial. Hasta ahora, el inventario parece arbitrario y hay demasiadas velas.`\
+https://www.nytimes.com/es/2026/04/24/espanol/estados-unidos/tienda-ia-andon-market.html
+
 **Jimmy Kimmel Roasts Trump at a Mock White House Correspondents’ Dinner**\
 `The late night host took “a page from the Kid Rock alternative halftime show,” which aired during the Super Bowl, in offering his own “all-American” version of the Washington tradition.`\
 https://www.nytimes.com/2026/04/24/arts/television/jimmy-kimmel-roasts-trump.html
