@@ -1,3 +1,15 @@
+**$100 Million Award Made in Suit Over Unlicensed Robert Indiana Art**\
+`A New York jury found that an art publisher who made works derived from Indiana’s images had infringed on the rights of a company that had been the artist’s partner.`\
+https://www.nytimes.com/2026/04/24/arts/design/robert-indiana-lawsuit-verdict.html
+
+**31 Sloths Acquired by an Orlando Animal Attraction Died, Officials Say**\
+`Many of the deaths were attributed to a lack of heat at an unauthorized warehouse that Sloth World was using, officials said.`\
+https://www.nytimes.com/2026/04/24/us/sloth-deaths-orlando.html
+
+**U.S. Sending Kushner and Witkoff to Pakistan to Resume Talks on Iran**\
+`Iran’s foreign minister has already arrived in the country, state media reported. He was believed to be carrying a written response to a U.S. proposal to end the war.`\
+https://www.nytimes.com/2026/04/24/world/middleeast/kushner-witkoff-pakistan-iran.html
+
 **The ‘Lasting Damage’ of Pirro’s Abandoned Fed Investigation**\
 `The Trump administration’s attacks on the Federal Reserve have rattled confidence in the central bank’s ability to operate independently before a leadership transition.`\
 https://www.nytimes.com/2026/04/24/us/politics/federal-reserve-powell-pirro-investigation.html
