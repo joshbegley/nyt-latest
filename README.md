@@ -56,7 +56,7 @@ https://www.nytimes.com/2026/04/24/nyregion/isis-bomb-attack-nyc-appeal.html
 
 **Escalating Clashes Test Newly Extended Israel-Lebanon Truce**\
 `The U.S.-mediated cease-fire halted an all-out war between Israel and Hezbollah, but their intensifying attacks on each other could put the truce at risk.`\
-https://www.nytimes.com/2026/04/24/world/middleeast/escalating-clashes-test-newly-extended-israel-lebanon-truce.html
+https://www.nytimes.com/2026/04/24/world/middleeast/israel-lebanon-fighting-ceasefire.html
 
 **Review: She’s Conducting an Opera While Singing Its Starring Role**\
 `The soprano Barbara Hannigan, who also directed, is multitasking at the New York Philharmonic in a disturbingly resonant take on “La Voix Humaine.”`\
