@@ -1,3 +1,11 @@
+**De los bombardeos a las tensas negociaciones: el estado de la guerra en Irán**\
+`El conflicto se ha transformado en un enfrentamiento volátil en el estrecho de Ormuz, a medida que aumentan los costes económicos y el presidente Trump se enfrenta a una reacción política interna.`\
+https://www.nytimes.com/es/2026/04/24/espanol/mundo/estrecho-ormuz-iran-guerra.html
+
+**I’m One of Cuba’s Political Prisoners. When Will I Go Free?**\
+`Nearly five years in Cuban prison have taught me that the government won’t loosen its hold on power.`\
+https://www.nytimes.com/2026/04/24/opinion/cuba-us-blockade-prisoner.html
+
 **DeepSeek’s Sequel Set to Extend China’s Reach in Open-Source A.I.**\
 `Chinese companies have embraced making their most advanced artificial intelligence models available to all.`\
 https://www.nytimes.com/2026/04/24/business/china-ai-deepseek-open-source.html
