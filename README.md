@@ -1,80 +1,80 @@
-**The Athletic Football Show: 2026 N.F.L. Draft First Round Recap**\
-`Robert, Derrik and Dave break down what you missed.`\
-https://www.nytimes.com/2026/04/24/podcasts/football-2026-nfl-draft-recap.html
+**Stewart Brand, Silicon Valley’s Favorite Prophet, on Life’s Most Important Principle**\
+`The counterculture icon is advocating values that are more countercultural than ever.`\
+https://www.nytimes.com/2026/04/24/opinion/ezra-klein-podcast-stewart-brand.html
 
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/04/24/world/iran-war-trump-hormuz/heres-the-latest
+**The New York Times News Quiz, April 24, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/interactive/2026/04/24/briefing/news-quiz-trump-warsh.html
 
-**De productos baratos a símbolo de innovación: China gana terreno en Indonesia**\
-`Para muchos consumidores, “hecho en China” ya no significa bajo costo, sino tecnología y modernidad.`\
-https://www.nytimes.com/es/2026/04/24/espanol/negocios/china-marcas-exito-indonesia.html
+**The Conspiracy Theory Behind Tucker Carlson’s Apology**\
+`Rather than honestly reckoning with their role in America’s derangement, MAGA apostates are creating a scapegoat to explain it away.`\
+https://www.nytimes.com/2026/04/24/opinion/conspiracy-theory-tucker-antisemitism.html
 
-**Algunos Labubus contienen algodón que podría ser producto de trabajos forzados**\
-`Una prueba verificada por The New York Times descubrió que la ropa de algunos de los muñecos virales contenía algodón procedente de la región china de Sinkiang, que está prohibido en EE. UU.`\
-https://www.nytimes.com/es/2026/04/24/espanol/negocios/labubu-china.html
+**Do You Have to Make Pour-Over Coffee for Your Spouse?**\
+`A ruling on a dispute over a tedious cup of coffee.`\
+https://www.nytimes.com/interactive/2026/04/24/magazine/pour-over-coffee-hodgman-quiz.html
 
-**Cómo los médicos de EE. UU. se aprovechan de una ley de protección al consumidor**\
-`El mecanismo diseñado para eliminar las facturas sorpresa ha abierto la puerta a reclamaciones millonarias y a una nueva dinámica en el sistema de salud.`\
-https://www.nytimes.com/es/2026/04/24/espanol/estados-unidos/medicos-ley-proteccion-consumidor.html
+**This Is How Trump Can Salvage a Deal With Iran**\
+`Here’s how President Trump can get us out of the mess in Iran.`\
+https://www.nytimes.com/2026/04/24/opinion/international-world/iran-war-trump-deal.html
 
-**¿Qué pasa cuando la IA está a cargo de una tienda?**\
-`En San Francisco, Andon Market se anuncia como la primera boutique minorista gestionada por un agente de inteligencia artificial. Hasta ahora, el inventario parece arbitrario y hay demasiadas velas.`\
-https://www.nytimes.com/es/2026/04/24/espanol/estados-unidos/tienda-ia-andon-market.html
+**A ‘KPop Demon Hunters’ Where You’re on the Mic**\
+`People of Note has a pleasant music-themed twist on turn-based gameplay.`\
+https://www.nytimes.com/2026/04/24/arts/people-of-note-review.html
 
-**Jimmy Kimmel Roasts Trump at a Mock White House Correspondents’ Dinner**\
-`The late night host took “a page from the Kid Rock alternative halftime show,” which aired during the Super Bowl, in offering his own “all-American” version of the Washington tradition.`\
-https://www.nytimes.com/2026/04/24/arts/television/jimmy-kimmel-roasts-trump.html
+**El entrenador de moda es un chatbot de IA**\
+`Algunos atletas recurren a los chatbots para que los asesoren sobre sus rutinas de entrenamiento. ¿Qué tal funciona?`\
+https://www.nytimes.com/es/2026/04/24/espanol/estilos-de-vida/ejercicio-rutina-chatgpt-ai.html
 
-**Los sueños de Trump de un acorazado llevaron a la destitución de su secretario de Marina**\
-`El secretario de Marina, John Phelan, debía entregar el primero de los barcos del presidente en 2028. El plazo era casi imposible.`\
-https://www.nytimes.com/es/2026/04/24/espanol/estados-unidos/trump-acorazado-destitucion-secretario-marina.html
+**Stewart Brand, Silicon Valley’s Favorite Prophet, on Life’s Most Important Principle**\
+`The counterculture icon is advocating values that are more countercultural than ever.`\
+https://www.nytimes.com/video/opinion/100000010857805/stewart-brand-silicon-valleys-favorite-prophet-on-lifes-most-important-principle.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/04/24/crosswords/spelling-bee-forum.html
+**The Law on Metal Gates That Nearly Everyone Forgot About**\
+`In 2009, the City Council decided that roll-down metal gates could no longer be solid. The law goes into effect this summer, after 17 years.`\
+https://www.nytimes.com/2026/04/24/nyregion/metal-gates-city-council-law.html
 
-**Palabra del día: ‘solemn’**\
-`Esta palabra ha aparecido en 214 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
-https://www.nytimes.com/es/2026/04/24/espanol/que-significa-solemn.html
+**Companies, Not Consumers, to Cash In Big From Tariff Refunds**\
+`Many families felt the sting of the president’s now-illegal tariffs, but companies have said little about whether they will share the $166 billion coming back to them.`\
+https://www.nytimes.com/2026/04/24/business/companies-consumers-tariff-refunds.html
 
-**Cuando todo es incierto, enfócate en controlar tus finanzas**\
-`Las noticias sobre la guerra y la incertidumbre laboral te pueden ofuscar, pero hay formas de mantener las riendas de tus egresos.`\
-https://www.nytimes.com/es/2026/04/24/espanol/negocios/controlar-finanzas-tiempos-inciertos.html
+**What Have You Learned From Playing Games?**\
+`The New York Times recently featured young stars in the world of chess. Are you a fan of the centuries-old board game?`\
+https://www.nytimes.com/2026/04/24/learning/what-have-you-learned-from-playing-games.html
 
-**Word of the Day: solemn**\
-`This word has appeared in 166 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/04/24/learning/word-of-the-day-solemn.html
+**Book Club: Read ‘Transcription,’ by Ben Lerner, With the Book Review**\
+`In May, the Book Review Book Club will read and discuss Lerner’s new novel, a cerebral exploration of technology, family, truth and existence.`\
+https://www.nytimes.com/2026/04/24/books/review/transcription-ben-lerner-book-club.html
 
-**Rubio Says Iran’s Soccer Team Can Attend World Cup**\
-`Secretary of State Marco Rubio said that while the players were welcome, anyone accompanying them who has links to the Iranian military would be denied entry.`\
-https://www.nytimes.com/2026/04/24/us/politics/trump-rubio-iran-world-cup.html
+**Could an Earthly Fungus Contaminate Mars? NASA May Have Found One Hardy Enough.**\
+`Researchers identified a species that can survive radiation, extreme heat and simulated Martian soil, posing a new challenge for protocols intended to keep the red planet pristine.`\
+https://www.nytimes.com/2026/04/24/science/space/mars-nasa-fungus-contamination.html
 
-**De los bombardeos a las tensas negociaciones: el estado de la guerra en Irán**\
-`El conflicto se ha transformado en un enfrentamiento volátil en el estrecho de Ormuz, a medida que aumentan los costes económicos y el presidente Trump se enfrenta a una reacción política interna.`\
-https://www.nytimes.com/es/2026/04/24/espanol/mundo/estrecho-ormuz-iran-guerra.html
+**Don’t Blame John Roberts for the Shadow Docket**\
+`In our constitutional system, we have to think about what will happen when the tables are turned.`\
+https://www.nytimes.com/2026/04/24/opinion/shadow-docket-supreme-court-john-roberts.html
 
-**I’m One of Cuba’s Political Prisoners. When Will I Go Free?**\
-`Nearly five years in Cuban prison have taught me that the government won’t loosen its hold on power.`\
-https://www.nytimes.com/2026/04/24/opinion/cuba-us-blockade-prisoner.html
+**A New Worry for Republicans: Latino Catholics Offended by Trump**\
+`In 2024, the president made significant inroads with Hispanics. But in a competitive Arizona congressional district, voters now express dismay at his feud with the pope.`\
+https://www.nytimes.com/2026/04/24/us/politics/trump-pope-latino-voters.html
 
-**DeepSeek’s Sequel Set to Extend China’s Reach in Open-Source A.I.**\
-`Chinese companies have embraced making their most advanced artificial intelligence models available to all.`\
-https://www.nytimes.com/2026/04/24/business/china-ai-deepseek-open-source.html
+**9 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://www.nytimes.com/2026/04/24/movies/new-movies-this-week-critics.html
 
-**‘Didi vs. Modi’: A Test for the Hindu Right in India’s Bengali Heartland**\
-`The party of Prime Minister Narendra Modi has been making gains in a state once beyond its grasp, but many decry an audit that removed nine million voters, many of them Muslim.`\
-https://www.nytimes.com/2026/04/24/world/asia/india-elections-modi-bengal.html
+**Who’s Getting a Tariff Refund?**\
+`Following a Supreme Court ruling that struck down several Trump administration tariffs, importers have begun applying for their share of $166 billion in refunds. As our economic policy reporter Tony Romm explains, consumers are unlikely to see much of that money returned to their own pockets.`\
+https://www.nytimes.com/video/business/100000010852324/whos-getting-a-tariff-refund.html
 
-**In Britain, 7 Unelected Lords Are Helping to Block an Assisted Dying Bill**\
-`A small group in the House of Lords has proposed hundreds of amendments that are helping stymie a bill that was meant to legalize medically assisted death for the terminally ill.`\
-https://www.nytimes.com/2026/04/24/world/europe/uk-assisted-dying-bill-lords.html
+**$1.5 Million Homes in Panama**\
+`A three-bedroom house built into a hillside, and two modern condos with ocean views.`\
+https://www.nytimes.com/2026/04/24/realestate/panama-homes-for-sale.html
 
-**Europe Mulls What Mutual Defense Looks Like Outside NATO**\
-`European Union nations have a little-known obligation to protect one another. Experts caution it is no replacement for NATO.`\
-https://www.nytimes.com/2026/04/24/world/europe/europe-defense-nato-trump-eu.html
+**Should a Straight Person Represent Stonewall’s City Council District?**\
+`In a special election on Manhattan’s West Side, home to major L.G.B.T.Q. sites and institutions and many gay residents, a straight person could win for the first time since 1991.`\
+https://www.nytimes.com/2026/04/24/nyregion/lindsey-boylan-carl-wilson-gay-city-council.html
 
-**Corrections: April 24, 2026**\
-`Corrections that appeared in print on Friday, April 24, 2026.`\
-https://www.nytimes.com/2026/04/24/pageoneplus/corrections-april-24-2026.html
+**Todd Blanche Targets Trump’s Enemies Amid Jockeying to Lead Justice Dept.**\
+`Mr. Blanche’s salvo of actions are meant to demonstrate progress on the president’s priorities, chief among them payback.`\
+https://www.nytimes.com/2026/04/24/us/politics/todd-blanche-trump-doj.html
 
