@@ -1,3 +1,7 @@
+**Wildfires Destroy Dozens of Structures in Georgia, Governor Says**\
+`Fires fueled by drought have burned tens of thousands of acres in southern Georgia and northern Florida, where officials said one blaze was blamed for the death of a volunteer firefighter.`\
+https://www.nytimes.com/2026/04/24/us/georgia-wildfires-homes-destroyed.html
+
 **$100 Million Award Made in Suit Over Unlicensed Robert Indiana Art**\
 `A New York jury found that an art publisher who made works derived from Indiana’s images had infringed on the rights of a company that had been the artist’s partner.`\
 https://www.nytimes.com/2026/04/24/arts/design/robert-indiana-lawsuit-verdict.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/24/theater/6-shows-our-theater-critics-are-talki
 **Trump and David Ellison Fete Each Other, and CBS, as a Megadeal Looms**\
 `The president spoke for nearly an hour at a Paramount-hosted event that raised questions about journalistic and regulatory conflicts of interest.`\
 https://www.nytimes.com/2026/04/24/business/media/david-ellison-trump-cbs-news.html
-
-**Judge Imposes Sanctions on Woman and Her Lawyer in Suit Against Leon Black**\
-`A federal judge said the lawyer representing an unnamed plaintiff who accused the billionaire investor of abusing her had “lied repeatedly to the court.”`\
-https://www.nytimes.com/2026/04/24/business/lawsuit-leon-black-plaintiff-sanctions-epstein.html
 

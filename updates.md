@@ -1,3 +1,7 @@
+**Wildfires Destroy Dozens of Structures in Georgia, Governor Says**\
+`Fires fueled by drought have burned tens of thousands of acres in southern Georgia and northern Florida, where officials said one blaze was blamed for the death of a volunteer firefighter.`\
+https://www.nytimes.com/2026/04/24/us/georgia-wildfires-homes-destroyed.html
+
 **$100 Million Award Made in Suit Over Unlicensed Robert Indiana Art**\
 `A New York jury found that an art publisher who made works derived from Indiana’s images had infringed on the rights of a company that had been the artist’s partner.`\
 https://www.nytimes.com/2026/04/24/arts/design/robert-indiana-lawsuit-verdict.html
