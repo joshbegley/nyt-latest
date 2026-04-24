@@ -51,7 +51,7 @@ https://www.nytimes.com/es/2026/04/23/espanol/estados-unidos/trump-revocar-ciuda
 https://www.nytimes.com/2026/04/23/us/politics/trump-reflecting-pool-renovation.html
 
 **Soldier Used Classified Information to Bet on Maduro’s Ouster, U.S. Says**\
-`Federal prosecutors say that Sgt. Gannon Ken Van Dyke, who was involved in planning to oust Nicolás Maduro from power in Venezuela, used the information to place bets on a prediction market.`\
+`Federal prosecutors say that Sgt. Gannon Ken Van Dyke, who was involved in the operation to oust Nicolás Maduro from power in Venezuela, used the information to place bets on a prediction market.`\
 https://www.nytimes.com/2026/04/23/nyregion/polymarket-maduro-indictment-soldier.html
 
 **Un choque mortal muestra los profundos lazos entre EE. UU. y México en materia de seguridad**\
