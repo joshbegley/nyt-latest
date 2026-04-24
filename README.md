@@ -1,3 +1,15 @@
+**King Charles’s Visit Will Not Include Private Meeting With Mamdani**\
+`Mayor Zohran Mamdani has been invited to join King Charles III during his visit to New York, but the mayor’s office has not confirmed if they will appear together.`\
+https://www.nytimes.com/2026/04/24/nyregion/mamdani-king-visit-new-york.html
+
+**Screens**\
+`What do you think this image is communicating?`\
+https://www.nytimes.com/2026/04/24/learning/screens.html
+
+**A Common Stomach Bug Has Become Harder to Treat**\
+`A growing share of shigella infections are drug-resistant, the C.D.C. warns in a new report.`\
+https://www.nytimes.com/2026/04/24/well/drug-resistant-shigella-xdr.html
+
 **Maine Governor Vetoes Bill That Would Have Paused New Data Centers**\
 `Gov. Janet Mills said she rejected what would have been the nation’s first moratorium on data centers because it failed to exempt a project in a distressed mill town.`\
 https://www.nytimes.com/2026/04/24/us/maine-moratorium-data-center-vetoed.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/interactive/polls/california-us-house-11-polls-2026.html
 **A New Idea to Save the Climate? Dam the Bering Strait.**\
 `Blocking the narrow waterway between Russia and Alaska could help stabilize a vulnerable system of ocean currents, scientists found in a study.`\
 https://www.nytimes.com/2026/04/24/climate/amoc-bering-strait-dam.html
-
-**Trump Says He Dislikes Prediction Markets. His Family Invests in Them.**\
-`The White House has warned staff not to wager on government decisions, but his family’s involvement with these firms undermines the president’s message.`\
-https://www.nytimes.com/2026/04/24/us/politics/trump-prediction-markets.html
-
-**Michael Harrison, 67, Dies; Inventive Composer Who Played With Tuning**\
-`Influenced by Indian raga and nontraditional tuning systems, he created hypnotic works with a spiritual bent and created an unconventional piano.`\
-https://www.nytimes.com/2026/04/24/arts/music/michael-harrison-dead.html
-
-**Flashback: Your Weekly History Quiz, April 25, 2026**\
-`Can you sort 8 historical events?`\
-https://www.nytimes.com/interactive/2026/04/24/upshot/flashback.html
 
