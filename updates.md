@@ -1,3 +1,11 @@
+**Los sueños de Trump de un acorazado llevaron a la destitución de su secretario de Marina**\
+`El secretario de Marina, John Phelan, debía entregar el primero de los barcos del presidente en 2028. El plazo era casi imposible.`\
+https://www.nytimes.com/es/2026/04/24/espanol/estados-unidos/trump-acorazado-destitucion-secretario-marina.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/24/crosswords/spelling-bee-forum.html
+
 **Palabra del día: ‘solemn’**\
 `Esta palabra ha aparecido en 214 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/04/24/espanol/que-significa-solemn.html

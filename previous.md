@@ -1,3 +1,11 @@
+**Los sueños de Trump de un acorazado llevaron a la destitución de su secretario de Marina**\
+`El secretario de Marina, John Phelan, debía entregar el primero de los barcos del presidente en 2028. El plazo era casi imposible.`\
+https://www.nytimes.com/es/2026/04/24/espanol/estados-unidos/trump-acorazado-destitucion-secretario-marina.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/24/crosswords/spelling-bee-forum.html
+
 **Palabra del día: ‘solemn’**\
 `Esta palabra ha aparecido en 214 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/04/24/espanol/que-significa-solemn.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/24/style/elizabeth-maresca-nicholas-magarelli-we
 **Quote of the Day: Iranian Expats in Dubai Feel Caught Between Home and Homeland**\
 `Quotation of the Day for Friday, April 24, 2026.`\
 https://www.nytimes.com/2026/04/23/pageoneplus/quote-of-the-day-iranian-expats-in-dubai-feel-caught-between-home-and-homeland.html
-
-**Trump Announces Cease-Fire Between Israel and Lebanon**\
-`President Trump said on Thursday that Israel and Lebanon had agreed to a three-week extension to a cease-fire. Hezbollah did not comment on the announcement.`\
-https://www.nytimes.com/video/world/middleeast/100000010860715/trump-ceasefire-israel-lebanon-hezbollah.html
-
-**Tornado Hits City in Oklahoma**\
-`The tornado damaged homes and struck an Air Force base in Enid, Okla., the local sheriff said. Some people were injured.`\
-https://www.nytimes.com/2026/04/23/weather/tornado-oklahoma-enid.html
 
