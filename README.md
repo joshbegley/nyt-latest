@@ -1,3 +1,7 @@
+**A.I. Start-Ups From Canada and Germany Merge to Take On Silicon Valley**\
+`Cohere is acquiring Aleph Alpha in a deal aimed at customers uneasy about the dominance of American companies in artificial intelligence.`\
+https://www.nytimes.com/2026/04/24/business/cohere-aleph-alpha-ai-merger.html
+
 **Gaza Set to Hold First Local Election in Two Decades**\
 `Hamas said it was not participating in the municipal elections in Deir al-Balah, set for this weekend. Residents said it was a long-awaited opportunity to address the city’s problems`\
 https://www.nytimes.com/2026/04/24/world/middleeast/gaza-elections-deir-al-balah.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/business/100000010852324/whos-getting-a-tariff-ref
 **$1.5 Million Homes in Panama**\
 `A three-bedroom house built into a hillside, and two modern condos with ocean views.`\
 https://www.nytimes.com/2026/04/24/realestate/panama-homes-for-sale.html
-
-**Should a Straight Person Represent Stonewall’s City Council District?**\
-`In a special election on Manhattan’s West Side, home to major L.G.B.T.Q. sites and institutions and many gay residents, a straight person could win for the first time since 1991.`\
-https://www.nytimes.com/2026/04/24/nyregion/lindsey-boylan-carl-wilson-gay-city-council.html
 
