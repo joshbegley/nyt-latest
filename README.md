@@ -1,3 +1,7 @@
+**Maine Governor Vetoes Bill That Would Have Paused New Data Centers**\
+`Gov. Janet Mills said she rejected what would have been the nation’s first moratorium on data centers because it failed to exempt a project in a distressed mill town.`\
+https://www.nytimes.com/2026/04/24/us/maine-moratorium-data-center-vetoed.html
+
 **Venice Biennale Bars Awards for Art From Countries Accused of War Crimes**\
 `The jury said it would “refrain from considering” countries whose leaders are facing charges of crimes against humanity, which would affect Israel and Russia.`\
 https://www.nytimes.com/2026/04/24/arts/venice-biennale-russia-israel.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/24/arts/music/michael-harrison-dead.html
 **Flashback: Your Weekly History Quiz, April 25, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/04/24/upshot/flashback.html
-
-**What Are Prediction Markets, and Why Are They Causing Controversy?**\
-`The indictment of a soldier who bet on the U.S. operation to capture President Nicolás Maduro of Venezuela put renewed focus on a new way to gamble, and a new way to cheat.`\
-https://www.nytimes.com/2026/04/24/business/what-are-prediction-markets.html
 
