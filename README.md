@@ -1,3 +1,11 @@
+**De los bombardeos a las tensas negociaciones: el estado de la guerra en Irán**\
+`El conflicto se ha transformado en un enfrentamiento volátil en el estrecho de Ormuz, a medida que aumentan los costes económicos y el presidente Trump se enfrenta a una reacción política interna.`\
+https://www.nytimes.com/es/2026/04/24/espanol/mundo/estrecho-ormuz-iran-guerra.html
+
+**I’m One of Cuba’s Political Prisoners. When Will I Go Free?**\
+`Nearly five years in Cuban prison have taught me that the government won’t loosen its hold on power.`\
+https://www.nytimes.com/2026/04/24/opinion/cuba-us-blockade-prisoner.html
+
 **DeepSeek’s Sequel Set to Extend China’s Reach in Open-Source A.I.**\
 `Chinese companies have embraced making their most advanced artificial intelligence models available to all.`\
 https://www.nytimes.com/2026/04/24/business/china-ai-deepseek-open-source.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/23/crosswords/daily-puzzle-2026-04-24.html
 **Review: ‘The Rocky Horror Show’ Rewards Your Sense of Antici…pation**\
 `Sam Pinkleton’s new revival at Studio 54 gives us the big gay mayhem we want while also maintaining some order via Rachel Dratch’s droll Narrator.`\
 https://www.nytimes.com/2026/04/23/theater/rocky-horror-show-review.html
-
-**The Poetry Challenge Day 5: You did it! You’re a star.**\
-`Now you can join Matthew McConaughey, Ada Limón, David Sedaris and other luminaries in bringing these lines to life. You’ll never look at the night sky the same way again.`\
-https://www.nytimes.com/interactive/2026/books/wh-auden-poetry-challenge-solitude.html
-
-**Trump Reposts Tirade Against Chinese and Indian Immigrants**\
-`The president touched off a furor with his post sharing a podcast episode in which the host referred to China and India as “hellhole” places.`\
-https://www.nytimes.com/2026/04/23/us/politics/trump-china-india-immigrants.html
 
