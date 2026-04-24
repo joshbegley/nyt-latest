@@ -1,3 +1,7 @@
+**Tornado Hits Eastern Oklahoma**\
+`The tornado damaged homes and struck an Air Force base in Enid, Okla., the local sheriff said. There were no immediate reports of injuries.`\
+https://www.nytimes.com/2026/04/23/weather/tornado-oklahoma-enid.html
+
 **Congressman’s Gambit to Save Seat: He’ll Personally Match Each Donation**\
 `Daniel Goldman is pledging at least $1 million of his own money, and possibly millions more, in hopes of fighting off a primary challenge from Brad Lander in New York City.`\
 https://www.nytimes.com/2026/04/23/nyregion/dan-goldman-brad-lander-congress.html
