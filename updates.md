@@ -1,3 +1,7 @@
+**DeepSeek’s Sequel Set to Extend China’s Reach in Open-Source A.I.**\
+`Chinese companies have embraced making their most advanced artificial intelligence models available to all.`\
+https://www.nytimes.com/2026/04/24/business/china-ai-deepseek-open-source.html
+
 **‘Didi vs. Modi’: A Test for the Hindu Right in India’s Bengali Heartland**\
 `The party of Prime Minister Narendra Modi has been making gains in a state once beyond its grasp, but many decry an audit that removed nine million voters, many of them Muslim.`\
 https://www.nytimes.com/2026/04/24/world/asia/india-elections-modi-bengal.html
