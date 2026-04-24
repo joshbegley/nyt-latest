@@ -1,3 +1,7 @@
+**Mamdani Expected to Reject Bill Involving Police at School Protests**\
+`The bill would compel the police to release plans on how it intends to manage protesters by educational facilities. It passed without a veto-proof majority.`\
+https://www.nytimes.com/2026/04/24/nyregion/mamdani-buffer-zones-veto.html
+
 **Ignoring the War Has Been Working for Long-Term Investors**\
 `The U.S. stock market’s quick rebound this month may be fragile, but riding out the market’s disconcerting waves has been a sound strategy.`\
 https://www.nytimes.com/2026/04/24/business/iran-war-stocks-bonds-investing.html
