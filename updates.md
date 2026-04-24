@@ -1,3 +1,27 @@
+**Soy uno de los presos políticos de Cuba. ¿Cuándo seré libre?**\
+`Casi cinco años en una cárcel cubana me han enseñado que el gobierno no cederá en su control del poder.`\
+https://www.nytimes.com/es/2026/04/24/espanol/opinion/cuba-presos-politicos-trump.html
+
+**Why Everyone, Including Trump, Is Talking About Airline Mergers**\
+`A few carriers are making a lot of money while many are struggling. President Trump and industry executives seem to think mergers may be the answer.`\
+https://www.nytimes.com/2026/04/24/business/trump-airline-mergers-bailouts.html
+
+**Mamdani Creates Office to Fight Deed Theft in New York City**\
+`The office will seek to crack down on the practice, in which people fraudulently take ownership of others’ homes.`\
+https://www.nytimes.com/2026/04/24/nyregion/mamdani-nyc-deed-theft.html
+
+**California Seventh Congressional District 2026: Latest Polls**\
+`Track the latest polls in California's 7th Congressional District.`\
+https://www.nytimes.com/interactive/polls/california-us-house-7-polls-2026.html
+
+**Mamdani Expected to Reject Bill Involving Police at School Protests**\
+`The bill, which is on track to receive Mr. Mamdani’s first veto as mayor, would compel the Police Department to release plans on how it intends to manage protesters near educational facilities.`\
+https://www.nytimes.com/2026/04/24/nyregion/mamdani-buffer-zones-veto.html
+
+**A.I. Is Forcing More Belt-Tightening at Big Tech**\
+`The growing expense of keeping up in the artificial intelligence race is driving technology companies, young and old, to cut costs.`\
+https://www.nytimes.com/2026/04/24/business/dealbook/ai-tech-cost-cuts.html
+
 **Mamdani Expected to Reject Bill Involving Police at School Protests**\
 `The bill would compel the police to release plans on how it intends to manage protesters by educational facilities. It passed without a veto-proof majority.`\
 https://www.nytimes.com/2026/04/24/nyregion/mamdani-buffer-zones-veto.html
