@@ -1,3 +1,15 @@
+**Palabra del día: ‘solemn’**\
+`Esta palabra ha aparecido en 214 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/04/24/espanol/que-significa-solemn.html
+
+**Cuando todo es incierto, enfócate en controlar tus finanzas**\
+`Las noticias sobre la guerra y la incertidumbre laboral te pueden ofuscar, pero hay formas de mantener las riendas de tus egresos.`\
+https://www.nytimes.com/es/2026/04/24/espanol/negocios/controlar-finanzas-tiempos-inciertos.html
+
+**Word of the Day: solemn**\
+`This word has appeared in 166 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/04/24/learning/word-of-the-day-solemn.html
+
 **Rubio Says Iran’s Soccer Team Can Attend World Cup**\
 `Secretary of State Marco Rubio said that while the players were welcome, anyone accompanying them who has links to the Iranian military would be denied entry.`\
 https://www.nytimes.com/2026/04/24/us/politics/trump-rubio-iran-world-cup.html
