@@ -1,3 +1,11 @@
+**Review: ‘The Rocky Horror Show’ Rewards Your Sense of Antici…pation**\
+`Sam Pinkleton’s new revival at Studio 54 gives us the big gay mayhem we want while also maintaining some order via Rachel Dratch’s droll Narrator.`\
+https://www.nytimes.com/2026/04/23/theater/rocky-horror-show-review.html
+
+**Read the Indictment Charging a U.S. Solider With Insider Trading**\
+`The soldier, Master Sgt. Gannon Ken Van Dyke, who was stationed at Fort Bragg in North Carolina, made more than $400,000 by betting on different outcomes related to Venezuela after learning of the operation, federal prosecutors and the F.B.I. said.`\
+https://www.nytimes.com/interactive/2026/04/23/nyregion/maduro-betting-polymarket-soldier.html
+
 **The Poetry Challenge Day 5: You did it! You’re a star.**\
 `Now you can join Matthew McConaughey, Ada Limón, David Sedaris and other luminaries in bringing these lines to life. You’ll never look at the night sky the same way again.`\
 https://www.nytimes.com/interactive/2026/books/wh-auden-poetry-challenge-solitude.html
