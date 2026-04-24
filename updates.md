@@ -1,3 +1,11 @@
+**La desaprobación de Trump alcanza el nivel más alto de su segundo mandato**\
+`La caída del presidente en las encuestas se produce cuando la guerra de Irán ha elevado los precios de la gasolina y cada vez más estadounidenses están preocupados por la economía.`\
+https://www.nytimes.com/es/2026/04/24/espanol/estados-unidos/trump-aprobacion-desaprobacion-encuestas.html
+
+**Escalating Clashes Test Newly Extended Israel-Lebanon Truce**\
+`The U.S.-mediated cease-fire halted an all-out war between Israel and Hezbollah, but their intensifying attacks on each other could put the truce at risk.`\
+https://www.nytimes.com/2026/04/24/world/middleeast/israel-lebanon-fighting-ceasefire.html
+
 **Google Commits to Invest Up to $40 Billion in Anthropic**\
 `The investment comes as the A.I. start-up looks to keep up with accelerating demand for its business and coding products.`\
 https://www.nytimes.com/2026/04/24/technology/google-anthropic-investment-artificial-intelligence.html
