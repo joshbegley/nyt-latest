@@ -1,3 +1,7 @@
+**Camp Mystic Notified That It May Not Receive License to Reopen**\
+`A review by state officials in Texas said the camp, hit by catastrophic flooding last year, was not in compliance with safety requirements.`\
+https://www.nytimes.com/2026/04/24/us/camp-mystic-texas-flood-safety-license.html
+
 **An Unthinkable Extreme of Domestic Violence: Killing Multiple Relatives**\
 `The Shreveport, La., slaying of eight children was an example of what experts call family annihilation.`\
 https://www.nytimes.com/2026/04/24/us/family-annihilation-murder-suicide-shreveport.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/24/us/politics/trump-firing-squad-executions-dea
 **Britain and Spain Reject Reported Plans by Trump to Punish Them**\
 `An internal Pentagon email, reported by the Reuters news agency, suggested Washington was reviewing options to penalize the two nations for insufficiently supporting the war in Iran.`\
 https://www.nytimes.com/2026/04/24/world/europe/trump-britain-spain-falklands.html
-
-**He Said ISIS Inspired His Attack. Does That Count as Supporting Terrorists?**\
-`A federal appeals court threw out a conviction that said Akayed Ullah provided “material support” to ISIS, putting a prosecutorial tool under the microscope.`\
-https://www.nytimes.com/2026/04/24/nyregion/isis-bomb-attack-nyc-appeal.html
 
