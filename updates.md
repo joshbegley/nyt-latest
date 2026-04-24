@@ -1,3 +1,11 @@
+**Deb Haaland’s Historic Run for Governor Hits a Primary Snag**\
+`The former interior secretary seemed to have an easy path to becoming New Mexico’s first Native American woman governor — until Sam Bregman challenged her.`\
+https://www.nytimes.com/2026/04/24/us/elections/deb-haaland-sam-bregman-new-mexico-governor.html
+
+**Justice Department Drops Criminal Investigation into Fed**\
+`The decision to end the investigation into Jerome H. Powell’s handling of the Federal Reserve’s renovation will allow Kevin M. Warsh, President Trump’s pick for Fed chair, to win confirmation`\
+https://www.nytimes.com/2026/04/24/business/doj-investigation-federal-reserve-powell.html
+
 **Justice Department Drops Criminal Investigation into Fed**\
 `The decision to end the investigation into Jerome H. Powell’s handling of the Federal Reserve’s renovation will allow Kevin M. Warsh, President Trump’s pick for Fed chair, to win confirmation`\
 https://www.nytimes.com/2026/04/24/business/justice-department-drops-criminal-investigation-into-fed.html

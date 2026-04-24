@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/04/24/us/elections/deb-haaland-sam-bregman-new-mexico-governor.html
 
 **Justice Department Drops Criminal Investigation into Fed**\
-`The decision to end the investigation into Jerome H. Powell’s handling of the Federal Reserve’s renovation will allow Kevin M. Warsh, President Trump’s pick for Fed chair, to win confirmation`\
+`The decision to end the investigation into Jerome H. Powell’s handling of the Federal Reserve’s renovation will allow Kevin M. Warsh, President Trump’s pick for Fed chair, to win confirmation.`\
 https://www.nytimes.com/2026/04/24/business/doj-investigation-federal-reserve-powell.html
 
 **Trump Extends Waiver Allowing Foreign Ships to Move Goods Between U.S. Ports**\
