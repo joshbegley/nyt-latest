@@ -1,3 +1,19 @@
+**The Poetry Challenge Day 5: You did it! You’re a star.**\
+`Now you can join Matthew McConaughey, Ada Limón, David Sedaris and other luminaries in bringing these lines to life. You’ll never look at the night sky the same way again.`\
+https://www.nytimes.com/interactive/2026/books/wh-auden-poetry-challenge-solitude.html
+
+**Trump Reposts Tirade Against Chinese and Indian Immigrants**\
+`The president touched off a furor with his post sharing a podcast episode in which the host referred to China and India as “hellhole” places.`\
+https://www.nytimes.com/2026/04/23/us/politics/trump-china-india-immigrants.html
+
+**Un soldado usó información clasificada para apostar por la captura de Maduro, según EE. UU.**\
+`Los fiscales federales afirman que el sargento Gannon Ken Van Dyke, quien participó en la operación para capturar a Nicolás Maduro, usó la información para hacer apuestas en un mercado de predicciones.`\
+https://www.nytimes.com/es/2026/04/23/espanol/estados-unidos/soldado-apuesta-captura-maduro.html
+
+**Iran War Has Drained U.S. Supplies of Critical, Costly Weapons**\
+`The Pentagon’s rush to rearm its Mideast forces makes it less ready to confront potential adversaries like Russia and China, administration and congressional officials say.`\
+https://www.nytimes.com/2026/04/23/us/politics/iran-war-cost-military.html
+
 **Read the Indictment Charging a U.S. Solider With Insider Trading**\
 `The soldier, Master Sgt. Gannon Ken Van Dyke, who was stationed at Fort Bragg in North Carolina, made more than $400,000 by betting on different outcomes related to Venezuela after learning of the operation, federal prosecutors and the F.B.I. said.`\
 https://www.nytimes.com/interactive/2026/04/23/nyregion/23met-maduro-betting.html
