@@ -1,3 +1,7 @@
+**Gaza Set to Hold First Local Election in Two Decades**\
+`Hamas said it was not participating in the municipal elections in Deir al-Balah, set for this weekend. Residents said it was a long-awaited opportunity to address the city’s problems`\
+https://www.nytimes.com/2026/04/24/world/middleeast/gaza-elections-deir-al-balah.html
+
 **Stewart Brand, Silicon Valley’s Favorite Prophet, on Life’s Most Important Principle**\
 `The counterculture icon is advocating values that are more countercultural than ever.`\
 https://www.nytimes.com/2026/04/24/opinion/ezra-klein-podcast-stewart-brand.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/24/realestate/panama-homes-for-sale.html
 **Should a Straight Person Represent Stonewall’s City Council District?**\
 `In a special election on Manhattan’s West Side, home to major L.G.B.T.Q. sites and institutions and many gay residents, a straight person could win for the first time since 1991.`\
 https://www.nytimes.com/2026/04/24/nyregion/lindsey-boylan-carl-wilson-gay-city-council.html
-
-**Todd Blanche Targets Trump’s Enemies Amid Jockeying to Lead Justice Dept.**\
-`Mr. Blanche’s salvo of actions are meant to demonstrate progress on the president’s priorities, chief among them payback.`\
-https://www.nytimes.com/2026/04/24/us/politics/todd-blanche-trump-doj.html
 

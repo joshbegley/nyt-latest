@@ -1,3 +1,7 @@
+**Gaza Set to Hold First Local Election in Two Decades**\
+`Hamas said it was not participating in the municipal elections in Deir al-Balah, set for this weekend. Residents said it was a long-awaited opportunity to address the city’s problems`\
+https://www.nytimes.com/2026/04/24/world/middleeast/gaza-elections-deir-al-balah.html
+
 **Stewart Brand, Silicon Valley’s Favorite Prophet, on Life’s Most Important Principle**\
 `The counterculture icon is advocating values that are more countercultural than ever.`\
 https://www.nytimes.com/2026/04/24/opinion/ezra-klein-podcast-stewart-brand.html
