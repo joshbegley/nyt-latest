@@ -1,3 +1,7 @@
+**¿Cómo evitar las caídas en casa?**\
+`Los tropiezos y resbalones en casa pueden ocurrirle a cualquiera, pero pueden evitarse con unas cuantas medidas sencillas.`\
+https://www.nytimes.com/es/2026/04/24/espanol/estilos-de-vida/caidas-como-prevenir.html
+
 **La desaprobación de Trump alcanza el nivel más alto de su segundo mandato**\
 `La caída del presidente en las encuestas se produce cuando la guerra de Irán ha elevado los precios de la gasolina y cada vez más estadounidenses están preocupados por la economía.`\
 https://www.nytimes.com/es/2026/04/24/espanol/estados-unidos/trump-aprobacion-desaprobacion-encuestas.html
