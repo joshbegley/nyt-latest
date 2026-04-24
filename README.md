@@ -1,3 +1,11 @@
+**‘No Warnings’: How Israel’s Deadly Airstrikes Unfolded in Central Beirut**\
+`On April 8, just hours into a ceasefire agreement between the U.S. and Iran, the Israeli military carried out its most intense bombing campaign in Lebanon this year. The New York Times took a closer look at the deadly strikes in Beirut.`\
+https://www.nytimes.com/video/world/middleeast/100000010837758/no-warnings-how-israels-deadly-airstrikes-unfolded-in-central-beirut.html
+
+**U.S. Unveils More Sanctions Targeting Iran’s Shadow Fleet**\
+`The Treasury Department also targeted a top independent Chinese refinery that it said was a major buyer of Iranian petroleum.`\
+https://www.nytimes.com/2026/04/24/world/middleeast/iran-sanctions-oil-tankers-shadow-fleet.html
+
 **A Dinner in Honolulu That Included an Impromptu Ukulele Jam Session**\
 `The chef Sheldon Simeon celebrated his new cookbook with a low-key feast at an over-the-top venue.`\
 https://www.nytimes.com/2026/04/24/t-magazine/sheldon-simeon-cookbook-dinner.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/24/well/drug-resistant-shigella-xdr.html
 **Maine Governor Vetoes Bill That Would Have Paused New Data Centers**\
 `Gov. Janet Mills said she rejected what would have been the nation’s first moratorium on data centers because it failed to exempt a project in a distressed mill town.`\
 https://www.nytimes.com/2026/04/24/us/maine-moratorium-data-center-vetoed.html
-
-**Venice Biennale Bars Awards for Art From Countries Accused of War Crimes**\
-`The jury said it would “refrain from considering” countries whose leaders are facing charges of crimes against humanity, which would affect Israel and Russia.`\
-https://www.nytimes.com/2026/04/24/arts/venice-biennale-russia-israel.html
-
-**Book Club: Let’s Talk About ‘The Renovation,’ by Kenan Orhan**\
-`The protagonist of this debut novel wants to get her bathroom upgraded. It becomes a portal to a Turkish prison cell instead.`\
-https://www.nytimes.com/2026/04/24/books/review/podcast-book-club-renovation-kenan-orhan.html
 
