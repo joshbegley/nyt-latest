@@ -1,3 +1,11 @@
+**Pentagon Fires Stars and Stripes’ Advocate for Independence**\
+`The newspaper’s ombudsman, Jacqueline Smith, said she had been given no reason for her dismissal.`\
+https://www.nytimes.com/2026/04/23/business/pentagon-fires-stars-and-stripes-ombudsman.html
+
+**Acrobat’s Display**\
+`Andrew Spooner returns to open our solving weekend.`\
+https://www.nytimes.com/2026/04/23/crosswords/daily-puzzle-2026-04-24.html
+
 **Review: ‘The Rocky Horror Show’ Rewards Your Sense of Antici…pation**\
 `Sam Pinkleton’s new revival at Studio 54 gives us the big gay mayhem we want while also maintaining some order via Rachel Dratch’s droll Narrator.`\
 https://www.nytimes.com/2026/04/23/theater/rocky-horror-show-review.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/23/science/doug-allan-dead.html
 **Court Revives D.C.’s Ban on High-Capacity Gun Magazines, for Now**\
 `The Trump administration and D.C. officials, normally at odds over the city’s strict gun laws, had both asked the court to reconsider the case.`\
 https://www.nytimes.com/2026/04/23/us/politics/dc-ban-gun-magazines.html
-
-**How the War in Iran Is Shifting From Bombardment to a Test of Wills**\
-`The conflict has morphed into a volatile standoff in the Strait of Hormuz, as the economic costs mount and President Trump faces a political backlash at home.`\
-https://www.nytimes.com/2026/04/23/us/politics/strait-iran-willpower.html
-
-**Without Formal Trade Talks, Canada and the U.S. Go Public With Their Grievances**\
-`Prime Minister Mark Carney shot back at Trump administration officials, saying Canada is not ‘taking instructions from the United States.’`\
-https://www.nytimes.com/2026/04/23/world/canada/carney-trump-canada-us-trade.html
 
