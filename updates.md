@@ -1,3 +1,15 @@
+**This ‘Sustainable’ Island Is Venice’s Newest Art Oasis**\
+`Patrizia Sandretto Re Rebaudengo has turned a former gunpowder store into a showcase for her contemporary art collection.`\
+https://www.nytimes.com/2026/04/24/arts/san-giacomo-in-paludo-island-venice.html
+
+**Golden Blob, a Mystery From the Deep Sea, Is Identified**\
+`The strange, shiny discovery, retrieved from the ocean near Alaska in 2023, turned out to be part of an anemone, scientists said.`\
+https://www.nytimes.com/2026/04/24/science/alaska-ocean-golden-orb.html
+
+**Los generales que dirigen Irán**\
+`La guerra ha dado más poder a la Guardia Revolucionaria y parece estar transformando la república teocrática en algo más parecido a un régimen militar.`\
+https://www.nytimes.com/es/2026/04/24/espanol/mundo/generales-lideres-iran.html
+
 **Trump’s View of the War**\
 `The cease-fire with Iran was extended this week, but negotiations were put on hold.`\
 https://www.nytimes.com/2026/04/24/podcasts/the-daily/trump-iran-war.html
