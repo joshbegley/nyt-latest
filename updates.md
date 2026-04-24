@@ -1,3 +1,7 @@
+**Congressman’s Gambit to Save Seat: He’ll Personally Match Each Donation**\
+`Daniel Goldman is pledging at least $1 million of his own money, and possibly millions more, in hopes of fighting off a primary challenge from Brad Lander in New York City.`\
+https://www.nytimes.com/2026/04/23/nyregion/dan-goldman-brad-lander-congress.html
+
 **Pentagon Fires Stars and Stripes’ Advocate for Independence**\
 `The newspaper’s ombudsman, Jacqueline Smith, said she had been given no reason for her dismissal.`\
 https://www.nytimes.com/2026/04/23/business/pentagon-fires-stars-and-stripes-ombudsman.html

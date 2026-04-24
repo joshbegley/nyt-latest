@@ -1,3 +1,7 @@
+**Congressman’s Gambit to Save Seat: He’ll Personally Match Each Donation**\
+`Daniel Goldman is pledging at least $1 million of his own money, and possibly millions more, in hopes of fighting off a primary challenge from Brad Lander in New York City.`\
+https://www.nytimes.com/2026/04/23/nyregion/dan-goldman-brad-lander-congress.html
+
 **Pentagon Fires Stars and Stripes’ Advocate for Independence**\
 `The newspaper’s ombudsman, Jacqueline Smith, said she had been given no reason for her dismissal.`\
 https://www.nytimes.com/2026/04/23/business/pentagon-fires-stars-and-stripes-ombudsman.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/23/technology/intel-ai-earnings.html
 **Doug Allan, Polar Cameraman for David Attenborough’s Films, Dies at 74**\
 `He was renowned for his skill at capturing candid scenes of penguins, polar bears and other cold-weather creatures — and for his ability to tolerate extreme discomfort.`\
 https://www.nytimes.com/2026/04/23/science/doug-allan-dead.html
-
-**Court Revives D.C.’s Ban on High-Capacity Gun Magazines, for Now**\
-`The Trump administration and D.C. officials, normally at odds over the city’s strict gun laws, had both asked the court to reconsider the case.`\
-https://www.nytimes.com/2026/04/23/us/politics/dc-ban-gun-magazines.html
 
