@@ -1,3 +1,11 @@
+**Tornado Strikes an Air Force Base in Oklahoma**\
+`A large tornado in Oklahoma damaged homes and struck Vance Air Force Base in the city of Enid, officials said. The tornado came as severe weather threatened the central United States.`\
+https://www.nytimes.com/video/weather/100000010861081/tornado-oklahoma-damage-enid.html
+
+**This ‘Sustainable’ Island Is Venice’s Newest Art Oasis**\
+`Patrizia Sandretto Re Rebaudengo has turned a former gunpowder store into a showcase for her contemporary art collection.`\
+https://www.nytimes.com/2026/04/24/arts/design/san-giacomo-in-paludo-island-venice.html
+
 **A.I. Is Forcing More Belt-Tightening at Big Tech**\
 `The growing expense of keeping up in the artificial intelligence race is driving technology companies, young and old, to costs.`\
 https://www.nytimes.com/2026/04/24/business/dealbook/ai-tech-cost-cuts.html

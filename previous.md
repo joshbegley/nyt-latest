@@ -1,3 +1,7 @@
+**Tornado Strikes an Air Force Base in Oklahoma**\
+`A large tornado in Oklahoma damaged homes and struck Vance Air Force Base in the city of Enid, officials said. The tornado came as severe weather threatened the central United States.`\
+https://www.nytimes.com/video/weather/100000010861081/tornado-oklahoma-damage-enid.html
+
 **A.I. Is Forcing More Belt-Tightening at Big Tech**\
 `The growing expense of keeping up in the artificial intelligence race is driving technology companies, young and old, to costs.`\
 https://www.nytimes.com/2026/04/24/business/dealbook/ai-tech-cost-cuts.html
@@ -16,7 +20,7 @@ https://www.nytimes.com/2026/04/24/briefing/youth-suicides-drop.html
 
 **This ‘Sustainable’ Island Is Venice’s Newest Art Oasis**\
 `Patrizia Sandretto Re Rebaudengo has turned a former gunpowder store into a showcase for her contemporary art collection.`\
-https://www.nytimes.com/2026/04/24/arts/san-giacomo-in-paludo-island-venice.html
+https://www.nytimes.com/2026/04/24/arts/design/san-giacomo-in-paludo-island-venice.html
 
 **Golden Blob, a Mystery From the Deep Sea, Is Identified**\
 `The strange, shiny discovery, retrieved from the ocean near Alaska in 2023, turned out to be part of an anemone, scientists said.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/04/24/magazine/pour-over-coffee-hodgman
 **Here’s How Trump Can Get Us Out of the Mess in Iran**\
 `To salvage a decent peace with Iran, President Trump must learn the lessons of his war.`\
 https://www.nytimes.com/2026/04/24/opinion/international-world/iran-war-trump-deal.html
-
-**A ‘KPop Demon Hunters’ Where You’re on the Mic**\
-`People of Note has a pleasant music-themed twist on turn-based gameplay.`\
-https://www.nytimes.com/2026/04/24/arts/people-of-note-review.html
 
