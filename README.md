@@ -1,3 +1,23 @@
+**Trump’s View of the War**\
+`The cease-fire with Iran was extended this week, but negotiations were put on hold.`\
+https://www.nytimes.com/2026/04/24/podcasts/the-daily/trump-iran-war.html
+
+**Trump’s Approval Drops to New Low, and Condom Prices Rise Because of the War**\
+`Plus, your Friday news quiz.`\
+https://www.nytimes.com/2026/04/24/podcasts/the-headlines/trump-approval-rating-war-condom-prices.html
+
+**Wordle Review No. 1,771**\
+`Scroll down for hints and conversation about the puzzle for Saturday, April 25, 2026.`\
+https://www.nytimes.com/2026/04/24/crosswords/wordle-review-1771.html
+
+**Strands Sidekick No. 783**\
+`Scroll down for hints and conversation about the puzzle for Saturday, April 25, 2026.`\
+https://www.nytimes.com/2026/04/24/crosswords/strands-sidekick-783.html
+
+**Connections Companion No. 1,049**\
+`Scroll down for hints and conversation about the puzzle for Saturday, April 25, 2026.`\
+https://www.nytimes.com/2026/04/24/crosswords/connections-companion-1049.html
+
 **A.I. Start-Ups From Canada and Germany Merge to Take On Silicon Valley**\
 `Cohere is acquiring Aleph Alpha in a deal aimed at customers uneasy about the dominance of American companies in artificial intelligence.`\
 https://www.nytimes.com/2026/04/24/business/cohere-aleph-alpha-ai-merger.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/04/24/books/review/transcription-ben-lerner-book-cl
 **Could an Earthly Fungus Contaminate Mars? NASA May Have Found One Hardy Enough.**\
 `Researchers identified a species that can survive radiation, extreme heat and simulated Martian soil, posing a new challenge for protocols intended to keep the red planet pristine.`\
 https://www.nytimes.com/2026/04/24/science/space/mars-nasa-fungus-contamination.html
-
-**Don’t Blame John Roberts for the Shadow Docket**\
-`In our constitutional system, we have to think about what will happen when the tables are turned.`\
-https://www.nytimes.com/2026/04/24/opinion/shadow-docket-supreme-court-john-roberts.html
-
-**A New Worry for Republicans: Latino Catholics Offended by Trump**\
-`In 2024, the president made significant inroads with Hispanics. But in a competitive Arizona congressional district, voters now express dismay at his feud with the pope.`\
-https://www.nytimes.com/2026/04/24/us/politics/trump-pope-latino-voters.html
-
-**9 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/04/24/movies/new-movies-this-week-critics.html
-
-**Who’s Getting a Tariff Refund?**\
-`Following a Supreme Court ruling that struck down several Trump administration tariffs, importers have begun applying for their share of $166 billion in refunds. As our economic policy reporter Tony Romm explains, consumers are unlikely to see much of that money returned to their own pockets.`\
-https://www.nytimes.com/video/business/100000010852324/whos-getting-a-tariff-refund.html
-
-**$1.5 Million Homes in Panama**\
-`A three-bedroom house built into a hillside, and two modern condos with ocean views.`\
-https://www.nytimes.com/2026/04/24/realestate/panama-homes-for-sale.html
 
