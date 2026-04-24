@@ -1,15 +1,3 @@
-**Trump Says Israel and Lebanon Agree to Extend Cease-Fire by Three Weeks**\
-`The president made the announcement after he hosted a meeting at the White House of Israeli and Lebanese diplomats.`\
-https://www.nytimes.com/2026/04/23/us/politics/israel-lebanon-ceasefire-trump.html
-
-**Conservative Lobbyist Hired Man to Violently Extort Client, U.S. Says**\
-`Before his arrest last month, Josh Nass, a lawyer, used his connections to lobby the Trump administration, including for a client seeking clemency.`\
-https://www.nytimes.com/2026/04/23/nyregion/conservative-lobbyist-indictment.html
-
-**U.S. Blew Through Expensive Weapons in Iran War**\
-`Commanders are concerned about the Pentagon’s shift of long-range precision weapons from the Asia-Pacific region to the Middle East, congressional officials say.`\
-https://www.nytimes.com/2026/04/23/us/politics/iran-war-cost-military.html
-
 **Trump Officials Investigate N.Y.C. Schools Over Pro-Palestinian Group**\
 `The federal Department of Education said it would begin a civil rights investigation, reviewing teachings by a group known as N.Y.C. Educators for Palestine.`\
 https://www.nytimes.com/2026/04/23/nyregion/nyc-schools-trump-civil-rights-investigation.html
@@ -77,4 +65,16 @@ https://www.nytimes.com/2026/04/23/us/politics/trump-iran-nuclear-dust-uranium.h
 **Do We All Need a Little Bitcoin?**\
 `Stability is the single biggest lie in financial markets, the investor and Bitcoin evangelist Anthony Pompliano tells the columnist Ross Douthat on “Interesting Times.” The “volatility generation” is embracing Bitcoin because traditional assets like Treasuries are actually designed to lose money, he argues.`\
 https://www.nytimes.com/video/opinion/100000010848698/do-we-all-need-a-little-bitcoin.html
+
+**A Bad Investment in Trump Vibes**\
+`Is there inherent corruption in Trump’s approach to cryptocurrency? Ross Douthat unpacks the Trump family’s crypto holdings with Bitcoin investor Anthony Pompliano and debates whether crypto is just an “investment in vibes” that’s “bound up in Trump’s political fortunes.”`\
+https://www.nytimes.com/video/opinion/100000010848707/a-bad-investment-in-trump-vibes.html
+
+**The Generals Running Iran**\
+`The war has empowered the Revolutionary Guards and seems to be shifting the theocratic republic toward something more like a military regime.`\
+https://www.nytimes.com/2026/04/23/world/iran-guards-military-israel-lebanon.html
+
+**Rescue Effort for Russian Tanker Fails, in a New Era of Maritime Peril**\
+`The ship, which carried fuel and natural gas, has been adrift for weeks in the Mediterranean Sea after a drone attack, alarming officials who fear an environmental disaster.`\
+https://www.nytimes.com/2026/04/23/world/europe/russian-tanker-mediterranean.html
 
