@@ -1,3 +1,7 @@
+**Did an Acid Trip Inspire the First Photo of Earth?**\
+`How did looking back at the Earth for the first time change humanity’s perspective? The legendary thinker Stewart Brand tells the Opinion columnist Ezra Klein why we need to shift our focus from “looking outward” to the essential, constant work of maintaining our civilizations and the planet itself.`\
+https://www.nytimes.com/video/opinion/100000010857817/did-an-acid-trip-inspire-the-first-photo-of-earth.html
+
 **The Prophet of Silicon Valley**\
 `Stewart Brand, an author and visionary, deeply influenced the internet era from the 1960s onward. Yet the systems he inspired have become fundamentally unintelligible to their creators. The Opinion columnist Ezra Klein explores the tension between Brand’s “how to” philosophy and the black-box reality of modern A.I. on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000010857809/the-prophet-of-silicon-valley.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/podcasts/100000010862391/does-the-drama-know-zenda
 **The World According to Aldwyth**\
 `In paint, bricolage and collage, she explored the history of art, ideas and the human species.`\
 https://www.nytimes.com/2026/04/24/arts/design/aldwyth-art-dead.html
-
-**Aldwyth, Ascetic Whose Artwork Reordered the World, Dies at 90**\
-`An austere lifestyle allowed her to make epic collages and Joseph Cornell-like contraptions that told stories about art history and her place in — and outside — it.`\
-https://www.nytimes.com/2026/04/24/arts/design/aldwyth-dead.html
 
