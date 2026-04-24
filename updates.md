@@ -1,3 +1,11 @@
+**An Unthinkable Extreme of Domestic Violence: Killing Multiple Relatives**\
+`The Shreveport, La., slaying of eight children was an example of what experts call family annihilation.`\
+https://www.nytimes.com/2026/04/24/us/family-annihilation-murder-suicide-shreveport.html
+
+**Michael Harrison, 67, Dies; Inventive Composer Who Played With Tuning**\
+`Influenced by Indian raga and nontraditional tuning systems, he created hypnotic works with a spiritual bent and created an unconventional piano.`\
+https://www.nytimes.com/2026/04/24/arts/music/michael-harrison-dead.html
+
 **Scientists Solve ‘Golden Orb’ Mystery**\
 `After more than two years of investigation, the U.S. National Oceanic and Atmospheric Administration have identified an unknown creature dubbed the “golden orb.” The orb perplexed researchers and enthusiasts of the deep sea around the world after it was found in 2023 near Alaska.`\
 https://www.nytimes.com/video/science/100000010861480/deep-sea-golden-orb.html

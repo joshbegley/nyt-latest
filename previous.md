@@ -1,3 +1,7 @@
+**An Unthinkable Extreme of Domestic Violence: Killing Multiple Relatives**\
+`The Shreveport, La., slaying of eight children was an example of what experts call family annihilation.`\
+https://www.nytimes.com/2026/04/24/us/family-annihilation-murder-suicide-shreveport.html
+
 **Scientists Solve ‘Golden Orb’ Mystery**\
 `After more than two years of investigation, the U.S. National Oceanic and Atmospheric Administration have identified an unknown creature dubbed the “golden orb.” The orb perplexed researchers and enthusiasts of the deep sea around the world after it was found in 2023 near Alaska.`\
 https://www.nytimes.com/video/science/100000010861480/deep-sea-golden-orb.html
@@ -38,7 +42,7 @@ https://www.nytimes.com/2026/04/24/climate/amoc-bering-strait-dam.html
 `The White House has warned staff not to wager on government decisions, but his family’s involvement with these firms undermines the president’s message.`\
 https://www.nytimes.com/2026/04/24/us/politics/trump-prediction-markets.html
 
-**Michael Harrison, 67, Dies; Composer (and Inventor) Played With Tuning**\
+**Michael Harrison, 67, Dies; Inventive Composer Who Played With Tuning**\
 `Influenced by Indian raga and nontraditional tuning systems, he created hypnotic works with a spiritual bent and created an unconventional piano.`\
 https://www.nytimes.com/2026/04/24/arts/music/michael-harrison-dead.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/24/world/europe/trump-britain-spain-falklands.ht
 **He Said ISIS Inspired His Attack. Does That Count as Supporting Terrorists?**\
 `A federal appeals court threw out a conviction that said Akayed Ullah provided “material support” to ISIS, putting a prosecutorial tool under the microscope.`\
 https://www.nytimes.com/2026/04/24/nyregion/isis-bomb-attack-nyc-appeal.html
-
-**Escalating Clashes Test Newly Extended Israel-Lebanon Truce**\
-`The U.S.-mediated cease-fire halted an all-out war between Israel and Hezbollah, but their intensifying attacks on each other could put the truce at risk.`\
-https://www.nytimes.com/2026/04/24/world/middleeast/israel-lebanon-fighting-ceasefire.html
 
