@@ -1,3 +1,11 @@
+**Tim Cook’s Legacy + The Future of U.B.I. With Andrew Yang + HatGPT**\
+`The highlights, the lowlights, and how Apple changed in the years since Tim Cook took over as chief executive.`\
+https://www.nytimes.com/2026/04/24/podcasts/hardfork-tim-cook-yang-ubi.html
+
+**Youth Suicides Drop**\
+`We are covering a success story today.`\
+https://www.nytimes.com/2026/04/24/briefing/youth-suicides-drop.html
+
 **This ‘Sustainable’ Island Is Venice’s Newest Art Oasis**\
 `Patrizia Sandretto Re Rebaudengo has turned a former gunpowder store into a showcase for her contemporary art collection.`\
 https://www.nytimes.com/2026/04/24/arts/san-giacomo-in-paludo-island-venice.html
