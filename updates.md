@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: Apr. 24, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/04/24/podcasts/the-headlines/the-headlines-news-quiz-apr-24-2026.html
+
 **Tim Cook’s Legacy + The Future of U.B.I. With Andrew Yang + HatGPT**\
 `The highlights, the lowlights, and how Apple changed in the years since Tim Cook took over as chief executive.`\
 https://www.nytimes.com/2026/04/24/podcasts/hardfork-tim-cook-yang-ubi.html
