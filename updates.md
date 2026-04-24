@@ -1,3 +1,19 @@
+**A Dinner in Honolulu That Included an Impromptu Ukulele Jam Session**\
+`The chef Sheldon Simeon celebrated his new cookbook with a low-key feast at an over-the-top venue.`\
+https://www.nytimes.com/2026/04/24/t-magazine/sheldon-simeon-cookbook-dinner.html
+
+**Gambling Companies Laud Indictments to Push Back on Pressure to Regulate**\
+`Sports betting companies and prediction markets have cited recent federal charges related to insider trading as proof that illegal activity is being rooted out. Critics say the cases do not address widespread illicit activity.`\
+https://www.nytimes.com/2026/04/24/nyregion/gambling-companies-indictments-regulation.html
+
+**Does ‘The Drama’ Know Zendaya is Black?**\
+`Wesley Morris weighs in on Zendaya, her performance in ‘The Drama’, and on-screen interracial relationships.`\
+https://www.nytimes.com/video/podcasts/100000010857984/does-the-drama-know-zendaya-is-black.html
+
+**Does ‘The Drama’ Know Zendaya is Black?**\
+`Wesley Morris weighs in on Zendaya, her performance in ‘The Drama’, and on-screen interracial relationships.`\
+https://www.nytimes.com/video/podcasts/100000010862391/does-the-drama-know-zendaya-is-black.html
+
 **The World According to Aldwyth**\
 `In paint, bricolage and collage, she explored the history of art, ideas and the human species.`\
 https://www.nytimes.com/2026/04/24/arts/design/aldwyth-art-dead.html
