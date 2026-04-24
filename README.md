@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/04/24/arts/music/wayne-moss-dead.html
 `Guidelines for the art contest, sponsored by the group Freedom 250, include material about abolitionists and civil rights leaders, but little mention of what they fought against.`\
 https://www.nytimes.com/2026/04/24/arts/trump-garden-heroes-king.html
 
-**U.S. Sending Kushner and Witkoff to Pakistan to Resume Iran Talks**\
+**U.S. Sending Kushner and Witkoff to Pakistan to Resume Talks on Iran**\
 `Iran’s foreign minister has already arrived in the country, state media reported. He was believed to be carrying a written response to a U.S. proposal to end the war.`\
 https://www.nytimes.com/2026/04/24/world/middleeast/kushner-witkoff-pakistan-iran.html
 
