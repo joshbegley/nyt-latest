@@ -1,3 +1,31 @@
+**After 33 Years and Three Trials, a Conviction in a Grisly Murder**\
+`Brian Scott Lorenz was convicted of murdering Deborah Meindl, a 33-year-old nursing student who walked into her Tonawanda, N.Y., home on a cold February afternoon and never walked out.`\
+https://www.nytimes.com/2026/04/24/nyregion/buffalo-murder-guilty-trial.html
+
+**Noah Kahan Is Caught in the In-Between on ‘The Great Divide’**\
+`The singer-songwriter’s “Stick Season” was an unexpected smash. On its follow-up he sings about fame, complex relationships and the future with a sharper perspective.`\
+https://www.nytimes.com/2026/04/24/arts/music/noah-kahan-the-great-divide-review.html
+
+**The California City With Tiny Oranges and Pink Sunsets**\
+`Surrounded by citrus groves and hiking trails, Ojai is an irresistible escape for nature enthusiasts, spiritual seekers and fans of giant tortoises.`\
+https://www.nytimes.com/2026/04/24/t-magazine/the-california-city-with-tiny-oranges-and-pink-sunsets.html
+
+**This May Just Be the Springiest Gnocchi**\
+`Skillet gnocchi with miso butter and asparagus, and more of our most popular recipes from the week.`\
+https://www.nytimes.com/2026/04/24/dining/this-may-just-be-the-springiest-gnocchi.html
+
+**Five Horror Movies to Stream Now**\
+`This month’s terrors include a monkey gone mad, a boundary-pushing robot and a playground with a thirst for babysitter blood.`\
+https://www.nytimes.com/2026/04/24/movies/five-horror-movies-to-stream-now.html
+
+**5 Tall Tasks for Apple’s New C.E.O.**\
+`John Ternus will face many of the same issues that Tim Cook has grappled with for years.`\
+https://www.nytimes.com/2026/04/24/technology/john-ternus-apple-challenges.html
+
+**Deb Haaland’s Historic Run for Governor Hits a Primary Snag**\
+`The former interior secretary seemed to have an easy path to becoming the first woman and Native American to be New Mexico’s governor — until Sam Bregman challenged her.`\
+https://www.nytimes.com/2026/04/24/us/elections/deb-haaland-sam-bregman-new-mexico-governor.html
+
 **France Investigates Temperature Spikes That Led to Big Payouts on Polymarket**\
 `The authorities said a Paris airport weather sensor may have been tampered with as large wagers were placed on the betting site.`\
 https://www.nytimes.com/2026/04/24/world/europe/polymarket-bets-france-paris-temperature-weather.html
