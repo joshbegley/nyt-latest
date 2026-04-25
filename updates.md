@@ -1,3 +1,15 @@
+**A Year Later, Trump’s ‘Most Exclusive’ Memecoin Event Is a Lot Less Exclusive**\
+`Even a Times reporter qualified for the event, which caused outrage last year for providing access to President Trump in exchange for investment in one of his family’s crypto ventures.`\
+https://www.nytimes.com/2026/04/25/technology/trump-memecoin-conference.html
+
+**2 Police Officers Are Shot at a Chicago Hospital**\
+`The shooting left one officer in critical condition, officials said. The condition of the other officer was not immediately known.`\
+https://www.nytimes.com/2026/04/25/us/chicago-police-shot-swedish-hospital.html
+
+**18-Year-Old Charged in Fatal Shooting of Teenager in Queens Park**\
+`Zahir Davis was arrested on Friday night in connection with the killing of Jaden Pierre, 15, who was shot in broad daylight during a fight in South Jamaica.`\
+https://www.nytimes.com/2026/04/25/nyregion/teen-charged-shooting-queens-nyc.html
+
 **Semyon Gluzman, 79, Dies; Doctor Dared to Criticize Soviet Psychiatry**\
 `He was imprisoned for calling attention to the practice of declaring dissidents mentally ill. He later led efforts to confront his field’s dark past.`\
 https://www.nytimes.com/2026/04/25/world/europe/semyon-gluzman-dead.html
