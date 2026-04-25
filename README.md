@@ -1,3 +1,7 @@
+**Trump Cancels Aides’ Trip for Iran Talks, Saying, ‘We Have All the Cards.’**\
+`The last-minute scuttling of the trip is the latest sign of how far apart the two sides are on reaching a deal to end the Iran war.`\
+https://www.nytimes.com/2026/04/25/world/middleeast/trump-witkoff-kushner-pakistan-trip-canceled.html
+
 **Every Black Republican Is Leaving the House, Erasing Diversity Gains**\
 `All four Black House Republicans are retiring after this year, a reflection of the striking and persistent lack of diversity in the G.O.P. ranks of Congress.`\
 https://www.nytimes.com/2026/04/25/us/house-black-republicans-congress-diversity.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/25/opinion/trump-iran-deal-making.html
 **Why I Still Love Michael Jackson**\
 `I’ve been a lifelong follower of Michael Jackson, a stance that sometimes I can’t defend, even to myself.`\
 https://www.nytimes.com/2026/04/25/opinion/culture/michael-jackson-movie-fan.html
-
-**Measles Is Back. What Comes Next Will Be Worse.**\
-`Reversing the new vaccine skepticism will require a dedicated effort.`\
-https://www.nytimes.com/2026/04/25/opinion/measles-vaccines-rfk-jr.html
 
