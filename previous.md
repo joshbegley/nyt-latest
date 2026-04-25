@@ -1,80 +1,80 @@
-**On Iran’s Border, Cooking Oil Trade Is a Snapshot of the Country’s Struggles**\
-`The war has exacerbated Iran’s economic crisis, forcing many to cross the border into Turkey to buy the most basic goods.`\
-https://www.nytimes.com/2026/04/25/world/middleeast/iran-turkey-cooking-oil.html
+**Trump Seeks to Abolish Iran’s Atomic Stockpile, a Problem He Helped Create**\
+`President Trump withdrew from the Obama-era nuclear accord in 2018, saying it was the worst deal ever. But Iran responded with an enrichment spree that haunts the negotiations to this day.`\
+https://www.nytimes.com/2026/04/25/us/politics/trump-iran-nuclear.html
 
-**¿Qué es el trastorno límite de la personalidad?**\
-`Las relaciones inestables, la impulsividad descontrolada y una identidad inestable son rasgos característicos de este trastorno de salud mental a menudo malinterpretado.`\
-https://www.nytimes.com/es/2026/04/25/espanol/estilos-de-vida/que-es-trastorno-limite-personalidad.html
+**Iran’s Meme War Against Trump Ushers In a Future of ‘Slopaganda’**\
+`The country’s propaganda apparatus has harnessed artificial intelligence tools to reach a global online audience primed for irony, irreverence and trolling.`\
+https://www.nytimes.com/interactive/2026/04/25/business/iran-trump-israel-war-memes.html
 
-**Reseña de ‘Michael’: un filme biográfico que ignora los problemas de Michael Jackson**\
-`El filme presenta una serie de piezas musicales, como un álbum de grandes éxitos, que se repiten con notas falsas, resultando insultantes tanto para el público como para el personaje.`\
-https://www.nytimes.com/es/2026/04/25/espanol/cultura/resena-pelicula-michael-jackson.html
+**Tennessee Passed a Slate of Immigration Bills. Here’s What They Do.**\
+`The Republican supermajority in the Tennessee General Assembly approved a series of immigrations bills, crafted in coordination with the White House.`\
+https://www.nytimes.com/2026/04/25/us/politics/tennessee-immigration-bills-what-to-know.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/04/25/crosswords/spelling-bee-forum.html
+**What ‘Michael’ Gets Right and Wrong About Michael Jackson**\
+`Here’s how the new biopic about the pop star handles everything from major moments like the “Beat It” video to details like a pet giraffe.`\
+https://www.nytimes.com/2026/04/25/movies/michael-jackson-biopic-fact-check.html
 
-**How Jesse Tyler Ferguson Is Showing His Range**\
-`Mr. Ferguson, best known for starring in the sitcom “Modern Family,” has leaned back into his theater roots with a turn as Truman Capote.`\
-https://www.nytimes.com/interactive/2026/04/25/nyregion/routine-jesse-tyler-ferguson.html
+**Her Life Savings Mysteriously Disappeared After a Systems Glitch**\
+`Fidelity Investments notified a customer that her phone number and email address had been removed from her profile. When she logged in, her accounts and savings were nowhere to be found.`\
+https://www.nytimes.com/2026/04/25/your-money/fidelity-investments-fraud-alert.html
 
-**Tim Cook hizo maravillas por Apple. También por China**\
-`El exdirector ejecutivo convirtió a Apple en un gigante, pero lo hizo arriesgando la seguridad económica y política de Estados Unidos.`\
-https://www.nytimes.com/es/2026/04/25/espanol/opinion/china-apple-tim-cook.html
+**Under Trump, Green Card Seekers Face New Scrutiny for Views on Israel**\
+`In guidance to immigration officers, the administration describes participating in pro-Palestinian protests and criticizing Israel as “overwhelmingly negative” factors.`\
+https://www.nytimes.com/2026/04/25/us/politics/trump-green-cards-scrutiny.html
 
-**La violencia moldeó a Charlize Theron. No la define**\
-`La ganadora del Oscar reflexiona sobre el dolor, el proceso de sanación y su camino para convertirse en estrella de cine de acción.`\
-https://www.nytimes.com/es/2026/04/25/espanol/cultura/entrevista-charlize-theron.html
+**A Perfect Saturday? Roller Skating on a Rooftop.**\
+`The Brooklyn Children’s Museum has reimagined a beloved and bygone local rink for its “Empire Skate of Mind” events. Neighborhood kids, many skating for the first time, are lacing up.`\
+https://www.nytimes.com/2026/04/25/arts/brooklyn-roller-skating.html
 
-**Un perrito robot para cuidar a tus padres en su vejez**\
-`Nuevas tecnologías de monitoreo ayudan a los adultos mayores a recordar que tomen sus pastillas o a entablar conversaciones con un robot mientras aligeran la carga para los cuidadores que no pueden estar siempre con ellos.`\
-https://www.nytimes.com/es/2026/04/25/espanol/ciencia-y-tecnologia/perrito-robot-ia-cuidar-ancianos.html
+**Europe Prepares for a Longer War in Ukraine, With No Strategy to End It**\
+`With American dealmakers wrapped up with Iran, neither Russia nor Ukraine has a clear path to victory — or toward a negotiated peace.`\
+https://www.nytimes.com/2026/04/25/world/europe/ukraine-russia-europe-european-union.html
 
-**España y el Reino Unido se oponen a posibles sanciones de Trump**\
-`Un correo electrónico interno del Pentágono, según informó la agencia Reuters, sugería que EE. UU. analizaba posibles sanciones contra ambos países por no dar el apoyo necesario para la guerra en Irán.`\
-https://www.nytimes.com/es/2026/04/25/espanol/mundo/espana-reino-unido-trump-sanciones.html
+**Can Physics Soften a Mother’s Death?**\
+`In the play “Rheology,” a son and his mother grapple, in very different ways, with what her eventual death will mean.`\
+https://www.nytimes.com/2026/04/25/theater/rheology-inspirations.html
 
-**Japan’s New Care Workers: Bodybuilders, Wrestlers and M.M.A. Fighters**\
-`Young athletes are being recruited to plug a staff shortage in Japan’s nursing homes. The results are reshaping elder care.`\
-https://www.nytimes.com/2026/04/25/world/asia/japan-care-workers-bodybuilders-sumo-mma.html
+**More Used Electric Cars Are Coming at More Affordable Prices**\
+`The leases on hundreds of thousands of battery-powered cars and trucks will end in the next three years, and many will end up on used-car lots.`\
+https://www.nytimes.com/2026/04/25/business/electric-vehicles-used-leases.html
 
-**The 85-Year-Old Widow Snagged by Trump’s Immigration Crackdown**\
-`In her first interview since being deported, Marie-Thérèse Ross-Mahé, the French widow of a former G.I., recounted her experience in ICE detention.`\
-https://www.nytimes.com/2026/04/25/us/french-ross-mahe-ice-detention.html
+**The Long, Challenging Road to D4vd’s Arrest**\
+`Uncooperative witnesses drove prosecutors to convene an investigative grand jury after a teenage girl’s body was discovered in the trunk of the singer’s car.`\
+https://www.nytimes.com/2026/04/25/arts/d4vd-arrest-prosecutor-challenges.html
 
-**Japan’s Care Centers Recruit Some Muscle**\
-`Bodybuilders, sumo wrestlers and MMA fighters have started working at Japan’s short-staffed nursing homes in exchange for a steady income and gym memberships.`\
-https://www.nytimes.com/video/world/asia/100000010858280/japan-athlete-nursing-homes.html
+**Lessons From the Wild, Elusive Life of a Conservation Giant**\
+`In her engaging, lyrical “Homesick for a World Unknown,” Miriam Horn tells the story of the famed naturalist George Schaller.`\
+https://www.nytimes.com/2026/04/25/books/review/miriam-horn-homesick-for-a-world-unknown.html
 
-**Corrections: April 25, 2026**\
-`Corrections that appeared in print on Saturday, April 25, 2026.`\
-https://www.nytimes.com/2026/04/25/pageoneplus/corrections-april-25-2026.html
+**Rejected by a Co-op Board: Do They Have to Tell You Why?**\
+`A board cannot illegally discriminate against a prospective buyer. But beyond that, the process can be opaque.`\
+https://www.nytimes.com/2026/04/25/realestate/coop-boards-rejection.html
 
-**Quote of the Day: With Chavez’s Legacy Stained, What to Do With Art in Tribute?**\
-`Quotation of the Day for Saturday, April 25, 2026.`\
-https://www.nytimes.com/2026/04/24/pageoneplus/quote-of-the-day-with-chavezs-legacy-stained-what-to-do-with-art-in-tribute.html
+**Qué es la ‘inteligencia irregular’ y cómo puede redefinir el debate sobre la IA**\
+`La IA siempre ha sido comparada con la inteligencia humana, pero quizá esa no sea la forma más adecuada de entenderla. Sus fortalezas permiten anticipar qué empleos podría sustituir.`\
+https://www.nytimes.com/es/2026/04/25/espanol/ia-inteligencia-irregular-jagged.html
 
-**U.S. Says Venezuelan Government Can Pay for Nicolás Maduro’s Defense**\
-`The issue had been hanging over the former Venezuelan leader’s federal criminal case for weeks. Last month, a judge indicated that he was skeptical of the U.S. government’s rationale for blocking the funds.`\
-https://www.nytimes.com/2026/04/24/nyregion/us-venezuela-maduro-court-cost.html
+**New Taxes Cooled London’s Housing Market. Could That Happen in New York?**\
+`Economists and real estate agents are calling London’s taxation of wealthy property owners a cautionary tale for New York, where leaders have endorsed a second-home tax.`\
+https://www.nytimes.com/2026/04/25/nyregion/second-home-tax-london-ny.html
 
-**2 Killed in Boat Strike in Eastern Pacific Ocean, Pentagon Says**\
-`The attack — the sixth this month — raised the death toll to at least 182 in a campaign against people the Trump administration accuses of smuggling drugs at sea.`\
-https://www.nytimes.com/2026/04/24/us/politics/boat-strike-pentagon-eastern-pacific.html
+**6 Podcasts About Classical Music**\
+`These shows demystify a genre unfairly perceived as archaic and stuffy with expert analysis, musical selections and pure fun.`\
+https://www.nytimes.com/2026/04/25/arts/podcasts-classical-music-beethoven.html
 
-**Helpful Pointer, Say?**\
-`Sam Ezersky’s scintillating Saturday puzzle sends solvers in all directions.`\
-https://www.nytimes.com/2026/04/24/crosswords/daily-puzzle-2026-04-25.html
+**The Indelible Style of a Queen Off Duty**\
+`A new exhibition takes a closer look at Queen Elizabeth II’s wardrobe of boots, barn coats, head scarves and tartan skirts.`\
+https://www.nytimes.com/2026/04/25/style/queen-elizabeth-ii-exhibition-her-life-in-style.html
 
-**SiriusXM Said to Be in Early Talks to Acquire iHeartMedia**\
-`A deal, which was described by two people familiar with the discussions, would unite two major providers of traditional and satellite radio.`\
-https://www.nytimes.com/2026/04/24/business/media/siriusxm-iheart-radio.html
+**La manicurista de la alfombra roja**\
+`Tanto en hospitales como en eventos de celebridades, las personas con manicuras de Yulenny García, especialista en uñas del Bronx, llaman mucho la atención.`\
+https://www.nytimes.com/es/2026/04/25/espanol/manicurista-bronx-yulenny-garcia-marc-jacobs.html
 
-**Rubio’s Absence From Iran Talks Highlights Stay-at-Home Role**\
-`President Trump has outsourced much of his diplomacy to others, while Mr. Rubio focuses on his second job as national security adviser.`\
-https://www.nytimes.com/2026/04/24/us/politics/marco-rubio-absence-iran-talks.html
+**Poetry Month Reading Recommendations**\
+`It’s National Poetry Month! Greg Cowles, an editor at The New York Times Book Review, recommends some poetry books while writing poems with fridge magnets.`\
+https://www.nytimes.com/video/books/100000010844625/poetry-month-reading-recommendations.html
 
-**One of Two Missing Florida Doctoral Students Is Found Dead, Officials Say**\
-`The University of South Florida students were reported missing last week. A roommate of the student whose body was found was charged in connection with his disappearance.`\
-https://www.nytimes.com/2026/04/24/us/usf-students-missing-body-found.html
+**Democrats Weigh Whether a Lawmaker’s Ethnicity Counts More Than Ideology**\
+`The same progressive South Asian networks that helped elect Zohran Mamdani as mayor in New York are mobilizing against Jenifer Rajkumar, a Queens assemblywoman.`\
+https://www.nytimes.com/2026/04/25/nyregion/jenifer-rajkumar-david-orkin-queens-assembly-seat.html
 
