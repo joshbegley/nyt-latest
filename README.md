@@ -1,3 +1,7 @@
+**Well-Suited**\
+`Everything fits in Rebecca Goldstein’s beautifully crafted puzzle.`\
+https://www.nytimes.com/2026/04/25/crosswords/daily-puzzle-2026-04-26.html
+
 **Crushed at the Polls, Hungary’s Former Ruling Party Licks Its Wounds**\
 `Outgoing prime minister, Viktor Orban, who helped found the Fidesz party, said he would leave his Parliament seat but hoped to remain as head of his party.`\
 https://www.nytimes.com/2026/04/25/world/europe/viktor-orban-fidesz.html
@@ -38,8 +42,8 @@ https://www.nytimes.com/2026/04/25/us/politics/california-voter-id-citizenship-b
 `Even a Times reporter qualified for the event, which caused outrage last year for providing access to President Trump in exchange for investment in one of his family’s crypto ventures.`\
 https://www.nytimes.com/2026/04/25/technology/trump-memecoin-conference.html
 
-**2 Police Officers Are Shot at a Chicago Hospital**\
-`The shooting left one officer in critical condition, officials said. The condition of the other officer was not immediately known.`\
+**2 Police Officers Shot at a Chicago Hospital, Leaving One Dead, Officials Say**\
+`A 57-year-old officer was “fighting for his life,” after the shooting on Saturday at Endeavor Health Swedish Hospital, the police superintendent said. A suspect was in custody.`\
 https://www.nytimes.com/2026/04/25/us/chicago-police-shot-swedish-hospital.html
 
 **18-Year-Old Charged in Fatal Shooting of Teenager in Queens Park**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/25/nyregion/nyc-torture-survivors-hospital-progr
 **Trump to Dine With Reporters He’s Been Roasting All Week**\
 `President Trump has boycotted the White House Correspondents’ Association dinner in previous years.`\
 https://www.nytimes.com/2026/04/25/us/politics/trump-white-house-correspondents-dinner.html
-
-**Indigenous Speakers Are Booed During Commemorations of Australia’s War Dead**\
-`Dawn services for Anzac Day were disrupted in three cities. The hecklers seemed to be targeting a widespread Aboriginal custom meant to acknowledge the land’s original inhabitants.`\
-https://www.nytimes.com/2026/04/25/world/australia/anzac-day-indigenous-speakers-booed.html
 
