@@ -1,3 +1,7 @@
+**Families of Iranian Children Killed in School Airstrike Pen Letter to Pope**\
+`Pope Leo said he has seen the letter from the parents of more than 100 children killed in the strike, which a preliminary inquiry found resulted from a mistake by the U.S. military.`\
+https://www.nytimes.com/2026/04/25/world/middleeast/families-of-iranian-children-killed-in-school-airstrike-pen-letter-to-pope.html
+
 **Crushed at the Polls, Hungary’s Former Ruling Party Licks Its Wounds**\
 `Outgoing prime minister, Viktor Orban, who helped found the Fidesz party, said he would leave his Parliament seat but hoped to remain as head of his party.`\
 https://www.nytimes.com/2026/04/25/world/europe/viktor-orban-fidesz.html
