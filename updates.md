@@ -1,3 +1,7 @@
+**Rubio’s Absence From Iran Talks Highlights Stay-at-Home Role**\
+`President Trump has outsourced much of his diplomacy to others, while Mr. Rubio focuses on his second job as national security adviser.`\
+https://www.nytimes.com/2026/04/24/us/politics/marco-rubio-absence-iran-talks.html
+
 **One of Two Missing Florida Doctoral Students Is Found Dead, Officials Say**\
 `The University of South Florida students were reported missing last week. A roommate of the student whose body was found was charged in connection with his disappearance.`\
 https://www.nytimes.com/2026/04/24/us/usf-students-missing-body-found.html
