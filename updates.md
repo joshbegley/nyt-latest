@@ -1,3 +1,11 @@
+**Big-Game Hunter From California Is Killed by Elephant in Central Africa**\
+`Ernie Dosio, 75, of Lodi, Calif., was hunting a species of antelope in the dense forests of Gabon when his hunting party stumbled on a small herd of female elephants with calves.`\
+https://www.nytimes.com/2026/04/25/world/africa/big-game-hunter-death-africa.html
+
+**‘Michael’ Shakes Off Bad Reviews to Become a Box Office Juggernaut**\
+`Lionsgate estimated on Saturday that the Michael Jackson biopic would collect more than $200 million over its first few days in theaters.`\
+https://www.nytimes.com/2026/04/25/business/media/box-office-michael.html
+
 ****\
 ``\
 https://www.nytimes.com/video/embedded/us/100000010863447/25vid-Trump-Iran-45166.html
