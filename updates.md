@@ -1,3 +1,7 @@
+**Tim Cook hizo maravillas por Apple. También por China**\
+`El exdirector ejecutivo convirtió a Apple en un gigante, pero lo hizo arriesgando la seguridad económica y política de Estados Unidos.`\
+https://www.nytimes.com/es/2026/04/25/espanol/opinion/china-apple-tim-cook.html
+
 **La violencia moldeó a Charlize Theron. No la define**\
 `La ganadora del Oscar reflexiona sobre el dolor, el proceso de sanación y su camino para convertirse en estrella de cine de acción.`\
 https://www.nytimes.com/es/2026/04/25/espanol/cultura/entrevista-charlize-theron.html
