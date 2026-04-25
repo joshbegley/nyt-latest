@@ -1,3 +1,11 @@
+**Lionel Rosenblatt Dies at 82; Led Daring Rescue of Vietnamese Refugees**\
+`In an unsanctioned mission, the Foreign Service officer helped evacuate about 200 South Vietnamese citizens from Saigon days before the city fell in 1975.`\
+https://www.nytimes.com/2026/04/25/world/asia/lionel-rosenblatt-dead.html
+
+**In Defense of Oatmeal Cookies**\
+`Exhibit A: Anzac biscuits. Because who wouldn’t want a crispy, caramel-y cookie packed with oats and coconut?`\
+https://www.nytimes.com/2026/04/25/dining/in-defense-of-oatmeal-cookies.html
+
 **Recipes for the Moms in My Life**\
 `It’s never too early to start planning Mother’s Day. Get inspired by a tangy lemon tart, a supremely moist cake soaked in rose syrup and more.`\
 https://www.nytimes.com/2026/04/25/dining/recipes-for-the-moms-in-my-life.html

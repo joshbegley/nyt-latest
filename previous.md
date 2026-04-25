@@ -1,3 +1,11 @@
+**Lionel Rosenblatt Dies at 82; Led Daring Rescue of Vietnamese Refugees**\
+`In an unsanctioned mission, the Foreign Service officer helped evacuate about 200 South Vietnamese citizens from Saigon days before the city fell in 1975.`\
+https://www.nytimes.com/2026/04/25/world/asia/lionel-rosenblatt-dead.html
+
+**In Defense of Oatmeal Cookies**\
+`Exhibit A: Anzac biscuits. Because who wouldn’t want a crispy, caramel-y cookie packed with oats and coconut?`\
+https://www.nytimes.com/2026/04/25/dining/in-defense-of-oatmeal-cookies.html
+
 **Recipes for the Moms in My Life**\
 `It’s never too early to start planning Mother’s Day. Get inspired by a tangy lemon tart, a supremely moist cake soaked in rose syrup and more.`\
 https://www.nytimes.com/2026/04/25/dining/recipes-for-the-moms-in-my-life.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/25/crosswords/wordle-review-1772.html
 **Connections Companion No. 1,050**\
 `Scroll down for hints and conversation about the puzzle for Sunday, April 26, 2026`\
 https://www.nytimes.com/2026/04/25/crosswords/connections-companion-1050.html
-
-**Strands Sidekick No. 784**\
-`Scroll down for hints and conversation about the puzzle for Sunday, April 26, 2026.`\
-https://www.nytimes.com/2026/04/25/crosswords/strands-sidekick-784.html
-
-**The Challenges Facing Canada as It Inches Toward Trade Talks**\
-`An international trade economist in Washington warns that negotiations will take place in an “incredibly difficult” environment.`\
-https://www.nytimes.com/2026/04/25/world/canada/carney-trump-canada-us-trade-usmca.html
 
