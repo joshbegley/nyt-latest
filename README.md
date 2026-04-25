@@ -67,7 +67,7 @@ https://www.nytimes.com/2026/04/24/us/politics/federal-reserve-powell-pirro-inve
 https://www.nytimes.com/2026/04/24/us/politics/republicans-midterms-campaign.html
 
 **Wayne Moss, Guitarist Who Helped Broaden Country Sound, Dies at 88**\
-`A top Nashville musician, he played for Bob Dylan and on Roy Orbison’s “Oh, Pretty Woman” and Dolly Parton’s “Jolene.”`\
+`A top Nashville musician, he played on Bob Dylan’s “I Want You,”  Roy Orbison’s “Oh, Pretty Woman” and Dolly Parton’s “Jolene.”`\
 https://www.nytimes.com/2026/04/24/arts/music/wayne-moss-dead.html
 
 **Student Contest Based on Trump’s Garden of Heroes Downplays Darker History**\

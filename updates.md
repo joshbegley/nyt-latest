@@ -1,3 +1,11 @@
+**2 Killed in Boat Strike in Eastern Pacific Ocean, Pentagon Says**\
+`The attack — the sixth this month — raised the death toll to at least 182 in a campaign against people the Trump administration accuses of smuggling drugs at sea.`\
+https://www.nytimes.com/2026/04/24/us/politics/boat-strike-pentagon-eastern-pacific.html
+
+**Wayne Moss, Guitarist Who Helped Broaden Country Sound, Dies at 88**\
+`A top Nashville musician, he played for Bob Dylan and on Roy Orbison’s “Oh, Pretty Woman” and Dolly Parton’s “Jolene.”`\
+https://www.nytimes.com/2026/04/24/arts/music/wayne-moss-dead.html
+
 **Helpful Pointer, Say?**\
 `Sam Ezersky’s scintillating Saturday puzzle sends solvers in all directions.`\
 https://www.nytimes.com/2026/04/24/crosswords/daily-puzzle-2026-04-25.html
