@@ -1,3 +1,11 @@
+**The Millennial Midlife Crisis Manifests as Visible Abs**\
+`We’re on a #fitnessjourney together.`\
+https://www.nytimes.com/2026/04/25/opinion/midlife-crisis-fitness.html
+
+**Measles Is Back. What Comes Next Will Be Worse.**\
+`Reversing the new vaccine skepticism will require a dedicated effort.`\
+https://www.nytimes.com/2026/04/25/opinion/measles-vaccines-rfk-jr.html
+
 **In Wine Country, Sales Are Down and Fraud is Rampant**\
 `The industry’s murky supply chain has long attracted scammers and con artists. In the words of one expert, “Wine and fraud go hand in hand.”`\
 https://www.nytimes.com/2026/04/25/business/dealbook/wine-fraud.html
