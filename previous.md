@@ -10,7 +10,7 @@ https://www.nytimes.com/video/embedded/business/100000010863157/Biz-China-Geely-
 `Readers respond to an Opinion guest essay by Clifford Winston on the death of the affordable car.`\
 https://www.nytimes.com/2026/04/25/opinion/us-affordable-cars.html
 
-**The Political Defeats of Elon Musk**\
+**The Political Malpractice of Elon Musk**\
 `His political malpractice will loom large in the history of Trump 2.0.`\
 https://www.nytimes.com/2026/04/25/opinion/elon-musk-donald-trump-influence.html
 
