@@ -1,3 +1,19 @@
+**Japan’s New Care Workers: Bodybuilders, Wrestlers and M.M.A. Fighters**\
+`Young athletes are being recruited to plug a staff shortage in Japan’s nursing homes. The results are reshaping elder care.`\
+https://www.nytimes.com/2026/04/25/world/asia/japan-care-workers-bodybuilders-sumo-mma.html
+
+**The 85-Year-Old Widow Snagged by Trump’s Immigration Crackdown**\
+`In her first interview since being deported, Marie-Thérèse Ross-Mahé, the French widow of a former G.I., recounted her experience in ICE detention.`\
+https://www.nytimes.com/2026/04/25/us/french-ross-mahe-ice-detention.html
+
+**Japan’s Care Centers Recruit Some Muscle**\
+`Bodybuilders, sumo wrestlers and MMA fighters have started working at Japan’s short-staffed nursing homes in exchange for a steady income and gym memberships.`\
+https://www.nytimes.com/video/world/asia/100000010858280/japan-athlete-nursing-homes.html
+
+**Corrections: April 25, 2026**\
+`Corrections that appeared in print on Saturday, April 25, 2026.`\
+https://www.nytimes.com/2026/04/25/pageoneplus/corrections-april-25-2026.html
+
 **Quote of the Day: With Chavez’s Legacy Stained, What to Do With Art in Tribute?**\
 `Quotation of the Day for Saturday, April 25, 2026.`\
 https://www.nytimes.com/2026/04/24/pageoneplus/quote-of-the-day-with-chavezs-legacy-stained-what-to-do-with-art-in-tribute.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/24/us/georgia-wildfires-homes-destroyed.html
 **$100 Million Award Made in Suit Over Unlicensed Robert Indiana Art**\
 `A New York jury found that an art publisher who made works derived from Indiana’s images had infringed on the rights of a company that had been the artist’s partner.`\
 https://www.nytimes.com/2026/04/24/arts/design/robert-indiana-lawsuit-verdict.html
-
-**31 Sloths Acquired by an Orlando Animal Attraction Died, Officials Say**\
-`Many of the deaths were attributed to a lack of heat at an unauthorized warehouse that Sloth World was using, officials said.`\
-https://www.nytimes.com/2026/04/24/us/sloth-deaths-orlando.html
-
-**The ‘Lasting Damage’ of Pirro’s Abandoned Fed Investigation**\
-`The Trump administration’s attacks on the Federal Reserve have rattled confidence in the central bank’s ability to operate independently before a leadership transition.`\
-https://www.nytimes.com/2026/04/24/us/politics/federal-reserve-powell-pirro-investigation.html
-
-**The Looming Scorched-Earth Midterm Campaign**\
-`Republicans are likely to fall back on a tried-and-tested strategy for the midterms: Going negative.`\
-https://www.nytimes.com/2026/04/24/us/politics/republicans-midterms-campaign.html
-
-**Wayne Moss, Guitarist Who Helped Broaden Country Sound, Dies at 88**\
-`A top Nashville musician, he played on Bob Dylan’s “I Want You,”  Roy Orbison’s “Oh, Pretty Woman” and Dolly Parton’s “Jolene.”`\
-https://www.nytimes.com/2026/04/24/arts/music/wayne-moss-dead.html
 

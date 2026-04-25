@@ -1,3 +1,19 @@
+**Japan’s New Care Workers: Bodybuilders, Wrestlers and M.M.A. Fighters**\
+`Young athletes are being recruited to plug a staff shortage in Japan’s nursing homes. The results are reshaping elder care.`\
+https://www.nytimes.com/2026/04/25/world/asia/japan-care-workers-bodybuilders-sumo-mma.html
+
+**The 85-Year-Old Widow Snagged by Trump’s Immigration Crackdown**\
+`In her first interview since being deported, Marie-Thérèse Ross-Mahé, the French widow of a former G.I., recounted her experience in ICE detention.`\
+https://www.nytimes.com/2026/04/25/us/french-ross-mahe-ice-detention.html
+
+**Japan’s Care Centers Recruit Some Muscle**\
+`Bodybuilders, sumo wrestlers and MMA fighters have started working at Japan’s short-staffed nursing homes in exchange for a steady income and gym memberships.`\
+https://www.nytimes.com/video/world/asia/100000010858280/japan-athlete-nursing-homes.html
+
+**Corrections: April 25, 2026**\
+`Corrections that appeared in print on Saturday, April 25, 2026.`\
+https://www.nytimes.com/2026/04/25/pageoneplus/corrections-april-25-2026.html
+
 **Quote of the Day: With Chavez’s Legacy Stained, What to Do With Art in Tribute?**\
 `Quotation of the Day for Saturday, April 25, 2026.`\
 https://www.nytimes.com/2026/04/24/pageoneplus/quote-of-the-day-with-chavezs-legacy-stained-what-to-do-with-art-in-tribute.html
