@@ -1,3 +1,7 @@
+**In Wine Country, Sales Are Down and Fraud is Rampant**\
+`The industry’s murky supply chain has long attracted scammers and con artists. In the words of one expert, “Wine and fraud go hand in hand.”`\
+https://www.nytimes.com/2026/04/25/business/dealbook/wine-fraud.html
+
 **Lebanese Ask, ‘What Cease-Fire?’ as Violence Simmers in the South**\
 `The fragile truce in Lebanon was extended after talks in Washington this week but has since come under threat as both Israel and Hezbollah have traded attacks.`\
 https://www.nytimes.com/2026/04/25/world/middleeast/lebanon-israel-cease-fire.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/25/magazine/bob-odenkirk-interview.html
 **Trump Seeks to Abolish Iran’s Atomic Stockpile, a Problem He Helped Create**\
 `President Trump withdrew from the Obama-era nuclear accord in 2018, saying it was the worst deal ever. But Iran responded with an enrichment spree that haunts the negotiations to this day.`\
 https://www.nytimes.com/2026/04/25/us/politics/trump-iran-nuclear.html
-
-**Iran’s Meme War Against Trump Ushers In a Future of ‘Slopaganda’**\
-`The country’s propaganda apparatus has harnessed artificial intelligence tools to reach a global online audience primed for irony, irreverence and trolling.`\
-https://www.nytimes.com/interactive/2026/04/25/business/iran-trump-israel-war-memes.html
 
