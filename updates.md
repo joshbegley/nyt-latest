@@ -1,3 +1,19 @@
+**Crushed at the Polls, Hungary’s Former Ruling Party Licks Its Wounds**\
+`Outgoing prime minister, Viktor Orban, who help found the Fidesz party, said he would leave his Parliament seat but hoped to remain as head of his party.`\
+https://www.nytimes.com/2026/04/25/world/europe/viktor-orban-fidesz.html
+
+**Eugene Braunwald, Whose Research Reshaped Cardiology, Dies at 96**\
+`His work changed how doctors understood heart attacks, heart failure and coronary artery disease, and helped lead to therapies that saved millions of lives.`\
+https://www.nytimes.com/2026/04/25/health/eugene-braunwald-dead.html
+
+**Families of Iranian Children Killed in School Airstrike Pen Letter to Pope**\
+`Pope Leo said he has seen the letter from the parents of more than 100 children killed in the strike, which a preliminary inquiry found resulted from a mistake by the U.S. military.`\
+https://www.nytimes.com/live/2026/04/25/world/iran-war-us-talks-pakistan/families-of-iranian-children-killed-in-school-airstrike-pen-letter-to-pope
+
+**2 C.I.A. Officers Killed in Mexico Crash Lacked Proper Authorization**\
+`The two Americans were killed on Sunday when their vehicle crashed while returning from an antidrug operation led by Mexico’s armed forces in the state of Chihuahua.`\
+https://www.nytimes.com/2026/04/25/world/americas/2-cia-officers-killed-in-mexico-crash-lacked-proper-authorization.html
+
 **Big-Game Hunter From California Is Killed by Elephant in Central Africa**\
 `Ernie Dosio, 75, of Lodi, Calif., was hunting a species of antelope in the dense forests of Gabon when his hunting party stumbled on a small herd of female elephants with calves.`\
 https://www.nytimes.com/2026/04/25/world/africa/big-game-hunter-death-africa.html
