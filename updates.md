@@ -1,3 +1,7 @@
+**Lebanese Ask, ‘What Cease-Fire?’ as Violence Simmers in the South**\
+`The fragile truce in Lebanon was extended after talks in Washington this week but has since come under threat as both Israel and Hezbollah have traded attacks.`\
+https://www.nytimes.com/2026/04/25/world/middleeast/lebanon-israel-cease-fire.html
+
 ****\
 `Robots assemble vehicles at Geely’s Qiantang manufacturing plant in Hangzhou, last year,`\
 https://www.nytimes.com/video/embedded/business/100000010863157/Biz-China-Geely-video.html
