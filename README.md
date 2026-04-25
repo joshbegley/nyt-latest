@@ -1,3 +1,7 @@
+**Indigenous Speakers Are Booed During Commemorations of Australia’s War Dead**\
+`Dawn services for Anzac Day were disrupted in three cities. The hecklers seemed to be targeting a widespread Aboriginal custom meant to acknowledge the land’s original inhabitants.`\
+https://www.nytimes.com/2026/04/25/world/australia/anzac-day-indigenous-speakers-booed.html
+
 **Lionel Rosenblatt Dies at 82; Led Daring Rescue of Vietnamese Refugees**\
 `In an unsanctioned mission, the Foreign Service officer helped evacuate about 200 South Vietnamese citizens from Saigon days before the city fell in 1975.`\
 https://www.nytimes.com/2026/04/25/world/asia/lionel-rosenblatt-dead.html
@@ -58,7 +62,7 @@ https://www.nytimes.com/2026/04/25/opinion/culture/michael-jackson-movie-fan.htm
 `Reversing the new vaccine skepticism will require a dedicated effort.`\
 https://www.nytimes.com/2026/04/25/opinion/measles-vaccines-rfk-jr.html
 
-**The Art of the Nuclear Deal**\
+**What Trump Owes the World**\
 `Trump owes the world an agreement with Iran to curb its pursuit of a bomb.`\
 https://www.nytimes.com/2026/04/25/opinion/international-world/trump-iran-nuclear-weapons.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/25/briefing/high-lights.html
 **Wordle Review No. 1,772**\
 `Scroll down for hints and conversation about the puzzle for Sunday, April 26, 2026.`\
 https://www.nytimes.com/2026/04/25/crosswords/wordle-review-1772.html
-
-**Connections Companion No. 1,050**\
-`Scroll down for hints and conversation about the puzzle for Sunday, April 26, 2026`\
-https://www.nytimes.com/2026/04/25/crosswords/connections-companion-1050.html
 
