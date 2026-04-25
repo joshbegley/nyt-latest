@@ -1,3 +1,7 @@
+**In Wine Country, Sales Are Down and Fraud is Rampant**\
+`The industry’s murky supply chain has long attracted scammers and con artists. In the words of one expert, “Wine and fraud go hand in hand.”`\
+https://www.nytimes.com/2026/04/25/business/dealbook/wine-fraud.html
+
 **The Political Malpractice of Elon Musk**\
 `His political malpractice will loom large in the history of Trump 2.0.`\
 https://www.nytimes.com/2026/04/25/opinion/elon-musk-donald-trump-influence.html
