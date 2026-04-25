@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/04/25/us/politics/california-voter-id-citizenship-b
 `Even a Times reporter qualified for the event, which caused outrage last year for providing access to President Trump in exchange for investment in one of his family’s crypto ventures.`\
 https://www.nytimes.com/2026/04/25/technology/trump-memecoin-conference.html
 
-**2 Police Officers Shot at a Chicago Hospital, Leaving One Dead, Officials Say**\
+**One Police Officer Is Killed and Another Critically Wounded in Chicago Hospital Shooting**\
 `A 57-year-old officer was “fighting for his life,” after the shooting on Saturday at Endeavor Health Swedish Hospital, the police superintendent said. A suspect was in custody.`\
 https://www.nytimes.com/2026/04/25/us/chicago-police-shot-swedish-hospital.html
 

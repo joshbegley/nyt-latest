@@ -1,3 +1,7 @@
+**One Police Officer Is Killed and Another Critically Wounded in Chicago Hospital Shooting**\
+`A 57-year-old officer was “fighting for his life,” after the shooting on Saturday at Endeavor Health Swedish Hospital, the police superintendent said. A suspect was in custody.`\
+https://www.nytimes.com/2026/04/25/us/chicago-police-shot-swedish-hospital.html
+
 **Well-Suited**\
 `Everything fits in Rebecca Goldstein’s beautifully crafted puzzle.`\
 https://www.nytimes.com/2026/04/25/crosswords/daily-puzzle-2026-04-26.html
