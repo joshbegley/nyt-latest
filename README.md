@@ -1,3 +1,7 @@
+**¿Qué es el trastorno límite de la personalidad?**\
+`Las relaciones inestables, la impulsividad descontrolada y una identidad inestable son rasgos característicos de este trastorno de salud mental a menudo malinterpretado.`\
+https://www.nytimes.com/es/2026/04/25/espanol/estilos-de-vida/que-es-trastorno-limite-personalidad.html
+
 **Reseña de ‘Michael’: un filme biográfico que ignora los problemas de Michael Jackson**\
 `El filme presenta una serie de piezas musicales, como un álbum de grandes éxitos, que se repiten con notas falsas, resultando insultantes tanto para el público como para el personaje.`\
 https://www.nytimes.com/es/2026/04/25/espanol/cultura/resena-pelicula-michael-jackson.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/24/us/usf-students-missing-body-found.html
 **Kenyan Court Strikes Down Ruling Protecting Right to Abortion**\
 `The decision, in a country where thousands of women die yearly from unsafe abortions, held that abortions deprive unborn children of the “right to life.”`\
 https://www.nytimes.com/2026/04/24/world/africa/kenya-court-abortion-ruling.html
-
-**Snowstorm Strands 300 Vehicles Overnight on Alberta, Canada, Highways**\
-`The Royal Canadian Mounted Police said they were working to rescue those stranded and deliver supplies like food, fuel and medicine.`\
-https://www.nytimes.com/2026/04/24/world/canada/snow-storm-canada-alberta-stranded.html
 
