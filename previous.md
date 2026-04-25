@@ -1,3 +1,7 @@
+**España y el Reino Unido se oponen a posibles sanciones de Trump**\
+`Un correo electrónico interno del Pentágono, según informó la agencia Reuters, sugería que EE. UU. analizaba posibles sanciones contra ambos países por no dar el apoyo necesario para la guerra en Irán.`\
+https://www.nytimes.com/es/2026/04/25/espanol/mundo/espana-reino-unido-trump-sanciones.html
+
 **Japan’s New Care Workers: Bodybuilders, Wrestlers and M.M.A. Fighters**\
 `Young athletes are being recruited to plug a staff shortage in Japan’s nursing homes. The results are reshaping elder care.`\
 https://www.nytimes.com/2026/04/25/world/asia/japan-care-workers-bodybuilders-sumo-mma.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/24/us/two-men-guilty-harvard-medical-school-expl
 **Wildfires Destroy Dozens of Structures in Georgia, Governor Says**\
 `Fires fueled by drought have burned tens of thousands of acres in southern Georgia and northern Florida, where officials said one blaze was blamed for the death of a volunteer firefighter.`\
 https://www.nytimes.com/2026/04/24/us/georgia-wildfires-homes-destroyed.html
-
-**$100 Million Award Made in Suit Over Unlicensed Robert Indiana Art**\
-`A New York jury found that an art publisher who made works derived from Indiana’s images had infringed on the rights of a company that had been the artist’s partner.`\
-https://www.nytimes.com/2026/04/24/arts/design/robert-indiana-lawsuit-verdict.html
 

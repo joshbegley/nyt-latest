@@ -1,3 +1,7 @@
+**España y el Reino Unido se oponen a posibles sanciones de Trump**\
+`Un correo electrónico interno del Pentágono, según informó la agencia Reuters, sugería que EE. UU. analizaba posibles sanciones contra ambos países por no dar el apoyo necesario para la guerra en Irán.`\
+https://www.nytimes.com/es/2026/04/25/espanol/mundo/espana-reino-unido-trump-sanciones.html
+
 **Japan’s New Care Workers: Bodybuilders, Wrestlers and M.M.A. Fighters**\
 `Young athletes are being recruited to plug a staff shortage in Japan’s nursing homes. The results are reshaping elder care.`\
 https://www.nytimes.com/2026/04/25/world/asia/japan-care-workers-bodybuilders-sumo-mma.html
