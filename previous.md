@@ -1,3 +1,7 @@
+****\
+``\
+https://www.nytimes.com/video/embedded/us/100000010863447/25vid-Trump-Iran-45166.html
+
 **Texas Can Arrest People Who Illegally Cross at Mexico Border, Court Says**\
 `The court that paused a 2023 law allowing state and local police officers to arrest migrants has now ruled that the measure is legal, a decision likely to be appealed.`\
 https://www.nytimes.com/2026/04/25/us/texas-mexico-border-arrest-deport-immigration.html
@@ -70,11 +74,7 @@ https://www.nytimes.com/es/2026/04/25/espanol/estilos-de-vida/modern-love-abuso-
 `Nosotros preguntamos, y más de 800 lectores respondieron.`\
 https://www.nytimes.com/es/2026/04/25/espanol/cambios-salud-mejoras.html
 
-**The Millennial Midlife Crisis Manifests as Visible Abs**\
+**Visible Abs and the Millennial Midlife Crisis**\
 `We’re on a #fitnessjourney together.`\
 https://www.nytimes.com/2026/04/25/opinion/midlife-crisis-fitness.html
-
-**In Wine Country, Sales Are Down and Fraud Is Rampant**\
-`The industry’s murky supply chain has long attracted scammers and con artists. In the words of one expert, “Wine and fraud go hand in hand.”`\
-https://www.nytimes.com/2026/04/25/business/dealbook/wine-fraud.html
 

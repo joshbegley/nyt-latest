@@ -1,3 +1,11 @@
+****\
+``\
+https://www.nytimes.com/video/embedded/us/100000010863447/25vid-Trump-Iran-45166.html
+
+**Visible Abs and the Millennial Midlife Crisis**\
+`We’re on a #fitnessjourney together.`\
+https://www.nytimes.com/2026/04/25/opinion/midlife-crisis-fitness.html
+
 **Texas Can Arrest People Who Illegally Cross at Mexico Border, Court Says**\
 `The court that paused a 2023 law allowing state and local police officers to arrest migrants has now ruled that the measure is legal, a decision likely to be appealed.`\
 https://www.nytimes.com/2026/04/25/us/texas-mexico-border-arrest-deport-immigration.html
