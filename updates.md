@@ -1,3 +1,7 @@
+**Al Qaeda-Linked Militants Launch Major Attacks on Cities Across Mali**\
+`The armed group JNIM claimed to have seized two key cities and destroyed the defense minister’s residence in a coordinated offensive that experts said was a major escalation in yearslong hostilities.`\
+https://www.nytimes.com/2026/04/25/world/africa/mali-attacks-jnim-al-qaeda-bamako.html
+
 **In Deep Blue California, a G.O.P.-Backed Voter ID Proposal Makes the Ballot**\
 `A Republican-backed initiative has cleared the signature threshold for the November election. Critics say the measure could make it harder for people to vote.`\
 https://www.nytimes.com/2026/04/25/us/politics/california-voter-id-citizenship-ballot.html
