@@ -1,3 +1,7 @@
+**Helpful Pointer, Say?**\
+`Sam Ezersky’s scintillating Saturday puzzle sends solvers in all directions.`\
+https://www.nytimes.com/2026/04/24/crosswords/daily-puzzle-2026-04-25.html
+
 **SiriusXM Said to Be in Early Talks to Acquire iHeartMedia**\
 `A deal, which was described by two people familiar with the discussions, would unite two major providers of traditional and satellite radio.`\
 https://www.nytimes.com/2026/04/24/business/media/siriusxm-iheart-radio.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/24/world/middleeast/kushner-witkoff-pakistan-ira
 **Over 200,000 Heated Socks Sold at Costco Recalled After Reports of Burns**\
 `The socks, from the brand 32 Degrees, were linked to reports of first- and second-degree burns, according to U.S. product safety regulators.`\
 https://www.nytimes.com/2026/04/24/us/costco-recall-heated-socks-burn.html
-
-**Justice Dept. Closes Criminal Investigation of Fed Chair**\
-`Also, the U.S. is sending top envoys to Pakistan for Iran peace talks. Here’s the latest at the end of Friday.`\
-https://www.nytimes.com/2026/04/24/briefing/fed-investigation-us-iran-peace-talks.html
 
