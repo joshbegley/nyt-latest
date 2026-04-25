@@ -8,7 +8,7 @@ https://www.nytimes.com/2026/04/25/health/eugene-braunwald-dead.html
 
 **Families of Iranian Children Killed in School Airstrike Pen Letter to Pope**\
 `Pope Leo said he has seen the letter from the parents of more than 100 children killed in the strike, which a preliminary inquiry found resulted from a mistake by the U.S. military.`\
-https://www.nytimes.com/live/2026/04/25/world/iran-war-us-talks-pakistan/families-of-iranian-children-killed-in-school-airstrike-pen-letter-to-pope
+https://www.nytimes.com/2026/04/25/world/middleeast/families-of-iranian-children-killed-in-school-airstrike-pen-letter-to-pope.html
 
 **2 C.I.A. Officers Killed in Mexico Crash Lacked Proper Authorization**\
 `The two Americans were killed on Sunday when their vehicle crashed while returning from an antidrug operation led by Mexico’s armed forces in the state of Chihuahua.`\

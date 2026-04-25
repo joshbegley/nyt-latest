@@ -1,4 +1,8 @@
 **Crushed at the Polls, Hungary’s Former Ruling Party Licks Its Wounds**\
+`Outgoing prime minister, Viktor Orban, who helped found the Fidesz party, said he would leave his Parliament seat but hoped to remain as head of his party.`\
+https://www.nytimes.com/2026/04/25/world/europe/viktor-orban-fidesz.html
+
+**Crushed at the Polls, Hungary’s Former Ruling Party Licks Its Wounds**\
 `Outgoing prime minister, Viktor Orban, who help found the Fidesz party, said he would leave his Parliament seat but hoped to remain as head of his party.`\
 https://www.nytimes.com/2026/04/25/world/europe/viktor-orban-fidesz.html
 
