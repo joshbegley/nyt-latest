@@ -1,3 +1,7 @@
+**In Wine Country, Sales Are Down and Fraud Is Rampant**\
+`The industry’s murky supply chain has long attracted scammers and con artists. In the words of one expert, “Wine and fraud go hand in hand.”`\
+https://www.nytimes.com/2026/04/25/business/dealbook/wine-fraud.html
+
 **Trump Cancels Aides’ Trip for Iran Talks, Saying, ‘We Have All the Cards.’**\
 `The last-minute scuttling of the trip is the latest sign of how far apart the two sides are on reaching a deal to end the Iran war.`\
 https://www.nytimes.com/2026/04/25/world/middleeast/trump-witkoff-kushner-pakistan-trip-canceled.html

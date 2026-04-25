@@ -1,3 +1,11 @@
+**Semyon Gluzman, 79, Dies; Doctor Dared to Criticize Soviet Psychiatry**\
+`He was imprisoned for calling attention to the practice of declaring dissidents mentally ill. He later led efforts to confront his field’s dark past.`\
+https://www.nytimes.com/2026/04/25/world/europe/semyon-gluzman-dead.html
+
+**Sonia Pressman Fuentes, Early Women’s Rights Lawyer, Dies at 97**\
+`In a conversation with the feminist writer Betty Friedan, she planted the seed that became the National Organization for Women.`\
+https://www.nytimes.com/2026/04/25/us/politics/sonia-pressman-fuentes-dead.html
+
 **Trump Cancels Aides’ Trip for Iran Talks, Saying, ‘We Have All the Cards.’**\
 `The last-minute scuttling of the trip is the latest sign of how far apart the two sides are on reaching a deal to end the Iran war.`\
 https://www.nytimes.com/2026/04/25/world/middleeast/trump-witkoff-kushner-pakistan-trip-canceled.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/25/opinion/elon-musk-donald-trump-influence.html
 **Trump, Iran’s Newest Hostage**\
 `The president is buried in the graveyard of vanity.`\
 https://www.nytimes.com/2026/04/25/opinion/trump-iran-war-israel.html
-
-**Trump’s True Deal-Making Abilities, Revealed**\
-`What moving deadlines — and red lines — in Iran means for America’s leverage.`\
-https://www.nytimes.com/2026/04/25/opinion/trump-iran-deal-making.html
-
-**Why I Still Love Michael Jackson**\
-`I’ve been a lifelong follower of Michael Jackson, a stance that sometimes I can’t defend, even to myself.`\
-https://www.nytimes.com/2026/04/25/opinion/culture/michael-jackson-movie-fan.html
 

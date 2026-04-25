@@ -46,7 +46,7 @@ https://www.nytimes.com/es/2026/04/25/espanol/cambios-salud-mejoras.html
 `We’re on a #fitnessjourney together.`\
 https://www.nytimes.com/2026/04/25/opinion/midlife-crisis-fitness.html
 
-**In Wine Country, Sales Are Down and Fraud is Rampant**\
+**In Wine Country, Sales Are Down and Fraud Is Rampant**\
 `The industry’s murky supply chain has long attracted scammers and con artists. In the words of one expert, “Wine and fraud go hand in hand.”`\
 https://www.nytimes.com/2026/04/25/business/dealbook/wine-fraud.html
 
