@@ -1,3 +1,15 @@
+**Reseña de ‘Michael’: un filme biográfico que ignora los problemas de Michael Jackson**\
+`El filme presenta una serie de piezas musicales, como un álbum de grandes éxitos, que se repiten con notas falsas, resultando insultantes tanto para el público como para el personaje.`\
+https://www.nytimes.com/es/2026/04/25/espanol/cultura/resena-pelicula-michael-jackson.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/25/crosswords/spelling-bee-forum.html
+
+**How Jesse Tyler Ferguson Is Showing His Range**\
+`Mr. Ferguson, best known for starring in the sitcom “Modern Family,” has leaned back into his theater roots with a turn as Truman Capote.`\
+https://www.nytimes.com/interactive/2026/04/25/nyregion/routine-jesse-tyler-ferguson.html
+
 **Tim Cook hizo maravillas por Apple. También por China**\
 `El exdirector ejecutivo convirtió a Apple en un gigante, pero lo hizo arriesgando la seguridad económica y política de Estados Unidos.`\
 https://www.nytimes.com/es/2026/04/25/espanol/opinion/china-apple-tim-cook.html
