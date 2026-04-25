@@ -1,3 +1,11 @@
+**How Will BTS Endure a Grueling World Tour? We Asked Their Ex-Trainer.**\
+`K-pop stars must develop stamina and prevent injuries while also maintaining the lithe physique their industry demands, the band’s former trainer says.`\
+https://www.nytimes.com/2026/04/25/arts/music/bts-kpop-arirang-world-tour-fitness-training.html
+
+**Bob Odenkirk Would Like to Remind You That Life Is a Meaningless Farce**\
+`The actor and comedian is keenly aware of humanity’s limitations, but he’s not giving up.`\
+https://www.nytimes.com/2026/04/25/magazine/bob-odenkirk-interview.html
+
 **Trump Seeks to Abolish Iran’s Atomic Stockpile, a Problem He Helped Create**\
 `President Trump withdrew from the Obama-era nuclear accord in 2018, saying it was the worst deal ever. But Iran responded with an enrichment spree that haunts the negotiations to this day.`\
 https://www.nytimes.com/2026/04/25/us/politics/trump-iran-nuclear.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/25/style/queen-elizabeth-ii-exhibition-her-life-
 **La manicurista de la alfombra roja**\
 `Tanto en hospitales como en eventos de celebridades, las personas con manicuras de Yulenny García, especialista en uñas del Bronx, llaman mucho la atención.`\
 https://www.nytimes.com/es/2026/04/25/espanol/manicurista-bronx-yulenny-garcia-marc-jacobs.html
-
-**Poetry Month Reading Recommendations**\
-`It’s National Poetry Month! Greg Cowles, an editor at The New York Times Book Review, recommends some poetry books while writing poems with fridge magnets.`\
-https://www.nytimes.com/video/books/100000010844625/poetry-month-reading-recommendations.html
-
-**Democrats Weigh Whether a Lawmaker’s Ethnicity Counts More Than Ideology**\
-`The same progressive South Asian networks that helped elect Zohran Mamdani as mayor in New York are mobilizing against Jenifer Rajkumar, a Queens assemblywoman.`\
-https://www.nytimes.com/2026/04/25/nyregion/jenifer-rajkumar-david-orkin-queens-assembly-seat.html
 

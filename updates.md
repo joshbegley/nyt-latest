@@ -1,3 +1,11 @@
+**How Will BTS Endure a Grueling World Tour? We Asked Their Ex-Trainer.**\
+`K-pop stars must develop stamina and prevent injuries while also maintaining the lithe physique their industry demands, the band’s former trainer says.`\
+https://www.nytimes.com/2026/04/25/arts/music/bts-kpop-arirang-world-tour-fitness-training.html
+
+**Bob Odenkirk Would Like to Remind You That Life Is a Meaningless Farce**\
+`The actor and comedian is keenly aware of humanity’s limitations, but he’s not giving up.`\
+https://www.nytimes.com/2026/04/25/magazine/bob-odenkirk-interview.html
+
 **Trump Seeks to Abolish Iran’s Atomic Stockpile, a Problem He Helped Create**\
 `President Trump withdrew from the Obama-era nuclear accord in 2018, saying it was the worst deal ever. But Iran responded with an enrichment spree that haunts the negotiations to this day.`\
 https://www.nytimes.com/2026/04/25/us/politics/trump-iran-nuclear.html
