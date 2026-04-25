@@ -1,3 +1,15 @@
+**A Year Later, Trump’s ‘Most Exclusive’ Memecoin Event Is a Lot Less Exclusive**\
+`Even a Times reporter qualified for the event, which caused outrage last year for providing access to President Trump in exchange for investment in one of his family’s crypto ventures.`\
+https://www.nytimes.com/2026/04/25/technology/trump-memecoin-conference.html
+
+**2 Police Officers Are Shot at a Chicago Hospital**\
+`The shooting left one officer in critical condition, officials said. The condition of the other officer was not immediately known.`\
+https://www.nytimes.com/2026/04/25/us/chicago-police-shot-swedish-hospital.html
+
+**18-Year-Old Charged in Fatal Shooting of Teenager in Queens Park**\
+`Zahir Davis was arrested on Friday night in connection with the killing of Jaden Pierre, 15, who was shot in broad daylight during a fight in South Jamaica.`\
+https://www.nytimes.com/2026/04/25/nyregion/teen-charged-shooting-queens-nyc.html
+
 **Semyon Gluzman, 79, Dies; Doctor Dared to Criticize Soviet Psychiatry**\
 `He was imprisoned for calling attention to the practice of declaring dissidents mentally ill. He later led efforts to confront his field’s dark past.`\
 https://www.nytimes.com/2026/04/25/world/europe/semyon-gluzman-dead.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/25/world/middleeast/lebanon-israel-cease-fire.ht
 ****\
 `Robots assemble vehicles at Geely’s Qiantang manufacturing plant in Hangzhou, last year,`\
 https://www.nytimes.com/video/embedded/business/100000010863157/Biz-China-Geely-video.html
-
-**The Lost Ideal of the American Car Market**\
-`Readers respond to an Opinion guest essay by Clifford Winston on the death of the affordable car.`\
-https://www.nytimes.com/2026/04/25/opinion/us-affordable-cars.html
-
-**The Political Malpractice of Elon Musk**\
-`His political malpractice will loom large in the history of Trump 2.0.`\
-https://www.nytimes.com/2026/04/25/opinion/elon-musk-donald-trump-influence.html
-
-**Trump, Iran’s Newest Hostage**\
-`The president is buried in the graveyard of vanity.`\
-https://www.nytimes.com/2026/04/25/opinion/trump-iran-war-israel.html
 
