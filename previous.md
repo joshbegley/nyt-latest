@@ -1,3 +1,7 @@
+**On Iran’s Border, Cooking Oil Trade Is a Snapshot of the Country’s Struggles**\
+`The war has exacerbated Iran’s economic crisis, forcing many to cross the border into Turkey to buy the most basic goods.`\
+https://www.nytimes.com/2026/04/25/world/middleeast/iran-turkey-cooking-oil.html
+
 **¿Qué es el trastorno límite de la personalidad?**\
 `Las relaciones inestables, la impulsividad descontrolada y una identidad inestable son rasgos característicos de este trastorno de salud mental a menudo malinterpretado.`\
 https://www.nytimes.com/es/2026/04/25/espanol/estilos-de-vida/que-es-trastorno-limite-personalidad.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/24/us/politics/marco-rubio-absence-iran-talks.ht
 **One of Two Missing Florida Doctoral Students Is Found Dead, Officials Say**\
 `The University of South Florida students were reported missing last week. A roommate of the student whose body was found was charged in connection with his disappearance.`\
 https://www.nytimes.com/2026/04/24/us/usf-students-missing-body-found.html
-
-**Kenyan Court Strikes Down Ruling Protecting Right to Abortion**\
-`The decision, in a country where thousands of women die yearly from unsafe abortions, held that abortions deprive unborn children of the “right to life.”`\
-https://www.nytimes.com/2026/04/24/world/africa/kenya-court-abortion-ruling.html
 

@@ -1,3 +1,7 @@
+**On Iran’s Border, Cooking Oil Trade Is a Snapshot of the Country’s Struggles**\
+`The war has exacerbated Iran’s economic crisis, forcing many to cross the border into Turkey to buy the most basic goods.`\
+https://www.nytimes.com/2026/04/25/world/middleeast/iran-turkey-cooking-oil.html
+
 **¿Qué es el trastorno límite de la personalidad?**\
 `Las relaciones inestables, la impulsividad descontrolada y una identidad inestable son rasgos característicos de este trastorno de salud mental a menudo malinterpretado.`\
 https://www.nytimes.com/es/2026/04/25/espanol/estilos-de-vida/que-es-trastorno-limite-personalidad.html
