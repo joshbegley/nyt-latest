@@ -1,3 +1,7 @@
+**Every Black Republican Is Leaving the House, Erasing Diversity Gains**\
+`All four Black House Republicans are retiring after this year, a reflection of the striking and persistent lack of diversity in the G.O.P. ranks of Congress.`\
+https://www.nytimes.com/2026/04/25/us/house-black-republicans-congress-diversity.html
+
 **La guerra y las sanciones aceleran el impulso monetario chino**\
 `El intento de China de construir un sistema financiero basado en el renminbi, fuera del alcance del dólar estadounidense, está ganando adeptos como forma de eludir las sanciones.`\
 https://www.nytimes.com/es/2026/04/25/espanol/negocios/china-guerra-moneda-dolar.html
@@ -8,7 +12,7 @@ https://www.nytimes.com/2026/04/25/nyregion/nyc-torture-survivors-hospital-progr
 
 **Trump to Dine With Reporters He’s Been Roasting All Week**\
 `President Trump has boycotted the White House Correspondents’ Association dinner in previous years.`\
-https://www.nytimes.com/2026/04/25/us/politics/trump-to-dine-with-reporters-hes-been-roasting-all-week.html
+https://www.nytimes.com/2026/04/25/us/politics/trump-white-house-correspondents-dinner.html
 
 **Indigenous Speakers Are Booed During Commemorations of Australia’s War Dead**\
 `Dawn services for Anzac Day were disrupted in three cities. The hecklers seemed to be targeting a widespread Aboriginal custom meant to acknowledge the land’s original inhabitants.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/25/opinion/culture/michael-jackson-movie-fan.htm
 **Measles Is Back. What Comes Next Will Be Worse.**\
 `Reversing the new vaccine skepticism will require a dedicated effort.`\
 https://www.nytimes.com/2026/04/25/opinion/measles-vaccines-rfk-jr.html
-
-**What Trump Owes the World**\
-`Trump owes the world an agreement with Iran to curb its pursuit of a bomb.`\
-https://www.nytimes.com/2026/04/25/opinion/international-world/trump-iran-nuclear-weapons.html
 
