@@ -1,3 +1,7 @@
+**Tim Cook hizo maravillas por Apple. También por China**\
+`El exdirector ejecutivo convirtió a Apple en un gigante, pero lo hizo arriesgando la seguridad económica y política de Estados Unidos.`\
+https://www.nytimes.com/es/2026/04/25/espanol/opinion/china-apple-tim-cook.html
+
 **La violencia moldeó a Charlize Theron. No la define**\
 `La ganadora del Oscar reflexiona sobre el dolor, el proceso de sanación y su camino para convertirse en estrella de cine de acción.`\
 https://www.nytimes.com/es/2026/04/25/espanol/cultura/entrevista-charlize-theron.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/24/nyregion/domestic-abuse-sentencing.html
 **Did an Acid Trip Inspire the First Photo of Earth?**\
 `How did looking back at the Earth for the first time change humanity’s perspective? The legendary thinker Stewart Brand tells the Opinion columnist Ezra Klein why we need to shift our focus from “looking outward” to the essential, constant work of maintaining our civilizations and the planet itself.`\
 https://www.nytimes.com/video/opinion/100000010857817/did-an-acid-trip-inspire-the-first-photo-of-earth.html
-
-**The Prophet of Silicon Valley**\
-`Stewart Brand, an author and visionary, deeply influenced the internet era from the 1960s onward. Yet the systems he inspired have become fundamentally unintelligible to their creators. The Opinion columnist Ezra Klein explores the tension between Brand’s “how to” philosophy and the black-box reality of modern A.I. on “The Ezra Klein Show.”`\
-https://www.nytimes.com/video/opinion/100000010857809/the-prophet-of-silicon-valley.html
 
