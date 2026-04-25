@@ -1,3 +1,11 @@
+**La violencia moldeó a Charlize Theron. No la define**\
+`La ganadora del Oscar reflexiona sobre el dolor, el proceso de sanación y su camino para convertirse en estrella de cine de acción.`\
+https://www.nytimes.com/es/2026/04/25/espanol/cultura/entrevista-charlize-theron.html
+
+**Un perrito robot para cuidar a tus padres en su vejez**\
+`Nuevas tecnologías de monitoreo ayudan a los adultos mayores a recordar que tomen sus pastillas o a entablar conversaciones con un robot mientras aligeran la carga para los cuidadores que no pueden estar siempre con ellos.`\
+https://www.nytimes.com/es/2026/04/25/espanol/ciencia-y-tecnologia/perrito-robot-ia-cuidar-ancianos.html
+
 **España y el Reino Unido se oponen a posibles sanciones de Trump**\
 `Un correo electrónico interno del Pentágono, según informó la agencia Reuters, sugería que EE. UU. analizaba posibles sanciones contra ambos países por no dar el apoyo necesario para la guerra en Irán.`\
 https://www.nytimes.com/es/2026/04/25/espanol/mundo/espana-reino-unido-trump-sanciones.html
