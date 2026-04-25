@@ -1,3 +1,7 @@
+**In Deep Blue California, a G.O.P.-Backed Voter ID Proposal Makes the Ballot**\
+`A Republican-backed initiative has cleared the signature threshold for the November election. Critics say the measure could make it harder for people to vote.`\
+https://www.nytimes.com/2026/04/25/us/politics/california-voter-id-citizenship-ballot.html
+
 **One Police Officer Is Killed and Another Critically Wounded in Chicago Hospital Shooting**\
 `A 57-year-old officer was “fighting for his life,” after the shooting on Saturday at Endeavor Health Swedish Hospital, the police superintendent said. A suspect was in custody.`\
 https://www.nytimes.com/2026/04/25/us/chicago-police-shot-swedish-hospital.html
