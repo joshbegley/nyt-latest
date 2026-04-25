@@ -1,3 +1,7 @@
+**The Millennial Midlife Crisis Manifests as Visible Abs**\
+`We’re on a #fitnessjourney together.`\
+https://www.nytimes.com/2026/04/25/opinion/midlife-crisis-fitness.html
+
 **In Wine Country, Sales Are Down and Fraud is Rampant**\
 `The industry’s murky supply chain has long attracted scammers and con artists. In the words of one expert, “Wine and fraud go hand in hand.”`\
 https://www.nytimes.com/2026/04/25/business/dealbook/wine-fraud.html
@@ -30,7 +34,7 @@ https://www.nytimes.com/2026/04/25/opinion/trump-iran-deal-making.html
 `I’ve been a lifelong follower of Michael Jackson, a stance that sometimes I can’t defend, even to myself.`\
 https://www.nytimes.com/2026/04/25/opinion/culture/michael-jackson-movie-fan.html
 
-**Measles Is Back. It’s a Sign Worse Is Coming.**\
+**Measles Is Back. What Comes Next Will Be Worse.**\
 `Reversing the new vaccine skepticism will require a dedicated effort.`\
 https://www.nytimes.com/2026/04/25/opinion/measles-vaccines-rfk-jr.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/25/arts/music/bts-kpop-arirang-world-tour-fitnes
 **Bob Odenkirk Would Like to Remind You That Life Is a Meaningless Farce**\
 `The actor and comedian is keenly aware of humanity’s limitations, but he’s not giving up.`\
 https://www.nytimes.com/2026/04/25/magazine/bob-odenkirk-interview.html
-
-**Trump Seeks to Abolish Iran’s Atomic Stockpile, a Problem He Helped Create**\
-`President Trump withdrew from the Obama-era nuclear accord in 2018, saying it was the worst deal ever. But Iran responded with an enrichment spree that haunts the negotiations to this day.`\
-https://www.nytimes.com/2026/04/25/us/politics/trump-iran-nuclear.html
 
