@@ -1,3 +1,7 @@
+**Lebanese Ask, ‘What Cease-Fire?’ as Violence Simmers in the South**\
+`The fragile truce in Lebanon was extended after talks in Washington this week but has come under threat as Israel and Hezbollah have traded attacks.`\
+https://www.nytimes.com/2026/04/25/world/middleeast/lebanon-israel-cease-fire.html
+
 **The Millennial Midlife Crisis Manifests as Visible Abs**\
 `We’re on a #fitnessjourney together.`\
 https://www.nytimes.com/2026/04/25/opinion/midlife-crisis-fitness.html
