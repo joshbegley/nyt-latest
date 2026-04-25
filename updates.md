@@ -1,3 +1,11 @@
+**Every Black Republican Is Leaving the House, Erasing Diversity Gains**\
+`All four Black House Republicans are retiring after this year, a reflection of the striking and persistent lack of diversity in the G.O.P. ranks of Congress.`\
+https://www.nytimes.com/2026/04/25/us/house-black-republicans-congress-diversity.html
+
+**Trump to Dine With Reporters He’s Been Roasting All Week**\
+`President Trump has boycotted the White House Correspondents’ Association dinner in previous years.`\
+https://www.nytimes.com/2026/04/25/us/politics/trump-white-house-correspondents-dinner.html
+
 **La guerra y las sanciones aceleran el impulso monetario chino**\
 `El intento de China de construir un sistema financiero basado en el renminbi, fuera del alcance del dólar estadounidense, está ganando adeptos como forma de eludir las sanciones.`\
 https://www.nytimes.com/es/2026/04/25/espanol/negocios/china-guerra-moneda-dolar.html
