@@ -1,3 +1,15 @@
+**La guerra y las sanciones aceleran el impulso monetario chino**\
+`El intento de China de construir un sistema financiero basado en el renminbi, fuera del alcance del dólar estadounidense, está ganando adeptos como forma de eludir las sanciones.`\
+https://www.nytimes.com/es/2026/04/25/espanol/negocios/china-guerra-moneda-dolar.html
+
+**They Survived Torture. Why Is the Program That Helped Them Closing?**\
+`Some Bellevue Hospital officials feared having to disclose patients’ immigration status. They will get care elsewhere at the hospital, administrators say.`\
+https://www.nytimes.com/2026/04/25/nyregion/nyc-torture-survivors-hospital-program-closing.html
+
+**Trump to Dine With Reporters He’s Been Roasting All Week**\
+`President Trump has boycotted the White House Correspondents’ Association dinner in previous years.`\
+https://www.nytimes.com/2026/04/25/us/politics/trump-to-dine-with-reporters-hes-been-roasting-all-week.html
+
 **Indigenous Speakers Are Booed During Commemorations of Australia’s War Dead**\
 `Dawn services for Anzac Day were disrupted in three cities. The hecklers seemed to be targeting a widespread Aboriginal custom meant to acknowledge the land’s original inhabitants.`\
 https://www.nytimes.com/2026/04/25/world/australia/anzac-day-indigenous-speakers-booed.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/25/opinion/measles-vaccines-rfk-jr.html
 **What Trump Owes the World**\
 `Trump owes the world an agreement with Iran to curb its pursuit of a bomb.`\
 https://www.nytimes.com/2026/04/25/opinion/international-world/trump-iran-nuclear-weapons.html
-
-**Trump’s True Deal-Making Abilities, Revealed**\
-`What moving deadlines — and red lines — in Iran means for America’s leverage.`\
-https://www.nytimes.com/video/opinion/100000010856896/trumps-true-deal-making-abilities-revealed.html
-
-**High Lights**\
-`Our lives are governed by wondrous phenomena that we don’t often stop to consider.`\
-https://www.nytimes.com/2026/04/25/briefing/high-lights.html
-
-**Wordle Review No. 1,772**\
-`Scroll down for hints and conversation about the puzzle for Sunday, April 26, 2026.`\
-https://www.nytimes.com/2026/04/25/crosswords/wordle-review-1772.html
 
