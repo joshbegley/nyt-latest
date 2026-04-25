@@ -1,3 +1,7 @@
+**¿Qué es el trastorno límite de la personalidad?**\
+`Las relaciones inestables, la impulsividad descontrolada y una identidad inestable son rasgos característicos de este trastorno de salud mental a menudo malinterpretado.`\
+https://www.nytimes.com/es/2026/04/25/espanol/estilos-de-vida/que-es-trastorno-limite-personalidad.html
+
 **Reseña de ‘Michael’: un filme biográfico que ignora los problemas de Michael Jackson**\
 `El filme presenta una serie de piezas musicales, como un álbum de grandes éxitos, que se repiten con notas falsas, resultando insultantes tanto para el público como para el personaje.`\
 https://www.nytimes.com/es/2026/04/25/espanol/cultura/resena-pelicula-michael-jackson.html
