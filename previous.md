@@ -1,5 +1,5 @@
 ****\
-`tktktk`\
+`Robots assemble vehicles at Geely’s Qiantang manufacturing plant in Hangzhou, last year,`\
 https://www.nytimes.com/video/embedded/business/100000010863157/Biz-China-Geely-video.html
 
 **The Lost Ideal of the American Car Market**\
