@@ -1,3 +1,7 @@
+**Helpful Pointer, Say?**\
+`Sam Ezersky’s scintillating Saturday puzzle sends solvers in all directions.`\
+https://www.nytimes.com/2026/04/24/crosswords/daily-puzzle-2026-04-25.html
+
 **SiriusXM Said to Be in Early Talks to Acquire iHeartMedia**\
 `A deal, which was described by two people familiar with the discussions, would unite two major providers of traditional and satellite radio.`\
 https://www.nytimes.com/2026/04/24/business/media/siriusxm-iheart-radio.html
