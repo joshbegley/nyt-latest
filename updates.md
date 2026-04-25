@@ -1,3 +1,11 @@
+**Quote of the Day: With Chavez’s Legacy Stained, What to Do With Art in Tribute?**\
+`Quotation of the Day for Saturday, April 25, 2026.`\
+https://www.nytimes.com/2026/04/24/pageoneplus/quote-of-the-day-with-chavezs-legacy-stained-what-to-do-with-art-in-tribute.html
+
+**U.S. Says Venezuelan Government Can Pay for Nicolás Maduro’s Defense**\
+`The issue had been hanging over the former Venezuelan leader’s federal criminal case for weeks. Last month, a judge indicated that he was skeptical of the U.S. government’s rationale for blocking the funds.`\
+https://www.nytimes.com/2026/04/24/nyregion/us-venezuela-maduro-court-cost.html
+
 **Wayne Moss, Guitarist Who Helped Broaden Country Sound, Dies at 88**\
 `A top Nashville musician, he played on Bob Dylan’s “I Want You,”  Roy Orbison’s “Oh, Pretty Woman” and Dolly Parton’s “Jolene.”`\
 https://www.nytimes.com/2026/04/24/arts/music/wayne-moss-dead.html

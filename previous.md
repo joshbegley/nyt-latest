@@ -1,3 +1,11 @@
+**Quote of the Day: With Chavez’s Legacy Stained, What to Do With Art in Tribute?**\
+`Quotation of the Day for Saturday, April 25, 2026.`\
+https://www.nytimes.com/2026/04/24/pageoneplus/quote-of-the-day-with-chavezs-legacy-stained-what-to-do-with-art-in-tribute.html
+
+**U.S. Says Venezuelan Government Can Pay for Nicolás Maduro’s Defense**\
+`The issue had been hanging over the former Venezuelan leader’s federal criminal case for weeks. Last month, a judge indicated that he was skeptical of the U.S. government’s rationale for blocking the funds.`\
+https://www.nytimes.com/2026/04/24/nyregion/us-venezuela-maduro-court-cost.html
+
 **2 Killed in Boat Strike in Eastern Pacific Ocean, Pentagon Says**\
 `The attack — the sixth this month — raised the death toll to at least 182 in a campaign against people the Trump administration accuses of smuggling drugs at sea.`\
 https://www.nytimes.com/2026/04/24/us/politics/boat-strike-pentagon-eastern-pacific.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/24/us/politics/republicans-midterms-campaign.htm
 **Wayne Moss, Guitarist Who Helped Broaden Country Sound, Dies at 88**\
 `A top Nashville musician, he played on Bob Dylan’s “I Want You,”  Roy Orbison’s “Oh, Pretty Woman” and Dolly Parton’s “Jolene.”`\
 https://www.nytimes.com/2026/04/24/arts/music/wayne-moss-dead.html
-
-**Student Contest Based on Trump’s Garden of Heroes Downplays Darker History**\
-`Guidelines for the art contest, sponsored by the group Freedom 250, include material about abolitionists and civil rights leaders, but little mention of what they fought against.`\
-https://www.nytimes.com/2026/04/24/arts/trump-garden-heroes-king.html
-
-**U.S. Sending Kushner and Witkoff to Pakistan to Resume Talks on Iran**\
-`Iran’s foreign minister has already arrived in the country, state media reported. He was believed to be carrying a written response to a U.S. proposal to end the war.`\
-https://www.nytimes.com/2026/04/24/world/middleeast/kushner-witkoff-pakistan-iran.html
 
