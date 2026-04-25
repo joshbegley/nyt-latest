@@ -1,3 +1,11 @@
+**Semyon Gluzman, 79, Dies; Doctor Dared to Criticize Soviet Psychiatry**\
+`He was imprisoned for calling attention to the practice of declaring dissidents mentally ill. He later led efforts to confront his field’s dark past.`\
+https://www.nytimes.com/2026/04/25/world/europe/semyon-gluzman-dead.html
+
+**Sonia Pressman Fuentes, Early Women’s Rights Lawyer, Dies at 97**\
+`In a conversation with the feminist writer Betty Friedan, she planted the seed that became the National Organization for Women.`\
+https://www.nytimes.com/2026/04/25/us/politics/sonia-pressman-fuentes-dead.html
+
 **In Wine Country, Sales Are Down and Fraud Is Rampant**\
 `The industry’s murky supply chain has long attracted scammers and con artists. In the words of one expert, “Wine and fraud go hand in hand.”`\
 https://www.nytimes.com/2026/04/25/business/dealbook/wine-fraud.html
