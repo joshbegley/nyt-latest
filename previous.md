@@ -1,3 +1,39 @@
+****\
+`tktktk`\
+https://www.nytimes.com/video/embedded/business/100000010863157/Biz-China-Geely-video.html
+
+**The Lost Ideal of the American Car Market**\
+`Readers respond to an Opinion guest essay by Clifford Winston on the death of the affordable car.`\
+https://www.nytimes.com/2026/04/25/opinion/us-affordable-cars.html
+
+**The Political Defeats of Elon Musk**\
+`His political malpractice will loom large in the history of Trump 2.0.`\
+https://www.nytimes.com/2026/04/25/opinion/elon-musk-donald-trump-influence.html
+
+**Trump, Iran’s Newest Hostage**\
+`The president is buried in the graveyard of vanity.`\
+https://www.nytimes.com/2026/04/25/opinion/trump-iran-war-israel.html
+
+**Trump’s True Deal-Making Abilities, Revealed**\
+`What moving deadlines — and red lines — in Iran means for America’s leverage.`\
+https://www.nytimes.com/2026/04/25/opinion/trump-iran-deal-making.html
+
+**Why I Still Love Michael Jackson**\
+`I’ve been a lifelong follower of Michael Jackson, a stance that sometimes I can’t defend, even to myself.`\
+https://www.nytimes.com/2026/04/25/opinion/culture/michael-jackson-movie-fan.html
+
+**Measles Is Back. It’s a Sign Worse Is Coming.**\
+`Reversing the new vaccine skepticism will require a dedicated effort.`\
+https://www.nytimes.com/2026/04/25/opinion/measles-vaccines-rfk-jr.html
+
+**The Art of the Nuclear Deal**\
+`Trump owes the world an agreement with Iran to curb its pursuit of a bomb.`\
+https://www.nytimes.com/2026/04/25/opinion/international-world/trump-iran-nuclear-weapons.html
+
+**Trump’s True Deal-Making Abilities, Revealed**\
+`What moving deadlines — and red lines — in Iran means for America’s leverage.`\
+https://www.nytimes.com/video/opinion/100000010856896/trumps-true-deal-making-abilities-revealed.html
+
 **High Lights**\
 `Our lives are governed by wondrous phenomena that we don’t often stop to consider.`\
 https://www.nytimes.com/2026/04/25/briefing/high-lights.html
@@ -41,40 +77,4 @@ https://www.nytimes.com/interactive/2026/04/25/business/iran-trump-israel-war-me
 **Tennessee Passed a Slate of Immigration Bills. Here’s What They Do.**\
 `The Republican supermajority in the Tennessee General Assembly approved a series of immigrations bills, crafted in coordination with the White House.`\
 https://www.nytimes.com/2026/04/25/us/politics/tennessee-immigration-bills-what-to-know.html
-
-**What ‘Michael’ Gets Right and Wrong About Michael Jackson**\
-`Here’s how the new biopic about the pop star handles everything from major moments like the “Beat It” video to details like a pet giraffe.`\
-https://www.nytimes.com/2026/04/25/movies/michael-jackson-biopic-fact-check.html
-
-**Her Life Savings Mysteriously Disappeared After a Systems Glitch**\
-`Fidelity Investments notified a customer that her phone number and email address had been removed from her profile. When she logged in, her accounts and savings were nowhere to be found.`\
-https://www.nytimes.com/2026/04/25/your-money/fidelity-investments-fraud-alert.html
-
-**Under Trump, Green Card Seekers Face New Scrutiny for Views on Israel**\
-`In guidance to immigration officers, the administration describes participating in pro-Palestinian protests and criticizing Israel as “overwhelmingly negative” factors.`\
-https://www.nytimes.com/2026/04/25/us/politics/trump-green-cards-scrutiny.html
-
-**A Perfect Saturday? Roller Skating on a Rooftop.**\
-`The Brooklyn Children’s Museum has reimagined a beloved and bygone local rink for its “Empire Skate of Mind” events. Neighborhood kids, many skating for the first time, are lacing up.`\
-https://www.nytimes.com/2026/04/25/arts/brooklyn-roller-skating.html
-
-**Europe Prepares for a Longer War in Ukraine, With No Strategy to End It**\
-`With American dealmakers wrapped up with Iran, neither Russia nor Ukraine has a clear path to victory — or toward a negotiated peace.`\
-https://www.nytimes.com/2026/04/25/world/europe/ukraine-russia-europe-european-union.html
-
-**Can Physics Soften a Mother’s Death?**\
-`In the play “Rheology,” a son and his mother grapple, in very different ways, with what her eventual death will mean.`\
-https://www.nytimes.com/2026/04/25/theater/rheology-inspirations.html
-
-**More Used Electric Cars Are Coming at More Affordable Prices**\
-`The leases on hundreds of thousands of battery-powered cars and trucks will end in the next three years, and many will end up on used-car lots.`\
-https://www.nytimes.com/2026/04/25/business/electric-vehicles-used-leases.html
-
-**The Long, Challenging Road to D4vd’s Arrest**\
-`Uncooperative witnesses drove prosecutors to convene an investigative grand jury after a teenage girl’s body was discovered in the trunk of the singer’s car.`\
-https://www.nytimes.com/2026/04/25/arts/d4vd-arrest-prosecutor-challenges.html
-
-**Lessons From the Wild, Elusive Life of a Conservation Giant**\
-`In her engaging, lyrical “Homesick for a World Unknown,” Miriam Horn tells the story of the famed naturalist George Schaller.`\
-https://www.nytimes.com/2026/04/25/books/review/miriam-horn-homesick-for-a-world-unknown.html
 

@@ -1,3 +1,39 @@
+****\
+`tktktk`\
+https://www.nytimes.com/video/embedded/business/100000010863157/Biz-China-Geely-video.html
+
+**The Lost Ideal of the American Car Market**\
+`Readers respond to an Opinion guest essay by Clifford Winston on the death of the affordable car.`\
+https://www.nytimes.com/2026/04/25/opinion/us-affordable-cars.html
+
+**The Political Defeats of Elon Musk**\
+`His political malpractice will loom large in the history of Trump 2.0.`\
+https://www.nytimes.com/2026/04/25/opinion/elon-musk-donald-trump-influence.html
+
+**Trump, Iran’s Newest Hostage**\
+`The president is buried in the graveyard of vanity.`\
+https://www.nytimes.com/2026/04/25/opinion/trump-iran-war-israel.html
+
+**Trump’s True Deal-Making Abilities, Revealed**\
+`What moving deadlines — and red lines — in Iran means for America’s leverage.`\
+https://www.nytimes.com/2026/04/25/opinion/trump-iran-deal-making.html
+
+**Why I Still Love Michael Jackson**\
+`I’ve been a lifelong follower of Michael Jackson, a stance that sometimes I can’t defend, even to myself.`\
+https://www.nytimes.com/2026/04/25/opinion/culture/michael-jackson-movie-fan.html
+
+**Measles Is Back. It’s a Sign Worse Is Coming.**\
+`Reversing the new vaccine skepticism will require a dedicated effort.`\
+https://www.nytimes.com/2026/04/25/opinion/measles-vaccines-rfk-jr.html
+
+**The Art of the Nuclear Deal**\
+`Trump owes the world an agreement with Iran to curb its pursuit of a bomb.`\
+https://www.nytimes.com/2026/04/25/opinion/international-world/trump-iran-nuclear-weapons.html
+
+**Trump’s True Deal-Making Abilities, Revealed**\
+`What moving deadlines — and red lines — in Iran means for America’s leverage.`\
+https://www.nytimes.com/video/opinion/100000010856896/trumps-true-deal-making-abilities-revealed.html
+
 **High Lights**\
 `Our lives are governed by wondrous phenomena that we don’t often stop to consider.`\
 https://www.nytimes.com/2026/04/25/briefing/high-lights.html
