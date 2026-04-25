@@ -1,3 +1,15 @@
+**Recipes for the Moms in My Life**\
+`It’s never too early to start planning Mother’s Day. Get inspired by a tangy lemon tart, a supremely moist cake soaked in rose syrup and more.`\
+https://www.nytimes.com/2026/04/25/dining/recipes-for-the-moms-in-my-life.html
+
+**Mi pasado doloroso creó arte nuevo**\
+`Fingir que los abusos de mi padre no habían ocurrido era una vía más fácil. Pero me di cuenta de que tenía que intentar curarme de este trauma si quería experimentar el amor de verdad.`\
+https://www.nytimes.com/es/2026/04/25/espanol/estilos-de-vida/modern-love-abuso-padre-arte.html
+
+**Los pequeños cambios que han mejorado la salud de nuestros lectores**\
+`Nosotros preguntamos, y más de 800 lectores respondieron.`\
+https://www.nytimes.com/es/2026/04/25/espanol/cambios-salud-mejoras.html
+
 **Lebanese Ask, ‘What Cease-Fire?’ as Violence Simmers in the South**\
 `The fragile truce in Lebanon was extended after talks in Washington this week but has come under threat as Israel and Hezbollah have traded attacks.`\
 https://www.nytimes.com/2026/04/25/world/middleeast/lebanon-israel-cease-fire.html
