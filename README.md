@@ -1,3 +1,15 @@
+**Reseña de ‘Michael’: un filme biográfico que ignora los problemas de Michael Jackson**\
+`El filme presenta una serie de piezas musicales, como un álbum de grandes éxitos, que se repiten con notas falsas, resultando insultantes tanto para el público como para el personaje.`\
+https://www.nytimes.com/es/2026/04/25/espanol/cultura/resena-pelicula-michael-jackson.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/25/crosswords/spelling-bee-forum.html
+
+**How Jesse Tyler Ferguson Is Showing His Range**\
+`Mr. Ferguson, best known for starring in the sitcom “Modern Family,” has leaned back into his theater roots with a turn as Truman Capote.`\
+https://www.nytimes.com/interactive/2026/04/25/nyregion/routine-jesse-tyler-ferguson.html
+
 **Tim Cook hizo maravillas por Apple. También por China**\
 `El exdirector ejecutivo convirtió a Apple en un gigante, pero lo hizo arriesgando la seguridad económica y política de Estados Unidos.`\
 https://www.nytimes.com/es/2026/04/25/espanol/opinion/china-apple-tim-cook.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/24/world/africa/kenya-court-abortion-ruling.html
 **Snowstorm Strands 300 Vehicles Overnight on Alberta, Canada, Highways**\
 `The Royal Canadian Mounted Police said they were working to rescue those stranded and deliver supplies like food, fuel and medicine.`\
 https://www.nytimes.com/2026/04/24/world/canada/snow-storm-canada-alberta-stranded.html
-
-**Wildfires in Georgia Destroy 120 structures**\
-`Two large wildfires in southeast Georgia had destroyed more than 120 structures and scorched tens of thousands of acres of drought-stricken land, according to state officials. The fires were among dozens that have been burning in the state.`\
-https://www.nytimes.com/video/weather/100000010859511/georgia-wildfires-evacuations.html
-
-**History of Domestic Abuse Can be Considered in Sentencing, Court Rules**\
-`The court ruled that prosecutors cannot make defendants who take a plea deal waive their right to a hearing that would allow their history of domestic abuse to be considered during sentencing.`\
-https://www.nytimes.com/2026/04/24/nyregion/domestic-abuse-sentencing.html
-
-**Did an Acid Trip Inspire the First Photo of Earth?**\
-`How did looking back at the Earth for the first time change humanity’s perspective? The legendary thinker Stewart Brand tells the Opinion columnist Ezra Klein why we need to shift our focus from “looking outward” to the essential, constant work of maintaining our civilizations and the planet itself.`\
-https://www.nytimes.com/video/opinion/100000010857817/did-an-acid-trip-inspire-the-first-photo-of-earth.html
 
