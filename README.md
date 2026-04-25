@@ -34,8 +34,8 @@ https://www.nytimes.com/video/embedded/us/100000010863447/25vid-Trump-Iran-45166
 `The court that paused a 2023 law allowing state and local police officers to arrest migrants has now ruled that the measure is legal, a decision likely to be appealed.`\
 https://www.nytimes.com/2026/04/25/us/texas-mexico-border-arrest-deport-immigration.html
 
-**In California, a Voter ID Proposal Is Set to Appear on the Ballot in November**\
-`A Republican-backed initiative has cleared the signature threshold for the election. Critics say the proposal could make it harder for people to vote.`\
+**In Deep Blue California, a G.O.P.-Backed Voter ID Proposal Makes the Ballot**\
+`A Republican-backed initiative has cleared the signature threshold for the November election. Critics say the measure could make it harder for people to vote.`\
 https://www.nytimes.com/2026/04/25/us/politics/california-voter-id-citizenship-ballot.html
 
 **A Year Later, Trump’s ‘Most Exclusive’ Memecoin Event Is a Lot Less Exclusive**\
