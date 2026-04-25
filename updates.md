@@ -1,3 +1,7 @@
+**How the War in Iran Is Draining the U.S. of Critical Weapons**\
+`The United States has blown through weapons as the cost of the war in Iran has hit nearly $1 billion a day. Our national security correspondent Eric Schmitt explains how American costs may go beyond the financial.`\
+https://www.nytimes.com/video/us/politics/100000010857432/how-the-war-in-iran-is-draining-the-us-of-critical-weapons.html
+
 **Al Qaeda-Linked Militants Launch Major Attacks on Cities Across Mali**\
 `The armed group JNIM claimed to have seized two key cities and destroyed the defense minister’s residence in a coordinated offensive that experts said was a major escalation in yearslong hostilities.`\
 https://www.nytimes.com/2026/04/25/world/africa/mali-attacks-jnim-al-qaeda-bamako.html
