@@ -1,3 +1,11 @@
+**Texas Can Arrest People Who Illegally Cross at Mexico Border, Court Says**\
+`The court that paused a 2023 law allowing state and local police officers to arrest migrants has now ruled that the measure is legal, a decision likely to be appealed.`\
+https://www.nytimes.com/2026/04/25/us/texas-mexico-border-arrest-deport-immigration.html
+
+**In California, a Voter ID Proposal Is Set to Appear on the Ballot in November**\
+`A Republican-backed initiative has cleared the signature threshold for the election. Critics say the proposal could make it harder for people to vote.`\
+https://www.nytimes.com/2026/04/25/us/politics/california-voter-id-citizenship-ballot.html
+
 **A Year Later, Trump’s ‘Most Exclusive’ Memecoin Event Is a Lot Less Exclusive**\
 `Even a Times reporter qualified for the event, which caused outrage last year for providing access to President Trump in exchange for investment in one of his family’s crypto ventures.`\
 https://www.nytimes.com/2026/04/25/technology/trump-memecoin-conference.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/25/opinion/midlife-crisis-fitness.html
 **In Wine Country, Sales Are Down and Fraud Is Rampant**\
 `The industry’s murky supply chain has long attracted scammers and con artists. In the words of one expert, “Wine and fraud go hand in hand.”`\
 https://www.nytimes.com/2026/04/25/business/dealbook/wine-fraud.html
-
-**Lebanese Ask, ‘What Cease-Fire?’ as Violence Simmers in the South**\
-`The fragile truce in Lebanon was extended after talks in Washington this week but has come under threat as Israel and Hezbollah have traded attacks.`\
-https://www.nytimes.com/2026/04/25/world/middleeast/lebanon-israel-cease-fire.html
-
-****\
-`Robots assemble vehicles at Geely’s Qiantang manufacturing plant in Hangzhou, last year,`\
-https://www.nytimes.com/video/embedded/business/100000010863157/Biz-China-Geely-video.html
 
