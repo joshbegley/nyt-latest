@@ -1,3 +1,7 @@
+**Wayne Moss, Guitarist Who Helped Broaden Country Sound, Dies at 88**\
+`A top Nashville musician, he played on Bob Dylan’s “I Want You,”  Roy Orbison’s “Oh, Pretty Woman” and Dolly Parton’s “Jolene.”`\
+https://www.nytimes.com/2026/04/24/arts/music/wayne-moss-dead.html
+
 **2 Killed in Boat Strike in Eastern Pacific Ocean, Pentagon Says**\
 `The attack — the sixth this month — raised the death toll to at least 182 in a campaign against people the Trump administration accuses of smuggling drugs at sea.`\
 https://www.nytimes.com/2026/04/24/us/politics/boat-strike-pentagon-eastern-pacific.html
