@@ -1,3 +1,27 @@
+**High Lights**\
+`Our lives are governed by wondrous phenomena that we don’t often stop to consider.`\
+https://www.nytimes.com/2026/04/25/briefing/high-lights.html
+
+**Wordle Review No. 1,772**\
+`Scroll down for hints and conversation about the puzzle for Sunday, April 26, 2026.`\
+https://www.nytimes.com/2026/04/25/crosswords/wordle-review-1772.html
+
+**Connections Companion No. 1,050**\
+`Scroll down for hints and conversation about the puzzle for Sunday, April 26, 2026`\
+https://www.nytimes.com/2026/04/25/crosswords/connections-companion-1050.html
+
+**Strands Sidekick No. 784**\
+`Scroll down for hints and conversation about the puzzle for Sunday, April 26, 2026.`\
+https://www.nytimes.com/2026/04/25/crosswords/strands-sidekick-784.html
+
+**The Challenges Facing Canada as It Inches Toward Trade Talks**\
+`An international trade economist in Washington warns that negotiations will take place in an “incredibly difficult” environment.`\
+https://www.nytimes.com/2026/04/25/world/canada/carney-trump-canada-us-trade-usmca.html
+
+**The Elite ‘Doctors’ Who Care for Mount Everest**\
+`Glacial ice has sealed the gateway to Everest’s summit, keeping hundreds of climbers from reaching the top. “Icefall doctors” are on the case.`\
+https://www.nytimes.com/2026/04/25/world/asia/mount-everest-sherpa-icefall-doctor.html
+
 **How Will BTS Endure a Grueling World Tour? We Asked Their Ex-Trainer.**\
 `K-pop stars must develop stamina and prevent injuries while also maintaining the lithe physique their industry demands, the band’s former trainer says.`\
 https://www.nytimes.com/2026/04/25/arts/music/bts-kpop-arirang-world-tour-fitness-training.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/04/25/arts/d4vd-arrest-prosecutor-challenges.html
 **Lessons From the Wild, Elusive Life of a Conservation Giant**\
 `In her engaging, lyrical “Homesick for a World Unknown,” Miriam Horn tells the story of the famed naturalist George Schaller.`\
 https://www.nytimes.com/2026/04/25/books/review/miriam-horn-homesick-for-a-world-unknown.html
-
-**Rejected by a Co-op Board: Do They Have to Tell You Why?**\
-`A board cannot illegally discriminate against a prospective buyer. But beyond that, the process can be opaque.`\
-https://www.nytimes.com/2026/04/25/realestate/coop-boards-rejection.html
-
-**Qué es la ‘inteligencia irregular’ y cómo puede redefinir el debate sobre la IA**\
-`La IA siempre ha sido comparada con la inteligencia humana, pero quizá esa no sea la forma más adecuada de entenderla. Sus fortalezas permiten anticipar qué empleos podría sustituir.`\
-https://www.nytimes.com/es/2026/04/25/espanol/ia-inteligencia-irregular-jagged.html
-
-**New Taxes Cooled London’s Housing Market. Could That Happen in New York?**\
-`Economists and real estate agents are calling London’s taxation of wealthy property owners a cautionary tale for New York, where leaders have endorsed a second-home tax.`\
-https://www.nytimes.com/2026/04/25/nyregion/second-home-tax-london-ny.html
-
-**6 Podcasts About Classical Music**\
-`These shows demystify a genre unfairly perceived as archaic and stuffy with expert analysis, musical selections and pure fun.`\
-https://www.nytimes.com/2026/04/25/arts/podcasts-classical-music-beethoven.html
-
-**The Indelible Style of a Queen Off Duty**\
-`A new exhibition takes a closer look at Queen Elizabeth II’s wardrobe of boots, barn coats, head scarves and tartan skirts.`\
-https://www.nytimes.com/2026/04/25/style/queen-elizabeth-ii-exhibition-her-life-in-style.html
-
-**La manicurista de la alfombra roja**\
-`Tanto en hospitales como en eventos de celebridades, las personas con manicuras de Yulenny García, especialista en uñas del Bronx, llaman mucho la atención.`\
-https://www.nytimes.com/es/2026/04/25/espanol/manicurista-bronx-yulenny-garcia-marc-jacobs.html
 
