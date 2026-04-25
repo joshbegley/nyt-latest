@@ -1,3 +1,7 @@
+**Al Qaeda-Linked Militants Launch Major Attacks on Cities Across Mali**\
+`The armed group JNIM claimed to have seized two key cities and destroyed the defense minister’s residence in a coordinated offensive that experts said was a major escalation in yearslong hostilities.`\
+https://www.nytimes.com/2026/04/25/world/africa/mali-attacks-jnim-al-qaeda-bamako.html
+
 **Well-Suited**\
 `Everything fits in Rebecca Goldstein’s beautifully crafted puzzle.`\
 https://www.nytimes.com/2026/04/25/crosswords/daily-puzzle-2026-04-26.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/25/espanol/negocios/china-guerra-moneda-dolar
 **They Survived Torture. Why Is the Program That Helped Them Closing?**\
 `Some Bellevue Hospital officials feared having to disclose patients’ immigration status. They will get care elsewhere at the hospital, administrators say.`\
 https://www.nytimes.com/2026/04/25/nyregion/nyc-torture-survivors-hospital-program-closing.html
-
-**Trump to Dine With Reporters He’s Been Roasting All Week**\
-`President Trump has boycotted the White House Correspondents’ Association dinner in previous years.`\
-https://www.nytimes.com/2026/04/25/us/politics/trump-white-house-correspondents-dinner.html
 
