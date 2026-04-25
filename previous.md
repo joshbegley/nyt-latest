@@ -1,3 +1,7 @@
+**SiriusXM Said to Be in Early Talks to Acquire iHeartMedia**\
+`A deal, which was described by two people familiar with the discussions, would unite two major providers of traditional and satellite radio.`\
+https://www.nytimes.com/2026/04/24/business/media/siriusxm-iheart-radio.html
+
 **Rubio’s Absence From Iran Talks Highlights Stay-at-Home Role**\
 `President Trump has outsourced much of his diplomacy to others, while Mr. Rubio focuses on his second job as national security adviser.`\
 https://www.nytimes.com/2026/04/24/us/politics/marco-rubio-absence-iran-talks.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/24/us/costco-recall-heated-socks-burn.html
 **Justice Dept. Closes Criminal Investigation of Fed Chair**\
 `Also, the U.S. is sending top envoys to Pakistan for Iran peace talks. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/04/24/briefing/fed-investigation-us-iran-peace-talks.html
-
-**‘No Warnings’: How Israel’s Deadly Airstrikes Unfolded in Central Beirut**\
-`On April 8, just hours into a ceasefire agreement between the U.S. and Iran, the Israeli military carried out its most intense bombing campaign in Lebanon this year. The New York Times took a closer look at the deadly strikes in Beirut.`\
-https://www.nytimes.com/video/world/middleeast/100000010837758/no-warnings-how-israels-deadly-airstrikes-unfolded-in-central-beirut.html
 

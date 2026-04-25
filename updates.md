@@ -1,3 +1,7 @@
+**SiriusXM Said to Be in Early Talks to Acquire iHeartMedia**\
+`A deal, which was described by two people familiar with the discussions, would unite two major providers of traditional and satellite radio.`\
+https://www.nytimes.com/2026/04/24/business/media/siriusxm-iheart-radio.html
+
 **Rubio’s Absence From Iran Talks Highlights Stay-at-Home Role**\
 `President Trump has outsourced much of his diplomacy to others, while Mr. Rubio focuses on his second job as national security adviser.`\
 https://www.nytimes.com/2026/04/24/us/politics/marco-rubio-absence-iran-talks.html
