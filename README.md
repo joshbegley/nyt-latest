@@ -1,3 +1,7 @@
+**Rubio’s Absence From Iran Talks Highlights Stay-at-Home Role**\
+`President Trump has outsourced much of his diplomacy to others, while Mr. Rubio focuses on his second job as national security adviser.`\
+https://www.nytimes.com/2026/04/24/us/politics/marco-rubio-absence-iran-talks.html
+
 **One of Two Missing Florida Doctoral Students Is Found Dead, Officials Say**\
 `The University of South Florida students were reported missing last week. A roommate of the student whose body was found was charged in connection with his disappearance.`\
 https://www.nytimes.com/2026/04/24/us/usf-students-missing-body-found.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/24/briefing/fed-investigation-us-iran-peace-talk
 **‘No Warnings’: How Israel’s Deadly Airstrikes Unfolded in Central Beirut**\
 `On April 8, just hours into a ceasefire agreement between the U.S. and Iran, the Israeli military carried out its most intense bombing campaign in Lebanon this year. The New York Times took a closer look at the deadly strikes in Beirut.`\
 https://www.nytimes.com/video/world/middleeast/100000010837758/no-warnings-how-israels-deadly-airstrikes-unfolded-in-central-beirut.html
-
-**U.S. Unveils More Sanctions Targeting Iran’s Shadow Fleet**\
-`The Treasury Department also targeted a top independent Chinese refinery that it said was a major buyer of Iranian petroleum.`\
-https://www.nytimes.com/2026/04/24/world/middleeast/iran-sanctions-oil-tankers-shadow-fleet.html
 
