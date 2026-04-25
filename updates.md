@@ -1,3 +1,11 @@
+**Indigenous Speakers Are Booed During Commemorations of Australia’s War Dead**\
+`Dawn services for Anzac Day were disrupted in three cities. The hecklers seemed to be targeting a widespread Aboriginal custom meant to acknowledge the land’s original inhabitants.`\
+https://www.nytimes.com/2026/04/25/world/australia/anzac-day-indigenous-speakers-booed.html
+
+**What Trump Owes the World**\
+`Trump owes the world an agreement with Iran to curb its pursuit of a bomb.`\
+https://www.nytimes.com/2026/04/25/opinion/international-world/trump-iran-nuclear-weapons.html
+
 **Lionel Rosenblatt Dies at 82; Led Daring Rescue of Vietnamese Refugees**\
 `In an unsanctioned mission, the Foreign Service officer helped evacuate about 200 South Vietnamese citizens from Saigon days before the city fell in 1975.`\
 https://www.nytimes.com/2026/04/25/world/asia/lionel-rosenblatt-dead.html
