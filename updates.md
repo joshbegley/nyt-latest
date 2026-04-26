@@ -1,3 +1,7 @@
+**Social Media Captures Chaos and the Mundane After Shooting at Correspondents’ Dinner**\
+`Journalists and guests shared the surreal and confusing scenes from the White House Correspondents’ Association dinner after gunfire erupted on Saturday.`\
+https://www.nytimes.com/2026/04/26/us/politics/correspondents-dinner-shooting-social-media.html
+
 **For Oz Pearlman, a Press Gala Not Even He Could Have Predicted**\
 `The mentalist was the featured entertainer at the White House Correspondents’ dinner. He was in the middle of a trick when gunshots rang out.`\
 https://www.nytimes.com/2026/04/26/us/politics/oz-pearlman-dinner-shooting-trump.html
