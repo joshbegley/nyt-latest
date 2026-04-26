@@ -1,3 +1,7 @@
+**Trump Fires Board Members of Group That Oversees U.S. Science Funding**\
+`The dismissals from an independent board that oversees the National Science Foundation marked the president’s latest assault on scientific research organizations.`\
+https://www.nytimes.com/2026/04/25/us/politics/trump-fires-board-members-scientific-research-group.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/25/us/trump-correspondents-dinner-shooting/heres-the-latest
