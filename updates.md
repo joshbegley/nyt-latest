@@ -1,3 +1,7 @@
+**Running Gunman Was Tackled by Law Enforcement Near Security Checkpoint**\
+`The gunman did not make it inside the hotel ballroom where President Trump, top officials and hundreds of journalists had gathered for dinner.`\
+https://www.nytimes.com/2026/04/25/us/politics/suspect-correspondents-dinner-details.html
+
 ****\
 ``\
 https://www.nytimes.com/video/embedded/us/100000010863707/25vid-Trump-35558.html
