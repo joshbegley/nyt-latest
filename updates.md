@@ -1,3 +1,7 @@
+**A Shooting in Washington**\
+`We have the latest on the shooting at the White House correspondents’ dinner.`\
+https://www.nytimes.com/2026/04/26/briefing/a-shooting-in-washington.html
+
 **Meet the New Leader of the Free World**\
 `The world is looking to Volodymyr Zelensky for leadership.`\
 https://www.nytimes.com/2026/04/26/opinion/zelensky-ukraine-trump-nato-leader.html
