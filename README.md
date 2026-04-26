@@ -1,3 +1,11 @@
+**Running Gunman Was Tackled by Law Enforcement Near Security Checkpoint**\
+`The gunman did not make it inside the hotel ballroom where President Trump, top officials and hundreds of journalists had gathered for dinner.`\
+https://www.nytimes.com/2026/04/25/us/politics/shooter-correspondents-dinner-details.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/us/100000010863675/25vid-Trump-24135.html
+
 **Watch Live: Trump Speaks To Press After Reports of Shots Fired at Correspondents’ Dinner**\
 `President Trump gives a news conference after he was rushed from the stage after gunfire broke out in the hotel where the White House correspondents’ dinner was being held on Saturday night`\
 https://www.nytimes.com/video/us/100000010863616/white-house-dc-correspondents-dinner.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/25/technology/trump-memecoin-conference.html
 **One Police Officer Is Killed and Another Critically Wounded in Chicago Hospital Shooting**\
 `A 57-year-old officer was “fighting for his life,” after the shooting on Saturday at Endeavor Health Swedish Hospital, the police superintendent said. A suspect was in custody.`\
 https://www.nytimes.com/2026/04/25/us/chicago-police-shot-swedish-hospital.html
-
-**18-Year-Old Charged in Fatal Shooting of Teenager in Queens Park**\
-`Zahir Davis was arrested on Friday night in connection with the killing of Jaden Pierre, 15, who was shot in broad daylight during a fight in South Jamaica.`\
-https://www.nytimes.com/2026/04/25/nyregion/teen-charged-shooting-queens-nyc.html
-
-**Semyon Gluzman, 79, Dies; Doctor Dared to Criticize Soviet Psychiatry**\
-`He was imprisoned for calling attention to the practice of declaring dissidents mentally ill. He later led efforts to confront his field’s dark past.`\
-https://www.nytimes.com/2026/04/25/world/europe/semyon-gluzman-dead.html
 
