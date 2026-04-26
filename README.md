@@ -1,9 +1,13 @@
+**Again, a Gunman Got Perilously Close to Trump**\
+`After two previous assassination attempts, the effort by an armed man to storm the White House Correspondents’ Association dinner is sure to raise questions about security and political violence.`\
+https://www.nytimes.com/2026/04/26/us/politics/trump-gunman-security-violence.html
+
 **Confusion and Fright Inside the Washington Hilton Ballroom**\
 `A sense of danger spread like a wave among high-profile politicians and journalists as an emergency unfolded at the White House Correspondents’ Association dinner.`\
 https://www.nytimes.com/2026/04/26/business/media/white-house-correspondents-dinner-shooting.html
 
 **California Man in Custody After Shooting at Dinner Attended by Trump**\
-`Shots were fired at the hotel hosting the White House Correspondents Dinner. Authorities said the attack was carried out by a lone gunman who was brought down by Secret Service.`\
+`Shots were fired at the hotel hosting the White House correspondents’ dinner. Authorities said the attack was carried out by a lone gunman who was brought down by the Secret Service.`\
 https://www.nytimes.com/2026/04/26/us/politics/correspondents-dinner-shooting-suspect-california-man.html
 
 **In the Foothills of Mt. Fuji, the Fight Is On Against Unruly Tourists**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/25/us/politics/trump-fires-board-members-scienti
 **How the War in Iran Is Draining the U.S. of Critical Weapons**\
 `The United States has blown through weapons as the cost of the war in Iran has hit nearly $1 billion a day. Our national security correspondent Eric Schmitt explains how American costs may go beyond the financial.`\
 https://www.nytimes.com/video/us/politics/100000010857432/how-the-war-in-iran-is-draining-the-us-of-critical-weapons.html
-
-**Al Qaeda-Linked Militants Launch Major Attacks on Cities Across Mali**\
-`The armed group JNIM claimed to have seized two key cities and destroyed the defense minister’s residence in a coordinated offensive that experts said was a major escalation in yearslong hostilities.`\
-https://www.nytimes.com/2026/04/25/world/africa/mali-attacks-jnim-al-qaeda-bamako.html
 
