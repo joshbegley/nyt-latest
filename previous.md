@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/04/26/insider/how-to-be-more-cultured-t-mag.html
 https://www.nytimes.com/2026/04/26/crosswords/spelling-bee-forum.html
 
 **Trump Safe After Shooting at White House Correspondents’ Dinner**\
-`President Trump was at the White House Correspondents’ Association dinner at a Washington hotel when a gunman opened fire. He was unharmed.`\
+`President Trump was at the White House Correspondents’ Association dinner at a Washington hotel when gunfire broke out. Mr. Trump was unharmed.`\
 https://www.nytimes.com/video/us/100000010863729/trump-correspondents-dinner-shooting.html
 
 **Hay personas que son difíciles. Aquí cómo manejarlas**\

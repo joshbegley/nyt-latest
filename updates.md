@@ -1,3 +1,7 @@
+**Trump Safe After Shooting at White House Correspondents’ Dinner**\
+`President Trump was at the White House Correspondents’ Association dinner at a Washington hotel when gunfire broke out. Mr. Trump was unharmed.`\
+https://www.nytimes.com/video/us/100000010863729/trump-correspondents-dinner-shooting.html
+
 **Maps: Gunfire Near the White House Correspondents’ Dinner**\
 `A gunman was apprehended outside the ballroom at the Washington Hilton where President Trump was scheduled to speak.`\
 https://www.nytimes.com/interactive/2026/04/26/us/white-house-correspondents-hilton-shots.html
