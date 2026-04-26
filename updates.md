@@ -1,3 +1,7 @@
+**Trump Safe After Shooting at White House Correspondents’ Dinner**\
+`President Trump was at the White House Correspondents’ Association dinner at a Washington hotel when a gunman opened fire. He was unharmed.`\
+https://www.nytimes.com/video/us/100000010863729/trump-correspondents-dinner-shooting.html
+
 **Hay personas que son difíciles. Aquí cómo manejarlas**\
 `Estos seis libros pueden ayudar a aliviar tensiones.`\
 https://www.nytimes.com/es/2026/04/26/espanol/estilos-de-vida/lidiar-personas-dificiles.html
