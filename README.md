@@ -1,3 +1,19 @@
+**Map: 6.1-Magnitude Earthquake Shakes Northern Japan**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/04/26/world/quake-tracker-northern-japan.html
+
+**How a Trump Event Shooting Unfolded**\
+`The gunman had written a “manifesto,” the president said, before trying to enter a dinner in Washington for the White House press corps.`\
+https://www.nytimes.com/2026/04/26/world/trump-shooting-dinner-iran-talks.html
+
+**Rumors and Speculation Swirl Online After Shooting at Washington Dinner**\
+`Influencers jumped to fill the information void with conspiracy theories about the attack at the White House Correspondents’ dinner on Saturday.`\
+https://www.nytimes.com/2026/04/26/technology/white-house-correspondents-dinner-shooting-conspiracy-theories.html
+
+**Most Guests Ducked for Cover. This Man Munched on His Burrata Salad.**\
+`Michael Glantz, a top agent at Creative Artists Agency, calmly ate his appetizer during the commotion at the White House correspondents’ dinner. He had his reasons.`\
+https://www.nytimes.com/2026/04/26/us/politics/man-salad-white-house-correspondents-dinner.html
+
 **The Hotel Where Reagan Was Shot in 1981 Becomes a Crime Scene Again**\
 `The Washington Hilton was the site of an assassination attempt against the 40th president.`\
 https://www.nytimes.com/2026/04/26/us/politics/correspondents-dinner-shooting-washington-hilton-reagan.html
@@ -15,7 +31,7 @@ https://www.nytimes.com/2026/04/26/us/texas-storm-deaths-hail-wind-runaway-bay.h
 https://www.nytimes.com/video/us/politics/100000010863950/white-house-correspondents-dinner-trump-gunman.html
 
 **What to Know About U.S.-Iran Peace Talks**\
-`An Iranian negotiator returned to Pakistan on Sunday, despite the United States’ abruptly calling off a trip there by its two top negotiators.`\
+`An Iranian negotiator returned to Pakistan on Sunday, despite the United States abruptly calling off a trip there by its two top negotiators.`\
 https://www.nytimes.com/2026/04/26/world/middleeast/us-iran-peace-talks-pakistan.html
 
 **Family of Suspect in Colorado Attack Released After Months in Detention**\
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/26/us/politics/trump-white-house-ballroom-dinner
 **I’m in Quiche Mode**\
 `And, with these steps for composing the parts ahead of time, you can easily pull together a classic quiche Lorraine for breakfast, lunch or dinner.`\
 https://www.nytimes.com/2026/04/26/dining/im-in-quiche-mode.html
-
-**State Visit From British Royals Will Go Ahead After Washington Shooting**\
-`Buckingham Palace said the royal visit by King Charles III and Queen Camilla that was set to begin on Monday would proceed as planned.`\
-https://www.nytimes.com/2026/04/26/us/politics/washington-shooting-king-charles-camilla-us-visit.html
-
-**Iran and U.S. Sink Into Awkward Limbo of ‘No War, No Peace’**\
-`Each side is betting it can last longer than the other, analysts say. But there are risks in a stalemate without a deal.`\
-https://www.nytimes.com/2026/04/26/world/middleeast/iran-united-states-israel-war-truce.html
-
-**Gunman Appears to Have Targeted Administration Officials, Blanche Says**\
-`“We know there were some writings,” the acting attorney general told “Meet the Press.” He said the review of the evidence was still in its early stages.`\
-https://www.nytimes.com/2026/04/26/us/politics/gunman-shooting-motive-correspondents-dinner-trump.html
-
-**Puzzle Contest: Letters to the Editors**\
-`Solve all five puzzles for a chance to win.`\
-https://www.nytimes.com/2026/04/26/crosswords/letters-to-the-editors.html
 
