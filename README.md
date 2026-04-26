@@ -1,3 +1,7 @@
+**Muted Reaction as Oil and Stock Markets Reopen**\
+`Oil prices rose and stocks fell after President Trump called off a trip to Pakistan by two U.S. negotiators for peace talks with Iran.`\
+https://www.nytimes.com/2026/04/26/business/oil-stocks-gas-iran.html
+
 **Dinner, Interrupted: Over Brunch, Journalists Reflect on a Chaotic Night**\
 `Moving to a new venue, or the East Wing? Plans for the White House Correspondents’ Association dinner are fluid following Saturday’s shocking events.`\
 https://www.nytimes.com/2026/04/26/us/politics/white-house-correspondents-dinner-future.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/26/us/politics/correspondents-dinner-shooting-so
 **For Oz Pearlman, a Press Gala Not Even He Could Have Predicted**\
 `The mentalist was the featured entertainer at the White House Correspondents’ dinner. He was in the middle of a trick when gunshots rang out.`\
 https://www.nytimes.com/2026/04/26/us/politics/oz-pearlman-dinner-shooting-trump.html
-
-**White House Correspondents’ Dinner Is a Washington Institution**\
-`The dinner, a celebration of press freedom and the First Amendment, has been held annually for more than 50 years. It is both loved and loathed.`\
-https://www.nytimes.com/2026/04/26/us/politics/white-house-correspondents-dinner.html
 
