@@ -1,3 +1,7 @@
+**Watch Live: Trump Speaks To Press After Reports of Shots Fired at Correspondents’ Dinner**\
+`President Trump gives a news conference after he was rushed from the stage after gunfire broke out in the hotel where the White House correspondents’ dinner was being held on Saturday night`\
+https://www.nytimes.com/video/us/100000010863616/white-house-dc-correspondents-dinner.html
+
 **‘Joe Turner’s Come and Gone’ Review: August Wilson’s Spiritual Masterpiece**\
 `This revival starring Cedric the Entertainer and Taraji P. Henson may be uneven at times, but it still unlocks Wilson’s mysterious drama.`\
 https://www.nytimes.com/2026/04/25/theater/joe-turners-come-and-gone-review-henson-cedric.html
