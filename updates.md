@@ -1,3 +1,7 @@
+**The Tears at ‘Death of a Salesman’**\
+`Readers respond to an Opinion guest essay by Eric Alterman, about the power of the Arthur Miller play. Also: Patients and chatbots.`\
+https://www.nytimes.com/2026/04/26/opinion/death-of-a-salesman.html
+
 **A Shooting in Washington**\
 `We have the latest on the shooting at the White House correspondents’ dinner.`\
 https://www.nytimes.com/2026/04/26/briefing/a-shooting-in-washington.html
