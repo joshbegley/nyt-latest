@@ -1,3 +1,23 @@
+**The Artist Who Gives Me Joy**\
+`There’s more to Derrick Adams’s paintings than Black joy. But that complicated emotion is what tugs at the heart.`\
+https://www.nytimes.com/2026/04/26/opinion/culture/the-artist-derrick-adams-black.html
+
+**Is the Supreme Court Coming Apart at the Seams?**\
+`A revealing glimpse of the state of the Supreme Court, on the verge of momentous rulings in the weeks ahead.`\
+https://www.nytimes.com/2026/04/26/opinion/clarence-thomas-sonia-sotomayor-supreme-court.html
+
+**‘It Wasn’t Real, but It Was Real’**\
+`How ICE transformed a Chicago neighborhood.`\
+https://www.nytimes.com/2026/04/26/opinion/ice-raids-chicago-constitution.html
+
+**Ukraine Has Picked Up the Torch America Dropped**\
+`The world is looking to Volodymyr Zelensky for leadership.`\
+https://www.nytimes.com/2026/04/26/opinion/zelensky-ukraine-trump-nato-leader.html
+
+**World leaders condemn violence after gunfire at the White House correspondents’ dinner.**\
+`Mr. Trump’s`\
+https://www.nytimes.com/live/2026/04/26/us/trump-correspondents-dinner-shooting/world-leaders-condemn-violence-after-gunfire-at-the-white-house-correspondents-dinner
+
 **Islamabad Reopens After U.S.-Iran Talks Fail to Materialize**\
 `Officials had locked the city down, anticipating talks between U.S. and Iranian delegations. But they didn’t happen. “What did I close my business for?” one business owner asked.`\
 https://www.nytimes.com/2026/04/26/world/asia/islamabad-talks-iran-us.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/04/26/world/americas/colombia-cartel-illegal-gold-m
 **U.S. Sanctions Zigzag in New World of Economic Warfare**\
 `With oil prices in mind, the Trump administration has deployed a haphazard approach to sanctions on Russia and Iran.`\
 https://www.nytimes.com/2026/04/26/business/economy/us-iran-russia-oil-sanctions.html
-
-**The Podcast Where You Can Eavesdrop on the A.I. Elite**\
-`Dwarkesh Patel was a bored college sophomore looking for intellectual stimulation. Now he commands interviews with Jensen Huang and Mark Zuckerberg and holds his own with deeply nerdy A.I. researchers.`\
-https://www.nytimes.com/2026/04/26/business/dwarkesh-patel-podcast-ai.html
-
-**We Will Be Paying for the Iran War for a Very Long Time**\
-`The Iran conflict resembles others the United States has been involved in recently: easy to start and hard to end.`\
-https://www.nytimes.com/2026/04/26/opinion/iran-cost-united-states-iraq-ukraine.html
-
-**The Trump Administration Has Changed Almost Every Aspect of Food Stamps**\
-`Legislation and regulatory tweaks enacted over the past year have altered who is eligible, what recipients can buy and how much some receive in benefits, among other changes.`\
-https://www.nytimes.com/2026/04/26/us/trump-administration-food-stamps.html
-
-**How We Traced U.S. Government Gold to a Drug Cartel**\
-`Three reporters followed supply chains to reveal that the U.S. Mint buys gold that comes from foreign pawn shops and drug dealers, then claims it is from the United States.`\
-https://www.nytimes.com/2026/04/26/insider/gold-us-mint-drug-cartel.html
-
-**Skyrocketing Health Insurance Forces Americans to Scramble for Care**\
-`Older people who are medically high risk, but too young for Medicare are facing unaffordable health insurance premiums after federal health care credits lapsed earlier this year. Now that the grace period has expired, some Americans are struggling to get the care they need.`\
-https://www.nytimes.com/video/health/100000010851038/health-insurance-affordability.html
 

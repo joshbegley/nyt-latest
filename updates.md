@@ -1,3 +1,23 @@
+**The Artist Who Gives Me Joy**\
+`There’s more to Derrick Adams’s paintings than Black joy. But that complicated emotion is what tugs at the heart.`\
+https://www.nytimes.com/2026/04/26/opinion/culture/the-artist-derrick-adams-black.html
+
+**Is the Supreme Court Coming Apart at the Seams?**\
+`A revealing glimpse of the state of the Supreme Court, on the verge of momentous rulings in the weeks ahead.`\
+https://www.nytimes.com/2026/04/26/opinion/clarence-thomas-sonia-sotomayor-supreme-court.html
+
+**‘It Wasn’t Real, but It Was Real’**\
+`How ICE transformed a Chicago neighborhood.`\
+https://www.nytimes.com/2026/04/26/opinion/ice-raids-chicago-constitution.html
+
+**Ukraine Has Picked Up the Torch America Dropped**\
+`The world is looking to Volodymyr Zelensky for leadership.`\
+https://www.nytimes.com/2026/04/26/opinion/zelensky-ukraine-trump-nato-leader.html
+
+**World leaders condemn violence after gunfire at the White House correspondents’ dinner.**\
+`Mr. Trump’s`\
+https://www.nytimes.com/live/2026/04/26/us/trump-correspondents-dinner-shooting/world-leaders-condemn-violence-after-gunfire-at-the-white-house-correspondents-dinner
+
 **Islamabad Reopens After U.S.-Iran Talks Fail to Materialize**\
 `Officials had locked the city down, anticipating talks between U.S. and Iranian delegations. But they didn’t happen. “What did I close my business for?” one business owner asked.`\
 https://www.nytimes.com/2026/04/26/world/asia/islamabad-talks-iran-us.html
