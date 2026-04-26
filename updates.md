@@ -1,3 +1,11 @@
+**Washington Shooting Prompts Discussions About a State Visit from British Royals**\
+`Buckingham Palace said it was assessing how the shooting could affect a state visit from King Charles III and Queen Camilla that is set to begin Monday.`\
+https://www.nytimes.com/2026/04/26/us/politics/washington-shooting-king-charles-camilla-us-visit.html
+
+**Israel and Hezbollah Trade Strikes in Lebanon, as Iran Talks Remain on Hold**\
+`Cease-fires in Lebanon and Iran are on shaky ground, with military attacks flaring and direct talks between Washington and Tehran to end their war stalled.`\
+https://www.nytimes.com/2026/04/26/world/middleeast/iranian-negotiators-set-to-return-to-pakistan-to-try-to-revive-truce-talks.html
+
 **Iran and U.S. Sink Into Awkward Limbo of ‘No War, No Peace’**\
 `Each side is betting they can last longer than the other, analysts say. But there are risks in a stalemate without a deal.`\
 https://www.nytimes.com/2026/04/26/world/middleeast/iran-united-states-israel-war-truce.html
