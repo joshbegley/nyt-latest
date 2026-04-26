@@ -1,3 +1,11 @@
+**Federal authorities swarm the suspect’s home in an L.A. suburb.**\
+`It was not clear if the authorities had entered the home in Torrance, Calif., a white-collar city of about 150,000 people close to popular beaches.`\
+https://www.nytimes.com/live/2026/04/26/us/trump-correspondents-dinner-shooting/federal-authorities-swarm-the-suspects-home-in-an-la-suburb
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/26/us/trump-correspondents-dinner-shooting/heres-the-latest
+
 **Israel’s President, Putting Off Decision on Pardon for Netanyahu, Will Push for Plea Deal**\
 `President Isaac Herzog of Israel has decided not to issue a pardon to Prime Minister Benjamin Netanyahu in his corruption case at this time, and instead will seek mediation, officials say.`\
 https://www.nytimes.com/2026/04/26/world/middleeast/israel-netanyahu-pardon-herzog.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/26/style/elie-saab-lebanon-middle-east-war.html
 **He’s Written Great Books About Sex in Suburbia. This One’s a ‘Ghost Town.’**\
 `A middle-aged novelist sifts through memories of growing up in New Jersey in Tom Perrotta’s frustratingly formulaic book.`\
 https://www.nytimes.com/2026/04/26/books/review/tom-perrotta-ghost-town.html
-
-**The Chief of Chicago’s Science Museum Is Doing Some Experiments**\
-`Chevy Humphrey explains why the scientific method matters in business.`\
-https://www.nytimes.com/2026/04/26/business/chicago-science-museum-ceo-chevy-humphrey.html
-
-**The Hard Life of an Immigrant Whose Killing Became a Symbol for Trump**\
-`President Trump posted surveillance footage of Nilufa Easmin’s brutal killing by another immigrant to advance his agenda. Behind the rhetoric was a more nuanced story.`\
-https://www.nytimes.com/2026/04/26/us/the-hard-life-of-an-immigrant-whose-killing-became-a-symbol-for-trump.html
 

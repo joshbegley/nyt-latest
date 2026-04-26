@@ -1,3 +1,11 @@
+**Federal authorities swarm the suspect’s home in an L.A. suburb.**\
+`It was not clear if the authorities had entered the home in Torrance, Calif., a white-collar city of about 150,000 people close to popular beaches.`\
+https://www.nytimes.com/live/2026/04/26/us/trump-correspondents-dinner-shooting/federal-authorities-swarm-the-suspects-home-in-an-la-suburb
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/26/us/trump-correspondents-dinner-shooting/heres-the-latest
+
 **Israel’s President, Putting Off Decision on Pardon for Netanyahu, Will Push for Plea Deal**\
 `President Isaac Herzog of Israel has decided not to issue a pardon to Prime Minister Benjamin Netanyahu in his corruption case at this time, and instead will seek mediation, officials say.`\
 https://www.nytimes.com/2026/04/26/world/middleeast/israel-netanyahu-pardon-herzog.html
