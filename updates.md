@@ -1,3 +1,15 @@
+**What Our Reporter Saw During the D.C. Shooting**\
+`Our reporter was with President Trump at the White House correspondents’ dinner when a gunman breached security. He describes the frantic scenes that unfolded.`\
+https://www.nytimes.com/video/us/politics/100000010863950/white-house-correspondents-dinner-trump-gunman.html
+
+**What to Know About U.S.-Iran Peace Talks**\
+`An Iranian negotiator returned to Pakistan on Sunday, despite the United States’ abruptly calling off a trip there by its two top negotiators.`\
+https://www.nytimes.com/2026/04/26/world/middleeast/us-iran-peace-talks-pakistan.html
+
+**Family of Suspect in Colorado Attack Released After Months in Detention**\
+`Two days after their release, the mother and her five children were again detained during an ICE check-in. A judge halted their removal and returned the family home.`\
+https://www.nytimes.com/2026/04/26/us/family-ice-detention-released-dilley-texas.html
+
 **Trump habla sobre su estado mental después de una noche de caos**\
 `La respuesta del presidente de Estados Unidos a la noche del sábado fue extraordinariamente serena para alguien que ha sobrevivido a dos intentos de asesinato.`\
 https://www.nytimes.com/es/2026/04/26/espanol/estados-unidos/trump-tiroteo-cena-corresponsales-casa-blanca.html
