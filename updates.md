@@ -1,3 +1,7 @@
+**Trump habla sobre su estado mental después de una noche de caos**\
+`La respuesta del presidente de Estados Unidos a la noche del sábado fue extraordinariamente serena para alguien que ha sobrevivido a dos intentos de asesinato.`\
+https://www.nytimes.com/es/2026/04/26/espanol/estados-unidos/trump-tiroteo-cena-corresponsales-casa-blanca.html
+
 **Social Media Captures Chaos and the Mundane After Shooting at Correspondents’ Dinner**\
 `Journalists and guests shared the surreal and confusing scenes from the White House Correspondents’ Association dinner after gunfire erupted on Saturday.`\
 https://www.nytimes.com/2026/04/26/us/politics/correspondents-dinner-shooting-social-media.html
