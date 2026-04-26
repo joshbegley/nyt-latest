@@ -1,3 +1,7 @@
+**‘Shots Fired!’: Inside the Pandemonium at the Washington Hilton**\
+`Guests dived to the floor and took cover as Secret Service agents climbed over tables to protect some of the country’s most high-ranking officials, including President Trump.`\
+https://www.nytimes.com/2026/04/26/us/politics/shots-fired-inside-the-pandemonium-at-the-washington-hilton.html
+
 **Map: 6.1-Magnitude Earthquake Shakes Northern Japan**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/04/26/world/quake-tracker-northern-japan.html

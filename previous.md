@@ -1,3 +1,7 @@
+**‘Shots Fired!’: Inside the Pandemonium at the Washington Hilton**\
+`Guests dived to the floor and took cover as Secret Service agents climbed over tables to protect some of the country’s most high-ranking officials, including President Trump.`\
+https://www.nytimes.com/2026/04/26/us/politics/shots-fired-inside-the-pandemonium-at-the-washington-hilton.html
+
 **Map: 6.1-Magnitude Earthquake Shakes Northern Japan**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/04/26/world/quake-tracker-northern-japan.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/26/espanol/estados-unidos/trump-tiroteo-cena-
 **After Security Scare, Trump Demands Approval for His White House Ballroom**\
 `An incident involving an armed man at the White House correspondents’ dinner has the president to renewing his push for a project slowed by litigation.`\
 https://www.nytimes.com/2026/04/26/us/politics/trump-white-house-ballroom-dinner-shooting.html
-
-**I’m in Quiche Mode**\
-`And, with these steps for composing the parts ahead of time, you can easily pull together a classic quiche Lorraine for breakfast, lunch or dinner.`\
-https://www.nytimes.com/2026/04/26/dining/im-in-quiche-mode.html
 
