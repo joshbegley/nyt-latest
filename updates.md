@@ -1,3 +1,11 @@
+**I’m in Quiche Mode**\
+`And, with these steps for composing the parts ahead of time, you can easily pull together a classic quiche Lorraine for breakfast, lunch or dinner.`\
+https://www.nytimes.com/2026/04/26/dining/im-in-quiche-mode.html
+
+**Iran and U.S. Sink Into Awkward Limbo of ‘No War, No Peace’**\
+`Each side is betting it can last longer than the other, analysts say. But there are risks in a stalemate without a deal.`\
+https://www.nytimes.com/2026/04/26/world/middleeast/iran-united-states-israel-war-truce.html
+
 **Washington Shooting Prompts Discussions About a State Visit from British Royals**\
 `Buckingham Palace said it was assessing how the shooting could affect a state visit from King Charles III and Queen Camilla that is set to begin Monday.`\
 https://www.nytimes.com/2026/04/26/us/politics/washington-shooting-king-charles-camilla-us-visit.html
