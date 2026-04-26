@@ -1,3 +1,7 @@
+**Trump Cancels Aides’ Trip for Iran Talks: ‘We Have All the Cards’**\
+`The last-minute scuttling of the trip to Pakistan was the latest sign of how far apart the two sides are on reaching a deal to end the Iran war.`\
+https://www.nytimes.com/2026/04/25/world/middleeast/trump-witkoff-kushner-pakistan-trip-canceled.html
+
 **How the War in Iran Is Draining the U.S. of Critical Weapons**\
 `The United States has blown through weapons as the cost of the war in Iran has hit nearly $1 billion a day. Our national security correspondent Eric Schmitt explains how American costs may go beyond the financial.`\
 https://www.nytimes.com/video/us/politics/100000010857432/how-the-war-in-iran-is-draining-the-us-of-critical-weapons.html
