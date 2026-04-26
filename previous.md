@@ -1,3 +1,7 @@
+**Powerful Storm Sweeps Across Texas and Kills 2, Displacing Dozens**\
+`Thousands remain without power as extensive damage occurred across two counties northwest of Fort Worth.`\
+https://www.nytimes.com/2026/04/26/us/texas-storm-deaths-hail-wind-runaway-bay.html
+
 **What Our Reporter Saw During the D.C. Shooting**\
 `Our reporter was with President Trump at the White House correspondents’ dinner when a gunman breached security. He describes the frantic scenes that unfolded.`\
 https://www.nytimes.com/video/us/politics/100000010863950/white-house-correspondents-dinner-trump-gunman.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/26/business/economy/tillis-federal-reserve-nomin
 **The Tears at ‘Death of a Salesman’**\
 `Readers respond to an Opinion guest essay by Eric Alterman, about the power of the Arthur Miller play. Also: Patients and chatbots.`\
 https://www.nytimes.com/2026/04/26/opinion/death-of-a-salesman.html
-
-**A Shooting in Washington**\
-`We have the latest on the shooting at the White House correspondents’ dinner.`\
-https://www.nytimes.com/2026/04/26/briefing/a-shooting-in-washington.html
 
