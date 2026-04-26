@@ -1,5 +1,9 @@
 ****\
 ``\
+https://www.nytimes.com/video/embedded/us/100000010863707/25vid-Trump-35558.html
+
+****\
+``\
 https://www.nytimes.com/video/embedded/us/100000010863698/25vid-Trump-35431.html
 
 **Running Gunman Was Tackled by Law Enforcement Near Security Checkpoint**\
