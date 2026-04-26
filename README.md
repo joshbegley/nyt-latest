@@ -1,6 +1,10 @@
+**What Our Reporter Saw During the D.C. Shooting**\
+`Our reporter was with President Trump at the White House correspondents’ dinner when a gunman breached security. He describes the frantic scenes that unfolded.`\
+https://www.nytimes.com/video/us/politics/100000010863950/white-house-correspondents-dinner-trump-gunman.html
+
 **What to Know About U.S.-Iran Peace Talks**\
 `An Iranian negotiator returned to Pakistan on Sunday, despite the United States’ abruptly calling off a trip there by its two top negotiators.`\
-https://www.nytimes.com/2026/04/26/world/middleeast/what-to-know-about-us-iran-peace-talks.html
+https://www.nytimes.com/2026/04/26/world/middleeast/us-iran-peace-talks-pakistan.html
 
 **Family of Suspect in Colorado Attack Released After Months in Detention**\
 `Two days after their release, the mother and her five children were again detained during an ICE check-in. A judge halted their removal and returned the family home.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/26/opinion/death-of-a-salesman.html
 **A Shooting in Washington**\
 `We have the latest on the shooting at the White House correspondents’ dinner.`\
 https://www.nytimes.com/2026/04/26/briefing/a-shooting-in-washington.html
-
-**The Artist Who Gives Me Joy**\
-`There’s more to Derrick Adams’s paintings than Black joy. But that complicated emotion is what tugs at the heart.`\
-https://www.nytimes.com/2026/04/26/opinion/culture/the-artist-derrick-adams-black.html
 
