@@ -1,3 +1,7 @@
+**A Shooting in Washington**\
+`We have the latest on the shooting at the White House correspondents’ dinner.`\
+https://www.nytimes.com/2026/04/26/briefing/a-shooting-in-washington.html
+
 **The Artist Who Gives Me Joy**\
 `There’s more to Derrick Adams’s paintings than Black joy. But that complicated emotion is what tugs at the heart.`\
 https://www.nytimes.com/2026/04/26/opinion/culture/the-artist-derrick-adams-black.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/26/espanol/america-latina/la-mandinga-la-mina
 **See What Happened After We Found a Cartel Mine on a Military Base**\
 `Officers denied that an illegal, large-scale gold operation was underway within earshot of their posts. But we had seen it with our own eyes.`\
 https://www.nytimes.com/2026/04/26/world/americas/colombia-cartel-illegal-gold-mining-military-base.html
-
-**U.S. Sanctions Zigzag in New World of Economic Warfare**\
-`With oil prices in mind, the Trump administration has deployed a haphazard approach to sanctions on Russia and Iran.`\
-https://www.nytimes.com/2026/04/26/business/economy/us-iran-russia-oil-sanctions.html
 
