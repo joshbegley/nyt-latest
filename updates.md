@@ -1,3 +1,7 @@
+**Tillis Prepared to Advance Nominee for Fed Chair**\
+`Senator Thom Tillis said he had received assurances from federal prosecutors that eased his concerns, setting the stage for a key committee vote on Kevin Warsh.`\
+https://www.nytimes.com/2026/04/26/business/economy/tillis-federal-reserve-nomination.html
+
 **The Tears at ‘Death of a Salesman’**\
 `Readers respond to an Opinion guest essay by Eric Alterman, about the power of the Arthur Miller play. Also: Patients and chatbots.`\
 https://www.nytimes.com/2026/04/26/opinion/death-of-a-salesman.html
