@@ -1,3 +1,7 @@
+**Can an A.I. Company Ever Be Good?**\
+`The short answer: not really. The long answer: maybe with a little help.`\
+https://www.nytimes.com/2026/04/26/opinion/ai-company-good-altruism.html
+
 **Again, a Gunman Got Perilously Close to Trump**\
 `After two previous assassination attempts, the effort by an armed man to storm the White House Correspondents’ Association dinner is sure to raise questions about security and political violence.`\
 https://www.nytimes.com/2026/04/26/us/politics/trump-gunman-security-violence.html
