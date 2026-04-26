@@ -3,7 +3,7 @@
 https://www.nytimes.com/live/2026/04/25/us/trump-correspondents-dinner-shooting/heres-the-latest
 
 **Trump Fires Board Members of Group That Oversees U.S. Science Funding**\
-`The dismissals from the National Science Foundation marked the president’s latest assault on scientific research organizations.`\
+`The dismissals from an independent board that oversees the National Science Foundation marked the president’s latest assault on scientific research organizations.`\
 https://www.nytimes.com/2026/04/25/us/politics/trump-fires-board-members-scientific-research-group.html
 
 **How the War in Iran Is Draining the U.S. of Critical Weapons**\

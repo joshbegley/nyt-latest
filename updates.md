@@ -1,5 +1,9 @@
 **Here’s the latest.**\
 ``\
+https://www.nytimes.com/live/2026/04/25/us/trump-correspondents-dinner-shooting/heres-the-latest
+
+**Here’s the latest.**\
+``\
 https://www.nytimes.com/live/2026/04/25/us/trump-whca-shooting/heres-the-latest
 
 **Trump Fires Board Members of Group That Oversees U.S. Science Funding**\
