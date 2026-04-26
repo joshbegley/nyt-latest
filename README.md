@@ -1,3 +1,15 @@
+**Hay personas que son difíciles. Aquí cómo manejarlas**\
+`Estos seis libros pueden ayudar a aliviar tensiones.`\
+https://www.nytimes.com/es/2026/04/26/espanol/estilos-de-vida/lidiar-personas-dificiles.html
+
+**Las tarifas de equipaje subieron. Aquí cómo evitarlas**\
+`Los pasajeros enfrentan tarifas más altas mientras la guerra con Irán eleva el precio del combustible de aviación. Los programas de viajero frecuente y ciertas tarjetas de crédito pueden ayudar a evitar estos cargos.`\
+https://www.nytimes.com/es/2026/04/26/espanol/estilos-de-vida/evitar-tarifas-equipaje-caras.html
+
+**‘I’m Not a Basket Case’: Trump Describes His Mind-Set After an Evening of Chaos**\
+`Very little was clear about what had happened at the Washington Hilton on Saturday night. But the president wanted to talk about it.`\
+https://www.nytimes.com/2026/04/26/us/politics/trump-shooting-gunman-correspondents-dinner.html
+
 **Can an A.I. Company Ever Be Good?**\
 `The short answer: not really. The long answer: maybe with a little help.`\
 https://www.nytimes.com/2026/04/26/opinion/ai-company-good-altruism.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/video/embedded/us/100000010863675/25vid-Trump-24135.html
 **Watch Live: Trump Speaks To Press After Reports of Shots Fired at Correspondents’ Dinner**\
 `President Trump gives a news conference after he was rushed from the stage after gunfire broke out in the hotel where the White House correspondents’ dinner was being held on Saturday night`\
 https://www.nytimes.com/video/us/100000010863616/white-house-dc-correspondents-dinner.html
-
-**‘Joe Turner’s Come and Gone’ Review: August Wilson’s Spiritual Masterpiece**\
-`This revival starring Cedric the Entertainer and Taraji P. Henson may be uneven at times, but it still unlocks Wilson’s mysterious drama.`\
-https://www.nytimes.com/2026/04/25/theater/joe-turners-come-and-gone-review-henson-cedric.html
-
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/04/25/us/trump-correspondents-dinner-shooting/heres-the-latest
-
-**Trump Fires Board Members of Group That Oversees U.S. Science Funding**\
-`The dismissals from an independent board that oversees the National Science Foundation marked the president’s latest assault on scientific research organizations.`\
-https://www.nytimes.com/2026/04/25/us/politics/trump-fires-board-members-scientific-research-group.html
 
