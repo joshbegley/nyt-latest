@@ -42,7 +42,7 @@ https://www.nytimes.com/es/2026/04/26/espanol/estilos-de-vida/evitar-tarifas-equ
 `Very little was clear about what had happened at the Washington Hilton on Saturday night. But the president wanted to talk about it.`\
 https://www.nytimes.com/2026/04/26/us/politics/trump-shooting-gunman-correspondents-dinner.html
 
-**Can an A.I. Company Ever Be Good?**\
+**This Is How We Get Moral A.I. Companies**\
 `The short answer: not really. The long answer: maybe with a little help.`\
 https://www.nytimes.com/2026/04/26/opinion/ai-company-good-altruism.html
 
