@@ -1,3 +1,7 @@
+**Muted Reaction as Oil and Stock Markets Reopen**\
+`Oil prices rose and stocks fell after President Trump called off a trip to Pakistan by two U.S. negotiators for peace talks with Iran.`\
+https://www.nytimes.com/2026/04/26/business/oil-stocks-gas-iran.html
+
 **Dinner, Interrupted: Over Brunch, Journalists Reflect on a Chaotic Night**\
 `Moving to a new venue, or the East Wing? Plans for the White House Correspondents’ Association dinner are fluid following Saturday’s shocking events.`\
 https://www.nytimes.com/2026/04/26/us/politics/white-house-correspondents-dinner-future.html
