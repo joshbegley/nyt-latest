@@ -66,8 +66,8 @@ https://www.nytimes.com/2026/04/25/world/europe/semyon-gluzman-dead.html
 `In a conversation with the feminist writer Betty Friedan, she planted the seed that became the National Organization for Women.`\
 https://www.nytimes.com/2026/04/25/us/politics/sonia-pressman-fuentes-dead.html
 
-**Trump Cancels Aides’ Trip for Iran Talks, Saying, ‘We Have All the Cards.’**\
-`The last-minute scuttling of the trip is the latest sign of how far apart the two sides are on reaching a deal to end the Iran war.`\
+**Trump Cancels Aides’ Trip for Iran Talks: ‘We Have All the Cards’**\
+`The last-minute scuttling of the trip to Pakistan was the latest sign of how far apart the two sides are on reaching a deal to end the Iran war.`\
 https://www.nytimes.com/2026/04/25/world/middleeast/trump-witkoff-kushner-pakistan-trip-canceled.html
 
 **Every Black Republican Is Leaving the House, Erasing Diversity Gains**\
