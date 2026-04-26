@@ -1,3 +1,27 @@
+**Islamabad Reopens After U.S.-Iran Talks Fail to Materialize**\
+`Officials had locked the city down, anticipating talks between U.S. and Iranian delegations. But they didn’t happen. “What did I close my business for?” one business owner asked.`\
+https://www.nytimes.com/2026/04/26/world/asia/islamabad-talks-iran-us.html
+
+**Iranian Negotiators Set to Return to Pakistan to Try to Revive Truce Talks**\
+`It was not clear whether President Trump would send his negotiators for a new round of discussions after abruptly calling off a trip by his top advisers on Saturday.`\
+https://www.nytimes.com/2026/04/26/world/middleeast/iranian-negotiators-set-to-return-to-pakistan-to-try-to-revive-truce-talks.html
+
+**Daniel Radcliffe, Mariska Hargitay and the Happiest List on Earth**\
+`How the show “Every Brilliant Thing” has spread joy and relief around the world.`\
+https://www.nytimes.com/2026/04/26/podcasts/the-daily/daniel-radcliffe-mariska-hargitay-and-the-happiest-list-on-earth.html
+
+**Wordle Review No. 1,773**\
+`Scroll down for hints and conversation about the puzzle for Monday, April 27, 2026.`\
+https://www.nytimes.com/2026/04/26/crosswords/wordle-review-1773.html
+
+**Strands Sidekick No. 785**\
+`Scroll down for hints and conversation about the puzzle for Monday, April 27, 2026.`\
+https://www.nytimes.com/2026/04/26/crosswords/strands-sidekick-785.html
+
+**Connections Companion No. 1,051**\
+`Scroll down for hints and conversation about the puzzle for Monday, April 27, 2026`\
+https://www.nytimes.com/2026/04/26/crosswords/connections-companion-1051.html
+
 **Federal authorities swarm the suspect’s home in an L.A. suburb.**\
 `It was not clear if the authorities had entered the home in Torrance, Calif., a white-collar city of about 150,000 people close to popular beaches.`\
 https://www.nytimes.com/live/2026/04/26/us/trump-correspondents-dinner-shooting/federal-authorities-swarm-the-suspects-home-in-an-la-suburb
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/04/26/insider/gold-us-mint-drug-cartel.html
 **Skyrocketing Health Insurance Forces Americans to Scramble for Care**\
 `Older people who are medically high risk, but too young for Medicare are facing unaffordable health insurance premiums after federal health care credits lapsed earlier this year. Now that the grace period has expired, some Americans are struggling to get the care they need.`\
 https://www.nytimes.com/video/health/100000010851038/health-insurance-affordability.html
-
-**New Historical Fiction, Lush and Lavishly Detailed**\
-`Our columnist on the month’s best new books.`\
-https://www.nytimes.com/2026/04/26/books/review/new-historical-fiction-books.html
-
-**‘I Moved Away, Yet She Continued to Call on My Birthday Every Year’**\
-`A Manhattan friendship endures, a clown to the rescue and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://www.nytimes.com/2026/04/26/nyregion/metropolitan-diary.html
-
-**How Drug Cartel Gold Ends Up at the U.S. Mint**\
-`The U.S. Mint is legally required to sell only legal, domestic gold. Instead, it is the last link in a chain that launders foreign gold for an insatiable market. Our reporter Justin Scheck traced one such supply chain: from an illegal mine in Colombia all the way to the Mint’s facilities in West Point, N.Y.`\
-https://www.nytimes.com/video/world/americas/100000010806725/how-drug-cartel-gold-ends-up-at-the-us-mint.html
-
-**These Couples Wanted to Have Children. Rising Costs Are Stopping Them.**\
-`High mortgage payments, higher child care costs and economic uncertainty are making some people rethink their plans on starting a family.`\
-https://www.nytimes.com/2026/04/26/business/children-rising-costs.html
-
-**Why Elie Saab Will Never Leave Lebanon, Despite the War**\
-`The designer and his son discuss making couture during a bombing and the reason it matters.`\
-https://www.nytimes.com/2026/04/26/style/elie-saab-lebanon-middle-east-war.html
-
-**He’s Written Great Books About Sex in Suburbia. This One’s a ‘Ghost Town.’**\
-`A middle-aged novelist sifts through memories of growing up in New Jersey in Tom Perrotta’s frustratingly formulaic book.`\
-https://www.nytimes.com/2026/04/26/books/review/tom-perrotta-ghost-town.html
 
