@@ -1,3 +1,7 @@
+**Review: Yunchan Lim Warms Up for Graduation at Carnegie Hall**\
+`This 22-year-old superstar pianist, who is still a student, tested out his graduation recital in New York before taking it to school in Boston.`\
+https://www.nytimes.com/2026/04/26/arts/music/yunchan-lim-carnegie-hall-review.html
+
 **Trump Praises Journalist After Shooting at Media Dinner**\
 `Weijia Jiang, a CBS correspondent, had been sitting next to the president at the White House Correspondents’ Association dinner when shots rang out. Soon afterward, she was reporting on the attack.`\
 https://www.nytimes.com/2026/04/26/us/politics/weijia-jiang-cbs-whca-shooting-trump.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/26/world/middleeast/iranian-negotiators-set-to-r
 **Daniel Radcliffe, Mariska Hargitay and the Happiest List on Earth**\
 `How the show “Every Brilliant Thing” has spread joy and relief around the world.`\
 https://www.nytimes.com/2026/04/26/podcasts/the-daily/daniel-radcliffe-mariska-hargitay-and-the-happiest-list-on-earth.html
-
-**Wordle Review No. 1,773**\
-`Scroll down for hints and conversation about the puzzle for Monday, April 27, 2026.`\
-https://www.nytimes.com/2026/04/26/crosswords/wordle-review-1773.html
 
