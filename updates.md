@@ -1,3 +1,11 @@
+**Former Israeli Premiers Join in Bid to Oust Netanyahu in Elections**\
+`Naftali Bennett, a right-wing politician, and Yair Lapid, a centrist, will merge parties for a vote later this year.`\
+https://www.nytimes.com/2026/04/26/world/middleeast/israel-netanyahu-lapid-bennett.html
+
+**State Visit From British Royals Will Go Ahead After Washington Shooting**\
+`Buckingham Palace said the royal visit by King Charles III and Queen Camilla that was set to begin on Monday would proceed as planned.`\
+https://www.nytimes.com/2026/04/26/us/politics/washington-shooting-king-charles-camilla-us-visit.html
+
 **The Hotel Where Reagan Was Shot in 1981 Becomes a Crime Scene Again**\
 `The Washington Hilton was the site of an assassination attempt against the 40th president.`\
 https://www.nytimes.com/2026/04/26/us/politics/correspondents-dinner-shooting-washington-hilton-reagan.html

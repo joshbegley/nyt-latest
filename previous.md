@@ -2,7 +2,7 @@
 `The Washington Hilton was the site of an assassination attempt against the 40th president.`\
 https://www.nytimes.com/2026/04/26/us/politics/correspondents-dinner-shooting-washington-hilton-reagan.html
 
-**Former Israeli Premiers Join in Bid to Oust Netanyahu inElections**\
+**Former Israeli Premiers Join in Bid to Oust Netanyahu in Elections**\
 `Naftali Bennett, a right-wing politician, and Yair Lapid, a centrist, will merge parties for a vote later this year.`\
 https://www.nytimes.com/2026/04/26/world/middleeast/israel-netanyahu-lapid-bennett.html
 
@@ -62,8 +62,8 @@ https://www.nytimes.com/2026/04/26/us/politics/trump-white-house-ballroom-dinner
 `And, with these steps for composing the parts ahead of time, you can easily pull together a classic quiche Lorraine for breakfast, lunch or dinner.`\
 https://www.nytimes.com/2026/04/26/dining/im-in-quiche-mode.html
 
-**Washington Shooting Prompts Discussions About a State Visit from British Royals**\
-`Buckingham Palace said it was assessing how the shooting could affect a state visit from King Charles III and Queen Camilla that is set to begin Monday.`\
+**State Visit From British Royals Will Go Ahead After Washington Shooting**\
+`Buckingham Palace said the royal visit by King Charles III and Queen Camilla that was set to begin on Monday would proceed as planned.`\
 https://www.nytimes.com/2026/04/26/us/politics/washington-shooting-king-charles-camilla-us-visit.html
 
 **Iran and U.S. Sink Into Awkward Limbo of ‘No War, No Peace’**\
