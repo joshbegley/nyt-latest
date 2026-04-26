@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/25/us/trump-whca-shooting/heres-the-latest
+
+**Trump Fires Board Members of Group That Oversees U.S. Science Funding**\
+`The dismissals from the National Science Foundation marked the president’s latest assault on scientific research organizations.`\
+https://www.nytimes.com/2026/04/25/us/politics/trump-fires-board-members-scientific-research-group.html
+
 **How the War in Iran Is Draining the U.S. of Critical Weapons**\
 `The United States has blown through weapons as the cost of the war in Iran has hit nearly $1 billion a day. Our national security correspondent Eric Schmitt explains how American costs may go beyond the financial.`\
 https://www.nytimes.com/video/us/politics/100000010857432/how-the-war-in-iran-is-draining-the-us-of-critical-weapons.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/25/us/politics/sonia-pressman-fuentes-dead.html
 **Trump Cancels Aides’ Trip for Iran Talks: ‘We Have All the Cards’**\
 `The last-minute scuttling of the trip to Pakistan was the latest sign of how far apart the two sides are on reaching a deal to end the Iran war.`\
 https://www.nytimes.com/2026/04/25/world/middleeast/trump-witkoff-kushner-pakistan-trip-canceled.html
-
-**Every Black Republican Is Leaving the House, Erasing Diversity Gains**\
-`All four Black House Republicans are retiring after this year, a reflection of the striking and persistent lack of diversity in the G.O.P. ranks of Congress.`\
-https://www.nytimes.com/2026/04/25/us/house-black-republicans-congress-diversity.html
-
-**La guerra y las sanciones aceleran el impulso monetario chino**\
-`El intento de China de construir un sistema financiero basado en el renminbi, fuera del alcance del dólar estadounidense, está ganando adeptos como forma de eludir las sanciones.`\
-https://www.nytimes.com/es/2026/04/25/espanol/negocios/china-guerra-moneda-dolar.html
 
