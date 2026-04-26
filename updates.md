@@ -1,3 +1,11 @@
+**Security at Correspondents’ Dinner Worked as Intended, Experts Say**\
+`Officials pointed to the fact that the suspect never made it into the hotel ballroom, where President Trump and hundreds of journalists were gathered for the White House correspondents’ dinner.`\
+https://www.nytimes.com/2026/04/26/us/politics/security-correspondents-dinner.html
+
+**‘Peanuts’ or ‘Pickles’**\
+`Ease into your solving week with a Neville Fogarty puzzle that’s very relaxing.`\
+https://www.nytimes.com/2026/04/26/crosswords/daily-puzzle-2026-04-27.html
+
 **‘Shots Fired!’: Inside the Pandemonium at the Washington Hilton**\
 `Guests dived to the floor and took cover as Secret Service agents climbed over tables to protect some of the country’s most high-ranking officials, including President Trump.`\
 https://www.nytimes.com/2026/04/26/us/politics/shots-fired-inside-the-pandemonium-at-the-washington-hilton.html

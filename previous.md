@@ -1,3 +1,11 @@
+**Security at Correspondents’ Dinner Worked as Intended, Experts Say**\
+`Officials pointed to the fact that the suspect never made it into the hotel ballroom, where President Trump and hundreds of journalists were gathered for the White House correspondents’ dinner.`\
+https://www.nytimes.com/2026/04/26/us/politics/security-correspondents-dinner.html
+
+**‘Peanuts’ or ‘Pickles’**\
+`Ease into your solving week with a Neville Fogarty puzzle that’s very relaxing.`\
+https://www.nytimes.com/2026/04/26/crosswords/daily-puzzle-2026-04-27.html
+
 **‘Shots Fired!’: Inside the Pandemonium at the Washington Hilton**\
 `Guests dived to the floor and took cover as Secret Service agents climbed over tables to protect some of the country’s most high-ranking officials, including President Trump.`\
 https://www.nytimes.com/2026/04/26/us/politics/shots-fired-inside-the-pandemonium-at-the-washington-hilton.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/26/arts/music/yunchan-lim-carnegie-hall-review.h
 **Trump Praises Journalist After Shooting at Media Dinner**\
 `Weijia Jiang, a CBS correspondent, had been sitting next to the president at the White House Correspondents’ Association dinner when shots rang out. Soon afterward, she was reporting on the attack.`\
 https://www.nytimes.com/2026/04/26/us/politics/weijia-jiang-cbs-whca-shooting-trump.html
-
-**Tiroteo en la cena de corresponsales de la Casa Blanca: esto es lo que sabemos**\
-`Un hombre que portaba varias armas intentó irrumpir en la cena a la que asistía el presidente Trump. La policía detuvo a un sospechoso.`\
-https://www.nytimes.com/es/2026/04/26/espanol/estados-unidos/trump-tiroteo-cena-corresponsales.html
-
-**After Security Scare, Trump Demands Approval for His White House Ballroom**\
-`An incident involving an armed man at the White House correspondents’ dinner has the president to renewing his push for a project slowed by litigation.`\
-https://www.nytimes.com/2026/04/26/us/politics/trump-white-house-ballroom-dinner-shooting.html
 
