@@ -1,3 +1,7 @@
+**Dinner, Interrupted: Over Brunch, Journalists Reflect on a Chaotic Night**\
+`Moving to a new venue, or the East Wing? Plans for the White House Correspondents’ Association dinner are fluid following Saturday’s shocking events.`\
+https://www.nytimes.com/2026/04/26/us/politics/white-house-correspondents-dinner-future.html
+
 **Officials Investigating Writing Tied to Correspondents’ Dinner Attack**\
 `A man being held in connection with the attack wrote a note indicating potential targets and grievances, authorities say.`\
 https://www.nytimes.com/2026/04/26/us/politics/white-house-dinner-shooting-suspect-writings.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/26/us/politics/oz-pearlman-dinner-shooting-trump
 **White House Correspondents’ Dinner Is a Washington Institution**\
 `The dinner, a celebration of press freedom and the First Amendment, has been held annually for more than 50 years. It is both loved and loathed.`\
 https://www.nytimes.com/2026/04/26/us/politics/white-house-correspondents-dinner.html
-
-**After the Gunfire, the Parties Went On, Uneasily**\
-`Hosts in the nation’s capital decided to carry on in the wake of a violent incident at the White House correspondents’ dinner.`\
-https://www.nytimes.com/2026/04/26/style/washington-parties-after-shooting.html
 

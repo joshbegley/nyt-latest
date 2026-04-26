@@ -1,3 +1,7 @@
+**Dinner, Interrupted: Over Brunch, Journalists Reflect on a Chaotic Night**\
+`Moving to a new venue, or the East Wing? Plans for the White House Correspondents’ Association dinner are fluid following Saturday’s shocking events.`\
+https://www.nytimes.com/2026/04/26/us/politics/white-house-correspondents-dinner-future.html
+
 **Officials Investigating Writing Tied to Correspondents’ Dinner Attack**\
 `A man being held in connection with the attack wrote a note indicating potential targets and grievances, authorities say.`\
 https://www.nytimes.com/2026/04/26/us/politics/white-house-dinner-shooting-suspect-writings.html
