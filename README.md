@@ -1,3 +1,7 @@
+**Tillis Prepared to Advance Nominee for Fed Chair**\
+`Senator Thom Tillis said he had received assurances from federal prosecutors that eased his concerns, setting the stage for a key committee vote on Kevin Warsh.`\
+https://www.nytimes.com/2026/04/26/business/economy/tillis-federal-reserve-nomination.html
+
 **The Tears at ‘Death of a Salesman’**\
 `Readers respond to an Opinion guest essay by Eric Alterman, about the power of the Arthur Miller play. Also: Patients and chatbots.`\
 https://www.nytimes.com/2026/04/26/opinion/death-of-a-salesman.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/26/briefing/apocalypse.html
 **La Casa de la Moneda de EE. UU. compra oro de un cartel de Colombia y lo vende como ‘estadounidense’**\
 `A medida que los precios del metal se disparan, las salvaguardas de la industria se han roto.`\
 https://www.nytimes.com/es/2026/04/26/espanol/america-latina/casa-moneda-eeuu-oro-cartel-colombia.html
-
-**La Mandinga, la mina de oro del Clan del Golfo que opera en una base militar colombiana**\
-`Los militares negaban que hubiera una explotación ilegal de oro a gran escala cerca de su base. Pero habíamos visto a los mineros con nuestros propios ojos.`\
-https://www.nytimes.com/es/2026/04/26/espanol/america-latina/la-mandinga-la-mina-de-oro-del-clan-del-golfo-que-opera-en-una-base-militar-colombiana.html
 
