@@ -1,3 +1,11 @@
+**Israel’s President, Putting Off Decision on Pardon for Netanyahu, Will Push for Plea Deal**\
+`President Isaac Herzog of Israel has decided not to issue a pardon to Prime Minister Benjamin Netanyahu in his corruption case at this time, and instead will seek mediation, officials say.`\
+https://www.nytimes.com/2026/04/26/world/middleeast/israel-netanyahu-pardon-herzog.html
+
+**What We Know About the Shooting at the White House Correspondents’ Dinner**\
+`A gunman carrying multiple weapons attempted to break into the dinner that President Trump was attending. Police have taken a suspect into custody.`\
+https://www.nytimes.com/2026/04/26/us/politics/what-we-know-white-house-correspondents-dinner-shooting.html
+
 **The Apocalypse Goes Mainstream**\
 `About 40 percent of American adults said in a 2022 poll that we are living in the “end times.” Where did that belief come from?`\
 https://www.nytimes.com/2026/04/26/briefing/apocalypse.html
