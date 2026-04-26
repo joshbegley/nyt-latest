@@ -1,3 +1,11 @@
+**Running Gunman Was Tackled by Law Enforcement Near Security Checkpoint**\
+`The gunman did not make it inside the hotel ballroom where President Trump, top officials and hundreds of journalists had gathered for dinner.`\
+https://www.nytimes.com/2026/04/25/us/politics/shooter-correspondents-dinner-details.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/us/100000010863675/25vid-Trump-24135.html
+
 **Watch Live: Trump Speaks To Press After Reports of Shots Fired at Correspondents’ Dinner**\
 `President Trump gives a news conference after he was rushed from the stage after gunfire broke out in the hotel where the White House correspondents’ dinner was being held on Saturday night`\
 https://www.nytimes.com/video/us/100000010863616/white-house-dc-correspondents-dinner.html
