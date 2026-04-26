@@ -1,3 +1,7 @@
+****\
+``\
+https://www.nytimes.com/video/embedded/us/100000010863698/25vid-Trump-35431.html
+
 **Running Gunman Was Tackled by Law Enforcement Near Security Checkpoint**\
 `The gunman did not make it inside the hotel ballroom where President Trump, top officials and hundreds of journalists had gathered for dinner.`\
 https://www.nytimes.com/2026/04/25/us/politics/shooter-correspondents-dinner-details.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/25/us/politics/california-voter-id-citizenship-b
 **A Year Later, Trump’s ‘Most Exclusive’ Memecoin Event Is a Lot Less Exclusive**\
 `Even a Times reporter qualified for the event, which caused outrage last year for providing access to President Trump in exchange for investment in one of his family’s crypto ventures.`\
 https://www.nytimes.com/2026/04/25/technology/trump-memecoin-conference.html
-
-**One Police Officer Is Killed and Another Critically Wounded in Chicago Hospital Shooting**\
-`A 57-year-old officer was “fighting for his life,” after the shooting on Saturday at Endeavor Health Swedish Hospital, the police superintendent said. A suspect was in custody.`\
-https://www.nytimes.com/2026/04/25/us/chicago-police-shot-swedish-hospital.html
 
