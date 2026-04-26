@@ -1,3 +1,11 @@
+**Israel’s President, Putting Off Decision on Pardon for Netanyahu, Will Push for Plea Deal**\
+`President Isaac Herzog of Israel has decided not to issue a pardon to Prime Minister Benjamin Netanyahu in his corruption case at this time, and instead will seek mediation, officials say.`\
+https://www.nytimes.com/2026/04/26/world/middleeast/israel-netanyahu-pardon-herzog.html
+
+**What We Know About the Shooting at the White House Correspondents’ Dinner**\
+`A gunman carrying multiple weapons attempted to break into the dinner that President Trump was attending. Police have taken a suspect into custody.`\
+https://www.nytimes.com/2026/04/26/us/politics/what-we-know-white-house-correspondents-dinner-shooting.html
+
 **The Apocalypse Goes Mainstream**\
 `About 40 percent of American adults said in a 2022 poll that we are living in the “end times.” Where did that belief come from?`\
 https://www.nytimes.com/2026/04/26/briefing/apocalypse.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/26/business/chicago-science-museum-ceo-chevy-hum
 **The Hard Life of an Immigrant Whose Killing Became a Symbol for Trump**\
 `President Trump posted surveillance footage of Nilufa Easmin’s brutal killing by another immigrant to advance his agenda. Behind the rhetoric was a more nuanced story.`\
 https://www.nytimes.com/2026/04/26/us/the-hard-life-of-an-immigrant-whose-killing-became-a-symbol-for-trump.html
-
-**Targeted Hunts Were Supposed to Curb ‘Zombie Deer Disease.’ Now What?**\
-`In Illinois and other states, officials hoped that culls could halt the progress of chronic wasting disease. Now they are losing hope.`\
-https://www.nytimes.com/2026/04/26/science/deer-chronic-wasting-disease.html
-
-**As the First Influencer Kids Come of Age, What Have We Learned?**\
-`In her engaging, sympathetic book “Like, Follow, Subscribe,” the journalist Fortesa Latifi digs into growing up in the spotlight.`\
-https://www.nytimes.com/2026/04/26/books/review/like-follow-subscribe-fortesa-latifi.html
 
