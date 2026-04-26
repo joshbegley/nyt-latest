@@ -1,3 +1,35 @@
+**In the Foothills of Mt. Fuji, the Fight Is On Against Unruly Tourists**\
+`Huge crowds of visitors during cherry blossom season have put a picturesque Japanese town on edge. Some residents are trying to take charge.`\
+https://www.nytimes.com/2026/04/26/world/asia/japan-fuji-tourism-cherry-blossoms-overtourism.html
+
+**Quote of the Day: Has Nintendo Solved Its Princess Problem?**\
+`Quotation of the Day for Sunday, April 26, 2026.`\
+https://www.nytimes.com/2026/04/26/pageoneplus/quote-of-the-day-has-nintendo-solved-its-princess-problem.html
+
+**What to Know About King Charles and Queen Camilla’s State Visit to the U.S.**\
+`The British royals are set to arrive on Monday for a visit hosted by President Trump, with a garden party, an address to Congress and a banquet on the schedule.`\
+https://www.nytimes.com/2026/04/26/world/europe/king-charles-queen-camilla-us-visit-trump.html
+
+**40 Years After the Meltdown, War Layers Another Disaster on Chernobyl**\
+`Ideas have been floated for how the contaminated zone could bring economic benefits to Ukraine. But for the foreseeable future, it will be an army-controlled security belt.`\
+https://www.nytimes.com/2026/04/26/world/europe/chernobyl-anniversary.html
+
+**40 Years Ago, a Nuclear Catastrophe at Chernobyl**\
+`Photographs from the first days of the Chernobyl disaster and of the aftermath years later show the response, the evacuation and the long-term consequences of the world’s worst nuclear accident.`\
+https://www.nytimes.com/2026/04/26/world/europe/40-years-ago-a-nuclear-catastrophe-at-chernobyl.html
+
+**Zara Larsson’s Pop Career Had Stalled. But a Big Second Act Awaited.**\
+`The Swedish singer spent a decade toiling outside the spotlight. But a PinkPantheress remix, a rainbow-streaked dolphin and an ability to roll with the punches brought her back.`\
+https://www.nytimes.com/2026/04/26/arts/music/zara-larsson-midnight-sun-stateside.html
+
+**How a Pop Star’s Portrait Launched the Career of an Unknown Spanish Artist**\
+`Nieves González, a 29-year-old painter, once worked in relative obscurity in Andalusia. Her picture of the British singer Lily Allen changed that.`\
+https://www.nytimes.com/2026/04/26/world/europe/nieves-gonzalez-lily-allen-artist-west-end-girl-spain.html
+
+**Corrections: April 26, 2026**\
+`Corrections that appeared in print on Sunday, April 26, 2026.`\
+https://www.nytimes.com/2026/04/26/pageoneplus/corrections-april-26-2026.html
+
 ****\
 ``\
 https://www.nytimes.com/video/embedded/us/100000010863707/25vid-Trump-35558.html
@@ -45,36 +77,4 @@ https://www.nytimes.com/2026/04/25/crosswords/daily-puzzle-2026-04-26.html
 **Crushed at the Polls, Hungary’s Former Ruling Party Licks Its Wounds**\
 `Outgoing prime minister, Viktor Orban, who helped found the Fidesz party, said he would leave his Parliament seat but hoped to remain as head of his party.`\
 https://www.nytimes.com/2026/04/25/world/europe/viktor-orban-fidesz.html
-
-**Eugene Braunwald, Whose Research Reshaped Cardiology, Dies at 96**\
-`His work changed how doctors understood heart attacks, heart failure and coronary artery disease, and helped lead to therapies that saved millions of lives.`\
-https://www.nytimes.com/2026/04/25/health/eugene-braunwald-dead.html
-
-**Families of Iranian Children Killed in School Airstrike Pen Letter to Pope**\
-`Pope Leo said he has seen the letter from the parents of more than 100 children killed in the strike, which a preliminary inquiry found resulted from a mistake by the U.S. military.`\
-https://www.nytimes.com/2026/04/25/world/middleeast/families-of-iranian-children-killed-in-school-airstrike-pen-letter-to-pope.html
-
-**2 C.I.A. Officers Killed in Mexico Crash Lacked Proper Authorization**\
-`The two Americans were killed on Sunday when their vehicle crashed while returning from an antidrug operation led by Mexico’s armed forces in the state of Chihuahua.`\
-https://www.nytimes.com/2026/04/25/world/americas/2-cia-officers-killed-in-mexico-crash-lacked-proper-authorization.html
-
-**Big-Game Hunter From California Is Killed by Elephant in Central Africa**\
-`Ernie Dosio, 75, of Lodi, Calif., was hunting a species of antelope in the dense forests of Gabon when his hunting party stumbled on a small herd of female elephants with calves.`\
-https://www.nytimes.com/2026/04/25/world/africa/big-game-hunter-death-africa.html
-
-**‘Michael’ Shakes Off Bad Reviews to Become a Box Office Juggernaut**\
-`Lionsgate estimated on Saturday that the Michael Jackson biopic would collect more than $200 million over its first few days in theaters.`\
-https://www.nytimes.com/2026/04/25/business/media/box-office-michael.html
-
-****\
-``\
-https://www.nytimes.com/video/embedded/us/100000010863447/25vid-Trump-Iran-45166.html
-
-**Texas Can Arrest People Who Illegally Cross at Mexico Border, Court Says**\
-`The court that paused a 2023 law allowing state and local police officers to arrest migrants has now ruled that the measure is legal, a decision likely to be appealed.`\
-https://www.nytimes.com/2026/04/25/us/texas-mexico-border-arrest-deport-immigration.html
-
-**In Deep Blue California, a G.O.P.-Backed Voter ID Proposal Makes the Ballot**\
-`A Republican-backed initiative has cleared the signature threshold for the November election. Critics say the measure could make it harder for people to vote.`\
-https://www.nytimes.com/2026/04/25/us/politics/california-voter-id-citizenship-ballot.html
 
