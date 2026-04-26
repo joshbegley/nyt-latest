@@ -1,3 +1,11 @@
+**The Hotel Where Reagan Was Shot in 1981 Becomes a Crime Scene Again**\
+`The Washington Hilton was the site of an assassination attempt against the 40th president.`\
+https://www.nytimes.com/2026/04/26/us/politics/correspondents-dinner-shooting-washington-hilton-reagan.html
+
+**Former Israeli Premiers Join in Bid to Oust Netanyahu inElections**\
+`Naftali Bennett, a right-wing politician, and Yair Lapid, a centrist, will merge parties for a vote later this year.`\
+https://www.nytimes.com/2026/04/26/world/middleeast/israel-netanyahu-lapid-bennett.html
+
 **Powerful Storm Sweeps Across Texas and Kills 2, Displacing Dozens**\
 `Thousands remain without power as extensive damage occurred across two counties northwest of Fort Worth.`\
 https://www.nytimes.com/2026/04/26/us/texas-storm-deaths-hail-wind-runaway-bay.html

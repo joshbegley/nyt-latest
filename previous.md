@@ -1,3 +1,11 @@
+**The Hotel Where Reagan Was Shot in 1981 Becomes a Crime Scene Again**\
+`The Washington Hilton was the site of an assassination attempt against the 40th president.`\
+https://www.nytimes.com/2026/04/26/us/politics/correspondents-dinner-shooting-washington-hilton-reagan.html
+
+**Former Israeli Premiers Join in Bid to Oust Netanyahu inElections**\
+`Naftali Bennett, a right-wing politician, and Yair Lapid, a centrist, will merge parties for a vote later this year.`\
+https://www.nytimes.com/2026/04/26/world/middleeast/israel-netanyahu-lapid-bennett.html
+
 **Powerful Storm Sweeps Across Texas and Kills 2, Displacing Dozens**\
 `Thousands remain without power as extensive damage occurred across two counties northwest of Fort Worth.`\
 https://www.nytimes.com/2026/04/26/us/texas-storm-deaths-hail-wind-runaway-bay.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/26/us/politics/gunman-shooting-motive-correspond
 **Puzzle Contest: Letters to the Editors**\
 `Solve all five puzzles for a chance to win.`\
 https://www.nytimes.com/2026/04/26/crosswords/letters-to-the-editors.html
-
-**Key G.O.P. Senator Says He Is Prepared to Advance Nominee for Fed Chair**\
-`Senator Thom Tillis said he had received assurances from federal prosecutors that eased his concerns, setting the stage for a key committee vote on Kevin Warsh.`\
-https://www.nytimes.com/2026/04/26/business/economy/tillis-federal-reserve-nomination.html
-
-**The Tears at ‘Death of a Salesman’**\
-`Readers respond to an Opinion guest essay by Eric Alterman, about the power of the Arthur Miller play. Also: Patients and chatbots.`\
-https://www.nytimes.com/2026/04/26/opinion/death-of-a-salesman.html
 
