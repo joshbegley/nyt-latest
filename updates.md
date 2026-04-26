@@ -1,3 +1,27 @@
+**Islamabad Reopens After U.S.-Iran Talks Fail to Materialize**\
+`Officials had locked the city down, anticipating talks between U.S. and Iranian delegations. But they didn’t happen. “What did I close my business for?” one business owner asked.`\
+https://www.nytimes.com/2026/04/26/world/asia/islamabad-talks-iran-us.html
+
+**Iranian Negotiators Set to Return to Pakistan to Try to Revive Truce Talks**\
+`It was not clear whether President Trump would send his negotiators for a new round of discussions after abruptly calling off a trip by his top advisers on Saturday.`\
+https://www.nytimes.com/2026/04/26/world/middleeast/iranian-negotiators-set-to-return-to-pakistan-to-try-to-revive-truce-talks.html
+
+**Daniel Radcliffe, Mariska Hargitay and the Happiest List on Earth**\
+`How the show “Every Brilliant Thing” has spread joy and relief around the world.`\
+https://www.nytimes.com/2026/04/26/podcasts/the-daily/daniel-radcliffe-mariska-hargitay-and-the-happiest-list-on-earth.html
+
+**Wordle Review No. 1,773**\
+`Scroll down for hints and conversation about the puzzle for Monday, April 27, 2026.`\
+https://www.nytimes.com/2026/04/26/crosswords/wordle-review-1773.html
+
+**Strands Sidekick No. 785**\
+`Scroll down for hints and conversation about the puzzle for Monday, April 27, 2026.`\
+https://www.nytimes.com/2026/04/26/crosswords/strands-sidekick-785.html
+
+**Connections Companion No. 1,051**\
+`Scroll down for hints and conversation about the puzzle for Monday, April 27, 2026`\
+https://www.nytimes.com/2026/04/26/crosswords/connections-companion-1051.html
+
 **Federal authorities swarm the suspect’s home in an L.A. suburb.**\
 `It was not clear if the authorities had entered the home in Torrance, Calif., a white-collar city of about 150,000 people close to popular beaches.`\
 https://www.nytimes.com/live/2026/04/26/us/trump-correspondents-dinner-shooting/federal-authorities-swarm-the-suspects-home-in-an-la-suburb
