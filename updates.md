@@ -1,3 +1,15 @@
+**El nombre de este caracol podría permitir su protección legal**\
+`Los científicos debaten la clasificación de unos moluscos amenazados de los que una comunidad indígena depende para su estilo de vida.`\
+https://www.nytimes.com/es/2026/04/26/espanol/ciencia-y-tecnologia/mexico-caracoles-indigenas-textiles.html
+
+**La teoría de la conspiración tras la disculpa de Tucker Carlson**\
+`En vez de asumir honestamente su papel en el desvarío de EE. UU. , los apóstatas de MAGA están creando un chivo expiatorio para explicarlo.`\
+https://www.nytimes.com/es/2026/04/26/espanol/opinion/trump-tucker-carlsons-teorias-conspiracion.html
+
+**D.C. media parties go on, despite news of gunfire.**\
+``\
+https://www.nytimes.com/live/2026/04/25/us/trump-correspondents-dinner-shooting/dc-media-parties-go-on-despite-news-of-gunfire
+
 **Anne Hathaway por fin está lista para la diversión**\
 `Conocida sobre todo por sus personajes tensos en grandes éxitos del cine, la actriz es una estrella del pop torturada en ‘Mother Mary’ y vuelve a su lado juguetón en ‘El diablo viste a la moda 2’.`\
 https://www.nytimes.com/es/2026/04/26/espanol/cultura/anne-hathaway-entrevista.html
