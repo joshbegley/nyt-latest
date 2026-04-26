@@ -1,3 +1,7 @@
+**This Is How We Get Moral A.I. Companies**\
+`The short answer: not really. The long answer: maybe with a little help.`\
+https://www.nytimes.com/2026/04/26/opinion/ai-company-good-altruism.html
+
 **Trump Safe After Shooting at White House Correspondents’ Dinner**\
 `President Trump was at the White House Correspondents’ Association dinner at a Washington hotel when gunfire broke out. Mr. Trump was unharmed.`\
 https://www.nytimes.com/video/us/100000010863729/trump-correspondents-dinner-shooting.html
