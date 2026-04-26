@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/04/26/opinion/clarence-thomas-sonia-sotomayor-supre
 `How ICE transformed a Chicago neighborhood.`\
 https://www.nytimes.com/2026/04/26/opinion/ice-raids-chicago-constitution.html
 
-**Ukraine Has Picked Up the Torch America Dropped**\
+**Meet the New Leader of the Free World**\
 `The world is looking to Volodymyr Zelensky for leadership.`\
 https://www.nytimes.com/2026/04/26/opinion/zelensky-ukraine-trump-nato-leader.html
 
