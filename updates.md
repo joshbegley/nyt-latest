@@ -1,3 +1,15 @@
+**Hay personas que son difíciles. Aquí cómo manejarlas**\
+`Estos seis libros pueden ayudar a aliviar tensiones.`\
+https://www.nytimes.com/es/2026/04/26/espanol/estilos-de-vida/lidiar-personas-dificiles.html
+
+**Las tarifas de equipaje subieron. Aquí cómo evitarlas**\
+`Los pasajeros enfrentan tarifas más altas mientras la guerra con Irán eleva el precio del combustible de aviación. Los programas de viajero frecuente y ciertas tarjetas de crédito pueden ayudar a evitar estos cargos.`\
+https://www.nytimes.com/es/2026/04/26/espanol/estilos-de-vida/evitar-tarifas-equipaje-caras.html
+
+**‘I’m Not a Basket Case’: Trump Describes His Mind-Set After an Evening of Chaos**\
+`Very little was clear about what had happened at the Washington Hilton on Saturday night. But the president wanted to talk about it.`\
+https://www.nytimes.com/2026/04/26/us/politics/trump-shooting-gunman-correspondents-dinner.html
+
 **Can an A.I. Company Ever Be Good?**\
 `The short answer: not really. The long answer: maybe with a little help.`\
 https://www.nytimes.com/2026/04/26/opinion/ai-company-good-altruism.html
