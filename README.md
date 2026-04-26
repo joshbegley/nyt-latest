@@ -1,3 +1,7 @@
+**Can an A.I. Company Ever Be Good?**\
+`The short answer: not really. The long answer: maybe with a little help.`\
+https://www.nytimes.com/2026/04/26/opinion/ai-company-good-altruism.html
+
 **Again, a Gunman Got Perilously Close to Trump**\
 `After two previous assassination attempts, the effort by an armed man to storm the White House Correspondents’ Association dinner is sure to raise questions about security and political violence.`\
 https://www.nytimes.com/2026/04/26/us/politics/trump-gunman-security-violence.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/04/25/us/trump-correspondents-dinner-shooting/
 **Trump Fires Board Members of Group That Oversees U.S. Science Funding**\
 `The dismissals from an independent board that oversees the National Science Foundation marked the president’s latest assault on scientific research organizations.`\
 https://www.nytimes.com/2026/04/25/us/politics/trump-fires-board-members-scientific-research-group.html
-
-**How the War in Iran Is Draining the U.S. of Critical Weapons**\
-`The United States has blown through weapons as the cost of the war in Iran has hit nearly $1 billion a day. Our national security correspondent Eric Schmitt explains how American costs may go beyond the financial.`\
-https://www.nytimes.com/video/us/politics/100000010857432/how-the-war-in-iran-is-draining-the-us-of-critical-weapons.html
 

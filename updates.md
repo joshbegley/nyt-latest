@@ -1,3 +1,11 @@
+**Again, a Gunman Got Perilously Close to Trump**\
+`After two previous assassination attempts, the effort by an armed man to storm the White House Correspondents’ Association dinner is sure to raise questions about security and political violence.`\
+https://www.nytimes.com/2026/04/26/us/politics/trump-gunman-security-violence.html
+
+**California Man in Custody After Shooting at Dinner Attended by Trump**\
+`Shots were fired at the hotel hosting the White House correspondents’ dinner. Authorities said the attack was carried out by a lone gunman who was brought down by the Secret Service.`\
+https://www.nytimes.com/2026/04/26/us/politics/correspondents-dinner-shooting-suspect-california-man.html
+
 **Confusion and Fright Inside the Washington Hilton Ballroom**\
 `A sense of danger spread like a wave among high-profile politicians and journalists as an emergency unfolded at the White House Correspondents’ Association dinner.`\
 https://www.nytimes.com/2026/04/26/business/media/white-house-correspondents-dinner-shooting.html
