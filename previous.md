@@ -1,5 +1,5 @@
 **Security at Correspondents’ Dinner Worked as Intended, Experts Say**\
-`Officials pointed to the fact that the suspect never made it into the hotel ballroom, where President Trump and hundreds of journalists were gathered for the White House correspondents’ dinner.`\
+`Officials noted that the suspect never made it into the hotel ballroom, where President Trump and hundreds of journalists were gathered for the White House correspondents’ dinner.`\
 https://www.nytimes.com/2026/04/26/us/politics/security-correspondents-dinner.html
 
 **‘Peanuts’ or ‘Pickles’**\

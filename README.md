@@ -1,3 +1,11 @@
+**Officials Investigating Writing Tied to Correspondents’ Dinner Attack**\
+`A man being held in connection with the attack wrote a note indicating potential targets and grievances, authorities say.`\
+https://www.nytimes.com/2026/04/26/us/politics/white-house-dinner-shooting-suspect-writings.html
+
+**What We Know About the Gunman at the White House Press Dinner**\
+`The authorities are investigating a motive for the attack by the suspect, identified as Cole Tomas Allen. Those who know him described him as a “completely average guy.”`\
+https://www.nytimes.com/article/what-we-know-gunman-white-house-press-dinner.html
+
 **Security at Correspondents’ Dinner Worked as Intended, Experts Say**\
 `Officials noted that the suspect never made it into the hotel ballroom, where President Trump and hundreds of journalists were gathered for the White House correspondents’ dinner.`\
 https://www.nytimes.com/2026/04/26/us/politics/security-correspondents-dinner.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/26/us/politics/white-house-correspondents-dinner
 **After the Gunfire, the Parties Went On, Uneasily**\
 `Hosts in the nation’s capital decided to carry on in the wake of a violent incident at the White House correspondents’ dinner.`\
 https://www.nytimes.com/2026/04/26/style/washington-parties-after-shooting.html
-
-**Review: Yunchan Lim Warms Up for Graduation at Carnegie Hall**\
-`This 22-year-old superstar pianist, who is still a student, tested out his graduation recital in New York before taking it to school in Boston.`\
-https://www.nytimes.com/2026/04/26/arts/music/yunchan-lim-carnegie-hall-review.html
-
-**Trump Praises Journalist After Shooting at Media Dinner**\
-`Weijia Jiang, a CBS correspondent, had been sitting next to the president at the White House Correspondents’ Association dinner when shots rang out. Soon afterward, she was reporting on the attack.`\
-https://www.nytimes.com/2026/04/26/us/politics/weijia-jiang-cbs-whca-shooting-trump.html
 
