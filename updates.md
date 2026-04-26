@@ -1,3 +1,31 @@
+**Iran and U.S. Sink Into Awkward Limbo of ‘No War, No Peace’**\
+`Each side is betting they can last longer than the other, analysts say. But there are risks in a stalemate without a deal.`\
+https://www.nytimes.com/2026/04/26/world/middleeast/iran-united-states-israel-war-truce.html
+
+**Gunman Appears to Have Targeted Administration Officials, Blanche Says**\
+`“We know there were some writings,” the acting attorney general told “Meet the Press.” He said the review of the evidence was still in its early stages.`\
+https://www.nytimes.com/2026/04/26/us/politics/gunman-shooting-motive-correspondents-dinner-trump.html
+
+**Puzzle Contest: Letters to the Editors**\
+`Solve all five puzzles for a chance to win.`\
+https://www.nytimes.com/2026/04/26/crosswords/letters-to-the-editors.html
+
+**Key G.O.P. Senator Says He Is Prepared to Advance Nominee for Fed Chair**\
+`Senator Thom Tillis said he had received assurances from federal prosecutors that eased his concerns, setting the stage for a key committee vote on Kevin Warsh.`\
+https://www.nytimes.com/2026/04/26/business/economy/tillis-federal-reserve-nomination.html
+
+**World leaders condemn violence after gunfire at the White House correspondents’ dinner.**\
+`Mr. Trump’s`\
+https://www.nytimes.com/live/2026/04/26/us/correspondents-dinner-shooting-trump/world-leaders-condemn-violence-after-gunfire-at-the-white-house-correspondents-dinner
+
+**Federal authorities swarm the suspect’s home in an L.A. suburb.**\
+`It was not clear if the authorities had entered the home in Torrance, Calif., a white-collar city of about 150,000 people close to popular beaches.`\
+https://www.nytimes.com/live/2026/04/26/us/correspondents-dinner-shooting-trump/federal-authorities-swarm-the-suspects-home-in-an-la-suburb
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/26/us/correspondents-dinner-shooting-trump/heres-the-latest
+
 **Tillis Prepared to Advance Nominee for Fed Chair**\
 `Senator Thom Tillis said he had received assurances from federal prosecutors that eased his concerns, setting the stage for a key committee vote on Kevin Warsh.`\
 https://www.nytimes.com/2026/04/26/business/economy/tillis-federal-reserve-nomination.html

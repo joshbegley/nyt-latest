@@ -1,4 +1,16 @@
-**Tillis Prepared to Advance Nominee for Fed Chair**\
+**Iran and U.S. Sink Into Awkward Limbo of ‘No War, No Peace’**\
+`Each side is betting they can last longer than the other, analysts say. But there are risks in a stalemate without a deal.`\
+https://www.nytimes.com/2026/04/26/world/middleeast/iran-united-states-israel-war-truce.html
+
+**Gunman Appears to Have Targeted Administration Officials, Blanche Says**\
+`“We know there were some writings,” the acting attorney general told “Meet the Press.” He said the review of the evidence was still in its early stages.`\
+https://www.nytimes.com/2026/04/26/us/politics/gunman-shooting-motive-correspondents-dinner-trump.html
+
+**Puzzle Contest: Letters to the Editors**\
+`Solve all five puzzles for a chance to win.`\
+https://www.nytimes.com/2026/04/26/crosswords/letters-to-the-editors.html
+
+**Key G.O.P. Senator Says He Is Prepared to Advance Nominee for Fed Chair**\
 `Senator Thom Tillis said he had received assurances from federal prosecutors that eased his concerns, setting the stage for a key committee vote on Kevin Warsh.`\
 https://www.nytimes.com/2026/04/26/business/economy/tillis-federal-reserve-nomination.html
 
@@ -28,7 +40,7 @@ https://www.nytimes.com/2026/04/26/opinion/zelensky-ukraine-trump-nato-leader.ht
 
 **World leaders condemn violence after gunfire at the White House correspondents’ dinner.**\
 `Mr. Trump’s`\
-https://www.nytimes.com/live/2026/04/26/us/trump-correspondents-dinner-shooting/world-leaders-condemn-violence-after-gunfire-at-the-white-house-correspondents-dinner
+https://www.nytimes.com/live/2026/04/26/us/correspondents-dinner-shooting-trump/world-leaders-condemn-violence-after-gunfire-at-the-white-house-correspondents-dinner
 
 **Islamabad Reopens After U.S.-Iran Talks Fail to Materialize**\
 `Officials had locked the city down, anticipating talks between U.S. and Iranian delegations. But they didn’t happen. “What did I close my business for?” one business owner asked.`\
@@ -56,25 +68,13 @@ https://www.nytimes.com/2026/04/26/crosswords/connections-companion-1051.html
 
 **Federal authorities swarm the suspect’s home in an L.A. suburb.**\
 `It was not clear if the authorities had entered the home in Torrance, Calif., a white-collar city of about 150,000 people close to popular beaches.`\
-https://www.nytimes.com/live/2026/04/26/us/trump-correspondents-dinner-shooting/federal-authorities-swarm-the-suspects-home-in-an-la-suburb
+https://www.nytimes.com/live/2026/04/26/us/correspondents-dinner-shooting-trump/federal-authorities-swarm-the-suspects-home-in-an-la-suburb
 
 **Here’s the latest.**\
 ``\
-https://www.nytimes.com/live/2026/04/26/us/trump-correspondents-dinner-shooting/heres-the-latest
+https://www.nytimes.com/live/2026/04/26/us/correspondents-dinner-shooting-trump/heres-the-latest
 
 **Israel’s President, Putting Off Decision on Pardon for Netanyahu, Will Push for Plea Deal**\
 `President Isaac Herzog of Israel has decided not to issue a pardon to Prime Minister Benjamin Netanyahu in his corruption case at this time, and instead will seek mediation, officials say.`\
 https://www.nytimes.com/2026/04/26/world/middleeast/israel-netanyahu-pardon-herzog.html
-
-**What We Know About the Shooting at the White House Correspondents’ Dinner**\
-`A gunman carrying multiple weapons attempted to break into the dinner that President Trump was attending. Police have taken a suspect into custody.`\
-https://www.nytimes.com/2026/04/26/us/politics/what-we-know-white-house-correspondents-dinner-shooting.html
-
-**The Apocalypse Goes Mainstream**\
-`About 40 percent of American adults said in a 2022 poll that we are living in the “end times.” Where did that belief come from?`\
-https://www.nytimes.com/2026/04/26/briefing/apocalypse.html
-
-**La Casa de la Moneda de EE. UU. compra oro de un cartel de Colombia y lo vende como ‘estadounidense’**\
-`A medida que los precios del metal se disparan, las salvaguardas de la industria se han roto.`\
-https://www.nytimes.com/es/2026/04/26/espanol/america-latina/casa-moneda-eeuu-oro-cartel-colombia.html
 

@@ -1,3 +1,7 @@
+**Washington Shooting Prompts Discussions About a State Visit from British Royals**\
+`Buckingham Palace said it was assessing how the shooting could affect a state visit from King Charles III and Queen Camilla that is set to begin Monday.`\
+https://www.nytimes.com/2026/04/26/us/politics/washington-shooting-king-charles-camilla-us-visit.html
+
 **Iran and U.S. Sink Into Awkward Limbo of ‘No War, No Peace’**\
 `Each side is betting they can last longer than the other, analysts say. But there are risks in a stalemate without a deal.`\
 https://www.nytimes.com/2026/04/26/world/middleeast/iran-united-states-israel-war-truce.html
@@ -46,8 +50,8 @@ https://www.nytimes.com/live/2026/04/26/us/correspondents-dinner-shooting-trump/
 `Officials had locked the city down, anticipating talks between U.S. and Iranian delegations. But they didn’t happen. “What did I close my business for?” one business owner asked.`\
 https://www.nytimes.com/2026/04/26/world/asia/islamabad-talks-iran-us.html
 
-**Iranian Negotiators Set to Return to Pakistan to Try to Revive Truce Talks**\
-`It was not clear whether President Trump would send his negotiators for a new round of discussions after abruptly calling off a trip by his top advisers on Saturday.`\
+**Israel and Hezbollah Trade Strikes in Lebanon, as Iran Talks Remain on Hold**\
+`Cease-fires in Lebanon and Iran are on shaky ground, with military attacks flaring and direct talks between Washington and Tehran to end their war stalled.`\
 https://www.nytimes.com/2026/04/26/world/middleeast/iranian-negotiators-set-to-return-to-pakistan-to-try-to-revive-truce-talks.html
 
 **Daniel Radcliffe, Mariska Hargitay and the Happiest List on Earth**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/04/26/us/correspondents-dinner-shooting-trump/
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/26/us/correspondents-dinner-shooting-trump/heres-the-latest
-
-**Israel’s President, Putting Off Decision on Pardon for Netanyahu, Will Push for Plea Deal**\
-`President Isaac Herzog of Israel has decided not to issue a pardon to Prime Minister Benjamin Netanyahu in his corruption case at this time, and instead will seek mediation, officials say.`\
-https://www.nytimes.com/2026/04/26/world/middleeast/israel-netanyahu-pardon-herzog.html
 
