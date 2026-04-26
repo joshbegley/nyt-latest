@@ -1,3 +1,15 @@
+**For Oz Pearlman, a Press Gala Not Even He Could Have Predicted**\
+`The mentalist was the featured entertainer at the White House Correspondents’ dinner. He was in the middle of a trick when gunshots rang out.`\
+https://www.nytimes.com/2026/04/26/us/politics/oz-pearlman-dinner-shooting-trump.html
+
+**White House Correspondents’ Dinner Is a Washington Institution**\
+`The dinner, a celebration of press freedom and the First Amendment, has been held annually for more than 50 years. It is both loved and loathed.`\
+https://www.nytimes.com/2026/04/26/us/politics/white-house-correspondents-dinner.html
+
+**After the Gunfire, the Parties Went On, Uneasily**\
+`Hosts in the nation’s capital decided to carry on in the wake of a violent incident at the White House correspondents’ dinner.`\
+https://www.nytimes.com/2026/04/26/style/washington-parties-after-shooting.html
+
 **Review: Yunchan Lim Warms Up for Graduation at Carnegie Hall**\
 `This 22-year-old superstar pianist, who is still a student, tested out his graduation recital in New York before taking it to school in Boston.`\
 https://www.nytimes.com/2026/04/26/arts/music/yunchan-lim-carnegie-hall-review.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/26/opinion/zelensky-ukraine-trump-nato-leader.ht
 **World leaders condemn violence after gunfire at the White House correspondents’ dinner.**\
 `Mr. Trump’s`\
 https://www.nytimes.com/live/2026/04/26/us/correspondents-dinner-shooting-trump/world-leaders-condemn-violence-after-gunfire-at-the-white-house-correspondents-dinner
-
-**Islamabad Reopens After U.S.-Iran Talks Fail to Materialize**\
-`Officials had locked the city down, anticipating talks between U.S. and Iranian delegations. But they didn’t happen. “What did I close my business for?” one business owner asked.`\
-https://www.nytimes.com/2026/04/26/world/asia/islamabad-talks-iran-us.html
-
-**Israel and Hezbollah Trade Strikes in Lebanon, as Iran Talks Remain on Hold**\
-`Cease-fires in Lebanon and Iran are on shaky ground, with military attacks flaring and direct talks between Washington and Tehran to end their war stalled.`\
-https://www.nytimes.com/2026/04/26/world/middleeast/iranian-negotiators-set-to-return-to-pakistan-to-try-to-revive-truce-talks.html
-
-**Daniel Radcliffe, Mariska Hargitay and the Happiest List on Earth**\
-`How the show “Every Brilliant Thing” has spread joy and relief around the world.`\
-https://www.nytimes.com/2026/04/26/podcasts/the-daily/daniel-radcliffe-mariska-hargitay-and-the-happiest-list-on-earth.html
 
