@@ -1,3 +1,23 @@
+**Map: 6.1-Magnitude Earthquake Shakes Northern Japan**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/04/26/world/quake-tracker-northern-japan.html
+
+**How a Trump Event Shooting Unfolded**\
+`The gunman had written a “manifesto,” the president said, before trying to enter a dinner in Washington for the White House press corps.`\
+https://www.nytimes.com/2026/04/26/world/trump-shooting-dinner-iran-talks.html
+
+**Rumors and Speculation Swirl Online After Shooting at Washington Dinner**\
+`Influencers jumped to fill the information void with conspiracy theories about the attack at the White House Correspondents’ dinner on Saturday.`\
+https://www.nytimes.com/2026/04/26/technology/white-house-correspondents-dinner-shooting-conspiracy-theories.html
+
+**Most Guests Ducked for Cover. This Man Munched on His Burrata Salad.**\
+`Michael Glantz, a top agent at Creative Artists Agency, calmly ate his appetizer during the commotion at the White House correspondents’ dinner. He had his reasons.`\
+https://www.nytimes.com/2026/04/26/us/politics/man-salad-white-house-correspondents-dinner.html
+
+**What to Know About U.S.-Iran Peace Talks**\
+`An Iranian negotiator returned to Pakistan on Sunday, despite the United States abruptly calling off a trip there by its two top negotiators.`\
+https://www.nytimes.com/2026/04/26/world/middleeast/us-iran-peace-talks-pakistan.html
+
 **Former Israeli Premiers Join in Bid to Oust Netanyahu in Elections**\
 `Naftali Bennett, a right-wing politician, and Yair Lapid, a centrist, will merge parties for a vote later this year.`\
 https://www.nytimes.com/2026/04/26/world/middleeast/israel-netanyahu-lapid-bennett.html
