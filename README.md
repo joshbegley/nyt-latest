@@ -1,3 +1,7 @@
+**Maps: Gunfire Near the White House Correspondents’ Dinner**\
+`A gunman was apprehended outside the ballroom at the Washington Hilton where President Trump was scheduled to speak.`\
+https://www.nytimes.com/interactive/2026/04/26/us/white-house-correspondents-hilton-shots.html
+
 **El nombre de este caracol podría permitir su protección legal**\
 `Los científicos debaten la clasificación de unos moluscos amenazados de los que una comunidad indígena depende para su estilo de vida.`\
 https://www.nytimes.com/es/2026/04/26/espanol/ciencia-y-tecnologia/mexico-caracoles-indigenas-textiles.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/26/world/europe/chernobyl-anniversary.html
 **40 Years Ago, a Nuclear Catastrophe at Chernobyl**\
 `Photographs from the first days of the Chernobyl disaster and of the aftermath years later show the response, the evacuation and the long-term consequences of the world’s worst nuclear accident.`\
 https://www.nytimes.com/2026/04/26/world/europe/40-years-ago-a-nuclear-catastrophe-at-chernobyl.html
-
-**Zara Larsson’s Pop Career Had Stalled. But a Big Second Act Awaited.**\
-`The Swedish singer spent a decade toiling outside the spotlight. But a PinkPantheress remix, a rainbow-streaked dolphin and an ability to roll with the punches brought her back.`\
-https://www.nytimes.com/2026/04/26/arts/music/zara-larsson-midnight-sun-stateside.html
 
