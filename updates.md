@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/25/us/trump-whca-shooting/heres-the-latest
+
+**Trump Fires Board Members of Group That Oversees U.S. Science Funding**\
+`The dismissals from the National Science Foundation marked the president’s latest assault on scientific research organizations.`\
+https://www.nytimes.com/2026/04/25/us/politics/trump-fires-board-members-scientific-research-group.html
+
 **Trump Cancels Aides’ Trip for Iran Talks: ‘We Have All the Cards’**\
 `The last-minute scuttling of the trip to Pakistan was the latest sign of how far apart the two sides are on reaching a deal to end the Iran war.`\
 https://www.nytimes.com/2026/04/25/world/middleeast/trump-witkoff-kushner-pakistan-trip-canceled.html
