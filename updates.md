@@ -1,3 +1,7 @@
+**Maps: Gunfire Near the White House Correspondents’ Dinner**\
+`A gunman was apprehended outside the ballroom at the Washington Hilton where President Trump was scheduled to speak.`\
+https://www.nytimes.com/interactive/2026/04/26/us/white-house-correspondents-hilton-shots.html
+
 **El nombre de este caracol podría permitir su protección legal**\
 `Los científicos debaten la clasificación de unos moluscos amenazados de los que una comunidad indígena depende para su estilo de vida.`\
 https://www.nytimes.com/es/2026/04/26/espanol/ciencia-y-tecnologia/mexico-caracoles-indigenas-textiles.html
