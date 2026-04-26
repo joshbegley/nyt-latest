@@ -1,3 +1,15 @@
+**Trump Praises Journalist After Shooting at Media Dinner**\
+`Weijia Jiang, a CBS correspondent, had been sitting next to the president at the White House Correspondents’ Association dinner when shots rang out. Soon afterward, she was reporting on the attack.`\
+https://www.nytimes.com/2026/04/26/us/politics/weijia-jiang-cbs-whca-shooting-trump.html
+
+**Tiroteo en la cena de corresponsales de la Casa Blanca: esto es lo que sabemos**\
+`Un hombre que portaba varias armas intentó irrumpir en la cena a la que asistía el presidente Trump. La policía detuvo a un sospechoso.`\
+https://www.nytimes.com/es/2026/04/26/espanol/estados-unidos/trump-tiroteo-cena-corresponsales.html
+
+**After Security Scare, Trump Demands Approval for His White House Ballroom**\
+`An incident involving an armed man at the White House correspondents’ dinner has the president to renewing his push for a project slowed by litigation.`\
+https://www.nytimes.com/2026/04/26/us/politics/trump-white-house-ballroom-dinner-shooting.html
+
 **I’m in Quiche Mode**\
 `And, with these steps for composing the parts ahead of time, you can easily pull together a classic quiche Lorraine for breakfast, lunch or dinner.`\
 https://www.nytimes.com/2026/04/26/dining/im-in-quiche-mode.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/26/podcasts/the-daily/daniel-radcliffe-mariska-h
 **Wordle Review No. 1,773**\
 `Scroll down for hints and conversation about the puzzle for Monday, April 27, 2026.`\
 https://www.nytimes.com/2026/04/26/crosswords/wordle-review-1773.html
-
-**Strands Sidekick No. 785**\
-`Scroll down for hints and conversation about the puzzle for Monday, April 27, 2026.`\
-https://www.nytimes.com/2026/04/26/crosswords/strands-sidekick-785.html
-
-**Connections Companion No. 1,051**\
-`Scroll down for hints and conversation about the puzzle for Monday, April 27, 2026`\
-https://www.nytimes.com/2026/04/26/crosswords/connections-companion-1051.html
-
-**Federal authorities swarm the suspect’s home in an L.A. suburb.**\
-`It was not clear if the authorities had entered the home in Torrance, Calif., a white-collar city of about 150,000 people close to popular beaches.`\
-https://www.nytimes.com/live/2026/04/26/us/correspondents-dinner-shooting-trump/federal-authorities-swarm-the-suspects-home-in-an-la-suburb
 
