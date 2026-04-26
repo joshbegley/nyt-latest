@@ -1,3 +1,7 @@
+**Meet the New Leader of the Free World**\
+`The world is looking to Volodymyr Zelensky for leadership.`\
+https://www.nytimes.com/2026/04/26/opinion/zelensky-ukraine-trump-nato-leader.html
+
 **The Artist Who Gives Me Joy**\
 `There’s more to Derrick Adams’s paintings than Black joy. But that complicated emotion is what tugs at the heart.`\
 https://www.nytimes.com/2026/04/26/opinion/culture/the-artist-derrick-adams-black.html
