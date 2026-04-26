@@ -1,3 +1,15 @@
+**Anne Hathaway por fin está lista para la diversión**\
+`Conocida sobre todo por sus personajes tensos en grandes éxitos del cine, la actriz es una estrella del pop torturada en ‘Mother Mary’ y vuelve a su lado juguetón en ‘El diablo viste a la moda 2’.`\
+https://www.nytimes.com/es/2026/04/26/espanol/cultura/anne-hathaway-entrevista.html
+
+**Want to Be More Cultured? T Magazine Guides the Way.**\
+`A new issue aims to teach readers about essential films, wines and the best way to slurp an oyster, among other topics. Let the debates begin.`\
+https://www.nytimes.com/2026/04/26/insider/how-to-be-more-cultured-t-mag.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/26/crosswords/spelling-bee-forum.html
+
 **Trump Safe After Shooting at White House Correspondents’ Dinner**\
 `President Trump was at the White House Correspondents’ Association dinner at a Washington hotel when a gunman opened fire. He was unharmed.`\
 https://www.nytimes.com/video/us/100000010863729/trump-correspondents-dinner-shooting.html
