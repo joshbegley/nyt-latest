@@ -1,3 +1,11 @@
+**Confusion and Fright Inside the Washington Hilton Ballroom**\
+`A sense of danger spread like a wave among high-profile politicians and journalists as an emergency unfolded at the White House Correspondents’ Association dinner.`\
+https://www.nytimes.com/2026/04/26/business/media/white-house-correspondents-dinner-shooting.html
+
+**California Man in Custody After Shooting at Dinner Attended by Trump**\
+`Shots were fired at the hotel hosting the White House Correspondents Dinner. Authorities said the attack was carried out by a lone gunman who was brought down by Secret Service.`\
+https://www.nytimes.com/2026/04/26/us/politics/correspondents-dinner-shooting-suspect-california-man.html
+
 **In the Foothills of Mt. Fuji, the Fight Is On Against Unruly Tourists**\
 `Huge crowds of visitors during cherry blossom season have put a picturesque Japanese town on edge. Some residents are trying to take charge.`\
 https://www.nytimes.com/2026/04/26/world/asia/japan-fuji-tourism-cherry-blossoms-overtourism.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/us/politics/100000010857432/how-the-war-in-iran-is
 **Al Qaeda-Linked Militants Launch Major Attacks on Cities Across Mali**\
 `The armed group JNIM claimed to have seized two key cities and destroyed the defense minister’s residence in a coordinated offensive that experts said was a major escalation in yearslong hostilities.`\
 https://www.nytimes.com/2026/04/25/world/africa/mali-attacks-jnim-al-qaeda-bamako.html
-
-**Well-Suited**\
-`Everything fits in Rebecca Goldstein’s beautifully crafted puzzle.`\
-https://www.nytimes.com/2026/04/25/crosswords/daily-puzzle-2026-04-26.html
-
-**Crushed at the Polls, Hungary’s Former Ruling Party Licks Its Wounds**\
-`Outgoing prime minister, Viktor Orban, who helped found the Fidesz party, said he would leave his Parliament seat but hoped to remain as head of his party.`\
-https://www.nytimes.com/2026/04/25/world/europe/viktor-orban-fidesz.html
 

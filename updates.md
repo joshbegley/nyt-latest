@@ -1,3 +1,11 @@
+**Confusion and Fright Inside the Washington Hilton Ballroom**\
+`A sense of danger spread like a wave among high-profile politicians and journalists as an emergency unfolded at the White House Correspondents’ Association dinner.`\
+https://www.nytimes.com/2026/04/26/business/media/white-house-correspondents-dinner-shooting.html
+
+**California Man in Custody After Shooting at Dinner Attended by Trump**\
+`Shots were fired at the hotel hosting the White House Correspondents Dinner. Authorities said the attack was carried out by a lone gunman who was brought down by Secret Service.`\
+https://www.nytimes.com/2026/04/26/us/politics/correspondents-dinner-shooting-suspect-california-man.html
+
 **In the Foothills of Mt. Fuji, the Fight Is On Against Unruly Tourists**\
 `Huge crowds of visitors during cherry blossom season have put a picturesque Japanese town on edge. Some residents are trying to take charge.`\
 https://www.nytimes.com/2026/04/26/world/asia/japan-fuji-tourism-cherry-blossoms-overtourism.html
