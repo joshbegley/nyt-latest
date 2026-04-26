@@ -1,3 +1,7 @@
+**‘Joe Turner’s Come and Gone’ Review: August Wilson’s Spiritual Masterpiece**\
+`This revival starring Cedric the Entertainer and Taraji P. Henson may be uneven at times, but it still unlocks Wilson’s mysterious drama.`\
+https://www.nytimes.com/2026/04/25/theater/joe-turners-come-and-gone-review-henson-cedric.html
+
 **Trump Fires Board Members of Group That Oversees U.S. Science Funding**\
 `The dismissals from an independent board that oversees the National Science Foundation marked the president’s latest assault on scientific research organizations.`\
 https://www.nytimes.com/2026/04/25/us/politics/trump-fires-board-members-scientific-research-group.html
