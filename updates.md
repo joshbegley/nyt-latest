@@ -1,3 +1,11 @@
+**Irán y EE. UU. se hunden en un incómodo limbo de ‘ni guerra ni paz’**\
+`Cada parte apuesta a que puede soportar más que la otra, dicen los analistas. Pero un estancamiento sin acuerdo entraña riesgos.`\
+https://www.nytimes.com/es/2026/04/27/espanol/mundo/ee-uu-guerra-iran-conversaciones-paz.html
+
+**What to Know About the ‘Summer House’ Leaked Audio Drama**\
+`After West Wilson and Amanda Batula confirmed their relationship, fans were anticipating drama at the show’s next reunion. But audio appeared to leak weeks before its air date.`\
+https://www.nytimes.com/2026/04/27/style/bravo-summer-house-leaked-audio.html
+
 **Euphoria in Kenya After Sabastian Sawe’s Record-Breaking Win**\
 `The London Marathon winner’s achievement has resonated nowhere more than in Kenya’s Rift Valley, which has yielded many champions.`\
 https://www.nytimes.com/2026/04/27/world/africa/sabastian-sawe-kenya-running-record.html
