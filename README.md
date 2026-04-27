@@ -1,3 +1,7 @@
+**‘The Comeback’ Season 3, Episode 6 Recap: Everything Breaks**\
+`Valerie has been terrible at keeping the A.I. thing a secret. Almost as terrible as Billy is at being her manager.`\
+https://www.nytimes.com/2026/04/26/arts/television/the-comeback-recap-season-3-episode-6.html
+
 **‘The Lost Boys’ Review: Live, Die, Reprise**\
 `A Broadway musical adaptation of the 1987 movie gets a lot of mileage from ’80s rocker aesthetics and over-the-top spectacle — until its second half.`\
 https://www.nytimes.com/2026/04/26/theater/the-lost-boys-review.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/26/world/middleeast/us-iran-peace-talks-pakistan
 **Family of Suspect in Colorado Attack Released After Months in Detention**\
 `Two days after their release, the mother and her five children were again detained during an ICE check-in. A judge halted their removal and returned the family home.`\
 https://www.nytimes.com/2026/04/26/us/family-ice-detention-released-dilley-texas.html
-
-**Trump habla sobre su estado mental después de una noche de caos**\
-`La respuesta del presidente de Estados Unidos a la noche del sábado fue extraordinariamente serena para alguien que ha sobrevivido a dos intentos de asesinato.`\
-https://www.nytimes.com/es/2026/04/26/espanol/estados-unidos/trump-tiroteo-cena-corresponsales-casa-blanca.html
 
