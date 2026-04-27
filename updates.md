@@ -1,3 +1,7 @@
+**‘The Lost Boys’ Review: Live, Die, Reprise**\
+`A Broadway musical adaptation of the 1987 movie gets a lot of mileage from ’80s rocker aesthetics and over-the-top spectacle — until its second half.`\
+https://www.nytimes.com/2026/04/26/theater/the-lost-boys-review.html
+
 **Cómo el retrato de una estrella del pop impulsó la carrera de una artista española**\
 `Nieves González, una pintora de 29 años, trabajaba antes en un relativo anonimato en Andalucía. Retratar a la cantante británica Lily Allen cambió eso.`\
 https://www.nytimes.com/es/2026/04/26/espanol/cultura/nieves-gonzalez-lily-allen-artista-west-end-girl.html
