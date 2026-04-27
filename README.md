@@ -1,3 +1,7 @@
+**Female Anglican Leader Prays With Pope, Signaling Unity and Recalling Divide**\
+`The meeting highlighted warming ties between two major Christian denominations, as well as longstanding differences on the ordination of women.`\
+https://www.nytimes.com/2026/04/27/world/europe/pope-leo-archbishop-canterbury-mullally-vatican.html
+
 **United Airlines Says It Pitched American on Merger but Was Rebuffed**\
 `United’s chief acknowledged for the first time that he had broached the idea of a merger with American, which was unwilling to consider it.`\
 https://www.nytimes.com/2026/04/27/business/united-airlines-american-merger.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/27/us/politics/politics-violence-trump-kirk.html
 **‘Michael’ Fans Danced in the Aisles, Critics Be Damned**\
 `The biopic of the pop singer crushed box-office records on its opening weekend as admirers moonwalked to a movie that critics have savaged.`\
 https://www.nytimes.com/2026/04/27/arts/michael-jackson-movie-fan-reactions.html
-
-**Grievance Propelled Gala Attack Suspect Across Country, Authorities Say**\
-`A man who has worked as a tutor and graduated from the California Institute of Technology is being held by authorities in connection with the armed attack at the White House correspondents’ dinner.`\
-https://www.nytimes.com/2026/04/27/us/politics/cole-allen-suspect-washington-correspondents-dinner-shooting.html
 
