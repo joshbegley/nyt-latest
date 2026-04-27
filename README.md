@@ -1,3 +1,11 @@
+**Today, In Short**\
+`“Top Chef.” Zara Larsson. And the latest from the shooting at the correspondents’ dinner.`\
+https://www.nytimes.com/2026/04/27/briefing/today-in-short.html
+
+**Human Remains Found in Tampa Bay in Search for Missing Student**\
+`The remains have not yet been identified, but a former University of South Florida student has been charged in connection with the murders of Nahida Bristy and Zamil Limon.`\
+https://www.nytimes.com/2026/04/27/us/human-remains-usf-student-tampa-bay.html
+
 **Have a Canadian Great-Great Grandparent? It Could Make You Canadian.**\
 `Canada has opened a route to citizenship for people who can prove they have a Canada-born ancestor. Millions could qualify, and Americans are already lining up to apply.`\
 https://www.nytimes.com/2026/04/27/world/canada/canadian-citizenship-by-descent-applications-americans-us.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/27/health/food-noise-obesity-drugs-glp-1.html
 **Microsoft and OpenAI Loosen Their Partnership**\
 `Microsoft, OpenAI’s biggest financial partner, will continue to license the start-up’s technology but will no longer be its exclusive licensee.`\
 https://www.nytimes.com/2026/04/27/technology/microsoft-openai-partnership.html
-
-**Palabra del día: ‘calumny’**\
-`Esta palabra ha aparecido en ocho artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
-https://www.nytimes.com/es/2026/04/27/espanol/que-significa-calumny.html
-
-**Longevity Science Is Overhyped. But This Research Really Could Change Humanity.**\
-`A new therapy has the potential to cure hundreds of diseases — and even reverse aging.`\
-https://www.nytimes.com/2026/04/27/magazine/cell-rejuventation-biotech-longevity-research-altos-labs.html
 
