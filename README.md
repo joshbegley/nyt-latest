@@ -1,3 +1,7 @@
+**California Billionaire Tax Has Enough Signatures to Land on Ballot, Backers Say**\
+`The measure calls for placing a one-time 5 percent tax on the assets of California residents with at least $1.1 billion. Opponents are backing competing measures to counter the tax.`\
+https://www.nytimes.com/2026/04/26/us/california-billionaire-tax.html
+
 **‘The Comeback’ Season 3, Episode 6 Recap: Everything Breaks**\
 `Valerie has been terrible at keeping the A.I. thing a secret. Almost as terrible as Billy is at being her manager.`\
 https://www.nytimes.com/2026/04/26/arts/television/the-comeback-recap-season-3-episode-6.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/us/politics/100000010863950/white-house-correspond
 **What to Know About U.S.-Iran Peace Talks**\
 `An Iranian negotiator returned to Pakistan on Sunday, despite the United States abruptly calling off a trip there by its two top negotiators.`\
 https://www.nytimes.com/2026/04/26/world/middleeast/us-iran-peace-talks-pakistan.html
-
-**Family of Suspect in Colorado Attack Released After Months in Detention**\
-`Two days after their release, the mother and her five children were again detained during an ICE check-in. A judge halted their removal and returned the family home.`\
-https://www.nytimes.com/2026/04/26/us/family-ice-detention-released-dilley-texas.html
 
