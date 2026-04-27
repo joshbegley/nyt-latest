@@ -1,3 +1,39 @@
+**Top Iranian Official in Russia for Talks With Putin on Middle East War**\
+`Abbas Araghchi, Iran’s foreign minister, will meet with President Vladimir V. Putin for “necessary coordination,” as negotiations with the U.S. to end the conflict have stalled.`\
+https://www.nytimes.com/2026/04/27/world/europe/iran-foreign-minister-russia.html
+
+**Who’s Really Running Iran?**\
+`The killing of Ayatollah Ali Khamenei ushered in a new form of collective leadership, with more power for the Islamic Revolutionary Guards Corps.`\
+https://www.nytimes.com/2026/04/27/podcasts/the-daily/iran-war-peace-talks.html
+
+**Connections Companion No. 1,052**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, April 28, 2026.`\
+https://www.nytimes.com/2026/04/27/crosswords/connections-companion-1052.html
+
+**Inside the Chaos at the Correspondents’ Dinner, and How the U.S. Mint Is Buying Drug Cartel Gold**\
+`Plus, marathon runners shatter a world record.`\
+https://www.nytimes.com/2026/04/27/podcasts/the-headlines/correspondents-dinner-shots-fired-us-mint-idrug-cartel-gold.html
+
+**Film Club: ‘9,192,631,770 Hz’**\
+`What is time, exactly? And how do we measure it?`\
+https://www.nytimes.com/2026/04/27/learning/film-club-9192631770-hz.html
+
+**Strands Sidekick No. 786**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, April 28, 2026.`\
+https://www.nytimes.com/2026/04/27/crosswords/strands-sidekick-786.html
+
+**Wordle Review No. 1,774**\
+`Scroll down for hints and conversation about the puzzle for Monday, April 28, 2026.`\
+https://www.nytimes.com/2026/04/27/crosswords/wordle-review-1774.html
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/27/us/white-house-dinner-trump-shooting/heres-the-latest
+
+**China Orders the Unwinding of Meta’s Acquisition of an A.I. Start-Up**\
+`The impact of the ruling was not immediately clear, but it could send a chilling signal to Chinese tech founders seeking to partner with foreign companies.`\
+https://www.nytimes.com/2026/04/27/business/china-meta-manus-ai-deal.html
+
 **Fighting ‘Sacred’ War in Ukraine, North Korea and Russia Pledge to Deepen Ties**\
 `The two countries discussed long-term military cooperation, as they opened a memorial for North Korean troops killed in Russia’s war in Ukraine.`\
 https://www.nytimes.com/2026/04/27/world/asia/north-korea-memorial-russia-ukraine.html
