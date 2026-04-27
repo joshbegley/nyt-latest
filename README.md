@@ -1,3 +1,11 @@
+**David Malouf, Novelist of Australia’s Divided Heritage, Dies at 92**\
+`Declared a national living treasure in 1997, he wrote poetry and short stories but was best known for his nine novels, including “The Great World.”`\
+https://www.nytimes.com/2026/04/27/books/david-malouf-dead.html
+
+**As Part of Royal Visit, Trumps Will Show Off the White House Bees**\
+`King Charles and Queen Camilla, both avid beekeeping supporters, will visit the White House-shaped hive on the South Lawn.`\
+https://www.nytimes.com/2026/04/27/us/politics/trump-king-charles-white-house-beekeeping.html
+
 **Venice Opera Cuts Ties With Conductor After Months of Dispute**\
 `Beatrice Venezi’s appointment as music director drew scorn from orchestra members who said she was unqualified. She fought back in several interviews.`\
 https://www.nytimes.com/2026/04/27/arts/beatrice-venezi-la-fenice.html
@@ -27,7 +35,7 @@ https://www.nytimes.com/2026/04/27/your-money/longevity-wellness-industry.html
 https://www.nytimes.com/es/2026/04/27/espanol/estados-unidos/atacante-gala-corresponsales-casa-blanca.html
 
 **Canadá afirma que su oro es rastreable y limpio. Así que lo verificamos**\
-`El oro de la Real Casa de la Moneda de Canadá incluye metal procedente de un remolino de fuentes lejanas, incluidas minas colombianas controladas por un cártel de la droga.`\
+`El oro de la Real Casa de la Moneda de Canadá incluye metal procedente de un remolino de fuentes lejanas, incluidas minas colombianas controladas por un cartel de la droga.`\
 https://www.nytimes.com/es/2026/04/27/espanol/mundo/canada-oro-mina-colombia.html
 
 **Today, In Short**\
@@ -69,12 +77,4 @@ https://www.nytimes.com/es/2026/04/27/espanol/estados-unidos/tiroteo-casa-blanca
 **Sergey Brin Moves to the Right, With a ‘MAGA Girlfriend’ by His Side**\
 `After once backing liberal causes, the Google co-founder has praised President Trump, donated to Republicans and spent $57 million to try to block a California billionaire tax.`\
 https://www.nytimes.com/2026/04/27/us/politics/sergey-brin-gg-soto-trump-california-billionaire-tax.html
-
-**Mali’s Defense Minister Killed in Islamist Attacks**\
-`Mali’s defense minister was killed in attacks over the weekend by militants linked to Al Qaeda, a government spokesman said.`\
-https://www.nytimes.com/video/world/africa/100000010864782/mali-defense-minister-killed-al-qaeda-militants.html
-
-**El tiroteo de la cena de corresponsales de la Casa Blanca desata especulaciones en internet**\
-`Los influentes se lanzaron a llenar el vacío informativo con teorías conspirativas sobre el ataque en la cena de corresponsales de la Casa Blanca del sábado.`\
-https://www.nytimes.com/es/2026/04/27/espanol/negocios/tiroteo-casa-blanca-teorias-internet.html
 
