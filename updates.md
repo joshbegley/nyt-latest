@@ -1,3 +1,11 @@
+**Student News Quiz: Political Shooting, Running Milestone, Chernobyl**\
+`Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
+https://www.nytimes.com/interactive/2026/04/27/learning/27StudentNewsQuiz.html
+
+**Investigators Seeking Attacker’s Motive Comb Through an Archive of Posts**\
+`Federal authorities are looking into whether Cole Tomas Allen posted on Bluesky as “coldforce,” who wrote and promoted liberal views that did not stand out on the left-leaning platform.`\
+https://www.nytimes.com/2026/04/27/us/politics/cole-allen-coldforce-bluesky-investigation.html
+
 **Trump Is Dissatisfied With Iran’s Plan to Reopen Strait of Hormuz**\
 `The proposal would have set aside questions about what to do with Iran’s nuclear program.`\
 https://www.nytimes.com/2026/04/27/us/trump-iran-proposal.html
