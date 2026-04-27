@@ -1,3 +1,23 @@
+**Can King Charles Help Heal the U.S.-British Rupture?**\
+`Not since his mother, Queen Elizabeth II, traveled to Washington after the Suez Crisis has a visit by the British monarch come at such a fraught time in Anglo-American relations.`\
+https://www.nytimes.com/2026/04/27/world/europe/can-king-charles-help-heal-the-us-british-rupture.html
+
+**Quote of the Day: Confusion and Fright Among Guests**\
+`Quotation of the Day for Monday, April 27.`\
+https://www.nytimes.com/2026/04/27/pageoneplus/quote-of-the-day-confusion-and-fright-among-guests.html
+
+**8 Memorable Moments From Past British Royal Visits to the U.S.**\
+`With King Charles III and Queen Camilla set to arrive for a state visit with President Trump, we look back at some major moments in previous royal trips to the United States.`\
+https://www.nytimes.com/2026/04/27/world/europe/royal-visits-america-history-trump-uk.html
+
+**The Rising Chinese Automaker Not Named BYD**\
+`Geely is challenging the giant BYD by adapting quickly to swings in demand and energy prices, seizing on interest in electric vehicles prompted by the war in Iran.`\
+https://www.nytimes.com/2026/04/27/business/geely-china-byd-export.html
+
+**No Corrections: April 27, 2026**\
+`No corrections appeared in print on Monday, April 27, 2026.`\
+https://www.nytimes.com/2026/04/27/corrections/no-corrections-april-27-2026.html
+
 **California Billionaire Tax Has Enough Signatures to Land on Ballot, Backers Say**\
 `The measure calls for placing a one-time 5 percent tax on the assets of California residents with at least $1.1 billion. Opponents are backing competing measures to counter the tax.`\
 https://www.nytimes.com/2026/04/26/us/california-billionaire-tax.html

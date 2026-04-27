@@ -1,3 +1,23 @@
+**Can King Charles Help Heal the U.S.-British Rupture?**\
+`Not since his mother, Queen Elizabeth II, traveled to Washington after the Suez Crisis has a visit by the British monarch come at such a fraught time in Anglo-American relations.`\
+https://www.nytimes.com/2026/04/27/world/europe/can-king-charles-help-heal-the-us-british-rupture.html
+
+**Quote of the Day: Confusion and Fright Among Guests**\
+`Quotation of the Day for Monday, April 27.`\
+https://www.nytimes.com/2026/04/27/pageoneplus/quote-of-the-day-confusion-and-fright-among-guests.html
+
+**8 Memorable Moments From Past British Royal Visits to the U.S.**\
+`With King Charles III and Queen Camilla set to arrive for a state visit with President Trump, we look back at some major moments in previous royal trips to the United States.`\
+https://www.nytimes.com/2026/04/27/world/europe/royal-visits-america-history-trump-uk.html
+
+**The Rising Chinese Automaker Not Named BYD**\
+`Geely is challenging the giant BYD by adapting quickly to swings in demand and energy prices, seizing on interest in electric vehicles prompted by the war in Iran.`\
+https://www.nytimes.com/2026/04/27/business/geely-china-byd-export.html
+
+**No Corrections: April 27, 2026**\
+`No corrections appeared in print on Monday, April 27, 2026.`\
+https://www.nytimes.com/2026/04/27/corrections/no-corrections-april-27-2026.html
+
 **California Billionaire Tax Has Enough Signatures to Land on Ballot, Backers Say**\
 `The measure calls for placing a one-time 5 percent tax on the assets of California residents with at least $1.1 billion. Opponents are backing competing measures to counter the tax.`\
 https://www.nytimes.com/2026/04/26/us/california-billionaire-tax.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/04/26/technology/white-house-correspondents-dinner-
 **Most Guests Ducked for Cover. This Man Munched on His Burrata Salad.**\
 `Michael Glantz, a top agent at Creative Artists Agency, calmly ate his appetizer during the commotion at the White House correspondents’ dinner. He had his reasons.`\
 https://www.nytimes.com/2026/04/26/us/politics/man-salad-white-house-correspondents-dinner.html
-
-**The Hotel Where Reagan Was Shot in 1981 Becomes a Crime Scene Again**\
-`The Washington Hilton was the site of an assassination attempt against the 40th president.`\
-https://www.nytimes.com/2026/04/26/us/politics/correspondents-dinner-shooting-washington-hilton-reagan.html
-
-**Former Israeli Premiers Join in Bid to Oust Netanyahu in Elections**\
-`Naftali Bennett, a right-wing politician, and Yair Lapid, a centrist, will merge parties for a vote later this year.`\
-https://www.nytimes.com/2026/04/26/world/middleeast/israel-netanyahu-lapid-bennett.html
-
-**Powerful Storm Sweeps Across Texas and Kills 2, Displacing Dozens**\
-`Thousands remain without power as extensive damage occurred across two counties northwest of Fort Worth.`\
-https://www.nytimes.com/2026/04/26/us/texas-storm-deaths-hail-wind-runaway-bay.html
-
-**What Our Reporter Saw During the D.C. Shooting**\
-`Our reporter was with President Trump at the White House correspondents’ dinner when a gunman breached security. He describes the frantic scenes that unfolded.`\
-https://www.nytimes.com/video/us/politics/100000010863950/white-house-correspondents-dinner-trump-gunman.html
-
-**What to Know About U.S.-Iran Peace Talks**\
-`An Iranian negotiator returned to Pakistan on Sunday, despite the United States abruptly calling off a trip there by its two top negotiators.`\
-https://www.nytimes.com/2026/04/26/world/middleeast/us-iran-peace-talks-pakistan.html
 
