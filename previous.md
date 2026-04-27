@@ -1,3 +1,23 @@
+**Read the Criminal Complaint and Affidavit Charging Cole Tomas Allen**\
+`Allen, 31, of Torrance, Calif., faces three counts, including two federal gun crimes and attempting to assassinate the president of the United States.`\
+https://www.nytimes.com/interactive/2026/04/27/us/affidavit-cole-tomas-allen-white-house-correspondents-dinner-shooting.html
+
+**New Mexico U.S. Senate Election 2026: Latest Polls**\
+`Track the latest polls in the New Mexico U.S. Senate election.`\
+https://www.nytimes.com/interactive/polls/new-mexico-us-senate-election-polls-2026.html
+
+**King Charles and Queen Camilla Arrive in the United States**\
+`The royals will spend four days in the United States, two of them in the capital.`\
+https://www.nytimes.com/2026/04/27/us/politics/king-charles-washington-trump.html
+
+**Cómo rastreamos el oro del gobierno de EE. UU. hasta un cartel de Colombia**\
+`Tres reporteros siguieron las cadenas de suministro para revelar que la Casa de la Moneda de Estados Unidos compra oro procedente de casas de empeño y narcotraficantes extranjeros.`\
+https://www.nytimes.com/es/2026/04/27/espanol/investigacion-oro-colombia-eeuu.html
+
+**Luis Puenzo, Director of Oscar-Winning Argentine Film, Dies at 80**\
+`“The Official Story,” set during Argentina’s brutal military dictatorship, won the country its first Academy Award for best foreign language film, in 1986.`\
+https://www.nytimes.com/2026/04/27/movies/luis-puenzo-dead.html
+
 **Iran Offers Plan to Focus on Strait of Hormuz and Delay Nuclear Talks**\
 `In its latest offer delivered on Sunday, Iran proposed opening the key waterway to shipping traffic and lifting the U.S. blockade, while postponing the thornier nuclear issue until later.`\
 https://www.nytimes.com/2026/04/27/world/middleeast/iran-trump-talks-strait-of-hormuz-nuclear.html
@@ -50,31 +70,11 @@ https://www.nytimes.com/2026/04/27/well/facebook-supplements-health.html
 `The Republican-controlled Legislature is meeting in Tallahassee this week to vote on the map, which would apply for the 2026 midterms if passed.`\
 https://www.nytimes.com/2026/04/27/us/desantis-florida-gop-house-map.html
 
-**A Frightening Night at a Washington Gala**\
+**The Frightening Night at a Washington Gala**\
 `Readers discuss political violence, online rumors, gun control and security measures.`\
 https://www.nytimes.com/2026/04/27/opinion/letters/white-house-correspondents-dinner-shooting.html
 
 **Virginia High Court Weighs Legality of Congressional Map Approved Last Week**\
 `Oral arguments on Monday morning lasted about an hour. It was not clear how justices would rule.`\
 https://www.nytimes.com/2026/04/27/us/virginia-court-congressional-map-redistricting.html
-
-**Can Spending More Improve Your Health and Prolong Your Life?**\
-`The desire to live longer and healthier lives has spawned a growth in services and supplements. So what works best?`\
-https://www.nytimes.com/2026/04/27/your-money/longevity-wellness-industry.html
-
-**¿Qué llevó al sospechoso del ataque a la cena de corresponsales a viajar de costa a costa?**\
-`Antes de embarcarse en un viaje a través de EE. UU., el sospechoso del ataque dejó una serie de explicaciones sobre su ausencia en unos escritos, según las autoridades.`\
-https://www.nytimes.com/es/2026/04/27/espanol/estados-unidos/atacante-gala-corresponsales-casa-blanca.html
-
-**Canadá afirma que su oro es rastreable y limpio. Así que lo verificamos**\
-`El oro de la Real Casa de la Moneda de Canadá incluye metal procedente de un remolino de fuentes lejanas, incluidas minas colombianas controladas por un cartel de la droga.`\
-https://www.nytimes.com/es/2026/04/27/espanol/mundo/canada-oro-mina-colombia.html
-
-**Today, In Short**\
-`“Top Chef.” Zara Larsson. And the latest from the shooting at the correspondents’ dinner.`\
-https://www.nytimes.com/2026/04/27/briefing/today-in-short.html
-
-**Human Remains Found in Tampa Bay in Search for Missing Student**\
-`The remains have not yet been identified, but a former University of South Florida student has been charged in connection with the murders of Nahida Bristy and Zamil Limon.`\
-https://www.nytimes.com/2026/04/27/us/human-remains-usf-student-tampa-bay.html
 

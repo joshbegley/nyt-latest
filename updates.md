@@ -1,3 +1,27 @@
+**Read the Criminal Complaint and Affidavit Charging Cole Tomas Allen**\
+`Allen, 31, of Torrance, Calif., faces three counts, including two federal gun crimes and attempting to assassinate the president of the United States.`\
+https://www.nytimes.com/interactive/2026/04/27/us/affidavit-cole-tomas-allen-white-house-correspondents-dinner-shooting.html
+
+**New Mexico U.S. Senate Election 2026: Latest Polls**\
+`Track the latest polls in the New Mexico U.S. Senate election.`\
+https://www.nytimes.com/interactive/polls/new-mexico-us-senate-election-polls-2026.html
+
+**King Charles and Queen Camilla Arrive in the United States**\
+`The royals will spend four days in the United States, two of them in the capital.`\
+https://www.nytimes.com/2026/04/27/us/politics/king-charles-washington-trump.html
+
+**Cómo rastreamos el oro del gobierno de EE. UU. hasta un cartel de Colombia**\
+`Tres reporteros siguieron las cadenas de suministro para revelar que la Casa de la Moneda de Estados Unidos compra oro procedente de casas de empeño y narcotraficantes extranjeros.`\
+https://www.nytimes.com/es/2026/04/27/espanol/investigacion-oro-colombia-eeuu.html
+
+**Luis Puenzo, Director of Oscar-Winning Argentine Film, Dies at 80**\
+`“The Official Story,” set during Argentina’s brutal military dictatorship, won the country its first Academy Award for best foreign language film, in 1986.`\
+https://www.nytimes.com/2026/04/27/movies/luis-puenzo-dead.html
+
+**The Frightening Night at a Washington Gala**\
+`Readers discuss political violence, online rumors, gun control and security measures.`\
+https://www.nytimes.com/2026/04/27/opinion/letters/white-house-correspondents-dinner-shooting.html
+
 **Iran Offers Plan to Focus on Strait of Hormuz and Delay Nuclear Talks**\
 `In its latest offer delivered on Sunday, Iran proposed opening the key waterway to shipping traffic and lifting the U.S. blockade, while postponing the thornier nuclear issue until later.`\
 https://www.nytimes.com/2026/04/27/world/middleeast/iran-trump-talks-strait-of-hormuz-nuclear.html
