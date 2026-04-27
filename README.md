@@ -1,3 +1,11 @@
+**Musk vs. Altman: A High-Stakes A.I. Clash Goes to Court**\
+`Elon Musk is seeking more than $150 billion in damages and a complete shake-up of OpenAI. The outcome could have big consequences for the artificial intelligence industry.`\
+https://www.nytimes.com/2026/04/27/business/dealbook/musk-altman-ai-trial.html
+
+**Raghu Rai, Photographer Who Captured Modern India, Dies at 83**\
+`Mr. Rai documented major figures like the Dalai Lama and Indira Gandhi, as well as the victims of a poison gas leak in the city of Bhopal.`\
+https://www.nytimes.com/2026/04/27/world/asia/raghu-rai-photographer-dead.html
+
 **Gold Standards**\
 `We explore a Times investigation into the gold market.`\
 https://www.nytimes.com/2026/04/27/briefing/gold-standards.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/27/upshot/cheap-electric-cars-gas-prices.html
 **The Democrats’ Premature Elation Trap**\
 `The midterms look promising. Looks can deceive.`\
 https://www.nytimes.com/2026/04/27/opinion/democrats-midterms.html
-
-**Bernie Sanders Presses Democrats to Swear Off Super PACs in Primaries**\
-`The independent senator from Vermont says top Democrats should tell candidates they will otherwise lose access to party resources.`\
-https://www.nytimes.com/2026/04/27/us/bernie-sanders-super-pacs-democrats-primaries.html
-
-**What’s Your Ideal Summer Job?**\
-`Have you ever considered being a lifeguard?`\
-https://www.nytimes.com/2026/04/27/learning/whats-your-ideal-summer-job.html
 
