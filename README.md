@@ -1,3 +1,35 @@
+**Sergey Brin Moves to the Right, With a ‘MAGA Girlfriend’ by His Side**\
+`After once backing liberal causes, the Google co-founder has praised President Trump, donated to Republicans and spent $57 million to try to block a California billionaire tax.`\
+https://www.nytimes.com/2026/04/27/us/politics/sergey-brin-gg-soto-trump-california-billionaire-tax.html
+
+**Mali’s Defense Minister Killed in Islamist Attacks**\
+`Mali’s defense minister was killed in attacks over the weekend by militants linked to Al Qaeda, a government spokesman said.`\
+https://www.nytimes.com/video/world/africa/100000010864782/mali-defense-minister-killed-al-qaeda-militants.html
+
+**El tiroteo de la cena de corresponsales de la Casa Blanca desata especulaciones en internet**\
+`Los influentes se lanzaron a llenar el vacío informativo con teorías conspirativas sobre el ataque en la cena de corresponsales de la Casa Blanca del sábado.`\
+https://www.nytimes.com/es/2026/04/27/espanol/negocios/tiroteo-casa-blanca-teorias-internet.html
+
+**Can You Identify These Poems and Places?**\
+`Try this quick trivia challenge and celebrate the world of poetry.`\
+https://www.nytimes.com/interactive/2026/04/27/books/review/poetry-places-quiz.html
+
+**Jammy Chicken Thighs, Good Any Time of Year**\
+``\
+https://www.nytimes.com/2026/04/27/dining/jammy-chicken-thighs-good-any-time-of-year.html
+
+**War and Nachos on My Social Media Feed**\
+`The feed makes everything, bombs and nachos and the dead, weigh the same. Which is to say: nothing.`\
+https://www.nytimes.com/2026/04/27/opinion/culture/war-and-nachos-on-my-social-media-feed.html
+
+**Deadly Storm Brings Tornadoes and Severe Weather to North Texas**\
+`A tornado-producing storm in North Texas left at least two people dead, dozens of others displaced and several thousand more without power, according to local officials.`\
+https://www.nytimes.com/video/weather/100000010864867/north-texas-storm-tornado-deaths.html
+
+**Severe Storms Expected Across the Midwest on Monday**\
+`Areas around St. Louis could face tornadoes, forecasters said. Dangerous weather has unfolded across the Midwest in recent days.`\
+https://www.nytimes.com/2026/04/27/weather/missouri-illinois-tornado-forecast.html
+
 **Altman, Musk and the A.I. Spectacle Come to ‘The Town’**\
 `Oakland, Calif., where Elon Musk’s trial against OpenAI and its chief executive, Sam Altman, starts on Monday, is not exactly known as a hub of the tech industry.`\
 https://www.nytimes.com/2026/04/27/technology/altman-musk-openai-ai-oakland.html
@@ -45,36 +77,4 @@ https://www.nytimes.com/2026/04/27/world/asia/raghu-rai-photographer-dead.html
 **Gold Standards**\
 `We explore a Times investigation into the gold market.`\
 https://www.nytimes.com/2026/04/27/briefing/gold-standards.html
-
-**The Iran War Is Starting to Expose Cracks in China’s Economy**\
-`China’s strategic reserves of oil and natural gas have insulated it somewhat, but its manufacturing-based economy is beginning to falter.`\
-https://www.nytimes.com/2026/04/27/business/china-economy-iran-war.html
-
-**Top Iranian Official Meets Putin in Russia to Discuss the Middle East War**\
-`Abbas Araghchi, Iran’s foreign minister, met with President Vladimir V. Putin. Moscow, an ally of Iran, has sought to avoid becoming too entangled in the conflict although it wants to remain a key player in the region.`\
-https://www.nytimes.com/2026/04/27/world/europe/iran-foreign-minister-russia.html
-
-**Who’s Really Running Iran?**\
-`The killing of Ayatollah Ali Khamenei ushered in a new form of collective leadership, with more power for the Islamic Revolutionary Guards Corps.`\
-https://www.nytimes.com/2026/04/27/podcasts/the-daily/iran-war-peace-talks.html
-
-**Connections Companion No. 1,052**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, April 28, 2026.`\
-https://www.nytimes.com/2026/04/27/crosswords/connections-companion-1052.html
-
-**Inside the Chaos at the Correspondents’ Dinner, and How the U.S. Mint Is Buying Drug Cartel Gold**\
-`Plus, marathon runners shatter a world record.`\
-https://www.nytimes.com/2026/04/27/podcasts/the-headlines/correspondents-dinner-shots-fired-us-mint-idrug-cartel-gold.html
-
-**Film Club: ‘9,192,631,770 Hz’**\
-`What is time, exactly? And how do we measure it?`\
-https://www.nytimes.com/2026/04/27/learning/film-club-9192631770-hz.html
-
-**Strands Sidekick No. 786**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, April 28, 2026.`\
-https://www.nytimes.com/2026/04/27/crosswords/strands-sidekick-786.html
-
-**Wordle Review No. 1,774**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, April 28, 2026.`\
-https://www.nytimes.com/2026/04/27/crosswords/wordle-review-1774.html
 
