@@ -1,3 +1,7 @@
+**Can Spending More Improve Your Health and Prolong Your Life?**\
+`The desire to live longer and healthier lives has spawned a growth in services and supplements. So what works best?`\
+https://www.nytimes.com/2026/04/27/your-money/longevity-wellness-industry.html
+
 **¿Qué llevó al sospechoso del ataque a la cena de corresponsales a viajar de costa a costa?**\
 `Antes de embarcarse en un viaje a través de EE. UU., el sospechoso del ataque dejó una serie de explicaciones sobre su ausencia en unos escritos, según las autoridades.`\
 https://www.nytimes.com/es/2026/04/27/espanol/estados-unidos/atacante-gala-corresponsales-casa-blanca.html
