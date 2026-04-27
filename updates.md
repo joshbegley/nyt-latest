@@ -1,3 +1,7 @@
+**A Frightening Night at a Washington Gala**\
+`Readers discuss political violence, online rumors, gun control and security measures.`\
+https://www.nytimes.com/2026/04/27/opinion/letters/white-house-correspondents-dinner-shooting.html
+
 **Man Sentenced to 115 Years for Killing N.Y.P.D. Officer in Queens**\
 `Guy Rivera faces the rest of his life in prison for fatally shooting Detective Jonathan Diller and attempting to kill his partner when they asked him to get out of his car.`\
 https://www.nytimes.com/2026/04/27/nyregion/rivera-nypd-diller-queens-shooting.html
