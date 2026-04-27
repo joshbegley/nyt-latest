@@ -39,7 +39,7 @@ https://www.nytimes.com/2026/04/27/crosswords/wordle-review-1774.html
 https://www.nytimes.com/live/2026/04/27/us/white-house-dinner-trump-shooting/heres-the-latest
 
 **China Orders the Unwinding of Meta’s Acquisition of an A.I. Start-Up**\
-`The impact of the ruling was not immediately clear, but it could send a chilling signal to Chinese tech founders seeking to partner with foreign companies.`\
+`The impact of the ruling was not immediately clear, but it could send a chilling signal to Chinese tech founders seeking to team up with foreign companies.`\
 https://www.nytimes.com/2026/04/27/business/china-meta-manus-ai-deal.html
 
 **Fighting ‘Sacred’ War in Ukraine, North Korea and Russia Pledge to Deepen Ties**\
