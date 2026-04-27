@@ -1,3 +1,11 @@
+**From Indiana to Idaho, a Backlash Against A.I. Gathers Momentum**\
+`The widening movement is pulling in people from all walks of life, united by a worry that Big Tech will cash in while average Americans bear the costs.`\
+https://www.nytimes.com/2026/04/27/technology/ai-artificial-intelligence-backlash.html
+
+**How the Trump Administration Ended Independent Science at the E.P.A.**\
+`The agency’s prestigious research office spent decades doing scientific work insulated from political pressure. Now it’s being dismantled.`\
+https://www.nytimes.com/2026/04/27/climate/epa-science-trump-cuts.html
+
 **Map: 3.3-Magnitude Earthquake Shakes Los Angeles Area**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/04/27/us/quake-tracker-southern-california.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/27/business/united-airlines-american-merger.html
 **Pregnancy With Lupus Is Risky. Would She Be Able to Carry Her Baby to Term?**\
 `Fatimah Shepherd’s kidneys were compromised, and pregnancy could send her into kidney failure.`\
 https://www.nytimes.com/2026/04/27/science/lupus-pregnancy-kidney-failure.html
-
-**Hezbollah Vows to Keep Its Weapons as Lebanon Says Israeli Strikes Killed 14**\
-`Despite a cease-fire, Israel and Hezbollah have been trading attacks almost daily.`\
-https://www.nytimes.com/2026/04/27/world/middleeast/hezbollah-weapons-lebanon-israel.html
-
-**Musk vs. Altman: A High-Stakes A.I. Clash Goes to Court**\
-`Elon Musk is seeking more than $150 billion in damages and a complete shake-up of OpenAI. The outcome could have big consequences for the artificial intelligence industry.`\
-https://www.nytimes.com/2026/04/27/business/dealbook/musk-altman-ai-trial.html
 
