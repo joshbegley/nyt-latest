@@ -1,4 +1,4 @@
-**Map: 3.4-Magnitude Earthquake Shakes Los Angeles Area**\
+**Map: 3.3-Magnitude Earthquake Shakes Los Angeles Area**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/04/27/us/quake-tracker-southern-california.html
 
@@ -70,7 +70,7 @@ https://www.nytimes.com/2026/04/27/business/united-airlines-american-merger.html
 `Fatimah Shepherd’s kidneys were compromised, and pregnancy could send her into kidney failure.`\
 https://www.nytimes.com/2026/04/27/science/lupus-pregnancy-kidney-failure.html
 
-**Hezbollah Says It Will Keep Weapons as Lebanon Says Israeli Strikes Killed 14**\
+**Hezbollah Vows to Keep Its Weapons as Lebanon Says Israeli Strikes Killed 14**\
 `Despite a cease-fire, Israel and Hezbollah have been trading attacks almost daily.`\
 https://www.nytimes.com/2026/04/27/world/middleeast/hezbollah-weapons-lebanon-israel.html
 
