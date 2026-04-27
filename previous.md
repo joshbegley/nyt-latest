@@ -1,80 +1,80 @@
-**Mali’s Defense Minister Killed in Attacks by Islamist Insurgents**\
-`The death of the minister, Gen. Sadio Camara, a central figure in the country’s military government, comes amid escalating violence in the region.`\
-https://www.nytimes.com/2026/04/27/world/africa/mali-defense-minster-killed.html
+**What’s Your Ideal Summer Job?**\
+`Have you ever considered being a lifeguard?`\
+https://www.nytimes.com/2026/04/27/learning/whats-your-ideal-summer-job.html
 
-**F.B.I. Patrols Neighborhood of Man Held in Connection to Gala Shooting**\
-`The F.B.I was seen at the home of a man held in connection with the shooting at the White House correspondents’ dinner. Residents of Torrance, Calif. said they were surprised to hear that the suspect appeared to be from their neighborhood.`\
-https://www.nytimes.com/video/us/100000010864566/suspect-shooting-washington-dinner.html
+**A Little Museum and a 56-Story Tower**\
+`The U.S.S. Monitor took part in an important Civil War battle. Near where it was built, a battle over a development project is heating up.`\
+https://www.nytimes.com/2026/04/27/nyregion/monitor-point-ship-real-estate.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/04/27/crosswords/spelling-bee-forum.html
+**60 Countries to Meet on Phasing Out Fossil Fuels but Are Excluding the U.S.**\
+`The Trump administration was not invited to the gathering in Santa Marta, Colombia. A White House spokeswoman called the green transition “destructive.”`\
+https://www.nytimes.com/2026/04/27/climate/60-countries-to-meet-on-phasing-out-fossil-fuels-but-are-excluding-the-us.html
 
-****\
-`tktkt`\
-https://www.nytimes.com/video/embedded/business/100000010864703/Biz-Japan-Bathhouse-video.html
+**The U.S. Started the War. The Rest of the World Is Feeling the Effects.**\
+`In just eight weeks, much of the global economy has been knocked sideways. America has mostly been spared from the tumult.`\
+https://www.nytimes.com/2026/04/27/business/economy/iran-war-global-growth.html
 
-**Eran la ‘segunda familia’ de Michael Jackson. Ahora dicen que abusó de ellos**\
-`Tras haberlo apoyado durante años ante las acusaciones de abuso sexual infantil, los hermanos Cascio han demandado al patrimonio de Michael Jackson.`\
-https://www.nytimes.com/es/2026/04/27/espanol/cultura/michael-jacksons-familia-cascio.html
+**What’s Next in the Nationwide Redistricting Fight**\
+`All eyes are on Florida and Virginia, where a special session and courtroom proceedings set for this week factor into the battle for the House in the midterms.`\
+https://www.nytimes.com/2026/04/27/us/politics/redistricting-florida-virginia-midterms.html
 
-**Word of the Day: calumny**\
-`This word has appeared in eight articles on NYTimes.com in the past two years. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/04/27/learning/word-of-the-day-calumny.html
+**Oprah Winfrey Moves Her Podcast (and Books and Products) to Amazon**\
+`The multiyear deal with Ms. Winfrey signifies the tech giant’s growing ambitions in video podcasts.`\
+https://www.nytimes.com/2026/04/27/business/media/oprah-winfrey-video-podcast-amazon.html
 
-**‘Widow’s Bay,’ and 6 More Things to Watch on TV This Week**\
-`The Apple TV show starring Matthew Rhys premieres, and two true crime documentaries air.`\
-https://www.nytimes.com/2026/04/27/arts/television/widows-bay-what-to-watch-on-tv.html
+**Where Have All the Book Reviews Gone?**\
+`What the rise of A.I. and the gutting of books coverage across U.S. media will mean for literature.`\
+https://www.nytimes.com/2026/04/27/books/review/ai-book-reviews.html
 
-**U.S. Military Strikes Another Boat in Eastern Pacific, Killing 3**\
-`The United States has carried out dozens of boat strikes since September against people the Trump administration accuses of smuggling drugs.`\
-https://www.nytimes.com/2026/04/27/world/americas/us-military-boat-strike-pacific-drugs.html
+**How a Housing Organizer and Her Son Live on $89,000 Near Central Park**\
+`Angela Donadelle lives with her son Christopher Jones in an East Harlem complex she fought to keep affordable because they wanted to stay in the city.`\
+https://www.nytimes.com/interactive/2026/04/27/nyregion/nyc-budgeting-affordability-donadelle.html
 
-**Trump pretende abolir las reservas atómicas de Irán, un problema que él ayudó a crear**\
-`El presidente Trump se retiró del acuerdo nuclear de la era Obama en 2018. Pero Irán respondió con una oleada de enriquecimiento que tensa las negociaciones actuales.`\
-https://www.nytimes.com/es/2026/04/27/espanol/estados-unidos/trump-iran-reservas-atomicas.html
+**An Upstate Retreat That Grew Into a Family Compound**\
+`An artist bought 20 bucolic acres in Germantown, N.Y., for a home and studio. It ended up as a favorite destination for extended family and friends.`\
+https://www.nytimes.com/2026/04/27/realestate/germantown-ny-art-studio-home.html
 
-**Can King Charles Help Heal the U.S.-British Rupture?**\
-`Not since his mother, Queen Elizabeth II, traveled to Washington after the Suez Crisis has a visit by the British monarch come at such a fraught time in Anglo-American relations.`\
-https://www.nytimes.com/2026/04/27/world/europe/can-king-charles-help-heal-the-us-british-rupture.html
+**Lizzo Takes a Loss on the Sale of Her Beverly Hills Mansion**\
+`Lizzo bought the home four years ago. Jeff Green, the N.B.A. star, also sold a mansion in Miami, and Jesse McCartney listed one in L.A.`\
+https://www.nytimes.com/2026/04/27/realestate/lizzo-jeff-green-mansion-sales-jesse-mccartney-listing.html
 
-**Quote of the Day: Confusion and Fright Among Guests**\
-`Quotation of the Day for Monday, April 27.`\
-https://www.nytimes.com/2026/04/27/pageoneplus/quote-of-the-day-confusion-and-fright-among-guests.html
+**Immaculate Wilderness, Uncertain Future: Paddling the Boundary Waters**\
+`A proposed copper mine in northern Minnesota has become a battleground for politicians and environmentalists — and a pressing reason to explore the waterways.`\
+https://www.nytimes.com/2026/04/27/travel/boundary-waters-copper-mine.html
 
-**8 Memorable Moments From Past British Royal Visits to the U.S.**\
-`With King Charles III and Queen Camilla set to arrive for a state visit with President Trump, we look back at some major moments in previous royal trips to the United States.`\
-https://www.nytimes.com/2026/04/27/world/europe/royal-visits-america-history-trump-uk.html
+**It’s the Age of Electricity and America Isn’t Ready**\
+`Our grid is too old and our supply of electricity too small. If we don’t meet this moment, we will face an impoverished future.`\
+https://www.nytimes.com/interactive/2026/04/27/opinion/electricity-power-grid-infrastructure.html
 
-**The Rising Chinese Automaker Not Named BYD**\
-`Geely is challenging the giant BYD by adapting quickly to swings in demand and energy prices, seizing on interest in electric vehicles prompted by the war in Iran.`\
-https://www.nytimes.com/2026/04/27/business/geely-china-byd-export.html
+**By Week’s End, Trump’s War Will Be Plainly Illegal**\
+`Federal judges have a duty to enforce the War Powers Act.`\
+https://www.nytimes.com/2026/04/27/opinion/trump-iran-war-powers.html
 
-**No Corrections: April 27, 2026**\
-`No corrections appeared in print on Monday, April 27, 2026.`\
-https://www.nytimes.com/2026/04/27/corrections/no-corrections-april-27-2026.html
+**Zoë Kravitz and Harry Styles? Weren’t They Just With …**\
+`To the average person, celebrity relationships can appear to move at a clip. There are a number of reasons for that.`\
+https://www.nytimes.com/2026/04/27/style/zoe-kravitz-harry-styles-celebrity-engagements.html
 
-**California Billionaire Tax Has Signatures Needed for Ballot, Backers Say**\
-`The measure calls for placing a one-time 5 percent tax on the assets of California residents with at least $1.1 billion. Opponents are backing competing measures to counter the tax.`\
-https://www.nytimes.com/2026/04/26/us/california-billionaire-tax.html
+**Why Trump Wants Unqualified U.S. Attorneys**\
+`Revenge-based criminal cases against the president’s enemies have not come to fruition. That’s where the U.S. attorneys come in.`\
+https://www.nytimes.com/2026/04/27/opinion/trump-attorney-general.html
 
-**‘The Comeback’ Season 3, Episode 6 Recap: Everything Breaks**\
-`Valerie has been terrible at keeping the A.I. thing a secret. Almost as terrible as Billy is at being her manager.`\
-https://www.nytimes.com/2026/04/26/arts/television/the-comeback-recap-season-3-episode-6.html
+**For the Modern C.E.O., It’s All About Being ‘Resilient’**\
+`The ability to stay calm and lead through any kind of shock is the new normal for corporate executives.`\
+https://www.nytimes.com/2026/04/27/business/ceo-companies-resilience-iran-war-inflation.html
 
-**‘The Lost Boys’ Review: Live, Die, Reprise**\
-`A Broadway musical adaptation of the 1987 movie gets a lot of mileage from ’80s rocker aesthetics and over-the-top spectacle — until its second half.`\
-https://www.nytimes.com/2026/04/26/theater/the-lost-boys-review.html
+**Supreme Court Reviews Police Use of Cell Location Data to Find Criminals**\
+`Geofence searches allow law enforcement to find suspects and witnesses by sweeping up location data from cellphone users near crime scenes.`\
+https://www.nytimes.com/2026/04/27/us/politics/supreme-court-cell-data-geofence.html
 
-**Cómo el retrato de una estrella del pop impulsó la carrera de una artista española**\
-`Nieves González, una pintora de 29 años, trabajaba antes en un relativo anonimato en Andalucía. Retratar a la cantante británica Lily Allen cambió eso.`\
-https://www.nytimes.com/es/2026/04/26/espanol/cultura/nieves-gonzalez-lily-allen-artista-west-end-girl.html
+**Inside a Once-Grand Building That Housed the Vulnerable for a Century**\
+`A shelter for men near Bellevue Hospital is closing. It is a symbol of an approach to homelessness that the Mamdani administration hopes to leave behind.`\
+https://www.nytimes.com/2026/04/27/nyregion/bellevue-shelter-closing-nyc.html
 
-**Oil Rises and Stocks Waver as Peace Talks Stall**\
-`Oil prices rose and stocks fell after President Trump called off a trip to Pakistan by two U.S. negotiators for peace talks with Iran.`\
-https://www.nytimes.com/2026/04/26/business/oil-stocks-gas-iran.html
+**For a Dance Battle on a New Stage, She Decided to Be ‘Fearless’**\
+`Courtney Washington made her name as a choreographer in street-dance competitions and on the ballroom scene. Now, she’s making a work for Parsons Dance.`\
+https://www.nytimes.com/2026/04/27/arts/dance/courtney-washington-ballroom-juicy-couture-parsons.html
 
-**Dinner, Interrupted: Over Brunch, Journalists Reflect on a Chaotic Night**\
-`Moving to a new venue, or the East Wing? Plans for the White House Correspondents’ Association dinner are fluid following Saturday’s shocking events.`\
-https://www.nytimes.com/2026/04/26/us/politics/white-house-correspondents-dinner-future.html
+**Should My Bag Really Match My Shoes?**\
+`It was once fashion creed to coordinate your purse with your shoes or coat. Our critic explains how that rule has been bent, broken and revived.`\
+https://www.nytimes.com/2026/04/27/fashion/purse-bag-matching-shoes.html
 
