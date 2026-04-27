@@ -1,3 +1,7 @@
+**Judge Delays Order to Force Penn to Turn Over List of Jews on Campus**\
+`The Trump administration had said it needed the information for an antisemitism investigation.`\
+https://www.nytimes.com/2026/04/27/us/trump-subpoena-list-jews-university-pennsylvania.html
+
 **Employment Agency Pushes Discrimination Cases That Match Trump’s Agenda**\
 `Field staff at the Equal Employment Opportunity Commission say they are being pressured to bring politically charged cases, even with little evidence.`\
 https://www.nytimes.com/2026/04/27/us/politics/eeoc-trump-discrimination-cases.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/27/world/canada/canada-sovereign-wealth-fund.htm
 **‘Kenrex’ Review: Plunging Into the Violent World of True Crime**\
 `The play, by Jack Holden and Ed Stambollouian at the Lucille Lortel Theater, tells the story of a brutal bully who was shot and killed in plain view.`\
 https://www.nytimes.com/2026/04/27/theater/kenrex-review.html
-
-**From Indiana to Idaho, a Backlash Against A.I. Gathers Momentum**\
-`The widening movement is pulling in people from all walks of life, united by a worry that Big Tech will cash in while average Americans bear the costs.`\
-https://www.nytimes.com/2026/04/27/technology/ai-artificial-intelligence-backlash.html
 
