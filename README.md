@@ -1,3 +1,11 @@
+**¿Qué llevó al sospechoso del ataque a la cena de corresponsales a viajar de costa a costa?**\
+`Antes de embarcarse en un viaje a través de EE. UU., el sospechoso del ataque dejó una serie de explicaciones sobre su ausencia en unos escritos, según las autoridades.`\
+https://www.nytimes.com/es/2026/04/27/espanol/estados-unidos/atacante-gala-corresponsales-casa-blanca.html
+
+**Canadá afirma que su oro es rastreable y limpio. Así que lo verificamos**\
+`El oro de la Real Casa de la Moneda de Canadá incluye metal procedente de un remolino de fuentes lejanas, incluidas minas colombianas controladas por un cártel de la droga.`\
+https://www.nytimes.com/es/2026/04/27/espanol/mundo/canada-oro-mina-colombia.html
+
 **Today, In Short**\
 `“Top Chef.” Zara Larsson. And the latest from the shooting at the correspondents’ dinner.`\
 https://www.nytimes.com/2026/04/27/briefing/today-in-short.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/27/weather/missouri-illinois-tornado-forecast.ht
 **Altman, Musk and the A.I. Spectacle Come to ‘The Town’**\
 `Oakland, Calif., where Elon Musk’s trial against OpenAI and its chief executive, Sam Altman, starts on Monday, is not exactly known as a hub of the tech industry.`\
 https://www.nytimes.com/2026/04/27/technology/altman-musk-openai-ai-oakland.html
-
-**The Day the Food Noise Died**\
-`Before the rise of GLP-1s, obesity experts didn’t study the internal buzz that compels people to eat. Now that food noise is being switched off, they want to understand it.`\
-https://www.nytimes.com/2026/04/27/health/food-noise-obesity-drugs-glp-1.html
-
-**Microsoft and OpenAI Loosen Their Partnership**\
-`Microsoft, OpenAI’s biggest financial partner, will continue to license the start-up’s technology but will no longer be its exclusive licensee.`\
-https://www.nytimes.com/2026/04/27/technology/microsoft-openai-partnership.html
 
