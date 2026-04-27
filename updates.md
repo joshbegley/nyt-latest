@@ -1,3 +1,15 @@
+**Palabra del día: ‘calumny’**\
+`Esta palabra ha aparecido en ocho artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/04/27/espanol/que-significa-calumny.html
+
+**Longevity Science Is Overhyped. But This Research Really Could Change Humanity.**\
+`A new therapy has the potential to cure hundreds of diseases — and even reverse aging.`\
+https://www.nytimes.com/2026/04/27/magazine/cell-rejuventation-biotech-longevity-research-altos-labs.html
+
+**Top Iranian Official Goes to Russia for Talks With Putin on Middle East War**\
+`Abbas Araghchi, Iran’s foreign minister, met with President Vladimir V. Putin. But Moscow, an ally of Iran, has sought to avoid becoming too entangled in the conflict.`\
+https://www.nytimes.com/2026/04/27/world/europe/iran-foreign-minister-russia.html
+
 **Top Iranian Official Goes to Russia for Talks With Putin on Middle East War**\
 `Abbas Araghchi, Iran’s foreign minister, was meeting with President Vladimir V. Putin. But Moscow, an ally of Iran, has sought to avoid becoming too entangled in the conflict.`\
 https://www.nytimes.com/2026/04/27/world/europe/iran-foreign-minister-russia.html

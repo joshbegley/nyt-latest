@@ -1,3 +1,11 @@
+**Palabra del día: ‘calumny’**\
+`Esta palabra ha aparecido en ocho artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/04/27/espanol/que-significa-calumny.html
+
+**Longevity Science Is Overhyped. But This Research Really Could Change Humanity.**\
+`A new therapy has the potential to cure hundreds of diseases — and even reverse aging.`\
+https://www.nytimes.com/2026/04/27/magazine/cell-rejuventation-biotech-longevity-research-altos-labs.html
+
 **Female Anglican Leader Prays With Pope, Signaling Unity and Recalling Divide**\
 `The meeting highlighted warming ties between two major Christian denominations, as well as longstanding differences on the ordination of women.`\
 https://www.nytimes.com/2026/04/27/world/europe/pope-leo-archbishop-canterbury-mullally-vatican.html
@@ -31,7 +39,7 @@ https://www.nytimes.com/2026/04/27/briefing/gold-standards.html
 https://www.nytimes.com/2026/04/27/business/china-economy-iran-war.html
 
 **Top Iranian Official Goes to Russia for Talks With Putin on Middle East War**\
-`Abbas Araghchi, Iran’s foreign minister, was meeting with President Vladimir V. Putin. But Moscow, an ally of Iran, has sought to avoid becoming too entangled in the conflict.`\
+`Abbas Araghchi, Iran’s foreign minister, met with President Vladimir V. Putin. But Moscow, an ally of Iran, has sought to avoid becoming too entangled in the conflict.`\
 https://www.nytimes.com/2026/04/27/world/europe/iran-foreign-minister-russia.html
 
 **Who’s Really Running Iran?**\
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/27/business/china-meta-manus-ai-deal.html
 **Fighting ‘Sacred’ War in Ukraine, North Korea and Russia Pledge to Deepen Ties**\
 `The two countries discussed long-term military cooperation, as they opened a memorial for North Korean troops killed in Russia’s war in Ukraine.`\
 https://www.nytimes.com/2026/04/27/world/asia/north-korea-memorial-russia-ukraine.html
-
-**Even Before the Gunfire, Many Guests Bore the Scars of Political Violence**\
-`Gunfire at a press gala on Saturday underscored the ever growing club of political figures whose lives have been upended by violence.`\
-https://www.nytimes.com/2026/04/27/us/politics/politics-violence-trump-kirk.html
-
-**‘Michael’ Fans Danced in the Aisles, Critics Be Damned**\
-`The biopic of the pop singer crushed box-office records on its opening weekend as admirers moonwalked to a movie that critics have savaged.`\
-https://www.nytimes.com/2026/04/27/arts/michael-jackson-movie-fan-reactions.html
 
