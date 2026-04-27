@@ -1,3 +1,7 @@
+**Científicos identifican el ‘orbe dorado’, un misterio de las profundidades marinas**\
+`El extraño y brillante descubrimiento, recuperado del océano cerca de Alaska en 2023, dejó perplejos a investigadores de todo el mundo en aquel entonces.`\
+https://www.nytimes.com/es/2026/04/27/espanol/ciencia-y-tecnologia/alaska-orbe-dorado.html
+
 **A. I. High School Is Put on Hold After Parental Backlash**\
 `Families in New York City expressed concerns about the rapid adoption of the technology. The schools chancellor also canceled a plan to close two Upper West Side schools.`\
 https://www.nytimes.com/2026/04/27/nyregion/nyc-ai-high-school-halted.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/27/well/facebook-supplements-health.html
 **DeSantis Proposes Florida House Map That Could Add Four Republican Seats**\
 `The Republican-controlled Legislature is meeting in Tallahassee this week to vote on the map, which would apply for the 2026 midterms if passed.`\
 https://www.nytimes.com/2026/04/27/us/desantis-florida-gop-house-map.html
-
-**The Frightening Night at a Washington Gala**\
-`Readers discuss political violence, online rumors, gun control and security measures.`\
-https://www.nytimes.com/2026/04/27/opinion/letters/white-house-correspondents-dinner-shooting.html
 
