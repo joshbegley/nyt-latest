@@ -1,5 +1,5 @@
 **Pentagon Can Temporarily Require Escorts for Journalists**\
-`An appeals panel ruled that the Defense Department can require escorts for reporters in the building while the agency fights an earlier ruling that found many of the agency’s press restrictions unconstitutional.`\
+`An appeals panel ruled that the Defense Department can require escorts for reporters in the building while it fights an earlier decision that overturned many of the agency’s press rules.`\
 https://www.nytimes.com/2026/04/27/business/media/pentagon-press-restrictions-escorts.html
 
 **U.S. Government Will Stop Paying for Test Strips to Detect Deadly Drugs**\
