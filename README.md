@@ -1,3 +1,7 @@
+**At a Moment of Chaos in Trump’s Washington, the Royals Come to Town**\
+`Presidents use state visits to show off all that is appealing about American culture. But the shooting at the White House correspondents’ dinner has cast a shadow over the visit.`\
+https://www.nytimes.com/2026/04/27/us/politics/washington-chaos-royals-visit.html
+
 **At the ‘Euphoria’ Wedding, All Eyes Were on the Guests**\
 `At Cassie and Nate’s nuptials, guests arrived to steal the show, and that was the point. Natasha Newman-Thomas, the show’s costume designer, used attention-grabbing looks to reflect each character’s evolution.`\
 https://www.nytimes.com/2026/04/27/style/euphoria-wedding-guests-fashion.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/04/27/world/nuclear-deal-iran-trump-assasination-ch
 **Republicans Push for Trump’s White House Ballroom After Gala Attack**\
 `The attack on a press dinner in Washington, which is being called an attempted assassination of President Trump, has also renewed the fight over reopening the Homeland Security Department.`\
 https://www.nytimes.com/2026/04/27/us/politics/trump-ballroom-white-house-dinner-shooting.html
-
-**Trump Administration Will Pay More Energy Firms to Cancel Wind Farms**\
-`In exchange, the companies will invest in oil and gas projects, echoing an earlier deal with the French energy giant TotalEnergies.`\
-https://www.nytimes.com/2026/04/27/climate/trump-administration-wind-farms.html
 
