@@ -1,3 +1,7 @@
+**Elon Musk Takes OpenAI to Court**\
+`Also, Trump hosts King Charles III and Queen Camilla. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/04/27/briefing/elon-musk-openai-best-books-so-far.html
+
 **Budget Airlines Ask Trump Administration for Billions as Fuel Costs Rise**\
 `A trade group for the airlines is seeking $2.5 billion to help offset the big jump in jet fuel costs since the start of U.S.-Israeli attacks against Iran.`\
 https://www.nytimes.com/2026/04/27/business/budget-airlines-trump-bailout.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/04/27/world/middleeast/iran-trump-talks-strait-of-h
 **A Guilty Plea in Jam Master Jay’s Murder, Two Decades Later**\
 `Jay Bryant’s admission of guilt on Monday was the first time anyone had publicly acknowledged orchestrating the 2002 killing of Jam Master Jay, the D.J. of Run-DMC.`\
 https://www.nytimes.com/2026/04/27/nyregion/jam-master-jay-run-dmc-murder-plea.html
-
-**Man Sentenced to 115 Years for Killing N.Y.P.D. Officer in Queens**\
-`Guy Rivera faces the rest of his life in prison for fatally shooting Detective Jonathan Diller and attempting to kill his partner when they asked him to get out of his car.`\
-https://www.nytimes.com/2026/04/27/nyregion/rivera-nypd-diller-queens-shooting.html
 

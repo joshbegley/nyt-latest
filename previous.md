@@ -1,3 +1,11 @@
+**Budget Airlines Ask Trump Administration for Billions as Fuel Costs Rise**\
+`A trade group for the airlines is seeking $2.5 billion to help offset the big jump in jet fuel costs since the start of U.S.-Israeli attacks against Iran.`\
+https://www.nytimes.com/2026/04/27/business/budget-airlines-trump-bailout.html
+
+**Mali Rebels Deal Major Blow to Junta and Russian Mercenaries**\
+`Coordinated attacks signified a major escalation of insurgent violence in a region of West Africa where military leaders had seized power and warmed to Moscow in recent years.`\
+https://www.nytimes.com/2026/04/27/world/africa/mali-jnim-violence-russia.html
+
 **TK**\
 `TK`\
 https://static01.nyt.com/slideshow/2026/04/27/t-magazine/tk.html
@@ -65,12 +73,4 @@ https://www.nytimes.com/2026/04/27/nyregion/jam-master-jay-run-dmc-murder-plea.h
 **Man Sentenced to 115 Years for Killing N.Y.P.D. Officer in Queens**\
 `Guy Rivera faces the rest of his life in prison for fatally shooting Detective Jonathan Diller and attempting to kill his partner when they asked him to get out of his car.`\
 https://www.nytimes.com/2026/04/27/nyregion/rivera-nypd-diller-queens-shooting.html
-
-**Judge Delays Order to Force Penn to Turn Over List of Jews on Campus**\
-`The Trump administration had said it needed the information for an antisemitism investigation.`\
-https://www.nytimes.com/2026/04/27/us/trump-subpoena-list-jews-university-pennsylvania.html
-
-**Employment Agency Pushes Discrimination Cases That Match Trump’s Agenda**\
-`Field staff at the Equal Employment Opportunity Commission say they are being pressured to bring politically charged cases, even with little evidence.`\
-https://www.nytimes.com/2026/04/27/us/politics/eeoc-trump-discrimination-cases.html
 
