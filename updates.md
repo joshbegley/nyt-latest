@@ -1,3 +1,35 @@
+**Sergey Brin Moves to the Right, With a ‘MAGA Girlfriend’ by His Side**\
+`After once backing liberal causes, the Google co-founder has praised President Trump, donated to Republicans and spent $57 million to try to block a California billionaire tax.`\
+https://www.nytimes.com/2026/04/27/us/politics/sergey-brin-gg-soto-trump-california-billionaire-tax.html
+
+**Mali’s Defense Minister Killed in Islamist Attacks**\
+`Mali’s defense minister was killed in attacks over the weekend by militants linked to Al Qaeda, a government spokesman said.`\
+https://www.nytimes.com/video/world/africa/100000010864782/mali-defense-minister-killed-al-qaeda-militants.html
+
+**El tiroteo de la cena de corresponsales de la Casa Blanca desata especulaciones en internet**\
+`Los influentes se lanzaron a llenar el vacío informativo con teorías conspirativas sobre el ataque en la cena de corresponsales de la Casa Blanca del sábado.`\
+https://www.nytimes.com/es/2026/04/27/espanol/negocios/tiroteo-casa-blanca-teorias-internet.html
+
+**Can You Identify These Poems and Places?**\
+`Try this quick trivia challenge and celebrate the world of poetry.`\
+https://www.nytimes.com/interactive/2026/04/27/books/review/poetry-places-quiz.html
+
+**Jammy Chicken Thighs, Good Any Time of Year**\
+``\
+https://www.nytimes.com/2026/04/27/dining/jammy-chicken-thighs-good-any-time-of-year.html
+
+**War and Nachos on My Social Media Feed**\
+`The feed makes everything, bombs and nachos and the dead, weigh the same. Which is to say: nothing.`\
+https://www.nytimes.com/2026/04/27/opinion/culture/war-and-nachos-on-my-social-media-feed.html
+
+**Deadly Storm Brings Tornadoes and Severe Weather to North Texas**\
+`A tornado-producing storm in North Texas left at least two people dead, dozens of others displaced and several thousand more without power, according to local officials.`\
+https://www.nytimes.com/video/weather/100000010864867/north-texas-storm-tornado-deaths.html
+
+**Severe Storms Expected Across the Midwest on Monday**\
+`Areas around St. Louis could face tornadoes, forecasters said. Dangerous weather has unfolded across the Midwest in recent days.`\
+https://www.nytimes.com/2026/04/27/weather/missouri-illinois-tornado-forecast.html
+
 **Altman, Musk and the A.I. Spectacle Come to ‘The Town’**\
 `Oakland, Calif., where Elon Musk’s trial against OpenAI and its chief executive, Sam Altman, starts on Monday, is not exactly known as a hub of the tech industry.`\
 https://www.nytimes.com/2026/04/27/technology/altman-musk-openai-ai-oakland.html
