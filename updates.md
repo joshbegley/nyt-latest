@@ -1,3 +1,11 @@
+**A Frightening Night at the Washington Gala**\
+`Readers discuss political violence, online rumors, gun control and security measures.`\
+https://www.nytimes.com/2026/04/27/opinion/letters/white-house-correspondents-dinner-shooting.html
+
+**Virginia High Court Weighs Legality of Congressional Map Approved Last Week**\
+`Oral arguments on Monday morning lasted about an hour. It was not clear how justices would rule.`\
+https://www.nytimes.com/2026/04/27/us/virginia-high-court-weighs-legality-of-congressional-map-approved-last-week.html
+
 **Can Spending More Improve Your Health and Prolong Your Life?**\
 `The desire to live longer and healthier lives has spawned a growth in services and supplements. So what works best?`\
 https://www.nytimes.com/2026/04/27/your-money/longevity-wellness-industry.html
