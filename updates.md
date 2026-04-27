@@ -1,3 +1,7 @@
+**Trump pretende abolir las reservas atómicas de Irán, un problema que él ayudó a crear**\
+`El presidente Trump se retiró del acuerdo nuclear de la era Obama en 2018. Pero Irán respondió con una oleada de enriquecimiento que tensa las negociaciones actuales.`\
+https://www.nytimes.com/es/2026/04/27/espanol/estados-unidos/trump-iran-reservas-atomicas.html
+
 **California Billionaire Tax Has Signatures Needed for Ballot, Backers Say**\
 `The measure calls for placing a one-time 5 percent tax on the assets of California residents with at least $1.1 billion. Opponents are backing competing measures to counter the tax.`\
 https://www.nytimes.com/2026/04/26/us/california-billionaire-tax.html

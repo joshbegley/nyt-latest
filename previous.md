@@ -1,3 +1,7 @@
+**Trump pretende abolir las reservas atómicas de Irán, un problema que él ayudó a crear**\
+`El presidente Trump se retiró del acuerdo nuclear de la era Obama en 2018. Pero Irán respondió con una oleada de enriquecimiento que tensa las negociaciones actuales.`\
+https://www.nytimes.com/es/2026/04/27/espanol/estados-unidos/trump-iran-reservas-atomicas.html
+
 **Can King Charles Help Heal the U.S.-British Rupture?**\
 `Not since his mother, Queen Elizabeth II, traveled to Washington after the Suez Crisis has a visit by the British monarch come at such a fraught time in Anglo-American relations.`\
 https://www.nytimes.com/2026/04/27/world/europe/can-king-charles-help-heal-the-us-british-rupture.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/26/world/trump-shooting-dinner-iran-talks.html
 **Rumors and Speculation Swirl Online After Shooting at Washington Dinner**\
 `Influencers jumped to fill the information void with conspiracy theories about the attack at the White House Correspondents’ dinner on Saturday.`\
 https://www.nytimes.com/2026/04/26/technology/white-house-correspondents-dinner-shooting-conspiracy-theories.html
-
-**Most Guests Ducked for Cover. This Man Munched on His Burrata Salad.**\
-`Michael Glantz, a top agent at Creative Artists Agency, calmly ate his appetizer during the commotion at the White House correspondents’ dinner. He had his reasons.`\
-https://www.nytimes.com/2026/04/26/us/politics/man-salad-white-house-correspondents-dinner.html
 
