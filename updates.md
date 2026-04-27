@@ -1,3 +1,7 @@
+**Gold Standards**\
+`We explore a Times investigation into the gold market.`\
+https://www.nytimes.com/2026/04/27/briefing/gold-standards.html
+
 **The Rise of the High-Range, Less Expensive E.V.**\
 `Even as the electric vehicle market has slumped, there are more long-range E.V.s under $40,000 than ever before.`\
 https://www.nytimes.com/2026/04/27/upshot/cheap-electric-cars-gas-prices.html
