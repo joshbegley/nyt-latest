@@ -1,3 +1,7 @@
+**Elon Musk Takes OpenAI to Court**\
+`Also, Trump hosts King Charles III and Queen Camilla. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/04/27/briefing/elon-musk-openai-best-books-so-far.html
+
 **Budget Airlines Ask Trump Administration for Billions as Fuel Costs Rise**\
 `A trade group for the airlines is seeking $2.5 billion to help offset the big jump in jet fuel costs since the start of U.S.-Israeli attacks against Iran.`\
 https://www.nytimes.com/2026/04/27/business/budget-airlines-trump-bailout.html
