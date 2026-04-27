@@ -1,3 +1,7 @@
+**U.S. Military Strikes Another Boat in Eastern Pacific, Killing 3**\
+`The United States has carried out dozens of boat strikes since September against people the Trump administration accuses of smuggling drugs.`\
+https://www.nytimes.com/2026/04/27/world/americas/us-military-boat-strike-pacific-drugs.html
+
 **Trump pretende abolir las reservas atómicas de Irán, un problema que él ayudó a crear**\
 `El presidente Trump se retiró del acuerdo nuclear de la era Obama en 2018. Pero Irán respondió con una oleada de enriquecimiento que tensa las negociaciones actuales.`\
 https://www.nytimes.com/es/2026/04/27/espanol/estados-unidos/trump-iran-reservas-atomicas.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/04/26/world/quake-tracker-northern-japa
 **How a Trump Event Shooting Unfolded**\
 `The gunman had written a “manifesto,” the president said, before trying to enter a dinner in Washington for the White House press corps.`\
 https://www.nytimes.com/2026/04/26/world/trump-shooting-dinner-iran-talks.html
-
-**Rumors and Speculation Swirl Online After Shooting at Washington Dinner**\
-`Influencers jumped to fill the information void with conspiracy theories about the attack at the White House Correspondents’ dinner on Saturday.`\
-https://www.nytimes.com/2026/04/26/technology/white-house-correspondents-dinner-shooting-conspiracy-theories.html
 
