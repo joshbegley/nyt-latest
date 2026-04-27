@@ -1,3 +1,7 @@
+**Employment Agency Pushes Discrimination Cases That Match Trump’s Agenda**\
+`Field staff at the Equal Employment Opportunity Commission say they are being pressured to bring politically charged cases, even with little evidence.`\
+https://www.nytimes.com/2026/04/27/us/politics/eeoc-trump-discrimination-cases.html
+
 **Irán y EE. UU. se hunden en un incómodo limbo de ‘ni guerra ni paz’**\
 `Cada parte apuesta a que puede soportar más que la otra, dicen los analistas. Pero un estancamiento sin acuerdo entraña riesgos.`\
 https://www.nytimes.com/es/2026/04/27/espanol/mundo/ee-uu-guerra-iran-conversaciones-paz.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/27/theater/kenrex-review.html
 **From Indiana to Idaho, a Backlash Against A.I. Gathers Momentum**\
 `The widening movement is pulling in people from all walks of life, united by a worry that Big Tech will cash in while average Americans bear the costs.`\
 https://www.nytimes.com/2026/04/27/technology/ai-artificial-intelligence-backlash.html
-
-**How the Trump Administration Ended Independent Science at the E.P.A.**\
-`The agency’s prestigious research office spent decades doing scientific work insulated from political pressure. Now it’s being dismantled.`\
-https://www.nytimes.com/2026/04/27/climate/epa-science-trump-cuts.html
 
