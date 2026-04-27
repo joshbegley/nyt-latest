@@ -1,3 +1,7 @@
+**Trump Is Dissatisfied With Iran’s Plan to Reopen Strait of Hormuz**\
+`The proposal would have set aside questions about what to do with Iran’s nuclear program.`\
+https://www.nytimes.com/2026/04/27/us/trump-iran-proposal.html
+
 **King Charles Will Speak of ‘Reconciliation and Renewal’ During Address to Congress**\
 `The state visit of King Charles III comes at a moment of tension over the war in Iran between President Trump and Prime Minister Keir Starmer.`\
 https://www.nytimes.com/2026/04/27/us/politics/king-charles-congress-address.html
