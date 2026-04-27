@@ -1,3 +1,19 @@
+**Pentagon Can Temporarily Require Escorts for Journalists**\
+`An appeals panel ruled that the Defense Department can require escorts for reporters in the building while it fights an earlier decision that overturned many of the agency’s press rules.`\
+https://www.nytimes.com/2026/04/27/business/media/pentagon-press-restrictions-escorts.html
+
+**U.S. Government Will Stop Paying for Test Strips to Detect Deadly Drugs**\
+`In a letter to states and other grant recipients, the Trump administration says the strips encourage drug use.`\
+https://www.nytimes.com/2026/04/27/health/trump-fentanyl-test-strips.html
+
+**What Happens When A.I. Runs a Store in San Francisco?**\
+`In San Francisco, an A.I. agent was tasked with running a store. The experiment did not go well. The “Hard Fork” co-hosts Casey Newton and Kevin Roose unpack the story in a recent episode.`\
+https://www.nytimes.com/video/podcasts/100000010866685/what-happens-when-ai-runs-a-store-in-san-francisco.html
+
+**ICE Warehouse Plan Faces Delay Over Lack of Environmental Reviews**\
+`Officials have argued in court filings that the projects are exempt from federally required assessments, but are scrambling after a judge disagreed.`\
+https://www.nytimes.com/2026/04/27/us/politics/ice-warehouse-environmental-review.html
+
 **Charges Against Assassination Suspect Based on Shotgun Shell and a Screed**\
 `The authorities say the California man stormed a black-tie gala on Saturday seeking to kill the president.`\
 https://www.nytimes.com/2026/04/27/us/politics/trump-assassination-attempt-cole-allen-charges.html
@@ -57,20 +73,4 @@ https://www.nytimes.com/2026/04/27/us/politics/trump-jimmy-kimmel-abc-widow-joke
 **Científicos identifican el ‘orbe dorado’, un misterio de las profundidades marinas**\
 `El extraño y brillante descubrimiento, recuperado del océano cerca de Alaska en 2023, dejó perplejos a investigadores de todo el mundo en aquel entonces.`\
 https://www.nytimes.com/es/2026/04/27/espanol/ciencia-y-tecnologia/alaska-orbe-dorado.html
-
-**A.I. High School Is Put on Hold After Parental Backlash**\
-`Families in New York City expressed concerns about the rapid adoption of the technology. The schools chancellor also canceled a plan to close two Upper West Side schools.`\
-https://www.nytimes.com/2026/04/27/nyregion/nyc-ai-high-school-halted.html
-
-**Read the Criminal Complaint and Affidavit Charging Cole Tomas Allen**\
-`Allen, 31, of Torrance, Calif., faces three counts, including two federal gun crimes and attempting to assassinate the president of the United States.`\
-https://www.nytimes.com/interactive/2026/04/27/us/affidavit-cole-tomas-allen-white-house-correspondents-dinner-shooting.html
-
-**New Mexico U.S. Senate Election 2026: Latest Polls**\
-`Track the latest polls in the New Mexico U.S. Senate election.`\
-https://www.nytimes.com/interactive/polls/new-mexico-us-senate-election-polls-2026.html
-
-**King Charles and Queen Camilla Arrive in the United States**\
-`The royals will spend four days in the United States, two of them in the capital.`\
-https://www.nytimes.com/2026/04/27/us/politics/king-charles-washington-trump.html
 

@@ -1,3 +1,19 @@
+**Pentagon Can Temporarily Require Escorts for Journalists**\
+`An appeals panel ruled that the Defense Department can require escorts for reporters in the building while it fights an earlier decision that overturned many of the agency’s press rules.`\
+https://www.nytimes.com/2026/04/27/business/media/pentagon-press-restrictions-escorts.html
+
+**U.S. Government Will Stop Paying for Test Strips to Detect Deadly Drugs**\
+`In a letter to states and other grant recipients, the Trump administration says the strips encourage drug use.`\
+https://www.nytimes.com/2026/04/27/health/trump-fentanyl-test-strips.html
+
+**What Happens When A.I. Runs a Store in San Francisco?**\
+`In San Francisco, an A.I. agent was tasked with running a store. The experiment did not go well. The “Hard Fork” co-hosts Casey Newton and Kevin Roose unpack the story in a recent episode.`\
+https://www.nytimes.com/video/podcasts/100000010866685/what-happens-when-ai-runs-a-store-in-san-francisco.html
+
+**ICE Warehouse Plan Faces Delay Over Lack of Environmental Reviews**\
+`Officials have argued in court filings that the projects are exempt from federally required assessments, but are scrambling after a judge disagreed.`\
+https://www.nytimes.com/2026/04/27/us/politics/ice-warehouse-environmental-review.html
+
 **Charges Against Assassination Suspect Based on Shotgun Shell and a Screed**\
 `The authorities say the California man stormed a black-tie gala on Saturday seeking to kill the president.`\
 https://www.nytimes.com/2026/04/27/us/politics/trump-assassination-attempt-cole-allen-charges.html
