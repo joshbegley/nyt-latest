@@ -1,3 +1,7 @@
+**Altman, Musk and the A.I. Spectacle Come to ‘The Town’**\
+`Oakland, Calif., where Elon Musk’s trial against OpenAI and its chief executive, Sam Altman, starts on Monday, is not exactly known as a hub of the tech industry.`\
+https://www.nytimes.com/2026/04/27/technology/altman-musk-openai-ai-oakland.html
+
 **Top Iranian Official Meets Putin in Russia to Discuss the Middle East War**\
 `Abbas Araghchi, Iran’s foreign minister, met with President Vladimir V. Putin. Moscow, an ally of Iran, has sought to avoid becoming too entangled in the conflict although it wants to remain a key player in the region.`\
 https://www.nytimes.com/2026/04/27/world/europe/iran-foreign-minister-russia.html
