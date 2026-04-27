@@ -1,3 +1,7 @@
+**The Rise of the High-Range, Less Expensive E.V.**\
+`Even as the electric vehicle market has slumped, there are more long-range E.V.s under $40,000 than ever before.`\
+https://www.nytimes.com/2026/04/27/upshot/cheap-electric-cars-gas-prices.html
+
 **The Iran War Is Starting to Expose Cracks in China’s Economy**\
 `China’s strategic reserves of oil and natural gas have insulated it somewhat, but its manufacturing-based economy is beginning to falter.`\
 https://www.nytimes.com/2026/04/27/business/china-economy-iran-war.html

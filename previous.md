@@ -59,7 +59,7 @@ https://www.nytimes.com/2026/04/27/us/politics/cole-allen-suspect-washington-cor
 https://www.nytimes.com/2026/04/27/us/bees-attack-eviction-massachusetts.html
 
 **The Rise of the High-Range, Less Expensive E.V.**\
-`Even as the electric vehicle market slumps, there are more long-range E.V.s under $40,000 than ever before.`\
+`Even as the electric vehicle market has slumped, there are more long-range E.V.s under $40,000 than ever before.`\
 https://www.nytimes.com/2026/04/27/upshot/cheap-electric-cars-gas-prices.html
 
 **The Democrats’ Premature Elation Trap**\
