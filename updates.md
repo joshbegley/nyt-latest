@@ -1,3 +1,7 @@
+**China Orders the Unwinding of Meta’s Acquisition of an A.I. Start-Up**\
+`The impact of the ruling was not immediately clear, but it could send a chilling signal to Chinese tech founders seeking to team up with foreign companies.`\
+https://www.nytimes.com/2026/04/27/business/china-meta-manus-ai-deal.html
+
 **Gold Standards**\
 `We explore a Times investigation into the gold market.`\
 https://www.nytimes.com/2026/04/27/briefing/gold-standards.html
