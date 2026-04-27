@@ -1,3 +1,19 @@
+**The Day the Food Noise Died**\
+`Before the rise of GLP-1s, obesity experts didn’t study the internal buzz that compels people to eat. Now that food noise is being switched off, they want to understand it.`\
+https://www.nytimes.com/2026/04/27/health/food-noise-obesity-drugs-glp-1.html
+
+**Microsoft and OpenAI Loosen Their Partnership**\
+`Microsoft, OpenAI’s biggest financial partner, will to continue to license the start-up’s technology but will no longer be its exclusive licensee.`\
+https://www.nytimes.com/2026/04/27/technology/microsoft-openai-partnership.html
+
+**Female Anglican Leader Prays With Pope, Signaling Unity and Recalling Divide**\
+`The meeting highlighted deepening ties between two major Christian denominations, as well as longstanding differences on the ordination of women.`\
+https://www.nytimes.com/2026/04/27/world/europe/pope-leo-archbishop-canterbury-mullally-vatican.html
+
+**Wordle Review No. 1,774**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, April 28, 2026.`\
+https://www.nytimes.com/2026/04/27/crosswords/wordle-review-1774.html
+
 **Palabra del día: ‘calumny’**\
 `Esta palabra ha aparecido en ocho artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/04/27/espanol/que-significa-calumny.html
