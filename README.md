@@ -1,3 +1,7 @@
+****\
+`tktkt`\
+https://www.nytimes.com/video/embedded/business/100000010864703/Biz-Japan-Bathhouse-video.html
+
 **Eran la ‘segunda familia’ de Michael Jackson. Ahora dicen que abusó de ellos**\
 `Tras haberlo apoyado durante años ante las acusaciones de abuso sexual infantil, los hermanos Cascio han demandado al patrimonio de Michael Jackson.`\
 https://www.nytimes.com/es/2026/04/27/espanol/cultura/michael-jacksons-familia-cascio.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/article/what-we-know-gunman-white-house-press-dinner.htm
 **Security at Correspondents’ Dinner Worked as Intended, Experts Say**\
 `Officials noted that the suspect never made it into the hotel ballroom, where President Trump and hundreds of journalists were gathered for the White House correspondents’ dinner.`\
 https://www.nytimes.com/2026/04/26/us/politics/security-correspondents-dinner.html
-
-**‘Peanuts’ or ‘Pickles’**\
-`Ease into your solving week with a Neville Fogarty puzzle that’s very relaxing.`\
-https://www.nytimes.com/2026/04/26/crosswords/daily-puzzle-2026-04-27.html
 
