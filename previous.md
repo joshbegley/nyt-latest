@@ -1,3 +1,11 @@
+**At the ‘Euphoria’ Wedding, All Eyes Were on the Guests**\
+`At Cassie and Nate’s nuptials, guests arrived to steal the show, and that was the point. Natasha Newman-Thomas, the show’s costume designer, used attention-grabbing looks to reflect each character’s evolution.`\
+https://www.nytimes.com/2026/04/27/style/euphoria-wedding-guests-fashion.html
+
+**Charges Announced Against Press Gala Attack Defendant**\
+`On Monday, Todd Blanche, the acting attorney general, announced three federal charges against Cole Tomas Allen, the suspect in Saturday’s attack at the White House correspondents’ dinner.`\
+https://www.nytimes.com/video/us/politics/100000010866106/blanche-patel-whcd-trump-shooting.html
+
 **Nedra Talley Ross, Last Surviving Member of the Ronettes, Dies at 80**\
 `With towering hairdos and perfect harmonies, she and her cousins Ronnie and Estelle brought a fresh edge to the girl-group sound in hits like “Be My Baby.”`\
 https://www.nytimes.com/2026/04/27/arts/music/nedra-talley-ross-dead.html
@@ -65,12 +73,4 @@ https://www.nytimes.com/2026/04/27/us/politics/trump-ballroom-white-house-dinner
 **Trump Administration Will Pay More Energy Firms to Cancel Wind Farms**\
 `In exchange, the companies will invest in oil and gas projects, echoing an earlier deal with the French energy giant TotalEnergies.`\
 https://www.nytimes.com/2026/04/27/climate/trump-administration-wind-farms.html
-
-**The President and the King**\
-`Courtesy can be tactical as well as virtuous.`\
-https://www.nytimes.com/2026/04/27/opinion/king-charles-trump-visit.html
-
-**Supreme Court Appears Divided Over Roundup Weedkiller Case**\
-`The case could help determine the future of thousands of lawsuits against the maker of a popular herbicide over claims that it causes cancer.`\
-https://www.nytimes.com/2026/04/27/us/politics/supreme-court-roundup-weedkiller.html
 
