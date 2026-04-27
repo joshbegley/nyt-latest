@@ -1,3 +1,15 @@
+**King Charles Will Speak of ‘Reconciliation and Renewal’ During Address to Congress**\
+`The state visit of King Charles III comes at a moment of tension over the war in Iran between President Trump and Prime Minister Keir Starmer.`\
+https://www.nytimes.com/2026/04/27/us/politics/king-charles-congress-address.html
+
+**El próspero fabricante chino de autos que no se llama BYD**\
+`Geely ha construido un modelo de negocio diseñado para manejar la volatilidad. Esto le permite adaptarse con rapidez cuando cambian las condiciones.`\
+https://www.nytimes.com/es/2026/04/27/espanol/negocios/autos-chinos-byd-geely.html
+
+**Iraq’s President Names Political Newcomer to Form Government**\
+`After months of tensions and pressure from both the U.S. and Iran, Ali al-Zaidi, a businessman, was named as prime minister-designate.`\
+https://www.nytimes.com/2026/04/27/world/middleeast/iraq-prime-minister.html
+
 **At a Moment of Chaos in Trump’s Washington, the Royals Come to Town**\
 `Presidents use state visits to show off all that is appealing about American culture. But the shooting at the White House correspondents’ dinner has cast a shadow over the visit.`\
 https://www.nytimes.com/2026/04/27/us/politics/trump-king-charles-royals-dc-visit.html
@@ -61,16 +73,4 @@ https://www.nytimes.com/2026/04/27/business/budget-airlines-trump-bailout.html
 **Mali Rebels Deal Major Blow to Junta and Russian Mercenaries**\
 `Coordinated attacks signified a major escalation of insurgent violence in a region of West Africa where military leaders had seized power and warmed to Moscow in recent years.`\
 https://www.nytimes.com/2026/04/27/world/africa/mali-jnim-violence-russia.html
-
-**TK**\
-`TK`\
-https://static01.nyt.com/slideshow/2026/04/27/t-magazine/tk.html
-
-**The Art of the Nuclear Deal**\
-`President Trump ripped up a pact designed to prevent Iran from building a bomb. Getting a better agreement now could prove difficult.`\
-https://www.nytimes.com/2026/04/27/world/nuclear-deal-iran-trump-assasination-charges.html
-
-**Republicans Push for Trump’s White House Ballroom After Gala Attack**\
-`The attack on a press dinner in Washington, which is being called an attempted assassination of President Trump, has also renewed the fight over reopening the Homeland Security Department.`\
-https://www.nytimes.com/2026/04/27/us/politics/trump-ballroom-white-house-dinner-shooting.html
 
