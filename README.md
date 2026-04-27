@@ -1,3 +1,7 @@
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/04/27/t-magazine/tk.html
+
 **The Art of the Nuclear Deal**\
 `President Trump ripped up a pact designed to prevent Iran from building a bomb. Getting a better agreement now could prove difficult.`\
 https://www.nytimes.com/2026/04/27/world/nuclear-deal-iran-trump-assasination-charges.html
@@ -69,12 +73,4 @@ https://www.nytimes.com/2026/04/27/us/trump-subpoena-list-jews-university-pennsy
 **Employment Agency Pushes Discrimination Cases That Match Trump’s Agenda**\
 `Field staff at the Equal Employment Opportunity Commission say they are being pressured to bring politically charged cases, even with little evidence.`\
 https://www.nytimes.com/2026/04/27/us/politics/eeoc-trump-discrimination-cases.html
-
-**Irán y EE. UU. se hunden en un incómodo limbo de ‘ni guerra ni paz’**\
-`Cada parte apuesta a que puede soportar más que la otra, dicen los analistas. Pero un estancamiento sin acuerdo entraña riesgos.`\
-https://www.nytimes.com/es/2026/04/27/espanol/mundo/ee-uu-guerra-iran-conversaciones-paz.html
-
-**What to Know About the ‘Summer House’ Leaked Audio Drama**\
-`After West Wilson and Amanda Batula confirmed their relationship, fans were anticipating drama at the show’s next reunion. But audio appeared to leak weeks before its air date.`\
-https://www.nytimes.com/2026/04/27/style/bravo-summer-house-leaked-audio.html
 
