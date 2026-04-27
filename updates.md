@@ -1,3 +1,7 @@
+**‘The Comeback’ Season 3, Episode 6 Recap: Everything Breaks**\
+`Valerie has been terrible at keeping the A.I. thing a secret. Almost as terrible as Billy is at being her manager.`\
+https://www.nytimes.com/2026/04/26/arts/television/the-comeback-recap-season-3-episode-6.html
+
 **‘The Lost Boys’ Review: Live, Die, Reprise**\
 `A Broadway musical adaptation of the 1987 movie gets a lot of mileage from ’80s rocker aesthetics and over-the-top spectacle — until its second half.`\
 https://www.nytimes.com/2026/04/26/theater/the-lost-boys-review.html
