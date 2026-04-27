@@ -1,3 +1,7 @@
+**Microsoft and OpenAI Loosen Their Partnership**\
+`Microsoft, OpenAI’s biggest financial partner, will to continue to license the start-up’s technology but will no longer be its exclusive licensee.`\
+https://www.nytimes.com/2026/04/27/technology/microsoft-openai-partnership.html
+
 **Palabra del día: ‘calumny’**\
 `Esta palabra ha aparecido en ocho artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/04/27/espanol/que-significa-calumny.html
@@ -7,7 +11,7 @@ https://www.nytimes.com/es/2026/04/27/espanol/que-significa-calumny.html
 https://www.nytimes.com/2026/04/27/magazine/cell-rejuventation-biotech-longevity-research-altos-labs.html
 
 **Female Anglican Leader Prays With Pope, Signaling Unity and Recalling Divide**\
-`The meeting highlighted warming ties between two major Christian denominations, as well as longstanding differences on the ordination of women.`\
+`The meeting highlighted deepening ties between two major Christian denominations, as well as longstanding differences on the ordination of women.`\
 https://www.nytimes.com/2026/04/27/world/europe/pope-leo-archbishop-canterbury-mullally-vatican.html
 
 **United Airlines Says It Pitched American on Merger but Was Rebuffed**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/04/27/us/white-house-dinner-trump-shooting/her
 **China Orders the Unwinding of Meta’s Acquisition of an A.I. Start-Up**\
 `The impact of the ruling was not immediately clear, but it could send a chilling signal to Chinese tech founders seeking to team up with foreign companies.`\
 https://www.nytimes.com/2026/04/27/business/china-meta-manus-ai-deal.html
-
-**Fighting ‘Sacred’ War in Ukraine, North Korea and Russia Pledge to Deepen Ties**\
-`The two countries discussed long-term military cooperation, as they opened a memorial for North Korean troops killed in Russia’s war in Ukraine.`\
-https://www.nytimes.com/2026/04/27/world/asia/north-korea-memorial-russia-ukraine.html
 
