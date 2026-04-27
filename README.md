@@ -26,8 +26,8 @@ https://www.nytimes.com/2026/04/27/briefing/gold-standards.html
 `China’s strategic reserves of oil and natural gas have insulated it somewhat, but its manufacturing-based economy is beginning to falter.`\
 https://www.nytimes.com/2026/04/27/business/china-economy-iran-war.html
 
-**Top Iranian Official in Russia for Talks With Putin on Middle East War**\
-`Abbas Araghchi, Iran’s foreign minister, will meet with President Vladimir V. Putin for “necessary coordination,” as negotiations with the U.S. to end the conflict have stalled.`\
+**Top Iranian Official Goes to Russia for Talks With Putin on Middle East War**\
+`Abbas Araghchi, Iran’s foreign minister, will meet with President Vladimir V. Putin. But Moscow, an ally of Iran, has sought to avoid becoming too entangled in the conflict.`\
 https://www.nytimes.com/2026/04/27/world/europe/iran-foreign-minister-russia.html
 
 **Who’s Really Running Iran?**\
