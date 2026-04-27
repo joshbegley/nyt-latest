@@ -1,3 +1,7 @@
+**Gold Standards**\
+`We explore a Times investigation into the gold market.`\
+https://www.nytimes.com/2026/04/27/briefing/gold-standards.html
+
 **The Iran War Is Starting to Expose Cracks in China’s Economy**\
 `China’s strategic reserves of oil and natural gas have insulated it somewhat, but its manufacturing-based economy is beginning to falter.`\
 https://www.nytimes.com/2026/04/27/business/china-economy-iran-war.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/27/us/bernie-sanders-super-pacs-democrats-primar
 **What’s Your Ideal Summer Job?**\
 `Have you ever considered being a lifeguard?`\
 https://www.nytimes.com/2026/04/27/learning/whats-your-ideal-summer-job.html
-
-**A Little Museum and a 56-Story Tower**\
-`The U.S.S. Monitor took part in an important Civil War battle. Near where it was built, a battle over a development project is heating up.`\
-https://www.nytimes.com/2026/04/27/nyregion/monitor-point-ship-real-estate.html
 
