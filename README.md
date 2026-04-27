@@ -1,3 +1,7 @@
+**President and First Lady Demand ABC Fire Jimmy Kimmel Over ‘Widow’ Joke**\
+`The joke was recorded two days before the White House correspondents’ dinner, where a gunman tried to storm the press gala.`\
+https://www.nytimes.com/2026/04/27/us/politics/trump-jimmy-kimmel-abc-widow-joke.html
+
 **Científicos identifican el ‘orbe dorado’, un misterio de las profundidades marinas**\
 `El extraño y brillante descubrimiento, recuperado del océano cerca de Alaska en 2023, dejó perplejos a investigadores de todo el mundo en aquel entonces.`\
 https://www.nytimes.com/es/2026/04/27/espanol/ciencia-y-tecnologia/alaska-orbe-dorado.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/27/arts/beatrice-venezi-la-fenice.html
 **Facebook Has a Health Scam Problem**\
 `A new report found hundreds of thousands of scam ads for medical products, some of which were illegal or had been deemed dangerous.`\
 https://www.nytimes.com/2026/04/27/well/facebook-supplements-health.html
-
-**DeSantis Proposes Florida House Map That Could Add Four Republican Seats**\
-`The Republican-controlled Legislature is meeting in Tallahassee this week to vote on the map, which would apply for the 2026 midterms if passed.`\
-https://www.nytimes.com/2026/04/27/us/desantis-florida-gop-house-map.html
 
