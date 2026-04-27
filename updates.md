@@ -1,3 +1,7 @@
+**The Art of the Nuclear Deal**\
+`President Trump ripped up a pact designed to prevent Iran from building a bomb. Getting a better agreement now could prove difficult.`\
+https://www.nytimes.com/2026/04/27/world/nuclear-deal-iran-trump-assasination-charges.html
+
 **Republicans Push for Trump’s White House Ballroom After Gala Attack**\
 `The attack on a press dinner in Washington, which is being called an attempted assassination of President Trump, has also renewed the fight over reopening the Homeland Security Department.`\
 https://www.nytimes.com/2026/04/27/us/politics/trump-ballroom-white-house-dinner-shooting.html
