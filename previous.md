@@ -1,3 +1,7 @@
+**The Iran War Is Starting to Expose Cracks in China’s Economy**\
+`China’s strategic reserves of oil and natural gas have insulated it somewhat, but its manufacturing-based economy is beginning to falter.`\
+https://www.nytimes.com/2026/04/27/business/china-economy-iran-war.html
+
 **Top Iranian Official in Russia for Talks With Putin on Middle East War**\
 `Abbas Araghchi, Iran’s foreign minister, will meet with President Vladimir V. Putin for “necessary coordination,” as negotiations with the U.S. to end the conflict have stalled.`\
 https://www.nytimes.com/2026/04/27/world/europe/iran-foreign-minister-russia.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/27/learning/whats-your-ideal-summer-job.html
 **A Little Museum and a 56-Story Tower**\
 `The U.S.S. Monitor took part in an important Civil War battle. Near where it was built, a battle over a development project is heating up.`\
 https://www.nytimes.com/2026/04/27/nyregion/monitor-point-ship-real-estate.html
-
-**60 Countries to Meet on Phasing Out Fossil Fuels but Are Excluding the U.S.**\
-`The Trump administration was not invited to the gathering in Santa Marta, Colombia. A White House spokeswoman called the green transition “destructive.”`\
-https://www.nytimes.com/2026/04/27/climate/60-countries-to-meet-on-phasing-out-fossil-fuels-but-are-excluding-the-us.html
 

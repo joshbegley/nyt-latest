@@ -1,3 +1,7 @@
+**The Iran War Is Starting to Expose Cracks in China’s Economy**\
+`China’s strategic reserves of oil and natural gas have insulated it somewhat, but its manufacturing-based economy is beginning to falter.`\
+https://www.nytimes.com/2026/04/27/business/china-economy-iran-war.html
+
 **Top Iranian Official in Russia for Talks With Putin on Middle East War**\
 `Abbas Araghchi, Iran’s foreign minister, will meet with President Vladimir V. Putin for “necessary coordination,” as negotiations with the U.S. to end the conflict have stalled.`\
 https://www.nytimes.com/2026/04/27/world/europe/iran-foreign-minister-russia.html
