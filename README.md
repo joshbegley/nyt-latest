@@ -1,3 +1,7 @@
+**Read the Criminal Complaint and Affidavit Charging Cole Tomas Allen**\
+`Allen, 31, of Torrance, Calif., faces three counts, including two federal gun crimes and attempting to assassinate the president of the United States.`\
+https://www.nytimes.com/interactive/2026/04/27/us/affidavit-cole-tomas-allen-white-house-correspondents-dinner-shooting.html
+
 **New Mexico U.S. Senate Election 2026: Latest Polls**\
 `Track the latest polls in the New Mexico U.S. Senate election.`\
 https://www.nytimes.com/interactive/polls/new-mexico-us-senate-election-polls-2026.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/27/opinion/letters/white-house-correspondents-di
 **Virginia High Court Weighs Legality of Congressional Map Approved Last Week**\
 `Oral arguments on Monday morning lasted about an hour. It was not clear how justices would rule.`\
 https://www.nytimes.com/2026/04/27/us/virginia-court-congressional-map-redistricting.html
-
-**Can Spending More Improve Your Health and Prolong Your Life?**\
-`The desire to live longer and healthier lives has spawned a growth in services and supplements. So what works best?`\
-https://www.nytimes.com/2026/04/27/your-money/longevity-wellness-industry.html
 
