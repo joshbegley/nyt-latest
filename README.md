@@ -47,7 +47,7 @@ https://www.nytimes.com/2026/04/27/technology/altman-musk-openai-ai-oakland.html
 https://www.nytimes.com/2026/04/27/health/food-noise-obesity-drugs-glp-1.html
 
 **Microsoft and OpenAI Loosen Their Partnership**\
-`Microsoft, OpenAI’s biggest financial partner, will to continue to license the start-up’s technology but will no longer be its exclusive licensee.`\
+`Microsoft, OpenAI’s biggest financial partner, will continue to license the start-up’s technology but will no longer be its exclusive licensee.`\
 https://www.nytimes.com/2026/04/27/technology/microsoft-openai-partnership.html
 
 **Palabra del día: ‘calumny’**\
