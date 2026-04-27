@@ -31,7 +31,7 @@ https://www.nytimes.com/2026/04/27/briefing/gold-standards.html
 https://www.nytimes.com/2026/04/27/business/china-economy-iran-war.html
 
 **Top Iranian Official Goes to Russia for Talks With Putin on Middle East War**\
-`Abbas Araghchi, Iran’s foreign minister, will meet with President Vladimir V. Putin. But Moscow, an ally of Iran, has sought to avoid becoming too entangled in the conflict.`\
+`Abbas Araghchi, Iran’s foreign minister, was meeting with President Vladimir V. Putin. But Moscow, an ally of Iran, has sought to avoid becoming too entangled in the conflict.`\
 https://www.nytimes.com/2026/04/27/world/europe/iran-foreign-minister-russia.html
 
 **Who’s Really Running Iran?**\
