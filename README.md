@@ -1,3 +1,35 @@
+**Fighting ‘Sacred’ War in Ukraine, North Korea and Russia Pledge to Deepen Ties**\
+`The two countries discussed long-term military cooperation, as they opened a memorial for North Korean troops killed in Russia’s war in Ukraine.`\
+https://www.nytimes.com/2026/04/27/world/asia/north-korea-memorial-russia-ukraine.html
+
+**Even Before the Gunfire, Many Guests Bore the Scars of Political Violence**\
+`Gunfire at a press gala on Saturday underscored the ever growing club of political figures whose lives have been upended by violence.`\
+https://www.nytimes.com/2026/04/27/us/politics/politics-violence-trump-kirk.html
+
+**‘Michael’ Fans Danced in the Aisles, Critics Be Damned**\
+`The biopic of the pop singer crushed box-office records on its opening weekend as admirers moonwalked to a movie that critics have savaged.`\
+https://www.nytimes.com/2026/04/27/arts/michael-jackson-movie-fan-reactions.html
+
+**Grievance Propelled Gala Attack Suspect Across Country, Authorities Say**\
+`A man who has worked as a tutor and graduated from the California Institute of Technology is being held by authorities in connection with the armed attack at the White House correspondents’ dinner.`\
+https://www.nytimes.com/2026/04/27/us/politics/cole-allen-suspect-washington-correspondents-dinner-shooting.html
+
+**Woman Gets Jail After Unleashing Swarm of Bees During an Eviction**\
+`The woman, who is a beekeeper, was sentenced to six months after being convicted of using the bees as a weapon against deputies during a 2022 eviction.`\
+https://www.nytimes.com/2026/04/27/us/bees-attack-eviction-massachusetts.html
+
+**The Rise of the High-Range, Less Expensive E.V.**\
+`Even as the electric vehicle market slumps, there are more long-range E.V.s under $40,000 than ever before.`\
+https://www.nytimes.com/2026/04/27/upshot/cheap-electric-cars-gas-prices.html
+
+**The Democrats’ Premature Elation Trap**\
+`The midterms look promising. Looks can deceive.`\
+https://www.nytimes.com/2026/04/27/opinion/democrats-midterms.html
+
+**Bernie Sanders Presses Democrats to Swear Off Super PACs in Primaries**\
+`The independent senator from Vermont says top Democrats should tell candidates they will otherwise lose access to party resources.`\
+https://www.nytimes.com/2026/04/27/us/bernie-sanders-super-pacs-democrats-primaries.html
+
 **What’s Your Ideal Summer Job?**\
 `Have you ever considered being a lifeguard?`\
 https://www.nytimes.com/2026/04/27/learning/whats-your-ideal-summer-job.html
@@ -45,36 +77,4 @@ https://www.nytimes.com/2026/04/27/travel/boundary-waters-copper-mine.html
 **It’s the Age of Electricity and America Isn’t Ready**\
 `Our grid is too old and our supply of electricity too small. If we don’t meet this moment, we will face an impoverished future.`\
 https://www.nytimes.com/interactive/2026/04/27/opinion/electricity-power-grid-infrastructure.html
-
-**By Week’s End, Trump’s War Will Be Plainly Illegal**\
-`Federal judges have a duty to enforce the War Powers Act.`\
-https://www.nytimes.com/2026/04/27/opinion/trump-iran-war-powers.html
-
-**Zoë Kravitz and Harry Styles? Weren’t They Just With …**\
-`To the average person, celebrity relationships can appear to move at a clip. There are a number of reasons for that.`\
-https://www.nytimes.com/2026/04/27/style/zoe-kravitz-harry-styles-celebrity-engagements.html
-
-**Why Trump Wants Unqualified U.S. Attorneys**\
-`Revenge-based criminal cases against the president’s enemies have not come to fruition. That’s where the U.S. attorneys come in.`\
-https://www.nytimes.com/2026/04/27/opinion/trump-attorney-general.html
-
-**For the Modern C.E.O., It’s All About Being ‘Resilient’**\
-`The ability to stay calm and lead through any kind of shock is the new normal for corporate executives.`\
-https://www.nytimes.com/2026/04/27/business/ceo-companies-resilience-iran-war-inflation.html
-
-**Supreme Court Reviews Police Use of Cell Location Data to Find Criminals**\
-`Geofence searches allow law enforcement to find suspects and witnesses by sweeping up location data from cellphone users near crime scenes.`\
-https://www.nytimes.com/2026/04/27/us/politics/supreme-court-cell-data-geofence.html
-
-**Inside a Once-Grand Building That Housed the Vulnerable for a Century**\
-`A shelter for men near Bellevue Hospital is closing. It is a symbol of an approach to homelessness that the Mamdani administration hopes to leave behind.`\
-https://www.nytimes.com/2026/04/27/nyregion/bellevue-shelter-closing-nyc.html
-
-**For a Dance Battle on a New Stage, She Decided to Be ‘Fearless’**\
-`Courtney Washington made her name as a choreographer in street-dance competitions and on the ballroom scene. Now, she’s making a work for Parsons Dance.`\
-https://www.nytimes.com/2026/04/27/arts/dance/courtney-washington-ballroom-juicy-couture-parsons.html
-
-**Should My Bag Really Match My Shoes?**\
-`It was once fashion creed to coordinate your purse with your shoes or coat. Our critic explains how that rule has been bent, broken and revived.`\
-https://www.nytimes.com/2026/04/27/fashion/purse-bag-matching-shoes.html
 
