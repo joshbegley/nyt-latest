@@ -1,3 +1,11 @@
+**Musk vs. Altman: A High-Stakes A.I. Clash Goes to Court**\
+`Elon Musk is seeking more than $150 billion in damages and a complete shake-up of OpenAI. The outcome could have big consequences for the artificial intelligence industry.`\
+https://www.nytimes.com/2026/04/27/business/dealbook/musk-altman-ai-trial.html
+
+**Raghu Rai, Photographer Who Captured Modern India, Dies at 83**\
+`Mr. Rai documented major figures like the Dalai Lama and Indira Gandhi, as well as the victims of a poison gas leak in the city of Bhopal.`\
+https://www.nytimes.com/2026/04/27/world/asia/raghu-rai-photographer-dead.html
+
 **China Orders the Unwinding of Meta’s Acquisition of an A.I. Start-Up**\
 `The impact of the ruling was not immediately clear, but it could send a chilling signal to Chinese tech founders seeking to team up with foreign companies.`\
 https://www.nytimes.com/2026/04/27/business/china-meta-manus-ai-deal.html
