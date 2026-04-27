@@ -1,3 +1,7 @@
+**The Art of the Nuclear Deal**\
+`President Trump ripped up a pact designed to prevent Iran from building a bomb. Getting a better agreement now could prove difficult.`\
+https://www.nytimes.com/2026/04/27/world/nuclear-deal-iran-trump-assasination-charges.html
+
 **Republicans Push for Trump’s White House Ballroom After Gala Attack**\
 `The attack on a press dinner in Washington, which is being called an attempted assassination of President Trump, has also renewed the fight over reopening the Homeland Security Department.`\
 https://www.nytimes.com/2026/04/27/us/politics/trump-ballroom-white-house-dinner-shooting.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/27/espanol/mundo/ee-uu-guerra-iran-conversaci
 **What to Know About the ‘Summer House’ Leaked Audio Drama**\
 `After West Wilson and Amanda Batula confirmed their relationship, fans were anticipating drama at the show’s next reunion. But audio appeared to leak weeks before its air date.`\
 https://www.nytimes.com/2026/04/27/style/bravo-summer-house-leaked-audio.html
-
-**Euphoria in Kenya After Sabastian Sawe’s Record-Breaking Win**\
-`The London Marathon winner’s achievement has resonated nowhere more than in Kenya’s Rift Valley, which has yielded many champions.`\
-https://www.nytimes.com/2026/04/27/world/africa/sabastian-sawe-kenya-running-record.html
 
