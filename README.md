@@ -1,3 +1,7 @@
+**Supreme Court Appears Divided Over Roundup Weedkiller Case**\
+`The case could help determine the future of thousands of lawsuits against the maker of a popular herbicide over claims that it causes cancer.`\
+https://www.nytimes.com/2026/04/27/us/politics/supreme-court-roundup-weedkiller.html
+
 **President and First Lady Demand ABC Fire Jimmy Kimmel Over ‘Widow’ Joke**\
 `The joke was recorded two days before the White House correspondents’ dinner, where a gunman tried to storm the press gala.`\
 https://www.nytimes.com/2026/04/27/us/politics/trump-jimmy-kimmel-abc-widow-joke.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/27/us/politics/trump-king-charles-white-house-be
 **Venice Opera Cuts Ties With Conductor After Months of Dispute**\
 `Beatrice Venezi’s appointment as music director drew scorn from orchestra members who said she was unqualified. She fought back in several interviews.`\
 https://www.nytimes.com/2026/04/27/arts/beatrice-venezi-la-fenice.html
-
-**Facebook Has a Health Scam Problem**\
-`A new report found hundreds of thousands of scam ads for medical products, some of which were illegal or had been deemed dangerous.`\
-https://www.nytimes.com/2026/04/27/well/facebook-supplements-health.html
 
