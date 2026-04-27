@@ -1,3 +1,7 @@
+**Mali’s Defense Minister Killed in Attacks by Islamist Insurgents**\
+`The death of the minister, Gen. Sadio Camara, a central figure in the country’s military government, comes amid escalating violence in the region.`\
+https://www.nytimes.com/2026/04/27/world/africa/mali-defense-minster-killed.html
+
 **F.B.I. Patrols Neighborhood of Man Held in Connection to Gala Shooting**\
 `The F.B.I was seen at the home of a man held in connection with the shooting at the White House correspondents’ dinner. Residents of Torrance, Calif. said they were surprised to hear that the suspect appeared to be from their neighborhood.`\
 https://www.nytimes.com/video/us/100000010864566/suspect-shooting-washington-dinner.html
