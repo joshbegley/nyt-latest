@@ -1,3 +1,11 @@
+**Have a Canadian Great-Great Grandparent? It Could Make You Canadian.**\
+`Canada has opened a route to citizenship for people who can prove they have a Canada-born ancestor. Millions could qualify, and Americans are already lining up to apply.`\
+https://www.nytimes.com/2026/04/27/world/canada/canadian-citizenship-by-descent-applications-americans-us.html
+
+**Carney Sets Up Investment Fund to Distance Canadian Economy From U.S.**\
+`Canada’s sovereign wealth fund will be far smaller than ones in other oil-producing nations like Norway and the Middle East.`\
+https://www.nytimes.com/2026/04/27/world/canada/canada-sovereign-wealth-fund.html
+
 **‘Kenrex’ Review: Plunging Into the Violent World of True Crime**\
 `The play, by Jack Holden and Ed Stambollouian at the Lucille Lortel Theater, tells the story of a brutal bully who was shot and killed in plain view.`\
 https://www.nytimes.com/2026/04/27/theater/kenrex-review.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/es/2026/04/27/espanol/que-significa-calumny.html
 **Longevity Science Is Overhyped. But This Research Really Could Change Humanity.**\
 `A new therapy has the potential to cure hundreds of diseases — and even reverse aging.`\
 https://www.nytimes.com/2026/04/27/magazine/cell-rejuventation-biotech-longevity-research-altos-labs.html
-
-**Female Anglican Leader Prays With Pope, Signaling Unity and Recalling Divide**\
-`The meeting highlighted deepening ties between two major Christian denominations, as well as longstanding differences on the ordination of women.`\
-https://www.nytimes.com/2026/04/27/world/europe/pope-leo-archbishop-canterbury-mullally-vatican.html
-
-**United Airlines Says It Pitched American on Merger but Was Rebuffed**\
-`United’s chief acknowledged for the first time that he had broached the idea of a merger with American, which was unwilling to consider it.`\
-https://www.nytimes.com/2026/04/27/business/united-airlines-american-merger.html
 
