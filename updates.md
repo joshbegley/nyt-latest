@@ -1,3 +1,7 @@
+**‘Widow’s Bay,’ and 6 More Things to Watch on TV This Week**\
+`The Apple TV show starring Matthew Rhys premieres, and two true crime documentaries air.`\
+https://www.nytimes.com/2026/04/27/arts/television/widows-bay-what-to-watch-on-tv.html
+
 **U.S. Military Strikes Another Boat in Eastern Pacific, Killing 3**\
 `The United States has carried out dozens of boat strikes since September against people the Trump administration accuses of smuggling drugs.`\
 https://www.nytimes.com/2026/04/27/world/americas/us-military-boat-strike-pacific-drugs.html
