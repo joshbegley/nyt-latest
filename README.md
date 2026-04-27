@@ -1,3 +1,39 @@
+**Top Iranian Official in Russia for Talks With Putin on Middle East War**\
+`Abbas Araghchi, Iran’s foreign minister, will meet with President Vladimir V. Putin for “necessary coordination,” as negotiations with the U.S. to end the conflict have stalled.`\
+https://www.nytimes.com/2026/04/27/world/europe/iran-foreign-minister-russia.html
+
+**Who’s Really Running Iran?**\
+`The killing of Ayatollah Ali Khamenei ushered in a new form of collective leadership, with more power for the Islamic Revolutionary Guards Corps.`\
+https://www.nytimes.com/2026/04/27/podcasts/the-daily/iran-war-peace-talks.html
+
+**Connections Companion No. 1,052**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, April 28, 2026.`\
+https://www.nytimes.com/2026/04/27/crosswords/connections-companion-1052.html
+
+**Inside the Chaos at the Correspondents’ Dinner, and How the U.S. Mint Is Buying Drug Cartel Gold**\
+`Plus, marathon runners shatter a world record.`\
+https://www.nytimes.com/2026/04/27/podcasts/the-headlines/correspondents-dinner-shots-fired-us-mint-idrug-cartel-gold.html
+
+**Film Club: ‘9,192,631,770 Hz’**\
+`What is time, exactly? And how do we measure it?`\
+https://www.nytimes.com/2026/04/27/learning/film-club-9192631770-hz.html
+
+**Strands Sidekick No. 786**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, April 28, 2026.`\
+https://www.nytimes.com/2026/04/27/crosswords/strands-sidekick-786.html
+
+**Wordle Review No. 1,774**\
+`Scroll down for hints and conversation about the puzzle for Monday, April 28, 2026.`\
+https://www.nytimes.com/2026/04/27/crosswords/wordle-review-1774.html
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/27/us/white-house-dinner-trump-shooting/heres-the-latest
+
+**China Orders the Unwinding of Meta’s Acquisition of an A.I. Start-Up**\
+`The impact of the ruling was not immediately clear, but it could send a chilling signal to Chinese tech founders seeking to partner with foreign companies.`\
+https://www.nytimes.com/2026/04/27/business/china-meta-manus-ai-deal.html
+
 **Fighting ‘Sacred’ War in Ukraine, North Korea and Russia Pledge to Deepen Ties**\
 `The two countries discussed long-term military cooperation, as they opened a memorial for North Korean troops killed in Russia’s war in Ukraine.`\
 https://www.nytimes.com/2026/04/27/world/asia/north-korea-memorial-russia-ukraine.html
@@ -41,40 +77,4 @@ https://www.nytimes.com/2026/04/27/nyregion/monitor-point-ship-real-estate.html
 **60 Countries to Meet on Phasing Out Fossil Fuels but Are Excluding the U.S.**\
 `The Trump administration was not invited to the gathering in Santa Marta, Colombia. A White House spokeswoman called the green transition “destructive.”`\
 https://www.nytimes.com/2026/04/27/climate/60-countries-to-meet-on-phasing-out-fossil-fuels-but-are-excluding-the-us.html
-
-**The U.S. Started the War. The Rest of the World Is Feeling the Effects.**\
-`In just eight weeks, much of the global economy has been knocked sideways. America has mostly been spared from the tumult.`\
-https://www.nytimes.com/2026/04/27/business/economy/iran-war-global-growth.html
-
-**What’s Next in the Nationwide Redistricting Fight**\
-`All eyes are on Florida and Virginia, where a special session and courtroom proceedings set for this week factor into the battle for the House in the midterms.`\
-https://www.nytimes.com/2026/04/27/us/politics/redistricting-florida-virginia-midterms.html
-
-**Oprah Winfrey Moves Her Podcast (and Books and Products) to Amazon**\
-`The multiyear deal with Ms. Winfrey signifies the tech giant’s growing ambitions in video podcasts.`\
-https://www.nytimes.com/2026/04/27/business/media/oprah-winfrey-video-podcast-amazon.html
-
-**Where Have All the Book Reviews Gone?**\
-`What the rise of A.I. and the gutting of books coverage across U.S. media will mean for literature.`\
-https://www.nytimes.com/2026/04/27/books/review/ai-book-reviews.html
-
-**How a Housing Organizer and Her Son Live on $89,000 Near Central Park**\
-`Angela Donadelle lives with her son Christopher Jones in an East Harlem complex she fought to keep affordable because they wanted to stay in the city.`\
-https://www.nytimes.com/interactive/2026/04/27/nyregion/nyc-budgeting-affordability-donadelle.html
-
-**An Upstate Retreat That Grew Into a Family Compound**\
-`An artist bought 20 bucolic acres in Germantown, N.Y., for a home and studio. It ended up as a favorite destination for extended family and friends.`\
-https://www.nytimes.com/2026/04/27/realestate/germantown-ny-art-studio-home.html
-
-**Lizzo Takes a Loss on the Sale of Her Beverly Hills Mansion**\
-`Lizzo bought the home four years ago. Jeff Green, the N.B.A. star, also sold a mansion in Miami, and Jesse McCartney listed one in L.A.`\
-https://www.nytimes.com/2026/04/27/realestate/lizzo-jeff-green-mansion-sales-jesse-mccartney-listing.html
-
-**Immaculate Wilderness, Uncertain Future: Paddling the Boundary Waters**\
-`A proposed copper mine in northern Minnesota has become a battleground for politicians and environmentalists — and a pressing reason to explore the waterways.`\
-https://www.nytimes.com/2026/04/27/travel/boundary-waters-copper-mine.html
-
-**It’s the Age of Electricity and America Isn’t Ready**\
-`Our grid is too old and our supply of electricity too small. If we don’t meet this moment, we will face an impoverished future.`\
-https://www.nytimes.com/interactive/2026/04/27/opinion/electricity-power-grid-infrastructure.html
 
