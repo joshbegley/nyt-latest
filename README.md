@@ -1,3 +1,15 @@
+**Venice Opera Cuts Ties With Conductor After Months of Dispute**\
+`Beatrice Venezi’s appointment as music director drew scorn from orchestra members who said she was unqualified. She fought back in several interviews.`\
+https://www.nytimes.com/2026/04/27/arts/beatrice-venezi-la-fenice.html
+
+**Facebook Has a Health Scam Problem**\
+`A new report found hundreds of thousands of scam ads for medical products, some of which were illegal or had been deemed dangerous.`\
+https://www.nytimes.com/2026/04/27/well/facebook-supplements-health.html
+
+**DeSantis Proposes Florida House Map That Could Add Four Republican Seats**\
+`The Republican-controlled Legislature is meeting in Tallahassee this week to vote on the map, which would apply for the 2026 midterms if passed.`\
+https://www.nytimes.com/2026/04/27/us/desantis-florida-gop-house-map.html
+
 **A Frightening Night at the Washington Gala**\
 `Readers discuss political violence, online rumors, gun control and security measures.`\
 https://www.nytimes.com/2026/04/27/opinion/letters/white-house-correspondents-dinner-shooting.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/video/world/africa/100000010864782/mali-defense-minister
 **El tiroteo de la cena de corresponsales de la Casa Blanca desata especulaciones en internet**\
 `Los influentes se lanzaron a llenar el vacío informativo con teorías conspirativas sobre el ataque en la cena de corresponsales de la Casa Blanca del sábado.`\
 https://www.nytimes.com/es/2026/04/27/espanol/negocios/tiroteo-casa-blanca-teorias-internet.html
-
-**Can You Identify These Poems and Places?**\
-`Try this quick trivia challenge and celebrate the world of poetry.`\
-https://www.nytimes.com/interactive/2026/04/27/books/review/poetry-places-quiz.html
-
-**Jammy Chicken Thighs, Good Any Time of Year**\
-``\
-https://www.nytimes.com/2026/04/27/dining/jammy-chicken-thighs-good-any-time-of-year.html
-
-**War and Nachos on My Social Media Feed**\
-`The feed makes everything, bombs and nachos and the dead, weigh the same. Which is to say: nothing.`\
-https://www.nytimes.com/2026/04/27/opinion/culture/war-and-nachos-on-my-social-media-feed.html
 
