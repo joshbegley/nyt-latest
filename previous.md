@@ -1,3 +1,7 @@
+**Republicans Push for Trump’s White House Ballroom After Gala Attack**\
+`The attack on a press dinner in Washington, which is being called an attempted assassination of President Trump, has also renewed the fight over reopening the Homeland Security Department.`\
+https://www.nytimes.com/2026/04/27/us/politics/trump-ballroom-white-house-dinner-shooting.html
+
 **Trump Administration Will Pay More Energy Firms to Cancel Wind Farms**\
 `In exchange, the companies will invest in oil and gas projects, echoing an earlier deal with the French energy giant TotalEnergies.`\
 https://www.nytimes.com/2026/04/27/climate/trump-administration-wind-farms.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/27/style/bravo-summer-house-leaked-audio.html
 **Euphoria in Kenya After Sabastian Sawe’s Record-Breaking Win**\
 `The London Marathon winner’s achievement has resonated nowhere more than in Kenya’s Rift Valley, which has yielded many champions.`\
 https://www.nytimes.com/2026/04/27/world/africa/sabastian-sawe-kenya-running-record.html
-
-**David Malouf, Novelist of Australia’s Divided Heritage, Dies at 92**\
-`Declared a national living treasure in 1997, he wrote poetry and short stories but was best known for his nine novels, including “The Great World.”`\
-https://www.nytimes.com/2026/04/27/books/david-malouf-dead.html
 
