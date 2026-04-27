@@ -1,3 +1,11 @@
+**Man Sentenced to 115 Years for Killing N.Y.P.D. Officer in Queens**\
+`Guy Rivera faces the rest of his life in prison for fatally shooting Detective Jonathan Diller and attempting to kill his partner when they asked him to get out of his car.`\
+https://www.nytimes.com/2026/04/27/nyregion/rivera-nypd-diller-queens-shooting.html
+
+**Judge Delays Order to Force Penn to Turn Over List of Jews on Campus**\
+`The Trump administration had said it needed the information for an antisemitism investigation.`\
+https://www.nytimes.com/2026/04/27/us/trump-subpoena-list-jews-university-pennsylvania.html
+
 **Employment Agency Pushes Discrimination Cases That Match Trump’s Agenda**\
 `Field staff at the Equal Employment Opportunity Commission say they are being pressured to bring politically charged cases, even with little evidence.`\
 https://www.nytimes.com/2026/04/27/us/politics/eeoc-trump-discrimination-cases.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/27/world/canada/canadian-citizenship-by-descent-
 **Carney Sets Up Investment Fund to Boost Canadian Economic Independence**\
 `Canada’s sovereign wealth fund will be far smaller than ones in other oil-producing nations like Norway and the Middle East.`\
 https://www.nytimes.com/2026/04/27/world/canada/canada-sovereign-wealth-fund.html
-
-**‘Kenrex’ Review: Plunging Into the Violent World of True Crime**\
-`The play, by Jack Holden and Ed Stambollouian at the Lucille Lortel Theater, tells the story of a brutal bully who was shot and killed in plain view.`\
-https://www.nytimes.com/2026/04/27/theater/kenrex-review.html
-
-**From Indiana to Idaho, a Backlash Against A.I. Gathers Momentum**\
-`The widening movement is pulling in people from all walks of life, united by a worry that Big Tech will cash in while average Americans bear the costs.`\
-https://www.nytimes.com/2026/04/27/technology/ai-artificial-intelligence-backlash.html
 

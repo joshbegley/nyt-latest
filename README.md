@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/04/27/well/facebook-supplements-health.html
 `The Republican-controlled Legislature is meeting in Tallahassee this week to vote on the map, which would apply for the 2026 midterms if passed.`\
 https://www.nytimes.com/2026/04/27/us/desantis-florida-gop-house-map.html
 
-**A Frightening Night at the Washington Gala**\
+**A Frightening Night at a Washington Gala**\
 `Readers discuss political violence, online rumors, gun control and security measures.`\
 https://www.nytimes.com/2026/04/27/opinion/letters/white-house-correspondents-dinner-shooting.html
 

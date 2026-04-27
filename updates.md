@@ -1,3 +1,11 @@
+**Man Sentenced to 115 Years for Killing N.Y.P.D. Officer in Queens**\
+`Guy Rivera faces the rest of his life in prison for fatally shooting Detective Jonathan Diller and attempting to kill his partner when they asked him to get out of his car.`\
+https://www.nytimes.com/2026/04/27/nyregion/rivera-nypd-diller-queens-shooting.html
+
+**Judge Delays Order to Force Penn to Turn Over List of Jews on Campus**\
+`The Trump administration had said it needed the information for an antisemitism investigation.`\
+https://www.nytimes.com/2026/04/27/us/trump-subpoena-list-jews-university-pennsylvania.html
+
 **Employment Agency Pushes Discrimination Cases That Match Trump’s Agenda**\
 `Field staff at the Equal Employment Opportunity Commission say they are being pressured to bring politically charged cases, even with little evidence.`\
 https://www.nytimes.com/2026/04/27/us/politics/eeoc-trump-discrimination-cases.html
