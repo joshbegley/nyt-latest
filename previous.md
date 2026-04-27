@@ -1,3 +1,11 @@
+**Iran Offers Plan to Focus on Strait of Hormuz and Delay Nuclear Talks**\
+`In its latest offer delivered on Sunday, Iran proposed opening the key waterway to shipping traffic and lifting the U.S. blockade, while postponing the thornier nuclear issue until later.`\
+https://www.nytimes.com/2026/04/27/world/middleeast/iran-trump-talks-strait-of-hormuz-nuclear.html
+
+**A Guilty Plea in Jam Master Jay’s Murder, Two Decades Later**\
+`Jay Bryant’s admission of guilt on Monday was the first time anyone had publicly acknowledged orchestrating the 2002 killing of Jam Master Jay, the D.J. of Run-DMC.`\
+https://www.nytimes.com/2026/04/27/nyregion/jam-master-jay-run-dmc-murder-plea.html
+
 **Man Sentenced to 115 Years for Killing N.Y.P.D. Officer in Queens**\
 `Guy Rivera faces the rest of his life in prison for fatally shooting Detective Jonathan Diller and attempting to kill his partner when they asked him to get out of his car.`\
 https://www.nytimes.com/2026/04/27/nyregion/rivera-nypd-diller-queens-shooting.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/27/briefing/today-in-short.html
 **Human Remains Found in Tampa Bay in Search for Missing Student**\
 `The remains have not yet been identified, but a former University of South Florida student has been charged in connection with the murders of Nahida Bristy and Zamil Limon.`\
 https://www.nytimes.com/2026/04/27/us/human-remains-usf-student-tampa-bay.html
-
-**Have a Canadian Great-Great Grandparent? It Could Make You Canadian.**\
-`Canada has opened a route to citizenship for people who can prove they have a Canada-born ancestor. Millions could qualify, and Americans are already lining up to apply.`\
-https://www.nytimes.com/2026/04/27/world/canada/canadian-citizenship-by-descent-applications-americans-us.html
-
-**Carney Sets Up Investment Fund to Boost Canadian Economic Independence**\
-`Canada’s sovereign wealth fund will be far smaller than ones in other oil-producing nations like Norway and the Middle East.`\
-https://www.nytimes.com/2026/04/27/world/canada/canada-sovereign-wealth-fund.html
 

@@ -1,3 +1,11 @@
+**Iran Offers Plan to Focus on Strait of Hormuz and Delay Nuclear Talks**\
+`In its latest offer delivered on Sunday, Iran proposed opening the key waterway to shipping traffic and lifting the U.S. blockade, while postponing the thornier nuclear issue until later.`\
+https://www.nytimes.com/2026/04/27/world/middleeast/iran-trump-talks-strait-of-hormuz-nuclear.html
+
+**A Guilty Plea in Jam Master Jay’s Murder, Two Decades Later**\
+`Jay Bryant’s admission of guilt on Monday was the first time anyone had publicly acknowledged orchestrating the 2002 killing of Jam Master Jay, the D.J. of Run-DMC.`\
+https://www.nytimes.com/2026/04/27/nyregion/jam-master-jay-run-dmc-murder-plea.html
+
 **A Frightening Night at a Washington Gala**\
 `Readers discuss political violence, online rumors, gun control and security measures.`\
 https://www.nytimes.com/2026/04/27/opinion/letters/white-house-correspondents-dinner-shooting.html
