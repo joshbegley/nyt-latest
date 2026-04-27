@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/04/27/business/geely-china-byd-export.html
 `No corrections appeared in print on Monday, April 27, 2026.`\
 https://www.nytimes.com/2026/04/27/corrections/no-corrections-april-27-2026.html
 
-**California Billionaire Tax Has Enough Signatures to Land on Ballot, Backers Say**\
+**California Billionaire Tax Has Signatures Needed for Ballot, Backers Say**\
 `The measure calls for placing a one-time 5 percent tax on the assets of California residents with at least $1.1 billion. Opponents are backing competing measures to counter the tax.`\
 https://www.nytimes.com/2026/04/26/us/california-billionaire-tax.html
 
