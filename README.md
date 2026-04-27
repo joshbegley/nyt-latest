@@ -1,3 +1,7 @@
+**The Day the Food Noise Died**\
+`Before the rise of GLP-1s, obesity experts didn’t study the internal buzz that compels people to eat. Now that food noise is being switched off, they want to understand it.`\
+https://www.nytimes.com/2026/04/27/health/food-noise-obesity-drugs-glp-1.html
+
 **Microsoft and OpenAI Loosen Their Partnership**\
 `Microsoft, OpenAI’s biggest financial partner, will to continue to license the start-up’s technology but will no longer be its exclusive licensee.`\
 https://www.nytimes.com/2026/04/27/technology/microsoft-openai-partnership.html
@@ -67,14 +71,10 @@ https://www.nytimes.com/2026/04/27/learning/film-club-9192631770-hz.html
 https://www.nytimes.com/2026/04/27/crosswords/strands-sidekick-786.html
 
 **Wordle Review No. 1,774**\
-`Scroll down for hints and conversation about the puzzle for Monday, April 28, 2026.`\
+`Scroll down for hints and conversation about the puzzle for Tuesday, April 28, 2026.`\
 https://www.nytimes.com/2026/04/27/crosswords/wordle-review-1774.html
 
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/27/us/white-house-dinner-trump-shooting/heres-the-latest
-
-**China Orders the Unwinding of Meta’s Acquisition of an A.I. Start-Up**\
-`The impact of the ruling was not immediately clear, but it could send a chilling signal to Chinese tech founders seeking to team up with foreign companies.`\
-https://www.nytimes.com/2026/04/27/business/china-meta-manus-ai-deal.html
 
