@@ -1,3 +1,7 @@
+**‘Kenrex’ Review: Plunging Into the Violent World of True Crime**\
+`The play, by Jack Holden and Ed Stambollouian at the Lucille Lortel Theater, tells the story of a brutal bully who was shot and killed in plain view.`\
+https://www.nytimes.com/2026/04/27/theater/kenrex-review.html
+
 **From Indiana to Idaho, a Backlash Against A.I. Gathers Momentum**\
 `The widening movement is pulling in people from all walks of life, united by a worry that Big Tech will cash in while average Americans bear the costs.`\
 https://www.nytimes.com/2026/04/27/technology/ai-artificial-intelligence-backlash.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/27/world/europe/pope-leo-archbishop-canterbury-m
 **United Airlines Says It Pitched American on Merger but Was Rebuffed**\
 `United’s chief acknowledged for the first time that he had broached the idea of a merger with American, which was unwilling to consider it.`\
 https://www.nytimes.com/2026/04/27/business/united-airlines-american-merger.html
-
-**Pregnancy With Lupus Is Risky. Would She Be Able to Carry Her Baby to Term?**\
-`Fatimah Shepherd’s kidneys were compromised, and pregnancy could send her into kidney failure.`\
-https://www.nytimes.com/2026/04/27/science/lupus-pregnancy-kidney-failure.html
 
