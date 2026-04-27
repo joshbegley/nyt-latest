@@ -1,3 +1,27 @@
+**David Malouf, Novelist of Australia’s Divided Heritage, Dies at 92**\
+`Declared a national living treasure in 1997, he wrote poetry and short stories but was best known for his nine novels, including “The Great World.”`\
+https://www.nytimes.com/2026/04/27/books/david-malouf-dead.html
+
+**As Part of Royal Visit, Trumps Will Show Off the White House Bees**\
+`King Charles and Queen Camilla, both avid beekeeping supporters, will visit the White House-shaped hive on the South Lawn.`\
+https://www.nytimes.com/2026/04/27/us/politics/trump-king-charles-white-house-beekeeping.html
+
+**Venice Opera Cuts Ties With Conductor After Months of Dispute**\
+`Beatrice Venezi’s appointment as music director drew scorn from orchestra members who said she was unqualified. She fought back in several interviews.`\
+https://www.nytimes.com/2026/04/27/arts/beatrice-venezi-la-fenice.html
+
+**Facebook Has a Health Scam Problem**\
+`A new report found hundreds of thousands of scam ads for medical products, some of which were illegal or had been deemed dangerous.`\
+https://www.nytimes.com/2026/04/27/well/facebook-supplements-health.html
+
+**DeSantis Proposes Florida House Map That Could Add Four Republican Seats**\
+`The Republican-controlled Legislature is meeting in Tallahassee this week to vote on the map, which would apply for the 2026 midterms if passed.`\
+https://www.nytimes.com/2026/04/27/us/desantis-florida-gop-house-map.html
+
+**Canadá afirma que su oro es rastreable y limpio. Así que lo verificamos**\
+`El oro de la Real Casa de la Moneda de Canadá incluye metal procedente de un remolino de fuentes lejanas, incluidas minas colombianas controladas por un cartel de la droga.`\
+https://www.nytimes.com/es/2026/04/27/espanol/mundo/canada-oro-mina-colombia.html
+
 **Virginia High Court Weighs Legality of Congressional Map Approved Last Week**\
 `Oral arguments on Monday morning lasted about an hour. It was not clear how justices would rule.`\
 https://www.nytimes.com/2026/04/27/us/virginia-court-congressional-map-redistricting.html
