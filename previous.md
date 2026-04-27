@@ -1,3 +1,11 @@
+**Eran la ‘segunda familia’ de Michael Jackson. Ahora dicen que abusó de ellos**\
+`Tras haberlo apoyado durante años ante las acusaciones de abuso sexual infantil, los hermanos Cascio han demandado al patrimonio de Michael Jackson.`\
+https://www.nytimes.com/es/2026/04/27/espanol/cultura/michael-jacksons-familia-cascio.html
+
+**Word of the Day: calumny**\
+`This word has appeared in eight articles on NYTimes.com in the past two years. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/04/27/learning/word-of-the-day-calumny.html
+
 **‘Widow’s Bay,’ and 6 More Things to Watch on TV This Week**\
 `The Apple TV show starring Matthew Rhys premieres, and two true crime documentaries air.`\
 https://www.nytimes.com/2026/04/27/arts/television/widows-bay-what-to-watch-on-tv.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/26/us/politics/security-correspondents-dinner.ht
 **‘Peanuts’ or ‘Pickles’**\
 `Ease into your solving week with a Neville Fogarty puzzle that’s very relaxing.`\
 https://www.nytimes.com/2026/04/26/crosswords/daily-puzzle-2026-04-27.html
-
-**‘Shots Fired!’: Inside the Pandemonium at the Washington Hilton**\
-`Guests dived to the floor and took cover as Secret Service agents climbed over tables to protect some of the country’s most high-ranking officials, including President Trump.`\
-https://www.nytimes.com/2026/04/26/us/politics/shots-fired-inside-the-pandemonium-at-the-washington-hilton.html
-
-**Map: 6.1-Magnitude Earthquake Shakes Northern Japan**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/04/26/world/quake-tracker-northern-japan.html
 
