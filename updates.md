@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/27/crosswords/spelling-bee-forum.html
+
 ****\
 `tktkt`\
 https://www.nytimes.com/video/embedded/business/100000010864703/Biz-Japan-Bathhouse-video.html

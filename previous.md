@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/27/crosswords/spelling-bee-forum.html
+
 ****\
 `tktkt`\
 https://www.nytimes.com/video/embedded/business/100000010864703/Biz-Japan-Bathhouse-video.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/26/us/politics/white-house-dinner-shooting-suspe
 **What We Know About the Gunman at the White House Press Dinner**\
 `The authorities are investigating a motive for the attack by the suspect, identified as Cole Tomas Allen. Those who know him described him as a “completely average guy.”`\
 https://www.nytimes.com/article/what-we-know-gunman-white-house-press-dinner.html
-
-**Security at Correspondents’ Dinner Worked as Intended, Experts Say**\
-`Officials noted that the suspect never made it into the hotel ballroom, where President Trump and hundreds of journalists were gathered for the White House correspondents’ dinner.`\
-https://www.nytimes.com/2026/04/26/us/politics/security-correspondents-dinner.html
 
