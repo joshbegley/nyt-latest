@@ -1,3 +1,11 @@
+**Map: 3.4-Magnitude Earthquake Shakes Los Angeles Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/04/27/us/quake-tracker-southern-california.html
+
+**Mientras otros invitados se escondían, él siguió atento a su ensalada**\
+`Michael Glantz, uno de los principales agentes de la Agencia de Artistas Creativos, comió tranquilamente su aperitivo durante la conmoción de la cena de corresponsales de la Casa Blanca. Tenía sus razones.`\
+https://www.nytimes.com/es/2026/04/27/espanol/estados-unidos/tiroteo-casa-blanca-invitado-ensalada.html
+
 **Sergey Brin Moves to the Right, With a ‘MAGA Girlfriend’ by His Side**\
 `After once backing liberal causes, the Google co-founder has praised President Trump, donated to Republicans and spent $57 million to try to block a California billionaire tax.`\
 https://www.nytimes.com/2026/04/27/us/politics/sergey-brin-gg-soto-trump-california-billionaire-tax.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/27/world/middleeast/hezbollah-weapons-lebanon-is
 **Musk vs. Altman: A High-Stakes A.I. Clash Goes to Court**\
 `Elon Musk is seeking more than $150 billion in damages and a complete shake-up of OpenAI. The outcome could have big consequences for the artificial intelligence industry.`\
 https://www.nytimes.com/2026/04/27/business/dealbook/musk-altman-ai-trial.html
-
-**Raghu Rai, Photographer Who Captured Modern India, Dies at 83**\
-`Mr. Rai documented major figures like the Dalai Lama and Indira Gandhi, as well as the victims of a poison gas leak in the city of Bhopal.`\
-https://www.nytimes.com/2026/04/27/world/asia/raghu-rai-photographer-dead.html
-
-**Gold Standards**\
-`We explore a Times investigation into the gold market.`\
-https://www.nytimes.com/2026/04/27/briefing/gold-standards.html
 
