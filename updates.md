@@ -1,3 +1,7 @@
+**Supreme Court Appears Divided Over Roundup Weedkiller Case**\
+`The case could help determine the future of thousands of lawsuits against the maker of a popular herbicide over claims that it causes cancer.`\
+https://www.nytimes.com/2026/04/27/us/politics/supreme-court-roundup-weedkiller.html
+
 **President and First Lady Demand ABC Fire Jimmy Kimmel Over ‘Widow’ Joke**\
 `The joke was recorded two days before the White House correspondents’ dinner, where a gunman tried to storm the press gala.`\
 https://www.nytimes.com/2026/04/27/us/politics/trump-jimmy-kimmel-abc-widow-joke.html
