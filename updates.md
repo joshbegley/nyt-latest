@@ -1,3 +1,11 @@
+**President and First Lady Demand ABC Fire Jimmy Kimmel Over ‘Widow’ Joke**\
+`The joke was recorded two days before the White House correspondents’ dinner, where a gunman tried to storm the press gala.`\
+https://www.nytimes.com/2026/04/27/us/politics/trump-jimmy-kimmel-abc-widow-joke.html
+
+**Científicos identifican el ‘orbe dorado’, un misterio de las profundidades marinas**\
+`El extraño y brillante descubrimiento, recuperado del océano cerca de Alaska en 2023, dejó perplejos a investigadores de todo el mundo en aquel entonces.`\
+https://www.nytimes.com/es/2026/04/27/espanol/ciencia-y-tecnologia/alaska-orbe-dorado.html
+
 **A. I. High School Is Put on Hold After Parental Backlash**\
 `Families in New York City expressed concerns about the rapid adoption of the technology. The schools chancellor also canceled a plan to close two Upper West Side schools.`\
 https://www.nytimes.com/2026/04/27/nyregion/nyc-ai-high-school-halted.html
