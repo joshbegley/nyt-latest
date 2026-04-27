@@ -1,3 +1,7 @@
+**F.B.I. Patrols Neighborhood of Man Held in Connection to Gala Shooting**\
+`The F.B.I was seen at the home of a man held in connection with the shooting at the White House correspondents’ dinner. Residents of Torrance, Calif. said they were surprised to hear that the suspect appeared to be from their neighborhood.`\
+https://www.nytimes.com/video/us/100000010864566/suspect-shooting-washington-dinner.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/04/27/crosswords/spelling-bee-forum.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/26/us/politics/white-house-correspondents-dinner
 **Officials Investigating Writing Tied to Correspondents’ Dinner Attack**\
 `A man being held in connection with the attack wrote a note indicating potential targets and grievances, authorities say.`\
 https://www.nytimes.com/2026/04/26/us/politics/white-house-dinner-shooting-suspect-writings.html
-
-**What We Know About the Gunman at the White House Press Dinner**\
-`The authorities are investigating a motive for the attack by the suspect, identified as Cole Tomas Allen. Those who know him described him as a “completely average guy.”`\
-https://www.nytimes.com/article/what-we-know-gunman-white-house-press-dinner.html
 

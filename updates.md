@@ -1,3 +1,7 @@
+**F.B.I. Patrols Neighborhood of Man Held in Connection to Gala Shooting**\
+`The F.B.I was seen at the home of a man held in connection with the shooting at the White House correspondents’ dinner. Residents of Torrance, Calif. said they were surprised to hear that the suspect appeared to be from their neighborhood.`\
+https://www.nytimes.com/video/us/100000010864566/suspect-shooting-washington-dinner.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/04/27/crosswords/spelling-bee-forum.html
