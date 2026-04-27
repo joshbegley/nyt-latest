@@ -1,3 +1,7 @@
+**Cómo el retrato de una estrella del pop impulsó la carrera de una artista española**\
+`Nieves González, una pintora de 29 años, trabajaba antes en un relativo anonimato en Andalucía. Retratar a la cantante británica Lily Allen cambió eso.`\
+https://www.nytimes.com/es/2026/04/26/espanol/cultura/nieves-gonzalez-lily-allen-artista-west-end-girl.html
+
 **Muted Reaction as Oil and Stock Markets Reopen**\
 `Oil prices rose and stocks fell after President Trump called off a trip to Pakistan by two U.S. negotiators for peace talks with Iran.`\
 https://www.nytimes.com/2026/04/26/business/oil-stocks-gas-iran.html
