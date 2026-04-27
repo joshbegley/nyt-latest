@@ -1,3 +1,11 @@
+**Today, In Short**\
+`“Top Chef.” Zara Larsson. And the latest from the shooting at the correspondents’ dinner.`\
+https://www.nytimes.com/2026/04/27/briefing/today-in-short.html
+
+**Human Remains Found in Tampa Bay in Search for Missing Student**\
+`The remains have not yet been identified, but a former University of South Florida student has been charged in connection with the murders of Nahida Bristy and Zamil Limon.`\
+https://www.nytimes.com/2026/04/27/us/human-remains-usf-student-tampa-bay.html
+
 **Have a Canadian Great-Great Grandparent? It Could Make You Canadian.**\
 `Canada has opened a route to citizenship for people who can prove they have a Canada-born ancestor. Millions could qualify, and Americans are already lining up to apply.`\
 https://www.nytimes.com/2026/04/27/world/canada/canadian-citizenship-by-descent-applications-americans-us.html
