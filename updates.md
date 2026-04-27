@@ -1,3 +1,7 @@
+**Top Iranian Official Meets Putin in Russia to Discuss the Middle East War**\
+`Abbas Araghchi, Iran’s foreign minister, met with President Vladimir V. Putin. Moscow, an ally of Iran, has sought to avoid becoming too entangled in the conflict although it wants to remain a key player in the region.`\
+https://www.nytimes.com/2026/04/27/world/europe/iran-foreign-minister-russia.html
+
 **The Day the Food Noise Died**\
 `Before the rise of GLP-1s, obesity experts didn’t study the internal buzz that compels people to eat. Now that food noise is being switched off, they want to understand it.`\
 https://www.nytimes.com/2026/04/27/health/food-noise-obesity-drugs-glp-1.html
