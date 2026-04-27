@@ -1,3 +1,7 @@
+**House Republican Makes His First Statement About Mysterious Absence**\
+`Representative Thomas Kean Jr. of New Jersey, who has missed nearly two months of votes in Washington, said he expected to fully recover from a “personal medical issue” but gave no other details.`\
+https://www.nytimes.com/2026/04/27/nyregion/kean-new-jersey-house-absence.html
+
 **Student News Quiz: Political Shooting, Running Milestone, Chernobyl**\
 `Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
 https://www.nytimes.com/interactive/2026/04/27/learning/27StudentNewsQuiz.html
