@@ -1,3 +1,7 @@
+**Mali’s Defense Minister Killed in Attacks by Islamist Insurgents**\
+`The death of the minister, Gen. Sadio Camara, a central figure in the country’s military government, comes amid escalating violence in the region.`\
+https://www.nytimes.com/2026/04/27/world/africa/mali-defense-minster-killed.html
+
 **F.B.I. Patrols Neighborhood of Man Held in Connection to Gala Shooting**\
 `The F.B.I was seen at the home of a man held in connection with the shooting at the White House correspondents’ dinner. Residents of Torrance, Calif. said they were surprised to hear that the suspect appeared to be from their neighborhood.`\
 https://www.nytimes.com/video/us/100000010864566/suspect-shooting-washington-dinner.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/26/business/oil-stocks-gas-iran.html
 **Dinner, Interrupted: Over Brunch, Journalists Reflect on a Chaotic Night**\
 `Moving to a new venue, or the East Wing? Plans for the White House Correspondents’ Association dinner are fluid following Saturday’s shocking events.`\
 https://www.nytimes.com/2026/04/26/us/politics/white-house-correspondents-dinner-future.html
-
-**Officials Investigating Writing Tied to Correspondents’ Dinner Attack**\
-`A man being held in connection with the attack wrote a note indicating potential targets and grievances, authorities say.`\
-https://www.nytimes.com/2026/04/26/us/politics/white-house-dinner-shooting-suspect-writings.html
 
