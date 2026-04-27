@@ -1,3 +1,7 @@
+**Charges Against Assassination Suspect Based on Shotgun Shell and a Screed**\
+`The authorities say the California man stormed a black-tie gala on Saturday seeking to kill the president.`\
+https://www.nytimes.com/2026/04/27/us/politics/trump-assassination-attempt-cole-allen-charges.html
+
 **The Billionaires Dominating California Politics**\
 `Between Sergey Brin and Tom Steyer, ultrawealthy people are trying to guide the state’s direction.`\
 https://www.nytimes.com/2026/04/27/us/politics/california-billionaires-tax-governor.html
