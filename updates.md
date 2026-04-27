@@ -1,3 +1,7 @@
+**TK**\
+`TK`\
+https://static01.nyt.com/slideshow/2026/04/27/t-magazine/tk.html
+
 **The Art of the Nuclear Deal**\
 `President Trump ripped up a pact designed to prevent Iran from building a bomb. Getting a better agreement now could prove difficult.`\
 https://www.nytimes.com/2026/04/27/world/nuclear-deal-iran-trump-assasination-charges.html
