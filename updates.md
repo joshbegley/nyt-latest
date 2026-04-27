@@ -1,3 +1,7 @@
+**Microsoft and OpenAI Loosen Their Partnership**\
+`Microsoft, OpenAI’s biggest financial partner, will continue to license the start-up’s technology but will no longer be its exclusive licensee.`\
+https://www.nytimes.com/2026/04/27/technology/microsoft-openai-partnership.html
+
 **Map: 3.4-Magnitude Earthquake Shakes Los Angeles Area**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/04/27/us/quake-tracker-southern-california.html
