@@ -1,3 +1,11 @@
+**Have a Canadian Great-Great Grandparent? It Could Make You Canadian.**\
+`Canada has opened a route to citizenship for people who can prove they have a Canada-born ancestor. Millions could qualify, and Americans are already lining up to apply.`\
+https://www.nytimes.com/2026/04/27/world/canada/canadian-citizenship-by-descent-applications-americans-us.html
+
+**Carney Sets Up Investment Fund to Distance Canadian Economy From U.S.**\
+`Canada’s sovereign wealth fund will be far smaller than ones in other oil-producing nations like Norway and the Middle East.`\
+https://www.nytimes.com/2026/04/27/world/canada/canada-sovereign-wealth-fund.html
+
 **‘Kenrex’ Review: Plunging Into the Violent World of True Crime**\
 `The play, by Jack Holden and Ed Stambollouian at the Lucille Lortel Theater, tells the story of a brutal bully who was shot and killed in plain view.`\
 https://www.nytimes.com/2026/04/27/theater/kenrex-review.html
