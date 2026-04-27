@@ -1,3 +1,7 @@
+**California Billionaire Tax Has Signatures Needed for Ballot, Backers Say**\
+`The measure calls for placing a one-time 5 percent tax on the assets of California residents with at least $1.1 billion. Opponents are backing competing measures to counter the tax.`\
+https://www.nytimes.com/2026/04/26/us/california-billionaire-tax.html
+
 **Can King Charles Help Heal the U.S.-British Rupture?**\
 `Not since his mother, Queen Elizabeth II, traveled to Washington after the Suez Crisis has a visit by the British monarch come at such a fraught time in Anglo-American relations.`\
 https://www.nytimes.com/2026/04/27/world/europe/can-king-charles-help-heal-the-us-british-rupture.html
