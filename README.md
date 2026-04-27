@@ -1,3 +1,7 @@
+**Euphoria in Kenya After Sabastian Sawe’s Record-Breaking Win**\
+`The London Marathon winner’s achievement has resonated nowhere more than in Kenya’s Rift Valley, which has yielded many champions.`\
+https://www.nytimes.com/2026/04/27/world/africa/sabastian-sawe-kenya-running-record.html
+
 **David Malouf, Novelist of Australia’s Divided Heritage, Dies at 92**\
 `Declared a national living treasure in 1997, he wrote poetry and short stories but was best known for his nine novels, including “The Great World.”`\
 https://www.nytimes.com/2026/04/27/books/david-malouf-dead.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/04/27/us/quake-tracker-southern-califor
 **Mientras otros invitados se escondían, él siguió atento a su ensalada**\
 `Michael Glantz, uno de los principales agentes de la Agencia de Artistas Creativos, comió tranquilamente su aperitivo durante la conmoción de la cena de corresponsales de la Casa Blanca. Tenía sus razones.`\
 https://www.nytimes.com/es/2026/04/27/espanol/estados-unidos/tiroteo-casa-blanca-invitado-ensalada.html
-
-**Sergey Brin Moves to the Right, With a ‘MAGA Girlfriend’ by His Side**\
-`After once backing liberal causes, the Google co-founder has praised President Trump, donated to Republicans and spent $57 million to try to block a California billionaire tax.`\
-https://www.nytimes.com/2026/04/27/us/politics/sergey-brin-gg-soto-trump-california-billionaire-tax.html
 
