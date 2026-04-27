@@ -1,3 +1,11 @@
+**Map: 3.4-Magnitude Earthquake Shakes Los Angeles Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/04/27/us/quake-tracker-southern-california.html
+
+**Mientras otros invitados se escondían, él siguió atento a su ensalada**\
+`Michael Glantz, uno de los principales agentes de la Agencia de Artistas Creativos, comió tranquilamente su aperitivo durante la conmoción de la cena de corresponsales de la Casa Blanca. Tenía sus razones.`\
+https://www.nytimes.com/es/2026/04/27/espanol/estados-unidos/tiroteo-casa-blanca-invitado-ensalada.html
+
 **Sergey Brin Moves to the Right, With a ‘MAGA Girlfriend’ by His Side**\
 `After once backing liberal causes, the Google co-founder has praised President Trump, donated to Republicans and spent $57 million to try to block a California billionaire tax.`\
 https://www.nytimes.com/2026/04/27/us/politics/sergey-brin-gg-soto-trump-california-billionaire-tax.html
