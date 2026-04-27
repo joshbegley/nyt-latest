@@ -1,3 +1,7 @@
+**Altman, Musk and the A.I. Spectacle Come to ‘The Town’**\
+`Oakland, Calif., where Elon Musk’s trial against OpenAI and its chief executive, Sam Altman, starts on Monday, is not exactly known as a hub of the tech industry.`\
+https://www.nytimes.com/2026/04/27/technology/altman-musk-openai-ai-oakland.html
+
 **The Day the Food Noise Died**\
 `Before the rise of GLP-1s, obesity experts didn’t study the internal buzz that compels people to eat. Now that food noise is being switched off, they want to understand it.`\
 https://www.nytimes.com/2026/04/27/health/food-noise-obesity-drugs-glp-1.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/27/crosswords/strands-sidekick-786.html
 **Wordle Review No. 1,774**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, April 28, 2026.`\
 https://www.nytimes.com/2026/04/27/crosswords/wordle-review-1774.html
-
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/04/27/us/white-house-dinner-trump-shooting/heres-the-latest
 
