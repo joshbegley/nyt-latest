@@ -1,3 +1,15 @@
+**The Billionaires Dominating California Politics**\
+`Between Sergey Brin and Tom Steyer, ultrawealthy people are trying to guide the state’s direction.`\
+https://www.nytimes.com/2026/04/27/us/politics/california-billionaires-tax-governor.html
+
+**Maybe Trump Was Never a Deal Maker**\
+`Trump built his political brand on being the ultimate negotiator, but in his second term that image is crumbling. On “The Opinions,” the columnist Carlos Lozada argues that we’re witnessing “the limits to his deal-making prowess, especially internationally.”`\
+https://www.nytimes.com/video/opinion/100000010856899/maybe-trump-was-never-a-deal-maker.html
+
+**Canada Announces Investment Fund to Distance Economy From the U.S.**\
+`Prime Minister Mark Carney announced the Canada Strong Fund, which will focus on investments in the country’s infrastructure. The sovereign wealth fund seeks to make the Canadian economy less dependent on the Unites States.`\
+https://www.nytimes.com/video/world/canada/100000010865115/canada-strong-fund-carney.html
+
 **Elon Musk Takes OpenAI to Court**\
 `Also, Trump hosts King Charles III and Queen Camilla. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/04/27/briefing/elon-musk-openai-best-books-so-far.html
@@ -61,16 +73,4 @@ https://www.nytimes.com/2026/04/27/us/politics/king-charles-washington-trump.htm
 **Cómo rastreamos el oro del gobierno de EE. UU. hasta un cartel de Colombia**\
 `Tres reporteros siguieron las cadenas de suministro para revelar que la Casa de la Moneda de Estados Unidos compra oro procedente de casas de empeño y narcotraficantes extranjeros.`\
 https://www.nytimes.com/es/2026/04/27/espanol/investigacion-oro-colombia-eeuu.html
-
-**Luis Puenzo, Director of Oscar-Winning Argentine Film, Dies at 80**\
-`“The Official Story,” set during Argentina’s brutal military dictatorship, won the country its first Academy Award for best foreign language film, in 1986.`\
-https://www.nytimes.com/2026/04/27/movies/luis-puenzo-dead.html
-
-**Iran Offers Plan to Focus on Strait of Hormuz and Delay Nuclear Talks**\
-`In its latest offer delivered on Sunday, Iran proposed opening the key waterway to shipping traffic and lifting the U.S. blockade, while postponing the thornier nuclear issue until later.`\
-https://www.nytimes.com/2026/04/27/world/middleeast/iran-trump-talks-strait-of-hormuz-nuclear.html
-
-**A Guilty Plea in Jam Master Jay’s Murder, Two Decades Later**\
-`Jay Bryant’s admission of guilt on Monday was the first time anyone had publicly acknowledged orchestrating the 2002 killing of Jam Master Jay, the D.J. of Run-DMC.`\
-https://www.nytimes.com/2026/04/27/nyregion/jam-master-jay-run-dmc-murder-plea.html
 

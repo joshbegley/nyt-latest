@@ -1,3 +1,15 @@
+**The Billionaires Dominating California Politics**\
+`Between Sergey Brin and Tom Steyer, ultrawealthy people are trying to guide the state’s direction.`\
+https://www.nytimes.com/2026/04/27/us/politics/california-billionaires-tax-governor.html
+
+**Maybe Trump Was Never a Deal Maker**\
+`Trump built his political brand on being the ultimate negotiator, but in his second term that image is crumbling. On “The Opinions,” the columnist Carlos Lozada argues that we’re witnessing “the limits to his deal-making prowess, especially internationally.”`\
+https://www.nytimes.com/video/opinion/100000010856899/maybe-trump-was-never-a-deal-maker.html
+
+**Canada Announces Investment Fund to Distance Economy From the U.S.**\
+`Prime Minister Mark Carney announced the Canada Strong Fund, which will focus on investments in the country’s infrastructure. The sovereign wealth fund seeks to make the Canadian economy less dependent on the Unites States.`\
+https://www.nytimes.com/video/world/canada/100000010865115/canada-strong-fund-carney.html
+
 **Elon Musk Takes OpenAI to Court**\
 `Also, Trump hosts King Charles III and Queen Camilla. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/04/27/briefing/elon-musk-openai-best-books-so-far.html
