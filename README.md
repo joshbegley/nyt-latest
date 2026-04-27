@@ -1,3 +1,7 @@
+**Trump Administration Will Pay Energy Firms to Cancel Wind Farms. Again.**\
+`In exchange, the companies will invest in oil and gas projects, echoing an earlier deal with the French energy giant TotalEnergies.`\
+https://www.nytimes.com/2026/04/27/climate/trump-administration-wind-farms.html
+
 **The President and the King**\
 `Courtesy can be tactical as well as virtuous.`\
 https://www.nytimes.com/2026/04/27/opinion/king-charles-trump-visit.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/27/world/africa/sabastian-sawe-kenya-running-rec
 **David Malouf, Novelist of Australia’s Divided Heritage, Dies at 92**\
 `Declared a national living treasure in 1997, he wrote poetry and short stories but was best known for his nine novels, including “The Great World.”`\
 https://www.nytimes.com/2026/04/27/books/david-malouf-dead.html
-
-**As Part of Royal Visit, Trumps Will Show Off the White House Bees**\
-`King Charles and Queen Camilla, both avid beekeeping supporters, will visit the White House-shaped hive on the South Lawn.`\
-https://www.nytimes.com/2026/04/27/us/politics/trump-king-charles-white-house-beekeeping.html
 

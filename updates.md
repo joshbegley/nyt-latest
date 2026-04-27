@@ -1,3 +1,11 @@
+**The President and the King**\
+`Courtesy can be tactical as well as virtuous.`\
+https://www.nytimes.com/2026/04/27/opinion/king-charles-trump-visit.html
+
+**A.I. High School Is Put on Hold After Parental Backlash**\
+`Families in New York City expressed concerns about the rapid adoption of the technology. The schools chancellor also canceled a plan to close two Upper West Side schools.`\
+https://www.nytimes.com/2026/04/27/nyregion/nyc-ai-high-school-halted.html
+
 **Supreme Court Appears Divided Over Roundup Weedkiller Case**\
 `The case could help determine the future of thousands of lawsuits against the maker of a popular herbicide over claims that it causes cancer.`\
 https://www.nytimes.com/2026/04/27/us/politics/supreme-court-roundup-weedkiller.html
