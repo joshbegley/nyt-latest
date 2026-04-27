@@ -1,3 +1,15 @@
+**United Airlines Says It Pitched American on Merger but Was Rebuffed**\
+`United’s chief acknowledged for the first time that he had broached the idea of a merger with American, which was unwilling to consider it.`\
+https://www.nytimes.com/2026/04/27/business/united-airlines-american-merger.html
+
+**Pregnancy With Lupus Is Risky. Would She Be Able to Carry Her Baby to Term?**\
+`Fatimah Shepherd’s kidneys were compromised, and pregnancy could send her into kidney failure.`\
+https://www.nytimes.com/2026/04/27/science/lupus-pregnancy-kidney-failure.html
+
+**Hezbollah Says It Will Keep Weapons as Lebanon Says Israeli Strikes Killed 14**\
+`Despite a cease-fire, Israel and Hezbollah have been trading attacks almost daily.`\
+https://www.nytimes.com/2026/04/27/world/middleeast/hezbollah-weapons-lebanon-israel.html
+
 **Musk vs. Altman: A High-Stakes A.I. Clash Goes to Court**\
 `Elon Musk is seeking more than $150 billion in damages and a complete shake-up of OpenAI. The outcome could have big consequences for the artificial intelligence industry.`\
 https://www.nytimes.com/2026/04/27/business/dealbook/musk-altman-ai-trial.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/27/arts/michael-jackson-movie-fan-reactions.html
 **Grievance Propelled Gala Attack Suspect Across Country, Authorities Say**\
 `A man who has worked as a tutor and graduated from the California Institute of Technology is being held by authorities in connection with the armed attack at the White House correspondents’ dinner.`\
 https://www.nytimes.com/2026/04/27/us/politics/cole-allen-suspect-washington-correspondents-dinner-shooting.html
-
-**Woman Gets Jail After Unleashing Swarm of Bees During an Eviction**\
-`The woman, who is a beekeeper, was sentenced to six months after being convicted of using the bees as a weapon against deputies during a 2022 eviction.`\
-https://www.nytimes.com/2026/04/27/us/bees-attack-eviction-massachusetts.html
-
-**The Rise of the High-Range, Less Expensive E.V.**\
-`Even as the electric vehicle market has slumped, there are more long-range E.V.s under $40,000 than ever before.`\
-https://www.nytimes.com/2026/04/27/upshot/cheap-electric-cars-gas-prices.html
-
-**The Democrats’ Premature Elation Trap**\
-`The midterms look promising. Looks can deceive.`\
-https://www.nytimes.com/2026/04/27/opinion/democrats-midterms.html
 

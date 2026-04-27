@@ -1,3 +1,15 @@
+**United Airlines Says It Pitched American on Merger but Was Rebuffed**\
+`United’s chief acknowledged for the first time that he had broached the idea of a merger with American, which was unwilling to consider it.`\
+https://www.nytimes.com/2026/04/27/business/united-airlines-american-merger.html
+
+**Pregnancy With Lupus Is Risky. Would She Be Able to Carry Her Baby to Term?**\
+`Fatimah Shepherd’s kidneys were compromised, and pregnancy could send her into kidney failure.`\
+https://www.nytimes.com/2026/04/27/science/lupus-pregnancy-kidney-failure.html
+
+**Hezbollah Says It Will Keep Weapons as Lebanon Says Israeli Strikes Killed 14**\
+`Despite a cease-fire, Israel and Hezbollah have been trading attacks almost daily.`\
+https://www.nytimes.com/2026/04/27/world/middleeast/hezbollah-weapons-lebanon-israel.html
+
 **Musk vs. Altman: A High-Stakes A.I. Clash Goes to Court**\
 `Elon Musk is seeking more than $150 billion in damages and a complete shake-up of OpenAI. The outcome could have big consequences for the artificial intelligence industry.`\
 https://www.nytimes.com/2026/04/27/business/dealbook/musk-altman-ai-trial.html
