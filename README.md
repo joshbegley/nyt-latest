@@ -1,4 +1,4 @@
-**Trump Administration Will Pay Energy Firms to Cancel Wind Farms. Again.**\
+**Trump Administration Will Pay More Energy Firms to Cancel Wind Farms**\
 `In exchange, the companies will invest in oil and gas projects, echoing an earlier deal with the French energy giant TotalEnergies.`\
 https://www.nytimes.com/2026/04/27/climate/trump-administration-wind-farms.html
 
