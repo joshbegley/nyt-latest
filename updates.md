@@ -1,3 +1,7 @@
+**Oil Rises and Stocks Waver as Peace Talks Stall**\
+`Oil prices rose and stocks fell after President Trump called off a trip to Pakistan by two U.S. negotiators for peace talks with Iran.`\
+https://www.nytimes.com/2026/04/26/business/oil-stocks-gas-iran.html
+
 **Mali’s Defense Minister Killed in Attacks by Islamist Insurgents**\
 `The death of the minister, Gen. Sadio Camara, a central figure in the country’s military government, comes amid escalating violence in the region.`\
 https://www.nytimes.com/2026/04/27/world/africa/mali-defense-minster-killed.html
