@@ -1,3 +1,7 @@
+**What to Know About the ‘Summer House’ Leaked Audio Drama**\
+`After West Wilson and Amanda Batula confirmed their relationship, fans were anticipating drama at the show’s next reunion. But audio appeared to leak weeks before its air date.`\
+https://www.nytimes.com/2026/04/27/style/bravo-summer-house-leaked-audio.html
+
 **Euphoria in Kenya After Sabastian Sawe’s Record-Breaking Win**\
 `The London Marathon winner’s achievement has resonated nowhere more than in Kenya’s Rift Valley, which has yielded many champions.`\
 https://www.nytimes.com/2026/04/27/world/africa/sabastian-sawe-kenya-running-record.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/27/climate/epa-science-trump-cuts.html
 **Map: 3.3-Magnitude Earthquake Shakes Los Angeles Area**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/04/27/us/quake-tracker-southern-california.html
-
-**Mientras otros invitados se escondían, él siguió atento a su ensalada**\
-`Michael Glantz, uno de los principales agentes de la Agencia de Artistas Creativos, comió tranquilamente su aperitivo durante la conmoción de la cena de corresponsales de la Casa Blanca. Tenía sus razones.`\
-https://www.nytimes.com/es/2026/04/27/espanol/estados-unidos/tiroteo-casa-blanca-invitado-ensalada.html
 

@@ -1,3 +1,7 @@
+**Euphoria in Kenya After Sabastian Sawe’s Record-Breaking Win**\
+`The London Marathon winner’s achievement has resonated nowhere more than in Kenya’s Rift Valley, which has yielded many champions.`\
+https://www.nytimes.com/2026/04/27/world/africa/sabastian-sawe-kenya-running-record.html
+
 **Carney Sets Up Investment Fund to Boost Canadian Economic Independence**\
 `Canada’s sovereign wealth fund will be far smaller than ones in other oil-producing nations like Norway and the Middle East.`\
 https://www.nytimes.com/2026/04/27/world/canada/canada-sovereign-wealth-fund.html
