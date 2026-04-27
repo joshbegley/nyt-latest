@@ -1,3 +1,7 @@
+**California Billionaire Tax Has Enough Signatures to Land on Ballot, Backers Say**\
+`The measure calls for placing a one-time 5 percent tax on the assets of California residents with at least $1.1 billion. Opponents are backing competing measures to counter the tax.`\
+https://www.nytimes.com/2026/04/26/us/california-billionaire-tax.html
+
 **‘The Comeback’ Season 3, Episode 6 Recap: Everything Breaks**\
 `Valerie has been terrible at keeping the A.I. thing a secret. Almost as terrible as Billy is at being her manager.`\
 https://www.nytimes.com/2026/04/26/arts/television/the-comeback-recap-season-3-episode-6.html
