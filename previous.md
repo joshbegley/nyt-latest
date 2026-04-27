@@ -1,5 +1,13 @@
+**Nedra Talley Ross, Last Surviving Member of the Ronettes, Dies at 80**\
+`With towering hairdos and perfect harmonies, she and her cousins Ronnie and Estelle brought a fresh edge to the girl-group sound in hits like “Be My Baby.”`\
+https://www.nytimes.com/2026/04/27/arts/music/nedra-talley-ross-dead.html
+
+**Is Andrew Yang Running for President?**\
+`This week on “Hard Fork” from The New York Times, the hosts Casey Newton and Kevin Roose ask the entrepreneur and 2020 presidential candidate Andrew Yang the big question: Is he running again in 2028?`\
+https://www.nytimes.com/video/podcasts/100000010866710/is-andrew-yang-running-for-president.html
+
 **Pentagon Can Temporarily Require Escorts for Journalists**\
-`An appeals panel ruled that the Defense Department can require escorts for reporters in the building while it fights an earlier decision that overturned many of the agency’s press rules.`\
+`An appeals panel ruled that the Defense Department can require escorts for reporters in the building while it fights an earlier decision that overturned many of the department’s press rules.`\
 https://www.nytimes.com/2026/04/27/business/media/pentagon-press-restrictions-escorts.html
 
 **U.S. Government Will Stop Paying for Test Strips to Detect Deadly Drugs**\
@@ -65,12 +73,4 @@ https://www.nytimes.com/2026/04/27/opinion/king-charles-trump-visit.html
 **Supreme Court Appears Divided Over Roundup Weedkiller Case**\
 `The case could help determine the future of thousands of lawsuits against the maker of a popular herbicide over claims that it causes cancer.`\
 https://www.nytimes.com/2026/04/27/us/politics/supreme-court-roundup-weedkiller.html
-
-**President and First Lady Demand ABC Fire Jimmy Kimmel Over ‘Widow’ Joke**\
-`The joke was recorded two days before the White House correspondents’ dinner, where a gunman tried to storm the press gala.`\
-https://www.nytimes.com/2026/04/27/us/politics/trump-jimmy-kimmel-abc-widow-joke.html
-
-**Científicos identifican el ‘orbe dorado’, un misterio de las profundidades marinas**\
-`El extraño y brillante descubrimiento, recuperado del océano cerca de Alaska en 2023, dejó perplejos a investigadores de todo el mundo en aquel entonces.`\
-https://www.nytimes.com/es/2026/04/27/espanol/ciencia-y-tecnologia/alaska-orbe-dorado.html
 

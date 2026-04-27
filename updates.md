@@ -1,3 +1,15 @@
+**Nedra Talley Ross, Last Surviving Member of the Ronettes, Dies at 80**\
+`With towering hairdos and perfect harmonies, she and her cousins Ronnie and Estelle brought a fresh edge to the girl-group sound in hits like “Be My Baby.”`\
+https://www.nytimes.com/2026/04/27/arts/music/nedra-talley-ross-dead.html
+
+**Is Andrew Yang Running for President?**\
+`This week on “Hard Fork” from The New York Times, the hosts Casey Newton and Kevin Roose ask the entrepreneur and 2020 presidential candidate Andrew Yang the big question: Is he running again in 2028?`\
+https://www.nytimes.com/video/podcasts/100000010866710/is-andrew-yang-running-for-president.html
+
+**Pentagon Can Temporarily Require Escorts for Journalists**\
+`An appeals panel ruled that the Defense Department can require escorts for reporters in the building while it fights an earlier decision that overturned many of the department’s press rules.`\
+https://www.nytimes.com/2026/04/27/business/media/pentagon-press-restrictions-escorts.html
+
 **Pentagon Can Temporarily Require Escorts for Journalists**\
 `An appeals panel ruled that the Defense Department can require escorts for reporters in the building while it fights an earlier decision that overturned many of the agency’s press rules.`\
 https://www.nytimes.com/2026/04/27/business/media/pentagon-press-restrictions-escorts.html
