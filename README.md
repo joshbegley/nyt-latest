@@ -1,3 +1,7 @@
+**House Republican Makes His First Statement About Mysterious Absence**\
+`Representative Thomas Kean Jr. of New Jersey, who has missed nearly two months of votes in Washington, said he expected to fully recover from a “personal medical issue” but gave no other details.`\
+https://www.nytimes.com/2026/04/27/nyregion/kean-new-jersey-house-absence.html
+
 **Student News Quiz: Political Shooting, Running Milestone, Chernobyl**\
 `Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
 https://www.nytimes.com/interactive/2026/04/27/learning/27StudentNewsQuiz.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/opinion/100000010856899/maybe-trump-was-never-a-de
 **Canada Announces Investment Fund to Distance Economy From the U.S.**\
 `Prime Minister Mark Carney announced the Canada Strong Fund, which will focus on investments in the country’s infrastructure. The sovereign wealth fund seeks to make the Canadian economy less dependent on the Unites States.`\
 https://www.nytimes.com/video/world/canada/100000010865115/canada-strong-fund-carney.html
-
-**Elon Musk Takes OpenAI to Court**\
-`Also, Trump hosts King Charles III and Queen Camilla. Here’s the latest at the end of Monday.`\
-https://www.nytimes.com/2026/04/27/briefing/elon-musk-openai-best-books-so-far.html
 
