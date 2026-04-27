@@ -1,3 +1,7 @@
+**A. I. High School Is Put on Hold After Parental Backlash**\
+`Families in New York City expressed concerns about the rapid adoption of the technology. The schools chancellor also canceled a plan to close two Upper West Side schools.`\
+https://www.nytimes.com/2026/04/27/nyregion/nyc-ai-high-school-halted.html
+
 **Read the Criminal Complaint and Affidavit Charging Cole Tomas Allen**\
 `Allen, 31, of Torrance, Calif., faces three counts, including two federal gun crimes and attempting to assassinate the president of the United States.`\
 https://www.nytimes.com/interactive/2026/04/27/us/affidavit-cole-tomas-allen-white-house-correspondents-dinner-shooting.html

@@ -1,3 +1,7 @@
+**A. I. High School Is Put on Hold After Parental Backlash**\
+`Families in New York City expressed concerns about the rapid adoption of the technology. The schools chancellor also canceled a plan to close two Upper West Side schools.`\
+https://www.nytimes.com/2026/04/27/nyregion/nyc-ai-high-school-halted.html
+
 **Read the Criminal Complaint and Affidavit Charging Cole Tomas Allen**\
 `Allen, 31, of Torrance, Calif., faces three counts, including two federal gun crimes and attempting to assassinate the president of the United States.`\
 https://www.nytimes.com/interactive/2026/04/27/us/affidavit-cole-tomas-allen-white-house-correspondents-dinner-shooting.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/27/us/desantis-florida-gop-house-map.html
 **The Frightening Night at a Washington Gala**\
 `Readers discuss political violence, online rumors, gun control and security measures.`\
 https://www.nytimes.com/2026/04/27/opinion/letters/white-house-correspondents-dinner-shooting.html
-
-**Virginia High Court Weighs Legality of Congressional Map Approved Last Week**\
-`Oral arguments on Monday morning lasted about an hour. It was not clear how justices would rule.`\
-https://www.nytimes.com/2026/04/27/us/virginia-court-congressional-map-redistricting.html
 
