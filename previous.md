@@ -1,3 +1,7 @@
+**British Embassy Hosts Royal Couple, and a Few Hundred More, at Garden Party**\
+`King Charles III and Queen Camilla gathered with Washington’s famous and not so famous for an off-the-record evening.`\
+https://www.nytimes.com/2026/04/27/us/politics/british-embassy-hosts-royal-couple-and-a-few-hundred-more-at-garden-party.html
+
 **Boots on the Ground**\
 `Hal Moore’s puzzle is a feast for the eyes.`\
 https://www.nytimes.com/2026/04/27/crosswords/daily-puzzle-2026-04-28.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/04/27/magazine/nile-rodgers-chic-disco-
 **Smokey Robinson Designed the Love Song as We Know It**\
 `He has written dozens of classic songs for classic acts — all in lucid, crystalline language, with a timeless elegance that still sets them soaring.`\
 https://www.nytimes.com/interactive/2026/04/27/magazine/smokey-robinson-miracles-motown-soul.html
-
-**Lionel Richie Has Always Had a Hand Placed Tenderly on the Nation’s Heart**\
-`He’s written heaps of our most indelibly gorgeous, time-stoppingly gentle hits — for the Commodores, for himself and for other pop legends.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/lionel-richie-rnb-pop-soul.html
 

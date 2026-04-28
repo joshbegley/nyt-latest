@@ -1,3 +1,7 @@
+**British Embassy Hosts Royal Couple, and a Few Hundred More, at Garden Party**\
+`King Charles III and Queen Camilla gathered with Washington’s famous and not so famous for an off-the-record evening.`\
+https://www.nytimes.com/2026/04/27/us/politics/british-embassy-hosts-royal-couple-and-a-few-hundred-more-at-garden-party.html
+
 **Boots on the Ground**\
 `Hal Moore’s puzzle is a feast for the eyes.`\
 https://www.nytimes.com/2026/04/27/crosswords/daily-puzzle-2026-04-28.html
