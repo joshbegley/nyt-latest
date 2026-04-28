@@ -1,80 +1,76 @@
-**The Jay-Z Interview**\
-`The artist shares stories behind his famous songs, the writing challenges he sets for himself and how he has sustained a hip-hop career.`\
-https://www.nytimes.com/2026/04/28/magazine/jayz-songs-lyrics-rhythm-process.html
+**Political Campaigns Have No Idea What’s About to Hit Them**\
+`Social media helped put Trump over the top. What’s A.I. going to do to us?`\
+https://www.nytimes.com/2026/04/28/opinion/political-campaigns-artificial-intelligence.html
 
-**The Taylor Swift Interview**\
-`The artist shares stories behind some of her biggest hits, her love of a “rant bridge” and how life in the public eye informs the stories she tells in her songs.`\
-https://www.nytimes.com/2026/04/28/magazine/taylor-swift-songwriting-process-interview.html
+**Constance Zimmer Honors Both Old and New in her Los Angeles Home**\
+`Inside her Los Feliz home in the hills, the ‘Love Story’ actress showcases memories, mugs and mustaches.`\
+https://www.nytimes.com/interactive/2026/04/28/realestate/constance-zimmer-house-tour.html
 
-**Rescue Efforts Underway After Deadly Indonesia Train Collision**\
-`A train collided with another train near Jakarta, Indonesia, on Monday, killing 14 people, the authorities said. Rescue workers carried injured people out of damaged train cars.`\
-https://www.nytimes.com/video/world/asia/100000010867053/indonesia-train-crash.html
+**With Cinematic Flair, a Sentient A.I. Learns Its Limits**\
+`For better or worse, the retro Replaced feels like a Sega Genesis game made with current technology.`\
+https://www.nytimes.com/2026/04/28/arts/replaced-review.html
 
-**Trains Collide in Indonesia, Killing at Least 14 and Injuring Dozens**\
-`Rescue teams searched for survivors overnight after two trains collided near Jakarta on Monday. The authorities said at least 84 people were injured.`\
-https://www.nytimes.com/2026/04/28/world/asia/indonesia-train-crash.html
+**What We Got Right — and Wrong — in ‘Abundance’**\
+`It’s been a big year for the abundance movement, but what has it really achieved? Ezra Klein talks with his “Abundance” co-author Derek Thompson and with Marc Dunkelman, the author of “Why Nothing Works.”`\
+https://www.nytimes.com/2026/04/28/opinion/ezra-klein-podcast-thompson-dunkelman.html
 
-**King and Queen of England Visit White House**\
-`King Charles III and Queen Camilla arrived at the White House, where President Trump and Melania Trump welcomed them at the start of a four-day state visit marking America’s 250th birthday.`\
-https://www.nytimes.com/video/us/100000010867018/king-charles-uk-royal-visit-trump.html
+**He Was Supposed to Die in Prison, but the Prosecutor Felt Guilty**\
+`Jessie Askew Jr. was sentenced to life without parole for a clumsy armed robbery with an unloaded gun. The man who sent him away was determined to bring him back home.`\
+https://www.nytimes.com/2026/04/28/magazine/jessie-askew-jr-release-robbery.html
 
-**Con ustedes, el nuevo líder del mundo libre**\
-`Volodímir Zelenski les está mostrando a los países europeos, y a otras naciones, cómo el mundo libre pos-Estados Unidos puede preservar su libertad e independencia.`\
-https://www.nytimes.com/es/2026/04/28/espanol/opinion/zelenski-lider-mundo-libre.html
+**Is It OK to Record People Without Their Knowledge?**\
+`More people are using smart glasses to record, often secretly, in public. Is that ethical?`\
+https://www.nytimes.com/2026/04/28/learning/is-it-ok-to-record-people-without-their-knowledge.html
 
-**¿Cómo enfrentará BTS una gira mundial agotadora?**\
-`El antiguo entrenador del grupo comparó a sus integrantes con atletas profesionales. “Es un trabajo que somete al cuerpo a mucho más esfuerzo del que la mayoría de la gente cree”.`\
-https://www.nytimes.com/es/2026/04/28/espanol/cultura/bts-gira-mundial.html
+**Transition to a New Fed Chair Is Unlikely to Mean Immediate Rate Cuts**\
+`The Federal Reserve is expected to hold interest rates steady this week as Jerome H. Powell presides over what is likely to be his last meeting as chair.`\
+https://www.nytimes.com/2026/04/28/business/federal-reserve-chair-rates-warsh-powell.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/04/28/crosswords/spelling-bee-forum.html
+**A Shelter’s Closing Is a Turning Point for Homeless Policy**\
+`The 30th Street shelter next to Bellevue Hospital has served homeless men for decades.`\
+https://www.nytimes.com/2026/04/28/nyregion/a-shelters-closing-is-a-turning-point-for-homeless-policy.html
 
-**Cherry Blossoms**\
-`What are the signs of spring where you live?`\
-https://www.nytimes.com/2026/04/28/learning/cherry-blossoms.html
+**Stephen Colbert Gets Ready to Hang It Up**\
+`His late-night show ends next month after 11 seasons. He has lots of feelings.`\
+https://www.nytimes.com/2026/04/28/business/media/stephen-colbert-late-night-show.html
 
-**Late Night Downloads the White House Correspondents’ Dinner**\
-`The event “was supposed to be an evening of fun and merriment,” Jon Stewart said, “until, like most things in America, it was interrupted by gunfire.”`\
-https://www.nytimes.com/2026/04/28/arts/television/late-night-white-house-correspondents-dinner.html
+**Republicans Brace for Brutal Midterms as Trump’s Popularity Slips**\
+`The elections are still six months off, and some within the G.O.P. say there is still time to right the ship.`\
+https://www.nytimes.com/2026/04/28/us/politics/republicans-midterms-trump-popularity-decline.html
 
-**Palabra del día: ‘analogous’**\
-`Esta palabra ha aparecido en 57 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
-https://www.nytimes.com/es/2026/04/28/espanol/que-significa-analogous.html
+**His Music Captured Norway’s Colors. His Life Reflected Its Shadows.**\
+`Geirr Tveitt’s reputation was tarnished by his nationalist politics. But a new generation of musicians is bringing this composer’s music to an international audience.`\
+https://www.nytimes.com/2026/04/28/arts/music/geirr-tveitt-leif-ove-andsnes-norway.html
 
-**Word of the Day: analogous**\
-`This word has appeared in 54 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/04/28/learning/word-of-the-day-analogous.html
+**Texas Lawmakers to Question Camp Mystic’s Owners Over Deadly Flood**\
+`Investigators told lawmakers that the camp, where 28 people died in a flood last July, did not prepare for an emergency as required by the state.`\
+https://www.nytimes.com/2026/04/28/us/camp-mystic-texas-lawmakers-investigation.html
 
-**La madre que no habla**\
-`Cuando su hijo de 11 años desapareció el año pasado, Jacqueline Pritchett se negó incluso a reconocer su existencia.`\
-https://www.nytimes.com/es/2026/04/28/espanol/estados-unidos/jacob-pritchett-desaparecido-madre.html
+**Why Do the Top Sushi Restaurants Leave Us So Bored, and So Broke?**\
+`What began in Japan as a quick, exciting working-class meal has morphed in American cities into an elaborate pampering of the well-heeled diner.`\
+https://www.nytimes.com/2026/04/28/dining/sushi-restaurants.html
 
-**It’s Been Centuries Since Haiti’s Revolution. It’s Still Paying for It.**\
-`Haiti’s revolution shocked the world. America still isn’t over it.`\
-https://www.nytimes.com/2026/04/28/opinion/haitis-original-sin-freedom.html
+**Graduates Reset Ambitions in Pursuit of First Jobs**\
+`Young people aiming to build careers are entering fields they had not considered to find their footing.`\
+https://www.nytimes.com/2026/04/28/business/economy/college-graduates-job-market.html
 
-**‘They Said A.I. Saved Me’: How South Korea Is Checking on Its Seniors**\
-`In the world’s fastest aging society, artificial intelligence is being used to make care calls to older adults who live alone and to fight dementia.`\
-https://www.nytimes.com/2026/04/28/world/asia/korea-ai-seniors-dementia.html
+**‘Disappointed,’ ‘Surprised,’ ‘Betrayed’: 12 Trump Voters on What Has Gone Wrong**\
+`Trump voters discuss their disappointment with the president’s second term.`\
+https://www.nytimes.com/interactive/2026/04/28/opinion/focus-group-trump-voters-disappointed.html
 
-**In Iran, Cheetah Sightings Offer Rare Spots of Hope Amid War**\
-`Conservationists say they have recorded several new adult and cub Asiatic cheetahs, a critically endangered subspecies found only in Iran.`\
-https://www.nytimes.com/2026/04/28/world/middleeast/iran-cheetah-sightings-war.html
+**Anger About Internet Restrictions Breathes Some Life Into Russian Politics**\
+`From beauty influencers to the token political opposition, Russians are openly questioning President Vladimir V. Putin’s moves to hamstring access.`\
+https://www.nytimes.com/2026/04/28/world/europe/russia-internet-restrictions-putin.html
 
-**Un parto libre la puso a ella y a su bebé en grave peligro**\
-`Los promotores del parto libre rechazan cualquier tipo de intervención médica durante el embarazo o el parto. El movimiento ha sido tendencia en las redes sociales, pero sus críticos advierten de los graves riesgos que esta práctica conlleva.`\
-https://www.nytimes.com/es/2026/04/28/espanol/ciencia-y-tecnologia/parto-libre-embarazo-riesgo.html
+**Want a Riot of Color in Your Flower Beds? Definitely Make a Plan.**\
+`There are painstaking decisions to make before the oranges, blues and yellows are just where you want them.`\
+https://www.nytimes.com/2026/04/28/realestate/garden-colorful-flowers.html
 
-**Corrections: April 28, 2026**\
-`Corrections that appeared in print on Tuesday, April 28, 2026.`\
-https://www.nytimes.com/2026/04/28/pageoneplus/corrections-april-28-2026.html
+**With ‘Sister Dreamer’ Park, Lauren Halsey Brings Her Heroes Home**\
+`The artist’s installation in South Central Los Angeles elevates familiar faces in the neighborhood with monuments of stone.`\
+https://www.nytimes.com/2026/04/28/arts/design/lauren-halsey-sculpture-park-dreamer-los-angeles.html
 
-**Quote of the Day: A Disquieting Political Routine Of Gunfire and Death Threats**\
-`Quotation of the day for Tuesday, April 28, 2026.`\
-https://www.nytimes.com/2026/04/27/pageoneplus/quote-of-the-day-a-disquieting-political-routine-of-gunfire-and-death-threats.html
-
-**British Embassy Hosts Royal Couple, and a Few Hundred More, at Garden Party**\
-`King Charles III and Queen Camilla gathered with Washington’s famous and not so famous for an off-the-record evening.`\
-https://www.nytimes.com/2026/04/27/us/politics/british-embassy-hosts-royal-couple-and-a-few-hundred-more-at-garden-party.html
+**If You Want ‘Project Hail Mary’ Merch, Grab Your Knitting Needles**\
+`A cardigan worn by Ryan Gosling’s character in the hit science-fiction movie has become something of a breakout star — but you can’t just buy it.`\
+https://www.nytimes.com/2026/04/28/style/project-hail-mary-sweater-ryan-gosling.html
 
