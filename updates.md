@@ -1,3 +1,15 @@
+**Offbeat Obituaries Honor Loss With Levity (and Brutal Honesty)**\
+`Irreverent tributes filled with unvarnished truths and funny anecdotes, which run counter to more somber traditional obituaries, have gained attention for “how alive they feel,” a researcher said.`\
+https://www.nytimes.com/2026/04/28/us/offbeat-obituaries-brutal-honesty.html
+
+**Is the U.S. in a Politically Violent Age? What the Data and History Say**\
+`A conversation with Sean Westwood, a professor at Dartmouth who tracks political violence and Americans’ perceptions of it.`\
+https://www.nytimes.com/2026/04/28/us/politics/political-violence-data-trump-dinner-shooting.html
+
+**22 Monks Smuggled 240 Pounds of Cannabis Into Sri Lanka, Officials Say**\
+`The group of Buddhist monks were arrested on Saturday at the country’s main international airport after a trip to Thailand that the authorities said was a cover for narcotics trafficking.`\
+https://www.nytimes.com/2026/04/28/world/asia/buddhist-monks-cannabis-sri-lanka.html
+
 **Google Signs A.I. Deal With the Pentagon**\
 `The Pentagon has also signed deals for using A.I. on classified networks with OpenAI and Elon Musk’s xAI, amid a dispute with Anthropic.`\
 https://www.nytimes.com/2026/04/28/technology/google-ai-deal-pentagon.html
