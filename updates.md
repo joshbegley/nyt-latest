@@ -1,3 +1,7 @@
+**Who Wrote Your Favorite Songs?**\
+`Test your knowledge of some of our songwriters’ biggest hits.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/hit-songs-songwriter-quiz.html
+
 **Cast Your Vote for the Greatest Living American Songwriters**\
 `Times critics, with the help of more than 250 experts, made their list of the 30 greatest living American songwriters. Now it’s your turn to choose.`\
 https://www.nytimes.com/interactive/2026/04/27/magazine/greatest-american-songwriters-vote.html

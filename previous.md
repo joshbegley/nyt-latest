@@ -10,7 +10,7 @@ https://www.nytimes.com/interactive/2026/04/27/magazine/greatest-living-songwrit
 `We received more than 250 expert ballots. Explore some of them here.`\
 https://www.nytimes.com/interactive/2026/04/27/magazine/critics-pick-greatest-american-songwriters.html
 
-**Who Actually Wrote Your Favorite Songs?**\
+**Who Wrote Your Favorite Songs?**\
 `Test your knowledge of some of our songwriters’ biggest hits.`\
 https://www.nytimes.com/interactive/2026/04/27/magazine/hit-songs-songwriter-quiz.html
 
