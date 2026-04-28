@@ -1,5 +1,5 @@
 **¿Qué es el Estatus de Protección Temporal?**\
-`Designed to help people from troubled nations stay and work in the United States, T.P.S. has been a target of the Trump administration.`\
+`Diseñado para ayudar a las personas procedentes de países con problemas a permanecer y trabajar en Estados Unidos, el programa humanitario ha estado bajo la mira del gobierno de Trump.`\
 https://www.nytimes.com/es/2026/04/28/espanol/estados-unidos/tps-que-es.html
 
 **Security is tight for King Charles’s U.S. visit.**\
@@ -22,8 +22,8 @@ https://www.nytimes.com/2026/04/28/us/fbi-minneapolis-fraud-investigation.html
 `The Nord, a 464-foot vessel, appears to be tied to Aleksei A. Mordashov, a Russian steel mogul who is under American and European sanctions.`\
 https://www.nytimes.com/2026/04/28/world/middleeast/yacht-strait-hormuz-russia-oligarch.html
 
-**In Major Move, United Arab Emirates Says It Will Leave OPEC**\
-`The Gulf government has long complained about the oil cartel’s quotas, which officials believe unfairly limited its exports.`\
+**United Arab Emirates Says It Will Leave OPEC in Blow to Oil Cartel**\
+`The Gulf government has long complained about the group’s quotas, which officials believe unfairly limited its exports.`\
 https://www.nytimes.com/2026/04/28/world/middleeast/uae-opec.html
 
 **Epstein Scandal Looms Over King Charles’s U.S. Visit**\

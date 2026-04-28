@@ -1,3 +1,15 @@
+**¿Qué es el Estatus de Protección Temporal?**\
+`Designed to help people from troubled nations stay and work in the United States, T.P.S. has been a target of the Trump administration.`\
+https://www.nytimes.com/es/2026/04/28/espanol/estados-unidos/tps-que-es.html
+
+**Security is tight for King Charles’s U.S. visit.**\
+``\
+https://www.nytimes.com/live/2026/04/28/us/king-charles-us-visit-trump/security-is-tight-for-king-charless-us-visit
+
+**Hegseth and Kid Rock Ride Army Helicopters in Wake of Contentious Flyby**\
+`The flights on Monday came a few weeks after two Apache crews were censured and then cleared for flying near the singer’s home.`\
+https://www.nytimes.com/2026/04/28/us/kid-rock-hegseth-apache-helicopter.html
+
 **A Work-Wear Staple in Gentle Pastels**\
 `A stylish woman in Upper Manhattan can’t be bothered with “tucking in shirts and all the things.”`\
 https://www.nytimes.com/2026/04/28/style/a-work-wear-staple-in-gentle-pastels.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/live/2026/04/28/us/king-charles-us-visit-trump/heres-the
 **The Small U.K. Agency That’s a 911 for Ships in the Strait of Hormuz**\
 `At a military base outside Portsmouth, England, a 24-hour service monitors the Persian Gulf, the Red Sea and part of the Indian Ocean, responding to distress calls.`\
 https://www.nytimes.com/2026/04/28/world/europe/ukmto-shipping-strait-hormuz.html
-
-**The Man Who (Relentlessly) Sued the N.F.L. Has Receipts**\
-`A sit-down with the former N.F.L. Players Association boss who negotiated $100 billion for athletes.`\
-https://www.nytimes.com/2026/04/28/podcasts/the-man-who-relentlessly-sued-the-nfl-has-receipts.html
-
-**Fuel Crisis Creates Commuter Crush in the Philippines**\
-`Rising fuel prices in the Philippines have disrupted daily commutes, forcing people to ditch their cars for overcrowded trains and minibuses.`\
-https://www.nytimes.com/video/world/asia/100000010844179/gas-prices-philippines-commute.html
-
-**¿Devolverá algún día la Cuba comunista los miles de millones que confiscó?**\
-`Con Cuba sumida en una grave crisis económica, las personas cuyas propiedades fueron confiscadas por su gobierno comunista dicen que ha llegado el momento de resolver las espinosas reclamaciones de indemnización.`\
-https://www.nytimes.com/es/2026/04/28/espanol/america-latina/cuba-indemnizacion-propiedades-confiscadas.html
 

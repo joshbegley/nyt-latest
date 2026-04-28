@@ -1,3 +1,15 @@
+**¿Qué es el Estatus de Protección Temporal?**\
+`Designed to help people from troubled nations stay and work in the United States, T.P.S. has been a target of the Trump administration.`\
+https://www.nytimes.com/es/2026/04/28/espanol/estados-unidos/tps-que-es.html
+
+**Security is tight for King Charles’s U.S. visit.**\
+``\
+https://www.nytimes.com/live/2026/04/28/us/king-charles-us-visit-trump/security-is-tight-for-king-charless-us-visit
+
+**Hegseth and Kid Rock Ride Army Helicopters in Wake of Contentious Flyby**\
+`The flights on Monday came a few weeks after two Apache crews were censured and then cleared for flying near the singer’s home.`\
+https://www.nytimes.com/2026/04/28/us/kid-rock-hegseth-apache-helicopter.html
+
 **A Work-Wear Staple in Gentle Pastels**\
 `A stylish woman in Upper Manhattan can’t be bothered with “tucking in shirts and all the things.”`\
 https://www.nytimes.com/2026/04/28/style/a-work-wear-staple-in-gentle-pastels.html
