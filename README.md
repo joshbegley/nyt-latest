@@ -1,3 +1,15 @@
+**¿Cómo enfrentará BTS una gira mundial agotadora?**\
+`El antiguo entrenador del grupo comparó a sus integrantes con atletas profesionales. “Es un trabajo que somete al cuerpo a mucho más esfuerzo del que la mayoría de la gente cree”.`\
+https://www.nytimes.com/es/2026/04/28/espanol/cultura/bts-gira-mundial.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/28/crosswords/spelling-bee-forum.html
+
+**Cherry Blossoms**\
+`What are the signs of spring where you live?`\
+https://www.nytimes.com/2026/04/28/learning/cherry-blossoms.html
+
 **Late Night Downloads the White House Correspondents’ Dinner**\
 `The event “was supposed to be an evening of fun and merriment,” Jon Stewart said, “until, like most things in America, it was interrupted by gunfire.”`\
 https://www.nytimes.com/2026/04/28/arts/television/late-night-white-house-correspondents-dinner.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/interactive/2026/04/27/magazine/greatest-living-songwrit
 **See Who Insiders Nominated as America’s Greatest Living Songwriters**\
 `We received more than 250 expert ballots. Explore some of them here.`\
 https://www.nytimes.com/interactive/2026/04/27/magazine/critics-pick-greatest-american-songwriters.html
-
-**Who Wrote Your Favorite Songs?**\
-`Test your knowledge of some of our songwriters’ biggest hits.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/hit-songs-songwriter-quiz.html
-
-**The Objects That Inspire America's Greatest Songwriters**\
-`The objects and instruments (and occasional creatures) that spur the writing process.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/great-american-songwriters-objects-inspiration.html
-
-**Stevie Wonder Is the Ultimate Embodiment of American Music**\
-`These are the songs you’d play to newborns, or alien visitors, to demonstrate the purest joys of our musical tradition.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/stevie-wonder-composer-preacher-visionary.html
 
