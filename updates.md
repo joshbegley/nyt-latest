@@ -1,3 +1,19 @@
+**Filing a Financial Aid Appeal? You May Not Get an Answer by May 1.**\
+`Northeastern University is behind in responding to appeals this year. Keep asking for a better deal — at any school — and more time to make up your mind.`\
+https://www.nytimes.com/2026/04/28/your-money/college-financial-aid-appeal-deadline.html
+
+**What are Elon Musk’s claims against Altman and OpenAI?**\
+``\
+https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/what-are-elon-musks-claims-against-altman-and-openai
+
+**California 14th Congressional District 2026: Latest Polls**\
+`Track the latest polls in California's 14th Congressional District.`\
+https://www.nytimes.com/interactive/polls/california-us-house-14-polls-2026.html
+
+**The Japanese Pizza Guard Is on Its Way**\
+`Pizza Studio Tamaki will bring the charred and bubbled crust of Tokyo-style Neapolitan pizza to the East Village, seafood with art in Williamsburg and more restaurant news.`\
+https://www.nytimes.com/2026/04/28/dining/nyc-restaurant-news.html
+
 **Nick Pope, U.F.O. Sleuth Who Chased the Truth, Dies at 60**\
 `Often likened to Agent Mulder from “The X-Files,” he worked for Britain’s defense ministry and became a leading commentator on extraterrestrial matters.`\
 https://www.nytimes.com/2026/04/28/science/nick-pope-dead.html
