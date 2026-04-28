@@ -1,3 +1,7 @@
+**El arte de la negociación nuclear**\
+`El presidente Trump rompió un pacto diseñado para impedir que Irán construyera una bomba. Conseguir un acuerdo mejor ahora podría ser complicado.`\
+https://www.nytimes.com/es/2026/04/28/espanol/mundo/negociacion-nuclear-iran-trump-obama.html
+
 **Assassination Attempt Suspect Charged**\
 `What we know about the man in custody after the shooting at the White House correspondents’ dinner, and how the incident unfolded.`\
 https://www.nytimes.com/2026/04/28/podcasts/the-daily/trump-assassination-suspect-charged.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/28/nyregion/a-shelters-closing-is-a-turning-poin
 **Stephen Colbert Gets Ready to Hang It Up**\
 `His late-night show ends next month after 11 seasons. He has lots of feelings.`\
 https://www.nytimes.com/2026/04/28/business/media/stephen-colbert-late-night-show.html
-
-**Republicans Brace for Brutal Midterms as Trump’s Popularity Slips**\
-`The elections are still six months off, and some within the G.O.P. say there is still time to right the ship.`\
-https://www.nytimes.com/2026/04/28/us/politics/republicans-midterms-trump-popularity-decline.html
 

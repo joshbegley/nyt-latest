@@ -1,3 +1,7 @@
+**El arte de la negociación nuclear**\
+`El presidente Trump rompió un pacto diseñado para impedir que Irán construyera una bomba. Conseguir un acuerdo mejor ahora podría ser complicado.`\
+https://www.nytimes.com/es/2026/04/28/espanol/mundo/negociacion-nuclear-iran-trump-obama.html
+
 **Assassination Attempt Suspect Charged**\
 `What we know about the man in custody after the shooting at the White House correspondents’ dinner, and how the incident unfolded.`\
 https://www.nytimes.com/2026/04/28/podcasts/the-daily/trump-assassination-suspect-charged.html
