@@ -1,3 +1,7 @@
+**Estos son los cargos contra el sospechoso del ataque a la gala de corresponsales de la Casa Blanca**\
+`Las autoridades afirman que el hombre de California irrumpió el sábado en el evento en Washington con la intención de matar al presidente.`\
+https://www.nytimes.com/es/2026/04/27/espanol/estados-unidos/ataque-gala-casa-blanca-cargos-sospechoso.html
+
 **Cast Your Vote for the Greatest Living American Songwriters**\
 `Times critics, with the help of more than 250 experts, made their list of the 30 greatest living American songwriters. Now it’s your turn to choose.`\
 https://www.nytimes.com/interactive/2026/04/27/magazine/greatest-american-songwriters-vote.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/04/27/magazine/dolly-parton-songwriter-
 **Outkast Made Hip-Hop More Eccentric — and More Universal, Too**\
 `Their songs leaned into regional detail and unpredictable ideas. The more specific they got, the broader the audience they captivated.`\
 https://www.nytimes.com/interactive/2026/04/27/magazine/outkast-group-southern-rappers-georgia.html
-
-**Willie Nelson Makes Intricate Songs Sound as Simple as Thinking**\
-`His writing is wildly sophisticated, full of jazzy complexity — and yet it always feels plain-spoken and perfectly at ease.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/willie-nelson-country-superstar-outlaw.html
 

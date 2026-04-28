@@ -1,3 +1,7 @@
+**Estos son los cargos contra el sospechoso del ataque a la gala de corresponsales de la Casa Blanca**\
+`Las autoridades afirman que el hombre de California irrumpió el sábado en el evento en Washington con la intención de matar al presidente.`\
+https://www.nytimes.com/es/2026/04/27/espanol/estados-unidos/ataque-gala-casa-blanca-cargos-sospechoso.html
+
 **Who Wrote Your Favorite Songs?**\
 `Test your knowledge of some of our songwriters’ biggest hits.`\
 https://www.nytimes.com/interactive/2026/04/27/magazine/hit-songs-songwriter-quiz.html

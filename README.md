@@ -1,3 +1,7 @@
+**Megan Thee Stallion to Leave Broadway Show Early**\
+`The rapper will depart “Moulin Rouge!” on Friday, but the production did not give a reason for her decision to leave more than two weeks earlier than expected.`\
+https://www.nytimes.com/2026/04/27/theater/megan-thee-stallion-broadway-moulin-rouge.html
+
 **Estos son los cargos contra el sospechoso del ataque a la gala de corresponsales de la Casa Blanca**\
 `Las autoridades afirman que el hombre de California irrumpió el sábado en el evento en Washington con la intención de matar al presidente.`\
 https://www.nytimes.com/es/2026/04/27/espanol/estados-unidos/ataque-gala-casa-blanca-cargos-sospechoso.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/04/27/magazine/lionel-richie-rnb-pop-so
 **Don’t Let Dolly Parton’s Sparkle Distract You From Her Rigorous Craft**\
 `High-femme glamour, down-home simplicity, endless creativity — and such a generous, approachable spirit, it’s easy to forget how great her writing is.`\
 https://www.nytimes.com/interactive/2026/04/27/magazine/dolly-parton-songwriter-generational-icon.html
-
-**Outkast Made Hip-Hop More Eccentric — and More Universal, Too**\
-`Their songs leaned into regional detail and unpredictable ideas. The more specific they got, the broader the audience they captivated.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/outkast-group-southern-rappers-georgia.html
 
