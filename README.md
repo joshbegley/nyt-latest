@@ -1,3 +1,19 @@
+**‘They Said A.I. Saved Me’: How South Korea Is Checking on Its Seniors**\
+`In the world’s fastest aging society, artificial intelligence is being used to make care calls to older adults who live alone and to fight dementia.`\
+https://www.nytimes.com/2026/04/28/world/asia/korea-ai-seniors-dementia.html
+
+**In Iran, Cheetah Sightings Offer Rare Spots of Hope Amid War**\
+`Conservationists say they have recorded several new adult and cub Asiatic cheetahs, a critically endangered subspecies found only in Iran.`\
+https://www.nytimes.com/2026/04/28/world/middleeast/iran-cheetah-sightings-war.html
+
+**Un parto libre la puso a ella y a su bebé en grave peligro**\
+`Los promotores del parto libre rechazan cualquier tipo de intervención médica durante el embarazo o el parto. El movimiento ha sido tendencia en las redes sociales, pero sus críticos advierten de los graves riesgos que esta práctica conlleva.`\
+https://www.nytimes.com/es/2026/04/28/espanol/ciencia-y-tecnologia/parto-libre-embarazo-riesgo.html
+
+**Corrections: April 28, 2026**\
+`Corrections that appeared in print on Tuesday, April 28, 2026.`\
+https://www.nytimes.com/2026/04/28/pageoneplus/corrections-april-28-2026.html
+
 **Quote of the Day: A Disquieting Political Routine Of Gunfire and Death Threats**\
 `Quotation of the day for Tuesday, April 28, 2026.`\
 https://www.nytimes.com/2026/04/27/pageoneplus/quote-of-the-day-a-disquieting-political-routine-of-gunfire-and-death-threats.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/interactive/2026/04/27/magazine/taylor-swift-pop-country
 **Bruce Springsteen Has Always Believed That Songs Can Change America**\
 `In every era, he writes like a steward of the country’s conscience — as if he has a duty to us all.`\
 https://www.nytimes.com/interactive/2026/04/27/magazine/bruce-springsteen-boss-songwriting-america.html
-
-**Valerie Simpson Is Behind Some of the Most Transcendent Songs You Know**\
-`Along with Nickolas Ashford, she wrote a jaw-dropping number of soaring, undeniable classics.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/valerie-simpson-gospel-rnb-artist.html
-
-**Paul Simon Can Compress a Novel’s Worth of Ideas Into One Song**\
-`He sets words skipping cleverly through his music. But his rhythms, melodies and harmonies are just as deft and adventurous.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/paul-simon-garfunkel-poet-songs.html
-
-**Romeo Santos Laid the Groundwork for Latin Music in the 21st Century**\
-`He melded Dominican traditions with modern pop and made them a global phenomenon — changing the whole sound of modern romance.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/romeo-santos-aventura-bachata-latin.html
-
-**Nile Rodgers Brings Gritty Glamor and Big Ideas to the Dance Floor**\
-`He helped make the spirit of 1970s New York a global ideal, immortalized in anthems of freedom and transgression.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/nile-rodgers-chic-disco-dance.html
 
