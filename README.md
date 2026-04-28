@@ -1,3 +1,7 @@
+**How to Prepare for a Longer Life**\
+`We asked Times readers to share their best advice for a safe, satisfying and financially comfortable life — no matter how old you are or how long you live.`\
+https://www.nytimes.com/2026/04/28/your-money/longevity-finances-reader-responses.html
+
 **Here’s what OpenAI’s lawyer argued in his opening statement.**\
 ``\
 https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/heres-what-openais-lawyer-argued-in-his-opening-statement
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/us/100000010868046/watch-live-king-charles-address
 **National Guard Can Stay in Memphis, State Appeals Court Says**\
 `The decision reversed a lower-court ruling last year that temporarily blocked the deployment.`\
 https://www.nytimes.com/2026/04/28/us/politics/national-guard-deployment-memphis-tennessee.html
-
-**An Art and Fashion Party for Nina Simone**\
-`Adam Pendleton and Gabriela Hearst celebrated a recent collaboration with an evening-long tribute to the legendary musician and activist.`\
-https://www.nytimes.com/2026/04/28/t-magazine/adam-pendleton-gabriela-hearst-nina-simone.html
 
