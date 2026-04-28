@@ -1,3 +1,11 @@
+**Despite Trade Turmoil, Canada’s Economy Is Expected to Grow and Deficit to Fall**\
+`Prime Minister Mark Carney’s budget update keeps to his path of diversifying away from the United States.`\
+https://www.nytimes.com/2026/04/28/world/canada/carney-budget-update.html
+
+**Very Large Hail Expected in Dallas as Severe Storms Sweep the South**\
+`Storms were racing across the Central United States on Tuesday.`\
+https://www.nytimes.com/2026/04/28/weather/dallas-texas-hail-storms-forecast.html
+
 **Soldier Pleads Not Guilty in $400,000 Betting Case Over Maduro’s Ouster**\
 `Master Sergeant Gannon Ken Van Dyke appeared in federal court in Manhattan, where he was accused of using classified information about Nicolás Maduro’s ouster to make money on Polymarket.`\
 https://www.nytimes.com/2026/04/28/nyregion/polymarket-special-forces-maduro-bets.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/28/world/europe/britain-iran-ambassador-summons.
 **Treasury Dept. Issues More Sanctions on Iranian Oil Exports**\
 `The measures aim to crack down on Iran’s shadow banking system and Chinese purchases of Iranian oil.`\
 https://www.nytimes.com/2026/04/28/us/politics/treasury-iran-oil-sanctions.html
-
-**More than 120 foreign leaders have addressed Congress. Not many have been kings.**\
-``\
-https://www.nytimes.com/live/2026/04/28/us/king-charles-us-visit-trump/more-than-120-foreign-leaders-have-addressed-congress-not-many-have-been-kings
-
-**Why does Elon Musk talk so much about saving humanity?**\
-``\
-https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/why-does-elon-musk-talk-so-much-about-saving-humanity
 
