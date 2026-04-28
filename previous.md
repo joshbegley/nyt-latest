@@ -7,7 +7,7 @@ https://www.nytimes.com/video/us/politics/100000010867178/jimmy-kimmel-melania-t
 https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/who-are-the-lawyers-representing-elon-musk-openai-and-microsoft
 
 **Trump Tests the Limits of His Most Faithful Supporters**\
-`The president’s rhetoric on religion, along with hard-line immigration policies and the U.S. war in Iran, have splintered a coalition of Christian voters who returned him to the White House.`\
+`The president’s rhetoric on religion, along with hard-line immigration policies and the U.S. war in Iran, has splintered a coalition of Christian voters who returned him to the White House.`\
 https://www.nytimes.com/2026/04/28/us/politics/trump-christian-evangelical-faith.html
 
 **Afghanistan Accuses Pakistan of Artillery Strike on a University**\

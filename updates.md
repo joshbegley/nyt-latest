@@ -1,3 +1,7 @@
+**Trump Tests the Limits of His Most Faithful Supporters**\
+`The president’s rhetoric on religion, along with hard-line immigration policies and the U.S. war in Iran, has splintered a coalition of Christian voters who returned him to the White House.`\
+https://www.nytimes.com/2026/04/28/us/politics/trump-christian-evangelical-faith.html
+
 **Jimmy Kimmel Defends ‘Widow’ Joke After Calls for His Dismissal**\
 `The comedian Jimmy Kimmel defended a joke he made two days before the White House correspondents’ dinner where he said that Melania Trump had “a glow like an expectant widow.” The first lady and President Trump both called on ABC to fire Kimmel over the joke.`\
 https://www.nytimes.com/video/us/politics/100000010867178/jimmy-kimmel-melania-trump-widow.html
