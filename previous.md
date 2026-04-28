@@ -1,3 +1,7 @@
+**Supreme Court Appears Skeptical of Falun Gong Lawsuit Against Tech Company**\
+`The court’s decision could have broader implications for lawsuits seeking to hold companies liable for international human rights abuses.`\
+https://www.nytimes.com/2026/04/28/us/politics/supreme-court-falun-gong-tech.html
+
 **Florida Republicans Refuse to Take Up DeSantis Bill Loosening Vaccine Mandates**\
 `The House speaker cited concerns about “children being in school without measles and mumps and polio and chickenpox vaccines that have been working for decades.”`\
 https://www.nytimes.com/2026/04/28/us/politics/ron-desantis-gop-florida-vaccines.html
@@ -7,7 +11,7 @@ https://www.nytimes.com/2026/04/28/us/politics/ron-desantis-gop-florida-vaccines
 https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/heres-what-musks-lawyers-argued-in-their-opening-statement
 
 **Watch Live: King Charles Addresses Congress**\
-`King Charles III of Britain addresses a joint session of Congress.`\
+`King Charles III of Britain addresses a joint meeting of Congress.`\
 https://www.nytimes.com/video/us/100000010868046/watch-live-king-charles-addresses-congress.html
 
 **National Guard Can Stay in Memphis, State Appeals Court Says**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/us/politics/100000010867178/jimmy-kimmel-melania-t
 **Who are the lawyers representing Elon Musk, OpenAI and Microsoft?**\
 ``\
 https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/who-are-the-lawyers-representing-elon-musk-openai-and-microsoft
-
-**Trump Tests the Limits of His Most Faithful Supporters**\
-`The president’s rhetoric on religion, along with hard-line immigration policies and the U.S. war in Iran, has splintered a coalition of Christian voters who returned him to the White House.`\
-https://www.nytimes.com/2026/04/28/us/politics/trump-christian-evangelical-faith.html
 

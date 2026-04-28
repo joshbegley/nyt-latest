@@ -1,3 +1,11 @@
+**Supreme Court Appears Skeptical of Falun Gong Lawsuit Against Tech Company**\
+`The court’s decision could have broader implications for lawsuits seeking to hold companies liable for international human rights abuses.`\
+https://www.nytimes.com/2026/04/28/us/politics/supreme-court-falun-gong-tech.html
+
+**Watch Live: King Charles Addresses Congress**\
+`King Charles III of Britain addresses a joint meeting of Congress.`\
+https://www.nytimes.com/video/us/100000010868046/watch-live-king-charles-addresses-congress.html
+
 **Florida Republicans Refuse to Take Up DeSantis Bill Loosening Vaccine Mandates**\
 `The House speaker cited concerns about “children being in school without measles and mumps and polio and chickenpox vaccines that have been working for decades.”`\
 https://www.nytimes.com/2026/04/28/us/politics/ron-desantis-gop-florida-vaccines.html
