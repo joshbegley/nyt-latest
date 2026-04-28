@@ -1,3 +1,19 @@
+**Jimmy Kimmel Defends ‘Widow’ Joke After Calls for His Dismissal**\
+`The comedian Jimmy Kimmel defended a joke he made two days before the White House correspondents’ dinner where he said that Melania Trump had “a glow like an expectant widow.” The first lady and President Trump both called on ABC to fire Kimmel over the joke.`\
+https://www.nytimes.com/video/us/politics/100000010867178/jimmy-kimmel-melania-trump-widow.html
+
+**Who are the lawyers representing Elon Musk, OpenAI and Microsoft?**\
+``\
+https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/who-are-the-lawyers-representing-elon-musk-openai-and-microsoft
+
+**Trump Tests the Limits of His Most Faithful Supporters**\
+`The president’s rhetoric on religion, along with hard-line immigration policies and the U.S. war in Iran, have splintered a coalition of Christian voters who returned him to the White House.`\
+https://www.nytimes.com/2026/04/28/us/politics/trump-christian-evangelical-faith.html
+
+**Afghanistan Accuses Pakistan of Artillery Strike on a University**\
+`Pakistan, which has been waging an “open war” on its neighbor, did not acknowledge strikes on civilian areas Monday that officials said killed at least four people and wounded about 70 others.`\
+https://www.nytimes.com/2026/04/28/world/asia/afghanistan-pakistan-university-strike.html
+
 **Offbeat Obituaries Honor Loss With Levity (and Brutal Honesty)**\
 `Irreverent tributes filled with unvarnished truths and funny anecdotes, which run counter to more somber traditional obituaries, have gained attention for “how alive they feel,” a researcher said.`\
 https://www.nytimes.com/2026/04/28/us/offbeat-obituaries-brutal-honesty.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/interactive/polls/california-us-house-48-polls-2026.html
 **Man Pleads Guilty to Planning Attack at Taylor Swift Concert in Vienna**\
 `Austrian prosecutors said the man plotted in 2024 to set off a bomb outside the concert, which was later canceled. He and another man still face separate charges.`\
 https://www.nytimes.com/2026/04/28/world/europe/taylor-swift-austria-guilty-plea.html
-
-**Read the Decision Allowing Maurene Comey’s Lawsuit to Proceed**\
-`Ms. Comey, a former federal prosecutor who handled cases against Jeffery Epstein and Sean Combs, claimed in her suit that she was fired for political reasons.`\
-https://www.nytimes.com/interactive/2026/04/28/nyregion/comey-lawsuit-decision.html
-
-**First Fully Loaded L.N.G. Tanker Since War Began Appears to Have Crossed the Strait**\
-`Liquefied natural gas transit has been effectively halted. A ship managed by Abu Dhabi’s state oil company managed to cross, said Kpler, a maritime data firm.`\
-https://www.nytimes.com/2026/04/28/business/iran-war-strait-of-hormuz-ship-crossing.html
-
-**Children at Risk as Measles Cases Rise**\
-`“I would not wish measles upon my fiercest enemy,” a reader writes of the recent resurgence.`\
-https://www.nytimes.com/2026/04/28/opinion/letters/measles-children.html
-
-**This trial comes amid a growing national backlash against A.I.**\
-``\
-https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/this-trial-comes-amid-a-growing-national-backlash-against-ai
 

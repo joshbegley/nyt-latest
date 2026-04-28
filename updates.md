@@ -1,3 +1,19 @@
+**Jimmy Kimmel Defends ‘Widow’ Joke After Calls for His Dismissal**\
+`The comedian Jimmy Kimmel defended a joke he made two days before the White House correspondents’ dinner where he said that Melania Trump had “a glow like an expectant widow.” The first lady and President Trump both called on ABC to fire Kimmel over the joke.`\
+https://www.nytimes.com/video/us/politics/100000010867178/jimmy-kimmel-melania-trump-widow.html
+
+**Who are the lawyers representing Elon Musk, OpenAI and Microsoft?**\
+``\
+https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/who-are-the-lawyers-representing-elon-musk-openai-and-microsoft
+
+**Trump Tests the Limits of His Most Faithful Supporters**\
+`The president’s rhetoric on religion, along with hard-line immigration policies and the U.S. war in Iran, have splintered a coalition of Christian voters who returned him to the White House.`\
+https://www.nytimes.com/2026/04/28/us/politics/trump-christian-evangelical-faith.html
+
+**Afghanistan Accuses Pakistan of Artillery Strike on a University**\
+`Pakistan, which has been waging an “open war” on its neighbor, did not acknowledge strikes on civilian areas Monday that officials said killed at least four people and wounded about 70 others.`\
+https://www.nytimes.com/2026/04/28/world/asia/afghanistan-pakistan-university-strike.html
+
 **Offbeat Obituaries Honor Loss With Levity (and Brutal Honesty)**\
 `Irreverent tributes filled with unvarnished truths and funny anecdotes, which run counter to more somber traditional obituaries, have gained attention for “how alive they feel,” a researcher said.`\
 https://www.nytimes.com/2026/04/28/us/offbeat-obituaries-brutal-honesty.html
