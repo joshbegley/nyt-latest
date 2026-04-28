@@ -1,3 +1,7 @@
+**Megan Thee Stallion to Leave Broadway Show Early**\
+`The rapper will depart “Moulin Rouge!” on Friday, but the production did not give a reason for her decision to leave more than two weeks earlier than expected.`\
+https://www.nytimes.com/2026/04/27/theater/megan-thee-stallion-broadway-moulin-rouge.html
+
 **Estos son los cargos contra el sospechoso del ataque a la gala de corresponsales de la Casa Blanca**\
 `Las autoridades afirman que el hombre de California irrumpió el sábado en el evento en Washington con la intención de matar al presidente.`\
 https://www.nytimes.com/es/2026/04/27/espanol/estados-unidos/ataque-gala-casa-blanca-cargos-sospechoso.html
