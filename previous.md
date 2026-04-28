@@ -1,3 +1,11 @@
+**Is OpenAI Falling Further Behind in the A.I. Race?**\
+`The artificial intelligence giant has reportedly fallen behind on its own user and revenue targets, raising questions about its data center and I.P.O. plans`\
+https://www.nytimes.com/2026/04/28/business/dealbook/openai-misses-targets.html
+
+**Laura Linney to Return to Broadway in New David Hare Play**\
+`The Manhattan Theater Club production will bring the actress back to the stage next spring, four years after her last Broadway production.`\
+https://www.nytimes.com/2026/04/28/theater/laura-linney-montauk-broadway.html
+
 **The Greatest Living Songwriters**\
 `We look at the list crafted by Times music writers.`\
 https://www.nytimes.com/2026/04/28/briefing/the-greatest-living-songwriters.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/28/opinion/ezra-klein-podcast-thompson-dunkelman
 **He Was Supposed to Die in Prison, but the Prosecutor Felt Guilty**\
 `Jessie Askew Jr. was sentenced to life without parole for a clumsy armed robbery with an unloaded gun. The man who sent him away was determined to bring him back home.`\
 https://www.nytimes.com/2026/04/28/magazine/jessie-askew-jr-release-robbery.html
-
-**Is It OK to Record People Without Their Knowledge?**\
-`More people are using smart glasses to record, often secretly, in public. Is that ethical?`\
-https://www.nytimes.com/2026/04/28/learning/is-it-ok-to-record-people-without-their-knowledge.html
-
-**Transition to a New Fed Chair Is Unlikely to Mean Immediate Rate Cuts**\
-`The Federal Reserve is expected to hold interest rates steady this week as Jerome H. Powell presides over what is likely to be his last meeting as chair.`\
-https://www.nytimes.com/2026/04/28/business/federal-reserve-chair-rates-warsh-powell.html
 

@@ -1,3 +1,11 @@
+**Is OpenAI Falling Further Behind in the A.I. Race?**\
+`The artificial intelligence giant has reportedly fallen behind on its own user and revenue targets, raising questions about its data center and I.P.O. plans`\
+https://www.nytimes.com/2026/04/28/business/dealbook/openai-misses-targets.html
+
+**Laura Linney to Return to Broadway in New David Hare Play**\
+`The Manhattan Theater Club production will bring the actress back to the stage next spring, four years after her last Broadway production.`\
+https://www.nytimes.com/2026/04/28/theater/laura-linney-montauk-broadway.html
+
 **The Greatest Living Songwriters**\
 `We look at the list crafted by Times music writers.`\
 https://www.nytimes.com/2026/04/28/briefing/the-greatest-living-songwriters.html
