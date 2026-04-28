@@ -1,3 +1,11 @@
+**For the Third Time, a Former Actress Testifies Against Harvey Weinstein**\
+`Jessica Mann testified, for the third time in six years, about the day she says Mr. Weinstein raped her in a Midtown Manhattan hotel.`\
+https://www.nytimes.com/2026/04/28/nyregion/jessica-mann-weinstein-testimony.html
+
+**Amid Iran War and Tensions with Neighbors, U.A.E. Goes Its Own Way**\
+`The United Arab Emirates’ decision to leave OPEC has rocked the region, underscoring how the country, at odds with Saudi Arabia, is increasingly charting its own course.`\
+https://www.nytimes.com/2026/04/28/world/middleeast/united-arab-emirates-leaves-opec.html
+
 **‘¿También tú, Bruto?’ Entendiendo el conflicto entre Elon Musk y Sam Altman**\
 `La demanda de Musk contra Altman y OpenAI demuestra que la codicia total es el rasgo definitorio de Silicon Valley.`\
 https://www.nytimes.com/es/2026/04/28/espanol/negocios/elon-musks-sam-altman-demanda.html
