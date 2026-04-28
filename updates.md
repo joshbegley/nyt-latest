@@ -1,4 +1,8 @@
 **Megan Thee Stallion to Leave Broadway Show Early**\
+`The rapper will perform in “Moulin Rouge!” for the final time on Friday, though the production didn’t say why she was leaving more than two weeks early.`\
+https://www.nytimes.com/2026/04/27/theater/megan-thee-stallion-broadway-moulin-rouge.html
+
+**Megan Thee Stallion to Leave Broadway Show Early**\
 `The rapper will depart “Moulin Rouge!” on Friday, but the production did not give a reason for her decision to leave more than two weeks earlier than expected.`\
 https://www.nytimes.com/2026/04/27/theater/megan-thee-stallion-broadway-moulin-rouge.html
 
