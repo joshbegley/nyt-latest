@@ -1,3 +1,11 @@
+**Adopting Trump’s Voice, Justice Dept. Asks Judge to Let Ballroom Proceed**\
+`The court filing links the security breach at the White House correspondents’ dinner to the lawsuit over President Trump’s ballroom project.`\
+https://www.nytimes.com/2026/04/28/us/elections/ballroom-filing-trump-truth-social.html
+
+**Emiratos Árabes Unidos anuncia su salida de la OPEP**\
+`El gobierno del Golfo se ha quejado durante mucho tiempo de las cuotas del grupo, que los funcionarios consideran que limitan injustamente sus exportaciones.`\
+https://www.nytimes.com/es/2026/04/28/espanol/mundo/emiratos-arabes-unidos-opep.html
+
 **Elon Musk Assails Sam Altman on Social Media Before OpenAI Trial Opens**\
 `Musk’s posts on his X social media platform have pushed his narrative that OpenAI has lost its way.`\
 https://www.nytimes.com/2026/04/28/technology/elon-musk-social-posts-sam-altman-openai.html
