@@ -1,3 +1,7 @@
+**Man Accuses N.Y.P.D. Detectives in Legal Filing of Brutal Assault**\
+`Timothy Brown said he had been humiliated and injured after he was punched and kicked by police during a wrongful arrest that was caught on video.`\
+https://www.nytimes.com/2026/04/28/nyregion/beating-nypd-brooklyn-narcotics-claim.html
+
 **Beneath King Charles’s Jokes and Decorum, a Subtle Rebuttal to Trump**\
 `King Charles III gently pushed back against President Trump’s attacks on Britain and NATO.`\
 https://www.nytimes.com/2026/04/28/us/politics/king-charles-trump-rebuke.html
