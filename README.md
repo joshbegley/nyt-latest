@@ -1,3 +1,27 @@
+**Nick Pope, U.F.O. Sleuth Who Chased the Truth, Dies at 60**\
+`Often likened to Agent Mulder from “The X-Files,” he worked for Britain’s defense ministry and became a leading commentator on extraterrestrial matters.`\
+https://www.nytimes.com/2026/04/28/science/nick-pope-dead.html
+
+**Hed: King Charles III and Queen Camilla Arrive at White House**\
+`King Charles III and Queen Camilla are on the second day of their state visit, when Charles will meet privately with President Trump.`\
+https://www.nytimes.com/video/us/politics/100000010867395/hed-king-charles-iii-and-queen-camilla-arrive-at-white-house.html
+
+**El presidente y la primera dama de EE. UU. exigen a la ABC que despida a Jimmy Kimmel por un chiste**\
+`La broma dirigida a Melania Trump se grabó dos días antes de la cena de corresponsales de la Casa Blanca, en la que un hombre armado intentó asaltar la gala de la prensa.`\
+https://www.nytimes.com/es/2026/04/28/espanol/estados-unidos/trump-melania-jimmy-kimmel.html
+
+**Oakland, which is playing host to the trial, is not exactly known as a tech hub.**\
+``\
+https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/oakland-which-is-playing-host-to-the-trial-is-not-exactly-known-as-a-tech-hub
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/openai-trial-opening-comments
+
+**Here’s the contentious history behind OpenAI.**\
+``\
+https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/heres-the-contentious-history-behind-openai
+
 **Civil Rights Cases Slow at Education Dept. Amid Trump’s Overhaul**\
 `Data obtained by The New York Times shows that the Education Department resolved 30 percent fewer discrimination complaints in 2025 compared with the previous year.`\
 https://www.nytimes.com/2026/04/28/us/politics/education-department-civil-rights-trump.html
@@ -39,7 +63,7 @@ https://www.nytimes.com/2026/04/28/us/fbi-minneapolis-fraud-investigation.html
 https://www.nytimes.com/2026/04/28/world/middleeast/yacht-strait-hormuz-russia-oligarch.html
 
 **United Arab Emirates Says It Will Leave OPEC in Blow to Oil Cartel**\
-`The Gulf government has long complained about the group’s quotas, which officials believe unfairly limited its exports.`\
+`The Gulf government has long complained about the group’s quotas, which officials believe unfairly limited its exports. Its departure is expected to weaken OPEC’s influence.`\
 https://www.nytimes.com/2026/04/28/world/middleeast/uae-opec.html
 
 **Epstein Scandal Looms Over King Charles’s U.S. Visit**\
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/04/28/business/dealbook/openai-misses-targets.html
 **Laura Linney to Return to Broadway in New David Hare Play**\
 `The Manhattan Theater Club production will bring the actress back to the stage next spring, four years after her last Broadway production.`\
 https://www.nytimes.com/2026/04/28/theater/laura-linney-montauk-broadway.html
-
-**The Greatest Living Songwriters**\
-`We look at the list crafted by Times music writers.`\
-https://www.nytimes.com/2026/04/28/briefing/the-greatest-living-songwriters.html
-
-**One Person Appears to Be Missing From King Charles’s U.S. Itinerary: Prince Harry**\
-`On a state visit designed in part to repair U.S.-British relations, King Charles’s schedule does not include plans to see his younger son, who lives in the United States with his family.`\
-https://www.nytimes.com/2026/04/28/us/prince-harry-king-charles-us-visit.html
-
-**El arte de la negociación nuclear**\
-`El presidente Trump rompió un pacto diseñado para impedir que Irán construyera una bomba. Conseguir un acuerdo mejor ahora podría ser complicado.`\
-https://www.nytimes.com/es/2026/04/28/espanol/mundo/negociacion-nuclear-iran-trump-obama.html
-
-**Assassination Attempt Suspect Charged**\
-`What we know about the man in custody after the shooting at the White House correspondents’ dinner, and how the incident unfolded.`\
-https://www.nytimes.com/2026/04/28/podcasts/the-daily/trump-assassination-suspect-charged.html
-
-**King Charles Visits Trump as U.S.-U.K. Tensions Flare, and Airlines Ask White House for Help**\
-`Plus, how millions of people could become Canadian.`\
-https://www.nytimes.com/2026/04/28/podcasts/the-headlines/king-charles-trump-airlines-white-house.html
-
-**Connections Companion No. 1,053**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, April 29, 2026.`\
-https://www.nytimes.com/2026/04/28/crosswords/connections-companion-1053.html
 
