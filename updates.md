@@ -1,3 +1,15 @@
+**Children at Risk as Measles Cases Rise**\
+`“I would not wish measles upon my fiercest enemy,” a reader writes of the recent resurgence.`\
+https://www.nytimes.com/2026/04/28/opinion/letters/measles-children.html
+
+**This trial comes amid a growing national backlash against A.I.**\
+``\
+https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/this-trial-comes-amid-a-growing-national-backlash-against-ai
+
+**After an Assassination Attempt, a Grim Political Math Sets In**\
+`Assassination attempts against sitting presidents have tended to compound their political problems and isolate them from the public.`\
+https://www.nytimes.com/2026/04/28/opinion/president-assassination-politics.html
+
 **Today, In Short**\
 `A “Jeopardy!” streak ends. A royal visit. And have movies gotten darker?`\
 https://www.nytimes.com/2026/04/28/briefing/today-in-short.html

@@ -1,3 +1,11 @@
+**Children at Risk as Measles Cases Rise**\
+`“I would not wish measles upon my fiercest enemy,” a reader writes of the recent resurgence.`\
+https://www.nytimes.com/2026/04/28/opinion/letters/measles-children.html
+
+**This trial comes amid a growing national backlash against A.I.**\
+``\
+https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/this-trial-comes-amid-a-growing-national-backlash-against-ai
+
 **Today, In Short**\
 `A “Jeopardy!” streak ends. A royal visit. And have movies gotten darker?`\
 https://www.nytimes.com/2026/04/28/briefing/today-in-short.html
@@ -10,7 +18,7 @@ https://www.nytimes.com/2026/04/28/business/general-motors-trump-tariffs.html
 `A substantial mix of charred broccoli, salmon and soba catapults this salad out of side territory.`\
 https://www.nytimes.com/2026/04/28/dining/a-warm-filling-salad-fit-for-dinner.html
 
-**Assassination Attempts Have Unforeseen Political Consequences**\
+**After an Assassination Attempt, a Grim Political Math Sets In**\
 `Assassination attempts against sitting presidents have tended to compound their political problems and isolate them from the public.`\
 https://www.nytimes.com/2026/04/28/opinion/president-assassination-politics.html
 
@@ -69,12 +77,4 @@ https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-t
 **Here’s the contentious history behind OpenAI.**\
 ``\
 https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/heres-the-contentious-history-behind-openai
-
-**Civil Rights Cases Slow at Education Dept. Amid Trump’s Overhaul**\
-`Data obtained by The New York Times shows that the Education Department resolved 30 percent fewer discrimination complaints in 2025 compared with the previous year.`\
-https://www.nytimes.com/2026/04/28/us/politics/education-department-civil-rights-trump.html
-
-**George Clooney Calls for Unity at Lincoln Center Gala**\
-`The actor, who was honored at Film at Lincoln Center’s Chaplin Award Gala, denounced political violence after the attempted assassination of President Trump.`\
-https://www.nytimes.com/2026/04/28/style/george-clooney-white-house-dinner-trump-shooting.html
 
