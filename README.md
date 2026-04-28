@@ -1,3 +1,11 @@
+**Luxury Yacht Linked to Russian Oligarch Passes Through Strait of Hormuz**\
+`The Nord, a 464-foot vessel, appears to be tied to Aleksei A. Mordashov, a Russian steel mogul who is under American and European sanctions.`\
+https://www.nytimes.com/2026/04/28/world/middleeast/yacht-strait-hormuz-russia-oligarch.html
+
+**United Arab Emirates Says It Will Leave OPEC in Major Move**\
+`The Gulf government has long complained about the oil cartel’s quotas, which officials believe unfairly limited their exports.`\
+https://www.nytimes.com/2026/04/28/world/middleeast/uae-opec.html
+
 **Epstein Scandal Looms Over King Charles’s U.S. Visit**\
 `The king is not planning to meet with victims of Jeffrey Epstein during his state visit because of “ongoing police inquiries” in Britain. The king’s brother was close to Mr. Epstein, a convicted sex offender.`\
 https://www.nytimes.com/2026/04/28/us/king-charles-visit-epstein.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/28/opinion/political-campaigns-artificial-intell
 **Constance Zimmer Honors Both Old and New in her Los Angeles Home**\
 `Inside her Los Feliz home in the hills, the ‘Love Story’ actress showcases memories, mugs and mustaches.`\
 https://www.nytimes.com/interactive/2026/04/28/realestate/constance-zimmer-house-tour.html
-
-**With Cinematic Flair, a Sentient A.I. Learns Its Limits**\
-`For better or worse, the retro Replaced feels like a Sega Genesis game made with current technology.`\
-https://www.nytimes.com/2026/04/28/arts/replaced-review.html
-
-**What We Got Right — and Wrong — in ‘Abundance’**\
-`It’s been a big year for the abundance movement, but what has it really achieved? Ezra Klein talks with his “Abundance” co-author Derek Thompson and with Marc Dunkelman, the author of “Why Nothing Works.”`\
-https://www.nytimes.com/2026/04/28/opinion/ezra-klein-podcast-thompson-dunkelman.html
 
