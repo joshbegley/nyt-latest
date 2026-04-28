@@ -1,3 +1,7 @@
+**California 22nd Congressional District 2026: Latest Polls**\
+`Track the latest polls in California's 22nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/california-us-house-22-polls-2026.html
+
 **Adopting Trump’s Voice, Justice Dept. Asks Judge to Let Ballroom Proceed**\
 `The court filing links the security breach at the White House correspondents’ dinner to the lawsuit over President Trump’s ballroom project.`\
 https://www.nytimes.com/2026/04/28/us/elections/ballroom-filing-trump-truth-social.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/28/espanol/estados-unidos/tps-que-es.html
 **Security is tight for King Charles’s U.S. visit.**\
 ``\
 https://www.nytimes.com/live/2026/04/28/us/king-charles-us-visit-trump/security-is-tight-for-king-charless-us-visit
-
-**Hegseth and Kid Rock Ride Army Helicopters in Wake of Contentious Flyby**\
-`The flights on Monday came a few weeks after two Apache crews were censured and then cleared for flying near the singer’s home.`\
-https://www.nytimes.com/2026/04/28/us/kid-rock-hegseth-apache-helicopter.html
 

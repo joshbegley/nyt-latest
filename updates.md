@@ -1,3 +1,7 @@
+**California 22nd Congressional District 2026: Latest Polls**\
+`Track the latest polls in California's 22nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/california-us-house-22-polls-2026.html
+
 **Adopting Trump’s Voice, Justice Dept. Asks Judge to Let Ballroom Proceed**\
 `The court filing links the security breach at the White House correspondents’ dinner to the lawsuit over President Trump’s ballroom project.`\
 https://www.nytimes.com/2026/04/28/us/elections/ballroom-filing-trump-truth-social.html
