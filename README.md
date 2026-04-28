@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/28/us/king-charles-us-visit-trump/heres-the-latest
+
 **The Small U.K. Agency That’s a 911 for Ships in the Strait of Hormuz**\
 `At a military base outside Portsmouth, England, a 24-hour service monitors the Persian Gulf, the Red Sea and part of the Indian Ocean, responding to distress calls.`\
 https://www.nytimes.com/2026/04/28/world/europe/ukmto-shipping-strait-hormuz.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/28/business/economy/college-graduates-job-market
 **‘Disappointed,’ ‘Surprised,’ ‘Betrayed’: 12 Trump Voters on What Has Gone Wrong**\
 `Trump voters discuss their disappointment with the president’s second term.`\
 https://www.nytimes.com/interactive/2026/04/28/opinion/focus-group-trump-voters-disappointed.html
-
-**Anger About Internet Restrictions Breathes Some Life Into Russian Politics**\
-`From beauty influencers to the token political opposition, Russians are openly questioning President Vladimir V. Putin’s moves to hamstring access.`\
-https://www.nytimes.com/2026/04/28/world/europe/russia-internet-restrictions-putin.html
 
