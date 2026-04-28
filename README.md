@@ -34,8 +34,8 @@ https://www.nytimes.com/2026/04/28/us/elections/ballroom-filing-trump-truth-soci
 `El gobierno del Golfo se ha quejado durante mucho tiempo de las cuotas del grupo, que los funcionarios consideran que limitan injustamente sus exportaciones.`\
 https://www.nytimes.com/es/2026/04/28/espanol/mundo/emiratos-arabes-unidos-opep.html
 
-**Elon Musk Assails Sam Altman on Social Media Before OpenAI Trial Opens**\
-`Musk’s posts on his X social media platform have pushed his narrative that OpenAI has lost its way.`\
+**Elon Musk Assails Sam Altman on Social Media Before OpenAI Trial**\
+`Mr. Musk’s posts on X have pushed his narrative that OpenAI has lost its way.`\
 https://www.nytimes.com/2026/04/28/technology/elon-musk-social-posts-sam-altman-openai.html
 
 **Filing a Financial Aid Appeal? You May Not Get an Answer by May 1.**\
