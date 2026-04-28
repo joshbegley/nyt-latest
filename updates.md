@@ -1,3 +1,11 @@
+**King Charles Stresses Significance of U.S.-U.K. Ties**\
+`Also, James Comey, the former F.B.I. director, is indicted. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/04/28/briefing/king-charles-speech-congress-james-comey.html
+
+**4 extranjeros estaban en el operativo antidroga de Chihuahua, dicen autoridades de México**\
+`Autoridades mexicanas dieron a conocer que había más extranjeros presentes en la redada antinarcóticos tras la que murieron dos hombres identificados como agentes de la CIA.`\
+https://www.nytimes.com/es/2026/04/28/espanol/america-latina/mexico-agentes-cia-chihuahua.html
+
 **Port Authority to Install Tracker Not Used During Deadly LaGuardia Crash**\
 `Federal investigators had said that the lack of a transponder on a fire truck played a role in a deadly collision with an Air Canada Express jet at LaGuardia.`\
 https://www.nytimes.com/2026/04/28/nyregion/laguardia-airport-crash-transponder.html
