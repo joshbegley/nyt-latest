@@ -1,3 +1,7 @@
+**For Many Pro Athletes, Post-Career Financial Worries Loom Large**\
+`The tennis player Mackenzie McDonald has earned well up to this point, but high expenses and a short career timeline have prompted him, and others, to search for a backup plan.`\
+https://www.nytimes.com/2026/04/28/your-money/longevity-athletes-mackenzie-mcdonald.html
+
 **Trump no está satisfecho con el plan de Irán para reabrir el estrecho de Ormuz**\
 `La propuesta pedía a EE. UU. poner fin a su bloqueo naval, pero habría dejado de lado las cuestiones sobre el programa nuclear iraní, según funcionarios.`\
 https://www.nytimes.com/es/2026/04/28/espanol/plan-abrir-estrecho-ormuz-iran-trump.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/28/us/elections/ballroom-filing-trump-truth-soci
 **Emiratos Árabes Unidos anuncia su salida de la OPEP**\
 `El gobierno del Golfo se ha quejado durante mucho tiempo de las cuotas del grupo, que los funcionarios consideran que limitan injustamente sus exportaciones.`\
 https://www.nytimes.com/es/2026/04/28/espanol/mundo/emiratos-arabes-unidos-opep.html
-
-**Elon Musk Assails Sam Altman on Social Media Before OpenAI Trial**\
-`Mr. Musk’s posts on X have pushed his narrative that OpenAI has lost its way.`\
-https://www.nytimes.com/2026/04/28/technology/elon-musk-social-posts-sam-altman-openai.html
 

@@ -1,3 +1,15 @@
+**Trump no está satisfecho con el plan de Irán para reabrir el estrecho de Ormuz**\
+`La propuesta pedía a EE. UU. poner fin a su bloqueo naval, pero habría dejado de lado las cuestiones sobre el programa nuclear iraní, según funcionarios.`\
+https://www.nytimes.com/es/2026/04/28/espanol/plan-abrir-estrecho-ormuz-iran-trump.html
+
+**Hoping the Last Check Bounces … and Other Financial Approaches to a Long Life**\
+`Americans are increasingly dealing with a dilemma: How to balance a long life with having enough money to live it happily.`\
+https://www.nytimes.com/2026/04/28/your-money/longevity-spending-finances.html
+
+**Military Quietly Accelerates Boat Strikes, Deploying More Aircraft**\
+`The military has increased the number of secret fixed-wing attack aircraft and armed MQ-9 Reaper drones, according to two people familiar with the matter.`\
+https://www.nytimes.com/2026/04/28/us/politics/us-boat-strikes.html
+
 **Here Are the Key Players in the OpenAI Trial**\
 `Elon Musk, Sam Altman and several other key artificial intelligence industry figures are slated to testify in the trial, which is expected to last several weeks.`\
 https://www.nytimes.com/2026/04/28/technology/key-players-openai-trial.html
