@@ -1,3 +1,15 @@
+**Donald W. Riegle, Representative Who Switched Parties, Dies at 88**\
+`Elected to Congress in 1966 as a Republican from Michigan, he grew disenchanted with his party during the Nixon presidency and became a progressive Democratic senator.`\
+https://www.nytimes.com/2026/04/28/us/politics/donald-riegle-dead.html
+
+**Read the Indictment of James Comey**\
+`The Justice Department has secured a new indictment of James B. Comey, the former F.B.I. director, after an attempted prosecution spurred by President Trump last year ended in failure. The new case stems from a social media post showing seashells on a beach that the Trump administration characterized as a threat against the president.`\
+https://www.nytimes.com/interactive/2026/04/28/us/comey-indictment.html
+
+**Britain Summons Iran’s Ambassador Over Message to Iranians in U.K.**\
+`Iran’s embassy in London posted a message on social media inviting Iranians living in Britain to register for a ‘Sacrifice for the Homeland’ campaign.`\
+https://www.nytimes.com/2026/04/28/world/europe/britain-iran-ambassador-summons.html
+
 **Treasury Dept. Issues More Sanctions on Iranian Oil Exports**\
 `The measures aim to crack down on Iran’s shadow banking system and Chinese purchases of Iranian oil.`\
 https://www.nytimes.com/2026/04/28/us/politics/treasury-iran-oil-sanctions.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/28/t-magazine/adam-pendleton-gabriela-hearst-nin
 **Former N.B.A. Player Pleads Guilty in Gambling Scheme**\
 `Damon Jones is among more than 30 people who were charged last fall in two sweeping indictments that targeted illegal gambling involving current and former N.B.A. players.`\
 https://www.nytimes.com/2026/04/28/nyregion/damon-jones-nba-gambling-guilty-plea.html
-
-**Trump Hosts Charles, a King and, Perhaps, His Cousin**\
-`Mr. Trump expressed delight on social media on Tuesday after a British newspaper report said he was a 15th cousin of the British monarch.`\
-https://www.nytimes.com/2026/04/28/us/trump-king-charles-cousins.html
-
-**F.C.C. Orders a Review of ABC’s Broadcast Licenses**\
-`The agency said the review was related to the network’s diversity and inclusion policies. But it came amid a fight between the president and the network’s late night host, Jimmy Kimmel.`\
-https://www.nytimes.com/2026/04/28/business/media/fcc-abc-television-kimmel.html
-
-**Kimmel vs. Trump: What’s Going On Here?**\
-`The president and first lady took exception to a joke. Jimmy Kimmel defended it.`\
-https://www.nytimes.com/2026/04/28/arts/television/jimmy-kimmel-donald-trump-feud.html
 
