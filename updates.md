@@ -1,3 +1,11 @@
+**King and Queen of England Visit White House**\
+`King Charles III and Queen Camilla arrived at the White House, where President Trump and Melania Trump welcomed them at the start of a four-day state visit marking America’s 250th birthday.`\
+https://www.nytimes.com/video/us/100000010867018/king-charles-uk-royal-visit-trump.html
+
+**It’s Been Centuries Since Haiti’s Revolution. It’s Still Paying for It.**\
+`Haiti’s revolution shocked the world. America still isn’t over it.`\
+https://www.nytimes.com/2026/04/28/opinion/haitis-original-sin-freedom.html
+
 **Con ustedes, el nuevo líder del mundo libre**\
 `Volodímir Zelenski les está mostrando a los países europeos, y a otras naciones, cómo el mundo libre pos-Estados Unidos puede preservar su libertad e independencia.`\
 https://www.nytimes.com/es/2026/04/28/espanol/opinion/zelenski-lider-mundo-libre.html

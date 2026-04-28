@@ -1,3 +1,7 @@
+**King and Queen of England Visit White House**\
+`King Charles III and Queen Camilla arrived at the White House, where President Trump and Melania Trump welcomed them at the start of a four-day state visit marking America’s 250th birthday.`\
+https://www.nytimes.com/video/us/100000010867018/king-charles-uk-royal-visit-trump.html
+
 **Con ustedes, el nuevo líder del mundo libre**\
 `Volodímir Zelenski les está mostrando a los países europeos, y a otras naciones, cómo el mundo libre pos-Estados Unidos puede preservar su libertad e independencia.`\
 https://www.nytimes.com/es/2026/04/28/espanol/opinion/zelenski-lider-mundo-libre.html
@@ -30,7 +34,7 @@ https://www.nytimes.com/2026/04/28/learning/word-of-the-day-analogous.html
 `Cuando su hijo de 11 años desapareció el año pasado, Jacqueline Pritchett se negó incluso a reconocer su existencia.`\
 https://www.nytimes.com/es/2026/04/28/espanol/estados-unidos/jacob-pritchett-desaparecido-madre.html
 
-**Haiti’s Original Sin? Freedom.**\
+**It’s Been Centuries Since Haiti’s Revolution. It’s Still Paying for It.**\
 `Haiti’s revolution shocked the world. America still isn’t over it.`\
 https://www.nytimes.com/2026/04/28/opinion/haitis-original-sin-freedom.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/27/espanol/estados-unidos/ataque-gala-casa-bl
 **Cast Your Vote for the Greatest Living American Songwriters**\
 `Times critics, with the help of more than 250 experts, made their list of the 30 greatest living American songwriters. Now it’s your turn to choose.`\
 https://www.nytimes.com/interactive/2026/04/27/magazine/greatest-american-songwriters-vote.html
-
-**How We Made the List of the 30 Greatest Living American Songwriters**\
-`First we polled hundreds of experts. Then Times critics spent weeks arguing about what constitutes greatness in American music.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/greatest-living-songwriters-methodology.html
 
