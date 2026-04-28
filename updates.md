@@ -1,3 +1,11 @@
+**Haiti’s Original Sin? Freedom.**\
+`Haiti’s revolution shocked the world. America still isn’t over it.`\
+https://www.nytimes.com/2026/04/28/opinion/haitis-original-sin-freedom.html
+
+**La madre que no habla**\
+`Cuando su hijo de 11 años desapareció el año pasado, Jacqueline Pritchett se negó incluso a reconocer su existencia.`\
+https://www.nytimes.com/es/2026/04/28/espanol/estados-unidos/jacob-pritchett-desaparecido-madre.html
+
 **‘They Said A.I. Saved Me’: How South Korea Is Checking on Its Seniors**\
 `In the world’s fastest aging society, artificial intelligence is being used to make care calls to older adults who live alone and to fight dementia.`\
 https://www.nytimes.com/2026/04/28/world/asia/korea-ai-seniors-dementia.html
