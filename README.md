@@ -1,3 +1,11 @@
+**Judge Says Maurene Comey Can Sue the Trump Administration for Firing Her**\
+`Ms. Comey, a former federal prosecutor who handled cases against Jeffery Epstein and Sean Combs, claimed in her suit that she was fired for political reasons.`\
+https://www.nytimes.com/2026/04/28/nyregion/maurene-comey-lawsuit-trump.html
+
+**F.B.I. Knew Civil Rights Group Informants Helped Bring Down Extremists, Lawyers Say**\
+`The Southern Poverty Law Center is planning to challenge the larger story of deceit and hypocrisy the Trump administration has been telling about its use of paid informants, court papers suggest.`\
+https://www.nytimes.com/2026/04/28/us/fbi-southern-poverty-law-center-informants.html
+
 **¿Qué es el Estatus de Protección Temporal?**\
 `Diseñado para ayudar a las personas procedentes de países con problemas a permanecer y trabajar en Estados Unidos, el programa humanitario ha estado bajo la mira del gobierno de Trump.`\
 https://www.nytimes.com/es/2026/04/28/espanol/estados-unidos/tps-que-es.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/28/crosswords/strands-sidekick-787.html
 **Wordle Review No. 1,775**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, April 29, 2026.`\
 https://www.nytimes.com/2026/04/28/crosswords/wordle-review-1775.html
-
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/04/28/us/king-charles-us-visit-trump/heres-the-latest
-
-**The Small U.K. Agency That’s a 911 for Ships in the Strait of Hormuz**\
-`At a military base outside Portsmouth, England, a 24-hour service monitors the Persian Gulf, the Red Sea and part of the Indian Ocean, responding to distress calls.`\
-https://www.nytimes.com/2026/04/28/world/europe/ukmto-shipping-strait-hormuz.html
 
