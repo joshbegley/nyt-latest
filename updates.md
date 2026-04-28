@@ -1,3 +1,15 @@
+**¿Cómo enfrentará BTS una gira mundial agotadora?**\
+`El antiguo entrenador del grupo comparó a sus integrantes con atletas profesionales. “Es un trabajo que somete al cuerpo a mucho más esfuerzo del que la mayoría de la gente cree”.`\
+https://www.nytimes.com/es/2026/04/28/espanol/cultura/bts-gira-mundial.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/28/crosswords/spelling-bee-forum.html
+
+**Cherry Blossoms**\
+`What are the signs of spring where you live?`\
+https://www.nytimes.com/2026/04/28/learning/cherry-blossoms.html
+
 **Late Night Downloads the White House Correspondents’ Dinner**\
 `The event “was supposed to be an evening of fun and merriment,” Jon Stewart said, “until, like most things in America, it was interrupted by gunfire.”`\
 https://www.nytimes.com/2026/04/28/arts/television/late-night-white-house-correspondents-dinner.html
