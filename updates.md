@@ -1,3 +1,19 @@
+**The Jay-Z Interview**\
+`The artist shares stories behind his famous songs, the writing challenges he sets for himself and how he has sustained a hip-hop career.`\
+https://www.nytimes.com/2026/04/28/magazine/jayz-songs-lyrics-rhythm-process.html
+
+**The Taylor Swift Interview**\
+`The artist shares stories behind some of her biggest hits, her love of a “rant bridge” and how life in the public eye informs the stories she tells in her songs.`\
+https://www.nytimes.com/2026/04/28/magazine/taylor-swift-songwriting-process-interview.html
+
+**Rescue Efforts Underway After Deadly Indonesia Train Collision**\
+`Two trains collided near Jakarta on Monday evening, killing 14 people and disrupting commuter traffic, the authorities said.`\
+https://www.nytimes.com/video/world/asia/100000010867053/rescue-efforts-underway-after-deadly-indonesia-train-collision.html
+
+**Trains Collide in Indonesia, Killing at Least 14 and Injuring Dozens**\
+`Rescue teams searched for survivors overnight after two trains collided near Jakarta on Monday. The authorities said at least 84 people were injured.`\
+https://www.nytimes.com/2026/04/28/world/asia/indonesia-train-crash.html
+
 **King and Queen of England Visit White House**\
 `King Charles III and Queen Camilla arrived at the White House, where President Trump and Melania Trump welcomed them at the start of a four-day state visit marking America’s 250th birthday.`\
 https://www.nytimes.com/video/us/100000010867018/king-charles-uk-royal-visit-trump.html

@@ -1,3 +1,19 @@
+**The Jay-Z Interview**\
+`The artist shares stories behind his famous songs, the writing challenges he sets for himself and how he has sustained a hip-hop career.`\
+https://www.nytimes.com/2026/04/28/magazine/jayz-songs-lyrics-rhythm-process.html
+
+**The Taylor Swift Interview**\
+`The artist shares stories behind some of her biggest hits, her love of a “rant bridge” and how life in the public eye informs the stories she tells in her songs.`\
+https://www.nytimes.com/2026/04/28/magazine/taylor-swift-songwriting-process-interview.html
+
+**Rescue Efforts Underway After Deadly Indonesia Train Collision**\
+`Two trains collided near Jakarta on Monday evening, killing 14 people and disrupting commuter traffic, the authorities said.`\
+https://www.nytimes.com/video/world/asia/100000010867053/rescue-efforts-underway-after-deadly-indonesia-train-collision.html
+
+**Trains Collide in Indonesia, Killing at Least 14 and Injuring Dozens**\
+`Rescue teams searched for survivors overnight after two trains collided near Jakarta on Monday. The authorities said at least 84 people were injured.`\
+https://www.nytimes.com/2026/04/28/world/asia/indonesia-train-crash.html
+
 **King and Queen of England Visit White House**\
 `King Charles III and Queen Camilla arrived at the White House, where President Trump and Melania Trump welcomed them at the start of a four-day state visit marking America’s 250th birthday.`\
 https://www.nytimes.com/video/us/100000010867018/king-charles-uk-royal-visit-trump.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/27/pageoneplus/quote-of-the-day-a-disquieting-po
 **British Embassy Hosts Royal Couple, and a Few Hundred More, at Garden Party**\
 `King Charles III and Queen Camilla gathered with Washington’s famous and not so famous for an off-the-record evening.`\
 https://www.nytimes.com/2026/04/27/us/politics/british-embassy-hosts-royal-couple-and-a-few-hundred-more-at-garden-party.html
-
-**Boots on the Ground**\
-`Hal Moore’s puzzle is a feast for the eyes.`\
-https://www.nytimes.com/2026/04/27/crosswords/daily-puzzle-2026-04-28.html
-
-**Megan Thee Stallion to Leave Broadway Show Early**\
-`The rapper will perform in “Moulin Rouge!” for the final time on Friday, though the production didn’t say why she was leaving more than two weeks early.`\
-https://www.nytimes.com/2026/04/27/theater/megan-thee-stallion-broadway-moulin-rouge.html
-
-**Estos son los cargos contra el sospechoso del ataque a la gala de corresponsales de la Casa Blanca**\
-`Las autoridades afirman que el hombre de California irrumpió el sábado en el evento en Washington con la intención de matar al presidente.`\
-https://www.nytimes.com/es/2026/04/27/espanol/estados-unidos/ataque-gala-casa-blanca-cargos-sospechoso.html
-
-**Cast Your Vote for the Greatest Living American Songwriters**\
-`Times critics, with the help of more than 250 experts, made their list of the 30 greatest living American songwriters. Now it’s your turn to choose.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/greatest-american-songwriters-vote.html
 

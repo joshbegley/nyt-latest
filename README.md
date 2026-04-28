@@ -8,7 +8,7 @@ https://www.nytimes.com/2026/04/28/magazine/taylor-swift-songwriting-process-int
 
 **Rescue Efforts Underway After Deadly Indonesia Train Collision**\
 `Two trains collided near Jakarta on Monday evening, killing 14 people and disrupting commuter traffic, the authorities said.`\
-https://www.nytimes.com/video/world/asia/100000010867053/rescue-efforts-underway-after-deadly-indonesia-train-collision.html
+https://www.nytimes.com/video/world/asia/100000010867053/indonesia-train-crash.html
 
 **Trains Collide in Indonesia, Killing at Least 14 and Injuring Dozens**\
 `Rescue teams searched for survivors overnight after two trains collided near Jakarta on Monday. The authorities said at least 84 people were injured.`\
