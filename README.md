@@ -1,3 +1,7 @@
+**Kennedy Center Works to Make the Case That Repairs Are Urgent**\
+`In Washington and in federal court, the center is arguing that its planned two-year closure is crucial. Critics say it’s a result of declining attendance and fleeing artists.`\
+https://www.nytimes.com/2026/04/28/arts/kennedy-center-closure-trump.html
+
 **Mexico Says 4 Foreigners Were at Cartel Raid Where Two C.I.A. Officers Died**\
 `Mexican officials revealed that four foreigners — not two — were present during a counter-drug operation in northern Mexico where a crash killed two men later identified as C.I.A. officers.`\
 https://www.nytimes.com/2026/04/28/world/americas/mexico-crash-cia-officers.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/28/world/middleeast/iraq-ali-al-zaidi.html
 **A Brooch, Teaspoons and More: The King, Queen and the Trumps Trade Gifts**\
 `King Charles III gave President Trump a framed, high-quality reproduction of the 1879 design plans for the Resolute Desk, which is still in the Oval Office.`\
 https://www.nytimes.com/2026/04/28/us/trump-king-charles-visit-gifts.html
-
-**Jimmy Kimmel Defends ‘Widow’ Joke After Calls for His Dismissal**\
-`The comedian Jimmy Kimmel defended a joke he made two days before the White House correspondents’ dinner where he said that Melania Trump had “a glow like an expectant widow.” The first lady and President Trump both called on ABC to fire Kimmel over the joke.`\
-https://www.nytimes.com/video/us/politics/100000010867178/jimmy-kimmel-melania-trump-widow.html
 

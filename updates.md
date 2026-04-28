@@ -1,3 +1,7 @@
+**Mexico Says 4 Foreigners Were at Cartel Raid Where Two C.I.A. Officers Died**\
+`Mexican officials revealed that four foreigners — not two — were present during a counter-drug operation in northern Mexico where a crash killed two men later identified as C.I.A. officers.`\
+https://www.nytimes.com/2026/04/28/world/americas/mexico-crash-cia-officers.html
+
 **Supreme Court Appears Skeptical of Falun Gong Lawsuit Against Tech Company**\
 `The court’s decision could have broader implications for lawsuits seeking to hold companies liable for international human rights abuses.`\
 https://www.nytimes.com/2026/04/28/us/politics/supreme-court-falun-gong-tech.html
