@@ -1,3 +1,19 @@
+**The Latest Place Trump’s Face Will Appear: Some U.S. Passports**\
+`The department said it planned to release “a limited number of specially designed” U.S. passports that feature a picture of the president to commemorate the country’s 250th anniversary in July.`\
+https://www.nytimes.com/2026/04/28/us/politics/trump-passports.html
+
+**After Decades of Resistance, a Casino Finally Opens in New York City**\
+`As Aqueduct Racetrack winds down, Resorts World opens the first full-scale commercial casino in Queens, with live table games, dealers and cards.`\
+https://www.nytimes.com/2026/04/28/nyregion/resorts-world-queens-nyc-casino.html
+
+**Could At-Home Brain Stimulation Reduce Psychiatry’s Reliance on S.S.R.I.s?**\
+`A headset recently approved by the Food and Drug Administration uses a weak electric current to shock the brain. Some researchers hope it could challenge the current pill-centric paradigm.`\
+https://www.nytimes.com/2026/04/28/health/depression-at-home-brain-stimulation-fda.html
+
+**6 Takeaways From Our Taylor Swift Interview**\
+`Swift spoke with The New York Times about confessional songwriting, the inspiration behind some of her biggest hits and a writing quirk she can’t stand.`\
+https://www.nytimes.com/2026/04/28/arts/music/taylor-swift-interview-takeaways.html
+
 **Chanel Stages a Met Gala Curtain Raiser**\
 `The label’s cruise show in Biarritz, France, offered a preview of what we may see on Monday.`\
 https://www.nytimes.com/article/2026-cruise-runway-shows-fashion-review.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/28/arts/kennedy-center-closure-trump.html
 **Mexico Says 4 Foreigners Were at Cartel Raid Where 2 C.I.A. Officers Died**\
 `Mexican officials revealed that four foreigners — not two — were present during a counterdrug operation in northern Mexico where a crash killed two men later identified as C.I.A. officers.`\
 https://www.nytimes.com/2026/04/28/world/americas/mexico-crash-cia-officers.html
-
-**Supreme Court Appears Skeptical of Falun Gong Lawsuit Against Tech Company**\
-`The court’s decision could have broader implications for lawsuits seeking to hold companies liable for international human rights abuses.`\
-https://www.nytimes.com/2026/04/28/us/politics/supreme-court-falun-gong-tech.html
-
-**Florida Republicans Refuse to Take Up DeSantis Bill Loosening Vaccine Mandates**\
-`The House speaker cited concerns about “children being in school without measles and mumps and polio and chickenpox vaccines that have been working for decades.”`\
-https://www.nytimes.com/2026/04/28/us/politics/ron-desantis-gop-florida-vaccines.html
-
-**Here’s what Musk’s lawyers argued in their opening statement.**\
-``\
-https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/heres-what-musks-lawyers-argued-in-their-opening-statement
-
-**Watch Live: King Charles Addresses Congress**\
-`King Charles III of Britain addresses a joint meeting of Congress.`\
-https://www.nytimes.com/video/us/100000010868046/watch-live-king-charles-addresses-congress.html
 

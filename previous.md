@@ -1,3 +1,7 @@
+**Chanel Stages a Met Gala Curtain Raiser**\
+`The label’s cruise show in Biarritz, France, offered a preview of what we may see on Monday.`\
+https://www.nytimes.com/article/2026-cruise-runway-shows-fashion-review.html
+
 **How to Prepare for a Longer Life**\
 `We asked Times readers to share their best advice for a safe, satisfying and financially comfortable life — no matter how old you are or how long you live.`\
 https://www.nytimes.com/2026/04/28/your-money/longevity-finances-reader-responses.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-t
 **Watch Live: King Charles Addresses Congress**\
 `King Charles III of Britain addresses a joint meeting of Congress.`\
 https://www.nytimes.com/video/us/100000010868046/watch-live-king-charles-addresses-congress.html
-
-**National Guard Can Stay in Memphis, State Appeals Court Says**\
-`The decision reversed a lower-court ruling last year that temporarily blocked the deployment.`\
-https://www.nytimes.com/2026/04/28/us/politics/national-guard-deployment-memphis-tennessee.html
 

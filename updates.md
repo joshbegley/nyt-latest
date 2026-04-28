@@ -1,3 +1,7 @@
+**Chanel Stages a Met Gala Curtain Raiser**\
+`The label’s cruise show in Biarritz, France, offered a preview of what we may see on Monday.`\
+https://www.nytimes.com/article/2026-cruise-runway-shows-fashion-review.html
+
 **How to Prepare for a Longer Life**\
 `We asked Times readers to share their best advice for a safe, satisfying and financially comfortable life — no matter how old you are or how long you live.`\
 https://www.nytimes.com/2026/04/28/your-money/longevity-finances-reader-responses.html
