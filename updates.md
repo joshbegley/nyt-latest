@@ -1,3 +1,23 @@
+**Deal Talks Between Pernod and Maker of Jack Daniel’s Falter**\
+`The collapse of negotiations could pave the way for another spirits company, Sazerac, to make a bid for Brown-Forman.`\
+https://www.nytimes.com/2026/04/28/business/pernod-brown-forman-talks-jack-daniels.html
+
+**The Latest Place Trump’s Face Will Appear: Some U.S. Passports**\
+`The department said it planned to release “a limited number of specially designed” U.S. passports that feature a picture of the president to commemorate the country’s 250th anniversary in July.`\
+https://www.nytimes.com/2026/04/28/us/politics/trump-passports.html
+
+**After Decades of Resistance, a Casino Finally Opens in New York City**\
+`As Aqueduct Racetrack winds down, Resorts World opens the first full-scale commercial casino in Queens, with live table games, dealers and cards.`\
+https://www.nytimes.com/2026/04/28/nyregion/resorts-world-queens-nyc-casino.html
+
+**Could At-Home Brain Stimulation Reduce Psychiatry’s Reliance on S.S.R.I.s?**\
+`A headset recently approved by the Food and Drug Administration uses a weak electric current to shock the brain. Some researchers hope it could challenge the current pill-centric paradigm.`\
+https://www.nytimes.com/2026/04/28/health/depression-at-home-brain-stimulation-fda.html
+
+**6 Takeaways From Our Taylor Swift Interview**\
+`Swift spoke with The New York Times about confessional songwriting, the inspiration behind some of her biggest hits and a writing quirk she can’t stand.`\
+https://www.nytimes.com/2026/04/28/arts/music/taylor-swift-interview-takeaways.html
+
 **Chanel Stages a Met Gala Curtain Raiser**\
 `The label’s cruise show in Biarritz, France, offered a preview of what we may see on Monday.`\
 https://www.nytimes.com/article/2026-cruise-runway-shows-fashion-review.html

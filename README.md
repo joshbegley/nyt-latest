@@ -1,5 +1,21 @@
+**The E.P.A.’s Lost Science**\
+`The agency’s prestigious research office is being dismantled by the Trump administration, a plan to dam the Bering Strait and more climate news.`\
+https://www.nytimes.com/2026/04/28/climate/the-epas-lost-science.html
+
+**Dirty Gold**\
+`A Times investigation shows how the U.S. and Canadian mints ended up buying gold that came from a Colombian drug cartel.`\
+https://www.nytimes.com/2026/04/28/world/dirty-gold-mints-opec-king-charles.html
+
+**The Banality of Evil, Again**\
+`The distinguishing feature of Cole Tomas Allen’s manifesto is its insipidity.`\
+https://www.nytimes.com/2026/04/28/opinion/whcd-shooting-trump-manifesto.html
+
+**Democrats Pitch ‘New Affordability,’ Looking to Widen Midterm Appeal**\
+`Progressives who expect their party to take control of Congress are putting forth a slate of bills aimed at helping lower costs for Americans, financed by tax increases on the wealthy.`\
+https://www.nytimes.com/2026/04/28/us/politics/democrats-affordability-midterms.html
+
 **Deal Talks Between Pernod and Maker of Jack Daniel’s Falter**\
-`The collapse of negotiations could pave the way for another spirits company, Sazerac, to make a bid for Brown-Forman.`\
+`The collapse of the talks could pave the way for another spirits company, Sazerac, to open negotiations with Brown-Forman.`\
 https://www.nytimes.com/2026/04/28/business/pernod-brown-forman-talks-jack-daniels.html
 
 **The Latest Place Trump’s Face Will Appear: Some U.S. Passports**\
@@ -61,20 +77,4 @@ https://www.nytimes.com/video/us/100000010868251/trump-king-charles-white-house-
 **For the Third Time, a Former Actress Testifies Against Harvey Weinstein**\
 `Jessica Mann testified, for the third time in six years, about the day she says Mr. Weinstein raped her in a Midtown Manhattan hotel.`\
 https://www.nytimes.com/2026/04/28/nyregion/jessica-mann-weinstein-testimony.html
-
-**Amid Iran War and Tensions with Neighbors, U.A.E. Goes Its Own Way**\
-`The United Arab Emirates’ decision to leave OPEC has rocked the region, underscoring how the country, at odds with Saudi Arabia, is increasingly charting its own course.`\
-https://www.nytimes.com/2026/04/28/world/middleeast/united-arab-emirates-leaves-opec.html
-
-**‘¿También tú, Bruto?’ Entendiendo el conflicto entre Elon Musk y Sam Altman**\
-`La demanda de Musk contra Altman y OpenAI demuestra que la codicia total es el rasgo definitorio de Silicon Valley.`\
-https://www.nytimes.com/es/2026/04/28/espanol/negocios/elon-musks-sam-altman-demanda.html
-
-**What Is OPEC, and How Does It Operate?**\
-`The group of oil-producing countries supplied more than 25 percent of the world’s oil before the war in Iran. Its members have influenced energy markets through the years.`\
-https://www.nytimes.com/2026/04/28/business/opec-oil-cartel-prices.html
-
-**Kennedy Center Works to Make the Case That Repairs Are Urgent**\
-`In Washington and in federal court, the center is arguing that its planned two-year closure is crucial. Critics say it’s a result of declining attendance and fleeing artists.`\
-https://www.nytimes.com/2026/04/28/arts/kennedy-center-closure-trump.html
 
