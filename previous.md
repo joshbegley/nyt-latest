@@ -1,3 +1,19 @@
+**The Small U.K. Agency That’s a 911 for Ships in the Strait of Hormuz**\
+`At a military base outside Portsmouth, England, a 24-hour service monitors the Persian Gulf, the Red Sea and part of the Indian Ocean, responding to distress calls.`\
+https://www.nytimes.com/2026/04/28/world/europe/ukmto-shipping-strait-hormuz.html
+
+**The Man Who (Relentlessly) Sued the N.F.L. Has Receipts**\
+`A sit-down with the former N.F.L. Players Association boss who negotiated $100 billion for athletes.`\
+https://www.nytimes.com/2026/04/28/podcasts/the-man-who-relentlessly-sued-the-nfl-has-receipts.html
+
+**Fuel Crisis Creates Commuter Crush in the Philippines**\
+`Rising fuel prices in the Philippines have disrupted daily commutes, forcing people to ditch their cars for overcrowded trains and minibuses.`\
+https://www.nytimes.com/video/world/asia/100000010844179/gas-prices-philippines-commute.html
+
+**¿Devolverá algún día la Cuba comunista los miles de millones que confiscó?**\
+`Con Cuba sumida en una grave crisis económica, las personas cuyas propiedades fueron confiscadas por su gobierno comunista dicen que ha llegado el momento de resolver las espinosas reclamaciones de indemnización.`\
+https://www.nytimes.com/es/2026/04/28/espanol/america-latina/cuba-indemnizacion-propiedades-confiscadas.html
+
 **Political Campaigns Have No Idea What’s About to Hit Them**\
 `Social media helped put Trump over the top. What’s A.I. going to do to us?`\
 https://www.nytimes.com/2026/04/28/opinion/political-campaigns-artificial-intelligence.html
@@ -61,16 +77,4 @@ https://www.nytimes.com/interactive/2026/04/28/opinion/focus-group-trump-voters-
 **Anger About Internet Restrictions Breathes Some Life Into Russian Politics**\
 `From beauty influencers to the token political opposition, Russians are openly questioning President Vladimir V. Putin’s moves to hamstring access.`\
 https://www.nytimes.com/2026/04/28/world/europe/russia-internet-restrictions-putin.html
-
-**Want a Riot of Color in Your Flower Beds? Definitely Make a Plan.**\
-`There are painstaking decisions to make before the oranges, blues and yellows are just where you want them.`\
-https://www.nytimes.com/2026/04/28/realestate/garden-colorful-flowers.html
-
-**With ‘Sister Dreamer’ Park, Lauren Halsey Brings Her Heroes Home**\
-`The artist’s installation in South Central Los Angeles elevates familiar faces in the neighborhood with monuments of stone.`\
-https://www.nytimes.com/2026/04/28/arts/design/lauren-halsey-sculpture-park-dreamer-los-angeles.html
-
-**If You Want ‘Project Hail Mary’ Merch, Grab Your Knitting Needles**\
-`A cardigan worn by Ryan Gosling’s character in the hit science-fiction movie has become something of a breakout star — but you can’t just buy it.`\
-https://www.nytimes.com/2026/04/28/style/project-hail-mary-sweater-ryan-gosling.html
 
