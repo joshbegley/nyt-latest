@@ -1,80 +1,80 @@
+**Cast Your Vote for the Greatest Living American Songwriters**\
+`Times critics, with the help of more than 250 experts, made their list of the 30 greatest living American songwriters. Now it’s your turn to choose.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/greatest-american-songwriters-vote.html
+
+**How We Made the List of the 30 Greatest Living American Songwriters**\
+`First we polled hundreds of experts. Then Times critics spent weeks arguing about what constitutes greatness in American music.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/greatest-living-songwriters-methodology.html
+
+**See Who Insiders Nominated as America’s Greatest Living Songwriters**\
+`We received more than 250 expert ballots. Explore some of them here.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/critics-pick-greatest-american-songwriters.html
+
+**Who Actually Wrote Your Favorite Songs?**\
+`Test your knowledge of some of our songwriters’ biggest hits.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/hit-songs-songwriter-quiz.html
+
+**The Objects That Inspire America's Greatest Songwriters**\
+`The objects and instruments (and occasional creatures) that spur the writing process.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/great-american-songwriters-objects-inspiration.html
+
+**Stevie Wonder Is the Ultimate Embodiment of American Music**\
+`These are the songs you’d play to newborns, or alien visitors, to demonstrate the purest joys of our musical tradition.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/stevie-wonder-composer-preacher-visionary.html
+
+**Lucinda Williams’s Songs Can Turn Any Sentiment Into a Lit Fuse**\
+`Few artists sculpt songs with this level of power and emotional intensity.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/lucinda-williams-storyteller-singer-songwriter.html
+
+**Diane Warren Is a Titan of Lavish Power Ballads. You Adore at Least One.**\
+`Her widescreen, acrobatic songs have dominated radios, karaoke nights and — most likely — a big portion of your memory.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/diane-warren-songs-popular-hits.html
+
+**Young Thug Didn’t Just Mutate Hip-Hop. He Changed the Whole Act of Vocalizing.**\
+`He single-handedly changed hip-hop into something futuristic and alien — right when the genre needed it most.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/young-thug-hip-hop-rap.html
+
+**There’s a Reason Taylor Swift Is America’s Most Carefully Studied Writer**\
+`By crafting vivid chronicles of her life since she was a teenager, she has built a vast catalog that rewards the attention millions have paid to it.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/taylor-swift-pop-country-songwriter.html
+
+**Bruce Springsteen Has Always Believed That Songs Can Change America**\
+`In every era, he writes like a steward of the country’s conscience — as if he has a duty to us all.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/bruce-springsteen-boss-songwriting-america.html
+
+**Valerie Simpson Is Behind Some of the Most Transcendent Songs You Know**\
+`Along with Nickolas Ashford, she wrote a jaw-dropping number of soaring, undeniable classics.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/valerie-simpson-gospel-rnb-artist.html
+
+**Paul Simon Can Compress a Novel’s Worth of Ideas Into One Song**\
+`He sets words skipping cleverly through his music. But his rhythms, melodies and harmonies are just as deft and adventurous.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/paul-simon-garfunkel-poet-songs.html
+
+**Romeo Santos Laid the Groundwork for Latin Music in the 21st Century**\
+`He melded Dominican traditions with modern pop and made them a global phenomenon — changing the whole sound of modern romance.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/romeo-santos-aventura-bachata-latin.html
+
+**Nile Rodgers Brings Gritty Glamor and Big Ideas to the Dance Floor**\
+`He helped make the spirit of 1970s New York a global ideal, immortalized in anthems of freedom and transgression.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/nile-rodgers-chic-disco-dance.html
+
+**Smokey Robinson Designed the Love Song as We Know It**\
+`He has written dozens of classic songs for classic acts — all in lucid, crystalline language, with a timeless elegance that still sets them soaring.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/smokey-robinson-miracles-motown-soul.html
+
+**Lionel Richie Has Always Had a Hand Placed Tenderly on the Nation’s Heart**\
+`He’s written heaps of our most indelibly gorgeous, time-stoppingly gentle hits — for the Commodores, for himself and for other pop legends.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/lionel-richie-rnb-pop-soul.html
+
+**Don’t Let Dolly Parton’s Sparkle Distract You From Her Rigorous Craft**\
+`High-femme glamour, down-home simplicity, endless creativity — and such a generous, approachable spirit, it’s easy to forget how great her writing is.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/dolly-parton-songwriter-generational-icon.html
+
+**Outkast Made Hip-Hop More Eccentric — and More Universal, Too**\
+`Their songs leaned into regional detail and unpredictable ideas. The more specific they got, the broader the audience they captivated.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/outkast-group-southern-rappers-georgia.html
+
 **Willie Nelson Makes Intricate Songs Sound as Simple as Thinking**\
 `His writing is wildly sophisticated, full of jazzy complexity — and yet it always feels plain-spoken and perfectly at ease.`\
 https://www.nytimes.com/interactive/2026/04/27/magazine/willie-nelson-country-superstar-outlaw.html
-
-**Stephin Merritt Is the American Songbook’s Most Mischievous Student**\
-`He twists, ironizes and interrogates the tradition of songwriting, turning it into a profound and comic reflection of itself.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/stephin-merritt-songwriter-magnetic-fields.html
-
-**Lana Del Rey Injected Perverse New Moods Into American Pop**\
-`By delighting in the things women aren’t supposed to say, her songs bewitch listeners with an emotional register they never would have expected.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/lana-del-rey-music-poetry.html
-
-**The Babyface Interview**\
-`The craftsman behind dozens of hits for performers like Whitney Houston and Boyz II Men talks about how he wrote the love songs that defined a decade.`\
-https://www.nytimes.com/2026/04/27/magazine/babyface-whitney-houston-madonna-songs.html
-
-**Kendrick Lamar Can Be Gloriously Profound — and Gloriously Petty**\
-`His virtuosity, and seriousness of purpose, made him the Dylanesque voice of hip-hop. He can also cut you when he needs to.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/kendrick-lamar-california-rapper-songs.html
-
-**The Mariah Carey Interview**\
-`The artist talks about writing her era-defining hits, the pleasures of collaboration and some of the ways she has been undercredited as a writer.`\
-https://www.nytimes.com/2026/04/27/magazine/mariah-carey-songwriting-process-fantasy.html
-
-**Carole King Was Already a Master Hitmaker. Then She Went Further.**\
-`A legend of pop craftsmanship. A trailblazer for singer-songwriter intimacy. Either feat alone could have earned a spot on this list.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/carole-king-influence-music-catalog.html
-
-**The Lucinda Williams Interview**\
-`The singer-songwriter talks about being self-taught, and reaching down into the deepest, darkest parts of herself to pull out a song.`\
-https://www.nytimes.com/2026/04/27/magazine/lucinda-williams-americana-rebel-songwriting.html
-
-**The Nile Rodgers Interview**\
-`The co-founder of Chic, the de facto house band of New York’s late-70s disco boom, talks about taking inspiration from the city’s club scene.`\
-https://www.nytimes.com/2026/04/27/magazine/nile-rodgers-songwriting-we-are-family.html
-
-**Jay-Z’s Lyrical Ingenuity Stretches From Street-Level Grit to Midlife Reflection**\
-`He rose to fame as a steely-eyed chronicler of his youth. Then he carved a path to become rap’s elder statesman.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/jayz-songwriter-rap-brooklyn-artist.html
-
-**The Clark, McAnally and Osborne Interview**\
-`Shane McAnally, Brandy Clark and Josh Osborne talk about songwriting as a day job and the art of telling simple truths in a single line.`\
-https://www.nytimes.com/2026/04/27/magazine/osborne-clark-mcanally-country-hits.html
-
-**Jimmy Jam & Terry Lewis Kept Pop on the Cutting Edge**\
-`The sonic ingenuity they brought to scores of hits — from machine-tooled drums to glittering harmonies — helped make the charts a home for surprising sounds.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/jimmy-jam-terry-lewis-songwriters.html
-
-**The Holland Brothers Wrote Hits That Became the Bedrock of American Pop**\
-`Along with Lamont Dozier, they crafted love songs that didn’t just aim for the heart — they moved the body.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/brian-eddie-holland-brothers-hits.html
-
-**Missy Elliott Turned the Radio Into a Day-Glo Playground**\
-`She warps rhythm, sound and the English language, pulling them apart as if they were all just delightful taffy.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/missy-elliott-singer-rapper-songwriter.html
-
-**Bob Dylan Expanded the Limits of What a Song Can Do**\
-`A troubadour, a poet, a preacher, a trickster — there are enough Dylans to qualify for two or three spots on this list.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/bob-dylan-rock-folk-music.html
-
-**The-Dream’s Sound Runs Through the Biggest Hits of This Century**\
-`Modern pop wouldn’t be remotely the same without him — including some of the era’s most iconic, inescapable hits.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/the-dream-rnb-pop-music.html
-
-**Nashville Appreciates Craft. These Three Are Masters.**\
-`Writers toil daily to engineer perfect country songs. Shane McAnally, Brandy Clark and Josh Osborne are among the finest — and the most disruptive.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/osborne-clark-mcanally-country-nashville.html
-
-**Mariah Carey Is the People’s Poet**\
-`Her keen ear and glittery emotionalism have produced the most No. 1 hits of any American songwriter.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/mariah-carey-pop-music-poetry.html
-
-**Bad Bunny’s Charisma and Fluidity Brought Him to the Heart of Pop**\
-`His warmth, humor and almost scholarly facility with Caribbean traditions and contemporary pop have made him an undeniable force.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/bad-bunny-latin-pop-music.html
-
-**In Hit After Hit, for Countless Artists, Babyface Knows What Women Want**\
-`Even as the music grew rawer and leaner, he ensured it was still yoked to romance and grandeur.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/babyface-kenneth-edmonds-whip-appeal.html
 
