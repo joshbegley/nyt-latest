@@ -1,3 +1,11 @@
+**The Greatest Living Songwriters**\
+`We look at the list crafted by Times music writers.`\
+https://www.nytimes.com/2026/04/28/briefing/the-greatest-living-songwriters.html
+
+**One Person Appears to Be Missing From King Charles’s U.S. Itinerary: Prince Harry**\
+`On a state visit designed in part to repair U.S.-British relations, King Charles’s schedule does not include plans to see his younger son, who lives in the United States with his family.`\
+https://www.nytimes.com/2026/04/28/us/prince-harry-king-charles-us-visit.html
+
 **El arte de la negociación nuclear**\
 `El presidente Trump rompió un pacto diseñado para impedir que Irán construyera una bomba. Conseguir un acuerdo mejor ahora podría ser complicado.`\
 https://www.nytimes.com/es/2026/04/28/espanol/mundo/negociacion-nuclear-iran-trump-obama.html
