@@ -1,3 +1,11 @@
+**La guerra en Irán empieza afectar la economía de China**\
+`Las reservas estratégicas de petróleo y gas natural de China la han aislado un poco, pero su economía basada en la manufactura está empezando a tambalearse.`\
+https://www.nytimes.com/es/2026/04/28/espanol/negocios/guerra-iran-economia-china-impacto.html
+
+**Grand Jury Indicts Former N.I.H. Official**\
+`Prosecutors accused Dr. David Morens, a former adviser to Dr. Anthony S. Fauci, of hiding records related to the onset of the pandemic.`\
+https://www.nytimes.com/2026/04/28/science/david-morens-indictment.html
+
 **For Many Pro Athletes, Post-Career Financial Worries Loom Large**\
 `The tennis player Mackenzie McDonald has earned well up to this point, but high expenses and a short career timeline have prompted him, and others, to search for a backup plan.`\
 https://www.nytimes.com/2026/04/28/your-money/longevity-athletes-mackenzie-mcdonald.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/28/opinion/president-assassination-politics.html
 **California 22nd Congressional District 2026: Latest Polls**\
 `Track the latest polls in California's 22nd Congressional District.`\
 https://www.nytimes.com/interactive/polls/california-us-house-22-polls-2026.html
-
-**Adopting Trump’s Voice, Justice Dept. Asks Judge to Let Ballroom Proceed**\
-`The court filing links the security breach at the White House correspondents’ dinner to the lawsuit over President Trump’s ballroom project.`\
-https://www.nytimes.com/2026/04/28/us/elections/ballroom-filing-trump-truth-social.html
-
-**Emiratos Árabes Unidos anuncia su salida de la OPEP**\
-`El gobierno del Golfo se ha quejado durante mucho tiempo de las cuotas del grupo, que los funcionarios consideran que limitan injustamente sus exportaciones.`\
-https://www.nytimes.com/es/2026/04/28/espanol/mundo/emiratos-arabes-unidos-opep.html
 
