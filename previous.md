@@ -1,3 +1,7 @@
+**Port Authority to Install Tracker Not Used During Deadly LaGuardia Crash**\
+`Federal investigators had said that the lack of a transponder on a fire truck played a role in a deadly collision with an Air Canada Express jet at LaGuardia.`\
+https://www.nytimes.com/2026/04/28/nyregion/laguardia-airport-crash-transponder.html
+
 **Despite Trade Turmoil, Canada’s Economy Is Expected to Grow and Deficit to Fall**\
 `Prime Minister Mark Carney’s budget update keeps to his path of diversifying away from the United States.`\
 https://www.nytimes.com/2026/04/28/world/canada/carney-budget-update.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/04/28/us/comey-indictment.html
 **Britain Summons Iran’s Ambassador Over Message to Iranians in U.K.**\
 `Iran’s embassy in London posted a message on social media inviting Iranians living in Britain to register for a ‘Sacrifice for the Homeland’ campaign.`\
 https://www.nytimes.com/2026/04/28/world/europe/britain-iran-ambassador-summons.html
-
-**Treasury Dept. Issues More Sanctions on Iranian Oil Exports**\
-`The measures aim to crack down on Iran’s shadow banking system and Chinese purchases of Iranian oil.`\
-https://www.nytimes.com/2026/04/28/us/politics/treasury-iran-oil-sanctions.html
 
