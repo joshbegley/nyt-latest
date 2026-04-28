@@ -1,3 +1,23 @@
+**The-Dream’s Sound Runs Through the Biggest Hits of This Century**\
+`Modern pop wouldn’t be remotely the same without him — including some of the era’s most iconic, inescapable hits.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/the-dream-rnb-pop-music.html
+
+**Nashville Appreciates Craft. These Three Are Masters.**\
+`Writers toil daily to engineer perfect country songs. Shane McAnally, Brandy Clark and Josh Osborne are among the finest — and the most disruptive.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/osborne-clark-mcanally-country-nashville.html
+
+**Mariah Carey Is the People’s Poet**\
+`Her keen ear and glittery emotionalism have produced the most No. 1 hits of any American songwriter.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/mariah-carey-pop-music-poetry.html
+
+**Bad Bunny’s Charisma and Fluidity Brought Him to the Heart of Pop**\
+`His warmth, humor and almost scholarly facility with Caribbean traditions and contemporary pop have made him an undeniable force.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/bad-bunny-latin-pop-music.html
+
+**In Hit After Hit, for Countless Artists, Babyface Knows What Women Want**\
+`Even as the music grew rawer and leaner, he ensured it was still yoked to romance and grandeur.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/babyface-kenneth-edmonds-whip-appeal.html
+
 **Few Careers Are as Daring — Musically or Emotionally — as Fiona Apple’s**\
 `With every album, she burrows deeper into her own psyche, pushing her music into new realms.`\
 https://www.nytimes.com/interactive/2026/04/27/magazine/fiona-apple-songwriting-criminal-albums.html

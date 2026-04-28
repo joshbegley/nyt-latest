@@ -1,3 +1,23 @@
+**The-Dream’s Sound Runs Through the Biggest Hits of This Century**\
+`Modern pop wouldn’t be remotely the same without him — including some of the era’s most iconic, inescapable hits.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/the-dream-rnb-pop-music.html
+
+**Nashville Appreciates Craft. These Three Are Masters.**\
+`Writers toil daily to engineer perfect country songs. Shane McAnally, Brandy Clark and Josh Osborne are among the finest — and the most disruptive.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/osborne-clark-mcanally-country-nashville.html
+
+**Mariah Carey Is the People’s Poet**\
+`Her keen ear and glittery emotionalism have produced the most No. 1 hits of any American songwriter.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/mariah-carey-pop-music-poetry.html
+
+**Bad Bunny’s Charisma and Fluidity Brought Him to the Heart of Pop**\
+`His warmth, humor and almost scholarly facility with Caribbean traditions and contemporary pop have made him an undeniable force.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/bad-bunny-latin-pop-music.html
+
+**In Hit After Hit, for Countless Artists, Babyface Knows What Women Want**\
+`Even as the music grew rawer and leaner, he ensured it was still yoked to romance and grandeur.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/babyface-kenneth-edmonds-whip-appeal.html
+
 **Few Careers Are as Daring — Musically or Emotionally — as Fiona Apple’s**\
 `With every album, she burrows deeper into her own psyche, pushing her music into new realms.`\
 https://www.nytimes.com/interactive/2026/04/27/magazine/fiona-apple-songwriting-criminal-albums.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/04/27/style/euphoria-wedding-guests-fashion.html
 **Charges Announced Against Press Gala Attack Defendant**\
 `On Monday, Todd Blanche, the acting attorney general, announced three federal charges against Cole Tomas Allen, the suspect in Saturday’s attack at the White House correspondents’ dinner.`\
 https://www.nytimes.com/video/us/politics/100000010866106/blanche-patel-whcd-trump-shooting.html
-
-**Nedra Talley Ross, Last Surviving Member of the Ronettes, Dies at 80**\
-`With towering hairdos and perfect harmonies, she and her cousins Ronnie and Estelle brought a fresh edge to the girl-group sound in hits like “Be My Baby.”`\
-https://www.nytimes.com/2026/04/27/arts/music/nedra-talley-ross-dead.html
-
-**Is Andrew Yang Running for President?**\
-`This week on “Hard Fork” from The New York Times, the hosts Casey Newton and Kevin Roose ask the entrepreneur and 2020 presidential candidate Andrew Yang the big question: Is he running again in 2028?`\
-https://www.nytimes.com/video/podcasts/100000010866710/is-andrew-yang-running-for-president.html
-
-**Pentagon Can Temporarily Require Escorts for Journalists**\
-`An appeals panel ruled that the Defense Department can require escorts for reporters in the building while it fights an earlier decision that overturned many of the department’s press rules.`\
-https://www.nytimes.com/2026/04/27/business/media/pentagon-press-restrictions-escorts.html
-
-**U.S. Government Will Stop Paying for Test Strips to Detect Deadly Drugs**\
-`In a letter to states and other grant recipients, the Trump administration says the strips encourage drug use.`\
-https://www.nytimes.com/2026/04/27/health/trump-fentanyl-test-strips.html
-
-**What Happens When A.I. Runs a Store in San Francisco?**\
-`In San Francisco, an A.I. agent was tasked with running a store. The experiment did not go well. The “Hard Fork” co-hosts Casey Newton and Kevin Roose unpack the story in a recent episode.`\
-https://www.nytimes.com/video/podcasts/100000010866685/what-happens-when-ai-runs-a-store-in-san-francisco.html
 
