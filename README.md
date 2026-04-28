@@ -1,3 +1,7 @@
+**Boots on the Ground**\
+`Hal Moore’s puzzle is a feast for the eyes.`\
+https://www.nytimes.com/2026/04/27/crosswords/daily-puzzle-2026-04-28.html
+
 **Megan Thee Stallion to Leave Broadway Show Early**\
 `The rapper will perform in “Moulin Rouge!” for the final time on Friday, though the production didn’t say why she was leaving more than two weeks early.`\
 https://www.nytimes.com/2026/04/27/theater/megan-thee-stallion-broadway-moulin-rouge.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/04/27/magazine/smokey-robinson-miracles
 **Lionel Richie Has Always Had a Hand Placed Tenderly on the Nation’s Heart**\
 `He’s written heaps of our most indelibly gorgeous, time-stoppingly gentle hits — for the Commodores, for himself and for other pop legends.`\
 https://www.nytimes.com/interactive/2026/04/27/magazine/lionel-richie-rnb-pop-soul.html
-
-**Don’t Let Dolly Parton’s Sparkle Distract You From Her Rigorous Craft**\
-`High-femme glamour, down-home simplicity, endless creativity — and such a generous, approachable spirit, it’s easy to forget how great her writing is.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/dolly-parton-songwriter-generational-icon.html
 
