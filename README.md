@@ -1,3 +1,11 @@
+**Civil Rights Cases Slow at Education Dept. Amid Trump’s Overhaul**\
+`Data obtained by The New York Times shows that the Education Department resolved 30 percent fewer discrimination complaints in 2025 compared with the previous year.`\
+https://www.nytimes.com/2026/04/28/us/politics/education-department-civil-rights-trump.html
+
+**George Clooney Calls for Unity at Lincoln Center Gala**\
+`The actor, who was honored at Film at Lincoln Center’s Chaplin Award Gala, denounced political violence after the attempted assassination of President Trump.`\
+https://www.nytimes.com/2026/04/28/style/george-clooney-white-house-dinner-trump-shooting.html
+
 **Judge Says Maurene Comey Can Sue the Trump Administration for Firing Her**\
 `Ms. Comey, a former federal prosecutor who handled cases against Jeffery Epstein and Sean Combs, claimed in her suit that she was fired for political reasons.`\
 https://www.nytimes.com/2026/04/28/nyregion/maurene-comey-lawsuit-trump.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/28/podcasts/the-headlines/king-charles-trump-air
 **Connections Companion No. 1,053**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, April 29, 2026.`\
 https://www.nytimes.com/2026/04/28/crosswords/connections-companion-1053.html
-
-**Strands Sidekick No. 787**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, April 29, 2026.`\
-https://www.nytimes.com/2026/04/28/crosswords/strands-sidekick-787.html
-
-**Wordle Review No. 1,775**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, April 29, 2026.`\
-https://www.nytimes.com/2026/04/28/crosswords/wordle-review-1775.html
 
