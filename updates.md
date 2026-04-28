@@ -1,3 +1,11 @@
+**Late Night Downloads the White House Correspondents’ Dinner**\
+`The event “was supposed to be an evening of fun and merriment,” Jon Stewart said, “until, like most things in America, it was interrupted by gunfire.”`\
+https://www.nytimes.com/2026/04/28/arts/television/late-night-white-house-correspondents-dinner.html
+
+**Palabra del día: ‘analogous’**\
+`Esta palabra ha aparecido en 57 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/04/28/espanol/que-significa-analogous.html
+
 **Word of the Day: analogous**\
 `This word has appeared in 54 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/04/28/learning/word-of-the-day-analogous.html
