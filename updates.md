@@ -1,3 +1,15 @@
+**King Charles III Delivers Message of Unity to Congress**\
+`King Charles III delivered an address to a joint meeting of Congress on Tuesday, becoming only the second British monarch to do so.`\
+https://www.nytimes.com/video/us/100000010865581/king-charles-speech-congress.html
+
+**Starbucks Reports Strong Store Traffic and Rise in Quarterly Sales**\
+`The chain’s chief executive credited its turnaround plan for improved U.S. same-store sales, but said higher gas and utility costs were a concern.`\
+https://www.nytimes.com/2026/04/28/business/starbucks-quarterly-earnings.html
+
+**Severe Storms Sweep the South, With Possible Tornadoes and Large Hail**\
+`Some damage was reported in Texas in the early evening as storms were racing across the Central United States on Tuesday.`\
+https://www.nytimes.com/2026/04/28/weather/dallas-texas-hail-storms-forecast.html
+
 **Man Accuses N.Y.P.D. Detectives in Legal Filing of Brutal Assault**\
 `Timothy Brown said he had been humiliated and injured after he was punched and kicked by police during a wrongful arrest that was caught on video.`\
 https://www.nytimes.com/2026/04/28/nyregion/beating-nypd-brooklyn-narcotics-claim.html
