@@ -1,3 +1,11 @@
+**Former N.B.A. Player Pleads Guilty in Gambling Scheme**\
+`Damon Jones is among more than 30 people who were charged last fall in two sweeping indictments that targeted illegal gambling involving current and former N.B.A. players.`\
+https://www.nytimes.com/2026/04/28/nyregion/damon-jones-nba-gambling-guilty-plea.html
+
+**Trump Hosts Charles, a King and, Perhaps, His Cousin**\
+`Mr. Trump expressed delight on social media on Tuesday after a British newspaper report said he was a 15th cousin of the British monarch.`\
+https://www.nytimes.com/2026/04/28/us/trump-king-charles-cousins.html
+
 **F.C.C. Orders a Review of ABC’s Broadcast Licenses**\
 `The agency said the review was related to the network’s diversity and inclusion policies. But it came amid a fight between the president and the network’s late night host, Jimmy Kimmel.`\
 https://www.nytimes.com/2026/04/28/business/media/fcc-abc-television-kimmel.html
