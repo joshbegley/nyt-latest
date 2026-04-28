@@ -1,3 +1,31 @@
+**Nick Pope, U.F.O. Sleuth Who Chased the Truth, Dies at 60**\
+`Often likened to Agent Mulder from “The X-Files,” he worked for Britain’s defense ministry and became a leading commentator on extraterrestrial matters.`\
+https://www.nytimes.com/2026/04/28/science/nick-pope-dead.html
+
+**Hed: King Charles III and Queen Camilla Arrive at White House**\
+`King Charles III and Queen Camilla are on the second day of their state visit, when Charles will meet privately with President Trump.`\
+https://www.nytimes.com/video/us/politics/100000010867395/hed-king-charles-iii-and-queen-camilla-arrive-at-white-house.html
+
+**El presidente y la primera dama de EE. UU. exigen a la ABC que despida a Jimmy Kimmel por un chiste**\
+`La broma dirigida a Melania Trump se grabó dos días antes de la cena de corresponsales de la Casa Blanca, en la que un hombre armado intentó asaltar la gala de la prensa.`\
+https://www.nytimes.com/es/2026/04/28/espanol/estados-unidos/trump-melania-jimmy-kimmel.html
+
+**Oakland, which is playing host to the trial, is not exactly known as a tech hub.**\
+``\
+https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/oakland-which-is-playing-host-to-the-trial-is-not-exactly-known-as-a-tech-hub
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/openai-trial-opening-comments
+
+**Here’s the contentious history behind OpenAI.**\
+``\
+https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/heres-the-contentious-history-behind-openai
+
+**United Arab Emirates Says It Will Leave OPEC in Blow to Oil Cartel**\
+`The Gulf government has long complained about the group’s quotas, which officials believe unfairly limited its exports. Its departure is expected to weaken OPEC’s influence.`\
+https://www.nytimes.com/2026/04/28/world/middleeast/uae-opec.html
+
 **Civil Rights Cases Slow at Education Dept. Amid Trump’s Overhaul**\
 `Data obtained by The New York Times shows that the Education Department resolved 30 percent fewer discrimination complaints in 2025 compared with the previous year.`\
 https://www.nytimes.com/2026/04/28/us/politics/education-department-civil-rights-trump.html
