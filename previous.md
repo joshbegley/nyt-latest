@@ -1,3 +1,7 @@
+**Here’s what OpenAI’s lawyer argued in his opening statement.**\
+``\
+https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/heres-what-openais-lawyer-argued-in-his-opening-statement
+
 **Donald W. Riegle, Representative Who Switched Parties, Dies at 88**\
 `Elected to Congress in 1966 as a Republican from Michigan, he grew disenchanted with his party during the Nixon presidency and became a progressive Democratic senator.`\
 https://www.nytimes.com/2026/04/28/us/politics/donald-riegle-dead.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/28/us/politics/national-guard-deployment-memphis
 **An Art and Fashion Party for Nina Simone**\
 `Adam Pendleton and Gabriela Hearst celebrated a recent collaboration with an evening-long tribute to the legendary musician and activist.`\
 https://www.nytimes.com/2026/04/28/t-magazine/adam-pendleton-gabriela-hearst-nina-simone.html
-
-**Former N.B.A. Player Pleads Guilty in Gambling Scheme**\
-`Damon Jones is among more than 30 people who were charged last fall in two sweeping indictments that targeted illegal gambling involving current and former N.B.A. players.`\
-https://www.nytimes.com/2026/04/28/nyregion/damon-jones-nba-gambling-guilty-plea.html
 

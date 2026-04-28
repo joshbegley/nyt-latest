@@ -1,3 +1,7 @@
+**Here’s what OpenAI’s lawyer argued in his opening statement.**\
+``\
+https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/heres-what-openais-lawyer-argued-in-his-opening-statement
+
 **Donald W. Riegle, Representative Who Switched Parties, Dies at 88**\
 `Elected to Congress in 1966 as a Republican from Michigan, he grew disenchanted with his party during the Nixon presidency and became a progressive Democratic senator.`\
 https://www.nytimes.com/2026/04/28/us/politics/donald-riegle-dead.html
