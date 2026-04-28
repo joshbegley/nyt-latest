@@ -1,3 +1,7 @@
+**Canadá ofrece una nueva forma de obtener la ciudadanía**\
+`Las autoridades han abierto una vía hacia la ciudadanía para quienes puedan demostrar que tienen un antepasado nacido en Canadá. Millones de personas podrían optar a ella.`\
+https://www.nytimes.com/es/2026/04/28/espanol/mundo/canada-ciudadania.html
+
 **Father and Daughter Who Sold Fake Warhols Plead Guilty in Forgery Scheme**\
 `Erwin Bankowski and Karolina Bankowska, of New Jersey, commissioned a Polish artist to create counterfeit artworks that sold for a total of over $2 million.`\
 https://www.nytimes.com/2026/04/28/nyregion/banksy-fakes.html
@@ -46,13 +50,13 @@ https://www.nytimes.com/2026/04/28/climate/the-epas-lost-science.html
 `A Times investigation shows how the U.S. and Canadian mints ended up buying gold that came from a Colombian drug cartel.`\
 https://www.nytimes.com/2026/04/28/world/dirty-gold-mints-opec-king-charles.html
 
-**The Banality of Evil, Again**\
-`The distinguishing feature of Cole Tomas Allen’s manifesto is its insipidity.`\
-https://www.nytimes.com/2026/04/28/opinion/whcd-shooting-trump-manifesto.html
-
 **Democrats Pitch ‘New Affordability,’ Looking to Widen Midterm Appeal**\
 `Progressives who expect their party to take control of Congress are putting forth a slate of bills aimed at helping lower costs for Americans, financed by tax increases on the wealthy.`\
 https://www.nytimes.com/2026/04/28/us/politics/democrats-affordability-midterms.html
+
+**The Banality of Evil, Again**\
+`The distinguishing feature of Cole Tomas Allen’s manifesto is its insipidity.`\
+https://www.nytimes.com/2026/04/28/opinion/whcd-shooting-trump-manifesto.html
 
 **Deal Talks Between Pernod and Maker of Jack Daniel’s Falter**\
 `The collapse of the talks could pave the way for another spirits company, Sazerac, to open negotiations with Brown-Forman.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/28/health/depression-at-home-brain-stimulation-f
 **6 Takeaways From Our Taylor Swift Interview**\
 `Swift spoke with The New York Times about confessional songwriting, the inspiration behind some of her biggest hits and a writing quirk she can’t stand.`\
 https://www.nytimes.com/2026/04/28/arts/music/taylor-swift-interview-takeaways.html
-
-**Chanel Stages a Met Gala Curtain Raiser**\
-`The label’s cruise show in Biarritz, France, offered a preview of what we may see on Monday.`\
-https://www.nytimes.com/article/2026-cruise-runway-shows-fashion-review.html
 

@@ -1,3 +1,7 @@
+**Father and Daughter Who Sold Fake Warhols Plead Guilty in Forgery Scheme**\
+`Erwin Bankowski and Karolina Bankowska, of New Jersey, commissioned a Polish artist to create counterfeit artworks that sold for a total of over $2 million.`\
+https://www.nytimes.com/2026/04/28/nyregion/banksy-fakes.html
+
 **The British public have taken a dim view of the king’s visit.**\
 ``\
 https://www.nytimes.com/live/2026/04/28/us/king-charles-us-visit-trump/uk-public-opinion

@@ -1,3 +1,7 @@
+**Father and Daughter Who Sold Fake Warhols Plead Guilty in Forgery Scheme**\
+`Erwin Bankowski and Karolina Bankowska, of New Jersey, commissioned a Polish artist to create counterfeit artworks that sold for a total of over $2 million.`\
+https://www.nytimes.com/2026/04/28/nyregion/banksy-fakes.html
+
 **The British public have taken a dim view of the king’s visit.**\
 ``\
 https://www.nytimes.com/live/2026/04/28/us/king-charles-us-visit-trump/uk-public-opinion
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/28/arts/music/taylor-swift-interview-takeaways.h
 **Chanel Stages a Met Gala Curtain Raiser**\
 `The label’s cruise show in Biarritz, France, offered a preview of what we may see on Monday.`\
 https://www.nytimes.com/article/2026-cruise-runway-shows-fashion-review.html
-
-**How to Prepare for a Longer Life**\
-`We asked Times readers to share their best advice for a safe, satisfying and financially comfortable life — no matter how old you are or how long you live.`\
-https://www.nytimes.com/2026/04/28/your-money/longevity-finances-reader-responses.html
 
