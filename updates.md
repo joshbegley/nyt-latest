@@ -1,3 +1,7 @@
+**Canadá ofrece una nueva forma de obtener la ciudadanía**\
+`Las autoridades han abierto una vía hacia la ciudadanía para quienes puedan demostrar que tienen un antepasado nacido en Canadá. Millones de personas podrían optar a ella.`\
+https://www.nytimes.com/es/2026/04/28/espanol/mundo/canada-ciudadania.html
+
 **Father and Daughter Who Sold Fake Warhols Plead Guilty in Forgery Scheme**\
 `Erwin Bankowski and Karolina Bankowska, of New Jersey, commissioned a Polish artist to create counterfeit artworks that sold for a total of over $2 million.`\
 https://www.nytimes.com/2026/04/28/nyregion/banksy-fakes.html
