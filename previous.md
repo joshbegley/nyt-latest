@@ -1,3 +1,7 @@
+**Treasury Dept. Issues More Sanctions on Iranian Oil Exports**\
+`The measures aim to crack down on Iran’s shadow banking system and Chinese purchases of Iranian oil.`\
+https://www.nytimes.com/2026/04/28/us/politics/treasury-iran-oil-sanctions.html
+
 **More than 120 foreign leaders have addressed Congress. Not many have been kings.**\
 ``\
 https://www.nytimes.com/live/2026/04/28/us/king-charles-us-visit-trump/more-than-120-foreign-leaders-have-addressed-congress-not-many-have-been-kings
@@ -30,8 +34,8 @@ https://www.nytimes.com/2026/04/28/business/opec-oil-cartel-prices.html
 `In Washington and in federal court, the center is arguing that its planned two-year closure is crucial. Critics say it’s a result of declining attendance and fleeing artists.`\
 https://www.nytimes.com/2026/04/28/arts/kennedy-center-closure-trump.html
 
-**Mexico Says 4 Foreigners Were at Cartel Raid Where Two C.I.A. Officers Died**\
-`Mexican officials revealed that four foreigners — not two — were present during a counter-drug operation in northern Mexico where a crash killed two men later identified as C.I.A. officers.`\
+**Mexico Says 4 Foreigners Were at Cartel Raid Where 2 C.I.A. Officers Died**\
+`Mexican officials revealed that four foreigners — not two — were present during a counterdrug operation in northern Mexico where a crash killed two men later identified as C.I.A. officers.`\
 https://www.nytimes.com/2026/04/28/world/americas/mexico-crash-cia-officers.html
 
 **Supreme Court Appears Skeptical of Falun Gong Lawsuit Against Tech Company**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/28/business/media/fcc-abc-television-kimmel.html
 **Kimmel vs. Trump: What’s Going On Here?**\
 `The president and first lady took exception to a joke. Jimmy Kimmel defended it.`\
 https://www.nytimes.com/2026/04/28/arts/television/jimmy-kimmel-donald-trump-feud.html
-
-**Stay Put or Travel Abroad? Americans Are Rethinking Their Summer Travel Plans.**\
-`Faced with geopolitical instability, economic uncertainty and rising airfares, many travelers are changing destinations or canceling their trips entirely.`\
-https://www.nytimes.com/2026/04/28/travel/summer-international-travel-us-iran-war.html
 

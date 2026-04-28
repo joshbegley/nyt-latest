@@ -1,3 +1,11 @@
+**Treasury Dept. Issues More Sanctions on Iranian Oil Exports**\
+`The measures aim to crack down on Iran’s shadow banking system and Chinese purchases of Iranian oil.`\
+https://www.nytimes.com/2026/04/28/us/politics/treasury-iran-oil-sanctions.html
+
+**Mexico Says 4 Foreigners Were at Cartel Raid Where 2 C.I.A. Officers Died**\
+`Mexican officials revealed that four foreigners — not two — were present during a counterdrug operation in northern Mexico where a crash killed two men later identified as C.I.A. officers.`\
+https://www.nytimes.com/2026/04/28/world/americas/mexico-crash-cia-officers.html
+
 **More than 120 foreign leaders have addressed Congress. Not many have been kings.**\
 ``\
 https://www.nytimes.com/live/2026/04/28/us/king-charles-us-visit-trump/more-than-120-foreign-leaders-have-addressed-congress-not-many-have-been-kings
