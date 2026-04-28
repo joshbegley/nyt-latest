@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/28/us/king-charles-us-visit-trump/heres-the-latest
+
 **The Small U.K. Agency That’s a 911 for Ships in the Strait of Hormuz**\
 `At a military base outside Portsmouth, England, a 24-hour service monitors the Persian Gulf, the Red Sea and part of the Indian Ocean, responding to distress calls.`\
 https://www.nytimes.com/2026/04/28/world/europe/ukmto-shipping-strait-hormuz.html
