@@ -1,3 +1,7 @@
+**F.C.C. Orders a Review of ABC’s Broadcast Licenses**\
+`The agency said the review was related to the network’s diversity and inclusion policies. But it came amid a fight between the president and the network’s late night host, Jimmy Kimmel.`\
+https://www.nytimes.com/2026/04/28/business/media/fcc-abc-television-kimmel.html
+
 **Kimmel vs. Trump: What’s Going On Here?**\
 `The president and first lady took exception to a joke. Jimmy Kimmel defended it.`\
 https://www.nytimes.com/2026/04/28/arts/television/jimmy-kimmel-donald-trump-feud.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/04/28/us/king-charles-us-visit-trump/the-kings
 **La guerra en Irán empieza afectar la economía de China**\
 `Las reservas estratégicas de petróleo y gas natural de China la han aislado un poco, pero su economía basada en la manufactura está empezando a tambalearse.`\
 https://www.nytimes.com/es/2026/04/28/espanol/negocios/guerra-iran-economia-china-impacto.html
-
-**Grand Jury Indicts Former N.I.H. Official**\
-`Prosecutors accused Dr. David Morens, a former adviser to Dr. Anthony S. Fauci, of hiding records related to the onset of the pandemic.`\
-https://www.nytimes.com/2026/04/28/science/david-morens-indictment.html
 
