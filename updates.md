@@ -1,3 +1,7 @@
+**F.C.C. Orders a Review of ABC’s Broadcast Licenses**\
+`The agency said the review was related to the network’s diversity and inclusion policies. But it came amid a fight between the president and the network’s late night host, Jimmy Kimmel.`\
+https://www.nytimes.com/2026/04/28/business/media/fcc-abc-television-kimmel.html
+
 **Kimmel vs. Trump: What’s Going On Here?**\
 `The president and first lady took exception to a joke. Jimmy Kimmel defended it.`\
 https://www.nytimes.com/2026/04/28/arts/television/jimmy-kimmel-donald-trump-feud.html
