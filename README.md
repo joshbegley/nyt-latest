@@ -1,3 +1,15 @@
+**Watch Live: King Charles Addresses Congress**\
+`King Charles III of Britain addresses a joint session of Congress.`\
+https://www.nytimes.com/video/us/100000010868046/watch-live-king-charles-addresses-congress.html
+
+**National Guard Can Stay in Memphis, State Appeals Court Says**\
+`The decision reversed a lower-court ruling last year that temporarily blocked the deployment.`\
+https://www.nytimes.com/2026/04/28/us/politics/national-guard-deployment-memphis-tennessee.html
+
+**An Art and Fashion Party for Nina Simone**\
+`Adam Pendleton and Gabriela Hearst celebrated a recent collaboration with an evening-long tribute to the legendary musician and activist.`\
+https://www.nytimes.com/2026/04/28/t-magazine/adam-pendleton-gabriela-hearst-nina-simone.html
+
 **Former N.B.A. Player Pleads Guilty in Gambling Scheme**\
 `Damon Jones is among more than 30 people who were charged last fall in two sweeping indictments that targeted illegal gambling involving current and former N.B.A. players.`\
 https://www.nytimes.com/2026/04/28/nyregion/damon-jones-nba-gambling-guilty-plea.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/28/world/asia/afghanistan-pakistan-university-st
 **Offbeat Obituaries Honor Loss With Levity (and Brutal Honesty)**\
 `Irreverent tributes filled with unvarnished truths and funny anecdotes, which run counter to more somber traditional obituaries, have gained attention for “how alive they feel,” a researcher said.`\
 https://www.nytimes.com/2026/04/28/us/offbeat-obituaries-brutal-honesty.html
-
-**Is the U.S. in a Politically Violent Age? What the Data and History Say**\
-`A conversation with Sean Westwood, a professor at Dartmouth who tracks political violence and Americans’ perceptions of it.`\
-https://www.nytimes.com/2026/04/28/us/politics/political-violence-data-trump-dinner-shooting.html
-
-**22 Monks Smuggled 240 Pounds of Cannabis Into Sri Lanka, Officials Say**\
-`The group of Buddhist monks were arrested on Saturday at the country’s main international airport after a trip to Thailand that the authorities said was a cover for narcotics trafficking.`\
-https://www.nytimes.com/2026/04/28/world/asia/buddhist-monks-cannabis-sri-lanka.html
-
-**Google Signs A.I. Deal With the Pentagon**\
-`The Pentagon has also signed deals for using A.I. on classified networks with OpenAI and Elon Musk’s xAI, amid a dispute with Anthropic.`\
-https://www.nytimes.com/2026/04/28/technology/google-ai-deal-pentagon.html
 
