@@ -1,3 +1,11 @@
+**Today, In Short**\
+`A “Jeopardy!” streak ends. A royal visit. And have movies gotten darker?`\
+https://www.nytimes.com/2026/04/28/briefing/today-in-short.html
+
+**G.M.’s Profit Bolstered by a $500 Million Tariff Refund**\
+`Because of a February Supreme Court decision, General Motors said it would receive refunds on some of the tariffs it had paid.`\
+https://www.nytimes.com/2026/04/28/business/general-motors-trump-tariffs.html
+
 **A Warm, Filling Salad Fit for Dinner**\
 `A substantial mix of charred broccoli, salmon and soba catapults this salad out of side territory.`\
 https://www.nytimes.com/2026/04/28/dining/a-warm-filling-salad-fit-for-dinner.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/28/us/politics/education-department-civil-rights
 **George Clooney Calls for Unity at Lincoln Center Gala**\
 `The actor, who was honored at Film at Lincoln Center’s Chaplin Award Gala, denounced political violence after the attempted assassination of President Trump.`\
 https://www.nytimes.com/2026/04/28/style/george-clooney-white-house-dinner-trump-shooting.html
-
-**Judge Says Maurene Comey Can Sue the Trump Administration for Firing Her**\
-`Ms. Comey, a former federal prosecutor who handled cases against Jeffery Epstein and Sean Combs, claimed in her suit that she was fired for political reasons.`\
-https://www.nytimes.com/2026/04/28/nyregion/maurene-comey-lawsuit-trump.html
-
-**F.B.I. Knew Civil Rights Group Informants Helped Bring Down Extremists, Lawyers Say**\
-`The Southern Poverty Law Center is planning to challenge the larger story of deceit and hypocrisy the Trump administration has been telling about its use of paid informants, court papers suggest.`\
-https://www.nytimes.com/2026/04/28/us/fbi-southern-poverty-law-center-informants.html
 

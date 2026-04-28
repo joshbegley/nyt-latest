@@ -1,3 +1,7 @@
+**This trial comes amid a growing national backlash against A.I.**\
+``\
+https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/this-trial-comes-amid-a-growing-national-backlash-against-ai
+
 **Today, In Short**\
 `A “Jeopardy!” streak ends. A royal visit. And have movies gotten darker?`\
 https://www.nytimes.com/2026/04/28/briefing/today-in-short.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-t
 **Civil Rights Cases Slow at Education Dept. Amid Trump’s Overhaul**\
 `Data obtained by The New York Times shows that the Education Department resolved 30 percent fewer discrimination complaints in 2025 compared with the previous year.`\
 https://www.nytimes.com/2026/04/28/us/politics/education-department-civil-rights-trump.html
-
-**George Clooney Calls for Unity at Lincoln Center Gala**\
-`The actor, who was honored at Film at Lincoln Center’s Chaplin Award Gala, denounced political violence after the attempted assassination of President Trump.`\
-https://www.nytimes.com/2026/04/28/style/george-clooney-white-house-dinner-trump-shooting.html
 

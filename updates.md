@@ -1,3 +1,11 @@
+**Today, In Short**\
+`A “Jeopardy!” streak ends. A royal visit. And have movies gotten darker?`\
+https://www.nytimes.com/2026/04/28/briefing/today-in-short.html
+
+**G.M.’s Profit Bolstered by a $500 Million Tariff Refund**\
+`Because of a February Supreme Court decision, General Motors said it would receive refunds on some of the tariffs it had paid.`\
+https://www.nytimes.com/2026/04/28/business/general-motors-trump-tariffs.html
+
 **A Warm, Filling Salad Fit for Dinner**\
 `A substantial mix of charred broccoli, salmon and soba catapults this salad out of side territory.`\
 https://www.nytimes.com/2026/04/28/dining/a-warm-filling-salad-fit-for-dinner.html
