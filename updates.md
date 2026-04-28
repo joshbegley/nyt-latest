@@ -1,3 +1,11 @@
+**Beneath King Charles’s Jokes and Decorum, a Subtle Rebuttal to Trump**\
+`King Charles III gently pushed back against President Trump’s attacks on Britain and NATO.`\
+https://www.nytimes.com/2026/04/28/us/politics/king-charles-trump-rebuke.html
+
+**This Time, the King’s Speech Was Full of Jokes**\
+`Charles III’s address at a joint meeting of Congress on Tuesday sprinkled well-crafted jokes among carefully chosen references to the United States and Britain’s shared history.`\
+https://www.nytimes.com/2026/04/28/us/king-charles-speech-congress.html
+
 **Canadá ofrece una nueva forma de obtener la ciudadanía**\
 `Las autoridades han abierto una vía hacia la ciudadanía para quienes puedan demostrar que tienen un antepasado nacido en Canadá. Millones de personas podrían optar a ella.`\
 https://www.nytimes.com/es/2026/04/28/espanol/mundo/canada-ciudadania.html

@@ -1,3 +1,11 @@
+**Beneath King Charles’s Jokes and Decorum, a Subtle Rebuttal to Trump**\
+`King Charles III gently pushed back against President Trump’s attacks on Britain and NATO.`\
+https://www.nytimes.com/2026/04/28/us/politics/king-charles-trump-rebuke.html
+
+**This Time, the King’s Speech Was Full of Jokes**\
+`Charles III’s address at a joint meeting of Congress on Tuesday sprinkled well-crafted jokes among carefully chosen references to the United States and Britain’s shared history.`\
+https://www.nytimes.com/2026/04/28/us/king-charles-speech-congress.html
+
 **Canadá ofrece una nueva forma de obtener la ciudadanía**\
 `Las autoridades han abierto una vía hacia la ciudadanía para quienes puedan demostrar que tienen un antepasado nacido en Canadá. Millones de personas podrían optar a ella.`\
 https://www.nytimes.com/es/2026/04/28/espanol/mundo/canada-ciudadania.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/28/us/politics/trump-passports.html
 **After Decades of Resistance, a Casino Finally Opens in New York City**\
 `As Aqueduct Racetrack winds down, Resorts World opens the first full-scale commercial casino in Queens, with live table games, dealers and cards.`\
 https://www.nytimes.com/2026/04/28/nyregion/resorts-world-queens-nyc-casino.html
-
-**Could At-Home Brain Stimulation Reduce Psychiatry’s Reliance on S.S.R.I.s?**\
-`A headset recently approved by the Food and Drug Administration uses a weak electric current to shock the brain. Some researchers hope it could challenge the current pill-centric paradigm.`\
-https://www.nytimes.com/2026/04/28/health/depression-at-home-brain-stimulation-fda.html
-
-**6 Takeaways From Our Taylor Swift Interview**\
-`Swift spoke with The New York Times about confessional songwriting, the inspiration behind some of her biggest hits and a writing quirk she can’t stand.`\
-https://www.nytimes.com/2026/04/28/arts/music/taylor-swift-interview-takeaways.html
 
