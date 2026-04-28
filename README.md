@@ -1,3 +1,7 @@
+**Man Accuses N.Y.P.D. Detectives in Legal Filing of Brutal Assault**\
+`Timothy Brown said he had been humiliated and injured after he was punched and kicked by police during a wrongful arrest that was caught on video.`\
+https://www.nytimes.com/2026/04/28/nyregion/beating-nypd-brooklyn-narcotics-claim.html
+
 **Beneath King Charles’s Jokes and Decorum, a Subtle Rebuttal to Trump**\
 `King Charles III gently pushed back against President Trump’s attacks on Britain and NATO.`\
 https://www.nytimes.com/2026/04/28/us/politics/king-charles-trump-rebuke.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/28/business/pernod-brown-forman-talks-jack-danie
 **The Latest Place Trump’s Face Will Appear: Some U.S. Passports**\
 `The department said it planned to release “a limited number of specially designed” U.S. passports that feature a picture of the president to commemorate the country’s 250th anniversary in July.`\
 https://www.nytimes.com/2026/04/28/us/politics/trump-passports.html
-
-**After Decades of Resistance, a Casino Finally Opens in New York City**\
-`As Aqueduct Racetrack winds down, Resorts World opens the first full-scale commercial casino in Queens, with live table games, dealers and cards.`\
-https://www.nytimes.com/2026/04/28/nyregion/resorts-world-queens-nyc-casino.html
 
