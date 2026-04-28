@@ -1,3 +1,7 @@
+**How to Prepare for a Longer Life**\
+`We asked Times readers to share their best advice for a safe, satisfying and financially comfortable life — no matter how old you are or how long you live.`\
+https://www.nytimes.com/2026/04/28/your-money/longevity-finances-reader-responses.html
+
 **Here’s what OpenAI’s lawyer argued in his opening statement.**\
 ``\
 https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/heres-what-openais-lawyer-argued-in-his-opening-statement
