@@ -1,3 +1,19 @@
+**Despite Trade Turmoil, Canada’s Economy Is Expected to Grow and Deficit to Fall**\
+`Prime Minister Mark Carney’s budget update keeps to his path of diversifying away from the United States.`\
+https://www.nytimes.com/2026/04/28/world/canada/carney-budget-update.html
+
+**Very Large Hail Expected in Dallas as Severe Storms Sweep the South**\
+`Storms were racing across the Central United States on Tuesday.`\
+https://www.nytimes.com/2026/04/28/weather/dallas-texas-hail-storms-forecast.html
+
+**Soldier Pleads Not Guilty in $400,000 Betting Case Over Maduro’s Ouster**\
+`Master Sergeant Gannon Ken Van Dyke appeared in federal court in Manhattan, where he was accused of using classified information about Nicolás Maduro’s ouster to make money on Polymarket.`\
+https://www.nytimes.com/2026/04/28/nyregion/polymarket-special-forces-maduro-bets.html
+
+**‘Dances With Wolves’ Actor Is Sentenced to Life in Prison**\
+`Nathan Chasing Horse had been convicted of charges including the sexual assault of women and girls and the possession of child sexual abuse imagery.`\
+https://www.nytimes.com/2026/04/28/movies/nathan-chasing-horse-dances-with-wolves-sentenced.html
+
 **The E.P.A.’s Lost Science**\
 `The agency’s prestigious research office is being dismantled by the Trump administration, a plan to dam the Bering Strait and more climate news.`\
 https://www.nytimes.com/2026/04/28/climate/the-epas-lost-science.html

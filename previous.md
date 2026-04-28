@@ -1,3 +1,19 @@
+**Despite Trade Turmoil, Canada’s Economy Is Expected to Grow and Deficit to Fall**\
+`Prime Minister Mark Carney’s budget update keeps to his path of diversifying away from the United States.`\
+https://www.nytimes.com/2026/04/28/world/canada/carney-budget-update.html
+
+**Very Large Hail Expected in Dallas as Severe Storms Sweep the South**\
+`Storms were racing across the Central United States on Tuesday.`\
+https://www.nytimes.com/2026/04/28/weather/dallas-texas-hail-storms-forecast.html
+
+**Soldier Pleads Not Guilty in $400,000 Betting Case Over Maduro’s Ouster**\
+`Master Sergeant Gannon Ken Van Dyke appeared in federal court in Manhattan, where he was accused of using classified information about Nicolás Maduro’s ouster to make money on Polymarket.`\
+https://www.nytimes.com/2026/04/28/nyregion/polymarket-special-forces-maduro-bets.html
+
+**‘Dances With Wolves’ Actor Is Sentenced to Life in Prison**\
+`Nathan Chasing Horse had been convicted of charges including the sexual assault of women and girls and the possession of child sexual abuse imagery.`\
+https://www.nytimes.com/2026/04/28/movies/nathan-chasing-horse-dances-with-wolves-sentenced.html
+
 **The E.P.A.’s Lost Science**\
 `The agency’s prestigious research office is being dismantled by the Trump administration, a plan to dam the Bering Strait and more climate news.`\
 https://www.nytimes.com/2026/04/28/climate/the-epas-lost-science.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/28/world/europe/britain-iran-ambassador-summons.
 **Treasury Dept. Issues More Sanctions on Iranian Oil Exports**\
 `The measures aim to crack down on Iran’s shadow banking system and Chinese purchases of Iranian oil.`\
 https://www.nytimes.com/2026/04/28/us/politics/treasury-iran-oil-sanctions.html
-
-**More than 120 foreign leaders have addressed Congress. Not many have been kings.**\
-``\
-https://www.nytimes.com/live/2026/04/28/us/king-charles-us-visit-trump/more-than-120-foreign-leaders-have-addressed-congress-not-many-have-been-kings
-
-**Why does Elon Musk talk so much about saving humanity?**\
-``\
-https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/why-does-elon-musk-talk-so-much-about-saving-humanity
-
-**Trump Welcomes King Charles to White House**\
-`President Trump and the first lady, Melania Trump, welcomed King Charles III and Queen Camilla to the White House with a 21-gun salute and a ceremony known as reviewing the troops.`\
-https://www.nytimes.com/video/us/100000010868251/trump-king-charles-white-house-visit.html
-
-**For the Third Time, a Former Actress Testifies Against Harvey Weinstein**\
-`Jessica Mann testified, for the third time in six years, about the day she says Mr. Weinstein raped her in a Midtown Manhattan hotel.`\
-https://www.nytimes.com/2026/04/28/nyregion/jessica-mann-weinstein-testimony.html
 
