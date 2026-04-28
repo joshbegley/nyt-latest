@@ -1,3 +1,7 @@
+**OpenAI Trial Starts With Two Very Different Tales of a Company’s Early Years**\
+`In the trial’s first day of testimony, Elon Musk said greed led co-founder Sam Altman to pull the A.I. lab away from its nonprofit roots. OpenAI says that’s nonsense.`\
+https://www.nytimes.com/2026/04/28/technology/openai-trial-elon-musk-sam-altman.html
+
 **King Charles Stresses Significance of U.S.-U.K. Ties**\
 `Also, James Comey, the former F.B.I. director, is indicted. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/04/28/briefing/king-charles-speech-congress-james-comey.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/28/your-money/longevity-finances-reader-response
 **Here’s what OpenAI’s lawyer argued in his opening statement.**\
 ``\
 https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/heres-what-openais-lawyer-argued-in-his-opening-statement
-
-**Donald W. Riegle, Representative Who Switched Parties, Dies at 88**\
-`Elected to Congress in 1966 as a Republican from Michigan, he grew disenchanted with his party during the Nixon presidency and became a progressive Democratic senator.`\
-https://www.nytimes.com/2026/04/28/us/politics/donald-riegle-dead.html
 
