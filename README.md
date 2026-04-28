@@ -1,3 +1,11 @@
+**Google Signs A.I. Deal With the Pentagon**\
+`The Pentagon has also signed deals for using A.I. on classified networks with OpenAI and Elon Musk’s xAI, amid a dispute with Anthropic.`\
+https://www.nytimes.com/2026/04/28/technology/google-ai-deal-pentagon.html
+
+**The king’s visit comes amid foreign policy disagreements with the United States.**\
+``\
+https://www.nytimes.com/live/2026/04/28/us/king-charles-us-visit-trump/the-kings-visit-comes-amid-foreign-policy-disagreements-with-the-united-states
+
 **La guerra en Irán empieza afectar la economía de China**\
 `Las reservas estratégicas de petróleo y gas natural de China la han aislado un poco, pero su economía basada en la manufactura está empezando a tambalearse.`\
 https://www.nytimes.com/es/2026/04/28/espanol/negocios/guerra-iran-economia-china-impacto.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/28/business/general-motors-trump-tariffs.html
 **A Warm, Filling Salad Fit for Dinner**\
 `A substantial mix of charred broccoli, salmon and soba catapults this salad out of side territory.`\
 https://www.nytimes.com/2026/04/28/dining/a-warm-filling-salad-fit-for-dinner.html
-
-**After an Assassination Attempt, a Grim Political Math Sets In**\
-`Assassination attempts against sitting presidents have tended to compound their political problems and isolate them from the public.`\
-https://www.nytimes.com/2026/04/28/opinion/president-assassination-politics.html
-
-**California 22nd Congressional District 2026: Latest Polls**\
-`Track the latest polls in California's 22nd Congressional District.`\
-https://www.nytimes.com/interactive/polls/california-us-house-22-polls-2026.html
 
