@@ -1,3 +1,11 @@
+**Jamie Ding’s ‘Jeopardy’ Sweaters Made Him a Style Champion**\
+`Ding’s approach to dressing, with his spectacular spectrum of sweaters, suited a contestant who remained ice-cube calm as he climbed up the show’s leaderboard.`\
+https://www.nytimes.com/2026/04/27/style/jamie-ding-jeopardy-sweaters.html
+
+**A Humble ‘Jeopardy!’ Champ Ends His Run**\
+`Jamie Ding, a self-described “faceless bureaucrat” from New Jersey, became a TV sensation during his 31-game winning streak.`\
+https://www.nytimes.com/2026/04/27/style/jeopardy-streak-jamie-ding.html
+
 **House Republican Makes His First Statement About Mysterious Absence**\
 `Representative Thomas Kean Jr. of New Jersey, who has missed nearly two months of votes in Washington, said he expected to fully recover from a “personal medical issue” but gave no other details.`\
 https://www.nytimes.com/2026/04/27/nyregion/kean-new-jersey-house-absence.html
