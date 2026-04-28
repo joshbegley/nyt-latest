@@ -1,9 +1,13 @@
+**F.B.I. Searches Businesses Around Minneapolis as Part of Fraud Inquiry**\
+`Investigators obtained 22 search warrants to collect evidence as part of a fraud investigation in a state that has become a top concern for the Trump administration.`\
+https://www.nytimes.com/2026/04/28/us/fbi-minneapolis-fraud-investigation.html
+
 **Luxury Yacht Linked to Russian Oligarch Passes Through Strait of Hormuz**\
 `The Nord, a 464-foot vessel, appears to be tied to Aleksei A. Mordashov, a Russian steel mogul who is under American and European sanctions.`\
 https://www.nytimes.com/2026/04/28/world/middleeast/yacht-strait-hormuz-russia-oligarch.html
 
-**United Arab Emirates Says It Will Leave OPEC in Major Move**\
-`The Gulf government has long complained about the oil cartel’s quotas, which officials believe unfairly limited their exports.`\
+**In Major Move, United Arab Emirates Says It Will Leave OPEC**\
+`The Gulf government has long complained about the oil cartel’s quotas, which officials believe unfairly limited its exports.`\
 https://www.nytimes.com/2026/04/28/world/middleeast/uae-opec.html
 
 **Epstein Scandal Looms Over King Charles’s U.S. Visit**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/28/espanol/america-latina/cuba-indemnizacion-
 **Political Campaigns Have No Idea What’s About to Hit Them**\
 `Social media helped put Trump over the top. What’s A.I. going to do to us?`\
 https://www.nytimes.com/2026/04/28/opinion/political-campaigns-artificial-intelligence.html
-
-**Constance Zimmer Honors Both Old and New in her Los Angeles Home**\
-`Inside her Los Feliz home in the hills, the ‘Love Story’ actress showcases memories, mugs and mustaches.`\
-https://www.nytimes.com/interactive/2026/04/28/realestate/constance-zimmer-house-tour.html
 
