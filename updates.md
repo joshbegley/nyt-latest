@@ -1,3 +1,11 @@
+**Judge Says Maurene Comey Can Sue the Trump Administration for Firing Her**\
+`Ms. Comey, a former federal prosecutor who handled cases against Jeffery Epstein and Sean Combs, claimed in her suit that she was fired for political reasons.`\
+https://www.nytimes.com/2026/04/28/nyregion/maurene-comey-lawsuit-trump.html
+
+**F.B.I. Knew Civil Rights Group Informants Helped Bring Down Extremists, Lawyers Say**\
+`The Southern Poverty Law Center is planning to challenge the larger story of deceit and hypocrisy the Trump administration has been telling about its use of paid informants, court papers suggest.`\
+https://www.nytimes.com/2026/04/28/us/fbi-southern-poverty-law-center-informants.html
+
 **¿Qué es el Estatus de Protección Temporal?**\
 `Diseñado para ayudar a las personas procedentes de países con problemas a permanecer y trabajar en Estados Unidos, el programa humanitario ha estado bajo la mira del gobierno de Trump.`\
 https://www.nytimes.com/es/2026/04/28/espanol/estados-unidos/tps-que-es.html
