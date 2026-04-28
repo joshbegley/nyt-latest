@@ -1,3 +1,11 @@
+**For the Third Time, a Former Actress Testifies Against Harvey Weinstein**\
+`Jessica Mann testified, for the third time in six years, about the day she says Mr. Weinstein raped her in a Midtown Manhattan hotel.`\
+https://www.nytimes.com/2026/04/28/nyregion/jessica-mann-weinstein-testimony.html
+
+**Amid Iran War and Tensions with Neighbors, U.A.E. Goes Its Own Way**\
+`The United Arab Emirates’ decision to leave OPEC has rocked the region, underscoring how the country, at odds with Saudi Arabia, is increasingly charting its own course.`\
+https://www.nytimes.com/2026/04/28/world/middleeast/united-arab-emirates-leaves-opec.html
+
 **‘¿También tú, Bruto?’ Entendiendo el conflicto entre Elon Musk y Sam Altman**\
 `La demanda de Musk contra Altman y OpenAI demuestra que la codicia total es el rasgo definitorio de Silicon Valley.`\
 https://www.nytimes.com/es/2026/04/28/espanol/negocios/elon-musks-sam-altman-demanda.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/28/us/politics/appeals-court-trump-detention.htm
 **Trump Administration Secures New Indictment Against Comey**\
 `The new case stems from a photograph of seashells on a North Carolina beach.`\
 https://www.nytimes.com/2026/04/28/us/politics/james-comey-indictment.html
-
-**Prisoner Swap in Eastern Europe Frees 10, Including Accused Spies**\
-`Multiple countries took part in the exchange of prisoners, including a well-known journalist released to Poland, as the Trump administration’s outreach to Belarus continued to pay dividends.`\
-https://www.nytimes.com/2026/04/28/world/europe/belarus-poland-prisoner-swap-trump.html
-
-**Here Are the Countries and Products Subject to Tariffs Now**\
-`President Trump ramped up his tariff campaign, one day after the Supreme Court invalidated a large chunk of duties he had previously imposed on most of the world’s imports.`\
-https://www.nytimes.com/interactive/2026/business/economy/trump-tariff-tracker.html
 

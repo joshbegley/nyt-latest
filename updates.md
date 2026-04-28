@@ -1,3 +1,15 @@
+**‘¿También tú, Bruto?’ Entendiendo el conflicto entre Elon Musk y Sam Altman**\
+`La demanda de Musk contra Altman y OpenAI demuestra que la codicia total es el rasgo definitorio de Silicon Valley.`\
+https://www.nytimes.com/es/2026/04/28/espanol/negocios/elon-musks-sam-altman-demanda.html
+
+**What Is OPEC, and How Does It Operate?**\
+`The group of oil-producing countries supplied more than 25 percent of the world’s oil before the war in Iran. Its members have influenced energy markets through the years.`\
+https://www.nytimes.com/2026/04/28/business/opec-oil-cartel-prices.html
+
+**Kennedy Center Works to Make the Case That Repairs Are Urgent**\
+`In Washington and in federal court, the center is arguing that its planned two-year closure is crucial. Critics say it’s a result of declining attendance and fleeing artists.`\
+https://www.nytimes.com/2026/04/28/arts/kennedy-center-closure-trump.html
+
 **Mexico Says 4 Foreigners Were at Cartel Raid Where Two C.I.A. Officers Died**\
 `Mexican officials revealed that four foreigners — not two — were present during a counter-drug operation in northern Mexico where a crash killed two men later identified as C.I.A. officers.`\
 https://www.nytimes.com/2026/04/28/world/americas/mexico-crash-cia-officers.html
