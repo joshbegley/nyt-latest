@@ -1,3 +1,23 @@
+**‘They Said A.I. Saved Me’: How South Korea Is Checking on Its Seniors**\
+`In the world’s fastest aging society, artificial intelligence is being used to make care calls to older adults who live alone and to fight dementia.`\
+https://www.nytimes.com/2026/04/28/world/asia/korea-ai-seniors-dementia.html
+
+**In Iran, Cheetah Sightings Offer Rare Spots of Hope Amid War**\
+`Conservationists say they have recorded several new adult and cub Asiatic cheetahs, a critically endangered subspecies found only in Iran.`\
+https://www.nytimes.com/2026/04/28/world/middleeast/iran-cheetah-sightings-war.html
+
+**Un parto libre la puso a ella y a su bebé en grave peligro**\
+`Los promotores del parto libre rechazan cualquier tipo de intervención médica durante el embarazo o el parto. El movimiento ha sido tendencia en las redes sociales, pero sus críticos advierten de los graves riesgos que esta práctica conlleva.`\
+https://www.nytimes.com/es/2026/04/28/espanol/ciencia-y-tecnologia/parto-libre-embarazo-riesgo.html
+
+**Corrections: April 28, 2026**\
+`Corrections that appeared in print on Tuesday, April 28, 2026.`\
+https://www.nytimes.com/2026/04/28/pageoneplus/corrections-april-28-2026.html
+
+**Quote of the Day: A Disquieting Political Routine Of Gunfire and Death Threats**\
+`Quotation of the day for Tuesday, April 28, 2026.`\
+https://www.nytimes.com/2026/04/27/pageoneplus/quote-of-the-day-a-disquieting-political-routine-of-gunfire-and-death-threats.html
+
 **British Embassy Hosts Royal Couple, and a Few Hundred More, at Garden Party**\
 `King Charles III and Queen Camilla gathered with Washington’s famous and not so famous for an off-the-record evening.`\
 https://www.nytimes.com/2026/04/27/us/politics/british-embassy-hosts-royal-couple-and-a-few-hundred-more-at-garden-party.html
