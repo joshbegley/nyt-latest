@@ -1,5 +1,9 @@
 **A Brooch, Teaspoons and More: The King, Queen and the Trumps Trade Gifts**\
 `King Charles III gave President Trump a framed, high-quality reproduction of the 1879 design plans for the Resolute Desk, which is still in the Oval Office.`\
+https://www.nytimes.com/2026/04/28/us/trump-king-charles-visit-gifts.html
+
+**A Brooch, Teaspoons and More: The King, Queen and the Trumps Trade Gifts**\
+`King Charles III gave President Trump a framed, high-quality reproduction of the 1879 design plans for the Resolute Desk, which is still in the Oval Office.`\
 https://www.nytimes.com/2026/04/28/us/president-trump-king-charles-gifts.html
 
 **Trump Tests the Limits of His Most Faithful Supporters**\

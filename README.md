@@ -1,3 +1,11 @@
+**Here Are the Countries and Products Subject to Tariffs Now**\
+`President Trump ramped up his tariff campaign, one day after the Supreme Court invalidated a large chunk of duties he had previously imposed on most of the world’s imports.`\
+https://www.nytimes.com/interactive/2026/business/economy/trump-tariff-tracker.html
+
+**Iraq’s Prime Minister-Designate Thrust Into U.S.-Iran Power Struggle**\
+`Ali al-Zaidi, a political unknown, has been tasked with forming a new coalition government. Now, he must grapple with growing U.S. pressure to curb Iranian influence over Iraq.`\
+https://www.nytimes.com/2026/04/28/world/middleeast/iraq-ali-al-zaidi.html
+
 **A Brooch, Teaspoons and More: The King, Queen and the Trumps Trade Gifts**\
 `King Charles III gave President Trump a framed, high-quality reproduction of the 1879 design plans for the Resolute Desk, which is still in the Oval Office.`\
 https://www.nytimes.com/2026/04/28/us/trump-king-charles-visit-gifts.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/28/technology/key-players-openai-trial.html
 **Fashion Can’t Get Over Michael Jackson**\
 `With a new biopic crushing at the box office, a reflection on the industry’s selective memory around MJ. Plus, cowboy Crocs.`\
 https://www.nytimes.com/2026/04/28/style/michael-jackson-fashion-biopic.html
-
-**‘Running Point’ Is ‘The Office’ Meets the Lakers**\
-`The Netflix comedy is produced by the Lakers executive Jeanie Buss and based loosely on her life. Season 2 arrives as both she and the team are in flux.`\
-https://www.nytimes.com/2026/04/28/arts/television/running-point-netflix.html
-
-**California 48th Congressional District 2026: Latest Polls**\
-`Track the latest polls in California's 48th Congressional District.`\
-https://www.nytimes.com/interactive/polls/california-us-house-48-polls-2026.html
 
