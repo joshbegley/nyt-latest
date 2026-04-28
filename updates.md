@@ -1,3 +1,15 @@
+**Man Pleads Guilty to Planning Attack at Taylor Swift Concert in Vienna**\
+`Austrian prosecutors said the man plotted in 2024 to set off a bomb outside the concert, which was later canceled. He and another man still face separate charges.`\
+https://www.nytimes.com/2026/04/28/world/europe/taylor-swift-austria-guilty-plea.html
+
+**Read the Decision Allowing Maurene Comey’s Lawsuit to Proceed**\
+`Ms. Comey, a former federal prosecutor who handled cases against Jeffery Epstein and Sean Combs, claimed in her suit that she was fired for political reasons.`\
+https://www.nytimes.com/interactive/2026/04/28/nyregion/comey-lawsuit-decision.html
+
+**First Fully Loaded L.N.G. Tanker Since War Began Appears to Have Crossed the Strait**\
+`Liquefied natural gas transit has been effectively halted. A ship managed by Abu Dhabi’s state oil company managed to cross, said Kpler, a maritime data firm.`\
+https://www.nytimes.com/2026/04/28/business/iran-war-strait-of-hormuz-ship-crossing.html
+
 **Elon Musk Assails Sam Altman on Social Media Before OpenAI Trial**\
 `Mr. Musk’s posts on X have pushed his narrative that OpenAI has lost its way.`\
 https://www.nytimes.com/2026/04/28/technology/elon-musk-social-posts-sam-altman-openai.html

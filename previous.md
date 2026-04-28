@@ -1,3 +1,15 @@
+**Man Pleads Guilty to Planning Attack at Taylor Swift Concert in Vienna**\
+`Austrian prosecutors said the man plotted in 2024 to set off a bomb outside the concert, which was later canceled. He and another man still face separate charges.`\
+https://www.nytimes.com/2026/04/28/world/europe/taylor-swift-austria-guilty-plea.html
+
+**Read the Decision Allowing Maurene Comey’s Lawsuit to Proceed**\
+`Ms. Comey, a former federal prosecutor who handled cases against Jeffery Epstein and Sean Combs, claimed in her suit that she was fired for political reasons.`\
+https://www.nytimes.com/interactive/2026/04/28/nyregion/comey-lawsuit-decision.html
+
+**First Fully Loaded L.N.G. Tanker Since War Began Appears to Have Crossed the Strait**\
+`Liquefied natural gas transit has been effectively halted. A ship managed by Abu Dhabi’s state oil company managed to cross, said Kpler, a maritime data firm.`\
+https://www.nytimes.com/2026/04/28/business/iran-war-strait-of-hormuz-ship-crossing.html
+
 **Children at Risk as Measles Cases Rise**\
 `“I would not wish measles upon my fiercest enemy,” a reader writes of the recent resurgence.`\
 https://www.nytimes.com/2026/04/28/opinion/letters/measles-children.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/video/us/politics/100000010867395/hed-king-charles-iii-a
 **El presidente y la primera dama de EE. UU. exigen a la ABC que despida a Jimmy Kimmel por un chiste**\
 `La broma dirigida a Melania Trump se grabó dos días antes de la cena de corresponsales de la Casa Blanca, en la que un hombre armado intentó asaltar la gala de la prensa.`\
 https://www.nytimes.com/es/2026/04/28/espanol/estados-unidos/trump-melania-jimmy-kimmel.html
-
-**Oakland, which is playing host to the trial, is not exactly known as a tech hub.**\
-``\
-https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/oakland-which-is-playing-host-to-the-trial-is-not-exactly-known-as-a-tech-hub
-
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/openai-trial-opening-comments
-
-**Here’s the contentious history behind OpenAI.**\
-``\
-https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/heres-the-contentious-history-behind-openai
 
