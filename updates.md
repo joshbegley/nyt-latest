@@ -1,4 +1,12 @@
 **¿Qué es el Estatus de Protección Temporal?**\
+`Diseñado para ayudar a las personas procedentes de países con problemas a permanecer y trabajar en Estados Unidos, el programa humanitario ha estado bajo la mira del gobierno de Trump.`\
+https://www.nytimes.com/es/2026/04/28/espanol/estados-unidos/tps-que-es.html
+
+**United Arab Emirates Says It Will Leave OPEC in Blow to Oil Cartel**\
+`The Gulf government has long complained about the group’s quotas, which officials believe unfairly limited its exports.`\
+https://www.nytimes.com/2026/04/28/world/middleeast/uae-opec.html
+
+**¿Qué es el Estatus de Protección Temporal?**\
 `Designed to help people from troubled nations stay and work in the United States, T.P.S. has been a target of the Trump administration.`\
 https://www.nytimes.com/es/2026/04/28/espanol/estados-unidos/tps-que-es.html
 
