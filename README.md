@@ -1,3 +1,11 @@
+**Hoping the Last Check Bounces … and Other Financial Approaches to a Long Life**\
+`Americans are increasingly dealing with a dilemma: How to balance a long life with having enough money to live it happily.`\
+https://www.nytimes.com/2026/04/28/your-money/longevity-spending-finances.html
+
+**Military Quietly Accelerates Boat Strikes, Deploying More Aircraft**\
+`The military has increased the number of secret fixed-wing attack aircraft and armed MQ-9 Reaper drones, according to two people familiar with the matter.`\
+https://www.nytimes.com/2026/04/28/us/politics/us-boat-strikes.html
+
 **Here Are the Key Players in the OpenAI Trial**\
 `Elon Musk, Sam Altman and several other key artificial intelligence industry figures are slated to testify in the trial, which is expected to last several weeks.`\
 https://www.nytimes.com/2026/04/28/technology/key-players-openai-trial.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/28/technology/elon-musk-social-posts-sam-altman-
 **Filing a Financial Aid Appeal? You May Not Get an Answer by May 1.**\
 `Northeastern University is behind in responding to appeals this year. Keep asking for a better deal — at any school — and more time to make up your mind.`\
 https://www.nytimes.com/2026/04/28/your-money/college-financial-aid-appeal-deadline.html
-
-**What are Elon Musk’s claims against Altman and OpenAI?**\
-``\
-https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/what-are-elon-musks-claims-against-altman-and-openai
-
-**California 14th Congressional District 2026: Latest Polls**\
-`Track the latest polls in California's 14th Congressional District.`\
-https://www.nytimes.com/interactive/polls/california-us-house-14-polls-2026.html
 

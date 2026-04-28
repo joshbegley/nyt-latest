@@ -1,3 +1,11 @@
+**Here Are the Key Players in the OpenAI Trial**\
+`Elon Musk, Sam Altman and several other key artificial intelligence industry figures are slated to testify in the trial, which is expected to last several weeks.`\
+https://www.nytimes.com/2026/04/28/technology/key-players-openai-trial.html
+
+**Fashion Can’t Get Over Michael Jackson**\
+`With a new biopic crushing at the box office, a reflection on the industry’s selective memory around MJ. Plus, cowboy Crocs.`\
+https://www.nytimes.com/2026/04/28/style/michael-jackson-fashion-biopic.html
+
 **‘Running Point’ Is ‘The Office’ Meets the Lakers**\
 `The Netflix comedy is produced by the Lakers executive Jeanie Buss and based loosely on her life. Season 2 arrives as both she and the team are in flux.`\
 https://www.nytimes.com/2026/04/28/arts/television/running-point-netflix.html
