@@ -1,3 +1,19 @@
+**Filing a Financial Aid Appeal? You May Not Get an Answer by May 1.**\
+`Northeastern University is behind in responding to appeals this year. Keep asking for a better deal — at any school — and more time to make up your mind.`\
+https://www.nytimes.com/2026/04/28/your-money/college-financial-aid-appeal-deadline.html
+
+**What are Elon Musk’s claims against Altman and OpenAI?**\
+``\
+https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/what-are-elon-musks-claims-against-altman-and-openai
+
+**California 14th Congressional District 2026: Latest Polls**\
+`Track the latest polls in California's 14th Congressional District.`\
+https://www.nytimes.com/interactive/polls/california-us-house-14-polls-2026.html
+
+**The Japanese Pizza Guard Is on Its Way**\
+`Pizza Studio Tamaki will bring the charred and bubbled crust of Tokyo-style Neapolitan pizza to the East Village, seafood with art in Williamsburg and more restaurant news.`\
+https://www.nytimes.com/2026/04/28/dining/nyc-restaurant-news.html
+
 **Nick Pope, U.F.O. Sleuth Who Chased the Truth, Dies at 60**\
 `Often likened to Agent Mulder from “The X-Files,” he worked for Britain’s defense ministry and became a leading commentator on extraterrestrial matters.`\
 https://www.nytimes.com/2026/04/28/science/nick-pope-dead.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/28/us/fbi-minneapolis-fraud-investigation.html
 **Luxury Yacht Linked to Russian Oligarch Passes Through Strait of Hormuz**\
 `The Nord, a 464-foot vessel, appears to be tied to Aleksei A. Mordashov, a Russian steel mogul who is under American and European sanctions.`\
 https://www.nytimes.com/2026/04/28/world/middleeast/yacht-strait-hormuz-russia-oligarch.html
-
-**United Arab Emirates Says It Will Leave OPEC in Blow to Oil Cartel**\
-`The Gulf government has long complained about the group’s quotas, which officials believe unfairly limited its exports. Its departure is expected to weaken OPEC’s influence.`\
-https://www.nytimes.com/2026/04/28/world/middleeast/uae-opec.html
-
-**Epstein Scandal Looms Over King Charles’s U.S. Visit**\
-`The king is not planning to meet with victims of Jeffrey Epstein during his state visit because of “ongoing police inquiries” in Britain. The king’s brother was close to Mr. Epstein, a convicted sex offender.`\
-https://www.nytimes.com/2026/04/28/us/king-charles-visit-epstein.html
-
-**Is OpenAI Falling Further Behind in the A.I. Race?**\
-`The artificial intelligence giant has reportedly fallen behind on its own user and revenue targets, raising questions about its data center and I.P.O. plans`\
-https://www.nytimes.com/2026/04/28/business/dealbook/openai-misses-targets.html
-
-**Laura Linney to Return to Broadway in New David Hare Play**\
-`The Manhattan Theater Club production will bring the actress back to the stage next spring, four years after her last Broadway production.`\
-https://www.nytimes.com/2026/04/28/theater/laura-linney-montauk-broadway.html
 
