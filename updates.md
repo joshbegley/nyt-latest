@@ -1,3 +1,7 @@
+**Florida Republicans Refuse to Take Up DeSantis Bill Loosening Vaccine Mandates**\
+`The House speaker cited concerns about “children being in school without measles and mumps and polio and chickenpox vaccines that have been working for decades.”`\
+https://www.nytimes.com/2026/04/28/us/politics/ron-desantis-gop-florida-vaccines.html
+
 **Here’s what Musk’s lawyers argued in their opening statement.**\
 ``\
 https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/heres-what-musks-lawyers-argued-in-their-opening-statement

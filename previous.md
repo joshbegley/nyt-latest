@@ -1,3 +1,7 @@
+**Florida Republicans Refuse to Take Up DeSantis Bill Loosening Vaccine Mandates**\
+`The House speaker cited concerns about “children being in school without measles and mumps and polio and chickenpox vaccines that have been working for decades.”`\
+https://www.nytimes.com/2026/04/28/us/politics/ron-desantis-gop-florida-vaccines.html
+
 **Here’s what Musk’s lawyers argued in their opening statement.**\
 ``\
 https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/heres-what-musks-lawyers-argued-in-their-opening-statement
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-t
 **Trump Tests the Limits of His Most Faithful Supporters**\
 `The president’s rhetoric on religion, along with hard-line immigration policies and the U.S. war in Iran, has splintered a coalition of Christian voters who returned him to the White House.`\
 https://www.nytimes.com/2026/04/28/us/politics/trump-christian-evangelical-faith.html
-
-**Afghanistan Accuses Pakistan of Artillery Strike on a University**\
-`Pakistan, which has been waging an “open war” on its neighbor, did not acknowledge strikes on civilian areas Monday that officials said killed at least four people and wounded about 70 others.`\
-https://www.nytimes.com/2026/04/28/world/asia/afghanistan-pakistan-university-strike.html
 
