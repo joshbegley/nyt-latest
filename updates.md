@@ -1,3 +1,23 @@
+**The E.P.A.’s Lost Science**\
+`The agency’s prestigious research office is being dismantled by the Trump administration, a plan to dam the Bering Strait and more climate news.`\
+https://www.nytimes.com/2026/04/28/climate/the-epas-lost-science.html
+
+**Dirty Gold**\
+`A Times investigation shows how the U.S. and Canadian mints ended up buying gold that came from a Colombian drug cartel.`\
+https://www.nytimes.com/2026/04/28/world/dirty-gold-mints-opec-king-charles.html
+
+**The Banality of Evil, Again**\
+`The distinguishing feature of Cole Tomas Allen’s manifesto is its insipidity.`\
+https://www.nytimes.com/2026/04/28/opinion/whcd-shooting-trump-manifesto.html
+
+**Democrats Pitch ‘New Affordability,’ Looking to Widen Midterm Appeal**\
+`Progressives who expect their party to take control of Congress are putting forth a slate of bills aimed at helping lower costs for Americans, financed by tax increases on the wealthy.`\
+https://www.nytimes.com/2026/04/28/us/politics/democrats-affordability-midterms.html
+
+**Deal Talks Between Pernod and Maker of Jack Daniel’s Falter**\
+`The collapse of the talks could pave the way for another spirits company, Sazerac, to open negotiations with Brown-Forman.`\
+https://www.nytimes.com/2026/04/28/business/pernod-brown-forman-talks-jack-daniels.html
+
 **Deal Talks Between Pernod and Maker of Jack Daniel’s Falter**\
 `The collapse of negotiations could pave the way for another spirits company, Sazerac, to make a bid for Brown-Forman.`\
 https://www.nytimes.com/2026/04/28/business/pernod-brown-forman-talks-jack-daniels.html
