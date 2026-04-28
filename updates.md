@@ -1,3 +1,7 @@
+**Here’s what Musk’s lawyers argued in their opening statement.**\
+``\
+https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/heres-what-musks-lawyers-argued-in-their-opening-statement
+
 **Watch Live: King Charles Addresses Congress**\
 `King Charles III of Britain addresses a joint session of Congress.`\
 https://www.nytimes.com/video/us/100000010868046/watch-live-king-charles-addresses-congress.html
