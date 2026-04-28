@@ -1,3 +1,11 @@
+**More than 120 foreign leaders have addressed Congress. Not many have been kings.**\
+``\
+https://www.nytimes.com/live/2026/04/28/us/king-charles-us-visit-trump/more-than-120-foreign-leaders-have-addressed-congress-not-many-have-been-kings
+
+**Why does Elon Musk talk so much about saving humanity?**\
+``\
+https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/why-does-elon-musk-talk-so-much-about-saving-humanity
+
 **Trump Welcomes King Charles to White House**\
 `President Trump and the first lady, Melania Trump, welcomed King Charles III and Queen Camilla to the White House with a 21-gun salute and a ceremony known as reviewing the troops.`\
 https://www.nytimes.com/video/us/100000010868251/trump-king-charles-white-house-visit.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/28/arts/television/jimmy-kimmel-donald-trump-feu
 **Stay Put or Travel Abroad? Americans Are Rethinking Their Summer Travel Plans.**\
 `Faced with geopolitical instability, economic uncertainty and rising airfares, many travelers are changing destinations or canceling their trips entirely.`\
 https://www.nytimes.com/2026/04/28/travel/summer-international-travel-us-iran-war.html
-
-**11 Great American Songwriters Who Didn’t Make Our List**\
-`The New York Times Magazine named the 30 Greatest Living American Songwriters. Here are more contenders, including Billy Joel, Frank Ocean and Neko Case.`\
-https://www.nytimes.com/2026/04/28/arts/music/amplifier-newsletter-greatest-american-songwriters.html
-
-**Appeals Court Rules Against Trump Detention Policy, Creating a Split**\
-`The question of whether undocumented immigrants can settle in the United States without facing arrest and detention is likely headed to the Supreme Court.`\
-https://www.nytimes.com/2026/04/28/us/politics/appeals-court-trump-detention.html
 

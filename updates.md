@@ -1,3 +1,11 @@
+**More than 120 foreign leaders have addressed Congress. Not many have been kings.**\
+``\
+https://www.nytimes.com/live/2026/04/28/us/king-charles-us-visit-trump/more-than-120-foreign-leaders-have-addressed-congress-not-many-have-been-kings
+
+**Why does Elon Musk talk so much about saving humanity?**\
+``\
+https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/why-does-elon-musk-talk-so-much-about-saving-humanity
+
 **Trump Welcomes King Charles to White House**\
 `President Trump and the first lady, Melania Trump, welcomed King Charles III and Queen Camilla to the White House with a 21-gun salute and a ceremony known as reviewing the troops.`\
 https://www.nytimes.com/video/us/100000010868251/trump-king-charles-white-house-visit.html
