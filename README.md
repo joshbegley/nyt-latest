@@ -1,3 +1,7 @@
+**Here Are the Key Players in the OpenAI Trial**\
+`Elon Musk, Sam Altman and several other key artificial intelligence industry figures are slated to testify in the trial, which is expected to last several weeks.`\
+https://www.nytimes.com/2026/04/28/technology/key-players-openai-trial.html
+
 **Fashion Can’t Get Over Michael Jackson**\
 `With a new biopic crushing at the box office, a reflection on the industry’s selective memory around MJ. Plus, cowboy Crocs.`\
 https://www.nytimes.com/2026/04/28/style/michael-jackson-fashion-biopic.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-t
 **California 14th Congressional District 2026: Latest Polls**\
 `Track the latest polls in California's 14th Congressional District.`\
 https://www.nytimes.com/interactive/polls/california-us-house-14-polls-2026.html
-
-**The Japanese Pizza Guard Is on Its Way**\
-`Pizza Studio Tamaki will bring the charred and bubbled crust of Tokyo-style Neapolitan pizza to the East Village, seafood with art in Williamsburg and more restaurant news.`\
-https://www.nytimes.com/2026/04/28/dining/nyc-restaurant-news.html
 
