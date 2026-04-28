@@ -1,3 +1,27 @@
+**Kimmel vs. Trump: What’s Going On Here?**\
+`The president and first lady took exception to a joke. Jimmy Kimmel defended it.`\
+https://www.nytimes.com/2026/04/28/arts/television/jimmy-kimmel-donald-trump-feud.html
+
+**Stay Put or Travel Abroad? Americans Are Rethinking Their Summer Travel Plans.**\
+`Faced with geopolitical instability, economic uncertainty and rising airfares, many travelers are changing destinations or canceling their trips entirely.`\
+https://www.nytimes.com/2026/04/28/travel/summer-international-travel-us-iran-war.html
+
+**11 Great American Songwriters Who Didn’t Make Our List**\
+`The New York Times Magazine named the 30 Greatest Living American Songwriters. Here are more contenders, including Billy Joel, Frank Ocean and Neko Case.`\
+https://www.nytimes.com/2026/04/28/arts/music/amplifier-newsletter-greatest-american-songwriters.html
+
+**Appeals Court Rules Against Trump Detention Policy, Creating a Split**\
+`The question of whether undocumented immigrants can settle in the United States without facing arrest and detention is likely headed to the Supreme Court.`\
+https://www.nytimes.com/2026/04/28/us/politics/appeals-court-trump-detention.html
+
+**Trump Administration Secures New Indictment Against Comey**\
+`The new case stems from a photograph of seashells on a North Carolina beach.`\
+https://www.nytimes.com/2026/04/28/us/politics/james-comey-indictment.html
+
+**Prisoner Swap in Eastern Europe Frees 10, Including Accused Spies**\
+`Multiple countries took part in the exchange of prisoners, including a well-known journalist released to Poland, as the Trump administration’s outreach to Belarus continued to pay dividends.`\
+https://www.nytimes.com/2026/04/28/world/europe/belarus-poland-prisoner-swap-trump.html
+
 **Here Are the Countries and Products Subject to Tariffs Now**\
 `President Trump ramped up his tariff campaign, one day after the Supreme Court invalidated a large chunk of duties he had previously imposed on most of the world’s imports.`\
 https://www.nytimes.com/interactive/2026/business/economy/trump-tariff-tracker.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/es/2026/04/28/espanol/negocios/guerra-iran-economia-chin
 **Grand Jury Indicts Former N.I.H. Official**\
 `Prosecutors accused Dr. David Morens, a former adviser to Dr. Anthony S. Fauci, of hiding records related to the onset of the pandemic.`\
 https://www.nytimes.com/2026/04/28/science/david-morens-indictment.html
-
-**For Many Pro Athletes, Post-Career Financial Worries Loom Large**\
-`The tennis player Mackenzie McDonald has earned well up to this point, but high expenses and a short career timeline have prompted him, and others, to search for a backup plan.`\
-https://www.nytimes.com/2026/04/28/your-money/longevity-athletes-mackenzie-mcdonald.html
-
-**Trump no está satisfecho con el plan de Irán para reabrir el estrecho de Ormuz**\
-`La propuesta pedía a EE. UU. poner fin a su bloqueo naval, pero habría dejado de lado las cuestiones sobre el programa nuclear iraní, según funcionarios.`\
-https://www.nytimes.com/es/2026/04/28/espanol/plan-abrir-estrecho-ormuz-iran-trump.html
-
-**Hoping the Last Check Bounces … and Other Financial Approaches to a Long Life**\
-`Americans are increasingly dealing with a dilemma: How to balance a long life with having enough money to live it happily.`\
-https://www.nytimes.com/2026/04/28/your-money/longevity-spending-finances.html
-
-**Military Quietly Accelerates Boat Strikes, Deploying More Aircraft**\
-`The military has increased the number of secret fixed-wing attack aircraft and armed MQ-9 Reaper drones, according to two people familiar with the matter.`\
-https://www.nytimes.com/2026/04/28/us/politics/us-boat-strikes.html
-
-**Here Are the Key Players in the OpenAI Trial**\
-`Elon Musk, Sam Altman and several other key artificial intelligence industry figures are slated to testify in the trial, which is expected to last several weeks.`\
-https://www.nytimes.com/2026/04/28/technology/key-players-openai-trial.html
-
-**Fashion Can’t Get Over Michael Jackson**\
-`With a new biopic crushing at the box office, a reflection on the industry’s selective memory around MJ. Plus, cowboy Crocs.`\
-https://www.nytimes.com/2026/04/28/style/michael-jackson-fashion-biopic.html
 
