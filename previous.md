@@ -1,3 +1,7 @@
+**Elon Musk Assails Sam Altman on Social Media Before OpenAI Trial Opens**\
+`Musk’s posts on his X social media platform have pushed his narrative that OpenAI has lost its way.`\
+https://www.nytimes.com/2026/04/28/technology/elon-musk-social-posts-sam-altman-openai.html
+
 **Filing a Financial Aid Appeal? You May Not Get an Answer by May 1.**\
 `Northeastern University is behind in responding to appeals this year. Keep asking for a better deal — at any school — and more time to make up your mind.`\
 https://www.nytimes.com/2026/04/28/your-money/college-financial-aid-appeal-deadline.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/28/style/a-work-wear-staple-in-gentle-pastels.ht
 **F.B.I. Searches Businesses Around Minneapolis as Part of Fraud Inquiry**\
 `Investigators obtained 22 search warrants to collect evidence as part of a fraud investigation in a state that has become a top concern for the Trump administration.`\
 https://www.nytimes.com/2026/04/28/us/fbi-minneapolis-fraud-investigation.html
-
-**Luxury Yacht Linked to Russian Oligarch Passes Through Strait of Hormuz**\
-`The Nord, a 464-foot vessel, appears to be tied to Aleksei A. Mordashov, a Russian steel mogul who is under American and European sanctions.`\
-https://www.nytimes.com/2026/04/28/world/middleeast/yacht-strait-hormuz-russia-oligarch.html
 

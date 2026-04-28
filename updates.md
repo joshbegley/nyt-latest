@@ -1,3 +1,7 @@
+**Elon Musk Assails Sam Altman on Social Media Before OpenAI Trial Opens**\
+`Musk’s posts on his X social media platform have pushed his narrative that OpenAI has lost its way.`\
+https://www.nytimes.com/2026/04/28/technology/elon-musk-social-posts-sam-altman-openai.html
+
 **Filing a Financial Aid Appeal? You May Not Get an Answer by May 1.**\
 `Northeastern University is behind in responding to appeals this year. Keep asking for a better deal — at any school — and more time to make up your mind.`\
 https://www.nytimes.com/2026/04/28/your-money/college-financial-aid-appeal-deadline.html

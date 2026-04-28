@@ -1,3 +1,11 @@
+**Adopting Trump’s Voice, Justice Dept. Asks Judge to Let Ballroom Proceed**\
+`The court filing links the security breach at the White House correspondents’ dinner to the lawsuit over President Trump’s ballroom project.`\
+https://www.nytimes.com/2026/04/28/us/elections/ballroom-filing-trump-truth-social.html
+
+**Emiratos Árabes Unidos anuncia su salida de la OPEP**\
+`El gobierno del Golfo se ha quejado durante mucho tiempo de las cuotas del grupo, que los funcionarios consideran que limitan injustamente sus exportaciones.`\
+https://www.nytimes.com/es/2026/04/28/espanol/mundo/emiratos-arabes-unidos-opep.html
+
 **Elon Musk Assails Sam Altman on Social Media Before OpenAI Trial Opens**\
 `Musk’s posts on his X social media platform have pushed his narrative that OpenAI has lost its way.`\
 https://www.nytimes.com/2026/04/28/technology/elon-musk-social-posts-sam-altman-openai.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/live/2026/04/28/us/king-charles-us-visit-trump/security-
 **Hegseth and Kid Rock Ride Army Helicopters in Wake of Contentious Flyby**\
 `The flights on Monday came a few weeks after two Apache crews were censured and then cleared for flying near the singer’s home.`\
 https://www.nytimes.com/2026/04/28/us/kid-rock-hegseth-apache-helicopter.html
-
-**A Work-Wear Staple in Gentle Pastels**\
-`A stylish woman in Upper Manhattan can’t be bothered with “tucking in shirts and all the things.”`\
-https://www.nytimes.com/2026/04/28/style/a-work-wear-staple-in-gentle-pastels.html
-
-**F.B.I. Searches Businesses Around Minneapolis as Part of Fraud Inquiry**\
-`Investigators obtained 22 search warrants to collect evidence as part of a fraud investigation in a state that has become a top concern for the Trump administration.`\
-https://www.nytimes.com/2026/04/28/us/fbi-minneapolis-fraud-investigation.html
 
