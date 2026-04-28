@@ -1,3 +1,7 @@
+**A Work-Wear Staple in Gentle Pastels**\
+`A stylish woman in Upper Manhattan can’t be bothered with “tucking in shirts and all the things.”`\
+https://www.nytimes.com/2026/04/28/style/a-work-wear-staple-in-gentle-pastels.html
+
 **F.B.I. Searches Businesses Around Minneapolis as Part of Fraud Inquiry**\
 `Investigators obtained 22 search warrants to collect evidence as part of a fraud investigation in a state that has become a top concern for the Trump administration.`\
 https://www.nytimes.com/2026/04/28/us/fbi-minneapolis-fraud-investigation.html
