@@ -1,3 +1,27 @@
+**Kimmel vs. Trump: What’s Going On Here?**\
+`The president and first lady took exception to a joke. Jimmy Kimmel defended it.`\
+https://www.nytimes.com/2026/04/28/arts/television/jimmy-kimmel-donald-trump-feud.html
+
+**Stay Put or Travel Abroad? Americans Are Rethinking Their Summer Travel Plans.**\
+`Faced with geopolitical instability, economic uncertainty and rising airfares, many travelers are changing destinations or canceling their trips entirely.`\
+https://www.nytimes.com/2026/04/28/travel/summer-international-travel-us-iran-war.html
+
+**11 Great American Songwriters Who Didn’t Make Our List**\
+`The New York Times Magazine named the 30 Greatest Living American Songwriters. Here are more contenders, including Billy Joel, Frank Ocean and Neko Case.`\
+https://www.nytimes.com/2026/04/28/arts/music/amplifier-newsletter-greatest-american-songwriters.html
+
+**Appeals Court Rules Against Trump Detention Policy, Creating a Split**\
+`The question of whether undocumented immigrants can settle in the United States without facing arrest and detention is likely headed to the Supreme Court.`\
+https://www.nytimes.com/2026/04/28/us/politics/appeals-court-trump-detention.html
+
+**Trump Administration Secures New Indictment Against Comey**\
+`The new case stems from a photograph of seashells on a North Carolina beach.`\
+https://www.nytimes.com/2026/04/28/us/politics/james-comey-indictment.html
+
+**Prisoner Swap in Eastern Europe Frees 10, Including Accused Spies**\
+`Multiple countries took part in the exchange of prisoners, including a well-known journalist released to Poland, as the Trump administration’s outreach to Belarus continued to pay dividends.`\
+https://www.nytimes.com/2026/04/28/world/europe/belarus-poland-prisoner-swap-trump.html
+
 **Here Are the Countries and Products Subject to Tariffs Now**\
 `President Trump ramped up his tariff campaign, one day after the Supreme Court invalidated a large chunk of duties he had previously imposed on most of the world’s imports.`\
 https://www.nytimes.com/interactive/2026/business/economy/trump-tariff-tracker.html
