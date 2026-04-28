@@ -1,3 +1,15 @@
+**Few Careers Are as Daring — Musically or Emotionally — as Fiona Apple’s**\
+`With every album, she burrows deeper into her own psyche, pushing her music into new realms.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/fiona-apple-songwriting-criminal-albums.html
+
+**The 30 Greatest Living American Songwriters**\
+`More than 250 music insiders and six New York Times critics weighed in on who defines the new American songbook. Here are the artists they chose.`\
+https://www.nytimes.com/interactive/2026/magazine/greatest-american-songwriters-alive.html
+
+**Political Violence Isn’t Just Evil. It’s Counterproductive.**\
+`Each act of political violence further frays our threadbare social fabric, laying the foundation for authoritarianism.`\
+https://www.nytimes.com/2026/04/27/opinion/white-house-correspondents-dinner-shooter.html
+
 **Jamie Ding’s ‘Jeopardy’ Sweaters Made Him a Style Champion**\
 `Ding’s approach to dressing, with his spectacular spectrum of sweaters, suited a contestant who remained ice-cube calm as he climbed up the show’s leaderboard.`\
 https://www.nytimes.com/2026/04/27/style/jamie-ding-jeopardy-sweaters.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/27/health/trump-fentanyl-test-strips.html
 **What Happens When A.I. Runs a Store in San Francisco?**\
 `In San Francisco, an A.I. agent was tasked with running a store. The experiment did not go well. The “Hard Fork” co-hosts Casey Newton and Kevin Roose unpack the story in a recent episode.`\
 https://www.nytimes.com/video/podcasts/100000010866685/what-happens-when-ai-runs-a-store-in-san-francisco.html
-
-**ICE Warehouse Plan Faces Delay Over Lack of Environmental Reviews**\
-`Officials have argued in court filings that the projects are exempt from federally required assessments, but are scrambling after a judge disagreed.`\
-https://www.nytimes.com/2026/04/27/us/politics/ice-warehouse-environmental-review.html
-
-**Charges Against Assassination Suspect Based on Shotgun Shell and a Screed**\
-`The authorities say the California man stormed a black-tie gala on Saturday seeking to kill the president.`\
-https://www.nytimes.com/2026/04/27/us/politics/trump-assassination-attempt-cole-allen-charges.html
-
-**The Billionaires Dominating California Politics**\
-`Between Sergey Brin and Tom Steyer, ultrawealthy people are trying to guide the state’s direction.`\
-https://www.nytimes.com/2026/04/27/us/politics/california-billionaires-tax-governor.html
 

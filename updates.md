@@ -1,3 +1,15 @@
+**Few Careers Are as Daring — Musically or Emotionally — as Fiona Apple’s**\
+`With every album, she burrows deeper into her own psyche, pushing her music into new realms.`\
+https://www.nytimes.com/interactive/2026/04/27/magazine/fiona-apple-songwriting-criminal-albums.html
+
+**The 30 Greatest Living American Songwriters**\
+`More than 250 music insiders and six New York Times critics weighed in on who defines the new American songbook. Here are the artists they chose.`\
+https://www.nytimes.com/interactive/2026/magazine/greatest-american-songwriters-alive.html
+
+**Political Violence Isn’t Just Evil. It’s Counterproductive.**\
+`Each act of political violence further frays our threadbare social fabric, laying the foundation for authoritarianism.`\
+https://www.nytimes.com/2026/04/27/opinion/white-house-correspondents-dinner-shooter.html
+
 **Jamie Ding’s ‘Jeopardy’ Sweaters Made Him a Style Champion**\
 `Ding’s approach to dressing, with his spectacular spectrum of sweaters, suited a contestant who remained ice-cube calm as he climbed up the show’s leaderboard.`\
 https://www.nytimes.com/2026/04/27/style/jamie-ding-jeopardy-sweaters.html
