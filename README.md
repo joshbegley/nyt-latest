@@ -1,3 +1,7 @@
+**King Charles III Delivers Message of Unity to Congress**\
+`King Charles III delivered an address to a joint meeting of Congress on Tuesday, becoming only the second British monarch to do so.`\
+https://www.nytimes.com/video/us/100000010865581/king-charles-speech-congress.html
+
 **Starbucks Reports Strong Store Traffic and Rise in Quarterly Sales**\
 `The chain’s chief executive credited its turnaround plan for improved U.S. same-store sales, but said higher gas and utility costs were a concern.`\
 https://www.nytimes.com/2026/04/28/business/starbucks-quarterly-earnings.html
@@ -46,7 +50,7 @@ https://www.nytimes.com/2026/04/28/nyregion/laguardia-airport-crash-transponder.
 `Prime Minister Mark Carney’s budget update keeps to his path of diversifying away from the United States.`\
 https://www.nytimes.com/2026/04/28/world/canada/carney-budget-update.html
 
-**Severe Storms Sweep the South, With Possible Tornados and Large Hail**\
+**Severe Storms Sweep the South, With Possible Tornadoes and Large Hail**\
 `Some damage was reported in Texas in the early evening as storms were racing across the Central United States on Tuesday.`\
 https://www.nytimes.com/2026/04/28/weather/dallas-texas-hail-storms-forecast.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/28/us/politics/democrats-affordability-midterms.
 **The Banality of Evil, Again**\
 `The distinguishing feature of Cole Tomas Allen’s manifesto is its insipidity.`\
 https://www.nytimes.com/2026/04/28/opinion/whcd-shooting-trump-manifesto.html
-
-**Deal Talks Between Pernod and Maker of Jack Daniel’s Falter**\
-`The collapse of the talks could pave the way for another spirits company, Sazerac, to open negotiations with Brown-Forman.`\
-https://www.nytimes.com/2026/04/28/business/pernod-brown-forman-talks-jack-daniels.html
 
