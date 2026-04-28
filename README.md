@@ -1,3 +1,11 @@
+**Jamie Ding’s ‘Jeopardy’ Sweaters Made Him a Style Champion**\
+`Ding’s approach to dressing, with his spectacular spectrum of sweaters, suited a contestant who remained ice-cube calm as he climbed up the show’s leaderboard.`\
+https://www.nytimes.com/2026/04/27/style/jamie-ding-jeopardy-sweaters.html
+
+**A Humble ‘Jeopardy!’ Champ Ends His Run**\
+`Jamie Ding, a self-described “faceless bureaucrat” from New Jersey, became a TV sensation during his 31-game winning streak.`\
+https://www.nytimes.com/2026/04/27/style/jeopardy-streak-jamie-ding.html
+
 **House Republican Makes His First Statement About Mysterious Absence**\
 `Representative Thomas Kean Jr. of New Jersey, who has missed nearly two months of votes in Washington, said he expected to fully recover from a “personal medical issue” but gave no other details.`\
 https://www.nytimes.com/2026/04/27/nyregion/kean-new-jersey-house-absence.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/27/us/politics/trump-assassination-attempt-cole-
 **The Billionaires Dominating California Politics**\
 `Between Sergey Brin and Tom Steyer, ultrawealthy people are trying to guide the state’s direction.`\
 https://www.nytimes.com/2026/04/27/us/politics/california-billionaires-tax-governor.html
-
-**Maybe Trump Was Never a Deal Maker**\
-`Trump built his political brand on being the ultimate negotiator, but in his second term that image is crumbling. On “The Opinions,” the columnist Carlos Lozada argues that we’re witnessing “the limits to his deal-making prowess, especially internationally.”`\
-https://www.nytimes.com/video/opinion/100000010856899/maybe-trump-was-never-a-deal-maker.html
-
-**Canada Announces Investment Fund to Distance Economy From the U.S.**\
-`Prime Minister Mark Carney announced the Canada Strong Fund, which will focus on investments in the country’s infrastructure. The sovereign wealth fund seeks to make the Canadian economy less dependent on the Unites States.`\
-https://www.nytimes.com/video/world/canada/100000010865115/canada-strong-fund-carney.html
 
