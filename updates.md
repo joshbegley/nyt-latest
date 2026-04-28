@@ -1,4 +1,8 @@
 **Rescue Efforts Underway After Deadly Indonesia Train Collision**\
+`A train collided with another train near Jakarta, Indonesia, on Monday, killing 14 people, the authorities said. Rescue workers carried injured people out of damaged train cars.`\
+https://www.nytimes.com/video/world/asia/100000010867053/indonesia-train-crash.html
+
+**Rescue Efforts Underway After Deadly Indonesia Train Collision**\
 `Two trains collided near Jakarta on Monday evening, killing 14 people and disrupting commuter traffic, the authorities said.`\
 https://www.nytimes.com/video/world/asia/100000010867053/indonesia-train-crash.html
 
