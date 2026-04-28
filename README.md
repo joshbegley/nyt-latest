@@ -1,3 +1,11 @@
+**The Greatest Living Songwriters**\
+`We look at the list crafted by Times music writers.`\
+https://www.nytimes.com/2026/04/28/briefing/the-greatest-living-songwriters.html
+
+**One Person Appears to Be Missing From King Charles’s U.S. Itinerary: Prince Harry**\
+`On a state visit designed in part to repair U.S.-British relations, King Charles’s schedule does not include plans to see his younger son, who lives in the United States with his family.`\
+https://www.nytimes.com/2026/04/28/us/prince-harry-king-charles-us-visit.html
+
 **El arte de la negociación nuclear**\
 `El presidente Trump rompió un pacto diseñado para impedir que Irán construyera una bomba. Conseguir un acuerdo mejor ahora podría ser complicado.`\
 https://www.nytimes.com/es/2026/04/28/espanol/mundo/negociacion-nuclear-iran-trump-obama.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/28/learning/is-it-ok-to-record-people-without-th
 **Transition to a New Fed Chair Is Unlikely to Mean Immediate Rate Cuts**\
 `The Federal Reserve is expected to hold interest rates steady this week as Jerome H. Powell presides over what is likely to be his last meeting as chair.`\
 https://www.nytimes.com/2026/04/28/business/federal-reserve-chair-rates-warsh-powell.html
-
-**A Shelter’s Closing Is a Turning Point for Homeless Policy**\
-`The 30th Street shelter next to Bellevue Hospital has served homeless men for decades.`\
-https://www.nytimes.com/2026/04/28/nyregion/a-shelters-closing-is-a-turning-point-for-homeless-policy.html
-
-**Stephen Colbert Gets Ready to Hang It Up**\
-`His late-night show ends next month after 11 seasons. He has lots of feelings.`\
-https://www.nytimes.com/2026/04/28/business/media/stephen-colbert-late-night-show.html
 
