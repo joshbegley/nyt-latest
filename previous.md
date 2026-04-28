@@ -1,3 +1,11 @@
+**‘Running Point’ Is ‘The Office’ Meets the Lakers**\
+`The Netflix comedy is produced by the Lakers executive Jeanie Buss and based loosely on her life. Season 2 arrives as both she and the team are in flux.`\
+https://www.nytimes.com/2026/04/28/arts/television/running-point-netflix.html
+
+**California 48th Congressional District 2026: Latest Polls**\
+`Track the latest polls in California's 48th Congressional District.`\
+https://www.nytimes.com/interactive/polls/california-us-house-48-polls-2026.html
+
 **Man Pleads Guilty to Planning Attack at Taylor Swift Concert in Vienna**\
 `Austrian prosecutors said the man plotted in 2024 to set off a bomb outside the concert, which was later canceled. He and another man still face separate charges.`\
 https://www.nytimes.com/2026/04/28/world/europe/taylor-swift-austria-guilty-plea.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/28/dining/nyc-restaurant-news.html
 **Nick Pope, U.F.O. Sleuth Who Chased the Truth, Dies at 60**\
 `Often likened to Agent Mulder from “The X-Files,” he worked for Britain’s defense ministry and became a leading commentator on extraterrestrial matters.`\
 https://www.nytimes.com/2026/04/28/science/nick-pope-dead.html
-
-**Hed: King Charles III and Queen Camilla Arrive at White House**\
-`King Charles III and Queen Camilla are on the second day of their state visit, when Charles will meet privately with President Trump.`\
-https://www.nytimes.com/video/us/politics/100000010867395/hed-king-charles-iii-and-queen-camilla-arrive-at-white-house.html
-
-**El presidente y la primera dama de EE. UU. exigen a la ABC que despida a Jimmy Kimmel por un chiste**\
-`La broma dirigida a Melania Trump se grabó dos días antes de la cena de corresponsales de la Casa Blanca, en la que un hombre armado intentó asaltar la gala de la prensa.`\
-https://www.nytimes.com/es/2026/04/28/espanol/estados-unidos/trump-melania-jimmy-kimmel.html
 

@@ -1,3 +1,11 @@
+**‘Running Point’ Is ‘The Office’ Meets the Lakers**\
+`The Netflix comedy is produced by the Lakers executive Jeanie Buss and based loosely on her life. Season 2 arrives as both she and the team are in flux.`\
+https://www.nytimes.com/2026/04/28/arts/television/running-point-netflix.html
+
+**California 48th Congressional District 2026: Latest Polls**\
+`Track the latest polls in California's 48th Congressional District.`\
+https://www.nytimes.com/interactive/polls/california-us-house-48-polls-2026.html
+
 **Man Pleads Guilty to Planning Attack at Taylor Swift Concert in Vienna**\
 `Austrian prosecutors said the man plotted in 2024 to set off a bomb outside the concert, which was later canceled. He and another man still face separate charges.`\
 https://www.nytimes.com/2026/04/28/world/europe/taylor-swift-austria-guilty-plea.html
