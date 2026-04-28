@@ -1,3 +1,15 @@
+**Watch Live: King Charles Addresses Congress**\
+`King Charles III of Britain addresses a joint session of Congress.`\
+https://www.nytimes.com/video/us/100000010868046/watch-live-king-charles-addresses-congress.html
+
+**National Guard Can Stay in Memphis, State Appeals Court Says**\
+`The decision reversed a lower-court ruling last year that temporarily blocked the deployment.`\
+https://www.nytimes.com/2026/04/28/us/politics/national-guard-deployment-memphis-tennessee.html
+
+**An Art and Fashion Party for Nina Simone**\
+`Adam Pendleton and Gabriela Hearst celebrated a recent collaboration with an evening-long tribute to the legendary musician and activist.`\
+https://www.nytimes.com/2026/04/28/t-magazine/adam-pendleton-gabriela-hearst-nina-simone.html
+
 **Former N.B.A. Player Pleads Guilty in Gambling Scheme**\
 `Damon Jones is among more than 30 people who were charged last fall in two sweeping indictments that targeted illegal gambling involving current and former N.B.A. players.`\
 https://www.nytimes.com/2026/04/28/nyregion/damon-jones-nba-gambling-guilty-plea.html

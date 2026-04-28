@@ -1,3 +1,7 @@
+**Here’s what Musk’s lawyers argued in their opening statement.**\
+``\
+https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/heres-what-musks-lawyers-argued-in-their-opening-statement
+
 **Watch Live: King Charles Addresses Congress**\
 `King Charles III of Britain addresses a joint session of Congress.`\
 https://www.nytimes.com/video/us/100000010868046/watch-live-king-charles-addresses-congress.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/28/us/politics/trump-christian-evangelical-faith
 **Afghanistan Accuses Pakistan of Artillery Strike on a University**\
 `Pakistan, which has been waging an “open war” on its neighbor, did not acknowledge strikes on civilian areas Monday that officials said killed at least four people and wounded about 70 others.`\
 https://www.nytimes.com/2026/04/28/world/asia/afghanistan-pakistan-university-strike.html
-
-**Offbeat Obituaries Honor Loss With Levity (and Brutal Honesty)**\
-`Irreverent tributes filled with unvarnished truths and funny anecdotes, which run counter to more somber traditional obituaries, have gained attention for “how alive they feel,” a researcher said.`\
-https://www.nytimes.com/2026/04/28/us/offbeat-obituaries-brutal-honesty.html
 
