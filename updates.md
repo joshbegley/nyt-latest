@@ -1,3 +1,7 @@
+**Epstein Scandal Looms Over King Charles’s U.S. Visit**\
+`The king is not planning to meet with victims of Jeffrey Epstein during his state visit because of “ongoing police inquiries” in Britain. The king’s brother was close to Mr. Epstein, a convicted sex offender.`\
+https://www.nytimes.com/2026/04/28/us/king-charles-visit-epstein.html
+
 **Is OpenAI Falling Further Behind in the A.I. Race?**\
 `The artificial intelligence giant has reportedly fallen behind on its own user and revenue targets, raising questions about its data center and I.P.O. plans`\
 https://www.nytimes.com/2026/04/28/business/dealbook/openai-misses-targets.html

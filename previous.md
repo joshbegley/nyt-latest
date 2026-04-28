@@ -1,3 +1,7 @@
+**Epstein Scandal Looms Over King Charles’s U.S. Visit**\
+`The king is not planning to meet with victims of Jeffrey Epstein during his state visit because of “ongoing police inquiries” in Britain. The king’s brother was close to Mr. Epstein, a convicted sex offender.`\
+https://www.nytimes.com/2026/04/28/us/king-charles-visit-epstein.html
+
 **Is OpenAI Falling Further Behind in the A.I. Race?**\
 `The artificial intelligence giant has reportedly fallen behind on its own user and revenue targets, raising questions about its data center and I.P.O. plans`\
 https://www.nytimes.com/2026/04/28/business/dealbook/openai-misses-targets.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/28/arts/replaced-review.html
 **What We Got Right — and Wrong — in ‘Abundance’**\
 `It’s been a big year for the abundance movement, but what has it really achieved? Ezra Klein talks with his “Abundance” co-author Derek Thompson and with Marc Dunkelman, the author of “Why Nothing Works.”`\
 https://www.nytimes.com/2026/04/28/opinion/ezra-klein-podcast-thompson-dunkelman.html
-
-**He Was Supposed to Die in Prison, but the Prosecutor Felt Guilty**\
-`Jessie Askew Jr. was sentenced to life without parole for a clumsy armed robbery with an unloaded gun. The man who sent him away was determined to bring him back home.`\
-https://www.nytimes.com/2026/04/28/magazine/jessie-askew-jr-release-robbery.html
 
