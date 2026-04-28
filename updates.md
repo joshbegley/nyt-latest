@@ -1,3 +1,7 @@
+**A Brooch, Teaspoons and More: The King, Queen and the Trumps Trade Gifts**\
+`King Charles III gave President Trump a framed, high-quality reproduction of the 1879 design plans for the Resolute Desk, which is still in the Oval Office.`\
+https://www.nytimes.com/2026/04/28/us/president-trump-king-charles-gifts.html
+
 **Trump Tests the Limits of His Most Faithful Supporters**\
 `The president’s rhetoric on religion, along with hard-line immigration policies and the U.S. war in Iran, has splintered a coalition of Christian voters who returned him to the White House.`\
 https://www.nytimes.com/2026/04/28/us/politics/trump-christian-evangelical-faith.html

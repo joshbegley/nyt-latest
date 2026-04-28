@@ -1,3 +1,7 @@
+**A Brooch, Teaspoons and More: The King, Queen and the Trumps Trade Gifts**\
+`King Charles III gave President Trump a framed, high-quality reproduction of the 1879 design plans for the Resolute Desk, which is still in the Oval Office.`\
+https://www.nytimes.com/2026/04/28/us/president-trump-king-charles-gifts.html
+
 **Jimmy Kimmel Defends ‘Widow’ Joke After Calls for His Dismissal**\
 `The comedian Jimmy Kimmel defended a joke he made two days before the White House correspondents’ dinner where he said that Melania Trump had “a glow like an expectant widow.” The first lady and President Trump both called on ABC to fire Kimmel over the joke.`\
 https://www.nytimes.com/video/us/politics/100000010867178/jimmy-kimmel-melania-trump-widow.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/28/arts/television/running-point-netflix.html
 **California 48th Congressional District 2026: Latest Polls**\
 `Track the latest polls in California's 48th Congressional District.`\
 https://www.nytimes.com/interactive/polls/california-us-house-48-polls-2026.html
-
-**Man Pleads Guilty to Planning Attack at Taylor Swift Concert in Vienna**\
-`Austrian prosecutors said the man plotted in 2024 to set off a bomb outside the concert, which was later canceled. He and another man still face separate charges.`\
-https://www.nytimes.com/2026/04/28/world/europe/taylor-swift-austria-guilty-plea.html
 
