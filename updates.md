@@ -1,3 +1,7 @@
+**Rescue Efforts Underway After Deadly Indonesia Train Collision**\
+`Two trains collided near Jakarta on Monday evening, killing 14 people and disrupting commuter traffic, the authorities said.`\
+https://www.nytimes.com/video/world/asia/100000010867053/indonesia-train-crash.html
+
 **The Jay-Z Interview**\
 `The artist shares stories behind his famous songs, the writing challenges he sets for himself and how he has sustained a hip-hop career.`\
 https://www.nytimes.com/2026/04/28/magazine/jayz-songs-lyrics-rhythm-process.html
