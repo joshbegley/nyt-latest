@@ -1,3 +1,11 @@
+**A Warm, Filling Salad Fit for Dinner**\
+`A substantial mix of charred broccoli, salmon and soba catapults this salad out of side territory.`\
+https://www.nytimes.com/2026/04/28/dining/a-warm-filling-salad-fit-for-dinner.html
+
+**Assassination Attempts Have Unforeseen Political Consequences**\
+`Assassination attempts against sitting presidents have tended to compound their political problems and isolate them from the public.`\
+https://www.nytimes.com/2026/04/28/opinion/president-assassination-politics.html
+
 **California 22nd Congressional District 2026: Latest Polls**\
 `Track the latest polls in California's 22nd Congressional District.`\
 https://www.nytimes.com/interactive/polls/california-us-house-22-polls-2026.html
