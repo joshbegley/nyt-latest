@@ -1,3 +1,7 @@
+**Elon Musk Assails Sam Altman on Social Media Before OpenAI Trial**\
+`Mr. Musk’s posts on X have pushed his narrative that OpenAI has lost its way.`\
+https://www.nytimes.com/2026/04/28/technology/elon-musk-social-posts-sam-altman-openai.html
+
 **Children at Risk as Measles Cases Rise**\
 `“I would not wish measles upon my fiercest enemy,” a reader writes of the recent resurgence.`\
 https://www.nytimes.com/2026/04/28/opinion/letters/measles-children.html
