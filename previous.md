@@ -1,3 +1,7 @@
+**Trump Welcomes King Charles to White House**\
+`President Trump and the first lady, Melania Trump, welcomed King Charles III and Queen Camilla to the White House with a 21-gun salute and a ceremony known as reviewing the troops.`\
+https://www.nytimes.com/video/us/100000010868251/trump-king-charles-white-house-visit.html
+
 **For the Third Time, a Former Actress Testifies Against Harvey Weinstein**\
 `Jessica Mann testified, for the third time in six years, about the day she says Mr. Weinstein raped her in a Midtown Manhattan hotel.`\
 https://www.nytimes.com/2026/04/28/nyregion/jessica-mann-weinstein-testimony.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/28/arts/music/amplifier-newsletter-greatest-amer
 **Appeals Court Rules Against Trump Detention Policy, Creating a Split**\
 `The question of whether undocumented immigrants can settle in the United States without facing arrest and detention is likely headed to the Supreme Court.`\
 https://www.nytimes.com/2026/04/28/us/politics/appeals-court-trump-detention.html
-
-**Trump Administration Secures New Indictment Against Comey**\
-`The new case stems from a photograph of seashells on a North Carolina beach.`\
-https://www.nytimes.com/2026/04/28/us/politics/james-comey-indictment.html
 
