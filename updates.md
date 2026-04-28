@@ -1,3 +1,7 @@
+**The British public have taken a dim view of the king’s visit.**\
+``\
+https://www.nytimes.com/live/2026/04/28/us/king-charles-us-visit-trump/uk-public-opinion
+
 **OpenAI Trial Starts With Two Very Different Tales of a Company’s Early Years**\
 `In the trial’s first day of testimony, Elon Musk said greed led co-founder Sam Altman to pull the A.I. lab away from its nonprofit roots. OpenAI says that’s nonsense.`\
 https://www.nytimes.com/2026/04/28/technology/openai-trial-elon-musk-sam-altman.html
