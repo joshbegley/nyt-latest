@@ -1,3 +1,23 @@
+**Assassination Attempt Suspect Charged**\
+`What we know about the man in custody after the shooting at the White House correspondents’ dinner, and how the incident unfolded.`\
+https://www.nytimes.com/2026/04/28/podcasts/the-daily/trump-assassination-suspect-charged.html
+
+**King Charles Visits Trump as U.S.-U.K. Tensions Flare, and Airlines Ask White House for Help**\
+`Plus, how millions of people could become Canadian.`\
+https://www.nytimes.com/2026/04/28/podcasts/the-headlines/king-charles-trump-airlines-white-house.html
+
+**Connections Companion No. 1,053**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, April 29, 2026.`\
+https://www.nytimes.com/2026/04/28/crosswords/connections-companion-1053.html
+
+**Strands Sidekick No. 787**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, April 29, 2026.`\
+https://www.nytimes.com/2026/04/28/crosswords/strands-sidekick-787.html
+
+**Wordle Review No. 1,775**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, April 29, 2026.`\
+https://www.nytimes.com/2026/04/28/crosswords/wordle-review-1775.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/28/us/king-charles-us-visit-trump/heres-the-latest
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/04/28/business/media/stephen-colbert-late-night-sho
 **Republicans Brace for Brutal Midterms as Trump’s Popularity Slips**\
 `The elections are still six months off, and some within the G.O.P. say there is still time to right the ship.`\
 https://www.nytimes.com/2026/04/28/us/politics/republicans-midterms-trump-popularity-decline.html
-
-**His Music Captured Norway’s Colors. His Life Reflected Its Shadows.**\
-`Geirr Tveitt’s reputation was tarnished by his nationalist politics. But a new generation of musicians is bringing this composer’s music to an international audience.`\
-https://www.nytimes.com/2026/04/28/arts/music/geirr-tveitt-leif-ove-andsnes-norway.html
-
-**Texas Lawmakers to Question Camp Mystic’s Owners Over Deadly Flood**\
-`Investigators told lawmakers that the camp, where 28 people died in a flood last July, did not prepare for an emergency as required by the state.`\
-https://www.nytimes.com/2026/04/28/us/camp-mystic-texas-lawmakers-investigation.html
-
-**Why Do the Top Sushi Restaurants Leave Us So Bored, and So Broke?**\
-`What began in Japan as a quick, exciting working-class meal has morphed in American cities into an elaborate pampering of the well-heeled diner.`\
-https://www.nytimes.com/2026/04/28/dining/sushi-restaurants.html
-
-**Graduates Reset Ambitions in Pursuit of First Jobs**\
-`Young people aiming to build careers are entering fields they had not considered to find their footing.`\
-https://www.nytimes.com/2026/04/28/business/economy/college-graduates-job-market.html
-
-**‘Disappointed,’ ‘Surprised,’ ‘Betrayed’: 12 Trump Voters on What Has Gone Wrong**\
-`Trump voters discuss their disappointment with the president’s second term.`\
-https://www.nytimes.com/interactive/2026/04/28/opinion/focus-group-trump-voters-disappointed.html
 

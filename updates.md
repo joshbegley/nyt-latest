@@ -1,3 +1,23 @@
+**Assassination Attempt Suspect Charged**\
+`What we know about the man in custody after the shooting at the White House correspondents’ dinner, and how the incident unfolded.`\
+https://www.nytimes.com/2026/04/28/podcasts/the-daily/trump-assassination-suspect-charged.html
+
+**King Charles Visits Trump as U.S.-U.K. Tensions Flare, and Airlines Ask White House for Help**\
+`Plus, how millions of people could become Canadian.`\
+https://www.nytimes.com/2026/04/28/podcasts/the-headlines/king-charles-trump-airlines-white-house.html
+
+**Connections Companion No. 1,053**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, April 29, 2026.`\
+https://www.nytimes.com/2026/04/28/crosswords/connections-companion-1053.html
+
+**Strands Sidekick No. 787**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, April 29, 2026.`\
+https://www.nytimes.com/2026/04/28/crosswords/strands-sidekick-787.html
+
+**Wordle Review No. 1,775**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, April 29, 2026.`\
+https://www.nytimes.com/2026/04/28/crosswords/wordle-review-1775.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/28/us/king-charles-us-visit-trump/heres-the-latest
