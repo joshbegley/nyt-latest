@@ -1,3 +1,7 @@
+**Quote of the Day: A Disquieting Political Routine Of Gunfire and Death Threats**\
+`Quotation of the day for Tuesday, April 28, 2026.`\
+https://www.nytimes.com/2026/04/27/pageoneplus/quote-of-the-day-a-disquieting-political-routine-of-gunfire-and-death-threats.html
+
 **British Embassy Hosts Royal Couple, and a Few Hundred More, at Garden Party**\
 `King Charles III and Queen Camilla gathered with Washington’s famous and not so famous for an off-the-record evening.`\
 https://www.nytimes.com/2026/04/27/us/politics/british-embassy-hosts-royal-couple-and-a-few-hundred-more-at-garden-party.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/04/27/magazine/romeo-santos-aventura-ba
 **Nile Rodgers Brings Gritty Glamor and Big Ideas to the Dance Floor**\
 `He helped make the spirit of 1970s New York a global ideal, immortalized in anthems of freedom and transgression.`\
 https://www.nytimes.com/interactive/2026/04/27/magazine/nile-rodgers-chic-disco-dance.html
-
-**Smokey Robinson Designed the Love Song as We Know It**\
-`He has written dozens of classic songs for classic acts — all in lucid, crystalline language, with a timeless elegance that still sets them soaring.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/smokey-robinson-miracles-motown-soul.html
 
