@@ -1,3 +1,15 @@
+**F.B.I. Searches Businesses Around Minneapolis as Part of Fraud Inquiry**\
+`Investigators obtained 22 search warrants to collect evidence as part of a fraud investigation in a state that has become a top concern for the Trump administration.`\
+https://www.nytimes.com/2026/04/28/us/fbi-minneapolis-fraud-investigation.html
+
+**Luxury Yacht Linked to Russian Oligarch Passes Through Strait of Hormuz**\
+`The Nord, a 464-foot vessel, appears to be tied to Aleksei A. Mordashov, a Russian steel mogul who is under American and European sanctions.`\
+https://www.nytimes.com/2026/04/28/world/middleeast/yacht-strait-hormuz-russia-oligarch.html
+
+**In Major Move, United Arab Emirates Says It Will Leave OPEC**\
+`The Gulf government has long complained about the oil cartel’s quotas, which officials believe unfairly limited its exports.`\
+https://www.nytimes.com/2026/04/28/world/middleeast/uae-opec.html
+
 **Epstein Scandal Looms Over King Charles’s U.S. Visit**\
 `The king is not planning to meet with victims of Jeffrey Epstein during his state visit because of “ongoing police inquiries” in Britain. The king’s brother was close to Mr. Epstein, a convicted sex offender.`\
 https://www.nytimes.com/2026/04/28/us/king-charles-visit-epstein.html

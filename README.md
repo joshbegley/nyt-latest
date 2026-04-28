@@ -1,3 +1,7 @@
+**A Work-Wear Staple in Gentle Pastels**\
+`A stylish woman in Upper Manhattan can’t be bothered with “tucking in shirts and all the things.”`\
+https://www.nytimes.com/2026/04/28/style/a-work-wear-staple-in-gentle-pastels.html
+
 **F.B.I. Searches Businesses Around Minneapolis as Part of Fraud Inquiry**\
 `Investigators obtained 22 search warrants to collect evidence as part of a fraud investigation in a state that has become a top concern for the Trump administration.`\
 https://www.nytimes.com/2026/04/28/us/fbi-minneapolis-fraud-investigation.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/world/asia/100000010844179/gas-prices-philippines-
 **¿Devolverá algún día la Cuba comunista los miles de millones que confiscó?**\
 `Con Cuba sumida en una grave crisis económica, las personas cuyas propiedades fueron confiscadas por su gobierno comunista dicen que ha llegado el momento de resolver las espinosas reclamaciones de indemnización.`\
 https://www.nytimes.com/es/2026/04/28/espanol/america-latina/cuba-indemnizacion-propiedades-confiscadas.html
-
-**Political Campaigns Have No Idea What’s About to Hit Them**\
-`Social media helped put Trump over the top. What’s A.I. going to do to us?`\
-https://www.nytimes.com/2026/04/28/opinion/political-campaigns-artificial-intelligence.html
 
