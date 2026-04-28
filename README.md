@@ -1,3 +1,15 @@
+**Offbeat Obituaries Honor Loss With Levity (and Brutal Honesty)**\
+`Irreverent tributes filled with unvarnished truths and funny anecdotes, which run counter to more somber traditional obituaries, have gained attention for “how alive they feel,” a researcher said.`\
+https://www.nytimes.com/2026/04/28/us/offbeat-obituaries-brutal-honesty.html
+
+**Is the U.S. in a Politically Violent Age? What the Data and History Say**\
+`A conversation with Sean Westwood, a professor at Dartmouth who tracks political violence and Americans’ perceptions of it.`\
+https://www.nytimes.com/2026/04/28/us/politics/political-violence-data-trump-dinner-shooting.html
+
+**22 Monks Smuggled 240 Pounds of Cannabis Into Sri Lanka, Officials Say**\
+`The group of Buddhist monks were arrested on Saturday at the country’s main international airport after a trip to Thailand that the authorities said was a cover for narcotics trafficking.`\
+https://www.nytimes.com/2026/04/28/world/asia/buddhist-monks-cannabis-sri-lanka.html
+
 **Google Signs A.I. Deal With the Pentagon**\
 `The Pentagon has also signed deals for using A.I. on classified networks with OpenAI and Elon Musk’s xAI, amid a dispute with Anthropic.`\
 https://www.nytimes.com/2026/04/28/technology/google-ai-deal-pentagon.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/28/opinion/letters/measles-children.html
 **This trial comes amid a growing national backlash against A.I.**\
 ``\
 https://www.nytimes.com/live/2026/04/28/technology/openai-sam-altman-elon-musk-trial/this-trial-comes-amid-a-growing-national-backlash-against-ai
-
-**Today, In Short**\
-`A “Jeopardy!” streak ends. A royal visit. And have movies gotten darker?`\
-https://www.nytimes.com/2026/04/28/briefing/today-in-short.html
-
-**G.M.’s Profit Bolstered by a $500 Million Tariff Refund**\
-`Because of a February Supreme Court decision, General Motors said it would receive refunds on some of the tariffs it had paid.`\
-https://www.nytimes.com/2026/04/28/business/general-motors-trump-tariffs.html
-
-**A Warm, Filling Salad Fit for Dinner**\
-`A substantial mix of charred broccoli, salmon and soba catapults this salad out of side territory.`\
-https://www.nytimes.com/2026/04/28/dining/a-warm-filling-salad-fit-for-dinner.html
 
