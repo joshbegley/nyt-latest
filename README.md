@@ -1,3 +1,7 @@
+**Con ustedes, el nuevo líder del mundo libre**\
+`Volodímir Zelenski les está mostrando a los países europeos, y a otras naciones, cómo el mundo libre pos-Estados Unidos puede preservar su libertad e independencia.`\
+https://www.nytimes.com/es/2026/04/28/espanol/opinion/zelenski-lider-mundo-libre.html
+
 **¿Cómo enfrentará BTS una gira mundial agotadora?**\
 `El antiguo entrenador del grupo comparó a sus integrantes con atletas profesionales. “Es un trabajo que somete al cuerpo a mucho más esfuerzo del que la mayoría de la gente cree”.`\
 https://www.nytimes.com/es/2026/04/28/espanol/cultura/bts-gira-mundial.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/04/27/magazine/greatest-american-songwr
 **How We Made the List of the 30 Greatest Living American Songwriters**\
 `First we polled hundreds of experts. Then Times critics spent weeks arguing about what constitutes greatness in American music.`\
 https://www.nytimes.com/interactive/2026/04/27/magazine/greatest-living-songwriters-methodology.html
-
-**See Who Insiders Nominated as America’s Greatest Living Songwriters**\
-`We received more than 250 expert ballots. Explore some of them here.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/critics-pick-greatest-american-songwriters.html
 
