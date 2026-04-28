@@ -1,3 +1,7 @@
+**Word of the Day: analogous**\
+`This word has appeared in 54 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/04/28/learning/word-of-the-day-analogous.html
+
 **Haiti’s Original Sin? Freedom.**\
 `Haiti’s revolution shocked the world. America still isn’t over it.`\
 https://www.nytimes.com/2026/04/28/opinion/haitis-original-sin-freedom.html

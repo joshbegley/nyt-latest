@@ -1,10 +1,14 @@
-**Haiti’s Original Sin? Freedom.**\
-`Haiti’s revolution shocked the world. America still isn’t over it.`\
-https://www.nytimes.com/2026/04/28/opinion/haitis-original-sin-freedom.html
+**Word of the Day: analogous**\
+`This word has appeared in 54 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/04/28/learning/word-of-the-day-analogous.html
 
 **La madre que no habla**\
 `Cuando su hijo de 11 años desapareció el año pasado, Jacqueline Pritchett se negó incluso a reconocer su existencia.`\
 https://www.nytimes.com/es/2026/04/28/espanol/estados-unidos/jacob-pritchett-desaparecido-madre.html
+
+**Haiti’s Original Sin? Freedom.**\
+`Haiti’s revolution shocked the world. America still isn’t over it.`\
+https://www.nytimes.com/2026/04/28/opinion/haitis-original-sin-freedom.html
 
 **‘They Said A.I. Saved Me’: How South Korea Is Checking on Its Seniors**\
 `In the world’s fastest aging society, artificial intelligence is being used to make care calls to older adults who live alone and to fight dementia.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/04/27/magazine/lucinda-williams-storyte
 **Diane Warren Is a Titan of Lavish Power Ballads. You Adore at Least One.**\
 `Her widescreen, acrobatic songs have dominated radios, karaoke nights and — most likely — a big portion of your memory.`\
 https://www.nytimes.com/interactive/2026/04/27/magazine/diane-warren-songs-popular-hits.html
-
-**Young Thug Didn’t Just Mutate Hip-Hop. He Changed the Whole Act of Vocalizing.**\
-`He single-handedly changed hip-hop into something futuristic and alien — right when the genre needed it most.`\
-https://www.nytimes.com/interactive/2026/04/27/magazine/young-thug-hip-hop-rap.html
 
