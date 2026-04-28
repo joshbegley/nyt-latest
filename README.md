@@ -1,3 +1,7 @@
+**Deal Talks Between Pernod and Maker of Jack Daniel’s Falter**\
+`The collapse of negotiations could pave the way for another spirits company, Sazerac, to make a bid for Brown-Forman.`\
+https://www.nytimes.com/2026/04/28/business/pernod-brown-forman-talks-jack-daniels.html
+
 **The Latest Place Trump’s Face Will Appear: Some U.S. Passports**\
 `The department said it planned to release “a limited number of specially designed” U.S. passports that feature a picture of the president to commemorate the country’s 250th anniversary in July.`\
 https://www.nytimes.com/2026/04/28/us/politics/trump-passports.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/28/business/opec-oil-cartel-prices.html
 **Kennedy Center Works to Make the Case That Repairs Are Urgent**\
 `In Washington and in federal court, the center is arguing that its planned two-year closure is crucial. Critics say it’s a result of declining attendance and fleeing artists.`\
 https://www.nytimes.com/2026/04/28/arts/kennedy-center-closure-trump.html
-
-**Mexico Says 4 Foreigners Were at Cartel Raid Where 2 C.I.A. Officers Died**\
-`Mexican officials revealed that four foreigners — not two — were present during a counterdrug operation in northern Mexico where a crash killed two men later identified as C.I.A. officers.`\
-https://www.nytimes.com/2026/04/28/world/americas/mexico-crash-cia-officers.html
 
