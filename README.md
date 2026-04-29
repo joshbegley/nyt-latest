@@ -1,3 +1,7 @@
+**Road Closures and Traffic Delays Expected for Charles and Camilla’s Day in New York**\
+`The New York Police Department urged commuters to use public transportation during the royal visit on Wednesday.`\
+https://www.nytimes.com/2026/04/29/us/king-charles-nyc-traffic-road-closures.html
+
 **What to know about T.P.S. for Haitians and Syrians.**\
 ``\
 https://www.nytimes.com/live/2026/04/29/us/supreme-court-immigration-tps/tps-haitians-syrians
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/29/world/europe/king-charles-us-trips-visits.htm
 **Oro sucio**\
 `Una investigación del Times muestra cómo las casas de la moneda de EE. UU. y Canadá compraron oro procedente de un cartel de la droga de Colombia.`\
 https://www.nytimes.com/es/2026/04/29/espanol/mundo/oro-casa-moneda-cartel-colombia.html
-
-**Aguas claras, moral turbia: cuando los humanos nadan con orcas**\
-`Solo en dos lugares del mundo se permite a los humanos entrar en el agua con el depredador supremo del océano. A medida que aumentan las multitudes y cambian las normativas, la seguridad de ambas especies es motivo de preocupación.`\
-https://www.nytimes.com/es/2026/04/29/espanol/ciencia-y-tecnologia/turismo-buceo-orcas-mexico-noruega.html
 
