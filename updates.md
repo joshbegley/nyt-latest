@@ -1,3 +1,31 @@
+**At State Dinner, King Charles Charms the Court of Trump**\
+`King Charles III presented President Trump with a golden bell. “Should you ever need to get hold of us,” the king said, “well, just give us a ring!”`\
+https://www.nytimes.com/2026/04/29/us/politics/at-state-dinner-king-charles-enters-the-court-of-trump.html
+
+**How Iran Accumulated 11 Tons of Enriched Uranium**\
+`Two months after the United States began a war meant to prevent Iran from ever building an atomic bomb, the fate of its stockpile of enriched uranium remains a mystery.`\
+https://www.nytimes.com/interactive/2026/04/29/science/iran-enriched-uranium-stockpile-nuclear-energy-bomb.html
+
+**Gallows Humor Provides Respite From Mideast Wars**\
+`Arab digital creators on social media are turning out edgy material to cope with the conflicts and bring levity to a pain that often feels too raw.`\
+https://www.nytimes.com/2026/04/29/world/middleeast/mideast-war-humor.html
+
+**Global Deforestation Slows, Analysis Finds. But Fires Remain a Major Threat.**\
+`In 2025, the world razed less forest than any other year in the last decade. The bad news: global warming is making wildfires more frequent and intense.`\
+https://www.nytimes.com/2026/04/29/climate/wri-report-forest-loss.html
+
+**Corrections: April 29, 2026**\
+`Corrections that appeared in print on Wednesday, April 29, 2026.`\
+https://www.nytimes.com/2026/04/29/pageoneplus/corrections-april-29-2026.html
+
+**Quote of the Day: In Months, China Turns Reef Into Possible Base**\
+`Quotation of the Day for Wednesday, April 29, 2026.`\
+https://www.nytimes.com/2026/04/28/pageoneplus/quote-of-the-day-in-months-china-turns-reef-into-possible-base.html
+
+**Mamdani’s Candidate Concedes in High-Profile Council Race in Manhattan**\
+`The City Council special election pitting Lindsey Boylan, backed by Mayor Zohran Mamdani, against Carl Wilson, a community activist, was not officially called. But Ms. Boylan conceded.`\
+https://www.nytimes.com/2026/04/28/nyregion/nyc-city-council-election.html
+
 **Carl Wilson Has Won High-Profile City Council Race, Mamdani Says**\
 `The City Council special election pitting Lindsey Boylan, backed by Mayor Zohran Mamdani, against Carl Wilson, a community activist, was not officially called. But the mayor said Mr. Wilson had won.`\
 https://www.nytimes.com/2026/04/28/nyregion/nyc-city-council-election.html
