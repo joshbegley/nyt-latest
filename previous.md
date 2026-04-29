@@ -1,3 +1,7 @@
+**Takeaways from Powell’s final Fed meeting as chair**\
+``\
+https://www.nytimes.com/live/2026/04/29/business/federal-reserve-interest-rates/takeaways-from-powells-final-fed-meeting-as-chair
+
 **Tupac Shakur’s Stepbrother Files Wrongful Death Lawsuit, 29 Years After Murder**\
 `Maurice Shakur said in a complaint filed against Duane Keith Davis, who was charged in 2023 with the rapper’s murder, that the “threads are starting to come together.”`\
 https://www.nytimes.com/2026/04/29/arts/music/tupac-murder-lawsuit-stepbrother.html
@@ -18,7 +22,7 @@ https://www.nytimes.com/2026/04/29/business/china-silicon-valley-manus.html
 `The federal law had been a “game changer” for Latino voters, but Wednesday’s ruling could weaken Asian Americans’ political power in the state.`\
 https://www.nytimes.com/2026/04/29/us/elections/voting-rights-act-supreme-court-california.html
 
-**Takeaways from the Fed’s latest meeting, Powell’s last as chair.**\
+**Takeaways from Powell’s final Fed meeting as chair**\
 ``\
 https://www.nytimes.com/live/2026/04/29/business/federal-reserve-interest-rates/takeaways-from-powells-final-news-conference-as-fed-chair
 
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/04/29/arts/design/us-italy-art-looting.html
 **The Iran War Might Be an ‘Everything War’**\
 `It won’t be so easy to extract ourselves from this conflict.`\
 https://www.nytimes.com/2026/04/29/opinion/iran-war-polycrisis.html
-
-**Republicans eye redistricting opportunities in the South, starting with Louisiana.**\
-``\
-https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/republicans-eye-redistricting-opportunities-in-the-south-starting-with-louisiana
 

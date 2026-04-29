@@ -1,3 +1,7 @@
+**Mississippi will move quickly to redraw its judicial district lines.**\
+``\
+https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/mississippi-will-move-quickly-to-redraw-its-judicial-district-lines
+
 **Takeaways from Powell’s final Fed meeting as chair**\
 ``\
 https://www.nytimes.com/live/2026/04/29/business/federal-reserve-interest-rates/takeaways-from-powells-final-fed-meeting-as-chair
@@ -62,15 +66,11 @@ https://www.nytimes.com/2026/04/29/us/illinois-protesters-charges-dropped.html
 ``\
 https://www.nytimes.com/live/2026/04/29/technology/openai-trial-sam-altman-elon-musk/even-without-openai-elon-musk-has-made-ai-a-big-part-of-his-business-empire
 
-**U.S. Indicts Mexican Governor on Accusations of Aiding Cartels**\
-`Prosecutors accused Rubén Rocha Moya, the governor of Sinaloa state, of a yearslong scheme to protect the powerful Sinaloa drug cartel in exchange for bribes and votes.`\
+**U.S. Indicts Mexican Governor on Accusations of Aiding Sinaloa Cartel**\
+`Prosecutors accused Rubén Rocha Moya, the governor of Sinaloa state, and other Mexican officials of a yearslong scheme to protect the powerful drug cartel.`\
 https://www.nytimes.com/2026/04/29/world/americas/ruben-rocha-moya-indictment-mexico.html
 
 **U.S. and Italy Honor Alliance to Curb Art Looting, Amid Broader Tensions**\
 `Standing near dozens of repatriated artifacts, officials from the countries celebrated efforts that have led to the return of thousands of artworks to Italy.`\
 https://www.nytimes.com/2026/04/29/arts/design/us-italy-art-looting.html
-
-**The Iran War Might Be an ‘Everything War’**\
-`It won’t be so easy to extract ourselves from this conflict.`\
-https://www.nytimes.com/2026/04/29/opinion/iran-war-polycrisis.html
 

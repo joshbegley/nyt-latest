@@ -1,3 +1,11 @@
+**Takeaways from Powell’s final Fed meeting as chair**\
+``\
+https://www.nytimes.com/live/2026/04/29/business/federal-reserve-interest-rates/takeaways-from-powells-final-fed-meeting-as-chair
+
+**Takeaways from Powell’s final Fed meeting as chair**\
+``\
+https://www.nytimes.com/live/2026/04/29/business/federal-reserve-interest-rates/takeaways-from-powells-final-news-conference-as-fed-chair
+
 **Tupac Shakur’s Stepbrother Files Wrongful Death Lawsuit, 29 Years After Murder**\
 `Maurice Shakur said in a complaint filed against Duane Keith Davis, who was charged in 2023 with the rapper’s murder, that the “threads are starting to come together.”`\
 https://www.nytimes.com/2026/04/29/arts/music/tupac-murder-lawsuit-stepbrother.html
