@@ -66,8 +66,8 @@ https://www.nytimes.com/2026/04/29/business/dealbook/trump-disney-kimmel-fcc.htm
 `We look into whether the U.S. is in a new era of violent extremism.`\
 https://www.nytimes.com/2026/04/29/briefing/an-age-of-political-violence.html
 
-**2 People Stabbed in North London, Jewish Charity Says**\
-`The volunteer-run charity, Shomrim, said in a post on social media that two people were injured and a suspect was detained.`\
+**Counterterrorism Police Investigating Stabbing in Jewish Area in London**\
+`Two men who were stabbed in Golders Green on Wednesday were reported in stable condition, the police said. One man was arrested.`\
 https://www.nytimes.com/2026/04/29/world/europe/london-stabbing-golders-green.html
 
 **Here’s the latest.**\
