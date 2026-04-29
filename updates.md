@@ -1,3 +1,23 @@
+**King Charles and Queen Camilla to Visit New York’s 9/11 Memorial**\
+`After attending a ceremony at the memorial in Lower Manhattan, the royal couple is scheduled to visit a Harlem nonprofit, the New York Public Library’s main branch and Christie’s.`\
+https://www.nytimes.com/2026/04/29/nyregion/king-charles-us-visit-new-york.html
+
+**Un chatbot de IA ayuda a cuidar a personas mayores en Corea del Sur**\
+`Esta nación envejece más rápido que ningún otro país. Como no cuentan con trabajadores sociales o cuidadores familiares suficientes, la IA ayuda a llenar parte del vacío.`\
+https://www.nytimes.com/es/2026/04/29/espanol/mundo/inteligencia-artificial-demencia-corea.html
+
+**A.I. Artist?**\
+`Is it OK to use artificial intelligence to create art?`\
+https://www.nytimes.com/2026/04/29/learning/ai-artist.html
+
+**A City Hall Reporter Reveals Where the Scoops Come From**\
+`Sally Goldenberg covers New York City politics and government for The Times, attending to a network of sources more than 20 years in the making.`\
+https://www.nytimes.com/2026/04/29/insider/sally-goldenberg-new-york-times.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/29/crosswords/spelling-bee-forum.html
+
 **¿Las películas son cada vez más oscuras? Ponemos el foco en la duda**\
 `A menudo, los espectadores se preguntan por qué las películas actuales se ven más oscuras que las de hace años. He aquí el diagnóstico de algunos expertos.`\
 https://www.nytimes.com/es/2026/04/29/espanol/cultura/peliculas-oscuras-luces.html

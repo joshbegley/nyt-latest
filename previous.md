@@ -1,3 +1,23 @@
+**King Charles and Queen Camilla to Visit New York’s 9/11 Memorial**\
+`After attending a ceremony at the memorial in Lower Manhattan, the royal couple is scheduled to visit a Harlem nonprofit, the New York Public Library’s main branch and Christie’s.`\
+https://www.nytimes.com/2026/04/29/nyregion/king-charles-us-visit-new-york.html
+
+**Un chatbot de IA ayuda a cuidar a personas mayores en Corea del Sur**\
+`Esta nación envejece más rápido que ningún otro país. Como no cuentan con trabajadores sociales o cuidadores familiares suficientes, la IA ayuda a llenar parte del vacío.`\
+https://www.nytimes.com/es/2026/04/29/espanol/mundo/inteligencia-artificial-demencia-corea.html
+
+**A.I. Artist?**\
+`Is it OK to use artificial intelligence to create art?`\
+https://www.nytimes.com/2026/04/29/learning/ai-artist.html
+
+**A City Hall Reporter Reveals Where the Scoops Come From**\
+`Sally Goldenberg covers New York City politics and government for The Times, attending to a network of sources more than 20 years in the making.`\
+https://www.nytimes.com/2026/04/29/insider/sally-goldenberg-new-york-times.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/29/crosswords/spelling-bee-forum.html
+
 **¿Las películas son cada vez más oscuras? Ponemos el foco en la duda**\
 `A menudo, los espectadores se preguntan por qué las películas actuales se ven más oscuras que las de hace años. He aquí el diagnóstico de algunos expertos.`\
 https://www.nytimes.com/es/2026/04/29/espanol/cultura/peliculas-oscuras-luces.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/04/28/world/asia/indonesia-andrei-acid-trial.html
 **Mamdani’s Candidate Concedes in High-Profile Council Race in Manhattan**\
 `The City Council special election pitting Lindsey Boylan, backed by Mayor Zohran Mamdani, against Carl Wilson, a community activist, was not officially called. But Ms. Boylan conceded.`\
 https://www.nytimes.com/2026/04/28/nyregion/nyc-city-council-election.html
-
-**Oakland’s Airport Can Use ‘San Francisco’ in Its Name Under Settlement**\
-`The agreement ends a two-year dispute between the Bay Area cities over the smaller airport’s rebranding.`\
-https://www.nytimes.com/2026/04/28/us/oakland-airport-san-francisco-name-settlement.html
-
-**Rose Up**\
-`Joseph Gangi shares a great Wednesday puzzle.`\
-https://www.nytimes.com/2026/04/28/crosswords/daily-puzzle-2026-04-29.html
-
-**Dirk Kempthorne, Former Idaho Governor and Interior Secretary, Dies at 74**\
-`A Republican, Mr. Kempthorne rose to prominence as the mayor of Boise in the late 1980s and early ’90s, as the city became a haven for outdoor enthusiasts.`\
-https://www.nytimes.com/2026/04/28/us/dirk-kempthorne-dead.html
-
-**White House Urges House to Quickly Fund D.H.S.**\
-`The call amounted to a rebuke of Speaker Mike Johnson, who has delayed action on a homeland security spending bill and suggested this week that it needed changes.`\
-https://www.nytimes.com/2026/04/28/us/politics/congress-dhs-funding.html
-
-**Full Guest List for Trump’s State Dinner With Charles and Camilla**\
-`Six members of the Supreme Court were invited to the dinner, alongside top administration officials, billionaires and Republican lawmakers.`\
-https://www.nytimes.com/2026/04/28/us/politics/state-dinner-guest-list.html
 
