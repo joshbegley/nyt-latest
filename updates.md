@@ -1,3 +1,7 @@
+**Florida Lawmakers Debate Aggressive New Map as Supreme Court Decision Lands**\
+`The map would eliminate as many as four Democratic-held districts, including one that is heavily Puerto Rican. Republicans expressed confidence in the map’s legality.`\
+https://www.nytimes.com/2026/04/29/us/elections/voting-rights-scotus-florida.html
+
 **Why Is There a Voting Rights Act? A Timeline**\
 `Here’s a look at some key events that led to and followed the Voting Rights Act of 1965.`\
 https://www.nytimes.com/2026/04/29/us/voting-rights-act-history.html
