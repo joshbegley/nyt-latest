@@ -1,3 +1,11 @@
+**Jimmy Kimmel Spills the Tea on Trump’s Royal Meeting**\
+`The late night show host called the king of England “one of the very few people who might actually be able to tip things even slightly in a positive direction.”`\
+https://www.nytimes.com/2026/04/29/arts/television/jimmy-kimmel-trump-royals.html
+
+**5 Takeaways From the Latest Debate in the California Governor’s Race**\
+`The candidates felt pressure to differentiate themselves, with ballots going out to voters next week. The result was a more spirited battle than past debates.`\
+https://www.nytimes.com/2026/04/29/us/elections/california-governor-debate-pomona.html
+
 **La popularidad de Trump cae de cara a las elecciones intermedias**\
 `Aún faltan seis meses para las elecciones, y algunos miembros del partido del presidente afirman que aún hay tiempo para enderezar el rumbo, pese al panorama desalentador.`\
 https://www.nytimes.com/es/2026/04/29/espanol/estados-unidos/popularidad-trump-elecciones-intermedias.html

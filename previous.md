@@ -1,3 +1,11 @@
+**Jimmy Kimmel Spills the Tea on Trump’s Royal Meeting**\
+`The late night show host called the king of England “one of the very few people who might actually be able to tip things even slightly in a positive direction.”`\
+https://www.nytimes.com/2026/04/29/arts/television/jimmy-kimmel-trump-royals.html
+
+**5 Takeaways From the Latest Debate in the California Governor’s Race**\
+`The candidates felt pressure to differentiate themselves, with ballots going out to voters next week. The result was a more spirited battle than past debates.`\
+https://www.nytimes.com/2026/04/29/us/elections/california-governor-debate-pomona.html
+
 **La popularidad de Trump cae de cara a las elecciones intermedias**\
 `Aún faltan seis meses para las elecciones, y algunos miembros del partido del presidente afirman que aún hay tiempo para enderezar el rumbo, pese al panorama desalentador.`\
 https://www.nytimes.com/es/2026/04/29/espanol/estados-unidos/popularidad-trump-elecciones-intermedias.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/28/us/politics/menu-british-royal-state-dinner.h
 **King Charles III Delivers Message of Unity to Congress**\
 `King Charles III delivered an address to a joint meeting of Congress on Tuesday, becoming only the second British monarch to do so.`\
 https://www.nytimes.com/video/us/100000010865581/king-charles-speech-congress.html
-
-**Starbucks Reports Strong Store Traffic and Rise in Quarterly Sales**\
-`The chain’s chief executive credited its turnaround plan for improved U.S. same-store sales, but said higher gas and utility costs were a concern.`\
-https://www.nytimes.com/2026/04/28/business/starbucks-quarterly-earnings.html
-
-**Man Accuses N.Y.P.D. Detectives in Legal Filing of Brutal Assault**\
-`Timothy Brown said he had been humiliated and injured after he was punched and kicked by police during a wrongful arrest that was caught on video.`\
-https://www.nytimes.com/2026/04/28/nyregion/beating-nypd-brooklyn-narcotics-claim.html
 
