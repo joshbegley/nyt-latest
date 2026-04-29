@@ -1,3 +1,7 @@
+**Meta Accused of Failing to Keep Children Off Instagram and Facebook in Europe**\
+`European Union regulators said the company did not have effective controls to check a user’s self-declared date of birth, in violation of an online safety law.`\
+https://www.nytimes.com/2026/04/29/business/meta-instagram-facebook-children.html
+
 **King Charles and Queen Camilla to Visit New York’s 9/11 Memorial**\
 `After attending a ceremony at the memorial in Lower Manhattan, the royal couple is scheduled to visit a Harlem nonprofit, the New York Public Library’s main branch and Christie’s.`\
 https://www.nytimes.com/2026/04/29/nyregion/king-charles-us-visit-new-york.html

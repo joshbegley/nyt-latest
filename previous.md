@@ -1,3 +1,7 @@
+**Meta Accused of Failing to Keep Children Off Instagram and Facebook in Europe**\
+`European Union regulators said the company did not have effective controls to check a user’s self-declared date of birth, in violation of an online safety law.`\
+https://www.nytimes.com/2026/04/29/business/meta-instagram-facebook-children.html
+
 **King Charles and Queen Camilla to Visit New York’s 9/11 Memorial**\
 `After attending a ceremony at the memorial in Lower Manhattan, the royal couple is scheduled to visit a Harlem nonprofit, the New York Public Library’s main branch and Christie’s.`\
 https://www.nytimes.com/2026/04/29/nyregion/king-charles-us-visit-new-york.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/28/pageoneplus/quote-of-the-day-in-months-china-
 **Acid Attack in Indonesia Evokes Brutality of Suharto Era**\
 `The victim had protested against the widening role of the military, which activists say is reminiscent of the country’s decades-long dictatorship.`\
 https://www.nytimes.com/2026/04/28/world/asia/indonesia-andrei-acid-trial.html
-
-**Mamdani’s Candidate Concedes in High-Profile Council Race in Manhattan**\
-`The City Council special election pitting Lindsey Boylan, backed by Mayor Zohran Mamdani, against Carl Wilson, a community activist, was not officially called. But Ms. Boylan conceded.`\
-https://www.nytimes.com/2026/04/28/nyregion/nyc-city-council-election.html
 
