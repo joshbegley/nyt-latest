@@ -1,3 +1,19 @@
+**These are the lawyers who will be arguing the T.P.S. case.**\
+`The justices will hear from the solicitor general, followed by lawyers for Syrians and Haitians.`\
+https://www.nytimes.com/live/2026/04/29/us/supreme-court-immigration-tps/these-are-the-lawyers-who-will-be-arguing-the-tps-case
+
+**Warsh Clears an Early Hurdle on Path to Fed Chair**\
+`The Senate Banking Committee advanced Kevin Warsh’s nomination as Fed chair on Wednesday, teeing up the full chamber to hold a vote soon.`\
+https://www.nytimes.com/2026/04/29/business/economy/warsh-federal-reserve-chair.html
+
+**Latest Round of Severe Weather Destroys Many Homes and Businesses in Texas**\
+`Officials in Mineral Wells, west of Dallas, were assessing the considerable damage on Wednesday morning.`\
+https://www.nytimes.com/2026/04/29/us/texas-missouri-tornado-storm-damage.html
+
+**Uber Can Already Bring You Dinner. Now, It Wants to Book Your Hotel Room.**\
+`In partnership with Expedia, the ride-booking, food-delivering, package-transporting service takes another step toward becoming a super app.`\
+https://www.nytimes.com/2026/04/29/travel/uber-hotel-booking-expedia.html
+
 **Officials Distorted Facts to Justify Deporting Haitians, Internal Emails Show**\
 `Emails revealed in a California lawsuit and now submitted to the Supreme Court show that an administration researcher privately disputed claims about Haitians.`\
 https://www.nytimes.com/2026/04/29/us/politics/haitians-internal-emails-tps.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/29/well/eat/infant-formula-safety-fda.html
 **Fidelity Won’t Let Fund Holders Donate to Southern Poverty Law Center**\
 `Fidelity cited the Justice Department’s recent action against the civil rights organization in emails to holders of its charitable-giving funds explaining its decision.`\
 https://www.nytimes.com/2026/04/29/business/fidelity-southern-poverty-law-center.html
-
-**For a royal family in turmoil, the state visit could be a moment of positivity.**\
-``\
-https://www.nytimes.com/live/2026/04/29/us/king-charles-royal-visit-trump-us/for-a-royal-family-in-turmoil-the-state-visit-could-be-a-moment-of-positivity
-
-**Indian Tycoon Offers Refuge to Pablo Escobar’s Condemned Hippos**\
-`Colombia was planning to slaughter 80 hippopotamuses after a small herd imported in the 1980s by the drug lord grew out of control. An Indian tycoon has offered them a new home instead.`\
-https://www.nytimes.com/2026/04/29/world/asia/indian-tycoon-ambani-hippos-colombia-escobar.html
-
-**The Stakes of Trump’s Latest Fight With Disney**\
-`The Federal Communications Commission is clashing again with the media giant. It’s another warning about the costs of angering President Trump.`\
-https://www.nytimes.com/2026/04/29/business/dealbook/trump-disney-kimmel-fcc.html
-
-**An Age of Political Violence?**\
-`We look into whether the U.S. is in a new era of violent extremism.`\
-https://www.nytimes.com/2026/04/29/briefing/an-age-of-political-violence.html
 
