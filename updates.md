@@ -1,3 +1,7 @@
+**tk**\
+`tk`\
+https://static01.nyt.com/slideshow/2026/04/29/t-magazine/tk.html
+
 **What to Know About the Voting Rights Act**\
 `The 1965 law was mean to address fundamental inequities in American life, and was one of the signal accomplishments of the civil rights movement.`\
 https://www.nytimes.com/2026/04/29/us/elections/voting-rights-act-explainer.html

@@ -1,3 +1,7 @@
+**tk**\
+`tk`\
+https://static01.nyt.com/slideshow/2026/04/29/t-magazine/tk.html
+
 **What to Know About the Voting Rights Act**\
 `The 1965 law was mean to address fundamental inequities in American life, and was one of the signal accomplishments of the civil rights movement.`\
 https://www.nytimes.com/2026/04/29/us/elections/voting-rights-act-explainer.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/04/29/business/federal-reserve-interest-rates/
 **El rey Carlos refutó de forma sutil a Trump**\
 `El rey Carlos III respondió con delicadeza a los ataques del presidente Trump contra el Reino Unido y la OTAN, y habló de la importancia de los controles y equilibrios.`\
 https://www.nytimes.com/es/2026/04/29/espanol/estados-unidos/trump-rey-carlos-que-dijo.html
-
-**Florida Lawmakers Debate Aggressive New Map as Supreme Court Decision Lands**\
-`The map would eliminate as many as four Democratic-held districts, including one that is heavily Puerto Rican. Republicans expressed confidence in the map’s legality.`\
-https://www.nytimes.com/2026/04/29/us/elections/voting-rights-scotus-florida.html
 
