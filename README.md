@@ -1,3 +1,11 @@
+**Trump Administration Sues New Jersey Governor Over ICE Mask Ban**\
+`New Jersey, where Mikie Sherrill is governor, is one of only a few states to try to bar federal immigration agents from wearing masks.`\
+https://www.nytimes.com/2026/04/29/nyregion/new-jersey-trump-ice-mask-lawsuit.html
+
+**A.I. Spending Sets a Record, With No End in Sight**\
+`Google, Amazon, Microsoft and Meta reported more than $130 billion in quarterly capital expenditures on Wednesday as they build A.I. data centers. There’s more to come.`\
+https://www.nytimes.com/2026/04/29/technology/ai-spending-sets-a-record-with-no-end-in-sight.html
+
 **Ford Reports Higher Profit Thanks Partly to Tariff Refund**\
 `Ford Motor said it expected the federal government to refund $1.3 billion the company paid in tariffs that were later struck down by the Supreme Court.`\
 https://www.nytimes.com/2026/04/29/business/ford-motor-tariff-refund-profit.html
@@ -16,7 +24,7 @@ https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/mississip
 
 **Takeaways from Powell’s final Fed meeting as chair**\
 ``\
-https://www.nytimes.com/live/2026/04/29/business/federal-reserve-interest-rates/takeaways-from-powells-final-fed-meeting-as-chair
+https://www.nytimes.com/2026/04/29/business/economy/takeaways-from-powells-final-fed-meeting-as-chair.html
 
 **Tupac Shakur’s Stepbrother Files Wrongful Death Lawsuit, 29 Years After Murder**\
 `Maurice Shakur said in a complaint filed against Duane Keith Davis, who was charged in 2023 with the rapper’s murder, that the “threads are starting to come together.”`\
@@ -65,12 +73,4 @@ https://www.nytimes.com/2026/04/29/us/florida-house-gop-map.html
 **Republicans Seize Back an Edge in the Nation’s Redistricting Fight**\
 `Democrats had earned a slight advantage with a victory in Virginia last week, but now a Supreme Court decision and Florida’s move to pass a new map are set to help Republicans.`\
 https://www.nytimes.com/2026/04/29/us/elections/redistricting-gerrymandering-midterms-republicans-democrats.html
-
-**The queen visits N.Y.’s library to spend time with the original Winnie-the-Pooh.**\
-``\
-https://www.nytimes.com/live/2026/04/29/us/king-charles-royal-visit-trump-us/the-queen-visits-nys-library-to-spend-time-with-the-original-winnie-the-pooh
-
-**U.S. Prosecutors to Drop Felony Charges Against Illinois Protesters**\
-`Prosecutors, in a significant retreat, said they would abandon conspiracy counts against activists, including a former congressional candidate, and refile with misdemeanors.`\
-https://www.nytimes.com/2026/04/29/us/illinois-protesters-charges-dropped.html
 

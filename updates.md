@@ -1,3 +1,15 @@
+**Ford Reports Higher Profit Thanks Partly to Tariff Refund**\
+`Ford Motor said it expected the federal government to refund $1.3 billion the company paid in tariffs that were later struck down by the Supreme Court.`\
+https://www.nytimes.com/2026/04/29/business/ford-motor-tariff-refund-profit.html
+
+**Lo que significa una Iglesia católica que no le teme a Donald Trump**\
+`El choque entre el papa León XIV y el presidente de EE. UU. revela una búsqueda de autoridad moral en tiempos de incertidumbre.`\
+https://www.nytimes.com/es/2026/04/29/espanol/opinion/papa-iglesia-trump.html
+
+**Bob Odenkirk: In a Bleak World, Turn to Comedy**\
+`Bob Odenkirk, who stars in a new action movie, “Normal,” got his start in comedy working as a writer on “Saturday Night Live” and acting on “Mr. Show,” a cult hit he created with David Cross. On “The Interview,” he says sketch comedy is “the most profound expression of human existence there is.”`\
+https://www.nytimes.com/video/magazine/100000010869978/bob-odenkirk-in-a-bleak-world-turn-to-comedy.html
+
 **Mississippi will move quickly to redraw its judicial district lines.**\
 ``\
 https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/mississippi-will-move-quickly-to-redraw-its-judicial-district-lines
