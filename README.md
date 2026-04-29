@@ -1,3 +1,11 @@
+**Civil rights leaders see the voting rights ruling as a ‘betrayal.’**\
+`Leaders and activists said a Supreme Court ruling had the potential to unravel decades of work toward giving Black Americans fair representation.`\
+https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/civil-rights-leaders-see-the-voting-rights-ruling-as-a-betrayal
+
+**Supreme Court Limits Reach of Voting Rights Act**\
+`Also, the Pentagon estimates the Iran war cost at $25 billion. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/04/29/briefing/supreme-court-voting-rights-act.html
+
 **Nine Artists on the Gardens They’ll Never Forget**\
 `Hiroshi Sugimoto, Irene Neuwirth, Umberto Pasti and others share their impressions of mesmerizing plots all over the world.`\
 https://www.nytimes.com/2026/04/29/t-magazine/favorite-garden-visit-artists.html
@@ -69,8 +77,4 @@ https://www.nytimes.com/2026/04/29/business/economy/takeaways-from-powells-final
 **Tupac Shakur’s Stepbrother Files Wrongful Death Lawsuit, 29 Years After Murder**\
 `Maurice Shakur said in a complaint filed against Duane Keith Davis, who was charged in 2023 with the rapper’s murder, that the “threads are starting to come together.”`\
 https://www.nytimes.com/2026/04/29/arts/music/tupac-murder-lawsuit-stepbrother.html
-
-**For Mother’s Day, Flowers and Cards — With a Twist**\
-`Blossom-filled books, welcoming bird houses and more recommendations from T Magazine.`\
-https://www.nytimes.com/2026/04/29/t-magazine/mothers-day-gift-ideas.html
 
