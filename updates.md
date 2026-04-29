@@ -1,3 +1,19 @@
+**All Six Conservative Justices Attended Trump’s State Dinner**\
+`Their appearance seemed at odds with the chief justice’s oft-stated message that the court he leads avoids even the appearance of political splits.`\
+https://www.nytimes.com/2026/04/29/us/politics/trump-state-dinner-conservative-justices.html
+
+**Comey Makes First Court Appearance After Second Indictment Against Him**\
+`The indictment against James B. Comey, the former F.B.I. director, focused on a social media post that the Justice Department deemed a threat to the president.`\
+https://www.nytimes.com/2026/04/29/us/politics/james-comey-court.html
+
+**Who is the judge in the case?**\
+``\
+https://www.nytimes.com/live/2026/04/29/technology/openai-trial-sam-altman-elon-musk/who-is-the-judge-in-the-case
+
+**Pentagon Puts Iran War Cost at $25 Billion as Hegseth Berates Skeptics**\
+`During his first public appearance on Capitol Hill since the war began, the defense secretary lashed out at lawmakers in both parties who have questioned the conflict.`\
+https://www.nytimes.com/2026/04/29/us/politics/hegseth-iran-war-cost.html
+
 **Peter Raven, 89, Dies; Botanist Warned of the Perils of Climate Change**\
 `He transformed the Missouri Botanical Garden into an international research hub and laid out the existential threats posed by deforestation and unchecked development.`\
 https://www.nytimes.com/2026/04/29/science/earth/peter-raven-dead.html
