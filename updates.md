@@ -1,3 +1,7 @@
+**The Stakes of Trump’s Latest Fight With Disney**\
+`The Federal Communications Commission is clashing again with the media giant. It’s another warning about the costs of angering President Trump.`\
+https://www.nytimes.com/2026/04/29/business/dealbook/trump-disney-kimmel-fcc.html
+
 **An Age of Political Violence?**\
 `We look into whether the U.S. is in a new era of violent extremism.`\
 https://www.nytimes.com/2026/04/29/briefing/an-age-of-political-violence.html
