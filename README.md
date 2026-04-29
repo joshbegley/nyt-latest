@@ -1,3 +1,7 @@
+**How the Voting Rights Act Reshaped California Politics**\
+`The federal law had been a “game changer” for Latino voters, but Wednesday’s ruling could weaken Asian Americans’ political power in the state.`\
+https://www.nytimes.com/2026/04/29/us/elections/voting-rights-act-supreme-court-california.html
+
 **Takeaways from Powell’s final news conference as Fed chair.**\
 ``\
 https://www.nytimes.com/live/2026/04/29/business/federal-reserve-interest-rates/takeaways-from-powells-final-news-conference-as-fed-chair
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/29/business/economy/powell-fed-stay-governor.htm
 **Billionaire Bill Ackman Achieves His Long-Awaited U.S. I.P.O.**\
 `The initial public offering of Mr. Ackman’s new fund, Pershing Square USA, raised $5 billion.`\
 https://www.nytimes.com/2026/04/29/business/bill-ackman-pershing-square-ipo.html
-
-**Supreme Court Sides With Anti-Abortion Clinic in Fight Over Donor Records**\
-`A crisis pregnancy group had asked the justices to allow it to sue in federal court over a demand for donor information by New Jersey officials.`\
-https://www.nytimes.com/2026/04/29/us/politics/supreme-court-abortion-subpoena.html
 
