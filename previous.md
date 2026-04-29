@@ -1,3 +1,7 @@
+**F.D.A. Releases Results from Major Infant Formula Safety Study**\
+`The agency said the analysis of more than 300 formula samples was reassuring, but outside experts raised some concerns.`\
+https://www.nytimes.com/2026/04/29/well/eat/infant-formula-safety-fda.html
+
 **Fidelity Won’t Let Fund Holders Donate to Southern Poverty Law Center**\
 `Fidelity cited the Justice Department’s recent lawsuit against the civil rights organization in emails to holders of its charitable-giving funds explaining its decision.`\
 https://www.nytimes.com/2026/04/29/business/fidelity-southern-poverty-law-center.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/29/crosswords/strands-sidekick-788.html
 **Wordle Review No. 1,776**\
 `Scroll down for hints and conversation about the puzzle for Thursday, April 30, 2026.`\
 https://www.nytimes.com/2026/04/29/crosswords/wordle-review-1776.html
-
-**In France, American Universities Lose Their Allure in the Trump Era**\
-`Worries about visas, academic freedom and safety are making foreign schools, like Sciences Po in Paris, more attractive to some students than the Ivy League.`\
-https://www.nytimes.com/2026/04/29/world/europe/france-american-universities-trump-sciences-po.html
 
