@@ -1,3 +1,27 @@
+**What to know about T.P.S. for Haitians and Syrians.**\
+``\
+https://www.nytimes.com/live/2026/04/29/us/supreme-court-immigration-tps/tps-haitians-syrians
+
+**What’s happening at the Federal Reserve today.**\
+``\
+https://www.nytimes.com/live/2026/04/29/business/federal-reserve-interest-rates/whats-happening-at-the-federal-reserve-today
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/29/us/supreme-court-immigration-tps/heres-the-latest
+
+**Trump’s Clash With Merz Shows It’s Hard to Stay Friends With the President**\
+`Throughout the war in Iran, Friedrich Merz, the German chancellor, did all he could to keep President Trump happy. This week, Mr. Merz appeared to lose patience.`\
+https://www.nytimes.com/2026/04/29/world/europe/trump-merz-iran.html
+
+**How to Build a Better Kind of Nuclear Power? This Side Hustle Might Help.**\
+`Zap Energy says its ultimate goal is safe, clean energy from fusion. To help get there, it’s starting to build fission reactors.`\
+https://www.nytimes.com/2026/04/29/climate/zap-energy-fusion-fission.html
+
+**Can I Skip My Niece’s Graduation to Avoid the Politics?**\
+`A reader wants to be a supportive aunt at the Naval Academy commencement, but the prospect of political speeches has her gritting her teeth.`\
+https://www.nytimes.com/2026/04/29/style/political-commencement-speeches.html
+
 **F.D.A. Releases Results from Major Infant Formula Safety Study**\
 `The agency said the analysis of more than 300 formula samples was reassuring, but outside experts raised some concerns.`\
 https://www.nytimes.com/2026/04/29/well/eat/infant-formula-safety-fda.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/es/2026/04/29/espanol/mundo/oro-casa-moneda-cartel-colom
 **Aguas claras, moral turbia: cuando los humanos nadan con orcas**\
 `Solo en dos lugares del mundo se permite a los humanos entrar en el agua con el depredador supremo del océano. A medida que aumentan las multitudes y cambian las normativas, la seguridad de ambas especies es motivo de preocupación.`\
 https://www.nytimes.com/es/2026/04/29/espanol/ciencia-y-tecnologia/turismo-buceo-orcas-mexico-noruega.html
-
-**King Charles Speaks of ‘Indispensable Alliance’ at State Dinner With Trump**\
-`President Trump held a state dinner honoring King Charles III and his wife, Queen Camilla. During the toast, the two leaders praised the enduring alliance between the nations.`\
-https://www.nytimes.com/video/us/politics/100000010869434/king-charles-trump-state-dinner.html
-
-**Why Even Some Democrats Hate California’s Billionaire Tax Proposal**\
-`The measure calls for placing a one-time 5 percent tax on the assets of California residents with at least $1.1 billion.`\
-https://www.nytimes.com/2026/04/29/podcasts/the-daily/democrats-hate-californias-billionaire-tax-plan.html
-
-**Musk vs. Altman, and a Pivotal Immigration Case at the Supreme Court**\
-`Plus, why nursing homes are hiring M.M.A. fighters.`\
-https://www.nytimes.com/2026/04/29/podcasts/the-headlines/musk-altman-trial-immigration-supreme-court.html
-
-**Connections Companion No. 1,054**\
-`Scroll down for hints and conversation about the puzzle for Thursday, April 30, 2025.`\
-https://www.nytimes.com/2026/04/29/crosswords/connections-companion-1054.html
-
-**Strands Sidekick No. 788**\
-`Scroll down for hints and conversation about the puzzle for Thursday, April 30, 2026.`\
-https://www.nytimes.com/2026/04/29/crosswords/strands-sidekick-788.html
-
-**Wordle Review No. 1,776**\
-`Scroll down for hints and conversation about the puzzle for Thursday, April 30, 2026.`\
-https://www.nytimes.com/2026/04/29/crosswords/wordle-review-1776.html
 

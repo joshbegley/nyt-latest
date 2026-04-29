@@ -1,3 +1,27 @@
+**What to know about T.P.S. for Haitians and Syrians.**\
+``\
+https://www.nytimes.com/live/2026/04/29/us/supreme-court-immigration-tps/tps-haitians-syrians
+
+**What’s happening at the Federal Reserve today.**\
+``\
+https://www.nytimes.com/live/2026/04/29/business/federal-reserve-interest-rates/whats-happening-at-the-federal-reserve-today
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/29/us/supreme-court-immigration-tps/heres-the-latest
+
+**Trump’s Clash With Merz Shows It’s Hard to Stay Friends With the President**\
+`Throughout the war in Iran, Friedrich Merz, the German chancellor, did all he could to keep President Trump happy. This week, Mr. Merz appeared to lose patience.`\
+https://www.nytimes.com/2026/04/29/world/europe/trump-merz-iran.html
+
+**How to Build a Better Kind of Nuclear Power? This Side Hustle Might Help.**\
+`Zap Energy says its ultimate goal is safe, clean energy from fusion. To help get there, it’s starting to build fission reactors.`\
+https://www.nytimes.com/2026/04/29/climate/zap-energy-fusion-fission.html
+
+**Can I Skip My Niece’s Graduation to Avoid the Politics?**\
+`A reader wants to be a supportive aunt at the Naval Academy commencement, but the prospect of political speeches has her gritting her teeth.`\
+https://www.nytimes.com/2026/04/29/style/political-commencement-speeches.html
+
 **F.D.A. Releases Results from Major Infant Formula Safety Study**\
 `The agency said the analysis of more than 300 formula samples was reassuring, but outside experts raised some concerns.`\
 https://www.nytimes.com/2026/04/29/well/eat/infant-formula-safety-fda.html
