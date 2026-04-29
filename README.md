@@ -1,3 +1,11 @@
+**Takeaways from Powell’s final news conference as Fed chair.**\
+``\
+https://www.nytimes.com/live/2026/04/29/business/federal-reserve-interest-rates/takeaways-from-powells-final-news-conference-as-fed-chair
+
+**Prosecutors Say Suspect Planned Attack Weeks Before Press Gala**\
+`A new prosecution memo details the preparations made in the days and weeks before the assault on the White House correspondents’ dinner.`\
+https://www.nytimes.com/2026/04/29/us/white-house-correspondents-dinner-shooter.html
+
 **Trump and Putin Call for a Brief Cease-Fire in Ukraine**\
 `Previous truces have broken down amid competing accusations of violations, and it is not clear that Ukraine will agree to Moscow’s terms.`\
 https://www.nytimes.com/2026/04/29/world/europe/ukraine-russia-ceasefire-trump-putin.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/29/business/bill-ackman-pershing-square-ipo.html
 **Supreme Court Sides With Anti-Abortion Clinic in Fight Over Donor Records**\
 `A crisis pregnancy group had asked the justices to allow it to sue in federal court over a demand for donor information by New Jersey officials.`\
 https://www.nytimes.com/2026/04/29/us/politics/supreme-court-abortion-subpoena.html
-
-**What’s Your Ideal Garden Style?**\
-`Take our quiz to find out how to match your dream plot to your personality.`\
-https://www.nytimes.com/2026/04/29/t-magazine/gardening-style-quiz.html
-
-**tk**\
-`tk`\
-https://static01.nyt.com/slideshow/2026/04/29/t-magazine/tk.html
 

@@ -1,3 +1,15 @@
+**Trump and Putin Call for a Brief Cease-Fire in Ukraine**\
+`Previous truces have broken down amid competing accusations of violations, and it is not clear that Ukraine will agree to Moscow’s terms.`\
+https://www.nytimes.com/2026/04/29/world/europe/ukraine-russia-ceasefire-trump-putin.html
+
+**EE. UU. imputa al gobernador de Sinaloa de apoyar al narcotráfico**\
+`Fiscales estadounidenses acusan a Rubén Rocha Moya y otros funcionarios en activo de apoyar a organizaciones criminales a cambio de dinero y votos.`\
+https://www.nytimes.com/es/2026/04/29/espanol/america-latina/ee-uu-acusa-gobernador-sinaloa-narcotrafico.html
+
+**Takeaways From Hegseth’s Testimony on Iran War and His Tenure**\
+`It was Defense Secretary Pete Hegseth’s first public appearance before Congress since Operation Epic Fury began in late February.`\
+https://www.nytimes.com/2026/04/29/us/politics/hegseth-congress-hearing-takeaways.html
+
 **Florida Approves House Map That Could Add 4 Republican Seats**\
 `Several voting rights groups have said that they plan to challenge the map in court once Gov. Ron DeSantis signs it into law.`\
 https://www.nytimes.com/2026/04/29/us/florida-house-gop-map.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/29/t-magazine/gardening-style-quiz.html
 **tk**\
 `tk`\
 https://static01.nyt.com/slideshow/2026/04/29/t-magazine/tk.html
-
-**What to Know About the Voting Rights Act**\
-`The 1965 law was mean to address fundamental inequities in American life, and was one of the signal accomplishments of the civil rights movement.`\
-https://www.nytimes.com/2026/04/29/us/elections/voting-rights-act-explainer.html
-
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/heres-the-latest
-
-**Comey and Kimmel: Seashells and a Joke**\
-`Readers discuss the James Comey indictment and the Jimmy Kimmel joke. Also: The U.S.A.I.D. tragedy; privatizing the mail.`\
-https://www.nytimes.com/2026/04/29/opinion/james-comey-jimmy-kimmel.html
 
