@@ -1,3 +1,15 @@
+**Trump Administration Announces Moves to Sharply Curtail Gun Regulations**\
+`The changes are in keeping with the administration’s pledge to cut back on gun restrictions.`\
+https://www.nytimes.com/2026/04/29/us/politics/trump-gun-control.html
+
+**Trump Threatens to Pull Troops From Germany as He Lashes Out at Merz**\
+`The comments came after the German chancellor said that Iran has “humiliated” the United States.`\
+https://www.nytimes.com/2026/04/29/us/politics/trump-germany-us-troops.html
+
+**The Justices Acted as Partisans in the Voting Rights Ruling**\
+`In the name of disentangling race from politics, the court has given white voters more power at the expense of racial minorities.`\
+https://www.nytimes.com/2026/04/29/opinion/supreme-court-voting-rights-act-2026.html
+
 **Powell Announces He Will Stay on as Fed Governor**\
 `Jerome H. Powell announced on Wednesday that he would stay on as a governor at the Federal Reserve after his term as chair ends next month due to lingering legal threats from the Trump administration.`\
 https://www.nytimes.com/video/us/politics/100000010870996/jerome-powell-stays-fed-governor.html
