@@ -1,3 +1,11 @@
+**An Age of Political Violence?**\
+`We look into whether the U.S. is in a new era of violent extremism.`\
+https://www.nytimes.com/2026/04/29/briefing/an-age-of-political-violence.html
+
+**2 People Stabbed in North London, Jewish Charity Says**\
+`The volunteer-run charity, Shomrim, said in a post on social media that two people were injured and a suspect was detained.`\
+https://www.nytimes.com/2026/04/29/world/europe/london-stabbing-golders-green.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/29/us/king-charles-royal-visit-trump-us/heres-the-latest
