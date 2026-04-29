@@ -1,3 +1,11 @@
+**La lista completa de invitados a la cena de Estado de Trump con Carlos y Camila**\
+`Seis miembros de la Corte Suprema fueron invitados a la cena, junto con altos funcionarios del gobierno, multimillonarios y legisladores republicanos.`\
+https://www.nytimes.com/es/2026/04/29/espanol/estados-unidos/trump-rey-carlos-cena-invitados.html
+
+**These states could have time to redraw their maps before the midterms.**\
+``\
+https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/these-states-could-redraw-their-maps-before-the-midterms
+
 **World Bank estimates energy prices will surge 24 percent in 2026.**\
 `Iran war is fueling inflation and slowing growth around the world, according to a new report.`\
 https://www.nytimes.com/live/2026/04/29/business/federal-reserve-interest-rates/world-bank-estimates-energy-prices-will-surge-24-percent-in-2026
