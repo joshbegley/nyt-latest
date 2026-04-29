@@ -1,3 +1,7 @@
+**Why Is There a Voting Rights Act? A Timeline**\
+`Here’s a look at some key events that led to and followed the Voting Rights Act of 1965.`\
+https://www.nytimes.com/2026/04/29/us/voting-rights-act-history.html
+
 **These states could redraw their maps before the midterms.**\
 ``\
 https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/these-states-could-redraw-their-maps-before-the-midterms
@@ -65,10 +69,6 @@ https://www.nytimes.com/weather/new-york-new-york
 **Tornadoes, hail, high winds and excessive rain in Houston, Texas**\
 `See the hourly and 7-day forecast.`\
 https://www.nytimes.com/weather/houston-texas
-
-**Phoenix, Ariz. Weather Forecast**\
-`See the hourly and 7-day forecast.`\
-https://www.nytimes.com/weather/phoenix-arizona
 
 **Hail in Fort Worth, Texas**\
 `See the hourly and 7-day forecast.`\
