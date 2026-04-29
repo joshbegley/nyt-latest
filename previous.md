@@ -1,80 +1,80 @@
-**Meta Accused of Failing to Keep Children Off Instagram and Facebook in Europe**\
-`European Union regulators said the company did not have effective controls to check a user’s self-declared date of birth, in violation of an online safety law.`\
-https://www.nytimes.com/2026/04/29/business/meta-instagram-facebook-children.html
+**Paraguay dice que no abandona a Taiwán. China tiene otros planes**\
+`Pekín intenta romper una inesperada relación a larga distancia que ha perdurado durante décadas. ¿Paraguay podría verse tentado a alejarse?`\
+https://www.nytimes.com/es/2026/04/29/espanol/america-latina/paraguay-taiwan-china.html
 
-**King Charles and Queen Camilla to Visit New York’s 9/11 Memorial**\
-`After attending a ceremony at the memorial in Lower Manhattan, the royal couple is scheduled to visit a Harlem nonprofit, the New York Public Library’s main branch and Christie’s.`\
-https://www.nytimes.com/2026/04/29/nyregion/king-charles-us-visit-new-york.html
+**A Curator Died Suddenly. Could the Art World’s Most Important Event Be Saved?**\
+`Koyo Kouoh, who died of cancer at 57, was just months into her dream job overseeing the Venice Biennale’s centerpiece exhibition. But she left a plan that her assistants have tried to realize.`\
+https://www.nytimes.com/2026/04/29/arts/design/koyo-kouoh-venice-biennale.html
 
-**Un chatbot de IA ayuda a cuidar a personas mayores en Corea del Sur**\
-`Esta nación envejece más rápido que ningún otro país. Como no cuentan con trabajadores sociales o cuidadores familiares suficientes, la IA ayuda a llenar parte del vacío.`\
-https://www.nytimes.com/es/2026/04/29/espanol/mundo/inteligencia-artificial-demencia-corea.html
+**The Loneliness of Donald Trump**\
+`This is a man who rarely travels beyond the confines of the White House compound or Mar-a-Lago.`\
+https://www.nytimes.com/2026/04/29/opinion/trump-assassination-attempts-political-violence.html
 
-**A.I. Artist?**\
-`Is it OK to use artificial intelligence to create art?`\
-https://www.nytimes.com/2026/04/29/learning/ai-artist.html
+**La ‘casa de los espíritus’ devuelve un libro muy querido a sus orígenes**\
+`Rodada en Chile, esta serie será la primera adaptación al español a la pantalla de la novela de Isabel Allende. Su protagonista, Alfonso Herrera, dijo que la historia está más vigente que nunca.`\
+https://www.nytimes.com/es/2026/04/29/espanol/cultura/la-casa-de-los-espiritus-serie-amazon.html
 
-**A City Hall Reporter Reveals Where the Scoops Come From**\
-`Sally Goldenberg covers New York City politics and government for The Times, attending to a network of sources more than 20 years in the making.`\
-https://www.nytimes.com/2026/04/29/insider/sally-goldenberg-new-york-times.html
+**New Disney Boss Is Tested by Trump and His Administration**\
+`Josh D’Amaro, who took the helm in February, will have to lead Disney through surprising new scrutiny from the president.`\
+https://www.nytimes.com/2026/04/29/business/media/disney-ceo-josh-damaro-fcc-abc-trump.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/04/29/crosswords/spelling-bee-forum.html
+**New York City Announces Proposed Designs for Park Avenue Overhaul**\
+`The city plans to widen the median on an 11-block stretch of the boulevard, removing two traffic lanes, to provide space where people can stroll or linger.`\
+https://www.nytimes.com/2026/04/29/nyregion/park-avenue-redesign-plan.html
 
-**¿Las películas son cada vez más oscuras? Ponemos el foco en la duda**\
-`A menudo, los espectadores se preguntan por qué las películas actuales se ven más oscuras que las de hace años. He aquí el diagnóstico de algunos expertos.`\
-https://www.nytimes.com/es/2026/04/29/espanol/cultura/peliculas-oscuras-luces.html
+**Loss of Emirates Further Weakens OPEC’s Influence**\
+`The exit of the United Arab Emirates is the most significant in a series of departures from the oil cartel in recent years.`\
+https://www.nytimes.com/2026/04/29/business/energy-environment/uae-opec-oil-cartel.html
 
-**Palabra del día: ‘placate’**\
-`Esta palabra ha aparecido en 153 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
-https://www.nytimes.com/es/2026/04/29/espanol/que-significa-placate.html
+**Who Is the Greatest Living Songwriter?**\
+`Times critics have named their top 30 American songwriters. Do you agree with their list? Who is missing? Here is your chance to make the case for your favorite.`\
+https://www.nytimes.com/2026/04/29/learning/who-is-the-greatest-living-songwriter.html
 
-**Word of the Day: placate**\
-`This word has appeared in 126 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/04/29/learning/word-of-the-day-placate.html
+**Behind the A.I. Boom, a Boring Business Is Soaring With Better Ads**\
+`Google and Meta are enjoying a digital ad boom, as artificial intelligence automates marketing and drives record sales.`\
+https://www.nytimes.com/2026/04/29/technology/ai-artificial-intelligence-ad-boom.html
 
-**Jimmy Kimmel Spills the Tea on Trump’s Royal Meeting**\
-`The late night show host called the king of England “one of the very few people who might actually be able to tip things even slightly in a positive direction.”`\
-https://www.nytimes.com/2026/04/29/arts/television/jimmy-kimmel-trump-royals.html
+**First Came Cake. Then Came Steak.**\
+`The literary food magazine Cake Zine celebrated a savory special issue.`\
+https://www.nytimes.com/2026/04/29/style/cake-zine-literary-party-steak.html
 
-**5 Takeaways From the Latest Debate in the California Governor’s Race**\
-`The candidates felt pressure to differentiate themselves, with ballots going out to voters next week. The result was a more spirited battle than past debates.`\
-https://www.nytimes.com/2026/04/29/us/elections/california-governor-debate-pomona.html
+**Judge Asks Justice Department: Will You Oppose Trump?**\
+`A federal judge has ordered the Justice Department to explain whether it intends to contest President Trump’s $10 billion lawsuit against the I.R.S. over the disclosure of his tax returns.`\
+https://www.nytimes.com/2026/04/29/us/politics/trump-justice-department-lawsuit-tax-returns-disclosure.html
 
-**La popularidad de Trump cae de cara a las elecciones intermedias**\
-`Aún faltan seis meses para las elecciones, y algunos miembros del partido del presidente afirman que aún hay tiempo para enderezar el rumbo, pese al panorama desalentador.`\
-https://www.nytimes.com/es/2026/04/29/espanol/estados-unidos/popularidad-trump-elecciones-intermedias.html
+**She Gave Her Second Tiny Home a Wee Upgrade**\
+`Alchemy Architects pioneered the weeHouse after building a home for Stephanie Arado. Decades later, she wanted another one — this time with plumbing.`\
+https://www.nytimes.com/2026/04/29/realestate/small-tiny-homes-minnesota.html
 
-**I Played Putin in a War Game. The Most Dangerous Period May Be Coming.**\
-`NATO countries need to get their act together.`\
-https://www.nytimes.com/2026/04/29/opinion/international-world/putin-russia-nato-attack.html
+**Let Spirit Airlines Die**\
+`Steven Rattner argues that Trump’s effort to bail out the ailing carrier makes no sense.`\
+https://www.nytimes.com/2026/04/29/opinion/spirit-airlines-trump-bailout-auto.html
 
-**At State Dinner, King Charles Charms the Court of Trump**\
-`King Charles III presented President Trump with a golden bell. “Should you ever need to get hold of us,” the king said, “well, just give us a ring!”`\
-https://www.nytimes.com/2026/04/29/us/politics/at-state-dinner-king-charles-enters-the-court-of-trump.html
+**What to Watch at the Federal Reserve’s April Meeting**\
+`The U.S. central bank is widely expected to hold interest rates steady at what is scheduled to be Jerome H. Powell’s final meeting as chair.`\
+https://www.nytimes.com/2026/04/29/business/economy/what-to-watch-at-the-federal-reserves-april-meeting.html
 
-**How Iran Accumulated 11 Tons of Enriched Uranium**\
-`Two months after the United States began a war meant to prevent Iran from ever building an atomic bomb, the fate of its stockpile of enriched uranium remains a mystery.`\
-https://www.nytimes.com/interactive/2026/04/29/science/iran-enriched-uranium-stockpile-nuclear-energy-bomb.html
+**What ‘The Devil Wears Prada’ Taught Its Stars About Being a Boss**\
+`Meryl Streep, Anne Hathaway, Emily Blunt, Stanley Tucci and the director David Frankel on “The Devil Wears Prada,” the sequel and who’s mean in real life.`\
+https://www.nytimes.com/2026/04/29/movies/devil-wears-prada-meryl-streep-anne-hathaway.html
 
-**Gallows Humor Provides Respite From Mideast Wars**\
-`Arab digital creators on social media are turning out edgy material to cope with the conflicts and bring levity to a pain that often feels too raw.`\
-https://www.nytimes.com/2026/04/29/world/middleeast/mideast-war-humor.html
+**How the War in Iran Is Hurting the U.S. Housing Market**\
+`Buyers across the country are cautious, while the Miami market seems immune.`\
+https://www.nytimes.com/2026/04/29/realestate/how-the-war-in-iran-is-hurting-the-us-housing-market.html
 
-**Global Deforestation Slows, Analysis Finds. But Fires Remain a Major Threat.**\
-`In 2025, the world razed less forest than any other year in the last decade. The bad news: global warming is making wildfires more frequent and intense.`\
-https://www.nytimes.com/2026/04/29/climate/wri-report-forest-loss.html
+**The Lady Is a Hit**\
+`A visit to the “grottage” of Martha Sitwell, a breakout star of the Bravo series “Ladies of London: The New Reign.”`\
+https://www.nytimes.com/2026/04/29/style/lady-martha-sitwell-ladies-of-london-the-new-reign.html
 
-**Corrections: April 29, 2026**\
-`Corrections that appeared in print on Wednesday, April 29, 2026.`\
-https://www.nytimes.com/2026/04/29/pageoneplus/corrections-april-29-2026.html
+**Charles, Camilla and a Pooh Gift for the N.Y. Public Library**\
+`The king and queen of Britain arrive in New York today on the third day of their state visit. Camilla is bringing a special gift for the library.`\
+https://www.nytimes.com/2026/04/29/nyregion/charles-camilla-winnie-the-pooh.html
 
-**Quote of the Day: In Months, China Turns Reef Into Possible Base**\
-`Quotation of the Day for Wednesday, April 29, 2026.`\
-https://www.nytimes.com/2026/04/28/pageoneplus/quote-of-the-day-in-months-china-turns-reef-into-possible-base.html
+**Visconti’s ‘Bellissima’: Mama’s Going to See to It!**\
+`The director’s 1951 movie, at Film Forum in a new 4K restoration, satirizes the Italian film industry via Anna Magnani’s over-the-top stage mother.`\
+https://www.nytimes.com/2026/04/29/movies/bellissima-film-forum.html
 
-**Acid Attack in Indonesia Evokes Brutality of Suharto Era**\
-`The victim had protested against the widening role of the military, which activists say is reminiscent of the country’s decades-long dictatorship.`\
-https://www.nytimes.com/2026/04/28/world/asia/indonesia-andrei-acid-trial.html
+**For Your Next U.S. Road Trip, a Touch of Elegance at 5 Hotels**\
+`Add these new or newly revamped accommodations to your summer driving itinerary.`\
+https://www.nytimes.com/2026/04/29/travel/road-trip-hotels-united-states.html
 
