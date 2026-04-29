@@ -1,3 +1,11 @@
+**Trump Administration Announces Moves to Sharply Curtail Gun Regulations**\
+`The changes are in keeping with the administration’s pledge to cut back on gun restrictions.`\
+https://www.nytimes.com/2026/04/29/us/politics/trump-gun-control.html
+
+**Trump Threatens to Pull Troops From Germany as He Lashes Out at Merz**\
+`The comments came after the German chancellor said that Iran has “humiliated” the United States.`\
+https://www.nytimes.com/live/2026/04/29/us/trump-news/trump-germany-us-troops
+
 **Powell Announces He Will Stay on as Fed Governor**\
 `Jerome H. Powell announced on Wednesday that he would stay on as a governor at the Federal Reserve after his term as chair ends next month due to lingering legal threats from the Trump administration.`\
 https://www.nytimes.com/video/us/politics/100000010870996/jerome-powell-stays-fed-governor.html
@@ -14,7 +22,7 @@ https://www.nytimes.com/2026/04/29/us/politics/trump-white-house-state-dinner.ht
 `A school transfer disrupted two brothers’ visas, their lawyer said, leaving them vulnerable to arrest and unsettling their Mississippi school community.`\
 https://www.nytimes.com/2026/04/29/us/mississippi-basketball-players-arrested-ice.html
 
-**The Supreme Court Just Erased What Was Left of the Voting Rights Act**\
+**The Justices Acted as Partisans in the Voting Rights Ruling**\
 `In the name of disentangling race from politics, the court has given white voters more power at the expense of racial minorities.`\
 https://www.nytimes.com/2026/04/29/opinion/supreme-court-voting-rights-act-2026.html
 
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/us/politics/100000010870722/hegseth-iran-war-costs
 **Jury Delivers Mixed Verdict in Case of Afghan Charged in 2021 Kabul Attack**\
 `Jurors found the man guilty of conspiracy to support the terrorist group that took credit for a horrific bombing, but deadlocked on whether he was responsible for the attack itself.`\
 https://www.nytimes.com/2026/04/29/us/politics/mixed-verdict-abbey-gate.html
-
-**Congress Races to Renew Surveillance Law After House Approval**\
-`Republicans put down a right-wing revolt to push the measure through the House, but it faces changes in the Senate that could delay its final passage past a Friday expiration.`\
-https://www.nytimes.com/2026/04/29/us/politics/congress-house-fisa-surveillance-law.html
-
-**Civil rights leaders see the voting rights ruling as a ‘betrayal.’**\
-`Leaders and activists said a Supreme Court ruling had the potential to unravel decades of work toward giving Black Americans fair representation.`\
-https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/civil-rights-leaders-see-the-voting-rights-ruling-as-a-betrayal
 
