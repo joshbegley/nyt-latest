@@ -1,3 +1,11 @@
+**Peter Raven, Renowned Botanist and Conservationist, Dies at 89**\
+`He transformed the Missouri Botanical Garden into an international research hub and became an influential voice on climate change and other existential threats.`\
+https://www.nytimes.com/2026/04/29/science/earth/peter-raven-dead.html
+
+**‘Timmy’ the Stranded Whale Begins Journey to the North Sea**\
+`A barge carrying a whale made its way toward the North Sea, where rescuers hope the humpback will swim further into the Atlantic Ocean. The whale, nicknamed Timmy, had been stranded off Germany’s Baltic coast for several weeks.`\
+https://www.nytimes.com/video/world/europe/100000010869732/timmy-stranded-whale-germany-rescue.html
+
 **How Do We Measure Our World?**\
 `Plus, we want to know what you think.`\
 https://www.nytimes.com/2026/04/29/headway/headway-newsletter-reader-feedback.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/29/us/politics/jewish-democrats-antisemitism-isr
 **How the Fed’s rate decision affects your finances.**\
 `The central bank’s interest rate policy influences car and home loans, credit cards, savings accounts and more.`\
 https://www.nytimes.com/live/2026/04/29/business/federal-reserve-interest-rates/how-the-feds-rate-decision-affects-your-finances
-
-**Almost All of Europe was Abnormally Hot in 2025, Report Finds**\
-`The continent, which is warming faster than the global average, saw wildfires, floods and a sub-Arctic heat wave, the European State of the Climate report said.`\
-https://www.nytimes.com/2026/04/29/world/europe/europe-climate-2025-report.html
-
-**Investigators Offer More Details of Gunman of Gala Dinner Attack**\
-`The details, combined with video, seem to suggest that the gunman was not the person who shot an officer in his protective vest.`\
-https://www.nytimes.com/2026/04/29/us/politics/correspondents-dinner-shooting-cole-tomas-allen.html
 

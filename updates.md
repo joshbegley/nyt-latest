@@ -1,3 +1,11 @@
+**Peter Raven, Renowned Botanist and Conservationist, Dies at 89**\
+`He transformed the Missouri Botanical Garden into an international research hub and became an influential voice on climate change and other existential threats.`\
+https://www.nytimes.com/2026/04/29/science/earth/peter-raven-dead.html
+
+**‘Timmy’ the Stranded Whale Begins Journey to the North Sea**\
+`A barge carrying a whale made its way toward the North Sea, where rescuers hope the humpback will swim further into the Atlantic Ocean. The whale, nicknamed Timmy, had been stranded off Germany’s Baltic coast for several weeks.`\
+https://www.nytimes.com/video/world/europe/100000010869732/timmy-stranded-whale-germany-rescue.html
+
 **How Do We Measure Our World?**\
 `Plus, we want to know what you think.`\
 https://www.nytimes.com/2026/04/29/headway/headway-newsletter-reader-feedback.html
