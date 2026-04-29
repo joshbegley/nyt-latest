@@ -1,3 +1,11 @@
+**Pentagon Estimates Iran War Cost at $25 Billion**\
+`Defense Secretary Pete Hegseth rebuffed criticism from lawmakers over the Iran war during a budget hearing on Wednesday. The defense department requested nearly $1.45 trillion for the coming year.`\
+https://www.nytimes.com/video/us/politics/100000010870722/hegseth-iran-war-costs.html
+
+**Jury Delivers Mixed Verdict in Case of Afghan Charged in 2021 Kabul Attack**\
+`Jurors found the man guilty of conspiracy to support the terrorist group that took credit for a horrific bombing, but deadlocked on whether he was responsible for the attack itself.`\
+https://www.nytimes.com/2026/04/29/us/politics/mixed-verdict-abbey-gate.html
+
 **Congress Races to Renew Surveillance Law After House Approval**\
 `Republicans put down a right-wing revolt to push the measure through the House, but it faces changes in the Senate that could delay its final passage past a Friday expiration.`\
 https://www.nytimes.com/2026/04/29/us/politics/congress-house-fisa-surveillance-law.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/es/2026/04/29/espanol/opinion/papa-iglesia-trump.html
 **Bob Odenkirk: In a Bleak World, Turn to Comedy**\
 `Bob Odenkirk, who stars in a new action movie, “Normal,” got his start in comedy working as a writer on “Saturday Night Live” and acting on “Mr. Show,” a cult hit he created with David Cross. On “The Interview,” he says sketch comedy is “the most profound expression of human existence there is.”`\
 https://www.nytimes.com/video/magazine/100000010869978/bob-odenkirk-in-a-bleak-world-turn-to-comedy.html
-
-**Mississippi Will Move Quickly to Redraw Its Judicial District Lines**\
-`The state’s Republican governor said he would call a special session in 21 days to address the state’s judicial maps.`\
-https://www.nytimes.com/2026/04/29/us/elections/mississippi-will-move-quickly-to-redraw-its-judicial-district-lines.html
-
-**Takeaways from Powell’s final Fed meeting as chair**\
-` `\
-https://www.nytimes.com/2026/04/29/business/economy/takeaways-from-powells-final-fed-meeting-as-chair.html
 

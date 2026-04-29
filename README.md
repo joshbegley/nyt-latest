@@ -1,3 +1,7 @@
+**Brown University Gunman Planned Attack for Years, F.B.I. Says**\
+`Investigators said the man’s transient lifestyle and social isolation made his intentions hard to track before shootings that killed two Brown students and an M.I.T. professor.`\
+https://www.nytimes.com/2026/04/29/us/brown-university-shooting-fbi.html
+
 **Pentagon Estimates Iran War Cost at $25 Billion**\
 `Defense Secretary Pete Hegseth rebuffed criticism from lawmakers over the Iran war during a budget hearing on Wednesday. The defense department requested nearly $1.45 trillion for the coming year.`\
 https://www.nytimes.com/video/us/politics/100000010870722/hegseth-iran-war-costs.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/29/business/ford-motor-tariff-refund-profit.html
 **Lo que significa una Iglesia católica que no le teme a Donald Trump**\
 `El choque entre el papa León XIV y el presidente de EE. UU. revela una búsqueda de autoridad moral en tiempos de incertidumbre.`\
 https://www.nytimes.com/es/2026/04/29/espanol/opinion/papa-iglesia-trump.html
-
-**Bob Odenkirk: In a Bleak World, Turn to Comedy**\
-`Bob Odenkirk, who stars in a new action movie, “Normal,” got his start in comedy working as a writer on “Saturday Night Live” and acting on “Mr. Show,” a cult hit he created with David Cross. On “The Interview,” he says sketch comedy is “the most profound expression of human existence there is.”`\
-https://www.nytimes.com/video/magazine/100000010869978/bob-odenkirk-in-a-bleak-world-turn-to-comedy.html
 

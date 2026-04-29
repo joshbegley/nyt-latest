@@ -1,3 +1,11 @@
+**Pentagon Estimates Iran War Cost at $25 Billion**\
+`Defense Secretary Pete Hegseth rebuffed criticism from lawmakers over the Iran war during a budget hearing on Wednesday. The defense department requested nearly $1.45 trillion for the coming year.`\
+https://www.nytimes.com/video/us/politics/100000010870722/hegseth-iran-war-costs.html
+
+**Jury Delivers Mixed Verdict in Case of Afghan Charged in 2021 Kabul Attack**\
+`Jurors found the man guilty of conspiracy to support the terrorist group that took credit for a horrific bombing, but deadlocked on whether he was responsible for the attack itself.`\
+https://www.nytimes.com/2026/04/29/us/politics/mixed-verdict-abbey-gate.html
+
 **Congress Races to Renew Surveillance Law After House Approval**\
 `Republicans put down a right-wing revolt to push the measure through the House, but it faces changes in the Senate that could delay its final passage past a Friday expiration.`\
 https://www.nytimes.com/2026/04/29/us/politics/congress-house-fisa-surveillance-law.html
