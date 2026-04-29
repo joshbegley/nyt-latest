@@ -7,7 +7,7 @@ https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/republica
 https://www.nytimes.com/2026/04/29/briefing/the-good-list-shower-airport.html
 
 **Tim Cook’s Legacy + The Future of U.B.I.**\
-`This week, Tim Cook announced he would step down as chief executive of Apple. We discuss what he got right and what he got wrong, and we offer some unsolicited advice for his replacement, John Ternus. Then, Andrew Yang joins us to discuss A.I.-powered job automation and why universal basic income may be making a comeback. And finally, we catch up on more recent tech news with a round of HatGPT.`\
+`Full episode #191`\
 https://www.nytimes.com/video/podcasts/100000010867973/tim-cooks-legacy-the-future-of-ubi.html
 
 **Here’s where the redistricting wars stand.**\

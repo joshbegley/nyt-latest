@@ -1,3 +1,7 @@
+**Republicans eye redistricting opportunities in the South, starting with Louisiana.**\
+``\
+https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/republicans-eye-redistricting-opportunities-in-the-south-starting-with-louisiana
+
 **The Good List: 6 Things to Add Some Joy to Your Day**\
 `Showering at the airport, blossoms in seams and the bar for joy.`\
 https://www.nytimes.com/2026/04/29/briefing/the-good-list-shower-airport.html
