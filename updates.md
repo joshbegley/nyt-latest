@@ -1,3 +1,15 @@
+**Why Is There a Voting Rights Act? A Timeline**\
+`Here’s a look at some key events that led to and followed the Voting Rights Act of 1965.`\
+https://www.nytimes.com/2026/04/29/us/voting-rights-act-history.html
+
+**These states could redraw their maps before the midterms.**\
+``\
+https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/these-states-could-redraw-their-maps-before-the-midterms
+
+**Russia’s Victory Day Parade Won’t Have the Usual Display of Armor**\
+`The absence of tanks and other heavy military vehicles on Red Square will highlight the heavy toll of the war in Ukraine.`\
+https://www.nytimes.com/2026/04/29/world/europe/russia-victory-day-parade-tanks.html
+
 **Springfield’s Haitian Workers and Businesses Face Uncertain Future**\
 `Haitians played a pivotal role in revitalizing the once struggling Ohio city. The end of Temporary Protected Status could be a setback for its future.`\
 https://www.nytimes.com/2026/04/29/us/politics/springfield-haitian-workers-deportation.html
