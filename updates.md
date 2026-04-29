@@ -1,3 +1,11 @@
+**T.P.S. Clampdown Is Part of Trump’s Broader Immigration Agenda**\
+`It is one of many ways the president has tried to make good on his pledge to deport record numbers of people in his second term.`\
+https://www.nytimes.com/2026/04/29/us/politics/trump-tps-immigration.html
+
+**Catholic Guilt? Not for These Priests.**\
+`The worldly men of the cloth in Héctor Abad’s new novel find divinity both inside and outside the church.`\
+https://www.nytimes.com/2026/04/29/books/review/hector-abad-aside-from-my-heart-all-is-well.html
+
 **Road Closures and Traffic Delays Expected for Charles and Camilla’s Day in New York**\
 `The New York Police Department urged commuters to use public transportation during the royal visit on Wednesday.`\
 https://www.nytimes.com/2026/04/29/us/king-charles-nyc-traffic-road-closures.html

@@ -1,3 +1,7 @@
+**Too Much Dudamel? No Such Thing.**\
+`The flamboyant conductor Gustavo Dudamel got a jubilant reception at the New York Philharmonic’s spring gala on Tuesday.`\
+https://www.nytimes.com/2026/04/29/style/gustavo-dudamel-new-york-philharmonic.html
+
 **T.P.S. Clampdown Is Part of Trump’s Broader Immigration Agenda**\
 `It is one of many ways the president has tried to make good on his pledge to deport record numbers of people in his second term.`\
 https://www.nytimes.com/2026/04/29/us/politics/trump-tps-immigration.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/29/world/europe/arson-keir-starmer-homes.html
 **U.S. Gas Prices Climb Further as Effects of War Reverberate**\
 `The national average price of a gallon of gasoline hit $4.23, following oil prices upward as supplies from the Middle East remain disrupted.`\
 https://www.nytimes.com/2026/04/29/business/oil-gas-prices-iran.html
-
-**Hockey Fans in Buffalo Finish ‘O Canada’ After Singer’s Mic Malfunctions**\
-`A crowd in Buffalo chimed in to sing the Canadian national anthem before an N.H.L. playoff game. That presented a contrast to ongoing U.S.-Canada tensions.`\
-https://www.nytimes.com/2026/04/29/sports/hockey/buffalo-sabres-nhl-canadian-anthem.html
 

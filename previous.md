@@ -1,3 +1,11 @@
+**T.P.S. Clampdown Is Part of Trump’s Broader Immigration Agenda**\
+`It is one of many ways the president has tried to make good on his pledge to deport record numbers of people in his second term.`\
+https://www.nytimes.com/2026/04/29/us/politics/trump-tps-immigration.html
+
+**Catholic Guilt? Not for These Priests.**\
+`The worldly men of the cloth in Héctor Abad’s new novel find divinity both inside and outside the church.`\
+https://www.nytimes.com/2026/04/29/books/review/hector-abad-aside-from-my-heart-all-is-well.html
+
 **Road Closures and Traffic Delays Expected for Charles and Camilla’s Day in New York**\
 `The New York Police Department urged commuters to use public transportation during the royal visit on Wednesday.`\
 https://www.nytimes.com/2026/04/29/us/king-charles-nyc-traffic-road-closures.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/29/business/oil-gas-prices-iran.html
 **Hockey Fans in Buffalo Finish ‘O Canada’ After Singer’s Mic Malfunctions**\
 `A crowd in Buffalo chimed in to sing the Canadian national anthem before an N.H.L. playoff game. That presented a contrast to ongoing U.S.-Canada tensions.`\
 https://www.nytimes.com/2026/04/29/sports/hockey/buffalo-sabres-nhl-canadian-anthem.html
-
-**A Look Back at Charles’s U.S. Trips**\
-`From a barbecue at Camp David to a college football game, the British monarch has experienced many American traditions over decades of visiting the United States.`\
-https://www.nytimes.com/2026/04/29/world/europe/king-charles-us-trips-visits.html
-
-**Oro sucio**\
-`Una investigación del Times muestra cómo las casas de la moneda de EE. UU. y Canadá compraron oro procedente de un cartel de la droga de Colombia.`\
-https://www.nytimes.com/es/2026/04/29/espanol/mundo/oro-casa-moneda-cartel-colombia.html
 
