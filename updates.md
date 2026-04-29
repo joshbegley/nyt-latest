@@ -1,3 +1,15 @@
+**U.S. and Italy Honor Alliance to Curb Art Looting, Amid Broader Tensions**\
+`Standing near dozens of repatriated artifacts, officials from the countries celebrated efforts that have led to the return of thousands of artworks to Italy.`\
+https://www.nytimes.com/2026/04/29/arts/design/us-italy-art-looting.html
+
+**The Iran War Might Be an ‘Everything War’**\
+`It won’t be so easy to extract ourselves from this conflict`\
+https://www.nytimes.com/2026/04/29/opinion/iran-war-polycrisis.html
+
+**Tim Cook’s Legacy + The Future of U.B.I.**\
+`Full episode #191`\
+https://www.nytimes.com/video/podcasts/100000010867973/tim-cooks-legacy-the-future-of-ubi.html
+
 **Republicans eye redistricting opportunities in the South, starting with Louisiana.**\
 ``\
 https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/republicans-eye-redistricting-opportunities-in-the-south-starting-with-louisiana
