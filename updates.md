@@ -1,3 +1,11 @@
+**Civil rights leaders see the voting rights ruling as a ‘betrayal.’**\
+`Leaders and activists said a Supreme Court ruling had the potential to unravel decades of work toward giving Black Americans fair representation.`\
+https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/civil-rights-leaders-see-the-voting-rights-ruling-as-a-betrayal
+
+**Supreme Court Limits Reach of Voting Rights Act**\
+`Also, the Pentagon estimates the Iran war cost at $25 billion. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/04/29/briefing/supreme-court-voting-rights-act.html
+
 **Nine Artists on the Gardens They’ll Never Forget**\
 `Hiroshi Sugimoto, Irene Neuwirth, Umberto Pasti and others share their impressions of mesmerizing plots all over the world.`\
 https://www.nytimes.com/2026/04/29/t-magazine/favorite-garden-visit-artists.html
