@@ -1,3 +1,15 @@
+**How the Voting Rights Act Reshaped California Politics**\
+`The federal law had been a “game changer” for Latino voters, but Wednesday’s ruling could weaken Asian Americans’ political power in the state.`\
+https://www.nytimes.com/2026/04/29/us/elections/voting-rights-act-supreme-court-california.html
+
+**Takeaways from Powell’s final news conference as Fed chair.**\
+``\
+https://www.nytimes.com/live/2026/04/29/business/federal-reserve-interest-rates/takeaways-from-powells-final-news-conference-as-fed-chair
+
+**Prosecutors Say Suspect Planned Attack Weeks Before Press Gala**\
+`A new prosecution memo details the preparations made in the days and weeks before the assault on the White House correspondents’ dinner.`\
+https://www.nytimes.com/2026/04/29/us/white-house-correspondents-dinner-shooter.html
+
 **Trump and Putin Call for a Brief Cease-Fire in Ukraine**\
 `Previous truces have broken down amid competing accusations of violations, and it is not clear that Ukraine will agree to Moscow’s terms.`\
 https://www.nytimes.com/2026/04/29/world/europe/ukraine-russia-ceasefire-trump-putin.html
