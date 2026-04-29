@@ -1,3 +1,7 @@
+**La lista completa de invitados a la cena de Estado de Trump con Carlos y Camila**\
+`Seis miembros de la Corte Suprema fueron invitados a la cena, junto con altos funcionarios del gobierno, multimillonarios y legisladores republicanos.`\
+https://www.nytimes.com/es/2026/04/29/espanol/estados-unidos/trump-rey-carlos-cena-invitados.html
+
 **World Bank estimates energy prices will surge 24 percent in 2026.**\
 `Iran war is fueling inflation and slowing growth around the world, according to a new report.`\
 https://www.nytimes.com/live/2026/04/29/business/federal-reserve-interest-rates/world-bank-estimates-energy-prices-will-surge-24-percent-in-2026
@@ -14,7 +18,7 @@ https://www.nytimes.com/2026/04/29/us/elections/voting-rights-scotus-florida.htm
 `Here’s a look at some key events that led to and followed the Voting Rights Act of 1965.`\
 https://www.nytimes.com/2026/04/29/us/voting-rights-act-history.html
 
-**These states could redraw their maps before the midterms.**\
+**These states could have time to redraw their maps before the midterms.**\
 ``\
 https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/these-states-could-redraw-their-maps-before-the-midterms
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/29/style/world-cup-metlife-walking-new-jersey.ht
 **Coast Guard Calls Off Search for Crew of Capsized Cargo Ship**\
 `The Mariana, a 145-foot vessel with six crew members, was found overturned after a typhoon, prompting an 11-day search which found no survivors.`\
 https://www.nytimes.com/2026/04/29/world/asia/typhoon-sinlaku-us-ship-dead-coast-guard.html
-
-**New York, N.Y. Weather Forecast**\
-`See the hourly and 7-day forecast.`\
-https://www.nytimes.com/weather/new-york-new-york
 
