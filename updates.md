@@ -1,3 +1,7 @@
+**Un magnate indio ofrece refugio a los hipopótamos de Pablo Escobar**\
+`Colombia anunció un plan para aplicar la eutanasia a 80 hipopótamos descendientes de los importados hace 40 años. Ahora, un multimillonario dice que quiere llevarlos a India.`\
+https://www.nytimes.com/es/2026/04/29/espanol/mundo/ambani-india-hipopotamos-colombia.html
+
 **Florida House Approves New Congressional Map in Party-Line Vote**\
 `The new map could give Republicans as many as four new seats in the state’s 28-member delegation, which already has 20 Republicans.`\
 https://www.nytimes.com/2026/04/29/us/elections/florida-house-approves-new-congressional-map-in-party-line-vote.html

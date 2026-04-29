@@ -1,3 +1,15 @@
+**North London Stabbing Is Being Treated as Terrorism, Police Say**\
+`Two men were stabbed in north London on Wednesday, in an area that is home to just over half of Britain’s 300,000 Jewish residents. The city’s main police force said the attack was being treated as terrorism.`\
+https://www.nytimes.com/video/world/europe/100000010869878/golders-green-london-stabbing-terrorism.html
+
+**Some states have their own voting rights acts**\
+``\
+https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/some-states-have-their-own-voting-rights-acts
+
+**Tiny Love Stories: ‘Everyone Was a Few Drinks In’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/04/29/style/tiny-modern-love-stories-everyone-was-a-few-drinks-in.html
+
 **Un magnate indio ofrece refugio a los hipopótamos de Pablo Escobar**\
 `Colombia anunció un plan para aplicar la eutanasia a 80 hipopótamos descendientes de los importados hace 40 años. Ahora, un multimillonario dice que quiere llevarlos a India.`\
 https://www.nytimes.com/es/2026/04/29/espanol/mundo/ambani-india-hipopotamos-colombia.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/29/us/politics/correspondents-dinner-shooting-co
 **How the Supreme Court’s Voting Rights Ruling Could Be Felt in the Midterms**\
 `Democrats will lose at least one blue-leaning district in Louisiana, and Florida is drawing a redder map. South Carolina, Tennessee and Missouri could try to draw new maps before voting begins.`\
 https://www.nytimes.com/2026/04/29/us/politics/supreme-court-voting-rights-midterms.html
-
-**Here’s How the Supreme Court Has Handled Other Humanitarian Protection Cases**\
-`The court has allowed the Trump administration to end protections on a temporary basis in other cases while they are litigated.`\
-https://www.nytimes.com/2026/04/29/us/politics/supreme-court-humanitarian-protection-cases.html
-
-**Maine Second Congressional District 2026: Latest Polls**\
-`Track the latest polls in Maine's 2nd Congressional District.`\
-https://www.nytimes.com/interactive/polls/maine-us-house-2-polls-2026.html
-
-**South Dakota At-Large Congressional District 2026: Latest Polls**\
-`Track the latest polls in South Dakota's At-Large Congressional District.`\
-https://www.nytimes.com/interactive/polls/south-dakota-us-house-at-large-polls-2026.html
 
