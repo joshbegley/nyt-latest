@@ -1,3 +1,7 @@
+**Florida House Approves New Congressional Map in Party-Line Vote**\
+`The new map could give Republicans as many as four new seats in the state’s 28-member delegation, which already has 20 Republicans.`\
+https://www.nytimes.com/2026/04/29/us/elections/florida-house-approves-new-congressional-map-in-party-line-vote.html
+
 **La lista completa de invitados a la cena de Estado de Trump con Carlos y Camila**\
 `Seis miembros de la Corte Suprema fueron invitados a la cena, junto con altos funcionarios del gobierno, multimillonarios y legisladores republicanos.`\
 https://www.nytimes.com/es/2026/04/29/espanol/estados-unidos/trump-rey-carlos-cena-invitados.html

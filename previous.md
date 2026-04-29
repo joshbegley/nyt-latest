@@ -1,3 +1,7 @@
+**Florida House Approves New Congressional Map in Party-Line Vote**\
+`The new map could give Republicans as many as four new seats in the state’s 28-member delegation, which already has 20 Republicans.`\
+https://www.nytimes.com/2026/04/29/us/elections/florida-house-approves-new-congressional-map-in-party-line-vote.html
+
 **La lista completa de invitados a la cena de Estado de Trump con Carlos y Camila**\
 `Seis miembros de la Corte Suprema fueron invitados a la cena, junto con altos funcionarios del gobierno, multimillonarios y legisladores republicanos.`\
 https://www.nytimes.com/es/2026/04/29/espanol/estados-unidos/trump-rey-carlos-cena-invitados.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/polls/south-dakota-us-house-at-large-polls-2
 **New Yorkers to World Cup Fans: Please Don’t Walk to MetLife**\
 `Instead of paying $150 for NJ Transit tickets to get to the stadium, some Europeans online are suggesting a scenic stroll through New Jersey’s interstates and swamps.`\
 https://www.nytimes.com/2026/04/29/style/world-cup-metlife-walking-new-jersey.html
-
-**Coast Guard Calls Off Search for Crew of Capsized Cargo Ship**\
-`The Mariana, a 145-foot vessel with six crew members, was found overturned after a typhoon, prompting an 11-day search which found no survivors.`\
-https://www.nytimes.com/2026/04/29/world/asia/typhoon-sinlaku-us-ship-dead-coast-guard.html
 
