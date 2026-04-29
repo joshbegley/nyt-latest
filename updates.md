@@ -1,3 +1,11 @@
+**Trump Administration Issues Another Indictment Against Comey**\
+`The Trump administration announced on Tuesday that it was pursuing charges against James Comey, the former F.B.I. director, for a deleted Instagram post displaying seashells arranged in a way that the administration claimed threatened the president.`\
+https://www.nytimes.com/video/us/politics/100000010869008/comey-indicted-patel-blanche.html
+
+**See the Menu for the British Royal State Dinner**\
+`Spring-herbed ravioli and Dover sole meunière are among the dishes at the dinner honoring King Charles III of Britain and Queen Camilla.`\
+https://www.nytimes.com/2026/04/28/us/politics/menu-british-royal-state-dinner.html
+
 **King Charles III Delivers Message of Unity to Congress**\
 `King Charles III delivered an address to a joint meeting of Congress on Tuesday, becoming only the second British monarch to do so.`\
 https://www.nytimes.com/video/us/100000010865581/king-charles-speech-congress.html
