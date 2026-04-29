@@ -1,3 +1,31 @@
+**Powell Announces He Will Stay on as Fed Governor**\
+`Jerome H. Powell announced on Wednesday that he would stay on as a governor at the Federal Reserve after his term as chair ends next month due to lingering legal threats from the Trump administration.`\
+https://www.nytimes.com/video/us/politics/100000010870996/jerome-powell-stays-fed-governor.html
+
+**Roger Sweet, Creator of the He-Man Action Figure, Dies at 91**\
+`The musclebound character he developed as a toy designer for Mattel gave rise to the Masters of the Universe franchise and helped define the machismo of the 1980s.`\
+https://www.nytimes.com/2026/04/29/arts/roger-sweet-dead-he-man.html
+
+**What the Royal State Dinner Guest List Says About Trump’s America**\
+`There were at least 10 American billionaires, six Fox News hosts, assorted presidential pals, no Democratic politicians and not so many British.`\
+https://www.nytimes.com/2026/04/29/us/politics/trump-white-house-state-dinner.html
+
+**They Left for the School Bus. ICE Picked Them Up Instead.**\
+`A school transfer disrupted two brothers’ visas, their lawyer said, leaving them vulnerable to arrest and unsettling their Mississippi school community.`\
+https://www.nytimes.com/2026/04/29/us/mississippi-basketball-players-arrested-ice.html
+
+**The Supreme Court Just Erased What Was Left of the Voting Rights Act**\
+`In the name of disentangling race from politics, the court has given white voters more power at the expense of racial minorities.`\
+https://www.nytimes.com/2026/04/29/opinion/supreme-court-voting-rights-act-2026.html
+
+**BossMan Dlow's Boisterous Boasts**\
+`On this edition of the “Popcast” Song of the Week, our critic Jon Caramanica breaks down a boastful party track from BossMan Dlow, who he calls “the funniest rapper working right now.”`\
+https://www.nytimes.com/video/podcasts/100000010871592/bossman-dlows-boisterous-boasts.html
+
+**Queen Camilla Unites Winnie-the-Pooh With a Long-Lost Friend**\
+`On Wednesday, the Queen of England presented the New York Public Library with a bespoke replica of Roo, the smallest companion of the Bear of Very Little Brain.`\
+https://www.nytimes.com/2026/04/29/books/queen-camilla-winnie-the-pooh.html
+
 **Why the U.A.E. is Quitting OPEC**\
 `The United Arab Emirates is walking away from OPEC this May. The New York Times’ energy reporter, Rebecca Elliott, breaks down how the war with Iran provided the perfect opening for the U.A.E. to go solo.`\
 https://www.nytimes.com/video/business/100000010867871/why-the-uae-is-quitting-opec.html
