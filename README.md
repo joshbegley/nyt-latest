@@ -1,3 +1,7 @@
+**Republicans eye redistricting opportunities in the South, starting with Louisiana.**\
+``\
+https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/republicans-eye-redistricting-opportunities-in-the-south-starting-with-louisiana
+
 **The Good List: 6 Things to Add Some Joy to Your Day**\
 `Showering at the airport, blossoms in seams and the bar for joy.`\
 https://www.nytimes.com/2026/04/29/briefing/the-good-list-shower-airport.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/world/europe/100000010869732/timmy-stranded-whale-
 **How Do We Measure Our World?**\
 `Plus, we want to know what you think.`\
 https://www.nytimes.com/2026/04/29/headway/headway-newsletter-reader-feedback.html
-
-**North London Stabbing Is Being Treated as Terrorism, Police Say**\
-`Two men were stabbed in north London on Wednesday, in an area that is home to just over half of Britain’s 300,000 Jewish residents. The city’s main police force said the attack was being treated as terrorism.`\
-https://www.nytimes.com/video/world/europe/100000010869878/golders-green-london-stabbing-terrorism.html
 

@@ -1,6 +1,18 @@
+**The Good List: 6 Things to Add Some Joy to Your Day**\
+`Showering at the airport, blossoms in seams and the bar for joy.`\
+https://www.nytimes.com/2026/04/29/briefing/the-good-list-shower-airport.html
+
+**Tim Cook’s Legacy + The Future of U.B.I.**\
+`This week, Tim Cook announced he would step down as chief executive of Apple. We discuss what he got right and what he got wrong, and we offer some unsolicited advice for his replacement, John Ternus. Then, Andrew Yang joins us to discuss A.I.-powered job automation and why universal basic income may be making a comeback. And finally, we catch up on more recent tech news with a round of HatGPT.`\
+https://www.nytimes.com/video/podcasts/100000010867973/tim-cooks-legacy-the-future-of-ubi.html
+
+**Here’s where the redistricting wars stand.**\
+``\
+https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/heres-where-the-redistricting-wars-stand
+
 **Powell Says He Will Stay on as Fed Governor After Term as Chair Ends**\
 `Jerome H. Powell cited lingering legal threats against him and the Federal Reserve in explaining his decision to remain at the central bank.`\
-https://www.nytimes.com/2026/04/29/business/economy/powell-says-he-will-stay-on-as-fed-governor-after-term-as-chair-ends.html
+https://www.nytimes.com/2026/04/29/business/economy/powell-fed-stay-governor.html
 
 **Billionaire Bill Ackman Achieves His Long-Awaited U.S. I.P.O.**\
 `The initial public offering of Mr. Ackman’s new fund, Pershing Square USA, raised $5 billion.`\
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/29/headway/headway-newsletter-reader-feedback.ht
 **North London Stabbing Is Being Treated as Terrorism, Police Say**\
 `Two men were stabbed in north London on Wednesday, in an area that is home to just over half of Britain’s 300,000 Jewish residents. The city’s main police force said the attack was being treated as terrorism.`\
 https://www.nytimes.com/video/world/europe/100000010869878/golders-green-london-stabbing-terrorism.html
-
-**Some states have their own Voting Rights Acts.**\
-``\
-https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/some-states-have-their-own-voting-rights-acts
-
-**Tiny Love Stories: ‘Everyone Was a Few Drinks In’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://www.nytimes.com/2026/04/29/style/tiny-modern-love-stories-everyone-was-a-few-drinks-in.html
-
-**Un magnate indio ofrece refugio a los hipopótamos de Pablo Escobar**\
-`Colombia anunció un plan para aplicar la eutanasia a 80 hipopótamos descendientes de los importados hace 40 años. Ahora, un multimillonario dice que quiere llevarlos a India.`\
-https://www.nytimes.com/es/2026/04/29/espanol/mundo/ambani-india-hipopotamos-colombia.html
 
