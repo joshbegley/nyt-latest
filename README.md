@@ -1,3 +1,19 @@
+**Hegseth Cites Falsehood to Defend His Firing of Senior Officers**\
+`The defense secretary said at a House hearing that President Barack Obama had fired 197 generals, a figure that the Pentagon previously acknowledged was false.`\
+https://www.nytimes.com/2026/04/29/us/politics/pete-hegseth-falsehood-firings.html
+
+**These Runners Kept Going to 100 or Beyond**\
+`Many picked up running late in life. They all shared an uncommon competitive drive.`\
+https://www.nytimes.com/2026/04/29/obituaries/100-year-old-runners-lester-wright.html
+
+**Lester Wright, the Fastest Known Centenarian, Dies at 103**\
+`In 2022, at 100, he set what was believed to be a world record in the 100-meter dash at the Penn Relays in Philadelphia, beating 86- and 92-year-old competitors.`\
+https://www.nytimes.com/2026/04/29/sports/lester-wright-dead.html
+
+**After Their Bus Driver Blacked Out, the Kids Sprang Into Action**\
+`Footage of the incident shared this week by a school district in Mississippi shows a group of students working together to avert disaster on a highway.`\
+https://www.nytimes.com/2026/04/29/us/mississippi-students-bus-accident.html
+
 **Queen Camilla Unites Winnie-the-Pooh with a Long-Lost Friend**\
 `On Wednesday, the Queen of England presented the New York Public Library with a bespoke replica of Roo, the smallest companion of the Bear of Very Little Brain.`\
 https://www.nytimes.com/2026/04/29/books/queen-camilla-winnie-the-pooh.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/29/world/iran-hormuz-toll-king-charles.html
 **Two Cocky Authoritarians Blocking Hormuz: What Could Go Wrong?**\
 `In the Iran war, we have two overconfident administrations facing off, each believing that time is on its side.`\
 https://www.nytimes.com/2026/04/29/opinion/iran-war-hormuz-blockade.html
-
-**Building a World ‘Quite Unlike Our Own’**\
-`How can the left deliver on its promises if it can’t even navigate its own “horrendous” bureaucracy? On “The Ezra Klein Show,” the Opinion columnist Ezra Klein reflects on Senator Bernie Sanders’s frustrations with government, and argues that government efficiency is the essential “common sense” foundation for a radical vision of American abundance.`\
-https://www.nytimes.com/video/opinion/100000010852248/building-a-world-quite-unlike-our-own.html
-
-**Trump Administration Sues New Jersey Governor Over ICE Mask Ban**\
-`New Jersey, where Mikie Sherrill is governor, is one of only a few states to try to bar federal immigration agents from wearing masks.`\
-https://www.nytimes.com/2026/04/29/nyregion/new-jersey-trump-ice-mask-lawsuit.html
-
-**A.I. Spending Sets a Record, With No End in Sight**\
-`Google, Amazon, Microsoft and Meta reported more than $130 billion in quarterly capital expenditures on Wednesday as they build A.I. data centers. There’s more to come.`\
-https://www.nytimes.com/2026/04/29/technology/ai-spending-tech-data-centers.html
-
-**Ford Reports Higher Profit Thanks Partly to Tariff Refund**\
-`Ford Motor said it expected the federal government to refund $1.3 billion the company paid in tariffs that the Supreme Court later struck down.`\
-https://www.nytimes.com/2026/04/29/business/ford-motor-tariff-refund-profit.html
 
