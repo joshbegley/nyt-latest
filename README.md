@@ -1,3 +1,7 @@
+**Springfield’s Haitian Workers and Businesses Face Uncertain Future**\
+`Haitians played a pivotal role in revitalizing the once struggling Ohio city. The end of Temporary Protected Status could be a setback for its future.`\
+https://www.nytimes.com/2026/04/29/us/politics/springfield-haitian-workers-deportation.html
+
 **The Soccer Pros Who Still Live With Their Parents**\
 `Julian Hall and Adri Mehmeti are New York City teenagers living the dream: not old enough to drink but still expected to hold their own against Messi.`\
 https://www.nytimes.com/2026/04/29/nyregion/julian-zakrzewski-hall-adri-mehmeti-red-bulls-soccer.html
@@ -54,10 +58,6 @@ https://www.nytimes.com/weather/new-york-new-york
 `See the hourly and 7-day forecast.`\
 https://www.nytimes.com/weather/houston-texas
 
-**Phoenix, Ariz. Weather Forecast**\
-`See the hourly and 7-day forecast.`\
-https://www.nytimes.com/weather/phoenix-arizona
-
 **Hail in Fort Worth, Texas**\
 `See the hourly and 7-day forecast.`\
 https://www.nytimes.com/weather/fort-worth-texas
@@ -70,11 +70,11 @@ https://www.nytimes.com/weather
 `See the hourly and 7-day forecast.`\
 https://www.nytimes.com/weather/chicago-illinois
 
+**Phoenix, Ariz. Weather Forecast**\
+`See the hourly and 7-day forecast.`\
+https://www.nytimes.com/weather/phoenix-arizona
+
 **Minneapolis, Minn. Weather Forecast**\
 `See the hourly and 7-day forecast.`\
 https://www.nytimes.com/weather/minneapolis-minnesota
-
-**Hail in Dallas, Texas**\
-`See the hourly and 7-day forecast.`\
-https://www.nytimes.com/weather/dallas-texas
 
