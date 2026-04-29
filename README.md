@@ -1,3 +1,27 @@
+**At State Dinner, King Charles Charms the Court of Trump**\
+`King Charles III presented President Trump with a golden bell. “Should you ever need to get hold of us,” the king said, “well, just give us a ring!”`\
+https://www.nytimes.com/2026/04/29/us/politics/at-state-dinner-king-charles-enters-the-court-of-trump.html
+
+**How Iran Accumulated 11 Tons of Enriched Uranium**\
+`Two months after the United States began a war meant to prevent Iran from ever building an atomic bomb, the fate of its stockpile of enriched uranium remains a mystery.`\
+https://www.nytimes.com/interactive/2026/04/29/science/iran-enriched-uranium-stockpile-nuclear-energy-bomb.html
+
+**Gallows Humor Provides Respite From Mideast Wars**\
+`Arab digital creators on social media are turning out edgy material to cope with the conflicts and bring levity to a pain that often feels too raw.`\
+https://www.nytimes.com/2026/04/29/world/middleeast/mideast-war-humor.html
+
+**Global Deforestation Slows, Analysis Finds. But Fires Remain a Major Threat.**\
+`In 2025, the world razed less forest than any other year in the last decade. The bad news: global warming is making wildfires more frequent and intense.`\
+https://www.nytimes.com/2026/04/29/climate/wri-report-forest-loss.html
+
+**Corrections: April 29, 2026**\
+`Corrections that appeared in print on Wednesday, April 29, 2026.`\
+https://www.nytimes.com/2026/04/29/pageoneplus/corrections-april-29-2026.html
+
+**Quote of the Day: In Months, China Turns Reef Into Possible Base**\
+`Quotation of the Day for Wednesday, April 29, 2026.`\
+https://www.nytimes.com/2026/04/28/pageoneplus/quote-of-the-day-in-months-china-turns-reef-into-possible-base.html
+
 **Acid Attack in Indonesia Evokes Brutality of Suharto Era**\
 `The victim had protested against the widening role of the military, which activists say is reminiscent of the country’s decades-long dictatorship.`\
 https://www.nytimes.com/2026/04/28/world/asia/indonesia-andrei-acid-trial.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/04/28/us/politics/king-charles-trump-rebuke.html
 **This Time, the King’s Speech Was Full of Jokes**\
 `Charles III’s address at a joint meeting of Congress on Tuesday sprinkled well-crafted jokes among carefully chosen references to the United States and Britain’s shared history.`\
 https://www.nytimes.com/2026/04/28/us/king-charles-speech-congress.html
-
-**Canadá ofrece una nueva forma de obtener la ciudadanía**\
-`Las autoridades han abierto una vía hacia la ciudadanía para quienes puedan demostrar que tienen un antepasado nacido en Canadá. Millones de personas podrían optar a ella.`\
-https://www.nytimes.com/es/2026/04/28/espanol/mundo/canada-ciudadania.html
-
-**Father and Daughter Who Sold Fake Warhols Plead Guilty in Forgery Scheme**\
-`Erwin Bankowski and Karolina Bankowska, of New Jersey, commissioned a Polish artist to create counterfeit artworks that sold for a total of over $2 million.`\
-https://www.nytimes.com/2026/04/28/nyregion/banksy-fakes.html
-
-**The British public have taken a dim view of the king’s visit.**\
-``\
-https://www.nytimes.com/live/2026/04/28/us/king-charles-us-visit-trump/uk-public-opinion
-
-**OpenAI Trial Starts With Two Very Different Tales of a Company’s Early Years**\
-`In the trial’s first day of testimony, Elon Musk said greed led co-founder Sam Altman to pull the A.I. lab away from its nonprofit roots. OpenAI says that’s nonsense.`\
-https://www.nytimes.com/2026/04/28/technology/openai-trial-elon-musk-sam-altman.html
-
-**King Charles Stresses Significance of U.S.-U.K. Ties**\
-`Also, James Comey, the former F.B.I. director, is indicted. Here’s the latest at the end of Tuesday.`\
-https://www.nytimes.com/2026/04/28/briefing/king-charles-speech-congress-james-comey.html
-
-**4 extranjeros estaban en el operativo antidroga de Chihuahua, dicen autoridades de México**\
-`Autoridades mexicanas dieron a conocer que había más extranjeros presentes en la redada antinarcóticos tras la que murieron dos hombres identificados como agentes de la CIA.`\
-https://www.nytimes.com/es/2026/04/28/espanol/america-latina/mexico-agentes-cia-chihuahua.html
 
