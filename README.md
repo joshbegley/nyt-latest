@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/04/29/business/china-silicon-valley-manus.html
 `The federal law had been a “game changer” for Latino voters, but Wednesday’s ruling could weaken Asian Americans’ political power in the state.`\
 https://www.nytimes.com/2026/04/29/us/elections/voting-rights-act-supreme-court-california.html
 
-**Takeaways from Powell’s final news conference as Fed chair.**\
+**Takeaways from the Fed’s latest meeting, Powell’s last as chair.**\
 ``\
 https://www.nytimes.com/live/2026/04/29/business/federal-reserve-interest-rates/takeaways-from-powells-final-news-conference-as-fed-chair
 
