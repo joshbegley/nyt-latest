@@ -1,3 +1,7 @@
+**40 Years After Explosion, Chernobyl Site Faces New Threats From Russia**\
+`Forty years since the Chernobyl nuclear disaster, officials are grappling with the impact of a 2025 Russian drone strike that set back decades of efforts to contain it. Ukrainian officials said the Russians deliberately targeted the structure, but the Kremlin has denied responsibility.`\
+https://www.nytimes.com/video/world/europe/100000010863426/chernobyl-nuclear-disaster-anniversary.html
+
 **Congressional Republicans Struggle to Do the Basics as Chambers Clash**\
 `House Republicans toiled to pass major measures as lawmakers scramble to fund homeland security, extend spy powers and deliver a farm bill.`\
 https://www.nytimes.com/2026/04/29/us/politics/congressional-republicans-dysfunction.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/29/us/politics/redistricting-maps-supreme-court-
 **Why Texas Is Winning the Housing War**\
 `Rents are falling in Texas — and the reason is simpler than you think. Derek Thompson, a contributing writer at The Atlantic, tells the Opinion columnist Ezra Klein how Dallas and Austin have shown that the only real cure for a housing crisis is an aggressive, unrelenting surge in supply.`\
 https://www.nytimes.com/video/opinion/100000010852250/why-texas-is-winning-the-housing-war.html
-
-**Lee el acta de imputación a funcionarios y exfuncionarios mexicanos**\
-`Fiscales de Estados Unidos acusaron a un gobernador mexicano y a otros nueve funcionarios y exfuncionarios mexicanos de participar en una amplia conspiración para ayudar a un poderoso cártel mexicano a importar drogas a Estados Unidos.`\
-https://www.nytimes.com/interactive/2026/04/29/espanol/acta-de-imputacion-sinaloa.html
 
