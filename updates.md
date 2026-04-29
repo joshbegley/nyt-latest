@@ -1,3 +1,7 @@
+**Road Closures and Traffic Delays Expected for Charles and Camilla’s Day in New York**\
+`The New York Police Department urged commuters to use public transportation during the royal visit on Wednesday.`\
+https://www.nytimes.com/2026/04/29/us/king-charles-nyc-traffic-road-closures.html
+
 **What to know about T.P.S. for Haitians and Syrians.**\
 ``\
 https://www.nytimes.com/live/2026/04/29/us/supreme-court-immigration-tps/tps-haitians-syrians
