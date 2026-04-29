@@ -1,3 +1,7 @@
+**One Justice Has Personal Ties to Haiti: Barrett**\
+`Two of Justice Amy Coney Barrett’s seven children were adopted from Haiti.`\
+https://www.nytimes.com/2026/04/29/us/politics/amy-coney-barrett-haiti.html
+
 **Too Much Dudamel? No Such Thing.**\
 `The flamboyant conductor Gustavo Dudamel got a jubilant reception at the New York Philharmonic’s spring gala on Tuesday.`\
 https://www.nytimes.com/2026/04/29/style/gustavo-dudamel-new-york-philharmonic.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/04/29/us/king-charles-royal-visit-trump-us/her
 **Trial Begins for 3 Men Accused of Arson Attacks at Starmer’s Homes**\
 `Two Ukrainians and a Romanian were charged last year with setting fire to two buildings and a car linked to Prime Minister Keir Starmer of Britain.`\
 https://www.nytimes.com/2026/04/29/world/europe/arson-keir-starmer-homes.html
-
-**U.S. Gas Prices Climb Further as Effects of War Reverberate**\
-`The national average price of a gallon of gasoline hit $4.23, following oil prices upward as supplies from the Middle East remain disrupted.`\
-https://www.nytimes.com/2026/04/29/business/oil-gas-prices-iran.html
 
