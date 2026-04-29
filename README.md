@@ -1,3 +1,11 @@
+**These states could redraw their maps before the midterms.**\
+``\
+https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/these-states-could-redraw-their-maps-before-the-midterms
+
+**Russia’s Victory Day Parade Won’t Have the Usual Display of Armor**\
+`The absence of tanks and other heavy military vehicles on Red Square will highlight the heavy toll of the war in Ukraine.`\
+https://www.nytimes.com/2026/04/29/world/europe/russia-victory-day-parade-tanks.html
+
 **Springfield’s Haitian Workers and Businesses Face Uncertain Future**\
 `Haitians played a pivotal role in revitalizing the once struggling Ohio city. The end of Temporary Protected Status could be a setback for its future.`\
 https://www.nytimes.com/2026/04/29/us/politics/springfield-haitian-workers-deportation.html
@@ -58,6 +66,10 @@ https://www.nytimes.com/weather/new-york-new-york
 `See the hourly and 7-day forecast.`\
 https://www.nytimes.com/weather/houston-texas
 
+**Phoenix, Ariz. Weather Forecast**\
+`See the hourly and 7-day forecast.`\
+https://www.nytimes.com/weather/phoenix-arizona
+
 **Hail in Fort Worth, Texas**\
 `See the hourly and 7-day forecast.`\
 https://www.nytimes.com/weather/fort-worth-texas
@@ -65,16 +77,4 @@ https://www.nytimes.com/weather/fort-worth-texas
 **Weather Forecast**\
 `See the hourly and 7-day forecast.`\
 https://www.nytimes.com/weather
-
-**Chicago, Ill. Weather Forecast**\
-`See the hourly and 7-day forecast.`\
-https://www.nytimes.com/weather/chicago-illinois
-
-**Phoenix, Ariz. Weather Forecast**\
-`See the hourly and 7-day forecast.`\
-https://www.nytimes.com/weather/phoenix-arizona
-
-**Minneapolis, Minn. Weather Forecast**\
-`See the hourly and 7-day forecast.`\
-https://www.nytimes.com/weather/minneapolis-minnesota
 

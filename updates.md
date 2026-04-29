@@ -1,3 +1,15 @@
+**Springfield’s Haitian Workers and Businesses Face Uncertain Future**\
+`Haitians played a pivotal role in revitalizing the once struggling Ohio city. The end of Temporary Protected Status could be a setback for its future.`\
+https://www.nytimes.com/2026/04/29/us/politics/springfield-haitian-workers-deportation.html
+
+**The Soccer Pros Who Still Live With Their Parents**\
+`Julian Hall and Adri Mehmeti are New York City teenagers living the dream: not old enough to drink but still expected to hold their own against Messi.`\
+https://www.nytimes.com/2026/04/29/nyregion/julian-zakrzewski-hall-adri-mehmeti-red-bulls-soccer.html
+
+**How the Supreme Court’s Voting Rights Ruling Could Be Felt in the Midterms**\
+`Democrats will lose at least one blue-leaning district in Louisiana, and Florida is drawing a redder map. South Carolina, Tennessee and Missouri could try to draw new maps before voting begins.`\
+https://www.nytimes.com/2026/04/29/us/politics/supreme-court-voting-rights-midterms.html
+
 **Today, In Short**\
 `Skin care. The greatest living songwriters. And the latest from the Supreme Court.`\
 https://www.nytimes.com/2026/04/29/briefing/today-in-short.html
