@@ -1,3 +1,11 @@
+**Trump Administration Issues Another Indictment Against Comey**\
+`The Trump administration announced on Tuesday that it was pursuing charges against James Comey, the former F.B.I. director, for a deleted Instagram post displaying seashells arranged in a way that the administration claimed threatened the president.`\
+https://www.nytimes.com/video/us/politics/100000010869008/comey-indicted-patel-blanche.html
+
+**See the Menu for the British Royal State Dinner**\
+`Spring-herbed ravioli and Dover sole meunière are among the dishes at the dinner honoring King Charles III of Britain and Queen Camilla.`\
+https://www.nytimes.com/2026/04/28/us/politics/menu-british-royal-state-dinner.html
+
 **King Charles III Delivers Message of Unity to Congress**\
 `King Charles III delivered an address to a joint meeting of Congress on Tuesday, becoming only the second British monarch to do so.`\
 https://www.nytimes.com/video/us/100000010865581/king-charles-speech-congress.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/28/climate/the-epas-lost-science.html
 **Dirty Gold**\
 `A Times investigation shows how the U.S. and Canadian mints ended up buying gold that came from a Colombian drug cartel.`\
 https://www.nytimes.com/2026/04/28/world/dirty-gold-mints-opec-king-charles.html
-
-**Democrats Pitch ‘New Affordability,’ Looking to Widen Midterm Appeal**\
-`Progressives who expect their party to take control of Congress are putting forth a slate of bills aimed at helping lower costs for Americans, financed by tax increases on the wealthy.`\
-https://www.nytimes.com/2026/04/28/us/politics/democrats-affordability-midterms.html
-
-**The Banality of Evil, Again**\
-`The distinguishing feature of Cole Tomas Allen’s manifesto is its insipidity.`\
-https://www.nytimes.com/2026/04/28/opinion/whcd-shooting-trump-manifesto.html
 
