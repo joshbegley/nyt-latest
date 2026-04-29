@@ -1,3 +1,11 @@
+**Mississippi will move quickly to redraw its judicial district lines.**\
+``\
+https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/mississippi-will-move-quickly-to-redraw-its-judicial-district-lines
+
+**U.S. Indicts Mexican Governor on Accusations of Aiding Sinaloa Cartel**\
+`Prosecutors accused Rubén Rocha Moya, the governor of Sinaloa state, and other Mexican officials of a yearslong scheme to protect the powerful drug cartel.`\
+https://www.nytimes.com/2026/04/29/world/americas/ruben-rocha-moya-indictment-mexico.html
+
 **Takeaways from Powell’s final Fed meeting as chair**\
 ``\
 https://www.nytimes.com/live/2026/04/29/business/federal-reserve-interest-rates/takeaways-from-powells-final-fed-meeting-as-chair
