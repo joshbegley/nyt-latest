@@ -1,3 +1,7 @@
+**Congress Races to Renew Surveillance Law After House Approval**\
+`Republicans put down a right-wing revolt to push the measure through the House, but it faces changes in the Senate that could delay its final passage past a Friday expiration.`\
+https://www.nytimes.com/2026/04/29/us/politics/congress-house-fisa-surveillance-law.html
+
 **Civil rights leaders see the voting rights ruling as a ‘betrayal.’**\
 `Leaders and activists said a Supreme Court ruling had the potential to unravel decades of work toward giving Black Americans fair representation.`\
 https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/civil-rights-leaders-see-the-voting-rights-ruling-as-a-betrayal
