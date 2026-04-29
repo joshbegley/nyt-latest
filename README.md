@@ -1,3 +1,11 @@
+**U.S. and Italy Honor Alliance to Curb Art Looting, Amid Broader Tensions**\
+`Standing near dozens of repatriated artifacts, officials from the countries celebrated efforts that have led to the return of thousands of artworks to Italy.`\
+https://www.nytimes.com/2026/04/29/arts/design/us-italy-art-looting.html
+
+**The Iran War Might Be an ‘Everything War’**\
+`It won’t be so easy to extract ourselves from this conflict`\
+https://www.nytimes.com/2026/04/29/opinion/iran-war-polycrisis.html
+
 **Republicans eye redistricting opportunities in the South, starting with Louisiana.**\
 ``\
 https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/republicans-eye-redistricting-opportunities-in-the-south-starting-with-louisiana
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/29/us/politics/hegseth-iran-war-cost.html
 **Peter Raven Dies at 89; Botanist Warned of Perils of Climate Change**\
 `He transformed the Missouri Botanical Garden into an international research hub and laid out the existential threats posed by deforestation and unchecked development.`\
 https://www.nytimes.com/2026/04/29/science/earth/peter-raven-dead.html
-
-**‘Timmy’ the Stranded Whale Begins Journey to the North Sea**\
-`A barge carrying a whale made its way toward the North Sea, where rescuers hope the humpback will swim further into the Atlantic Ocean. The whale, nicknamed Timmy, had been stranded off Germany’s Baltic coast for several weeks.`\
-https://www.nytimes.com/video/world/europe/100000010869732/timmy-stranded-whale-germany-rescue.html
-
-**How Do We Measure Our World?**\
-`Plus, we want to know what you think.`\
-https://www.nytimes.com/2026/04/29/headway/headway-newsletter-reader-feedback.html
 
