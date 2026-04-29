@@ -1,3 +1,7 @@
+**Maine Second Congressional District 2026: Latest Polls**\
+`Track the latest polls in Maine's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/maine-us-house-2-polls-2026.html
+
 **South Dakota At-Large Congressional District 2026: Latest Polls**\
 `Track the latest polls in South Dakota's At-Large Congressional District.`\
 https://www.nytimes.com/interactive/polls/south-dakota-us-house-at-large-polls-2026.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/weather/minneapolis-minnesota
 **Philadelphia, Pa. Weather Forecast**\
 `See the hourly and 7-day forecast.`\
 https://www.nytimes.com/weather/philadelphia-pennsylvania
-
-**New Jersey Eighth Congressional District 2026: Latest Polls**\
-`Track the latest polls in New Jersey's 8th Congressional District.`\
-https://www.nytimes.com/interactive/polls/new-jersey-us-house-8-polls-2026.html
 
