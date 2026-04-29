@@ -1,3 +1,11 @@
+**For a royal family in turmoil, the state visit could be a moment of positivity.**\
+``\
+https://www.nytimes.com/live/2026/04/29/us/king-charles-royal-visit-trump-us/for-a-royal-family-in-turmoil-the-state-visit-could-be-a-moment-of-positivity
+
+**Indian Tycoon Offers Refuge to Pablo Escobar’s Condemned Hippos**\
+`Colombia was planning to slaughter 80 hippopotamuses after a small herd imported in the 1980s by the drug lord grew out of control. An Indian tycoon has offered them a new home instead.`\
+https://www.nytimes.com/2026/04/29/world/asia/indian-tycoon-ambani-hippos-colombia-escobar.html
+
 **The Stakes of Trump’s Latest Fight With Disney**\
 `The Federal Communications Commission is clashing again with the media giant. It’s another warning about the costs of angering President Trump.`\
 https://www.nytimes.com/2026/04/29/business/dealbook/trump-disney-kimmel-fcc.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/29/world/europe/france-american-universities-tru
 **The World War II Submarine Behind Charles’s Gift to Trump**\
 `The bell that King Charles III gave President Trump on his state visit came from a submarine that sank several Japanese ships in the Pacific War in 1945.`\
 https://www.nytimes.com/2026/04/29/us/hms-trump-submarine-king-charles-ww2.html
-
-**Paraguay dice que no abandona a Taiwán. China tiene otros planes**\
-`Pekín intenta romper una inesperada relación a larga distancia que ha perdurado durante décadas. ¿Paraguay podría verse tentado a alejarse?`\
-https://www.nytimes.com/es/2026/04/29/espanol/america-latina/paraguay-taiwan-china.html
-
-**A Curator Died Suddenly. Could the Art World’s Most Important Event Be Saved?**\
-`Koyo Kouoh, who died of cancer at 57, was just months into her dream job overseeing the Venice Biennale’s centerpiece exhibition. But she left a plan that her assistants have tried to realize.`\
-https://www.nytimes.com/2026/04/29/arts/design/koyo-kouoh-venice-biennale.html
 
