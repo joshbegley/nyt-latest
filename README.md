@@ -1,4 +1,4 @@
-**White House Urges House To Quickly Fund D.H.S.**\
+**White House Urges House to Quickly Fund D.H.S.**\
 `The call amounted to a rebuke of Speaker Mike Johnson, who has delayed action on a homeland security spending bill and suggested this week that it needed changes.`\
 https://www.nytimes.com/2026/04/28/us/politics/congress-dhs-funding.html
 

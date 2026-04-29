@@ -1,3 +1,11 @@
+**White House Urges House To Quickly Fund D.H.S.**\
+`The call amounted to a rebuke of Speaker Mike Johnson, who has delayed action on a homeland security spending bill and suggested this week that it needed changes.`\
+https://www.nytimes.com/2026/04/28/us/politics/congress-dhs-funding.html
+
+**Full Guest List for Trump’s State Dinner With Charles and Camilla**\
+`Six members of the Supreme Court were invited to the dinner, alongside top administration officials, billionaires and Republican lawmakers.`\
+https://www.nytimes.com/2026/04/28/us/politics/state-dinner-guest-list.html
+
 **Trump Administration Issues Another Indictment Against Comey**\
 `The Trump administration announced on Tuesday that it was pursuing charges against James Comey, the former F.B.I. director, for a deleted Instagram post displaying seashells arranged in a way that the administration claimed threatened the president.`\
 https://www.nytimes.com/video/us/politics/100000010869008/comey-indicted-patel-blanche.html
