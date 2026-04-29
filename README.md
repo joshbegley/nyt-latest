@@ -1,3 +1,7 @@
+**Acid Attack in Indonesia Evokes Brutality of Suharto Era**\
+`The victim had protested against the widening role of the military, which activists say is reminiscent of the country’s decades-long dictatorship.`\
+https://www.nytimes.com/2026/04/28/world/asia/indonesia-andrei-acid-trial.html
+
 **High-Profile Race in Manhattan District Won’t Be Called Until Next Week**\
 `The City Council special election pitting Lindsey Boylan, backed by Mayor Zohran Mamdani, against Carl Wilson, a community activist, will go to a second round. Mr. Wilson had a substantial lead.`\
 https://www.nytimes.com/2026/04/28/nyregion/nyc-city-council-election.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/28/briefing/king-charles-speech-congress-james-c
 **4 extranjeros estaban en el operativo antidroga de Chihuahua, dicen autoridades de México**\
 `Autoridades mexicanas dieron a conocer que había más extranjeros presentes en la redada antinarcóticos tras la que murieron dos hombres identificados como agentes de la CIA.`\
 https://www.nytimes.com/es/2026/04/28/espanol/america-latina/mexico-agentes-cia-chihuahua.html
-
-**Port Authority to Install Tracker Not Used During Deadly LaGuardia Crash**\
-`Federal investigators had said that the lack of a transponder on a fire truck played a role in a deadly collision with an Air Canada Express jet at LaGuardia.`\
-https://www.nytimes.com/2026/04/28/nyregion/laguardia-airport-crash-transponder.html
 
