@@ -1,3 +1,15 @@
+**Et tu, Brute? What Elon Musk’s clash with Sam Altman is really about.**\
+``\
+https://www.nytimes.com/live/2026/04/29/technology/openai-trial-sam-altman-elon-musk/et-tu-brute-what-elon-musks-clash-with-sam-altman-is-really-about
+
+**Read Supreme Court’s Ruling and Dissent on Louisiana Voting Map**\
+`The justices, split along ideological lines, found that Louisiana’s voting map was an unconstitutional racial gerrymander.`\
+https://www.nytimes.com/interactive/2026/04/29/us/scotus-voting-rights.html
+
+**Which Countries Have T.P.S.?**\
+`The Trump administration has sought to end protections for people from 13 of the 17 countries that had the status.`\
+https://www.nytimes.com/2026/04/29/us/politics/which-countries-have-tps.html
+
 **These are the lawyers who will be arguing the T.P.S. case.**\
 `The justices will hear from the solicitor general, followed by lawyers for Syrians and Haitians.`\
 https://www.nytimes.com/live/2026/04/29/us/supreme-court-immigration-tps/these-are-the-lawyers-who-will-be-arguing-the-tps-case
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/29/world/europe/trump-merz-iran.html
 **How to Build a Better Kind of Nuclear Power? This Side Hustle Might Help.**\
 `Zap Energy says its ultimate goal is safe, clean energy from fusion. To help get there, it’s starting to build fission reactors.`\
 https://www.nytimes.com/2026/04/29/climate/zap-energy-fusion-fission.html
-
-**Can I Skip My Niece’s Graduation to Avoid the Politics?**\
-`A reader wants to be a supportive aunt at the Naval Academy commencement, but the prospect of political speeches has her gritting her teeth.`\
-https://www.nytimes.com/2026/04/29/style/political-commencement-speeches.html
-
-**F.D.A. Releases Results from Major Infant Formula Safety Study**\
-`The agency said the analysis of more than 300 formula samples was reassuring, but outside experts raised some concerns.`\
-https://www.nytimes.com/2026/04/29/well/eat/infant-formula-safety-fda.html
-
-**Fidelity Won’t Let Fund Holders Donate to Southern Poverty Law Center**\
-`Fidelity cited the Justice Department’s recent action against the civil rights organization in emails to holders of its charitable-giving funds explaining its decision.`\
-https://www.nytimes.com/2026/04/29/business/fidelity-southern-poverty-law-center.html
 
