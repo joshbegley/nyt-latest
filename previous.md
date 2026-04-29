@@ -1,3 +1,15 @@
+**What to Know About the Voting Rights Act**\
+`The 1965 law was mean to address fundamental inequities in American life, and was one of the signal accomplishments of the civil rights movement.`\
+https://www.nytimes.com/2026/04/29/us/elections/voting-rights-act-explainer.html
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/heres-the-latest
+
+**Comey and Kimmel: Seashells and a Joke**\
+`Readers discuss the James Comey indictment and the Jimmy Kimmel joke. Also: The U.S.A.I.D. tragedy; privatizing the mail.`\
+https://www.nytimes.com/2026/04/29/opinion/james-comey-jimmy-kimmel.html
+
 **¿Qué cenaron el presidente Trump y el rey Carlos?**\
 `Los ravioles con hierbas de primavera y el lenguado de Dover à la meunière fueron algunos de los platos de la cena en honor de los reyes Carlos III y Camila del Reino Unido.`\
 https://www.nytimes.com/es/2026/04/29/espanol/estados-unidos/cena-carlos-trump-menu.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/es/2026/04/29/espanol/estados-unidos/trump-rey-carlos-qu
 **Florida Lawmakers Debate Aggressive New Map as Supreme Court Decision Lands**\
 `The map would eliminate as many as four Democratic-held districts, including one that is heavily Puerto Rican. Republicans expressed confidence in the map’s legality.`\
 https://www.nytimes.com/2026/04/29/us/elections/voting-rights-scotus-florida.html
-
-**Why Is There a Voting Rights Act? A Timeline**\
-`Here’s a look at some key events that led to and followed the Voting Rights Act of 1965.`\
-https://www.nytimes.com/2026/04/29/us/voting-rights-act-history.html
-
-**These states could have time to redraw their maps before the midterms.**\
-``\
-https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/these-states-could-redraw-their-maps-before-the-midterms
-
-**Russia’s Victory Day Parade Won’t Have the Usual Display of Armor**\
-`The absence of tanks and other heavy military vehicles on Red Square will highlight the heavy toll of the war in Ukraine.`\
-https://www.nytimes.com/2026/04/29/world/europe/russia-victory-day-parade-tanks.html
 

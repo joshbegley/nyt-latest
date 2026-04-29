@@ -1,3 +1,15 @@
+**What to Know About the Voting Rights Act**\
+`The 1965 law was mean to address fundamental inequities in American life, and was one of the signal accomplishments of the civil rights movement.`\
+https://www.nytimes.com/2026/04/29/us/elections/voting-rights-act-explainer.html
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/heres-the-latest
+
+**Comey and Kimmel: Seashells and a Joke**\
+`Readers discuss the James Comey indictment and the Jimmy Kimmel joke. Also: The U.S.A.I.D. tragedy; privatizing the mail.`\
+https://www.nytimes.com/2026/04/29/opinion/james-comey-jimmy-kimmel.html
+
 **¿Qué cenaron el presidente Trump y el rey Carlos?**\
 `Los ravioles con hierbas de primavera y el lenguado de Dover à la meunière fueron algunos de los platos de la cena en honor de los reyes Carlos III y Camila del Reino Unido.`\
 https://www.nytimes.com/es/2026/04/29/espanol/estados-unidos/cena-carlos-trump-menu.html
