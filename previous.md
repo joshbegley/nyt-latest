@@ -1,3 +1,11 @@
+**Powell Says He Will Stay on as Fed Governor After Term as Chair Ends**\
+`Jerome H. Powell cited lingering legal threats against him and the Federal Reserve in explaining his decision to remain at the central bank.`\
+https://www.nytimes.com/2026/04/29/business/economy/powell-says-he-will-stay-on-as-fed-governor-after-term-as-chair-ends.html
+
+**Billionaire Bill Ackman Achieves His Long-Awaited U.S. I.P.O.**\
+`The initial public offering of Mr. Ackman’s new fund, Pershing Square USA, raised $5 billion.`\
+https://www.nytimes.com/2026/04/29/business/bill-ackman-pershing-square-ipo.html
+
 **Supreme Court Sides With Anti-Abortion Clinic in Fight Over Donor Records**\
 `A crisis pregnancy group had asked the justices to allow it to sue in federal court over a demand for donor information by New Jersey officials.`\
 https://www.nytimes.com/2026/04/29/us/politics/supreme-court-abortion-subpoena.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/29/style/tiny-modern-love-stories-everyone-was-a
 **Un magnate indio ofrece refugio a los hipopótamos de Pablo Escobar**\
 `Colombia anunció un plan para aplicar la eutanasia a 80 hipopótamos descendientes de los importados hace 40 años. Ahora, un multimillonario dice que quiere llevarlos a India.`\
 https://www.nytimes.com/es/2026/04/29/espanol/mundo/ambani-india-hipopotamos-colombia.html
-
-**Florida House Approves New Congressional Map in Party-Line Vote**\
-`The new map could give Republicans as many as four new seats in the state’s 28-member delegation, which already has 20 Republicans.`\
-https://www.nytimes.com/2026/04/29/us/elections/florida-house-approves-new-congressional-map-in-party-line-vote.html
-
-**La lista completa de invitados a la cena de Estado de Trump con Carlos y Camila**\
-`Seis miembros de la Corte Suprema fueron invitados a la cena, junto con altos funcionarios del gobierno, multimillonarios y legisladores republicanos.`\
-https://www.nytimes.com/es/2026/04/29/espanol/estados-unidos/trump-rey-carlos-cena-invitados.html
 

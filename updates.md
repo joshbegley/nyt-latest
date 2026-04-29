@@ -1,3 +1,11 @@
+**Powell Says He Will Stay on as Fed Governor After Term as Chair Ends**\
+`Jerome H. Powell cited lingering legal threats against him and the Federal Reserve in explaining his decision to remain at the central bank.`\
+https://www.nytimes.com/2026/04/29/business/economy/powell-says-he-will-stay-on-as-fed-governor-after-term-as-chair-ends.html
+
+**Billionaire Bill Ackman Achieves His Long-Awaited U.S. I.P.O.**\
+`The initial public offering of Mr. Ackman’s new fund, Pershing Square USA, raised $5 billion.`\
+https://www.nytimes.com/2026/04/29/business/bill-ackman-pershing-square-ipo.html
+
 **Supreme Court Sides With Anti-Abortion Clinic in Fight Over Donor Records**\
 `A crisis pregnancy group had asked the justices to allow it to sue in federal court over a demand for donor information by New Jersey officials.`\
 https://www.nytimes.com/2026/04/29/us/politics/supreme-court-abortion-subpoena.html
