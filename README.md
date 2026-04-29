@@ -1,3 +1,7 @@
+**Why the U.A.E. is Quitting OPEC**\
+`The United Arab Emirates is walking away from OPEC this May. The New York Times’ energy reporter, Rebecca Elliott, breaks down how the war with Iran provided the perfect opening for the U.A.E. to go solo.`\
+https://www.nytimes.com/video/business/100000010867871/why-the-uae-is-quitting-opec.html
+
 **40 Years After Explosion, Chernobyl Site Faces New Threats From Russia**\
 `Forty years since the Chernobyl nuclear disaster, officials are grappling with the impact of a 2025 Russian drone strike that set back decades of efforts to contain it. Ukrainian officials said the Russians deliberately targeted the structure, but the Kremlin has denied responsibility.`\
 https://www.nytimes.com/video/world/europe/100000010863426/chernobyl-nuclear-disaster-anniversary.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/04/29/world/americas/ruben-rocha-moya-i
 **The Supreme Court Shakes Up America’s Political Maps**\
 `Both parties are now scrambling to adjust to a new voting rights landscape.`\
 https://www.nytimes.com/2026/04/29/us/politics/redistricting-maps-supreme-court-voting.html
-
-**Why Texas Is Winning the Housing War**\
-`Rents are falling in Texas — and the reason is simpler than you think. Derek Thompson, a contributing writer at The Atlantic, tells the Opinion columnist Ezra Klein how Dallas and Austin have shown that the only real cure for a housing crisis is an aggressive, unrelenting surge in supply.`\
-https://www.nytimes.com/video/opinion/100000010852250/why-texas-is-winning-the-housing-war.html
 
