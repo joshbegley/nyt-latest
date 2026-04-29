@@ -1,3 +1,11 @@
+**Officials Distorted Facts to Justify Deporting Haitians, Internal Emails Show**\
+`Emails revealed in a California lawsuit and now submitted to the Supreme Court show that an administration researcher privately disputed claims about Haitians.`\
+https://www.nytimes.com/2026/04/29/us/politics/haitians-internal-emails-tps.html
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/29/technology/openai-trial-sam-altman-elon-musk/heres-the-latest
+
 **Arguments May Shed Light on the Court’s ‘Shadow Docket’**\
 `The Trump administration urged the justices to rely on earlier terse emergency rulings and explain “what to make of this court’s interim orders.”`\
 https://www.nytimes.com/2026/04/29/us/politics/tps-court-shadow-docket.html
