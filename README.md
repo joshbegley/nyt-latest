@@ -1,3 +1,15 @@
+**A Look Back at Charles’s U.S. Trips**\
+`From a barbecue at Camp David to a college football game, the British monarch has experienced many American traditions over decades of visiting the United States.`\
+https://www.nytimes.com/2026/04/29/world/europe/king-charles-us-trips-visits.html
+
+**Oro sucio**\
+`Una investigación del Times muestra cómo las casas de la moneda de EE. UU. y Canadá compraron oro procedente de un cartel de la droga de Colombia.`\
+https://www.nytimes.com/es/2026/04/29/espanol/mundo/oro-casa-moneda-cartel-colombia.html
+
+**Aguas claras, moral turbia: cuando los humanos nadan con orcas**\
+`Solo en dos lugares del mundo se permite a los humanos entrar en el agua con el depredador supremo del océano. A medida que aumentan las multitudes y cambian las normativas, la seguridad de ambas especies es motivo de preocupación.`\
+https://www.nytimes.com/es/2026/04/29/espanol/ciencia-y-tecnologia/turismo-buceo-orcas-mexico-noruega.html
+
 **King Charles Speaks of ‘Indispensable Alliance’ at State Dinner With Trump**\
 `President Trump held a state dinner honoring King Charles III and his wife, Queen Camilla. During the toast, the two leaders praised the enduring alliance between the nations.`\
 https://www.nytimes.com/video/us/politics/100000010869434/king-charles-trump-state-dinner.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/29/learning/who-is-the-greatest-living-songwrite
 **Behind the A.I. Boom, a Boring Business Is Soaring With Better Ads**\
 `Google and Meta are enjoying a digital ad boom, as artificial intelligence automates marketing and drives record sales.`\
 https://www.nytimes.com/2026/04/29/technology/ai-artificial-intelligence-ad-boom.html
-
-**First Came Cake. Then Came Steak.**\
-`The literary food magazine Cake Zine celebrated a savory special issue.`\
-https://www.nytimes.com/2026/04/29/style/cake-zine-literary-party-steak.html
-
-**Judge Asks Justice Department: Will You Oppose Trump?**\
-`A federal judge has ordered the Justice Department to explain whether it intends to contest President Trump’s $10 billion lawsuit against the I.R.S. over the disclosure of his tax returns.`\
-https://www.nytimes.com/2026/04/29/us/politics/trump-justice-department-lawsuit-tax-returns-disclosure.html
-
-**She Gave Her Second Tiny Home a Wee Upgrade**\
-`Alchemy Architects pioneered the weeHouse after building a home for Stephanie Arado. Decades later, she wanted another one — this time with plumbing.`\
-https://www.nytimes.com/2026/04/29/realestate/small-tiny-homes-minnesota.html
 
