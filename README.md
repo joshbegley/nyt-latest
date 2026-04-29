@@ -1,3 +1,7 @@
+**Hockey Fans in Buffalo Finish ‘O Canada’ After Singer’s Mic Malfunctions**\
+`A crowd in Buffalo chimed in to sing the Canadian national anthem before an N.H.L. playoff game. That presented a contrast to ongoing U.S.-Canada tensions.`\
+https://www.nytimes.com/2026/04/29/sports/hockey/buffalo-sabres-nhl-canadian-anthem.html
+
 **A Look Back at Charles’s U.S. Trips**\
 `From a barbecue at Camp David to a college football game, the British monarch has experienced many American traditions over decades of visiting the United States.`\
 https://www.nytimes.com/2026/04/29/world/europe/king-charles-us-trips-visits.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/29/business/energy-environment/uae-opec-oil-cart
 **Who Is the Greatest Living Songwriter?**\
 `Times critics have named their top 30 American songwriters. Do you agree with their list? Who is missing? Here is your chance to make the case for your favorite.`\
 https://www.nytimes.com/2026/04/29/learning/who-is-the-greatest-living-songwriter.html
-
-**Behind the A.I. Boom, a Boring Business Is Soaring With Better Ads**\
-`Google and Meta are enjoying a digital ad boom, as artificial intelligence automates marketing and drives record sales.`\
-https://www.nytimes.com/2026/04/29/technology/ai-artificial-intelligence-ad-boom.html
 

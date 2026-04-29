@@ -1,3 +1,15 @@
+**A Look Back at Charles’s U.S. Trips**\
+`From a barbecue at Camp David to a college football game, the British monarch has experienced many American traditions over decades of visiting the United States.`\
+https://www.nytimes.com/2026/04/29/world/europe/king-charles-us-trips-visits.html
+
+**Oro sucio**\
+`Una investigación del Times muestra cómo las casas de la moneda de EE. UU. y Canadá compraron oro procedente de un cartel de la droga de Colombia.`\
+https://www.nytimes.com/es/2026/04/29/espanol/mundo/oro-casa-moneda-cartel-colombia.html
+
+**Aguas claras, moral turbia: cuando los humanos nadan con orcas**\
+`Solo en dos lugares del mundo se permite a los humanos entrar en el agua con el depredador supremo del océano. A medida que aumentan las multitudes y cambian las normativas, la seguridad de ambas especies es motivo de preocupación.`\
+https://www.nytimes.com/es/2026/04/29/espanol/ciencia-y-tecnologia/turismo-buceo-orcas-mexico-noruega.html
+
 **King Charles Speaks of ‘Indispensable Alliance’ at State Dinner With Trump**\
 `President Trump held a state dinner honoring King Charles III and his wife, Queen Camilla. During the toast, the two leaders praised the enduring alliance between the nations.`\
 https://www.nytimes.com/video/us/politics/100000010869434/king-charles-trump-state-dinner.html
