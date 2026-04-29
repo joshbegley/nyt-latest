@@ -46,8 +46,8 @@ https://www.nytimes.com/2026/04/28/business/starbucks-quarterly-earnings.html
 `Timothy Brown said he had been humiliated and injured after he was punched and kicked by police during a wrongful arrest that was caught on video.`\
 https://www.nytimes.com/2026/04/28/nyregion/beating-nypd-brooklyn-narcotics-claim.html
 
-**Beneath King Charles’s Jokes and Decorum, a Subtle Rebuttal to Trump**\
-`King Charles III gently pushed back against President Trump’s attacks on Britain and NATO.`\
+**Beneath King Charles’s Jokes and Decorum, Some Subtle Rebuttals to Trump**\
+`King Charles III gently pushed back against President Trump’s attacks on Britain and NATO, and he spoke of the importance of checks and balances.`\
 https://www.nytimes.com/2026/04/28/us/politics/king-charles-trump-rebuke.html
 
 **This Time, the King’s Speech Was Full of Jokes**\

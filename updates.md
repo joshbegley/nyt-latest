@@ -1,3 +1,7 @@
+**Beneath King Charles’s Jokes and Decorum, Some Subtle Rebuttals to Trump**\
+`King Charles III gently pushed back against President Trump’s attacks on Britain and NATO, and he spoke of the importance of checks and balances.`\
+https://www.nytimes.com/2026/04/28/us/politics/king-charles-trump-rebuke.html
+
 **Acid Attack in Indonesia Evokes Brutality of Suharto Era**\
 `The victim had protested against the widening role of the military, which activists say is reminiscent of the country’s decades-long dictatorship.`\
 https://www.nytimes.com/2026/04/28/world/asia/indonesia-andrei-acid-trial.html
