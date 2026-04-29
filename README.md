@@ -1,3 +1,7 @@
+**Uber Can Already Bring You Dinner. Now, It Wants to Book Your Hotel Room.**\
+`In partnership with Expedia, the ride-booking, food-delivering, package-transporting service takes another step toward becoming a super app.`\
+https://www.nytimes.com/2026/04/29/travel/uber-hotel-booking-expedia.html
+
 **Officials Distorted Facts to Justify Deporting Haitians, Internal Emails Show**\
 `Emails revealed in a California lawsuit and now submitted to the Supreme Court show that an administration researcher privately disputed claims about Haitians.`\
 https://www.nytimes.com/2026/04/29/us/politics/haitians-internal-emails-tps.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/29/world/asia/indian-tycoon-ambani-hippos-colomb
 **The Stakes of Trump’s Latest Fight With Disney**\
 `The Federal Communications Commission is clashing again with the media giant. It’s another warning about the costs of angering President Trump.`\
 https://www.nytimes.com/2026/04/29/business/dealbook/trump-disney-kimmel-fcc.html
-
-**An Age of Political Violence?**\
-`We look into whether the U.S. is in a new era of violent extremism.`\
-https://www.nytimes.com/2026/04/29/briefing/an-age-of-political-violence.html
 
