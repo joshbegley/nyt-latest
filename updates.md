@@ -1,3 +1,27 @@
+**Testing the Waters**\
+`Iran has threatened to start charging a toll for passage through the Strait of Hormuz. Even if it never happens, the idea could unsettle global shipping.`\
+https://www.nytimes.com/2026/04/29/world/iran-hormuz-toll-king-charles.html
+
+**Two Cocky Authoritarians Blocking Hormuz: What Could Go Wrong?**\
+`In the Iran war, we have two overconfident administrations facing off, each believing that time is on its side.`\
+https://www.nytimes.com/2026/04/29/opinion/iran-war-hormuz-blockade.html
+
+**Building a World ‘Quite Unlike Our Own’**\
+`How can the left deliver on its promises if it can’t even navigate its own “horrendous” bureaucracy? On “The Ezra Klein Show,” the Opinion columnist Ezra Klein reflects on Senator Bernie Sanders’s frustrations with government, and argues that government efficiency is the essential “common sense” foundation for a radical vision of American abundance.`\
+https://www.nytimes.com/video/opinion/100000010852248/building-a-world-quite-unlike-our-own.html
+
+**Ford Reports Higher Profit Thanks Partly to Tariff Refund**\
+`Ford Motor said it expected the federal government to refund $1.3 billion the company paid in tariffs that the Supreme Court later struck down.`\
+https://www.nytimes.com/2026/04/29/business/ford-motor-tariff-refund-profit.html
+
+**Mississippi Will Move Quickly to Redraw Its Judicial District Lines**\
+`The state’s Republican governor said he would call a special session in 21 days to address the state’s judicial maps.`\
+https://www.nytimes.com/2026/04/29/us/elections/mississippi-will-move-quickly-to-redraw-its-judicial-district-lines.html
+
+**Takeaways from Powell’s final Fed meeting as chair.**\
+``\
+https://www.nytimes.com/live/2026/04/29/business/federal-reserve-interest-rates/takeaways-from-powells-final-news-conference-as-fed-chair
+
 **A.I. Spending Sets a Record, With No End in Sight**\
 `Google, Amazon, Microsoft and Meta reported more than $130 billion in quarterly capital expenditures on Wednesday as they build A.I. data centers. There’s more to come.`\
 https://www.nytimes.com/2026/04/29/technology/ai-spending-tech-data-centers.html
