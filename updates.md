@@ -1,3 +1,19 @@
+**Montana First Congressional District 2026: Latest Polls**\
+`Track the latest polls in Montana's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/montana-us-house-1-polls-2026.html
+
+**How Temporary is T.P.S.?**\
+`While some from countries with Temporary Protected Status stay for many years, others have been sent home with little fanfare when their countries were deemed safe.`\
+https://www.nytimes.com/2026/04/29/us/politics/how-temporary-is-tps.html
+
+**Supreme Court Deals Further Blow to Voting Rights Act**\
+`The court struck down Louisiana’s voting map as an illegal racial gerrymander in a move that could make it harder for lawmakers to create majority-minority voting districts.`\
+https://www.nytimes.com/2026/04/29/us/elections/supreme-court-voting-rights-act.html
+
+**Rebuffed by American Airlines, United’s C.E.O. Is Wary of Other Deals**\
+`The chief executive, Scott Kirby, said that buying a smaller airline might not be worth the effort.`\
+https://www.nytimes.com/2026/04/29/business/united-airlines-american-scott-kirby.html
+
 **Et tu, Brute? What Elon Musk’s clash with Sam Altman is really about.**\
 ``\
 https://www.nytimes.com/live/2026/04/29/technology/openai-trial-sam-altman-elon-musk/et-tu-brute-what-elon-musks-clash-with-sam-altman-is-really-about
