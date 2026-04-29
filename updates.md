@@ -1,3 +1,23 @@
+**Hegseth Cites Falsehood to Defend His Firing of Senior Officers**\
+`The defense secretary said at a House hearing that President Barack Obama had fired 197 generals, a figure that the Pentagon previously acknowledged was false.`\
+https://www.nytimes.com/2026/04/29/us/politics/pete-hegseth-falsehood-firings.html
+
+**These Runners Kept Going to 100 or Beyond**\
+`Many picked up running late in life. They all shared an uncommon competitive drive.`\
+https://www.nytimes.com/2026/04/29/obituaries/100-year-old-runners-lester-wright.html
+
+**Lester Wright, the Fastest Known Centenarian, Dies at 103**\
+`In 2022, at 100, he set what was believed to be a world record in the 100-meter dash at the Penn Relays in Philadelphia, beating 86- and 92-year-old competitors.`\
+https://www.nytimes.com/2026/04/29/sports/lester-wright-dead.html
+
+**After Their Bus Driver Blacked Out, the Kids Sprang Into Action**\
+`Footage of the incident shared this week by a school district in Mississippi shows a group of students working together to avert disaster on a highway.`\
+https://www.nytimes.com/2026/04/29/us/mississippi-students-bus-accident.html
+
+**Queen Camilla Unites Winnie-the-Pooh with a Long-Lost Friend**\
+`On Wednesday, the Queen of England presented the New York Public Library with a bespoke replica of Roo, the smallest companion of the Bear of Very Little Brain.`\
+https://www.nytimes.com/2026/04/29/books/queen-camilla-winnie-the-pooh.html
+
 **Brown University Gunman Planned Attack for Years, F.B.I. Says**\
 `Investigators said the man’s transient lifestyle and social isolation made his intentions hard to track before shootings that killed two Brown students and an M.I.T. professor.`\
 https://www.nytimes.com/2026/04/29/us/brown-university-shooting-fbi.html
