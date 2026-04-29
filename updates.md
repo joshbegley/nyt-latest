@@ -1,3 +1,7 @@
+**Why the U.A.E. is Quitting OPEC**\
+`The United Arab Emirates is walking away from OPEC this May. The New York Times’ energy reporter, Rebecca Elliott, breaks down how the war with Iran provided the perfect opening for the U.A.E. to go solo.`\
+https://www.nytimes.com/video/business/100000010867871/why-the-uae-is-quitting-opec.html
+
 **40 Years After Explosion, Chernobyl Site Faces New Threats From Russia**\
 `Forty years since the Chernobyl nuclear disaster, officials are grappling with the impact of a 2025 Russian drone strike that set back decades of efforts to contain it. Ukrainian officials said the Russians deliberately targeted the structure, but the Kremlin has denied responsibility.`\
 https://www.nytimes.com/video/world/europe/100000010863426/chernobyl-nuclear-disaster-anniversary.html
