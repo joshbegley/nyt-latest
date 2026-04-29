@@ -1,3 +1,11 @@
+**La popularidad de Trump cae de cara a las elecciones intermedias**\
+`Aún faltan seis meses para las elecciones, y algunos miembros del partido del presidente afirman que aún hay tiempo para enderezar el rumbo, pese al panorama desalentador.`\
+https://www.nytimes.com/es/2026/04/29/espanol/estados-unidos/popularidad-trump-elecciones-intermedias.html
+
+**I Played Putin in a War Game. He Could Invade Again.**\
+`NATO countries need to get their act together.`\
+https://www.nytimes.com/2026/04/29/opinion/international-world/putin-russia-nato-attack.html
+
 **At State Dinner, King Charles Charms the Court of Trump**\
 `King Charles III presented President Trump with a golden bell. “Should you ever need to get hold of us,” the king said, “well, just give us a ring!”`\
 https://www.nytimes.com/2026/04/29/us/politics/at-state-dinner-king-charles-enters-the-court-of-trump.html
