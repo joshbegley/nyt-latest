@@ -1,3 +1,11 @@
+**The Split Between China and Silicon Valley Just Got Wider**\
+`Beijing’s insistence that Meta unwind its deal with a Chinese A.I. start-up marks an escalation in the geopolitical fight over advanced tech.`\
+https://www.nytimes.com/2026/04/29/business/china-silicon-valley-manus.html
+
+**New York has welcomed previous British monarchs with 21-gun salutes and lobster bisque.**\
+``\
+https://www.nytimes.com/live/2026/04/29/us/king-charles-royal-visit-trump-us/new-york-has-welcomed-previous-british-monarchs-with-21-gun-salutes-and-lobster-bisque
+
 **How the Voting Rights Act Reshaped California Politics**\
 `The federal law had been a “game changer” for Latino voters, but Wednesday’s ruling could weaken Asian Americans’ political power in the state.`\
 https://www.nytimes.com/2026/04/29/us/elections/voting-rights-act-supreme-court-california.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/podcasts/100000010867973/tim-cooks-legacy-the-futu
 **Here’s where the redistricting wars stand.**\
 ``\
 https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/heres-where-the-redistricting-wars-stand
-
-**Powell Says He Will Stay On as Fed Governor After Term as Chair Ends**\
-`Jerome H. Powell cited lingering legal threats against him and the Federal Reserve in explaining his decision to remain at the central bank.`\
-https://www.nytimes.com/2026/04/29/business/economy/powell-fed-stay-governor.html
-
-**Billionaire Bill Ackman Achieves His Long-Awaited U.S. I.P.O.**\
-`The initial public offering of Mr. Ackman’s new fund, Pershing Square USA, raised $5 billion.`\
-https://www.nytimes.com/2026/04/29/business/bill-ackman-pershing-square-ipo.html
 
