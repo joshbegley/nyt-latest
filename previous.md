@@ -1,3 +1,7 @@
+**The World War II Submarine Behind Charles’s Gift to Trump**\
+`The bell that King Charles III gave President Trump on his state visit came from a submarine that sank several Japanese ships in the Pacific War in 1945.`\
+https://www.nytimes.com/2026/04/29/us/hms-trump-submarine-king-charles-ww2.html
+
 **Paraguay dice que no abandona a Taiwán. China tiene otros planes**\
 `Pekín intenta romper una inesperada relación a larga distancia que ha perdurado durante décadas. ¿Paraguay podría verse tentado a alejarse?`\
 https://www.nytimes.com/es/2026/04/29/espanol/america-latina/paraguay-taiwan-china.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/29/nyregion/charles-camilla-winnie-the-pooh.html
 **Visconti’s ‘Bellissima’: Mama’s Going to See to It!**\
 `The director’s 1951 movie, at Film Forum in a new 4K restoration, satirizes the Italian film industry via Anna Magnani’s over-the-top stage mother.`\
 https://www.nytimes.com/2026/04/29/movies/bellissima-film-forum.html
-
-**For Your Next U.S. Road Trip, a Touch of Elegance at 5 Hotels**\
-`Add these new or newly revamped accommodations to your summer driving itinerary.`\
-https://www.nytimes.com/2026/04/29/travel/road-trip-hotels-united-states.html
 
