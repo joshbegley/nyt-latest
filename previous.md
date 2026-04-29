@@ -1,3 +1,11 @@
+**Why Texas Is Winning the Housing War**\
+`Rents are falling in Texas — and the reason is simpler than you think. Derek Thompson, a contributing writer at The Atlantic, tells the Opinion columnist Ezra Klein how Dallas and Austin have shown that the only real cure for a housing crisis is an aggressive, unrelenting surge in supply.`\
+https://www.nytimes.com/video/opinion/100000010852250/why-texas-is-winning-the-housing-war.html
+
+**Lee el acta de imputación a funcionarios y exfuncionarios mexicanos**\
+`Fiscales de Estados Unidos acusaron a un gobernador mexicano y a otros nueve funcionarios y exfuncionarios mexicanos de participar en una amplia conspiración para ayudar a un poderoso cártel mexicano a importar drogas a Estados Unidos.`\
+https://www.nytimes.com/interactive/2026/04/29/espanol/acta-de-imputacion-sinaloa.html
+
 **Testing the Waters**\
 `Iran has threatened to start charging a toll for passage through the Strait of Hormuz. Even if it never happens, the idea could unsettle global shipping.`\
 https://www.nytimes.com/2026/04/29/world/iran-hormuz-toll-king-charles.html
@@ -65,12 +73,4 @@ https://www.nytimes.com/live/2026/04/29/business/federal-reserve-interest-rates/
 **Prosecutors Say Suspect Planned Attack Weeks Before Press Gala**\
 `A new prosecution memo details the preparations made in the days and weeks before the assault on the White House correspondents’ dinner.`\
 https://www.nytimes.com/2026/04/29/us/white-house-correspondents-dinner-shooter.html
-
-**Trump and Putin Call for a Brief Cease-Fire in Ukraine**\
-`Previous truces have broken down amid competing accusations of violations, and it is not clear that Ukraine will agree to Moscow’s terms.`\
-https://www.nytimes.com/2026/04/29/world/europe/ukraine-russia-ceasefire-trump-putin.html
-
-**EE. UU. imputa al gobernador de Sinaloa de apoyar al narcotráfico**\
-`Fiscales estadounidenses acusan a Rubén Rocha Moya y otros funcionarios en activo de apoyar a organizaciones criminales a cambio de dinero y votos.`\
-https://www.nytimes.com/es/2026/04/29/espanol/america-latina/ee-uu-acusa-gobernador-sinaloa-narcotrafico.html
 
