@@ -1,3 +1,7 @@
+**Fidelity Won’t Let Fund Holders Donate to Southern Poverty Law Center**\
+`Fidelity cited the Justice Department’s recent action against the civil rights organization in emails to holders of its charitable-giving funds explaining its decision.`\
+https://www.nytimes.com/2026/04/29/business/fidelity-southern-poverty-law-center.html
+
 **Counterterrorism Police Investigating Stabbing in Jewish Area in London**\
 `Two men who were stabbed in Golders Green on Wednesday were reported in stable condition, the police said. One man was arrested.`\
 https://www.nytimes.com/2026/04/29/world/europe/london-stabbing-golders-green.html
