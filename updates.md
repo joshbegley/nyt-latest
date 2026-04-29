@@ -1,3 +1,7 @@
+**Hockey Fans in Buffalo Finish ‘O Canada’ After Singer’s Mic Malfunctions**\
+`A crowd in Buffalo chimed in to sing the Canadian national anthem before an N.H.L. playoff game. That presented a contrast to ongoing U.S.-Canada tensions.`\
+https://www.nytimes.com/2026/04/29/sports/hockey/buffalo-sabres-nhl-canadian-anthem.html
+
 **A Look Back at Charles’s U.S. Trips**\
 `From a barbecue at Camp David to a college football game, the British monarch has experienced many American traditions over decades of visiting the United States.`\
 https://www.nytimes.com/2026/04/29/world/europe/king-charles-us-trips-visits.html
