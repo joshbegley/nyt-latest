@@ -1,3 +1,15 @@
+**New Jersey Eighth Congressional District 2026: Latest Polls**\
+`Track the latest polls in New Jersey's 8th Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-jersey-us-house-8-polls-2026.html
+
+**Melania Trump, Queen Camilla and the Look of the Special Relationship**\
+`Parsing a state visit told in photo ops, and style.`\
+https://www.nytimes.com/2026/04/29/style/melania-trump-queen-camilla-state-visit.html
+
+**Anti-Haiti remarks by Trump figure in the Supreme Court arguments.**\
+`The Trump administration argues its effort to end humanitarian protections for Haitians was based on foreign policy and national security, not race.`\
+https://www.nytimes.com/live/2026/04/29/us/supreme-court-immigration-tps/anti-haiti-remarks-by-trump-could-figure-in-the-supreme-court-arguments
+
 **New Jersey Seventh Congressional District 2026: Latest Polls**\
 `Track the latest polls in New Jersey's 7th Congressional District.`\
 https://www.nytimes.com/interactive/polls/new-jersey-us-house-7-polls-2026.html

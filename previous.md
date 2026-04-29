@@ -1,8 +1,16 @@
+**New Jersey Eighth Congressional District 2026: Latest Polls**\
+`Track the latest polls in New Jersey's 8th Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-jersey-us-house-8-polls-2026.html
+
+**Melania Trump, Queen Camilla and the Look of the Special Relationship**\
+`Parsing a state visit told in photo ops, and style.`\
+https://www.nytimes.com/2026/04/29/style/melania-trump-queen-camilla-state-visit.html
+
 **New Jersey Seventh Congressional District 2026: Latest Polls**\
 `Track the latest polls in New Jersey's 7th Congressional District.`\
 https://www.nytimes.com/interactive/polls/new-jersey-us-house-7-polls-2026.html
 
-**Anti-Haiti remarks by Trump could figure in the Supreme Court arguments.**\
+**Anti-Haiti remarks by Trump figure in the Supreme Court arguments.**\
 `The Trump administration argues its effort to end humanitarian protections for Haitians was based on foreign policy and national security, not race.`\
 https://www.nytimes.com/live/2026/04/29/us/supreme-court-immigration-tps/anti-haiti-remarks-by-trump-could-figure-in-the-supreme-court-arguments
 
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/29/us/politics/haitians-internal-emails-tps.html
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/29/technology/openai-trial-sam-altman-elon-musk/heres-the-latest
-
-**Arguments May Shed Light on the Court’s ‘Shadow Docket’**\
-`The Trump administration urged the justices to rely on earlier terse emergency rulings and explain “what to make of this court’s interim orders.”`\
-https://www.nytimes.com/2026/04/29/us/politics/tps-court-shadow-docket.html
-
-**One Justice Has Personal Ties to Haiti: Barrett**\
-`Two of Justice Amy Coney Barrett’s seven children were adopted from Haiti.`\
-https://www.nytimes.com/2026/04/29/us/politics/amy-coney-barrett-haiti.html
 
