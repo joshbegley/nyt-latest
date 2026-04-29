@@ -1,3 +1,7 @@
+**Fidelity Won’t Let Fund Holders Donate to Southern Poverty Law Center**\
+`Fidelity cited the Justice Department’s recent lawsuit against the civil rights organization in emails to holders of its charitable-giving funds explaining its decision.`\
+https://www.nytimes.com/2026/04/29/business/fidelity-southern-poverty-law-center.html
+
 **For a royal family in turmoil, the state visit could be a moment of positivity.**\
 ``\
 https://www.nytimes.com/live/2026/04/29/us/king-charles-royal-visit-trump-us/for-a-royal-family-in-turmoil-the-state-visit-could-be-a-moment-of-positivity
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/29/crosswords/wordle-review-1776.html
 **In France, American Universities Lose Their Allure in the Trump Era**\
 `Worries about visas, academic freedom and safety are making foreign schools, like Sciences Po in Paris, more attractive to some students than the Ivy League.`\
 https://www.nytimes.com/2026/04/29/world/europe/france-american-universities-trump-sciences-po.html
-
-**The World War II Submarine Behind Charles’s Gift to Trump**\
-`The bell that King Charles III gave President Trump on his state visit came from a submarine that sank several Japanese ships in the Pacific War in 1945.`\
-https://www.nytimes.com/2026/04/29/us/hms-trump-submarine-king-charles-ww2.html
 
