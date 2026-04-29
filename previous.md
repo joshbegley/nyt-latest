@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/29/us/king-charles-royal-visit-trump-us/heres-the-latest
+
+**Trial Begins for 3 Men Accused of Arson Attacks at Starmer’s Homes**\
+`Two Ukrainians and a Romanian were charged last year with setting fire to two buildings and a car linked to Prime Minister Keir Starmer of Britain.`\
+https://www.nytimes.com/2026/04/29/world/europe/arson-keir-starmer-homes.html
+
+**U.S. Gas Prices Climb Further as Effects of War Reverberate**\
+`The national average price of a gallon of gasoline hit $4.23, following oil prices upward as supplies from the Middle East remain disrupted.`\
+https://www.nytimes.com/2026/04/29/business/oil-gas-prices-iran.html
+
 **Hockey Fans in Buffalo Finish ‘O Canada’ After Singer’s Mic Malfunctions**\
 `A crowd in Buffalo chimed in to sing the Canadian national anthem before an N.H.L. playoff game. That presented a contrast to ongoing U.S.-Canada tensions.`\
 https://www.nytimes.com/2026/04/29/sports/hockey/buffalo-sabres-nhl-canadian-anthem.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/es/2026/04/29/espanol/cultura/la-casa-de-los-espiritus-s
 **New Disney Boss Is Tested by Trump and His Administration**\
 `Josh D’Amaro, who took the helm in February, will have to lead Disney through surprising new scrutiny from the president.`\
 https://www.nytimes.com/2026/04/29/business/media/disney-ceo-josh-damaro-fcc-abc-trump.html
-
-**New York City Announces Proposed Designs for Park Avenue Overhaul**\
-`The city plans to widen the median on an 11-block stretch of the boulevard, removing two traffic lanes, to provide space where people can stroll or linger.`\
-https://www.nytimes.com/2026/04/29/nyregion/park-avenue-redesign-plan.html
-
-**Loss of Emirates Further Weakens OPEC’s Influence**\
-`The exit of the United Arab Emirates is the most significant in a series of departures from the oil cartel in recent years.`\
-https://www.nytimes.com/2026/04/29/business/energy-environment/uae-opec-oil-cartel.html
-
-**Who Is the Greatest Living Songwriter?**\
-`Times critics have named their top 30 American songwriters. Do you agree with their list? Who is missing? Here is your chance to make the case for your favorite.`\
-https://www.nytimes.com/2026/04/29/learning/who-is-the-greatest-living-songwriter.html
 
