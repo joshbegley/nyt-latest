@@ -1,3 +1,7 @@
+**The Stakes of Trump’s Latest Fight With Disney**\
+`The Federal Communications Commission is clashing again with the media giant. It’s another warning about the costs of angering President Trump.`\
+https://www.nytimes.com/2026/04/29/business/dealbook/trump-disney-kimmel-fcc.html
+
 **An Age of Political Violence?**\
 `We look into whether the U.S. is in a new era of violent extremism.`\
 https://www.nytimes.com/2026/04/29/briefing/an-age-of-political-violence.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/29/espanol/america-latina/paraguay-taiwan-chi
 **A Curator Died Suddenly. Could the Art World’s Most Important Event Be Saved?**\
 `Koyo Kouoh, who died of cancer at 57, was just months into her dream job overseeing the Venice Biennale’s centerpiece exhibition. But she left a plan that her assistants have tried to realize.`\
 https://www.nytimes.com/2026/04/29/arts/design/koyo-kouoh-venice-biennale.html
-
-**The Loneliness of Donald Trump**\
-`This is a man who rarely travels beyond the confines of the White House compound or Mar-a-Lago.`\
-https://www.nytimes.com/2026/04/29/opinion/trump-assassination-attempts-political-violence.html
 
