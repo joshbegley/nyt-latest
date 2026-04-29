@@ -1,3 +1,19 @@
+**Tupac Shakur’s Stepbrother Files Wrongful Death Lawsuit, 29 Years After Murder**\
+`Maurice Shakur said in a complaint filed against Duane Keith Davis, who was charged in 2023 with the rapper’s murder, that the “threads are starting to come together.”`\
+https://www.nytimes.com/2026/04/29/arts/music/tupac-murder-lawsuit-stepbrother.html
+
+**For Mother’s Day, Flowers and Cards — With a Twist**\
+`Blossom-filled books, welcoming bird houses and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/04/29/t-magazine/mothers-day-gift-ideas.html
+
+**The Split Between China and Silicon Valley Just Got Wider**\
+`Beijing’s insistence that Meta unwind its deal with a Chinese A.I. start-up escalates the geopolitical fight over advanced tech.`\
+https://www.nytimes.com/2026/04/29/business/china-silicon-valley-manus.html
+
+**Takeaways from the Fed’s latest meeting, Powell’s last as chair.**\
+``\
+https://www.nytimes.com/live/2026/04/29/business/federal-reserve-interest-rates/takeaways-from-powells-final-news-conference-as-fed-chair
+
 **The Split Between China and Silicon Valley Just Got Wider**\
 `Beijing’s insistence that Meta unwind its deal with a Chinese A.I. start-up marks an escalation in the geopolitical fight over advanced tech.`\
 https://www.nytimes.com/2026/04/29/business/china-silicon-valley-manus.html
