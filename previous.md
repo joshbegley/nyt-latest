@@ -1,5 +1,5 @@
-**Peter Raven, Renowned Botanist and Conservationist, Dies at 89**\
-`He transformed the Missouri Botanical Garden into an international research hub and became an influential voice on climate change and other existential threats.`\
+**Peter Raven, 89, Dies; Botanist Warned of the Perils of Climate Change**\
+`He transformed the Missouri Botanical Garden into an international research hub and laid out the existential threats posed by deforestation and unchecked development.`\
 https://www.nytimes.com/2026/04/29/science/earth/peter-raven-dead.html
 
 **‘Timmy’ the Stranded Whale Begins Journey to the North Sea**\
