@@ -26,8 +26,8 @@ https://www.nytimes.com/2026/04/28/pageoneplus/quote-of-the-day-in-months-china-
 `The victim had protested against the widening role of the military, which activists say is reminiscent of the country’s decades-long dictatorship.`\
 https://www.nytimes.com/2026/04/28/world/asia/indonesia-andrei-acid-trial.html
 
-**Carl Wilson Has Won High-Profile City Council Race, Mamdani Says**\
-`The City Council special election pitting Lindsey Boylan, backed by Mayor Zohran Mamdani, against Carl Wilson, a community activist, was not officially called. But the mayor said Mr. Wilson had won.`\
+**Mamdani’s Candidate Concedes in High-Profile Council Race in Manhattan**\
+`The City Council special election pitting Lindsey Boylan, backed by Mayor Zohran Mamdani, against Carl Wilson, a community activist, was not officially called. But Ms. Boylan conceded.`\
 https://www.nytimes.com/2026/04/28/nyregion/nyc-city-council-election.html
 
 **Oakland’s Airport Can Use ‘San Francisco’ in Its Name Under Settlement**\
