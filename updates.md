@@ -1,3 +1,15 @@
+**Supreme Court Sides With Anti-Abortion Clinic in Fight Over Donor Records**\
+`A crisis pregnancy group had asked the justices to allow it to sue in federal court over a demand for donor information by New Jersey officials.`\
+https://www.nytimes.com/2026/04/29/us/politics/supreme-court-abortion-subpoena.html
+
+**What’s Your Ideal Garden Style?**\
+`Take our quiz to find out how to match your dream plot to your personality.`\
+https://www.nytimes.com/2026/04/29/t-magazine/gardening-style-quiz.html
+
+**Peter Raven Dies at 89; Botanist Warned of Perils of Climate Change**\
+`He transformed the Missouri Botanical Garden into an international research hub and laid out the existential threats posed by deforestation and unchecked development.`\
+https://www.nytimes.com/2026/04/29/science/earth/peter-raven-dead.html
+
 **tk**\
 `tk`\
 https://static01.nyt.com/slideshow/2026/04/29/t-magazine/tk.html

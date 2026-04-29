@@ -1,3 +1,11 @@
+**Supreme Court Sides With Anti-Abortion Clinic in Fight Over Donor Records**\
+`A crisis pregnancy group had asked the justices to allow it to sue in federal court over a demand for donor information by New Jersey officials.`\
+https://www.nytimes.com/2026/04/29/us/politics/supreme-court-abortion-subpoena.html
+
+**What’s Your Ideal Garden Style?**\
+`Take our quiz to find out how to match your dream plot to your personality.`\
+https://www.nytimes.com/2026/04/29/t-magazine/gardening-style-quiz.html
+
 **tk**\
 `tk`\
 https://static01.nyt.com/slideshow/2026/04/29/t-magazine/tk.html
@@ -34,7 +42,7 @@ https://www.nytimes.com/live/2026/04/29/technology/openai-trial-sam-altman-elon-
 `During his first public appearance on Capitol Hill since the war began, the defense secretary lashed out at lawmakers in both parties who have questioned the conflict.`\
 https://www.nytimes.com/2026/04/29/us/politics/hegseth-iran-war-cost.html
 
-**Peter Raven, 89, Dies; Botanist Warned of the Perils of Climate Change**\
+**Peter Raven Dies at 89; Botanist Warned of Perils of Climate Change**\
 `He transformed the Missouri Botanical Garden into an international research hub and laid out the existential threats posed by deforestation and unchecked development.`\
 https://www.nytimes.com/2026/04/29/science/earth/peter-raven-dead.html
 
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/29/us/elections/florida-house-approves-new-congr
 **La lista completa de invitados a la cena de Estado de Trump con Carlos y Camila**\
 `Seis miembros de la Corte Suprema fueron invitados a la cena, junto con altos funcionarios del gobierno, multimillonarios y legisladores republicanos.`\
 https://www.nytimes.com/es/2026/04/29/espanol/estados-unidos/trump-rey-carlos-cena-invitados.html
-
-**World Bank estimates energy prices will surge 24 percent in 2026.**\
-`Iran war is fueling inflation and slowing growth around the world, according to a new report.`\
-https://www.nytimes.com/live/2026/04/29/business/federal-reserve-interest-rates/world-bank-estimates-energy-prices-will-surge-24-percent-in-2026
-
-**El rey Carlos refutó de forma sutil a Trump**\
-`El rey Carlos III respondió con delicadeza a los ataques del presidente Trump contra el Reino Unido y la OTAN, y habló de la importancia de los controles y equilibrios.`\
-https://www.nytimes.com/es/2026/04/29/espanol/estados-unidos/trump-rey-carlos-que-dijo.html
 
