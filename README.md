@@ -1,3 +1,19 @@
+**High-Profile Race in Manhattan District Won’t Be Called Until Next Week**\
+`The City Council special election pitting Lindsey Boylan, backed by Mayor Zohran Mamdani, against Carl Wilson, a community activist, will go to a second round. Mr. Wilson had a substantial lead.`\
+https://www.nytimes.com/2026/04/28/nyregion/nyc-city-council-election.html
+
+**Oakland’s Airport Can Use ‘San Francisco’ in Its Name Under Settlement**\
+`The agreement ends a two-year dispute between the Bay Area cities over the smaller airport’s rebranding.`\
+https://www.nytimes.com/2026/04/28/us/oakland-airport-san-francisco-name-settlement.html
+
+**Rose Up**\
+`Joseph Gangi shares a great Wednesday puzzle.`\
+https://www.nytimes.com/2026/04/28/crosswords/daily-puzzle-2026-04-29.html
+
+**Dirk Kempthorne, Former Idaho Governor and Interior Secretary, Dies at 74**\
+`A Republican, Mr. Kempthorne rose to prominence as the mayor of Boise in the late 1980s and early ’90s, as the city became a haven for outdoor enthusiasts.`\
+https://www.nytimes.com/2026/04/28/us/dirk-kempthorne-dead.html
+
 **White House Urges House to Quickly Fund D.H.S.**\
 `The call amounted to a rebuke of Speaker Mike Johnson, who has delayed action on a homeland security spending bill and suggested this week that it needed changes.`\
 https://www.nytimes.com/2026/04/28/us/politics/congress-dhs-funding.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/es/2026/04/28/espanol/america-latina/mexico-agentes-cia-
 **Port Authority to Install Tracker Not Used During Deadly LaGuardia Crash**\
 `Federal investigators had said that the lack of a transponder on a fire truck played a role in a deadly collision with an Air Canada Express jet at LaGuardia.`\
 https://www.nytimes.com/2026/04/28/nyregion/laguardia-airport-crash-transponder.html
-
-**Despite Trade Turmoil, Canada’s Economy Is Expected to Grow and Deficit to Fall**\
-`Prime Minister Mark Carney’s budget update keeps to his path of diversifying away from the United States.`\
-https://www.nytimes.com/2026/04/28/world/canada/carney-budget-update.html
-
-**Severe Storms Sweep the South, With Possible Tornadoes and Large Hail**\
-`Some damage was reported in Texas in the early evening as storms were racing across the Central United States on Tuesday.`\
-https://www.nytimes.com/2026/04/28/weather/dallas-texas-hail-storms-forecast.html
-
-**Soldier Pleads Not Guilty in $400,000 Betting Case Over Maduro’s Ouster**\
-`Master Sergeant Gannon Ken Van Dyke appeared in federal court in Manhattan, where he was accused of using classified information about Nicolás Maduro’s ouster to make money on Polymarket.`\
-https://www.nytimes.com/2026/04/28/nyregion/polymarket-special-forces-maduro-bets.html
-
-**‘Dances With Wolves’ Actor Is Sentenced to Life in Prison**\
-`Nathan Chasing Horse had been convicted of charges including the sexual assault of women and girls and the possession of child sexual abuse imagery.`\
-https://www.nytimes.com/2026/04/28/movies/nathan-chasing-horse-dances-with-wolves-sentenced.html
 
