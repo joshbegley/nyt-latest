@@ -1,3 +1,7 @@
+**Florida Approves House Map That Could Add 4 Republican Seats**\
+`Several voting rights groups have said that they plan to challenge the map in court once Gov. Ron DeSantis signs it into law.`\
+https://www.nytimes.com/2026/04/29/us/florida-house-gop-map.html
+
 **Republicans Seize Back an Edge in the Nation’s Redistricting Fight**\
 `Democrats had earned a slight advantage with a victory in Virginia last week, but now a Supreme Court decision and Florida’s move to pass a new map are set to help Republicans.`\
 https://www.nytimes.com/2026/04/29/us/elections/redistricting-gerrymandering-midterms-republicans-democrats.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/heres-the
 **Comey and Kimmel: Seashells and a Joke**\
 `Readers discuss the James Comey indictment and the Jimmy Kimmel joke. Also: The U.S.A.I.D. tragedy; privatizing the mail.`\
 https://www.nytimes.com/2026/04/29/opinion/james-comey-jimmy-kimmel.html
-
-**¿Qué cenaron el presidente Trump y el rey Carlos?**\
-`Los ravioles con hierbas de primavera y el lenguado de Dover à la meunière fueron algunos de los platos de la cena en honor de los reyes Carlos III y Camila del Reino Unido.`\
-https://www.nytimes.com/es/2026/04/29/espanol/estados-unidos/cena-carlos-trump-menu.html
 
