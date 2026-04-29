@@ -1,3 +1,7 @@
+**Carl Wilson Has Won High-Profile City Council Race, Mamdani Says**\
+`The City Council special election pitting Lindsey Boylan, backed by Mayor Zohran Mamdani, against Carl Wilson, a community activist, was not officially called. But the mayor said Mr. Wilson had won.`\
+https://www.nytimes.com/2026/04/28/nyregion/nyc-city-council-election.html
+
 **Beneath King Charles’s Jokes and Decorum, Some Subtle Rebuttals to Trump**\
 `King Charles III gently pushed back against President Trump’s attacks on Britain and NATO, and he spoke of the importance of checks and balances.`\
 https://www.nytimes.com/2026/04/28/us/politics/king-charles-trump-rebuke.html
