@@ -1,3 +1,7 @@
+**Acid Attack in Indonesia Evokes Brutality of Suharto Era**\
+`The victim had protested against the widening role of the military, which activists say is reminiscent of the country’s decades-long dictatorship.`\
+https://www.nytimes.com/2026/04/28/world/asia/indonesia-andrei-acid-trial.html
+
 **High-Profile Race in Manhattan District Won’t Be Called Until Next Week**\
 `The City Council special election pitting Lindsey Boylan, backed by Mayor Zohran Mamdani, against Carl Wilson, a community activist, will go to a second round. Mr. Wilson had a substantial lead.`\
 https://www.nytimes.com/2026/04/28/nyregion/nyc-city-council-election.html
