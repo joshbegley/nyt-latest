@@ -4,7 +4,7 @@ https://www.nytimes.com/2026/04/29/us/politics/trump-gun-control.html
 
 **Trump Threatens to Pull Troops From Germany as He Lashes Out at Merz**\
 `The comments came after the German chancellor said that Iran has “humiliated” the United States.`\
-https://www.nytimes.com/live/2026/04/29/us/trump-news/trump-germany-us-troops
+https://www.nytimes.com/2026/04/29/us/politics/trump-germany-us-troops.html
 
 **Powell Announces He Will Stay on as Fed Governor**\
 `Jerome H. Powell announced on Wednesday that he would stay on as a governor at the Federal Reserve after his term as chair ends next month due to lingering legal threats from the Trump administration.`\
