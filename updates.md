@@ -1,3 +1,11 @@
+**Investigators Offer More Details of Gunman of Gala Dinner Attack**\
+`The details, combined with video, seem to suggest that the gunman was not the person who shot an officer in his protective vest.`\
+https://www.nytimes.com/2026/04/29/us/politics/correspondents-dinner-shooting-cole-tomas-allen.html
+
+**How the Supreme Court’s Voting Rights Ruling Could Be Felt in the Midterms**\
+`Democrats will lose at least one blue-leaning district in Louisiana, and Florida is drawing a redder map. South Carolina, Tennessee and Missouri could try to draw new maps before voting begins.`\
+https://www.nytimes.com/2026/04/29/us/elections/supreme-court-voting-rights-midterms.html
+
 **Here’s how the Supreme Court Has Handled Other Humanitarian Protection Cases**\
 `The court has allowed the Trump administration to end protections on a temporary basis in other cases while they are litigated.`\
 https://www.nytimes.com/2026/04/29/us/politics/heres-how-the-supreme-court-has-handled-other-humanitarian-protection-cases.html
