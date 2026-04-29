@@ -1,3 +1,15 @@
+**North London Stabbing Is Being Treated as Terrorism, Police Say**\
+`Two men were stabbed in north London on Wednesday, in an area that is home to just over half of Britain’s 300,000 Jewish residents. The city’s main police force said the attack was being treated as terrorism.`\
+https://www.nytimes.com/video/world/europe/100000010869878/golders-green-london-stabbing-terrorism.html
+
+**Some states have their own voting rights acts**\
+``\
+https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/some-states-have-their-own-voting-rights-acts
+
+**Tiny Love Stories: ‘Everyone Was a Few Drinks In’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/04/29/style/tiny-modern-love-stories-everyone-was-a-few-drinks-in.html
+
 **Un magnate indio ofrece refugio a los hipopótamos de Pablo Escobar**\
 `Colombia anunció un plan para aplicar la eutanasia a 80 hipopótamos descendientes de los importados hace 40 años. Ahora, un multimillonario dice que quiere llevarlos a India.`\
 https://www.nytimes.com/es/2026/04/29/espanol/mundo/ambani-india-hipopotamos-colombia.html
