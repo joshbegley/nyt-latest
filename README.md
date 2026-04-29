@@ -1,3 +1,15 @@
+**Musk Says He ‘Was a Fool’ to Provide OpenAI’s Early Funding**\
+`In the second day of a trial pitting Mr. Musk against OpenAI, he said he was misled by the company’s chief executive, Sam Altman. But OpenAI’s lawyer said evidence showed the opposite.`\
+https://www.nytimes.com/2026/04/29/technology/musk-openai-trial-altman.html
+
+**Read the Indictment of Gov. Rubén Rocha Moya of Mexico and Others**\
+`U.S. prosecutors accused a Mexican governor and nine other current and former Mexican officials of participating in a broad conspiracy to help a powerful Mexican cartel import drugs into the United States in exchange for bribes and votes.`\
+https://www.nytimes.com/interactive/2026/04/29/world/americas/usvrubenrochamoyaetalindictmentenglishversion.html
+
+**The Supreme Court Shakes Up America’s Political Maps**\
+`Both parties are now scrambling to adjust to a new voting rights landscape.`\
+https://www.nytimes.com/2026/04/29/us/politics/redistricting-maps-supreme-court-voting.html
+
 **Why Texas Is Winning the Housing War**\
 `Rents are falling in Texas — and the reason is simpler than you think. Derek Thompson, a contributing writer at The Atlantic, tells the Opinion columnist Ezra Klein how Dallas and Austin have shown that the only real cure for a housing crisis is an aggressive, unrelenting surge in supply.`\
 https://www.nytimes.com/video/opinion/100000010852250/why-texas-is-winning-the-housing-war.html
@@ -61,16 +73,4 @@ https://www.nytimes.com/live/2026/04/29/us/king-charles-royal-visit-trump-us/new
 **The Split Between China and Silicon Valley Just Got Wider**\
 `Beijing’s insistence that Meta unwind its deal with a Chinese A.I. start-up escalates the geopolitical fight over advanced tech.`\
 https://www.nytimes.com/2026/04/29/business/china-silicon-valley-manus.html
-
-**How the Voting Rights Act Reshaped California Politics**\
-`The federal law had been a “game changer” for Latino voters, but Wednesday’s ruling could weaken Asian Americans’ political power in the state.`\
-https://www.nytimes.com/2026/04/29/us/elections/voting-rights-act-supreme-court-california.html
-
-**Takeaways from Powell’s final Fed meeting as chair.**\
-``\
-https://www.nytimes.com/live/2026/04/29/business/federal-reserve-interest-rates/takeaways-from-powells-final-news-conference-as-fed-chair
-
-**Prosecutors Say Suspect Planned Attack Weeks Before Press Gala**\
-`A new prosecution memo details the preparations made in the days and weeks before the assault on the White House correspondents’ dinner.`\
-https://www.nytimes.com/2026/04/29/us/white-house-correspondents-dinner-shooter.html
 
