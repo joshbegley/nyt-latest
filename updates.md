@@ -1,3 +1,19 @@
+**¿Las películas son cada vez más oscuras? Ponemos el foco en la duda**\
+`A menudo, los espectadores se preguntan por qué las películas actuales se ven más oscuras que las de hace años. He aquí el diagnóstico de algunos expertos.`\
+https://www.nytimes.com/es/2026/04/29/espanol/cultura/peliculas-oscuras-luces.html
+
+**Palabra del día: ‘placate’**\
+`Esta palabra ha aparecido en 153 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/04/29/espanol/que-significa-placate.html
+
+**Word of the Day: placate**\
+`This word has appeared in 126 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/04/29/learning/word-of-the-day-placate.html
+
+**I Played Putin in a War Game. The Most Dangerous Period May Be Coming.**\
+`NATO countries need to get their act together.`\
+https://www.nytimes.com/2026/04/29/opinion/international-world/putin-russia-nato-attack.html
+
 **Jimmy Kimmel Spills the Tea on Trump’s Royal Meeting**\
 `The late night show host called the king of England “one of the very few people who might actually be able to tip things even slightly in a positive direction.”`\
 https://www.nytimes.com/2026/04/29/arts/television/jimmy-kimmel-trump-royals.html

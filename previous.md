@@ -1,3 +1,15 @@
+**¿Las películas son cada vez más oscuras? Ponemos el foco en la duda**\
+`A menudo, los espectadores se preguntan por qué las películas actuales se ven más oscuras que las de hace años. He aquí el diagnóstico de algunos expertos.`\
+https://www.nytimes.com/es/2026/04/29/espanol/cultura/peliculas-oscuras-luces.html
+
+**Palabra del día: ‘placate’**\
+`Esta palabra ha aparecido en 153 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/04/29/espanol/que-significa-placate.html
+
+**Word of the Day: placate**\
+`This word has appeared in 126 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/04/29/learning/word-of-the-day-placate.html
+
 **Jimmy Kimmel Spills the Tea on Trump’s Royal Meeting**\
 `The late night show host called the king of England “one of the very few people who might actually be able to tip things even slightly in a positive direction.”`\
 https://www.nytimes.com/2026/04/29/arts/television/jimmy-kimmel-trump-royals.html
@@ -10,7 +22,7 @@ https://www.nytimes.com/2026/04/29/us/elections/california-governor-debate-pomon
 `Aún faltan seis meses para las elecciones, y algunos miembros del partido del presidente afirman que aún hay tiempo para enderezar el rumbo, pese al panorama desalentador.`\
 https://www.nytimes.com/es/2026/04/29/espanol/estados-unidos/popularidad-trump-elecciones-intermedias.html
 
-**I Played Putin in a War Game. He Could Invade Again.**\
+**I Played Putin in a War Game. The Most Dangerous Period May Be Coming.**\
 `NATO countries need to get their act together.`\
 https://www.nytimes.com/2026/04/29/opinion/international-world/putin-russia-nato-attack.html
 
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/28/us/politics/congress-dhs-funding.html
 **Full Guest List for Trump’s State Dinner With Charles and Camilla**\
 `Six members of the Supreme Court were invited to the dinner, alongside top administration officials, billionaires and Republican lawmakers.`\
 https://www.nytimes.com/2026/04/28/us/politics/state-dinner-guest-list.html
-
-**Trump Administration Issues Another Indictment Against Comey**\
-`The Trump administration announced on Tuesday that it was pursuing charges against James Comey, the former F.B.I. director, for a deleted Instagram post displaying seashells arranged in a way that the administration claimed threatened the president.`\
-https://www.nytimes.com/video/us/politics/100000010869008/comey-indicted-patel-blanche.html
-
-**See the Menu for the British Royal State Dinner**\
-`Spring-herbed ravioli and Dover sole meunière are among the dishes at the dinner honoring King Charles III of Britain and Queen Camilla.`\
-https://www.nytimes.com/2026/04/28/us/politics/menu-british-royal-state-dinner.html
-
-**King Charles III Delivers Message of Unity to Congress**\
-`King Charles III delivered an address to a joint meeting of Congress on Tuesday, becoming only the second British monarch to do so.`\
-https://www.nytimes.com/video/us/100000010865581/king-charles-speech-congress.html
 
