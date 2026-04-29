@@ -1,10 +1,18 @@
-**The Split Between China and Silicon Valley Just Got Wider**\
-`Beijing’s insistence that Meta unwind its deal with a Chinese A.I. start-up marks an escalation in the geopolitical fight over advanced tech.`\
-https://www.nytimes.com/2026/04/29/business/china-silicon-valley-manus.html
+**Tupac Shakur’s Stepbrother Files Wrongful Death Lawsuit, 29 Years After Murder**\
+`Maurice Shakur said in a complaint filed against Duane Keith Davis, who was charged in 2023 with the rapper’s murder, that the “threads are starting to come together.”`\
+https://www.nytimes.com/2026/04/29/arts/music/tupac-murder-lawsuit-stepbrother.html
+
+**For Mother’s Day, Flowers and Cards — With a Twist**\
+`Blossom-filled books, welcoming bird houses and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/04/29/t-magazine/mothers-day-gift-ideas.html
 
 **New York has welcomed previous British monarchs with 21-gun salutes and lobster bisque.**\
 ``\
 https://www.nytimes.com/live/2026/04/29/us/king-charles-royal-visit-trump-us/new-york-has-welcomed-previous-british-monarchs-with-21-gun-salutes-and-lobster-bisque
+
+**The Split Between China and Silicon Valley Just Got Wider**\
+`Beijing’s insistence that Meta unwind its deal with a Chinese A.I. start-up escalates the geopolitical fight over advanced tech.`\
+https://www.nytimes.com/2026/04/29/business/china-silicon-valley-manus.html
 
 **How the Voting Rights Act Reshaped California Politics**\
 `The federal law had been a “game changer” for Latino voters, but Wednesday’s ruling could weaken Asian Americans’ political power in the state.`\
@@ -65,16 +73,4 @@ https://www.nytimes.com/2026/04/29/opinion/iran-war-polycrisis.html
 **Republicans eye redistricting opportunities in the South, starting with Louisiana.**\
 ``\
 https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/republicans-eye-redistricting-opportunities-in-the-south-starting-with-louisiana
-
-**The Good List: 6 Things to Add Some Joy to Your Day**\
-`Showering at the airport, blossoms in seams and the bar for joy.`\
-https://www.nytimes.com/2026/04/29/briefing/the-good-list-shower-airport.html
-
-**Tim Cook’s Legacy + The Future of U.B.I.**\
-`Full episode #191`\
-https://www.nytimes.com/video/podcasts/100000010867973/tim-cooks-legacy-the-future-of-ubi.html
-
-**Here’s where the redistricting wars stand.**\
-``\
-https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/heres-where-the-redistricting-wars-stand
 

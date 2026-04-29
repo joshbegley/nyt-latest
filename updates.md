@@ -1,3 +1,11 @@
+**The Split Between China and Silicon Valley Just Got Wider**\
+`Beijing’s insistence that Meta unwind its deal with a Chinese A.I. start-up marks an escalation in the geopolitical fight over advanced tech.`\
+https://www.nytimes.com/2026/04/29/business/china-silicon-valley-manus.html
+
+**New York has welcomed previous British monarchs with 21-gun salutes and lobster bisque.**\
+``\
+https://www.nytimes.com/live/2026/04/29/us/king-charles-royal-visit-trump-us/new-york-has-welcomed-previous-british-monarchs-with-21-gun-salutes-and-lobster-bisque
+
 **How the Voting Rights Act Reshaped California Politics**\
 `The federal law had been a “game changer” for Latino voters, but Wednesday’s ruling could weaken Asian Americans’ political power in the state.`\
 https://www.nytimes.com/2026/04/29/us/elections/voting-rights-act-supreme-court-california.html
