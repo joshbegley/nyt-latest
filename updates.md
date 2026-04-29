@@ -1,3 +1,11 @@
+**For a royal family in turmoil, the state visit could be a moment of positivity.**\
+``\
+https://www.nytimes.com/live/2026/04/29/us/king-charles-royal-visit-trump-us/for-a-royal-family-in-turmoil-the-state-visit-could-be-a-moment-of-positivity
+
+**Indian Tycoon Offers Refuge to Pablo Escobar’s Condemned Hippos**\
+`Colombia was planning to slaughter 80 hippopotamuses after a small herd imported in the 1980s by the drug lord grew out of control. An Indian tycoon has offered them a new home instead.`\
+https://www.nytimes.com/2026/04/29/world/asia/indian-tycoon-ambani-hippos-colombia-escobar.html
+
 **The Stakes of Trump’s Latest Fight With Disney**\
 `The Federal Communications Commission is clashing again with the media giant. It’s another warning about the costs of angering President Trump.`\
 https://www.nytimes.com/2026/04/29/business/dealbook/trump-disney-kimmel-fcc.html
