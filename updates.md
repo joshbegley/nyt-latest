@@ -1,3 +1,19 @@
+**‘Excruciating and Agonizing’: A New Reality for Jewish Democrats**\
+`With Israel increasingly unpopular and antisemitism on the rise, Jewish politicians find themselves more and more under attack.`\
+https://www.nytimes.com/2026/04/29/us/politics/jewish-democrats-antisemitism-israel.html
+
+**How the Fed’s rate decision affects your finances.**\
+`The central bank’s interest rate policy influences car and home loans, credit cards, savings accounts and more.`\
+https://www.nytimes.com/live/2026/04/29/business/federal-reserve-interest-rates/how-the-feds-rate-decision-affects-your-finances
+
+**Almost All of Europe was Abnormally Hot in 2025, Report Finds**\
+`The continent, which is warming faster than the global average, saw wildfires, floods and a sub-Arctic heat wave, the European State of the Climate report said.`\
+https://www.nytimes.com/2026/04/29/world/europe/europe-climate-2025-report.html
+
+**Here’s How the Supreme Court Has Handled Other Humanitarian Protection Cases**\
+`The court has allowed the Trump administration to end protections on a temporary basis in other cases while they are litigated.`\
+https://www.nytimes.com/2026/04/29/us/politics/supreme-court-humanitarian-protection-cases.html
+
 **Here’s how the Supreme Court Has Handled Other Humanitarian Protection Cases**\
 `The court has allowed the Trump administration to end protections on a temporary basis in other cases while they are litigated.`\
 https://www.nytimes.com/2026/04/29/us/politics/supreme-court-humanitarian-protection-cases.html

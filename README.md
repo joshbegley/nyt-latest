@@ -1,3 +1,7 @@
+**Today, In Short**\
+`Skin care. The greatest living songwriters. And the latest from the Supreme Court.`\
+https://www.nytimes.com/2026/04/29/briefing/today-in-short.html
+
 **‘Excruciating and Agonizing’: A New Reality for Jewish Democrats**\
 `With Israel increasingly unpopular and antisemitism on the rise, Jewish politicians find themselves more and more under attack.`\
 https://www.nytimes.com/2026/04/29/us/politics/jewish-democrats-antisemitism-israel.html
@@ -38,6 +42,14 @@ https://www.nytimes.com/2026/04/29/style/world-cup-metlife-walking-new-jersey.ht
 `The Mariana, a 145-foot vessel with six crew members, was found overturned after a typhoon, prompting an 11-day search which found no survivors.`\
 https://www.nytimes.com/2026/04/29/world/asia/typhoon-sinlaku-us-ship-dead-coast-guard.html
 
+**New York, N.Y. Weather Forecast**\
+`See the hourly and 7-day forecast.`\
+https://www.nytimes.com/weather/new-york-new-york
+
+**Tornadoes, hail, high winds and excessive rain in Houston, Texas**\
+`See the hourly and 7-day forecast.`\
+https://www.nytimes.com/weather/houston-texas
+
 **Hail in Fort Worth, Texas**\
 `See the hourly and 7-day forecast.`\
 https://www.nytimes.com/weather/fort-worth-texas
@@ -45,10 +57,6 @@ https://www.nytimes.com/weather/fort-worth-texas
 **Weather Forecast**\
 `See the hourly and 7-day forecast.`\
 https://www.nytimes.com/weather
-
-**New York, N.Y. Weather Forecast**\
-`See the hourly and 7-day forecast.`\
-https://www.nytimes.com/weather/new-york-new-york
 
 **Chicago, Ill. Weather Forecast**\
 `See the hourly and 7-day forecast.`\
@@ -58,23 +66,15 @@ https://www.nytimes.com/weather/chicago-illinois
 `See the hourly and 7-day forecast.`\
 https://www.nytimes.com/weather/phoenix-arizona
 
-**Tornadoes, hail, high winds and excessive rain in Houston, Texas**\
+**Minneapolis, Minn. Weather Forecast**\
 `See the hourly and 7-day forecast.`\
-https://www.nytimes.com/weather/houston-texas
+https://www.nytimes.com/weather/minneapolis-minnesota
 
-**Orlando, Fla. Weather Forecast**\
+**Hail in Dallas, Texas**\
 `See the hourly and 7-day forecast.`\
-https://www.nytimes.com/weather/orlando-florida
+https://www.nytimes.com/weather/dallas-texas
 
 **Los Angeles, Calif. Weather Forecast**\
 `See the hourly and 7-day forecast.`\
 https://www.nytimes.com/weather/los-angeles-california
-
-**San Francisco, Calif. Weather Forecast**\
-`See the hourly and 7-day forecast.`\
-https://www.nytimes.com/weather/san-francisco-california
-
-**Philadelphia, Pa. Weather Forecast**\
-`See the hourly and 7-day forecast.`\
-https://www.nytimes.com/weather/philadelphia-pennsylvania
 
