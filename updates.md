@@ -1,3 +1,11 @@
+**A.I. Spending Sets a Record, With No End in Sight**\
+`Google, Amazon, Microsoft and Meta reported more than $130 billion in quarterly capital expenditures on Wednesday as they build A.I. data centers. There’s more to come.`\
+https://www.nytimes.com/2026/04/29/technology/ai-spending-tech-data-centers.html
+
+**Takeaways from Powell’s final Fed meeting as chair**\
+` `\
+https://www.nytimes.com/2026/04/29/business/economy/takeaways-from-powells-final-fed-meeting-as-chair.html
+
 **Trump Administration Sues New Jersey Governor Over ICE Mask Ban**\
 `New Jersey, where Mikie Sherrill is governor, is one of only a few states to try to bar federal immigration agents from wearing masks.`\
 https://www.nytimes.com/2026/04/29/nyregion/new-jersey-trump-ice-mask-lawsuit.html

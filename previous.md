@@ -4,7 +4,7 @@ https://www.nytimes.com/2026/04/29/nyregion/new-jersey-trump-ice-mask-lawsuit.ht
 
 **A.I. Spending Sets a Record, With No End in Sight**\
 `Google, Amazon, Microsoft and Meta reported more than $130 billion in quarterly capital expenditures on Wednesday as they build A.I. data centers. There’s more to come.`\
-https://www.nytimes.com/2026/04/29/technology/ai-spending-sets-a-record-with-no-end-in-sight.html
+https://www.nytimes.com/2026/04/29/technology/ai-spending-tech-data-centers.html
 
 **Ford Reports Higher Profit Thanks Partly to Tariff Refund**\
 `Ford Motor said it expected the federal government to refund $1.3 billion the company paid in tariffs that were later struck down by the Supreme Court.`\
@@ -23,7 +23,7 @@ https://www.nytimes.com/video/magazine/100000010869978/bob-odenkirk-in-a-bleak-w
 https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/mississippi-will-move-quickly-to-redraw-its-judicial-district-lines
 
 **Takeaways from Powell’s final Fed meeting as chair**\
-``\
+` `\
 https://www.nytimes.com/2026/04/29/business/economy/takeaways-from-powells-final-fed-meeting-as-chair.html
 
 **Tupac Shakur’s Stepbrother Files Wrongful Death Lawsuit, 29 Years After Murder**\
