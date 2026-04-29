@@ -1,3 +1,31 @@
+**King Charles Speaks of ‘Indispensable Alliance’ at State Dinner With Trump**\
+`President Trump held a state dinner honoring King Charles III and his wife, Queen Camilla. During the toast, the two leaders praised the enduring alliance between the nations.`\
+https://www.nytimes.com/video/us/politics/100000010869434/king-charles-trump-state-dinner.html
+
+**Why Even Some Democrats Hate California’s Billionaire Tax Proposal**\
+`The measure calls for placing a one-time 5 percent tax on the assets of California residents with at least $1.1 billion.`\
+https://www.nytimes.com/2026/04/29/podcasts/the-daily/democrats-hate-californias-billionaire-tax-plan.html
+
+**Musk vs. Altman, and a Pivotal Immigration Case at the Supreme Court**\
+`Plus, why nursing homes are hiring M.M.A. fighters.`\
+https://www.nytimes.com/2026/04/29/podcasts/the-headlines/musk-altman-trial-immigration-supreme-court.html
+
+**Connections Companion No. 1,054**\
+`Scroll down for hints and conversation about the puzzle for Thursday, April 30, 2025.`\
+https://www.nytimes.com/2026/04/29/crosswords/connections-companion-1054.html
+
+**Strands Sidekick No. 788**\
+`Scroll down for hints and conversation about the puzzle for Thursday, April 30, 2026.`\
+https://www.nytimes.com/2026/04/29/crosswords/strands-sidekick-788.html
+
+**Wordle Review No. 1,776**\
+`Scroll down for hints and conversation about the puzzle for Thursday, April 30, 2026.`\
+https://www.nytimes.com/2026/04/29/crosswords/wordle-review-1776.html
+
+**In France, American Universities Lose Their Allure in the Trump Era**\
+`Worries about visas, academic freedom and safety are making foreign schools, like Sciences Po in Paris, more attractive to some students than the Ivy League.`\
+https://www.nytimes.com/2026/04/29/world/europe/france-american-universities-trump-sciences-po.html
+
 **The World War II Submarine Behind Charles’s Gift to Trump**\
 `The bell that King Charles III gave President Trump on his state visit came from a submarine that sank several Japanese ships in the Pacific War in 1945.`\
 https://www.nytimes.com/2026/04/29/us/hms-trump-submarine-king-charles-ww2.html

@@ -1,3 +1,31 @@
+**King Charles Speaks of ‘Indispensable Alliance’ at State Dinner With Trump**\
+`President Trump held a state dinner honoring King Charles III and his wife, Queen Camilla. During the toast, the two leaders praised the enduring alliance between the nations.`\
+https://www.nytimes.com/video/us/politics/100000010869434/king-charles-trump-state-dinner.html
+
+**Why Even Some Democrats Hate California’s Billionaire Tax Proposal**\
+`The measure calls for placing a one-time 5 percent tax on the assets of California residents with at least $1.1 billion.`\
+https://www.nytimes.com/2026/04/29/podcasts/the-daily/democrats-hate-californias-billionaire-tax-plan.html
+
+**Musk vs. Altman, and a Pivotal Immigration Case at the Supreme Court**\
+`Plus, why nursing homes are hiring M.M.A. fighters.`\
+https://www.nytimes.com/2026/04/29/podcasts/the-headlines/musk-altman-trial-immigration-supreme-court.html
+
+**Connections Companion No. 1,054**\
+`Scroll down for hints and conversation about the puzzle for Thursday, April 30, 2025.`\
+https://www.nytimes.com/2026/04/29/crosswords/connections-companion-1054.html
+
+**Strands Sidekick No. 788**\
+`Scroll down for hints and conversation about the puzzle for Thursday, April 30, 2026.`\
+https://www.nytimes.com/2026/04/29/crosswords/strands-sidekick-788.html
+
+**Wordle Review No. 1,776**\
+`Scroll down for hints and conversation about the puzzle for Thursday, April 30, 2026.`\
+https://www.nytimes.com/2026/04/29/crosswords/wordle-review-1776.html
+
+**In France, American Universities Lose Their Allure in the Trump Era**\
+`Worries about visas, academic freedom and safety are making foreign schools, like Sciences Po in Paris, more attractive to some students than the Ivy League.`\
+https://www.nytimes.com/2026/04/29/world/europe/france-american-universities-trump-sciences-po.html
+
 **The World War II Submarine Behind Charles’s Gift to Trump**\
 `The bell that King Charles III gave President Trump on his state visit came from a submarine that sank several Japanese ships in the Pacific War in 1945.`\
 https://www.nytimes.com/2026/04/29/us/hms-trump-submarine-king-charles-ww2.html
@@ -49,32 +77,4 @@ https://www.nytimes.com/2026/04/29/us/politics/trump-justice-department-lawsuit-
 **She Gave Her Second Tiny Home a Wee Upgrade**\
 `Alchemy Architects pioneered the weeHouse after building a home for Stephanie Arado. Decades later, she wanted another one — this time with plumbing.`\
 https://www.nytimes.com/2026/04/29/realestate/small-tiny-homes-minnesota.html
-
-**Let Spirit Airlines Die**\
-`Steven Rattner argues that Trump’s effort to bail out the ailing carrier makes no sense.`\
-https://www.nytimes.com/2026/04/29/opinion/spirit-airlines-trump-bailout-auto.html
-
-**What to Watch at the Federal Reserve’s April Meeting**\
-`The U.S. central bank is widely expected to hold interest rates steady at what is scheduled to be Jerome H. Powell’s final meeting as chair.`\
-https://www.nytimes.com/2026/04/29/business/economy/what-to-watch-at-the-federal-reserves-april-meeting.html
-
-**What ‘The Devil Wears Prada’ Taught Its Stars About Being a Boss**\
-`Meryl Streep, Anne Hathaway, Emily Blunt, Stanley Tucci and the director David Frankel on “The Devil Wears Prada,” the sequel and who’s mean in real life.`\
-https://www.nytimes.com/2026/04/29/movies/devil-wears-prada-meryl-streep-anne-hathaway.html
-
-**How the War in Iran Is Hurting the U.S. Housing Market**\
-`Buyers across the country are cautious, while the Miami market seems immune.`\
-https://www.nytimes.com/2026/04/29/realestate/how-the-war-in-iran-is-hurting-the-us-housing-market.html
-
-**The Lady Is a Hit**\
-`A visit to the “grottage” of Martha Sitwell, a breakout star of the Bravo series “Ladies of London: The New Reign.”`\
-https://www.nytimes.com/2026/04/29/style/lady-martha-sitwell-ladies-of-london-the-new-reign.html
-
-**Charles, Camilla and a Pooh Gift for the N.Y. Public Library**\
-`The king and queen of Britain arrive in New York today on the third day of their state visit. Camilla is bringing a special gift for the library.`\
-https://www.nytimes.com/2026/04/29/nyregion/charles-camilla-winnie-the-pooh.html
-
-**Visconti’s ‘Bellissima’: Mama’s Going to See to It!**\
-`The director’s 1951 movie, at Film Forum in a new 4K restoration, satirizes the Italian film industry via Anna Magnani’s over-the-top stage mother.`\
-https://www.nytimes.com/2026/04/29/movies/bellissima-film-forum.html
 
