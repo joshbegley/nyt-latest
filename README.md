@@ -1,3 +1,27 @@
+**Powell Announces He Will Stay on as Fed Governor**\
+`Jerome H. Powell announced on Wednesday that he would stay on as a governor at the Federal Reserve after his term as chair ends next month due to lingering legal threats from the Trump administration.`\
+https://www.nytimes.com/video/us/politics/100000010870996/jerome-powell-stays-fed-governor.html
+
+**Roger Sweet, Creator of the He-Man Action Figure, Dies at 91**\
+`The musclebound character he developed as a toy designer for Mattel gave rise to the Masters of the Universe franchise and helped define the machismo of the 1980s.`\
+https://www.nytimes.com/2026/04/29/arts/roger-sweet-dead-he-man.html
+
+**What the Royal State Dinner Guest List Says About Trump’s America**\
+`There were at least 10 American billionaires, six Fox News hosts, assorted presidential pals, no Democratic politicians and not so many British.`\
+https://www.nytimes.com/2026/04/29/us/politics/trump-white-house-state-dinner.html
+
+**They Left for the School Bus. ICE Picked Them Up Instead.**\
+`A school transfer disrupted two brothers’ visas, their lawyer said, leaving them vulnerable to arrest and unsettling their Mississippi school community.`\
+https://www.nytimes.com/2026/04/29/us/mississippi-basketball-players-arrested-ice.html
+
+**The Supreme Court Just Erased What Was Left of the Voting Rights Act**\
+`In the name of disentangling race from politics, the court has given white voters more power at the expense of racial minorities.`\
+https://www.nytimes.com/2026/04/29/opinion/supreme-court-voting-rights-act-2026.html
+
+**BossMan Dlow's Boisterous Boasts**\
+`On this edition of the “Popcast” Song of the Week, our critic Jon Caramanica breaks down a boastful party track from BossMan Dlow, who he calls “the funniest rapper working right now.”`\
+https://www.nytimes.com/video/podcasts/100000010871592/bossman-dlows-boisterous-boasts.html
+
 **Why the U.A.E. is Quitting OPEC**\
 `The United Arab Emirates is walking away from OPEC this May. The New York Times’ energy reporter, Rebecca Elliott, breaks down how the war with Iran provided the perfect opening for the U.A.E. to go solo.`\
 https://www.nytimes.com/video/business/100000010867871/why-the-uae-is-quitting-opec.html
@@ -30,7 +54,7 @@ https://www.nytimes.com/2026/04/29/sports/lester-wright-dead.html
 `Footage of the incident shared this week by a school district in Mississippi shows a group of students working together to avert disaster on a highway.`\
 https://www.nytimes.com/2026/04/29/us/mississippi-students-bus-accident.html
 
-**Queen Camilla Unites Winnie-the-Pooh with a Long-Lost Friend**\
+**Queen Camilla Unites Winnie-the-Pooh With a Long-Lost Friend**\
 `On Wednesday, the Queen of England presented the New York Public Library with a bespoke replica of Roo, the smallest companion of the Bear of Very Little Brain.`\
 https://www.nytimes.com/2026/04/29/books/queen-camilla-winnie-the-pooh.html
 
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/04/29/us/politics/congress-house-fisa-surveillance-
 **Civil rights leaders see the voting rights ruling as a ‘betrayal.’**\
 `Leaders and activists said a Supreme Court ruling had the potential to unravel decades of work toward giving Black Americans fair representation.`\
 https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/civil-rights-leaders-see-the-voting-rights-ruling-as-a-betrayal
-
-**Supreme Court Limits Reach of Voting Rights Act**\
-`Also, the Pentagon estimates the Iran war cost at $25 billion. Here’s the latest at the end of Wednesday.`\
-https://www.nytimes.com/2026/04/29/briefing/supreme-court-voting-rights-act.html
-
-**Nine Artists on the Gardens They’ll Never Forget**\
-`Hiroshi Sugimoto, Irene Neuwirth, Umberto Pasti and others share their impressions of mesmerizing plots all over the world.`\
-https://www.nytimes.com/2026/04/29/t-magazine/favorite-garden-visit-artists.html
-
-**‘A Lot of Rocket’: Trump Celebrates Artemis II Astronauts at the White House**\
-`President Trump wants Americans going into space to be a part of his legacy, even as he has proposed cutting NASA’s education, research and diversity programs.`\
-https://www.nytimes.com/2026/04/29/us/politics/trump-nasa-artemis-astronauts.html
-
-**Musk Says He ‘Was a Fool’ to Provide OpenAI’s Early Funding**\
-`In the second day of a trial pitting Mr. Musk against OpenAI, he said he was misled by the company’s chief executive, Sam Altman. But OpenAI’s lawyer said evidence showed the opposite.`\
-https://www.nytimes.com/2026/04/29/technology/musk-openai-trial-altman.html
-
-**Read the Indictment of Gov. Rubén Rocha Moya of Mexico and Others**\
-`U.S. prosecutors accused a Mexican governor and nine other current and former Mexican officials of participating in a broad conspiracy to help a powerful Mexican cartel import drugs into the United States in exchange for bribes and votes.`\
-https://www.nytimes.com/interactive/2026/04/29/world/americas/ruben-rocha-moya-indictment.html
-
-**The Supreme Court Shakes Up America’s Political Maps**\
-`Both parties are now scrambling to adjust to a new voting rights landscape.`\
-https://www.nytimes.com/2026/04/29/us/politics/redistricting-maps-supreme-court-voting.html
 
