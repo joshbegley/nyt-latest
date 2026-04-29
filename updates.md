@@ -1,3 +1,19 @@
+**Here’s how the Supreme Court Has Handled Other Humanitarian Protection Cases**\
+`The court has allowed the Trump administration to end protections on a temporary basis in other cases while they are litigated.`\
+https://www.nytimes.com/2026/04/29/us/politics/supreme-court-humanitarian-protection-cases.html
+
+**San Francisco, Calif. Weather Forecast**\
+`See the hourly and 7-day forecast.`\
+https://www.nytimes.com/weather/san-francisco-california
+
+**Philadelphia, Pa. Weather Forecast**\
+`See the hourly and 7-day forecast.`\
+https://www.nytimes.com/weather/philadelphia-pennsylvania
+
+**Minneapolis, Minn. Weather Forecast**\
+`See the hourly and 7-day forecast.`\
+https://www.nytimes.com/weather/minneapolis-minnesota
+
 **Investigators Offer More Details of Gunman of Gala Dinner Attack**\
 `The details, combined with video, seem to suggest that the gunman was not the person who shot an officer in his protective vest.`\
 https://www.nytimes.com/2026/04/29/us/politics/correspondents-dinner-shooting-cole-tomas-allen.html

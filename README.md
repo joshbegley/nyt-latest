@@ -1,3 +1,7 @@
+**Almost All of Europe was Abnormally Hot in 2025, Report Finds**\
+`The continent, which is warming faster than the global average, saw wildfires, floods and a sub-Arctic heat wave, the European State of the Climate report said.`\
+https://www.nytimes.com/2026/04/29/world/europe/europe-climate-2025-report.html
+
 **Investigators Offer More Details of Gunman of Gala Dinner Attack**\
 `The details, combined with video, seem to suggest that the gunman was not the person who shot an officer in his protective vest.`\
 https://www.nytimes.com/2026/04/29/us/politics/correspondents-dinner-shooting-cole-tomas-allen.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/weather/minneapolis-minnesota
 **Atlanta, Ga. Weather Forecast**\
 `See the hourly and 7-day forecast.`\
 https://www.nytimes.com/weather/atlanta-georgia
-
-**Detroit, Mich. Weather Forecast**\
-`See the hourly and 7-day forecast.`\
-https://www.nytimes.com/weather/detroit-michigan
 

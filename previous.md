@@ -8,7 +8,7 @@ https://www.nytimes.com/2026/04/29/us/elections/supreme-court-voting-rights-midt
 
 **Here’s how the Supreme Court Has Handled Other Humanitarian Protection Cases**\
 `The court has allowed the Trump administration to end protections on a temporary basis in other cases while they are litigated.`\
-https://www.nytimes.com/2026/04/29/us/politics/heres-how-the-supreme-court-has-handled-other-humanitarian-protection-cases.html
+https://www.nytimes.com/2026/04/29/us/politics/supreme-court-humanitarian-protection-cases.html
 
 **Maine Second Congressional District 2026: Latest Polls**\
 `Track the latest polls in Maine's 2nd Congressional District.`\
@@ -34,14 +34,6 @@ https://www.nytimes.com/weather/fort-worth-texas
 `See the hourly and 7-day forecast.`\
 https://www.nytimes.com/weather
 
-**Tornadoes, hail, high winds and excessive rain in Houston, Texas**\
-`See the hourly and 7-day forecast.`\
-https://www.nytimes.com/weather/houston-texas
-
-**Phoenix, Ariz. Weather Forecast**\
-`See the hourly and 7-day forecast.`\
-https://www.nytimes.com/weather/phoenix-arizona
-
 **New York, N.Y. Weather Forecast**\
 `See the hourly and 7-day forecast.`\
 https://www.nytimes.com/weather/new-york-new-york
@@ -50,31 +42,39 @@ https://www.nytimes.com/weather/new-york-new-york
 `See the hourly and 7-day forecast.`\
 https://www.nytimes.com/weather/chicago-illinois
 
-**Atlanta, Ga. Weather Forecast**\
+**Phoenix, Ariz. Weather Forecast**\
 `See the hourly and 7-day forecast.`\
-https://www.nytimes.com/weather/atlanta-georgia
+https://www.nytimes.com/weather/phoenix-arizona
+
+**Tornadoes, hail, high winds and excessive rain in Houston, Texas**\
+`See the hourly and 7-day forecast.`\
+https://www.nytimes.com/weather/houston-texas
+
+**Orlando, Fla. Weather Forecast**\
+`See the hourly and 7-day forecast.`\
+https://www.nytimes.com/weather/orlando-florida
 
 **Los Angeles, Calif. Weather Forecast**\
 `See the hourly and 7-day forecast.`\
 https://www.nytimes.com/weather/los-angeles-california
 
+**San Francisco, Calif. Weather Forecast**\
+`See the hourly and 7-day forecast.`\
+https://www.nytimes.com/weather/san-francisco-california
+
+**Philadelphia, Pa. Weather Forecast**\
+`See the hourly and 7-day forecast.`\
+https://www.nytimes.com/weather/philadelphia-pennsylvania
+
+**Minneapolis, Minn. Weather Forecast**\
+`See the hourly and 7-day forecast.`\
+https://www.nytimes.com/weather/minneapolis-minnesota
+
+**Atlanta, Ga. Weather Forecast**\
+`See the hourly and 7-day forecast.`\
+https://www.nytimes.com/weather/atlanta-georgia
+
 **Detroit, Mich. Weather Forecast**\
 `See the hourly and 7-day forecast.`\
 https://www.nytimes.com/weather/detroit-michigan
-
-**St. Paul, Minn. Weather Forecast**\
-`See the hourly and 7-day forecast.`\
-https://www.nytimes.com/weather/st-paul-minnesota
-
-**Denver, Colo. Weather Forecast**\
-`See the hourly and 7-day forecast.`\
-https://www.nytimes.com/weather/denver-colorado
-
-**Hail in Dallas, Texas**\
-`See the hourly and 7-day forecast.`\
-https://www.nytimes.com/weather/dallas-texas
-
-**Orlando, Fla. Weather Forecast**\
-`See the hourly and 7-day forecast.`\
-https://www.nytimes.com/weather/orlando-florida
 
