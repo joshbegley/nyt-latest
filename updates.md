@@ -1,3 +1,15 @@
+**Et tu, Brute? What Elon Musk’s clash with Sam Altman is really about.**\
+``\
+https://www.nytimes.com/live/2026/04/29/technology/openai-trial-sam-altman-elon-musk/et-tu-brute-what-elon-musks-clash-with-sam-altman-is-really-about
+
+**Read Supreme Court’s Ruling and Dissent on Louisiana Voting Map**\
+`The justices, split along ideological lines, found that Louisiana’s voting map was an unconstitutional racial gerrymander.`\
+https://www.nytimes.com/interactive/2026/04/29/us/scotus-voting-rights.html
+
+**Which Countries Have T.P.S.?**\
+`The Trump administration has sought to end protections for people from 13 of the 17 countries that had the status.`\
+https://www.nytimes.com/2026/04/29/us/politics/which-countries-have-tps.html
+
 **These are the lawyers who will be arguing the T.P.S. case.**\
 `The justices will hear from the solicitor general, followed by lawyers for Syrians and Haitians.`\
 https://www.nytimes.com/live/2026/04/29/us/supreme-court-immigration-tps/these-are-the-lawyers-who-will-be-arguing-the-tps-case
