@@ -1,3 +1,7 @@
+**Counterterrorism Police Investigating Stabbing in Jewish Area in London**\
+`Two men who were stabbed in Golders Green on Wednesday were reported in stable condition, the police said. One man was arrested.`\
+https://www.nytimes.com/2026/04/29/world/europe/london-stabbing-golders-green.html
+
 **One Justice Has Personal Ties to Haiti: Barrett**\
 `Two of Justice Amy Coney Barrett’s seven children were adopted from Haiti.`\
 https://www.nytimes.com/2026/04/29/us/politics/amy-coney-barrett-haiti.html
