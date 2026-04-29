@@ -1,3 +1,7 @@
+**Arguments May Shed Light on the Court’s ‘Shadow Docket’**\
+`The Trump administration urged the justices to rely on earlier terse emergency rulings and explain “what to make of this court’s interim orders.”`\
+https://www.nytimes.com/2026/04/29/us/politics/tps-court-shadow-docket.html
+
 **One Justice Has Personal Ties to Haiti: Barrett**\
 `Two of Justice Amy Coney Barrett’s seven children were adopted from Haiti.`\
 https://www.nytimes.com/2026/04/29/us/politics/amy-coney-barrett-haiti.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/29/world/europe/london-stabbing-golders-green.ht
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/29/us/king-charles-royal-visit-trump-us/heres-the-latest
-
-**Trial Begins for 3 Men Accused of Arson Attacks at Starmer’s Homes**\
-`Two Ukrainians and a Romanian were charged last year with setting fire to two buildings and a car linked to Prime Minister Keir Starmer of Britain.`\
-https://www.nytimes.com/2026/04/29/world/europe/arson-keir-starmer-homes.html
 
