@@ -1,3 +1,11 @@
+**Here’s how the Supreme Court Has Handled Other Humanitarian Protection Cases**\
+`The court has allowed the Trump administration to end protections on a temporary basis in other cases while they are litigated.`\
+https://www.nytimes.com/2026/04/29/us/politics/heres-how-the-supreme-court-has-handled-other-humanitarian-protection-cases.html
+
+**Maine Second Congressional District 2026: Latest Polls**\
+`Track the latest polls in Maine's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/maine-us-house-2-polls-2026.html
+
 **South Dakota At-Large Congressional District 2026: Latest Polls**\
 `Track the latest polls in South Dakota's At-Large Congressional District.`\
 https://www.nytimes.com/interactive/polls/south-dakota-us-house-at-large-polls-2026.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/weather/san-francisco-california
 **Minneapolis, Minn. Weather Forecast**\
 `See the hourly and 7-day forecast.`\
 https://www.nytimes.com/weather/minneapolis-minnesota
-
-**Philadelphia, Pa. Weather Forecast**\
-`See the hourly and 7-day forecast.`\
-https://www.nytimes.com/weather/philadelphia-pennsylvania
-
-**New Jersey Eighth Congressional District 2026: Latest Polls**\
-`Track the latest polls in New Jersey's 8th Congressional District.`\
-https://www.nytimes.com/interactive/polls/new-jersey-us-house-8-polls-2026.html
 
