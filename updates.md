@@ -1,3 +1,11 @@
+**How Do We Measure Our World?**\
+`Plus, we want to know what you think.`\
+https://www.nytimes.com/2026/04/29/headway/headway-newsletter-reader-feedback.html
+
+**Some states have their own Voting Rights Acts.**\
+``\
+https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/some-states-have-their-own-voting-rights-acts
+
 **North London Stabbing Is Being Treated as Terrorism, Police Say**\
 `Two men were stabbed in north London on Wednesday, in an area that is home to just over half of Britain’s 300,000 Jewish residents. The city’s main police force said the attack was being treated as terrorism.`\
 https://www.nytimes.com/video/world/europe/100000010869878/golders-green-london-stabbing-terrorism.html

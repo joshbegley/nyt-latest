@@ -1,8 +1,12 @@
+**How Do We Measure Our World?**\
+`Plus, we want to know what you think.`\
+https://www.nytimes.com/2026/04/29/headway/headway-newsletter-reader-feedback.html
+
 **North London Stabbing Is Being Treated as Terrorism, Police Say**\
 `Two men were stabbed in north London on Wednesday, in an area that is home to just over half of Britain’s 300,000 Jewish residents. The city’s main police force said the attack was being treated as terrorism.`\
 https://www.nytimes.com/video/world/europe/100000010869878/golders-green-london-stabbing-terrorism.html
 
-**Some states have their own voting rights acts**\
+**Some states have their own Voting Rights Acts.**\
 ``\
 https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/some-states-have-their-own-voting-rights-acts
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/29/world/europe/europe-climate-2025-report.html
 **Investigators Offer More Details of Gunman of Gala Dinner Attack**\
 `The details, combined with video, seem to suggest that the gunman was not the person who shot an officer in his protective vest.`\
 https://www.nytimes.com/2026/04/29/us/politics/correspondents-dinner-shooting-cole-tomas-allen.html
-
-**How the Supreme Court’s Voting Rights Ruling Could Be Felt in the Midterms**\
-`Democrats will lose at least one blue-leaning district in Louisiana, and Florida is drawing a redder map. South Carolina, Tennessee and Missouri could try to draw new maps before voting begins.`\
-https://www.nytimes.com/2026/04/29/us/politics/supreme-court-voting-rights-midterms.html
 
