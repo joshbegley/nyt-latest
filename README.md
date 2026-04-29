@@ -1,3 +1,19 @@
+**All Six Conservative Justices Attended Trump’s State Dinner**\
+`Their appearance seemed at odds with the chief justice’s oft-stated message that the court he leads avoids even the appearance of political splits.`\
+https://www.nytimes.com/2026/04/29/us/politics/trump-state-dinner-conservative-justices.html
+
+**Comey Makes First Court Appearance After Second Indictment Against Him**\
+`The indictment against James B. Comey, the former F.B.I. director, focused on a social media post that the Justice Department deemed a threat to the president.`\
+https://www.nytimes.com/2026/04/29/us/politics/james-comey-court.html
+
+**Who is the judge in the case?**\
+``\
+https://www.nytimes.com/live/2026/04/29/technology/openai-trial-sam-altman-elon-musk/who-is-the-judge-in-the-case
+
+**Pentagon Puts Iran War Cost at $25 Billion as Hegseth Berates Skeptics**\
+`During his first public appearance on Capitol Hill since the war began, the defense secretary lashed out at lawmakers in both parties who have questioned the conflict.`\
+https://www.nytimes.com/2026/04/29/us/politics/hegseth-iran-war-cost.html
+
 **Peter Raven, 89, Dies; Botanist Warned of the Perils of Climate Change**\
 `He transformed the Missouri Botanical Garden into an international research hub and laid out the existential threats posed by deforestation and unchecked development.`\
 https://www.nytimes.com/2026/04/29/science/earth/peter-raven-dead.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/29/world/europe/russia-victory-day-parade-tanks.
 **Springfield’s Haitian Workers and Businesses Face Uncertain Future**\
 `Haitians played a pivotal role in revitalizing the once struggling Ohio city. The end of Temporary Protected Status could be a setback for its future.`\
 https://www.nytimes.com/2026/04/29/us/politics/springfield-haitian-workers-deportation.html
-
-**The Soccer Pros Who Still Live With Their Parents**\
-`Julian Hall and Adri Mehmeti are New York City teenagers living the dream: not old enough to drink but still expected to hold their own against Messi.`\
-https://www.nytimes.com/2026/04/29/nyregion/julian-zakrzewski-hall-adri-mehmeti-red-bulls-soccer.html
-
-**Today, In Short**\
-`Skin care. The greatest living songwriters. And the latest from the Supreme Court.`\
-https://www.nytimes.com/2026/04/29/briefing/today-in-short.html
-
-**‘Excruciating and Agonizing’: A New Reality for Jewish Democrats**\
-`With Israel increasingly unpopular and antisemitism on the rise, Jewish politicians find themselves more and more under attack.`\
-https://www.nytimes.com/2026/04/29/us/politics/jewish-democrats-antisemitism-israel.html
-
-**How the Fed’s rate decision affects your finances.**\
-`The central bank’s interest rate policy influences car and home loans, credit cards, savings accounts and more.`\
-https://www.nytimes.com/live/2026/04/29/business/federal-reserve-interest-rates/how-the-feds-rate-decision-affects-your-finances
 
