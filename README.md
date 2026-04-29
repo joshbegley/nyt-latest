@@ -1,3 +1,15 @@
+**Testing the Waters**\
+`Iran has threatened to start charging a toll for passage through the Strait of Hormuz. Even if it never happens, the idea could unsettle global shipping.`\
+https://www.nytimes.com/2026/04/29/world/iran-hormuz-toll-king-charles.html
+
+**Two Cocky Authoritarians Blocking Hormuz: What Could Go Wrong?**\
+`In the Iran war, we have two overconfident administrations facing off, each believing that time is on its side.`\
+https://www.nytimes.com/2026/04/29/opinion/iran-war-hormuz-blockade.html
+
+**Building a World ‘Quite Unlike Our Own’**\
+`How can the left deliver on its promises if it can’t even navigate its own “horrendous” bureaucracy? On “The Ezra Klein Show,” the Opinion columnist Ezra Klein reflects on Senator Bernie Sanders’s frustrations with government, and argues that government efficiency is the essential “common sense” foundation for a radical vision of American abundance.`\
+https://www.nytimes.com/video/opinion/100000010852248/building-a-world-quite-unlike-our-own.html
+
 **Trump Administration Sues New Jersey Governor Over ICE Mask Ban**\
 `New Jersey, where Mikie Sherrill is governor, is one of only a few states to try to bar federal immigration agents from wearing masks.`\
 https://www.nytimes.com/2026/04/29/nyregion/new-jersey-trump-ice-mask-lawsuit.html
@@ -7,7 +19,7 @@ https://www.nytimes.com/2026/04/29/nyregion/new-jersey-trump-ice-mask-lawsuit.ht
 https://www.nytimes.com/2026/04/29/technology/ai-spending-tech-data-centers.html
 
 **Ford Reports Higher Profit Thanks Partly to Tariff Refund**\
-`Ford Motor said it expected the federal government to refund $1.3 billion the company paid in tariffs that were later struck down by the Supreme Court.`\
+`Ford Motor said it expected the federal government to refund $1.3 billion the company paid in tariffs that the Supreme Court later struck down.`\
 https://www.nytimes.com/2026/04/29/business/ford-motor-tariff-refund-profit.html
 
 **Lo que significa una Iglesia católica que no le teme a Donald Trump**\
@@ -18,9 +30,9 @@ https://www.nytimes.com/es/2026/04/29/espanol/opinion/papa-iglesia-trump.html
 `Bob Odenkirk, who stars in a new action movie, “Normal,” got his start in comedy working as a writer on “Saturday Night Live” and acting on “Mr. Show,” a cult hit he created with David Cross. On “The Interview,” he says sketch comedy is “the most profound expression of human existence there is.”`\
 https://www.nytimes.com/video/magazine/100000010869978/bob-odenkirk-in-a-bleak-world-turn-to-comedy.html
 
-**Mississippi will move quickly to redraw its judicial district lines.**\
-``\
-https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/mississippi-will-move-quickly-to-redraw-its-judicial-district-lines
+**Mississippi Will Move Quickly to Redraw Its Judicial District Lines**\
+`The state’s Republican governor said he would call a special session in 21 days to address the state’s judicial maps.`\
+https://www.nytimes.com/2026/04/29/us/elections/mississippi-will-move-quickly-to-redraw-its-judicial-district-lines.html
 
 **Takeaways from Powell’s final Fed meeting as chair**\
 ` `\
@@ -46,7 +58,7 @@ https://www.nytimes.com/2026/04/29/business/china-silicon-valley-manus.html
 `The federal law had been a “game changer” for Latino voters, but Wednesday’s ruling could weaken Asian Americans’ political power in the state.`\
 https://www.nytimes.com/2026/04/29/us/elections/voting-rights-act-supreme-court-california.html
 
-**Takeaways from Powell’s final Fed meeting as chair**\
+**Takeaways from Powell’s final Fed meeting as chair.**\
 ``\
 https://www.nytimes.com/live/2026/04/29/business/federal-reserve-interest-rates/takeaways-from-powells-final-news-conference-as-fed-chair
 
@@ -61,16 +73,4 @@ https://www.nytimes.com/2026/04/29/world/europe/ukraine-russia-ceasefire-trump-p
 **EE. UU. imputa al gobernador de Sinaloa de apoyar al narcotráfico**\
 `Fiscales estadounidenses acusan a Rubén Rocha Moya y otros funcionarios en activo de apoyar a organizaciones criminales a cambio de dinero y votos.`\
 https://www.nytimes.com/es/2026/04/29/espanol/america-latina/ee-uu-acusa-gobernador-sinaloa-narcotrafico.html
-
-**Takeaways From Hegseth’s Testimony on Iran War and His Tenure**\
-`It was Defense Secretary Pete Hegseth’s first public appearance before Congress since Operation Epic Fury began in late February.`\
-https://www.nytimes.com/2026/04/29/us/politics/hegseth-congress-hearing-takeaways.html
-
-**Florida Approves House Map That Could Add 4 Republican Seats**\
-`Several voting rights groups have said that they plan to challenge the map in court once Gov. Ron DeSantis signs it into law.`\
-https://www.nytimes.com/2026/04/29/us/florida-house-gop-map.html
-
-**Republicans Seize Back an Edge in the Nation’s Redistricting Fight**\
-`Democrats had earned a slight advantage with a victory in Virginia last week, but now a Supreme Court decision and Florida’s move to pass a new map are set to help Republicans.`\
-https://www.nytimes.com/2026/04/29/us/elections/redistricting-gerrymandering-midterms-republicans-democrats.html
 
