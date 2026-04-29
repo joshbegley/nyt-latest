@@ -1,3 +1,7 @@
+**The Soccer Pros Who Still Live With Their Parents**\
+`Julian Hall and Adri Mehmeti are New York City teenagers living the dream: not old enough to drink but still expected to hold their own against Messi.`\
+https://www.nytimes.com/2026/04/29/nyregion/julian-zakrzewski-hall-adri-mehmeti-red-bulls-soccer.html
+
 **Today, In Short**\
 `Skin care. The greatest living songwriters. And the latest from the Supreme Court.`\
 https://www.nytimes.com/2026/04/29/briefing/today-in-short.html
@@ -20,7 +24,7 @@ https://www.nytimes.com/2026/04/29/us/politics/correspondents-dinner-shooting-co
 
 **How the Supreme Court’s Voting Rights Ruling Could Be Felt in the Midterms**\
 `Democrats will lose at least one blue-leaning district in Louisiana, and Florida is drawing a redder map. South Carolina, Tennessee and Missouri could try to draw new maps before voting begins.`\
-https://www.nytimes.com/2026/04/29/us/elections/supreme-court-voting-rights-midterms.html
+https://www.nytimes.com/2026/04/29/us/politics/supreme-court-voting-rights-midterms.html
 
 **Here’s How the Supreme Court Has Handled Other Humanitarian Protection Cases**\
 `The court has allowed the Trump administration to end protections on a temporary basis in other cases while they are litigated.`\
@@ -50,6 +54,10 @@ https://www.nytimes.com/weather/new-york-new-york
 `See the hourly and 7-day forecast.`\
 https://www.nytimes.com/weather/houston-texas
 
+**Phoenix, Ariz. Weather Forecast**\
+`See the hourly and 7-day forecast.`\
+https://www.nytimes.com/weather/phoenix-arizona
+
 **Hail in Fort Worth, Texas**\
 `See the hourly and 7-day forecast.`\
 https://www.nytimes.com/weather/fort-worth-texas
@@ -62,10 +70,6 @@ https://www.nytimes.com/weather
 `See the hourly and 7-day forecast.`\
 https://www.nytimes.com/weather/chicago-illinois
 
-**Phoenix, Ariz. Weather Forecast**\
-`See the hourly and 7-day forecast.`\
-https://www.nytimes.com/weather/phoenix-arizona
-
 **Minneapolis, Minn. Weather Forecast**\
 `See the hourly and 7-day forecast.`\
 https://www.nytimes.com/weather/minneapolis-minnesota
@@ -73,8 +77,4 @@ https://www.nytimes.com/weather/minneapolis-minnesota
 **Hail in Dallas, Texas**\
 `See the hourly and 7-day forecast.`\
 https://www.nytimes.com/weather/dallas-texas
-
-**Los Angeles, Calif. Weather Forecast**\
-`See the hourly and 7-day forecast.`\
-https://www.nytimes.com/weather/los-angeles-california
 

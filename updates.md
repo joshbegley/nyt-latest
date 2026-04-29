@@ -1,3 +1,15 @@
+**Today, In Short**\
+`Skin care. The greatest living songwriters. And the latest from the Supreme Court.`\
+https://www.nytimes.com/2026/04/29/briefing/today-in-short.html
+
+**Minneapolis, Minn. Weather Forecast**\
+`See the hourly and 7-day forecast.`\
+https://www.nytimes.com/weather/minneapolis-minnesota
+
+**Hail in Dallas, Texas**\
+`See the hourly and 7-day forecast.`\
+https://www.nytimes.com/weather/dallas-texas
+
 **‘Excruciating and Agonizing’: A New Reality for Jewish Democrats**\
 `With Israel increasingly unpopular and antisemitism on the rise, Jewish politicians find themselves more and more under attack.`\
 https://www.nytimes.com/2026/04/29/us/politics/jewish-democrats-antisemitism-israel.html
