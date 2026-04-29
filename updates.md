@@ -1,3 +1,23 @@
+**Nine Artists on the Gardens They’ll Never Forget**\
+`Hiroshi Sugimoto, Irene Neuwirth, Umberto Pasti and others share their impressions of mesmerizing plots all over the world.`\
+https://www.nytimes.com/2026/04/29/t-magazine/favorite-garden-visit-artists.html
+
+**‘A Lot of Rocket’: Trump Celebrates Artemis II Astronauts at the White House**\
+`President Trump wants Americans going into space to be a part of his legacy, even as he has proposed cutting NASA’s education, research and diversity programs.`\
+https://www.nytimes.com/2026/04/29/us/politics/trump-nasa-artemis-astronauts.html
+
+**Musk Says He ‘Was a Fool’ to Provide OpenAI’s Early Funding**\
+`In the second day of a trial pitting Mr. Musk against OpenAI, he said he was misled by the company’s chief executive, Sam Altman. But OpenAI’s lawyer said evidence showed the opposite.`\
+https://www.nytimes.com/2026/04/29/technology/musk-openai-trial-altman.html
+
+**Read the Indictment of Gov. Rubén Rocha Moya of Mexico and Others**\
+`U.S. prosecutors accused a Mexican governor and nine other current and former Mexican officials of participating in a broad conspiracy to help a powerful Mexican cartel import drugs into the United States in exchange for bribes and votes.`\
+https://www.nytimes.com/interactive/2026/04/29/world/americas/ruben-rocha-moya-indictment.html
+
+**The Supreme Court Shakes Up America’s Political Maps**\
+`Both parties are now scrambling to adjust to a new voting rights landscape.`\
+https://www.nytimes.com/2026/04/29/us/politics/redistricting-maps-supreme-court-voting.html
+
 **Why Texas Is Winning the Housing War**\
 `Rents are falling in Texas — and the reason is simpler than you think. Derek Thompson, a contributing writer at The Atlantic, tells the Opinion columnist Ezra Klein how Dallas and Austin have shown that the only real cure for a housing crisis is an aggressive, unrelenting surge in supply.`\
 https://www.nytimes.com/video/opinion/100000010852250/why-texas-is-winning-the-housing-war.html
