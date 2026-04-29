@@ -1,3 +1,7 @@
+**The Iran War Might Be an ‘Everything War’**\
+`It won’t be so easy to extract ourselves from this conflict.`\
+https://www.nytimes.com/2026/04/29/opinion/iran-war-polycrisis.html
+
 **U.S. and Italy Honor Alliance to Curb Art Looting, Amid Broader Tensions**\
 `Standing near dozens of repatriated artifacts, officials from the countries celebrated efforts that have led to the return of thousands of artworks to Italy.`\
 https://www.nytimes.com/2026/04/29/arts/design/us-italy-art-looting.html

@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/04/29/arts/design/us-italy-art-looting.html
 
 **The Iran War Might Be an ‘Everything War’**\
-`It won’t be so easy to extract ourselves from this conflict`\
+`It won’t be so easy to extract ourselves from this conflict.`\
 https://www.nytimes.com/2026/04/29/opinion/iran-war-polycrisis.html
 
 **Republicans eye redistricting opportunities in the South, starting with Louisiana.**\
