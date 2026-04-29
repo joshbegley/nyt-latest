@@ -1,3 +1,23 @@
+**New Jersey Seventh Congressional District 2026: Latest Polls**\
+`Track the latest polls in New Jersey's 7th Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-jersey-us-house-7-polls-2026.html
+
+**Anti-Haiti remarks by Trump could figure in the Supreme Court arguments.**\
+`The Trump administration argues its effort to end humanitarian protections for Haitians was based on foreign policy and national security, not race.`\
+https://www.nytimes.com/live/2026/04/29/us/supreme-court-immigration-tps/anti-haiti-remarks-by-trump-could-figure-in-the-supreme-court-arguments
+
+**Not-Too-Sweet Protein Shakes, Hold the Powder**\
+`This new Ali Slagle delight blends frozen fruit with nutrient-packed ingredients, like cottage cheese and seeds.`\
+https://www.nytimes.com/2026/04/29/dining/not-too-sweet-protein-shakes-hold-the-powder.html
+
+**Rachel Zegler Wowed London in ‘Evita.’ Next Stop: Broadway.**\
+`A buzzy revival of Andrew Lloyd Webber’s hit 1970s musical will transfer to New York next spring, but without its signature outdoor scene.`\
+https://www.nytimes.com/2026/04/29/theater/evita-broadway-rachel-zegler.html
+
+**Three Great Documentaries to Stream**\
+`In this month’s picks, a notorious senator gets grilled, a man changes his eye color and Russian journalists struggle to do their jobs under authoritarianism.`\
+https://www.nytimes.com/2026/04/29/movies/three-great-documentaries-to-stream.html
+
 **Montana First Congressional District 2026: Latest Polls**\
 `Track the latest polls in Montana's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/montana-us-house-1-polls-2026.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/04/29/us/politics/tps-court-shadow-docket.html
 **One Justice Has Personal Ties to Haiti: Barrett**\
 `Two of Justice Amy Coney Barrett’s seven children were adopted from Haiti.`\
 https://www.nytimes.com/2026/04/29/us/politics/amy-coney-barrett-haiti.html
-
-**Too Much Dudamel? No Such Thing.**\
-`The flamboyant conductor Gustavo Dudamel got a jubilant reception at the New York Philharmonic’s spring gala on Tuesday.`\
-https://www.nytimes.com/2026/04/29/style/gustavo-dudamel-new-york-philharmonic.html
-
-**T.P.S. Clampdown Is Part of Trump’s Broader Immigration Agenda**\
-`It is one of many ways the president has tried to make good on his pledge to deport record numbers of people in his second term.`\
-https://www.nytimes.com/2026/04/29/us/politics/trump-tps-immigration.html
-
-**Catholic Guilt? Not for These Priests.**\
-`The worldly men of the cloth in Héctor Abad’s new novel find divinity both inside and outside the church.`\
-https://www.nytimes.com/2026/04/29/books/review/hector-abad-aside-from-my-heart-all-is-well.html
-
-**Road Closures and Traffic Delays Expected for Charles and Camilla’s Day in New York**\
-`The New York Police Department urged commuters to use public transportation during the royal visit on Wednesday.`\
-https://www.nytimes.com/2026/04/29/us/king-charles-nyc-traffic-road-closures.html
-
-**What to know about T.P.S. for Haitians and Syrians.**\
-``\
-https://www.nytimes.com/live/2026/04/29/us/supreme-court-immigration-tps/tps-haitians-syrians
 

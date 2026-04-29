@@ -1,3 +1,23 @@
+**New Jersey Seventh Congressional District 2026: Latest Polls**\
+`Track the latest polls in New Jersey's 7th Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-jersey-us-house-7-polls-2026.html
+
+**Anti-Haiti remarks by Trump could figure in the Supreme Court arguments.**\
+`The Trump administration argues its effort to end humanitarian protections for Haitians was based on foreign policy and national security, not race.`\
+https://www.nytimes.com/live/2026/04/29/us/supreme-court-immigration-tps/anti-haiti-remarks-by-trump-could-figure-in-the-supreme-court-arguments
+
+**Not-Too-Sweet Protein Shakes, Hold the Powder**\
+`This new Ali Slagle delight blends frozen fruit with nutrient-packed ingredients, like cottage cheese and seeds.`\
+https://www.nytimes.com/2026/04/29/dining/not-too-sweet-protein-shakes-hold-the-powder.html
+
+**Rachel Zegler Wowed London in ‘Evita.’ Next Stop: Broadway.**\
+`A buzzy revival of Andrew Lloyd Webber’s hit 1970s musical will transfer to New York next spring, but without its signature outdoor scene.`\
+https://www.nytimes.com/2026/04/29/theater/evita-broadway-rachel-zegler.html
+
+**Three Great Documentaries to Stream**\
+`In this month’s picks, a notorious senator gets grilled, a man changes his eye color and Russian journalists struggle to do their jobs under authoritarianism.`\
+https://www.nytimes.com/2026/04/29/movies/three-great-documentaries-to-stream.html
+
 **Montana First Congressional District 2026: Latest Polls**\
 `Track the latest polls in Montana's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/montana-us-house-1-polls-2026.html
