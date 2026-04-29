@@ -1,3 +1,7 @@
+**Queen Camilla Unites Winnie-the-Pooh with a Long-Lost Friend**\
+`On Wednesday, the Queen of England presented the New York Public Library with a bespoke replica of Roo, the smallest companion of the Bear of Very Little Brain.`\
+https://www.nytimes.com/2026/04/29/books/queen-camilla-winnie-the-pooh.html
+
 **Brown University Gunman Planned Attack for Years, F.B.I. Says**\
 `Investigators said the man’s transient lifestyle and social isolation made his intentions hard to track before shootings that killed two Brown students and an M.I.T. professor.`\
 https://www.nytimes.com/2026/04/29/us/brown-university-shooting-fbi.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/29/technology/ai-spending-tech-data-centers.html
 **Ford Reports Higher Profit Thanks Partly to Tariff Refund**\
 `Ford Motor said it expected the federal government to refund $1.3 billion the company paid in tariffs that the Supreme Court later struck down.`\
 https://www.nytimes.com/2026/04/29/business/ford-motor-tariff-refund-profit.html
-
-**Lo que significa una Iglesia católica que no le teme a Donald Trump**\
-`El choque entre el papa León XIV y el presidente de EE. UU. revela una búsqueda de autoridad moral en tiempos de incertidumbre.`\
-https://www.nytimes.com/es/2026/04/29/espanol/opinion/papa-iglesia-trump.html
 
