@@ -1,3 +1,7 @@
+**¿Qué cenaron el presidente Trump y el rey Carlos?**\
+`Los ravioles con hierbas de primavera y el lenguado de Dover à la meunière fueron algunos de los platos de la cena en honor de los reyes Carlos III y Camila del Reino Unido.`\
+https://www.nytimes.com/es/2026/04/29/espanol/estados-unidos/cena-carlos-trump-menu.html
+
 **All Six Conservative Justices Attended Trump’s State Dinner**\
 `Their appearance seemed at odds with the chief justice’s oft-stated message that the court he leads avoids even the appearance of political splits.`\
 https://www.nytimes.com/2026/04/29/us/politics/trump-state-dinner-conservative-justices.html

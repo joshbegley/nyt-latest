@@ -1,3 +1,7 @@
+**¿Qué cenaron el presidente Trump y el rey Carlos?**\
+`Los ravioles con hierbas de primavera y el lenguado de Dover à la meunière fueron algunos de los platos de la cena en honor de los reyes Carlos III y Camila del Reino Unido.`\
+https://www.nytimes.com/es/2026/04/29/espanol/estados-unidos/cena-carlos-trump-menu.html
+
 **All Six Conservative Justices Attended Trump’s State Dinner**\
 `Their appearance seemed at odds with the chief justice’s oft-stated message that the court he leads avoids even the appearance of political splits.`\
 https://www.nytimes.com/2026/04/29/us/politics/trump-state-dinner-conservative-justices.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/04/29/us/supreme-court-voting-rights/these-sta
 **Russia’s Victory Day Parade Won’t Have the Usual Display of Armor**\
 `The absence of tanks and other heavy military vehicles on Red Square will highlight the heavy toll of the war in Ukraine.`\
 https://www.nytimes.com/2026/04/29/world/europe/russia-victory-day-parade-tanks.html
-
-**Springfield’s Haitian Workers and Businesses Face Uncertain Future**\
-`Haitians played a pivotal role in revitalizing the once struggling Ohio city. The end of Temporary Protected Status could be a setback for its future.`\
-https://www.nytimes.com/2026/04/29/us/politics/springfield-haitian-workers-deportation.html
 
