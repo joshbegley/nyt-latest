@@ -1,3 +1,7 @@
+**House Passes Stalled Homeland Security Funding Bill, Ending Shutdown**\
+`Republicans were forced to use a special maneuver to steer around opposition in their own party and speed the measure to the floor, relying on Democrats to push it through.`\
+https://www.nytimes.com/2026/04/30/us/politics/house-homeland-security-funding-bill.html
+
 **House Passes Farm Bill After Republican Infighting**\
 `The measure exposed rifts within the G.O.P., pitting lawmakers aligned with the Make American Healthy Again movement against those representing traditional agricultural interests.`\
 https://www.nytimes.com/2026/04/30/us/politics/house-farm-bill-republican-infighting.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/30/espanol/mundo/rusia-ucrania-alto-fuego-tru
 **Senator Reed, a Democrat, attacks Hegseth right out of the gate.**\
 ``\
 https://www.nytimes.com/live/2026/04/30/us/trump-news/senator-reed-a-democrat-attacks-hegseth-right-out-of-the-gate
-
-**Smog in Phoenix and Salt Lake City? The E.P.A. Is Blaming Asia.**\
-`The Trump administration says the cities shouldn’t be penalized for unhealthy air because pollution can blow in from abroad. Some experts say that’s preposterous.`\
-https://www.nytimes.com/2026/04/30/climate/phoenix-salt-lake-city-pollution-epa.html
 
