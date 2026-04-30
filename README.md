@@ -1,3 +1,19 @@
+**Josh Johnson Gives King Charles Props for His Comedy Chops**\
+`“You know, I’ve always wondered what white Def Jam would be like,” Johnson said after King Charles cracked a few jokes at the White House.`\
+https://www.nytimes.com/2026/04/30/arts/television/late-night-king-charles-comedy.html
+
+**Palabra del día: ‘intermittent’**\
+`Esta palabra ha aparecido en 219 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/04/30/espanol/que-significa-intermittent.html
+
+**Me encanta hacer entrenamiento de fuerza. ¿En verdad necesito también cardio?**\
+`Expertos en ejercicio y medicina deportiva nos explican qué sucede si te enfocas exclusivamente en fortalecer tus músculos.`\
+https://www.nytimes.com/es/2026/04/30/espanol/estilos-de-vida/cardio-entrenamiento-fuerza.html
+
+**Word of the Day: intermittent**\
+`This word has appeared in 119 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/04/30/learning/word-of-the-day-intermittent.html
+
 **5 conclusiones del testimonio de Hegseth sobre la guerra en Irán y su gestión**\
 `Fue la primera comparecencia pública del secretario de Defensa Pete Hegseth ante el Congreso desde que comenzó la operación Furia Épica a finales de febrero.`\
 https://www.nytimes.com/es/2026/04/30/espanol/estados-unidos/testimonio-hegseth-iran.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/29/us/mamdani-diamond-king-charles.html
 **How Trump’s Proposed Arch Would Change D.C.**\
 `The Times created a 3-D model of the 250-foot monument to show how it would affect a symbolic sightline.`\
 https://www.nytimes.com/interactive/2026/04/29/us/trump-triumphal-arch-dc.html
-
-**Sheriff of New Orleans Jail Where 10 Inmates Escaped Is Indicted**\
-`Susan Hutson, the sheriff of Orleans Parish, faces 30 counts, and the jail’s chief financial officer was also indicted.`\
-https://www.nytimes.com/2026/04/29/us/susan-hutson-orleans-indictment.html
-
-**Trump Administration Announces Moves to Sharply Curtail Gun Regulations**\
-`The changes are in keeping with the administration’s pledge to cut back on gun restrictions.`\
-https://www.nytimes.com/2026/04/29/us/politics/trump-gun-control.html
-
-**Trump Threatens to Pull Troops From Germany as He Lashes Out at Chancellor**\
-`The comments came after the German chancellor said that Iran has “humiliated” the United States.`\
-https://www.nytimes.com/2026/04/29/us/politics/trump-germany-us-troops.html
-
-**Powell Announces He Will Stay on as Fed Governor**\
-`Jerome H. Powell announced on Wednesday that he would stay on as a governor at the Federal Reserve after his term as chair ends next month due to lingering legal threats from the Trump administration.`\
-https://www.nytimes.com/video/us/politics/100000010870996/jerome-powell-stays-fed-governor.html
 
