@@ -1,3 +1,27 @@
+**What Teenagers Are Saying About Modern Parenting**\
+`Students react to an essay about the relentlessness of raising children today, and share how involved they think parents should be.`\
+https://www.nytimes.com/2026/04/30/learning/what-teenagers-are-saying-about-modern-parenting.html
+
+**A ‘Bachelorette’ Season Hangs in the Balance as Abuse Claims Are Aired**\
+`Television executives have not ruled out a revival of Taylor Frankie Paul’s season of the reality show, but a custody battle has kept her volatile former relationship in the spotlight.`\
+https://www.nytimes.com/2026/04/30/arts/television/bachelorette-taylor-frankie-paul-abc-disney.html
+
+**Jeffrey Epstein’s Possible Suicide Note Hidden from Public View**\
+`An inmate said he discovered the note after Mr. Epstein was found injured in his jail cell, weeks before his death. It’s now locked in a courthouse.`\
+https://www.nytimes.com/2026/04/30/us/jeffrey-epstein-suicide-note-sealed.html
+
+**Israel Intercepts Gaza-Bound Aid Flotilla in International Waters**\
+`The Israeli military boarded multiple boats in a flotilla that was sailing from Barcelona to Gaza, the protest group behind the mission said. The group has repeatedly challenged Israel’s naval blockade of Gaza.`\
+https://www.nytimes.com/video/world/middleeast/100000010872184/israel-intercepts-gaza-aid-flotilla-detains-activists.html
+
+**Myanmar’s Junta Moves Daw Aung San Suu Kyi From Prison to House Arrest**\
+`The ousted civilian leader has been detained since a military coup forced her from power in 2021.`\
+https://www.nytimes.com/2026/04/30/world/asia/myanmar-aung-san-suu-kyi.html
+
+**Camp Mystic Says It Will Not Reopen This Summer**\
+`In a statement, the camp said it told Texas regulators that it was “withdrawing its application for a summer 2026 camp license” after 28 people died in flooding last summer.`\
+https://www.nytimes.com/2026/04/30/us/camp-mystic-texas-floods-closure.html
+
 **Can’t Sleep? Here’s What to Consider Before Trying Supplements.**\
 `New data show that 1 in 8 Americans are using sleep aids such as magnesium, melatonin or C.B.D.`\
 https://www.nytimes.com/2026/04/30/well/sleep-supplements-magnesium-melatonin.html

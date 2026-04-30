@@ -1,3 +1,7 @@
+**Is A.I. a Threat to Humanity? Not in This Trial.**\
+`One of Elon Musk’s abiding fears is that A.I. could one day threaten humans. But the jurors deciding his suit against OpenAI probably won’t hear about it.`\
+https://www.nytimes.com/2026/04/30/technology/open-ai-trial-elon-musk-existential.html
+
 **What Teenagers Are Saying About Modern Parenting**\
 `Students react to an essay about the relentlessness of raising children today, and share how involved they think parents should be.`\
 https://www.nytimes.com/2026/04/30/learning/what-teenagers-are-saying-about-modern-parenting.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/30/world/middleeast/iran-war-supreme-leader-mojt
 **Georg Baselitz, German Neo-Expressionist Painter, Dies at 88**\
 `Along with contemporaries like Anselm Kiefer, he mounted a frontal attack on Minimalism and Conceptualism, the dominant “cool” styles of the 1970s.`\
 https://www.nytimes.com/2026/04/30/arts/design/george-baselitz-dead.html
-
-****\
-`Georg Baselitz in 2025.`\
-https://www.nytimes.com/video/embedded/admin/100000010872778/30Baselitz--bfhm.html
 
