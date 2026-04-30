@@ -1,3 +1,7 @@
+**House Adopts Budget to Unlock $70 Billion for Immigration Enforcement**\
+`The measure will allow the G.O.P. to begin working on a filibuster-proof bill to fund ICE and C.B.P., part of their plan to reopen the long-shuttered Department of Homeland Security.`\
+https://www.nytimes.com/2026/04/29/us/politics/house-ice-budget-immigration.html
+
 **D4vd Bought Chain Saws to Dispose of Teenager’s Body, Prosecutors Say**\
 `In a legal filing, prosecutors outlined for the first time how they say the singer murdered and dismembered Celeste Rivas Hernandez.`\
 https://www.nytimes.com/2026/04/29/arts/music/d4vd-celeste-rivas-hernandez-murder.html
