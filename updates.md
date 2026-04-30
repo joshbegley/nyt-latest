@@ -1,3 +1,11 @@
+**How Powell Just Complicated Trump’s Fed Plans**\
+`Traders now think the Federal Reserve will keep steady interest rates, or perhaps even increase them, amid succession intrigue at the central bank.`\
+https://www.nytimes.com/2026/04/30/business/dealbook/powell-fed-trump-warsh.html
+
+**Israel Intercepts Aid Flotilla Aiming to Breach Naval Blockade of Gaza**\
+`Activists said the Israeli military boarded and disabled boats carrying humanitarian assistance to the territory in international waters near Greece.`\
+https://www.nytimes.com/2026/04/30/world/middleeast/israel-gaza-aid-flotilla.html
+
 **David Allan Coe, Singer Who Personified Outlaw Country, Dies at 86**\
 `Mr. Coe, who wrote “Take This Job and Shove It” and other chart-topping hits, was a transgressive exponent of the outlaw country movement of the 1970s and ’80s.`\
 https://www.nytimes.com/2026/04/30/arts/music/david-allan-coe-dead.html

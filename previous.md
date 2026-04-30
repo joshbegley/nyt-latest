@@ -1,3 +1,7 @@
+**How Powell Just Complicated Trump’s Fed Plans**\
+`Traders now think the Federal Reserve will keep steady interest rates, or perhaps even increase them, amid succession intrigue at the central bank.`\
+https://www.nytimes.com/2026/04/30/business/dealbook/powell-fed-trump-warsh.html
+
 **David Allan Coe, Singer Who Personified Outlaw Country, Dies at 86**\
 `Mr. Coe, who wrote “Take This Job and Shove It” and other chart-topping hits, was a transgressive exponent of the outlaw country movement of the 1970s and ’80s.`\
 https://www.nytimes.com/2026/04/30/arts/music/david-allan-coe-dead.html
@@ -62,8 +66,8 @@ https://www.nytimes.com/2026/04/30/crosswords/wordle-review-1777.html
 `Officials are investigating similar attacks across Europe, all claimed by a shadowy Islamist group that may be using low-cost, unsophisticated methods to sow fear in Jewish communities.`\
 https://www.nytimes.com/2026/04/30/world/europe/european-antisemitism-hybrid-warfare.html
 
-**Israel Intercepts Aid Flotilla Headed to Gaza**\
-`Activists said the Israeli military boarded and disabled their boats in international waters near Greece.`\
+**Israel Intercepts Aid Flotilla Aiming to Breach Naval Blockade of Gaza**\
+`Activists said the Israeli military boarded and disabled boats carrying humanitarian assistance to the territory in international waters near Greece.`\
 https://www.nytimes.com/2026/04/30/world/middleeast/israel-gaza-aid-flotilla.html
 
 **There’s a 900-Year-Old Answer to Our Most Modern Problem**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/30/opinion/ai-crimes-law.html
 **Democrats Realize Good Government Is Bad Politics When It Comes to Maps**\
 `A decade ago, the party sought independent redistricting commissions. Now, in an era of extreme gerrymandering, such efforts could slow Democrats as they try to keep up with Republicans.`\
 https://www.nytimes.com/2026/04/30/us/politics/democrats-independent-redistricting-commissions.html
-
-**Some Black Southerners Say Voting Rights Ruling ‘Missed the Mark’**\
-`Veterans of the civil rights movement and others said the Supreme Court decision felt like a bleak end to decades of gains in Black representation in the region.`\
-https://www.nytimes.com/2026/04/30/us/some-black-southerners-say-voting-rights-ruling-missed-the-mark.html
 
