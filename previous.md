@@ -1,3 +1,7 @@
+**Transgender Idaho Residents Sue After State Criminalizes Use of Bathrooms**\
+`The lawsuit seeks to block a state bathroom law that is the nation’s most restrictive, with penalties that could include a five-year prison sentence.`\
+https://www.nytimes.com/2026/04/30/us/transgender-idaho-bathrooms-lawsuit.html
+
 **Who’s a Threat?**\
 `We look at when political criticism can be considered a threat of violence.`\
 https://www.nytimes.com/2026/04/30/briefing/whos-a-threat.html
@@ -26,13 +30,13 @@ https://www.nytimes.com/2026/04/30/world/europe/trump-putin-ukraine-zelensky-pea
 `The court struck down Louisiana’s voting map, a decision that could make it harder for lawmakers to create majority-minority districts.`\
 https://www.nytimes.com/2026/04/30/podcasts/the-daily/supreme-court-ruling-voting-rights.html
 
-**What the Voting Rights Act Decision Means, and Hegseth’s Heated Testimony**\
-`Plus, chatbots told scientists how to make bioweapons.`\
-https://www.nytimes.com/2026/04/30/podcasts/the-headlines/voting-rights-supreme-court-hegseth-testimony.html
-
 **Connections Companion No. 1,055**\
 `Scroll down for hints and conversation about the puzzle for Friday, May 1, 2026.`\
 https://www.nytimes.com/2026/04/30/crosswords/connections-companion-1055.html
+
+**What the Voting Rights Act Decision Means, and Hegseth’s Heated Testimony**\
+`Plus, chatbots told scientists how to make bioweapons.`\
+https://www.nytimes.com/2026/04/30/podcasts/the-headlines/voting-rights-supreme-court-hegseth-testimony.html
 
 **Strands Sidekick No. 789**\
 `Scroll down for hints and conversation about the puzzle for Friday, May 1, 2026.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/04/30/realestate/minneapolis-minnesota-
 **10 Reasons We Love the Original ‘Devil Wears Prada’**\
 `The 2006 comedy is filled with moments big and small that have stood the test of time, thanks in no small part to Meryl Streep’s turn as Miranda Priestly.`\
 https://www.nytimes.com/2026/04/30/movies/devil-wears-prada-movie-top-10-moments.html
-
-**What’s the Ultimate Symbol of Your Hometown?**\
-`A Times article makes the case that bodegas may be the ultimate symbol of adaptability in an ever-changing New York.`\
-https://www.nytimes.com/2026/04/30/learning/whats-the-ultimate-symbol-of-your-hometown.html
 

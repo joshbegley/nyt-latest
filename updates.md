@@ -1,3 +1,7 @@
+**Transgender Idaho Residents Sue After State Criminalizes Use of Bathrooms**\
+`The lawsuit seeks to block a state bathroom law that is the nation’s most restrictive, with penalties that could include a five-year prison sentence.`\
+https://www.nytimes.com/2026/04/30/us/transgender-idaho-bathrooms-lawsuit.html
+
 **Who’s a Threat?**\
 `We look at when political criticism can be considered a threat of violence.`\
 https://www.nytimes.com/2026/04/30/briefing/whos-a-threat.html
