@@ -1,10 +1,18 @@
+**The Homeland Security Shutdown Ends**\
+`Also, Maine’s governor bows out of a crucial Senate race. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/04/30/briefing/homeland-security-shutdown-ends.html
+
+**For Many in Maine, No Tears Over Mills’s Exit From Senate Race**\
+`Voters who watched Gov. Janet Mills struggle to gain traction in the Democratic Senate primary said they were unsurprised — and in many cases, relieved — to see her exit.`\
+https://www.nytimes.com/2026/04/30/us/elections/maine-janet-mills-reaction.html
+
 **Computer Outage Disrupts Student Exams in New York State**\
 `Thousands of children were unable to finish annual standardized tests, the second year in a row when technological issues emerged.`\
 https://www.nytimes.com/2026/04/30/nyregion/ny-student-tests-exams-tech-outage.html
 
 **The Analog Charms of New York’s Intercoms**\
 `New York apartment buzzers are loud, often broken and haven’t been upgraded since the ’70s. But would we have it any other way?`\
-https://www.nytimes.com/interactive/2026/04/30/realestate/nyc-intercoms-analog.html
+https://www.nytimes.com/interactive/2026/05/01/realestate/nyc-intercoms-analog.html
 
 **Hezbollah’s Latest Challenge to Israeli Forces: A Stealthier Drone**\
 `The Lebanese militant group is attacking Israeli troops with explosive drones controlled by fiber-optic cables, like those commonly used in the war in Ukraine.`\
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/30/arts/music/britney-spears-charges-dui-drugs.h
 **What Peak Gerrymandering Could Look Like Now**\
 `The redrawing of America’s congressional districts is sure to escalate after the Supreme Court’s decision, with some maps that would have seemed laughable a year ago.`\
 https://www.nytimes.com/2026/04/30/upshot/gerrymanders-redistricting-democrats-republicans.html
-
-**Where to Eat 24 Hours a Day, 7 Days a Week**\
-`As Veselka goes back to 24-hour service, these three New York City restaurants never stopped carrying the torch.`\
-https://www.nytimes.com/2026/04/30/dining/where-to-eat-24-hours-a-day-7-days-a-week.html
-
-**Mexico’s President Faces Perilous Choice After U.S. Indicts Her Ally**\
-`The Trump administration wants President Claudia Sheinbaum to arrest a Mexican governor. She is faced with few good options in response.`\
-https://www.nytimes.com/2026/04/30/world/americas/mexico-rocha-indictment-sheinbaum.html
 

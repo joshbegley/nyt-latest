@@ -1,3 +1,15 @@
+**The Homeland Security Shutdown Ends**\
+`Also, Maine’s governor bows out of a crucial Senate race. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/04/30/briefing/homeland-security-shutdown-ends.html
+
+**For Many in Maine, No Tears Over Mills’s Exit From Senate Race**\
+`Voters who watched Gov. Janet Mills struggle to gain traction in the Democratic Senate primary said they were unsurprised — and in many cases, relieved — to see her exit.`\
+https://www.nytimes.com/2026/04/30/us/elections/maine-janet-mills-reaction.html
+
+**The Analog Charms of New York’s Intercoms**\
+`New York apartment buzzers are loud, often broken and haven’t been upgraded since the ’70s. But would we have it any other way?`\
+https://www.nytimes.com/interactive/2026/05/01/realestate/nyc-intercoms-analog.html
+
 **Computer Outage Disrupts Student Exams in New York State**\
 `Thousands of children were unable to finish annual standardized tests, the second year in a row when technological issues emerged.`\
 https://www.nytimes.com/2026/04/30/nyregion/ny-student-tests-exams-tech-outage.html
