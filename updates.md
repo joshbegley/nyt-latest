@@ -1,3 +1,11 @@
+**Carry Out Orders**\
+`Lance Enfinger and John Kugelman land themselves a prizewinning puzzle.`\
+https://www.nytimes.com/2026/04/29/crosswords/daily-puzzle-2026-04-30.html
+
+**Supreme Court Considers Trump Administration’s Plan to End TPS**\
+`The justices on Wednesday considered whether the Trump administration had legally ended the Temporary Protected Status program for hundreds of thousands of Haitians and Syrians.`\
+https://www.nytimes.com/video/us/100000010868478/tps-supreme-court-hearing.html
+
 **The War in Iran Has Cost $25 Billion So Far. Is That a Lot?**\
 `It exceeds the annual budgets of numerous federal agencies, and the Pentagon’s yearly budget for munitions.`\
 https://www.nytimes.com/interactive/2026/04/29/upshot/iran-war-cost-comparison.html
