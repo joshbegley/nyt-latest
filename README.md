@@ -1,3 +1,19 @@
+**¿Por qué los restaurantes de sushi más exclusivos nos dejan aburridos y sin dinero?**\
+`Lo que empezó en Japón como una comida rápida y emocionante para la clase trabajadora, se ha transformado en un elaborado capricho para comensales adinerados en otros lugares.`\
+https://www.nytimes.com/es/2026/04/30/espanol/estilos-de-vida/omakase-sushi-precio.html
+
+**Ticking Watch**\
+`What do you think this image is communicating?`\
+https://www.nytimes.com/2026/04/30/learning/ticking-watch.html
+
+**Trump pone a prueba los límites de sus partidarios más devotos**\
+`La retórica religiosa del presidente, las políticas migratorias de línea dura y la guerra de EE. UU. en Irán ha dividido a una coalición de votantes cristianos que lo devolvieron a la Casa Blanca.`\
+https://www.nytimes.com/es/2026/04/30/espanol/estados-unidos/trump-evangelicos.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/30/crosswords/spelling-bee-forum.html
+
 **Josh Johnson Gives King Charles Props for His Comedy Chops**\
 `“You know, I’ve always wondered what white Def Jam would be like,” Johnson said after King Charles cracked a few jokes at the White House.`\
 https://www.nytimes.com/2026/04/30/arts/television/late-night-king-charles-comedy.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/29/crosswords/daily-puzzle-2026-04-30.html
 **Supreme Court Considers Trump Administration’s Plan to End TPS**\
 `The justices on Wednesday considered whether the Trump administration had legally ended the Temporary Protected Status program for hundreds of thousands of Haitians and Syrians.`\
 https://www.nytimes.com/video/us/100000010868478/tps-supreme-court-hearing.html
-
-**The War in Iran Has Cost $25 Billion So Far. Is That a Lot?**\
-`It exceeds the annual budgets of numerous federal agencies, and the Pentagon’s yearly budget for munitions.`\
-https://www.nytimes.com/interactive/2026/04/29/upshot/iran-war-cost-comparison.html
-
-**British Royals Crisscross Manhattan in Brief Visit Packed With Photo Ops**\
-`King Charles III and Queen Camilla laid flowers at the Sept. 11 memorial before stopping by an urban farm, the New York Public Library, a business event and a gala.`\
-https://www.nytimes.com/2026/04/29/world/europe/king-charles-camilla-royals-nyc-visit.html
-
-**Mamdani’s Advice to Royals: Give That Priceless Diamond Back to India**\
-`Mayor Zohran Mamdani and King Charles did not meet privately. But if they had, the mayor said, he probably would have raised the issue of the Koh-i-Noor Diamond.`\
-https://www.nytimes.com/2026/04/29/us/mamdani-diamond-king-charles.html
-
-**How Trump’s Proposed Arch Would Change D.C.**\
-`The Times created a 3-D model of the 250-foot monument to show how it would affect a symbolic sightline.`\
-https://www.nytimes.com/interactive/2026/04/29/us/trump-triumphal-arch-dc.html
 
