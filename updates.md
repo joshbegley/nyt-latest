@@ -1,3 +1,15 @@
+**Trump Administration Casts Host of Policies Under Biden as Anti-Christian**\
+`A new report is the latest effort by the Justice Department to argue that it is removing political bias from prosecutorial decision-making.`\
+https://www.nytimes.com/2026/04/30/us/politics/trump-report-christians-biden.html
+
+**Venice Biennale Jury Resigns Amid Tension Over Awards Ban**\
+`The artist representing Israel had threatened to sue the world’s most important art exhibition after its jury said it wouldn’t consider artists from countries whose leaders are accused of crimes against humanity.`\
+https://www.nytimes.com/2026/04/30/arts/design/israel-artist-venice-biennale.html
+
+**Older Americans Are a Reality, Not a Problem**\
+`Sampling the outpouring of responses to a guest essay, “Older Americans Are Hoarding the Nation’s Potential,” by Samuel Moyn. Also: A clash over a wind project.`\
+https://www.nytimes.com/2026/04/30/opinion/older-americans-ageism.html
+
 **Chief Justice Roberts Played the Long Game on Voting Rights**\
 `Since his early days as a lawyer and in his first years on the bench, the chief justice has worked to limit the force of the Voting Rights Act.`\
 https://www.nytimes.com/2026/04/30/us/politics/the-docket-roberts-voting-rights.html
