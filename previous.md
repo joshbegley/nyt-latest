@@ -1,3 +1,7 @@
+**Los Angeles Mayoral Election 2026: Latest Polls**\
+`Track the latest polls in the Los Angeles mayoral election.`\
+https://www.nytimes.com/interactive/polls/los-angeles-mayor-election-polls-2026.html
+
 **Michelangelo and Rodin: Finding the Living Spirit in Stone**\
 `An exhibition at the Louvre shows how the two artists, working centuries apart, found common ground in the vital force of rough-hewed textures.`\
 https://www.nytimes.com/2026/04/30/arts/louvre-michelangelo-rodin.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/30/nyregion/kohinoor-diamond-india-history-mamda
 **Trump and Putin Talk, and Ukraine Shrugs**\
 `More than a year of similar conversations have failed to bring the country any closer to peace, so Ukrainians have stopped hoping they will.`\
 https://www.nytimes.com/2026/04/30/world/europe/trump-putin-ukraine-zelensky-peace-talks.html
-
-**A Landmark Supreme Court Ruling on Voting Rights**\
-`The court struck down Louisiana’s voting map, a decision that could make it harder for lawmakers to create majority-minority districts.`\
-https://www.nytimes.com/2026/04/30/podcasts/the-daily/supreme-court-ruling-voting-rights.html
 
