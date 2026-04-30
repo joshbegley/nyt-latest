@@ -1,3 +1,15 @@
+**Hezbollah’s Latest Challenge to Israeli Forces: A Stealthier Drone**\
+`The Lebanese militant group is attacking Israeli troops with explosive drones controlled by fiber-optic cables, like those commonly used in the war in Ukraine.`\
+https://www.nytimes.com/2026/04/30/world/middleeast/hezbollah-fiber-optic-drones.html
+
+**Decoding the King: Brits Hear Subtle Rebuke to Trump that Americans Might Miss**\
+`Royal watchers in Britain called the visit of King Charles III to America a master class in understated criticism.`\
+https://www.nytimes.com/2026/04/30/world/europe/king-charles-visit-trump-messages.html
+
+**The Future of Apple**\
+`Tim Cook made Apple rich. The question for his successor is whether he can make it cool again.`\
+https://www.nytimes.com/2026/04/30/world/tim-cook-apple-oil-prices-epstein-suicide.html
+
 **New Banksy Statue Causes Stir in Central London**\
 `The statue depicts a man marching with a flag that covers his face. It appeared in a section of London near statues of 19th-century British military and colonial figures.`\
 https://www.nytimes.com/2026/04/30/world/europe/banksy-london-statue.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/30/climate/santa-marta-climate-change.html
 **Fortnite Issues Refunds for D4vd Gameplay Items**\
 `The singer, who has been charged with the murder of 14-year-old Celeste Rivas Hernandez, began his career making music inspired by the game.`\
 https://www.nytimes.com/2026/04/30/arts/music/d4vd-fortnite-cosmetics-refund.html
-
-**Finding New Horizons and Saving a Disappearing Language**\
-`The fascinating stories of dying tongues.`\
-https://www.nytimes.com/2026/04/30/opinion/lewis-clark-shoshone-language-book.html
-
-**Voting Rights Ruling Could Fuel Era of Endless Redistricting Wars**\
-`The expected flood of new congressional maps is likely to produce fewer competitive districts, fewer ways for voters to hold elected officials accountable and more polarized politics.`\
-https://www.nytimes.com/2026/04/30/us/politics/supreme-courts-voting-rights-gerrymandering.html
-
-**‘Widow’s Bay’ Promises a Cursed Vacation**\
-`In this off-kilter horror-comedy on Apple TV, a seaside village with eccentric citizens and a troubled past becomes a tourist hot spot.`\
-https://www.nytimes.com/2026/04/30/arts/television/widows-bay.html
 

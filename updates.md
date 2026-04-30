@@ -1,3 +1,15 @@
+**Hezbollah’s Latest Challenge to Israeli Forces: A Stealthier Drone**\
+`The Lebanese militant group is attacking Israeli troops with explosive drones controlled by fiber-optic cables, like those commonly used in the war in Ukraine.`\
+https://www.nytimes.com/2026/04/30/world/middleeast/hezbollah-fiber-optic-drones.html
+
+**Decoding the King: Brits Hear Subtle Rebuke to Trump that Americans Might Miss**\
+`Royal watchers in Britain called the visit of King Charles III to America a master class in understated criticism.`\
+https://www.nytimes.com/2026/04/30/world/europe/king-charles-visit-trump-messages.html
+
+**The Future of Apple**\
+`Tim Cook made Apple rich. The question for his successor is whether he can make it cool again.`\
+https://www.nytimes.com/2026/04/30/world/tim-cook-apple-oil-prices-epstein-suicide.html
+
 **New Banksy Statue Causes Stir in Central London**\
 `The statue depicts a man marching with a flag that covers his face. It appeared in a section of London near statues of 19th-century British military and colonial figures.`\
 https://www.nytimes.com/2026/04/30/world/europe/banksy-london-statue.html
