@@ -1,3 +1,7 @@
+**Who’s a Threat?**\
+`We look at when political criticism can be considered a threat of violence.`\
+https://www.nytimes.com/2026/04/30/briefing/whos-a-threat.html
+
 **Korean Air Bans Roosters on U.S. Flights to the Philippines**\
 `The airline was used by chicken breeders in Texas to illegally transport roosters for cockfights, an animal welfare group said.`\
 https://www.nytimes.com/2026/04/30/world/asia/korean-air-cockfighting-roosters-philippines.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/30/movies/devil-wears-prada-movie-top-10-moments
 **What’s the Ultimate Symbol of Your Hometown?**\
 `A Times article makes the case that bodegas may be the ultimate symbol of adaptability in an ever-changing New York.`\
 https://www.nytimes.com/2026/04/30/learning/whats-the-ultimate-symbol-of-your-hometown.html
-
-**Senators Say Lawyers Helped Wealthy Clients Dodge Taxes in Puerto Rico**\
-`Rich Americans are writing off taxes they owed before they moved to Puerto Rico, the Senate Finance Committee says.`\
-https://www.nytimes.com/2026/04/30/business/economy/senate-investigation-puerto-rico-tax-break.html
 

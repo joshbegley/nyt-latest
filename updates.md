@@ -1,3 +1,7 @@
+**Who’s a Threat?**\
+`We look at when political criticism can be considered a threat of violence.`\
+https://www.nytimes.com/2026/04/30/briefing/whos-a-threat.html
+
 **Korean Air Bans Roosters on U.S. Flights to the Philippines**\
 `The airline was used by chicken breeders in Texas to illegally transport roosters for cockfights, an animal welfare group said.`\
 https://www.nytimes.com/2026/04/30/world/asia/korean-air-cockfighting-roosters-philippines.html
