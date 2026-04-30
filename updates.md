@@ -1,3 +1,7 @@
+**Mamdani’s Advice to Royals: Give That Priceless Diamond Back to India**\
+`Mayor Zohran Mamdani and King Charles did not meet privately. But if they had, the mayor said, he probably would have raised the issue of the Koh-i-Noor Diamond.`\
+https://www.nytimes.com/2026/04/29/us/mamdani-diamond-king-charles.html
+
 **How Trump’s Proposed Arch Would Change D.C.**\
 `The Times created a 3-D model of the 250-foot monument to show how it would affect a symbolic sightline.`\
 https://www.nytimes.com/interactive/2026/04/29/us/trump-triumphal-arch-dc.html
