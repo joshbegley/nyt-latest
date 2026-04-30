@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/04/30/us/trump-shooting-suspect-cole-tomas-allen-ja
 `Ayatollah Mojtaba Khamenei said in a statement that Iran would establish “new legal frameworks” for the Strait of Hormuz. He also said his country would retain its nuclear capabilities.`\
 https://www.nytimes.com/2026/04/30/world/middleeast/iran-war-supreme-leader-mojtaba-khamenei-strait-hormuz.html
 
-**George Baselitz, German Neo-Expressionist Painter, Dies at 88**\
+**Georg Baselitz, German Neo-Expressionist Painter, Dies at 88**\
 `Along with contemporaries like Anselm Kiefer, he mounted a frontal attack on Minimalism and Conceptualism, the dominant “cool” styles of the 1970s.`\
 https://www.nytimes.com/2026/04/30/arts/design/george-baselitz-dead.html
 
