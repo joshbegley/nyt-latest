@@ -1,3 +1,11 @@
+**Trump y Putin piden un breve alto al fuego en Ucrania**\
+`Moscú y Kiev acordaron una tregua a principios de mes, pero cada parte acusó a la otra de múltiples violaciones.`\
+https://www.nytimes.com/es/2026/04/30/espanol/mundo/rusia-ucrania-alto-fuego-trump.html
+
+**Senator Reed, a Democrat, attacks Hegseth right out of the gate.**\
+``\
+https://www.nytimes.com/live/2026/04/30/us/trump-news/senator-reed-a-democrat-attacks-hegseth-right-out-of-the-gate
+
 **Smog in Phoenix and Salt Lake City? The E.P.A. Is Blaming Asia.**\
 `The Trump administration says the cities shouldn’t be penalized for unhealthy air because pollution can blow in from abroad. Some experts say that’s preposterous.`\
 https://www.nytimes.com/2026/04/30/climate/phoenix-salt-lake-city-pollution-epa.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/interactive/polls/los-angeles-mayor-election-polls-2026.
 **Michelangelo and Rodin: Finding the Living Spirit in Stone**\
 `An exhibition at the Louvre shows how the two artists, working centuries apart, found common ground in the vital force of rough-hewed textures.`\
 https://www.nytimes.com/2026/04/30/arts/louvre-michelangelo-rodin.html
-
-**Romanian Man Is Sentenced in 2023 Wave of ‘Swatting’ Calls**\
-`Thomasz Szabdo, 27, had pleaded guilty in connection with dozens of reports of false crimes involving politicians, election officials and others.`\
-https://www.nytimes.com/2026/04/30/us/szabo-guilty-swatting-us.html
-
-**Behind Powell’s High-Stakes Decision to Stay at the Fed**\
-`Jerome H. Powell will remain a governor at the Federal Reserve after his term as chair ends, in a bid to guard against a further incursion by the Trump administration on the central bank’s independence.`\
-https://www.nytimes.com/2026/04/30/business/powell-fed-trump.html
 

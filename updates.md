@@ -1,3 +1,11 @@
+**Trump y Putin piden un breve alto al fuego en Ucrania**\
+`Moscú y Kiev acordaron una tregua a principios de mes, pero cada parte acusó a la otra de múltiples violaciones.`\
+https://www.nytimes.com/es/2026/04/30/espanol/mundo/rusia-ucrania-alto-fuego-trump.html
+
+**Senator Reed, a Democrat, attacks Hegseth right out of the gate.**\
+``\
+https://www.nytimes.com/live/2026/04/30/us/trump-news/senator-reed-a-democrat-attacks-hegseth-right-out-of-the-gate
+
 **Smog in Phoenix and Salt Lake City? The E.P.A. Is Blaming Asia.**\
 `The Trump administration says the cities shouldn’t be penalized for unhealthy air because pollution can blow in from abroad. Some experts say that’s preposterous.`\
 https://www.nytimes.com/2026/04/30/climate/phoenix-salt-lake-city-pollution-epa.html
