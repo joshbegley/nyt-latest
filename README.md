@@ -1,3 +1,15 @@
+**House Passes Farm Bill After Republican Infighting**\
+`The measure exposed rifts within the G.O.P., pitting lawmakers aligned with the Make American Healthy Again movement against those representing traditional agricultural interests.`\
+https://www.nytimes.com/2026/04/30/us/politics/house-farm-bill-republican-infighting.html
+
+**L.A.-Coded Vegetables**\
+`Silky tofu-miso dressing, crispy rice salad and more meals I can’t stop thinking about — with close approximations from the New York Times Cooking archive.`\
+https://www.nytimes.com/2026/04/30/dining/la-coded-vegetables.html
+
+**Epstein Victims’ Pursuit of Justice Finds a New Venue: Albany, N.Y.**\
+`Two victims of Jeffrey Epstein will testify at the State Capitol next week in support of a bill that would enable them to seek punitive damages from his estate.`\
+https://www.nytimes.com/2026/04/30/nyregion/new-york-sexual-assault-laws-epstein.html
+
 **‘Michael’ Is Pure Propaganda**\
 `Wesley Morris and the film curator, Eric Hynes, review “Michael” and consider better approaches to a Michael Jackson biopic.`\
 https://www.nytimes.com/video/podcasts/100000010866378/michael-is-pure-propaganda.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/live/2026/04/30/us/trump-news/senator-reed-a-democrat-at
 **Smog in Phoenix and Salt Lake City? The E.P.A. Is Blaming Asia.**\
 `The Trump administration says the cities shouldn’t be penalized for unhealthy air because pollution can blow in from abroad. Some experts say that’s preposterous.`\
 https://www.nytimes.com/2026/04/30/climate/phoenix-salt-lake-city-pollution-epa.html
-
-**Crop Undercount Raises Questions About Reliability of U.S.D.A. Data**\
-`Corn estimates were off by 4.5 million acres last year. A lack of survey responses, not job cuts, led to the miss, the Agriculture Department said.`\
-https://www.nytimes.com/2026/04/30/business/usda-farmers-crops-data.html
-
-**Dean Tavoularis, Oscar-Winning Production Designer for Coppola, Dies at 93**\
-`He worked on 13 Francis Ford Coppola films, including “The Godfather” trilogy and “Apocalypse Now,” and recreated the Las Vegas Strip for “One From the Heart.”`\
-https://www.nytimes.com/2026/04/30/movies/dean-tavoularis-dead.html
-
-**Elon Musk suffered a rare loss in his last jury trial.**\
-``\
-https://www.nytimes.com/live/2026/04/30/technology/openai-trial-sam-altman-elon-musk/elon-musk-suffered-a-rare-loss-in-his-last-jury-trial
 
