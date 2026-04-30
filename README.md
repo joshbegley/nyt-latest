@@ -1,3 +1,11 @@
+**Computer Outage Disrupts Student Exams in New York State**\
+`Thousands of children were unable to finish annual standardized tests, the second year in a row when technological issues emerged.`\
+https://www.nytimes.com/2026/04/30/nyregion/ny-student-tests-exams-tech-outage.html
+
+**The Analog Charms of New York’s Intercoms**\
+`New York apartment buzzers are loud, often broken and haven’t been upgraded since the ’70s. But would we have it any other way?`\
+https://www.nytimes.com/interactive/2026/04/30/realestate/nyc-intercoms-analog.html
+
 **Hezbollah’s Latest Challenge to Israeli Forces: A Stealthier Drone**\
 `The Lebanese militant group is attacking Israeli troops with explosive drones controlled by fiber-optic cables, like those commonly used in the war in Ukraine.`\
 https://www.nytimes.com/2026/04/30/world/middleeast/hezbollah-fiber-optic-drones.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/30/dining/where-to-eat-24-hours-a-day-7-days-a-w
 **Mexico’s President Faces Perilous Choice After U.S. Indicts Her Ally**\
 `The Trump administration wants President Claudia Sheinbaum to arrest a Mexican governor. She is faced with few good options in response.`\
 https://www.nytimes.com/2026/04/30/world/americas/mexico-rocha-indictment-sheinbaum.html
-
-**The World Met to Talk Climate Change. The U.S. Wasn’t Invited.**\
-`Dozens of countries met this week to discuss how to end the world’s dependence on fossil fuels, a goal that the Trump administration doesn’t share.`\
-https://www.nytimes.com/2026/04/30/climate/santa-marta-climate-change.html
-
-**Fortnite Issues Refunds for D4vd Gameplay Items**\
-`The singer, who has been charged with the murder of 14-year-old Celeste Rivas Hernandez, began his career making music inspired by the game.`\
-https://www.nytimes.com/2026/04/30/arts/music/d4vd-fortnite-cosmetics-refund.html
 
