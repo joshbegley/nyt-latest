@@ -1,3 +1,7 @@
+**The Vaccine Skeptic in Trump’s New C.D.C. Leadership Team**\
+`Dr. Sara Brenner is a physician, an F.D.A. official and a “MAHA mom” who has said people should not reflexively believe in the benefits of vaccines.`\
+https://www.nytimes.com/2026/04/30/health/sara-brenner-cdc-kennedy.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/30/technology/openai-trial-sam-altman-elon-musk/heres-the-latest
