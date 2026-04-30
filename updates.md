@@ -1,5 +1,9 @@
 **Search for Missing Girl in Australia Ends in ‘Worst Possible Outcome’**\
 `The police are seeking a man who was last seen holding hands with the five-year-old girl on Saturday night near Alice Springs.`\
+https://www.nytimes.com/2026/04/30/world/australia/missing-girl-found-dead.html
+
+**Search for Missing Girl in Australia Ends in ‘Worst Possible Outcome’**\
+`The police are seeking a man who was last seen holding hands with the five-year-old girl on Saturday night near Alice Springs.`\
 https://www.nytimes.com/2026/04/30/world/australia/australia-missing-girl-found-dead.html
 
 **The Case for Returning the Koh-i-Noor Diamond Has a New Backer: Mamdani**\
