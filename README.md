@@ -34,8 +34,8 @@ https://www.nytimes.com/2026/04/30/us/politics/senate-prediction-markets-ban.htm
 `Senator Ron Wyden secured an agreement to seek the declassification of a recent intelligence court ruling about the FISA Section 702 program.`\
 https://www.nytimes.com/2026/04/30/us/politics/congress-surveillance-extension.html
 
-**At Least 5 Are Injured in Stabbing at a High School in Washington State**\
-`Foss High School in Tacoma, Wash., was on lockdown on Thursday after a stabbing, a school spokeswoman said.`\
+**6 Are Injured in Stabbing at a High School in Washington State**\
+`Five students were injured, four of them critically, after an altercation at Foss High School in Tacoma, Wash., the authorities said. A security guard was also injured.`\
 https://www.nytimes.com/2026/04/30/us/stabbing-foss-high-school-tacoma.html
 
 **Trump Signs Order Expanding Access to Retirement Accounts**\
