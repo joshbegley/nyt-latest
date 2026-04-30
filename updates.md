@@ -1,3 +1,7 @@
+**Trump Threatens to Pull Troops From Germany as He Lashes Out at Chancellor**\
+`The comments came after the German chancellor said that Iran has “humiliated” the United States.`\
+https://www.nytimes.com/2026/04/29/us/politics/trump-germany-us-troops.html
+
 **G.O.P. Congress Struggles to Do the Basics Amid Party Infighting**\
 `House Republicans toiled to pass major measures as lawmakers  tried to fund homeland security, extend spy powers and deliver a farm bill.`\
 https://www.nytimes.com/2026/04/29/us/politics/congressional-republicans-dysfunction.html
