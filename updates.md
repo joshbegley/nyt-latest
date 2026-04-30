@@ -1,3 +1,19 @@
+**Josh Johnson Gives King Charles Props for His Comedy Chops**\
+`“You know, I’ve always wondered what white Def Jam would be like,” Johnson said after King Charles cracked a few jokes at the White House.`\
+https://www.nytimes.com/2026/04/30/arts/television/late-night-king-charles-comedy.html
+
+**Palabra del día: ‘intermittent’**\
+`Esta palabra ha aparecido en 219 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/04/30/espanol/que-significa-intermittent.html
+
+**Me encanta hacer entrenamiento de fuerza. ¿En verdad necesito también cardio?**\
+`Expertos en ejercicio y medicina deportiva nos explican qué sucede si te enfocas exclusivamente en fortalecer tus músculos.`\
+https://www.nytimes.com/es/2026/04/30/espanol/estilos-de-vida/cardio-entrenamiento-fuerza.html
+
+**Word of the Day: intermittent**\
+`This word has appeared in 119 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/04/30/learning/word-of-the-day-intermittent.html
+
 **Her Daughter Was Raped and Killed. Now She’s Seeking Office — and Justice.**\
 `Ratna Debnath is a candidate for Prime Minister Narendra Modi’s party, which is campaigning on women’s safety in an Indian state election.`\
 https://www.nytimes.com/2026/04/30/world/asia/india-elections-bjp-ratna-debnath.html
