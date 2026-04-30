@@ -1,3 +1,7 @@
+**The War in Iran Has Cost $25 Billion So Far. Is That a Lot?**\
+`It exceeds the annual budgets of numerous federal agencies, and the Pentagon’s yearly budget for munitions.`\
+https://www.nytimes.com/interactive/2026/04/29/upshot/iran-war-cost-comparison.html
+
 **British Royals Crisscross Manhattan in Brief Visit Packed With Photo Ops**\
 `King Charles III and Queen Camilla laid flowers at the Sept. 11 memorial before stopping by an urban farm, the New York Public Library, a business event and a gala.`\
 https://www.nytimes.com/2026/04/29/world/europe/king-charles-camilla-royals-nyc-visit.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/29/obituaries/100-year-old-runners-lester-wright
 **Lester Wright, the Fastest Known Centenarian, Dies at 103**\
 `In 2022, at 100, he set what was believed to be a world record in the 100-meter dash at the Penn Relays in Philadelphia, beating 86- and 92-year-old competitors.`\
 https://www.nytimes.com/2026/04/29/sports/lester-wright-dead.html
-
-**After Their Bus Driver Blacked Out, the Kids Sprang Into Action**\
-`Footage of the incident shared this week by a school district in Mississippi shows a group of students working together to avert disaster on a highway.`\
-https://www.nytimes.com/2026/04/29/us/mississippi-students-bus-accident.html
 
