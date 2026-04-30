@@ -1,3 +1,7 @@
+**King Charles and Queen Camilla Hit the Red Carpet at N.Y.C. Gala**\
+`Anna Wintour, Martha Stewart and others greeted the royal couple at the King’s Trust Gala, during their official state visit to the United States.`\
+https://www.nytimes.com/2026/04/30/style/king-charles-queen-camilla-us-visit-new-york-gala.html
+
 **The Vaccine Skeptic in Trump’s New C.D.C. Leadership Team**\
 `Dr. Sara Brenner is a physician, an F.D.A. official and a “MAHA mom” who has said people should not reflexively believe in the benefits of vaccines.`\
 https://www.nytimes.com/2026/04/30/health/sara-brenner-cdc-kennedy.html
