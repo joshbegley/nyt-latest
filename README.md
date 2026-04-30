@@ -1,3 +1,11 @@
+**Takeaways From Hegseth’s Second Day of Testimony on the Iran War**\
+`The secretary was also questioned over civilian deaths, an accusation of antisemitic remarks and women in combat.`\
+https://www.nytimes.com/2026/04/30/us/politics/hegseth-senate-hearing-takeaways.html
+
+**N.Y. Archdiocese Offers $800 Million to Settle Sex Abuse Claims**\
+`Lawyers representing the abuse survivors warned their clients that the archdiocese would most likely file for bankruptcy if they did not agree to the settlement.`\
+https://www.nytimes.com/2026/04/30/nyregion/archdiocese-ny-settlement-abuse.html
+
 **Trump’s Plans to Boost Weapons Production Might Not Deliver for Years**\
 `While the defense industry has announced plans to make more munitions, much of that expanded production will not quickly kick in.`\
 https://www.nytimes.com/2026/04/30/us/politics/trumps-hegseth-weapons-production.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/30/world/middleeast/hezbollah-fiber-optic-drones
 **Decoding the King: Brits Hear Subtle Rebuke to Trump that Americans Might Miss**\
 `Royal watchers in Britain called the visit of King Charles III to America a master class in understated criticism.`\
 https://www.nytimes.com/2026/04/30/world/europe/king-charles-visit-trump-messages.html
-
-**The Future of Apple**\
-`Tim Cook made Apple rich. The question for his successor is whether he can make it cool again.`\
-https://www.nytimes.com/2026/04/30/world/tim-cook-apple-oil-prices-epstein-suicide.html
-
-**New Banksy Statue Causes Stir in Central London**\
-`The statue depicts a man marching with a flag that covers his face. It appeared in a section of London near statues of 19th-century British military and colonial figures.`\
-https://www.nytimes.com/2026/04/30/world/europe/banksy-london-statue.html
 
