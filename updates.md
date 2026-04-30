@@ -1,3 +1,11 @@
+**Trump’s Plans to Boost Weapons Production Might Not Deliver for Years**\
+`While the defense industry has announced plans to make more munitions, much of that expanded production will not quickly kick in.`\
+https://www.nytimes.com/2026/04/30/us/politics/trumps-hegseth-weapons-production.html
+
+**Trump Signs Order Expanding Access to Retirement Accounts**\
+`Nearly half of private-sector workers do not have access to workplace plans. The order would make it easier for them to find and open accounts.`\
+https://www.nytimes.com/2026/04/30/your-money/trump-retirement-accounts.html
+
 **El dilema de Sheinbaum: desafiar a EE. UU. o arrestar a un aliado**\
 `El gobierno de Trump quiere que la presidenta Claudia Sheinbaum detenga a un gobernador mexicano. Ella cuenta con pocas buenas opciones como respuesta.`\
 https://www.nytimes.com/es/2026/04/30/espanol/america-latina/sheinbaum-ee-uu-imputacion-rocha-moya.html

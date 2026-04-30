@@ -1,3 +1,7 @@
+**Trump’s Plans to Boost Weapons Production Might Not Deliver for Years**\
+`While the defense industry has announced plans to make more munitions, much of that expanded production will not quickly kick in.`\
+https://www.nytimes.com/2026/04/30/us/politics/trumps-hegseth-weapons-production.html
+
 **El dilema de Sheinbaum: desafiar a EE. UU. o arrestar a un aliado**\
 `El gobierno de Trump quiere que la presidenta Claudia Sheinbaum detenga a un gobernador mexicano. Ella cuenta con pocas buenas opciones como respuesta.`\
 https://www.nytimes.com/es/2026/04/30/espanol/america-latina/sheinbaum-ee-uu-imputacion-rocha-moya.html
@@ -39,7 +43,7 @@ https://www.nytimes.com/2026/04/30/us/politics/congress-surveillance-extension.h
 https://www.nytimes.com/2026/04/30/us/stabbing-foss-high-school-tacoma.html
 
 **Trump Signs Order Expanding Access to Retirement Accounts**\
-`Nearly half of private-sector workers, or roughly 56 million people, do not have access to workplace plans. The order would make it easier for these workers to find and open accounts.`\
+`Nearly half of private-sector workers do not have access to workplace plans. The order would make it easier for them to find and open accounts.`\
 https://www.nytimes.com/2026/04/30/your-money/trump-retirement-accounts.html
 
 **The Homeland Security Shutdown Ends**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/30/world/tim-cook-apple-oil-prices-epstein-suici
 **New Banksy Statue Causes Stir in Central London**\
 `The statue depicts a man marching with a flag that covers his face. It appeared in a section of London near statues of 19th-century British military and colonial figures.`\
 https://www.nytimes.com/2026/04/30/world/europe/banksy-london-statue.html
-
-**Here’s What States Might Do After the Voting Rights Decision**\
-`The effect of the Supreme Court’s ruling could be as little as one House seat in Louisiana in 2026, but pressure is building on Tennessee and South Carolina Republicans to act.`\
-https://www.nytimes.com/2026/04/30/us/elections/states-redistricting-voting-rights.html
 
