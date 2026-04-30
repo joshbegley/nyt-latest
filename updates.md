@@ -1,3 +1,7 @@
+**Georg Baselitz, German Neo-Expressionist Painter, Dies at 88**\
+`Along with contemporaries like Anselm Kiefer, he mounted a frontal attack on Minimalism and Conceptualism, the dominant “cool” styles of the 1970s.`\
+https://www.nytimes.com/2026/04/30/arts/design/george-baselitz-dead.html
+
 **‘Michael’ Is Pure Propaganda**\
 `Wesley Morris and the film curator, Eric Hynes, review “Michael” and consider better approaches to a Michael Jackson biopic.`\
 https://www.nytimes.com/video/podcasts/100000010866378/michael-is-pure-propaganda.html
