@@ -1,8 +1,16 @@
+**The World Met to Talk Climate Change. The U.S. Wasn’t Invited.**\
+`Dozens of countries met this week to discuss how to end the world’s dependence on fossil fuels, a goal that the Trump administration doesn’t share.`\
+https://www.nytimes.com/2026/04/30/climate/santa-marta-climate-change.html
+
+**Fortnite Issues Refunds for D4vd Gameplay Items**\
+`The singer, who has been charged with the murder of 14-year-old Celeste Rivas Hernandez, began his career making music inspired by the game.`\
+https://www.nytimes.com/2026/04/30/arts/music/d4vd-fortnite-cosmetics-refund.html
+
 **Finding New Horizons and Saving a Disappearing Language**\
 `The fascinating stories of dying tongues.`\
 https://www.nytimes.com/2026/04/30/opinion/lewis-clark-shoshone-language-book.html
 
-**Supreme Court’s Voting Rights Ruling Could Fuel New Era of Unending Gerrymanders**\
+**Voting Rights Ruling Could Fuel Era of Endless Redistricting Wars**\
 `The expected flood of new congressional maps is likely to produce fewer competitive districts, fewer ways for voters to hold elected officials accountable and more polarized politics.`\
 https://www.nytimes.com/2026/04/30/us/politics/supreme-courts-voting-rights-gerrymandering.html
 
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/world/middleeast/100000010872184/israel-intercepts
 **Myanmar’s Junta Moves Daw Aung San Suu Kyi From Prison to House Arrest**\
 `The ousted civilian leader has been detained since a military coup forced her from power in 2021.`\
 https://www.nytimes.com/2026/04/30/world/asia/myanmar-aung-san-suu-kyi.html
-
-**Camp Mystic, Where 28 Died, Says It Will Not Reopen This Summer**\
-`In a statement, the camp said it told Texas regulators that it was “withdrawing its application for a summer 2026 camp license” after catastrophic flooding last summer.`\
-https://www.nytimes.com/2026/04/30/us/camp-mystic-texas-floods-closure.html
-
-**Can’t Sleep? Here’s What to Consider Before Trying Supplements.**\
-`New data show that 1 in 8 Americans are using sleep aids such as magnesium, melatonin or C.B.D.`\
-https://www.nytimes.com/2026/04/30/well/sleep-supplements-magnesium-melatonin.html
 
