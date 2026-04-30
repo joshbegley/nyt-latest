@@ -1,3 +1,19 @@
+**Elon Musk suffered a rare loss in his last jury trial.**\
+``\
+https://www.nytimes.com/live/2026/04/30/technology/openai-trial-sam-altman-elon-musk/elon-musk-suffered-a-rare-loss-in-his-last-jury-trial
+
+**Trump Administration Imposes Caps on Graduate School Loans**\
+`The changes stem from student loan provisions in a sprawling tax and domestic policy bill signed into law last year.`\
+https://www.nytimes.com/2026/04/30/us/politics/education-department-graduate-loans.html
+
+**Today, In Short**\
+`Fake invitations. Investment bank influencers. And the World Cup.`\
+https://www.nytimes.com/2026/04/30/briefing/today-in-short.html
+
+**Watch Live: Hegseth Testifies Before Senate Armed Services Committee**\
+`Defense Secretary Pete Hegseth and Gen. Dan Caine testify on Capitol Hill.`\
+https://www.nytimes.com/video/us/politics/100000010872394/hegseth-dc-hearing-pentagon.html
+
 **Journalist Detained in Kuwait Says He Was Stripped of Citizenship**\
 `Ahmed Shihab-Eldin, a Kuwaiti-American, was held for several weeks after posting about the Iran war. Kuwait does not appear to have commented publicly on his case.`\
 https://www.nytimes.com/2026/04/30/world/middleeast/ahmed-shihab-eldin-citizenship.html
