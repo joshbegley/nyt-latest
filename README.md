@@ -1,3 +1,11 @@
+**Where to Eat 24 Hours a Day, 7 Days a Week**\
+`As Veselka goes back to 24-hour service, these three New York City restaurants never stopped carrying the torch.`\
+https://www.nytimes.com/2026/04/30/dining/where-to-eat-24-hours-a-day-7-days-a-week.html
+
+**Mexico’s President Faces Perilous Choice After U.S. Indicts Her Ally**\
+`The Trump administration wants President Claudia Sheinbaum to arrest a Mexican governor. She is faced with few good options in response.`\
+https://www.nytimes.com/2026/04/30/world/americas/mexico-rocha-indictment-sheinbaum.html
+
 **The World Met to Talk Climate Change. The U.S. Wasn’t Invited.**\
 `Dozens of countries met this week to discuss how to end the world’s dependence on fossil fuels, a goal that the Trump administration doesn’t share.`\
 https://www.nytimes.com/2026/04/30/climate/santa-marta-climate-change.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/30/arts/television/bachelorette-taylor-frankie-p
 **Jeffrey Epstein’s Possible Suicide Note Hidden from Public View**\
 `An inmate said he discovered the note after Mr. Epstein was found injured in his jail cell, weeks before his death. It’s now locked in a courthouse.`\
 https://www.nytimes.com/2026/04/30/us/jeffrey-epstein-suicide-note-sealed.html
-
-**Israel Intercepts Gaza-Bound Aid Flotilla in International Waters**\
-`The Israeli military boarded multiple boats in a flotilla that was sailing from Barcelona to Gaza, the protest group behind the mission said. The group has repeatedly challenged Israel’s naval blockade of Gaza.`\
-https://www.nytimes.com/video/world/middleeast/100000010872184/israel-intercepts-gaza-aid-flotilla-detains-activists.html
-
-**Myanmar’s Junta Moves Daw Aung San Suu Kyi From Prison to House Arrest**\
-`The ousted civilian leader has been detained since a military coup forced her from power in 2021.`\
-https://www.nytimes.com/2026/04/30/world/asia/myanmar-aung-san-suu-kyi.html
 
