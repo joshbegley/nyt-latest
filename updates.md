@@ -1,3 +1,15 @@
+****\
+``\
+https://www.nytimes.com/video/embedded/arts/100000010873096/01vid-broadway-debut-79433.html
+
+**Chonkers the ‘Food-Motivated’ Sea Lion Plops Into San Francisco**\
+`Wildlife experts have been tracking the Steller sea lion since he appeared last month at a popular tourist spot near the end of Fisherman’s Wharf.`\
+https://www.nytimes.com/2026/04/30/us/chonkers-sea-lion-san-francisco.html
+
+**Chonkers the Sea Lion Draws Crowds in San Francisco**\
+`A sea lion whose size has earned him the nickname Chonkers has become a sensation at a popular tourist spot in San Francisco.`\
+https://www.nytimes.com/video/world/americas/100000010872260/chonkers-sea-lion-san-francisco.html
+
 **Britney Spears Is Charged With D.U.I. Involving Drugs and Alcohol**\
 `Officers in California observed the pop star driving fast and erratically in March. After she was arrested, she checked herself into a treatment facility.`\
 https://www.nytimes.com/2026/04/30/arts/music/britney-spears-charges-dui-drugs.html
