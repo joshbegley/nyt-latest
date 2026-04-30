@@ -1,3 +1,19 @@
+**Here’s What States Might Do After the Voting Rights Decision**\
+`The effect of the Supreme Court’s ruling could be as little as one House seat in Louisiana in 2026, but pressure is building on Tennessee and South Carolina Republicans to act.`\
+https://www.nytimes.com/2026/04/30/us/elections/states-redistricting-voting-rights.html
+
+**After Seven Years, First U.S. Direct Flight Lands in Caracas**\
+`President Trump banned commercial flights to Venezuela during his first term, but the flights are the latest step in re-establishing ties between the two countries.`\
+https://www.nytimes.com/2026/04/30/world/americas/us-flights-venezuela-caracas.html
+
+**Direct Flights Between U.S. and Venezuela Resume After 7 Years**\
+`American Airlines 3599, the first nonstop flight between the United States and Venezuela since 2019, departed Miami for Caracas on Thursday. President Trump had banned direct commercial and cargo flights between the two countries during his first term.`\
+https://www.nytimes.com/video/world/americas/100000010872407/venezuela-us-flight-miami-caracas.html
+
+**Still Powered by iPhones, Apple Reports 17% Sales Jump**\
+`The Silicon Valley company, which is undergoing a chief executive transition, also reported a 19 percent increase in profit.`\
+https://www.nytimes.com/2026/04/30/technology/iphones-apple-sales.html
+
 **Two High Schoolers in Mississippi Are Released After Being Detained by ICE**\
 `The brothers from the Republic of Congo were released on Thursday after the school community appealed to local Republican politicians, their lawyer said.`\
 https://www.nytimes.com/2026/04/30/us/mississippi-high-school-students-ice-release.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/30/arts/television/widows-bay.html
 **How Conservatives on the Supreme Court Weakened the Voting Rights Act**\
 `The Supreme Court just overturned Louisiana’s congressional voting map, landing the latest blow to the landmark Voting Rights Act. Abbie VanSickle, a reporter covering the court for The New York Times, explains.`\
 https://www.nytimes.com/video/us/100000010870969/how-conservatives-on-the-supreme-court-weakened-the-voting-rights-act.html
-
-**Maryland Sixth Congressional District 2026: Latest Polls**\
-`Track the latest polls in Maryland's 6th Congressional District.`\
-https://www.nytimes.com/interactive/polls/maryland-us-house-6-polls-2026.html
-
-**Maryland Fifth Congressional District 2026: Latest Polls**\
-`Track the latest polls in Maryland's 5th Congressional District.`\
-https://www.nytimes.com/interactive/polls/maryland-us-house-5-polls-2026.html
-
-**Hegseth Says Iran Cease-Fire Stops Clock for Congressional Approval**\
-`The defense secretary testified on the eve of the 60-day mark of the war, a major statutory deadline for the president to withdraw forces or seek approval from Congress to continue the fight.`\
-https://www.nytimes.com/2026/04/30/us/politics/hegseth-iran-cease-fire-congress.html
-
-**What’s Going On in This Picture? | May 4, 2026**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://www.nytimes.com/2026/04/30/learning/whats-going-on-in-this-picture-may-4-2026.html
 
