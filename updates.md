@@ -1,3 +1,7 @@
+**G.O.P. Congress Struggles to Do the Basics Amid Party Infighting**\
+`House Republicans toiled to pass major measures as lawmakers scrambled to fund homeland security, extend spy powers and deliver a farm bill.`\
+https://www.nytimes.com/2026/04/29/us/politics/congressional-republicans-dysfunction.html
+
 **Sheriff of New Orleans Jail Where 10 Inmates Escaped Is Indicted**\
 `Susan Hutson, the sheriff of Orleans Parish, faces 30 counts, and the jail’s chief financial officer was also indicted.`\
 https://www.nytimes.com/2026/04/29/us/susan-hutson-orleans-indictment.html

@@ -42,8 +42,8 @@ https://www.nytimes.com/video/business/100000010867871/why-the-uae-is-quitting-o
 `Forty years since the Chernobyl nuclear disaster, officials are grappling with the impact of a 2025 Russian drone strike that set back decades of efforts to contain it. Ukrainian officials said the Russians deliberately targeted the structure, but the Kremlin has denied responsibility.`\
 https://www.nytimes.com/video/world/europe/100000010863426/chernobyl-nuclear-disaster-anniversary.html
 
-**Congressional Republicans Struggle to Do the Basics as Chambers Clash**\
-`House Republicans toiled to pass major measures as lawmakers scramble to fund homeland security, extend spy powers and deliver a farm bill.`\
+**G.O.P. Congress Struggles to Do the Basics Amid Party Infighting**\
+`House Republicans toiled to pass major measures as lawmakers scrambled to fund homeland security, extend spy powers and deliver a farm bill.`\
 https://www.nytimes.com/2026/04/29/us/politics/congressional-republicans-dysfunction.html
 
 **Mississippi Middle School Students Stop Bus After Driver Blacks Out**\
