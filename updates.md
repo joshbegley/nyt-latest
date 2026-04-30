@@ -1,3 +1,11 @@
+**U.S. Economy Grew 2 Percent in Early 2026 Even as War in Iran Began to Hit Energy Prices**\
+`Gross domestic product expanded at a 2 percent annual rate in the first three months of the year, a period that included the first weeks of conflict in the Middle East.`\
+https://www.nytimes.com/2026/04/30/business/us-economy-gdp-oil-war.html
+
+**Israel Intercepts Aid Flotilla Heading to Breach Naval Blockade of Gaza**\
+`Activists said the Israeli military boarded and disabled boats carrying humanitarian assistance to the territory in international waters near Greece.`\
+https://www.nytimes.com/2026/04/30/world/middleeast/israel-gaza-aid-flotilla.html
+
 **How Powell Just Complicated Trump’s Fed Plans**\
 `Traders now think the Federal Reserve will keep steady interest rates, or perhaps even increase them, amid succession intrigue at the central bank.`\
 https://www.nytimes.com/2026/04/30/business/dealbook/powell-fed-trump-warsh.html
