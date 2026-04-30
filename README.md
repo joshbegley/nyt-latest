@@ -15,7 +15,7 @@ https://www.nytimes.com/es/2026/04/30/espanol/negocios/europa-precios-combustibl
 https://www.nytimes.com/live/2026/04/30/technology/openai-trial-sam-altman-elon-musk/musk-says-he-was-a-fool-to-provide-openais-early-funding
 
 **Watch Live: Hegseth Testifies Before Senate Armed Services Committee**\
-`Defense Secretary Pete Hegseth and Gen. Dan Caine, the chairman of the Joint Chiefs of Staff, will return to Capitol Hill to testify Thursday before the Senate Armed Services Committee on the Defense Department’s nearly $1.45 trillion budget request.`\
+`Defense Secretary Pete Hegseth and Gen. Dan Caine testify on Capitol Hill.`\
 https://www.nytimes.com/video/us/politics/100000010872394/hegseth-dc-hearing-pentagon.html
 
 **Share the Times Pages You Couldn’t Throw Away**\

@@ -1,3 +1,23 @@
+**Journalist Detained in Kuwait Says He Was Stripped of Citizenship**\
+`Ahmed Shihab-Eldin, a Kuwaiti-American, was held for several weeks after posting about the Iran war. Kuwait does not appear to have commented publicly on his case.`\
+https://www.nytimes.com/2026/04/30/world/middleeast/ahmed-shihab-eldin-citizenship.html
+
+**Lovely Laksa Noodle Salad**\
+`A crunchy, craveable dish from — who else? — the salad queen Hetty Lui McKinnon.`\
+https://www.nytimes.com/2026/04/30/dining/lovely-laksa-noodle-salad.html
+
+**Europa evalúa sus políticas económicas ante el alza de los precios de combustible**\
+`El Banco Central Europeo y el Banco de Inglaterra mantuvieron estables las tasas de interés el jueves, mientras buscan señales de posibles daños a más largo plazo.`\
+https://www.nytimes.com/es/2026/04/30/espanol/negocios/europa-precios-combustible.html
+
+**Musk says he ‘was a fool’ to provide OpenAI’s early funding.**\
+``\
+https://www.nytimes.com/live/2026/04/30/technology/openai-trial-sam-altman-elon-musk/musk-says-he-was-a-fool-to-provide-openais-early-funding
+
+**Watch Live: Hegseth Testifies Before Senate Armed Services Committee**\
+`Defense Secretary Pete Hegseth and Gen. Dan Caine, the chairman of the Joint Chiefs of Staff, will return to Capitol Hill to testify Thursday before the Senate Armed Services Committee on the Defense Department’s nearly $1.45 trillion budget request.`\
+https://www.nytimes.com/video/us/politics/100000010872394/hegseth-dc-hearing-pentagon.html
+
 **Share the Times Pages You Couldn’t Throw Away**\
 `The New York Times has been publishing for 175 years. Some of that history may be sitting in a shoe box under your bed.`\
 https://www.nytimes.com/2026/04/30/special-series/archives-anniversary-newspaper.html
