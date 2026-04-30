@@ -1,3 +1,7 @@
+**Mills Exit Is a Blow to Schumer as Democrats Question His Strategy**\
+`Senator Chuck Schumer, the New York Democrat and minority leader, considered the Maine governor his top recruit for winning the majority. Critics said her collapse showed he is out of touch with the party’s voters.`\
+https://www.nytimes.com/2026/04/30/us/politics/janet-mills-schumer-strategy.html
+
 **Is A.I. a Threat to Humanity? Not in This Trial.**\
 `One of Elon Musk’s abiding fears is that A.I. could one day threaten humans. But the jurors deciding his suit against OpenAI probably won’t hear about it.`\
 https://www.nytimes.com/2026/04/30/technology/openai-trial-elon-musk-existential.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/30/us/trump-shooting-suspect-cole-tomas-allen-ja
 **Supreme Leader Says Iran Is Planning for Ongoing Control of Strait**\
 `Ayatollah Mojtaba Khamenei said in a statement that Iran would establish “new legal frameworks” for the Strait of Hormuz. He also said his country would retain its nuclear capabilities.`\
 https://www.nytimes.com/2026/04/30/world/middleeast/iran-war-supreme-leader-mojtaba-khamenei-strait-hormuz.html
-
-**Georg Baselitz, German Neo-Expressionist Painter, Dies at 88**\
-`Along with contemporaries like Anselm Kiefer, he mounted a frontal attack on Minimalism and Conceptualism, the dominant “cool” styles of the 1970s.`\
-https://www.nytimes.com/2026/04/30/arts/design/george-baselitz-dead.html
 
