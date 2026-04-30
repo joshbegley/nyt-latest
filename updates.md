@@ -1,3 +1,7 @@
+**D4vd Bought Chain Saws to Dispose of Teenager’s Body, Prosecutors Say**\
+`In a legal filing, prosecutors outlined for the first time how they say the singer murdered and dismembered Celeste Rivas Hernandez.`\
+https://www.nytimes.com/2026/04/29/arts/music/d4vd-celeste-rivas-hernandez-murder.html
+
 **Carry Out Orders**\
 `Lance Enfinger and John Kugelman land themselves a prizewinning puzzle.`\
 https://www.nytimes.com/2026/04/29/crosswords/daily-puzzle-2026-04-30.html

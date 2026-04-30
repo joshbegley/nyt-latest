@@ -1,3 +1,7 @@
+**D4vd Bought Chain Saws to Dispose of Teenager’s Body, Prosecutors Say**\
+`In a legal filing, prosecutors outlined for the first time how they say the singer murdered and dismembered Celeste Rivas Hernandez.`\
+https://www.nytimes.com/2026/04/29/arts/music/d4vd-celeste-rivas-hernandez-murder.html
+
 **Carry Out Orders**\
 `Lance Enfinger and John Kugelman land themselves a prizewinning puzzle.`\
 https://www.nytimes.com/2026/04/29/crosswords/daily-puzzle-2026-04-30.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/29/us/politics/congressional-republicans-dysfunc
 **Mississippi Middle School Students Stop Bus After Driver Blacks Out**\
 `Surveillance video shows a group of middle school students in southern Mississippi taking control of a school bus on a highway after their driver blacked out from an asthma attack.`\
 https://www.nytimes.com/video/us/100000010871074/mississippi-school-bus-students.html
-
-**Hegseth Cites Falsehood to Defend His Firing of Senior Officers**\
-`The defense secretary said at a House hearing that President Barack Obama had fired 197 generals, a figure that the Pentagon previously acknowledged was false.`\
-https://www.nytimes.com/2026/04/29/us/politics/pete-hegseth-falsehood-firings.html
 
