@@ -1,3 +1,7 @@
+**House Adopts Budget to Unlock $70 Billion for Immigration Enforcement**\
+`The measure will allow the G.O.P. to begin working on a filibuster-proof bill to fund ICE and C.B.P., part of their plan to reopen the long-shuttered Department of Homeland Security.`\
+https://www.nytimes.com/2026/04/29/us/politics/house-ice-budget-immigration.html
+
 **D4vd Bought Chain Saws to Dispose of Teenager’s Body, Prosecutors Say**\
 `In a legal filing, prosecutors outlined for the first time how they say the singer murdered and dismembered Celeste Rivas Hernandez.`\
 https://www.nytimes.com/2026/04/29/arts/music/d4vd-celeste-rivas-hernandez-murder.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/world/europe/100000010863426/chernobyl-nuclear-dis
 **G.O.P. Congress Struggles to Do the Basics Amid Party Infighting**\
 `House Republicans toiled to pass major measures as lawmakers scrambled to fund homeland security, extend spy powers and deliver a farm bill.`\
 https://www.nytimes.com/2026/04/29/us/politics/congressional-republicans-dysfunction.html
-
-**Mississippi Middle School Students Stop Bus After Driver Blacks Out**\
-`Surveillance video shows a group of middle school students in southern Mississippi taking control of a school bus on a highway after their driver blacked out from an asthma attack.`\
-https://www.nytimes.com/video/us/100000010871074/mississippi-school-bus-students.html
 
