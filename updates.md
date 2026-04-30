@@ -1,7 +1,3 @@
-**Sheriff of New Orleans Jail Where 10 Inmates Escaped Is Indicted**\
-`Susan Hutson, the sheriff of Orleans Parish, faces 30 counts, and the jail’s chief financial officer was also indicted.`\
-https://www.nytimes.com/2026/04/29/us/susan-hutson-orleans-indictment.html
-
 **Trump Administration Announces Moves to Sharply Curtail Gun Regulations**\
 `The changes are in keeping with the administration’s pledge to cut back on gun restrictions.`\
 https://www.nytimes.com/2026/04/29/us/politics/trump-gun-control.html
@@ -77,4 +73,8 @@ https://www.nytimes.com/2026/04/29/us/brown-university-shooting-fbi.html
 **Pentagon Estimates Iran War Cost at $25 Billion**\
 `Defense Secretary Pete Hegseth rebuffed criticism from lawmakers over the Iran war during a budget hearing on Wednesday. The defense department requested nearly $1.45 trillion for the coming year.`\
 https://www.nytimes.com/video/us/politics/100000010870722/hegseth-iran-war-costs.html
+
+**Jury Delivers Mixed Verdict in Case of Afghan Charged in 2021 Kabul Attack**\
+`Jurors found the man guilty of conspiracy to support the terrorist group that took credit for a horrific bombing, but deadlocked on whether he was responsible for the attack itself.`\
+https://www.nytimes.com/2026/04/29/us/politics/mixed-verdict-abbey-gate.html
 
