@@ -1,3 +1,31 @@
+**The Case for Returning the Koh-i-Noor Diamond Has a New Backer: Mamdani**\
+`Mayor Zohran Mamdani of New York suggested that Britain should return the gem, a symbol of colonial plunder. Here’s the back story.`\
+https://www.nytimes.com/2026/04/30/nyregion/kohinoor-diamond-india-history-mamdani-king-charles.html
+
+**Trump and Putin Talk, and Ukraine Shrugs**\
+`More than a year of similar conversations have failed to bring the country any closer to peace, so Ukrainians have stopped hoping they will.`\
+https://www.nytimes.com/2026/04/30/world/europe/trump-putin-ukraine-zelensky-peace-talks.html
+
+**A Landmark Supreme Court Ruling on Voting Rights**\
+`The court struck down Louisiana’s voting map, a decision that could make it harder for lawmakers to create majority-minority districts.`\
+https://www.nytimes.com/2026/04/30/podcasts/the-daily/supreme-court-ruling-voting-rights.html
+
+**What the Voting Rights Act Decision Means, and Hegseth’s Heated Testimony**\
+`Plus, chatbots told scientists how to make bioweapons.`\
+https://www.nytimes.com/2026/04/30/podcasts/the-headlines/voting-rights-supreme-court-hegseth-testimony.html
+
+**Connections Companion No. 1,055**\
+`Scroll down for hints and conversation about the puzzle for Friday, May 1, 2026.`\
+https://www.nytimes.com/2026/04/30/crosswords/connections-companion-1055.html
+
+**Strands Sidekick No. 789**\
+`Scroll down for hints and conversation about the puzzle for Friday, May 1, 2026.`\
+https://www.nytimes.com/2026/04/30/crosswords/strands-sidekick-789.html
+
+**Wordle Review No. 1,777**\
+`Scroll down for hints and conversation about the puzzle for Friday, May 1, 2026.`\
+https://www.nytimes.com/2026/04/30/crosswords/wordle-review-1777.html
+
 **Attacks on Jewish Targets in Europe Suggest Hybrid Warfare**\
 `Officials are investigating similar attacks across Europe, all claimed by a shadowy Islamist group that may be using low-cost, unsophisticated methods to sow fear in Jewish communities.`\
 https://www.nytimes.com/2026/04/30/world/europe/european-antisemitism-hybrid-warfare.html
@@ -49,32 +77,4 @@ https://www.nytimes.com/2026/04/30/world/africa/iran-war-africa-economic-consequ
 **I’m Not a King, but I Play One on TV**\
 `Is there something to this whole monarchy thing?`\
 https://www.nytimes.com/2026/04/30/opinion/king-charles-trump-comey-hegseth.html
-
-**Homes for Sale in New York and New Jersey**\
-`This week’s properties are a waterfront house in Long Beach, N.Y., and a lodge-like home in Jackson, N.J.`\
-https://www.nytimes.com/2026/04/30/realestate/housing-market-near-nyc.html
-
-**‘Tiernos y cariñosos’: los nuevos cuidadores de Japón son fisicoculturistas y luchadores**\
-`Los centros de asistencia de Japón están reclutando a jóvenes atletas, peleadores de artes marciales mixtas y luchadores de sumo para cubrir la escasez de personal.`\
-https://www.nytimes.com/es/2026/04/30/espanol/mundo/japon-cuidado-ancianos.html
-
-**The U.S. Military Was Losing Its Edge. After Iran, Everyone Knows It.**\
-`Somehow, the weaker nation is in the stronger negotiating position.`\
-https://www.nytimes.com/2026/04/30/opinion/iran-us-military-challenges.html
-
-**‘Michael’ Is Pure Propaganda**\
-`The movie shows Michael Jackson as we wish he could have been. But not as he was.`\
-https://www.nytimes.com/2026/04/30/podcasts/michael-is-pure-propaganda.html
-
-**‘One Spoon of Chocolate’ Review: Taking a Hammer to White Supremacy**\
-`In RZA’s new movie, Unique (Shameik Moore) realizes Black residents in town are being hunted by white men. Despite the premise, the film lacks intensity.`\
-https://www.nytimes.com/2026/04/30/movies/one-spoon-of-chocolate-review.html
-
-**A Way to Slow Down ‘Super-Speeders’ Who Keep Breaking the Law**\
-`City and state officials want speed-limiting devices installed in the cars of drivers who get more than 16 speeding tickets in a year, in hopes of preventing injuries and deaths.`\
-https://www.nytimes.com/2026/04/30/nyregion/nyc-speed-limiters-cars-frequent-speeders.html
-
-**‘Wowsabout’ Looks to Nature, and Jim Henson, in Hopes of Inspiring Awe**\
-`Produced by the Jim Henson Company in Sequoia National Park, the PBS Kids special leads a series of programs tied to America’s 250th anniversary.`\
-https://www.nytimes.com/2026/04/30/arts/television/wowsabout-jim-henson-pbs-kids.html
 

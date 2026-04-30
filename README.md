@@ -1,3 +1,15 @@
+**Korean Air Bans Roosters on U.S. Flights to the Philippines**\
+`The airline was used by chicken breeders to illegally transport roosters for cockfights, an animal welfare group said.`\
+https://www.nytimes.com/2026/04/30/world/asia/korean-air-cockfighting-roosters-philippines.html
+
+**De estrechos y peajes**\
+`Irán ha amenazado con cobrar un peaje por el paso a través del estrecho de Ormuz. Aunque eso nunca llegue a ocurrir, la idea podría desestabilizar el transporte marítimo global.`\
+https://www.nytimes.com/es/2026/04/30/espanol/mundo/estrecho-ormuz-iran-peaje.html
+
+**The Jeffrey E. Epstein Fund for Women’s Athletics**\
+`An investigation by Pablo and Dhruv Patel of The Harvard Crimson.`\
+https://www.nytimes.com/2026/04/30/podcasts/the-jeffrey-e-epstein-fund-for-womens-athletics.html
+
 **The Case for Returning the Koh-i-Noor Diamond Has a New Backer: Mamdani**\
 `Mayor Zohran Mamdani of New York suggested that Britain should return the gem, a symbol of colonial plunder. Here’s the back story.`\
 https://www.nytimes.com/2026/04/30/nyregion/kohinoor-diamond-india-history-mamdani-king-charles.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/30/learning/whats-the-ultimate-symbol-of-your-ho
 **Senators Say Lawyers Helped Wealthy Clients Dodge Taxes in Puerto Rico**\
 `Rich Americans are writing off taxes they owed before they moved to Puerto Rico, the Senate Finance Committee says.`\
 https://www.nytimes.com/2026/04/30/business/economy/senate-investigation-puerto-rico-tax-break.html
-
-**Iranians Live With Pain and Powerlessness, Beneath a Smooth Veneer**\
-`After months of upheaval, many are attempting to get on with their lives while quietly grappling with grief, economic stress and a loss of hope.`\
-https://www.nytimes.com/2026/04/30/world/middleeast/iranian-mood-after-war.html
-
-**Stalled Taxis, Postponed Weddings: War in Iran Hits African Families**\
-`Despite the fragile cease-fire in the Middle East, many Africans say they are bracing for tougher times ahead and making difficult decisions about the future.`\
-https://www.nytimes.com/2026/04/30/world/africa/iran-war-africa-economic-consequences.html
-
-**I’m Not a King, but I Play One on TV**\
-`Is there something to this whole monarchy thing?`\
-https://www.nytimes.com/2026/04/30/opinion/king-charles-trump-comey-hegseth.html
 
