@@ -1,3 +1,11 @@
+**Share the Times Pages You Couldn’t Throw Away**\
+`The New York Times has been publishing for 175 years. Some of that history may be sitting in a shoe box under your bed.`\
+https://www.nytimes.com/2026/04/30/special-series/archives-anniversary-newspaper.html
+
+**After Supreme Court Decision, Louisiana Weighs Redrawing House Maps**\
+`It was not immediately clear whether Gov. Jeff Landry, a Republican, would postpone the May 16 primary election for House races after the court ruled the state’s congressional districts unconstitutional.`\
+https://www.nytimes.com/2026/04/30/us/politics/louisiana-suspend-primaries-supreme-court.html
+
 **King Charles and Queen Camilla Hit the Red Carpet at N.Y.C. Gala**\
 `Anna Wintour, Martha Stewart and others greeted the royal couple at the King’s Trust Gala, during their official state visit to the United States.`\
 https://www.nytimes.com/2026/04/30/style/king-charles-queen-camilla-us-visit-new-york-gala.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/30/us/transgender-idaho-bathrooms-lawsuit.html
 **Who’s a Threat?**\
 `We look at when political criticism can be considered a threat of violence.`\
 https://www.nytimes.com/2026/04/30/briefing/whos-a-threat.html
-
-**Korean Air Bans Roosters on U.S. Flights to the Philippines**\
-`The airline was used by chicken breeders in Texas to illegally transport roosters for cockfights, an animal welfare group said.`\
-https://www.nytimes.com/2026/04/30/world/asia/korean-air-cockfighting-roosters-philippines.html
-
-**De estrechos y peajes**\
-`Irán ha amenazado con cobrar un peaje por el paso a través del estrecho de Ormuz. Aunque eso nunca llegue a ocurrir, la idea podría desestabilizar el transporte marítimo global.`\
-https://www.nytimes.com/es/2026/04/30/espanol/mundo/estrecho-ormuz-iran-peaje.html
 

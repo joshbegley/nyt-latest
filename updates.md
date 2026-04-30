@@ -1,3 +1,11 @@
+**Share the Times Pages You Couldn’t Throw Away**\
+`The New York Times has been publishing for 175 years. Some of that history may be sitting in a shoe box under your bed.`\
+https://www.nytimes.com/2026/04/30/special-series/archives-anniversary-newspaper.html
+
+**After Supreme Court Decision, Louisiana Weighs Redrawing House Maps**\
+`It was not immediately clear whether Gov. Jeff Landry, a Republican, would postpone the May 16 primary election for House races after the court ruled the state’s congressional districts unconstitutional.`\
+https://www.nytimes.com/2026/04/30/us/politics/louisiana-suspend-primaries-supreme-court.html
+
 **King Charles and Queen Camilla Hit the Red Carpet at N.Y.C. Gala**\
 `Anna Wintour, Martha Stewart and others greeted the royal couple at the King’s Trust Gala, during their official state visit to the United States.`\
 https://www.nytimes.com/2026/04/30/style/king-charles-queen-camilla-us-visit-new-york-gala.html
