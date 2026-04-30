@@ -1,3 +1,11 @@
+**Chief Justice Roberts Played the Long Game on Voting Rights**\
+`Since his early days as a lawyer and in his first years on the bench, the chief justice has worked to limit the force of the Voting Rights Act.`\
+https://www.nytimes.com/2026/04/30/us/politics/the-docket-roberts-voting-rights.html
+
+**August Wilson Like You’ve Never Heard Him Before: In Italian**\
+`In three U.S. cities, a new production of the playwright’s cabdriver drama “Jitney” will be imported from Italy.`\
+https://www.nytimes.com/2026/04/30/theater/august-wilson-italian-jitney.html
+
 **Trump y Putin piden un breve alto al fuego en Ucrania**\
 `Moscú y Kiev acordaron una tregua a principios de mes, pero cada parte acusó a la otra de múltiples violaciones.`\
 https://www.nytimes.com/es/2026/04/30/espanol/mundo/rusia-ucrania-alto-fuego-trump.html

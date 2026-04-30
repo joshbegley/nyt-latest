@@ -1,3 +1,15 @@
+**Trump Administration Casts Host of Policies Under Biden as Anti-Christian**\
+`A new report is the latest effort by the Justice Department to argue that it is removing political bias from prosecutorial decision-making.`\
+https://www.nytimes.com/2026/04/30/us/politics/trump-report-christians-biden.html
+
+**Venice Biennale Jury Resigns Amid Tension Over Awards Ban**\
+`The artist representing Israel had threatened to sue the world’s most important art exhibition after its jury said it wouldn’t consider artists from countries whose leaders are accused of crimes against humanity.`\
+https://www.nytimes.com/2026/04/30/arts/design/israel-artist-venice-biennale.html
+
+**Older Americans Are a Reality, Not a Problem**\
+`Sampling the outpouring of responses to a guest essay, “Older Americans Are Hoarding the Nation’s Potential,” by Samuel Moyn. Also: A clash over a wind project.`\
+https://www.nytimes.com/2026/04/30/opinion/older-americans-ageism.html
+
 **Chief Justice Roberts Played the Long Game on Voting Rights**\
 `Since his early days as a lawyer and in his first years on the bench, the chief justice has worked to limit the force of the Voting Rights Act.`\
 https://www.nytimes.com/2026/04/30/us/politics/the-docket-roberts-voting-rights.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/30/special-series/archives-anniversary-newspaper
 **After Supreme Court Decision, Louisiana Weighs Redrawing House Maps**\
 `It was not immediately clear whether Gov. Jeff Landry, a Republican, would postpone the May 16 primary election for House races after the court ruled the state’s congressional districts unconstitutional.`\
 https://www.nytimes.com/2026/04/30/us/politics/louisiana-suspend-primaries-supreme-court.html
-
-**King Charles and Queen Camilla Hit the Red Carpet at N.Y.C. Gala**\
-`Anna Wintour, Martha Stewart and others greeted the royal couple at the King’s Trust Gala, during their official state visit to the United States.`\
-https://www.nytimes.com/2026/04/30/style/king-charles-queen-camilla-us-visit-new-york-gala.html
-
-**The Vaccine Skeptic in Trump’s New C.D.C. Leadership Team**\
-`Dr. Sara Brenner is a physician, an F.D.A. official and a “MAHA mom” who has said people should not reflexively believe in the benefits of vaccines.`\
-https://www.nytimes.com/2026/04/30/health/sara-brenner-cdc-kennedy.html
-
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/04/30/technology/openai-trial-sam-altman-elon-musk/heres-the-latest
 
