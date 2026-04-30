@@ -1,3 +1,7 @@
+**Police Were Warned of Terror Risk Before Bondi Attack, Report Says**\
+`A Jewish security group told police an attack on the community was “likely” because of heightened antisemitism, days before December’s mass shooting in Sydney.`\
+https://www.nytimes.com/2026/04/30/world/asia/australia-bondi-beach-attack-antisemitism.html
+
 **King and Queen Spend a Day in New York**\
 `During their state visit, King Charles III and Queen Camilla stopped by New York City, where they laid flowers at the 9/11 memorial, fed chickens, read to children and attended a charity event.`\
 https://www.nytimes.com/video/us/100000010872038/king-charles-queen-camilla-new-york-city.html

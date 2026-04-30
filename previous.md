@@ -1,3 +1,7 @@
+**Police Were Warned of Terror Risk Before Bondi Attack, Report Says**\
+`A Jewish security group told police an attack on the community was “likely” because of heightened antisemitism, days before December’s mass shooting in Sydney.`\
+https://www.nytimes.com/2026/04/30/world/asia/australia-bondi-beach-attack-antisemitism.html
+
 **King and Queen Spend a Day in New York**\
 `During their state visit, King Charles III and Queen Camilla stopped by New York City, where they laid flowers at the 9/11 memorial, fed chickens, read to children and attended a charity event.`\
 https://www.nytimes.com/video/us/100000010872038/king-charles-queen-camilla-new-york-city.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/29/us/politics/house-ice-budget-immigration.html
 **D4vd Bought Chain Saws to Dispose of Teenager’s Body, Prosecutors Say**\
 `In a legal filing, prosecutors outlined for the first time how they say the singer murdered and dismembered Celeste Rivas Hernandez.`\
 https://www.nytimes.com/2026/04/29/arts/music/d4vd-celeste-rivas-hernandez-murder.html
-
-**Carry Out Orders**\
-`Lance Enfinger and John Kugelman land themselves a prizewinning puzzle.`\
-https://www.nytimes.com/2026/04/29/crosswords/daily-puzzle-2026-04-30.html
 
