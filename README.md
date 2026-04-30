@@ -1,6 +1,6 @@
 **Is A.I. a Threat to Humanity? Not in This Trial.**\
 `One of Elon Musk’s abiding fears is that A.I. could one day threaten humans. But the jurors deciding his suit against OpenAI probably won’t hear about it.`\
-https://www.nytimes.com/2026/04/30/technology/open-ai-trial-elon-musk-existential.html
+https://www.nytimes.com/2026/04/30/technology/openai-trial-elon-musk-existential.html
 
 **What Teenagers Are Saying About Modern Parenting**\
 `Students react to an essay about the relentlessness of raising children today, and share how involved they think parents should be.`\
