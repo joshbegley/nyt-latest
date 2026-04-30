@@ -1,3 +1,7 @@
+**U.S. Economy Grew 2 Percent in Early 2026 Even as War in Iran Began to Hit Energy Prices**\
+`Gross domestic product expanded at a 2 percent annual rate in the first three months of the year, a period that included the first weeks of conflict in the Middle East.`\
+https://www.nytimes.com/2026/04/30/business/us-economy-gdp-oil-war.html
+
 **How Powell Just Complicated Trump’s Fed Plans**\
 `Traders now think the Federal Reserve will keep steady interest rates, or perhaps even increase them, amid succession intrigue at the central bank.`\
 https://www.nytimes.com/2026/04/30/business/dealbook/powell-fed-trump-warsh.html
@@ -66,15 +70,11 @@ https://www.nytimes.com/2026/04/30/crosswords/wordle-review-1777.html
 `Officials are investigating similar attacks across Europe, all claimed by a shadowy Islamist group that may be using low-cost, unsophisticated methods to sow fear in Jewish communities.`\
 https://www.nytimes.com/2026/04/30/world/europe/european-antisemitism-hybrid-warfare.html
 
-**Israel Intercepts Aid Flotilla Aiming to Breach Naval Blockade of Gaza**\
+**Israel Intercepts Aid Flotilla Heading to Breach Naval Blockade of Gaza**\
 `Activists said the Israeli military boarded and disabled boats carrying humanitarian assistance to the territory in international waters near Greece.`\
 https://www.nytimes.com/2026/04/30/world/middleeast/israel-gaza-aid-flotilla.html
 
 **There’s a 900-Year-Old Answer to Our Most Modern Problem**\
 `What should we do when a chatbot behaves like a criminal?`\
 https://www.nytimes.com/2026/04/30/opinion/ai-crimes-law.html
-
-**Democrats Realize Good Government Is Bad Politics When It Comes to Maps**\
-`A decade ago, the party sought independent redistricting commissions. Now, in an era of extreme gerrymandering, such efforts could slow Democrats as they try to keep up with Republicans.`\
-https://www.nytimes.com/2026/04/30/us/politics/democrats-independent-redistricting-commissions.html
 
