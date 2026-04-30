@@ -1,3 +1,7 @@
+**Trump Withdraws Nomination of Casey Means for Surgeon General**\
+`Dr. Means’s nomination had stalled in part over her views on vaccines. The president said he was instead nominating Dr. Nicole B. Saphier, a radiologist at Memorial Sloan Kettering Cancer Center.`\
+https://www.nytimes.com/2026/04/30/us/politics/casey-means-surgeon-general-withdraw.html
+
 **House Passes Stalled Homeland Security Funding Bill, Ending Shutdown**\
 `Republicans were forced to use a special maneuver to steer around opposition in their own party and speed the measure to the floor, relying on Democrats to push it through.`\
 https://www.nytimes.com/2026/04/30/us/politics/house-homeland-security-funding-bill.html
