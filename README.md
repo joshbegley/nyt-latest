@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/04/30/business/us-economy-gdp-oil-war.html
 https://www.nytimes.com/2026/04/30/business/dealbook/powell-fed-trump-warsh.html
 
 **David Allan Coe, Singer Who Personified Outlaw Country, Dies at 86**\
-`Mr. Coe, who wrote “Take This Job and Shove It” and other chart-topping hits, was a transgressive exponent of the outlaw country movement of the 1970s and ’80s.`\
+`Mr. Coe, who wrote “Take This Job and Shove It” and other hits, was a transgressive exponent of the outlaw country movement of the 1970s and ’80s.`\
 https://www.nytimes.com/2026/04/30/arts/music/david-allan-coe-dead.html
 
 **Can This Start-Up Automate Home Maintenance?**\

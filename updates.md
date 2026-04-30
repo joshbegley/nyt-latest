@@ -1,3 +1,27 @@
+**Michelangelo and Rodin: Finding the Living Spirit in Stone**\
+`An exhibition at the Louvre shows how the two artists, working centuries apart, found common ground in the vital force of rough-hewed textures.`\
+https://www.nytimes.com/2026/04/30/arts/louvre-michelangelo-rodin.html
+
+**Romanian Man Is Sentenced in 2023 Wave of ‘Swatting’ Calls**\
+`Thomasz Szabdo, 27, had pleaded guilty in connection with dozens of reports of false crimes involving politicians, election officials and others.`\
+https://www.nytimes.com/2026/04/30/us/szabo-guilty-swatting-us.html
+
+**Behind Powell’s High-Stakes Decision to Stay at the Fed**\
+`Jerome H. Powell will remain a governor at the Federal Reserve after his term as chair ends, in a bid to guard against a further incursion by the Trump administration on the central bank’s independence.`\
+https://www.nytimes.com/2026/04/30/business/powell-fed-trump.html
+
+**What to Know About the Stabbing Attack Against 2 Jewish Men in London**\
+`The British police said the attack on Wednesday was being treated as terrorism, and they warned of rising antisemitic hate crimes.`\
+https://www.nytimes.com/2026/04/30/world/europe/stabbing-attack-jewish-men-london.html
+
+**Janet Mills Bows Out of Maine Senate Race as an Insurgent Democrat Rises**\
+`Her withdrawal reflects the energy of the party’s left and voters’ unease with older candidates and paves the way for Graham Platner to challenge Senator Susan Collins in November.`\
+https://www.nytimes.com/2026/04/30/us/politics/janet-mills-drops-out-senate-race-platner-schumer.html
+
+**U.S. Economy Grew 2 Percent in Early 2026 Even as War in Iran Began to Hit Energy Prices**\
+`Gross domestic product expanded at a 2 percent annual rate in the first three months of the year, a period including first weeks of conflict in the Middle East.`\
+https://www.nytimes.com/2026/04/30/business/us-economy-gdp-oil-war.html
+
 **Janet Mills, Governor of Maine, Suspends Senate Campaign**\
 `Her withdrawal paves the way for Graham Platner to challenge Senator Susan Collins, and reflects the energy of the Democratic Party’s left as well as voters’ unease with older candidates.`\
 https://www.nytimes.com/2026/04/30/us/politics/janet-mills-drops-out-senate-race-platner-schumer.html
