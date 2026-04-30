@@ -1,3 +1,11 @@
+**At Least 5 Are Injured in Stabbing at a High School in Washington State**\
+`Foss High School in Tacoma, Wash., was on lockdown on Thursday after a stabbing, a school spokeswoman said.`\
+https://www.nytimes.com/2026/04/30/us/stabbing-foss-high-school-tacoma.html
+
+**Trump Signs Order Expanding Access to Retirement Accounts**\
+`Nearly half of private sector workers, or roughly 56 million people, do not have access to workplace plans. The order would make it easier for these workers to find and open accounts.`\
+https://www.nytimes.com/2026/04/30/your-money/trump-retirement-accounts.html
+
 **The Homeland Security Shutdown Ends**\
 `Also, Maine’s governor bows out of a crucial Senate race. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/04/30/briefing/homeland-security-shutdown-ends.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/30/us/chonkers-sea-lion-san-francisco.html
 **Chonkers the Sea Lion Draws Crowds in San Francisco**\
 `A sea lion whose size has earned him the nickname Chonkers has become a sensation at a popular tourist spot in San Francisco.`\
 https://www.nytimes.com/video/world/americas/100000010872260/chonkers-sea-lion-san-francisco.html
-
-**Britney Spears Is Charged With D.U.I. Involving Drugs and Alcohol**\
-`Officers in California observed the pop star driving fast and erratically in March. After she was arrested, she checked herself into a treatment facility.`\
-https://www.nytimes.com/2026/04/30/arts/music/britney-spears-charges-dui-drugs.html
-
-**What Peak Gerrymandering Could Look Like Now**\
-`The redrawing of America’s congressional districts is sure to escalate after the Supreme Court’s decision, with some maps that would have seemed laughable a year ago.`\
-https://www.nytimes.com/2026/04/30/upshot/gerrymanders-redistricting-democrats-republicans.html
 
