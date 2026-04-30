@@ -1,3 +1,7 @@
+**150 Fulani Die in Nigerian ‘Concentration Camp,’ Amnesty Says**\
+`Amnesty International said about 1,500 people have been detained by the military for three months and that many of those who have died from disease and starvation have been children.`\
+https://www.nytimes.com/2026/04/30/world/africa/nigeria-fulani-camp-amnesty.html
+
 **A Democratic Version of the Tea Party Is Emerging**\
 `No one should underestimate the white-hot fury of the party’s voters.`\
 https://www.nytimes.com/2026/04/30/opinion/graham-platner-janet-mills-susan-collins-senate.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/30/technology/iphones-apple-sales.html
 **Two High Schoolers in Mississippi Are Released After Being Detained by ICE**\
 `The brothers from the Republic of Congo were released on Thursday after the school community appealed to local Republican politicians, their lawyer said.`\
 https://www.nytimes.com/2026/04/30/us/mississippi-high-school-students-ice-release.html
-
-**King Charles III and Queen Camilla Visit Arlington National Cemetery**\
-`Britain’s King Charles III and Queen Camilla bid farewell to the U.S. on Thursday after a four-day state visit. The royal couple laid a wreath and flowers at the Tomb of the Unknown Soldier at Arlington National Cemetery.`\
-https://www.nytimes.com/video/us/100000010873230/king-charles-royals-arlington-virginia.html
 
