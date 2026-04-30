@@ -1,3 +1,15 @@
+**Elon Musk suffered a rare loss in his last jury trial.**\
+``\
+https://www.nytimes.com/live/2026/04/30/technology/openai-trial-sam-altman-elon-musk/elon-musk-suffered-a-rare-loss-in-his-last-jury-trial
+
+**Trump Administration Imposes Caps on Graduate School Loans**\
+`The changes stem from student loan provisions in a sprawling tax and domestic policy bill signed into law last year.`\
+https://www.nytimes.com/2026/04/30/us/politics/education-department-graduate-loans.html
+
+**Today, In Short**\
+`Fake invitations. Investment bank influencers. And the World Cup.`\
+https://www.nytimes.com/2026/04/30/briefing/today-in-short.html
+
 **Journalist Detained in Kuwait Says He Was Stripped of Citizenship**\
 `Ahmed Shihab-Eldin, a Kuwaiti-American, was held for several weeks after posting about the Iran war. Kuwait does not appear to have commented publicly on his case.`\
 https://www.nytimes.com/2026/04/30/world/middleeast/ahmed-shihab-eldin-citizenship.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/30/world/europe/trump-germany-troops-merz-threat
 **Janet Mills Bows Out of Maine Senate Race as an Insurgent Democrat Rises**\
 `Her withdrawal reflects the energy of the party’s left and voters’ unease with older candidates and paves the way for Graham Platner to challenge Senator Susan Collins in November.`\
 https://www.nytimes.com/2026/04/30/us/politics/janet-mills-drops-out-senate-race-platner-schumer.html
-
-**Miso-Butter Chicken With Grapefruit**\
-`Buttery miso pan drippings add richness to this lively combination of crunchy greens, juicy grapefruit and sticky chicken.`\
-https://www.nytimes.com/video/dining/100000010868093/miso-butter-chicken-with-grapefruit.html
-
-**U.S. Economy Grew 2 Percent in Early 2026 Even as War in Iran Began to Hit Energy Prices**\
-`Gross domestic product expanded at a 2 percent annual rate in the first three months of the year, a period including first weeks of conflict in the Middle East.`\
-https://www.nytimes.com/2026/04/30/business/us-economy-gdp-oil-war.html
-
-**How Powell Just Complicated Trump’s Fed Plans**\
-`Traders now think the Federal Reserve will keep steady interest rates, or perhaps even increase them, amid succession intrigue at the central bank.`\
-https://www.nytimes.com/2026/04/30/business/dealbook/powell-fed-trump-warsh.html
 
