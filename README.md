@@ -1,3 +1,7 @@
+**Supreme Court’s Voting Rights Ruling Could Fuel New Era of Unending Gerrymanders**\
+`The expected flood of new congressional maps is likely to produce fewer competitive districts, fewer ways for voters to hold elected officials accountable and more polarized politics.`\
+https://www.nytimes.com/2026/04/30/us/politics/supreme-courts-voting-rights-gerrymandering.html
+
 **‘Widow’s Bay’ Promises a Cursed Vacation**\
 `In this off-kilter horror-comedy on Apple TV, a seaside village with eccentric citizens and a troubled past becomes a tourist hot spot.`\
 https://www.nytimes.com/2026/04/30/arts/television/widows-bay.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/30/well/sleep-supplements-magnesium-melatonin.ht
 **Reseña de ‘El diablo viste a la moda 2’: una rapsodia en azul cerúleo**\
 `Andy (Anne Hathaway) y Miranda (Meryl Streep) vuelven a enfrentarse, pero ahora sus antagonismos palidecen ante un cambio mundial que trastorna sus vidas.`\
 https://www.nytimes.com/es/2026/04/30/espanol/cultura/resena-diablo-viste-moda-2.html
-
-**Trump Withdraws Nomination of Casey Means for Surgeon General**\
-`Dr. Means’s nomination had stalled in part over her views on vaccines. The president said he was instead nominating Dr. Nicole B. Saphier, a radiologist at Memorial Sloan Kettering Cancer Center.`\
-https://www.nytimes.com/2026/04/30/us/politics/casey-means-surgeon-general-withdraw.html
 

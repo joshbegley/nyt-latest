@@ -1,3 +1,7 @@
+**‘Widow’s Bay’ Promises a Cursed Vacation**\
+`In this off-kilter horror-comedy on Apple TV, a seaside village with eccentric citizens and a troubled past becomes a tourist hot spot.`\
+https://www.nytimes.com/2026/04/30/arts/television/widows-bay.html
+
 **How Conservatives on the Supreme Court Weakened the Voting Rights Act**\
 `The Supreme Court just overturned Louisiana’s congressional voting map, landing the latest blow to the landmark Voting Rights Act. Abbie VanSickle, a reporter covering the court for The New York Times, explains.`\
 https://www.nytimes.com/video/us/100000010870969/how-conservatives-on-the-supreme-court-weakened-the-voting-rights-act.html
