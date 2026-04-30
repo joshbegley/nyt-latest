@@ -1,3 +1,19 @@
+**House Passes Stalled Homeland Security Funding Bill, Ending Shutdown**\
+`Republicans were forced to use a special maneuver to steer around opposition in their own party and speed the measure to the floor, relying on Democrats to push it through.`\
+https://www.nytimes.com/2026/04/30/us/politics/house-homeland-security-funding-bill.html
+
+**House Passes Farm Bill After Republican Infighting**\
+`The measure exposed rifts within the G.O.P., pitting lawmakers aligned with the Make American Healthy Again movement against those representing traditional agricultural interests.`\
+https://www.nytimes.com/2026/04/30/us/politics/house-farm-bill-republican-infighting.html
+
+**L.A.-Coded Vegetables**\
+`Silky tofu-miso dressing, crispy rice salad and more meals I can’t stop thinking about — with close approximations from the New York Times Cooking archive.`\
+https://www.nytimes.com/2026/04/30/dining/la-coded-vegetables.html
+
+**Epstein Victims’ Pursuit of Justice Finds a New Venue: Albany, N.Y.**\
+`Two victims of Jeffrey Epstein will testify at the State Capitol next week in support of a bill that would enable them to seek punitive damages from his estate.`\
+https://www.nytimes.com/2026/04/30/nyregion/new-york-sexual-assault-laws-epstein.html
+
 **Georg Baselitz, German Neo-Expressionist Painter, Dies at 88**\
 `Along with contemporaries like Anselm Kiefer, he mounted a frontal attack on Minimalism and Conceptualism, the dominant “cool” styles of the 1970s.`\
 https://www.nytimes.com/2026/04/30/arts/design/george-baselitz-dead.html
