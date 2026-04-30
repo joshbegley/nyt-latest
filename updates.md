@@ -1,3 +1,11 @@
+**Crop Undercount Raises Questions About Reliability of U.S.D.A. Data**\
+`Corn estimates were off by 4.5 million acres last year. A lack of survey responses, not job cuts, led to the miss, the Agriculture Department said.`\
+https://www.nytimes.com/2026/04/30/business/usda-farmers-crops-data.html
+
+**Dean Tavoularis, Oscar-Winning Production Designer for Coppola, Dies at 93**\
+`He worked on 13 Francis Ford Coppola films, including “The Godfather” trilogy and “Apocalypse Now,” and recreated the Las Vegas Strip for “One From the Heart.”`\
+https://www.nytimes.com/2026/04/30/movies/dean-tavoularis-dead.html
+
 **Elon Musk suffered a rare loss in his last jury trial.**\
 ``\
 https://www.nytimes.com/live/2026/04/30/technology/openai-trial-sam-altman-elon-musk/elon-musk-suffered-a-rare-loss-in-his-last-jury-trial
