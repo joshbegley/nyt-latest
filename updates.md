@@ -1,3 +1,7 @@
+**Her Daughter Was Raped and Killed. Now She’s Seeking Office — and Justice.**\
+`Ratna Debnath is a candidate for Prime Minister Narendra Modi’s party, which is campaigning on women’s safety in an Indian state election.`\
+https://www.nytimes.com/2026/04/30/world/asia/india-elections-bjp-ratna-debnath.html
+
 **5 conclusiones del testimonio de Hegseth sobre la guerra en Irán y su gestión**\
 `Fue la primera comparecencia pública del secretario de Defensa Pete Hegseth ante el Congreso desde que comenzó la operación Furia Épica a finales de febrero.`\
 https://www.nytimes.com/es/2026/04/30/espanol/estados-unidos/testimonio-hegseth-iran.html
