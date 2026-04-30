@@ -1,3 +1,7 @@
+**What Peak Gerrymandering Could Look Like Now**\
+`The redrawing of America’s congressional districts is sure to escalate after the Supreme Court’s decision, with some maps that would have seemed laughable a year ago.`\
+https://www.nytimes.com/2026/04/30/upshot/gerrymanders-redistricting-democrats-republicans.html
+
 **Where to Eat 24 Hours a Day, 7 Days a Week**\
 `As Veselka goes back to 24-hour service, these three New York City restaurants never stopped carrying the torch.`\
 https://www.nytimes.com/2026/04/30/dining/where-to-eat-24-hours-a-day-7-days-a-week.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/30/learning/what-teenagers-are-saying-about-mode
 **A ‘Bachelorette’ Season Hangs in the Balance as Abuse Claims Are Aired**\
 `Television executives have not ruled out a revival of Taylor Frankie Paul’s season of the reality show, but a custody battle has kept her volatile former relationship in the spotlight.`\
 https://www.nytimes.com/2026/04/30/arts/television/bachelorette-taylor-frankie-paul-abc-disney.html
-
-**Jeffrey Epstein’s Possible Suicide Note Hidden from Public View**\
-`An inmate said he discovered the note after Mr. Epstein was found injured in his jail cell, weeks before his death. It’s now locked in a courthouse.`\
-https://www.nytimes.com/2026/04/30/us/jeffrey-epstein-suicide-note-sealed.html
 
