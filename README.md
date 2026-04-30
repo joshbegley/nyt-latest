@@ -1,3 +1,7 @@
+**Congress Passes Another Short-Term Extension of Expiring Surveillance Law**\
+`Senator Ron Wyden secured an agreement to seek the declassification of a recent intelligence court ruling about the FISA Section 702 program.`\
+https://www.nytimes.com/2026/04/30/us/politics/congress-surveillance-extension.html
+
 **At Least 5 Are Injured in Stabbing at a High School in Washington State**\
 `Foss High School in Tacoma, Wash., was on lockdown on Thursday after a stabbing, a school spokeswoman said.`\
 https://www.nytimes.com/2026/04/30/us/stabbing-foss-high-school-tacoma.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/embedded/arts/100000010873096/01vid-broadway-debut
 **Chonkers the ‘Food-Motivated’ Sea Lion Plops Into San Francisco**\
 `Wildlife experts have been tracking the Steller sea lion since he appeared last month at a popular tourist spot near the end of Fisherman’s Wharf.`\
 https://www.nytimes.com/2026/04/30/us/chonkers-sea-lion-san-francisco.html
-
-**Chonkers the Sea Lion Draws Crowds in San Francisco**\
-`A sea lion whose size has earned him the nickname Chonkers has become a sensation at a popular tourist spot in San Francisco.`\
-https://www.nytimes.com/video/world/americas/100000010872260/chonkers-sea-lion-san-francisco.html
 

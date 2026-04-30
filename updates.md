@@ -1,3 +1,7 @@
+**Trump Signs Order Expanding Access to Retirement Accounts**\
+`Nearly half of private-sector workers, or roughly 56 million people, do not have access to workplace plans. The order would make it easier for these workers to find and open accounts.`\
+https://www.nytimes.com/2026/04/30/your-money/trump-retirement-accounts.html
+
 **At Least 5 Are Injured in Stabbing at a High School in Washington State**\
 `Foss High School in Tacoma, Wash., was on lockdown on Thursday after a stabbing, a school spokeswoman said.`\
 https://www.nytimes.com/2026/04/30/us/stabbing-foss-high-school-tacoma.html
