@@ -1,3 +1,11 @@
+**Can’t Sleep? Here’s What to Consider Before Trying Supplements.**\
+`New data show that 1 in 8 Americans are using sleep aids such as magnesium, melatonin or C.B.D.`\
+https://www.nytimes.com/2026/04/30/well/sleep-supplements-magnesium-melatonin.html
+
+**Reseña de ‘El diablo viste a la moda 2’: una rapsodia en azul cerúleo**\
+`Andy (Anne Hathaway) y Miranda (Meryl Streep) vuelven a enfrentarse, pero ahora sus antagonismos palidecen ante un cambio mundial que trastorna sus vidas.`\
+https://www.nytimes.com/es/2026/04/30/espanol/cultura/resena-diablo-viste-moda-2.html
+
 **Trump Withdraws Nomination of Casey Means for Surgeon General**\
 `Dr. Means’s nomination had stalled in part over her views on vaccines. The president said he was instead nominating Dr. Nicole B. Saphier, a radiologist at Memorial Sloan Kettering Cancer Center.`\
 https://www.nytimes.com/2026/04/30/us/politics/casey-means-surgeon-general-withdraw.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/30/opinion/older-americans-ageism.html
 **Chief Justice Roberts Played the Long Game on Voting Rights**\
 `Since his early days as a lawyer and in his first years on the bench, the chief justice has worked to limit the force of the Voting Rights Act.`\
 https://www.nytimes.com/2026/04/30/us/politics/the-docket-roberts-voting-rights.html
-
-**August Wilson Like You’ve Never Heard Him Before: In Italian**\
-`In three U.S. cities, a new production of the playwright’s cabdriver drama “Jitney” will be imported from Italy.`\
-https://www.nytimes.com/2026/04/30/theater/august-wilson-italian-jitney.html
-
-**Trump y Putin piden un breve alto al fuego en Ucrania**\
-`Moscú y Kiev acordaron una tregua a principios de mes, pero cada parte acusó a la otra de múltiples violaciones.`\
-https://www.nytimes.com/es/2026/04/30/espanol/mundo/rusia-ucrania-alto-fuego-trump.html
 
