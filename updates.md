@@ -1,3 +1,7 @@
+**Smog in Phoenix and Salt Lake City? The E.P.A. Is Blaming Asia.**\
+`The Trump administration says the cities shouldn’t be penalized for unhealthy air because pollution can blow in from abroad. Some experts say that’s preposterous.`\
+https://www.nytimes.com/2026/04/30/climate/phoenix-salt-lake-city-pollution-epa.html
+
 **Crop Undercount Raises Questions About Reliability of U.S.D.A. Data**\
 `Corn estimates were off by 4.5 million acres last year. A lack of survey responses, not job cuts, led to the miss, the Agriculture Department said.`\
 https://www.nytimes.com/2026/04/30/business/usda-farmers-crops-data.html

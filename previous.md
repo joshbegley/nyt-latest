@@ -1,3 +1,7 @@
+**Smog in Phoenix and Salt Lake City? The E.P.A. Is Blaming Asia.**\
+`The Trump administration says the cities shouldn’t be penalized for unhealthy air because pollution can blow in from abroad. Some experts say that’s preposterous.`\
+https://www.nytimes.com/2026/04/30/climate/phoenix-salt-lake-city-pollution-epa.html
+
 **Crop Undercount Raises Questions About Reliability of U.S.D.A. Data**\
 `Corn estimates were off by 4.5 million acres last year. A lack of survey responses, not job cuts, led to the miss, the Agriculture Department said.`\
 https://www.nytimes.com/2026/04/30/business/usda-farmers-crops-data.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/30/us/szabo-guilty-swatting-us.html
 **Behind Powell’s High-Stakes Decision to Stay at the Fed**\
 `Jerome H. Powell will remain a governor at the Federal Reserve after his term as chair ends, in a bid to guard against a further incursion by the Trump administration on the central bank’s independence.`\
 https://www.nytimes.com/2026/04/30/business/powell-fed-trump.html
-
-**What to Know About the Stabbing Attack Against 2 Jewish Men in London**\
-`The British police said the attack on Wednesday was being treated as terrorism, and they warned of rising antisemitic hate crimes.`\
-https://www.nytimes.com/2026/04/30/world/europe/stabbing-attack-jewish-men-london.html
 
