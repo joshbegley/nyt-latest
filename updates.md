@@ -1,3 +1,11 @@
+**5 conclusiones del testimonio de Hegseth sobre la guerra en Irán y su gestión**\
+`Fue la primera comparecencia pública del secretario de Defensa Pete Hegseth ante el Congreso desde que comenzó la operación Furia Épica a finales de febrero.`\
+https://www.nytimes.com/es/2026/04/30/espanol/estados-unidos/testimonio-hegseth-iran.html
+
+**J. Craig Venter, Scientist Who Decoded the Human Genome, Dies at 79**\
+`A risk-taking outsider, he brought speed, competition and controversy to one of science’s biggest races.`\
+https://www.nytimes.com/2026/04/30/science/j-craig-venter-dead.html
+
 **Oil Prices Soar as Iran Standoff Shows No End in Sight**\
 `Oil prices push higher, approaching another wartime high, as President Trump asserted that the naval blockade of Iran’s ports would persist.`\
 https://www.nytimes.com/2026/04/30/business/oil-gas-price-iran.html

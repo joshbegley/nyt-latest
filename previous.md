@@ -1,3 +1,11 @@
+**5 conclusiones del testimonio de Hegseth sobre la guerra en Irán y su gestión**\
+`Fue la primera comparecencia pública del secretario de Defensa Pete Hegseth ante el Congreso desde que comenzó la operación Furia Épica a finales de febrero.`\
+https://www.nytimes.com/es/2026/04/30/espanol/estados-unidos/testimonio-hegseth-iran.html
+
+**J. Craig Venter, Scientist Who Decoded the Human Genome, Dies at 79**\
+`A risk-taking outsider, he brought speed, competition and controversy to one of science’s biggest races.`\
+https://www.nytimes.com/2026/04/30/science/j-craig-venter-dead.html
+
 **Oil Prices Soar as Iran Standoff Shows No End in Sight**\
 `Oil prices push higher, approaching another wartime high, as President Trump asserted that the naval blockade of Iran’s ports would persist.`\
 https://www.nytimes.com/2026/04/30/business/oil-gas-price-iran.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/29/us/politics/trump-germany-us-troops.html
 **Powell Announces He Will Stay on as Fed Governor**\
 `Jerome H. Powell announced on Wednesday that he would stay on as a governor at the Federal Reserve after his term as chair ends next month due to lingering legal threats from the Trump administration.`\
 https://www.nytimes.com/video/us/politics/100000010870996/jerome-powell-stays-fed-governor.html
-
-**Roger Sweet, Creator of the He-Man Action Figure, Dies at 91**\
-`The musclebound character he developed as a toy designer for Mattel gave rise to the Masters of the Universe franchise and helped define the machismo of the 1980s.`\
-https://www.nytimes.com/2026/04/29/arts/roger-sweet-dead-he-man.html
-
-**What the Royal State Dinner Guest List Says About Trump’s America**\
-`There were at least 10 American billionaires, six Fox News hosts, assorted presidential pals, no Democratic politicians and not so many British.`\
-https://www.nytimes.com/2026/04/29/us/politics/trump-white-house-state-dinner.html
 
