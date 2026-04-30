@@ -1,3 +1,19 @@
+**¿Por qué los restaurantes de sushi más exclusivos nos dejan aburridos y sin dinero?**\
+`Lo que empezó en Japón como una comida rápida y emocionante para la clase trabajadora, se ha transformado en un elaborado capricho para comensales adinerados en otros lugares.`\
+https://www.nytimes.com/es/2026/04/30/espanol/estilos-de-vida/omakase-sushi-precio.html
+
+**Ticking Watch**\
+`What do you think this image is communicating?`\
+https://www.nytimes.com/2026/04/30/learning/ticking-watch.html
+
+**Trump pone a prueba los límites de sus partidarios más devotos**\
+`La retórica religiosa del presidente, las políticas migratorias de línea dura y la guerra de EE. UU. en Irán ha dividido a una coalición de votantes cristianos que lo devolvieron a la Casa Blanca.`\
+https://www.nytimes.com/es/2026/04/30/espanol/estados-unidos/trump-evangelicos.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/04/30/crosswords/spelling-bee-forum.html
+
 **Josh Johnson Gives King Charles Props for His Comedy Chops**\
 `“You know, I’ve always wondered what white Def Jam would be like,” Johnson said after King Charles cracked a few jokes at the White House.`\
 https://www.nytimes.com/2026/04/30/arts/television/late-night-king-charles-comedy.html
