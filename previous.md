@@ -1,3 +1,15 @@
+**Trump May Pull Troops From Germany. That Isn’t as Scary as It Once Was.**\
+`Germany has hugely increased its military spending, aiming to be less dependent on Washington. Its support for U.S. attacks on Iran may also give it leverage.`\
+https://www.nytimes.com/2026/04/30/world/europe/trump-germany-troops-merz-threat.html
+
+**Janet Mills, Governor of Maine, Suspends Senate Campaign**\
+`Her withdrawal reflected the strength of her primary opponent, Graham Platner, as well as the mixed recruitment record of Chuck Schumer, the minority leader, as his party tries to reclaim the Senate.`\
+https://www.nytimes.com/2026/04/30/us/politics/janet-mills-drops-out-senate-race-platner-schumer.html
+
+**Miso-Butter Chicken With Grapefruit**\
+`Buttery miso pan drippings add richness to this lively combination of crunchy greens, juicy grapefruit and sticky chicken.`\
+https://www.nytimes.com/video/dining/100000010868093/miso-butter-chicken-with-grapefruit.html
+
 **U.S. Economy Grew 2 Percent in Early 2026 Even as War in Iran Began to Hit Energy Prices**\
 `Gross domestic product expanded at a 2 percent annual rate in the first three months of the year, a period that included the first weeks of conflict in the Middle East.`\
 https://www.nytimes.com/2026/04/30/business/us-economy-gdp-oil-war.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/30/crosswords/strands-sidekick-789.html
 **Wordle Review No. 1,777**\
 `Scroll down for hints and conversation about the puzzle for Friday, May 1, 2026.`\
 https://www.nytimes.com/2026/04/30/crosswords/wordle-review-1777.html
-
-**Attacks on Jewish Targets in Europe Suggest Hybrid Warfare**\
-`Officials are investigating similar attacks across Europe, all claimed by a shadowy Islamist group that may be using low-cost, unsophisticated methods to sow fear in Jewish communities.`\
-https://www.nytimes.com/2026/04/30/world/europe/european-antisemitism-hybrid-warfare.html
-
-**Israel Intercepts Aid Flotilla Heading to Breach Naval Blockade of Gaza**\
-`Activists said the Israeli military boarded and disabled boats carrying humanitarian assistance to the territory in international waters near Greece.`\
-https://www.nytimes.com/2026/04/30/world/middleeast/israel-gaza-aid-flotilla.html
-
-**There’s a 900-Year-Old Answer to Our Most Modern Problem**\
-`What should we do when a chatbot behaves like a criminal?`\
-https://www.nytimes.com/2026/04/30/opinion/ai-crimes-law.html
 

@@ -1,3 +1,15 @@
+**Trump May Pull Troops From Germany. That Isn’t as Scary as It Once Was.**\
+`Germany has hugely increased its military spending, aiming to be less dependent on Washington. Its support for U.S. attacks on Iran may also give it leverage.`\
+https://www.nytimes.com/2026/04/30/world/europe/trump-germany-troops-merz-threat.html
+
+**Janet Mills, Governor of Maine, Suspends Senate Campaign**\
+`Her withdrawal reflected the strength of her primary opponent, Graham Platner, as well as the mixed recruitment record of Chuck Schumer, the minority leader, as his party tries to reclaim the Senate.`\
+https://www.nytimes.com/2026/04/30/us/politics/janet-mills-drops-out-senate-race-platner-schumer.html
+
+**Miso-Butter Chicken With Grapefruit**\
+`Buttery miso pan drippings add richness to this lively combination of crunchy greens, juicy grapefruit and sticky chicken.`\
+https://www.nytimes.com/video/dining/100000010868093/miso-butter-chicken-with-grapefruit.html
+
 **U.S. Economy Grew 2 Percent in Early 2026 Even as War in Iran Began to Hit Energy Prices**\
 `Gross domestic product expanded at a 2 percent annual rate in the first three months of the year, a period that included the first weeks of conflict in the Middle East.`\
 https://www.nytimes.com/2026/04/30/business/us-economy-gdp-oil-war.html
