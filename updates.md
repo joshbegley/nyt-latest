@@ -1,3 +1,7 @@
+**The War in Iran Has Cost $25 Billion So Far. Is That a Lot?**\
+`It exceeds the annual budgets of numerous federal agencies, and the Pentagon’s yearly budget for munitions.`\
+https://www.nytimes.com/interactive/2026/04/29/upshot/iran-war-cost-comparison.html
+
 **British Royals Crisscross Manhattan in Brief Visit Packed With Photo Ops**\
 `King Charles III and Queen Camilla laid flowers at the Sept. 11 memorial before stopping by an urban farm, the New York Public Library, a business event and a gala.`\
 https://www.nytimes.com/2026/04/29/world/europe/king-charles-camilla-royals-nyc-visit.html
