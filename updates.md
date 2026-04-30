@@ -1,3 +1,7 @@
+**British Royals Crisscross Manhattan in Brief Visit Packed With Photo Ops**\
+`King Charles III and Queen Camilla laid flowers at the Sept. 11 memorial before stopping by an urban farm, the New York Public Library, a business event and a gala.`\
+https://www.nytimes.com/2026/04/29/world/europe/king-charles-camilla-royals-nyc-visit.html
+
 **Mamdani’s Advice to Royals: Give That Priceless Diamond Back to India**\
 `Mayor Zohran Mamdani and King Charles did not meet privately. But if they had, the mayor said, he probably would have raised the issue of the Koh-i-Noor Diamond.`\
 https://www.nytimes.com/2026/04/29/us/mamdani-diamond-king-charles.html

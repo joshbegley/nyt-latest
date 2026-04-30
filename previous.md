@@ -1,3 +1,7 @@
+**British Royals Crisscross Manhattan in Brief Visit Packed With Photo Ops**\
+`King Charles III and Queen Camilla laid flowers at the Sept. 11 memorial before stopping by an urban farm, the New York Public Library, a business event and a gala.`\
+https://www.nytimes.com/2026/04/29/world/europe/king-charles-camilla-royals-nyc-visit.html
+
 **Mamdani’s Advice to Royals: Give That Priceless Diamond Back to India**\
 `Mayor Zohran Mamdani and King Charles did not meet privately. But if they had, the mayor said, he probably would have raised the issue of the Koh-i-Noor Diamond.`\
 https://www.nytimes.com/2026/04/29/us/mamdani-diamond-king-charles.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/29/sports/lester-wright-dead.html
 **After Their Bus Driver Blacked Out, the Kids Sprang Into Action**\
 `Footage of the incident shared this week by a school district in Mississippi shows a group of students working together to avert disaster on a highway.`\
 https://www.nytimes.com/2026/04/29/us/mississippi-students-bus-accident.html
-
-**Queen Camilla Unites Winnie-the-Pooh With a Long-Lost Friend**\
-`On Wednesday, the Queen of England presented the New York Public Library with a bespoke replica of Roo, the smallest companion of the Bear of Very Little Brain.`\
-https://www.nytimes.com/2026/04/29/books/queen-camilla-winnie-the-pooh.html
 
