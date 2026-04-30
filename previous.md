@@ -1,3 +1,19 @@
+**150 Fulani Die in Nigerian ‘Concentration Camp,’ Amnesty Says**\
+`Amnesty International said about 1,500 people have been detained by the military for three months and that many of those who have died from disease and starvation have been children.`\
+https://www.nytimes.com/2026/04/30/world/africa/nigeria-fulani-camp-amnesty.html
+
+**A Democratic Version of the Tea Party Is Emerging**\
+`No one should underestimate the white-hot fury of the party’s voters.`\
+https://www.nytimes.com/2026/04/30/opinion/graham-platner-janet-mills-susan-collins-senate.html
+
+**Hegseth Spars With Senate Democrats Over War in Iran**\
+`Defense Secretary Pete Hegseth testified before the Senate Armed Services Committee, facing sharp criticism from Democrats over his handling of the war in Iran and its growing costs.`\
+https://www.nytimes.com/video/us/100000010873356/hegseth-senate-hearing-iran.html
+
+**Senate Bans Prediction Markets for Its Members and Staff**\
+`Senators voted unanimously to prohibit betting practices in the chamber after some users made hundreds of thousands of dollars online by accurately predicting U.S. military actions.`\
+https://www.nytimes.com/2026/04/30/us/politics/senate-prediction-markets-ban.html
+
 **Congress Passes Another Short-Term Extension of Expiring Surveillance Law**\
 `Senator Ron Wyden secured an agreement to seek the declassification of a recent intelligence court ruling about the FISA Section 702 program.`\
 https://www.nytimes.com/2026/04/30/us/politics/congress-surveillance-extension.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/04/30/technology/iphones-apple-sales.html
 **Two High Schoolers in Mississippi Are Released After Being Detained by ICE**\
 `The brothers from the Republic of Congo were released on Thursday after the school community appealed to local Republican politicians, their lawyer said.`\
 https://www.nytimes.com/2026/04/30/us/mississippi-high-school-students-ice-release.html
-
-**King Charles III and Queen Camilla Visit Arlington National Cemetery**\
-`Britain’s King Charles III and Queen Camilla bid farewell to the U.S. on Thursday after a four-day state visit. The royal couple laid a wreath and flowers at the Tomb of the Unknown Soldier at Arlington National Cemetery.`\
-https://www.nytimes.com/video/us/100000010873230/king-charles-royals-arlington-virginia.html
-
-**‘Hora de decir adiós’: la posible nota de suicidio de Jeffrey Epstein está oculta al público**\
-`Un preso dijo que descubrió la nota luego de que Epstein fuera hallado herido en su celda, semanas antes de su muerte. Ahora se encuentra bajo llave en un tribunal.`\
-https://www.nytimes.com/es/2026/04/30/espanol/estados-unidos/jeffrey-epstein-nota-suicidio.html
-
-****\
-``\
-https://www.nytimes.com/video/embedded/arts/100000010873096/01vid-broadway-debut-79433.html
-
-**Chonkers the ‘Food-Motivated’ Sea Lion Plops Into San Francisco**\
-`Wildlife experts have been tracking the Steller sea lion since he appeared last month at a popular tourist spot near the end of Fisherman’s Wharf.`\
-https://www.nytimes.com/2026/04/30/us/chonkers-sea-lion-san-francisco.html
 

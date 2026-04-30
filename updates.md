@@ -1,3 +1,19 @@
+**150 Fulani Die in Nigerian ‘Concentration Camp,’ Amnesty Says**\
+`Amnesty International said about 1,500 people have been detained by the military for three months and that many of those who have died from disease and starvation have been children.`\
+https://www.nytimes.com/2026/04/30/world/africa/nigeria-fulani-camp-amnesty.html
+
+**A Democratic Version of the Tea Party Is Emerging**\
+`No one should underestimate the white-hot fury of the party’s voters.`\
+https://www.nytimes.com/2026/04/30/opinion/graham-platner-janet-mills-susan-collins-senate.html
+
+**Hegseth Spars With Senate Democrats Over War in Iran**\
+`Defense Secretary Pete Hegseth testified before the Senate Armed Services Committee, facing sharp criticism from Democrats over his handling of the war in Iran and its growing costs.`\
+https://www.nytimes.com/video/us/100000010873356/hegseth-senate-hearing-iran.html
+
+**Senate Bans Prediction Markets for Its Members and Staff**\
+`Senators voted unanimously to prohibit betting practices in the chamber after some users made hundreds of thousands of dollars online by accurately predicting U.S. military actions.`\
+https://www.nytimes.com/2026/04/30/us/politics/senate-prediction-markets-ban.html
+
 **Congress Passes Another Short-Term Extension of Expiring Surveillance Law**\
 `Senator Ron Wyden secured an agreement to seek the declassification of a recent intelligence court ruling about the FISA Section 702 program.`\
 https://www.nytimes.com/2026/04/30/us/politics/congress-surveillance-extension.html
