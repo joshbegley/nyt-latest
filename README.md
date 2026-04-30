@@ -1,3 +1,11 @@
+**Crop Undercount Raises Questions About Reliability of U.S.D.A. Data**\
+`Corn estimates were off by 4.5 million acres last year. A lack of survey responses, not job cuts, led to the miss, the Agriculture Department said.`\
+https://www.nytimes.com/2026/04/30/business/usda-farmers-crops-data.html
+
+**Dean Tavoularis, Oscar-Winning Production Designer for Coppola, Dies at 93**\
+`He worked on 13 Francis Ford Coppola films, including “The Godfather” trilogy and “Apocalypse Now,” and recreated the Las Vegas Strip for “One From the Heart.”`\
+https://www.nytimes.com/2026/04/30/movies/dean-tavoularis-dead.html
+
 **Elon Musk suffered a rare loss in his last jury trial.**\
 ``\
 https://www.nytimes.com/live/2026/04/30/technology/openai-trial-sam-altman-elon-musk/elon-musk-suffered-a-rare-loss-in-his-last-jury-trial
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/30/business/powell-fed-trump.html
 **What to Know About the Stabbing Attack Against 2 Jewish Men in London**\
 `The British police said the attack on Wednesday was being treated as terrorism, and they warned of rising antisemitic hate crimes.`\
 https://www.nytimes.com/2026/04/30/world/europe/stabbing-attack-jewish-men-london.html
-
-**Trump May Pull Troops From Germany. That Isn’t as Scary as It Once Was.**\
-`Germany has hugely increased its military spending, aiming to be less dependent on Washington. Its support for U.S. attacks on Iran may also give it leverage.`\
-https://www.nytimes.com/2026/04/30/world/europe/trump-germany-troops-merz-threat.html
-
-**Janet Mills Bows Out of Maine Senate Race as an Insurgent Democrat Rises**\
-`Her withdrawal reflects the energy of the party’s left and voters’ unease with older candidates and paves the way for Graham Platner to challenge Senator Susan Collins in November.`\
-https://www.nytimes.com/2026/04/30/us/politics/janet-mills-drops-out-senate-race-platner-schumer.html
 
