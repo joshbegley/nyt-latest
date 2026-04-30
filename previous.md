@@ -1,3 +1,15 @@
+**‘Michael’ Is Pure Propaganda**\
+`Wesley Morris and the film curator, Eric Hynes, review “Michael” and consider better approaches to a Michael Jackson biopic.`\
+https://www.nytimes.com/video/podcasts/100000010866378/michael-is-pure-propaganda.html
+
+**How the Voting Rights Decision May Block the Rise of Young Black Leaders**\
+`Black Democrats in the South already face steep challenges when seeking political office. But the Supreme Court’s ruling could be felt for a generation.`\
+https://www.nytimes.com/2026/04/30/us/politics/voting-rights-act-young-black-democrats.html
+
+**Inside the Courtroom at the OpenAI Trial**\
+`A New York Times tech reporter shares a dispatch from the press gallery of the showdown between Elon Musk and Sam Altman.`\
+https://www.nytimes.com/2026/04/30/insider/times-inside-openai-musk-trial.html
+
 **Man Charged in Trump Assassination Attempt to Stay in Jail for Now**\
 `Cole Tomas Allen’s lawyers said he was in 24-hour lockdown and asked for him to be placed in less restrictive conditions. Allen is due back in court on May 11.`\
 https://www.nytimes.com/2026/04/30/us/trump-shooting-suspect-cole-tomas-allen-jail.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/30/movies/dean-tavoularis-dead.html
 **Elon Musk suffered a rare loss in his last jury trial.**\
 ``\
 https://www.nytimes.com/live/2026/04/30/technology/openai-trial-sam-altman-elon-musk/elon-musk-suffered-a-rare-loss-in-his-last-jury-trial
-
-**Trump Administration Imposes Caps on Graduate School Loans**\
-`The changes stem from student loan provisions in a sprawling tax and domestic policy bill signed into law last year.`\
-https://www.nytimes.com/2026/04/30/us/politics/education-department-graduate-loans.html
-
-**Today, In Short**\
-`Fake invitations. Investment bank influencers. And the World Cup.`\
-https://www.nytimes.com/2026/04/30/briefing/today-in-short.html
-
-**Journalist Detained in Kuwait Says He Was Stripped of Citizenship**\
-`Ahmed Shihab-Eldin, a Kuwaiti-American, was held for several weeks after posting about the Iran war. Kuwait does not appear to have commented publicly on his case.`\
-https://www.nytimes.com/2026/04/30/world/middleeast/ahmed-shihab-eldin-citizenship.html
 
