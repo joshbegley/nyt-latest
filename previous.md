@@ -1,3 +1,11 @@
+**David Allan Coe, Singer Who Personified Outlaw Country, Dies at 86**\
+`Mr. Coe, who wrote “Take This Job and Shove It” and other chart-topping hits, was a transgressive exponent of the outlaw country movement of the 1970s and ’80s.`\
+https://www.nytimes.com/2026/04/30/arts/music/david-allan-coe-dead.html
+
+**Can This Start-Up Automate Home Maintenance?**\
+`Casa, a company founded by former Uber executives, says it uses artificial intelligence and a stable of handymen to take care of members’ homes.`\
+https://www.nytimes.com/2026/04/30/business/dealbook/casa-handyman-start-up.html
+
 **Search for Missing Girl in Australia Ends in ‘Worst Possible Outcome’**\
 `The police are seeking a man who was last seen holding hands with the 5-year-old girl on Saturday night near Alice Springs.`\
 https://www.nytimes.com/2026/04/30/world/australia/missing-girl-found-dead.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/30/us/politics/democrats-independent-redistricti
 **Some Black Southerners Say Voting Rights Ruling ‘Missed the Mark’**\
 `Veterans of the civil rights movement and others said the Supreme Court decision felt like a bleak end to decades of gains in Black representation in the region.`\
 https://www.nytimes.com/2026/04/30/us/some-black-southerners-say-voting-rights-ruling-missed-the-mark.html
-
-**In Narrowing Voting Rights Act, Conservative Justices See Progress on Racism**\
-`The majority said the law was a victim of its own success and no longer needed. Dissenters responded that Congress should make the call.`\
-https://www.nytimes.com/2026/04/30/us/politics/supreme-court-voting-rights-act-conservatives.html
-
-**They Needed (a Lot) More Space in Minneapolis. Would $350,000 Be Enough? **\
-`With nary an inch of wall space to spare, a couple of art collectors looked for a house that could hold their ever-expanding lives.`\
-https://www.nytimes.com/interactive/2026/04/30/realestate/minneapolis-minnesota-homes-for-sale.html
 

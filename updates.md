@@ -1,3 +1,11 @@
+**David Allan Coe, Singer Who Personified Outlaw Country, Dies at 86**\
+`Mr. Coe, who wrote “Take This Job and Shove It” and other chart-topping hits, was a transgressive exponent of the outlaw country movement of the 1970s and ’80s.`\
+https://www.nytimes.com/2026/04/30/arts/music/david-allan-coe-dead.html
+
+**Can This Start-Up Automate Home Maintenance?**\
+`Casa, a company founded by former Uber executives, says it uses artificial intelligence and a stable of handymen to take care of members’ homes.`\
+https://www.nytimes.com/2026/04/30/business/dealbook/casa-handyman-start-up.html
+
 **Search for Missing Girl in Australia Ends in ‘Worst Possible Outcome’**\
 `The police are seeking a man who was last seen holding hands with the 5-year-old girl on Saturday night near Alice Springs.`\
 https://www.nytimes.com/2026/04/30/world/australia/missing-girl-found-dead.html
