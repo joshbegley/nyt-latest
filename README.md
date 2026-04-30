@@ -1,3 +1,35 @@
+**How Conservatives on the Supreme Court Weakened the Voting Rights Act**\
+`The Supreme Court just overturned Louisiana’s congressional voting map, landing the latest blow to the landmark Voting Rights Act. Abbie VanSickle, a reporter covering the court for The New York Times, explains.`\
+https://www.nytimes.com/video/us/100000010870969/how-conservatives-on-the-supreme-court-weakened-the-voting-rights-act.html
+
+**Maryland Sixth Congressional District 2026: Latest Polls**\
+`Track the latest polls in Maryland's 6th Congressional District.`\
+https://www.nytimes.com/interactive/polls/maryland-us-house-6-polls-2026.html
+
+**Maryland Fifth Congressional District 2026: Latest Polls**\
+`Track the latest polls in Maryland's 5th Congressional District.`\
+https://www.nytimes.com/interactive/polls/maryland-us-house-5-polls-2026.html
+
+**Hegseth Says Iran Cease-Fire Stops Clock for Congressional Approval**\
+`The defense secretary testified on the eve of the 60-day mark of the war, a major statutory deadline for the president to withdraw forces or seek approval from Congress to continue the fight.`\
+https://www.nytimes.com/2026/04/30/us/politics/hegseth-iran-cease-fire-congress.html
+
+**What’s Going On in This Picture? | May 4, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://www.nytimes.com/2026/04/30/learning/whats-going-on-in-this-picture-may-4-2026.html
+
+**What’s Going On in This Graph? | May 6, 2026**\
+`How much of your household income goes toward health insurance premiums?`\
+https://www.nytimes.com/2026/04/30/learning/whats-going-on-in-this-graph-may-6-2026.html
+
+**6 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/04/30/books/review/new-recommended-books.html
+
+**How the Voting Rights Act Bolstered Black Representation in the House**\
+`The passage of the landmark law in 1965 helped increase Black representation, especially in the South, according to a Times analysis.`\
+https://www.nytimes.com/interactive/2026/04/30/us/politics/voting-rights-act-black-population-congress.html
+
 **Mills Exit Is a Blow to Schumer as Democrats Question His Strategy**\
 `Senator Chuck Schumer, the New York Democrat and minority leader, considered the Maine governor his top recruit for winning the majority. Critics said her collapse showed he is out of touch with the party’s voters.`\
 https://www.nytimes.com/2026/04/30/us/politics/janet-mills-schumer-strategy.html
@@ -26,8 +58,8 @@ https://www.nytimes.com/video/world/middleeast/100000010872184/israel-intercepts
 `The ousted civilian leader has been detained since a military coup forced her from power in 2021.`\
 https://www.nytimes.com/2026/04/30/world/asia/myanmar-aung-san-suu-kyi.html
 
-**Camp Mystic Says It Will Not Reopen This Summer**\
-`In a statement, the camp said it told Texas regulators that it was “withdrawing its application for a summer 2026 camp license” after 28 people died in flooding last summer.`\
+**Camp Mystic, Where 28 Died, Says It Will Not Reopen This Summer**\
+`In a statement, the camp said it told Texas regulators that it was “withdrawing its application for a summer 2026 camp license” after catastrophic flooding last summer.`\
 https://www.nytimes.com/2026/04/30/us/camp-mystic-texas-floods-closure.html
 
 **Can’t Sleep? Here’s What to Consider Before Trying Supplements.**\
@@ -43,38 +75,6 @@ https://www.nytimes.com/es/2026/04/30/espanol/cultura/resena-diablo-viste-moda-2
 https://www.nytimes.com/2026/04/30/us/politics/casey-means-surgeon-general-withdraw.html
 
 **House Passes Stalled Homeland Security Funding Bill, Ending Shutdown**\
-`Republicans were forced to use a special maneuver to steer around opposition in their own party and speed the measure to the floor, relying on Democrats to push it through.`\
+`Republicans were forced to use a special maneuver to steer around opposition in their own party and speed the measure to the floor, relying on Democratic cooperation to push it through.`\
 https://www.nytimes.com/2026/04/30/us/politics/house-homeland-security-funding-bill.html
-
-**House Passes Farm Bill After Republican Infighting**\
-`The measure exposed rifts within the G.O.P., pitting lawmakers aligned with the Make American Healthy Again movement against those representing traditional agricultural interests.`\
-https://www.nytimes.com/2026/04/30/us/politics/house-farm-bill-republican-infighting.html
-
-**L.A.-Coded Vegetables**\
-`Silky tofu-miso dressing, crispy rice salad and more meals I can’t stop thinking about — with close approximations from the New York Times Cooking archive.`\
-https://www.nytimes.com/2026/04/30/dining/la-coded-vegetables.html
-
-**Epstein Victims’ Pursuit of Justice Finds a New Venue: Albany, N.Y.**\
-`Two victims of Jeffrey Epstein will testify at the State Capitol next week in support of a bill that would enable them to seek punitive damages from his estate.`\
-https://www.nytimes.com/2026/04/30/nyregion/new-york-sexual-assault-laws-epstein.html
-
-**‘Michael’ Is Pure Propaganda**\
-`Wesley Morris and the film curator, Eric Hynes, review “Michael” and consider better approaches to a Michael Jackson biopic.`\
-https://www.nytimes.com/video/podcasts/100000010866378/michael-is-pure-propaganda.html
-
-**How the Voting Rights Decision May Block the Rise of Young Black Leaders**\
-`Black Democrats in the South already face steep challenges when seeking political office. But the Supreme Court’s ruling could be felt for a generation.`\
-https://www.nytimes.com/2026/04/30/us/politics/voting-rights-act-young-black-democrats.html
-
-**Inside the Courtroom at the OpenAI Trial**\
-`A New York Times tech reporter shares a dispatch from the press gallery of the showdown between Elon Musk and Sam Altman.`\
-https://www.nytimes.com/2026/04/30/insider/times-inside-openai-musk-trial.html
-
-**Man Charged in Trump Assassination Attempt to Stay in Jail for Now**\
-`Cole Tomas Allen’s lawyers said he was in 24-hour lockdown and asked for him to be placed in less restrictive conditions. Allen is due back in court on May 11.`\
-https://www.nytimes.com/2026/04/30/us/trump-shooting-suspect-cole-tomas-allen-jail.html
-
-**Supreme Leader Says Iran Is Planning for Ongoing Control of Strait**\
-`Ayatollah Mojtaba Khamenei said in a statement that Iran would establish “new legal frameworks” for the Strait of Hormuz. He also said his country would retain its nuclear capabilities.`\
-https://www.nytimes.com/2026/04/30/world/middleeast/iran-war-supreme-leader-mojtaba-khamenei-strait-hormuz.html
 
