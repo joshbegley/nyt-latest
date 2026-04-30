@@ -1,3 +1,7 @@
+**Finding New Horizons and Saving a Disappearing Language**\
+`The fascinating stories of dying tongues.`\
+https://www.nytimes.com/2026/04/30/opinion/finding-new-horizons-and-saving-a-disappearing-language.html
+
 **Supreme Court’s Voting Rights Ruling Could Fuel New Era of Unending Gerrymanders**\
 `The expected flood of new congressional maps is likely to produce fewer competitive districts, fewer ways for voters to hold elected officials accountable and more polarized politics.`\
 https://www.nytimes.com/2026/04/30/us/politics/supreme-courts-voting-rights-gerrymandering.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/30/us/camp-mystic-texas-floods-closure.html
 **Can’t Sleep? Here’s What to Consider Before Trying Supplements.**\
 `New data show that 1 in 8 Americans are using sleep aids such as magnesium, melatonin or C.B.D.`\
 https://www.nytimes.com/2026/04/30/well/sleep-supplements-magnesium-melatonin.html
-
-**Reseña de ‘El diablo viste a la moda 2’: una rapsodia en azul cerúleo**\
-`Andy (Anne Hathaway) y Miranda (Meryl Streep) vuelven a enfrentarse, pero ahora sus antagonismos palidecen ante un cambio mundial que trastorna sus vidas.`\
-https://www.nytimes.com/es/2026/04/30/espanol/cultura/resena-diablo-viste-moda-2.html
 
