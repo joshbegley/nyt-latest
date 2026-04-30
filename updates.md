@@ -1,3 +1,15 @@
+**Two High Schoolers in Mississippi Are Released After Being Detained by ICE**\
+`The brothers from the Republic of Congo were released on Thursday after the school community appealed to local Republican politicians, their lawyer said.`\
+https://www.nytimes.com/2026/04/30/us/mississippi-high-school-students-ice-release.html
+
+**King Charles III and Queen Camilla Visit Arlington National Cemetery**\
+`Britain’s King Charles III and Queen Camilla bid farewell to the U.S. on Thursday after a four-day state visit. The royal couple laid a wreath and flowers at the Tomb of the Unknown Soldier at Arlington National Cemetery.`\
+https://www.nytimes.com/video/us/100000010873230/king-charles-royals-arlington-virginia.html
+
+**‘Hora de decir adiós’: la posible nota de suicidio de Jeffrey Epstein está oculta al público**\
+`Un preso dijo que descubrió la nota luego de que Epstein fuera hallado herido en su celda, semanas antes de su muerte. Ahora se encuentra bajo llave en un tribunal.`\
+https://www.nytimes.com/es/2026/04/30/espanol/estados-unidos/jeffrey-epstein-nota-suicidio.html
+
 ****\
 ``\
 https://www.nytimes.com/video/embedded/arts/100000010873096/01vid-broadway-debut-79433.html
