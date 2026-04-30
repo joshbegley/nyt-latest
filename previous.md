@@ -1,3 +1,27 @@
+**Oil Prices Soar as Iran Standoff Shows No End in Sight**\
+`Oil prices push higher, approaching another wartime high, as President Trump asserted that the naval blockade of Iran’s ports would persist.`\
+https://www.nytimes.com/2026/04/30/business/oil-gas-price-iran.html
+
+**Rising Fuel Prices Could Force Excruciating Choices on Economic Policies**\
+`The European Central Bank and Bank of England were expected to hold interest rates steady on Thursday while searching for signs of possible longer-term damage.`\
+https://www.nytimes.com/2026/04/30/business/bank-of-england-european-central-bank.html
+
+**Quote of the Day: Blood Feuds Have Faded As Rivals Play Nice(r)**\
+`Quotation of the Day for Thursday, April 30, 2026.`\
+https://www.nytimes.com/2026/04/30/pageoneplus/quote-of-the-day-blood-feuds-have-faded-as-rivals-play-nice-r.html
+
+**Her Daughter Was Raped and Killed. Now She’s Seeking Office, and Justice.**\
+`Ratna Debnath is a candidate for the party of Prime Minister Narendra Modi of India, which is campaigning on women’s safety in a state election.`\
+https://www.nytimes.com/2026/04/30/world/asia/india-elections-bjp-ratna-debnath.html
+
+**In France, Trump’s Triumphal Arch Draws Eye Rolls, and Echoes of Napoleon**\
+`The Arc de Triomphe in Paris, which the president vows to top in Washington, offers a lesson in the complicated history of monuments.`\
+https://www.nytimes.com/2026/04/30/world/europe/trump-triumphal-arch-france.html
+
+**Corrections: April 30, 2026**\
+`Corrections that appeared in print on Thursday, April 30, 2026.`\
+https://www.nytimes.com/2026/04/30/pageoneplus/corrections-april-30-2026.html
+
 **House Adopts Budget to Unlock $70 Billion for Immigration Enforcement**\
 `The measure will allow the G.O.P. to begin working on a filibuster-proof bill to fund ICE and C.B.P., part of their plan to reopen the long-shuttered Department of Homeland Security.`\
 https://www.nytimes.com/2026/04/29/us/politics/house-ice-budget-immigration.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/04/29/arts/roger-sweet-dead-he-man.html
 **What the Royal State Dinner Guest List Says About Trump’s America**\
 `There were at least 10 American billionaires, six Fox News hosts, assorted presidential pals, no Democratic politicians and not so many British.`\
 https://www.nytimes.com/2026/04/29/us/politics/trump-white-house-state-dinner.html
-
-**They Left for the School Bus. ICE Picked Them Up Instead.**\
-`A school transfer disrupted two brothers’ visas, their lawyer said, leaving them vulnerable to arrest and unsettling their Mississippi school community.`\
-https://www.nytimes.com/2026/04/29/us/mississippi-basketball-players-arrested-ice.html
-
-**The Justices Acted as Partisans in the Voting Rights Ruling**\
-`In the name of disentangling race from politics, the court has given white voters more power at the expense of racial minorities.`\
-https://www.nytimes.com/2026/04/29/opinion/supreme-court-voting-rights-act-2026.html
-
-**BossMan Dlow's Boisterous Boasts**\
-`On this edition of the “Popcast” Song of the Week, our critic Jon Caramanica breaks down a boastful party track from BossMan Dlow, who he calls “the funniest rapper working right now.”`\
-https://www.nytimes.com/video/podcasts/100000010871592/bossman-dlows-boisterous-boasts.html
-
-**Why the U.A.E. is Quitting OPEC**\
-`The United Arab Emirates is walking away from OPEC this May. The New York Times’ energy reporter, Rebecca Elliott, breaks down how the war with Iran provided the perfect opening for the U.A.E. to go solo.`\
-https://www.nytimes.com/video/business/100000010867871/why-the-uae-is-quitting-opec.html
-
-**40 Years After Explosion, Chernobyl Site Faces New Threats From Russia**\
-`Forty years since the Chernobyl nuclear disaster, officials are grappling with the impact of a 2025 Russian drone strike that set back decades of efforts to contain it. Ukrainian officials said the Russians deliberately targeted the structure, but the Kremlin has denied responsibility.`\
-https://www.nytimes.com/video/world/europe/100000010863426/chernobyl-nuclear-disaster-anniversary.html
-
-**G.O.P. Congress Struggles to Do the Basics Amid Party Infighting**\
-`House Republicans toiled to pass major measures as lawmakers  tried to fund homeland security, extend spy powers and deliver a farm bill.`\
-https://www.nytimes.com/2026/04/29/us/politics/congressional-republicans-dysfunction.html
 

@@ -1,3 +1,27 @@
+**Oil Prices Soar as Iran Standoff Shows No End in Sight**\
+`Oil prices push higher, approaching another wartime high, as President Trump asserted that the naval blockade of Iran’s ports would persist.`\
+https://www.nytimes.com/2026/04/30/business/oil-gas-price-iran.html
+
+**Rising Fuel Prices Could Force Excruciating Choices on Economic Policies**\
+`The European Central Bank and Bank of England were expected to hold interest rates steady on Thursday while searching for signs of possible longer-term damage.`\
+https://www.nytimes.com/2026/04/30/business/bank-of-england-european-central-bank.html
+
+**Quote of the Day: Blood Feuds Have Faded As Rivals Play Nice(r)**\
+`Quotation of the Day for Thursday, April 30, 2026.`\
+https://www.nytimes.com/2026/04/30/pageoneplus/quote-of-the-day-blood-feuds-have-faded-as-rivals-play-nice-r.html
+
+**Her Daughter Was Raped and Killed. Now She’s Seeking Office, and Justice.**\
+`Ratna Debnath is a candidate for the party of Prime Minister Narendra Modi of India, which is campaigning on women’s safety in a state election.`\
+https://www.nytimes.com/2026/04/30/world/asia/india-elections-bjp-ratna-debnath.html
+
+**In France, Trump’s Triumphal Arch Draws Eye Rolls, and Echoes of Napoleon**\
+`The Arc de Triomphe in Paris, which the president vows to top in Washington, offers a lesson in the complicated history of monuments.`\
+https://www.nytimes.com/2026/04/30/world/europe/trump-triumphal-arch-france.html
+
+**Corrections: April 30, 2026**\
+`Corrections that appeared in print on Thursday, April 30, 2026.`\
+https://www.nytimes.com/2026/04/30/pageoneplus/corrections-april-30-2026.html
+
 **Trump Threatens to Pull Troops From Germany as He Lashes Out at Chancellor**\
 `The comments came after the German chancellor said that Iran has “humiliated” the United States.`\
 https://www.nytimes.com/2026/04/29/us/politics/trump-germany-us-troops.html
