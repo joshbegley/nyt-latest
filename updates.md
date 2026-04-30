@@ -1,3 +1,15 @@
+**Korean Air Bans Roosters on U.S. Flights to the Philippines**\
+`The airline was used by chicken breeders in Texas to illegally transport roosters for cockfights, an animal welfare group said.`\
+https://www.nytimes.com/2026/04/30/world/asia/korean-air-cockfighting-roosters-philippines.html
+
+**De estrechos y peajes**\
+`Irán ha amenazado con cobrar un peaje por el paso a través del estrecho de Ormuz. Aunque eso nunca llegue a ocurrir, la idea podría desestabilizar el transporte marítimo global.`\
+https://www.nytimes.com/es/2026/04/30/espanol/mundo/estrecho-ormuz-iran-peaje.html
+
+**The Jeffrey E. Epstein Fund for Women’s Athletics**\
+`An investigation by Pablo and Dhruv Patel of The Harvard Crimson.`\
+https://www.nytimes.com/2026/04/30/podcasts/the-jeffrey-e-epstein-fund-for-womens-athletics.html
+
 **The Case for Returning the Koh-i-Noor Diamond Has a New Backer: Mamdani**\
 `Mayor Zohran Mamdani of New York suggested that Britain should return the gem, a symbol of colonial plunder. Here’s the back story.`\
 https://www.nytimes.com/2026/04/30/nyregion/kohinoor-diamond-india-history-mamdani-king-charles.html
