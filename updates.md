@@ -1,3 +1,7 @@
+**Britney Spears Is Charged With D.U.I. Involving Drugs and Alcohol**\
+`Officers in California observed the pop star driving fast and erratically in March. After she was arrested, she checked herself into a treatment facility.`\
+https://www.nytimes.com/2026/04/30/arts/music/britney-spears-charges-dui-drugs.html
+
 **What Peak Gerrymandering Could Look Like Now**\
 `The redrawing of America’s congressional districts is sure to escalate after the Supreme Court’s decision, with some maps that would have seemed laughable a year ago.`\
 https://www.nytimes.com/2026/04/30/upshot/gerrymanders-redistricting-democrats-republicans.html

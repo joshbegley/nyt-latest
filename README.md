@@ -1,3 +1,15 @@
+****\
+``\
+https://www.nytimes.com/video/embedded/arts/100000010873096/01vid-broadway-debut-79433.html
+
+**Chonkers the ‘Food-Motivated’ Sea Lion Plops Into San Francisco**\
+`Wildlife experts have been tracking the Steller sea lion since he appeared last month at a popular tourist spot near the end of Fisherman’s Wharf.`\
+https://www.nytimes.com/2026/04/30/us/chonkers-sea-lion-san-francisco.html
+
+**Chonkers the Sea Lion Draws Crowds in San Francisco**\
+`A sea lion whose size has earned him the nickname Chonkers has become a sensation at a popular tourist spot in San Francisco.`\
+https://www.nytimes.com/video/world/americas/100000010872260/chonkers-sea-lion-san-francisco.html
+
 **Britney Spears Is Charged With D.U.I. Involving Drugs and Alcohol**\
 `Officers in California observed the pop star driving fast and erratically in March. After she was arrested, she checked herself into a treatment facility.`\
 https://www.nytimes.com/2026/04/30/arts/music/britney-spears-charges-dui-drugs.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/04/30/books/review/new-recommended-books.html
 **How the Voting Rights Act Bolstered Black Representation in the House**\
 `The passage of the landmark law in 1965 helped increase Black representation, especially in the South, according to a Times analysis.`\
 https://www.nytimes.com/interactive/2026/04/30/us/politics/voting-rights-act-black-population-congress.html
-
-**Mills Exit Is a Blow to Schumer as Democrats Question His Strategy**\
-`Senator Chuck Schumer, the New York Democrat and minority leader, considered the Maine governor his top recruit for winning the majority. Critics said her collapse showed he is out of touch with the party’s voters.`\
-https://www.nytimes.com/2026/04/30/us/politics/janet-mills-schumer-strategy.html
-
-**Is A.I. a Threat to Humanity? Not in This Trial.**\
-`One of Elon Musk’s abiding fears is that A.I. could one day threaten humans. But the jurors deciding his suit against OpenAI probably won’t hear about it.`\
-https://www.nytimes.com/2026/04/30/technology/openai-trial-elon-musk-existential.html
-
-**What Teenagers Are Saying About Modern Parenting**\
-`Students react to an essay about the relentlessness of raising children today, and share how involved they think parents should be.`\
-https://www.nytimes.com/2026/04/30/learning/what-teenagers-are-saying-about-modern-parenting.html
 
