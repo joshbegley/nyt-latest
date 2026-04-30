@@ -1,6 +1,6 @@
 **Search for Missing Girl in Australia Ends in ‘Worst Possible Outcome’**\
 `The police are seeking a man who was last seen holding hands with the five-year-old girl on Saturday night near Alice Springs.`\
-https://www.nytimes.com/2026/04/30/world/australia/australia-missing-girl-found-dead.html
+https://www.nytimes.com/2026/04/30/world/australia/missing-girl-found-dead.html
 
 **Transgender Idaho Residents Sue After State Criminalizes Use of Bathrooms**\
 `The lawsuit seeks to block a state bathroom law that is the nation’s most restrictive, with penalties that could include a five-year prison sentence.`\

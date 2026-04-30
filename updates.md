@@ -1,3 +1,11 @@
+**Search for Missing Girl in Australia Ends in ‘Worst Possible Outcome’**\
+`The police are seeking a man who was last seen holding hands with the five-year-old girl on Saturday night near Alice Springs.`\
+https://www.nytimes.com/2026/04/30/world/australia/australia-missing-girl-found-dead.html
+
+**The Case for Returning the Koh-i-Noor Diamond Has a New Backer: Mamdani**\
+`Mayor Zohran Mamdani of New York suggested that Britain should return the gem, a symbol of colonial plunder. Here’s the back story of the famed jewel.`\
+https://www.nytimes.com/2026/04/30/nyregion/kohinoor-diamond-india-history-mamdani-king-charles.html
+
 **Transgender Idaho Residents Sue After State Criminalizes Use of Bathrooms**\
 `The lawsuit seeks to block a state bathroom law that is the nation’s most restrictive, with penalties that could include a five-year prison sentence.`\
 https://www.nytimes.com/2026/04/30/us/transgender-idaho-bathrooms-lawsuit.html

@@ -1,3 +1,7 @@
+**Search for Missing Girl in Australia Ends in ‘Worst Possible Outcome’**\
+`The police are seeking a man who was last seen holding hands with the five-year-old girl on Saturday night near Alice Springs.`\
+https://www.nytimes.com/2026/04/30/world/australia/australia-missing-girl-found-dead.html
+
 **Transgender Idaho Residents Sue After State Criminalizes Use of Bathrooms**\
 `The lawsuit seeks to block a state bathroom law that is the nation’s most restrictive, with penalties that could include a five-year prison sentence.`\
 https://www.nytimes.com/2026/04/30/us/transgender-idaho-bathrooms-lawsuit.html
@@ -19,7 +23,7 @@ https://www.nytimes.com/es/2026/04/30/espanol/mundo/estrecho-ormuz-iran-peaje.ht
 https://www.nytimes.com/2026/04/30/podcasts/the-jeffrey-e-epstein-fund-for-womens-athletics.html
 
 **The Case for Returning the Koh-i-Noor Diamond Has a New Backer: Mamdani**\
-`Mayor Zohran Mamdani of New York suggested that Britain should return the gem, a symbol of colonial plunder. Here’s the back story.`\
+`Mayor Zohran Mamdani of New York suggested that Britain should return the gem, a symbol of colonial plunder. Here’s the back story of the famed jewel.`\
 https://www.nytimes.com/2026/04/30/nyregion/kohinoor-diamond-india-history-mamdani-king-charles.html
 
 **Trump and Putin Talk, and Ukraine Shrugs**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/30/us/politics/supreme-court-voting-rights-act-c
 **They Needed (a Lot) More Space in Minneapolis. Would $350,000 Be Enough? **\
 `With nary an inch of wall space to spare, a couple of art collectors looked for a house that could hold their ever-expanding lives.`\
 https://www.nytimes.com/interactive/2026/04/30/realestate/minneapolis-minnesota-homes-for-sale.html
-
-**10 Reasons We Love the Original ‘Devil Wears Prada’**\
-`The 2006 comedy is filled with moments big and small that have stood the test of time, thanks in no small part to Meryl Streep’s turn as Miranda Priestly.`\
-https://www.nytimes.com/2026/04/30/movies/devil-wears-prada-movie-top-10-moments.html
 
