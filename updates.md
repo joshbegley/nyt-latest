@@ -1,3 +1,23 @@
+**Where to Eat 24 Hours a Day, 7 Days a Week**\
+`As Veselka goes back to 24-hour service, these three New York City restaurants never stopped carrying the torch.`\
+https://www.nytimes.com/2026/04/30/dining/where-to-eat-24-hours-a-day-7-days-a-week.html
+
+**Mexico’s President Faces Perilous Choice After U.S. Indicts Her Ally**\
+`The Trump administration wants President Claudia Sheinbaum to arrest a Mexican governor. She is faced with few good options in response.`\
+https://www.nytimes.com/2026/04/30/world/americas/mexico-rocha-indictment-sheinbaum.html
+
+**The World Met to Talk Climate Change. The U.S. Wasn’t Invited.**\
+`Dozens of countries met this week to discuss how to end the world’s dependence on fossil fuels, a goal that the Trump administration doesn’t share.`\
+https://www.nytimes.com/2026/04/30/climate/santa-marta-climate-change.html
+
+**Fortnite Issues Refunds for D4vd Gameplay Items**\
+`The singer, who has been charged with the murder of 14-year-old Celeste Rivas Hernandez, began his career making music inspired by the game.`\
+https://www.nytimes.com/2026/04/30/arts/music/d4vd-fortnite-cosmetics-refund.html
+
+**Voting Rights Ruling Could Fuel Era of Endless Redistricting Wars**\
+`The expected flood of new congressional maps is likely to produce fewer competitive districts, fewer ways for voters to hold elected officials accountable and more polarized politics.`\
+https://www.nytimes.com/2026/04/30/us/politics/supreme-courts-voting-rights-gerrymandering.html
+
 **Finding New Horizons and Saving a Disappearing Language**\
 `The fascinating stories of dying tongues.`\
 https://www.nytimes.com/2026/04/30/opinion/lewis-clark-shoshone-language-book.html
