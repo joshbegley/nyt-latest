@@ -1,3 +1,27 @@
+**What Teenagers Are Saying About Modern Parenting**\
+`Students react to an essay about the relentlessness of raising children today, and share how involved they think parents should be.`\
+https://www.nytimes.com/2026/04/30/learning/what-teenagers-are-saying-about-modern-parenting.html
+
+**A ‘Bachelorette’ Season Hangs in the Balance as Abuse Claims Are Aired**\
+`Television executives have not ruled out a revival of Taylor Frankie Paul’s season of the reality show, but a custody battle has kept her volatile former relationship in the spotlight.`\
+https://www.nytimes.com/2026/04/30/arts/television/bachelorette-taylor-frankie-paul-abc-disney.html
+
+**Jeffrey Epstein’s Possible Suicide Note Hidden from Public View**\
+`An inmate said he discovered the note after Mr. Epstein was found injured in his jail cell, weeks before his death. It’s now locked in a courthouse.`\
+https://www.nytimes.com/2026/04/30/us/jeffrey-epstein-suicide-note-sealed.html
+
+**Israel Intercepts Gaza-Bound Aid Flotilla in International Waters**\
+`The Israeli military boarded multiple boats in a flotilla that was sailing from Barcelona to Gaza, the protest group behind the mission said. The group has repeatedly challenged Israel’s naval blockade of Gaza.`\
+https://www.nytimes.com/video/world/middleeast/100000010872184/israel-intercepts-gaza-aid-flotilla-detains-activists.html
+
+**Myanmar’s Junta Moves Daw Aung San Suu Kyi From Prison to House Arrest**\
+`The ousted civilian leader has been detained since a military coup forced her from power in 2021.`\
+https://www.nytimes.com/2026/04/30/world/asia/myanmar-aung-san-suu-kyi.html
+
+**Camp Mystic Says It Will Not Reopen This Summer**\
+`In a statement, the camp said it told Texas regulators that it was “withdrawing its application for a summer 2026 camp license” after 28 people died in flooding last summer.`\
+https://www.nytimes.com/2026/04/30/us/camp-mystic-texas-floods-closure.html
+
 **Can’t Sleep? Here’s What to Consider Before Trying Supplements.**\
 `New data show that 1 in 8 Americans are using sleep aids such as magnesium, melatonin or C.B.D.`\
 https://www.nytimes.com/2026/04/30/well/sleep-supplements-magnesium-melatonin.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/04/30/arts/design/george-baselitz-dead.html
 ****\
 `Georg Baselitz in 2025.`\
 https://www.nytimes.com/video/embedded/admin/100000010872778/30Baselitz--bfhm.html
-
-**How Trump’s Iran Blockade Is Complicating a High-Stakes Trip to China**\
-`If President Trump flies to China as planned in May, the primary topic will clearly be the rippling economic effects of a war that Beijing has made clear it viewed as unnecessary.`\
-https://www.nytimes.com/2026/04/30/us/politics/trump-china-iran.html
-
-**El petróleo supera los 120 dólares el barril y el conflicto en Irán no cede**\
-`Los consumidores ya empiezan a sentir el efecto dominó de la escasez de suministro energético, lo que ejerce presión sobre la economía mundial.`\
-https://www.nytimes.com/es/2026/04/30/espanol/negocios/precio-crudo-120-dolares-barril.html
-
-**Trump Administration Casts Host of Policies Under Biden as Anti-Christian**\
-`A new report is the latest effort by the Justice Department to argue that it is removing political bias from prosecutorial decision-making.`\
-https://www.nytimes.com/2026/04/30/us/politics/trump-report-christians-biden.html
-
-**Venice Biennale Jury Resigns Amid Tension Over Awards Ban**\
-`The jury of the world’s most important art exhibition had said it wouldn’t consider artists from countries whose leaders are accused of crimes against humanity.`\
-https://www.nytimes.com/2026/04/30/arts/design/israel-artist-venice-biennale.html
-
-**Older Americans Are a Reality, Not a Problem**\
-`Sampling the outpouring of responses to a guest essay, “Older Americans Are Hoarding the Nation’s Potential,” by Samuel Moyn. Also: A clash over a wind project.`\
-https://www.nytimes.com/2026/04/30/opinion/older-americans-ageism.html
-
-**Chief Justice Roberts Played the Long Game on Voting Rights**\
-`Since his early days as a lawyer and in his first years on the bench, the chief justice has worked to limit the force of the Voting Rights Act.`\
-https://www.nytimes.com/2026/04/30/us/politics/the-docket-roberts-voting-rights.html
 
