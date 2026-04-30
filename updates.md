@@ -1,3 +1,7 @@
+**New Banksy Statue Causes Stir in Central London**\
+`The statue depicts a man marching with a flag that covers his face. It appeared in a section of London near statues of 19th-century British military and colonial figures.`\
+https://www.nytimes.com/2026/04/30/world/europe/banksy-london-statue.html
+
 **Here’s What States Might Do After the Voting Rights Decision**\
 `The effect of the Supreme Court’s ruling could be as little as one House seat in Louisiana in 2026, but pressure is building on Tennessee and South Carolina Republicans to act.`\
 https://www.nytimes.com/2026/04/30/us/elections/states-redistricting-voting-rights.html

@@ -1,3 +1,7 @@
+**New Banksy Statue Causes Stir in Central London**\
+`The statue depicts a man marching with a flag that covers his face. It appeared in a section of London near statues of 19th-century British military and colonial figures.`\
+https://www.nytimes.com/2026/04/30/world/europe/banksy-london-statue.html
+
 **Here’s What States Might Do After the Voting Rights Decision**\
 `The effect of the Supreme Court’s ruling could be as little as one House seat in Louisiana in 2026, but pressure is building on Tennessee and South Carolina Republicans to act.`\
 https://www.nytimes.com/2026/04/30/us/elections/states-redistricting-voting-rights.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/30/us/politics/supreme-courts-voting-rights-gerr
 **‘Widow’s Bay’ Promises a Cursed Vacation**\
 `In this off-kilter horror-comedy on Apple TV, a seaside village with eccentric citizens and a troubled past becomes a tourist hot spot.`\
 https://www.nytimes.com/2026/04/30/arts/television/widows-bay.html
-
-**How Conservatives on the Supreme Court Weakened the Voting Rights Act**\
-`The Supreme Court just overturned Louisiana’s congressional voting map, landing the latest blow to the landmark Voting Rights Act. Abbie VanSickle, a reporter covering the court for The New York Times, explains.`\
-https://www.nytimes.com/video/us/100000010870969/how-conservatives-on-the-supreme-court-weakened-the-voting-rights-act.html
 
