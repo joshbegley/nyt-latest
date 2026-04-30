@@ -38,7 +38,7 @@ https://www.nytimes.com/2026/04/29/us/susan-hutson-orleans-indictment.html
 `The changes are in keeping with the administration’s pledge to cut back on gun restrictions.`\
 https://www.nytimes.com/2026/04/29/us/politics/trump-gun-control.html
 
-**Trump Threatens to Pull Troops From Germany as He Lashes Out at Merz**\
+**Trump Threatens to Pull Troops From Germany as He Lashes Out at Chancellor**\
 `The comments came after the German chancellor said that Iran has “humiliated” the United States.`\
 https://www.nytimes.com/2026/04/29/us/politics/trump-germany-us-troops.html
 
