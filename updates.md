@@ -1,3 +1,7 @@
+**Janet Mills, Governor of Maine, Suspends Senate Campaign**\
+`Her withdrawal paves the way for Graham Platner to challenge Senator Susan Collins, and reflects the energy of the Democratic Party’s left as well as voters’ unease with older candidates.`\
+https://www.nytimes.com/2026/04/30/us/politics/janet-mills-drops-out-senate-race-platner-schumer.html
+
 **Trump May Pull Troops From Germany. That Isn’t as Scary as It Once Was.**\
 `Germany has hugely increased its military spending, aiming to be less dependent on Washington. Its support for U.S. attacks on Iran may also give it leverage.`\
 https://www.nytimes.com/2026/04/30/world/europe/trump-germany-troops-merz-threat.html

@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/04/30/world/europe/trump-germany-troops-merz-threat.html
 
 **Janet Mills, Governor of Maine, Suspends Senate Campaign**\
-`Her withdrawal reflected the strength of her primary opponent, Graham Platner, as well as the mixed recruitment record of Chuck Schumer, the minority leader, as his party tries to reclaim the Senate.`\
+`Her withdrawal paves the way for Graham Platner to challenge Senator Susan Collins, and reflects the energy of the Democratic Party’s left as well as voters’ unease with older candidates.`\
 https://www.nytimes.com/2026/04/30/us/politics/janet-mills-drops-out-senate-race-platner-schumer.html
 
 **Miso-Butter Chicken With Grapefruit**\
