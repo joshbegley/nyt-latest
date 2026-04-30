@@ -1,3 +1,11 @@
+**George Baselitz, German Neo-Expressionist Painter, Dies at 88**\
+`Along with contemporaries like Anselm Kiefer, he mounted a frontal attack on Minimalism and Conceptualism, the dominant “cool” styles of the 1970s.`\
+https://www.nytimes.com/2026/04/30/arts/design/george-baselitz-dead.html
+
+****\
+`Georg Baselitz in 2025.`\
+https://www.nytimes.com/video/embedded/admin/100000010872778/30Baselitz--bfhm.html
+
 **How Trump’s Iran Blockade Is Complicating a High-Stakes Trip to China**\
 `If President Trump flies to China as planned in May, the primary topic will clearly be the rippling economic effects of a war that Beijing has made clear it viewed as unnecessary.`\
 https://www.nytimes.com/2026/04/30/us/politics/trump-china-iran.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/30/dining/lovely-laksa-noodle-salad.html
 **Europa evalúa sus políticas económicas ante el alza de los precios de combustible**\
 `El Banco Central Europeo y el Banco de Inglaterra mantuvieron estables las tasas de interés el jueves, mientras buscan señales de posibles daños a más largo plazo.`\
 https://www.nytimes.com/es/2026/04/30/espanol/negocios/europa-precios-combustible.html
-
-**Musk says he ‘was a fool’ to provide OpenAI’s early funding.**\
-``\
-https://www.nytimes.com/live/2026/04/30/technology/openai-trial-sam-altman-elon-musk/musk-says-he-was-a-fool-to-provide-openais-early-funding
-
-**Watch Live: Hegseth Testifies Before Senate Armed Services Committee**\
-`Defense Secretary Pete Hegseth and Gen. Dan Caine testify on Capitol Hill.`\
-https://www.nytimes.com/video/us/politics/100000010872394/hegseth-dc-hearing-pentagon.html
 
