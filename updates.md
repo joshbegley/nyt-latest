@@ -1,3 +1,7 @@
+**What Peak Gerrymandering Could Look Like Now**\
+`The redrawing of America’s congressional districts is sure to escalate after the Supreme Court’s decision, with some maps that would have seemed laughable a year ago.`\
+https://www.nytimes.com/2026/04/30/upshot/gerrymanders-redistricting-democrats-republicans.html
+
 **Where to Eat 24 Hours a Day, 7 Days a Week**\
 `As Veselka goes back to 24-hour service, these three New York City restaurants never stopped carrying the torch.`\
 https://www.nytimes.com/2026/04/30/dining/where-to-eat-24-hours-a-day-7-days-a-week.html

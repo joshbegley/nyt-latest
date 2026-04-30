@@ -1,3 +1,7 @@
+**Britney Spears Is Charged With D.U.I. Involving Drugs and Alcohol**\
+`Officers in California observed the pop star driving fast and erratically in March. After she was arrested, she checked herself into a treatment facility.`\
+https://www.nytimes.com/2026/04/30/arts/music/britney-spears-charges-dui-drugs.html
+
 **What Peak Gerrymandering Could Look Like Now**\
 `The redrawing of America’s congressional districts is sure to escalate after the Supreme Court’s decision, with some maps that would have seemed laughable a year ago.`\
 https://www.nytimes.com/2026/04/30/upshot/gerrymanders-redistricting-democrats-republicans.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/30/technology/openai-trial-elon-musk-existential
 **What Teenagers Are Saying About Modern Parenting**\
 `Students react to an essay about the relentlessness of raising children today, and share how involved they think parents should be.`\
 https://www.nytimes.com/2026/04/30/learning/what-teenagers-are-saying-about-modern-parenting.html
-
-**A ‘Bachelorette’ Season Hangs in the Balance as Abuse Claims Are Aired**\
-`Television executives have not ruled out a revival of Taylor Frankie Paul’s season of the reality show, but a custody battle has kept her volatile former relationship in the spotlight.`\
-https://www.nytimes.com/2026/04/30/arts/television/bachelorette-taylor-frankie-paul-abc-disney.html
 
