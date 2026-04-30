@@ -1,3 +1,7 @@
+**King and Queen Spend a Day in New York**\
+`During their state visit, King Charles III and Queen Camilla stopped by New York City, where they laid flowers at the 9/11 memorial, fed chickens, read to children and attended a charity event.`\
+https://www.nytimes.com/video/us/100000010872038/king-charles-queen-camilla-new-york-city.html
+
 **¿Por qué los restaurantes de sushi más exclusivos nos dejan aburridos y sin dinero?**\
 `Lo que empezó en Japón como una comida rápida y emocionante para la clase trabajadora, se ha transformado en un elaborado capricho para comensales adinerados en otros lugares.`\
 https://www.nytimes.com/es/2026/04/30/espanol/estilos-de-vida/omakase-sushi-precio.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/29/arts/music/d4vd-celeste-rivas-hernandez-murde
 **Carry Out Orders**\
 `Lance Enfinger and John Kugelman land themselves a prizewinning puzzle.`\
 https://www.nytimes.com/2026/04/29/crosswords/daily-puzzle-2026-04-30.html
-
-**Supreme Court Considers Trump Administration’s Plan to End TPS**\
-`The justices on Wednesday considered whether the Trump administration had legally ended the Temporary Protected Status program for hundreds of thousands of Haitians and Syrians.`\
-https://www.nytimes.com/video/us/100000010868478/tps-supreme-court-hearing.html
 
