@@ -1,3 +1,7 @@
+**How Trump’s Proposed Arch Would Change D.C.**\
+`The Times created a 3-D model of the 250-foot monument to show how it would affect a symbolic sightline.`\
+https://www.nytimes.com/interactive/2026/04/29/us/trump-triumphal-arch-dc.html
+
 **G.O.P. Congress Struggles to Do the Basics Amid Party Infighting**\
 `House Republicans toiled to pass major measures as lawmakers scrambled to fund homeland security, extend spy powers and deliver a farm bill.`\
 https://www.nytimes.com/2026/04/29/us/politics/congressional-republicans-dysfunction.html
