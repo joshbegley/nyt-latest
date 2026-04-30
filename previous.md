@@ -1,9 +1,17 @@
+**How Trump’s Iran Blockade Is Complicating a High-Stakes Trip to China**\
+`If President Trump flies to China as planned in May, the primary topic will clearly be the rippling economic effects of a war that Beijing has made clear it viewed as unnecessary.`\
+https://www.nytimes.com/2026/04/30/us/politics/trump-china-iran.html
+
+**El petróleo supera los 120 dólares el barril y el conflicto en Irán no cede**\
+`Los consumidores ya empiezan a sentir el efecto dominó de la escasez de suministro energético, lo que ejerce presión sobre la economía mundial.`\
+https://www.nytimes.com/es/2026/04/30/espanol/negocios/precio-crudo-120-dolares-barril.html
+
 **Trump Administration Casts Host of Policies Under Biden as Anti-Christian**\
 `A new report is the latest effort by the Justice Department to argue that it is removing political bias from prosecutorial decision-making.`\
 https://www.nytimes.com/2026/04/30/us/politics/trump-report-christians-biden.html
 
 **Venice Biennale Jury Resigns Amid Tension Over Awards Ban**\
-`The artist representing Israel had threatened to sue the world’s most important art exhibition after its jury said it wouldn’t consider artists from countries whose leaders are accused of crimes against humanity.`\
+`The jury of the world’s most important art exhibition had said it wouldn’t consider artists from countries whose leaders are accused of crimes against humanity.`\
 https://www.nytimes.com/2026/04/30/arts/design/israel-artist-venice-biennale.html
 
 **Older Americans Are a Reality, Not a Problem**\
@@ -69,12 +77,4 @@ https://www.nytimes.com/live/2026/04/30/technology/openai-trial-sam-altman-elon-
 **Watch Live: Hegseth Testifies Before Senate Armed Services Committee**\
 `Defense Secretary Pete Hegseth and Gen. Dan Caine testify on Capitol Hill.`\
 https://www.nytimes.com/video/us/politics/100000010872394/hegseth-dc-hearing-pentagon.html
-
-**Share the Times Pages You Couldn’t Throw Away**\
-`The New York Times has been publishing for 175 years. Some of that history may be sitting in a shoe box under your bed.`\
-https://www.nytimes.com/2026/04/30/special-series/archives-anniversary-newspaper.html
-
-**After Supreme Court Decision, Louisiana Weighs Redrawing House Maps**\
-`It was not immediately clear whether Gov. Jeff Landry, a Republican, would postpone the May 16 primary election for House races after the court ruled the state’s congressional districts unconstitutional.`\
-https://www.nytimes.com/2026/04/30/us/politics/louisiana-suspend-primaries-supreme-court.html
 

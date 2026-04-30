@@ -1,3 +1,15 @@
+**How Trump’s Iran Blockade Is Complicating a High-Stakes Trip to China**\
+`If President Trump flies to China as planned in May, the primary topic will clearly be the rippling economic effects of a war that Beijing has made clear it viewed as unnecessary.`\
+https://www.nytimes.com/2026/04/30/us/politics/trump-china-iran.html
+
+**El petróleo supera los 120 dólares el barril y el conflicto en Irán no cede**\
+`Los consumidores ya empiezan a sentir el efecto dominó de la escasez de suministro energético, lo que ejerce presión sobre la economía mundial.`\
+https://www.nytimes.com/es/2026/04/30/espanol/negocios/precio-crudo-120-dolares-barril.html
+
+**Venice Biennale Jury Resigns Amid Tension Over Awards Ban**\
+`The jury of the world’s most important art exhibition had said it wouldn’t consider artists from countries whose leaders are accused of crimes against humanity.`\
+https://www.nytimes.com/2026/04/30/arts/design/israel-artist-venice-biennale.html
+
 **Trump Administration Casts Host of Policies Under Biden as Anti-Christian**\
 `A new report is the latest effort by the Justice Department to argue that it is removing political bias from prosecutorial decision-making.`\
 https://www.nytimes.com/2026/04/30/us/politics/trump-report-christians-biden.html
