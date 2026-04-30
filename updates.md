@@ -1,3 +1,11 @@
+**Finding New Horizons and Saving a Disappearing Language**\
+`The fascinating stories of dying tongues.`\
+https://www.nytimes.com/2026/04/30/opinion/finding-new-horizons-and-saving-a-disappearing-language.html
+
+**Supreme Court’s Voting Rights Ruling Could Fuel New Era of Unending Gerrymanders**\
+`The expected flood of new congressional maps is likely to produce fewer competitive districts, fewer ways for voters to hold elected officials accountable and more polarized politics.`\
+https://www.nytimes.com/2026/04/30/us/politics/supreme-courts-voting-rights-gerrymandering.html
+
 **‘Widow’s Bay’ Promises a Cursed Vacation**\
 `In this off-kilter horror-comedy on Apple TV, a seaside village with eccentric citizens and a troubled past becomes a tourist hot spot.`\
 https://www.nytimes.com/2026/04/30/arts/television/widows-bay.html

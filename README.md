@@ -1,6 +1,6 @@
 **Finding New Horizons and Saving a Disappearing Language**\
 `The fascinating stories of dying tongues.`\
-https://www.nytimes.com/2026/04/30/opinion/finding-new-horizons-and-saving-a-disappearing-language.html
+https://www.nytimes.com/2026/04/30/opinion/lewis-clark-shoshone-language-book.html
 
 **Supreme Court’s Voting Rights Ruling Could Fuel New Era of Unending Gerrymanders**\
 `The expected flood of new congressional maps is likely to produce fewer competitive districts, fewer ways for voters to hold elected officials accountable and more polarized politics.`\
