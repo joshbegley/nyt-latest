@@ -1,3 +1,7 @@
+**Sheriff of New Orleans Jail Where 10 Inmates Escaped Is Indicted**\
+`Susan Hutson, the sheriff of Orleans Parish, faces 30 counts, and the jail’s chief financial officer was also indicted.`\
+https://www.nytimes.com/2026/04/29/us/susan-hutson-orleans-indictment.html
+
 **Trump Administration Announces Moves to Sharply Curtail Gun Regulations**\
 `The changes are in keeping with the administration’s pledge to cut back on gun restrictions.`\
 https://www.nytimes.com/2026/04/29/us/politics/trump-gun-control.html
