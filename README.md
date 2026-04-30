@@ -1,3 +1,11 @@
+**Carry Out Orders**\
+`Lance Enfinger and John Kugelman land themselves a prizewinning puzzle.`\
+https://www.nytimes.com/2026/04/29/crosswords/daily-puzzle-2026-04-30.html
+
+**Supreme Court Considers Trump Administration’s Plan to End TPS**\
+`The justices on Wednesday considered whether the Trump administration had legally ended the Temporary Protected Status program for hundreds of thousands of Haitians and Syrians.`\
+https://www.nytimes.com/video/us/100000010868478/tps-supreme-court-hearing.html
+
 **The War in Iran Has Cost $25 Billion So Far. Is That a Lot?**\
 `It exceeds the annual budgets of numerous federal agencies, and the Pentagon’s yearly budget for munitions.`\
 https://www.nytimes.com/interactive/2026/04/29/upshot/iran-war-cost-comparison.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/us/100000010871074/mississippi-school-bus-students
 **Hegseth Cites Falsehood to Defend His Firing of Senior Officers**\
 `The defense secretary said at a House hearing that President Barack Obama had fired 197 generals, a figure that the Pentagon previously acknowledged was false.`\
 https://www.nytimes.com/2026/04/29/us/politics/pete-hegseth-falsehood-firings.html
-
-**These Runners Kept Going to 100 or Beyond**\
-`Many picked up running late in life. They all shared an uncommon competitive drive.`\
-https://www.nytimes.com/2026/04/29/obituaries/100-year-old-runners-lester-wright.html
-
-**Lester Wright, the Fastest Known Centenarian, Dies at 103**\
-`In 2022, at 100, he set what was believed to be a world record in the 100-meter dash at the Penn Relays in Philadelphia, beating 86- and 92-year-old competitors.`\
-https://www.nytimes.com/2026/04/29/sports/lester-wright-dead.html
 
