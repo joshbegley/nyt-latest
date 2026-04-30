@@ -1,3 +1,7 @@
+**Congress Passes Another Short-Term Extension of Expiring Surveillance Law**\
+`Senator Ron Wyden secured an agreement to seek the declassification of a recent intelligence court ruling about the FISA Section 702 program.`\
+https://www.nytimes.com/2026/04/30/us/politics/congress-surveillance-extension.html
+
 **Trump Signs Order Expanding Access to Retirement Accounts**\
 `Nearly half of private-sector workers, or roughly 56 million people, do not have access to workplace plans. The order would make it easier for these workers to find and open accounts.`\
 https://www.nytimes.com/2026/04/30/your-money/trump-retirement-accounts.html
