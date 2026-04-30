@@ -1,3 +1,23 @@
+**El dilema de Sheinbaum: desafiar a EE. UU. o arrestar a un aliado**\
+`El gobierno de Trump quiere que la presidenta Claudia Sheinbaum detenga a un gobernador mexicano. Ella cuenta con pocas buenas opciones como respuesta.`\
+https://www.nytimes.com/es/2026/04/30/espanol/america-latina/sheinbaum-ee-uu-imputacion-rocha-moya.html
+
+**Comey Indictment Shows Justice Dept. Got the Message From Bondi’s Firing**\
+`In naming only an interim successor as acting attorney general, President Trump has established even greater incentives to execute his most extreme demands, current and former officials say.`\
+https://www.nytimes.com/2026/04/30/us/politics/james-comey-indictment-trump.html
+
+**The Benefits of a Face Massage, and How to Do It Yourself**\
+`A guide to getting a naturally sculpted look, using your hands, a gua sha tool or even a spoon.`\
+https://www.nytimes.com/2026/04/30/t-magazine/at-home-face-massage.html
+
+**Last Up on the Royals’ U.S. Tour: A Potluck and a Win for Scottish Whisky**\
+`King Charles III and Queen Camilla had a ceremonial farewell at the White House before attending a block party in Front Royal, Va.`\
+https://www.nytimes.com/2026/04/30/us/politics/king-charles-trump-potluck-whisky.html
+
+**6 Are Injured in Stabbing at a High School in Washington State**\
+`Five students were injured, four of them critically, after an altercation at Foss High School in Tacoma, Wash., the authorities said. A security guard was also injured.`\
+https://www.nytimes.com/2026/04/30/us/stabbing-foss-high-school-tacoma.html
+
 **150 Fulani Die in Nigerian ‘Concentration Camp,’ Amnesty Says**\
 `Amnesty International said about 1,500 people have been detained by the military for three months and that many of those who have died from disease and starvation have been children.`\
 https://www.nytimes.com/2026/04/30/world/africa/nigeria-fulani-camp-amnesty.html
