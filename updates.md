@@ -1,3 +1,43 @@
+**How Conservatives on the Supreme Court Weakened the Voting Rights Act**\
+`The Supreme Court just overturned Louisiana’s congressional voting map, landing the latest blow to the landmark Voting Rights Act. Abbie VanSickle, a reporter covering the court for The New York Times, explains.`\
+https://www.nytimes.com/video/us/100000010870969/how-conservatives-on-the-supreme-court-weakened-the-voting-rights-act.html
+
+**Maryland Sixth Congressional District 2026: Latest Polls**\
+`Track the latest polls in Maryland's 6th Congressional District.`\
+https://www.nytimes.com/interactive/polls/maryland-us-house-6-polls-2026.html
+
+**Maryland Fifth Congressional District 2026: Latest Polls**\
+`Track the latest polls in Maryland's 5th Congressional District.`\
+https://www.nytimes.com/interactive/polls/maryland-us-house-5-polls-2026.html
+
+**Hegseth Says Iran Cease-Fire Stops Clock for Congressional Approval**\
+`The defense secretary testified on the eve of the 60-day mark of the war, a major statutory deadline for the president to withdraw forces or seek approval from Congress to continue the fight.`\
+https://www.nytimes.com/2026/04/30/us/politics/hegseth-iran-cease-fire-congress.html
+
+**What’s Going On in This Picture? | May 4, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://www.nytimes.com/2026/04/30/learning/whats-going-on-in-this-picture-may-4-2026.html
+
+**What’s Going On in This Graph? | May 6, 2026**\
+`How much of your household income goes toward health insurance premiums?`\
+https://www.nytimes.com/2026/04/30/learning/whats-going-on-in-this-graph-may-6-2026.html
+
+**6 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/04/30/books/review/new-recommended-books.html
+
+**How the Voting Rights Act Bolstered Black Representation in the House**\
+`The passage of the landmark law in 1965 helped increase Black representation, especially in the South, according to a Times analysis.`\
+https://www.nytimes.com/interactive/2026/04/30/us/politics/voting-rights-act-black-population-congress.html
+
+**Camp Mystic, Where 28 Died, Says It Will Not Reopen This Summer**\
+`In a statement, the camp said it told Texas regulators that it was “withdrawing its application for a summer 2026 camp license” after catastrophic flooding last summer.`\
+https://www.nytimes.com/2026/04/30/us/camp-mystic-texas-floods-closure.html
+
+**House Passes Stalled Homeland Security Funding Bill, Ending Shutdown**\
+`Republicans were forced to use a special maneuver to steer around opposition in their own party and speed the measure to the floor, relying on Democratic cooperation to push it through.`\
+https://www.nytimes.com/2026/04/30/us/politics/house-homeland-security-funding-bill.html
+
 **Mills Exit Is a Blow to Schumer as Democrats Question His Strategy**\
 `Senator Chuck Schumer, the New York Democrat and minority leader, considered the Maine governor his top recruit for winning the majority. Critics said her collapse showed he is out of touch with the party’s voters.`\
 https://www.nytimes.com/2026/04/30/us/politics/janet-mills-schumer-strategy.html
