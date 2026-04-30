@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/30/technology/openai-trial-sam-altman-elon-musk/heres-the-latest
+
 **Los Angeles Mayoral Election 2026: Latest Polls**\
 `Track the latest polls in the Los Angeles mayoral election.`\
 https://www.nytimes.com/interactive/polls/los-angeles-mayor-election-polls-2026.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/30/podcasts/the-jeffrey-e-epstein-fund-for-women
 **The Case for Returning the Koh-i-Noor Diamond Has a New Backer: Mamdani**\
 `Mayor Zohran Mamdani of New York suggested that Britain should return the gem, a symbol of colonial plunder. Here’s the back story of the famed jewel.`\
 https://www.nytimes.com/2026/04/30/nyregion/kohinoor-diamond-india-history-mamdani-king-charles.html
-
-**Trump and Putin Talk, and Ukraine Shrugs**\
-`More than a year of similar conversations have failed to bring the country any closer to peace, so Ukrainians have stopped hoping they will.`\
-https://www.nytimes.com/2026/04/30/world/europe/trump-putin-ukraine-zelensky-peace-talks.html
 

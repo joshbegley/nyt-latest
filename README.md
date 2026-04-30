@@ -1,3 +1,7 @@
+**The Vaccine Skeptic in Trump’s New C.D.C. Leadership Team**\
+`Dr. Sara Brenner is a physician, an F.D.A. official and a “MAHA mom” who has said people should not reflexively believe in the benefits of vaccines.`\
+https://www.nytimes.com/2026/04/30/health/sara-brenner-cdc-kennedy.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/04/30/technology/openai-trial-sam-altman-elon-musk/heres-the-latest
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/30/espanol/mundo/estrecho-ormuz-iran-peaje.ht
 **The Jeffrey E. Epstein Fund for Women’s Athletics**\
 `An investigation by Pablo and Dhruv Patel of The Harvard Crimson.`\
 https://www.nytimes.com/2026/04/30/podcasts/the-jeffrey-e-epstein-fund-for-womens-athletics.html
-
-**The Case for Returning the Koh-i-Noor Diamond Has a New Backer: Mamdani**\
-`Mayor Zohran Mamdani of New York suggested that Britain should return the gem, a symbol of colonial plunder. Here’s the back story of the famed jewel.`\
-https://www.nytimes.com/2026/04/30/nyregion/kohinoor-diamond-india-history-mamdani-king-charles.html
 

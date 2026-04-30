@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/04/30/technology/openai-trial-sam-altman-elon-musk/heres-the-latest
+
 **Los Angeles Mayoral Election 2026: Latest Polls**\
 `Track the latest polls in the Los Angeles mayoral election.`\
 https://www.nytimes.com/interactive/polls/los-angeles-mayor-election-polls-2026.html
