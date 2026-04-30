@@ -18,8 +18,8 @@ https://www.nytimes.com/2026/04/30/business/bank-of-england-european-central-ban
 `Quotation of the Day for Thursday, April 30, 2026.`\
 https://www.nytimes.com/2026/04/30/pageoneplus/quote-of-the-day-blood-feuds-have-faded-as-rivals-play-nice-r.html
 
-**Her Daughter Was Raped and Killed. Now She’s Seeking Office, and Justice.**\
-`Ratna Debnath is a candidate for the party of Prime Minister Narendra Modi of India, which is campaigning on women’s safety in a state election.`\
+**Her Daughter Was Raped and Killed. Now She’s Seeking Office — and Justice.**\
+`Ratna Debnath is a candidate for Prime Minister Narendra Modi’s party, which is campaigning on women’s safety in an Indian state election.`\
 https://www.nytimes.com/2026/04/30/world/asia/india-elections-bjp-ratna-debnath.html
 
 **In France, Trump’s Triumphal Arch Draws Eye Rolls, and Echoes of Napoleon**\
