@@ -1,5 +1,5 @@
 **Korean Air Bans Roosters on U.S. Flights to the Philippines**\
-`The airline was used by chicken breeders to illegally transport roosters for cockfights, an animal welfare group said.`\
+`The airline was used by chicken breeders in Texas to illegally transport roosters for cockfights, an animal welfare group said.`\
 https://www.nytimes.com/2026/04/30/world/asia/korean-air-cockfighting-roosters-philippines.html
 
 **De estrechos y peajes**\
