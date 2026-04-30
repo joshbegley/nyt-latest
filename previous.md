@@ -1,3 +1,11 @@
+**Man Charged in Trump Assassination Attempt to Stay in Jail for Now**\
+`Cole Tomas Allen’s lawyers said he was in 24-hour lockdown and asked for him to be placed in less restrictive conditions. Allen is due back in court on May 11.`\
+https://www.nytimes.com/2026/04/30/us/trump-shooting-suspect-cole-tomas-allen-jail.html
+
+**Supreme Leader Says Iran Is Planning for Ongoing Control of Strait**\
+`Ayatollah Mojtaba Khamenei said in a statement that Iran would establish “new legal frameworks” for the Strait of Hormuz. He also said his country would retain its nuclear capabilities.`\
+https://www.nytimes.com/2026/04/30/world/middleeast/iran-war-supreme-leader-mojtaba-khamenei-strait-hormuz.html
+
 **George Baselitz, German Neo-Expressionist Painter, Dies at 88**\
 `Along with contemporaries like Anselm Kiefer, he mounted a frontal attack on Minimalism and Conceptualism, the dominant “cool” styles of the 1970s.`\
 https://www.nytimes.com/2026/04/30/arts/design/george-baselitz-dead.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/04/30/briefing/today-in-short.html
 **Journalist Detained in Kuwait Says He Was Stripped of Citizenship**\
 `Ahmed Shihab-Eldin, a Kuwaiti-American, was held for several weeks after posting about the Iran war. Kuwait does not appear to have commented publicly on his case.`\
 https://www.nytimes.com/2026/04/30/world/middleeast/ahmed-shihab-eldin-citizenship.html
-
-**Lovely Laksa Noodle Salad**\
-`A crunchy, craveable dish from — who else? — the salad queen Hetty Lui McKinnon.`\
-https://www.nytimes.com/2026/04/30/dining/lovely-laksa-noodle-salad.html
-
-**Europa evalúa sus políticas económicas ante el alza de los precios de combustible**\
-`El Banco Central Europeo y el Banco de Inglaterra mantuvieron estables las tasas de interés el jueves, mientras buscan señales de posibles daños a más largo plazo.`\
-https://www.nytimes.com/es/2026/04/30/espanol/negocios/europa-precios-combustible.html
 
