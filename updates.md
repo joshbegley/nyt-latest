@@ -1,3 +1,7 @@
+**G.O.P. Congress Struggles to Do the Basics Amid Party Infighting**\
+`House Republicans toiled to pass major measures as lawmakers  tried to fund homeland security, extend spy powers and deliver a farm bill.`\
+https://www.nytimes.com/2026/04/29/us/politics/congressional-republicans-dysfunction.html
+
 **House Adopts Budget to Unlock $70 Billion for Immigration Enforcement**\
 `The measure will allow the G.O.P. to begin working on a filibuster-proof bill to fund ICE and C.B.P., part of their plan to reopen the long-shuttered Department of Homeland Security.`\
 https://www.nytimes.com/2026/04/29/us/politics/house-ice-budget-immigration.html
