@@ -1,3 +1,11 @@
+**The Lasting Influence of Edna Lewis’s ‘Taste of Country Cooking’**\
+`Fifty years since its publication, the Virginia chef and writer’s pioneering cookbook continues to hold sway.`\
+https://www.nytimes.com/2026/05/01/dining/edna-lewis-taste-of-country-cooking.html
+
+**Anti-Billionaire May Day Protests Expected Across the Country on Friday**\
+`Organizers have billed the events as a nationwide day of action to demand policies that put the interests of working people over those of the ultrawealthy.`\
+https://www.nytimes.com/2026/05/01/us/may-day-protests.html
+
 **‘Michael’ Is Pure Propaganda**\
 `Wesley Morris and the film curator, Eric Hynes, review “Michael” and consider better approaches to a Michael Jackson biopic.`\
 https://www.nytimes.com/video/podcasts/100000010867924/michael-is-pure-propaganda.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/01/arts/music/taylor-swift-interview-behind-the-
 **Small Plane Crashes in Texas, Killing 5**\
 `Emergency personnel responded to the crash site near Wimberley late Thursday night, officials said. The victims have not yet been publicly identified.`\
 https://www.nytimes.com/2026/05/01/us/plane-crash-texas-deaths.html
-
-**Today, In Short**\
-`Phone addictions. A big sea lion. And a chore coat.`\
-https://www.nytimes.com/2026/05/01/briefing/today-in-short.html
-
-**What’s Safe to Eat? Birds of a Feather Learn Together**\
-`In a study, Australian cockatoos figured out that a new food was OK to consume by observing one another, a vivid example of “social learning” in animals.`\
-https://www.nytimes.com/2026/05/01/science/whats-safe-to-eat-birds-of-a-feather-learn-together.html
 
