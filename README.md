@@ -1,3 +1,19 @@
+**Who Really Has the Cards? Trump, Iran or A.I.?**\
+`A.I. will drastically increase the power of small states and groups in conflict with the great powers.`\
+https://www.nytimes.com/2026/05/01/opinion/trump-iran-artificial-intelligence-china.html
+
+**En Irán, se vive con dolor e impotencia bajo una fachada de tranquilidad**\
+`Tras meses de agitación, muchos intentan seguir adelante con sus vidas mientras luchan en silencio contra el dolor, el estrés económico y la pérdida de esperanza.`\
+https://www.nytimes.com/es/2026/05/01/espanol/mundo/iran-situacion-actual.html
+
+**India Is Prototyping a Dangerous New Model of Web Censorship**\
+`The Modi administration’s systematic throttling of free speech sets a dangerous precedent for the world.`\
+https://www.nytimes.com/2026/05/01/opinion/india-modi-internet-censorship.html
+
+**Cuando el ruido de la comida se detuvo**\
+`Antes del auge de los medicamentos GLP-1, los expertos en obesidad no estudiaban ese ruido interior que obliga a las personas a comer. Ahora que el ruido de la comida está cediendo, quieren entenderlo.`\
+https://www.nytimes.com/es/2026/05/01/espanol/estilos-de-vida/ruido-comida-medicamentos-obesidad.html
+
 **Probablemente tus contraseñas estén en peligro**\
 `La fantasía de los hackers se hizo realidad cuando el nuevo modelo de IA de Anthropic demostró que podía detectar vulnerabilidades de software.`\
 https://www.nytimes.com/es/2026/05/01/espanol/opinion/ciberseguridad-mythos-contrasenas.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/video/opinion/100000010792341/whats-lost-when-we-give-up
 **What if Your Waymo or Tesla Hallucinates?**\
 `Self-driving cars can still make mistakes, sometimes with frightening consequences. On “Interesting Times,” the author Andrew Miller joins the columnist Ross Douthat to discuss the inhuman errors these cars sometimes make, and whether they can be hacked.`\
 https://www.nytimes.com/video/opinion/100000010792352/what-if-your-waymo-or-tesla-hallucinates.html
-
-**Sticks in Locks**\
-`Rena Cohen opens our solving weekend with her themeless debut.`\
-https://www.nytimes.com/2026/04/30/crosswords/daily-puzzle-2026-05-01.html
-
-**‘Moby Dick’ Review: Robert Wilson’s Last Masterpiece**\
-`Wilson’s 2024 adaptation of Herman Melville’s classic, with music by the British singer-songwriter Anna Calvi, has a short run at the Brooklyn Academy of Music.`\
-https://www.nytimes.com/2026/04/30/theater/moby-dick-review-robert-wilsons-bam.html
-
-**El primer vuelo directo desde EE. UU. aterriza en Caracas después de 7 años**\
-`Funcionarios de American Airlines, del condado de Miami-Dade, del gobierno de EE. UU. y del gobierno venezolano celebraron el paso más reciente en el restablecimiento de los lazos entre ambos países.`\
-https://www.nytimes.com/es/2026/04/30/espanol/america-latina/vuelo-directo-ee-uu-venezuela.html
-
-**Schumer and Platner Talk After Mills Suspends Her Campaign**\
-`The top Senate Democrat and the Maine contender had what was described as a cordial conversation despite Schumer’s backing of his primary opponent.`\
-https://www.nytimes.com/2026/04/30/us/politics/schumer-platner-mills-maine-senate.html
 
