@@ -1,3 +1,19 @@
+**9-Year-Old Hit and Killed by School Bus in Brooklyn**\
+`The police said the boy was crossing the street when he was hit by a driver making a left turn.`\
+https://www.nytimes.com/2026/05/01/nyregion/child-killed-school-bus-brooklyn.html
+
+**Jury Convicts Florida Ex-Congressman of Secretly Lobbying for Venezuela**\
+`The nation’s state-run oil company hired David Rivera’s consulting firm for $50 million to influence members of Congress and the White House.`\
+https://www.nytimes.com/2026/05/01/us/david-rivera-florida-verdict-trial.html
+
+**Spirit Airlines Prepares to Shut Down**\
+`The low-fare airline, which has struggled for years, had been trying to secure a $500 million lifeline from the Trump administration.`\
+https://www.nytimes.com/2026/05/01/business/spirit-airlines-shutting-down.html
+
+**Florida Redistricts in Republicans’ Favor**\
+`Our politics reporter Nick Corasaniti explains how Florida redrew its congressional district maps to create four more Republican-leaning House seats.`\
+https://www.nytimes.com/video/us/politics/100000010867480/florida-redistricts-in-republicans-favor.html
+
 **Schwab Affiliate Halts Customer Donations to Southern Poverty Law Center**\
 `Fidelity and Vanguard’s donor-advised fund entities have taken similar actions in the wake of a Justice Department indictment of the civil rights group.`\
 https://www.nytimes.com/2026/05/01/business/schwab-donations-southern-poverty-law-center.html

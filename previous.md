@@ -1,3 +1,19 @@
+**9-Year-Old Hit and Killed by School Bus in Brooklyn**\
+`The police said the boy was crossing the street when he was hit by a driver making a left turn.`\
+https://www.nytimes.com/2026/05/01/nyregion/child-killed-school-bus-brooklyn.html
+
+**Jury Convicts Florida Ex-Congressman of Secretly Lobbying for Venezuela**\
+`The nation’s state-run oil company hired David Rivera’s consulting firm for $50 million to influence members of Congress and the White House.`\
+https://www.nytimes.com/2026/05/01/us/david-rivera-florida-verdict-trial.html
+
+**Spirit Airlines Prepares to Shut Down**\
+`The low-fare airline, which has struggled for years, had been trying to secure a $500 million lifeline from the Trump administration.`\
+https://www.nytimes.com/2026/05/01/business/spirit-airlines-shutting-down.html
+
+**Florida Redistricts in Republicans’ Favor**\
+`Our politics reporter Nick Corasaniti explains how Florida redrew its congressional district maps to create four more Republican-leaning House seats.`\
+https://www.nytimes.com/video/us/politics/100000010867480/florida-redistricts-in-republicans-favor.html
+
 **Schwab Affiliate Halts Customer Donations to Southern Poverty Law Center**\
 `Fidelity and Vanguard’s donor-advised fund entities have taken similar actions in the wake of a Justice Department indictment of the civil rights group.`\
 https://www.nytimes.com/2026/05/01/business/schwab-donations-southern-poverty-law-center.html
@@ -57,20 +73,4 @@ https://www.nytimes.com/2026/05/01/world/middleeast/iran-new-proposal-peace-talk
 ****\
 ``\
 https://www.nytimes.com/video/embedded/admin/100000010875027/01vid-allen-moment-cinemagraph-53993.html
-
-**Kacey Musgraves Sounds Right at Home in the ‘Middle of Nowhere’**\
-`The country singer and songwriter’s sixth album is a triumph of self-realization that reunites her with early collaborators and a former foe (Miranda Lambert).`\
-https://www.nytimes.com/2026/05/01/arts/music/kacey-musgraves-middle-of-nowhere-review.html
-
-****\
-`The white circle around Allen in this video was added to the footage by the F.B.I.`\
-https://www.nytimes.com/video/embedded/admin/100000010875013/01vid-allen-door-cinemagraph-12413.html
-
-**‘Anything Can Happen’: Performing the Heroine of ‘Eugene Onegin’**\
-`The soprano Asmik Grigorian is starring as Tatiana, one of her signature roles, in Tchaikovsky’s classic at the Metropolitan Opera.`\
-https://www.nytimes.com/2026/05/01/arts/music/asmik-grigorian-soprano-eugene-onegin.html
-
-****\
-``\
-https://www.nytimes.com/video/embedded/admin/100000010874994/01vid-allen-trench-cinemagraph-13987.html
 
