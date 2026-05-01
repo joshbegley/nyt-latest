@@ -1,3 +1,7 @@
+**‘We Have Always Known’: Sinaloans Say the Reckoning Over Corrupt Leaders Was Overdue**\
+`The U.S. indictment of a Mexican governor confirms what many residents say they had long suspected: The line between organized crime and the upper echelons of government has blurred.`\
+https://www.nytimes.com/2026/05/01/world/americas/us-indictment-sinaloa-governor-cartels-drugs.html
+
 **It’s Harder Than Ever to Get Federal Disaster Aid. Even in Red States.**\
 `During President Trump’s second term, the disaster declarations that unlock money are taking longer than in the past. Blue states wait the longest and they hear ‘no’ more often.`\
 https://www.nytimes.com/2026/05/01/climate/fema-disaster-aid-slowdowns.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/01/business/oil-prices-stocks-iran.html
 **F.D.A. Grants Early Access to Promising Drug for Pancreatic Cancer**\
 `Patients with one of the deadliest cancers have been pleading for an unapproved treatment that may prolong their lives.`\
 https://www.nytimes.com/2026/05/01/business/fda-pancreatic-cancer-drug.html
-
-**The Taylor Swift Interview: Behind the Scenes**\
-`On “Popcast,” the reporter Joe Coscarelli discusses what it was like to talk to Swift about songwriting with the critic Jon Caramanica.`\
-https://www.nytimes.com/2026/05/01/arts/music/taylor-swift-interview-behind-the-scenes.html
 
