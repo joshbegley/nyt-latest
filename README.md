@@ -1,3 +1,7 @@
+**Trump’s Tariff Reversal Reopens a Major Market for Scotch Whisky**\
+`A 10 percent tax on American imports was hurting British sales, even though exporters had increased sales in India, China and other countries.`\
+https://www.nytimes.com/2026/05/01/business/trump-scotch-whisky-tariffs.html
+
 **Utility Bills Are Likely to Be Higher This Summer. Here’s What You Can Do.**\
 `The average bill is forecast to rise 8.5 percent. There are simple ways to make sure you’re not overpaying, like getting your air-conditioning checked.`\
 https://www.nytimes.com/2026/05/01/your-money/electricity-costs-summer.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/01/world/middleeast/lebanon-hezbollah-ceasefire-
 **What the End of Saudi Arabia’s Big-Spending Era Means for the Kingdom and Beyond**\
 `The kingdom is pulling back from a costly and high-profile golf venture amid mounting financial concerns, raising questions about its plans.`\
 https://www.nytimes.com/2026/05/01/world/middleeast/saudi-arabia-spending-sports-liv-golf.html
-
-**The New York Times News Quiz, May 1, 2026**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://www.nytimes.com/interactive/2026/05/01/briefing/quiz-whcd-comey-king-charles-scotus.html
 
