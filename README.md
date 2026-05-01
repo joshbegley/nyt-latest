@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/05/01/us/trump-shooting-political-violence-us.html
 `Security questions linger nearly a week after a gunman stormed a security checkpoint at the annual dinner.`\
 https://www.nytimes.com/2026/05/01/us/secret-service-whcd-hearings.html
 
-**Takeaways from Week 2 of the Harvey Weinstein Trial**\
+**Takeaways from Week 2 of Testimony in the Harvey Weinstein Trial**\
 `Jessica Mann, who accused Mr. Weinstein of raping her at a hotel in 2013, is testifying against him for the third time. It seems to be taking a toll on her.`\
 https://www.nytimes.com/2026/05/01/nyregion/weinstein-trial-takeaways.html
 
