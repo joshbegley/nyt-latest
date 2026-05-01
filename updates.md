@@ -1,3 +1,11 @@
+**OpenAI’s New Model Spurs Debate Over A.I.’s Resource War**\
+`Sam Altman suggested it would be released more widely than a rival offering from Anthropic. Some are suggesting it’s because OpenAI has more computing power.`\
+https://www.nytimes.com/2026/05/01/business/dealbook/openai-anthropic-compute.html
+
+**Fed Officials Cite Inflation Concerns in Defending Dissents**\
+`The Federal Reserve’s meeting this week was the most divisive in decades, a sign that President Trump’s pick to lead the central bank will face opposition if he pursues substantially lower interest rates.`\
+https://www.nytimes.com/2026/05/01/business/economy/fed-inflation-interest-rate-dissents.html
+
 **‘The Headlines’ News Quiz: May 1, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/05/01/podcasts/the-headlines/the-headlines-news-quiz-may-1-2026.html
