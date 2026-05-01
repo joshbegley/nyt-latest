@@ -1,3 +1,7 @@
+**Southern States Move to Redistrict Under Weakened Voting Rights Act**\
+`Republican-led legislatures in Tennessee and Alabama will reconvene in the coming days. Unlike in Tennessee, however, a new map in Alabama will require Supreme Court action.`\
+https://www.nytimes.com/2026/05/01/us/elections/tennessee-congressional-map.html
+
 **Federal Appeals Court Temporarily Halts Abortion Pills by Mail**\
 `The court order, in a lawsuit by the state of Louisiana, pauses a Food and Drug Administration regulation that greatly expanded access to the abortion pill mifepristone.`\
 https://www.nytimes.com/2026/05/01/well/abortion-drugs-mail-order.html
