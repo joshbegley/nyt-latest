@@ -1,3 +1,11 @@
+**Why U.S. Oil Companies Are Not Plugging the World’s Energy Gap**\
+`American producers are under pressure from investors to keep spending in check, and they are wary of drilling more wells because they are not sure oil prices will stay high.`\
+https://www.nytimes.com/2026/05/01/business/energy-environment/exxon-mobile-chevron-oil-iran-war.html
+
+**Apple después de Cook**\
+`Tim Cook hizo que Apple fuera rica. La pregunta para su sucesor es si puede hacer que vuelva a ser “cool”.`\
+https://www.nytimes.com/es/2026/05/01/espanol/mundo/apple-tim-cook.html
+
 **Hegseth in the Hot Seat**\
 `Congress questioned Pete Hegseth, the secretary of defense, over the war in Iran, an accusation of antisemitic remarks and women in combat.`\
 https://www.nytimes.com/2026/05/01/podcasts/the-daily/hegseth-congress-hearing.html
@@ -34,13 +42,13 @@ https://www.nytimes.com/2026/05/01/world/middleeast/saudi-arabia-spending-sports
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://www.nytimes.com/interactive/2026/05/01/briefing/quiz-whcd-comey-king-charles-scotus.html
 
-**Why Mayor Mamdani Didn’t Roll Out the Red Carpet for the Royals**\
-`Zohran Mamdani studiously avoided the type of red-carpet welcome most mayors would prepare for a royal visit, reflecting his upbringing but also drawing some criticism.`\
-https://www.nytimes.com/2026/05/01/nyregion/mamdani-royal-visit.html
-
 **The Gift of Getting Weirder With Age**\
 `It becomes easier to embrace your authentic (and eccentric) self.`\
 https://www.nytimes.com/2026/05/01/well/getting-older-getting-weird.html
+
+**Why Mayor Mamdani Didn’t Roll Out the Red Carpet for the Royals**\
+`Zohran Mamdani studiously avoided the type of red-carpet welcome most mayors would prepare for a royal visit, reflecting his upbringing but also drawing some criticism.`\
+https://www.nytimes.com/2026/05/01/nyregion/mamdani-royal-visit.html
 
 **In Permissive Amsterdam, Ads for Fossil Fuels or Meat Are Now Verboden**\
 `The Dutch city has outlawed advertising that promotes lifestyles linked to high carbon emissions, which is a driver of climate change. It’s a first for a world capital.`\
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/01/arts/music/sofiane-pamart.html
 **This Dance Duo Gets Down to Business, With a Dose of the Erotic**\
 `Bullyache’s show “A Good Man Is Hard to Find,” about the violence of corporate life, combines choreography and theater with pop culture verve.`\
 https://www.nytimes.com/2026/05/01/arts/design/bullyache-a-good-man-is-hard-to-find.html
-
-**How ‘The Boys’ Choreographs Its ‘Ballet of Goo’**\
-`This superhero satire uses spurting blood, whale puppets and the occasional 11-foot penis to get more absurdly violent each season. The creator breaks down its most notorious set pieces.`\
-https://www.nytimes.com/2026/05/01/arts/television/the-boys.html
-
-**9 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/05/01/movies/new-movies-this-week-critics.html
 

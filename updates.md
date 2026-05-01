@@ -1,3 +1,11 @@
+**Why U.S. Oil Companies Are Not Plugging the World’s Energy Gap**\
+`American producers are under pressure from investors to keep spending in check, and they are wary of drilling more wells because they are not sure oil prices will stay high.`\
+https://www.nytimes.com/2026/05/01/business/energy-environment/exxon-mobile-chevron-oil-iran-war.html
+
+**Apple después de Cook**\
+`Tim Cook hizo que Apple fuera rica. La pregunta para su sucesor es si puede hacer que vuelva a ser “cool”.`\
+https://www.nytimes.com/es/2026/05/01/espanol/mundo/apple-tim-cook.html
+
 **Hegseth in the Hot Seat**\
 `Congress questioned Pete Hegseth, the secretary of defense, over the war in Iran, an accusation of antisemitic remarks and women in combat.`\
 https://www.nytimes.com/2026/05/01/podcasts/the-daily/hegseth-congress-hearing.html
