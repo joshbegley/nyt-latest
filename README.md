@@ -1,3 +1,23 @@
+**Hegseth in the Hot Seat**\
+`Congress questioned Pete Hegseth, the secretary of defense, over the war in Iran, an accusation of antisemitic remarks and women in combat.`\
+https://www.nytimes.com/2026/05/01/podcasts/the-daily/hegseth-congress-hearing.html
+
+**The 60-Day Deadline for the War in Iran, and an End to the D.H.S. Shutdown**\
+`Plus, your Friday news quiz.`\
+https://www.nytimes.com/2026/05/01/podcasts/the-headlines/war-iran-dhs-shutdown.html
+
+**Connections Companion No. 1,056**\
+`Scroll down for hints and conversation about the puzzle for Saturday, May 2, 2026.`\
+https://www.nytimes.com/2026/05/01/crosswords/connections-companion-1056.html
+
+**Strands Sidekick No. 790**\
+`Scroll down for hints and conversation about the puzzle for Saturday, May 2, 2026.`\
+https://www.nytimes.com/2026/05/01/crosswords/strands-sidekick-790.html
+
+**Wordle Review No. 1,778**\
+`Scroll down for hints and conversation about the puzzle for Saturday, May 2, 2026.`\
+https://www.nytimes.com/2026/05/01/crosswords/wordle-review-1778.html
+
 **Failure to Report: How Harvard Whitewashed Jeffrey Epstein’s Millions (Part 2)**\
 `Pablo and The Harvard Crimson’s Dhruv Patel continue their investigation.`\
 https://www.nytimes.com/2026/05/01/podcasts/failure-to-report-how-harvard-whitewashed-jeffrey-epsteins-millions-part-2.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/05/01/arts/television/the-boys.html
 **9 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://www.nytimes.com/2026/05/01/movies/new-movies-this-week-critics.html
-
-**Solve the May Bonus Puzzle**\
-`This month’s rock music themed grid was co-constructed by Jeff Tweedy, who is best known as the frontman of Wilco.`\
-https://www.nytimes.com/2026/05/01/crosswords/bonus-puzzle-wilco-music.html
-
-**What We Know About New York’s Proposed Tax Increases**\
-`City leaders and state lawmakers are pushing Gov. Kathy Hochul to raise taxes on the wealthy, and they have floated several options.`\
-https://www.nytimes.com/2026/05/01/nyregion/new-york-tax-proposals.html
-
-**The World’s Central Banks Are Wrestling With a Gigantic Problem**\
-`Inflationary surges and economic slowdowns set off by the war in Iran, tariffs and other Trump policies have forced monetary officials to adjust, our columnist says.`\
-https://www.nytimes.com/2026/05/01/business/iran-war-interest-rates-central-banks.html
-
-**$1.8 Million Homes in Budapest**\
-`A duplex penthouse in the heart of the city, a three-bedroom condo in a leafy neighborhood, and a four-bedroom house with a terraced garden.`\
-https://www.nytimes.com/2026/05/01/realestate/1-8-million-homes-in-budapest.html
-
-**As Kentucky Derby Becomes a Bigger Business, Locals Feel Left Behind**\
-`Locals say rising ticket prices and a late start time for the Oaks race on Friday are hurting residents and restaurants. “The only thing I see is greed,” one steakhouse owner said.`\
-https://www.nytimes.com/2026/05/01/business/kentucky-derby-churchill-downs.html
 
