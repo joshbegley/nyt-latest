@@ -1,3 +1,11 @@
+**OpenAI’s New Model Spurs Debate Over A.I.’s Resource War**\
+`Sam Altman suggested it would be released more widely than a rival offering from Anthropic. Some are suggesting it’s because OpenAI has more computing power.`\
+https://www.nytimes.com/2026/05/01/business/dealbook/openai-anthropic-compute.html
+
+**Fed Officials Cite Inflation Concerns in Defending Dissents**\
+`The Federal Reserve’s meeting this week was the most divisive in decades, a sign that President Trump’s pick to lead the central bank will face opposition if he pursues substantially lower interest rates.`\
+https://www.nytimes.com/2026/05/01/business/economy/fed-inflation-interest-rate-dissents.html
+
 **‘The Headlines’ News Quiz: May 1, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/05/01/podcasts/the-headlines/the-headlines-news-quiz-may-1-2026.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/01/well/getting-older-getting-weird.html
 **Why Mayor Mamdani Didn’t Roll Out the Red Carpet for the Royals**\
 `Zohran Mamdani studiously avoided the type of red-carpet welcome most mayors would prepare for a royal visit, reflecting his upbringing but also drawing some criticism.`\
 https://www.nytimes.com/2026/05/01/nyregion/mamdani-royal-visit.html
-
-**In Permissive Amsterdam, Ads for Fossil Fuels or Meat Are Now Verboden**\
-`The Dutch city has outlawed advertising that promotes lifestyles linked to high carbon emissions, which is a driver of climate change. It’s a first for a world capital.`\
-https://www.nytimes.com/2026/05/01/climate/in-permissive-amsterdam-ads-for-fossil-fuels-or-meat-are-now-verboden.html
-
-**Collins and Platner Face Off: 5 Takeaways From the Maine Senate Shake-Up**\
-`The exit of Gov. Janet Mills kicked off the general election early in what is likely to be one of the most important, expensive and combative Senate races of 2026.`\
-https://www.nytimes.com/2026/05/01/us/politics/maine-senate-race-platner-collins-mills-takeaways.html
 
