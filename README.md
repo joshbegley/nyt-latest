@@ -62,7 +62,7 @@ https://www.nytimes.com/2026/05/01/climate/fema-disaster-aid-slowdowns.html
 `Fifty years since its publication, the Virginia chef and writer’s pioneering cookbook continues to hold sway.`\
 https://www.nytimes.com/2026/05/01/dining/edna-lewis-taste-of-country-cooking.html
 
-**Anti-Billionaire May Day Protests Expected Across the Country on Friday**\
+**May Day Protests Across the Country Show Support for Workers**\
 `Organizers have billed the events as a nationwide day of action to demand policies that put the interests of working people over those of the ultrawealthy.`\
 https://www.nytimes.com/2026/05/01/us/may-day-protests.html
 
