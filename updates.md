@@ -1,3 +1,19 @@
+**War in Iran Is Making the Hajj, the Muslim Pilgrimage, More Expensive**\
+`Soaring jet fuel prices stemming from the war, the government of India said, have forced it to hike hajj package prices for its citizens.`\
+https://www.nytimes.com/2026/05/01/world/asia/iran-war-hajj-cost-india.html
+
+**The Voting Rights Act**\
+`We explain the significance of the Supreme Court’s decision.`\
+https://www.nytimes.com/2026/05/01/briefing/the-voting-rights-act.html
+
+**What Body Cam Footage Reveals About ICE’s Tactics**\
+`New body camera footage from Nashville reveals a disturbing pattern of ICE and state troopers using minor traffic stops to target Black and brown drivers.`\
+https://www.nytimes.com/video/opinion/100000010873293/what-body-cam-footage-reveals-about-ices-tactics.html
+
+**OpenAI’s Big Reset + A.I. in the Doctor’s Office + Talkie, a pre-1930s LLM**\
+`Will the rising tide of A.I. adoption lift all boats?`\
+https://www.nytimes.com/2026/05/01/podcasts/hardfork-openai-doctors-talkie.html
+
 **Why U.S. Oil Companies Are Not Plugging the World’s Energy Gap**\
 `American producers are under pressure from investors to keep spending in check, and they are wary of drilling more wells because they are not sure oil prices will stay high.`\
 https://www.nytimes.com/2026/05/01/business/energy-environment/exxon-mobile-chevron-oil-iran-war.html
