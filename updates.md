@@ -1,3 +1,7 @@
+**Louisiana Governor Signs Law Blocking Ex-Prisoner From Taking Office**\
+`Calvin Duncan had been exonerated and elected as criminal court clerk in New Orleans. Gov. Jeff Landry eliminated the role as part of an effort to reshape the city’s judicial system.`\
+https://www.nytimes.com/2026/05/01/us/calvin-duncan-new-orleans-criminal-court-jeff-landry.html
+
 **On May Day Cuba’s Communist Leaders Deliver a Defiant Tone to the U.S.**\
 `In front of the American Embassy in Havana, the Cuban government held its annual International Worker’s Day celebration as the United States sought to end the communist ruling system.`\
 https://www.nytimes.com/2026/05/01/world/americas/cuba-may-day-international-workers-day.html
