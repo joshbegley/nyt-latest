@@ -1,3 +1,15 @@
+**Federal Appeals Court Temporarily Halts Abortion Pills by Mail**\
+`The court order, in a lawsuit by the state of Louisiana, pauses a Food and Drug Administration regulation that greatly expanded access to the abortion pill mifepristone.`\
+https://www.nytimes.com/2026/05/01/well/abortion-drugs-mail-order.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/us/politics/100000010876287/02vid-hegseth-moulton-69845.html
+
+**Tennessee Legislators Are Summoned to Redraw State’s House Map**\
+`Gov. Bill Lee asked the General Assembly for a new map that is expected to eliminate the state’s last Democratic seat after the Supreme Court undermined mandates for minority representation.`\
+https://www.nytimes.com/2026/05/01/us/elections/tennessee-congressional-map.html
+
 **Trump Tells Congress Why He Doesn’t Need Its Authorization for the Iran War**\
 `In letters to the House and Senate, the president asserted that the hostilities had “terminated,” in an apparent attempt to avoid having to seek congressional approval.`\
 https://www.nytimes.com/2026/05/01/us/politics/trump-congress-authorization-iran-war.html
@@ -27,7 +39,7 @@ https://www.nytimes.com/2026/05/01/us/calvin-duncan-new-orleans-criminal-court-j
 https://www.nytimes.com/2026/05/01/world/americas/cuba-may-day-international-workers-day.html
 
 **Bard College’s President Will Retire After Epstein Revelations**\
-`The president, Leon Botstein, who had run Bard for 50 years, faced scrutiny after his connections to Jeffrey Epstein proved to be deeper than previously known.`\
+`The president, Leon Botstein, who had run Bard for 50 years, faced scrutiny over his connections to Jeffrey Epstein.`\
 https://www.nytimes.com/2026/05/01/us/bard-president-leon-botstein-jeffrey-epstein.html
 
 **Student Driver Plunges Bus Into River Seine**\
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/01/nyregion/weinstein-trial-takeaways.html
 **Voters Sue Over Louisiana Governor’s Move to Delay Primary**\
 `Legal challenges are mounting over the decision to suspend the state’s May House primary after a Supreme Court ruling found that the congressional map was unconstitutional.`\
 https://www.nytimes.com/2026/05/01/us/politics/louisiana-voters-lawsuit-election-primary.html
-
-**Flashback: Your Weekly History Quiz, May 2, 2026**\
-`Can you sort 8 historical events?`\
-https://www.nytimes.com/interactive/2026/05/01/upshot/flashback.html
-
-**Charlie Kirk’s Former Security Chief Sues Candace Owens for Defamation**\
-`The lawsuit focuses on remarks made by Ms. Owens, a right-wing podcaster, about Mr. Kirk’s killing, highlighting a growing tension among factions of the American right.`\
-https://www.nytimes.com/2026/05/01/business/media/candace-owens-defamation-charlie-kirk.html
-
-**18 Off Broadway Shows to Catch in May**\
-`“Little Shop of Horrors” has some new stars. “Romeo and Juliet” bring their love to the Delacorte. And Hugh Jackman stars in “New Born” at the Minetta Lane.`\
-https://www.nytimes.com/2026/05/01/arts/18-off-broadway-shows-may-nyc.html
 

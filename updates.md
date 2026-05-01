@@ -1,3 +1,19 @@
+**Federal Appeals Court Temporarily Halts Abortion Pills by Mail**\
+`The court order, in a lawsuit by the state of Louisiana, pauses a Food and Drug Administration regulation that greatly expanded access to the abortion pill mifepristone.`\
+https://www.nytimes.com/2026/05/01/well/abortion-drugs-mail-order.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/us/politics/100000010876287/02vid-hegseth-moulton-69845.html
+
+**Tennessee Legislators Are Summoned to Redraw State’s House Map**\
+`Gov. Bill Lee asked the General Assembly for a new map that is expected to eliminate the state’s last Democratic seat after the Supreme Court undermined mandates for minority representation.`\
+https://www.nytimes.com/2026/05/01/us/elections/tennessee-congressional-map.html
+
+**Bard College’s President Will Retire After Epstein Revelations**\
+`The president, Leon Botstein, who had run Bard for 50 years, faced scrutiny over his connections to Jeffrey Epstein.`\
+https://www.nytimes.com/2026/05/01/us/bard-president-leon-botstein-jeffrey-epstein.html
+
 **Trump Tells Congress Why He Doesn’t Need Its Authorization for the Iran War**\
 `In letters to the House and Senate, the president asserted that the hostilities had “terminated,” in an apparent attempt to avoid having to seek congressional approval.`\
 https://www.nytimes.com/2026/05/01/us/politics/trump-congress-authorization-iran-war.html
