@@ -1,3 +1,11 @@
+**Suspect in Attack on Jewish Men Faces Third Attempted Murder Charge**\
+`A man appeared in court charged with the attempted murder of two Jewish men in Golders Green, in north London, and of another man, an acquaintance, elsewhere in the city.`\
+https://www.nytimes.com/2026/05/01/world/europe/uk-jewish-stabbings-attempted-murder-charges.html
+
+**The Race That Shows What the G.O.P. Is and ‘Everything It Could Become’**\
+`Oregon’s Democratic governor is likely to win re-election, but how voters pick from the ideological array of Republicans challenging her could offer a glimpse at the party post-Trump.`\
+https://www.nytimes.com/2026/05/01/us/elections/oregon-republican-primary-governor.html
+
 **Very Dramatique! 4 Are Rescued After Trainee Driver Plunges Bus Into Seine**\
 `Nobody was hurt and all were rescued after a bus driver in training hit a parked car and veered into the river near Paris, officials said.`\
 https://www.nytimes.com/2026/05/01/world/europe/bus-driver-rescue-seine-paris.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/01/business/energy-environment/exxon-mobile-chev
 **Apple después de Cook**\
 `Tim Cook hizo que Apple fuera rica. La pregunta para su sucesor es si puede hacer que vuelva a ser “cool”.`\
 https://www.nytimes.com/es/2026/05/01/espanol/mundo/apple-tim-cook.html
-
-**Hegseth in the Hot Seat**\
-`Congress questioned Pete Hegseth, the secretary of defense, over the war in Iran, an accusation of antisemitic remarks and women in combat.`\
-https://www.nytimes.com/2026/05/01/podcasts/the-daily/hegseth-congress-hearing.html
-
-**The 60-Day Deadline for the War in Iran, and an End to the D.H.S. Shutdown**\
-`Plus, your Friday news quiz.`\
-https://www.nytimes.com/2026/05/01/podcasts/the-headlines/war-iran-dhs-shutdown.html
 
