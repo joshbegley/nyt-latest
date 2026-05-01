@@ -1,3 +1,11 @@
+**Federal Appeals Court Temporarily Halts Abortion Pills by Mail**\
+`The court order, in a lawsuit by the state of Louisiana, pauses a Food and Drug Administration regulation that greatly expanded access to the abortion pill mifepristone.`\
+https://www.nytimes.com/2026/05/01/well/abortion-drugs-mail-order.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/us/politics/100000010876287/02vid-hegseth-moulton-69845.html
+
 **Tennessee Legislators Are Summoned to Redraw State’s House Map**\
 `Gov. Bill Lee asked the General Assembly for a new map that is expected to eliminate the state’s last Democratic seat after the Supreme Court undermined mandates for minority representation.`\
 https://www.nytimes.com/2026/05/01/us/elections/tennessee-congressional-map.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/01/nyregion/weinstein-trial-takeaways.html
 **Voters Sue Over Louisiana Governor’s Move to Delay Primary**\
 `Legal challenges are mounting over the decision to suspend the state’s May House primary after a Supreme Court ruling found that the congressional map was unconstitutional.`\
 https://www.nytimes.com/2026/05/01/us/politics/louisiana-voters-lawsuit-election-primary.html
-
-**Flashback: Your Weekly History Quiz, May 2, 2026**\
-`Can you sort 8 historical events?`\
-https://www.nytimes.com/interactive/2026/05/01/upshot/flashback.html
-
-**Charlie Kirk’s Former Security Chief Sues Candace Owens for Defamation**\
-`The lawsuit focuses on remarks made by Ms. Owens, a right-wing podcaster, about Mr. Kirk’s killing, highlighting a growing tension among factions of the American right.`\
-https://www.nytimes.com/2026/05/01/business/media/candace-owens-defamation-charlie-kirk.html
 
