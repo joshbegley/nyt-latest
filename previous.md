@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, May 2, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/05/01/upshot/flashback.html
+
 **Charlie Kirk’s Former Security Chief Sues Candace Owens for Defamation**\
 `The lawsuit focuses on remarks made by Ms. Owens, a right-wing podcaster, about Mr. Kirk’s killing, highlighting a growing tension among factions of the American right.`\
 https://www.nytimes.com/2026/05/01/business/media/candace-owens-defamation-charlie-kirk.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/podcasts/100000010867924/michael-is-pure-propagand
 **Are You Booked on Spirit? Here’s What You Need to Know.**\
 `After two stints in bankruptcy, the low-cost airline appears close to shutting down. Here’s what travelers should know about rebooking and refunds if Spirit stops flying.`\
 https://www.nytimes.com/2026/05/01/travel/spirit-airlines-bankruptcy-tickets-refunds.html
-
-**The Super Shoe’s Step-by-Step Evolution**\
-`The race to near-weightlessness has been a driving force of innovation in running sneakers and helped lead to records shattering at the London Marathon.`\
-https://www.nytimes.com/2026/05/01/sports/running-shoe-history-adidas-sneakers-london-marathon.html
 

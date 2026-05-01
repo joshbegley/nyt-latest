@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, May 2, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/05/01/upshot/flashback.html
+
 **‘The Devil Wears Prada 2’ Lobs a Shot at Corporate Media**\
 `The New York Times film critic Alissa Wilkinson reviews “The Devil Wears Prada 2.”`\
 https://www.nytimes.com/video/movies/100000010852423/devil-wears-prada-2-review.html

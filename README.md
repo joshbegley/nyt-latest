@@ -1,3 +1,7 @@
+**Voters Sue Over Louisiana Governor’s Move to Delay Primary**\
+`Legal challenges are mounting over the decision to suspend the state’s May House primary after a Supreme Court ruling found that the congressional map was unconstitutional.`\
+https://www.nytimes.com/2026/05/01/us/politics/louisiana-voters-lawsuit-election-primary.html
+
 **Flashback: Your Weekly History Quiz, May 2, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/05/01/upshot/flashback.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/01/us/may-day-protests.html
 **‘Michael’ Is Pure Propaganda**\
 `Wesley Morris and the film curator, Eric Hynes, review “Michael” and consider better approaches to a Michael Jackson biopic.`\
 https://www.nytimes.com/video/podcasts/100000010867924/michael-is-pure-propaganda.html
-
-**Are You Booked on Spirit? Here’s What You Need to Know.**\
-`After two stints in bankruptcy, the low-cost airline appears close to shutting down. Here’s what travelers should know about rebooking and refunds if Spirit stops flying.`\
-https://www.nytimes.com/2026/05/01/travel/spirit-airlines-bankruptcy-tickets-refunds.html
 
