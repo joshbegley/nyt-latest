@@ -1,3 +1,11 @@
+**The Supreme Court Steps Backward on Voting and Race**\
+`Readers discuss what one calls “the most recent Supreme Court assault on the Voting Rights Act of 1965.” Also: Shifts in drug policy.`\
+https://www.nytimes.com/2026/05/01/opinion/supreme-court-voting-race.html
+
+**Violence Breaks Out in Australia Over Indigenous Girl’s Killing**\
+`Members of the Indigenous community in Alice Springs, Australia, clashed with the police outside the hospital where a person suspected of killing a 5-year-old girl was taken.`\
+https://www.nytimes.com/video/world/australia/100000010874710/alice-spring-australia-protests-killing.html
+
 **Andy Kershaw, Radio D.J. Who Tuned Britons Into World Music, Dies at 66**\
 `A longtime BBC host, he traveled the world in search of artists his audience “didn’t know they wanted.” Then he took an unexpected turn into war reporting.`\
 https://www.nytimes.com/2026/05/01/arts/music/andy-kershaw-dead.html
