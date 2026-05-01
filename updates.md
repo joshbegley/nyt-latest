@@ -1,3 +1,15 @@
+**Airline Loses, Then Finds, Oscar a Filmmaker Was Forced to Check**\
+`Pavel Talankin, a co-director and star of the documentary “Mr. Nobody Against Putin,” was told by T.S.A. agents that his Academy Award could be used as a weapon.`\
+https://www.nytimes.com/2026/05/01/travel/lost-oscar-found-lufthansa-mr-nobody-against-putin.html
+
+**16 Photos That Captured the Dawn of Punk**\
+`In the 1970s and ’80s, Stephanie Chernikowski, who has died at 84, shot bands like the Ramones and Blondie at CBGB and other downtown clubs.`\
+https://www.nytimes.com/2026/05/01/arts/music/16-photos-that-captured-the-dawn-of-punk.html
+
+**Stephanie Chernikowski, 84, Dies; Photographed the ‘Rough Magic’ of Punk**\
+`She captured the radiant chaos at New York City clubs like CBGB in the 1970s, when bands like the Ramones, Blondie and the Patti Smith Group were emerging.`\
+https://www.nytimes.com/2026/05/01/arts/music/stephanie-chernikowski-dead.html
+
 **‘We Have Always Known’: Sinaloans Say the Reckoning Over Corrupt Leaders Was Overdue**\
 `The U.S. indictment of a Mexican governor confirms what many residents say they had long suspected: The line between organized crime and the upper echelons of government has blurred.`\
 https://www.nytimes.com/2026/05/01/world/americas/us-indictment-sinaloa-governor-cartels-drugs.html

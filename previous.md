@@ -1,3 +1,15 @@
+**Airline Loses, Then Finds, Oscar a Filmmaker Was Forced to Check**\
+`Pavel Talankin, a co-director and star of the documentary “Mr. Nobody Against Putin,” was told by T.S.A. agents that his Academy Award could be used as a weapon.`\
+https://www.nytimes.com/2026/05/01/travel/lost-oscar-found-lufthansa-mr-nobody-against-putin.html
+
+**16 Photos That Captured the Dawn of Punk**\
+`In the 1970s and ’80s, Stephanie Chernikowski, who has died at 84, shot bands like the Ramones and Blondie at CBGB and other downtown clubs.`\
+https://www.nytimes.com/2026/05/01/arts/music/16-photos-that-captured-the-dawn-of-punk.html
+
+**Stephanie Chernikowski, 84, Dies; Photographed the ‘Rough Magic’ of Punk**\
+`She captured the radiant chaos at New York City clubs like CBGB in the 1970s, when bands like the Ramones, Blondie and the Patti Smith Group were emerging.`\
+https://www.nytimes.com/2026/05/01/arts/music/stephanie-chernikowski-dead.html
+
 **‘We Have Always Known’: Sinaloans Say the Reckoning Over Corrupt Leaders Was Overdue**\
 `The U.S. indictment of a Mexican governor confirms what many residents say they had long suspected: The line between organized crime and the upper echelons of government has blurred.`\
 https://www.nytimes.com/2026/05/01/world/americas/us-indictment-sinaloa-governor-cartels-drugs.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/video/us/politics/100000010867480/florida-redistricts-in
 **Schwab Affiliate Halts Customer Donations to Southern Poverty Law Center**\
 `Fidelity and Vanguard’s donor-advised fund entities have taken similar actions in the wake of a Justice Department indictment of the civil rights group.`\
 https://www.nytimes.com/2026/05/01/business/schwab-donations-southern-poverty-law-center.html
-
-**Trump Administration Pushes Forward With Tariffs Based on Forced Labor Laws**\
-`Nonprofit groups have applauded an investigation on trade in goods made with forced labor but say that the Trump administration should go further to enforce its own laws`\
-https://www.nytimes.com/2026/05/01/business/economy/trump-forced-labor-tariffs.html
-
-**Oil Cools Slightly After a 4-Year High as Gasoline Jumps**\
-`The price of Brent crude, the international benchmark, dipped more than 2 percent, while the average price of gasoline across the United States bumped up by 9 cents overnight.`\
-https://www.nytimes.com/2026/05/01/business/oil-prices-stocks-iran.html
-
-**F.D.A. Grants Early Access to Promising Drug for Pancreatic Cancer**\
-`Patients with one of the deadliest cancers have been pleading for an unapproved treatment that may prolong their lives.`\
-https://www.nytimes.com/2026/05/01/business/fda-pancreatic-cancer-drug.html
 
