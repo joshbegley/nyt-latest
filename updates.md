@@ -1,3 +1,7 @@
+**A Night of Civil Discourse Turns to Confrontation at Cornell**\
+`After a debate over the conflict between Israelis and Palestinians, students say the university president hit them with his vehicle. He says he was the victim in the incident.`\
+https://www.nytimes.com/2026/05/01/us/cornell-president-student-protester.html
+
 **Why U.S. Officials Are in Venezuela Right Now**\
 `U.S. officials visited Venezuela after the first direct flight between the two countries since 2019. Our White House correspondent Tyler Pager describes how the main message of the trip was, in the words of a White House adviser “drill, baby, drill.”`\
 https://www.nytimes.com/video/world/americas/100000010874870/why-us-officials-are-in-venezuela-right-now.html
