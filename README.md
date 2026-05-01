@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/05/01/arts/music/seymour-bernstein-dead.html
 `Months into the operation and with midterms looming, some lawmakers are calling for Congress to restrain the president’s war power or set terms for bringing the conflict to a close.`\
 https://www.nytimes.com/2026/05/01/us/politics/trump-war-powers-republicans.html
 
-**‘The Devil Wears Prada 2’ Lobs A Shot At Corporate Media**\
+**‘The Devil Wears Prada 2’ Lobs a Shot at Corporate Media**\
 `The New York Times film critic Alissa Wilkinson reviews “The Devil Wears Prada 2.”`\
 https://www.nytimes.com/video/movies/100000010852423/devil-wears-prada-2-review.html
 
