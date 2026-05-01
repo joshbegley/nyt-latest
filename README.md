@@ -1,3 +1,27 @@
+**‘Michael’ Is Pure Propaganda**\
+`Wesley Morris and the film curator, Eric Hynes, review “Michael” and consider better approaches to a Michael Jackson biopic.`\
+https://www.nytimes.com/video/podcasts/100000010867924/michael-is-pure-propaganda.html
+
+**Are You Booked on Spirit? Here’s What You Need to Know.**\
+`After two stints in bankruptcy, the low-cost airline appears close to shutting down. Here’s what travelers should know about rebooking and refunds if Spirit stops flying.`\
+https://www.nytimes.com/2026/05/01/travel/spirit-airlines-bankruptcy-tickets-refunds.html
+
+**The Super Shoe’s Step-by-Step Evolution**\
+`The race to near-weightlessness has been a driving force of innovation in running sneakers and helped lead to records shattering at the London Marathon.`\
+https://www.nytimes.com/2026/05/01/sports/running-shoe-history-adidas-sneakers-london-marathon.html
+
+**Authorities Release Video of Suspect in Correspondents’ Dinner Attack**\
+`The F.B.I. and prosecutors shared an annotated video showing the suspect sprinting through a checkpoint and raising a gun. A frame-by-frame analysis suggests that he may have fired.`\
+https://www.nytimes.com/2026/05/01/us/politics/correspondents-dinner-gunman-attack-video.html
+
+**At the Kennedy Center, the National Symphony’s Show Goes On**\
+`With ambition that exceeded its grasp, the orchestra performed Puccini’s “Il Trittico” ahead of the center’s expected closure.`\
+https://www.nytimes.com/2026/05/01/arts/music/national-symphony-kennedy-center-il-trittico.html
+
+**Trump Threatens Higher Tariffs on European Cars**\
+`President Trump said that the European Union was not upholding its part of a trade agreement and that he would increase tariffs next week.`\
+https://www.nytimes.com/2026/05/01/us/politics/trump-tariffs-eu-cars.html
+
 **Co-Founder of Superdry Fashion Brand Is Convicted of Rape**\
 `A British jury convicted James Holder, who rose to fame in the mid-2000s for his role in creating the streetwear brand, of raping a woman in May 2022.`\
 https://www.nytimes.com/2026/05/01/world/europe/superdry-james-holder-rape.html
@@ -30,8 +54,8 @@ https://www.nytimes.com/2026/05/01/business/schwab-donations-southern-poverty-la
 `Nonprofit groups have applauded an investigation on trade in goods made with forced labor but say that the Trump administration should go further to enforce its own laws`\
 https://www.nytimes.com/2026/05/01/business/economy/trump-forced-labor-tariffs.html
 
-**Oil Cools Slightly After a 4-Year High**\
-`The price of Brent crude, the international benchmark, dipped more than 2 percent a day after it rose above $120 a barrel in volatile trading.`\
+**Oil Cools Slightly After a 4-Year High as Gasoline Jumps**\
+`The price of Brent crude, the international benchmark, dipped more than 2 percent, while the average price of gasoline across the United States bumped up by 9 cents overnight.`\
 https://www.nytimes.com/2026/05/01/business/oil-prices-stocks-iran.html
 
 **F.D.A. Grants Early Access to Promising Drug for Pancreatic Cancer**\
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/05/01/briefing/today-in-short.html
 **What’s Safe to Eat? Birds of a Feather Learn Together**\
 `In a study, Australian cockatoos figured out that a new food was OK to consume by observing one another, a vivid example of “social learning” in animals.`\
 https://www.nytimes.com/2026/05/01/science/whats-safe-to-eat-birds-of-a-feather-learn-together.html
-
-**What Happened to the Summer Barbecue?**\
-`Are casual cookouts fading, or just evolving? Are you hosting? And what does a summer gathering at your home look like?`\
-https://www.nytimes.com/2026/05/01/style/what-happened-to-the-summer-barbecue.html
-
-**Fifteen Minutes, Five Stars and Over 25,000 Reviews**\
-`Ali Slagle’s turmeric-black pepper chicken with asparagus, and more of our most popular recipes from the week.`\
-https://www.nytimes.com/2026/05/01/dining/fifteen-minutes-five-stars-and-over-25000-reviews.html
-
-**Maryland Is First to Ban A.I.-Driven Price Increases in Grocery Stores**\
-`A state law that goes into effect in October prohibits grocery stores and third-party delivery services from using consumer data to boost prices.`\
-https://www.nytimes.com/2026/05/01/business/surveillance-pricing-groceries-maryland.html
-
-**Profound Autism Is Difficult Enough Without This Debunked Method**\
-`Study after study has called facilitated communication into question.`\
-https://www.nytimes.com/2026/05/01/opinion/autism-facilitated-communication-spelling.html
-
-**Five International Movies to Stream Now**\
-`This month’s picks include a queer Belgian comedy, a romantic drama from Korea, an Argentine film about midlife crises and more.`\
-https://www.nytimes.com/2026/05/01/movies/international-movies-streaming.html
-
-**Iran Sends New Proposal for Peace Talks with U.S., State Media Says**\
-`The details of the latest plan were unclear. President Trump had expressed dissatisfaction over a previous Iranian proposal to end the war and reopen the Strait of Hormuz.`\
-https://www.nytimes.com/2026/05/01/world/middleeast/iran-new-proposal-peace-talks.html
 
