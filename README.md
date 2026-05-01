@@ -1,3 +1,7 @@
+**Probablemente tus contraseñas estén en peligro**\
+`La fantasía de los hackers se hizo realidad cuando el nuevo modelo de IA de Anthropic demostró que podía detectar vulnerabilidades de software.`\
+https://www.nytimes.com/es/2026/05/01/espanol/opinion/ciberseguridad-mythos-contrasenas.html
+
 **10 razones por las que nos encanta ‘El diablo viste a la moda’**\
 `Recordamos los momentos más memorables que convierten la película original en una de las favoritas de los fans.`\
 https://www.nytimes.com/es/2026/05/01/espanol/diablo-viste-moda-mejores-momentos.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/04/30/espanol/america-latina/vuelo-directo-ee-uu
 **Schumer and Platner Talk After Mills Suspends Her Campaign**\
 `The top Senate Democrat and the Maine contender had what was described as a cordial conversation despite Schumer’s backing of his primary opponent.`\
 https://www.nytimes.com/2026/04/30/us/politics/schumer-platner-mills-maine-senate.html
-
-**California Police Can Start Ticketing Driverless Cars**\
-`The Department of Motor Vehicles says it could suspend or revoke permits for Waymo taxis and other driverless cars for continued violations.`\
-https://www.nytimes.com/2026/04/30/us/california-ticket-driverless-car-violations.html
 
