@@ -1,3 +1,7 @@
+**Pentagon Makes Deals With A.I. Companies to Expand Classified Work**\
+`The agreements with six technology companies come amid the Defense Department’s dispute with Anthropic.`\
+https://www.nytimes.com/2026/05/01/us/politics/pentagon-ai-companies-deals.html
+
 **OpenAI’s New Model Spurs Debate Over A.I.’s Resource War**\
 `Sam Altman suggested it would be released more widely than a rival offering from Anthropic. Some are suggesting it’s because OpenAI has more computing power.`\
 https://www.nytimes.com/2026/05/01/business/dealbook/openai-anthropic-compute.html

@@ -1,3 +1,7 @@
+**Pentagon Makes Deals With A.I. Companies to Expand Classified Work**\
+`The agreements with six technology companies come amid the Defense Department’s dispute with Anthropic.`\
+https://www.nytimes.com/2026/05/01/us/politics/pentagon-ai-companies-deals.html
+
 **OpenAI’s New Model Spurs Debate Over A.I.’s Resource War**\
 `Sam Altman suggested it would be released more widely than a rival offering from Anthropic. Some are suggesting it’s because OpenAI has more computing power.`\
 https://www.nytimes.com/2026/05/01/business/dealbook/openai-anthropic-compute.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/05/01/briefing/quiz-whcd-comey-king-cha
 **The Gift of Getting Weirder With Age**\
 `It becomes easier to embrace your authentic (and eccentric) self.`\
 https://www.nytimes.com/2026/05/01/well/getting-older-getting-weird.html
-
-**Why Mayor Mamdani Didn’t Roll Out the Red Carpet for the Royals**\
-`Zohran Mamdani studiously avoided the type of red-carpet welcome most mayors would prepare for a royal visit, reflecting his upbringing but also drawing some criticism.`\
-https://www.nytimes.com/2026/05/01/nyregion/mamdani-royal-visit.html
 
