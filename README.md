@@ -1,3 +1,11 @@
+**Human Remains Found in Tampa Bay Are Identified as Missing Grad Student**\
+`A former University of South Florida student has been charged in the murders of Nahida Bristy and Zamil Limon, doctoral students who were reported missing last month.`\
+https://www.nytimes.com/2026/05/01/us/usf-missing-student-identified.html
+
+**Thermos Recalls 8.2 Million Jars and Bottles After Customers Are Injured**\
+`The company received reports that the stoppers on some of its products had “forcefully ejected,” striking customers and causing permanent vision loss in a few cases, safety regulators said.`\
+https://www.nytimes.com/2026/05/01/business/thermos-bottles-recall.html
+
 **Alabama Governor Calls Special Session to Adopt New House Maps**\
 `Gov. Kay Ivey said a map that would give Republicans an additional House seat cannot be enacted without Supreme Court action, but she wants to be ready if that happens.`\
 https://www.nytimes.com/2026/05/01/us/elections/special-session-redistricting-alabama.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/01/travel/lost-oscar-found-lufthansa-mr-nobody-a
 **16 Photos That Captured the Dawn of Punk**\
 `In the 1970s and ’80s, Stephanie Chernikowski, who has died at 84, shot bands like the Ramones and Blondie at CBGB and other downtown clubs.`\
 https://www.nytimes.com/2026/05/01/arts/music/16-photos-that-captured-the-dawn-of-punk.html
-
-**Stephanie Chernikowski, 84, Dies; Photographed the ‘Rough Magic’ of Punk**\
-`She captured the radiant chaos at New York City clubs like CBGB in the 1970s, when bands like the Ramones, Blondie and the Patti Smith Group were emerging.`\
-https://www.nytimes.com/2026/05/01/arts/music/stephanie-chernikowski-dead.html
-
-**‘We Have Always Known’: Sinaloans Say the Reckoning Over Corrupt Leaders Was Overdue**\
-`The U.S. indictment of a Mexican governor confirms what many residents say they had long suspected: The line between organized crime and the upper echelons of government has blurred.`\
-https://www.nytimes.com/2026/05/01/world/americas/us-indictment-sinaloa-governor-cartels-drugs.html
 
