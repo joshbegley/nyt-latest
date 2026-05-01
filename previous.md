@@ -1,3 +1,7 @@
+**Musk vs. Altman: What Is This Really About?**\
+`In a landmark trial between Elon Musk and OpenAI’s Sam Altman, the origins of OpenAI are being examined. The Times’s technology reporter Cade Metz explains what’s behind it all.`\
+https://www.nytimes.com/video/technology/100000010865043/musk-vs-altman-what-is-this-really-about.html
+
 **FEMA Is Reversing Job Cuts Made Under Kristi Noem**\
 `The agency said staff members who had been let go or placed on administrative leave were now needed to prepare for hurricanes and the World Cup.`\
 https://www.nytimes.com/2026/04/30/climate/fema-job-cuts-reverse.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/30/us/elections/maine-janet-mills-reaction.html
 **Computer Outage Disrupts Student Exams in New York State**\
 `Thousands of children were unable to finish annual standardized tests, the second year in a row when technological issues emerged.`\
 https://www.nytimes.com/2026/04/30/nyregion/ny-student-tests-exams-tech-outage.html
-
-**The Analog Charms of New York’s Intercoms**\
-`New York apartment buzzers are loud, often broken and haven’t been upgraded since the ’70s. But would we have it any other way?`\
-https://www.nytimes.com/interactive/2026/05/01/realestate/nyc-intercoms-analog.html
 

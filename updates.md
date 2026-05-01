@@ -1,3 +1,7 @@
+**Musk vs. Altman: What Is This Really About?**\
+`In a landmark trial between Elon Musk and OpenAI’s Sam Altman, the origins of OpenAI are being examined. The Times’s technology reporter Cade Metz explains what’s behind it all.`\
+https://www.nytimes.com/video/technology/100000010865043/musk-vs-altman-what-is-this-really-about.html
+
 **FEMA Is Reversing Job Cuts Made Under Kristi Noem**\
 `The agency said staff members who had been let go or placed on administrative leave were now needed to prepare for hurricanes and the World Cup.`\
 https://www.nytimes.com/2026/04/30/climate/fema-job-cuts-reverse.html
