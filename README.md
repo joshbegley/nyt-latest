@@ -1,3 +1,7 @@
+**Schumer and Platner Talk After Mills Suspends Her Campaign**\
+`The top Senate Democrat and the Maine contender had what was described as a cordial conversation despite Schumer’s backing of his primary opponent.`\
+https://www.nytimes.com/2026/04/30/us/politics/schumer-platner-mills-maine-senate.html
+
 **California Police Can Start Ticketing Driverless Cars**\
 `The Department of Motor Vehicles says it could suspend or revoke permits for Waymo taxis and other driverless cars for continued violations.`\
 https://www.nytimes.com/2026/04/30/us/california-ticket-driverless-car-violations.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/30/us/stabbing-foss-high-school-tacoma.html
 **Trump Signs Order Expanding Access to Retirement Accounts**\
 `Nearly half of private-sector workers do not have access to workplace plans. The order would make it easier for them to find and open accounts.`\
 https://www.nytimes.com/2026/04/30/your-money/trump-retirement-accounts.html
-
-**The Homeland Security Shutdown Ends**\
-`Also, Maine’s governor bows out of a crucial Senate race. Here’s the latest at the end of Thursday.`\
-https://www.nytimes.com/2026/04/30/briefing/homeland-security-shutdown-ends.html
 

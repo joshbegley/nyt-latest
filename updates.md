@@ -1,3 +1,11 @@
+**California Police Can Start Ticketing Driverless Cars**\
+`The Department of Motor Vehicles says it could suspend or revoke permits for Waymo taxis and other driverless cars for continued violations.`\
+https://www.nytimes.com/2026/04/30/us/california-ticket-driverless-car-violations.html
+
+**Pistachio-Cardamom Cake**\
+`This easy, buttery pistachio cake, topped with crunchy caramelized almonds, packs a punch of flavor, texture and perfume, especially from the cardamom seeds that permeate the batter.`\
+https://www.nytimes.com/video/dining/100000010868085/pistachio-cardamom-cake.html
+
 **Musk vs. Altman: What Is This Really About?**\
 `In a landmark trial between Elon Musk and OpenAI’s Sam Altman, the origins of OpenAI are being examined. The Times’s technology reporter Cade Metz explains what’s behind it all.`\
 https://www.nytimes.com/video/technology/100000010865043/musk-vs-altman-what-is-this-really-about.html
