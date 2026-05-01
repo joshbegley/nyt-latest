@@ -1,3 +1,7 @@
+**What if Your Waymo or Tesla Hallucinates?**\
+`Self-driving cars can still make mistakes, sometimes with frightening consequences. On “Interesting Times,” the author Andrew Miller joins the columnist Ross Douthat to discuss the inhuman errors these cars sometimes make, and whether they can be hacked.`\
+https://www.nytimes.com/video/opinion/100000010792352/what-if-your-waymo-or-tesla-hallucinates.html
+
 **Sticks in Locks**\
 `Rena Cohen opens our solving weekend with her themeless debut.`\
 https://www.nytimes.com/2026/04/30/crosswords/daily-puzzle-2026-05-01.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/30/opinion/graham-platner-janet-mills-susan-coll
 **Hegseth Spars With Senate Democrats Over War in Iran**\
 `Defense Secretary Pete Hegseth testified before the Senate Armed Services Committee, facing sharp criticism from Democrats over his handling of the war in Iran and its growing costs.`\
 https://www.nytimes.com/video/us/100000010873356/hegseth-senate-hearing-iran.html
-
-**Senate Bans Prediction Markets for Its Members and Staff**\
-`Senators voted unanimously to prohibit betting practices in the chamber after some users made hundreds of thousands of dollars online by accurately predicting U.S. military actions.`\
-https://www.nytimes.com/2026/04/30/us/politics/senate-prediction-markets-ban.html
 

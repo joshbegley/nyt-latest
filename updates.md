@@ -1,3 +1,7 @@
+**What if Your Waymo or Tesla Hallucinates?**\
+`Self-driving cars can still make mistakes, sometimes with frightening consequences. On “Interesting Times,” the author Andrew Miller joins the columnist Ross Douthat to discuss the inhuman errors these cars sometimes make, and whether they can be hacked.`\
+https://www.nytimes.com/video/opinion/100000010792352/what-if-your-waymo-or-tesla-hallucinates.html
+
 **Sticks in Locks**\
 `Rena Cohen opens our solving weekend with her themeless debut.`\
 https://www.nytimes.com/2026/04/30/crosswords/daily-puzzle-2026-05-01.html
