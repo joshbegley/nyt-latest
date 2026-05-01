@@ -1,3 +1,11 @@
+**Human Remains Found in Tampa Bay Are Identified as Missing Grad Student**\
+`A former University of South Florida student has been charged in the murders of Nahida Bristy and Zamil Limon, doctoral students who were reported missing last month.`\
+https://www.nytimes.com/2026/05/01/us/usf-missing-student-identified.html
+
+**Thermos Recalls 8.2 Million Jars and Bottles After Customers Are Injured**\
+`The company received reports that the stoppers on some of its products had “forcefully ejected,” striking customers and causing permanent vision loss in a few cases, safety regulators said.`\
+https://www.nytimes.com/2026/05/01/business/thermos-bottles-recall.html
+
 **Alabama Governor Calls Special Session to Adopt New House Maps**\
 `Gov. Kay Ivey said a map that would give Republicans an additional House seat cannot be enacted without Supreme Court action, but she wants to be ready if that happens.`\
 https://www.nytimes.com/2026/05/01/us/elections/special-session-redistricting-alabama.html
