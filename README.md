@@ -1,3 +1,7 @@
+**Violence Erupts in Australian Town After Arrest of Suspect in Girl’s Killing**\
+`Police in Alice Springs fired rubber bullets and tear gas to disperse an angry crowd demanding justice.`\
+https://www.nytimes.com/2026/05/01/world/australia/alice-springs-jefferson-lewis-girl-kumanjayi.html
+
 **Palabra del día: ‘pernicious’**\
 `Esta palabra ha aparecido en 76 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/05/01/espanol/palabra-del-dia-pernicious.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/01/business/economy/iran-war-oil-profits-tax.htm
 **The Girl With the Sunglasses Tattoo**\
 `My daughter left me way too young, so I find ways to keep her with me.`\
 https://www.nytimes.com/2026/05/01/style/modern-love-the-girl-with-the-sunglasses-tattoo.html
-
-**A Wedding That Included a Mister and ‘The Miz’**\
-`Madison Greco and Steven Lynch bonded over their love of professional wrestling. The bride’s favorite wrestler led their wedding ceremony in Las Vegas.`\
-https://www.nytimes.com/2026/05/01/style/madison-greco-steven-lynch-wedding.html
 
