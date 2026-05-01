@@ -1,11 +1,3 @@
-**FEMA Is Reversing Job Cuts Made Under Kristi Noem**\
-`The agency said staff members who had been let go or placed on administrative leave were now needed to prepare for hurricanes and the World Cup.`\
-https://www.nytimes.com/2026/04/30/climate/fema-job-cuts-reverse.html
-
-**Chick-fil-A Bilked for $80,000 in Fake Mac-and-Cheese Refunds, Police Say**\
-`An former employee returned to a franchise in Grapevine, Texas, to process 800 phony refunds to his credit cards, the authorities said.`\
-https://www.nytimes.com/2026/04/30/us/chick-fil-a-mac-and-cheese-fraud-texas.html
-
 **Takeaways From Hegseth’s Second Day of Testimony on the Iran War**\
 `The secretary was also questioned over civilian deaths, an accusation of antisemitic remarks and women in combat.`\
 https://www.nytimes.com/2026/04/30/us/politics/hegseth-senate-hearing-takeaways.html
@@ -38,8 +30,8 @@ https://www.nytimes.com/2026/04/30/us/politics/king-charles-trump-potluck-whisky
 `Amnesty International said about 1,500 people have been detained by the military for three months and that many of those who have died from disease and starvation have been children.`\
 https://www.nytimes.com/2026/04/30/world/africa/nigeria-fulani-camp-amnesty.html
 
-**Don’t Underestimate the Fury of Democratic Voters**\
-`A Democratic vision of the Tea Party is emerging.`\
+**A Democratic Version of the Tea Party Is Emerging**\
+`No one should underestimate the white-hot fury of the party’s voters.`\
 https://www.nytimes.com/2026/04/30/opinion/graham-platner-janet-mills-susan-collins-senate.html
 
 **Hegseth Spars With Senate Democrats Over War in Iran**\
@@ -77,4 +69,12 @@ https://www.nytimes.com/2026/04/30/nyregion/ny-student-tests-exams-tech-outage.h
 **The Analog Charms of New York’s Intercoms**\
 `New York apartment buzzers are loud, often broken and haven’t been upgraded since the ’70s. But would we have it any other way?`\
 https://www.nytimes.com/interactive/2026/05/01/realestate/nyc-intercoms-analog.html
+
+**Hezbollah’s Latest Challenge to Israeli Forces: A Stealthier Drone**\
+`The Lebanese militant group is attacking Israeli troops with explosive drones controlled by fiber-optic cables, like those commonly used in the war in Ukraine.`\
+https://www.nytimes.com/2026/04/30/world/middleeast/hezbollah-fiber-optic-drones.html
+
+**Decoding the King: Brits Hear Subtle Rebuke to Trump that Americans Might Miss**\
+`Royal watchers in Britain called the visit of King Charles III to America a master class in understated criticism.`\
+https://www.nytimes.com/2026/04/30/world/europe/king-charles-visit-trump-messages.html
 
