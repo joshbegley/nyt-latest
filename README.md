@@ -1,3 +1,7 @@
+**It’s Harder Than Ever to Get Federal Disaster Aid. Even in Red States.**\
+`During President Trump’s second term, the disaster declarations that unlock money are taking longer than in the past. Blue states wait the longest and they hear ‘no’ more often.`\
+https://www.nytimes.com/2026/05/01/climate/fema-disaster-aid-slowdowns.html
+
 **The Lasting Influence of Edna Lewis’s ‘Taste of Country Cooking’**\
 `Fifty years since its publication, the Virginia chef and writer’s pioneering cookbook continues to hold sway.`\
 https://www.nytimes.com/2026/05/01/dining/edna-lewis-taste-of-country-cooking.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/01/business/fda-pancreatic-cancer-drug.html
 **The Taylor Swift Interview: Behind the Scenes**\
 `On “Popcast,” the reporter Joe Coscarelli discusses what it was like to talk to Swift about songwriting with the critic Jon Caramanica.`\
 https://www.nytimes.com/2026/05/01/arts/music/taylor-swift-interview-behind-the-scenes.html
-
-**Small Plane Crashes in Texas, Killing 5**\
-`Emergency personnel responded to the crash site near Wimberley late Thursday night, officials said. The victims have not yet been publicly identified.`\
-https://www.nytimes.com/2026/05/01/us/plane-crash-texas-deaths.html
 
