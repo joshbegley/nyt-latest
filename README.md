@@ -1,8 +1,12 @@
+**Failure to Report: How Harvard Whitewashed Jeffrey Epstein’s Millions (Part 2)**\
+`Pablo and The Harvard Crimson’s Dhruv Patel continue their investigation.`\
+https://www.nytimes.com/2026/05/01/podcasts/failure-to-report-how-harvard-whitewashed-jeffrey-epsteins-millions-part-2.html
+
 **As Israel Entrenches, Frustration With Hezbollah Turns to Support**\
 `With the cease-fire fraying and Israel demolishing villages in the south, many Hezbollah supporters in Lebanon are putting aside their annoyance with the group and turning to it for protection.`\
 https://www.nytimes.com/2026/05/01/world/middleeast/lebanon-hezbollah-ceasefire-israel.html
 
-**Saudi Big Spending Changed Sports and More. So Will the End of That Era.**\
+**What the End of Saudi Arabia’s Big-Spending Era Means for the Kingdom and Beyond**\
 `The kingdom is pulling back from a costly and high-profile golf venture amid mounting financial concerns, raising questions about its plans.`\
 https://www.nytimes.com/2026/05/01/world/middleeast/saudi-arabia-spending-sports-liv-golf.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/01/realestate/1-8-million-homes-in-budapest.html
 **As Kentucky Derby Becomes a Bigger Business, Locals Feel Left Behind**\
 `Locals say rising ticket prices and a late start time for the Oaks race on Friday are hurting residents and restaurants. “The only thing I see is greed,” one steakhouse owner said.`\
 https://www.nytimes.com/2026/05/01/business/kentucky-derby-churchill-downs.html
-
-**Gerry Conway, a Creator of the Punisher in Spider-Man Comics, Dies at 73**\
-`The brutal assassin’s skull logo later took on new life as a political symbol. Mr. Conway was also responsible for the death of Gwen Stacy, Peter Parker’s love interest.`\
-https://www.nytimes.com/2026/05/01/arts/design/gerry-conway-dead.html
 
