@@ -1,3 +1,7 @@
+**What’s Lost When We Give Up Driving**\
+`Will self-driving cars mark the end of a rite of passage for teens? On “Interesting Times,” the columnist Ross Douthat asks the author Andrew Miller whether the decline of manual driving signifies a broader shift toward the “safety focus and screenification of American youth.”`\
+https://www.nytimes.com/video/opinion/100000010792341/whats-lost-when-we-give-up-driving.html
+
 **What if Your Waymo or Tesla Hallucinates?**\
 `Self-driving cars can still make mistakes, sometimes with frightening consequences. On “Interesting Times,” the author Andrew Miller joins the columnist Ross Douthat to discuss the inhuman errors these cars sometimes make, and whether they can be hacked.`\
 https://www.nytimes.com/video/opinion/100000010792352/what-if-your-waymo-or-tesla-hallucinates.html
