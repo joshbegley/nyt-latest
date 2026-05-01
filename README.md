@@ -1,3 +1,7 @@
+**Louisiana Governor Signs Law Blocking Ex-Prisoner From Taking Office**\
+`Calvin Duncan had been exonerated and elected as criminal court clerk in New Orleans. Gov. Jeff Landry eliminated the role as part of an effort to reshape the city’s judicial system.`\
+https://www.nytimes.com/2026/05/01/us/calvin-duncan-new-orleans-criminal-court-jeff-landry.html
+
 **On May Day Cuba’s Communist Leaders Deliver a Defiant Tone to the U.S.**\
 `In front of the American Embassy in Havana, the Cuban government held its annual International Worker’s Day celebration as the United States sought to end the communist ruling system.`\
 https://www.nytimes.com/2026/05/01/world/americas/cuba-may-day-international-workers-day.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/movies/100000010852423/devil-wears-prada-2-review.
 **The Supreme Court Steps Backward on Voting and Race**\
 `Readers discuss what one calls “the most recent Supreme Court assault on the Voting Rights Act of 1965.” Also: Shifts in drug policy.`\
 https://www.nytimes.com/2026/05/01/opinion/supreme-court-voting-race.html
-
-**Violence Breaks Out in Australia Over Indigenous Girl’s Killing**\
-`Members of the Indigenous community in Alice Springs, Australia, clashed with the police outside the hospital where a person suspected of killing a 5-year-old girl was taken.`\
-https://www.nytimes.com/video/world/australia/100000010874710/alice-spring-australia-protests-killing.html
 
