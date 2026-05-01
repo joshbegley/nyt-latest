@@ -1,3 +1,7 @@
+**‘The Devil Wears Prada 2’ Lobs a Shot at Corporate Media**\
+`The New York Times film critic Alissa Wilkinson reviews “The Devil Wears Prada 2.”`\
+https://www.nytimes.com/video/movies/100000010852423/devil-wears-prada-2-review.html
+
 **May Day Protests Across the Country Show Support for Workers**\
 `Organizers have billed the events as a nationwide day of action to demand policies that put the interests of working people over those of the ultrawealthy.`\
 https://www.nytimes.com/2026/05/01/us/may-day-protests.html
