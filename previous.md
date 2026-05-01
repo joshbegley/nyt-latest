@@ -1,3 +1,11 @@
+**Why U.S. Officials Are in Venezuela Right Now**\
+`U.S. officials visited Venezuela after the first direct flight between the two countries since 2019. Our White House correspondent Tyler Pager describes how the main message of the trip was, in the words of a White House adviser “drill, baby, drill.”`\
+https://www.nytimes.com/video/world/americas/100000010874870/why-us-officials-are-in-venezuela-right-now.html
+
+**Swalwell Used Social Media to Build His Career. His Accusers Used It to Warn Others.**\
+`Eric Swalwell used social media to boost his image and meet women, accusers said. Some of those same women used apps and influencers to join forces years later.`\
+https://www.nytimes.com/2026/05/01/us/eric-swalwell-social-media.html
+
 **U.S. to Withdraw 5,000 Troops From Germany, Pentagon Says**\
 `Officials announced the decision after President Trump expressed annoyance with the German chancellor’s remarks about the Iran war.`\
 https://www.nytimes.com/2026/05/01/us/politics/us-troops-germany.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/01/us/elections/special-session-redistricting-al
 **The Facts on Political Violence and Threats to Presidents**\
 `Republican commentators have argued, incorrectly, that political violence is largely a left-wing problem. Liberals have countered by citing the threats made against former President Obama.`\
 https://www.nytimes.com/2026/05/01/us/trump-shooting-political-violence-us.html
-
-**Secret Service Avoids Hearings for Now on Press Gala Attack**\
-`Security questions linger nearly a week after a gunman stormed a security checkpoint at the annual dinner.`\
-https://www.nytimes.com/2026/05/01/us/secret-service-whcd-hearings.html
-
-**Takeaways From Week 2 of Testimony in the Harvey Weinstein Trial**\
-`Jessica Mann, who accused Mr. Weinstein of raping her at a hotel in 2013, is testifying against him for the third time. It seems to be taking a toll on her.`\
-https://www.nytimes.com/2026/05/01/nyregion/weinstein-trial-takeaways.html
 
