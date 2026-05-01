@@ -1,3 +1,7 @@
+**May Day Protests Across the Country Show Support for Workers**\
+`Organizers have billed the events as a nationwide day of action to demand policies that put the interests of working people over those of the ultrawealthy.`\
+https://www.nytimes.com/2026/05/01/us/may-day-protests.html
+
 **Charlie Kirk’s Former Security Chief Sues Candace Owens for Defamation**\
 `The lawsuit focuses on remarks made by Ms. Owens, a right-wing podcaster, about Mr. Kirk’s killing, highlighting a growing tension among factions of the American right.`\
 https://www.nytimes.com/2026/05/01/business/media/candace-owens-defamation-charlie-kirk.html
