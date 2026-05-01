@@ -1,3 +1,11 @@
+**Failure to Report: How Harvard Whitewashed Jeffrey Epstein’s Millions (Part 2)**\
+`Pablo and The Harvard Crimson’s Dhruv Patel continue their investigation.`\
+https://www.nytimes.com/2026/05/01/podcasts/failure-to-report-how-harvard-whitewashed-jeffrey-epsteins-millions-part-2.html
+
+**What the End of Saudi Arabia’s Big-Spending Era Means for the Kingdom and Beyond**\
+`The kingdom is pulling back from a costly and high-profile golf venture amid mounting financial concerns, raising questions about its plans.`\
+https://www.nytimes.com/2026/05/01/world/middleeast/saudi-arabia-spending-sports-liv-golf.html
+
 **As Israel Entrenches, Frustration With Hezbollah Turns to Support**\
 `With the cease-fire fraying and Israel demolishing villages in the south, many Hezbollah supporters in Lebanon are putting aside their annoyance with the group and turning to it for protection.`\
 https://www.nytimes.com/2026/05/01/world/middleeast/lebanon-hezbollah-ceasefire-israel.html
