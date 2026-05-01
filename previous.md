@@ -1,3 +1,7 @@
+**‘Moby Dick’ Review: Robert Wilson’s Last Masterpiece**\
+`Wilson’s 2024 adaptation of Herman Melville’s classic, with music by the British singer-songwriter Anna Calvi, has a short run at the Brooklyn Academy of Music.`\
+https://www.nytimes.com/2026/04/30/theater/moby-dick-review-robert-wilsons-bam.html
+
 **El primer vuelo directo desde EE. UU. aterriza en Caracas después de 7 años**\
 `Funcionarios de American Airlines, del condado de Miami-Dade, del gobierno de EE. UU. y del gobierno venezolano celebraron el paso más reciente en el restablecimiento de los lazos entre ambos países.`\
 https://www.nytimes.com/es/2026/04/30/espanol/america-latina/vuelo-directo-ee-uu-venezuela.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/30/us/politics/senate-prediction-markets-ban.htm
 **Congress Passes Another Short-Term Extension of Expiring Surveillance Law**\
 `Senator Ron Wyden secured an agreement to seek the declassification of a recent intelligence court ruling about the FISA Section 702 program.`\
 https://www.nytimes.com/2026/04/30/us/politics/congress-surveillance-extension.html
-
-**6 Are Injured in Stabbing at a High School in Washington State**\
-`Five students were injured, four of them critically, after an altercation at Foss High School in Tacoma, Wash., the authorities said. A security guard was also injured.`\
-https://www.nytimes.com/2026/04/30/us/stabbing-foss-high-school-tacoma.html
 

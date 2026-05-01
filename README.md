@@ -1,3 +1,7 @@
+**Sticks in Locks**\
+`Rena Cohen opens our solving weekend with her themeless debut.`\
+https://www.nytimes.com/2026/04/30/crosswords/daily-puzzle-2026-05-01.html
+
 **‘Moby Dick’ Review: Robert Wilson’s Last Masterpiece**\
 `Wilson’s 2024 adaptation of Herman Melville’s classic, with music by the British singer-songwriter Anna Calvi, has a short run at the Brooklyn Academy of Music.`\
 https://www.nytimes.com/2026/04/30/theater/moby-dick-review-robert-wilsons-bam.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/us/100000010873356/hegseth-senate-hearing-iran.htm
 **Senate Bans Prediction Markets for Its Members and Staff**\
 `Senators voted unanimously to prohibit betting practices in the chamber after some users made hundreds of thousands of dollars online by accurately predicting U.S. military actions.`\
 https://www.nytimes.com/2026/04/30/us/politics/senate-prediction-markets-ban.html
-
-**Congress Passes Another Short-Term Extension of Expiring Surveillance Law**\
-`Senator Ron Wyden secured an agreement to seek the declassification of a recent intelligence court ruling about the FISA Section 702 program.`\
-https://www.nytimes.com/2026/04/30/us/politics/congress-surveillance-extension.html
 

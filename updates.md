@@ -1,3 +1,7 @@
+**‘Moby Dick’ Review: Robert Wilson’s Last Masterpiece**\
+`Wilson’s 2024 adaptation of Herman Melville’s classic, with music by the British singer-songwriter Anna Calvi, has a short run at the Brooklyn Academy of Music.`\
+https://www.nytimes.com/2026/04/30/theater/moby-dick-review-robert-wilsons-bam.html
+
 **El primer vuelo directo desde EE. UU. aterriza en Caracas después de 7 años**\
 `Funcionarios de American Airlines, del condado de Miami-Dade, del gobierno de EE. UU. y del gobierno venezolano celebraron el paso más reciente en el restablecimiento de los lazos entre ambos países.`\
 https://www.nytimes.com/es/2026/04/30/espanol/america-latina/vuelo-directo-ee-uu-venezuela.html
