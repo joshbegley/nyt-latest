@@ -1,3 +1,15 @@
+**FEMA Is Reversing Job Cuts Made Under Kristi Noem**\
+`The agency said staff members who had been let go or placed on administrative leave were now needed to prepare for hurricanes and the World Cup.`\
+https://www.nytimes.com/2026/04/30/climate/fema-job-cuts-reverse.html
+
+**Chick-fil-A Bilked for $80,000 in Fake Mac-and-Cheese Refunds, Police Say**\
+`A former employee returned to a franchise in Grapevine, Texas, to process 800 phony refunds to his credit cards, the authorities said.`\
+https://www.nytimes.com/2026/04/30/us/chick-fil-a-mac-and-cheese-fraud-texas.html
+
+**Don’t Underestimate the Fury of Democratic Voters**\
+`A Democratic vision of the Tea Party is emerging.`\
+https://www.nytimes.com/2026/04/30/opinion/graham-platner-janet-mills-susan-collins-senate.html
+
 **Takeaways From Hegseth’s Second Day of Testimony on the Iran War**\
 `The secretary was also questioned over civilian deaths, an accusation of antisemitic remarks and women in combat.`\
 https://www.nytimes.com/2026/04/30/us/politics/hegseth-senate-hearing-takeaways.html
