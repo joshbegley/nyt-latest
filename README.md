@@ -6,8 +6,8 @@ https://www.nytimes.com/2026/05/01/well/abortion-drugs-mail-order.html
 ``\
 https://www.nytimes.com/video/embedded/us/politics/100000010876287/02vid-hegseth-moulton-69845.html
 
-**Tennessee Legislators Are Summoned to Redraw State’s House Map**\
-`Gov. Bill Lee asked the General Assembly for a new map that is expected to eliminate the state’s last Democratic seat after the Supreme Court undermined mandates for minority representation.`\
+**Southern States Move to Redistrict Under Weakened Voting Rights Act**\
+`Republican-led legislatures in Tennessee and Alabama will reconvene in the coming days. Unlike in Tennessee, however, a new map in Alabama will require Supreme Court action.`\
 https://www.nytimes.com/2026/05/01/us/elections/tennessee-congressional-map.html
 
 **Trump Tells Congress Why He Doesn’t Need Its Authorization for the Iran War**\
