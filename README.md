@@ -1,3 +1,7 @@
+**N.I.H. Reinstates Employee Put on Leave After Criticizing Trump Research Cuts**\
+`Jenna Norton had filed a whistle-blower complaint claiming that the agency leadership had retaliated against her.`\
+https://www.nytimes.com/2026/05/01/us/politics/trump-jenna-norton-nih.html
+
 **A Night of Civil Discourse Turns to Confrontation at Cornell**\
 `After a debate over the conflict between Israelis and Palestinians, students say the university president hit them with his vehicle. He says he was the victim in the incident.`\
 https://www.nytimes.com/2026/05/01/us/cornell-president-student-protester.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/01/us/usf-missing-student-identified.html
 **Thermos Recalls 8.2 Million Jars and Bottles After Customers Are Injured**\
 `The company received reports that the stoppers on some of its products had “forcefully ejected,” striking customers and causing permanent vision loss in a few cases, safety regulators said.`\
 https://www.nytimes.com/2026/05/01/business/thermos-bottles-recall.html
-
-**Alabama Governor Calls Special Session to Adopt New House Maps**\
-`Gov. Kay Ivey said a map that would give Republicans an additional House seat cannot be enacted without Supreme Court action, but she wants to be ready if that happens.`\
-https://www.nytimes.com/2026/05/01/us/elections/special-session-redistricting-alabama.html
 
