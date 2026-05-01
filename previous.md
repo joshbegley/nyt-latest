@@ -1,3 +1,31 @@
+**Iran Sends New Proposal for Peace Talks with U.S., State Media Says**\
+`The details of the latest plan were unclear. President Trump had expressed dissatisfaction over a previous Iranian proposal to end the war and reopen the Strait of Hormuz.`\
+https://www.nytimes.com/2026/05/01/world/middleeast/iran-new-proposal-peace-talks.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/admin/100000010875027/01vid-allen-moment-cinemagraph-53993.html
+
+**Kacey Musgraves Sounds Right at Home in the ‘Middle of Nowhere’**\
+`The country singer and songwriter’s sixth album is a triumph of self-realization that reunites her with early collaborators and a former foe (Miranda Lambert).`\
+https://www.nytimes.com/2026/05/01/arts/music/kacey-musgraves-middle-of-nowhere-review.html
+
+****\
+`The white circle around Allen in this video was added to the footage by the F.B.I.`\
+https://www.nytimes.com/video/embedded/admin/100000010875013/01vid-allen-door-cinemagraph-12413.html
+
+**‘Anything Can Happen’: Performing the Heroine of ‘Eugene Onegin’**\
+`The soprano Asmik Grigorian is starring as Tatiana, one of her signature roles, in Tchaikovsky’s classic at the Metropolitan Opera.`\
+https://www.nytimes.com/2026/05/01/arts/music/asmik-grigorian-soprano-eugene-onegin.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/admin/100000010874994/01vid-allen-trench-cinemagraph-13987.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/admin/100000010874984/01vid-allen-gym-cinemagraph-26616.html
+
 **Suspect in Attack on Jewish Men Faces Third Attempted Murder Charge**\
 `A man appeared in court charged with the attempted murder of two Jewish men in Golders Green, in north London, and of another man, an acquaintance, elsewhere in the city.`\
 https://www.nytimes.com/2026/05/01/world/europe/uk-jewish-stabbings-attempted-murder-charges.html
@@ -45,36 +73,4 @@ https://www.nytimes.com/2026/05/01/us/politics/pentagon-ai-companies-deals.html
 **OpenAI’s New Model Spurs Debate Over A.I.’s Resource War**\
 `Sam Altman suggested it would be released more widely than a rival offering from Anthropic. Some are suggesting it’s because OpenAI has more computing power.`\
 https://www.nytimes.com/2026/05/01/business/dealbook/openai-anthropic-compute.html
-
-**Fed Officials Cite Inflation Concerns in Defending Dissents**\
-`The Federal Reserve’s meeting this week was the most divisive in decades, a sign that President Trump’s pick to lead the central bank will face opposition if he pursues substantially lower interest rates.`\
-https://www.nytimes.com/2026/05/01/business/economy/fed-inflation-interest-rate-dissents.html
-
-**‘The Headlines’ News Quiz: May 1, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/05/01/podcasts/the-headlines/the-headlines-news-quiz-may-1-2026.html
-
-**War in Iran Is Making the Hajj, the Muslim Pilgrimage, More Expensive**\
-`Soaring jet fuel prices stemming from the war, the government of India said, have forced it to hike hajj package prices for its citizens.`\
-https://www.nytimes.com/2026/05/01/world/asia/iran-war-hajj-cost-india.html
-
-**The Voting Rights Act**\
-`We explain the significance of the Supreme Court’s decision.`\
-https://www.nytimes.com/2026/05/01/briefing/the-voting-rights-act.html
-
-**What Body Cam Footage Reveals About ICE’s Tactics**\
-`New body camera footage from Nashville reveals a disturbing pattern of ICE and state troopers using minor traffic stops to target Black and brown drivers.`\
-https://www.nytimes.com/video/opinion/100000010873293/what-body-cam-footage-reveals-about-ices-tactics.html
-
-**OpenAI’s Big Reset + A.I. in the Doctor’s Office + Talkie, a pre-1930s LLM**\
-`Will the rising tide of A.I. adoption lift all boats?`\
-https://www.nytimes.com/2026/05/01/podcasts/hardfork-openai-doctors-talkie.html
-
-**Why U.S. Oil Companies Are Not Plugging the World’s Energy Gap**\
-`American producers are under pressure from investors to keep spending in check, and they are wary of drilling more wells because they are not sure oil prices will stay high.`\
-https://www.nytimes.com/2026/05/01/business/energy-environment/exxon-mobile-chevron-oil-iran-war.html
-
-**Apple después de Cook**\
-`Tim Cook hizo que Apple fuera rica. La pregunta para su sucesor es si puede hacer que vuelva a ser “cool”.`\
-https://www.nytimes.com/es/2026/05/01/espanol/mundo/apple-tim-cook.html
 

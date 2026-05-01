@@ -1,3 +1,31 @@
+**Iran Sends New Proposal for Peace Talks with U.S., State Media Says**\
+`The details of the latest plan were unclear. President Trump had expressed dissatisfaction over a previous Iranian proposal to end the war and reopen the Strait of Hormuz.`\
+https://www.nytimes.com/2026/05/01/world/middleeast/iran-new-proposal-peace-talks.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/admin/100000010875027/01vid-allen-moment-cinemagraph-53993.html
+
+**Kacey Musgraves Sounds Right at Home in the ‘Middle of Nowhere’**\
+`The country singer and songwriter’s sixth album is a triumph of self-realization that reunites her with early collaborators and a former foe (Miranda Lambert).`\
+https://www.nytimes.com/2026/05/01/arts/music/kacey-musgraves-middle-of-nowhere-review.html
+
+****\
+`The white circle around Allen in this video was added to the footage by the F.B.I.`\
+https://www.nytimes.com/video/embedded/admin/100000010875013/01vid-allen-door-cinemagraph-12413.html
+
+**‘Anything Can Happen’: Performing the Heroine of ‘Eugene Onegin’**\
+`The soprano Asmik Grigorian is starring as Tatiana, one of her signature roles, in Tchaikovsky’s classic at the Metropolitan Opera.`\
+https://www.nytimes.com/2026/05/01/arts/music/asmik-grigorian-soprano-eugene-onegin.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/admin/100000010874994/01vid-allen-trench-cinemagraph-13987.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/admin/100000010874984/01vid-allen-gym-cinemagraph-26616.html
+
 **Suspect in Attack on Jewish Men Faces Third Attempted Murder Charge**\
 `A man appeared in court charged with the attempted murder of two Jewish men in Golders Green, in north London, and of another man, an acquaintance, elsewhere in the city.`\
 https://www.nytimes.com/2026/05/01/world/europe/uk-jewish-stabbings-attempted-murder-charges.html
