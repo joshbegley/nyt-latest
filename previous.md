@@ -1,3 +1,19 @@
+**‘Swapped’ Review: It’s Freaky Friday in the Animal Kingdom**\
+`Michael B. Jordan voices a woodland creature who swaps species with a bird in this middling animated movie on Netflix.`\
+https://www.nytimes.com/2026/05/01/movies/swapped-review.html
+
+**Los islandeses aman sus piscinas. Pero que no se enteren los turistas**\
+`Las piscinas y bañeras de hidromasaje son centros de vida social, una distinción cultural recientemente reconocida por la UNESCO. Algunos no están tan entusiasmados con la designación.`\
+https://www.nytimes.com/es/2026/05/01/espanol/mundo/islandia-piscina-patrimonio-cultural.html
+
+**Zero Gravity**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://www.nytimes.com/2026/05/01/learning/zero-gravity.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/01/crosswords/spelling-bee-forum.html
+
 **Violence Erupts in Australian Town After Arrest of Suspect in Girl’s Killing**\
 `Police in Alice Springs fired rubber bullets and tear gas to disperse an angry crowd demanding justice.`\
 https://www.nytimes.com/2026/05/01/world/australia/alice-springs-jefferson-lewis-girl-kumanjayi.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/05/01/pageoneplus/quote-of-the-day-as-south-korea-a
 **The Bulgarian Political Puppet Master No Election Seems Able to Remove**\
 `Delyan Peevski was a focus of protests that led to elections in April. A new government now promises to challenge his hold on power.`\
 https://www.nytimes.com/2026/05/01/world/europe/bulgaria-election-peevski.html
-
-**Lithuania Says It Broke Up Russian Sabotage and Murder Plots**\
-`The arrests of nine people are reminders of the threat Russia poses in Europe at a time when Washington has shifted focus to the Middle East.`\
-https://www.nytimes.com/2026/05/01/world/europe/russia-sabotage-lithuania.html
-
-**Editors’ Note: May 1, 2026**\
-`The following Editors’ Note and correction appeared in print on Friday, May 1, 2026.`\
-https://www.nytimes.com/2026/05/01/pageoneplus/editors-note-may-1-2026.html
-
-**Blockbuster Oil Company Profits Revive Calls for Windfall Tax**\
-`European nations imposed temporary taxes in the 2022 energy shock when Russia invaded Ukraine, but whether they can effectively help households is up for debate.`\
-https://www.nytimes.com/2026/05/01/business/economy/iran-war-oil-profits-tax.html
-
-**The Girl With the Sunglasses Tattoo**\
-`My daughter left me way too young, so I find ways to keep her with me.`\
-https://www.nytimes.com/2026/05/01/style/modern-love-the-girl-with-the-sunglasses-tattoo.html
 

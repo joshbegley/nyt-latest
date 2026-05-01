@@ -1,3 +1,19 @@
+**‘Swapped’ Review: It’s Freaky Friday in the Animal Kingdom**\
+`Michael B. Jordan voices a woodland creature who swaps species with a bird in this middling animated movie on Netflix.`\
+https://www.nytimes.com/2026/05/01/movies/swapped-review.html
+
+**Los islandeses aman sus piscinas. Pero que no se enteren los turistas**\
+`Las piscinas y bañeras de hidromasaje son centros de vida social, una distinción cultural recientemente reconocida por la UNESCO. Algunos no están tan entusiasmados con la designación.`\
+https://www.nytimes.com/es/2026/05/01/espanol/mundo/islandia-piscina-patrimonio-cultural.html
+
+**Zero Gravity**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://www.nytimes.com/2026/05/01/learning/zero-gravity.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/01/crosswords/spelling-bee-forum.html
+
 **Violence Erupts in Australian Town After Arrest of Suspect in Girl’s Killing**\
 `Police in Alice Springs fired rubber bullets and tear gas to disperse an angry crowd demanding justice.`\
 https://www.nytimes.com/2026/05/01/world/australia/alice-springs-jefferson-lewis-girl-kumanjayi.html
