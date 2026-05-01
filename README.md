@@ -1,3 +1,19 @@
+**Palabra del día: ‘pernicious’**\
+`Esta palabra ha aparecido en 76 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/05/01/espanol/palabra-del-dia-pernicious.html
+
+**Seth Meyers Gives Trump an Earful About Ear Jokes**\
+`The “Late Night” host expressed secondhand embarrassment after the president referred to the “beautiful ears” and “super hearing” of a NASA official.`\
+https://www.nytimes.com/2026/05/01/arts/television/late-night-trump-ear-jokes-artemis.html
+
+**Dudamel recibe una emotiva bienvenida en Nueva York**\
+`El director venezolano Gustavo Dudamel dominó el escenario de la gala anual de primavera de la Filarmónica de Nueva York.`\
+https://www.nytimes.com/es/2026/05/01/espanol/estilos-de-vida/dudamel-bienvenida-filarmonica-nueva-york.html
+
+**Word of the Day: pernicious**\
+`This word has appeared in 74 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/05/01/learning/word-of-the-day-pernicious.html
+
 **What Is Australia’s ‘Welcome to Country’ Ceremony?**\
 `The tradition, dating back thousands of years, is used by Indigenous Australians to greet visitors to their ancestral lands.`\
 https://www.nytimes.com/2026/05/01/world/australia/welcome-to-country-ceremony-australia.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/05/01/style/modern-love-the-girl-with-the-sunglasse
 **A Wedding That Included a Mister and ‘The Miz’**\
 `Madison Greco and Steven Lynch bonded over their love of professional wrestling. The bride’s favorite wrestler led their wedding ceremony in Las Vegas.`\
 https://www.nytimes.com/2026/05/01/style/madison-greco-steven-lynch-wedding.html
-
-**Turning a House Into a Home — and a Wedding Venue, Too**\
-`Matthew Quinn and Blair Carnahan took on redesigning their new home in just four months. Then they took on another major project: planning their nuptials there.`\
-https://www.nytimes.com/2026/05/01/style/matthew-quinn-blair-carnahan-wedding.html
-
-**Two Brooklynites Find Love on Reddit**\
-`After connecting through an online post, Giuliana Cerullo and Abhipsit Srivastava met face-to-face and went on to build a relationship grounded in shared rituals that brought them closer.`\
-https://www.nytimes.com/2026/05/01/style/giuliana-cerullo-abhipsit-srivastava-wedding.html
-
-**By the End of a Hiking Trip, Their Relationship Was Elevated**\
-`Alyssa Levine and Liam Gallagher, both doctors, met through competitive swimming in 2010. A decade later, they felt sparks on Mount Shasta.`\
-https://www.nytimes.com/2026/05/01/style/alyssa-levine-liam-gallagher-wedding.html
-
-**Where in the World Is All That Gold Stored?**\
-`As central banks buy more gold, where to put all that heavy metal is an increasingly important question. Reserves must be secure and ready to trade in a crisis.`\
-https://www.nytimes.com/2026/05/01/business/central-banks-gold-storage.html
 
