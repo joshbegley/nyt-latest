@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: May 1, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/05/01/podcasts/the-headlines/the-headlines-news-quiz-may-1-2026.html
+
 **War in Iran Is Making the Hajj, the Muslim Pilgrimage, More Expensive**\
 `Soaring jet fuel prices stemming from the war, the government of India said, have forced it to hike hajj package prices for its citizens.`\
 https://www.nytimes.com/2026/05/01/world/asia/iran-war-hajj-cost-india.html
