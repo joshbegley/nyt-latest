@@ -1,3 +1,11 @@
+**How Indigenous Acknowledgments Became a Target in Australia**\
+`Recognition of Aboriginal Australians has become standard at most public events. Increasingly, the right is taking aim at the practice.`\
+https://www.nytimes.com/2026/05/01/world/asia/australia-indigenous-aboriginal-welcome-to-country.html
+
+**En la guerra en Irán, los avistamientos de guepardos son una rara esperanza**\
+`Los conservacionistas dicen haber registrado varios nuevos ejemplares adultos y cachorros de guepardos asiáticos, una subespecie en peligro crítico que solo se encuentra en Irán.`\
+https://www.nytimes.com/es/2026/05/01/espanol/mundo/guerra-iran-guepardos.html
+
 **Who Really Has the Cards? Trump, Iran or A.I.?**\
 `A.I. will drastically increase the power of small states and groups in conflict with the great powers.`\
 https://www.nytimes.com/2026/05/01/opinion/trump-iran-artificial-intelligence-china.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/01/business/central-banks-gold-storage.html
 **Why Countries Are Stocking Up on Gold**\
 `As risk has escalated, central banks have bought more gold to stash in reserve. A widening Middle East war could add to the urgency.`\
 https://www.nytimes.com/2026/05/01/business/central-banks-gold-buying.html
-
-**What’s Lost When We Give Up Driving**\
-`Will self-driving cars mark the end of a rite of passage for teens? On “Interesting Times,” the columnist Ross Douthat asks the author Andrew Miller whether the decline of manual driving signifies a broader shift toward the “safety focus and screenification of American youth.”`\
-https://www.nytimes.com/video/opinion/100000010792341/whats-lost-when-we-give-up-driving.html
-
-**What if Your Waymo or Tesla Hallucinates?**\
-`Self-driving cars can still make mistakes, sometimes with frightening consequences. On “Interesting Times,” the author Andrew Miller joins the columnist Ross Douthat to discuss the inhuman errors these cars sometimes make, and whether they can be hacked.`\
-https://www.nytimes.com/video/opinion/100000010792352/what-if-your-waymo-or-tesla-hallucinates.html
 
