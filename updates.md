@@ -1,3 +1,7 @@
+**Schumer and Platner Talk After Mills Suspends Her Campaign**\
+`The top Senate Democrat and the Maine contender had what was described as a cordial conversation despite Schumer’s backing of his primary opponent.`\
+https://www.nytimes.com/2026/04/30/us/politics/schumer-platner-mills-maine-senate.html
+
 **California Police Can Start Ticketing Driverless Cars**\
 `The Department of Motor Vehicles says it could suspend or revoke permits for Waymo taxis and other driverless cars for continued violations.`\
 https://www.nytimes.com/2026/04/30/us/california-ticket-driverless-car-violations.html
