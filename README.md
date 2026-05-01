@@ -1,3 +1,7 @@
+**Co-Founder of Superdry Fashion Brand Is Convicted of Rape**\
+`A British jury convicted James Holder, who rose to fame in the mid-2000s for his role in creating the streetwear brand, of raping a woman in May 2022.`\
+https://www.nytimes.com/2026/05/01/world/europe/superdry-james-holder-rape.html
+
 **When Does a Shoe Stop Being a Shoe?**\
 `During its cruise show, Chanel introduced something more foot than footwear. Plus a cool exhibition and a designer’s retrospective.`\
 https://www.nytimes.com/2026/05/01/style/chanel-shoe-sandal.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/01/movies/international-movies-streaming.html
 **Iran Sends New Proposal for Peace Talks with U.S., State Media Says**\
 `The details of the latest plan were unclear. President Trump had expressed dissatisfaction over a previous Iranian proposal to end the war and reopen the Strait of Hormuz.`\
 https://www.nytimes.com/2026/05/01/world/middleeast/iran-new-proposal-peace-talks.html
-
-****\
-``\
-https://www.nytimes.com/video/embedded/admin/100000010875027/01vid-allen-moment-cinemagraph-53993.html
 
