@@ -1,3 +1,7 @@
+**U.S. to Withdraw 5,000 Troops From Germany, Pentagon Says**\
+`Officials announced the decision after President Trump expressed annoyance with the German chancellor’s remarks about the Iran war.`\
+https://www.nytimes.com/2026/05/01/us/politics/us-troops-germany.html
+
 **Southern States Move to Redistrict Under Weakened Voting Rights Act**\
 `Republican-led legislatures in Tennessee and Alabama will reconvene in the coming days. Unlike in Tennessee, however, a new map in Alabama will require Supreme Court action.`\
 https://www.nytimes.com/2026/05/01/us/elections/tennessee-congressional-map.html

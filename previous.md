@@ -1,3 +1,7 @@
+**U.S. to Withdraw 5,000 Troops From Germany, Pentagon Says**\
+`Officials announced the decision after President Trump expressed annoyance with the German chancellor’s remarks about the Iran war.`\
+https://www.nytimes.com/2026/05/01/us/politics/us-troops-germany.html
+
 **Federal Appeals Court Temporarily Halts Abortion Pills by Mail**\
 `The court order, in a lawsuit by the state of Louisiana, pauses a Food and Drug Administration regulation that greatly expanded access to the abortion pill mifepristone.`\
 https://www.nytimes.com/2026/05/01/well/abortion-drugs-mail-order.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/01/us/secret-service-whcd-hearings.html
 **Takeaways From Week 2 of Testimony in the Harvey Weinstein Trial**\
 `Jessica Mann, who accused Mr. Weinstein of raping her at a hotel in 2013, is testifying against him for the third time. It seems to be taking a toll on her.`\
 https://www.nytimes.com/2026/05/01/nyregion/weinstein-trial-takeaways.html
-
-**Voters Sue Over Louisiana Governor’s Move to Delay Primary**\
-`Legal challenges are mounting over the decision to suspend the state’s May House primary after a Supreme Court ruling found that the congressional map was unconstitutional.`\
-https://www.nytimes.com/2026/05/01/us/politics/louisiana-voters-lawsuit-election-primary.html
 
