@@ -1,3 +1,7 @@
+**El primer vuelo directo desde EE. UU. aterriza en Caracas después de 7 años**\
+`Funcionarios de American Airlines, del condado de Miami-Dade, del gobierno de EE. UU. y del gobierno venezolano celebraron el paso más reciente en el restablecimiento de los lazos entre ambos países.`\
+https://www.nytimes.com/es/2026/04/30/espanol/america-latina/vuelo-directo-ee-uu-venezuela.html
+
 **Schumer and Platner Talk After Mills Suspends Her Campaign**\
 `The top Senate Democrat and the Maine contender had what was described as a cordial conversation despite Schumer’s backing of his primary opponent.`\
 https://www.nytimes.com/2026/04/30/us/politics/schumer-platner-mills-maine-senate.html

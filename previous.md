@@ -1,3 +1,7 @@
+**El primer vuelo directo desde EE. UU. aterriza en Caracas después de 7 años**\
+`Funcionarios de American Airlines, del condado de Miami-Dade, del gobierno de EE. UU. y del gobierno venezolano celebraron el paso más reciente en el restablecimiento de los lazos entre ambos países.`\
+https://www.nytimes.com/es/2026/04/30/espanol/america-latina/vuelo-directo-ee-uu-venezuela.html
+
 **Schumer and Platner Talk After Mills Suspends Her Campaign**\
 `The top Senate Democrat and the Maine contender had what was described as a cordial conversation despite Schumer’s backing of his primary opponent.`\
 https://www.nytimes.com/2026/04/30/us/politics/schumer-platner-mills-maine-senate.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/04/30/us/politics/congress-surveillance-extension.h
 **6 Are Injured in Stabbing at a High School in Washington State**\
 `Five students were injured, four of them critically, after an altercation at Foss High School in Tacoma, Wash., the authorities said. A security guard was also injured.`\
 https://www.nytimes.com/2026/04/30/us/stabbing-foss-high-school-tacoma.html
-
-**Trump Signs Order Expanding Access to Retirement Accounts**\
-`Nearly half of private-sector workers do not have access to workplace plans. The order would make it easier for them to find and open accounts.`\
-https://www.nytimes.com/2026/04/30/your-money/trump-retirement-accounts.html
 
