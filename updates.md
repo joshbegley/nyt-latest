@@ -1,3 +1,15 @@
+**Secret Service Avoids Hearings for Now on Press Gala Attack**\
+`Security questions linger nearly a week after a gunman stormed a security checkpoint at the annual dinner.`\
+https://www.nytimes.com/2026/05/01/us/secret-service-whcd-hearings.html
+
+**Takeaways from Week 2 of the Harvey Weinstein Trial**\
+`Jessica Mann, who accused Mr. Weinstein of raping her at a hotel in 2013, is testifying against him for the third time. It seems to be taking a toll on her.`\
+https://www.nytimes.com/2026/05/01/nyregion/weinstein-trial-takeaways.html
+
+**Voters Sue Over Louisiana Governor’s Move to Delay Primary**\
+`Legal challenges are mounting over the decision to suspend the state’s May House primary after a Supreme Court ruling found that the congressional map was unconstitutional.`\
+https://www.nytimes.com/2026/05/01/us/politics/louisiana-voters-lawsuit-election-primary.html
+
 **Flashback: Your Weekly History Quiz, May 2, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/05/01/upshot/flashback.html

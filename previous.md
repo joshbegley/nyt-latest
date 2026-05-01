@@ -1,3 +1,15 @@
+**Secret Service Avoids Hearings for Now on Press Gala Attack**\
+`Security questions linger nearly a week after a gunman stormed a security checkpoint at the annual dinner.`\
+https://www.nytimes.com/2026/05/01/us/secret-service-whcd-hearings.html
+
+**Takeaways from Week 2 of the Harvey Weinstein Trial**\
+`Jessica Mann, who accused Mr. Weinstein of raping her at a hotel in 2013, is testifying against him for the third time. It seems to be taking a toll on her.`\
+https://www.nytimes.com/2026/05/01/nyregion/weinstein-trial-takeaways.html
+
+**Voters Sue Over Louisiana Governor’s Move to Delay Primary**\
+`Legal challenges are mounting over the decision to suspend the state’s May House primary after a Supreme Court ruling found that the congressional map was unconstitutional.`\
+https://www.nytimes.com/2026/05/01/us/politics/louisiana-voters-lawsuit-election-primary.html
+
 **Flashback: Your Weekly History Quiz, May 2, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/05/01/upshot/flashback.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/01/climate/fema-disaster-aid-slowdowns.html
 **The Lasting Influence of Edna Lewis’s ‘Taste of Country Cooking’**\
 `Fifty years since its publication, the Virginia chef and writer’s pioneering cookbook continues to hold sway.`\
 https://www.nytimes.com/2026/05/01/dining/edna-lewis-taste-of-country-cooking.html
-
-**May Day Protests Across the Country Show Support for Workers**\
-`Organizers have billed the events as a nationwide day of action to demand policies that put the interests of working people over those of the ultrawealthy.`\
-https://www.nytimes.com/2026/05/01/us/may-day-protests.html
-
-**‘Michael’ Is Pure Propaganda**\
-`Wesley Morris and the film curator, Eric Hynes, review “Michael” and consider better approaches to a Michael Jackson biopic.`\
-https://www.nytimes.com/video/podcasts/100000010867924/michael-is-pure-propaganda.html
-
-**Are You Booked on Spirit? Here’s What You Need to Know.**\
-`After two stints in bankruptcy, the low-cost airline appears close to shutting down. Here’s what travelers should know about rebooking and refunds if Spirit stops flying.`\
-https://www.nytimes.com/2026/05/01/travel/spirit-airlines-bankruptcy-tickets-refunds.html
 
