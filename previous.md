@@ -1,3 +1,11 @@
+**Andy Kershaw, Radio D.J. Who Tuned Britons Into World Music, Dies at 66**\
+`A longtime BBC host, he traveled the world in search of artists his audience “didn’t know they wanted.” Then he took an unexpected turn into war reporting.`\
+https://www.nytimes.com/2026/05/01/arts/music/andy-kershaw-dead.html
+
+**The Best Movies and TV Shows Coming to Netflix in May**\
+`A series-length “Lord of the Flies” adaptation and a new series executive produced by the Duffers are among this month’s most promising titles.`\
+https://www.nytimes.com/2026/05/01/arts/television/netflix-new-lord-of-the-flies-boroughs.html
+
 **Airline Loses, Then Finds, Oscar a Filmmaker Was Forced to Check**\
 `Pavel Talankin, a co-director and star of the documentary “Mr. Nobody Against Putin,” was told by T.S.A. agents that his Academy Award could be used as a weapon.`\
 https://www.nytimes.com/2026/05/01/travel/lost-oscar-found-lufthansa-mr-nobody-against-putin.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/01/us/david-rivera-florida-verdict-trial.html
 **Spirit Airlines Prepares to Shut Down**\
 `The low-fare airline, which has struggled for years, had been trying to secure a $500 million lifeline from the Trump administration.`\
 https://www.nytimes.com/2026/05/01/business/spirit-airlines-shutting-down.html
-
-**Florida Redistricts in Republicans’ Favor**\
-`Our politics reporter Nick Corasaniti explains how Florida redrew its congressional district maps to create four more Republican-leaning House seats.`\
-https://www.nytimes.com/video/us/politics/100000010867480/florida-redistricts-in-republicans-favor.html
-
-**Schwab Affiliate Halts Customer Donations to Southern Poverty Law Center**\
-`Fidelity and Vanguard’s donor-advised fund entities have taken similar actions in the wake of a Justice Department indictment of the civil rights group.`\
-https://www.nytimes.com/2026/05/01/business/schwab-donations-southern-poverty-law-center.html
 
