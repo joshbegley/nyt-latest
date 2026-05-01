@@ -1,3 +1,23 @@
+**Schwab Affiliate Halts Customer Donations to Southern Poverty Law Center**\
+`Fidelity and Vanguard’s donor-advised fund entities have taken similar actions in the wake of a Justice Department indictment of the civil rights group.`\
+https://www.nytimes.com/2026/05/01/business/schwab-donations-southern-poverty-law-center.html
+
+**Trump Administration Pushes Forward With Tariffs Based on Forced Labor Laws**\
+`Nonprofit groups have applauded an investigation on trade in goods made with forced labor but say that the Trump administration should go further to enforce its own laws`\
+https://www.nytimes.com/2026/05/01/business/economy/trump-forced-labor-tariffs.html
+
+**Oil Cools Slightly After a 4-Year High**\
+`The price of Brent crude, the international benchmark, dipped more than 2 percent a day after it rose above $120 a barrel in volatile trading.`\
+https://www.nytimes.com/2026/05/01/business/oil-prices-stocks-iran.html
+
+**F.D.A. Grants Early Access to Promising Drug for Pancreatic Cancer**\
+`Patients with one of the deadliest cancers have been pleading for an unapproved treatment that may prolong their lives.`\
+https://www.nytimes.com/2026/05/01/business/fda-pancreatic-cancer-drug.html
+
+**The Taylor Swift Interview: Behind the Scenes**\
+`On “Popcast,” the reporter Joe Coscarelli discusses what it was like to talk to Swift about songwriting with the critic Jon Caramanica.`\
+https://www.nytimes.com/2026/05/01/arts/music/taylor-swift-interview-behind-the-scenes.html
+
 **Small Plane Crashes in Texas, Killing 5**\
 `Emergency personnel responded to the crash site near Wimberley late Thursday night, officials said. The victims have not yet been publicly identified.`\
 https://www.nytimes.com/2026/05/01/us/plane-crash-texas-deaths.html
@@ -53,24 +73,4 @@ https://www.nytimes.com/2026/05/01/arts/music/asmik-grigorian-soprano-eugene-one
 ****\
 ``\
 https://www.nytimes.com/video/embedded/admin/100000010874994/01vid-allen-trench-cinemagraph-13987.html
-
-****\
-``\
-https://www.nytimes.com/video/embedded/admin/100000010874984/01vid-allen-gym-cinemagraph-26616.html
-
-**Suspect in Attack on Jewish Men Faces Third Attempted Murder Charge**\
-`A man appeared in court charged with the attempted murder of two Jewish men in Golders Green, in north London, and of another man, an acquaintance, elsewhere in the city.`\
-https://www.nytimes.com/2026/05/01/world/europe/uk-jewish-stabbings-attempted-murder-charges.html
-
-**The Race That Shows What the G.O.P. Is and ‘Everything It Could Become’**\
-`Oregon’s Democratic governor is likely to win re-election, but how voters pick from the ideological array of Republicans challenging her could offer a glimpse at the party post-Trump.`\
-https://www.nytimes.com/2026/05/01/us/elections/oregon-republican-primary-governor.html
-
-**Very Dramatique! 4 Are Rescued After Trainee Driver Plunges Bus Into Seine**\
-`Nobody was hurt and all were rescued after a bus driver in training hit a parked car and veered into the river near Paris, officials said.`\
-https://www.nytimes.com/2026/05/01/world/europe/bus-driver-rescue-seine-paris.html
-
-**These 5 Actors Are Already Screen Stars. Now They’re on Broadway.**\
-`Patrick Ball, Melissa Barrera, Adrien Brody, Tessa Thompson and Ben Ahlers discuss the demands of live performance as they make their Broadway debuts.`\
-https://www.nytimes.com/2026/05/01/theater/ball-brody-thompson-barrera-ahlers-broadway-debuts.html
 
