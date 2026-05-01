@@ -1,3 +1,7 @@
+**Utility Bills Are Likely to Be Higher This Summer. Here’s What You Can Do.**\
+`The average bill is forecast to rise 8.5 percent. There are simple ways to make sure you’re not overpaying, like getting your air-conditioning checked.`\
+https://www.nytimes.com/2026/05/01/your-money/electricity-costs-summer.html
+
 **Pentagon Makes Deals With A.I. Companies to Expand Classified Work**\
 `The agreements with six technology companies come amid the Defense Department’s dispute with Anthropic.`\
 https://www.nytimes.com/2026/05/01/us/politics/pentagon-ai-companies-deals.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/01/world/middleeast/saudi-arabia-spending-sports
 **The New York Times News Quiz, May 1, 2026**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://www.nytimes.com/interactive/2026/05/01/briefing/quiz-whcd-comey-king-charles-scotus.html
-
-**The Gift of Getting Weirder With Age**\
-`It becomes easier to embrace your authentic (and eccentric) self.`\
-https://www.nytimes.com/2026/05/01/well/getting-older-getting-weird.html
 

@@ -1,3 +1,7 @@
+**Utility Bills Are Likely to Be Higher This Summer. Here’s What You Can Do.**\
+`The average bill is forecast to rise 8.5 percent. There are simple ways to make sure you’re not overpaying, like getting your air-conditioning checked.`\
+https://www.nytimes.com/2026/05/01/your-money/electricity-costs-summer.html
+
 **Pentagon Makes Deals With A.I. Companies to Expand Classified Work**\
 `The agreements with six technology companies come amid the Defense Department’s dispute with Anthropic.`\
 https://www.nytimes.com/2026/05/01/us/politics/pentagon-ai-companies-deals.html
