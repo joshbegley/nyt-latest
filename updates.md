@@ -1,3 +1,15 @@
+**Student Driver Plunges Bus Into River Seine**\
+`Over 100 rescue workers fished out a bus from the River Seine in Juvisy-sur-Orge, a commuter town near Paris, on Thursday after a bus driver in training veered it into the river.`\
+https://www.nytimes.com/video/world/europe/100000010875624/seine-bus-crash-rescue.html
+
+**Seoul-Born Artist Shakes Up Jazz With Traditional Korean Music**\
+`DoYeon Kim, a Seoul-born musician, has become an in-demand collaborator for some of the biggest innovators in jazz and improvised music. Her work is steeped in traditional Korean and Western classical music.`\
+https://www.nytimes.com/video/arts/music/100000010874960/doyeon-kim-wellspring-gayageum.html
+
+**Takeaways From Week 2 of Testimony in the Harvey Weinstein Trial**\
+`Jessica Mann, who accused Mr. Weinstein of raping her at a hotel in 2013, is testifying against him for the third time. It seems to be taking a toll on her.`\
+https://www.nytimes.com/2026/05/01/nyregion/weinstein-trial-takeaways.html
+
 **Human Remains Found in Tampa Bay Are Identified as Missing Grad Student**\
 `A former University of South Florida student has been charged in the murders of Nahida Bristy and Zamil Limon, doctoral students who were reported missing last month.`\
 https://www.nytimes.com/2026/05/01/us/usf-missing-student-identified.html

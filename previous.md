@@ -1,3 +1,11 @@
+**Student Driver Plunges Bus Into River Seine**\
+`Over 100 rescue workers fished out a bus from the River Seine in Juvisy-sur-Orge, a commuter town near Paris, on Thursday after a bus driver in training veered it into the river.`\
+https://www.nytimes.com/video/world/europe/100000010875624/seine-bus-crash-rescue.html
+
+**Seoul-Born Artist Shakes Up Jazz With Traditional Korean Music**\
+`DoYeon Kim, a Seoul-born musician, has become an in-demand collaborator for some of the biggest innovators in jazz and improvised music. Her work is steeped in traditional Korean and Western classical music.`\
+https://www.nytimes.com/video/arts/music/100000010874960/doyeon-kim-wellspring-gayageum.html
+
 **Human Remains Found in Tampa Bay Are Identified as Missing Grad Student**\
 `A former University of South Florida student has been charged in the murders of Nahida Bristy and Zamil Limon, doctoral students who were reported missing last month.`\
 https://www.nytimes.com/2026/05/01/us/usf-missing-student-identified.html
@@ -18,7 +26,7 @@ https://www.nytimes.com/2026/05/01/us/trump-shooting-political-violence-us.html
 `Security questions linger nearly a week after a gunman stormed a security checkpoint at the annual dinner.`\
 https://www.nytimes.com/2026/05/01/us/secret-service-whcd-hearings.html
 
-**Takeaways from Week 2 of Testimony in the Harvey Weinstein Trial**\
+**Takeaways From Week 2 of Testimony in the Harvey Weinstein Trial**\
 `Jessica Mann, who accused Mr. Weinstein of raping her at a hotel in 2013, is testifying against him for the third time. It seems to be taking a toll on her.`\
 https://www.nytimes.com/2026/05/01/nyregion/weinstein-trial-takeaways.html
 
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/01/arts/music/andy-kershaw-dead.html
 **The Best Movies and TV Shows Coming to Netflix in May**\
 `A series-length “Lord of the Flies” adaptation and a new series executive produced by the Duffers are among this month’s most promising titles.`\
 https://www.nytimes.com/2026/05/01/arts/television/netflix-new-lord-of-the-flies-boroughs.html
-
-**Airline Loses, Then Finds, Oscar a Filmmaker Was Forced to Check**\
-`Pavel Talankin, a co-director and star of the documentary “Mr. Nobody Against Putin,” was told by T.S.A. agents that his Academy Award could be used as a weapon.`\
-https://www.nytimes.com/2026/05/01/travel/lost-oscar-found-lufthansa-mr-nobody-against-putin.html
-
-**16 Photos That Captured the Dawn of Punk**\
-`In the 1970s and ’80s, Stephanie Chernikowski, who has died at 84, shot bands like the Ramones and Blondie at CBGB and other downtown clubs.`\
-https://www.nytimes.com/2026/05/01/arts/music/16-photos-that-captured-the-dawn-of-punk.html
 
