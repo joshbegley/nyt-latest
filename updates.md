@@ -1,3 +1,7 @@
+**Sticks in Locks**\
+`Rena Cohen opens our solving weekend with her themeless debut.`\
+https://www.nytimes.com/2026/04/30/crosswords/daily-puzzle-2026-05-01.html
+
 **‘Moby Dick’ Review: Robert Wilson’s Last Masterpiece**\
 `Wilson’s 2024 adaptation of Herman Melville’s classic, with music by the British singer-songwriter Anna Calvi, has a short run at the Brooklyn Academy of Music.`\
 https://www.nytimes.com/2026/04/30/theater/moby-dick-review-robert-wilsons-bam.html
