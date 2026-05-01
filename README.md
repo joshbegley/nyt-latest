@@ -1,3 +1,15 @@
+**Seymour Bernstein Dies at 99; Stage Fright Cut Short His Piano Career**\
+`After giving his last public concert in 1977, he moved into teaching. A 2014 documentary directed by Ethan Hawke put him in the spotlight once more.`\
+https://www.nytimes.com/2026/05/01/arts/music/seymour-bernstein-dead.html
+
+**After 60 Days, Republican Patience for the Iran War Is Wearing Thin**\
+`Months into the operation and with midterms looming, some lawmakers are calling for Congress to restrain the president’s war power or set terms for bringing the conflict to a close.`\
+https://www.nytimes.com/2026/05/01/us/politics/trump-war-powers-republicans.html
+
+**‘The Devil Wears Prada 2’ Lobs A Shot At Corporate Media**\
+`The New York Times film critic Alissa Wilkinson reviews “The Devil Wears Prada 2.”`\
+https://www.nytimes.com/video/movies/100000010852423/devil-wears-prada-2-review.html
+
 **The Supreme Court Steps Backward on Voting and Race**\
 `Readers discuss what one calls “the most recent Supreme Court assault on the Voting Rights Act of 1965.” Also: Shifts in drug policy.`\
 https://www.nytimes.com/2026/05/01/opinion/supreme-court-voting-race.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/01/arts/music/national-symphony-kennedy-center-i
 **Trump Threatens Higher Tariffs on European Cars**\
 `President Trump said that the European Union was not upholding its part of a trade agreement and that he would increase tariffs next week.`\
 https://www.nytimes.com/2026/05/01/us/politics/trump-tariffs-eu-cars.html
-
-**Co-Founder of Superdry Fashion Brand Is Convicted of Rape**\
-`A British jury convicted James Holder, who rose to fame in the mid-2000s for his role in creating the streetwear brand, of raping a woman in May 2022.`\
-https://www.nytimes.com/2026/05/01/world/europe/superdry-james-holder-rape.html
-
-**When Does a Shoe Stop Being a Shoe?**\
-`During its cruise show, Chanel introduced something more foot than footwear. Plus a cool exhibition and a designer’s retrospective.`\
-https://www.nytimes.com/2026/05/01/style/chanel-shoe-sandal.html
-
-**9-Year-Old Hit and Killed by School Bus in Brooklyn**\
-`The police said the boy was crossing the street when he was hit by a driver making a left turn.`\
-https://www.nytimes.com/2026/05/01/nyregion/child-killed-school-bus-brooklyn.html
 
