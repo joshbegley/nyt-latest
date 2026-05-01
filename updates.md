@@ -1,3 +1,23 @@
+**Schwab Affiliate Halts Customer Donations to Southern Poverty Law Center**\
+`Fidelity and Vanguard’s donor-advised fund entities have taken similar actions in the wake of a Justice Department indictment of the civil rights group.`\
+https://www.nytimes.com/2026/05/01/business/schwab-donations-southern-poverty-law-center.html
+
+**Trump Administration Pushes Forward With Tariffs Based on Forced Labor Laws**\
+`Nonprofit groups have applauded an investigation on trade in goods made with forced labor but say that the Trump administration should go further to enforce its own laws`\
+https://www.nytimes.com/2026/05/01/business/economy/trump-forced-labor-tariffs.html
+
+**Oil Cools Slightly After a 4-Year High**\
+`The price of Brent crude, the international benchmark, dipped more than 2 percent a day after it rose above $120 a barrel in volatile trading.`\
+https://www.nytimes.com/2026/05/01/business/oil-prices-stocks-iran.html
+
+**F.D.A. Grants Early Access to Promising Drug for Pancreatic Cancer**\
+`Patients with one of the deadliest cancers have been pleading for an unapproved treatment that may prolong their lives.`\
+https://www.nytimes.com/2026/05/01/business/fda-pancreatic-cancer-drug.html
+
+**The Taylor Swift Interview: Behind the Scenes**\
+`On “Popcast,” the reporter Joe Coscarelli discusses what it was like to talk to Swift about songwriting with the critic Jon Caramanica.`\
+https://www.nytimes.com/2026/05/01/arts/music/taylor-swift-interview-behind-the-scenes.html
+
 **Small Plane Crashes in Texas, Killing 5**\
 `Emergency personnel responded to the crash site near Wimberley late Thursday night, officials said. The victims have not yet been publicly identified.`\
 https://www.nytimes.com/2026/05/01/us/plane-crash-texas-deaths.html
