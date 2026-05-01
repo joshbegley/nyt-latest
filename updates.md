@@ -1,3 +1,19 @@
+**Palabra del día: ‘pernicious’**\
+`Esta palabra ha aparecido en 76 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/05/01/espanol/palabra-del-dia-pernicious.html
+
+**Seth Meyers Gives Trump an Earful About Ear Jokes**\
+`The “Late Night” host expressed secondhand embarrassment after the president referred to the “beautiful ears” and “super hearing” of a NASA official.`\
+https://www.nytimes.com/2026/05/01/arts/television/late-night-trump-ear-jokes-artemis.html
+
+**Dudamel recibe una emotiva bienvenida en Nueva York**\
+`El director venezolano Gustavo Dudamel dominó el escenario de la gala anual de primavera de la Filarmónica de Nueva York.`\
+https://www.nytimes.com/es/2026/05/01/espanol/estilos-de-vida/dudamel-bienvenida-filarmonica-nueva-york.html
+
+**Word of the Day: pernicious**\
+`This word has appeared in 74 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/05/01/learning/word-of-the-day-pernicious.html
+
 **What Is Australia’s ‘Welcome to Country’ Ceremony?**\
 `The tradition, dating back thousands of years, is used by Indigenous Australians to greet visitors to their ancestral lands.`\
 https://www.nytimes.com/2026/05/01/world/australia/welcome-to-country-ceremony-australia.html
