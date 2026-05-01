@@ -1,3 +1,7 @@
+**Co-Founder of Superdry Fashion Brand Is Convicted of Rape**\
+`A British jury convicted James Holder, who rose to fame in the mid-2000s for his role in creating the streetwear brand, of raping a woman in May 2022.`\
+https://www.nytimes.com/2026/05/01/world/europe/superdry-james-holder-rape.html
+
 **When Does a Shoe Stop Being a Shoe?**\
 `During its cruise show, Chanel introduced something more foot than footwear. Plus a cool exhibition and a designer’s retrospective.`\
 https://www.nytimes.com/2026/05/01/style/chanel-shoe-sandal.html
