@@ -1,3 +1,23 @@
+**Hegseth in the Hot Seat**\
+`Congress questioned Pete Hegseth, the secretary of defense, over the war in Iran, an accusation of antisemitic remarks and women in combat.`\
+https://www.nytimes.com/2026/05/01/podcasts/the-daily/hegseth-congress-hearing.html
+
+**The 60-Day Deadline for the War in Iran, and an End to the D.H.S. Shutdown**\
+`Plus, your Friday news quiz.`\
+https://www.nytimes.com/2026/05/01/podcasts/the-headlines/war-iran-dhs-shutdown.html
+
+**Connections Companion No. 1,056**\
+`Scroll down for hints and conversation about the puzzle for Saturday, May 2, 2026.`\
+https://www.nytimes.com/2026/05/01/crosswords/connections-companion-1056.html
+
+**Strands Sidekick No. 790**\
+`Scroll down for hints and conversation about the puzzle for Saturday, May 2, 2026.`\
+https://www.nytimes.com/2026/05/01/crosswords/strands-sidekick-790.html
+
+**Wordle Review No. 1,778**\
+`Scroll down for hints and conversation about the puzzle for Saturday, May 2, 2026.`\
+https://www.nytimes.com/2026/05/01/crosswords/wordle-review-1778.html
+
 **Failure to Report: How Harvard Whitewashed Jeffrey Epstein’s Millions (Part 2)**\
 `Pablo and The Harvard Crimson’s Dhruv Patel continue their investigation.`\
 https://www.nytimes.com/2026/05/01/podcasts/failure-to-report-how-harvard-whitewashed-jeffrey-epsteins-millions-part-2.html
