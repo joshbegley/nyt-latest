@@ -1,3 +1,7 @@
+**Charlie Kirk’s Former Security Chief Sues Candace Owens for Defamation**\
+`The lawsuit focuses on remarks made by Ms. Owens, a right-wing podcaster, about Mr. Kirk’s killing, highlighting a growing tension among factions of the American right.`\
+https://www.nytimes.com/2026/05/01/business/media/candace-owens-defamation-charlie-kirk.html
+
 **18 Off Broadway Shows to Catch in May**\
 `“Little Shop of Horrors” has some new stars. “Romeo and Juliet” bring their love to the Delacorte. And Hugh Jackman stars in “New Born” at the Minetta Lane.`\
 https://www.nytimes.com/2026/05/01/arts/18-off-broadway-shows-may-nyc.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/01/travel/spirit-airlines-bankruptcy-tickets-ref
 **The Super Shoe’s Step-by-Step Evolution**\
 `The race to near-weightlessness has been a driving force of innovation in running sneakers and helped lead to records shattering at the London Marathon.`\
 https://www.nytimes.com/2026/05/01/sports/running-shoe-history-adidas-sneakers-london-marathon.html
-
-**Authorities Release Video of Suspect in Correspondents’ Dinner Attack**\
-`The F.B.I. and prosecutors shared an annotated video showing the suspect sprinting through a checkpoint and raising a gun. A frame-by-frame analysis suggests that he may have fired.`\
-https://www.nytimes.com/2026/05/01/us/politics/correspondents-dinner-gunman-attack-video.html
 
