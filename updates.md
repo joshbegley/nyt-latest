@@ -1,3 +1,7 @@
+**The Last Moments of Flight 2216**\
+`The crew of a stricken South Korean flight faced a cascade of unforgiving decisions in the last moments. The kind other pilots might look at and ask: What would I have done?`\
+https://www.nytimes.com/interactive/2026/05/01/world/asia/jeju-air-flight-2216-crash-south-korea.html
+
 **Lo que ‘El diablo viste a la moda’ enseñó a sus estrellas sobre el poder**\
 `Meryl Streep, Anne Hathaway, Emily Blunt, Stanley Tucci y el director David Frankel hablan de ‘El diablo viste a la moda’, de la secuela y de quién es malvado en la vida real.`\
 https://www.nytimes.com/es/2026/05/01/espanol/diablo-viste-moda-entrevista-meryl-streep-anne-hathaway.html
