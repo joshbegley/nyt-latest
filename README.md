@@ -1,3 +1,7 @@
+**Lo que ‘El diablo viste a la moda’ enseñó a sus estrellas sobre el poder**\
+`Meryl Streep, Anne Hathaway, Emily Blunt, Stanley Tucci y el director David Frankel hablan de ‘El diablo viste a la moda’, de la secuela y de quién es malvado en la vida real.`\
+https://www.nytimes.com/es/2026/05/01/espanol/diablo-viste-moda-entrevista-meryl-streep-anne-hathaway.html
+
 **‘Swapped’ Review: It’s Freaky Friday in the Animal Kingdom**\
 `Michael B. Jordan voices a woodland creature who swaps species with a bird in this middling animated movie on Netflix.`\
 https://www.nytimes.com/2026/05/01/movies/swapped-review.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/01/espanol/diablo-viste-moda-mejores-momentos
 **Quote of the Day: As South Korea Ages, A.I. Callers Become Best Friends for the Elderly**\
 `Quotation of the Day for Friday, May 1, 2026.`\
 https://www.nytimes.com/2026/05/01/pageoneplus/quote-of-the-day-as-south-korea-ages-ai-callers-become-best-friends-for-the-elderly.html
-
-**The Bulgarian Political Puppet Master No Election Seems Able to Remove**\
-`Delyan Peevski was a focus of protests that led to elections in April. A new government now promises to challenge his hold on power.`\
-https://www.nytimes.com/2026/05/01/world/europe/bulgaria-election-peevski.html
 
