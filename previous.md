@@ -1,3 +1,15 @@
+**Charlie Kirk’s Former Security Chief Sues Candace Owens for Defamation**\
+`The lawsuit focuses on remarks made by Ms. Owens, a right-wing podcaster, about Mr. Kirk’s killing, highlighting a growing tension among factions of the American right.`\
+https://www.nytimes.com/2026/05/01/business/media/candace-owens-defamation-charlie-kirk.html
+
+**18 Off Broadway Shows to Catch in May**\
+`“Little Shop of Horrors” has some new stars. “Romeo and Juliet” bring their love to the Delacorte. And Hugh Jackman stars in “New Born” at the Minetta Lane.`\
+https://www.nytimes.com/2026/05/01/arts/18-off-broadway-shows-may-nyc.html
+
+**Israel Said to Have Helped Defend Emirates in Iran War With Iron Dome**\
+`It appeared to be the first time the missile defense system was sent to an Arab country. The Emirates bore the brunt of Iran’s retaliatory attacks on Gulf countries during the war.`\
+https://www.nytimes.com/2026/05/01/world/middleeast/israel-emirates-iron-dome.html
+
 **Seymour Bernstein Dies at 99; Stage Fright Cut Short His Piano Career**\
 `After giving his last public concert in 1977, he moved into teaching. A 2014 documentary directed by Ethan Hawke put him in the spotlight once more.`\
 https://www.nytimes.com/2026/05/01/arts/music/seymour-bernstein-dead.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/01/travel/spirit-airlines-bankruptcy-tickets-ref
 **The Super Shoe’s Step-by-Step Evolution**\
 `The race to near-weightlessness has been a driving force of innovation in running sneakers and helped lead to records shattering at the London Marathon.`\
 https://www.nytimes.com/2026/05/01/sports/running-shoe-history-adidas-sneakers-london-marathon.html
-
-**Authorities Release Video of Suspect in Correspondents’ Dinner Attack**\
-`The F.B.I. and prosecutors shared an annotated video showing the suspect sprinting through a checkpoint and raising a gun. A frame-by-frame analysis suggests that he may have fired.`\
-https://www.nytimes.com/2026/05/01/us/politics/correspondents-dinner-gunman-attack-video.html
-
-**At the Kennedy Center, the National Symphony’s Show Goes On**\
-`With ambition that exceeded its grasp, the orchestra performed Puccini’s “Il Trittico” ahead of the center’s expected closure.`\
-https://www.nytimes.com/2026/05/01/arts/music/national-symphony-kennedy-center-il-trittico.html
-
-**Trump Threatens Higher Tariffs on European Cars**\
-`President Trump said that the European Union was not upholding its part of a trade agreement and that he would increase tariffs next week.`\
-https://www.nytimes.com/2026/05/01/us/politics/trump-tariffs-eu-cars.html
 

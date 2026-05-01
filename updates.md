@@ -1,3 +1,15 @@
+**Charlie Kirk’s Former Security Chief Sues Candace Owens for Defamation**\
+`The lawsuit focuses on remarks made by Ms. Owens, a right-wing podcaster, about Mr. Kirk’s killing, highlighting a growing tension among factions of the American right.`\
+https://www.nytimes.com/2026/05/01/business/media/candace-owens-defamation-charlie-kirk.html
+
+**18 Off Broadway Shows to Catch in May**\
+`“Little Shop of Horrors” has some new stars. “Romeo and Juliet” bring their love to the Delacorte. And Hugh Jackman stars in “New Born” at the Minetta Lane.`\
+https://www.nytimes.com/2026/05/01/arts/18-off-broadway-shows-may-nyc.html
+
+**Israel Said to Have Helped Defend Emirates in Iran War With Iron Dome**\
+`It appeared to be the first time the missile defense system was sent to an Arab country. The Emirates bore the brunt of Iran’s retaliatory attacks on Gulf countries during the war.`\
+https://www.nytimes.com/2026/05/01/world/middleeast/israel-emirates-iron-dome.html
+
 **Seymour Bernstein Dies at 99; Stage Fright Cut Short His Piano Career**\
 `After giving his last public concert in 1977, he moved into teaching. A 2014 documentary directed by Ethan Hawke put him in the spotlight once more.`\
 https://www.nytimes.com/2026/05/01/arts/music/seymour-bernstein-dead.html
