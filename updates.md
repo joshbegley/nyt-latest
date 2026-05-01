@@ -1,3 +1,15 @@
+**Alabama Governor Calls Special Session to Adopt New House Maps**\
+`Gov. Kay Ivey said a map that would give Republicans an additional House seat cannot be enacted without Supreme Court action, but she wants to be ready if that happens.`\
+https://www.nytimes.com/2026/05/01/us/elections/special-session-redistricting-alabama.html
+
+**The Facts on Political Violence and Threats to Presidents**\
+`Republican commentators have argued, incorrectly, that political violence is largely a left-wing problem. Liberals have countered by citing the threats made against former President Obama.`\
+https://www.nytimes.com/2026/05/01/us/trump-shooting-political-violence-us.html
+
+**Takeaways from Week 2 of Testimony in the Harvey Weinstein Trial**\
+`Jessica Mann, who accused Mr. Weinstein of raping her at a hotel in 2013, is testifying against him for the third time. It seems to be taking a toll on her.`\
+https://www.nytimes.com/2026/05/01/nyregion/weinstein-trial-takeaways.html
+
 **Secret Service Avoids Hearings for Now on Press Gala Attack**\
 `Security questions linger nearly a week after a gunman stormed a security checkpoint at the annual dinner.`\
 https://www.nytimes.com/2026/05/01/us/secret-service-whcd-hearings.html

@@ -1,8 +1,16 @@
+**Alabama Governor Calls Special Session to Adopt New House Maps**\
+`Gov. Kay Ivey said a map that would give Republicans an additional House seat cannot be enacted without Supreme Court action, but she wants to be ready if that happens.`\
+https://www.nytimes.com/2026/05/01/us/elections/special-session-redistricting-alabama.html
+
+**The Facts on Political Violence and Threats to Presidents**\
+`Republican commentators have argued, incorrectly, that political violence is largely a left-wing problem. Liberals have countered by citing the threats made against former President Obama.`\
+https://www.nytimes.com/2026/05/01/us/trump-shooting-political-violence-us.html
+
 **Secret Service Avoids Hearings for Now on Press Gala Attack**\
 `Security questions linger nearly a week after a gunman stormed a security checkpoint at the annual dinner.`\
 https://www.nytimes.com/2026/05/01/us/secret-service-whcd-hearings.html
 
-**Takeaways from Week 2 of the Harvey Weinstein Trial**\
+**Takeaways from Week 2 of Testimony in the Harvey Weinstein Trial**\
 `Jessica Mann, who accused Mr. Weinstein of raping her at a hotel in 2013, is testifying against him for the third time. It seems to be taking a toll on her.`\
 https://www.nytimes.com/2026/05/01/nyregion/weinstein-trial-takeaways.html
 
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/01/arts/music/stephanie-chernikowski-dead.html
 **‘We Have Always Known’: Sinaloans Say the Reckoning Over Corrupt Leaders Was Overdue**\
 `The U.S. indictment of a Mexican governor confirms what many residents say they had long suspected: The line between organized crime and the upper echelons of government has blurred.`\
 https://www.nytimes.com/2026/05/01/world/americas/us-indictment-sinaloa-governor-cartels-drugs.html
-
-**It’s Harder Than Ever to Get Federal Disaster Aid. Even in Red States.**\
-`During President Trump’s second term, the disaster declarations that unlock money are taking longer than in the past. Blue states wait the longest and they hear ‘no’ more often.`\
-https://www.nytimes.com/2026/05/01/climate/fema-disaster-aid-slowdowns.html
-
-**The Lasting Influence of Edna Lewis’s ‘Taste of Country Cooking’**\
-`Fifty years since its publication, the Virginia chef and writer’s pioneering cookbook continues to hold sway.`\
-https://www.nytimes.com/2026/05/01/dining/edna-lewis-taste-of-country-cooking.html
 
