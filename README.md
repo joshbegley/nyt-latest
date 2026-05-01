@@ -1,3 +1,23 @@
+**Trump Tells Congress Why He Doesn’t Need Its Authorization for the Iran War**\
+`In letters to the House and Senate, the president asserted that the hostilities had “terminated,” in an apparent attempt to avoid having to seek congressional approval.`\
+https://www.nytimes.com/2026/05/01/us/politics/trump-congress-authorization-iran-war.html
+
+**Un excongresista de Florida es condenado por cabildear en secreto por Venezuela**\
+`La petrolera estatal venezolana contrató a la consultora de David Rivera por 50 millones de dólares para influir en miembros del Congreso y de la Casa Blanca.`\
+https://www.nytimes.com/es/2026/05/01/espanol/estados-unidos/david-rivera-florida-lobby-venezuela.html
+
+**Trump Says He’s ‘Not Satisfied’ With Iran’s Latest Proposal**\
+`Also, Spirit Airlines prepares to shut down. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/05/01/briefing/trump-iran-proposal-spirit-airlines.html
+
+**Netflix Plans First Wide Theatrical Release With ‘Narnia’**\
+`The company is breaking from its longstanding policy of releasing movies exclusively on its streaming service.`\
+https://www.nytimes.com/2026/05/01/business/media/netflix-narnia-movie-theaters-release.html
+
+**What the Maine Senate Race Feels Like on the Ground**\
+`The anti-establishment mood is palpable in the state, home to one of the country’s top Senate contests. But Senator Susan Collins has some strengths.`\
+https://www.nytimes.com/2026/05/01/us/politics/maine-senate-primary-election.html
+
 **Louisiana Governor Signs Law Blocking Ex-Prisoner From Taking Office**\
 `Calvin Duncan had been exonerated and elected as criminal court clerk in New Orleans. Gov. Jeff Landry eliminated the role as part of an effort to reshape the city’s judicial system.`\
 https://www.nytimes.com/2026/05/01/us/calvin-duncan-new-orleans-criminal-court-jeff-landry.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/05/01/business/media/candace-owens-defamation-charl
 **18 Off Broadway Shows to Catch in May**\
 `“Little Shop of Horrors” has some new stars. “Romeo and Juliet” bring their love to the Delacorte. And Hugh Jackman stars in “New Born” at the Minetta Lane.`\
 https://www.nytimes.com/2026/05/01/arts/18-off-broadway-shows-may-nyc.html
-
-**Israel Said to Have Helped Defend Emirates in Iran War With Iron Dome**\
-`It appeared to be the first time the missile defense system was sent to an Arab country. The Emirates bore the brunt of Iran’s retaliatory attacks on Gulf countries during the war.`\
-https://www.nytimes.com/2026/05/01/world/middleeast/israel-emirates-iron-dome.html
-
-**Seymour Bernstein Dies at 99; Stage Fright Cut Short His Piano Career**\
-`After giving his last public concert in 1977, he moved into teaching. A 2014 documentary directed by Ethan Hawke put him in the spotlight once more.`\
-https://www.nytimes.com/2026/05/01/arts/music/seymour-bernstein-dead.html
-
-**After 60 Days, Republican Patience for the Iran War Is Wearing Thin**\
-`Months into the operation and with midterms looming, some lawmakers are calling for Congress to restrain the president’s war power or set terms for bringing the conflict to a close.`\
-https://www.nytimes.com/2026/05/01/us/politics/trump-war-powers-republicans.html
-
-**‘The Devil Wears Prada 2’ Lobs a Shot at Corporate Media**\
-`The New York Times film critic Alissa Wilkinson reviews “The Devil Wears Prada 2.”`\
-https://www.nytimes.com/video/movies/100000010852423/devil-wears-prada-2-review.html
-
-**The Supreme Court Steps Backward on Voting and Race**\
-`Readers discuss what one calls “the most recent Supreme Court assault on the Voting Rights Act of 1965.” Also: Shifts in drug policy.`\
-https://www.nytimes.com/2026/05/01/opinion/supreme-court-voting-race.html
 
