@@ -1,3 +1,7 @@
+**What Is Australia’s ‘Welcome to Country’ Ceremony?**\
+`The tradition, dating back thousands of years, is used by Indigenous Australians to greet visitors to their ancestral lands.`\
+https://www.nytimes.com/2026/05/01/world/australia/welcome-to-country-ceremony-australia.html
+
 **How Indigenous Acknowledgments Became a Target in Australia**\
 `Recognition of Aboriginal Australians has become standard at most public events. Increasingly, the right is taking aim at the practice.`\
 https://www.nytimes.com/2026/05/01/world/asia/australia-indigenous-aboriginal-welcome-to-country.html
@@ -6,15 +10,15 @@ https://www.nytimes.com/2026/05/01/world/asia/australia-indigenous-aboriginal-we
 `Los conservacionistas dicen haber registrado varios nuevos ejemplares adultos y cachorros de guepardos asiáticos, una subespecie en peligro crítico que solo se encuentra en Irán.`\
 https://www.nytimes.com/es/2026/05/01/espanol/mundo/guerra-iran-guepardos.html
 
-**Who Really Has the Cards? Trump, Iran or A.I.?**\
-`A.I. will drastically increase the power of small states and groups in conflict with the great powers.`\
-https://www.nytimes.com/2026/05/01/opinion/trump-iran-artificial-intelligence-china.html
-
 **En Irán, se vive con dolor e impotencia bajo una fachada de tranquilidad**\
 `Tras meses de agitación, muchos intentan seguir adelante con sus vidas mientras luchan en silencio contra el dolor, el estrés económico y la pérdida de esperanza.`\
 https://www.nytimes.com/es/2026/05/01/espanol/mundo/iran-situacion-actual.html
 
-**India Is Prototyping a Dangerous New Model of Web Censorship**\
+**Trump Is the One Without the Cards at the Poker Table**\
+`A.I. will drastically increase the power of small states and groups in conflict with the great powers.`\
+https://www.nytimes.com/2026/05/01/opinion/trump-iran-artificial-intelligence-china.html
+
+**We Should All Be Concerned About What’s Happening in India**\
 `The Modi administration’s systematic throttling of free speech sets a dangerous precedent for the world.`\
 https://www.nytimes.com/2026/05/01/opinion/india-modi-internet-censorship.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/01/style/alyssa-levine-liam-gallagher-wedding.ht
 **Where in the World Is All That Gold Stored?**\
 `As central banks buy more gold, where to put all that heavy metal is an increasingly important question. Reserves must be secure and ready to trade in a crisis.`\
 https://www.nytimes.com/2026/05/01/business/central-banks-gold-storage.html
-
-**Why Countries Are Stocking Up on Gold**\
-`As risk has escalated, central banks have bought more gold to stash in reserve. A widening Middle East war could add to the urgency.`\
-https://www.nytimes.com/2026/05/01/business/central-banks-gold-buying.html
 
