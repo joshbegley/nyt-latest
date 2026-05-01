@@ -1,3 +1,7 @@
+**Small Plane Crashes in Texas, Killing 5**\
+`Emergency personnel responded to the crash site near Wimberley late Thursday night, officials said. The victims have not yet been publicly identified.`\
+https://www.nytimes.com/2026/05/01/us/plane-crash-texas-deaths.html
+
 **Today, In Short**\
 `Phone addictions. A big sea lion. And a chore coat.`\
 https://www.nytimes.com/2026/05/01/briefing/today-in-short.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/05/01/world/europe/bus-driver-rescue-seine-paris.ht
 **These 5 Actors Are Already Screen Stars. Now They’re on Broadway.**\
 `Patrick Ball, Melissa Barrera, Adrien Brody, Tessa Thompson and Ben Ahlers discuss the demands of live performance as they make their Broadway debuts.`\
 https://www.nytimes.com/2026/05/01/theater/ball-brody-thompson-barrera-ahlers-broadway-debuts.html
-
-**Arrest Made After Fatal Kentucky Bank Robbery, Police Say**\
-`Two employees at a bank in Berea, Ky., were shot and killed.`\
-https://www.nytimes.com/2026/05/01/us/fatal-kentucky-bank-robbery-arrest.html
 

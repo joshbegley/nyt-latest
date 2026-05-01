@@ -1,3 +1,7 @@
+**Small Plane Crashes in Texas, Killing 5**\
+`Emergency personnel responded to the crash site near Wimberley late Thursday night, officials said. The victims have not yet been publicly identified.`\
+https://www.nytimes.com/2026/05/01/us/plane-crash-texas-deaths.html
+
 **Today, In Short**\
 `Phone addictions. A big sea lion. And a chore coat.`\
 https://www.nytimes.com/2026/05/01/briefing/today-in-short.html
