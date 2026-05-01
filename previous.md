@@ -1,3 +1,27 @@
+**Very Dramatique! 4 Are Rescued After Trainee Driver Plunges Bus Into Seine**\
+`Nobody was hurt and all were rescued after a bus driver in training hit a parked car and veered into the river near Paris, officials said.`\
+https://www.nytimes.com/2026/05/01/world/europe/bus-driver-rescue-seine-paris.html
+
+**These 5 Actors Are Already Screen Stars. Now They’re on Broadway.**\
+`Patrick Ball, Melissa Barrera, Adrien Brody, Tessa Thompson and Ben Ahlers discuss the demands of live performance as they make their Broadway debuts.`\
+https://www.nytimes.com/2026/05/01/theater/ball-brody-thompson-barrera-ahlers-broadway-debuts.html
+
+**Arrest Made After Fatal Kentucky Bank Robbery, Police Say**\
+`Two employees at a bank in Berea, Ky., were shot and killed.`\
+https://www.nytimes.com/2026/05/01/us/fatal-kentucky-bank-robbery-arrest.html
+
+**At Mercedes, the ‘Kid’ Has Risen to the Top of Formula 1**\
+`Lewis Hamilton held the record since 2007. Now Kimi Antonelli, 19, is F1’s youngest drivers’ championship leader.`\
+https://www.nytimes.com/2026/05/01/sports/autoracing/f1-racing-mercedes-antonelli.html
+
+**Markets Sent Conflicting Signals in April but Stocks Kept Gaining**\
+`Energy markets remained disrupted by turmoil in the Middle East, while the S&P 500 posted its best month since November 2020.`\
+https://www.nytimes.com/2026/05/01/business/stocks-oil-prices-iran-war-april.html
+
+**Formula 1 Has New Rules. Let’s Explain How It’s Changed Overtaking.**\
+`There has been a lot more of it, but drivers say it’s now more complicated.`\
+https://www.nytimes.com/2026/05/01/sports/autoracing/f1-new-rules-overtaking.html
+
 **Trump’s Tariff Reversal Reopens a Major Market for Scotch Whisky**\
 `A 10 percent tax on American imports was hurting British sales, even though exporters had increased sales in India, China and other countries.`\
 https://www.nytimes.com/2026/05/01/business/trump-scotch-whisky-tariffs.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/05/01/podcasts/the-daily/hegseth-congress-hearing.h
 **The 60-Day Deadline for the War in Iran, and an End to the D.H.S. Shutdown**\
 `Plus, your Friday news quiz.`\
 https://www.nytimes.com/2026/05/01/podcasts/the-headlines/war-iran-dhs-shutdown.html
-
-**Connections Companion No. 1,056**\
-`Scroll down for hints and conversation about the puzzle for Saturday, May 2, 2026.`\
-https://www.nytimes.com/2026/05/01/crosswords/connections-companion-1056.html
-
-**Strands Sidekick No. 790**\
-`Scroll down for hints and conversation about the puzzle for Saturday, May 2, 2026.`\
-https://www.nytimes.com/2026/05/01/crosswords/strands-sidekick-790.html
-
-**Wordle Review No. 1,778**\
-`Scroll down for hints and conversation about the puzzle for Saturday, May 2, 2026.`\
-https://www.nytimes.com/2026/05/01/crosswords/wordle-review-1778.html
-
-**Failure to Report: How Harvard Whitewashed Jeffrey Epstein’s Millions (Part 2)**\
-`Pablo and The Harvard Crimson’s Dhruv Patel continue their investigation.`\
-https://www.nytimes.com/2026/05/01/podcasts/failure-to-report-how-harvard-whitewashed-jeffrey-epsteins-millions-part-2.html
-
-**As Israel Entrenches, Frustration With Hezbollah Turns to Support**\
-`With the cease-fire fraying and Israel demolishing villages in the south, many Hezbollah supporters in Lebanon are putting aside their annoyance with the group and turning to it for protection.`\
-https://www.nytimes.com/2026/05/01/world/middleeast/lebanon-hezbollah-ceasefire-israel.html
-
-**What the End of Saudi Arabia’s Big-Spending Era Means for the Kingdom and Beyond**\
-`The kingdom is pulling back from a costly and high-profile golf venture amid mounting financial concerns, raising questions about its plans.`\
-https://www.nytimes.com/2026/05/01/world/middleeast/saudi-arabia-spending-sports-liv-golf.html
 
