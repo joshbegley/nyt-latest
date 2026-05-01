@@ -1,3 +1,19 @@
+**Who Really Has the Cards? Trump, Iran or A.I.?**\
+`A.I. will drastically increase the power of small states and groups in conflict with the great powers.`\
+https://www.nytimes.com/2026/05/01/opinion/trump-iran-artificial-intelligence-china.html
+
+**En Irán, se vive con dolor e impotencia bajo una fachada de tranquilidad**\
+`Tras meses de agitación, muchos intentan seguir adelante con sus vidas mientras luchan en silencio contra el dolor, el estrés económico y la pérdida de esperanza.`\
+https://www.nytimes.com/es/2026/05/01/espanol/mundo/iran-situacion-actual.html
+
+**India Is Prototyping a Dangerous New Model of Web Censorship**\
+`The Modi administration’s systematic throttling of free speech sets a dangerous precedent for the world.`\
+https://www.nytimes.com/2026/05/01/opinion/india-modi-internet-censorship.html
+
+**Cuando el ruido de la comida se detuvo**\
+`Antes del auge de los medicamentos GLP-1, los expertos en obesidad no estudiaban ese ruido interior que obliga a las personas a comer. Ahora que el ruido de la comida está cediendo, quieren entenderlo.`\
+https://www.nytimes.com/es/2026/05/01/espanol/estilos-de-vida/ruido-comida-medicamentos-obesidad.html
+
 **Probablemente tus contraseñas estén en peligro**\
 `La fantasía de los hackers se hizo realidad cuando el nuevo modelo de IA de Anthropic demostró que podía detectar vulnerabilidades de software.`\
 https://www.nytimes.com/es/2026/05/01/espanol/opinion/ciberseguridad-mythos-contrasenas.html
