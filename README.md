@@ -1,3 +1,11 @@
+**On May Day Cuba’s Communist Leaders Deliver a Defiant Tone to the U.S.**\
+`In front of the American Embassy in Havana, the Cuban government held its annual International Worker’s Day celebration as the United States sought to end the communist ruling system.`\
+https://www.nytimes.com/2026/05/01/world/americas/cuba-may-day-international-workers-day.html
+
+**Bard College’s President Will Retire After Epstein Revelations**\
+`The president, Leon Botstein, who had run Bard for 50 years, faced scrutiny after his connections to Jeffrey Epstein proved to be deeper than previously known.`\
+https://www.nytimes.com/2026/05/01/us/bard-president-leon-botstein-jeffrey-epstein.html
+
 **Student Driver Plunges Bus Into River Seine**\
 `Over 100 rescue workers fished out a bus from the River Seine in Juvisy-sur-Orge, a commuter town near Paris, on Thursday after a bus driver in training veered it into the river.`\
 https://www.nytimes.com/video/world/europe/100000010875624/seine-bus-crash-rescue.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/01/opinion/supreme-court-voting-race.html
 **Violence Breaks Out in Australia Over Indigenous Girl’s Killing**\
 `Members of the Indigenous community in Alice Springs, Australia, clashed with the police outside the hospital where a person suspected of killing a 5-year-old girl was taken.`\
 https://www.nytimes.com/video/world/australia/100000010874710/alice-spring-australia-protests-killing.html
-
-**Andy Kershaw, Radio D.J. Who Tuned Britons Into World Music, Dies at 66**\
-`A longtime BBC host, he traveled the world in search of artists his audience “didn’t know they wanted.” Then he took an unexpected turn into war reporting.`\
-https://www.nytimes.com/2026/05/01/arts/music/andy-kershaw-dead.html
-
-**The Best Movies and TV Shows Coming to Netflix in May**\
-`A series-length “Lord of the Flies” adaptation and a new series executive produced by the Duffers are among this month’s most promising titles.`\
-https://www.nytimes.com/2026/05/01/arts/television/netflix-new-lord-of-the-flies-boroughs.html
 
