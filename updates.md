@@ -1,3 +1,15 @@
+**Seymour Bernstein Dies at 99; Stage Fright Cut Short His Piano Career**\
+`After giving his last public concert in 1977, he moved into teaching. A 2014 documentary directed by Ethan Hawke put him in the spotlight once more.`\
+https://www.nytimes.com/2026/05/01/arts/music/seymour-bernstein-dead.html
+
+**After 60 Days, Republican Patience for the Iran War Is Wearing Thin**\
+`Months into the operation and with midterms looming, some lawmakers are calling for Congress to restrain the president’s war power or set terms for bringing the conflict to a close.`\
+https://www.nytimes.com/2026/05/01/us/politics/trump-war-powers-republicans.html
+
+**‘The Devil Wears Prada 2’ Lobs A Shot At Corporate Media**\
+`The New York Times film critic Alissa Wilkinson reviews “The Devil Wears Prada 2.”`\
+https://www.nytimes.com/video/movies/100000010852423/devil-wears-prada-2-review.html
+
 **The Supreme Court Steps Backward on Voting and Race**\
 `Readers discuss what one calls “the most recent Supreme Court assault on the Voting Rights Act of 1965.” Also: Shifts in drug policy.`\
 https://www.nytimes.com/2026/05/01/opinion/supreme-court-voting-race.html
