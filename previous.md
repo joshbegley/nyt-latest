@@ -1,3 +1,7 @@
+**When Does a Shoe Stop Being a Shoe?**\
+`During its cruise show, Chanel introduced something more foot than footwear. Plus a cool exhibition and a designer’s retrospective.`\
+https://www.nytimes.com/2026/05/01/style/chanel-shoe-sandal.html
+
 **9-Year-Old Hit and Killed by School Bus in Brooklyn**\
 `The police said the boy was crossing the street when he was hit by a driver making a left turn.`\
 https://www.nytimes.com/2026/05/01/nyregion/child-killed-school-bus-brooklyn.html
