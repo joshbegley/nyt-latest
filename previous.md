@@ -1,3 +1,23 @@
+**As Israel Entrenches, Frustration With Hezbollah Turns to Support**\
+`With the cease-fire fraying and Israel demolishing villages in the south, many Hezbollah supporters in Lebanon are putting aside their annoyance with the group and turning to it for protection.`\
+https://www.nytimes.com/2026/05/01/world/middleeast/lebanon-hezbollah-ceasefire-israel.html
+
+**Saudi Big Spending Changed Sports and More. So Will the End of That Era.**\
+`The kingdom is pulling back from a costly and high-profile golf venture amid mounting financial concerns, raising questions about its plans.`\
+https://www.nytimes.com/2026/05/01/world/middleeast/saudi-arabia-spending-sports-liv-golf.html
+
+**The New York Times News Quiz, May 1, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/interactive/2026/05/01/briefing/quiz-whcd-comey-king-charles-scotus.html
+
+**Why Mayor Mamdani Didn’t Roll Out the Red Carpet for the Royals**\
+`Zohran Mamdani studiously avoided the type of red-carpet welcome most mayors would prepare for a royal visit, reflecting his upbringing but also drawing some criticism.`\
+https://www.nytimes.com/2026/05/01/nyregion/mamdani-royal-visit.html
+
+**The Gift of Getting Weirder With Age**\
+`It becomes easier to embrace your authentic (and eccentric) self.`\
+https://www.nytimes.com/2026/05/01/well/getting-older-getting-weird.html
+
 **In Permissive Amsterdam, Ads for Fossil Fuels or Meat Are Now Verboden**\
 `The Dutch city has outlawed advertising that promotes lifestyles linked to high carbon emissions, which is a driver of climate change. It’s a first for a world capital.`\
 https://www.nytimes.com/2026/05/01/climate/in-permissive-amsterdam-ads-for-fossil-fuels-or-meat-are-now-verboden.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/05/01/business/kentucky-derby-churchill-downs.html
 **Gerry Conway, a Creator of the Punisher in Spider-Man Comics, Dies at 73**\
 `The brutal assassin’s skull logo later took on new life as a political symbol. Mr. Conway was also responsible for the death of Gwen Stacy, Peter Parker’s love interest.`\
 https://www.nytimes.com/2026/05/01/arts/design/gerry-conway-dead.html
-
-**How a Radical Historian Saved the Schlock of ’76**\
-`Yale’s Bicentennial Schlock collection offers a window into the star-spangled commercialism that swept the country 50 years ago.`\
-https://www.nytimes.com/interactive/2026/05/01/arts/bicentennial-schlock-collection-america-250.html
-
-**In a Small Iowa Town, a Solution to a National Crisis**\
-`As the Trump administration guts weather agencies, a state’s low-cost flood tracking system offers a model for responding to deadly inundations.`\
-https://www.nytimes.com/2026/05/01/opinion/iowa-flood-warning-system-america.html
-
-**Since Congress Let Obamacare Subsidies Expire, Millions Are Dropping Coverage**\
-`Americans can’t afford the higher health insurance premiums that resulted from Congress’s refusal to extend federal tax credits.`\
-https://www.nytimes.com/2026/05/01/business/obamacare-enrollment-decline.html
-
-**Protesters Tried to Block an Eviction. But Was It a Case of Deed Theft?**\
-`A Brooklyn case has ignited a debate around the prevalence of deed theft, in which scammers fraudulently take ownership of people’s homes. Here’s what we know.`\
-https://www.nytimes.com/2026/05/01/nyregion/deed-theft.html
-
-**The Best Movies and TV Shows Coming to Disney+, AMC+, Hulu, Apple TV and More in May**\
-`“Spider-Noir,” an installment of “The Terror” anthology and “Wuthering Heights” arrive, and “Battlestar Galactica” returns.`\
-https://www.nytimes.com/2026/05/01/arts/television/movies-tv-shows-may-2026-streaming.html
 
