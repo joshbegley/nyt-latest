@@ -1,3 +1,11 @@
+**How Indigenous Acknowledgments Became a Target in Australia**\
+`Recognition of Aboriginal Australians has become standard at most public events. Increasingly, the right is taking aim at the practice.`\
+https://www.nytimes.com/2026/05/01/world/asia/australia-indigenous-aboriginal-welcome-to-country.html
+
+**En la guerra en Irán, los avistamientos de guepardos son una rara esperanza**\
+`Los conservacionistas dicen haber registrado varios nuevos ejemplares adultos y cachorros de guepardos asiáticos, una subespecie en peligro crítico que solo se encuentra en Irán.`\
+https://www.nytimes.com/es/2026/05/01/espanol/mundo/guerra-iran-guepardos.html
+
 **Who Really Has the Cards? Trump, Iran or A.I.?**\
 `A.I. will drastically increase the power of small states and groups in conflict with the great powers.`\
 https://www.nytimes.com/2026/05/01/opinion/trump-iran-artificial-intelligence-china.html
