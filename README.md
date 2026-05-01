@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/04/30/climate/fema-job-cuts-reverse.html
 
 **Chick-fil-A Bilked for $80,000 in Fake Mac-and-Cheese Refunds, Police Say**\
-`An former employee returned to a franchise in Grapevine, Texas, to process 800 phony refunds to his credit cards, the authorities said.`\
+`A former employee returned to a franchise in Grapevine, Texas, to process 800 phony refunds to his credit cards, the authorities said.`\
 https://www.nytimes.com/2026/04/30/us/chick-fil-a-mac-and-cheese-fraud-texas.html
 
 **Takeaways From Hegseth’s Second Day of Testimony on the Iran War**\
