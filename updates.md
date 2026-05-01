@@ -1,3 +1,7 @@
+**Violence Erupts in Australian Town After Arrest of Suspect in Girl’s Killing**\
+`Police in Alice Springs fired rubber bullets and tear gas to disperse an angry crowd demanding justice.`\
+https://www.nytimes.com/2026/05/01/world/australia/alice-springs-jefferson-lewis-girl-kumanjayi.html
+
 **Palabra del día: ‘pernicious’**\
 `Esta palabra ha aparecido en 76 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/05/01/espanol/palabra-del-dia-pernicious.html
