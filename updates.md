@@ -1,3 +1,7 @@
+**Planning a World Cup Watch Party at a Bar? The ‘FIFA Police’ Are Lurking**\
+`Some businesses advertising watch parties in Canada’s two host cities are wary of running afoul of FIFA’s copyright, which protects advertising “World Cup” events.`\
+https://www.nytimes.com/2026/05/02/world/canada/fifa-world-cup-copyright.html
+
 **Planning a World Cup Watch Party at a Bar? The ‘FIFA Police’ Are Lurking.**\
 `Some businesses advertising watch parties in Canada’s two host cities are wary of running afoul of FIFA’s copyright, which protects advertising “World Cup” events.`\
 https://www.nytimes.com/2026/05/02/world/canada/fifa-world-cup-copyright.html
