@@ -1,3 +1,7 @@
+**It’s Only 5,000 Troops, but America Will Come to Regret Its Rash Withdrawal From Germany**\
+`This is more than just another bilateral spat.`\
+https://www.nytimes.com/2026/05/02/opinion/us-troops-germany-europe-trump.html
+
 **Abortion Providers Forced to Adapt After Court Blocks Pill Access by Mail**\
 `The Fifth Circuit court’s ruling, which is being appealed, reinstates a requirement that patients visit a health care provider in person to obtain mifepristone, upending abortion access in the United States.`\
 https://www.nytimes.com/2026/05/02/us/abortion-pill-mifepristone-5th-circuit-court-ruling.html
