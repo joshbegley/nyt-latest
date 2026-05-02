@@ -1,80 +1,80 @@
-**Timmy the Stranded Whale Is Released After an Elaborate Rescue**\
-`The humpback whale, stuck for weeks in shallow waters off Germany, was towed to the North Sea in a barge. The story captivated the country.`\
-https://www.nytimes.com/2026/05/02/world/europe/timmy-whale-germany-released.html
+**How We Chose What to Ask and When to Challenge Tucker Carlson**\
+`“The Interview” host Lulu Garcia-Navarro talks about her preparation to interview Mr. Carlson and some judgment calls she had to make in real time.`\
+https://www.nytimes.com/2026/05/02/insider/tucker-carlson-times-interview.html
 
-**¿Por qué ir al gimnasio cuando puedes ejercitarte en el parque?**\
-`Todo lo que necesitas para esta rutina es una banca y un poco de pasto.`\
-https://www.nytimes.com/es/2026/05/02/espanol/estilos-de-vida/ejercicios-parque-banca.html
+**What Does Tucker Carlson Really Believe? I Went to Maine to Find Out.**\
+`The conservative media commentator split with the administration over the war in Iran. Will the breakup last?`\
+https://www.nytimes.com/2026/05/02/magazine/tucker-carlson-interview-trump-iran.html
 
-**Todavía admiro a Michael Jackson. Esta es la razón**\
-`He sido seguidora del cantante toda la vida, algo que a veces no puedo defender ni siquiera ante mí misma.`\
-https://www.nytimes.com/es/2026/05/02/espanol/opinion/admirar-michael-jackson-polemica.html
+**Takeaways From The Times’s Interview With Tucker Carlson**\
+`He spoke about the rupture with President Trump and what it portends for the  conservative movement. Here are the key moments from our conversation.`\
+https://www.nytimes.com/2026/05/02/magazine/tucker-carlston-takeaways-interview.html
 
-**How Germany Misjudged Trump’s Anger on Iran**\
-`After Chancellor Friedrich Merz upset President Trump with criticism of the war, he offered no public sign he believed Mr. Trump’s threats to pull troops were serious.`\
-https://www.nytimes.com/2026/05/02/world/europe/germany-trump-merz-troops-withdrawal.html
+**Maduro ya no está, pero en Venezuela casi todo sigue igual**\
+`Las autoridades estadounidenses prometieron “desatar la prosperidad” al tomar el control de la industria petrolera. Muchos en Caracas opinan que hace falta mucho más que eso.`\
+https://www.nytimes.com/es/2026/05/02/espanol/america-latina/venezuela-situacion-economica.html
 
-**How Do You Name the Greatest Songwriters? Much Debate.**\
-`In its latest issue, The New York Times Magazine sings the praises of 30 artists who were chosen by music experts and Times critics.`\
-https://www.nytimes.com/2026/05/02/insider/how-do-you-name-the-greatest-songwriters-much-debate.html
+**El lujo de volverse más excéntrico con la edad**\
+`Conforme pasa el tiempo, es más fácil abrazar tu auténtico (y excéntrico) ser.`\
+https://www.nytimes.com/es/2026/05/02/espanol/excentricidad-vejez.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/05/02/crosswords/spelling-bee-forum.html
+**Tucker Carlson on Donald Trump’s ‘Spellbinding’ Ways**\
+`Tucker Carlson talks about the run-up to the war in Iran, saying that the president “engenders cowardice in the people around him through intimidation.”`\
+https://www.nytimes.com/video/podcasts/100000010875555/tucker-carlson-on-donald-trumps-spellbinding-ways.html
 
-**Spirit Airlines, a Pioneer of Low-Fare Flights, Shuts Down**\
-`Spirit once upended the industry by offering very low fares but was in its second bankruptcy in two years after years of struggle.`\
-https://www.nytimes.com/2026/05/02/business/spirit-airlines-shutdown.html
+**Hegseth’s and Moulton’s Parallel Lives Collide Over Iran**\
+`The defense secretary and Representative Seth Moulton, a Democrat, debated the Iran war through the prism of their shared experiences fighting Iraq.`\
+https://www.nytimes.com/2026/05/02/us/politics/hegseth-moulton-iran-war.html
 
-**La realidad y la ficción en ‘Michael’**\
-`Verificamos los datos en varias escenas de la nueva película biográfica del Rey del Pop, Michael Jackson.`\
-https://www.nytimes.com/es/2026/05/02/espanol/cultura/michael-pelicula-realidad-ficcion.html
+**Paintings So Real, You Can Hardly Resist Believing**\
+`An exhibition of works by Francisco de Zurbarán at London’s National Gallery highlights the painter’s ability to draw in the viewer with detail and drama.`\
+https://www.nytimes.com/2026/05/02/arts/design/francisco-de-zurbaran-national-gallery-london.html
 
-**Mexican Governor Accused by U.S. of Aiding Drug Cartel Steps Down**\
-`U.S. prosecutors accused Rubén Rocha Moya of protecting the powerful Sinaloa Cartel in exchange for bribes and political support, setting off a national scandal.`\
-https://www.nytimes.com/2026/05/02/world/americas/mexico-governor-corruption-ruben-rocha.html
+**Shipwreck Reveals Fate of Vanished World War I Coast Guard Cutter**\
+`The Tampa disappeared in 1918 with 131 British and American personnel and civilians aboard. It was the largest single American naval combat loss of life in World War I`\
+https://www.nytimes.com/2026/05/02/world/europe/tampa-shipwreck-found-uk-us-coast-guard.html
 
-**El mensaje oculto de Carlos III a Trump en EE. UU.**\
-`Analistas en Reino Unido interpretan la visita como un ejercicio de crítica indirecta, cargada de ironía y cortesía real.`\
-https://www.nytimes.com/es/2026/05/02/espanol/mundo/carlos-trump-visita.html
+**Trump’s Vision for ‘Garden of Heroes’ Keeps Getting Bigger and Higher in Cost**\
+`Plans for the project include formal gardens, reflecting pools and plazas alongside the statues of 250 notable Americans, according to documents obtained by The New York Times.`\
+https://www.nytimes.com/2026/05/02/us/politics/trump-garden-of-heroes-statues.html
 
-**Tu médico toma notas con IA. ¿Qué puede salir mal?**\
-`Las aplicaciones que registran las visitas ganan popularidad, pero conllevan problemas de privacidad y precisión.`\
-https://www.nytimes.com/es/2026/05/02/espanol/estilos-de-vida/notas-medico-inteligencia-artificial.html
+**Trading the E.R. or the Kitchen for a Broadway Stage**\
+`Audiences are flocking to shows starring Patrick Ball of “The Pitt,” Jon Bernthal and Ayo Edebiri of “The Bear,” Ben Ahlers of “The Gilded Age” and more.`\
+https://www.nytimes.com/2026/05/02/theater/patrick-ball-pitt-bear-hacks-gilded-age-broadway.html
 
-**South Korea’s Cherry Blossoms Attract a Connoisseur: The Japanese**\
-`Cherry blossom viewing, or hanami, is a cherished rite in Japan. Some Japanese are also doing it in South Korea.`\
-https://www.nytimes.com/2026/05/02/world/asia/south-koreas-cherry-blossoms-attract-a-connoisseur-the-japanese.html
+**These G.O.P. Women Want Congress Members to Pay a Price for Abuse. Will It Work?**\
+`Three Republican women who had a hand in forcing the resignations of lawmakers accused of sexual misconduct said they are out to name and shame more offenders. It is not clear how far they will go.`\
+https://www.nytimes.com/2026/05/02/us/politics/boebert-mace-luna-republican-women.html
 
-**Quote of the Day: One Thing Uniting Bannon and Bernie: Worries About A.I.**\
-`Quotation of the Day for Saturday, May 2, 2026.`\
-https://www.nytimes.com/2026/05/02/pageoneplus/quote-of-the-day-one-thing-uniting-bannon-and-bernie-worries-about-ai.html
+**Los ricos y poderosos quieren vivir para siempre. ¿Y si pudieran?**\
+`Del Kremlin a Silicon Valley, algunas de las personas más influyentes del mundo persiguen ahora algo más: la vida eterna.`\
+https://www.nytimes.com/es/2026/05/02/espanol/ciencia-y-tecnologia/vida-eterna-longevidad-poderosos-millonarios.html
 
-**One Reason to Learn Muay Thai? You Can Stay in Thailand Longer.**\
-`Visitors can apply for a five-year visa if they take lessons in “soft power” activities like the Thai martial art. Training does not have to be grueling, and sparring is optional.`\
-https://www.nytimes.com/2026/05/02/world/asia/one-reason-to-learn-muay-thai-you-can-stay-in-thailand-longer.html
+**Trump’s Push for Electoral Retribution Heads to the Ballot Box**\
+`The president’s push to punish political enemies in his own party will play a starring role in a series of Republican primaries this month in which he has backed challengers.`\
+https://www.nytimes.com/2026/05/02/us/politics/trumps-push-for-electoral-retribution-heads-to-the-ballot-box.html
 
-**A 5-Month Wait and a 50% Fail Rate: It’s Hard to Get a British Driving License**\
-`The average wait for a test in England and Scotland has hit 22 weeks, up from five weeks before the pandemic, leading to frustration and attempts to jump the line.`\
-https://www.nytimes.com/2026/05/02/world/europe/uk-driving-tests-backlog.html
+**The Race Is On to Find the Treasure Buried in San Francisco**\
+`From the Gold Rush to the A.I. boom, San Francisco has always drawn those seeking riches. Now, people are deciphering riddles and digging up the city to find a box filled with cold, hard cash.`\
+https://www.nytimes.com/2026/05/02/us/the-race-is-on-to-find-the-treasure-buried-in-san-francisco.html
 
-**Not Even Japanese Bathhouses Are Immune From Shocks of Iran War**\
-`High fuel costs are imperiling the Japanese sento, a long-declining industry that remains a vital social lifeline for the country’s isolated elderly.`\
-https://www.nytimes.com/2026/05/02/business/japan-bathhouse-oil-iran.html
+**Why Iran’s Nuclear Arsenal Is at the Center of Negotiations**\
+`Iran’s stockpile of enriched uranium is one of the big issues in negotiating an end to the war. Our national security reporter, David Sanger, explains why.`\
+https://www.nytimes.com/video/us/100000010867733/why-irans-nuclear-arsenal-is-at-the-center-of-negotiations.html
 
-**Winning X or O**\
-`Hannah Slovut-Einertson’s latest themeless puzzle takes us on a solving safari.`\
-https://www.nytimes.com/2026/05/01/crosswords/daily-puzzle-2026-05-02.html
+**My Co-op’s New Rule Is Unfair. What Can I Do?**\
+`Co-op boards like to know who is in the building, but sometimes they go too far.`\
+https://www.nytimes.com/2026/05/02/realestate/my-co-ops-new-rule-is-unfair-what-can-i-do.html
 
-**Trump Endorses Andy Barr for Senate as Musk-Backed Candidate Exits Race**\
-`The candidate in Kentucky, Nate Morris, said he would be joining the Trump administration. He met with the president a day before his announcement.`\
-https://www.nytimes.com/2026/05/01/us/politics/trump-andy-barr-kentucky-senate-endorsement.html
+**Can a Second Home Tax Work in New York? The Numbers Don’t Add Up Yet.**\
+`The tax proposal is being held up as a generational attempt to make the ultrawealthy pay more to society and potentially raise $500 million a year for New York City.`\
+https://www.nytimes.com/2026/05/02/nyregion/second-home-tax-nyc.html
 
-**Editors’ Note: May 2, 2026**\
-`The following editors’ note and correction appeared in print on Saturday, May 2, 2026.`\
-https://www.nytimes.com/2026/05/01/pageoneplus/editors-note-may-2-2026.html
+**The Fight to Keep Two Historic Brooklyn Buildings for the Community**\
+`The Paul Robeson Theater and Stuyvesant Mansion, formerly owned by the trailblazing physician Dr. Josephine English, are facing a court-ordered sale.`\
+https://www.nytimes.com/2026/05/02/realestate/paul-robeson-theatre-stuyvesant-mansion-for-sale.html
 
-**Jailed Iranian Nobel Peace Prize Winner Hospitalized in Critical Condition**\
-`Narges Mohammadi, a prominent human rights activist, was taken to a hospital after collapsing following a heart problem in prison.`\
-https://www.nytimes.com/2026/05/01/world/middleeast/narges-mohammadi-iran-hospialized.html
+**Tooth Brushing at Work Has Me Foaming at the Mouth**\
+`Plus: Is it insane to refuse a raise?`\
+https://www.nytimes.com/2026/05/02/business/flossing-brushing-work-gross.html
 
