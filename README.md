@@ -1,3 +1,11 @@
+**La realidad y la ficción en ‘Michael’**\
+`Verificamos los datos en varias escenas de la nueva película biográfica del Rey del Pop, Michael Jackson.`\
+https://www.nytimes.com/es/2026/05/02/espanol/cultura/michael-pelicula-realidad-ficcion.html
+
+**Mexican Governor Accused by U.S. of Aiding Drug Cartel Steps Down**\
+`U.S. prosecutors accused Rubén Rocha Moya of protecting the powerful Sinaloa Cartel in exchange for bribes and political support, setting off a national scandal.`\
+https://www.nytimes.com/2026/05/02/world/americas/mexico-governor-corruption-ruben-rocha.html
+
 **El mensaje oculto de Carlos III a Trump en EE. UU.**\
 `Analistas en Reino Unido interpretan la visita como un ejercicio de crítica indirecta, cargada de ironía y cortesía real.`\
 https://www.nytimes.com/es/2026/05/02/espanol/mundo/carlos-trump-visita.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/01/us/cornell-president-student-protester.html
 **Why U.S. Officials Are in Venezuela Right Now**\
 `U.S. officials visited Venezuela after the first direct flight between the two countries since 2019. Our White House correspondent Tyler Pager describes how the main message of the trip was, in the words of a White House adviser “drill, baby, drill.”`\
 https://www.nytimes.com/video/world/americas/100000010874870/why-us-officials-are-in-venezuela-right-now.html
-
-**Swalwell Used Social Media to Build His Career. His Accusers Used It to Warn Others.**\
-`Eric Swalwell used social media to boost his image and meet women, accusers said. Some of those same women used apps and influencers to join forces years later.`\
-https://www.nytimes.com/2026/05/01/us/eric-swalwell-social-media.html
-
-**U.S. to Withdraw 5,000 Troops From Germany, Pentagon Says**\
-`Officials announced the decision after President Trump expressed annoyance with the German chancellor’s remarks about the Iran war.`\
-https://www.nytimes.com/2026/05/01/us/politics/us-troops-germany.html
 
