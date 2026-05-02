@@ -1,3 +1,7 @@
+**El gobierno de Cuba desafía a EE. UU. en las celebraciones del Primero de Mayo**\
+`El gobierno de la isla conmemoró el Día Internacional de los Trabajadores frente a la embajada de EE. UU. en La Habana. El acto fue una oportunidad de mantener las apariencias durante la peor crisis en casi 70 años de historia del régimen.`\
+https://www.nytimes.com/es/2026/05/01/espanol/america-latina/cuba-1-mayo.html
+
 **Federal Judge Blocks Plan to End Deportation Protections for Yemenis**\
 `A Supreme Court court decision involving similar deportation protections for Haitians and Syrians could have implications for Yemeni migrants.`\
 https://www.nytimes.com/2026/05/01/nyregion/yemenis-tps-judge-rules.html
@@ -15,7 +19,7 @@ https://www.nytimes.com/2026/05/01/nyregion/kennedy-lively-baldoni-smear-campaig
 https://www.nytimes.com/2026/05/01/us/politics/trump-jenna-norton-nih.html
 
 **Cornell President’s Car Bumps Into Students After Confrontation Over Gaza**\
-`After a debate over the conflict between Israelis and Palestinians, students say the university president hit them with his vehicle. He says he was the victim in the incident.`\
+`After a debate over the war, students say the university president hit them with his vehicle. He says he was the victim in the incident.`\
 https://www.nytimes.com/2026/05/01/us/cornell-president-student-protester.html
 
 **Why U.S. Officials Are in Venezuela Right Now**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/01/world/americas/cuba-may-day-international-wor
 **Bard College’s President Will Retire After Epstein Revelations**\
 `The president, Leon Botstein, who had run Bard for 50 years, faced scrutiny over his connections to Jeffrey Epstein.`\
 https://www.nytimes.com/2026/05/01/us/bard-president-leon-botstein-jeffrey-epstein.html
-
-**Student Driver Plunges Bus Into River Seine**\
-`Over 100 rescue workers fished out a bus from the River Seine in Juvisy-sur-Orge, a commuter town near Paris, on Thursday after a bus driver in training veered it into the river.`\
-https://www.nytimes.com/video/world/europe/100000010875624/seine-bus-crash-rescue.html
 

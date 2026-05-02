@@ -1,3 +1,11 @@
+**El gobierno de Cuba desafía a EE. UU. en las celebraciones del Primero de Mayo**\
+`El gobierno de la isla conmemoró el Día Internacional de los Trabajadores frente a la embajada de EE. UU. en La Habana. El acto fue una oportunidad de mantener las apariencias durante la peor crisis en casi 70 años de historia del régimen.`\
+https://www.nytimes.com/es/2026/05/01/espanol/america-latina/cuba-1-mayo.html
+
+**Cornell President’s Car Bumps Into Students After Confrontation Over Gaza**\
+`After a debate over the war, students say the university president hit them with his vehicle. He says he was the victim in the incident.`\
+https://www.nytimes.com/2026/05/01/us/cornell-president-student-protester.html
+
 **Federal Judge Blocks Plan to End Deportation Protections for Yemenis**\
 `A Supreme Court court decision involving similar deportation protections for Haitians and Syrians could have implications for Yemeni migrants.`\
 https://www.nytimes.com/2026/05/01/nyregion/yemenis-tps-judge-rules.html
