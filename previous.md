@@ -1,3 +1,11 @@
+**Huevos Enfrijolados Are Here for You**\
+`Rick Martínez’s easy recipe turns eggs, canned black beans and chipotles into a satisfying dinner (or breakfast or brunch or lunch).`\
+https://www.nytimes.com/2026/05/02/dining/huevos-enfrijolados-are-here-for-you.html
+
+**U.S. Fast-Tracks Arms Deals Valued at $8.6 Billion to Mideast Partners**\
+`The Persian Gulf countries and Israel have faced repeated Iranian attacks during the U.S.-Israeli war with Iran. The State Department move bypassed congressional review.`\
+https://www.nytimes.com/2026/05/02/world/middleeast/us-fast-track-arms-deal-middle-east.html
+
 **3 Medical Routines That Older People May Not Need**\
 `Some screenings and treatments no longer make sense for patients as they age. Researchers have just added a few more to the list.`\
 https://www.nytimes.com/2026/05/02/health/older-colonoscopy-screenings-treatments.html
@@ -65,12 +73,4 @@ https://www.nytimes.com/2026/05/02/insider/tucker-carlson-times-interview.html
 **What Does Tucker Carlson Really Believe? I Went to Maine to Find Out.**\
 `The conservative media commentator split with the administration over the war in Iran. Will the breakup last?`\
 https://www.nytimes.com/2026/05/02/magazine/tucker-carlson-interview-trump-iran.html
-
-**Takeaways From The Times’s Interview With Tucker Carlson**\
-`He spoke about the rupture with President Trump and what it portends for the  conservative movement. Here are the key moments from our conversation.`\
-https://www.nytimes.com/2026/05/02/magazine/tucker-carlson-takeaways-interview.html
-
-**Maduro ya no está, pero en Venezuela casi todo sigue igual**\
-`Las autoridades estadounidenses prometieron “desatar la prosperidad” al tomar el control de la industria petrolera. Muchos en Caracas opinan que hace falta mucho más que eso.`\
-https://www.nytimes.com/es/2026/05/02/espanol/america-latina/venezuela-situacion-economica.html
 

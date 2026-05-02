@@ -1,3 +1,11 @@
+**Huevos Enfrijolados Are Here for You**\
+`Rick Martínez’s easy recipe turns eggs, canned black beans and chipotles into a satisfying dinner (or breakfast or brunch or lunch).`\
+https://www.nytimes.com/2026/05/02/dining/huevos-enfrijolados-are-here-for-you.html
+
+**U.S. Fast-Tracks Arms Deals Valued at $8.6 Billion to Mideast Partners**\
+`The Persian Gulf countries and Israel have faced repeated Iranian attacks during the U.S.-Israeli war with Iran. The State Department move bypassed congressional review.`\
+https://www.nytimes.com/2026/05/02/world/middleeast/us-fast-track-arms-deal-middle-east.html
+
 **3 Medical Routines That Older People May Not Need**\
 `Some screenings and treatments no longer make sense for patients as they age. Researchers have just added a few more to the list.`\
 https://www.nytimes.com/2026/05/02/health/older-colonoscopy-screenings-treatments.html
