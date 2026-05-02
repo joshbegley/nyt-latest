@@ -1,3 +1,7 @@
+**What Are the Odds?**\
+`Mark Diehl gambles on a return to the Sunday puzzle after a long absence.`\
+https://www.nytimes.com/2026/05/02/crosswords/daily-puzzle-2026-05-03.html
+
 **Timmy the Stranded Whale Released Into the North Sea**\
 `After weeks of being stuck in shallow waters near Germany, Timmy, a humpback whale, was released into the North Sea on Saturday.`\
 https://www.nytimes.com/video/world/europe/100000010876863/timmy-whale-germany-released.html
