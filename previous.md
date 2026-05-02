@@ -2,13 +2,13 @@
 `The administration’s decision to relax federal regulations on medical marijuana comes with big tax breaks for many cannabis companies, and could drive new investment in the budding sector.`\
 https://www.nytimes.com/2026/05/02/business/dealbook/cannabis-industry-trump.html
 
-**Ruling by Ruling, the Supreme Court Is Undoing the Civil Rights Movement**\
-`Congress must once again defend democracy from a hostile court.`\
-https://www.nytimes.com/2026/05/02/opinion/supreme-court-voting-rights-act.html
-
 **Slouching Toward Kamala Harris**\
 `The Democrats’ fundamental condition is a late-Trumpian stasis.`\
 https://www.nytimes.com/2026/05/02/opinion/kamala-harris-democratic-party.html
+
+**Ruling by Ruling, the Supreme Court Is Undoing the Civil Rights Movement**\
+`Congress must once again defend democracy from a hostile court.`\
+https://www.nytimes.com/2026/05/02/opinion/supreme-court-voting-rights-act.html
 
 **What Is Higher Education For?**\
 `Readers respond to Bret Stephens’s column about the recent Yale report on reforming academia.`\
