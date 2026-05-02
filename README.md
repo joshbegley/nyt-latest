@@ -74,7 +74,3 @@ https://www.nytimes.com/es/2026/05/02/espanol/america-latina/venezuela-situacion
 `Conforme pasa el tiempo, es más fácil abrazar tu auténtico (y excéntrico) ser.`\
 https://www.nytimes.com/es/2026/05/02/espanol/excentricidad-vejez.html
 
-**Tucker Carlson on Donald Trump’s ‘Spellbinding’ Ways**\
-`Tucker Carlson talks about the run-up to the war in Iran, saying that the president “engenders cowardice in the people around him through intimidation.”`\
-https://www.nytimes.com/video/podcasts/100000010875555/tucker-carlson-on-donald-trumps-spellbinding-ways.html
-
