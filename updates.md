@@ -1,3 +1,7 @@
+**Jailed Iranian Nobel Peace Prize Winner Hospitalized in Critical Condition**\
+`Narges Mohammadi, a prominent human rights activist, was taken to a hospital after collapsing following a heart problem in prison.`\
+https://www.nytimes.com/2026/05/01/world/middleeast/narges-mohammadi-iran-hospialized.html
+
 **Winning X or O**\
 `Hannah Slovut-Einertson’s latest themeless puzzle takes us on a solving safari.`\
 https://www.nytimes.com/2026/05/01/crosswords/daily-puzzle-2026-05-02.html
