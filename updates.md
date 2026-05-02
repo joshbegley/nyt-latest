@@ -1,3 +1,7 @@
+**Abortion Providers Forced to Adapt After Court Blocks Pill Access by Mail**\
+`The Fifth Circuit court’s ruling, which is being appealed, reinstates a requirement that patients visit a health care provider in person to obtain mifepristone, upending abortion access in the United States.`\
+https://www.nytimes.com/2026/05/02/us/abortion-pill-mifepristone-5th-circuit-court-ruling.html
+
 **This Could Be the Biggest Blow to Abortion Rights Since Roe Fell**\
 `A ruling by a federal appeals court has blocked access to abortion pills via telemedicine.`\
 https://www.nytimes.com/2026/05/02/opinion/abortion-telehealth.html

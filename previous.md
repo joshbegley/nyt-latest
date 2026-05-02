@@ -15,7 +15,7 @@ https://www.nytimes.com/2026/05/02/opinion/us-troops-germany-europe-trump.html
 https://www.nytimes.com/2026/05/02/style/kentucky-derby-2026-hats.html
 
 **Abortion Providers Forced to Adapt After Court Blocks Pill Access by Mail**\
-`The Fifth Circuit Court’s ruling, which is being appealed, reinstates a requirement that patients visit a health care provider in person to obtain mifepristone, upending abortion access in the United States.`\
+`The Fifth Circuit court’s ruling, which is being appealed, reinstates a requirement that patients visit a health care provider in person to obtain mifepristone, upending abortion access in the United States.`\
 https://www.nytimes.com/2026/05/02/us/abortion-pill-mifepristone-5th-circuit-court-ruling.html
 
 **Nicole Hollander, Acerbic Feminist Cartoonist, Dies at 86**\
