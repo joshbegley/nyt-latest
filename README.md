@@ -1,4 +1,4 @@
-**Federal Judge Blocks Plan to End Deportation Protections For Yemenis**\
+**Federal Judge Blocks Plan to End Deportation Protections for Yemenis**\
 `A Supreme Court court decision involving similar deportation protections for Haitians and Syrians could have implications for Yemeni migrants.`\
 https://www.nytimes.com/2026/05/01/nyregion/yemenis-tps-judge-rules.html
 
