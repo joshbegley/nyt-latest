@@ -1,3 +1,7 @@
+**Timmy the Stranded Whale Is Released After an Elaborate Rescue**\
+`The humpback whale, stuck for weeks in shallow waters off Germany, was towed to the North Sea in a barge. The story captivated the country.`\
+https://www.nytimes.com/2026/05/02/world/europe/timmy-whale-germany-released.html
+
 **¿Por qué ir al gimnasio cuando puedes ejercitarte en el parque?**\
 `Todo lo que necesitas para esta rutina es una banca y un poco de pasto.`\
 https://www.nytimes.com/es/2026/05/02/espanol/estilos-de-vida/ejercicios-parque-banca.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/01/pageoneplus/editors-note-may-2-2026.html
 **Jailed Iranian Nobel Peace Prize Winner Hospitalized in Critical Condition**\
 `Narges Mohammadi, a prominent human rights activist, was taken to a hospital after collapsing following a heart problem in prison.`\
 https://www.nytimes.com/2026/05/01/world/middleeast/narges-mohammadi-iran-hospialized.html
-
-**El gobierno de Cuba desafía a EE. UU. en las celebraciones del Primero de Mayo**\
-`El gobierno de la isla conmemoró el Día Internacional de los Trabajadores frente a la embajada de EE. UU. en La Habana. El acto fue una oportunidad de mantener las apariencias durante la peor crisis en casi 70 años de historia del régimen.`\
-https://www.nytimes.com/es/2026/05/01/espanol/america-latina/cuba-1-mayo.html
 
