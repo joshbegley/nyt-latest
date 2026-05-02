@@ -1,3 +1,7 @@
+**Takeaways From The Times’s Interview With Tucker Carlson**\
+`He spoke about the rupture with President Trump and what it portends for the  conservative movement. Here are the key moments from our conversation.`\
+https://www.nytimes.com/2026/05/02/magazine/tucker-carlson-takeaways-interview.html
+
 **How We Chose What to Ask and When to Challenge Tucker Carlson**\
 `“The Interview” host Lulu Garcia-Navarro talks about her preparation to interview Mr. Carlson and some judgment calls she had to make in real time.`\
 https://www.nytimes.com/2026/05/02/insider/tucker-carlson-times-interview.html

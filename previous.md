@@ -8,7 +8,7 @@ https://www.nytimes.com/2026/05/02/magazine/tucker-carlson-interview-trump-iran.
 
 **Takeaways From The Times’s Interview With Tucker Carlson**\
 `He spoke about the rupture with President Trump and what it portends for the  conservative movement. Here are the key moments from our conversation.`\
-https://www.nytimes.com/2026/05/02/magazine/tucker-carlston-takeaways-interview.html
+https://www.nytimes.com/2026/05/02/magazine/tucker-carlson-takeaways-interview.html
 
 **Maduro ya no está, pero en Venezuela casi todo sigue igual**\
 `Las autoridades estadounidenses prometieron “desatar la prosperidad” al tomar el control de la industria petrolera. Muchos en Caracas opinan que hace falta mucho más que eso.`\
