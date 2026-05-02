@@ -1,3 +1,7 @@
+**How Germany Misjudged Trump’s Anger on Iran**\
+`After Chancellor Friedrich Merz upset President Trump with criticism of the war, he offered no public sign he believed Mr. Trump’s threats to pull troops were serious.`\
+https://www.nytimes.com/2026/05/02/world/europe/germany-trump-merz-troops-withdrawal.html
+
 **How Do You Name the Greatest Songwriters? Much Debate.**\
 `In its latest issue, The New York Times Magazine sings the praises of 30 artists who were chosen by music experts and Times critics.`\
 https://www.nytimes.com/2026/05/02/insider/how-do-you-name-the-greatest-songwriters-much-debate.html

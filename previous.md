@@ -1,3 +1,7 @@
+**How Germany Misjudged Trump’s Anger on Iran**\
+`After Chancellor Friedrich Merz upset President Trump with criticism of the war, he offered no public sign he believed Mr. Trump’s threats to pull troops were serious.`\
+https://www.nytimes.com/2026/05/02/world/europe/germany-trump-merz-troops-withdrawal.html
+
 **How Do You Name the Greatest Songwriters? Much Debate.**\
 `In its latest issue, The New York Times Magazine sings the praises of 30 artists who were chosen by music experts and Times critics.`\
 https://www.nytimes.com/2026/05/02/insider/how-do-you-name-the-greatest-songwriters-much-debate.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/01/nyregion/yemenis-tps-judge-rules.html
 **Georgia Governor Sets July Date for Special Election to Fill a House Seat**\
 `The winner will serve out the rest of Representative David Scott’s seat in Congress after the longtime lawmaker’s death last month.`\
 https://www.nytimes.com/2026/05/01/us/georgia-house-special-election-david-scott.html
-
-**Kennedy Consulted With Scandal P.R. Firm While Seeking Cabinet Nomination**\
-`An associate of the firm, which has been accused of running a smear campaign against the actress Blake Lively, promised to suppress negative stories about Robert F. Kennedy Jr., records show.`\
-https://www.nytimes.com/2026/05/01/nyregion/kennedy-lively-baldoni-smear-campaign.html
 
