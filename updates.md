@@ -1,3 +1,11 @@
+**Georgia Governor Sets July Date for Special Election to Fill a House Seat**\
+`The winner will serve out the rest of Representative David Scott’s seat in Congress after the longtime lawmaker’s death last month.`\
+https://www.nytimes.com/2026/05/01/us/georgia-house-special-election-david-scott.html
+
+**Kennedy Messaged With Scandal P.R. Firm While Seeking Cabinet Nomination**\
+`An associate of the firm, which has been accused of running a smear campaign against the actress Blake Lively, promised to suppress negative stories about Robert F. Kennedy Jr., records show.`\
+https://www.nytimes.com/2026/05/01/nyregion/kennedy-lively-baldoni-smear-campaign.html
+
 **N.I.H. Reinstates Employee Put on Leave After Criticizing Trump Research Cuts**\
 `Jenna Norton had filed a whistle-blower complaint claiming that the agency leadership had retaliated against her.`\
 https://www.nytimes.com/2026/05/01/us/politics/trump-jenna-norton-nih.html

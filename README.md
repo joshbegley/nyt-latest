@@ -1,3 +1,7 @@
+**Federal Judge Blocks Plan to End Deportation Protections For Yemenis**\
+`A Supreme Court court decision involving similar deportation protections for Haitians and Syrians could have implications for Yemeni migrants.`\
+https://www.nytimes.com/2026/05/01/nyregion/yemenis-tps-judge-rules.html
+
 **Georgia Governor Sets July Date for Special Election to Fill a House Seat**\
 `The winner will serve out the rest of Representative David Scott’s seat in Congress after the longtime lawmaker’s death last month.`\
 https://www.nytimes.com/2026/05/01/us/georgia-house-special-election-david-scott.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/05/01/nyregion/kennedy-lively-baldoni-smear-campaig
 `Jenna Norton had filed a whistle-blower complaint claiming that the agency leadership had retaliated against her.`\
 https://www.nytimes.com/2026/05/01/us/politics/trump-jenna-norton-nih.html
 
-**A Night of Civil Discourse Turns to Confrontation at Cornell**\
+**Cornell President’s Car Bumps Into Students After Confrontation Over Gaza**\
 `After a debate over the conflict between Israelis and Palestinians, students say the university president hit them with his vehicle. He says he was the victim in the incident.`\
 https://www.nytimes.com/2026/05/01/us/cornell-president-student-protester.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/01/us/bard-president-leon-botstein-jeffrey-epste
 **Student Driver Plunges Bus Into River Seine**\
 `Over 100 rescue workers fished out a bus from the River Seine in Juvisy-sur-Orge, a commuter town near Paris, on Thursday after a bus driver in training veered it into the river.`\
 https://www.nytimes.com/video/world/europe/100000010875624/seine-bus-crash-rescue.html
-
-**Seoul-Born Artist Shakes Up Jazz With Traditional Korean Music**\
-`DoYeon Kim, a Seoul-born musician, has become an in-demand collaborator for some of the biggest innovators in jazz and improvised music. Her work is steeped in traditional Korean and Western classical music.`\
-https://www.nytimes.com/video/arts/music/100000010874960/doyeon-kim-wellspring-gayageum.html
 

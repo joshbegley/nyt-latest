@@ -1,3 +1,11 @@
+**Georgia Governor Sets July Date for Special Election to Fill a House Seat**\
+`The winner will serve out the rest of Representative David Scott’s seat in Congress after the longtime lawmaker’s death last month.`\
+https://www.nytimes.com/2026/05/01/us/georgia-house-special-election-david-scott.html
+
+**Kennedy Messaged With Scandal P.R. Firm While Seeking Cabinet Nomination**\
+`An associate of the firm, which has been accused of running a smear campaign against the actress Blake Lively, promised to suppress negative stories about Robert F. Kennedy Jr., records show.`\
+https://www.nytimes.com/2026/05/01/nyregion/kennedy-lively-baldoni-smear-campaign.html
+
 **N.I.H. Reinstates Employee Put on Leave After Criticizing Trump Research Cuts**\
 `Jenna Norton had filed a whistle-blower complaint claiming that the agency leadership had retaliated against her.`\
 https://www.nytimes.com/2026/05/01/us/politics/trump-jenna-norton-nih.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/world/europe/100000010875624/seine-bus-crash-rescu
 **Seoul-Born Artist Shakes Up Jazz With Traditional Korean Music**\
 `DoYeon Kim, a Seoul-born musician, has become an in-demand collaborator for some of the biggest innovators in jazz and improvised music. Her work is steeped in traditional Korean and Western classical music.`\
 https://www.nytimes.com/video/arts/music/100000010874960/doyeon-kim-wellspring-gayageum.html
-
-**Human Remains Found in Tampa Bay Are Identified as Missing Grad Student**\
-`A former University of South Florida student has been charged in the murders of Nahida Bristy and Zamil Limon, doctoral students who were reported missing last month.`\
-https://www.nytimes.com/2026/05/01/us/usf-missing-student-identified.html
-
-**Thermos Recalls 8.2 Million Jars and Bottles After Customers Are Injured**\
-`The company received reports that the stoppers on some of its products had “forcefully ejected,” striking customers and causing permanent vision loss in a few cases, safety regulators said.`\
-https://www.nytimes.com/2026/05/01/business/thermos-bottles-recall.html
 
