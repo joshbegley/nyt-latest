@@ -30,7 +30,7 @@ https://www.nytimes.com/2026/05/02/opinion/trump-thomas-jefferson-founding-fathe
 `How often do you talk to strangers? What’s stopping you?`\
 https://www.nytimes.com/2026/05/02/briefing/public-offering.html
 
-**Trump and the New American Era of Petrolunacy**\
+**America Will Pay Dearly for Its Energy Arrogance**\
 `The idea that the U.S. is immune to the oil crisis is a mistaken one.`\
 https://www.nytimes.com/2026/05/02/opinion/trump-us-oil-crisis-strait-of-hormuz.html
 
