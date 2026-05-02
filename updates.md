@@ -1,3 +1,7 @@
+**Kennedy Consulted With Scandal P.R. Firm While Seeking Cabinet Nomination**\
+`An associate of the firm, which has been accused of running a smear campaign against the actress Blake Lively, promised to suppress negative stories about Robert F. Kennedy Jr., records show.`\
+https://www.nytimes.com/2026/05/01/nyregion/kennedy-lively-baldoni-smear-campaign.html
+
 **Trump Endorses Andy Barr for Senate as Musk-Backed Candidate Exits Race**\
 `The candidate in Kentucky, Nate Morris, said he would be joining the Trump administration. He met with the president a day before his announcement.`\
 https://www.nytimes.com/2026/05/01/us/politics/trump-andy-barr-kentucky-senate-endorsement.html
