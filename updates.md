@@ -1,3 +1,11 @@
+**Abortion Providers Forced to Adapt After Court Blocks Pill Access by Mail**\
+`The Fifth Circuit Court’s ruling, which is being appealed, reinstates a requirement that patients visit a health care provider in person to obtain mifepristone, upending abortion access in the United States.`\
+https://www.nytimes.com/2026/05/02/us/abortion-pill-mifepristone-5th-circuit-court-ruling.html
+
+**Nicole Hollander, Acerbic Feminist Cartoonist, Dies at 86**\
+`For more than 30 years, she wrote and illustrated “Sylvia,” a comic strip about a tart-tongued, witty woman unafraid of expressing her many opinions.`\
+https://www.nytimes.com/2026/05/02/arts/design/nicole-hollander-dead.html
+
 **New Video Analysis Suggests Suspect in Correspondents’ Dinner Attack Fired First**\
 `A Times analysis of footage released by the F.B.I. on Thursday night appears to show the assailant shot at a Secret Service officer, who then returned fire.`\
 https://www.nytimes.com/2026/05/02/us/politics/white-house-correspondents-dinner-shooting-suspect-video.html
