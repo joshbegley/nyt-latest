@@ -1,3 +1,7 @@
+**America Will Pay Dearly for Its Energy Arrogance**\
+`The idea that the U.S. is immune to the oil crisis is a mistaken one.`\
+https://www.nytimes.com/2026/05/02/opinion/trump-us-oil-crisis-strait-of-hormuz.html
+
 **The Cannabis Industry’s New Best Friend? President Trump**\
 `The administration’s decision to relax federal regulations on medical marijuana comes with big tax breaks for many cannabis companies, and could drive new investment in the budding sector.`\
 https://www.nytimes.com/2026/05/02/business/dealbook/cannabis-industry-trump.html
