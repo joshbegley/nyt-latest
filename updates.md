@@ -1,3 +1,11 @@
+**How Do You Name the Greatest Songwriters? Much Debate.**\
+`In its latest issue, The New York Times Magazine sings the praises of 30 artists who were chosen by music experts and Times critics.`\
+https://www.nytimes.com/2026/05/02/insider/how-do-you-name-the-greatest-songwriters-much-debate.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/02/crosswords/spelling-bee-forum.html
+
 **Spirit Airlines, a Pioneer of Low-Fare Flights, Shuts Down**\
 `Spirit once upended the industry by offering very low fares but was in its second bankruptcy in two years after years of struggle.`\
 https://www.nytimes.com/2026/05/02/business/spirit-airlines-shutdown.html
