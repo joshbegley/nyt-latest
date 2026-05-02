@@ -1,3 +1,7 @@
+**The Cannabis Industry’s New Best Friend? President Trump**\
+`The administration’s decision to relax federal regulations on medical marijuana comes with big tax breaks for many cannabis companies, and could drive new investment in the budding sector.`\
+https://www.nytimes.com/2026/05/02/business/dealbook/cannabis-industry-trump.html
+
 **What Would the Nation’s Founders Think of Trump? 250 Years Later, Here Is the Answer.**\
 `Jefferson’s quill pen drew blood.`\
 https://www.nytimes.com/2026/05/02/opinion/trump-thomas-jefferson-founding-fathers.html

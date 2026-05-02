@@ -1,3 +1,7 @@
+**The Cannabis Industry’s New Best Friend? President Trump**\
+`The administration’s decision to relax federal regulations on medical marijuana comes with big tax breaks for many cannabis companies, and could drive new investment in the budding sector.`\
+https://www.nytimes.com/2026/05/02/business/dealbook/cannabis-industry-trump.html
+
 **Ruling by Ruling, the Supreme Court Is Undoing the Civil Rights Movement**\
 `Congress must once again defend democracy from a hostile court.`\
 https://www.nytimes.com/2026/05/02/opinion/supreme-court-voting-rights-act.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/02/espanol/excentricidad-vejez.html
 **Tucker Carlson on Donald Trump’s ‘Spellbinding’ Ways**\
 `Tucker Carlson talks about the run-up to the war in Iran, saying that the president “engenders cowardice in the people around him through intimidation.”`\
 https://www.nytimes.com/video/podcasts/100000010875555/tucker-carlson-on-donald-trumps-spellbinding-ways.html
-
-**Hegseth’s and Moulton’s Parallel Lives Collide Over Iran**\
-`The defense secretary and Representative Seth Moulton, a Democrat, debated the Iran war through the prism of their shared experiences fighting Iraq.`\
-https://www.nytimes.com/2026/05/02/us/politics/hegseth-moulton-iran-war.html
 
