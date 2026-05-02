@@ -1,3 +1,11 @@
+**U.S. to Pull 5,000 Troops From Germany. But Plenty More Will Remain.**\
+`The U.S. military has tens of thousands of personnel in Germany, more than in any other foreign country but Japan. Their significance extends well beyond Europe.`\
+https://www.nytimes.com/2026/05/02/world/europe/us-troops-germany-trump.html
+
+**A List of Everyone Who Could Be in Trump’s ‘Garden of Heroes’**\
+`President Trump plans to build a park along the Potomac River featuring life-size statues of 250 Americans.`\
+https://www.nytimes.com/2026/05/02/us/politics/trump-garden-of-heroes-national-statues-list.html
+
 **Huevos Enfrijolados Are Here for You**\
 `Rick Martínez’s easy recipe turns eggs, canned black beans and chipotles into a satisfying dinner (or breakfast or brunch or lunch).`\
 https://www.nytimes.com/2026/05/02/dining/huevos-enfrijolados-are-here-for-you.html
@@ -65,12 +73,4 @@ https://www.nytimes.com/2026/05/02/world/canada/assisted-death-mental-illness-ca
 **Strands Sidekick No. 791**\
 `Scroll down for hints and conversation about the puzzle for Sunday, May 3, 2026.`\
 https://www.nytimes.com/2026/05/02/crosswords/strands-sidekick-791.html
-
-**How We Chose What to Ask and When to Challenge Tucker Carlson**\
-`“The Interview” host Lulu Garcia-Navarro talks about her preparation to interview Mr. Carlson and some judgment calls she had to make in real time.`\
-https://www.nytimes.com/2026/05/02/insider/tucker-carlson-times-interview.html
-
-**What Does Tucker Carlson Really Believe? I Went to Maine to Find Out.**\
-`The conservative media commentator split with the administration over the war in Iran. Will the breakup last?`\
-https://www.nytimes.com/2026/05/02/magazine/tucker-carlson-interview-trump-iran.html
 
