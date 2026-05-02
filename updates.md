@@ -1,3 +1,7 @@
+**‘A Huge Mess’: Delayed Louisiana Primaries Stoke Confusion at Ballot Box**\
+`On the first day of early voting, some glimpses of voter bewilderment came into focus, part of a dizzying scramble playing out days after a major Supreme Court ruling.`\
+https://www.nytimes.com/2026/05/02/us/politics/louisiana-voting-confusion-court.html
+
 **What Are the Odds?**\
 `Mark Diehl gambles on a return to the Sunday puzzle after a long absence.`\
 https://www.nytimes.com/2026/05/02/crosswords/daily-puzzle-2026-05-03.html
