@@ -1,3 +1,11 @@
+**¿Por qué ir al gimnasio cuando puedes ejercitarte en el parque?**\
+`Todo lo que necesitas para esta rutina es una banca y un poco de pasto.`\
+https://www.nytimes.com/es/2026/05/02/espanol/estilos-de-vida/ejercicios-parque-banca.html
+
+**Todavía admiro a Michael Jackson. Esta es la razón**\
+`He sido seguidora del cantante toda la vida, algo que a veces no puedo defender ni siquiera ante mí misma.`\
+https://www.nytimes.com/es/2026/05/02/espanol/opinion/admirar-michael-jackson-polemica.html
+
 **How Germany Misjudged Trump’s Anger on Iran**\
 `After Chancellor Friedrich Merz upset President Trump with criticism of the war, he offered no public sign he believed Mr. Trump’s threats to pull troops were serious.`\
 https://www.nytimes.com/2026/05/02/world/europe/germany-trump-merz-troops-withdrawal.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/01/world/middleeast/narges-mohammadi-iran-hospia
 **El gobierno de Cuba desafía a EE. UU. en las celebraciones del Primero de Mayo**\
 `El gobierno de la isla conmemoró el Día Internacional de los Trabajadores frente a la embajada de EE. UU. en La Habana. El acto fue una oportunidad de mantener las apariencias durante la peor crisis en casi 70 años de historia del régimen.`\
 https://www.nytimes.com/es/2026/05/01/espanol/america-latina/cuba-1-mayo.html
-
-**Federal Judge Blocks Plan to End Deportation Protections for Yemenis**\
-`A Supreme Court court decision involving similar deportation protections for Haitians and Syrians could have implications for Yemeni migrants.`\
-https://www.nytimes.com/2026/05/01/nyregion/yemenis-tps-judge-rules.html
-
-**Georgia Governor Sets July Date for Special Election to Fill a House Seat**\
-`The winner will serve out the rest of Representative David Scott’s seat in Congress after the longtime lawmaker’s death last month.`\
-https://www.nytimes.com/2026/05/01/us/georgia-house-special-election-david-scott.html
 
