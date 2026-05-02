@@ -1,3 +1,11 @@
+**La realidad y la ficción en ‘Michael’**\
+`Verificamos los datos en varias escenas de la nueva película biográfica del Rey del Pop, Michael Jackson.`\
+https://www.nytimes.com/es/2026/05/02/espanol/cultura/michael-pelicula-realidad-ficcion.html
+
+**Mexican Governor Accused by U.S. of Aiding Drug Cartel Steps Down**\
+`U.S. prosecutors accused Rubén Rocha Moya of protecting the powerful Sinaloa Cartel in exchange for bribes and political support, setting off a national scandal.`\
+https://www.nytimes.com/2026/05/02/world/americas/mexico-governor-corruption-ruben-rocha.html
+
 **El mensaje oculto de Carlos III a Trump en EE. UU.**\
 `Analistas en Reino Unido interpretan la visita como un ejercicio de crítica indirecta, cargada de ironía y cortesía real.`\
 https://www.nytimes.com/es/2026/05/02/espanol/mundo/carlos-trump-visita.html
