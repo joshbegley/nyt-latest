@@ -1,3 +1,11 @@
+**How Do You Name the Greatest Songwriters? Much Debate.**\
+`In its latest issue, The New York Times Magazine sings the praises of 30 artists who were chosen by music experts and Times critics.`\
+https://www.nytimes.com/2026/05/02/insider/how-do-you-name-the-greatest-songwriters-much-debate.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/02/crosswords/spelling-bee-forum.html
+
 **Spirit Airlines, a Pioneer of Low-Fare Flights, Shuts Down**\
 `Spirit once upended the industry by offering very low fares but was in its second bankruptcy in two years after years of struggle.`\
 https://www.nytimes.com/2026/05/02/business/spirit-airlines-shutdown.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/01/us/georgia-house-special-election-david-scott
 **Kennedy Consulted With Scandal P.R. Firm While Seeking Cabinet Nomination**\
 `An associate of the firm, which has been accused of running a smear campaign against the actress Blake Lively, promised to suppress negative stories about Robert F. Kennedy Jr., records show.`\
 https://www.nytimes.com/2026/05/01/nyregion/kennedy-lively-baldoni-smear-campaign.html
-
-**N.I.H. Reinstates Employee Put on Leave After Criticizing Trump Research Cuts**\
-`Jenna Norton had filed a whistle-blower complaint claiming that the agency leadership had retaliated against her.`\
-https://www.nytimes.com/2026/05/01/us/politics/trump-jenna-norton-nih.html
-
-**Cornell President’s Car Bumps Into Students After Confrontation Over Gaza**\
-`After a debate over the war, students say the university president hit them with his vehicle. He says he was the victim in the incident.`\
-https://www.nytimes.com/2026/05/01/us/cornell-president-student-protester.html
 
