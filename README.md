@@ -1,3 +1,7 @@
+**Winning X or O**\
+`Hannah Slovut-Einertson’s latest themeless puzzle takes us on a solving safari.`\
+https://www.nytimes.com/2026/05/01/crosswords/daily-puzzle-2026-05-02.html
+
 **Trump Endorses Andy Barr for Senate as Musk-Backed Candidate Exits Race**\
 `The candidate in Kentucky, Nate Morris, said he would be joining the Trump administration. He met with the president a day before his announcement.`\
 https://www.nytimes.com/2026/05/01/us/politics/trump-andy-barr-kentucky-senate-endorsement.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/01/briefing/trump-iran-proposal-spirit-airlines.
 **Netflix Plans First Wide Theatrical Release With ‘Narnia’**\
 `The company is breaking from its longstanding policy of releasing movies exclusively on its streaming service.`\
 https://www.nytimes.com/2026/05/01/business/media/netflix-narnia-movie-theaters-release.html
-
-**What the Maine Senate Race Feels Like on the Ground**\
-`The anti-establishment mood is palpable in the state, home to one of the country’s top Senate contests. But Senator Susan Collins has some strengths.`\
-https://www.nytimes.com/2026/05/01/us/politics/maine-senate-primary-election.html
 
