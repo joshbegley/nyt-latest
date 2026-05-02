@@ -10,8 +10,8 @@ https://www.nytimes.com/2026/05/02/crosswords/daily-puzzle-2026-05-03.html
 `After weeks of being stuck in shallow waters near Germany, Timmy, a humpback whale, was released into the North Sea on Saturday.`\
 https://www.nytimes.com/video/world/europe/100000010876863/timmy-whale-germany-released.html
 
-**Car With Explosive Device Crashes Into Athletic Club in Portland, Ore.**\
-`A car rammed through the front entrance of the Multnomah Athletic Club around 3 a.m. on Saturday, killing the driver. The authorities said they found “evidence of an explosive device” in the car.`\
+**Car With Explosive Devices Crashes Into Athletic Club in Portland, Ore.**\
+`A driver rammed his explosives-filled car into an athletic club Saturday. Hours later, devices were still being dismantled, with a bomb technician describing it “as the most complex scene that I’ve ever dealt with.”`\
 https://www.nytimes.com/2026/05/02/us/portland-athletic-club-car-crash.html
 
 **Spirit Passengers Are Left Stranded After Airline Shuts Down**\
@@ -35,7 +35,7 @@ https://www.nytimes.com/video/us/100000010876860/spirit-airlines-shuts-down.html
 https://www.nytimes.com/2026/05/02/opinion/us-troops-germany-europe-trump.html
 
 **The Head-Turning Hats of the Kentucky Derby**\
-`Ahead of the 152nd annual horse race at Churchill Downs, attendees trotted out some eye-catching ensembles.`\
+`At the 152nd annual horse race at Churchill Downs, attendees trotted out some eye-catching ensembles.`\
 https://www.nytimes.com/2026/05/02/style/kentucky-derby-2026-hats.html
 
 **Abortion Providers Forced to Adapt After Court Blocks Pill Access by Mail**\
