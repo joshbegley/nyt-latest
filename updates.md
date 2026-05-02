@@ -1,3 +1,7 @@
+**New Video Analysis Suggests Suspect in Correspondents’ Dinner Attack Fired First**\
+`A Times analysis of footage released by the F.B.I. on Thursday night appears to show the assailant shot at a Secret Service officer, who then returned fire.`\
+https://www.nytimes.com/2026/05/02/us/politics/white-house-correspondents-dinner-shooting-suspect-video.html
+
 **Supreme Court Asked to Restore Access to Abortion Pill by Mail**\
 `A federal appeals court temporarily halted a Food and Drug Administration regulation that has greatly expanded access to the abortion pill mifepristone.`\
 https://www.nytimes.com/2026/05/02/us/politics/supreme-court-mail-abortion-pill.html
