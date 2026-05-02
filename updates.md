@@ -1,3 +1,11 @@
+**¿Por qué ir al gimnasio cuando puedes ejercitarte en el parque?**\
+`Todo lo que necesitas para esta rutina es una banca y un poco de pasto.`\
+https://www.nytimes.com/es/2026/05/02/espanol/estilos-de-vida/ejercicios-parque-banca.html
+
+**Todavía admiro a Michael Jackson. Esta es la razón**\
+`He sido seguidora del cantante toda la vida, algo que a veces no puedo defender ni siquiera ante mí misma.`\
+https://www.nytimes.com/es/2026/05/02/espanol/opinion/admirar-michael-jackson-polemica.html
+
 **How Germany Misjudged Trump’s Anger on Iran**\
 `After Chancellor Friedrich Merz upset President Trump with criticism of the war, he offered no public sign he believed Mr. Trump’s threats to pull troops were serious.`\
 https://www.nytimes.com/2026/05/02/world/europe/germany-trump-merz-troops-withdrawal.html
