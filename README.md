@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/05/02/opinion/king-charles-america-visit-trump.html
 `Namely, immigrant detention centers and data centers.`\
 https://www.nytimes.com/2026/05/02/opinion/data-centers-detention-rural-america.html
 
-**What Would the Nation’s Founders Say About Trump? Here Is Their Answer.**\
+**What Would the Nation’s Founders Think of Trump? 250 Years Later, Here Is the Answer.**\
 `Jefferson’s quill pen drew blood.`\
 https://www.nytimes.com/2026/05/02/opinion/trump-thomas-jefferson-founding-fathers.html
 
