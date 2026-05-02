@@ -1,3 +1,7 @@
+**Spirit Airlines, a Pioneer of Low-Fare Flights, Shuts Down**\
+`Spirit once upended the industry by offering very low fares but was in its second bankruptcy in two years after years of struggle.`\
+https://www.nytimes.com/2026/05/02/business/spirit-airlines-shutdown.html
+
 **La realidad y la ficción en ‘Michael’**\
 `Verificamos los datos en varias escenas de la nueva película biográfica del Rey del Pop, Michael Jackson.`\
 https://www.nytimes.com/es/2026/05/02/espanol/cultura/michael-pelicula-realidad-ficcion.html
