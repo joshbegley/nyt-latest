@@ -34,7 +34,7 @@ https://www.nytimes.com/2026/05/02/us/politics/white-house-correspondents-dinner
 `A federal appeals court temporarily halted a Food and Drug Administration regulation that has greatly expanded access to the abortion pill mifepristone.`\
 https://www.nytimes.com/2026/05/02/us/politics/supreme-court-mail-abortion-pill.html
 
-**Steve Clark, Olympic Swimmer Who Battled Depression, Dies at 82**\
+**Steve Clark, Olympic Swimmer Who Confronted Depression, Dies at 82**\
 `A three-time gold medalist in the 1960s, he was a champion when athletes were expected to be stoic and vulnerability was viewed as a sign of mental weakness.`\
 https://www.nytimes.com/2026/05/02/us/steve-clark-dead.html
 

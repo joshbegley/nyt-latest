@@ -1,3 +1,7 @@
+**Steve Clark, Olympic Swimmer Who Confronted Depression, Dies at 82**\
+`A three-time gold medalist in the 1960s, he was a champion when athletes were expected to be stoic and vulnerability was viewed as a sign of mental weakness.`\
+https://www.nytimes.com/2026/05/02/us/steve-clark-dead.html
+
 **Planning a World Cup Watch Party at a Bar? The ‘FIFA Police’ Are Lurking**\
 `Some businesses advertising watch parties in Canada’s two host cities are wary of running afoul of FIFA’s copyright, which protects advertising “World Cup” events.`\
 https://www.nytimes.com/2026/05/02/world/canada/fifa-world-cup-copyright.html
