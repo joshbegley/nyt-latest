@@ -1,3 +1,15 @@
+**Timmy the Stranded Whale Released Into the North Sea**\
+`After weeks of being stuck in shallow waters near Germany, Timmy, a humpback whale, was released into the North Sea on Saturday.`\
+https://www.nytimes.com/video/world/europe/100000010876863/timmy-whale-germany-released.html
+
+**Car With Explosive Device Crashes Into Athletic Club in Portland, Ore.**\
+`A car rammed through the front entrance of the Multnomah Athletic Club around 3 a.m. on Saturday, killing the driver. The authorities said they found “evidence of an explosive device” in the car.`\
+https://www.nytimes.com/2026/05/02/us/portland-athletic-club-car-crash.html
+
+**Spirit Passengers Are Left Stranded After Airline Shuts Down**\
+`The budget carrier abruptly canceled flights early on Saturday, leaving passengers to rush to make other plans. “Even if they go back into business, never again,” one traveler said.`\
+https://www.nytimes.com/2026/05/02/business/spirit-airlines-passengers-stranded.html
+
 **Steve Clark, Olympic Swimmer Who Confronted Depression, Dies at 82**\
 `A three-time gold medalist in the 1960s, he was a champion when athletes were expected to be stoic and vulnerability was viewed as a sign of mental weakness.`\
 https://www.nytimes.com/2026/05/02/us/steve-clark-dead.html

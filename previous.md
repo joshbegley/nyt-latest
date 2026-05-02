@@ -1,3 +1,15 @@
+**Timmy the Stranded Whale Released Into the North Sea**\
+`After weeks of being stuck in shallow waters near Germany, Timmy, a humpback whale, was released into the North Sea on Saturday.`\
+https://www.nytimes.com/video/world/europe/100000010876863/timmy-whale-germany-released.html
+
+**Car With Explosive Device Crashes Into Athletic Club in Portland, Ore.**\
+`A car rammed through the front entrance of the Multnomah Athletic Club around 3 a.m. on Saturday, killing the driver. The authorities said they found “evidence of an explosive device” in the car.`\
+https://www.nytimes.com/2026/05/02/us/portland-athletic-club-car-crash.html
+
+**Spirit Passengers Are Left Stranded After Airline Shuts Down**\
+`The budget carrier abruptly canceled flights early on Saturday, leaving passengers to rush to make other plans. “Even if they go back into business, never again,” one traveler said.`\
+https://www.nytimes.com/2026/05/02/business/spirit-airlines-passengers-stranded.html
+
 **Planning a World Cup Watch Party at a Bar? The ‘FIFA Police’ Are Lurking**\
 `Some businesses advertising watch parties in Canada’s two host cities are wary of running afoul of FIFA’s copyright, which protects advertising “World Cup” events.`\
 https://www.nytimes.com/2026/05/02/world/canada/fifa-world-cup-copyright.html
@@ -65,12 +77,4 @@ https://www.nytimes.com/2026/05/02/world/middleeast/us-fast-track-arms-deal-midd
 **3 Medical Routines That Older People May Not Need**\
 `Some screenings and treatments no longer make sense for patients as they age. Researchers have just added a few more to the list.`\
 https://www.nytimes.com/2026/05/02/health/older-colonoscopy-screenings-treatments.html
-
-**The Cannabis Industry’s New Best Friend? President Trump**\
-`The administration’s decision to relax federal regulations on medical marijuana comes with big tax breaks for many cannabis companies, and could drive new investment in the budding sector.`\
-https://www.nytimes.com/2026/05/02/business/dealbook/cannabis-industry-trump.html
-
-**Slouching Toward Kamala Harris**\
-`The Democrats’ fundamental condition is a late-Trumpian stasis.`\
-https://www.nytimes.com/2026/05/02/opinion/kamala-harris-democratic-party.html
 
