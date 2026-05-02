@@ -1,3 +1,7 @@
+**What Are the Odds?**\
+`Mark Diehl gambles on a return to the Sunday puzzle after a long absence.`\
+https://www.nytimes.com/2026/05/02/crosswords/daily-puzzle-2026-05-03.html
+
 **Timmy the Stranded Whale Released Into the North Sea**\
 `After weeks of being stuck in shallow waters near Germany, Timmy, a humpback whale, was released into the North Sea on Saturday.`\
 https://www.nytimes.com/video/world/europe/100000010876863/timmy-whale-germany-released.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/02/dining/huevos-enfrijolados-are-here-for-you.h
 **U.S. Fast-Tracks Arms Deals Valued at $8.6 Billion to Mideast Partners**\
 `The Persian Gulf countries and Israel have faced repeated Iranian attacks during the U.S.-Israeli war with Iran. The State Department move bypassed congressional review.`\
 https://www.nytimes.com/2026/05/02/world/middleeast/us-fast-track-arms-deal-middle-east.html
-
-**3 Medical Routines That Older People May Not Need**\
-`Some screenings and treatments no longer make sense for patients as they age. Researchers have just added a few more to the list.`\
-https://www.nytimes.com/2026/05/02/health/older-colonoscopy-screenings-treatments.html
 
