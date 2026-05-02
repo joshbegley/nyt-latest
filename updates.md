@@ -1,3 +1,23 @@
+**South Korea’s Cherry Blossoms Attract a Connoisseur: The Japanese**\
+`Cherry blossom viewing, or hanami, is a cherished rite in Japan. Some Japanese are also doing it in South Korea.`\
+https://www.nytimes.com/2026/05/02/world/asia/south-koreas-cherry-blossoms-attract-a-connoisseur-the-japanese.html
+
+**Quote of the Day: One Thing Uniting Bannon and Bernie: Worries About A.I.**\
+`Quotation of the Day for Saturday, May 2, 2026.`\
+https://www.nytimes.com/2026/05/02/pageoneplus/quote-of-the-day-one-thing-uniting-bannon-and-bernie-worries-about-ai.html
+
+**One Reason to Learn Muay Thai? You Can Stay in Thailand Longer.**\
+`Visitors can apply for a five-year visa if they take lessons in “soft power” activities like the Thai martial art. Training does not have to be grueling, and sparring is optional.`\
+https://www.nytimes.com/2026/05/02/world/asia/one-reason-to-learn-muay-thai-you-can-stay-in-thailand-longer.html
+
+**A 5-Month Wait and a 50% Fail Rate: It’s Hard to Get a British Driving License**\
+`The average wait for a test in England and Scotland has hit 22 weeks, up from five weeks before the pandemic, leading to frustration and attempts to jump the line.`\
+https://www.nytimes.com/2026/05/02/world/europe/uk-driving-tests-backlog.html
+
+**Not Even Japanese Bathhouses Are Immune From Shocks of Iran War**\
+`High fuel costs are imperiling the Japanese sento, a long-declining industry that remains a vital social lifeline for the country’s isolated elderly.`\
+https://www.nytimes.com/2026/05/02/business/japan-bathhouse-oil-iran.html
+
 **Jailed Iranian Nobel Peace Prize Winner Hospitalized in Critical Condition**\
 `Narges Mohammadi, a prominent human rights activist, was taken to a hospital after collapsing following a heart problem in prison.`\
 https://www.nytimes.com/2026/05/01/world/middleeast/narges-mohammadi-iran-hospialized.html
