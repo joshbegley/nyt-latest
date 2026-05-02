@@ -1,3 +1,23 @@
+**Supreme Court Asked to Restore Access to Abortion Pill by Mail**\
+`A federal appeals court temporarily halted a Food and Drug Administration regulation that has greatly expanded access to the abortion pill mifepristone.`\
+https://www.nytimes.com/2026/05/02/us/politics/supreme-court-mail-abortion-pill.html
+
+**Steve Clark, Olympic Swimmer Shadowed by Depression, Dies at 82**\
+`A three-time gold medalist in the 1960s, he was a champion when athletes were expected to be stoic and vulnerability was viewed as a sign of mental weakness.`\
+https://www.nytimes.com/2026/05/02/us/steve-clark-dead.html
+
+**Gobernador de Sinaloa acusado por EE. UU. pide licencia para defenderse**\
+`Fiscales estadounidenses acusaron a Rubén Rocha Moya de proteger al poderoso Cártel de Sinaloa a cambio de sobornos y apoyo político, lo que desató un escándalo nacional.`\
+https://www.nytimes.com/es/2026/05/02/espanol/america-latina/gobernador-sinaloa-acusacion-licencia.html
+
+**En Sinaloa, la acusación contra sus funcionarios no fue sorpresa**\
+`La imputación de Estados Unidos a un gobernador mexicano confirma lo que muchos sonorenses sospechaban hace tiempo: la línea entre el crimen organizado y las altas esferas del gobierno se ha difuminado.`\
+https://www.nytimes.com/es/2026/05/02/espanol/america-latina/sinaloa-imputacion-gobernador.html
+
+**Who Will Stand Up to the Supreme Court Justices?**\
+`Congress must once again defend democracy from a hostile court.`\
+https://www.nytimes.com/2026/05/02/opinion/supreme-court-voting-rights-act.html
+
 **U.S. to Pull 5,000 Troops From Germany. But Plenty More Will Remain.**\
 `The U.S. military has tens of thousands of personnel in Germany, more than in any other foreign country but Japan. Their significance extends well beyond Europe.`\
 https://www.nytimes.com/2026/05/02/world/europe/us-troops-germany-trump.html
