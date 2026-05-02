@@ -1,3 +1,27 @@
+**Ruling by Ruling, the Supreme Court Is Undoing the Civil Rights Movement**\
+`Congress must once again defend democracy from a hostile court.`\
+https://www.nytimes.com/2026/05/02/opinion/supreme-court-voting-rights-act.html
+
+**Slouching Toward Kamala Harris**\
+`The Democrats’ fundamental condition is a late-Trumpian stasis.`\
+https://www.nytimes.com/2026/05/02/opinion/kamala-harris-democratic-party.html
+
+**What Is Higher Education For?**\
+`Readers respond to Bret Stephens’s column about the recent Yale report on reforming academia.`\
+https://www.nytimes.com/2026/05/02/opinion/higher-education.html
+
+**His Majesty and Our Travesty**\
+`The real king delivers a needed royal lesson on democracy.`\
+https://www.nytimes.com/2026/05/02/opinion/king-charles-america-visit-trump.html
+
+**Rural America Is Getting Blindsided by Something New**\
+`Namely, immigrant detention centers and data centers.`\
+https://www.nytimes.com/2026/05/02/opinion/data-centers-detention-rural-america.html
+
+**What Would the Nation’s Founders Say About Trump? Here Is Their Answer.**\
+`Jefferson’s quill pen drew blood.`\
+https://www.nytimes.com/2026/05/02/opinion/trump-thomas-jefferson-founding-fathers.html
+
 **Public Offering**\
 `How often do you talk to strangers? What’s stopping you?`\
 https://www.nytimes.com/2026/05/02/briefing/public-offering.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/video/podcasts/100000010875555/tucker-carlson-on-donald-
 **Hegseth’s and Moulton’s Parallel Lives Collide Over Iran**\
 `The defense secretary and Representative Seth Moulton, a Democrat, debated the Iran war through the prism of their shared experiences fighting Iraq.`\
 https://www.nytimes.com/2026/05/02/us/politics/hegseth-moulton-iran-war.html
-
-**Paintings So Real, You Can Hardly Resist Believing**\
-`An exhibition of works by Francisco de Zurbarán at London’s National Gallery highlights the painter’s ability to draw in the viewer with detail and drama.`\
-https://www.nytimes.com/2026/05/02/arts/design/francisco-de-zurbaran-national-gallery-london.html
-
-**Shipwreck Reveals Fate of Vanished World War I Coast Guard Cutter**\
-`The Tampa disappeared in 1918 with 131 British and American personnel and civilians aboard. It was the largest single American naval combat loss of life in World War I`\
-https://www.nytimes.com/2026/05/02/world/europe/tampa-shipwreck-found-uk-us-coast-guard.html
-
-**Trump’s Vision for ‘Garden of Heroes’ Keeps Getting Bigger and Higher in Cost**\
-`Plans for the project include formal gardens, reflecting pools and plazas alongside the statues of 250 notable Americans, according to documents obtained by The New York Times.`\
-https://www.nytimes.com/2026/05/02/us/politics/trump-garden-of-heroes-statues.html
-
-**Trading the E.R. or the Kitchen for a Broadway Stage**\
-`Audiences are flocking to shows starring Patrick Ball of “The Pitt,” Jon Bernthal and Ayo Edebiri of “The Bear,” Ben Ahlers of “The Gilded Age” and more.`\
-https://www.nytimes.com/2026/05/02/theater/patrick-ball-pitt-bear-hacks-gilded-age-broadway.html
-
-**These G.O.P. Women Want Congress Members to Pay a Price for Abuse. Will It Work?**\
-`Three Republican women who had a hand in forcing the resignations of lawmakers accused of sexual misconduct said they are out to name and shame more offenders. It is not clear how far they will go.`\
-https://www.nytimes.com/2026/05/02/us/politics/boebert-mace-luna-republican-women.html
-
-**Los ricos y poderosos quieren vivir para siempre. ¿Y si pudieran?**\
-`Del Kremlin a Silicon Valley, algunas de las personas más influyentes del mundo persiguen ahora algo más: la vida eterna.`\
-https://www.nytimes.com/es/2026/05/02/espanol/ciencia-y-tecnologia/vida-eterna-longevidad-poderosos-millonarios.html
 

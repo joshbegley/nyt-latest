@@ -1,3 +1,27 @@
+**Ruling by Ruling, the Supreme Court Is Undoing the Civil Rights Movement**\
+`Congress must once again defend democracy from a hostile court.`\
+https://www.nytimes.com/2026/05/02/opinion/supreme-court-voting-rights-act.html
+
+**Slouching Toward Kamala Harris**\
+`The Democrats’ fundamental condition is a late-Trumpian stasis.`\
+https://www.nytimes.com/2026/05/02/opinion/kamala-harris-democratic-party.html
+
+**What Is Higher Education For?**\
+`Readers respond to Bret Stephens’s column about the recent Yale report on reforming academia.`\
+https://www.nytimes.com/2026/05/02/opinion/higher-education.html
+
+**His Majesty and Our Travesty**\
+`The real king delivers a needed royal lesson on democracy.`\
+https://www.nytimes.com/2026/05/02/opinion/king-charles-america-visit-trump.html
+
+**Rural America Is Getting Blindsided by Something New**\
+`Namely, immigrant detention centers and data centers.`\
+https://www.nytimes.com/2026/05/02/opinion/data-centers-detention-rural-america.html
+
+**What Would the Nation’s Founders Say About Trump? Here Is Their Answer.**\
+`Jefferson’s quill pen drew blood.`\
+https://www.nytimes.com/2026/05/02/opinion/trump-thomas-jefferson-founding-fathers.html
+
 **Public Offering**\
 `How often do you talk to strangers? What’s stopping you?`\
 https://www.nytimes.com/2026/05/02/briefing/public-offering.html
