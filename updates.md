@@ -1,3 +1,31 @@
+**Public Offering**\
+`How often do you talk to strangers? What’s stopping you?`\
+https://www.nytimes.com/2026/05/02/briefing/public-offering.html
+
+**Trump and the New American Era of Petrolunacy**\
+`The idea that the U.S. is immune to the oil crisis is a mistaken one.`\
+https://www.nytimes.com/2026/05/02/opinion/trump-us-oil-crisis-strait-of-hormuz.html
+
+**A Homeless Person’s Pet Needed Help. Should I Have Tried to Buy It?**\
+`I could tell that the man loved his cat, but also that he was unable to provide proper care for it.`\
+https://www.nytimes.com/2026/05/02/magazine/homeless-person-pet-ethics.html
+
+**Connections Companion No. 1,057**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May 3, 2026.`\
+https://www.nytimes.com/2026/05/02/crosswords/connections-companion-1057.html
+
+**Wordle Review No. 1,779**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May 3, 2026.`\
+https://www.nytimes.com/2026/05/02/crosswords/wordle-review-1779.html
+
+**Most Canadians Support MAID. But the Issue of Access for People With Mental Illness Is Fraught.**\
+`As Canada weighs the future of medically assisted death, one woman fears the law will change too late for her.`\
+https://www.nytimes.com/2026/05/02/world/canada/assisted-death-mental-illness-canada.html
+
+**Strands Sidekick No. 791**\
+`Scroll down for hints and conversation about the puzzle for Sunday, May 3, 2026.`\
+https://www.nytimes.com/2026/05/02/crosswords/strands-sidekick-791.html
+
 **Takeaways From The Times’s Interview With Tucker Carlson**\
 `He spoke about the rupture with President Trump and what it portends for the  conservative movement. Here are the key moments from our conversation.`\
 https://www.nytimes.com/2026/05/02/magazine/tucker-carlson-takeaways-interview.html
