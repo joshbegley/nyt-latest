@@ -1,3 +1,11 @@
+**El mensaje oculto de Carlos III a Trump en EE. UU.**\
+`Analistas en Reino Unido interpretan la visita como un ejercicio de crítica indirecta, cargada de ironía y cortesía real.`\
+https://www.nytimes.com/es/2026/05/02/espanol/mundo/carlos-trump-visita.html
+
+**Tu médico toma notas con IA. ¿Qué puede salir mal?**\
+`Las aplicaciones que registran las visitas ganan popularidad, pero conllevan problemas de privacidad y precisión.`\
+https://www.nytimes.com/es/2026/05/02/espanol/estilos-de-vida/notas-medico-inteligencia-artificial.html
+
 **South Korea’s Cherry Blossoms Attract a Connoisseur: The Japanese**\
 `Cherry blossom viewing, or hanami, is a cherished rite in Japan. Some Japanese are also doing it in South Korea.`\
 https://www.nytimes.com/2026/05/02/world/asia/south-koreas-cherry-blossoms-attract-a-connoisseur-the-japanese.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/01/us/eric-swalwell-social-media.html
 **U.S. to Withdraw 5,000 Troops From Germany, Pentagon Says**\
 `Officials announced the decision after President Trump expressed annoyance with the German chancellor’s remarks about the Iran war.`\
 https://www.nytimes.com/2026/05/01/us/politics/us-troops-germany.html
-
-**Federal Appeals Court Temporarily Halts Abortion Pill Access by Mail**\
-`The court order, in a lawsuit by the state of Louisiana, pauses a Food and Drug Administration regulation that greatly expanded access to the abortion pill mifepristone.`\
-https://www.nytimes.com/2026/05/01/well/abortion-drugs-mail-order.html
-
-****\
-``\
-https://www.nytimes.com/video/embedded/us/politics/100000010876287/02vid-hegseth-moulton-69845.html
 
