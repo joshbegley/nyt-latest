@@ -1,3 +1,11 @@
+**Federal Judge Blocks Plan to End Deportation Protections For Yemenis**\
+`A Supreme Court court decision involving similar deportation protections for Haitians and Syrians could have implications for Yemeni migrants.`\
+https://www.nytimes.com/2026/05/01/nyregion/yemenis-tps-judge-rules.html
+
+**Cornell President’s Car Bumps Into Students After Confrontation Over Gaza**\
+`After a debate over the conflict between Israelis and Palestinians, students say the university president hit them with his vehicle. He says he was the victim in the incident.`\
+https://www.nytimes.com/2026/05/01/us/cornell-president-student-protester.html
+
 **Georgia Governor Sets July Date for Special Election to Fill a House Seat**\
 `The winner will serve out the rest of Representative David Scott’s seat in Congress after the longtime lawmaker’s death last month.`\
 https://www.nytimes.com/2026/05/01/us/georgia-house-special-election-david-scott.html
