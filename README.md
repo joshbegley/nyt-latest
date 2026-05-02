@@ -1,3 +1,11 @@
+**This Could Be the Biggest Blow to Abortion Rights Since Roe Fell**\
+`A ruling by a federal appeals court has blocked access to abortion pills via telemedicine.`\
+https://www.nytimes.com/2026/05/02/opinion/abortion-telehealth.html
+
+**Spirit Airlines Shuts Down**\
+`After two stints in bankruptcy, Spirit Airlines — the low-cost carrier that reshaped American aviation but lost billions in recent years — canceled all flights and said it was “winding down all operations” on Saturday.`\
+https://www.nytimes.com/video/us/100000010876860/spirit-airlines-shuts-down.html
+
 **Pulling Thousands of U.S. Troops Out of Germany Is Bad for America**\
 `Trump’s reduction of U.S. troops in Germany is more than just another bilateral spat.`\
 https://www.nytimes.com/2026/05/02/opinion/us-troops-germany-europe-trump.html
@@ -65,12 +73,4 @@ https://www.nytimes.com/2026/05/02/opinion/kamala-harris-democratic-party.html
 **Who Will Stand Up to the Supreme Court Justices?**\
 `Congress must once again defend democracy from a hostile court.`\
 https://www.nytimes.com/2026/05/02/opinion/supreme-court-voting-rights-act.html
-
-**What Is Higher Education For?**\
-`Readers respond to Bret Stephens’s column about the recent Yale report on reforming academia.`\
-https://www.nytimes.com/2026/05/02/opinion/higher-education.html
-
-**His Majesty and Our Travesty**\
-`The real king delivers a needed royal lesson on democracy.`\
-https://www.nytimes.com/2026/05/02/opinion/king-charles-america-visit-trump.html
 
