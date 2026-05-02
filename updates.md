@@ -1,3 +1,11 @@
+**Planning a World Cup Watch Party at a Bar? The ‘FIFA Police’ Are Lurking.**\
+`Some businesses advertising watch parties in Canada’s two host cities are wary of running afoul of FIFA’s copyright, which protects advertising “World Cup” events.`\
+https://www.nytimes.com/2026/05/02/world/canada/fifa-world-cup-copyright.html
+
+**Steve Clark, Olympic Swimmer Who Battled Depression, Dies at 82**\
+`A three-time gold medalist in the 1960s, he was a champion when athletes were expected to be stoic and vulnerability was viewed as a sign of mental weakness.`\
+https://www.nytimes.com/2026/05/02/us/steve-clark-dead.html
+
 **It’s Only 5,000 Troops, but America Will Come to Regret Its Rash Withdrawal From Germany**\
 `This is more than just another bilateral spat.`\
 https://www.nytimes.com/2026/05/02/opinion/us-troops-germany-europe-trump.html
