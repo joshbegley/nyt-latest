@@ -1,3 +1,7 @@
+**Timmy the Stranded Whale Is Released After an Elaborate Rescue**\
+`The humpback whale, stuck for weeks in shallow waters off Germany, was towed to the North Sea in a barge. The story captivated the country.`\
+https://www.nytimes.com/2026/05/02/world/europe/timmy-whale-germany-released.html
+
 **¿Por qué ir al gimnasio cuando puedes ejercitarte en el parque?**\
 `Todo lo que necesitas para esta rutina es una banca y un poco de pasto.`\
 https://www.nytimes.com/es/2026/05/02/espanol/estilos-de-vida/ejercicios-parque-banca.html
