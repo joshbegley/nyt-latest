@@ -1,3 +1,7 @@
+**3 Medical Routines That Older People May Not Need**\
+`Some screenings and treatments no longer make sense for patients as they age. Researchers have just added a few more to the list.`\
+https://www.nytimes.com/2026/05/02/health/older-colonoscopy-screenings-treatments.html
+
 **America Will Pay Dearly for Its Energy Arrogance**\
 `The idea that the U.S. is immune to the oil crisis is a mistaken one.`\
 https://www.nytimes.com/2026/05/02/opinion/trump-us-oil-crisis-strait-of-hormuz.html

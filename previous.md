@@ -1,3 +1,7 @@
+**3 Medical Routines That Older People May Not Need**\
+`Some screenings and treatments no longer make sense for patients as they age. Researchers have just added a few more to the list.`\
+https://www.nytimes.com/2026/05/02/health/older-colonoscopy-screenings-treatments.html
+
 **The Cannabis Industry’s New Best Friend? President Trump**\
 `The administration’s decision to relax federal regulations on medical marijuana comes with big tax breaks for many cannabis companies, and could drive new investment in the budding sector.`\
 https://www.nytimes.com/2026/05/02/business/dealbook/cannabis-industry-trump.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/05/02/magazine/tucker-carlson-takeaways-interview.h
 **Maduro ya no está, pero en Venezuela casi todo sigue igual**\
 `Las autoridades estadounidenses prometieron “desatar la prosperidad” al tomar el control de la industria petrolera. Muchos en Caracas opinan que hace falta mucho más que eso.`\
 https://www.nytimes.com/es/2026/05/02/espanol/america-latina/venezuela-situacion-economica.html
-
-**El lujo de volverse más excéntrico con la edad**\
-`Conforme pasa el tiempo, es más fácil abrazar tu auténtico (y excéntrico) ser.`\
-https://www.nytimes.com/es/2026/05/02/espanol/excentricidad-vejez.html
 
