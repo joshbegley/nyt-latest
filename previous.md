@@ -1,3 +1,11 @@
+**Editors’ Note: May 2, 2026**\
+`The following editors’ note and correction appeared in print on Saturday, May 2, 2026.`\
+https://www.nytimes.com/2026/05/01/pageoneplus/editors-note-may-2-2026.html
+
+**Jailed Iranian Nobel Peace Prize Winner Hospitalized in Critical Condition**\
+`Narges Mohammadi, a prominent human rights activists, was taken to a hospital after collapsing following a heart problem in prison.`\
+https://www.nytimes.com/2026/05/01/world/middleeast/narges-mohammadi-iran-hospialized.html
+
 **El gobierno de Cuba desafía a EE. UU. en las celebraciones del Primero de Mayo**\
 `El gobierno de la isla conmemoró el Día Internacional de los Trabajadores frente a la embajada de EE. UU. en La Habana. El acto fue una oportunidad de mantener las apariencias durante la peor crisis en casi 70 años de historia del régimen.`\
 https://www.nytimes.com/es/2026/05/01/espanol/america-latina/cuba-1-mayo.html
@@ -34,7 +42,7 @@ https://www.nytimes.com/2026/05/01/us/eric-swalwell-social-media.html
 `Officials announced the decision after President Trump expressed annoyance with the German chancellor’s remarks about the Iran war.`\
 https://www.nytimes.com/2026/05/01/us/politics/us-troops-germany.html
 
-**Federal Appeals Court Temporarily Halts Abortion Pills by Mail**\
+**Federal Appeals Court Temporarily Halts Abortion Pill Access by Mail**\
 `The court order, in a lawsuit by the state of Louisiana, pauses a Food and Drug Administration regulation that greatly expanded access to the abortion pill mifepristone.`\
 https://www.nytimes.com/2026/05/01/well/abortion-drugs-mail-order.html
 
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/01/us/politics/maine-senate-primary-election.htm
 **Louisiana Governor Signs Law Blocking Ex-Prisoner From Taking Office**\
 `Calvin Duncan had been exonerated and elected as criminal court clerk in New Orleans. Gov. Jeff Landry eliminated the role as part of an effort to reshape the city’s judicial system.`\
 https://www.nytimes.com/2026/05/01/us/calvin-duncan-new-orleans-criminal-court-jeff-landry.html
-
-**On May Day Cuba’s Communist Leaders Deliver a Defiant Tone to the U.S.**\
-`In front of the American Embassy in Havana, the Cuban government held its annual International Worker’s Day celebration as the United States sought to end the communist ruling system.`\
-https://www.nytimes.com/2026/05/01/world/americas/cuba-may-day-international-workers-day.html
-
-**Bard College’s President Will Retire After Epstein Revelations**\
-`The president, Leon Botstein, who had run Bard for 50 years, faced scrutiny over his connections to Jeffrey Epstein.`\
-https://www.nytimes.com/2026/05/01/us/bard-president-leon-botstein-jeffrey-epstein.html
 

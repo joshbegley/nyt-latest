@@ -1,3 +1,15 @@
+**Editors’ Note: May 2, 2026**\
+`The following editors’ note and correction appeared in print on Saturday, May 2, 2026.`\
+https://www.nytimes.com/2026/05/01/pageoneplus/editors-note-may-2-2026.html
+
+**Jailed Iranian Nobel Peace Prize Winner Hospitalized in Critical Condition**\
+`Narges Mohammadi, a prominent human rights activists, was taken to a hospital after collapsing following a heart problem in prison.`\
+https://www.nytimes.com/2026/05/01/world/middleeast/narges-mohammadi-iran-hospialized.html
+
+**Federal Appeals Court Temporarily Halts Abortion Pill Access by Mail**\
+`The court order, in a lawsuit by the state of Louisiana, pauses a Food and Drug Administration regulation that greatly expanded access to the abortion pill mifepristone.`\
+https://www.nytimes.com/2026/05/01/well/abortion-drugs-mail-order.html
+
 **El gobierno de Cuba desafía a EE. UU. en las celebraciones del Primero de Mayo**\
 `El gobierno de la isla conmemoró el Día Internacional de los Trabajadores frente a la embajada de EE. UU. en La Habana. El acto fue una oportunidad de mantener las apariencias durante la peor crisis en casi 70 años de historia del régimen.`\
 https://www.nytimes.com/es/2026/05/01/espanol/america-latina/cuba-1-mayo.html
