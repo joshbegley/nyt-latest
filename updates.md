@@ -1,3 +1,7 @@
+**Trump Endorses Andy Barr for Senate as Musk-Backed Candidate Exits Race**\
+`The candidate in Kentucky, Nate Morris, said he would be joining the Trump administration. He met with the president a day before his announcement.`\
+https://www.nytimes.com/2026/05/01/us/politics/trump-andy-barr-kentucky-senate-endorsement.html
+
 **Editors’ Note: May 2, 2026**\
 `The following editors’ note and correction appeared in print on Saturday, May 2, 2026.`\
 https://www.nytimes.com/2026/05/01/pageoneplus/editors-note-may-2-2026.html

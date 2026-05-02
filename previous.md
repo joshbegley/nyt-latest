@@ -1,3 +1,7 @@
+**Trump Endorses Andy Barr for Senate as Musk-Backed Candidate Exits Race**\
+`The candidate in Kentucky, Nate Morris, said he would be joining the Trump administration. He met with the president a day before his announcement.`\
+https://www.nytimes.com/2026/05/01/us/politics/trump-andy-barr-kentucky-senate-endorsement.html
+
 **Editors’ Note: May 2, 2026**\
 `The following editors’ note and correction appeared in print on Saturday, May 2, 2026.`\
 https://www.nytimes.com/2026/05/01/pageoneplus/editors-note-may-2-2026.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/01/business/media/netflix-narnia-movie-theaters-
 **What the Maine Senate Race Feels Like on the Ground**\
 `The anti-establishment mood is palpable in the state, home to one of the country’s top Senate contests. But Senator Susan Collins has some strengths.`\
 https://www.nytimes.com/2026/05/01/us/politics/maine-senate-primary-election.html
-
-**Louisiana Governor Signs Law Blocking Ex-Prisoner From Taking Office**\
-`Calvin Duncan had been exonerated and elected as criminal court clerk in New Orleans. Gov. Jeff Landry eliminated the role as part of an effort to reshape the city’s judicial system.`\
-https://www.nytimes.com/2026/05/01/us/calvin-duncan-new-orleans-criminal-court-jeff-landry.html
 

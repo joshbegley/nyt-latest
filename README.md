@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/05/01/nyregion/yemenis-tps-judge-rules.html
 `The winner will serve out the rest of Representative David Scott’s seat in Congress after the longtime lawmaker’s death last month.`\
 https://www.nytimes.com/2026/05/01/us/georgia-house-special-election-david-scott.html
 
-**Kennedy Messaged With Scandal P.R. Firm While Seeking Cabinet Nomination**\
+**Kennedy Consulted With Scandal P.R. Firm While Seeking Cabinet Nomination**\
 `An associate of the firm, which has been accused of running a smear campaign against the actress Blake Lively, promised to suppress negative stories about Robert F. Kennedy Jr., records show.`\
 https://www.nytimes.com/2026/05/01/nyregion/kennedy-lively-baldoni-smear-campaign.html
 
