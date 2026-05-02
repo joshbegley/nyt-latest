@@ -1,3 +1,7 @@
+**Planning a World Cup Watch Party at a Bar? The ‘FIFA Police’ Are Lurking.**\
+`Some businesses advertising watch parties in Canada’s two host cities are wary of running afoul of FIFA’s copyright, which protects advertising “World Cup” events.`\
+https://www.nytimes.com/2026/05/02/world/canada/fifa-world-cup-copyright.html
+
 **This Could Be the Biggest Blow to Abortion Rights Since Roe Fell**\
 `A ruling by a federal appeals court has blocked access to abortion pills via telemedicine.`\
 https://www.nytimes.com/2026/05/02/opinion/abortion-telehealth.html
@@ -30,7 +34,7 @@ https://www.nytimes.com/2026/05/02/us/politics/white-house-correspondents-dinner
 `A federal appeals court temporarily halted a Food and Drug Administration regulation that has greatly expanded access to the abortion pill mifepristone.`\
 https://www.nytimes.com/2026/05/02/us/politics/supreme-court-mail-abortion-pill.html
 
-**Steve Clark, Olympic Swimmer Shadowed by Depression, Dies at 82**\
+**Steve Clark, Olympic Swimmer Who Battled Depression, Dies at 82**\
 `A three-time gold medalist in the 1960s, he was a champion when athletes were expected to be stoic and vulnerability was viewed as a sign of mental weakness.`\
 https://www.nytimes.com/2026/05/02/us/steve-clark-dead.html
 
@@ -69,8 +73,4 @@ https://www.nytimes.com/2026/05/02/business/dealbook/cannabis-industry-trump.htm
 **Slouching Toward Kamala Harris**\
 `The Democrats’ fundamental condition is a late-Trumpian stasis.`\
 https://www.nytimes.com/2026/05/02/opinion/kamala-harris-democratic-party.html
-
-**Who Will Stand Up to the Supreme Court Justices?**\
-`Congress must once again defend democracy from a hostile court.`\
-https://www.nytimes.com/2026/05/02/opinion/supreme-court-voting-rights-act.html
 
