@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/05/01/us/politics/trump-andy-barr-kentucky-senate-e
 https://www.nytimes.com/2026/05/01/pageoneplus/editors-note-may-2-2026.html
 
 **Jailed Iranian Nobel Peace Prize Winner Hospitalized in Critical Condition**\
-`Narges Mohammadi, a prominent human rights activists, was taken to a hospital after collapsing following a heart problem in prison.`\
+`Narges Mohammadi, a prominent human rights activist, was taken to a hospital after collapsing following a heart problem in prison.`\
 https://www.nytimes.com/2026/05/01/world/middleeast/narges-mohammadi-iran-hospialized.html
 
 **El gobierno de Cuba desafía a EE. UU. en las celebraciones del Primero de Mayo**\
