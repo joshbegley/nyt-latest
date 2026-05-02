@@ -1,3 +1,23 @@
+**South Korea’s Cherry Blossoms Attract a Connoisseur: The Japanese**\
+`Cherry blossom viewing, or hanami, is a cherished rite in Japan. Some Japanese are also doing it in South Korea.`\
+https://www.nytimes.com/2026/05/02/world/asia/south-koreas-cherry-blossoms-attract-a-connoisseur-the-japanese.html
+
+**Quote of the Day: One Thing Uniting Bannon and Bernie: Worries About A.I.**\
+`Quotation of the Day for Saturday, May 2, 2026.`\
+https://www.nytimes.com/2026/05/02/pageoneplus/quote-of-the-day-one-thing-uniting-bannon-and-bernie-worries-about-ai.html
+
+**One Reason to Learn Muay Thai? You Can Stay in Thailand Longer.**\
+`Visitors can apply for a five-year visa if they take lessons in “soft power” activities like the Thai martial art. Training does not have to be grueling, and sparring is optional.`\
+https://www.nytimes.com/2026/05/02/world/asia/one-reason-to-learn-muay-thai-you-can-stay-in-thailand-longer.html
+
+**A 5-Month Wait and a 50% Fail Rate: It’s Hard to Get a British Driving License**\
+`The average wait for a test in England and Scotland has hit 22 weeks, up from five weeks before the pandemic, leading to frustration and attempts to jump the line.`\
+https://www.nytimes.com/2026/05/02/world/europe/uk-driving-tests-backlog.html
+
+**Not Even Japanese Bathhouses Are Immune From Shocks of Iran War**\
+`High fuel costs are imperiling the Japanese sento, a long-declining industry that remains a vital social lifeline for the country’s isolated elderly.`\
+https://www.nytimes.com/2026/05/02/business/japan-bathhouse-oil-iran.html
+
 **Winning X or O**\
 `Hannah Slovut-Einertson’s latest themeless puzzle takes us on a solving safari.`\
 https://www.nytimes.com/2026/05/01/crosswords/daily-puzzle-2026-05-02.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/05/01/well/abortion-drugs-mail-order.html
 ****\
 ``\
 https://www.nytimes.com/video/embedded/us/politics/100000010876287/02vid-hegseth-moulton-69845.html
-
-**Southern States Move to Redistrict Under Weakened Voting Rights Act**\
-`Republican-led legislatures in Tennessee and Alabama will reconvene in the coming days. Unlike in Tennessee, however, a new map in Alabama will require Supreme Court action.`\
-https://www.nytimes.com/2026/05/01/us/elections/tennessee-congressional-map.html
-
-**Trump Tells Congress Why He Doesn’t Need Its Authorization for the Iran War**\
-`In letters to the House and Senate, the president asserted that the hostilities had “terminated,” in an apparent attempt to avoid having to seek congressional approval.`\
-https://www.nytimes.com/2026/05/01/us/politics/trump-congress-authorization-iran-war.html
-
-**Un excongresista de Florida es condenado por cabildear en secreto por Venezuela**\
-`La petrolera estatal venezolana contrató a la consultora de David Rivera por 50 millones de dólares para influir en miembros del Congreso y de la Casa Blanca.`\
-https://www.nytimes.com/es/2026/05/01/espanol/estados-unidos/david-rivera-florida-lobby-venezuela.html
-
-**Trump Says He’s ‘Not Satisfied’ With Iran’s Latest Proposal**\
-`Also, Spirit Airlines prepares to shut down. Here’s the latest at the end of Friday.`\
-https://www.nytimes.com/2026/05/01/briefing/trump-iran-proposal-spirit-airlines.html
-
-**Netflix Plans First Wide Theatrical Release With ‘Narnia’**\
-`The company is breaking from its longstanding policy of releasing movies exclusively on its streaming service.`\
-https://www.nytimes.com/2026/05/01/business/media/netflix-narnia-movie-theaters-release.html
 
