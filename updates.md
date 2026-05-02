@@ -1,3 +1,7 @@
+**What Would the Nation’s Founders Think of Trump? 250 Years Later, Here Is the Answer.**\
+`Jefferson’s quill pen drew blood.`\
+https://www.nytimes.com/2026/05/02/opinion/trump-thomas-jefferson-founding-fathers.html
+
 **Ruling by Ruling, the Supreme Court Is Undoing the Civil Rights Movement**\
 `Congress must once again defend democracy from a hostile court.`\
 https://www.nytimes.com/2026/05/02/opinion/supreme-court-voting-rights-act.html
