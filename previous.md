@@ -1,3 +1,11 @@
+**Pulling Thousands of U.S. Troops Out of Germany Is Bad for America**\
+`Trump’s reduction of U.S. troops in Germany is more than just another bilateral spat.`\
+https://www.nytimes.com/2026/05/02/opinion/us-troops-germany-europe-trump.html
+
+**The Head-Turning Hats of the Kentucky Derby**\
+`Ahead of the 152nd annual horse race at Churchill Downs, attendees trotted out some eye-catching ensembles.`\
+https://www.nytimes.com/2026/05/02/style/kentucky-derby-2026-hats.html
+
 **Abortion Providers Forced to Adapt After Court Blocks Pill Access by Mail**\
 `The Fifth Circuit Court’s ruling, which is being appealed, reinstates a requirement that patients visit a health care provider in person to obtain mifepristone, upending abortion access in the United States.`\
 https://www.nytimes.com/2026/05/02/us/abortion-pill-mifepristone-5th-circuit-court-ruling.html
@@ -65,12 +73,4 @@ https://www.nytimes.com/2026/05/02/opinion/higher-education.html
 **His Majesty and Our Travesty**\
 `The real king delivers a needed royal lesson on democracy.`\
 https://www.nytimes.com/2026/05/02/opinion/king-charles-america-visit-trump.html
-
-**Rural America Is Getting Blindsided by Something New**\
-`Namely, immigrant detention centers and data centers.`\
-https://www.nytimes.com/2026/05/02/opinion/data-centers-detention-rural-america.html
-
-**What Would the Nation’s Founders Think of Trump? 250 Years Later, Here Is the Answer.**\
-`Jefferson’s quill pen drew blood.`\
-https://www.nytimes.com/2026/05/02/opinion/trump-thomas-jefferson-founding-fathers.html
 

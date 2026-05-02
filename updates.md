@@ -1,3 +1,11 @@
+**Pulling Thousands of U.S. Troops Out of Germany Is Bad for America**\
+`Trump’s reduction of U.S. troops in Germany is more than just another bilateral spat.`\
+https://www.nytimes.com/2026/05/02/opinion/us-troops-germany-europe-trump.html
+
+**The Head-Turning Hats of the Kentucky Derby**\
+`Ahead of the 152nd annual horse race at Churchill Downs, attendees trotted out some eye-catching ensembles.`\
+https://www.nytimes.com/2026/05/02/style/kentucky-derby-2026-hats.html
+
 **Abortion Providers Forced to Adapt After Court Blocks Pill Access by Mail**\
 `The Fifth Circuit Court’s ruling, which is being appealed, reinstates a requirement that patients visit a health care provider in person to obtain mifepristone, upending abortion access in the United States.`\
 https://www.nytimes.com/2026/05/02/us/abortion-pill-mifepristone-5th-circuit-court-ruling.html
