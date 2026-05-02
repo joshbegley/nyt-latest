@@ -6,8 +6,8 @@ https://www.nytimes.com/2026/05/02/opinion/abortion-telehealth.html
 `After two stints in bankruptcy, Spirit Airlines — the low-cost carrier that reshaped American aviation but lost billions in recent years — canceled all flights and said it was “winding down all operations” on Saturday.`\
 https://www.nytimes.com/video/us/100000010876860/spirit-airlines-shuts-down.html
 
-**Pulling Thousands of U.S. Troops Out of Germany Is Bad for America**\
-`Trump’s reduction of U.S. troops in Germany is more than just another bilateral spat.`\
+**It’s Only 5,000 Troops, but America Will Come to Regret Its Rash Withdrawal From Germany**\
+`This is more than just another bilateral spat.`\
 https://www.nytimes.com/2026/05/02/opinion/us-troops-germany-europe-trump.html
 
 **The Head-Turning Hats of the Kentucky Derby**\
