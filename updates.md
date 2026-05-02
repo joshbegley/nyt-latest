@@ -1,3 +1,7 @@
+**Winning X or O**\
+`Hannah Slovut-Einertson’s latest themeless puzzle takes us on a solving safari.`\
+https://www.nytimes.com/2026/05/01/crosswords/daily-puzzle-2026-05-02.html
+
 **Kennedy Consulted With Scandal P.R. Firm While Seeking Cabinet Nomination**\
 `An associate of the firm, which has been accused of running a smear campaign against the actress Blake Lively, promised to suppress negative stories about Robert F. Kennedy Jr., records show.`\
 https://www.nytimes.com/2026/05/01/nyregion/kennedy-lively-baldoni-smear-campaign.html
