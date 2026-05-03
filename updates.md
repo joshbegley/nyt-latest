@@ -1,3 +1,11 @@
+**Car With Explosive Devices Crashes Into Athletic Club in Portland, Ore.**\
+`A driver rammed his explosives-filled car into an athletic club Saturday. Hours later, devices were still being dismantled, with a bomb technician describing it “as the most complex scene that I’ve ever dealt with.”`\
+https://www.nytimes.com/2026/05/02/us/portland-athletic-club-car-crash.html
+
+**The Head-Turning Hats of the Kentucky Derby**\
+`At the 152nd annual horse race at Churchill Downs, attendees trotted out some eye-catching ensembles.`\
+https://www.nytimes.com/2026/05/02/style/kentucky-derby-2026-hats.html
+
 **‘A Huge Mess’: Delayed Louisiana Primaries Stoke Confusion at Ballot Box**\
 `On the first day of early voting, some glimpses of voter bewilderment came into focus, part of a dizzying scramble playing out days after a major Supreme Court ruling.`\
 https://www.nytimes.com/2026/05/02/us/politics/louisiana-voting-confusion-court.html
