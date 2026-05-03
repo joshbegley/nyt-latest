@@ -1,3 +1,11 @@
+**El rejuvenecimiento celular tiene el potencial de revertir el envejecimiento**\
+`Una nueva terapia puede curar cientos de enfermedades e incluso revertir el envejecimiento.`\
+https://www.nytimes.com/es/2026/05/03/espanol/ciencia-y-tecnologia/terapia-rejuvenecimiento-celular-envejecimiento.html
+
+**Trump Is Coming to a China That Has Moved On**\
+`China no longer looks to an erratic America as a model to emulate, but as a distraction to be managed.`\
+https://www.nytimes.com/2026/05/03/opinion/china-us-trump-summit.html
+
 **America Is Officially an Empire in Decline**\
 `President Trump has overextended the empire dangerously.`\
 https://www.nytimes.com/2026/05/03/opinion/iran-us-empire.html
