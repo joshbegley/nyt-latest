@@ -1,3 +1,19 @@
+**What Is Hantavirus, Which Is Linked to the Deaths of 3 People Aboard a Cruise Ship?**\
+`Three people aboard a cruise ship sailing the Atlantic Ocean have died from what health officials suspect were hantavirus infections.`\
+https://www.nytimes.com/2026/05/03/well/what-is-hantavirus-cruise-ship.html
+
+**Oil Prices Fall While Stock Futures Inch Up**\
+`Oil prices fell and futures on the S&P 500 rose slightly on Sunday as investors reacted to continued uncertainty about the war in Iran.`\
+https://www.nytimes.com/2026/05/03/business/oil-prices-stocks-iran.html
+
+**8 Arrested at Protest Over ICE Detention Outside Brooklyn Hospital**\
+`Protesters clashed with the police outside Wyckoff Heights Medical Center, where federal immigration agents brought a detainee for evaluation and later dragged him to a waiting car.`\
+https://www.nytimes.com/2026/05/03/nyregion/ice-arrest-protest-nyc-hospital.html
+
+**‘This Place Is Fire’**\
+`Kate Schutzengel’s puzzle is for the romantics.`\
+https://www.nytimes.com/2026/05/03/crosswords/daily-puzzle-2026-05-04.html
+
 **The Widow of the Firefighter Slain by a Would-Be Assassin Speaks Out**\
 `The conspiracy theories around the Butler, Pa., assassination attempt hurt Helen Comperatore, but in this age of distrust, partisanship and social media, she nurtures a conspiracy theory of her own.`\
 https://www.nytimes.com/2026/05/03/us/politics/butler-pennsylvania-assassination-attempt-comperatore.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/05/03/business/ask-jeeves-shuts-down-internet-searc
 **2 U.S. Service Members Are Missing in Morocco, Africa Command Says**\
 `The two Army soldiers were reported missing during a joint military exercise on Saturday near Cap Draa Training Area, a coastal area in southwestern Morocco.`\
 https://www.nytimes.com/2026/05/03/us/politics/us-army-missing-service-members-morocco-african-lion.html
-
-**‘Wartime Relic’ Explodes Under Campfire in Austria, Injuring Five Children**\
-`The children, aged 10 to 14, were taken to a hospital for treatment after the explosion in Upper Austria, the police said.`\
-https://www.nytimes.com/2026/05/03/world/europe/austria-explosion-campfire.html
-
-**Posting the Ten Commandments in Classrooms**\
-`Readers discuss a Texas law requiring the display of the Ten Commandments in classrooms. Also: A job seeker’s tale; long movies.`\
-https://www.nytimes.com/2026/05/03/opinion/ten-commandments-texas-schools.html
-
-**‘S.N.L.’ Recruits Aziz Ansari to Play F.B.I. Director Kash Patel**\
-`Ansari, the “Parks and Recreation” alum, made his first appearance on “Saturday Night Live” in nearly a decade, portraying Patel in an episode hosted by Olivia Rodrigo.`\
-https://www.nytimes.com/2026/05/03/arts/television/aziz-ansari-kash-patel-snl-olivia-rodrigo.html
-
-**Bruce vs. Donald**\
-`We look at Bruce Springsteen’s political activism.`\
-https://www.nytimes.com/2026/05/03/briefing/bruce-springsteen-donald-trump.html
 

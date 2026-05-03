@@ -1,3 +1,19 @@
+**What Is Hantavirus, Which Is Linked to the Deaths of 3 People Aboard a Cruise Ship?**\
+`Three people aboard a cruise ship sailing the Atlantic Ocean have died from what health officials suspect were hantavirus infections.`\
+https://www.nytimes.com/2026/05/03/well/what-is-hantavirus-cruise-ship.html
+
+**Oil Prices Fall While Stock Futures Inch Up**\
+`Oil prices fell and futures on the S&P 500 rose slightly on Sunday as investors reacted to continued uncertainty about the war in Iran.`\
+https://www.nytimes.com/2026/05/03/business/oil-prices-stocks-iran.html
+
+**8 Arrested at Protest Over ICE Detention Outside Brooklyn Hospital**\
+`Protesters clashed with the police outside Wyckoff Heights Medical Center, where federal immigration agents brought a detainee for evaluation and later dragged him to a waiting car.`\
+https://www.nytimes.com/2026/05/03/nyregion/ice-arrest-protest-nyc-hospital.html
+
+**‘This Place Is Fire’**\
+`Kate Schutzengel’s puzzle is for the romantics.`\
+https://www.nytimes.com/2026/05/03/crosswords/daily-puzzle-2026-05-04.html
+
 **The Widow of the Firefighter Slain by a Would-Be Assassin Speaks Out**\
 `The conspiracy theories around the Butler, Pa., assassination attempt hurt Helen Comperatore, but in this age of distrust, partisanship and social media, she nurtures a conspiracy theory of her own.`\
 https://www.nytimes.com/2026/05/03/us/politics/butler-pennsylvania-assassination-attempt-comperatore.html
