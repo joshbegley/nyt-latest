@@ -1,3 +1,19 @@
+**Cómo controlar la adicción al teléfono**\
+`Contar los minutos es una mala forma de frenar los hábitos telefónicos. He aquí los verdaderos antídotos, según los expertos.`\
+https://www.nytimes.com/es/2026/05/03/espanol/negocios/adiccion-telefono-celular.html
+
+**Una IA facilitó a científicos instructivos para hacer armas biológicas**\
+`Algunos científicos compartieron transcripciones con el Times en las que los chatbots describían cómo ensamblar patógenos mortales y liberarlos en espacios públicos.`\
+https://www.nytimes.com/es/2026/05/03/espanol/ia-armas-biologicas.html
+
+**Trump Shouldn’t Expect Too Much From His China Trip**\
+`China no longer looks to an erratic America as a model to emulate, but as a distraction to be managed.`\
+https://www.nytimes.com/2026/05/03/opinion/china-us-trump-summit.html
+
+**With Iran, the U.S. Stands to Lose Its Reputation, Its Friends or Its Soul**\
+`President Trump has overextended the empire dangerously.`\
+https://www.nytimes.com/2026/05/03/opinion/iran-us-empire.html
+
 **Los futbolistas profesionales que aún viven con sus padres**\
 `Julian Hall y Adri Mehmeti son dos adolescentes de Nueva York que están viviendo un sueño: aún no tienen edad para beber, pero se espera que le hagan frente a Messi.`\
 https://www.nytimes.com/es/2026/05/03/espanol/deportes/julian-zakrzewski-hall-adri-mehmeti-red-bulls-futbol.html
