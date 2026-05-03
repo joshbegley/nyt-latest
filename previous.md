@@ -1,3 +1,7 @@
+**Speedy, Easy Roasted Fish With Leeks and Olive Salsa Verde**\
+`Not a fan of removing olive pits? Don’t worry, I have a trick to share with you.`\
+https://www.nytimes.com/2026/05/03/dining/speedy-easy-roasted-fish-with-leeks-and-olive-salsa-verde.html
+
 **Blanche Says Others Who Post ‘86 47’ Message Won’t Be Charged Like Comey**\
 `The acting attorney general said such messages were “posted constantly” and said the Justice Department had gathered other evidence against the former F.B.I. director, but declined to describe it.`\
 https://www.nytimes.com/2026/05/03/us/politics/blanche-comey-indictment-seashells.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/03/world/asia/india-elections-modi-bjp-what-to-k
 **EE. UU. detonó un escándalo de corrupción que sacude a México**\
 `Los cargos de EE. UU. contra un gobernador mexicano detonaron una bomba política en México, han dominado la conversación nacional y han dividido en gran medida al país.`\
 https://www.nytimes.com/es/2026/05/03/espanol/america-latina/mexico-rocha-moya-acusacion-corrupcion.html
-
-**The U.S. Set Off a Corruption Scandal That Is Gripping Mexico**\
-`The U.S. indictment of a Mexican governor has spotlighted cartel corruption, strained cross-border relations and handed President Claudia Sheinbaum a thorny choice.`\
-https://www.nytimes.com/2026/05/03/world/americas/mexico-sinaloa-corruption.html
 

@@ -1,3 +1,7 @@
+**Doctors From Countries Under Travel Ban Now Allowed to Stay in U.S.**\
+`In a reversal, the Trump administration has exempted foreign physicians from a visa application freeze that was pushing many out of jobs in underserved areas.`\
+https://www.nytimes.com/2026/05/03/us/trump-travel-ban-doctors-us-immigration.html
+
 **Speedy, Easy Roasted Fish With Leeks and Olive Salsa Verde**\
 `Not a fan of removing olive pits? Don’t worry, I have a trick to share with you.`\
 https://www.nytimes.com/2026/05/03/dining/speedy-easy-roasted-fish-with-leeks-and-olive-salsa-verde.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/03/crosswords/strands-sidekick-792.html
 **Modi’s Hindu Right Targets Gains in India’s Elections: What to Know**\
 `Vote counting starts on Monday after over 154 million people participated in elections for state legislatures last month. The contests can tilt the balance of power for the whole country.`\
 https://www.nytimes.com/2026/05/03/world/asia/india-elections-modi-bjp-what-to-know.html
-
-**EE. UU. detonó un escándalo de corrupción que sacude a México**\
-`Los cargos de EE. UU. contra un gobernador mexicano detonaron una bomba política en México, han dominado la conversación nacional y han dividido en gran medida al país.`\
-https://www.nytimes.com/es/2026/05/03/espanol/america-latina/mexico-rocha-moya-acusacion-corrupcion.html
 
