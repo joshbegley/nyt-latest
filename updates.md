@@ -1,3 +1,11 @@
+**Blanche Says Others Who Post ‘86 47’ Message Won’t Be Charged Like Comey**\
+`The acting attorney general said such messages were “posted constantly” and said the Justice Department had gathered other evidence against the former F.B.I. director, but declined to describe it.`\
+https://www.nytimes.com/2026/05/03/us/politics/blanche-comey-indictment-seashells.html
+
+**OPEC Plus, in Symbolic Gesture, to Increase Oil Production**\
+`The announcement came days after the United Arab Emirates withdrew from the group. The higher output will have little effect on global supplies.`\
+https://www.nytimes.com/2026/05/03/business/opec-plus-oil-production-united-arab-emirates.html
+
 **So Long Jeeves and Ask.com, Relics of Yesterday’s Internet**\
 `The pioneering search engine shut down on May 1, after nearly 30 years in operation.`\
 https://www.nytimes.com/2026/05/03/business/ask-jeeves-shuts-down-internet-search-engine.html
