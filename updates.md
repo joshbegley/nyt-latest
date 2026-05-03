@@ -1,3 +1,19 @@
+**Trump es el que no tiene las cartas sobre la mesa**\
+`La IA aumentará drásticamente el poder de los pequeños Estados y grupos en conflictos contra las grandes potencias.`\
+https://www.nytimes.com/es/2026/05/03/espanol/opinion/trump-ia-guerra-asimetrica.html
+
+**Una respuesta de 900 años para el dilema de la IA**\
+`Un sistema jurídico centenario podría definir la responsabilidad cuando la inteligencia artificial causa daño.`\
+https://www.nytimes.com/es/2026/05/03/espanol/opinion/ia-responsabilidad.html
+
+**En las faldas del monte Fuji, se libra una batalla contra los turistas revoltosos**\
+`Las enormes multitudes de visitantes durante la temporada de floración de los cerezos han puesto en vilo a una pintoresca ciudad japonesa. Algunos residentes intentan tomar las riendas.`\
+https://www.nytimes.com/es/2026/05/03/espanol/mundo/japon-turismo-problemas.html
+
+**Antes los ricos no lucían así**\
+`La cirugía estética es un signo de éxito en el sentido más Kardashian: hazte rico y cómprate una cara.`\
+https://www.nytimes.com/es/2026/05/03/espanol/opinion/ricos-cirugias-estatus.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/05/03/crosswords/spelling-bee-forum.html

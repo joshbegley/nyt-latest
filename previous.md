@@ -1,3 +1,19 @@
+**Trump es el que no tiene las cartas sobre la mesa**\
+`La IA aumentará drásticamente el poder de los pequeños Estados y grupos en conflictos contra las grandes potencias.`\
+https://www.nytimes.com/es/2026/05/03/espanol/opinion/trump-ia-guerra-asimetrica.html
+
+**Una respuesta de 900 años para el dilema de la IA**\
+`Un sistema jurídico centenario podría definir la responsabilidad cuando la inteligencia artificial causa daño.`\
+https://www.nytimes.com/es/2026/05/03/espanol/opinion/ia-responsabilidad.html
+
+**En las faldas del monte Fuji, se libra una batalla contra los turistas revoltosos**\
+`Las enormes multitudes de visitantes durante la temporada de floración de los cerezos han puesto en vilo a una pintoresca ciudad japonesa. Algunos residentes intentan tomar las riendas.`\
+https://www.nytimes.com/es/2026/05/03/espanol/mundo/japon-turismo-problemas.html
+
+**Antes los ricos no lucían así**\
+`La cirugía estética es un signo de éxito en el sentido más Kardashian: hazte rico y cómprate una cara.`\
+https://www.nytimes.com/es/2026/05/03/espanol/opinion/ricos-cirugias-estatus.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/05/03/crosswords/spelling-bee-forum.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/video/world/asia/100000010844213/china-ai-entertainment-
 **Oil Tanker Hijacking Stokes New Fear in Gulf Region**\
 `The attack’s location and timing fueled concerns about potential collaboration between Somalia’s pirates and Yemen’s Houthi rebels amid the Iran war.`\
 https://www.nytimes.com/2026/05/02/world/middleeast/hijacking-tanker-houthis-somalia-pirates.html
-
-**Man Shot by ICE in California Indicted on Assault Charges**\
-`Prosecutors have accused the man of hitting federal agents with his vehicle as they tried to arrest him.`\
-https://www.nytimes.com/2026/05/02/us/ice-shooting-california-assault-charges.html
-
-**How Mamdani Would Change Grand Army Plaza for Walkers, Bikers and Drivers**\
-`Mayor Zohran Mamdani's plan to connect the plaza to Prospect Park would expand pedestrian spaces, add bike lanes and reroute cars to improve traffic flow in the area.`\
-https://www.nytimes.com/interactive/2026/05/02/nyregion/grand-army-plaza-nyc-redesign-mamdani.html
-
-**Corrections: May 3, 2026**\
-`Corrections that appeared in print on Sunday, May 3, 2026.`\
-https://www.nytimes.com/2026/05/02/pageoneplus/corrections-may-3-2026.html
-
-**Trump Says He Is Reviewing Iran’s Latest Offer but Doubts It Is Acceptable**\
-`The comments came one day after Mr. Trump flatly rejected the proposal. He later clarified he was only briefed on the “concept of the deal.”`\
-https://www.nytimes.com/2026/05/02/us/politics/trump-says-he-is-reviewing-irans-latest-offer-but-doubts-it-is-acceptable.html
 
