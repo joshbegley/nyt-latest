@@ -1,3 +1,39 @@
+**Why the A.I. Job Apocalypse (Probably) Won’t Happen**\
+`The feeling of efficiency should be mistrusted.`\
+https://www.nytimes.com/2026/05/03/opinion/ai-jobs-unemployment-silicon-valley.html
+
+**Lauren Sánchez Bezos and the Fashion End Times of ‘The Devil Wears Prada 2’**\
+`The real-life Met Gala vs. the one onscreen.`\
+https://www.nytimes.com/2026/05/03/opinion/devil-wears-prada-lauren-sanchez-bezos-met-gala.html
+
+**The 30 Greatest Living American Songwriters**\
+`Taylor Swift, Jay-Z and other music legends in their own words.`\
+https://www.nytimes.com/2026/05/03/podcasts/the-daily/the-30-greatest-living-american-songwriters.html
+
+**Strict Uniforms. Ancient Philosophy. Can a Public School Cure Our Toxic Politics?**\
+`This school gave me hope for our democracy.`\
+https://www.nytimes.com/2026/05/03/opinion/public-schools-politics-democracy-minnesota.html
+
+**Wordle Review No. 1,780**\
+`Scroll down for hints and conversation about the puzzle for Monday, May 4, 2026.`\
+https://www.nytimes.com/2026/05/03/crosswords/wordle-review-1780.html
+
+**Connections Companion No. 1,058**\
+`Scroll down for hints and conversation about the puzzle for Monday, May 4, 2026.`\
+https://www.nytimes.com/2026/05/03/crosswords/connections-companion-1058.html
+
+**My Job Is to Help Plan for Old Age. Why Is It So Hard With My Parents?**\
+`A few small changes to their home and habits will make it much more likely that they can age in their own home.`\
+https://www.nytimes.com/2026/05/03/opinion/old-age-planning-parents-family.html
+
+**Strands Sidekick No. 792**\
+`Scroll down for hints and conversation about the puzzle for Monday, May 4, 2026.`\
+https://www.nytimes.com/2026/05/03/crosswords/strands-sidekick-792.html
+
+**Modi’s Hindu Right Targets Gains in India’s Elections: What to Know**\
+`Vote counting starts on Monday after over 154 million people participated in elections for state legislatures last month. The contests can tilt the balance of power for the whole country.`\
+https://www.nytimes.com/2026/05/03/world/asia/india-elections-modi-bjp-what-to-know.html
+
 **EE. UU. detonó un escándalo de corrupción que sacude a México**\
 `Los cargos de EE. UU. contra un gobernador mexicano detonaron una bomba política en México, han dominado la conversación nacional y han dividido en gran medida al país.`\
 https://www.nytimes.com/es/2026/05/03/espanol/america-latina/mexico-rocha-moya-acusacion-corrupcion.html
@@ -41,40 +77,4 @@ https://www.nytimes.com/2026/05/03/nyregion/nyc-tariffs-yun-hai-taiwan-pantry.ht
 **‘Every Child Walking by Stared at My New Purple Hair’**\
 `A spring walk near Prospect Park, an S. Klein bargain and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://www.nytimes.com/2026/05/03/nyregion/metropolitan-diary.html
-
-**There’s a Right and Wrong Way to Use Urgent Care**\
-`We asked experts when you should use one, and when you’re better off visiting an ER or primary care doctor instead.`\
-https://www.nytimes.com/2026/05/03/well/urgent-care.html
-
-**A Long, Strange Trip: How the G.O.P. Came to Embrace Psychedelic Drugs**\
-`For decades, conservatives were adamantly opposed to the use of drugs like psilocybin and LSD. Now, the Trump administration has made a sharp pivot.`\
-https://www.nytimes.com/2026/05/03/science/ibogaine-psychedelics-rogan-trump.html
-
-**In Mississippi, a Democrat Challenges the Senator Who Blocked His Judgeship**\
-`Scott Colom, a state prosecutor, is running against Senator Cindy Hyde-Smith, a Republican who denied him a seat on the federal bench. In a tough year for the G.O.P., Democrats see hope for his long-shot bid.`\
-https://www.nytimes.com/2026/05/03/us/politics/mississippi-hyde-smith-senate-election.html
-
-**Where D.C.’s Young Conservatives Go Out to Play**\
-`Scarlet Oak, a restaurant and bar in the Navy Yard section of Washington, has become a hangout for a younger MAGA cohort. Especially on Wine Wednesdays.`\
-https://www.nytimes.com/2026/05/03/style/scarlet-oak-dc-young-conservatives-bar.html
-
-**Food Industry Sees a Threat in Kennedy’s Push to Define ‘Ultraprocessed’ Food**\
-`Some yogurts and peanut butters could be considered ultraprocessed as scientists and MAHA supporters push for a strict definition.`\
-https://www.nytimes.com/2026/05/03/business/ultraprocessed-foods-rfk-maha.html
-
-**Driving Electric in Costa Rica Is Surprisingly Doable**\
-`The charging network is spotty, but it’s a small country.`\
-https://www.nytimes.com/2026/05/03/business/costa-rica-electric-vehicle-road-trip.html
-
-**These Countries Embrace E.V.s to Avoid Oil Price Shocks**\
-`People in Costa Rica and other Latin American, Asian and African countries are increasingly buying electric vehicles to avoid spiking fuel prices.`\
-https://www.nytimes.com/2026/05/03/business/electric-vehicles-costa-rica.html
-
-**Patricia Cornwell Takes a Scalpel to Her Own Life Story**\
-`Her new memoir, “True Crime,” traces how she survived a Southern Gothic upbringing to emerge as one of the world’s most famous thriller writers.`\
-https://www.nytimes.com/2026/05/03/books/review/patricia-cornwell-true-crime-memoir.html
-
-**The New Schoolyard Fight: Shrinking Enrollments and Too Many Classrooms**\
-`A battle in one New York neighborhood echoes struggles unfolding in school systems across the nation that are experiencing a decline in students.`\
-https://www.nytimes.com/2026/05/03/nyregion/upper-west-side-nyc-schools.html
 
