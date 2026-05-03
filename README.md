@@ -10,7 +10,7 @@ https://www.nytimes.com/es/2026/05/03/espanol/ia-armas-biologicas.html
 `China no longer looks to an erratic America as a model to emulate, but as a distraction to be managed.`\
 https://www.nytimes.com/2026/05/03/opinion/china-us-trump-summit.html
 
-**With Iran, the U.S. Stands to Lose Its Reputation, Its Friends or Its Soul**\
+**America Is Officially an Empire in Decline**\
 `President Trump has overextended the empire dangerously.`\
 https://www.nytimes.com/2026/05/03/opinion/iran-us-empire.html
 
