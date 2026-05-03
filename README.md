@@ -64,11 +64,11 @@ https://www.nytimes.com/2026/05/03/us/politics/democrats-republicans-ai.html
 
 **A California Dream? Some Democrats Fear Harris Picked the Wrong Race.**\
 `Some wish Kamala Harris had decided to run for governor in California, where Democrats are struggling to break through, rather than weigh another White House run.`\
-https://www.nytimes.com/2026/05/03/us/politics/a-california-dream-some-democrats-fear-harris-picked-the-wrong-race.html
+https://www.nytimes.com/2026/05/03/us/politics/kamala-harris-california-governor-democrats.html
 
 **The Last Days of Butter Ridge**\
 `The Watsons were dairy farmers for generations, the rhythms of their lives defined by their cows. Until this spring.`\
-https://www.nytimes.com/2026/05/03/us/the-last-days-of-butter-ridge.html
+https://www.nytimes.com/2026/05/03/us/dairy-farm-butter-ridge-pennsylvania.html
 
 **Tariffs, Rebates, Chaos: Boutique Businesses Wonder What’s Next**\
 `A Brooklyn general store that sells Taiwanese imports was pummeled by tariffs. A rebate would help, but the confusion still lingers.`\
