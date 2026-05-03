@@ -1,3 +1,11 @@
+**Trump Says U.S. Will Help Stranded Ships Leave Strait of Hormuz**\
+`President Trump offered few details on how the new program, which he called Project Freedom, would work, but said interference would be dealt with “forcefully.”`\
+https://www.nytimes.com/2026/05/03/us/politics/strait-hormuz-stranded-ships.html
+
+**Oil Prices Edge Down While Stock Futures Inch Up**\
+`Oil prices fell and futures on the S&P 500 rose slightly on Sunday as investors reacted to continued uncertainty about the war in Iran.`\
+https://www.nytimes.com/2026/05/03/business/oil-prices-stocks-iran.html
+
 **United Plane Strikes Light Pole While Landing**\
 `A United Airlines flight hit a light pole as it landed at Newark Liberty International Airport on Sunday, the Federal Aviation Administration said in a statement.`\
 https://www.nytimes.com/video/embedded/us/100000010877899/united-plane-strikes-light-pole-while-landing.html
