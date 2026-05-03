@@ -1,3 +1,7 @@
+**Ronald Smothers, Times Reporter Who Covered Protest and Politics, Dies at 79**\
+`In a career that included 35 years at The New York Times, he chronicled the Rev. Jesse Jackson’s 1984 presidential run and the bombing at the 1996 Olympics in Atlanta.`\
+https://www.nytimes.com/2026/05/03/us/ronald-smothers-dead.html
+
 **Why the A.I. Job Apocalypse (Probably) Won’t Happen**\
 `The feeling of efficiency should be mistrusted.`\
 https://www.nytimes.com/2026/05/03/opinion/ai-jobs-unemployment-silicon-valley.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/03/us/dairy-farm-butter-ridge-pennsylvania.html
 **Tariffs, Rebates, Chaos: Boutique Businesses Wonder What’s Next**\
 `A Brooklyn general store that sells Taiwanese imports was pummeled by tariffs. A rebate would help, but the confusion still lingers.`\
 https://www.nytimes.com/2026/05/03/nyregion/nyc-tariffs-yun-hai-taiwan-pantry.html
-
-**‘Every Child Walking by Stared at My New Purple Hair’**\
-`A spring walk near Prospect Park, an S. Klein bargain and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://www.nytimes.com/2026/05/03/nyregion/metropolitan-diary.html
 
