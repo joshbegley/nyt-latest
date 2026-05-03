@@ -62,13 +62,13 @@ https://www.nytimes.com/2026/05/03/world/asia/india-elections-modi-bjp-what-to-k
 `Los cargos de EE. UU. contra un gobernador mexicano detonaron una bomba política en México, han dominado la conversación nacional y han dividido en gran medida al país.`\
 https://www.nytimes.com/es/2026/05/03/espanol/america-latina/mexico-rocha-moya-acusacion-corrupcion.html
 
-**Trump Faces the Complicated Reality of a Costly, Unpopular War in Iran**\
-`President Trump’s predictions of a relatively short-term conflict with minimal economic consequences appear to be crumbling.`\
-https://www.nytimes.com/2026/05/03/us/politics/trump-unpopular-war-iran.html
-
 **The U.S. Set Off a Corruption Scandal That Is Gripping Mexico**\
 `The U.S. indictment of a Mexican governor has spotlighted cartel corruption, strained cross-border relations and handed President Claudia Sheinbaum a thorny choice.`\
 https://www.nytimes.com/2026/05/03/world/americas/mexico-sinaloa-corruption.html
+
+**Trump Faces the Complicated Reality of a Costly, Unpopular War in Iran**\
+`President Trump’s predictions of a relatively short-term conflict with minimal economic consequences appear to be crumbling.`\
+https://www.nytimes.com/2026/05/03/us/politics/trump-unpopular-war-iran.html
 
 **Fear and Vigilance Are Now Constant Companions for Many American Jews**\
 `Each new attack, like the London stabbings last week, brings a heightened sense of caution to an already wary population.`\

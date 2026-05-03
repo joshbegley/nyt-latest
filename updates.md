@@ -1,3 +1,11 @@
+**2 U.S. Service Members Are Missing in Morocco, Africa Command Says**\
+`The two Army soldiers were reported missing during a joint military exercise on Saturday near Cap Draa Training Area, a coastal area in southwestern Morocco.`\
+https://www.nytimes.com/2026/05/03/us/politics/us-army-missing-service-members-morocco-african-lion.html
+
+**‘Wartime Relic’ Explodes Under Campfire in Austria, Injuring Five Children**\
+`The children, aged 10 to 14, were taken to a hospital for treatment after the explosion in Upper Austria, the police said.`\
+https://www.nytimes.com/2026/05/03/world/europe/03xp-austria-explosion-campfire.html
+
 **Posting the Ten Commandments in Classrooms**\
 `Readers discuss a Texas law requiring the display of the Ten Commandments in classrooms. Also: A job seeker’s tale; long movies.`\
 https://www.nytimes.com/2026/05/03/opinion/ten-commandments-texas-schools.html
