@@ -1,3 +1,7 @@
+**Ronald Smothers, Times Reporter Who Covered Protest and Politics, Dies at 79**\
+`In a career that included 35 years at The New York Times, he chronicled the Rev. Jesse Jackson’s 1984 presidential run and the bombing at the 1996 Olympics in Atlanta.`\
+https://www.nytimes.com/2026/05/03/us/ronald-smothers-dead.html
+
 **A California Dream? Some Democrats Fear Harris Picked the Wrong Race.**\
 `Some wish Kamala Harris had decided to run for governor in California, where Democrats are struggling to break through, rather than weigh another White House run.`\
 https://www.nytimes.com/2026/05/03/us/politics/kamala-harris-california-governor-democrats.html
