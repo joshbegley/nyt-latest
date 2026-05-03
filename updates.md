@@ -1,3 +1,11 @@
+**Posting the Ten Commandments in Classrooms**\
+`Readers discuss a Texas law requiring the display of the Ten Commandments in classrooms. Also: A job seeker’s tale; long movies.`\
+https://www.nytimes.com/2026/05/03/opinion/ten-commandments-texas-schools.html
+
+**‘S.N.L.’ Recruits Aziz Ansari to Play F.B.I. Director Kash Patel**\
+`Ansari, the “Parks and Recreation” alum, made his first appearance on “Saturday Night Live” in nearly a decade, portraying Patel in an episode hosted by Olivia Rodrigo.`\
+https://www.nytimes.com/2026/05/03/arts/television/aziz-ansari-kash-patel-snl-olivia-rodrigo.html
+
 **‘S.N.L.’ Recruits Aziz Ansari to Play F.B.I. Director Kash Patel**\
 `Ansari, the “Parks and Recreation” alum, made his first appearance on “Saturday Night Live” in nearly a decade, portraying Patel in an episode hosted by Olivia Rodrigo.`\
 https://www.nytimes.com/2026/05/03/arts/television/aziz-ansari-plays-kash-patel-on-snl.html
