@@ -1,3 +1,7 @@
+**Los futbolistas profesionales que aún viven con sus padres**\
+`Julian Hall y Adri Mehmeti son dos adolescentes de Nueva York que están viviendo un sueño: aún no tienen edad para beber, pero se espera que le hagan frente a Messi.`\
+https://www.nytimes.com/es/2026/05/03/espanol/deportes/julian-zakrzewski-hall-adri-mehmeti-red-bulls-futbol.html
+
 **Quote of the Day: Jordanians Struggle as Wars in the Mideast Slow Tourism to a Trickle**\
 `Quotation of the Day for Sunday, May 3, 2026.`\
 https://www.nytimes.com/2026/05/03/pageoneplus/quote-of-the-day-jordanians-struggle-as-wars-in-the-mideast-slow-tourism-to-a-trickle.html
