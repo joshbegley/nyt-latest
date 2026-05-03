@@ -1,3 +1,11 @@
+**Tractor-Trailer and Light Post Damaged as Plane Lands at Newark Airport**\
+`The tractor-trailer was on the New Jersey Turnpike on Sunday when it was damaged, the authorities said. Its driver had minor injuries and no one aboard the plane was hurt.`\
+https://www.nytimes.com/2026/05/03/nyregion/newark-airport-plane-light-pole.html
+
+**Rudy Giuliani Is in ‘Critical Condition’ in Florida Hospital**\
+`A spokesman for the former mayor of New York City said Mr. Giuliani was critical but stable.`\
+https://www.nytimes.com/2026/05/03/nyregion/rudy-giuliani-hospital-critical-condition.html
+
 **Trump Says U.S. Will Help Stranded Ships Leave Strait of Hormuz**\
 `President Trump offered few details on how the new program, which he called Project Freedom, would work, but said interference would be dealt with “forcefully.”`\
 https://www.nytimes.com/2026/05/03/us/politics/strait-hormuz-stranded-ships.html

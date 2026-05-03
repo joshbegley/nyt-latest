@@ -1,3 +1,11 @@
+**Tractor-Trailer and Light Post Damaged as Plane Lands at Newark Airport**\
+`The tractor-trailer was on the New Jersey Turnpike on Sunday when it was damaged, the authorities said. Its driver had minor injuries and no one aboard the plane was hurt.`\
+https://www.nytimes.com/2026/05/03/nyregion/newark-airport-plane-light-pole.html
+
+**Rudy Giuliani Is in ‘Critical Condition’ in Florida Hospital**\
+`A spokesman for the former mayor of New York City said Mr. Giuliani was critical but stable.`\
+https://www.nytimes.com/2026/05/03/nyregion/rudy-giuliani-hospital-critical-condition.html
+
 **Trump Says U.S. Will Help Stranded Ships Leave Strait of Hormuz**\
 `President Trump offered few details on how the new program, which he called Project Freedom, would work, but said interference would be dealt with “forcefully.”`\
 https://www.nytimes.com/2026/05/03/us/politics/strait-hormuz-stranded-ships.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/03/style/vogue-devil-wears-prada-2-movie.html
 **Doctors From Countries Under Travel Ban Now Allowed to Stay in U.S.**\
 `In a reversal, the Trump administration has exempted foreign physicians from a visa application freeze that was pushing many out of jobs in underserved areas.`\
 https://www.nytimes.com/2026/05/03/us/trump-travel-ban-doctors-us-immigration.html
-
-**Speedy, Easy Roasted Fish With Leeks and Olive Salsa Verde**\
-`Not a fan of removing olive pits? Don’t worry, I have a trick to share with you.`\
-https://www.nytimes.com/2026/05/03/dining/speedy-easy-roasted-fish-with-leeks-and-olive-salsa-verde.html
-
-**Blanche Says Others Who Post ‘86 47’ Message Won’t Be Charged Like Comey**\
-`The acting attorney general said such messages were “posted constantly” and said the Justice Department had gathered other evidence against the former F.B.I. director, but declined to describe it.`\
-https://www.nytimes.com/2026/05/03/us/politics/blanche-comey-indictment-seashells.html
 
