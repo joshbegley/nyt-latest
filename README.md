@@ -1,3 +1,11 @@
+**Blanche Says Others Who Post ‘86 47’ Message Won’t Be Charged Like Comey**\
+`The acting attorney general said such messages were “posted constantly” and said the Justice Department had gathered other evidence against the former F.B.I. director, but declined to describe it.`\
+https://www.nytimes.com/2026/05/03/us/politics/blanche-comey-indictment-seashells.html
+
+**OPEC Plus, in Symbolic Gesture, to Increase Oil Production**\
+`The announcement came days after the United Arab Emirates withdrew from the group. The higher output will have little effect on global supplies.`\
+https://www.nytimes.com/2026/05/03/business/opec-plus-oil-production-united-arab-emirates.html
+
 **So Long Jeeves and Ask.com, Relics of Yesterday’s Internet**\
 `The pioneering search engine shut down on May 1, after nearly 30 years in operation.`\
 https://www.nytimes.com/2026/05/03/business/ask-jeeves-shuts-down-internet-search-engine.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/es/2026/05/03/espanol/america-latina/mexico-rocha-moya-a
 **The U.S. Set Off a Corruption Scandal That Is Gripping Mexico**\
 `The U.S. indictment of a Mexican governor has spotlighted cartel corruption, strained cross-border relations and handed President Claudia Sheinbaum a thorny choice.`\
 https://www.nytimes.com/2026/05/03/world/americas/mexico-sinaloa-corruption.html
-
-**Trump Faces the Complicated Reality of a Costly, Unpopular War in Iran**\
-`President Trump’s predictions of a relatively short-term conflict with minimal economic consequences appear to be crumbling.`\
-https://www.nytimes.com/2026/05/03/us/politics/trump-unpopular-war-iran.html
-
-**Fear and Vigilance Are Now Constant Companions for Many American Jews**\
-`Each new attack, like the London stabbings last week, brings a heightened sense of caution to an already wary population.`\
-https://www.nytimes.com/2026/05/03/us/jewish-antisemitism-violence-attacks.html
 
