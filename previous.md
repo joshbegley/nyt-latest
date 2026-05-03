@@ -4,7 +4,7 @@ https://www.nytimes.com/2026/05/03/us/politics/us-army-missing-service-members-m
 
 **‘Wartime Relic’ Explodes Under Campfire in Austria, Injuring Five Children**\
 `The children, aged 10 to 14, were taken to a hospital for treatment after the explosion in Upper Austria, the police said.`\
-https://www.nytimes.com/2026/05/03/world/europe/03xp-austria-explosion-campfire.html
+https://www.nytimes.com/2026/05/03/world/europe/austria-explosion-campfire.html
 
 **Posting the Ten Commandments in Classrooms**\
 `Readers discuss a Texas law requiring the display of the Ten Commandments in classrooms. Also: A job seeker’s tale; long movies.`\
