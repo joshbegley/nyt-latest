@@ -1,3 +1,7 @@
+**Doctors From Countries Under Travel Ban Now Allowed to Stay in U.S.**\
+`In a reversal, the Trump administration has exempted foreign physicians from a visa application freeze that was pushing many out of jobs in underserved areas.`\
+https://www.nytimes.com/2026/05/03/us/trump-travel-ban-doctors-us-immigration.html
+
 **Speedy, Easy Roasted Fish With Leeks and Olive Salsa Verde**\
 `Not a fan of removing olive pits? Don’t worry, I have a trick to share with you.`\
 https://www.nytimes.com/2026/05/03/dining/speedy-easy-roasted-fish-with-leeks-and-olive-salsa-verde.html
