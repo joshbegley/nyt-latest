@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/03/crosswords/spelling-bee-forum.html
+
 **A Love Letter to a Beautiful, Dying Thing**\
 `On May Day, we reflect on the sanctity of flowers.`\
 https://www.nytimes.com/2026/05/03/briefing/a-love-letter-to-a-beautiful-dying-thing.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/02/pageoneplus/corrections-may-3-2026.html
 **Trump Says He Is Reviewing Iran’s Latest Offer but Doubts It Is Acceptable**\
 `The comments came one day after Mr. Trump flatly rejected the proposal. He later clarified he was only briefed on the “concept of the deal.”`\
 https://www.nytimes.com/2026/05/02/us/politics/trump-says-he-is-reviewing-irans-latest-offer-but-doubts-it-is-acceptable.html
-
-**‘A Huge Mess’: Delayed Louisiana Primaries Stoke Confusion at Ballot Box**\
-`On the first day of early voting, some glimpses of voter bewilderment came into focus, part of a dizzying scramble playing out days after a major Supreme Court ruling.`\
-https://www.nytimes.com/2026/05/02/us/politics/louisiana-voting-confusion-court.html
 
