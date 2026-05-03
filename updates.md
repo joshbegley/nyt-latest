@@ -1,3 +1,7 @@
+**Blue and Tentacled, a Sea Creature Invades California Beaches**\
+`The brightly colored jellylike marine life, called “Velella velella,” show up every few years when strong winds blow in the right direction, scientists said.`\
+https://www.nytimes.com/2026/05/03/us/by-the-wind-sailors-invade-california-beaches.html
+
 **Justice Dept. Prosecutor Says Inquiry Into Fed Chair Could Be Resurrected**\
 `Jeanine Pirro, the U.S. attorney in Washington, dropped an inquiry into Jerome Powell last month after a federal judge blocked her grand jury subpoenas.`\
 https://www.nytimes.com/2026/05/03/us/politics/justice-department-fed-chair-powell-inquiry-pirro.html
