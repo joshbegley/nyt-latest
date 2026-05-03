@@ -1,5 +1,5 @@
-**3 Dead in Hantavirus Outbreak Aboard Cruise Ship, W.H.O. Says**\
-`One case of hantavirus infection has been confirmed in a laboratory, and there are five additional suspected cases, the organization said on Sunday.`\
+**3 Dead in Hantavirus Infections Aboard Cruise Ship, W.H.O. Says**\
+`One case of the infection has been confirmed in a laboratory, and there are five additional suspected cases, the organization said on Sunday.`\
 https://www.nytimes.com/2026/05/03/well/cruise-ship-virus-fatal-outbreak.html
 
 **E.E.O.C. Investigating Discrimination Claim at The New York Times**\
