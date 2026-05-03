@@ -1,3 +1,39 @@
+**Why the A.I. Job Apocalypse (Probably) Won’t Happen**\
+`The feeling of efficiency should be mistrusted.`\
+https://www.nytimes.com/2026/05/03/opinion/ai-jobs-unemployment-silicon-valley.html
+
+**Lauren Sánchez Bezos and the Fashion End Times of ‘The Devil Wears Prada 2’**\
+`The real-life Met Gala vs. the one onscreen.`\
+https://www.nytimes.com/2026/05/03/opinion/devil-wears-prada-lauren-sanchez-bezos-met-gala.html
+
+**The 30 Greatest Living American Songwriters**\
+`Taylor Swift, Jay-Z and other music legends in their own words.`\
+https://www.nytimes.com/2026/05/03/podcasts/the-daily/the-30-greatest-living-american-songwriters.html
+
+**Strict Uniforms. Ancient Philosophy. Can a Public School Cure Our Toxic Politics?**\
+`This school gave me hope for our democracy.`\
+https://www.nytimes.com/2026/05/03/opinion/public-schools-politics-democracy-minnesota.html
+
+**Wordle Review No. 1,780**\
+`Scroll down for hints and conversation about the puzzle for Monday, May 4, 2026.`\
+https://www.nytimes.com/2026/05/03/crosswords/wordle-review-1780.html
+
+**Connections Companion No. 1,058**\
+`Scroll down for hints and conversation about the puzzle for Monday, May 4, 2026.`\
+https://www.nytimes.com/2026/05/03/crosswords/connections-companion-1058.html
+
+**My Job Is to Help Plan for Old Age. Why Is It So Hard With My Parents?**\
+`A few small changes to their home and habits will make it much more likely that they can age in their own home.`\
+https://www.nytimes.com/2026/05/03/opinion/old-age-planning-parents-family.html
+
+**Strands Sidekick No. 792**\
+`Scroll down for hints and conversation about the puzzle for Monday, May 4, 2026.`\
+https://www.nytimes.com/2026/05/03/crosswords/strands-sidekick-792.html
+
+**Modi’s Hindu Right Targets Gains in India’s Elections: What to Know**\
+`Vote counting starts on Monday after over 154 million people participated in elections for state legislatures last month. The contests can tilt the balance of power for the whole country.`\
+https://www.nytimes.com/2026/05/03/world/asia/india-elections-modi-bjp-what-to-know.html
+
 **EE. UU. detonó un escándalo de corrupción que sacude a México**\
 `Los cargos de EE. UU. contra un gobernador mexicano detonaron una bomba política en México, han dominado la conversación nacional y han dividido en gran medida al país.`\
 https://www.nytimes.com/es/2026/05/03/espanol/america-latina/mexico-rocha-moya-acusacion-corrupcion.html
