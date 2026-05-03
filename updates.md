@@ -1,3 +1,15 @@
+**The Widow of the Firefighter Slain by a Would-Be Assassin Speaks Out**\
+`The conspiracy theories around the Butler, Pa., assassination attempt hurt Helen Comperatore, but in this age of distrust, partisanship and social media, she nurtures a conspiracy theory of her own.`\
+https://www.nytimes.com/2026/05/03/us/politics/butler-pennsylvania-assassination-attempt-comperatore.html
+
+**DeepSeek’s Sequel**\
+`China made the inner workings of the A.I. model open to all, and that’s starting to look like a soft-power win.`\
+https://www.nytimes.com/2026/05/03/world/deepseek-china-ai-iran-india-elections.html
+
+**3 Dead of Suspected Hantavirus Infections on Cruise Ship, W.H.O. Says**\
+`One case of hantavirus infection has been confirmed in a laboratory, the organization said on Sunday. There are five additional suspected cases.`\
+https://www.nytimes.com/2026/05/03/well/cruise-ship-virus-fatal-outbreak.html
+
 **3 Dead in Hantavirus Infections Aboard Cruise Ship, W.H.O. Says**\
 `One case of the infection has been confirmed in a laboratory, and there are five additional suspected cases, the organization said on Sunday.`\
 https://www.nytimes.com/2026/05/03/well/cruise-ship-virus-fatal-outbreak.html

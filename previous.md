@@ -1,5 +1,13 @@
-**3 Dead in Hantavirus Infections Aboard Cruise Ship, W.H.O. Says**\
-`One case of the infection has been confirmed in a laboratory, and there are five additional suspected cases, the organization said on Sunday.`\
+**The Widow of the Firefighter Slain by a Would-Be Assassin Speaks Out**\
+`The conspiracy theories around the Butler, Pa., assassination attempt hurt Helen Comperatore, but in this age of distrust, partisanship and social media, she nurtures a conspiracy theory of her own.`\
+https://www.nytimes.com/2026/05/03/us/politics/butler-pennsylvania-assassination-attempt-comperatore.html
+
+**DeepSeek’s Sequel**\
+`China made the inner workings of the A.I. model open to all, and that’s starting to look like a soft-power win.`\
+https://www.nytimes.com/2026/05/03/world/deepseek-china-ai-iran-india-elections.html
+
+**3 Dead of Suspected Hantavirus Infections on Cruise Ship, W.H.O. Says**\
+`One case of hantavirus infection has been confirmed in a laboratory, the organization said on Sunday. There are five additional suspected cases.`\
 https://www.nytimes.com/2026/05/03/well/cruise-ship-virus-fatal-outbreak.html
 
 **E.E.O.C. Investigating Discrimination Claim at The New York Times**\
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/03/arts/television/aziz-ansari-kash-patel-snl-ol
 **Bruce vs. Donald**\
 `We look at Bruce Springsteen’s political activism.`\
 https://www.nytimes.com/2026/05/03/briefing/bruce-springsteen-donald-trump.html
-
-**Ronald Smothers, Times Reporter Who Covered Protest and Politics, Dies at 79**\
-`In a career that included 35 years at The New York Times, he chronicled the Rev. Jesse Jackson’s 1984 presidential run and the bombing at the 1996 Olympics in Atlanta.`\
-https://www.nytimes.com/2026/05/03/us/ronald-smothers-dead.html
-
-**Why the A.I. Job Apocalypse (Probably) Won’t Happen**\
-`The feeling of efficiency should be mistrusted.`\
-https://www.nytimes.com/2026/05/03/opinion/ai-jobs-unemployment-silicon-valley.html
 
