@@ -1,3 +1,11 @@
+**How Mamdani Would Change Grand Army Plaza for Walkers, Bikers and Drivers**\
+`Mayor Zohran Mamdani's plan to connect the plaza to Prospect Park would expand pedestrian spaces, add bike lanes and reroute cars to improve traffic flow in the area.`\
+https://www.nytimes.com/interactive/2026/05/02/nyregion/grand-army-plaza-nyc-redesign-mamdani.html
+
+**Corrections: May 3, 2026**\
+`Corrections that appeared in print on Sunday, May 3, 2026.`\
+https://www.nytimes.com/2026/05/02/pageoneplus/corrections-may-3-2026.html
+
 **Trump Says He Is Reviewing Iran’s Latest Offer but Doubts It Is Acceptable**\
 `The comments came one day after Mr. Trump flatly rejected the proposal. He later clarified he was only briefed on the “concept of the deal.”`\
 https://www.nytimes.com/2026/05/02/us/politics/trump-says-he-is-reviewing-irans-latest-offer-but-doubts-it-is-acceptable.html

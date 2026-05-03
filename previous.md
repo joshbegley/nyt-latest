@@ -1,3 +1,11 @@
+**How Mamdani Would Change Grand Army Plaza for Walkers, Bikers and Drivers**\
+`Mayor Zohran Mamdani's plan to connect the plaza to Prospect Park would expand pedestrian spaces, add bike lanes and reroute cars to improve traffic flow in the area.`\
+https://www.nytimes.com/interactive/2026/05/02/nyregion/grand-army-plaza-nyc-redesign-mamdani.html
+
+**Corrections: May 3, 2026**\
+`Corrections that appeared in print on Sunday, May 3, 2026.`\
+https://www.nytimes.com/2026/05/02/pageoneplus/corrections-may-3-2026.html
+
 **Trump Says He Is Reviewing Iran’s Latest Offer but Doubts It Is Acceptable**\
 `The comments came one day after Mr. Trump flatly rejected the proposal. He later clarified he was only briefed on the “concept of the deal.”`\
 https://www.nytimes.com/2026/05/02/us/politics/trump-says-he-is-reviewing-irans-latest-offer-but-doubts-it-is-acceptable.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/es/2026/05/02/espanol/america-latina/gobernador-sinaloa-
 **En Sinaloa, la acusación contra sus funcionarios no fue sorpresa**\
 `La imputación de Estados Unidos a un gobernador mexicano confirma lo que muchos sonorenses sospechaban hace tiempo: la línea entre el crimen organizado y las altas esferas del gobierno se ha difuminado.`\
 https://www.nytimes.com/es/2026/05/02/espanol/america-latina/sinaloa-imputacion-gobernador.html
-
-**U.S. to Pull 5,000 Troops From Germany. But Plenty More Will Remain.**\
-`The U.S. military has tens of thousands of personnel in Germany, more than in any other foreign country but Japan. Their significance extends well beyond Europe.`\
-https://www.nytimes.com/2026/05/02/world/europe/us-troops-germany-trump.html
-
-**A List of Everyone Who Could Be in Trump’s ‘Garden of Heroes’**\
-`President Trump plans to build a park along the Potomac River featuring life-size statues of 250 Americans.`\
-https://www.nytimes.com/2026/05/02/us/politics/trump-garden-of-heroes-national-statues-list.html
 
