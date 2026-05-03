@@ -1,3 +1,7 @@
+**A Love Letter to a Beautiful, Dying Thing**\
+`On May Day, we reflect on the sanctity of flowers.`\
+https://www.nytimes.com/2026/05/03/briefing/a-love-letter-to-a-beautiful-dying-thing.html
+
 **El rejuvenecimiento celular tiene el potencial de revertir el envejecimiento**\
 `Una nueva terapia puede curar cientos de enfermedades e incluso revertir el envejecimiento.`\
 https://www.nytimes.com/es/2026/05/03/espanol/ciencia-y-tecnologia/terapia-rejuvenecimiento-celular-envejecimiento.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/02/us/politics/trump-says-he-is-reviewing-irans-
 **‘A Huge Mess’: Delayed Louisiana Primaries Stoke Confusion at Ballot Box**\
 `On the first day of early voting, some glimpses of voter bewilderment came into focus, part of a dizzying scramble playing out days after a major Supreme Court ruling.`\
 https://www.nytimes.com/2026/05/02/us/politics/louisiana-voting-confusion-court.html
-
-**What Are the Odds?**\
-`Mark Diehl gambles on a return to the Sunday puzzle after a long absence.`\
-https://www.nytimes.com/2026/05/02/crosswords/daily-puzzle-2026-05-03.html
 

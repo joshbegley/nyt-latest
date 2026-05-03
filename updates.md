@@ -1,3 +1,7 @@
+**A Love Letter to a Beautiful, Dying Thing**\
+`On May Day, we reflect on the sanctity of flowers.`\
+https://www.nytimes.com/2026/05/03/briefing/a-love-letter-to-a-beautiful-dying-thing.html
+
 **El rejuvenecimiento celular tiene el potencial de revertir el envejecimiento**\
 `Una nueva terapia puede curar cientos de enfermedades e incluso revertir el envejecimiento.`\
 https://www.nytimes.com/es/2026/05/03/espanol/ciencia-y-tecnologia/terapia-rejuvenecimiento-celular-envejecimiento.html
