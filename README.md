@@ -1,3 +1,7 @@
+**Blue and Tentacled, a Sea Creature Invades California Beaches**\
+`The brightly colored jellylike marine life, called “Velella velella,” show up every few years when strong winds blow in the right direction, scientists said.`\
+https://www.nytimes.com/2026/05/03/us/by-the-wind-sailors-invade-california-beaches.html
+
 **Justice Dept. Prosecutor Says Inquiry Into Fed Chair Could Be Resurrected**\
 `Jeanine Pirro, the U.S. attorney in Washington, dropped an inquiry into Jerome Powell last month after a federal judge blocked her grand jury subpoenas.`\
 https://www.nytimes.com/2026/05/03/us/politics/justice-department-fed-chair-powell-inquiry-pirro.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/03/podcasts/the-daily/the-30-greatest-living-ame
 **Strict Uniforms. Ancient Philosophy. Can a Public School Cure Our Toxic Politics?**\
 `This school gave me hope for our democracy.`\
 https://www.nytimes.com/2026/05/03/opinion/public-schools-politics-democracy-minnesota.html
-
-**Wordle Review No. 1,780**\
-`Scroll down for hints and conversation about the puzzle for Monday, May 4, 2026.`\
-https://www.nytimes.com/2026/05/03/crosswords/wordle-review-1780.html
 
