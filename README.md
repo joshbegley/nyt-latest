@@ -1,3 +1,31 @@
+**Quote of the Day: Jordanians Struggle as Wars in the Mideast Slow Tourism to a Trickle**\
+`Quotation of the Day for Sunday, May 3, 2026.`\
+https://www.nytimes.com/2026/05/03/pageoneplus/quote-of-the-day-jordanians-struggle-as-wars-in-the-mideast-slow-tourism-to-a-trickle.html
+
+**Norway’s Northern Lights Nightmare**\
+`This Arctic region has seen a boom in tourism, but as tourists chase the northern lights, scammers chase their money.`\
+https://www.nytimes.com/2026/05/03/world/europe/norway-northern-lights-tromso.html
+
+**How A.I. Is Transforming China’s Entertainment Industry**\
+`A.I.-generated microdramas have taken off. Celebrities have threatened legal action against the use of their likeness, while actors say jobs have dried up.`\
+https://www.nytimes.com/2026/05/03/world/asia/china-microdrama-ai-backlash.html
+
+**17 Years After ‘The Help,’ Kathryn Stockett Returns to Mississippi**\
+`It was a blockbuster hit, yet she says she was “fired” by her publisher. After a spell in Bali, she’s back on home turf with “The Calamity Club.”`\
+https://www.nytimes.com/2026/05/03/books/review/kathryn-stockett-interview-calamity-club.html
+
+**An Insurgency Threatens U.S. Mining Ambitions in Pakistan**\
+`Attacks by the Baloch Liberation Army could derail Pakistan’s plans for a billion-dollar mining deal with the Trump administration.`\
+https://www.nytimes.com/2026/05/03/world/asia/pakistan-balochistan-insurgency-reko-diq.html
+
+**Hijacked, Bombed, Derailed, a Pakistani Train Keeps Running**\
+`We witnessed crossfire while waiting for the Jaffer Express, a vital lifeline through Balochistan. For many, it’s the only way home.`\
+https://www.nytimes.com/2026/05/03/world/asia/pakistan-jaffer-express-balochistan.html
+
+**A.I. Shakes Up China’s Entertainment Landscape**\
+`New A.I. tools are changing China’s entertainment industry and transforming one of its most popular genres: the microdrama.`\
+https://www.nytimes.com/video/world/asia/100000010844213/china-ai-entertainment-microdrama.html
+
 **Oil Tanker Hijacking Stokes New Fear in Gulf Region**\
 `The attack’s location and timing fueled concerns about potential collaboration between Somalia’s pirates and Yemen’s Houthi rebels amid the Iran war.`\
 https://www.nytimes.com/2026/05/02/world/middleeast/hijacking-tanker-houthis-somalia-pirates.html
@@ -49,32 +77,4 @@ https://www.nytimes.com/2026/05/02/opinion/abortion-telehealth.html
 **Spirit Airlines Shuts Down**\
 `After two stints in bankruptcy, Spirit Airlines — the low-cost carrier that reshaped American aviation but lost billions in recent years — canceled all flights and said it was “winding down all operations” on Saturday.`\
 https://www.nytimes.com/video/us/100000010876860/spirit-airlines-shuts-down.html
-
-**It’s Only 5,000 Troops, but America Will Come to Regret Its Rash Withdrawal From Germany**\
-`This is more than just another bilateral spat.`\
-https://www.nytimes.com/2026/05/02/opinion/us-troops-germany-europe-trump.html
-
-**The Head-Turning Hats of the Kentucky Derby**\
-`At the 152nd annual horse race at Churchill Downs, attendees trotted out some eye-catching ensembles.`\
-https://www.nytimes.com/2026/05/02/style/kentucky-derby-2026-hats.html
-
-**Abortion Providers Forced to Adapt After Court Blocks Pill Access by Mail**\
-`The Fifth Circuit court’s ruling, which is being appealed, reinstates a requirement that patients visit a health care provider in person to obtain mifepristone, upending abortion access in the United States.`\
-https://www.nytimes.com/2026/05/02/us/abortion-pill-mifepristone-5th-circuit-court-ruling.html
-
-**Nicole Hollander, Acerbic Feminist Cartoonist, Dies at 86**\
-`For more than 30 years, she wrote and illustrated “Sylvia,” a comic strip about a tart-tongued, witty woman unafraid of expressing her many opinions.`\
-https://www.nytimes.com/2026/05/02/arts/design/nicole-hollander-dead.html
-
-**New Video Analysis Suggests Suspect in Correspondents’ Dinner Attack Fired First**\
-`A Times analysis of footage released by the F.B.I. on Thursday night appears to show the assailant shot at a Secret Service officer, who then returned fire.`\
-https://www.nytimes.com/2026/05/02/us/politics/white-house-correspondents-dinner-shooting-suspect-video.html
-
-**Supreme Court Asked to Restore Access to Abortion Pill by Mail**\
-`A federal appeals court temporarily halted a Food and Drug Administration regulation that has greatly expanded access to the abortion pill mifepristone.`\
-https://www.nytimes.com/2026/05/02/us/politics/supreme-court-mail-abortion-pill.html
-
-**Steve Clark, Olympic Swimmer Who Confronted Depression, Dies at 82**\
-`A three-time gold medalist in the 1960s, he was a champion when athletes were expected to be stoic and vulnerability was viewed as a sign of mental weakness.`\
-https://www.nytimes.com/2026/05/02/us/steve-clark-dead.html
 
