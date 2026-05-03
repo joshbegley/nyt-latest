@@ -1,3 +1,7 @@
+**Vogue Alumni Stage a Reunion for ‘The Devil Wears Prada 2’**\
+`A gaggle of former and current Vogue employees convened for a Saturday night screening of “The Devil Wears Prada 2.” The dress code for the evening? Interview chic.`\
+https://www.nytimes.com/2026/05/03/style/vogue-devil-wears-prada-2-movie.html
+
 **Doctors From Countries Under Travel Ban Now Allowed to Stay in U.S.**\
 `In a reversal, the Trump administration has exempted foreign physicians from a visa application freeze that was pushing many out of jobs in underserved areas.`\
 https://www.nytimes.com/2026/05/03/us/trump-travel-ban-doctors-us-immigration.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/03/opinion/old-age-planning-parents-family.html
 **Strands Sidekick No. 792**\
 `Scroll down for hints and conversation about the puzzle for Monday, May 4, 2026.`\
 https://www.nytimes.com/2026/05/03/crosswords/strands-sidekick-792.html
-
-**Modi’s Hindu Right Targets Gains in India’s Elections: What to Know**\
-`Vote counting starts on Monday after over 154 million people participated in elections for state legislatures last month. The contests can tilt the balance of power for the whole country.`\
-https://www.nytimes.com/2026/05/03/world/asia/india-elections-modi-bjp-what-to-know.html
 
