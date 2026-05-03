@@ -1,3 +1,7 @@
+**Oil Tanker Hijacking Stokes New Fear in Gulf Region**\
+`The attack’s location and timing fueled concerns about potential collaboration between Somalia’s pirates and Yemen’s Houthi rebels amid the Iran war.`\
+https://www.nytimes.com/2026/05/02/world/middleeast/hijacking-tanker-houthis-somalia-pirates.html
+
 **Man Shot by ICE in California Indicted on Assault Charges**\
 `Prosecutors have accused the man of hitting federal agents with his vehicle as they tried to arrest him.`\
 https://www.nytimes.com/2026/05/02/us/ice-shooting-california-assault-charges.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/02/us/politics/supreme-court-mail-abortion-pill.
 **Steve Clark, Olympic Swimmer Who Confronted Depression, Dies at 82**\
 `A three-time gold medalist in the 1960s, he was a champion when athletes were expected to be stoic and vulnerability was viewed as a sign of mental weakness.`\
 https://www.nytimes.com/2026/05/02/us/steve-clark-dead.html
-
-**Gobernador de Sinaloa acusado por EE. UU. pide licencia para defenderse**\
-`Fiscales estadounidenses acusaron a Rubén Rocha Moya de proteger al poderoso Cártel de Sinaloa a cambio de sobornos y apoyo político, lo que desató un escándalo nacional.`\
-https://www.nytimes.com/es/2026/05/02/espanol/america-latina/gobernador-sinaloa-acusacion-licencia.html
 

@@ -1,3 +1,7 @@
+**Oil Tanker Hijacking Stokes New Fear in Gulf Region**\
+`The attack’s location and timing fueled concerns about potential collaboration between Somalia’s pirates and Yemen’s Houthi rebels amid the Iran war.`\
+https://www.nytimes.com/2026/05/02/world/middleeast/hijacking-tanker-houthis-somalia-pirates.html
+
 **Man Shot by ICE in California Indicted on Assault Charges**\
 `Prosecutors have accused the man of hitting federal agents with his vehicle as they tried to arrest him.`\
 https://www.nytimes.com/2026/05/02/us/ice-shooting-california-assault-charges.html
