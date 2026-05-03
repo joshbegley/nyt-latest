@@ -1,3 +1,7 @@
+**3 Dead in Hantavirus Infections Aboard Cruise Ship, W.H.O. Says**\
+`One case of the infection has been confirmed in a laboratory, and there are five additional suspected cases, the organization said on Sunday.`\
+https://www.nytimes.com/2026/05/03/well/cruise-ship-virus-fatal-outbreak.html
+
 **E.E.O.C. Investigating Discrimination Claim at The New York Times**\
 `The Equal Employment Opportunity Commission recently referred a reverse-discrimination complaint by an employee to the agency’s legal unit for review.`\
 https://www.nytimes.com/2026/05/03/business/economy/eeoc-discrimination-claim-new-york-times.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/03/us/ronald-smothers-dead.html
 **Why the A.I. Job Apocalypse (Probably) Won’t Happen**\
 `The feeling of efficiency should be mistrusted.`\
 https://www.nytimes.com/2026/05/03/opinion/ai-jobs-unemployment-silicon-valley.html
-
-**Lauren Sánchez Bezos and the Fashion End Times of ‘The Devil Wears Prada 2’**\
-`The real-life Met Gala vs. the one onscreen.`\
-https://www.nytimes.com/2026/05/03/opinion/devil-wears-prada-lauren-sanchez-bezos-met-gala.html
 
