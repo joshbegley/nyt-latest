@@ -1,3 +1,7 @@
+**Jack Thornell, Pulitzer Winning A.P. Photographer, Dies at 86**\
+`He captured one of the most wrenching moments of the civil rights struggle: the agony of James Meredith after he was shot on a Mississippi highway.`\
+https://www.nytimes.com/2026/05/03/obituaries/jack-thornell-dead.html
+
 **Blue and Tentacled, a Sea Creature Invades California Beaches**\
 `The brightly colored jellylike marine life, called “Velella velella,” show up every few years when strong winds blow in the right direction, scientists said.`\
 https://www.nytimes.com/2026/05/03/us/by-the-wind-sailors-invade-california-beaches.html

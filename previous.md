@@ -1,3 +1,7 @@
+**Jack Thornell, Pulitzer Winning A.P. Photographer, Dies at 86**\
+`He captured one of the most wrenching moments of the civil rights struggle: the agony of James Meredith after he was shot on a Mississippi highway.`\
+https://www.nytimes.com/2026/05/03/obituaries/jack-thornell-dead.html
+
 **Blue and Tentacled, a Sea Creature Invades California Beaches**\
 `The brightly colored jellylike marine life, called “Velella velella,” show up every few years when strong winds blow in the right direction, scientists said.`\
 https://www.nytimes.com/2026/05/03/us/by-the-wind-sailors-invade-california-beaches.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/03/opinion/devil-wears-prada-lauren-sanchez-bezo
 **The 30 Greatest Living American Songwriters**\
 `Taylor Swift, Jay-Z and other music legends in their own words.`\
 https://www.nytimes.com/2026/05/03/podcasts/the-daily/the-30-greatest-living-american-songwriters.html
-
-**Strict Uniforms. Ancient Philosophy. Can a Public School Cure Our Toxic Politics?**\
-`This school gave me hope for our democracy.`\
-https://www.nytimes.com/2026/05/03/opinion/public-schools-politics-democracy-minnesota.html
 
