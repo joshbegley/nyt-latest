@@ -1,3 +1,7 @@
+**America Is Officially an Empire in Decline**\
+`President Trump has overextended the empire dangerously.`\
+https://www.nytimes.com/2026/05/03/opinion/iran-us-empire.html
+
 **Cómo controlar la adicción al teléfono**\
 `Contar los minutos es una mala forma de frenar los hábitos telefónicos. He aquí los verdaderos antídotos, según los expertos.`\
 https://www.nytimes.com/es/2026/05/03/espanol/negocios/adiccion-telefono-celular.html
