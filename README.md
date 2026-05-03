@@ -1,3 +1,7 @@
+**El rejuvenecimiento celular tiene el potencial de revertir el envejecimiento**\
+`Una nueva terapia puede curar cientos de enfermedades e incluso revertir el envejecimiento.`\
+https://www.nytimes.com/es/2026/05/03/espanol/ciencia-y-tecnologia/terapia-rejuvenecimiento-celular-envejecimiento.html
+
 **Cómo controlar la adicción al teléfono**\
 `Contar los minutos es una mala forma de frenar los hábitos telefónicos. He aquí los verdaderos antídotos, según los expertos.`\
 https://www.nytimes.com/es/2026/05/03/espanol/negocios/adiccion-telefono-celular.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/es/2026/05/03/espanol/negocios/adiccion-telefono-celular
 `Algunos científicos compartieron transcripciones con el Times en las que los chatbots describían cómo ensamblar patógenos mortales y liberarlos en espacios públicos.`\
 https://www.nytimes.com/es/2026/05/03/espanol/ia-armas-biologicas.html
 
-**Trump Shouldn’t Expect Too Much From His China Trip**\
+**Trump Is Coming to a China That Has Moved On**\
 `China no longer looks to an erratic America as a model to emulate, but as a distraction to be managed.`\
 https://www.nytimes.com/2026/05/03/opinion/china-us-trump-summit.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/02/us/politics/louisiana-voting-confusion-court.
 **What Are the Odds?**\
 `Mark Diehl gambles on a return to the Sunday puzzle after a long absence.`\
 https://www.nytimes.com/2026/05/02/crosswords/daily-puzzle-2026-05-03.html
-
-**Timmy the Stranded Whale Released Into the North Sea**\
-`After weeks of being stuck in shallow waters near Germany, Timmy, a humpback whale, was released into the North Sea on Saturday.`\
-https://www.nytimes.com/video/world/europe/100000010876863/timmy-whale-germany-released.html
 
