@@ -1,3 +1,19 @@
+**Cómo controlar la adicción al teléfono**\
+`Contar los minutos es una mala forma de frenar los hábitos telefónicos. He aquí los verdaderos antídotos, según los expertos.`\
+https://www.nytimes.com/es/2026/05/03/espanol/negocios/adiccion-telefono-celular.html
+
+**Una IA facilitó a científicos instructivos para hacer armas biológicas**\
+`Algunos científicos compartieron transcripciones con el Times en las que los chatbots describían cómo ensamblar patógenos mortales y liberarlos en espacios públicos.`\
+https://www.nytimes.com/es/2026/05/03/espanol/ia-armas-biologicas.html
+
+**Trump Shouldn’t Expect Too Much From His China Trip**\
+`China no longer looks to an erratic America as a model to emulate, but as a distraction to be managed.`\
+https://www.nytimes.com/2026/05/03/opinion/china-us-trump-summit.html
+
+**With Iran, the U.S. Stands to Lose Its Reputation, Its Friends or Its Soul**\
+`President Trump has overextended the empire dangerously.`\
+https://www.nytimes.com/2026/05/03/opinion/iran-us-empire.html
+
 **Los futbolistas profesionales que aún viven con sus padres**\
 `Julian Hall y Adri Mehmeti son dos adolescentes de Nueva York que están viviendo un sueño: aún no tienen edad para beber, pero se espera que le hagan frente a Messi.`\
 https://www.nytimes.com/es/2026/05/03/espanol/deportes/julian-zakrzewski-hall-adri-mehmeti-red-bulls-futbol.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/05/02/crosswords/daily-puzzle-2026-05-03.html
 **Timmy the Stranded Whale Released Into the North Sea**\
 `After weeks of being stuck in shallow waters near Germany, Timmy, a humpback whale, was released into the North Sea on Saturday.`\
 https://www.nytimes.com/video/world/europe/100000010876863/timmy-whale-germany-released.html
-
-**Car With Explosive Devices Crashes Into Athletic Club in Portland, Ore.**\
-`A driver rammed his explosives-filled car into an athletic club Saturday. Hours later, devices were still being dismantled, with a bomb technician describing it “as the most complex scene that I’ve ever dealt with.”`\
-https://www.nytimes.com/2026/05/02/us/portland-athletic-club-car-crash.html
-
-**Spirit Passengers Are Left Stranded After Airline Shuts Down**\
-`The budget carrier abruptly canceled flights early on Saturday, leaving passengers to rush to make other plans. “Even if they go back into business, never again,” one traveler said.`\
-https://www.nytimes.com/2026/05/02/business/spirit-airlines-passengers-stranded.html
-
-**Planning a World Cup Watch Party at a Bar? The ‘FIFA Police’ Are Lurking**\
-`Some businesses advertising watch parties in Canada’s two host cities are wary of running afoul of FIFA’s copyright, which protects advertising “World Cup” events.`\
-https://www.nytimes.com/2026/05/02/world/canada/fifa-world-cup-copyright.html
-
-**This Could Be the Biggest Blow to Abortion Rights Since Roe Fell**\
-`A ruling by a federal appeals court has blocked access to abortion pills via telemedicine.`\
-https://www.nytimes.com/2026/05/02/opinion/abortion-telehealth.html
 
