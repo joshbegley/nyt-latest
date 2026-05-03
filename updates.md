@@ -1,3 +1,7 @@
+**‘Devil Wears Prada’ Sequel Leads Box Office With $77 Million**\
+`It was the biggest opening weekend for a traditional comedy in 11 years. One analyst called the debut “sensational.”`\
+https://www.nytimes.com/2026/05/03/business/devil-wears-prada-2-box-office.html
+
 **Spirit Airlines’ Demise Could Help Other Airlines**\
 `Even in its reduced state, the company played an important role in forcing other airlines to keep fares low, some experts said.`\
 https://www.nytimes.com/2026/05/03/business/spirit-airlines-shutdown-fares-industry-impact.html
