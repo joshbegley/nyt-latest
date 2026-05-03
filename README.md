@@ -1,3 +1,11 @@
+**United Plane Strikes Light Pole While Landing**\
+`A United Airlines flight hit a light pole as it landed at Newark Liberty International Airport on Sunday, the Federal Aviation Administration said in a statement.`\
+https://www.nytimes.com/video/embedded/us/100000010877899/united-plane-strikes-light-pole-while-landing.html
+
+**China Seeks an Advantage With Both Trump and Iran as War Evolves**\
+`With President Trump’s visit to Beijing looming, China is pushing Iran to negotiate even as its companies export material that could be used by Iran’s military.`\
+https://www.nytimes.com/2026/05/03/us/politics/trump-china-iran-war.html
+
 **What Is Hantavirus, Which Is Linked to the Deaths of 3 People Aboard a Cruise Ship?**\
 `Three people aboard a cruise ship sailing the Atlantic Ocean have died from what health officials suspect were hantavirus infections.`\
 https://www.nytimes.com/2026/05/03/well/what-is-hantavirus-cruise-ship.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/03/us/politics/blanche-comey-indictment-seashell
 **OPEC Plus, in Symbolic Gesture, to Increase Oil Production**\
 `The announcement came days after the United Arab Emirates withdrew from the group. The higher output will have little effect on global supplies.`\
 https://www.nytimes.com/2026/05/03/business/opec-plus-oil-production-united-arab-emirates.html
-
-**So Long Jeeves and Ask.com, Relics of Yesterday’s Internet**\
-`The pioneering search engine shut down on May 1, after nearly 30 years in operation.`\
-https://www.nytimes.com/2026/05/03/business/ask-jeeves-shuts-down-internet-search-engine.html
-
-**2 U.S. Service Members Are Missing in Morocco, Africa Command Says**\
-`The two Army soldiers were reported missing during a joint military exercise on Saturday near Cap Draa Training Area, a coastal area in southwestern Morocco.`\
-https://www.nytimes.com/2026/05/03/us/politics/us-army-missing-service-members-morocco-african-lion.html
 
