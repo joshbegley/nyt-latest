@@ -1,3 +1,7 @@
+**E.E.O.C. Investigating Discrimination Claim at The New York Times**\
+`The Equal Employment Opportunity Commission recently referred a reverse-discrimination complaint by an employee to the agency’s legal unit for review.`\
+https://www.nytimes.com/2026/05/03/business/economy/eeoc-discrimination-claim-new-york-times.html
+
 **Jack Thornell, Pulitzer Winning A.P. Photographer, Dies at 86**\
 `He captured one of the most wrenching moments of the civil rights struggle: the agony of James Meredith after he was shot on a Mississippi highway.`\
 https://www.nytimes.com/2026/05/03/obituaries/jack-thornell-dead.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/03/opinion/ai-jobs-unemployment-silicon-valley.h
 **Lauren Sánchez Bezos and the Fashion End Times of ‘The Devil Wears Prada 2’**\
 `The real-life Met Gala vs. the one onscreen.`\
 https://www.nytimes.com/2026/05/03/opinion/devil-wears-prada-lauren-sanchez-bezos-met-gala.html
-
-**The 30 Greatest Living American Songwriters**\
-`Taylor Swift, Jay-Z and other music legends in their own words.`\
-https://www.nytimes.com/2026/05/03/podcasts/the-daily/the-30-greatest-living-american-songwriters.html
 
