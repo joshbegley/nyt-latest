@@ -1,3 +1,7 @@
+**So Long Jeeves and Ask.com, Relics of Yesterday’s Internet**\
+`The pioneering search engine shut down on May 1, after nearly 30 years in operation.`\
+https://www.nytimes.com/2026/05/03/business/ask-jeeves-shuts-down-internet-search-engine.html
+
 **‘Wartime Relic’ Explodes Under Campfire in Austria, Injuring Five Children**\
 `The children, aged 10 to 14, were taken to a hospital for treatment after the explosion in Upper Austria, the police said.`\
 https://www.nytimes.com/2026/05/03/world/europe/austria-explosion-campfire.html

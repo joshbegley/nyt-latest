@@ -1,3 +1,7 @@
+**So Long Jeeves and Ask.com, Relics of Yesterday’s Internet**\
+`The pioneering search engine shut down on May 1, after nearly 30 years in operation.`\
+https://www.nytimes.com/2026/05/03/business/ask-jeeves-shuts-down-internet-search-engine.html
+
 **2 U.S. Service Members Are Missing in Morocco, Africa Command Says**\
 `The two Army soldiers were reported missing during a joint military exercise on Saturday near Cap Draa Training Area, a coastal area in southwestern Morocco.`\
 https://www.nytimes.com/2026/05/03/us/politics/us-army-missing-service-members-morocco-african-lion.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/03/us/politics/trump-unpopular-war-iran.html
 **Fear and Vigilance Are Now Constant Companions for Many American Jews**\
 `Each new attack, like the London stabbings last week, brings a heightened sense of caution to an already wary population.`\
 https://www.nytimes.com/2026/05/03/us/jewish-antisemitism-violence-attacks.html
-
-**Israel Said It’s Applying the Gaza Model in Lebanon. This Is What the Devastation Looks Like.**\
-`Satellite images, photos and videos show the scope of widespread demolitions in southern Lebanon.`\
-https://www.nytimes.com/interactive/2026/05/03/world/middleeast/israel-lebanon-hezbollah-gaza-destruction.html
 
