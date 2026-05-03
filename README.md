@@ -1,6 +1,10 @@
+**Posting the Ten Commandments in Classrooms**\
+`Readers discuss a Texas law requiring the display of the Ten Commandments in classrooms. Also: A job seeker’s tale; long movies.`\
+https://www.nytimes.com/2026/05/03/opinion/ten-commandments-texas-schools.html
+
 **‘S.N.L.’ Recruits Aziz Ansari to Play F.B.I. Director Kash Patel**\
 `Ansari, the “Parks and Recreation” alum, made his first appearance on “Saturday Night Live” in nearly a decade, portraying Patel in an episode hosted by Olivia Rodrigo.`\
-https://www.nytimes.com/2026/05/03/arts/television/aziz-ansari-plays-kash-patel-on-snl.html
+https://www.nytimes.com/2026/05/03/arts/television/aziz-ansari-kash-patel-snl-olivia-rodrigo.html
 
 **Bruce vs. Donald**\
 `We look at Bruce Springsteen’s political activism.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/03/us/politics/supreme-court-voting-rights-act.h
 **One Issue Uniting Democrats and Republicans? Worries About A.I.**\
 `The growing unease over artificial intelligence is something elements of the left and the right can agree on in a polarized age.`\
 https://www.nytimes.com/2026/05/03/us/politics/democrats-republicans-ai.html
-
-**A California Dream? Some Democrats Fear Harris Picked the Wrong Race.**\
-`Some wish Kamala Harris had decided to run for governor in California, where Democrats are struggling to break through, rather than weigh another White House run.`\
-https://www.nytimes.com/2026/05/03/us/politics/kamala-harris-california-governor-democrats.html
 
