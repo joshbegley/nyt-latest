@@ -1,3 +1,7 @@
+**Spirit Airlines’ Demise Could Help Other Airlines**\
+`Even in its reduced state, the company played an important role in forcing other airlines to keep fares low, some experts said.`\
+https://www.nytimes.com/2026/05/03/business/spirit-airlines-shutdown-fares-industry-impact.html
+
 **My Parents Are in Their Mid-80s. Why Won’t They Plan for the End?**\
 `A few small changes to their home and habits will make it much more likely that they can age in their own home.`\
 https://www.nytimes.com/2026/05/03/opinion/old-age-planning-parents-family.html
