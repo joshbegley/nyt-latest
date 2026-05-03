@@ -1,3 +1,7 @@
+**‘S.N.L.’ Recruits Aziz Ansari to Play F.B.I. Director Kash Patel**\
+`Ansari, the “Parks and Recreation” alum, made his first appearance on “Saturday Night Live” in nearly a decade, portraying Patel in an episode hosted by Olivia Rodrigo.`\
+https://www.nytimes.com/2026/05/03/arts/television/aziz-ansari-plays-kash-patel-on-snl.html
+
 **Bruce vs. Donald**\
 `We look at Bruce Springsteen’s political activism.`\
 https://www.nytimes.com/2026/05/03/briefing/bruce-springsteen-donald-trump.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/03/us/politics/democrats-republicans-ai.html
 **A California Dream? Some Democrats Fear Harris Picked the Wrong Race.**\
 `Some wish Kamala Harris had decided to run for governor in California, where Democrats are struggling to break through, rather than weigh another White House run.`\
 https://www.nytimes.com/2026/05/03/us/politics/kamala-harris-california-governor-democrats.html
-
-**The Last Days of Butter Ridge**\
-`The Watsons were dairy farmers for generations, the rhythms of their lives defined by their cows. Until this spring.`\
-https://www.nytimes.com/2026/05/03/us/dairy-farm-butter-ridge-pennsylvania.html
 
