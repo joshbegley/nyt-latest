@@ -1,3 +1,7 @@
+**Trump Says He Is Reviewing Iran’s Latest Offer but Doubts It Is Acceptable**\
+`The comments came one day after Mr. Trump flatly rejected the proposal. He later clarified he was only briefed on the “concept of the deal.”`\
+https://www.nytimes.com/2026/05/02/us/politics/trump-says-he-is-reviewing-irans-latest-offer-but-doubts-it-is-acceptable.html
+
 **Car With Explosive Devices Crashes Into Athletic Club in Portland, Ore.**\
 `A driver rammed his explosives-filled car into an athletic club Saturday. Hours later, devices were still being dismantled, with a bomb technician describing it “as the most complex scene that I’ve ever dealt with.”`\
 https://www.nytimes.com/2026/05/02/us/portland-athletic-club-car-crash.html

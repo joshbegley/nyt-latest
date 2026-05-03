@@ -1,3 +1,7 @@
+**Trump Says He Is Reviewing Iran’s Latest Offer but Doubts It Is Acceptable**\
+`The comments came one day after Mr. Trump flatly rejected the proposal. He later clarified he was only briefed on the “concept of the deal.”`\
+https://www.nytimes.com/2026/05/02/us/politics/trump-says-he-is-reviewing-irans-latest-offer-but-doubts-it-is-acceptable.html
+
 **‘A Huge Mess’: Delayed Louisiana Primaries Stoke Confusion at Ballot Box**\
 `On the first day of early voting, some glimpses of voter bewilderment came into focus, part of a dizzying scramble playing out days after a major Supreme Court ruling.`\
 https://www.nytimes.com/2026/05/02/us/politics/louisiana-voting-confusion-court.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/02/world/europe/us-troops-germany-trump.html
 **A List of Everyone Who Could Be in Trump’s ‘Garden of Heroes’**\
 `President Trump plans to build a park along the Potomac River featuring life-size statues of 250 Americans.`\
 https://www.nytimes.com/2026/05/02/us/politics/trump-garden-of-heroes-national-statues-list.html
-
-**Huevos Enfrijolados Are Here for You**\
-`Rick Martínez’s easy recipe turns eggs, canned black beans and chipotles into a satisfying dinner (or breakfast or brunch or lunch).`\
-https://www.nytimes.com/2026/05/02/dining/huevos-enfrijolados-are-here-for-you.html
 
