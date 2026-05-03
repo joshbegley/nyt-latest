@@ -1,3 +1,7 @@
+**‘Wartime Relic’ Explodes Under Campfire in Austria, Injuring Five Children**\
+`The children, aged between 10 and 14, were transported to a hospital for treatment after the explosion in northern Upper Austria, the police said.`\
+https://www.nytimes.com/2026/05/03/world/europe/03xp-austria-explosion-campfire.html
+
 **Posting the Ten Commandments in Classrooms**\
 `Readers discuss a Texas law requiring the display of the Ten Commandments in classrooms. Also: A job seeker’s tale; long movies.`\
 https://www.nytimes.com/2026/05/03/opinion/ten-commandments-texas-schools.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/05/03/world/middleeast/israel-lebanon-h
 **Behind Voting Rights Case, a Clash Over the Reality of Racism**\
 `The Supreme Court ruling said there must be proof that a racial group was “intentionally” disadvantaged. The dissent called it “well-nigh impossible.”`\
 https://www.nytimes.com/2026/05/03/us/politics/supreme-court-voting-rights-act.html
-
-**One Issue Uniting Democrats and Republicans? Worries About A.I.**\
-`The growing unease over artificial intelligence is something elements of the left and the right can agree on in a polarized age.`\
-https://www.nytimes.com/2026/05/03/us/politics/democrats-republicans-ai.html
 
