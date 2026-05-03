@@ -1,3 +1,7 @@
+**Man Shot by ICE in California Indicted on Assault Charges**\
+`Prosecutors have accused the man of hitting federal agents with his vehicle as they tried to arrest him.`\
+https://www.nytimes.com/2026/05/02/us/ice-shooting-california-assault-charges.html
+
 **How Mamdani Would Change Grand Army Plaza for Walkers, Bikers and Drivers**\
 `Mayor Zohran Mamdani's plan to connect the plaza to Prospect Park would expand pedestrian spaces, add bike lanes and reroute cars to improve traffic flow in the area.`\
 https://www.nytimes.com/interactive/2026/05/02/nyregion/grand-army-plaza-nyc-redesign-mamdani.html

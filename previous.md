@@ -1,3 +1,7 @@
+**Man Shot by ICE in California Indicted on Assault Charges**\
+`Prosecutors have accused the man of hitting federal agents with his vehicle as they tried to arrest him.`\
+https://www.nytimes.com/2026/05/02/us/ice-shooting-california-assault-charges.html
+
 **How Mamdani Would Change Grand Army Plaza for Walkers, Bikers and Drivers**\
 `Mayor Zohran Mamdani's plan to connect the plaza to Prospect Park would expand pedestrian spaces, add bike lanes and reroute cars to improve traffic flow in the area.`\
 https://www.nytimes.com/interactive/2026/05/02/nyregion/grand-army-plaza-nyc-redesign-mamdani.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/02/us/steve-clark-dead.html
 **Gobernador de Sinaloa acusado por EE. UU. pide licencia para defenderse**\
 `Fiscales estadounidenses acusaron a Rubén Rocha Moya de proteger al poderoso Cártel de Sinaloa a cambio de sobornos y apoyo político, lo que desató un escándalo nacional.`\
 https://www.nytimes.com/es/2026/05/02/espanol/america-latina/gobernador-sinaloa-acusacion-licencia.html
-
-**En Sinaloa, la acusación contra sus funcionarios no fue sorpresa**\
-`La imputación de Estados Unidos a un gobernador mexicano confirma lo que muchos sonorenses sospechaban hace tiempo: la línea entre el crimen organizado y las altas esferas del gobierno se ha difuminado.`\
-https://www.nytimes.com/es/2026/05/02/espanol/america-latina/sinaloa-imputacion-gobernador.html
 
