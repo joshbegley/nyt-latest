@@ -1,3 +1,7 @@
+**Bruce vs. Donald**\
+`We look at Bruce Springsteen’s political activism.`\
+https://www.nytimes.com/2026/05/03/briefing/bruce-springsteen-donald-trump.html
+
 **Ronald Smothers, Times Reporter Who Covered Protest and Politics, Dies at 79**\
 `In a career that included 35 years at The New York Times, he chronicled the Rev. Jesse Jackson’s 1984 presidential run and the bombing at the 1996 Olympics in Atlanta.`\
 https://www.nytimes.com/2026/05/03/us/ronald-smothers-dead.html

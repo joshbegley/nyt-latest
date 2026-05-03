@@ -1,3 +1,7 @@
+**Bruce vs. Donald**\
+`We look at Bruce Springsteen’s political activism.`\
+https://www.nytimes.com/2026/05/03/briefing/bruce-springsteen-donald-trump.html
+
 **Ronald Smothers, Times Reporter Who Covered Protest and Politics, Dies at 79**\
 `In a career that included 35 years at The New York Times, he chronicled the Rev. Jesse Jackson’s 1984 presidential run and the bombing at the 1996 Olympics in Atlanta.`\
 https://www.nytimes.com/2026/05/03/us/ronald-smothers-dead.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/03/us/politics/kamala-harris-california-governor
 **The Last Days of Butter Ridge**\
 `The Watsons were dairy farmers for generations, the rhythms of their lives defined by their cows. Until this spring.`\
 https://www.nytimes.com/2026/05/03/us/dairy-farm-butter-ridge-pennsylvania.html
-
-**Tariffs, Rebates, Chaos: Boutique Businesses Wonder What’s Next**\
-`A Brooklyn general store that sells Taiwanese imports was pummeled by tariffs. A rebate would help, but the confusion still lingers.`\
-https://www.nytimes.com/2026/05/03/nyregion/nyc-tariffs-yun-hai-taiwan-pantry.html
 
