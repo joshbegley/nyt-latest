@@ -1,3 +1,7 @@
+**Iran Threatens Ships Over Trump Plan to Break Iran’s Blockade**\
+`A senior Iranian military official warned that any vessel that tried to cross the Strait of Hormuz without permission would be “at risk.”`\
+https://www.nytimes.com/2026/05/04/world/middleeast/iran-trump-ships-hormuz-strait.html
+
 **John Sterling, the Yankees’ Most Enduring Announcer, Dies at 87**\
 `He called over 5,600 games, more than any other Yankees announcer, and was known for his personalized, slightly wacky home run calls.`\
 https://www.nytimes.com/2026/05/04/sports/john-sterling-dead.html
