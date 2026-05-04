@@ -1,3 +1,7 @@
+**ICE los arrestó. Kacey Musgraves puso a estos mariachis en el escenario**\
+`Los hermanos adolescentes, que se enfrentaban a la deportación tras una detención muy sonada, actuaron el domingo gracias a la invitación de una de las mayores estrellas de la música country.`\
+https://www.nytimes.com/es/2026/05/04/espanol/cultura/ice-hermanos-mariachi-kacey-musgraves.html
+
 **headline test**\
 `summary test`\
 https://www.nytimes.com/video/embedded/arts/100000010879886/headline-test.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/04/theater/broadway-theater-fire-eugene-oneill-b
 **Doris Fisher, Co-Founder of the Gap, Dies at 94**\
 `The company she started in 1969 with her husband, Don, grew from a single store selling jeans and records to a $16 billion brand that remade the apparel industry.`\
 https://www.nytimes.com/2026/05/04/business/doris-fisher-dead.html
-
-**A Show in Rome Sheds New Light on Francesca Woodman’s Haunting Images**\
-`The American photographer died at just 22, and yet the beautiful, unsettling work she created continues to influence art and artists. Why?`\
-https://www.nytimes.com/2026/05/04/arts/design/gagosian-rome-francesca-woodman.html
 
