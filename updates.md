@@ -1,3 +1,7 @@
+**Review: Out, Damned Patriarchy! A Revisionist Ballet ‘Macbeth’**\
+`In Akram Khan’s new full-length work for Danish National Ballet, Lady Macbeth is a pure-intentioned heroine.`\
+https://www.nytimes.com/2026/05/04/arts/dance/review-macbeth-akram-khan-royal-danish-ballet.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/heres-the-latest

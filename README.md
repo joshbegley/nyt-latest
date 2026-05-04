@@ -1,3 +1,7 @@
+**Our Pulitzer Prize-Winning Photographer’s Work From Gaza**\
+`The photographer Saher Alghorra reported on the Gaza conflict while enduring the dire conditions his images portrayed.`\
+https://www.nytimes.com/2026/05/04/world/middleeast/pulitzer-saher-alghorra-breaking-news-photography.html
+
 **Review: Out, Damned Patriarchy! A Revisionist Ballet ‘Macbeth’**\
 `In Akram Khan’s new full-length work for Danish National Ballet, Lady Macbeth is a pure-intentioned heroine.`\
 https://www.nytimes.com/2026/05/04/arts/dance/review-macbeth-akram-khan-royal-danish-ballet.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/04/arts/design/biennale-venice-galleries-interna
 **A Dutch Art Studio Lights Up Venice’s Grand Canal**\
 `Lonneke Gordijn and Ralph Nauta of Studio Drift have brought their kinetic light sculptures outdoors at the Venice Biennale.`\
 https://www.nytimes.com/2026/05/04/arts/design/studio-drift-venice-biennale.html
-
-**Making Art With a ‘Sense of Responsibility’**\
-`The Kenyan British artist Michael Armitage, who is showing his paintings and studies in Venice, reflects on his Kenyan roots and his recent move to Indonesia.`\
-https://www.nytimes.com/2026/05/04/arts/design/michael-armitage-venice-biennale.html
 

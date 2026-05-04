@@ -1,3 +1,7 @@
+**Review: Out, Damned Patriarchy! A Revisionist Ballet ‘Macbeth’**\
+`In Akram Khan’s new full-length work for Danish National Ballet, Lady Macbeth is a pure-intentioned heroine.`\
+https://www.nytimes.com/2026/05/04/arts/dance/review-macbeth-akram-khan-royal-danish-ballet.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/heres-the-latest
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/04/arts/design/studio-drift-venice-biennale.html
 **Making Art With a ‘Sense of Responsibility’**\
 `The Kenyan British artist Michael Armitage, who is showing his paintings and studies in Venice, reflects on his Kenyan roots and his recent move to Indonesia.`\
 https://www.nytimes.com/2026/05/04/arts/design/michael-armitage-venice-biennale.html
-
-**‘I Have No Secrets’: At 90, a Revered Artist Finds Energy in His Art**\
-`The Korean artist Lee Ufan continues to work every day, and has three exhibitions on the horizon, including a display of his pivotal paintings at the Venice Biennale.`\
-https://www.nytimes.com/2026/05/04/arts/design/biennale-venice-lee-ufan-dia-exhibition.html
 
