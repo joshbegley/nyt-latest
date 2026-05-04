@@ -1,3 +1,7 @@
+**Los autos eléctricos ganan terreno frente a la volatilidad del petróleo**\
+`En Costa Rica y otros países, más personas compran vehículos eléctricos para evitar el impacto de los precios del combustible.`\
+https://www.nytimes.com/es/2026/05/04/espanol/negocios/carros-electricos-costa-rica.html
+
 **‘City of Glass’ Is Under Threat From Iran War**\
 `In India, Firozabad has depended on its glassmaking industry for centuries. Fuel prices are starting to shatter businesses already under pressure.`\
 https://www.nytimes.com/2026/05/04/business/india-iran-fuel-glass.html
