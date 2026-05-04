@@ -1,3 +1,11 @@
+**A Musical Fable of Environmental Cataclysm Wins Pulitzer Prize**\
+`Gabriela Lena Frank’s “Picaflor: A Future Myth,” premiered by the Philadelphia Orchestra, has won the prestigious award for music.`\
+https://www.nytimes.com/2026/05/04/arts/music/gabriela-lena-frank-pulitzer-prize-music.html
+
+**‘Who Do You Think Is More Morally Repulsive: Ted Cruz or Nick Fuentes?’**\
+`Tucker Carlson compares Senator Ted Cruz with the white nationalist Nick Fuentes in this clip from “The Interview.”`\
+https://www.nytimes.com/video/podcasts/100000010880457/who-do-you-think-is-more-morally-repulsive-ted-cruz-or-nick-fuentes.html
+
 **What Will the May Primaries Reveal About Trump’s Power Over Republicans?**\
 `A series of Republican contests will test his grip on the party.`\
 https://www.nytimes.com/2026/05/04/us/politics/may-primary-elections-trump-republicans.html
@@ -65,12 +73,4 @@ https://www.nytimes.com/video/podcasts/100000010880047/what-does-tucker-carlson-
 **A ‘Ball Without Billionaires’ Kicks Off the First Monday in May**\
 `Labor unions from around the country staged a different kind of fashion show in downtown Manhattan.`\
 https://www.nytimes.com/2026/05/04/style/ball-without-billionaires-met-gala.html
-
-**3 personas han muerto por posible brote de hantavirus en un crucero, dice la OMS**\
-`Según la organización, un caso de la infección fue confirmado en un laboratorio. Hay otros cinco casos sospechosos, agregó.`\
-https://www.nytimes.com/es/2026/05/04/espanol/ciencia-y-tecnologia/hantavirus-crucero.html
-
-**Tucker Carlson on Trump’s Decision to Attack Iran**\
-`On “The Interview,” Tucker Carlson talks about what he saw, and what he told the president, in the run-up to the attack on Iran.`\
-https://www.nytimes.com/video/podcasts/100000010880077/tucker-carlson-on-trumps-decision-to-attack-iran.html
 
