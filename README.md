@@ -1,3 +1,11 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/04/crosswords/spelling-bee-forum.html
+
+**Map: 6.0-Magnitude Earthquake Shakes the Philippines**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/05/04/world/asia/quake-tracker-philippines.html
+
 **Palabra del día: ‘encroach’**\
 `Esta palabra ha aparecido en 36 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/05/04/espanol/que-significa-encroach.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/03/us/mariachi-brothers-ice-kacey-musgraves-texa
 **‘The Comeback’ Season 3, Episode 7 Recap: Anywhere Else**\
 `Valerie gets answers about the leak. Mark gets a troubling tattoo.`\
 https://www.nytimes.com/2026/05/03/arts/television/the-comeback-recap-season-3-episode-7.html
-
-**10-Minute Challenge: ‘Cityscape’ by Romare Bearden**\
-`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
-https://www.nytimes.com/interactive/2026/05/03/upshot/bearden-cityscape.html
-
-****\
-``\
-https://www.nytimes.com/video/embedded/world/asia/100000010878075/04int-hongkong-fire-family-26009.html
 
