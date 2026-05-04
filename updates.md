@@ -1,3 +1,7 @@
+**Shipping Firms Left Guessing by Confusion in Strait of Hormuz**\
+`The United States vowed to help tankers navigate the perilous conditions that have kept them stranded in the Persian Gulf, but it remained unclear if companies would try to get out.`\
+https://www.nytimes.com/2026/05/04/business/trump-hormuz-shipping-companies.html
+
 **This Professor Won the ‘Bauhaus Bathroom’ Design Competition for the Gropius House**\
 `Announcing the winner of a competition to create a public restroom at the historic Gropius House.`\
 https://www.nytimes.com/2026/05/04/arts/design-gropius-house-contest.html

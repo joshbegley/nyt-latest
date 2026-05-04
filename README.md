@@ -1,3 +1,7 @@
+**Rudy Giuliani Is Hospitalized and in Critical Condition**\
+`Rudy Giuliani, the former mayor of New York City, has been hospitalized in Florida. A spokesman said the 81-year-old is ”in critical but stable condition.”`\
+https://www.nytimes.com/video/us/politics/100000010878444/rudy-giuliani-hospitalized-critical-condition.html
+
 **Shipping Firms Left Guessing by Confusion in Strait of Hormuz**\
 `The United States vowed to help tankers navigate the perilous conditions that have kept them stranded in the Persian Gulf, but it remained unclear if companies would try to get out.`\
 https://www.nytimes.com/2026/05/04/business/trump-hormuz-shipping-companies.html
@@ -38,7 +42,7 @@ https://www.nytimes.com/2026/05/04/world/middleeast/iran-trump-ships-hormuz-stra
 `We dig into reader questions.`\
 https://www.nytimes.com/2026/05/04/briefing/news-questions-answered.html
 
-**Rubio to Visit Rome, Vatican Says, After Trump’s Feud With Pope and Meloni**\
+**Rubio to Visit Rome After Trump’s Feud With the Pope and Meloni**\
 `Secretary of State Marco Rubio’s trip will come after President Trump criticized Pope Leo XIV and then turned on Prime Minister Giorgia Meloni of Italy for defending the pontiff.`\
 https://www.nytimes.com/2026/05/04/world/europe/rubio-rome-trump-pope-italy.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/04/world/hantavirus-cruise-ship-outbreak-hondius
 **‘Human Errors’ Revealed in Inquiry into Hong Kong’s Deadly Apartment Fire**\
 `Evidence shared at hearings show how disabled alarms, flammable materials and ignored warnings contributed to the deaths of 168 people in the complex.`\
 https://www.nytimes.com/2026/05/04/world/asia/hong-kong-apartment-fire-investigation.html
-
-**With World Distracted by War, Extremist Settlers Intensify Attacks in West Bank**\
-`Israel has failed to arrest a wave of violence against Palestinians, prompting military officials to urge the government to intervene.`\
-https://www.nytimes.com/2026/05/04/world/middleeast/israel-palestinians-west-bank-settler-violence-iran-war.html
 
