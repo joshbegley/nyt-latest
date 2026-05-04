@@ -1,3 +1,7 @@
+**10-Minute Challenge: ‘Cityscape’ by Romare Bearden**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://www.nytimes.com/interactive/2026/05/03/upshot/bearden-cityscape.html
+
 ****\
 ``\
 https://www.nytimes.com/video/embedded/world/asia/100000010878075/04int-hongkong-fire-family-26009.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/03/us/politics/justice-department-fed-chair-powe
 **‘Devil Wears Prada’ Sequel Leads Box Office With $77 Million**\
 `It was the biggest opening weekend for a traditional comedy in 11 years. One analyst called the debut “sensational.”`\
 https://www.nytimes.com/2026/05/03/business/devil-wears-prada-2-box-office.html
-
-**Spirit Airlines’ Demise Could Help Other Airlines**\
-`Even in its reduced state, the company played an important role in forcing other airlines to keep fares low, some experts said.`\
-https://www.nytimes.com/2026/05/03/business/spirit-airlines-shutdown-fares-industry-impact.html
 
