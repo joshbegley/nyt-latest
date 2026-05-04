@@ -1,3 +1,11 @@
+**Monster Truck Drives Into Crowd in Colombia, Killing 3**\
+`The driver of the truck appeared to lose control of the vehicle after performing a stunt at an outdoor rally in Popayán.`\
+https://www.nytimes.com/2026/05/04/world/americas/monster-truck-colombia-crash.html
+
+**Iran Threatens Ships Over Trump Plan to Break Iran’s Blockade**\
+`A senior Iranian military official warned that any vessel that tries to cross the Strait of Hormuz without permission would be “at risk.”`\
+https://www.nytimes.com/2026/05/04/world/middleeast/iran-trump-ships-hormuz-strait.html
+
 **Asked and Answered**\
 `We dig into reader questions.`\
 https://www.nytimes.com/2026/05/04/briefing/news-questions-answered.html

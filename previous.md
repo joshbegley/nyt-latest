@@ -1,3 +1,11 @@
+**Monster Truck Drives Into Crowd in Colombia, Killing 3**\
+`The driver of the truck appeared to lose control of the vehicle after performing a stunt at an outdoor rally in Popayán.`\
+https://www.nytimes.com/2026/05/04/world/americas/monster-truck-colombia-crash.html
+
+**Iran Threatens Ships Over Trump Plan to Break Iran’s Blockade**\
+`A senior Iranian military official warned that any vessel that tries to cross the Strait of Hormuz without permission would be “at risk.”`\
+https://www.nytimes.com/2026/05/04/world/middleeast/iran-trump-ships-hormuz-strait.html
+
 **Asked and Answered**\
 `We dig into reader questions.`\
 https://www.nytimes.com/2026/05/04/briefing/news-questions-answered.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/04/books/review/hustvedt-ghost-stories.html
 **What Acts of Heroism Have You Witnessed or Performed?**\
 `Middle school students in Mississippi worked together to stop a school bus after the driver blacked out. What can their heroism teach us?`\
 https://www.nytimes.com/2026/05/04/learning/what-acts-of-heroism-have-you-witnessed-or-performed.html
-
-**How a Hairdresser and Painter Lives on $70,000 a Year in Chelsea**\
-`For 32 years, Gerald DeCock has carved out of a life in the Hotel Chelsea, buying art supplies across the street and never, ever cooking. Now, he may have to move.`\
-https://www.nytimes.com/interactive/2026/05/04/nyregion/nyc-budgeting-affordability-decock.html
-
-**Trump Backed Forced Treatment for Homeless People. Utah Shows the Challenges.**\
-`State lawmakers declined to back a Trump-inspired plan to move 1,300 homeless people to a campus on the edge of Salt Lake City, but supporters are trying to keep the plan’s spirit alive.`\
-https://www.nytimes.com/2026/05/04/us/politics/utah-homeless-camp-stalls.html
 
