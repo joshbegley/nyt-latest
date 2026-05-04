@@ -1,3 +1,7 @@
+**3 personas han muerto por posible brote de hantavirus en un crucero, dice la OMS**\
+`Según la organización, un caso de la infección fue confirmado en un laboratorio. Hay otros cinco casos sospechosos, agregó.`\
+https://www.nytimes.com/es/2026/05/04/espanol/ciencia-y-tecnologia/hantavirus-crucero.html
+
 **Tucker Carlson on Trump’s Decision to Attack Iran**\
 `On “The Interview,” Tucker Carlson talks about what he saw, and what he told the president, in the run-up to the attack on Iran.`\
 https://www.nytimes.com/video/podcasts/100000010880077/tucker-carlson-on-trumps-decision-to-attack-iran.html

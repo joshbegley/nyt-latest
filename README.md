@@ -1,3 +1,7 @@
+**A ‘Ball Without Billionaires’ Kicks Off the First Monday in May**\
+`Labor unions from around the country staged a different kind of fashion show in downtown Manhattan.`\
+https://www.nytimes.com/2026/05/04/style/a-ball-without-billionaires-kicks-off-the-first-monday-in-may.html
+
 **3 personas han muerto por posible brote de hantavirus en un crucero, dice la OMS**\
 `Según la organización, un caso de la infección fue confirmado en un laboratorio. Hay otros cinco casos sospechosos, agregó.`\
 https://www.nytimes.com/es/2026/05/04/espanol/ciencia-y-tecnologia/hantavirus-crucero.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/embedded/arts/100000010879886/headline-test.html
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/05/04/world/iran-hormuz-ships-navy/heres-the-latest
-
-**Monster Truck Kills 3 People After Driving Into Crowd in Colombia**\
-`The police are investigating the incident after a driver of a monster truck appeared to lose control of the vehicle after performing a stunt at an outdoor rally in Popayán on Sunday, killing three people and injuring 40 others.`\
-https://www.nytimes.com/video/world/americas/100000010878454/monster-truck-crash-colombia.html
 
