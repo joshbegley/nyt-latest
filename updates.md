@@ -1,3 +1,11 @@
+**Appeals Court Blocks Ex-Prisoner From Taking Office in New Orleans**\
+`Calvin Duncan arrived for his first day as the newly elected criminal court clerk, a job the state wants to eliminate. Then a federal court intervened.`\
+https://www.nytimes.com/2026/05/04/us/calvin-duncan-criminal-court-clerk-new-orleans.html
+
+**Elon Musk’s Lawyers Ask OpenAI’s President Why He Is Worth $30 Billion**\
+`The legal team implied in a federal trial that Greg Brockman, OpenAI’s president and co-founder, was driven by greed rather than building safe A.I.`\
+https://www.nytimes.com/2026/05/04/technology/elon-musk-greg-brockman-openai-trial.html
+
 **Judge Slams Trump Administration for ‘Serious Breakdown’ in Legal Ethics**\
 `The Department of Homeland Security criticized a judge for releasing a man accused of murder overseas, but did not inform her of the accusation. The judge said she would consider imposing sanctions.`\
 https://www.nytimes.com/2026/05/04/us/politics/judge-dubose-trump-administration-attacks.html
