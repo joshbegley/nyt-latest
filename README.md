@@ -1,3 +1,7 @@
+**Trump se enfrenta a la realidad de la guerra en Irán**\
+`Las predicciones del presidente Trump de un conflicto relativamente corto con consecuencias económicas mínimas parecen desmoronarse.`\
+https://www.nytimes.com/es/2026/05/03/espanol/estados-unidos/trump-impopular-guerra-iran.html
+
 **Tractor-Trailer and Light Post Damaged as Plane Lands at Newark Airport**\
 `The tractor-trailer was on the New Jersey Turnpike on Sunday when it was damaged, the authorities said. Its driver had minor injuries and no one aboard the plane was hurt.`\
 https://www.nytimes.com/2026/05/03/nyregion/newark-airport-plane-light-pole.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/03/business/spirit-airlines-shutdown-fares-indus
 **Vogue Alumni Stage a Reunion for ‘The Devil Wears Prada 2’**\
 `A gaggle of former and current Vogue employees convened for a Saturday night screening of “The Devil Wears Prada 2.” The dress code for the evening? Interview chic.`\
 https://www.nytimes.com/2026/05/03/style/vogue-devil-wears-prada-2-movie.html
-
-**Doctors From Countries Under Travel Ban Now Allowed to Stay in U.S.**\
-`In a reversal, the Trump administration has exempted foreign physicians from a visa application freeze that was pushing many out of jobs in underserved areas.`\
-https://www.nytimes.com/2026/05/03/us/trump-travel-ban-doctors-us-immigration.html
 
