@@ -1,3 +1,27 @@
+**Drone Hits a Moscow High-Rise Days Before a Major Military Parade**\
+`Air defenses in the Russian capital were breached as Ukraine expands long-range strikes.`\
+https://www.nytimes.com/2026/05/04/world/europe/moscow-drone-attack.html
+
+**Connections Companion No. 1,059**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, May 5, 2026.`\
+https://www.nytimes.com/2026/05/04/crosswords/wordle-review-1059.html
+
+**What Drives Political Violence in America**\
+`Has the country entered a new, dangerous phase of political violence?`\
+https://www.nytimes.com/2026/05/04/podcasts/the-daily/political-violence-america.html
+
+**Court Ruling Upends Abortion Access in the U.S., and Trump’s New Plan for the Strait of Hormuz**\
+`Plus, the complicated legacy of Spirit Airlines.`\
+https://www.nytimes.com/2026/05/04/podcasts/the-headlines/court-ruling-upends-abortion-access-in-the-us-and-trumps-new-plan-for-the-strait-of-hormuz.html
+
+**Strands Sidekick No. 793**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, May 5, 2026.`\
+https://www.nytimes.com/2026/05/04/crosswords/strands-sidekick-793.html
+
+**Wordle Review No. 1,781**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, May 5, 2026.`\
+https://www.nytimes.com/2026/05/04/crosswords/wordle-review-1781.html
+
 **What to Know About the Suspected Hantavirus Outbreak on an Atlantic Cruise Ship**\
 `Three passengers of the MV Hondius died after showing symptoms of the rare disease. Health authorities confirmed one case and are investigating five others.`\
 https://www.nytimes.com/2026/05/04/world/hantavirus-cruise-ship-outbreak-hondius.html
