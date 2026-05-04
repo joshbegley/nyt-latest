@@ -1,3 +1,11 @@
+**The Met opens its fashion exhibition with big names and a new fund-raising record.**\
+``\
+https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/the-met-opens-its-fashion-exhibition-with-big-names-and-a-new-fund-raising-record
+
+**The World Cup and War**\
+`We hear from players, coaches, fans, regional experts and human rights advocates on the geopolitical backdrop to World Cup 2026.`\
+https://www.nytimes.com/2026/05/04/podcasts/the-world-cup-and-war.html
+
 **New York Times Wins 3 Pulitzer Prizes**\
 `The Washington Post won the award for public service, considered the most prestigious of the Pulitzers, for its coverage of the Trump administration’s overhaul of federal agencies.`\
 https://www.nytimes.com/2026/05/04/business/media/pulitzer-prizes-2026.html
