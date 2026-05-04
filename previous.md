@@ -1,3 +1,11 @@
+**D.H.S. Intelligence Office Did Not Properly Secure Smartphones, Watchdog Says**\
+`The department’s inspector general found a heightened risk of cyberattacks in mobile devices used by staff of the Office of Intelligence and Analysis. The department acknowledged shortcomings.`\
+https://www.nytimes.com/2026/05/04/us/politics/homeland-security-smartphones-inspector-general.html
+
+**Trump Administration Sues Minnesota to Block Climate Lawsuit**\
+`The Justice Department is seeking to block a lawsuit filed against major players in the fossil fuel industry over their role in climate change.`\
+https://www.nytimes.com/2026/05/04/climate/trump-minnesota-climate-lawsuit.html
+
 **A Cavity Doesn’t Always Need a Filling**\
 `How to weigh your dental options.`\
 https://www.nytimes.com/2026/05/04/well/cavity-filling-second-opinion.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/04/us/politics/supreme-court-abortion-pill.html
 **Do You Know These Unfinished Novels That Were Published Anyway?**\
 `Try this short quiz on books that arrived after their authors departed.`\
 https://www.nytimes.com/interactive/2026/05/04/books/review/unfinished-novels-quiz.html
-
-**‘Michael’ Is Memory Exploitation**\
-`Wesley Morris reviews “Michael” and considers better approaches to a Michael Jackson biopic.`\
-https://www.nytimes.com/video/podcasts/100000010867929/michael-is-memory-exploitation.html
-
-**Rudy Giuliani se encuentra en ‘estado crítico’ en un hospital de Florida**\
-`“Es un luchador que se ha enfrentado a todos los retos de su vida con una fortaleza inquebrantable, y está luchando con ese mismo nivel de fortaleza”, dijo un portavoz.`\
-https://www.nytimes.com/es/2026/05/04/espanol/estados-unidos/rudy-giuliani-hospital-florida.html
 

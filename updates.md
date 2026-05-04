@@ -1,3 +1,11 @@
+**D.H.S. Intelligence Office Did Not Properly Secure Smartphones, Watchdog Says**\
+`The department’s inspector general found a heightened risk of cyberattacks in mobile devices used by staff of the Office of Intelligence and Analysis. The department acknowledged shortcomings.`\
+https://www.nytimes.com/2026/05/04/us/politics/homeland-security-smartphones-inspector-general.html
+
+**Trump Administration Sues Minnesota to Block Climate Lawsuit**\
+`The Justice Department is seeking to block a lawsuit filed against major players in the fossil fuel industry over their role in climate change.`\
+https://www.nytimes.com/2026/05/04/climate/trump-minnesota-climate-lawsuit.html
+
 **Mapa: un terremoto de magnitud 5,7 sacude México**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/es/interactive/2026/05/04/espanol/terremoto-mexico.html
