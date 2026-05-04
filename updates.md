@@ -1,3 +1,7 @@
+**Trump se enfrenta a la realidad de la guerra en Irán**\
+`Las predicciones del presidente Trump de un conflicto relativamente corto con consecuencias económicas mínimas parecen desmoronarse.`\
+https://www.nytimes.com/es/2026/05/03/espanol/estados-unidos/trump-impopular-guerra-iran.html
+
 **Tractor-Trailer and Light Post Damaged as Plane Lands at Newark Airport**\
 `The tractor-trailer was on the New Jersey Turnpike on Sunday when it was damaged, the authorities said. Its driver had minor injuries and no one aboard the plane was hurt.`\
 https://www.nytimes.com/2026/05/03/nyregion/newark-airport-plane-light-pole.html
