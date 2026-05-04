@@ -1,3 +1,19 @@
+**Today, In Short**\
+`The Met Gala. Kacey Musgraves. And a treasure hunt in San Francisco.`\
+https://www.nytimes.com/2026/05/04/briefing/today-in-short.html
+
+**Europeans Prepare for a More Dangerous World in a Time of Economic Upheaval**\
+`A stalwart on defense spending, Poland is training its citizens in civil defense while balancing their jobs and families.`\
+https://www.nytimes.com/2026/05/04/business/poland-civil-defense-training.html
+
+****\
+`Civilians practicing first-aid techniques during an emergency preparedness training session held by Poland’s 133 Light Infantry Battalion.`\
+https://www.nytimes.com/video/embedded/world/europe/100000010856237/22vid-poland-embed-1.html
+
+**Lo que sabemos sobre el presunto brote de hantavirus en un crucero por el Atlántico**\
+`Tres pasajeros del MV Hondius murieron tras mostrar síntomas de la rara enfermedad. Las autoridades sanitarias confirmaron un caso e investigan otros cinco.`\
+https://www.nytimes.com/es/2026/05/04/espanol/mundo/brote-hantavirus-crucero-atlantico.html
+
 **Germans Are Not Panicking Over Trump’s Troop Threats**\
 `Top leaders believe losing 5,000 U.S. troops will not hurt German security. But analysts fear an economic hit, especially in military communities.`\
 https://www.nytimes.com/2026/05/04/world/europe/germany-trump-troop-withdrawal.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/05/04/us/oklahoma-shooting-lake-arcadia.html
 **Washington, D.C. Mayoral Election 2026: Latest Polls**\
 `Track the latest polls in the Washington, D.C., mayoral election.`\
 https://www.nytimes.com/interactive/polls/washington-dc-mayor-election-polls-2026.html
-
-**Monster Truck Drives Into Crowd in Colombia, Killing 3**\
-`The driver of the truck appeared to lose control of the vehicle after performing a stunt at an outdoor rally in Popayán.`\
-https://www.nytimes.com/2026/05/04/world/americas/monster-truck-colombia-crash.html
-
-**Iran Threatens Ships Over Trump Plan to Break Strait of Hormuz Blockade**\
-`A senior Iranian military official warned that any vessel that tried to cross the waterway, which is vital to global oil shipments, would be “at risk” without Iran’s consent.`\
-https://www.nytimes.com/2026/05/04/world/middleeast/iran-trump-ships-hormuz-strait.html
-
-**Asked and Answered**\
-`We dig into reader questions.`\
-https://www.nytimes.com/2026/05/04/briefing/news-questions-answered.html
-
-**Rubio to Visit Rome After Trump’s Feud With the Pope and Meloni**\
-`Secretary of State Marco Rubio’s trip will come after President Trump criticized Pope Leo XIV and then turned on Prime Minister Giorgia Meloni of Italy for defending the pontiff.`\
-https://www.nytimes.com/2026/05/04/world/europe/rubio-rome-trump-pope-italy.html
 
