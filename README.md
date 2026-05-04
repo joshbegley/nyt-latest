@@ -1,3 +1,7 @@
+**Iran Threatens Ships Over Trump Plan to Break Iran’s Blockade**\
+`A senior Iranian military official warned that any vessel that tries to cross the Strait of Hormuz without permission would be “at risk.”`\
+https://www.nytimes.com/2026/05/04/world/middleeast/iran-trump-ships-hormuz-strait.html
+
 **Asked and Answered**\
 `We dig into reader questions.`\
 https://www.nytimes.com/2026/05/04/briefing/news-questions-answered.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/04/learning/what-acts-of-heroism-have-you-witnes
 **How a Hairdresser and Painter Lives on $70,000 a Year in Chelsea**\
 `For 32 years, Gerald DeCock has carved out of a life in the Hotel Chelsea, buying art supplies across the street and never, ever cooking. Now, he may have to move.`\
 https://www.nytimes.com/interactive/2026/05/04/nyregion/nyc-budgeting-affordability-decock.html
-
-**Trump Backed Forced Treatment for Homeless People. Utah Shows the Challenges.**\
-`State lawmakers declined to back a Trump-inspired plan to move 1,300 homeless people to a campus on the edge of Salt Lake City, but supporters are trying to keep the plan’s spirit alive.`\
-https://www.nytimes.com/2026/05/04/us/politics/utah-homeless-camp-stalls.html
 
