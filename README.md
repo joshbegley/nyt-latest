@@ -1,3 +1,19 @@
+**A Cavity Doesn’t Always Need a Filling**\
+`How to weigh your dental options.`\
+https://www.nytimes.com/2026/05/04/well/cavity-filling-second-opinion.html
+
+**Meditating on Time and Place During a Leisurely Venice Bar Crawl**\
+`“You can’t escape drink in Venice,” one patron noted. “It’s a ritual.” An adopted Venetian, a reporter and a photographer wandered the city’s watering holes over one long aperitivo hour.`\
+https://www.nytimes.com/2026/05/04/arts/design/venice-italy-bar-crawl.html
+
+**Mapa: un terremoto de magnitud 5,7 sacude México**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/es/interactive/2026/05/04/espanol/04wea-terremoto-mexico-nyti57m3-es.html
+
+**Map: 5.7-Magnitude Earthquake Shakes Mexico**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/05/04/world/americas/quake-tracker-mexico.html
+
 **Britney Spears Pleads Guilty to D.U.I.**\
 `The pop star was arrested in March after officers in California observed her driving erratically. She later checked herself into a treatment facility.`\
 https://www.nytimes.com/2026/05/04/arts/music/britney-spears-pleads-guilty-dui.html
@@ -38,7 +54,7 @@ https://www.nytimes.com/2026/05/04/world/europe/germany-trump-troop-withdrawal.h
 ``\
 https://www.nytimes.com/2026/05/04/dining/dumplings-lounging-on-a-bed-of-soft-gingery-kale.html
 
-**What Trump Can Learn From George H.W. Bush**\
+**Want to Help Disabled People? Be More Like George H.W. Bush.**\
 `George H.W. Bush showed how Republicans can be disabled Americans’ greatest allies. Why isn’t Donald Trump honoring his legacy?`\
 https://www.nytimes.com/2026/05/04/opinion/george-hw-bush-trump-disability.html
 
@@ -61,20 +77,4 @@ https://www.nytimes.com/video/podcasts/100000010867929/michael-is-memory-exploit
 **Rudy Giuliani se encuentra en ‘estado crítico’ en un hospital de Florida**\
 `“Es un luchador que se ha enfrentado a todos los retos de su vida con una fortaleza inquebrantable, y está luchando con ese mismo nivel de fortaleza”, dijo un portavoz.`\
 https://www.nytimes.com/es/2026/05/04/espanol/estados-unidos/rudy-giuliani-hospital-florida.html
-
-**Rudy Giuliani Is Hospitalized and in Critical Condition**\
-`Rudy Giuliani, the former mayor of New York City, has been hospitalized in Florida. A spokesman said the 81-year-old is ”in critical but stable condition.”`\
-https://www.nytimes.com/video/us/politics/100000010878444/rudy-giuliani-hospitalized-critical-condition.html
-
-**Shipping Firms Left Guessing by Confusion in Strait of Hormuz**\
-`The United States vowed to help tankers navigate the perilous conditions that have kept them stranded in the Persian Gulf, but it remained unclear if companies would try to get out.`\
-https://www.nytimes.com/2026/05/04/business/trump-hormuz-shipping-companies.html
-
-**This Professor Won the ‘Bauhaus Bathroom’ Design Competition for the Gropius House**\
-`Announcing the winner of a competition to create a public restroom at the historic Gropius House.`\
-https://www.nytimes.com/2026/05/04/arts/design-gropius-house-contest.html
-
-**3 Killed and 14 Injured in Upper Manhattan Fire**\
-`The fire, at a six-story apartment building in the Inwood neighborhood, also displaced more than 100 residents, officials said.`\
-https://www.nytimes.com/2026/05/04/nyregion/nyc-fire-inwood.html
 
