@@ -1,3 +1,11 @@
+**New York Times Wins 3 Pulitzer Prizes**\
+`The Washington Post won the award for public service, considered the most prestigious of the Pulitzers, for its coverage of the Trump administration’s overhaul of federal agencies.`\
+https://www.nytimes.com/2026/05/04/business/media/pulitzer-prizes-2026.html
+
+**Pulitzer Prizes: 2026 Winners List**\
+`Here is the full list of winners and finalists.`\
+https://www.nytimes.com/2026/05/04/business/pulitzer-prizes-2026-winners-list.html
+
 **Pulitzer Prizes 2026: A Guide to the Winning Books and Finalists**\
 `“We the People,” by Jill Lepore, won the history prize, and Daniel Kraus received the fiction prize for “Angel Down.”`\
 https://www.nytimes.com/2026/05/04/books/pulitzer-prizes-books-winners-finalists.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/04/well/abortion-pill-mifepristone-supreme-court
 **Trump Administration Orders Rapid End to Some Hunting Rules on Federal Lands**\
 `Internal Interior Department documents show parks are imposing sweeping changes like expanding areas where firearms can by used and allowing game to be cleaned in restrooms.`\
 https://www.nytimes.com/2026/05/04/climate/hunting-federal-lands-burgum.html
-
-**Modi’s Hindu Nationalists Conquer a Bastion of India’s Opposition**\
-`The party of Prime Minister Narendra Modi took control of West Bengal for the first time and made gains around the country. Its defeated opponents accused it of cheating.`\
-https://www.nytimes.com/2026/05/04/world/asia/india-modi-hindu-bjp-west-bengal.html
-
-**Venice Showcases an Array of Global Art Stars During the Biennale**\
-`Marina Abramovic, Lorna Simpson, Arthur Jafa, Richard Prince and Peggy Guggenheim are among those being featured at museums and foundations during this year’s international art exhibition.`\
-https://www.nytimes.com/2026/05/04/arts/design/biennale-venice-galleries-international-works.html
 
