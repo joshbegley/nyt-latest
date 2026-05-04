@@ -1,3 +1,11 @@
+**‘Lord of the Flies,’ and 7 More Things to Watch on TV This Week**\
+`A new adaptation of the 1954 novel comes to Netflix, and “Outlander” wraps up its eight-season run.`\
+https://www.nytimes.com/2026/05/04/arts/television/lord-of-the-flies-7-things-to-watch-on-tv-this-week.html
+
+**Operation Epic Fury, Meet Operation Colossal Blunder**\
+`With the threat of a future closing of the Strait of Hormuz a drone strike away, the Iranians appear to actually hold the cards.`\
+https://www.nytimes.com/2026/05/04/opinion/iran-us-israel-war-drones-strait-of-hormuz.html
+
 **Los autos eléctricos ganan terreno frente a la volatilidad del petróleo**\
 `En Costa Rica y otros países, más personas compran vehículos eléctricos para evitar el impacto de los precios del combustible.`\
 https://www.nytimes.com/es/2026/05/04/espanol/negocios/carros-electricos-costa-rica.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/03/nyregion/rudy-giuliani-hospital-critical-cond
 **Trump Says U.S. Will Help Stranded Ships Leave Strait of Hormuz**\
 `President Trump offered few details on how the new program, which he called Project Freedom, would work, but said interference would be dealt with “forcefully.”`\
 https://www.nytimes.com/2026/05/03/us/politics/strait-hormuz-stranded-ships.html
-
-**United Plane Strikes Light Pole While Landing**\
-`A United Airlines flight hit a light pole as it landed at Newark Liberty International Airport on Sunday, the Federal Aviation Administration said in a statement.`\
-https://www.nytimes.com/video/embedded/us/100000010877899/united-plane-strikes-light-pole-while-landing.html
-
-**China Seeks an Advantage With Both Trump and Iran as War Evolves**\
-`With President Trump’s visit to Beijing looming, China is pushing Iran to negotiate even as its companies export material that could be used by Iran’s military.`\
-https://www.nytimes.com/2026/05/03/us/politics/trump-china-iran-war.html
 
