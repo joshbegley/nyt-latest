@@ -1,3 +1,7 @@
+**3 Killed and 14 Injured in Upper Manhattan Fire**\
+`The fire, at a six-story apartment building in the Inwood neighborhood, also displaced more than 100 residents, officials said.`\
+https://www.nytimes.com/2026/05/04/nyregion/nyc-fire-inwood.html
+
 **Washington, D.C. Mayoral Election 2026: Latest Polls**\
 `Track the latest polls in the Washington, D.C., mayoral election.`\
 https://www.nytimes.com/interactive/polls/washington-dc-mayor-election-polls-2026.html
