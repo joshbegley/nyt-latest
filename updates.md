@@ -1,3 +1,23 @@
+**Trump Administration Orders Rapid End to Some Hunting Rules on Federal Lands**\
+`Internal Interior Department documents show parks are imposing sweeping changes like expanding areas where firearms can by used and allowing game to be cleaned in restrooms.`\
+https://www.nytimes.com/2026/05/04/climate/hunting-federal-lands-burgum.html
+
+**Modi’s Hindu Nationalists Conquer a Bastion of India’s Opposition**\
+`The party of Prime Minister Narendra Modi took control of West Bengal for the first time and made gains around the country. Its defeated opponents accused it of cheating.`\
+https://www.nytimes.com/2026/05/04/world/asia/india-modi-hindu-bjp-west-bengal.html
+
+**Venice Showcases an Array of Global Art Stars During the Biennale**\
+`Marina Abramovic, Lorna Simpson, Arthur Jafa, Richard Prince and Peggy Guggenheim are among those being featured at museums and foundations during this year’s international art exhibition.`\
+https://www.nytimes.com/2026/05/04/arts/design/biennale-venice-galleries-international-works.html
+
+**A Dutch Art Studio Lights Up Venice’s Grand Canal**\
+`Lonneke Gordijn and Ralph Nauta of Studio Drift have brought their kinetic light sculptures outdoors at the Venice Biennale.`\
+https://www.nytimes.com/2026/05/04/arts/design/studio-drift-venice-biennale.html
+
+**Anthropic and Wall Street Giants Join Forces to Create New A.I. Firm**\
+`Blackstone and Goldman Sachs are among the investors in the new firm, which will help integrate Anthropic’s A.I. model Claude into their systems.`\
+https://www.nytimes.com/2026/05/04/business/anthropic-blackstone-goldman-sachs-artificial-intelligence-firm.html
+
 **Making Art With a ‘Sense of Responsibility’**\
 `The Kenyan British artist Michael Armitage, who is showing his paintings and studies in Venice, reflects on his Kenyan roots and his recent move to Indonesia.`\
 https://www.nytimes.com/2026/05/04/arts/design/michael-armitage-venice-biennale.html

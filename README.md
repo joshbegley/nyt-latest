@@ -1,3 +1,7 @@
+**What to Know About the New Abortion Pill Case Before the Supreme Court**\
+`The Louisiana lawsuit, which seeks to block telehealth prescribing and mailing of the abortion pill mifepristone, has major implications for abortion access nationwide.`\
+https://www.nytimes.com/2026/05/04/well/abortion-pill-mifepristone-supreme-court-louisiana.html
+
 **Trump Administration Orders Rapid End to Some Hunting Rules on Federal Lands**\
 `Internal Interior Department documents show parks are imposing sweeping changes like expanding areas where firearms can by used and allowing game to be cleaned in restrooms.`\
 https://www.nytimes.com/2026/05/04/climate/hunting-federal-lands-burgum.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/04/arts/design/venice-italy-bar-crawl.html
 **Mapa: un terremoto de magnitud 5,7 sacude México**\
 `Mira la localización del epicentro del sismo y el área de movimiento.`\
 https://www.nytimes.com/es/interactive/2026/05/04/espanol/terremoto-mexico.html
-
-**Map: 5.7-Magnitude Earthquake Shakes Mexico**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/05/04/world/americas/quake-tracker-mexico.html
 
