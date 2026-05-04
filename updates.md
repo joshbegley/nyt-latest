@@ -1,3 +1,7 @@
+**Rubio to Visit Rome, Officials Say, After Trump’s Feud With Pope and Meloni**\
+`Secretary of State Marco Rubio’s trip will come after President Trump criticized Pope Leo XIV and then turned on Prime Minister Giorgia Meloni of Italy for defending the pontiff.`\
+https://www.nytimes.com/2026/05/04/world/europe/rubio-rome-trump-pope-italy.html
+
 **Monster Truck Drives Into Crowd in Colombia, Killing 3**\
 `The driver of the truck appeared to lose control of the vehicle after performing a stunt at an outdoor rally in Popayán.`\
 https://www.nytimes.com/2026/05/04/world/americas/monster-truck-colombia-crash.html
