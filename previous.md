@@ -1,5 +1,5 @@
 **John Sterling, the Yankees’ Most Enduring Announcer, Dies at 87**\
-`He called over 5,600 games, more than any other Yankees announcer, and was known for his personalized, slightly wacky home run calls.`\
+`He called over 5,600 games, more than any other announcer for the team, and was known for his personalized, slightly wacky home run calls.`\
 https://www.nytimes.com/2026/05/04/sports/john-sterling-dead.html
 
 **What Was Discussed at Google’s White House Meeting About A.I.**\
