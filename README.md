@@ -1,3 +1,7 @@
+**Los autos eléctricos ganan terreno frente a la volatilidad del petróleo**\
+`En Costa Rica y otros países, más personas compran vehículos eléctricos para evitar el impacto de los precios del combustible.`\
+https://www.nytimes.com/es/2026/05/04/espanol/negocios/carros-electricos-costa-rica.html
+
 **‘City of Glass’ Is Under Threat From Iran War**\
 `In India, Firozabad has depended on its glassmaking industry for centuries. Fuel prices are starting to shatter businesses already under pressure.`\
 https://www.nytimes.com/2026/05/04/business/india-iran-fuel-glass.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/embedded/us/100000010877899/united-plane-strikes-l
 **China Seeks an Advantage With Both Trump and Iran as War Evolves**\
 `With President Trump’s visit to Beijing looming, China is pushing Iran to negotiate even as its companies export material that could be used by Iran’s military.`\
 https://www.nytimes.com/2026/05/03/us/politics/trump-china-iran-war.html
-
-**What Is Hantavirus, Which Is Linked to the Deaths of 3 People Aboard a Cruise Ship?**\
-`Three people aboard a cruise ship sailing the Atlantic Ocean have died from what health officials suspect were hantavirus infections.`\
-https://www.nytimes.com/2026/05/03/well/what-is-hantavirus-cruise-ship.html
 
