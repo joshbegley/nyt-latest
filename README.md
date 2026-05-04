@@ -1,3 +1,7 @@
+**‘The Comeback’ Season 3, Episode 7 Recap: Anywhere Else**\
+`Valerie gets answers about the leak. Mark gets a troubling tattoo.`\
+https://www.nytimes.com/2026/05/03/arts/television/the-comeback-recap-season-3-episode-7.html
+
 **10-Minute Challenge: ‘Cityscape’ by Romare Bearden**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://www.nytimes.com/interactive/2026/05/03/upshot/bearden-cityscape.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/03/us/by-the-wind-sailors-invade-california-beac
 **Justice Dept. Prosecutor Says Inquiry Into Fed Chair Could Be Resurrected**\
 `Jeanine Pirro, the U.S. attorney in Washington, dropped an inquiry into Jerome Powell last month after a federal judge blocked her grand jury subpoenas.`\
 https://www.nytimes.com/2026/05/03/us/politics/justice-department-fed-chair-powell-inquiry-pirro.html
-
-**‘Devil Wears Prada’ Sequel Leads Box Office With $77 Million**\
-`It was the biggest opening weekend for a traditional comedy in 11 years. One analyst called the debut “sensational.”`\
-https://www.nytimes.com/2026/05/03/business/devil-wears-prada-2-box-office.html
 
