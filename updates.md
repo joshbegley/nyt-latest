@@ -1,3 +1,11 @@
+**What Was Discussed at Google’s White House Meeting About A.I.**\
+`The technology giant met with administration officials last week to address a growing concern in Washington: insufficient computing power for artificial intelligence.`\
+https://www.nytimes.com/2026/05/04/business/dealbook/google-ai-white-house.html
+
+**At Least 10 Injured in Shooting at Lakeside Party in Oklahoma**\
+`The shooting took place near Arcadia Lake, northeast of Oklahoma City, where a crowd of young people was having a party, the police said.`\
+https://www.nytimes.com/2026/05/04/us/oklahoma-shooting-lake-arcadia.html
+
 **Washington, D.C. Mayoral Election 2026: Latest Polls**\
 `Track the latest polls in the Washington, D.C. mayoral election.`\
 https://www.nytimes.com/interactive/polls/washington-dc-mayor-election-polls-2026.html
