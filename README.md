@@ -1,3 +1,7 @@
+**At Least 10 Injured in Shooting at Lakeside Party in Oklahoma**\
+`The shooting took place near Arcadia Lake, northeast of Oklahoma City, where a crowd of young people was having a party, the police said.`\
+https://www.nytimes.com/2026/05/04/us/oklahoma-shooting-lake-arcadia.html
+
 **Washington, D.C. Mayoral Election 2026: Latest Polls**\
 `Track the latest polls in the Washington, D.C. mayoral election.`\
 https://www.nytimes.com/interactive/polls/washington-dc-mayor-election-polls-2026.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/04/us/politics/democrats-midterms-house-primarie
 **Love It or Hate It, the Met Gala Is Here**\
 `The benefit for the Costume Institute of the Metropolitan Museum of Art raked in $31 million last year. Critics say it celebrates wealth and celebrity.`\
 https://www.nytimes.com/2026/05/04/nyregion/met-gala-controversy.html
-
-**A Memoir of Grief, and the Ghosts That Linger After a Loss**\
-`In a new book, Siri Hustvedt recalls her life with the writer Paul Auster and the story of his illness.`\
-https://www.nytimes.com/2026/05/04/books/review/hustvedt-ghost-stories.html
 
