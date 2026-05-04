@@ -1,3 +1,11 @@
+**Washington, D.C. Mayoral Election 2026: Latest Polls**\
+`Track the latest polls in the Washington, D.C. mayoral election.`\
+https://www.nytimes.com/interactive/polls/washington-dc-mayor-election-polls-2026.html
+
+**Rubio to Visit Rome, Vatican Says, After Trump’s Feud With Pope and Meloni**\
+`Secretary of State Marco Rubio’s trip will come after President Trump criticized Pope Leo XIV and then turned on Prime Minister Giorgia Meloni of Italy for defending the pontiff.`\
+https://www.nytimes.com/2026/05/04/world/europe/rubio-rome-trump-pope-italy.html
+
 **Rubio to Visit Rome, Officials Say, After Trump’s Feud With Pope and Meloni**\
 `Secretary of State Marco Rubio’s trip will come after President Trump criticized Pope Leo XIV and then turned on Prime Minister Giorgia Meloni of Italy for defending the pontiff.`\
 https://www.nytimes.com/2026/05/04/world/europe/rubio-rome-trump-pope-italy.html

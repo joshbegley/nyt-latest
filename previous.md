@@ -1,3 +1,7 @@
+**Washington, D.C. Mayoral Election 2026: Latest Polls**\
+`Track the latest polls in the Washington, D.C. mayoral election.`\
+https://www.nytimes.com/interactive/polls/washington-dc-mayor-election-polls-2026.html
+
 **Monster Truck Drives Into Crowd in Colombia, Killing 3**\
 `The driver of the truck appeared to lose control of the vehicle after performing a stunt at an outdoor rally in Popayán.`\
 https://www.nytimes.com/2026/05/04/world/americas/monster-truck-colombia-crash.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/05/04/world/middleeast/iran-trump-ships-hormuz-stra
 `We dig into reader questions.`\
 https://www.nytimes.com/2026/05/04/briefing/news-questions-answered.html
 
-**Rubio to Visit Rome, Officials Say, After Trump’s Feud With Pope and Meloni**\
+**Rubio to Visit Rome, Vatican Says, After Trump’s Feud With Pope and Meloni**\
 `Secretary of State Marco Rubio’s trip will come after President Trump criticized Pope Leo XIV and then turned on Prime Minister Giorgia Meloni of Italy for defending the pontiff.`\
 https://www.nytimes.com/2026/05/04/world/europe/rubio-rome-trump-pope-italy.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/04/nyregion/met-gala-controversy.html
 **A Memoir of Grief, and the Ghosts That Linger After a Loss**\
 `In a new book, Siri Hustvedt recalls her life with the writer Paul Auster and the story of his illness.`\
 https://www.nytimes.com/2026/05/04/books/review/hustvedt-ghost-stories.html
-
-**What Acts of Heroism Have You Witnessed or Performed?**\
-`Middle school students in Mississippi worked together to stop a school bus after the driver blacked out. What can their heroism teach us?`\
-https://www.nytimes.com/2026/05/04/learning/what-acts-of-heroism-have-you-witnessed-or-performed.html
 
