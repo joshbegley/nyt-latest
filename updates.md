@@ -1,3 +1,11 @@
+**A Musical Fable of Environmental Cataclysm Wins Pulitzer Prize**\
+`Gabriela Lena Frank’s “Picaflor: A Future Myth,” premiered by the Philadelphia Orchestra, has won the prestigious award for music.`\
+https://www.nytimes.com/2026/05/04/arts/music/gabriela-lena-frank-pulitzer-prize-music.html
+
+**‘Who Do You Think Is More Morally Repulsive: Ted Cruz or Nick Fuentes?’**\
+`Tucker Carlson compares Senator Ted Cruz with the white nationalist Nick Fuentes in this clip from “The Interview.”`\
+https://www.nytimes.com/video/podcasts/100000010880457/who-do-you-think-is-more-morally-repulsive-ted-cruz-or-nick-fuentes.html
+
 **What Will the May Primaries Reveal About Trump’s Power Over Republicans?**\
 `A series of Republican contests will test his grip on the party.`\
 https://www.nytimes.com/2026/05/04/us/politics/may-primary-elections-trump-republicans.html
