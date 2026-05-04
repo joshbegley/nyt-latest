@@ -1,3 +1,31 @@
+**Germans Are Not Panicking Over Trump’s Troop Threats**\
+`Top leaders believe losing 5,000 U.S. troops will not hurt German security. But analysts fear an economic hit, especially in military communities.`\
+https://www.nytimes.com/2026/05/04/world/europe/germany-trump-troop-withdrawal.html
+
+**Dumplings Lounging on a Bed of Soft, Gingery Kale**\
+``\
+https://www.nytimes.com/2026/05/04/dining/dumplings-lounging-on-a-bed-of-soft-gingery-kale.html
+
+**What Trump Can Learn From George H.W. Bush**\
+`George H.W. Bush showed how Republicans can be disabled Americans’ greatest allies. Why isn’t Donald Trump honoring his legacy?`\
+https://www.nytimes.com/2026/05/04/opinion/george-hw-bush-trump-disability.html
+
+**Foggy Brain? Maybe It’s Your Gut.**\
+`Scientists keep learning more about the connection between the brain and the gastrointestinal system.`\
+https://www.nytimes.com/2026/05/04/well/mind/gut-brain-fog-health.html
+
+**Supreme Court Temporarily Restores Access to Abortion Pill by Mail**\
+`A lower-court ruling had reinstated a Food and Drug Administration requirement that patients visit a health care provider in person to obtain mifepristone.`\
+https://www.nytimes.com/2026/05/04/us/politics/supreme-court-abortion-pill.html
+
+**Do You Know These Unfinished Novels That Were Published Anyway?**\
+`Try this short quiz on books that arrived after their authors departed.`\
+https://www.nytimes.com/interactive/2026/05/04/books/review/unfinished-novels-quiz.html
+
+**‘Michael’ Is Memory Exploitation**\
+`Wesley Morris reviews “Michael” and considers better approaches to a Michael Jackson biopic.`\
+https://www.nytimes.com/video/podcasts/100000010867929/michael-is-memory-exploitation.html
+
 **Rudy Giuliani se encuentra en ‘estado crítico’ en un hospital de Florida**\
 `“Es un luchador que se ha enfrentado a todos los retos de su vida con una fortaleza inquebrantable, y está luchando con ese mismo nivel de fortaleza”, dijo un portavoz.`\
 https://www.nytimes.com/es/2026/05/04/espanol/estados-unidos/rudy-giuliani-hospital-florida.html
@@ -49,32 +77,4 @@ https://www.nytimes.com/2026/05/04/briefing/news-questions-answered.html
 **Rubio to Visit Rome After Trump’s Feud With the Pope and Meloni**\
 `Secretary of State Marco Rubio’s trip will come after President Trump criticized Pope Leo XIV and then turned on Prime Minister Giorgia Meloni of Italy for defending the pontiff.`\
 https://www.nytimes.com/2026/05/04/world/europe/rubio-rome-trump-pope-italy.html
-
-**Drone Hits a Moscow High-Rise Days Before a Major Military Parade**\
-`Air defenses in the Russian capital were breached as Ukraine expands long-range strikes.`\
-https://www.nytimes.com/2026/05/04/world/europe/moscow-drone-attack.html
-
-**Connections Companion No. 1,059**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, May 5, 2026.`\
-https://www.nytimes.com/2026/05/04/crosswords/connections-companion-1059.html
-
-**What Drives Political Violence in America**\
-`Has the country entered a new, dangerous phase of political violence?`\
-https://www.nytimes.com/2026/05/04/podcasts/the-daily/political-violence-america.html
-
-**Court Ruling Upends Abortion Access in the U.S., and Trump’s New Plan for the Strait of Hormuz**\
-`Plus, the complicated legacy of Spirit Airlines.`\
-https://www.nytimes.com/2026/05/04/podcasts/the-headlines/court-ruling-upends-abortion-access-in-the-us-and-trumps-new-plan-for-the-strait-of-hormuz.html
-
-**Strands Sidekick No. 793**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, May 5, 2026.`\
-https://www.nytimes.com/2026/05/04/crosswords/strands-sidekick-793.html
-
-**Wordle Review No. 1,781**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, May 5, 2026.`\
-https://www.nytimes.com/2026/05/04/crosswords/wordle-review-1781.html
-
-**What to Know About the Suspected Hantavirus Outbreak on an Atlantic Cruise Ship**\
-`Three passengers of the MV Hondius died after showing symptoms of the rare disease. Health authorities confirmed one case and are investigating five others.`\
-https://www.nytimes.com/2026/05/04/world/hantavirus-cruise-ship-outbreak-hondius.html
 
