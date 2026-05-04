@@ -1,3 +1,7 @@
+**Rudy Giuliani se encuentra en ‘estado crítico’ en un hospital de Florida**\
+`“Es un luchador que se ha enfrentado a todos los retos de su vida con una fortaleza inquebrantable, y está luchando con ese mismo nivel de fortaleza”, dijo un portavoz.`\
+https://www.nytimes.com/es/2026/05/04/espanol/estados-unidos/rudy-giuliani-hospital-florida.html
+
 **Rudy Giuliani Is Hospitalized and in Critical Condition**\
 `Rudy Giuliani, the former mayor of New York City, has been hospitalized in Florida. A spokesman said the 81-year-old is ”in critical but stable condition.”`\
 https://www.nytimes.com/video/us/politics/100000010878444/rudy-giuliani-hospitalized-critical-condition.html

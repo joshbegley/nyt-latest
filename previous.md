@@ -1,3 +1,7 @@
+**Rudy Giuliani se encuentra en ‘estado crítico’ en un hospital de Florida**\
+`“Es un luchador que se ha enfrentado a todos los retos de su vida con una fortaleza inquebrantable, y está luchando con ese mismo nivel de fortaleza”, dijo un portavoz.`\
+https://www.nytimes.com/es/2026/05/04/espanol/estados-unidos/rudy-giuliani-hospital-florida.html
+
 **Rudy Giuliani Is Hospitalized and in Critical Condition**\
 `Rudy Giuliani, the former mayor of New York City, has been hospitalized in Florida. A spokesman said the 81-year-old is ”in critical but stable condition.”`\
 https://www.nytimes.com/video/us/politics/100000010878444/rudy-giuliani-hospitalized-critical-condition.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/04/crosswords/wordle-review-1781.html
 **What to Know About the Suspected Hantavirus Outbreak on an Atlantic Cruise Ship**\
 `Three passengers of the MV Hondius died after showing symptoms of the rare disease. Health authorities confirmed one case and are investigating five others.`\
 https://www.nytimes.com/2026/05/04/world/hantavirus-cruise-ship-outbreak-hondius.html
-
-**‘Human Errors’ Revealed in Inquiry into Hong Kong’s Deadly Apartment Fire**\
-`Evidence shared at hearings show how disabled alarms, flammable materials and ignored warnings contributed to the deaths of 168 people in the complex.`\
-https://www.nytimes.com/2026/05/04/world/asia/hong-kong-apartment-fire-investigation.html
 
