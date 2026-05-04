@@ -1,3 +1,15 @@
+**Attacks Threaten to Reignite Iran Conflict**\
+`Also, the stars arrive at the Met Gala. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/05/04/briefing/iran-strait-of-hormuz-attacks-met-gala.html
+
+**Amazon Expands Logistics Arm to Outside Companies**\
+`The company said its shipping, fulfillment and delivery services would be offered to other businesses. Several large corporations have already signed on.`\
+https://www.nytimes.com/2026/05/04/business/amazon-shipping-services.html
+
+**Elon Musk’s Lawyers Ask OpenAI’s Brockman Why He Is Worth $30 Billion**\
+`The legal team implied in a federal trial that Greg Brockman, OpenAI’s president and co-founder, was driven by greed rather than building safe A.I.`\
+https://www.nytimes.com/2026/05/04/technology/elon-musk-greg-brockman-openai-trial.html
+
 **A Musical Fable of Environmental Cataclysm Wins Pulitzer Prize**\
 `Gabriela Lena Frank’s “Picaflor: A Future Myth,” premiered by the Philadelphia Orchestra, has won the prestigious award for music.`\
 https://www.nytimes.com/2026/05/04/arts/music/gabriela-lena-frank-pulitzer-prize-music.html
