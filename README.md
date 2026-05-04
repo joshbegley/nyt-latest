@@ -19,7 +19,7 @@ https://www.nytimes.com/interactive/polls/washington-dc-mayor-election-polls-202
 https://www.nytimes.com/2026/05/04/world/americas/monster-truck-colombia-crash.html
 
 **Iran Threatens Ships Over Trump Plan to Break Iran’s Blockade**\
-`A senior Iranian military official warned that any vessel that tries to cross the Strait of Hormuz without permission would be “at risk.”`\
+`A senior Iranian military official warned that any vessel that tried to cross the Strait of Hormuz without permission would be “at risk.”`\
 https://www.nytimes.com/2026/05/04/world/middleeast/iran-trump-ships-hormuz-strait.html
 
 **Asked and Answered**\
