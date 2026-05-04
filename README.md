@@ -1,3 +1,11 @@
+**1,500 Beagles From Troubled Research Facility Are Getting New Homes**\
+`Last month, animal rights activists tried to steal some of the dogs from the Wisconsin facility, Ridglan Farms, but were thwarted by tear gas and rubber bullets.`\
+https://www.nytimes.com/2026/05/04/us/beagles-ridglan-farms-wisconsin.html
+
+**Read the document**\
+`Dimitri K. Simes filed a motion to dismiss Biden-era charges against him and his wife on First Amendment grounds.`\
+https://www.nytimes.com/interactive/2026/05/04/us/simes-motion.html
+
 **An N.B.A. Upset Forces a Showdown in Manhattan: Met Gala or Knicks Game?**\
 `A home playoff game on Monday night may pose an issue for Knicks superfans like Spike Lee and Timothée Chalamet.`\
 https://www.nytimes.com/2026/05/04/style/met-gala-or-knicks-game.html
@@ -65,16 +73,4 @@ https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/the-met
 **The World Cup and War**\
 `We hear from players, coaches, fans, regional experts and human rights advocates on the geopolitical backdrop to World Cup 2026.`\
 https://www.nytimes.com/2026/05/04/podcasts/the-world-cup-and-war.html
-
-**New York Times Wins 3 Pulitzer Prizes**\
-`The Washington Post won the award for public service, considered the most prestigious of the Pulitzers, for its coverage of the Trump administration’s overhaul of federal agencies.`\
-https://www.nytimes.com/2026/05/04/business/media/pulitzer-prizes-2026.html
-
-**Pulitzer Prizes: 2026 Winners List**\
-`Here is the full list of winners and finalists.`\
-https://www.nytimes.com/2026/05/04/business/pulitzer-prizes-2026-winners-list.html
-
-**Pulitzer Prizes 2026: A Guide to the Winning Books and Finalists**\
-`“We the People,” by Jill Lepore, won the history prize, and Daniel Kraus received the fiction prize for “Angel Down.”`\
-https://www.nytimes.com/2026/05/04/books/pulitzer-prizes-books-winners-finalists.html
 
