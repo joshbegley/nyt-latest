@@ -1,3 +1,7 @@
+**What to Know About the Suspected Hantavirus Outbreak on an Atlantic Cruise Ship**\
+`Three passengers of the MV Hondius died after showing symptoms of the rare disease. Health authorities confirmed one case and are investigating five others.`\
+https://www.nytimes.com/2026/05/04/world/hantavirus-cruise-ship-outbreak-hondius.html
+
 **‘Human Errors’ Revealed in Inquiry into Hong Kong’s Deadly Apartment Fire**\
 `Evidence shared at hearings show how disabled alarms, flammable materials and ignored warnings contributed to the deaths of 168 people in the complex.`\
 https://www.nytimes.com/2026/05/04/world/asia/hong-kong-apartment-fire-investigation.html
