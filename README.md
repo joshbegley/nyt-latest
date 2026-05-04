@@ -1,6 +1,14 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/04/world/iran-hormuz-ships-navy/heres-the-latest
+
+**Monster Truck Kills 3 People After Driving Into Crowd in Colombia**\
+`The police are investigating the incident after a driver of a monster truck appeared to lose control of the vehicle after performing a stunt at an outdoor rally in Popayán on Sunday, killing three people and injuring 40 others.`\
+https://www.nytimes.com/video/world/americas/100000010878454/monster-truck-crash-colombia.html
+
 **Judge Questions Jail’s Treatment of Suspect in Press Gala Shooting**\
 `A federal magistrate ordered that the D.C. Department of Corrections explain why it had placed Cole Tomas Allen in especially restrictive conditions.`\
-https://www.nytimes.com/2026/05/04/us/politics/whcd-alleged-assault.html
+https://www.nytimes.com/2026/05/04/us/politics/correspondents-dinner-shooting-suspect-suicide-watch.html
 
 **More Than 150 Wind Projects Stall as Pentagon Delays Reviews**\
 `The delays, which companies say have worsened significantly in recent weeks, are the latest step in the Trump administration’s efforts to block wind power.`\
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/04/arts/design/gagosian-rome-francesca-woodman.h
 **U.S. Warns China Over Iranian Oil as Sanctions Fight Intensifies**\
 `China told its independent refineries to disregard U.S. sanctions over their purchases of Iranian crude.`\
 https://www.nytimes.com/2026/05/04/us/politics/us-china-iranian-oil-sanctions.html
-
-**D.H.S. Intelligence Office Did Not Properly Secure Smartphones, Watchdog Says**\
-`The department’s inspector general found a heightened risk of cyberattacks in mobile devices used by staff of the Office of Intelligence and Analysis. The department acknowledged shortcomings.`\
-https://www.nytimes.com/2026/05/04/us/politics/homeland-security-smartphones-inspector-general.html
-
-**Trump Administration Sues Minnesota to Block Climate Lawsuit**\
-`The Justice Department is seeking to block a lawsuit filed against major players in the fossil fuel industry over their role in climate change.`\
-https://www.nytimes.com/2026/05/04/climate/trump-minnesota-climate-lawsuit.html
 
