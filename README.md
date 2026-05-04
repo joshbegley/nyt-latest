@@ -1,3 +1,7 @@
+**John Sterling, the Yankees’ Most Enduring Announcer, Dies at 87**\
+`He called over 5,600 games, more than any other Yankees announcer, and was known for his personalized, slightly wacky home run calls.`\
+https://www.nytimes.com/2026/05/04/sports/john-sterling-dead.html
+
 **What Was Discussed at Google’s White House Meeting About A.I.**\
 `The technology giant met with administration officials last week to address a growing concern in Washington: insufficient computing power for artificial intelligence.`\
 https://www.nytimes.com/2026/05/04/business/dealbook/google-ai-white-house.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/04/business/gamestop-ebay-acquisition-offer.html
 **Democrats Add 8 Candidates to House Battlefield Program for Midterms**\
 `The party’s congressional campaign arm is promoting more contenders to take down at-risk Republicans — and is taking sides in some competitive primaries.`\
 https://www.nytimes.com/2026/05/04/us/politics/democrats-midterms-house-primaries.html
-
-**Are Democrats Scared Enough of Trump to Defeat Him?**\
-`Don’t let the Platner be the enemy of the good.`\
-https://www.nytimes.com/2026/05/04/opinion/platner-trump-democrats.html
 
