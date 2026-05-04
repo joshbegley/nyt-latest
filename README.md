@@ -1,3 +1,11 @@
+**En Costa Rica, conducir un coche eléctrico no es muy complicado**\
+`Costa Rica ha hecho más que la mayoría de los países para promover los vehículos eléctricos y casi uno de cada cinco coches nuevos que se venden es eléctrico.`\
+https://www.nytimes.com/es/2026/05/03/espanol/negocios/costa-rica-vehiculos-electricos-cargador.html
+
+**Once Detained By ICE, Mariachi Brothers Open for Kacey Musgraves**\
+`The teenagers, who had faced deportation after a high-profile detention, took the stage on Sunday thanks to an invitation from one of country music’s biggest stars.`\
+https://www.nytimes.com/2026/05/03/us/mariachi-brothers-ice-kacey-musgraves-texas.html
+
 **‘The Comeback’ Season 3, Episode 7 Recap: Anywhere Else**\
 `Valerie gets answers about the leak. Mark gets a troubling tattoo.`\
 https://www.nytimes.com/2026/05/03/arts/television/the-comeback-recap-season-3-episode-7.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/03/business/economy/eeoc-discrimination-claim-ne
 **Jack Thornell, Pulitzer Winning A.P. Photographer, Dies at 86**\
 `He captured one of the most wrenching moments of the civil rights struggle: the agony of James Meredith after he was shot on a Mississippi highway.`\
 https://www.nytimes.com/2026/05/03/obituaries/jack-thornell-dead.html
-
-**Blue and Tentacled, a Sea Creature Invades California Beaches**\
-`The brightly colored jellylike marine life, called “Velella velella,” show up every few years when strong winds blow in the right direction, scientists said.`\
-https://www.nytimes.com/2026/05/03/us/by-the-wind-sailors-invade-california-beaches.html
-
-**Justice Dept. Prosecutor Says Inquiry Into Fed Chair Could Be Resurrected**\
-`Jeanine Pirro, the U.S. attorney in Washington, dropped an inquiry into Jerome Powell last month after a federal judge blocked her grand jury subpoenas.`\
-https://www.nytimes.com/2026/05/03/us/politics/justice-department-fed-chair-powell-inquiry-pirro.html
 
