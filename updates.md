@@ -1,3 +1,7 @@
+**‘Human Errors’ Revealed in Inquiry into Hong Kong’s Deadly Apartment Fire**\
+`Evidence shared at hearings show how disabled alarms, flammable materials and ignored warnings contributed to the deaths of 168 people in the complex.`\
+https://www.nytimes.com/2026/05/04/world/asia/hong-kong-apartment-fire-investigation.html
+
 **With World Distracted by War, Extremist Settlers Intensify Attacks in West Bank**\
 `Israel has failed to arrest a wave of violence against Palestinians, prompting military officials to urge the government to intervene.`\
 https://www.nytimes.com/2026/05/04/world/middleeast/israel-palestinians-west-bank-settler-violence-iran-war.html

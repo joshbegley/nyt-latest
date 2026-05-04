@@ -1,3 +1,7 @@
+**‘Human Errors’ Revealed in Inquiry into Hong Kong’s Deadly Apartment Fire**\
+`Evidence shared at hearings show how disabled alarms, flammable materials and ignored warnings contributed to the deaths of 168 people in the complex.`\
+https://www.nytimes.com/2026/05/04/world/asia/hong-kong-apartment-fire-investigation.html
+
 **With World Distracted by War, Extremist Settlers Intensify Attacks in West Bank**\
 `Israel has failed to arrest a wave of violence against Palestinians, prompting military officials to urge the government to intervene.`\
 https://www.nytimes.com/2026/05/04/world/middleeast/israel-palestinians-west-bank-settler-violence-iran-war.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/04/opinion/yuppies-merit-society-politics-cities
 **A.I. Is a National Security Risk. We Aren’t Doing Nearly Enough.**\
 `Both parties can agree to do a whole lot on A.I., but they have to move faster.`\
 https://www.nytimes.com/2026/05/04/opinion/ai-national-security-risk-politics.html
-
-**The Met Gala’s Embrace of Jeff Bezos Causes a Backlash**\
-`Protesters have found a perfect foil in Amazon’s founder, the gala’s lead sponsor this year.`\
-https://www.nytimes.com/2026/05/04/style/met-gala-jeff-bezos-backlash.html
 
