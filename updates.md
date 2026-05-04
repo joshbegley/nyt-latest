@@ -1,3 +1,15 @@
+**New York Times Wins 3 Pulitzer Prizes**\
+`The Washington Post won the award for public service, considered the most prestigious of the Pulitzers, for its coverage of the Trump administration’s overhaul of federal agencies.`\
+https://www.nytimes.com/2026/05/04/business/media/pulitzer-prizes-2026.html
+
+**Pulitzer Prizes: 2026 Winners List**\
+`Here is the full list of winners and finalists.`\
+https://www.nytimes.com/2026/05/04/business/pulitzer-prizes-2026-winners-list.html
+
+**Pulitzer Prizes 2026: A Guide to the Winning Books and Finalists**\
+`“We the People,” by Jill Lepore, won the history prize, and Daniel Kraus received the fiction prize for “Angel Down.”`\
+https://www.nytimes.com/2026/05/04/books/pulitzer-prizes-books-winners-finalists.html
+
 **Our Pulitzer Prize-Winning Photographer’s Work From Gaza**\
 `The photographer Saher Alghorra reported on the Gaza conflict while enduring the dire conditions his images portrayed.`\
 https://www.nytimes.com/2026/05/04/world/middleeast/pulitzer-saher-alghorra-breaking-news-photography.html
