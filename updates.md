@@ -1,3 +1,11 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/04/crosswords/spelling-bee-forum.html
+
+**Map: 6.0-Magnitude Earthquake Shakes the Philippines**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/05/04/world/asia/quake-tracker-philippines.html
+
 **Palabra del día: ‘encroach’**\
 `Esta palabra ha aparecido en 36 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
 https://www.nytimes.com/es/2026/05/04/espanol/que-significa-encroach.html
