@@ -1,3 +1,11 @@
+**Asked and Answered**\
+`We dig into reader questions.`\
+https://www.nytimes.com/2026/05/04/briefing/news-questions-answered.html
+
+**Rubio to Visit Rome, Officials Say, After Trump’s Feud With Pope and Meloni**\
+`Secretary of State Marco Rubio’s trip will come after President Trump criticized Pope Leo XIV and then turned on Prime Minister Giorgia Meloni for defending the pontiff.`\
+https://www.nytimes.com/2026/05/04/world/europe/rubio-rome-trump-pope-italy.html
+
 **Drone Hits a Moscow High-Rise Days Before a Major Military Parade**\
 `Air defenses in the Russian capital were breached as Ukraine expands long-range strikes.`\
 https://www.nytimes.com/2026/05/04/world/europe/moscow-drone-attack.html

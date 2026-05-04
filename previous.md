@@ -1,3 +1,11 @@
+**Asked and Answered**\
+`We dig into reader questions.`\
+https://www.nytimes.com/2026/05/04/briefing/news-questions-answered.html
+
+**Rubio to Visit Rome, Officials Say, After Trump’s Feud With Pope and Meloni**\
+`Secretary of State Marco Rubio’s trip will come after President Trump criticized Pope Leo XIV and then turned on Prime Minister Giorgia Meloni for defending the pontiff.`\
+https://www.nytimes.com/2026/05/04/world/europe/rubio-rome-trump-pope-italy.html
+
 **Drone Hits a Moscow High-Rise Days Before a Major Military Parade**\
 `Air defenses in the Russian capital were breached as Ukraine expands long-range strikes.`\
 https://www.nytimes.com/2026/05/04/world/europe/moscow-drone-attack.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/interactive/2026/05/04/nyregion/nyc-budgeting-affordabil
 **Trump Backed Forced Treatment for Homeless People. Utah Shows the Challenges.**\
 `State lawmakers declined to back a Trump-inspired plan to move 1,300 homeless people to a campus on the edge of Salt Lake City, but supporters are trying to keep the plan’s spirit alive.`\
 https://www.nytimes.com/2026/05/04/us/politics/utah-homeless-camp-stalls.html
-
-**Fare on PATH Trains Increases to $3.25 as Part of Revitalization Plan**\
-`Later this month, riders on the weekend will be able to travel directly from Hoboken to the World Trade Center for the first time in nearly 25 years.`\
-https://www.nytimes.com/2026/05/04/nyregion/path-fare-increase.html
-
-**They Were Viral Dance Kids. What Do They Do for a Second Act?**\
-`Performers who wowed us online as children are coming of age. But they have few obvious career paths.`\
-https://www.nytimes.com/2026/05/04/arts/dance/viral-dance-kids-careers.html
 
