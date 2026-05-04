@@ -1,3 +1,7 @@
+**Carney Pulls Canada Closer to Europe as Both Struggle With Trump**\
+`At a summit of European leaders, the Canadian prime minister was a special guest offering deals and friendship to jittery allies.`\
+https://www.nytimes.com/2026/05/04/world/canada/carney-europe-trump.html
+
 **Today, In Short**\
 `The Met Gala. Kacey Musgraves. And a treasure hunt in San Francisco.`\
 https://www.nytimes.com/2026/05/04/briefing/today-in-short.html
