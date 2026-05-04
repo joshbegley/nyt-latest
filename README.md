@@ -1,3 +1,7 @@
+**What to Know About the Suspected Hantavirus Outbreak on an Atlantic Cruise Ship**\
+`Three passengers of the MV Hondius died after showing symptoms of the rare disease. Health authorities confirmed one case and are investigating five others.`\
+https://www.nytimes.com/2026/05/04/world/hantavirus-cruise-ship-outbreak-hondius.html
+
 **‘Human Errors’ Revealed in Inquiry into Hong Kong’s Deadly Apartment Fire**\
 `Evidence shared at hearings show how disabled alarms, flammable materials and ignored warnings contributed to the deaths of 168 people in the complex.`\
 https://www.nytimes.com/2026/05/04/world/asia/hong-kong-apartment-fire-investigation.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/04/opinion/california-governor-election.html
 **How Yuppies Changed America**\
 `The young urban professionals of the 1980s changed our cities, our politics and our meritocratic work lives.`\
 https://www.nytimes.com/2026/05/04/opinion/yuppies-merit-society-politics-cities.html
-
-**A.I. Is a National Security Risk. We Aren’t Doing Nearly Enough.**\
-`Both parties can agree to do a whole lot on A.I., but they have to move faster.`\
-https://www.nytimes.com/2026/05/04/opinion/ai-national-security-risk-politics.html
 
