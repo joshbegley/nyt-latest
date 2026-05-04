@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/heres-the-latest
+
 **U.S. Shot Down Iranian Missiles and Drones Aimed at American Vessels in Strait of Hormuz, Admiral Says**\
 `An exchange of fire threatened to shatter a fragile cease-fire as President Trump seeks to break Iran’s effective blockade of the waterway.`\
 https://www.nytimes.com/2026/05/04/us/politics/us-iran-attacks.html
