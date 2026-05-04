@@ -1,3 +1,11 @@
+**Judge Slams Trump Administration for ‘Serious Breakdown’ in Legal Ethics**\
+`The Department of Homeland Security criticized a judge for releasing a man accused of murder overseas, but did not inform her of the accusation. The judge said she would consider imposing sanctions.`\
+https://www.nytimes.com/2026/05/04/us/politics/judge-dubose-trump-administration-attacks.html
+
+**Gunman Exchanges Fire With Secret Service Near Washington Monument**\
+`The motorcade of Vice President JD Vance passed the scene soon after the shooting.`\
+https://www.nytimes.com/2026/05/04/us/politics/washington-monument-shooting-secret-service.html
+
 **Attacks Threaten to Reignite Iran Conflict**\
 `Also, the stars arrive at the Met Gala. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/05/04/briefing/iran-strait-of-hormuz-attacks-met-gala.html
@@ -65,12 +73,4 @@ https://www.nytimes.com/2026/05/04/style/met-gala-red-carpet-photos.html
 **American Commentator Who Worked for Russian TV Challenges Biden-era Charges**\
 `The Biden administration called Dimitri Simes, a former Trump adviser, a Russian propagandist. He says the charges against him violate free speech.`\
 https://www.nytimes.com/2026/05/04/us/politics/american-commentator-charges-russia.html
-
-**Blake Lively and Justin Baldoni Settle Their Legal Dispute**\
-`Ms. Lively had accused Mr. Baldoni of waging a smear campaign against her after she complained of harassment when making a film together. He had denied her accusation.`\
-https://www.nytimes.com/2026/05/04/movies/blake-lively-justin-baldoni-settlement.html
-
-**Un vehículo ‘monster truck’ arrolla al público y causa 3 muertes en Colombia**\
-`El vehículo arrolló a una multitud en un espectáculo al aire libre en Popayán. Además de los fallecidos, causó lesiones a al menos otras 40 personas, dijeron las autoridades locales.`\
-https://www.nytimes.com/es/2026/05/04/espanol/america-latina/monster-truck-colombia.html
 
