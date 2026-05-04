@@ -70,11 +70,11 @@ https://www.nytimes.com/es/2026/05/04/espanol/estilos-de-vida/marihuana-medicina
 `Analysts question the feasibility of this long-shot bid by the video game retailer to acquire the much larger online marketplace.`\
 https://www.nytimes.com/2026/05/04/business/gamestop-ebay-acquisition-offer.html
 
-**Are Democrats Scared Enough of Trump to Defeat Him?**\
-`Don’t let the Platner be the enemy of the good.`\
-https://www.nytimes.com/2026/05/04/opinion/platner-trump-democrats.html
-
 **Democrats Add 8 Candidates to House Battlefield Program for Midterms**\
 `The party’s congressional campaign arm is promoting more contenders to take down at-risk Republicans — and is taking sides in some competitive primaries.`\
 https://www.nytimes.com/2026/05/04/us/politics/democrats-midterms-house-primaries.html
+
+**Are Democrats Scared Enough of Trump to Defeat Him?**\
+`Don’t let the Platner be the enemy of the good.`\
+https://www.nytimes.com/2026/05/04/opinion/platner-trump-democrats.html
 
