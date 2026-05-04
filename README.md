@@ -1,3 +1,7 @@
+**Shipping Firms Left Guessing by Confusion in Strait of Hormuz**\
+`The United States vowed to help tankers navigate the perilous conditions that have kept them stranded in the Persian Gulf, but it remained unclear if companies would try to get out.`\
+https://www.nytimes.com/2026/05/04/business/trump-hormuz-shipping-companies.html
+
 **This Professor Won the ‘Bauhaus Bathroom’ Design Competition for the Gropius House**\
 `Announcing the winner of a competition to create a public restroom at the historic Gropius House.`\
 https://www.nytimes.com/2026/05/04/arts/design-gropius-house-contest.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/04/world/asia/hong-kong-apartment-fire-investiga
 **With World Distracted by War, Extremist Settlers Intensify Attacks in West Bank**\
 `Israel has failed to arrest a wave of violence against Palestinians, prompting military officials to urge the government to intervene.`\
 https://www.nytimes.com/2026/05/04/world/middleeast/israel-palestinians-west-bank-settler-violence-iran-war.html
-
-**Lo que los médicos quieren que sepas sobre el uso medicinal de la marihuana**\
-`El gobierno de EE. UU. ha flexibilizado recientemente las normas sobre la marihuana medicinal. Los expertos separan la realidad de la ficción en cuanto a la seguridad y los beneficios de esta droga.`\
-https://www.nytimes.com/es/2026/05/04/espanol/estilos-de-vida/marihuana-medicinal.html
 
