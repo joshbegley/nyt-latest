@@ -1,3 +1,7 @@
+**Tucker Carlson: JD Vance Is ‘in a Tough Spot’**\
+`Tucker Carlson said he would “always love JD Vance as a man.” But he thinks the war in Iran has put the vice president in a difficult position.`\
+https://www.nytimes.com/video/podcasts/100000010880349/tucker-carlson-jd-vance-is-in-a-tough-spot.html
+
 **Ted Turner: The News Never Stops**\
 `Ted Turner, the visionary founder of CNN, introduced the 24-hour news cycle.`\
 https://www.nytimes.com/video/obituaries/100000004695622/obituary-ted-turner-cnn-the-news-never-stopped.html
