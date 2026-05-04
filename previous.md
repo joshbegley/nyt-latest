@@ -1,3 +1,7 @@
+**Tricked Into Fighting for Russia**\
+`Russia needs a lot of soldiers. Many Africans need work.`\
+https://www.nytimes.com/2026/05/04/world/africa-russia-ukraine-war-attacks-strait-hormuz.html
+
 **1,500 Beagles From Troubled Research Facility Are Getting New Homes**\
 `Last month, animal rights activists tried to steal some of the dogs from the Wisconsin facility, Ridglan Farms, but were thwarted by tear gas and rubber bullets.`\
 https://www.nytimes.com/2026/05/04/us/beagles-ridglan-farms-wisconsin.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/underst
 **The Met opens its fashion exhibition with big names and a new fund-raising record.**\
 ``\
 https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/the-met-opens-its-fashion-exhibition-with-big-names-and-a-new-fund-raising-record
-
-**The World Cup and War**\
-`We hear from players, coaches, fans, regional experts and human rights advocates on the geopolitical backdrop to World Cup 2026.`\
-https://www.nytimes.com/2026/05/04/podcasts/the-world-cup-and-war.html
 
