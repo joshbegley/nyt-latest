@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/05/04/world/middleeast/iran-trump-ships-hormuz-stra
 https://www.nytimes.com/2026/05/04/briefing/news-questions-answered.html
 
 **Rubio to Visit Rome, Officials Say, After Trump’s Feud With Pope and Meloni**\
-`Secretary of State Marco Rubio’s trip will come after President Trump criticized Pope Leo XIV and then turned on Prime Minister Giorgia Meloni for defending the pontiff.`\
+`Secretary of State Marco Rubio’s trip will come after President Trump criticized Pope Leo XIV and then turned on Prime Minister Giorgia Meloni of Italy for defending the pontiff.`\
 https://www.nytimes.com/2026/05/04/world/europe/rubio-rome-trump-pope-italy.html
 
 **Drone Hits a Moscow High-Rise Days Before a Major Military Parade**\
