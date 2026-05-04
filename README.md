@@ -1,3 +1,11 @@
+**Making Art With a ‘Sense of Responsibility’**\
+`The Kenyan British artist Michael Armitage, who is showing his paintings and studies in Venice, reflects on his Kenyan roots and his recent move to Indonesia.`\
+https://www.nytimes.com/2026/05/04/arts/design/michael-armitage-venice-biennale.html
+
+**‘I Have No Secrets’: At 90, a Revered Artist Finds Energy in His Art**\
+`The Korean artist Lee Ufan continues to work every day, and has three exhibitions on the horizon, including a display of his pivotal paintings at the Venice Biennale.`\
+https://www.nytimes.com/2026/05/04/arts/design/biennale-venice-lee-ufan-dia-exhibition.html
+
 **In Venice, an Ocean-Inspired Exhibition Takes Visitors Under the Sea**\
 `Inside a former convent on an island, immersive artworks invite visitors to “stretch their sense of self to include the vastness of the ocean.”`\
 https://www.nytimes.com/2026/05/04/arts/design/venice-biennale-whales-ocean-exhibition.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/04/business/economy/affordable-housing-return-on
 **Carney Pulls Canada Closer to Europe as Both Struggle With Trump**\
 `At a summit of European leaders, the Canadian prime minister was a special guest offering deals and friendship to jittery allies.`\
 https://www.nytimes.com/2026/05/04/world/canada/carney-europe-trump.html
-
-**Today, In Short**\
-`The Met Gala. Kacey Musgraves. And a treasure hunt in San Francisco.`\
-https://www.nytimes.com/2026/05/04/briefing/today-in-short.html
-
-**Europeans Prepare for a More Dangerous World in a Time of Economic Upheaval**\
-`A stalwart on defense spending, Poland is training its citizens in civil defense while balancing their jobs and families.`\
-https://www.nytimes.com/2026/05/04/business/poland-civil-defense-training.html
 
