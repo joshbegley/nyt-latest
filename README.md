@@ -1,3 +1,7 @@
+**Do Spinning Wind Turbines Really Mess With Radar Systems?**\
+`As Pentagon officials delay approval of wind farms, scientific studies show that they can distort radar systems, but the problem is manageable, researchers say.`\
+https://www.nytimes.com/2026/05/04/climate/wind-turbines-radar-systems.html
+
 **What to Know About the New Abortion Pill Case Before the Supreme Court**\
 `The Louisiana lawsuit, which seeks to block telehealth prescribing and mailing of the abortion pill mifepristone, has major implications for abortion access nationwide.`\
 https://www.nytimes.com/2026/05/04/well/abortion-pill-mifepristone-supreme-court-louisiana.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/04/well/cavity-filling-second-opinion.html
 **Meditating on Time and Place During a Leisurely Venice Bar Crawl**\
 `“You can’t escape drink in Venice,” one patron noted. “It’s a ritual.” An adopted Venetian, a reporter and a photographer wandered the city’s watering holes over one long aperitivo hour.`\
 https://www.nytimes.com/2026/05/04/arts/design/venice-italy-bar-crawl.html
-
-**Mapa: un terremoto de magnitud 5,7 sacude México**\
-`Mira la localización del epicentro del sismo y el área de movimiento.`\
-https://www.nytimes.com/es/interactive/2026/05/04/espanol/terremoto-mexico.html
 
