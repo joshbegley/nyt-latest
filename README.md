@@ -1,3 +1,7 @@
+**Pulitzer Prizes 2026: A Guide to the Winning Books and Finalists**\
+`“We the People,” by Jill Lepore, won the history prize, and Daniel Kraus received the fiction prize for “Angel Down.”`\
+https://www.nytimes.com/2026/05/04/books/pulitzer-prizes-books-winners-finalists.html
+
 **Our Pulitzer Prize-Winning Photographer’s Work From Gaza**\
 `The photographer Saher Alghorra reported on the Gaza conflict while enduring the dire conditions his images portrayed.`\
 https://www.nytimes.com/2026/05/04/world/middleeast/pulitzer-saher-alghorra-breaking-news-photography.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/04/world/asia/india-modi-hindu-bjp-west-bengal.h
 **Venice Showcases an Array of Global Art Stars During the Biennale**\
 `Marina Abramovic, Lorna Simpson, Arthur Jafa, Richard Prince and Peggy Guggenheim are among those being featured at museums and foundations during this year’s international art exhibition.`\
 https://www.nytimes.com/2026/05/04/arts/design/biennale-venice-galleries-international-works.html
-
-**A Dutch Art Studio Lights Up Venice’s Grand Canal**\
-`Lonneke Gordijn and Ralph Nauta of Studio Drift have brought their kinetic light sculptures outdoors at the Venice Biennale.`\
-https://www.nytimes.com/2026/05/04/arts/design/studio-drift-venice-biennale.html
 

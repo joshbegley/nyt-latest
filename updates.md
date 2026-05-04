@@ -1,3 +1,7 @@
+**Our Pulitzer Prize-Winning Photographer’s Work From Gaza**\
+`The photographer Saher Alghorra reported on the Gaza conflict while enduring the dire conditions his images portrayed.`\
+https://www.nytimes.com/2026/05/04/world/middleeast/pulitzer-saher-alghorra-breaking-news-photography.html
+
 **Review: Out, Damned Patriarchy! A Revisionist Ballet ‘Macbeth’**\
 `In Akram Khan’s new full-length work for Danish National Ballet, Lady Macbeth is a pure-intentioned heroine.`\
 https://www.nytimes.com/2026/05/04/arts/dance/review-macbeth-akram-khan-royal-danish-ballet.html
