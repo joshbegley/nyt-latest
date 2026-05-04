@@ -1,3 +1,15 @@
+**2026 Met Gala: All the Looks From Fashion’s Biggest Night**\
+`See the arrivals on the cobblestone carpet.`\
+https://www.nytimes.com/2026/05/04/style/met-gala-red-carpet-photos.html
+
+**American Commentator Who Worked for Russian TV Challenges Biden-era Charges**\
+`The Biden administration called Dimitri Simes, a former Trump adviser, a Russian propagandist. He says the charges against him violate free speech.`\
+https://www.nytimes.com/2026/05/04/us/politics/american-commentator-charges-russia.html
+
+**Blake Lively and Justin Baldoni Settle Their Legal Dispute**\
+`Ms. Lively had accused Mr. Baldoni of waging a smear campaign against her after she complained of harassment when making a film together. He had denied her accusation.`\
+https://www.nytimes.com/2026/05/04/movies/blake-lively-justin-baldoni-settlement.html
+
 **Blake Lively and Justin Baldoni Settle Their Legal Dispute**\
 `Ms. Lively had accused Mr. Baldoni of retaliating against her with a smear campaign after she complained of harassment while making a film together. He had denied her accusation.`\
 https://www.nytimes.com/2026/05/04/movies/blake-lively-justin-baldoni-settlement.html
