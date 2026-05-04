@@ -1,3 +1,31 @@
+**1,500 Beagles From Troubled Research Facility Are Getting New Homes**\
+`Last month, animal rights activists tried to steal some of the dogs from the Wisconsin facility, Ridglan Farms, but were thwarted by tear gas and rubber bullets.`\
+https://www.nytimes.com/2026/05/04/us/beagles-ridglan-farms-wisconsin.html
+
+**Read the document**\
+`Dimitri K. Simes filed a motion to dismiss Biden-era charges against him and his wife on First Amendment grounds.`\
+https://www.nytimes.com/interactive/2026/05/04/us/simes-motion.html
+
+**An N.B.A. Upset Forces a Showdown in Manhattan: Met Gala or Knicks Game?**\
+`A home playoff game on Monday night may pose an issue for Knicks superfans like Spike Lee and Timothée Chalamet.`\
+https://www.nytimes.com/2026/05/04/style/met-gala-or-knicks-game.html
+
+**Four Epstein Victims Ask N.Y. Lawmakers to Open His Estate to Lawsuits**\
+`New York State law prevents people from seeking punitive damages from the estate of someone who has died.`\
+https://www.nytimes.com/2026/05/04/nyregion/epstein-victims-new-york.html
+
+**After a Season Without Snow, Colorado Storm Could Be Its Biggest All Year**\
+`Snow in May is not rare in the Rocky Mountains. But this year, any snow at all is unusual.`\
+https://www.nytimes.com/2026/05/04/weather/colorado-snow-forecast.html
+
+**‘Liberation,’ a Memory Play About ’70s Feminism, Wins Drama Pulitzer**\
+`The prize board called the playwright Bess Wohl’s work “a striking blend of comedy and sincerity.”`\
+https://www.nytimes.com/2026/05/04/theater/liberation-pulitzer-drama-bess-wohl.html
+
+**‘You Just Can’t Get the Air In’: How Hantavirus Turns Deadly**\
+`Doctors say that the virus, which is rare, can quickly progress from flulike symptoms to something far more serious.`\
+https://www.nytimes.com/2026/05/04/well/hantavirus-infection-symptoms.html
+
 **2026 Met Gala: All the Looks From Fashion’s Biggest Night**\
 `See the arrivals on the cobblestone carpet.`\
 https://www.nytimes.com/2026/05/04/style/met-gala-red-carpet-photos.html
@@ -45,36 +73,4 @@ https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/the-met
 **The World Cup and War**\
 `We hear from players, coaches, fans, regional experts and human rights advocates on the geopolitical backdrop to World Cup 2026.`\
 https://www.nytimes.com/2026/05/04/podcasts/the-world-cup-and-war.html
-
-**New York Times Wins 3 Pulitzer Prizes**\
-`The Washington Post won the award for public service, considered the most prestigious of the Pulitzers, for its coverage of the Trump administration’s overhaul of federal agencies.`\
-https://www.nytimes.com/2026/05/04/business/media/pulitzer-prizes-2026.html
-
-**Pulitzer Prizes: 2026 Winners List**\
-`Here is the full list of winners and finalists.`\
-https://www.nytimes.com/2026/05/04/business/pulitzer-prizes-2026-winners-list.html
-
-**Pulitzer Prizes 2026: A Guide to the Winning Books and Finalists**\
-`“We the People,” by Jill Lepore, won the history prize, and Daniel Kraus received the fiction prize for “Angel Down.”`\
-https://www.nytimes.com/2026/05/04/books/pulitzer-prizes-books-winners-finalists.html
-
-**Our Pulitzer Prize-Winning Photographer’s Work From Gaza**\
-`The photographer Saher Alghorra reported on the Gaza conflict while enduring the dire conditions his images portrayed.`\
-https://www.nytimes.com/2026/05/04/world/middleeast/pulitzer-saher-alghorra-breaking-news-photography.html
-
-**Review: Out, Damned Patriarchy! A Revisionist Ballet ‘Macbeth’**\
-`In Akram Khan’s new full-length work for Danish National Ballet, Lady Macbeth is a pure-intentioned heroine.`\
-https://www.nytimes.com/2026/05/04/arts/dance/review-macbeth-akram-khan-royal-danish-ballet.html
-
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/heres-the-latest
-
-**U.S. Shot Down Iranian Missiles and Drones Aimed at American Vessels in Strait of Hormuz, Admiral Says**\
-`An exchange of fire threatened to shatter a fragile cease-fire as President Trump seeks to break Iran’s effective blockade of the waterway.`\
-https://www.nytimes.com/2026/05/04/us/politics/us-iran-attacks.html
-
-**Celebrations in India as Vote Counting Begins in State Elections**\
-`Vote counting has begun in India after over 154 million people cast their vote in state elections last month. The results could change the balance of power in the Parliament ahead of national elections in 2029.`\
-https://www.nytimes.com/video/world/asia/100000010878752/celebrations-in-india-as-vote-counting-begins-in-state-elections.html
 

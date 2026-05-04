@@ -1,3 +1,31 @@
+**1,500 Beagles From Troubled Research Facility Are Getting New Homes**\
+`Last month, animal rights activists tried to steal some of the dogs from the Wisconsin facility, Ridglan Farms, but were thwarted by tear gas and rubber bullets.`\
+https://www.nytimes.com/2026/05/04/us/beagles-ridglan-farms-wisconsin.html
+
+**Read the document**\
+`Dimitri K. Simes filed a motion to dismiss Biden-era charges against him and his wife on First Amendment grounds.`\
+https://www.nytimes.com/interactive/2026/05/04/us/simes-motion.html
+
+**An N.B.A. Upset Forces a Showdown in Manhattan: Met Gala or Knicks Game?**\
+`A home playoff game on Monday night may pose an issue for Knicks superfans like Spike Lee and Timothée Chalamet.`\
+https://www.nytimes.com/2026/05/04/style/met-gala-or-knicks-game.html
+
+**Four Epstein Victims Ask N.Y. Lawmakers to Open His Estate to Lawsuits**\
+`New York State law prevents people from seeking punitive damages from the estate of someone who has died.`\
+https://www.nytimes.com/2026/05/04/nyregion/epstein-victims-new-york.html
+
+**After a Season Without Snow, Colorado Storm Could Be Its Biggest All Year**\
+`Snow in May is not rare in the Rocky Mountains. But this year, any snow at all is unusual.`\
+https://www.nytimes.com/2026/05/04/weather/colorado-snow-forecast.html
+
+**‘Liberation,’ a Memory Play About ’70s Feminism, Wins Drama Pulitzer**\
+`The prize board called the playwright Bess Wohl’s work “a striking blend of comedy and sincerity.”`\
+https://www.nytimes.com/2026/05/04/theater/liberation-pulitzer-drama-bess-wohl.html
+
+**‘You Just Can’t Get the Air In’: How Hantavirus Turns Deadly**\
+`Doctors say that the virus, which is rare, can quickly progress from flulike symptoms to something far more serious.`\
+https://www.nytimes.com/2026/05/04/well/hantavirus-infection-symptoms.html
+
 **2026 Met Gala: All the Looks From Fashion’s Biggest Night**\
 `See the arrivals on the cobblestone carpet.`\
 https://www.nytimes.com/2026/05/04/style/met-gala-red-carpet-photos.html
