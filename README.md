@@ -1,5 +1,13 @@
+**2026 Met Gala: All the Looks From Fashion’s Biggest Night**\
+`See the arrivals on the cobblestone carpet.`\
+https://www.nytimes.com/2026/05/04/style/met-gala-red-carpet-photos.html
+
+**American Commentator Who Worked for Russian TV Challenges Biden-era Charges**\
+`The Biden administration called Dimitri Simes, a former Trump adviser, a Russian propagandist. He says the charges against him violate free speech.`\
+https://www.nytimes.com/2026/05/04/us/politics/american-commentator-charges-russia.html
+
 **Blake Lively and Justin Baldoni Settle Their Legal Dispute**\
-`Ms. Lively had accused Mr. Baldoni of retaliating against her with a smear campaign after she complained of harassment while making a film together. He had denied her accusation.`\
+`Ms. Lively had accused Mr. Baldoni of waging a smear campaign against her after she complained of harassment when making a film together. He had denied her accusation.`\
 https://www.nytimes.com/2026/05/04/movies/blake-lively-justin-baldoni-settlement.html
 
 **Un vehículo ‘monster truck’ arrolla al público y causa 3 muertes en Colombia**\
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/04/us/politics/us-iran-attacks.html
 **Celebrations in India as Vote Counting Begins in State Elections**\
 `Vote counting has begun in India after over 154 million people cast their vote in state elections last month. The results could change the balance of power in the Parliament ahead of national elections in 2029.`\
 https://www.nytimes.com/video/world/asia/100000010878752/celebrations-in-india-as-vote-counting-begins-in-state-elections.html
-
-**El calentamiento global podría cambiar los efectos de El Niño**\
-`Los meteorólogos dicen que es posible que se forme un potente patrón meteorológico de El Niño a finales de este año, y que se convierta en uno de los más fuertes de las últimas tres décadas.`\
-https://www.nytimes.com/es/2026/05/04/espanol/tiempo-y-clima/el-nino-calentamiento-global.html
-
-**White House Considers Vetting A.I. Models Before They Are Released**\
-`The Trump administration, which took a noninterventionist approach to artificial intelligence, is now discussing imposing oversight on A.I. models before they are made publicly available.`\
-https://www.nytimes.com/2026/05/04/technology/trump-ai-models.html
 

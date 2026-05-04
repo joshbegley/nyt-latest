@@ -1,3 +1,11 @@
+**Blake Lively and Justin Baldoni Settle Their Legal Dispute**\
+`Ms. Lively had accused Mr. Baldoni of retaliating against her with a smear campaign after she complained of harassment while making a film together. He had denied her accusation.`\
+https://www.nytimes.com/2026/05/04/movies/blake-lively-justin-baldoni-settlement.html
+
+**A ‘Ball Without Billionaires’ Kicks Off the First Monday in May**\
+`Labor unions from around the country staged a different kind of fashion show in downtown Manhattan.`\
+https://www.nytimes.com/2026/05/04/style/ball-without-billionaires-met-gala.html
+
 **Un vehículo ‘monster truck’ arrolla al público y causa 3 muertes en Colombia**\
 `El vehículo arrolló a una multitud en un espectáculo al aire libre en Popayán. Además de los fallecidos, causó lesiones a al menos otras 40 personas, dijeron las autoridades locales.`\
 https://www.nytimes.com/es/2026/05/04/espanol/america-latina/monster-truck-colombia.html

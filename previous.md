@@ -1,3 +1,7 @@
+**Blake Lively and Justin Baldoni Settle Their Legal Dispute**\
+`Ms. Lively had accused Mr. Baldoni of retaliating against her with a smear campaign after she complained of harassment while making a film together. He had denied her accusation.`\
+https://www.nytimes.com/2026/05/04/movies/blake-lively-justin-baldoni-settlement.html
+
 **Un vehículo ‘monster truck’ arrolla al público y causa 3 muertes en Colombia**\
 `El vehículo arrolló a una multitud en un espectáculo al aire libre en Popayán. Además de los fallecidos, causó lesiones a al menos otras 40 personas, dijeron las autoridades locales.`\
 https://www.nytimes.com/es/2026/05/04/espanol/america-latina/monster-truck-colombia.html
@@ -12,7 +16,7 @@ https://www.nytimes.com/video/podcasts/100000010880047/what-does-tucker-carlson-
 
 **A ‘Ball Without Billionaires’ Kicks Off the First Monday in May**\
 `Labor unions from around the country staged a different kind of fashion show in downtown Manhattan.`\
-https://www.nytimes.com/2026/05/04/style/a-ball-without-billionaires-kicks-off-the-first-monday-in-may.html
+https://www.nytimes.com/2026/05/04/style/ball-without-billionaires-met-gala.html
 
 **3 personas han muerto por posible brote de hantavirus en un crucero, dice la OMS**\
 `Según la organización, un caso de la infección fue confirmado en un laboratorio. Hay otros cinco casos sospechosos, agregó.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/04/espanol/tiempo-y-clima/el-nino-calentamien
 **White House Considers Vetting A.I. Models Before They Are Released**\
 `The Trump administration, which took a noninterventionist approach to artificial intelligence, is now discussing imposing oversight on A.I. models before they are made publicly available.`\
 https://www.nytimes.com/2026/05/04/technology/trump-ai-models.html
-
-**Daniel Radcliffe Takes the Mel Brooks Questionnaire**\
-`The actor and star of the one-man Broadway play “Every Brilliant Thing” takes a personality test devised by the comedy legend.`\
-https://www.nytimes.com/interactive/2026/05/04/t-magazine/radcliffe-brooks-questionnaire.html
 
