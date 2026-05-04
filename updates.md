@@ -1,3 +1,7 @@
+**‘The Comeback’ Season 3, Episode 7 Recap: Anywhere Else**\
+`Valerie gets answers about the leak. Mark gets a troubling tattoo.`\
+https://www.nytimes.com/2026/05/03/arts/television/the-comeback-recap-season-3-episode-7.html
+
 **10-Minute Challenge: ‘Cityscape’ by Romare Bearden**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://www.nytimes.com/interactive/2026/05/03/upshot/bearden-cityscape.html
