@@ -1,3 +1,35 @@
+**‘City of Glass’ Is Under Threat From Iran War**\
+`In India, Firozabad has depended on its glassmaking industry for centuries. Fuel prices are starting to shatter businesses already under pressure.`\
+https://www.nytimes.com/2026/05/04/business/india-iran-fuel-glass.html
+
+**Quote of the Day: A Female Trainer and a Back-of-the-Pack Horse Create a Historic Day**\
+`Quotation of the Day for Monday, May 4, 2026.`\
+https://www.nytimes.com/2026/05/04/pageoneplus/quote-of-the-day-a-female-trainer-and-a-back-of-the-pack-horse-create-a-historic-day.html
+
+**Did School Cellphone Bans Work? New Study Finds Mixed Results.**\
+`Cellphone bans got devices out of students’ hands, according to the first large study. But behavior and academics have not improved, at least so far.`\
+https://www.nytimes.com/2026/05/04/us/did-school-cellphone-bans-study.html
+
+**Defying the Censors Was Easy. Being a Good Comedian Is Harder.**\
+`Having gotten into trouble for making jokes critical of the Chinese government, the standup comic Chizi now lives in self-imposed exile. He’s finding that freedom imposes its own constraints.`\
+https://www.nytimes.com/2026/05/04/business/chizi-comedian-china-censorship.html
+
+**‘The Death Zone’: How Russia Is Luring Africans to Ukraine**\
+`A growing number of men across the continent say they are being promised jobs in Russia, only to be forced into the war. Some go as mercenaries, but many more are drawn unwittingly.`\
+https://www.nytimes.com/2026/05/04/world/africa/ukraine-russia-war-african-soldiers.html
+
+**Why Are Africans Fighting for Russia in Ukraine?**\
+`Some see a clear explanation: Russia needs more troops, and young men in Africa desperately need jobs.`\
+https://www.nytimes.com/2026/05/04/world/africa/africans-russia-war-ukraine.html
+
+**Can a Great American Songwriter Master the Mini Crossword?**\
+`Yes. In fact, four of them can.`\
+https://www.nytimes.com/2026/05/04/crosswords/songwriter-bonus-mini-crosswords.html
+
+**No Corrections: May 4, 2026**\
+`No corrections appeared in print on Monday, May 4, 2026.`\
+https://www.nytimes.com/2026/05/04/corrections/no-corrections-may-4-2026.html
+
 **En Costa Rica, conducir un coche eléctrico no es muy complicado**\
 `Costa Rica ha hecho más que la mayoría de los países para promover los vehículos eléctricos y casi uno de cada cinco coches nuevos que se venden es eléctrico.`\
 https://www.nytimes.com/es/2026/05/03/espanol/negocios/costa-rica-vehiculos-electricos-cargador.html
@@ -45,36 +77,4 @@ https://www.nytimes.com/2026/05/03/us/politics/trump-china-iran-war.html
 **What Is Hantavirus, Which Is Linked to the Deaths of 3 People Aboard a Cruise Ship?**\
 `Three people aboard a cruise ship sailing the Atlantic Ocean have died from what health officials suspect were hantavirus infections.`\
 https://www.nytimes.com/2026/05/03/well/what-is-hantavirus-cruise-ship.html
-
-**Oil Prices Edge Down While Stock Futures Inch Up**\
-`Oil prices fell and futures on the S&P 500 rose slightly on Sunday as investors reacted to continued uncertainty about the war in Iran.`\
-https://www.nytimes.com/2026/05/03/business/oil-prices-stocks-iran.html
-
-**8 Arrested at Protest Over ICE Detention Outside Brooklyn Hospital**\
-`Protesters clashed with the police outside Wyckoff Heights Medical Center, where federal immigration agents brought a detainee for evaluation and later dragged him to a waiting car.`\
-https://www.nytimes.com/2026/05/03/nyregion/ice-arrest-protest-nyc-hospital.html
-
-**‘This Place Is Fire’**\
-`Kate Schutzengel’s puzzle is for the romantics.`\
-https://www.nytimes.com/2026/05/03/crosswords/daily-puzzle-2026-05-04.html
-
-**The Widow of the Firefighter Slain by a Would-Be Assassin Speaks Out**\
-`The conspiracy theories around the Butler, Pa., assassination attempt hurt Helen Comperatore, but in this age of distrust, partisanship and social media, she nurtures a conspiracy theory of her own.`\
-https://www.nytimes.com/2026/05/03/us/politics/butler-pennsylvania-assassination-attempt-comperatore.html
-
-**DeepSeek’s Sequel**\
-`China made the inner workings of the A.I. model open to all, and that’s starting to look like a soft-power win.`\
-https://www.nytimes.com/2026/05/03/world/deepseek-china-ai-iran-india-elections.html
-
-**3 Dead of Suspected Hantavirus Infections on Cruise Ship, W.H.O. Says**\
-`One case of hantavirus infection has been confirmed in a laboratory, the organization said on Sunday. There are five additional suspected cases.`\
-https://www.nytimes.com/2026/05/03/well/cruise-ship-virus-fatal-outbreak.html
-
-**E.E.O.C. Investigating Discrimination Claim at The New York Times**\
-`The Equal Employment Opportunity Commission recently referred a reverse-discrimination complaint by an employee to the agency’s legal unit for review.`\
-https://www.nytimes.com/2026/05/03/business/economy/eeoc-discrimination-claim-new-york-times.html
-
-**Jack Thornell, Pulitzer Winning A.P. Photographer, Dies at 86**\
-`He captured one of the most wrenching moments of the civil rights struggle: the agony of James Meredith after he was shot on a Mississippi highway.`\
-https://www.nytimes.com/2026/05/03/obituaries/jack-thornell-dead.html
 
