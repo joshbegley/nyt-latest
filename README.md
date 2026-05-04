@@ -1,3 +1,7 @@
+**3 personas han muerto por posible brote de hantavirus en un crucero, dice la OMS**\
+`Según la organización, un caso de la infección fue confirmado en un laboratorio. Hay otros cinco casos sospechosos, agregó.`\
+https://www.nytimes.com/es/2026/05/04/espanol/ciencia-y-tecnologia/hantavirus-crucero.html
+
 **Tucker Carlson on Trump’s Decision to Attack Iran**\
 `On “The Interview,” Tucker Carlson talks about what he saw, and what he told the president, in the run-up to the attack on Iran.`\
 https://www.nytimes.com/video/podcasts/100000010880077/tucker-carlson-on-trumps-decision-to-attack-iran.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/05/04/world/iran-hormuz-ships-navy/heres-the-l
 **Monster Truck Kills 3 People After Driving Into Crowd in Colombia**\
 `The police are investigating the incident after a driver of a monster truck appeared to lose control of the vehicle after performing a stunt at an outdoor rally in Popayán on Sunday, killing three people and injuring 40 others.`\
 https://www.nytimes.com/video/world/americas/100000010878454/monster-truck-crash-colombia.html
-
-**Judge Questions Jail’s Treatment of Suspect in Press Gala Shooting**\
-`A federal magistrate ordered that the D.C. Department of Corrections explain why it had placed Cole Tomas Allen in especially restrictive conditions.`\
-https://www.nytimes.com/2026/05/04/us/politics/correspondents-dinner-shooting-suspect-suicide-watch.html
 
