@@ -1,3 +1,7 @@
+****\
+``\
+https://www.nytimes.com/video/embedded/world/asia/100000010878075/04int-hongkong-fire-family-26009.html
+
 **Trump se enfrenta a la realidad de la guerra en Irán**\
 `Las predicciones del presidente Trump de un conflicto relativamente corto con consecuencias económicas mínimas parecen desmoronarse.`\
 https://www.nytimes.com/es/2026/05/03/espanol/estados-unidos/trump-impopular-guerra-iran.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/03/business/devil-wears-prada-2-box-office.html
 **Spirit Airlines’ Demise Could Help Other Airlines**\
 `Even in its reduced state, the company played an important role in forcing other airlines to keep fares low, some experts said.`\
 https://www.nytimes.com/2026/05/03/business/spirit-airlines-shutdown-fares-industry-impact.html
-
-**Vogue Alumni Stage a Reunion for ‘The Devil Wears Prada 2’**\
-`A gaggle of former and current Vogue employees convened for a Saturday night screening of “The Devil Wears Prada 2.” The dress code for the evening? Interview chic.`\
-https://www.nytimes.com/2026/05/03/style/vogue-devil-wears-prada-2-movie.html
 
