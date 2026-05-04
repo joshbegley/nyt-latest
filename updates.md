@@ -1,3 +1,11 @@
+**Palabra del día: ‘encroach’**\
+`Esta palabra ha aparecido en 36 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/05/04/espanol/que-significa-encroach.html
+
+**La fiebre por los minerales críticos dispara la minería ilegal en la Amazonía**\
+`La demanda global de minerales críticos, que se usan para fabricar drones y vehículos eléctricos, está en aumento, lo que ha llevado una nueva ola de delincuencia a la selva tropical más grande del mundo.`\
+https://www.nytimes.com/es/2026/05/04/espanol/la-fiebre-por-los-minerales-criticos-dispara-la-mineria-ilegal-en-la-amazonia.html
+
 **La Gala del Met 2026: tema, código de vestimenta y todo lo que debes saber**\
 `Una de las presencias más esperadas es la de Beyoncé. Es copresidenta junto con Nicole Kidman, Venus Williams y la directora de contenidos de Condé Nast, Anna Wintour.`\
 https://www.nytimes.com/es/2026/05/04/espanol/estilos-de-vida/gala-met-2026-tema-codigo-beyonce.html
