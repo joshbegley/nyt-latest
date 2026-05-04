@@ -1,3 +1,7 @@
+**Carney Pulls Canada Closer to Europe as Both Struggle With Trump**\
+`At a summit of European leaders, the Canadian prime minister was a special guest offering deals and friendship to jittery allies.`\
+https://www.nytimes.com/2026/05/04/world/canada/carney-europe-trump.html
+
 **Today, In Short**\
 `The Met Gala. Kacey Musgraves. And a treasure hunt in San Francisco.`\
 https://www.nytimes.com/2026/05/04/briefing/today-in-short.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/04/business/dealbook/google-ai-white-house.html
 **At Least 10 Injured in Shooting at Lakeside Party in Oklahoma**\
 `The shooting took place near Arcadia Lake, northeast of Oklahoma City, where a crowd of young people was having a party, the police said.`\
 https://www.nytimes.com/2026/05/04/us/oklahoma-shooting-lake-arcadia.html
-
-**Washington, D.C. Mayoral Election 2026: Latest Polls**\
-`Track the latest polls in the Washington, D.C., mayoral election.`\
-https://www.nytimes.com/interactive/polls/washington-dc-mayor-election-polls-2026.html
 
