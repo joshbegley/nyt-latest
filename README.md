@@ -38,8 +38,8 @@ https://www.nytimes.com/interactive/polls/washington-dc-mayor-election-polls-202
 `The driver of the truck appeared to lose control of the vehicle after performing a stunt at an outdoor rally in Popayán.`\
 https://www.nytimes.com/2026/05/04/world/americas/monster-truck-colombia-crash.html
 
-**Iran Threatens Ships Over Trump Plan to Break Iran’s Blockade**\
-`A senior Iranian military official warned that any vessel that tried to cross the Strait of Hormuz without permission would be “at risk.”`\
+**Iran Threatens Ships Over Trump Plan to Break Strait of Hormuz Blockade**\
+`A senior Iranian military official warned that any vessel that tried to cross the waterway, which is vital to global oil shipments, would be “at risk” without Iran’s consent.`\
 https://www.nytimes.com/2026/05/04/world/middleeast/iran-trump-ships-hormuz-strait.html
 
 **Asked and Answered**\
