@@ -1,3 +1,19 @@
+**Making Art With a ‘Sense of Responsibility’**\
+`The Kenyan British artist Michael Armitage, who is showing his paintings and studies in Venice, reflects on his Kenyan roots and his recent move to Indonesia.`\
+https://www.nytimes.com/2026/05/04/arts/design/michael-armitage-venice-biennale.html
+
+**‘I Have No Secrets’: At 90, a Revered Artist Finds Energy in His Art**\
+`The Korean artist Lee Ufan continues to work every day, and has three exhibitions on the horizon, including a display of his pivotal paintings at the Venice Biennale.`\
+https://www.nytimes.com/2026/05/04/arts/design/biennale-venice-lee-ufan-dia-exhibition.html
+
+**In Venice, an Ocean-Inspired Exhibition Takes Visitors Under the Sea**\
+`Inside a former convent on an island, immersive artworks invite visitors to “stretch their sense of self to include the vastness of the ocean.”`\
+https://www.nytimes.com/2026/05/04/arts/design/venice-biennale-whales-ocean-exhibition.html
+
+**Electrical Fire Closes ‘Book of Mormon’ Theater Indefinitely**\
+`The New York Fire Department said there was “substantial damage” to a room containing lighting equipment at the Eugene O’Neill Theater in Manhattan.`\
+https://www.nytimes.com/2026/05/04/theater/broadway-theater-fire-eugene-oneill-book-of-mormon.html
+
 **Anthropic and Wall Street Giants Join Forces to Create New A.I. Firm**\
 `Blackstone and Goldman Sachs are among the investors in the new firm, which will help integrate Anthropic’s A.I. model Claude into their systems.`\
 https://www.nytimes.com/2026/05/04/business/anthropic-blackstone-goldman-artificial-intelligence-firm.html
