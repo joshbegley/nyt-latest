@@ -1,3 +1,7 @@
+**Washington, D.C. Mayoral Election 2026: Latest Polls**\
+`Track the latest polls in the Washington, D.C., mayoral election.`\
+https://www.nytimes.com/interactive/polls/washington-dc-mayor-election-polls-2026.html
+
 **John Sterling, the Yankees’ Most Enduring Announcer, Dies at 87**\
 `He called over 5,600 games, more than any other announcer for the team, and was known for his personalized, slightly wacky home run calls.`\
 https://www.nytimes.com/2026/05/04/sports/john-sterling-dead.html

@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/05/04/business/dealbook/google-ai-white-house.html
 https://www.nytimes.com/2026/05/04/us/oklahoma-shooting-lake-arcadia.html
 
 **Washington, D.C. Mayoral Election 2026: Latest Polls**\
-`Track the latest polls in the Washington, D.C. mayoral election.`\
+`Track the latest polls in the Washington, D.C., mayoral election.`\
 https://www.nytimes.com/interactive/polls/washington-dc-mayor-election-polls-2026.html
 
 **Monster Truck Drives Into Crowd in Colombia, Killing 3**\
