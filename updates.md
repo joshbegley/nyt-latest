@@ -1,3 +1,15 @@
+**S.E.C. Settles Lawsuit Against Elon Musk Over His Twitter Disclosures**\
+`The agency, which has been pulling back on lawsuits against major companies, ended a case that had accused Mr. Musk of hiding his purchases of Twitter stock. He agreed to pay $1.5 million.`\
+https://www.nytimes.com/2026/05/04/technology/musk-sec-settlement-twitter.html
+
+**Who Isn’t Going to the Met Gala?**\
+`Some luminaries had scheduling conflicts, but there were some who chose not to attend to make a statement.`\
+https://www.nytimes.com/2026/05/04/style/met-gala-zendaya-skipping.html
+
+**Soil at D.C. Golf Course Where East Wing Debris Was Dumped Contains Toxic Metals**\
+`The National Park Service said the dump of debris, between the fourth and ninth holes, does not exceed environmental limits. Opponents disagree.`\
+https://www.nytimes.com/2026/05/04/climate/east-potomac-golf-debris-toxic.html
+
 **Mark Zuckerberg Quietly Attends His First Met Gala**\
 `The former nerd completes his fashion Met-amorphosis.`\
 https://www.nytimes.com/2026/05/04/style/mark-zuckerberg-met-gala.html
