@@ -1,3 +1,19 @@
+**Trump Administration Orders Rapid End to Some Hunting Rules on Federal Lands**\
+`Internal Interior Department documents show parks are imposing sweeping changes like expanding areas where firearms can by used and allowing game to be cleaned in restrooms.`\
+https://www.nytimes.com/2026/05/04/climate/hunting-federal-lands-burgum.html
+
+**Modi’s Hindu Nationalists Conquer a Bastion of India’s Opposition**\
+`The party of Prime Minister Narendra Modi took control of West Bengal for the first time and made gains around the country. Its defeated opponents accused it of cheating.`\
+https://www.nytimes.com/2026/05/04/world/asia/india-modi-hindu-bjp-west-bengal.html
+
+**Venice Showcases an Array of Global Art Stars During the Biennale**\
+`Marina Abramovic, Lorna Simpson, Arthur Jafa, Richard Prince and Peggy Guggenheim are among those being featured at museums and foundations during this year’s international art exhibition.`\
+https://www.nytimes.com/2026/05/04/arts/design/biennale-venice-galleries-international-works.html
+
+**A Dutch Art Studio Lights Up Venice’s Grand Canal**\
+`Lonneke Gordijn and Ralph Nauta of Studio Drift have brought their kinetic light sculptures outdoors at the Venice Biennale.`\
+https://www.nytimes.com/2026/05/04/arts/design/studio-drift-venice-biennale.html
+
 **Making Art With a ‘Sense of Responsibility’**\
 `The Kenyan British artist Michael Armitage, who is showing his paintings and studies in Venice, reflects on his Kenyan roots and his recent move to Indonesia.`\
 https://www.nytimes.com/2026/05/04/arts/design/michael-armitage-venice-biennale.html
@@ -12,7 +28,7 @@ https://www.nytimes.com/2026/05/04/arts/design/venice-biennale-whales-ocean-exhi
 
 **Anthropic and Wall Street Giants Join Forces to Create New A.I. Firm**\
 `Blackstone and Goldman Sachs are among the investors in the new firm, which will help integrate Anthropic’s A.I. model Claude into their systems.`\
-https://www.nytimes.com/2026/05/04/business/anthropic-blackstone-goldman-artificial-intelligence-firm.html
+https://www.nytimes.com/2026/05/04/business/anthropic-blackstone-goldman-sachs-artificial-intelligence-firm.html
 
 **2 Dead After Car Hits Crowd in Germany**\
 `Officials in Leipzig, where the incident occurred, did not immediately say if it was an accident or an attack. The driver was arrested.`\
@@ -61,20 +77,4 @@ https://www.nytimes.com/es/interactive/2026/05/04/espanol/terremoto-mexico.html
 **Map: 5.7-Magnitude Earthquake Shakes Mexico**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/05/04/world/americas/quake-tracker-mexico.html
-
-**Britney Spears Pleads Guilty to Reckless Driving After D.U.I. Charge**\
-`As part of a plea deal, the pop star will serve 12 months probation, complete a three-month substance abuse program and pay a modest fine.`\
-https://www.nytimes.com/2026/05/04/arts/music/britney-spears-pleads-guilty-dui.html
-
-**Una criatura marina azul y con tentáculos invade las playas de California**\
-`La vida marina gelatinosa de colores brillantes, llamada Velella velella, aparece cada pocos años cuando soplan vientos fuertes en la dirección adecuada, dijeron los científicos.`\
-https://www.nytimes.com/es/2026/05/04/espanol/estados-unidos/velella-playas-california.html
-
-**The Return for These Investors Isn’t Money, It’s More Affordable Housing**\
-`Local governments are trying to create housing that is permanently affordable by investing directly in construction. They are rewriting how housing programs have traditionally operated.`\
-https://www.nytimes.com/2026/05/04/business/economy/affordable-housing-return-on-investment.html
-
-**Carney Pulls Canada Closer to Europe as Both Struggle With Trump**\
-`At a summit of European leaders, the Canadian prime minister was a special guest offering deals and friendship to jittery allies.`\
-https://www.nytimes.com/2026/05/04/world/canada/carney-europe-trump.html
 
