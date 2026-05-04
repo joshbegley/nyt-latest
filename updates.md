@@ -1,3 +1,7 @@
+**At Least 23 Injured in Shooting at Lakeside Party in Oklahoma**\
+`The shooting took place near Arcadia Lake, northeast of Oklahoma City, where a crowd of young people was having a party, the police said.`\
+https://www.nytimes.com/2026/05/04/us/oklahoma-shooting-lake-arcadia.html
+
 **Carney Pulls Canada Closer to Europe as Both Struggle With Trump**\
 `At a summit of European leaders, the Canadian prime minister was a special guest offering deals and friendship to jittery allies.`\
 https://www.nytimes.com/2026/05/04/world/canada/carney-europe-trump.html
