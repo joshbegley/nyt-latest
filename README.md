@@ -1,3 +1,7 @@
+**What Does Tucker Carlson Really Believe? I Went to Maine to Find Out.**\
+`Tucker Carlson talks with Lulu Garcia-Navarro about his anti-Trump conversion, and the cracks in the MAGA movement.`\
+https://www.nytimes.com/video/podcasts/100000010880047/what-does-tucker-carlson-really-believe-i-went-to-maine-to-find-out.html
+
 **A ‘Ball Without Billionaires’ Kicks Off the First Monday in May**\
 `Labor unions from around the country staged a different kind of fashion show in downtown Manhattan.`\
 https://www.nytimes.com/2026/05/04/style/a-ball-without-billionaires-kicks-off-the-first-monday-in-may.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/04/espanol/cultura/ice-hermanos-mariachi-kace
 **headline test**\
 `summary test`\
 https://www.nytimes.com/video/embedded/arts/100000010879886/headline-test.html
-
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/05/04/world/iran-hormuz-ships-navy/heres-the-latest
 

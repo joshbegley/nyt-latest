@@ -1,3 +1,7 @@
+**A ‘Ball Without Billionaires’ Kicks Off the First Monday in May**\
+`Labor unions from around the country staged a different kind of fashion show in downtown Manhattan.`\
+https://www.nytimes.com/2026/05/04/style/a-ball-without-billionaires-kicks-off-the-first-monday-in-may.html
+
 **3 personas han muerto por posible brote de hantavirus en un crucero, dice la OMS**\
 `Según la organización, un caso de la infección fue confirmado en un laboratorio. Hay otros cinco casos sospechosos, agregó.`\
 https://www.nytimes.com/es/2026/05/04/espanol/ciencia-y-tecnologia/hantavirus-crucero.html
