@@ -1,3 +1,11 @@
+**Ted Turner: The News Never Stops**\
+`Ted Turner, the visionary founder of CNN, introduced the 24-hour news cycle.`\
+https://www.nytimes.com/video/obituaries/100000004695622/obituary-ted-turner-cnn-the-news-never-stopped.html
+
+**Student News Quiz: Supreme Court, Movie Sequel, Middle Schoolers**\
+`Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
+https://www.nytimes.com/interactive/2026/05/04/learning/04StudentNewsQuiz.html
+
 **California Seeks ‘Historic’ Fine Against State Farm: Just $2 Million**\
 `Regulators say the penalty is the highest ever sought, but a cap on each violation would soften the blow for California’s largest insurer.`\
 https://www.nytimes.com/2026/05/04/realestate/california-state-farm-fires-insurance.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/podcasts/100000010880457/who-do-you-think-is-more-
 **What Will the May Primaries Reveal About Trump’s Power Over Republicans?**\
 `A series of Republican contests will test his grip on the party.`\
 https://www.nytimes.com/2026/05/04/us/politics/may-primary-elections-trump-republicans.html
-
-**Tucker Carlson: JD Vance Is ‘in a Tough Spot’**\
-`Tucker Carlson said he would “always love JD Vance as a man.” But he thinks the war in Iran has put the vice president in a difficult position.`\
-https://www.nytimes.com/video/podcasts/100000010880349/tucker-carlson-jd-vance-is-in-a-tough-spot.html
-
-**Tricked Into Fighting for Russia**\
-`Russia needs a lot of soldiers. Many Africans need work.`\
-https://www.nytimes.com/2026/05/04/world/africa-russia-ukraine-war-attacks-strait-hormuz.html
 

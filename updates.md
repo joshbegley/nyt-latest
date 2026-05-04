@@ -1,3 +1,11 @@
+**Ted Turner: The News Never Stops**\
+`Ted Turner, the visionary founder of CNN, introduced the 24-hour news cycle.`\
+https://www.nytimes.com/video/obituaries/100000004695622/obituary-ted-turner-cnn-the-news-never-stopped.html
+
+**Student News Quiz: Supreme Court, Movie Sequel, Middle Schoolers**\
+`Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
+https://www.nytimes.com/interactive/2026/05/04/learning/04StudentNewsQuiz.html
+
 **California Seeks ‘Historic’ Fine Against State Farm: Just $2 Million**\
 `Regulators say the penalty is the highest ever sought, but a cap on each violation would soften the blow for California’s largest insurer.`\
 https://www.nytimes.com/2026/05/04/realestate/california-state-farm-fires-insurance.html
