@@ -1,3 +1,11 @@
+**Mark Zuckerberg Quietly Attends His First Met Gala**\
+`The former nerd completes his fashion Met-amorphosis.`\
+https://www.nytimes.com/2026/05/04/style/mark-zuckerberg-met-gala.html
+
+**Kennedy Center Ticketing Union Files Labor Charge Over Layoffs**\
+`The International Alliance of Theatrical Stage Employees challenged the terminations in a complaint to the National Labor Relations Board.`\
+https://www.nytimes.com/2026/05/04/arts/music/kennedy-center-ticketing-union-labor-charge-layoffs.html
+
 **Appeals Court Blocks Ex-Prisoner From Taking Office in New Orleans**\
 `Calvin Duncan arrived for his first day as the newly elected criminal court clerk, a job the state wants to eliminate. Then a federal court intervened.`\
 https://www.nytimes.com/2026/05/04/us/calvin-duncan-criminal-court-clerk-new-orleans.html
@@ -65,12 +73,4 @@ https://www.nytimes.com/2026/05/04/weather/colorado-snow-forecast.html
 **‘Liberation,’ a Memory Play About ’70s Feminism, Wins Drama Pulitzer**\
 `The prize board called the playwright Bess Wohl’s work “a striking blend of comedy and sincerity.”`\
 https://www.nytimes.com/2026/05/04/theater/liberation-pulitzer-drama-bess-wohl.html
-
-**‘You Just Can’t Get the Air In’: How Hantavirus Turns Deadly**\
-`Doctors say that the virus, which is rare, can quickly progress from flulike symptoms to something far more serious.`\
-https://www.nytimes.com/2026/05/04/well/hantavirus-infection-symptoms.html
-
-**2026 Met Gala: All the Looks From Fashion’s Biggest Night**\
-`See the arrivals on the cobblestone carpet.`\
-https://www.nytimes.com/2026/05/04/style/met-gala-red-carpet-photos.html
 

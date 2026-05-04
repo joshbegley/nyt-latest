@@ -1,3 +1,11 @@
+**Mark Zuckerberg Quietly Attends His First Met Gala**\
+`The former nerd completes his fashion Met-amorphosis.`\
+https://www.nytimes.com/2026/05/04/style/mark-zuckerberg-met-gala.html
+
+**Kennedy Center Ticketing Union Files Labor Charge Over Layoffs**\
+`The International Alliance of Theatrical Stage Employees challenged the terminations in a complaint to the National Labor Relations Board.`\
+https://www.nytimes.com/2026/05/04/arts/music/kennedy-center-ticketing-union-labor-charge-layoffs.html
+
 **Appeals Court Blocks Ex-Prisoner From Taking Office in New Orleans**\
 `Calvin Duncan arrived for his first day as the newly elected criminal court clerk, a job the state wants to eliminate. Then a federal court intervened.`\
 https://www.nytimes.com/2026/05/04/us/calvin-duncan-criminal-court-clerk-new-orleans.html
