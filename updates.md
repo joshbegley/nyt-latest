@@ -1,3 +1,15 @@
+**Hong Kong Residents Return to Burned Homes**\
+`Residents of Wang Fuk Court were recently allowed back home for the first time in months after a fire raged across their apartment complex in Hong Kong.`\
+https://www.nytimes.com/video/world/asia/100000010864756/hong-kong-apartment-fire-residents-return.html
+
+**Three Generations Lost: A Son’s Search for Justice After the Hong Kong Fire**\
+`Lee Chun Ho lost four members of his household in last November’s apartment-tower blaze. He’s now telling an investigative committee what contractors ignored.`\
+https://www.nytimes.com/2026/05/04/world/asia/hong-kong-apartment-fire-family.html
+
+**Pakistan Says It Helped Transfer Iranian Crew From Ship That U.S. Seized**\
+`Describing the transfer of the crew from the MV Touska cargo ship back to Iran as a ‘confidence-building measure’ between U.S. and Iranian officials, Pakistan again plays a mediating role.`\
+https://www.nytimes.com/2026/05/04/world/middleeast/iran-ship-crew-pakistan.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/05/04/crosswords/spelling-bee-forum.html
