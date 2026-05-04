@@ -1,3 +1,7 @@
+**U.S. Shot Down Iranian Missiles and Drones Aimed at American Vessels in Strait of Hormuz, Admiral Says**\
+`An exchange of fire threatened to shatter a fragile cease-fire as President Trump seeks to break Iran’s effective blockade of the waterway.`\
+https://www.nytimes.com/2026/05/04/us/politics/us-iran-attacks.html
+
 **U.S. Shot Down Iranian Missiles and Drones in Strait of Hormuz, Admiral Says**\
 `An exchange of fire threatened to shatter a fragile cease-fire as President Trump seeks to break Iran’s effective blockade of the waterway.`\
 https://www.nytimes.com/2026/05/04/us/politics/us-iran-attacks.html
