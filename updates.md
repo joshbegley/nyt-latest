@@ -1,3 +1,7 @@
+**Tucker Carlson on Trump’s Decision to Attack Iran**\
+`On “The Interview,” Tucker Carlson talks about what he saw, and what he told the president, in the run-up to the attack on Iran.`\
+https://www.nytimes.com/video/podcasts/100000010880077/tucker-carlson-on-trumps-decision-to-attack-iran.html
+
 **Understanding the ‘body types’ on display at this year’s fashion exhibition.**\
 ``\
 https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/understanding-the-body-types-on-display-at-this-years-fashion-exhibition
