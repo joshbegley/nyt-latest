@@ -1,3 +1,11 @@
+**Mapa: un terremoto de magnitud 5,7 sacude México**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/es/interactive/2026/05/04/espanol/terremoto-mexico.html
+
+**Britney Spears Pleads Guilty to Reckless Driving After D.U.I. Charge**\
+`As part of a plea deal, the pop star will serve 12 months probation, complete a three-month substance abuse program and pay a modest fine.`\
+https://www.nytimes.com/2026/05/04/arts/music/britney-spears-pleads-guilty-dui.html
+
 **A Cavity Doesn’t Always Need a Filling**\
 `How to weigh your dental options.`\
 https://www.nytimes.com/2026/05/04/well/cavity-filling-second-opinion.html
