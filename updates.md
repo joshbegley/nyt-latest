@@ -1,3 +1,15 @@
+**Britney Spears Pleads Guilty to D.U.I.**\
+`The pop star was arrested in March after officers in California observed her driving erratically. She later checked herself into a treatment facility.`\
+https://www.nytimes.com/2026/05/04/arts/music/britney-spears-pleads-guilty-dui.html
+
+**Una criatura marina azul y con tentáculos invade las playas de California**\
+`La vida marina gelatinosa de colores brillantes, llamada Velella velella, aparece cada pocos años cuando soplan vientos fuertes en la dirección adecuada, dijeron los científicos.`\
+https://www.nytimes.com/es/2026/05/04/espanol/estados-unidos/velella-playas-california.html
+
+**The Return for These Investors Isn’t Money, It’s More Affordable Housing**\
+`Local governments are trying to create housing that is permanently affordable by investing directly in construction. They are rewriting how housing programs have traditionally operated.`\
+https://www.nytimes.com/2026/05/04/business/economy/affordable-housing-return-on-investment.html
+
 **At Least 23 Injured in Shooting at Lakeside Party in Oklahoma**\
 `The shooting took place near Arcadia Lake, northeast of Oklahoma City, where a crowd of young people was having a party, the police said.`\
 https://www.nytimes.com/2026/05/04/us/oklahoma-shooting-lake-arcadia.html

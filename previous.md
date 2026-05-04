@@ -1,3 +1,15 @@
+**Britney Spears Pleads Guilty to D.U.I.**\
+`The pop star was arrested in March after officers in California observed her driving erratically. She later checked herself into a treatment facility.`\
+https://www.nytimes.com/2026/05/04/arts/music/britney-spears-pleads-guilty-dui.html
+
+**Una criatura marina azul y con tentáculos invade las playas de California**\
+`La vida marina gelatinosa de colores brillantes, llamada Velella velella, aparece cada pocos años cuando soplan vientos fuertes en la dirección adecuada, dijeron los científicos.`\
+https://www.nytimes.com/es/2026/05/04/espanol/estados-unidos/velella-playas-california.html
+
+**The Return for These Investors Isn’t Money, It’s More Affordable Housing**\
+`Local governments are trying to create housing that is permanently affordable by investing directly in construction. They are rewriting how housing programs have traditionally operated.`\
+https://www.nytimes.com/2026/05/04/business/economy/affordable-housing-return-on-investment.html
+
 **Carney Pulls Canada Closer to Europe as Both Struggle With Trump**\
 `At a summit of European leaders, the Canadian prime minister was a special guest offering deals and friendship to jittery allies.`\
 https://www.nytimes.com/2026/05/04/world/canada/carney-europe-trump.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/04/arts/design-gropius-house-contest.html
 **3 Killed and 14 Injured in Upper Manhattan Fire**\
 `The fire, at a six-story apartment building in the Inwood neighborhood, also displaced more than 100 residents, officials said.`\
 https://www.nytimes.com/2026/05/04/nyregion/nyc-fire-inwood.html
-
-**John Sterling, the Yankees’ Most Enduring Announcer, Dies at 87**\
-`He called over 5,600 games, more than any other announcer for the team, and was known for his personalized, slightly wacky home run calls.`\
-https://www.nytimes.com/2026/05/04/sports/john-sterling-dead.html
-
-**What Was Discussed at Google’s White House Meeting About A.I.**\
-`The technology giant met with administration officials last week to address a growing concern in Washington: insufficient computing power for artificial intelligence.`\
-https://www.nytimes.com/2026/05/04/business/dealbook/google-ai-white-house.html
-
-**At Least 23 Injured in Shooting at Lakeside Party in Oklahoma**\
-`The shooting took place near Arcadia Lake, northeast of Oklahoma City, where a crowd of young people was having a party, the police said.`\
-https://www.nytimes.com/2026/05/04/us/oklahoma-shooting-lake-arcadia.html
 
