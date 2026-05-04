@@ -1,3 +1,11 @@
+**What Will the May Primaries Reveal About Trump’s Power Over Republicans?**\
+`A series of Republican contests will test his grip on the party.`\
+https://www.nytimes.com/2026/05/04/us/politics/may-primary-elections-trump-republicans.html
+
+**Tucker Carlson: JD Vance Is ‘in a Tough Spot’**\
+`Tucker Carlson said he would “always love JD Vance as a man.” But he thinks the war in Iran has put the vice president in a difficult position.`\
+https://www.nytimes.com/video/podcasts/100000010880349/tucker-carlson-jd-vance-is-in-a-tough-spot.html
+
 **Tricked Into Fighting for Russia**\
 `Russia needs a lot of soldiers. Many Africans need work.`\
 https://www.nytimes.com/2026/05/04/world/africa-russia-ukraine-war-attacks-strait-hormuz.html

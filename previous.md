@@ -1,3 +1,11 @@
+**What Will the May Primaries Reveal About Trump’s Power Over Republicans?**\
+`A series of Republican contests will test his grip on the party.`\
+https://www.nytimes.com/2026/05/04/us/politics/may-primary-elections-trump-republicans.html
+
+**Tucker Carlson: JD Vance Is ‘in a Tough Spot’**\
+`Tucker Carlson said he would “always love JD Vance as a man.” But he thinks the war in Iran has put the vice president in a difficult position.`\
+https://www.nytimes.com/video/podcasts/100000010880349/tucker-carlson-jd-vance-is-in-a-tough-spot.html
+
 **Tricked Into Fighting for Russia**\
 `Russia needs a lot of soldiers. Many Africans need work.`\
 https://www.nytimes.com/2026/05/04/world/africa-russia-ukraine-war-attacks-strait-hormuz.html
@@ -65,12 +73,4 @@ https://www.nytimes.com/es/2026/05/04/espanol/ciencia-y-tecnologia/hantavirus-cr
 **Tucker Carlson on Trump’s Decision to Attack Iran**\
 `On “The Interview,” Tucker Carlson talks about what he saw, and what he told the president, in the run-up to the attack on Iran.`\
 https://www.nytimes.com/video/podcasts/100000010880077/tucker-carlson-on-trumps-decision-to-attack-iran.html
-
-**Understanding the ‘body types’ on display at this year’s fashion exhibition.**\
-``\
-https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/understanding-the-body-types-on-display-at-this-years-fashion-exhibition
-
-**The Met opens its fashion exhibition with big names and a new fund-raising record.**\
-``\
-https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/the-met-opens-its-fashion-exhibition-with-big-names-and-a-new-fund-raising-record
 
