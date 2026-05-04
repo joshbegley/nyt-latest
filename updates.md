@@ -1,3 +1,23 @@
+**Anthropic and Wall Street Giants Join Forces to Create New A.I. Firm**\
+`Blackstone and Goldman Sachs are among the investors in the new firm, which will help integrate Anthropic’s A.I. model Claude into their systems.`\
+https://www.nytimes.com/2026/05/04/business/anthropic-blackstone-goldman-artificial-intelligence-firm.html
+
+**2 Dead After Car Hits Crowd in Germany**\
+`Officials in Leipzig, where the incident occurred, did not immediately say if it was an accident or an attack. The driver was arrested.`\
+https://www.nytimes.com/2026/05/04/world/europe/leipzig-car-ramming-germany.html
+
+**Reducing Highway Deaths Involving Trucks**\
+`Readers respond to a guest essay faulting regulators. Also: The Democrats fight back.`\
+https://www.nytimes.com/2026/05/04/opinion/trucks-highway-deaths.html
+
+**Electrical Fire Closes ‘Book of Mormon’ Theater Indefinitely**\
+`The New York Fire Department said there was “substantial damage” to a room containing lighting equipment.`\
+https://www.nytimes.com/2026/05/04/theater/broadway-theater-fire-eugene-oneill-book-of-mormon.html
+
+**Doris Fisher, Co-Founder of the Gap, Dies at 94**\
+`The company she started in 1969 with her husband, Don, grew from a single store selling jeans and records to a $16 billion brand that remade the apparel industry.`\
+https://www.nytimes.com/2026/05/04/business/doris-fisher-dead.html
+
 **A Show in Rome Sheds New Light on Francesca Woodman’s Haunting Images**\
 `The American photographer died at just 22, and yet the beautiful, unsettling work she created continues to influence art and artists. Why?`\
 https://www.nytimes.com/2026/05/04/arts/design/gagosian-rome-francesca-woodman.html

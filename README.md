@@ -1,3 +1,7 @@
+**In Venice, an Ocean-Inspired Exhibition Takes Visitors Under the Sea**\
+`Inside a former convent on an island, immersive artworks invite visitors to “stretch their sense of self to include the vastness of the ocean.”`\
+https://www.nytimes.com/2026/05/04/arts/design/venice-biennale-whales-ocean-exhibition.html
+
 **Anthropic and Wall Street Giants Join Forces to Create New A.I. Firm**\
 `Blackstone and Goldman Sachs are among the investors in the new firm, which will help integrate Anthropic’s A.I. model Claude into their systems.`\
 https://www.nytimes.com/2026/05/04/business/anthropic-blackstone-goldman-artificial-intelligence-firm.html
@@ -11,7 +15,7 @@ https://www.nytimes.com/2026/05/04/world/europe/leipzig-car-ramming-germany.html
 https://www.nytimes.com/2026/05/04/opinion/trucks-highway-deaths.html
 
 **Electrical Fire Closes ‘Book of Mormon’ Theater Indefinitely**\
-`The New York Fire Department said there was “substantial damage” to a room containing lighting equipment.`\
+`The New York Fire Department said there was “substantial damage” to a room containing lighting equipment at the Eugene O’Neill Theater in Manhattan.`\
 https://www.nytimes.com/2026/05/04/theater/broadway-theater-fire-eugene-oneill-book-of-mormon.html
 
 **Doris Fisher, Co-Founder of the Gap, Dies at 94**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/04/briefing/today-in-short.html
 **Europeans Prepare for a More Dangerous World in a Time of Economic Upheaval**\
 `A stalwart on defense spending, Poland is training its citizens in civil defense while balancing their jobs and families.`\
 https://www.nytimes.com/2026/05/04/business/poland-civil-defense-training.html
-
-****\
-`Civilians practicing first-aid techniques during an emergency preparedness training session held by Poland’s 133 Light Infantry Battalion.`\
-https://www.nytimes.com/video/embedded/world/europe/100000010856237/22vid-poland-embed-1.html
 

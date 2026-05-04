@@ -1,3 +1,23 @@
+**Anthropic and Wall Street Giants Join Forces to Create New A.I. Firm**\
+`Blackstone and Goldman Sachs are among the investors in the new firm, which will help integrate Anthropic’s A.I. model Claude into their systems.`\
+https://www.nytimes.com/2026/05/04/business/anthropic-blackstone-goldman-artificial-intelligence-firm.html
+
+**2 Dead After Car Hits Crowd in Germany**\
+`Officials in Leipzig, where the incident occurred, did not immediately say if it was an accident or an attack. The driver was arrested.`\
+https://www.nytimes.com/2026/05/04/world/europe/leipzig-car-ramming-germany.html
+
+**Reducing Highway Deaths Involving Trucks**\
+`Readers respond to a guest essay faulting regulators. Also: The Democrats fight back.`\
+https://www.nytimes.com/2026/05/04/opinion/trucks-highway-deaths.html
+
+**Electrical Fire Closes ‘Book of Mormon’ Theater Indefinitely**\
+`The New York Fire Department said there was “substantial damage” to a room containing lighting equipment.`\
+https://www.nytimes.com/2026/05/04/theater/broadway-theater-fire-eugene-oneill-book-of-mormon.html
+
+**Doris Fisher, Co-Founder of the Gap, Dies at 94**\
+`The company she started in 1969 with her husband, Don, grew from a single store selling jeans and records to a $16 billion brand that remade the apparel industry.`\
+https://www.nytimes.com/2026/05/04/business/doris-fisher-dead.html
+
 **A Show in Rome Sheds New Light on Francesca Woodman’s Haunting Images**\
 `The American photographer died at just 22, and yet the beautiful, unsettling work she created continues to influence art and artists. Why?`\
 https://www.nytimes.com/2026/05/04/arts/design/gagosian-rome-francesca-woodman.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/05/04/business/poland-civil-defense-training.html
 ****\
 `Civilians practicing first-aid techniques during an emergency preparedness training session held by Poland’s 133 Light Infantry Battalion.`\
 https://www.nytimes.com/video/embedded/world/europe/100000010856237/22vid-poland-embed-1.html
-
-**Lo que sabemos sobre el presunto brote de hantavirus en un crucero por el Atlántico**\
-`Tres pasajeros del MV Hondius murieron tras mostrar síntomas de la rara enfermedad. Las autoridades sanitarias confirmaron un caso e investigan otros cinco.`\
-https://www.nytimes.com/es/2026/05/04/espanol/mundo/brote-hantavirus-crucero-atlantico.html
-
-**Germans Are Not Panicking Over Trump’s Troop Threats**\
-`Top leaders believe losing 5,000 U.S. troops will not hurt German security. But analysts fear an economic hit, especially in military communities.`\
-https://www.nytimes.com/2026/05/04/world/europe/germany-trump-troop-withdrawal.html
-
-**Dumplings Lounging on a Bed of Soft, Gingery Kale**\
-``\
-https://www.nytimes.com/2026/05/04/dining/dumplings-lounging-on-a-bed-of-soft-gingery-kale.html
-
-**Want to Help Disabled People? Be More Like George H.W. Bush.**\
-`George H.W. Bush showed how Republicans can be disabled Americans’ greatest allies. Why isn’t Donald Trump honoring his legacy?`\
-https://www.nytimes.com/2026/05/04/opinion/george-hw-bush-trump-disability.html
-
-**Foggy Brain? Maybe It’s Your Gut.**\
-`Scientists keep learning more about the connection between the brain and the gastrointestinal system.`\
-https://www.nytimes.com/2026/05/04/well/mind/gut-brain-fog-health.html
 
