@@ -1,3 +1,7 @@
+**3 Killed and 14 Injured in Upper Manhattan Fire**\
+`The fire, at a six-story apartment building in the Inwood neighborhood, also displaced more than 100 residents, officials said.`\
+https://www.nytimes.com/2026/05/04/nyregion/nyc-fire-inwood.html
+
 **John Sterling, the Yankees’ Most Enduring Announcer, Dies at 87**\
 `He called over 5,600 games, more than any other announcer for the team, and was known for his personalized, slightly wacky home run calls.`\
 https://www.nytimes.com/2026/05/04/sports/john-sterling-dead.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/04/espanol/estilos-de-vida/marihuana-medicina
 **GameStop Proposes Acquiring eBay for $55 Billion**\
 `Analysts question the feasibility of this long-shot bid by the video game retailer to acquire the much larger online marketplace.`\
 https://www.nytimes.com/2026/05/04/business/gamestop-ebay-acquisition-offer.html
-
-**Democrats Add 8 Candidates to House Battlefield Program for Midterms**\
-`The party’s congressional campaign arm is promoting more contenders to take down at-risk Republicans — and is taking sides in some competitive primaries.`\
-https://www.nytimes.com/2026/05/04/us/politics/democrats-midterms-house-primaries.html
 
