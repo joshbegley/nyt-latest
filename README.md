@@ -1,3 +1,7 @@
+**Tucker Carlson on Trump’s Decision to Attack Iran**\
+`On “The Interview,” Tucker Carlson talks about what he saw, and what he told the president, in the run-up to the attack on Iran.`\
+https://www.nytimes.com/video/podcasts/100000010880077/tucker-carlson-on-trumps-decision-to-attack-iran.html
+
 **Understanding the ‘body types’ on display at this year’s fashion exhibition.**\
 ``\
 https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/understanding-the-body-types-on-display-at-this-years-fashion-exhibition
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/world/americas/100000010878454/monster-truck-crash
 **Judge Questions Jail’s Treatment of Suspect in Press Gala Shooting**\
 `A federal magistrate ordered that the D.C. Department of Corrections explain why it had placed Cole Tomas Allen in especially restrictive conditions.`\
 https://www.nytimes.com/2026/05/04/us/politics/correspondents-dinner-shooting-suspect-suicide-watch.html
-
-**More Than 150 Wind Projects Stall as Pentagon Delays Reviews**\
-`The delays, which companies say have worsened significantly in recent weeks, are the latest step in the Trump administration’s efforts to block wind power.`\
-https://www.nytimes.com/2026/05/04/climate/wind-power-delays-trump-pentagon.html
 

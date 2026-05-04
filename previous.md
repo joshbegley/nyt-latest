@@ -1,3 +1,7 @@
+**Understanding the ‘body types’ on display at this year’s fashion exhibition.**\
+``\
+https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/understanding-the-body-types-on-display-at-this-years-fashion-exhibition
+
 **The Met opens its fashion exhibition with big names and a new fund-raising record.**\
 ``\
 https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/the-met-opens-its-fashion-exhibition-with-big-names-and-a-new-fund-raising-record
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/04/us/politics/correspondents-dinner-shooting-su
 **More Than 150 Wind Projects Stall as Pentagon Delays Reviews**\
 `The delays, which companies say have worsened significantly in recent weeks, are the latest step in the Trump administration’s efforts to block wind power.`\
 https://www.nytimes.com/2026/05/04/climate/wind-power-delays-trump-pentagon.html
-
-**Do Spinning Wind Turbines Really Mess With Radar Systems?**\
-`As Pentagon officials delay approval of wind farms, scientific studies show that they can distort radar systems, but the problem is manageable, researchers say.`\
-https://www.nytimes.com/2026/05/04/climate/wind-turbines-radar-systems.html
 

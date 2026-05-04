@@ -1,3 +1,7 @@
+**Understanding the ‘body types’ on display at this year’s fashion exhibition.**\
+``\
+https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/understanding-the-body-types-on-display-at-this-years-fashion-exhibition
+
 **The Met opens its fashion exhibition with big names and a new fund-raising record.**\
 ``\
 https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/the-met-opens-its-fashion-exhibition-with-big-names-and-a-new-fund-raising-record
