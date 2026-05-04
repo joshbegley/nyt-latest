@@ -1,3 +1,11 @@
+**La Gala del Met 2026: tema, código de vestimenta y todo lo que debes saber**\
+`Una de las presencias más esperadas es la de Beyoncé. Es copresidenta junto con Nicole Kidman, Venus Williams y la directora de contenidos de Condé Nast, Anna Wintour.`\
+https://www.nytimes.com/es/2026/05/04/espanol/estilos-de-vida/gala-met-2026-tema-codigo-beyonce.html
+
+**Word of the Day: encroach**\
+`This word has appeared in 36 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/05/04/learning/word-of-the-day-encroach.html
+
 **‘Lord of the Flies,’ and 7 More Things to Watch on TV This Week**\
 `A new adaptation of the 1954 novel comes to Netflix, and “Outlander” wraps up its eight-season run.`\
 https://www.nytimes.com/2026/05/04/arts/television/lord-of-the-flies-7-things-to-watch-on-tv-this-week.html
