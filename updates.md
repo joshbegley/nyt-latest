@@ -1,3 +1,11 @@
+**En Costa Rica, conducir un coche eléctrico no es muy complicado**\
+`Costa Rica ha hecho más que la mayoría de los países para promover los vehículos eléctricos y casi uno de cada cinco coches nuevos que se venden es eléctrico.`\
+https://www.nytimes.com/es/2026/05/03/espanol/negocios/costa-rica-vehiculos-electricos-cargador.html
+
+**Once Detained By ICE, Mariachi Brothers Open for Kacey Musgraves**\
+`The teenagers, who had faced deportation after a high-profile detention, took the stage on Sunday thanks to an invitation from one of country music’s biggest stars.`\
+https://www.nytimes.com/2026/05/03/us/mariachi-brothers-ice-kacey-musgraves-texas.html
+
 **‘The Comeback’ Season 3, Episode 7 Recap: Anywhere Else**\
 `Valerie gets answers about the leak. Mark gets a troubling tattoo.`\
 https://www.nytimes.com/2026/05/03/arts/television/the-comeback-recap-season-3-episode-7.html
