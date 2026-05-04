@@ -1,3 +1,15 @@
+**Judge Questions Jail’s Treatment of Suspect in Press Gala Shooting**\
+`A federal magistrate ordered that the D.C. Department of Corrections explain why it had placed Cole Tomas Allen in especially restrictive conditions.`\
+https://www.nytimes.com/2026/05/04/us/politics/whcd-alleged-assault.html
+
+**More Than 150 Wind Projects Stall as Pentagon Delays Reviews**\
+`The delays, which companies say have worsened significantly in recent weeks, are the latest step in the Trump administration’s efforts to block wind power.`\
+https://www.nytimes.com/2026/05/04/climate/wind-power-delays-trump-pentagon.html
+
+**Do Spinning Wind Turbines Really Mess With Radar Systems?**\
+`As Pentagon officials delay approval of wind farms, scientific studies show that they can distort radar systems, but the problem is manageable, researchers say.`\
+https://www.nytimes.com/2026/05/04/climate/wind-turbines-radar-systems.html
+
 **What to Know About the New Abortion Pill Case Before the Supreme Court**\
 `The Louisiana lawsuit, which seeks to block telehealth prescribing and mailing of the abortion pill mifepristone, has major implications for abortion access nationwide.`\
 https://www.nytimes.com/2026/05/04/well/abortion-pill-mifepristone-supreme-court-louisiana.html
