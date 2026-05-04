@@ -1,3 +1,11 @@
+**Judge Questions Jail’s Treatment of Suspect in Press Gala Shooting**\
+`A federal magistrate ordered that the D.C. Department of Corrections explain why it had placed Cole Tomas Allen in especially restrictive conditions.`\
+https://www.nytimes.com/2026/05/04/us/politics/whcd-alleged-assault.html
+
+**More Than 150 Wind Projects Stall as Pentagon Delays Reviews**\
+`The delays, which companies say have worsened significantly in recent weeks, are the latest step in the Trump administration’s efforts to block wind power.`\
+https://www.nytimes.com/2026/05/04/climate/wind-power-delays-trump-pentagon.html
+
 **Do Spinning Wind Turbines Really Mess With Radar Systems?**\
 `As Pentagon officials delay approval of wind farms, scientific studies show that they can distort radar systems, but the problem is manageable, researchers say.`\
 https://www.nytimes.com/2026/05/04/climate/wind-turbines-radar-systems.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/04/us/politics/homeland-security-smartphones-ins
 **Trump Administration Sues Minnesota to Block Climate Lawsuit**\
 `The Justice Department is seeking to block a lawsuit filed against major players in the fossil fuel industry over their role in climate change.`\
 https://www.nytimes.com/2026/05/04/climate/trump-minnesota-climate-lawsuit.html
-
-**A Cavity Doesn’t Always Need a Filling**\
-`How to weigh your dental options.`\
-https://www.nytimes.com/2026/05/04/well/cavity-filling-second-opinion.html
-
-**Meditating on Time and Place During a Leisurely Venice Bar Crawl**\
-`“You can’t escape drink in Venice,” one patron noted. “It’s a ritual.” An adopted Venetian, a reporter and a photographer wandered the city’s watering holes over one long aperitivo hour.`\
-https://www.nytimes.com/2026/05/04/arts/design/venice-italy-bar-crawl.html
 
