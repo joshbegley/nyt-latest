@@ -1,3 +1,7 @@
+**10-Minute Challenge: ‘Cityscape’ by Romare Bearden**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://www.nytimes.com/interactive/2026/05/03/upshot/bearden-cityscape.html
+
 ****\
 ``\
 https://www.nytimes.com/video/embedded/world/asia/100000010878075/04int-hongkong-fire-family-26009.html
