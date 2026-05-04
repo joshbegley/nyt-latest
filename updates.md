@@ -1,3 +1,15 @@
+**Un vehículo ‘monster truck’ arrolla al público y causa 3 muertes en Colombia**\
+`El vehículo arrolló a una multitud en un espectáculo al aire libre en Popayán. Además de los fallecidos, causó lesiones a al menos otras 40 personas, dijeron las autoridades locales.`\
+https://www.nytimes.com/es/2026/05/04/espanol/america-latina/monster-truck-colombia.html
+
+**In Beyoncé’s Met Gala appearance, fans see potential for a big announcement.**\
+``\
+https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/in-beyonces-met-gala-appearance-fans-see-potential-for-a-big-announcement
+
+**What Does Tucker Carlson Really Believe? I Went to Maine to Find Out.**\
+`Tucker Carlson talks with Lulu Garcia-Navarro about his anti-Trump conversion, and the cracks in the MAGA movement.`\
+https://www.nytimes.com/video/podcasts/100000010880047/what-does-tucker-carlson-really-believe-i-went-to-maine-to-find-out.html
+
 **A ‘Ball Without Billionaires’ Kicks Off the First Monday in May**\
 `Labor unions from around the country staged a different kind of fashion show in downtown Manhattan.`\
 https://www.nytimes.com/2026/05/04/style/a-ball-without-billionaires-kicks-off-the-first-monday-in-may.html
