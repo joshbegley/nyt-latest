@@ -1,3 +1,19 @@
+**California Seeks ‘Historic’ Fine Against State Farm: Just $2 Million**\
+`Regulators say the penalty is the highest ever sought, but a cap on each violation would soften the blow for California’s largest insurer.`\
+https://www.nytimes.com/2026/05/04/realestate/california-state-farm-fires-insurance.html
+
+**Mamdani Highlights Fashion Workers as He Skips the Met Gala**\
+`New York’s mayor highlighted the seamstresses, tailors and other workers in the fashion industry.`\
+https://www.nytimes.com/2026/05/04/style/mamdani-skips-met-gala-fashion-workers.html
+
+**En fotos: la Gala del Met 2026**\
+`Contempla los atuendos más vistosos.`\
+https://www.nytimes.com/es/2026/05/04/espanol/gala-met-fotos-2026.html
+
+**‘The Devil Wears Prada 2’ Made Me Miss the #Girlboss Era**\
+`It turns out that some women do, in fact, dream of labor, at least the kind that comes with a sense of mastery, agency and glamour.`\
+https://www.nytimes.com/2026/05/04/opinion/devil-wears-prada-feminism-girlboss.html
+
 **S.E.C. Settles Lawsuit Against Elon Musk Over His Twitter Disclosures**\
 `The agency, which has been pulling back on lawsuits against major companies, ended a case that had accused Mr. Musk of hiding his purchases of Twitter stock. He agreed to pay $1.5 million.`\
 https://www.nytimes.com/2026/05/04/technology/musk-sec-settlement-twitter.html
@@ -61,16 +77,4 @@ https://www.nytimes.com/video/podcasts/100000010880349/tucker-carlson-jd-vance-i
 **Tricked Into Fighting for Russia**\
 `Russia needs a lot of soldiers. Many Africans need work.`\
 https://www.nytimes.com/2026/05/04/world/africa-russia-ukraine-war-attacks-strait-hormuz.html
-
-**1,500 Beagles From Troubled Research Facility Are Getting New Homes**\
-`Last month, animal rights activists tried to steal some of the dogs from the Wisconsin facility, Ridglan Farms, but were thwarted by tear gas and rubber bullets.`\
-https://www.nytimes.com/2026/05/04/us/beagles-ridglan-farms-wisconsin.html
-
-**Read the document**\
-`Dimitri K. Simes filed a motion to dismiss Biden-era charges against him and his wife on First Amendment grounds.`\
-https://www.nytimes.com/interactive/2026/05/04/us/simes-motion.html
-
-**An N.B.A. Upset Forces a Showdown in Manhattan: Met Gala or Knicks Game?**\
-`A home playoff game on Monday night may pose an issue for Knicks superfans like Spike Lee and Timothée Chalamet.`\
-https://www.nytimes.com/2026/05/04/style/met-gala-or-knicks-game.html
 
