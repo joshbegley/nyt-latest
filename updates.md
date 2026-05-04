@@ -1,3 +1,7 @@
+**Connections Companion No. 1,059**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, May 5, 2026.`\
+https://www.nytimes.com/2026/05/04/crosswords/connections-companion-1059.html
+
 **What Was Discussed at Google’s White House Meeting About A.I.**\
 `The technology giant met with administration officials last week to address a growing concern in Washington: insufficient computing power for artificial intelligence.`\
 https://www.nytimes.com/2026/05/04/business/dealbook/google-ai-white-house.html

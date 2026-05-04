@@ -32,7 +32,7 @@ https://www.nytimes.com/2026/05/04/world/europe/moscow-drone-attack.html
 
 **Connections Companion No. 1,059**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, May 5, 2026.`\
-https://www.nytimes.com/2026/05/04/crosswords/wordle-review-1059.html
+https://www.nytimes.com/2026/05/04/crosswords/connections-companion-1059.html
 
 **What Drives Political Violence in America**\
 `Has the country entered a new, dangerous phase of political violence?`\
