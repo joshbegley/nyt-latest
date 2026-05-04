@@ -1,3 +1,47 @@
+**Today, In Short**\
+`The Met Gala. Kacey Musgraves. And a treasure hunt in San Francisco.`\
+https://www.nytimes.com/2026/05/04/briefing/today-in-short.html
+
+**Europeans Prepare for a More Dangerous World in a Time of Economic Upheaval**\
+`A stalwart on defense spending, Poland is training its citizens in civil defense while balancing their jobs and families.`\
+https://www.nytimes.com/2026/05/04/business/poland-civil-defense-training.html
+
+****\
+`Civilians practicing first-aid techniques during an emergency preparedness training session held by Poland’s 133 Light Infantry Battalion.`\
+https://www.nytimes.com/video/embedded/world/europe/100000010856237/22vid-poland-embed-1.html
+
+**Lo que sabemos sobre el presunto brote de hantavirus en un crucero por el Atlántico**\
+`Tres pasajeros del MV Hondius murieron tras mostrar síntomas de la rara enfermedad. Las autoridades sanitarias confirmaron un caso e investigan otros cinco.`\
+https://www.nytimes.com/es/2026/05/04/espanol/mundo/brote-hantavirus-crucero-atlantico.html
+
+**Germans Are Not Panicking Over Trump’s Troop Threats**\
+`Top leaders believe losing 5,000 U.S. troops will not hurt German security. But analysts fear an economic hit, especially in military communities.`\
+https://www.nytimes.com/2026/05/04/world/europe/germany-trump-troop-withdrawal.html
+
+**Dumplings Lounging on a Bed of Soft, Gingery Kale**\
+``\
+https://www.nytimes.com/2026/05/04/dining/dumplings-lounging-on-a-bed-of-soft-gingery-kale.html
+
+**What Trump Can Learn From George H.W. Bush**\
+`George H.W. Bush showed how Republicans can be disabled Americans’ greatest allies. Why isn’t Donald Trump honoring his legacy?`\
+https://www.nytimes.com/2026/05/04/opinion/george-hw-bush-trump-disability.html
+
+**Foggy Brain? Maybe It’s Your Gut.**\
+`Scientists keep learning more about the connection between the brain and the gastrointestinal system.`\
+https://www.nytimes.com/2026/05/04/well/mind/gut-brain-fog-health.html
+
+**Supreme Court Temporarily Restores Access to Abortion Pill by Mail**\
+`A lower-court ruling had reinstated a Food and Drug Administration requirement that patients visit a health care provider in person to obtain mifepristone.`\
+https://www.nytimes.com/2026/05/04/us/politics/supreme-court-abortion-pill.html
+
+**Do You Know These Unfinished Novels That Were Published Anyway?**\
+`Try this short quiz on books that arrived after their authors departed.`\
+https://www.nytimes.com/interactive/2026/05/04/books/review/unfinished-novels-quiz.html
+
+**‘Michael’ Is Memory Exploitation**\
+`Wesley Morris reviews “Michael” and considers better approaches to a Michael Jackson biopic.`\
+https://www.nytimes.com/video/podcasts/100000010867929/michael-is-memory-exploitation.html
+
 **Iran Threatens Ships Over Trump Plan to Break Strait of Hormuz Blockade**\
 `A senior Iranian military official warned that any vessel that tried to cross the waterway, which is vital to global oil shipments, would be “at risk” without Iran’s consent.`\
 https://www.nytimes.com/2026/05/04/world/middleeast/iran-trump-ships-hormuz-strait.html

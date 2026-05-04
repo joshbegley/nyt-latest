@@ -1,3 +1,47 @@
+**Today, In Short**\
+`The Met Gala. Kacey Musgraves. And a treasure hunt in San Francisco.`\
+https://www.nytimes.com/2026/05/04/briefing/today-in-short.html
+
+**Europeans Prepare for a More Dangerous World in a Time of Economic Upheaval**\
+`A stalwart on defense spending, Poland is training its citizens in civil defense while balancing their jobs and families.`\
+https://www.nytimes.com/2026/05/04/business/poland-civil-defense-training.html
+
+****\
+`Civilians practicing first-aid techniques during an emergency preparedness training session held by Poland’s 133 Light Infantry Battalion.`\
+https://www.nytimes.com/video/embedded/world/europe/100000010856237/22vid-poland-embed-1.html
+
+**Lo que sabemos sobre el presunto brote de hantavirus en un crucero por el Atlántico**\
+`Tres pasajeros del MV Hondius murieron tras mostrar síntomas de la rara enfermedad. Las autoridades sanitarias confirmaron un caso e investigan otros cinco.`\
+https://www.nytimes.com/es/2026/05/04/espanol/mundo/brote-hantavirus-crucero-atlantico.html
+
+**Germans Are Not Panicking Over Trump’s Troop Threats**\
+`Top leaders believe losing 5,000 U.S. troops will not hurt German security. But analysts fear an economic hit, especially in military communities.`\
+https://www.nytimes.com/2026/05/04/world/europe/germany-trump-troop-withdrawal.html
+
+**Dumplings Lounging on a Bed of Soft, Gingery Kale**\
+``\
+https://www.nytimes.com/2026/05/04/dining/dumplings-lounging-on-a-bed-of-soft-gingery-kale.html
+
+**What Trump Can Learn From George H.W. Bush**\
+`George H.W. Bush showed how Republicans can be disabled Americans’ greatest allies. Why isn’t Donald Trump honoring his legacy?`\
+https://www.nytimes.com/2026/05/04/opinion/george-hw-bush-trump-disability.html
+
+**Foggy Brain? Maybe It’s Your Gut.**\
+`Scientists keep learning more about the connection between the brain and the gastrointestinal system.`\
+https://www.nytimes.com/2026/05/04/well/mind/gut-brain-fog-health.html
+
+**Supreme Court Temporarily Restores Access to Abortion Pill by Mail**\
+`A lower-court ruling had reinstated a Food and Drug Administration requirement that patients visit a health care provider in person to obtain mifepristone.`\
+https://www.nytimes.com/2026/05/04/us/politics/supreme-court-abortion-pill.html
+
+**Do You Know These Unfinished Novels That Were Published Anyway?**\
+`Try this short quiz on books that arrived after their authors departed.`\
+https://www.nytimes.com/interactive/2026/05/04/books/review/unfinished-novels-quiz.html
+
+**‘Michael’ Is Memory Exploitation**\
+`Wesley Morris reviews “Michael” and considers better approaches to a Michael Jackson biopic.`\
+https://www.nytimes.com/video/podcasts/100000010867929/michael-is-memory-exploitation.html
+
 **Rudy Giuliani se encuentra en ‘estado crítico’ en un hospital de Florida**\
 `“Es un luchador que se ha enfrentado a todos los retos de su vida con una fortaleza inquebrantable, y está luchando con ese mismo nivel de fortaleza”, dijo un portavoz.`\
 https://www.nytimes.com/es/2026/05/04/espanol/estados-unidos/rudy-giuliani-hospital-florida.html
@@ -33,48 +77,4 @@ https://www.nytimes.com/2026/05/04/us/oklahoma-shooting-lake-arcadia.html
 **Washington, D.C. Mayoral Election 2026: Latest Polls**\
 `Track the latest polls in the Washington, D.C., mayoral election.`\
 https://www.nytimes.com/interactive/polls/washington-dc-mayor-election-polls-2026.html
-
-**Monster Truck Drives Into Crowd in Colombia, Killing 3**\
-`The driver of the truck appeared to lose control of the vehicle after performing a stunt at an outdoor rally in Popayán.`\
-https://www.nytimes.com/2026/05/04/world/americas/monster-truck-colombia-crash.html
-
-**Iran Threatens Ships Over Trump Plan to Break Strait of Hormuz Blockade**\
-`A senior Iranian military official warned that any vessel that tried to cross the waterway, which is vital to global oil shipments, would be “at risk” without Iran’s consent.`\
-https://www.nytimes.com/2026/05/04/world/middleeast/iran-trump-ships-hormuz-strait.html
-
-**Asked and Answered**\
-`We dig into reader questions.`\
-https://www.nytimes.com/2026/05/04/briefing/news-questions-answered.html
-
-**Rubio to Visit Rome After Trump’s Feud With the Pope and Meloni**\
-`Secretary of State Marco Rubio’s trip will come after President Trump criticized Pope Leo XIV and then turned on Prime Minister Giorgia Meloni of Italy for defending the pontiff.`\
-https://www.nytimes.com/2026/05/04/world/europe/rubio-rome-trump-pope-italy.html
-
-**Drone Hits a Moscow High-Rise Days Before a Major Military Parade**\
-`Air defenses in the Russian capital were breached as Ukraine expands long-range strikes.`\
-https://www.nytimes.com/2026/05/04/world/europe/moscow-drone-attack.html
-
-**Connections Companion No. 1,059**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, May 5, 2026.`\
-https://www.nytimes.com/2026/05/04/crosswords/connections-companion-1059.html
-
-**What Drives Political Violence in America**\
-`Has the country entered a new, dangerous phase of political violence?`\
-https://www.nytimes.com/2026/05/04/podcasts/the-daily/political-violence-america.html
-
-**Court Ruling Upends Abortion Access in the U.S., and Trump’s New Plan for the Strait of Hormuz**\
-`Plus, the complicated legacy of Spirit Airlines.`\
-https://www.nytimes.com/2026/05/04/podcasts/the-headlines/court-ruling-upends-abortion-access-in-the-us-and-trumps-new-plan-for-the-strait-of-hormuz.html
-
-**Strands Sidekick No. 793**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, May 5, 2026.`\
-https://www.nytimes.com/2026/05/04/crosswords/strands-sidekick-793.html
-
-**Wordle Review No. 1,781**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, May 5, 2026.`\
-https://www.nytimes.com/2026/05/04/crosswords/wordle-review-1781.html
-
-**What to Know About the Suspected Hantavirus Outbreak on an Atlantic Cruise Ship**\
-`Three passengers of the MV Hondius died after showing symptoms of the rare disease. Health authorities confirmed one case and are investigating five others.`\
-https://www.nytimes.com/2026/05/04/world/hantavirus-cruise-ship-outbreak-hondius.html
 
