@@ -1,3 +1,7 @@
+**Iran Threatens Ships Over Trump Plan to Break Strait of Hormuz Blockade**\
+`A senior Iranian military official warned that any vessel that tried to cross the waterway, which is vital to global oil shipments, would be “at risk” without Iran’s consent.`\
+https://www.nytimes.com/2026/05/04/world/middleeast/iran-trump-ships-hormuz-strait.html
+
 **Rudy Giuliani se encuentra en ‘estado crítico’ en un hospital de Florida**\
 `“Es un luchador que se ha enfrentado a todos los retos de su vida con una fortaleza inquebrantable, y está luchando con ese mismo nivel de fortaleza”, dijo un portavoz.`\
 https://www.nytimes.com/es/2026/05/04/espanol/estados-unidos/rudy-giuliani-hospital-florida.html
