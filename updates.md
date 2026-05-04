@@ -1,3 +1,7 @@
+**This Professor Won the ‘Bauhaus Bathroom’ Design Competition for the Gropius House**\
+`Announcing the winner of a competition to create a public restroom at the historic Gropius House.`\
+https://www.nytimes.com/2026/05/04/arts/design-gropius-house-contest.html
+
 **3 Killed and 14 Injured in Upper Manhattan Fire**\
 `The fire, at a six-story apartment building in the Inwood neighborhood, also displaced more than 100 residents, officials said.`\
 https://www.nytimes.com/2026/05/04/nyregion/nyc-fire-inwood.html

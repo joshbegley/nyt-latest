@@ -1,3 +1,7 @@
+**This Professor Won the ‘Bauhaus Bathroom’ Design Competition for the Gropius House**\
+`Announcing the winner of a competition to create a public restroom at the historic Gropius House.`\
+https://www.nytimes.com/2026/05/04/arts/design-gropius-house-contest.html
+
 **3 Killed and 14 Injured in Upper Manhattan Fire**\
 `The fire, at a six-story apartment building in the Inwood neighborhood, also displaced more than 100 residents, officials said.`\
 https://www.nytimes.com/2026/05/04/nyregion/nyc-fire-inwood.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/04/world/middleeast/israel-palestinians-west-ban
 **Lo que los médicos quieren que sepas sobre el uso medicinal de la marihuana**\
 `El gobierno de EE. UU. ha flexibilizado recientemente las normas sobre la marihuana medicinal. Los expertos separan la realidad de la ficción en cuanto a la seguridad y los beneficios de esta droga.`\
 https://www.nytimes.com/es/2026/05/04/espanol/estilos-de-vida/marihuana-medicinal.html
-
-**GameStop Proposes Acquiring eBay for $55 Billion**\
-`Analysts question the feasibility of this long-shot bid by the video game retailer to acquire the much larger online marketplace.`\
-https://www.nytimes.com/2026/05/04/business/gamestop-ebay-acquisition-offer.html
 
