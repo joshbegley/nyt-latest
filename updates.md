@@ -1,3 +1,11 @@
+**A Show in Rome Sheds New Light on Francesca Woodman’s Haunting Images**\
+`The American photographer died at just 22, and yet the beautiful, unsettling work she created continues to influence art and artists. Why?`\
+https://www.nytimes.com/2026/05/04/arts/design/gagosian-rome-francesca-woodman.html
+
+**U.S. Warns China Over Iranian Oil as Sanctions Fight Intensifies**\
+`China told its independent refineries to disregard U.S. sanctions over their purchases of Iranian crude.`\
+https://www.nytimes.com/2026/05/04/us/politics/us-china-iranian-oil-sanctions.html
+
 **D.H.S. Intelligence Office Did Not Properly Secure Smartphones, Watchdog Says**\
 `The department’s inspector general found a heightened risk of cyberattacks in mobile devices used by staff of the Office of Intelligence and Analysis. The department acknowledged shortcomings.`\
 https://www.nytimes.com/2026/05/04/us/politics/homeland-security-smartphones-inspector-general.html

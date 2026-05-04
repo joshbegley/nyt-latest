@@ -1,3 +1,11 @@
+**A Show in Rome Sheds New Light on Francesca Woodman’s Haunting Images**\
+`The American photographer died at just 22, and yet the beautiful, unsettling work she created continues to influence art and artists. Why?`\
+https://www.nytimes.com/2026/05/04/arts/design/gagosian-rome-francesca-woodman.html
+
+**U.S. Warns China Over Iranian Oil as Sanctions Fight Intensifies**\
+`China told its independent refineries to disregard U.S. sanctions over their purchases of Iranian crude.`\
+https://www.nytimes.com/2026/05/04/us/politics/us-china-iranian-oil-sanctions.html
+
 **D.H.S. Intelligence Office Did Not Properly Secure Smartphones, Watchdog Says**\
 `The department’s inspector general found a heightened risk of cyberattacks in mobile devices used by staff of the Office of Intelligence and Analysis. The department acknowledged shortcomings.`\
 https://www.nytimes.com/2026/05/04/us/politics/homeland-security-smartphones-inspector-general.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/04/opinion/george-hw-bush-trump-disability.html
 **Foggy Brain? Maybe It’s Your Gut.**\
 `Scientists keep learning more about the connection between the brain and the gastrointestinal system.`\
 https://www.nytimes.com/2026/05/04/well/mind/gut-brain-fog-health.html
-
-**Supreme Court Temporarily Restores Access to Abortion Pill by Mail**\
-`A lower-court ruling had reinstated a Food and Drug Administration requirement that patients visit a health care provider in person to obtain mifepristone.`\
-https://www.nytimes.com/2026/05/04/us/politics/supreme-court-abortion-pill.html
-
-**Do You Know These Unfinished Novels That Were Published Anyway?**\
-`Try this short quiz on books that arrived after their authors departed.`\
-https://www.nytimes.com/interactive/2026/05/04/books/review/unfinished-novels-quiz.html
 
