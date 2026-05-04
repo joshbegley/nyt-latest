@@ -1,3 +1,11 @@
+**Rudy Giuliani Is Hospitalized and in Critical Condition**\
+`Rudy Giuliani, the former mayor of New York City, has been hospitalized in Florida. A spokesman said the 81-year-old is ”in critical but stable condition.”`\
+https://www.nytimes.com/video/us/politics/100000010878444/rudy-giuliani-hospitalized-critical-condition.html
+
+**Rubio to Visit Rome After Trump’s Feud With the Pope and Meloni**\
+`Secretary of State Marco Rubio’s trip will come after President Trump criticized Pope Leo XIV and then turned on Prime Minister Giorgia Meloni of Italy for defending the pontiff.`\
+https://www.nytimes.com/2026/05/04/world/europe/rubio-rome-trump-pope-italy.html
+
 **Shipping Firms Left Guessing by Confusion in Strait of Hormuz**\
 `The United States vowed to help tankers navigate the perilous conditions that have kept them stranded in the Persian Gulf, but it remained unclear if companies would try to get out.`\
 https://www.nytimes.com/2026/05/04/business/trump-hormuz-shipping-companies.html
