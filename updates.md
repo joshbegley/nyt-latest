@@ -1,3 +1,7 @@
+****\
+``\
+https://www.nytimes.com/video/embedded/world/asia/100000010878075/04int-hongkong-fire-family-26009.html
+
 **Trump se enfrenta a la realidad de la guerra en Irán**\
 `Las predicciones del presidente Trump de un conflicto relativamente corto con consecuencias económicas mínimas parecen desmoronarse.`\
 https://www.nytimes.com/es/2026/05/03/espanol/estados-unidos/trump-impopular-guerra-iran.html
