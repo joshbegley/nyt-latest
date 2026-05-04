@@ -1,3 +1,11 @@
+**Judge Slams Trump Administration for ‘Serious Breakdown’ in Legal Ethics**\
+`The Department of Homeland Security criticized a judge for releasing a man accused of murder overseas, but did not inform her of the accusation. The judge said she would consider imposing sanctions.`\
+https://www.nytimes.com/2026/05/04/us/politics/judge-dubose-trump-administration-attacks.html
+
+**Gunman Exchanges Fire With Secret Service Near Washington Monument**\
+`The motorcade of Vice President JD Vance passed the scene soon after the shooting.`\
+https://www.nytimes.com/2026/05/04/us/politics/washington-monument-shooting-secret-service.html
+
 **Attacks Threaten to Reignite Iran Conflict**\
 `Also, the stars arrive at the Met Gala. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/05/04/briefing/iran-strait-of-hormuz-attacks-met-gala.html
