@@ -1,3 +1,23 @@
+**A Cavity Doesn’t Always Need a Filling**\
+`How to weigh your dental options.`\
+https://www.nytimes.com/2026/05/04/well/cavity-filling-second-opinion.html
+
+**Meditating on Time and Place During a Leisurely Venice Bar Crawl**\
+`“You can’t escape drink in Venice,” one patron noted. “It’s a ritual.” An adopted Venetian, a reporter and a photographer wandered the city’s watering holes over one long aperitivo hour.`\
+https://www.nytimes.com/2026/05/04/arts/design/venice-italy-bar-crawl.html
+
+**Mapa: un terremoto de magnitud 5,7 sacude México**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://www.nytimes.com/es/interactive/2026/05/04/espanol/04wea-terremoto-mexico-nyti57m3-es.html
+
+**Map: 5.7-Magnitude Earthquake Shakes Mexico**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/05/04/world/americas/quake-tracker-mexico.html
+
+**Want to Help Disabled People? Be More Like George H.W. Bush.**\
+`George H.W. Bush showed how Republicans can be disabled Americans’ greatest allies. Why isn’t Donald Trump honoring his legacy?`\
+https://www.nytimes.com/2026/05/04/opinion/george-hw-bush-trump-disability.html
+
 **Britney Spears Pleads Guilty to D.U.I.**\
 `The pop star was arrested in March after officers in California observed her driving erratically. She later checked herself into a treatment facility.`\
 https://www.nytimes.com/2026/05/04/arts/music/britney-spears-pleads-guilty-dui.html
