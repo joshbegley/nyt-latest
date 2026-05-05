@@ -1,4 +1,16 @@
 ****\
+`Video filmed by the Associated Press on March 27 shows these munitions dispersing over an area near Tyre, a large city in the south of Lebanon.`\
+https://www.nytimes.com/video/embedded/world/middleeast/100000010883635/tyremarch26.html
+
+**Trump Administration Investigating Smith College Over Transgender Admissions**\
+`The Education Department’s civil rights arm said admitting “biological males” to the women’s college may violate anti-discrimination laws.`\
+https://www.nytimes.com/2026/05/05/us/politics/smith-college-transgender-admissions.html
+
+****\
+`Video filmed by Anadolu News Agency in Khiam, in early March, shows white phosphorus providing a smoke screen for Israeli military vehicles which are advancing on a road near the town.`\
+https://www.nytimes.com/video/embedded/world/middleeast/100000010883654/05visualUploader-15815.html
+
+****\
 `Video filmed by Agence France Presse shows plumes of white smoke consistent with white phosphorus, descending over the town of Khiam, on Sept. 11, 2024.`\
 https://www.nytimes.com/video/embedded/world/middleeast/100000010883637/05visualUploader-58087.html
 
@@ -18,7 +30,7 @@ https://www.nytimes.com/2026/05/05/style/met-gala-after-party-nyc.html
 `El cárdigan que lleva el personaje de Gosling está basado en un patrón para tejer de finales de la década de 1950 de la empresa canadiense de estambres y manualidades Mary Maxim.`\
 https://www.nytimes.com/es/2026/05/05/espanol/estilos-de-vida/sueter-ryan-gosling-proyecto-hail-mary.html
 
-**The Safety Net Isn’t Ready for Artificial Intelligence**\
+**Congress Is Doing Little to Prepare for Potential A.I. Job Losses**\
 `As fears of A.I.-driven job losses mount, economists warn that unemployment benefits and other programs to help displaced workers aren’t sufficient.`\
 https://www.nytimes.com/2026/05/05/business/artificial-intelligence-safety-net.html
 
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/05/business/economy/us-trade-deficit-grew-in-mar
 **Behind the White House’s Potential Rethink on A.I.**\
 `Artificial intelligence has become a national security concern. That has federal officials rethinking how lightly it should regulate the technology.`\
 https://www.nytimes.com/2026/05/05/business/dealbook/trump-ai-regulation.html
-
-**Tony Awards Nominations 2026: The Complete List**\
-`Nominations for the 79th Tony Awards were announced on Tuesday. Here’s who made the list.`\
-https://www.nytimes.com/2026/05/05/theater/tony-awards-nominations.html
-
-**The Best Looks From the Met Gala**\
-`We’re covering the cobblestone carpet.`\
-https://www.nytimes.com/2026/05/05/briefing/the-best-looks-from-the-met-gala.html
-
-**The Venice Biennale and Its Many Flashpoints: An Explainer**\
-`The sudden death of a curator, the surprise participation of Russia and an unconventional U.S. entry are heating up the art world Olympics, which begins previews Tuesday.`\
-https://www.nytimes.com/2026/05/05/arts/design/venice-biennale-flashpoints-explainer-opening.html
 

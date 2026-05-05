@@ -1,3 +1,19 @@
+****\
+`Video filmed by Agence France Presse shows plumes of white smoke consistent with white phosphorus, descending over the town of Khiam, on Sept. 11, 2024.`\
+https://www.nytimes.com/video/embedded/world/middleeast/100000010883637/05visualUploader-58087.html
+
+**He Left the Berlin Philharmonic to Find His Voice. He Found a World Stage.**\
+`The viola player Brett Dean took a risk that paid off when he left the orchestra to become a full-time composer.`\
+https://www.nytimes.com/2026/05/05/arts/music/brett-dean-berlin-philharmonic.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/world/middleeast/100000010883567/05visualUploader-2698.html
+
+**A Climate Activist Wants to Run California. Coal Helped Fuel His Wealth.**\
+`Questions linger about the finances of Tom Steyer, who has emerged as a leading contender in the California governor’s race. He says he has asked that his money be separated from fossil fuel investments.`\
+https://www.nytimes.com/2026/05/05/us/tom-steyer-california-governor-coal.html
+
 **Lindsey Vonn, ASAP Rocky and Lisa Flock to Met Gala After-Parties**\
 `Models, designers, D.J.s and performers kept the night going into the early morning.`\
 https://www.nytimes.com/2026/05/05/style/met-gala-after-party-nyc.html

@@ -1,3 +1,15 @@
+****\
+`Video filmed by Agence France Presse shows plumes of white smoke consistent with white phosphorus, descending over the town of Khiam, on Sept. 11, 2024.`\
+https://www.nytimes.com/video/embedded/world/middleeast/100000010883637/05visualUploader-58087.html
+
+**He Left the Berlin Philharmonic to Find His Voice. He Found a World Stage.**\
+`The viola player Brett Dean took a risk that paid off when he left the orchestra to become a full-time composer.`\
+https://www.nytimes.com/2026/05/05/arts/music/brett-dean-berlin-philharmonic.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/world/middleeast/100000010883567/05visualUploader-2698.html
+
 **Lindsey Vonn, ASAP Rocky and Lisa Flock to Met Gala After-Parties**\
 `Models, designers, D.J.s and performers kept the night going into the early morning.`\
 https://www.nytimes.com/2026/05/05/style/met-gala-after-party-nyc.html
@@ -22,7 +34,7 @@ https://www.nytimes.com/2026/05/05/arts/venice-biennale-photos-video.html
 `The class-action lawsuit accuses the tech giant and its founder and chief executive of infringing on authors’ copyrights.`\
 https://www.nytimes.com/2026/05/05/books/publishers-turow-meta-zuckerberg-lawsuit-copyright.html
 
-**Steyer, a Climate Activist, Retains Ties to a Hedge Fund That Backs Coal**\
+**A Climate Activist Wants to Run California. Coal Helped Fuel His Wealth.**\
 `Questions linger about the finances of Tom Steyer, who has emerged as a leading contender in the California governor’s race. He says he has asked that his money be separated from fossil fuel investments.`\
 https://www.nytimes.com/2026/05/05/us/tom-steyer-california-governor-coal.html
 
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/05/briefing/the-best-looks-from-the-met-gala.htm
 **The Venice Biennale and Its Many Flashpoints: An Explainer**\
 `The sudden death of a curator, the surprise participation of Russia and an unconventional U.S. entry are heating up the art world Olympics, which begins previews Tuesday.`\
 https://www.nytimes.com/2026/05/05/arts/design/venice-biennale-flashpoints-explainer-opening.html
-
-**Engañados para luchar por Rusia**\
-`Rusia necesita muchos soldados. Muchos africanos necesitan trabajo.`\
-https://www.nytimes.com/es/2026/05/05/espanol/mundo/africanos-guerra-rusia.html
-
-**Cruise Ship Struck by Hantavirus Is to Head to Canary Islands, W.H.O. Says**\
-`Spain said it would decide on a port of call only after disease experts inspected the vessel. The World Health Organization said human-to-human transmission may have played a role in the outbreak.`\
-https://www.nytimes.com/2026/05/05/world/africa/cruise-ship-hantavirus-cape-verde-hondius.html
-
-**Connections Companion No. 1,060**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, May 6, 2026.`\
-https://www.nytimes.com/2026/05/05/crosswords/connections-companion-1060.html
 
