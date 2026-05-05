@@ -1,3 +1,19 @@
+**Late Night Will Miss Making Fun of Spirit Airlines**\
+`The budget carrier announced that “‘all flights have been canceled, and customer service is no longer available,’ which, coincidentally, was also Spirit’s motto,” Stephen Colbert said.`\
+https://www.nytimes.com/2026/05/05/arts/television/late-night-spirit-airlines.html
+
+**Palabra del día: ‘superfluous’**\
+`Esta palabra ha aparecido en 41 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/05/05/espanol/que-significa-superfluous.html
+
+**Word of the Day: superfluous**\
+`This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/05/05/learning/word-of-the-day-superfluous.html
+
+**Oil Prices Slide but Remain Elevated as Middle East Tensions Escalate**\
+`Oil prices fell, giving back some of the gains from the previous day as attacks in the Middle East raised concerns about the war starting again.`\
+https://www.nytimes.com/2026/05/05/business/oil-gas-prices-iran.html
+
 **U.S. Military Strikes Boat in Caribbean, Killing 2**\
 `The aerial strike raised the death toll to at least 187 in the U.S. campaign against boats the Trump administration accuses of smuggling drugs.`\
 https://www.nytimes.com/2026/05/05/us/us-military-boat-strike-caribbean.html

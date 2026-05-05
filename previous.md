@@ -1,3 +1,19 @@
+**Late Night Will Miss Making Fun of Spirit Airlines**\
+`The budget carrier announced that “‘all flights have been canceled, and customer service is no longer available,’ which, coincidentally, was also Spirit’s motto,” Stephen Colbert said.`\
+https://www.nytimes.com/2026/05/05/arts/television/late-night-spirit-airlines.html
+
+**Palabra del día: ‘superfluous’**\
+`Esta palabra ha aparecido en 41 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/05/05/espanol/que-significa-superfluous.html
+
+**Word of the Day: superfluous**\
+`This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/05/05/learning/word-of-the-day-superfluous.html
+
+**Oil Prices Slide but Remain Elevated as Middle East Tensions Escalate**\
+`Oil prices fell, giving back some of the gains from the previous day as attacks in the Middle East raised concerns about the war starting again.`\
+https://www.nytimes.com/2026/05/05/business/oil-gas-prices-iran.html
+
 **U.S. Military Strikes Boat in Caribbean, Killing 2**\
 `The aerial strike raised the death toll to at least 187 in the U.S. campaign against boats the Trump administration accuses of smuggling drugs.`\
 https://www.nytimes.com/2026/05/05/us/us-military-boat-strike-caribbean.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/05/04/style/bad-bunny-met-gala.html
 **Vote for Your Favorite Met Gala Looks**\
 `You’ve seen the fashion from the Met Gala. Now, the Styles desk wants you to rank your favorites.`\
 https://www.nytimes.com/interactive/2026/05/04/style/met-gala-best-dressed-vote.html
-
-**Notably Missing From the Carpet: The Men of Tech**\
-`No Bezos. No Zuckerberg.`\
-https://www.nytimes.com/2026/05/04/style/notably-missing-from-the-carpet-the-men-of-tech.html
-
-**Unit of Information**\
-`Max Schlenker’s puzzle will help you ease into the week.`\
-https://www.nytimes.com/2026/05/04/crosswords/daily-puzzle-2026-05-05.html
-
-**Sin explicaciones, EE. UU. revocó visas a algunos miembros de La Nación, en Costa Rica**\
-`El gobierno estadounidense revocó las visas de cinco de siete miembros de la junta directiva del principal periódico de investigación en Costa Rica.`\
-https://www.nytimes.com/es/2026/05/04/espanol/america-latina/la-nacion-costa-rica-visas-trump.html
-
-**Trump Tries to Downplay Economic Effects of the Iran War**\
-`At a White House event for Small Business Week, he described the economy as “roaring” and predicted that gas prices would go down soon.`\
-https://www.nytimes.com/2026/05/04/us/politics/trump-economy-iran-war.html
 
