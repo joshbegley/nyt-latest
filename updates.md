@@ -1,3 +1,11 @@
+**¿Cuáles son las verdaderas creencias de Tucker Carlson? Fui a Maine a averiguarlo**\
+`El destacado comentarista conservador se distanció del gobierno de Trump por la guerra en Irán. ¿Durará la ruptura?`\
+https://www.nytimes.com/es/2026/05/05/espanol/estados-unidos/tucker-carlson-entrevista-guerra-iran.html
+
+**¿El secreto para comer menos es amar la comida?**\
+`Se suele pensar que nos deleitamos tanto con la comida que consumimos mucha más cantidad de la que necesitamos. Pero ¿y si el verdadero problema es que no la gozamos lo suficiente?`\
+https://www.nytimes.com/es/2026/05/05/espanol/estilos-de-vida/comer-adelgazar-placer.html
+
 **‘La zona de la muerte’: cómo Rusia atrae africanos a Ucrania**\
 `Cada vez más hombres de todo el continente africano se van a Rusia en pos de una promesa de empleo, solo para terminar siendo obligados a participar en la guerra: “Yo luchaba por Rusia. Tenía un uniforme ruso. Pero no era mi lucha”.`\
 https://www.nytimes.com/es/2026/05/05/espanol/mundo/africanos-rusia-guerra-engano.html
