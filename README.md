@@ -1,10 +1,14 @@
+**Man Accused of Starting Palisades Fire Admired Luigi Mangione, Prosecutors Say**\
+`The Los Angeles suspect was lonely and angry and felt “enslaved” by rich people, prosecutors say. After being romantically spurned, they say, he went into the mountains and lit a fire.`\
+https://www.nytimes.com/2026/05/04/us/palisades-fire-suspect-jonathan-rinderknecht.html
+
 **Alysa Liu, Connor Storrie and Stevie Nicks Are Among the First-Time Attendees**\
 `Some of those making their Met debuts also happened to have the evening’s most arresting looks.`\
 https://www.nytimes.com/2026/05/04/style/met-gala-first-timers.html
 
 **Shootings On the National Mall Are Rare**\
 `The National Mall and its surroundings are one of the least violent areas in Washington.`\
-https://www.nytimes.com/2026/05/04/us/politics/shootings-on-the-national-mall-are-rare.html
+https://www.nytimes.com/2026/05/04/us/politics/secret-service-shooting-white-house-washington.html
 
 **No Reverse Aging for Bad Bunny**\
 `The singer, 32, said it took “53 years” to prepare his look.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/another
 **U.S. Revokes Visas of Board Members at Costa Rica’s Top Watchdog Newspaper**\
 `The move came after the paper critically covered the country’s president, who has cozied up to the United States. Analysts view the visa decision as part of a White House strategy to punish critics of its allies.`\
 https://www.nytimes.com/2026/05/04/world/americas/costa-rica-newspaper-us-visas.html
-
-**Kennedy Starts a Push to Help Americans Quit Antidepressants**\
-`The health secretary has long complained that Americans overuse psychiatric medications. New policies he is introducing aim to change that.`\
-https://www.nytimes.com/2026/05/04/science/rfk-antidepressants-ssris-hhs-maha.html
 
