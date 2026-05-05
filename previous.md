@@ -2,7 +2,7 @@
 `Hay una campaña anti-Bezos en las calles de Nueva York donde han descrito el acto como la “Gala Amazon Prime” o el “Baile de Bezos”.`\
 https://www.nytimes.com/es/2026/05/04/espanol/estilos-de-vida/gala-met-protestas-jeff-bezos.html
 
-**Another Tech Titan Hits the Gala’s Red Carpet**\
+**Another tech titan hits the gala’s red carpet.**\
 `Sergey Brin, a Google founder, in a dark tuxedo alongside his girlfriend, a conservative influencer.`\
 https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/another-tech-titan-hits-the-galas-red-carpet
 
@@ -62,8 +62,8 @@ https://www.nytimes.com/2026/05/04/us/calvin-duncan-criminal-court-clerk-new-orl
 `The Department of Homeland Security criticized a judge for releasing a man accused of murder overseas, but did not inform her of the accusation. The judge said she would consider imposing sanctions.`\
 https://www.nytimes.com/2026/05/04/us/politics/judge-dubose-trump-administration-attacks.html
 
-**Gunman Exchanges Fire With Secret Service Near Washington Monument**\
-`The motorcade of Vice President JD Vance passed the scene soon after the shooting.`\
+**Secret Service Shoots and Wounds Armed Man Near Washington Monument**\
+`A 15-year-old boy was also hit. The motorcade of Vice President JD Vance had passed through the area shortly before the shooting.`\
 https://www.nytimes.com/2026/05/04/us/politics/washington-monument-shooting-secret-service.html
 
 **Attacks Threaten to Reignite Iran Conflict**\
