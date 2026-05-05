@@ -1,3 +1,7 @@
+**Apple Reaches $250 Million Settlement Over Claims It Misled People on A.I.**\
+`Some iPhone owners will be eligible to receive $25 to $95 over claims that the tech giant oversold its artificial intelligence system, Apple Intelligence.`\
+https://www.nytimes.com/2026/05/05/technology/apple-intelligence-lawsuit-settlement.html
+
 **For One Couple, the ABCs of Home Renovation Were Not So Simple**\
 `Stacie Grissom and Sean Wilson’s 9,000-square-foot Indiana schoolhouse is a lesson in courage.`\
 https://www.nytimes.com/2026/05/05/realestate/indiana-schoolhouse-homestead-renovation.html
@@ -30,7 +34,7 @@ https://www.nytimes.com/2026/05/05/us/politics/faa-drones-proposed-rule.html
 `Las declaraciones del presidente en un acto en la Casa Blanca contrastan con la realidad económica en la que el aumento de los precios de la energía afecta tanto a familias como a empresas.`\
 https://www.nytimes.com/es/2026/05/05/espanol/estados-unidos/guerra-iran-efectos-economia-trump.html
 
-**FedEx Driver Who Kidnapped and Killed 7-Year-Old Girl Is Sentenced to Death**\
+**Ex-FedEx Driver Who Kidnapped and Killed 7-Year-Old Girl Is Sentenced to Death**\
 `Tanner Horner kidnapped and strangled the girl, Athena Strand, after delivering a package to her home in Texas. The package was her Christmas gift, a set of Barbies.`\
 https://www.nytimes.com/2026/05/05/us/fedex-driver-murder-athena-strand-sentencing.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-michigan-state-sen
 **Ohio U.S. Senate Special Primary Election Results**\
 `Get live results and maps from the 2026 Ohio special primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-senate-special-primary-may-5.html
-
-**Ohio Sixth Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Ohio primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-6-primary.html
 
