@@ -1,3 +1,15 @@
+**The Venice Biennale and Its Many Flashpoints: An Explainer**\
+`The sudden death of a curator, the surprise participation of Russia and an unconventional U.S. entry are heating up the art world Olympics, which begins previews Tuesday.`\
+https://www.nytimes.com/2026/05/05/arts/design/venice-biennale-flashpoints-explainer-opening.html
+
+**Engañados para luchar por Rusia**\
+`Rusia necesita muchos soldados. Muchos africanos necesitan trabajo.`\
+https://www.nytimes.com/es/2026/05/05/espanol/mundo/africanos-guerra-rusia.html
+
+**Cruise Ship Struck by Hantavirus Remains at Sea**\
+`Passengers on the MV Hondius have not received permission from the authorities in Cape Verde, in the Atlantic Ocean, to disembark. Three people have died and at least three others were ill.`\
+https://www.nytimes.com/2026/05/05/world/africa/cruise-ship-hantavirus-cape-verde-hondius.html
+
 **Connections Companion No. 1,060**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, May 6, 2026.`\
 https://www.nytimes.com/2026/05/05/crosswords/connections-companion-1060.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/05/nyregion/south-bronx-hip-hop-streetwear.html
 **Can Ken Paxton Win a Senate Primary in Texas Without His Biggest Donors?**\
 `The Texas attorney general is heading into the runoff against Senator John Cornyn without the support of some of his longtime backers.`\
 https://www.nytimes.com/2026/05/05/us/ken-paxton-john-cornyn-senate-donors.html
-
-**President Trump Seeks Retribution in Republican Primaries**\
-`President Trump is endorsing candidates in a series of primary elections this month, trying to defeat incumbents in his own party who have crossed him. Our national political correspondent Shane Goldmacher explains.`\
-https://www.nytimes.com/video/us/politics/100000010873895/president-trump-seeks-retribution-in-republican-primaries.html
-
-**The Right Way to Mulch**\
-`Shredded organic matter is a boon to beds, borders and edible gardens. Here’s how to use it.`\
-https://www.nytimes.com/2026/05/05/realestate/mulch-gardening-tips-trees.html
-
-**The Book That Changed How I Think About Liberalism**\
-`The historian Helena Rosenblatt traces the roots of liberalism and the values that many have forgotten.`\
-https://www.nytimes.com/2026/05/05/opinion/ezra-klein-podcast-helena-rosenblatt.html
 
