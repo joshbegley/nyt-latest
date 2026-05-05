@@ -1,3 +1,11 @@
+**Democrats Urge N.Y. Leaders to Usher in New Redistricting Rules**\
+`The House minority leader, Hakeem Jeffries, sent a familiar emissary to the New York State Capitol to convey the party’s urgency following a recent Supreme Court decision.`\
+https://www.nytimes.com/2026/05/05/nyregion/redistricting-ny-democrats.html
+
+**How Heidi Klum Turned Into a Statue for the Met Gala**\
+`“I could eat and use my hands quite comfortably,” Klum said of her intricate Roman statue ensemble, which was inspired by a marble sculpture by Raffaele Monti.`\
+https://www.nytimes.com/2026/05/05/style/heidi-klum-outfit-met-gala.html
+
 **F.A.A. Proposes Rule for Drone-Free Zones**\
 `The Federal Aviation Administration proposed a system for designating certain “critical infrastructure” sites off limits to unmanned aircraft.`\
 https://www.nytimes.com/2026/05/05/us/politics/faa-drones-proposed-rule.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-indiana-primary.ht
 **Ohio First Congressional District Primary Election Results**\
 `Get live results and maps from the 2026 Ohio primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-1-primary.html
-
-**Ohio Fourth Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Ohio primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-4-primary.html
-
-**Ohio 13th Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Ohio primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-13-primary.html
 
