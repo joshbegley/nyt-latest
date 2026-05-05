@@ -1,3 +1,7 @@
+**Five Publishers and Scott Turow Sue Meta and Mark Zuckerberg**\
+`The class-action lawsuit accuses the tech giant and its founder and chief executive of infringing on authors’ copyrights.`\
+https://www.nytimes.com/2026/05/05/books/publishers-turow-meta-zuckerberg-lawsuit-copyright.html
+
 **Steyer, a Climate Activist, Retains Ties to a Hedge Fund That Backs Coal**\
 `Questions linger about the finances of Tom Steyer, who has emerged as a leading contender in the California governor’s race. He says he has asked that his money be separated from fossil fuel investments.`\
 https://www.nytimes.com/2026/05/05/us/tom-steyer-california-governor-coal.html
