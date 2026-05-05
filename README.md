@@ -58,8 +58,8 @@ https://www.nytimes.com/2026/05/05/arts/design/venice-biennale-flashpoints-expla
 `Rusia necesita muchos soldados. Muchos africanos necesitan trabajo.`\
 https://www.nytimes.com/es/2026/05/05/espanol/mundo/africanos-guerra-rusia.html
 
-**Cruise Ship Struck by Hantavirus Remains at Sea**\
-`Passengers on the MV Hondius have not received permission from the authorities in Cape Verde, in the Atlantic Ocean, to disembark. Three people have died and at least three others were ill.`\
+**Cruise Ship Struck by Hantavirus Is to Head to Canary Islands, W.H.O. Says**\
+`Spain said it would decide on a port of call only after disease experts inspected the vessel. The World Health Organization said human-to-human transmission may have played a role in the outbreak.`\
 https://www.nytimes.com/2026/05/05/world/africa/cruise-ship-hantavirus-cape-verde-hondius.html
 
 **Connections Companion No. 1,060**\
