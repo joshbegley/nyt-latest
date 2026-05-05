@@ -1,3 +1,7 @@
+**For One Couple, the ABCs of Home Renovation Were Not So Simple**\
+`Stacie Grissom and Sean Wilson’s 9,000-square-foot Indiana schoolhouse is a lesson in courage.`\
+https://www.nytimes.com/2026/05/05/realestate/indiana-schoolhouse-homestead-renovation.html
+
 **A Loft with Past Lives Gets an Owner Making a New One**\
 `How Jessica Helfand, an artist, started a new chapter in an industrial building.`\
 https://www.nytimes.com/2026/05/05/arts/jessica-helfand-providence-studio.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-senate-spe
 **Ohio Sixth Congressional District Primary Election Results**\
 `Get live results and maps from the 2026 Ohio primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-6-primary.html
-
-**Ohio Fifth Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Ohio primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-5-primary.html
 
