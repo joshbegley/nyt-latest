@@ -1,5 +1,9 @@
 **No Reverse Aging for Bad Bunny**\
 `The singer, 32, said it took “53 years” to prepare his look.`\
+https://www.nytimes.com/2026/05/04/style/no-reverse-aging-for-bad-bunny.html
+
+**No Reverse Aging for Bad Bunny**\
+`The singer, 32, said it took “53 years” to prepare his look.`\
 https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/no-reverse-aging-for-bad-bunny
 
 **Vote for Your Favorite Met Gala Looks**\
