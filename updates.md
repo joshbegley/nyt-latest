@@ -1,3 +1,7 @@
+**Heidi Klum Turned to Stone for Her Met Gala Look**\
+`The model’s trompe l’oeil outfit would have been equally at home at one of her Halloween parties.`\
+https://www.nytimes.com/2026/05/04/style/heidi-klum-met-gala.html
+
 **Sabrina Carpenter Wears ‘Sabrina’**\
 `It was perhaps the Met Gala’s most meta moment.`\
 https://www.nytimes.com/2026/05/04/style/sabrina-carpenter-wears-sabrina-met-gala.html

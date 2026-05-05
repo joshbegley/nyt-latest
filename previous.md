@@ -1,3 +1,7 @@
+**Heidi Klum Turned to Stone for Her Met Gala Look**\
+`The model’s trompe l’oeil outfit would have been equally at home at one of her Halloween parties.`\
+https://www.nytimes.com/2026/05/04/style/heidi-klum-met-gala.html
+
 **Sabrina Carpenter Wears ‘Sabrina’**\
 `It was perhaps the Met Gala’s most meta moment.`\
 https://www.nytimes.com/2026/05/04/style/sabrina-carpenter-wears-sabrina-met-gala.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/04/technology/musk-sec-settlement-twitter.html
 **Soil at D.C. Golf Course Where East Wing Debris Was Dumped Contains Toxic Metals**\
 `The National Park Service said the dump of debris, between the fourth and ninth holes, does not exceed environmental limits. Opponents disagree.`\
 https://www.nytimes.com/2026/05/04/climate/east-potomac-golf-debris-toxic.html
-
-**Kennedy Center Ticketing Union Files Labor Charge Over Layoffs**\
-`The International Alliance of Theatrical Stage Employees challenged the terminations in a complaint to the National Labor Relations Board.`\
-https://www.nytimes.com/2026/05/04/arts/music/kennedy-center-ticketing-union-labor-charge-layoffs.html
 
