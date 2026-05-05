@@ -1,7 +1,3 @@
-**Kennedy Starts a Push to Help Americans Quit Antidepressants**\
-`The health secretary has long complained that Americans overuse psychiatric medications. New policies he is introducing aim to change that.`\
-https://www.nytimes.com/2026/05/04/science/rfk-antidepressants-ssris-hhs-maha.html
-
 **Student News Quiz: Supreme Court, Movie Sequel, Middle Schoolers**\
 `Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
 https://www.nytimes.com/interactive/2026/05/04/learning/04StudentNewsQuiz.html
@@ -77,4 +73,8 @@ https://www.nytimes.com/video/podcasts/100000010880457/who-do-you-think-is-more-
 **What Will the May Primaries Reveal About Trump’s Power Over Republicans?**\
 `A series of Republican contests will test his grip on the party.`\
 https://www.nytimes.com/2026/05/04/us/politics/may-primary-elections-trump-republicans.html
+
+**Tucker Carlson: JD Vance Is ‘in a Tough Spot’**\
+`Tucker Carlson said he would “always love JD Vance as a man.” But he thinks the war in Iran has put the vice president in a difficult position.`\
+https://www.nytimes.com/video/podcasts/100000010880349/tucker-carlson-jd-vance-is-in-a-tough-spot.html
 
