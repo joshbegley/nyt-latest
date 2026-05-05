@@ -1,3 +1,11 @@
+**Democrats Urge N.Y. Leaders to Redistrict After Supreme Court Ruling**\
+`The House minority leader, Hakeem Jeffries, sent a familiar emissary to the New York State Capitol to convey the party’s urgency to draw more favorable maps.`\
+https://www.nytimes.com/2026/05/05/nyregion/redistricting-ny-democrats.html
+
+**Judge Refers Justice Dept. Lawyer for Possible Discipline, Calling Out ‘Lack of Candor’**\
+`Officials withheld a detainee’s overseas arrest warrant from a federal judge. When she ordered his release, they used the same information to attack her publicly.`\
+https://www.nytimes.com/2026/05/05/us/politics/rhode-island-judge-justice-department-immigrant.html
+
 **Democrats Urge N.Y. Leaders to Usher in New Redistricting Rules**\
 `The House minority leader, Hakeem Jeffries, sent a familiar emissary to the New York State Capitol to convey the party’s urgency following a recent Supreme Court decision.`\
 https://www.nytimes.com/2026/05/05/nyregion/redistricting-ny-democrats.html

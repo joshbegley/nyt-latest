@@ -1,5 +1,5 @@
-**Democrats Urge N.Y. Leaders to Usher in New Redistricting Rules**\
-`The House minority leader, Hakeem Jeffries, sent a familiar emissary to the New York State Capitol to convey the party’s urgency following a recent Supreme Court decision.`\
+**Democrats Urge N.Y. Leaders to Redistrict After Supreme Court Ruling**\
+`The House minority leader, Hakeem Jeffries, sent a familiar emissary to the New York State Capitol to convey the party’s urgency to draw more favorable maps.`\
 https://www.nytimes.com/2026/05/05/nyregion/redistricting-ny-democrats.html
 
 **How Heidi Klum Turned Into a Statue for the Met Gala**\
@@ -18,7 +18,7 @@ https://www.nytimes.com/es/2026/05/05/espanol/estados-unidos/guerra-iran-efectos
 `Tanner Horner kidnapped and strangled the girl, Athena Strand, after delivering a package to her home in Texas. The package was her Christmas gift, a set of Barbies.`\
 https://www.nytimes.com/2026/05/05/us/fedex-driver-murder-athena-strand-sentencing.html
 
-**Judge Refers Justice Dept. Lawyer for Possible Discipline, Calls Out ‘Lack of Candor’**\
+**Judge Refers Justice Dept. Lawyer for Possible Discipline, Calling Out ‘Lack of Candor’**\
 `Officials withheld a detainee’s overseas arrest warrant from a federal judge. When she ordered his release, they used the same information to attack her publicly.`\
 https://www.nytimes.com/2026/05/05/us/politics/rhode-island-judge-justice-department-immigrant.html
 
