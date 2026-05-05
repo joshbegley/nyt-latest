@@ -1,3 +1,7 @@
+**How Did You Grow and Change This School Year?**\
+`In this forum, we invite both students and teachers to reflect on their challenges and successes — and to consider how to build on them for next year.`\
+https://www.nytimes.com/2026/05/05/learning/how-did-you-grow-and-change-this-school-year.html
+
 **Was It Art? Was It Fashion? Was It Good?**\
 `Guests at the Met Gala had different interpretations of the night’s dress code.`\
 https://www.nytimes.com/2026/05/05/style/fashion-art-met-gala.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/05/arts/music/brett-dean-berlin-philharmonic.htm
 ****\
 ``\
 https://www.nytimes.com/video/embedded/world/middleeast/100000010883567/05visualUploader-2698.html
-
-**Lindsey Vonn, ASAP Rocky and Lisa Flock to Met Gala After-Parties**\
-`Models, designers, D.J.s and performers kept the night going into the early morning.`\
-https://www.nytimes.com/2026/05/05/style/met-gala-after-party-nyc.html
 
