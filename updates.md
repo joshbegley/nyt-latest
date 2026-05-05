@@ -1,3 +1,11 @@
+**Nuestros 15 atuendos favoritos de la Gala del Met 2026**\
+`Independientemente del tema, estos invitados estaban simplemente estupendos.`\
+https://www.nytimes.com/es/2026/05/05/espanol/estilos-de-vida/met-gala-2026-mejores-looks.html
+
+**Need to Catch Up on the Met Gala? Read This.**\
+`We’ve got your morning after recap.`\
+https://www.nytimes.com/2026/05/05/style/met-gala-recap.html
+
 **U.S.C. Will Infuse A.I. Across University With $200 Million Donation**\
 `The University of Southern California wants to integrate artificial intelligence into fields like health care and the arts. Other universities are also using donations to focus more on A.I.`\
 https://www.nytimes.com/2026/05/05/us/usc-ai-200-million-donation.html

@@ -1,3 +1,7 @@
+**Nuestros 15 atuendos favoritos de la Gala del Met 2026**\
+`Independientemente del tema, estos invitados estaban simplemente estupendos.`\
+https://www.nytimes.com/es/2026/05/05/espanol/estilos-de-vida/met-gala-2026-mejores-looks.html
+
 **U.S.C. Will Infuse A.I. Across University With $200 Million Donation**\
 `The University of Southern California wants to integrate artificial intelligence into fields like health care and the arts. Other universities are also using donations to focus more on A.I.`\
 https://www.nytimes.com/2026/05/05/us/usc-ai-200-million-donation.html
@@ -6,8 +10,8 @@ https://www.nytimes.com/2026/05/05/us/usc-ai-200-million-donation.html
 `Ford Motor has written off $20 billion in electric vehicle investments but says it is forging ahead with an electric pickup that will sell for $30,000 next year.`\
 https://www.nytimes.com/2026/05/05/business/ford-motor-electric-pickup-truck.html
 
-**Everything You Need to Know About the Met Gala**\
-`Yes, there is more.`\
+**Need to Catch Up on the Met Gala? Read This.**\
+`We’ve got your morning after recap.`\
 https://www.nytimes.com/2026/05/05/style/met-gala-recap.html
 
 **Daniel Radcliffe, John Lithgow and Lesley Manville Pick Up Tony Nominations**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/05/world/middleeast/uae-saudi-arabia-oil-opec-wh
 **Steve Ballmer’s Victim Impact, the Man Who Prosecuted Aspiration and the Abacus of Incarceration**\
 `Kawhi-Gate, part X.`\
 https://www.nytimes.com/2026/05/05/podcasts/steve-ballmers-victim-impact-the-man-who-prosecuted-aspiration-and-the-abacus-of-incarceration.html
-
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/05/05/world/iran-war-trump-hormuz/heres-the-latest
 
