@@ -1,3 +1,7 @@
+**Tony Awards Nominations 2026: Updating List**\
+`Nominations for the 79th Tony Awards will be announced on Tuesday. Here’s the updating list.`\
+https://www.nytimes.com/2026/05/05/theater/tony-awards-nominations.html
+
 **The Best Looks From the Met Gala**\
 `We’re covering the cobblestone carpet.`\
 https://www.nytimes.com/2026/05/05/briefing/the-best-looks-from-the-met-gala.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/05/nyregion/anne-frank-staten-island.html
 **How Are Your Teachers Handling Writing in the Age of A.I.?**\
 `More educators are turning to in-class writing with pen and paper to discourage the incursion of artificial intelligence. What are your teachers doing? What do you think?`\
 https://www.nytimes.com/2026/05/05/learning/how-are-your-teachers-handling-writing-in-the-age-of-ai.html
-
-**The Hole-in-the-Wall Shop That Dressed Hip-Hop**\
-`The name of the South Bronx store was H&R Hosiery, though nobody called it that. But it shaped street fashion, until the rent rose to $8,000 a month.`\
-https://www.nytimes.com/2026/05/05/nyregion/south-bronx-hip-hop-streetwear.html
 
