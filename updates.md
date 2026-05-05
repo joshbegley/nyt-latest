@@ -1,3 +1,7 @@
+**Behind the White House’s Potential Rethink on A.I.**\
+`Artificial intelligence has become a national security concern. That has federal officials rethinking how lightly it should regulate the technology.`\
+https://www.nytimes.com/2026/05/05/business/dealbook/trump-ai-regulation.html
+
 **Tony Awards Nominations 2026: Updating List**\
 `Nominations for the 79th Tony Awards will be announced on Tuesday. Here’s the updating list.`\
 https://www.nytimes.com/2026/05/05/theater/tony-awards-nominations.html
