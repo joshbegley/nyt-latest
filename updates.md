@@ -1,3 +1,11 @@
+**Sabrina Carpenter Wears ‘Sabrina’**\
+`It was perhaps the Met Gala’s most meta moment.`\
+https://www.nytimes.com/2026/05/04/style/sabrina-carpenter-wears-sabrina-met-gala.html
+
+**Trump Administration Demands Names of 2020 Election Workers in Georgia**\
+`The Justice Department again appears to be using the investigative power of the federal government to rehash debunked claims that Democrats stole the 2020 election.`\
+https://www.nytimes.com/2026/05/04/us/politics/trump-2020-georgia-election-workers.html
+
 **Supreme Court Agrees to Fast-Track Louisiana Voting Map Decision**\
 `Louisiana voters who successfully challenged the state’s voting map as an illegal racial gerrymander had asked the justices to quickly return the case to the lower courts, clearing the way for a new map.`\
 https://www.nytimes.com/2026/05/04/us/politics/supreme-court-louisiana-voting-rights-act.html
