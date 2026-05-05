@@ -1,8 +1,20 @@
+**For Canada’s Ceremonial Head of State, a Symbol of Rights and the Rule of Law**\
+`Prime Minister Mark Carney’s appointment of Louise Arbour, a former Supreme Court justice, as governor general, sends a message beyond Canada.`\
+https://www.nytimes.com/2026/05/05/world/canada/canada-louis-arbour-governor-general.html
+
+**Suspect in National Mall Shooting Is Identified**\
+`Michael Marx, a 45-year-old Texan, is accused of shooting at Secret Service agents by the Washington Monument on Monday.`\
+https://www.nytimes.com/live/2026/05/05/us/trump-news/secret-service-shooting-gunman-identified
+
+**U.S. Says Cease-Fire With Iran Is Holding, Despite Attacks**\
+`The American effort to reopen the Strait of Hormuz to commercial shipping is still on course, Defense Secretary Pete Hegseth said, even as Iran’s state broadcaster dismissed it as a failure.`\
+https://www.nytimes.com/2026/05/05/world/middleeast/iran-us-ceasefire-attacks.html
+
 **Iran announces a new system for traffic in the Strait of Hormuz.**\
 ``\
 https://www.nytimes.com/live/2026/05/05/world/iran-war-trump-hormuz/iran-announces-a-new-system-for-traffic-in-the-strait-of-hormuz
 
-**Trump and Xi, This Is Your Nixon-Mao Moment**\
+**The U.S. and China Have a Common Foe. Hint: It’s Not the U.S.S.R.**\
 `A new level of global disorder will face the American and Chinese presidents at their summit. Like Mao and Nixon, they face a common threat.`\
 https://www.nytimes.com/2026/05/05/opinion/trump-xi-summit-ai-global-threats.html
 
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/05/us/politics/rhode-island-judge-justice-depart
 ****\
 ``\
 https://www.nytimes.com/video/embedded/us/100000010884498/05vid-teen-takeover-22160.html
-
-****\
-``\
-https://www.nytimes.com/video/embedded/us/100000010884501/05vid-teen-takeover-12432.html
-
-**Andrew Tate’s Civil Trial Over Assault Claims Is Postponed**\
-`A British judge on Tuesday ordered a delay in a civil trial set for June after the police said they would reinvestigate criminal accusations against Mr. Tate.`\
-https://www.nytimes.com/2026/05/05/world/europe/andrew-tate-trial-uk-accusations.html
-
-**A Democrat Who Makes Me Listen**\
-`An interview with Representative Jake Auchincloss, a Democrat from the charismatic center.`\
-https://www.nytimes.com/2026/05/05/opinion/jake-auchincloss-democrat-massachusetts.html
 
