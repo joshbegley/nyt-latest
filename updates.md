@@ -1,3 +1,11 @@
+**Today, In Short**\
+`Tank tops. The Tony Awards. And vote for your favorite Met Gala looks.`\
+https://www.nytimes.com/2026/05/05/briefing/today-in-short.html
+
+**What We Know About ‘Project Freedom’ in the Strait of Hormuz**\
+`Violence flared in the waterway on Monday after President Trump said the United States would help guide stranded ships. It’s not clear exactly how the plan is working.`\
+https://www.nytimes.com/2026/05/05/world/middleeast/trump-strait-hormuz-plan-project-freedom-iran.html
+
 **Ship Stranded for Weeks Exits Persian Gulf Under U.S. Protection**\
 `A U.S.-flagged ship operated by a Maersk subsidiary exited under American military guidance, part of President Trump’s effort to encourage ships to pass the Strait of Hormuz.`\
 https://www.nytimes.com/2026/05/05/business/maersk-ship-strait-hormuz-iran-us.html
