@@ -1,80 +1,80 @@
-**Highlights From the Met Gala**\
-`Stars wore feathers, jewels and bubbles at the Met Gala in outfits inspired by the dress code, “fashion is art.” The fund-raiser drew $42 million.`\
-https://www.nytimes.com/video/style/100000010882469/met-gala-2026.html
+**El secretismo sobre los acuerdos petroleros de Venezuela continúa**\
+`Los funcionarios de Trump y sus aliados venezolanos han prometido una nueva era de rendición de cuentas para desbloquear la inmensa riqueza petrolera de Venezuela. Pero la industria petrolera del país sigue siendo un agujero negro.`\
+https://www.nytimes.com/es/2026/05/05/espanol/america-latina/acuerdos-petroleros-venezuela.html
 
-**A Visitor From the Oort Cloud: Rare Comet Appears in Southern Skies**\
-`Known as C/2025 R3 PANSTARRS, the comet will be visible to stargazers using a telescope in New Zealand, Australia and South Africa.`\
-https://www.nytimes.com/2026/05/05/world/australia/comet-oort-cloud-nz-australia-south-africa.html
+**‘When You Think of It, We Shouldn’t Even Have an Election’**\
+`Who will keep the 2026 ballots straight?`\
+https://www.nytimes.com/2026/05/05/opinion/trump-midterm-elections-2026.html
 
-**Deadly Explosion Destroys Fireworks Factory in China**\
-`An explosion on Monday in a fireworks factory in southern China killed at least 26 people. State media footage showed several damaged buildings.`\
-https://www.nytimes.com/video/world/asia/100000010882689/china-explosion-fireworks-factory.html
+**California Governor’s Race Heats Up With Back-to-Back Debates**\
+`Voters are starting to make decisions after receiving their primary ballots this week. The election includes a turbulent governor’s race and a competitive mayoral contest in Los Angeles.`\
+https://www.nytimes.com/2026/05/05/us/california-election-governor-june-primary.html
 
-**¿Cuáles son las verdaderas creencias de Tucker Carlson? Fui a Maine a averiguarlo**\
-`El destacado comentarista conservador se distanció del gobierno de Trump por la guerra en Irán. ¿Durará la ruptura?`\
-https://www.nytimes.com/es/2026/05/05/espanol/estados-unidos/tucker-carlson-entrevista-guerra-iran.html
+**Sequels**\
+`“The Devil Wears Prada 2” is out. Are you excited? What’s your favorite movie sequel of all time?`\
+https://www.nytimes.com/2026/05/05/learning/sequels.html
 
-**¿El secreto para comer menos es amar la comida?**\
-`Se suele pensar que nos deleitamos tanto con la comida que consumimos mucha más cantidad de la que necesitamos. Pero ¿y si el verdadero problema es que no la gozamos lo suficiente?`\
-https://www.nytimes.com/es/2026/05/05/espanol/estilos-de-vida/comer-adelgazar-placer.html
+**How Anne Frank Is Linked to a Sapling on Staten Island**\
+`On the campus of Wagner College, a cutting from a chestnut tree has been planted. It once grew in Amsterdam outside Anne Frank’s window.`\
+https://www.nytimes.com/2026/05/05/nyregion/anne-frank-staten-island.html
 
-**‘La zona de la muerte’: cómo Rusia atrae africanos a Ucrania**\
-`Cada vez más hombres de todo el continente africano se van a Rusia en pos de una promesa de empleo, solo para terminar siendo obligados a participar en la guerra: “Yo luchaba por Rusia. Tenía un uniforme ruso. Pero no era mi lucha”.`\
-https://www.nytimes.com/es/2026/05/05/espanol/mundo/africanos-rusia-guerra-engano.html
+**How Are Your Teachers Handling Writing in the Age of A.I.?**\
+`More educators are turning to in-class writing with pen and paper to discourage the incursion of artificial intelligence. What are your teachers doing? What do you think?`\
+https://www.nytimes.com/2026/05/05/learning/how-are-your-teachers-handling-writing-in-the-age-of-ai.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/05/05/crosswords/spelling-bee-forum.html
+**The Hole-in-the-Wall Shop That Dressed Hip-Hop**\
+`The name of the South Bronx store was H&R Hosiery, though nobody called it that. But it shaped street fashion, until the rent rose to $8,000 a month.`\
+https://www.nytimes.com/2026/05/05/nyregion/south-bronx-hip-hop-streetwear.html
 
-**How Times Reporters Talk to Their Kids About the News**\
-`Four journalists share how they discuss the sensitive topics they cover, such as war and gun violence, with their young ones.`\
-https://www.nytimes.com/2026/05/05/insider/how-times-reporters-talk-to-their-kids-about-the-news.html
+**Can Ken Paxton Win a Senate Primary in Texas Without His Biggest Donors?**\
+`The Texas attorney general is heading into the runoff against Senator John Cornyn without the support of some of his longtime backers.`\
+https://www.nytimes.com/2026/05/05/us/ken-paxton-john-cornyn-senate-donors.html
 
-**Mingling With Jeff Bezos and Stevie Nicks at the 2026 Met Gala Cocktail Party**\
-`Guests had many interpretations for the “Fashion Is Art” dress code.`\
-https://www.nytimes.com/2026/05/05/style/met-gala-cocktail-party.html
+**President Trump Seeks Retribution in Republican Primaries**\
+`President Trump is endorsing candidates in a series of primary elections this month, trying to defeat incumbents in his own party who have crossed him. Our national political correspondent Shane Goldmacher explains.`\
+https://www.nytimes.com/video/us/politics/100000010873895/president-trump-seeks-retribution-in-republican-primaries.html
 
-**Late Night Will Miss Making Fun of Spirit Airlines**\
-`The budget carrier announced that “‘all flights have been canceled, and customer service is no longer available,’ which, coincidentally, was also Spirit’s motto,” Stephen Colbert said.`\
-https://www.nytimes.com/2026/05/05/arts/television/late-night-spirit-airlines.html
+**The Right Way to Mulch**\
+`Shredded organic matter is a boon to beds, borders and edible gardens. Here’s how to use it.`\
+https://www.nytimes.com/2026/05/05/realestate/mulch-gardening-tips-trees.html
 
-**Palabra del día: ‘superfluous’**\
-`Esta palabra ha aparecido en 41 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
-https://www.nytimes.com/es/2026/05/05/espanol/que-significa-superfluous.html
+**The Book That Changed How I Think About Liberalism**\
+`The historian Helena Rosenblatt traces the roots of liberalism and the values that many have forgotten.`\
+https://www.nytimes.com/2026/05/05/opinion/ezra-klein-podcast-helena-rosenblatt.html
 
-**Word of the Day: superfluous**\
-`This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/05/05/learning/word-of-the-day-superfluous.html
+**Trump Is Losing Normie Republicans**\
+`They’re neither never-Trumpers nor independents, but they’re increasingly meh on MAGA.`\
+https://www.nytimes.com/2026/05/05/opinion/trump-midterms-maga-gop.html
 
-**Oil Prices Slide but Remain Elevated as Middle East Tensions Escalate**\
-`Oil prices fell, giving back some of the gains from the previous day as attacks in the Middle East raised concerns about the war starting again.`\
-https://www.nytimes.com/2026/05/05/business/oil-gas-prices-iran.html
+**7 Elections on Tuesday Will Test Trump’s Power**\
+`The president is seeking political payback for Republican state legislators in Indiana who rejected his push to redraw the state’s political map last year.`\
+https://www.nytimes.com/2026/05/05/us/indiana-legistature-election-trump.html
 
-**U.S. Military Strikes Boat in Caribbean, Killing 2**\
-`The aerial strike raised the death toll to at least 187 in the U.S. campaign against boats the Trump administration accuses of smuggling drugs.`\
-https://www.nytimes.com/2026/05/05/us/us-military-boat-strike-caribbean.html
+**What Do We Lose When ‘The Late Show’ Goes Away?**\
+`Our attachment to an institution may seem counterintuitive, especially with comedy, a rebellious art form. But with Stephen Colbert’s program, there was a lot at stake.`\
+https://www.nytimes.com/2026/05/05/arts/television/stephen-colbert-the-late-show-carson-letterman-leno.html
 
-**Por qué algunos africanos combaten por Rusia en Ucrania**\
-`La falta de empleo y promesas de trabajo llevan a jóvenes africanos a un conflicto lejano y peligroso.`\
-https://www.nytimes.com/es/2026/05/05/espanol/mundo/combatientes-africanos-rusia-ucrania.html
+**David Letterman on ‘The Late Show’ Ending and CBS’s New Owners**\
+`He no longer feels a sense of ownership, but the program’s former host has harsh words for the network.`\
+https://www.nytimes.com/2026/05/05/arts/television/david-letterman-stephen-colbert-the-late-show-cbs.html
 
-**¿No puedes dormir? Ojo con los suplementos para el sueño**\
-`Muchas personas utilizan somníferos como el magnesio, la melatonina o el CBD para ayudarles a conciliar el sueño, pero puede no ser la respuesta.`\
-https://www.nytimes.com/es/2026/05/05/espanol/estilos-de-vida/suplementos-dormir-sueno.html
+**Can the Argentine President’s Deregulatory Frenzy Buoy the Global Right?**\
+`With his signature chain saw, Javier Milei became a MAGA superstar. At home, his state-slashing experiment is on the line.`\
+https://www.nytimes.com/2026/05/05/magazine/argentina-president-javier-milei-maga.html
 
-**Democrats, Britain’s Prime Minister Is a Warning**\
-`Keir Starmer’s collapse was written into the nature of his victory.`\
-https://www.nytimes.com/2026/05/05/opinion/keir-starmer-britain-democrats.html
+**A Top 2026 Senate Race Kicks Off With Attacks About Jeffrey Epstein**\
+`Ohio’s unusual contest — with a little-known incumbent and a well-known challenger — shows how Democrats are hoping to capitalize on G.O.P. voters’ anger at the Jeffrey Epstein scandal.`\
+https://www.nytimes.com/2026/05/05/us/politics/ohio-senate-jeffrey-epstein-john-husted-sherrod-brown.html
 
-**Fireworks Factory Blast in China Kills at Least 26**\
-`Dozens more were injured in the explosion, which appeared to be one of the country’s deadliest in recent years.`\
-https://www.nytimes.com/2026/05/05/world/asia/china-fireworks-factory-explosion.html
+**Hunting for the Rare Thrills of Northern Vietnamese Food? Try Portland.**\
+`At the Paper Bridge in Oregon, a husband-and-wife chef team is expanding the story of Viet restaurants in the United States.`\
+https://www.nytimes.com/2026/05/05/dining/restaurant-review-paper-bridge-portland.html
 
-**What a Bike Ride Showed Me About Apartheid’s Legacy**\
-`A New York Times reporter joined a group of cyclists on a route meant to break down Cape Town’s lingering racial and economic barriers.`\
-https://www.nytimes.com/2026/05/05/world/africa/cape-town-apartheid-bike-ride.html
+**Why an Artist Known for Grand Installations Loves Miniature Figurines**\
+`Lauren Halsey’s porcelain Black statuettes, collected over two decades, depict people singing in church, playing in the park and other scenes of everyday life.`\
+https://www.nytimes.com/2026/05/05/t-magazine/lauren-halsey-collection.html
 
-**Taiwan Could Learn From Ukraine. Informally, Connections Are Growing.**\
-`The governments have no official diplomatic or military ties. But a loose network led by company executives and volunteers is bridging some of that gulf.`\
-https://www.nytimes.com/2026/05/05/world/europe/ukraine-taiwan-drones.html
+**I Regret to Inform You of the Better Face Inside Your Face**\
+`The world has gone crazy for tools and tricks that slim the visage. Is vanity to blame — or something weirder?`\
+https://www.nytimes.com/2026/05/05/magazine/small-face-correction-treatment.html
 
