@@ -1,3 +1,11 @@
+**U.S.C. Will Infuse A.I. Across University With $200 Million Donation**\
+`The University of Southern California wants to integrate artificial intelligence into fields like health care and the arts. Other universities are also using donations to focus more on A.I.`\
+https://www.nytimes.com/2026/05/05/us/usc-ai-200-million-donation.html
+
+**After Setbacks, Ford Says Its Affordable Electric Truck Is on Track**\
+`Ford Motor has written off $20 billion in electric vehicle investments but says it is forging ahead with an electric pickup that will sell for $30,000 next year.`\
+https://www.nytimes.com/2026/05/05/business/ford-motor-electric-pickup-truck.html
+
 **Everything You Need to Know About the Met Gala**\
 `Yes, there is more.`\
 https://www.nytimes.com/2026/05/05/style/met-gala-recap.html

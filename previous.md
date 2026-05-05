@@ -1,3 +1,11 @@
+**U.S.C. Will Infuse A.I. Across University With $200 Million Donation**\
+`The University of Southern California wants to integrate artificial intelligence into fields like health care and the arts. Other universities are also using donations to focus more on A.I.`\
+https://www.nytimes.com/2026/05/05/us/usc-ai-200-million-donation.html
+
+**After Setbacks, Ford Says Its Affordable Electric Truck Is on Track**\
+`Ford Motor has written off $20 billion in electric vehicle investments but says it is forging ahead with an electric pickup that will sell for $30,000 next year.`\
+https://www.nytimes.com/2026/05/05/business/ford-motor-electric-pickup-truck.html
+
 **Everything You Need to Know About the Met Gala**\
 `Yes, there is more.`\
 https://www.nytimes.com/2026/05/05/style/met-gala-recap.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/05/podcasts/steve-ballmers-victim-impact-the-man
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/05/05/world/iran-war-trump-hormuz/heres-the-latest
-
-**El secretismo sobre los acuerdos petroleros de Venezuela continúa**\
-`Los funcionarios de Trump y sus aliados venezolanos han prometido una nueva era de rendición de cuentas para desbloquear la inmensa riqueza petrolera de Venezuela. Pero la industria petrolera del país sigue siendo un agujero negro.`\
-https://www.nytimes.com/es/2026/05/05/espanol/america-latina/acuerdos-petroleros-venezuela.html
-
-**‘When You Think of It, We Shouldn’t Even Have an Election’**\
-`Who will keep the 2026 ballots straight?`\
-https://www.nytimes.com/2026/05/05/opinion/trump-midterm-elections-2026.html
 

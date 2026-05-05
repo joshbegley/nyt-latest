@@ -6,8 +6,8 @@ https://www.nytimes.com/2026/05/05/us/usc-ai-200-million-donation.html
 `Ford Motor has written off $20 billion in electric vehicle investments but says it is forging ahead with an electric pickup that will sell for $30,000 next year.`\
 https://www.nytimes.com/2026/05/05/business/ford-motor-electric-pickup-truck.html
 
-**Everything You Need to Know About the Met Gala**\
-`Yes, there is more.`\
+**Need to Catch Up on the Met Gala? Read This.**\
+`We’ve got your morning after recap.`\
 https://www.nytimes.com/2026/05/05/style/met-gala-recap.html
 
 **Daniel Radcliffe, John Lithgow and Lesley Manville Pick Up Tony Nominations**\
