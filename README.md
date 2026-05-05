@@ -62,8 +62,8 @@ https://www.nytimes.com/2026/05/04/us/calvin-duncan-criminal-court-clerk-new-orl
 `The Department of Homeland Security criticized a judge for releasing a man accused of murder overseas, but did not inform her of the accusation. The judge said she would consider imposing sanctions.`\
 https://www.nytimes.com/2026/05/04/us/politics/judge-dubose-trump-administration-attacks.html
 
-**Gunman Exchanges Fire With Secret Service Near Washington Monument**\
-`The motorcade of Vice President JD Vance passed the scene soon after the shooting.`\
+**Secret Service Shoots and Wounds Armed Man Near Washington Monument**\
+`A 15-year-old boy was also hit. The motorcade of Vice President JD Vance had passed through the area shortly before the shooting.`\
 https://www.nytimes.com/2026/05/04/us/politics/washington-monument-shooting-secret-service.html
 
 **Attacks Threaten to Reignite Iran Conflict**\
