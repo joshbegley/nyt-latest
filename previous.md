@@ -1,3 +1,19 @@
+**Democrats Urge N.Y. Leaders to Usher in New Redistricting Rules**\
+`The House minority leader, Hakeem Jeffries, sent a familiar emissary to the New York State Capitol to convey the party’s urgency following a recent Supreme Court decision.`\
+https://www.nytimes.com/2026/05/05/nyregion/redistricting-ny-democrats.html
+
+**How Heidi Klum Turned Into a Statue for the Met Gala**\
+`“I could eat and use my hands quite comfortably,” Klum said of her intricate Roman statue ensemble, which was inspired by a marble sculpture by Raffaele Monti.`\
+https://www.nytimes.com/2026/05/05/style/heidi-klum-outfit-met-gala.html
+
+**F.A.A. Proposes Rule for Drone-Free Zones**\
+`The Federal Aviation Administration proposed a system for designating certain “critical infrastructure” sites off limits to unmanned aircraft.`\
+https://www.nytimes.com/2026/05/05/us/politics/faa-drones-proposed-rule.html
+
+**Trump desestima los daños económicos de la guerra contra Irán**\
+`Las declaraciones del presidente en un acto en la Casa Blanca contrastan con la realidad económica en la que el aumento de los precios de la energía afecta tanto a familias como a empresas.`\
+https://www.nytimes.com/es/2026/05/05/espanol/estados-unidos/guerra-iran-efectos-economia-trump.html
+
 **FedEx Driver Who Kidnapped and Killed 7-Year-Old Girl Is Sentenced to Death**\
 `Tanner Horner kidnapped and strangled the girl, Athena Strand, after delivering a package to her home in Texas. The package was her Christmas gift, a set of Barbies.`\
 https://www.nytimes.com/2026/05/05/us/fedex-driver-murder-athena-strand-sentencing.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-indiana-primary.ht
 **Ohio First Congressional District Primary Election Results**\
 `Get live results and maps from the 2026 Ohio primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-1-primary.html
-
-**Ohio Fourth Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Ohio primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-4-primary.html
-
-**Ohio 13th Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Ohio primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-13-primary.html
-
-**Ohio Seventh Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Ohio primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-7-primary.html
-
-**Ohio 15th Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Ohio primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-15-primary.html
 
