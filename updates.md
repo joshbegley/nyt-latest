@@ -1,3 +1,19 @@
+**Man Accused of Starting Palisades Fire Admired Luigi Mangione, Prosecutors Say**\
+`The Los Angeles suspect was lonely and angry and felt “enslaved” by rich people, prosecutors say. After being romantically spurned, they say, he went into the mountains and lit a fire.`\
+https://www.nytimes.com/2026/05/04/us/palisades-fire-suspect-jonathan-rinderknecht.html
+
+**Alysa Liu, Connor Storrie and Stevie Nicks Are Among the First-Time Attendees**\
+`Some of those making their Met debuts also happened to have the evening’s most arresting looks.`\
+https://www.nytimes.com/2026/05/04/style/met-gala-first-timers.html
+
+**Shootings On the National Mall Are Rare**\
+`The National Mall and its surroundings are one of the least violent areas in Washington.`\
+https://www.nytimes.com/2026/05/04/us/politics/secret-service-shooting-white-house-washington.html
+
+**Sabrina Carpenter Wears ‘Sabrina’**\
+`It was perhaps the Met Gala’s most meta moment.`\
+https://www.nytimes.com/2026/05/04/style/sabrina-carpenter-film-dress-met-gala.html
+
 **No Reverse Aging for Bad Bunny**\
 `The singer, 32, said it took “53 years” to prepare his look.`\
 https://www.nytimes.com/2026/05/04/style/bad-bunny-met-gala.html
