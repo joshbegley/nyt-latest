@@ -1,3 +1,15 @@
+**‘La zona de la muerte’: cómo Rusia atrae africanos a Ucrania**\
+`Cada vez más hombres de todo el continente africano se van a Rusia en pos de una promesa de empleo, solo para terminar siendo obligados a participar en la guerra: “Yo luchaba por Rusia. Tenía un uniforme ruso. Pero no era mi lucha”.`\
+https://www.nytimes.com/es/2026/05/05/espanol/mundo/africanos-rusia-guerra-engano.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/05/crosswords/spelling-bee-forum.html
+
+**How Times Reporters Talk to Their Kids About the News**\
+`Four journalists share how they discuss the sensitive topics they cover, such as war and gun violence, with their young ones.`\
+https://www.nytimes.com/2026/05/05/insider/how-times-reporters-talk-to-their-kids-about-the-news.html
+
 **Mingling With Jeff Bezos and Stevie Nicks at the 2026 Met Gala Cocktail Party**\
 `Guests had many interpretations for the “Fashion Is Art” dress code.`\
 https://www.nytimes.com/2026/05/05/style/met-gala-cocktail-party.html
