@@ -1,3 +1,15 @@
+**Vote for Your Favorite Met Gala Looks**\
+`You’ve seen the fashion from the Met Gala. Now, the Styles desk wants you to rank your favorites.`\
+https://www.nytimes.com/interactive/2026/05/04/style/met-gala-best-dressed-vote.html
+
+**Notably Missing From the Carpet: The Men of Tech**\
+`No Bezos. No Zuckerberg.`\
+https://www.nytimes.com/2026/05/04/style/notably-missing-from-the-carpet-the-men-of-tech.html
+
+**Unit of Information**\
+`Max Schlenker’s puzzle will help you ease into the week.`\
+https://www.nytimes.com/2026/05/04/crosswords/daily-puzzle-2026-05-05.html
+
 **Sin explicaciones, EE. UU. revocó visas a algunos miembros de La Nación, en Costa Rica**\
 `El gobierno estadounidense revocó las visas de cinco de siete miembros de la junta directiva del principal periódico de investigación en Costa Rica.`\
 https://www.nytimes.com/es/2026/05/04/espanol/america-latina/la-nacion-costa-rica-visas-trump.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/interactive/2026/05/04/learning/04StudentNewsQuiz.html
 **California Seeks ‘Historic’ Fine Against State Farm: Just $2 Million**\
 `Regulators say the penalty is the highest ever sought, but a cap on each violation would soften the blow for California’s largest insurer.`\
 https://www.nytimes.com/2026/05/04/realestate/california-state-farm-fires-insurance.html
-
-**Mamdani Highlights Fashion Workers as He Skips the Met Gala**\
-`New York’s mayor highlighted the seamstresses, tailors and other workers in the fashion industry.`\
-https://www.nytimes.com/2026/05/04/style/mamdani-skips-met-gala-fashion-workers.html
-
-**En fotos: la Gala del Met 2026**\
-`Contempla los atuendos más vistosos.`\
-https://www.nytimes.com/es/2026/05/04/espanol/gala-met-fotos-2026.html
-
-**A Movie About Women Who Love Their Work? Groundbreaking.**\
-`It turns out that some women do, in fact, dream of labor, at least the kind that comes with a sense of mastery, agency and glamour.`\
-https://www.nytimes.com/2026/05/04/opinion/devil-wears-prada-feminism-girlboss.html
 
