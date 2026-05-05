@@ -1,3 +1,7 @@
+**María Nieves Rego, Who Helped Spark a Tango Renaissance, Dies at 91**\
+`With her dance partner and onetime husband, Juan Carlos Copes, she reinvented tango for a global stage, including in the hit stage show “Tango Argentino.”`\
+https://www.nytimes.com/2026/05/05/arts/dance/maria-nieves-rego-dead.html
+
 **6 Stellar All-Female Country Duets**\
 `Hear Kacey Musgraves and Miranda Lambert making peace on the record, and more outstanding collaborations between women in Nashville.`\
 https://www.nytimes.com/2026/05/05/arts/music/amplifier-newsleter-all-female-country-duets.html
@@ -50,8 +54,8 @@ https://www.nytimes.com/2026/05/05/opinion/doctors-arbitration.html
 `Thomas, the beloved mentor and conductor of the San Francisco Symphony, recently died. He offered a road map for a 21st-century career in music.`\
 https://www.nytimes.com/2026/05/05/arts/music/michael-tilson-thomas-conductor-legacy.html
 
-**James Murdoch’s Company Said to Be in Talks to Acquire Most of Vox Media**\
-`A deal for Vox Media would elevate Mr. Murdoch’s company, Lupa Systems, as a major player in U.S. media.`\
+**James Murdoch’s Company Said to Be in Talks to Acquire Major Parts of Vox Media**\
+`A deal for Vox Media, which generates more than $80 million through podcasts alone, would elevate Mr. Murdoch’s company, Lupa Systems, as a major player in U.S. media.`\
 https://www.nytimes.com/2026/05/05/business/media/james-murdoch-vox-media.html
 
 **First, the F.B.I. Searched Her Home. Then, She Won a Pulitzer.**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/us/100000010883020/gunman-shot-outside-white-house
 **How Did You Grow and Change This School Year?**\
 `In this forum, we invite both students and teachers to reflect on their challenges and successes — and to consider how to build on them for next year.`\
 https://www.nytimes.com/2026/05/05/learning/how-did-you-grow-and-change-this-school-year.html
-
-**Was It Art? Was It Fashion? Was It Good?**\
-`Guests at the Met Gala had different interpretations of the night’s dress code.`\
-https://www.nytimes.com/2026/05/05/style/fashion-art-met-gala.html
 

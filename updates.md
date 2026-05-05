@@ -1,3 +1,11 @@
+**María Nieves Rego, Who Helped Spark a Tango Renaissance, Dies at 91**\
+`With her dance partner and onetime husband, Juan Carlos Copes, she reinvented tango for a global stage, including in the hit stage show “Tango Argentino.”`\
+https://www.nytimes.com/2026/05/05/arts/dance/maria-nieves-rego-dead.html
+
+**James Murdoch’s Company Said to Be in Talks to Acquire Major Parts of Vox Media**\
+`A deal for Vox Media, which generates more than $80 million through podcasts alone, would elevate Mr. Murdoch’s company, Lupa Systems, as a major player in U.S. media.`\
+https://www.nytimes.com/2026/05/05/business/media/james-murdoch-vox-media.html
+
 **6 Stellar All-Female Country Duets**\
 `Hear Kacey Musgraves and Miranda Lambert making peace on the record, and more outstanding collaborations between women in Nashville.`\
 https://www.nytimes.com/2026/05/05/arts/music/amplifier-newsleter-all-female-country-duets.html
