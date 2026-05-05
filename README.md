@@ -1,3 +1,7 @@
+**F.A.A. Employee Charged With Threatening to Kill Trump**\
+`The employee, Dean DelleChiaie of Nashua, N.H., was accused of emailing the White House about his plans to kill the president, after using his work computer to conduct related searches.`\
+https://www.nytimes.com/2026/05/05/us/politics/faa-employee-trump-murder-threat-charged.html
+
 **What Happened When the Pope Had to Call Customer Service**\
 `Spoiler alert: There was no miracle.`\
 https://www.nytimes.com/2026/05/05/us/pope-leo-xiv-bank-customer-service.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/05/us/politics/faa-drones-proposed-rule.html
 **Trump desestima los daños económicos de la guerra contra Irán**\
 `Las declaraciones del presidente en un acto en la Casa Blanca contrastan con la realidad económica en la que el aumento de los precios de la energía afecta tanto a familias como a empresas.`\
 https://www.nytimes.com/es/2026/05/05/espanol/estados-unidos/guerra-iran-efectos-economia-trump.html
-
-**Ex-FedEx Driver Who Kidnapped and Killed 7-Year-Old Girl Is Sentenced to Death**\
-`Tanner Horner kidnapped and strangled the girl, Athena Strand, after delivering a package to her home in Texas. The package was her Christmas gift, a set of Barbies.`\
-https://www.nytimes.com/2026/05/05/us/fedex-driver-murder-athena-strand-sentencing.html
 
