@@ -1,3 +1,15 @@
+**Blake Lively y Justin Baldoni zanjan su disputa legal**\
+`Lively había acusado a Baldoni de llevar a cabo una campaña de desprestigio contra ella después de que se quejara de acoso durante el rodaje de una película en la que ambos trabajaban. Él había negado su acusación.`\
+https://www.nytimes.com/es/2026/05/05/espanol/cultura/blake-lively-justin-baldoni-acuerdo-legal.html
+
+**At Meatstock, Steak is Medicine**\
+`Devotees of the carnivore diet, which Health Secretary Robert F. Kennedy, Jr. follows, bonded over brisket and butter in Tennessee.`\
+https://www.nytimes.com/2026/05/05/well/meatstock-carnivore-diet-rfk-jr.html
+
+**Secret Service Officer Charged With Indecent Exposure at Miami Hotel**\
+`The officer, who was in Miami for an event President Trump was attending over the weekend, was seen masturbating in the hallway, the police said.`\
+https://www.nytimes.com/2026/05/05/us/secret-service-agent-indecent-exposure-miami.html
+
 **Today, In Short**\
 `Tank tops. The Tony Awards. And vote for your favorite Met Gala looks.`\
 https://www.nytimes.com/2026/05/05/briefing/today-in-short.html
@@ -19,7 +31,7 @@ https://www.nytimes.com/es/2026/05/05/espanol/mundo/pulitzer-saher-alghorra-gaza
 https://www.nytimes.com/2026/05/05/dining/how-to-ace-mothers-day-dinner.html
 
 ****\
-`Video filmed by the Associated Press on March 27 shows these munitions dispersing over an area near Tyre, a large city in the south of Lebanon.`\
+`News agency video filmed on March 27 shows these munitions dispersing over an area near Tyre, a large city in the south of Lebanon.`\
 https://www.nytimes.com/video/embedded/world/middleeast/100000010883635/tyremarch26.html
 
 **Trump Administration Investigating Smith College Over Transgender Admissions**\
@@ -27,11 +39,11 @@ https://www.nytimes.com/video/embedded/world/middleeast/100000010883635/tyremarc
 https://www.nytimes.com/2026/05/05/us/politics/smith-college-transgender-admissions.html
 
 ****\
-`Video filmed by Anadolu News Agency in Khiam, in early March, shows white phosphorus providing a smoke screen for Israeli military vehicles which are advancing on a road near the town.`\
+`Video filmed in Khiam on March 8 shows white phosphorus providing a smoke screen for Israeli military vehicles which are advancing on a road near the town.`\
 https://www.nytimes.com/video/embedded/world/middleeast/100000010883654/05visualUploader-15815.html
 
 ****\
-`Video filmed by Agence France Presse shows plumes of white smoke consistent with white phosphorus, descending over the town of Khiam, on Sept. 11, 2024.`\
+`Video filmed on September 11, 2024 shows plumes of white smoke consistent with white phosphorus, descending over the town of Khiam in the south of Lebanon.`\
 https://www.nytimes.com/video/embedded/world/middleeast/100000010883637/05visualUploader-58087.html
 
 **He Left the Berlin Philharmonic to Find His Voice. He Found a World Stage.**\
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/05/arts/venice-biennale-photos-video.html
 **Five Publishers and Scott Turow Sue Meta and Mark Zuckerberg**\
 `The class-action lawsuit accuses the tech giant and its founder and chief executive of infringing on authors’ copyrights.`\
 https://www.nytimes.com/2026/05/05/books/publishers-turow-meta-zuckerberg-lawsuit-copyright.html
-
-**A Climate Activist Wants to Run California. Coal Helped Fuel His Wealth.**\
-`Questions linger about the finances of Tom Steyer, who has emerged as a leading contender in the California governor’s race. He says he has asked that his money be separated from fossil fuel investments.`\
-https://www.nytimes.com/2026/05/05/us/tom-steyer-california-governor-coal.html
-
-**Nuestros 15 atuendos favoritos de la Gala del Met 2026**\
-`Independientemente del tema, estos invitados estaban simplemente estupendos.`\
-https://www.nytimes.com/es/2026/05/05/espanol/estilos-de-vida/met-gala-2026-mejores-looks.html
-
-**U.S.C. Will Infuse A.I. Across University With $200 Million Donation**\
-`The University of Southern California wants to integrate artificial intelligence into fields like health care and the arts. Other universities are also using donations to focus more on A.I.`\
-https://www.nytimes.com/2026/05/05/us/usc-ai-200-million-donation.html
 
