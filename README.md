@@ -1,3 +1,7 @@
+**Sin explicaciones, EE. UU. revocó visas a algunos miembros de La Nación, en Costa Rica**\
+`El gobierno estadounidense revocó las visas de cinco de siete miembros de la junta directiva del principal periódico de investigación en Costa Rica.`\
+https://www.nytimes.com/es/2026/05/04/espanol/america-latina/la-nacion-costa-rica-visas-trump.html
+
 **Trump Tries to Downplay Economic Effects of the Iran War**\
 `At a White House event for Small Business Week, he described the economy as “roaring” and predicted that gas prices would go down soon.`\
 https://www.nytimes.com/2026/05/04/us/politics/trump-economy-iran-war.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/04/espanol/gala-met-fotos-2026.html
 **A Movie About Women Who Love Their Work? Groundbreaking.**\
 `It turns out that some women do, in fact, dream of labor, at least the kind that comes with a sense of mastery, agency and glamour.`\
 https://www.nytimes.com/2026/05/04/opinion/devil-wears-prada-feminism-girlboss.html
-
-**S.E.C. Settles Lawsuit Against Elon Musk Over His Twitter Disclosures**\
-`The agency, which has been pulling back on lawsuits against major companies, ended a case that had accused Mr. Musk of hiding his purchases of Twitter stock. He agreed to pay $1.5 million.`\
-https://www.nytimes.com/2026/05/04/technology/musk-sec-settlement-twitter.html
 
