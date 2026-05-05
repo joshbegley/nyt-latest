@@ -1,3 +1,7 @@
+**U.S. Trade Deficit Grew in March**\
+`Both exports and imports rose after the Supreme Court struck down many of the president’s highest levies in February.`\
+https://www.nytimes.com/2026/05/05/business/economy/us-trade-deficit-grew-in-march.html
+
 **Behind the White House’s Potential Rethink on A.I.**\
 `Artificial intelligence has become a national security concern. That has federal officials rethinking how lightly it should regulate the technology.`\
 https://www.nytimes.com/2026/05/05/business/dealbook/trump-ai-regulation.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/05/us/california-election-governor-june-primary.
 **Sequels**\
 `“The Devil Wears Prada 2” is out. Are you excited? What’s your favorite movie sequel of all time?`\
 https://www.nytimes.com/2026/05/05/learning/sequels.html
-
-**How Anne Frank Is Linked to a Sapling on Staten Island**\
-`On the campus of Wagner College, a cutting from a chestnut tree has been planted. It once grew in Amsterdam outside Anne Frank’s window.`\
-https://www.nytimes.com/2026/05/05/nyregion/anne-frank-staten-island.html
 

@@ -1,3 +1,7 @@
+**U.S. Trade Deficit Grew in March**\
+`Both exports and imports rose after the Supreme Court struck down many of the president’s highest levies in February.`\
+https://www.nytimes.com/2026/05/05/business/economy/us-trade-deficit-grew-in-march.html
+
 **Behind the White House’s Potential Rethink on A.I.**\
 `Artificial intelligence has become a national security concern. That has federal officials rethinking how lightly it should regulate the technology.`\
 https://www.nytimes.com/2026/05/05/business/dealbook/trump-ai-regulation.html
