@@ -1,3 +1,7 @@
+**A Loft with Past Lives Gets an Owner Making a New One**\
+`How Jessica Helfand, an artist, started a new chapter in an industrial building.`\
+https://www.nytimes.com/2026/05/05/arts/jessica-helfand-providence-studio.html
+
 **OpenAI Slows Its Plans for Stargate**\
 `Despite initial grand plans for the Stargate project, recent announcements from OpenAI have signaled that it is stalling. The “Hard Fork” hosts Kevin Roose and Casey Newton predict why that might be the case in their latest episode.`\
 https://www.nytimes.com/video/podcasts/100000010883751/openai-slows-its-plans-for-stargate.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-6-pr
 **Ohio Fifth Congressional District Primary Election Results**\
 `Get live results and maps from the 2026 Ohio primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-5-primary.html
-
-**Ohio Third Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Ohio primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-3-primary.html
 
