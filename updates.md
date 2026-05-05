@@ -1,3 +1,15 @@
+**La Gala del Met enfrenta críticas por la participación de Jeff Bezos**\
+`Hay una campaña anti-Bezos en las calles de Nueva York donde han descrito el acto como la “Gala Amazon Prime” o el “Baile de Bezos”.`\
+https://www.nytimes.com/es/2026/05/04/espanol/estilos-de-vida/gala-met-protestas-jeff-bezos.html
+
+**Another Tech Titan Hits the Gala’s Red Carpet**\
+`Sergey Brin, a Google founder, in a dark tuxedo alongside his girlfriend, a conservative influencer.`\
+https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/another-tech-titan-hits-the-galas-red-carpet
+
+**U.S. Revokes Visas of Board Members at Costa Rica’s Top Watchdog Newspaper**\
+`The move came after the paper critically covered the country’s president, who has cozied up to the United States. Analysts view the visa decision as part of a White House strategy to punish critics of its allies.`\
+https://www.nytimes.com/2026/05/04/world/americas/costa-rica-newspaper-us-visas.html
+
 **Kennedy Starts a Push to Help Americans Quit Antidepressants**\
 `The health secretary has long complained that Americans overuse psychiatric medications. New policies he is introducing aim to change that.`\
 https://www.nytimes.com/2026/05/04/science/rfk-antidepressants-ssris-hhs-maha.html
