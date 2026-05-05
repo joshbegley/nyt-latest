@@ -1,3 +1,11 @@
+**Was It Art? Was It Fashion? Was It Good?**\
+`Guests at the Met Gala had different interpretations of the night’s dress code.`\
+https://www.nytimes.com/2026/05/05/style/fashion-art-met-gala.html
+
+**Oyatte Takes the ‘Farm-to-Table’ Approach With Just One Farm**\
+`Gusi focuses on Slavic and Mediterranean food, Bar Hugo provides another rooftop space and more restaurant news.`\
+https://www.nytimes.com/2026/05/05/dining/nyc-restaurant-news.html
+
 **Driver Kills At Least 2 People After Ramming Car Into Pedestrians**\
 `A driver rammed a car into a pedestrian-heavy zone in Germany, killing at least two people and injuring others, the authorities said.`\
 https://www.nytimes.com/video/world/europe/100000010883271/leipzig-germany-car-ramming-deaths.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/embedded/world/middleeast/100000010883567/05visual
 **Lindsey Vonn, ASAP Rocky and Lisa Flock to Met Gala After-Parties**\
 `Models, designers, D.J.s and performers kept the night going into the early morning.`\
 https://www.nytimes.com/2026/05/05/style/met-gala-after-party-nyc.html
-
-**El suéter de Ryan Gosling en ‘Proyecto Hail Mary’ es un éxito. No está a la venta**\
-`El cárdigan que lleva el personaje de Gosling está basado en un patrón para tejer de finales de la década de 1950 de la empresa canadiense de estambres y manualidades Mary Maxim.`\
-https://www.nytimes.com/es/2026/05/05/espanol/estilos-de-vida/sueter-ryan-gosling-proyecto-hail-mary.html
-
-**Congress Is Doing Little to Prepare for Potential A.I. Job Losses**\
-`As fears of A.I.-driven job losses mount, economists warn that unemployment benefits and other programs to help displaced workers aren’t sufficient.`\
-https://www.nytimes.com/2026/05/05/business/artificial-intelligence-safety-net.html
 
