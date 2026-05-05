@@ -1,3 +1,19 @@
+**How Ancient Centipede Ancestors Conquered the Earth**\
+`A long-neglected fossil seems to show the evolutionary leap that let the ancestors of today’s many-legged arthropods crawl forth from the seas.`\
+https://www.nytimes.com/2026/05/05/science/ancient-centipedes-proceedings-myriapods.html
+
+**The Historical Roots of Postliberalism**\
+`Postliberalism may seem like a contemporary movement, with champions like Vice President JD Vance and Patrick Deneen. But the tradition of liberal skepticism reaches much further back. On “The Ezra Klein Show,” the historian Helena Rosenblatt looks back to 19th-century England to explain.`\
+https://www.nytimes.com/video/opinion/100000010870452/the-historical-roots-of-postliberalism.html
+
+**What Is Liberal in the Liberal Arts?**\
+`What was a liberal arts education designed to offer? More than recent discourse might lead you to believe. On “The Ezra Klein Show,” the historian Helena Rosenblatt explains why the liberal arts have strayed so far from their roots as a training ground for civic virtues and citizenry.`\
+https://www.nytimes.com/video/opinion/100000010870440/what-is-liberal-in-the-liberal-arts.html
+
+**Colorado Waited All Winter for Snow. A May Storm Could Finally Bring Some.**\
+`A snowstorm hitting the Rocky Mountains this week could end up being the biggest all season, forecasters said.`\
+https://www.nytimes.com/2026/05/05/weather/colorado-snow-ski-snowpack.html
+
 **Russia Launches Deadly Attack in Ukraine Ahead of Cease-Fire**\
 `Russian forces launched an attack on three Ukrainian cities on Tuesday, killing more than 20 people and injuring dozens of others. The attack came after Russia announced a cease-fire timed to Moscow’s Victory Day celebrations on May 9, commemorating the Soviet victory over the Nazis in World War II.`\
 https://www.nytimes.com/video/world/100000010884624/russia-attack-ukraine-cease-fire.html
