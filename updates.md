@@ -1,3 +1,11 @@
+**Iran announces a new system for traffic in the Strait of Hormuz.**\
+``\
+https://www.nytimes.com/live/2026/05/05/world/iran-war-trump-hormuz/iran-announces-a-new-system-for-traffic-in-the-strait-of-hormuz
+
+**Ex-FedEx Driver Who Kidnapped and Killed 7-Year-Old Girl Is Sentenced to Death**\
+`Tanner Horner kidnapped and strangled the girl, Athena Strand, after delivering a package to her home in Texas. The package was her Christmas gift, a set of Barbies.`\
+https://www.nytimes.com/2026/05/05/us/fedex-driver-murder-athena-strand-sentencing.html
+
 **Trump and Xi, This Is Your Nixon-Mao Moment**\
 `A new level of global disorder will face the American and Chinese presidents at their summit. Like Mao and Nixon, they face a common threat.`\
 https://www.nytimes.com/2026/05/05/opinion/trump-xi-summit-ai-global-threats.html

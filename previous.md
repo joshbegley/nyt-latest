@@ -1,3 +1,7 @@
+**Iran announces a new system for traffic in the Strait of Hormuz.**\
+``\
+https://www.nytimes.com/live/2026/05/05/world/iran-war-trump-hormuz/iran-announces-a-new-system-for-traffic-in-the-strait-of-hormuz
+
 **Trump and Xi, This Is Your Nixon-Mao Moment**\
 `A new level of global disorder will face the American and Chinese presidents at their summit. Like Mao and Nixon, they face a common threat.`\
 https://www.nytimes.com/2026/05/05/opinion/trump-xi-summit-ai-global-threats.html
@@ -50,7 +54,7 @@ https://www.nytimes.com/2026/05/05/us/politics/faa-drones-proposed-rule.html
 `Las declaraciones del presidente en un acto en la Casa Blanca contrastan con la realidad económica en la que el aumento de los precios de la energía afecta tanto a familias como a empresas.`\
 https://www.nytimes.com/es/2026/05/05/espanol/estados-unidos/guerra-iran-efectos-economia-trump.html
 
-**x-FedEx Driver Who Kidnapped and Killed 7-Year-Old Girl Is Sentenced to Death**\
+**Ex-FedEx Driver Who Kidnapped and Killed 7-Year-Old Girl Is Sentenced to Death**\
 `Tanner Horner kidnapped and strangled the girl, Athena Strand, after delivering a package to her home in Texas. The package was her Christmas gift, a set of Barbies.`\
 https://www.nytimes.com/2026/05/05/us/fedex-driver-murder-athena-strand-sentencing.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/05/world/europe/andrew-tate-trial-uk-accusations
 **A Democrat Who Makes Me Listen**\
 `An interview with Representative Jake Auchincloss, a Democrat from the charismatic center.`\
 https://www.nytimes.com/2026/05/05/opinion/jake-auchincloss-democrat-massachusetts.html
-
-**Is It Time to Tax the Oil and Gas Industry’s Windfall?**\
-`The war in Iran has meant big profits for fossil fuel companies, prompting some lawmakers to call for a tax. But that would be easier said than done.`\
-https://www.nytimes.com/2026/05/05/climate/oil-and-gas-windfall-tax-climate.html
 
