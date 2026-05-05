@@ -1,3 +1,11 @@
+**Everything You Need to Know About the Met Gala**\
+`Yes, there is more.`\
+https://www.nytimes.com/2026/05/05/style/met-gala-recap.html
+
+**Daniel Radcliffe, John Lithgow and Lesley Manville Pick Up Tony Nominations**\
+`The first batch of nominees included best new musical: “The Lost Boys,” “Titaníque,” “Schmigadoon!” and “Two Strangers (Carry a Cake Across New York)” were selected.`\
+https://www.nytimes.com/2026/05/05/theater/2026-tony-nominations.html
+
 **U.S. Trade Deficit Grew in March**\
 `Both exports and imports rose after the Supreme Court struck down many of the president’s highest levies in February.`\
 https://www.nytimes.com/2026/05/05/business/economy/us-trade-deficit-grew-in-march.html
