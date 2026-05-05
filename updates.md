@@ -1,3 +1,7 @@
+**On the Ground at the Venice Biennale**\
+`Scenes from the highly anticipated art event.`\
+https://www.nytimes.com/2026/05/05/arts/venice-biennale-photos-video.html
+
 **Five Publishers and Scott Turow Sue Meta and Mark Zuckerberg**\
 `The class-action lawsuit accuses the tech giant and its founder and chief executive of infringing on authors’ copyrights.`\
 https://www.nytimes.com/2026/05/05/books/publishers-turow-meta-zuckerberg-lawsuit-copyright.html
