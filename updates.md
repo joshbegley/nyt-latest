@@ -1,3 +1,15 @@
+**For Michael Tilson Thomas’s Legacy, Look at Young Musicians**\
+`Thomas, the beloved mentor and conductor of the San Francisco Symphony, recently died. He offered a road map for a 21st-century career in music.`\
+https://www.nytimes.com/2026/05/05/arts/music/michael-tilson-thomas-conductor-legacy.html
+
+**James Murdoch’s Company Said to Be in Talks to Acquire Most of Vox Media**\
+`A deal for Vox Media would elevate Mr. Murdoch’s company, Lupa Systems, as a major player in U.S. media.`\
+https://www.nytimes.com/2026/05/05/business/media/james-murdoch-vox-media.html
+
+**First, the F.B.I. Searched Her Home. Then, She Won a Pulitzer.**\
+`Hannah Natanson’s reporting anchored a package of articles from The Washington Post that won a Pulitzer on Monday, four months after agents seized her devices.`\
+https://www.nytimes.com/2026/05/05/business/media/hannah-natanson-washington-post-pulitzer.html
+
 **El crucero afectado por el hantavirus se dirige a las islas Canarias, según la OMS**\
 `España dijo que decidiría la escala después de que los expertos en enfermedades inspeccionaran el barco. La Organización Mundial de la Salud dijo que la transmisión de persona a persona puede haber desempeñado un papel en el brote.`\
 https://www.nytimes.com/es/2026/05/05/espanol/mundo/crucero-hantavirus-islas-canarias.html
