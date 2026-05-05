@@ -1,3 +1,11 @@
+**Everything You Need to Know About the Met Gala**\
+`Yes, there is more.`\
+https://www.nytimes.com/2026/05/05/style/met-gala-recap.html
+
+**Daniel Radcliffe, John Lithgow and Lesley Manville Pick Up Tony Nominations**\
+`The first batch of nominees included best new musical: “The Lost Boys,” “Titaníque,” “Schmigadoon!” and “Two Strangers (Carry a Cake Across New York)” were selected.`\
+https://www.nytimes.com/2026/05/05/theater/2026-tony-nominations.html
+
 **U.S. Trade Deficit Grew in March**\
 `Both exports and imports rose after the Supreme Court struck down many of the president’s highest levies in February.`\
 https://www.nytimes.com/2026/05/05/business/economy/us-trade-deficit-grew-in-march.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/es/2026/05/05/espanol/america-latina/acuerdos-petroleros
 **‘When You Think of It, We Shouldn’t Even Have an Election’**\
 `Who will keep the 2026 ballots straight?`\
 https://www.nytimes.com/2026/05/05/opinion/trump-midterm-elections-2026.html
-
-**California Governor’s Race Heats Up With Back-to-Back Debates**\
-`Voters are starting to make decisions after receiving their primary ballots this week. The election includes a turbulent governor’s race and a competitive mayoral contest in Los Angeles.`\
-https://www.nytimes.com/2026/05/05/us/california-election-governor-june-primary.html
-
-**Sequels**\
-`“The Devil Wears Prada 2” is out. Are you excited? What’s your favorite movie sequel of all time?`\
-https://www.nytimes.com/2026/05/05/learning/sequels.html
 
