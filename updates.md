@@ -1,3 +1,15 @@
+**Deadly Russian Strikes Rip Into Ukrainian Cities**\
+`At least 12 people were killed in Zaporizhzhia, one of the highest tolls from a single attack so far this year. The cities of Dnipro and Kramatorsk were also attacked.`\
+https://www.nytimes.com/2026/05/05/world/europe/russia-ukraine-zaporizhzhia-attacks.html
+
+**Indiana’s Primary Elections Will Test Trump’s Influence**\
+`Also, about 150 people are stuck on a cruise ship with a deadly outbreak. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/05/05/briefing/indiana-trump-elections-tony-nominations.html
+
+**Elon Musk Wanted OpenAI to Go Commercial, Company President Says**\
+`Greg Brockman, OpenAI’s president, testified in a trial pitting Mr. Musk against his company that the world’s richest man was eager to change how it operated as a nonprofit.`\
+https://www.nytimes.com/2026/05/05/technology/openai-trial-elon-musk-greg-brockman.html
+
 **Man Accused of Attacking Press Gala Indicted on Four Charges**\
 `A grand jury approved a fourth count against Cole Tomas Allen, who prosecutors say wounded a federal officer while attempting to kill President Trump.`\
 https://www.nytimes.com/2026/05/05/us/politics/whcd-new-charges.html
