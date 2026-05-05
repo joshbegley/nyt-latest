@@ -1,3 +1,11 @@
+**6 Stellar All-Female Country Duets**\
+`Hear Kacey Musgraves and Miranda Lambert making peace on the record, and more outstanding collaborations between women in Nashville.`\
+https://www.nytimes.com/2026/05/05/arts/music/amplifier-newsleter-all-female-country-duets.html
+
+**Where Have Modi’s Rivals Gone? India Under One Party**\
+`With his triumph in West Bengal state elections, Prime Minister Narendra Modi has moved closer to his dream of an opposition-free India.`\
+https://www.nytimes.com/2026/05/05/world/asia/india-modi-congress-west-bengal-elections.html
+
 **U.S. Sues The New York Times, Claiming Discrimination Against a White Man**\
 `The Equal Employment Opportunity Commission said the paper had discriminated against a white, male employee who did not get a sought-after promotion.`\
 https://www.nytimes.com/2026/05/05/business/economy/eeoc-nyt-investigation.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/05/learning/how-did-you-grow-and-change-this-sch
 **Was It Art? Was It Fashion? Was It Good?**\
 `Guests at the Met Gala had different interpretations of the night’s dress code.`\
 https://www.nytimes.com/2026/05/05/style/fashion-art-met-gala.html
-
-**Oyatte Takes the ‘Farm-to-Table’ Approach With Just One Farm**\
-`Gusi focuses on Slavic and Mediterranean food, Bar Hugo provides another rooftop space and more restaurant news.`\
-https://www.nytimes.com/2026/05/05/dining/nyc-restaurant-news.html
-
-**Driver Kills At Least 2 People After Ramming Car Into Pedestrians**\
-`A driver rammed a car into a pedestrian-heavy zone in Germany, killing at least two people and injuring others, the authorities said.`\
-https://www.nytimes.com/video/world/europe/leipzig-germany-car-ramming-deaths.html
 

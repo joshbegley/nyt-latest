@@ -1,3 +1,11 @@
+**6 Stellar All-Female Country Duets**\
+`Hear Kacey Musgraves and Miranda Lambert making peace on the record, and more outstanding collaborations between women in Nashville.`\
+https://www.nytimes.com/2026/05/05/arts/music/amplifier-newsleter-all-female-country-duets.html
+
+**Where Have Modi’s Rivals Gone? India Under One Party**\
+`With his triumph in West Bengal state elections, Prime Minister Narendra Modi has moved closer to his dream of an opposition-free India.`\
+https://www.nytimes.com/2026/05/05/world/asia/india-modi-congress-west-bengal-elections.html
+
 **U.S. Sues The New York Times, Claiming Discrimination Against a White Man**\
 `The Equal Employment Opportunity Commission said the paper had discriminated against a white, male employee who did not get a sought-after promotion.`\
 https://www.nytimes.com/2026/05/05/business/economy/eeoc-nyt-investigation.html
