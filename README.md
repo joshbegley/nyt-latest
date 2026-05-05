@@ -4,7 +4,7 @@ https://www.nytimes.com/2026/05/04/us/politics/shootings-on-the-national-mall-ar
 
 **No Reverse Aging for Bad Bunny**\
 `The singer, 32, said it took “53 years” to prepare his look.`\
-https://www.nytimes.com/2026/05/04/style/no-reverse-aging-for-bad-bunny.html
+https://www.nytimes.com/2026/05/04/style/bad-bunny-met-gala.html
 
 **Vote for Your Favorite Met Gala Looks**\
 `You’ve seen the fashion from the Met Gala. Now, the Styles desk wants you to rank your favorites.`\
