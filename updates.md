@@ -1,3 +1,7 @@
+**Our 15 Favorite Looks at the 2026 Met Gala**\
+`Regardless of the theme, these people just looked great.`\
+https://www.nytimes.com/2026/05/04/style/met-gala-2026-red-carpet.html
+
 **It Was a Very Nipple-Forward Red Carpet**\
 `The look was in keeping with the Met Gala’s accompanying exhibition at the Costume Institute.`\
 https://www.nytimes.com/2026/05/04/style/met-gala-nipples-naked-dressing.html

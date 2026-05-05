@@ -1,3 +1,7 @@
+**Our 15 Favorite Looks at the 2026 Met Gala**\
+`Regardless of the theme, these people just looked great.`\
+https://www.nytimes.com/2026/05/04/style/met-gala-2026-red-carpet.html
+
 **It Was a Very Nipple-Forward Red Carpet**\
 `The look was in keeping with the Met Gala’s accompanying exhibition at the Costume Institute.`\
 https://www.nytimes.com/2026/05/04/style/met-gala-nipples-naked-dressing.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/04/style/met-gala-zendaya-skipping.html
 **La Gala del Met enfrenta críticas por la participación de Jeff Bezos**\
 `Hay una campaña anti-Bezos en las calles de Nueva York donde han descrito el acto como la “Gala Amazon Prime” o el “Baile de Bezos”.`\
 https://www.nytimes.com/es/2026/05/04/espanol/estilos-de-vida/gala-met-protestas-jeff-bezos.html
-
-**Another tech titan hits the gala’s red carpet.**\
-`Sergey Brin, a Google founder, in a dark tuxedo alongside his girlfriend, a conservative influencer.`\
-https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/another-tech-titan-hits-the-galas-red-carpet
 
