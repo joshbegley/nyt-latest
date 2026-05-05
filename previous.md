@@ -1,3 +1,7 @@
+**Judge Refers Justice Dept. Lawyer for Possible Discipline, Calls Out ‘Lack of Candor’**\
+`Officials withheld a detainee’s overseas arrest warrant from a federal judge. When she ordered his release, they used the same information to attack her publicly.`\
+https://www.nytimes.com/2026/05/05/us/politics/rhode-island-judge-justice-department-immigrant.html
+
 ****\
 ``\
 https://www.nytimes.com/video/embedded/us/100000010884498/05vid-teen-takeover-22160.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-15-p
 **Ohio 14th Congressional District Primary Election Results**\
 `Get live results and maps from the 2026 Ohio primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-14-primary.html
-
-**Ohio Second Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Ohio primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-2-primary.html
 
