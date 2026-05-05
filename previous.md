@@ -1,3 +1,7 @@
+**Trump Tries to Downplay Economic Effects of the Iran War**\
+`At a White House event for Small Business Week, he described the economy as “roaring” and predicted that gas prices would go down soon.`\
+https://www.nytimes.com/2026/05/04/us/politics/trump-economy-iran-war.html
+
 **Heidi Klum Turned to Stone for Her Met Gala Look**\
 `The model’s trompe l’oeil outfit would have been equally at home at one of her Halloween parties.`\
 https://www.nytimes.com/2026/05/04/style/heidi-klum-met-gala.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/04/opinion/devil-wears-prada-feminism-girlboss.h
 **S.E.C. Settles Lawsuit Against Elon Musk Over His Twitter Disclosures**\
 `The agency, which has been pulling back on lawsuits against major companies, ended a case that had accused Mr. Musk of hiding his purchases of Twitter stock. He agreed to pay $1.5 million.`\
 https://www.nytimes.com/2026/05/04/technology/musk-sec-settlement-twitter.html
-
-**Soil at D.C. Golf Course Where East Wing Debris Was Dumped Contains Toxic Metals**\
-`The National Park Service said the dump of debris, between the fourth and ninth holes, does not exceed environmental limits. Opponents disagree.`\
-https://www.nytimes.com/2026/05/04/climate/east-potomac-golf-debris-toxic.html
 

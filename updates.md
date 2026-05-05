@@ -1,3 +1,7 @@
+**Trump Tries to Downplay Economic Effects of the Iran War**\
+`At a White House event for Small Business Week, he described the economy as “roaring” and predicted that gas prices would go down soon.`\
+https://www.nytimes.com/2026/05/04/us/politics/trump-economy-iran-war.html
+
 **Heidi Klum Turned to Stone for Her Met Gala Look**\
 `The model’s trompe l’oeil outfit would have been equally at home at one of her Halloween parties.`\
 https://www.nytimes.com/2026/05/04/style/heidi-klum-met-gala.html
