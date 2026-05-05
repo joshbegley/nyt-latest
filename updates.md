@@ -1,3 +1,11 @@
+****\
+``\
+https://www.nytimes.com/video/embedded/us/100000010884498/05vid-teen-takeover-22160.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/us/100000010884501/05vid-teen-takeover-12432.html
+
 **Andrew Tate’s Civil Trial Over Assault Claims Is Postponed**\
 `A British judge on Tuesday ordered a delay in a civil trial set for June after the police said they would reinvestigate criminal accusations against Mr. Tate.`\
 https://www.nytimes.com/2026/05/05/world/europe/andrew-tate-trial-uk-accusations.html

@@ -1,3 +1,11 @@
+****\
+``\
+https://www.nytimes.com/video/embedded/us/100000010884498/05vid-teen-takeover-22160.html
+
+****\
+``\
+https://www.nytimes.com/video/embedded/us/100000010884501/05vid-teen-takeover-12432.html
+
 **Andrew Tate’s Civil Trial Over Assault Claims Is Postponed**\
 `A British judge on Tuesday ordered a delay in a civil trial set for June after the police said they would reinvestigate criminal accusations against Mr. Tate.`\
 https://www.nytimes.com/2026/05/05/world/europe/andrew-tate-trial-uk-accusations.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-14-p
 **Ohio Second Congressional District Primary Election Results**\
 `Get live results and maps from the 2026 Ohio primary election.`\
 https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-2-primary.html
-
-**Ohio Governor Primary Election Results**\
-`Get live results and maps from the 2026 Ohio primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-ohio-governor-primary.html
-
-**Ohio Eighth Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Ohio primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-8-primary.html
 
