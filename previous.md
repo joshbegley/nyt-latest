@@ -1,3 +1,7 @@
+**Journalist and Her Mother Are Among 3 Killed in Upper Manhattan Fire**\
+`Yolaine Díaz, a fashion and beauty writer for People en Español, and her mother were killed in the blaze at an apartment building in Inwood, People magazine said.`\
+https://www.nytimes.com/2026/05/05/nyregion/inwood-fire-victims-people-magazine-journalist.html
+
 **How Ancient Centipede Ancestors Conquered the Earth**\
 `A long-neglected fossil seems to show the evolutionary leap that let the ancestors of today’s many-legged arthropods crawl forth from the seas.`\
 https://www.nytimes.com/2026/05/05/science/ancient-centipedes-proceedings-myriapods.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/05/world/middleeast/iran-us-ceasefire-attacks.ht
 **Iran announces a new system for traffic in the Strait of Hormuz.**\
 ``\
 https://www.nytimes.com/live/2026/05/05/world/iran-war-trump-hormuz/iran-announces-a-new-system-for-traffic-in-the-strait-of-hormuz
-
-**The U.S. and China Have a Common Foe. Hint: It’s Not the U.S.S.R.**\
-`A new level of global disorder will face the American and Chinese presidents at their summit. Like Mao and Nixon, they face a common threat.`\
-https://www.nytimes.com/2026/05/05/opinion/trump-xi-summit-ai-global-threats.html
 
