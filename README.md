@@ -1,3 +1,11 @@
+**Driver Kills At Least 2 People After Ramming Car Into Pedestrians**\
+`A driver rammed a car into a pedestrian-heavy zone in Germany, killing at least two people and injuring others, the authorities said.`\
+https://www.nytimes.com/video/world/europe/100000010883271/leipzig-germany-car-ramming-deaths.html
+
+**Tony Nominations Snubs and Surprises: Stars Are Dethroned, ‘S.N.L.’ Alumnae Reign**\
+`Lea Michele, Adrien Brody and other boldface names were left out, while June Squibb, André De Shields and Layton Williams as an iceberg were among the surprises.`\
+https://www.nytimes.com/2026/05/05/theater/tony-nominations-snubs-surprises.html
+
 **With Free Vodka, and a Few Protests, Russia Returns to the ‘Art Olympics’**\
 `On Tuesday, Russia opened a pavilion at the Venice Biennale for the first since its full-scale invasion of Ukraine. Ukraine’s own exhibit is just a stone’s throw.`\
 https://www.nytimes.com/2026/05/05/arts/design/russia-ukraine-venice-biennale.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/es/2026/05/05/espanol/estilos-de-vida/sueter-ryan-goslin
 **Congress Is Doing Little to Prepare for Potential A.I. Job Losses**\
 `As fears of A.I.-driven job losses mount, economists warn that unemployment benefits and other programs to help displaced workers aren’t sufficient.`\
 https://www.nytimes.com/2026/05/05/business/artificial-intelligence-safety-net.html
-
-**How to Catch a Meteor Shower From Halley’s Comet**\
-`Known for their speed, the Eta Aquarids will reach their peak on Tuesday night into Wednesday morning.`\
-https://www.nytimes.com/2026/05/05/science/eta-aquarids-meteor-shower-haleys-comet.html
-
-**The Sights of the Venice Biennale**\
-`Scenes from the highly anticipated art event.`\
-https://www.nytimes.com/2026/05/05/arts/venice-biennale-photos-video.html
 
