@@ -1,3 +1,7 @@
+**On the Ground at the Venice Biennale**\
+`Scenes from the highly anticipated art event.`\
+https://www.nytimes.com/2026/05/05/arts/venice-biennale-photos-video.html
+
 **Five Publishers and Scott Turow Sue Meta and Mark Zuckerberg**\
 `The class-action lawsuit accuses the tech giant and its founder and chief executive of infringing on authors’ copyrights.`\
 https://www.nytimes.com/2026/05/05/books/publishers-turow-meta-zuckerberg-lawsuit-copyright.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/05/crosswords/strands-sidekick-794.html
 **Wordle Review No. 1,782**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, May 6, 2026.`\
 https://www.nytimes.com/2026/05/05/crosswords/wordle-review-1782.html
-
-**The Uncertain Fate of France’s Last Two Captive Orcas**\
-`France must decide what to do with two orcas marooned at a deserted marine park: move them to another park, or release them into an open-water sanctuary.`\
-https://www.nytimes.com/2026/05/05/world/europe/france-orcas-killer-whales.html
 
