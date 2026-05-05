@@ -1,3 +1,15 @@
+**Vote for Your Favorite Met Gala Looks**\
+`You’ve seen the fashion from the Met Gala. Now, the Styles desk wants you to rank your favorites.`\
+https://www.nytimes.com/interactive/2026/05/04/style/met-gala-best-dressed-vote.html
+
+**Notably Missing From the Carpet: The Men of Tech**\
+`No Bezos. No Zuckerberg.`\
+https://www.nytimes.com/2026/05/04/style/notably-missing-from-the-carpet-the-men-of-tech.html
+
+**Unit of Information**\
+`Max Schlenker’s puzzle will help you ease into the week.`\
+https://www.nytimes.com/2026/05/04/crosswords/daily-puzzle-2026-05-05.html
+
 **Sin explicaciones, EE. UU. revocó visas a algunos miembros de La Nación, en Costa Rica**\
 `El gobierno estadounidense revocó las visas de cinco de siete miembros de la junta directiva del principal periódico de investigación en Costa Rica.`\
 https://www.nytimes.com/es/2026/05/04/espanol/america-latina/la-nacion-costa-rica-visas-trump.html

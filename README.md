@@ -1,3 +1,7 @@
+**No Reverse Aging for Bad Bunny**\
+`The singer, 32, said it took “53 years” to prepare his look.`\
+https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/no-reverse-aging-for-bad-bunny
+
 **Vote for Your Favorite Met Gala Looks**\
 `You’ve seen the fashion from the Met Gala. Now, the Styles desk wants you to rank your favorites.`\
 https://www.nytimes.com/interactive/2026/05/04/style/met-gala-best-dressed-vote.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/obituaries/100000004695622/editors-note.html
 **Student News Quiz: Supreme Court, Movie Sequel, Middle Schoolers**\
 `Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
 https://www.nytimes.com/interactive/2026/05/04/learning/04StudentNewsQuiz.html
-
-**California Seeks ‘Historic’ Fine Against State Farm: Just $2 Million**\
-`Regulators say the penalty is the highest ever sought, but a cap on each violation would soften the blow for California’s largest insurer.`\
-https://www.nytimes.com/2026/05/04/realestate/california-state-farm-fires-insurance.html
 
