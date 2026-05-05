@@ -1,3 +1,15 @@
+**Ship Stranded for Weeks Exits Persian Gulf Under U.S. Protection**\
+`A U.S.-flagged ship operated by a Maersk subsidiary exited under American military guidance, part of President Trump’s effort to encourage ships to pass the Strait of Hormuz.`\
+https://www.nytimes.com/2026/05/05/business/maersk-ship-strait-hormuz-iran-us.html
+
+**Las fotografías de Saher Alghorra, ganador del Pulitzer, en Gaza**\
+`El fotógrafo palestino Saher Alghorra informó sobre el conflicto de Gaza mientras vivía en las terribles condiciones que retrataban sus imágenes.`\
+https://www.nytimes.com/es/2026/05/05/espanol/mundo/pulitzer-saher-alghorra-gaza.html
+
+**How to Ace Mother’s Day Dinner**\
+``\
+https://www.nytimes.com/2026/05/05/dining/how-to-ace-mothers-day-dinner.html
+
 ****\
 `Video filmed by the Associated Press on March 27 shows these munitions dispersing over an area near Tyre, a large city in the south of Lebanon.`\
 https://www.nytimes.com/video/embedded/world/middleeast/100000010883635/tyremarch26.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/05/business/ford-motor-electric-pickup-truck.htm
 **Need to Catch Up on the Met Gala? Read This.**\
 `We’ve got your morning-after recap.`\
 https://www.nytimes.com/2026/05/05/style/met-gala-recap.html
-
-**New Musicals ‘Schmigadoon!’ and ‘Lost Boys’ Lead List of Tony Nominees**\
-`The nominated performers include the film stars Daniel Radcliffe, Rose Byrne, John Lithgow and Lesley Manville.`\
-https://www.nytimes.com/2026/05/05/theater/2026-tony-nominations.html
-
-**U.S. Trade Deficit Grew in March**\
-`Both exports and imports rose after the Supreme Court struck down many of the president’s highest levies in February.`\
-https://www.nytimes.com/2026/05/05/business/economy/us-trade-deficit-grew-in-march.html
-
-**Behind the White House’s Potential Rethink on A.I.**\
-`Artificial intelligence has become a national security concern. That has federal officials rethinking how lightly it should regulate the technology.`\
-https://www.nytimes.com/2026/05/05/business/dealbook/trump-ai-regulation.html
 
