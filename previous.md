@@ -1,3 +1,15 @@
+**What to Know About the Growing Saudi Arabia-U.A.E. Rift**\
+`Officials say competition between the countries is healthy. But tensions are mounting over energy quotas, regional conflicts and their different visions for the Middle East.`\
+https://www.nytimes.com/2026/05/05/world/middleeast/uae-saudi-arabia-oil-opec-what-to-know.html
+
+**Steve Ballmer’s Victim Impact, the Man Who Prosecuted Aspiration and the Abacus of Incarceration**\
+`Kawhi-Gate, part X.`\
+https://www.nytimes.com/2026/05/05/podcasts/steve-ballmers-victim-impact-the-man-who-prosecuted-aspiration-and-the-abacus-of-incarceration.html
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/05/world/iran-war-trump-hormuz/heres-the-latest
+
 **El secretismo sobre los acuerdos petroleros de Venezuela continúa**\
 `Los funcionarios de Trump y sus aliados venezolanos han prometido una nueva era de rendición de cuentas para desbloquear la inmensa riqueza petrolera de Venezuela. Pero la industria petrolera del país sigue siendo un agujero negro.`\
 https://www.nytimes.com/es/2026/05/05/espanol/america-latina/acuerdos-petroleros-venezuela.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/05/magazine/argentina-president-javier-milei-mag
 **A Top 2026 Senate Race Kicks Off With Attacks About Jeffrey Epstein**\
 `Ohio’s unusual contest — with a little-known incumbent and a well-known challenger — shows how Democrats are hoping to capitalize on G.O.P. voters’ anger at the Jeffrey Epstein scandal.`\
 https://www.nytimes.com/2026/05/05/us/politics/ohio-senate-jeffrey-epstein-john-husted-sherrod-brown.html
-
-**Hunting for the Rare Thrills of Northern Vietnamese Food? Try Portland.**\
-`At the Paper Bridge in Oregon, a husband-and-wife chef team is expanding the story of Viet restaurants in the United States.`\
-https://www.nytimes.com/2026/05/05/dining/restaurant-review-paper-bridge-portland.html
-
-**Why an Artist Known for Grand Installations Loves Miniature Figurines**\
-`Lauren Halsey’s porcelain Black statuettes, collected over two decades, depict people singing in church, playing in the park and other scenes of everyday life.`\
-https://www.nytimes.com/2026/05/05/t-magazine/lauren-halsey-collection.html
-
-**I Regret to Inform You of the Better Face Inside Your Face**\
-`The world has gone crazy for tools and tricks that slim the visage. Is vanity to blame — or something weirder?`\
-https://www.nytimes.com/2026/05/05/magazine/small-face-correction-treatment.html
 

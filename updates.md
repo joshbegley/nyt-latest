@@ -1,3 +1,15 @@
+**What to Know About the Growing Saudi Arabia-U.A.E. Rift**\
+`Officials say competition between the countries is healthy. But tensions are mounting over energy quotas, regional conflicts and their different visions for the Middle East.`\
+https://www.nytimes.com/2026/05/05/world/middleeast/uae-saudi-arabia-oil-opec-what-to-know.html
+
+**Steve Ballmer’s Victim Impact, the Man Who Prosecuted Aspiration and the Abacus of Incarceration**\
+`Kawhi-Gate, part X.`\
+https://www.nytimes.com/2026/05/05/podcasts/steve-ballmers-victim-impact-the-man-who-prosecuted-aspiration-and-the-abacus-of-incarceration.html
+
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/05/world/iran-war-trump-hormuz/heres-the-latest
+
 **El secretismo sobre los acuerdos petroleros de Venezuela continúa**\
 `Los funcionarios de Trump y sus aliados venezolanos han prometido una nueva era de rendición de cuentas para desbloquear la inmensa riqueza petrolera de Venezuela. Pero la industria petrolera del país sigue siendo un agujero negro.`\
 https://www.nytimes.com/es/2026/05/05/espanol/america-latina/acuerdos-petroleros-venezuela.html
