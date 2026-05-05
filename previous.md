@@ -1,3 +1,11 @@
+**A Visitor From the Oort Cloud: Rare Comet Appears in Southern Skies**\
+`Known as C/2025 R3 PANSTARRS, the comet will be visible to stargazers using a telescope in New Zealand, Australia and South Africa.`\
+https://www.nytimes.com/2026/05/05/world/australia/comet-oort-cloud-nz-australia-south-africa.html
+
+**Deadly Explosion Destroys Fireworks Factory in China**\
+`An explosion on Monday in a fireworks factory in southern China killed at least 26 people. State media footage showed several damaged buildings.`\
+https://www.nytimes.com/video/world/asia/100000010882689/china-explosion-fireworks-factory.html
+
 **¿Cuáles son las verdaderas creencias de Tucker Carlson? Fui a Maine a averiguarlo**\
 `El destacado comentarista conservador se distanció del gobierno de Trump por la guerra en Irán. ¿Durará la ruptura?`\
 https://www.nytimes.com/es/2026/05/05/espanol/estados-unidos/tucker-carlson-entrevista-guerra-iran.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/05/world/europe/ukraine-taiwan-drones.html
 **As Oil Prices Stay High, China Doubles Down on Wind Power**\
 `An industrial policy of subsidies and import restrictions laid the foundations for China to become almost as dominant in wind turbines as in solar panels.`\
 https://www.nytimes.com/2026/05/05/business/china-wind-turbines.html
-
-**Corrections: May 5, 2026**\
-`Corrections that appeared in print on Tuesday, May 5, 2026.`\
-https://www.nytimes.com/2026/05/05/pageoneplus/corrections-may-5-2026.html
-
-**Our 15 Favorite Looks at the 2026 Met Gala**\
-`Regardless of the theme, these people just looked great.`\
-https://www.nytimes.com/2026/05/04/style/met-gala-2026-red-carpet.html
 
