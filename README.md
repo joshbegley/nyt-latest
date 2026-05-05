@@ -1,3 +1,11 @@
+**Today, In Short**\
+`Tank tops. The Tony Awards. And vote for your favorite Met Gala looks.`\
+https://www.nytimes.com/2026/05/05/briefing/today-in-short.html
+
+**What We Know About ‘Project Freedom’ in the Strait of Hormuz**\
+`Violence flared in the waterway on Monday after President Trump said the United States would help guide stranded ships. It’s not clear exactly how the plan is working.`\
+https://www.nytimes.com/2026/05/05/world/middleeast/trump-strait-hormuz-plan-project-freedom-iran.html
+
 **Ship Stranded for Weeks Exits Persian Gulf Under U.S. Protection**\
 `A U.S.-flagged ship operated by a Maersk subsidiary exited under American military guidance, part of President Trump’s effort to encourage ships to pass the Strait of Hormuz.`\
 https://www.nytimes.com/2026/05/05/business/maersk-ship-strait-hormuz-iran-us.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/es/2026/05/05/espanol/estilos-de-vida/met-gala-2026-mejo
 **U.S.C. Will Infuse A.I. Across University With $200 Million Donation**\
 `The University of Southern California wants to integrate artificial intelligence into fields like health care and the arts. Other universities are also using donations to focus more on A.I.`\
 https://www.nytimes.com/2026/05/05/us/usc-ai-200-million-donation.html
-
-**After Setbacks, Ford Says Its Affordable Electric Truck Is on Track**\
-`Ford Motor has written off $20 billion in electric vehicle investments but says it is forging ahead with an electric pickup that will sell for $30,000 next year.`\
-https://www.nytimes.com/2026/05/05/business/ford-motor-electric-pickup-truck.html
-
-**Need to Catch Up on the Met Gala? Read This.**\
-`We’ve got your morning-after recap.`\
-https://www.nytimes.com/2026/05/05/style/met-gala-recap.html
 
