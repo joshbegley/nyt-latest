@@ -1,3 +1,11 @@
+**U.S. Allows Venezuela to Begin Debt Restructuring Process**\
+`Venezuela must repay $60 billion in defaulted bonds as it looks to stabilize its economy.`\
+https://www.nytimes.com/2026/05/05/us/politics/trump-venezuela-debt-restructuring.html
+
+**Hantavirus Outbreaks Are Rare, but They Aren’t Going Away and There’s No Cure**\
+`Since the family of rodent-borne infections were identified in the 1950s, they have turned up all over the world.`\
+https://www.nytimes.com/2026/05/05/health/hantavirus-outbreaks-disease-history.html
+
 **Deadly Russian Strikes Rip Into Ukrainian Cities**\
 `At least 12 people were killed in Zaporizhzhia, one of the highest tolls from a single attack so far this year. The cities of Dnipro and Kramatorsk were also attacked.`\
 https://www.nytimes.com/2026/05/05/world/europe/russia-ukraine-zaporizhzhia-attacks.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/05/realestate/indiana-schoolhouse-homestead-reno
 **A Loft with Past Lives Gets an Owner Making a New One**\
 `How Jessica Helfand, an artist, started a new chapter in an industrial building.`\
 https://www.nytimes.com/2026/05/05/arts/jessica-helfand-providence-studio.html
-
-**OpenAI Slows Its Plans for Stargate**\
-`Despite initial grand plans for the Stargate project, recent announcements from OpenAI have signaled that it is stalling. The “Hard Fork” hosts Kevin Roose and Casey Newton predict why that might be the case in their latest episode.`\
-https://www.nytimes.com/video/podcasts/100000010883751/openai-slows-its-plans-for-stargate.html
-
-**N.Y.P.D. Captain Is Transferred After Calling Mamdani ‘Total Nonsense’**\
-`The captain, James G. Wilson, was also filmed calling Democrats a “waste of human race.”`\
-https://www.nytimes.com/2026/05/05/nyregion/james-wilson-nypd-mamdani-democrats.html
 

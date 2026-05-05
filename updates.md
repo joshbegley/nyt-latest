@@ -1,3 +1,11 @@
+**U.S. Allows Venezuela to Begin Debt Restructuring Process**\
+`Venezuela must repay $60 billion in defaulted bonds as it looks to stabilize its economy.`\
+https://www.nytimes.com/2026/05/05/us/politics/trump-venezuela-debt-restructuring.html
+
+**Hantavirus Outbreaks Are Rare, but They Aren’t Going Away and There’s No Cure**\
+`Since the family of rodent-borne infections were identified in the 1950s, they have turned up all over the world.`\
+https://www.nytimes.com/2026/05/05/health/hantavirus-outbreaks-disease-history.html
+
 **Deadly Russian Strikes Rip Into Ukrainian Cities**\
 `At least 12 people were killed in Zaporizhzhia, one of the highest tolls from a single attack so far this year. The cities of Dnipro and Kramatorsk were also attacked.`\
 https://www.nytimes.com/2026/05/05/world/europe/russia-ukraine-zaporizhzhia-attacks.html

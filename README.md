@@ -1,3 +1,11 @@
+**Russia Launches Deadly Attack in Ukraine Ahead of Cease-Fire**\
+`Russian forces launched an attack on three Ukrainian cities on Tuesday, killing more than 20 people and injuring dozens of others. The attack came after Russia announced a cease-fire timed to Moscow’s Victory Day celebrations on May 9, commemorating the Soviet victory over the Nazis in World War II.`\
+https://www.nytimes.com/video/world/100000010884624/russia-attack-ukraine-cease-fire.html
+
+**Un visitante de la nube de Oort: un raro cometa aparece en los cielos del hemisferio sur**\
+`Conocido como C/2025 R3 PANSTARRS, el cometa será visible para los observadores de estrellas que utilicen un telescopio en Nueva Zelanda, Australia y Sudáfrica.`\
+https://www.nytimes.com/es/2026/05/05/espanol/cometa-hemisferio-sur.html
+
 **U.S. Allows Venezuela to Begin Debt Restructuring Process**\
 `Venezuela must repay $60 billion in defaulted bonds as it looks to stabilize its economy.`\
 https://www.nytimes.com/2026/05/05/us/politics/trump-venezuela-debt-restructuring.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/05/opinion/trump-ukraine-iran.html
 **Apple Reaches $250 Million Settlement Over Claims It Misled People on A.I.**\
 `Some iPhone owners will be eligible to receive $25 to $95 over claims that the tech giant oversold its artificial intelligence system, Apple Intelligence.`\
 https://www.nytimes.com/2026/05/05/technology/apple-intelligence-lawsuit-settlement.html
-
-**For One Couple, the ABCs of Home Renovation Were Not So Simple**\
-`Stacie Grissom and Sean Wilson’s 9,000-square-foot Indiana schoolhouse is a lesson in courage.`\
-https://www.nytimes.com/2026/05/05/realestate/indiana-schoolhouse-homestead-renovation.html
-
-**A Loft with Past Lives Gets an Owner Making a New One**\
-`How Jessica Helfand, an artist, started a new chapter in an industrial building.`\
-https://www.nytimes.com/2026/05/05/arts/jessica-helfand-providence-studio.html
 
