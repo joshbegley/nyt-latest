@@ -1,3 +1,11 @@
+**OpenAI Slows Its Plans for Stargate**\
+`Despite initial grand plans for the Stargate project, recent announcements from OpenAI have signaled that it is stalling. The “Hard Fork” hosts Kevin Roose and Casey Newton predict why that might be the case in their latest episode.`\
+https://www.nytimes.com/video/podcasts/100000010883751/openai-slows-its-plans-for-stargate.html
+
+**N.Y.P.D. Captain Is Transferred After Calling Mamdani ‘Total Nonsense’**\
+`The captain, James G. Wilson, was also filmed calling Democrats a “waste of human race.”`\
+https://www.nytimes.com/2026/05/05/nyregion/james-wilson-nypd-mamdani-democrats.html
+
 **Democrats Urge N.Y. Leaders to Redistrict After Supreme Court Ruling**\
 `The House minority leader, Hakeem Jeffries, sent a familiar emissary to the New York State Capitol to convey the party’s urgency to draw more favorable maps.`\
 https://www.nytimes.com/2026/05/05/nyregion/redistricting-ny-democrats.html
