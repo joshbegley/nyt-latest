@@ -1,3 +1,7 @@
+**Man Accused of Attacking Press Gala Indicted on Four Charges**\
+`A grand jury approved a fourth count against Cole Tomas Allen, who prosecutors say wounded a federal officer while attempting to kill President Trump.`\
+https://www.nytimes.com/2026/05/05/us/politics/whcd-new-charges.html
+
 **F.A.A. Employee Charged With Threatening to Kill Trump**\
 `The employee, Dean DelleChiaie of Nashua, N.H., was accused of emailing the White House about his plans to kill the president, after using his work computer to conduct related searches.`\
 https://www.nytimes.com/2026/05/05/us/politics/faa-employee-trump-murder-threat-charged.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/05/style/heidi-klum-outfit-met-gala.html
 **F.A.A. Proposes Rule for Drone-Free Zones**\
 `The Federal Aviation Administration proposed a system for designating certain “critical infrastructure” sites off limits to unmanned aircraft.`\
 https://www.nytimes.com/2026/05/05/us/politics/faa-drones-proposed-rule.html
-
-**Trump desestima los daños económicos de la guerra contra Irán**\
-`Las declaraciones del presidente en un acto en la Casa Blanca contrastan con la realidad económica en la que el aumento de los precios de la energía afecta tanto a familias como a empresas.`\
-https://www.nytimes.com/es/2026/05/05/espanol/estados-unidos/guerra-iran-efectos-economia-trump.html
 
