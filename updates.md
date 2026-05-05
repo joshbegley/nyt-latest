@@ -1,3 +1,7 @@
+**Mingling With Jeff Bezos and Stevie Nicks at the 2026 Met Gala Cocktail Party**\
+`Guests had many interpretations for the “Fashion Is Art” dress code.`\
+https://www.nytimes.com/2026/05/05/style/met-gala-cocktail-party.html
+
 **Late Night Will Miss Making Fun of Spirit Airlines**\
 `The budget carrier announced that “‘all flights have been canceled, and customer service is no longer available,’ which, coincidentally, was also Spirit’s motto,” Stephen Colbert said.`\
 https://www.nytimes.com/2026/05/05/arts/television/late-night-spirit-airlines.html
