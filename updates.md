@@ -1,4 +1,20 @@
 ****\
+`Video filmed by the Associated Press on March 27 shows these munitions dispersing over an area near Tyre, a large city in the south of Lebanon.`\
+https://www.nytimes.com/video/embedded/world/middleeast/100000010883635/tyremarch26.html
+
+**Trump Administration Investigating Smith College Over Transgender Admissions**\
+`The Education Department’s civil rights arm said admitting “biological males” to the women’s college may violate anti-discrimination laws.`\
+https://www.nytimes.com/2026/05/05/us/politics/smith-college-transgender-admissions.html
+
+****\
+`Video filmed by Anadolu News Agency in Khiam, in early March, shows white phosphorus providing a smoke screen for Israeli military vehicles which are advancing on a road near the town.`\
+https://www.nytimes.com/video/embedded/world/middleeast/100000010883654/05visualUploader-15815.html
+
+**Congress Is Doing Little to Prepare for Potential A.I. Job Losses**\
+`As fears of A.I.-driven job losses mount, economists warn that unemployment benefits and other programs to help displaced workers aren’t sufficient.`\
+https://www.nytimes.com/2026/05/05/business/artificial-intelligence-safety-net.html
+
+****\
 `Video filmed by Agence France Presse shows plumes of white smoke consistent with white phosphorus, descending over the town of Khiam, on Sept. 11, 2024.`\
 https://www.nytimes.com/video/embedded/world/middleeast/100000010883637/05visualUploader-58087.html
 
