@@ -1,3 +1,83 @@
+**Andrew Tate’s Civil Trial Over Assault Claims Is Postponed**\
+`A British judge on Tuesday ordered a delay in a civil trial set for June after the police said they would reinvestigate criminal accusations against Mr. Tate.`\
+https://www.nytimes.com/2026/05/05/world/europe/andrew-tate-trial-uk-accusations.html
+
+**A Democrat Who Makes Me Listen**\
+`An interview with Representative Jake Auchincloss, a Democrat from the charismatic center.`\
+https://www.nytimes.com/2026/05/05/opinion/jake-auchincloss-democrat-massachusetts.html
+
+**Is It Time to Tax the Oil and Gas Industry’s Windfall?**\
+`The war in Iran has meant big profits for fossil fuel companies, prompting some lawmakers to call for a tax. But that would be easier said than done.`\
+https://www.nytimes.com/2026/05/05/climate/oil-and-gas-windfall-tax-climate.html
+
+**Ohio Primary Election Results**\
+`Get live results and maps from the 2026 Ohio primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-primary.html
+
+**Ohio Ninth Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Ohio primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-9-primary.html
+
+**Michigan State Senate District 35 Special Election Results**\
+`Get live results and maps from the 2026 Michigan special election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-michigan-state-senate-district-35-special.html
+
+**Ohio U.S. Senate Special Primary Election Results**\
+`Get live results and maps from the 2026 Ohio special primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-senate-special-primary-may-5.html
+
+**Ohio Sixth Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Ohio primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-6-primary.html
+
+**Ohio Fifth Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Ohio primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-5-primary.html
+
+**Ohio Third Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Ohio primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-3-primary.html
+
+**Indiana Primary Election Results**\
+`Get live results and maps from the 2026 Indiana primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-indiana-primary.html
+
+**Ohio First Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Ohio primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-1-primary.html
+
+**Ohio Fourth Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Ohio primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-4-primary.html
+
+**Ohio 13th Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Ohio primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-13-primary.html
+
+**Ohio Seventh Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Ohio primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-7-primary.html
+
+**Ohio 15th Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Ohio primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-15-primary.html
+
+**Ohio 14th Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Ohio primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-14-primary.html
+
+**Ohio Second Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Ohio primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-2-primary.html
+
+**Ohio Governor Primary Election Results**\
+`Get live results and maps from the 2026 Ohio primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-governor-primary.html
+
+**Ohio Eighth Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Ohio primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-8-primary.html
+
 **F.D.A. Blocked Publication of Research Finding Covid and Shingles Vaccines Were Safe**\
 `The agency’s scientists and data contractors reviewed millions of patient records for studies that were pulled back before release.`\
 https://www.nytimes.com/2026/05/05/us/politics/fda-covid-vaccine-studies.html
