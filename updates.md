@@ -1,3 +1,7 @@
+**Tony Awards Nominations 2026: The Complete List**\
+`Nominations for the 79th Tony Awards were announced on Tuesday. Here’s who made the list.`\
+https://www.nytimes.com/2026/05/05/theater/tony-awards-nominations.html
+
 **Nuestros 15 atuendos favoritos de la Gala del Met 2026**\
 `Independientemente del tema, estos invitados estaban simplemente estupendos.`\
 https://www.nytimes.com/es/2026/05/05/espanol/estilos-de-vida/met-gala-2026-mejores-looks.html

@@ -26,8 +26,8 @@ https://www.nytimes.com/2026/05/05/business/economy/us-trade-deficit-grew-in-mar
 `Artificial intelligence has become a national security concern. That has federal officials rethinking how lightly it should regulate the technology.`\
 https://www.nytimes.com/2026/05/05/business/dealbook/trump-ai-regulation.html
 
-**Tony Awards Nominations 2026: Updating List**\
-`Nominations for the 79th Tony Awards will be announced on Tuesday. Here’s the updating list.`\
+**Tony Awards Nominations 2026: The Complete List**\
+`Nominations for the 79th Tony Awards were announced on Tuesday. Here’s who made the list.`\
 https://www.nytimes.com/2026/05/05/theater/tony-awards-nominations.html
 
 **The Best Looks From the Met Gala**\
