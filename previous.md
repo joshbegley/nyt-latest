@@ -1,3 +1,23 @@
+**Fireworks Factory Blast in China Kills at Least 21**\
+`Dozens more were injured in the explosion, which appeared to be one of the country’s deadliest in recent years.`\
+https://www.nytimes.com/2026/05/05/world/asia/china-fireworks-factory-explosion.html
+
+**What a Bike Ride Showed Me About Apartheid’s Legacy**\
+`A New York Times reporter joined a group of cyclists on a route meant to break down Cape Town’s lingering racial and economic barriers.`\
+https://www.nytimes.com/2026/05/05/world/africa/cape-town-apartheid-bike-ride.html
+
+**Taiwan Could Learn From Ukraine. Informally, Connections Are Growing.**\
+`The governments have no official diplomatic or military ties. But a loose network led by company executives and volunteers is bridging some of that gulf.`\
+https://www.nytimes.com/2026/05/05/world/europe/ukraine-taiwan-drones.html
+
+**As Oil Prices Stay High, China Doubles Down on Wind Power**\
+`An industrial policy of subsidies and import restrictions laid the foundations for China to become almost as dominant in wind turbines as in solar panels.`\
+https://www.nytimes.com/2026/05/05/business/china-wind-turbines.html
+
+**Corrections: May 5, 2026**\
+`Corrections that appeared in print on Tuesday, May 5, 2026.`\
+https://www.nytimes.com/2026/05/05/pageoneplus/corrections-may-5-2026.html
+
 **Our 15 Favorite Looks at the 2026 Met Gala**\
 `Regardless of the theme, these people just looked great.`\
 https://www.nytimes.com/2026/05/04/style/met-gala-2026-red-carpet.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/05/04/us/politics/supreme-court-louisiana-voting-ri
 **Trump Administration Demands Names of 2020 Election Workers in Georgia**\
 `The Justice Department again appears to be using the investigative power of the federal government to rehash debunked claims that Democrats stole the 2020 election.`\
 https://www.nytimes.com/2026/05/04/us/politics/trump-2020-georgia-election-workers.html
-
-**Some New York City Democrats Went to the Met Gala**\
-`Mayor Mamdani sat out the fund-raiser. But a number of Democratic city politicians, past and present attended the extravagant affair.`\
-https://www.nytimes.com/2026/05/04/style/nyc-democrats-met-gala-2026.html
-
-**These Gowns Are Grabbing More Than Attention**\
-`Lisa wasn’t the only celebrity to show up at the Met Gala with extra appendages.`\
-https://www.nytimes.com/2026/05/04/style/met-gala-hands-arms-lisa.html
-
-**Beyoncé, Blue Ivy and Jay-Z Arrive at the Met Gala**\
-`The superstar, a co-chair of this year’s gala, electrified onlookers when she arrived with her elder daughter and husband.`\
-https://www.nytimes.com/2026/05/04/style/beyonce-met-gala-jayz-blue-ivy.html
-
-**Who Isn’t Going to the Met Gala?**\
-`Some luminaries had scheduling conflicts, but there were some who chose not to attend to make a statement.`\
-https://www.nytimes.com/2026/05/04/style/met-gala-zendaya-skipping.html
-
-**La Gala del Met enfrenta críticas por la participación de Jeff Bezos**\
-`Hay una campaña anti-Bezos en las calles de Nueva York donde han descrito el acto como la “Gala Amazon Prime” o el “Baile de Bezos”.`\
-https://www.nytimes.com/es/2026/05/04/espanol/estilos-de-vida/gala-met-protestas-jeff-bezos.html
 
