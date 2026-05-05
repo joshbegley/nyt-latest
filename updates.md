@@ -1,3 +1,23 @@
+**F.D.A. Blocked Publication of Research Finding Covid and Shingles Vaccines Were Safe**\
+`The agency’s scientists and data contractors reviewed millions of patient records for studies that were pulled back before release.`\
+https://www.nytimes.com/2026/05/05/us/politics/fda-covid-vaccine-studies.html
+
+**Donlyn Lyndon, Last Surviving Creator of the Sea Ranch, Dies at 90**\
+`With his classmates Charles Moore, William Turnbull Jr. and Richard Whitaker, he designed an icon of modern architecture on a windswept bluff in Northern California.`\
+https://www.nytimes.com/2026/05/05/arts/design/donlyn-lyndon-dead.html
+
+**Colorado Could Be Hit With Biggest Snowstorm of the Year**\
+`Over two feet of snow is expected to drop over the Rocky Mountains this week after the Western United States experienced unusually warm weather this year.`\
+https://www.nytimes.com/video/weather/100000010883909/colorado-snow-rocky-mountains-weather.html
+
+**U.S. Sues The New York Times, Claiming Discrimination Against a White Man**\
+`The Equal Employment Opportunity Commission said the paper had engaged in “unlawful employment practices” against the man, who did not get a sought-after promotion.`\
+https://www.nytimes.com/2026/05/05/business/economy/eeoc-nyt-investigation.html
+
+**U.S. and Iran Make Competing Claims Over Strait of Hormuz**\
+`Defense Secretary Pete Hegseth said the United States had control of the Strait of Hormuz and would work to escort trapped ships out. Iran maintained the strait was in its control.`\
+https://www.nytimes.com/video/us/politics/100000010883344/trump-iran-strait-of-hormuz.html
+
 **María Nieves Rego, Who Helped Spark a Tango Renaissance, Dies at 91**\
 `With her dance partner and onetime husband, Juan Carlos Copes, she reinvented tango for a global stage, including in the hit stage show “Tango Argentino.”`\
 https://www.nytimes.com/2026/05/05/arts/dance/maria-nieves-rego-dead.html

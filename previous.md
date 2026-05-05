@@ -1,3 +1,15 @@
+**F.D.A. Blocked Publication of Research Finding Covid and Shingles Vaccines Were Safe**\
+`The agency’s scientists and data contractors reviewed millions of patient records for studies that were pulled back before release.`\
+https://www.nytimes.com/2026/05/05/us/politics/fda-covid-vaccine-studies.html
+
+**Donlyn Lyndon, Last Surviving Creator of the Sea Ranch, Dies at 90**\
+`With his classmates Charles Moore, William Turnbull Jr. and Richard Whitaker, he designed an icon of modern architecture on a windswept bluff in Northern California.`\
+https://www.nytimes.com/2026/05/05/arts/design/donlyn-lyndon-dead.html
+
+**Colorado Could Be Hit With Biggest Snowstorm of the Year**\
+`Over two feet of snow is expected to drop over the Rocky Mountains this week after the Western United States experienced unusually warm weather this year.`\
+https://www.nytimes.com/video/weather/100000010883909/colorado-snow-rocky-mountains-weather.html
+
 **María Nieves Rego, Who Helped Spark a Tango Renaissance, Dies at 91**\
 `With her dance partner and onetime husband, Juan Carlos Copes, she reinvented tango for a global stage, including in the hit stage show “Tango Argentino.”`\
 https://www.nytimes.com/2026/05/05/arts/dance/maria-nieves-rego-dead.html
@@ -11,7 +23,7 @@ https://www.nytimes.com/2026/05/05/arts/music/amplifier-newsleter-all-female-cou
 https://www.nytimes.com/2026/05/05/world/asia/india-modi-congress-west-bengal-elections.html
 
 **U.S. Sues The New York Times, Claiming Discrimination Against a White Man**\
-`The Equal Employment Opportunity Commission said the paper had discriminated against a white, male employee who did not get a sought-after promotion.`\
+`The Equal Employment Opportunity Commission said the paper had engaged in “unlawful employment practices” against the man, who did not get a sought-after promotion.`\
 https://www.nytimes.com/2026/05/05/business/economy/eeoc-nyt-investigation.html
 
 **G.O.P. Proposes $1 Billion in Immigration Bill for Trump’s Ballroom Project**\
@@ -31,7 +43,7 @@ https://www.nytimes.com/2026/05/05/travel/delta-airlines-flight-snack-policy-upd
 https://www.nytimes.com/video/opinion/100000010870437/the-book-that-changed-how-i-think-about-liberalism.html
 
 **U.S. and Iran Make Competing Claims Over Strait of Hormuz**\
-`The U.S. and Iran both claimed to have control over the Strait of Hormuz on Tuesday after the U.S. launched a naval effort to escort vessels through the vital shipping route. Some 1,600 ships are trapped in or near the waterway, which remains effectively closed.`\
+`Defense Secretary Pete Hegseth said the United States had control of the Strait of Hormuz and would work to escort trapped ships out. Iran maintained the strait was in its control.`\
 https://www.nytimes.com/video/us/politics/100000010883344/trump-iran-strait-of-hormuz.html
 
 **Coinbase Lays Off 14% of Employees as A.I. Changes Work**\
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/05/business/media/hannah-natanson-washington-pos
 **El crucero afectado por el hantavirus se dirige a las islas Canarias, según la OMS**\
 `España dijo que decidiría la escala después de que los expertos en enfermedades inspeccionaran el barco. La Organización Mundial de la Salud dijo que la transmisión de persona a persona puede haber desempeñado un papel en el brote.`\
 https://www.nytimes.com/es/2026/05/05/espanol/mundo/crucero-hantavirus-islas-canarias.html
-
-**Stranded Cruise Ship Battles Hantavirus Outbreak**\
-`Government and health authorities have been scrambling to evacuate sick people on the MV Hondius, a vessel that has been moored in the Atlantic Ocean. The World Health Organization said the risk to the general public from the rare pathogen was low.`\
-https://www.nytimes.com/video/world/africa/100000010882987/hantavirus-cruise-ship-outbreak.html
-
-**Secret Service Agents Shoot Armed Man Near the White House**\
-`Secret Service agents shot and wounded an armed man in a burst of gunfire that also injured a young bystander in a busy area near the Washington Monument.`\
-https://www.nytimes.com/video/us/100000010883020/gunman-shot-outside-white-house-washington.html
-
-**How Did You Grow and Change This School Year?**\
-`In this forum, we invite both students and teachers to reflect on their challenges and successes — and to consider how to build on them for next year.`\
-https://www.nytimes.com/2026/05/05/learning/how-did-you-grow-and-change-this-school-year.html
 
