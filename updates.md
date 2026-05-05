@@ -1,3 +1,27 @@
+**Trump and Xi, This Is Your Nixon-Mao Moment**\
+`A new level of global disorder will face the American and Chinese presidents at their summit. Like Mao and Nixon, they face a common threat.`\
+https://www.nytimes.com/2026/05/05/opinion/trump-xi-summit-ai-global-threats.html
+
+**Can Trump Strong-Arm Iran?**\
+`The president seems to be searching for a silver bullet to end the war. There might not be one.`\
+https://www.nytimes.com/2026/05/05/world/trump-iran-cruise-ship-spain-met-gala.html
+
+**Trump Will Control His Image at Palm Beach’s Newly Named Trump Airport**\
+`The Trump family won’t profit from branded merchandise sold at the airport. But it will have control over any biographical material presented about President Trump there.`\
+https://www.nytimes.com/2026/05/05/us/palm-beach-florida-trump-airport.html
+
+**Trump’s Ukraine Policy Is Succeeding While His Iran Policy Flails**\
+`With Ukraine, you can glimpse the shape of success.`\
+https://www.nytimes.com/2026/05/05/opinion/trump-ukraine-iran.html
+
+**Apple Reaches $250 Million Settlement Over Claims It Misled People on A.I.**\
+`Some iPhone owners will be eligible to receive $25 to $95 over claims that the tech giant oversold its artificial intelligence system, Apple Intelligence.`\
+https://www.nytimes.com/2026/05/05/technology/apple-intelligence-lawsuit-settlement.html
+
+**x-FedEx Driver Who Kidnapped and Killed 7-Year-Old Girl Is Sentenced to Death**\
+`Tanner Horner kidnapped and strangled the girl, Athena Strand, after delivering a package to her home in Texas. The package was her Christmas gift, a set of Barbies.`\
+https://www.nytimes.com/2026/05/05/us/fedex-driver-murder-athena-strand-sentencing.html
+
 **For One Couple, the ABCs of Home Renovation Were Not So Simple**\
 `Stacie Grissom and Sean Wilson’s 9,000-square-foot Indiana schoolhouse is a lesson in courage.`\
 https://www.nytimes.com/2026/05/05/realestate/indiana-schoolhouse-homestead-renovation.html

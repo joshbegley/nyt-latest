@@ -1,3 +1,23 @@
+**Trump and Xi, This Is Your Nixon-Mao Moment**\
+`A new level of global disorder will face the American and Chinese presidents at their summit. Like Mao and Nixon, they face a common threat.`\
+https://www.nytimes.com/2026/05/05/opinion/trump-xi-summit-ai-global-threats.html
+
+**Can Trump Strong-Arm Iran?**\
+`The president seems to be searching for a silver bullet to end the war. There might not be one.`\
+https://www.nytimes.com/2026/05/05/world/trump-iran-cruise-ship-spain-met-gala.html
+
+**Trump Will Control His Image at Palm Beach’s Newly Named Trump Airport**\
+`The Trump family won’t profit from branded merchandise sold at the airport. But it will have control over any biographical material presented about President Trump there.`\
+https://www.nytimes.com/2026/05/05/us/palm-beach-florida-trump-airport.html
+
+**Trump’s Ukraine Policy Is Succeeding While His Iran Policy Flails**\
+`With Ukraine, you can glimpse the shape of success.`\
+https://www.nytimes.com/2026/05/05/opinion/trump-ukraine-iran.html
+
+**Apple Reaches $250 Million Settlement Over Claims It Misled People on A.I.**\
+`Some iPhone owners will be eligible to receive $25 to $95 over claims that the tech giant oversold its artificial intelligence system, Apple Intelligence.`\
+https://www.nytimes.com/2026/05/05/technology/apple-intelligence-lawsuit-settlement.html
+
 **For One Couple, the ABCs of Home Renovation Were Not So Simple**\
 `Stacie Grissom and Sean Wilson’s 9,000-square-foot Indiana schoolhouse is a lesson in courage.`\
 https://www.nytimes.com/2026/05/05/realestate/indiana-schoolhouse-homestead-renovation.html
@@ -30,7 +50,7 @@ https://www.nytimes.com/2026/05/05/us/politics/faa-drones-proposed-rule.html
 `Las declaraciones del presidente en un acto en la Casa Blanca contrastan con la realidad económica en la que el aumento de los precios de la energía afecta tanto a familias como a empresas.`\
 https://www.nytimes.com/es/2026/05/05/espanol/estados-unidos/guerra-iran-efectos-economia-trump.html
 
-**FedEx Driver Who Kidnapped and Killed 7-Year-Old Girl Is Sentenced to Death**\
+**x-FedEx Driver Who Kidnapped and Killed 7-Year-Old Girl Is Sentenced to Death**\
 `Tanner Horner kidnapped and strangled the girl, Athena Strand, after delivering a package to her home in Texas. The package was her Christmas gift, a set of Barbies.`\
 https://www.nytimes.com/2026/05/05/us/fedex-driver-murder-athena-strand-sentencing.html
 
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/05/05/opinion/jake-auchincloss-democrat-massachuset
 **Is It Time to Tax the Oil and Gas Industry’s Windfall?**\
 `The war in Iran has meant big profits for fossil fuel companies, prompting some lawmakers to call for a tax. But that would be easier said than done.`\
 https://www.nytimes.com/2026/05/05/climate/oil-and-gas-windfall-tax-climate.html
-
-**Ohio Primary Election Results**\
-`Get live results and maps from the 2026 Ohio primary elections.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-ohio-primary.html
-
-**Ohio Ninth Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Ohio primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-9-primary.html
-
-**Michigan State Senate District 35 Special Election Results**\
-`Get live results and maps from the 2026 Michigan special election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-michigan-state-senate-district-35-special.html
-
-**Ohio U.S. Senate Special Primary Election Results**\
-`Get live results and maps from the 2026 Ohio special primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-senate-special-primary-may-5.html
-
-**Ohio Sixth Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Ohio primary election.`\
-https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-6-primary.html
 

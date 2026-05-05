@@ -50,7 +50,7 @@ https://www.nytimes.com/2026/05/05/us/politics/faa-drones-proposed-rule.html
 `Las declaraciones del presidente en un acto en la Casa Blanca contrastan con la realidad económica en la que el aumento de los precios de la energía afecta tanto a familias como a empresas.`\
 https://www.nytimes.com/es/2026/05/05/espanol/estados-unidos/guerra-iran-efectos-economia-trump.html
 
-**x-FedEx Driver Who Kidnapped and Killed 7-Year-Old Girl Is Sentenced to Death**\
+**Ex-FedEx Driver Who Kidnapped and Killed 7-Year-Old Girl Is Sentenced to Death**\
 `Tanner Horner kidnapped and strangled the girl, Athena Strand, after delivering a package to her home in Texas. The package was her Christmas gift, a set of Barbies.`\
 https://www.nytimes.com/2026/05/05/us/fedex-driver-murder-athena-strand-sentencing.html
 
