@@ -8,11 +8,11 @@ https://www.nytimes.com/2026/05/04/us/politics/trump-administration-demands-name
 
 **Some New York City Democrats Went to the Met Gala**\
 `Mayor Mamdani sat out the fund-raiser. But a number of Democratic city politicians, past and present attended the extravagant affair.`\
-https://www.nytimes.com/2026/05/04/style/some-new-york-city-democrats-went-to-the-met-gala.html
+https://www.nytimes.com/2026/05/04/style/nyc-democrats-met-gala-2026.html
 
 **These Gowns Are Grabbing More Than Attention**\
 `Lisa wasn’t the only celebrity to show up at the Met Gala with extra appendages.`\
-https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/met-gala-hands-arms-lisa
+https://www.nytimes.com/2026/05/04/style/met-gala-hands-arms-lisa.html
 
 **Beyoncé, Blue Ivy and Jay-Z Arrive at the Met Gala**\
 `The superstar, a co-chair of this year’s gala, electrified onlookers when she arrived with her elder daughter and husband.`\
