@@ -1,3 +1,7 @@
+**It Was a Very Nipple-Forward Red Carpet**\
+`The look was in keeping with the Met Gala’s accompanying exhibition at the Costume Institute.`\
+https://www.nytimes.com/2026/05/04/style/met-gala-nipples-naked-dressing.html
+
 **Man Accused of Starting Palisades Fire Admired Luigi Mangione, Prosecutors Say**\
 `The Los Angeles suspect was lonely and angry and felt “enslaved” by rich people, prosecutors say. After being romantically spurned, they say, he went into the mountains and lit a fire.`\
 https://www.nytimes.com/2026/05/04/us/palisades-fire-suspect-jonathan-rinderknecht.html
@@ -7,7 +11,7 @@ https://www.nytimes.com/2026/05/04/us/palisades-fire-suspect-jonathan-rinderknec
 https://www.nytimes.com/2026/05/04/style/met-gala-first-timers.html
 
 **Shootings On the National Mall Are Rare**\
-`The National Mall and its surroundings are one of the least violent areas in Washington.`\
+`The National Mall and its surroundings are one of the safest areas in Washington.`\
 https://www.nytimes.com/2026/05/04/us/politics/secret-service-shooting-white-house-washington.html
 
 **No Reverse Aging for Bad Bunny**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/04/espanol/estilos-de-vida/gala-met-protestas
 **Another tech titan hits the gala’s red carpet.**\
 `Sergey Brin, a Google founder, in a dark tuxedo alongside his girlfriend, a conservative influencer.`\
 https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/another-tech-titan-hits-the-galas-red-carpet
-
-**U.S. Revokes Visas of Board Members at Costa Rica’s Top Watchdog Newspaper**\
-`The move came after the paper critically covered the country’s president, who has cozied up to the United States. Analysts view the visa decision as part of a White House strategy to punish critics of its allies.`\
-https://www.nytimes.com/2026/05/04/world/americas/costa-rica-newspaper-us-visas.html
 

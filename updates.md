@@ -1,3 +1,11 @@
+**It Was a Very Nipple-Forward Red Carpet**\
+`The look was in keeping with the Met Gala’s accompanying exhibition at the Costume Institute.`\
+https://www.nytimes.com/2026/05/04/style/met-gala-nipples-naked-dressing.html
+
+**Shootings On the National Mall Are Rare**\
+`The National Mall and its surroundings are one of the safest areas in Washington.`\
+https://www.nytimes.com/2026/05/04/us/politics/secret-service-shooting-white-house-washington.html
+
 **Man Accused of Starting Palisades Fire Admired Luigi Mangione, Prosecutors Say**\
 `The Los Angeles suspect was lonely and angry and felt “enslaved” by rich people, prosecutors say. After being romantically spurned, they say, he went into the mountains and lit a fire.`\
 https://www.nytimes.com/2026/05/04/us/palisades-fire-suspect-jonathan-rinderknecht.html
