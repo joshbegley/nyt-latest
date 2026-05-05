@@ -1,3 +1,7 @@
+**Behind the White House’s Potential Rethink on A.I.**\
+`Artificial intelligence has become a national security concern. That has federal officials rethinking how lightly it should regulate the technology.`\
+https://www.nytimes.com/2026/05/05/business/dealbook/trump-ai-regulation.html
+
 **Tony Awards Nominations 2026: Updating List**\
 `Nominations for the 79th Tony Awards will be announced on Tuesday. Here’s the updating list.`\
 https://www.nytimes.com/2026/05/05/theater/tony-awards-nominations.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/05/learning/sequels.html
 **How Anne Frank Is Linked to a Sapling on Staten Island**\
 `On the campus of Wagner College, a cutting from a chestnut tree has been planted. It once grew in Amsterdam outside Anne Frank’s window.`\
 https://www.nytimes.com/2026/05/05/nyregion/anne-frank-staten-island.html
-
-**How Are Your Teachers Handling Writing in the Age of A.I.?**\
-`More educators are turning to in-class writing with pen and paper to discourage the incursion of artificial intelligence. What are your teachers doing? What do you think?`\
-https://www.nytimes.com/2026/05/05/learning/how-are-your-teachers-handling-writing-in-the-age-of-ai.html
 
