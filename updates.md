@@ -1,3 +1,15 @@
+**El crucero afectado por el hantavirus se dirige a las islas Canarias, según la OMS**\
+`España dijo que decidiría la escala después de que los expertos en enfermedades inspeccionaran el barco. La Organización Mundial de la Salud dijo que la transmisión de persona a persona puede haber desempeñado un papel en el brote.`\
+https://www.nytimes.com/es/2026/05/05/espanol/mundo/crucero-hantavirus-islas-canarias.html
+
+**Stranded Cruise Ship Battles Hantavirus Outbreak**\
+`Government and health authorities have been scrambling to evacuate sick people on the MV Hondius, a vessel that has been moored in the Atlantic Ocean. The World Health Organization said the risk to the general public from the rare pathogen was low.`\
+https://www.nytimes.com/video/world/africa/100000010882987/hantavirus-cruise-ship-outbreak.html
+
+**Secret Service Agents Shoot Armed Man Near the White House**\
+`Secret Service agents shot and wounded an armed man in a burst of gunfire that also injured a young bystander in a busy area near the Washington Monument.`\
+https://www.nytimes.com/video/us/100000010883020/gunman-shot-outside-white-house-washington.html
+
 **How Did You Grow and Change This School Year?**\
 `In this forum, we invite both students and teachers to reflect on their challenges and successes — and to consider how to build on them for next year.`\
 https://www.nytimes.com/2026/05/05/learning/how-did-you-grow-and-change-this-school-year.html
