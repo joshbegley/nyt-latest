@@ -1,3 +1,7 @@
+**Tony Awards Nominations 2026: Updating List**\
+`Nominations for the 79th Tony Awards will be announced on Tuesday. Here’s the updating list.`\
+https://www.nytimes.com/2026/05/05/theater/tony-awards-nominations.html
+
 **The Best Looks From the Met Gala**\
 `We’re covering the cobblestone carpet.`\
 https://www.nytimes.com/2026/05/05/briefing/the-best-looks-from-the-met-gala.html
