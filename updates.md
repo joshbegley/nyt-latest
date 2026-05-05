@@ -1,3 +1,39 @@
+**G.O.P. Proposes $1 Billion in Immigration Bill for Trump’s Ballroom Project**\
+`The money would go toward security improvements as part of an East Wing construction project, including a new ballroom that President Trump has said would be built with private dollars.`\
+https://www.nytimes.com/2026/05/05/us/politics/republicans-immigration-bill-trump-ballroom.html
+
+**The Cheap Guided Rockets U.S. Forces Use Against Iranian Drones**\
+`Called the Advanced Precision Kill Weapon System, it adds laser guidance to a weapon first used in the Korean War.`\
+https://www.nytimes.com/2026/05/05/us/politics/rockets-iran-drones.html
+
+**Delta Will Stop Serving Snacks and Drinks on Short Flights**\
+`Most travelers flying less than 350 miles on Delta will soon have to go without free coffee and cookies, but the carrier is adding service to longer flights.`\
+https://www.nytimes.com/2026/05/05/travel/delta-airlines-flight-snack-policy-update.html
+
+**The Book That Changed How I Think About Liberalism**\
+`The historian Helena Rosenblatt traces the roots of liberalism and the values that many have forgotten.`\
+https://www.nytimes.com/video/opinion/100000010870437/the-book-that-changed-how-i-think-about-liberalism.html
+
+**U.S. and Iran Make Competing Claims Over Strait of Hormuz**\
+`The U.S. and Iran both claimed to have control over the Strait of Hormuz on Tuesday after the U.S. launched a naval effort to escort vessels through the vital shipping route. Some 1,600 ships are trapped in or near the waterway, which remains effectively closed.`\
+https://www.nytimes.com/video/us/politics/100000010883344/trump-iran-strait-of-hormuz.html
+
+**Coinbase Lays Off 14% of Employees as A.I. Changes Work**\
+`The largest U.S. crypto exchange said it was cutting jobs because of cryptocurrency market volatility and to “optimize” for the artificial intelligence era.`\
+https://www.nytimes.com/2026/05/05/technology/coinbase-layoffs-ai.html
+
+**Vornado C.E.O. Blasts Mamdani’s Tax-the-Rich Approach in Earnings Call**\
+`Steven Roth, the chief executive of Vornado, criticized Mayor Zohran Mamdani for singling out the billionaire Ken Griffin in his bid to make the wealthy pay more taxes in New York City.`\
+https://www.nytimes.com/2026/05/05/nyregion/roth-mamdani-griffin-rich.html
+
+**La ruptura familiar que ha puesto a LG en el foco de Corea del Sur**\
+`Una disputa por la herencia del patrimonio del expresidente ha dado lugar a una denuncia penal sobre la forma en que la familia dinástica detrás de LG reparte sus activos.`\
+https://www.nytimes.com/es/2026/05/05/espanol/negocios/lg-corea-disputa-familiar.html
+
+**Big Payouts for Some Doctors, Too Little for Others**\
+`Readers discuss how arbitration has led to some huge awards while emergency care is often underpaid. Also: Don’t abandon America’s Afghan friends.`\
+https://www.nytimes.com/2026/05/05/opinion/doctors-arbitration.html
+
 **For Michael Tilson Thomas’s Legacy, Look at Young Musicians**\
 `Thomas, the beloved mentor and conductor of the San Francisco Symphony, recently died. He offered a road map for a 21st-century career in music.`\
 https://www.nytimes.com/2026/05/05/arts/music/michael-tilson-thomas-conductor-legacy.html
