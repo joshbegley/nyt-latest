@@ -1,3 +1,7 @@
+**Steyer, a Climate Activist, Retains Ties to a Hedge Fund That Backs Coal**\
+`Questions linger about the finances of Tom Steyer, who has emerged as a leading contender in the California governor’s race. He says he has asked that his money be separated from fossil fuel investments.`\
+https://www.nytimes.com/2026/05/05/us/tom-steyer-california-governor-coal.html
+
 **Nuestros 15 atuendos favoritos de la Gala del Met 2026**\
 `Independientemente del tema, estos invitados estaban simplemente estupendos.`\
 https://www.nytimes.com/es/2026/05/05/espanol/estilos-de-vida/met-gala-2026-mejores-looks.html
@@ -14,8 +18,8 @@ https://www.nytimes.com/2026/05/05/business/ford-motor-electric-pickup-truck.htm
 `We’ve got your morning after recap.`\
 https://www.nytimes.com/2026/05/05/style/met-gala-recap.html
 
-**Daniel Radcliffe, John Lithgow and Lesley Manville Pick Up Tony Nominations**\
-`The first batch of nominees included best new musical: “The Lost Boys,” “Titaníque,” “Schmigadoon!” and “Two Strangers (Carry a Cake Across New York)” were selected.`\
+**New Musicals ‘Schmigadoon!’ and ‘Lost Boys’ Lead List of Tony Nominees**\
+`The nominated performers include the film stars Daniel Radcliffe, Rose Byrne, John Lithgow and Lesley Manville.`\
 https://www.nytimes.com/2026/05/05/theater/2026-tony-nominations.html
 
 **U.S. Trade Deficit Grew in March**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/05/world/europe/france-orcas-killer-whales.html
 **What to Know About the Growing Saudi Arabia-U.A.E. Rift**\
 `Officials say competition between the countries is healthy. But tensions are mounting over energy quotas, regional conflicts and their different visions for the Middle East.`\
 https://www.nytimes.com/2026/05/05/world/middleeast/uae-saudi-arabia-oil-opec-what-to-know.html
-
-**Steve Ballmer’s Victim Impact, the Man Who Prosecuted Aspiration and the Abacus of Incarceration**\
-`Kawhi-Gate, part X.`\
-https://www.nytimes.com/2026/05/05/podcasts/steve-ballmers-victim-impact-the-man-who-prosecuted-aspiration-and-the-abacus-of-incarceration.html
 

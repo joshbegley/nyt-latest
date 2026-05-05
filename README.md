@@ -1,3 +1,7 @@
+**Five Publishers and Scott Turow Sue Meta and Mark Zuckerberg**\
+`The class-action lawsuit accuses the tech giant and its founder and chief executive of infringing on authors’ copyrights.`\
+https://www.nytimes.com/2026/05/05/books/publishers-turow-meta-zuckerberg-lawsuit-copyright.html
+
 **Steyer, a Climate Activist, Retains Ties to a Hedge Fund That Backs Coal**\
 `Questions linger about the finances of Tom Steyer, who has emerged as a leading contender in the California governor’s race. He says he has asked that his money be separated from fossil fuel investments.`\
 https://www.nytimes.com/2026/05/05/us/tom-steyer-california-governor-coal.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/05/crosswords/wordle-review-1782.html
 **The Uncertain Fate of France’s Last Two Captive Orcas**\
 `France must decide what to do with two orcas marooned at a deserted marine park: move them to another park, or release them into an open-water sanctuary.`\
 https://www.nytimes.com/2026/05/05/world/europe/france-orcas-killer-whales.html
-
-**What to Know About the Growing Saudi Arabia-U.A.E. Rift**\
-`Officials say competition between the countries is healthy. But tensions are mounting over energy quotas, regional conflicts and their different visions for the Middle East.`\
-https://www.nytimes.com/2026/05/05/world/middleeast/uae-saudi-arabia-oil-opec-what-to-know.html
 

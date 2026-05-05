@@ -1,3 +1,11 @@
+**Steyer, a Climate Activist, Retains Ties to a Hedge Fund That Backs Coal**\
+`Questions linger about the finances of Tom Steyer, who has emerged as a leading contender in the California governor’s race. He says he has asked that his money be separated from fossil fuel investments.`\
+https://www.nytimes.com/2026/05/05/us/tom-steyer-california-governor-coal.html
+
+**New Musicals ‘Schmigadoon!’ and ‘Lost Boys’ Lead List of Tony Nominees**\
+`The nominated performers include the film stars Daniel Radcliffe, Rose Byrne, John Lithgow and Lesley Manville.`\
+https://www.nytimes.com/2026/05/05/theater/2026-tony-nominations.html
+
 **Tony Awards Nominations 2026: The Complete List**\
 `Nominations for the 79th Tony Awards were announced on Tuesday. Here’s who made the list.`\
 https://www.nytimes.com/2026/05/05/theater/tony-awards-nominations.html
