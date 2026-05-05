@@ -1,3 +1,15 @@
+**F.A.A. Employee Charged With Threatening to Kill Trump**\
+`The employee, Dean DelleChiaie of Nashua, N.H., was accused of emailing the White House about his plans to kill the president, after using his work computer to conduct related searches.`\
+https://www.nytimes.com/2026/05/05/us/politics/faa-employee-trump-murder-threat-charged.html
+
+**What Happened When the Pope Had to Call Customer Service**\
+`Spoiler alert: There was no miracle.`\
+https://www.nytimes.com/2026/05/05/us/pope-leo-xiv-bank-customer-service.html
+
+**Kid Cudi Fires M.I.A. From Tour After Onstage Comments About Immigrants**\
+`M.I.A. made the comments at a concert in Dallas, drawing boos from the audience and criticism online.`\
+https://www.nytimes.com/2026/05/05/arts/music/kid-cudi-mia-fired-tour.html
+
 **For Canada’s Ceremonial Head of State, a Symbol of Rights and the Rule of Law**\
 `Prime Minister Mark Carney’s appointment of Louise Arbour, a former Supreme Court justice, as governor general, sends a message beyond Canada.`\
 https://www.nytimes.com/2026/05/05/world/canada/canada-louis-arbour-governor-general.html
