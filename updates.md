@@ -1,3 +1,11 @@
+**Was It Art? Was It Fashion? Was It Good?**\
+`Guests at the Met Gala had different interpretations of the night’s dress code.`\
+https://www.nytimes.com/2026/05/05/style/fashion-art-met-gala.html
+
+**Oyatte Takes the ‘Farm-to-Table’ Approach With Just One Farm**\
+`Gusi focuses on Slavic and Mediterranean food, Bar Hugo provides another rooftop space and more restaurant news.`\
+https://www.nytimes.com/2026/05/05/dining/nyc-restaurant-news.html
+
 **Driver Kills At Least 2 People After Ramming Car Into Pedestrians**\
 `A driver rammed a car into a pedestrian-heavy zone in Germany, killing at least two people and injuring others, the authorities said.`\
 https://www.nytimes.com/video/world/europe/100000010883271/leipzig-germany-car-ramming-deaths.html

@@ -8,7 +8,7 @@ https://www.nytimes.com/2026/05/05/dining/nyc-restaurant-news.html
 
 **Driver Kills At Least 2 People After Ramming Car Into Pedestrians**\
 `A driver rammed a car into a pedestrian-heavy zone in Germany, killing at least two people and injuring others, the authorities said.`\
-https://www.nytimes.com/video/world/europe/100000010883271/leipzig-germany-car-ramming-deaths.html
+https://www.nytimes.com/video/world/europe/leipzig-germany-car-ramming-deaths.html
 
 **Tony Nominations Snubs and Surprises: Stars Are Dethroned, ‘S.N.L.’ Alumnae Reign**\
 `Lea Michele, Adrien Brody and other boldface names were left out, while June Squibb, André De Shields and Layton Williams as an iceberg were among the surprises.`\
