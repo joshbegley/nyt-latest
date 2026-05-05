@@ -1,80 +1,80 @@
-**F.D.A. Blocked Publication of Research Finding Covid and Shingles Vaccines Were Safe**\
-`The agency’s scientists and data contractors reviewed millions of patient records for studies that were pulled back before release.`\
-https://www.nytimes.com/2026/05/05/us/politics/fda-covid-vaccine-studies.html
+**Andrew Tate’s Civil Trial Over Assault Claims Is Postponed**\
+`A British judge on Tuesday ordered a delay in a civil trial set for June after the police said they would reinvestigate criminal accusations against Mr. Tate.`\
+https://www.nytimes.com/2026/05/05/world/europe/andrew-tate-trial-uk-accusations.html
 
-**Donlyn Lyndon, Last Surviving Creator of the Sea Ranch, Dies at 90**\
-`With his classmates Charles Moore, William Turnbull Jr. and Richard Whitaker, he designed an icon of modern architecture on a windswept bluff in Northern California.`\
-https://www.nytimes.com/2026/05/05/arts/design/donlyn-lyndon-dead.html
+**A Democrat Who Makes Me Listen**\
+`An interview with Representative Jake Auchincloss, a Democrat from the charismatic center.`\
+https://www.nytimes.com/2026/05/05/opinion/jake-auchincloss-democrat-massachusetts.html
 
-**Colorado Could Be Hit With Biggest Snowstorm of the Year**\
-`Over two feet of snow is expected to drop over the Rocky Mountains this week after the Western United States experienced unusually warm weather this year.`\
-https://www.nytimes.com/video/weather/100000010883909/colorado-snow-rocky-mountains-weather.html
+**Is It Time to Tax the Oil and Gas Industry’s Windfall?**\
+`The war in Iran has meant big profits for fossil fuel companies, prompting some lawmakers to call for a tax. But that would be easier said than done.`\
+https://www.nytimes.com/2026/05/05/climate/oil-and-gas-windfall-tax-climate.html
 
-**María Nieves Rego, Who Helped Spark a Tango Renaissance, Dies at 91**\
-`With her dance partner and onetime husband, Juan Carlos Copes, she reinvented tango for a global stage, including in the hit stage show “Tango Argentino.”`\
-https://www.nytimes.com/2026/05/05/arts/dance/maria-nieves-rego-dead.html
+**Ohio Primary Election Results**\
+`Get live results and maps from the 2026 Ohio primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-primary.html
 
-**6 Stellar All-Female Country Duets**\
-`Hear Kacey Musgraves and Miranda Lambert making peace on the record, and more outstanding collaborations between women in Nashville.`\
-https://www.nytimes.com/2026/05/05/arts/music/amplifier-newsleter-all-female-country-duets.html
+**Ohio Ninth Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Ohio primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-9-primary.html
 
-**Where Have Modi’s Rivals Gone? India Under One Party**\
-`With his triumph in West Bengal state elections, Prime Minister Narendra Modi has moved closer to his dream of an opposition-free India.`\
-https://www.nytimes.com/2026/05/05/world/asia/india-modi-congress-west-bengal-elections.html
+**Michigan State Senate District 35 Special Election Results**\
+`Get live results and maps from the 2026 Michigan special election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-michigan-state-senate-district-35-special.html
 
-**U.S. Sues The New York Times, Claiming Discrimination Against a White Man**\
-`The Equal Employment Opportunity Commission said the paper had engaged in “unlawful employment practices” against the man, who did not get a sought-after promotion.`\
-https://www.nytimes.com/2026/05/05/business/economy/eeoc-nyt-investigation.html
+**Ohio U.S. Senate Special Primary Election Results**\
+`Get live results and maps from the 2026 Ohio special primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-senate-special-primary-may-5.html
 
-**G.O.P. Proposes $1 Billion in Immigration Bill for Trump’s Ballroom Project**\
-`The money would go toward security improvements as part of an East Wing construction project, including a new ballroom that President Trump has said would be built with private dollars.`\
-https://www.nytimes.com/2026/05/05/us/politics/republicans-immigration-bill-trump-ballroom.html
+**Ohio Sixth Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Ohio primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-6-primary.html
 
-**The Cheap Guided Rockets U.S. Forces Use Against Iranian Drones**\
-`Called the Advanced Precision Kill Weapon System, it adds laser guidance to a weapon first used in the Korean War.`\
-https://www.nytimes.com/2026/05/05/us/politics/rockets-iran-drones.html
+**Ohio Fifth Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Ohio primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-5-primary.html
 
-**Delta Will Stop Serving Snacks and Drinks on Short Flights**\
-`Most travelers flying less than 350 miles on Delta will soon have to go without free coffee and cookies, but the carrier is adding service to longer flights.`\
-https://www.nytimes.com/2026/05/05/travel/delta-airlines-flight-snack-policy-update.html
+**Ohio Third Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Ohio primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-3-primary.html
 
-**The Book That Changed How I Think About Liberalism**\
-`The historian Helena Rosenblatt traces the roots of liberalism and the values that many have forgotten.`\
-https://www.nytimes.com/video/opinion/100000010870437/the-book-that-changed-how-i-think-about-liberalism.html
+**Indiana Primary Election Results**\
+`Get live results and maps from the 2026 Indiana primary elections.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-indiana-primary.html
 
-**U.S. and Iran Make Competing Claims Over Strait of Hormuz**\
-`Defense Secretary Pete Hegseth said the United States had control of the Strait of Hormuz and would work to escort trapped ships out. Iran maintained the strait was in its control.`\
-https://www.nytimes.com/video/us/politics/100000010883344/trump-iran-strait-of-hormuz.html
+**Ohio First Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Ohio primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-1-primary.html
 
-**Coinbase Lays Off 14% of Employees as A.I. Changes Work**\
-`The largest U.S. crypto exchange said it was cutting jobs because of cryptocurrency market volatility and to “optimize” for the artificial intelligence era.`\
-https://www.nytimes.com/2026/05/05/technology/coinbase-layoffs-ai.html
+**Ohio Fourth Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Ohio primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-4-primary.html
 
-**Vornado C.E.O. Blasts Mamdani’s Tax-the-Rich Approach in Earnings Call**\
-`Steven Roth, the chief executive of Vornado, criticized Mayor Zohran Mamdani for singling out the billionaire Ken Griffin in his bid to make the wealthy pay more taxes in New York City.`\
-https://www.nytimes.com/2026/05/05/nyregion/roth-mamdani-griffin-rich.html
+**Ohio 13th Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Ohio primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-13-primary.html
 
-**La ruptura familiar que ha puesto a LG en el foco de Corea del Sur**\
-`Una disputa por la herencia del patrimonio del expresidente ha dado lugar a una denuncia penal sobre la forma en que la familia dinástica detrás de LG reparte sus activos.`\
-https://www.nytimes.com/es/2026/05/05/espanol/negocios/lg-corea-disputa-familiar.html
+**Ohio Seventh Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Ohio primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-7-primary.html
 
-**Big Payouts for Some Doctors, Too Little for Others**\
-`Readers discuss how arbitration has led to some huge awards while emergency care is often underpaid. Also: Don’t abandon America’s Afghan friends.`\
-https://www.nytimes.com/2026/05/05/opinion/doctors-arbitration.html
+**Ohio 15th Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Ohio primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-15-primary.html
 
-**For Michael Tilson Thomas’s Legacy, Look at Young Musicians**\
-`Thomas, the beloved mentor and conductor of the San Francisco Symphony, recently died. He offered a road map for a 21st-century career in music.`\
-https://www.nytimes.com/2026/05/05/arts/music/michael-tilson-thomas-conductor-legacy.html
+**Ohio 14th Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Ohio primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-14-primary.html
 
-**James Murdoch’s Company Said to Be in Talks to Acquire Major Parts of Vox Media**\
-`A deal for Vox Media, which generates more than $80 million through podcasts alone, would elevate Mr. Murdoch’s company, Lupa Systems, as a major player in U.S. media.`\
-https://www.nytimes.com/2026/05/05/business/media/james-murdoch-vox-media.html
+**Ohio Second Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Ohio primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-2-primary.html
 
-**First, the F.B.I. Searched Her Home. Then, She Won a Pulitzer.**\
-`Hannah Natanson’s reporting anchored a package of articles from The Washington Post that won a Pulitzer on Monday, four months after agents seized her devices.`\
-https://www.nytimes.com/2026/05/05/business/media/hannah-natanson-washington-post-pulitzer.html
+**Ohio Governor Primary Election Results**\
+`Get live results and maps from the 2026 Ohio primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-governor-primary.html
 
-**El crucero afectado por el hantavirus se dirige a las islas Canarias, según la OMS**\
-`España dijo que decidiría la escala después de que los expertos en enfermedades inspeccionaran el barco. La Organización Mundial de la Salud dijo que la transmisión de persona a persona puede haber desempeñado un papel en el brote.`\
-https://www.nytimes.com/es/2026/05/05/espanol/mundo/crucero-hantavirus-islas-canarias.html
+**Ohio Eighth Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Ohio primary election.`\
+https://www.nytimes.com/interactive/2026/us/elections/results-ohio-us-house-8-primary.html
 
