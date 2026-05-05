@@ -1,3 +1,7 @@
+**Kennedy Starts a Push to Help Americans Quit Antidepressants**\
+`The health secretary has long complained that Americans overuse psychiatric medications. New policies he is introducing aim to change that.`\
+https://www.nytimes.com/2026/05/04/science/rfk-antidepressants-ssris-hhs-maha.html
+
 **Student News Quiz: Supreme Court, Movie Sequel, Middle Schoolers**\
 `Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
 https://www.nytimes.com/interactive/2026/05/04/learning/04StudentNewsQuiz.html

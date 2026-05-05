@@ -1,3 +1,11 @@
+**Another Tech Titan Hits the Gala’s Red Carpet**\
+`Sergey Brin, a Google founder, in a dark tuxedo alongside his girlfriend, a conservative influencer.`\
+https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/another-tech-titan-hits-the-galas-red-carpet
+
+**U.S. Revokes Visas of Board Members at Costa Rica’s Top Watchdog Newspaper**\
+`The move came after the paper critically covered the country’s president, who has cozied up to the United States. Analysts view the visa decision as part of a White House strategy to punish critics of its allies.`\
+https://www.nytimes.com/2026/05/04/world/americas/costa-rica-newspaper-us-visas.html
+
 **Kennedy Starts a Push to Help Americans Quit Antidepressants**\
 `The health secretary has long complained that Americans overuse psychiatric medications. New policies he is introducing aim to change that.`\
 https://www.nytimes.com/2026/05/04/science/rfk-antidepressants-ssris-hhs-maha.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/04/technology/elon-musk-greg-brockman-openai-tri
 **A Musical Fable of Environmental Cataclysm Wins Pulitzer Prize**\
 `Gabriela Lena Frank’s “Picaflor: A Future Myth,” premiered by the Philadelphia Orchestra, has won the prestigious award for music.`\
 https://www.nytimes.com/2026/05/04/arts/music/gabriela-lena-frank-pulitzer-prize-music.html
-
-**‘Who Do You Think Is More Morally Repulsive: Ted Cruz or Nick Fuentes?’**\
-`Tucker Carlson compares Senator Ted Cruz with the white nationalist Nick Fuentes in this clip from “The Interview.”`\
-https://www.nytimes.com/video/podcasts/100000010880457/who-do-you-think-is-more-morally-repulsive-ted-cruz-or-nick-fuentes.html
-
-**What Will the May Primaries Reveal About Trump’s Power Over Republicans?**\
-`A series of Republican contests will test his grip on the party.`\
-https://www.nytimes.com/2026/05/04/us/politics/may-primary-elections-trump-republicans.html
 
