@@ -1,3 +1,11 @@
+**Highlights From the Met Gala**\
+`Stars wore feathers, jewels and bubbles at the Met Gala in outfits inspired by the dress code, “fashion is art.” The fund-raiser drew $42 million.`\
+https://www.nytimes.com/video/style/100000010882469/met-gala-2026.html
+
+**Fireworks Factory Blast in China Kills at Least 26**\
+`Dozens more were injured in the explosion, which appeared to be one of the country’s deadliest in recent years.`\
+https://www.nytimes.com/2026/05/05/world/asia/china-fireworks-factory-explosion.html
+
 **A Visitor From the Oort Cloud: Rare Comet Appears in Southern Skies**\
 `Known as C/2025 R3 PANSTARRS, the comet will be visible to stargazers using a telescope in New Zealand, Australia and South Africa.`\
 https://www.nytimes.com/2026/05/05/world/australia/comet-oort-cloud-nz-australia-south-africa.html
