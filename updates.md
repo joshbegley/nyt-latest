@@ -1,3 +1,7 @@
+**No Reverse Aging for Bad Bunny**\
+`The singer, 32, said it took “53 years” to prepare his look.`\
+https://www.nytimes.com/2026/05/04/style/bad-bunny-met-gala.html
+
 **Shootings On the National Mall Are Rare**\
 `The National Mall and its surroundings are one of the least violent areas in Washington.`\
 https://www.nytimes.com/2026/05/04/us/politics/shootings-on-the-national-mall-are-rare.html
