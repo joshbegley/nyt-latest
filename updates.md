@@ -1,3 +1,27 @@
+**Connections Companion No. 1,060**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, May 6, 2026.`\
+https://www.nytimes.com/2026/05/05/crosswords/connections-companion-1060.html
+
+**Ships Under Fire in Strait of Hormuz, and Kennedy’s Pushback on Antidepressants**\
+`Plus, the gowns — and the backlash — at the Met Gala.`\
+https://www.nytimes.com/2026/05/05/podcasts/the-headlines/ships-strait-hormuz-kennedy-antidepressants.html
+
+**Democratic Anger and Republican Revenge: Welcome to the Primaries**\
+`Here’s what to know about key elections.`\
+https://www.nytimes.com/2026/05/05/podcasts/the-daily/midterms-primaries-republicans.html
+
+**Strands Sidekick No. 794**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, May 6, 2026.`\
+https://www.nytimes.com/2026/05/05/crosswords/strands-sidekick-794.html
+
+**Wordle Review No. 1,782**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, May 6, 2026.`\
+https://www.nytimes.com/2026/05/05/crosswords/wordle-review-1782.html
+
+**The Uncertain Fate of France’s Last Two Captive Orcas**\
+`France must decide what to do with two orcas marooned at a deserted marine park: move them to another park, or release them into an open-water sanctuary.`\
+https://www.nytimes.com/2026/05/05/world/europe/france-orcas-killer-whales.html
+
 **What to Know About the Growing Saudi Arabia-U.A.E. Rift**\
 `Officials say competition between the countries is healthy. But tensions are mounting over energy quotas, regional conflicts and their different visions for the Middle East.`\
 https://www.nytimes.com/2026/05/05/world/middleeast/uae-saudi-arabia-oil-opec-what-to-know.html

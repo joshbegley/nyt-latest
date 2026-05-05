@@ -1,3 +1,27 @@
+**Connections Companion No. 1,060**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, May 6, 2026.`\
+https://www.nytimes.com/2026/05/05/crosswords/connections-companion-1060.html
+
+**Ships Under Fire in Strait of Hormuz, and Kennedy’s Pushback on Antidepressants**\
+`Plus, the gowns — and the backlash — at the Met Gala.`\
+https://www.nytimes.com/2026/05/05/podcasts/the-headlines/ships-strait-hormuz-kennedy-antidepressants.html
+
+**Democratic Anger and Republican Revenge: Welcome to the Primaries**\
+`Here’s what to know about key elections.`\
+https://www.nytimes.com/2026/05/05/podcasts/the-daily/midterms-primaries-republicans.html
+
+**Strands Sidekick No. 794**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, May 6, 2026.`\
+https://www.nytimes.com/2026/05/05/crosswords/strands-sidekick-794.html
+
+**Wordle Review No. 1,782**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, May 6, 2026.`\
+https://www.nytimes.com/2026/05/05/crosswords/wordle-review-1782.html
+
+**The Uncertain Fate of France’s Last Two Captive Orcas**\
+`France must decide what to do with two orcas marooned at a deserted marine park: move them to another park, or release them into an open-water sanctuary.`\
+https://www.nytimes.com/2026/05/05/world/europe/france-orcas-killer-whales.html
+
 **What to Know About the Growing Saudi Arabia-U.A.E. Rift**\
 `Officials say competition between the countries is healthy. But tensions are mounting over energy quotas, regional conflicts and their different visions for the Middle East.`\
 https://www.nytimes.com/2026/05/05/world/middleeast/uae-saudi-arabia-oil-opec-what-to-know.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/05/05/realestate/mulch-gardening-tips-trees.html
 **The Book That Changed How I Think About Liberalism**\
 `The historian Helena Rosenblatt traces the roots of liberalism and the values that many have forgotten.`\
 https://www.nytimes.com/2026/05/05/opinion/ezra-klein-podcast-helena-rosenblatt.html
-
-**Trump Is Losing Normie Republicans**\
-`They’re neither never-Trumpers nor independents, but they’re increasingly meh on MAGA.`\
-https://www.nytimes.com/2026/05/05/opinion/trump-midterms-maga-gop.html
-
-**7 Elections on Tuesday Will Test Trump’s Power**\
-`The president is seeking political payback for Republican state legislators in Indiana who rejected his push to redraw the state’s political map last year.`\
-https://www.nytimes.com/2026/05/05/us/indiana-legistature-election-trump.html
-
-**What Do We Lose When ‘The Late Show’ Goes Away?**\
-`Our attachment to an institution may seem counterintuitive, especially with comedy, a rebellious art form. But with Stephen Colbert’s program, there was a lot at stake.`\
-https://www.nytimes.com/2026/05/05/arts/television/stephen-colbert-the-late-show-carson-letterman-leno.html
-
-**David Letterman on ‘The Late Show’ Ending and CBS’s New Owners**\
-`He no longer feels a sense of ownership, but the program’s former host has harsh words for the network.`\
-https://www.nytimes.com/2026/05/05/arts/television/david-letterman-stephen-colbert-the-late-show-cbs.html
-
-**Can the Argentine President’s Deregulatory Frenzy Buoy the Global Right?**\
-`With his signature chain saw, Javier Milei became a MAGA superstar. At home, his state-slashing experiment is on the line.`\
-https://www.nytimes.com/2026/05/05/magazine/argentina-president-javier-milei-maga.html
-
-**A Top 2026 Senate Race Kicks Off With Attacks About Jeffrey Epstein**\
-`Ohio’s unusual contest — with a little-known incumbent and a well-known challenger — shows how Democrats are hoping to capitalize on G.O.P. voters’ anger at the Jeffrey Epstein scandal.`\
-https://www.nytimes.com/2026/05/05/us/politics/ohio-senate-jeffrey-epstein-john-husted-sherrod-brown.html
 
