@@ -1,3 +1,11 @@
+**These Gowns Are Grabbing More Than Attention**\
+`Lisa wasn’t the only celebrity to show up at the Met Gala with extra appendages.`\
+https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/met-gala-hands-arms-lisa
+
+**Beyoncé, Blue Ivy and Jay-Z Arrive at the Met Gala**\
+`The superstar, a co-chair of this year’s gala, electrified onlookers when she arrived with her elder daughter and husband.`\
+https://www.nytimes.com/2026/05/04/style/beyonce-met-gala-jayz-blue-ivy.html
+
 **Who Isn’t Going to the Met Gala?**\
 `Some luminaries had scheduling conflicts, but there were some who chose not to attend to make a statement.`\
 https://www.nytimes.com/2026/05/04/style/met-gala-zendaya-skipping.html
@@ -18,6 +26,10 @@ https://www.nytimes.com/2026/05/04/world/americas/costa-rica-newspaper-us-visas.
 `The health secretary has long complained that Americans overuse psychiatric medications. New policies he is introducing aim to change that.`\
 https://www.nytimes.com/2026/05/04/science/rfk-antidepressants-ssris-hhs-maha.html
 
+**This video was published in error.**\
+`An advance video was inadvertently published on this page earlier.`\
+https://www.nytimes.com/video/obituaries/100000004695622/editors-note.html
+
 **Student News Quiz: Supreme Court, Movie Sequel, Middle Schoolers**\
 `Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
 https://www.nytimes.com/interactive/2026/05/04/learning/04StudentNewsQuiz.html
@@ -34,7 +46,7 @@ https://www.nytimes.com/2026/05/04/style/mamdani-skips-met-gala-fashion-workers.
 `Contempla los atuendos más vistosos.`\
 https://www.nytimes.com/es/2026/05/04/espanol/gala-met-fotos-2026.html
 
-**‘The Devil Wears Prada 2’ Made Me Miss the #Girlboss Era**\
+**A Movie About Women Who Love Their Work? Groundbreaking.**\
 `It turns out that some women do, in fact, dream of labor, at least the kind that comes with a sense of mastery, agency and glamour.`\
 https://www.nytimes.com/2026/05/04/opinion/devil-wears-prada-feminism-girlboss.html
 
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/04/us/politics/judge-dubose-trump-administration
 **Secret Service Shoots and Wounds Armed Man Near Washington Monument**\
 `A 15-year-old boy was also hit. The motorcade of Vice President JD Vance had passed through the area shortly before the shooting.`\
 https://www.nytimes.com/2026/05/04/us/politics/washington-monument-shooting-secret-service.html
-
-**Attacks Threaten to Reignite Iran Conflict**\
-`Also, the stars arrive at the Met Gala. Here’s the latest at the end of Monday.`\
-https://www.nytimes.com/2026/05/04/briefing/iran-strait-of-hormuz-attacks-met-gala.html
-
-**Amazon Expands Logistics Arm to Outside Companies**\
-`The company said its shipping, fulfillment and delivery services would be offered to other businesses. Several large corporations have already signed on.`\
-https://www.nytimes.com/2026/05/04/business/amazon-shipping-services.html
-
-**Elon Musk’s Lawyers Ask OpenAI’s President Why He Is Worth $30 Billion**\
-`The legal team implied in a federal trial that Greg Brockman, OpenAI’s president and co-founder, was driven by greed rather than building safe A.I.`\
-https://www.nytimes.com/2026/05/04/technology/elon-musk-greg-brockman-openai-trial.html
 

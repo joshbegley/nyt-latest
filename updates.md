@@ -1,3 +1,19 @@
+**These Gowns Are Grabbing More Than Attention**\
+`Lisa wasn’t the only celebrity to show up at the Met Gala with extra appendages.`\
+https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/met-gala-hands-arms-lisa
+
+**Beyoncé, Blue Ivy and Jay-Z Arrive at the Met Gala**\
+`The superstar, a co-chair of this year’s gala, electrified onlookers when she arrived with her elder daughter and husband.`\
+https://www.nytimes.com/2026/05/04/style/beyonce-met-gala-jayz-blue-ivy.html
+
+**This video was published in error.**\
+`An advance video was inadvertently published on this page earlier.`\
+https://www.nytimes.com/video/obituaries/100000004695622/editors-note.html
+
+**A Movie About Women Who Love Their Work? Groundbreaking.**\
+`It turns out that some women do, in fact, dream of labor, at least the kind that comes with a sense of mastery, agency and glamour.`\
+https://www.nytimes.com/2026/05/04/opinion/devil-wears-prada-feminism-girlboss.html
+
 **Another tech titan hits the gala’s red carpet.**\
 `Sergey Brin, a Google founder, in a dark tuxedo alongside his girlfriend, a conservative influencer.`\
 https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/another-tech-titan-hits-the-galas-red-carpet
