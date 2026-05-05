@@ -1,3 +1,7 @@
+**Shootings On the National Mall Are Rare**\
+`The National Mall and its surroundings are one of the least violent areas in Washington.`\
+https://www.nytimes.com/2026/05/04/us/politics/shootings-on-the-national-mall-are-rare.html
+
 **No Reverse Aging for Bad Bunny**\
 `The singer, 32, said it took “53 years” to prepare his look.`\
 https://www.nytimes.com/2026/05/04/style/no-reverse-aging-for-bad-bunny.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/04/science/rfk-antidepressants-ssris-hhs-maha.ht
 **This video was published in error.**\
 `An advance video was inadvertently published on this page earlier.`\
 https://www.nytimes.com/video/obituaries/100000004695622/editors-note.html
-
-**Student News Quiz: Supreme Court, Movie Sequel, Middle Schoolers**\
-`Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
-https://www.nytimes.com/interactive/2026/05/04/learning/04StudentNewsQuiz.html
 
