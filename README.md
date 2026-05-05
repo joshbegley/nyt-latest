@@ -1,3 +1,7 @@
+**The Best Looks From the Met Gala**\
+`We’re covering the cobblestone carpet.`\
+https://www.nytimes.com/2026/05/05/briefing/the-best-looks-from-the-met-gala.html
+
 **The Venice Biennale and Its Many Flashpoints: An Explainer**\
 `The sudden death of a curator, the surprise participation of Russia and an unconventional U.S. entry are heating up the art world Olympics, which begins previews Tuesday.`\
 https://www.nytimes.com/2026/05/05/arts/design/venice-biennale-flashpoints-explainer-opening.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/05/learning/how-are-your-teachers-handling-writi
 **The Hole-in-the-Wall Shop That Dressed Hip-Hop**\
 `The name of the South Bronx store was H&R Hosiery, though nobody called it that. But it shaped street fashion, until the rent rose to $8,000 a month.`\
 https://www.nytimes.com/2026/05/05/nyregion/south-bronx-hip-hop-streetwear.html
-
-**Can Ken Paxton Win a Senate Primary in Texas Without His Biggest Donors?**\
-`The Texas attorney general is heading into the runoff against Senator John Cornyn without the support of some of his longtime backers.`\
-https://www.nytimes.com/2026/05/05/us/ken-paxton-john-cornyn-senate-donors.html
 
