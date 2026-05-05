@@ -1,6 +1,18 @@
+**Supreme Court Agrees to Fast-Track Louisiana Voting Map Decision**\
+`Louisiana voters who successfully challenged the state’s voting map as an illegal racial gerrymander had asked the justices to quickly return the case to the lower courts, clearing the way for a new map.`\
+https://www.nytimes.com/2026/05/04/us/politics/supreme-court-louisiana-voting-rights-act.html
+
+**Trump Administration Demands Names of 2020 Election Workers in Georgia**\
+`The Justice Department again appears to be using the investigative power of the federal government to rehash debunked claims that Democrats stole the 2020 election.`\
+https://www.nytimes.com/2026/05/04/us/politics/trump-administration-demands-names-of-2020-election-workers-in-georgia.html
+
+**Some New York City Democrats Went to the Met Gala**\
+`Mayor Mamdani sat out the fund-raiser. But a number of Democratic city politicians, past and present attended the extravagant affair.`\
+https://www.nytimes.com/2026/05/04/style/nyc-democrats-met-gala-2026.html
+
 **These Gowns Are Grabbing More Than Attention**\
 `Lisa wasn’t the only celebrity to show up at the Met Gala with extra appendages.`\
-https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/met-gala-hands-arms-lisa
+https://www.nytimes.com/2026/05/04/style/met-gala-hands-arms-lisa.html
 
 **Beyoncé, Blue Ivy and Jay-Z Arrive at the Met Gala**\
 `The superstar, a co-chair of this year’s gala, electrified onlookers when she arrived with her elder daughter and husband.`\
@@ -58,23 +70,11 @@ https://www.nytimes.com/2026/05/04/technology/musk-sec-settlement-twitter.html
 `The National Park Service said the dump of debris, between the fourth and ninth holes, does not exceed environmental limits. Opponents disagree.`\
 https://www.nytimes.com/2026/05/04/climate/east-potomac-golf-debris-toxic.html
 
-**Mark Zuckerberg Quietly Attends His First Met Gala**\
-`The former nerd completes his fashion Met-amorphosis.`\
-https://www.nytimes.com/2026/05/04/style/mark-zuckerberg-met-gala.html
-
 **Kennedy Center Ticketing Union Files Labor Charge Over Layoffs**\
 `The International Alliance of Theatrical Stage Employees challenged the terminations in a complaint to the National Labor Relations Board.`\
 https://www.nytimes.com/2026/05/04/arts/music/kennedy-center-ticketing-union-labor-charge-layoffs.html
 
-**Appeals Court Blocks Ex-Prisoner From Taking Office in New Orleans**\
-`Calvin Duncan arrived for his first day as the newly elected criminal court clerk, a job the state wants to eliminate. Then a federal court intervened.`\
-https://www.nytimes.com/2026/05/04/us/calvin-duncan-criminal-court-clerk-new-orleans.html
-
-**Judge Slams Trump Administration for ‘Serious Breakdown’ in Legal Ethics**\
-`The Department of Homeland Security criticized a judge for releasing a man accused of murder overseas, but did not inform her of the accusation. The judge said she would consider imposing sanctions.`\
-https://www.nytimes.com/2026/05/04/us/politics/judge-dubose-trump-administration-attacks.html
-
-**Secret Service Shoots and Wounds Armed Man Near Washington Monument**\
-`A 15-year-old boy was also hit. The motorcade of Vice President JD Vance had passed through the area shortly before the shooting.`\
-https://www.nytimes.com/2026/05/04/us/politics/washington-monument-shooting-secret-service.html
+**Mark Zuckerberg Quietly Attends His First Met Gala**\
+`The former nerd completes his fashion Met-amorphosis.`\
+https://www.nytimes.com/2026/05/04/style/mark-zuckerberg-met-gala.html
 

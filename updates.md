@@ -1,3 +1,19 @@
+**Supreme Court Agrees to Fast-Track Louisiana Voting Map Decision**\
+`Louisiana voters who successfully challenged the state’s voting map as an illegal racial gerrymander had asked the justices to quickly return the case to the lower courts, clearing the way for a new map.`\
+https://www.nytimes.com/2026/05/04/us/politics/supreme-court-louisiana-voting-rights-act.html
+
+**Trump Administration Demands Names of 2020 Election Workers in Georgia**\
+`The Justice Department again appears to be using the investigative power of the federal government to rehash debunked claims that Democrats stole the 2020 election.`\
+https://www.nytimes.com/2026/05/04/us/politics/trump-administration-demands-names-of-2020-election-workers-in-georgia.html
+
+**Some New York City Democrats Went to the Met Gala**\
+`Mayor Mamdani sat out the fund-raiser. But a number of Democratic city politicians, past and present attended the extravagant affair.`\
+https://www.nytimes.com/2026/05/04/style/nyc-democrats-met-gala-2026.html
+
+**These Gowns Are Grabbing More Than Attention**\
+`Lisa wasn’t the only celebrity to show up at the Met Gala with extra appendages.`\
+https://www.nytimes.com/2026/05/04/style/met-gala-hands-arms-lisa.html
+
 **These Gowns Are Grabbing More Than Attention**\
 `Lisa wasn’t the only celebrity to show up at the Met Gala with extra appendages.`\
 https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/met-gala-hands-arms-lisa

@@ -1,10 +1,14 @@
+**Sabrina Carpenter Wears ‘Sabrina’**\
+`It was perhaps the Met Gala’s most meta moment.`\
+https://www.nytimes.com/2026/05/04/style/sabrina-carpenter-wears-sabrina-met-gala.html
+
 **Supreme Court Agrees to Fast-Track Louisiana Voting Map Decision**\
 `Louisiana voters who successfully challenged the state’s voting map as an illegal racial gerrymander had asked the justices to quickly return the case to the lower courts, clearing the way for a new map.`\
 https://www.nytimes.com/2026/05/04/us/politics/supreme-court-louisiana-voting-rights-act.html
 
 **Trump Administration Demands Names of 2020 Election Workers in Georgia**\
 `The Justice Department again appears to be using the investigative power of the federal government to rehash debunked claims that Democrats stole the 2020 election.`\
-https://www.nytimes.com/2026/05/04/us/politics/trump-administration-demands-names-of-2020-election-workers-in-georgia.html
+https://www.nytimes.com/2026/05/04/us/politics/trump-2020-georgia-election-workers.html
 
 **Some New York City Democrats Went to the Met Gala**\
 `Mayor Mamdani sat out the fund-raiser. But a number of Democratic city politicians, past and present attended the extravagant affair.`\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/04/climate/east-potomac-golf-debris-toxic.html
 **Kennedy Center Ticketing Union Files Labor Charge Over Layoffs**\
 `The International Alliance of Theatrical Stage Employees challenged the terminations in a complaint to the National Labor Relations Board.`\
 https://www.nytimes.com/2026/05/04/arts/music/kennedy-center-ticketing-union-labor-charge-layoffs.html
-
-**Mark Zuckerberg Quietly Attends His First Met Gala**\
-`The former nerd completes his fashion Met-amorphosis.`\
-https://www.nytimes.com/2026/05/04/style/mark-zuckerberg-met-gala.html
 
