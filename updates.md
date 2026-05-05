@@ -1,3 +1,19 @@
+**U.S. Military Strikes Boat in Caribbean, Killing 2**\
+`The aerial strike raised the death toll to at least 187 in the U.S. campaign against boats the Trump administration accuses of smuggling drugs.`\
+https://www.nytimes.com/2026/05/05/us/us-military-boat-strike-caribbean.html
+
+**Por qué algunos africanos combaten por Rusia en Ucrania**\
+`La falta de empleo y promesas de trabajo llevan a jóvenes africanos a un conflicto lejano y peligroso.`\
+https://www.nytimes.com/es/2026/05/05/espanol/mundo/combatientes-africanos-rusia-ucrania.html
+
+**¿No puedes dormir? Ojo con los suplementos para el sueño**\
+`Muchas personas utilizan somníferos como el magnesio, la melatonina o el CBD para ayudarles a conciliar el sueño, pero puede no ser la respuesta.`\
+https://www.nytimes.com/es/2026/05/05/espanol/estilos-de-vida/suplementos-dormir-sueno.html
+
+**Democrats, Britain’s Prime Minister Is a Warning**\
+`Keir Starmer’s collapse was written into the nature of his victory.`\
+https://www.nytimes.com/2026/05/05/opinion/keir-starmer-britain-democrats.html
+
 **Fireworks Factory Blast in China Kills at Least 21**\
 `Dozens more were injured in the explosion, which appeared to be one of the country’s deadliest in recent years.`\
 https://www.nytimes.com/2026/05/05/world/asia/china-fireworks-factory-explosion.html

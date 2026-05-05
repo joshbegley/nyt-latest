@@ -1,3 +1,19 @@
+**U.S. Military Strikes Boat in Caribbean, Killing 2**\
+`The aerial strike raised the death toll to at least 187 in the U.S. campaign against boats the Trump administration accuses of smuggling drugs.`\
+https://www.nytimes.com/2026/05/05/us/us-military-boat-strike-caribbean.html
+
+**Por qué algunos africanos combaten por Rusia en Ucrania**\
+`La falta de empleo y promesas de trabajo llevan a jóvenes africanos a un conflicto lejano y peligroso.`\
+https://www.nytimes.com/es/2026/05/05/espanol/mundo/combatientes-africanos-rusia-ucrania.html
+
+**¿No puedes dormir? Ojo con los suplementos para el sueño**\
+`Muchas personas utilizan somníferos como el magnesio, la melatonina o el CBD para ayudarles a conciliar el sueño, pero puede no ser la respuesta.`\
+https://www.nytimes.com/es/2026/05/05/espanol/estilos-de-vida/suplementos-dormir-sueno.html
+
+**Democrats, Britain’s Prime Minister Is a Warning**\
+`Keir Starmer’s collapse was written into the nature of his victory.`\
+https://www.nytimes.com/2026/05/05/opinion/keir-starmer-britain-democrats.html
+
 **Fireworks Factory Blast in China Kills at Least 21**\
 `Dozens more were injured in the explosion, which appeared to be one of the country’s deadliest in recent years.`\
 https://www.nytimes.com/2026/05/05/world/asia/china-fireworks-factory-explosion.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/es/2026/05/04/espanol/america-latina/la-nacion-costa-ric
 **Trump Tries to Downplay Economic Effects of the Iran War**\
 `At a White House event for Small Business Week, he described the economy as “roaring” and predicted that gas prices would go down soon.`\
 https://www.nytimes.com/2026/05/04/us/politics/trump-economy-iran-war.html
-
-**Heidi Klum Turned to Stone for Her Met Gala Look**\
-`The model’s trompe l’oeil outfit would have been equally at home at one of her Halloween parties.`\
-https://www.nytimes.com/2026/05/04/style/heidi-klum-met-gala.html
-
-**Sabrina Carpenter Wears ‘Sabrina’**\
-`It was perhaps the Met Gala’s most meta moment.`\
-https://www.nytimes.com/2026/05/04/style/sabrina-carpenter-film-dress-met-gala.html
-
-**Supreme Court Agrees to Fast-Track Louisiana Voting Map Decision**\
-`Louisiana voters who successfully challenged the state’s voting map as an illegal racial gerrymander had asked the justices to quickly return the case to the lower courts, clearing the way for a new map.`\
-https://www.nytimes.com/2026/05/04/us/politics/supreme-court-louisiana-voting-rights-act.html
-
-**Trump Administration Demands Names of 2020 Election Workers in Georgia**\
-`The Justice Department again appears to be using the investigative power of the federal government to rehash debunked claims that Democrats stole the 2020 election.`\
-https://www.nytimes.com/2026/05/04/us/politics/trump-2020-georgia-election-workers.html
 
