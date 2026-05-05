@@ -1,3 +1,7 @@
+**U.S. Sues The New York Times, Claiming Discrimination Against a White Man**\
+`The Equal Employment Opportunity Commission said the paper had discriminated against a white, male employee who did not get a sought-after promotion.`\
+https://www.nytimes.com/2026/05/05/business/economy/eeoc-nyt-investigation.html
+
 **G.O.P. Proposes $1 Billion in Immigration Bill for Trump’s Ballroom Project**\
 `The money would go toward security improvements as part of an East Wing construction project, including a new ballroom that President Trump has said would be built with private dollars.`\
 https://www.nytimes.com/2026/05/05/us/politics/republicans-immigration-bill-trump-ballroom.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/05/dining/nyc-restaurant-news.html
 **Driver Kills At Least 2 People After Ramming Car Into Pedestrians**\
 `A driver rammed a car into a pedestrian-heavy zone in Germany, killing at least two people and injuring others, the authorities said.`\
 https://www.nytimes.com/video/world/europe/leipzig-germany-car-ramming-deaths.html
-
-**Tony Nominations Snubs and Surprises: Stars Are Dethroned, ‘S.N.L.’ Alumnae Reign**\
-`Lea Michele, Adrien Brody and other boldface names were left out, while June Squibb, André De Shields and Layton Williams as an iceberg were among the surprises.`\
-https://www.nytimes.com/2026/05/05/theater/tony-nominations-snubs-surprises.html
 
