@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/05/05/arts/design/russia-ukraine-venice-biennale.ht
 `Lively había acusado a Baldoni de llevar a cabo una campaña de desprestigio contra ella después de que se quejara de acoso durante el rodaje de una película en la que ambos trabajaban. Él había negado su acusación.`\
 https://www.nytimes.com/es/2026/05/05/espanol/cultura/blake-lively-justin-baldoni-acuerdo-legal.html
 
-**At Meatstock, Steak is Medicine**\
+**At Meatstock, Steak Is Medicine**\
 `Devotees of the carnivore diet, which Health Secretary Robert F. Kennedy, Jr. follows, bonded over brisket and butter in Tennessee.`\
 https://www.nytimes.com/2026/05/05/well/meatstock-carnivore-diet-rfk-jr.html
 
