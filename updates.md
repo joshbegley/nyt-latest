@@ -1,3 +1,15 @@
+**With Free Vodka, and a Few Protests, Russia Returns to the ‘Art Olympics’**\
+`On Tuesday, Russia opened a pavilion at the Venice Biennale for the first since its full-scale invasion of Ukraine. Ukraine’s own exhibit is just a stone’s throw.`\
+https://www.nytimes.com/2026/05/05/arts/design/russia-ukraine-venice-biennale.html
+
+**At Meatstock, Steak Is Medicine**\
+`Devotees of the carnivore diet, which Health Secretary Robert F. Kennedy, Jr. follows, bonded over brisket and butter in Tennessee.`\
+https://www.nytimes.com/2026/05/05/well/meatstock-carnivore-diet-rfk-jr.html
+
+**The Sights of the Venice Biennale**\
+`Scenes from the highly anticipated art event.`\
+https://www.nytimes.com/2026/05/05/arts/venice-biennale-photos-video.html
+
 **Blake Lively y Justin Baldoni zanjan su disputa legal**\
 `Lively había acusado a Baldoni de llevar a cabo una campaña de desprestigio contra ella después de que se quejara de acoso durante el rodaje de una película en la que ambos trabajaban. Él había negado su acusación.`\
 https://www.nytimes.com/es/2026/05/05/espanol/cultura/blake-lively-justin-baldoni-acuerdo-legal.html

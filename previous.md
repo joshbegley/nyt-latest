@@ -1,8 +1,12 @@
+**With Free Vodka, and a Few Protests, Russia Returns to the ‘Art Olympics’**\
+`On Tuesday, Russia opened a pavilion at the Venice Biennale for the first since its full-scale invasion of Ukraine. Ukraine’s own exhibit is just a stone’s throw.`\
+https://www.nytimes.com/2026/05/05/arts/design/russia-ukraine-venice-biennale.html
+
 **Blake Lively y Justin Baldoni zanjan su disputa legal**\
 `Lively había acusado a Baldoni de llevar a cabo una campaña de desprestigio contra ella después de que se quejara de acoso durante el rodaje de una película en la que ambos trabajaban. Él había negado su acusación.`\
 https://www.nytimes.com/es/2026/05/05/espanol/cultura/blake-lively-justin-baldoni-acuerdo-legal.html
 
-**At Meatstock, Steak is Medicine**\
+**At Meatstock, Steak Is Medicine**\
 `Devotees of the carnivore diet, which Health Secretary Robert F. Kennedy, Jr. follows, bonded over brisket and butter in Tennessee.`\
 https://www.nytimes.com/2026/05/05/well/meatstock-carnivore-diet-rfk-jr.html
 
@@ -70,11 +74,7 @@ https://www.nytimes.com/2026/05/05/business/artificial-intelligence-safety-net.h
 `Known for their speed, the Eta Aquarids will reach their peak on Tuesday night into Wednesday morning.`\
 https://www.nytimes.com/2026/05/05/science/eta-aquarids-meteor-shower-haleys-comet.html
 
-**On the Ground at the Venice Biennale**\
+**The Sights of the Venice Biennale**\
 `Scenes from the highly anticipated art event.`\
 https://www.nytimes.com/2026/05/05/arts/venice-biennale-photos-video.html
-
-**Five Publishers and Scott Turow Sue Meta and Mark Zuckerberg**\
-`The class-action lawsuit accuses the tech giant and its founder and chief executive of infringing on authors’ copyrights.`\
-https://www.nytimes.com/2026/05/05/books/publishers-turow-meta-zuckerberg-lawsuit-copyright.html
 
