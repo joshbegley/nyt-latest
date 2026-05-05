@@ -1,3 +1,15 @@
+**Lindsey Vonn, ASAP Rocky and Lisa Flock to Met Gala After-Parties**\
+`Models, designers, D.J.s and performers kept the night going into the early morning.`\
+https://www.nytimes.com/2026/05/05/style/met-gala-after-party-nyc.html
+
+**El suéter de Ryan Gosling en ‘Proyecto Hail Mary’ es un éxito. No está a la venta**\
+`El cárdigan que lleva el personaje de Gosling está basado en un patrón para tejer de finales de la década de 1950 de la empresa canadiense de estambres y manualidades Mary Maxim.`\
+https://www.nytimes.com/es/2026/05/05/espanol/estilos-de-vida/sueter-ryan-gosling-proyecto-hail-mary.html
+
+**The Safety Net Isn’t Ready for Artificial Intelligence**\
+`As fears of A.I.-driven job losses mount, economists warn that unemployment benefits and other programs to help displaced workers aren’t sufficient.`\
+https://www.nytimes.com/2026/05/05/business/artificial-intelligence-safety-net.html
+
 **How to Catch a Meteor Shower From Halley’s Comet**\
 `Known for their speed, the Eta Aquarids will reach their peak on Tuesday night into Wednesday morning.`\
 https://www.nytimes.com/2026/05/05/science/eta-aquarids-meteor-shower-haleys-comet.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/05/world/africa/cruise-ship-hantavirus-cape-verd
 **Connections Companion No. 1,060**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, May 6, 2026.`\
 https://www.nytimes.com/2026/05/05/crosswords/connections-companion-1060.html
-
-**Ships Under Fire in Strait of Hormuz, and Kennedy’s Pushback on Antidepressants**\
-`Plus, the gowns — and the backlash — at the Met Gala.`\
-https://www.nytimes.com/2026/05/05/podcasts/the-headlines/ships-strait-hormuz-kennedy-antidepressants.html
-
-**Democratic Anger and Republican Revenge: Welcome to the Primaries**\
-`Here’s what to know about key elections.`\
-https://www.nytimes.com/2026/05/05/podcasts/the-daily/midterms-primaries-republicans.html
-
-**Strands Sidekick No. 794**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, May 6, 2026.`\
-https://www.nytimes.com/2026/05/05/crosswords/strands-sidekick-794.html
 

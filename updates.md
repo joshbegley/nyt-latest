@@ -1,3 +1,15 @@
+**Lindsey Vonn, ASAP Rocky and Lisa Flock to Met Gala After-Parties**\
+`Models, designers, D.J.s and performers kept the night going into the early morning.`\
+https://www.nytimes.com/2026/05/05/style/met-gala-after-party-nyc.html
+
+**El suéter de Ryan Gosling en ‘Proyecto Hail Mary’ es un éxito. No está a la venta**\
+`El cárdigan que lleva el personaje de Gosling está basado en un patrón para tejer de finales de la década de 1950 de la empresa canadiense de estambres y manualidades Mary Maxim.`\
+https://www.nytimes.com/es/2026/05/05/espanol/estilos-de-vida/sueter-ryan-gosling-proyecto-hail-mary.html
+
+**The Safety Net Isn’t Ready for Artificial Intelligence**\
+`As fears of A.I.-driven job losses mount, economists warn that unemployment benefits and other programs to help displaced workers aren’t sufficient.`\
+https://www.nytimes.com/2026/05/05/business/artificial-intelligence-safety-net.html
+
 **How to Catch a Meteor Shower From Halley’s Comet**\
 `Known for their speed, the Eta Aquarids will reach their peak on Tuesday night into Wednesday morning.`\
 https://www.nytimes.com/2026/05/05/science/eta-aquarids-meteor-shower-haleys-comet.html
