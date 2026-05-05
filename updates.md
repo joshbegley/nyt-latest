@@ -1,3 +1,7 @@
+**The Best Looks From the Met Gala**\
+`We’re covering the cobblestone carpet.`\
+https://www.nytimes.com/2026/05/05/briefing/the-best-looks-from-the-met-gala.html
+
 **The Venice Biennale and Its Many Flashpoints: An Explainer**\
 `The sudden death of a curator, the surprise participation of Russia and an unconventional U.S. entry are heating up the art world Olympics, which begins previews Tuesday.`\
 https://www.nytimes.com/2026/05/05/arts/design/venice-biennale-flashpoints-explainer-opening.html
