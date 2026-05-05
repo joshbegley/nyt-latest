@@ -1,3 +1,7 @@
+**G.O.P. Proposes $1 Billion in Immigration Bill for Trump’s Ballroom Project**\
+`The money would go toward security improvements as part of an East Wing construction project, including a new ballroom that President Trump has said would be built with private dollars.`\
+https://www.nytimes.com/2026/05/05/us/politics/republicans-immigration-bill-trump-ballroom.html
+
 **The Cheap Guided Rockets U.S. Forces Use Against Iranian Drones**\
 `Called the Advanced Precision Kill Weapon System, it adds laser guidance to a weapon first used in the Korean War.`\
 https://www.nytimes.com/2026/05/05/us/politics/rockets-iran-drones.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/world/europe/leipzig-germany-car-ramming-deaths.ht
 **Tony Nominations Snubs and Surprises: Stars Are Dethroned, ‘S.N.L.’ Alumnae Reign**\
 `Lea Michele, Adrien Brody and other boldface names were left out, while June Squibb, André De Shields and Layton Williams as an iceberg were among the surprises.`\
 https://www.nytimes.com/2026/05/05/theater/tony-nominations-snubs-surprises.html
-
-**With Free Vodka, and a Few Protests, Russia Returns to the ‘Art Olympics’**\
-`On Tuesday, Russia opened a pavilion at the Venice Biennale for the first since its full-scale invasion of Ukraine. Ukraine’s own exhibit is just a stone’s throw.`\
-https://www.nytimes.com/2026/05/05/arts/design/russia-ukraine-venice-biennale.html
 
