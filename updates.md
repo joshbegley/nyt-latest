@@ -1,3 +1,15 @@
+**How to Catch a Meteor Shower From Halley’s Comet**\
+`Known for their speed, the Eta Aquarids will reach their peak on Tuesday night into Wednesday morning.`\
+https://www.nytimes.com/2026/05/05/science/eta-aquarids-meteor-shower-haleys-comet.html
+
+**Need to Catch Up on the Met Gala? Read This.**\
+`We’ve got your morning-after recap.`\
+https://www.nytimes.com/2026/05/05/style/met-gala-recap.html
+
+**Cruise Ship Struck by Hantavirus Is to Head to Canary Islands, W.H.O. Says**\
+`Spain said it would decide on a port of call only after disease experts inspected the vessel. The World Health Organization said human-to-human transmission may have played a role in the outbreak.`\
+https://www.nytimes.com/2026/05/05/world/africa/cruise-ship-hantavirus-cape-verde-hondius.html
+
 **On the Ground at the Venice Biennale**\
 `Scenes from the highly anticipated art event.`\
 https://www.nytimes.com/2026/05/05/arts/venice-biennale-photos-video.html

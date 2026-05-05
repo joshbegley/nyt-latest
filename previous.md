@@ -1,3 +1,7 @@
+**How to Catch a Meteor Shower From Halley’s Comet**\
+`Known for their speed, the Eta Aquarids will reach their peak on Tuesday night into Wednesday morning.`\
+https://www.nytimes.com/2026/05/05/science/eta-aquarids-meteor-shower-haleys-comet.html
+
 **On the Ground at the Venice Biennale**\
 `Scenes from the highly anticipated art event.`\
 https://www.nytimes.com/2026/05/05/arts/venice-biennale-photos-video.html
@@ -23,7 +27,7 @@ https://www.nytimes.com/2026/05/05/us/usc-ai-200-million-donation.html
 https://www.nytimes.com/2026/05/05/business/ford-motor-electric-pickup-truck.html
 
 **Need to Catch Up on the Met Gala? Read This.**\
-`We’ve got your morning after recap.`\
+`We’ve got your morning-after recap.`\
 https://www.nytimes.com/2026/05/05/style/met-gala-recap.html
 
 **New Musicals ‘Schmigadoon!’ and ‘Lost Boys’ Lead List of Tony Nominees**\
@@ -54,8 +58,8 @@ https://www.nytimes.com/2026/05/05/arts/design/venice-biennale-flashpoints-expla
 `Rusia necesita muchos soldados. Muchos africanos necesitan trabajo.`\
 https://www.nytimes.com/es/2026/05/05/espanol/mundo/africanos-guerra-rusia.html
 
-**Cruise Ship Struck by Hantavirus Remains at Sea**\
-`Passengers on the MV Hondius have not received permission from the authorities in Cape Verde, in the Atlantic Ocean, to disembark. Three people have died and at least three others were ill.`\
+**Cruise Ship Struck by Hantavirus Is to Head to Canary Islands, W.H.O. Says**\
+`Spain said it would decide on a port of call only after disease experts inspected the vessel. The World Health Organization said human-to-human transmission may have played a role in the outbreak.`\
 https://www.nytimes.com/2026/05/05/world/africa/cruise-ship-hantavirus-cape-verde-hondius.html
 
 **Connections Companion No. 1,060**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/05/podcasts/the-daily/midterms-primaries-republi
 **Strands Sidekick No. 794**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, May 6, 2026.`\
 https://www.nytimes.com/2026/05/05/crosswords/strands-sidekick-794.html
-
-**Wordle Review No. 1,782**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, May 6, 2026.`\
-https://www.nytimes.com/2026/05/05/crosswords/wordle-review-1782.html
 
