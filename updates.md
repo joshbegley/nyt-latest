@@ -1,3 +1,7 @@
+**Man Accused of Attacking Press Gala Indicted on Four Charges**\
+`A grand jury approved a fourth count against Cole Tomas Allen, who prosecutors say wounded a federal officer while attempting to kill President Trump.`\
+https://www.nytimes.com/2026/05/05/us/politics/whcd-new-charges.html
+
 **F.A.A. Employee Charged With Threatening to Kill Trump**\
 `The employee, Dean DelleChiaie of Nashua, N.H., was accused of emailing the White House about his plans to kill the president, after using his work computer to conduct related searches.`\
 https://www.nytimes.com/2026/05/05/us/politics/faa-employee-trump-murder-threat-charged.html
