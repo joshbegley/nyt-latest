@@ -1,3 +1,7 @@
+**Who Isn’t Going to the Met Gala?**\
+`Some luminaries had scheduling conflicts, but there were some who chose not to attend to make a statement.`\
+https://www.nytimes.com/2026/05/04/style/met-gala-zendaya-skipping.html
+
 **La Gala del Met enfrenta críticas por la participación de Jeff Bezos**\
 `Hay una campaña anti-Bezos en las calles de Nueva York donde han descrito el acto como la “Gala Amazon Prime” o el “Baile de Bezos”.`\
 https://www.nytimes.com/es/2026/05/04/espanol/estilos-de-vida/gala-met-protestas-jeff-bezos.html
@@ -37,10 +41,6 @@ https://www.nytimes.com/2026/05/04/opinion/devil-wears-prada-feminism-girlboss.h
 **S.E.C. Settles Lawsuit Against Elon Musk Over His Twitter Disclosures**\
 `The agency, which has been pulling back on lawsuits against major companies, ended a case that had accused Mr. Musk of hiding his purchases of Twitter stock. He agreed to pay $1.5 million.`\
 https://www.nytimes.com/2026/05/04/technology/musk-sec-settlement-twitter.html
-
-**Who Isn’t Going to the Met Gala?**\
-`Some luminaries had scheduling conflicts, but there were some who chose not to attend to make a statement.`\
-https://www.nytimes.com/2026/05/04/style/met-gala-zendaya-skipping.html
 
 **Soil at D.C. Golf Course Where East Wing Debris Was Dumped Contains Toxic Metals**\
 `The National Park Service said the dump of debris, between the fourth and ninth holes, does not exceed environmental limits. Opponents disagree.`\
