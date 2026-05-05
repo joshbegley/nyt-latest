@@ -1,3 +1,11 @@
+**¿Cuáles son las verdaderas creencias de Tucker Carlson? Fui a Maine a averiguarlo**\
+`El destacado comentarista conservador se distanció del gobierno de Trump por la guerra en Irán. ¿Durará la ruptura?`\
+https://www.nytimes.com/es/2026/05/05/espanol/estados-unidos/tucker-carlson-entrevista-guerra-iran.html
+
+**¿El secreto para comer menos es amar la comida?**\
+`Se suele pensar que nos deleitamos tanto con la comida que consumimos mucha más cantidad de la que necesitamos. Pero ¿y si el verdadero problema es que no la gozamos lo suficiente?`\
+https://www.nytimes.com/es/2026/05/05/espanol/estilos-de-vida/comer-adelgazar-placer.html
+
 **‘La zona de la muerte’: cómo Rusia atrae africanos a Ucrania**\
 `Cada vez más hombres de todo el continente africano se van a Rusia en pos de una promesa de empleo, solo para terminar siendo obligados a participar en la guerra: “Yo luchaba por Rusia. Tenía un uniforme ruso. Pero no era mi lucha”.`\
 https://www.nytimes.com/es/2026/05/05/espanol/mundo/africanos-rusia-guerra-engano.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/05/pageoneplus/corrections-may-5-2026.html
 **Our 15 Favorite Looks at the 2026 Met Gala**\
 `Regardless of the theme, these people just looked great.`\
 https://www.nytimes.com/2026/05/04/style/met-gala-2026-red-carpet.html
-
-**It Was a Very Nipple-Forward Red Carpet**\
-`The look was in keeping with the Met Gala’s accompanying exhibition at the Costume Institute.`\
-https://www.nytimes.com/2026/05/04/style/met-gala-nipples-naked-dressing.html
-
-**Man Accused of Starting Palisades Fire Admired Luigi Mangione, Prosecutors Say**\
-`The Los Angeles suspect was lonely and angry and felt “enslaved” by rich people, prosecutors say. After being romantically spurned, they say, he went into the mountains and lit a fire.`\
-https://www.nytimes.com/2026/05/04/us/palisades-fire-suspect-jonathan-rinderknecht.html
 
