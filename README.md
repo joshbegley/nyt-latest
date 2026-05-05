@@ -1,3 +1,7 @@
+**La Gala del Met enfrenta críticas por la participación de Jeff Bezos**\
+`Hay una campaña anti-Bezos en las calles de Nueva York donde han descrito el acto como la “Gala Amazon Prime” o el “Baile de Bezos”.`\
+https://www.nytimes.com/es/2026/05/04/espanol/estilos-de-vida/gala-met-protestas-jeff-bezos.html
+
 **Another Tech Titan Hits the Gala’s Red Carpet**\
 `Sergey Brin, a Google founder, in a dark tuxedo alongside his girlfriend, a conservative influencer.`\
 https://www.nytimes.com/live/2026/05/04/style/met-gala-2026-live-updates/another-tech-titan-hits-the-galas-red-carpet
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/04/business/amazon-shipping-services.html
 **Elon Musk’s Lawyers Ask OpenAI’s President Why He Is Worth $30 Billion**\
 `The legal team implied in a federal trial that Greg Brockman, OpenAI’s president and co-founder, was driven by greed rather than building safe A.I.`\
 https://www.nytimes.com/2026/05/04/technology/elon-musk-greg-brockman-openai-trial.html
-
-**A Musical Fable of Environmental Cataclysm Wins Pulitzer Prize**\
-`Gabriela Lena Frank’s “Picaflor: A Future Myth,” premiered by the Philadelphia Orchestra, has won the prestigious award for music.`\
-https://www.nytimes.com/2026/05/04/arts/music/gabriela-lena-frank-pulitzer-prize-music.html
 
