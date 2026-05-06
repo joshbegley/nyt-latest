@@ -1,3 +1,7 @@
+**James Loehr, Who Showed Athletes the Power of the Mind, Dies at 83**\
+`He began practicing sports psychology before it was a profession, teaching athletes the importance of mental resilience and how to cultivate it.`\
+https://www.nytimes.com/2026/05/06/sports/jim-loehr-dead.html
+
 **How the Fight Over Israel Is Playing Out Inside MAGA**\
 `The war in Iran has added to a tectonic shift in public opinion — a bipartisan swing away from Israel. Some on the far-right are fighting to keep President Trump’s movement aligned with the Jewish state.`\
 https://www.nytimes.com/2026/05/06/us/politics/israel-maga-republicans.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/06/us/politics/louise-lucas-fbi-raid.html
 **Iran’s Oil Sector and Economy Are Under Pressure as U.S. Blockade Bites**\
 `Tehran says it can endure the pain, but its oil may soon have nowhere to go.`\
 https://www.nytimes.com/2026/05/06/world/middleeast/irans-oil-capacity-blockade.html
-
-**5 Notable Moments From Obama’s Interview With Colbert**\
-`The former president was critical of President Trump, without ever naming him. Mr. Obama also urged Democrats to be plain-spoken, and talked about aliens.`\
-https://www.nytimes.com/2026/05/06/us/obama-colbert-interview-trump.html
 

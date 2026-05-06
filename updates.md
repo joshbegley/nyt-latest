@@ -1,3 +1,11 @@
+**How the Fight Over Israel Is Playing Out Inside MAGA**\
+`The war in Iran has added to a tectonic shift in public opinion — a bipartisan swing away from Israel. Some on the far-right are fighting to keep President Trump’s movement aligned with the Jewish state.`\
+https://www.nytimes.com/2026/05/06/us/politics/israel-maga-republicans.html
+
+**His DNA Was Taken After His Arrest at an ICE Protest. Now, He’s Suing.**\
+`In a lawsuit, an Air Force veteran says that the federal government is sending a “chilling message” to people demonstrating against the immigration crackdown.`\
+https://www.nytimes.com/2026/05/06/nyregion/dna-collection-ice-arrests-lawsuit.html
+
 **California Gubernatorial Candidates Prepare for Another Crucial Debate Tonight**\
 `Seven candidates in the California governor’s race will face off at a debate hosted by NBC Los Angeles. The New York Times will livestream the event.`\
 https://www.nytimes.com/2026/05/06/us/california-governor-debate-newsletter.html
