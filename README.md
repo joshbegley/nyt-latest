@@ -1,3 +1,11 @@
+**Most Trump-Backed Challengers Beat Indiana Incumbents Who Bucked Trump**\
+`President Trump endorsed primary opponents against seven Republican lawmakers who opposed his redistricting push. At least four of the Trump-backed candidates have won their races.`\
+https://www.nytimes.com/2026/05/05/us/most-trump-backed-challengers-beat-indiana-incumbents-who-bucked-trump.html
+
+**‘Avatar’ Suit Focuses on Hot Topic in A.I. Age: A Character’s Face**\
+`An actress accused the director James Cameron of stealing her likeness for a digitally created, blue-skinned warrior princess.`\
+https://www.nytimes.com/2026/05/05/business/media/avatar-ai-lawsuit.html
+
 **Vance Campaigns in Iowa as G.O.P. Fears Rise Ahead of Midterms**\
 `The vice president acknowledged economic headwinds, including rising energy and fertilizer costs. “We got a little — a little blip in the Middle East,” he said, referring to the war in Iran.`\
 https://www.nytimes.com/2026/05/05/us/politics/jd-vance-iowa.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/05/us/politics/faa-employee-trump-murder-threat-
 **What Happened When the Pope Had to Call Customer Service**\
 `Spoiler alert: There was no miracle.`\
 https://www.nytimes.com/2026/05/05/us/pope-leo-xiv-bank-customer-service.html
-
-**Kid Cudi Fires M.I.A. From Tour After Onstage Comments About Immigrants**\
-`M.I.A. made the comments at a concert in Dallas, drawing boos from the audience and criticism online.`\
-https://www.nytimes.com/2026/05/05/arts/music/kid-cudi-mia-fired-tour.html
-
-**For Canada’s Ceremonial Head of State, a Symbol of Rights and the Rule of Law**\
-`Prime Minister Mark Carney’s appointment of Louise Arbour, a former Supreme Court justice, as governor general, sends a message beyond Canada.`\
-https://www.nytimes.com/2026/05/05/world/canada/canada-louis-arbour-governor-general.html
 
