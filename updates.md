@@ -1,3 +1,23 @@
+**5 Takeaways From the California Gubernatorial Debate**\
+`Seven candidates sparred in the first nationally televised debate in the 2026 California governor’s race. Many tried to launch attacks in a last-ditch effort to gain ground on their opponents.`\
+https://www.nytimes.com/2026/05/06/us/elections/california-governor-debate-cnn-takeaways.html
+
+**Late Night Cringes at Trump’s Chatter in Front of Children**\
+`“How are you talking about nuclear war in front of children?” Desi Lydic asked after the president discussed the Iran conflict in a room full of students on Tuesday.`\
+https://www.nytimes.com/2026/05/06/arts/television/late-night-trump-war-children.html
+
+**China Meets Iranian Official as U.S. Demands Strait of Hormuz Open**\
+`China’s top diplomat was meeting with Iran’s foreign minister, the first senior Iranian official to visit Beijing since the war began.`\
+https://www.nytimes.com/2026/05/06/world/asia/china-iran-us-trump-hormuz.html
+
+**Palabra del día: ‘attest’**\
+`Esta palabra ha aparecido en 105 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/05/06/espanol/que-significa-attest.html
+
+**Word of the Day: attest**\
+`This word has appeared in 105 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/05/06/learning/word-of-the-day-attest.html
+
 **La Casa Blanca considera supervisar los modelos de IA antes de su lanzamiento**\
 `El gobierno de EE. UU. debate una orden ejecutiva para crear un grupo de trabajo que reúna a ejecutivos tecnológicos y funcionarios del gobierno para examinar procedimientos de supervisión.`\
 https://www.nytimes.com/es/2026/05/06/espanol/estados-unidos/modelos-ia-regulacion.html
