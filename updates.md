@@ -1,3 +1,11 @@
+**The Ultimate ‘It’ Spot in Caracas? A Marriott That’s Seen Better Days**\
+`The J.W. Marriott in Venezuela’s capital is suddenly awash in U.S. diplomats, spies and fortune seekers, showcasing changes in the country.`\
+https://www.nytimes.com/2026/05/06/world/americas/venezuela-caracas-us-embassy-marriott-hotel.html
+
+**Justice Department Sues Colorado Over Gun Law**\
+`The lawsuit, which follows a separate suit the agency filed against the city of Denver on Tuesday, involves a state ban of high-capacity ammunition magazines.`\
+https://www.nytimes.com/2026/05/06/us/politics/doj-colorado-lawsuit-guns.html
+
 **Does This Feel Like a ‘Catholic Moment’?**\
 `Readers respond to an Opinion guest essay by Christine Emba about a possible Catholic revival. Also: A woman’s face.`\
 https://www.nytimes.com/2026/05/06/opinion/catholic-pope-leo-trump.html
