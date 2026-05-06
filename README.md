@@ -1,3 +1,11 @@
+**The Ultimate ‘It’ Spot in Caracas? A Marriott That’s Seen Better Days**\
+`The J.W. Marriott in Venezuela’s capital is suddenly awash in U.S. diplomats, spies and fortune seekers, showcasing changes in the country.`\
+https://www.nytimes.com/2026/05/06/world/americas/venezuela-caracas-us-embassy-marriott-hotel.html
+
+**Justice Department Sues Colorado Over Gun Law**\
+`The lawsuit, which follows a separate suit the agency filed against the city of Denver on Tuesday, involves a state ban of high-capacity ammunition magazines.`\
+https://www.nytimes.com/2026/05/06/us/politics/doj-colorado-lawsuit-guns.html
+
 **Does This Feel Like a ‘Catholic Moment’?**\
 `Readers respond to an Opinion guest essay by Christine Emba about a possible Catholic revival. Also: A woman’s face.`\
 https://www.nytimes.com/2026/05/06/opinion/catholic-pope-leo-trump.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/06/us/guido-reichstadter-frederick-douglass-memo
 **Conservative Group’s Influence Inside the State Department Raises Alarms**\
 `Founders of the Ben Franklin Fellowship are trying to dismantle pro-diversity practices in the agency and to boost career diplomats who promote President Trump’s ideas.`\
 https://www.nytimes.com/2026/05/06/us/politics/conservative-groups-influence-inside-the-state-department-raises-alarms.html
-
-**Higher Gas Prices Are Hitting Lower-Income Americans the Hardest**\
-`People with lower incomes are driving less and devoting more of their budgets to transport as gas prices soar.`\
-https://www.nytimes.com/2026/05/06/business/economy/gas-prices-inequality-lower-income-consumers.html
-
-**Macron Wants U.S. and Iran to Open Strait While They Negotiate, Officials Say**\
-`Emmanuel Macron, the French president, hopes the Strait of Hormuz can reopen even before the U.S.-Iran war formally ends. His plan has many pitfalls.`\
-https://www.nytimes.com/2026/05/06/world/middleeast/france-macron-strait-of-hormuz-iran-us.html
 
