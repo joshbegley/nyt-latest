@@ -1,3 +1,15 @@
+**La Casa Blanca insiste en que la guerra contra Irán terminó, aunque vuelen misiles**\
+`El presidente Trump intenta dejar atrás la mayor crisis política de su presidencia. Pero proclamar el fin de la guerra no lo convierte en realidad.`\
+https://www.nytimes.com/es/2026/05/06/espanol/t.html
+
+**Former Amazon Union Leader Who Was Arrested at Met Gala Has No Regrets**\
+`Christian Smalls, a longtime Amazon antagonist, was charged with trespassing and another misdemeanor, and spent 24 hours in jail. The union disavowed his actions.`\
+https://www.nytimes.com/2026/05/06/style/chris-smalls-amazon-met-gala-arrest.html
+
+**Iran Is Reviewing a U.S. Peace Proposal**\
+`Also, Ted Turner died at 87. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/05/06/briefing/iran-us-proposal-ted-turner-dies.html
+
 **Video Shows a Jet Ski Collide With a Grey Whale**\
 `Canada’s Department of Fisheries and Oceans is investigating after a person driving a jet ski struck a grey whale off the coast of Vancouver. Emergency service officials say the operator of the watercraft was transported to the hospital in serious but stable condition.`\
 https://www.nytimes.com/video/world/canada/100000010886975/whale-jet-ski-crash-video-vancouver.html
