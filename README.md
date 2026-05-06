@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘I Could Feel Him Watching Me’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/05/06/style/tiny-modern-love-stories-i-was-drunk-when-he-told-me.html
+
 **James Loehr, Who Showed Athletes the Power of the Mind, Dies at 83**\
 `He began practicing sports psychology before it was a profession, teaching athletes the importance of mental resilience and how to cultivate it.`\
 https://www.nytimes.com/2026/05/06/sports/jim-loehr-dead.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/polls/new-york-us-house-4-polls-2026.html
 **F.B.I. Agents Raid Virginia Politician’s Office**\
 `Two people familiar with the case said the search of a Democratic lawmaker’s office was related to a Biden-era investigation of possible corruption and bribery related to marijuana businesses.`\
 https://www.nytimes.com/2026/05/06/us/politics/louise-lucas-fbi-raid.html
-
-**Iran’s Oil Sector and Economy Are Under Pressure as U.S. Blockade Bites**\
-`Tehran says it can endure the pain, but its oil may soon have nowhere to go.`\
-https://www.nytimes.com/2026/05/06/world/middleeast/irans-oil-capacity-blockade.html
 
