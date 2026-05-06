@@ -1,3 +1,7 @@
+**Giuliani Seeks to Have Health Care Covered by 9/11 Program**\
+`The former New York City mayor, who is improving after a serious case of pneumonia, suffers from a respiratory condition linked to his exposure to toxins at ground zero, his spokesman says.`\
+https://www.nytimes.com/2026/05/06/nyregion/rudy-giuliani-health-world-trade-center.html
+
 **Giuliani Seeks to Have Health Care Covered by 9-11 Program**\
 `The former New York City mayor, who is improving after a serious case of pneumonia, suffers from a respiratory condition linked to his exposure to toxins at ground zero, his spokesman says.`\
 https://www.nytimes.com/2026/05/06/nyregion/rudy-giuliani-health-world-trade-center.html

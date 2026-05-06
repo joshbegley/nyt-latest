@@ -26,7 +26,7 @@ https://www.nytimes.com/es/2026/05/06/espanol/muere-kendall-myers-espia-cuba.htm
 `Shivon Zilis worked closely with Elon Musk while she was on OpenAI’s board of directors. Her ties to the world’s richest man were detailed in a landmark trial on Wednesday.`\
 https://www.nytimes.com/2026/05/06/technology/elon-musk-shivon-zilis-openai-trial.html
 
-**Giuliani Seeks to Have Health Care Covered by 9-11 Program**\
+**Giuliani Seeks to Have Health Care Covered by 9/11 Program**\
 `The former New York City mayor, who is improving after a serious case of pneumonia, suffers from a respiratory condition linked to his exposure to toxins at ground zero, his spokesman says.`\
 https://www.nytimes.com/2026/05/06/nyregion/rudy-giuliani-health-world-trade-center.html
 
