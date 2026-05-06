@@ -1,3 +1,7 @@
+**Clavicular Charged With Shooting at Alligator While Livestreaming**\
+`The influencer, whose real name is Braden Eric Peters, fired 12 shots at the gator from an airboat in the Florida Everglades.`\
+https://www.nytimes.com/2026/05/06/us/clavicular-alligator-shooting-charges-florida.html
+
 **The Good List: 6 Things to Add Some Delight to Your Day**\
 `Buried treasure, birds on the move and secret library access.`\
 https://www.nytimes.com/2026/05/06/briefing/the-good-list-angine-birds.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/polls/new-york-us-house-12-polls-2026.html
 **New York 10th Congressional District 2026: Latest Polls**\
 `Track the latest polls in New York's 10th Congressional District.`\
 https://www.nytimes.com/interactive/polls/new-york-us-house-10-polls-2026.html
-
-**New York Seventh Congressional District 2026: Latest Polls**\
-`Track the latest polls in New York's 7th Congressional District.`\
-https://www.nytimes.com/interactive/polls/new-york-us-house-7-polls-2026.html
 

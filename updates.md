@@ -1,3 +1,7 @@
+**The Good List: 6 Things to Add Some Delight to Your Day**\
+`Buried treasure, birds on the move and secret library access.`\
+https://www.nytimes.com/2026/05/06/briefing/the-good-list-angine-birds.html
+
 **New Study Shows Risks of Amazon Deforestation. And Rewards of Protection.**\
 `Researchers examined the combined effects of tree loss and global warming in an effort to better understand how and when an ecosystem collapse could unfold.`\
 https://www.nytimes.com/2026/05/06/climate/amazon-rain-forest-deforestation-climate.html
