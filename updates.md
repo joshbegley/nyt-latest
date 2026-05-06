@@ -1,3 +1,7 @@
+**Una historia de amor turca, con cárcel, poesía y una hazaña aérea**\
+`Tras una confesión forzada y una condena a muerte, un poeta kurdo pasó 30 años en la cárcel, donde descubrió su voz. Su promotora literaria, para sorpresa de todos, se convirtió en su compañera de vida.`\
+https://www.nytimes.com/es/2026/05/06/espanol/mundo/ilhan-sami-comak-poeta.html
+
 **La solución infalible que Trump busca para poner fin a la guerra de Irán tal vez no exista**\
 `El presidente de EE. UU. intenta aumentar la presión económica sobre Teherán, pero es poco probable que el gobierno iraní acepte negociar sin un acuerdo significativo y digno.`\
 https://www.nytimes.com/es/2026/05/06/espanol/mundo/iran-guerra-tregua-trump.html
