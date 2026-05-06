@@ -1,3 +1,15 @@
+**Video Shows a Jet Ski Collide With a Grey Whale**\
+`Canada’s Department of Fisheries and Oceans is investigating after a person driving a jet ski struck a grey whale off the coast of Vancouver. Emergency service officials say the operator of the watercraft was transported to the hospital in serious but stable condition.`\
+https://www.nytimes.com/video/world/canada/100000010886975/whale-jet-ski-crash-video-vancouver.html
+
+**Air-Conditioning Is in Short Supply as Asia Swelters**\
+`From classrooms to crowded buses, people across South and Southeast Asia are adjusting to life with less cooling — or none at all — as the war in Iran drives an energy crunch.`\
+https://www.nytimes.com/2026/05/06/world/asia/asia-heatwave-air-conditioning-fuel-crisis.html
+
+**George Herms Dies at 90; Turned Castoff Objects Into Art**\
+`One of the last Beat Generation artists, he embraced the messiness of everyday life, making collages and assemblages from rusty junk and decaying objects.`\
+https://www.nytimes.com/2026/05/06/arts/george-herms-dead.html
+
 **Hasta el papa debe lidiar con atención al cliente**\
 `Poco después de que Robert Prevost se convirtiera en el papa León XIV, tuvo que llamar a su banco. Esto es lo que pasó.`\
 https://www.nytimes.com/es/2026/05/06/espanol/estados-unidos/papa-leon-xiv-banco-atencion-cliente.html
@@ -61,20 +73,4 @@ https://www.nytimes.com/2026/05/06/business/ebay-gamestop-deal-ryan-cohen.html
 **Jack Bass, Dean of South Carolina Political Journalism, Dies at 91**\
 `In articles and books, he wrote about the rapid racial, political and economic changes that transformed his state — and the South as a whole.`\
 https://www.nytimes.com/2026/05/06/us/politics/jack-bass-dead.html
-
-**F.B.I. Director Criticizes Local Sheriff’s Handling of Guthrie Case**\
-`Kash Patel went after local authorities on a podcast, saying the F.B.I. was kept out of the investigation for days. Sheriff Chris Nanos has denied that claim.`\
-https://www.nytimes.com/2026/05/06/us/kash-patel-nancy-guthrie-arizona.html
-
-**U.S. Prosecutors Pull Out of Event in Sign of Rift With Legal Critics**\
-`Top federal prosecutors in New York withdrew from an annual event hosted by the City Bar Association, which has been critical of President Trump’s policies.`\
-https://www.nytimes.com/2026/05/06/nyregion/nyc-bar-association-us-prosecutors-trump.html
-
-**The Moment That Bonded the Artemis II Crew Forever**\
-`The Artemis II commander Reid Wiseman recounts how his crewmates named a lunar crater after his late wife, Carroll, and how this became the crucial bonding moment for his crew.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000010884780/the-moment-that-bonded-the-artemis-ii-crew-forever.html
-
-**Attack on French Cargo Ship Highlights Continued Risks in Strait of Hormuz**\
-`U.S. Central Command and the ship’s owner disagreed on whether the vessel coordinated safe passage with the United States military.`\
-https://www.nytimes.com/2026/05/06/business/french-ship-hormuz-central-command.html
 

@@ -1,3 +1,15 @@
+**Video Shows a Jet Ski Collide With a Grey Whale**\
+`Canada’s Department of Fisheries and Oceans is investigating after a person driving a jet ski struck a grey whale off the coast of Vancouver. Emergency service officials say the operator of the watercraft was transported to the hospital in serious but stable condition.`\
+https://www.nytimes.com/video/world/canada/100000010886975/whale-jet-ski-crash-video-vancouver.html
+
+**Air-Conditioning Is in Short Supply as Asia Swelters**\
+`From classrooms to crowded buses, people across South and Southeast Asia are adjusting to life with less cooling — or none at all — as the war in Iran drives an energy crunch.`\
+https://www.nytimes.com/2026/05/06/world/asia/asia-heatwave-air-conditioning-fuel-crisis.html
+
+**George Herms Dies at 90; Turned Castoff Objects Into Art**\
+`One of the last Beat Generation artists, he embraced the messiness of everyday life, making collages and assemblages from rusty junk and decaying objects.`\
+https://www.nytimes.com/2026/05/06/arts/george-herms-dead.html
+
 **Hasta el papa debe lidiar con atención al cliente**\
 `Poco después de que Robert Prevost se convirtiera en el papa León XIV, tuvo que llamar a su banco. Esto es lo que pasó.`\
 https://www.nytimes.com/es/2026/05/06/espanol/estados-unidos/papa-leon-xiv-banco-atencion-cliente.html
