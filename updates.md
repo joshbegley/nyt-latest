@@ -1,3 +1,19 @@
+**Elon Musk’s Confidante Is Cast as His Inside Source at OpenAI**\
+`Shivon Zilis worked closely with Elon Musk while she was on OpenAI’s board of directors. Her ties to the world’s richest man were detailed in a landmark trial on Wednesday.`\
+https://www.nytimes.com/2026/05/06/technology/elon-musk-shivon-zilis-openai-trial.html
+
+**Giuliani Is Pursuing Health Care Through 9/11 Program, Lawyer Says**\
+`The former New York City mayor, who is improving after a serious case of pneumonia, suffers from a respiratory condition linked to his exposure to toxins at ground zero, his spokesman says.`\
+https://www.nytimes.com/2026/05/06/nyregion/rudy-giuliani-health-world-trade-center.html
+
+**Possible Epstein Suicide Note Is Released**\
+`A federal judge released the note on Wednesday, which Jeffrey Epstein’s former cellmate said he found in a graphic novel. The New York Times has not authenticated the note.`\
+https://www.nytimes.com/2026/05/06/nyregion/epstein-suicide-note.html
+
+**Diplomáticos, espías y guacamayas convergen en este hotel de Caracas**\
+`El JW Marriott se ha convertido en la embajada de facto para diplomáticos estadounidenses mientras inversionistas buscan su siguiente gran negocio en el país sudamericano en el lobby.`\
+https://www.nytimes.com/es/2026/05/06/espanol/america-latina/hotel-marriot-caracas-embajada-eeuu.html
+
 **Trump’s Indiana Victory Shows His Enduring Grip on Core Republican Supporters**\
 `Low approval ratings? MAGA divisions? The president was able to turn out party loyalists in an Indiana primary to help him oust Republican state lawmakers who had crossed him.`\
 https://www.nytimes.com/2026/05/06/us/politics/trump-indiana-republican-base.html
