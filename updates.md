@@ -1,3 +1,23 @@
+**Disney Posts Strong Earnings Despite Slowdown in Park Visitors**\
+`Disney parks are closely watched as a bellwether for consumer confidence.`\
+https://www.nytimes.com/2026/05/06/business/media/disney-earnings.html
+
+**In a Former Jailhouse, a Magazine Raises the Bar (and Tends Bar, Too)**\
+`Based in Charleston, S.C., Garden & Gun recently moved to a restored landmark on Magazine Street, of all places.`\
+https://www.nytimes.com/2026/05/06/realestate/design-charleston-jailhouse-magazine.html
+
+**Republicans Unveil Map Carving Up Tennessee’s Majority-Black House District**\
+`The General Assembly is expected to quickly approve the map, which slices up Memphis, a majority-Black city that makes up most of the state’s lone Democratic district.`\
+https://www.nytimes.com/2026/05/06/us/gop-memphis-tennessee-house-map.html
+
+**Taking a Deep Dive into a Connecticut Ranch House**\
+`Janis Provisor and Brad Davis, a workaholic artist couple, made their priorities clear when they converted an indoor swimming pool into a studio.`\
+https://www.nytimes.com/2026/05/06/realestate/connecticut-ranch-house-artists.html
+
+**Howard Lutnick Faces Questions From Congress About Epstein Ties**\
+`The commerce secretary was  in a closed-door session on Wednesday with the House Oversight Committee`\
+https://www.nytimes.com/2026/05/06/business/economy/howard-lutnick-jeffrey-epstein-house-oversight.html
+
 **Today, In Short**\
 `Dumpster diving. Intercoms. And last-minute gifts for Mother’s Day.`\
 https://www.nytimes.com/2026/05/06/briefing/today-in-short.html

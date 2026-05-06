@@ -1,3 +1,7 @@
+**Ted Turner: The News Never Stops**\
+`Ted Turner, the visionary founder of CNN, introduced the 24-hour news cycle.`\
+https://www.nytimes.com/video/obituaries/100000010886420/ted-turner-the-news-never-stops.html
+
 **Disney Posts Strong Earnings Despite Slowdown in Park Visitors**\
 `Disney parks are closely watched as a bellwether for consumer confidence.`\
 https://www.nytimes.com/2026/05/06/business/media/disney-earnings.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/06/world/hantavirus-cruise-ship.html
 **Trump Makes Sudden U-Turn on Strait of Hormuz Escort Mission**\
 `President Trump changed course on the U.S. mission to guide ships through the Strait of Hormuz just a day after it began. Oil prices fell and stocks rose as he cited “great progress” toward an agreement with Iran.`\
 https://www.nytimes.com/video/us/politics/100000010885602/trump-iran-hormuz-project-freedom.html
-
-**A Landslide in Alaska Set Off a Tsunami. There May Be More to Come.**\
-`Scientists say as glaciers retreat in a warming climate, landslide-generated tsunamis are likely to become more frequent.`\
-https://www.nytimes.com/2026/05/06/science/tsunami-landslide-alaska-climate-arctic.html
 

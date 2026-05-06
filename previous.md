@@ -1,3 +1,19 @@
+**Disney Posts Strong Earnings Despite Slowdown in Park Visitors**\
+`Disney parks are closely watched as a bellwether for consumer confidence.`\
+https://www.nytimes.com/2026/05/06/business/media/disney-earnings.html
+
+**In a Former Jailhouse, a Magazine Raises the Bar (and Tends Bar, Too)**\
+`Based in Charleston, S.C., Garden & Gun recently moved to a restored landmark on Magazine Street, of all places.`\
+https://www.nytimes.com/2026/05/06/realestate/design-charleston-jailhouse-magazine.html
+
+**Republicans Unveil Map Carving Up Tennessee’s Majority-Black House District**\
+`The General Assembly is expected to quickly approve the map, which slices up Memphis, a majority-Black city that makes up most of the state’s lone Democratic district.`\
+https://www.nytimes.com/2026/05/06/us/gop-memphis-tennessee-house-map.html
+
+**Taking a Deep Dive into a Connecticut Ranch House**\
+`Janis Provisor and Brad Davis, a workaholic artist couple, made their priorities clear when they converted an indoor swimming pool into a studio.`\
+https://www.nytimes.com/2026/05/06/realestate/connecticut-ranch-house-artists.html
+
 **Today, In Short**\
 `Dumpster diving. Intercoms. And last-minute gifts for Mother’s Day.`\
 https://www.nytimes.com/2026/05/06/briefing/today-in-short.html
@@ -38,8 +54,8 @@ https://www.nytimes.com/2026/05/06/business/energy-environment/gasoline-prices-s
 `After deep cuts last year, the agency is hiring hundreds. But fears linger that it isn’t equipped for imminent tornado and hurricane threats.`\
 https://www.nytimes.com/2026/05/06/climate/weather-service-staff-storms.html
 
-**Howard Lutnick to Face Questions From Congress About Epstein Ties**\
-`The commerce secretary is set to be interviewed Wednesday in a closed-door session with the House Oversight Committee`\
+**Howard Lutnick Faces Questions From Congress About Epstein Ties**\
+`The commerce secretary was  in a closed-door session on Wednesday with the House Oversight Committee`\
 https://www.nytimes.com/2026/05/06/business/economy/howard-lutnick-jeffrey-epstein-house-oversight.html
 
 **You Can’t Be Born Here. You Can Only Die.**\
@@ -61,20 +77,4 @@ https://www.nytimes.com/video/us/politics/100000010885602/trump-iran-hormuz-proj
 **A Landslide in Alaska Set Off a Tsunami. There May Be More to Come.**\
 `Scientists say as glaciers retreat in a warming climate, landslide-generated tsunamis are likely to become more frequent.`\
 https://www.nytimes.com/2026/05/06/science/tsunami-landslide-alaska-climate-arctic.html
-
-**Una caries no siempre necesita empaste**\
-`¿Cómo sabes si tu dentista te ha dado el diagnóstico adecuado? ¿Cuándo debes buscar una segunda opinión? Esto es lo que debes saber para tu próxima cita con el odontólogo.`\
-https://www.nytimes.com/es/2026/05/06/espanol/estilos-de-vida/caries-dentista-opciones.html
-
-**Inside the Debate About Drastically Expanding Trump Accounts**\
-`Trump administration officials are weighing a plan that would allow wealthy individuals to donate shares in their companies to the investment accounts.`\
-https://www.nytimes.com/2026/05/06/business/dealbook/stocks-trump-accounts.html
-
-**Justin Wolfers, Cable’s Favorite Economist, Joins the Creator Economy**\
-`With his crisp breakdowns of President Trump’s trade moves and distinctive Aussie accent, Mr. Wolfers has become a TV constant. Now he’s starting his own media company.`\
-https://www.nytimes.com/2026/05/06/business/dealbook/justin-wolfers-media-company.html
-
-**The New York Times Passes 13 Million Subscribers**\
-`The company’s adjusted operating profit hit $117.9 million in the quarter, up 27.2 percent from a year earlier, on revenue of $712.2 million.`\
-https://www.nytimes.com/2026/05/06/business/media/new-york-times-earnings.html
 
