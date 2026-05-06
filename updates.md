@@ -1,3 +1,27 @@
+**La solución infalible que Trump busca para poner fin a la guerra de Irán tal vez no exista**\
+`El presidente de EE. UU. intenta aumentar la presión económica sobre Teherán, pero es poco probable que el gobierno iraní acepte negociar sin un acuerdo significativo y digno.`\
+https://www.nytimes.com/es/2026/05/06/espanol/mundo/iran-guerra-tregua-trump.html
+
+**The Met Gala**\
+`What were your favorite and least favorite looks at this year’s event?`\
+https://www.nytimes.com/2026/05/06/learning/the-met-gala.html
+
+**Pollution Worsened in South Bronx After Congestion Tolls, Study Finds**\
+`Columbia University researchers said that sensors detected a 2 percent increase in toxic particles in the air. M.T.A. officials disputed the report.`\
+https://www.nytimes.com/2026/05/06/nyregion/congestion-pricing-air-quality-south-bronx.html
+
+**A Writer With a Healthy Appetite, and a Love of New York City**\
+`To cover the city’s evolving food scene, Luke Fortney relies on his curiosity, and an assortment of fermented dishes.`\
+https://www.nytimes.com/2026/05/06/insider/luke-fortney-food-reporting.html
+
+**Trial Begins for Man Accused of Running Secret Police Outpost for China**\
+`Lu Jianwang, a U.S. citizen, is accused of working on behalf of the Chinese government to target dissidents. A co-defendant has pleaded guilty.`\
+https://www.nytimes.com/2026/05/06/nyregion/china-agent-secret-police-trial.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/05/06/crosswords/spelling-bee-forum.html
+
 **5 Takeaways From the California Gubernatorial Debate**\
 `Seven candidates sparred in the first nationally televised debate in the 2026 California governor’s race. Many tried to launch attacks in a last-ditch effort to gain ground on their opponents.`\
 https://www.nytimes.com/2026/05/06/us/elections/california-governor-debate-cnn-takeaways.html
