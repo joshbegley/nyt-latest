@@ -1,3 +1,7 @@
+**White House Insists Iran War Is Over, Even While Missiles Fly**\
+`The White House is turning to rhetorical leaps as President Trump tries to put the biggest political crisis of his presidency behind him.`\
+https://www.nytimes.com/2026/05/05/us/politics/trump-iran-war-political-crisis-rhetoric.html
+
 **A Protest Atop a Bridge Grabs Washington’s Attention**\
 `For five days, a 45-year-old former jeweler has camped on top of the Frederick Douglass Memorial Bridge, drawing a mix of support, disapproval and concern.`\
 https://www.nytimes.com/2026/05/05/us/protester-dc-frederick-douglass-memorial-bridge.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/05/briefing/indiana-trump-elections-tony-nominat
 **Elon Musk Wanted OpenAI to Go Commercial, Company President Says**\
 `Greg Brockman, OpenAI’s president, testified in a trial pitting Mr. Musk against his company that the world’s richest man was eager to change how it operated as a nonprofit.`\
 https://www.nytimes.com/2026/05/05/technology/openai-trial-elon-musk-greg-brockman.html
-
-**Man Accused of Attacking Press Gala Indicted on Four Charges**\
-`A grand jury approved a fourth count against Cole Tomas Allen, who prosecutors say wounded a federal officer while attempting to kill President Trump.`\
-https://www.nytimes.com/2026/05/05/us/politics/whcd-new-charges.html
 
