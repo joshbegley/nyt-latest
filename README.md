@@ -1,3 +1,7 @@
+**Trump Gets Payback on Indiana Republicans: 5 Takeaways**\
+`The president helped unseat most of the state lawmakers he targeted after they rebuffed his call to draw new House maps to help Republicans.`\
+https://www.nytimes.com/2026/05/05/us/politics/trump-indiana-takeaways.html
+
 **U.S. Military Strikes Boat in Eastern Pacific, Killing 3**\
 `The attack was the second in two days, and the latest in an ongoing campaign against people the United States says are engaged in drug smuggling at sea.`\
 https://www.nytimes.com/2026/05/05/us/politics/trump-boat-strike.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/05/espanol/cometa-hemisferio-sur.html
 **U.S. Allows Venezuela to Begin Debt Restructuring Process**\
 `Venezuela must repay $60 billion in defaulted bonds as it looks to stabilize its economy.`\
 https://www.nytimes.com/2026/05/05/us/politics/trump-venezuela-debt-restructuring.html
-
-**Hantavirus Outbreaks Are Rare, but They Aren’t Going Away and There’s No Cure**\
-`Since the family of rodent-borne infections were identified in the 1950s, they have turned up all over the world.`\
-https://www.nytimes.com/2026/05/05/health/hantavirus-outbreaks-disease-history.html
 
