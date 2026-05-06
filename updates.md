@@ -1,3 +1,7 @@
+**Ted Turner: The News Never Stops**\
+`Ted Turner, the visionary founder of CNN, introduced the 24-hour news cycle.`\
+https://www.nytimes.com/video/obituaries/100000010886420/ted-turner-the-news-never-stops.html
+
 **Disney Posts Strong Earnings Despite Slowdown in Park Visitors**\
 `Disney parks are closely watched as a bellwether for consumer confidence.`\
 https://www.nytimes.com/2026/05/06/business/media/disney-earnings.html
