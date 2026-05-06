@@ -1,3 +1,15 @@
+**Vance Campaigns in Iowa as G.O.P. Fears Rise Ahead of Midterms**\
+`The vice president acknowledged economic headwinds, including rising energy and fertilizer costs. “We got a little — a little blip in the Middle East,” he said, referring to the war in Iran.`\
+https://www.nytimes.com/2026/05/05/us/politics/jd-vance-iowa.html
+
+**Venezuela tiene el camino libre para empezar a reestructurar su deuda**\
+`El país debe devolver 60.000 millones de dólares en bonos impagados mientras intenta estabilizar su economía.`\
+https://www.nytimes.com/es/2026/05/05/espanol/estados-unidos/venezuela-deuda.html
+
+**Ohio Governor’s Race Set Between an Entrepreneur and a Covid Czar**\
+`In a close race, Vivek Ramaswamy, the Republican nominee, and Dr. Amy Acton, the Democrat, bring distinctive potential liabilities: his wealth and her time leading Ohio’s pandemic response.`\
+https://www.nytimes.com/2026/05/05/us/elections/ohio-governor-race-ramaswamy-acton.html
+
 **Trump Says U.S. Pausing Efforts to Guide Ships Through Strait Blocked by Iran**\
 `President Trump said a U.S. blockade on the Strait of Hormuz would “remain in full force.” The sudden shift came after Defense Secretary Pete Hegseth said U.S. efforts to free vessels trapped in the waterway would continue.`\
 https://www.nytimes.com/2026/05/05/world/middleeast/iran-us-ceasefire-attacks.html

@@ -1,3 +1,15 @@
+**Vance Campaigns in Iowa as G.O.P. Fears Rise Ahead of Midterms**\
+`The vice president acknowledged economic headwinds, including rising energy and fertilizer costs. “We got a little — a little blip in the Middle East,” he said, referring to the war in Iran.`\
+https://www.nytimes.com/2026/05/05/us/politics/jd-vance-iowa.html
+
+**Venezuela tiene el camino libre para empezar a reestructurar su deuda**\
+`El país debe devolver 60.000 millones de dólares en bonos impagados mientras intenta estabilizar su economía.`\
+https://www.nytimes.com/es/2026/05/05/espanol/estados-unidos/venezuela-deuda.html
+
+**Ohio Governor’s Race Set Between an Entrepreneur and a Covid Czar**\
+`In a close race, Vivek Ramaswamy, the Republican nominee, and Dr. Amy Acton, the Democrat, bring distinctive potential liabilities: his wealth and her time leading Ohio’s pandemic response.`\
+https://www.nytimes.com/2026/05/05/us/elections/ohio-governor-race-ramaswamy-acton.html
+
 **Journalist and Her Mother Are Among 3 Killed in Upper Manhattan Fire**\
 `Yolaine Díaz, a fashion and beauty writer for People en Español, and her mother were killed in the blaze at an apartment building in Inwood, People magazine said.`\
 https://www.nytimes.com/2026/05/05/nyregion/inwood-fire-victims-people-magazine-journalist.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/05/arts/music/kid-cudi-mia-fired-tour.html
 **For Canada’s Ceremonial Head of State, a Symbol of Rights and the Rule of Law**\
 `Prime Minister Mark Carney’s appointment of Louise Arbour, a former Supreme Court justice, as governor general, sends a message beyond Canada.`\
 https://www.nytimes.com/2026/05/05/world/canada/canada-louis-arbour-governor-general.html
-
-**Suspect in National Mall Shooting Is Identified**\
-`Michael Marx, a 45-year-old Texan, is accused of shooting at Secret Service agents by the Washington Monument on Monday.`\
-https://www.nytimes.com/live/2026/05/05/us/trump-news/secret-service-shooting-gunman-identified
-
-**Trump Says U.S. Pausing Efforts to Guide Ships Through Strait Blocked by Iran**\
-`President Trump said a U.S. blockade on the Strait of Hormuz would “remain in full force.” The sudden shift came after Defense Secretary Pete Hegseth said U.S. efforts to free vessels trapped in the waterway would continue.`\
-https://www.nytimes.com/2026/05/05/world/middleeast/iran-us-ceasefire-attacks.html
-
-**Iran announces a new system for traffic in the Strait of Hormuz.**\
-``\
-https://www.nytimes.com/live/2026/05/05/world/iran-war-trump-hormuz/iran-announces-a-new-system-for-traffic-in-the-strait-of-hormuz
 
