@@ -1,3 +1,11 @@
+**Jack Smith Calls the Justice Dept. ‘Corrupted’ by Trump and His Allies**\
+`At a private event in Washington last month, Mr. Smith, the former special counsel, accused Justice Department leaders of targeting people for prosecution to please and impress the president.`\
+https://www.nytimes.com/2026/05/06/us/politics/jack-smith-justice-dept-trump.html
+
+**U.S. Troops in Middle East Wait for the Next Big Moment**\
+`The U.S. military is essentially on standby as officials give contradictory signals about the status of the Iran war effort.`\
+https://www.nytimes.com/2026/05/06/us/politics/us-troops-iran.html
+
 **The Supreme Court Is Less Divided Than You Think**\
 `On “The Opinions,” Justice Neil Gorsuch tells the Opinion columnist David French that despite their varied backgrounds, the Supreme Court justices often find more unity than division.`\
 https://www.nytimes.com/video/opinion/100000010878540/the-supreme-court-is-less-divided-than-you-think.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/06/climate/amazon-rain-forest-deforestation-clim
 **Tiny Love Stories: ‘I Could Feel Him Watching Me’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/05/06/style/tiny-modern-love-stories-i-was-drunk-when-he-told-me.html
-
-**James Loehr, Who Showed Athletes the Power of the Mind, Dies at 83**\
-`He began practicing sports psychology before it was a profession, teaching athletes the importance of mental resilience and how to cultivate it.`\
-https://www.nytimes.com/2026/05/06/sports/jim-loehr-dead.html
-
-**How the Fight Over Israel Is Playing Out Inside MAGA**\
-`The war in Iran has added to a tectonic shift in public opinion — a bipartisan swing away from Israel. Some on the far-right are fighting to keep President Trump’s movement aligned with the Jewish state.`\
-https://www.nytimes.com/2026/05/06/us/politics/israel-maga-republicans.html
 

@@ -1,3 +1,11 @@
+**Jack Smith Calls the Justice Dept. ‘Corrupted’ by Trump and His Allies**\
+`At a private event in Washington last month, Mr. Smith, the former special counsel, accused Justice Department leaders of targeting people for prosecution to please and impress the president.`\
+https://www.nytimes.com/2026/05/06/us/politics/jack-smith-justice-dept-trump.html
+
+**U.S. Troops in Middle East Wait for the Next Big Moment**\
+`The U.S. military is essentially on standby as officials give contradictory signals about the status of the Iran war effort.`\
+https://www.nytimes.com/2026/05/06/us/politics/us-troops-iran.html
+
 **The Supreme Court Is Less Divided Than You Think**\
 `On “The Opinions,” Justice Neil Gorsuch tells the Opinion columnist David French that despite their varied backgrounds, the Supreme Court justices often find more unity than division.`\
 https://www.nytimes.com/video/opinion/100000010878540/the-supreme-court-is-less-divided-than-you-think.html
