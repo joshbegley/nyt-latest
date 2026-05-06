@@ -1,3 +1,35 @@
+**New York 21st Congressional District 2026: Latest Polls**\
+`Track the latest polls in New York's 21st Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-york-us-house-21-polls-2026.html
+
+**New York 18th Congressional District 2026: Latest Polls**\
+`Track the latest polls in New York's 18th Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-york-us-house-18-polls-2026.html
+
+**New York 17th Congressional District 2026: Latest Polls**\
+`Track the latest polls in New York's 17th Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-york-us-house-17-polls-2026.html
+
+**New York 13th Congressional District 2026: Latest Polls**\
+`Track the latest polls in New York's 13th Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-york-us-house-13-polls-2026.html
+
+**New York 12th Congressional District 2026: Latest Polls**\
+`Track the latest polls in New York's 12th Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-york-us-house-12-polls-2026.html
+
+**New York 10th Congressional District 2026: Latest Polls**\
+`Track the latest polls in New York's 10th Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-york-us-house-10-polls-2026.html
+
+**New York Seventh Congressional District 2026: Latest Polls**\
+`Track the latest polls in New York's 7th Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-york-us-house-7-polls-2026.html
+
+**New York Fourth Congressional District 2026: Latest Polls**\
+`Track the latest polls in New York's 4th Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-york-us-house-4-polls-2026.html
+
 **F.B.I. Agents Raid Virginia Politician’s Office**\
 `Two people familiar with the case said the search of a Democratic lawmaker’s office was related to a Biden-era investigation of possible corruption and bribery related to marijuana businesses.`\
 https://www.nytimes.com/2026/05/06/us/politics/louise-lucas-fbi-raid.html
@@ -45,36 +77,4 @@ https://www.nytimes.com/es/2026/05/06/espanol/bbc-entrevista-guy-goma.html
 **New York First Congressional District 2026: Latest Polls**\
 `Track the latest polls in New York's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/new-york-us-house-1-polls-2026.html
-
-**Ted Turner: The News Never Stops**\
-`Ted Turner, the visionary founder of CNN, introduced the 24-hour news cycle.`\
-https://www.nytimes.com/video/obituaries/100000010886420/ted-turner-the-news-never-stops.html
-
-**Disney Posts Strong Earnings Despite Slowdown in Park Visitors**\
-`Disney parks are closely watched as a bellwether for consumer confidence.`\
-https://www.nytimes.com/2026/05/06/business/media/disney-earnings.html
-
-**In a Former Jailhouse, a Magazine Raises the Bar (and Tends Bar, Too)**\
-`Based in Charleston, S.C., Garden & Gun recently moved to a restored landmark on Magazine Street, of all places.`\
-https://www.nytimes.com/2026/05/06/realestate/design-charleston-jailhouse-magazine.html
-
-**Republicans Unveil Map Carving Up Tennessee’s Majority-Black House District**\
-`The General Assembly is expected to quickly approve the map, which slices up Memphis, a majority-Black city that makes up most of the state’s lone Democratic district.`\
-https://www.nytimes.com/2026/05/06/us/gop-memphis-tennessee-house-map.html
-
-**Taking a Deep Dive into a Connecticut Ranch House**\
-`Janis Provisor and Brad Davis, a workaholic artist couple, made their priorities clear when they converted an indoor swimming pool into a studio.`\
-https://www.nytimes.com/2026/05/06/realestate/connecticut-ranch-house-artists.html
-
-**Today, In Short**\
-`Dumpster diving. Intercoms. And last-minute gifts for Mother’s Day.`\
-https://www.nytimes.com/2026/05/06/briefing/today-in-short.html
-
-**Spring on a Sheet Pan**\
-`A mix of preserved lemon and butter makes the chicken extra golden and crisp, while peas and radishes roast alongside and turn tender and sweet.`\
-https://www.nytimes.com/2026/05/06/dining/spring-on-a-sheet-pan.html
-
-**My Art Will Go On: Titanic Artifacts May Soon Be Auctioned**\
-`The last time a sale was proposed, the idea drew objections from the U.S. and French governments, and from UNESCO and other cultural institutions.`\
-https://www.nytimes.com/2026/05/06/us/titanic-artifacts-auction-sale.html
 
