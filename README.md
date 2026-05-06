@@ -1,3 +1,7 @@
+**Does This Feel Like a ‘Catholic Moment’?**\
+`Readers respond to an Opinion guest essay by Christine Emba about a possible Catholic revival. Also: A woman’s face.`\
+https://www.nytimes.com/2026/05/06/opinion/catholic-pope-leo-trump.html
+
 **Washington, D.C. Shadow Representative 2026: Latest Polls**\
 `Track the latest polls in Washington, D.C.'s shadow representative race.`\
 https://www.nytimes.com/interactive/polls/washington-dc-shadow-representative-polls-2026.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/06/business/economy/gas-prices-inequality-lower-
 **Macron Wants U.S. and Iran to Open Strait While They Negotiate, Officials Say**\
 `Emmanuel Macron, the French president, hopes the Strait of Hormuz can reopen even before the U.S.-Iran war formally ends. His plan has many pitfalls.`\
 https://www.nytimes.com/2026/05/06/world/middleeast/france-macron-strait-of-hormuz-iran-us.html
-
-**A Mutation Gave Humans the Gift of Speech. These Mice Have It, Too.**\
-`Scientists wanted to know why the chatter of Alston’s singing mice sounds so much like human conversation. What they found might change how we study both species.`\
-https://www.nytimes.com/2026/05/06/science/a-mutation-gave-humans-the-gift-of-speech-these-mice-have-it-too.html
 
