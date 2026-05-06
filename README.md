@@ -1,3 +1,7 @@
+**Storm Season Is Here and the National Weather Service Is Short Handed**\
+`After deep cuts last year, the agency is hiring hundreds. But fears linger that it isn’t equipped for imminent tornado and hurricane threats.`\
+https://www.nytimes.com/2026/05/06/climate/weather-service-staff-storms.html
+
 **Howard Lutnick to Face Questions From Congress About Epstein Ties**\
 `The commerce secretary is set to be interviewed Wednesday in a closed-door session with the House Oversight Committee`\
 https://www.nytimes.com/2026/05/06/business/economy/howard-lutnick-jeffrey-epstein-house-oversight.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/live/2026/05/06/world/iran-us-hormuz-oil/us-iran-hormuz-
 **In Romania, Living With Weapons of War Spilling Into NATO Territory**\
 `Four years of battle in Ukraine is taking a toll on neighboring Romanians. Even if the war has not crossed the border, drones have done so.`\
 https://www.nytimes.com/2026/05/06/world/europe/ukraine-russia-romania-drones-nato-drone-wall.html
-
-**California Governor’s Race Heats Up on Crowded Debate Stage**\
-`Attacks got personal as California’s top seven candidates for governor faced off on Tuesday ahead of the primary on June 2.`\
-https://www.nytimes.com/video/us/elections/100000010885688/california-governor-debate-cnn-race.html
 
