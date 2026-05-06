@@ -1,3 +1,7 @@
+**With eBay Bid, GameStop C.E.O. Baffles His Fans and Wall Street**\
+`Investors questioned Ryan Cohen’s latest gambit after he gave an evasive CNBC interview and a once-loyal supporter sold his GameStop shares.`\
+https://www.nytimes.com/2026/05/06/business/ebay-gamestop-deal-ryan-cohen.html
+
 **Jack Bass, Dean of South Carolina Political Journalism, Dies at 91**\
 `In articles and books, he wrote about the rapid racial, political and economic changes that transformed his state — and the South as a whole.`\
 https://www.nytimes.com/2026/05/06/us/politics/jack-bass-dead.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/06/us/politics/israel-maga-republicans.html
 **California Gubernatorial Candidates Prepare for Another Crucial Debate Tonight**\
 `Seven candidates in the California governor’s race will face off at a debate hosted by NBC Los Angeles. The New York Times will livestream the event.`\
 https://www.nytimes.com/2026/05/06/us/california-governor-debate-newsletter.html
-
-**Moguls Remember Ted Turner: ‘Changed the Media Industry Forever’**\
-`The CNN founder’s death was met with encomiums from leaders in the media industry, which he helped reinvent. “He will be remembered for generations,” said one.`\
-https://www.nytimes.com/2026/05/06/business/media/ted-turner-death-cnn-media-reaction.html
 
