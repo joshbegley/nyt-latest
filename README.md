@@ -1,3 +1,7 @@
+**‘Not a Perfect Union’: Neil Gorsuch on America at 250**\
+`David French and the Supreme Court justice discuss how the ideals of 1776 shaped — and strain — the country today.`\
+https://www.nytimes.com/video/opinion/100000010878538/not-a-perfect-union-neil-gorsuch-on-america-at-250.html
+
 **The Global Oil Crisis Seems to Be Helping One Industry: Renewable Energy**\
 `Sources like wind and solar can now deliver continuous power, according to a new report. And, they’re often a bargain compared with fossil fuels.`\
 https://www.nytimes.com/2026/05/06/climate/irena-renewables-energy-cost.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/06/business/oil-gas-price-iran.html
 **Illinois State Police to Investigate Fatal ICE Shooting**\
 `Officials said they were examining the shooting of Silverio Villegas-Gonzalez last summer during a Chicago-area crackdown on illegal immigration.`\
 https://www.nytimes.com/2026/05/06/us/illinois-state-police-ice-shooting-suburban-chicago.html
-
-**Los bisontes de Montana están en peligro de expulsión**\
-`El gobierno de Trump está desalojando a manadas de bisontes de las praderas federales, después de ponerse del lado de los ganaderos y los líderes republicanos enfrentados a los ecologistas y los líderes tribales.`\
-https://www.nytimes.com/es/2026/05/06/espanol/estados-unidos/montana-bisontes-trump.html
 
