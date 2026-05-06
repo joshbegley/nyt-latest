@@ -1,3 +1,7 @@
+**Una caries no siempre necesita empaste**\
+`¿Cómo sabes si tu dentista te ha dado el diagnóstico adecuado? ¿Cuándo debes buscar una segunda opinión? Esto es lo que debes saber para tu próxima cita con el odontólogo.`\
+https://www.nytimes.com/es/2026/05/06/espanol/estilos-de-vida/caries-dentista-opciones.html
+
 **Inside the Debate About Drastically Expanding Trump Accounts**\
 `Trump administration officials are weighing a plan that would allow wealthy individuals to donate shares in their companies to the investment accounts.`\
 https://www.nytimes.com/2026/05/06/business/dealbook/stocks-trump-accounts.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/podcasts/the-daily/100000010879218/artemis-ii-spac
 **Fare Enforcers Are Coming to New York City Buses**\
 `With fare evasion rampant, enforcement teams will use hand-held devices to see if riders actually paid to ride the bus.`\
 https://www.nytimes.com/2026/05/06/nyregion/fare-enforcers-buses-nyc.html
-
-**‘Not a Perfect Union’: Neil Gorsuch on America at 250**\
-`David French and the Supreme Court justice discuss how the ideals of 1776 shaped — and strain — the country today.`\
-https://www.nytimes.com/2026/05/06/opinion/neil-gorsuch-america-250-supreme-court.html
 
