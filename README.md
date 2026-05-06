@@ -1,3 +1,11 @@
+**Hantavirus Cruise Ship Remains at Sea as Leaders Clash Over Its Docking**\
+`Three people with possible symptoms of the disease were evacuated on Wednesday morning from the Dutch-flagged MV Hondius.`\
+https://www.nytimes.com/2026/05/06/world/hantavirus-cruise-ship.html
+
+**Trump Makes Sudden U-Turn on Strait of Hormuz Escort Mission**\
+`President Trump changed course on the U.S. mission to guide ships through the Strait of Hormuz just a day after it began. Oil prices fell and stocks rose as he cited “great progress” toward an agreement with Iran.`\
+https://www.nytimes.com/video/us/politics/100000010885602/trump-iran-hormuz-project-freedom.html
+
 **A Landslide in Alaska Set Off a Tsunami. There May Be More to Come.**\
 `Scientists say as glaciers retreat in a warming climate, landslide-generated tsunamis are likely to become more frequent.`\
 https://www.nytimes.com/2026/05/06/science/tsunami-landslide-alaska-climate-arctic.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/video/podcasts/the-daily/100000010884743/did-the-artemis
 **House Democrats’ Primary Endorsements Divide the Party**\
 `The Democratic Congressional Campaign Committee’s intervention in contested primaries in critical House races has highlighted deep divides over the party’s tactics and its future.`\
 https://www.nytimes.com/2026/05/06/us/politics/house-democrats-primary-endorsements.html
-
-**We’ll Miss OPEC When It’s Gone**\
-`If OPEC can’t manage oil markets, the world is in for a wild ride.`\
-https://www.nytimes.com/2026/05/06/opinion/opec-oil-markets-trump.html
-
-**The Artemis II Crew Takes Your Children’s Questions**\
-`The Artemis II crew flew farther from Earth than any humans in history. They join Rachel Abrams of “The Daily” to answer questions from children about what that trip was like.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000010879218/artemis-ii-space-interview-the-daily.html
 

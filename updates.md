@@ -1,3 +1,7 @@
+**A Landslide in Alaska Set Off a Tsunami. There May Be More to Come.**\
+`Scientists say as glaciers retreat in a warming climate, landslide-generated tsunamis are likely to become more frequent.`\
+https://www.nytimes.com/2026/05/06/science/tsunami-landslide-alaska-climate-arctic.html
+
 **Una caries no siempre necesita empaste**\
 `¿Cómo sabes si tu dentista te ha dado el diagnóstico adecuado? ¿Cuándo debes buscar una segunda opinión? Esto es lo que debes saber para tu próxima cita con el odontólogo.`\
 https://www.nytimes.com/es/2026/05/06/espanol/estilos-de-vida/caries-dentista-opciones.html
