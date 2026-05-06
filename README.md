@@ -1,3 +1,7 @@
+**His DNA Was Taken After His Arrest at an ICE Protest. Now, He’s Suing.**\
+`In a lawsuit, an Air Force veteran says that the federal government is sending a “chilling message” to people demonstrating the immigration crackdown.`\
+https://www.nytimes.com/2026/05/06/nyregion/dna-collection-ice-arrests-lawsuit.html
+
 **New York 21st Congressional District 2026: Latest Polls**\
 `Track the latest polls in New York's 21st Congressional District.`\
 https://www.nytimes.com/interactive/polls/new-york-us-house-21-polls-2026.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/06/magazine/brother-racist-tattoo-ethics.html
 **El hombre que no era: 20 años después de un error televisivo en vivo**\
 `Guy Goma creyó que iba a una entrevista para un empleo cuando de pronto apareció a cuadro en la BBC. Lo que pasó después le sonará conocido a quien no haya estado listo para un trabajo.`\
 https://www.nytimes.com/es/2026/05/06/espanol/bbc-entrevista-guy-goma.html
-
-**New York First Congressional District 2026: Latest Polls**\
-`Track the latest polls in New York's 1st Congressional District.`\
-https://www.nytimes.com/interactive/polls/new-york-us-house-1-polls-2026.html
 
