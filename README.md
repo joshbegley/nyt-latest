@@ -1,3 +1,15 @@
+**Conservative Group’s Influence Inside the State Department Raises Alarms**\
+`Founders of the Ben Franklin Fellowship are trying to dismantle pro-diversity practices in the agency and to boost career diplomats who promote President Trump’s ideas.`\
+https://www.nytimes.com/2026/05/06/us/politics/conservative-groups-influence-inside-the-state-department-raises-alarms.html
+
+**Higher Gas Prices Are Hitting Lower-Income Americans the Hardest**\
+`People with lower incomes are driving less and devoting more of their budgets to transport as gas prices soar.`\
+https://www.nytimes.com/2026/05/06/business/economy/gas-prices-inequality-lower-income-consumers.html
+
+**Macron Wants U.S. and Iran to Open Strait While They Negotiate, Officials Say**\
+`Emmanuel Macron, the French president, hopes the Strait of Hormuz can reopen even before the U.S.-Iran war formally ends. His plan has many pitfalls.`\
+https://www.nytimes.com/2026/05/06/world/middleeast/france-macron-strait-of-hormuz-iran-us.html
+
 **A Mutation Gave Humans the Gift of Speech. These Mice Have It, Too.**\
 `Scientists wanted to know why the chatter of Alston’s singing mice sounds so much like human conversation. What they found might change how we study both species.`\
 https://www.nytimes.com/2026/05/06/science/a-mutation-gave-humans-the-gift-of-speech-these-mice-have-it-too.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/06/business/media/ted-turner-dead.html
 **Leo XIV Is the First Pope From the U.S. He’s Making That an Asset.**\
 `A year into his papacy, Leo has shown a readiness to challenge Washington, defying any concerns about the election of an American pontiff.`\
 https://www.nytimes.com/2026/05/06/world/europe/leo-first-american-pope.html
-
-**Why Gasoline Prices Vary So Much by State, County and City**\
-`Shipping, taxes, competition and environmental regulations all play a part in the cost of gasoline. That can lead to stark differences in pump prices.`\
-https://www.nytimes.com/2026/05/06/business/energy-environment/gasoline-prices-states-iran-war.html
-
-**Storm Season Is Here and the National Weather Service Is Short Handed**\
-`After deep cuts last year, the agency is hiring hundreds. But fears linger that it isn’t equipped for imminent tornado and hurricane threats.`\
-https://www.nytimes.com/2026/05/06/climate/weather-service-staff-storms.html
-
-**Howard Lutnick Faces Questions From Congress About Epstein Ties**\
-`The commerce secretary was  in a closed-door session on Wednesday with the House Oversight Committee`\
-https://www.nytimes.com/2026/05/06/business/economy/howard-lutnick-jeffrey-epstein-house-oversight.html
 
