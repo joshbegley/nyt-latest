@@ -1,3 +1,7 @@
+**Democrats Keep Michigan Senate Majority With Special Election Win**\
+`Gov. Gretchen Whitmer, a Democrat, allowed the swing district seat to sit vacant for more than a year as her party clung to a slim majority.`\
+https://www.nytimes.com/2026/05/05/us/democrats-keep-michigan-senate-majority-with-special-election-win.html
+
 **Suspect in Colorado Firebombing Attack Will Plead Guilty, Court Records Say**\
 `Mohamed Sabry Soliman, who was charged in an attack that injured more than a dozen people and killed one, will be sentenced to life in prison, according to court documents.`\
 https://www.nytimes.com/2026/05/05/us/suspect-colorado-firebombing-soliman-guilty-plea.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/video/opinion/100000010870440/what-is-liberal-in-the-lib
 **Colorado Waited All Winter for Snow. A May Storm Could Finally Bring Some.**\
 `A snowstorm hitting the Rocky Mountains this week could end up being the biggest all season, forecasters said.`\
 https://www.nytimes.com/2026/05/05/weather/colorado-snow-ski-snowpack.html
-
-**Russia Launches Deadly Attack in Ukraine Ahead of Cease-Fire**\
-`Russian forces launched an attack on three Ukrainian cities on Tuesday, killing more than 20 people and injuring dozens of others. The attack came after Russia announced a cease-fire timed to Moscow’s Victory Day celebrations on May 9, commemorating the Soviet victory over the Nazis in World War II.`\
-https://www.nytimes.com/video/world/100000010884624/russia-attack-ukraine-cease-fire.html
 
