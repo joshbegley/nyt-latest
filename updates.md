@@ -1,3 +1,7 @@
+**Crossing Guard Is Fatally Hit by Car in New Jersey While Escorting Children**\
+`Jean Schultz, 80, had been a crossing guard in Woodland Park since 2022. She died after she was struck by a vehicle on Monday, the authorities said.`\
+https://www.nytimes.com/2026/05/06/nyregion/new-jersey-crossing-guard-killed.html
+
 **Clavicular Charged With Shooting at Alligator While Livestreaming**\
 `The influencer, whose real name is Braden Eric Peters, fired 12 shots at the gator from an airboat in the Florida Everglades.`\
 https://www.nytimes.com/2026/05/06/us/clavicular-alligator-shooting-charges-florida.html
