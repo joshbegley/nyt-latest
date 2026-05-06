@@ -1,3 +1,11 @@
+**Un brote de hantavirus no es común, pero no hay cura**\
+`Desde que se identificó esta familia de infecciones transmitidas por roedores en la década de 1950, han surgido en todo el mundo.`\
+https://www.nytimes.com/es/2026/05/06/espanol/ciencia-y-tecnologia/hantavirus-historia-epidemia.html
+
+**Ted Turner, Creator of CNN and the 24-Hour News Cycle, Dies at 87**\
+`As one of the most important figures in media history, he oversaw a vast cable empire of news, sports and entertainment channels.`\
+https://www.nytimes.com/2026/05/06/business/media/ted-turner-dead.html
+
 **Leo XIV Is the First Pope From the U.S. He’s Making That an Asset.**\
 `A year into his papacy, Leo has shown a readiness to challenge Washington, defying any concerns about the election of an American pontiff.`\
 https://www.nytimes.com/2026/05/06/world/europe/leo-first-american-pope.html
