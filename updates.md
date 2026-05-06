@@ -1,3 +1,19 @@
+**A Mutation Gave Humans the Gift of Speech. These Mice Have It, Too.**\
+`Scientists wanted to know why the chatter of Alston’s singing mice sounds so much like human conversation. What they found might change how we study both species.`\
+https://www.nytimes.com/2026/05/06/science/a-mutation-gave-humans-the-gift-of-speech-these-mice-have-it-too.html
+
+**Can I Ask My Brother to Have His Racist Prison Tattoo Removed?**\
+`I know that some tattoo artists will cover white-supremacist tattoos at no cost for those who have disavowed such views.`\
+https://www.nytimes.com/2026/05/06/magazine/brother-racist-tattoo-ethics.html
+
+**El hombre que no era: 20 años después de un error televisivo en vivo**\
+`Guy Goma creyó que iba a una entrevista para un empleo cuando de pronto apareció a cuadro en la BBC. Lo que pasó después le sonará conocido a quien no haya estado listo para un trabajo.`\
+https://www.nytimes.com/es/2026/05/06/espanol/bbc-entrevista-guy-goma.html
+
+**New York First Congressional District 2026: Latest Polls**\
+`Track the latest polls in New York's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-york-us-house-1-polls-2026.html
+
 **Ted Turner: The News Never Stops**\
 `Ted Turner, the visionary founder of CNN, introduced the 24-hour news cycle.`\
 https://www.nytimes.com/video/obituaries/100000010886420/ted-turner-the-news-never-stops.html
