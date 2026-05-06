@@ -1,3 +1,11 @@
+**Hantavirus Cruise Ship Remains at Sea as Leaders Clash Over Its Docking**\
+`Three people with possible symptoms of the disease were evacuated on Wednesday morning from the Dutch-flagged MV Hondius.`\
+https://www.nytimes.com/2026/05/06/world/hantavirus-cruise-ship.html
+
+**Trump Makes Sudden U-Turn on Strait of Hormuz Escort Mission**\
+`President Trump changed course on the U.S. mission to guide ships through the Strait of Hormuz just a day after it began. Oil prices fell and stocks rose as he cited “great progress” toward an agreement with Iran.`\
+https://www.nytimes.com/video/us/politics/100000010885602/trump-iran-hormuz-project-freedom.html
+
 **A Landslide in Alaska Set Off a Tsunami. There May Be More to Come.**\
 `Scientists say as glaciers retreat in a warming climate, landslide-generated tsunamis are likely to become more frequent.`\
 https://www.nytimes.com/2026/05/06/science/tsunami-landslide-alaska-climate-arctic.html

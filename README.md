@@ -54,7 +54,7 @@ https://www.nytimes.com/2026/05/06/crosswords/strands-sidekick-795.html
 `Scroll down for hints and conversation about the puzzle for Thursday, May 7, 2026.`\
 https://www.nytimes.com/2026/05/06/crosswords/wordle-review-1783.html
 
-**Trump’s U-turn and hopes of a deal ease tensions in energy markets.**\
+**Trump presses Iran to agree to a peace plan, as Tehran casts doubt on progress in talks.**\
 ``\
 https://www.nytimes.com/live/2026/05/06/world/iran-us-hormuz-oil/us-iran-hormuz-pause
 
