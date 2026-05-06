@@ -1,3 +1,7 @@
+**Taking a Deep Dive into a Connecticut Ranch House**\
+`Janis Provisor and Brad Davis, a workaholic artist couple, made their priorities clear when they converted an indoor swimming pool into a studio.`\
+https://www.nytimes.com/2026/05/06/realestate/connecticut-ranch-house-artists.html
+
 **Today, In Short**\
 `Dumpster diving. Intercoms. And last-minute gifts for Mother’s Day.`\
 https://www.nytimes.com/2026/05/06/briefing/today-in-short.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/06/business/dealbook/stocks-trump-accounts.html
 **Justin Wolfers, Cable’s Favorite Economist, Joins the Creator Economy**\
 `With his crisp breakdowns of President Trump’s trade moves and distinctive Aussie accent, Mr. Wolfers has become a TV constant. Now he’s starting his own media company.`\
 https://www.nytimes.com/2026/05/06/business/dealbook/justin-wolfers-media-company.html
-
-**The New York Times Passes 13 Million Subscribers**\
-`The company’s adjusted operating profit hit $117.9 million in the quarter, up 27.2 percent from a year earlier, on revenue of $712.2 million.`\
-https://www.nytimes.com/2026/05/06/business/media/new-york-times-earnings.html
 

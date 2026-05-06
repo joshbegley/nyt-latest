@@ -1,3 +1,7 @@
+**Today, In Short**\
+`Dumpster diving. Intercoms. And last-minute gifts for Mother’s Day.`\
+https://www.nytimes.com/2026/05/06/briefing/today-in-short.html
+
 **Spring on a Sheet Pan**\
 `A mix of preserved lemon and butter makes the chicken extra golden and crisp, while peas and radishes roast alongside and turn tender and sweet.`\
 https://www.nytimes.com/2026/05/06/dining/spring-on-a-sheet-pan.html
