@@ -1,3 +1,11 @@
+**JPMorgan Tried to Settle Harassment Accusations Against Executive**\
+`The bank offered $1 million before a former employee filed a lawsuit against a woman who was an executive director on his team, two people briefed on the matter said.`\
+https://www.nytimes.com/2026/05/06/business/jpmorgan-rana-hajdini-harassment-lawsuit.html
+
+**Purported Epstein Suicide Note Is Released**\
+`A federal judge released the note on Wednesday, which Jeffrey Epstein’s former cellmate said he found in a graphic novel. The New York Times has not authenticated that Mr. Epstein wrote it.`\
+https://www.nytimes.com/2026/05/06/nyregion/epstein-suicide-note.html
+
 **Si la deforestación sigue, la Amazonía estaría en un punto sin retorno**\
 `Un nuevo estudio destaca la letal combinación de pérdida de árboles y calentamiento global que podría llevar a que el pulmón del mundo colapse a mitad de siglo.`\
 https://www.nytimes.com/es/2026/05/06/espanol/tiempo-y-clima/deforestacion-amazonia-punto-no-retorno.html
