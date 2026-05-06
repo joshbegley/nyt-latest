@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/06/world/iran-us-hormuz-oil/heres-the-latest
+
 **Un brote de hantavirus no es común, pero no hay cura**\
 `Desde que se identificó esta familia de infecciones transmitidas por roedores en la década de 1950, han surgido en todo el mundo.`\
 https://www.nytimes.com/es/2026/05/06/espanol/ciencia-y-tecnologia/hantavirus-historia-epidemia.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/06/podcasts/the-daily/artemis-astronauts-questio
 **President Trump’s Sudden U-Turn, and a $1 Billion Ballroom Proposal**\
 `Plus, a visit to the “Gates to Hell.”`\
 https://www.nytimes.com/2026/05/06/podcasts/the-headlines/trump-iran-white-house-ballroom.html
-
-**Connections Companion No. 1,061**\
-`Scroll down for hints and conversation about the puzzle for Thursday, May 7, 2026.`\
-https://www.nytimes.com/2026/05/06/crosswords/connections-companion-1061.html
 

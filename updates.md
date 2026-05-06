@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+``\
+https://www.nytimes.com/live/2026/05/06/world/iran-us-hormuz-oil/heres-the-latest
+
 **Un brote de hantavirus no es común, pero no hay cura**\
 `Desde que se identificó esta familia de infecciones transmitidas por roedores en la década de 1950, han surgido en todo el mundo.`\
 https://www.nytimes.com/es/2026/05/06/espanol/ciencia-y-tecnologia/hantavirus-historia-epidemia.html
