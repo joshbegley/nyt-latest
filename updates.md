@@ -1,3 +1,19 @@
+**La Casa Blanca considera supervisar los modelos de IA antes de su lanzamiento**\
+`El gobierno de EE. UU. debate una orden ejecutiva para crear un grupo de trabajo que reúna a ejecutivos tecnológicos y funcionarios del gobierno para examinar procedimientos de supervisión.`\
+https://www.nytimes.com/es/2026/05/06/espanol/estados-unidos/modelos-ia-regulacion.html
+
+**Cómo la IA está transformando la industria china del entretenimiento**\
+`El apogeo de los dramas generados por IA ha provocado protestas. Los actores afirman que les quita oportunidades y algunos videos usan imágenes de celebridades sin autorización.`\
+https://www.nytimes.com/es/2026/05/06/espanol/mundo/ia-industria-entretenimiento-china.html
+
+**French Literature Is in an Uproar**\
+`Changes at a famous French publishing house tell us a lot about the world we live in now.`\
+https://www.nytimes.com/2026/05/06/opinion/french-publishing-grasset-olivier-nora.html
+
+**My Father Wrote Letters to the Cuban Government. Here Is Mine.**\
+`Please do not take the fact that I am writing this letter to you as a defense of U.S. policy toward Cuba, much less a call for American intervention.`\
+https://www.nytimes.com/2026/05/06/opinion/cuba-president-diaz-canel.html
+
 **Oil Falls and Stocks Gain as Trump Changes Course in Strait of Hormuz**\
 `Oil prices fell and stocks rose after President Trump’s about-face to pause the U.S. operation to escort commercial ships through the Strait of Hormuz`\
 https://www.nytimes.com/2026/05/06/business/oil-gas-price-iran.html
