@@ -1,3 +1,11 @@
+**Does This Feel Like a ‘Catholic Moment’?**\
+`Readers respond to an Opinion guest essay by Christine Emba about a possible Catholic revival. Also: A woman’s face.`\
+https://www.nytimes.com/2026/05/06/opinion/catholic-pope-leo-trump.html
+
+**Washington, D.C. Shadow Representative 2026: Latest Polls**\
+`Track the latest polls in Washington, D.C.'s shadow representative race.`\
+https://www.nytimes.com/interactive/polls/washington-dc-shadow-representative-polls-2026.html
+
 **There Are More Shelter Beds Than Ever. It’s Not Enough.**\
 `Plus, how efforts to address homelessness are changing.`\
 https://www.nytimes.com/2026/05/06/headway/newsletter-shelter-beds-homelessness.html
