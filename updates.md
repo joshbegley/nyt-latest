@@ -70,8 +70,8 @@ https://www.nytimes.com/2026/05/05/world/canada/canada-louis-arbour-governor-gen
 `Michael Marx, a 45-year-old Texan, is accused of shooting at Secret Service agents by the Washington Monument on Monday.`\
 https://www.nytimes.com/live/2026/05/05/us/trump-news/secret-service-shooting-gunman-identified
 
-**Trump Says U.S. Pausing Efforts to Guide Ships Through Strait Blocked by Iran**\
-`President Trump said a U.S. blockade on the Strait of Hormuz would “remain in full force.” The sudden shift came after Defense Secretary Pete Hegseth said U.S. efforts to free vessels trapped in the waterway would continue.`\
+**U.S. Says Cease-Fire With Iran Is Holding, Despite Attacks**\
+`The American effort to reopen the Strait of Hormuz to commercial shipping is still on course, Defense Secretary Pete Hegseth said, even as Iran’s state broadcaster dismissed it as a failure.`\
 https://www.nytimes.com/2026/05/05/world/middleeast/iran-us-ceasefire-attacks.html
 
 **Iran announces a new system for traffic in the Strait of Hormuz.**\
