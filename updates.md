@@ -1,3 +1,15 @@
+**You Can’t Be Born Here. You Can Only Die.**\
+`The existential pain of losing birth services.`\
+https://www.nytimes.com/2026/05/06/opinion/rural-hospital-deserts.html
+
+**My Mother Won’t Reschedule Her Elective Surgery So I Can Be There. Help!**\
+`A reader wants her mother to pick another date for a hip-replacement surgery so that she doesn’t have to miss an important work conference. Cue the cutting email from Mom.`\
+https://www.nytimes.com/2026/05/06/style/elective-surgery-rescheduling-priorities.html
+
+**Trump presses Iran to agree to a peace plan, as Tehran casts doubt on progress in talks.**\
+``\
+https://www.nytimes.com/live/2026/05/06/world/iran-us-hormuz-oil/us-iran-hormuz-pause
+
 **Hantavirus Cruise Ship Remains at Sea as Leaders Clash Over Its Docking**\
 `Three people with possible symptoms of the disease were evacuated on Wednesday morning from the Dutch-flagged MV Hondius.`\
 https://www.nytimes.com/2026/05/06/world/hantavirus-cruise-ship.html

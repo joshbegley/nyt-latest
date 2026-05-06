@@ -1,3 +1,7 @@
+**Howard Lutnick to Face Questions From Congress About Epstein Ties**\
+`The commerce secretary is set to be interviewed Wednesday in a closed-door session with the House Oversight Committee`\
+https://www.nytimes.com/2026/05/06/business/economy/howard-lutnick-jeffrey-epstein-house-oversight.html
+
 **You Can’t Be Born Here. You Can Only Die.**\
 `The existential pain of losing birth services.`\
 https://www.nytimes.com/2026/05/06/opinion/rural-hospital-deserts.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/06/world/europe/ukraine-russia-romania-drones-na
 **California Governor’s Race Heats Up on Crowded Debate Stage**\
 `Attacks got personal as California’s top seven candidates for governor faced off on Tuesday ahead of the primary on June 2.`\
 https://www.nytimes.com/video/us/elections/100000010885688/california-governor-debate-cnn-race.html
-
-**John Roberts Believes in an America That Doesn’t Exist**\
-`Guess who benefits from a “colorblind Constitution.”`\
-https://www.nytimes.com/2026/05/06/opinion/callais-voting-rights-act-discrimination.html
 
