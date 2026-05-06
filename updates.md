@@ -1,3 +1,7 @@
+**¿Puede Trump doblegar a Irán?**\
+`El presidente de Estados Unidos parece estar buscando una solución infalible para poner fin a la guerra, pero podría no existir ninguna.`\
+https://www.nytimes.com/es/2026/05/06/espanol/mundo/trump-guerra-iran.html
+
 **Your Kids Asked the Artemis Astronauts Questions. They Answered.**\
 `The crew of NASA’s Artemis II mission discussed what the journey was like and what they ate for dessert in space.`\
 https://www.nytimes.com/2026/05/06/podcasts/the-daily/artemis-astronauts-questions-and-answers.html
