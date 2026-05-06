@@ -1,3 +1,11 @@
+**The Boxing Match That Killed a Police Recruit**\
+`A Massachusetts State Police cadet, already hobbled from a previous bout, raised his hand to take on a more skilled fighter, and investigators say no one stopped him. Four people face charges.`\
+https://www.nytimes.com/2026/05/06/us/massachusetts-state-troopers-charged-boxing-match-death.html
+
+**‘The Book of Mormon’ Will Close for 2 Weeks After Fire**\
+`The long-running musical, one of Broadway’s biggest hits, will be closed through at least May 17 after an electrical fire in its lighting booth.`\
+https://www.nytimes.com/2026/05/06/theater/book-of-mormon-fire-shows-canceled.html
+
 **JPMorgan Tried to Settle Harassment Accusations Against Executive**\
 `The bank offered $1 million before a former employee filed a lawsuit against a woman who was an executive director on his team, two people briefed on the matter said.`\
 https://www.nytimes.com/2026/05/06/business/jpmorgan-rana-hajdini-harassment-lawsuit.html
