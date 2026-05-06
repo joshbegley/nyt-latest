@@ -1,3 +1,27 @@
+**Your Kids Asked the Artemis Astronauts Questions. They Answered.**\
+`The crew of NASA’s Artemis II mission discussed what the journey was like and what they ate for dessert in space.`\
+https://www.nytimes.com/2026/05/06/podcasts/the-daily/artemis-astronauts-questions-and-answers.html
+
+**President Trump’s Sudden U-Turn, and a $1 Billion Ballroom Proposal**\
+`Plus, a visit to the “Gates to Hell.”`\
+https://www.nytimes.com/2026/05/06/podcasts/the-headlines/trump-iran-white-house-ballroom.html
+
+**Connections Companion No. 1,061**\
+`Scroll down for hints and conversation about the puzzle for Thursday, May 7, 2026.`\
+https://www.nytimes.com/2026/05/06/crosswords/connections-companion-1061.html
+
+**Strands Sidekick No. 795**\
+`Scroll down for hints and conversation about the puzzle for Thursday, May 7, 2026.`\
+https://www.nytimes.com/2026/05/06/crosswords/strands-sidekick-795.html
+
+**Wordle Review No. 1,783**\
+`Scroll down for hints and conversation about the puzzle for Thursday, May 7, 2026.`\
+https://www.nytimes.com/2026/05/06/crosswords/wordle-review-1783.html
+
+**Trump’s U-turn and hopes of a deal ease tensions in energy markets.**\
+``\
+https://www.nytimes.com/live/2026/05/06/world/iran-us-hormuz-oil/us-iran-hormuz-pause
+
 **In Romania, Living With Weapons of War Spilling Into NATO Territory**\
 `Four years of battle in Ukraine is taking a toll on neighboring Romanians. Even if the war has not crossed the border, drones have done so.`\
 https://www.nytimes.com/2026/05/06/world/europe/ukraine-russia-romania-drones-nato-drone-wall.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/05/06/theater/othello-bedlam-hamlet-bam.html
 **Homes for Sale in Manhattan and Queens**\
 `This week’s properties are in South Harlem, on the Upper West Side and in Bay Terrace.`\
 https://www.nytimes.com/2026/05/06/realestate/housing-market-nyc.html
-
-**TV Is Changing Its Approach to ‘the Change’**\
-`Sitcoms have long treated menopause as a punchline, but newer series like “Your Friends & Neighbors” and “Riot Women” depict it as a matter-of-fact part of women’s lives.`\
-https://www.nytimes.com/2026/05/06/arts/television/tv-shows-menopause-representation.html
-
-**Homes for Sale in Connecticut and New York**\
-`This week’s properties are a four-bedroom in Redding, Conn., and a three-bedroom in Long Beach, N.Y.`\
-https://www.nytimes.com/2026/05/06/realestate/housing-market-near-nyc.html
-
-**Khaled Sabsabi’s Rocky Road From Australia to the Biennale**\
-`The Lebanese-Australian artist almost lost his Venice Biennale commission after he was accused of supporting terrorism. Reinstated, he is arriving in Venice showing not one but two works.`\
-https://www.nytimes.com/2026/05/06/arts/design/khaled-sabsabi-australia-venice-biennale.html
-
-**What Autocracy Feels Like: the View From One Turkish Neighborhood**\
-`In a new book, the journalist Suzy Hansen plumbs an Istanbul community for insights into Turkey’s hard-right turn.`\
-https://www.nytimes.com/2026/05/06/books/review/from-life-itself-suzy-hansen.html
-
-**American Factories Lag in Adopting A.I. This Drugmaker Is an Exception.**\
-`A Bristol Myers Squibb plant that makes cancer drugs was the only manufacturer in the U.S. recognized for innovation by the World Economic Forum this year.`\
-https://www.nytimes.com/2026/05/06/business/ai-bristol-myers-squibb-drugs.html
-
-**The ‘Color Countess’ on Finding the Perfect White for Your Wedding**\
-`Megan Bentley, a color analyst, shares how identifying your color season, the hues that are most complementary or flattering, can elevate your wedding wardrobe.`\
-https://www.nytimes.com/2026/05/06/style/wedding-dress-white-bridal-color-analysis.html
 

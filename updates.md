@@ -1,3 +1,27 @@
+**Your Kids Asked the Artemis Astronauts Questions. They Answered.**\
+`The crew of NASA’s Artemis II mission discussed what the journey was like and what they ate for dessert in space.`\
+https://www.nytimes.com/2026/05/06/podcasts/the-daily/artemis-astronauts-questions-and-answers.html
+
+**President Trump’s Sudden U-Turn, and a $1 Billion Ballroom Proposal**\
+`Plus, a visit to the “Gates to Hell.”`\
+https://www.nytimes.com/2026/05/06/podcasts/the-headlines/trump-iran-white-house-ballroom.html
+
+**Connections Companion No. 1,061**\
+`Scroll down for hints and conversation about the puzzle for Thursday, May 7, 2026.`\
+https://www.nytimes.com/2026/05/06/crosswords/connections-companion-1061.html
+
+**Strands Sidekick No. 795**\
+`Scroll down for hints and conversation about the puzzle for Thursday, May 7, 2026.`\
+https://www.nytimes.com/2026/05/06/crosswords/strands-sidekick-795.html
+
+**Wordle Review No. 1,783**\
+`Scroll down for hints and conversation about the puzzle for Thursday, May 7, 2026.`\
+https://www.nytimes.com/2026/05/06/crosswords/wordle-review-1783.html
+
+**Trump’s U-turn and hopes of a deal ease tensions in energy markets.**\
+``\
+https://www.nytimes.com/live/2026/05/06/world/iran-us-hormuz-oil/us-iran-hormuz-pause
+
 **In Romania, Living With Weapons of War Spilling Into NATO Territory**\
 `Four years of battle in Ukraine is taking a toll on neighboring Romanians. Even if the war has not crossed the border, drones have done so.`\
 https://www.nytimes.com/2026/05/06/world/europe/ukraine-russia-romania-drones-nato-drone-wall.html
