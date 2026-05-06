@@ -1,3 +1,11 @@
+**Most Trump-Backed Challengers Beat Indiana Incumbents Who Bucked Trump**\
+`President Trump endorsed primary opponents against seven Republican lawmakers who opposed his redistricting push. At least four of the Trump-backed candidates have won their races.`\
+https://www.nytimes.com/2026/05/05/us/most-trump-backed-challengers-beat-indiana-incumbents-who-bucked-trump.html
+
+**‘Avatar’ Suit Focuses on Hot Topic in A.I. Age: A Character’s Face**\
+`An actress accused the director James Cameron of stealing her likeness for a digitally created, blue-skinned warrior princess.`\
+https://www.nytimes.com/2026/05/05/business/media/avatar-ai-lawsuit.html
+
 **Vance Campaigns in Iowa as G.O.P. Fears Rise Ahead of Midterms**\
 `The vice president acknowledged economic headwinds, including rising energy and fertilizer costs. “We got a little — a little blip in the Middle East,” he said, referring to the war in Iran.`\
 https://www.nytimes.com/2026/05/05/us/politics/jd-vance-iowa.html

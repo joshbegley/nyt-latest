@@ -1,6 +1,14 @@
+**A Protest Atop a Bridge Grabs Washington’s Attention**\
+`For five days, a 45-year-old former jeweler has camped on top of the Frederick Douglass Memorial Bridge, drawing a mix of support, disapproval and concern.`\
+https://www.nytimes.com/2026/05/05/us/protester-dc-frederick-douglass-memorial-bridge.html
+
+**Trump Posts Meme of Top Democrats in Sombreros**\
+`The fake image of Representative Hakeem Jeffries of New York and Senator Chuck Schumer of New York was similar to a post from September that was widely denounced as racist.`\
+https://www.nytimes.com/2026/05/05/us/politics/trump-posts-meme-of-top-democrats-in-sombreros.html
+
 **Most Trump-Backed Challengers Beat Indiana Incumbents Who Bucked Trump**\
 `President Trump endorsed primary opponents against seven Republican lawmakers who opposed his redistricting push. At least four of the Trump-backed candidates have won their races.`\
-https://www.nytimes.com/2026/05/05/us/most-trump-backed-challengers-beat-indiana-incumbents-who-bucked-trump.html
+https://www.nytimes.com/2026/05/05/us/trump-candidates-win-indiana-republican-primary.html
 
 **‘Avatar’ Suit Focuses on Hot Topic in A.I. Age: A Character’s Face**\
 `An actress accused the director James Cameron of stealing her likeness for a digitally created, blue-skinned warrior princess.`\
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/05/technology/openai-trial-elon-musk-greg-brockm
 **Man Accused of Attacking Press Gala Indicted on Four Charges**\
 `A grand jury approved a fourth count against Cole Tomas Allen, who prosecutors say wounded a federal officer while attempting to kill President Trump.`\
 https://www.nytimes.com/2026/05/05/us/politics/whcd-new-charges.html
-
-**F.A.A. Employee Charged With Threatening to Kill Trump**\
-`The employee, Dean DelleChiaie of Nashua, N.H., was accused of emailing the White House about his plans to kill the president, after using his work computer to conduct related searches.`\
-https://www.nytimes.com/2026/05/05/us/politics/faa-employee-trump-murder-threat-charged.html
-
-**What Happened When the Pope Had to Call Customer Service**\
-`Spoiler alert: There was no miracle.`\
-https://www.nytimes.com/2026/05/05/us/pope-leo-xiv-bank-customer-service.html
 
