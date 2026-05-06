@@ -1,3 +1,19 @@
+**Trump Gets Payback on Indiana Republicans: 5 Takeaways**\
+`The president helped unseat most of the state lawmakers he targeted after they rebuffed his call to draw new House maps to help Republicans.`\
+https://www.nytimes.com/2026/05/05/us/politics/trump-indiana-takeaways.html
+
+**U.S. Military Strikes Boat in Eastern Pacific, Killing 3**\
+`The attack was the second in two days, and the latest in an ongoing campaign against people the United States says are engaged in drug smuggling at sea.`\
+https://www.nytimes.com/2026/05/05/us/politics/trump-boat-strike.html
+
+**Ex-ICE Deputy Falls Short in Republican House Primary in Ohio**\
+`Madison Sheahan, whose candidacy promised to test how general-election voters viewed President Trump’s immigration agenda, lost to a rival who billed himself as a “MAGA Republican.”`\
+https://www.nytimes.com/2026/05/05/us/elections/ice-madison-sheahan-ohio-house-derek-merrin-josh-williams.html
+
+**Pro-Palestinian and Pro-Israel Demonstrators Rally Outside Synagogue**\
+`For the second time in six months, protesters gathered outside Park East Synagogue, which was holding an event to promote real estate sales in Israel. A heavy police presence kept the two groups apart.`\
+https://www.nytimes.com/2026/05/05/nyregion/nyc-synagogue-protests-israel-real-estate.html
+
 **White House Insists Iran War Is Over, Even While Missiles Fly**\
 `The White House is turning to rhetorical leaps as President Trump tries to put the biggest political crisis of his presidency behind him.`\
 https://www.nytimes.com/2026/05/05/us/politics/trump-iran-war-political-crisis-rhetoric.html
