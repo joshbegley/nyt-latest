@@ -1,3 +1,15 @@
+**Conservative Group’s Influence Inside the State Department Raises Alarms**\
+`Founders of the Ben Franklin Fellowship are trying to dismantle pro-diversity practices in the agency and to boost career diplomats who promote President Trump’s ideas.`\
+https://www.nytimes.com/2026/05/06/us/politics/conservative-groups-influence-inside-the-state-department-raises-alarms.html
+
+**Higher Gas Prices Are Hitting Lower-Income Americans the Hardest**\
+`People with lower incomes are driving less and devoting more of their budgets to transport as gas prices soar.`\
+https://www.nytimes.com/2026/05/06/business/economy/gas-prices-inequality-lower-income-consumers.html
+
+**Macron Wants U.S. and Iran to Open Strait While They Negotiate, Officials Say**\
+`Emmanuel Macron, the French president, hopes the Strait of Hormuz can reopen even before the U.S.-Iran war formally ends. His plan has many pitfalls.`\
+https://www.nytimes.com/2026/05/06/world/middleeast/france-macron-strait-of-hormuz-iran-us.html
+
 **A Mutation Gave Humans the Gift of Speech. These Mice Have It, Too.**\
 `Scientists wanted to know why the chatter of Alston’s singing mice sounds so much like human conversation. What they found might change how we study both species.`\
 https://www.nytimes.com/2026/05/06/science/a-mutation-gave-humans-the-gift-of-speech-these-mice-have-it-too.html

@@ -1,3 +1,23 @@
+**Virginia Politician’s Office Raided by F.B.I. Agents**\
+`Two people familiar with the case said the search of a Democratic lawmaker’s office was related to a Biden-era investigation of possible corruption and bribery related to marijuana businesses.`\
+https://www.nytimes.com/2026/05/06/us/politics/louise-lucas-fbi-raid.html
+
+**Iran’s Oil Sector and Economy Are Under Pressure as U.S. Blockade Bites**\
+`Tehran says it can endure the pain, but its oil may soon have nowhere to go.`\
+https://www.nytimes.com/2026/05/06/world/middleeast/irans-oil-capacity-blockade.html
+
+**5 Notable Moments From Obama’s Interview With Colbert**\
+`The former president was critical of President Trump, without ever naming him. Mr. Obama also urged Democrats to be plain-spoken, and talked about aliens.`\
+https://www.nytimes.com/2026/05/06/us/obama-colbert-interview-trump.html
+
+**Ted Turner, creador de CNN y del ciclo de noticias de 24 horas, muere a los 87 años**\
+`Pionero de los medios de comunicación del siglo XX, dirigió un vasto imperio de noticias, deportes y entretenimiento.`\
+https://www.nytimes.com/es/2026/05/06/espanol/muere-ted-turner.html
+
+**Protester Who Spent 6 Days Perched Atop Bridge in Washington Comes Down**\
+`Guido Reichstadter, a 45-year-old former jeweler, began sitting atop the Frederick Douglass Memorial Bridge on May 1 to protest A.I. development and the war in Iran.`\
+https://www.nytimes.com/2026/05/06/us/guido-reichstadter-frederick-douglass-memorial-bridge.html
+
 **Conservative Group’s Influence Inside the State Department Raises Alarms**\
 `Founders of the Ben Franklin Fellowship are trying to dismantle pro-diversity practices in the agency and to boost career diplomats who promote President Trump’s ideas.`\
 https://www.nytimes.com/2026/05/06/us/politics/conservative-groups-influence-inside-the-state-department-raises-alarms.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/05/06/dining/spring-on-a-sheet-pan.html
 **My Art Will Go On: Titanic Artifacts May Soon Be Auctioned**\
 `The last time a sale was proposed, the idea drew objections from the U.S. and French governments, and from UNESCO and other cultural institutions.`\
 https://www.nytimes.com/2026/05/06/us/titanic-artifacts-auction-sale.html
-
-**Neil deGrasse Tyson: Give Us the Aliens**\
-`Is that too much to ask for?`\
-https://www.nytimes.com/2026/05/06/opinion/alien-files-trump-release.html
-
-**Here’s the latest.**\
-``\
-https://www.nytimes.com/live/2026/05/06/world/iran-us-hormuz-oil/heres-the-latest
-
-**Un brote de hantavirus no es común, pero no hay cura**\
-`Desde que se identificó esta familia de infecciones transmitidas por roedores en la década de 1950, han surgido en todo el mundo.`\
-https://www.nytimes.com/es/2026/05/06/espanol/ciencia-y-tecnologia/hantavirus-historia-epidemia.html
-
-**Ted Turner, Creator of CNN and the 24-Hour News Cycle, Dies at 87**\
-`As one of the most important figures in media history, he oversaw a vast cable empire of news, sports and entertainment channels.`\
-https://www.nytimes.com/2026/05/06/business/media/ted-turner-dead.html
-
-**Leo XIV Is the First Pope From the U.S. He’s Making That an Asset.**\
-`A year into his papacy, Leo has shown a readiness to challenge Washington, defying any concerns about the election of an American pontiff.`\
-https://www.nytimes.com/2026/05/06/world/europe/leo-first-american-pope.html
 
