@@ -1,3 +1,7 @@
+**Trump Says U.S. Pausing Efforts to Guide Ships Through Strait Blocked by Iran**\
+`President Trump said a U.S. blockade on the Strait of Hormuz would “remain in full force.” The sudden shift came after Defense Secretary Pete Hegseth said U.S. efforts to free vessels trapped in the waterway would continue.`\
+https://www.nytimes.com/2026/05/05/world/middleeast/iran-us-ceasefire-attacks.html
+
 **Journalist and Her Mother Are Among 3 Killed in Upper Manhattan Fire**\
 `Yolaine Díaz, a fashion and beauty writer for People en Español, and her mother were killed in the blaze at an apartment building in Inwood, People magazine said.`\
 https://www.nytimes.com/2026/05/05/nyregion/inwood-fire-victims-people-magazine-journalist.html
