@@ -1,3 +1,7 @@
+**Washington, D.C. Shadow Representative 2026: Latest Polls**\
+`Track the latest polls in Washington, D.C.'s shadow representative race.`\
+https://www.nytimes.com/interactive/polls/washington-dc-shadow-representative-polls-2026.html
+
 **There Are More Shelter Beds Than Ever. It’s Not Enough.**\
 `Plus, how efforts to address homelessness are changing.`\
 https://www.nytimes.com/2026/05/06/headway/newsletter-shelter-beds-homelessness.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/06/world/middleeast/france-macron-strait-of-horm
 **A Mutation Gave Humans the Gift of Speech. These Mice Have It, Too.**\
 `Scientists wanted to know why the chatter of Alston’s singing mice sounds so much like human conversation. What they found might change how we study both species.`\
 https://www.nytimes.com/2026/05/06/science/a-mutation-gave-humans-the-gift-of-speech-these-mice-have-it-too.html
-
-**Can I Ask My Brother to Have His Racist Prison Tattoo Removed?**\
-`I know that some tattoo artists will cover white-supremacist tattoos at no cost for those who have disavowed such views.`\
-https://www.nytimes.com/2026/05/06/magazine/brother-racist-tattoo-ethics.html
 

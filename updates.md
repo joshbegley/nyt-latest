@@ -1,3 +1,11 @@
+**There Are More Shelter Beds Than Ever. It’s Not Enough.**\
+`Plus, how efforts to address homelessness are changing.`\
+https://www.nytimes.com/2026/05/06/headway/newsletter-shelter-beds-homelessness.html
+
+**His DNA Was Taken After His Arrest at an ICE Protest. Now, He’s Suing.**\
+`In a lawsuit, an Air Force veteran says that the federal government is sending a “chilling message” to people demonstrating the immigration crackdown.`\
+https://www.nytimes.com/2026/05/06/nyregion/dna-collection-ice-arrests-lawsuit.html
+
 **New York 21st Congressional District 2026: Latest Polls**\
 `Track the latest polls in New York's 21st Congressional District.`\
 https://www.nytimes.com/interactive/polls/new-york-us-house-21-polls-2026.html
