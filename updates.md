@@ -1,3 +1,27 @@
+**Illinois State Police to Investigate Fatal ICE Shooting**\
+`Officials said they were examining the shooting of Silverio Villegas-Gonzalez last summer during a Chicago-area crackdown on illegal immigration.`\
+https://www.nytimes.com/2026/05/06/us/illinois-state-police-ice-shooting-suburban-chicago.html
+
+**Los bisontes de Montana están en peligro de expulsión**\
+`El gobierno de Trump está desalojando a manadas de bisontes de las praderas federales, después de ponerse del lado de los ganaderos y los líderes republicanos enfrentados a los ecologistas y los líderes tribales.`\
+https://www.nytimes.com/es/2026/05/06/espanol/estados-unidos/montana-bisontes-trump.html
+
+**A Mistaken Guy: The 20-Year Legacy of a Live TV Blunder**\
+`Guy Goma thought he was interviewing for an I.T. job when he found himself on air on the BBC. What came next was familiar to anyone who has been unprepared at work.`\
+https://www.nytimes.com/2026/05/06/business/media/bbc-guy-goma-interview.html
+
+**Courting Anxious Allies, Japan Pitches Stability and Strength in Asia**\
+`Prime Minister Sanae Takaichi is attempting to raise Japan’s profile at a time when China’s clout is rising and doubts about the United States are spreading.`\
+https://www.nytimes.com/2026/05/06/world/asia/japan-takaichi-australia-vietnam.html
+
+**Corrections: May 6, 2026**\
+`Corrections that appeared in print on Wednesday, May 6, 2026.`\
+https://www.nytimes.com/2026/05/06/pageoneplus/corrections-may-6-2026.html
+
+**Quote of the Day: Taiwan Learns From Ukraine as Informal Connections Grow**\
+`Quotation of the Day for Wednesday, May 6, 2026.`\
+https://www.nytimes.com/2026/05/05/pageoneplus/quote-of-the-day-taiwan-learns-from-ukraine-as-informal-connections-grow.html
+
 **Democrats Keep Michigan Senate Majority With Special Election Win**\
 `Gov. Gretchen Whitmer, a Democrat, allowed the swing district seat to sit vacant for more than a year as her party clung to a slim majority.`\
 https://www.nytimes.com/2026/05/05/us/democrats-keep-michigan-senate-majority-with-special-election-win.html

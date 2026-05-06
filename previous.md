@@ -1,3 +1,27 @@
+**Illinois State Police to Investigate Fatal ICE Shooting**\
+`Officials said they were examining the shooting of Silverio Villegas-Gonzalez last summer during a Chicago-area crackdown on illegal immigration.`\
+https://www.nytimes.com/2026/05/06/us/illinois-state-police-ice-shooting-suburban-chicago.html
+
+**Los bisontes de Montana están en peligro de expulsión**\
+`El gobierno de Trump está desalojando a manadas de bisontes de las praderas federales, después de ponerse del lado de los ganaderos y los líderes republicanos enfrentados a los ecologistas y los líderes tribales.`\
+https://www.nytimes.com/es/2026/05/06/espanol/estados-unidos/montana-bisontes-trump.html
+
+**A Mistaken Guy: The 20-Year Legacy of a Live TV Blunder**\
+`Guy Goma thought he was interviewing for an I.T. job when he found himself on air on the BBC. What came next was familiar to anyone who has been unprepared at work.`\
+https://www.nytimes.com/2026/05/06/business/media/bbc-guy-goma-interview.html
+
+**Courting Anxious Allies, Japan Pitches Stability and Strength in Asia**\
+`Prime Minister Sanae Takaichi is attempting to raise Japan’s profile at a time when China’s clout is rising and doubts about the United States are spreading.`\
+https://www.nytimes.com/2026/05/06/world/asia/japan-takaichi-australia-vietnam.html
+
+**Corrections: May 6, 2026**\
+`Corrections that appeared in print on Wednesday, May 6, 2026.`\
+https://www.nytimes.com/2026/05/06/pageoneplus/corrections-may-6-2026.html
+
+**Quote of the Day: Taiwan Learns From Ukraine as Informal Connections Grow**\
+`Quotation of the Day for Wednesday, May 6, 2026.`\
+https://www.nytimes.com/2026/05/05/pageoneplus/quote-of-the-day-taiwan-learns-from-ukraine-as-informal-connections-grow.html
+
 **Democrats Keep Michigan Senate Majority With Special Election Win**\
 `Gov. Gretchen Whitmer, a Democrat, allowed the swing district seat to sit vacant for more than a year as her party clung to a slim majority.`\
 https://www.nytimes.com/2026/05/05/us/democrats-keep-michigan-senate-majority-with-special-election-win.html
@@ -53,28 +77,4 @@ https://www.nytimes.com/2026/05/05/us/politics/jd-vance-iowa.html
 **Venezuela tiene el camino libre para empezar a reestructurar su deuda**\
 `El país debe devolver 60.000 millones de dólares en bonos impagados mientras intenta estabilizar su economía.`\
 https://www.nytimes.com/es/2026/05/05/espanol/estados-unidos/venezuela-deuda.html
-
-**Ohio Governor’s Race Set Between an Entrepreneur and a Covid Czar**\
-`In a close race, Vivek Ramaswamy, the Republican nominee, and Dr. Amy Acton, the Democrat, bring distinctive potential liabilities: his wealth and her time leading Ohio’s pandemic response.`\
-https://www.nytimes.com/2026/05/05/us/elections/ohio-governor-race-ramaswamy-acton.html
-
-**Journalist and Her Mother Are Among 3 Killed in Upper Manhattan Fire**\
-`Yolaine Díaz, a fashion and beauty writer for People en Español, and her mother were killed in the blaze at an apartment building in Inwood, People magazine said.`\
-https://www.nytimes.com/2026/05/05/nyregion/inwood-fire-victims-people-magazine-journalist.html
-
-**How Ancient Centipede Ancestors Conquered the Earth**\
-`A long-neglected fossil seems to show the evolutionary leap that let the ancestors of today’s many-legged arthropods crawl forth from the seas.`\
-https://www.nytimes.com/2026/05/05/science/ancient-centipedes-proceedings-myriapods.html
-
-**The Historical Roots of Postliberalism**\
-`Postliberalism may seem like a contemporary movement, with champions like Vice President JD Vance and Patrick Deneen. But the tradition of liberal skepticism reaches much further back. On “The Ezra Klein Show,” the historian Helena Rosenblatt looks back to 19th-century England to explain.`\
-https://www.nytimes.com/video/opinion/100000010870452/the-historical-roots-of-postliberalism.html
-
-**What Is Liberal in the Liberal Arts?**\
-`What was a liberal arts education designed to offer? More than recent discourse might lead you to believe. On “The Ezra Klein Show,” the historian Helena Rosenblatt explains why the liberal arts have strayed so far from their roots as a training ground for civic virtues and citizenry.`\
-https://www.nytimes.com/video/opinion/100000010870440/what-is-liberal-in-the-liberal-arts.html
-
-**Colorado Waited All Winter for Snow. A May Storm Could Finally Bring Some.**\
-`A snowstorm hitting the Rocky Mountains this week could end up being the biggest all season, forecasters said.`\
-https://www.nytimes.com/2026/05/05/weather/colorado-snow-ski-snowpack.html
 
