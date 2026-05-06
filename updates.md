@@ -1,3 +1,7 @@
+**Storm Season Is Here and the National Weather Service Is Short Handed**\
+`After deep cuts last year, the agency is hiring hundreds. But fears linger that it isn’t equipped for imminent tornado and hurricane threats.`\
+https://www.nytimes.com/2026/05/06/climate/weather-service-staff-storms.html
+
 **Howard Lutnick to Face Questions From Congress About Epstein Ties**\
 `The commerce secretary is set to be interviewed Wednesday in a closed-door session with the House Oversight Committee`\
 https://www.nytimes.com/2026/05/06/business/economy/howard-lutnick-jeffrey-epstein-house-oversight.html
