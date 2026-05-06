@@ -1,3 +1,47 @@
+**Hasta el papa debe lidiar con atención al cliente**\
+`Poco después de que Robert Prevost se convirtiera en el papa León XIV, tuvo que llamar a su banco. Esto es lo que pasó.`\
+https://www.nytimes.com/es/2026/05/06/espanol/estados-unidos/papa-leon-xiv-banco-atencion-cliente.html
+
+**Sick Passengers Evacuated From Ship With Hantavirus Outbreak**\
+`Three passengers with symptoms of hantavirus were evacuated from the MV Hondius cruise ship where an outbreak of the disease has killed three people and sickened five others since April 11.`\
+https://www.nytimes.com/video/world/100000010886240/hantavirus-cruise-ship-passengers-evacuations.html
+
+**Meditating or Rebooting? A Robot Buddhist Monk Comes to Korea.**\
+`Gabi, the newest monk at a temple in Seoul, vowed to not overcharge as it seeks enlightenment.`\
+https://www.nytimes.com/2026/05/06/technology/robot-monk-buddhist-seoul.html
+
+**South Korea’s First Robot Monk Joins Country’s Largest Buddhist Sect**\
+`Gabi is a robot monk and a new member of South Korea’s largest Buddhist sect. During a ceremony at the Jogye Temple in Seoul on Wednesday, the robot promised to follow orders and not hurt other robots.`\
+https://www.nytimes.com/video/world/asia/100000010886997/robot-monk-gabi-south-korea.html
+
+**Iran War Looms Over Vance as He Visits Iowa**\
+`The vice president, a skeptic of the war, made his first visit of the cycle to the state that will kick off the 2028 nominating process.`\
+https://www.nytimes.com/2026/05/06/us/politics/jd-vance-iowa-2028.html
+
+**Tomato and Orzo Soup With Marinated Feta**\
+`This is an easy tomato soup to whip up when tomatoes are out of season and tomato paste is in your pantry.`\
+https://www.nytimes.com/video/dining/100000010884560/tomato-and-orzo-soup-with-marinated-feta.html
+
+**Apple and Plum Croustade**\
+`A classic French double-layer pie, croustade is worth heating up your kitchen on a hot summer day and does not disappoint in its beautiful simplicity.`\
+https://www.nytimes.com/video/dining/100000010884556/apple-and-plum-croustade.html
+
+**Israel Strikes Beirut for First Time Since Cease-Fire**\
+`Israel struck Beirut’s southern outskirts on Wednesday for the first time since a cease-fire between Israel and Lebanon took effect last month.`\
+https://www.nytimes.com/video/world/middleeast/100000010887385/israel-lebanon-strike-beirut-ceasefire.html
+
+**Nearly 1,500 Beagles From Research Facility Will Get New Homes**\
+`About 1,500 beagles are scheduled to be removed from Ridglan Farms, a Wisconsin facility that breeds the dogs for biomedical research aimed at improving veterinary medicine, after a special prosecutor found it had performed procedures that constituted animal mistreatment. One rescue bought 1,000 of the dogs and is working on finding them homes.`\
+https://www.nytimes.com/video/us/100000010886317/beagles-research-facility-homes.html
+
+**Justice Dept. Accuses U.C.L.A. Medical School of Bias Against White and Asian Applicants**\
+`The finding stems from a 2023 Supreme Court decision that overturned race-conscious admissions. U.C.L.A. officials said the school accepts students on merit.`\
+https://www.nytimes.com/2026/05/06/us/politics/justice-department-ucla-medical-school-race-admissions.html
+
+**The Iran War and Angry Voters**\
+`Economic pain is pushing many Europeans to the nationalist right. Local elections in Britain should give clues about how many.`\
+https://www.nytimes.com/2026/05/06/world/britain-elections-far-right-europe-iran-deal.html
+
 **Jack Smith Calls the Justice Dept. ‘Corrupted’ by Trump and His Allies**\
 `At a private event in Washington last month, Mr. Smith, the former special counsel, accused Justice Department leaders of targeting people for prosecution to please and impress the president.`\
 https://www.nytimes.com/2026/05/06/us/politics/jack-smith-justice-dept-trump.html
@@ -33,48 +77,4 @@ https://www.nytimes.com/video/podcasts/the-daily/100000010884780/the-moment-that
 **Attack on French Cargo Ship Highlights Continued Risks in Strait of Hormuz**\
 `U.S. Central Command and the ship’s owner disagreed on whether the vessel coordinated safe passage with the United States military.`\
 https://www.nytimes.com/2026/05/06/business/french-ship-hormuz-central-command.html
-
-**Kendall Myers, American Spy for Cuba, Dies at 88**\
-`While working for the State Department, he delivered top secret information to his Cuban handlers for 30 years. He was convicted and sentenced to life imprisonment.`\
-https://www.nytimes.com/2026/05/06/us/kendall-myers-dead.html
-
-**Man Charged With Shooting at Secret Service Near the National Mall**\
-`The suspect, a 45-year-old from Texas, faces three charges, including assaulting federal officers with a dangerous weapon.`\
-https://www.nytimes.com/2026/05/06/us/politics/secret-service-agents-shooting-national-mall.html
-
-**D.C. Protester Comes Down From Bridge After Six Days**\
-`Guido Reichstadter was protesting the U.S.-Israel war in Iran on top of the Frederick Douglass Memorial Bridge in Washington, D.C., since Friday. He came down on Wednesday as it started to rain.`\
-https://www.nytimes.com/video/us/100000010886740/dc-protester-comes-down-from-bridge-after-six-days.html
-
-**Iran Says It Is Reviewing a U.S. Proposal to End the War**\
-`Nothing was disclosed about the peace plan, and there were conflicting signals from the Iranians about how seriously they were taking it.`\
-https://www.nytimes.com/2026/05/06/world/middleeast/us-iran-peace-proposal.html
-
-**The World Is About to Get a Preview of Life in 2035**\
-`The El Niño brewing this year might make 2027 the hottest year on record.`\
-https://www.nytimes.com/2026/05/06/opinion/el-nino-climate.html
-
-**Should You Worry About Hantavirus?**\
-`Here’s what to know about the virus, how it spreads and the risk to the general public.`\
-https://www.nytimes.com/2026/05/06/well/hantavirus-symptoms-strains.html
-
-**The Good List: 6 Things to Add Some Delight to Your Day**\
-`Buried treasure, birds on the move and secret library access.`\
-https://www.nytimes.com/2026/05/06/briefing/the-good-list-angine-birds.html
-
-**Crossing Guard Is Fatally Hit by Car in New Jersey While Escorting Children**\
-`Jean Schultz, 80, had been a crossing guard in Woodland Park since 2022. She died after she was struck by a vehicle on Monday, the authorities said.`\
-https://www.nytimes.com/2026/05/06/nyregion/new-jersey-crossing-guard-killed.html
-
-**Clavicular Charged With Shooting at Alligator While Livestreaming**\
-`The influencer, whose real name is Braden Eric Peters, fired 12 shots at the gator from an airboat in the Florida Everglades.`\
-https://www.nytimes.com/2026/05/06/us/clavicular-alligator-shooting-charges-florida.html
-
-**New Study Shows Risks of Amazon Deforestation. And Rewards of Protection.**\
-`Researchers examined the combined effects of tree loss and global warming in an effort to better understand how and when an ecosystem collapse could unfold.`\
-https://www.nytimes.com/2026/05/06/climate/amazon-rain-forest-deforestation-climate.html
-
-**Tiny Love Stories: ‘I Could Feel Him Watching Me’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://www.nytimes.com/2026/05/06/style/tiny-modern-love-stories-i-was-drunk-when-he-told-me.html
 
