@@ -1,3 +1,11 @@
+**Attack on French Cargo Ship Highlights Continued Risks in Strait of Hormuz**\
+`U.S. Central Command and the ship’s owner disagreed on whether the vessel coordinated safe passage with the United States military.`\
+https://www.nytimes.com/2026/05/06/business/french-ship-hormuz-central-command.html
+
+**Kendall Myers, American Spy for Cuba, Dies at 88**\
+`While working for the State Department, he delivered top secret information to his Cuban handlers for 30 years. He was convicted and sentenced to life imprisonment.`\
+https://www.nytimes.com/2026/05/06/us/kendall-myers-dead.html
+
 **Man Charged With Shooting at Secret Service Near the National Mall**\
 `The suspect, a 45-year-old from Texas, faces three charges, including assaulting federal officers with a dangerous weapon.`\
 https://www.nytimes.com/2026/05/06/us/politics/secret-service-agents-shooting-national-mall.html
