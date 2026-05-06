@@ -1,3 +1,15 @@
+**La Casa Blanca insiste en que la guerra contra Irán terminó, aunque vuelen misiles**\
+`El presidente Trump intenta dejar atrás la mayor crisis política de su presidencia. Pero proclamar el fin de la guerra no lo convierte en realidad.`\
+https://www.nytimes.com/es/2026/05/06/espanol/t.html
+
+**Former Amazon Union Leader Who Was Arrested at Met Gala Has No Regrets**\
+`Christian Smalls, a longtime Amazon antagonist, was charged with trespassing and another misdemeanor, and spent 24 hours in jail. The union disavowed his actions.`\
+https://www.nytimes.com/2026/05/06/style/chris-smalls-amazon-met-gala-arrest.html
+
+**Iran Is Reviewing a U.S. Peace Proposal**\
+`Also, Ted Turner died at 87. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/05/06/briefing/iran-us-proposal-ted-turner-dies.html
+
 **Video Shows a Jet Ski Collide With a Grey Whale**\
 `Canada’s Department of Fisheries and Oceans is investigating after a person driving a jet ski struck a grey whale off the coast of Vancouver. Emergency service officials say the operator of the watercraft was transported to the hospital in serious but stable condition.`\
 https://www.nytimes.com/video/world/canada/100000010886975/whale-jet-ski-crash-video-vancouver.html
@@ -61,16 +73,4 @@ https://www.nytimes.com/2026/05/06/us/politics/jack-smith-justice-dept-trump.htm
 **U.S. Troops in Middle East Wait for the Next Big Moment**\
 `The U.S. military is essentially on standby as officials give contradictory signals about the status of the Iran war effort.`\
 https://www.nytimes.com/2026/05/06/us/politics/us-troops-iran.html
-
-**The Supreme Court Is Less Divided Than You Think**\
-`On “The Opinions,” Justice Neil Gorsuch tells the Opinion columnist David French that despite their varied backgrounds, the Supreme Court justices often find more unity than division.`\
-https://www.nytimes.com/video/opinion/100000010878540/the-supreme-court-is-less-divided-than-you-think.html
-
-**With eBay Bid, GameStop C.E.O. Baffles His Fans and Wall Street**\
-`Investors questioned Ryan Cohen’s latest gambit after he gave an evasive CNBC interview and a once-loyal supporter sold his GameStop shares.`\
-https://www.nytimes.com/2026/05/06/business/ebay-gamestop-deal-ryan-cohen.html
-
-**Jack Bass, Dean of South Carolina Political Journalism, Dies at 91**\
-`In articles and books, he wrote about the rapid racial, political and economic changes that transformed his state — and the South as a whole.`\
-https://www.nytimes.com/2026/05/06/us/politics/jack-bass-dead.html
 
