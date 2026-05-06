@@ -1,3 +1,7 @@
+**There Are More Shelter Beds Than Ever. It’s Not Enough.**\
+`Plus, how efforts to address homelessness are changing.`\
+https://www.nytimes.com/2026/05/06/headway/newsletter-shelter-beds-homelessness.html
+
 **His DNA Was Taken After His Arrest at an ICE Protest. Now, He’s Suing.**\
 `In a lawsuit, an Air Force veteran says that the federal government is sending a “chilling message” to people demonstrating the immigration crackdown.`\
 https://www.nytimes.com/2026/05/06/nyregion/dna-collection-ice-arrests-lawsuit.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/06/science/a-mutation-gave-humans-the-gift-of-sp
 **Can I Ask My Brother to Have His Racist Prison Tattoo Removed?**\
 `I know that some tattoo artists will cover white-supremacist tattoos at no cost for those who have disavowed such views.`\
 https://www.nytimes.com/2026/05/06/magazine/brother-racist-tattoo-ethics.html
-
-**El hombre que no era: 20 años después de un error televisivo en vivo**\
-`Guy Goma creyó que iba a una entrevista para un empleo cuando de pronto apareció a cuadro en la BBC. Lo que pasó después le sonará conocido a quien no haya estado listo para un trabajo.`\
-https://www.nytimes.com/es/2026/05/06/espanol/bbc-entrevista-guy-goma.html
 
