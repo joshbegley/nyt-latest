@@ -1,3 +1,11 @@
+**Suspect in Colorado Firebombing Attack Will Plead Guilty, Court Records Say**\
+`Mohamed Sabry Soliman, who was charged in an attack that injured more than a dozen people and killed one, will be sentenced to life in prison, according to court documents.`\
+https://www.nytimes.com/2026/05/05/us/suspect-colorado-firebombing-soliman-guilty-plea.html
+
+**Leave Speechless**\
+`James Mattina’s debut blooms.`\
+https://www.nytimes.com/2026/05/05/crosswords/daily-puzzle-2026-05-06.html
+
 **Trump Gets Payback on Indiana Republicans: 5 Takeaways**\
 `The president helped unseat most of the state lawmakers he targeted after they rebuffed his call to draw new House maps to help Republicans.`\
 https://www.nytimes.com/2026/05/05/us/politics/trump-indiana-takeaways.html
