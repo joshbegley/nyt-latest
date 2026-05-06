@@ -1,3 +1,7 @@
+**The Global Oil Crisis Seems to Be Helping One Industry: Renewable Energy**\
+`Sources like wind and solar can now deliver continuous power, according to a new report. And, they’re often a bargain compared with fossil fuels.`\
+https://www.nytimes.com/2026/05/06/climate/irena-renewables-energy-cost.html
+
 **Una historia de amor turca, con cárcel, poesía y una hazaña aérea**\
 `Tras una confesión forzada y una condena a muerte, un poeta kurdo pasó 30 años en la cárcel, donde descubrió su voz. Su promotora literaria, para sorpresa de todos, se convirtió en su compañera de vida.`\
 https://www.nytimes.com/es/2026/05/06/espanol/mundo/ilhan-sami-comak-poeta.html

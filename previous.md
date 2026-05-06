@@ -1,3 +1,7 @@
+**The Global Oil Crisis Seems to Be Helping One Industry: Renewable Energy**\
+`Sources like wind and solar can now deliver continuous power, according to a new report. And, they’re often a bargain compared with fossil fuels.`\
+https://www.nytimes.com/2026/05/06/climate/irena-renewables-energy-cost.html
+
 **Una historia de amor turca, con cárcel, poesía y una hazaña aérea**\
 `Tras una confesión forzada y una condena a muerte, un poeta kurdo pasó 30 años en la cárcel, donde descubrió su voz. Su promotora literaria, para sorpresa de todos, se convirtió en su compañera de vida.`\
 https://www.nytimes.com/es/2026/05/06/espanol/mundo/ilhan-sami-comak-poeta.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/06/us/illinois-state-police-ice-shooting-suburba
 **Los bisontes de Montana están en peligro de expulsión**\
 `El gobierno de Trump está desalojando a manadas de bisontes de las praderas federales, después de ponerse del lado de los ganaderos y los líderes republicanos enfrentados a los ecologistas y los líderes tribales.`\
 https://www.nytimes.com/es/2026/05/06/espanol/estados-unidos/montana-bisontes-trump.html
-
-**A Mistaken Guy: The 20-Year Legacy of a Live TV Blunder**\
-`Guy Goma thought he was interviewing for an I.T. job when he found himself on air on the BBC. What came next was familiar to anyone who has been unprepared at work.`\
-https://www.nytimes.com/2026/05/06/business/media/bbc-guy-goma-interview.html
 
