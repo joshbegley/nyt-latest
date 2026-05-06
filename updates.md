@@ -1,3 +1,7 @@
+**Democrats Keep Michigan Senate Majority With Special Election Win**\
+`Gov. Gretchen Whitmer, a Democrat, allowed the swing district seat to sit vacant for more than a year as her party clung to a slim majority.`\
+https://www.nytimes.com/2026/05/05/us/democrats-keep-michigan-senate-majority-with-special-election-win.html
+
 **Suspect in Colorado Firebombing Attack Will Plead Guilty, Court Records Say**\
 `Mohamed Sabry Soliman, who was charged in an attack that injured more than a dozen people and killed one, will be sentenced to life in prison, according to court documents.`\
 https://www.nytimes.com/2026/05/05/us/suspect-colorado-firebombing-soliman-guilty-plea.html
