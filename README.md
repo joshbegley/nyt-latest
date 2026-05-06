@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/05/06/us/politics/jack-bass-dead.html
 https://www.nytimes.com/2026/05/06/us/kash-patel-nancy-guthrie-arizona.html
 
 **U.S. Prosecutors Pull Out of Event in Sign of Rift With Legal Critics**\
-`Top federal prosecutors in New York withdrew from an annual event hosted by the city bar association, which has been critical of President Trump’s policies.`\
+`Top federal prosecutors in New York withdrew from an annual event hosted by the City Bar Association, which has been critical of President Trump’s policies.`\
 https://www.nytimes.com/2026/05/06/nyregion/nyc-bar-association-us-prosecutors-trump.html
 
 **The Moment That Bonded the Artemis II Crew Forever**\

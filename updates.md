@@ -1,3 +1,7 @@
+**U.S. Prosecutors Pull Out of Event in Sign of Rift With Legal Critics**\
+`Top federal prosecutors in New York withdrew from an annual event hosted by the city bar association, which has been critical of President Trump’s policies.`\
+https://www.nytimes.com/2026/05/06/nyregion/nyc-bar-association-us-prosecutors-trump.html
+
 **With eBay Bid, GameStop C.E.O. Baffles His Fans and Wall Street**\
 `Investors questioned Ryan Cohen’s latest gambit after he gave an evasive CNBC interview and a once-loyal supporter sold his GameStop shares.`\
 https://www.nytimes.com/2026/05/06/business/ebay-gamestop-deal-ryan-cohen.html

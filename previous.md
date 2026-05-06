@@ -10,8 +10,8 @@ https://www.nytimes.com/2026/05/06/us/politics/jack-bass-dead.html
 `Kash Patel went after local authorities on a podcast, saying the F.B.I. was kept out of the investigation for days. Sheriff Chris Nanos has denied that claim.`\
 https://www.nytimes.com/2026/05/06/us/kash-patel-nancy-guthrie-arizona.html
 
-**U.S. Prosecutors Pull Out of Event in Sign of Rift With Legal Profession**\
-`Top federal prosecutors in New York withdrew from an annual event hosted by the local bar association, which has been critical of President Trump’s policies.`\
+**U.S. Prosecutors Pull Out of Event in Sign of Rift With Legal Critics**\
+`Top federal prosecutors in New York withdrew from an annual event hosted by the city bar association, which has been critical of President Trump’s policies.`\
 https://www.nytimes.com/2026/05/06/nyregion/nyc-bar-association-us-prosecutors-trump.html
 
 **The Moment That Bonded the Artemis II Crew Forever**\
