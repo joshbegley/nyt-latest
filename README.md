@@ -1,3 +1,11 @@
+**In Romania, Living With Weapons of War Spilling Into NATO Territory**\
+`Four years of battle in Ukraine is taking a toll on neighboring Romanians. Even if the war has not crossed the border, drones have done so.`\
+https://www.nytimes.com/2026/05/06/world/europe/ukraine-russia-romania-drones-nato-drone-wall.html
+
+**California Governor’s Race Heats Up on Crowded Debate Stage**\
+`Attacks got personal as California’s top seven candidates for governor faced off on Tuesday ahead of the primary on June 2.`\
+https://www.nytimes.com/video/us/elections/100000010885688/california-governor-debate-cnn-race.html
+
 **John Roberts Believes in an America That Doesn’t Exist**\
 `Guess who benefits from a “colorblind Constitution.”`\
 https://www.nytimes.com/2026/05/06/opinion/callais-voting-rights-act-discrimination.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/06/business/ai-bristol-myers-squibb-drugs.html
 **The ‘Color Countess’ on Finding the Perfect White for Your Wedding**\
 `Megan Bentley, a color analyst, shares how identifying your color season, the hues that are most complementary or flattering, can elevate your wedding wardrobe.`\
 https://www.nytimes.com/2026/05/06/style/wedding-dress-white-bridal-color-analysis.html
-
-**TikTok Has Discovered Tae Bo, the Beloved ’90s Workout**\
-`A younger generation is embracing the nostalgic fitness craze.`\
-https://www.nytimes.com/2026/05/06/well/move/tae-bo-workout-tiktok.html
-
-**‘Serial Mom’: The Mother’s Day Movie for Our Times**\
-`In this parody of the true crime genre, a mother with murderous tendencies reflects on the hard work and thankless sacrifices that go into parenting.`\
-https://www.nytimes.com/2026/05/06/movies/serial-mom-mothers-day-movie.html
 
