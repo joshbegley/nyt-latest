@@ -1,3 +1,23 @@
+**5 Takeaways From the California Gubernatorial Debate**\
+`Seven candidates sparred in the first nationally televised debate in the 2026 California governor’s race. Many tried to launch attacks in a last-ditch effort to gain ground on their opponents.`\
+https://www.nytimes.com/2026/05/06/us/elections/california-governor-debate-cnn-takeaways.html
+
+**Late Night Cringes at Trump’s Chatter in Front of Children**\
+`“How are you talking about nuclear war in front of children?” Desi Lydic asked after the president discussed the Iran conflict in a room full of students on Tuesday.`\
+https://www.nytimes.com/2026/05/06/arts/television/late-night-trump-war-children.html
+
+**China Meets Iranian Official as U.S. Demands Strait of Hormuz Open**\
+`China’s top diplomat was meeting with Iran’s foreign minister, the first senior Iranian official to visit Beijing since the war began.`\
+https://www.nytimes.com/2026/05/06/world/asia/china-iran-us-trump-hormuz.html
+
+**Palabra del día: ‘attest’**\
+`Esta palabra ha aparecido en 105 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
+https://www.nytimes.com/es/2026/05/06/espanol/que-significa-attest.html
+
+**Word of the Day: attest**\
+`This word has appeared in 105 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/05/06/learning/word-of-the-day-attest.html
+
 **La Casa Blanca considera supervisar los modelos de IA antes de su lanzamiento**\
 `El gobierno de EE. UU. debate una orden ejecutiva para crear un grupo de trabajo que reúna a ejecutivos tecnológicos y funcionarios del gobierno para examinar procedimientos de supervisión.`\
 https://www.nytimes.com/es/2026/05/06/espanol/estados-unidos/modelos-ia-regulacion.html
@@ -57,24 +77,4 @@ https://www.nytimes.com/2026/05/05/crosswords/daily-puzzle-2026-05-06.html
 **Trump Gets Payback on Indiana Republicans: 5 Takeaways**\
 `The president helped unseat most of the state lawmakers he targeted after they rebuffed his call to draw new House maps to help Republicans.`\
 https://www.nytimes.com/2026/05/05/us/politics/trump-indiana-takeaways.html
-
-**U.S. Military Strikes Boat in Eastern Pacific, Killing 3**\
-`The attack was the second in two days, and the latest in an ongoing campaign against people the United States says are engaged in drug smuggling at sea.`\
-https://www.nytimes.com/2026/05/05/us/politics/trump-boat-strike.html
-
-**Ex-ICE Deputy Falls Short in Republican House Primary in Ohio**\
-`Madison Sheahan, whose candidacy promised to test how general-election voters viewed President Trump’s immigration agenda, lost to a rival who billed himself as a “MAGA Republican.”`\
-https://www.nytimes.com/2026/05/05/us/elections/ice-madison-sheahan-ohio-house-derek-merrin-josh-williams.html
-
-**Pro-Palestinian and Pro-Israel Demonstrators Rally Outside Synagogue**\
-`For the second time in six months, protesters gathered outside Park East Synagogue, which was holding an event to promote real estate sales in Israel. A heavy police presence kept the two groups apart.`\
-https://www.nytimes.com/2026/05/05/nyregion/nyc-synagogue-protests-israel-real-estate.html
-
-**White House Insists Iran War Is Over, Even While Missiles Fly**\
-`The White House is turning to rhetorical leaps as President Trump tries to put the biggest political crisis of his presidency behind him.`\
-https://www.nytimes.com/2026/05/05/us/politics/trump-iran-war-political-crisis-rhetoric.html
-
-**A Protest Atop a Bridge Grabs Washington’s Attention**\
-`For five days, a 45-year-old former jeweler has camped on top of the Frederick Douglass Memorial Bridge, drawing a mix of support, disapproval and concern.`\
-https://www.nytimes.com/2026/05/05/us/protester-dc-frederick-douglass-memorial-bridge.html
 
