@@ -1,3 +1,7 @@
+**Should You Worry About Hantavirus?**\
+`Here’s what to know about the virus, how it spreads and the risk to the general public.`\
+https://www.nytimes.com/2026/05/06/well/hantavirus-symptoms-strains.html
+
 **Crossing Guard Is Fatally Hit by Car in New Jersey While Escorting Children**\
 `Jean Schultz, 80, had been a crossing guard in Woodland Park since 2022. She died after she was struck by a vehicle on Monday, the authorities said.`\
 https://www.nytimes.com/2026/05/06/nyregion/new-jersey-crossing-guard-killed.html
