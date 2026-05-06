@@ -1,80 +1,80 @@
+**John Roberts Believes in an America That Doesn’t Exist**\
+`Guess who benefits from a “colorblind Constitution.”`\
+https://www.nytimes.com/2026/05/06/opinion/callais-voting-rights-act-discrimination.html
+
+**Did the Artemis II Crew Feel Lonely in Space?**\
+`The Artemis II astronauts reflect on how it felt to be 250,000 miles from Earth, and what seeing our planet reduced to the size of a thumbnail did to their sense of perspective.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000010884743/did-the-artemis-ii-crew-feel-lonely-in-space.html
+
+**House Democrats’ Primary Endorsements Divide the Party**\
+`The Democratic Congressional Campaign Committee’s intervention in contested primaries in critical House races has highlighted deep divides over the party’s tactics and its future.`\
+https://www.nytimes.com/2026/05/06/us/politics/house-democrats-primary-endorsements.html
+
+**We’ll Miss OPEC When It’s Gone**\
+`If OPEC can’t manage oil markets, the world is in for a wild ride.`\
+https://www.nytimes.com/2026/05/06/opinion/opec-oil-markets-trump.html
+
+**The Artemis II Crew Takes Your Children’s Questions**\
+`The Artemis II crew flew farther from Earth than any humans in history. They join Rachel Abrams of “The Daily” to answer questions from children about what that trip was like.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000010879218/artemis-ii-space-interview-the-daily.html
+
+**Fare Enforcers Are Coming to New York City Buses**\
+`With fare evasion rampant, enforcement teams will use hand-held devices to see if riders actually paid to ride the bus.`\
+https://www.nytimes.com/2026/05/06/nyregion/fare-enforcers-buses-nyc.html
+
 **‘Not a Perfect Union’: Neil Gorsuch on America at 250**\
 `David French and the Supreme Court justice discuss how the ideals of 1776 shaped — and strain — the country today.`\
-https://www.nytimes.com/video/opinion/100000010878538/not-a-perfect-union-neil-gorsuch-on-america-at-250.html
+https://www.nytimes.com/2026/05/06/opinion/neil-gorsuch-america-250-supreme-court.html
 
-**The Global Oil Crisis Seems to Be Helping One Industry: Renewable Energy**\
-`Sources like wind and solar can now deliver continuous power, according to a new report. And, they’re often a bargain compared with fossil fuels.`\
-https://www.nytimes.com/2026/05/06/climate/irena-renewables-energy-cost.html
+**Isabel Allende and Her Mother Told Each Other (Almost) Everything**\
+`The novelist and her mom connected through writing letters. Over 24,000 of them.`\
+https://www.nytimes.com/2026/05/06/podcasts/isabel-allende-author-mother-letters.html
 
-**Una historia de amor turca, con cárcel, poesía y una hazaña aérea**\
-`Tras una confesión forzada y una condena a muerte, un poeta kurdo pasó 30 años en la cárcel, donde descubrió su voz. Su promotora literaria, para sorpresa de todos, se convirtió en su compañera de vida.`\
-https://www.nytimes.com/es/2026/05/06/espanol/mundo/ilhan-sami-comak-poeta.html
+**Celebrating Jane Austen’s Awkward, Lovable Middle Sister**\
+`Revisiting “Pride and Prejudice” from Mary Bennet’s point of view, “The Other Bennet Sister” from BritBox offers a different type of onscreen heroine.`\
+https://www.nytimes.com/2026/05/06/arts/television/the-other-bennet-sister-bbc-britbox.html
 
-**La solución infalible que Trump busca para poner fin a la guerra de Irán tal vez no exista**\
-`El presidente de EE. UU. intenta aumentar la presión económica sobre Teherán, pero es poco probable que el gobierno iraní acepte negociar sin un acuerdo significativo y digno.`\
-https://www.nytimes.com/es/2026/05/06/espanol/mundo/iran-guerra-tregua-trump.html
+**$600,000 Homes in Florida, Connecticut and Colorado**\
+`A 1920s house in Gainesville, Fla., an 18th-century farmhouse in North Stonington, Conn., and a Queen Anne Revival in Grand Junction, Colo.`\
+https://www.nytimes.com/2026/05/06/realestate/homes-for-sale-in-florida-connecticut-colorado.html
 
-**The Met Gala**\
-`What were your favorite and least favorite looks at this year’s event?`\
-https://www.nytimes.com/2026/05/06/learning/the-met-gala.html
+**Revenge, Served Two Ways: Cold in ‘Othello’ and Lukewarm in ‘Hamlet’**\
+`Shakespeare’s brooding prince comes off as bored at the Brooklyn Academy of Music. But Bedlam’s lean production of “Othello” is positively thrilling.`\
+https://www.nytimes.com/2026/05/06/theater/othello-bedlam-hamlet-bam.html
 
-**Pollution Worsened in South Bronx After Congestion Tolls, Study Finds**\
-`Columbia University researchers said that sensors detected a 2 percent increase in toxic particles in the air. M.T.A. officials disputed the report.`\
-https://www.nytimes.com/2026/05/06/nyregion/congestion-pricing-air-quality-south-bronx.html
+**Homes for Sale in Manhattan and Queens**\
+`This week’s properties are in South Harlem, on the Upper West Side and in Bay Terrace.`\
+https://www.nytimes.com/2026/05/06/realestate/housing-market-nyc.html
 
-**A Writer With a Healthy Appetite, and a Love of New York City**\
-`To cover the city’s evolving food scene, Luke Fortney relies on his curiosity, and an assortment of fermented dishes.`\
-https://www.nytimes.com/2026/05/06/insider/luke-fortney-food-reporting.html
+**TV Is Changing Its Approach to ‘the Change’**\
+`Sitcoms have long treated menopause as a punchline, but newer series like “Your Friends & Neighbors” and “Riot Women” depict it as a matter-of-fact part of women’s lives.`\
+https://www.nytimes.com/2026/05/06/arts/television/tv-shows-menopause-representation.html
 
-**Trial Begins for Man Accused of Running Secret Police Outpost for China**\
-`Lu Jianwang, a U.S. citizen, is accused of working on behalf of the Chinese government to target dissidents. A co-defendant has pleaded guilty.`\
-https://www.nytimes.com/2026/05/06/nyregion/china-agent-secret-police-trial.html
+**Homes for Sale in Connecticut and New York**\
+`This week’s properties are a four-bedroom in Redding, Conn., and a three-bedroom in Long Beach, N.Y.`\
+https://www.nytimes.com/2026/05/06/realestate/housing-market-near-nyc.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/05/06/crosswords/spelling-bee-forum.html
+**Khaled Sabsabi’s Rocky Road From Australia to the Biennale**\
+`The Lebanese-Australian artist almost lost his Venice Biennale commission after he was accused of supporting terrorism. Reinstated, he is arriving in Venice showing not one but two works.`\
+https://www.nytimes.com/2026/05/06/arts/design/khaled-sabsabi-australia-venice-biennale.html
 
-**5 Takeaways From the California Gubernatorial Debate**\
-`Seven candidates sparred in the first nationally televised debate in the 2026 California governor’s race. Many tried to launch attacks in a last-ditch effort to gain ground on their opponents.`\
-https://www.nytimes.com/2026/05/06/us/elections/california-governor-debate-cnn-takeaways.html
+**What Autocracy Feels Like: the View From One Turkish Neighborhood**\
+`In a new book, the journalist Suzy Hansen plumbs an Istanbul community for insights into Turkey’s hard-right turn.`\
+https://www.nytimes.com/2026/05/06/books/review/from-life-itself-suzy-hansen.html
 
-**Late Night Cringes at Trump’s Chatter in Front of Children**\
-`“How are you talking about nuclear war in front of children?” Desi Lydic asked after the president discussed the Iran conflict in a room full of students on Tuesday.`\
-https://www.nytimes.com/2026/05/06/arts/television/late-night-trump-war-children.html
+**American Factories Lag in Adopting A.I. This Drugmaker Is an Exception.**\
+`A Bristol Myers Squibb plant that makes cancer drugs was the only manufacturer in the U.S. recognized for innovation by the World Economic Forum this year.`\
+https://www.nytimes.com/2026/05/06/business/ai-bristol-myers-squibb-drugs.html
 
-**China Meets Iranian Official as U.S. Demands Strait of Hormuz Open**\
-`China’s top diplomat was meeting with Iran’s foreign minister, the first senior Iranian official to visit Beijing since the war began.`\
-https://www.nytimes.com/2026/05/06/world/asia/china-iran-us-trump-hormuz.html
+**The ‘Color Countess’ on Finding the Perfect White for Your Wedding**\
+`Megan Bentley, a color analyst, shares how identifying your color season, the hues that are most complementary or flattering, can elevate your wedding wardrobe.`\
+https://www.nytimes.com/2026/05/06/style/wedding-dress-white-bridal-color-analysis.html
 
-**Palabra del día: ‘attest’**\
-`Esta palabra ha aparecido en 105 artículos en NYTimes.com en el último año. ¿Puedes usarla en una frase?`\
-https://www.nytimes.com/es/2026/05/06/espanol/que-significa-attest.html
+**TikTok Has Discovered Tae Bo, the Beloved ’90s Workout**\
+`A younger generation is embracing the nostalgic fitness craze.`\
+https://www.nytimes.com/2026/05/06/well/move/tae-bo-workout-tiktok.html
 
-**Word of the Day: attest**\
-`This word has appeared in 105 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/05/06/learning/word-of-the-day-attest.html
-
-**La Casa Blanca considera supervisar los modelos de IA antes de su lanzamiento**\
-`El gobierno de EE. UU. debate una orden ejecutiva para crear un grupo de trabajo que reúna a ejecutivos tecnológicos y funcionarios del gobierno para examinar procedimientos de supervisión.`\
-https://www.nytimes.com/es/2026/05/06/espanol/estados-unidos/modelos-ia-regulacion.html
-
-**Cómo la IA está transformando la industria china del entretenimiento**\
-`El apogeo de los dramas generados por IA ha provocado protestas. Los actores afirman que les quita oportunidades y algunos videos usan imágenes de celebridades sin autorización.`\
-https://www.nytimes.com/es/2026/05/06/espanol/mundo/ia-industria-entretenimiento-china.html
-
-**My Father Wrote Letters to the Cuban Government. Here Is Mine.**\
-`Please do not take the fact that I am writing this letter to you as a defense of U.S. policy toward Cuba, much less a call for American intervention.`\
-https://www.nytimes.com/2026/05/06/opinion/cuba-president-diaz-canel.html
-
-**French Literature Is in an Uproar**\
-`Changes at a famous French publishing house tell us a lot about the world we live in now.`\
-https://www.nytimes.com/2026/05/06/opinion/french-publishing-grasset-olivier-nora.html
-
-**Oil Falls and Stocks Gain as Trump Changes Course in Strait of Hormuz**\
-`Oil prices fell and stocks rose after President Trump’s about-face to pause the U.S. operation to escort commercial ships through the Strait of Hormuz`\
-https://www.nytimes.com/2026/05/06/business/oil-gas-price-iran.html
-
-**Illinois State Police to Investigate Fatal ICE Shooting**\
-`Officials said they were examining the shooting of Silverio Villegas-Gonzalez last summer during a Chicago-area crackdown on illegal immigration.`\
-https://www.nytimes.com/2026/05/06/us/illinois-state-police-ice-shooting-suburban-chicago.html
+**‘Serial Mom’: The Mother’s Day Movie for Our Times**\
+`In this parody of the true crime genre, a mother with murderous tendencies reflects on the hard work and thankless sacrifices that go into parenting.`\
+https://www.nytimes.com/2026/05/06/movies/serial-mom-mothers-day-movie.html
 
