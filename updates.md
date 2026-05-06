@@ -1,3 +1,7 @@
+**California Gubernatorial Candidates Prepare for Another Crucial Debate Tonight**\
+`Seven candidates in the California governor’s race will face off at a debate hosted by NBC Los Angeles. The New York Times will livestream the event.`\
+https://www.nytimes.com/2026/05/06/us/california-governor-debate-newsletter.html
+
 **Moguls Remember Ted Turner: ‘Changed the Media Industry Forever’**\
 `The CNN founder’s death was met with encomiums from leaders in the media industry, which he helped reinvent. “He will be remembered for generations,” said one.`\
 https://www.nytimes.com/2026/05/06/business/media/ted-turner-death-cnn-media-reaction.html

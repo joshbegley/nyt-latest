@@ -1,3 +1,7 @@
+**How the Fight Over Israel Is Playing Out Inside MAGA**\
+`The war in Iran has added to a tectonic shift in public opinion — a bipartisan swing away from Israel. Some on the far-right are fighting to keep President Trump’s movement aligned with the Jewish state.`\
+https://www.nytimes.com/2026/05/06/us/politics/israel-maga-republicans.html
+
 **California Gubernatorial Candidates Prepare for Another Crucial Debate Tonight**\
 `Seven candidates in the California governor’s race will face off at a debate hosted by NBC Los Angeles. The New York Times will livestream the event.`\
 https://www.nytimes.com/2026/05/06/us/california-governor-debate-newsletter.html
@@ -27,7 +31,7 @@ https://www.nytimes.com/interactive/polls/washington-dc-shadow-representative-po
 https://www.nytimes.com/2026/05/06/headway/newsletter-shelter-beds-homelessness.html
 
 **His DNA Was Taken After His Arrest at an ICE Protest. Now, He’s Suing.**\
-`In a lawsuit, an Air Force veteran says that the federal government is sending a “chilling message” to people demonstrating the immigration crackdown.`\
+`In a lawsuit, an Air Force veteran says that the federal government is sending a “chilling message” to people demonstrating against the immigration crackdown.`\
 https://www.nytimes.com/2026/05/06/nyregion/dna-collection-ice-arrests-lawsuit.html
 
 **New York 21st Congressional District 2026: Latest Polls**\
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/06/world/middleeast/irans-oil-capacity-blockade.
 **5 Notable Moments From Obama’s Interview With Colbert**\
 `The former president was critical of President Trump, without ever naming him. Mr. Obama also urged Democrats to be plain-spoken, and talked about aliens.`\
 https://www.nytimes.com/2026/05/06/us/obama-colbert-interview-trump.html
-
-**Ted Turner, creador de CNN y del ciclo de noticias de 24 horas, muere a los 87 años**\
-`Pionero de los medios de comunicación del siglo XX, dirigió un vasto imperio de noticias, deportes y entretenimiento.`\
-https://www.nytimes.com/es/2026/05/06/espanol/muere-ted-turner.html
 

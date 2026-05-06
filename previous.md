@@ -1,3 +1,7 @@
+**California Gubernatorial Candidates Prepare for Another Crucial Debate Tonight**\
+`Seven candidates in the California governor’s race will face off at a debate hosted by NBC Los Angeles. The New York Times will livestream the event.`\
+https://www.nytimes.com/2026/05/06/us/california-governor-debate-newsletter.html
+
 **Moguls Remember Ted Turner: ‘Changed the Media Industry Forever’**\
 `The CNN founder’s death was met with encomiums from leaders in the media industry, which he helped reinvent. “He will be remembered for generations,” said one.`\
 https://www.nytimes.com/2026/05/06/business/media/ted-turner-death-cnn-media-reaction.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/06/us/obama-colbert-interview-trump.html
 **Ted Turner, creador de CNN y del ciclo de noticias de 24 horas, muere a los 87 años**\
 `Pionero de los medios de comunicación del siglo XX, dirigió un vasto imperio de noticias, deportes y entretenimiento.`\
 https://www.nytimes.com/es/2026/05/06/espanol/muere-ted-turner.html
-
-**Protester Who Spent 6 Days Perched Atop Bridge in Washington Comes Down**\
-`Guido Reichstadter, a 45-year-old former jeweler, began sitting atop the Frederick Douglass Memorial Bridge on May 1 to protest A.I. development and the war in Iran.`\
-https://www.nytimes.com/2026/05/06/us/guido-reichstadter-frederick-douglass-memorial-bridge.html
 
