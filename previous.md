@@ -1,3 +1,7 @@
+**New Study Shows Risks of Amazon Deforestation. And Rewards of Protection.**\
+`Researchers examined the combined effects of tree loss and global warming in an effort to better understand how and when an ecosystem collapse could unfold.`\
+https://www.nytimes.com/2026/05/06/climate/amazon-rain-forest-deforestation-climate.html
+
 **Tiny Love Stories: ‘I Could Feel Him Watching Me’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/05/06/style/tiny-modern-love-stories-i-was-drunk-when-he-told-me.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/polls/new-york-us-house-7-polls-2026.html
 **New York Fourth Congressional District 2026: Latest Polls**\
 `Track the latest polls in New York's 4th Congressional District.`\
 https://www.nytimes.com/interactive/polls/new-york-us-house-4-polls-2026.html
-
-**F.B.I. Agents Raid Virginia Politician’s Office**\
-`Two people familiar with the case said the search of a Democratic lawmaker’s office was related to a Biden-era investigation of possible corruption and bribery related to marijuana businesses.`\
-https://www.nytimes.com/2026/05/06/us/politics/louise-lucas-fbi-raid.html
 
