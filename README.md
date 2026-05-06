@@ -1,3 +1,7 @@
+**Trump’s Gyrations on the War Leave Even Rubio Out of Sync**\
+`The administration’s latest shifts on the status of the conflict show how treacherous it is to speak for a president who cultivates an erratic style.`\
+https://www.nytimes.com/2026/05/06/us/politics/trump-rubio-iran-war.html
+
 **The Boxing Match That Killed a Police Recruit**\
 `A Massachusetts State Police cadet, already hobbled from a previous bout, raised his hand to take on a more skilled fighter, and investigators say no one stopped him. Four people face charges.`\
 https://www.nytimes.com/2026/05/06/us/massachusetts-state-troopers-charged-boxing-match-death.html
@@ -23,7 +27,7 @@ https://www.nytimes.com/video/podcasts/100000010887368/lady-gaga-and-doechii-str
 https://www.nytimes.com/es/2026/05/06/espanol/muere-kendall-myers-espia-cuba.html
 
 **Elon Musk’s Confidante Is Cast as His Inside Source at OpenAI**\
-`Shivon Zilis worked closely with Elon Musk while she was on OpenAI’s board of directors. Her ties to the world’s richest man were detailed in a landmark trial on Wednesday.`\
+`Shivon Zilis worked closely with Elon Musk while she was on OpenAI’s board. Her ties to the world’s richest man were detailed in a landmark trial on Wednesday.`\
 https://www.nytimes.com/2026/05/06/technology/elon-musk-shivon-zilis-openai-trial.html
 
 **Giuliani Seeks to Have Health Care Covered by 9/11 Program**\
@@ -69,8 +73,4 @@ https://www.nytimes.com/video/world/canada/100000010886975/whale-jet-ski-crash-v
 **Air-Conditioning Is in Short Supply as Asia Swelters**\
 `From classrooms to crowded buses, people across South and Southeast Asia are adjusting to life with less cooling — or none at all — as the war in Iran drives an energy crunch.`\
 https://www.nytimes.com/2026/05/06/world/asia/asia-heatwave-air-conditioning-fuel-crisis.html
-
-**George Herms Dies at 90; Turned Castoff Objects Into Art**\
-`One of the last Beat Generation artists, he embraced the messiness of everyday life, making collages and assemblages from rusty junk and decaying objects.`\
-https://www.nytimes.com/2026/05/06/arts/george-herms-dead.html
 
