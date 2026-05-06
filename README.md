@@ -1,3 +1,15 @@
+**Justin Wolfers, Cable’s Favorite Economist, Joins the Creator Economy**\
+`With his crisp breakdowns of President Trump’s trade moves and distinctive Aussie accent, Mr. Wolfers has become a TV constant. Now he’s starting his own media company.`\
+https://www.nytimes.com/2026/05/06/business/dealbook/justin-wolfers-media-company.html
+
+**The New York Times Passes 13 Million Subscribers**\
+`The company’s adjusted operating profit hit $117.9 million in the quarter, up 27.2 percent from a year earlier, on revenue of $712.2 million.`\
+https://www.nytimes.com/2026/05/06/business/media/new-york-times-earnings.html
+
+**The Cruise From Hell**\
+`We look into the hantavirus crisis onboard the Hondius.`\
+https://www.nytimes.com/2026/05/06/briefing/the-cruise-from-hell.html
+
 **¿Puede Trump doblegar a Irán?**\
 `El presidente de Estados Unidos parece estar buscando una solución infalible para poner fin a la guerra, pero podría no existir ninguna.`\
 https://www.nytimes.com/es/2026/05/06/espanol/mundo/trump-guerra-iran.html
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/06/opinion/neil-gorsuch-america-250-supreme-cour
 **Isabel Allende and Her Mother Told Each Other (Almost) Everything**\
 `The novelist and her mom connected through writing letters. Over 24,000 of them.`\
 https://www.nytimes.com/2026/05/06/podcasts/isabel-allende-author-mother-letters.html
-
-**Celebrating Jane Austen’s Awkward, Lovable Middle Sister**\
-`Revisiting “Pride and Prejudice” from Mary Bennet’s point of view, “The Other Bennet Sister” from BritBox offers a different type of onscreen heroine.`\
-https://www.nytimes.com/2026/05/06/arts/television/the-other-bennet-sister-bbc-britbox.html
-
-**$600,000 Homes in Florida, Connecticut and Colorado**\
-`A 1920s house in Gainesville, Fla., an 18th-century farmhouse in North Stonington, Conn., and a Queen Anne Revival in Grand Junction, Colo.`\
-https://www.nytimes.com/2026/05/06/realestate/homes-for-sale-in-florida-connecticut-colorado.html
-
-**Revenge, Served Two Ways: Cold in ‘Othello’ and Lukewarm in ‘Hamlet’**\
-`Shakespeare’s brooding prince comes off as bored at the Brooklyn Academy of Music. But Bedlam’s lean production of “Othello” is positively thrilling.`\
-https://www.nytimes.com/2026/05/06/theater/othello-bedlam-hamlet-bam.html
 
