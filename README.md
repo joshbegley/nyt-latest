@@ -1,3 +1,7 @@
+**Kendall Myers, estadounidense que espiaba para Cuba, muere a los 88 años**\
+`Mientras trabajaba para el Departamento de Estado, entregó información ultrasecreta a sus contactos cubanos durante 30 años. Fue condenado a cadena perpetua.`\
+https://www.nytimes.com/es/2026/05/06/espanol/muere-kendall-myers-espia-cuba.html
+
 **Elon Musk’s Confidante Is Cast as His Inside Source at OpenAI**\
 `Shivon Zilis worked closely with Elon Musk while she was on OpenAI’s board of directors. Her ties to the world’s richest man were detailed in a landmark trial on Wednesday.`\
 https://www.nytimes.com/2026/05/06/technology/elon-musk-shivon-zilis-openai-trial.html
@@ -69,8 +73,4 @@ https://www.nytimes.com/video/world/asia/100000010886997/robot-monk-gabi-south-k
 **Iran War Looms Over Vance as He Visits Iowa**\
 `The vice president, a skeptic of the war, made his first visit of the cycle to the state that will kick off the 2028 nominating process.`\
 https://www.nytimes.com/2026/05/06/us/politics/jd-vance-iowa-2028.html
-
-**Tomato and Orzo Soup With Marinated Feta**\
-`This is an easy tomato soup to whip up when tomatoes are out of season and tomato paste is in your pantry.`\
-https://www.nytimes.com/video/dining/100000010884560/tomato-and-orzo-soup-with-marinated-feta.html
 
