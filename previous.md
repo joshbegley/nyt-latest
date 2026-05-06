@@ -1,3 +1,7 @@
+**Oil Falls and Stocks Gain as Trump Changes Course in Strait of Hormuz**\
+`Oil prices fell and stocks rose after President Trump’s about-face to pause the U.S. operation to escort commercial ships through the Strait of Hormuz`\
+https://www.nytimes.com/2026/05/06/business/oil-gas-price-iran.html
+
 **Illinois State Police to Investigate Fatal ICE Shooting**\
 `Officials said they were examining the shooting of Silverio Villegas-Gonzalez last summer during a Chicago-area crackdown on illegal immigration.`\
 https://www.nytimes.com/2026/05/06/us/illinois-state-police-ice-shooting-suburban-chicago.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/05/business/media/avatar-ai-lawsuit.html
 **Vance Campaigns in Iowa as G.O.P. Fears Rise Ahead of Midterms**\
 `The vice president acknowledged economic headwinds, including rising energy and fertilizer costs. “We got a little — a little blip in the Middle East,” he said, referring to the war in Iran.`\
 https://www.nytimes.com/2026/05/05/us/politics/jd-vance-iowa.html
-
-**Venezuela tiene el camino libre para empezar a reestructurar su deuda**\
-`El país debe devolver 60.000 millones de dólares en bonos impagados mientras intenta estabilizar su economía.`\
-https://www.nytimes.com/es/2026/05/05/espanol/estados-unidos/venezuela-deuda.html
 

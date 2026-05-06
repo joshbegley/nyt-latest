@@ -1,3 +1,7 @@
+**Oil Falls and Stocks Gain as Trump Changes Course in Strait of Hormuz**\
+`Oil prices fell and stocks rose after President Trump’s about-face to pause the U.S. operation to escort commercial ships through the Strait of Hormuz`\
+https://www.nytimes.com/2026/05/06/business/oil-gas-price-iran.html
+
 **Illinois State Police to Investigate Fatal ICE Shooting**\
 `Officials said they were examining the shooting of Silverio Villegas-Gonzalez last summer during a Chicago-area crackdown on illegal immigration.`\
 https://www.nytimes.com/2026/05/06/us/illinois-state-police-ice-shooting-suburban-chicago.html
