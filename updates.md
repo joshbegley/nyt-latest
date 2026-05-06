@@ -1,3 +1,11 @@
+**Moguls Remember Ted Turner: ‘Changed the Media Industry Forever’**\
+`The CNN founder’s death was met with encomiums from leaders in the media industry, which he helped reinvent. “He will be remembered for generations,” said one.`\
+https://www.nytimes.com/2026/05/06/business/media/ted-turner-death-cnn-media-reaction.html
+
+**The Ultimate ‘It’ Spot in Caracas? A Marriott That’s Seen Better Days.**\
+`The J.W. Marriott in Venezuela’s capital is suddenly awash in U.S. diplomats, spies and fortune seekers, showcasing changes in the country.`\
+https://www.nytimes.com/2026/05/06/world/americas/venezuela-caracas-us-embassy-marriott-hotel.html
+
 **The Ultimate ‘It’ Spot in Caracas? A Marriott That’s Seen Better Days**\
 `The J.W. Marriott in Venezuela’s capital is suddenly awash in U.S. diplomats, spies and fortune seekers, showcasing changes in the country.`\
 https://www.nytimes.com/2026/05/06/world/americas/venezuela-caracas-us-embassy-marriott-hotel.html

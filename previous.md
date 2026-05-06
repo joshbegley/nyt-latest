@@ -1,4 +1,8 @@
-**The Ultimate ‘It’ Spot in Caracas? A Marriott That’s Seen Better Days**\
+**Moguls Remember Ted Turner: ‘Changed the Media Industry Forever’**\
+`The CNN founder’s death was met with encomiums from leaders in the media industry, which he helped reinvent. “He will be remembered for generations,” said one.`\
+https://www.nytimes.com/2026/05/06/business/media/ted-turner-death-cnn-media-reaction.html
+
+**The Ultimate ‘It’ Spot in Caracas? A Marriott That’s Seen Better Days.**\
 `The J.W. Marriott in Venezuela’s capital is suddenly awash in U.S. diplomats, spies and fortune seekers, showcasing changes in the country.`\
 https://www.nytimes.com/2026/05/06/world/americas/venezuela-caracas-us-embassy-marriott-hotel.html
 
@@ -73,8 +77,4 @@ https://www.nytimes.com/es/2026/05/06/espanol/muere-ted-turner.html
 **Protester Who Spent 6 Days Perched Atop Bridge in Washington Comes Down**\
 `Guido Reichstadter, a 45-year-old former jeweler, began sitting atop the Frederick Douglass Memorial Bridge on May 1 to protest A.I. development and the war in Iran.`\
 https://www.nytimes.com/2026/05/06/us/guido-reichstadter-frederick-douglass-memorial-bridge.html
-
-**Conservative Group’s Influence Inside the State Department Raises Alarms**\
-`Founders of the Ben Franklin Fellowship are trying to dismantle pro-diversity practices in the agency and to boost career diplomats who promote President Trump’s ideas.`\
-https://www.nytimes.com/2026/05/06/us/politics/conservative-groups-influence-inside-the-state-department-raises-alarms.html
 
