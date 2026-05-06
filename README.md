@@ -1,3 +1,7 @@
+**Inside the Debate About Drastically Expanding Trump Accounts**\
+`Trump administration officials are weighing a plan that would allow wealthy individuals to donate shares in their companies to the investment accounts.`\
+https://www.nytimes.com/2026/05/06/business/dealbook/stocks-trump-accounts.html
+
 **Justin Wolfers, Cable’s Favorite Economist, Joins the Creator Economy**\
 `With his crisp breakdowns of President Trump’s trade moves and distinctive Aussie accent, Mr. Wolfers has become a TV constant. Now he’s starting his own media company.`\
 https://www.nytimes.com/2026/05/06/business/dealbook/justin-wolfers-media-company.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/06/nyregion/fare-enforcers-buses-nyc.html
 **‘Not a Perfect Union’: Neil Gorsuch on America at 250**\
 `David French and the Supreme Court justice discuss how the ideals of 1776 shaped — and strain — the country today.`\
 https://www.nytimes.com/2026/05/06/opinion/neil-gorsuch-america-250-supreme-court.html
-
-**Isabel Allende and Her Mother Told Each Other (Almost) Everything**\
-`The novelist and her mom connected through writing letters. Over 24,000 of them.`\
-https://www.nytimes.com/2026/05/06/podcasts/isabel-allende-author-mother-letters.html
 
