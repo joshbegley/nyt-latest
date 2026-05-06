@@ -1,3 +1,15 @@
+**Spring on a Sheet Pan**\
+`A mix of preserved lemon and butter makes the chicken extra golden and crisp, while peas and radishes roast alongside and turn tender and sweet.`\
+https://www.nytimes.com/2026/05/06/dining/spring-on-a-sheet-pan.html
+
+**My Art Will Go On: Titanic Artifacts May Soon Be Auctioned**\
+`The last time a sale was proposed, the idea drew objections from the U.S. and French governments, and from UNESCO and other cultural institutions.`\
+https://www.nytimes.com/2026/05/06/us/titanic-artifacts-auction-sale.html
+
+**Neil deGrasse Tyson: Give Us the Aliens**\
+`Is that too much to ask for?`\
+https://www.nytimes.com/2026/05/06/opinion/alien-files-trump-release.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/05/06/world/iran-us-hormuz-oil/heres-the-latest
@@ -65,16 +77,4 @@ https://www.nytimes.com/2026/05/06/business/media/new-york-times-earnings.html
 **The Cruise From Hell**\
 `We look into the hantavirus crisis onboard the Hondius.`\
 https://www.nytimes.com/2026/05/06/briefing/the-cruise-from-hell.html
-
-**¿Puede Trump doblegar a Irán?**\
-`El presidente de Estados Unidos parece estar buscando una solución infalible para poner fin a la guerra, pero podría no existir ninguna.`\
-https://www.nytimes.com/es/2026/05/06/espanol/mundo/trump-guerra-iran.html
-
-**Your Kids Asked the Artemis Astronauts Questions. They Answered.**\
-`The crew of NASA’s Artemis II mission discussed what the journey was like and what they ate for dessert in space.`\
-https://www.nytimes.com/2026/05/06/podcasts/the-daily/artemis-astronauts-questions-and-answers.html
-
-**President Trump’s Sudden U-Turn, and a $1 Billion Ballroom Proposal**\
-`Plus, a visit to the “Gates to Hell.”`\
-https://www.nytimes.com/2026/05/06/podcasts/the-headlines/trump-iran-white-house-ballroom.html
 

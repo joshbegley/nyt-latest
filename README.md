@@ -1,3 +1,7 @@
+**Today, In Short**\
+`Dumpster diving. Intercoms. And last-minute gifts for Mother’s Day.`\
+https://www.nytimes.com/2026/05/06/briefing/today-in-short.html
+
 **Spring on a Sheet Pan**\
 `A mix of preserved lemon and butter makes the chicken extra golden and crisp, while peas and radishes roast alongside and turn tender and sweet.`\
 https://www.nytimes.com/2026/05/06/dining/spring-on-a-sheet-pan.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/06/business/dealbook/justin-wolfers-media-compan
 **The New York Times Passes 13 Million Subscribers**\
 `The company’s adjusted operating profit hit $117.9 million in the quarter, up 27.2 percent from a year earlier, on revenue of $712.2 million.`\
 https://www.nytimes.com/2026/05/06/business/media/new-york-times-earnings.html
-
-**The Cruise From Hell**\
-`We look into the hantavirus crisis onboard the Hondius.`\
-https://www.nytimes.com/2026/05/06/briefing/the-cruise-from-hell.html
 

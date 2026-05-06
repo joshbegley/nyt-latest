@@ -1,3 +1,15 @@
+**Spring on a Sheet Pan**\
+`A mix of preserved lemon and butter makes the chicken extra golden and crisp, while peas and radishes roast alongside and turn tender and sweet.`\
+https://www.nytimes.com/2026/05/06/dining/spring-on-a-sheet-pan.html
+
+**My Art Will Go On: Titanic Artifacts May Soon Be Auctioned**\
+`The last time a sale was proposed, the idea drew objections from the U.S. and French governments, and from UNESCO and other cultural institutions.`\
+https://www.nytimes.com/2026/05/06/us/titanic-artifacts-auction-sale.html
+
+**Neil deGrasse Tyson: Give Us the Aliens**\
+`Is that too much to ask for?`\
+https://www.nytimes.com/2026/05/06/opinion/alien-files-trump-release.html
+
 **Here’s the latest.**\
 ``\
 https://www.nytimes.com/live/2026/05/06/world/iran-us-hormuz-oil/heres-the-latest
