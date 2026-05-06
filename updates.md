@@ -1,3 +1,7 @@
+**Inside the Debate About Drastically Expanding Trump Accounts**\
+`Trump administration officials are weighing a plan that would allow wealthy individuals to donate shares in their companies to the investment accounts.`\
+https://www.nytimes.com/2026/05/06/business/dealbook/stocks-trump-accounts.html
+
 **Justin Wolfers, Cable’s Favorite Economist, Joins the Creator Economy**\
 `With his crisp breakdowns of President Trump’s trade moves and distinctive Aussie accent, Mr. Wolfers has become a TV constant. Now he’s starting his own media company.`\
 https://www.nytimes.com/2026/05/06/business/dealbook/justin-wolfers-media-company.html
