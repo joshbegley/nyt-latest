@@ -1,3 +1,7 @@
+**White House Insists Iran War Is Over, Even While Missiles Fly**\
+`The White House is turning to rhetorical leaps as President Trump tries to put the biggest political crisis of his presidency behind him.`\
+https://www.nytimes.com/2026/05/05/us/politics/trump-iran-war-political-crisis-rhetoric.html
+
 **A Protest Atop a Bridge Grabs Washington’s Attention**\
 `For five days, a 45-year-old former jeweler has camped on top of the Frederick Douglass Memorial Bridge, drawing a mix of support, disapproval and concern.`\
 https://www.nytimes.com/2026/05/05/us/protester-dc-frederick-douglass-memorial-bridge.html
