@@ -4,10 +4,10 @@ https://www.nytimes.com/2026/05/05/us/protester-dc-frederick-douglass-memorial-b
 
 **Trump Posts Meme of Top Democrats in Sombreros**\
 `The fake image of Representative Hakeem Jeffries of New York and Senator Chuck Schumer of New York was similar to a post from September that was widely denounced as racist.`\
-https://www.nytimes.com/2026/05/05/us/politics/trump-posts-meme-of-top-democrats-in-sombreros.html
+https://www.nytimes.com/2026/05/05/us/politics/trump-cinco-de-mayo-meme-jeffries-schumer.html
 
 **Most Trump-Backed Challengers Beat Indiana Incumbents Who Bucked Trump**\
-`President Trump endorsed primary opponents against seven Republican lawmakers who opposed his redistricting push. At least four of the Trump-backed candidates have won their races.`\
+`President Trump endorsed primary opponents against seven Republican lawmakers who opposed his redistricting push. At least five of the Trump-backed candidates have won their races.`\
 https://www.nytimes.com/2026/05/05/us/trump-candidates-win-indiana-republican-primary.html
 
 **‘Avatar’ Suit Focuses on Hot Topic in A.I. Age: A Character’s Face**\
