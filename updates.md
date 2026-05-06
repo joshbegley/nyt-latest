@@ -1,3 +1,15 @@
+**With eBay Bid, GameStop C.E.O. Baffles His Fans and Wall Street**\
+`Investors questioned Ryan Cohen’s latest gambit after he gave an evasive CNBC interview and a once-loyal supporter sold his GameStop shares.`\
+https://www.nytimes.com/2026/05/06/business/ebay-gamestop-deal-ryan-cohen.html
+
+**Jack Bass, Dean of South Carolina Political Journalism, Dies at 91**\
+`In articles and books, he wrote about the rapid racial, political and economic changes that transformed his state — and the South as a whole.`\
+https://www.nytimes.com/2026/05/06/us/politics/jack-bass-dead.html
+
+**F.B.I. Director Criticizes Local Sheriff’s Handling of Guthrie Case**\
+`Kash Patel went after local authorities on a podcast, saying the F.B.I. was kept out of the investigation for days. Sheriff Chris Nanos has denied that claim.`\
+https://www.nytimes.com/2026/05/06/us/kash-patel-nancy-guthrie-arizona.html
+
 **U.S. Prosecutors Pull Out of Event in Sign of Rift With Legal Profession**\
 `Top federal prosecutors in New York withdrew from an annual event hosted by the local bar association, which has been critical of President Trump’s policies.`\
 https://www.nytimes.com/2026/05/06/nyregion/nyc-bar-association-us-prosecutors-trump.html
