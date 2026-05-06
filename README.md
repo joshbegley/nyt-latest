@@ -1,3 +1,11 @@
+**The Boxing Match That Killed a Police Recruit**\
+`A Massachusetts State Police cadet, already hobbled from a previous bout, raised his hand to take on a more skilled fighter, and investigators say no one stopped him. Four people face charges.`\
+https://www.nytimes.com/2026/05/06/us/massachusetts-state-troopers-charged-boxing-match-death.html
+
+**‘The Book of Mormon’ Will Close for 2 Weeks After Fire**\
+`The long-running musical, one of Broadway’s biggest hits, will be closed through at least May 17 after an electrical fire in its lighting booth.`\
+https://www.nytimes.com/2026/05/06/theater/book-of-mormon-fire-shows-canceled.html
+
 **JPMorgan Tried to Settle Harassment Accusations Against Executive**\
 `The bank offered $1 million before a former employee filed a lawsuit against a woman who was an executive director on his team, two people briefed on the matter said.`\
 https://www.nytimes.com/2026/05/06/business/jpmorgan-rana-hajdini-harassment-lawsuit.html
@@ -65,12 +73,4 @@ https://www.nytimes.com/2026/05/06/world/asia/asia-heatwave-air-conditioning-fue
 **George Herms Dies at 90; Turned Castoff Objects Into Art**\
 `One of the last Beat Generation artists, he embraced the messiness of everyday life, making collages and assemblages from rusty junk and decaying objects.`\
 https://www.nytimes.com/2026/05/06/arts/george-herms-dead.html
-
-**Hasta el papa debe lidiar con atención al cliente**\
-`Poco después de que Robert Prevost se convirtiera en el papa León XIV, tuvo que llamar a su banco. Esto es lo que pasó.`\
-https://www.nytimes.com/es/2026/05/06/espanol/estados-unidos/papa-leon-xiv-banco-atencion-cliente.html
-
-**Sick Passengers Evacuated From Ship With Hantavirus Outbreak**\
-`Three passengers with symptoms of hantavirus were evacuated from the MV Hondius cruise ship where an outbreak of the disease has killed three people and sickened five others since April 11.`\
-https://www.nytimes.com/video/world/100000010886240/hantavirus-cruise-ship-passengers-evacuations.html
 
