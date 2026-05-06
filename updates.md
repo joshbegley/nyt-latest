@@ -1,3 +1,15 @@
+**Trump’s Indiana Victory Shows His Enduring Grip on Core Republican Supporters**\
+`Low approval ratings? MAGA divisions? The president was able to turn out party loyalists in an Indiana primary to help him oust Republican state lawmakers who had crossed him.`\
+https://www.nytimes.com/2026/05/06/us/politics/trump-indiana-republican-base.html
+
+**Los candidatos respaldados por Trump se imponen en las primarias de Indiana**\
+`El presidente apoyó a los adversarios de siete legisladores republicanos que se opusieron a su iniciativa de redistribución de distritos. Al menos cinco ganaron sus elecciones.`\
+https://www.nytimes.com/es/2026/05/06/espanol/estados-unidos/elecciones-primarias-indiana-resultados.html
+
+**The Most Combative Democratic Senate Primary Heats Up**\
+`Attacks are flying, prominent Democrats are taking sides and the fight is just getting started.`\
+https://www.nytimes.com/2026/05/06/us/politics/michigan-senate-primary-democrats.html
+
 **La Casa Blanca insiste en que la guerra contra Irán terminó, aunque vuelen misiles**\
 `El presidente Trump intenta dejar atrás la mayor crisis política de su presidencia. Pero proclamar el fin de la guerra no lo convierte en realidad.`\
 https://www.nytimes.com/es/2026/05/06/espanol/t.html

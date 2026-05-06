@@ -1,3 +1,19 @@
+**Elon Musk’s Confidante Is Cast as His Inside Source at OpenAI**\
+`Shivon Zilis worked closely with Elon Musk while she was on OpenAI’s board of directors. Her ties to the world’s richest man were detailed in a landmark trial on Wednesday.`\
+https://www.nytimes.com/2026/05/06/technology/elon-musk-shivon-zilis-openai-trial.html
+
+**Giuliani Is Pursuing Health Care Through 9/11 Program, Lawyer Says**\
+`The former New York City mayor, who is improving after a serious case of pneumonia, suffers from a respiratory condition linked to his exposure to toxins at ground zero, his spokesman says.`\
+https://www.nytimes.com/2026/05/06/nyregion/rudy-giuliani-health-world-trade-center.html
+
+**Possible Epstein Suicide Note Is Released**\
+`A federal judge released the note on Wednesday, which Jeffrey Epstein’s former cellmate said he found in a graphic novel. The New York Times has not authenticated the note.`\
+https://www.nytimes.com/2026/05/06/nyregion/epstein-suicide-note.html
+
+**Diplomáticos, espías y guacamayas convergen en este hotel de Caracas**\
+`El JW Marriott se ha convertido en la embajada de facto para diplomáticos estadounidenses mientras inversionistas buscan su siguiente gran negocio en el país sudamericano en el lobby.`\
+https://www.nytimes.com/es/2026/05/06/espanol/america-latina/hotel-marriot-caracas-embajada-eeuu.html
+
 **Trump’s Indiana Victory Shows His Enduring Grip on Core Republican Supporters**\
 `Low approval ratings? MAGA divisions? The president was able to turn out party loyalists in an Indiana primary to help him oust Republican state lawmakers who had crossed him.`\
 https://www.nytimes.com/2026/05/06/us/politics/trump-indiana-republican-base.html
@@ -57,20 +73,4 @@ https://www.nytimes.com/2026/05/06/us/politics/jd-vance-iowa-2028.html
 **Tomato and Orzo Soup With Marinated Feta**\
 `This is an easy tomato soup to whip up when tomatoes are out of season and tomato paste is in your pantry.`\
 https://www.nytimes.com/video/dining/100000010884560/tomato-and-orzo-soup-with-marinated-feta.html
-
-**Apple and Plum Croustade**\
-`A classic French double-layer pie, croustade is worth heating up your kitchen on a hot summer day and does not disappoint in its beautiful simplicity.`\
-https://www.nytimes.com/video/dining/100000010884556/apple-and-plum-croustade.html
-
-**Israel Strikes Beirut for First Time Since Cease-Fire**\
-`Israel struck Beirut’s southern outskirts on Wednesday for the first time since a cease-fire between Israel and Lebanon took effect last month.`\
-https://www.nytimes.com/video/world/middleeast/100000010887385/israel-lebanon-strike-beirut-ceasefire.html
-
-**Nearly 1,500 Beagles From Research Facility Will Get New Homes**\
-`About 1,500 beagles are scheduled to be removed from Ridglan Farms, a Wisconsin facility that breeds the dogs for biomedical research aimed at improving veterinary medicine, after a special prosecutor found it had performed procedures that constituted animal mistreatment. One rescue bought 1,000 of the dogs and is working on finding them homes.`\
-https://www.nytimes.com/video/us/100000010886317/beagles-research-facility-homes.html
-
-**Justice Dept. Accuses U.C.L.A. Medical School of Bias Against White and Asian Applicants**\
-`The finding stems from a 2023 Supreme Court decision that overturned race-conscious admissions. U.C.L.A. officials said the school accepts students on merit.`\
-https://www.nytimes.com/2026/05/06/us/politics/justice-department-ucla-medical-school-race-admissions.html
 

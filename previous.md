@@ -1,3 +1,15 @@
+**Trump’s Indiana Victory Shows His Enduring Grip on Core Republican Supporters**\
+`Low approval ratings? MAGA divisions? The president was able to turn out party loyalists in an Indiana primary to help him oust Republican state lawmakers who had crossed him.`\
+https://www.nytimes.com/2026/05/06/us/politics/trump-indiana-republican-base.html
+
+**Los candidatos respaldados por Trump se imponen en las primarias de Indiana**\
+`El presidente apoyó a los adversarios de siete legisladores republicanos que se opusieron a su iniciativa de redistribución de distritos. Al menos cinco ganaron sus elecciones.`\
+https://www.nytimes.com/es/2026/05/06/espanol/estados-unidos/elecciones-primarias-indiana-resultados.html
+
+**The Most Combative Democratic Senate Primary Heats Up**\
+`Attacks are flying, prominent Democrats are taking sides and the fight is just getting started.`\
+https://www.nytimes.com/2026/05/06/us/politics/michigan-senate-primary-democrats.html
+
 **La Casa Blanca insiste en que la guerra contra Irán terminó, aunque vuelen misiles**\
 `El presidente Trump intenta dejar atrás la mayor crisis política de su presidencia. Pero proclamar el fin de la guerra no lo convierte en realidad.`\
 https://www.nytimes.com/es/2026/05/06/espanol/t.html
@@ -61,16 +73,4 @@ https://www.nytimes.com/video/us/100000010886317/beagles-research-facility-homes
 **Justice Dept. Accuses U.C.L.A. Medical School of Bias Against White and Asian Applicants**\
 `The finding stems from a 2023 Supreme Court decision that overturned race-conscious admissions. U.C.L.A. officials said the school accepts students on merit.`\
 https://www.nytimes.com/2026/05/06/us/politics/justice-department-ucla-medical-school-race-admissions.html
-
-**The Iran War and Angry Voters**\
-`Economic pain is pushing many Europeans to the nationalist right. Local elections in Britain should give clues about how many.`\
-https://www.nytimes.com/2026/05/06/world/britain-elections-far-right-europe-iran-deal.html
-
-**Jack Smith Calls the Justice Dept. ‘Corrupted’ by Trump and His Allies**\
-`At a private event in Washington last month, Mr. Smith, the former special counsel, accused Justice Department leaders of targeting people for prosecution to please and impress the president.`\
-https://www.nytimes.com/2026/05/06/us/politics/jack-smith-justice-dept-trump.html
-
-**U.S. Troops in Middle East Wait for the Next Big Moment**\
-`The U.S. military is essentially on standby as officials give contradictory signals about the status of the Iran war effort.`\
-https://www.nytimes.com/2026/05/06/us/politics/us-troops-iran.html
 
