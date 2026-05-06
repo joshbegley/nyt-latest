@@ -1,3 +1,7 @@
+**A Landslide in Alaska Set Off a Tsunami. There May Be More to Come.**\
+`Scientists say as glaciers retreat in a warming climate, landslide-generated tsunamis are likely to become more frequent.`\
+https://www.nytimes.com/2026/05/06/science/tsunami-landslide-alaska-climate-arctic.html
+
 **Una caries no siempre necesita empaste**\
 `¿Cómo sabes si tu dentista te ha dado el diagnóstico adecuado? ¿Cuándo debes buscar una segunda opinión? Esto es lo que debes saber para tu próxima cita con el odontólogo.`\
 https://www.nytimes.com/es/2026/05/06/espanol/estilos-de-vida/caries-dentista-opciones.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/2026/05/06/opinion/opec-oil-markets-trump.html
 **The Artemis II Crew Takes Your Children’s Questions**\
 `The Artemis II crew flew farther from Earth than any humans in history. They join Rachel Abrams of “The Daily” to answer questions from children about what that trip was like.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000010879218/artemis-ii-space-interview-the-daily.html
-
-**Fare Enforcers Are Coming to New York City Buses**\
-`With fare evasion rampant, enforcement teams will use hand-held devices to see if riders actually paid to ride the bus.`\
-https://www.nytimes.com/2026/05/06/nyregion/fare-enforcers-buses-nyc.html
 
