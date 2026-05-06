@@ -1,3 +1,11 @@
+**In Romania, Living With Weapons of War Spilling Into NATO Territory**\
+`Four years of battle in Ukraine is taking a toll on neighboring Romanians. Even if the war has not crossed the border, drones have done so.`\
+https://www.nytimes.com/2026/05/06/world/europe/ukraine-russia-romania-drones-nato-drone-wall.html
+
+**California Governor’s Race Heats Up on Crowded Debate Stage**\
+`Attacks got personal as California’s top seven candidates for governor faced off on Tuesday ahead of the primary on June 2.`\
+https://www.nytimes.com/video/us/elections/100000010885688/california-governor-debate-cnn-race.html
+
 **John Roberts Believes in an America That Doesn’t Exist**\
 `Guess who benefits from a “colorblind Constitution.”`\
 https://www.nytimes.com/2026/05/06/opinion/callais-voting-rights-act-discrimination.html
