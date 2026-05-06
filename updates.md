@@ -1,3 +1,7 @@
+**Una caries no siempre necesita empaste**\
+`¿Cómo sabes si tu dentista te ha dado el diagnóstico adecuado? ¿Cuándo debes buscar una segunda opinión? Esto es lo que debes saber para tu próxima cita con el odontólogo.`\
+https://www.nytimes.com/es/2026/05/06/espanol/estilos-de-vida/caries-dentista-opciones.html
+
 **Inside the Debate About Drastically Expanding Trump Accounts**\
 `Trump administration officials are weighing a plan that would allow wealthy individuals to donate shares in their companies to the investment accounts.`\
 https://www.nytimes.com/2026/05/06/business/dealbook/stocks-trump-accounts.html
