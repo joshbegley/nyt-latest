@@ -1,3 +1,7 @@
+**Man Charged With Shooting at Secret Service Near the National Mall**\
+`The suspect, a 45-year-old from Texas, faces three charges, including assaulting federal officers with a dangerous weapon.`\
+https://www.nytimes.com/2026/05/06/us/politics/secret-service-agents-shooting-national-mall.html
+
 **D.C. Protester Comes Down From Bridge After Six Days**\
 `Guido Reichstadter was protesting the U.S.-Israel war in Iran on top of the Frederick Douglass Memorial Bridge in Washington, D.C., since Friday. He came down on Wednesday as it started to rain.`\
 https://www.nytimes.com/video/us/100000010886740/dc-protester-comes-down-from-bridge-after-six-days.html
