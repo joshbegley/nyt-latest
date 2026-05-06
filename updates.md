@@ -1,3 +1,11 @@
+**U.S. Prosecutors Pull Out of Event in Sign of Rift With Legal Profession**\
+`Top federal prosecutors in New York withdrew from an annual event hosted by the local bar association, which has been critical of President Trump’s policies.`\
+https://www.nytimes.com/2026/05/06/nyregion/nyc-bar-association-us-prosecutors-trump.html
+
+**The Moment That Bonded the Artemis II Crew Forever**\
+`The Artemis II commander Reid Wiseman recounts how his crewmates named a lunar crater after his late wife, Carroll, and how this became the crucial bonding moment for his crew.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000010884780/the-moment-that-bonded-the-artemis-ii-crew-forever.html
+
 **Attack on French Cargo Ship Highlights Continued Risks in Strait of Hormuz**\
 `U.S. Central Command and the ship’s owner disagreed on whether the vessel coordinated safe passage with the United States military.`\
 https://www.nytimes.com/2026/05/06/business/french-ship-hormuz-central-command.html
