@@ -1,3 +1,7 @@
+**The World Is About to Get a Preview of Life in 2035**\
+`The El Niño brewing this year might make 2027 the hottest year on record.`\
+https://www.nytimes.com/2026/05/06/opinion/el-nino-climate.html
+
 **Should You Worry About Hantavirus?**\
 `Here’s what to know about the virus, how it spreads and the risk to the general public.`\
 https://www.nytimes.com/2026/05/06/well/hantavirus-symptoms-strains.html
@@ -73,8 +77,4 @@ https://www.nytimes.com/interactive/polls/new-york-us-house-18-polls-2026.html
 **New York 17th Congressional District 2026: Latest Polls**\
 `Track the latest polls in New York's 17th Congressional District.`\
 https://www.nytimes.com/interactive/polls/new-york-us-house-17-polls-2026.html
-
-**New York 13th Congressional District 2026: Latest Polls**\
-`Track the latest polls in New York's 13th Congressional District.`\
-https://www.nytimes.com/interactive/polls/new-york-us-house-13-polls-2026.html
 

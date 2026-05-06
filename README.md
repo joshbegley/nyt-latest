@@ -1,3 +1,11 @@
+**D.C. Protester Comes Down From Bridge After Six Days**\
+`Guido Reichstadter was protesting the U.S.-Israel war in Iran on top of the Frederick Douglass Memorial Bridge in Washington, D.C., since Friday. He came down on Wednesday as it started to rain.`\
+https://www.nytimes.com/video/us/100000010886740/dc-protester-comes-down-from-bridge-after-six-days.html
+
+**Iran Says It Is Reviewing a U.S. Proposal to End the War**\
+`Nothing was disclosed about the peace plan, and there were conflicting signals from the Iranians about how seriously they were taking it.`\
+https://www.nytimes.com/2026/05/06/world/middleeast/us-iran-peace-proposal.html
+
 **The World Is About to Get a Preview of Life in 2035**\
 `The El Niño brewing this year might make 2027 the hottest year on record.`\
 https://www.nytimes.com/2026/05/06/opinion/el-nino-climate.html
@@ -69,12 +77,4 @@ https://www.nytimes.com/2026/05/06/nyregion/dna-collection-ice-arrests-lawsuit.h
 **New York 21st Congressional District 2026: Latest Polls**\
 `Track the latest polls in New York's 21st Congressional District.`\
 https://www.nytimes.com/interactive/polls/new-york-us-house-21-polls-2026.html
-
-**New York 18th Congressional District 2026: Latest Polls**\
-`Track the latest polls in New York's 18th Congressional District.`\
-https://www.nytimes.com/interactive/polls/new-york-us-house-18-polls-2026.html
-
-**New York 17th Congressional District 2026: Latest Polls**\
-`Track the latest polls in New York's 17th Congressional District.`\
-https://www.nytimes.com/interactive/polls/new-york-us-house-17-polls-2026.html
 

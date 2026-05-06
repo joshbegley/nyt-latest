@@ -1,3 +1,7 @@
+**The World Is About to Get a Preview of Life in 2035**\
+`The El Niño brewing this year might make 2027 the hottest year on record.`\
+https://www.nytimes.com/2026/05/06/opinion/el-nino-climate.html
+
 **Should You Worry About Hantavirus?**\
 `Here’s what to know about the virus, how it spreads and the risk to the general public.`\
 https://www.nytimes.com/2026/05/06/well/hantavirus-symptoms-strains.html
