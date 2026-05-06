@@ -1,3 +1,19 @@
+**A Mutation Gave Humans the Gift of Speech. These Mice Have It, Too.**\
+`Scientists wanted to know why the chatter of Alston’s singing mice sounds so much like human conversation. What they found might change how we study both species.`\
+https://www.nytimes.com/2026/05/06/science/a-mutation-gave-humans-the-gift-of-speech-these-mice-have-it-too.html
+
+**Can I Ask My Brother to Have His Racist Prison Tattoo Removed?**\
+`I know that some tattoo artists will cover white-supremacist tattoos at no cost for those who have disavowed such views.`\
+https://www.nytimes.com/2026/05/06/magazine/brother-racist-tattoo-ethics.html
+
+**El hombre que no era: 20 años después de un error televisivo en vivo**\
+`Guy Goma creyó que iba a una entrevista para un empleo cuando de pronto apareció a cuadro en la BBC. Lo que pasó después le sonará conocido a quien no haya estado listo para un trabajo.`\
+https://www.nytimes.com/es/2026/05/06/espanol/bbc-entrevista-guy-goma.html
+
+**New York First Congressional District 2026: Latest Polls**\
+`Track the latest polls in New York's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-york-us-house-1-polls-2026.html
+
 **Ted Turner: The News Never Stops**\
 `Ted Turner, the visionary founder of CNN, introduced the 24-hour news cycle.`\
 https://www.nytimes.com/video/obituaries/100000010886420/ted-turner-the-news-never-stops.html
@@ -61,20 +77,4 @@ https://www.nytimes.com/2026/05/06/climate/weather-service-staff-storms.html
 **Howard Lutnick Faces Questions From Congress About Epstein Ties**\
 `The commerce secretary was  in a closed-door session on Wednesday with the House Oversight Committee`\
 https://www.nytimes.com/2026/05/06/business/economy/howard-lutnick-jeffrey-epstein-house-oversight.html
-
-**You Can’t Be Born Here. You Can Only Die.**\
-`The existential pain of losing birth services.`\
-https://www.nytimes.com/2026/05/06/opinion/rural-hospital-deserts.html
-
-**My Mother Won’t Reschedule Her Elective Surgery So I Can Be There. Help!**\
-`A reader wants her mother to pick another date for a hip-replacement surgery so that she doesn’t have to miss an important work conference. Cue the cutting email from Mom.`\
-https://www.nytimes.com/2026/05/06/style/elective-surgery-rescheduling-priorities.html
-
-**Hantavirus Cruise Ship Remains at Sea as Leaders Clash Over Its Docking**\
-`Three people with possible symptoms of the disease were evacuated on Wednesday morning from the Dutch-flagged MV Hondius.`\
-https://www.nytimes.com/2026/05/06/world/hantavirus-cruise-ship.html
-
-**Trump Makes Sudden U-Turn on Strait of Hormuz Escort Mission**\
-`President Trump changed course on the U.S. mission to guide ships through the Strait of Hormuz just a day after it began. Oil prices fell and stocks rose as he cited “great progress” toward an agreement with Iran.`\
-https://www.nytimes.com/video/us/politics/100000010885602/trump-iran-hormuz-project-freedom.html
 
