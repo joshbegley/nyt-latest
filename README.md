@@ -1,4 +1,4 @@
-**Virginia Politician’s Office Raided by F.B.I. Agents**\
+**F.B.I. Agents Raid Virginia Politician’s Office**\
 `Two people familiar with the case said the search of a Democratic lawmaker’s office was related to a Biden-era investigation of possible corruption and bribery related to marijuana businesses.`\
 https://www.nytimes.com/2026/05/06/us/politics/louise-lucas-fbi-raid.html
 
